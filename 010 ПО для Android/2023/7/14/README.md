@@ -19,8 +19,7 @@ AGAMA Car Launcher 3.3.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:E4F92CB45EAFD6D83F76934F148F8D840AAF481D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

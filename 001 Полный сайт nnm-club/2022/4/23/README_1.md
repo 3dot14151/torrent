@@ -21,8 +21,7 @@ VA - Synthwave Dream (Vol.05) (2022) [MP3|320 Kbps] <Synthwve, Electronic, Synth
 ```bash
 magnet:?xt=urn:btih:238DE596A86270267F94651A6EBD88E433F3D988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1A91488C21B88ADF7501065B53BC9060B3B1B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:613560F3D5088AE0EE1B90C52967EE98BD1CF492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ One Way - Fancy Dancer (1981) Reissue, 2008, Dizzare Records [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:EA13BA6A28B7568C4C0C5648AFFD02DE16B7F314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C01CCF11260913042B3B0BFD227FF6E599B62324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A70A247AE7CFC716F325EFA260B23A11489EB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ VA - Relax Mix (2022) [MP3|320 Kbps] <Pop, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:C085758C8313016312EDD5E4C937B9503CF3B3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Qrion - I Hope It Lasts Forever (Remixed) (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5B0875BAC32A491520FC1AEC8D533D431F239DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5911143FDF9A15272063A62E18B6525A9B00AC09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8DA70566F94A986DE324D7271936E7C5D5DA63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Udo Dirkschneider - My Way (2022) Cover Album [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:1CC6D0AFE7E94368772B3737058EC19361766333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ VA - Beatport Techno: Electro Sound Pack #514 (2022) [MP3|320 Kbps] <Techno, Min
 ```bash
 magnet:?xt=urn:btih:39655493DAC31A9BD9F5E89731B9D9F03F6EAE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ Daniel Falconer | Артбук по фильму Район № 9 / The Art of D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Psychedelic Porn Crumpets - Night Gnomes (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:B232BAE7DAFF6A75C2F4187392E83DAC4B553351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ A4	Shine Through My Dreams(   Читать дальше...   )Жанр: Pop/Easy
 ```bash
 magnet:?xt=urn:btih:DD39C66E482673A37C083EF65F671EC48BD8C106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ A4	Marvin Gaye & Tammi Terrell -	Ain't No Mountain High Enough(   Читать �
 ```bash
 magnet:?xt=urn:btih:DA7E8F2BECD8B6C041C5B1A5BEF52A5267F73396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9661E4402937CEC6956777C503701A61DA2BD29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ VA - Super Disco Еxclusive Remix [Vol.1-5] (2022) DJ Lexsus [MP3|320 Kbps] <Dan
 ```bash
 magnet:?xt=urn:btih:196BFD2CA1CFBBD37C5E88E5877327F05C9B71BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Written-By – Englemann, GlazerЖанр: PopПродолжительность:
 ```bash
 magnet:?xt=urn:btih:07B0A4F335979C66628A17454F13F21D74BD4B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ O&O DiskImage позволяет создавать резервные копи�
 ```bash
 magnet:?xt=urn:btih:56817F8188ABEFD15E4753C1506224B2DB51A137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA8040FCE84A7318AA8C5E1E3DF69D703BE4ABE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ Ic3peak - Discography 19 Releases (2014-2022) [MP3|320 Kbps] <Coldwave, Darkwave
 ```bash
 magnet:?xt=urn:btih:3825AA794BCFF75E869BD948D26E3C84C00214AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:413FBCE677F65096727973D054CB0AC50DD087FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D92491C37086A113427107EA90169D17D61E3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3E9E98A3429ED5D06F2440AFAF545F2CF07A6FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC07E800BF663EF2B46898D375667F111DDA691F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28A048BF9C63B75E53D27E013C12BE33891E26DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:1E3C4A1013FD98270D52A720ED1B4C63CB3B62B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

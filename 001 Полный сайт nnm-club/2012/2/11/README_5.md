@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:F9470491AA04BF11713ADBA7411D39E29BC9F661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ VNP - Trance Traveling 22 (2012) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:16B935CB500EE7AAE612D1DA777797AB192C37F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:130165D14A7A29E123CA4E9D0FF6B4E83DCF4CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:500DB339B3BE3A68E274648EA52710EC8E32E070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ VA - Премьера новых хитов (2012) [MP3|256-320 kbps]<Pop, Dance
 ```bash
 magnet:?xt=urn:btih:7A84215CB810EAA5DA1A58B1DFF7C49AD6C48251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2096BF30981C528D1D535FC2CF22B4683390FBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ Twilight Ophera - 4 альбома (1997 - 2006) Дискография [MP3|320
 ```bash
 magnet:?xt=urn:btih:72FE419B753C5C2D07164D1D268507B582AEAAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FDBA2B38738E88B3EFF23FBE50399E61B92F015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ VA - Хитовая дискотека по-русски (2012) [MP3|256 kbps]<P
 ```bash
 magnet:?xt=urn:btih:DDBC901308E2CA3E16F0688BBD06C5B78882B57C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ SadDoLLs - Happy Deathday (2012) [MP3|256 kbps]<Melodic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:74FA6F4C5689528F60CAB17731B3658D59F09A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ Walter Beasley - Go With The Flow (2003) [APE|Lossless]<Smooth Jazz, Crossover J
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ Fantazista - До востребования (2012) [MP3|320 kbps]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:97533ED6A2D353DEE690AA356884854E216D6EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +400,7 @@ Interactive Noise - Synthetik Pleasure (2012) [MP3|192-320 kbps]<Psychedelic / P
 ```bash
 magnet:?xt=urn:btih:D492412342D3767453C92172306CA25DF47F0267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +434,7 @@ Biosfear - Antes De Que Todo Cambie (2011) [MP3|320 kbps]<Heavy/Progressive Meta
 ```bash
 magnet:?xt=urn:btih:6893A82615C2A55916BED18725333194E8819A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +464,7 @@ Woody Shaw - Woody III (2011) [FLAC|Lossless]<Hard Bop, Post Bop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +498,7 @@ Zero Illusions - Oblivion (2011) [MP3|320 kbps]<Progressive Metal / Power Metal>
 ```bash
 magnet:?xt=urn:btih:53F7BCEFB1CC32BBCC9FF2D499915724DB4A51AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +523,7 @@ IsoBuster - программа, с помощью которой можно по
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +557,7 @@ Bunny Brunel, Daniel Goyone - Touch (2006) [FLAC|Lossless]<Post-Bop, Fusion>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5FCCFD913759B9522374DD446EC54B25C0D7595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +643,7 @@ Concrete Sun - Sky Is High (2011) [MP3|320 kbps]<Southern Metal>
 ```bash
 magnet:?xt=urn:btih:BBB57F79990572C43DE07B7164B246905D89A33B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +675,7 @@ Mystic - Grace (2011) [MP3|320 kbps]<Progressive Metal/Fusion>
 ```bash
 magnet:?xt=urn:btih:829B2E59511FB1A2C848DE7C726C16B2BAD3B868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B80BC639C2BB325C093305FB35B2BA6DE7FAF850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +737,7 @@ Tubby Hayes Big Band - 200% Proof (1992) [FLAC|Lossless]<Big Band>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +767,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E0EAF7F34334640C4A56F3B74C00491EA815C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -826,8 +801,7 @@ Sorrowful Angels - Omens (2012) [MP3|256 kbps]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:AD0A4D15011AA9AA6371843819BE543B17551769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

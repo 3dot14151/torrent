@@ -22,8 +22,7 @@ Towards the Sun - Коллекция [4 Albums] (2021-2022) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:E4D0D2F48A2C23E6ADB90610C94831AC10F11EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

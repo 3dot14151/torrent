@@ -19,8 +19,7 @@ Unchecky - полезная утилита, которая автоматиче�
 ```bash
 magnet:?xt=urn:btih:11CA1D207057E01460AB5DAFE752ECD7C83C3BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

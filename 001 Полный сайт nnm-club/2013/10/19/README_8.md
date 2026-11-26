@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Secret Files: Sam Peters (2013) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:D188BB9E4D90F5BE629F63DA6D2212935598F252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Michael Jackson - 25 Best Songs (2012) [MP3|235 - 272 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:E54FC3C64C056711886B83104617C8B30639B95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F04330441FA0E7BB2339D3FBF1AED76AAFBC41C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DFF949004D72E63A862B0EA5F726B1F011D548B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ InternetUrok | Химия 8-11 класс (2011-2013) WEB-DLRip [H.263/H.264]
 ```bash
 magnet:?xt=urn:btih:74FEFBAE24BA6E22B2F11EB390749DC8A45D15C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ InternetUrok | Биология 6-11 классы (2011-2013) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:A584EF68ED9BC110B871E205CD3BEF76A34F0087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Cabela's African Adventures – симулятор охоты в полност�
 ```bash
 magnet:?xt=urn:btih:843F5632BBEA6C512AB19C4A85706C5CCB8F616B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54584B7E2051B560EE5332941A70EEE94A93BB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ WRC 4: FIA World Rally Championship [XBOX360] [Multi 5] [Freeboot] (2013)
 ```bash
 magnet:?xt=urn:btih:BDAA9F91E5BF1BAA28D69C6565C5E40A0AC1E687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ InternetUrok | Информатика 5-11 класс (2011-2013) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:A54FA3071F7C9F81C9358ED138D44C1E5C60B9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2A723302D628A191BBCBBFAF7AF4E52C2F6F6E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ InternetUrok | Математика для начальных и средних 
 ```bash
 magnet:?xt=urn:btih:69F11ECC495C71BB6F10F82EED532290835B8817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ KiCad - cистема автоматизированного сквозного 
 ```bash
 magnet:?xt=urn:btih:67F73B3B847E59F9337D61D92AEE459C016975DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ InternetUrok | Русский язык 1-9, 11 классы (2011-2013) WEB-DLRi
 ```bash
 magnet:?xt=urn:btih:4A2D59820B528523EDCBAFD6950944AC5C646DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD73733F8F6D80F64B792AB42CD1ABF2517EA33F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Solitary Experiments - 17 releases (1999-2013) [MP3|192-320 кб/с]<EBM, Electr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ AutoCAD Structural Detailing – это AutoCAD, дополненный сред
 ```bash
 magnet:?xt=urn:btih:4FC6DF20FAA5C543F00374ABF7B12B07442040C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C33DA68B17C794AD70FEC23974EBE57D290F8F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ World of Tanks Mods (2013) [Ru] (7.8) Mod Jove [Extended edition] [Сборка 
 ```bash
 magnet:?xt=urn:btih:4F64DDFDCAFDE8A833A9423F31BF4B086283BDAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4A119DFD81D5D9BE8B24E30CBFF361323B3726B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Acronis BootDVD - загрузочный диск, который вмещает
 ```bash
 magnet:?xt=urn:btih:146A8AAA7C725A3855BE76A7221943F6D4600A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2BF817E2EB2D3C31E7B552051E78F7C3695B9EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ Autodesk AutoCAD Map 3D 2014 SP1 x86-x64 [Ru/En] (AIO)
 ```bash
 magnet:?xt=urn:btih:C35C77E0C03BF383DD410D8EE6D05C3740D4BBDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

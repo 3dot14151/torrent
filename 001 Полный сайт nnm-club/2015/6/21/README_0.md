@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B842205CE9BFC6418517EA8D8F6C406E3F5C68B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Negative Self - Negative Self (2015) [MP3|320 кб/с]<Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:44F1589138D73FAE6D50B12AC670B4FB7628779F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C10B1CF39E522EC273279374EF551DD02141031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Count Markus Cross - Possessed (2015) [MP3|320 кб/с]<Progressive, Hard & Heav
 ```bash
 magnet:?xt=urn:btih:76C504E9062D7E5EDA63A03A7F5D6F26315BED45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5671BC249D68F2CA341DB5F0917DCF612574F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55DA879AE64BCB359FC62CF67218160BE6A6A915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B52380650DCE18170674AA929DFA5A4E56A7C7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5321EED4DA310ABD5A1AE0A8B8AD24C36BB5B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56CB84D8DA1BD136B026E074B0018F96247395DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Freak Circus Racing 1.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:BCB573E872828E8F6E8ACC9746E992E65316E4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B761179A9B33E68DA821229DB02A74B0447C7EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EABBB228B9646549A12382954F5CFA63A31C3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ DeLaurentis - DeLaurentis (2015) EP [MP3|320 кб/с]<Alternative, Indie Pop, EL
 ```bash
 magnet:?xt=urn:btih:DCE0DA64C49FF7DB01D8BA429AE873CC6D554E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E34FB03095EFE3CDC9EFDF994008304ADE3AD935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E4759A50DFDCB86F4049E82A581DCB558788BCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5F81AE50B37ADED510AFD9EDBE5FFA22AD4520C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Crystal Ball - Liferider (2015) Limited Edition [FLAC|image+.cue]<Melodic Power 
 ```bash
 magnet:?xt=urn:btih:5E994D09D91EFCEFD5C731222965CEA4C91956F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ Don't Sleep 3.75 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7C04430E98320BC36E96C512CD819575023D4544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F316C621F22DC2CB6F867EB91E9D51FEECBA246F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23CC17E7857F2632E41FEB04F18445C6A2B4450D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1A2C23F4A1A4B8FFFB13B23B221C34AABBC13E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D7EBD301F5BAC1CDCA59F30DD81F2A05EC9FADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7508EDD778E44A0342DCEB937B45E8900FA46D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B612B465A83FE1E217ABAF6E0EB945D870227C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ Ester Rada - I Wish (2015) [FLAC|image+.cue]<Ethno Jazz, Funk, Soul, Rock>
 ```bash
 magnet:?xt=urn:btih:2AED513601A834BC165341B24071BE73717FB0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 ```bash
 magnet:?xt=urn:btih:5FC60DD45DF220CDBB30D603436D98DA71221280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

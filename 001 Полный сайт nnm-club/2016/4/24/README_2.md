@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D374ADAC1FB152F30FF0A95E64513F951F08D1B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9515226C5CB42CE94A432D3CF16650660E3733C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE66F046C52CFDC69798320065A1B222C27F0437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A79744FB2A33E5304DE3D895546287DAF83B121D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A21BE7EF3860D4BB27A7A466789D06ADA94AF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07413E84CAE59BED3E018BC2D425E8371B21F926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ VA - Running Trax 5k & 10k - Ministry of Sound (2016) [MP3|256 кб/с] <House, 
 ```bash
 magnet:?xt=urn:btih:6991AA23F563FBC726132ABF81F3D4730092F834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3120CFDF52D037B822D381C359B26007394D456C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA006615F4FCFC9F986E6C92233C7E852739B9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:6EB738EA9551E43AA798CB11DB203CEEEC0D3AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8CA040743D21845EDD487BABC5CF81565B1E81E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDE06DD19D23607D4838C02459EB5F645386C457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3032995427272297F35A5C2EAB5710126B45E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DA0270F6612F092248DE88F643575AFDC128C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ Mp3tag - утилита, для быстрого редактирования ID
 ```bash
 magnet:?xt=urn:btih:F5DEDFD11922C9B07CD324B871FA7DE5E7EC11E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ ICQ — одна из самых популярных программ для м
 ```bash
 magnet:?xt=urn:btih:90C2BF4DEB47F1CA1B1FADB021366552847FC7AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4408335A767A725062B3C704E48B64E3F7A11BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Houdini FX сочетает в себе высокую производител�
 ```bash
 magnet:?xt=urn:btih:DDD15A81150DC5E745C411D12A361E614AD1D565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0707F8F06303974429CA3D1931B960B17B8E669E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C4FC29D90CE5C554BB72C003FDA7CF79E7292F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:921283665872C5AF125883999DF106A68487B9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ Shin Kidou Senki Gundam W TV | New Mobile Report Gundam Wing | Mobile Suit Gunda
 ```bash
 magnet:?xt=urn:btih:1340A57AF792CC7ABA636277D3D98473A4C15D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ TaskX является идеальным инструментом для (   �
 ```bash
 magnet:?xt=urn:btih:F203A09B4CBCB53EE53BB09766AAA0981177F8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9E73145F7CF4E008FE795DE287956A586C864C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +632,7 @@ VA - 100% Автохит (2016) [MP3|256 кб/с] <Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:7A1FD16E1ED22CC49A87EC106F1927332FEB67AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6524EE2C0E66057F46CB9596EEEE264C7768B3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

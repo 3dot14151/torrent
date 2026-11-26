@@ -22,8 +22,7 @@ Andrew Hill - Andrew!!! (1964) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bo
 ```bash
 magnet:?xt=urn:btih:E9F9FC470F41667CC5661038299154EF90327C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Charles Earland - Leaving This Planet (1973) /2014, Universal/[FLAC|tracks+.cue]
 ```bash
 magnet:?xt=urn:btih:4482272BFD467FA34CE04174575F075DF02C6B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stanley Turrentine - Another Story (1969) /2014, Universal/[FLAC|tracks+.cue]<Ja
 ```bash
 magnet:?xt=urn:btih:840877EBF985229BA6EF9B2CB993202E902CF5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF36D152180E381F64C7328741647EF392A69838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Roy Eldridge - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:98CFCD8A95751B61988FCF9F577369445666EB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:590000FEDED90FD8CA74A2A0D7898EC77BDEFF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Stephane Grappelli - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:F8D505D689AEC3A8B0DEC26EF8EB92482EE2FE47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Zoot Sims - Tenorly (1950/1953) /1993, Disques Vogue/[FLAC|tracks+.cue]<Jazz, Ma
 ```bash
 magnet:?xt=urn:btih:6CE1344528958FC22455D072829BFA34C0903F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Memphis Slim - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:1D287A8A93F15AD6D4F0DADB8744FFE74EA4C7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:517A214DDD83CE7641F2ACEA8E26E34F4BF6F022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD912E2087953594AD262C54FD1962207576D92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Sonny Rollins - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:024E718B3FE32DEEA5F9FA4F3DA45341E4DE62CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C66ABFF0817D23C58272C6B6D4365BABDEDDB1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Stan Getz - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:18CE9AD303CE2AEB955019B48971F423D48F7828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Sarah Vaughan - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:FBF8834489A942BDD831A123ADE1412CD8F5926C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Robert Johnson - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:355F22A96CEAE8745D3CA125B45A636C595925A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:949DA1B142369CB770F197CA068520041D9585CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5A70FD5CFF967DF2068982C09CF178C47340802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1107804DE659F614F24468F469556FDF9D29104E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52108CC1F89022EC44D34CB101712AEADA1830BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:925450CFCA0711CBBF09E5DCFBDE21421E83006B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAF403BDC861907F45613FE51B4E39DC88D0083E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ Django Reinhardt - Retrospective 1934-1953 (2003) [MP3|320 кб/с]<Jazz, Gypsy 
 ```bash
 magnet:?xt=urn:btih:F4ECFAAEB7641D454C7F9D6589CBB497FF5D04AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ Vivaldi 1.0.219.43 Technical Preview [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:347192F009BB4E3D5247BF653F9B3F4CD8E5258F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ Citrio — это быстрый, простой и безопасный бра�
 ```bash
 magnet:?xt=urn:btih:DA3179E197EAFEC6C0EB8533CDC1B7D68C300873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

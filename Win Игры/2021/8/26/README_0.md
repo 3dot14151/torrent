@@ -19,8 +19,7 @@ Dungeon-crawler Action RPG с элементами roguelike, где Вы мож
 ```bash
 magnet:?xt=urn:btih:9CFE64AA12E675C017313EA48311D4AF8895F0A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

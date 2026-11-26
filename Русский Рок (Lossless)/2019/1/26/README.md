@@ -22,8 +22,7 @@ Alkonost - Октаграмма (2018) [FLAC|Lossless|tracks + .cue] <Folk, Meta
 ```bash
 magnet:?xt=urn:btih:36C7EFC57B5058A63BF6024FFF20AC38FE7FEB3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alkonost - Песни белой лилии (2016) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:889DF248EC200074DDF7AD73CE5251429AE0DB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

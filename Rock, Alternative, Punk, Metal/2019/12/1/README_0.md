@@ -22,8 +22,7 @@ Gudars Skymning - Dansa Tillbaks Till Din Grav (2008) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:3B8C0FD8597865332D539652A0AEB800F21C9065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brazzaville - Welcome to Brazzaville 2 (2012) [MP3|320 Kbps] <Chamber pop, Indie
 ```bash
 magnet:?xt=urn:btih:7416660AF6051FE72FAFF916D6B1EF542148CE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

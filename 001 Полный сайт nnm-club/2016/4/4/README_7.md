@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D4A2097B781FAF7E159615006EFDAFEA7EE6B890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCCFBB6AFFF6A3955CF99D7821FC74A6CCB90E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Windows 10 – самая популярная ОС среди геймеров
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Hai to Gensou no Grimgar / Grimgar of Fantasy and Ash / Гримгар фант�
 ```bash
 magnet:?xt=urn:btih:EB2F7306EF6114B436F395683EDA38D8963CEF84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ The Walking Dead: Michonne - Episode 1-2 (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:11BD2591DEB22D6CEBCFC225B201A2234E4DC9F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E6A94D0037C7BD52B4F3F1555EFDAB4D11EDE6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Carambis Cleaner поможет Вам значительно повысить �
 ```bash
 magnet:?xt=urn:btih:33E48AFA51F417621D64BE28D32393317C49BD58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ JavaScript - основной инструмент веб-разработчик
 ```bash
 magnet:?xt=urn:btih:634D6BC4AFABEBD4A3E098F62665C537C690648E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0129AE7841C2123A3E36745BBA18DA4AE401509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Moon Hunters - это кооперативная RPG для 1-4 человек, 
 ```bash
 magnet:?xt=urn:btih:71C2AB62B6945CEC1F4D9188F1384FCE7509280A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Villagers - это прекрасно иллюстрированная и дет
 ```bash
 magnet:?xt=urn:btih:69F7C5F696D3FD282218AB46B9F2C8C7F5AF2728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Mirillis Action! - программа позволяет в режиме реа�
 ```bash
 magnet:?xt=urn:btih:DAB15B5C40D410A902294EFB7C72520F7D183B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ DipTrace  - это многофункциональная САПР по разр
 ```bash
 magnet:?xt=urn:btih:1F81EDC1169B768E119798FDD2B0FAF80105E687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4760A8611167B2A706DDE87526C214DE3458E557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.1.1.0/dlc) Repack R.G. Catalys
 ```bash
 magnet:?xt=urn:btih:9DABFA96B51503B9C22B995BC89F25707C5CE7EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Symantec Endpoint Protection, использующий технологию Insi
 ```bash
 magnet:?xt=urn:btih:DD5F8503BFE5828CD1EE1D570955DE14EE494C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ Babymetal - Metal Resistance (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal,
 ```bash
 magnet:?xt=urn:btih:BAE0B39185E6CA6FACE76C4D1C4604870D083034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5BE13648FD45AE9D63514010C3D4410C38BA34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B255A3DF294E401FCCB366F14A0187CEF482C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:AE3E6D03F30AC865DD8845C0B1D07F64967F82BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ VA - Pharmacy Plus - Anthology  Vol.1 (2016) [MP3|320 Kbps] <Trance, Progressive
 ```bash
 magnet:?xt=urn:btih:12F8C291666523DEDCE6C6D81AA12C6A3999DE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - The July Releases (2016) [MP3|320 Kbps] < Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:85E2321514E7F1B59528418D4024517B4A8FD27B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Paradise Lovers.St Valentines Day Edition (2016) [MP3|320 Kbps] <Downtempo,
 ```bash
 magnet:?xt=urn:btih:1743C6629BAB1F935F7F8546C6B6144E0898D654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Club Trance (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:CD5B2EA323027DE3850659B1CFF911E1472F44CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95311800AE048BFF47D0F4E7202C3AD588BAFF37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - Vocal Anthems Ibiza (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:92A3E10946E03B931722B8A0D2FFEC2EB01BDDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - Uplifting Trance Collection - Episode Second (2016) [MP3|320 Kbps] <Trance,
 ```bash
 magnet:?xt=urn:btih:E66B2D2F6B1971CCA6BCB9CC17092D2F7A9983C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ VA - Re:Commended - Deep House Edition, Vol.7 (2016) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:DE1FD5609ED60275C64F859C88CEE9F4B888EB9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CB546BE925FACC983020494188F34A370711137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A32985C682902F2B192BC9EA45E41B2D510E53C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ VA - Progressive Psy Trance Picks Vol.25(Compiled by Vaishiyas) (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:F9C248D5604CDCEFDF860EE7B637221DA3B9457D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Solea Amphibia - 2 Albums (Stratosphear / Say "Infected") (1999-2001) [APE|Lossl
 ```bash
 magnet:?xt=urn:btih:E1889792C15EAFDBA95B149CFB3A80241B2924ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ VA - Dance 100 Love Rhythm (2016) [MP3|192~320 Kbps] <Hardstyle, Hand Up, Dance>
 ```bash
 magnet:?xt=urn:btih:29769F05A8C5C870AED1B1D20B85D41B704B4F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E9CA6A11E0A012F6CAC4DB77BB4D236C1C3E5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ VA - Sweet & Sexy, Vol. 1 (Beautiful Relaxing Music) (2016) [MP3|320 Kbps] <Down
 ```bash
 magnet:?xt=urn:btih:D934F40A1D6C1F7C762211EC2C610D0EA3F16D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ Stonefield - Stonefield (2013) [MP3|320 Kbps] <Blues Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:04182A14DD840005D4A7958898107E3CDB2E6857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ VA - The Best - In Music We Trust Vol.3 (2016) [MP3|320 Kbps] <House, Electro Ho
 ```bash
 magnet:?xt=urn:btih:3993BC968772AE1DE3FACA19FF18BC1EC1A4DC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ Mick Kolassa - Michissippi Mick (2014) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:3914D11A2C1F73737542A5D187BC27BDD6ADADAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ Bobaflex - Charlatans Web (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock, Nu Me
 ```bash
 magnet:?xt=urn:btih:2A97AD7DEEC32091D9D09863EB937974740ACB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C5C21F03E6A3AE6B4F1B123DDD46998E28DB55E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ Ron Carter Trio - Cocktails at the Cotton Club (2013) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:500AE6FA03E1493E6B7BFF943E3E04FC2AFC982D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ Siggi Schwarz (Feat. Andreas Kummert & Jessy Martens) - Heart & Soul (2016) [MP3
 ```bash
 magnet:?xt=urn:btih:8BA065AD08D0463472B93D21F9B218D8424EAADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ VA - 100 Summer Dance Hits Workout Energy for Fitness (2016) [MP3|240-320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:AEE662F4B40DD373AE201F201ABA7BDCC925A663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C71F02918338651C91A60F6158CD44D04F294C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ VA - Deep, Dark & Dangerous: Volume 1 (DDDC01) (2016) [MP3|320 Kbps] <Dubstep, D
 ```bash
 magnet:?xt=urn:btih:0C9C8BA2C60B0D686EC831D16EF1A92A046055A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

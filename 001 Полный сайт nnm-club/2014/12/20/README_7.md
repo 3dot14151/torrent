@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A96F1655C9C58C1E65E7D66B546ACBF0EC7B17BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6B0144992208ADA007D973DAFA2FFF4C5CE1A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60F21784E74362C58A3CEE11B7B6F0E9496234FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58651A166D364941B38E1343501555741D2A0278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Akame ga Kill! / Убийца Акамэ! [2014, TV, 24] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:9C007557E1F6EE1ABB56769BED602226A2B2D97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F12CEA95D1B88182C6D7B5FD7FE9AD64B9CE48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Windows 8.1 with Update - Оригинальный образ от Microsoft MSD
 ```bash
 magnet:?xt=urn:btih:86B017845B86F9736C96773ED050DB6B2C275DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37E11B92E2980DD82DAF98BB5597FB61DB25CC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ ABBYY Lingvo x6  Professional 16.1.3.70 Full RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:85231EBA89B010AE0118ECD0F9E69EF5F7803FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Ghost in the Shell: Arise / Призрак в доспехах: Начало [20
 ```bash
 magnet:?xt=urn:btih:5A3790D9BA2F8A81E79562B30663910F31C331BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ CorelDRAW Graphics Suite X7 - новый графический пакет, по
 ```bash
 magnet:?xt=urn:btih:B5F3DB8113D83AC69A9F6C302C5903AF8004F839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Windows Server 2012 R2 - это проверенная масштабируем�
 ```bash
 magnet:?xt=urn:btih:01599883EA2F71E61CA3CFD2549F55D0B4D014B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32480B5E7778EB0968A1519E49254A8272536784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ Viking Conquest - это второе по счету DLC (загружаемо�
 ```bash
 magnet:?xt=urn:btih:9417755389F19C71A92B0F1B3F9D0B24E4410464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ Windows 8.1 with Update - Оригинальный образ от Microsoft MSD
 ```bash
 magnet:?xt=urn:btih:0F7936893A9285FBFADBF7EC4E23FDE7615B160E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ Windows Server 2012 R2 - это проверенная масштабируем�
 ```bash
 magnet:?xt=urn:btih:B5C95E758DBF6835BECAE500CA967C82D2A04B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7671098C897A76EC6A08B63FCE2A84DD517EFAA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ How to Survive – зомби-экшен на выживание, действи
 ```bash
 magnet:?xt=urn:btih:41BC4E7F0AE62EE16F1E54CE68FB71C215DE3071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94BC175743BEC3E2CA83036357FF2534BCDF5BC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ Call of Duty: Advanced Warfare разрабатывалась в течение 
 ```bash
 magnet:?xt=urn:btih:E7C57D44DBB2F76748C079E33A038054DD53F504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ Call of Duty: Advanced Warfare разрабатывалась в течение 
 ```bash
 magnet:?xt=urn:btih:A4FA07C2C5EC38F4683FEBD79F2E2593BAC856AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

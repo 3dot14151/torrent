@@ -22,8 +22,7 @@ A4 The Yellow Rose Of Texas(   Читать дальше...   )Жанр: PopПр
 ```bash
 magnet:?xt=urn:btih:EF191AEEF168D6CD3F25ACFEACEC26034A7DAB10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Vaghissima Sembianza(   Читать дальше...   )Жанр: Classical, 
 ```bash
 magnet:?xt=urn:btih:0086FC9B535DD7B2ADD5FCB8C19F5145030CD0F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Dream For Sale(   Читать дальше...   )Жанр: Pop Rock, Rock & 
 ```bash
 magnet:?xt=urn:btih:0A8C53AD18B67ED9DF88C10D936186AA13DB730C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

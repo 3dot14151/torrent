@@ -23,8 +23,7 @@ Vestiges - 1 Альбом, 3 Split (2010-2013) [MP3|320 кб/с]<Post Hardcore, 
 ```bash
 magnet:?xt=urn:btih:524B3631BC8056A008BEE1A1D419811426545800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ifing - Against This Weald (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Fol
 ```bash
 magnet:?xt=urn:btih:8EDD25AA10A4DF434D4681347DDC8A86564B976E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Dysk-1:
 ```bash
 magnet:?xt=urn:btih:7CAF66707A7458252F9D96A84F0C80071CD1886F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Akentra - Alive (2014) [MP3|320 кб/с]<Melodic Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:EBD1389ACA8E81EB930AA538F6FD2672DA1E150B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Hierophant - 3 Альбома (2010-2014) [MP3|320 кб/с]<Blackened Crust, Dar
 ```bash
 magnet:?xt=urn:btih:53C9BACBA7F421118DB5F868457C754FF05E820A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Helsott - Woven (2014) [MP3|320 кб/с]<Thrash Metal, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:ED528626364D6441557970362CDFBE6E43ABF567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Nachtblut - Chimonas (2014) [FLAC|Lossless]<Melodic Dark/Black Metal>
 ```bash
 magnet:?xt=urn:btih:9C9B4ACEF2B4ED612F2F01204EEC1492FD75E0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ Andy James - 6 Альбомов (1999-2013) [MP3|320 кб/с]<Modern Metal, Shre
 ```bash
 magnet:?xt=urn:btih:8E88C23D9912EE876915C77723D473B56657516C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ The Best Of Bootlegs
 ```bash
 magnet:?xt=urn:btih:DFB6813D5DF703396A7AC32ACD1FE1F91F7DA48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +314,7 @@ Manfred Mann - Lone Arranger (2014) [MP3|320 кб/с]<Art Rock, R&B, Electronic>
 ```bash
 magnet:?xt=urn:btih:5D8444CDD7795FA78E7F31C08359D4E3AB43BACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ Lyriel - 6 альбомов (2005 - 2014) [MP3|320 кб/с]<Gothic Metal, Folk M
 ```bash
 magnet:?xt=urn:btih:B8911444398DA3E3747D9EE5F321826FB3460E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ Pain Of Salvation - Falling Home (2014) Limited Edition [FLAC|Lossless]<Progress
 ```bash
 magnet:?xt=urn:btih:D7D58B3616161EC70EF14C2E0D78493B2BF475C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +410,7 @@ Nickelback - No Fixed Address (2014) [MP3|320 кб/с]<Post-Grunge, Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:72356CF42B20411C6510A8EE5444CB2486F9BAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +444,7 @@ Pink Floyd - The Endless River Deluxe Edition (2014) [MP3|320 кб/с]<Progressi
 ```bash
 magnet:?xt=urn:btih:3DC3C4AD570D0D38BED40B7DC7C36F611E7065E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

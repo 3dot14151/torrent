@@ -19,8 +19,7 @@ Etherium (2015) [Ru/En] (1.0.9167) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8379EE926C6AEDEB312A8871D49116592475C17B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Tower - Shock to the System (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, F
 ```bash
 magnet:?xt=urn:btih:27F248A9CAF24CDF435FFF846161628D31683AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Macumbazilla - ...at a Crossroads (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:DFEDDD077764E11C04BE616DA528491841DF1473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Robert Palmer - Don't Explain (1990) [FLAC|Lossless|tracks + .cue]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:441A6C522CC182687B4F2E0AD2372CD8FF403449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Obsidian Shell - Angelic Asylum (2010) [MP3|192-320 kbps]<Symphonic Power/Gothic
 ```bash
 magnet:?xt=urn:btih:9AA5F880C3C553C805060F4546305D911DCEC39D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

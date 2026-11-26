@@ -18,8 +18,7 @@ CPUID HWMonitor Pro - расширенная версия утилиты, пре
 ```bash
 magnet:?xt=urn:btih:2934B2AB958906A82E05AA67F950322840F26FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:BF3E7A7A24D29E6C69138E1AD6B5C3F490B4B889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E9AD17799A8A7F429492E16886F914C2EEDF580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Yo-Yo Ma - Plays the Music of John Williams (2002) [DSD 5.1, 2.0 1bit/2822,4kHz 
 ```bash
 magnet:?xt=urn:btih:C31290A0AFF1C016E6F58CF4BF9CCD1CFD71BE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DD639676360155D234A1D37CBF5C9942B2DDBDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F789E33A13BD2AB2AADD6BA9DA51B0FF4BC9CDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Cookie  - Программа для полного удаления cookie-фа�
 ```bash
 magnet:?xt=urn:btih:782E0EBA31ACA1D8BC078B19E7ACEC350CDE7BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Yo-Yo Ma - Solo (1999) [DSD 2.0 1bit/2822,4kHz |SACD-R]<Classical - Instrumental
 ```bash
 magnet:?xt=urn:btih:2C45DA0843E28833526EF4627C4130295B46806B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1826B624FA438A8FCEBE28ECD453C993CB086B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:213FCC2DB1E7632D5CEA9F8FC7035AA6BACED3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCC2AA452143417D05ADC87E970EDD54D27C0F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Piano Concerto No 4 in D minor, Op 70  Anton Rubinstein (1829-1894)(   Чита�
 ```bash
 magnet:?xt=urn:btih:D8501F2E41FB7E995BAD3CEA3C7CAD19D6BC9F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:290497D27A7A9589D8452E1FC932ED74EE478FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ AusLogics BoostSpeed - утилита для оптимизации работы
 ```bash
 magnet:?xt=urn:btih:42E13B4EC5B8E61B06A378FB13B1E718EC7E485D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80FDE958E2A7CA7FA1DF605CCFF6932DC963D749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDC7DB234164D456406BD262A67FBF1A14D4C88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A90FF9E314CCE6BB5F0529B9D575A8B3DA870E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1497B79C322486A3E0AB1832972A56F24BF052B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA73DFBC23D432CA61A6E1ECF8B0AB3568C5681E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2D368E83B866477D73FE55BFB415C05AC54A1D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ Picasa 3.9.139 Build 161 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:67B5075B088C44C08E9DD0AFF903EA7FCC0CBC41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:523391F32414C99B31F73B372E0657B4E3A1D7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9168CBB4F2ED4DEED27F37E0CEECC6911EE22FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ Air Conflicts: Secret Wars / Air Conflicts: Secret Wars. Асы двух вой�
 ```bash
 magnet:?xt=urn:btih:1A4C8828F1D5AC2C7BFA777A38020F346E8477B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75D7752DD6C42E4718051BDEF9E8E474BEEA04E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C5B01F06BDCC5F093C419123C9BAB38E1CD453C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

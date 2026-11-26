@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:1A5B3152A8948C04881801575138B76910E7A1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6BF8920DCFD306F27FD202FB1DEA0A82876597A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Riot - Army Of One (2006) Remastered, 2017, Metal Blade Records [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:87F75813F6CAD1471E9947DE5891A2AD57248103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lordi - Limited Deadition (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 ```bash
 magnet:?xt=urn:btih:3DDEF1CDF2271E8643BBEBABE4BA6AD576EAB82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Various - Only UFO Can Rock Me - A Tribute To UFO (2001) Compilation [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:4DBFC833019B63E48B0B31589E8590A15E3734ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ IOTUNN - The Wizard Falls (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 ```bash
 magnet:?xt=urn:btih:9F6AF940FB494CA713EE0FC783E5342E0105B224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ ROOK ROAD - Rook Road II (2025) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5E7F7939107A8D9B5550CC7E6D13236253C40BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

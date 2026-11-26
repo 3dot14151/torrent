@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resource Tuner - это программа для просмотра, редак
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.0) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:8246BB804947A84C69B92588839EA5619ACBB32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:5C3BE027ACE0CF5C6251653644E0AA5C263E8241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ ZX Custom RegTweaker 2.1 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:542BE67AE643BD23CBD4B82C396127F5A24E801D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Super ComboMan (2017) [Ru/Multi] (1.04) License PLAZA [Smash Edition]
 ```bash
 magnet:?xt=urn:btih:34C56F27659BF16ECA8C0D82B85CA6261354B5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6E686E1A71CE0FBBA25D91D4E4073E6D0306AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ ProShow Producer – новая версия приложения для соз�
 ```bash
 magnet:?xt=urn:btih:8C79D83B409D1CB79EA1FF4C5E7A3846C99342F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Mages of Mystralia (2017) [Ru/Multi] (25464) Repack Other s
 ```bash
 magnet:?xt=urn:btih:346525CA98490D5F01EA534961A9889FA4E53353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ VA - The Musicals Album (2017) [MP3|320 Kbps] <Classical, Soundtrack>
 ```bash
 magnet:?xt=urn:btih:3EA365EDA26B1DE018DD4C3A4806A1B3F4A625D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F819E4611607678058EAD2807208E4C2E99364A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:823D62F9C44A2E9179EBB7DA60652D79745B2A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2B0461BCFC05BE34807C9ED1C17F25F1074F416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64893344EB6F7373C88B886109C2C9452F37C524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ Red Mist Recordings - Label-Pack 20 Releases (2006 - 2009) [MP3|320 Kbps] <Drum 
 ```bash
 magnet:?xt=urn:btih:B2801EB92B0EE7D73D813D3CDD3524F8112756B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E2D5A7BDFABAB89CC5B786B4B1FC8267D71775C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ Speech Bubbles - это пакет речевых пузырей, которые
 ```bash
 magnet:?xt=urn:btih:C8398B0CA555A236B93761EA04CC3E1F127E39EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD7DAE8269DD19491695FB8C669BC88987136562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ VA - Monstercat Uncaged Vol. 2 (2017) [MP3|320 Kbps] <Future Bass, Breaks, Dubst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86458BDC3F178113B96BA1378F82655E8C9A2774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

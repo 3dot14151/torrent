@@ -19,8 +19,7 @@ Startup Panic (2022) [Ru/Multi] (3.15) License GOG
 ```bash
 magnet:?xt=urn:btih:8E3F669BA6DD266F20080234FF9164C5FA556902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

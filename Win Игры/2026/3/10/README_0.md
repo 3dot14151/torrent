@@ -19,8 +19,7 @@ L.A. Noire – мрачный и жестокий триллер. В игре и
 ```bash
 magnet:?xt=urn:btih:FD2DB2B315F4CA2EA8D91CBD44BBE479E7D9C761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Weird RPG 2 - это инновационная игра в жанре экшн-
 ```bash
 magnet:?xt=urn:btih:5126356B14794EFCA935E266674E1905C59608B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Callus / Мозоль (2026) [Ru/Multi] (1.0.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D149B72D0E348538F20258260D8F370A4A856B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

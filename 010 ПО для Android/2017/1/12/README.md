@@ -19,8 +19,7 @@ APK Extractor 4.1.7 [En]
 ```bash
 magnet:?xt=urn:btih:E850F1FDFA74712C493F65F3C9D98E86925837F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

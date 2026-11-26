@@ -23,8 +23,7 @@ KYPCK — финская концептуальная дум-метал-груп
 ```bash
 magnet:?xt=urn:btih:50FBD0E897F2FA12073D5FEA9203D1DE88BDDD6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

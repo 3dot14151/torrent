@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BF250E55C2CFA25F2157FAE966EA8F3160B39F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02F6872A32C2739AE3133D73D073EA68AD9BB5FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:E209FC6ACA136EF2B53ADC4D33304E5D5B05B379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A3657C5A4B6587117C57A71C733C559313BF510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Costume Quest 2 (2014) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:179A92B4600049EAB1777B827F8B34A0A80425D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sergelin | Мебельных дел мастер [7 книг] (2010-2012) [PDF]
 ```bash
 magnet:?xt=urn:btih:7F221A31F383EC7DF58A48ED513F3FC0C055CF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ VSLogonScreenCustomizer – бесплатная программа для ус�
 ```bash
 magnet:?xt=urn:btih:7270F0601752774FD82B2ACB6300EE1A0B7325DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45E8DD42D44D953AACF2BFB5280AAC71CFA05EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.1 [x86-64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:C8B104F611FB1A24BFF4A6C1B226932777960651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEFA3D152412CC1FDD59832A1B4C07D79ADA7B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FE7DDB279E831E362A13534F3905E9E01A28DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D6D92CB140E0A296D585A016373D09D61A4E6D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ ACDSee Pro 3.6 (Build 188) [En]
 ```bash
 magnet:?xt=urn:btih:19A7C86A4A33C8297715C6033DEE705C409237DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:C02E4EDF98BBFD05FD3A810839BB2CA27BC75FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B30C417CD3FC5842D4D2390B1A5F75470956D886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94BC5B3C3BDF03326FC4A10448DE697AEA6A5D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05EC125B6D13572BE0D17ACD8A4FAD42FA15D4FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1459FD86AF68D8DAA8D48F5DA00E5782EEE82F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC717F7E23777DA179535BB93581A9830C4B87ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B89ACFB21C6FA0F86552F69BFCFE18953E3F902B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ Crysis Warhead (2008) [Ru/En] (1.1) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:79222993D328317AC2001581838165704B6A3C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ RailClone - это плагин для программы 3ds Max для пар�
 ```bash
 magnet:?xt=urn:btih:AB3BD957431FD7F8FAE6F2D5F3C4B1372D3D7599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA387A08D2BF98414B7A90001FD1CD00FEC98AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DEBD118B2EA0855CA875FCAFA0129EA2F548061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +661,7 @@ Pamela for Skype Professional / Business Edition 4.9.0.56 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6BAC6A370E088AF679D1216F655E56DE30CFD224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

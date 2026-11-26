@@ -22,8 +22,7 @@ Green Labyrinth - Shadow of My Past (2014) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 ```bash
 magnet:?xt=urn:btih:C3403537F891CD491C9AE98D1F4E9F691A61171D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Death Destroyer - Death Destroyer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 ```bash
 magnet:?xt=urn:btih:75C0B97D372796D2598AE08D6D4805B9BDA96D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Melt - Replica of Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:7E12ACD4E6EBEB916FEED024EABC82B50D48D073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Green Labyrinth - Shadow of My Past (2014) [MP3|320 Kbps] <Symphonic Metal, Fema
 ```bash
 magnet:?xt=urn:btih:05C8B51515BC5E074FEEE6DC6360EB8335F7C40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Astralborne - Across The Aeons (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 ```bash
 magnet:?xt=urn:btih:98B2DA26D4873CCCB32785FB70CB16B5DD9993DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Night Legion - Night Legion (2017) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:64E8FAC47E7FFF1A9F1003848322092CA5CEB96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sgt. Splendor - Death Of The Hoochie Koo (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 ```bash
 magnet:?xt=urn:btih:E03D7B68DCB967CB6AC83DA19456AC89CAE77F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Carlos Lucena - Medium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:68E25BC909EBAF75CEC930F0016AA4A3D186121E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Green Labyrinth - Sequences (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:0C0268C90CC8037035C75521BAC790C60CD036A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Sevendust - Superficial Drug (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal
 ```bash
 magnet:?xt=urn:btih:417BEFF7D0DF36C6FB6A4689EED84913EC850F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Tantrum - Another Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:856D4C173DBBAE189F7080FF2F8497AE749300D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ DiGelsomina - Sic Itur Ad Astra (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 ```bash
 magnet:?xt=urn:btih:6402697FB5BAD837693C8F6D0EE558BF798F675E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Girlschool - WTFortyfive? (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:ABAA0C3FE8EC861B3F2D720FD74D39C9C86F7A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Night Legion - Fight or Fall (2023) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:C0FB7162DC54527F95AC2969B183667FD800C198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Chris Boltendahl's Steelhammer - Reborn In Flames (2023) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:C4F73DCC4B0B3DC81C417DFC272E649A40EC9050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Green Labyrinth - Sequences (2023) [MP3|320 Kbps] <Symphonic Metal, Female Vocal
 ```bash
 magnet:?xt=urn:btih:A89B0139B3A86F6AC1352FAEFD46643E29266ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Celldweller - Satellites (2022) Remixed, 2023, FiXT [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:B8B5AA352D019B1ED5037FABB38C05576F3CC101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Sevendust - Truth Killer (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal>
 ```bash
 magnet:?xt=urn:btih:8E96023757D49782DA2274D2B8FBF1963D31374F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Epica - Consign To Oblivion (Live At The Afas Live) (2023) EP [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:3E394D2211971A306CCCA50549F5567F5E884416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Korn (KoЯn) - Untitled (2007) Deluxe, 2023, Tempo Music [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:BEFFA92BD434D814869D6D7E64DDFE93B77F18D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ Battle of the Gods - Последняя Песнь Аспида (2023) [FLAC|24/
 ```bash
 magnet:?xt=urn:btih:A4AD705739E481277D37B42A0A6758BA0417CA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDFAC7AD84569F3DF7F2AF0041B04B2A73002A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ The Rolling Stones - Forty Licks (2002) 2CD, Deluxe Remaster Compilation (2023) 
 ```bash
 magnet:?xt=urn:btih:610BA731C3A37F27D15C0EDED7A7D6C0C65C0899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Marius Danielsen - War of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Power 
 ```bash
 magnet:?xt=urn:btih:9CD328674C2ED3E34F27269FF5880B7354362721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ Blur - The Ballad Of Darren (2023) [FLAC|24/44.1|tracks|WEB-DL] <Rock>
 ```bash
 magnet:?xt=urn:btih:6ED73D504EDD2860C365F6CA94BB8DD6F2B38093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

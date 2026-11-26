@@ -22,8 +22,7 @@ Terra Firma - Terra Firma (1999) [FLAC|Lossless|image + .cue] <Stoner Metal, Har
 ```bash
 magnet:?xt=urn:btih:1BF26284F25470E536A6AC69D7DAF413486D9E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blacksmith - Gipsy Queen - The Early Years '83 - '86 (2018) Compilation, Japanes
 ```bash
 magnet:?xt=urn:btih:D8190B729F13976843CCC256B73342DCAC286426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Khroma - Ex Nihilo (2021) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Moder
 ```bash
 magnet:?xt=urn:btih:B09DD51B717410490BFDFBCBDB028F4081943E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Blacksmith - Once Upon A Star (2000) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2C2133ABFEDCBF7F950CD14D606CCF17675313BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Havamal - The Shadow Chapter (2021) [FLAC|Lossless|image + .cue] <Melodic Death 
 ```bash
 magnet:?xt=urn:btih:8D802CF2AEE7F0D2D62824C058577440248EA79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ LEPROUS — норвежская группа, играющая в стиле Pr
 ```bash
 magnet:?xt=urn:btih:7A7E310EB4B0EFAD31F4D458FCC0CCBC6E600423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ The Used - Heartwork (2021) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Emo-Screamo, P
 ```bash
 magnet:?xt=urn:btih:0933F7BEA041EDFA7DBF6DA1E91F70047F32CEB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Possessed (в переводе с англ. — «одержимый») — ме
 ```bash
 magnet:?xt=urn:btih:87AA15C4EDB7D9FC3729386F6C0646873C5F03B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B10ADFBE9B6247674BB5EBB2754D72B5C481C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Blacksmith - Gipsy Queen - The Early Years '83 - '86 (2018) Compilation, Japanes
 ```bash
 magnet:?xt=urn:btih:ABA63EFBEAEA13587F44BB2296BEB273813E1501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADEE8C1B05034A4FF2F80E2734A75A4085764AC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Evil Masquerade - The Outcast Hall Of Fame (2016) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:47BA59D70E0E0A89193A5C65ADC723225E4FE910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ VA - Kid Friendly Classic Rock (2021) [MP3|320 Kbps] <Rock, Children Rock>
 ```bash
 magnet:?xt=urn:btih:6688C5D9BFB3616E4B8345E01657D899BB5DA8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ Ufo - Force It (1975) Deluxe Edition, 2021, Remaster [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AEC50FF36B9055093689D82D8BEA47FA3D76F59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

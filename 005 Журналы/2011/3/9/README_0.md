@@ -20,8 +20,7 @@ Total Lighting - журнал об освещении. Здесь Вы найд�
 ```bash
 magnet:?xt=urn:btih:2A095F80B329ACCCD6421F42632C5BCF4899A6CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Total Lighting - журнал об освещении. Здесь Вы найд�
 ```bash
 magnet:?xt=urn:btih:90B3E3FE88C6E4D2AE5C04E37BB67E44299E1CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7473880EF6946071BE22D0FCCCE7C42EEC0E9433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97DEBBF281801BD6AC1F86159073FE0FE6516AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Mint Linux - новый журнал от русскоязычного сооб�
 ```bash
 magnet:?xt=urn:btih:BB1A8174E724EC4BD942FB2F14592EC69EFD151E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

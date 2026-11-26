@@ -21,8 +21,7 @@ Sacrilege - дэт-метал группа из Гётеборга, Швеция
 ```bash
 magnet:?xt=urn:btih:9688AB147D26CCBCAC693F79EF0F626AA6BBF068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ A4 Silver Eagle(   Читать дальше...   )Жанр: Folk, World, & Coun
 ```bash
 magnet:?xt=urn:btih:5D3B79AED564766A788A176A0B6A241594E656D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ A4 Got A Letter From My Kid Today(   Читать дальше...   )Жанр: F
 ```bash
 magnet:?xt=urn:btih:48E1377EB2F8EA098AFA95678670F6DBA684C5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

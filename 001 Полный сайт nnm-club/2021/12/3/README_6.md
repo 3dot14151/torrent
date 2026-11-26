@@ -18,8 +18,7 @@ Gamedec – изометрическая RPG в жанре киберпанк д
 ```bash
 magnet:?xt=urn:btih:B323A1C9B907F5F5CFC5E43AAA2DD4FBC092364B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:527093B5B8A5DAF883B1F5009B06A6567C0572A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C775106AB0A993BC55245EB2B955B4E84CE1541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F43D4C1040A9AC2648B0B3861913651413021C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Yaga (2019) [Ru/Multi] (1.3.23/dlc) Repack Other s [Armful Edition]
 ```bash
 magnet:?xt=urn:btih:87C4885B33D02AF0840D7919F5E8B5A800BC9995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD287B4F810AA8DD44B99E99AB1C5EA7306D6CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E2EF0BC3AA9F906CDA03059D08F8089378E60C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ The Sims 4 (2014) [Ru/Multi] (1.82.99.1030/dlc) Repack S.Balykov [DLC's Selected
 ```bash
 magnet:?xt=urn:btih:507C34E486275C22DED9848F4E90C51B9FF8EBAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.1356845 Patch 6 HF 4 EA) License 
 ```bash
 magnet:?xt=urn:btih:C901A05C7754455B99317B2F05BA19FD89ED35C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ The Sims 4 (2014) [Ru/Multi] (1.82.99.1030/dlc) Repack S.Balykov [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:E321A182DDDB82C4A62CCD9EE849E723C65490C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

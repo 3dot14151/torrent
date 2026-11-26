@@ -19,8 +19,7 @@ IP Hider Ever - программа для смены IP-адреса и скры
 ```bash
 magnet:?xt=urn:btih:2254C4BE0EE0D6B4D363A1D6F2428CB3734A10A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

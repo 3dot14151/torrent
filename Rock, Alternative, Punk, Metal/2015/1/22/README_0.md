@@ -28,8 +28,7 @@ Red Fang - Red Fang (2009) [MP3|320 кб/с]<Stoner metal>
 ```bash
 magnet:?xt=urn:btih:93024FB49BBE97725D4CA3586FEEB192478EB2A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Ocean Districts - Expeditions (2014) [MP3|320 кб/с]<Post Metal, Progressive M
 ```bash
 magnet:?xt=urn:btih:C1D0BC28DBDCE6F30936EB5046EB1D1E01AF7D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Syn Ze Sase Tri - Stapin Peste Stapini (2015) [MP3|320 кб/с]<Symphonic Black 
 ```bash
 magnet:?xt=urn:btih:A470C2252AF90538B7F765D259C175CF1830B623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ At the gates - 5 Альбомов (1992-2014) [MP3|320 кб/с]<Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:5DB24C6D756FD4C1857E8A18534272807DE2E082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Level 10 - Chapter One (Japanese Edition) (2015) [MP3|320 кб/с]<Melodic Heavy
 ```bash
 magnet:?xt=urn:btih:6F4FC07839A050950C1640932E9CAB9517A1CF1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Archangel - Blur (2015) [MP3|320 кб/с]<Progressive Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:4531103C3DE7D878C344FDB65C9A2BF6A4576BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ VA - Riders On The Stoorm: 16 Psychedelic Rock Nuggets (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:9EEA7AC434157B232948B1B53FF5471BF4AA8D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ W.A.S.P. - First Blood... Last Cuts (1993) Japan [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:9C0AC81FD82FBEAF74BE71A3C13E3C72C05CF694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Eisbrecher - Schock (2015) [FLAC|Lossless]<NDH / Gothic Metal / Industrial Metal
 ```bash
 magnet:?xt=urn:btih:4C1CBE6EF2055FDCB37AD3202561F5B8C90A873A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Accept - Classics, Rocks 'n' Ballads (2000) Compilation [FLAC|Lossless]<Heavy Me
 ```bash
 magnet:?xt=urn:btih:02F9D5797C37A761FF3C821FE3F0A0283C61B93D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Royal Blood - Royal Blood (2014) Japanese Edition [FLAC|Lossless] <Alternative, 
 ```bash
 magnet:?xt=urn:btih:03B8BB321EAC2BA319971480FA685C12AA914149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Papa Roach - F.E.A.R. (2015) [MP3|320 кб/с]<Alternative Rock, Modern Rock, El
 ```bash
 magnet:?xt=urn:btih:98696FFCA4DB332B6FAB997F1C1457048C337C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ NovaReign - Legends (2018) [FLAC|Lossless|image + .cue] <Progressive, Power Meta
 ```bash
 magnet:?xt=urn:btih:D71DBF37F197C0A3959CA7274D3C3F82BF46A399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nergard - A Bit Closer to Heaven (2015) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:6A367F770D491EAFAFF064BC5A29BE40568155CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Vintage Caravan - The Monuments Tour (2023) Live [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:D5CF186A2DABB7E3BAC4932AB834455C953AE91D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nergard - Memorial for a Wish (2018 Version) (2018) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:A3405962ADACA048541658A4A4C4676B13F74227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Dead Amigos - Denim Egos (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 ```bash
 magnet:?xt=urn:btih:3AD048EA9A68C7D886E03D7CF037BD87A03CE590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Fortress Under Siege - Envy (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progre
 ```bash
 magnet:?xt=urn:btih:93FBE4CF44746B2C71EB2EC6DC9914E47290540A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Blue October - Spinning The Truth Around (Part II) (2023) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:51E9697C1D58D2C0B161989888121A4D2CBF77B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Creeper - Sanguivore (2023) [MP3|320 Kbps] <Britpop, Glam Rock, Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:B8AA3F1B3BADCAB9C54260F11066C5BEFF2F7CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Mournful Congregation - 2 Studio Albums (2022-2023) 2xCD, EP [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:7DA395E9A0470FDBF599BC47FA73618BB59E9003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ U.F.O. - One Night - Lights Out 77 - Live (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:7ACF61390F5491D36642D39F9A777731BC707ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:910D7C80E07AAFD3B11B4C04579C5F1BD607081E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:399E7BF64DC94FCFEE691B68420446B54428FD87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Whitesnake - The Purple Album: Special Gold Edition (2015) Remix, 2023, Rhino [F
 ```bash
 magnet:?xt=urn:btih:BAA936FA88C6BF2F24A22C49FE615E428A947343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ Fuzzy Grass - The Revenge of the Blue Nut (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:C4C8A721F47702A5127E83E0808F0BF4C19EF56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62DBA6E825BFA60F321E7A0366FC9CB9958B9B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic Rec
 ```bash
 magnet:?xt=urn:btih:6096FEF227728888FFD543DF719EA9ADAB1F4A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ Whitesnake - The Purple Album: Special Gold Edition (2015) Remix, 2023, Rhino [M
 ```bash
 magnet:?xt=urn:btih:2880421F152B124722D8EC19A961BA1B2D7FF4EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Slade - 80's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:0856B179BFE20413DD4286FA2527F594D7C4F256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3C005ED34BC773942568E6FD9B839A09101C11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ Kiss - Destroyer (1976) 4CD (45th Anniversary Deluxe Ed.) (Remastered-2021) [FLA
 ```bash
 magnet:?xt=urn:btih:0EE5B13E9ED47C6803FE957494A1EB1381C5A5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91E16425BA186711784D276344C83BF313B88D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E6A0EDFF01CC30B8A67B97DED997B9C0C9ADDB07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0E96ED949B70C010D670292D12BED73F5DCAD63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Buccaneers! (2022) [Ru/Multi] (1.1.01) License GOG [VR]
 ```bash
 magnet:?xt=urn:btih:53662CD3FEEC096DB09ED6FBF91C2058274717A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:594F17A669EE296AC51C8EF5AFDAA46703C75ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ INDUSTRIA – шутер от первого лица, который перен
 ```bash
 magnet:?xt=urn:btih:533F5A930691CA221FAA3A6425210B25A27DF4DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Decision: Red Daze - уникальная вариация изометриче�
 ```bash
 magnet:?xt=urn:btih:71EF8F5B89E73F3489D04BD69EC9545A6F11B34F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:1164FA0CA864CA21B02878B8D6B60BDCA31374C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:7D11F97ECA483BA0809AA589610666BBBB7967B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ GoFunc - конференция для тех, кто использует Go в
 ```bash
 magnet:?xt=urn:btih:AC9535B84A5E8BEED3A7C6B94B999A7BF7AE18BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:4CFA3EFADF01BD1254760D41EB4F7595BD5CFA29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 ```bash
 magnet:?xt=urn:btih:8A2AFC983A8116E46142629B0D6F0BC6CFABA3A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Eiyuden Chronicle: Hundred Heroes – это увлекательный фент
 ```bash
 magnet:?xt=urn:btih:74FD877770B74D87514C05F5D05FC23DEA4472F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Geometry Nodes быстро превращается из простой тех�
 ```bash
 magnet:?xt=urn:btih:F3B25DB6DF95D285B254CBABE2FFD1ABCCA2C9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38B53F7CE5CE7AD740D654FA09580994BC395EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:9E304AFC33960592B3435B5F5A62EE07A62CAFB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Milan Jovanović | Pragmatic Clean Architecture (2024) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:17AA50F2E0473B22BFBDC8CC2B3B65E9BA265FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ BBC: Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTV
 ```bash
 magnet:?xt=urn:btih:AB4F8E07E8F8FAA99B1F121888033AA71B8DC94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:529AAE4E68612235246F2E2EA57F0AE4044C68DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27E11599BD01BC2AA148E3AEDFA48F7391717DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B3388BE55ED042DCAA7727C693E64446AE339CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) S
 ```bash
 magnet:?xt=urn:btih:FE6A2195408FAB4A14936ECA7EA8365274BAAA18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A25E9B84BCE9D8C9692388D5682488CE032626B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ Godnolytika, Влад Князев | Готовимся к собеседова�
 ```bash
 magnet:?xt=urn:btih:5F16B3537CAA0961EE4C85281657F10683267616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFB6B64650B96418CD5F73A871E77B245279D271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50AEFCCFEB93E3126B1A222E10B8E0B6A413B43A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

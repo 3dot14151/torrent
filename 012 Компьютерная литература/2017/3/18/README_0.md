@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D746F04FFDBE6D715783105107652EFC62DA2931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Angular 2 - один из ведущих фреймворков разработ
 ```bash
 magnet:?xt=urn:btih:96FA5184695869D6AB0D8A755BC62B5EDB36D2AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

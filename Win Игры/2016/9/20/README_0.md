@@ -19,8 +19,7 @@ GEARGUNS - Tank Offensive. Эта игра предложит вам захва�
 ```bash
 magnet:?xt=urn:btih:811A837D1259FFB11ED1DBACFE01203EEC7919C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Galaxy Reavers (2016) [Ru/Multi] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8395AA3E71307A7A4BD963C2C59320E1B3379B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

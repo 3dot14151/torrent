@@ -18,8 +18,7 @@ Cliff Empire - небольшая экономическая стратегия.
 ```bash
 magnet:?xt=urn:btih:30FD51775085885AC2C0DF120EEF5137DE9967F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ TimeShift (2007) [Ru/En] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:122B18CD3B062C769D133CE71CE522027498EB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Call of Duty: World at War (2008) [Ru] (1.7.1263) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E5B558BBBE47313DE7EABF97C77BE4E00E1D3599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Stellaris (2016) [Ru/Multi] (2.2.7/dlc) License CODEX [Digital Anniversary Editi
 ```bash
 magnet:?xt=urn:btih:CF189D89E4EE50B78E1DE98AFBB31A316B13AE84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ CS5 - одна из самых удачных версий фотошопа за
 ```bash
 magnet:?xt=urn:btih:8B9D85AE7E55FA46EAFBB9AEC6D017691BEE937C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

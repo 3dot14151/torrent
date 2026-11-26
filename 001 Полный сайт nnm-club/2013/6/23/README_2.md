@@ -27,8 +27,7 @@ VA - Bushido Geisha (2013) [MP3|320 кб/с]<Deep House, Chillout>
 ```bash
 magnet:?xt=urn:btih:A6C6F1ECE6E2621782AFAE02D251DEDE879FDAA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:329A822CF26E04E87A5E46C0A2D7BEFD69F38DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8ADD84C03C3C9D8A55E05C34B1F4C2FB91F7EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ WYSIWYG Web Builder — одна из тех программ, о предназ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0F65C541C247F0E60B4FEE06FE51473C50F44F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DF33D5FE975504B51E89046FBA5996AC252B4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Winamp - один из самых популярных медиаплееров,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Gall Force 2: Destruction / Девичья Сила 2: Уничтожение (O
 ```bash
 magnet:?xt=urn:btih:E731362E9B852AC0F9FA8791BFBFE8DAB04476BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Dirty Pair: Affair on Nolandia / Грязная Парочка: Ноландск
 ```bash
 magnet:?xt=urn:btih:21B479DC9154190076ABE608E6FF34BFF1DF8878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Calculate Linux 13.6 [i686]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Mitsubishi Electric | Книга по автоматизации. Мир реш�
 ```bash
 magnet:?xt=urn:btih:B2618575EFD84770BE1BB11D59FA447EECDEAF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Gall Force 3: Stardust War / Девичья Сила 3: Война Космич�
 ```bash
 magnet:?xt=urn:btih:A1091D15BB7BB426BEDF56D7ECA40D50DBCB0FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Firefox — высочайшее качество исполнения, подд
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ The Ventures - 10th Anniversary Album (1970) [FLAC 2.0 24/192|image (Vinyl-Rip)]
 ```bash
 magnet:?xt=urn:btih:538DA8EB33F6D4399B9B2046A535A7E0A2AF348F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4625A2E9B2FE2319834D5DCC2971376F79221A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Gall Force 4: Rhea Gall Force / Девичья Сила 4: Исход (OVA-3) [1
 ```bash
 magnet:?xt=urn:btih:E3115F4759F92635807EFD60040CDC969D8D823D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Mail.Ru Агент - самая популярная российская про
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ VA - Музыка Для Двоих - vol. 2-3 (2013) [MP3|320 кб/с]<Pop, Dan
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21B1778B55C23F847BB29720FAE4ED3A153230B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Eat-Man / Едок [1997, TV, 12] DVDRip 464p raw
 ```bash
 magnet:?xt=urn:btih:FB73F8DCAA338BC397E3C0E54645A71E17E89D7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ Jahmal (TGK) - Тяжеловес (2013) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:5C0539E6129A8BAEBCCF6B6A0F0A19EAEBCD410D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ P.S. Некоторые из этих видео могут оказаться �
 ```bash
 magnet:?xt=urn:btih:EC84EFED40B599D9339DA31395629EC6D8716EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:731B93A390B656FFFA6DBD50049A611796F40303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04FEADF83BD0877B1DF03D408B6DBE90B9BEE201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA7A18823910329BA61B0050DB4ED4EF7F7ACB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

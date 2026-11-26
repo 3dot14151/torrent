@@ -19,8 +19,7 @@ Romeo Is A Dead Man (2026) [Ru/Multi] (1.4.000) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DB3ACFE095F48B254D58ED1E33E50B840D2C965F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery of Myths 3: Whisper of Depth / Загадки мифов 3: Шепот �
 ```bash
 magnet:?xt=urn:btih:DDD858C2138A62AF6AFCE7931C8DAFB9E5CE3CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ChromaGun 2: Dye Hard - это научно-фантастическая гол�
 ```bash
 magnet:?xt=urn:btih:D1E1FE32B136D8D7339E142F28E59F0036442948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Q.U.B.E. 2 погружает вас в полуразрушенный иноп�
 ```bash
 magnet:?xt=urn:btih:FA6234142CE4509B49A9E10D32A298D4845D9815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ NORSE: Oath of Blood - это сюжетная пошаговая тактиче
 ```bash
 magnet:?xt=urn:btih:D073AF24E367CE46C0491ACD4467149BC810B87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack Wanterlude [
 ```bash
 magnet:?xt=urn:btih:2F86D56D5A46976CC0CDEBFCD05F51ECB81D143D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Brigador (2017) [Ru/Multi] (1.63/dlc) Repack Let'sРlay [Up-Armored Edition]
 ```bash
 magnet:?xt=urn:btih:A5093D2AE5E0161C5AA91EF29F724D810B9D28BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.0.0-1.0.8.0) License
 ```bash
 magnet:?xt=urn:btih:6E28CFC1113DE2B8C70B187518F8AFE5D66752DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (2.2)
 ```bash
 magnet:?xt=urn:btih:57E3739CA49BF0E53036B129342CB13B96DDF4E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ KLETKA / КЛЕТЬ (2024) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1AACF86431A184A497896CFAA1F43D1F0871332E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

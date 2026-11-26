@@ -19,8 +19,7 @@ Pesterquest (2019) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4057DFBF84F200F53DC1706866011E1ED1BF7F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gothic 3: Forsaken Gods / Gothic 3: Отвергнутые боги (2011) [Mult
 ```bash
 magnet:?xt=urn:btih:18E785E4A9451CC32A2D68A667F61A353125B33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:1350A8683EEA11EF24504E3BDA724C918B4EB9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

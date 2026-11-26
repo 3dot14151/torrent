@@ -22,8 +22,7 @@ Make Them Suffer - Neverbloom (2012) Remaster, 2023, Greyscale Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:B63F37BEE2AEDFBB8AD0D73A25832C162B258E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Manifiesto - La Ley del talion (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Hea
 ```bash
 magnet:?xt=urn:btih:E646C42126B103B8A9193D524098A130789B5C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Vilivant - Running On Empty (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8F1A806F48FCE024414382E8FC636CC3C5FE3B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Michael Wynn Band - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Rock, Funk / So
 ```bash
 magnet:?xt=urn:btih:4FEB21B092DA4BFF085A0FF6E7C37D7594B58F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ WarKings - Morgana (2022) [APE|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:CFABEE2A8BFE8DAC107D0C223B16859156C4A974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Acid King - Beyond Vision (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Doom
 ```bash
 magnet:?xt=urn:btih:15D547AD11349D6B09D2707AA907FD8E2E06F465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Kiss In A Dragon Night - Kiss In A Dragon Night (2023) [MP3|320 Kbps] <Melodic H
 ```bash
 magnet:?xt=urn:btih:2E98342B3B6F72590C9DD21A6BBF019DE08BEC67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:833F6C8646849A230CC48B7B4B01250D2BD3ABD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

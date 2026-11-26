@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ru_windows_8_pro_vl_x86_dvd_918161.isoЯзык интерфейса: Русск�
 ```bash
 magnet:?xt=urn:btih:6A409CCE87358BA4969A8219236C8BD6306DA78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

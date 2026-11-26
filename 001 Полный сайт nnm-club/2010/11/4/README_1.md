@@ -18,8 +18,7 @@ Lacrimosa - Gift (2010) [MP3|320 kbps]<Gothic Metal | Industrial>
 ```bash
 magnet:?xt=urn:btih:A22C69A793714A7AA737A26318F8A0B1F06EE13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D70BA658074EEB569FAEE46F5DFB3690605220F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ VA - Музыкайф Европы Плюс (2010) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:D4472CB66F5DB6669366F0136F154826A10DA69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46F52B7B4194189F9D86A76AE0D86DDDD1994571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ DVD приложение к журналу "Игромания", на котор
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C730E591D6F3195F7125556FA67D3A3310456ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ NG: Анаконда. Королева змей / National Geographic: Anaconda.
 ```bash
 magnet:?xt=urn:btih:4A15D5B96E8D26467A0234BA249F7CFE81F7D9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ VA - Жажда Скорости: Need for speed soundtracks (2010) [MP3|192 kbp
 ```bash
 magnet:?xt=urn:btih:07D29A126AC5FC681763D22B4396122538747917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ John Lennon - Power to the People The Hits (2010) [MP3|320 kbps]<Rock/Pop/Miscel
 ```bash
 magnet:?xt=urn:btih:3D81321B55F0C633ADD91B916BA4612BF827E3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ VA - Сборник Русских ремиксов " Русский Шторм 
 ```bash
 magnet:?xt=urn:btih:78A47E363CD91FDA28C09870DC0C771ECBD2AEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ VA - TOP 100 Зайцев нет (03.11.2010) [MP3|128-320 kbps]<Pop, Dance, Clu
 ```bash
 magnet:?xt=urn:btih:1E728C1D71E88BE008D416C7E50F8DAB0F65F6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ VA - Шансон В Натуре! (2010) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:1AD9283E53EA23A300DCEF4D2B1BA6280942D567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ VA - Русский Шофер Выпуск 11 (2010) [MP3|256 kbps]<Шансо�
 ```bash
 magnet:?xt=urn:btih:3E33C701F2F7319F717AD39BC119075B8C0A80DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Doc Clock: The Toasted Sandwich of Time (P) [Multi5-] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67C7C8210C1F52D4FAE90394FA7B9B75556CF353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ Kid Cudi - Man On The Moon II: The Legend of Mr. Rager (2010) [MP3|320 kbps]<Hip
 ```bash
 magnet:?xt=urn:btih:B93F3F0C2E480ACD4C86F1DAB56EC9E27F033DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B29523B0FDC7DEADBD9AD15C5F96E493B934A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEF71C436DAAB33524A47A605CFEEE24C0EFCD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BAB6C7CD44E61F54C43477851225D0171423B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4813B29F19A06AD0C444EE3A7B37F7B46935F4DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ Helloween - 7 Sinners (2010) [APE|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8C344D62BCBA70DB30700D98C9F638FB0AFAD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

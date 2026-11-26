@@ -22,8 +22,7 @@ Project Resurrect - False Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 ```bash
 magnet:?xt=urn:btih:A313CEC31772A9AFC3B4C8CB8117117B993BD302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Moon Coven - 3 Albums (2014-2021) [MP3|320 Kbps] <Doom, Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:D76E40964E2634C53512C6C9EAE5AAECE5809439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Marius Danielsen - Legend Of Valley Doom, Pt. 3 (2021) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:CFD5BC1FD5918A193F8E0BA8C12CB492EEE3C6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Save The World - Two (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8324FC8055408E471BCA046C3A30D348BBD86A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Manapart - Manapart (2020) [MP3|320 Kbps] <Hard rock, Metal>
 ```bash
 magnet:?xt=urn:btih:DAF3222A9A46A2978E9F8F3A36DBB057D5CC6FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Artillery - X (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:956EF57AF81A74CB0C3BFDC97A9A61A2D2168F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Fall of Eve - 4 Albums (2016-2021) [MP3|320 Kbps] <Symphonic Metal, Female V
 ```bash
 magnet:?xt=urn:btih:1DA566AEF3C69DE54FBCFA5C09D07848A1E3FDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sonic Haven - Vagabond (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:39A34D917DADC93148FCABCFE8251B83A22FAD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Temple Balls - Pyromide (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C3112FA8767895249430769313FB8A4E4DA78E01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The Damn Truth - 3 Albums (2012-2021) [MP3|320 Kbps] <Classic, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:77B30CE63419FF2216EE965DAAF1DC596881A8DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Todd Michael Hall - Sonic Healing (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:B356578DFB1BFC7626C33F496AC5434608A13B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ The Vintage Caravan - Monuments (2021) [FLAC|Lossless|image + .cue] <Classic Roc
 ```bash
 magnet:?xt=urn:btih:5B35F735841733A3DB24D331C5E3F72BC89FAB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Motorhead - The Lost Tapes Vol. 1 (1995) Live in Madrid, 2021 [MP3|320 Kbps] <Sp
 ```bash
 magnet:?xt=urn:btih:A2F9CF740A14B59976242B62A3C88DA59B5D9AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Stone Whiskey - Rebels of the Sun (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6DB3685A164F60D57715CB9CF437FBB53D131B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:117B6AE972DA22105CD26F391D31D3EF78F24D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

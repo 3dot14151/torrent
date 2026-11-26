@@ -19,8 +19,7 @@ Kraken Academy!! (2021) [Ru/Multi] (1.0.12.2) License GOG [End of the World Edit
 ```bash
 magnet:?xt=urn:btih:BF77360895DCD3DA26E3232FF74958B4654A2545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

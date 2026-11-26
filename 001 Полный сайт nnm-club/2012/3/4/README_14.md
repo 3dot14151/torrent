@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:208EE91046872F9B539844B2058D2101B044D025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8322B069AE87C29B2186C10CE2500811E6235470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ BBC: Анатомия идеального хищника / Inside the Perfect P
 ```bash
 magnet:?xt=urn:btih:442B606C5EF1E653F9F507F9BDE94471FC3391A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Chromium — мощный, но простой в использовании б�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

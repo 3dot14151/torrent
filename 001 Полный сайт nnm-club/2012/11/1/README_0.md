@@ -26,8 +26,7 @@
 ```bash
 magnet:?xt=urn:btih:886CEC3B310A471AC14EACC7BFBEE11F49E82741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Holy Grail - Crisis In Utopia (2010) /Japanese Edition/ [MP3|320 кб/с]<Heavy 
 ```bash
 magnet:?xt=urn:btih:11131A1CD3B641605D120E05A923662DCB396C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9D3DD23E57C6511AA08AA2C5A357928A789B3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA34303CB6ADB2245BD6B55CBD9036F89EF3D319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CDCF7FFF80E10F46F50EECCEF15346B8BB4DEA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ VA - Хит за хитом. Танцевальный микс (2012) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:59C75D80043C9673285B9004F060C0E0F83EABB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBF027196FE55DF64A847DEDCCF4D2046A858341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C15BA9F5F2C4B0C7E6CBD2BFE8AAF94E173B9AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9733DC52CB04D5A4E9D2AB885D954DE15C9F322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ D.A.P.A - Шило (2012) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:DC02E6D6A4A45BEC99EFA8464376BD37BA800DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4439F5CD179425E7F4458669CBB60BA3BECBD622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:924CAF0F1493AB2E5364836C265F1932C1813063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ ThundHerStruck - You've been Thundherstruck! (2006) [MP3|192 кб/с]<Classic Ro
 ```bash
 magnet:?xt=urn:btih:A3B6E42718F28710E10D612E1F12D4C29B41761A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69707958C927AB9E21EF231694FBAF5D41E96E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87188CD58A43AACC8BACAF88547FFAEC804B1B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40BB5465D44541D22A4CED8A8358146FF1F34DA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2BA08DA85F98090A97AA840A06B0F6EFEAD402C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ Wiley - Evolve Or Be Extinct (2012) [MP3|320 кб/с]<Hip-Hop, Grime>
 ```bash
 magnet:?xt=urn:btih:A210F49799FEDDB12F1333023D9C2CF2BD845760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69A4D1BD79758B8FC12C5F55B7405C5ED754A9B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ VA - Лучшая 200ка Самых популярных хитов радио�
 ```bash
 magnet:?xt=urn:btih:02FDF63311E404A73B7AF98711177581FD08A985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78368140F639B7C661EBC540D68E31C42DA46988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ Robbie Williams - Take The Crown (2012) [MP3|~245 кб/с (V0)]<Pop,Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:AA2C3C3E85978920A3E0C42786AA4490A4CDB161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42EB1542A4C88BA43831ADE305210AC362B53EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ VA - Mellomania Radio Record Vol. 5 (2012) [MP3|192 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:A30192301B81121E2B6DDAFE0EBC4B449B4F5050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +723,7 @@ Colombo - Clap Yah Hands (2012) [MP3|320 кб/с]<Breaks>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0735914FB983C6093D983CB5D99EA8D47C8FE51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

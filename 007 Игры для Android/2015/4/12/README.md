@@ -21,8 +21,7 @@ ProPilkko 2.7 [Ru/Multi] - Мультиплеерный online симулято�
 ```bash
 magnet:?xt=urn:btih:6DF70FB624562C7D7900DC7AB93456416E605793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Angry Birds Go! 1.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:B5759FCFCDE31A6E2F10B0AD62C5DA1A81E35E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

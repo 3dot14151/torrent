@@ -20,8 +20,7 @@ Colin McRae Rally переносит захватывающую атмосфер
 ```bash
 magnet:?xt=urn:btih:6B50083964950F5F56DA236816D54F35C96C42B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

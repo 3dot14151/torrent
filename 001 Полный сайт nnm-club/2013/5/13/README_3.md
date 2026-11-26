@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6A6C3EA321ADE129FBDFDCA53972971DF2BD3636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:818768098573990EABE47CE1824BDE1713DFC803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Souten Kouro / Beyond the Heavens / Дорога под Небом [2009, TV, 26
 ```bash
 magnet:?xt=urn:btih:5B0B73E19022472A57A735F95B4C08BE017D65AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Ace Utilities 5.3.0.485 [Английский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Claude Ciari - 2 альбома (2003-2004) [MP3|320 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:816392DB790008891CC42DC438A58AEB04F6D1CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE8A19E6006C48C368CEF88609405E2F2E3A3ACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Various Artists - Run Is Motivation Part1-4 (2013) [MP3|320 кб/с]<Breaks, Dub
 ```bash
 magnet:?xt=urn:btih:6B822A14DBE2FCBB7153EDA84AAE7B8A159AD18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C251907AACDAC600F3576D311CD23324447B8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2072CF6A0C482E3A82DABEF40CE896B030E3B369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9ACFA921C50DDB451FA488D049A2EDCDC6553296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - Smooth Jazz Cafe Vol. 1-9 (1999-2007) [MP3|320 кб/с]<Smooth Jazz, Vocal 
 ```bash
 magnet:?xt=urn:btih:FC6231E7131A36B24DE0970052BDAE3F6F60A713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Jessie Ware - 1 альбом + 1 EP (2012-2013) [FLAC|Lossless]<Pop, R&B, Soul, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ Tina Turner - Live from Barcelona (1990) DVDRip
 ```bash
 magnet:?xt=urn:btih:00B1FDF96A7B24AAC23BA86A61E94DD3CADBA17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45ED8243BCD153DFDD444A7A1D90120B963D9F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Gadget: Past as Future (1998) [En] License
 ```bash
 magnet:?xt=urn:btih:606911637EFF5A6922640808FCE58A1FD3CBD09F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ CD1Жанр: Psy-Prog./Psy-Trance /Full OnПродолжительность: 01
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ AOMEI Backupper позволит смонтировать выбранный о�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BDF1E772B6B591FADF80C1CEC7A68F2A8A18DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:215923EF61986AEE12FF07F60BE44198998B2746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EBEB1CDD0CB156160B71362CE72E79CD76B9E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:624DC5D87DFA4D324E501AC275E2115E45F19EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ Clownfish – это онлайн-переводчик для всех исхо�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MobileSheets - это лучшая программа для просмотра 
 ```bash
 magnet:?xt=urn:btih:A7019177FEE67B06D6080EF88DE796DB4ADCB770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

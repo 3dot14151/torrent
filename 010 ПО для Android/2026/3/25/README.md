@@ -19,8 +19,7 @@ Rosetta Stone: Изучение языков 9.0.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:30610491E3F21143CCED6EA772A53FCA7C5E38DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

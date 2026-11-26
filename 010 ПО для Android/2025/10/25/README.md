@@ -19,8 +19,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:8C2EC32472993F7F6BD9CDC3273CB417AEDBE73A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ProShot v8.32 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9BA99E7FBA2CDB304E34D1CB71B7421E4CAB213E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:567803F0BB454CE2DE455BE8D0A1A4D696616FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mathlab Graphing Calculator Pro v2025.10.167 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B36815B50A690265936C6C5BF32EBD6FEE092681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ FFmpeg — набор библиотек с открытым исходным к
 ```bash
 magnet:?xt=urn:btih:AF4301444306C281E7044E755E5A7B84D9C9375A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Persona - твоя новая селфи-камера на каждый день
 ```bash
 magnet:?xt=urn:btih:9196257C32A7BF0B57508F03B475BA24B35F3841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ PictureThis - Plant Identification v5.14.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:83C54701811B1A631F123426D5D4DEB140F62155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Poweramp (Premium) - Аудиоплеер с продвинутым звуков
 ```bash
 magnet:?xt=urn:btih:08782761F104172CD9921884CCE310B72448F5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Poweramp Эквалайзер - отдельное приложение-эква
 ```bash
 magnet:?xt=urn:btih:D9F963B363E39EC60186250426796A806BD3C477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ WiFi Analyzer v6.7 (b105) Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C81BC649B98C1C185F9CA3BB2736C09ECC2A657E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Smart AudioBook Player Pro v11.5.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9403857FE7E7ED08A39D1D6DB806AE2B08E4E0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Eastward (2021) [Multi] (1.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:645C47F384309EF033F9A1F5722C76D5B10D08D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Intersection of Worlds: 100 Doors / Перекрёсток миров: 100 �
 ```bash
 magnet:?xt=urn:btih:383E84A647456EDCB628A90A20DFCE368BC71CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

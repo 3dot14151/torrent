@@ -19,8 +19,7 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:6E20F281664253D703C40B52F1C28A4C8C883E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9B795C01F4BF2928C6BB9C68C1DF2518CDF25E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:583051F7724B30392296A9EA43F2164706F686F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Ulysses разработан преимущественно для писате�
 ```bash
 magnet:?xt=urn:btih:C4F0E59D296DBD810562B068F1D40CEC0870AA36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Luminar AI 1.3.0 [Multi/Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66B6B51B807907663B5DCF25E280A1D9DA5180EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Mick Fleetwood And Friends - Celebrate The Music Of Peter Green And The Early Ye
 ```bash
 magnet:?xt=urn:btih:629FE4936B50BFA8DAEA6C07C51D502E23626611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8BFE43465CFBEB81823ABC66785A0CD8FABE874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A0AF0E154614CDCA193862D61DCA4B316671FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:AC39B6A1CB1C88CF8E7A445E6308EDB4C151AA56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Legendary Tales 2: Cataclysm (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:9AA62ED1EC0882D386622FD708C9A0EDE83B736C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ DxO PureRAW 1.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:59293C9A5FC78077F651B3436AB37E8CD1ECFC62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DC226E7FAFFAB16CA8D4EB065DB47E91D5C2CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ Mick Fleetwood And Friends - Celebrate The Music Of Peter Green And The Early Ye
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ VA - 70's Rock Power (2021) [MP3|320 Kbps] <Rock, Classic-Rock, Hard-Rock, Balla
 ```bash
 magnet:?xt=urn:btih:6E2612939D8E0AF267092BAE1E9638258E1A5D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ PT Photo Editor Pro - программа для редактирования ф�
 ```bash
 magnet:?xt=urn:btih:64B45C3B7110A0B97F8417D6570B1B835EB57564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3498D03960984EFCF98186314FF5A7D46E95E9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:825BA86644A261A1423135FCC30669FCB017C02C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ C.Н. Кривошапко, В.А. Копнов | Сопротивление м�
 ```bash
 magnet:?xt=urn:btih:76B8B59796FDB21C1D33E4A6FBBABAF5507590A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DB216926697FBA5BEF1C90837A68444D51B6F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0906C3AA85227F9B36C527EF1F9A968132FD34E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ Yu Cheng Hong | Character Perspective (2016) PCRec [En, Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCF5D71010B100343191D609E81DCC472CF1EA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

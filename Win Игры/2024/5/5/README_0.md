@@ -19,8 +19,7 @@ Front Mission 2: Remake - обновленная версия классичес
 ```bash
 magnet:?xt=urn:btih:B7A7FB2EE76FD8424A5BC48C9C21645F4B4C3848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Vannza WPI 2014  v1 [Ru]
 ```bash
 magnet:?xt=urn:btih:007A7EA8113B4B7EDB1EC14BFF476E42B3F28D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:933AEE64AB224C2252CDABFE156921F0007F11AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24754C7DE153C809CE0927EA36D66BA84D29A7D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDBE1CF817BE7FD3F6174E173AB550601C74EA99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9BC57E591AF07972F687EF25A9F926001AA7C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Eternal Sonata [PS3] [USA] [Ru/Fr] [2.42] [Cobra ODE / E3 ODE PRO ISO] (2008)
 ```bash
 magnet:?xt=urn:btih:666B49074BADC78B00A3320A9B2B4BC3DF4F1926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24376BD87517638DE2651870BAB83B9101FEE0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A1AEE3A594C92FC5B8DE479275374C440B156E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Simpsons Game [XBOX360] [Ru] [Freeboot] (2007)
 ```bash
 magnet:?xt=urn:btih:D368EF1F9DF6D4E5B3C60E4097497B81BE61D4DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFD0EC4878E2422D7DE7AA561234E8C6393083D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Windows Post-Install Wizard 8.7.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:20D3D0628C4E8912B20AD97AA903FAB7348CCB45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2488AEDEEC29B8BA3CB196DF301F9D323E2D9B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Kingdom Rush несомненно одна из лучших tower defense на 
 ```bash
 magnet:?xt=urn:btih:FB4B2BF921DBA4CDAD3A0819E7D5F81DE9D84438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Windows 7 Enterprise — это выпуск Windows 7, в котором реа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Foxit Advanced PDF Editor - быстро работающий PDF-редакто
 ```bash
 magnet:?xt=urn:btih:34ACA9384134C002A95AB49AD2ECA3287AEBB31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:700D7112C74DB6B1BE50F7766FE89001A2C9E7F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

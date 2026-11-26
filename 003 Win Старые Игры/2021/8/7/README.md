@@ -19,8 +19,7 @@ Call to Power 2 (2000) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:53BD52A183354A0699B0D6F3241B172047B750E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

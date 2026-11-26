@@ -19,8 +19,7 @@ Steel Seed - захватывающая приключенческая экше�
 ```bash
 magnet:?xt=urn:btih:2DA9B14515F04261149BD83664C0B9E4CF59817A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.04.132116) Repack Let'sРlay [Sou
 ```bash
 magnet:?xt=urn:btih:1C60512D5A4C3654601D7ACD103B991799E8D43A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lucy Dreaming (2022) [Multi] (2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5FED4406030F10567B1B875071233397821AB7F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ God Of Weapons (2023) [Ru/Multi] (1.5.65/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E1507B172577C4F554636B3B59AA147BCD2FCB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ dotAGE - игра, где вы будете пошагово управлять 
 ```bash
 magnet:?xt=urn:btih:B6BA08FA91C972DC99EC2DB41E63A9CC2606D55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Soulstone Survivors - это динамичный экшен-рогалик, г�
 ```bash
 magnet:?xt=urn:btih:4A258883120773D78ABC0B4A3B84F9956C527C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mars Base (2022) [Multi] (1.107) License GOG
 ```bash
 magnet:?xt=urn:btih:AF6A8FFCF036291F133B2ACCE3BF3CCED9CFBECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tall Trails дает под контроль Альпа, маленького г
 ```bash
 magnet:?xt=urn:btih:80CDBE9966346625B5C2AF22E8AAADE8D334958C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

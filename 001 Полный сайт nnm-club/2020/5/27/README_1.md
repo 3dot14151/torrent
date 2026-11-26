@@ -21,8 +21,7 @@ VA - Romantic evening (2020) [MP3|320 Kbps] <Rock, Electro, Techno House, Dance>
 ```bash
 magnet:?xt=urn:btih:F428AA5D7F852CD319235A5BB9708647D05ECBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Acoustic Chill (2020) [MP3|320 Kbps] <RnB, Pop, Blues>
 ```bash
 magnet:?xt=urn:btih:8809C18DBD474A0A89686AFED034A8859DE60962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ One Desire - Midnight Empire (2020) [MP3|320 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7D9D81F8643763CDC4B2DFDD205A4565939EA769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Die Kreatur - Panoptikum (2020) [MP3|320 kbps] <Gothic Metal, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:DAB23A1B4E8D26C6BE5149477F5A477F3E47A762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ PTE AV Studio Pro - дальнейшее развитие программы Pic
 ```bash
 magnet:?xt=urn:btih:944953237F74F941F9E8D7EA378BA2F51596BAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Rhinoceros 6 v6.26.20147 [Multi]
 ```bash
 magnet:?xt=urn:btih:BE20E29BCB6C2F2EB462A43670572D00C9DDCC4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7A696D2460FD583CC9B29B88806C590D300A5B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Beatport Club House: Electro Sound Pack #93 (2020) [MP3|320 Kbps] <Club, Da
 ```bash
 magnet:?xt=urn:btih:930434FC9706E72885FF805A8B42BC66C4B0867E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Gary Glitter - 100% Gary Glitter (2020) [MP3|320 Kbps] <Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:923C1DE04CAC938B990195A9DDFCF54B13F90064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Celemony Melodyne Studio позволяет работать с записанн
 ```bash
 magnet:?xt=urn:btih:4E38190A2C7AC208B92C2F4AE75FE310081CA9F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Aegisub 3.2.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A4ADD5B3F076DDD71F93BFA6864D4AB7F2D80BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ RJ TextEd — представляет собой полнофункционал
 ```bash
 magnet:?xt=urn:btih:145AD4FB87A2DCE074DCABF5BC8D26885B165763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:03C8897CB6E7125F2852FED0665274F0662FB916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ VA - Midnight Rhythm Disco: New Generation (2020) [MP3|320 Kbps] <Disco, Dance, 
 ```bash
 magnet:?xt=urn:btih:363C6D26A866B2F8496B8936E21D3E26078D1E55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ RogueKiller Anti-Malware можно использовать бесплатно 
 ```bash
 magnet:?xt=urn:btih:F4FACA191911730747C598945C26FC742BF64B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3737AE304343B2ABF85C17B3BF0E59A51518BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:546E49FD9AB0D7822070CC889C02D903B34FE47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CD7DA9C1631B1E8CAF82410563303AFD2011005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ VA - Best 80s Hits (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A6C3E066E0E94AE537837BA0BAF6543D9CC3CA98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:446A84AE53950B2971EE596E94A60C05948C3419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9524B84006C670F924DB0BC094C9EF3B7439B2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:C8D0400FD231AF2718C6097A0BFFB8A3703369A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:506CEC6B244342A5965C428C105EB0A38875A4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF4EC371D07D151523556B9A9A0AB3896B69D212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ AutoHotkey — бесплатная программа с открытым ис�
 ```bash
 magnet:?xt=urn:btih:5FB38B2B8BFCFC0A68FD0260342DFFB02B2D415D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ BestReminder v2020.05.27.19 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:464DE8150BDD69DB2A21C2A61B15D776941CCB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

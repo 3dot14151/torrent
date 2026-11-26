@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C2413CE6FC3CD6A6664A00AA26302A8E87E0D05C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Morton - Come Read The Words Forbidden (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:AE13DCB4FE0647935E27414ADCEF4090B851967F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Crazy Night Hits (2011) [MP3|320 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:52D39B3F85135B5479C06E7DF7E049AE032EFEAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Jay Gordon's Blues Venom - No Cure (2011) [FLAC|Lossless]<Heavy Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Diary Of Dreams - Ego X (2011) (Limited Edition) [FLAC|Lossless]<Gothic, Darkwav
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ VA - Sounds Of Soul Deep Vol.3 (2011) [MP3|320 kbps]<Drum And Bass>
 ```bash
 magnet:?xt=urn:btih:EAEC51BF7CC36A7F1CFDABE9599CB8CC75DB06C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95A134C5E43C9C3A211C881E370C1F72153A30FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DE7F17116535F7DB4F21A01ECB1F2C08E0862F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B934AEC593DF093622A5F310131AFCCE7C526AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F03F9EDAB39AACB61EB79BE762DB3B673BB2F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ Shadow Wolf Mysteries: Bane of the Family Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:75DBE70A918A61260C8E5E48850DCBA29CA5ED6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ MultiCopy 1.2.0 + Portable [русский, английский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ Guitar Pete - Raw Deal (2011) [FLAC|Lossless]<Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B09744347287AB5961C1982F9B1BAF82184BABCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ TheAeroClock – уникальные настольные часы с проз�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ VA - Puccini Gold (2008) [WavPack|Lossless]<Classical, Opera, Vocal>
 ```bash
 magnet:?xt=urn:btih:E2388C9E04B588C911AC044FF0E3B9A9CFE1F14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ VA - Fireworks Vol 8: Part A (2011) [MP3|320 kbps]<Techno, Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:4074D55F168DC7EDB0B34A028B0C5244543207C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A20F6F71E762C85C182E67455AF7A459552276BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +643,7 @@ Speed MP3 Downloader 2.2.4.6 программа для поиска и загр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0CF3D4EC4E85C8E34E49748C0A583E220B6FB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +696,7 @@ Nicki Parrott - Moon River (2008) [FLAC|Lossless]<Mainstream Jazz, Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1CEF78CA3F5C7672533BCBE9A373F2BC0633942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

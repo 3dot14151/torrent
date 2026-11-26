@@ -22,8 +22,7 @@ Children of Bodom — финская англоязычная группа из 
 ```bash
 magnet:?xt=urn:btih:187216DAFA8327AEF0CB682A3E84BD586894F08B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

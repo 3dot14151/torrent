@@ -22,8 +22,7 @@ Sandstone - Epsilon Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:34F65AE6C2D24A5C4AF6575DE94375ABFAEDFE62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Knights Of The Realm - Knights Of The Realm (2021) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:B3A49C8D45DB788F8A28956A188923ECE8F37E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Insania - V (Praeparatus Supervivet) (2021) [FLAC|Lossless|WEB-DL|tracks] <Power
 ```bash
 magnet:?xt=urn:btih:61770ECC1DDCB371ED8BAC24200913E746740F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Groundbreaker - Soul To Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:97C185907390D51142BA38C5C64C943427992546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rock's Finest - Planet Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:62B9E08D32424E1597E77A17877896EAAEEDE1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ David Reece - Blacklist Utopia (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:18522BDD643AC1C90961FE8A144E4FF87A0A201B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Wonders - The Fragments Of Wonder (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 ```bash
 magnet:?xt=urn:btih:DDC141F58EFB7B85B7C2DB1868E93B059C42FED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ T. Rex - Bolan Boogie (1988) [FLAC|Lossless|image + .cue]<Glam Rock>
 ```bash
 magnet:?xt=urn:btih:A593B77910A703F58187187BEC4503A62FBA5F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Heartland - Into The Future (2021) [FLAC|Lossless|tracks + .cue] <Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:B015E649D098722B6E99DD21D5D0E62508E5F3B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DA47B560B585A4DC2D84985BBDA9B1D2C734062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Pain - Dancing With The Dead (2004) [FLAC|Lossless|image + .cue] <Industrial Met
 ```bash
 magnet:?xt=urn:btih:55EDC2D75D5A956E099DDF571C070B0AD78A3BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Screaming Shadows - Legacy Of Stone (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ```bash
 magnet:?xt=urn:btih:BEF078A73AC316BC3672CA9FCF8124527C142EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ LASCALA - ECUADOR (2021) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:6CB19751DF25FA12662BEE9685469E823F7C2518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ CD - 1 - Original Album (A Steven Wilson Stereo Remix):
 ```bash
 magnet:?xt=urn:btih:120D18644B78EA0682354A5A5C7B48B44B7DE157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Saratoga - XXX (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:4E13EE131DC00E0FB710D1E09B5CE11FBDBA18D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAED30119F48555AFC353E0E999BAC6A7688CACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ The Jimi Hendrix Experience - Radio One (1989) [FLAC|Lossless|tracks + .cue]<Blu
 ```bash
 magnet:?xt=urn:btih:BC74B3E90A5F4D6F3E3E08F5A51A11607566F926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:374E419C0C4BB71CA74DC23149CACC0894EF051F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +528,7 @@ Emigrate - музыкальный проект, основанный Рихар�
 ```bash
 magnet:?xt=urn:btih:9A37C1AF52BF83567CC290CBF0E2E33FF0ADED61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

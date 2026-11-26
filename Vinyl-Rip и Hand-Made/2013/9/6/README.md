@@ -28,8 +28,7 @@ B5 Cambodia - RepriseЖанр: New Wave, Pop RockПродолжительнос�
 ```bash
 magnet:?xt=urn:btih:4C08C3B8BDF334CB1A014C266545321925AE41A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

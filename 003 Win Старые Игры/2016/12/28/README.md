@@ -19,8 +19,7 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 ```bash
 magnet:?xt=urn:btih:8A3D76222F28ADA0DD058227C11B77D774DA9DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 ```bash
 magnet:?xt=urn:btih:D9D5DB435FCAE85F7366904A2F63EDE67785F0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Big Fish Games Universal Crack / Активатор игр Big Fish Games (2016)
 ```bash
 magnet:?xt=urn:btih:D219A3BD667D98EE9735D5EF4CBE7498A69EBEEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Gold Plus - издание серии Gold для студентов и взро
 ```bash
 magnet:?xt=urn:btih:AC582E1F56CABEC8E0921A531D88CE9E7DB505E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4B31303AA79D61AF830E6E4A6D728AD7D4B1E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:563756A2342EF0CD61ECC7990B61D9ABDB3F5078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5D6081BB0093D076C5DDC5B82B4ED89F6540F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ AntiWinBlock LIVE CD/USB - простое решение для удаления
 ```bash
 magnet:?xt=urn:btih:5B4280224F874B672158B3B02C2F5E858AA03E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54AFD6B9AE7F88DFC01CD392B46A98D5759E1B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BC1FED9C304F4A4F786391FBF3F45DABFB6F6C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B1A77F127E78924536940ACABF4C9873EEA28AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFE58A70BAD86C49CBBDA3779A669721710EF863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26AC10D756D309990CF123636425D0BD30355641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Gokukoku no Brynhildr / Brynhildr in the Darkness / Черный полюс Бр
 ```bash
 magnet:?xt=urn:btih:BF0769BE7AA832C39EC7256BEA237DB557087147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5C0266616CB849EBA20836625ED4A8EA4403F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA28EC3A2C4DF74DDF4D4EB81F83209E79C211A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ VideoHive - Whiteboard Wow - 7241824 [AEP]
 ```bash
 magnet:?xt=urn:btih:B6C6F40B0D45B75B5AB871F1497A47DDA32D8682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ Constant C (2014) [Ru/En] (1.02) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4934339608C737E68367E70BDB46F8AD1339FE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Break Blade / Broken Blade / Сломанный Меч [2014, TV, 12] HDTV 720p 
 ```bash
 magnet:?xt=urn:btih:685F3CDB6BF5E8D5F41208E29F588170E9694977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ Exposure 6 — автономная программа и плагин для Ph
 ```bash
 magnet:?xt=urn:btih:41E15A9AD929D718DF09BB4DDECAF98E309FB7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6AEE67F9ADC451D2D7580CF1001772C243A795D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ Praetorians – потрясающая воображение игра от зн
 ```bash
 magnet:?xt=urn:btih:84CC7CAD9EA1F2EB259FB36E98EB05B4BB68ED57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9FCA30A9D00689BFE8C4F4EE1EF4F43CEE6C09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71061C7D702F2A9D094372D5A69DEF50ADA8106E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ Q.U.B.E (2014) [En] (2.8/dlc) Repack R.G. Механики [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:ED426E314EE4D8458B9D82043A992BF585D4BE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC24EB2CBB335B87E9B9EB9AC1A524A63C952A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A6CC1772AD14E8D5EF801C09478BEB6745D7EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

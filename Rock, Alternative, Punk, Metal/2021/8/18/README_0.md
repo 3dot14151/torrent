@@ -22,8 +22,7 @@ Soulline - We Curse, We Trust (2012) [FLAC|Lossless|image + .cue] <Melodic Death
 ```bash
 magnet:?xt=urn:btih:90E58D444C4E8CDBD790977ECAE73F699CBC5E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Soulline - Welcome My Sun (2015) [FLAC|Lossless|image + .cue] <Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:03A66EFC9F59B91486222D91388CCDE389D752E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Prestige - Reveal The Ravage (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:98192E494BF52D3FE039E2CDE6AA379EE58A52DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

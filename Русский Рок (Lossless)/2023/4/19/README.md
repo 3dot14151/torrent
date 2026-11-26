@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:FA59808AB59207A16B433F49A6A11D759B397F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jet skies - 13 (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:FED4986FDF6AC4A3283E27CF1151E1A1B1B6E699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

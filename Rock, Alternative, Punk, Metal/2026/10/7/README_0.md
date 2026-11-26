@@ -22,8 +22,7 @@ Livewire - Steel Surpasses Flesh (2026) [FLAC|Lossless|WEB-DL|tracks] <Speed, He
 ```bash
 magnet:?xt=urn:btih:2ECE2049BDB2E69F3AAB8C9CAC03969F73868947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dream Theater - Made In Japan - Live (2006) (2007) Remastered, 2022, Inside Out 
 ```bash
 magnet:?xt=urn:btih:B3E883D59120AB14C793592629DCEA28036DE366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Once Blue - Once Blue (1995) [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Folk Roc
 ```bash
 magnet:?xt=urn:btih:67C44D1F5AD76762632364E5FF437901B52BC767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Anthrax - Cursum Perficio (2026) [FLAC|Lossless|image + .cue] <Thrash>
 ```bash
 magnet:?xt=urn:btih:42CF7E6EB596405F1A0E3C7DEF665407C7104A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Flotsam And Jetsam - Rats In The Temple (2026) [FLAC|Lossless|image + .cue] <Pow
 ```bash
 magnet:?xt=urn:btih:E5EA062B4F9A998E0C588B05B91DC20B6777A5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Growth - Under The Under (2026) [FLAC|Lossless|image + .cue] <Technical Death Me
 ```bash
 magnet:?xt=urn:btih:30F8DFCCC7E362DB0E0EE048773165A714CD03F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Tuscadero - My Way or the Highway (1998) [FLAC|Lossless|tracks + .cue] <Rock, In
 ```bash
 magnet:?xt=urn:btih:114F0B5C9A179222AEA9E3CDDC8C63B60EAD4251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

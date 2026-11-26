@@ -19,8 +19,7 @@ Microsoft Translator позволяет вам переводить текст �
 ```bash
 magnet:?xt=urn:btih:E0A3795D9D9B3D1844FE79FA2CDFB612538D0C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

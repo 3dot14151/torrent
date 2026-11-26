@@ -21,8 +21,7 @@ VA - 25 Years Technoclub Compilation (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7803F381F920DFDCE6878DD508F209986B218970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Keep It Trance Vol. 09 (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:E0E8EFED5EACAD2C17CA89788B510F085F9D6C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E086CA1CA5AF5F76D54C25BC64A7E9FE85277F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Strange Omen - Marasma (2023) [MP3|320 Kbps] <Hard 'n' Heavy>
 ```bash
 magnet:?xt=urn:btih:7E4DC80E13A326FD2FB83571BD8DAF33332FC39B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Happy Valentine's Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chi
 ```bash
 magnet:?xt=urn:btih:8D63535D0F918657DBF5AAD5A7EF1C89420AEDC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:D34CC9C8597CC228D40EE89A48A65D995A230854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:814CC8861E47F67E37105C53B64BCFA5E6305865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8612812FDDE43E06801D51A9B5B734FA3E7E2F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D283FEE331B21CC98EE19682F094AEF8B124C357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBE97CC4B1D430C3E63E97AA032F7CABB3C1A4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E35218E078A1BBA4D747CB271C3031D4A57BB71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Luger - Revelations of the Sacred Skull (2023) [MP3|320 Kbps] <Doom Metal, Heavy
 ```bash
 magnet:?xt=urn:btih:EF9EEB32233C963686AD9970C50B384BF5069D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Thunder Volt - 4 Relises (2021-2023) [MP3|320 Kbps] <Grunge, Stoner, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:5C290B2190E7A84BA91757C3FB10D248089ADAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Veilcaste - Precipice (2023) [MP3|320 Kbps] <Doom, Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:26B9830E6B0F9A0552E3E363370DD08B442100AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Pe Roto - 2 Albums (2016-2023) [MP3|320 Kbps] <Sludge, Stoner, Doom>
 ```bash
 magnet:?xt=urn:btih:43391F0407A5506CA16954AA40FFBF286F0E227B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ Lim Okrava - 3 Albums (2019-2023) [MP3|320 Kbps] <Industrial Rock, Alternative M
 ```bash
 magnet:?xt=urn:btih:AF30D2CE42AB77878738C1891EB93162C0BCFE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Dysmal - Gates To Apperception (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 ```bash
 magnet:?xt=urn:btih:BD8BDB1C6F764A349A52C164920BED61CE4E1B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2AC2B58D882114C65261FCE8D6096B42565B40A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFCE4DD6A5E1CFEAB45AA742CD2BC72A2BDDE1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ Czakan - State Of Confusion (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EEEE63EDF4B9DB7CE8BBA2E8ABEB83D25E141172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Condenados - El Camino de la Serpiente (2023) [MP3|320 Kbps] <Heavy Rock, Doom, 
 ```bash
 magnet:?xt=urn:btih:5E6B675779CEB06212B15FE9BA4D5E8B6F0B8BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Leroy T. Brown - The Yellow King (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Slud
 ```bash
 magnet:?xt=urn:btih:DC984A19BB54193DB34C42E32877506120570656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:707EC0716F81411E7927760C9AAA0AEA5D903239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90C875ADADF6B4BDE5CCAB9997864F11B5561361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ AMS ФотоМОНТАЖ – редактор фото с поддержкой �
 ```bash
 magnet:?xt=urn:btih:D29545685B2503B3F54215C2905945A404E4F4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0109C16C8CA209537DAB28D11F6376A602979780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

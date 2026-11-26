@@ -19,8 +19,7 @@ Stellar Phoenix Photo Recovery - это надежный продукт для �
 ```bash
 magnet:?xt=urn:btih:533B618275FD8B2E468214228D0B7653238C56AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

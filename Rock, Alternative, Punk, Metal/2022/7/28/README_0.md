@@ -22,8 +22,7 @@ Transmetal - Peregrinacion A La Cabeza De Cristo (2014) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:A111404A92F627865071C886C6AF4DCDF9217319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Suspension Solar - Crisis del Arte (2022) [MP3|320 Kbps] <Progressive Rock, Cros
 ```bash
 magnet:?xt=urn:btih:79CEC34075A44E89A723DC936F192433805FA039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Xebellian Triangle - At The Banks Of The Rubicon (2022) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:FA913E386C45AD84EE7900CDE1F7F9F7C7B156D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Municipal Waste - Electrified Brain (2022) [FLAC|Lossless|image + .cue] <Thrash 
 ```bash
 magnet:?xt=urn:btih:806ECF35822668269414B936922900D1C6E0E572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dark Funeral - 5 Albums, 1 EP (1994-2009) 7CD, Limited Edition, Reissue 2013 [FL
 ```bash
 magnet:?xt=urn:btih:364FE63875719D41FA2F290F749655D0B48C16A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jack White - Entering Heaven Alive (2022) [FLAC|Lossless|tracks + .cue] <Alterna
 ```bash
 magnet:?xt=urn:btih:01ECBBA0E646C9E135D8CFCC0BBB82C3E4E91F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:C4953B9F73D483FC4ADB9562E0CA161B6478CE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Intelligent Music Project VII - Unconditioned (2022) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:BC1A7A4D40C5803EFF74E33AF357CDC55A206503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Alan Parsons - From The New World (2022) Japanese Edition [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:BDCB67760AADE1EA2A05EFCF7A57DA6AE7415DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:0A2BF255B792111711E9614F77674ECF1444AA7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Animal Planet: Необычные животные с Ником Бейкеро�
 ```bash
 magnet:?xt=urn:btih:AB25D93708E844C64E3BBC31F65ED504F7860B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Versailles - Holy Grail (2011) [MP3|320 kbps]<Power Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:D95CF816B4DAF9F4E7B9644F689379E969B20D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81F4CF2149AAE75C0E8A5F9997862867E75FB283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ History Channel: Эффект Нострадамуса. Гитлер. Клятв
 ```bash
 magnet:?xt=urn:btih:30A452C5CF1E7826326162EB81DA96B137CE0A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ BBC: Будущее Земли / The Future of the Earth (2008) SATRip
 ```bash
 magnet:?xt=urn:btih:27F2F17AB09487FBA9FB10DCBB34C9DA956DDB24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Mathlinux включает в себя большое количество пр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF48F7E0D0FD2C5EC3C27883A26336D7F885DFC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74728D7EBAF2D3A24F40857A5F17FF54232C3271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:438C8526076D1910B88A6992235A22A46CA18861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Ana Alcaide - Viola de Teclas (2006) [MP3|192-320 кб/с]<Folk, Medieval Folk>
 ```bash
 magnet:?xt=urn:btih:3842D88B97C7525A3CF72B44C58C03896294443F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Immortal Souls: John Turner #1 (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:617241A64452DD657C906C2EF95343C32E03D144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F6D12B7B3EF10882F5102DA6C0B6EFAA50F32E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40A5A96C4387830DF5C5D75F97EE7EFD2D1C043F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5FDC4EF3F7CBD0867D7A0879B13C1DB286BFC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ VA - Золотая дискотека 80х-90х №100 (2011) [MP3|256 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:00A747EDDCDF85817FC15F42A7E91139FD6E1310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ TinyRus 3.4 [i386] (1xCD)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ God Module - 7 альбомов (2002 - 2010) [MP3|320 kbps]<EBM / Dark Electro>
 ```bash
 magnet:?xt=urn:btih:27C665C25C205E31BEBFD5BCEEE6B616CB75A590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6487D4B8C713998FEB3014FFA5608921ABE4A275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ Ken Hensley & Live Fire - Faster (2011) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ VA - 1000% Style Of Enigmatic (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:66F77761074165090C19A81C83198AAABE75B929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49B1A4066A7FA61BCE261CF736589022723F57C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3F696B6CC8277EDA515EA9D2055ACBFCDE8CD3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:044056061B81726EB03021C701418D2C6DB2E78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:105115D218DDFC7FA7F7F75BD11342B75B365370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9EE9A75AC9918B4ECFA17B61D09C7CA90373AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2A7CB40016D62B758ADF46DE7CCD2C3704A7E7A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFFC42BCDB4ADFBC271929E71C424E6B515640C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Zомби каникулы (2013) BDRip
 ```bash
 magnet:?xt=urn:btih:111342F1A7A9F4B26DF5B699833042A35C102269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Rayman Legends (2013) [Ru/En] (1.1.1) RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:55B7B406F74280A30DE264703082DBEA08CF95F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC83F42FC26B0D34DEFF023444720C431C745A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFC76C7C3FB0E8DBE307BCCEC7EB6C041661A996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ WPI x86-x64 by OVGorskiy® 09.2013 1DVD (сентябрь 2013 г.) [Ru]
 ```bash
 magnet:?xt=urn:btih:88224CD1EA005F357ECE7A0F6BD6086E87DD617C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:731BBB08F1C41A0458EDF1726190229FED4C6512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Microsoft Windows 8.1 RUS-ENG x64 -8in1- (AIO)
 ```bash
 magnet:?xt=urn:btih:6A7A74FD61037C1EA399BF9B14D251791440BF5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

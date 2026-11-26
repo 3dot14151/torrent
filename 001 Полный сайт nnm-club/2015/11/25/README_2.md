@@ -18,8 +18,7 @@ Paw 2.2.5 [En]
 ```bash
 magnet:?xt=urn:btih:6D776E8341E9A6D57B4C6CFDC16E18660CFBCF01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:629D0D6348B5302D3C709E21E83846E15FAA0453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0601DD63FB91C0ABB962FE685CE21041932807A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E6787B5E3A43FDFE9B2E39D7F1CDCB929E19E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F8D6FACAC30EEDDC2AF4CABB165647EABD773A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Yanni - The Very Best of Yanni (2000) [FLAC|tracks+.cue]<New Age>
 ```bash
 magnet:?xt=urn:btih:1B074487E6AD567A655B15296C7B221822392220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ OFF - Organisation For Fun (1988) [FLAC|tracks+.cue]<EBM, Electro, New Beat, Syn
 ```bash
 magnet:?xt=urn:btih:B4CEC71BA28CE8C21CAB2D9C5653D1EC1B787AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F47130980E6F45649A9A3A0B65B740990444B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:1B8F436FBD9D8773F3FFF440D849533E82D4FEDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ VA - Disco Discharge (2009-2012) [MP3|184-320 кб/с]<Disco, Italo Disco, Hi NR
 ```bash
 magnet:?xt=urn:btih:1AB3CD71DF6506A72378672615223EC780283105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B97880CA5818AD3C03FA60C291D8F7808572AEEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E04B644A28464C66727C32289440109341CC3F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4B1EFF0653DEB7F614C56D9E02429A7D8DDB1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ CoolUtils Total HTML Converter — это функциональная прог�
 ```bash
 magnet:?xt=urn:btih:439A532A61B3D4BC1E5E8EFC724545866A267383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:976B495E364094708358C310EDE662F660A1A594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17B169B679970157B44D2D3106A05E17D4918B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66D42FBC19FFC78EDB506237619A076B498853A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22A013A533CB1B67A9D11FDA80926407224F3377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4113F06CCD3FA56E470802F05771F2FC29D6C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ UC Browser полностью настраивается на индивидуа
 ```bash
 magnet:?xt=urn:btih:DE5A04717BC147D00B6FB18FCE3D9BD7311D00D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ Avast Free Business Security - бесплатный корпоративный �
 ```bash
 magnet:?xt=urn:btih:07880AEA0E1692F112528DAEF46886B3108139AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ Audirvana Plus - мощный аудиофильский плеер с широ�
 ```bash
 magnet:?xt=urn:btih:C7FD226FE47D581AD2E5763E5528EB7F697E30AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ Game of Thrones: A Telltale Games Series – эпизодическая игра
 ```bash
 magnet:?xt=urn:btih:688E7F64FB4999A4879457B2265444D69AEA2C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CD71DF98EA6ECFF1A8F86C8676C99F210152529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ Shadow Defender – программа, аналогичная программ�
 ```bash
 magnet:?xt=urn:btih:6FAD469F0A5890125BBB23E2C4D84F26593438EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65698DED634EE92C24F43DE763505DFC1DB83760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Natural Threat 2 (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:930C2320F4CA016A4A2FCC00284814A984C60011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Humans Must Answer - чумовой космический 2D-шутер с от
 ```bash
 magnet:?xt=urn:btih:BC094CE0D679512AA7DB14588026E14D0CBCC736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ InFlux игра-головоломка, в которой смешали исс�
 ```bash
 magnet:?xt=urn:btih:F5DD43F52ADFD91537D9355A5AE6E720CB06EBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

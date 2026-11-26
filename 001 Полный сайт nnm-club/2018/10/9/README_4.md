@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A45822451CE6ECC96CB848FDD9A2E9CA87526E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A0A521950860D1091D38B9811CFFF59E521E6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - Digital Empire - Miami Underground (2018) [MP3|320 Kbps] <House, Electro-Ho
 ```bash
 magnet:?xt=urn:btih:27CBB40B4A7DFF260AA1FB0967C17F0365359EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ The Four Freshmen - 22 Legendary Hits: Portrait of the Artists (1950-e - 1960-e)
 ```bash
 magnet:?xt=urn:btih:1D77AC8E6838E4A54183DAE63776F0E66489178F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Ibiza Summer 2018: Trance (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7251182379E139B949606F3490AA7B888115FFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ X-Fusion - Demons of Hate (2005) [FLAC|Lossless|tracks + .cue] <EBM>
 ```bash
 magnet:?xt=urn:btih:0EC68487C42D2BF2B8AA69B87E4A238AB8063588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - Bass House Autumn '18 (2018) [MP3|320 Kbps] <House, Future-House, Electro-H
 ```bash
 magnet:?xt=urn:btih:5799558F2E554FE35B276DE6CC8931E6F61D3BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Dynazty - Firesign (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Po
 ```bash
 magnet:?xt=urn:btih:E211E9A7B7CE3FD6562038D9F7D13721C9062878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - The Minimal Wave Tapes (2010, 2012) Volume One & Two [MP3|320 Kbps] <Electr
 ```bash
 magnet:?xt=urn:btih:C8DCD7ADD43B6098C398D9953A15B9E2992DF72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ SRWare Iron 69.0.3600.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1D67BE14A75EB09E7A0829F9E2CBD3750443E07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Covarino/Incorvaia - Chiodi (2018) [FLAC|Lossless|tracks + .cue] <Acoustic, Ambi
 ```bash
 magnet:?xt=urn:btih:3065B6AA03A1E71BCA4B08EA307F95AFC3391F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Impellitteri - The Nature Of The Beast (2018) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D0033E932872313BBF92F8051D18600CF642A039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ SRWare Iron 69.0.3600.0 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A4AB0C2766B33C825F178638FCCD63F858D1CA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:6457593662C393FF9D6BF075B8B142A22F8EB53C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ MaYaN - Dhyana (2018) 2CD [MP3|320 Kbps] <Symphonic Death Metal, Opera>
 ```bash
 magnet:?xt=urn:btih:D242C2807DF6907971FECF61F4F6D850B0A8A255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ NG. Линии Наска: Древние тайны / Nasca Lines. Ancient Secr
 ```bash
 magnet:?xt=urn:btih:2B4D8D09B357090A7E7874A514A5B810DB7555C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ VA - Smooth Rock Classics (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:00E7315898C1726E7B8E064DF4483FE499B2BA0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:5559D5515E098AE4AC292DB137EC6DB04567C0A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A847F519CB46CE3D471A73EF4B437085270A5A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ DMG Audio Plugins Bundle - набор высококачественных пл�
 ```bash
 magnet:?xt=urn:btih:977CAE72E755891B95FF690504F8F65090CD65B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ IObit Uninstaller Pro представляет собой легкий и удо
 ```bash
 magnet:?xt=urn:btih:0F6F0652579A138DECFC41D5DBFA42F69E0C91AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D29C58B044C8E8A861A90D5B33DFDEC2EA89B52C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB443BA85809007750D1BFDA8AA7070D2DD52A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 ```bash
 magnet:?xt=urn:btih:42BE7CE6801E0CC0B640A95F5D7F2EBD063E9C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E198DB1059CE2CF04A86D7128CCC2024D8BA528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB552B4BC22C9783389CDEC68C6CA7F3A2971A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

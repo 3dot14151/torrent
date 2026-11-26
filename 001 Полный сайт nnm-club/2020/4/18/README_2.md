@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:468C65DB46289A9DCF1A5875CD1B85894E5D2F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ No Good Sons - Sin Reprisal (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C9D7342A4C4A7C71AD406790196D5DC970CBCC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ PDF-XChange Pro - универсальная программа для рабо�
 ```bash
 magnet:?xt=urn:btih:9C24AD193DED5790671C9F4332E39EF4F8FDEE22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:635365A6483FF02BD0476A126981EAD3AB406B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA503F2A82844EDC61FE2E07452C22793A357B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2B60996FA84384F33009CF6B4EA2A837DD289C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2F107EABE0E61E733398B5EAB76766D307D8B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B6C1E95C3611F2784A8774B405E3FE99FCE6B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C9C171DEEBECE0E85C7D5BD167405F56EA196DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F15DE79804F648796B446795447AE49FECA07EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ LosslessCut — простой видеоредактор для нарезки 
 ```bash
 magnet:?xt=urn:btih:FBF06689990E2A2055F7D6029944225A3299A70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:5D155C66005A7A26F4E9F3F81E5430740F07C1DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FB214E7157B54FEB3ABC5F0703C0311F9A7CC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4E52C03E5B59D00E329B95EA768D899BB58E126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78064896A1084A13D9AD0D66F6E39C57B8C05943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ CCleaner Browser – быстрый, конфиденциальный и без�
 ```bash
 magnet:?xt=urn:btih:5D1439867725E35F36F69D7B3047038D6412CF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8779385D1F5DDB6B04C9E0450275F6E9F80F025D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:F12CA1A0C0C96C313573C9FC7B055BD18097575F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ Topaz DeNoise AI 2.1.6 RePack (& Portable) by TryRooM [En]
 ```bash
 magnet:?xt=urn:btih:85128CEBF4643BBB46030A4D99FE43DEA4FA2697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E752ABE8A88EBBC8ACD87EE17B11FB8CC4177F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:454AD51077B36D6D40EDB1E71FB4F60F4711C0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:789C981273EC60CDF499AF9581F988CD4E94FF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72FD2DA35B56B3B5395C29756469B5DD5B7AF8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор програ�
 ```bash
 magnet:?xt=urn:btih:4B8396C15F5A0B70EE88749118FC00060E7BAD22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ Ashampoo Snap 11.1.0 RePack (&Portable) elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:498A684D88931E08E166965EEB63C87561A50387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ WeBuilder - редактор веб-страниц с подсветкой си�
 ```bash
 magnet:?xt=urn:btih:FAEC00B94F8631ABF45C103EDB9D36300E87FD64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

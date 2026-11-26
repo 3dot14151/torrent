@@ -19,8 +19,7 @@ Tiny Robots Recharged - головоломка с великолепной тр�
 ```bash
 magnet:?xt=urn:btih:AB2886295E17999789F9C7F1C30B969A88F75EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

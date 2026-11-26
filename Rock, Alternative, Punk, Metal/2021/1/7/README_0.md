@@ -22,8 +22,7 @@ Windfall - Spiritual Famine (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:C64228B008838224E88AD79C92CA6B1641D08034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Grotesque Impalement - Cementery of Mutilated Corpses (2017) [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:BE49D8A67CDFAC02E19667518F5664B76F0F2D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gepetto - Evolutive Songs (2020) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:54BE72571E2BBFB46A4450F0682CC26A5CDCBFA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Catherine Wheel - Adam and Eve (1998) [FLAC|Lossless|tracks + .cue] <Alternative
 ```bash
 magnet:?xt=urn:btih:9A7D39118B5C53C66CF8BB956517B05E5E7ACC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bubka - Epi Zenn (2020) [MP3|320 Kbps] <Instrumental Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:DD7D3A21499A6E4C539CC09B3F0BFB87AE574166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Neon Heart - Temporaria (2020) [MP3|320 Kbps] <Psychedelic Rock, Space Rock, Kra
 ```bash
 magnet:?xt=urn:btih:566646DE6C70E6431AC97114A0B73952D1E4AFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Stewart Clark - Let's Go There (2021) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D70A78A52FBC9184052804CD883CD015F2A2F5B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Hearts & Hand Grenades - Turning to Ashes (2021) [MP3|320 Kbps] <Modern Hard Roc
 ```bash
 magnet:?xt=urn:btih:9543A96BA1BCE0FF4134B144376ABBD2F653DD4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Sammy Hagar & The Circle - Lockdown 2020 (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7495DBFC4554704D116EBFB29D5D2AADC5E6B236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Be The Wolf - Torino (2021) [MP3|320 Kbps] <Hard Rock, Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:AD44D00FD3AB1381AD12EBD3C51D01170EA91322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Scott Seabock & The Unshakables - God Only Knows (2021) [MP3|320 Kbps] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:D3B15E7075D8C0A37EA45D42198F894FB992C03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Magnum - Dance Of The Black Tattoo (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FDC0EE66700FD0A1D4CE4FB1D9D505F5A16789DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35359462E76E4C4CB2FBF89405F1B56B898A5C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Human Fortress - Reign Of Gold (2019) [FLAC|Lossless|image + .cue] <Epic Power M
 ```bash
 magnet:?xt=urn:btih:0ED4D52F6AAE57F13B65B813C152C3247EF1CCDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Midnight Spell - Sky Destroyer (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:30A54939FCAB34D904BEC7C963FE138346FEFB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Alta Reign - Mother's Day (2021) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:846D055EFCF146FDC04F6E1AA7220FBE8B0C6F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Mandator - Perfect Progeny / Strangled (2017) [FLAC|Lossless|image + .cue] <Thra
 ```bash
 magnet:?xt=urn:btih:0A4AE31A7EC1ACDD9BD2D5CB63A16D288FEF5128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Mahr - Maelstrom (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:E1B81555347CA6B22662A7DB43529A9E852B6D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Blind Ego - Mirror (2007) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:373EF64390E561B74FDF867A3F2196BA08D94A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ For Giants - There, There (2021) [MP3|320 Kbps] <Progressive Metal, Djent, Instr
 ```bash
 magnet:?xt=urn:btih:C7A165D8AAB33DC46F61A6B57E63297C7FCA44AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Glass Kites - Glass Kites II (2021) [MP3|320 Kbps] <Progressive Rock, Crossover 
 ```bash
 magnet:?xt=urn:btih:D626D39C7EDDF7BF2C98350D987E15DFB31606AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ Catherine Wheel - Happy Days (1995) [FLAC|Lossless|tracks + .cue] <Alternative R
 ```bash
 magnet:?xt=urn:btih:E8067072FA8CBDDE295F98FA7B3ADF1A72BA05AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ Aztlan - Legion Mexica (2021) [MP3|320 Kbps] <Melodic Death Metal, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:08A3B7DDD3809807A3BE7DE950875E8FD69630AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ Sithu Aye - Senpai III (2021) [MP3|320 Kbps] <Progressive Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:D42915AAB3208FE44E872A85A6D816653DA87CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

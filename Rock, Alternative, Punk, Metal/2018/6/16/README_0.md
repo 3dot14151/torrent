@@ -22,8 +22,7 @@ Slowmotion Apocalypse - Obsidian (2007) [FLAC|Lossless|image + .cue] <Melodic De
 ```bash
 magnet:?xt=urn:btih:46AF76366FEA1E08831795A15E1ABC99E922B61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sharks - Jab It In Yore Eye (1974/ 2011) [FLAC|Lossless|image + .cue] <Classic R
 ```bash
 magnet:?xt=urn:btih:1AB7CA0F20E06BFDC6C186E44900CB73E32F9D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Megadeth - Killing Is My Business...And Business Is Good - The Final Kill (1985)
 ```bash
 magnet:?xt=urn:btih:A259B228C294B7AD76A4224D31233F2A6ADAB622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Paul Kossoff
 ```bash
 magnet:?xt=urn:btih:71808ABA7E4BF5A579A37BB524B2A439DBDE90C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Warhammer: Dark Omen (1998) [Multi] (1.6) License GOG
 ```bash
 magnet:?xt=urn:btih:E8931202D5D6DD934C0B68AE600CE86D21076478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

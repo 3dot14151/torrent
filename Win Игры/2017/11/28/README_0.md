@@ -19,8 +19,7 @@ The Bureau: XCOM Declassified (2013) [Ru/En] (1.0.0.2177831/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:7EA4A010121AAA37968FA04DC780D907F6C2A423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Adam Waste (2017) [Ru/Multi] (1.0) License SKIDROW [Episode 1]
 ```bash
 magnet:?xt=urn:btih:8BA024E5B593A3EBB844682C636A66BCFCC34D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Styx: Master of Shadows — это игра в лазутчика с элеме�
 ```bash
 magnet:?xt=urn:btih:5E3ABD3F661BF5B1DD5C1FAEA994EE507D4281F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Various Artists - Любэ 35. Всё опять начинается. Триб�
 ```bash
 magnet:?xt=urn:btih:32216BC268F62215ADDFC4AD5B1D42B02C2D3F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

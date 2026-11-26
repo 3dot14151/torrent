@@ -21,8 +21,7 @@ Deform - Dominanta (2015) [MP3|320 кб/с]<Alternative, Gothic, Industrial>
 ```bash
 magnet:?xt=urn:btih:146191A8ADAEA70A9F5C701CF47B0618257C5246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54F5984BC0407103E1B2502C830AF3E6330D0310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Grieg - Lyric Pieces (Balzs Szokolay) Vol.1 (1995) [FLAC|image +.cue]<Classical,
 ```bash
 magnet:?xt=urn:btih:D483F20D3A3F601B5B70D46D5A3ACCD75C6E0B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ The V - Now Or Never (2015) [MP3|320 кб/с]<Hard Rock, Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:D75CB311738E36F5DBB1E0775105AB6AD89F8365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Spring Chillstep Sessions 2015 (2015) [FLAC|tracks|WEB-DL]<Chillout>
 ```bash
 magnet:?xt=urn:btih:BCE7C88E6ED947F73B8516A068062905BF2D0475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Sindy - Selfie (2015) [FLAC|tracks+.cue]<Pop, R&B>
 ```bash
 magnet:?xt=urn:btih:88D5B9551B9485AB438D88165624828DFC8EDC72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Vivaldi 1.0.231.3 Technical Preview [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7781D5F3F41A79B8135B356451798F2A763ABBAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F0EE47A11E7713389A46C13EEAB336AE1407809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:30595D9E39BA014C088E0C175C3471B4D4D943A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4554F3558584C72D6A00129A6CF74AFEDBADD2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E29F211F1EB4FA2D24DCA4355084B23E185D132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Naked Science (в пер с англ. "С точки зрения науки") �
 ```bash
 magnet:?xt=urn:btih:B212B08D77A2B20608E1804EFF443D00F2A7FF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46C358013C39B9D37B5F124E834358CD68EA8CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E9541BEC905037DCB3FC970D8C15A69CAB9761D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D17E32CBDAFEF509D1FF1C436D2866322038DBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ Firefox Developer Edition заменяет канал Aurora в процессе
 ```bash
 magnet:?xt=urn:btih:0D9313585E002D2C993E3B67BA5CCE7802BDEBBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 ```bash
 magnet:?xt=urn:btih:5CA80053724F9B095DF997C65DEF65F1F2ABA434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ Coolmuster Android Assistant 1.9.24 [En]
 ```bash
 magnet:?xt=urn:btih:F5E006B995229C529ED68919E2EB3F37415B2017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25B32A01069F39DC4B6E8595605058CD46A7EA46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:5C9A428172D32BEF900B3CB316177187DC0F58E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1046C5928B5B79E7BB118C3561AB0800C53ED395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ Opera Beta 31.0.1889.74 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7C78649949D7360E53B1D3C606873D4314BC4A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:570F672945C504DBF022A02D022992F931346556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ Disciple - Дискография (1995-2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:CE322D1CB1AD84D1A0100E50AAC4CFC8D0C5C606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ Password Depot Professional - рентабельный инструмент, у�
 ```bash
 magnet:?xt=urn:btih:18173D8CE254004511650A5CA53A55B5121A3D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

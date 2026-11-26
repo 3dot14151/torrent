@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D5F56BAAE71E19F1A9E08CF7C5246FE202A19B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AAB94841EC005AC1DFC6F4B2D9ED86DC4EA2205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC454DE8A743F74EC8B96431BB3B276BEA610454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Flying Colors - Third Degree (2019) 2CD Limited Edition [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:46384010F394F00B332C3E560F9A3C0967D54ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ```bash
 magnet:?xt=urn:btih:9A26A2DF2F6B587D4E223D07A6BFDCB65AD17B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ VA - Trance Escapades (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:620016135B9C1D80E759AC676E226C803A299CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Nick Cave & The Bad Seeds - Ghosteen (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie
 ```bash
 magnet:?xt=urn:btih:307B0611ED6901A3ECCA1B8FC7244E664410041E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB424F54580915EA628626B69F2AF728043E105D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFCBD70F9B5840A96C31EC2ED7661DFA20226673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFD982E0E3172985D3068E05125FDCBBB7EF6F8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Extreme Picture Finder - программа для автоматическог�
 ```bash
 magnet:?xt=urn:btih:26F84FBCF05D3ADA2126700901A570570A5910C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Reuel - Transformation (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:13C4212CF20C69A5A22F19AB4C2A900A328DF755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5373170D111241B0AACF0FC59713A276396A7022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7910A486F45C58CD50616B924089F4F8C19C5E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01FA066131A152D044DCF7C3FE72F03B6052A9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B88E2EB305D736360F907113CE93B76C73EB702A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ Artist Series - Taylor Davis - библиотека соло скрипки и �
 ```bash
 magnet:?xt=urn:btih:A0B05BA48DE491480A9517EE57FA46ECA8A3C13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B79AD1C74B9DC574CCB6188204ABDDD662B64996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0961263C1D6E78A3A65CA6FDE26B9F3A5AC40CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C65A21975FBB0144037CC6277FD214961B0C613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1964AE7782FF5A549F594EA60A268325AD58D782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:85477A5C5EC369EB2341B7E2085F0596FC3D3A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA8FC1940199C371B4BA845E8CE3C02D08BF0A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ UltimateDefrag - дефрагментатор и оптимизатор разм
 ```bash
 magnet:?xt=urn:btih:FE774DD6A125398ADB2898B303288FB53B880BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ Didier Marouani - Space Opera (1987) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:A6461BA6909F1BC7B7C1F5489FAAD58F54740346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FD771C6554641F2B7C06642E63C9F2938D55534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

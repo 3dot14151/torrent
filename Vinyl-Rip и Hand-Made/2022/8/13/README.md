@@ -22,8 +22,7 @@ Sixx:A.M. — американская супергруппа, основанн�
 ```bash
 magnet:?xt=urn:btih:0666DEDB59D17C5D16E425DC31F60F687E27FE00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

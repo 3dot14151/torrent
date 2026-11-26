@@ -18,8 +18,7 @@ Adobe Photoshop Lightroom CC 2014 (5.5) [Multi]
 ```bash
 magnet:?xt=urn:btih:D105D1C18A9DCC0D0B912BEF32332386479F3751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ VMware Workstation — известная программа для виртуа
 ```bash
 magnet:?xt=urn:btih:B06D14FD4C6919EC96B2431514C1F5110F8A3D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Adobe After Effects — популярная программа для реда�
 ```bash
 magnet:?xt=urn:btih:9E48E001686C80E213B06B9364E71F7179F8C49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ OnOne Perfect Photo Suite 8 — набор мощных приложений о�
 ```bash
 magnet:?xt=urn:btih:69C3DA72EB105DDE92DB005AFEE85D5932A42A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9CFE5B185230985CB28A9E057FA71278AC41422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 06.2014 [Ru]
 ```bash
 magnet:?xt=urn:btih:6F5EBC0C66AABD7A083783BFDAA3B0CD85B9D0A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

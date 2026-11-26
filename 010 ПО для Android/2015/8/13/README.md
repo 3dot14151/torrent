@@ -19,8 +19,7 @@ Viber – эта программа позволяет делать беспла
 ```bash
 magnet:?xt=urn:btih:951ECB250EE3409EFAC6B253571499EA5E425254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ VA - Trance Maniacs Party: Progressive Session #52 (2013) [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:41D81F2CF2D2EA356F577239B84376B0D704A04F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Trance Worldwide Vol. Three (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:06F133915272EF269B51262C65FFD6956857B80D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - 5ilk Digital Pres. Anniversary Essentials (2013) [MP3|320 кб/с]<House, P
 ```bash
 magnet:?xt=urn:btih:60DD81EC0DC7932E2196FE1CEC1C8EFD97AC6D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Life Stay Ground Trance (2013) [MP3|320 кб/с]<Progressive Trance, Trance
 ```bash
 magnet:?xt=urn:btih:5740E08BE4F90D325B29FACE5E41313BC0F5E643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Relaxing Chill, vol. 1 (2013) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:C5B3BEC8A16C6C719DDE44FE5943C5F6143121F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ VA - Hedonism House Vol.12 (Hedonistic House Tunes) (2013) [MP3|320 кб/с]<Hou
 ```bash
 magnet:?xt=urn:btih:9B53E5E00129FEFF35ED76D082D6000DC02B29B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ PC Magazine является одним из известнейших и авт�
 ```bash
 magnet:?xt=urn:btih:F87CFF36AC933BDDEB7251D5936F3AB61701052B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ VA - Longboat Key Chill (2013) [MP3|320 кб/с]<Downtempo, Electronic, Chill>
 ```bash
 magnet:?xt=urn:btih:B35DEB8FCE4E94065018F1DEA221F870502E2C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ VA - The Chill & Lounge Factor (2013) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:8764D968968A38522AC080DE750E898A27FAD627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB1DEE20279AEAD87448D1441E73C96737F4838F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C820486A68D35F494B1893B59CF68D98F590FDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ HoldTight – Lost & Found (2013) [MP3|320 Kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:BB3E96A83D0BB23A0EDE3D4ABEAB7A474A7D2C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ Them Bandits - Black Town (2013) [MP3|320 кб/с]<Alternative Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:D4237EA379DBCF8CC20B2318755FDC822E121EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:535E16087C58062F2A342F55C95E5D39154A3673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:3FC5381C4500A54C2F71ECE9739F086505C10E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ Frank Hannon - Six String Soldiers (2012) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:286DEA785511A0D81181B60A9015659131387BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +548,7 @@ VA - Муз Отрыв Осенний. Зарядись Хитами (2013) [MP3
 ```bash
 magnet:?xt=urn:btih:2493D45349BDD24B17D56DCB38490480D6121A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD7199694E8868AC3F06EE93CF39676F7D37BBB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ VA - Dubstep Essentials 2013 Vol.7 (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:34ED5CC50B99319932AD40834D7613F1DFAAC24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +641,7 @@ Emblem3 - Nothing To Lose (2013) [MP3|320 кб/с]<Pop, Pop-Rock, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:C07CCB98BDC246640117C3CBA31F7072D6AC9208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +675,7 @@ The Beauty Room - The Beauty Room II (2012) [MP3|320 кб/с]<Electronic, Jazz, 
 ```bash
 magnet:?xt=urn:btih:96A3960EAA3A33D337DA5AAF8371379F1B172CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +708,7 @@ Miss Blues - Bad Prospects (2009) [FLAC|Lossless]<Blues, Classic female blues>
 ```bash
 magnet:?xt=urn:btih:1E6A0CFD74F133004BF426E8040C8F004F8F0835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +767,7 @@ Schwarz & Funk - Diamonds of Lounge (2013) [MP3|320 кб/с]<Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:54D87F530381D7D0651BDFE65BDFE9739063E9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -817,8 +792,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:025DA4DD35C631052004862616D83D392F0A43AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

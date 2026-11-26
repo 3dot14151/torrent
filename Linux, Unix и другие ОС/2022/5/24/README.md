@@ -20,8 +20,7 @@ Xubuntu Custom 22.04 LTS с доп. пакетами [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:96B9BC2D879A2BC3214A35774286B997B8B4C225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

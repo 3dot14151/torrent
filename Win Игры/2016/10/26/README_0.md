@@ -19,8 +19,7 @@ The Purring Quest (2015) [Ru/Multi] (1.8) License DOGE
 ```bash
 magnet:?xt=urn:btih:4D3FDDBC89201152D5A97C6E1A020927B4928D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BLOCK'HOOD (2016) [En] (0.80.16) License GOG
 ```bash
 magnet:?xt=urn:btih:A46072E1CA2CDF1E3DF0094E2D78161873555C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Galak-Z: The Dimensional - это приключенческая аркадна�
 ```bash
 magnet:?xt=urn:btih:D01FB9BE6D9E501581B5EE2B205C9CA4493FD531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Man O' War: Corsair, просоленный морской экшен в зна�
 ```bash
 magnet:?xt=urn:btih:67CD17895C4C06699397AA79FC5A9E98C0FE396C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

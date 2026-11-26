@@ -21,8 +21,7 @@ VA - Суперхиты Дискотеки 90-х Vol.4 (2012) [OGG Vorbis|480 Kb
 ```bash
 magnet:?xt=urn:btih:9AB1FFEF7B38E800C7EDA59C9C1FAA67C868E115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:5CABC303219BBB27C31E499A13716FF8350D0DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88B83B4C77D70677B07E54D51BF2D48E9A6F6ABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE2AFB144945C24DF7DC8F58BC4EF13B233F5D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC5DDFD18906A2187E9A5F80E73038F7B32CA494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE5A9CF9BFAB697D980E880DDAE1F62F0CAB878E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ George Vondriska | Делайте качественные двери (2015) WEB
 ```bash
 magnet:?xt=urn:btih:63391119D19DEEB131F16CE57661A169B51251B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Sting - Radio 2 in the Park (2024) WEBRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:84D6CB20D9692BAEDA123E5C5A3900E58B88E42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38574661139C8300F0A376F65CCBCEB942794319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

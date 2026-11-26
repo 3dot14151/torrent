@@ -28,8 +28,7 @@ VA - Trance Pro V.27 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:2856D9218F5C29FA3EE789D0E6B50ED674C4A19A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:307A9361B4A5BAA201802903FA3E7F785DE4C1C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ DJ Nike Twist - TranceWave 060 @ GTI Radio (02.05.2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:DBB6DF8F38C9AD6B613F2844B0AC4CE9ECA588D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ VA - Весенняя волна хитов Vol .2 (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:50D0AD747DDBAB34EB2A4420367277993F14E96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Neurogrid - модель из миллиона искусственных ней
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4009EA96A20CC7C5E808A5DEE2BE42B8E2557446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ VA - Trance Pro V.26 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:D642031BA5E027747844711E7D358A804372CEB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ VA - DubStep Pro V.25 (2013) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:122785640326921C64BE1AFDACF25BD3580BF499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ VA - DubStep Pro V.26 (2013) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:FDB26355C80F320C3F8F5260903ACFF7A341AE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F71B85C481BA532AD2F25248AD2FCE2EAB8211ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Mark Selby - More Storms Comin' (2000) [WavPack|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AA9EDFD0ECF652275F22911E2E9B0898C2B3D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0021AF1AA4BA857CA197A3E308521A6BBE5AE03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ Glary Utilities – это функциональный набор систем�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D57E6F2F94A5C4577A7D5E7D803C40641CB24A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ NG: Побег. Серия №8 / Breakout (2012) IPTVRip
 ```bash
 magnet:?xt=urn:btih:5294BAF7CF32CCDC69C5D4090339ABB648F9764B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E5741B0856B25702E176DDDF70AC2E58E1E6DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ VA - Andy Duguid Presents - After Dark Sessions 100 (2013)
 ```bash
 magnet:?xt=urn:btih:C5AEBDD401FA9047A63DB867DB5FE2BB008AE4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2EE2B8CEE0849C051F339AEBF516273014B09A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48F4E3D94652F008419CC10D892D6444988E64CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFEEF44587055284B81BF025EF37E95EA64BC7A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +657,7 @@ VA - Maximum убойная клубная дискотека (2012) [MP3|64-320
 ```bash
 magnet:?xt=urn:btih:677DC5DCAEFE5F1E0AEF6146AB2954F92F7970CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ Bill Wyman - Stuff (2007) [WavPack|Lossless]<Rock, Rhythm and blues, Rock and Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ VA - Dance Playlist (2013) [MP3|246-320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:A2660644E26311C1A7B63C2B15E891116134B377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +752,7 @@ VA - Rock Chart (2013) [MP3|~122-257 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:4A543A955C693747B25B8E6985DB670B8BB2F7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

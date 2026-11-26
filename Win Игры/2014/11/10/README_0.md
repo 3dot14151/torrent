@@ -19,8 +19,7 @@ Hot Farm Africa (2012) [Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:6D33707DF8A94338E85450B798E9183115A7B79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) License PROPHET
 ```bash
 magnet:?xt=urn:btih:022B6C3311FF99CEEA78CD101A65E15068699D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Final Exam — это юмористический двухмерный плат
 ```bash
 magnet:?xt=urn:btih:E2C06AC28FD45F9B1C97ABF6E4AD9EDDB75369EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Red Johnson's Chronicles
 ```bash
 magnet:?xt=urn:btih:3E4E6C0203ACB57E921C08F147D121DD66AE7443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

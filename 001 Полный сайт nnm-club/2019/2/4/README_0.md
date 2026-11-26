@@ -21,8 +21,7 @@ VA - Winter Sensation (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:5E11CB872604BFBC0FD0974803C299B75DAA4D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Armin Van Buuren - A State of Trance 900 (Part 1) (2019) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:C71494309BF10B4E9DB0CB193E4EEAFC6FDD0C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:1F6B71943DCAE6475A1692883D51C2828C7A33F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8726F458832E7C0ACB97353BED5078A5054B5E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59F6AD3BE8093BE0C748C295E01C831B12B788A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:5D88FD183E0E0EDF034176CE6D3D6AD4E3125357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0714AFCAC46C7DC348C0A89D92507334A03EE0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:2E6A3C0D8B6C268DA979EE8A412DDCC73C9C27BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD545B44D5AD655D6B128C6D64F2B8B25D762227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ NGW: Прайд / Pride (2014) HDTV [H.264/1080i-LQ] (серии 1-2 из 2)
 ```bash
 magnet:?xt=urn:btih:E646D917F187C247463014CDF9601A9DD80C4F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F08D4CACA7693C745C384FE5049FAB4FE110ACC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Enchanted Kingdom 2: A Stranger's Venom / Зачарованное Короле�
 ```bash
 magnet:?xt=urn:btih:D6D153B73997F69778EAAC3C1920108DE65F0BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C233CB628A2F4100341FAEC29FEA72C4557ECEE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ VA - Громкие новинки месяца Vol.23 (2019) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:9EC5654773717F6CBF6965BA58B514CDAF44E5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:04F2D8FE4A338C8D9CBB822F3263DF9C0AABF397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Wise Data Recovery 4.12.214 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C377FE5F4CF1B95EB3D5877A9B86F24AEE95E3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ SMPlayer - мощный мультимедиа проигрыватель, ко�
 ```bash
 magnet:?xt=urn:btih:938754F16C0D395E63EFF08A1D7716E5B3272E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2766598E7518400A410811C1E054F5414C8692CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56647A5B16611F286208946521C7125E359C85CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ Wise Hotkey программа от известного разработчик�
 ```bash
 magnet:?xt=urn:btih:EC4DA2E4BAE53D576678AC8FCC432A8C9FAF7C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5867AD846D91E7A0EAB12E9730AC06DB409029D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Kauan - музыкальный проект из Челябинска. Прое�
 ```bash
 magnet:?xt=urn:btih:5C8F95D58EB8A3939D5132293A452C5A69B7B2E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:119107496FCE5A7313DD76DB400631B9495793CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7695BFF8A0CD953044442A2D9F5B4987583A83D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F216FF62E686556EC5586FB0466ACA9C8BBB0B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D02B4A9DD2F6F2EDDE2E03FE0E7EA90B8A168FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Braindeadz - Born From Damnation (2011) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5ECE3F7768D90DBD93F1C7BB1545EA097634B13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Armor Column - Maximum Collateral Damage (2011) [MP3|320 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:D8FD0582700DEE4F0084352CA883B05DFDC588DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Lapis Lazuli - A Loss Made Forever (2011) [MP3|320 kbps]<Symphonic Melodic Metal
 ```bash
 magnet:?xt=urn:btih:4E213624D1D503280F9710E8CF54D77CA4773BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ StoneLake - Marching On Timeless Tales (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:36056BF8098A70F406BA27977C60033275ECC835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ ReinXeed - 1912 (2011) [MP3|320 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:D1116818808EA6C0F6E10514504AE0B5CEDABD43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Panzer Princess - Get Off My Back (2011) [MP3|320 kbps]<Sleaze Glam>
 ```bash
 magnet:?xt=urn:btih:C25E4AC4B619292A9CF88176B0FBFE711F1B4541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Asgard - The Seal Of Madness (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:D95C7A396A05F744AA43D2750B4DBB5064B91C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Black Label Society - The Song Remains Not The Same (2011) [MP3|320 kbps]<Heavy 
 ```bash
 magnet:?xt=urn:btih:123D8931DB092F82BF4EFAAA05D42843B90DD67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ CG Bros - Жизнь За Зря (2011) [MP3|320 kbps]<Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:D3E9AEDB03E2EFAA52671C0793D0A6F9FFA20779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ FLAC (image + .cue)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

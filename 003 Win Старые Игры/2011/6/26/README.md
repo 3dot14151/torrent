@@ -19,8 +19,7 @@ Necromania: Trap of Darkness / Некромания: Сила Тьмы [Ru] (Rip
 ```bash
 magnet:?xt=urn:btih:F149F8080FD75BB56345E548A179886B94E2B01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

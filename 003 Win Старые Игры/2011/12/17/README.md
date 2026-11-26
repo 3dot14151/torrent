@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7E45946EC712CE7B7BAA0EAF71904508BD7FAEEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Redline [Ru] (Rip) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:F0A13F71A74550A41EB76630D309B2F0A81E8556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Space Hulk: Vengeance of the Blood Angels [En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:2AFE5BA5AD6FE32222CA135FA72684F605A3CA3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Valhalla Chronicles / Вальгалла [Ru] (RePack) 2002 | Pilotus
 ```bash
 magnet:?xt=urn:btih:2616B8DD3E656B3F14E146C44D1D29DCCB398FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Battle Realms — действие происходит в фэнтезийно�
 ```bash
 magnet:?xt=urn:btih:F38A7971C2AAB24F10E3415A121B677D673369D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

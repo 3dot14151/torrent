@@ -21,8 +21,7 @@ VA - Lost Dubs 2 (2018) Microfunk Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Ba
 ```bash
 magnet:?xt=urn:btih:048FF61BC1348F16C3240BE11B486FE8B70E4747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - German Top 40 DBC Deutsche Black Charts 15.02.2019 (2019) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:CCCDFAFA6725AB644155920943B208E9E6CD65AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Record Super Chart 574 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:13AA89FADCC37B6AEE023ED6BB0BDB9B92C1391E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Witches' Legacy 10: Covered By The Night (2017) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:C82EF63B2CDC54487D8C6B073893B16160E8469D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Herman Frank (ex-Accept) - Fight The Fear (2019) [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:332192E8DC3930D9CC45ADAA203865D20B7FB20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Detour Doom Project - Nothing Remains of Us (2016) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:4D757C576803B02880577BED6F418F0692F2A980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DD14319664B7CE560ABA866D8546894A4B7080A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A592FA2823C8AD419D2A9F5F750803AFEBC15A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CBADC63A533B78607F0C683F7F916AF53D27BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAB0868C68B4F911EDE447C02695BBE03937A5D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D5CBE37922117052592E684EBE2AD983DB0B188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:65E63F00BCFFF72DEC5C672817D4BC49E95AC4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ VA - Soulful Deep House (2019) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:0A4AB0F1D194C15BBE9653C681A19EC8CCC6ED1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65BE615404A1DE707A0F26BCD007CEFB2A784AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ A4 Every Day I Have The Blues(   Читать дальше...   )Жанр: Blues
 ```bash
 magnet:?xt=urn:btih:E6C83FEE1D77283C4544C18EAB51B708F7153E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE470C18F0BB83B7409051EAE9192002F812D704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ TunesKit Video Cutter 2.0.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:94C7C5ACF176F8CBF55430AAEE381D4AFE580133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:221ED4B484A8E56236976B0469871A2A2FE07FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:C4C6470A656D649C0C8AE917C5BD4C17EC0C79A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC49D21BD38E8DF38F490CE51130997DE8A915BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C262BF67273FB27C0C3B681FC4C087AC0B3B8F1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Master PDF Editor - это простая и удобная программа �
 ```bash
 magnet:?xt=urn:btih:F619DB9ADB1BEEEEF7843B9DA430A7D16F145835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15E9441A8E8C7109D65EA6DAFD849B0D2189B64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A845BE977AB7AA99EDA75875EA2F9B69B5127DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB9E0495BC98503A4A3755E4665C8F56BCF362B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EA0FDB755EE069DDD8DFF60460D14D276ED7E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

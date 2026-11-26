@@ -21,8 +21,7 @@ VA - Iboga Records - Set:26 (2017) [MP3|320 Kbps] <Psy-Trance, Psychedelic>
 ```bash
 magnet:?xt=urn:btih:6EDBDE9D4CB612BBE764D2D5275AF63CA7023BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DD0086243C6017F7C046A7F910424F1094844DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Vocal House Maniacs Vol.1 (2017) [MP3|320 Kbps] <House, Vocal House>
 ```bash
 magnet:?xt=urn:btih:624E9232BF7CF953B77DC5CD496E2BECAFC7DF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6B105B21962701EBD11EA040177331F4F1B7992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - 20 Best Of Ambient Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:67395865511EBD89FF110349EBD0F65D99E4847A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C480D14D9D4D585C376595033FE0965244839A4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:E86F91E21D8E364B4BDBD5019C06F18F0308DDE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Ancestral - Master Of Fate (2017) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:D92B6FB94E39D3ACF0692DD0D3E5FCC831110ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18C897110676411568314D262685878C5E003FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ VA - Arche Goa Vol.2: Die Psy-Trance Compilation (2017) [MP3|320 Kbps] <Psy-Tran
 ```bash
 magnet:?xt=urn:btih:83DD0B835142EA8452449FACEF3B1E2212E3B423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC1EB63464CF140D6355DD3A891B336267AE0BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11252352A332DB3697E4D949B0B5AADE3AB80527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4C36CD7D4B85952C80C48E1147BD8318CD52A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E312FF16864C8A08682950FD5679EBBF86FB7656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4486CE84043BF044244933D83B5AA1069925C0EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F78C69BA76704A40D1436CB525841A2C127BB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Tony Carey - The Boystown Tapes (1999) [FLAC|Lossless|image + .cue]<Classic Rock
 ```bash
 magnet:?xt=urn:btih:579E3D336BBD171A7331E9859611DBCDA4CF40B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ Judith Nijland - A Jazz Tribute To ABBA (2016) [FLAC|Lossless|WEB-DL|tracks + .c
 ```bash
 magnet:?xt=urn:btih:31E4DCEC41AB9E0F9342D2C0B8C8972EFB843679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C2737B6955DCFE18D945483C8A736FD61A5C3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ VA - Melodic Progressive House Vol.09 (2017) [MP3|320 Kbps] <House, Progressive 
 ```bash
 magnet:?xt=urn:btih:009652929FDF87281C904899D92EB5C9265553CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ VA - Зимний шансон топ 100. Сборник № 6 (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:4C0D88A43084E73C0B0539E1E247432EC95AE662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D5C576E9B2AD3BE8703D2896DCE9C780B38D882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2571D2CBBF01CC8AD74ED5997B95B8A514B4E270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04A6641D4BB2BD7DEB7B9D7EBE04F8AD132E10C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E20D1C859C887C874CA54879A399D785C755F1A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

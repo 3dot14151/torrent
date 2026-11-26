@@ -19,8 +19,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:AB6E12AE29E1122ADB0CBFFEAFEB402B0166FBEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Immortal Love 10: Polar Lights / Бессмертная любовь 10: Сев�
 ```bash
 magnet:?xt=urn:btih:81380443C449CE02408D71486E2F222045223E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystical Riddles 3: Ship From Beyond (2023) [Multi] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:7F09A67650C848F9419FD0C15175C23F5A163EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Threshold - Legends Of The Shires (2017) Limited 2CD Digipak [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:037AE1007DE8470A4014B1A83E79AA54857FA06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86E5D4A6448C7AEF13764847D94C05E929F593A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Amberian Dawn - Darkness of Eternity (2017) Limited Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:D3B0363E993FC431EBCF4B52C7FD4EEED8587B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Janis Joplin - The Television Broadcast Sessions 1968 -1970 (2017) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:E8BCFF72C7670E2B04F6A7EC31FF937038B29321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ The Rasmus - Dark Matters (2017) [FLAC|Lossless|image + .cue] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:FFE3897CD825B2D0855E2D288B8FF5C670A085E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

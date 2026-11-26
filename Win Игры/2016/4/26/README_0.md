@@ -19,8 +19,7 @@ Halcyon 6: Starbase Commander - это приключенческая ролев
 ```bash
 magnet:?xt=urn:btih:DFC71E8F16179CD6A7518541563FC79C82E773B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ My Night Job (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A3442E77FF89854AF7E8073E24B70D614402F6AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Oil Enterprise (2016) [Ru/Multi] (1.03) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A1F27A2A25907031998156E959F019B3DF838CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Demons with Shotguns - кровавый шутер для 1-4 человек с 
 ```bash
 magnet:?xt=urn:btih:14E211D32A299D4B92DC2B4DCF22D161A6833A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Judgment: Apocalypse Survival Simulation - стильная survival-песоч�
 ```bash
 magnet:?xt=urn:btih:2A77E605719FED5D1F03B97F2DEEF43892834861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

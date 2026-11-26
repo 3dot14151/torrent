@@ -19,8 +19,7 @@ Young Animal (яп. ヤングアニマル) (yangu animaru) — японский 
 ```bash
 magnet:?xt=urn:btih:B9AE84B30142714AA18A7E06AB37CB3C167E5A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

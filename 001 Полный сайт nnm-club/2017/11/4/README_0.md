@@ -21,8 +21,7 @@ VA - Goa Trance Vol.35 (2017) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:6CA4EFA40BC21893296214E91FB107F6FC961FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ DockShelf: функциональная замена док-панели (Mac)
 ```bash
 magnet:?xt=urn:btih:94C10BEE6F7F870B93CEC49182F41C5BB9AFEBB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52030886B606E2D255FED02D9BAE0676893507F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Destruction - Thrash Anthems II (2017) [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:8562E0370E9CE8DEBB59395CD8DE43A26841D823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ The Universal Robot Band - американская музыкальная гр�
 ```bash
 magnet:?xt=urn:btih:5BE2F4F97F563FD97BD6D0EDE201E0CC088469B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EE033BB2AB0A11087E540E72619922441E1C7AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B98F2F23529EB6E9A0AC46A3D42733F7A9F6FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B0DDAAF449602931FE6D1BD9456858418D9527C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3273EC48A2B31DCA2EF90EE9CF0638DD52B8C1AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Gestimer красивое приложение для вашего (   Чита
 ```bash
 magnet:?xt=urn:btih:C3B9AA60E0B3E9BA763783CC57C1A4C46E4082F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:328EE3974440E424B70BD8E279D9EA16C1AD2343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FE91E9A555C64D7C3973F74EDBE5D45541B018D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Total Audio Converter - мощный конвертор всех музыкал�
 ```bash
 magnet:?xt=urn:btih:46743AA5CA35B7F0669B3010D501444537072536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A8D0AB3195586C01D5E453B551B3F9AD89E22C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB8F484A8D36C7DB55C1F3500F40E71FE4CA4AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EB16346096D3AA9B4A483F86C7FE5FF0370B7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ Copy'em Paste - ненавязчивое и мощное приложение, �
 ```bash
 magnet:?xt=urn:btih:A80F1EF4908A59A12502456E49F6AFBBECB5E530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:0C014DE0AF6C0174D33C68214BFCA4A7CC7CC6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 004 (2017) [M
 ```bash
 magnet:?xt=urn:btih:CFA8FFBE8177908EFABCFB139DF5208855012D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 008 (2017) [M
 ```bash
 magnet:?xt=urn:btih:B31C85F33FC3C2BA13656CDB136B92A6851BDF37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Samantha Fish - Belle Of The West (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern B
 ```bash
 magnet:?xt=urn:btih:F799CE26AFF5A0BA907159C836A0FDEFE7A50123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C8A2E575812F0E4ECC5A96C38F162983D55B9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5061D80CC5C4ED8CD75B7FF85AE9C8A0BFCD8EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ VA - 150 Dubstep Miscellany (2017) [MP3|320 Kbps] <Dubstep, Electro>
 ```bash
 magnet:?xt=urn:btih:21EC1447B876029BB89F3425B65D68DADCA89303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ Outlook имеет свой собственный формат файлов. Е
 ```bash
 magnet:?xt=urn:btih:C4208BD5D24EE4A6EFA8B8EB48D57F01A2FA5592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 007 (2017) [M
 ```bash
 magnet:?xt=urn:btih:5CE4E9B6C86E3AE50F4A2090F3AF33D98EF995BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

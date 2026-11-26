@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C69CE55590D6FC2AF4DC0E8E069CB4D5EA029B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72A119EBC97AF2C2E55D4373BFC3F79FAD079119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - 50 Perfect Summer Party Hits (2016) [MP3|263~320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:61CD193A86238BDA1A84F518FC837ABFCF7F0F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ aus - Discography 10 Releases (2004-2013) [FLAC|Lossless|tracks+.cue] <IDM, Down
 ```bash
 magnet:?xt=urn:btih:6AF2F235F8BFB3A0BE06AB37E8B1442BFF659F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Gotthard - Domino Effect (LTD Tour Edition) (2007) 2CD Limited Edition [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:F14C3144D5BC88C8B885C187CFDFCAB729142BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Roosevelt - Roosevelt (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:7E4AC8A854B58D369C2D9DCE4FFEE596ED003FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Kizomba All Stars (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
 ```bash
 magnet:?xt=urn:btih:720B19DEC01BBCD47991F6ED30A748155E3D8D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Matthew Florianz - Collection 6 Releases (2001-2016) [FLAC|Lossless|16/24Bit|tra
 ```bash
 magnet:?xt=urn:btih:9922DB34AFD78A2A52E4146074ED73E3F06DD135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BC5DFF4A8E9B1E9F3D9772BBC21CB17BF6DB3C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - Phenomena (1985/1997) 2CD [MP3|320 Kbps] <OST>
 ```bash
 magnet:?xt=urn:btih:A5A5231D247AA17CED7DA0AF0AADDE53AA300637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Herman's Hermits - The Best Of Herman's Hermits (2015) [MP3|320 Kbps] <Rock, Bea
 ```bash
 magnet:?xt=urn:btih:5213F1853547ADB2E08A2C938854EBBCD44E0F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Giovani Leoni 1 - Nirvana (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:8C92BFE415C3B315516B8575FD8904EA94AD54D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6CDACEE94C82E332930EDCF1A0D6A48FEBA7643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Nova Fractal - Fractal Landscape Remixes (2016) [FLAC|Lossless|tracks + .cue] <G
 ```bash
 magnet:?xt=urn:btih:AFB6358769B12C95DD194850E0C8E92B20888B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DC5AE7ED9F98831D78F745FD9C25200FD48AFEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3E3A45ADB800FBFA41C8889707A7F87D8A7A87D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ FireStream - один из передовых UPnP / DLNA медиа-серве�
 ```bash
 magnet:?xt=urn:btih:EDD6F1C3312FD50FF99F8E63D2ACB270AAE8982C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ Plisterine - программа, которая дает возможность 
 ```bash
 magnet:?xt=urn:btih:5850F73E2E59B0CD2C8626FA32941703396CFE19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30665EC85342889528CA87FDF7C68421A3EC9B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33F72CF9B3A6FA2341E45226658FF0FA18B9265E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E99B22CBF7E4EEC11DFCC3751F62262E98C51CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E15EFC3B09A19FBC3DB71850AABBE2CAFD22A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4826292C1D8E02DFDFEB085E7E29DD7136FCC0B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ Tracy Chapman - Greatest Hits (2015) Compilation (Remastered)[MP3|320 Kbps] <Blu
 ```bash
 magnet:?xt=urn:btih:57ECDE1F2B6DA5130DCFA5232E755422FE1906A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

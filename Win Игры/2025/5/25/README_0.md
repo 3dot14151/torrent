@@ -19,8 +19,7 @@ Gunsmith Simulator, как понятно из названия, являетс�
 ```bash
 magnet:?xt=urn:btih:32F273DB6F779F0F6D67BC11EB6E4BEA40CFDAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:00E3A85B6B4C832A708663491790DAAFD13396D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl [Su
 ```bash
 magnet:?xt=urn:btih:D2A36B3613AE6AEF7E782887577B31726C60C6E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ARMORED CORE VI FIRES OF RUBICON (2023) [Ru/Multi] (1.09.1/dlc) Scene Tenoke [De
 ```bash
 magnet:?xt=urn:btih:EFB436741F26224B6CB5CCEA177F18B0E0D2F916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:593CCB3D36FBE01A065CB052A4F4E483D47ADDE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fable Anniversary - это ремейк одной из самых продав�
 ```bash
 magnet:?xt=urn:btih:FA1D1F0B9A6E946EE39B25F9A361763F97791DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Deliver At All Costs - симулятор курьера, позволяющий
 ```bash
 magnet:?xt=urn:btih:CA75734BCC7A92A10E4DDDD965C4910AFF1DBE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dragon Ball Xenoverse 2 (Драгон Болл Ксеаунтс 2) – это п
 ```bash
 magnet:?xt=urn:btih:2AE6DD72D5226C4610A457491B49B99DEDFBBFF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack FitGirl [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:5748A060A6CE55DFD3B48168125A05B7143036FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Last Hero of Nostalgaia - сатирический приключенчес�
 ```bash
 magnet:?xt=urn:btih:7C4881A68255E135BACB39766DC4CD8647BAE420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ DRAGON QUEST III HD-2D Remake - это потрясающая реинкарна
 ```bash
 magnet:?xt=urn:btih:E794B080930CB823F7D7EF1EDDECAA6FA3BC6FAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.14/dlc) Repack Let'sРlay [Advance
 ```bash
 magnet:?xt=urn:btih:42429F8360D38D6230FCF870F39D91C2D7B3874C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Deliver At All Costs - симулятор курьера, позволяющий
 ```bash
 magnet:?xt=urn:btih:A17A31362057F7201A7A2DB6E280730C856C5DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Synergy – это градостроительный симулятор в су
 ```bash
 magnet:?xt=urn:btih:FF79C0404148BE6780CD168615AA42C113FE39E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Dance With Me(   Читать дальше...   )Жанр: Pop, Pop RockПр�
 ```bash
 magnet:?xt=urn:btih:2E03226C41056FEB0CB904CFB334615685CA32D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Poet and Peasant (Suppe)(   Читать дальше...   )Жанр: Classic
 ```bash
 magnet:?xt=urn:btih:66DAF80379FA5C28AD7548BBFE7D03219D9E6E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Don Juan/Yira Yira(   Читать дальше...   )Жанр: Latin, Jazz, 
 ```bash
 magnet:?xt=urn:btih:5279328D692FF53B1057A0E3BF3C053F93BE3F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Gottfried Bammes | Видеть и понимать/Sehen und Verstehen [1985] [
 ```bash
 magnet:?xt=urn:btih:2A4EEB66941CA068465AD88CAEC379FDB59AA469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65A3B0D14C06FB4D601C8C73139C8F79657F8F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

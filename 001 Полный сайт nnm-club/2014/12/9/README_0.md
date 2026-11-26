@@ -27,8 +27,7 @@ VA - Cafe Shanghai  2CD (2008) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:55A473B4192EE0FCC95FDA6BCE4F1DCBB8E3C055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CAB562D8FB238E0DBA27BFD74D74AFAF0A76113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ VA - Vocal Trance Temptation Volume 38 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:86AEB4D4410E6DAF829B149BCCEAA3F87196202A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7820D5A99A67B31B0473695163400B84DC4C4D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:772A2949BCEDB5DBB90D6D607D0CA9FD0413A634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9765F0B8D3D7312BF4A19BAC846C45386022957C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ VA - 80s Investigation (2014) [MP3|320 кб/с]<ChillOut, Dubstep, Breaks>
 ```bash
 magnet:?xt=urn:btih:56B8A01B8F636C46612D9068AE43141DC37E9CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E644CAFDC45394911C9AA96E755A1C69472C2B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Seamless Recordings 10th Anniversary (2014) [MP3|320 кб/с]<Electronic, D
 ```bash
 magnet:?xt=urn:btih:9C763266CD6971045E827C7A275305FF9F88640E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ Ray Volpe - Lion Remix (2014) EP [MP3|320 кб/с]<Trap, Dubstep, Drumstep, Glit
 ```bash
 magnet:?xt=urn:btih:08B7039622A92FE3CBDBB5D2007B5223B8163519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ Giant - It Takes Two + Giant Live! (1990) [FLAC|Lossless]<AOR>
 ```bash
 magnet:?xt=urn:btih:6D3323B5DC2498FE14533F9C2BA9202E1C02B911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:970DF7E4C8F15CB4AB4194AEE1A4622BC478875A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:809D63F87CE4DAD8A4FE07E2BE241D3A5B16B704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:C6092BC9946525B2074278765C21C9F6A55F1DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Save - Sentenced to Death (2014) [MP3|320 кб/с]<Modern Groove Metal>
 ```bash
 magnet:?xt=urn:btih:31A97F6FE2251A83B72703CCF2FB4AC749917B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +476,7 @@ CD1 - Cavalier
 ```bash
 magnet:?xt=urn:btih:E6B333EBD1FE1924E449D0EB93C8717B6A63F92A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D05C505B699115EC12BDD4DD5725AC42DEAA86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ Lars Erik Fjøsne, Arslan Qureshi & Mike Hillard - End of the Line Soundtrack (2
 ```bash
 magnet:?xt=urn:btih:6C4738775B281B69FF4E1BC6DB32B0D53AB81EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87DAAD129A7759EF7DD4E2880C691D97C9B5573B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AD97FE9909F2EE4B416E08D6BDA5EAB9AD8010A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +617,7 @@ VA - Harmonica Blues Benders (2014) [MP3|320 кб/с]<Modern Electric Blues, Chi
 ```bash
 magnet:?xt=urn:btih:ECCA8077371BCDEFA655EE0962F50A7DE846134D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ Pusha T - My Name Is My Name (2013) Explicit Version [FLAC|Lossless] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:57D7506DF6804CA9B393408BA8B7061B14A93394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ VA - Cafe del Jazz (2014) [MP3|320 кб/с]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:6245F444EB8B4AD8D57CA351F3B1921FCA54052B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +719,7 @@ Giant - III (2001) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5D8B4BF6D0C0B5C9489A305A43486A875B1E37EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ Hybrid Minds - Mountains (Remixed) (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:54F141909E0B73EEB86843C4219F207AF8130721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

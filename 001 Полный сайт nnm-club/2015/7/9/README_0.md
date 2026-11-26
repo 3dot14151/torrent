@@ -18,8 +18,7 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:569D767BCE9F6C2B4CB602C47F038B620174E77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ronnie Montrose - Music From Here (1994)/2014/ [OGG|481-538 кб/с]<Classic Har
 ```bash
 magnet:?xt=urn:btih:A95ADAD4985706EA8A33A1FAD651B38C33BB11F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD51F9FA5984375635867A4520D85BE81117E78D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Box предоставляет 10 ГБ под хранение данных и 1
 ```bash
 magnet:?xt=urn:btih:BFA4BF3A154130247D0CA30D0C6FCD4E79D5756C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:110F95B7E9703AB2EB6529BE2BE21DC13E18F183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:158024AA8F3D260888E8FF6475EA7A51E8915D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0E3730036F8528C0CBF7855BFDDF45D42F64B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Stefan Torto - The Forbidden Journey (2015) [FLAC|Lossless|WEB-DL]<Psybient, Dow
 ```bash
 magnet:?xt=urn:btih:75477D16ADA7370BBB318B3F0D4F576C17B83754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA442B0054ABBAC548897A70040CFBBDEC4C7AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ QQ Browser 9.0 версии - это современный и удобный б
 ```bash
 magnet:?xt=urn:btih:FE3D4F96D71657FF420F8796C8E976594C76A8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Debauchery - Fuck Humanity (2015) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:F1DBC3D9B6250F83891DBD3C2D10B92D0B495DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:A65F87873354B5EDFFB027D5EAB7EF6DA18C3EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE6FAAB2CF7DCEC3D55DC1526BFBDD13E81FBCB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76372BCAA832E7FAA5BF41A60E578184EF0599EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F47F7D23B956415AB7F693CDF511A80ABBEC700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Smurfs Village v1.6.0a [En]
 ```bash
 magnet:?xt=urn:btih:9A0C4A0BEA15485AB2FB0B49323388BE212DDCD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Torch Browser - браузер на платформе Chromium с расшир�
 ```bash
 magnet:?xt=urn:btih:EBF02294E368C7328B22AECBD63B71F85AA14DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ VA - Heart Rock - Rock Fur's Herz vol. 5 (1993) 2CD[FLAC|tracks + .cue]<Rock, So
 ```bash
 magnet:?xt=urn:btih:9CEB65D35288C8A3927C94CC828B3C952E2D2187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0048C178769B3D70362C920F3B48204378102637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ James Brown - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk>
 ```bash
 magnet:?xt=urn:btih:5FF7896547AE1E3C8135414E6482E0E2F964FE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02E7A04ABF42790E4F698776FB0FF4E83BF51F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE95CA63360CF88F120ADEAD24FEF5F0E30151BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ CD1 (The Hits):
 ```bash
 magnet:?xt=urn:btih:76EDA63B99658E9356F13521AD149998AFFCF8AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ Vivaldi разрабатывается большой командой разр�
 ```bash
 magnet:?xt=urn:btih:44C30B14604D514C8D0E914B5295A3E242FDF26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D54EECBAE5DEB275537698FF235285997B46D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

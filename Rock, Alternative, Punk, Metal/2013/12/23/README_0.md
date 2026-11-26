@@ -28,8 +28,7 @@ Evertale - Of Dragons And Elves (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9400633E906B1DFB6055EF0C1E637342EAC80564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Winter In Eden - Echoes Of Betrayal (2012) [FLAC|Lossless]<Symphonic Gothic Meta
 ```bash
 magnet:?xt=urn:btih:E0815400F998A03FFA5DC73E402B39714AC7D3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Boyce Avenue - New Acoustic Sessions, Vol. 4 (2012) [MP3|160-192 кб/с]<Acoust
 ```bash
 magnet:?xt=urn:btih:A9A12E9A32E83612C049DB82DBD4051ECE14B875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Asphyx - Death... The Brutal Way (2009) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:09218DEBF52CCD711EAFB610F6A9E975CB88517A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05164A2166C27E6B695EE425AF4FFAD3216FCA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Monster Truck - Furiosity (2013) [FLAC|Lossless]<Hard Rock/Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:FABFA6FCA949C1FED2E36DE05FC95C0375DE119C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Schubert In Rock - Schubert In Rock (2013)[FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EAE8C7B8906891D0F288A42E514B91C7C2AC204C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

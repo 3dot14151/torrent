@@ -22,8 +22,7 @@ U.D.O. (UDO) - Mean Machine (1988), RCA [FLAC 2.0|192/24|image + cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:3B248EEA22ABE092461027C53F75E2B6AEFC4DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

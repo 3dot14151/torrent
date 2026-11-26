@@ -22,8 +22,7 @@ Brief Respite - Lullaby to the Moon (2005) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:7ED8E574DD6E5EE5D0FEF845C2DC3D145A86D92C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ David Eugene Edwards & Alexander Hacke - Risha (2018) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:0699430F4950691F1FDEE338AD6619B211AAE042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

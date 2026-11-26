@@ -19,8 +19,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.17.38829.471) Scene FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:7BFA5F3F55C9AA457BA60879EE092DBE9B1CA5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Return (2023) [En] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:841ABC44B556479F54766EE883F9A767813269DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

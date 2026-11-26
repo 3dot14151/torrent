@@ -28,8 +28,7 @@ My Dying Bride - A Map Of All Our Failures (Limited Edition) (2012) [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Tango Down - 3 альбома (2005-2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5B40D096D4A9AA11F228EE0A117CBFF039C59A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Vixen - Vixen (1988) [WavPack|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +131,7 @@ The Beach Boys - Fifty Big Ones: Greatest Hits (2012) [FLAC|Lossless]<Pop/Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

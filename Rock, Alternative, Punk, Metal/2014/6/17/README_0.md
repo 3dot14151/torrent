@@ -28,8 +28,7 @@ MonaLisa Twins - Play Beatles & More (2014) [MP3|320 кб/с]<Rock, Rock 'n' Rol
 ```bash
 magnet:?xt=urn:btih:1D58E67D9F3FB1B308C27B3EC1CC9795DD1EFC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

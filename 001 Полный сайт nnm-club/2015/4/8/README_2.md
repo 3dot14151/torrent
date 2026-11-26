@@ -18,8 +18,7 @@ Opera 28.0.1750.51 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6FA270FDBF1BE6F62DDCD265F7E7839ECA8C8609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24C05524BCA4DF413B9490D556F6BA296BDCD893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EADF55C35C9F46D2E2FCE821E6F417CA97660BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:388A35561C8CFA6EE712416CDE216B00B446026E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F0337086BD344A361E2AA59C5BE29A931315878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2B8AA84CC9AA7F3AF9E55EE85402A17B96CCA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27C76C89D712AF89A85DF69F9241BEAB251305DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AE405D188C685DC3375A0C47C74212894CEA8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Last Knight — это захватывающий рыцарский экшен,
 ```bash
 magnet:?xt=urn:btih:07C71016F4AF21B17B146E4A5BB65DAFC98D367C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6EEAEA250D07AE716CC417AFF96D5AF8A70D7EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5CE25CBFB4BD2B43884341990CDFA837B1474B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Mc Doni feat. Натали - Ты такой (2015) HDTVRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:0365D1B7732228F9AC5579773FEAA5D3648D3F73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:972813E1376FF81943FADDFBE59AC976BE879076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E21E727507A1281144476F1DFA82BA17C6A59B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:A09011F96977A436891C065DEDBF9D817F59DE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ D-Frag! / D-Fragments / Ди-Фраг [2014, TV, 12] BDrip 1080p Hi10p raw
 ```bash
 magnet:?xt=urn:btih:BB2FB193FCDF6DA8E5B60C7284B9D1917339F088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A555700F382D80B517C7A8DB0E95167FFA16CFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ uTorrent Pro 3.4.3 Build 39944 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D5B105DA1AA8E6133DF6E769C23D88614A1D4DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ Logoist  - Мощный графический редактор, который 
 ```bash
 magnet:?xt=urn:btih:E6D0E140BE760D39E00FEE4954519545EFA8F65F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C65422F2B82AC6CAEAFBFB7946B0BDB345652E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:2A373E289C75C69E6AC9B9D5717E13301D012311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ The Prodigy - The Day Is My Enemy (2015) Japanese Edition [FLAC|Lossless]<Breakb
 ```bash
 magnet:?xt=urn:btih:54409D23187DBA5EF323DA47125AE0EF829F9EC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ Junketsu no Maria | Непорочная Мария [2015, TV, 12 эп.] HDTV 72
 ```bash
 magnet:?xt=urn:btih:81DB8613C3FF41296041A5EBCD181631EDDE2E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BA5E5241E5371CB7A67B50EA8B24B3190059293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D91A57B32326ACEBC079F22394085A90B059136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

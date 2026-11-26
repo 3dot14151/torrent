@@ -19,8 +19,7 @@ MAX Desktop 26.7.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:2529FAE7E540F6A34652D5F873CE28A80786A83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Process Explorer это расширенная утилита управлени
 ```bash
 magnet:?xt=urn:btih:199995F4BDCA4CB61B392DE63B4C0926D09C272C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:188707A28E705CE12D1FB35AC2890764D8432D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Quick CPU — это приложение, разработанное для т�
 ```bash
 magnet:?xt=urn:btih:E98B257CD3652C3C3BD3BC5B710547A4525BE677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ pdfFactory Pro - удобное приложение, представляюще
 ```bash
 magnet:?xt=urn:btih:847ACE155CA8C4EE3A594CB72B6B3C1D5FAC30F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:2BB609158E3EDF612ED607C009C4849D3B279ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Acronis True Image WD Edition - бесплатная версия програм
 ```bash
 magnet:?xt=urn:btih:90323A7A5C2F74EBF9BA14A70BC7ED2E5D5D0434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор програ�
 ```bash
 magnet:?xt=urn:btih:56600FC56AE0E2E07CDD5D943466F7688F648433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Process Explorer - это расширенная утилита управлен
 ```bash
 magnet:?xt=urn:btih:DCEE6DA544D96C7274CA9F5AFFF628A54E2DF961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Q-Dir - это отличный альтернативный файловый м
 ```bash
 magnet:?xt=urn:btih:78BF30D20198A00DDBC8CB2141A84BD1AA1123CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 ```bash
 magnet:?xt=urn:btih:C729C83AEC5662A9BCA1EE8D4280E5F5A5B81AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ HyperSnap 9 - это самый быстрый и простой способ д
 ```bash
 magnet:?xt=urn:btih:8BAA250F48FCBFE9FD5DAB59567CE036C47D032D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:528B1B372E6D3CBEC0EFCFC66DE0243146BF4011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Atlantis Word Processor 5.0.1.4 Repack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E763BFCF84D54EA0F55AD9E185C08DE27026E8C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

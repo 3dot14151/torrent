@@ -22,8 +22,7 @@ The King Must Die - Murder All Doubt (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:0067894AFBB034DFD8507214C4C7CEC3D71996E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Beatray - A Ship's Call (2016) [MP3|320 кб/с] <Power Metal ,Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:436FDC37707FEDF7186684DF3662CA1E93C9E6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Evil Masquerade - The Outcast Hall of Fame (2016) [MP3|320 кб/с] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:136AE7955CBBE6B0C5808553B525071F47580725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dakesis - The New Dawn (2016) [MP3|320 кб/с] <Progressive, Power Metal, Femal
 ```bash
 magnet:?xt=urn:btih:8CED43E5C4F9002CEC535F453CDF5C0F269EE89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Daevid Allen -  Les Genies du Rock - Banana Moon (1993) [MP3|320 кб/с] <Rock,
 ```bash
 magnet:?xt=urn:btih:D31BA99442F9C60D1F198121A98B53520A7E1F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

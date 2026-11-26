@@ -19,8 +19,7 @@ NCH Express Invoice Plus 9.17 [En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ PatterNodes - хорошо продуманный и настраиваемый 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Magic Sort List поставляется с нашим революционны�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VA - Chill Horizons, Vol. 3 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Chill Horizons, Vol. 2 (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Valentina Studio - это идеальный инструмент управле
 ```bash
 magnet:?xt=urn:btih:90D5F9907038C070721E747A91FAE56DA759D5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:C4F7E3C37CF3D3B9576D0136F0AF5BB4B4448182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Artstudio Pro 4.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:212E716745B5CD234C91099E637A8B396CC80BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ VA - Chill Horizons, Vol. 1 (2020) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:8807DB4D27806C7E0F76098519F42CF2F3FF8474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Marga Sol - Mandala (Oriental World Lounge Vibes) (2017) [AAC|~342 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:E114BEE94A04E41872DBEF46CC513509AAA3DDEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Johnny Hodges And His Orchestra - Perdido & Creamy (1955) 2010, Fresh Sound Reco
 ```bash
 magnet:?xt=urn:btih:CBD4FC954F798BA6370AA3D2086C7336F7A0434F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ VA - Think Deep, Vol. 1 (Deluxe Chill House & Atmospheric Deep House Music) (202
 ```bash
 magnet:?xt=urn:btih:930F903786630173D09B2F3864DD7042C571CE62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ App Icon Generator 1.4 [En]
 ```bash
 magnet:?xt=urn:btih:B99E94ED336063B67C1207298CCC5C307512583F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ VA - Buddha Gold, Vol. 2 - The Finest in Mystic Bar Music (2018) [AAC|~332 Kbps]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Cirith Ungol - Half Past Human (2021) EP [FLAC|Lossless|image + .cue] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:9A36A7A02E41F100E906BBEF67CD27F925E6E34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:156BA9245C30F4A51A93665C1CC0F38D7E3F896D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ Touch - Tomorrow Never Comes (2021) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 ```bash
 magnet:?xt=urn:btih:41AB9F57833CCA6AFA37444758D9887D0EE377BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:E7A391D0C4B75E6BA88E84DFBA928E175C680195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Mix Up Studio — это портативная студия для создан
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ VA - Buddha Gold, Vol. 3 - The Finest in Mystic Bar Music (2019) [AAC|~333 Kbps]
 ```bash
 magnet:?xt=urn:btih:C978775CCFB74148062DFAA60692AF68BE3C8B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Typora дает вам безупречный опыт как читателя, 
 ```bash
 magnet:?xt=urn:btih:F9DC8FBA7F9CA4BAAA414E5F1E0EF39B809629D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ Overland - Scandalous (2020) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ VA - Buddha Gold, Vol. 4 - The Finest in Mystic Bar Music (2020) [AAC|~325 Kbps]
 ```bash
 magnet:?xt=urn:btih:6490984299E96268E8C76491B4896C1371A831A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ Timecode — самый привлекательный калькулятор т
 ```bash
 magnet:?xt=urn:btih:DC18BDAE1B3E6B5E13B18257E608779FD100ADA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ Cisdem DVD Burner предлагает простое и элегантное р
 ```bash
 magnet:?xt=urn:btih:4494F90A3134C129EBEF510B24D45041D1C78715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ W&W - Rave Culture Live 003 (2022-02-12) [MP3|320 Kbps] <Big Room, Hard Dance>
 ```bash
 magnet:?xt=urn:btih:8A482C2CC508BEF3BA998567F4854893327FD442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

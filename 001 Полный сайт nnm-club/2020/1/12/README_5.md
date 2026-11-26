@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:74964F0CC7F910E6A3B1CC5F3A45E0F5096783A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DA56C29F512D51587B448AABC243B03830F9E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:725DEA0078B18B28E4EBF1B442C53B6C89C7C602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark Fall: Ghost Vigil (2020) [En] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:6C10048F2B2956EA78274293051B0E026C5CCF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBD2CB59D25CF0FEC99FDF0EE4D9EE8990C3238A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6D82D2213BF7AE9C5963A4F12E9FFC239C9A940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DA914990135175CDD27BDAFD6141684143CD055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B3A78BAD6950013BF41074117D13CBEB371F43B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Kodachi Linux 6.2 [анонимный доступ в сети] [08.26.2019] [am
 ```bash
 magnet:?xt=urn:btih:A3189CC9DBE444AF9A88018F54B656B381AC1ACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59582CA33579FBB80837AE2C5729E6D5086FB6EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DCC386F834984CC380478CFB9E835DD9A82B1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Seven – 7 минутные тренировки. Упражнения для �
 ```bash
 magnet:?xt=urn:btih:266DF3844751538A7DE459FFFEA71B25DD33FF1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65C7AA1A08B6280BD8294AFCAFC535739392EE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip Other s [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:C2DCE93EA0FB16298DF356BC95A3DC453795D5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E298444B70BE74376FF1E3795C04E55670CEEBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 ```bash
 magnet:?xt=urn:btih:E8D71685A21631128857CE89BF111935F43C739F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ Torrent File Editor 0.3.17 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E32F4516D2AC151EE6DEE1F3333566E39C39B12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F083B24DBB4F52B8947AE19DACBC57AD95BF0049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +471,7 @@ Girls' civilization (2020) [Multi] (4552555) Repack Nikita1358
 ```bash
 magnet:?xt=urn:btih:9C852777244F2CC599B5FAB037221C889D9FD324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ Parallels Desktop (   Читать дальше...   )Тип издания: ma
 ```bash
 magnet:?xt=urn:btih:98AB41BAFB8570EB6AC62D804640B0EDFAA43FB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AACDB80326C1BE1412D1C468F7D4B53C4A3184A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

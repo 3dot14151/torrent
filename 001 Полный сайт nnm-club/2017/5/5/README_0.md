@@ -21,8 +21,7 @@ VA - Хитовая весна на Europa Plus (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2BDCAAE56A74EDF69701BCBEA661163EF74279AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Aiseesoft Video Downloader - это профессиональный загру�
 ```bash
 magnet:?xt=urn:btih:49BCFB03DC9A0456ACE2962C23577EC5BAF22E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Топовая сотня весенняя от Хит FM выпуск № 
 ```bash
 magnet:?xt=urn:btih:375D9033E0F2D84287F171F96DD040C364039F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Jim Beckwith and Hans Christian - Be Love (2017) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:90824202E9EDD076ACCBA249B2464D5064726E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Andrew Rayel - Moments (2017) [MP3|320 Kbps] <Trance, Progressive Trance,House>
 ```bash
 magnet:?xt=urn:btih:CB3EC7BCCDA6B36FEA4CD99806CD9823E4C9F95E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Easy Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:3C8C7A8F66623135DF628B2DFBC3804029313350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Don Patrol - A Wire, a Deal & the Devil (1992) Japan [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:3C39C4883E32CAED979A60867C76A2D72301D18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Зажигай вместе с Европа Плюс выпуск № 2 (20
 ```bash
 magnet:?xt=urn:btih:9C1756608DF3055364C1F863BCD39065F57EB93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43A2DC51637B9E79EC8BB9A13BAB3A2B321FE83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Outline для Маc идеален для студентов, преподав�
 ```bash
 magnet:?xt=urn:btih:50DBB3BD06B8B16DD950FF00312C1E5F1D6189F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Лучший русский шансон выпуск № 12 (2017) [MP3|25
 ```bash
 magnet:?xt=urn:btih:00DE6CBD19569F5EE8798201766C17CF331F9FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - 50 Vinyasa Chill Yoga: Healing & Relaxing Yoga Exercises (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:4514D4B8632D8C5E2801D8D0ECC9A672196837BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EF5460EEEA325177BB81471B4B7D1323837D587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ VA - Весенние заводные хиты выпуск № 8 (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:B65F2C8DBCCB0F1E4CE37F8D2E399521885F516F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ VA - Козырная песня от радио Шансон. Сборник �
 ```bash
 magnet:?xt=urn:btih:037AF0D629D71E54F40F7D14F423C79F54B7CB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C6F227903A9468D2AD1F5CD451EAAFDC0518119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Strangers - Mirrorland (2017) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
 ```bash
 magnet:?xt=urn:btih:34999B19DEEB6CA2F926D5B207573195F6F25122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08D2DD192F08536C7251A7C80978730FCA2A1DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ VA - Private Lounge – Spring Session Vol.2 (2017) [MP3|320 Kbps] <Lounge, Deep
 ```bash
 magnet:?xt=urn:btih:262F98B5483441C1C71F1FC3D309473E3A8494DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5346FDF16ABA8612147A77CA747324CFA2967598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ VA - Dance Shape Workout Hits (2017) [MP3|320 Kbps] <Moombahton, Trap, Twerk, Bi
 ```bash
 magnet:?xt=urn:btih:9F231A569CAD809E84BEB994F9911108EAE5B5B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C30125438EB8841C2273E144795EF36468F7A2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BC08F369C845A74049837B407886FED17314714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ VA - Шальной шансон в дорогу выпуск № 9 (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:32008E6889467D00323E198B054D739AFFF2C05B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Caught A Ghost - Human Nature (2014) [FLAC|Lossless|tracks + .cue] <Soul, Altern
 ```bash
 magnet:?xt=urn:btih:80D65F250A59D07D0A71AB9C90CD0F7CA7284F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

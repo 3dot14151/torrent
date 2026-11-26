@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:44FEC8EE1DDF3A6813FD9D04D4F925BB8A00D8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Весенний марафон № 160 / Видеоклипы (Презе�
 ```bash
 magnet:?xt=urn:btih:2D8D70E40F1D690C570CB3E3FB2FB381611CDEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53498D4518DB84039352999FAABDA24385949F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3448EB6F3AB74A37617B5620B7310F1D430A3DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BC3631FACA24595A0C0EF1993B213E7DE04E670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB9CC36CB38233AC201B9C8106EAF773DA836353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A43ADEC5FFADE68CDE07E95C12C21B91F3B86D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Animal ДжаZ - Хранитель весны (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:48B9FE3143849325C7B7E785AAD743A8D5611C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ WinToFlash — это приложение, позволяющее полнос�
 ```bash
 magnet:?xt=urn:btih:64723C392E131C526E633DA3AE5284F4C366E812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Querious 2 позволяет работать с базами данных ещ
 ```bash
 magnet:?xt=urn:btih:036595476617402DB4104DFA86914C8E3DC96E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:232896654BF2ED2FAD71EFA7601DC9950AE22CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:2A879C8F4B50E231582BA2BA6DCD5B4CD8663161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ VA - Blues and Rock Ballads Vol.8 (2015) [MP3|320 кб/с]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:61D3FF7640F0D5A592C0E756439783C47792BB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98EA4A24BBBD4FF94929A242E12ED2066B95164D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ OEM Info Updater - Программа для изменения OEM информ
 ```bash
 magnet:?xt=urn:btih:F54687921919BB1396FA2920E68C35516B0BD042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE73D59EBC6B2F5904A5A34F0F07FE5411127B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B27528FC3E0F51D319317CA49532DC538C247F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB0FBCB03AEE80AB6B62CCAB1F66CC20D329133D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12207E99371D98DB4DF33D6928AA592DCE884792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ SciTools Understand — пакет для аналитической работ�
 ```bash
 magnet:?xt=urn:btih:68DAE3B904A40018E10F859872230CD3DC6CE82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B16B7388CF736FA4F732E480C042EF5AC82D4986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ GIF Construction Set Pro - мощная программа для создани
 ```bash
 magnet:?xt=urn:btih:6563AB021573FB5EEA863633760C887F1CDDD81F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:497638752B2CE37C3FDA055EC29668F035F0D6B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ Among the Sleep - это атмосферный приключенческий �
 ```bash
 magnet:?xt=urn:btih:4FC0125F1B511C33E5604278F7AD9E177F0530FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ House of 1000 Doors 4: Evil Inside / Дом 1000 дверей. Зло внутр
 ```bash
 magnet:?xt=urn:btih:1E553A2CD4B9A85DA254F447CFB2E293ACA9A4EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

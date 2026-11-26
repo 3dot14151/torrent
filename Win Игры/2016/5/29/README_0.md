@@ -19,8 +19,7 @@ Groovy - это основанная на физике, игра платфор�
 ```bash
 magnet:?xt=urn:btih:46E4516F3B7BF8D533750C1C323EB1F7E8016B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Meridian: New World — это стратегия, в которой вы игр
 ```bash
 magnet:?xt=urn:btih:11FB22200E929AB8E5DE3F7824FD7182C39FCAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:560B048909424F7E2E6BE8ACE22226FFD3627E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

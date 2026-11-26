@@ -19,8 +19,7 @@ Metallica - 10 альбомов (1983-2008) [FLAC 2.0 24/192 |image + .cue, trac
 ```bash
 magnet:?xt=urn:btih:F5EACFB4F24BFC2BE25D2EF825526C7A13236BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Assassin’s Creed Liberation HD (2014) [Ru/Multi] (1.0/dlc) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:163CDA07A0BE5E43F74F0449BF621D1D21AC6E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

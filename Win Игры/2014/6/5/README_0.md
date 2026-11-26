@@ -21,8 +21,7 @@ Murdered: Soul Suspect – увлекательное путешествие, г
 ```bash
 magnet:?xt=urn:btih:368C3FC81CE8D98ADA682BE083A385381D3C1C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Antisquad (2014) [Ru/En] (1.0s12) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:DA9398D092A19F8571ED7B630ABDB917B340DE97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

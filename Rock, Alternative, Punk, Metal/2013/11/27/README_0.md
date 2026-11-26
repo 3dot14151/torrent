@@ -28,8 +28,7 @@ Laplandia - Театр Снов (2013) [MP3|320 kbps]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:93E6123C257E8917F15DA175947A353690BF2016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Black Sabbath - Live… Gathered In Their Masses (2013) [MP3|320 кб/с]<Heavy 
 ```bash
 magnet:?xt=urn:btih:93ED6C413B469C4802886BF205C3729E6E0E9C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Tudor Lodge - Tudor Lodge (1971) CD released 1994 [FLAC|Lossless]<Art-Rock>
 ```bash
 magnet:?xt=urn:btih:641AE31AFA35CD14796563E24816BE1381260AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Classic Rock Magazine #191: Shoot To Thrill (2013) [FLAC|Lossless]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:B95962FA2AF86E8CF0AD1F53FBCA750A44EE8877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Paul McCartney - New (2013) Deluxe Edition SHM-CD /Universal Music Japan/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:C7D1EC455E0D9AF967D12F86EC26155B8A3FF717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F15147A0C2E8EF513C7304B8AE063363EC2F9128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

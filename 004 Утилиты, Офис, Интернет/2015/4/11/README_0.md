@@ -19,8 +19,7 @@ save2pc Ultimate - программа для загрузки и конверт�
 ```bash
 magnet:?xt=urn:btih:F29E76994EA17EA437A29577F40598489DDA768F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

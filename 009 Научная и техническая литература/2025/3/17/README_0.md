@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AC9F6250259A08E8D7045DDAF214430CDE7B18D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Capital Press | Коломенский завод. 160 лет труда, тал
 ```bash
 magnet:?xt=urn:btih:82BE846822BEFCDD5EE4B8FF6A5BE7BA4FD703AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19056C0B8457D934EE184393F11FDCED93F69C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44D2D796A7740CA15FBC862BD7C6A154DEA525DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

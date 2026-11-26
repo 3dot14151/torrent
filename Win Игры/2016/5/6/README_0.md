@@ -19,8 +19,7 @@ Hyposphere – аркадный платформер-головоломка с �
 ```bash
 magnet:?xt=urn:btih:28B7D91B45817CEBFBF1F96F67467E7FD3DEE975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ UTOPIA 9 - A Volatile Vacation (2016) [En] (1.0 u23) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B69A082E431AA94A538A416DBE6A2F40E1C5030C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Beggar's Ride - увлекательный и неповторимый пл�
 ```bash
 magnet:?xt=urn:btih:0CFEB014B0538F852E7D640A1FFF5CF4263F5E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Skyshine's BEDLAM Redux!, захватывающая пошаговая стра
 ```bash
 magnet:?xt=urn:btih:7B6D25A77093B91D4BC05CD1BDA3153937BB9296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

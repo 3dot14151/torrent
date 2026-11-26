@@ -19,8 +19,7 @@ Marvel’s Avengers (2020) [Ru/Multi] (2.8.1/dlc) Repack DjDI [Definitive Editio
 ```bash
 magnet:?xt=urn:btih:9868E773ECD7F4070AA3AB57A01454B75B069C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 В. Стойкович – В Долгих Ночах(   Читать дал�
 ```bash
 magnet:?xt=urn:btih:E18B17D203C39F9283540A540F383D0577F52098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

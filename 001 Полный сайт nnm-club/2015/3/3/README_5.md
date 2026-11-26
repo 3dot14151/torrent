@@ -18,8 +18,7 @@ Intel Parallel Studio XE 2015 - набор инструментов, упрощ�
 ```bash
 magnet:?xt=urn:btih:A45578C731D5E1B8E5AD2629B968AF32657B9AD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Весенний марафон № 158 / Видеоклипы (Новые 
 ```bash
 magnet:?xt=urn:btih:D8B93AF6CC445A619620F46205ED7F61F61E5F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:2F8E3FE789DDBE489B04175697D722ED7E424745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Microsoft Windows Server Solution 10 Pro Technical Preview 2 Build 9926 OEM RETA
 ```bash
 magnet:?xt=urn:btih:A650259DA9990223093196DBF38BD2CB93E1B75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ FlashFXP - FTP клиент, поддерживающий любые типы с
 ```bash
 magnet:?xt=urn:btih:0060A688FA861ED1911EB8809194464D47D41D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Avast Internet Security 2015 - комплексный антивирус, кот
 ```bash
 magnet:?xt=urn:btih:0D4A362B66D65D88D5D63B203C4B85D343E41513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A020DD87C9B7FA5DB5022DCFA993A7DF2F04C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29C12F3573B745221936E3E13AEBF4E8495A5ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F0687FE8E3F59D6371F99BC846C88CFAB776054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69D77622019A792DE3B98589DD9B4F879C60B234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DF019CE36AAB6DFA22D3828E15D7C24E4B4F9A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ MInstAll v.02.03.2015 By Andreyonohov & Leha342 [Ru] (Авторская раз�
 ```bash
 magnet:?xt=urn:btih:9F274D91A4A07E3FD0A45F894A596EB26DAEFE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ED7D52C229DA01B65202C26C94214E71F715E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ CSI: Место Преступления / CSI: Crime Scene Investigation (2014-
 ```bash
 magnet:?xt=urn:btih:1D79F19E923E77CDD6547F80062A1F58DCB446B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9AAA2A69FB4EAA9152FC924CBE2FB28C3AC09E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B035BF9DA84F1D63DD77DFFE2CA2F72B9B06B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Alien Isolation (2014) [Ru/Multi] (1.0 upd8/dlc) StemRip Let'sPlay [Digital Delu
 ```bash
 magnet:?xt=urn:btih:F9EA6695BF642F5F86C46385398DB19D001AB44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4B93551E4503A004977E5F52310858B709D4EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

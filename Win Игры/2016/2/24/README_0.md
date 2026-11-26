@@ -19,8 +19,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd15) Repack xatab
 ```bash
 magnet:?xt=urn:btih:72943FDF0116ACE3EE1AE0C7A770FF11F5B959C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Book of Unwritten Tales 2 (2015) [Ru/Multi] (1.0.3.132) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4C56787FEBFF576F996EFF0634468EB1B20319DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PES 2016 - официальная видеоигра Лиги чемпионов
 ```bash
 magnet:?xt=urn:btih:86F25AEA3E5C891D9F8F4F6FF2AC6B314373C426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Drizzlepath: Genie - это приключенческая игра, в кото
 ```bash
 magnet:?xt=urn:btih:4675B13244AEDD8B4C52599009DE348D4E32C155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Obliteracers это инди-экшен-гонки, которые удосто�
 ```bash
 magnet:?xt=urn:btih:04B71FFBDA522BC964D83A334923CB2482613988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Painful Defloration - Esthetic Research Laboratory (2009) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:03FBADDD2C6A7268583D12B6FAC05CAA9B802958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Weeping Silence - Isles of Lore (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Do
 ```bash
 magnet:?xt=urn:btih:421EB7F67717047BB79C512F65249D59A1E4B269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Moto Armonico - Wondering Land (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 ```bash
 magnet:?xt=urn:btih:40552D85A7B1B593BF4F9D327326D25811377A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sacrifire - The Art of Decay (2023) [MP3|320 Kbps] <Gothic, Melodic, Doom Death 
 ```bash
 magnet:?xt=urn:btih:20309527C801B789D270AD6766FE13799C84FEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fate - V (2006) Remastered, 2023, Frontiers Records [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:C5D6758DF419970968E34DB75DBDD6DCB4CF1323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ TodoMal - A Greater Good (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom 
 ```bash
 magnet:?xt=urn:btih:0E7666389687E872082579BCD7F4231FA8A556D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20869DE20A2F916026123899E0C0A5D4835F1FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2EECC0CEB0BC3CFBD1DA48534E300D0BA11EB88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Arabs In Aspic - The Magic of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 ```bash
 magnet:?xt=urn:btih:3F62FF51C169C6289613221EF4BD15F9CAD7BD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E88249583181493A95553111BA04699E507727CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Soledriver - Return Me To Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CC3BB66086C130AABC39D33476B8AF0BBBE4F14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Paradise Lost - Icon 30 (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic metal, Doom
 ```bash
 magnet:?xt=urn:btih:CCE0AAEB12BFD716967CE51FC7A8AE1A24DF37EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Visions Of Atlantis - A Pirate's Symphony (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:1D54E0BB15800B5226594FEFDDBCF64C6B0A6F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Paradise Lost - Icon 30 (2023) [MP3|320 Kbps] <Gothic metal, Doom metal>
 ```bash
 magnet:?xt=urn:btih:D6EB4441D2ABD52769236CE21B54C52F8FACA69D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Cobra Spell - 666 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F61E64A50B78C1E23BA92FCADCEB25E233006CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ DISC 1:
 ```bash
 magnet:?xt=urn:btih:4D7923DEAE6F54006CDA96F7F3723A33698ED8F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ VA - Донбасс 6 ''Свобода и Доблесть'' (2023) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:B8FFF6A4788583D47C64DAA17B128BB0F8F2CDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Alice Cooper - Road (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2E6F673E7931A4B6BC1FE81310576EB605384DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Dokken - 27 альбомов (1983 - 2023) 37 CD[FLAC|WavPack|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:F9486AD57474D4FCBEC4DDFFC23F9646E89852C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

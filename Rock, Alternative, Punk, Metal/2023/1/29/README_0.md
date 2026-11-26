@@ -22,8 +22,7 @@ Landfall - Elevate (2022) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:2772894A8C91F59AB7F81586F868D7FB75FE30B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sabu - Banshee (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1BDE8B8EBC511078EAB1E3A6DF85F6462B95601C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Emarosa - Sting (2023) [MP3|320 Kbps] <Synth Pop, Alt.Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:34369B69EB55DA40C6033B51B09ECAF1E19F0D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deep Purple - Live On The BBC (2004) [OGG Vorbis|500 Kbps] <Rock, Classic Rock, 
 ```bash
 magnet:?xt=urn:btih:20E338960D9A54B41CD598E3DB8616934B6408E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pink Floyd - Wish You Were Here (1975) Reissue, Remastered, 2011, EMI [OGG Vorbi
 ```bash
 magnet:?xt=urn:btih:6553899BFB06DEB326EC80FFAF69FAF29D1A935A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Age of Rage (ex- Время гнева) - 6 Albums (2020-2023) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:CE273B83E95A216486EEBDFA55FB2AD69302729A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Absolute Classic Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:676BAB786CAF889AF63CC839DDF54A61A5D91685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Pink Floyd - The Dark Side Of The Moon (1973) Reissue, Remastered, 2003, Capitol
 ```bash
 magnet:?xt=urn:btih:05D58ABD732CA6E8C98B049485F740BD79ADA0C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2AB509D5C22D7FCE2487B5DD48732E12A08C810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ HammerFall - Dominion (2019) Japanese Edition [WavPack|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:9A9C8BA320CCF232619FAFFE6100CDFBAD6A3F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Project - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:CD0B1F8D84CB4B137F532B0EDEDC02B5A189D8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Xentrix - Seven Words (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:BE87FA975AB237513523B125E144308E275E09BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Scalp - Black Tar (2023) [MP3|320 Kbps] <Death Metal, Grindcore, Hardcore>
 ```bash
 magnet:?xt=urn:btih:0EFFFB039F18094137E4FE53ED5470A6D2387B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Little Black Stitches - Hush Crush (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:68D8D85AA2B853EE7E1A595F8EACF4E539F7EA39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94CB408A5A1C78F791A557ECC1DD0A9C219705EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Signo Rojo - There Was a Hole Here (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmosph
 ```bash
 magnet:?xt=urn:btih:23812E92E926025794A884D64D5C78F087B26C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Dust Prophet - One Last Look Upon The Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:E57E103E0FB9F190767EE6DEFFB71BFE442ADA30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Solar Eruption - The Demon's House (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 ```bash
 magnet:?xt=urn:btih:CBAFB704C4A169E8A9431AFB67AC15927E64AF23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Obelyskkh - The Ultimate Grace Of God (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyc
 ```bash
 magnet:?xt=urn:btih:8FB12581374197DAA59E4DFA8CD9B66B8D019DBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Vulcanodon Phazer - 4 Albums (2019-2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C88D96BDFE324763F66A64E2BB94D08FA8D036B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Richard Stepp - Holiday In Hollywood (1979) Japanese Edition, Reissue, 2014, Cre
 ```bash
 magnet:?xt=urn:btih:AE922F53A21893E75322E51642AF2131F04E9A3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E8CC2E38657A3E724FFB5B1528E38BCDA86A26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ Anasazi - cause & consequences (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:D40DA19ABE4994030966BF9D7D4131DE95EED495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ Toychild - This Won’t Hurt At All (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 ```bash
 magnet:?xt=urn:btih:968D28368E20A9035095187C484668202512CFB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

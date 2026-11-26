@@ -21,8 +21,7 @@ Coltre - To Watch with Hands... To Touch with Eyes (2024) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:47A7AEA38A3EF9E0A3CE504BDBD040DF8BCA6C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Absolon - A Portrait of Madness (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 ```bash
 magnet:?xt=urn:btih:5D1891A4ABB1961D7B08DC7B5E5339C11D2236F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ CopyQ это легкий, но многофункциональный мене�
 ```bash
 magnet:?xt=urn:btih:E37C10E0DD228952272A26BAF1AE0F10D5D50D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ iShowU Studio предоставляет эффективные инструме
 ```bash
 magnet:?xt=urn:btih:BC4C94E20F69A44CA636EFC3746780D609F7D322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Affinity Publisher 2 v.2.4.0  [Multi]
 ```bash
 magnet:?xt=urn:btih:1D41CA0FE4053C1D9418E694017F76608E03D74A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ ServerCat позволяет легко отслеживать состояни�
 ```bash
 magnet:?xt=urn:btih:CCD7B15882B65CFBFBF735E736B03B38714D0459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:FCCC4D82CD9F5D4DD66B79FD9B6A618C4F34179D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ iShowU Studio предоставляет эффективные инструме
 ```bash
 magnet:?xt=urn:btih:AA0F1818516272527F2B6EA253A3103C246FAC50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Serial Box & SerialSeeker 03-2024 [En]
 ```bash
 magnet:?xt=urn:btih:F3671C90E58F78A51C6D640188D7AA5130A788D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ N-ск живёт размеренной, неторопливой жизнью.
 ```bash
 magnet:?xt=urn:btih:50FC9F101275B81C5490181137B61BF5D58E97B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Navicat for SQLite on Mac 16.3.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:54F43540AC0645623C98C882D57068DC5E2B8F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Wynton Marsalis - My Funny Valentine: Live At Bubba's (1980) 1998, Pulse [FLAC|L
 ```bash
 magnet:?xt=urn:btih:86D1EC9AC3F7723E93E7DA1F98896DE22DBE20C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Navicat Charts Creator преобразует ваши данные в эффе�
 ```bash
 magnet:?xt=urn:btih:E20E8727340AA94C92B691587F3111E14A57F546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Navicat для MySQL Client от PremiumSoft — это интегрирован
 ```bash
 magnet:?xt=urn:btih:94B0037725FEC6074A2C7642B4390ABEE602ADFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C23EFBCDF4C5BFC420194782ACA9F0511821C3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ Navicat для SQL Server предоставляет вам полностью �
 ```bash
 magnet:?xt=urn:btih:22B30B0E67FC48B053F3E4F9F6294729CF291756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Ellis Marsalis - An Open Letter To Thelonious (2008) ELM Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:83867E246E9FFA6977B28283306868B26D0658C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ Navicat Charts Viewer — это простой в использовании и
 ```bash
 magnet:?xt=urn:btih:87464873848097FF6F1995B90031C2A606E359DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ PullTube 1.8.5.27 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1A0E39786C43C00401B1C5B677B03CEEA514A65A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ Text Workflow 1.9.2 [En]
 ```bash
 magnet:?xt=urn:btih:721BE5D03381C4A0114390DF9D9CD280A96A3BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Branford Marsalis - Trio Jeepy (1989) CBS [FLAC|Lossless|tracks + .cue] <Post-Bo
 ```bash
 magnet:?xt=urn:btih:DAAD686945DCB1588351502E4A6A1F1C4A12B80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Barn Finders (2020) [Ru/Multi] (16128) License CODEX
 ```bash
 magnet:?xt=urn:btih:0C192FDD6523ECC60C25F5650CDA8B865A43468F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

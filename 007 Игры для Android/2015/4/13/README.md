@@ -19,8 +19,7 @@ Shadow Fight 2 v1.9.7 [Ru]
 ```bash
 magnet:?xt=urn:btih:E6AA323A22CB6075A4540B1AB115CB988D514C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

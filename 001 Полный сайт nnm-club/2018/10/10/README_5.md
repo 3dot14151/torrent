@@ -19,8 +19,7 @@ MarsEdit 4 v4.2.1 [En]
 ```bash
 magnet:?xt=urn:btih:C09BD5E048786D77E51161A7257479912BEB7C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ WonderPen - простой в использовании текстовый ре
 ```bash
 magnet:?xt=urn:btih:9BEEB0F033A115BA2A68D4154289D0CC9DA7FEEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58165E119E89CA12206A1C37253EE16058670910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Librarian Pro 4 v4.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:CB6E9E1E72872D78C804D79B4D97D9B1629571F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6CC6B7B26DBF952FB72247F176791F48604A466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:31246E722E78E0A4219EB02E97543536AE3C955E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1365F7F29386FA783AABEC0F5839E7B279C7907A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ VA - Tech House Patrol [40 Dirty Beats] Vol.3 (2018) [MP3|320 Kbps] <House, Tech
 ```bash
 magnet:?xt=urn:btih:26DF8CB525CBD290BFCF6D21F573812196C78ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ SuperDuper! - Утилита для клонирования жесткого д
 ```bash
 magnet:?xt=urn:btih:A2A36817C93075AAFC4C5EC935CB7D3FF1814596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ iShowU Studio предоставляет эффективные инструме
 ```bash
 magnet:?xt=urn:btih:FD6797F935A758455730E05FE687039698D0C603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Intaglio - полнофункциональный, простой в испол�
 ```bash
 magnet:?xt=urn:btih:D70EF7F656C5B0432530F12BBA76B218FC9FAD0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ SILKYPIX Developer Studio Pro — мощная программа, котора�
 ```bash
 magnet:?xt=urn:btih:4B3E37BA0D73E06B563A194442D9A380E92B2DBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Dan Siegel - Origins (2018) Time Blues [FLAC|Lossless|image + .cue] <Jazz Fusion
 ```bash
 magnet:?xt=urn:btih:8EF6D88BA4470C3473482BC805A0513C2B3B5CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D30180631AAE960B7905B564FB7CACB98DA5738E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:476269EC4FE0E2F545BCB29AB76900281487E3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A1AF73F2972D16F7E558B150A29B35E4E8C01FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ VA - Black Sunset Music: The Classics Collected (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:FB8DDFC593FAA3D0064F21DFDDE473567BD105CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Constance Demby - Sonic Immersion (1996) [FLAC|Lossless|tracks + .cue] <NewAge>
 ```bash
 magnet:?xt=urn:btih:F3E2B4D0B6847C10BBCD3367004B2981A2C63447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 ```bash
 magnet:?xt=urn:btih:AC8FF65AD57F7C8D71142FA8F8865F7FD7BB86B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ VA - ADE 2018 [Bonzai Progressive] (2018) [MP3|320 Kbps] <House, Progressive Hou
 ```bash
 magnet:?xt=urn:btih:657790A21453DE83735106E15AB22ACB521D9BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge
 ```bash
 magnet:?xt=urn:btih:3EABAFEE5B7AD9561BDA8B0F0FA4C03507C42668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DC8CC64E19DEE297750623C558DBEE538BC16F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ Constance Demby - Sunborne (1980) [FLAC|Lossless|tracks + .cue] <NewAge>
 ```bash
 magnet:?xt=urn:btih:95830E67178A34019F0110B8DFB4904531335AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ VA - King Size Deep House Vol.1 (2018) [MP3|320 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:961931B947A237D461C4D703C8659E5B476E6FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ Jeff Lorber Fusion - Impact (2018) Time Blues [FLAC|Lossless|image + .cue] <Jazz
 ```bash
 magnet:?xt=urn:btih:E5BE353243AB80FA1B4B02A126776D9CE3DD716E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88A22782DF2AE0326515685BE32E3173FA6142E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

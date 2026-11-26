@@ -18,8 +18,7 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:7DFFF37EC36B965359372F00A1890D25C5B4CC4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Hardcore Top 40 (December 2013) (2014) [MP3|320 кб/с]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:878814296363CC4DE1799ADA15D318EF9DDF1DBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4597B6DF032FBB4A564106254C636A4C80E6DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Discovery: Разрушители легенд. Ракетомобиль 3. За
 ```bash
 magnet:?xt=urn:btih:CCB5A43F5D153634D1CC3B568CBAF1F2F9428415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ AudioMate - небольшое приложение, которое контро
 ```bash
 magnet:?xt=urn:btih:219064B4451EC8C5307BB2369B3D0EC499571C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Discovery: Разрушители легенд. Битва полов - раун
 ```bash
 magnet:?xt=urn:btih:FBD003DC20808111452E4EDDEBDC59B8AA204CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA8785A2EE40B9E07C73092FB417F317A05D356E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Blank & Jones present Chilltronica: No.1 - No.4 (2008 - 2013) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:2654184381EA43C1B01A3EDAE0477F33AD58103C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BBFB7B5F4A09737E53AA801B16E14BD174408AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ HaoZip - бесплатный архиватор китайского произ
 ```bash
 magnet:?xt=urn:btih:700332E2C5E513093168DBBD0BE960E7976DEB24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Discovery: Разрушители легенд. Покраска взрывом 
 ```bash
 magnet:?xt=urn:btih:EA2478515778ED4A17FC26C5212DE28E1AF9CC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Inna (настоящее имя — Елена Александра Апосто
 ```bash
 magnet:?xt=urn:btih:DE98F18827547A736221705A9E55BA830043B85C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1DB9C7289462DEFCF53B74EDD3901E23ECEBABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ System Ninja - это бесплатная утилита для быстрог�
 ```bash
 magnet:?xt=urn:btih:581BB5F1C36DF79A9D59F6D9DA19838990D22E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:59750CDCEF4C2434B249C9A0AF997E782294FDFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3320944290DED230BABC3E747793AE31A1C3C21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Shigurui | Crazy for Death | Одержимые смертью [manga][глав�
 ```bash
 magnet:?xt=urn:btih:806511B4D9AC37469375A4A88C0C5A23AA77E264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Hero Returns (2014) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:6DC89502EEF8880407F5AE90DCFA682CA7BBE497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EB18C7F7BC84FB9C2087B77937FBAB8FA28DC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6A44437E39F9031EA672A1C9B62C53B97785702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEE5E0DD5A436DD3F1E16D9167E9AAF7607754FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3E56CA2F06DB093B4F11D571AB9291A2BE92441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ VA - Greatest Disco АвтоРадио (2014) [MP3|224 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:5D7C71BFA5C3E65003A43BD952083B21EFFB8436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB534F408E7644054E4FD0B133882314CB458E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:683298C7CFECAC570D3878F57C7397EA7304F384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

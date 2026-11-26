@@ -22,8 +22,7 @@ Gatecreeper - Deserted (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:F146BBEEBEA53D11DA7EE4F1753DC06F1AE827EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ringo Starr - Give More Love (2017) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:00835F057FC371072A013A3FAE5C0D2DB4CF19F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nightqueen - Seduction (2019) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:BDE76D6F3E63AB63C14665D6757069040B8C7326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Motley Crue - Girls, Girls, Girls (1987) 40th Anniversary remastered, 2021, Möt
 ```bash
 magnet:?xt=urn:btih:BFB2A9064ED1EB3184AA144729975C967D47C4AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ AmuZeum - New Beginnings (2020) [FLAC|Lossless|image + .cue] <Sympho Prog>
 ```bash
 magnet:?xt=urn:btih:C0EE518C7BC8F3FA22FAF5309A30F1032EA6AAA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Steel Rangers - Scarred for Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:00F283ECD96C039AFE7BDA012B9AD0D593B300AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

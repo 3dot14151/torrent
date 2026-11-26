@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AF1DC8C519EA4D59AB5131E7977ED67F7618558F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mantis Burn Racing (2016) [Ru/Multi] (20180222/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:736E0423964F70ADA05D30998DA037561C46C17B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C5F53361C89EF6C8DECDFF9BE331902DBA973DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9898715E6BF54C65359195F98A971DD594465B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Part 1
 ```bash
 magnet:?xt=urn:btih:1450F502750227215EBCFD7610EEBFDD5CEE1793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1EAD6BEB2A18E27DEB6389E074D4BCB56A76E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2CD66E8A5ED1CFFE72699A595E97ABF2795062F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Noragami | Noragami Aragoto | Бездомный Бог | Бог-Бродяга 
 ```bash
 magnet:?xt=urn:btih:72D22C595FF35B5FBAF4D21FEA05240951214AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Discovery: Тесла. Рассекреченные архивы / Tesla's Death
 ```bash
 magnet:?xt=urn:btih:CEB3CA6B7CAD7CD621D47132FBCD6D285F0F6728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Devil May Cry HD Collection (2018) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:CC78C9579B679FE885E6B4FFC42F52DF1AA99541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59B9BA8384795D9C815765D797D4681CC72FF9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7E5074A7B0CD9F75D4202ADEB34DBEEFE20967D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ World of Tanks: Merkava ModPack (2017) [Ru] (0.9.22.0.1/14.2) Mod
 ```bash
 magnet:?xt=urn:btih:D2589D8C707F5F9184EC529C44DDB1CC08189660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

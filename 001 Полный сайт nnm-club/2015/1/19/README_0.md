@@ -27,8 +27,7 @@ Mikky Ekko - Time (2015) [MP3|320 кб/с]<Alternative, Electronic, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:089C520363786CC441B8F0E839FB117FA79CB0BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:AF3E3C980B6F18926F37BCA2B4B3A4D584F64FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94A7B2BC8CCA31A2C0F54A440D96B90088B1988F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:286365D495B0D2DE80DB419E30B44EB7EDF43A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE782EB6AC69F5B5A73DD4F6118A220B50C7E47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:85FDA420864B1A1EE84071E65795A459782FD11E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C78145E317890A3F297A416173AFC76D4F25D0B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ VA - Billboard Top 25 Hot Rock Songs (24-01-2015) [MP3|320 кб/с]<Rock, Pop, D
 ```bash
 magnet:?xt=urn:btih:C7B5C7362FA483884355F46D4B46504480541FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Dubstep Deluxe 100 Top Hits (2015) [MP3|320 кб/с]<Dance, Club, Dubstep, 
 ```bash
 magnet:?xt=urn:btih:B1FA83AE77F8517A7DD2E4C605250D3321447C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Goa Alien Top 100 Hits 2015 (2015) [MP3|320 кб/с]<Psychedelic, Progressi
 ```bash
 magnet:?xt=urn:btih:A186987C7B2D85941FBE92692205BFB5A2273F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Miles Davis - Miles Smiles (2006) [FLAC|Lossless]<Jazz,  Post-Bop>
 ```bash
 magnet:?xt=urn:btih:66620BFC6A27D96B5FA8285DDCB62C58B7D4D608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19144307FBD13DBA76D1492CFAAC16B6B7253C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E475E1C6FF4582977E498E4214709B3A40969B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ VA - 100 Top Trance Workout Hits 2015 Electronica Fitness (2015) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:B132FF986DF923798AA93514B392EF076B00B722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A9109679317783127FF7D0E125D6FEC8362D464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Shonen Hollywood: Holly Stage for 49 / Голливудские парни [ТВ
 ```bash
 magnet:?xt=urn:btih:8CC009EE304CF05539C56273AD1434AA8ACA1B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A130E5E909C6631CB84B94E55EE26EB70710A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ Bakumatsu Rock / Рок эпохи Бакумацу [2014, TV, 12 из 12] HDTV 
 ```bash
 magnet:?xt=urn:btih:4C947A440E467C1212B082120F8E31209F3B2B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DA8F947346DDCA90983F3F8C79CE2FB8F84A9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ VA - Live @ 538 Jingle Ball (19-20.12.2014) [MP3|~245 кб/с (V0)]<House, Progr
 ```bash
 magnet:?xt=urn:btih:40212D4BC6916A127E9E95A62471B6B6F2C9AEFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ FAUST - project - THEY ARE (2015) [MP3|320 кб/с]<Dark Electro>
 ```bash
 magnet:?xt=urn:btih:F3CA097006528D3D25BF5BE2000072645ED2E036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9239DF44D6AC23DA035FDB3151EB5174E8410F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +718,7 @@ Stereo & Video первым встречает и представляет са�
 ```bash
 magnet:?xt=urn:btih:B6529BF55233BED0A13F0059DCD2C15FF2A7A1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ VA - Monstercat 020: Altitude (2014) [MP3|320 кб/с]<Electro House, Dubstep, D
 ```bash
 magnet:?xt=urn:btih:1F38CF9CBFF24C116B46B55E039451350C140FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16D74003ED7B8DB14A536A8A08C76686E63B5D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Far in the distance — Mingled Burst !!! (2010) /Doujin/ [FLAC|Lossless] <J-Pop
 ```bash
 magnet:?xt=urn:btih:A8F20020260D78EF83AF3AA9CF4B82615A43CEE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:407A479B173E562542AFE36C0E78EE7046AAC198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Clouds Testers - The Clouds Jam (2014) [FLAC|Lossless]<Electronic, Electro>
 ```bash
 magnet:?xt=urn:btih:60A5E730CDF992F51E68D4F22CB2CFA32D016023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ More Coltrane For Lovers был выпущен спустя 33 года посл
 ```bash
 magnet:?xt=urn:btih:B303F7475941FF9130373A117EDB310B723CD24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Syntech - Only Ruins Remain / Decade (2014) [FLAC|Lossless]<IDM, Experimental, I
 ```bash
 magnet:?xt=urn:btih:BA00838FC565294ECA547919F703F410531D447F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66C226FDF7B115ECBDB57DF00516AFCEC8F2CB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Peter Mergener & Michael Weisser - Phancyful-Fire (1985) [FLAC|Lossless]<Electro
 ```bash
 magnet:?xt=urn:btih:45197E16CABE6C612422446E2C52255A9BB66322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ Tycho - Awake (2014) Deluxe Edition [FLAC|Lossless|WEB-DL]<IDM, Ambient, Downtem
 ```bash
 magnet:?xt=urn:btih:C5280E1A81EEDFA5473EEF2BB39755B00A98294D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40C153EB7A6B858BD56A06E8606E7009AFB66E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ VA - The Official UK TOP 40 Singles Chart (14.12.2014) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:C788FAAC0F995077D8A79E357C78A78DC440D274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ Edward Maya - Angels (2014) [MP3|320 кб/с] <Lounge, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:5382C953A0354E2EC89BE61D8F175205CEBFCFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF9D6BF2FABC95F7C37094E1CED178419ED7A08F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ MiddleIsland - 17 альбомов (2006-2014) /Doujin/ [FLAC|Lossless] <J-Rock,
 ```bash
 magnet:?xt=urn:btih:57BA96F322259722945D95413C636C68770DFC7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A69AB3E750512123E99BACE3377DEA85D1E337D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A146B9777B48D8FD38D059F25B0F7B8A84E8F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:947E4E65FA47E41AEB5A5E42D731F7649AEA5626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +542,7 @@ Written-By – Hank Cochran 2:58Жанр: Folk, CountryФормат: CD, Compila
 ```bash
 magnet:?xt=urn:btih:6192A6AAC10C301FEEC5AB4EF1968FA8A3B3C7A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7A3817B3C67CE756222E9AEA1295E2971056E9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +601,7 @@ VA - Best of 2014 - Deep House Edition (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:8D4588B55CB31C65E107BA69402A1A76F50D5BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1718D6D0CA48393EA02C04E8689FFD7437AAE1B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ Apocalyptica - Shadowmaker (2014) Single [MP3|320 кб/с]<Symphonic Metal, Cell
 ```bash
 magnet:?xt=urn:btih:E0C701E53FB3BCB364E321687C6F65AE1AD9FC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ G.E.N.E. - Rain Forest (1993) [FLAC|Lossless]<Electronic, New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:6E3B56E4C3D0C50FE29CEB67B7A85E2D213BA5B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C11311D6C969ECC0A4937CC80C39FCF822943F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23623FB25AA358BA3B0EFC20D11149393DBAD1DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

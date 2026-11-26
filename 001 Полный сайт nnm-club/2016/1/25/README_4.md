@@ -18,8 +18,7 @@ Adobe Flash Player — плагин, предназначенный для вс�
 ```bash
 magnet:?xt=urn:btih:214A7A44347DC73FE03796494285828E471D86D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87A1DEE8D9CF254E5C89497FD7611037B8F8DC7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ICE Book Reader - мощная читалка электронных текст�
 ```bash
 magnet:?xt=urn:btih:A624CB31C8596BDD5C416BED0EB95409F84FC0A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:983A0DC7410019E5426584FEFD19546BEA72BD8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03B4FF8649135D7D54E538FDB01888ECB84857FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27BD36DE84DE5DEF80217A77A7662E39025BF0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Splash – проигрыватель мультимедийных файлов,
 ```bash
 magnet:?xt=urn:btih:54ABFE1D0F351E59AFFBA70FBF929A39BDA447F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:BFCDCE6AD60326D28113AF4EC9356D211A29BE0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF2B4EB627536DF15787572BAF674F4C542B6DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:845B1BE06409A15226E64B029E9F2F8E9466E3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ OpenWith (Enhanced) 1.15 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0E915AD3C9275DE4F38345D7F356DCE4E60B9093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:D243B94AA54F1BD36A22DFCE4875FB45C05D18AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D15CC88FC8ED0D01DDD72138BAE4AD32E1F76F36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15FB1CC238BE36A6B1B86EB9E49663CDECC4E89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A87860F93F852265C5CA20FC325D4DA2FC4281A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Onechanbara Z: Kagura продолжает серию экшен игр Oneechan
 ```bash
 magnet:?xt=urn:btih:2813EFE6786442249FC200798561C2E5C91524E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E166431EE606CA0B74E9042E13F1807E2022BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49C76798C851291F9988CA531133E924295936E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ MAGIX Video Pro X7 – это высокопрофессиональная пр�
 ```bash
 magnet:?xt=urn:btih:3833166D4FC18FEF8279F78C62C23DBA818844B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34341F577819E86201F61A70B6ECB69E6CC1D34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +553,7 @@ Color Finale - плагин цветокоррекции от Color Grading Cent
 ```bash
 magnet:?xt=urn:btih:BFA7507AD25BE07AA497004979F1801F0B69BC0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ Bigasoft Total Video Converter - мощная программа, которая
 ```bash
 magnet:?xt=urn:btih:A54D1C8978311612C9068A58AF1A0425C63B4BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ orenyogaПродолжительность: 00:45:19
 ```bash
 magnet:?xt=urn:btih:A4511CF09BBC7FC71E7D7ABBD360A3765E1D0EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +633,7 @@ Red Hot Chili Peppers - Greatest Hits (2006) 2CD, Compilation, 2008, Star Mark [
 ```bash
 magnet:?xt=urn:btih:CD3BCC20CDE506F19285A4EE52E2AAC501B4940D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A55087348F15BC62E6EE68644643E2A65FA53E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

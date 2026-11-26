@@ -19,8 +19,7 @@ Bubble UPnP сервер обеспечивает новые возможнос�
 ```bash
 magnet:?xt=urn:btih:3EFF53D02DEABE2D2E185D7A0D9A1B9996C98178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PortExpert - простейшая программа для визуальног
 ```bash
 magnet:?xt=urn:btih:EF5472DE0EA4CAB7C51C084907F5614D66E9F9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TEBookConverter простой в использовании конвертер 
 ```bash
 magnet:?xt=urn:btih:377F06B0883641D243D11F3CEDD0693B19FE171A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

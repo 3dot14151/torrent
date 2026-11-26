@@ -28,8 +28,7 @@ Andrew Lu - Club Universe Radioshow 068 (09.05.2013) [MP3|320 кб/с]<Trance, P
 ```bash
 magnet:?xt=urn:btih:D3AC127A541F1C103ADA8139B5DB6128CC8C0085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AD06E18E11C2B0A8A5A48857020AB337D152C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4051D57D73F4046DC7C3845DC716FCE145293BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - 10 Years Armada: 2007 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:214AB216B8C1DDB822441E26D88B94335A1472CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ VA - All Night Love (2008) [MP3|~190 кб/с (V2)]<pop>
 ```bash
 magnet:?xt=urn:btih:97B4FAD86C734F0091365E3D4AFCAE1AB1A44FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Bruno Tocanne - In a suggestive way (2013) [FLAC|Lossless]<Avant-Garde Jazz, Fre
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ Juhasz Gabor Trio - Fenyek (2007) [FLAC|Lossless]<Fusion>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ The New Black III - Cut Loose (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C6329EA0AFA2777508FF977D3CED0BB01D6A8EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Griefrain - Aura (2013) [MP3|320 кб/с]<Post-Black Metal, Atmospheric Black Me
 ```bash
 magnet:?xt=urn:btih:49DF27B3F1A718B563484BF6E77AD2F401A747EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ VA - German TOP50 ODC (06.05.2013) [MP3|~235 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:DB65A10D3888D8D4D3D628BD8FEF0AC9AF34CF98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38F25834ECA01453BF10274D131089A4B5EBFDD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A36ABB0198B34A77577C3E2824BF5D7FC2C586F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ Shadows Past - Perfect Chapter (2013) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:5DB7EE223994050D364DEB92027CC4E95E0735D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ Fear Of Eternity - The Evocation Of The Unseen (2013) [MP3|320 кб/с]<Atmosphe
 ```bash
 magnet:?xt=urn:btih:D9C11CB15B467FCD4097143B72853B39A3CEE1D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:501D97D98193EB6826A251EF7F1B344F5BCACEB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5FE13F4FCAC279D6A7FEBF3550C8F0C881785D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B739BFE89F608FEBA33221119509D20280ADC823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B32BCE6B433D89F379AF34CCD845FE5326FE2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +689,7 @@ Antonio Maggio - Nonostante Tutto (2013)[APE|Lossless]<Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ NG: Побег. Серия №5 / Breakout (2012) IPTVRip
 ```bash
 magnet:?xt=urn:btih:A937048085DBF0ECF927E162BBBD071734128099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +740,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:288AD73366F4E470ED47DCA4DEC7F2315474E48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

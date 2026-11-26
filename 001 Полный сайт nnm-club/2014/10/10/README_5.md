@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B20742A3638682DC633C9109E9D5D3540B7E3A3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VideoHive - Vintage Frame Gallery [AEP]
 ```bash
 magnet:?xt=urn:btih:59191E6A4DF088FFBDB027D6147A503E5075F021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ openSUSE 13.2 RC1 [i586, i686, x86-64] 6xDVD
 ```bash
 magnet:?xt=urn:btih:C45A866954E470ABFC35F185A1DE3EF1FFFDF692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Ilan Eshkeri - The Sims 4 (Music From the Video Game) (Song Compilation) (2014) 
 ```bash
 magnet:?xt=urn:btih:95A963ED30039510C18571FF2633A2E1F5C02413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VideoHive - Hanging Wood Frames Gallery [AEP]
 ```bash
 magnet:?xt=urn:btih:B57CF51C94F9057C2835C98F84A8DDA90406357C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CC7088CAC02B7683CD304137BD885F60FCF4C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Alcohol 120% - эмулятор CD/DVD-дисков. Программа созд
 ```bash
 magnet:?xt=urn:btih:715FD92AA0C78F157CC1DC2FFD15EFB2527570A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ A-ha - Лучшая коллекция (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:85A989EBD7F16E8D5522FA46B61DBED138E2C0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ Lian Ross - The Best Of And More (2005) [FLAC (image+.cue)|Lossless]<Italo-Disco
 ```bash
 magnet:?xt=urn:btih:2A87614FC5CD1E1AA85350C50980A86E78487F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ U2 - Songs of Innocence (2014) Deluxe Edition 2CD [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:0469DC56BA8D6DE5F075425E5DACA1C8516C5F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C522280E2083B8B76975118EFBD8FC71F3D491C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABE725746EADB7816AD5AA15B2E6290D32A97F29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20BB6B86E4F55092C42EF79F0B5CCD509B0BA19B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60388D9CCF654B7235A08355068D70EF4F7E6A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ Ginga Kikoutai Majestic Prince / Последний рубеж: Защитник
 ```bash
 magnet:?xt=urn:btih:D14799356AAB7C96C783306093B7C4696B277EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14F988FC928838F271B92DEB8BA1896FF9CC89FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8C997B535A97B1E4CF1DADB4826F6D4A7160616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ VideoHive - Happy Memories [AEP]
 ```bash
 magnet:?xt=urn:btih:6A1E3933214FC5548C67764C8D76A5A5CDE7C077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ Auslogics File Recovery - простая и эффективная в испол
 ```bash
 magnet:?xt=urn:btih:6A6A1D9CD76F50B90F9952B63D0CC21A71BD05FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F78608C510CB798D34D83D1803BCCAD516536F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C12A3160391258F2D05CE7C633A36A651EF54BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ VideoHive - The Ancient Trailer проект для создания слайд 
 ```bash
 magnet:?xt=urn:btih:4AD884D3AFCB892055ADA441DE169BB388F11A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

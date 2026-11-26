@@ -18,8 +18,7 @@ Freemake Video Downloader - бесплатный загрузчик видео, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Diskarnate - Greed (2013) [MP3|192 кб/с]<Synthpop, Electropop>
 ```bash
 magnet:?xt=urn:btih:99B9D5AD4A9AED43B5898279BAED5FABF3079135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Sudbeat Music Presents - Sudbeats (2013) [MP3|320 кб/с]<Techno, Progress
 ```bash
 magnet:?xt=urn:btih:D51EF7FBED9A991199B40C4B704BC6138EB89595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Arrayan Path - IV: Stigmata (2013) [MP3|320 кб/с]<Epic Power Metal>
 ```bash
 magnet:?xt=urn:btih:04B2D6C3D2C5114F46EE7201DB13F9FEEB5E0AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ AnyDVD - утилита для дешифрования CSS и снятия ре
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Product Key Explorer - программа позволяет расшифров�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ Luna Ad Noctum - Hypnotic Inferno (2013) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86F1AF6F7A91D078F031EDF0C1F776230580CD26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ VA - Янтарный Пляж (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:1DC74B9404229C238698AFF2EE71DAD4938F39BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ N/AЖанр: Hard Electro / Electro / Electro-House / Club House / HouseПрод
 ```bash
 magnet:?xt=urn:btih:AE67792CD9A54CE606EBE97920736EDD570D3B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ New Years Day - Victim To Villain (2013) [MP3|320 кб/с]<Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:D2E5D0A7569C302B397609072426EC6066F5254E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ VA - Psychedelic Techno Vol.1 (2013) [MP3|320 кб/с]<Techno, Techtrance, Psyte
 ```bash
 magnet:?xt=urn:btih:51D0A556F60BC89493324930FEC07D7745D997D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C630220345597C879DB670964C98CA0F34E830F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ Kalmah - Seventh Swamphony (2013) Scene [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ The Electric Soft Parade - Idiots (2013) [MP3|256 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:1EF173D12E7B5FB7B142FD6706B61F99AE9A7343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA116C34EC93F19307555EA3227E62E2F6ED6140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ Galneryus - The Ironhearted Flag Vol. 1 : Regeneration Side (2013) [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ VA - Paradise Chill Out Lounge, Vol. 3-4 (2012-2013) [MP3|320 кб/с]<Downtempo
 ```bash
 magnet:?xt=urn:btih:8D0007068FDECAC0B83DCB6BF3990E0E8ED68C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ VA - Trance Style vol.1 (1995 - 2012) [MP3|128-320 кб/с]<Trance, Hard-Trance,
 ```bash
 magnet:?xt=urn:btih:78863C14262013091DD18B48AB4CC33DDEBDDDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +662,7 @@ VA - Модный Super Танцевальный (2013) [MP3|256 кб/с]<Pop,Da
 ```bash
 magnet:?xt=urn:btih:055A80C495FC208F2D8EBDA4CCFD5DCEAB550C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ Wallpapers - Обои для рабочего стола - Разное (25.06.2
 ```bash
 magnet:?xt=urn:btih:16AB6068B88EB405357EBBA8C3381CD0E87DB00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +721,7 @@ VA - House Music Hot Shots (2013) 2CD [MP3|~245 кб/с (V0)]<House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +755,7 @@ Dave Evans and Nitzinger - Revenge (2013) [FLAC|Lossless]<Hard-Rock, Blues-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -814,8 +789,7 @@ Maison Du Malheur - Wicked Transmission (2013) [FLAC|Lossless]<Blues, Jazz, Alte
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

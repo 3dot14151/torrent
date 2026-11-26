@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E1D76D0BC0BF0DCC3BBA4D3D3AFEEBFE3622C2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F414602C8C5491F3DECD95043E32CEFAFB4FB01B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Disc: 1
 ```bash
 magnet:?xt=urn:btih:14F46917F7A8F874C586350A168B8D08C960E855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E052392CD783013DCC50A334D003FE9DDA05725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:063BE8956D1759D6184320482F4438CC086EF115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Ashampoo Slideshow Studio HD 4.0.8.9 RePack by вовава [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4993A85D845749F084B78B68FFAE09C061B8BE22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79B10862DEC366BCBD4FA3092360541936E3661D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C713D1B32DE5B953BF07BB3DE8BA6BFCBD2A88A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A0069BF88B7CD32CC613B1FD95AE6EC6562AD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7922AD1343ABDCC985459FDF7DF2A2BE9B188167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC98C8D16DB8EFD32C33E5F252E50B8140FD47E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90CD97E21D0C95E8164214AB78BEBC3C3DE857D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14BCB88150B8B2B2514C84DEE9867B0935D4099D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ MODO является полным решением для исследован�
 ```bash
 magnet:?xt=urn:btih:5E4B2C978B30EEAF31EBEFCEF555CE71488DC69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:35B456CEC34CE75E1CF63998EB6C2A6366FA5E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ A happily married professor, known for having many affairs with students, become
 ```bash
 magnet:?xt=urn:btih:9424AFCC02D5E7A8084887514BD1CB98F873782A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Film Titles Opener - потрясающий шаблон After Effects, для �
 ```bash
 magnet:?xt=urn:btih:67BF7B8559845FB70A45E632220AFF8BA08C9061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ Adobe Premiere Pro - это мощный, настраиваемый редак�
 ```bash
 magnet:?xt=urn:btih:CA08A5486634478AE1FB1A9224A3FFB14CD921C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ Reg Organizer® - многофункциональная программа дл
 ```bash
 magnet:?xt=urn:btih:C822BB9F6032FA5649573251C54CDC7DE61BB034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ Tokyo Xanadu eX+ (2017) [En] (1.08/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:1F1A29F08624EA380440083B65AB1FD9BBABB2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77422BB23EE7597A83C7E2E16F53C62A4C46387F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ Sound Forge™ Pro 11 обеспечивает эффективную и над�
 ```bash
 magnet:?xt=urn:btih:2E5540E8CDD154B21507DD957FA694CF89AEF115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E63183850629FA3F67313299B8FB3554BB832A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AAA4C9E38283D633E867E7F6C9C6DB622270F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F0857B3E2B9A4BB4D92B92FBF5FA0FEF5781B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ Love Is / Comedy Club / Comedy Woman (2018) WEB-DL [H.264/720p-LQ] (сезон 2
 ```bash
 magnet:?xt=urn:btih:9EB5F7DA05D6DF9F438075497838D46D3522E75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Backdawn - Through Extermination (2014) [MP3|320 кб/с]<Groove Metal, Death Me
 ```bash
 magnet:?xt=urn:btih:582CAD2C3A0B00146EB2B56303D8A60CFD2981EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Powersurge - Aftermath (2006) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:ABDEA2F10E51BB941EDD7C063EC0929B10D81588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Until The Moment Comes - Inkwell (2013) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:4DD0919244AE77847044469727FFCE970C3D709C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Powersurge - Eye Of The Storm (2006) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:D8BDD5114809502A3EA7F93CC2F0C7DA4CBF0608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Mesopotamia Inc. - My Dark Great Fall (2014) EP [MP3|320 кб/с]<Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:203F51683AC3ACA67C6240D856D894DD345048A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Pennywise - 2 Альбома (2012-2014) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:72628E12AD1C8390126436720FD6FA9E8D0F81A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Silver Mountain
 ```bash
 magnet:?xt=urn:btih:9730743D74970FE2A552C9485250FA79FE6C1CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Alannah Myles - Black Velvet (2007) [FLAC|Lossless]<Rock, Blues, Country Rock>
 ```bash
 magnet:?xt=urn:btih:DA38DC9B69515FA384675229CD7CBE3EE390D224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Green Grey - Greatest Hits (2014) Compilation [MP3|320 кб/с]<Rock, Funk, Alte
 ```bash
 magnet:?xt=urn:btih:A0C47A9C77AE5A5C524718960CE2C263AA6D78E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCD2E1C822B3BA7E36E87B86054173C11275E73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

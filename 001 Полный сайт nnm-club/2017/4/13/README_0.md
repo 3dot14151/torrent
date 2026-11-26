@@ -20,8 +20,7 @@ Fax Templates for Pages -  высококачественный набор из 
 ```bash
 magnet:?xt=urn:btih:F362FF2B2C6FE6B78806F8E3B7BDD75C69580B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Chuck Mangione - Journey To A Rainbow (1983) [FLAC|Lossless|image + .cue] <Fusio
 ```bash
 magnet:?xt=urn:btih:374C05C264D4909AA529C36EEEE9046485D078D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Oni - Ironshore (2016) [FLAC|Lossless|image + .cue] <Progressive Death Metal, Dj
 ```bash
 magnet:?xt=urn:btih:4A10E80258AE3BE59D4F6BB33ED2DE199099D95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Recoverworld Radio 009 (Mixed by Rich Smith) (2017) [FLAC|Lossless|WEB|trac
 ```bash
 magnet:?xt=urn:btih:B5A15E770DF60CD39D551804C69636AFB171D53A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ File Multi Tool   — мощная и полезная утилита для и�
 ```bash
 magnet:?xt=urn:btih:610C5AB3561648D49A754E3BFFDF44F25F6C5A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Sublime Text не является свободным или открытым п
 ```bash
 magnet:?xt=urn:btih:5F31A1375924E9F2B1CE8ED496F76E30FA1CC772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ NoteBurner Audio Converter - Утилита для конвертировани�
 ```bash
 magnet:?xt=urn:btih:4BC766D0A17090EDB0DAE1A72BD963F8AB60F0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Money Pro - это единая программа для ведения бюд�
 ```bash
 magnet:?xt=urn:btih:4FE4BCDF331801C5F0715CAB2943C648DB595027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E78EF8AAA4AE21C3ED45FA95AE822F6E4A70C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Omauha - Omauha (Remixed) (2016) [FLAC|Lossless|WEB|tracks] <Breaks>
 ```bash
 magnet:?xt=urn:btih:25B548581221249EE19F1B581BA4F6BC7FAD5BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB9C34389CDE88FFEFCCCCBB3ACACC943F916871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Membrane Pro представляет собой приложение, кото�
 ```bash
 magnet:?xt=urn:btih:ABEBB79F5F9C026C8DF7DBEEF92DF4E3000460D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Peter Bjargo - Animus Retinentia (2017) [MP3|320 Kbps] <Ambient>
 ```bash
 magnet:?xt=urn:btih:73E25AEC3EF3DBC1BB283304A81AA454E503D263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Robert Rich & Markus Reuter - Lift a Feather to the Flood (2017) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:ADFD071EFB581BC0CAA135C6299CC0FBBD8F9551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A378F01E458E101BB56D31E5FDA75F0A9295B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Solarstone - .---- (2017) [MP3|320 Kbps] <Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:3FABF8C9B443C828650107783EAE095A80CA68E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8FFFA32C5DEA32555ABED79AB135B3A59FB0BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Paleons - Hyperborean (2017) [FLAC|Lossless|tracks + .cue] <indierock, noise, kr
 ```bash
 magnet:?xt=urn:btih:EB9F3481AEFFAFD192BC62E343C2853B2096815F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ Alfred Powerpack - Лаунчер приложений для Mac OS X.
 ```bash
 magnet:?xt=urn:btih:F50BA65F15FD00CC7658458BA332636D998C5F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ Yaroslav Kulikov - Once In A Dream (2011) [FLAC|Lossless|WEB|tracks] <Uplifting 
 ```bash
 magnet:?xt=urn:btih:AB0A08D937F588EEA5F4AEB48E0DD454CF0C230E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77B00922CAD37AC13A28AE47411D2373175F341E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ Omauha - Work Out (2016) [FLAC|Lossless|WEB|tracks] <Breaks>
 ```bash
 magnet:?xt=urn:btih:F44284F14CC8A427B2D6784C8D58366FA105005E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43E3860F0CBDA188C5739865A54F224881DB302F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ David Wright & Carys - Prophecy (2017) [MP3|320 Kbps] <Electronic, Ambient, New 
 ```bash
 magnet:?xt=urn:btih:D744E7F1FAF8D367331B897C3E40C9309DA0BF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B082D6DDFD154A843614E98035BEFEB904A7D253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:570A9FC397B42EF9545016E9A7A0C7D5399DF6AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

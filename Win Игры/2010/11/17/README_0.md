@@ -19,8 +19,7 @@ Rainblood: Town of Death (P) [En] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Witch in a mirror / Ведьма в зеркале (P) [Ru] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Runaway: A Twist of Fate / Runaway 3: Поворот судьбы [Ru] (RePack) 
 ```bash
 magnet:?xt=urn:btih:8BA08A8AE71BA04D122B2CC3F58D8084C41793B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

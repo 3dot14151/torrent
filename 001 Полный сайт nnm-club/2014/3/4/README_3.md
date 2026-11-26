@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:707D41E0C360A6DF5EA7E90D350AC1AD512CDE5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:161D475DA40810692763F12656F1487AF249C888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Pink Floyd - From Abbey Road to Britannia Row - The Extraction Tapes [unreleased
 ```bash
 magnet:?xt=urn:btih:C900088F9A2D4045D4EC86FC716E9C0DF8217D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C48C8328D5793FA7664B6A6EEA22D3B801A5F348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C072A6F9724852B9DAD4AE1F5EEC9246C56DFD10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70840C70EE015C983AC221A50354E1318C9D0A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Google Chrome 33.0.1750.146 Enterprise [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AF3FA0521A0C02DDFF103534C22E125769C14794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Noir | Нуар [2001, TV, 26] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:34382FF93646A8968BDA7B520B70A02F22F73830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67E52ED3FE3CE8EC9188B1CFD2B1FE68E6E1608E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Discovery: Уличные гонки. Выпуск №3 / Street Outlaws (2014) 
 ```bash
 magnet:?xt=urn:btih:114832E1AC10B840D02B829E6C4D12F4042F2AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDA54359AB589408B0DD72087A82918495CE178E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Law & Order: Legacies. Episode 1 to 7 (2012) [Ru/En] Repack Audioslave
 ```bash
 magnet:?xt=urn:btih:971290CAB6DC3675DB9AE8D7EF868A770ABAAC41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3F8631BC1C37ABC3058FE3FFE172A3BE4F11D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E568B0F94F787902C1C6755CAA50D7E1BA6C32A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Stick It To The Man! - это логический платформер в му�
 ```bash
 magnet:?xt=urn:btih:AD5747A414B2E9D2C0675D0A0A61F5D5B66D0288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8B20E3A8171240DD5A50EB5BCEE683A7CD8AC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC3A0AA6CB84A81F9CEE91306604912C553F546E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ Noir | Нуар [2001, TV, 26] BDRip 1080p raw(в данной раздаче Т
 ```bash
 magnet:?xt=urn:btih:CF650777CD6D1501F449AA1A2DDD61F44F23A02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ iTunes предоставляет доступ к фирменному онла�
 ```bash
 magnet:?xt=urn:btih:E0B1F454B2FA01FF5C0A65A954AF68EE4A3A1C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DF6E61052E651A8CFC07C90464A3CF6265C1DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26503B0C4D25B3353491AD970C0DEAD3757094B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB9E1507C46296B71962239F57D97644676BAD9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +585,7 @@ Advanced System Optimizer — пакет для настройки и оптим
 ```bash
 magnet:?xt=urn:btih:D5A20FDC523B0597AAF36024B19A9BF88624BE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A8C30BA8CB5AC82B8F0A203437BA709C1F039F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ WinVICE 2.4 (64-bit) [Английский] (2012) [Commodore 64]
 ```bash
 magnet:?xt=urn:btih:E83EEF4CDDE16346DE5DA7C1CC220071735F5197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

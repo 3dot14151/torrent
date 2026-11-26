@@ -19,8 +19,7 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 ```bash
 magnet:?xt=urn:btih:D828B187AC58504ECF266FDDCD7AEB3473DC75A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:65E8BC7A540EDFE63AE470FC8C2150806E0B843B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:3547DA618B86FF63BCC0FB9B94A1F76CD99BA985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ CoolUtils Total HTML Converter - это решение профессионал�
 ```bash
 magnet:?xt=urn:btih:2FCC40A91E93D84171906D6B70A21ED2C1BD5F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1ADB4C248BD93C98840609FE8CB34D826E1A02D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ PrivaZer – полезная утилита, которая поможет ва
 ```bash
 magnet:?xt=urn:btih:48C6CF0C5E18EC87E937B97C47FD8BC144779F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ InnoExtractor - это мощное приложение, которое пом�
 ```bash
 magnet:?xt=urn:btih:CE69EBC03B680FB1326F532533118E61314DD73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Hasleo Backup Suite — это программное обеспечение д�
 ```bash
 magnet:?xt=urn:btih:9BC0DA400A89A1586A1164B89539B74B2469711E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:C4B49E5CEC673377330B2097E26B2FE617621C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Everything – это поисковый движок для Windows. Everything
 ```bash
 magnet:?xt=urn:btih:51B3D7EC40DFDA6FC650A7E18AE937ACE28FA8BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13F48A582B064CA1D294FBC8BDD2AF5BE6204C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ CPUID HWMonitor - утилита предназначена для монито�
 ```bash
 magnet:?xt=urn:btih:272B2A4AC405E1D60D07DF4A2675DD48566B88DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:5B0D27CF4AE65505D6B93E16D5C6B7CA859415FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Dont Sleep - утилита, которая временно может откл
 ```bash
 magnet:?xt=urn:btih:D92B631FCCE35948B42991F789D6BC8C9E6BFD50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ R-Studio Network 9.5 Build 191733 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F290597FDBB8F4635C6CBD1C29A06C84C91AFF4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ WinCHM - небольшая утилита для создания файлов 
 ```bash
 magnet:?xt=urn:btih:6B805CEF07AFF7B576C2E1812F18AB937BE49E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ WinNc - файловый менеджер, обладающий широкими
 ```bash
 magnet:?xt=urn:btih:218651193CA6BC51F7B7DBB5D24001A76A3BB589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +446,7 @@ MediaHuman YouTube Downloader 3.9.19 (1803) RePack (& Portable) by Dodakaedr [Mu
 ```bash
 magnet:?xt=urn:btih:CB88A804ED5FF9B7DD2C96FEB70CF324A3695871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +471,7 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:2CF2C4A03BBD8BDDA3B55DE92C7C6C8D02529671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +496,7 @@ PDF Candy Desktop — универсальный инструмент, кото�
 ```bash
 magnet:?xt=urn:btih:F8B3078E1EA90703FABE4AE1364288027EB4FD77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +521,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:AF7D711DA6CC905C101AA034A8A13258E8D0FA5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +546,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:808709041BD2A620EC0AA4DD5DF3F2FD923E3EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

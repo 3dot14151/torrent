@@ -22,8 +22,7 @@ A1 Дай Мне Знать • Let Me Know
 ```bash
 magnet:?xt=urn:btih:07FA5B246CBB4422FED57DF59995F39D298C3D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD-1 (42:51)
 ```bash
 magnet:?xt=urn:btih:3A0BDBB5480F0ADADC367CD76B2E444F63CD6611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

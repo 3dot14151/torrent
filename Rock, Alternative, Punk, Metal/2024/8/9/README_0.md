@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:2477A56CE809752BE03DB374364DD885E9E6DC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Mantle - Violent Cosmic Fortune (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ```bash
 magnet:?xt=urn:btih:2BD7AFBBA83F8DC61B332FC7F6F121D20522A984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Kaisas - Ieria (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:18542F7DFE0B5B78404ED97B24A0690F21A5A153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ A Rising Force - Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BCC74E6887CFC38DA5A1CFE75E0C4B8AAE5EFE79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Avi Rosenfeld - Black Rock Mountain (2023) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:019A2DD00FAD7A42F8EF96F386DAF33D94E38398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34E93243B21286FCA254CAC8C635B6A0A4687F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ HammerFall - Avenge The Fallen (2024) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:43BB64DA319D01A16A28911FD09CA761DFCF87CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

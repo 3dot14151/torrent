@@ -22,8 +22,7 @@ Katana - The Greatest Victory (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:07E0C99104BE75EF594AEEC3F8DFDDD5FAFA4EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7E30FB58E588A0ECA44880A9C95536B63EE48A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Fish - Internal Exile (1991) [FLAC|image + .cue] <Symphonic Rock>
 ```bash
 magnet:?xt=urn:btih:F179689DCDE2FEF7D54750B3D44120A169617BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Slade - Live In London (1975) Bootleg [MP3|192 кб/с]<Rock, Hard Rock, Glam Ro
 ```bash
 magnet:?xt=urn:btih:62FBD908A7C4490F10B233B83A5B637CAD4427E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Suzi Quatro - The Girl From Detroit City (2014) 4CD Box Set / Remastered [FLAC|i
 ```bash
 magnet:?xt=urn:btih:F91EAB224767D0DBA7970B04D02E5705149A7C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

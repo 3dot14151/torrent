@@ -22,8 +22,7 @@ A4 Julius Caesar • Юлий Цезарь • Julius Caesar(   Читать д�
 ```bash
 magnet:?xt=urn:btih:67E1C65C1F5E494A5DF63AB8C119E5601604869A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dict Box - Английский словарь v8.9.9 Mod by Alex.Strannik [Ru/M
 ```bash
 magnet:?xt=urn:btih:6D9FDA53A71A2A9484A43B4482F8356551E63648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

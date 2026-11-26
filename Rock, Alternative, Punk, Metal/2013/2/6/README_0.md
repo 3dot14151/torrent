@@ -24,8 +24,7 @@ Black Leaves - Ivy And Moonlight (2005) [MP3|320 кб/с]<Folk / Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:2A1F92DEEFBF5E56C0719A798AE2E3DECDE5DF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Rave The Reqviem - Reqviem V1.0 (EP) (2013) [MP3|320 kbps] <Industrial Metal , E
 ```bash
 magnet:?xt=urn:btih:6E05AD1B5E6CF7BFAFFF0905929A9EBC51A10D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Zeromancer - 6 Альбомов (2000-2013) Дискография [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

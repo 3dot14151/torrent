@@ -18,8 +18,7 @@ Landscapes HD Wallpapers (14.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:2D81F057CA019A7126242BD44F9A36E8506EF011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Landscapes HD Wallpapers (12.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D9BE9E0556774E9247E0C380FC6D5D4238691455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Verdunkeln - Weder Licht Noch Schatten (2012) [WavPack|Lossless]<Atmospheric Bla
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3132BF6DBB7213A159D697503E1D78BC76F6E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Computer Desktop Wallpapers Collection (14.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:8C5D959BA3DECF7C30EC0D9E3C4B450CC65379DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ ZHAN - Record Club 892 (06-08-2012) [MP3|320 кб/с]<Electro House, Progressive
 ```bash
 magnet:?xt=urn:btih:62AEA5AA6505AC082372C36678FEA7EC38870BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Ah Nee Mah - Ancient Visions (2006) [MP3|320 кб/с]<New Age, Native American, 
 ```bash
 magnet:?xt=urn:btih:6542E08DFE77D0050BCEDFEF1B20CA4063DFA42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ Ad Patres - Scorn Aesthetics (2012) [MP3|192 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:C263FAFDC567A996F3E4E73B109A8956321DB6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Helldorados - Helldorados (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:084B6625F4EE3EFC1E9FAD44AF2087904844C016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ Best HD Wallpapers Pack (14.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:383996D0BA3F97AEB7A1E3B68069B39CB959A9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:554ED6A91DC9F2468A59AB712714C100695E2261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:387E6C9743A6BB4B1DF7F3B24F7CBFC2B61DCC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ VA - Клубные Новинки Vol.112 (2012) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:6626FF35E06A755A214E913FFE283D1358068A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ Nature HD Wallpapers (14.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:C7FBB3565393D40ECE550EBB07CFF8EF72EB3563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ Landforge - Servitude To Earth (2012) [WavPack|Lossless]<Atmospheric Doom Metal/
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F4B57257DDCFBC249A2C814E88C463D902B4415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ Stallion Four - Rough Times (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:25DF7FFF1E395112E1077664187D1E136BAF893A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF1BF203BA0F23EE6587C99B32449BDF8769A3B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8BC92362C66203DA078F0DEC726B60C8D393CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAF93FAD19BAC8081C7505BE25C63D75DFE285B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D7614E9601A5AF4A22733801E6ADE96C147A519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C3372DA7F2F6BE0FA1E77D8AFA017816F4F32D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A33A4BCF27037623BE1395FD3E7E66303580274B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C0F3FA126808F944DCDEC1272826CD5866AA666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +728,7 @@ Tiёsto - Club Life 280 (12.08.2012) [MP3|192kbps]<Trance ,Progressive House, El
 ```bash
 magnet:?xt=urn:btih:B709CEAC99960770F94640FB8E4D66ACB621F72D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

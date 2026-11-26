@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E95697C53C4B1EC26746A62F5372381DD6BFFB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7292D2B2D2940A14DAF31C2A752BA29586FF26D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59075F6C3C86527778099CCC5E6B14FCE8515310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EE6005C31EDB3EAEB3DB65B3E43BA2D17322B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D77BDDCB6E75DD890D734CC30665E780B49F89DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F04E0CB12B7154EE7CB36060EAE53DC9092D572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ The Casualties - Chaos Sound (2016) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:78E4DF4FE67977D605C860C193F95F6C2926E2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Mozilla Firefox 44.0 (Яндекс-версия) [Ru]
 ```bash
 magnet:?xt=urn:btih:5475C9AFFB483F092AC66FA9C23C7C44B0B17624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Maxthon Cloud Browser 4.9.0.2900 Beta + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:43DDBE51B818A0945793B6BAFF14F94C2EF764E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Advanced SystemCare Ultimate - включает в себя проверенны
 ```bash
 magnet:?xt=urn:btih:34E74B89CEC9DDD398C0EA2FAA5B0709F881BBD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F08EB08AEDCE6A2FC03F924077DFA4F9605D891D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Avantasia - Ghostlights (2016) 2CD Digibook Edition  [MP3|320 кб/с] <Power Me
 ```bash
 magnet:?xt=urn:btih:77FB88598F013DA81B6A6C27828BC01F1429AE97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:8276C2736A10EE1FAF5FE378D17DAE7342935145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7320A399F667DE61488EF4305D388967357EF509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EA6F758B5FA78C80AE6513D5A3D418D1A4F920A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:04E3285A0D6BE5B3143D6E1650C82CEB9BDC5B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9420AA79C6EF3296DAA41F3E2B7CEAE64BF59C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91D7872C82C3E15CFC6BA33F14CCAB2FE525950B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ Tritono Blues - Tritono Blues Plays Ray Charles (2016) [MP3|320 кб/с] <Blues 
 ```bash
 magnet:?xt=urn:btih:BB039EABD1C55B891822F9B566D721B23803B4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED8FC05B12A8E05CBDE88A51206C9002B10986EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B54EA980E42851C795FA52D421256858D8E16E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3512DEF366F9D7D540D47DCB3726EA4B8519F346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ Videos (With Optional Interview Footage):
 ```bash
 magnet:?xt=urn:btih:8DCB111CDBAA5AEE58A8CA4A8840AEAAE8C168AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EACDD5C77D789ED538C9A6B0B9BCD1968C2E4710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +634,7 @@ pdfFactory Pro - удобное приложение, представляюще
 ```bash
 magnet:?xt=urn:btih:951F67A230BF35C342897C0B599CCE9B1CD75561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:706B810F2569D987D7217CD3E692D8BAAC632DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

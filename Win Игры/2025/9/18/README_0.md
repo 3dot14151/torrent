@@ -19,8 +19,7 @@ S.T.A.L.K.E.R.: Зов Припяти – прямой сиквел к S.T.A.L.K
 ```bash
 magnet:?xt=urn:btih:69943F308EB968677BC1853D94BDDB548C409CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Witch's Cauldron - это мрачная история, в которой �
 ```bash
 magnet:?xt=urn:btih:78F85A66E7241DBEB6088C3790D00A6E870B22BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hordes of Hel - захватывающая игра-рогалик с элеме
 ```bash
 magnet:?xt=urn:btih:0DE0248C292D805EC4457569610E13A2886F207D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Songs of Silence погружает игроков в фантастически
 ```bash
 magnet:?xt=urn:btih:E701B6C0CE92F0AEBFBB2849CCAEAD32A9BE97B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:AEBC9CF86F851755BA395E7D02421892B27A9566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Shadow Empire (2020) [En] (1.27.00/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A8F26532B5278F7C9116ADDBD96C5916DD5CD1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Door Kickers 2: Task Force North (2025) [Ru/Multi] (1.12) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2DF8A782E6602DA35353EE5DE336F0AF77D5FEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Terra Nil – градостроительный симулятор-песочн
 ```bash
 magnet:?xt=urn:btih:E901C8009950C4616AEA01E94145FAF9F233FD5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ TerraScape позволяет игрокам осуществить свою м�
 ```bash
 magnet:?xt=urn:btih:7E21C6459A2C7C126CF4DF82F0C1410A76818CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Stronghold Crusader: Definitive Edition (2025) [Ru/Multi] (1.05) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:9664D6A6DA305E06AD54EC0F04CECB290CBFC06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EE558C27DEA3CD930E8E18DCB7CAA9DD1491B702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 ```bash
 magnet:?xt=urn:btih:D4C652D975A8D1BE3A8A7B8B9E4E5E67055D9859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ The Precursors / Предтечи (2009) [Ru] (2.2) Repack Foxx [ReBuild]
 ```bash
 magnet:?xt=urn:btih:8A4F7C6025735FCC8BF3B7493BF7090B6AFAFF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Rising Lords представляет смесь стратегии с карт�
 ```bash
 magnet:?xt=urn:btih:16F344194D18E1F980BB2F66EBC3520841138B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Shape of Dreams (2025) [Ru/Multi] (r.1.0.6.2_s) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:52313D83A070DCDDDFA83B5A9ACB7E8A05EE7CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ S.T.A.L.K.E.R.: Clear Sky (2008) [Ru/Multi] (1.10.0.26261) Repack Let'sРlay [En
 ```bash
 magnet:?xt=urn:btih:14A8F607C4345C35BB733D1BE83369A2748364C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ NODE: The Last Favor of the Antarii (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8C13D32F151DEDD9B7B4370B4AA35C5F7AD59F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Formula Legends отправляет вас в увлекательное пут
 ```bash
 magnet:?xt=urn:btih:C110701B42F338263A4BE8B715D8A1D0097D01C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Daemon X Machina - это постапокалиптический экшен-ш
 ```bash
 magnet:?xt=urn:btih:73D604FE1B392B6268841E20851D457F82A6361D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ El Paso, Elsewhere - это шутер от третьего лица в жан�
 ```bash
 magnet:?xt=urn:btih:BFC7B616D0FEC10B4825A8C9062A66FF10280254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

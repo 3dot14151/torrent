@@ -19,8 +19,7 @@ Hitman: Sniper – великолепный тир с известным по с
 ```bash
 magnet:?xt=urn:btih:B06710EBD410DD3E025434135D6679C609880775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

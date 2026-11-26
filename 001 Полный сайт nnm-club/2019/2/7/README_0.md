@@ -18,8 +18,7 @@ Tiny Tales: Heart of the Forest (2017) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:F0C37B04715F9CB46A0DE46CDB98FF6B0CF1B552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Herman Frank (ex-Accept) - Fight the Fear (2019) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0584865B22487C480B321A19375F75F4D85B7094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Acretongue - Discography 5 Releases (2004-2019) [MP3|320 Kbps] <Industrial, Synt
 ```bash
 magnet:?xt=urn:btih:A1B296B9B609BDB5CCD777AD9687383371F7F290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Front Line Assembly - Wake Up The Coma (2019) [FLAC|Lossless|tracks + .cue] <Ind
 ```bash
 magnet:?xt=urn:btih:A322782F53A9C9933373EF1382E22FCA5B7169EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Dark Dimensions 8: Vengeful Beauty (2017) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:308AA55BBD535DF6B7CA191385C75EFA9273230A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78B32F870EE1E1689984CF808158FF00E4D2908D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:829C387A539972B86D4092CF69E3EBD084E2E8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1900B2D650847B14DFD418E6F99E3C5FC6E4F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B674681C4C4A012A7749773C837E9B1C54D285E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ VA - Discomax (Mixed by A & A Mixmasters) (2012) Partially Mixed, Limited Editio
 ```bash
 magnet:?xt=urn:btih:64DCFB536C95DD73824CBE88FDDE2CD78F9D81F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:1FE55526122FB7495CDE1D812AEFA617D7AF8CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ VA - 150 Best Songs RnB Nation (2019) [MP3|320 Kbps] <RnB, Soul>
 ```bash
 magnet:?xt=urn:btih:CEF47192E9956779469208B5EE940973ABEC9B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Loaris Trojan Remover - средство удаления вредоносног
 ```bash
 magnet:?xt=urn:btih:7E9F05040AF10C1064398E73B214093489BC9F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Nektar Technology - Bolt 1.0.1  VSTi, VSTi3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:BB692691B8A5F60520E5358DC40B6B3071AFCAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:7C2C68D664FB5829C4E2E5D3071AF02659E4F368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:B7E0B02EA9B63063FE585742F6DCD4CA3882C566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Soft Organizer Pro 7.43 RePacK by KpoJIuK [Ru/En]
 ```bash
 magnet:?xt=urn:btih:20A401D89E3B94D103ED1CD049D2A5B36CB42D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B727D88880CD5134AD8185D1A3BEE5BE0FB0197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24AA791CAF727D50A099797F59495E54B76FF141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60D553107A0E8B5F3EA34D3095CF4BF09414BB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ Tom Holkenborg (Junkie XL) - Alita: Battle Angel (2019) Soundtrack [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:B7C4D15BE6545D09D92BF56B68B68162DEFFC2AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ Macrorit Partition Expert Server – инструмент для работы с
 ```bash
 magnet:?xt=urn:btih:1316E16E0D6F4572090409A0788786FD1B0F7D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ SQLite Expert Professional – мощный визуальный инструм�
 ```bash
 magnet:?xt=urn:btih:F18FEA5C77A1E776E7DB702F6590F35619FFECBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:53DF17B15B5AE91BB80DA9A84A727945EB8E2EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:EA29E3A617B6E0CF0F50B5BB6265EC620B0D7683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83D9E5956C0170EB5A1ACFE2199534AF8C1D5277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

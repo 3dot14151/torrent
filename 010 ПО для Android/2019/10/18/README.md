@@ -22,8 +22,7 @@ En32 - это продвинутый курс изучения английск�
 ```bash
 magnet:?xt=urn:btih:C0DD995E3C8F6717F50583E49DC1072973083A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

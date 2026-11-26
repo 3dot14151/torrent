@@ -22,8 +22,7 @@ Paid Charons Fare - Mourn (2015) EP, Release 2018, GS Productions [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:C51BBBED34128E5550B48557D654BA78A2CC64CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Squealer - Insanity (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 ```bash
 magnet:?xt=urn:btih:CA0946D10D61667FD0BDB35444D1643026E8D8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Comaniac - None For All (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C77CBDDB9630E1A3EE6050CCF59300EF41F1A14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:024A4A10F04C22BEC06A3A86C0DE463731B69BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Powerstorm - Act II (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:E500C00F07A50C6015D4C586C12C0178A9601E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Edge Of Forever - Ritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FF4FA3E70B6F0C96CC4320399C84300BD834F39B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mors Subita - Origin Of Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 ```bash
 magnet:?xt=urn:btih:B25FEE5440C741841C662A7E9A61C3CE1FA14928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Eagon - Equilibrium (2023) [MP3|320 Kbps] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:8ECCBD9F30E9853448905109EC5CD60AA54428A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Entrenchment - Silence After Us (2023) [FLAC|Lossless|image + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:CA8AF98F7909153D81BC42D48C59B71E38C1FA50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Blade - Joker and Clowns (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:00E4804B220A06072BBBFACB39020A667191C570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Terje - Recalibrate (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:0841C97218206D98A03F38343D09DE5D3F04084B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Theocracy - Mosaic (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:065829B4D2D24F848184C7763FEEE3F455CDF5DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Blessed Curse - Pray For Armageddon (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 ```bash
 magnet:?xt=urn:btih:A0D953869C2FA03DE32070DBB29BEF156AA5088E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ U.F.O. - Lights Out In Babenhausen - Live 1993 (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:4D52CD2E23D1C5C82BF39E978D67B6D0CF457575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ The Dear Hunter - Migrant Returned (2013) Remaster, 2023, Equal Vision Records [
 ```bash
 magnet:?xt=urn:btih:47A11EB5130BE52FFEB40FCE60E8F000314F936D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Poppy - Zig (2023) [MP3|256 Kbps] <Electro-Industrial / Electropop / Female Voca
 ```bash
 magnet:?xt=urn:btih:E60A54A5F765029F7D0A2A0269C6FD96E7009C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Stan Sakai | Артбук по комиксу Usagi Yojimbo / Usagi Yojimbo: 35 
 ```bash
 magnet:?xt=urn:btih:1A4673C07C994F11439576FEFFBFCE71B2FD6885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D07F4BACA92A3CFC841395265F9BE63B411BC6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - 100 Greatest Happy Songs (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
 ```bash
 magnet:?xt=urn:btih:8DDBA420DBFAAA4A116FBBAE88DB567689D91A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Ozzy Osbourne (feat. Elton John) - Ordinary Man (2020) Single [MP3|320 Kbps] <Ha
 ```bash
 magnet:?xt=urn:btih:1608817C6791B1453C198AF03F8D4F991B256F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DB3752C4B273F4E105B65A7DA572DDAF5B14DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Secret City 4: Chalk of Fate (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:5781722331720D3E4A5FC491A1CDC8D96E8968EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Adobe Flash Player — плагин, предназначенный для вс�
 ```bash
 magnet:?xt=urn:btih:926E9F54B75E2470B5138789B07594CB27D8978D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Wise Data Recovery - утилита, которая позволяет быст�
 ```bash
 magnet:?xt=urn:btih:78DD3349BD2BDDF418390B47E314FF1E9EB10377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B56F8FC7AF856638605DD211B0BEDCDD9D2EF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:D435F2488C9C54CB5278849075B1AF9FF85B8FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:294D1B56E3ED3E047E6ABA5273540086ADBEE4D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ ABViewer 14 - программный продукт для просмотра г
 ```bash
 magnet:?xt=urn:btih:60A63FB52BF2367CE8A89B883A63BC3381B3609A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95B4DCAA925F5202CF0166E7DA07354F805013B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Freedom – еще одна прога на Андроид для любител
 ```bash
 magnet:?xt=urn:btih:62DA426D391D331717D06D197DAFCE5F0D80983C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7B79721420583C08B3DBE5CC3055EDA5C3BC82F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ Google, Facebook, Spotify, Uber, Amazon, Netflix, Tinder. Эти компани�
 ```bash
 magnet:?xt=urn:btih:2C0DD175C940334764761E3762FC8931D3F0D18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ Google Chrome - включает в себя множество функций, 
 ```bash
 magnet:?xt=urn:btih:BC27B22E6EBCCC8A77F87DC856194C8FCE42F695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55A0F05CEDA067F944E20CFDF759529C8B947E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4609D01D77B49232E8850F886F3C2D45D595318C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:392769772A57E65F3109190C6C3CC4A2A20F3B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CE6D4CA3BC525D2DE64309CC0BEDD91BEAFC67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0931A6AF87E73D2CC4F4DD3B87A0841302CB6A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ Nikon Capture NX-D 1.6.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4544AA9D31418C1AE5258027C9ABC043E333D862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17AAAED2EC9642792EF42860A914C42A485B5E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00A630A78D82B9FD15D3858D8510CAC7E0B10657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4CF7B406B7CF3BA2B426B3649B6477592FBB9E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

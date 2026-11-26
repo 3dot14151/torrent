@@ -22,8 +22,7 @@ Centvrion - V (2015) [MP3|320 кб/с]<Heavy, Power, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4615DC93DEF923FAA98C5CE6BC62CB680D03B380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Out Of The Earth - Out Of The Earth (2015) [MP3|320 кб/с]<Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:38E48C53246CA188E9FE87468A917F7C1AE35BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rehab Allstars - Feel The Blues (2015) [OGG| 521-558 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9F5E12F159DBAED59D2552A331CA98F151A24FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ THR3E - 30 Day Hop (2015) [OGG| 505-529 кб/с]<Rock'n'Blues>
 ```bash
 magnet:?xt=urn:btih:94EB93649F10A8EEE84E13E685FB791EB34BDA38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

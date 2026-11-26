@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:37A30D35A2196208629EF76C285A4100A7C1601C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ S.T.A.L.K.E.R.: The Priboy Story [WineSkin]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Mentallo & The Fixer - 19 Albums (1992-2012) [MP3|155-320 kbps] <EBM, Electro-In
 ```bash
 magnet:?xt=urn:btih:1EEAE8300C0E18EEB38B97F9DD31CD318E71D3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Warp [PS3] [PSN] [ENG] [NTSC] (2012)
 ```bash
 magnet:?xt=urn:btih:15B2E61A84ECCF070ED55422290D87942378311D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE124E8FB8634028E2B4E0CA4EAA4E1296E3D142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Conflict: Desert Storm / Конфликт: Буря в пустыне [Ru] (P) 2
 ```bash
 magnet:?xt=urn:btih:47E65DECAD9FDB9232CB4DF23C862EB0EC4996EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDBECD6AEAAA903A94F2AD4E2C5CEC1FD5A22947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0ED684F3029EB4CEFE380D656A5D9753DEC0832F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:437B3AF5795206C375D2C5B650BE9911F6C264A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Killing Floor [Ru/En] (RePack/1043) 2012 | NSIS
 ```bash
 magnet:?xt=urn:btih:020532CDCB99309CD904F178654ED5CCFAF03665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Anna Tsuchiya - 7 альбомов+ 11 синглов (2005-2012) [FLAC|lossless
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CF1087F36BC569B63081FA6896209E264B13030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ uTorrent 3.2.2 Stable (build 28500) [Multi/Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ Resident Evil: Operation Raccoon City [PS3] [RUS] [PAL] [3.55] (2012)
 ```bash
 magnet:?xt=urn:btih:07645AC7FAFC10A29744A9D469FBAB1D64B7F712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ I Am Alive [Ru/En] (RePack/1.0) 2012 | R.G. Shift
 ```bash
 magnet:?xt=urn:btih:CE03B1BF4042A8E497B22AB44CDD2F9E684AA2E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Magico / Магия Древних (2011) [1-66 гл.] [Манга] [Русск�
 ```bash
 magnet:?xt=urn:btih:1FC343E535C9E1F9DA3A3C13017F050A6C45639D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D185C5CEAE6A31077709F9F920729F6EBE8A91D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ KMPlayer - это универсальный проигрыватель, кот�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ Fly'N [En/Multi5] (P/1.0) 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:5CFFD6CB981EFC9D9CDCD2EF1C8E8B7A7101563E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ Emergency 2013 – дополнение для игры Emergency 2012: The Ques
 ```bash
 magnet:?xt=urn:btih:6CBFDF25DA93E7CDC60988A8F01A9A094AA9A3FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE96A1F68098670847333867E9F832173C123564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ Yandex и Mail.ru. Война началась?
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C695DFF6D4BEDB031AF13DA1D6C33004C63D9142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

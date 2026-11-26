@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4D88B421B8B7FECEF816DC755B8C637DD02CE853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ David Arkenstone - Spirit Wind (1997) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:69D587D1CBC40A6C3F2A7C57ABE02CD438BBF94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Gecko Beach Club Formentera Vol. 3 (2014) [MP3|320 кб/с]<Electronic, Lou
 ```bash
 magnet:?xt=urn:btih:4E657E63EFB5E03263DF6B7A99774C3CFFEAB84C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Fashion Lounge Milano 2014 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:90A79E2C18AE41AF1D46326BD4EFB65B5732E6F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EC3338F9303A281A6FEA933F6BEBAE0B8F42583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BE35C26F6D8BF72C7FA4F258CCB5174160611E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ Leaf выполнен в виде старого доброго Tweetie  — о�
 ```bash
 magnet:?xt=urn:btih:59004094FBE9912DE343E13073014206BD1ED6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ Sudden Flames - Under The Sign Of The Alliance (2014) [MP3|320 кб/с]<Power/He
 ```bash
 magnet:?xt=urn:btih:0F9565D1DDE231A6A47A62B0CB326065B16F84E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3602F9640F47C0055DB0649EE11844691847FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96398ACBD02173ED1FCD2E65BBF128AAC4641D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:ABD6CB84384D3D1BE857F00EDEA5C86C6740D0D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ Shaquille O'Neal - Shaq Diesel (1993) [FLAC|Lossless]<Rap>
 ```bash
 magnet:?xt=urn:btih:6C3E015FDC53CC4F028B87716C932E02ACCAA250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Falconer - Black Moon Rising (2014) [MP3|320 кб/с]<Folk / Power Metal>
 ```bash
 magnet:?xt=urn:btih:98BD7DA504A7B24B84E13A6820297B2A320BD65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC907028C8E70144B74F0A73D5574A3D7D7074C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:461ECD8D192384788F929CA2813B038D1D046614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ Armin van Buuren - A State of Trance 670 SBD (2014) [MP3|320 кб/с]<Trance, Pr
 ```bash
 magnet:?xt=urn:btih:2D54DBA600BF8B5B2FE20DFB584C49A1672D6D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E427B9391D1229A194D69FFD2F8142268AC95146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ Process Lasso – уникальная программа, разработан�
 ```bash
 magnet:?xt=urn:btih:999A30D4E44DFCCDE3A49FFC3F61732D5CBF8823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2130F085C3AD899AE4C2A712BD535CAA4B8A469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCA688EC4F8DDCC2DAB6247285EE2AF6F401AAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +599,7 @@ VA - Отдыхаем с любимой радиоволной Шансона (2
 ```bash
 magnet:?xt=urn:btih:1F30A8C1681FEC1D7E3678A6D1908F0944FFA5BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +633,7 @@ VA - Cafe Retro (2014) [MP3|320 кб/с]<Lounge, Jazz, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:4BD1CAD69D8F1A5CBA44DB7821FA470F2835BBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E6E731AD0450877C106883910A4B55886A76539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDCEC3E987C3451C88F5CD43C6D13523D471DF62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ Andwella - 4 Альбома (1969-1971) Reissue, Remastered, Papersleeve /2004-2
 ```bash
 magnet:?xt=urn:btih:525DEF28F1F456240CE3D7F1CFF7245151A613B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C8854FD550E454EAAA999338B73BA0B6B8BFD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

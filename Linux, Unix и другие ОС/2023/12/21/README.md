@@ -19,8 +19,7 @@ IntelliJ IDEA – это ведущая среда быстрой разрабо
 ```bash
 magnet:?xt=urn:btih:766A7033CD37B9D08EE93E58516C3E200EAE3E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

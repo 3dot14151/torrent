@@ -19,8 +19,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u8) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:1D434805980373987F5A55762D2726A1473CCE8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Casino inc. [Ru] (P) 2003
 ```bash
 magnet:?xt=urn:btih:F38090AD76DCC0C852EA12A87E32CA4D3BEDFE1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Gladiators: Galactic Circus Games [Ru] (P) 2002
 ```bash
 magnet:?xt=urn:btih:7BB95247662C783B8869F97AF47C4F6116F797E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

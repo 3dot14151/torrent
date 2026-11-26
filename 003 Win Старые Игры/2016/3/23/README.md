@@ -19,8 +19,7 @@ Nelly Cootalot: The Fowl Fleet - это приключенческий квес�
 ```bash
 magnet:?xt=urn:btih:A8102C5BA574D3880611F9E62B891FF18A9F3F62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Burn / Пекло (2007) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:B4510F71CC8F58ADB039039E0C8EBC54F8B0715B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Tell You What Now - Signs Of Life (2014) [MP3|320 кб/с]<Progressive Metalcore
 ```bash
 magnet:?xt=urn:btih:F56ED8581A2055B45F2EA4A39EDFC4CA6E30EE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Axenstar - Where Dreams Are Forgotten (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:917AB9531FB96CCFEB9B3334E0EBC09D14BD0A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Boomerang - Boomerang (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5416FB77B57BDDE779CE8BC41EAB16A6F2C2D344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Kehvo Kings - Fooling Around (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E67EC589EDC4024D425CA8FE3C2416E8037415CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Conway Twitty - Conway Rocks (2003) [MP3|320 кб/с]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:9F31DD44FF1E217A9728B278D91D00724C873C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5CE332F6CE4ECA78E465B84792642A0F80D7F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:636DA5ABF4778ECFD4CBBDE3AF564A1077517B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ CD 1: Elements
 ```bash
 magnet:?xt=urn:btih:7473D84E7A0009A838189B616B6A798D76C72739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

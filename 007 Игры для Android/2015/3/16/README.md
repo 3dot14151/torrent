@@ -20,8 +20,7 @@ Sonic The Hedgehog 3 это третья часть известной игры 
 ```bash
 magnet:?xt=urn:btih:08442FC6A070322DE6E95BA50E097C5F386A0668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

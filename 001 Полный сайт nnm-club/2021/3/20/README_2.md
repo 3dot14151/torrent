@@ -21,8 +21,7 @@ Georgia Randall - Hound Dog (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:84304C8BC45A366CC1E4E6DEAE9111ACD86BD29A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Never Monday - Made for Sinners (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:8FEBE3DDB60FD3B169D6AFD51FD8B0DFBAC1CD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:408629DBA8243F6DD65B19EB48A45F21C0FDCD3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:883D947B6B51030E0D767862D64DE37045D63D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B71CD9F4379481FC07702DBCE99044EE840170C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Noonday Axeman - The River Runs Dry (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 ```bash
 magnet:?xt=urn:btih:B65080E83C031D045F9317F90795F7B7E91120C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56A2DDBFCABFCFE760E53FBF53461B6E699D9659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 ```bash
 magnet:?xt=urn:btih:E2CF088060F5CEFE509A9D402115C6F7C98F7268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Chrome Division - 5 albums (2006-2018) [FLAC|Lossless|tracks + .cue] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:98B40711838D03BC156B03F4F81D3AA2AB1F9F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Adobe Media Encoder 2020 - это программа кодирования, к�
 ```bash
 magnet:?xt=urn:btih:9FB3D62DF14AD9CFCFC89CCE3062EBA42400A82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Johan Lange - Three of Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:103B5C8AA06E22A17783546B810ABB9C68106F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 ```bash
 magnet:?xt=urn:btih:82E6AD641A9C918892A5672A82278DC447D02FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:866242EDB43E9AD64FE829C75D7B74308A751E40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:876A3E93852F61895828C772653EF80F70C34239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ NIUBI Partition Editor Professional помогает сокращать, рас�
 ```bash
 magnet:?xt=urn:btih:D1F29523905474118005EC9EDADB543AB091054D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Adobe Premiere Rush v1.5.54 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3F7AF53C35D999D452104970DB21ED9A73083CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Blues Cousins - Poison (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:CD0E2330312E6805477F3E8879A9F5067C090A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C78E24251E32289B15DB37C70E3991BA9EC6E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Adobe Zii - это небольшая и замечательная утилит
 ```bash
 magnet:?xt=urn:btih:298ADABE7B4E8D2103C52E7D8F3A9B2FA69CDAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E15BA127CF33581F769E02EB862D182E9BCE3DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E100D7A3BE06C366D0964A9AEB2882EBDC438001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70BE693FF1E3A2B9C69496F87BEAFF18E5C512EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25F13862300C72798A3F39134547877B3A35ACD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21E239EE9B29FDDD305DA16EE03A91FCF1C11052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ First Coloring book \ Первая книжка-раскраска v3.0.2 [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:6E8E5E8592445FCB95539E8BF2FE03318EE785A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D035DC74CB565423A1FEC9DA3B4C89CFD254CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

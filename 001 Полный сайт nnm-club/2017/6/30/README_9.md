@@ -22,8 +22,7 @@ Ben Perowsky, Frank Perowsky, Sam Yahel - Bop On Pop (2002) JazzKey Music [FLAC|
 ```bash
 magnet:?xt=urn:btih:A598387365C99E79766D3B1E910C87D8BC812208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A5F6FA213C2AE490748CCF031FF6930F7AFB682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A267A0F8D70183FD0430D6359BCFEC7B23F7189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6814FC8E0A5ADAB106692D540E6AF0638E9B4D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Red Garland Trio - Rojo (1958) 1993, Original Jazz Classics [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:30DF667C09EDCAE9C6E5DFE4868E661C5E1F4898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Billy Mitchell - This Is Billy Mitchell (1962) 2003, Verve Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:8D5EA2460C258D85191EBD567F52401336ABA5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5EC308ED06823EA7045F21426433423CD58735D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Dianne Reeves - Palo Alto Sessions 1981-1985 (1996) Blue Note [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:AF1B438CDEA25A212761B767DCFBA4335AAF2387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17A54E3F72FACE0B4B3ACB75E8B07A34BC19FB9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFE1DAAF262A87F6A46B3EC0B2A8FE4F669E6C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ VA - Sunrise Mood Vol.7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:A8A550FCFB24BB26BAC507CAC0DC5C4CACD51858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Pacific Trance Vol. 06 (2017) [MP3|256-320 Kbps] <Trance, Progressive Tranc
 ```bash
 magnet:?xt=urn:btih:0A9C08FCCDA05745D96F7A14A8ED4DF74CBC1B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ VA - Dont Worry Be Sexy Vol.2: 20 Deep-House Flavors (2017) [MP3|320 Kbps] <Funk
 ```bash
 magnet:?xt=urn:btih:B17C12C524DAC2BCC6CA5C5204A4506A9BE33AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A47C0EF28C339F37F40C19986752AD57756F184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ VA - We Love Deep-House B*tches Vol.4 (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:88ED3E7DEF18C8055CCB89ECAB40BBE3A96F8755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE36FBFB8A5257D516F0E2199B9DF4E65797DEE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CE637CB48FF4A00534A9EAC672678B5F3819B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ The Acacia Strain - Gravebloom (2017) [MP3|320 Kbps] <Metalcore, Deathcore, Hard
 ```bash
 magnet:?xt=urn:btih:68B08876B4359619F7D0D5240A2CFB76CB02E212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ KiKroKos - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco
 ```bash
 magnet:?xt=urn:btih:B55C1AA6D78C6E4BAFA3B4BDC017145308A97776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ VA - Sensual Mood Lounge Vol.8 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:D15D509B8211095971684F7658B5F4463FDD9B4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ VA - La Bomba Party (2k17) (2017) [MP3|320 Kbps] <Schlager, Pop>
 ```bash
 magnet:?xt=urn:btih:ACEFCF23B7D3348B5826E8060923CA9B8BD3E58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ Paradise Frame - Paradise Frame (1978) LP [MP3|320 Kbps] <Electronic, Space-disc
 ```bash
 magnet:?xt=urn:btih:94D62D9447330E19012BE5727998C9284034B0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ Innerspace - The Village (2012) [FLAC|Lossless|image + .cue]<Progressive rock>
 ```bash
 magnet:?xt=urn:btih:984119136E3E8C53D951A14C562EED99AAFC1B5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ VA - The Legend Of The City: Club House Sounds (2017) [MP3|320 Kbps] <Club, Danc
 ```bash
 magnet:?xt=urn:btih:4095F6F062EFEB4FBB32877889D5B646E8957D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5E33E5C87481B821EA08923C6CB1E39098EED62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

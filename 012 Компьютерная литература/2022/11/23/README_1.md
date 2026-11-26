@@ -19,8 +19,7 @@ Astra Linux - дистрибутив специального назначени
 ```bash
 magnet:?xt=urn:btih:C03B02CF9D847A67DD24449C576A347BD8C5EA5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

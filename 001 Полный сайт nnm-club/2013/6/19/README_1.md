@@ -27,8 +27,7 @@ VA - Русский летний хит-прорыв (2013) [MP3|224-320 кб/с
 ```bash
 magnet:?xt=urn:btih:8552D1FF37404D2C7C6A787D53FA6D29FC35637E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Kelly Rowland - Talk A Good Game (Deluxe Edition) (2013) [MP3|320 кб/с]<Pop, 
 ```bash
 magnet:?xt=urn:btih:ED3CB352E9F8D0CBE97C50B8E8E2E30A29DE3111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ MediaCoder - это программа позволяет повысить ко�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C9156E68E8A19155A821C7F9922A2E2BF9C4BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Defraggler - утилита, предназначенная для дефраг�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A6B8C6959D8844D2D978278C19878174FB9D9EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Wallpapers - Разное №2 [JPEG]
 ```bash
 magnet:?xt=urn:btih:4C6C3BFD75F86F84495DE7EFE64F769D81636F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Greek Fire - Deus Ex Machina (2011) [FLAC|Lossless]<Alt. Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (19.06.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:FA382D5B899D1CCD267C972F342CBA84FD86EFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ Frida - Shine (1984) 1st Press [FLAC|Lossless]<Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ CD1  01:12:27
 ```bash
 magnet:?xt=urn:btih:0563B10AEE732660C191F7E0357CB1CD004A1603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ EZ CD Audio Converter - один из самых универсальных па
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ VA - Open Gate Trance: Travel 01 - 03 (2013) [MP3|320 кб/с]<Trance , Progress
 ```bash
 magnet:?xt=urn:btih:2708E6E7550EE2A7012BD5EFE28C0D0F4FE389A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ VA - Depressive black metal и котики (2004-2012) [MP3|~64-320 кб/с]<De
 ```bash
 magnet:?xt=urn:btih:0BECB9944FE253A067CCF57B9F57ADA4B24561FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAA59DCDAF8DEAC1943C894CFC0D7AA6516DB091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ Art Garfunkel - Breakaway (1975) [ALAC | lossless]<Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ Lenka - Shadows (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:80E9435C3574B8FEBA1640E4D0EAB6218221B432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ VA - Пенная Вечеринка DFM (2013) [MP3|256 кб/с]<Pop,Club, Danc
 ```bash
 magnet:?xt=urn:btih:F666060293612403CE334AFA44B2DE095CBEF7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ MainstreaM One - Разные (2013) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0F1CD8FD9C41E442E1D0A2DA31DF65CEF0F221D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +626,7 @@ LibreOffice бесплатен и имеет открытый исходный �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42EE71B4EA8B8C5064212E7E129F6308160F8852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE8AA3FD8C5FE45C60279099FE2670D446792611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +713,7 @@ Ghetto Girls - Crossfade My Nipples (2013) [FLAC|Lossless]<Big Beat, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:732CADC05E6D40EDAD9B2F21E9B1757752924706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +739,7 @@ American Idol — телешоу на телеканале FOX, основанн
 ```bash
 magnet:?xt=urn:btih:02BB1078D1997E431C4F8D862D8136F651E79009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC943846CF9BCA498B486B7AE75C3DD2B5F8F6AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

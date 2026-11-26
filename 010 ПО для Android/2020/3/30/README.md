@@ -19,8 +19,7 @@ Equalizer FX Pro 1.3.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:84A6C9AB3A07607D41CE0863829ACD26697CF7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

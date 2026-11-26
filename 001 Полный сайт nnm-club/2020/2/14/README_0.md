@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:16C429F5C9F7A061537E9542FD5CE422714FE49A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1CB84153DF5D7A4372BEE83C8A8EA2F23063E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF32FEFCD98709A8D2A797013E543E9676A78E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Dubfire - HYBRID: A Decade Of Dubfire (2017) Compilation [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:4105CCAF071C9F7C276AC482EC89231CEE43471A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:5486CDD5889165E7B1E3BCFC3A7255C403EF2813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E9CB63F22DCEC4D559E1C223BC83CB401402AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Translatium - мощное приложение для перевода для m
 ```bash
 magnet:?xt=urn:btih:4EAB97E1F9E78583B3602C3673D859D8DFF459DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBDD050DE9CABE0BD006906807AB2296F3D2CEC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DC21EDC02F99794264154929387E071A5AD2441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:425F2B905DF073F55DF78F0DF86F5AC557A50EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (20
 ```bash
 magnet:?xt=urn:btih:6BFB9A3CBF914AAA24A8713EA855C14A116B0EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Unlimited Love (2020) [MP3|320 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:9C371EBAA785555A2D3D319CC1542DC386B60D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Opera 66.0.3515.95 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5738430F2B48DABA1B070B44B6965F7A0D706A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Aiseesoft Mac Конвертер PDF в Excel  предоставляет про
 ```bash
 magnet:?xt=urn:btih:A5B6926B644827498C5D96D86347B43511897CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B649AED6B51651EE13836E75433B9595A10D9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Aiseesoft Mac Конвертер PDF в Word  - это профессионал�
 ```bash
 magnet:?xt=urn:btih:CB588ECC2637E47C80A12EEA90B70F95BE0B91D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 ```bash
 magnet:?xt=urn:btih:3114BB1060CA750666B7FD58ADD43FB0364DAB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Ori
 ```bash
 magnet:?xt=urn:btih:C53FF2EE6154993427041E8134605A58E85AD7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Vivaldi 2.11.1811.33 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6D9FAAC1529BAA106C7C112A147B43539CC8793E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:0AB419B8273C309BABBA615B744510072183D9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05E33160E7F75AA6115855BC4E004BA9212E8BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A7D89B522B97572C68CF8D0B64B1FD21F718A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 ```bash
 magnet:?xt=urn:btih:27F40433441F3009E5E9644611739FCDECD7A0A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Reflex - Сойти С Ума (2002) [MP3|320 Kbps] <Pop, Europop>
 ```bash
 magnet:?xt=urn:btih:7E88B350ABB15B44540664812E7F4EAFDBE24011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (20
 ```bash
 magnet:?xt=urn:btih:07C0918D3102684527877FAE0559CB626A2BAF27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Nathaniel Rateliff - And It’s Still Alright (2020) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:1D3219F64F072A793B45AC5851BCA649E9CC80D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

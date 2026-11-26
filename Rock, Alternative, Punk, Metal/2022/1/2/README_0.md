@@ -22,8 +22,7 @@ Singles:(   Читать дальше...   )Жанр: Alternative Metal, Nu Meta
 ```bash
 magnet:?xt=urn:btih:CD1F7224355592D464DDEBEE43644A1203BE9137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

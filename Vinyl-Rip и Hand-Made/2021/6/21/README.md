@@ -22,8 +22,7 @@ A4. Good Night 6:08(   Читать дальше...   )Жанр: RockПродо�
 ```bash
 magnet:?xt=urn:btih:BF43C2C09D2D5DE4AE1B6045BDB9D3DD1740964C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

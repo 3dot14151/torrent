@@ -19,8 +19,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:A4A4BAB6065AC8A75C6E34182EED6FCC82635394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PowerDirector – Video Editor v14.6.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5F1CDA05CBC3176A3E20DD06A62D49F64D715068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AI Chat Bot на базе ChatGPT, ChatGPT-4, GPT-4o и Gemini, лучший п�
 ```bash
 magnet:?xt=urn:btih:212AD244686F01ED9F2E5D30E6C9A64AE3029FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Xcast.tv / Трансляция на телевизор v2.3.8.2 Mod by vadj [Ru
 ```bash
 magnet:?xt=urn:btih:6D971CCCCCC793CF3A2C825492E898DF4F580DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55284C06E7B7964EDA9F3879A53F5A47EE8C3DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:9B68B58523B6F4554131A98133F2F1FF9E914D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

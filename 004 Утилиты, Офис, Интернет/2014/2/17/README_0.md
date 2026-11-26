@@ -19,8 +19,7 @@ Super Hide IP - одна из лучших программ для автома�
 ```bash
 magnet:?xt=urn:btih:20334647F2C0726175FF58AB4AE74AA0503FF3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

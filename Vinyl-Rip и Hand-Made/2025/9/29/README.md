@@ -23,8 +23,7 @@ Manowar — американская хэви-метал-группа из Об�
 ```bash
 magnet:?xt=urn:btih:D3FB3F76D3777EE81EC6438409862EDFBF68D032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Motörhead — британская рок-группа, образованна�
 ```bash
 magnet:?xt=urn:btih:82FBD1FA270076AFD781208BDAC208F7D3B74955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Between the Buried and Me - прогрессив-метал группа из г
 ```bash
 magnet:?xt=urn:btih:1C5BD67C506E752F6A6A40F3E67D98F44042DFEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Twilight RoadЖанр: Hard Rock, Heavy MetalПродолжительность:
 ```bash
 magnet:?xt=urn:btih:0B054F92E238272EFE6871E59CE5FC71172B1EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Arabs In Aspic - норвежская группа, играющая прогр�
 ```bash
 magnet:?xt=urn:btih:DBB0F5AC165EDEF8B7EB33C4C4FEFBCE893FF3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Siege Of Power - метал-группа с участниками из США �
 ```bash
 magnet:?xt=urn:btih:142BFC7C3E74D99E5CE00DC454C30DCB25ABD378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

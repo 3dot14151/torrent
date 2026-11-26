@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F8CEFC7D8E9655B1A8D13BA1A01550A61413242C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Assassin's Creed: Syndicate / Assassin's Creed: Синдикат (2015) [Ru] (1.
 ```bash
 magnet:?xt=urn:btih:9443E8BCFD0279C33019D38656A0D2BB857B7D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:499068FEF7DF9EC9F8E15FBBC7CFD468960673F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Microsoft SQL Server 2016 13.0.4001.0 (Service Pack 1) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:DE49F8E8C728074889AF6B886BE1501BB996742F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8929832E3E279D05BBA0AF2C8ED2606B144C795F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Adobe Photoshop CC 2017 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:A54A4234ABE77D453ADAFE0DD85F877F089AC0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

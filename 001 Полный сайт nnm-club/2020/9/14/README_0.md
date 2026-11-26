@@ -21,8 +21,7 @@ Stryper - Even The Devil Believes (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <H
 ```bash
 magnet:?xt=urn:btih:3CFBD6266C458558215EA4466E354422DFA3EC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64093BB9987D347CD2B7EF7F869C3DD8E1C06499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Mad Hatter - Pieces Of Reality (2020) [FLAC|Lossless|image + .cue] <Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:9BA65DF53663A0A0FF0FC12AE79DA77F816B6E5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA8AB87326E15D4F5CF84EA1007A6658BE6FBAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8114863D3BEC329881E56775174FBEBF5E3D7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:ACFB7E9EA350407DD410F69AA2EDCD4A864094A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Thundercraaft - Fighting For Survival (1984) [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Separation Studio - Инструмент разделения цвета в по
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6015B2C230F793F8D2E8260F12D132124AAF5781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95184A0CFB8B21522D255C4558861C987516B18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:F98E92BC4FFC30CF946D4CCF0738EAE24F36CF2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ VA - Feel Good Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:9B87BF077784B36323C4C45BA53061ECDDE55A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Tomorrow's Rain - Hollow (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59AC0EE366D0E2CF88D507F568CCAAA9E7F58375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Arctic Rain - The One (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DC5AC71A7027EDFE4AFEFE0C932E6670D23614A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA957C05C48E6CF92C7F7090B171517BB551F7E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ VA - TOP Non-Stop 2010-2019 - Lounge & Chillout (2020) [MP3|192-320 Kbps] <Chill
 ```bash
 magnet:?xt=urn:btih:E9BF53505A4FCF5606F980A054C526A1960C784E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92CAB6B25D7B34C2CB009EAFD122851D2A5E5EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ Black Rose Maze - Black Rose Maze (2020) [FLAC|Lossless|image + .cue] <Melodic H
 ```bash
 magnet:?xt=urn:btih:049250DA0C4F8C7B1063459253A08F948B0DC845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ VA - Summer Time Relax Zone (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:F5B62816467F61F5D6A1F147E1E25C89EBB91ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ DEADLIFE - City of Eternal Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 ```bash
 magnet:?xt=urn:btih:712FD835C7D9B6EBF1DDC3938D8B8538E42CBD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48D6D44CDCEB3A95F67E0CEBC5FAD29DBA47E23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A46FAFA5AFDD1C58531EED8D7F9C6A4D5C3E1FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ Artweaver 6 - это полнофункциональный инструмент
 ```bash
 magnet:?xt=urn:btih:7E6F2F968B6EA647A32767ED42057696CBB56CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ Blue Wednesday - Discovery (2020) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

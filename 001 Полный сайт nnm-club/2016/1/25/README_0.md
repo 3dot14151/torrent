@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:C40C8E17A5A5102D06559EEF57E0816237BD5D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - I Love House Music 2016: The Finest and Deep House Music Collection (2016) 
 ```bash
 magnet:?xt=urn:btih:85F0C086E1C6B4401BC35D15B5E8D06F9CFEF315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Abbath - Abbath (2016) Deluxe Edition [FLAC|Lossless|tracks+.cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:A779287302DFBD071A2AD99BA3F8802242B88570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Wise Care 365 Pro 4.03.389 Beta [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2528C8E7D954BDC97740C6CA450610929775D63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFFC7C2F7E36912521F235E5B98BA6FE642C1580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Wise JetSearch 2.26.131 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F6A9CD2894303BD0A08006A2D9238C275511D828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - Sound Golden Sand: Relax Session (2015) [MP3|320 кб/с] <Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:DE5101426A6D902D233852C26705EA4633B8F19E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Pulsar Stars Vol. 2 (2016) [MP3|320 кб/с] <Trance , Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:0E96CCA1B3F75FABFE2C6BB60A8A8DF032A474AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Northern Lite - Ten (2015) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Electro
 ```bash
 magnet:?xt=urn:btih:8D89DE56F052CA44FE2D1F4E34699F4C0832DC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Carrie Underwood - Storyteller (2015) [FLAC|Lossless|tracks] <Pop, Pop Rock, Cou
 ```bash
 magnet:?xt=urn:btih:4F335BA23B70E3386F345554634CC418537FD068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Northern Lite - Memory Leaks (2013) [FLAC|Lossless|image + .cue] <Synthpop, Rock
 ```bash
 magnet:?xt=urn:btih:093C049C07577BA01CA0EA4BA587EAF288DBD387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55CE095393C616652FA2E95221587D5F4B4183F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Philippe Chatel - Renaissance (2016) [FLAC|Lossless|tracks] <Chanson, Pop>
 ```bash
 magnet:?xt=urn:btih:A294C66639F90FC291A969CC5DC782CF71B044B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EE60DD1474B0CBCC04F55F9062076030F5EEE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ VA - Indie Dance: Disco Elixir (2016) [MP3|320 кб/с] <Funky House, Nu Disco, 
 ```bash
 magnet:?xt=urn:btih:308B318C26DF8031AD3930C44BA6B3BE3673D647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Receptor & Maximova - Mlada / Bayu Bayu (2015) [FLAC|Lossless|WEB-DL|tracks] <Dr
 ```bash
 magnet:?xt=urn:btih:D774141768BD7E6407584CE821E3590FF0C7C0C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D18CC18BAD06F4C0631DFE53B9A7FAD1D2E16B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ VA - Bass House Grooves Sense (2016) [MP3|230-320 кб/с] <Dance, Club House, E
 ```bash
 magnet:?xt=urn:btih:3FCD1C35E9F86F09CC919000B713118A84524D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B4A3CCE0C99D2C720903E0ADFFA7F65D312E8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96766DB776E8EE7B0045FD361B0E9103F360B010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Troga 1.7.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:1DFA927D96A8F9B770928651A9C6BDCF2C40BB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98E27930AC91DB42B86663EFCCE0D570FA6D87A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:792AAB73E848DF930AB620A26085A835A3EFE657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42C152D3C2E05971E19ECCB1B9AC57CB16CB5D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6484FF736B8F445C7C92C7F45E2EFD061C8786B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

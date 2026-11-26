@@ -22,8 +22,7 @@ Pronoun - I'll Show You Stronger (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop
 ```bash
 magnet:?xt=urn:btih:D010C3917027AD530F5DD867086F20133B97F768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ SHMИ - Experimente Illusori (2019) Circular Limited [FLAC|Lossless|WEB-DL|track
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24268693D7FEEA79497F3BFC46F272A94F31FA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:AE1726C373BC6ACCBE592AED3E67711163E4D722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:99B9AC9B712B3F64FF78B05BE18FEFC55025014D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Charles Mingus - Mingus Ah Um (1959) 2019, Mobile Fidelity Sound Lab [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:56BFB0D6F621979A6D05D2CC957D5E729B4C8695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Poem Of Techno Psyche (2019) [MP3|320 Kbps] <Techno, Electronic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76C6577C6AB55F78B67E0248E83C0CAF86E0ABE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Nemesea - White Flag (2019) [MP3|320 Kbps] <Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:060D9D1EDDF64CD0641C020A0D41173E6AC6176B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ VA - Back End Roads: Indie Rock Collection (2019) [MP3|320 Kbps] <Indie, Rock>
 ```bash
 magnet:?xt=urn:btih:0D87FA2F3A568EDB5D7EED9DABD3FD921F72E2AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - Guitar Del Mar (Chillout Lounge Bossa Nova Guitar Music) (2019) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:E949505039091E4D04439966B323FECA5B279404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Tarja (Tarja Turunen) - My Winter Storm (2007) [FLAC|Lossless|image + .cue] <Sym
 ```bash
 magnet:?xt=urn:btih:07CBF09C399DEE2BAA255ED7B505A841DF47ADA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ VA - не Громкие новинки недели 32 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:A0DF813E6EC20EE66645FE85F853516E25595FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ VA - Rhythm Of My Song (2019) [MP3|320 Kbps] <Pop, RnB>
 ```bash
 magnet:?xt=urn:btih:E3CF4E483AA0165E20C6388ADE1DB12E78832466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F28884B5BC409D628D160F0B51A9CEB2149AEB52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC36A1409D8637BA8B66AAA01D34E9132F7D24E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Aiseesoft Audio Converter - простой в использовании ауд�
 ```bash
 magnet:?xt=urn:btih:8036605E331BDEDB929E358D34074216357BAF23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ Bandizip — это быстрая и надежная программа, ко�
 ```bash
 magnet:?xt=urn:btih:26048642D54726952B0EEB803B76FFAFBA6BE909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ TunesKit Audio Converter 3.1.0.45 [En]
 ```bash
 magnet:?xt=urn:btih:64E5FC742A9DC5205495FF1CB78F4173490BEAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D087877752675AE1FEE4C3BF999DB8EF77908250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ Aiseesoft Skype Recorder - это программа, с помощью кото
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:67C707101D914C0DCAD3420798737172391C290B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Rollback Rx Professional - программа предназначена для 
 ```bash
 magnet:?xt=urn:btih:E9B57958BD26F38BF68508A8093046CC4895D272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F007D387E9B493241762E54C3A2C7E5AA13D3524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:468A6E45A46F40F2DB5518CE2AA70A1ADFB80A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C412C85B219B5DA5303F9ABDE356F4E7D71D53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:347E014A182A093840314C4546B6683BCF1887B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ PLEX - это надстройка для Microsoft Excel 2007-2016 (набор 
 ```bash
 magnet:?xt=urn:btih:6DE7DD4644423BAF7363E745B1677F7C32BFA37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ VideoStudio Ultimate X10 создана для обработки видео и 
 ```bash
 magnet:?xt=urn:btih:09F1E45C698A106DA8C6CE16CA2AFABD6214626E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:530296B244801B23D70EF9AEB58E97C6AEEFDA40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Drizzlepath: Glass (2017) [Ru/Multi] (1.0.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:72469F599D2F01E2EB8CACD48E7DCC115A2119A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Farming Simulator 17, разработанный компанией Giants Softw
 ```bash
 magnet:?xt=urn:btih:11FFA5843F19410446E046FBEA4ECD6459DD1A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:487ED937DBCE1DCB4AFB56D22ECE35107AFC61F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ VA - Дискотека Dance Club. The Best (2017) [MP3|64-320 Kbps] <Pop , Dan
 ```bash
 magnet:?xt=urn:btih:40918027823C709A4B34726DA2E8704D0BFB181F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ SolidWorks – система автоматизированного проек�
 ```bash
 magnet:?xt=urn:btih:8B2C7EFF1AFBCF4DAEBF35E73A935B8F034E2898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Call of Duty: Modern Warfare Remastered – переиздание Call of Duty 
 ```bash
 magnet:?xt=urn:btih:C5E002344C3330C4EB8580D77D2BB73C332E7937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4E9BBC7D59ADEC2CDF0DD7F78E971611E81CD1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

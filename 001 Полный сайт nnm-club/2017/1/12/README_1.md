@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B9997C757E09A685EFD78B6EC1493553E4E99C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Взрывной хит-парад. Сборник № 7 (2017) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:C4CB1D582B5B0C1C083EF68BC229922B9E3D9451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD4866C567EDB239E3B2B779421EDFA0105F962A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - 10 Years (20 Trance Essentials) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:13AFE464CC525E0D4D1C18EE889CABF6630D3A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Trentemoller - The Last Resort (2006) Limited Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:B590D51BAC8A54148E04674792FEEDAC484D70AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE0DC181B7214DC158920BD482828667E8352D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Priime обладает более чем 100 фотографическими �
 ```bash
 magnet:?xt=urn:btih:B6BE906E4AF7C94BE9325E4376AE243AC472B94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9EC3FDA9900CB20308D73BEA9B4F1FE9205C002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ VA - Lounge Winter Garden (50 Amazing Tunes) (2016) [MP3|320 Kbps] <Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:453DEC22317E902D51024162D079FC524F750448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F46366F72D9D5B4CD6B355231F4775FCCF08B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ VA - Gold Italo Disco: New Generation (2017) [MP3|320 Kbps] <Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:E68766559996B907F6F6871C1C811DAC8AA79323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06CBDA27046D5004CB612733F3BF8038D7E40607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ VA - Interior Lounge: Relax Mix (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 ```bash
 magnet:?xt=urn:btih:F1D4B847D5F35E6E780777CF152615B1AC6D155A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A96BFD10FE7A14055E390AB2526504BF428DD58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ Grave Digger - Healed By Metal (2017) Deluxe Edition [MP3|320 Kbps] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:14B8415DA3AC272D5B5912DB2A9F561016B7DEB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ Wise Registry Cleaner 9.36.607 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AE0B84D1FE718141647CB5450F81BA3C2B846186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ WhatSize - небольшое приложение выводит на экра�
 ```bash
 magnet:?xt=urn:btih:C496C5FB54DB7F88C321621A99FC03CACDAAAE99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:074C57051A7FAC7F159C54AB48125642D6A8CDF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D598BEA2773679BB6EB3173705E5F4A620C97727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Squash работает точно так же, как магия.Тип изд�
 ```bash
 magnet:?xt=urn:btih:55B80B051C376CDD20C78EF0C67D61E2D9526080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ VA - Золото Русского Диско - 19 (2017) [MP3|160-320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:83F4D653824C5D9EF52340C48357196637B389C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ Trentemoller - The Trentemoller Chronicles (2007) 2CD [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:FFDE16D9E1A3F54564A2CD75E8C6CA73C5BB8D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBA28CCF46B2937BDC980B06F7BCB12CD90EAAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ Mono Inc. - Together Till The End (2017) [MP3|320 Kbps] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:4BDCAE9CBC346850FA046C4235B45478F574423F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ VA - Our Musical Life Generation (2017) [MP3|212-320 Kbps] <Club, Hard House, Nu
 ```bash
 magnet:?xt=urn:btih:F3D198B6A4DE6B26AE9CC93CC922BAFD00FEC427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74005FA969CBB1C1E8CF803C2D23A669F10A0A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

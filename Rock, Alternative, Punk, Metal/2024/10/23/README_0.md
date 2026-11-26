@@ -22,8 +22,7 @@ Ahnenstahl - Zwischen Tod und Leben (2006) [FLAC|Lossless|image + .cue] <Epic Bl
 ```bash
 magnet:?xt=urn:btih:654BF5605802FF932203C2C9CEB4098B5E40BA13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Typhonian - The Gate of the Veiled Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:4F47501B48F5E43F92014623FB3CDF8F24167DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dawn Of Destiny - The Beast Inside (2019) [WavPack|Lossless|image + .cue] <Power
 ```bash
 magnet:?xt=urn:btih:2DFB67C4A2AA2B248070A4699C4B3F3291205282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Leathermask - Lithic (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7FA914B752AF28C67CF00D4DC7C9E327DA8E8F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Visionatica - Enigma Fire (2019) [WavPack|Lossless|image + .cue] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:A6622B2C93634DDAAEC7A83D9B9A4E06002BE06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Desert - Fortune Favors The Brave (2019) [WavPack|Lossless|image + .cue] <Power 
 ```bash
 magnet:?xt=urn:btih:EB3A56988B1EA68C4804FFB36F5505886794ADDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Philhelmon - Into the Mist of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 ```bash
 magnet:?xt=urn:btih:70DFC72B262CA3FEA2B84770659B04E0C3C85E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

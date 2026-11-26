@@ -18,8 +18,7 @@ Iconize for Mac 1.2 [En]
 ```bash
 magnet:?xt=urn:btih:653E7A651C66BA7E3E533FD68F764B21D9238BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Debookee - анализатор сетевого трафика, с возмож
 ```bash
 magnet:?xt=urn:btih:EB534833A45C68561AF1B30D7FC77A35F3A7C6A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Data Guardian 7 v.7.6.6 [En]
 ```bash
 magnet:?xt=urn:btih:D7C26DDF4E4ABFA06D0BC252DDA7FC0B7EB1AF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Garden Of Delight - Darkest Hour (2007) [FLAC|Lossless|image + .cue] <Gothic Met
 ```bash
 magnet:?xt=urn:btih:A5348DE2659F9CD373003EFDF395B2505A3E0969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Live Wallpaper & Themes 4K позволяют использовать живы�
 ```bash
 magnet:?xt=urn:btih:5025A410D08A11F9237F6F87C29063AE3BF9054C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ GIFfun — это приложение для создания GIF-файлов,
 ```bash
 magnet:?xt=urn:btih:B98373A437BEBD0BC09C4B1CB90047CDF92100D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Autopsy - Ashes, Organs, Blood And Crypts (2023) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:86FFDA1E4F5F726BCA16A08AFC04808AB63E4574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Mactracker предоставляет подробную информацию о
 ```bash
 magnet:?xt=urn:btih:A1CEFBFB8E570D8853FF18F61D466A56FC09F5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Cisdem Video Converter является решением все в одном д
 ```bash
 magnet:?xt=urn:btih:8F614B54EC01F61618AFD30633A8BDD5EB312C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Fused by Defiance - Manifest (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap Metal, Nu
 ```bash
 magnet:?xt=urn:btih:C47C4C8D1C5AA79D6620F84A4891E6703097CECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C09EF8683CD7555370BE1F8AE880D4633C263BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ VA - Which Bottle?: AUTUMN CLUB BOX 2023 [MP3|320 Kbps] <House, Funky House, Dan
 ```bash
 magnet:?xt=urn:btih:E9B8D13DF63A89BA70910160FCFC41411679FAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Chet Baker Trio - Live in Paris: The Radio France Recordings (1983 - 1984) 2CD, 
 ```bash
 magnet:?xt=urn:btih:3B20605E8163214BDD03CB4C55C20D05419B2F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ The Silver Linings - Pink Fish (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 ```bash
 magnet:?xt=urn:btih:FDF235393BD934CB86D49FAF4554500E903CD736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:146A65B31A5D57EDA0145F5F1469FA5F15C022F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ MacPilot 15 v.15.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:3AF5C51CFDC7125C58AF15E8C9C3ACB6DE7BF640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E324185F684AB3907994A5A297597BB06DDF812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC2BC327ABF9938355FC2CD3A2F856330DC8C502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ Mystery - Redemption (2023) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:2048634251B67779856CCED034CA463FD41957BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3A668F1E271F209F64415965B8AF5429E15EFD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Wing IDE Pro - это интегрированная среда разработ
 ```bash
 magnet:?xt=urn:btih:1567C07ED6BCC226A04D8819BB3DADB43E25675D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1239044037B4232A87B30031466E72B87AF631B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D333E374B28AD0EFEB3D30B33F3224B6580BD2A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ Infuse - прекрасный способ смотреть практическ
 ```bash
 magnet:?xt=urn:btih:AC76BE8EEB8663A01CB99C3B0CF1CF15AAE35A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54533C6C93FA469A8A0E696D32481FD0BBFC32DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ Doro - Maximum Celebration - Strong and Proud (2023) Promo EP [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:7BB6B845D35C1525BBEC9EFAEEE728B135C3F26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

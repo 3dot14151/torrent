@@ -21,8 +21,7 @@ Bells And Ravens - What Death Cannot End (2022) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:F4A0E858648BC7AFB643BF8E22F065E056F134D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Hatriot - The Vale Of Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:562BC0C2DA6A2A18797DEFFDE51F49D2A8A87277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Nicolas Cage Fighter - The Bones That Grew from Pain (2022) [MP3|320 Kbps] <Hard
 ```bash
 magnet:?xt=urn:btih:B46D89F40076B8A4E0CC82C49D159F1F4DF29D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Nebula - Transmission From Mothership Earth (2022) [MP3|320 Kbps] <Heavy Rock, S
 ```bash
 magnet:?xt=urn:btih:06A14CC329FDAFDF681F9CC32612CDD665F0DC07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack  [FLAC
 ```bash
 magnet:?xt=urn:btih:826A95A2FEEC565B5C26E49684035C5F151B607C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Days Of Wine - Days Of Wine (2022) [FLAC|Lossless|image + .cue] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:379CE72BFAE6B8D8A774FC5B1E3BF5B837429DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Vandhali - Fever Dream (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 ```bash
 magnet:?xt=urn:btih:748F8A70535D5392C6AA00D1C8273BE40B331B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Resistance - Skulls Of My Enemy (2022) [MP3|320 Kbps] <Power, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B5F0D6AD79F33BA2AD7521F4A02103C634673414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ No Time For Redemption - Irony of Fate (2012) [FLAC|Lossless|WEB-DL|tracks] <Pow
 ```bash
 magnet:?xt=urn:btih:21DA1098C22726FCA7632ED19AB399327F5395AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Ritual Of Infinity (CD '92)
 ```bash
 magnet:?xt=urn:btih:0D052242CE3042F5693952B7539D981EBFD5A7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Indian Handcrafts - Empress in Decline (2022) [MP3|320 Kbps] <Stoner Rock, Punk 
 ```bash
 magnet:?xt=urn:btih:07BC3799917B40502F0E03CA211C8835C655E142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Fatal Vision - Once (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:A5F70DDAF9C96722C5352EDA56A276D6D141A05D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Dark Millennium - Acid River (2022) [FLAC|Lossless|image + .cue] <Progressive De
 ```bash
 magnet:?xt=urn:btih:BE9EBBF198A4E7D222B9E10B47BAC12CF54F2A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Shadow of Everest - Where Giants Die (2022) [MP3|320 Kbps] <Progressive Metal, G
 ```bash
 magnet:?xt=urn:btih:485964B0F26BA954B0117CF507938E56ACF8B033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Trillion Ton Beryllium Ships - Consensus Trance (2022) [MP3|320 Kbps] <Heavy Roc
 ```bash
 magnet:?xt=urn:btih:59F16E19A091BCC2898E4C56A87843B140D88B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

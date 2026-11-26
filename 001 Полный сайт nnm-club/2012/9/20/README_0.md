@@ -36,8 +36,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:794EB2ADD4CC82025DEB132916D253939EA231F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +70,7 @@ VA - BAD: Bay Area Dubstep Volume 03 (2011) [MP3|320 кб/с]<Dubstep, Dub>
 ```bash
 magnet:?xt=urn:btih:37EB67F4EE74E14D5F329A1232F2C6196B462F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +102,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:040080144375E417AB807609C45B2364218791E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +136,7 @@ VA - DJ Antoine - Live In Bangkok (2008) [MP3|~190 кб/с (V2)]<Electro House /
 ```bash
 magnet:?xt=urn:btih:879645B879D43D5DFC777C5E8C3E8D3AE09D6A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E76B31A2A653505F2A5522250F136311BDF72F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81578741EA7B4FCF3BC84490FC94BB9C28BAD5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Helen Davies & Kim Skovbye - A Fair Meadow. Music for Celtic Harps (2009) [MP3|3
 ```bash
 magnet:?xt=urn:btih:5332EF0E4297467D8BB61CECBC8BA706ABE50BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F951B5AD330CC9E688352D5F28C7641A9F41C981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ Harper’s Bazaar одним из первых модных изданий пр�
 ```bash
 magnet:?xt=urn:btih:6CE4DDB1ADED7CDBF4C58181CA33D0E34FA17549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A55AF9613A9FE4D0C5F25EA11FA3456398F2571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ VA - Осенняя клубная жара (2012) [MP3|256 кб/с]<Pop, Club>
 ```bash
 magnet:?xt=urn:btih:7D8C57D0730A5874DB183E96FE18C22B8AFD328E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:AC7EC22D6BBFA7CB782A3948581CDDD9ABD77205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A719BCBF9519803BC42ADF7795694BD3252FE3F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20F2E165D0B5B578A2A2C207419F7F1F5725951B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:789B1A93C89443BDFC293A22AF4DBCA355E3CE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CFD2682EEA2534A73284318CFEC2AAF06B5E6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:129AF5E347C03F2C5E01A6297C51EE78D23ABB3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEDA1F5FB90CFFE4F0C3D774305A1CC5297387C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ VA - Deep House Lessons vol.1-3 (2012) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:04E5F0ECC11B874E20EB95892C9AC14411D4CD35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:744ECA70A9A9FEB587B8AC6DDE82C1C59C2B5715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ VA - DJ Antoine - Stop (2008) [MP3|~190 кб/с (V2)]<Electro House, House>
 ```bash
 magnet:?xt=urn:btih:EFE35F1F095F73CC9A8484F1488AE93445E9FA2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ Kobra And The Lotus - Kobra And The Lotus (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0421A6FF087705D8EB666572BE6771A3230126B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ Scum of the Earth - The Devil Made Me Do It (2012) [MP3|320 кб/с]<Industrial 
 ```bash
 magnet:?xt=urn:btih:C14B4E8ABCEF1B5265DD4D33F2E15DD838507B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A9B095BBC169FC1DF780ED3EA21BE54802A859E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B16BE6870066F50F24366B7A70E0FCF27BDAE2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

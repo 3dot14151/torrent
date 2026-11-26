@@ -19,8 +19,7 @@ Civilization Revolution 2 v1.4.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:69581BD8878AFECC75488021D140562D5CBA20AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

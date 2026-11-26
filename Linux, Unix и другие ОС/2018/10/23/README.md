@@ -19,8 +19,7 @@ Runtu 18.04 Xfce [x86_x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1A7360EEC4E9B640C461970E1B2B6DA585DD361D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

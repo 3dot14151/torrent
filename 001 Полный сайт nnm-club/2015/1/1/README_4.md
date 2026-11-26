@@ -28,8 +28,7 @@ VA - CMP Records: CMP'ler I (1990) [FLAC|Lossless]<Jazz, Jazz Fusion, Avant-Gard
 ```bash
 magnet:?xt=urn:btih:09C59A70EED2DEFF8CE63FED8D6EF30919EB728F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Rocka Rollas - The Road To Destruction (2014) [WavPack|Lossless]<Speed Metal>
 ```bash
 magnet:?xt=urn:btih:79C5CB2991DE7617FDBA8BDD28AE36E538CEDFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9344356E2DB3716B43E48AD6044CF13ED79457F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ VA - Musing Of Lounge (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:CCAD6DD0C1307B96DB9FFBC19FC557AB19E6E09F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Duke Ellington & Count Basie - First Time! Count Meets Duke (2001) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:2D835E0F207D8D3CD7FBBC49D201E9D788BA7BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA6F90CD5A47796742E6272D92C230047E4E0E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:170C29BDAFAD198A5206994F804173D23B8F2B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A3B0DB0353172EB973A0CE0104D7F56CC123E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22AC3EB3B6228E3CE6F9905BBCC99CE8DECCE6D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ VA - Lets Dance 2015 (2014) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:9374EB63AEF802000F9BACA93C58C946B6363479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FCE6403ABADAB578C73220D1054ED917ACA6215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96AC404D6DBCECEA4652EE9813B3DD2DE7EE1A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4596413B3950D44EFDE95AAC39805F381EBE6862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:970B990111E711F89FF13462BC14EE411DDDF5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ Undoxone - Timeless (2014) [MP3|320 кб/с]<Electro, Dubstep, Breakbeat, Techno
 ```bash
 magnet:?xt=urn:btih:17AFE3FBDF114C97927DD16585BA9FF64EB29DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C637301145CA98D957065912F3F725D2C7113954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:53F7FF45F3C5AA69CD09F504B776B3F3A93B3533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1419B2E65830DC2B50DBED3D6E60B32FF839E385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ Uniblue SystemTweaker - набор инструментов для тонкой 
 ```bash
 magnet:?xt=urn:btih:D9043424904F317440A337289EAB84B8D6A5BD60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ VA - Super Dance Party. Vol.4 (2014)
 ```bash
 magnet:?xt=urn:btih:73B5C2EBE28C3791846EFA984205A6EA3D3917A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:EDBE99BFB040786EB06606D3599EED3D43B6933B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C69519FCD8B8578F8AE5146B940AF10C7CD46647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:415687E24424C6C80FF6DE29339ECA1518EC1B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

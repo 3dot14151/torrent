@@ -18,8 +18,7 @@ Etcher – простое и надежное приложение для зап
 ```bash
 magnet:?xt=urn:btih:B8D9BB37BF79897EDCAD55171ED1E28C8FF5E915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Paul McCartney & Wings – Red Rose Speedway (1973) SHM-CD, Japanese Edition, Re
 ```bash
 magnet:?xt=urn:btih:0CCF1E7D64FB7E5E7F68FE8740BD0671BD55A515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Paul And Linda McCartney - Ram (1971) SHM-CD, Japanese Edition, Reissue, Remaste
 ```bash
 magnet:?xt=urn:btih:15B23974B1F615EC51C2234A02C6B829569F9D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:876A5290ABC3A656F4FEB8CEF3BBCCA443C57A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10D42DA9C73CE3F72ACC90DE1011D4C260D8A7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9DC90CEAABBBF66747750C69FC7F8FE9ECB041D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:1623FE4C148A254653AB0CE280CFBB925582DBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Paul McCartney, Wings - Band On The Run (1973) SHM-CD, Japanese Edition, Reissue
 ```bash
 magnet:?xt=urn:btih:B7C8D6247AD05833D907150E30C479FC94193314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ XCOM: Area 51 (2016) [Ru/En] (0.971) Repack/Mod AndyFox
 ```bash
 magnet:?xt=urn:btih:9EF21135CBAD7AA409DF444D7B353FA85979B7CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

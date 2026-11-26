@@ -28,8 +28,7 @@ VA - Топ-40 from Кулемина (2013) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:91E6F4237A6A4E06FEEF1B5F17C2CA15FBAFA694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Horizon Plasma Searching - Trance (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F2BD19C961F2E18482B91CCADB43FDDF727AE46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ VA - Drizzly Trance Sessions Vol.10 (The Best in Vocal and Progressive Club Anth
 ```bash
 magnet:?xt=urn:btih:29E000758F09C471EAB22C2091C1D5D142BE04B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Lil'Fill - Made In Minsk (2013) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:3FBABAE14DFDC7452EE89FD86701434122BFD9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Bodurov Trio - Seven Stamps (2013) /WEB/ [FLAC|Lossless]<Contemporary Jazz, Worl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Donald Harrison & Terence Blanchard - Nascence (1986) [WavPack|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76835A7A8202C7312E269301DC33113A87FA2ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE446866B128C5CB01A7C4D4580DFB0B3FFFB5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ VA - Беспокойная душа. Выпуск 5 (2013) [MP3|256 кб/с]<Ш
 ```bash
 magnet:?xt=urn:btih:C4A4479F31C565EFFA5D723243F141024E1B702F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +312,7 @@ Finntroll - Blodsvept (EP) (2013) [MP3|320 кб/с]<Humppa Folk Metal /Black Met
 ```bash
 magnet:?xt=urn:btih:E0369D712412605B0BC8C2E92F97948ECCB48324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +346,7 @@ Pure Sound Destiny - Jazzino Lounge Cafe (2013) [MP3|320 кб/с]<Lounge, Jazz>
 ```bash
 magnet:?xt=urn:btih:8B207E9C35516ECAB001859E8428DF7CE08BE102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +371,7 @@ O&O DiskImage Professional 7.0 build 144 [Английский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +405,7 @@ Meha Shamayim - From The Heavens (2007) [MP3|192 кб/с]<Messianic worship>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +439,7 @@ Robert Rodrigo - Wrath (2012) [MP3|320 кб/с]<Instrumental Rock>
 ```bash
 magnet:?xt=urn:btih:A7E8B3AC701E7B5E90BB591A6D42F93DB8497A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +473,7 @@ Kai Hoffman - Do It While You Can (2013) [MP3|320 кб/с]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:8FD3CE2FC692CD6807AA73950AFB0FADE3A3E942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +506,7 @@ Don Braden Septet - After Dark (1994) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAB070609682A40F87EAE445D16BE78DA42449F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +565,7 @@ Brett Ellis Band - Zero (2013) [MP3|320 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8A2E6652DC493C1C9A4ECED5340423E9DB928592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +599,7 @@ Neaera - Ours Is The Storm (2013) Limited Edition [MP3|320 кб/с]<Melodic Deat
 ```bash
 magnet:?xt=urn:btih:FA1099F84249CFD084C373A25BA7026541558D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F3FA9C8FB40E1DC43CC9DFAC02DDEDAA4BE2F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2425C0ECFD06B9ABADC20CCFEBE500EA003715EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +692,7 @@ VA - Kiss FM - Top-40 from Кулемина (02.03.2013) [MP3|320 кб/с]<Dance
 ```bash
 magnet:?xt=urn:btih:8342053C337D97AA2403C7F28187F0576EB9C661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +726,7 @@ Oligoria - Рисунки Снов (2013) [MP3|320 кб/с]<Аlternative, Synth 
 ```bash
 magnet:?xt=urn:btih:EAF0D4029892CD0DF4A78544FFA581B5CCE7A324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +760,7 @@ Rajna - Babel (2013) [MP3|320 кб/с]<Ethno Gothic/Ethereal>
 ```bash
 magnet:?xt=urn:btih:5F4DC3AA8F6EE7D0FAFF1645CC6A3906D0D5747D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -818,8 +794,7 @@ Ocean Colour Scene - Painting (2013) [MP3|320 кб/с]<Rock, Britpop>
 ```bash
 magnet:?xt=urn:btih:97C62EDFFB3F7EF74E34C67C9FC1CC06F4067359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -844,8 +819,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A593867055BF85DE42155244C244E8E97126CEA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

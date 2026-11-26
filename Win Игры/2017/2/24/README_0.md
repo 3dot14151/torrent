@@ -19,8 +19,7 @@ Herald: An Interactive Period Drama – приключение в альтерн
 ```bash
 magnet:?xt=urn:btih:D3F95C0926C3FE8DB2D20B2D310634E0C04BEF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Punch Club (2016) [Ru/Multi] (1.31/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:82633A2A6B681CD2742851BB9A02F3B83C7D9D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shift Happens игра о двух милых существах из желе, 
 ```bash
 magnet:?xt=urn:btih:789C45772718514F2685819B6C8DB0D2661E57B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Mooseman / Человеколось (2017) [Ru/En] (1.0) Repack R.G. Мех�
 ```bash
 magnet:?xt=urn:btih:60CBD3EBE799928ED865A63447A16D4E1C8A2833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Age of Mythology (2014) [Ru/En] (2.6/dlc) Repack R.G. Механики [Extended
 ```bash
 magnet:?xt=urn:btih:A3B742E5EBD1037982FBC9A4FD53D50252A4D57A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

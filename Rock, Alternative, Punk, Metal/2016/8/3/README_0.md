@@ -22,8 +22,7 @@ Mashu - Elephants In Your Head? (1996) [WavPack|Lossless|image + .cue] <Сanterb
 ```bash
 magnet:?xt=urn:btih:8D31A2AB0EA692969DB62DC428AE2B40977F575E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Holy Blood - Волны Танцуют (2004) [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:F2E1E0A0D096693E188B6FC9FE5D1B6FE36B3390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mass Deception - Revelations (2016) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F79BE2611512FE38FB9285CB8344A2116743A58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Scott Weiland and the Wildabouts - Blaster (2015) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:D9C94260E673B47CB7805FC2E9671E8EC987B8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Joe Stump - Revenge of the Shredlord (2012) [FLAC|Lossless|image + .cue] <Neocla
 ```bash
 magnet:?xt=urn:btih:8F75D13766FC97ACA7263E0030A947CD1905AF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9175D38A8D128917804A7AA34AE9EDE3DB1FFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Alabama Shakes - Sound And Color (2015) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:A1F6C44297C3EFE3B233F615C2C72DC9FD346401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C102F6272DB8890969637B311ED943D265187CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D2627DB9F240E6F91CAA046B7D6BF6020FC5A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

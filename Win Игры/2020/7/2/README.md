@@ -19,8 +19,7 @@ The Catch: Carp & Coarse (2020) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:216B11BF94658078A0DD26611AC2173C53C0831A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

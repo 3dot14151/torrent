@@ -19,8 +19,7 @@ Vampire Crawlers: The Turbo Wildcard from Vampire Survivors (2026) [Ru/Multi] (1
 ```bash
 magnet:?xt=urn:btih:1ED56F940B52F05F92DE469E3DAC7B0FC40A9BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ShantyTown (2026) [Ru/Multi] (1.0.03) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:35DA308B50FC524617515C5365ADAC34471BA4FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:83FDCA1D978E8978C03BD4A9FAF2785FB1773A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kristala (2024) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:71528BF381CCB4054A87FA918976A2687EC25BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tides of Tomorrow (2026) [Ru/Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:AF273946540A0A4C3F97BA8FC855769465E388E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/En] (1.2/dlc) Repack FitGirl [Complete Editi
 ```bash
 magnet:?xt=urn:btih:9F79DA4B20AD75B7EFF8F680A1FCCABBF3A5298A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bō: Path of the Teal Lotus (2024) [Ru/Multi] (1.2.7) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:32161D8F5368B0988BB2964762E95517A671F906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Insane 2 (2011) [Ru/En] (1.0.0.60) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8E9B6818D041C1A5BA121506F01334B4CAF0D49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

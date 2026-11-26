@@ -20,8 +20,7 @@ NecroVision (2009) [Ru] (1.2) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:CCDDAF859098C1ED681BD8AF3354DE353929DF11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ethereal Legends – экшен-РПГ от независимых разраб�
 ```bash
 magnet:?xt=urn:btih:B14A772EE5E1C979619B2855BB4B25B6F479BCAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

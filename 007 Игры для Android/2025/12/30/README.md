@@ -19,8 +19,7 @@ Bendy: Lone Wolf v2.0.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:47C0FFFBC75AA60A4C2F2608AA62A8C4D5AA9431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
 ```bash
 magnet:?xt=urn:btih:6843E1D01525C6E443DBA7B40547EB9A926AC6EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

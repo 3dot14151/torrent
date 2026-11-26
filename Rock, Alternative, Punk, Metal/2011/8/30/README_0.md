@@ -25,8 +25,7 @@ The Red River Rock 'n' Rollers - Rock 'N' Roll Megamix (2006) [MP3|256 kbps]<Roc
 ```bash
 magnet:?xt=urn:btih:6843E7DBB689CDC84014C0909EB36E4F557CC166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Jimi Hendrix - 6 Альбомов (1967-1970) Sony Music Japan, 2010 Reissue [FL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:CC586E8265661DB9B8DC879D077AFDB61F93F4E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

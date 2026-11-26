@@ -19,8 +19,7 @@ Nocturnal 2 - атмосферная приключенческая игра с 
 ```bash
 magnet:?xt=urn:btih:BA0F8688F06C63D1C8CA7AED17441FF6BA68A7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Void Reaver (2026) [Ru/Multi] (1.0.0) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:419960D178C49454798324E6260D569B1EC4B11E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wall World Strategy (2026) [Ru/Multi] (1.0.0.278) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:3E43043E7B8C1F46176A0248ECA5C5F936211D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Project Motor Racing - гоночный симулятор профессион�
 ```bash
 magnet:?xt=urn:btih:B82897BAA58B817D67EE221B8F2F3E5645486903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Witcher 3: Wild Hunt - Remastered - это обновлённая верси
 ```bash
 magnet:?xt=urn:btih:3874AD8970CE99CBB230A41A5CA0D1EC75D25582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Sims 4 (2014) [Ru/Multi] (1.129.39.1030/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:FA373CF6EBC13979DB272272ED70B8D1EAC234A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Moldwasher - это пиксельный инди‑симулятор убор�
 ```bash
 magnet:?xt=urn:btih:F0491EC3F39630FFF31D4A815C9314D30D1EA813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Gabriel Knight Collection (1993-2014) [Multi] (1.1/1.1/1.0/2.02) License GOG
 ```bash
 magnet:?xt=urn:btih:C4E53021DF2A531E9BA2668709705F23CB90DCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Destroyer: The U-Boat hunter - это уникальный кроссжанро�
 ```bash
 magnet:?xt=urn:btih:A3879597A86FDEAE974DB7699CC14814D07B4042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Pool of Radiance: Ruins of Myth Drannor - это классическая пар
 ```bash
 magnet:?xt=urn:btih:EBBBC7E73F9C83BCD779E039E9FFB629F0B85CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Sigilfarer: A Dice-Rolling Roguelite - это захватывающее при�
 ```bash
 magnet:?xt=urn:btih:54DF967B75AF949EC7B6A9C9ACDD0B15A91699B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Brother Firetribe - 2 альбома (2006 - 2008) [APE|Lossless]<Heavy Metal / 
 ```bash
 magnet:?xt=urn:btih:C3E16CD348DD87DE3D4561055AC941CFC202BA06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Demon Child - Shadow Cult (2002) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:24AABC474F7C01C71A9C70B9FD908F80066EB24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Black Messiah - Heimweh (2013) [MP3|320 кб/с]<Folk Metal, Sympho Black Metal,
 ```bash
 magnet:?xt=urn:btih:83AE13427C649332B625C59A95AEA835AFBA2E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Kevin Morby - Harlem River (2013) [MP3|320 кб/с]<Indie Rock, Psychedelic Rock
 ```bash
 magnet:?xt=urn:btih:D7AB16BE9F51038FE51979204792B3270FB7211B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:361A16E06109292B3E01EA0382DF126719392C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:B6C31D8FA7AD9F01CA5AEF4C90254CE950155F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

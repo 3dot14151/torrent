@@ -21,8 +21,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:BD7FE08BD90D7FBE092E8634D3FB478D11C7E1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Howard Leese - Secret Weapon (2009) [APE|Lossless|image + .cue] <Melodic Hard Ro
 ```bash
 magnet:?xt=urn:btih:82DA97ED638720E7B395E55E9F5022E4492284C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Armored Dawn - Power Of Warrior (2016) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:77D7FEBC0CA7324D522FED4F799649BD713E17EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Para bellvm - Лесной царь (2016) [MP3|320 Kbps] <Dark Rock, Gothic Roc
 ```bash
 magnet:?xt=urn:btih:D1132A6B3843B0B079A16B46C383A1354C12A5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Powerwolf - The Metal Mass (2016) Live [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:8212C96E1A578DC612EC4F0CBEB982D6CCDE172E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tarja - The Shadow Self (2016) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:325D98A474CA79FFE9D68F50B75CCCFE9A901CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

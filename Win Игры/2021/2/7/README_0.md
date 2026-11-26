@@ -19,8 +19,7 @@ Bridge to Another World 5: Through the Looking Glass / Мост в Другой 
 ```bash
 magnet:?xt=urn:btih:3B4088A7160D4759C28B17B6F12FCD4516776C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.0.1) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A85EC1D954267AD32AD20A81FBA3DBCD1F52EB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crossroads Inn - это симулятор управления в реальн�
 ```bash
 magnet:?xt=urn:btih:3D12FB834922C165E66DBA3438D06914A18B6605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jump Force (2019) [Ru/Multi] (2.05/dlc) Repack xatab [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:DF7E796444DC78B6916F7DF8C48D9CF1C217E945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

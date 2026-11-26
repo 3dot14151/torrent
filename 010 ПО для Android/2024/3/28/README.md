@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E3AEDDBDA55131CE32F3AF686E5F3B4705057C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:6D4345586E4409F410F05D921D03BD553C454E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3328BE50B9C38237966567D596C343502FE1B5E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BZ Напоминания и Дни Рождения PRO v3.3.7 Mod by Alex.Stra
 ```bash
 magnet:?xt=urn:btih:6F8EF90A904DA7DFA0D270149D31F7DD109C6A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7295AC6893B33F68DC44B6E0D32CD1D9F917FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Supernatural (2024) [Ru/Multi] (1.2.1) Scene FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:9DF69BCAD564087F46421E5BAEED1317C140DB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Amber Alert (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F9E9E968D6AB4D806463C78EFDC5D8CDDBF55619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:7DB1F32E59DAE972B491E9B4B3BA10F7FA8B015D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Butanooo! Simulator посадит вас за руль фургона для д
 ```bash
 magnet:?xt=urn:btih:F8E8C2D6EBF6EBC02FB61A898977069CC1ACDF9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Zero Division (2024) [Multi] (1.01f HotFix) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F45DCB626E7D42AA6720B4A79B259EBEFF98E7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ TerraScape позволяет игрокам осуществить свою м�
 ```bash
 magnet:?xt=urn:btih:4494209D9561D2F9DA915B54A09767146C23B078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ladder it Up! (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FBFB28B6674683741DC91B642C31B99348047CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Grouls (2024) [En] (0.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:54E22F9DDABE903E479B87BAF0FC080F5DA551DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ TeleMorpher (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AE97129A141D899B9992FBE84851A4513D7C7125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

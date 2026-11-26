@@ -21,8 +21,7 @@ Mutiny Within — американская группа из города Эди
 ```bash
 magnet:?xt=urn:btih:0A1D72BC34C64F078FD037828A630727456F084A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

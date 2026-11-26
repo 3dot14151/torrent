@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0E27FE34BAE21E0087BF04B28C1315210D767DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Highway Ryders - Faith Pride & Justice (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2F8EE47BE62A6901DE85E7B6F912B0DFE9BE5EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5C6F10CCACA53E18E15EA8B29191B5876B68C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ HyperSnap - это отличный инструмент для захвата �
 ```bash
 magnet:?xt=urn:btih:4859912E5725E9CFF99B4FA9D1E51DAAA550373A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC7A73FF1E5626FB08438B581582CE85F94DCD4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 ```bash
 magnet:?xt=urn:btih:473A309C3576DDD7E14CC257B3A5363AF889A057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B42074DC257EDECB15D34D8BC6B7EC4C942DD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:4556E25DD512B0D4AFB646B3197654DB1B4DAF02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ NG: Машины: разобрать и продать. Сезон №2. Сер�
 ```bash
 magnet:?xt=urn:btih:3677FE68D959CE42134A8EF6DF35B48BE4F74D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41875A3A289160DC1E1D305CB0F8E46FF3DB48F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Bonus tracks
 ```bash
 magnet:?xt=urn:btih:36F23D92AA4D19341E72BB23146C1C61376C7C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Sammy Hagar - Sammy Hagar & Friends (2013) [FLAC|Lossless]<Hard Rock / Classic R
 ```bash
 magnet:?xt=urn:btih:1A3341E05BD7AE05167ED362B43F544BC1E4DE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A62AE82D6CF6A4D5275DAAD58AC6F255EA54D3EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56838A12CE18135D0446C0DBAA753DB65C0BFA37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:5B46C648DB8F9DC8BACFEEAEC98ACAEA220DAAB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ VA - Chic Cafe: Best Lounge Chill Out Music Playlist (2013) [MP3|320 кб/с]<Lo
 ```bash
 magnet:?xt=urn:btih:A88EFD27CCE2665A51BC020566FF7D8E204F6F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E31E1ED4FAA8477D73DF91301DBDCCFA877B0828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A040F5D31811DC93B1C66C1E4D4359A4CB13F005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:248DF94A134EFD30FE0FC3D6086B6BDE669127C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5558D99F788528B8CD847EF92D3C4EA78FCC73C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ EU - Advanced Modification (Елочные Игрушки - Улучшенная
 ```bash
 magnet:?xt=urn:btih:9A44FB08E86C164F3F15FAE0D0F8BC7AA0DC14A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42048158086EEB76423D34169AEB9F770D947597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ VA - Осенняя Дискотека. Only Best Hits (2013) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:77C64371EA3F132DA5949712017D24B42D0A8FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDF239A9CAD14E57ED387B3DD13C9EFA8E377F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

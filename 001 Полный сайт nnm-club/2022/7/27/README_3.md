@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CB20ED9523BAE014E7F4D6601B6C52365B0B15B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E607C228104BBC1604BFF550FEDA226EF054AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9271E5773B3DB1E133AEE2BFCDEB5A21E579B0F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 ```bash
 magnet:?xt=urn:btih:6BE37D24E52B995736A8565EE74D1E8314D533AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Traktor Pro 3 — программное обеспечение для проф�
 ```bash
 magnet:?xt=urn:btih:B799C6D7B72AB1F36BC9E5B71E9419FE203747C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23B6DB7801F0E1431E5DBFA3C86091D9D8CD9F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01B7AAFF0DF9FAEF2C1F88E2A070D75BCDBF38DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:475982281CA9981CC481634D7A20FC6257284A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7957CB8777F2231CC0EE701952D0206D8A079C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE2405E5B6D5DE4DD1F7D33E3E0C324864FE3590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E409101B0E73DFE4034361FFCE657CD24C8AAD11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14D0E862143C1A996C28F3073DF3942ED924322C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:B501D0E9E4379D5CD2830EF5C61E5A0D00FCE912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:524B3AD215134E64CCAB7F9D8C9C15A6D70DC7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +368,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:DBFC4956C7D32C29057FE49F0DD7DA1164807654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +393,7 @@ DataSpell — IDE для Data Science. DataSpell создан специальн
 ```bash
 magnet:?xt=urn:btih:EC6E1601DDCB597800EE2759AEEBEEB6D6DA5C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +418,7 @@ CleanMyPC очищает компьютер от ненужных файлов, 
 ```bash
 magnet:?xt=urn:btih:7A5F57A5732F29A98E6BC9EAF8FFDC6FE35C29BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +443,7 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:5EB2BADD2F5B6248B7C3B4C4FEC4559638733F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

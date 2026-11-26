@@ -21,8 +21,7 @@ VA - 7 Days: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifting, Vocal 
 ```bash
 magnet:?xt=urn:btih:3CFAD34C027537A79286E76BC28391FDE27CC395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Chris Duarte Group - Love Is Greater Than Me (2000) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:5496781EBD034F042A979DA8D55A9C56436F9EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Stryper - Soldiers Under Command (1985) Japan [FLAC|Lossless|image + .cue] <Hair
 ```bash
 magnet:?xt=urn:btih:2A8527A809DBBB1564C7154A8AB9124B13EEF167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Charlie Patton's War сформировалась 2010 году, когда му
 ```bash
 magnet:?xt=urn:btih:1BBEC25BFD99AE8118A1BFB8C2EB61F0AF90BAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Chris Duarte Group - Vantage Point (2008) [FLAC|Lossless|tracks + .cue] <Blues R
 ```bash
 magnet:?xt=urn:btih:AB924347BAF2CD80F6979C00267B87173BC1778B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Snake Charmers - Been Gone Too Long (2008) [FLAC|Lossless|tracks + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:E941D5C14F69FF4D661094B83194C6DAA5E9592C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sanctuary - Inception (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 ```bash
 magnet:?xt=urn:btih:D367D8B9981143DCC0C281280E6755B10CFCCAEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F94A9DF9E00093CA3734EC36B5C36A5068EACCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Different Light - The Burden Of Paradise (2016) [FLAC|Lossless|image + .cue] <Cr
 ```bash
 magnet:?xt=urn:btih:BAFF5CA3A8E600FAB9704834E1BC6001EEA3A622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Весенний Хаус Калейдоскоп Топ 50 (Compiled by Zeb
 ```bash
 magnet:?xt=urn:btih:ECA5F72A89FD886A3100A96B36641ECBBBCAC7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Stryper - Against The Law (1990) Japan [FLAC|Lossless|image + .cue] <Hair Heavy 
 ```bash
 magnet:?xt=urn:btih:EC922EE07AA04F06C122881161993838B277BE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Hedkandi: 100 European EDM (2017) [MP3|320 Kbps] <Club, Dance, House, Elect
 ```bash
 magnet:?xt=urn:btih:F18412B3CE12B4CFA3411C88477D1A590079B2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ VA - From Dusk Till Dawn: The Beginning (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:1AA0B4F90156E9778AF7CE91D17573533C410570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:618EE3C6D8B39086F4E60C175892596328770ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74EFA02DAF9F7CDD428EB9CA95E2B721BE939E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2747AEE8F88A9F7A829417FCA5C4A0A6D366C68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F2C6AA0C05E9A4175E051A9327E586707ED1587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DD13084AF2D6B8DF6B17BCF189B74E2B2F9494F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51BB7213E42B5909980B2ED46FEB133898FA10C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89628C866CFCBF3BE4F23C3BE532D7111C147899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E890FA218DE8333BCD8C861E11B5094A23AB51B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ VA - The Fourth Dimension: Psy Trance (2017) [MP3|320 Kbps] <Psychedelic, Psy Tr
 ```bash
 magnet:?xt=urn:btih:6A975854E7F57AE5FAE1C6CF772903DD6E65391F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B1418A04757E540A7067A9D57E6A49BDA116109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F029F253F0E2132E98E78076483A0BE5F201ED26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:759EB822CED8DECECF2FB07906AA4A1AD40DB250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

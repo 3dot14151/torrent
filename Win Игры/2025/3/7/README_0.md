@@ -19,8 +19,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
 ```bash
 magnet:?xt=urn:btih:62690C401E886146068CD86AE4436B198EBA5E0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Avowed (2025) [Ru/Multi] (1.2.11.0/dlc) Repack Decepticon [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:C67842567755B31D33E5AE04F9C20E80AE170E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Peaks of Yore - захватывающая экшен-адвенчура, пог
 ```bash
 magnet:?xt=urn:btih:C18176D76BCA9EC77C2C66368DCEA7CC6BE959FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Book of Hours (2023) [Ru/Multi] (2025.1.a.11/dlc) License GOG [Perpetual Edition
 ```bash
 magnet:?xt=urn:btih:31F18E6CEB18B68B71B04BC48C497ACCD99E705A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lyndaria - нелинейная эротическая визуальная но
 ```bash
 magnet:?xt=urn:btih:A3CD104A66420E656BE71C14AB3224F7353E199B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:9096EBC55960DA4A0A3A859D443BDD7B1C2E84CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License
 ```bash
 magnet:?xt=urn:btih:F7B5CA2AB6E57202B76C8EB70C588C00EF623AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Citizen Sleeper 2: Starward Vector - это ролевой проект, где 
 ```bash
 magnet:?xt=urn:btih:93583406D04D5018B6F4EFB738AEA1B7EE330AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85A78F78BAF4404E2E913391062791A324CDF43A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack FitGirl [Ultimate Sati
 ```bash
 magnet:?xt=urn:btih:FA33108196B0014A17707DC476426194A1EA5D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/Multi] (1.0.1) Repack Decepticon [Anni
 ```bash
 magnet:?xt=urn:btih:8CA75088F7EC42E4696EDAE65F9B2FA0651CEA82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Memory Lost - захватывающий шутер от третьего лиц
 ```bash
 magnet:?xt=urn:btih:15F9F76A3AAA36A6C75C6F7ABAB0BE832B19758A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.8.0w1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:08689ABE288D7DB9D1600234E0D96E2AAD6FDFAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:85BDEC308AD2171AE042FD25F05B3E5599339B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ ULTRAKILL – игра, вдохновленная классическими и
 ```bash
 magnet:?xt=urn:btih:02B17E817CFF15487C623C35218E80B6B08CA3BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Repack FitGirl [Ultimate Edition
 ```bash
 magnet:?xt=urn:btih:9C84E902CBE327095C9A4ABFE42B80C605372207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:7B268ECAA57F0F909BDA3A88D9380150980FDB32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ YIIK: A Postmodern RPG - это сюрреалистичная ролевая и
 ```bash
 magnet:?xt=urn:btih:EF1B96965E07D68419FB1B98B51CE874C29C33A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

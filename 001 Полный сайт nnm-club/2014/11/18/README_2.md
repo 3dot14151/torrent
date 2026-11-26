@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:4A8D864780771D5519AE5806EB764A158EDBEE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Ben Howard - I Forget Where We Were (2014) [MP3|320 кб/с]<Indie>
 ```bash
 magnet:?xt=urn:btih:5C0AE952355D9C34F2CA9F81E655A7C17195587B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Mods Crisis x Register6 - New Age Swager  (2014) Touhou Vocal /Doujin/ [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:23F52CC8F515F736457B0EE7FFA08A70CE019B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1A7AB74BAB4C7E2D295660BA61569E6DF006FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ IBM и NVIDIA приступают к созданию двух суперком
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3942408FEB5448CBE93AB238345C96AB2B8D05EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Google Chrome 39.0.2171.65 Enterprise (x86/x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DF070671BFAFD0A86D5DD421027D625A63E1CD82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2668A0D346F447EBF6B0969D1F7153289FB1BC97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Atomic Kitten - The Greatest Hits (2004) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:74C1B1C082555C00384AF19F33E60FC696A15AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18CC6405D76A266DA386ABD4233B286B115FA64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Wise Registry Cleaner - бесплатная утилита для безопа�
 ```bash
 magnet:?xt=urn:btih:C8FE17E4287C2F812679E4E9A37DF36FDCB9514A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Google Chrome – веб-браузер от Google с открытым исхо
 ```bash
 magnet:?xt=urn:btih:AC18690358C3AC1AFEF55B419B915884F726DD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBA0A190AB2D33737C423B9EEFC9CECC76F7561D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC490D1632BACBA4AB887D05A8AE6DE5A418ED09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4298603EEE8024A6B909CD4E9CE427F4A9CEEFEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ VA - Осенние Интернет Новинки 50+50 (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:6D0C14A594B027890E15F86D6C50730B7C0812E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ Bruce Springsteen - Greatest Hits (1995) [AAC|WEB-DL|256 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:2BF8526FBAE7F0A528C15ED5BDCDF5BF95E7B730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79ABBBC47F4D08D32107DDBD88A3BDA0489BB810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E4095B50C1551074FD2B833E447FB62F50578E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +588,7 @@ Arabesque («Арабеск», в русскоязычных СМИ распро
 ```bash
 magnet:?xt=urn:btih:570BE4BA05FB369D3F95BC72BD2F36A8B8578978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +613,7 @@ Windows System Control Center - оболочка, объединяющая пр�
 ```bash
 magnet:?xt=urn:btih:2D939DD62DC152C256DA53580489AEC9AF328D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3874F74EFACF7BBE12832B18FE484CB8849F8043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A810961F25C87A4777A8428AA406B2AC7D5B3DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:054A558886E2A2CE3F8271020268C147ABA49609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ VideoHive - Silvery - 141490 [AEP]
 ```bash
 magnet:?xt=urn:btih:6B8F019A2BF5B98C2F23467C1CBC92445948B5F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

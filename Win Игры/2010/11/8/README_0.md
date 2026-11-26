@@ -19,8 +19,7 @@ Epoch Wars (P) [En] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ NightFire
 ```bash
 magnet:?xt=urn:btih:18DB18A55351EE3B217C9C626140F2C7D7058179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

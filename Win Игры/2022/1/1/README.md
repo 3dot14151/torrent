@@ -19,8 +19,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:3D90BBD664C048C3B724625D94ABFC4529CF2551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

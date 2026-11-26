@@ -22,8 +22,7 @@ Jonathan Young - 40K HEAVY METAL (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic M
 ```bash
 magnet:?xt=urn:btih:B17237A29F6CA61FDC91987A8CAD17BE0E661F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Asking Alexandria — группа, которая не боится менят�
 ```bash
 magnet:?xt=urn:btih:3FB004F5E3867039F5BAF4D30AAEAAB39522260D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

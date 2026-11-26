@@ -22,8 +22,7 @@ Legenda Aurea - Ellipsis (2009) [APE|Lossless|image + .cue] <Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:2C62B0D98709C4E2DA0296682626E84EABDAD819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Purple Gang - Strikes (1968) Reissue, 1998, Essential [MP3|320 Kbps] <Folk R
 ```bash
 magnet:?xt=urn:btih:241984B4ED415CEC2C61CFA6CBF0A5EDA7C8B8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lindi Ortega (Линди Ортега) - Little Red Boots (2011) Last Gang Recor
 ```bash
 magnet:?xt=urn:btih:3A4A246E1526B49438E3F9714390CD559E956C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Story of the Year - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:7C5E18BAD5DD4B908AAB34D1FBD4F2642A2CBF0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Virgil & Steve Howe - Nexus (2017) [FLAC|Lossless|tracks + .cue] <Ethereal, Art 
 ```bash
 magnet:?xt=urn:btih:17609CB54A530E976C1A9AA23339CBD1966F77FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Daniele Luppi & Parquet Courts - Milano (2017) [FLAC|Lossless|tracks + .cue] <In
 ```bash
 magnet:?xt=urn:btih:0E85E75E102D899A634BD32631B622AEDD454C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2FA198C145DE83CFD6D9EB3CE9D488C0DA29F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

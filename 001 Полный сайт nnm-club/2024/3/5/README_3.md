@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9B0D30DF9ACAE3E0AD0CBB183DFDE9F730145B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Glary Disk Cleaner - инструмент от компании Glarysoft для
 ```bash
 magnet:?xt=urn:btih:706150513AE740CA4F7EB9A7C24F4000153A100D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:5FCD4AFFB39B6EB5D097CBCABAD6F1F63454C738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2386304553BF4FCEC062E632604E0A06AD1209A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC1803771A77BE5BBE137F9F50AD8F6420468BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC48E2C0C9EC29EB5B2DD29C6F038FC8D4BA7CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFDB2E3FBF6D5FD06D89F2D7B19A15338E1C8C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Fate/Grand Order: First Order | Fate/Grand Order -First Order- | Судьба: �
 ```bash
 magnet:?xt=urn:btih:CC2113A923D79054E26861D12AF818725771DAD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Wise Program Uninstaller 3.1.9.263 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1562EF6594B95D152F08253130E2F676A882D64E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A5E44DCAF7B6EB9B2EFD6DB09DFA39B420E3451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ MediaHuman YouTube Downloader 3.9.9.88 (0305) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:2A46BE824CFC6E61281F6CC223AA6C9E0F82C490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:4ED56A211A378ED65CA0C77B128441E78B0D33AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F04110EA1DCE59AE2B497BD1E09944353D825681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ CPU Temp 1.6.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:7FE1959A568F17A9D815B32F941CEDFA63E82D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5F2D8614B5B52286720D03A45C9BA3F6515F4C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ SRWare Iron 120.0.6200.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E9722845F4FE6C01D1DF0AEB9B5D260FCC5D186D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ MarginNote 3 Pro v.3.7.25 [Multi]
 ```bash
 magnet:?xt=urn:btih:A80A02ED37CE49AAEDC8C4E43BFE8F1E53EC22ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6585310DD6E052190835DE08D78F455D3913493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C20AFDEFD2E535366CAD27AD618B5548265A273A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ AC/DC - For Those About To Rock (We Salute You) (1981) [FLAC|24/192|image + .cue
 ```bash
 magnet:?xt=urn:btih:D4BB87989B200E364DA2B4AC3BAD71652DCE1772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ iReal Pro 2024.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:2BB2DC5AE0582B4CF9BA046F5DA36B4C5598DFB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C93A8A9F5947CEFAFC21D7862276A4C76F446AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ VA - Музыкальный телетайп 4 (1988) [FLAC 24/192|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:15DC3CF8925ED6984013B5E8180F046325C8CCA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ VA - Emotive Echoes: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ```bash
 magnet:?xt=urn:btih:9143087CAF1987C3284D11D3A3E8BD12A1BDBDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2898F71AA5B058AB7CC23CD2F10CD370AE39EC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ Kid Colling Cartel - Living On The Wild Side (2024) [FLAC 24/48|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:031B54656433AD95FD9C3746F4D2A50A6BA59A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

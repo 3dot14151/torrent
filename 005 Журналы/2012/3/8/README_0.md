@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:BCA2D6C1BCF9D2350E3DB1F900FF2E1F3A45BE5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Playboy — легендарный журнал для мужчин. Экскл�
 ```bash
 magnet:?xt=urn:btih:7A73961C9DF52BA0B0E67D1C62C45CBD1EEC27AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Playboy — легендарный журнал для мужчин, основ�
 ```bash
 magnet:?xt=urn:btih:F2B6ED5915724FAEA541AB53C723AFD9FBC9162D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wireless Network Watcher - неплохая утилита, которая по�
 ```bash
 magnet:?xt=urn:btih:71272650B2550BBADA22335F6127127BD7AF079B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DesktopClock3D - простые, но в то же время красивые 3
 ```bash
 magnet:?xt=urn:btih:468392C10DC548968B4AC644AE44A72D85BC3045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

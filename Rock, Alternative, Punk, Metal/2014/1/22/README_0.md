@@ -28,8 +28,7 @@ Huis - Despite Guardian Angels (2014) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:88885D2C8D66F5C800CFBE07AC5CC1B14243ED88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Raised By Swans - 2 Albums (2005-2010) Discography [MP3|320 кб/с]<Post-rock>
 ```bash
 magnet:?xt=urn:btih:92CDDD98BE89A46497E01119225225C21C962903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ VA - Just Like... Rock Legends Playing The Songs Of Led Zeppelin 2CD (2008) [FLA
 ```bash
 magnet:?xt=urn:btih:968C741E9B5386FED4D50C7CB36352811DAF5494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ WitchcrafT - 3 Albums (2008-2013) [FLAC|Lossless]<Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4955A3CE100C437219A90ED901D77A5482BD93D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

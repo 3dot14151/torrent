@@ -19,8 +19,7 @@ Sable Maze 4: Twelve Fears (2015) [En] Unofficial [Collector's Edition / Кол�
 ```bash
 magnet:?xt=urn:btih:8C886DD7EE42E0421A056356E028A4BFF13E940E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fierce Tales 3: Feline Sight / Жестокие истории 3. Кошачий
 ```bash
 magnet:?xt=urn:btih:EAFB05283AB13BF52D3267D8201B4D918A4A33AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

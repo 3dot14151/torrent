@@ -22,8 +22,7 @@ Takeaway Thieves - 9 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
 ```bash
 magnet:?xt=urn:btih:E2C51938D4B6951E1C9E681AE424FFAB2C642BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Viriditas - Green Mars (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, N
 ```bash
 magnet:?xt=urn:btih:467FAE4F8DE56272C17439F5EECF447E639CC73C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lucas Barnery - The Wave And The Sea (2021) [FLAC|Lossless|WEB-DL|tracks] <Progr
 ```bash
 magnet:?xt=urn:btih:EC07844C23C15CFFDA1F305861B84DE1F0B02E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Spiritbox - Eternal Blue (2021) [FLAC|Lossless|tracks + .cue] <Metalcore, Progre
 ```bash
 magnet:?xt=urn:btih:1A87CEBAB47AC99A77B6F19C522553C4C6400D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Eagles - Legacy (1972-2018) 12xCD, Box Set, Compilation, Remastered, 2018, Warne
 ```bash
 magnet:?xt=urn:btih:B598C338F0D0E25DA3BC2AA9C3EFE9CBB96E8F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

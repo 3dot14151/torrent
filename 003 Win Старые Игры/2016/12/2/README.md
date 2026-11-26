@@ -19,8 +19,7 @@ Judge Dredd: Dredd vs Death (2003) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:25DD78EBAA782AEB97BB097A5EE7CAF44853B2D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

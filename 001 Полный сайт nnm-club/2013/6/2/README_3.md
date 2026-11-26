@@ -27,8 +27,7 @@ CD 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Barclay James Harvest - Glasnost (1987) 2013 Remastered & Expanded 2 CD Edition 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB7DBCD7C660FEBBB1280DC1867472B30848514A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:956204FE3523AA0CA15343B2ACDD8003E5CEE1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC881CB62560C081B428AE217BB96191F458B5E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Hanne Boel - The Shining Of Things (2011) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Nat Geo Wild: Дикий Запад. Ровно в полдень / The Wild Wes
 ```bash
 magnet:?xt=urn:btih:84F0E183D7908D6EA4F37F1EC1909C241C56D396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ James Ingram - Forever More (Love Songs, Hits & Duets) (1999) [FLAC|Lossless]<Ja
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ Opale - L'incandescent (2013) [MP3|320 кб/с]<ambient,luminescent wave, electr
 ```bash
 magnet:?xt=urn:btih:BE42D443EFE9B8A15A3787B34C260438DEF98079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ AqME - Дискография (1999-2012) [MP3|128-320 kbps]<Alternative, French
 ```bash
 magnet:?xt=urn:btih:9ECB0633E21AB99577F96885C338B859908220A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AD4C233EC317A0CA6A20934056F791C421E3E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ David Guetta - Play Hard (Official Video) ft. Ne-Yo, Akon (2013) [H.264/1080р] 
 ```bash
 magnet:?xt=urn:btih:BC0A6518C0158205DEFE94177FEB503B9572C87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ Hugh Laurie - Didn't It Rain (2013) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ Google Chrome - бесплатный новейший браузер, позво
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E35F60D0B8EB93DC8B0D65DD4CE2C20B6C9D030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ VA - A State Of Trance 2013 (Mixed By Armin van Buuren) (2013) [FLAC|Lossless]<T
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ Frank Sinatra - Sinatra Sings Cole Porter (2003) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ VA - The Jazz Collection (12 CD Box) (2011) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:3B033F645654795BA7CD7FE40A52E0E51F2F95CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +551,7 @@ Raymond Chandler
 ```bash
 magnet:?xt=urn:btih:79DC1B242CEC8D876651B081F0ED48FF16090EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +577,7 @@ PasteCopy.NET расширяет возможности буфера обмен�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ David Byrne and Fatboy Slim - Here Lies Love (2010) [FLAC|Lossless]<Alternative 
 ```bash
 magnet:?xt=urn:btih:8CC82055CF434E91010721CA12B5D9398AFB8A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ Balabolka 2.7.0.548 Final + Portable [Multi/Rus]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ Fred V & Grafix – Goggles (2013) [FLAC|Lossless]<Drum & Bass>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ VA - Trance World Vol. 18 (Mixed By Protoculture) (2013) [FLAC|Lossless]<Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ Finntroll — финская шведоязычная фолк-метал-гру
 ```bash
 magnet:?xt=urn:btih:E9F8936C4C4F9417AFA3496CE4BD6710AC51D39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +762,7 @@ RiDoc сканирует документы, делая отсканирован
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

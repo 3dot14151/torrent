@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:56934719C27D2CBD2AF31582E2E0FFA6133D3F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C8DF39103F00016D3D26BF33F0271B55FB3AE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3BFEE16B2031FC1D3925376BC4776E72FBC038F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Pro Evolution Soccer 2015 [PS3] [USA] [En/Ru] [4.53+] (2014)
 ```bash
 magnet:?xt=urn:btih:81CC5663CFB809FCB2F4A60D1500245679EE31F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Foo Fighters - Sonic Highways (2014) [MP3|320 кб/с]<Alt. Rock, Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:57B986452D40CFA309C3A59E9A256BA16BE9EC27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B61474DD31A5F9F28762C1684FFE97F08F309D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ VideoHive - Fire Reveal [AEP]
 ```bash
 magnet:?xt=urn:btih:EF020673E129B73B399C2830E5A8284A0879571A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:5F09B4ED867BF9B67047E7260072702E7A94D73A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A5C9F1B4D52DBFCD4C13BECB6EB592B5DDEBA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Skype - программа, с помощью которой вы можете �
 ```bash
 magnet:?xt=urn:btih:AF68061C329F76CD97E22AE9BB6F77EB91A70401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA0F059969E71F72F98ACE6118ECB703EB4152C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ XVIII век, Северная Америка. Среди хаоса и наси
 ```bash
 magnet:?xt=urn:btih:375D32CE3CE86F39A07C0AE1FBC90DFBF0DEF64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ The Maze Runner v1.1.16 [Ru]
 ```bash
 magnet:?xt=urn:btih:8D1F0995E5D71A4E0D6732D1B2AA4F942F3394D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ MAMP Pro это полный набор для веб-разработчиков
 ```bash
 magnet:?xt=urn:btih:FAD9A66E93B108161D5D110B3965BC99F9CC371D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE317A3DFEEEDC35AC29B52A6DBC77292117340E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Jeff Lynne's ELO (Electric Light Orchestra) - BBC Radio 2 Live in Hyde Park 2014
 ```bash
 magnet:?xt=urn:btih:D58E4A652FDA187A95033AD18427C155C7BDB1A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ Rabbids Big Bang – первая в этой серии физическая м
 ```bash
 magnet:?xt=urn:btih:88A1CCF4D3645FBE197F007B51245B2EAA40C731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B0A0C92C88E8BF78BFB10307C3DDBDEE8DE57DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D362A7CC8065BDDD69A803B1F01E1A17BB4789E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2376A2D7AC60D168CA6B147A9C903814C7FB4770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ VideoHive - True Love Art Gallery - 5310362 [AEP]
 ```bash
 magnet:?xt=urn:btih:77EC3368F6174E3B95569002C5A6DB8ED5103462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EF6F13FD6DB868BDC99CFC421118FFF6FC66118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECFAF615202C1CF33848F33CCD78C826F7114C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C09553357B1247E893312E7FBFE50B2118BC6F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ VideoHive - Life - Motivational project - 550873 [AEP]
 ```bash
 magnet:?xt=urn:btih:E1233101C633501FF9F8B8E2A60A9BE6C7B84CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ Pro Evolution Soccer 2015 [PS3] [USA] [Ru/En] [3.55] [Cobra ODE / E3 ODE PRO ISO
 ```bash
 magnet:?xt=urn:btih:6E7B9AE3639A513907C302382988AA616C168490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

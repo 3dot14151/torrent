@@ -19,8 +19,7 @@ Swamp Attack 2 v1.0.0.125 [Ru]
 ```bash
 magnet:?xt=urn:btih:B6C25C5DE43F8EC2E9D9C5BD8B85880554301E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Don't Starve: Shipwrecked - В новой части вы будете игра�
 ```bash
 magnet:?xt=urn:btih:54F3272354F9487397DC938489726A55F4D76FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

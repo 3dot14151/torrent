@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F2CF039BAF02A3C623DF1B7C3655D98A0B2F9A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57D23BCDDD92D82604815EE3A1D706B50CC2866B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Sleaford Mods - Key Markets (2015) [mp3|320 кб/с]<Post-Punk, Hip Hop, Punk-Ho
 ```bash
 magnet:?xt=urn:btih:F40D8B16662C734370470CFEE4A097B5A9630056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - До утра (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Disco Ho
 ```bash
 magnet:?xt=urn:btih:F5D320F9971A2B8D992520988219F72D30246D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Hanging Garden - Blackout Whiteout (2015) [MP3|320 кб/с]<Post-Metal, Doom/Dea
 ```bash
 magnet:?xt=urn:btih:B7192287370E9C00DD4798DCEE27BCC13801C88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B1C0CC4BBB89C492CAA49D104B0C24C3F4540D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:395FD4D8452B2A4776FD88E00352ED1231770B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6217A22425141664A500FD13A497136113770D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Johnny One Eye - Dirty (2015) [FLAC|Lossless|image +.cue]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:340B84152A6E903D862A2EB0AE5DC144B6E62138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35D2376B2605BE99DC12424DB56787D9416C323E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CA6E0FB026B5E85A8CEB255D47AB012FFF34B43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A76C587A4D98483EC920C7BE6FF9DE2F3DE893D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17F073F468C813BBD784D073D138B352816418FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ Unibox - новый способ для организации вашей эле
 ```bash
 magnet:?xt=urn:btih:7CB37B6B255CF594D66FBDF18E14FA64C9D49686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Sleeping Beauty
 ```bash
 magnet:?xt=urn:btih:2A9B575EC1D966BF832DDC33EE6E208ABF657CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Bryan El - Essence Of Life (2015) [FLAC|Lossless|WEB-DL]<Chillout, Ambient, New 
 ```bash
 magnet:?xt=urn:btih:64E051F58B7C49DAEB2C72039635A55D3E05B992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Cristian Petrescu - Georges Enesco: Oeuvres pour piano (2005) 3CD [FLAC|(image+.
 ```bash
 magnet:?xt=urn:btih:ABB5083A7FE25E0A637C7606A6B07EF4B4340BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ Don Henley (Eagles) - Cass County (2015) Deluxe Edition [MP3|320 кб/с]<Countr
 ```bash
 magnet:?xt=urn:btih:1266EF4675161D495CCD32C46A5E7B4955852325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ A German Requiem op. 45 (for soloists, chorus and orchestra)
 ```bash
 magnet:?xt=urn:btih:00A44E600F05F2631D8CFC34E1EA83244F0DB5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:188A94D33A72C363FF094837E0D6DF6D0499F0C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33F8218A75EC0F0F3C98299A311B0026AF05DE33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84BBE33F0702FC102126865CF99633C25A5A0B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ VA - Ultimate Sexy Beats Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass, Jungle>
 ```bash
 magnet:?xt=urn:btih:7E1C3123C9B1B01D0BC62A27CB7B21A722E6207F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ Piano Sonata No. 26 in E flat major ("Les Adieux"), Op. 81a
 ```bash
 magnet:?xt=urn:btih:D4D7CDD7D328C3CB60552E408446474BE6427967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:943F9729180D13910A0689FB2808A444C17A345E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ VA - Dream Hits vol.13 (2005) [MP3|256 кб/с]<Pop/Dance>
 ```bash
 magnet:?xt=urn:btih:E707F025382E8AFC5C3DF0631607524C9F46B2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

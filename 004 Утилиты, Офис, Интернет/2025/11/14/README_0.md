@@ -20,8 +20,7 @@ O&O Defrag Professional – инструмент дефрагментации д
 ```bash
 magnet:?xt=urn:btih:2DE5DDB4CD1839AE7E23249324B8A92FE641ABD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:00058A3789979D8B334E728C26BA134C287A7CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:A4D4FC600195AFE54269F9D8C991E3B7D8F1453E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:EBE3A261735E57C0059E4ED2065621F7E305D9B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Office Installer - программа предназначена для online �
 ```bash
 magnet:?xt=urn:btih:BF551D13C471ADA78DA0B252D47DABE3F7EB28C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAB4C4804A782A6F88F41AA47EFC673A5147DBED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ RAM Saver Pro - инструмент для профессионального �
 ```bash
 magnet:?xt=urn:btih:EE0FBE235613198EDDC1C7D8BBFA5B7EEB54CA4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ r3dfox — это форк веб-браузера с открытым исхо�
 ```bash
 magnet:?xt=urn:btih:892FFF3E04B4E88E52CB22551595FF22F0EA12EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:4D76A68CDD2B26282BE13718D4480ACD3DD2ED75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

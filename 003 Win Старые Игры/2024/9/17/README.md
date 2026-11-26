@@ -19,8 +19,7 @@ Overlord - это приключенческий action, события кото
 ```bash
 magnet:?xt=urn:btih:E3F4369C427B1F270A9150143DAEC08359B22B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

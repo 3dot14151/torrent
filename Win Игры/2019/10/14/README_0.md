@@ -19,8 +19,7 @@ Remnant: From the Ashes — шутер на выживание от третье
 ```bash
 magnet:?xt=urn:btih:DDD96B6EF456BD4F078444D905CC003F5ED23138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A6105CCFD0E82BF5616C8BE5B3A7DF1DDB1277EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

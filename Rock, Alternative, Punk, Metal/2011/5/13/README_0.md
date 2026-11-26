@@ -28,8 +28,7 @@ Nazareth - Hair of the Dog (LIVE) (2008) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:B0CB1E15218817B9940782035329BBDA4D83FE17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:1666C1F17D0E3612A4E8E4D793257AD16BD598AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

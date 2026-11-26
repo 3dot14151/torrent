@@ -27,8 +27,7 @@ Tom Trago - The Light Fantastic (2013) [FLAC|Lossless]<Tech House, Electronic>
 ```bash
 magnet:?xt=urn:btih:66084A160A4DA050B56C0790B7AF364A47ABE402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:FBC49F8D5EEA3C69FE0E62C6D2691BAF9800D7E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Pestilence - Obsideo (2013) [MP3|320 кб/с]<Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:8232A543974E3FEB7D99F398669B13662928A54C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Revived Legends: Road Of The Kings Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:BCC85A6D16F47A025136CC0761D1392A13EC2133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BF194D1CA85293D2E5FFEF26D43912DD430FBDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C8654B36DC7322E818D54FAFC2379A933B8078C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Greed: The Mad Scientist (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E78A3F0D93FBDF8780113167B37684E96E08D242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C0D835CC1A64F98ADBA44B3E3C22C316D269A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ Bombay Dub Orchestra - Tales From The Grand Bazaar (2013) [FLAC|Lossless|WEB-DL]
 ```bash
 magnet:?xt=urn:btih:AD558F1E18BADEC9B8FB969B7B27CBDDBB1D7C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E36A6AEF6B70D4EF369B0EDE16C0A4F060E60F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66B7B6C6BC2B4C3617323D13299FE4E2F1F7B256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ Talisman - Life (2013) Deluxe Edition[MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2926CB186BE119632C346806B7E3C7541519C473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2EF9FED6D3FE2BAA36F64F9A689DA9E6F972D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02AE5E2941C49DA76DE774AE4512DEA43DB5833B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACAF0543A7C7AF3CEDFA6C54E8CD965DCECB1018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05D1F221F35B69458DFF52C8419273D0B1B2B892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +476,7 @@ VA - Музыкальные новинки интернета. Третий ос
 ```bash
 magnet:?xt=urn:btih:3B57EB9E741AC3C4702E4DB06540B78E096CDBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ VA - Italo Disco Hits Vol. 89 (2013) [MP3|198 - 320 кб/с]<Italodisco, Eurodis
 ```bash
 magnet:?xt=urn:btih:D020277A68D2E3336A1EF11E4626223ADE02B5A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ VA - More Music 7 (2013) [FLAC|Lossless|WEB-DL]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:3C2CE54FA2C0354DFE97570B5A11825409C765E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ VA - Trance Nation (Mixed By Andy Moor) (2010) [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:A810091309AA32D6BA611A1F8633E3B1BB51C0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +604,7 @@ Image Resize Guide - программа для изменения размеро
 ```bash
 magnet:?xt=urn:btih:CD36F09B33627E6531D2FE8AD328293A0E830CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ VA - Space Signals (Mixed By Tvardovsky) - 2013 [FLAC|Lossless|WEB-DL]<Tech Hous
 ```bash
 magnet:?xt=urn:btih:B4E1948EE4585F0AE68C7EE652C4182394D7F27B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C42B0C4E335DC240CDED2CCEB387322080642B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B268B5FA22004D09B38AF18BC4E0102622F85346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ Photo Montage Guide - программа для отделения цельны�
 ```bash
 magnet:?xt=urn:btih:73CE9BD22942FDC7327D2AA49CDBCB53F6B47A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ Maкс Брукс | Война миров Z [En] (2013) [MP3, RTF]
 ```bash
 magnet:?xt=urn:btih:751CB7EC65E0536DE635714CF7CC23A4856A22B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

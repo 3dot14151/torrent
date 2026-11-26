@@ -22,8 +22,7 @@ Steve Blower - Alive in Isolation II (2021) 2021 Sessions [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:DD1144B6217716723079A8CB93142FE56793D667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sacred Oath - Return of the Dragon (2021) [FLAC|Lossless|WEB-DL|tracks] <Power M
 ```bash
 magnet:?xt=urn:btih:06254ABB5A654BAD36D4613DB1A47D1985C14DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Avaland - Theater Of Sorcery (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 ```bash
 magnet:?xt=urn:btih:A13A7589E0E87DCCBBAF91608CBC6EBA7DE34F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Necronomicon - The Final Chapter (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:AAE946C9DE31B6C7EE3D8EE2DDEB1D87BBA7DEF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lord - Undercovers, Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:E1699DFFB1886AACA72B440E772AAF543C3DEF01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Cactus - Tightrope (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:BD07A85064CC7E7C1EE4C2FC7C68A4CB83091587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ SUNSTORM появился на свет в 2006 году, когда прези�
 ```bash
 magnet:?xt=urn:btih:B0B530FD93C59C91A0510257B851DC2E207FB2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFF20D094592E3B0AA7D76874445BAA38156B1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Def Leppard - All Timers (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:853F239DE756A4000D2AB12B81AC31FBD883E1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Sting - Duets (2021) Japan [FLAC|Lossless|image + .cue] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:D237BA94E9D5BC1B59A9C29E8B1435A328A61F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Whitesnake - The Blues Album (2021) Japanese Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:2C2EC93075BD7B34758755E73421AA16AA166852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

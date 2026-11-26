@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DECCC86BCBDB289B99DF729A523E0F190797CD27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:056E99A7CE0B16537AD59496BD8EC022C9951673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Fast Car - британский автомобильный журнал, осв�
 ```bash
 magnet:?xt=urn:btih:C715E5FA76D727CA0EBD97EB4B63B5398F29B763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Fast Car - британский автомобильный журнал, осв�
 ```bash
 magnet:?xt=urn:btih:1D8EDCF699324D7DB1F498F04935D15C4330CFE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AC7EFC7EF5C1B8566D6661E15A278CAC50DF0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E28A07AD43BC1A90097B214169D5784ED86BB11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2005BECD2AD61CDDE4C4C764C146687766810739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Hot Rod покрывает аудиторию любящих жечь резин
 ```bash
 magnet:?xt=urn:btih:22527149D0A95DBA006089770EC72DA2C4282DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Fast Ford - журнал для владельцев и потенциальны
 ```bash
 magnet:?xt=urn:btih:64BA9D6D133197823556D22FC6AB4D3DF8911326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Evo - ежемесячный журнал, посвященный исключи
 ```bash
 magnet:?xt=urn:btih:51648E0208EBF557BCC6A949EB9C4A11449E4D5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ Fast Car - британский автомобильный журнал, осв�
 ```bash
 magnet:?xt=urn:btih:D2F003AAD864A497CAEB3B634F3374970CFBB020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9F6DEB93B497E0D1DBCF1A94146499EB52ACA1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ Farm Machinery Journal - это специализированный униве�
 ```bash
 magnet:?xt=urn:btih:B41122ACE66F17B28E4C42915DF3F032B8B0FCAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA207A6FD44FB91B5151EBC0E1A315CCB5D0E30C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Lower 13 - Embrace the Unknown (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 ```bash
 magnet:?xt=urn:btih:E16A26CB102ACC1C1D0FDA1AB36497113758AE83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ Fast Ford - журнал для владельцев и потенциальны
 ```bash
 magnet:?xt=urn:btih:4CE11F715EC69DA338C118A5EE8B71E153BBBA29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ Fast Car - британский автомобильный журнал, осв�
 ```bash
 magnet:?xt=urn:btih:FD115E74106FA46F07FB9009DEC9423E39AA2481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +446,7 @@ Hemmings Motor News: мы существуем с 1954 года, и если в�
 ```bash
 magnet:?xt=urn:btih:61D1C9945B244ADCB9C6E8050A5CCF4B949EB6F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

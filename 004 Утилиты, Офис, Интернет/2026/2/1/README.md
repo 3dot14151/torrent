@@ -19,8 +19,7 @@ Flip PDF Plus Corporate - профессиональная версия наше
 ```bash
 magnet:?xt=urn:btih:08AE3DC448830872C3784158A28D5AE6A2EAA1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:203F51A32975C57A54F02C8C71515FC59A11F769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:26A7E8F80A508F13616E62F48F7C64D925959B87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:F2BD5ED59D5DAE280087901E16741A7F1B18559D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ iDownerGo – это приложение для загрузки мультим
 ```bash
 magnet:?xt=urn:btih:A7118C607C99108DAFFAB68FE1F2545816477969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ceno — первый браузер, разработанный для инте
 ```bash
 magnet:?xt=urn:btih:9ABBB2383D8E2D5A6991E443E3987F29F45A0495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ HyperSnap — это самый быстрый и простой способ д
 ```bash
 magnet:?xt=urn:btih:A01EF3334D02638E39255A65CB4A7C1B1830F866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:C81AFC334F2CE20AF13CBA93C91BDC60972D76E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:42D361CFB500B8DB5ED3700879613DC0E5A76FB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:0AA4C50C39183302CFEE4B29481C8A7EF0818A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

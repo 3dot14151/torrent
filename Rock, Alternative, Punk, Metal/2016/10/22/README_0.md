@@ -22,8 +22,7 @@ FireForce - March On (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:1B56460F0BA6618B9B425AF88DC7F6BB5209359F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Herman Frank - Loyal To None (2009) 2016 reissue [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:159164A832C2A231B34FF966F47C44C1F285E9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eden's Curse - Cardinal (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:FD592B563C97D1DD780471CF433796F2A5023A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tyketto - Reach (2016) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6E0434BCE642A632DC2296E9224979ED3C3E81A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Marillion - F E A R (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:4242AE0EF8C55CE3944D42838C75F548F733004B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Heart - Два альбома (2010-2012) [FLAC|Lossless|image + .cue|tracks + .
 ```bash
 magnet:?xt=urn:btih:ADA1BAB371B05D5469D593B26D19A2E4AD60CD37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

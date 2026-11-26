@@ -19,8 +19,7 @@ Gomez - 10 albums (1999-2011) [MP3|320 kbps]<Rock, Britpop>
 ```bash
 magnet:?xt=urn:btih:B899175A02A0AF4ACCF1308D2EB6D38174AA094E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Born of Osiris - The Discovery (2011) [WavPack|Lossless]<Deathcore, Progressive 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Be'Lakor - 2 альбома (2007/2009) [APE/FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Sepultura - Kairos (2011) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

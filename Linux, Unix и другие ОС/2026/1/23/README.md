@@ -21,8 +21,7 @@ Astra Linux Special Edition 1.6.16 [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:513CBEAA6A9E50E0E5597593AF9773D9760B13AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

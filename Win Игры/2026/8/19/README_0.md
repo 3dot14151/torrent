@@ -19,8 +19,7 @@ Marvel Tōkon: Fighting Souls представляет собой 2.5-D файт
 ```bash
 magnet:?xt=urn:btih:417BDFD943E91C1578ADB3DE7352AB761B2609F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Sinking City 2 переносит игроков в мрачный Аркх�
 ```bash
 magnet:?xt=urn:btih:6EA967CBBBF7584ABE2938AD5716DE1F0076E177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

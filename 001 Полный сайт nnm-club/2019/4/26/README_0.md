@@ -19,8 +19,7 @@ Mirillis Action! 3.9.2 Portable by CheshireCat [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:37A08DBF09199AFEB918CBBE0E63FD27E2786D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90EFF9CC93BB2A974F164B2129DA65F946DCDB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:F76A1072F47A79FF5EA0C328F34B8D580700BB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Satin Jackets - Solar Nights (2019) Eskimo Recordings [FLAC|Lossless|WEB-DL|trac
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2BDDC6C0C0F7272EF5CB89B2F71CEF9CB3D33C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Frontier Guards - You (2019) Aliens Production [FLAC 2.0|48/24|tracks|WEB-DL] <I
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Eguana - Vanity (Alternative Version) (2019) Cosmicleaf Records [FLAC 2.0|44.1/2
 ```bash
 magnet:?xt=urn:btih:9937FA5AB2EF8A39489716F20B594CB6F3713742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ KeePassXC — программа для управления паролями. �
 ```bash
 magnet:?xt=urn:btih:763F2C0DC0F70597A54ECA04E54C8AD741941D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D36C2799CF28D72B476BF18B9979AA8A78C1C2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43C9D5E0E5183D2CB0A30E482EA4B402E0B03016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ VA - ЕвроХит Топ 40 Europa Plus 26.04.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:4062B2F593AA8619D722A3AECEC63FE588DE7762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ ORPALIS PDF Reducer Professional 3.1.8 RePack (& Portable) by elchupacabra [En/F
 ```bash
 magnet:?xt=urn:btih:EA9C67F16D91AE6521115269004856541E8B763F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Dreaming Cooper - Exploring the Universe (2019) Altar Records [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:D2B5869240AB9BDDA162F9BBA254516BB84BE7E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:A4F9BD930D36424C7B0902580D9D7F000A60930A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDF21035AF74B803281DF42B843347F729A3CF13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE2B7A45B8AB1E05177E36CF93D33917759EB0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ ShaperBox - объединяет в себе: VolumeShaper, PanShaper, TimeShape
 ```bash
 magnet:?xt=urn:btih:C97F49D8C5BDCFC0BE1328608804FC808D563421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ Light Fall (2018) [Multi/Ru] [macOS Native game]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ Kriemhild - Eternity (2009) [FLAC|Lossless|image + .cue] <Classical Crossover, P
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ Pink (P!nk) - Hurts 2B Human (2019) [MP3|320 Kbps] <Pop, Rock, R&B>
 ```bash
 magnet:?xt=urn:btih:06DBFE9EE6CA2E4942C2D9F9EC2FB9BF09E35100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ NG. Нашествие медуз / Jellyfish invasion (2007) HDTVRip
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5608B15450B49B1C75FF907C7D368340D3D551C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF096C4C697E336B1C12BE2140BF7DAB7E9D33AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ Opera 60.0.3255.70 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9C01F2391F5FE783942D8EF66C61BD9F917B8168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cool VPN Pro - отличный и из-за этого весьма попул�
 ```bash
 magnet:?xt=urn:btih:E72D00DC729436DED878CC89A6B8AA44BCF239AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ VA - Rock Festival 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:BAA213AF0BE5520AF37977AF1D686C2BB274EB16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Chris Standring - The Lovers Remix Collection (2023) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:5AAD6CD3F1E8BFD6C5897E33B48FF6ADFE6A1557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Hit - List Vol 20 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:500A7C8A273637D43C681DD9668079865257CA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Champlin Williams Friestedt - Carrie (2023) EP, Japanese Edition [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:103F47FD78C5F04944EFAD7F62A4312895C9A8F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ CloudMounter - это централизованный сервис, котор�
 ```bash
 magnet:?xt=urn:btih:FE232E4AE4FA33A97111CE5D45E736ECE134CB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Clipboard Manager 2.4.3 [En]
 ```bash
 magnet:?xt=urn:btih:DF608AB76F98D5E0E6BBD3E8EA00E2EA0C6675CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Distance of Thought - Edge of Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 ```bash
 magnet:?xt=urn:btih:7201BF2D76125C93B403E44F541AB2033B6BBDA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCC93A8CAAD65AB526BEB8061E86218A730A2EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Schandmaul - Kn​u​ppel aus dem Sack (2022) Deluxe Edition, 2023, Napalm Reco
 ```bash
 magnet:?xt=urn:btih:5CAAB42861CC840B4BD7666B9AA551B55BAB4CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:10908F4A2BF26D4160ABAF3CBDB98D377F450F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ VA - Striking Tunes Vol 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:51C35DC2D1288C667E643D5357674AB768A3C8DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Araxis Merge – это обязательное приложение для р�
 ```bash
 magnet:?xt=urn:btih:685DCA8EE012228B470D962D4F8FDFCD31F02F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Inmundus - The God Machine (2023) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:1C358B0B3B1DEA805712E370924EA3B1FF091BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Immortal - War Against All (2023) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:757FB3FC260FCCB6AE177D258DD66BFB3C987A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77C3CE520F0C2AFA55C10F2B021393B0DF0A81C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBF16B1089C32006F3B6CA4593FBF9CEC3D42B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Nana Rashid - Music For Betty (2023) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:256CEB91A47DBEA6E237D263DF1486B1D3ACAD95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Airmail – это почтовый клиент для операционной
 ```bash
 magnet:?xt=urn:btih:DC0D2F94AC7981D5C2779B4116524CA082E201C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ Sebia - Acceptance Of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EF1ED968A7A4FBD5CF414BC42C1B9802FA671B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Cry Of Dawn - Anthropocene (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 ```bash
 magnet:?xt=urn:btih:97FC64F98B81098B5424BF16731BE2593384817E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:24F2F209E2153B621F06B78A679B17DB3939F7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8228C60A93D5396F51A697B6E598EBCD8936A1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ House of Shakira - Xit (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:586A1AC970E85C039F8263B30A07CF72BE42874E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ Kenny Drew Jr. Trio - Portraits Of Charles Mingus & Thelonious Monk (1995) Clave
 ```bash
 magnet:?xt=urn:btih:1B9044DDA458A0FE08550AE45E12396A605A9A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 ```bash
 magnet:?xt=urn:btih:E893207F5468201B7BF390436F2FD80C4E6A343C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ Voodoo Trees - Ego Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone
 ```bash
 magnet:?xt=urn:btih:C2982CBB9A20B253A51CCC1EACC524EC2550437C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

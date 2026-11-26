@@ -19,8 +19,7 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 ```bash
 magnet:?xt=urn:btih:1DAC00276500C866CEE81FA8EBA1ED96F9E6EEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Livestream: Escape from Hotel Izanami – смесь хоррора и прик�
 ```bash
 magnet:?xt=urn:btih:2E2F477E0B03894E09004ADF481FEDCD59C2E743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dr. Fetus' Mean Meat Machine - это идеальный баланс между
 ```bash
 magnet:?xt=urn:btih:71AACA667D9E0FF25035DCB5F2AFBB77010C2613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 ```bash
 magnet:?xt=urn:btih:CE44695C59A01682F72A87B096E6B05C8EF51AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Voodolls (2023) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:4E7407253CCC89E8BBC7D12A1F6BE212600C664F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

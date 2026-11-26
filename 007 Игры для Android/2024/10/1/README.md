@@ -21,8 +21,7 @@ Monument Valley - это сюрреалистическое исследован
 ```bash
 magnet:?xt=urn:btih:D6E6BC8B70D565C5647DA0AD0D997B152144681B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Monument Valley 2 3.7.501 Mod by youarefinished [Ru]
 ```bash
 magnet:?xt=urn:btih:D5C222577FCA0C0DFC614E4097EABE519E030BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

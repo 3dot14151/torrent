@@ -22,8 +22,7 @@ A4 We Got A Break It Out 3:49(   Читать дальше...   )Жанр: Synth
 ```bash
 magnet:?xt=urn:btih:EB79DA06D4ED4937142EDE4FEE9B68A0DF7E927B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Just Like You Said 4:14(   Читать дальше...   )Жанр: Downtemp
 ```bash
 magnet:?xt=urn:btih:621BB3724FC425A93AFF2836B39F31F87ADDA40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 9AM (The Comfort Zone)(   Читать дальше...   )Жанр: Electroni
 ```bash
 magnet:?xt=urn:btih:06507D2E611CFFDD83FB9666FF9139CA25810404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ B1		Industrial Disease	5:50(   Читать дальше...   )Жанр: RockП�
 ```bash
 magnet:?xt=urn:btih:5689AEFC2971FB9349215EB5769616E33F1CF2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A2 Африка(   Читать дальше...   )Жанр: Pop RockПродо�
 ```bash
 magnet:?xt=urn:btih:B22C4D5475C42CBA2075D845E1B8F7DB34A49285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ A4		Lucky Day - Удачный день	3:37(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:7B71C09DB794D48807AFC21DFE38A10A7567B362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

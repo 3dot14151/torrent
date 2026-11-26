@@ -22,8 +22,7 @@ Asthma Castle - Mount Crushmore (2019) [FLAC|Lossless|tracks + .cue] <Metal>
 ```bash
 magnet:?xt=urn:btih:A119AA750AC4A793997188D0BE9F6954B5452BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 ```bash
 magnet:?xt=urn:btih:05F8F683639336E8058C50D7CA1DCBCB756B18F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dust Bolt - Trapped in Chaos (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:76814284C36A4040D819979ADF6AE4F56190149C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Black Therapy - Echoes Of Dying Memories (2019) [MP3|320 Kbps] <Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:616FF12CB11210C87DEAE3F7A9C251D38A2EDA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Serdce - Timelessness (2014) [MP3|320 Kbps] <Technical Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:FA2C61D75585232A8C3C2B3EFC4C0F99032C1329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Myles Kennedy - Year Of The Tiger (2018) [FLAC|Lossless|tracks + .cue] <Rock, Al
 ```bash
 magnet:?xt=urn:btih:1CD9211D31FED457534B77350323C50844D045EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Neal Morse - Life & Times (2018) [FLAC|Lossless|tracks + .cue] <Rock, Acoustic>
 ```bash
 magnet:?xt=urn:btih:C104061AF05B5810F7EBF53E08C28DB3ADCE069C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Tess Parks & Anton Newcombe - Tess Parks & Anton Newcombe (2018) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:345432BEAB89CB0A8455112A0162AC78323AD820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Tesla - Shock (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:40D731D94E14FD8C4BA85C342E2FAB475A0A9804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Elvis Presley - In Memory Volume 3 (1993) [FLAC|Lossless|image + .cue] <Rock & R
 ```bash
 magnet:?xt=urn:btih:16BA802B30804D5ECD60B3E0269881CF12F299E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ King Diamond - Songs for the Dead - Live (2019) 2CD [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:A8EA094DD1A05A743BA204523F274A7E7B2F5569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Rotting Christ - The Heretics (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:366631453C1561D50893D8F7A0281DBAC0BF26BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Elvis Presley - In Memory Volume 4 (1993) [FLAC|Lossless|image + .cue] <Rock & R
 ```bash
 magnet:?xt=urn:btih:2957CC2FC6E869496F467FB5BEDB3B624949D431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Hackneyed - Burn After Reaping (2009) [MP3|320 kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:911DD5E286C0B39794350DBE6182BA55EA3A5584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Malsain - The Disease (2007) [MP3|320 kbps]<Horror Black Metal>
 ```bash
 magnet:?xt=urn:btih:23BDC78D61289C43EF53857425556FFAF1B712C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Beast in Black - From Hell with Love (2019) Japan [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:650FBA1A0DFC72C22AA3FAC340FB8BAD0FE78D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2631809B7734C1B3B5F226046F8D6B1B54BDC1B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ ELF | The Elves (featuring Ronnie James Dio) - 5 альбомов, 8CD (1971-201
 ```bash
 magnet:?xt=urn:btih:85E3350D7A0C6A05DE179176FFD97CD450137560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Jason - Justiciero Arcaico (1997) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:6D582B237330841BFB6194EFAE2EB3E6A0B6AE0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Necromancy Demo 1987
 ```bash
 magnet:?xt=urn:btih:578FCD287554B831890D6E5FA67427C081F094CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Last Union - Twelve (2019) Japan [FLAC|Lossless|image + .cue] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:9ADE89FE47ADEB5BECCE9A0D28E7393C06B83F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ Psychological Conflict (EP 1990)
 ```bash
 magnet:?xt=urn:btih:E4587C2434728C903322150ADF3C020CE494E3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ A Fragile Tomorrow - Generation Loss (2019) [FLAC|Lossless|tracks + .cue] <Rock,
 ```bash
 magnet:?xt=urn:btih:D41EF428A795B84ECAD7948702697223B217FDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Hanging On  05:05(   Читать дальше...   )Жанр: Rock, Indie Rock�
 ```bash
 magnet:?xt=urn:btih:1DB9B8DD6BEFF18EAD03F5F244CA547D3B0F5470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ Equipoise - Demiurgus (2019) [MP3|320 Kbps] <Technical Death Metal, Progressive 
 ```bash
 magnet:?xt=urn:btih:705C0F4AB7818FAD32C9B841B293B60AD32A5125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

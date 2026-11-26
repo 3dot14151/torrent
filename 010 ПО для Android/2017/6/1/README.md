@@ -19,8 +19,7 @@ Power VPN Premium 4.9.4 [En]
 ```bash
 magnet:?xt=urn:btih:781B328256AF17137CE637865AC4597282CA5EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

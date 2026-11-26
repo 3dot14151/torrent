@@ -19,8 +19,7 @@ Crossword Creator - развлекательное приложение, кот�
 ```bash
 magnet:?xt=urn:btih:1F1227C1310FA348701AE6820C5F39CA35CED022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

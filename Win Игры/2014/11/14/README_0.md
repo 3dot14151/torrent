@@ -20,8 +20,7 @@ Hell Yeah Wrath of the Dead Rabbit (2012) [Ru/Multi] (1.0 upd1/dlc) SteamRip Let
 ```bash
 magnet:?xt=urn:btih:1581DFEE2C2AB660F39B422DED2929003B164863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

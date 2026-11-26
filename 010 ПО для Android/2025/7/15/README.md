@@ -19,8 +19,7 @@ Fake GPS v5.6.2 Mod by Balatan [En]
 ```bash
 magnet:?xt=urn:btih:398205F5C2A69779BFD36028AAA1E2B89C3823CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Battery Guru предоставляет продвинутые инструме�
 ```bash
 magnet:?xt=urn:btih:E480808E202684428387A37FF5E4A7703CD7D520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

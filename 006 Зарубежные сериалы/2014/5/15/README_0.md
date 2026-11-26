@@ -19,8 +19,7 @@ XXI век. В Великобритании начинают происходи�
 ```bash
 magnet:?xt=urn:btih:A91E97344CD86C4E99CD144D81D7A767F3B1706F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF8CD5338C49DA568D716CA4CD8A7F2ABB575100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

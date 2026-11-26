@@ -22,8 +22,7 @@ Nana Grizol - Ursa Minor (2017) [FLAC|Lossless|tracks + .cue] <Indie, Indie.Rock
 ```bash
 magnet:?xt=urn:btih:5267661BB75D739FAF9231357E4640D1A48D44CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Locomotora - This Very Holding Back (2013) [MP3|320 Kbps] <post-rock, instrument
 ```bash
 magnet:?xt=urn:btih:E307B4492E22F16817A04AC852A08E36FCF60B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Disembowelment - Transcendence Into the Peripheral (1993) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:301A28AF5EBB60C9E161115BCDFF8E5ABE1DDB99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Warbringer - Woe To The Vanquished (2017) [FLAC|Lossless|image + .cue] <Thrash M
 ```bash
 magnet:?xt=urn:btih:C2343D7697936C3EFFD69429FFB6C1592EDF25A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mastodon - Emperor of Sand (2017) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, St
 ```bash
 magnet:?xt=urn:btih:00AA41A1589BC0C4E9020E595CE32DC0DE434BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mammoth Weed Wizard Bastard - Y Proffwyd Dwyll (2016) [MP3|320 Kbps] <Doom, Slud
 ```bash
 magnet:?xt=urn:btih:25CD4639D19B43A74D14B32CE78C56F0D7BDC622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Mammoth Weed Wizard Bastard - Noeth Ac Anoeth (2015) [MP3|320 Kbps] <Doom, Sludg
 ```bash
 magnet:?xt=urn:btih:696E56C0532202B4A9B64CE68B2A159B77E8DBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Kaunis Kuolematon - Vapaus (2017) [MP3|320 Kbps] <Doom Metal, Gothic Metal, Melo
 ```bash
 magnet:?xt=urn:btih:29F2E31DA2F5696E669FD0EBF080C73F6636D33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:111A33090C604C9E979A0C7DF231978901E9A18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Faces - A Nod Is As Good As A Wink...To A Blind Horse (1971) Reissue, 1990, Warn
 ```bash
 magnet:?xt=urn:btih:DAECE1BFED6A683D3F144FDB728947B61BDD6BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ The Delta Saints - Monte Vista (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock,
 ```bash
 magnet:?xt=urn:btih:5860E71D149083A5E99AA07448191E4D9096B04D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD16D22F08C7BF208BD636317CB895BAFEC46B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Shakra - Life Tales: The Ballads (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:A9E1EA84A9F6E8B474A94D540CD73BBAA661C88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ VA - Capital Gold British Legends (2003) Box Set, 2CD [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:31ABFAC8DCD1299C05525D47D2C306167C84113A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

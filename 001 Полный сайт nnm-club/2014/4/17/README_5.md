@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8ACCFCEFB389BFDA9ED759169C09A3CF1F427AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ BLADES OF TIME [Rus] (2012) [XBOX 360] [Freeboot] [13599] [JTAGRIP]
 ```bash
 magnet:?xt=urn:btih:440237EA51D93C4CE0B095194D92B1DA37696086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27B27780C28863C5C03BEC7462935C341ACF9FEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ VideoHive - Lets Have Fun - 6687203 [AEP]
 ```bash
 magnet:?xt=urn:btih:3C57EE7924BE8135E27BBFE1646EAD10663606D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Android-приложение «Фонарик» отслеживало коор�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7707FFA42035D6F8FD344BF183F8BFE11C25817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Safecracker: The Ultimate Puzzle / Взломщик (2006) [Ru] (1.01) Rip
 ```bash
 magnet:?xt=urn:btih:FEA5FBD21B0EFA71C4C7BBE66A9A0E9977200B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Strike Suit Zero (2014) [Ru/En] (1.0u1) RePack Audioslave [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:9B4D5E7122754D0A25425A3B3B1680082082CFF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ WPI By Elgujakviso v08.04.14 [Ru]
 ```bash
 magnet:?xt=urn:btih:E02939CB57A5348EB40C15F03067AD58CA3E1A55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Lords of Football – это настоящая жизнь со всеми её 
 ```bash
 magnet:?xt=urn:btih:46A325373670E38E0125510E2DFCD7CCD2293697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D629442075ED8586009FE48D095D198BAA1C05DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEE2A979CFDAB0701444A0B7BAB484384B7A938B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Acronis BootCD WinPE-Based - загрузочный диск, содержащи
 ```bash
 magnet:?xt=urn:btih:3C29C35BB2A7BE087D3BC68CD4996CCAE0798D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Strike Suit Zero (2014) [Ru/En] (1.0.26281) Repack Fenixx [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:4201F363C5F51415C2A87E7A53D278B263AE248D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Arcania: Gothic 4 / Fall of Setarrif (2010-2011) [Ru] (1.1.0.1433, 1.1496.0.0) R
 ```bash
 magnet:?xt=urn:btih:B023CA738F15CBE1A742041F6E37739BA49342AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ Kaspersky Internet Security 2014 - комплексный Антивирус К�
 ```bash
 magnet:?xt=urn:btih:8B824A052F74255AF90ADC6AFFD3B4E1BDA8E8F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29AA6CB3CD7AB9BCC1057CD019291B1A2A145F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Port Royale Anthology / Порт Роял Антология (L) [Ru/En] 2003 - 
 ```bash
 magnet:?xt=urn:btih:A195BAD10BE4BC09980BF51817DA100EC2522576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Sanctum 2 (2013) [Ru/En] (1.1.25536) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:95383B84FCA08A7F5E16C091E2248A1A7BAC76E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D174CDB8FCA62CE8643F8ED17A2954BE783F057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9B702C0DAEC02163184C67CEF2C23F1B694340C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ Splash – проигрыватель мультимедийных файлов,
 ```bash
 magnet:?xt=urn:btih:18900ACAF2D2D7C57AF337FE30CE9C6CBBFABCD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ Halo: Spartan Assault это вертикальный шутер, события
 ```bash
 magnet:?xt=urn:btih:6BD8EC9E4AF93AE1FA01CDA48F859FB17A4D0A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

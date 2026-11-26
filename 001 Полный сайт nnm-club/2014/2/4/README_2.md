@@ -27,8 +27,7 @@ VA - Youtube Party Music Come (2013) [MP3|~245 кб/с (V0)]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:8E246A6722EECE42AE61C0D35D0E1672448F4278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Samsung Kies - это программа, предназначенная для 
 ```bash
 magnet:?xt=urn:btih:0A1EBB9A68798CF000C9438541E0C52D6CE55CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8056DB64A0F91B90968B08BF9B1281870D71586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4630F92130680C02A79A97A89ECF960F0C1E357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Toto Cutugno - Insieme (2004) 2CD [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:AA9B465F9E7A9A069EEA153B9B854B17E6C94CB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Metal Player - это бесплатный мультимедийный прои
 ```bash
 magnet:?xt=urn:btih:213CA5732BBDAF080F9C9E3405A7E15879EDE205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Mark McGuire - Along the Way (2014) [FLAC|Lossless]<New Age, Ambient >
 ```bash
 magnet:?xt=urn:btih:E950D4648B2A72A25BC43B2A57CC540A93BF78A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ NG. Самые странные в мире: Под градусом  / World's 
 ```bash
 magnet:?xt=urn:btih:9424206254AED8F7A0F8222EF88DAB39DA97050A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ Raffaella Carra - Raffica Carra (2007) 2CD [APE|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:FFE069E0FC1A2E6E0317E8179A55885D2F0ABD2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0ACD32787AB367A059AE27B0F40E68A44E6D8CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ VA - Uplifting Only 1st Anniversary - Orchestral Trance Year Mix (Mixed by Ori U
 ```bash
 magnet:?xt=urn:btih:26C7FA275A01236FC7CEA11A5991669F9D9042EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Garmin: City Navigator India NT 2014.10 (декабрь 2013) <En>
 ```bash
 magnet:?xt=urn:btih:F91D0BA2FF46729010348B0E146C12408B3F60A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA342D1E26DDD58BD888BCBB2EA17CD9DE6507A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ VA - Full On Fluoro Vol. 2 (Mixed By Yahel) (2014) [FLAC|Lossless|WEB-DL]<Trance
 ```bash
 magnet:?xt=urn:btih:06F549C31B8C26282499C5EF87459AB298AD5EA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Trentemoller (Trentemøller) - Lost (2013) [FLAC|Lossless|WEB-DL]<Experimental, 
 ```bash
 magnet:?xt=urn:btih:0A62AFCBD691388813C9951C150F7B76CCC87C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:889CE1A6A9E62D21DDE41E1D046691C48E9473CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA4E7477DE72FADF55FBFC8BD8AFFFDEABD0021E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9BC902601FE43897D3665E79BFB845FD9513CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54E889FA8CFB2F74656F750A0991F778F05DE7B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ Oliver Scheffner - 9 Альбомов (2012-2013) [MP3|192-320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:4F95B0543A10C66B2A032EFF70850FE6862905FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE262B73873106F141348E9F13768F4D07FEF7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +619,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (02.02.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:892C778D70DBFE181681FDCD5250AB4EB4496F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24598FAF7BA4FB9013B4C54D9104625D5EAD1095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21BE309A1406D53B06FA8953D96B31952DA6C431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:105D493EDC75349BF67E312B09BFE490DFE787EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +730,7 @@ Aaron Neville - Warm Your Heart (K2HD) (2011) [FLAC|Lossless]<Soul>
 ```bash
 magnet:?xt=urn:btih:04FE245F41FDDE0A6418D9932545D34E5202B483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

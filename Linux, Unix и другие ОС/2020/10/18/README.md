@@ -19,8 +19,7 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:03DDC83B367FD93AB37B8BB62CDCB9DA5D634845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

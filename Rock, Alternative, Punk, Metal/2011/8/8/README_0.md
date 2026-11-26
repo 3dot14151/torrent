@@ -28,8 +28,7 @@ Godslave - Into The Black (2011) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D4D309EEB407EAE75157DB8B70AE4C7FFFA81C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Kaktus Project - Superstition (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:48450F1F63BA1070312100CA54D3AA47C7A26DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ World Under Blood - Tactical (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Bruce Kulick - 4 Albums (2001-2010) [MP3|320 kbps]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Celtic Pink Floyd - Celtic Pink Floyd (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:1A26F37F3789C09B5F4387B968A5B86491D818B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

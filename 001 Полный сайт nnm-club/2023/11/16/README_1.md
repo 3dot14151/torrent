@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9B8EC4C18806684C3E210E71768C9C6AABC04A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C378B23A762630E9B4391F27819CD1B02BD3DA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B425F94AF8FA2BD40A8B8675E45346450A87C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Violina Petrychenko - Winter Whispers: Ukrainian Piano Tales (2023) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:101EC89FAA883BF50146C76595D8F53052882AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:A9DA99650BA9885CBD1274798AEF592CF33294A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ECCDAE9A73EE4B5601AC38C5CD999E622CA4395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:A34F54F5012227C3D944898CC3A91750F6F0570C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ PDF Imager Pro (Repack & Portable) -  простая и быстрая прог�
 ```bash
 magnet:?xt=urn:btih:DD8F3464B35CB9E7F8A23789B67DB0EC0B06825A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A1870142CEA0C9B3EAAD07B1707B6E604BE7ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A24A1462A4D400AE702444EA103DCB2413EA143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B76BC29136DA3FEB219EA0762654E312A7BD981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ ASCOMP Image Former - поможет мгновенно довести свои 
 ```bash
 magnet:?xt=urn:btih:8FFE1C143C7200DE6B0F2BF01E3996FB94F82517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E4DBE5CAF15418699E1B25BFA3DE66743AB6205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Balabolka 2.15.0.857 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4D8669E607798CC2DC0944BFDD657B8FAE129AF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:765A1CC5E02624ADE1DE4AA768ED97CE8BECF856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ PC Cleaner - поможет исправить ошибки Windows на ваш�
 ```bash
 magnet:?xt=urn:btih:5D94369B60E2D93AF7CCB896E82778AC14C658F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5B31BE18FDC6661C26F1ED5A91360BAA02711DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:16E7CFAE243C8678EA78AFE5767D37B74DBE098E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ Wireshark - бесплатный сниффер, предназначенный 
 ```bash
 magnet:?xt=urn:btih:00188D6C530D9749BC9CBE44EDAE641F159A1646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C3AF8622FA850E314A957DD3FACD59AC69E85EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ Synchredible - синхронизирует, копирует и сохраня�
 ```bash
 magnet:?xt=urn:btih:7CC62166059305F69CA4D98C1276F7556117E4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E478443BE006E0069C0A74827AADB430C0458C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ Halloween Stories 7: Written in Blood / Хеллоуинские истории 
 ```bash
 magnet:?xt=urn:btih:A5B7DC55BE03F88E8F85281AAD2D23405DD66405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:5BA05BF5BFDE12942B926454FC3AA5FE0583E2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ Nitro Pro – программа, которая является альтерн
 ```bash
 magnet:?xt=urn:btih:BBF2D4B029AE5D38C57777C687262CA688581510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ PDF Conversa - легкий и быстрый в использовании оф
 ```bash
 magnet:?xt=urn:btih:CC22FB14CFE580DFE8027F9115EA7481C565D87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

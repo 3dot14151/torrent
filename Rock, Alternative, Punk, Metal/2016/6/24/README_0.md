@@ -22,8 +22,7 @@ Highlord - Hic Sunt Leones (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:F04D4B4C806F9D2C9C0DDCC6CAD117BEA1948584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Steve Vai - Modern Primitive (2016) 2CD [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:B7FF3362BEA3DF6507C9F5156A19AC3139B9152A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Greatest Ever! Driving Rock (2012) 3CD [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:8C5CF2E6B4DF4F688473018310386623719E3360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Greatest Ever! Rock Ballads (2014) 3CD [MP3|320 кб/с] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:C666E4C17941A16CB207C95D362A0B8C67497253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Main CD
 ```bash
 magnet:?xt=urn:btih:EFE636A18CFD5515FBC4999CCCBD68543E47E289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Beatles - Grand Collection (2003) Compilation [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:8DA26B8882B75F5D07306A6388D1E4F1131EE636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

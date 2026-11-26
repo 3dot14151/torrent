@@ -21,8 +21,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума [Ru/En] (ReP
 ```bash
 magnet:?xt=urn:btih:67A3C320C2A01D302C74C83CDC31D262FB6AA56B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

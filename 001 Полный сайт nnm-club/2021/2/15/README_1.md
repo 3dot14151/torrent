@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:06F89CC18843756C6894CCEA5ACDEDD6FCC27987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D461E431051DA4D5755839BEBF976763BB478AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:936493D235FCABE778BB8E5908280D737483A472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - Шансонная осень (2002) [FLAC|Lossless|tracks + .cue]<Шанс
 ```bash
 magnet:?xt=urn:btih:251F856651970CC04ECD3E844782596BABF887CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB407A12C4D98A4F1B6294655E9D5EE4F0C3AFE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CF117AF1C146B92CF03DCFFB60D0C5F2B55160E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C1174968354621991970C12A670C69BFA3C3FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Pentatonix - The Lucky Ones (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:90FD2381D6D787FDA34F29BF284F75566FB8077E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5043535F44FDDBC7F2C4030B05EC6572A70A053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDE3551B799E95EB088E96BECC097E3A501637F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEB52487C3DB84F3279B13607D9E796CCAABD958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ VA - Mitote: The Dream Of Reality (Compiled by Agz) (2021) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:847F66F70D5DFCE9E24F682F889A3A0C36366421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0385864E2F6271A9D1E7EC93D33317959690B1C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ```bash
 magnet:?xt=urn:btih:E1F3FE237A8FCF062FDE64BD5D7456161C3CFF2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54C5F4948C59818634E84CE9A90D49122798FBA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04B5EBC3B8447CEEB668AAF46F760CF9B79D07B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Trevor B. Power - What Is Real (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:0392D6882CE005CEF5582482AECF68EAF1BFFFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C181D7E97938D371F66CCA2433053305FCD4BE93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ AOR - The Ghost Of L.A. (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:83357F654CFF6BE2A7C70587E6A5AB222189DADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:66940F8BA5B59465A4BE4D7B48D881CE1C7FB63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ Windy City Rev Ups - In Motion (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:69680B96491F33ECF9F1874FE6BC3A5B997CC2B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Terlingo Sacchi Blues Quintet - Junior (2021) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:D96DF25D26BDDD55310D8F966F123EA6B0F5E3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ RadioMaximus 2.28.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3F8979DBE783EBC56DFF384737309F0B6615F450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ fullstack.io, Amelia Wattenberger | Fullstack D3 Мастер-класс / Fulls
 ```bash
 magnet:?xt=urn:btih:0037E31C36A86492EE735127E8897D3287F925CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ Stand Up - это взгляд на наши жизненные повседне
 ```bash
 magnet:?xt=urn:btih:19A3E61F2952FBCDBA5215FF3B7FCF42F1B1F27A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ IsMyHdOK 3.01 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:73EF5A4E4CB65036612C7F30657C33FB241E81F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

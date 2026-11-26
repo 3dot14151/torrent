@@ -19,8 +19,7 @@ The Meridian v2.0 [En] - 3D-модель человеческого тела с 
 ```bash
 magnet:?xt=urn:btih:642495FCAEB45EE37633854E9F1D55F522269245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

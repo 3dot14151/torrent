@@ -19,8 +19,7 @@ Hamster on Rails – приключение с хомяком-строителе
 ```bash
 magnet:?xt=urn:btih:664307A4AB81DBA4DECE9B459D4118ACEEF45B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AirportSim - это передовой симулятор, который поз
 ```bash
 magnet:?xt=urn:btih:0AB7F8E8C3723736C7F7DBF252CFD3E8095B2226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jusant (2023) [Ru/Multi] (1.02.1431188) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B284EE092B52193C5543365AD9F194371EF7DA39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.1.1.0/00.014.032/dlc) Repack DjDI [Alex
 ```bash
 magnet:?xt=urn:btih:D64FF2D596EA68A09A285FF6EE147CF16B9392E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Offroad Mechanic Simulator (2023) [Ru/Multi] (1.06) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C538F6124146EBE9A5A68E3DEC9ABB7BC6706BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Oxygen - градостроительный симулятор, включающ
 ```bash
 magnet:?xt=urn:btih:A1AD6EAB339B95D9AED21F39CEFB13D7AFD30E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

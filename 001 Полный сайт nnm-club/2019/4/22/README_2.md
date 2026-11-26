@@ -19,8 +19,7 @@ Infinite Painter v6.3.21  [Ru/Multi] - редактор растровой гр�
 ```bash
 magnet:?xt=urn:btih:6FCA21DFEDC2071EFF6F7BDB7766915315E1A130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AEBBFA40D951BC768A92551A0E4ABF7D4C0AE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ World War Z — это напряженный командный шутер на
 ```bash
 magnet:?xt=urn:btih:47AB64BCBD73C3583831D62D473E082985817606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5F471016D53E48DCB7746CE625EDF2E085F655A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:401C57073D5DF867F328E2AB5933CE1F3687A773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Counter-Strike: Source (2004) [Ru/En] (v90/4630212) Repack For-css
 ```bash
 magnet:?xt=urn:btih:AC25A1090E21BA28B2F7C449EADDC4C5386AB5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Need for Speed: Most Wanted – безумные гонки по огромно�
 ```bash
 magnet:?xt=urn:btih:F46E8E0BD0B54C74B3CDB39E82B52AA2B6712E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Harasai - Psychotic Kingdom (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:370E25B3D9F9871D343E4CECF81E37E7619254D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Lustre - Lost In Lustrous Night Skies (2013) Compilation [MP3|320 кб/с]<Atmos
 ```bash
 magnet:?xt=urn:btih:FF8610152696F98912FED7D01B00D207375C8360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Shylock - Walking Tall (2013) [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F47FA079F4CEF693A24DEFB7580582F0ADB846EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Margenta - Династия посвящённых - Sic Transit Gloria Mundi (2
 ```bash
 magnet:?xt=urn:btih:796D5D259EA5F3A54355284FE9F8BB474BEF9CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ HIM - Tears on Tape (Limited Deluxe Edition) (2013) [MP3|320 кб/с]<Love Metal
 ```bash
 magnet:?xt=urn:btih:537181F8564B142623DEEAB8814C14BC414C52B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

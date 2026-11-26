@@ -20,8 +20,7 @@ Golden Rush - боевая арена в жанре SOBA (Strategy Online Battle
 ```bash
 magnet:?xt=urn:btih:B981C98FC79EA7AED0B07B5D2402CB378394ED3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Wind of Luck: Arena – многопользовательская сессио�
 ```bash
 magnet:?xt=urn:btih:9A61E8CA82B643428C678C44C9F8C17BDA804C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Shadowrun: Dragonfall - Director’s Cut - самостоятельный рел
 ```bash
 magnet:?xt=urn:btih:A95C0D95641AD6319161EF628D9809668213A4AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

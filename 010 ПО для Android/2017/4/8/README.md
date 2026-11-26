@@ -19,8 +19,7 @@ Bitdefender Antivirus Premium 3.2.89.131 [Ru] - Антивирус
 ```bash
 magnet:?xt=urn:btih:ECDF9B0CBFFA613CCD8AEB16D184B1285DB64285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

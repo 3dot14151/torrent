@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1F65C036495E3D53426B115555EBDC44F73CBED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ STRKNG - это электронный фотожурнал высокого к�
 ```bash
 magnet:?xt=urn:btih:6B5AAED5FF5D32E67A8031E6911D3C8372405D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ STRKNG - это электронный фотожурнал высокого к�
 ```bash
 magnet:?xt=urn:btih:76A05495DAC913ACE62899FEA46FA36C7D41B8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ STRKNG - это электронный фотожурнал высокого к�
 ```bash
 magnet:?xt=urn:btih:92470D54779C0BC2676EC919134E49F583893698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ STRKNG - это электронный фотожурнал высокого к�
 ```bash
 magnet:?xt=urn:btih:3F044931BBECA9EA4EF2E2E5EE0D8F28C303529B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9B25D3B29902B3D926897C64C38A16B89741E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Lingerie Plus – настоящий мужской журнал. В нем ва
 ```bash
 magnet:?xt=urn:btih:25ED7B3D1677E41805B203D50839569E574D0515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Lingerie Plus – настоящий мужской журнал. В нем ва
 ```bash
 magnet:?xt=urn:btih:67BBA22A4CCA482B360C4922ECCB56A9AB6DAB2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Lingerie Plus – настоящий мужской журнал. В нем ва
 ```bash
 magnet:?xt=urn:btih:684D8E812A7C6906445DB52E695C8ECC871059D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

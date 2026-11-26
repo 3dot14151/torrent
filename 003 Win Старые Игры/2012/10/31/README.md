@@ -23,8 +23,7 @@ Mission Humanity / Восьмая Цивилизация [Ru] (L) 2002
 ```bash
 magnet:?xt=urn:btih:2D16A920752CFD405748419654C87A22355ABDAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

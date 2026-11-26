@@ -18,8 +18,7 @@ GPS Widget Pro Этот виджет просто показывает Ваше 
 ```bash
 magnet:?xt=urn:btih:8BD03E5B85866A166BD156C1AADD5BFB8CF95004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCA3BA5180BFD29482549568DE5F94CAF0855961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A11D2D99EA2DC59C022F283D1CBB38F58A9428EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:191DFB9FFEDBEDE38EC97D50EB12D89E21838292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MacBooster поможет настроить и ускорить работу OS
 ```bash
 magnet:?xt=urn:btih:D0071B30DC55309AE54F79626C5FDF8D91AB095A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ eden* (2015) [En] (1.0) License FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:AF2EB53498CDAA198C34B3AB6F2210F35E5C5B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Berserk: Ougon Jidai Hen / Berserk: The Golden Age Arc / Берсерк: Зол�
 ```bash
 magnet:?xt=urn:btih:DABAED909BD029B6E54DAB56F10B36068F5C33F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DF49C192F78E42F537CA0ED4F362FF3952398B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Borderlands (2009) [Multi] (1.5.0.0/4dlc) SteamRip R.G. Origins [Game of the Yea
 ```bash
 magnet:?xt=urn:btih:D940D5F8ECC6218CC503D4F49B53B8CEE4D0C860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Adobe LiveCycle Designer – инструмент дизайнера и разр
 ```bash
 magnet:?xt=urn:btih:22AB4CE3A5278EF36254161D495392203B1E9BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92F375DBA913CCB505A502F290DB5EAEDC7E8A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A543DE89D56F60FB4BA1FDB72961C5301C0C2BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A354B230B18D149C8B6109BB7C24A8E80E164550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C64EBFB1FFEBB3DEF8EBFD46E29C738258DFF8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10F99D76A083B5FB87A4BBC9D1DE2541D6EA67E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ All My Movies - каталогизатор фильмов для всех. Ве�
 ```bash
 magnet:?xt=urn:btih:0384EB1DEAC00C87AC947EE97B8B538409EDB6D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58511FA13427D87D6B6FEE1FCA86AF3138522BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D52FEB2B9CA38FEA7BB92C73658F3153123813BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ Trials Evolution: Gold Edition - ответ на их ожидания.
 ```bash
 magnet:?xt=urn:btih:74CEB8C6A35004774B0C5D76FBF29A0494E3E08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ Apple Remote Desktop — лучший способ управления комп
 ```bash
 magnet:?xt=urn:btih:B7231D22AB3FC67607A4C45433DB632DDE2D933D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ Metal Gear Rising: Revengeance – совместный проект леген�
 ```bash
 magnet:?xt=urn:btih:911D6CF2F46643963FBE98D1C1C0A8B1C809621D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ Microsoft Office 16 Technical Preview 16.0.3629.1006 [Multi/Ru] (онлайн-у
 ```bash
 magnet:?xt=urn:btih:09154964651D9D07077CCA5148119BC7A63694AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ Raven's Cry — это приключенческая ролевая игра с
 ```bash
 magnet:?xt=urn:btih:D411A1DB30B2C0A468E96AF55835AED4FDEB350B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ Borderlands (2009) [Ru/En] (1.5.0.0/4dlc) Repack R.G. Revenants [Game of the Yea
 ```bash
 magnet:?xt=urn:btih:3A02A04B7A7988CF32DD403A45C6ECC9D8193A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ Metal Gear Solid 2: Sons of Liberty (2003) [Multi] (2.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:C2FB924D9B18B269DAEF2EB099A8A38DC04D104F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

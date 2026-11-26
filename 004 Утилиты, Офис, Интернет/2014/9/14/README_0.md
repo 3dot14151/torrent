@@ -19,8 +19,7 @@ Wondershare MobileTrans — простой и эффективный инстр�
 ```bash
 magnet:?xt=urn:btih:C1D57867D48AEBDEE62DDFAE79CFDAD233A073C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

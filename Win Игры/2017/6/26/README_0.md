@@ -19,8 +19,7 @@ Bayonetta (2017) [Ru/Multi] (1.01) Repack ivandubskoj
 ```bash
 magnet:?xt=urn:btih:A00EDC86A1E81FC17386610068E31C9A6CB3CDB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.2a) License GOG
 ```bash
 magnet:?xt=urn:btih:96F2C388537D9840EDF0AA17E8CCD8FD97A187FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

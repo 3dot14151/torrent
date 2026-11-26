@@ -19,8 +19,7 @@ Selber Machen — немецкий журнал для домашних маст
 ```bash
 magnet:?xt=urn:btih:9550A1D67191A72EDBB1CAA7F6FCBAC92BD60F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

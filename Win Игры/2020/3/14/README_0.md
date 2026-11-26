@@ -19,8 +19,7 @@ Fantasy General II — это переработка классической с
 ```bash
 magnet:?xt=urn:btih:68CB4EF2DA517224CFEC66C6F631D3B27AFC7029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Empyrean Pictures, RiofilmeЖанр: драма, мелодрама, комед�
 ```bash
 magnet:?xt=urn:btih:9509942978B5E88F55774DD872BFC629DFF8D3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33EA916C204DFBC74F8F2284D75824994586DA13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Empyrean Pictures, RiofilmeЖанр: драма, мелодрама, комед�
 ```bash
 magnet:?xt=urn:btih:4D557038BF23972A1D2079D2B7AFE4807EBAA975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

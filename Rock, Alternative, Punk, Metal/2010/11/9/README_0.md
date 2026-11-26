@@ -19,8 +19,7 @@ U2 - Wembley Station [Bootleg] (2010) [MP3|192 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:16FF616FFC8AF3DADDA4B1ADFFD2135EE0F73CD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Ronnie James Dio - Diamonds - The Best Of (1992) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Kiss - Greatest Hits (2009) 2CD [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ VA - Воскресение - Юбилейный концерт (10 лет гр�
 ```bash
 magnet:?xt=urn:btih:6DE7DFB6FD50FFC8780217EFCE92DA34F0265C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ PR-MEX - Пародии на группы Ария, Любе, Король и Ш
 ```bash
 magnet:?xt=urn:btih:259E91081A48F4B773B02C76A237E99D94B0135E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Christie - Greatest Hits (2007) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

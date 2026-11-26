@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5AA5EF4EDCF558EFEEDFB48FC5DF64BF05B1B31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Gate 2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:5E24C91564471E2B44539ADA4A7FA360AAEC847F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B23B35B2FECEA88E0FE8B1B650A52EB5DAF4541B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Grotto - Smokonomicon (2016) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:B56E3464FB1AB7BA61721DA6D2C83675AA7DBF59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Bohren & Der Club Of Gore - Black Earth (2002) [FLAC|Lossless|tracks + .cue] <Fu
 ```bash
 magnet:?xt=urn:btih:26EF496B2397A40971C13568FC1A9BF9129A0516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Craset, TBFM - A Thousand Decays (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Ga
 ```bash
 magnet:?xt=urn:btih:1C8BBA4B694E356EF4AB092354439FF5EDE729FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Grotto - Circle of Magi (2017) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:6400591E41BA1E5DD92CA64BC19B2105D32F5D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2288E6C27A78C7FB9D32C0898F1CADB6FD8F914E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA2A0B68C5716FB57E5BBD780A1942741DA1EBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Calderon - Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:49736A12E370D38357C9FBEB23C4B1585055FF31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Nicolette Larson - Nicolette (1978) Remastered, 2013, Warner Bros. Records [MP3|
 ```bash
 magnet:?xt=urn:btih:1612E058448692A254603762BD9A2544975C5BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - Solum 3 - Creation (2017) SOLANIC [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambie
 ```bash
 magnet:?xt=urn:btih:AD042DE03B9AEA1520AE94388AD83EA8B4D76850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38DC104BBE18CD36A3EBC5B1C70F23BFFB67771C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ VA - Planet Italo Disco Vol. 7 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:759542577262C161A442436FDC7FDD11401909F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ VA - The Official UK Top 40 Singles Chart 29.12.2017 [MP3|192-320 Kbps] <Alterna
 ```bash
 magnet:?xt=urn:btih:94F8AD78BCCA3863040F388236F896C0A7F013EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:090DDCC1A6B666CCD6EC8A5E072065ED903AB2EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2492CEDB664DC161C137CEB716EF5BBB89092A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Oren Lavie - Bedroom Crimes (2017) [FLAC|Lossless|tracks + .cue] <Folk, Indie, S
 ```bash
 magnet:?xt=urn:btih:660A6956C63CD053C9201B25A578436B8C843CB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ MediaHuman YouTube to MP3 Converter - программа для сохранен
 ```bash
 magnet:?xt=urn:btih:19E47D3A2139403E7946169D110C9F7C6DCBCB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ AnVir Task Manager предоставляет подробную информа�
 ```bash
 magnet:?xt=urn:btih:7A5391A8F7B654E99940174EF5549D4BAC8C71D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22632A8FFFFA609805F87861CE981D55952967DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44D81A71E81AAF8E014B834FEC0900C3AFB6DD22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ Mr. Lif & Akrobatik (The Perceptionists) - Resolution (2017) [FLAC|Lossless|Web-
 ```bash
 magnet:?xt=urn:btih:783B27EECEADA2B1C46CF95E428EA58C06B0BC78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ VA - super rock KYOi от NNNB (2017) [MP3|320 Kbps] <Rock, Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:F29DB59C0CB504D4B765C0D4B6CE1E2F21513F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1635AA1BB6C88AB3C5C5BED67EA9E3EF8D330BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ VA - Cafe Puls Italo Hits '17 (2017) [MP3|320 Kbps] <Italo Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:2E3BD88DB2369ABD79458AD1EE57424DA0C1EC0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

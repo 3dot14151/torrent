@@ -21,8 +21,7 @@ Portico - Living Fields (2015) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Downtem
 ```bash
 magnet:?xt=urn:btih:A27870513949B1202C6711044B0C4B0E428259D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ FlylinkDC++ r503 build 19503 Stable Portable (x64/x86) + Хаблист [Multi/R
 ```bash
 magnet:?xt=urn:btih:6D18A5189EDF183A605A394D69355CFA8A95A5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8576160769C550A902154CA3ED30DDE2416CD5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1AFC50852CFE3E6B734E5BB25E0D42F6CCFFAB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ VA - Мастера Джаза (2000) S&V #07/2000 [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:3C5C153C4BD3AE2E8D08A47B1F73158AD54A534C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97B112F540CB74F66D39DB9C6BD969C8F4A415BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:157FB052EFE912C09273DB330B0456E7996E12A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Cloudmagic — это отличный почтовый клиент
 ```bash
 magnet:?xt=urn:btih:B11C999B1849727A510A7E0C72CFA8EDBE06E757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:383D35CF9410167EAD8FD83BC0D985705BA577FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F3FCA4F680505947B74C6AA24295E4C97E8BF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electron
 ```bash
 magnet:?xt=urn:btih:640E117891F9AE17A709BEA750120CEFABF78BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ VA - I Saw You Dancing (2001) S&V #03/2001 [FLAC|Lossless|tracks + .cue] <Euro-D
 ```bash
 magnet:?xt=urn:btih:3E1263673D52D449F83CA47E20DB30F7F0917736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ VA - Top DJ Artist Sounds (2016) [MP3|227-320 кб/с] <Dance, Club, House, Nu D
 ```bash
 magnet:?xt=urn:btih:FC8EB9C1EF086FBB8A468FCB0F644BF023281C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Trademarks & Copyrights - Marble Girls (2016) [FLAC|Lossless|WEB-DL|tracks] <Vap
 ```bash
 magnet:?xt=urn:btih:338ABD6FB423DBBCF433EDA870C5BE0079239E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Markus Schulz - City Series Collection (2016) [MP3|320 кб/с] <Progressive Tra
 ```bash
 magnet:?xt=urn:btih:2EDAFAFF4B3037BFC5417FD1B6FC619F0EBA2334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F71156EA1F7CA9D32BF9838055BF855E678F70D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D864DCD8D2F2CA6958460F167FAE3161AA52BAE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0370AB95A934A7CB369B87A9C9922DDFD6C8584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC4BCC3B665975071922F4393DD17C443EE2DBA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ BitPerfect - простой, легкий в использовании, муз�
 ```bash
 magnet:?xt=urn:btih:1CAAFFC55428F5D35FCF5BF766B3CA9FAC639CE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ VA - Romantic Dinner - Selection Of Finest Smooth Electronic Jazz (2016) Vol. 2 
 ```bash
 magnet:?xt=urn:btih:78A22EA04E16B421D48B5F0401E1B985BC4234B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ Majid Jordan - Majid Jordan (2016) [MP3|~245 кб/с (V0)] <R&B, Pop>
 ```bash
 magnet:?xt=urn:btih:EAB7D8034078940499EECC93F4F3B47C0CCFD9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ Ring Menu  - Ярлык для ваших любимых приложений, �
 ```bash
 magnet:?xt=urn:btih:8738611D1D694AB3FFB30F344695167C815B9DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ Day One 2: новый журнал-дневник
 ```bash
 magnet:?xt=urn:btih:D30EC1AC80EB87C40D269EDC8D713CA3FED23163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1FE81A7433C8303C4C6B262818565BD9627DDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA9D1F38F19A273C0BC7F7CD649C9D69FEBB2D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

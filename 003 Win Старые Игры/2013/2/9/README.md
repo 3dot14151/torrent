@@ -20,8 +20,7 @@ Saga: Rage of the Vikings [Ru/En] (P) 1998
 ```bash
 magnet:?xt=urn:btih:96C4AC2EDE5C22A6E47CE7A00DBC17E1ACE5ECEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MDK: Anthology / MDK: Антология [Ru/En/Multi6] (Repack/1.0-1.003) 1997-
 ```bash
 magnet:?xt=urn:btih:B82D4DC62425BB32571F09DE38FEB832A36F08BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

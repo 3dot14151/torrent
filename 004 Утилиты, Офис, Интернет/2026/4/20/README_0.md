@@ -21,8 +21,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:326D020A5C41A5EF1F36A4D3B29662CB73A17E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:F306E6F008783D8A34D1EEFD58CECDF34B87DEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:86D6D98C623C0643192AFA6717A4F428E2228908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ WinScript — это мощный, простой в использовании 
 ```bash
 magnet:?xt=urn:btih:4A787E37C00E38B88ECDC4E1D06FED00C1E20D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Slimjet 50.0.0.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8CF757D4A9E7340CAEF3DEE4FA82FF64505B96B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:C5C630872AE22A3D31429816D6D190BEC68EE0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ ASCOMP Secure Eraser — программа для полного удалени
 ```bash
 magnet:?xt=urn:btih:F4F1FAA48D08F6934019B2A1E27AA897124AE240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:7D0062092A1B7E7DBF74092845CEB2EF51C9962A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:C3975093AC978529E8D8C905EA689A2AC578D9FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ X Drive Writer — это бесплатная портативная прогр
 ```bash
 magnet:?xt=urn:btih:EA407E50E40402A8E8F57436ABC64BA504E1E551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ iBeesoft Data Recovery 5.0.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EC274AADE3D5BA51FCCA762E7A5104F016B6A242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Duplicate File Detective - программа от Key Metric Software, кото
 ```bash
 magnet:?xt=urn:btih:9E70D84AC48F47F9AD04686C13AFE2BEDEA3B290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

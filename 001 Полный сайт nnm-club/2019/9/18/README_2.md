@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7147FC3256376AB6890C8C390107957BB0DC6E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:7DFE36645FF0C2ABA3446D63F5BADB501BC5B970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Windows 10 1903 24in1 (x86/x64) +/- Office 2019 by Eagle123 (09.2019) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:85F6AE9E22688B4901B359D5BC00163C4230627F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40082A1A0FEEB5CACA885D35087A23E51BFF8525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2797/upd4) Rip =nemos=
 ```bash
 magnet:?xt=urn:btih:1ABB6D583832DEE99D5AB6AAC7DB5DE9D0D3D4F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Microsoft перечислила ряд проблем при обновлени
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ UpdatePack 7 для интеграции обновлений в образ Wind
 ```bash
 magnet:?xt=urn:btih:AECD964E0A2CFE9711FF66471CD40D57A79B4724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

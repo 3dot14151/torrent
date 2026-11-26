@@ -27,8 +27,7 @@ Microsoft Windows 8.1 Rollup 1 RUS-ENG x64 -16in1- (AIO)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ SoftMaker Office Professional 2018 rev 928.0313 RePack (& portable) by elchupaca
 ```bash
 magnet:?xt=urn:btih:2E60D72BFF8D4ECFFF7F010A695DBDA8FB40EF36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9EE73DBBEA9E040C2A2DFBF1A27D7671D62A163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A18875491534D6D9EF3172A8C605BE57A84D9351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Discovery Communikations, LLCЖанр: ДокументальныйПерево�
 ```bash
 magnet:?xt=urn:btih:BA824B490AFA0D70528A8C7B1127C98AB5D1187A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41DEB9A9FDF7A1DA5931319B4AF855ABDF2DF634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:98F2936018F118D7A82411BFB37F0CB18D4C8DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ uTorrent 3.5.3 Build 44358 Portable by A1eksandr1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:712534B3898B60C4003FEFE7B77C34316F0CAA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:047874CFBC7F1E1923915C1EB209C8EDA0612281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ VA - Новая Волна: Сборник Русского Рока (2018) [MP3
 ```bash
 magnet:?xt=urn:btih:2BBC5E02182A67F301978B310BAE5B7CA96202C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Family Trip - это шаблон After Effects с красивым дизайн
 ```bash
 magnet:?xt=urn:btih:E9952642072FE72109EE796E5E70F4F424EBEFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C170A47E6E986107D1E790C00D874BB6781EE9A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Tails 3.6 [анонимный доступ в сети] [amd64] [2018-03-13] 1xD
 ```bash
 magnet:?xt=urn:btih:4572B9F24FDEFF7668365728ED63F22E1A6FB35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Journey to History - это проект, из которого можно сд�
 ```bash
 magnet:?xt=urn:btih:5CF6A032D07DE9D7A3FD888B59F51DB0511ED0CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37A60E2C186B497F6A856A746E7CBAE42D7F58AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Worms W.M.D v.1.0.0.129/dlc (2016) [Multi/Ru] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:CC329276CD02F3530D74C76111BB5B18ABE2CBF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B614C942EA97A569257BAEE269E1020339C6E195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ The Sims 4 (2014) [En] (1.41.38.1020/dlc) License CODEX [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:E689EDABA14AC7152A4DEF5316E37D92CD499E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07DD88A0693D13B22A71DA182DAD760E89CEE215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2657DAAE454642261B7A6BD0EDB662749B8AA7B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ Adobe Dreamweaver CC 2018 - новая версия приложения, пре
 ```bash
 magnet:?xt=urn:btih:ED038E44C2419268F9EF1CB1FDD587486D7EF1F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License CODEX
 ```bash
 magnet:?xt=urn:btih:2EE09F03579BFCE98C20303D8510DA74CB0E704C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8305BD79EEC39395D38CDB61D2E44693034C50CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D118DD3B95FDAC562CFF4EB3F1B11AF5D792E30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ Q.U.B.E. 2 погружает вас в полуразрушенный иноп�
 ```bash
 magnet:?xt=urn:btih:5EA7DFFE21799A50D370006EA77C7C1624AE6E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F50DC9D0C99C4A9EF9A81EC2E2C03FFDCFE83E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ TeamViewer 13.1.1548 RePack (& Portable) by elchupacabra  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:127678AE8919B5FFF974BD20579178509FD86C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

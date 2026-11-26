@@ -19,8 +19,7 @@ A Castle Full of Cats позволяет игрокам отправиться �
 ```bash
 magnet:?xt=urn:btih:E053429E32BE5823EC6672A86C4DF454B935DA6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jack Holmes: Master of Puppets - хоррор на выживание от пе�
 ```bash
 magnet:?xt=urn:btih:8272E3811A5A4A28C478D6BD519D631ADFF23F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:CFD84C9FB1AB92A234E7ED7216C325BDA716C573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 ```bash
 magnet:?xt=urn:btih:30A13C8DC1156477BA38818EAE1A385C1BD4A501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Starship Troopers: Terran Command - это захватывающая страт
 ```bash
 magnet:?xt=urn:btih:831239667D477B8BB100A9C1434F7081A01121CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tricky Doors / Хитрые двери (2024) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:74064FE7BC7281138BBB92814AF008328E48F2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

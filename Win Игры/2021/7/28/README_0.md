@@ -19,8 +19,7 @@ Creepy Tale 2 — это жуткая мультяшная головоломк�
 ```bash
 magnet:?xt=urn:btih:00C9B4601063831416055DF2ABE1CBE4B31BD4F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

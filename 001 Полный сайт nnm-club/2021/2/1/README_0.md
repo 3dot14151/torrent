@@ -21,8 +21,7 @@ Dave Dee, Dozy, Beaky, Mick & Tich - Zabadak (1995) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:335AFDF5A539D186FC217A65596995DAE0995198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - New Italo Disco Music Vol. 5 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Di
 ```bash
 magnet:?xt=urn:btih:7B341A2708B0A338B4F3F54B394152D6709F6817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ DxO PhotoLab 4 ELITE Edition 4.1.3.49 [Multi]
 ```bash
 magnet:?xt=urn:btih:6AE8F1200B413D1D1D6C9E2F0ADA7053CC6EA604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Valentines Day 2021 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:FEF24092E5CCE985F70531ED47A245629FA873F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - New Italo Disco Music Vol. 2 (Selected by Lajos Birizdo) (2016) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:D7A2EC69FE4B7183D508DE78C125CDA782F2E121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ The Cancel - Coffee Cafe EP (2012) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, In
 ```bash
 magnet:?xt=urn:btih:F023094CC80CDD1B2BE5D393CEB4F8E09634FCA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - Valentine's Day 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:C8F1B36534C3AC8CE5596FCD0F0D3D0AF61964E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93286C1E7AC4C3E086852E8F34FB36C0F196588C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Storm Seeker - Guns Don't Cry (2021) [FLAC|Lossless|image + .cue] <Folk Metal, P
 ```bash
 magnet:?xt=urn:btih:40B0A1A76B4D0F1371CE084169611F1F1C649F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Onyx - Lost Treasures (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:EB045FDA6194B2BC8ABA5764EDEA6E61838DDE1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - New Italo Disco Music Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Di
 ```bash
 magnet:?xt=urn:btih:B715BF61A3616A72D6086E3172CC50A7267516FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Syrinx Call - Mirrorneuron (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:98AEEF3A587FB10A105FC1D48C33ADF4019E04C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - New Italo Disco Music Vol. 6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Di
 ```bash
 magnet:?xt=urn:btih:F7E3C43FC3D96F4818B62DE17A87167F2808CA6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ The Cancel - Diversity (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrum
 ```bash
 magnet:?xt=urn:btih:F711C1DC28A76BE3724BAF79EBCB643AE9D9CA5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ```bash
 magnet:?xt=urn:btih:E9876DF1430B6BA05BFD7C668A4AA58C5F3DF7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:910A2BDCA73B145ADD66DF73B8B2E911B7C415C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Dave Dee, Dozy, Beaky, Mick and Tich - The Best of (2000) Unofficial Release [FL
 ```bash
 magnet:?xt=urn:btih:26CB2A1E68F46A331CBAC3CB8073D30AD106A0C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:262C9A652384858FD6A2BC15242392056C9DD66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ VA - Silent Shore: Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:94861E05647C8CE52DB7887C28AEB6D85E5F038B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Mountain Duck позволяет монтировать любой удален�
 ```bash
 magnet:?xt=urn:btih:4CF5010CDC3F70774BE43EBE0DED73443C721E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ The Cancel - Reply from Space (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, 
 ```bash
 magnet:?xt=urn:btih:77A78E16D9D4F6560794FFF40755174A90C7B68B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7473C8284D811B0B22843D0BEE88108F1AC3939C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ VA - New Italo Disco Music Vol. 9 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Di
 ```bash
 magnet:?xt=urn:btih:510820729A69B51402EE176A6E5D170E64221B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ VA - New Italo Disco Music Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Di
 ```bash
 magnet:?xt=urn:btih:074BE9222363B9903AA1BFD7A28A99500E067C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8464D7A596F108A49EFA8CB789B17F1AC9E9050D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AD6A9F7C47E6CD91DA659E94D325F3B6D1D0173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

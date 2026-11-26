@@ -19,8 +19,7 @@ Mighty Final Fight 1.1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:DE282B45A49AFC6A3F9A9B4E9562E1A8D4B36384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

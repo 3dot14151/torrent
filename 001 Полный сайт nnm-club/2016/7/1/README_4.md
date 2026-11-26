@@ -18,8 +18,7 @@ Phoenix OS - проект по портированию ОС Android на пер
 ```bash
 magnet:?xt=urn:btih:7AD96F307A7DA564BCE905EB1A11DB05A72C5F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41CBC796D90AED66B28823A86406560BEF8D3970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:108BA5F7784DF5E1964C20B57FED180F5DB9B135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A67181640BDE237C3F64C3B52C62017037EAF798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C89E5DCCFEAE4C0ECD5183602A705377FEBE04AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Koutetsujou no Kabaneri | Kabaneri of the Iron Fortress [2016, TV, 12] HDTV 720p
 ```bash
 magnet:?xt=urn:btih:DE8FDAEDEA55217C29A1055DC7370E4AE4FC1C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BA5AB5E29C5297C70FB45A70F58EC61E2B54B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Wordpress - гибкий, многогранный и легкий инстру�
 ```bash
 magnet:?xt=urn:btih:473C1F3437110132D3102E201F7036A0FFD7044F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0686EC103B4B004BC432710D443425AF5A5ACF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0727FFE0D07BAD86CC7AF7F9C9466E9A1A956985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Open Server — это портативная серверная платфор�
 ```bash
 magnet:?xt=urn:btih:15E98E2EEE2BD367B5FDD9BB9598095482C8F752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26DDE45BEB57120F6F1A8789CBAE74439C4C31D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FA5138C227383730F9817012C3A58724F09224D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:211C1AF94D2070800BAED5AC56C228F1FDF74860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Ushio to Tora / Усио и Тора TV-2 [2016, TV, 13] HDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:B81302A0035B93CFF900168EF4A9E31BA09D7DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ Overfall, очаровательная, но требовательная рол
 ```bash
 magnet:?xt=urn:btih:DE0D397673D2192366E1D5A9226F5AB73D339108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Big Order / Приказ свыше [2016, TV, 10] HDTV 720p raw+rus
 ```bash
 magnet:?xt=urn:btih:E4B6019602F2B3340BFF52EC89157823A336205E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCA3F017AE26F80A9CAC8D27C54240230A9CC7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +470,7 @@ Kaspersky Internet Security 2016 - комплексный Антивирус К�
 ```bash
 magnet:?xt=urn:btih:7857C4D2394DDF5BFDFE42CD25AB223484A59458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +495,7 @@ Project CARS - это потрясающее гоночное путешеств
 ```bash
 magnet:?xt=urn:btih:0AD0D4B171DD87062AAFC69D29C7C901021CAC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF8F9D01B6A6B12C0400A0AE916BE76DA31F7902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +545,7 @@ Adobe Illustrator CC 2015 – это принятое в качестве отр
 ```bash
 magnet:?xt=urn:btih:9FBE6EE43399D8CDE527177A432331DE468E61ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +570,7 @@ Project CARS - это потрясающее гоночное путешеств
 ```bash
 magnet:?xt=urn:btih:0360B787E67BAAF00741943BC21BF57F7C4463BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +620,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 ```bash
 magnet:?xt=urn:btih:EDC392DFBA468ED643202DD5668FE90B6281CD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +645,7 @@ Adobe Premiere Pro CC 2015 - это мощный, настраиваемый р�
 ```bash
 magnet:?xt=urn:btih:177C88C1A2B3C3FC0E25D2958EEDE03F0594ADDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

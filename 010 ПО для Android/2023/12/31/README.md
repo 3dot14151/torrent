@@ -22,8 +22,7 @@ TinyScan превращает ваш смартфоне в портативны�
 ```bash
 magnet:?xt=urn:btih:8C569353583F8FFB284D1D7601D11649DB140008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Piano Melody vDua Lipa fix (268) Mod by TryRoom [En]
 ```bash
 magnet:?xt=urn:btih:72F5BF4FD4696EEABC539C539720A1CB53F7098D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ MD.emu 1.5.76 Mod by DAG-05 [Ru]
 ```bash
 magnet:?xt=urn:btih:8078475E9A39A374741F7C474A70877030CC4AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VivaVideo - это простой в использовании видеоред
 ```bash
 magnet:?xt=urn:btih:79C68D3C1A0BBCD415787864F4656712E2CAE3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Colorfy - это раскраска, призванная помочь вам у
 ```bash
 magnet:?xt=urn:btih:3112D4F30BBB3958AE28CC7B21EA6D86B1A4190C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Dimmu Borgir - Stormblast (Special Edition) (2005) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:F587A0930C6AEA36612041A4737AE980607C2699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Within Temptation - Entertain You (2020) Single [FLAC|lossless] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:DFE68EE2FF6E9925F0267EC710AAE2823D81613F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Alda - Passage (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:5A31D18C4C716D2AF2A695D97850B050A91841C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Nerves - Jack Lee - Plimsous - Les Genies Du Rock - West Coast Pop (1994) [M
 ```bash
 magnet:?xt=urn:btih:F4060AB7E6D254716BD04F004023095C696C44AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jimmy Barnes - Best Of The Soul Years (2015) [MP3|320 кб/с]<Rock, Soul, Blues
 ```bash
 magnet:?xt=urn:btih:F497AFC6512E86B75DCCB53041E2470472BB7019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tito & Tarantula - Tarantism (1997) Remastered /2015/ [MP3|320 кб/с]<Rock, Bl
 ```bash
 magnet:?xt=urn:btih:B115E107350F4CA39193A19B9708D0C5B6BA58A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Doors - Weird Scenes Inside The Gold Mine (1972) 2CD/2014,Elektra/[FLAC|imag
 ```bash
 magnet:?xt=urn:btih:AF7795505CEEF19C9CD3A6F4C7EDCCECDF45024A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Revolution Saints - Revolution Saints (2015) [FLAC|image + .cue]<Melodic Hard Ro
 ```bash
 magnet:?xt=urn:btih:4D4860CBF52C8C1B56BFFE7BEB5A656BFFA56BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Celldweller - End Of An Empire (Chapter 04: Death) (2015) [FLAC|Lossless]<Indust
 ```bash
 magnet:?xt=urn:btih:AA847F05C963A10703A75894B0408481CA27CEFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

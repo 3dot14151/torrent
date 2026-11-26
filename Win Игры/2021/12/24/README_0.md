@@ -19,8 +19,7 @@ Word of the Law: Death Mask (2021) [Ru] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:D53158F7623D516FC676479DEEAE4696EC17301E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Christmas Adventures 2: A Winter Night's Dream / Рождественское п
 ```bash
 magnet:?xt=urn:btih:2B9C6F7C56A55F36F97A31EAF915D71E24723BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.3.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:32F6551C4766D4352C140FC90C4C8BD4B32D8E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ April Fool - Playin' To Win (1989) Reissue, Remastered, 2024, Heaven And Hell Re
 ```bash
 magnet:?xt=urn:btih:2F08015E40045C92C529C71F073D0A90B1FBAAB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bad Boy - Private Party (1981) Limited Edition, Reissue, Remastered, 2024, Pride
 ```bash
 magnet:?xt=urn:btih:F517803E7BD269B18CA371BFCB670A81CBABC4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ And So I Watch You From Afar - 2015 - Heirs(   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:705FE873C145B1F1E4E3E6ED3F1B11A4F91FF1F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nestor - Teenage Rebel (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:66E0758CAAEE1A02E8E8A4046688EAD7C59F1034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Spektra - Hypnotized (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 ```bash
 magnet:?xt=urn:btih:C932FD98A49F441D8F343EEF53085AB68CC2E6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Holycide - Towards Idiocracy (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:030ADDAABBFE1847881E16C733D436B92A5087AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Church - Eros Zeta And The Perfumed Guitars (2024) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:982D4B68245AAC29FC39B32EBE0DC34EC25D2AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Crossfade - Carousel (2019) [FLAC|Lossless|image + .cue] <Westcoast, Soft Rock, 
 ```bash
 magnet:?xt=urn:btih:AD55ECF8F1DA0EDDD9EA1B26C64F3FB44C5FF490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ose - Adonia (1978) Reissue CD, 2017, Amphonotones [MP3|320 Kbps] <Electronic, P
 ```bash
 magnet:?xt=urn:btih:9908E73F1013457C67E3066994A10BE160311855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lake Of Tears - Moons And Mushrooms (2007) [FLAC|Lossless|tracks + .cue] <Doom M
 ```bash
 magnet:?xt=urn:btih:1A14414F8E10AEE9256DA27B5C70D002EBA52CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Amorphis - Queen Of Time (2018) Japanese Edition [FLAC|Lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:8BB1387B1C23092515C439D88715C884667EFA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kings Of High Iron - Sting Of Steel (2020) [MP3|320 Kbps] <Heavy Metal, Hard Roc
 ```bash
 magnet:?xt=urn:btih:597DE1F1480E21B5344E983852E1A5D67F1C1D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Looking-Glass Lantern - A World of Great Invention (2020) [MP3|320 Kbps] <Progre
 ```bash
 magnet:?xt=urn:btih:6D3517ECABDC7C185E4DEF812C049CAE82CD3149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:3B88C957EA8DEC7C4F6EE831171169480F118AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

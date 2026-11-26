@@ -19,8 +19,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 ```bash
 magnet:?xt=urn:btih:78152529C43D3A3F2F9BCED16C391330A318034F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ HP-UX — проприетарная версия операционной си�
 ```bash
 magnet:?xt=urn:btih:7AC5D946192A1268ED690E44DC4B1C968A4BAF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ AIX — разновидность операционной системы UNIX 
 ```bash
 magnet:?xt=urn:btih:F3C8F183EE90BEEB12EF2D0B1D3B1137C83114DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

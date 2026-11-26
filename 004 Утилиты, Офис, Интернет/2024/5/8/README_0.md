@@ -20,8 +20,7 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:B14CEAE34A111F253A8DC42655C7D88F77E54F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

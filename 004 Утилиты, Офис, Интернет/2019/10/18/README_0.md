@@ -19,8 +19,7 @@ Duplicate & Same Files Searcher (Duplicate Searcher) - это приложени
 ```bash
 magnet:?xt=urn:btih:98DE88E7BDB276F44C94694DA89DC2B85259F6BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

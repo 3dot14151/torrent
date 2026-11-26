@@ -22,8 +22,7 @@ End of Aeon - 1 альбом, 1 Сингл (2012-2013) Дискография [M
 ```bash
 magnet:?xt=urn:btih:CE57CEFD322CC9F0331488CD3272F75531309331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Geasa - Angel's Cry (1999) [FLAC|Lossless]<Celtic Black Metal>
 ```bash
 magnet:?xt=urn:btih:824A47D6FA76E59DC762524689E14706F49E3567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Indian Ocean - 3 альбома (1997-2003) [MP3|320 кб/с]<Fusion, Folk>
 ```bash
 magnet:?xt=urn:btih:9F57E3B8CFFD7A0EE11AAA689304D6BFF0ECBF1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Sainte Ombre - Cornelia (2013) [MP3|320 кб/с]<Symphonic heavy metal>
 ```bash
 magnet:?xt=urn:btih:323883DEB39406E6D009109EE3011342D7646AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Magion - A Different Shade of Darkness (2013) [MP3|320 кб/с]<Symphonic Gothic
 ```bash
 magnet:?xt=urn:btih:F0FF8E9995C7C855DC072B95DCF70A57B29BDA6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Elan - School Party (1985) [MP3|320 кб/с]<Rock, Pop-Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:8BC7737E66D0274265392795DC74D74FF2E82144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Summoning - Of Pale White Morns and Darkened Eves (2013) EP [MP3|320 кб/с]<At
 ```bash
 magnet:?xt=urn:btih:C5BD4B07680A3AF56A2BC4CE7D65A6320FE022CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Lenny Kravitz - Are You Gonna Go My Way (1993) 20th Anniversary Deluxe Edition /
 ```bash
 magnet:?xt=urn:btih:31ECD41FBBEB7F2EF0C0E47246C2C4E41C9ECC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ Chris Norman - The Original Album I - Some Hearts Are Diamonds (1986) /2006, Ede
 ```bash
 magnet:?xt=urn:btih:3569A3E865CC6403F9B228AAD44749298B477809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ Kayak - 14 альбомов (1973-2011) [FLAC|Lossless]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92BF4232E0A5993270F7F9F5D40B9E13413C340F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +384,7 @@ Twenty One Pilots - Vessel (2013) [MP3|320 кб/с]<Indie Pop / Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:422C1BE4353805F3CCBB0D7E9F1E8D9264B54684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +410,7 @@ Trivium — американская металкор-группа из Орла
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

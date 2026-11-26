@@ -19,8 +19,7 @@ Kritika  - корейский слешер с non-target системой от �
 ```bash
 magnet:?xt=urn:btih:31050046D97D13F2085DB883307F8350788D5D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

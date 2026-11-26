@@ -22,8 +22,7 @@ Braindown - A World To Forget (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 ```bash
 magnet:?xt=urn:btih:7550EF2B43BC19A946D678B128B84DABFF6239B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Consumption - Necrotic Lust (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:6E1FE0F6A09C0CF141A1B054B0C61404EA9AE579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Commoner - I (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:847F9109197AD01EAF105EC33D05F7141686303F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Versa - A Voyage / A Destination (2022) [MP3|320 Kbps] <Progressive Rock, Crosso
 ```bash
 magnet:?xt=urn:btih:331B15E794C9625919E2EBB21E7F7F7F47CB6EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Harry James - 1941 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Ban
 ```bash
 magnet:?xt=urn:btih:1EC04326A8227168B493276B6B82B0F304D1CA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Laser's Edge - PROG presents- The Laser's Edge Group (2022) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:4032B6F983CE6532368091EB34F777BA07DC7CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Corrupt Soul - Ancient Psychophony (2022) Compilation [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:638DDB7E3915B99E37E9482863E41E44CD91E0C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Feather Mountain - To Exit a Maelstrom (2022) [MP3|320 Kbps] <Progressive Rock, 
 ```bash
 magnet:?xt=urn:btih:167EDDB939C518378EB355D247D511D6D44F85F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Little Bobby - God Made Me Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:CD5FBC4D7BDF0D8FBE5256D0D51F9C9E0B774AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The Texas Horns - Everybody Let's Roll (2022) [FLAC|Lossless|WEB-DL|tracks] <Ele
 ```bash
 magnet:?xt=urn:btih:CA7187071A9F721D0A4B8A3FE6A9544618ABFBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Mark Austin Blues Project - Blues and Love (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:10AB091163E26DC478F2F619F09F969070E96171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Mick Kolassa - They Call Me Uncle Mick! (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ```bash
 magnet:?xt=urn:btih:86249736914BA56540F6889327F899308CB535B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Trial (swe) - Feed the Fire (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:692C7218F3E7E8234FB1DF406A33BC9DE04478EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Tedeschi Trucks Band - I Am The Moon: IV. Farewell (2022) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:68DD0FE11350F1E3735267723546A16C5947505D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Shemekia Copeland - Done Come Too Far (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ```bash
 magnet:?xt=urn:btih:C0D907DE05B69D37181721243835C8B1D15AB2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Figure Of Speechless - Tunnel at the End of the Light (2022) [FLAC 2.0|44/24|WEB
 ```bash
 magnet:?xt=urn:btih:15FA5148E8ABEAA65A411478854F8876B4389C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Ella Fitzgerald - Ella At The Hollywood Bowl: The Irving Berlin Songbook (2022) 
 ```bash
 magnet:?xt=urn:btih:3BE8552331E9B30553F2A82610BCAC1F2F5F1380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Mike Tramp - For Første Gang For Altid (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:5BC329BB992FCF8743F6D456F36DDE5276B79117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ IObit Uninstaller представляет собой удобный инстр�
 ```bash
 magnet:?xt=urn:btih:3D0BABBB94145C9561C979CAC31974F8CC0DFDEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DBC2C8BE083E54B9D16300F34E8D865B2888ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ Blind Guardian - The God Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 ```bash
 magnet:?xt=urn:btih:2943390B69FD4186A19F61F9E756FB52E5E21EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ Bonnie Raitt - Just Like That... (2022) [FLAC|Lossless|tracks + .cue] <Blues, Bl
 ```bash
 magnet:?xt=urn:btih:03D40BA5C175237A778458C68F472573EA726150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ Epica - Live At Paradiso (2022) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:BB0D946179C536A0DB68097EBA93E62DB3515158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6910CC5044EC399832C0AB77B3216E3466B2F32F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:64FFEBF96AD012444ECAB368DC005627CD2E9A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

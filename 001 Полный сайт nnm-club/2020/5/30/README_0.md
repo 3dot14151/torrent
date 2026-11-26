@@ -21,8 +21,7 @@ Fats Domino - This Is Fats Domino! (1957) [FLAC|Lossless|tracks] <Rock, Blues, P
 ```bash
 magnet:?xt=urn:btih:BBAB71C837A5724097141DE358C575F3799D5C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - German Top 100 Single Charts 29.05.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:32B0FB21F3A0063FEB724D2465A897A50730450F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ The Young Rascals - Groovin' (1967) Reissue, 2007, Collectors' Choice Music [FLA
 ```bash
 magnet:?xt=urn:btih:329317BC83D9F623C183A6ACABB799DB9F60F907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Movist является простым в использовании и мощн
 ```bash
 magnet:?xt=urn:btih:2C6E31148399C7A8B22203225CCA040C6AF34FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1420511FB0929ECA62C5022127D0A321189E962D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Earthside - A Dream in Static (2015) [FLAC|Lossless|image + .cue] <Progressive M
 ```bash
 magnet:?xt=urn:btih:1FD4CD0B73DBB718229F93AE842114DB06B4F252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Bert Jansch - Bert Jansch (1965) Remastered 2001 [FLAC|Lossless|tracks] <Folk, W
 ```bash
 magnet:?xt=urn:btih:E80A3B7328D0D27DA0E1EFC1E853E91F563DC08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Hot Sauce - Baby Tenderness (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 ```bash
 magnet:?xt=urn:btih:DEE4B690E1A98CFD50C3AED5A0481316F8231974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4817D3D330989A7B3EAA1255A82F98D9B9EBAADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Otis Redding - Otis Blue / Otis Redding Sings Soul (1965) Remastered 1991, Mono 
 ```bash
 magnet:?xt=urn:btih:202DFAF89518964EFF2AD850C92B6FAE0B235EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D75333509ED2045F0AF60475241FEA78B6DC6164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9C94517CD8568760082824B30958A1CE121A22C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Fred Neil является вторым альбомом от Фреда Нил�
 ```bash
 magnet:?xt=urn:btih:A408C20A973602E3A95E32B2761E516ED16BF0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Calendarique 4.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:195FBFD013BE016A97FE0901E3F3A05BCBFB683F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ Love - американская рок-группа конца 60-х и нача
 ```bash
 magnet:?xt=urn:btih:325CD70B2CDF520E90FD167CEA1733679F2D8B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63EF1CE60C0EAE4F700355A3F922C2C690CF5B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ Whisk - это легкий редактор HTML и PHP с предварите
 ```bash
 magnet:?xt=urn:btih:2C992BBFBF2F710055EC18498A573A9D0378053F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 
 ```bash
 magnet:?xt=urn:btih:6485F00740B3967C0DE7042043577E045C6889FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Jerry Lee Lewis - Live At The Star-Club Hamburg (1964) Reissue, 1984, Bear Famil
 ```bash
 magnet:?xt=urn:btih:7FA6DD9EA0FB52FA68A7FC222C632C8AE9A931BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ VA - The Official UK Top 40 Singles Chart 29.05.2020 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:079A6C53610E0F9600BC30C07FC2089C508ED819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Freddie Gibbs & The Alchemist - Alfredo (2020) [FLAC|Lossless|WEB-DL|tracks] <Hi
 ```bash
 magnet:?xt=urn:btih:564D428AD7BDE966BBB2819CC53A4FC3D51A2832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A1DFCB898ECDE50E0E9E8388BEB482305C2556E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B58478709B07EC0B4FFB0B9A1109A1E48AE6FAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EE0BAD59155728B54E58CE7EB9A9EA9B2ADE0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ AnyMP4 MTS Converter имеет возможность конвертирова�
 ```bash
 magnet:?xt=urn:btih:B9A1B0D1456F43CB4AD50B4211F2797A6801EACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Apollonia 6 - Apollonia 6 (1984) Reissue CD, 1990, Warner Bros. Records [MP3|320
 ```bash
 magnet:?xt=urn:btih:A94988961C55CC0B701423B38DB008F819C5E2B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7009AD1181E57DA2A4AC26A8F5B3D7DB8DE61619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Roberto Capuano - Mutual Respekt 056 (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:FE00C22670039C165AE49C42D39445D849938639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B190C599945CADBB23D311C516E5F2B677E56DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Requinox – Through the Eyes of the Dead (2012) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C357E353A837A99012557A5E684AEC482A2D91E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - DubStep Pro V.1 (2012) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:D56B27603D4C8A25B2CC334195C3016E1495E38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - DubStep Pro V.2 (2012) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:AA62A2353B14D0E81513ACEF8507F1AF049D57A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Anthelion - Bloodshed Rebefallen (2007) [MP3|320 kbps]<Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:66D91EE3BE82C533AB32433599E5A59B64F50812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D439CFFDFFF32BC1FB9DF15DAF350093F645CE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ VA - Euphoric Emotions Vol.41 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 ```bash
 magnet:?xt=urn:btih:DFD48D4287AD8292DD27A6C00D23487D7B576A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7686381DE75DFFB117DF94284827CA759C7A592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ VA - New Years Eve Dinner Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:113AECB26700536088D7EEC90938B357D36C85FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D5F942680C77465482070ED87605518E9F6F3D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E8779C3032A044DB3DBC08F2F78872F7D639D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ Scox - Psychedelic Philosophy (2012) [MP3|320 кб/с]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:C1977D2F3D26170DC1323F0CE8AB4A06A5A8CFDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ Markus Schulz - Global DJ Broadcast - Classics Showcase (2013) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:817F81B77D3D110BD9C0971930197BF41011414D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A19B45C15AEA872C4A83A9E79CA04410CB3B38D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DBA19ECBC52DA5149F39501BE55DD76E639D3D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ VA - Injection of Dreams (Compiled by Lemonchill) (2012) [MP3|320 кб/с]<Atmos
 ```bash
 magnet:?xt=urn:btih:85521B6D40C881C25CC6A5EA0E8486987E628F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +576,7 @@ VA - Motherland Russia Vol.2 (Deep House Edition) (2012) [MP3|320 кб/с]<Deep 
 ```bash
 magnet:?xt=urn:btih:1DBF8ECE4F8020D1D44C7E2FEC6900204ED5A5F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FC238D7E7AD4B5DFBA146A0BC2254DE0F8EDBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ VA - Hot Heels High!: Luxury Lounge for Hotels and Bars (2012) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:2C51BEAAAB9BB2FB7E96C84376F60860ABF0FB53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +667,7 @@ Keith Davies - Symbolic Hemispheres (2013) [MP3|320 kbps]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:EFD15ADA3A94F26D5C0F492761885634FDF03FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0C0CFBB5AA3FBCBA108BE11F420533C7B4AF094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08BA9AF3B8C9D665245DA25A77605C0A5BB23B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +749,7 @@ Consciousness Removal Project - Tacit (2013) [MP3|320 кб/с]<Atmospheric Sludg
 ```bash
 magnet:?xt=urn:btih:9F9B87D650764CC3A4D717E0047FFCA3679F0354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:839E8F6869B06DB352DEE03346A15B792BFD404D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

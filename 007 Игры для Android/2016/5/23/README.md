@@ -22,8 +22,7 @@ Assassins Creed Identity 2.5.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:EA1EEBA035CAA95D3F1022CBA1A375F111AD75CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

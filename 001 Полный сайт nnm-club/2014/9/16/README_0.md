@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C51A78A3FA6DEB8882F0F860B837313001CC336D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ VA - Sailing - Musica Puro Del Mar (2014) [MP3|320 кб/с]<Downtempo>
 ```bash
 magnet:?xt=urn:btih:F635C3923CF648903FBC7BF3A9E04420E9BBC993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D19E98614C752C58CB5EE9BE555338FC0EA559AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86028063F27F947102FE2D8AFC8A65112064D229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B28B67AC3207F3E6C2B716C1630DA666036CD953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:422C8E882ABB5F3BFB9A59F5B82131117246A57C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Misled Convoy - Tickling The Dragon's Tail (2014) [FLAC|Lossless|WEB-DL]<Ambient
 ```bash
 magnet:?xt=urn:btih:88173230DF2242F4E92E06BAF00AE7871E6DF6B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:1BE68F3156F2B6A439D317B9772E9F72658D5D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E2CCAABCB4A4064D04B9F949A3A8E395DE0224E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21BD15FEDCD1D73AAC72B54EABD4535826972A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ACCC1D788B985B43871FFCF78671F8A20C9B5AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Various Artists - Blackout Music NL #BeatportDecade Drum & Bass (2014) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:C06713EEBD3EAB235D226DB6579B6EA63602E8AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ VA - Super Bomb Electro 46 (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:5BBFE488B3C5CA3B8E20A3E38C29EB0F2F604FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Point.Blank - Gyal Dem (2014) EP [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:A09DCD95CE2AC90ECCE3340FCB9291DC346434A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C78618B550D56F69FE33F487742736CFEEE3E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ Ad Inferna - Opus 7: Elevation (2014) [MP3|320 Кб/с] <EBM / Electro-Industial
 ```bash
 magnet:?xt=urn:btih:4E0AD0C7DA33106553C0035ABC25711BFA0F4353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +477,7 @@ Red Zone Rider - Red Zone Rider (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:22C066806B3DA1BF54BED413F97E83C32E925055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBEB0C260627B100ADD6C938EFFFFBCDB347C020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +536,7 @@ Bungalow Bums - Lawless Days In Reservation (2014) [MP3|320 кб/с]<Rock, Psych
 ```bash
 magnet:?xt=urn:btih:6BF155BFFBF41169411E282333C9BA7DDDD10123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CF580E17DA8A9A700F1CDDD0CB2BA52C9063406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:992436BF8503FA404A48067F0B83DF3F3C47F5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +611,7 @@ Light Alloy - компактный мультимедийный плеер. По
 ```bash
 magnet:?xt=urn:btih:D218C845D6AEC03A189944D3C4CAC90BE0344CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76727892D2ADD96A7D331CFF75ADB17E7B9F56E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ Moulinex | Книга рецептов Moulinex (2014) [PDF]
 ```bash
 magnet:?xt=urn:btih:41990850F8BA0C24781BF146DE135EC92AC53881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34ED7E65BF26C0D756D2C119A3F44F3C96FEB775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CEB0B5B7E1979B981E4565ED522969F85FB4F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

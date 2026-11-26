@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:8F52FB7F92F9D68A869FCB85EFD03CD11F7F8438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C34D455848D5BC25AA89DAE67F096015B6BD1FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер 
 ```bash
 magnet:?xt=urn:btih:DE3FC4F38B5F81CBE2B7C31F17F688116202E894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Argus - Pure Love | Pure Chill​-​out Vol​.​1 (2019) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:E20F732CA7071E9D8DB6E40385806C023827848E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Life Is Strange Anthology [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CA9B96760E44E355BF7BB9EF608870C036627850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EB7D6C18BDE1D230FBFDE2E9FEBAE6145E3B96F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DE0672550D470FAEF88F925EE6FAFD0A5343E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Yakusoku no Neverland | Обещанная страна грёз | The Promised 
 ```bash
 magnet:?xt=urn:btih:62AEB43D8D62C575ADEDB7D397FC7B616899711F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12584CDA661B658907DCA3054D0F1386765C2CDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Vue.js – это популярная библиотека для создан�
 ```bash
 magnet:?xt=urn:btih:1FF32A0212BEFD12A749D2F3E462D1089AA43F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Movavi Video Suite – это пакет программ на русском я
 ```bash
 magnet:?xt=urn:btih:3DA5DAE44BCC169751C2B15EEAB1549B0021333A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ TEKKEN 7 (2017) [Ru/Multi] (2.21/dlc) License CODEX [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:039CA7C75773674486CAE5B53D172D69C7E66D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ VA - N'Dance Vol. 1 (2004) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro-House>
 ```bash
 magnet:?xt=urn:btih:F6203FF93C15A104A2070AD3E67E32208CD5032C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ VA - N'Dance Vol. 2 (Mixed by Global Deejays) (2005) [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:16A9172FE411FB78EC6E7EDE343AAA2880B1A526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ We. The Revolution – это уникальная игра с необычно�
 ```bash
 magnet:?xt=urn:btih:9E80D29C24BBE712E1B70EC41BD4BE8C7603FFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Adobe Media Encoder CC 2019 - это программа кодирования, 
 ```bash
 magnet:?xt=urn:btih:3A60DA050B242C134273FBA533C25EEE9061633B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ Adobe Premiere Pro CC 2019 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:B807480EE1623A2B87FC4240BD5A4817C1FD69D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ The Legend of Heroes: Trails in the Sky (2014) [En] (2019.03.24) License GOG
 ```bash
 magnet:?xt=urn:btih:5F910D38F433657616E35B0B32F330F308611363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ Rammstein - Deutschland (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Industrial 
 ```bash
 magnet:?xt=urn:btih:7CC6C40195D5086724D958CB717EA58D84CAE0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ Google экспериментирует с новой версией своег�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:029475B6D3F1B465EA70663C4D83F29B3490F09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEC62387ECB12CDACD94DEF7642D5CF8D529D7F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:5BA71A3A8596968B57F0464997BDD17BABC3F124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A46CB4F2C7A04B6F0A59426556BA7891DFB7ABB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08AC5865AD93921BEB76940140B81BE36E1FCCA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0ACA9D4B7AF1F8067108253CC2FC861B1A24BA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

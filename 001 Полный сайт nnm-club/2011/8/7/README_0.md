@@ -25,8 +25,7 @@ CD 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Stream of Passion - Darker Days (2011) [FLAC|Lossless]<Progressive / Symphonic /
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ DJ Kocmoc - The Best Club Mix (2.08.2011) [MP3|320 kbps]<House, Electro House>
 ```bash
 magnet:?xt=urn:btih:54D96E5CB9BB979466258412009850EA4826399F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ VA - Mega сборник: Звездный 3 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:29AD6D241D819DFCC5D1501CDADF836CE54399BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Written Legends: Nightmare At Sea (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D5699ACAB88995DDC8DDCDF09D821B4C6E2D33E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Discogs | Official site
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ BBC: Мир природы. Ночные джунгли / Natural World. Jungle 
 ```bash
 magnet:?xt=urn:btih:251D06BCD163E8CB6770D87589B651E57D11CE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Hour 1
 ```bash
 magnet:?xt=urn:btih:8009B460FD1391931898C411B372931C0ADD3F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ VA - Miami Chill House 2011 (2011) [MP3|320 kbps]<Deep House, Chill House>
 ```bash
 magnet:?xt=urn:btih:086691205C8E2293DD93340DA708FC90B2110B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ Ski Beatz - 24 Hour Karate School Pt. 2 (2011) [MP3|192-320 kbps]<Rap / Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:6EA35582614D69FFDF368995FC8DD2105B633C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DBD54A87AFC2A556670B69514578C05C6074810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ VA - Пиратская Станция IV Live (2006) [MP3|192 kbps]<Drum'n'Bass
 ```bash
 magnet:?xt=urn:btih:3937F18E0DF26B4AFEDDB27CFE747ED5CAE4AEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ VA - Пиратская станция - V Live (2007) [MP3|128-192 kbps]<Drum'n
 ```bash
 magnet:?xt=urn:btih:BEA6BC937CF052726A6AC798F97AEA4EDBA0C2E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:217FB8CD3717CB98B7F1176E8B0B1B6BE29B948E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2790E5E83E8D1440A7D3535976F1485C4D37958A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:594FC2ED3372EA982CFCE6CF5A00ADE6078C2106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AF2CD79AECAD6A719A07CFF6A81C1DD9C3506F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ Agalloch - Marrow Of The Spirit (2010) [FLAC|Lossless] <Dark Metal, Atmospheric 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93C08EAB3878D75EA7520BD38F8A203885974BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +619,7 @@ HyperSnap 7.05 Final [Английский + Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +647,7 @@ Helium Music Manager - продвинутый музыкальный менед�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4866DFEC1DD64EB6698F883547570C7508B96745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +706,7 @@ Bros - I Owe You Nothing (The Best Of Bros) (2011) [FLAC|Lossless]<Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23EEA7A76612DEE0A33EC96966ACC02EC4C55383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

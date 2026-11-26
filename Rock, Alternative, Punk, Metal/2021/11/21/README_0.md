@@ -22,8 +22,7 @@ Temperance - Diamanti (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Modern Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:792261130CCD52BA3A8181E12F682B50BA4F9794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jesse Damon - Damon's Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 ```bash
 magnet:?xt=urn:btih:81766192A2DAA116F15128865C28B19111F381AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Obscura - A Valediction (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Me
 ```bash
 magnet:?xt=urn:btih:C56AE7F9B855926CB83E7A70B5880F3DBADBD844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dawn of Victory («Рассвет победы») — третий студий�
 ```bash
 magnet:?xt=urn:btih:A0538F316F6E48BFBE57D93252864F88703CBC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Supernova Plasmajets - Now Or Never (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:AAACE2376C9A56C0A1EBA4F5CDB4D8D1E25A3AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Loud & Clear - Disc-Connected (2002) [FLAC|Lossless|image + .cue] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:416FE369F67B38A5B1EF644B9956978E881BFA63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Force Of Progress - Redesign (2021) [FLAC|Lossless|image + .cue] <Instrumental P
 ```bash
 magnet:?xt=urn:btih:5330B7BB5AAEC1E9DA8B3B2A7474A41AB3DD9B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Lurking Fear - Death, Madness, Horror, Decay (2021) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:C3E9D5DD791DC1AE2B0547ED6DAAA939026E3699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Wunderwerk 1 Connected Souls (2021) [AAC|~336 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:CC8E4EB48F27D61291A4B9A37F3A219A3963B7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Melodica 2021 (2021) [AAC|~324 Kbps] <Chill Out, Downtempo, Organic House>
 ```bash
 magnet:?xt=urn:btih:1A44C2AE236F933F405E121704D2C6A023AE4405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Smooze одушевляет ваш скролл и добавляет функц
 ```bash
 magnet:?xt=urn:btih:BFC5F164638DB8D2E9649DCCE0240CA911BEDE47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Travel & Living Lounge, Vol. 3 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:F645E2D0A46E67FE41DAB70B09CDBD0401238F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Travel & Living Lounge, Vol. 2 (2016) [AAC|~327 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:BDB416B58304466145BB2D6BF27EB160D9C8B2CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Converge - Axe To Fall (2009) [FLAC|Lossless|image + .cue] <Chaotic Hardcore, Me
 ```bash
 magnet:?xt=urn:btih:0F145F91D380EA2FD2682B969FBA8F2CCBA5954B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Travel & Living Lounge, Vol. 5 (2020) [AAC|~325 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:CBC5E508A02DC8931FB1719C243E18C9C2D9D600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ GarageSale 8 v8.4.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:9DE7685A33D7197E4AAA040982B98EED36F20834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - Travel & Living Lounge, Vol. 4 (2019) [AAC|~319 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:E201C201D94641DD7956BDF5D5A4D4756CC45DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - Travel & Living Lounge, Vol. 6 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:B4E74115E15323562EDAFA8192D5AE2AFB6C5842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ VA - Winter Lofi Chill (2022) [AAC|~305 Kbps] <Lo-Fi, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:A662ADDE33B53FA702ED202B26E58B86A76492C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:4E0193463858A94D2D383BE486D2D0A193EC0061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Travel & Living Lounge, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:E43C0B990B187D72149E94522C60103DCACC5F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Xenos - The Dawn Of Ares (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:29EE7BB9AEF34DF93549FEFCCEA8FC8F76196AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Dropshare - приложение строки меню для Drag & Drop заг
 ```bash
 magnet:?xt=urn:btih:6E0853A765485B10AA71DF6130806D061CDA73A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ Charlie Ventura - East Of Suez (1945, 1947) 2000, Savoy [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:BA4239E0A9D1719CF69668CBD30352C40E6D21D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Michel Le Fleur - Isla Del Mar (Ibiza Sunset) (2022) [AAC|~342 Kbps] <Lo-Fi, Lou
 ```bash
 magnet:?xt=urn:btih:88C7528CF379401766AA8F270AA059ABC9100DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ TinkerTool System - утилита для управления скрытыми 
 ```bash
 magnet:?xt=urn:btih:CDAAEB9BB7DA160487F5225D492A096753361255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ uDock 2.5 [En]
 ```bash
 magnet:?xt=urn:btih:8EF77EF6C049AFB16B6F645D12D97802A236BC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2B3260599DBB2A14BD65071FE2DD29AFDFD4CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Bootstrap Studio обладает (   Читать дальше...   )Тип и
 ```bash
 magnet:?xt=urn:btih:D0204C42739611E72CC06F0814B54FB20753BFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Haïkel (Haikel) Ouzahrir - What I Wanna Do (2022) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:FDA4C376695ED7B2752B71DA6138D5CC395EFBA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Years After - Years After (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:A46BBA3A32133425F25B48BDE0B36C043D2083CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ Typeeto - Mac клавиатура по Bluetooth для любого устро
 ```bash
 magnet:?xt=urn:btih:9EF966EBC0BA26270BCA7B39E6491528ED3EBA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ```bash
 magnet:?xt=urn:btih:CC71500BAB8AF07D9BC708CFB2E792F913DB94E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ Joe Bonamassa - Time Clocks (2021) [AAC|~351 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:1A70FF4E5D3ABBE2C8B68841124EBCEBE5CEBC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

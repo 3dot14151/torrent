@@ -19,8 +19,7 @@ Dawn of Hope 3: The Frozen Soul (2018) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:840B7D7916A47F0CF5188F63659B61E30B6EA03E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Detective escape1 (2019) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:78DBADD3CA1CE345314F545069AB1FECA4FA02D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fishing Sim World (2018) [Ru/Multi] (1.0/dlc) License CODEX [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F881C9F45BD343CE825B341BF5A160F27A11F48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Onimusha: Warlords (2019) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:D2F751A4D81A2D1F422B9749BD60C53383ACFCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

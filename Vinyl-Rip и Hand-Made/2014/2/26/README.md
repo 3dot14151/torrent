@@ -22,8 +22,7 @@ John Lennon - Imagine (2014/1971) [LPCM 2.0 96/24|Audio-DVD (BD-Audio)] <Rock>
 ```bash
 magnet:?xt=urn:btih:30EEFA9C46FE6ADBC4807C403290638F74F3B251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4. Evermore (05:38)(   Читать дальше...   )Жанр: Progressive Me
 ```bash
 magnet:?xt=urn:btih:4AFE24B0DCB9D65823CD955A39D14FE5CEAB547D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Somewhere(   Читать дальше...   )Жанр: Rock, Pop, BalladПр�
 ```bash
 magnet:?xt=urn:btih:D86620D37C53E889A3AACBFFE1929F8886040AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

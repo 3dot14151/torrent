@@ -22,8 +22,7 @@ Megadeth - The World Needs A Hero (2001) Japanese Edition [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:BAC1201EAED5C2D53B54D968DA12639EF9B59E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88FD9DF4CEC21CB16F7598E65C2F993ACE930DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

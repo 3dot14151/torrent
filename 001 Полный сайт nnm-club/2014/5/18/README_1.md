@@ -27,8 +27,7 @@ VA - Underground Deep Progressive House (2014) [MP3|320 кб/с]<Progressive Hou
 ```bash
 magnet:?xt=urn:btih:88E63264D9B17223A4B1AB6B955F5A741899427C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17628B7D6D6D99D89334D6B7C8C2BDEA9EDAF6E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Deep Vibes Ibiza (2014) [MP3|320 кб/с] <Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:5FF8BB4175485A2851DC69F62E1C6313374C1D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88CFFA8D1AA9D7A56BBA5014B21224F67AA24EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AEE3C822A9CCDE3628D64C029BE3D212F468602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D08E087531AB4ABCD79A1246CCCE515D79C63319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2283A68272F70626BC4756E4D352B123218A46C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:233C531010743454978FC45CC73FB24C513F97CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ VA - Boarding Gate (1 - 2) (Compiled By Monika Kruse) (2012 - 2014) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:D317C4FE666D7EAD9D452CA876FCC45A532331DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9EF248D5C005AA56FA6EDC1019E11B01C8EADF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ VA - В Наше Время (2014) [MP3|256 - 320 кб/с]<Pop, Rock, Retro>
 ```bash
 magnet:?xt=urn:btih:924BA32AC8E6EF4F4790CF1F1406363350EB0CE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ Pat Coil - Java Jazz (2011) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:BEDCB836D06A047358994C58236302CEBE3D98FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1F7044B63EA308AAC320F114D229016C3DA21DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:B1A4CA1E4540CF172C668EB1C8B7CA78DA4BE787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7206C2A6282BB745D570E833936E3440CB5C746E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ Stone Machine - Rock Ain't Dead (2014) [FLAC|Lossless]<Hard Rock, Heavy Blues-Ro
 ```bash
 magnet:?xt=urn:btih:C161C78B773AA2245DF762A020385BD64C8E3AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ VA - Улетный музон (2014) [MP3|256 - 320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C881226B8540EAD4A7601C2436986F8CD26D2293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ Photoshop Projects - журнал, предназначенный пользов
 ```bash
 magnet:?xt=urn:btih:F20559F3BFC2B40A920ED95AA8F210A537467DBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7161C724952916913F316D83E0E770288E4A0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +571,7 @@ Paul McCartney - Live at Estadio Engenhao, Brazil (2011) Bootleg [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:DAA8302B743C45B03CB7CDC12A30FE7D18D073B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E43DAA41B81E626BAFD816F666AD51E4E9112FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C228D370D523D329BE540BF1972F2ADC898FB274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B081BE2B6033283FE32600BE01340E406AA0A0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ VA - RU slow hits (Vol.2) (2014) [MP3|320 кб/с]<Pop, Rock, Other>
 ```bash
 magnet:?xt=urn:btih:986F65B1F0E7F7F6D6C7161DDD8B2BD44A732BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9963D186C41E25DDC475AAFA84E5F034D45B116D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1431D8091C81B8B90167B73BE0351749A3F3961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

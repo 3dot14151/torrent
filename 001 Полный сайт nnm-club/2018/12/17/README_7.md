@@ -22,8 +22,7 @@ Claude Hopkins - 1932 - 1934 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 ```bash
 magnet:?xt=urn:btih:7F3BA7629C4688B7F338C3226EBE9E4AC764EE51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Frank Wright Quartet - Blues For Albert Ayler (1974) 2012, ESP Disk [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:6531EEB35C8C4191C69628200D03E5C8D71B5D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - X Mas Party Vol.1 (2018) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:0F8550590976B80F1D0AC1ABFAAA847FA3BC4298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A4B3342CFB6767C0344FB361C9F744FA0E7CA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Color Perception: Psy Trance Music (2018) [MP3|320 Kbps] <Psy, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:0B70BA7574F742D83A10EDF608FFE3BDA6FE28D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Geekbench 4 предлагает обновленный интерфейс и р
 ```bash
 magnet:?xt=urn:btih:A49AB69EF5F23C56A18528F7851A4E920C8E6BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Mirror for Panasonic TV 3.3 [En]
 ```bash
 magnet:?xt=urn:btih:BE42467B87B220B832FAB412CD1D7B3289A323AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Brzzvll - Waiho (2018) Sdban Records [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz
 ```bash
 magnet:?xt=urn:btih:3DF5F68ADE05F8690D3390E6C99977070344BD3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - German Top 50 Party Schlager Charts 17.12.2018 (2018) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:9E72306227100739DFC04072B1A73EF608C9CC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - New Music Releases Week 49 of 2018 (2018) [MP3|320 Kbps] <Electro>
 ```bash
 magnet:?xt=urn:btih:2BD76E284411EA3FCF5CBE12D6BAC3C64382AFE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ SnippetsLab 1.8.2 [En]
 ```bash
 magnet:?xt=urn:btih:4903E74CEC7412B80EFD68403DCB8179CE4066C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:888C6ABA4B6A9C91ED20BA7BBB0488060233F69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Bruno Angelini - Open Land (2018) La Buissonne [FLAC|Lossless|tracks + .cue] <Co
 ```bash
 magnet:?xt=urn:btih:DB3C3D44BA94AF36EEF332ECDFF2F1F808D12A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:EAE4FF4724C5F6BE1C3B1193D29A71DC94DE5B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ VA - Winterpearls 06 Chillout for a lovely cold breeze - Presented By Kolibri Mu
 ```bash
 magnet:?xt=urn:btih:EB0065771FA6486077D6C586EED17594FB1A262E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77E7E3CE591B6964BC60479FEE9FDF18356BBEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:8B3B16D54C80A8F2BEEEAB36A40E9016400E1832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ iTrash - утилита для удаления приложений с ваше
 ```bash
 magnet:?xt=urn:btih:1CCE4E36078EA56795CBBA9120D0FBC3D461F8A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:540C5E61182CC5A30A2C2B866E08751448729444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ EdgeView 2 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:723812701B2F56396B8A7EF5E5829849D09F7609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Dash - удобное приложение, включающее в себя б�
 ```bash
 magnet:?xt=urn:btih:1FF0C5A1E02B8A84C17A218C29AFBF0DEEEF7A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:924A656CE0164B80FEC588328FADE7B73CD3F7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ NeoFinder Business 7.3.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:47C03828E8BAF0D171ADC1D062E714452397ACD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:946CB702D58C6F7CCC20BF8391F2FB65E886A010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ VA - German Top 100 Single Charts 17.12.2018 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:66BC05AC66B2F2DA49EE69CDA97367097EE5EE60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FB9D70F2563C9808DF73251C890201171755F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

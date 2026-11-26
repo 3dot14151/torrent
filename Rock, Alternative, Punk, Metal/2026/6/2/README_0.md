@@ -22,8 +22,7 @@ Jayler - Voices Unheard (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:23BC0B88172EE75713555903C53592046C8ADB06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Smashing Pumpkins - Zodeon at Crystal Hall (2026) [FLAC 24/96|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:EC70145B8249DE4F6F77B9513C33A0B741F285F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ King Crimson - Lizard (1970) Reissue [FLAC|Lossless|image + .cue] <Prog Rock>
 ```bash
 magnet:?xt=urn:btih:194530B49307132B4DA147362BE7296DF30A867C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A Cold Dead Body - Harvest Years (2010) [FLAC|Lossless|image + .cue] <Sludge Met
 ```bash
 magnet:?xt=urn:btih:EF46EFC2FBAD6B4411C5F19A3C28F0957FE80332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Spirit Adrift - Infinite Illumination (2026) [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:74E314776D4EB3BBB9164D0C370F392C45E59A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Elegant Weapons - Evolution (2026) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8FD1CB09567F306EB5A592A72BAB9536E46F0C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Paul McCartney - The Boys of Dungeon Lane (2026) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:178A1C79A130CE7984B5F0B2841FA32D75D2BFC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Airbourne - 2 альбома (2007,2010) [FLAC 2.0 24/192 | image + .cue (Vinyl-
 ```bash
 magnet:?xt=urn:btih:099452F5B4E2BE0A82288A45A6157697229146CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Halestorm - The Strange Case Of... (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Ha
 ```bash
 magnet:?xt=urn:btih:31A6D85ADF18C078F87C9048D9EE202F12BA895B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Ozzy Osbourne - 2 альбома (1995,2010) [FLAC 2.0 24/192 | tracks (Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:4CC142EAD251939402E261B403EA1393B6E223CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE8C5F66585F2CA24C39B803D9EA6ADB4882F794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

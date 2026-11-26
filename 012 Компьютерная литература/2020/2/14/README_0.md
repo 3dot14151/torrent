@@ -20,8 +20,7 @@ TypeScript - это типизированный расширенный набо
 ```bash
 magnet:?xt=urn:btih:9CC0A0B1D9ED300773A9AEA6ED9E64856568858B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39DBEE3179D7B5460CF5332A6EF9F1789A69EEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

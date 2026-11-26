@@ -19,8 +19,7 @@ Attentat 1942 – исторически точная приключенческ
 ```bash
 magnet:?xt=urn:btih:A897CB321059F22E56310C638FB2DB465EFD6E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:4777A99B2D949650C38713ED244C1341C1013D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

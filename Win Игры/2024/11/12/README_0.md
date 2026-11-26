@@ -19,8 +19,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DE0624C62873D10A7565E13FA43DD3E9932B2BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/Multi] (1.0.6/1.1.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:268657B3D2EB50F8F482B95397DF7D7758958DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.0.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:C90F188BC0184E2DD93471F15D5DE60A64AEED4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deathbound - действие игры разворачивается в сре�
 ```bash
 magnet:?xt=urn:btih:FCFAB5B9C8EE5B638876DE6DC7303DBF5A942B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (0.0.18/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:333E41920BE0413DCD71AC9AB714FB918AF6D2F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hello Neighbor 2 создана в мультяшном стиле, а вы ис
 ```bash
 magnet:?xt=urn:btih:D9652C0B124A59ABCCD1826D85E3F18A997CC8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Wall World сочетает в себе несколько жанров. В эт
 ```bash
 magnet:?xt=urn:btih:1914C198556ECFB4B91714AD16938029E168666F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Farming Simulator 25 (2024) [En] (1.2.1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6A379D5206E22099BEF47A4B17CB4F19C25F0A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Warm Snow (2022) [Ru/Multi] (3.1.0.1/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:87D669B563EAC6E16F1888DA27D6F62390565B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Lunacy: Saint Rhodes - хоррор на выживание от первого 
 ```bash
 magnet:?xt=urn:btih:44C871C243F5B9908D03497257C8A0190F609BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Valley Peaks - это превосходный симулятор скалола
 ```bash
 magnet:?xt=urn:btih:C46CB9951E36F3DFD318663A5DC6BD140EFBD0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

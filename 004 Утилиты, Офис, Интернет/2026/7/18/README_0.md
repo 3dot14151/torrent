@@ -21,8 +21,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:EF9B70A8860C4D758A6849F58615F39C859FA259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:98B030E6FB3353406D47E622505979CA7F4970C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Google Chrome — это не просто окно в интернет, а по
 ```bash
 magnet:?xt=urn:btih:616CFADA0698F21132629814323C4C56CB292D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:5E0A5E4100F3DEFAA7571B984DB9590DA03A2FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ OCCT 17.0.11 Portable [En]
 ```bash
 magnet:?xt=urn:btih:FF65EE17EAE09F14C697AAF61115071893F5CC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:AB8C80875932DA54DF4F721FB441D5114C987BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Neil Young & International Harvesters - A Treasure (2011) [MP3|320 kbps]<Country
 ```bash
 magnet:?xt=urn:btih:5D0C1D321334EE4E3B77C1B186F1A42FE502DB14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Woodstock Generation (2009) 5 CD Box Set [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:D888E6135BA328C868884BFC6BBBFB033AF18404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Rhapsody Of Fire - From Chaos To Eternity (2011) [FLAC|Lossless]<Symphonic Power
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A2BF255B792111711E9614F77674ECF1444AA7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Ken Hensley & Live Fire - Faster (2011) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mark L. Murphy / Марк Л. Мерфи | Elements of Android Jetpack / Эле�
 ```bash
 magnet:?xt=urn:btih:BA1CF845D26F4591006F7938727EF289492A13FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC7FE07CA60F8A99C926C994F080A0F98E2BF04D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

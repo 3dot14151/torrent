@@ -19,8 +19,7 @@ TypeScript — один из важнейших инструментов для 
 ```bash
 magnet:?xt=urn:btih:1B8E25B000DFF8B8960B5AC0F2788266A99EBF37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

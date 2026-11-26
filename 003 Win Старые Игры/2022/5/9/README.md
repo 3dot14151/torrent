@@ -19,8 +19,7 @@ Dracula: Origin раскрывает темные начала прокляти�
 ```bash
 magnet:?xt=urn:btih:F9C2D3575A5B97CB3986101AE9848CD26446C76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer: Mark of Chaos (2006) [Multi] (2.14/dlc) License GOG [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:379AC3BC96DB59882FF6205BB49D97D8C8390448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

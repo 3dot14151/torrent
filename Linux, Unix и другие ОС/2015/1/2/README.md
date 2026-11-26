@@ -21,8 +21,7 @@ PCLinuxOS 2014.12 LXDE (легкий дистрибутив) [x32, x64] 2xCD
 ```bash
 magnet:?xt=urn:btih:A0FC33976F1F21912F9BC6BDF02984DE6FA937F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

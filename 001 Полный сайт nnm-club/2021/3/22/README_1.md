@@ -21,8 +21,7 @@ Martin Abrahamsson (Bauri, Deltidseskapism, Stalaktiten Och Mirjam) - Collection
 ```bash
 magnet:?xt=urn:btih:4305621C281F98FBC4A8A8E4322C4A556E29BC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Neko Neko Fantasia | Кошачья фантазия [1991, OVA] LDRip 480p raw
 ```bash
 magnet:?xt=urn:btih:3492A7DAD9F47BB33C8BAA631B74B420A301EEC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B5A1DC870AA1F3E25498938AFF2BC78987919DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26E1C1A5E5579A8F0177C424879C1E62AFFEE5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Vidmore Video Converter 2.1.16 [Multi]
 ```bash
 magnet:?xt=urn:btih:725CD53D81E6826E1D625AE597041E34E9B1698A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A791151379D6A3B01177824A4C3A62A4A53C321F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Shin Dousei Jidai: Hawaiian Breeze | Новая эпоха сожительст�
 ```bash
 magnet:?xt=urn:btih:620FE926A4E12EA46138A9FAD1005986F39C83A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Osamu Sato | 佐藤理 - Discography 18 Releases (1983-2020) Sony, Music Mine, L
 ```bash
 magnet:?xt=urn:btih:31021F0CDDFA1FE44F56B737F4C542D109307EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Greed | Жадность [1985, OVA] LDRip 480p 10bit raw
 ```bash
 magnet:?xt=urn:btih:120F87CAF665DF17A1A4A2A53AF85C8DA79B73D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF354897DAFEF059E65273E57B5F43595E526981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7159789D44A5FA574E500A0ABA4474A0E8B8665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ The Uralsky All Stars (Уральский Диксиленд) - Russian Roulette
 ```bash
 magnet:?xt=urn:btih:9226ADD5E01D9134C72374100F81CA633D0174F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:BE96870374B60862A2F846DCB4EE366C62CB1B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FE619B1FA12E805378014D21F4D3E72979A0512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFCF3899B761298B3EC7C02B9BAFC2CD28AEC988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1F06B6E65214BF9DF091AB4EE04E389002CB275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ Stand Up - это взгляд на наши жизненные повседне
 ```bash
 magnet:?xt=urn:btih:64E86C0B410D55718B72A4F84BFEBF00A5F0104B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D55F92193C73DAC9DED7DE6EA408B4213799C5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ Elf Seventeen | Эльф 17 [1987, OVA] VHSRip 480p raw
 ```bash
 magnet:?xt=urn:btih:FF5473BFA4289FB72CC22ADF17523B1AE374B1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:150212EA81A01960CA5F68CF6256B63B7AD3DD5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ TalkPython, Michael Kennedy | Consuming HTTP Services in Python Course (2020) PC
 ```bash
 magnet:?xt=urn:btih:40982A7865F2A59C94B2AB808A07EBC3F372F883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69C45CF9761911256A5DD8CD47C9208CC0AA6FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ VA - Baker Street - 100 Classics from the 70's (2021) [MP3|320 Kbps] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:CA13F4CF92B09BB7FBF5E1052E7241C856431178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79CD2EC1025FCFF07EB1BB5F94C50A4C6D9A47AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +635,7 @@ VOA Learning English - специальная программа Voice of Americ
 ```bash
 magnet:?xt=urn:btih:EDAEDF5D9F8D849D01FBBE9887CCB816AF6EB3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5160A48812654B385400F614BA00D9F7A3A6E484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

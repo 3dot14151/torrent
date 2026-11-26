@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:A36C191A5AC949309436C1CA68A9EC5535C044FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9AAF80D7DD5191CCAA0E7B99DC8F8D3B89109AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83DBE419179D314E6146B35654B01C8DE303E252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Kuni - Monolith (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ```bash
 magnet:?xt=urn:btih:32362D4C1C4F5D460AB6600EBF0A6728F5571A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ MediaInfo — программа для получения подробной т
 ```bash
 magnet:?xt=urn:btih:DC08A8F8A6E2829584C7DD8BEFC3A662E3F2A01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20DCF9B8A29003FFEC3201B1E4C1B41E92606125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84BA3F04A7E148AC27997B0F3615EBF24AA6EC9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Simon Le Grec - Singles (Unique Lounge Music) (2020) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:ADA94871C59718B537444A3CA39655734E889D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ SUN (GR) - Sonic Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ```bash
 magnet:?xt=urn:btih:90052B344555DB3B7ED0C8BB794AEF0551A07172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ oMega не просто поддерживает все стандартные �
 ```bash
 magnet:?xt=urn:btih:4D146790D09615BD7C9972C4AE8AB59BC5196DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Mighty Baby - At A Point Between Fate And Destiny (The Complete Recordings): 6CD
 ```bash
 magnet:?xt=urn:btih:1F50AD1758729E085C727C4DA61B051C2F27B6A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA46F3B8454FFC287112BED6ACAF8C097925F394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DB3795EBEFE86DD9CCAC9BA67E913CAB9549F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33CF3E41F4792DDCBC4BF3E7BCFE3D1273B1A00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5DA67C25ACA05371450AE2DC3B5517B72AD7FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:878A4CBC6D6B19ABC8A292EB7E4EDB4872A9CD2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A14ABD1EF823CA222A172C636250C399E537660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7368DE083AEB24594A337D441340076F30517C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ AKTHESAVIOR & Leon Fanourakis - FLATBU$H ¥EN (2020) [MP3|320 Kbps] <Rap, Hip-Ho
 ```bash
 magnet:?xt=urn:btih:C296821FB54A31B19F090B5FA6AEA4EC761D008E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Complete Internet Repair 5.2.3.4060 RePack (& Portable) by elchupacabra [Multi/R
 ```bash
 magnet:?xt=urn:btih:502E3EEDF78B3409B06391396653DA209BA82C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Boytronic - The Robot Treatment (2019) [MP3|320 Kbps] <Synthpop>
 ```bash
 magnet:?xt=urn:btih:738D9BAFCD6AC7A33E735EF69476708005C3372B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8A4AC11473048D505B137B24B1C8B0E3FF281C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ iA Writer 5.4.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FB1DB36F33FA2FE1A280156F3A6F0ED248051642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2654FCD70C9E0CF072F36192B071B612DD26BC22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ Ad Infinitum - Chapter I: Monarchy (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 ```bash
 magnet:?xt=urn:btih:65091ECAEA7CFF71E0F019A4FEC1E13C7B33F07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:430FFA0DC2817A8698D1B1290C2409D5F1E4EF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

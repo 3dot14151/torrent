@@ -22,8 +22,7 @@ A4. Последний рассвет (5:44)(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:047EF3BA6AB130CAF8E8700922CA0D0C3C3F4163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

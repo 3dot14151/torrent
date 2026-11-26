@@ -19,8 +19,7 @@ Your Universal MultiBoot Installer exFAT (YUMI exFAT) — это бесплат�
 ```bash
 magnet:?xt=urn:btih:B483B28D723328628D895355BCEF0EB4F3894B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Universal USB Installer – портативная программа для с�
 ```bash
 magnet:?xt=urn:btih:ADFDEAEB5BC221AFCBAA9AB6F4451AA40022DE91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Revo Uninstaller Pro 5.5.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:81E02570A78CE2C8983D863DC143356F6E126DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:403955580E5DBBEADB3637DD894CEDD6EFC7C8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ YTSage — современная программа с удобным граф�
 ```bash
 magnet:?xt=urn:btih:EEC633C4101106A6B328D852A3968BDCDFF9CBE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Throne – это программное обеспечение, которое 
 ```bash
 magnet:?xt=urn:btih:F0D07114EB658E40BE4281D97B6F10B790A02726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:F923E94BECA87FBBBAD92DB43464B21DE903246B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

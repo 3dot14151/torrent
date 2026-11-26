@@ -19,8 +19,7 @@ TV Online v1.0 (16) Ad-Free [Ru]
 ```bash
 magnet:?xt=urn:btih:E5DEBE0ABF700DB1ED2E668A7AE0A579A8F0ED77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

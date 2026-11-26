@@ -28,8 +28,7 @@ Dj IntroWert - Progressive Reason 013 (06.01.2011) (2011) [MP3|192 kbps]<Trance,
 ```bash
 magnet:?xt=urn:btih:039EF542B2FC7E3AA93AECF07510935F07D5BC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Hyundai представляет Tucson ix FCEV, автомобиль треть
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ HoloAd Diamond - прототип трехмерного голографиче�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Maddslinky - Make A Change (2010) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:52BD311EBA2422BDE08F9800E0E4F6CACB85A098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ John O'Callaghan - Collected Works 2005-2010 (07.01.2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:D0F3007BF97A3A0E53038C67E612319119ACCFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ StrangeZero - Future Is A Choice You Make (EP) (2011) [FLAC|Lossless|Web]<Psybie
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F90BC8EFE8A38A3997D2AA96442BFA910E8E5A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Virtual Attack - Celebrity Forever (EP) (2010) [MP3|320 kbps]<Full On, Psytrance
 ```bash
 magnet:?xt=urn:btih:6195A8C6374539BD8F3333D86F6C5ED1299CE9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:439CB4A272B343AEE18C5A50051BBA324649650B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ VA - US TOP 40 Single Charts (08.01.2011) [MP3|~193 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:9452A52BE7FB4E6E2331B76866071D048B757A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FB3823E976FD76E322B448ED9EFE926488AA005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Chilling Cuts Vol.4 (2009) [MP3|128-192 kbps]<Ambient,Breaks,Dub,Chillout>
 ```bash
 magnet:?xt=urn:btih:0DF23BB68F4C711966D801FAF039F1F1003DA639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3E899AA4247637AE82610679D811E5A1E2532EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ Karma De La Luna - Travel Without Moving (1995) [MP3|320 kbps]<PsyDub, PsyChill,
 ```bash
 magnet:?xt=urn:btih:1C02E3F898FF703224E929C0EB55FF3CCBBD1AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Yesterday Live - это наш шутливый ответ америкнско�
 ```bash
 magnet:?xt=urn:btih:0C9D79C0576D5B2949159A397B24528375BFE4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ Undermathic - 10:10PM (2010) [FLAC|Lossless|Tympanik Audio]<IDM, Ambient, Indust
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Various Artists - Wondrous Stories: A Complete Introduction To Progressive Rock 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ VA - Push My Button Vol 1 (2011) [MP3|320 kbps]<Techno, Electronica>
 ```bash
 magnet:?xt=urn:btih:0CCA28317CB5E7C4532AF6E0EE99CC0E7DE10880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +612,7 @@ Marion Crane - Kamikaze (2010) [MP3|320 kbps]<Alternative Rock/Post Grunge>
 ```bash
 magnet:?xt=urn:btih:E9914C597A98CC600D49EFFF0474D6F21B9DEDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ Freeze-E Frosty's (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:05B69166A1AB7B50068774FA962BC5C3C69FB544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +671,7 @@ Banco De Gaia - 10 Years Remixed (2003) [MP3|320 kbps]<PsyDub, PsyChill, Breaks>
 ```bash
 magnet:?xt=urn:btih:9DDE9BA58E30F45DEFA2ED5D17CBCD8649C1684F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A148154EC4B46B1138D9620C28894EF8806C1A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +730,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC236F2D98B572BFDCD95745714D9CAD3936D1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

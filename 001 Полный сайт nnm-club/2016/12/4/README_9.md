@@ -20,8 +20,7 @@ Themes for Keynote 5.1 [Multi/Ru]]
 ```bash
 magnet:?xt=urn:btih:100FA3EFBC511B14614AEF2FE8CBE2E204E4C53C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Smokin' Gun - Live Round From Seattle (2000) Live [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:E15B7971D0DA2B5EB0105A623A2A441F69A6A49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Trallery - Catalepsy (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:16426253974182C674CDAA4F75BE73B93F4A0A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Winter Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:5F6BF3BFCA195644B4D5BDC746BD37E6B8FE94EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:302922084AC13A3E9B5DF7C5BFDF8672067349BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Silence In Solitude - Resurgence (2016) [MP3|320 Kbps] <Melodic Death Metal, Met
 ```bash
 magnet:?xt=urn:btih:5CCDD8750F9E77163235C3BB62BA061C2D122ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Bethlehem - Bethlehem (2016) [MP3|320 Kbps] <Black Metal, Dark Metal>
 ```bash
 magnet:?xt=urn:btih:FB69F7CA692724D2E68A097F13EE2971A069B0FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Mark Dwane - The Euphonic Collection (2016) [MP3|320 Kbps] <Chill out>
 ```bash
 magnet:?xt=urn:btih:8E95A1E1F73B7C3F6C2DC9F54B514015E4D18CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Kevin M. Thomas - Generation Rock (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A9A8C41D3E8CA37F54562A735C3F299D7FB8DE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ VA - Best Chillout Vol.21 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:6C5B54545F79DAF67838C159ED82DADA489BCB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Aphyxion - Aftermath (2016) [MP3|320 Kbps] <Modern Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:899D18DC51EEE882355B534F36BB2C629B7802AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80639A6DC4FAEC1704E58423D0667D3F8E12AE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19F6104B1D40D5143A944E1E3C5E48B7D11626F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Blue Tattoo Blues Band - Made That Way (2014) [MP3|320 Kbps] <Electric Blues>
 ```bash
 magnet:?xt=urn:btih:59BED4C99E98267B5430F779A63587D23AC6BEDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Lostly - Trance Academy: Acid Revolution (Mixed By Lostly) (2015) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:037D1D80A5070B93A39BEE4D736FEFF669D3AB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

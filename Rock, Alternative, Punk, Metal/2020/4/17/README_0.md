@@ -22,8 +22,7 @@ Vermicide Violence - The Praxis of Prophylaxis (2020) [FLAC|Lossless|tracks] <De
 ```bash
 magnet:?xt=urn:btih:6054B3533993663D42D7A5E97B5E01A48C2042BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vermicide Violence - The Praxis of Prophylaxis (2020) [MP3|320 Kbps] <Deathcore>
 ```bash
 magnet:?xt=urn:btih:4E2C62E2EF54AE8BEF7B88069AD52608011AB187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crusher - Unleashed (2020) [FLAC|Lossless|tracks] <Melodic Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:FF240688610CD1758418A5A471932FD41353826F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ocean Chief - Den Tredje Dagen (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal,
 ```bash
 magnet:?xt=urn:btih:A1184E8EB822142C0C1DADD281D1103E26AAD18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Divitius - Primordial (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Progressi
 ```bash
 magnet:?xt=urn:btih:607022F06B77653D7EE7556C64B25A7C55ABD758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ The Swell Fellas - The Great Play of Extension (2020) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:9F96B7084EA4CE94BEA1E964409D3CE81E49555E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Cadaver - D.G.A.F. (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Met
 ```bash
 magnet:?xt=urn:btih:1BBE6C9B94A4DFFC4DEDAB395D6880CB54B5A1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Aborted - La Grande Mascarade (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death
 ```bash
 magnet:?xt=urn:btih:A8A487D32895876105AAB64768C2ACA95DAF2A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Jarrod Alonge - Beating a Dead Horse (2015) Deluxe Edition [MP3|320 Kbps] <Metal
 ```bash
 magnet:?xt=urn:btih:CDD4F55006FD077F99A302DEDAB31BCC0CF6C463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Sex Pistols - God Save The Queen (2002) Single [FLAC|Lossless|image + .cue] <Pun
 ```bash
 magnet:?xt=urn:btih:A72E52DC52EF97C8E04EDC64CD16FF8D852AF626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Ignea (ex-Parallax) - The Realms of Fire and Death (2020) [FLAC|Lossless|tracks]
 ```bash
 magnet:?xt=urn:btih:074B3CD5BDB2AABF76F422718527D12991C860B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ David Bowie - ChangesNowBowie (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A9FC9D26A66DCB195AE3B013C7F5D11E78F09006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ VA - Спидола 2 (2005) [FLAC|Lossless|tracks + .cue] <Rock'n'Roll, Blues, 
 ```bash
 magnet:?xt=urn:btih:4222192C224A479C5A9A2092E48F6989055D09E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ David Bowie - ChangesNowBowie (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:DEEE1E09C29F39BC4B17C3604BA49256C978654F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Paul McCartney & Wings - Wings Greatest (1978) Remastered, 2020, Paul McCartney 
 ```bash
 magnet:?xt=urn:btih:78D1E55FE6BBE750E4C87AD694452291FE62B396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:575776E0A62A6368CA280A631EE3680C1DF03631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F9C8B3614BC3A907F77549D703C6523DBDAF59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CB39AFDB7B28A7F83878DC53112429ABEA079DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Graveyhard - 2 Albums (2018-2020) [MP3|320 Kbps] <Stoner, Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:A0FCA4F87C63B0E4DFAEFE5259610A31B319F349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

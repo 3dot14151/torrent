@@ -22,8 +22,7 @@ VA - Sunset City (The Night Begins) (2021) [AAC|~332 Kbps] <Lo-Fi, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:1E4D3E086CD13955ADA636E3A31D0B065307ABA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Dawn City (The Day Begins) (2021) [AAC|~335 Kbps] <Chill Out, Downtempo, Ja
 ```bash
 magnet:?xt=urn:btih:425DA4006B64F89BA256C58D3D48BFE72A7C01AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ iCollections 7 v7.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:532D9917B6CFE31A31367B3429E6D507AF382B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Receipts призван помочь вам эффективно управля�
 ```bash
 magnet:?xt=urn:btih:468DEE90461183B388763E99533898796BFE5A42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Graphic Inspector предоставляет исчерпывающую инфо
 ```bash
 magnet:?xt=urn:btih:AD6BA2685D2FF17E2AC740C822793C9D8F860168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ VA - Disclosure: DJ-Kicks (2021) [AAC|~311 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:D7023CF7D67A4BE1C847662D2B324B74B6FC7A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ VA - Spacedance, Vol. 2 (2021) [AAC|~340 Kbps] <Spacedance, Spacesynth, Retrowav
 ```bash
 magnet:?xt=urn:btih:96B425C8CE8D43C7F7E55A2218422E9FD0AAA094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ iBoostUp Memory Booster позволяет вам просматривать п�
 ```bash
 magnet:?xt=urn:btih:85471278AF4094073B1DB90500094C70707DA558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Timemator 2 v2.8.3 [En]
 ```bash
 magnet:?xt=urn:btih:3D3D8CC3463E02FDE27E98489A87B556C7D952B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Hides 5.6 [En]
 ```bash
 magnet:?xt=urn:btih:E7A3B4858E9B30137A02B8DB95316C6E6DE47A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Jazzy System - Answer Me (2020) [AAC|~313 Kbps] <Lo-Fi, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:DF20BF15ADB45FB5AEA754310F2D669E7B8E9D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:94A88D4BE608CDB2F9D39AF46AE278F01E13593C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Fluisteraars - Gegrepen Door De Geest Der Zielsontluiking (2021) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:CEE869927B2D33B82A3BCB7E2F3AB49ACCBC5666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Blessdivine - Between Sin & Sacrifice (2021) [FLAC|Lossless|WEB-DL|tracks] <Powe
 ```bash
 magnet:?xt=urn:btih:7DC4FDBD394FA9A6C4F8860B035DF3747E1A788D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Disk Graph - инструмент, который позволяет прове�
 ```bash
 magnet:?xt=urn:btih:C8A366195EDD819980CF24A0A93D13A59C770707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Raheem DeVaughn & Apollo Brown - Lovesick (2021) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:950CBB770F17106A1AAD6DB7EBC99EB2DC7BCB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Bangkok Dollars - Lost Souls (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, He
 ```bash
 magnet:?xt=urn:btih:4373B8B4F6E86F138DA5AEA575A0CA6C48F98300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ Jazzy System - Another World (2019) [AAC|~266 Kbps] <Lo-Fi, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:D1313B76C8CF003C91A54B51B7876A0A65392509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:28BA3DD829FF4B613BDD83D0A75CE54C5DC01314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ VA - Spacedance, Vol. 1 (2021) [AAC|~356 Kbps] <Spacedance, Spacesynth, Retrowav
 ```bash
 magnet:?xt=urn:btih:B2CEA0136384F2529CAA43EAEA66BBBB2000DD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ VA - Spacedance, Vol. 3 (2021) [AAC|~322 Kbps] <Spacedance, Spacesynth, Retrowav
 ```bash
 magnet:?xt=urn:btih:71EF32AACE156500619BB0485EF1799704029215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ October Falls - A Fall Of An Epoch (2020) [FLAC|Lossless|tracks + .cue] <Atmosph
 ```bash
 magnet:?xt=urn:btih:11FE6E7515E1C02E52E2C722201DDC72EE23538A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ Last Days Of Eden - Chrysalis (2018) [FLAC|Lossless|image + .cue] <Symphonic Pow
 ```bash
 magnet:?xt=urn:btih:F5F04669DABC552DC6A89F6825A4996E38AAD009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ IObit Uninstaller представляет собой удобный инстр�
 ```bash
 magnet:?xt=urn:btih:5A60A35A96C88033243E6840D45BF9B290E7A800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ VA - Be Phazz-a-Delic. 20 Years of Musical Delightment (2021) [AAC|~336 Kbps] <N
 ```bash
 magnet:?xt=urn:btih:B15B4359CC717A72FCED6980142420AE35939B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ AnyGo 5.1.5 [En]
 ```bash
 magnet:?xt=urn:btih:C7B7D27698C874B8DDFBB53067A4407A8B95F7BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

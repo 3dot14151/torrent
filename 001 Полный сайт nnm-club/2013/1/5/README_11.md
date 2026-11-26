@@ -27,8 +27,7 @@ VA - Дискотека 80-х. Лучшее (2013) [MP3|320 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:D2715D1FB34AC72196F9005EA5DEB6C290FACAC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ I Am Alive [Ru/En] (RePack/1.01) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:BF13E17D621C276FB9B19044C9ACD5CB62DE1B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Command & Conquer: Tiberian Sun + Firestorm [Ru] (P) 1999-2000
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B09BD123B6ACEE3561501D7BACFD1C1C07A5A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Worms Revolution – продолжение знаменитой серии ар
 ```bash
 magnet:?xt=urn:btih:120F015D4AFE4327C7AE7238FE72F715316C7BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.779.0 RePack [MULTi / Ру
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Rockefeller Das schwarze Gold [En/Gr] (L) 2013 | 0x0007
 ```bash
 magnet:?xt=urn:btih:C02571BAB12C5EFAC688ECC2576D8F20A95CDD14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12CA7DD19F749BF4355F1BA1E44F816CD702FF0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Doom 3 BFG Edition [Ru] (RePack/1.0.0.1u1) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:34E1A870DAE2B0FDE6C4D5DD1786BB46FEDFAE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ RollerCoaster Tycoon 3 / Roller Coaster Tycoon 3: Магнат индустри�
 ```bash
 magnet:?xt=urn:btih:B0A70058B9D7981DC8D79355F8F9FDDA646529F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ CardRecovery - инструмент для владельцев цифровых
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Need for Speed - Underground 2 — это мультиплатформенная
 ```bash
 magnet:?xt=urn:btih:1910EA69600345CA0F50625ECEA937FA0BCEDF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Doom 3 BFG Edition - это обновленная версия культово
 ```bash
 magnet:?xt=urn:btih:01DF9533A0D24E355B15F286C20A470A17AF7FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Kaspersky Tablet Security полноценное решение для защи�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ ZX Spectrum коллекция игр 31593 in 1 [En/Ru] (RePack) 1982 | RG Game
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Far Cry 3 [Ru] (L/1.04) 2012
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Call of Duty Black Ops 2/II (2012) [Ru/En] (1.0.0.1 upd3) Rip R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:3DB5EBF051785A50AE622FB869C9532D941044B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

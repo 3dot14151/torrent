@@ -19,8 +19,7 @@ MDaemon дает следующие возможности: - Связь по э
 ```bash
 magnet:?xt=urn:btih:07FDAFC42959F3A61AC0F62292F4A148066906BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ R.saver — инструмент для восстановления удале�
 ```bash
 magnet:?xt=urn:btih:D6B0A759002B2342BE406280BCC0029B56409968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

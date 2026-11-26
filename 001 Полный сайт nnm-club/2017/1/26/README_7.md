@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:CDD2689993EE28203C4BEDA4EA1FD118A7F83F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Drawing Hands - March (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary 
 ```bash
 magnet:?xt=urn:btih:6A9DE454251878C2E6D4037F1DD0D2CB6588B97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - River's Lounge: Stage Selection (2016) [MP3|320 Kbps] <Chillout, Lounge, Do
 ```bash
 magnet:?xt=urn:btih:CEBEFA8C1A8608CA79E32523615047CFBB5C9724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Maynard Ferguson - A Message From Newport (1958) 1989, Roulette[FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:FF734E79DBF78A394832092697F68EA6FB6D7958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Gerry Mulligan - Jeru (1962) 2016, Sony Music[FLAC|Lossless|image + .cue] <Cool,
 ```bash
 magnet:?xt=urn:btih:558B43D2344A1D3A18D291D013DFBC4EE52F06D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFC3FA3127E4352AF2B534E9C4C19BBE223FFFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Chillout Fantasies (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:86A68134E7C3ABC84947DA5C59445FAD8BB6BC9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Снежный презент Выпуск № 2 (2017) [MP3|256 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:E536F50F2E7FAF03FE215B27C19852DEB0F435D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Reggie Lucas - Survival Themes (1975) Remaster, 2015, Universal[FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:2E32620C671ACF56AF3F396B8C404D57D03C38DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Зимняя сотка хитовая. Версия № 3 (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:8FDF585730C2689BB944178404FAAEF7EC6B3F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C71C967B24A306FA2BA5C893F37A3C2421C2E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Best Of 2016 (2017) [MP3|320 Kbps] <Tech House>
 ```bash
 magnet:?xt=urn:btih:30D696DDE97C3A2350A9063EB6FAF988ED93EE2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ CG & The Hammer - Live in Tel Aviv (2010) [APE|Lossless|image + .cue] <Blues-Roc
 ```bash
 magnet:?xt=urn:btih:2FF0B5C444F1A90D1E0B853BD88A6B6CBD14363A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Big Monti Amundson - Dangling From A Rope (2014) [FLAC|Lossless|WEB-DL|tracks + 
 ```bash
 magnet:?xt=urn:btih:2CE4E2C7D14165BA89838C725CA4AFD5E310F4DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ VA - Зимний русский музобоз. Сборник № 4 (2017) [MP
 ```bash
 magnet:?xt=urn:btih:C98B5DDE8F7530C5CB2058E6F85FFF808C3E5D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ The Blues Rebels - 2CD (2015-2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:73BD20839053AE64DDD3153CDB0CEE3E5F0B74A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Disc 2: The Early Years - Outtakes and DemosЖанр: Eclectic ProgПродол�
 ```bash
 magnet:?xt=urn:btih:117E4A20A7FE7338065AF14673B338121669E3BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ National Suicide - Anotheround (2016) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:97A8329DCE06C16D88AC42A6D95732A1C13E1306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ VA - Cycles 8 (Mixed By Max Graham) (2017) [MP3|256 Kbps] <Deep House, House, Pr
 ```bash
 magnet:?xt=urn:btih:4564379EC4CDA92E34DCF2D9A8C8A45962ED5440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ VA - Я слушаю шансон. Зимний выпуск. Версия №3 
 ```bash
 magnet:?xt=urn:btih:90FA503FAAD92423A65A443D1E7B877E160EE54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ VA - Ruben de Ronde - My Story (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:138F328AC2917ED4F2FC4D80CCC72EA1181C9CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ Kreator - Live Antichrist (2017) Metal Hammer Promo CD [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:9DE91CB5D911821C8B2B6C39E063624CA80198E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:A0471F71EC035CACF17816985F6AA3FCA8A17C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:A3D4807345B75883E7BB031C7A16C1000BDD576E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ A Better Finder Attributes — мощная и полезная утилита �
 ```bash
 magnet:?xt=urn:btih:F1BE56058CE56D59881F8A9EED6151661BBBD386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ Tomcat - Something’s Coming On Wrong (2017) [FLAC|Lossless|WEB-DL|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:FD5568A857F8ADD4CAEABEC61ED01D51DC7264BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

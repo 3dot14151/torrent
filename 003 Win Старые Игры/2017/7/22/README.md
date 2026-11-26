@@ -19,8 +19,7 @@ Avernum – настоящая подземная тюрьма с сотнями
 ```bash
 magnet:?xt=urn:btih:443F5698A6591273088B371E647C159DDF297A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

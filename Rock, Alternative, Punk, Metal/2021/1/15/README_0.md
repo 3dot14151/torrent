@@ -22,8 +22,7 @@ Bad Touch - Kiss The Sky (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1014E8DFA99EE1771C24804A9613B53B6040DBF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Silent Temple - Marvelers Of Creation (2020) [MP3|320 Kbps] <Progressive Rock, C
 ```bash
 magnet:?xt=urn:btih:ED364FB7408390D9B0C939C097F880AE10DC6BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ruins of Elysium - Amphitrite: Ancient Sanctuary in the Sea (2021) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:B7273B2498B45E707CB0524DC6F7586E304B1940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Humanity Gone - The Seven Deadly Sins (2021) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:F9F3BBD26B4F710F19513007DBC375F5B2A332A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:449533FA64BC75370039424B9C1089C0938CA851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Сохрани мою речь навсегда (2021) [MP3|320 Kbps] <Rock
 ```bash
 magnet:?xt=urn:btih:BCE3A13582E919271B8E75922009EA572A468B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

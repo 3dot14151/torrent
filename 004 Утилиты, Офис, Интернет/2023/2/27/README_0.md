@@ -22,8 +22,7 @@ WirelessConnectionInfo (Portable) — утилита, которая Отобр�
 ```bash
 magnet:?xt=urn:btih:2EFC097C96D2B638EDDADB92553EBC35119F6F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Deluge - полнофункциональный кросс-платформен�
 ```bash
 magnet:?xt=urn:btih:727C9753605D8DCCBD9376BDC315874D92CFC482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ ScreenPic - это самый простой и легкий способ дел
 ```bash
 magnet:?xt=urn:btih:EAE45C529C3FFD1E5AF09D01123C1685AFED8518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

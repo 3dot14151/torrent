@@ -22,8 +22,7 @@ Asphyx - дэт-метал-группа из Олдензаала, Нидерл�
 ```bash
 magnet:?xt=urn:btih:D258F60699F0E93AFC8E2E0FA36E43C2B2B2238E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Atreyu — американская группа из округа Ориндж,
 ```bash
 magnet:?xt=urn:btih:0DEF3DBD049D016F76E5CA9945AD101DD6633FC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Conquer Divide - металкор/пост-хардкор-группа, обра
 ```bash
 magnet:?xt=urn:btih:9FB123D138774B2872581C8BDBFE4D52E6C0644F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Theaters des Vampires — итальянская группа, известна�
 ```bash
 magnet:?xt=urn:btih:646BAAA9256AAE3C08BCF7B0F87D21797D0FB85E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Sevendust - американская рок-группа из Атланты, Д
 ```bash
 magnet:?xt=urn:btih:9E0BC8293CADA9E7A6C024203F19C040FD5798FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

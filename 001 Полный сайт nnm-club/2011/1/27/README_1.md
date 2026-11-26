@@ -20,8 +20,7 @@ Grenadier / Гренадёр (2003) [1-37 гл.] [Манга] [complete] [Рус
 ```bash
 magnet:?xt=urn:btih:A98542AE3D10C152AD1605E16ED8F0266998B74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ VA - Дальнобойный Шоферской 200 (2011) [MP3|128 kbps]<Ша�
 ```bash
 magnet:?xt=urn:btih:F5F5C315E475FA538E0F770F41CEB2B8A848C6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Digital-Tutors | Exploring Animation Principles in 3ds Max 2011: Follow-through 
 ```bash
 magnet:?xt=urn:btih:71D77E3863D8A8CF02E2B40CE9D5482C9F1987B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Swing de Musette (2000) [MP3|320 kbps]<Swing>
 ```bash
 magnet:?xt=urn:btih:D61E7EF6BB3939C5D51698ACB86B4A68B0399D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Вечер с колыбельной (2009) [MP3|192 kbps]<Детские �
 ```bash
 magnet:?xt=urn:btih:A02697D9333CE7301C1D714D8084A2EC8A2D705E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ James Zabiela - 4.4 Part Four (2008) [MP3|320]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:FE561FD3A70998F8DFF5D3337EFA85BCD381C089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82D2A1261330AEC2C216FD6F50793DFF6E830B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Botticelli Orchestra - Midnight Moods (1989-1990) 2CD [MP3|320 kbps]<Instrumenta
 ```bash
 magnet:?xt=urn:btih:9290DDB0BFFB9B5319791B6954654818A43553FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ BitComet - Программа для загрузки файлов из сети
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ VA - Блатные медляки (2011) [MP3|160 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:6C166A11A92EF28AF744E3F30CBCB038950A614C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CCE60A5BC63B44154584AF5737853D5F0789280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ James Zabiela - Destination: Future (2010) [FLAC|Lossless]<Dubstep, Breaks, IDM,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ ImgBurn — небольшая программа обладающая всем�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ VA - Mega-Music Сборник хитов 50/50 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:15F8408763CECD8BB5BD6E5026B234E7D3517831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ ooVoo новая версия программы для осуществлени
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ Bricscad – лидер среди альтернативных DWG САПР п�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:486FEED73CA6E220DA7A3D74BF9EAFEF6BCDCEA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E6CCB09F1D7792AD7D47F549E8F4D075D4123C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9141E7509FC0515237B5BB664C468924CAC4CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ DRKB (Delphi Russian Knowledge Base) — самый известный и пол
 ```bash
 magnet:?xt=urn:btih:DD485C174A09A8B4B67B0DF99BE7FB471AE3B321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CA230C174A0100BAE1D7F483F3EAD1658371130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F257FB7F28886BFF94D3A4C85F7B5CB4FCBBEA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

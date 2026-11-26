@@ -19,8 +19,7 @@ Amazing Any Data Recovery гарантирует безопасное, быст�
 ```bash
 magnet:?xt=urn:btih:E6C2F5596CA0ED12C2357E00F96D89813EEABED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DevID Agent - удобная бесплатная утилита для уста
 ```bash
 magnet:?xt=urn:btih:A1350325B04F598E0D57F650B314725E2296C9B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

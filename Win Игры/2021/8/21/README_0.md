@@ -19,8 +19,7 @@ Good Night, Knight (2021) [En] (0.6.2.04) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:0854A92C46A5A8940D3019B9847AFF9B37C18447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

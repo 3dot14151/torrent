@@ -21,8 +21,7 @@ HDClone - это программа для точного копирования
 ```bash
 magnet:?xt=urn:btih:75AA3F4745B50B22D5DEE830A18D41D099EB7C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

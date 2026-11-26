@@ -19,8 +19,7 @@ Lisa (2014) [Ru] (1.0u2) Repack MasterDarkness
 ```bash
 magnet:?xt=urn:btih:9004140108FF1D06EA73AA9C1F7C57F21B2155B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

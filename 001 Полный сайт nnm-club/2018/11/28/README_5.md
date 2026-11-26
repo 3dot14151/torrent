@@ -22,8 +22,7 @@ Bunny Berigan - 1936 - 1937 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing
 ```bash
 magnet:?xt=urn:btih:2E486E004F7418CB3D14EEE8A60C4956420EC585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Swinsian демонстрирует простой, но вместе с тем 
 ```bash
 magnet:?xt=urn:btih:7D9AE1633EB8DCFF2133A040569CB81631CA4264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Trance Anthems 8 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:E70151FAA9549C705F481831E00C589F553C5D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Epysode - Obsessions (2011) Reissue, 2012, Фоно [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:2856E5C1B05BC5EB974C0BCA66FE47DB6153BBA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ EtreCheck 5 v5.0.9 [En]
 ```bash
 magnet:?xt=urn:btih:FC044CFE25EF3F1CBB71932C000FF7C05BDB1F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Postbox является почтовым клиентом, в основу со
 ```bash
 magnet:?xt=urn:btih:A9509E62657011AE2DF148316EAD46EF4F8DCEE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ AutoCrypt 2.4 [En]
 ```bash
 magnet:?xt=urn:btih:163029F158A5D9FEB0642F95D91F6FFF8C091555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Cloud Outliner позволяет с легкостью создавать ау�
 ```bash
 magnet:?xt=urn:btih:FDFBFDA12CA102CE2163371079A22EBDA495A44C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ WebVideoHunter Pro 5.9.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:15241E9EAD1EA9827D3F2306338F59524CACD296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ MovieSherlock позволяет загружать любое видео с You
 ```bash
 magnet:?xt=urn:btih:0279631754804F8197853986EE0588CBE8BC3F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Mary Wilson - Mary Wilson (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:275EC3EE6AA3A37AE4ED860989B5E62398AF5F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ VA - Best of Trance  Vol.08 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:776C035ECE60D6A9C979B632CA78F0ACAE5A1443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Lo Moon - Lo Moon (2018) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Alterna
 ```bash
 magnet:?xt=urn:btih:5ED294C9804A61EA48A5A3D243D8DA77B5BE18B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Digital Sentry контролирует вашу систему для опре�
 ```bash
 magnet:?xt=urn:btih:D0585C430FAF4FB6E3DADD57D4A22C81D91A9C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ VA - Black Hole Trance Music 11-18 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:29CE2253438904DB67FDCC237E70FB6E5EB46C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ VA - Markus Schulz - We Are the Light (The Extended Mixes) (2018) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:25711B56B4B3757E107BBB673AFAB5FE39952608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ VA - New Releases of the 24th Week of 2018 (2018) [MP3|320 Kbps] <Pop, Tropical,
 ```bash
 magnet:?xt=urn:btih:A54AF428921A63DCB4348A8C2EF9FA97B0277899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFA6A2E0AD6F8886591B97E51201627073D5D4CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C25BE3CE2940CFBB8F04A9A97A3035EFFD76CBFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ VA - New Music Releases Week 47 of 2018 (2018) [MP3|~229 - 320 Kbps] <Dance, Pop
 ```bash
 magnet:?xt=urn:btih:5C0FE2565D318D3476862C7A9DF7E80C9AB51794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3BC99476BE63B8BA65DB0902DE66821AD03AA0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09F9755D0C95D63A98774C5232810297B76EB154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ VA - Ultimate Vocal Collective House (2018) [MP3|320 Kbps] <Club House,Vocal Hou
 ```bash
 magnet:?xt=urn:btih:A7004D0233E5A9F68C7335283604932234076C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4A5D8F2E6634BE74319D9C6F3E20F21EF640A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:906F36849A672A7CBE00920B6547ABFC3C9C6BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ VA - Vocal Trance Legends (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:3116C31C89143B675A7A091C111ECDFC1CA9D0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Darkened Skye [Ru] (RePack) 2002 | Pilotus
 ```bash
 magnet:?xt=urn:btih:2039B7AE69F5BE193B3EBD73E256C6A3EF4F295E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

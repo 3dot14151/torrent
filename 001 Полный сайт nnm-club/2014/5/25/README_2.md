@@ -27,8 +27,7 @@ Dubcon, Twilight Circus Meets cEvin Key - U.F.O. Pon Di Gullyside (2013) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:7BD54598006530B450BCE81456A71A837E67EEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DD3CD73838C6D41FF4D0A01D57066F3CA06CE23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:814BFAA93F336DB0EBDBB465C7A2999468A681A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3880EB3D27F6BE4A4C48FB5D42B2CF386C2BA0E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D38FEA9E6369AAA012DDAF691D8A1E6539A8A277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Wellness - журнал для женщин, стремящихся к сове�
 ```bash
 magnet:?xt=urn:btih:772A0FF7A4A130ED0FCC5AB240EBC19015978E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Sinfonie Nr. 35 in D major KV 385 “Haffner”
 ```bash
 magnet:?xt=urn:btih:9AD1AC67A9EA3703294A9A10F4E9799F5C2D3453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Lizz Wright - Fellowship (2010) [FLAC|Lossless]<Vocal Jazz, Gospel>
 ```bash
 magnet:?xt=urn:btih:7D29435334A7BC307160E98E0EB9E7283739BA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AF638CE027DB9E02EEC2E3DB18179ACECBC042A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5E3DB25532417260DD3849D4730B1F899BC543C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ cEvin Key - Discography 4 Releases (1998-2013) [MP3|320 кб/с]<Abstract, IDM, 
 ```bash
 magnet:?xt=urn:btih:B2464C6168B230AEF1DCB1514CADB2FDA88FD0F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DB5FB64602E2403438B65619779C286458E21E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ QuiteRSS - удобное, простое и бесплатное приложе
 ```bash
 magnet:?xt=urn:btih:CA0F62D7E01AC7AB3E4B5A8C15B7811703D8AECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Ah Nee Mah (Diane & David Arkenstone) - The Spirit of Mesa Verde (2000) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:64608FAF1D5D8432F17B5777AD8EBD0972E79C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:423C99BCAF08E7CA01BE05FD9D6BBDC86DD519BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ VA - Cafe Bossa Brazil Vol 7 (Bossa Nova Lounge Compilation) (2014) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:4541C796A31BE0EA67BEDE11955CE55A4F568F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16BFC75AE43753670336A7665F7A4D3467665763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Bigasoft Total Video Converter - мощный видеоконвертер, по
 ```bash
 magnet:?xt=urn:btih:2FCA85438CD0D5F3BC0792F235DB1D3A0AA76D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Wallpapers - Photography (25.05.2014) [JPEG]
 ```bash
 magnet:?xt=urn:btih:36F724F35D907D10E85B0D1CD868316AD22FCB07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48F1F2749A108B50021C332837C050D08F7123B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Bernardo Storace (1637-1707): Works for Harpsichord and Organ - Jorg Halubek (20
 ```bash
 magnet:?xt=urn:btih:996C3DBAA1D1A5210954067290506645C4B7AD77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEB7943CD7AEA5C98E4211BBCA28D7DF969A0A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ Wallpapers - Panorama(25.05.2014) [JPEG,PNG]
 ```bash
 magnet:?xt=urn:btih:1AFE3379DF40480EA167184B92C46BD8E52520EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ Casualties of Cool - Casualties of Cool (2014) /Special Edition/ [MP3|CBR-VBR|32
 ```bash
 magnet:?xt=urn:btih:B06BEFFB18CA386E43E57D8A9BEE3E820827706A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9017AA7102CC840D289AF21C5E418D30E7230D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:3C37CFCF15FE0D3B7CDF8F04375060EF26F21BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

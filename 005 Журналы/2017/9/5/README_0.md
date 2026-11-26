@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D242B48F1EBFF7BFECB70A75B8EF6404026BC1A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:E836E655E972F45FE5B793F6AEDD50DB60852D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93E00566FD75E6FFC44F0B850290E1BF8B377138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Minefield - Minefield (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C96B39E90CCE6C6F1AF1E6C9152479B3728BA270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nekromantheon - Visions Of Trismegistos (2021) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4CAD31F3AFD8EE6C8E7DAC97C662DA47D943F2A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Krysaor - Krysaor (2021) [MP3|320 Kbps] <Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:23E719261A93EAD4ECCBE87EE55C873089FF6186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kruk - Be There (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D8B276913EC3E7AE2B2C7217025D90D6A53784A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD - 1 - Love Over Fear:
 ```bash
 magnet:?xt=urn:btih:186B8998A57724CD5FAD8BC186E584CEE74CBEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Damn Truth - Now Or Nowhere (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Ro
 ```bash
 magnet:?xt=urn:btih:1B75A55ED28F77B3E1EA295BA5FD0415AED21E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Steel - The Steel II (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:33F0164F29E847CBB8AB2D88E91733AA68ED73A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Vreid - Wild North West (2021) [MP3|320 Kbps] <Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:1A445D6F74263E21AA178711080BB484EC8B52EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

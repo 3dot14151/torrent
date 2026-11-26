@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B9002CA9E1FD7D6E978C6908735DD0E858E7716E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Mylene Farmer  - Rolling Stone (2018) Single [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:42E772B1CDEC0AA2B5DA567532496388BFEA2033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Predator 2 это преемник легендарного синтезатор
 ```bash
 magnet:?xt=urn:btih:52F65684AFE86D4F73F2E5F468DEF69E820FD485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0DA232722018AD5BB99C8BD3C147D43C97592E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Granblue Fantasy The Animation | Голубая мечта Грана [2017, TV,
 ```bash
 magnet:?xt=urn:btih:26DD9FEDDAD4036C24C9537DEDFF162B808E0C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Nekopara | Кошачий рай [2017, OVA] BDrip 1080p raw
 ```bash
 magnet:?xt=urn:btih:0BECBB7310CC660705BE20C56D6F94E99139747E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A33502463F8F000121DADC4F954BD978009E537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7306F626DE3EAA83091BF68ADE75C4D95E62AC9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:4AD8368860AB57DF047DD11C3F263D2001FF59D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:739D309A3DC4180E3677CB80C3597C759C46E638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ ProductionЖанр: Триллер, драма, мелодрама, кримин
 ```bash
 magnet:?xt=urn:btih:987F886576249B98A26DAD6CF5D2C64A87A83106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2FA9674CF6A6B40243C4B5E341D0D966BC01C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Adobe Audition CC 2018 v11.0.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:758B03578DF04ED1AC907F78F4FFBB78BC87181F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Load — вышел в 1996 г, за год ранее альбома01. Ain't M
 ```bash
 magnet:?xt=urn:btih:0038588459708516CDEB3FE4936A3CB4FDD92DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E652C0342228E99D4C5903DDA9947A24B0267E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ OK K.O.! Let's Play Heroes (2017) [Ru/Multi] (1.0.0.157) License CODEX
 ```bash
 magnet:?xt=urn:btih:5EFA7F3F21F5BAAE337FC18F311BA043224A0C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E98756E1765991E2E3C8FBAAE336601146D46C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ SoftPerfect NetWorx - утилита для учета интернет-траф
 ```bash
 magnet:?xt=urn:btih:91CEBA9A56CDE3E149D0D0B88F80E46BFEED7A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06F17AE5C0015879C2BB66762B37D3659DB9D76D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ G3F and G8FФормат: DUF
 ```bash
 magnet:?xt=urn:btih:08ECCE774A520165481AE9F5FB7F5F569C3C2EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85EA42F6132F9520BB50F9A2526BCFE15B7C17CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ Balabolka 2.11.0.644 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:332DCAEFFBD133E7528DEC2EDCEFDDC3C095EE52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +656,7 @@ NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:838AC5452C6752423C8B51EC4914A57F31825454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

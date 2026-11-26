@@ -22,8 +22,7 @@ The Green Pajamas - Just To This (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 ```bash
 magnet:?xt=urn:btih:1505429DED3B740FEE70A1D6D5DC71942BE0A779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ FM - Old Habits Die Hard (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:4102D9DD19C475E1C4955814258F5AAB9CB29EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

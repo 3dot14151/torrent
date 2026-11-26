@@ -19,8 +19,7 @@ Descent 2 (1996) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5E71B218BAF2284FAA7F6D409B72DD44B7A2764D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

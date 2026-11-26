@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:2E65F4CF4DB41D487F616C29DFAB6130C259671A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:863EFB43CDCB89EC730D5DB9E8D66A74FB53F42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Skeletal Remains - Fragments Of The Ageless (2024) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:72E42A01C41B0B7488AB684940FE98AF52BA884D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Skeletal Remains - The Entombment Of Chaos (2020) Japanese Edition [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:F70D97CD1D44A2B7782FC9B6EA947A71D92E514B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Judas Priest - Invincible Shield (Deluxe Edition) (2024) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:D7242DBFBFC52E2EEFD909227B4B8FDC4DBDA536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rainbow - Down To Earth (1979) Reissue, 2011, 2CD Japan Deluxe Edition, SHM-CD
 ```bash
 magnet:?xt=urn:btih:761F110F4B4B16C4EE0452277F9298634650F2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:292D6022D06C1E5415163E1351B3DE3CDB684713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Alice Cooper - Billion Dollar Babies (50th Anniversary Deluxe Edition) (1973) Re
 ```bash
 magnet:?xt=urn:btih:CED6100A0731A02FEAB39C85708507D3AF56858C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD1 - In Utero Remastered + Bonus Tracks & B-Sides:
 ```bash
 magnet:?xt=urn:btih:51464DE49DF20F1B353EDCBF03BBCA0A39B8E82F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

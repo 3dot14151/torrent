@@ -19,8 +19,7 @@ Picsart AI Photo Editor, Video v27.9.8 Final Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0527AB024325C5F6B694ECA470E923E989FFE5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:1481EC5308CB8C4A6CA91752BF0BD855A98E194E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EA120BAA63E50FDE90E77C7265F2B348F9D5BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:B095174C24F1E0BF7A6EBB270D614814CC19DF0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Daily Yoga - это платформа, обеспечивающая мента�
 ```bash
 magnet:?xt=urn:btih:C6CFE977588FC6DE04824D6F2F9C309434143203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ TrackChecker Mobile v2.28.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7480260F11F104F035701F1E5CCAEE7D55EBB7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ VideoShow предлагает отличные функции редактир�
 ```bash
 magnet:?xt=urn:btih:79FC41E9445B154D55888A2537262E5209F74B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Umagic AI / ИИ Рисует v1.7.7 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C8EE5C2F6BB9974DE129DCDE468F2D8E2F983686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

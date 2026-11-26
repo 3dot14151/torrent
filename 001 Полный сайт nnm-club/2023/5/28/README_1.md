@@ -21,8 +21,7 @@ Offensive - Blast from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thr
 ```bash
 magnet:?xt=urn:btih:819C8A55FC4E04F44FC208359BD2663A4D8375C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:4B81B98A47AB6C90490DB6BA0D9CCD66DEA24F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D210106FC95D4620476BF95069B3282B6D691F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Lennie Tristano - The Duo Sessions (1967 - 1976) 2020, Dot Time Records [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:7CC195E85C55213900F963E10CCEB9459005574A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ KAUAN - Lumikuuro Live (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmosphe
 ```bash
 magnet:?xt=urn:btih:56EE93C296243348FDE0B4336B68EFC95FB3C825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Billy Bang - Big Bang Theory (2000) Justin Time Records [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:BCE7D0711ED4DDC41151D5D1EE0F952809930765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Kansas City Band - Barrelhouse ☆ Hey! Hey! (2001) Audio Park [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:3FF3C771210FB9D42720087F5CF1586051AD051C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ John Beasley - MONK'estra Plays John Beasley (2020) Mack Avenue [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:DBF409E940B915B35FC94AC693440948B5DF5503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Jared Curtis - COLLIDE (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6F871D953CA427EBDE88F5013AFD79FF01D26B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Maktkamp - Caps Lock Woke Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AD5F63F7F5FD49C97F81BE7C819198B3466C72B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Guardian Singles - Feed Me To The Doves (2023) [FLAC 24/48|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:619523718E762EF440E296317A19CB8982FAC769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Magnus Rosen Band - It's Time to Rock the World Again (2023) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:A18F55F83589F4DA964F2F497B54A679D29E5277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Midnight Noon - Dark Side of Memories (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard
 ```bash
 magnet:?xt=urn:btih:A93CC2A4E3FE6E63C951B32826EB526BB2F3D185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DB243F46EC8D977B81FF5DF483EB0520F08D24A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [ТВ-1] [2023, T
 ```bash
 magnet:?xt=urn:btih:8FF48C8CBBE063838474B6DF9374D55AB350A255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98E836AC03ED08AFD6F630593BF9A6029826CF21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Senkaiden Houshin Engi | Soul Hunter | Охотник за душами [ТВ-1]
 ```bash
 magnet:?xt=urn:btih:8A87CB8BA49668AA9E30CA9CC5D12D0C881B749D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Sparks - The Girl Is Crying In Her Latte (2023) [FLAC|Lossless|image + .cue] <Ne
 ```bash
 magnet:?xt=urn:btih:DC87BF1B5E943540A63F401C1A0E948A93797D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0D7039C3FBE59E3E0AEF92BAAB8D4458355C078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:47998380D851D4D764C6772A9EA16CB94F0864F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48AC6B8A085D240D4EDA4BB3D1C2DB4689BB0FB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ VA - Музыка для машины Vol.21 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ```bash
 magnet:?xt=urn:btih:E4A8798138D3727D6A064F206FDEDD30FA97FEC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:617A085127A38B3796E250CE1DA5B2FE4F7739E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC1514AA90368C623541E2E6643D69CAEE99123D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E286156AA87D64CDE416E034BBF75BF88ED66FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A7F129128A5F445B21F919718670DD1B1E7042D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

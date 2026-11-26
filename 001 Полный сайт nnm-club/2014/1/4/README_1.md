@@ -27,8 +27,7 @@ VA - Sexy Trance #62 (2014) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:AE70E007812BF630329B06ED846E57DC5B06D9D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Melodic Rock: This One Goes To Eleven Vol.11 (2013) [MP3|320 кб/с]<Melod
 ```bash
 magnet:?xt=urn:btih:2042DA8A2FFD78EABBB0CFFF9413335A400186B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B45A54B86824849E6D093A68D93C16932C73DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Chick Corea - My Spanish Heart (2000) [FLAC|Lossless]<Fusion, Latin Jazz>
 ```bash
 magnet:?xt=urn:btih:CE49089875544A6BBD76D3F7EB236383997DF08A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78131C5B54B4384E56ACB7EC4BAAC0B9850C8545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18C7EE116516F9AD08E209E38CC3AE973AE148C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ States - Paradigm (LP) (2013) [FLAC|Lossless]<Indie Pop, Electropop, Alternative
 ```bash
 magnet:?xt=urn:btih:39817909E537DE250A799B613F63C77DD2970B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ Nina Simone - Nina Simone for Lovers (2005) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:685BD3E70889B80032184B338268A8A1F66A52F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39DB9F1F0FDA88AEB0468FDC5EFDBCAA345C0FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ Minami-ke / Сёстры Минами [ТВ-1] [2007, TV, 13 ep] DVDRip 480p Raw
 ```bash
 magnet:?xt=urn:btih:4AD076423D181370B3E23931CD70DE2E0F245CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ Minami-ke Okaeri / Сёстры Минами [ТВ-3] [2009, TV, 13 ep] DVDRip 7
 ```bash
 magnet:?xt=urn:btih:26D2A30C3555678D292DFBBCD31D2636281F3B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46920E37541E7F786544FFEABE63E700A4033CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CA50845EAB519DD078046B745158C8A9D47F66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ Minami-ke Okawari / Сёстры Минами [ТВ-2] [2008, TV, 13 ep] DVDRip 
 ```bash
 magnet:?xt=urn:btih:D7DB962EA62AA5E45487ACA410C5469578423682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C477716323CA65EA457D14DC246E76FC2F75E14F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ Solara - первый коммерческий атмосферный "спут�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ Picasa - бесплатная программа от Google для органи
 ```bash
 magnet:?xt=urn:btih:D0503AEA7C387FBDC9DF9A56E3499B1340AF464B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ David Arkenstone - Atlantis (2004) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:DF4E603E167396EEFD7DD09D96990FF0A59BC935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDE303701EF4B6FEB04852BC8BBE6086668B04F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0B1A13E172D67C0059873B69F81A2ED3D1BE0F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62099AE1249F07AFDDB46000F3988642DFE930F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +628,7 @@ Minami-ke [OVA 1-3] / Сёстры Минами [2009, OVA, 3 ep] DVDRip 720p Ra
 ```bash
 magnet:?xt=urn:btih:10C68A2EFB69754DCE02F09B0DB8C22AFC4B7FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ David Arkenstone - Caribbean Dreams (2004) [FLAC|Lossless]<New Age, Tropical>
 ```bash
 magnet:?xt=urn:btih:8B5496D327693E38F26BA5DB55AC145CA28B7A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +694,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:B5E8B5AD446E1DA6F29AA1AC0C2665CDF5F04BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +726,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C260ABF88D631B62F0369DAC145CA3EB4C3FAC29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ Shaka Ponk - The Geeks and the Jerkin' Socks (2011) [FLAC|Lossless]<Pop punk / F
 ```bash
 magnet:?xt=urn:btih:9A66D0CCDCEF6F27755A25A6999B6CEEE83AE81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

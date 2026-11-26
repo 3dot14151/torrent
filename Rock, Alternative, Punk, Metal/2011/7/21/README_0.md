@@ -28,8 +28,7 @@ Merging Flare - Reverence (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:C3F5A27E34E4D22C82C782D7ED9107311A2277A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Journey - 21 альбом (1975-2011) [MP3|320 kbps]<Hard Rock, Pop Rock, Progre
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Mott The Hoople - Golden Age Of Rock 'n' Roll(   Читать дальше...)Ж
 ```bash
 magnet:?xt=urn:btih:52E9B0E515E3262F027FCA245C8E291ABAD97D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Infornal Fuckъ - Клиника Валхалла (2011) [MP3|320 kbps]<Parody M
 ```bash
 magnet:?xt=urn:btih:523B92D9D39A97FE469FE47FF10D82493591B16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ CD 1: (00:37:37)
 ```bash
 magnet:?xt=urn:btih:1AB1F47797F296C0F1A76B1679848315920CDD0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

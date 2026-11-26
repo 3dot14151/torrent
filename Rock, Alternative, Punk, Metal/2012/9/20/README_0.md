@@ -28,8 +28,7 @@ Kobra And The Lotus - Kobra And The Lotus (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Between the Buried and Me - The Parallax II: Future Sequence (2012) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:CDBA5EBA3AC45D870A5E095CCFC10EE4AB90A35C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Animetal USA - 2 альбома (2011 - 2012) [FLAC|Lossless]<Heavy Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

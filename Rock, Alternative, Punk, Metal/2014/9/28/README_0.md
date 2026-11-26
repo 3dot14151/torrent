@@ -27,8 +27,7 @@ Repression Attack - Алтарь разрушения (2013) [MP3|320 кб/с]<H
 ```bash
 magnet:?xt=urn:btih:2F12793D36E7BDD55104AA51E0960CEC9A703A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A54BC08F1C4F12761FE2069A90F7972DC95514EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Fish - Fellini Days (2001) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D2EFEA0343CF7B825DB597DBF303DDAC4F789700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Sarah Summers - Lovely Little Things (2014) [MP3|320 кб/с]<Rock, Folk Rock>
 ```bash
 magnet:?xt=urn:btih:9647F989DB06DB399FC17CD9F5317599009A96EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Palace - The 7th Steel (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4C17AA3FAC5C74960D9C9472EC0B53F7DD8F5B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Vinila Von Bismark and The Lucky Dados - The Secret Carnival (2010) [MP3|~292 к
 ```bash
 magnet:?xt=urn:btih:FEDF9CF47DC4DCD5AD48844E71556C14EF93E984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Nachtmystium - The World We Left Behind (2014) [FLAC|Lossless]<Black Metal/Psych
 ```bash
 magnet:?xt=urn:btih:DC0F7042852340037B8872D15C9854020DC9C3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ John Mellencamp - Plain Spoken (2014) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:FE8A35772DC84685A89DBC468F49F6219206B3CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ Vinila Von Bismark - A Place With No Name (2014) [MP3|320 кб/с]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:6A331C388E48625856B619D732DC41D5EF65A653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ Gunfire - Age Of Supremacy (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:F0191EF9495181B754D9EB3A88827655363B7972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAEFBF056F7825C8EFA098B8C7F7F70C4DDB6903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +399,7 @@ THE JOURNEY - SUITE
 ```bash
 magnet:?xt=urn:btih:33C1A8500CF3A332841D66D151886BC6BA96884F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

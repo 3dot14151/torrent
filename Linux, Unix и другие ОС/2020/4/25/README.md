@@ -19,8 +19,7 @@ CAE Linux - операционная система для инженерног�
 ```bash
 magnet:?xt=urn:btih:5AEFDD627D5CE4C3B48FAB390955CD3786183F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

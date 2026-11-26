@@ -19,8 +19,7 @@ Playboy - легендарный журнал для мужчин, основа�
 ```bash
 magnet:?xt=urn:btih:2F1EF87975A35370ACBA1C52A0A7C4EAA8450C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5F604A20B491B34F5459F227123F4B1C7C7055E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ UPgrade – журнал о компьютерах и компьютерных �
 ```bash
 magnet:?xt=urn:btih:AC8A2657E04CD3ADF33C8D4BA7751EE23A5204C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

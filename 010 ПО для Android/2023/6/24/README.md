@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:32DC2DE2795BED842E384B7B7E92027277514DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Naplarm - Location Alarm / GPS Alarm v6.5.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7D0E8EFF1F71773D2FC27C8D2623791D26FA1AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:1C798EDE6A6C2988511E29C7E4CF166839AB7B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Smart Driver – удобный радар камер и ДПС, а так же 
 ```bash
 magnet:?xt=urn:btih:C7266E510641DD5D1AC8A0BAE3257AEBFF19939A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

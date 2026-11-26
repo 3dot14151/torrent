@@ -19,8 +19,7 @@ The Crew (2014) [Ru/Multi] (1.2.0.0/dlc) Repack dixen18 [Unlimited]
 ```bash
 magnet:?xt=urn:btih:B78F1DA81F41C63F40E536ABBD4B927AE7A28D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Christmas Fables 4: Nutcracker's Tale / Рождественские Басни 
 ```bash
 magnet:?xt=urn:btih:EF8FFDB065E1FD4EA2D4B547003C2657484DB18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ River City Girls (2019) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:016EB4A7FC60F4ED2C2D292ADC1859730B23A198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Escape the Backrooms (2022) [Ru/Multi] (1.2510) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CF60E38C88FD11E4C537E93A224C995207D8653F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SUFFOCATE (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C5B6904E04C5ED8B0765F6E3AFE56A0C9D163447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Scott Whiskers: the Search for the Golden Cat (2025) [Multi] (1.0.40) License GO
 ```bash
 magnet:?xt=urn:btih:ADFB0066CB3A70C7D6F39CF9D261CBBBFF3651F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.003.28253.87380/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:3F011B043B10D84FEAF92436D700AF0F64948D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.1.10242025.58358/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:0357E804A925C3C0AB542B38A90EB8395EEC1137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.2.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:626D3AB1D8D8CD6DE6D3B473DDC98479CB5D1CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (47139 build 20790748/d
 ```bash
 magnet:?xt=urn:btih:0828A20676989B80F1558802498A23BC977B4211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

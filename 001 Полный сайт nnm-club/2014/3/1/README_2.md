@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:44C478E77D3D717FF16FFFD10FDDD0CA29E5B13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D218127D7AB8EF5684107EE2B03A7A1A8DAA868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:619D46DC6A42D77BC3A6FD4ECD63463D001390F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Babylon A.D. - Babylon A.D. (1989) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:48DDC7829A87B4C36B078A2EDE155CAEE8C3070B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Vol.III
 ```bash
 magnet:?xt=urn:btih:6BA29EFB4C29E70FB6776573FEEB7022E2BF8D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2FFD3281819513AC869717E3E8B7DD352ABCA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2085A3723BC139F85E8DB76195FDF53F9330A96A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48D761B67113DF383070ECCD2DAC00B8666B1AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5AB1DD857BD82279B307CF65A059099C14C8E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ VA - Жажда Скорости. Spring Edition. (2014) [MP3|256 кб/с]<Dance
 ```bash
 magnet:?xt=urn:btih:C6ED533DED250EEF3AC031902FE8DF576121A4C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10082CCB8E7A0B33B629BB7AD3634F029CC8FE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2EAB7BE365E12CC10155FFE6C792B063B286120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Oomph! - GlaubeLiebeTod (2006) [FLAC|Lossless]<Industrial>
 ```bash
 magnet:?xt=urn:btih:0F39B3D36982C18BA053BB48CFF4A333710B0626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ LimBackup 1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:A6F087EBE07F6C01B3D9E061695C91E20755C5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BCA0B9DCF53BCB5075761C53581E9167E8F19CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ OutKast - ATLiens (1996) [FLAC|Lossless]<Rap, Hip Hop>
 ```bash
 magnet:?xt=urn:btih:CD01B01A11F151454AD9D2811F007C86FAE00C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Any Video Converter Ultimate - предоставляет пользовател
 ```bash
 magnet:?xt=urn:btih:7AD4F881CD246672200CDE4ACDD9E4694C8D4373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ Windows Hotfix Downloader - небольшая бесплатная утилит
 ```bash
 magnet:?xt=urn:btih:974A6A57E28CD258BDBA79280FC32B3BE14623A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Iron Savior - Rise Of The Hero (2014) Japanese Edition [MP3|320 кб/с]<Power M
 ```bash
 magnet:?xt=urn:btih:1688914DF9F21197EEFC187078A89D7E76710749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +580,7 @@ OutKast - Southernplayalisticadillacmuzik (1994) [FLAC|Lossless]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:05D198A5C1C5C5ABC5918E07A313444F01A65324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ GeoGebra позволяет напрямую вводить уравнения �
 ```bash
 magnet:?xt=urn:btih:B584306A188011EE4F91698F0CFD14D2679C6FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:0B61DDED28803B95003751F4A02A00543E96CEF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ FastStone Image Viewer - вьювер, редактор и конвертер г
 ```bash
 magnet:?xt=urn:btih:C68D5AEDB7598285CB468081174435FBEF91DC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:C1705B531397F37C5A8024D36305645C9DBB0FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ SlimBrowser - это быстрый и надежный веб-браузер с
 ```bash
 magnet:?xt=urn:btih:34B9F4190C1D9D36E1318A15A8C30D833A34761F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

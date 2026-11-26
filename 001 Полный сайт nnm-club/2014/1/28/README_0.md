@@ -24,8 +24,7 @@
 ```bash
 magnet:?xt=urn:btih:7260D862D6C1DC31C7A0B544AB05DB269E1D9B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ VA - Paul van Dyk VONYC Sessions Selection 2014-01 (2014) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:EF5B966E8CF106F82681CD31BA8220EA1809F169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ A Better Finder Rename умеет извлекать EXIF-данные о вре
 ```bash
 magnet:?xt=urn:btih:ABC2979AA0251AB7E946103CED695326E4BAABFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Anat Fort Trio - And If (2010) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:B9EF3F249118FE1C719D545710C93D7F2BCA377C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Nekrogoblikon - Stench (2011) [MP3|320 кб/с]<Folk / Melodic Death / Symphonic
 ```bash
 magnet:?xt=urn:btih:91D8F5BA82D255333035AE615F035FEDE419915E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBC79E93EC856852A0C677B81EE6E31B16AA2D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:7D0844980A4C645C7B203D945CCA90FC60F8CBA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E2DDC5A922DF4464D1FE3BE71922687BF221FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Rone - Parade (Remixes) - EP (2012) [FLAC|Lossless]<Techno>
 ```bash
 magnet:?xt=urn:btih:529F37EBCFAC8C366BD39B69B358F826AD767741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:683000DFC93688556F9BFE68C0371731E8ECA89F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E96B0B313FBF219ED7B702D0AE4B4C00E3BFF474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB0ACDB6022EBB69FA8B07916304C2AD6281AE68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BD61DAF5CF6ACBB4143C56AB8B966899D4FE7F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:484CBEA317C9D5BE81D2AF23FBA61E3603132872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ If Destiny Remains - Once Upon A Time (2013) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:B6B5FD32548C07368F508FB7F5A839EA44AEB72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:268128478B8FD46A2F34D7FB908F37A821C2B5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ VA - In the Mix - Best of Chillout & Lounge (2014) [MP3|256 кб/с]<Chillout, L
 ```bash
 magnet:?xt=urn:btih:F520C5247B5CA9410583D44D121C43796E63FB7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +517,7 @@ Illegal Substances - Tradition (2013) [FLAC|Lossless|WEB-DL]<Progressive / Psy T
 ```bash
 magnet:?xt=urn:btih:D2C2BAF350977C5B10E4CC07E0152BC7A525E00F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +551,7 @@ Various Artists - The TBM Sound! (2010) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:98F410D3DD4FC3C6DB6C0558537E51596CA47C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E510E3021714FD386B2A7F66688F867AA9E800A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7D93B3338748B2CA6191EBFB423C56135AEE69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D45A97187CE6F03779E64A9DF3292E06F0EAF95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ OmniOutliner Pro, равно как и другие Omni-приложения, �
 ```bash
 magnet:?xt=urn:btih:D3E4FED6F31082059066A969FF5399E0E1ED41EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +687,7 @@ Advanced Installer - это мощное и простое в использов
 ```bash
 magnet:?xt=urn:btih:9EA3050D10CA3CFE60DAE46E55132CE2DC5338EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54D58995F890CFDBA17F867865101310A0DB54AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +744,7 @@ Transatlantic - Kaleidoscope (2014) 2 CD Special Edition [MP3|320 кб/с]<Progr
 ```bash
 magnet:?xt=urn:btih:894E54DFE99D19AD08D9E34FC0FD6160ABB0269F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

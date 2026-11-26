@@ -19,8 +19,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:2B650319D9EA89208988DA7C1F4BCF5C23A40ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

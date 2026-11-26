@@ -21,8 +21,7 @@ Overlord - Fake Salvation (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:668EBBEF9F70CDCF32997098AF5A6E9F6F10D8FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Gorillaz - Cracker Island (2023) Deluxe Edition [FLAC 2.0|44.1/48/24|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:155B7630E2AD3F1F0CD1AE1F8A9F2D368357E1DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:134AE6B10D816E71981132BA096ECB5507493E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ HD Video Converter Factory Pro - удобный конвертер всех на
 ```bash
 magnet:?xt=urn:btih:B39449C409014EE937B13E5F5FAABC7DC7A09CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:617577C55D6EAB04E2F284C8CF9E8059FC93F024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ WirelessConnectionInfo (Portable) — утилита, которая Отобр�
 ```bash
 magnet:?xt=urn:btih:2EFC097C96D2B638EDDADB92553EBC35119F6F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:15F9B86FF7D0602394A3147E563858B1CD849A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ GiliSoft Video Converter Discovery Edition (Repack & Portable) - легкий, �
 ```bash
 magnet:?xt=urn:btih:674086E38A9BB4D227E9942DA178C588F5D4B1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:00398A089F84CB9791C9D4F57C709A06421EFA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47485846A1564850E94FC49B0CA3853982EB5D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:AA5BF698972F400373D43E5AA217871803E76404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ RAR - это консольное приложение, позволяющее �
 ```bash
 magnet:?xt=urn:btih:980229942DA8FF40DDA144FB2704C0D8573B8F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Vivaldi 5.7.2921.60 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:217BF51EFBE6B161540221CAC5A097F4A18B72A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Gorillaz - Cracker Island (2023) Deluxe Edition [MP3|320 Kbps] <Alternative-Rock
 ```bash
 magnet:?xt=urn:btih:C3041FA377B5E08FE21439B26FBD64476382F9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E002EF3248CE06C1F955B287C75CDECDB3281E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BD916E16D85A167737A5BC67403C1E6077E0389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ MusicBee — это одновременно простой, но серьёзн
 ```bash
 magnet:?xt=urn:btih:1B50C9F6D6743741A2A3118652CD28FD2F5674C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ Revo Uninstaller Pro 5.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5304F09CF568E988C37E8C438EC92788E9B9BD37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB549A199319715DA93439172362E52D923487E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE6D9C9283154C2A6BA6EFCA65FBEAE1B6A56F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ Otyken - Дискография (2018-2023) 7 релизов  [MP3|320 Kbps] <Et
 ```bash
 magnet:?xt=urn:btih:21FF610879D7B34F2CAF95B2B84AD0C56913D3B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:EEC186066CC72B84507694ECC6CD3DC75A0481EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D8D489C3C87A5768B93F86C020941AC6D30243C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09B5B931C304401FCA8DC940E44B470F7014E8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +633,7 @@ SOUND FORGE вот уже более 20 лет задает стандарты �
 ```bash
 magnet:?xt=urn:btih:25E0C443210CCD8FFBE57EA617CA576C035231E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:F85DC10D37FA263041ED8FB441F87153D9D8C736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

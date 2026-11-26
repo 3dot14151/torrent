@@ -21,8 +21,7 @@ Frappe Books - это бухгалтерское программное обес
 ```bash
 magnet:?xt=urn:btih:48B32EEE536BD6D37023F78CFA118BB7416E3BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

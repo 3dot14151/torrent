@@ -19,8 +19,7 @@ App Backup & Share Pro - премиум версия полнофункцион�
 ```bash
 magnet:?xt=urn:btih:DA618D4ED4FECC54FE420064223F1A65BE3D08AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

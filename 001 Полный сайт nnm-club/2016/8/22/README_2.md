@@ -18,8 +18,7 @@ XXXI Летние Олимпийские игры в Рио (Олимпиада-
 ```bash
 magnet:?xt=urn:btih:BEC4708DA56AD83398EA0D94023EF8CFD8CC4317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3AA5EEFA31A064530E407984E24C87A0D9C905D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Disco Дача. Лучшее (2016) [MP3|128-320 Kbps] <Pop, Disco, Dance>
 ```bash
 magnet:?xt=urn:btih:0BCF2D58807FD224A08151303C9A614BF5200440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ WiFi Signal - информативная утилита для монитори�
 ```bash
 magnet:?xt=urn:btih:89D736F09F0E62FF94AF108A22B6C0A0294C1CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D4CAEDF0140548FE0276CE1A55FB8E0B97EED80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Joe Satriani - Original Album Classic (1986 - 1998) 5CD Box set, 2008, Epic [FLA
 ```bash
 magnet:?xt=urn:btih:A1604A9717B7EACEF918DF96B62F7F8A44909548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94546FAA47DACD2FD4966219391967070A5BA789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ The Fixx — британская рок-группа из Лондона, иг�
 ```bash
 magnet:?xt=urn:btih:000F42C10A93D65621627D5892EA4B2E1990E30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) 1990, Polydor [F
 ```bash
 magnet:?xt=urn:btih:30278A4A5C4EA9C1C73628131A55989A13E14F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Wise Disk Cleaner 9.28.647 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:39C0CB28A1E9EABE707F84982C6EDCFF8849330D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Isao Tomita - Kosmos (1978) RCA Victor, 1991 [FLAC|Lossless|image + .cue] <Elect
 ```bash
 magnet:?xt=urn:btih:1352B5BC3E89E0EA34D0F7C531A01324AFC824E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8C869F5B7CC96A7C16E105E8EB7DBA5FBFAD025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F736020D57C8C158B20AC4F0EE736485540D4847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Jan Hammer - Escape From Television (1987) [FLAC|Lossless|image + .cue] <Downtem
 ```bash
 magnet:?xt=urn:btih:35FF72A889151E6EC4D5CD7CD3239B1F2BE6CA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:8BE52D7C49BAC70DC3848C098F24DFBC9FD712DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:223EBD91A4575A8D4F9DB6AF89C9AC9FED8F5889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F74F35EB826C01B2FFD63DC894D8C19FE9C86C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:BFF06B2D37E4EDAB2A06CE71081D5C8787CE0F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84C2393997F75882148F3A1DF630B30D52D2F3B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ VA - Авто Хит Зарубежный (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C9F8DE2EA13AE0C562B6C13E4329BAEC19A4741C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43B442D77592CED349B864C3CE1952FFC7EB9277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ XXXI Летние Олимпийские игры в Рио (Олимпиада-
 ```bash
 magnet:?xt=urn:btih:3971FFDA435A2D557A1B69C5531275C8C6CB2BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ XXXI Летние Олимпийские игры в Рио (Олимпиада-
 ```bash
 magnet:?xt=urn:btih:2A3DD159EA7F5D047F1D7BDA34AFC3DB3869FBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ XXXI Летние Олимпийские игры в Рио (Олимпиада-
 ```bash
 magnet:?xt=urn:btih:3B913FA01ABBC06D2108FFC92B47C1102DF21672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ XXXI Летние Олимпийские игры в Рио (Олимпиада-
 ```bash
 magnet:?xt=urn:btih:F1187269884A32F01BD0B5E618E93383B6D13D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ C.C.C.P. - Album & Compilation (1990, 1992) [MP3|320 Kbps] <Electronic, Industri
 ```bash
 magnet:?xt=urn:btih:5D370F2796EBC339972111CB9EC2AB3A86B000EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

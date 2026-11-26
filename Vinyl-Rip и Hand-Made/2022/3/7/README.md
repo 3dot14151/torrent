@@ -22,8 +22,7 @@ A1c Part 3(   Читать дальше...   )Жанр: Art Rock, Prog RockПр�
 ```bash
 magnet:?xt=urn:btih:C26097F61DDA28D9D630E168DF71A30EF284270B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

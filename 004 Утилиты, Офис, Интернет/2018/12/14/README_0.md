@@ -19,8 +19,7 @@ Audials Radiotracker является ведущим мировым рекорд
 ```bash
 magnet:?xt=urn:btih:AE977A5DEDF95E18E60E203914A96796BC232333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ```bash
 magnet:?xt=urn:btih:55715F9B3DE01D24C8322F5E50096E223DE12E01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

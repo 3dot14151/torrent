@@ -19,8 +19,7 @@ NTFS Permissions Auditor сканирует весь файловый серве
 ```bash
 magnet:?xt=urn:btih:051F3FB7C84BBB1421B47D962B1A80094EEC9844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AppControl — приложение, представляющее собой д�
 ```bash
 magnet:?xt=urn:btih:ACE78A05B9969E910E21103B4E4335462AB49E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:D4EBD58EE3DA7C57068964D9DE94F51A8C1C1A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Cisdem PDF Converter OCR — это программа, главная зада�
 ```bash
 magnet:?xt=urn:btih:C41B2918A02872B50C382208781987BA24203808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:3A075029A51A79D47C6F7806E89181A70C8D8457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:9C4D7B0FE77365274B7856BA3637BAF9CB0B08FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ WinScript — это мощный, простой в использовании 
 ```bash
 magnet:?xt=urn:btih:2EF8C7D8938A05DB7D683EF67C37EF8E5141672F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:50205FE72CCFA12B782FAEAECA9EF560B546EFBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB4798C6F438AB4BDA7035ED84897B7A34262887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ OBS Студия - бесплатное программное обеспече�
 ```bash
 magnet:?xt=urn:btih:026EDC28E55544B580F6F0A02389367304385C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:A719CAB55170B3B5EAAEB0E20ECBF478982A1973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EA05AE72C6FF8B5D15D9FE8BB75D51892F54808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71A96A8514907D81C66E0500D5EFB80E134AD0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 ```bash
 magnet:?xt=urn:btih:5F7251C23A75CE1687BB473878FC417B77158798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:505D97369E4DFAD0A73130F81D53EC2729BDA222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:76360A9D4DB45722A3BA2ED2F9B941C68EBFA65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

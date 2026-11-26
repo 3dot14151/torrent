@@ -19,8 +19,7 @@ Reflections of Life 11: Spindle of Fate (2022) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:E457E19B32AC6A6058621DC163EF182851FA2725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Christmas Massacre (2021) [En] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:AA8647DA6C9CF651AACF2E405316B321907AA3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kerbal Space Program - многожанровая игра, где вы созд
 ```bash
 magnet:?xt=urn:btih:D1DD64DCA5C5A29419ED1CAD75F6CA2449FAF5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

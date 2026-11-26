@@ -19,8 +19,7 @@ Android Reverse Tethering 3.19 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6B26264B7FE9CA7DB6BD2C1103757D9DB913A5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

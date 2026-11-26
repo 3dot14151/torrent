@@ -22,8 +22,7 @@ Epica - Aspiral (2025) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:34F249DAFB20CF5AA46379EC02389F386D917EE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ AkiaveL - InVictus (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:43B3DD83975464FB0EAE220FD2559EAADBA9A071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

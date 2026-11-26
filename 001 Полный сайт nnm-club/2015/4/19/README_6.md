@@ -18,8 +18,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:54298445D01F8E4C7495A9C574375A9A90AA03FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:234361B27299751CA92E3A21AA6A586792ED8C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D292D58BDE0A011E961D2F0A693D8B5EFCB34240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A332EE66A572F57C7294689B259A58A5683D54C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78E29141A93A6FC5A97BB7E932F0CE2715485C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ XviD4PSP - лучший по функциональности русскоязы
 ```bash
 magnet:?xt=urn:btih:E925CA4103DC0128FB38D653C2912B63CD40E60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Woolfe - The Red Hood Diaries (2015) [Ru/Multi] (2.1.2) Repack R.G. Catalyst [Vo
 ```bash
 magnet:?xt=urn:btih:D57C253DCE51B75ACDD1C35B2E4F13B40F6E9A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Command & Conquer: Generals Deluxe Edition v.1.1 (2015) [Multi] [OS X Native gam
 ```bash
 magnet:?xt=urn:btih:4910F807BEC5ADAF076E7DD2831B401848D5BDD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6236AEC3DF09DD8A1D1D6D50B7B8CD4CE2596621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Hitman Anthology (2000-2012) [Ru/En] Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:A5B84EE3028E87E16717C18C98A65C5A4A12B094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Tropico 5 (2014) [Ru/En] (1.09/9dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:F7A043C70F2C89AEAF39B35997E770C23AC90B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ X: Superbox Collection Edition (1999-2013) [Ru/En] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A4D23E2640DB0FFDBE1B9FD42F51ED1E2A34A9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:3952803D931817881325E271B0AC152C1204519F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ HACHETTE | Бисмарк: история, легенда и модель для
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ Life is Strange – эпизодическое приключение, собы�
 ```bash
 magnet:?xt=urn:btih:4890F828A79989DF18346A4F911C5F7078A56AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Black Desert (2014) [Ru/Multi] (327) 17.04.2015 License IMRastafari [Korean OBT]
 ```bash
 magnet:?xt=urn:btih:8DA2847B7DDD5A1C0819EE5C2133938BCD87CAED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Windows XP SP3 Pro VL Ximage 5.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:B96D6C823BA3CF71FAC815376A6A52F06E42EAC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

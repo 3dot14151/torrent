@@ -19,8 +19,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:312F2D7731F1D2A4F3951E3F74321DB916870AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

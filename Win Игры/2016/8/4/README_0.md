@@ -19,8 +19,7 @@ Diesel Guns — это олдскульная кар комбат игра, в �
 ```bash
 magnet:?xt=urn:btih:467E57272A91B59AC3EB2DEA9E2F3CB74EFEC3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Half dead - это мультиплеерная научно-фантастич�
 ```bash
 magnet:?xt=urn:btih:1447C3DB07BF77EA132E5CFE9BBAEDBD8B4883FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

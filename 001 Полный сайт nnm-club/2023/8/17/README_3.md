@@ -19,8 +19,7 @@ Airy — YouTube загрузчик. Если вам очень понравил
 ```bash
 magnet:?xt=urn:btih:6D64747DB13EFD1543AC9F19CB48952A4B195607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AF6890D1F62646DA83EFD5CCA675F3375D1748C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wondershare Filmora for Mac  12.4.2  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1A26EC0F9782F46911689A3F896E37159EC7FDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ KeePassXC — программа для управления паролями. �
 ```bash
 magnet:?xt=urn:btih:1D82FEF80712FDEACA4A26E9400ABD7BA2CC7D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:36B888F8914C7E1E178846EDAF039F039AE96D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ It Happened Here 2: Beacon of Truth / Это случилось здесь 2: С
 ```bash
 magnet:?xt=urn:btih:CA7266720CE967C8E2E11256F349CBDF5EE2CDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Beyond Compare – мощная и одна из лучших программ �
 ```bash
 magnet:?xt=urn:btih:2B46F5E1F4871C0C8E38EE0A5B44FBFA0D9D7C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:73BB171F78F62F9582A45E0DD562816DC77E9CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Ashampoo Photo Optimizer 9.4.7.36 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7139B78FB518454C275CDE6D8F4BDF90237B6A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Digimizer - это простой в использовании и гибкий 
 ```bash
 magnet:?xt=urn:btih:8E988991886F53C11A4A9E3ED431B10515E652D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D87050498F42C9801ABBF3221B0A922B7927983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Kaos Vortex - Seeds of Decay (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:5E892FA657A57638E159EC9EBC44B90E3E1A9E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Keep It 2.2.11 [Multi]
 ```bash
 magnet:?xt=urn:btih:6E82F2A202CA66587E50001156ADC7B2F618983E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Kairi - My Light, My Flesh (2011) [FLAC|Lossless|image + .cue] <Funeral Doom Met
 ```bash
 magnet:?xt=urn:btih:9DE45F4C284CA7F1BA00A2E65597E7BFABC03F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Softorino YouTube Converter — почти YouTube Red, только беспл�
 ```bash
 magnet:?xt=urn:btih:85C4BC03FF33FC1B71B39615BF15EA2FFF8436CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ CaptureGRID - это приложение для работы с цифровы�
 ```bash
 magnet:?xt=urn:btih:D7D472E73383A6C16D0B17CE64389E4ECB29876A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ Artstudio Pro 5.1.16 [En]
 ```bash
 magnet:?xt=urn:btih:E27D364507F0F2326D87DD39C17F8B504DEE1492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:EE334CA0097F552682ED80CADA6F97443EA0C92C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ Node Video - один из самых мощных видеоредакторо�
 ```bash
 magnet:?xt=urn:btih:7D8C40520D4E5FA8ED0DDD5365A9B42F530EE544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ Swinsian — простой аудио плеер с функцией управ
 ```bash
 magnet:?xt=urn:btih:11E00CC9631F3F14AEC7F530F8279256BF2C9801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ Phineas Newborn, Jr. - Back Home (1976) 1998, Original Jazz Classics [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:10803585708C876615938A8783DA97595BD7D80D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A32B642AC28962D01B179E8137C737ECA20E6BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5A3DE3B9285D038CB1CD23289B84FED11700DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D2678551C54A94DBB938B4822EF578FC5D8ADA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:002029622C5A878B11B65552201B43A78F41AF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4C1A9A08A264C42FDBE3DAA3A3E38D69BEE07A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

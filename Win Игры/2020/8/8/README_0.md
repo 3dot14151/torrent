@@ -19,8 +19,7 @@ Fast & Furious Crossroads (2020) [Ru/Multi] (1.0/dlс) Repack ElAmigos [Digital 
 ```bash
 magnet:?xt=urn:btih:AD32B2C3FA4E829770684F19D3B95FC7DDA51863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

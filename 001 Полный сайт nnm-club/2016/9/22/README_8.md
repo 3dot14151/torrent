@@ -18,8 +18,7 @@ Darkest Dungeon - это готическая ролевая игра с пош�
 ```bash
 magnet:?xt=urn:btih:0DEF967DFEC46CE566C7D2AE52615D1A0CC25052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Snappy Driver Installer (SDI) - портативная программа для
 ```bash
 magnet:?xt=urn:btih:8B88E38DFAB2BB4A2135486003F27A9A298DB826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

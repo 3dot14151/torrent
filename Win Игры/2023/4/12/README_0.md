@@ -19,8 +19,7 @@ Sherlock Holmes The Awakened (2023) [Multi] (10918242) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:007147F572BA05EB9CCFEEFA2A01CE0F1D90F94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

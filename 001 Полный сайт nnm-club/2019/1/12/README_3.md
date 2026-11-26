@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9B795A08BE784A83D74AE6FA406D568511FFDEAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB232F2759699DC50B420D9117E62E4805D4F302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:896A3A9D8076D24962F4C721F91DBF3EF1730AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9418DBC18B8AD4B86F7B31F151B10CEA3DA13266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Supermax - Greatest Hits (2012) [FLAC|Lossless] <Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:ED97532341B85CAF867273D369617AAF1694CB6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Anachronox (2001) [En] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:14934E84843336DBB315A278B8B14ABCBEDC1183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:108861C8C094929D972594BA1427226B5070B05A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) License CPY [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:419A4B1CAE8556C1E7062C425D1F0C6BF05C0B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F05BD4ADA8EB84B5DE9BF8231DA5B129F638ACF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Navicat Premium представляет собой очень мощный ин
 ```bash
 magnet:?xt=urn:btih:1A62BF166D50855FDD178A66DCF753CAB82DC412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Snap - The Power (2017) Remix [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:30E111E430B20C7CFF0F932F4491708B0F52B2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9850FA4BEA488AF36B013D265488026221E4B764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61F95091680C660282A4963E45E2762FE5DF2BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:C873E456A94551B6FA859ED8A01BBCC9426427C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3C8825AD67353F07CD8635118FBC8F386B7AA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD1CF56448B57F21735BCBA879B3D83CC20BD6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ VLC Media Player - представляет собой мощный медиац
 ```bash
 magnet:?xt=urn:btih:3B415B33596A325D63C6160F268FA91AF4FA90EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11D28B783E9762F0CC1163F84BE423C028F04E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ Tales of Vesperia (2019) [Ru/Multi] (1.0/dlc) License CODEX [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:DAA6373C52E9DFF4C8E56AD25710FAFF11739E1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ Hagane no Renkinjutsushi / Fullmetal Alchemist: Brotherhood / Стальной �
 ```bash
 magnet:?xt=urn:btih:EBF84C291E1935558E41F8477DE01FA4CF25456A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ Borderlands 2 (2013) [Ru] (1.8.4/dlc) Repack Other s [Game of the Year Edition]
 ```bash
 magnet:?xt=urn:btih:11844B8D002952EF44CD8C1D1067AAECA600C258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ History Channel. Военные ошибки / Military Blunders (1998-2000) SAT
 ```bash
 magnet:?xt=urn:btih:748525DBCCFDFE9FEB685F57CF5AB8E23BD009F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A58BAD5626CDB2AFDC4E20C819B7448149DDE213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

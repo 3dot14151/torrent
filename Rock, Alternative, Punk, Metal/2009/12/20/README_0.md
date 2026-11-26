@@ -19,8 +19,7 @@ Franz Ferdinand - 3 альбома (2004-2009) [MP3|320 kbps]<Indie Rock/Post-Pu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Metallica оказала большое влияние на развитие м�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

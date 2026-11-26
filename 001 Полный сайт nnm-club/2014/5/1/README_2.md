@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DE16A69F797541DED1536F842C9C737762BD0497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Recover Keys - программа, которая позволяет опред�
 ```bash
 magnet:?xt=urn:btih:B5ED3E6F7A10D4CBE7A5B28CC5A955BCA5E35BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AD79E039317FEF52705F41AC46006A05A3B54D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4841A1689953B8A7FD7C8A9033729445CA5C81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ tAKiDA - All Turns Red (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:70E185DDBC41619B83067EA0C69D629FCE7A1A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ New World Sound & Timmy Trumpet - The Buzz (2014) [MP3|320 кб/с]<Electro Hous
 ```bash
 magnet:?xt=urn:btih:084913771533350F1B0F896908362AEB45863EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Lily Allen - Sheezus (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:CA255945C9E9454A4A5B8F70707AC02EF549E000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Pixies - Indie Cindy (2014) [MP3|320 кб/с]<Indie Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:FFB1188780DE1C1A41DDD8739403AE28F1F94D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Shakira & Rihanna - Can't Remember To Forget You (Fedde Le Grand Remix) (2014) [
 ```bash
 magnet:?xt=urn:btih:3A1D48EA3F50650603389DF7645F68797BF5BBD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Exclusive DJ Pack (01.02.2014) [MP3|320 кб/с]<Dance, Nu Disco, House, Te
 ```bash
 magnet:?xt=urn:btih:122AF0BB4EF3A00FD89FBBFA16CF1B33EFC86134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3714F989953EC3364FDD50617C6BDAB461219D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:667AD27E264F7AD9ACB39BD7B279378A0F1750C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E29E66C5BD93918B0AB2F2DBA2217D782EDF544C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ DC. Полный доступ. Полёт «Стрелы» / DC All Access. Arro
 ```bash
 magnet:?xt=urn:btih:8B7DDCA2881273C521E1E8771EAB979F5A9261F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Damon Albarn - Everyday Robots (2014) Special Edition Bonus Tracks [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:3B322900F46C73FAE51470D11BCB2123DC137EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Bobina - Refuge (2014) [MP3|320 кб/с]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:C867133F6E28C3A5B3DBD07013FA7FE7250E586D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Wallpapers - Mixed HD Wallpapers Pack (30.04.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:788B82DC9568FBEE04FD9C9CD1721ACE073C4972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC2C125F853A272B65F99D1569B348EF9E684E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDBBEB2CE0FB0EFC4A0250C9817E9F7A4A64449C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ AIDA64 - эта утилита является мощным средством 
 ```bash
 magnet:?xt=urn:btih:0C6D6E00B9EA83F71EF1B113A0C62C3E21B17143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:460D9EA93406459F204FEE1FC8EF950370FF69E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ BBC. Ночное Небо. Посланник к Меркурию / The Sky at 
 ```bash
 magnet:?xt=urn:btih:C46BB255342FD566D0C0766688A5067A1843384F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:806EB5687C5F7BA642BE3AFADF2103BB03B55581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B53079C12B642CF0C0D0B9D152B178482F6EECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74364AC541A8414A57B39A07311BBD3592C1DCC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ Wallpapers - Лес [JPEG]
 ```bash
 magnet:?xt=urn:btih:E07359C1B6BFF75CA53164E86076B7FAEF4B3D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

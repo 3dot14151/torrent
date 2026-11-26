@@ -19,8 +19,7 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 ```bash
 magnet:?xt=urn:btih:2BD6843DFD5B644464A26F82FDE64CF9DE565B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AC9CF5459BBF867B8B59AF256A3E29D972FAA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

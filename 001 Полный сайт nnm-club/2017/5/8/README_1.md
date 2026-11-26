@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3775213F9E15C901514B313C1BD9C9B74AB73E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Beatport Top 100 Trance April (2017) [MP3|320 Kbps] <Trance, Progressive Tr
 ```bash
 magnet:?xt=urn:btih:80D50BD6586E0CB8FC6DD6E3F2C2ED3505D1D0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A99F9397719007D3258A1BC1A141E431FA24331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Jasta - The Lost Chapters (2017) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Metalc
 ```bash
 magnet:?xt=urn:btih:D01B712A5838003222A357F692037FF8E6428B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B45EEFE3FCAE6B55558DC0DBC7438166C065BCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Secret Sphere - Mistress Of The Shadowlight (1999) Japanese Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:E177A99C08A96F0FBC5B19B1E611E3FC18CD9DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 10 - Talladega. Гонка (2017
 ```bash
 magnet:?xt=urn:btih:C63957DF61549EDA1D759714015A21101BBF5738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:CD8B2A47050BABA485F67D8C05827D890ED6FA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2897C52280B846703938A10C2312C74DD63492C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ VidCoder 2.51 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:159A4B87843650283AA58916EB448625189D5E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A5970302A87E942B5C68F4F5BD9848A33DBAF31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ The Franklin Electric - Blue Ceilings (2017) [FLAC|Lossless|tracks + .cue] <Indi
 ```bash
 magnet:?xt=urn:btih:073C044A688EFA50C50AD09BDB747CC7B8EDCB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ VA - Весенний хит-парад Шансона. Часть № 7 (2017) 
 ```bash
 magnet:?xt=urn:btih:6AFDBCB5F44D265C1DD6DA01F0B6F01EB215A7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ VA - Goa Vol.63 (Compiled by Drukverdeler & DJ Bim) (2017) [MP3|320 Kbps] <Psy-T
 ```bash
 magnet:?xt=urn:btih:C8FA6B2E74F5C60DB23CDF1B0B406DF22EC97711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Recordam 1.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BE60A56832E8C38E7CC8916D1EB3AA5878C1F800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ VA - Русский шансон на любимой волне (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:CC1BB77224BB874EEB11DF03D30F4A3BEA0CEC30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:666361E71F0554D6B83F319492E69E4B6727D926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3196A5385A33D13C26E7E78AC8145806C0FEBC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FB3B76271F9C2A6BE5121FB99FA6740FF4F7CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61BC8AEFCB875E3596B4BDDE00243274EEEF4CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Valdi Sabev - Imagined Vol. 1 (2017) [MP3|320 Kbps] <Ambient, Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:A843B0CAC5CAFCC2D72928BB0E452214A20D4375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:225C32B50E2C33D380DD2F86FA3F4541DF87AD72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C0C2BF5BEF2CBBC54AC1E6A107E0646C2802751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB9A1826D9A8EAF180E5D9ABC738195984E27414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ VA - Dancefloor Sweetest Anthems (2017) [MP3|320 Kbps] <Twerk, Reggaeton, G Hous
 ```bash
 magnet:?xt=urn:btih:5BAD725B444E9492CF3B5F7C469A3C9D79CBC9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A61EE7285BFA256E8E288744401255527EAB985D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:28806F0389383D19E6F0EA73C44543CAC2289BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ AIDA64 (бывший Everest) - утилита является мощным с�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1DD7161439457A85CB420C93838506DE3C83325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ FileZilla - бесплатный FTP-клиент, предназначена д
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Antergos (ex. Cinnarch) 2013.05.12 (легкий дистрибутив) [i686 +
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ VA - Gothic Spirits pres. Dark Ladies 1-3 (2011-2012) [FLAC|Lossless]<Gothic / S
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Simone Dinnerstein & Tift Merritt - Night (Barnes & Noble Exclusive) (2013) [FLA
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ The Cover Girls - We Can't Go Wrong (1989) [FLAC|Lossless]<Pop, Freestyle>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Slayer - B-Sides & Rarities (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:56423514A839EC49C3AD65212E7538DF0D2B3874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ Emin - After the Thunder (2012) [AAC | 256 kbps] <Pop-Rock, Soft Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ VA - Шансон удовольствий 1-3 (3 CD) (2007-2008) [FLAC|Lossless
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96921B07F884A0670B2B20757D0B53EF67758770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +417,7 @@ Sweet Return (1997)Жанр: NewAge, Neoclassical
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ VA - Новинки Record. Лучшие Миксы (2013) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:77B119FC2BCEA23C708E7772F9FF69F15968A709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ Wallpapers - Обои истребители [JPEG]
 ```bash
 magnet:?xt=urn:btih:909A1DDFBDD67D17F0EDB682D77DFDDCA6DFCF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ Meshuggah — шведская метал-группа, играющая в на
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE8DA046F241B9590DEFD9E827434C2AF42E36D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +564,7 @@ Stephanie (de Monaco) - Видеография (1986) (Pop) SATRip
 ```bash
 magnet:?xt=urn:btih:5553537458CC7D74607994F3F097B60C660B14FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +591,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ System Explorer - диспетчер задач для Windows. Функцион
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8077F4EA896989FA22CE8221E77C70027BF30865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11DCC9D37B0BA4F09F0430F90E939EBB4DC67278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ Kaoma - Best (Disco Collection) (2002) [MP3|320 кб/с]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:79C5B36076040079D9C92B28FAE5095FE77DD475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

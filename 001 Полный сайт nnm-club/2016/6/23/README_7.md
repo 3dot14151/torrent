@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:B4FB731B49A79D2F5239B8FE8A0A3444BDE5177E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cy Touff - His Octet & Quintet (1955) 1998, Pacific Jazz Records[FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:1D6BD90434153DBE9A9C72EC119F8F75BEEF18BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:965A195A53EEA24846ADCDA82E9FB51E8D72494D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47AC5ABE4EC8FF6227677C7BE6A56A9D86C8ED63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D4CC2D132CB5FE0FC0EBF6AE0F867853AFCE560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Mind.Divided - Fragments (2013) Raumklang Music [FLAC|Lossless|WEB-DL|tracks] <I
 ```bash
 magnet:?xt=urn:btih:AAAC918FB72E5114A3E6D9BF91906E296680FC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ iA Writer — фон, шрифт и курсор
 ```bash
 magnet:?xt=urn:btih:65B39F1E9764126BD5654704443093FC34EC53A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - Vocal Trance Charts (2016) [MP3|232~277 кб/с] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:973C504FB6467F397B39BFDAD7EA83F620912663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Brother Jack McDuff & David Newman - Double Barrelled Soul (1967) Remaster, 2012
 ```bash
 magnet:?xt=urn:btih:162CA29223EB800226F2C4390AEDCD2DB528DA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:3A00907D19B763E82B1789FE34B16DFE0D357FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Mind.Divided - Hello Starlight (2016) CRL Studios [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:A3D721996176FBC0DCDB5EBBC9EEDB23EB17470B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:5FB54E0BD61458782ADEF8CC7DAE33911F9E457F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ VA - Dream Music for Deep Sleep (2016) [MP3|320 кб/с] <Downtempo, Chillout, A
 ```bash
 magnet:?xt=urn:btih:310628CD86826D84A89D3CBB33DBF08CA634D240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ VA - Warehouse Anthems Trance Vol.13 (2016) [MP3|320 кб/с] <Trance, Uplifting
 ```bash
 magnet:?xt=urn:btih:80EC1FD51F1CA41084133E7D67EF3237FAD261D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Icecream Slideshow Maker 1.61 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BE7C47D26F079E03666CAA6C257AA65704539E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11FB6492301AB44C43BBF5F33EA19B6C85AFCA25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ VA - Premium Electro Lights: Electro House Mix (2016) [MP3|320 кб/с] <Electro
 ```bash
 magnet:?xt=urn:btih:AFBDC527551C76C786169B1BD37EF85C28C9E126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Halftribe - Luxia (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording
 ```bash
 magnet:?xt=urn:btih:5B44D78E224EC4885AC97A8E5E3B1A695477B117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:983C86D4094443355BC2157294C64F708316B1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ Forelock & Arawak - Zero (2015) [FLAC|Lossless|tracks] <Reggae>
 ```bash
 magnet:?xt=urn:btih:A9D8D7E89B59D770510BECA97D87A35BFDB2CE1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ GusGus vs. T-World - GusGus vs. T-World (2000) [FLAC|Lossless|tracks+.cue] <Tech
 ```bash
 magnet:?xt=urn:btih:543D398206F866202925DDB2F6D6E01A55E4453B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ VA - π - Music for the Motion Picture (1998) [FLAC|Lossless|tracks+.cue] <IDM, 
 ```bash
 magnet:?xt=urn:btih:14932BCB044A506DCAD73566D9B41AB9C6ABE339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Public Service Broadcasting - The Race For Space / Remixes (2016) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:8AE5284E37FF828907D8ECD57DC9A467547E393D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Jim O'Keeffe - Riverfolk (2013) [FLAC|Lossless]<Blues, Classic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51A9D77510A52CE0D30FF0C2B2FD84A76C00A0D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - 25 Years of Global House Vol. 3 (2013) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:A34782FE918E9E59533DAD2DF6D2891547469A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Clubland Beach: Cool Curacao (2013) [MP3|320 кб/с]<Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:FDF8BE949D20CAEE2E71643799E1824A170AEC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A61FA1350DC8BCCC8E5266249A3B5641A3EA9AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5E5B0B26CBD310B0F5A0CDD9561FCC2804F6EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1D3F1F1030494D198A64EAA36616FF46DEB50E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ VA - 538 Ibiza 2013 Top 50 (2013) [MP3|~245 кб/с (V0)]<House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:48F39843B0D9E5D4EBE96876BE1ECBE338B961FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:856137BC6445CBF71C9ABE73C8D62DE9EDCF5E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ VA - Клубные Новинки Vol.294 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:73E26C6A68817493B323C6EB6224DF2ADE5AB2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AACBF35F4B0F993AA9410BE958E2507C22DCF0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E72FACC9009E3FF2644057E1CD4F0F134601A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ Mastercastle - On Fire (2013) [MP3|320 кб/с]<Power Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:4A589E59AC833157E80A1F830DE87B69960C6F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ VA - Клубные Новинки Vol.295 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:5C02723941552D628A07598626CB87319734B70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA5C4936FF8DA14D4A82250A590464F52D056E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ED44C2DEF1BE7BFD67C4E26D28F68788B801752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C908769AE64AFA25D3A54BF0CC5DA69E54E7208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F5AA008E1A3293F59E8488108E546275D16E9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +556,7 @@ Love Story 3: The Way Home (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F3A21E3391684861B43CD5960A8FF1D92010B47C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B130E9D6C34F3CB20234397F044527085BF087DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ John O'Callaghan feat. Ria - I’ll Follow (2013) (SUBC051) [FLAC|Lossless|WEB]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ NG: Кладоискатели. Серия №8. У истоков США / Digg
 ```bash
 magnet:?xt=urn:btih:67A3FC6436B827FD49FD328CA3DA10F66C259C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ Dominik Von Francois - Tears Of Infinity (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:939DD8F2AE8FBABDFA0A72FB6E962FE6A3719ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A4401DAB6AC71878DFB9CF55AD09383AC6262FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +724,7 @@ Ellie Lawson - A Hundred Ways (2012) [FLAC|Lossless]<Trance,Progressive House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

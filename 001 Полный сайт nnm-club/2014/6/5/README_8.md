@@ -28,8 +28,7 @@ VA - Клубные Новинки Vol.402 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:2E92E85C064017A8C84AB97F50771962EFE7E937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Клубные Новинки Vol.403 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:8B92B590026B084C14CAFE17F1AB81F89310D893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Клубные Новинки Vol.401 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:42D84861F1CD0C064BDF43BC1FDB3C56B8C57CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Клубные Новинки Vol.405 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:7A3D841271FEB08D1460AD443CDCD9B6CC8CF677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - Клубные Новинки Vol.406 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:5335ABAC88E58A420249F8E0E1D28C2D05ED8053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38F578C98B96D63D106AE83E084218710EB8A2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Armaggedon - Armaggedon (1970) [MP3|320 кб/с]<Hard Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:26F8602F68E076D78D4F0E6704D8B484F4B1A4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ VA - Клубные Новинки Vol.404 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:C44348558AB300ABC3EFE7C4828D6D3326315238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ VA - Q-Dance Hardstyle Top 40 May (2014) [MP3|320 кб/с]<Hardstyle>
 ```bash
 magnet:?xt=urn:btih:41EDEA11867410D3F562A7C3D500177412779D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +314,7 @@ A Better Finder Rename умеет извлекать EXIF-данные о вре
 ```bash
 magnet:?xt=urn:btih:25390869B9548ED4FECBE9F069155E36EFD9BCBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ Susan Allen, Roman Stolyar, Sergey Belichenko - Trialog (2006) [FLAC|Lossless]<A
 ```bash
 magnet:?xt=urn:btih:B1AACCEF1443ED4364252F69EDD3B5100EB101D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ Armageddon Rev 16:16 - Sundown on Humanity (2014) [WavPack|Lossless]<Progressive
 ```bash
 magnet:?xt=urn:btih:EAB18126C1021158B51AC2F5ACDCD5395B23F49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +409,7 @@ Night Sun - Mournin' (1971) [MP3|320 кб/с]<Hard Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F9531A9D3930E23D5D0E5B83305C20DF4A51F12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA526B93A086238AA2F85CB91B1585FC35E66075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +459,7 @@ Solar Fields - Cluster (2013) [FLAC|Lossless|WEB-DL]<Ambient, Psybient>
 ```bash
 magnet:?xt=urn:btih:E90638CE879A5A26E191F8FCB55C0C2BFE8618E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +493,7 @@ Osyron - Harbinger (2013) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:0156F0310BD75CB521E65A3687391BFDDEE17243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +527,7 @@ VA - House Music Pause Vol 18 (2014) [MP3|320 кб/с]<House, Deep House, Progre
 ```bash
 magnet:?xt=urn:btih:9C0B9637E7EC88EA1F2A951A144352C39BB9E68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47FC484DF3A514FA943F0BDD785D31A7DE9043F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +581,7 @@ Northcape - Red Panda Remixed (2008) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Ambi
 ```bash
 magnet:?xt=urn:btih:45C35345ED0A0E46CB7EAFA4C2DAA0E3F103B4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:343B415B9588763DF843446949010D3CAB4EEE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4377DF48F0F9468AB23A7EC0CCF556F5461EE690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ VA - Зарубежные Новинки Vol.163 от AGR (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:79EF46839C39C8D427560067AC8E88D3AAEB8885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98DD58F7C3317D2953EBCFA47BC33F17D49D6773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +725,7 @@ Airborn - Dark Future Rising (2014) [WavPack|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:E7F7D00980F01B4BE0F27A0D37446384B9B54591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +754,7 @@ Val Starr & The Blues Rocket - Blues Away (2014) [MP3|320 кб/с]<Blues, Blues 
 ```bash
 magnet:?xt=urn:btih:134593775374D2315A92F02AC195B9C8B2D981BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +779,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

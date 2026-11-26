@@ -24,8 +24,7 @@ Shining - 8 1/2 - Feberdrommar I Vaket Tillstand (2013) [MP3|320 кб/с]<Black 
 ```bash
 magnet:?xt=urn:btih:35B1C0E48017F11C8DD9E0F01B9D2B48743BCF73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Kick - Memoirs (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F35C626F5A6FAE2C6B3B412A9CE84E14F3A761F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Reckless Love - Spirit (2013) [FLAC|Lossless]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:6EFF888F087F4FC3B01A52AE83AC050BFC9F341D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Oh, Sleeper - 5 альбомов (2006 - 2013) [MP3|320 кб/с]<Christian metal
 ```bash
 magnet:?xt=urn:btih:2736EADD3474199EA865DD5DF1A93DF2BDDE8EB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ ZZ Top - Tejas (1976) SHM-CD /2013, Warner Music/ [FLAC|Lossless]<Blues Rock, Ha
 ```bash
 magnet:?xt=urn:btih:F9983EAB343EF899079E5B0988651186460888CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ UFO - Lights Out (1977) /1989, TOSHIBA-EMI/ [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4C56BC98AEE205B80987AC5EBA994B360CA45D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Peter Gabriel - And I'll Scratch Yours (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:9A50EB1347B8F6A530DADC50B2E58CBC3E5E9943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ David Bowie - Greatest Platinum Collection 3CD (2005) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:42ABB2FF932A97BF5EF89E77E41FEC0869BD8A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:89EFAFC0FDA225D3F1631D9679FBF02807ECECBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B643DDA4927E820E096BE8797171C367A93D30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0242ADC0754E285F5AF9E567A1D086EA5BC3D7ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0B45DCF4F9A238A73E27F68A10BD160C9C4D057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C6B9FFB81B9D986B1A5A3AC23AED9DDEE0110F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Starbound (2013) [En] (Beta 4) Repack R.G.Games
 ```bash
 magnet:?xt=urn:btih:EBDD44D3BAA5D49DE25A78809D5440E01D3F9AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ SparkyLinux 3.2 Ultra (Легкий дистрибутив) [i486, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:6898005FD90146A8414058F105183BE3C7BED9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Music Collector - это мощный каталогизатор, с помощ�
 ```bash
 magnet:?xt=urn:btih:61CFB49441457B6BCC5425E62C999AA6E4A71D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E12F625EDA2A748D0CE824791F26C3E46E15FD60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Snapheal предлагает мощные (но простые в исполь�
 ```bash
 magnet:?xt=urn:btih:74A263E568C39A76ECB8868579DDEE75B4CEAF94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7977695F79B5BF0BDB400971EF50FA85E4FEFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCF4801CE665670E4D474D18D597146081DA8F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DD3CB8849DE59F76D956EFEA67EA71ABCD59B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86F2AADC0E9F48B16F2B3D04A375749DE4ACAC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FF2CD5FD8441C0721F572E0C72DADE734D6C0BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Animal Planet: Большие и страшные / Biggest and Baddest (2012) H
 ```bash
 magnet:?xt=urn:btih:DA7A43D872FA31F93B86B6D0DC010A630DE8D6E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ HWiNFO32/64 - программа, выдающая подробнейшую ин
 ```bash
 magnet:?xt=urn:btih:AA65C0285388EAD01740619EF3590ED391FE0DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Auto PowerOFF 5.5 [Ru] (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:82EA58DC3FB3A6BD76C95205C93D157D780B08BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Angry Birds 4.0.0 (2013) [En] [App Store]
 ```bash
 magnet:?xt=urn:btih:4946A69D5128220D9836B691EE9B28CB4B2EE4BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:21DC24628EB7E1038CDB092767B99AF3CA643330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CC75A27E608E6670BFA7D5C49CEFF68B3904B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ Live Interior 3D Pro – это лучшая программа для подб�
 ```bash
 magnet:?xt=urn:btih:4C990F2DC732B8205FF2EAD436F5E5324D442024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ IsoBuster - программа, с помощью которой можно по
 ```bash
 magnet:?xt=urn:btih:10C0D9F2ECDB72BB9017CF3AD5ECB64CCD8A25D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ VA - Новогодняя Дискотека 2014 (2013) [MP3|256 кб/с]<Pop, 
 ```bash
 magnet:?xt=urn:btih:9DCA8CE4B1519C340254FBD8C4B7AB3835C7DFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Spelunky (от англ. to spelunk — исследовать пещеры) —
 ```bash
 magnet:?xt=urn:btih:2B71DF808E24AAB014A14EA3C0363D61429EEB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16EA3E1DD8E5F8E8C7B5DC10AA5C084BBC111A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:204D3D03B5FF943E076135A80E8B4B5C4DF50308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACA31896576A0B7065078859FC67BB4E3D9ED75E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

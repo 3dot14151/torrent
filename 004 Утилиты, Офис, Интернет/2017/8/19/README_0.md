@@ -20,8 +20,7 @@ Industrial HiVision – программный пакет для комплек�
 ```bash
 magnet:?xt=urn:btih:EE0D676EE96200BB1938963668BCB86FD29F2BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Free Studio Manager - это единый пакет бесплатных про
 ```bash
 magnet:?xt=urn:btih:9AB34F258FCCC0974471386716C46332DD18D0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

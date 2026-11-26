@@ -23,8 +23,7 @@ A3. Когда, когда (В.Добрынин - Л.Дербенев) 3:45(   �
 ```bash
 magnet:?xt=urn:btih:668C98434947B2A5DC2ED4294112F3D0D13A1CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

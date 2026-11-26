@@ -20,8 +20,7 @@ CURSE — является игрой-ужасом, которая бросае�
 ```bash
 magnet:?xt=urn:btih:422A0BCFA4797C7FBB06639141CD0C1475F1914F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ CURSE — является игрой-ужасом, которая бросае�
 ```bash
 magnet:?xt=urn:btih:1BF4C94BD626E511E8258FAA0C954C0CEABBB99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

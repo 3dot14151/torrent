@@ -19,8 +19,7 @@ Elven Legend 5: The Fateful Tournament / Эльфийская легенда 5: 
 ```bash
 magnet:?xt=urn:btih:B5CF4BEC7DD2FE71AEF7976B38D481A8B0EC0ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Alpha Prime (2007) [En] (1.01) License RELOADED
 ```bash
 magnet:?xt=urn:btih:0CE199D2B9EADE6910CAFEC95D6E0B876C289A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Ministry - From Beer To Eternity (2013) [FLAC|Lossless]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:2E937B09A3ABE506BC2EEFB355068534C06C60A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Anathema - Universal (2013) Live [MP3|320 кб/с]<Atmospheric Rock>
 ```bash
 magnet:?xt=urn:btih:64EC7871EE7A6C967FF85F5119F2538B4E95C92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Dream Theater - Dream Theater (2013) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:D2263E7D975591D179CA9F3651566255028A34F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Chris Norman - There And Back (2013) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:E71B9CEBD56D7E22888323D5C424056BD441F2F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

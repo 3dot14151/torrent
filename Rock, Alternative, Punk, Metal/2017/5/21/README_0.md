@@ -22,8 +22,7 @@ The Deep - Psychedelic Moods (1966) Reissue, 2004, Radioactive [MP3|320 Kbps] <G
 ```bash
 magnet:?xt=urn:btih:2D5A544804C78D557C3ED7D50289F00CE3995B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Titanic - Eagle Rock (1973) Reissue, 2000, Repertoire Records [MP3|320 Kbps] <Ro
 ```bash
 magnet:?xt=urn:btih:B661231F124945FFB5AE1A0877BCEC0BCA7001A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Michael Ernst (with Alan Parsons & Chris Thompson) - Excalibur (2003) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:029B701458510691F05C6CF6FED050581ADD46DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rainbow - Catch The Rainbow: The Anthology (2003) 2CD, Compilation, Remastered [
 ```bash
 magnet:?xt=urn:btih:AC87AA52DEDAD41E09B2C001596D18A5124F856B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

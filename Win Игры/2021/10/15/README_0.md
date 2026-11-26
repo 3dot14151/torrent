@@ -19,8 +19,7 @@ Aeon Must Die! (2021) [Ru/Multi] (1.14) License CODEX
 ```bash
 magnet:?xt=urn:btih:4781AD278867E1C03D522EAAE298D1F115B40246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeon Encounters (2021) [Multi] (7222979) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:60D6DF891A1C5555ED40F1313FCF4C54AD810CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.0.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B134BA3E46A31963EFEFCF925CF02B59FAADB689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lumione - игра в сеттинге океанических глубин, п
 ```bash
 magnet:?xt=urn:btih:37A587964EA04BB4E4D2F1436B06ECD5985E67E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

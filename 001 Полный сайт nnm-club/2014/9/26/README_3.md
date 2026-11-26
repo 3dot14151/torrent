@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A8A02F7ACFEAB112837A07D5D3DBF27A28C1C197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ FlashFXP - FTP клиент, поддерживающий любые типы с
 ```bash
 magnet:?xt=urn:btih:CCB7529ECCCF45AAC849B86281D8E47EDF5C68D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VideoBlocks - Broadcaster [AEP]
 ```bash
 magnet:?xt=urn:btih:BD4DDD39CB8D7B3F4BF7A0F26CB1F6950A32F917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C54CA14883252B10F51D21E03C6BF7F9CF5C962F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2CC640869E94B62F0AD9C5A51DAC6A55D42BB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:38B0BF494E0A690AD303C5EE962DBB37BB64A360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Epic Privacy Browser обеспечивает защиту личных данн
 ```bash
 magnet:?xt=urn:btih:35A2B41F035957C9AF208638210B28EA3D8FC2D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBA4CD7A4631B0E6FBFCFA3C4D82A11F307B7909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F26CCBDC2E450501536A31A363BD8746077BA4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ BombSquad v1.4.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:34FFC5208CB01AA624D3FA5E211851A9FE954CDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE46AD1499FBEABFA67BF1593864EC0EAA05A2DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ ACDSee 18.0 Build 225 [En]
 ```bash
 magnet:?xt=urn:btih:EAC926EECB38918D53DB343E08C73BF9088BA081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10B480B000BFE852F7D3D850E61B89947F148600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ Piriform CCleaner Professional Plus - подборка программ от Pir
 ```bash
 magnet:?xt=urn:btih:4569FEDC00A86C294D32D83C232CC2377F3964D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Opera 24.0.1558.64 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B17482DAAB9D71B0F85A28988E778473F4B35450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ itDJ 1.0.7a [En]
 ```bash
 magnet:?xt=urn:btih:53CB5731F3B52B6B87B33B32099ADF6BAD60F419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Opera 24.0.1558.64 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:098A5B9BD3FE03759A05746982AB886698641AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ VideoHive - Robotic Revealer [AEP]
 ```bash
 magnet:?xt=urn:btih:FD692F9F45A7FA76AC993CB0742B43A4F3706B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ VA - My Favourite Hits of 1988 (13CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth
 ```bash
 magnet:?xt=urn:btih:430CBD7C3E48A8F7445AF677D082242772BC175D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ Maxthon для Windows использует уникальный двухдви�
 ```bash
 magnet:?xt=urn:btih:CB9B09075A46E3B4AAC9816FFFB3376991B12275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DC6AA743BFE69F05047A977DE4170901BC12CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE19006450A6B513EEE09A8E6D7562C8A633A8B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1744AF5B511A90FB2282B83E17CE271211A2CFD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDB8631F70E285680EC6CD6EBD30C11983061E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ Cyberfox — это достаточно известный и востребо�
 ```bash
 magnet:?xt=urn:btih:E748E66E4804C3BDC2D775D57BF27B2968DB84E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

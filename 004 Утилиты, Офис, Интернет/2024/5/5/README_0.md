@@ -19,8 +19,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:84A479EB86E4D3AAA6C2F3F7306D2AF57BE55AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Delete.On.Reboot - небольшая и эффективная бесплатн
 ```bash
 magnet:?xt=urn:btih:72C72ADF4B323F718D02ED024DE138DE0DB34427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Snooper - программа-шпион по-тихому пишет все зв
 ```bash
 magnet:?xt=urn:btih:0E9990F4823AF1E4F69AD5707CC944A544D7A2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ FrostWire - это мощный и простой в использовании 
 ```bash
 magnet:?xt=urn:btih:40002EFC5B6A89566312A21B4C95719B345E22C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

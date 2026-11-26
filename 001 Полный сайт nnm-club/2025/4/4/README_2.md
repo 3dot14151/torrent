@@ -18,8 +18,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.410/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:F361ECB75356CC6A965E95580AAAACE5E8EF1986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:342DF7842F34A4CA72D93380B2E7D918FBF07EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C3BBA4B5195AF147DAA36AD893B8FE29B202D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D1B54CCF4C26B2414F4BAB525E00638A0395DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E67B53077E021304540A9B3084CED788C09C9417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Orcs Must Die! Deathtrap - это безумные бои от третьего 
 ```bash
 magnet:?xt=urn:btih:53D1EF0507BB7EBA4FB6B358D534648BF5A8CD56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ My Friend Pedro - это жестокая смесь дружбы, фантаз�
 ```bash
 magnet:?xt=urn:btih:8A86EA61E4F29FDCD8799C367DEF86DE848A855C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E7B65EEEDCEDBD82A88D73771852D3B7FBB9CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8DADB724EE63698658E1D5A7257A300667B47AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B626C6642F4C66F0A693CA81AD1FD581D4AAC172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:813AFBFC49DCC3FD6AA076B9D3AB5761154E9903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09D4C8798B36DA85E079FA6522CDB027A2AC21A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:19766B7EAFE7CA193E7C1044FF4607C3E0731A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ VA - 80s Best Disco (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, R&B, Soul
 ```bash
 magnet:?xt=urn:btih:CC7B9DED93FB226C83EB9AE7EB6ADB194CDA299E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70443C7688FFB8F9ED74577908328B9C6CB6828D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Scene Rune
 ```bash
 magnet:?xt=urn:btih:15AF6F85989579535D2AD63C14F002C3EEFA627E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:514D613C2E955B050723508EDF81C2F91B0A5331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ FreeCommander XE - это довольно-таки удобный в работ
 ```bash
 magnet:?xt=urn:btih:26B844E83B2ED5B84A9868D49B7E7ADC0633C14E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ Paleo Pines (2023) [Ru/Multi] (1.5.22/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DDF670C5CEF241742043CD2534F83F51AEBC5E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +553,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:7E73F37A14B0D8F9D67825298C646356288A3D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ Forever 89 - Topos 1.0.0 VST 3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:40559DCDA00CB3B328C92AEDD02A0D00CBB410C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +603,7 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:E5DEF06BF7228118A6865B330D6045B689238372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C4568349B972DE8F09ACC929DE4E8D8CD728BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14966750B124CEBCA6136C698F91BE3693C6B76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ VA - Sex Room. The Sextape Vol. 1 (2012) [MP3|128 кб/с]<RnB, Rap, Pop>
 ```bash
 magnet:?xt=urn:btih:60DAF4AABFF08413A6D0B34ADF706CEE0AD3D1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ FAR Manager – мощнейший известный всем консольн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ VA - ТОП 100 Радио Эпизод (2011) [MP3|256 kbps]<Pop,Rock>
 ```bash
 magnet:?xt=urn:btih:0391B04C58E050B8EBFB865E26CD8D550504F19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ Filo & Peri - Big Room Podcast February 2012 (13-02-2012) [MP3|320 кб/с]<Elec
 ```bash
 magnet:?xt=urn:btih:98C0E7546BEF96289DC60599ECDDB749F2829B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:368E140DF61AC465BB7BA1B366AC8DAA76B6D2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ CD-1 Unplugged:
 ```bash
 magnet:?xt=urn:btih:4EABFD61544A40EE65C2C34DFF74AC25A9DE082E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ Hard Rock Sofa - February 2012 Podcast (18-02-2012) [MP3|320 кб/с]<Electro Ho
 ```bash
 magnet:?xt=urn:btih:434CECCDA5D150FAFFD0661F739A946373184539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Southell (Италия) - Alcohol Fueled, Weed Inspired (2011) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:E39BBA26B64823453E049AACA06C782896EAD6BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ Fox Stone - Deep EP (2011) [MP3|320 кб/с]<Dubstep, Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:95E9515ED2FABDF588C1D6716540A97F22F90DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ November's Flame - На Обочине Больного Мира (ЕР) (2012) [
 ```bash
 magnet:?xt=urn:btih:29FE15E1DD9E417875218DB2ADED1CE08AA6A9F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ Matisse & Sadko - February 2012 Promo mix (22-02-2012) (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:074EC89B22C36A22AE38945528761420684E35A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9A113356DDC1934E29E0BE41908D92656D69EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E8CA4168605FC5A4D1FCA8332DF9429B8BEEE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ VueScan - программа для работы со сканерами. Мож
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ David Christoph - Enable Soul (2012) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:92F2417C0AD558916DB04964615A6F02A4D8C655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ Xandria - Neverworld's End (2012) [MP3|192 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:F11DCD9058ACE5ABDA05F68F207C8EB6A8DF7F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE0E57DF71CF4266CC6158D9795E04E23A406D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9ADCB8F9D177B9E1516F62FD80226FF4AE029C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ Avalon - Children of the World (2006) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:54F827D4C86CB830BC24531F7497A8D109E6E968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ VA - Струны блатного радио (2012) [MP3|256 кб/с]<Шанс�
 ```bash
 magnet:?xt=urn:btih:9ADFB79B2F5F5CB57034F47A9174F1BBDDB12DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ Ecobot III - робот, работающий на отходах жизнеде
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32451E26123F4D8C70864347D8A447E1000B1024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Scars from a Dead Room - Scars from a Dead Room (2014) [MP3|320 кб/с]<Post Bl
 ```bash
 magnet:?xt=urn:btih:2D2B200AD17C7BDF7234F112CE01CAC34718C62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Zero Hour - Specs Of Pictures Burnt Beyond (2006) [APE|Lossless]<Progressive Met
 ```bash
 magnet:?xt=urn:btih:2491F5A3239FB2869359791915E1E98F45E41872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41E2DE5B85924E1025059712C8BC9A2E614C0BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Zero Hour - Dark Deceiver (2008) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:DD8BFABF0E7ADD29FE99150A92317B0A2185B72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Zero Hour - Metamorphosis (2003) [APE|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:05C2AA75FD91C4AA800CCA9E539651119F4EC8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Zero Hour - The Towers Of Avarice (2001) [APE|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E5C3BB741EA3D71A60458ED3F3999F52B22A907E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ Zillion - Zillion (2004) Japan [FLAC|Lossless]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:559E17F9E8A9E49EABFCE837BF863414E9BC53FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Tantrum Desire & Laura Bayston - Underground / Genesis (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:BB3AAEA11A4E28DAD1B2E356FE9F6CF774BA495F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ Zimmers Hole - Bound By Fire (1997) [FLAC|Lossless]<Parodic Metal / Speed Metal 
 ```bash
 magnet:?xt=urn:btih:068940D23358457D360B39299331C9FAE476CAE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72E39F101734D07CAFFAC16D949927AA193CD3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ VA - Smorgasbord (2014) [FLAC|Lossless|WEB-DL] <Deep Trance, Downtempo, Psy Dub,
 ```bash
 magnet:?xt=urn:btih:A2BF17A020025D9AF16F30948423170EA1A972EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF8D1C53B0C0735CEA0FAA0A0D3D0E4059671405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB348C3FC2F3893311C84EAA99DB1AB93F317327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:108E88F88636188C65C16B3FA63FBD802E6E29BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ Duke Ellington - Indigos (1998) [FLAC|Lossless]<Jazz, Swing, Big Band>
 ```bash
 magnet:?xt=urn:btih:792FA6C51060B6BC90C02F076C61B6112D3E7B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ PMMP - Veden Varaan (2009) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:11EA35C38FC2B49EEF0EE573113CFA6E8076099D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68CB8A2892BACC38C355436BA725F16654D96D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F6D45FA916278A86A1BE70C38120DDF3ADA37EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ Surrogate - новый робот JPL, который выступит в фин
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66716FD8D557D7313D4922E00A65FFE7616D7907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ VA - Future Garage Vol.22 (2014) [MP3|192-320 кб/с]<Future Garage>
 ```bash
 magnet:?xt=urn:btih:FDBDA033450091B4042F50001536599D8939FF4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F86FA9F6BF459FA9481219C7E96297A1F0E1D41E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ VA - Autour De Minuit - In Love (2012) [MP3|320 кб/с]<Classics Jazz>
 ```bash
 magnet:?xt=urn:btih:DC265363A93315F58755E1CEC8A7D32F1E2E1F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3AE8D1AEF7BD84786820BE0772601C236E32416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

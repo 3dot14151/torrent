@@ -27,8 +27,7 @@ Schubert In Rock - Schubert In Rock (2013)[FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EAE8C7B8906891D0F288A42E514B91C7C2AC204C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Lisa Gerrard with Klaus Schulze - Come Quietly (2009) [FLAC|Lossless]<electronic
 ```bash
 magnet:?xt=urn:btih:AA744C18ACF242ABD1F31D1A0ABF4888EBB5D53A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F25303780C68BA077F9C5707E1F3157F21E3343B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Wallpapers - Зимняя сказка [JPEG]
 ```bash
 magnet:?xt=urn:btih:BA9F6C0C4D77A0668926D47EB41EA7BA405F0198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:896C9CF145ECCEFFA8BFEE0B7F0D1AE6C286C93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9EC4F669DA8DA35EDB8F3585E7B9175B1999D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Jethro Tull - Live at Montreux 2003 (2009) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Ar
 ```bash
 magnet:?xt=urn:btih:25501E4E7D8BBE4EE4D479D3762F00EA9ED2BF41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ Dirty Dave Osti - Shakedown On Salvation Street (2013) [FLAC|Lossless]<Blues Roc
 ```bash
 magnet:?xt=urn:btih:3DF7400B1B790F8E3EBD935093889732C42E7E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ David Arkenstone - Visions of Christmas (2010) [FLAC|Lossless]<New Age, Christma
 ```bash
 magnet:?xt=urn:btih:5AB6935E84CE5897A1704A74506082F3738F4BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB4B77201B9451BDAA3E813416A2B22A70639751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B50625EBC9CA751D99CF1042C43E8B4F6AE3FFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D06717F7B5BD26C8F5FFD3F28E69946BF6D94DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ GPU-Z - программа для вывода информации о граф�
 ```bash
 magnet:?xt=urn:btih:03C09A5E106587CBD6DA93410D4219BE218424FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ Startup Delayer - выручит в том случае если на вашем
 ```bash
 magnet:?xt=urn:btih:7271EAF60B36CB0229A419E9C2B9F25F883E094A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2E27F0BB497E940366440F32946FD052BED4F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Light Alloy - компактный мультимедийный плеер. По
 ```bash
 magnet:?xt=urn:btih:376673E088760D1D5D0FA7D7A4B81ECC3602F8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:213CF05AEBCC4CE210CACF19623D2030DF51415B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45B0D85AEDC0DECB4DD4AC82B53FF894D1BB0242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B765B09B5BCBC00E4E037B110990212718CAE35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:1F14EB54A3FB7F6D94C0B60BFF101362694DB6ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C9026EE965513DCAA74E84386698E30A1081906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ VA - The Best Sound N 1 (2013) HDRemux [H.264,1080p]
 ```bash
 magnet:?xt=urn:btih:2D116899C93430C7DE27C5B53A573EC6EB24341B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AF15F7E205310E6457C291F93B02BF2AA7739BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E11E7BC36B29AD204BBB49E2E0368FE39F218B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:312C187196B1BECED94A487A2A08430517E841BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9427197F0E9DDA0A097375728B4B2086D6C0AF42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

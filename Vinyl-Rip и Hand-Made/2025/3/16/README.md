@@ -22,8 +22,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:6DCEACC1D0125A4C8AB39D886499204267272E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFF6F8DCC1EF159D930BB916174765170AA54EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Mission - английская рок -группа, образованна�
 ```bash
 magnet:?xt=urn:btih:0293A54AC82F7F78DFBF3B6C550A70E9B24CC1ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Bleed(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic 
 ```bash
 magnet:?xt=urn:btih:F46037E3858D6AAE0DB92A4B0851C5E6334BD124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Timeless: The Forgotten Town Collector's Edition / Вне времени. Заб
 ```bash
 magnet:?xt=urn:btih:D6B825445F97B848EEC74823223B488E8AA85F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Zack Zero — это невероятная 3D-графика и простое 
 ```bash
 magnet:?xt=urn:btih:BDA8C9E5E010E5C0587D678E35BF3870AD1DA1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Leviathan: Warships это стратегическая экшен игра, г�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

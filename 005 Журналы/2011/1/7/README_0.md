@@ -19,8 +19,7 @@ Mobile Digital Magazine - самый популярный и авторитет�
 ```bash
 magnet:?xt=urn:btih:A3941C544939084127BFB39848B5341053C9EA50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

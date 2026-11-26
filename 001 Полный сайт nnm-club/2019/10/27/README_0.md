@@ -19,8 +19,7 @@ iWatermark - отличный инструмент для каждого бло�
 ```bash
 magnet:?xt=urn:btih:A3F1F223EDC16FF325187F2BBAE3244AFC9B9723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Moray Eel - Priest Hunter (2006) [WavPack|Lossless|image + .cue] <Death Metal, T
 ```bash
 magnet:?xt=urn:btih:54642E51879B631216E2DEB7B4B4B3D42642B2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:8F7AB7A10A4BB46108E2BC6C356D26B3540F005A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Cisdem WindowManager может разделить ваш экран на раз
 ```bash
 magnet:?xt=urn:btih:C7C4E3B279DD38A28DB5FE9272034CBEFEA8C196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9D5BCE47E5BE679A05478C49B9E9B19EDF7BBDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Vision Divine - When All the Heroes Are Dead (2019) [MP3|320 Kbps] <Melodic Powe
 ```bash
 magnet:?xt=urn:btih:74B43A956E4DEA0F48AE8BD3FC7994029CFD1104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Neil Young With Crazy Horse - Colorado (2019) [FLAC|Lossless|tracks + .cue] <Cou
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ VA - The Metamorphoses Of Figures (2019) [MP3|320 Kbps] <Deep, Tech House, Elect
 ```bash
 magnet:?xt=urn:btih:7331C0C84EEA0D625640E75DDB3AD90CC8FCBBBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Editors - Black Gold (2019) Compilation 2CD [FLAC|Lossless|tracks + .cue] <Indie
 ```bash
 magnet:?xt=urn:btih:C7C400A4B3C064FF05924D2E757652C55EA787EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ VA - The Official UK Top 40 Singles Chart 25.10.2019 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:0FB5B778BC90FEB163D4129C41A480F9924A91BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - Ballermann Apres Ski Megamix 2020 (2019) [MP3|320 Kbps] <Pop, Schlager>
 ```bash
 magnet:?xt=urn:btih:26B3F19B77642FE35D01CB6B67109C188753CC0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Richard Tanselli & Duncan Newell - Magnitude (2019)  Single [MP3|320 Kbps] <Tech
 ```bash
 magnet:?xt=urn:btih:14A9DB3B90F506D61DFED29DBA301AACA3AD1CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Blacktop Mojo - Under the Sun (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E5C7DD2B847E055BACC1AC23DE386627CBDEE66C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Edenbridge - Dynamind (2019) [MP3|320 Kbps] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:0827B0C0EDF0AB65F4C17F83B7C8F094F4D183C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Art Nation - Transition (2019) [MP3|320 Kbps] <Melodic Modern Metal>
 ```bash
 magnet:?xt=urn:btih:1A47733748CB821D7C3486335BC73568A8034374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A1CB4DACA62D61E3F9EC6EDD1B8A92319DCC9AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ Tron Syversen - Sacred Dreams (2005) [FLAC|Lossless|WEB-DL|tracks] <New Age, Rel
 ```bash
 magnet:?xt=urn:btih:6073EF9C6422A229E5416AC40CF62FDFC2061C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Lane 8 - Little by Little (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ```bash
 magnet:?xt=urn:btih:5BBB651B873DD184624746583C42850C03D0C572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB2197892015791E8D6C55DE387BF8BDD299DE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C22A4F5B2C6003994054C117171406B5AEA4A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ Translate Tab 2.0.6 [En]
 ```bash
 magnet:?xt=urn:btih:956F6B2990D9058BD208ABA6119EDB2689B7FD02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:494568800DE372929F6A53C794EF1677725B1704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ VA - Record Super Chart 610 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:E7A25CBA02F77CB80722E6D16BE18611F2C15115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC65A93A281C49D1E4064D87C79EB070D5889BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D96E871A5544DFADDF95B017A9879DFCE0E2BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ Radiocamp - программа для прослушивания интерне�
 ```bash
 magnet:?xt=urn:btih:C59CF0371BEA87926020AC00F38F9F511D35A46A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Shiny (2016) [Ru/Multi] (1.0.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:3113838053981F5B6C5B86047E1E45B98CE8EFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shiny (2016) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:67459AD930CCDD7E38FC2863EC5A892EC3EE284F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pan-Pan, чудесный пример свободной истории в от
 ```bash
 magnet:?xt=urn:btih:D47B697D89A7C26EB89C9EEE4B2CF9CC0128372F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ King's Quest является переосмысленным вариантом 
 ```bash
 magnet:?xt=urn:btih:1F673EC5BF70BA0C95C7B56BA09165E330772A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

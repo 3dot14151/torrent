@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E73027CCBB4E1776C2BF900EC7685AEC6A1B926E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:DC64DFC040F6EFA3F482BD6E98554148DF928455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Adobe Dreamweaver CC 2014 - приложение, предназначенное
 ```bash
 magnet:?xt=urn:btih:CC1B5534527A3A00B89BE7A32218954FA12EC994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ PROMT Агент для Mac — первый переводчик, работа�
 ```bash
 magnet:?xt=urn:btih:B0135555927FA451FBDE47565D059B5CB7A04931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:C251949D16B4A23FA4BE8B8DCAEA99CC25F60967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ AutoCAD MEP – это AutoCAD для проектирования отопит�
 ```bash
 magnet:?xt=urn:btih:5CB8B3C5FBDCBCFD27D516726EF151B60839FCA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:00E98B7A1DFC7A6D64C04D5EDFCD5B885B2CE691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:003E7F0318884A64364345B9833C440155C31ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Dead Space 2: Limited Edition [PS3] [MOVE] [EUR] [Ru/En] [3.50] [Cobra ODE / E3 
 ```bash
 magnet:?xt=urn:btih:80E013803985B7F22572556BF38EA0175C42EFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:314DC62A8DC71841B51E6339111C269E43D072CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67EB6D5AEE13D5AA1E6A56868F87F56A07D7FBD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Killzone 3 - очередное продолжение противостоян�
 ```bash
 magnet:?xt=urn:btih:818ED9E99DFA0B19CB9F28A3B403232E0BE56F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0/3dlc) SteamRip R.G. Игроманы [Di
 ```bash
 magnet:?xt=urn:btih:BA2C24715184051CC94CEB36844DC6AAA6521BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CB32295AF3A484BA68892BFA51417B5EC61A5B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01E436582C79176B1FB54F4C768E961641FC3E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Boot USB Sergei Strelec 2014 v.6.9 (x86/x64) (Windows 8 PE) [Ru]
 ```bash
 magnet:?xt=urn:btih:A101AD8BCF68171A2F02A7D88A393E1FE442C7C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ RimWorld - научно-фантастический симулятор коло
 ```bash
 magnet:?xt=urn:btih:A0052F9D2F94EE596855B038AE3B7C939D82F838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9C5EBF540742BDFD0C6E8694DD4805EE13B5EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC578BFEE7B8EFBA2D439677174EE61493E97E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ Alien: Isolation (2014) [Ru/En] (1.0/3dlc) Repack R.G. Механики [Digital
 ```bash
 magnet:?xt=urn:btih:F2FC82D11860CBD32F119197A5BA2A795EC23F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

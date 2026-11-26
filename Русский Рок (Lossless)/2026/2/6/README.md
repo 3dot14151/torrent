@@ -21,8 +21,7 @@ CD3 - «Квартирник» у Павла КраеваЖанр: RockПрод�
 ```bash
 magnet:?xt=urn:btih:FD2648F7D4C1D8E037772CE76F310F9E2AD4B5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

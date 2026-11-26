@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:0C8804946C72E53866E7FA787D35AC2F24493092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB35E83F0C9ABC7FA6C9197C3FCEFC2DCBC4548D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Fg Top 10: December 2017 [MP3|320 Kbps] <Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:D9D35110B25F0B017271A9DB56B1F9CE126373BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Yusef Lateef - The Complete Yusef Lateef (1967) 2002, Collectables [WavPack|Loss
 ```bash
 magnet:?xt=urn:btih:F46AA68D48F47B8AC2884447423C52D1C0147C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Stephane Grappelli - Live 1994 (1998) Justin Time Records [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:BBA57999E2A0566E3C4A4F917B35FB869DE52722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3B734CB8CA36BCB03F83AB4481ABE063A5F30D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98A2F861EDFB219571C726409B66CF5458D5F558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17B9BAA400EDDDA08CA1C8ADC70A754BC719342F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Stanislav Vdovin | Unit 21 | Initial Run - Collection 11 Releases (2007-2017) Oc
 ```bash
 magnet:?xt=urn:btih:005D536703B0854940A3C8E4257E1E954D8F718A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Manu Zain - Don't Give Yourself Away (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:D4514A50154ADBA189A4FEB3E77EFEE0D1FBF817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ K's Choice - Paradise In Me (1995) [FLAC|Lossless|tracks + .cue] <Indie rock, Al
 ```bash
 magnet:?xt=urn:btih:F36B4862F1409AD6FD9015ED78DC2DEFF4DCDCD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ VA - The Hues of Infinity (2015) Projekt [FLAC|Lossless|tracks+.cue] <Ambient, D
 ```bash
 magnet:?xt=urn:btih:E7D5FF8061EB4F58E31AF8D0F6FD5FD427545FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ CoH - CoHgs (2017) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experi
 ```bash
 magnet:?xt=urn:btih:21F952CDD64D92E31441DF1E33183B10A6A002BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ VA - Atmosfera Records Best of Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:1A337C3080EB20664EB410C9E1D86CC957D3B445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ Dub Tractor - Hello Ambient Wash (2017) Music For Dreams [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:22880185628316FEAFDA0D854D55B4233A9C69CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ Narnia - Aslan Is Not A Tame Lion (1974) Reissue, 1997, Narnia Self-released [MP
 ```bash
 magnet:?xt=urn:btih:CA62AD1DA96AE7E8FE3BFB09A0F16753C90AFA21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7C2BA72B3AB1F5831C99CAC21318D6D6ACB146C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ Lit - These Are The Days (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:1FC660340048EAAD189C9D15219BC8C8E0A769C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ Nitzinger - One Foot In History (1973) Reissue, 1999, Buy Or Die Records [MP3|32
 ```bash
 magnet:?xt=urn:btih:17179870FF7EC4AB82D7A8A0B99E2728B36B6E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Downie поддерживает более 1,100 популярных сайто
 ```bash
 magnet:?xt=urn:btih:6F7412E86512C4098DCB782A53F553137BF7504F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ Jason van Wyk - Days You Remember (2013) White Notebook [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:B06658576E5703C7C1A1202B6497770B97E6B3E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ Gоds Оf Silenсе - Neverlаnd (2017) [FLAC|Lossless|image + .cue] <Power Meta
 ```bash
 magnet:?xt=urn:btih:190BD89C9654382A59DA9DE18EA60D06C4279E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3971506B5CDD8750E1EF050272C92EFE16D7EFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ Tenebrous Music - Label 3 Releases (2015-2016) [FLAC|Lossless|WEB-DL|tracks] <Te
 ```bash
 magnet:?xt=urn:btih:206901CB8B90D64C385DD1648DD605671E5785F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8676C56AE7DECF7FEEA3500CE0EE79BED92392DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ Henry Mancini - Combo! (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Mai
 ```bash
 magnet:?xt=urn:btih:0E119F8641653A21090041FBB53C074A218CD376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

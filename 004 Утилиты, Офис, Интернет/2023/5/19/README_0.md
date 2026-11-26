@@ -19,8 +19,7 @@ TeamViewer - удобная в использовании программа д�
 ```bash
 magnet:?xt=urn:btih:70CADE17F618DFAF534D78C84500587E0B360B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:82364DD2FA1E866D6042BBCF13E459E71ADC4F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:419488A1A5BB21B6AA866023E80D74AD07C38CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Brad Leali Jazz Orchestra - Maria Juanez (2006) TCB [FLAC|Lossless|image + .cue]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Horace Tapscott - Aiee! The Phantom (1995) 2009, Arabesque Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:A83411C5AD2BA3AC2317A2F662E665EEA0E4C31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Extrema Summer Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:B648DFDA4B14F1FB6B76913396B3DB17064CDB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Drive & Chill Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:A9EF1314465B316199108943E4CCA5642CDA99AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Sound Of The Balearics Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:5F565D60556860C83A329E42952815A622B5554D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Hippie Lounge Vol. 1 - Peace, Love & Harmony (2009) [MP3|320 Kbps] <Lounge,
 ```bash
 magnet:?xt=urn:btih:0A64070B1FA0BCFA09D56C3275BA30AF1C33D92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:737135853B5913D04ACF4D7121FB4C2964009AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:771C8F491CFE0DD4346A6864429D9FF502B67DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ VA - Best Of Ibiza (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:442CD1576EE6BFD25BA4F9BA0B6AF890490DC313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B697A035BFBA93B2E4B517323C2C42FE81798836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ VA - Grotesque Essentials Summer Edition (Mixed by RAM & Indecent Noise) (2017) 
 ```bash
 magnet:?xt=urn:btih:632FA856471D32CC8C792AAEC6B97896DDE452E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ VA - The Best Of Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ VA - Festivalbar '78  (1978) 2LP [MP3|320 Kbps] <Electronic, Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:A340E049436904EDB1BF9BF65BD151508469E44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ SPLIT AVENUE - NOT FOR EVERYONE! (2017) [MP3|320 Kbps] <Deep House, Nu Disco, Sy
 ```bash
 magnet:?xt=urn:btih:9E6EC87AF5608E8FC996DA02ABDC305065CD3281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ VA - Охота 74 (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:CF2319718FD6CDCB7AB84AB269209877B272EE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ Dagoba - 7 Альбомов (2003-2017) [MP3|320 кб/с]<Groove Metal, Industri
 ```bash
 magnet:?xt=urn:btih:5B41646BE766209D5B80EA84FE99F6C2DA8EB425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B6139EB4223C64CDD71EC477595A36353D960A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ VA - Corsten's Countdown August (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:8F7997EA4B0538CE2AF78D81A80096A9751D038D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:45E05CC0B755D917AC64AC1893A9A1C22FD204FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ VA - Nothing But... The Future Of Trance Vol.02 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

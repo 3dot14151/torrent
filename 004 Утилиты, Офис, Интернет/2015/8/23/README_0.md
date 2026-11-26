@@ -19,8 +19,7 @@ X-Lite 4.8.4 Build 76589 [En]
 ```bash
 magnet:?xt=urn:btih:D35D41AC464A0EDE65C197B6011D0813C10C30DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

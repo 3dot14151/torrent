@@ -22,8 +22,7 @@ Hollywood Undead - Hotel Kalifornia (2022) Deluxe Version, 2023, BMG Rights Mana
 ```bash
 magnet:?xt=urn:btih:FFFF31DEA863258F930BFC28C77BB348118E9EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Erdling - Bestia (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Neue De
 ```bash
 magnet:?xt=urn:btih:8D4E621FB12D83EB34740F7669C74F168A4251CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cradle of Filth - Trouble and Their Double Lives (2023) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:817C123318F106A136DEC2FFA8A22A04837F8BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Majesty - Back To Attack (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:5E55FF0CE8B7BAC82DC1702FE3D4DD4EB5300264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Azaghal - Alttarimme on Luista Tehty (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 ```bash
 magnet:?xt=urn:btih:E4FA655E03ECFFD115825CA1B91EF54A624720AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Hawkwind - Days Of The Underground: The Studio & Live Recordings 1977-1979 (2023
 ```bash
 magnet:?xt=urn:btih:73681AFB5870A0C64A8697881B95E93F4B16BF59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Black & Damned - Servants Of The Devil (2023) [MP3|320 Kbps] <Heavy, Power Metal
 ```bash
 magnet:?xt=urn:btih:E0B1CAAA33150FA8E2F1F6ECC7E1632960D93292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Battlefield - We'll Rock Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:E7ABCFE549D173B593C884590024538AA67D8E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Axeheart - Through the Seas and Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:06F0F5895E218399C75B0FED872E2CEA8445C21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Autumnfall - Bleak (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:A4432E3764631AA26D3B6753EDB5FDE220FA0173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Twisted Illusion - Upstairs To Optimism (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 ```bash
 magnet:?xt=urn:btih:6A23A008742CE1A794BC54E0D581290F9CB8B919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

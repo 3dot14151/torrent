@@ -27,8 +27,7 @@ Spoon - They Want My Soul (2014) [MP3|320 кб/с]<Alternative/ Indie Rock>
 ```bash
 magnet:?xt=urn:btih:3430AC43E217CD4DA966EA746CE11861A856354D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:052AA04B6E510AAE4BBA8A24072A198F38544AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Control Center 2.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:47EB6C9ADE5C0A85597A01BE730B2A39DC3EB722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ VA - Клубные Новинки Vol.520 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:4E07BEF5E55308121286DDA34FE68A41E7861199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Adrian Gale - Defiance (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DF8B0C0FC1C894EEF96FF00F58BD78B03AB58FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE5496ABF544E1F20DA30C4445D42DDA29940E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ Mark Morgan - Wasteland 2 (Original Video Game Soundtrack) (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:563EB824DEBC1E3246E428E84D9AE6FF63D42D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ DJ ICE - Summer The End 2014 Mix (2014) [MP3|320 кб/с]<Deep House, Vocal Hous
 ```bash
 magnet:?xt=urn:btih:72C341098C56E80B3467B06D2FC25233A559B137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D52EF723D26D69A813F58F636795AABE4200386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EC6F1CDC7B20C873DC0E9F543A80F31828A8732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ VA - Blank + Jones present Posh Trance (2008) [FLAC|Lossless] <Trance>
 ```bash
 magnet:?xt=urn:btih:39246CE0267C4F2177B5EC0A2D8226BBEBB36D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Method Man - Tical (1994) [FLAC|Lossless]<Hip Hop>
 ```bash
 magnet:?xt=urn:btih:18830025DB33D938BD8E378FB5D0C59A6EB7F423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41FE5AAC3A392D97478CC671C8CAE485DA2ECE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46C6536913DB7F993848BCD62D67E762C406099D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16817ED4F03DCF9D1EC4A8040CF08BF3A41652BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:286548379A5A5CF649223873CA6F0010950C8C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F3CFD302F20C220BBB200CDDF8B58F01D4939B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F9CB38105F6BACC3BB0326358B2EFF3F0EBF841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:214ACAF82BEEA0354D77946B8C81B499D11B0FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FD8EAEDE46643752376A56EF37FCDF4F561DAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89D02340FAF71D264DD3BD2450739945569A9FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF28EA155C12C17A58ADA063A91C0B952264B75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F2739817A1C496E72D0BD2E131053047B22C858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Macy Gray - The Way (2014) [MP3|320 кб/с]<Pop, R&B, NU Soul>
 ```bash
 magnet:?xt=urn:btih:849BDCF7005683B8A0FEBDB8D5C6275EDCBAF87F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +699,7 @@ Bernie Marsden - Shine (2014) [WV|Lossless]<Hard Rock, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:78B173113196D580C2A1DDCD4FEFB78E2D998E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ DJ JaKimOff - Afterall (2014) [MP3|320 кб/с]<Relax, Ambient>
 ```bash
 magnet:?xt=urn:btih:4A9C9D0EA8A12003A5864CBF3182956FA3E2826B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Nino Helfrich - Shadow Empress (2024) [MP3|320 Kbps] <Prog Metal, Vocals Instrum
 ```bash
 magnet:?xt=urn:btih:27F8242BF65653D27A59DF2B5AB23E544461E7B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sonic Hustle - Out Of The Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:02ADAE12A63FF0D76575CA3BCE4749CFABA61422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Slade - MTV History (2000) 2CD [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:BBC1AD091F4B3FE974AC62D0674095CC4FE522D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

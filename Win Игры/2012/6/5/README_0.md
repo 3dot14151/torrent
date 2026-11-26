@@ -19,8 +19,7 @@ SINTHAIstudio Games (L) [En] 2005/2010
 ```bash
 magnet:?xt=urn:btih:FEF34D77F54F11CE46412BDC7D3798164C9128B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Lagoon 2: Cursed & Forgotten / Затерянная лагуна 2. Нов�
 ```bash
 magnet:?xt=urn:btih:6B2051963B6F602A274B90CE63A95E25B092F242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Drawn 3: Trail of Shadows / Нарисованный мир 3. Испытани�
 ```bash
 magnet:?xt=urn:btih:200BCEE13D30C282C1A878074A9F332ECCE12361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Rayman Origins - это классический платформер не то�
 ```bash
 magnet:?xt=urn:btih:45B7A30204F90877C3D1CE3EC14BB3FCCC6C0BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

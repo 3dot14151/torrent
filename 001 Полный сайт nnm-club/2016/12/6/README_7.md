@@ -18,8 +18,7 @@ Navitel / Навител Навигатор v9.7.1950 RePack для карт р�
 ```bash
 magnet:?xt=urn:btih:CAFF8BF2EACF2D495703CDCD07AEE074556B7F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EE34BB300D1FE0C32928BD5AA0678C23483F594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

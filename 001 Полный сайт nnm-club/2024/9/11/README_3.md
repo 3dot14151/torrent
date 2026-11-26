@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:BB8338DE0FE33C191915D7BD8EF10F68B605FC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:810059C9A367DB0EA2FCDE74858E34ECB9E89176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

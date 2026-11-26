@@ -19,8 +19,7 @@ KAGITORI -BIRD IN THE CAGE HIDING THE KEY- (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4E53B0299167D0B41D0B10CB1C3A6C5623409F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Criminal Archives 2: Alphabetic Murders / Криминальные архивы 
 ```bash
 magnet:?xt=urn:btih:65903341A5FE73DE38E412F21ADFC44619FD369A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HeadHorse - ваш похититель, и у вас есть единстве�
 ```bash
 magnet:?xt=urn:btih:0D68528F02DA967CB9EC7759219DB473A00E8EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Armored Core VI: Fires of Rubicon (2023) [Ru/Multi] (11893351/dlc) Repack DjDI [
 ```bash
 magnet:?xt=urn:btih:8EC0D34EE2F86C9181CE2B06BC35BFEDD01074C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Internet Download Accelerator - это очень удобный менедже�
 ```bash
 magnet:?xt=urn:btih:286621BDC845859B3B177AEB5D45C50B14686AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

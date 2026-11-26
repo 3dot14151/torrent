@@ -19,8 +19,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.15) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:593FC144608E23E2D0139380F99DBCD7969B0E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Thing: Remastered (2024) [Ru/Multi] (1.1.1609.1391) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9221AAD2CEE7C70C15F01CD59F2F967628C0944B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Lies We Tell Ourselves (Ложь, которую мы рассказывае
 ```bash
 magnet:?xt=urn:btih:CCBA29D709BA2F90379771614B54E0A29FD29733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shotgun King: The Final Checkmate представляет собой альте
 ```bash
 magnet:?xt=urn:btih:ECAD9522827804ABD99AB9612543E7FCA560FA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Winter Falling: Battle Tactics предлагает геймерам возгл�
 ```bash
 magnet:?xt=urn:btih:8ACD27EBC18A1E26DAC747D1B9E5F6F6EF066051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sacred 3 это экшен-аркада для четырех игроков, к
 ```bash
 magnet:?xt=urn:btih:828218B21C11E6301F3C325B46C400D7A092194F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Gift Collector - это новогодняя хоррор игра от перв
 ```bash
 magnet:?xt=urn:btih:B2C16112A8FBBCB2D0FFE8895B1964183A378540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

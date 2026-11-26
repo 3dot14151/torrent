@@ -22,8 +22,7 @@ Profanatica - Crux Simplex (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Me
 ```bash
 magnet:?xt=urn:btih:6F67A43933790B74F0CA062C4D7CB03521F6D10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Permutation - Transience (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Bl
 ```bash
 magnet:?xt=urn:btih:44080925F0ED26F9B3B0041C126A5539743763BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Birth Asphyxia - Human Obelisk (2012) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:44E865BD925BED8055FF100C512DBDD8D29BF35F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nox Sinister - Knight Terrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thras
 ```bash
 magnet:?xt=urn:btih:F61DE39078303BE3B5F6347C6BAD5FA5B8676866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Highway - Viral (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C21083D70A0CC5037BB2BC728AEC4A0DA39FD05D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Crocodile - The Tale of Otter, Thorn Eater, And the Colored Coyotes of Hidden Ci
 ```bash
 magnet:?xt=urn:btih:30D3A1858FE4F396CCE12789AC59C87E489716BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Decembre Noir - Your Sunset | My Sunrise (2023) [MP3|320 Kbps] <Melodic Doom, De
 ```bash
 magnet:?xt=urn:btih:C783D90F8D23243B9BB8C0065FD3BCFF2954D21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Theocracy - Ghost Ship (2016) [FLAC|Lossless|image + .cue] <Progressive Power Me
 ```bash
 magnet:?xt=urn:btih:1A9F57C38E6CB0F8CA593D2DB97FB24C427D9441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Antagonist - Damned And Cursed…To Life On Earth (Compilation) (2016) Compilati
 ```bash
 magnet:?xt=urn:btih:B7C8292CAB772F9FE888EBA1CCD6283C5A4270F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - All Out Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:50B22C6AE2FF55FF2834B90ED046CE1D477CE2E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3486E9BE00CCED74C93C46640E167FDC682E4E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Ronnie Atkins - Trinity (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic 
 ```bash
 magnet:?xt=urn:btih:D54B61640ED213AB2E4FD53369104590C7FD11D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Dominance - Slaughter of Human Offerings in the New Age Of Pan (2023) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:FFD92A97B966BE07896B1CA1551B1E47CE3A48CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

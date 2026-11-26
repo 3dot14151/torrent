@@ -19,8 +19,7 @@ Zello - это стремительно набирающий популярно�
 ```bash
 magnet:?xt=urn:btih:B7AE24DC97AE7C478AF153AB36DDFED4DEBFE32D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Network Password Recovery 1.40 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4DE19484FD051B6C6F69955FEED8CAB4B8A81F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

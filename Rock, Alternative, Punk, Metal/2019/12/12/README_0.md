@@ -22,8 +22,7 @@ Leviathan - Deepest Secrets Beneath & Leviathan (2010) EP [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:D321C2101F3E2BCE6488E6AB3D673F06BF8FC2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blind Fury - Out Of Reach (1985) Reissue 2008 [APE|Lossless|image + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:A1DC286FAAD71F8DE990DA20AB4F365E8D277A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Leviathan - Deepest Secrets Beneath (1994) [FLAC|Lossless|image + .cue] <Progres
 ```bash
 magnet:?xt=urn:btih:4F5D690B4AC8DD39A1A00970F8AF9406BB4E03FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Borknagar - True North (2019) [FLAC|Lossless|image + .cue] <Black Folk Metal>
 ```bash
 magnet:?xt=urn:btih:FF1B6439139B62FEA5B01E2F1D331FF1A945E133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Leviathan - Scoring The Chapters (1997) [FLAC|Lossless|image + .cue] <Progressiv
 ```bash
 magnet:?xt=urn:btih:BE0C65E0BC94897717C897C01A10E4B893C7E26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Reido - Anātman (2019) [FLAC|Lossless|image + .cue] <Sludge/Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:FB1EFDCD9F488D916C78976E7C2EB7E9F3E2F111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Nemesis - The Day Of Retribution (1982) Reissued 1990 [WavPack|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:578A9D85BD112A6E7A8EFDBB07D1FABD5CAB342D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Bereaved - Daylight Deception (2009) [FLAC|Lossless|image + .cue] <Melodic D
 ```bash
 magnet:?xt=urn:btih:2DA75715489D23657BEA35908516DB14702DE0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Judas Iscariot - Heaven in Flames (1999) Reissue 2000 [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:E24ABA9CCA2F54D7AFF25001BDE01F9849F03176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ ShadowPlay - ShadowPlay (2007) [FLAC|Lossless|image + .cue] <Gothic Progressive 
 ```bash
 magnet:?xt=urn:btih:66A362D712B45BED12DF3ECD4D4CCCCCAEBEE3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Diamond Head - The Coffin Train (2019) [WavPack|Lossless|image + .cue] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:AFCA559B33DA5D7068B3FDC04FAECFE1F7D95A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Soma Planet - Bholenath (2007) [FLAC|Lossless|tracks + .cue] <Progressive Rock /
 ```bash
 magnet:?xt=urn:btih:038C1F128A2E6C04F8863CCF6515C66D0E7FEBED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Dismal Euphony - Soria Moria Slott (2004) Remastered in February 2010,   Keltic 
 ```bash
 magnet:?xt=urn:btih:E78268A4D481ADA5A549E1596AE40C58A0AE34E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E3CB04D55C668B55A0EAD801373CBA77AF06E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Electric Light Orchestra - Secret Messages (1983) Limited Edition, Reissue, Rema
 ```bash
 magnet:?xt=urn:btih:A4E0585E860AE3D88C77A98EAF236B77C9BBFFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCE88AB7D1DD8B89BEABC47E2F5DE78EE8086D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

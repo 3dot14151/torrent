@@ -19,8 +19,7 @@ A Space For The Unbound – игра, выполненная в пиксель-�
 ```bash
 magnet:?xt=urn:btih:C27A95CD6A2C2DF92729C99D2E96555773739032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Godstrike - топ-даун аркада, направленная на напр
 ```bash
 magnet:?xt=urn:btih:6C23024741DA3A121C05E8E5DAF7636B54A3AB33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Boom Blaster – двухмерный шутер с боковой прокру�
 ```bash
 magnet:?xt=urn:btih:E56661AFA1A5BE7F79B2A962E73F95514B7CA30B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

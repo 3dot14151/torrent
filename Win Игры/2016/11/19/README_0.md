@@ -19,8 +19,7 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:A1794843056833B501540051E6C0C77FDFEAB4BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tyranny (2016) [Ru/Multi] (1.0.1.0010) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9815774513B9ED1716A387890442E5036BD0FED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Redemption: Saints And Sinners (2016) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A75E481ABDE9FA430EC94FD6F39BE1D3A6053999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

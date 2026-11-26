@@ -22,8 +22,7 @@ Tom Clancy’s H.A.W.X. тесно связан с одним из самых у
 ```bash
 magnet:?xt=urn:btih:9E680702BCE6AE9349C2FD70FB1D8C5AE982E827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE1E02B170E42E66D96DB5ADB25668BA7A5665F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Rise of Nations – классика популярного жанра исто�
 ```bash
 magnet:?xt=urn:btih:F19D9D1BF44959E48297E482B300762B460C74A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82DAC5A932D794D7B4C98B6D4293B88A6C212609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A21455B639796202806C19E96CAD02987BF1A9C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Gregorian — немецкий музыкальный коллектив, исп
 ```bash
 magnet:?xt=urn:btih:934347604158E498437B4EB85865EE030280610F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ SpellForce 2: Faith in Destiny (2012) [Ru/Multi] (2.28.2124/3 DLC) License PROPH
 ```bash
 magnet:?xt=urn:btih:AA3A8C65884C619567C1A44841DAF5F37F8032BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Disciples 3: Renaissance / Disciples 3: Ренессанс (2009) [Ru/Multi] (1.
 ```bash
 magnet:?xt=urn:btih:7F0BD1E59EBE00ECE914EC53F268C649CDDF532A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Dishonored (2012) [Ru/En] (1.4.1/4DLC) RePack a1chem1st
 ```bash
 magnet:?xt=urn:btih:0454DCE58E0A1C24E344AF770F5FAA572478F226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Legends of Aethereus – фэнтезийный экшен с элементам
 ```bash
 magnet:?xt=urn:btih:2CDC014101476493F9BC8F6DA30F6E002966D848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Wizardry Online – игра, созданная компанией Gamepot, о�
 ```bash
 magnet:?xt=urn:btih:0B76443E570D6A9C65AEF98D0CF91F639089766D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85FB9C2BCCB50CFC7461F9A572575F2B72D7335C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Koukaku Kidoutai 2.0 / Ghost in the Shell 2.0 / Призрак в доспеха
 ```bash
 magnet:?xt=urn:btih:2F503830998ED4343DA20E69EE4BFE8792C447ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68359A16BF47CF4A570A723FF0CE138D559D57ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Red Orchestra 2: Heroes of Stalingrad — ведущий тактический 
 ```bash
 magnet:?xt=urn:btih:37386E2B716C53FE78AEA9E1D7AA84DD17069F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:764F8E472C38702EBD3100E1E089C5993C23179A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Call Of Duty: Black Ops II [PS3] [RUS] [Repack / 1.15 / 6 DLC] (2013) | R.G. Inf
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ Legends of Dawn - фэнтезийный симулятор бога в жанр
 ```bash
 magnet:?xt=urn:btih:2D5EDFF9FD8EA6290C03225D3114A23877CF564F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ Twonky Media Server - это приложение, которое позволи
 ```bash
 magnet:?xt=urn:btih:FCCAB586C4EF526E27A5FB6CC4589E47AA27B024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:667ACEECFF355EFC067D09DC3F28F4EB927AE657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

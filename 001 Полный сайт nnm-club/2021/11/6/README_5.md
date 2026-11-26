@@ -22,8 +22,7 @@ VA - Luxury Lounge Sunset, Vol. 4 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Dow
 ```bash
 magnet:?xt=urn:btih:4AA9514DA41F682F8B5871CFA48B22192958B58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Best Sound of Chill & Lounge 2021 – Winter Edition (2021) [AAC|~312 Kbps]
 ```bash
 magnet:?xt=urn:btih:162C5FBD4F03CC3805B4C950C0DC19E3A1B36C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Best Sound of Chill & Lounge 2021 - Summer Edition (2021) [AAC|~307 Kbps] <
 ```bash
 magnet:?xt=urn:btih:6C7E69658AD1894FD49AA7BEF217F3B546E656B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Luxury Buddha Lounge, Vol. 1 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Dow
 ```bash
 magnet:?xt=urn:btih:E055005559B152589A4F9A32E47D7817768B5C02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ SnapMotion имеет два режима:
 ```bash
 magnet:?xt=urn:btih:2894F8CA96F2B7D123EC0AF3907E2B38B7B45C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ SiteSucker умеет загружать сайт (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:D7D0A1FBDCB963981BC0C7A9271DA56B494805C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Bookends позволяет сканировать существующие фа
 ```bash
 magnet:?xt=urn:btih:E778976FE2DF828884CEFAD3CA1A5EDD883A12E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ GlueMotion был создан, чтобы сэкономить время и п
 ```bash
 magnet:?xt=urn:btih:427132F5EC5092D94219A4197E50AF5EDE527E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ DropDMG 3.6.2 fix [Multi]
 ```bash
 magnet:?xt=urn:btih:CB95E57655DB5587D4D0B5070A73E3BED2A2DF34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ MacPilot 13 v13.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:0823B7246A0247A48C971730552962B05B88EFB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ VA - Café De La Cita, Vol. 4 (Jazzy Bar Lounge & Chill out Tunes to Relax) (202
 ```bash
 magnet:?xt=urn:btih:820B5BFE78DD68007B077947A1D35A1B885B3150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - Urban Chill Nation, vol. 2: Best of Chillhop & Lo-Fi Tunes (2021) [AAC|~304
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Café De La Cita, Vol. 3 (Jazzy Bar Lounge & Chill out Tunes to Relax) (201
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ VA - Urban Chill Nation, vol. 1: Best of Chillout, Nu Jazz & Lo-Fi Tunes (2020) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Express Accounts - это профессиональное программно�
 ```bash
 magnet:?xt=urn:btih:CE28F779C87B2FC58B887BFBE2030185B7D6ACA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Express Animate - это приложение для анимации, ПО да
 ```bash
 magnet:?xt=urn:btih:FBDF006E93AAE73D8A274E4FDE5964BB850B1BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ VA - Café De La Cita, Vol. 2 (Jazzy Bar Lounge & Chill out Tunes to Relax) (201
 ```bash
 magnet:?xt=urn:btih:2435EB6A80BF2A5CAFB0430418CED01D65EFB55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E89C87362C02D13C729B0A6D9EF9E1731615E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ VA - Café De La Cita, Vol. 1 (Jazzy Bar Lounge & Chill out Tunes to Relax) (201
 ```bash
 magnet:?xt=urn:btih:8A2009BDE91A7B5263CF0613FFB8B652E2F3DA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Invisor основан на хорошо известной библиотеке
 ```bash
 magnet:?xt=urn:btih:40373F65CBD1AED73DD4DCA5F561CA2D7B2C1654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ VA - Luxury Buddha Lounge, Vol. 3 (2014) [AAC|~319 Kbps] <Lounge, Chill Out, Dow
 ```bash
 magnet:?xt=urn:btih:1FE789E1E647C4A6805EDC1035D9FBCBB70FEC4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ VA - Chill Out Nation, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:326B3BF56957595E18D48812281F1E27F901C1DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ VA - Luxury Buddha Lounge, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Dow
 ```bash
 magnet:?xt=urn:btih:F335974E6B114CBAA57F6FF92A3039D380960A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ VA - Café De La Cita, Vol. 5 (Jazzy Bar Lounge & Chill out Tunes to Relax) (202
 ```bash
 magnet:?xt=urn:btih:0F85E4F8B3F2EC0A4B1B604418BEC80EDDE7768F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ iFlicks — это метаданные к сериалам и фильмам. �
 ```bash
 magnet:?xt=urn:btih:4D3C125A9CA06BC6C25C6C4C4E2EB0AC84B2DE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ PhotosRevive автоматически раскрашивает ваши ста
 ```bash
 magnet:?xt=urn:btih:C477E41AB0E0BEFD231F460C89C86C80FAAA57A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:C1616DE1FAD7DA82D4FBC93779914613EEDFB5C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:7BC2663F58F888349698DE8ED9FFF5212A00AF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WinSnap - отличный многофункциональный инструм
 ```bash
 magnet:?xt=urn:btih:B919E0B40974C4C6C90FE583C73B51E0FA80227B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:BD5743A1869B4C06C6B33B5643DDDBFEDB23F03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:4ED85CB6BB0665B71230924667F37E5606CD3D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ PowerISO – программа, позволяющая создавать, ко
 ```bash
 magnet:?xt=urn:btih:7ABE11708636CCCFA1DBEDB0557573CE17FBDA7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

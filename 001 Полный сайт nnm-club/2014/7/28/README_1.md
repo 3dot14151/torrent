@@ -20,8 +20,7 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:792473A1FDD557BBA31CCFCFDDBF270DD664BF90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F22D7956FE27078480093A4FF0765BE3FC2CDF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0459DD35389F83A534F3F9939D0A5F91A1697A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EBF3D969A3F88E5D21D61142604BE1665E5FA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Pure Music  представляет собой программный музы�
 ```bash
 magnet:?xt=urn:btih:9FC4EF6BE9C29B650664584744917CCEC336D19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Any Video Converter Free позволяет конвертировать фай�
 ```bash
 magnet:?xt=urn:btih:7D8E1DD920A79085E519F7DC43C066C496EE26F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Ginga Eiyuu Densetsu | Heldensagen Vom Kosmosinsel | Legend of the Galactic Hero
 ```bash
 magnet:?xt=urn:btih:CE94C76E4A4A36995BD55BFEA5E6C553F8DD1F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:DF9408197D206C8385AFFD83284A0CC38AB5F769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F630801333BF7796438AAB63878928D37F74C3BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Rayman Origins 1.0.1 (2014) [Multi/Ru] [App Store]
 ```bash
 magnet:?xt=urn:btih:038135EA610158CE6C598E1B105FE5A363860F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Monogatari Series: Second Season  / Истории, сезон второй [201
 ```bash
 magnet:?xt=urn:btih:63E18ADAE75CDDE5CBD44427D04C552C5EBCBB30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDB6C9D3821E6EF6EED3C214885378F5314B4BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBF2739BA3143E85FB8FD9B504A400F20B3D3F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A11DB0E45472C68B70D893A7276057211F19599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Imagineer Systems Mocha Pro 4.0.0.8707 + plugin for After Effects [x64] [En]
 ```bash
 magnet:?xt=urn:btih:DD924EBE8849218B21EEFB9A09675113E80102AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Adobe  Photoshop CC 2014 входит в состав Creative Cloud. Поэто
 ```bash
 magnet:?xt=urn:btih:B05741CD0046A8C88DDC934DE20190B9E466E687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

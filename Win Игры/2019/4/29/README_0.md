@@ -19,8 +19,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3D31AD1F4493A02E66FE71FF8527DE862437244F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Downfall представляет собой рисованный квест-у�
 ```bash
 magnet:?xt=urn:btih:C6FA8EB54C41C586B7FCF4E578BEB311109FA156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Trackers 16: The Fall of Iron Rock / Охотники за тайнам�
 ```bash
 magnet:?xt=urn:btih:E8C6F63B4078F330EA8B6FED298F9A28B9392AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fall of Light (2017) [Ru/Multi] (1.50c) Repack Other s [Darkest Edition]
 ```bash
 magnet:?xt=urn:btih:42B9DE74391A7B27111682C1BBC8B290DE40BD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

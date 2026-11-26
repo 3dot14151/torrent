@@ -18,8 +18,7 @@ Win PE 8.1 (x86) Boot USB Sergei Strelec (02.04.2015) [Ru]
 ```bash
 magnet:?xt=urn:btih:F15084C45A31E65B6FA26B12981B78421BF4EB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mотоциклы самых популярных мировых произво�
 ```bash
 magnet:?xt=urn:btih:F4C317A8E5E025A9830C0E3DEFF3811DCE530292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B0EE62E4E004D1E1A878E947D792CB64CB9917C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Daemon Tools - маленький по размеру, но мощный по в
 ```bash
 magnet:?xt=urn:btih:0EE44496AB6825B4AB1551115D182B052769801E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Dance Collection (the remixes) 90s (2015) [MP3|320 кб/с]<Euro Dance, Pop
 ```bash
 magnet:?xt=urn:btih:F66E3624ACB7986CD95BBFA41E178664A3B0F4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Geekbrains | PHP. Уровень 1 Основы веб-разработки (201
 ```bash
 magnet:?xt=urn:btih:29B7038DC83A2E3B03A71029BC221445500B7083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Garmin: Дороги России Топо 6.20 (FID 1790) [Ru]
 ```bash
 magnet:?xt=urn:btih:5274FE126F0F71BCDC031D54083DFCF393F04A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:129D0C32CD60DEC0C9CAD738884A86715D6DD853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:501FA7F96C4CA5EFB7CB543AEDC750FA78A6E68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Dirt 3 Complete Edition вобрал в себя все вышедшие доп�
 ```bash
 magnet:?xt=urn:btih:6581BEC8DC067F4CC8F0D277ECAD8693FC355D7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Shadow Warrior – ремейк одноимённого классическо�
 ```bash
 magnet:?xt=urn:btih:3F2C090055F0DA14FF44C0244840B543E464EFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9376CB16573E4C5D06777A9767F06AB9F2BE5B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A32C033C8A023A6CE2CFA1F0432B63B7213BAE72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6890BDB45A417881FA8EDB4640F23AB5E13CCAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

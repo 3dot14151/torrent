@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:310C821415585CDF378473D6242CA07A83022EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Music For Everyone - Breaks & Breakbeat Vol.3 (2015) [MP3|320 кб/с]<Brea
 ```bash
 magnet:?xt=urn:btih:3E69D93891A307AB1C6B6E732DAF589671419998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ efs - 14 альбомов (2006-2013) Touhou Vocal /Doujin/ [FLAC|Lossless] <J-P
 ```bash
 magnet:?xt=urn:btih:7FDF8BDC110B8778F150AA5E856CF451073862A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Acoustic Lounge Essentials Vol 1-3 (2014-2015) [MP3|320 кб/с]<Downtempo,
 ```bash
 magnet:?xt=urn:btih:071D6D962D01A2749F0085F817019DF9F7F2F415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ CoolUtils Total Image Converter - преобразует изображения 
 ```bash
 magnet:?xt=urn:btih:054E759A79D1D16C6535CDD02B6D3BB5B3773DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D81D375D9C51CB26DDF50D1961DD356F1701D958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Mp3tag - утилита, для быстрого редактирования ID
 ```bash
 magnet:?xt=urn:btih:57473FCB2C659CC896751577099290370A1D82CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Onyria - Break the Silence (2015) [MP3|320 кб/с]<Symphonic Metal, Female Voca
 ```bash
 magnet:?xt=urn:btih:F23FF11814FCE5FC10DB919243679F2771DDA130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DD4E459B50171BF636A19654F936F209FB655BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04CAEAE00ECD05A3A35EFC8CFD7788A9984CC0F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Ghostpoet - Shedding Skin (2015) [MP3|320 kbps] <Electronic, Hip Hop, Abstract>
 ```bash
 magnet:?xt=urn:btih:AFC6B2603C3480D7D069DC8CC97F54B9B57C56C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - Standard Gravity (2010) [FLAC|Lossless|WEB-DL]<Atmospheric Drum'n'Base>
 ```bash
 magnet:?xt=urn:btih:2742305FD3BA0FCE7FD78797C9108269CBECFF84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00794D6A80C6DDDEDAF2AC89F6CE8B47A69228DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28DA68A98163FBDB527FA3A66A83D1F095137F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3476409D183A5C9046C6A17D3344759E56D041B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94AB69F46B511F2CD0C89B55068276992426EDD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:D5336CD046F69361FF65D38400FEF9247DAECD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Kumo no You ni Kaze no You ni | Like the Clouds, Like the Wind | Словно о
 ```bash
 magnet:?xt=urn:btih:ED25582A928242EE3D6DC3FE19D85C9B00DD0D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Secret Service - Jupiter Sign (1984) Еdition 1997 [FLAC|Lossless]<Pop, Electron
 ```bash
 magnet:?xt=urn:btih:CEFDA671287F38C575A18C463862297E44731455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ VideoCacheView 2.81 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:97337C8BEEBA03BB21FAF1148B8F44DC6D226452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:582E0310E24001811B51BC26A68CC73F49969636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14CB2AAF7E7D69E99F366D274EC189A89BA96F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DB4BF2DD15A2D80C28E67A540F377A83C0C3860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:272F4A7A63563FF5F425308ED528FE626F4C2B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E98EEC47078BB311857759F2A3C92D4D7DFBD11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F223EEF710A99CE56E147EA7AB630A088457C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

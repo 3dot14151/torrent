@@ -19,8 +19,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.0) License H
 ```bash
 magnet:?xt=urn:btih:5ABA0CCC9BE07CF56272621357ACA2BE28F088A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

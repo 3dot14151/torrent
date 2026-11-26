@@ -19,8 +19,7 @@ Titan Quest (2006) [Ru] (1.20) License
 ```bash
 magnet:?xt=urn:btih:827AF2593CFFB71AEAC4C616FAE452B64597D597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

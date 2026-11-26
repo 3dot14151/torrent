@@ -18,8 +18,7 @@ Google Chrome 64-bit для Windows доступен в новых канала�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ CGAxis - это он-лайн магазин 3d моделей, который �
 ```bash
 magnet:?xt=urn:btih:CB85771C7D5BC34D7C5D7DE45143ED2639A6686C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ WPI DVD v.01.06.2014 By Andreyonohov & Leha342 [Ru] (Авторская разд
 ```bash
 magnet:?xt=urn:btih:5FEF9252ECA1C55C60DC3B5B136D33A9D2FA1F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:270006D608752A239561B60BDBE648DEF5A45486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Murdered: Soul Suspect – увлекательное путешествие, г
 ```bash
 magnet:?xt=urn:btih:BED241021362B4FB0C4C1EC35CBFC9BEF68580E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D0B756E8FFCABA0E204B0C4E5216EB93676CAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ New Headway Intermediate (Fourth edition) by John and Liz Soars
 ```bash
 magnet:?xt=urn:btih:DA01322EDBEC7DC93A289F9488D13D6D0D237980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC7BA417475470E18E83ADBAAC954E6EAA80E2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Sundome / Сандоме (2006) [1-8 том, 1-76 гл.] [complete] [Манга]
 ```bash
 magnet:?xt=urn:btih:AA01EF7924E12936C50CBA06EEC6168F2FB94152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CE5C901C053C313AA7EBE45F9CC49F9E098CACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ SamDrivers 14.6 - Сборник драйверов для Windows [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C8EAB9D2D9815DAB8C957798CCB94864289DA86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ X Rebirth (2013) [Ru/Multi] (2.0) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:8AA797BEDD47C1A8467304A9010D400950B41317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Murdered: Soul Suspect – увлекательное путешествие, г
 ```bash
 magnet:?xt=urn:btih:D30AB42EC3CAFB51425599C8FF07938AB040701D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Dark Raid - это олдскульный шутер от первого лиц�
 ```bash
 magnet:?xt=urn:btih:708AF758C1502A972BCBD1A185751DCAE3155667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51A09E314D13A7B53C229DC0D9243A188E7F2A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ DriverPack Solution - это самая популярная программа 
 ```bash
 magnet:?xt=urn:btih:D3753DCCF1C4C77F8CB8C9E3A3CC740CE1FD46B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Euro Truck Simulator - игра, которая стала классикой ж
 ```bash
 magnet:?xt=urn:btih:09531F72B86E6FE51AF118DE0EB9D9A31DAFB600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02F1E42E4D31AABFE0C514014B2F1756007777D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ Lord Of The Rings: Conquest / Властелин Колец: Противост�
 ```bash
 magnet:?xt=urn:btih:6B006889FE42EFC1D44EDC1BE384D1ED239703EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ Legends of Persia – яркая и независимая ролевая игр
 ```bash
 magnet:?xt=urn:btih:0D43F8DF726CAEFA7D20C5B3DA9C3412B96AE6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8297A9FB07D4E04A4E91750864173DBEC26F1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ The Forest (2014) [En] (alpha 0.01) SteamRip R.G. GameWorks [Early Access]
 ```bash
 magnet:?xt=urn:btih:E5F36DDB44182B3020A5E2C3507471C8E7ECD3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ Murdered: Soul Suspect – увлекательное путешествие, г
 ```bash
 magnet:?xt=urn:btih:15181CC0E57E832DBF4C33CA55DB72DEDDA10C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

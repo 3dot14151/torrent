@@ -19,8 +19,7 @@ Chasm (2018) [Multi] (1.093) License GOG
 ```bash
 magnet:?xt=urn:btih:822FE43AAC4017CE3C1B974688C178DD0F19FE6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sun Haven – увлекательный проект, разработанны�
 ```bash
 magnet:?xt=urn:btih:E4ADF56753DEF3F444A55802DC43E41B000A1F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Primateria - это карточный рогалик с многогранно�
 ```bash
 magnet:?xt=urn:btih:BA1FC48219EE410B78D63718B5A0A5CE58DD19EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Strange Investigations 4: Truth Will Out / Удивительные рассле
 ```bash
 magnet:?xt=urn:btih:21457761FCF322083EFDC31DCF7850497AEE14FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Twin Mind 5: The Deathly Trick / Двуединое сознание 5: Смер
 ```bash
 magnet:?xt=urn:btih:2408B3D083F6E7479DAFE7245C2BE7FB21FA017D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

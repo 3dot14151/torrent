@@ -19,8 +19,7 @@ Nordhold (2025) [Ru/Multi] (1.1.05/dlc) Repack Let'sРlay [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:27CE9131BE6BC6899BACE478DD772DB0F25128B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11C862FE57F148B4C478FB74ABB30170E55615D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3.7/dlc) License GOG [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:86A1657B53A0FB31E7FF41F72E55338D0278ABC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Enemy Front - это шутер от первого лица, действие �
 ```bash
 magnet:?xt=urn:btih:38DDD4563F211074CEDEC2EE59898F281E0CCE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Aurelia (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay [18+]
 ```bash
 magnet:?xt=urn:btih:AC92A84224079114DF118A7DD9E24B99EE72E253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Space Adventure Cobra - The Awakening (2025) [Multi] (0.01.35/dlc) Repack Let's�
 ```bash
 magnet:?xt=urn:btih:FE127468FE390B2416EAAFF3ED2B9073FD7DEDDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Forgotten Realms: Demon Stone (2025) [Ru/Multi] (BuildID 19330718) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:7C6888D1AF24DC2F80E777B40B231F45A4CE7F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Herdling - это новое приключение от Okomotive, создав
 ```bash
 magnet:?xt=urn:btih:D9B63E6F3293C98D96BE3A1F6E81B1345814F150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F2D06A762C4ED556D3C333A87BEB9E4A53DAF74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ BROK the InvestiGator - The Brawl Bar (2025) [Ru/Multi] (1.5.3.7) License GOG
 ```bash
 magnet:?xt=urn:btih:CF2A6C2A9019CA4834854B87ADC95D4853D62B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A315176BD7E5F0E36D6776541D5DEA0BA3B0D9E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Artis Impact (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5CE356DFD411DCDDE0B8A70EF62AD987B824910C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.1) Repack FitGirl [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3FC367710F39671413746ECB727645F46EE57D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Forever Skies – это нетипичное выживание, в мире п
 ```bash
 magnet:?xt=urn:btih:C61D065E1E5853726E0F0C9517B418ED3C59EB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.1.3/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1AF65510F65B0343BFB4AF08ED1E06A7DAFF5FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Frozenheim – скандинавский градостроительный с�
 ```bash
 magnet:?xt=urn:btih:3CA81190B8D797595177713214830F8A9C560C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Relic Hunters Legend - это быстрая RPG в жанре looter-shooter, �
 ```bash
 magnet:?xt=urn:btih:0DDA220FAABE60A34481B73687AB7464ECED8697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (build 18840735) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6391BEBD807484B5D95CC3249E838C8A0DBE7437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 ```bash
 magnet:?xt=urn:btih:B3FD555508CC65259DBAA081AD52B84505913312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.11) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B7F4B7FD3423AE76974F31C62F8DA1DAC5044E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Miraculous - Paris Under Siege (2024) [Ru/Multi] (1.0) Repack Yaroslav98
 ```bash
 magnet:?xt=urn:btih:37996EA2DB9E62C097E7F4D0C4AA18877B506B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ A Little to the Left (2022) [Multi] (3.5.10/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5DFD2F7C9BC302C027A596539D54B7D8056E35BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +569,7 @@ Rage in Peace (2018) [Multi] (1.0) License GOG [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:B8FCA8302AF50220B972352C85F6FBC512DF3048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +594,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 ```bash
 magnet:?xt=urn:btih:AF5F0450072C742D070BE801099FA693B4F02E89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

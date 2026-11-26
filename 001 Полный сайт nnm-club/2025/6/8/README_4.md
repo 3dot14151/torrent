@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:174025AD9F1B8B2D9BFB9B68366FA8D197DDECE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Organic Chill House (2025) [MP3|320 Kbps] <Deep, Chill, House>
 ```bash
 magnet:?xt=urn:btih:08C108FA40D334DB944E3F7728A10153E1ECA2D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Food.ru — это пошаговые рецепты и мобильное пр�
 ```bash
 magnet:?xt=urn:btih:296301B55E5F01DC58D480B6AE46C8AA8DB24B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Epica: Live at The Symphonic Synergy представляет собой мас�
 ```bash
 magnet:?xt=urn:btih:419120D1847BD180703FF7C2DF23F0D290274D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:4FD9F1175B9C959ACD9B6D9FE1F023AE409F37C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D51855207E7361CE5C069B5294ED27FE704791B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AF7BD1315AC78D2D7A3AE2E943B27AD015BC69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43E2FF67FAED070C9E71F2C5ACD73795170C60F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:39DD106EFAB57B3EBDD4AEADDDE392074B853E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

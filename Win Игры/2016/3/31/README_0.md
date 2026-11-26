@@ -19,8 +19,7 @@ Amygdala – экшен-платформер, который потребует 
 ```bash
 magnet:?xt=urn:btih:7F20D7239146315F8910046CBF0E2FFE041C50FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Amigdala (2016) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:D56074504CE53154730B16FD12F937DD69F67371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crystal Rift - это приключенческий паззл-хоррор п�
 ```bash
 magnet:?xt=urn:btih:A16E1C961BD8A26EECAF13CD58064A4DDEA402BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

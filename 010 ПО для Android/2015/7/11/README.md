@@ -19,8 +19,7 @@ aniPet Aquarium Live Wallpaper — хорошие живые обои для в�
 ```bash
 magnet:?xt=urn:btih:400CAA8D9E43FDE060C0C5A764EA996E56108595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

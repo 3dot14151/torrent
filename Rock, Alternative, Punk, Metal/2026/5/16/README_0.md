@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:B21F758196EB52F294254695E14BF97695BFD7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Heavenfall - Thorn (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6E32742E50DB302E83A642E3CEF116713FA4002E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

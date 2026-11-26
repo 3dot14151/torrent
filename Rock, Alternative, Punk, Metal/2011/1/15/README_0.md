@@ -22,8 +22,7 @@ Maserati - Дискография (2001-2010) [MP3|212-320 kbps]<Instrumental Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Codes In The Clouds - As The Spirit Wanes (2011) [MP3|320 kbps]<Рost-Rock,>
 ```bash
 magnet:?xt=urn:btih:B101D052852B37005D9696DD418ADB6D527EDDD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BECC979481298DB24A067F2EC45FFF8DA0AAE0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Manowar - Battle Hymns MMXI(2010) [APE|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Uriah Heep - The Ultimate Collection (2003) 2CD [APE|Lossless]<Hard Rock, Classi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ All That Remains - ... For We Are Many (2010) [MP3|320 кб/с]<Melodic MetalCor
 ```bash
 magnet:?xt=urn:btih:6CC5B357C9E38AF090B79D95EFB5FB5D344FA6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

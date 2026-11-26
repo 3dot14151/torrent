@@ -19,8 +19,7 @@ Vangers / Вангеры (1998) [Ru/En] (1.46) License GOG
 ```bash
 magnet:?xt=urn:btih:7BEB2864D38462D84825830796330464DDDA0F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

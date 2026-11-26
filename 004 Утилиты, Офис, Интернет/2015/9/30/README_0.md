@@ -20,8 +20,7 @@ Wondershare AllMyTube - поможет вам скачать любые виде
 ```bash
 magnet:?xt=urn:btih:EEACA69D2E6BB5984354935B7BA32F82B933E37E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

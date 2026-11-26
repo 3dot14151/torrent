@@ -19,8 +19,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0743790CC2B40D54940CF42624923A65B35D8A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Twilight Monk (2025) [Ru/Multi] (1.4.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:88D4F72483A2C6C345BF05A8CC40DE837BEF87C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warsim: The Realm of Aslona – это симулятор управления �
 ```bash
 magnet:?xt=urn:btih:D72C32ABC6758C39FE4D38B8B6C916F1EC40198E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Songs of Silence погружает игроков в фантастически
 ```bash
 magnet:?xt=urn:btih:5F51CE364E79D1F69F36B62C8138DDCB939ACD47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wolfenstein: The Old Blood – предыстория игры Wolfenstein: The 
 ```bash
 magnet:?xt=urn:btih:839FCC95EF933B90C592F9820E815244C0DFE4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (6.5.0.1331/dlc) Let'sРlay Repa
 ```bash
 magnet:?xt=urn:btih:0753157B33E1188282F99C2A9597FFB4DB3C859E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Drill Core (2025) [Ru/Multi] (1.210.20.8.24.cadc052/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B83E9373CCD144C892B38C699CCFCDAB7E617EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Soulstone Survivors - это динамичный экшен-рогалик, г�
 ```bash
 magnet:?xt=urn:btih:E13999EDFB8324F1FB33DF42AC1A37A401BC6AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ inZOI - игра в жанре симулятора жизни, в которо�
 ```bash
 magnet:?xt=urn:btih:6C5844542B6F2F33D3C480473AA952FFFE0BBDFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Six Feet Under - Undead (2012) [FLAC|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -64,8 +63,7 @@ Daylight Dies - 6 albums (2000-2008) [FLAC/APE|Lossless] <Melodic Death Metal, D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +97,7 @@ Marduk - Serpent Sermon (2012) [FLAC|Lossless]<Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ OSI - 4 albums (2003 - 2012) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:726B83CB58139E34F804549F8C0848BD61479FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Saint Vitus - Lillie- F-65 (2012) /2012, Season Of Mist / [WavPack|Lossless]<Doo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

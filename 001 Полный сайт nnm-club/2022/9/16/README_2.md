@@ -18,8 +18,7 @@ XVI век. Английское судно терпит крушение у б�
 ```bash
 magnet:?xt=urn:btih:9E61CBCE14AA075029198713947F80168E632524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Slurm (Слёрм), Александр Волочнев | AWS База. Адми
 ```bash
 magnet:?xt=urn:btih:C7A2E84392C825D981A2FBE814A342E721B71221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D57289C52F5480D8DD86487EF67AB94A21E577D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Lectoria, Артем Зернов | MODX: Большой курс по разр�
 ```bash
 magnet:?xt=urn:btih:4DC761097DF992CB45333F995991C3A1BBBF3D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671
 ```bash
 magnet:?xt=urn:btih:C6205759DBDC816B0A5D3CF2AFE7369B2603EF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:440C5D1CB71E58AC4F57E59764EB9D82CCE69EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Slurm (Слёрм), Денис Наумов и др. | Python: Работа с A
 ```bash
 magnet:?xt=urn:btih:4E35DFF77F0A2987711AC84DBA6A290CB3C69C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8E971F2C1F0AD6D443747538F5E05FD2C06B065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DC51383ECDEAE560C15F2757057C427B8620B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Slurm (Слёрм), Марсель Ибраев и др. | Docker: from zero to 
 ```bash
 magnet:?xt=urn:btih:AC15002B7819B1C89C057B07BC36DB00F3D6C838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Blind Fate: Edo no Yami (2022) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1C42958EE6086EEA3CD1C03968C203D613242CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ MySQL сегодня — база данных, на которой работа
 ```bash
 magnet:?xt=urn:btih:088F67D03B63C3A8577915DCAE656F82C5B41E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2679B80545D84F0AF99E955C4AC51C5139AE84E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BBD64B059551223540A8C446C10A7574AFA80D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30AD201B6D0D49B30A84071D1A39CE0201BABE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAF3912702992F7069C97D91A51C33F1833F90E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ R-Studio Network 9.1 Build 191044 RePack (& portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1E045921B50A136A0BAD49A654260E73C53DBF03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:3AFB2176EF55B2B14D73ABFC52791B749932D90A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:48DD4016E039E1C60B14C2B97CE5BFE014C914F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:8551189F5783EE73CB0D33196BF217E536AEB3E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAC5A60CDD9FB899FE360A50B097F49F61F3F0D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3251C3F30D418B198E4F0101F6B6E57BF56E7287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D42F89FF5B3DA5475F0526BDC5B1DEBB26AF8E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ VA - Best 80s Pop 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:8025C939DB61502C2E1B4379FA401F42B73144F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0434BE4F9E7F49FA6CAE3E6DB78842831B2369A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ Slipknot - The End, So Far (2022) [MP3|320 Kbps] <Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:ACEDCF14F7422061FC0D7AFA6F4809CA69641103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

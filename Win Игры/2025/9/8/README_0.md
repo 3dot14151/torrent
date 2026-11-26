@@ -19,8 +19,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:DA43EA89C635EB03C4D7D02DE09513AD684C4C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mindseye (2025) [Ru/Multi] (5302548/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2F71AD229A75B4537BFF1CB71FCFC6E22D9F3471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Sims 4 (2014) [Ru/Multi] (1.117.244.1020/dlc) Repack Wanterlude [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:3FA5006D8D59B04D03FF69E289D924D3102085EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ TRAIL OUT (2022) [Ru/Multi] (5.1/dlc) Repack Let'sРlay [Complete]
 ```bash
 magnet:?xt=urn:btih:1C035A253A93EDD272864861881E2B9C52C4450D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Unseen Fears 7: Inner Darkness / Невидимые страхи 7: Тьма
 ```bash
 magnet:?xt=urn:btih:524E0F15A6097DD6A53386CA5AA909D50BB9565A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

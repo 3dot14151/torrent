@@ -19,8 +19,7 @@ Horse Adventure 3 [Ru] (P) 2004
 ```bash
 magnet:?xt=urn:btih:31BFA352A380AF19121487444A3A2190E7A2A2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

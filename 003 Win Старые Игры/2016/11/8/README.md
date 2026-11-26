@@ -19,8 +19,7 @@ Realms of Chaos (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:9C30B283CFFF45623108F56331E1863AD3C0EA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

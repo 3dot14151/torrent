@@ -20,8 +20,7 @@ Kopenhagen Wilfried, Neustadt Rolf | Das Grosse Flugzeugtypenbuch (1982) [DJVU] 
 ```bash
 magnet:?xt=urn:btih:F576F26E1826266C8B12960D7F1B31BBFE9BE398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E21EE4DBAA16CC33F0D9F57BEE4FE4397F93A65B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

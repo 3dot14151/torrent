@@ -19,8 +19,7 @@ My Life Story. Adventures (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:74EABC316C24EBFB6B78E2F8CC8A6CA949EFEEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Lost City: Chapter One / Затерянный город: Секреты о�
 ```bash
 magnet:?xt=urn:btih:EFE750DD953FE78D1FFC0746C7AEC1D7DFF213CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Partisan / Партизан [Ru/De] (Repack) 2008 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D0773453F1326C747EFC4AFD1FE410C4CE7B1FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

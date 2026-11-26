@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:092888B9FD0B33115671EAFF255FA66E7E0D7143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87EB0E14FF3DF5848AE081334797C6B29FDA879E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC7B9DF9ED8DE9F48DEBC73F887C04595B0D36C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Lifeless Planet (2014) [Ru/Multi] (1.0) Repack xGhost
 ```bash
 magnet:?xt=urn:btih:D4E7E7B2969B2D92D8431139888A2EF8A262BEFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22F8C43393CD52DDB322F465DBA753F00DCE70E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Paragon Hard Disk Manager - многофункциональное и удобн
 ```bash
 magnet:?xt=urn:btih:8C34447DBA95F602139B4B53AF1ED365B1C7F9E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6778D754126361F65D31FDD09FDAEFFE226C0125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Kaspersky Internet Security 2014 - комплексный Антивирус К�
 ```bash
 magnet:?xt=urn:btih:1CD0E952EFB97952EAD8CFBA585230AD89F1A34F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E9CAE4BB212807BC1224D599A3A922D901159AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Ubuntu 14.04 LTS & Ubuntu Server 14.04 Trusty Tahr [i386,amd64,amd64+mac] 6xDVD
 ```bash
 magnet:?xt=urn:btih:E56F57F1D8EBC7D85FE34A2EBD844BAB23D39E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC0083AA33EE91312741A59890E78F425FE5A637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C63826289B6995D674A09C8418321E0C5A1A63B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ State of Decay (2013) [Ru/Multi] (14.6.5.3080/2dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:C58A2C5820017B33E1E97E0A1B8FB8731BD35733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

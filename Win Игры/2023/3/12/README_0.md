@@ -19,8 +19,7 @@ Contraband Police (2023) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:C22A54E46620511513FF8042348F293FC9AAF677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wasteland 2: Director's Cut (2014) [Ru/Multi] (2.3.0.5(a)) License GOG [Digital 
 ```bash
 magnet:?xt=urn:btih:27772993A21743609950C2ABF3F2AB135C574ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sunrider 4: The Captain's Return (2023) [En] (1.2.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:7FABD1B3DEC92AF51B45C5B649A68EB7B9213361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vampire: Masquerade - Coteries of New York представляет конфли
 ```bash
 magnet:?xt=urn:btih:1AEB68439652F4D8BC11BB0B65EF4C75DE99DE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

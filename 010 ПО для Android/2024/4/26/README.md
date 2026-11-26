@@ -19,8 +19,7 @@ Reface v4.9.0 Mod by Mixroot [Multi]
 ```bash
 magnet:?xt=urn:btih:12F7117042A5121868F6B4FE0B3A2445901490B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

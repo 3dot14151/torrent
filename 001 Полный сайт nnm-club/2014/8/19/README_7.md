@@ -23,8 +23,7 @@ Tall As Trees - Demo (2014) [MP3|320 кб/с]<Screamo, Punk>
 ```bash
 magnet:?xt=urn:btih:B0C43E2F26E0288A4210335B5B2DBA1B9B9DF374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Endocrine Wolf - S/T (2014) [MP3|320 кб/с]<Hardcore, Crust>
 ```bash
 magnet:?xt=urn:btih:F6AFBEFFD4FA96D8B86AFEE7DF81E9C982FD78B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Lions - Avoir Le Mal De Quelqu'un (2014) [MP3|320 кб/с]<Screamo, Punk, Melodi
 ```bash
 magnet:?xt=urn:btih:F5CCF09B663C1011C511C601F349E117B4A8023A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Messes - This Is A Thing (2014) EP [MP3|320 кб/с]<Screamo, Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:57955447D0014F348AD206D65BE083A9D6386235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ Purge - An Exercise in the Fundamentals of Unorthodoxy (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:8EE97CDB6652D12FED904150137872E86E213E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Makondo - Makondo (2006) [FLAC|Lossless]<Ethnic Jazz>
 ```bash
 magnet:?xt=urn:btih:BC8A1270F245304ADD66EED8DA09238C428BB524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ La Mar - Tides (2014) [MP3|320 кб/с]<Post Rock, Post Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:CF48CD653B6040323A46159A96DF3A3B7FAA23F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Trainwreck - Old Departures New Beginnings (2014) [MP3|320 кб/с]<Screamo, Har
 ```bash
 magnet:?xt=urn:btih:77D0D62DA8BC15A7C6ACE35375266DD15BDEC2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ Lowhill - Hollow Words EP (2014) [MP3|320 кб/с]<Melodic Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:3FF2E2C42D2E0D35AAFE5E209658C3863D08B157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ Cerce - 2 Альбома (2012) [MP3|320 кб/с]<Powerviolence, Hardcore Punk, 
 ```bash
 magnet:?xt=urn:btih:8347B153956EC090156B5141CA59F8A52D6EE5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ Dignan Porch - Observatory (2014) [MP3|320 кб/с]<Indie Rock, Shoegaze, Psyche
 ```bash
 magnet:?xt=urn:btih:CC38ED559F9DD4E9063EF0A6B62DF4845F8A7616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +369,7 @@ Widower - World of Hate (2014) [MP3|320 кб/с]<Melodic Hardcore, Metalcore, Pu
 ```bash
 magnet:?xt=urn:btih:6DF8D37D0C52A7441D5C55A3EBE6CAB309894FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ Wess Meets West - When The Structures Fail Us (2014) [MP3|320 кб/с]<Post Rock
 ```bash
 magnet:?xt=urn:btih:35495BD0351A2C2E1F0F4789D8E1A6C0A1C18AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +432,7 @@ Stresscase - 1 Альбом, 1 Split (2011-2013) [MP3|320 кб/с]<Powerviolence
 ```bash
 magnet:?xt=urn:btih:875A881AFECA563AB1465F048C1CD3C00E306007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +466,7 @@ Zeno Morf - Kingdom of Ice (2013) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:32961DEF2DEA5FAEAF55DEF9308E31AC8037D5AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ Maat - As We Create The Hope From Above (2014) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:8F6B295B8FCB9F5426300BC261CCA8E71540CFC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +533,7 @@ Sava - Labyrinth (2012) [MP3|~222-286 кб/с]<Folk Rock, Celtic>
 ```bash
 magnet:?xt=urn:btih:EE34188371FFA7C9150B770E4963B75AF52044B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +566,7 @@ Makoto Ozone - Jungle (2010) [FLAC|Lossless]<Post Bop>
 ```bash
 magnet:?xt=urn:btih:79F1056D6D6252617909F3734BCB89EE6255DCD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +593,7 @@ A Better Finder Rename умеет извлекать EXIF-данные о вре
 ```bash
 magnet:?xt=urn:btih:F4D90F9ED8BC4AA43B08B9E91F1F5EA8102D5C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +627,7 @@ VA - VANDIT Records Summer (Paul Van Dyk Presents) (2014) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:9D57F8207A86FAABE894E7A29930318B2C9E00F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +659,7 @@ VA - RAM Records - Presents RAMLIFE - Loadstar RL1 (2014) [MP3|320 кб/с]<Drum
 ```bash
 magnet:?xt=urn:btih:A5AD76D38A980D542D4544289677D1649B69188A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +693,7 @@ Whipping Princess - Birth of Rage (2014) [MP3|320 кб/с]<Heavy Metal, Hard Roc
 ```bash
 magnet:?xt=urn:btih:8D461FC80CF8B52C40FC2B904CDE75FAFB1A7405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +727,7 @@ VA - Клубные Новинки Vol.482 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:C5F21BF2B78E39D836EDA327676954CAE9335379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +758,7 @@ Pelican - Arktika - Live From Russia (2014) [MP3|320 кб/с]<Post Rock, Post Me
 ```bash
 magnet:?xt=urn:btih:D08DFE52719AC781387D9AC56282D8727E3B8B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -807,8 +783,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CFBEA85BC26968D59E9F755BBCA5B578022738C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -839,8 +814,7 @@ Long Distance Calling - Nighthawk (2014) [MP3|320 кб/с]<Post Rock, Progressiv
 ```bash
 magnet:?xt=urn:btih:1ABB144C2FFA1FDEC06F0C4DC2F7CD401AB686AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

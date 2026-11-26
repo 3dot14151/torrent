@@ -19,8 +19,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:3BA7E6BA30F3F87C26F26D56DE6038E3410D3BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:BD426170927CEC58ADD096BBFD5A494D84C9B2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

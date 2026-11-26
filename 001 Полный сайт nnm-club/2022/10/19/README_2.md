@@ -21,8 +21,7 @@ VA - Jazz For Kids (2022) [MP3|320 Kbps] <Джаз для детей>
 ```bash
 magnet:?xt=urn:btih:CBAD09089893094B68E12E7C66173AE50DEFBAC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AD4D7843A3143D9ECDC5E7EC376837CA6B7E60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:839D69B63580966905E80E6FD63D2E9A4D40A4B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4CB2AABC6040526756B4AC65046DF1BFA15F2ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Positive Grid - BIAS FX 2 Elite Complete 2.5.0 STANDALONE, VST, VST3, AAX (x86/x
 ```bash
 magnet:?xt=urn:btih:C952CA091923838D4AACA4B2003198B30EC12580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Opera 92.0.4561.21 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:61ABF09366256E3267E3053C6792B3DA865BB9E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:B9EA875276EBC39ABDD186D056D3E43DACB40012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 ```bash
 magnet:?xt=urn:btih:4A1EA1FC752FB4882D974CA8A345D0A67D211429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Eastward (2021) [Multi] (1.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:645C47F384309EF033F9A1F5722C76D5B10D08D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Mario + Rabbids - Sparks of Hope (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7A4093D6100A33CE484EE314C6FD179F39C58B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6B2D4455ABE8CC1C9914C5A943921CFD99D1734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ VPN Proxy Master - супер безопасный и неограниченны
 ```bash
 magnet:?xt=urn:btih:33B7D420BE2DB98F87DAE561FA0141099251C4A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:C2DF5A4E08EAF1D2623F35FFC08A7852B5A12F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DCE564CD33118DE68F9D812EBD1637A2FA7A1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ AnyDesk 7.1.6 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C5B8F5196159AE63486E5F941EB8031F9BDEF63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ Kaspersky Free – бесплатный Антивирус Касперског�
 ```bash
 magnet:?xt=urn:btih:44C78C5B89AC4F461AC2D8056E4FAE8613019BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Windows 10 October 2022 Update (под кодовым названием "22H2")
 ```bash
 magnet:?xt=urn:btih:296FEEE7F40F98CC10092FB60EBE190456C59646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ Adobe Photoshop 2023 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:11168A942BF5F76BBBE11D2D623DAF043F7E2556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1B019B4909E700214683CFE053CDE0A76090AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88BCD330F4BA30650DA1445158A2324BF12600AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76D618430255E1ED11EC9E0B7584EB13309FAE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98476D427A7A606BA651961ECDBA0AFB027D7C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:7B29C77CA385B4F089F694B5DE6E13241116EF56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +625,7 @@ Windows 10 IoT Enterprise - это полная версия Windows 10, кот�
 ```bash
 magnet:?xt=urn:btih:A19C5E5F9596FD05FB926F040E5680B137E80109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +653,7 @@ Windows 10 October 2022 Update (под кодовым названием "22H2")
 ```bash
 magnet:?xt=urn:btih:3854CE45520C490E698C783D991368A20A800EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

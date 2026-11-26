@@ -22,8 +22,7 @@ A3 Солнечные Дни(   Читать дальше...   )Жанр: Rock, 
 ```bash
 magnet:?xt=urn:btih:D5E5BB41649F6C276D99DCDB81EA2241CBA6C493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

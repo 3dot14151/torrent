@@ -25,8 +25,7 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:B5ED2AC853611D80AA283028FA1BA18E6956ABE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - 100 Hits - The Best Soft Rock Album (5CD) (2018) Box Set [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:06AF0C65177FEF3047FCC98C078C9FA820BCFBF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

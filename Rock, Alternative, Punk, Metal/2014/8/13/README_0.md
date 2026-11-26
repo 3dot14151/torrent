@@ -28,8 +28,7 @@ VA - Don't Ever Say Riotous Outburst Records Never Gave You Anything Part 7(2014
 ```bash
 magnet:?xt=urn:btih:7B3CB6C59330B3F03FD2A0123BAB63C1CFAA4E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Entrails - Resurrected from the Grave (2014) Demo Collection [FLAC|Lossless]<Dea
 ```bash
 magnet:?xt=urn:btih:96C0E2FDB85FDFB1CB79D3B35EA45BD06E81F68E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Evil United - Honored By Fire (2014) [MP3|320 кб/с]<Heavy Metal, Thrash Metal
 ```bash
 magnet:?xt=urn:btih:FD4F7AD4D3CC6B4FA578EC7F45F33DB6DAB3E5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Cymbals Eat Guitars - LOSE (2014) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:ECB26B6ED8BDCD2431A8595BC5DEBA4092A39DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Age Of Artemis - The Waking Hour (2014) [MP3|320 кб/с]<Progressive Metal, Pow
 ```bash
 magnet:?xt=urn:btih:AC3F4B37A7248D5DF786E1793426FEAA20547D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0FCF0710E8B2E6374760BAFB788DC3761148C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Deus X Machina - X (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:F5A7876F77B58CDBEB9D2778D76187A3CAEF5EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Crepuscle - Draconian Winter (2014) [MP3|320 кб/с]<Symphonic MDM>
 ```bash
 magnet:?xt=urn:btih:944BBB46B369C7B79CD44BD0A23F47E20388C813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Edge Of Thorns - Insomnia (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:82F0838F4DFEB94E97D04F1A95B89DB409A7A90E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ Crystal Eyes - Killer (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:B81268622E704DCE589D9430797BB46BEE3F44A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +365,7 @@ Sinéad (Sinead) O'Connor - I'm Not Bossy, I'm the Boss (Deluxe Version) (2014) 
 ```bash
 magnet:?xt=urn:btih:1AEBC206D0957E131B2D294994402AEAB54E9032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +399,7 @@ Capture The Crown - Reign of Terror (2014) [FLAC|Lossless]<Metalcore | Post-Hard
 ```bash
 magnet:?xt=urn:btih:4C9347862E5DAB35AEE76500D33F5E4612F6DF81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

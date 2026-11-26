@@ -19,8 +19,7 @@ Moo0 System Monitor позволяет бдительно следить за и
 ```bash
 magnet:?xt=urn:btih:EFEEA24DB74C813D09DA7E4AF6CFFF4CCF7F4DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

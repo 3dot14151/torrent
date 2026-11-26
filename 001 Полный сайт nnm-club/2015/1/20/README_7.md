@@ -23,8 +23,7 @@ Raum Kingdom - Raum Kingdom (2014) EP [MP3|320 кб/с]<Post Metal, Sludge, Doom
 ```bash
 magnet:?xt=urn:btih:7E970D2FE96B163729914E590D7033162D44DF0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAA0CF7825964B0A81F4217A4662DC6EDE16F662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36D85395DAB9BE9AA001C3995F7D72E4BD828090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Shroud of Distress - Be Happy (2011) EP [MP3|320 кб/с]<Depressive Post Black 
 ```bash
 magnet:?xt=urn:btih:2080670CB4250F07D6125CE69CBD9D499FDEAB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Grudge Connection - Animachine (2015) [MP3|320 кб/с]<Death Metal, Industrial>
 ```bash
 magnet:?xt=urn:btih:72920CF86DAFC0C89933D52CE99C73B391D6929B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Martin Nonstatic - Afterglow (2012) [FLAC|Lossless|WEB-DL]<Dub Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:959F7218B2FCEB9B709C7FBE76A16AAD29F63210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E27CBF9E0EE4042F1D744821DAA18C447F03A29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ Sonny Rollins - The Sound Of Sonny (2007) [FLAC|Lossless]<Jazz, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:E1C3CE9FCEEA0320BCE12855D1A188605112FB85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF4D424902BDC6EAC369A47CEE29DB667201DC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ Raining Forest - Buried My Heart At Wounded Knee (2013) [MP3|128 кб/с]<Ambien
 ```bash
 magnet:?xt=urn:btih:AEE3FF313818A526D977CBE39C9C586137E9DCDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ Ochre - Isolette (2015) [FLAC|Lossless|WEB-DL]<IDM>
 ```bash
 magnet:?xt=urn:btih:69BAFD8A52754947274AD7D9E80F99A0923BB0C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Silvia Droste - Duke's Sound Of Love (2000) [MP3|320 кб/с]<Vocal Jazz, Bebop>
 ```bash
 magnet:?xt=urn:btih:1D00ACBED56EC5DB54EA163912F24A08AC5B0B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Silence of the Old Man - Carencia De Ausencia (2010) (EP) [MP3|320 кб/с]<Atmo
 ```bash
 magnet:?xt=urn:btih:4A2DE386AE25EBEA361E8DC90B115B598C5F6E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96253093E0615C60921193AA1D2948A774A14F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ Sports Afield («Спортс Эфилд») — всемирно известн�
 ```bash
 magnet:?xt=urn:btih:60E7BD81A13237CD428F2A94B6FAFF333F3A64A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:275199A939894382D1BA08E787AF25A6A6BBD2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ Miles Davis - Sorcerer (2006) [FLAC|Lossless]<Jazz,  Post-Bop>
 ```bash
 magnet:?xt=urn:btih:06021A9C109FEB95DD34A0C25F4A2BAD73BC57B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ Sylosis - Dormant Heart (2015) Limited Edition [FLAC|Lossless]<Melodic Death/Thr
 ```bash
 magnet:?xt=urn:btih:8B3375FACCD680E82B80159D505B880DE3D1EE3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ CD2{A Night At The Village Vanguard & Newk's Time} (00:56:14)
 ```bash
 magnet:?xt=urn:btih:A3C6B68A99349392C0EC839C6745C32E651E4AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D80E6C1CA46EDF617A318D723CB06C295A167288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ Funeral for a Friend - Chapter and Verse (2015) [MP3|320 кб/с]<Alt.Rock / Pos
 ```bash
 magnet:?xt=urn:btih:EC23833282D6FD7CA18D01DD22B71AE24FAF40F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F902C555B46B9D78A35A7F2448B13A4B0FA2EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED83879424146CF7E7FCD1784A21CD8A1A265E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B31EEE77E09026B2ABCE574398273110FB1C0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ VA - Зимняя клубничка 30 (2015) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:5A1112FAE4BB701EFE8FC96574F41B1BD4AB14D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ Ecstasphere - Feed Your Head (2014) [FLAC|Lossless|WEB-DL]<Rhythmic Noise, Indus
 ```bash
 magnet:?xt=urn:btih:76F55B5B89B74F7CC88969B1295BE7D6B905462A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

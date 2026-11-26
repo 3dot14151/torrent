@@ -19,8 +19,7 @@ Mystery Case Files 26: A Crime in Reflection / За семью печатями 
 ```bash
 magnet:?xt=urn:btih:D2FE115B09990124D3ABB4CAB6FEE4B249AAFB4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Royal Romances 5: Cursed Hearts / Королевские романы 5: Про�
 ```bash
 magnet:?xt=urn:btih:F0A583874F3BE3D715A7B678FA74CE07684E8AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ghoul Castle 3D: Gold Edition переносит пользователей в �
 ```bash
 magnet:?xt=urn:btih:24484DB03EAFF2D23477F5CE4CB6A4308D922ED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mundaun — это жуткая история с карандашными ил�
 ```bash
 magnet:?xt=urn:btih:AD98460209CF6390332F34ADBD130B44361EB645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

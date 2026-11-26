@@ -22,8 +22,7 @@ INFINITE CRISIS - Супергеройское сражение вселенск
 ```bash
 magnet:?xt=urn:btih:074F91356A4C2723D4DAEDC03F4B8E3A1E3E20EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

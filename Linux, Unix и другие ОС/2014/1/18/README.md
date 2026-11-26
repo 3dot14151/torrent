@@ -21,8 +21,7 @@ CAINE 5.0 (компьютерно-технические экспертизы, �
 ```bash
 magnet:?xt=urn:btih:99CD7D2B987F0B927BB55E79A60A0885744DEA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ BackBox Linux 3.13 (Анализ безопасности, хакинг) [i386, 
 ```bash
 magnet:?xt=urn:btih:AD669D46BD20AFC5FA3082B19EB1C197E9721FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

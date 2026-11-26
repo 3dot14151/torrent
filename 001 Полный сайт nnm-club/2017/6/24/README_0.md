@@ -19,8 +19,7 @@ Arch Origin - Soul Castle (2017) EP [MP3|320 Kbps] <Deep Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:EDF0AF190071061D6AF356472011DAAF5F26F84E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - The Best Technomancer & Angst Pop Remixes (2017) [MP3|320 Kbps] <Sуnthро
 ```bash
 magnet:?xt=urn:btih:47CC8F6908DA16D9F8D142FA6C8C4E98E34CE45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Magic Island - Music For Balearic People Vol. 8 (Mixed by Roger Shah) (2017
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0175D92ACED0AF107097B059F050BE503F25033A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Morning Sounds (The Best Of Extraordinary Chillout Lounge & Downbeat) (2017
 ```bash
 magnet:?xt=urn:btih:19DD182583EEFEB7F43E05C1E4AA50CF4AEFC960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:85F02443C9D1A3DC9E1A9855EAC0E08CCCD0C3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Thornetta Davis - Honest Woman (2016) [MP3|320 Kbps] <Detroit Blues>
 ```bash
 magnet:?xt=urn:btih:D79A54D533A8C25E3FB5F911EC4BBBE38CAF5D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Primal Fear - Angels Of Mercy: Live In Germany (2017) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:97789184288F916309C9A519C3BDCA1BBC05BE30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Wes Lee & Th' Possum Foot Mojo - Lucky 7 (2017) [MP3|320 Kbps] <Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ InternetSpeedTest (Internet Speed Test Meter Net) 2.5 [Multi]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1F0558ED8D8C25226015EBD5470452689A64F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E35226AA2100C346DE54E77C69AD0B07CD4335D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Sophie Malbec - Road Of Blue Memories (2017) [MP3|320 Kbps] <Electric Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ Nitro - Nitro II: H.W.D.W.S. (Hot, Wet, Drippin' With Sweat) (1991) Reissue, 199
 ```bash
 magnet:?xt=urn:btih:9AA69EEE35407A9A555F12898FEF4413C5E9E594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Frammer X - это простое приложение, которое позв�
 ```bash
 magnet:?xt=urn:btih:72DDF44402D0F79B0758DB30DA722A33B4F52209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C220D93D343732010499ABFFBC606AE69003458A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Boys Town Gang - Disco Kicks (The Complete Moby Dick Records Recordings) (1994) 
 ```bash
 magnet:?xt=urn:btih:3C4E92FEA6CCEC634FDCB1CECCFEA4A4CD6B3259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ Bandizip это быстрая и надежная программа, кото�
 ```bash
 magnet:?xt=urn:btih:765E157651D2F6A7EA559F7E28E843EEB71C5255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A89D6367CD36BBA2F6BC0EBCF2CAFB327005D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ Joe Yellow - Greatest Hits & Remixes (2017) 2CD, Compilation [MP3|320 Kbps] <Ita
 ```bash
 magnet:?xt=urn:btih:9FE001A6938158C9F8C189329DFB844C1BE6036B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ BBC: Веллингтон - железный герцог без маски / We
 ```bash
 magnet:?xt=urn:btih:B1615C537417DAAD627A4AFCECCB3F8AED3517FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81CE7705842952B3F7C7D02C50023DC1F4BA5717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

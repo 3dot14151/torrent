@@ -22,8 +22,7 @@ Vektor — американская прогрессив/трэш-метал г�
 ```bash
 magnet:?xt=urn:btih:2AD5B0B41551BF23A4268344AD8771A4A8319377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

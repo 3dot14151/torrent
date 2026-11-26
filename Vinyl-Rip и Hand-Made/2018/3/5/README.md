@@ -22,8 +22,7 @@ A4 A Woman Who Sings · Женщина Которая Поeт(   Читать д
 ```bash
 magnet:?xt=urn:btih:F99F729BD77B67D57886CDFD2742E31DB8E336C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

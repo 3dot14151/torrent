@@ -21,8 +21,7 @@ Dusty Revenge (2013) [En] (1.0.3192) License SKiDROW
 ```bash
 magnet:?xt=urn:btih:D2B6ECC3BE2AD451723D1AF7A95087E5752755F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Opia - Eon (2016) [FLAC|Lossless|image + .cue]<Progressive rock>
 ```bash
 magnet:?xt=urn:btih:7B08E73B080234B9987866B8EF95D92C84C027D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - The All Time Greatest Rock Songs Vol.1 (1998) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:D5F0F863508E0B70F348D1904D31F7BF3548AE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

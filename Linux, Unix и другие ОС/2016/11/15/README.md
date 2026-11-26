@@ -19,8 +19,7 @@ Oracle Linux — инициатива Oracle Corporation по созданию �
 ```bash
 magnet:?xt=urn:btih:F3F347DB0DA9BC6CDE85D647CD656C96024EA506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Crypt of the NecroDancer — это хардкорная помесь "рога�
 ```bash
 magnet:?xt=urn:btih:01B0E6C8C469366F7409EAA16F84073F1F5896B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Warhammer® 40,000®: Dawn of War II® - Retribution™ - второе отде�
 ```bash
 magnet:?xt=urn:btih:801A84DCCCF8B32D338C466CA96CAC710282B878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

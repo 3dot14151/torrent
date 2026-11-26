@@ -22,8 +22,7 @@ Last Autumn’s Dream - Paintings (2015) Japanese Edition [MP3|320 кб/с] <Har
 ```bash
 magnet:?xt=urn:btih:95C99095FA5249BE12F2163E9E518E34BE3A75FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F08B0B99B6AC07EB9F5B24694FF1DE95087CAFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D268D2746045163A2F1C75690F6FE49893A246B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ David Gilmour - Greatest Hits (2015) 2CD, Japanese Edition [MP3|320 кб/с] <Pr
 ```bash
 magnet:?xt=urn:btih:802D9B529CD149E844A3441721D102F61A1BDFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

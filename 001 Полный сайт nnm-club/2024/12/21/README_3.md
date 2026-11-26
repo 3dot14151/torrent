@@ -21,8 +21,7 @@ VA - The Best Of Summer 2024 Broken Beat Nu Disco (2024) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:AA607861DFE7F139D3B558E0576BC3A88FA0F554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:870BFA652897323F491B2668BB6955EFB8A22CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - DJ's 12" Club Tunes 2024: The Best Of (2024) [MP3|320 Kbps] <Dance, Club, H
 ```bash
 magnet:?xt=urn:btih:AF64FB638A9A05641F9CD94FEFB311EE1DA0DABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Kodeseven - Dystopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Industrial>
 ```bash
 magnet:?xt=urn:btih:1F0B49CC6C4C3E3CDE7C838787BA31C040099F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Winter Top Tracks Deep House Natural Soundcloud (2024) [MP3|320 Kbps] <Hous
 ```bash
 magnet:?xt=urn:btih:6C9203EA7065171DBAE9A7F7D17C0E03049EEA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:514BC482BFB5F57A453866CC3982472944C0C116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Katy Perry - 1432 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:59513F493F280A67AE83713DE35C95DC92B59441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - Melodica 2024 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic Ho
 ```bash
 magnet:?xt=urn:btih:1F5BB41ABD3D45861E557AB643471F5C704F88D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D5951A559FF36C987DA286CD023470CCAAB8B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ VA - Happy New Year Party 2025 (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 ```bash
 magnet:?xt=urn:btih:4EE3325A262CCB4FD34F5F5BC7AEBEB31BA62311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08CF5637DC04D48477906874F9A4AF905F94E81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ VA - Armada Music Year Mix 2024 - Extended Versions (2024) [MP3|320 Kbps] <Dance
 ```bash
 magnet:?xt=urn:btih:ADBFE759A3389AA6AD0DFF777776CF69CFD1D460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ WaveEditor для Android™ — это профессиональный инс�
 ```bash
 magnet:?xt=urn:btih:E59628620CF4FCC04359A7847BBDFDF713F3EAAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ South of the Circle — эмоциональная игра с глубоким 
 ```bash
 magnet:?xt=urn:btih:0B84C662B27754FB068D79D0732A38C1BE67E84A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:929B7A38A92469185A39E79350B42EC9EBADD90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B76F7FDEE8161C22416CEB5192503B93FD58CCB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BA6432731F825333E3E9BD99DD4BEAD2AEC67E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F919A2496570DA6E2E14A83EFF2C2E9248C4F5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ED93CC6ACE4340ADDA6732CEDF37EEF52C8B878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:182906CCA751D6C15A5451630334324FDFD02FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16E6C642A3C8C98FEE48DB3A41D2694F427E0B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F35EBF46D093B0A1056DE8A9837C0AF2555E136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ Mystery Case Files 27: The Riddle of Mrs. Bishop / За семью печатя�
 ```bash
 magnet:?xt=urn:btih:6B935F3A1D36233F123E9FF3BD400FE914E913AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E40D7026E5D4187A507D653800A24FA8E1DADC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chef: A Restaurant Tycoon Game (2020) [Ru/Multi] (1.6/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5372A5CA980572E1AD1E2F4EEF02D8FF6FF9E28C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Armored Brigade (2018) [En] (1.068b/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A8DE0B44F3946D0AEE5D91A19EF4E914EFE20873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:F4443221E1B6B432BAF36F973C46263B96F5AD08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SOS OPS! – отправьтесь навстречу забавной кооп
 ```bash
 magnet:?xt=urn:btih:9BE451E29673438FDC3D5FBD6A681796958B3703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Elegy of Fate погружает вас в уникальное ролевое �
 ```bash
 magnet:?xt=urn:btih:FE782D10C8486E4EFF80A21F4C37C988EB768845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ DETECTIVE - Minerva case – постарайтесь раскрыть весь�
 ```bash
 magnet:?xt=urn:btih:A89B32FC96EDA3681313A423508A184A4A39972D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Autopsy Simulator – симулятор с элементами хоррора,
 ```bash
 magnet:?xt=urn:btih:5C8011381A8AD785B4A4C7C86AF96FD21C8B0EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ ALTF42 - это динамичный аркадный экшен от 3-го л�
 ```bash
 magnet:?xt=urn:btih:C0415995ED6CD6322F5F684B0F78480CFC18B536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ FUBG: Fight Unknown Battleground - захватывающий одиночный
 ```bash
 magnet:?xt=urn:btih:177267EFB14D4E771FCDDD0131FB9C4AC06FF8ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ ALTF42 - это динамичный аркадный экшен от 3-го л�
 ```bash
 magnet:?xt=urn:btih:00D04959F3230EDCC037827D5F5880678BA291E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Myth or Reality 3: Snowbound Secrets (2024) [Multi] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:5F8BE028AF604F1231F099BD1B2928105B611046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ KaOS Linux 2015.06 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:A2257FCDBDC65C80E7C30E25318686FE08727A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

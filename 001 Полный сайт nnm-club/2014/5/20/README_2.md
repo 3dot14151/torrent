@@ -18,8 +18,7 @@ National Geographic Traveler - это журнал о путешествиях �
 ```bash
 magnet:?xt=urn:btih:70CCE97AD5577567FA48004A3106858C0C70A343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Только новое на МузТВ (2014) [MP3|256 - 320 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:D4576E14A916B983BE97CF6D1C5B3A67BB4D4186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:75F08D82BDEA1272A785A60396AAA8C802A88866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0E8444AF013AED74230AA980500AFAEDD61B7C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35D1604B97B318146DEE161C786F7034A0F930F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:338B2A0808F8140A8682DCA90D2607A900680FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Wallpapers - Обои для рабочего стола - BioShock 2 [JPEG, PNG
 ```bash
 magnet:?xt=urn:btih:B5EF4F904140993A9F398BD7AC163C6101C92488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ FotoSketcher поможет вам автоматически конвертир
 ```bash
 magnet:?xt=urn:btih:55D803F5A47A831FDF2BA336CD9447C8E01F5162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Classic ROCK, легендарный английский журнал, став
 ```bash
 magnet:?xt=urn:btih:1630590BF5CAD8B33D1B97067BED291511D9C6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FD1BD53268CAF72AE6CFDCF9A37A2E49BC79925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90E0EBA9D1ED50C4433A99C380835D4B336622B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F58C968391C365CCACABC002AE2EE7BCE8EC8B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB06DBE63109FAA934BB19F104B013E778D8E156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1101A966FFB6EC03A3682EA20C69E3B97E06BD26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78968857A4B61F75E7D7CFCA3C91048F745C80DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Mixed Full HD Wallpapers для вашего рабочего столаРазр
 ```bash
 magnet:?xt=urn:btih:FD8F42DADF43666654948221378995230C7B0678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A27ED2FC6395A285C2F82B08A09DA2BD4B9509BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D1D449521E2DEBBC06CE14B6E66C60995137182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ Handy Start Menu 1.93 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AC30A81990F328CA21C823902DF45C83F023EA73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26B3CF0655DF917829BA5E52D4B8660C481A9A83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Google Chrome 35.0.1916.114 Enterprise [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3D7A1DE985FD6C473092A3650D3B989569CCFECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:693733C93E630C3963A4B49861A23E3C9E1809DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ ManyCam Virtual Webcam Free 4.0.78 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4C6D5036EDF50FEABA456E541EE1676E0C469DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ Windows 7 Manager - утилита позволяет пользователю �
 ```bash
 magnet:?xt=urn:btih:FD4492F644180C4E0A0DDEC74C28E34736CF13E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ Cosmopolitan – женский глянцевый журнал №1 в мире
 ```bash
 magnet:?xt=urn:btih:F8E73250A611AFBC08F07E457D42924CFB725BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ AI Roboform - программа совмещает в себе менеджер
 ```bash
 magnet:?xt=urn:btih:8D1E1AB72C938F80AC82BD43690990E040964D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

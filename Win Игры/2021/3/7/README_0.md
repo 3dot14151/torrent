@@ -19,8 +19,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.4/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:19BD487BF46642D57FC34B119FFB65F0715A5463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

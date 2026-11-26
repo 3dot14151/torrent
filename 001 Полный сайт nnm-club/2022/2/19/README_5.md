@@ -21,8 +21,7 @@ VA - Ремейки и каверы NNM 4 (2022) [MP3|320 Kbps] <Pop, Dance, Oth
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15BDF2A4B99A69A90445FD63E301E7868EC14184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6333BC870CCE99DE3D0CE3178CE172159E5A9809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Martin Hiska - Blue Times (2022) [AAC|~360 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0DDEF6BBABA160AA49F6CBC713DC8D5E2BA4CD73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - Notes from the Depth, Vol. 7 (2019) [AAC|~306 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:24F63FD57CD3640AE46FCEC55329D85107826890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Notes from the Depth, Vol. 8 (2019) [AAC|~328 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:340D3D807E5900D1B8EB7564B12BC3F92F79B7FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Lisboa Orange: Urban Chillout Music (2022) [AAC|~318 Kbps] <Lounge, Chill O
 ```bash
 magnet:?xt=urn:btih:3BD3E29462AABBC844A90BC515188FCBBD3EFD7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Coffee Chill Time, Vol. 2 (2016) [AAC|~334 Kbps] <Lounge, Chill Out, Smooth
 ```bash
 magnet:?xt=urn:btih:DC62F19E6464E1F7F8AF50988E7DA84624BEA443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Coffee Chill Time, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Smooth
 ```bash
 magnet:?xt=urn:btih:5F865ABB2F8D1D1F7399EF7B658631F7B9148813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Coffee Chill Time, Vol. 3 (2017) [AAC|~320 Kbps] <Lounge, Chill Out, Smooth
 ```bash
 magnet:?xt=urn:btih:72F8D3FEEB2BD8FAEB725DF64172AFAF5781F1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Notes from the Depth, Vol. 9 (2020) [AAC|~330 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:4B57AC6F24BF2F958E328059A9CD7037C5FBEBE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Mind Patrol - Milking The Massess (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, T
 ```bash
 magnet:?xt=urn:btih:B2A2E1BA9126F722D0AB273A38149A10082EC68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Nightrage - Abyss Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:7ABE61E2D6017DA6982EB77E55AE310957A60D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ VA - Coffee Chill Time, Vol. 6 (2020) [AAC|~319 Kbps] <Lounge, Chill Out, Smooth
 ```bash
 magnet:?xt=urn:btih:16BD1843A0F0478483842849BF783E45F81D5591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Lesson In Violence - The Thrashfall Of Mankind (2022) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:3311FA43F205ABF889BCA42AE2BB78867DF9DA29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ A Lake Of Ayes - Ouro Sobre Azul (2021) [FLAC|Lossless|tracks + .cue] <Post Rock
 ```bash
 magnet:?xt=urn:btih:B4A2766FFB278CB6BAB1F445D5F0F4AB3FFF88AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

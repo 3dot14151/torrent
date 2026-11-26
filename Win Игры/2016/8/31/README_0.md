@@ -19,8 +19,7 @@ Blamdown: Udder Fury - это безумный шутер про корову с
 ```bash
 magnet:?xt=urn:btih:901A5289462CB065772DFC4C3702FB028AC2216D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bear With Me – это эпизодическая приключенческа�
 ```bash
 magnet:?xt=urn:btih:20198036F7D256956E956039B465CB6CF6CB88B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Final Station - увлекательное сочетание аркадно
 ```bash
 magnet:?xt=urn:btih:564355C22CB414DB3C79E1B87249AF77FE2D55A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

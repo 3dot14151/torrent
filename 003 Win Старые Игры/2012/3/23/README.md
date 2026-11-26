@@ -20,8 +20,7 @@ Brothers in arms: Road to hill 30 / Братья по оружию: Дорога
 ```bash
 magnet:?xt=urn:btih:46E5E2AB1468E8C2EB6B7E687666E7D687A25A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

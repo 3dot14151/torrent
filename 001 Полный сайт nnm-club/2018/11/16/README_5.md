@@ -18,8 +18,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:C955D402E853186DEDDDC4490E8FD4AA60FF2746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4189FF8D82133152C5ADB1E5A0AB34B1F585CADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Adobe InDesign CC — профессиональный продукт для п�
 ```bash
 magnet:?xt=urn:btih:59F1AE1612ED44A25356425E60493D15DB028D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FDCB197DEBD90F124F8B8DBEC78F45AD3B5C3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ HellGate: London (2018) [En] (1.2) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A8C0C8171F332D0C0785AAB9F47C62AFF5081F01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72C1934A2F9A5171BA3CD5EEA475ADBFE7164293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE715325E55E243607DDB4CCC7A064FA92689C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Microsoft Windows 10 - это новейшая операционная сист
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Windows 10 включает “универсальную” архитекту�
 ```bash
 magnet:?xt=urn:btih:BECB35A0B87CDE89F0575930CE38DF7B8638D335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ CleanMyMac сканирует каждый уголок вашей систем�
 ```bash
 magnet:?xt=urn:btih:FB63295DE6FECD952D84F7567E72D9CB58B16812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ iSkysoft iMedia Converter Deluxe 10.2.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:0EDBC6E87D52E132638DC78218442A488DCC5B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Motion 5.4.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:9B9B8F69DC080F4AA65791CAF799357FFD3C8DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Final Cut Pro X включает основные функции аудиомо�
 ```bash
 magnet:?xt=urn:btih:0C537F1CE8F081A7C51102B1094330D82874B3FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:694F4F9E838DA06F5971CEFDEE79097CC73C1A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

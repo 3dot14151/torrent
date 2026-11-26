@@ -27,8 +27,7 @@ VA - Лето Турбо Диско (2013) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:ACE2B81DE0BA4CE2CF7D9E025A829BFFB45E7CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F23C940C6861C74DEDE28E183E0865F85E096C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 ```bash
 magnet:?xt=urn:btih:5505F0C0FB101C66AA9E53F4D198B5F24306ACBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0A278433784DA14CAC75E91D698535D83E8CA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6FAC92697FA2441B465EA3F28490D57718B27B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8406E0033F0A3A9368BD2A224C553623A6012873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCF6156F7B6167F4E7315605BB07BD75DB4104AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Emma - Schiena (2013) [FLAC|Lossless]<Italian Pop>
 ```bash
 magnet:?xt=urn:btih:644BDB31ABF29370764B2359EF39052DEADEAFDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ C. Marrale, G. Golzi
 ```bash
 magnet:?xt=urn:btih:EDD63B61ED4D210F6A2398AAA716A7DC3F584A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ VA - Lovely Summer Mood, Vol. 1-2 (2013) [MP3|320 кб/с]<Chillout, Lounge, Dow
 ```bash
 magnet:?xt=urn:btih:EBC2252C896C4D68E9A87784533825DC7F6DD015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ Toolwiz Care - это очень мощный набор всевозможны�
 ```bash
 magnet:?xt=urn:btih:9DCA8219A784EA5F313271EAE81FA12BBDC37D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ FastStone MaxView - небольшая, быстрая и удобная про�
 ```bash
 magnet:?xt=urn:btih:2483C0D350105D71BFBBE2ACD1EC36CD995CDEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ VA - Sexy Rhythms: Selected Tracks Djs Only (2013) [MP3|320 кб/с]<Downtempo, 
 ```bash
 magnet:?xt=urn:btih:77506907C362209B3AD68E8E6985FF6794B44A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ VA - Созвездие хитов Европы Плюс Часть 2 200 хит
 ```bash
 magnet:?xt=urn:btih:527E49060C3EF8560C9BF84CEC22CC5D51C8698B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBB31987A9781F08A73BDC8C8691D7BA441FDE91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ VA - German TOP100 Single Charts (19.08.2013) (2013) [MP3|256 кб/с]<Pop, Danc
 ```bash
 magnet:?xt=urn:btih:0D9C1364C2DDED6BBB8AF54738596A609C932808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE950BD6B81F0F4442BA9A730E67BB77C9181F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ VA - Ibiza Beach Club (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:3FCD9BCE3E07B8A9BE8A4449620C73BFC4194147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C2D79E90024C833E09DDADCE00B2F72A59BB41E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ Oliver Nelson - Oliver Nelson Plays Michelle (1966) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:FD1FCFD810348C1D182E183AB7024CECF0B0899E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ VA - Летний Рашн Дэнс (2013) [MP3|256-320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:C6D78317AB2C72FAF29ECDA43DD4CB751FFA0026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ VA - Хит за хитом. Музыкальное ассорти на ради
 ```bash
 magnet:?xt=urn:btih:FAD493C241DD7CF6248FF8FD5DEF836B42C73313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +681,7 @@ VA - Все пучком. Только новинки попмузыки (2013) 
 ```bash
 magnet:?xt=urn:btih:3AD9DEAA67CBA5A052E7385E56BAFF8F8BD17AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45C5081AB37BB7DCBC1D75F78DF42788BB9B7CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ Balabolka 2.8.0.555 Final + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:55CAB6B9E397101E95098B5B8B816C300AEAC0A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92E1A3433D14C3112C1E47C2A5BEB789A7A76A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

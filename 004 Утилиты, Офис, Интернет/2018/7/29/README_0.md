@@ -19,8 +19,7 @@ Coolmuster Android Assistant — программа предназначенна
 ```bash
 magnet:?xt=urn:btih:C22271CD7D0FA2367886D8455B2385B953E2D8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

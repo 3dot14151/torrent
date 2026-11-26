@@ -22,8 +22,7 @@ A4 Neidot Herkat Hennot(   Читать дальше...   )Жанр: Folk, World
 ```bash
 magnet:?xt=urn:btih:2FCF8BE6C0A182F0FBC27B72FFB7E676A4074B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Funny How Love Is(   Читать дальше...   )Жанр: Pop RockПро
 ```bash
 magnet:?xt=urn:btih:A44B0117C33743844D61B4D9DE77668802CBE965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Face A:
 ```bash
 magnet:?xt=urn:btih:14F155DD0EA7859AF89AA5E1911297226D24E802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

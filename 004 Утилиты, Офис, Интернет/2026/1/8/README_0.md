@@ -19,8 +19,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:52B3084FFCD18C7A8E239687C829711714BEFAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ iTop VPN — это универсальная VPN для Windows/ПК, отве
 ```bash
 magnet:?xt=urn:btih:95A27A98EDE5B8339020A58AE83AACEB6865DFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Vivaldi — это многофункциональный интернет-бр�
 ```bash
 magnet:?xt=urn:btih:4BD3E21CB891E59FC37871F1BF6CF0CEB60DB480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA26A7877DFEC90B0A86FDC1DF55BE757AF2BA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:93B90E1E99CF2E39888DCFC762EDC5117D5E3DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:1EC12D09BCB256C157AABEE61AF81A42D7C2243F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Christmas Stories 12: The Legend of Toymakers (2023) [En] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:48A07DA622B14483324FACA58088575F0CC4B521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Klonoa Phantasy Reverie Series представляет собой мини-сб
 ```bash
 magnet:?xt=urn:btih:CEC02D36DDB531EB3A204AC6983FC6377DA454FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SGS We The People - это полная самостоятельная игра,
 ```bash
 magnet:?xt=urn:btih:CC0653BD8CE48757F05E43D377FCF54A899B3030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (1.1.0-cs44446) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:205A4EC4153EAFC68FEF14ED90AD8832EBE74745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SGS Battle For: Madrid погружает в исторический конте
 ```bash
 magnet:?xt=urn:btih:789E0C1C6DB850EEB7A47387DA308E1E412D7EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

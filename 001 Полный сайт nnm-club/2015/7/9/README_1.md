@@ -21,8 +21,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:D39D90D7ADF36D65470D0F23377E1FB0584F643C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A02E323E21371C3FBD4D38B8F3D67F37A5A28CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ FKA twigs - LP1 (2014) Japanese Edition [MP3|320 кб/с]<Alternative R&B, Trip 
 ```bash
 magnet:?xt=urn:btih:289CF9EAD7FBC453213BDB21CF3075252340B31E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Stefan Torto (Stefanos Tortopoglou) - Discography 7 Releases (2011-2015) [MP3|32
 ```bash
 magnet:?xt=urn:btih:2C8455E2B2EA0B59397764D250EF8BDA3105197B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 ```bash
 magnet:?xt=urn:btih:06C3ED7FF610CECFD822EBC0862146968CD7F085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Powerwolf - Blessed & Possessed (2015) Deluxe Edition [MP3|192 кб/с]<Power Me
 ```bash
 magnet:?xt=urn:btih:675C01B019AD8BBEE60E114CDF165E843ED979C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Ratatat - Magnifique (2015) [MP3|320 кб/с]<Alternative, Electronic Rock, Indi
 ```bash
 magnet:?xt=urn:btih:9EAF2DFE8A87952A6EC034222B8FFDB1C6DC77B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Baidu Browser – довольно симпатичный и удобный бр
 ```bash
 magnet:?xt=urn:btih:A920EBA80D9B695F45189F4524847B418825A997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Phantasmat 4: The Dread of Oakville (2015) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:7317F7821F5ED67A2BA01ECB3C44EE47D614EAF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA6925C602D9EBF786262792A9BB8A0C91A7A920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ VA - Summer Music (2015) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:7840A5D1B729502FC3B17314EF4FD6FC33B2D6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Discovery. Гаражное золото / Garage Gold (2014) HDTVRip [Сезо�
 ```bash
 magnet:?xt=urn:btih:222EC25E6D62C4CD4502C36ACDA302232FB93272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Password Depot Professional - рентабельный инструмент, у�
 ```bash
 magnet:?xt=urn:btih:BE0C8F11DDE49DC3688653FB60627A610391B527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B21656C51EA57A8698DC37D89C108364F05D5736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ VA - Magic Island - Music For Balearic People Vol. 6 (Mixed by Roger Shah) (2015
 ```bash
 magnet:?xt=urn:btih:570D4613DD9A37329B2F27D29FDB979CEFBC3181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 ```bash
 magnet:?xt=urn:btih:2C3CA5C8577A0B4914253E32EBD2FC08E402BE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE0E465511FC20E798CC9F3C568F13CCC39EC9C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96A9DDE1E2978D09E7F36FB45A5BA401CA050458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ VA - Tango & Beatles (2012) [MP3|320 кб/с]<Argentina Tango, Covers>
 ```bash
 magnet:?xt=urn:btih:A8CCEDAB1962EF12C740D4271B3ED768EF214A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Years & Years - Communion (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Electroni
 ```bash
 magnet:?xt=urn:btih:720634245003C4A18823E9A4FDCA6E83A07FB72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:AE83D7749017C132ECCC6F3F07F6779967FEE594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:515BC2355DC3C40E8E871B1360E2EC21C8F19079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD06EB8BF5625FE79ABA309DAB04F06DAD03E329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ Emsisoft Internet Security - полностью интегрированный �
 ```bash
 magnet:?xt=urn:btih:B47E2557F1B4F7A5565E1DBBA9F8939C677FC73D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ Memory для детей 1.0.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:DCCD9D25A9CDED3DA143F375A8F86810FEF14A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Maelstrom 42.0.1.26 Beta [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:711AF7227CB6FF32DC81EDA5B8F7AA207B284F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:833A7EDDB9901AB95328B6D49990817A750070D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

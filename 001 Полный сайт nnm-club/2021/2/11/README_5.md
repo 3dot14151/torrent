@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7D7BFB0DCF217C090305F4C790070F7EFF4CB1A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Psycho-Pass: Sinners of the System | Психопаспорт: Грешники 
 ```bash
 magnet:?xt=urn:btih:0F196121398DC4DC1ED98943DC82D6C6B0768CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3490634DB498A05AE50DD238AC2A772C5CC72989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ State of Decay 2 (2020) [Ru/Multi] (1.0.417403u24/dlc) Repack xatab [Juggernaut 
 ```bash
 magnet:?xt=urn:btih:90FCFC550DCAC01D3EAB739F58140AF433933B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Assetto Corsa Competizione — продолжение реалистичного
 ```bash
 magnet:?xt=urn:btih:2375E30AB2A4C173815FEAA6B385EF0C42988B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

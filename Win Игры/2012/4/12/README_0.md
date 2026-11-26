@@ -19,8 +19,7 @@ Inspector Magnusson: Murder on the Titanic (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:4EBCDDF434D27F16DDACABB9352FDBCC9746E17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brainville (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:6E8C79B25FD335BD5ED18E0191E61F076972475F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rise and Fall: Civilizations at War / Rise & Fall: Война цивилизац
 ```bash
 magnet:?xt=urn:btih:B9558B2F457F680233A835D683E75CD66C9EEC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ JoJo's Fashion Show 3: World Tour Express / Модный показ 3. Миро�
 ```bash
 magnet:?xt=urn:btih:2ACBBD8C1BAC7E8DB68AB4EA9D56686609EED77D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Book of Desires / Книга желаний (P) [Ru] 2012
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

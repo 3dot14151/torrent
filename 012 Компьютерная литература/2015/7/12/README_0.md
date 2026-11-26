@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:2B657E02B9DAD0880FBAE21DAEF86DF0AD429CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```bash
 magnet:?xt=urn:btih:DE192B91FF62A90C04D1D9B9C96A36B02F589EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

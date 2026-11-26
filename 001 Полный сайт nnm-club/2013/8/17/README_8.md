@@ -22,8 +22,7 @@ PVS-Studio — статический анализатор, выявляющий
 ```bash
 magnet:?xt=urn:btih:AEDBACF4A9366799C52BB70FF398A872E1AF2DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ NewBlue TotalFX 3 - это всеобъемлющая серия програм�
 ```bash
 magnet:?xt=urn:btih:815073C8A4C2EC14A54928401796C4CC65281744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ The Elder Scrolls V: Skyrim (2011) [Ru/En] (1.9.32.0.8 / DLC) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:C87AD81F6257786525FC1FE3170183F3E8C4B96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Dishonored — увлекательный и необычный экшен, в �
 ```bash
 magnet:?xt=urn:btih:3E14B6054C8634D6EB876312D22FD149192F72D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

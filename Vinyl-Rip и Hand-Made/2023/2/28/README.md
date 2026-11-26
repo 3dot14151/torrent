@@ -22,8 +22,7 @@ A4 Szombatesti Szivtipro(   Читать дальше...   )Жанр: RockПро
 ```bash
 magnet:?xt=urn:btih:B531F24191ECDCC901C567BAAC7E3139A07AB739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Verve — британская рок-группа, образованная
 ```bash
 magnet:?xt=urn:btih:7786679D3A83B3BCD4A4E9ABA6283C0D5148E3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35C3B4CC76A76978711873EEC5BDD1DE5B869C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

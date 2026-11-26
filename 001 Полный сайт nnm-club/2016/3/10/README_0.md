@@ -18,8 +18,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:8B5F4DA3B8F21A8304E1FBDA491D5937CD564C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Richard Sanderson - Anytime At All (1990) [APE|Lossless|image + .cue] <Europop, 
 ```bash
 magnet:?xt=urn:btih:698EB5C823605675079CCAE980984CAA789CE965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Sunburst - Fragments Of Creation (2016) [MP3|320 кб/с] <Progressive Metal, Po
 ```bash
 magnet:?xt=urn:btih:D1AA3184E83FB33345E245A2794D65E0BF9B9CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BDB8A9B76E9B6F50BB9C1E1A4E1D6F6F6C57352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E042E076783D48082BD6DC280C57E07C3C230B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A05D40049A17CB22AAE1F57EC4D69C09E577081A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28EBD11CB3E81E85507C85A7CBF82FF4E30E1B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91841469D32A7198FEDAF4948B07AC12B3E7251F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Aktuell - современный, интуитивный и элегантный
 ```bash
 magnet:?xt=urn:btih:0DBE7583A7C1BE00B28ECD472B7C4D94A1AA0EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Polarr – это продвинутый, интуитивный и многос
 ```bash
 magnet:?xt=urn:btih:5EC86031192170E7549E595280DA65FF97A82260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ PDF Expert - это один из лучших инструментов для �
 ```bash
 magnet:?xt=urn:btih:34B104FCE9D9A458E5A0A551ACA9A16A486579FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D94CDB39342BC680A783DA27F124A9233F3460F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73EAFCA8EFCF6181CEA2736BE13FE5641D7D89BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E303619A90B2BA5B737536AF02A7988DDB1A82E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Stephanie - Catharsis (2015) [MP3|320 кб/с] <Pop, R&B, Reggae>
 ```bash
 magnet:?xt=urn:btih:29AC69536DE8CD5B22F37934C24984AE8115A220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C3E5CB9B8E8032474B53E3A294C6D1C8CBCC5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18AD5174FA1CE4F43FA5FD1AEB950D4F7342FA09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55A41D6AD125764DA6DBDB4FCC488FA9F813A926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13B5E90BC024DA90CD2A243599EC24C6655A7F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5B7A61BF55657291A55512CE695A9D460843376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ t_error 404 - Buddha 2.0 (2015) [MP3|~273 кб/с (V0)] <Progressive Trance, EBM
 ```bash
 magnet:?xt=urn:btih:F4C80B01322A411FEB4270B1F5645EAD045CEDC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Letzte Ausfahrt Leben - Without Control (2016) [MP3|320 кб/с] <Industrial, Da
 ```bash
 magnet:?xt=urn:btih:DC4B3E6426DB21948B24A2A8938F8BE66C271ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Nicki Parrott - The Look of Love (2013) [FLAC|Lossless|image + .cue] <Contempora
 ```bash
 magnet:?xt=urn:btih:99BB9100BC7419A5D0B8FF4CD886854F690DBD57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8026D562450E0CF01E524265C7A162DA722C3DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ Adobe AIR - (Adobe Integrated Runtime) - платформенно-независ
 ```bash
 magnet:?xt=urn:btih:CCDBF9F423676D7A0B42479795CECC5C1580BBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ Van Canto - Voices of Fire (2016) [MP3|320 кб/с] <Power A Cappella>
 ```bash
 magnet:?xt=urn:btih:59C39DDDEE6D8A569249E2247CA5B73A131D777E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

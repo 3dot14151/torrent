@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:87B08330698F54CD08A35F411A83563374C22761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D68001D9D74C625C5FAB829F61688DD02D55782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ The Beatles и The Rolling Stones произвели фурор во всем м
 ```bash
 magnet:?xt=urn:btih:72451D80BFCEFB89DCF378B755DB321EF349DEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60A4FAE73F66923DDB449A1CCE7ACC0B0ADD334E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ WISIWYG-редактор - “что видишь, то и получишь”. 
 ```bash
 magnet:?xt=urn:btih:4013159A408E367A7F511AE8FFA83BB54FA55602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCB3136B3C164AEE501D5A31FD5B7B54B8A63BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:A5ADECC8C34DDBFEBE0B2D77C3648745ABDE9304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ PicturesToExe Deluxe 9.0.3 Portable by Sitego [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BDDC66F0DCDAA4DB224A6341F312BA3EFF0C5493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ NKOHA - ver 2/0 (2016) [MP3|192-320 Kbps] <Cloud, Beat>
 ```bash
 magnet:?xt=urn:btih:D11E31033DFF518B7E85E8968C574BC75CFAD78D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Wise Care 365 Pro 4.56.431 Final + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FDAB1E6DCD8390D5D857EC5C8D2BE4721A2E15F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0ACAD615734816A1D14239F5ACD40E33F03DA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Extreme Picture Finder - программа для автоматическог�
 ```bash
 magnet:?xt=urn:btih:A1601D35446F70826060A2A447A4A6689133D512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49517CE39B8A55058D605BCB863509208DE119B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7DBD5896251515764B0FD44405C5C27AD200D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFF8E4A2D397ABA1E857D4681F2AD51F3A502E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:208F6AB8B9FE94A96C7844DBA38EF300A31493E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A9E2764DB14054F4AE86F34E27DA9CBF1754BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6547226A20F39243CC870B1AAE4384402B609BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74F4CF2CE444C8CB2B3DA2A72798E6B2DC9E53F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B87077C4826E8ABDC9BCC687065E732DDAA93EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) 
 ```bash
 magnet:?xt=urn:btih:595CFD36D93865E8B4B64F99FBDDBAA18AD048EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ Armik - Enamor (2017) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic guitar>
 ```bash
 magnet:?xt=urn:btih:40B781535AA047CC603B968E8ABF029BC22B53D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6315479C285E2A01D0F8FAEC6C35A4CB9791380A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ VA - Hit Music 2017 Vol 1 (2017) [MP3|320 Kbps] <Pop, Hip Hop,  Rock>
 ```bash
 magnet:?xt=urn:btih:3731D0A4682D4E819A7793DA526BF515FD5C3058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EED7F027BFF87F4B63148B6DAD99625B0FC47411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ Passengers - Casino (1981) [FLAC|96/24|image+.cue|Vinyl-Rip] <Disco>
 ```bash
 magnet:?xt=urn:btih:EC8F9C9C63354292D7A3CC369D8281FCD251AA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

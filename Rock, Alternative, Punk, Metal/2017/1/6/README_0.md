@@ -22,8 +22,7 @@ James LaBrie - Elements Of Persuasion (2005) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:10A04981BE153606B65F3FD564FCBC52016E422B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dropkick Murphys - Going Out In Style (2011) [FLAC|Lossless|tracks+.cue]<Celtic 
 ```bash
 magnet:?xt=urn:btih:A9A15968972D16B08E4D1042AA2B971527FEEEF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Volume 4 - 1970 Devi/ation (2CD)(   Читать дальше...   )Жанр: Ps
 ```bash
 magnet:?xt=urn:btih:D6A6AD49C03306170FFA525D70B934EC19ABA778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

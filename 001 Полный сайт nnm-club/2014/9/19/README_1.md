@@ -21,8 +21,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:3BE9F045C08040591C8F6FC6ED0EF79097343B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ EaseUS Partition Master — удобная программа для разби�
 ```bash
 magnet:?xt=urn:btih:2F798932E1CB2EE2C70F7365D343CDA9213BAC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:6F59F139829C1EB5F0D1D04C29BE28BD3AE73054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FF2587B622A16450F01E08480AA78980BF4AD16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Comedy Баттл. Суперсезон. Этап 2. Выпуск №3  / Ком
 ```bash
 magnet:?xt=urn:btih:A73A2AD9811240D6D4C24912DC8CB6E92AD91215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Tony Bennett & Lady GaGa - Cheek To Cheek (2014) Deluxe Version [AAC|WEB-DL|256 
 ```bash
 magnet:?xt=urn:btih:6E01EB3D71AA35DA649AF1D20B9E03649E41F600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6CC72D99DC8178FED15B2CB1442FBAD745403B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62EE4CC11FACC6BB92320994C761AC97C97F7F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:97DFCA31C58E000AB9E560C43FD571AEA8BBE68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65D5E09CF85D180B97A2F53A7EAABA15C2B2028E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7151B17378CC882702874F545676DCDD2B035675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FE874F2BC40E395E748F2D880C561D7D5788C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC228A9C3CECAFE8F6A938005599B4B786418D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:57A026CF6BA3FA6A3498EE5AF2D1F92E0F9A3E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Snooper - программа-шпион по-тихому пишет все зв
 ```bash
 magnet:?xt=urn:btih:7A2424FA20E5A64873FB499778CEA498F5560404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Discovery: Наука магии. Катушка Теслы / The Magic of Scien
 ```bash
 magnet:?xt=urn:btih:748F1FF01D248BAAC2450C80227EC5539A3863D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Mail.RU Agent - бесплатная программа для быстрого 
 ```bash
 magnet:?xt=urn:btih:367FE8177B130187B7B8561D6215ED2CB9B170FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Scratch Perverts - 7 Albums (2003-2009) [MP3|184 -320 kbps kbps]<Breakbeat, Dubs
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ Tony Bennett & Lady GaGa - Cheek To Cheek (2014) Deluxe Version [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:DD600EC26D173C3D757322E8091265B08F404C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Jondo Live-DVD предлагает безопасные, предварител
 ```bash
 magnet:?xt=urn:btih:E72C424BEEFB2AC55CADA988E29307714A27BE3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EABB3016E3B57D9B251CA8BAE9BCB9E40AADAB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1097D85E9A14AFC407F0428CE94F75AB351FE97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ VA - The Beatles Tribute - Come Together (2002) [APE|Lossless]<Pock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:98256A1CE4557978A2A03AD07ECBC790CBA30C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ DESERT OFF ROAD - это увлекательное ралли для тех, к
 ```bash
 magnet:?xt=urn:btih:843FD250C450C1198BF905ED4093DD1B86BD2DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

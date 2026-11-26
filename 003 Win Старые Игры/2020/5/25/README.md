@@ -19,8 +19,7 @@ Arcania: Fall of Setarrif / Аркания: Падение Сетаррифа (2
 ```bash
 magnet:?xt=urn:btih:EDBD639B12AA8A289324F95B9866291D3286D19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery of the Ancients 7: Black Dagger (2018) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:8F7E076DAC38FC264A4729226CC695DD676C7A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Expedition 16: The Golden Secret (2017) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:AF734107565F11A3B0E945FCCEFEC578A73AC760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enchanted Kingdom 3: Fog of Rivershire (2018) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:697294D7DAC112588E813BBFE576B1BB5C64F7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Forgotten Fairytales 2: Canvases of Time (2018) [En] (1.0) Unofficial [Colle
 ```bash
 magnet:?xt=urn:btih:5B8BB80A375B54AA2C45704D58EF61539E361003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dragon Ball FighterZ – эпичный, яркий, динамичный и н�
 ```bash
 magnet:?xt=urn:btih:A85A0856121BEFBA0100C1F04DB5AE5A5F1AA669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) License GOG
 ```bash
 magnet:?xt=urn:btih:26809364CE1431E06A5EB4D8CDE8759BA544350F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ GRIS (2018) [Ru/Multi] (1.03) License GOG [Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:A6966663F204E0FAF7A8480EADD99726E22EE816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Quern - Undying Thoughts (2016) [Ru/Multi] (1.2.0 HotFix2) License GOG
 ```bash
 magnet:?xt=urn:btih:1EEB82B2C2892A5DB260B555DDF9117065CCF560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ My Time At Portia (2019) [Ru/Multi] (2.0/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:63E2F2A2F82E53D6A966A24ABB8B2AF9F0623EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Objects in Space — двухмерный космический симулят�
 ```bash
 magnet:?xt=urn:btih:0F3B4E00BE68E914CC91E8A25CEB61D61512E968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Oriental Empires (2017) [Ru/Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:F68BC63E59B2921219F282B921FB5BCD1A6880BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

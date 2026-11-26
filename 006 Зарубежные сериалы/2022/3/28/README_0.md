@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A611C2C5D3D2D9C6C8B2E6B3EF269202C12A0A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XIX век. Молодая девушка Мариан Брук, осироте�
 ```bash
 magnet:?xt=urn:btih:58F2BEEF255757A2BB4321D22FAB52F35C4847B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57A1F4F577F06BD1AA90B2C7E704033261CAE89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:919636AB604E28A5A4180639D22054BA99EF2B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

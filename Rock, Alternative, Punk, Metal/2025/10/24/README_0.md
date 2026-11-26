@@ -22,8 +22,7 @@ LASCALA - Play-Off (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:22B83E1635918D1EBCB3105D7085F04E59200147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1-3 Overload(   Читать дальше...   )Жанр: Death MetalПрод�
 ```bash
 magnet:?xt=urn:btih:5D8BFC7FB647DCE3B5C8AA65198294A2D415BD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1 - 3 Shadow People 5:45(   Читать дальше...   )Жанр: Thrash M
 ```bash
 magnet:?xt=urn:btih:F047FFB052A314FE386BDAC9138BB1458A24E70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD1 - Standard Edition:
 ```bash
 magnet:?xt=urn:btih:5700750E7F7D731834B70A837B217BBB8F081452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

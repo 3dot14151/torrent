@@ -19,8 +19,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:09034C1466AA4B8C5713969246F1EB389FA5E2B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ChameleonLab — это мощный многофункциональный ин
 ```bash
 magnet:?xt=urn:btih:4EEC0660ED341B73400EBE1CEC63C3655E198B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wipe Professional - программное обеспечение удаляет
 ```bash
 magnet:?xt=urn:btih:0E0D0F606854DDFB0F4D82320198B9FCA347DAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ W10Privacy - программа для изменения настроек си�
 ```bash
 magnet:?xt=urn:btih:CD0684614A688CB5B42B9B5576C3344CF0C25AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sejda PDF Desktop Pro 7.9.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:D7352DC4DA65CE58A90E9B39F52FC8B82FEFCE17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:1630BB9EFEAA70CC4BC6BC0C70D3E0041F98AA0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Fast Screen Recorder — это программное обеспечение д
 ```bash
 magnet:?xt=urn:btih:FBE9A9D8A537ED6D7C9199A500EDA58BFDE66296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

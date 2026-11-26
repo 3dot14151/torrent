@@ -19,8 +19,7 @@ Framework Design Guidelines уже давно является исчерпыв�
 ```bash
 magnet:?xt=urn:btih:CE7658550F17DD9A8D2430E57A438675F931956F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C2E92889AE70DB00E44675B38A73A2463F74E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

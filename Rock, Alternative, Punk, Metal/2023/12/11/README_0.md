@@ -22,8 +22,7 @@ David Gilmour - On An Island (2006) Japanese Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:1DAAC20EB98475F05B815FB37EF1EAF7218FD24A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Radio FM Rock Hits (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:473CE875A921552D98A3F5AB7E29EAD8FE3BBA48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB709B40F8E5964CD674FE64F9D0256644DFCF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Under The Scythe - Realms Of The Void (2023) [FLAC|Lossless|image + .cue] <Techn
 ```bash
 magnet:?xt=urn:btih:3E7CCDF3F23DCF7E37AF50C1F5E0BE707196974E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Immortal Synn - The Singles Collection (2023) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FB396A8A2444346EE4C0AB6565F0C9A18A641A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:572706C6C05FE64DA268B46E51F15201DBCFCBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Insomnium - Songs Of The Dusk (2023) MCD [FLAC|Lossless|image + .cue] <Melodic D
 ```bash
 magnet:?xt=urn:btih:D094A0A47BC7F0EEE394C537162ED44BA418349B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Inthuul - Songs From A Dead Winter (2023) [FLAC|Lossless|image + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:0CFD8AE12EEB84A8B4925160FFD2CAE3B4DE06D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Helreidh - Fingerprints Of The Gods (2001) Reissued 2002 [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:A5578F90FC492E67C16D84A1C3C2A450F8376634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Morbus V - Aura (2022) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal, At
 ```bash
 magnet:?xt=urn:btih:A86B31037480826F4E10E632E6722B94583E3033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Cryptic Conversion - Eldritch Echoes (2023) [FLAC|Lossless|image + .cue] <Brutal
 ```bash
 magnet:?xt=urn:btih:9CF63C45D3D0AECA04FA6F54B121AD33D2020203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Alchemy Of Flesh - By Will Alone (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 ```bash
 magnet:?xt=urn:btih:5A68D7C6372D092BA3BEEE2B321A0C007432F8DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Treachery - The Key To The Abyss (2022) [FLAC|Lossless|image + .cue] <Death Meta
 ```bash
 magnet:?xt=urn:btih:7248AD9E3DC096BDE815528ED48D65278FD6FC75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Kalmankantaja - Tekopyhyytta Pyhassa Temppelissa (2011) Reissued 2021 [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:8A87DA598276AB720F948B6975A61753300BBFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Razörschrieck - Black Magick (2023) [FLAC|Lossless|image + .cue] <Depressive Bl
 ```bash
 magnet:?xt=urn:btih:A914DEBAADBD2F56231CB8707B59DEEB94783D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Truculency - The Dome Collector (2022) [FLAC|Lossless|image + .cue] <Brutal Deat
 ```bash
 magnet:?xt=urn:btih:0D044254BC7B1B9E523E7F8398EA81AD43A1D88B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Dreamwalkers Inc - The First Tragedy Of Klahera (2023) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:4AF5D74BCEAC82DF174DAD094A21C5DCD0DE04AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

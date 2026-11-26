@@ -19,8 +19,7 @@ Fedora 26 Live spins [x86-64] 6xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:D496D940156107E5012CB9813FB4686C2F274FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fedora 26 [x86-64] 3xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:7A857F5E562E5E3D10D8EF5756287008BB2B843D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RFRemix [Russian Fedora Remix] 26 [i386, x86-64] 3xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:5DF9B10959EA48CE67451E1F8488C5F687C18704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

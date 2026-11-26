@@ -18,8 +18,7 @@ App Tamer 2.4.9 [En]
 ```bash
 magnet:?xt=urn:btih:F5DC92F1D3998C33658CFB5923C831725876A97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SILKYPIX Developer Studio Pro — мощная программа, котора�
 ```bash
 magnet:?xt=urn:btih:07F932C0D21990878645AF39850F270774C49F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DF4CCE5DB8EAE88DBCCF94F479530FAEDCE26D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ One Chat объединяет чаты и службы обмена сообще
 ```bash
 magnet:?xt=urn:btih:4FBA393F7C5544EDD92892CE02DD3C6740F50AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABDAE05D39E179D9E29727438C9D130965770619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Vanden Plas - The Ghost Xperiment - Awakening (2019) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:224E9657144409C15F24F9DBDD3921BAE57F440D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29C1427E3B4C7A450B8A012D2EA30DAA0803573A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ VA - Beautiful Sound Of Trance Music (2019) [MP3|320 Kbps] <Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:C41C566BAB01BAFDF3F10DC559EC44FCAEED6EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:0298C1DE0E142DD862476A4F96948ACEBE30DAAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0F392081B28D74B4D43C432D5ED48A598AE6B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ VA - Чёрный тюльпан 6 (2005) [FLAC|Lossless|tracks + .cue]<Шанс
 ```bash
 magnet:?xt=urn:btih:75EDC6AD09DEEFF330E12E70C0E4809A0082DF88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ VA - Best Of Dance 2019 - The Radio Collection (2019) [MP3|320 Kbps] <Deep House
 ```bash
 magnet:?xt=urn:btih:E7285D4D06D82C4F3B05C1CF8023EA99E998E626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:736BA9B2D865197D2B8D46B43B7C00C2E043CC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Moderator - The Mosaics (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumen
 ```bash
 magnet:?xt=urn:btih:B4E0D97876D128A6B7B8692592DD3E4112A75BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ VideoDuke 1.5 (build 257) [En]
 ```bash
 magnet:?xt=urn:btih:497DE0A610A6233D1F16F773543809E8C2B11F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:71D55E916F08F6EA2DB5A7A1CB31D90D1670C146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B098B4FC0416A4B01F00BC2A8E7EFD1C66A834A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9996E1C6224F0D5EE25FA480EA82D0D0E036C925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A14DB282EC1412A247CB44A82BEB48FAA52FE72D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ```bash
 magnet:?xt=urn:btih:B420C73AB0CE405EC42A82F35389EBB4EDD678CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:357C16E3B0014C823238BE7A21C76FEF57898575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Thunderbird — это бесплатная почтовая программа,
 ```bash
 magnet:?xt=urn:btih:0F1709F43F9C547FAE63306C60D61DBF46CD3D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C04B58846ECD74AF27C5292D70071ED5B1F738B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ VA - Christmas Dance Party 2019-2020 [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:2CD316BEC8586B9227BB2D0DD08613574F2094CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4672524948EA012282520BC8DF071D5C84B0FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ MFG - Pure Energy (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 ```bash
 magnet:?xt=urn:btih:263E1BA38AAD4F67C8974AF10B23ACF87C065944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

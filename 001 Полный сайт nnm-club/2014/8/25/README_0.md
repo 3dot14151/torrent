@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:223198965928F2273FC4DF4C6BDE5D895EB57135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Jim Poppy Boyd & The Major Mixed Bag Band - So Far So Good (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:7B9FFFE7D640A226C76FB55576CD0F481B401612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ USA Pro Challenge  — шоссейная многодневная велого�
 ```bash
 magnet:?xt=urn:btih:F759867621010819DB521A6EEE8E74F824AE7CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AB37D6C1119B2DDF350457E98E86BA8AD67DD08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72B99E8412B1326F2ADAB7C501561B5726B0C466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Hobo Magic - Hobo Magic (2014) (EP) [MP3|320 кб/с]<Stoner Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0A12DBD6EC7564541DDABD12DBFC1DA39A9BB83D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ The Haunted - Exit Wounds (2014) [MP3|320 кб/с]<Melodic Death Metal, Thrash M
 ```bash
 magnet:?xt=urn:btih:C430324BF0DDDB18CB94F809272DF33D1BD62330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:424F62C53A8990476F1F855CD5542FB65B4E502A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Blues Druid - Blues Druid (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D1F3EEA89556B43854538F994F278250DA389705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ VA - SteepMusic 50 - Dubstep Vol 10 (2014) [MP3|128-320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:EB5E72F70138DFD1126A7B66DF607898B6E35074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48CFA55A769ADA07B75235017F8F8FF3CFE4BA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7E2E8F7CF5F7440C5AD9AC97A7F3DD921B9E4B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ HTRK - 4 Альбома, 1 Split (2007-2014) [MP3|320 кб/с]<Noise Rock, Elect
 ```bash
 magnet:?xt=urn:btih:EB72ABBA13912A6DA97900912D023B0F913032B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:947322980FBEAE5DD987817CDF27A6022693DF42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ Michael Pewny - Solo Live In Vienna Piano Blues & Boogie Woogie (2014) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:0B1F245CCFAD8DC680214817B78D8F2ABE56601A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CD9117BA6C7882AA9A3EDC1AE6FA3037C7D30C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ DiskWarrior (утилита)  - инструмент, который  долже
 ```bash
 magnet:?xt=urn:btih:3A806D1B318564ED2130F130B0E2B320262B2844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B087F1EC8E9FD0F22D6353D5A50D12A12B8F340D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ The Pink Progressive Project - Dream Remixes (1997) [MP3|320 кб/с]<Trance, Go
 ```bash
 magnet:?xt=urn:btih:D69FCF8DFC2D735A01CC2BF52E55963C11962F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:029D0C88FA73457A536EDDB60931DB6B4DB36E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1934A1309BD6AB67AE080B74AA9CE0A7B1F15C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ VA - Toolroom Knights Ibiza 2014 (2014) [MP3|320 кб/с] <House, Depp House, Te
 ```bash
 magnet:?xt=urn:btih:D83FF6E287D62CC5A8ABB796FC8A809BE206B8AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ AUM - Bluesvibes (1969) [MP3|320 кб/с]<Hard Psychedelic Blues Rock>
 ```bash
 magnet:?xt=urn:btih:240EFF1B2D27CEBA30B2503123CC1943B42C6CAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30E9A4125C6F7157E7ED8EBAF724D0B7F18E93B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EAC7498160F5C4DBF481A89252D96090388E902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +725,7 @@ Terri Krul - In The Still Of The Night (2014) [MP3|320 кб/с]<Smooth Jazz, Jaz
 ```bash
 magnet:?xt=urn:btih:32ABFBCA0B2547BA7547F230E78AEB3D1E187AC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

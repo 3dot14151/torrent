@@ -23,8 +23,7 @@ OEM (англ. Original equipment manufacturer) — аббревиатура д�
 ```bash
 magnet:?xt=urn:btih:5657B7B6AD2B0EBA5AC0ABC68172F9F069FE503C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

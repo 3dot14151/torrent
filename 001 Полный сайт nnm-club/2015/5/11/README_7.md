@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D83E81E134A4EA2D3401E084F3759148FF4148C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Data Rebel - Dreams For An Abstrakt Mind (2012) [FLAC|Lossless|WEB-DL]<IDM, Ambi
 ```bash
 magnet:?xt=urn:btih:FB2E76E619819B5FA9D3C6F04D766CA28BE78BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED8BA718DC9F3E7E1B9E8C3D934B3428C87126A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:580F7186B2469B8788678DB630C898B4DDA6E676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD3CA1D62E6C8B2BD97EECE63B797E33D1C05A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D9C119EA8A3703B11E182588CC605B5DE2759BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F58C737FA5D98A7BF1E6941EC378518F8007F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ DJ Nike Twist - TranceWave 114 @ GTI Radio (07.05.2015) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:D2BD3986E9BC809E6376B79C23DECCA62FB92221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2A54B79B18A483660E33927C7484C3A32C92425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:501294FA15E0B717B59401272DD07476432273C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CD7E8A17222A06724A3F4550EF7EFAA56FB4D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:423D86A91C13FEB531DDCB90FBED15C3816ED7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Dropbox 3.4.6 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:495F1B74C625E01CE47D1F147C37719E9BEDF0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ VA - Creative Music Box 25 (2015) [MP3|320 кб/с]<Dubstep, Glitch Hop, Chillst
 ```bash
 magnet:?xt=urn:btih:D55D2FF94DB529A5609806DBDE70561501D11EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3EC7A3D6A70C208887ED31E1FEB2C95F9E7348A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:362FDAC3AF42D52EC7BDFF71E6BE9737162A7549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F8039AB1530212D1039D16D151522DDB8E9FACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ LLLL - Faithful (2015) [MP3|320 кб/с]<Electronic, Dream Pop, Chillwave, Indie
 ```bash
 magnet:?xt=urn:btih:BEE6705762F4DA74A3A28D4CB688DE2B0AACE3F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ VA - Slow Down Luxury Lounge - Nightlife Erotic Lounge Music for Private Party (
 ```bash
 magnet:?xt=urn:btih:43D6E29913B3D202F0A442B7F4B9EFA20038835B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ Ashampoo® Snap Business — программа для создания скри
 ```bash
 magnet:?xt=urn:btih:D32547A7E5F5034A9DCDECAEF180A15839C0E1C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9727E92722F9EA5B23B544204E6879E2EDD4B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ Arcturus - Arcturian (2015) [FLAC|Lossless]<Avant-Garde Metal>
 ```bash
 magnet:?xt=urn:btih:D965481CA9EE7D953571686E6B86114DC05AC2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDA3D01E48E63DE53D891A5F4B9C8B1E544C8029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ LTN - People I'll Never Forget (2015) [MP3|320 кб/с]<Trance, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:180958D83B7C3372C309CDCC46F1CB18286B5E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7690C4164397F6E4CB41F72747EDC96EF228E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ Ashampoo® Snap Business — программа для создания скри
 ```bash
 magnet:?xt=urn:btih:0C0619AAD335A3C1F2B39D0C0382FFD5372582ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

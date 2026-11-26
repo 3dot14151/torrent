@@ -18,8 +18,7 @@ Darkness and Flame. Born of Fire (2016) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:F353922B56505021866441D210AC659729498561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ AutoRuns - утилита для контроля автозагрузки пр�
 ```bash
 magnet:?xt=urn:btih:F1AFDA60347D6DD4BA262090F39040ED83FF895A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B357C17A37F924AFB09B3F21DAF70817367E6544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA72FE9355C07D73D4E8215CB1DDD7232FEA0361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Spirits of Mystery 6: Family Lies / Тайны духов 6: Семейная л
 ```bash
 magnet:?xt=urn:btih:4C5E7FE636A3AE139BC6A5111F1619AD7ADF943B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Isao Tomita - Okhotsk Fantasy (2016)  [DTS 4.0 CD-DA|44.1/16|image+cue|SACD] <El
 ```bash
 magnet:?xt=urn:btih:E4563EAF03CA3A4E9C8CA406F8296137F448C16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B7C49BEE3911F8808CC741BE45A84F3A52CD0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FB771535E4E43D86336123D5C03B9E918BA70BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ MPV — мультимедийный кроссплатформенный пле
 ```bash
 magnet:?xt=urn:btih:0DCC535C25A8150C0E212E2F4A98ED8D22082A0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Wise Care 365 Pro 4.22.407 Final + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:626CB2618D4ED1C048BB6940CA6C3E03F5BAE51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46DA9799490DC736A1F4CD0370B49F9BE97D8D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A80C9BDC7FEA3801E9C3426E89C2F7EF4053B261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Ashampoo WinOptimizer 14 - это лучший выбор для очистки,
 ```bash
 magnet:?xt=urn:btih:311872E22B4285CF98CB7C3A71D8B322AA42673F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:697023FBB0AF920A381AB833102E9BDF82A0FD0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Alien Skin Software Photo Bundle Collection (Update 30.05.2016) [En]
 ```bash
 magnet:?xt=urn:btih:0B993E132F34A390B63A6BFB0F473BEB9223AF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Norton Security with Backup - комплексное решение "все-в-�
 ```bash
 magnet:?xt=urn:btih:C22EB5C9AE4DC9BD72CC07D1234814C20E1A677A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ Mocha – самая популярная программа для планар
 ```bash
 magnet:?xt=urn:btih:264306441F2626D9F8B276437CF4EDEF9343EAD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ StartIsBack++ возвращает в Windows 10 полнофункционал�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ Nuke Studio — мощнейший пакет для композитинга, �
 ```bash
 magnet:?xt=urn:btih:5573AD6BD2F3541D1DFAE2FA4E37F4F14C71F4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:183C08D6460684DF397B74A0E0D06521B76B5BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84E39EBC153D86A031003D88069C49F7E22CE0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DF226B42946B446572926741DFFBE775964588B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ AVG Internet Security 2016 - комплексный антивирус с улу
 ```bash
 magnet:?xt=urn:btih:5E4D654B057E05A99D2EA55F16B6361DD2F094A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +602,7 @@ AVG AntiVirus 2016 предлагает защиту от самых сложн�
 ```bash
 magnet:?xt=urn:btih:B2A1722EE366833B4FCA29E5965C358640FC102B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:8BA2888041D1BA1B8C17FFCFEE21C8E254FD0EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ Dr.Web Security Space предлагает комплексное противо
 ```bash
 magnet:?xt=urn:btih:2A4918A13573382681AD492A70CADD60536B1D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

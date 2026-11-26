@@ -20,8 +20,7 @@ Ashampoo Snap - утилита для создания скриншотов (с�
 ```bash
 magnet:?xt=urn:btih:6BAF6CF5202FF3D92EFEDBC3C5086F72F91D34E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Media Маг – это площадка, где публикуются самы
 ```bash
 magnet:?xt=urn:btih:5C99FD4F03D54840154DA3342D321AB85550F9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EE15BF146B9D6C981EF5B6B4A11270DB807A27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64760B8B7AB2EDC34BBC3DA3E3A50FF234CB4C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Together для Mac OS - Программа для хранения и орга�
 ```bash
 magnet:?xt=urn:btih:3178FFA88B18E7F8B1A738C90E65208676E89A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:9B418208B7FED214AC89E83F2139EE30BF0CC61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59BA37FB6B5C5C034BA62C23F0A40A9FEAA950BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Through Andrea's Eyes (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:0539300BC1B1759F1CB3B54FDC58F22C17485BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Richard Ginns - In Float (2014) [FLAC|Lossless]<Ambient, Sound Art>
 ```bash
 magnet:?xt=urn:btih:96DFA7F8C8E9F31C96DD33863076A167A8677A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Norma Winstone - Dance Without Answer (2014) [FLAC|Lossless]<Vocal Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:89F64B2E645E55069877917AC1453C86346CD429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCEC667F91D86AA06034B111B88B4B31E25473DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Electric Breathing - Sweet Violence (2014) [MP3|~245 кб/с (V0)]<Harsh EBM, Da
 ```bash
 magnet:?xt=urn:btih:4C1612B03DC28678022D4D1C985BA3F2D5504A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15044D9915FF6135CF0E09A83DAF2FEAD85A5F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ VA - Радио DFM - D Чарт - Top-30 (02.02.2014) [MP3|~256 кб/с (V0)]<P
 ```bash
 magnet:?xt=urn:btih:CC32F8BC40312997DA8A645BB080C2D776F55053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ FileSearchy это быстрая, мощная и простая в испол�
 ```bash
 magnet:?xt=urn:btih:390F8A36046157FE78D93DC8FD75CD60F31F32F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Musicians:
 ```bash
 magnet:?xt=urn:btih:B6AB912CCE02FF3DC895EE5963D4A035FB142298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +475,7 @@ VA - The Best Of Ibiza (2014) [MP3|320 кб/с]<House , Electro House , Progress
 ```bash
 magnet:?xt=urn:btih:5CD20CBAAA048B84E1BA7F85BBA0625734A8E05C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:619C39759443424BF36E0D47A260731D26073B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73B9AFDC48320B418EC9F165575F9EF2BF839A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ Striving Vines - Obstacles (2014) [AAC|WEB-DL|256 кб/с]<Indie, Alternative>
 ```bash
 magnet:?xt=urn:btih:FD0ECDB55DE8DBCA88D6A6EA8BB6F47AC73BEF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2FE71FF04DB56F76262B5F42390D25ACB7D992A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:F8EBA1D0D7EEDD6C392047F1F154DD3AFC35D7A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3B9665F0F704D78CD950060E07BF63EF2630A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABC57C174B0D0B6D29B8BD916E91237E63815172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ VA - Kiss FM - Top-40 + Kiss FM - Top-10 (02.02.2014) [MP3|~256 кб/с (V0)]<Da
 ```bash
 magnet:?xt=urn:btih:B51162C1A793E1EA0AADD919A1D15BAC0B6BE7AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF5DD96DB982373066A9D3DE0B983E2F3684CB94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

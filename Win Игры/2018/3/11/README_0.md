@@ -19,8 +19,7 @@ SkyKeepers – 2D экшен-платформер, рассказывающий 
 ```bash
 magnet:?xt=urn:btih:973EF61693A129FF05441E6C3CE8E8C85F850B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Transistor - научно-фантастическая игра в жанре Ac
 ```bash
 magnet:?xt=urn:btih:D3E2D94676CA12993426C27D78EA6125DC56A930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 ```bash
 magnet:?xt=urn:btih:86051D22F55E471E3282CC3FF376224E9718E06C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

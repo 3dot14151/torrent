@@ -19,8 +19,7 @@ Roguelands (2015) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C9789972E1A9AB46640DE34323AD08C0CB16F5D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ice Lakes - это симулятор подледной рыбалки.
 ```bash
 magnet:?xt=urn:btih:F77CCD84CFFACD14F146064E4691C63EBDC94341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

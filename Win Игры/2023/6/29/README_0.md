@@ -19,8 +19,7 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:F5DEB4EBDCDB6ED76BE3033F274D654CFEB99487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

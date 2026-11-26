@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C2404C19754B80CCB5D56753C53409FA8432B504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Фотоаль�
 ```bash
 magnet:?xt=urn:btih:232E2FDD7367ACF3E08988A2EDD61558724D68D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Clarity Vision - Clarity Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Do
 ```bash
 magnet:?xt=urn:btih:D14325D24A049F0D5D3E2E3680FD922EE35BD7BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

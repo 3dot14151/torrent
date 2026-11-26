@@ -22,8 +22,7 @@ Hippie Death Cult - Helichrysum (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner/Doo
 ```bash
 magnet:?xt=urn:btih:9F950EF059CB87D7A7A7E975E654E7EB0D4B117E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Solar Sons - Subliminal Criminal (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Pr
 ```bash
 magnet:?xt=urn:btih:891C6E697382D16FD1CA36435066CE3EE9F6FCD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stahlhammer - Opera Noir (2006) [FLAC|Lossless|image + .cue] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:E3E8F8925CCB0502F74D639D7388D95A766CE61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lana Lane - Project Shangri-La (2002) [FLAC|Lossless|image + .cue] <Symphonic Pr
 ```bash
 magnet:?xt=urn:btih:3C3B5B15A2E854592A8CEEEECC4067B122D8796E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jack Out - X Salvarsi (2023) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Pop 
 ```bash
 magnet:?xt=urn:btih:002587905D3F2F7424EE7B7590803F2DF1B13D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Lana Lane - Curious Goods (2002)Special Edition, 2CD [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:57FFAB03BA6068E572E42B849420AE345D1EF17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Stahlhammer - Eisenherz (2002) [FLAC|Lossless|image + .cue] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:E602005A91F4A8AA35C3F0A9FE00AFB5D8D17A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Lana Lane - Queen Of The Ocean (1999) [FLAC|Lossless|image + .cue] <Symphonic Pr
 ```bash
 magnet:?xt=urn:btih:203666DD6E77B6A5927635C7874147D9F2E57411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Lana Lane - Love Is An Illusion (2001) Special Edition, 2CD [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:23150543E1ED77A7B09FB261B76FC19EC2B66853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Lana Lane - Red Planet Boulevard (2007) [FLAC|Lossless|image + .cue] <Symphonic 
 ```bash
 magnet:?xt=urn:btih:9F5F2A9AFCE92523864F536E6DE6663AD9DD4E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Bloodred Hourglass - How's The Heart? (2023) [FLAC|Lossless|WEB-DL|tracks] <Melo
 ```bash
 magnet:?xt=urn:btih:A26A3547BF19F48048C9002618A3110C54F01ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Lana Lane - Ballad Collection (2000) Special Edition, 2CD [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:AD9228FD6CBC19D2553181CCCD1538DA2E0552D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Existance - Wolf Attack (2021) Japanese Edition [FLAC|Lossless|image + .cue] <He
 ```bash
 magnet:?xt=urn:btih:C525CD415A71FD4245255A1B63D5080E24DAF0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Lana Lane - Garden Of The Moon (2002) Special Edition, 2CD [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:37A12220846F4C2AFE6B4D43289EB8986F0C1639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Virgin Steele - The House Of Atreus Act I & Act II (A Barbaric-Romantic Opera) (
 ```bash
 magnet:?xt=urn:btih:AE593F6405ED18BC43042D9E0ADD8B8C588F5B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Silver Trail - Late arrival (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:86EA6198BEBDD73CACEFB4511D9320F4F8C82789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ The Vazeline - Ты не КиШ, чтобы я тебя слушал (2023) [MP3
 ```bash
 magnet:?xt=urn:btih:80961D12BDFA1DB8D2F79F96F7A612B2A5FB69DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Atlas - Built To Last (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:341C3DFA3E66EB7CF2FDFD2FC615D27145F91DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Colosseum - 13 альбомов, Box Set (1969 - 2014) 26 CD [FLAC|WavPack|Lossl
 ```bash
 magnet:?xt=urn:btih:69525CEAD01345491ADE13A6217A4BA55F21AF1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Hugo(   Читать дальше...   )Жанр: Glam Rock, Pop RockПрод
 ```bash
 magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 California Nights(   Читать дальше...   )Жанр: JazzПродо
 ```bash
 magnet:?xt=urn:btih:136C5507E207F16C4F3C12B39B404209A033BEA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

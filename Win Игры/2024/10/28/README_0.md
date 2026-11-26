@@ -19,8 +19,7 @@ Neva (2024) [Ru/Multi] (1.02) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:09C1A284079C42A49CBB336E82325B7495277797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Coma 2B: Catacomb - корейская приключенческая игр
 ```bash
 magnet:?xt=urn:btih:36775F509416F63A548650AA2729E1B38352E004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Finding Frankie (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0EB903DBE4E1FB4939244EADB065C3F7C5BE08DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:8D51A34F9757DE000697229D2FAFFFF0F10F824C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

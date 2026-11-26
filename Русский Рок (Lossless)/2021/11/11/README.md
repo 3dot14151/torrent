@@ -22,8 +22,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:C0E380EEF62F0E41052759704F44B89792F21A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

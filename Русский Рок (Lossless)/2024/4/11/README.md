@@ -22,8 +22,7 @@ Monastery Dead - Ego Sum Dolor (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 ```bash
 magnet:?xt=urn:btih:40394882215637F658246247BC19A1435CF876A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Рок-опера А. Рыбникова и А. Вознесенского 
 ```bash
 magnet:?xt=urn:btih:B5BB7ED853A6E9601A7A77F137F10E5272B47B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F9F93925D5CA4BE59D64196DA6A59D1628D0E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Alison(   Читать дальше...   )Жанр: Country Rock, Soft RockП
 ```bash
 magnet:?xt=urn:btih:1F7861D3A51DE2A409E76E5BC53E0E3E83478CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Eva-Maria Pieckert - Maledetta Primavera(   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:4ADD5164C486517397B0807D42F6A1F0B686C002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Дует ''Акварел'' • Обич Неизбежна • Неизбе�
 ```bash
 magnet:?xt=urn:btih:74D83ACBC3B7D27A92BC85A6A507A68B677E5959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

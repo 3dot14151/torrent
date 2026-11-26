@@ -20,8 +20,7 @@ I часть—«Фонетический курс»— включает 6 ур�
 ```bash
 magnet:?xt=urn:btih:A6DD43CABA5B8A147D83765A566000F85481E260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:796BBF9B24DEB7366EFF1A534B483E303FE76B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

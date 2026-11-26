@@ -19,8 +19,7 @@ Angel at Dusk - хардкорный экшен в формате bullet hell, �
 ```bash
 magnet:?xt=urn:btih:F803EACC2D21C941EEB1411E0AEDC3B56A289E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Path of the Midnight Sun смешивает японскую ролевую иг
 ```bash
 magnet:?xt=urn:btih:DD219E6E8E857246CB74E0076939E9DC0BF7512C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

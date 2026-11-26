@@ -27,8 +27,7 @@ When You Scream - The Alchemist (2012) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:05AAD1A5D37A3465AFC6710A8DB5154BF56172E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Russ Diapper - No Cure For Curiosity (2011) [MP3|320 кб/с]<Rock, Classic Rock
 ```bash
 magnet:?xt=urn:btih:3D94027E84B394C03B4BFF135E8C76EA4D4173CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:04133F20E645DFE8B684132249033ECBCA8B139D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Doom:VS - 2 albums (2006-2008) [FLAC|Lossless] <Funeral / Death Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16B3FBF13FF191370628613816295381C72885B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Candlemass - Psalms For The Dead (2012) [FLAC|Lossless] <Epic Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Catamenia - The Rewritten Chapters (2012) Compilation [FLAC|Lossless]<Melodic Bl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Stream of Passion - Darker Days (2011) Japanese Edition [FLAC|Lossless]<Symphoni
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ Soulsavers (feat. Dave Gahan) - The Light The Dead See (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:76997BF93512F62ACC64FE81E9F54A61228815C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ Pain of Salvation - 13 albums (1997-2011) [FLAC/WavPack|Lossless] <Progressive M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

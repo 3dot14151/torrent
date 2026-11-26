@@ -21,8 +21,7 @@ White Haven Mysteries Collector's Edition (L) [En] 2011
 ```bash
 magnet:?xt=urn:btih:0F3C7F4C12E3A1CB2426A4FB90A363B5A6C7268A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Sea Legends: Phantasmal Light Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:733AD1CB857C01518982DCE2B6329DE42A1503D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1004ACBE22CFEB0A67C5BA7FD67B1A00A3B4032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Cargo Delivery / Капитан Карго (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:8DF5316F719E4FE76BF673BAD35523A4919EE499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Nemos Secret - The Nautilus / Тайна Немо. Наутилус (P) [Ru] 201
 ```bash
 magnet:?xt=urn:btih:CC34A515006CB3654FDDEA4EF71F6BF3ABB6061B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

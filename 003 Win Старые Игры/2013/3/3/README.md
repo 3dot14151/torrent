@@ -20,8 +20,7 @@ Impossible Creatures: Insect Invasion [Ru] (P) 2003
 ```bash
 magnet:?xt=urn:btih:EAE7EC582CAF16D21E9109946650B28DCA87A807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Splinter Cell: Chaos Theory [Ru] (RePack) 2005 | MexicanoTomato
 ```bash
 magnet:?xt=urn:btih:1BFCCFFBCC85715C31FF510315F801D4DD90EFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

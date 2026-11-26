@@ -21,8 +21,7 @@ Charred Walls of the Damned — американская хэви-метал с�
 ```bash
 magnet:?xt=urn:btih:870A070C4D4C2174F4599C9EEC5D64EA683D07CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

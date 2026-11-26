@@ -19,8 +19,7 @@ V-Ray — мощный инструмент визуализации, нацел
 ```bash
 magnet:?xt=urn:btih:D10C449A02F466832ECF7D5E953C3BAE50642809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

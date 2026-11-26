@@ -21,8 +21,7 @@ Ace Stream Media 3.1.11.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:57D5277052BF04581CEB4D9F5655DF6348E9C520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

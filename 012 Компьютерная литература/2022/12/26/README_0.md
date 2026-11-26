@@ -21,8 +21,7 @@ Selenium WebDriver is a popular browser automation framework, testers or develop
 ```bash
 magnet:?xt=urn:btih:4AF1578B9E9FAD1924ED1FFE0AC81DAD8AA6F194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Selenium WebDriver is a popular browser automation framework, testers or develop
 ```bash
 magnet:?xt=urn:btih:A10FA285DBE3968DFB60A04B3CA53CDCD3F2B53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Selenium WebDriver is a popular browser automation framework, testers or develop
 ```bash
 magnet:?xt=urn:btih:22CE3DC6C24311DA3691BA41875840C3475DDE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Selenium WebDriver is a popular browser automation framework. Testers or develop
 ```bash
 magnet:?xt=urn:btih:2B30ED60890E73CD7628CABF39347E736A4E4A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:438B6B53B38DADC2F9BB649C7F232E9A6C257CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

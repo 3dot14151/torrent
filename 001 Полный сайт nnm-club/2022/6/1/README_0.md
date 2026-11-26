@@ -19,8 +19,7 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 ```bash
 magnet:?xt=urn:btih:2BCFEE9F1F5BB4C5CA9EADF5F02F9E7EF9E6CA14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56D08F3A83F39907AC53F448BEDEE5E3A414C405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F5AF292E2B7A36329669479384D8A3CDC5AE6A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Bootstrap Studio обладает (   Читать дальше...   )Тип и
 ```bash
 magnet:?xt=urn:btih:05B21F92509101F86BB6B772828B2CB7C233014A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4525453004ACA2AC80B4D7818E5FAD550CFE6205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64CCD3CFC5B8D9901640037AA0EF6835A43ACA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:957A80EF783E3BF1148BA38E742E17698052C03E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:42A8C5F184A328A7624A0B5EAF4C6882C5C6ABFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ MacDroid поможет вам преодолеть барьер передач�
 ```bash
 magnet:?xt=urn:btih:B297E44396F96896D6A90F72F833BCB5CB4DF9A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ OCCT 11.0.1 Final Portable [Multi/Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:910751343EE8089E782A6FB9A5982C2E06DAEB64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 ```bash
 magnet:?xt=urn:btih:1B555B826C76C1BC63149600A38FC2231046CA0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 ```bash
 magnet:?xt=urn:btih:9E498F3598B54A03D909E509D097AEDC16EDEFF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:EF1701F310C57ACEBB76B2546C482F02EF1450EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Exposure X7 Bundle v7.1.5.99 [EN]
 ```bash
 magnet:?xt=urn:btih:7FA5518FE075475AC4E3D557810F4D91846EC208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:94817691D67BDCD49F557EBA390DEFBE9E07BC7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ Visions of Atlantis (с англ. — «Видения Атлантиды»)
 ```bash
 magnet:?xt=urn:btih:46E72FDEDD92B78FD36FA7E41E6E62178318953B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ ThunderSoft Video to GIF Converter - удобный инструмент для 
 ```bash
 magnet:?xt=urn:btih:2D7A0D47EDFB21D98328F464C116B13CBCCE201F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C73957CAD220CE533E61CA82A6B0803CAFABD6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E61439E7303BAEB158F0BB6029D2B13521D23851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:A0E6B718F58EDF5E418F8253627BE2C39BDE98B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +632,7 @@ The Path Of Dark Salvation - Contritum Animarum (2022) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:8B2121ED2B7F4F33538DBA6A0434E47ADDCD77FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E77EABB0A8C7E9387838960246E8ED3EF3AE0682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

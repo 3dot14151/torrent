@@ -19,8 +19,7 @@ Grand Theft Auto: Vice City 1.07 [Ru]
 ```bash
 magnet:?xt=urn:btih:DFA4A10D7CBC8E9A1708AC2B74F1513F03383B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Grand Theft Auto: San Andreas Много денег v1.08 [Ru]
 ```bash
 magnet:?xt=urn:btih:23CFCCA4200F2D68F4FC5FE3BFC0585838CFD434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

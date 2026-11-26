@@ -20,8 +20,7 @@ Indiana Jones and The Emperor's Tomb / Индиана Джонс и Гробни
 ```bash
 magnet:?xt=urn:btih:28D7977ED2BADEBDCA0F3FBCD9CCDB9B3DEF89B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7CEC584236F1B7FB160CC4DF37D4E460C2BD9C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ public static void main - Всё_пропало (2023) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:0FD770909CB7E5A3E762F4738C1046BE796F2561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

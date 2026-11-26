@@ -21,8 +21,7 @@ B.F.G - Blue (серия "Другие восьмидесятые") (1989) Remas
 ```bash
 magnet:?xt=urn:btih:A3CDC84EA55441F0F9606C7E1A96F580B3DF78A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ VA - Armin van Buuren - A State Of Trance 900 (Part 3) (2019) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:133C722E94E8452F4D7E6FF28F6ABB8B92DDB117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A570F3EF222A99E1F00856563BE5B1D52133AB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAF5179886ABA1D96842E9B4F870C29B95BF5822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Spirits of Mystery 8: Illusions (2017) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:EF551F843314DEDC97EF698A31E9B9ECE9660A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A201FBCD4FDD6A38D0F683C12CAEDC6B8914549F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:43F430886EF167AC1489BAB8B3EA5888F93A6F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A713721A0F4E66F819B1D776696EFDDDFB1BC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Andrew Lloyd Webber - The Very Best Of Andrew Lloyd Webber. The Broadway Collect
 ```bash
 magnet:?xt=urn:btih:D686930CF962E1ED4302A824167F74C430551177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12FBDAA221058D47882BA7AB160552990FC83129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Surface 11: Strings of Fate (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:137F50F8B144C9658D51C0D40E7695DD4D2E49CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:C6823D014DC1C02C73D99A99C07F0C239DF8AAB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4BCB2FD44A2AA067CDF795F82E59DEA87E331FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FF30A8A85BD7D02B0C07BA977ED079C1C84E930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ VA - Billboard Hot 100 Singles Chart 16.02.2019 (2019) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:AECC74432DC5988E40A720D2E7F39F34FDF3CF11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ VA - Erotic Dreams - Over 60 Minutes Of Music (1991) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:DAACD5106007DB9F6F6725A1339AD5E5385190C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Allister - Best Of... 20 Years & Counting (2019) [MP3|320 Kbps] <Pop-Punk, Punk 
 ```bash
 magnet:?xt=urn:btih:4CCC16CED43FFACD37DA0F39451D4506326882BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12E27596DDC3173AD4FA7FDAF1F85F48A6035EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:0E2E6CFBE48411F659B2D76CEDA0F56854073755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D79C5F1AFBE7994A13E2AD196384CF6E6A561E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A11F6C02412725BAFB8E5860D22FEC61576FC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A55872186C5FFE1822FA2548FB12CDF2A09077AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ VA - Rock Blues Swacc Night (2019) [MP3|320 Kbps] <Blues, Rock Blues>
 ```bash
 magnet:?xt=urn:btih:E8C3AF58390B630D14103EFE642D27712FF34395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D00D62E6E17294F56E5885ACC8E945EB62E3D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ VA - Drum Star Bass (2019) [MP3|320 Kbps] <DnB, Dubstep, Bass Electronic>
 ```bash
 magnet:?xt=urn:btih:C0A5C3B80157CBFE10664123496E01026CCFC93E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ Subtitle Edit - редактор субтитров. При помощи это�
 ```bash
 magnet:?xt=urn:btih:7A0891FC76241D5F34925858DF542ABC92854B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

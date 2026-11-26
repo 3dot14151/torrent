@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FDD796371D5D7D065ACBAE32C9BC01241791E5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DA97D08DDDF7C797F28D862B4F5BDE3E438FBF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Andrea Schroeder - Where The Wild Oceans End (2014) [FLAC|Lossless]<Alternative 
 ```bash
 magnet:?xt=urn:btih:277C4CD05F9157B1CD73A520A9D4C48D52DFC8B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:3D42C621C1B0B73AA3D665E528ADD17AE02D8D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E67136A7D9585E532E40815F6C86B26F7026733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33C234F75A9FDAD70E9E8B9BE3926061D79F32C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD7D15048C723B5DD6DBEE339761F21ED4DDAECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Reg Organizer 6 - многофункциональное приложение, �
 ```bash
 magnet:?xt=urn:btih:245FE86355040656AD1AC03AAC03A1661219F87F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ SuperTab расширяет встроенный (Command-Tab) переключ�
 ```bash
 magnet:?xt=urn:btih:C43604B7D912CDD99F4D2B610B6C7383F91E51E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23E36C618F268C4D29000EFAD218760471DCE855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F2009371FD83749056552B0EE83E62DF3CCBA30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F33BEE0C39187A8597956CBEDA888B9BE2696D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C2F8543A9C7AF9CCF3D74B0523F6A472E68F0EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Seisenshi Dunbine: New Story of Aura Battler Dunbine | Aura Battle Dunbine: The 
 ```bash
 magnet:?xt=urn:btih:F8AE08D38EBA8DEF86FA4455FF1AD84F3CA7ED66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBB50EE16FA066AE8332E3279A91BCA317E79179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:84F852E5CF1813C84048E45D84A23D52FA91FB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ Any Video Converter Freeware - бесплатный видео конвенте�
 ```bash
 magnet:?xt=urn:btih:48A4CBC656550848FFDBA6CAEA6B237332F6A5C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ VA - Школа рока / School of Rock (2003) [AAC|WEB-DL|256 кб/с]<Soundt
 ```bash
 magnet:?xt=urn:btih:7AF4155DF4FD4501C7D5D88A776D9BEBA03E567D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ Joan Jett & The Blackhearts - Live! (2001) DVDRip
 ```bash
 magnet:?xt=urn:btih:12387F564A79FE725CD01CF1DA7C2940E53E51D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ VA - Энергичная 100-ка топовых хитов (2014) [MP3|256 к�
 ```bash
 magnet:?xt=urn:btih:D1C3A278DA1AA5943559408AA2775A105BCB0883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:962F564F49E36AF60E596BEA76B4008B41E97537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD0DD30C0892D428EA4AF59F5211F203DEC576C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ David Lee Roth - Eat 'Em And Smile (1986) Japan Edition [FLAC|Lossless]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:4453096CF4E95102FBAE76DB21B3C90BD7038800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8166D8DCDC3EA6183D6A8DE8532B431719EF9DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ Aiseesoft Total Video Converter— это лучшее программное о
 ```bash
 magnet:?xt=urn:btih:E1DFEE11FD34B00F037FB86FCF5D96EA80DB66BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ VA - Бег in the USSR (Песни Владимира Сапунова) (2014) 
 ```bash
 magnet:?xt=urn:btih:E0532B7A892694C897338A2B0A2B3675455DB6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

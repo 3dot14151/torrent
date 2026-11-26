@@ -21,8 +21,7 @@ Open-Shell Menu - замена утилиты Classic Shell, разработк�
 ```bash
 magnet:?xt=urn:btih:CEFABDEC49308C1C3348C44E9F58FA13A6F0EC88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ BitTorrent – программа-клиент пиринговой сети. П
 ```bash
 magnet:?xt=urn:btih:968FDB3B729324B7FE22DD3BB62C940551048B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Find MAC Address  - небольшая утилита, которая позво
 ```bash
 magnet:?xt=urn:btih:B2B21EF1E318AA190C035725D9C5FB6BB1303F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

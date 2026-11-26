@@ -21,8 +21,7 @@ Swampblueskara Onemanband - Redemption (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:5B20FE90DE3C13A006F1FD459CE9B0782775F307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:308FD19E9129539D29C399EBD8A89B1F932AB561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ The Gin Mill Trio - ROCK 'EM BLUES! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:E0C6E827172BE167DA5018FE113BC4AF86DD89E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Beardfish - Songs for Beating Hearts (2024) [FLAC|Lossless|tracks + .cue] <Prog 
 ```bash
 magnet:?xt=urn:btih:078B4E3B3F564508E3BE8E467F03D4CBDF844D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Joe Valeriano - Sketches from My Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ```bash
 magnet:?xt=urn:btih:6DD71596D4F799AAAC035111EEDA2FAC6CA6D43A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CBEEA7573D9C3B81249C73CBC96C872CD31A20A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ DJ Nibzy feat. Chrissie - Stand By Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Scou
 ```bash
 magnet:?xt=urn:btih:32E39E932EFD06A1E27AE48CBFAA11BBFD30F0DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Sugar Brown - Toronto Bound (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:D22C32B525A4C7A69A2B66F877A83BC413F00F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Barbarella And The Boogie Blues - A Good Length (2024) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:B347FAAE16001C2AE81783976663861A377CF2D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Tony Paul - Smoke In My Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:BA84F99D2048F00702D31B314979C8010BAF9F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12702E5AD41D9F7D2773D83E1265FEE32D83FE4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:872276B597C0565C0F54F2A684B6953843285398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBB9BF860ADF6117A6D1EFB1D13E5CEB66EE928B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Apashe - Antagonist Remixes (Part I) (2024) [FLAC|Lossless|WEB-DL|tracks] <Elect
 ```bash
 magnet:?xt=urn:btih:300499BE0818B5625F9A8ECEECE3548F66711B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ The Imagine If - Great Expectations (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:8451610ECB6E6404E60F8BBBFAB29FB1A35818E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98940DD419B18186B1D5E1E6B77BC93E45131827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Slime Rancher - оригинальный симулятор по разведе�
 ```bash
 magnet:?xt=urn:btih:759658BE312DB2AE421D48BDFC4A93CDBCFF4923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

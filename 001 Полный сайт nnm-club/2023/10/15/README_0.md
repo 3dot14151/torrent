@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:8B9427C4C6985999402BC68EC5E252877F22B440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Heimdall - Hephaestus (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:C596ACB558E3AAB9DFCCC71879076416368B5043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:9BFE1D5736B3D3A0D59C9EAF640763D3DF6890E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Nailwound - An Ode to Misery (2023) [MP3|320 Kbps] <Metalcore, Hardcore, Downtem
 ```bash
 magnet:?xt=urn:btih:35620A25B624D4A16568988B5A89873D75421191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Arc Angel - Arc Angel (1983) Reissue, 2023, Bad Reputation [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:E3043D262560ABB33F7D37D05171746D9786FD7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Nitroverts - Endogenous (2023) 2CD, Deluxe Edition, FIXT [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:AC91334CB1713DD3149D50FE229EBD77552D5486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:544CAAA9BA34C0E16058B60C67019BBBA183748A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ SПRUТ - Падая в небо (2023) [MP3|320 Kbps] <Nu Metal>
 ```bash
 magnet:?xt=urn:btih:1339E384B8E497BE7099804CD5FF74CD417230DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Kent Hilli - Nothing Left To Lose (2023) Japanese Edition [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:0EEA3D3DF382D96588ED6984B9CF140EB11C7325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0C789BA75486F1E303A286871CE09C235E001DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ SSH Config Editor Pro 2.6.3 [En]
 ```bash
 magnet:?xt=urn:btih:93368CC3B2B3660A0E4718257DF3F6F959EBC5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CE305ED49D7592EC0E5D7C25F67CD0E504A4FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ MotoGP. Этап 15. Гран-при Индонезии. Гонка (15.10.2023)
 ```bash
 magnet:?xt=urn:btih:8BAA743AC8D94D3420D44FDD78FFCFB8AE0FA18A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F498930E8299C0AEAC915C3D62E5073A8AF749E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Scrivener сочетает в себе возможности текстовог
 ```bash
 magnet:?xt=urn:btih:E2E4949FDA037D770A98A61D2CE1B49A9834EA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8F638F920507E4A42280164B1B001BDBCA634B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ The Lion's Daughter - Bath House (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 ```bash
 magnet:?xt=urn:btih:F8A0EC3C888BD8E70D1616C4D70FE595D8058D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ Bullet - шведская хэви-метал группа, основанная
 ```bash
 magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ Oni - The Silver Line (2023) [MP3|320 Kbps] <Progressive Metalcore, Djent>
 ```bash
 magnet:?xt=urn:btih:FA5A382A4D67DCD92C820E582631A50B2617E094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Rian - Wings (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:1E0F8C4C0263991D3953D34B6B587BD4AD1D0551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Mitchell's Kiss Of The Gypsy - Unfinished Business (2022) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:1D02804951B3410944D1DA885187E2BC5CACECDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Megadeth - Unplugged In Boston (2006) (Reissued-2021) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:4059F58D023C8C3B65EE5D00472E875AD509BD09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E54F488F1EB27923A4F4D382D7CAB06DDF85756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59935E6BFDD7345A8B5D49A2346D7B3B2894C526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:568F962DF07124799F6377A59CF2442312ADB474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7316427E0CEF55BE9380CEFD5BE3F28999612A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

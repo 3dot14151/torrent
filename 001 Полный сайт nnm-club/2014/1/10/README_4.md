@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8270F388FC914140D6803ADB7D0D3C59F329B9EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ CDT Audio - Demo CD - Part 1 (2006) [FLAC|Lossless]<Audiofile, Test>
 ```bash
 magnet:?xt=urn:btih:476ABA8FC2CB1FDA88EF2AB33E4D8A25F4A4CF48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E04EEA765B5A7EC45E1FB8EBEBFE53BE1594B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ NG: Суперсооружения: Сделано из кирпича / MegaStr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CB586ACB307B7EB4629802A81F42F080CDC1B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Wallpapers - Обои для рабочего стола Девушки [JPEG]
 ```bash
 magnet:?xt=urn:btih:F2B84A1649B97EAED4D8EDD80CE5D82ED605FF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Comedy Woman. Новый формат. Лучшее  (2014.01.10) WEBDLRip [H.26
 ```bash
 magnet:?xt=urn:btih:CAE58C1E1518CFE595C46613847C8674C0E5A509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ NG: Суперсооружения: Олимпийский стадион в П�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - 90 Hits Of The 90s (2013) 4CD [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:6D5ED5A354D1E6F84101CED755BC8CBCA927A6FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2B48502F402AD7055920F73186F39F7DE205C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ VA - Pieces And Poetry (2011) [MP3|320 кб/с]<Instrumental, New age>
 ```bash
 magnet:?xt=urn:btih:BCB0366DACF18C523734D114B602DB907057B85D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Smokie - Grand Collection (2000) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:53B48F2202E5C7A700D70CC3FA320C84CB686248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ Van Den Hul - Four of a kind - For the time being (1999) [FLAC|Lossless]<Audiofi
 ```bash
 magnet:?xt=urn:btih:66DEF8FBE80BE34B2C43F778561B45E6242F5BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33812BEBFB74364CA760F81B26FC07B733D765DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AC75852B38AD0D4B73CBE6DEDC7208A5F0188C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ NG: Суперсооружения: Сделано из бетона / MegaStruc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ Lilly Looking Through — это анимационная приключенче
 ```bash
 magnet:?xt=urn:btih:62B46C5EB763EE2E79516C23003B2BA14CF90D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ Infinity Audiophile Recordings - Volume 2 (2001) [FLAC|Lossless]<Audiofile, Test
 ```bash
 magnet:?xt=urn:btih:4EC844124143E7988EB60040EE3C6AFBF22CAD7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:302514D9EEAEB4A21C400B3058F37566663B6DEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +675,7 @@ Wallpapers - Обои для рабочего стола Девушки [JPEG]
 ```bash
 magnet:?xt=urn:btih:1CB006C68C6359CA8B0140E9A7A5AAB5E4636428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ Zhu Xin Rong - Castle In The Sky (2013) [MP3|320 кб/с]<New Age, Instrumental,
 ```bash
 magnet:?xt=urn:btih:7199DDAE0DC56656DACF7E74A1B3429216399B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +743,7 @@ Triangle - Musique - Demonstration CD  ver.2003-2004 (2004) [FLAC|Lossless]<Audi
 ```bash
 magnet:?xt=urn:btih:02350315C8ABC5D1D09316743B74C4A0DBCCB570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

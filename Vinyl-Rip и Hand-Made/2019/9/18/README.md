@@ -22,8 +22,7 @@ VA - Best Hit Of Japan (Shungo Sawada/Akira Fukuhara Quintet) (19??) [FLAC 2.0|4
 ```bash
 magnet:?xt=urn:btih:A907E39A90C84424D2D2F3DF477F72BC0FF9228E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

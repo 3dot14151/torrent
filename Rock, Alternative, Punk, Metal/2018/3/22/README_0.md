@@ -22,8 +22,7 @@ Millennium - Awakening (Japanese Edition) (2018) [FLAC|lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:30FBDE5272EBD017A8C42A7E4056BE91C581F78D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Crown - Cobra Speed Venom (2018) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:357ACA16C0257ABAC181FAD42C9E36854A342637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Alestorm — фолк/пауэр-метал-группа из города Пе�
 ```bash
 magnet:?xt=urn:btih:E5948445B64EE4AD9AB000BE325BB41657380F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF02BBE84A075B6BF675D0C935BD070DF2AA624F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

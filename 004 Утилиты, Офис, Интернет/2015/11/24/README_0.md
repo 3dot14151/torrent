@@ -19,8 +19,7 @@ DjVuLibre DjView 4.10.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:247835C0D4ABC23631CE1AD8D49BB636C8029A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ OldNewExplorer 1.1.7 Portable by dum spiro spero [Ru]
 ```bash
 magnet:?xt=urn:btih:928C6DB3758F08708C653C2C70BCC6DA38B20459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

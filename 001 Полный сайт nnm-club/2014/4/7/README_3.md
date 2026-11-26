@@ -27,8 +27,7 @@ VA - Невероятная жизнь Уолтера Митти / The Secret Li
 ```bash
 magnet:?xt=urn:btih:E2195BE9D35266FA0DE55C45C42FB74D162FEEAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81C7BA5278DC7BBD66BD85F728FABFCD476689FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDB03F60FC6F5FE3DE60EA24A86647E049DE2CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Here's a Blues (2014) [MP3|128-320 кб/с]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:414FD7CAF132D306C377A175BCBDB9411453F11E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Teorex Collection 06.04.2014 Portable by DrillSTurneR [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1467218F25EE2F8E5F94F43A44595052AFA6B270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:337C8C486CF2F84512A727F7461DC8A1B47872D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ VA - This is Real Rock! Vol.2 (2014) [MP3|320 кб/с]<Classic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6DD0A18197BD40B6FC434458EF7FEA46BF48EB95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6F99FE144C007CED12DD113ACFF5F3B607897D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ VA - Дивергент / Divergent (Original Motion Picture Soundtrack) (2014) 
 ```bash
 magnet:?xt=urn:btih:F76544964E2645A0DEA4C945EE7739FC06C48640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ XnView 2.22 Complete [Multi/Ru] + Portable
 ```bash
 magnet:?xt=urn:btih:95F26B4BB0D85666BE6510F5B0B87C9A968D8A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:8F7F80C2B0F4686EC4DF4DCD677CA97D72A93309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9D6418D17CC1DF87D861DD6B0CD7EE7CB98AC8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ uTorrent 3.4.1 build 30768 Stable Portable by FanIT [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:22D6B8BD6A7B3F850CF4D8301073D013A4E3DE6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ VA - Still Got the Blues vol.5 (2014) [MP3|256-320 кб/с]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:D73D9966D3E9D9500951FB87E5B9DD18DF7A90E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ FxFactory – приложение призванное упростить уп�
 ```bash
 magnet:?xt=urn:btih:F6C619CA0858DF651D3ADFCA90EF54D3D7CE9BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EFF1460D4BB4B715C6566B263C6906F38235E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ PCBoost пользуется этим, выделяя больше ресурс�
 ```bash
 magnet:?xt=urn:btih:35981CEC8E8FAB0A31A07F241E2F36DC575688E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +509,7 @@ BBC: Древний Египет: Жизнь и смерть в Долине Ц�
 ```bash
 magnet:?xt=urn:btih:FAF48941A16FA862822994313BB6E03E4360CFF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4724074315746242FF101F157ADCB0CFDD4EC125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2E3ACB094C402961A3237BCC74E2AD9C6578C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E48922EBF055822627CD8BD6BD4D12C2B105B403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BD0DB7B2AE07A80A0714F78D2DB785F84337CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ Liv Kristine - 2 Альбома (1998, 2006) [WavPack|Lossless]<Pop/Gothic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52952C526D60A36ABB5F285873CFBC9498D995FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ VA - This is Real Rock! Vol.1 (2014) [MP3|320 кб/с]<Classic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:460726BFAC9DC783D380435D5D5BFD579CEC8FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ PGWARE SuperRam - данная утилита ощутимо увеличит б
 ```bash
 magnet:?xt=urn:btih:404BECE2701D9D3E4BBBACB2F90C222E355108F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

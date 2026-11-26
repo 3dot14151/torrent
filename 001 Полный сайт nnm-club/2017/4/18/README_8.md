@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:70E8D72870F50FB7B3D81D1F8E124F94673F367A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ADDF3FADE677AF22E5D25D44DD5337D803DB656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25FA4E59E954DAD9BB0F4F324E307AE7BA81CA6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Uhrilehto - Viimeinen Vitutus (2004) [APE|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:6BAA352BCBADB36888A0AB882E2F9BF0B7AFBC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Драйвовый молодежный весенний музон. Вып
 ```bash
 magnet:?xt=urn:btih:22CE4FED1507B2CF43D79B6A7035AA4B55ACB91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Wolfgang Gsell - Memories & Photographs (2016) [MP3|320 Kbps] <Ambient, Chillout
 ```bash
 magnet:?xt=urn:btih:195B82B42EA17191FF1A5A314F9179CC1E509DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Ice Mountain: Tech House Party (2017) [MP3|320 Kbps] <Tech House, Electro, 
 ```bash
 magnet:?xt=urn:btih:31751CCB2EE1EEFAFBCC15DEC02A703537924E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Part V - Unreleased Material
 ```bash
 magnet:?xt=urn:btih:B3ACE5C262C4413A2460811D0371CEECD76ED9B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Suanda Spring Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:3354D83F5CD73B375AC48B508F4A71DDB4FB1859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - Senssual Miami (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:FE9D80A9D725C4E2A8AD3635E52823BEBBED32C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Who's Afraid Of 138?! (Mini Mix 001) - Armada Music (2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:BA0D34470315C456A8AB8B9406FF5039C72DFE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ VA - Русский отрыв Русского радио. Выпуск № 2 (
 ```bash
 magnet:?xt=urn:btih:86E0A0E9FAF017AB77C61604B0C1EB9CDA5AF86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Knights Of Round - The Meaning Of Life (2016) Japanese Edition [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:637D6B0566E16D6F1EEB1095EE4C8C9B2999B8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ VA - Beatport Trance  Pack (18.04.) (2017) [MP3|320 Kbps] <Trance, Energy, Tech 
 ```bash
 magnet:?xt=urn:btih:426917D5C0CB9E6864744C0F56D54888A417A24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ VA - Музыкальный подарок на Europa Plus. Сборник № 
 ```bash
 magnet:?xt=urn:btih:D590A89B5C7312A4AF68075B5078C23E0D63DD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Othman Wahabi - Hummingbirds & Vultures (2017) [FLAC|Lossless|WEB-DL|tracks + .c
 ```bash
 magnet:?xt=urn:btih:F330380E0E82568AB62596627223C66674F83863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ VA - Весенние заводные хиты. Сборник № 5 (2017) [MP
 ```bash
 magnet:?xt=urn:btih:08235B6F37B9F8824B1D4EFC5DD0D2094E9F5915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ VA - Smash The House Vol.1 (2017) [MP3|320 Kbps] <House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:5B3440E4752ED92AB728327232152EA64EA1E308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ VA - Высшая лига. Весна выпуск № 3 (2017) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:AC7729815A34DC62C6A2B271946E556922C09FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ VA - April Relax Hits (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:E68923D95C42200CD09B578FF71695695DBA4D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC7BF4200AD6A39A2739C9E91DCD0D8EF486BB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ VA - Spring Dance: The Best Dance Music (2017) [MP3|320 Kbps] <House, EDM, Dance
 ```bash
 magnet:?xt=urn:btih:793BC3E3DB7A8A49174D493EC94762A3338DFC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ The Gordon Brothers - Yoga Planet (2008) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:1D676ABAA85425254983F4772E49C49DDF53EDAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ VA - Душевный сборник Русского радио (2017) [MP3|256
 ```bash
 magnet:?xt=urn:btih:4CED56503EF24AB27C8B5F6161ABF68878B8B253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ Vin Downes - When The Sea Lets Go (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:4DA9651B332D174ABC779767E1BF2C87A6BBD270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

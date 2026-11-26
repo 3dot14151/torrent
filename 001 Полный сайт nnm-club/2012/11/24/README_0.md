@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:89E9C72F4DDE0E427B1D343CE4A24B264D8B699C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Whisper of Consciousness Volume 32 (2012)
 ```bash
 magnet:?xt=urn:btih:D946E96AEAB8F1C222A455BA4AC4F92ACD4FB265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:502DAD109E302979CBE043DB505ECBC3D1935C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Luxor - Грешный город (2010) [MP3|256 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:97DD5690C1D5AF1E0D2891D8F3F6CF390EC02D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46F8C83B1A174FDA8AA986B2D2B52D0925AF158C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FCC067A05CA3CB5659B84FC91BB45466D419D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B96EF3B4654614CF5E985D46CB207D718921968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ VA - 25 All Time Trance Classics Vol.3 (2012)
 ```bash
 magnet:?xt=urn:btih:F858B31F2DEC2EC4D862CD645FA49339923B6E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ HQ Wallpapers for a desktop (23.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:AF2EAD775B2CD3649BF44049A503FFBE302919CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ Abstract Wallpapers (19.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:F42FA9F40B0493AD99F4D06BC04711E0C2302F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Computer Desktop Wallpapers Collection (23.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:66D5A3C65167E3FA0D971D62C1B7E8E4568BAB57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A4535D7D0684062FEEDA428F57E581E4C6A18C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75A0614310C4EDB01B9F0659FBF068BD207AA392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EB752BD5CDA966BB0CF9185424031694F386E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ VA - Русские Новинки Vol.82 from AGR (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:03AEFD305B7CF96F136AAC4F2A88BF4AB93B8DA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DA5ADDB07F890F826D088731757B5C358C50E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ Umbrella (Vendetta) - Под Зонтами (2010) [MP3|256 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:FC07DE12500F9B9768BF53C54538293217F2A763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71EE1D7F6FE521AFBE8E316B5951AB1F8763F326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B2F90DF71B4AA64BDD198E9132B9E9A426E0E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +556,7 @@ VA - Суперхит Top-100. Зарубежный (2012) [MP3|256 кб/с]<Dan
 ```bash
 magnet:?xt=urn:btih:5A18744DCCD70F0A864A89F1452EF587083EE03D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ HQ Wallpapers for a desktop (20.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:49C20EA0629AAD6A67208BB5178C7E4C316081E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A466CAFC15842F662A1E7AE6C9185C1DD6A503F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5EB53A61491C579DB4950B8DE6CE3D7608DF48A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4F9DEF5A0E988243939927041FA9BE628C76886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ Train Wallpapers (19.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:7F3222A82DAB21B06F214E3853A4BDF9719B4A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

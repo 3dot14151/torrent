@@ -22,8 +22,7 @@ Aldo Farias with Mario Nappi, Tommaso Scannapieco & Pietro Iodice - Worlds (2025
 ```bash
 magnet:?xt=urn:btih:548E4A3AB029BC3B1D35FA9F6892D319F1C48F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crimson Storm - Livin' on the Bad Side (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:FA8824E9A7E5B9CE0B44EE81A4523E32F3C99A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Enrico Pieranunzi Jazz Ensemble - Time's Passage (2020) Abeat Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:D8411225E6CF4B40839385ABCADDB2765943E33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21512354A23E5996F9294F8F8061A7FEDA0E7555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Jeff Krause & Brokedown Gramophone - Tears for My Friends (2025) [FLAC 24/96|Los
 ```bash
 magnet:?xt=urn:btih:9B9995397C0ED09CF89EF0564658252C0A1D7D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Brian Grilli - Great Big Sky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:222D91D38F45E16678AD3D9E74190ED5A06E3728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Gareth Huggett - Modern Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 ```bash
 magnet:?xt=urn:btih:7D624E2287A6786F24B0306DEB6ADC5656213CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Movavi Video Editor – универсальный инструмент для �
 ```bash
 magnet:?xt=urn:btih:7A0649AD984E3759808051B15D0C261E3A31D3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FB254E167E33FC67E57A8E1DBDBC378CF5809A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC3ACE86EF350AC240FE634800296247D77DF7A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack FitGirl [Digital D
 ```bash
 magnet:?xt=urn:btih:1693BC80BAFC2A257B8592385F666073CF8B80C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Adobe Illustrator — это принятое в качестве отрасле
 ```bash
 magnet:?xt=urn:btih:BB95FF7FDDE41D02E204A1F7A69020867EC852AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Google Earth Pro 7.3.6.10201 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3B0B48EDBCCD4CD67C4CC9E4C2706EB9D37A609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ CGBoost, Jim Morren | Master 3D Characters in Blender (2024) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:BE2BCBD87D9D1CFB82BAEC91D66DB42D3C87F252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00A473627396D262D28E2ACAFF12CF03DE0B3FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCD1F30A7725BCA5E5B6C67CE834CD725364AA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294.40/dlc) Repack Decepticon [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:C9FAB49D0F37D967C4398D304D4D66224946A5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D45673096CADEF311BC1D00D044DF6E0AF1B445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ System software for Windows v.3.6.5 by CUTA [Ru]
 ```bash
 magnet:?xt=urn:btih:A4080BD1F702607BD8D11B343E02FD9A2E7BBE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 ```bash
 magnet:?xt=urn:btih:1BB0F697DF5F526AB92CC00BA43BBD9CC86C40CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Cпикер Госдумы анонсировал новый закон «для
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2CF4CD4AE1FC99112582161368835C45C437C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E26B89E39800BDA9735B89D2B0F78CB1E6EED4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:F6A2D2D76170E9B1DA833A2F981C31B2D5DBE76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ Office LTSC 2024 предоставляет привычный набор при
 ```bash
 magnet:?xt=urn:btih:A0734644CA5F44FDEF8F62EDBE7E15BD20BEE2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

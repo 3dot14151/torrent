@@ -22,8 +22,7 @@ Reaper - Rebirth Of Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thr
 ```bash
 magnet:?xt=urn:btih:500054018F9639CF0394A618896E1F338F12D44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dragonland - Starfall (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal
 ```bash
 magnet:?xt=urn:btih:21578667A65AF25BBFFE95ADF45E7A44D519BE75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dragonland - Astronomy (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Sym
 ```bash
 magnet:?xt=urn:btih:B5C9B67FBDEE5A17C5696DEF7783C20B153BD2E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dragonland - The Battle Of The Ivory Plains (2001) Japanese Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:8DA19EBE71EBE155ECC3506C5F79580433161840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ KingSlayer - Graves (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A7C4800C89C86328E51EC443FE4F36602BCF5804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Black September - The Forbidden Gates Beyond (2010) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:FD81E66ACF3D867F09FCB3331BF19B12C8CBD6CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dragonland - Holy War (2002) Japanese Edition [FLAC|Lossless|image + .cue] <Symp
 ```bash
 magnet:?xt=urn:btih:5783D2014B328543AB729DDC79500BCF32DAD63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Anatomy Of I - Substratum (2011) Reissue, 2015, Punishment 18 Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:2F0F869211930DCB37985F0FF146820E03819A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Raphael and the Thorns - Rituals (2021) [FLAC|Lossless|WEB-DL|tracks] <Dark Thea
 ```bash
 magnet:?xt=urn:btih:6CF43E8222B8D956215C3063F023B7232859628A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Jeff - Didn't You Hear (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6A89ED525D14BAADA272FC4091E32C4359392323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Toby Hitchcock - Changes (2021) Japanese Edition [FLAC|Lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:E4B5FA886A949FA2F1C2CCC2398303847E3D12F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Dragonland - Under The Grey Banner (2011) Japanese Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:2471CDAFE1216999C9DDF61A48B56A76B3B9263E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Lou Siffer And The Howling Demons - Too Old to Die Young (2021) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:683891BFED328F1F6797090C71B919240C727F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Monarch Trail - Wither Down (2021) [FLAC|Lossless|image + .cue] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:C9617B87EBE208705DAA9176EA17452731AE0C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Nitrate - Renegade (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:5D711D73CDCC0A1BD37080B6234106EFB58A5E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Evile - Hell Unleashed (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:94381DA993FA393D0541CA7FE8B04E8D9AAD2376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Various Artists - Metal Art CD Compilation. The Art Of Extreme Music. Vol.1 (200
 ```bash
 magnet:?xt=urn:btih:B9685861F69788104F7606B5FC9875D878D1E21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5607D38080A05581C7765B24A561A9140FE5B695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7D17DAED0CA7955A935C923068CA469F1E8E8D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ Running Wild - Blood On Blood (2021) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:23736F1D0870D56123CDEF3AB23A5864C1714729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ Smokie - Gold (2020) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Rock, S
 ```bash
 magnet:?xt=urn:btih:BFE744A98CF2CF18137C7CC279592FCA4F91CF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

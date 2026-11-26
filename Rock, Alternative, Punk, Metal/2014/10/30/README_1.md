@@ -25,8 +25,7 @@ Father Befouled - Revulsion of Seraphic Grace (2012) [FLAC|Lossless]<Death Metal
 ```bash
 magnet:?xt=urn:btih:DD0918613E07C5C9DFED77E023EE55DD3B4C55BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Faagrim - Blutfrost (2009) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:E81196F8F7F1B7C55EA4084C4E8F76E2471CF584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ F.K.U. - 4:Rise of the Mosh Mongers (2013) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:EA5D7A55C70A3826C377117587EDEA5F8B880CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Bella Morte - Exorcisms (2014) [MP3|320 кб/с]<Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:117401332EDD7E40E3E5C918AEDFCCB9B290FD4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ VA - Beck Song Reader (2014) [MP3|320 кб/с]<Alt Rock>
 ```bash
 magnet:?xt=urn:btih:846AC868A86000B6C6CD38845E4EF89EA6821F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Neurotech - Infra Versus Ultra (2014) [MP3|320 кб/с]<Industrial, Cyber Metal>
 ```bash
 magnet:?xt=urn:btih:5F7B58DC8F6E47EBB9F0262F9B92C4F6FC0A8AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ While Heaven Wept - Suspended At Aphelion (2014) Limited Edition [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:91C94F552ACFD27AEBF50886DACAD3A407BB957F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Virgil & The Accelerators - Army Of Three (2014) [MP3|320 кб/с]<Hard Rock, Bl
 ```bash
 magnet:?xt=urn:btih:6CCC33B32BB5C39AAB48D26146E4847AB29F5D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ F.R.A.M. - Keep Calm And Blow Your Bagpipe / Волынка И Рок-Н-Рол�
 ```bash
 magnet:?xt=urn:btih:35640886279743C8914123FF0D0B07F2487748A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Devilment - The Great And Secret Show (2014) Limited Edition [FLAC|Lossless]<Mel
 ```bash
 magnet:?xt=urn:btih:83FAF35B47EAD948249BD517A701F75E5640B3C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ ASHES dIVIDE - Keep Telling My Self It's Alright (2008) [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:A74DB55D634E3BB82EE1268498D7B7A0C171BFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ Sixx: A.M. - Modern Vintage (2014) [FLAC|Lossless]<Hard Rock / Alternative>
 ```bash
 magnet:?xt=urn:btih:EEEF466A1F37A0A32026BBA576E704E41B631C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ It's A Beautiful Day - 3 Albums (1968-1970) Reissue, Unofficial Release /CBS, ye
 ```bash
 magnet:?xt=urn:btih:1666A68D7F8A6ED70B3B2FACBD615F77FCD8ABDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +463,7 @@ Kiss - Love Gun 1977 (2014) Deluxe Edition / Recording Remastered [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:785F44B428E0EA4FCC1882350440C5C9374C5492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +488,7 @@ Marilyn Manson - Third Day Of A Seven Day Binge (2014) (Single) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:ACDCD8C7FA66E15EB5518A035BB57490A0D083E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +522,7 @@ Billy Talent - Hits (2014) [MP3|320 кб/с]<Punk Rock, Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:A9B6E0C272C838AB5EDF642EDC07963657E8DA2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +556,7 @@ Catharsis - Индиго (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:902E197B28326432C9CD44EBABF6881FC759E22A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

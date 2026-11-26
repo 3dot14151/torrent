@@ -21,8 +21,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 03.08.2015) [i386] 3xDVD
 ```bash
 magnet:?xt=urn:btih:5631147C5064EFB0268BA2AD6BDCFD8EA98A3714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

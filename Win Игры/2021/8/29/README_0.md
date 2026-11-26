@@ -19,8 +19,7 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (7256917) License DOGE
 ```bash
 magnet:?xt=urn:btih:49C0DDB79337C555D9215CF705BA493A335685B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

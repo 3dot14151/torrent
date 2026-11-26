@@ -23,8 +23,7 @@ So Hideous (ex - So Hideous, My Love...) - Last Poem/First Light (2013) [MP3|320
 ```bash
 magnet:?xt=urn:btih:E7D4A1F6D641CFF3C872E38A485E3E8C00F7D21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ VA - Mystic Sounds (2013) [MP3|320 кб/с]<Drum n Bass>
 ```bash
 magnet:?xt=urn:btih:DC3ABD36870B96C0614A92699055789DECC7A158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ NG. Стихийные бедствия: Cилы природы / Natural Disast
 ```bash
 magnet:?xt=urn:btih:06C4B1EAAB3FAE5C3EDC8209608841F907E2CA92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Matt Mitchell - Fiction (2013) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:EA34BF0D3D47C3A6DAC1A2C98DB2285B8E608445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ HyperSnap — программа для снятия скриншотов. Мо�
 ```bash
 magnet:?xt=urn:btih:FF9F41C11E5A3D61147D80D90A0130EAB17AA536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Gallowbraid - Ashen Eidolon (2010) EP [FLAC|Lossless]<Atmospheric Black/Folk Met
 ```bash
 magnet:?xt=urn:btih:1B9C6F3B282D99EC51E7DDC48156152A73319286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:366E9AB8812BD7F75BCEFF00B87C249BBC03DA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27C685A263FBF6D87A3A7063A8978C4DE9EE7A3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0839713D4A8AA59C3020A66E142AFE21FE4E1B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F54D78B0AB86DA77D743FEB19B540B472B04173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4F31D10A00E8965FF8FDEFC3AE5B03D09F69293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Bad Sector - Unification (2013) [WavPack|Lossless]<Ambient, Power Noise, Industr
 ```bash
 magnet:?xt=urn:btih:87347DFEA66724B30DBB138C6D8E4DBA9DEDF09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:343EF4647E2010E94E719B21CA264CD4E183D8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Discovery: Война от первого лица  / Ultimate Warfare  (Сер�
 ```bash
 magnet:?xt=urn:btih:35634759FAE24AD743BFD6E1F91D7294D1FE8268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Pacifist – приложение, которое открывает пакет�
 ```bash
 magnet:?xt=urn:btih:AB372D7AD47412FD56A2B043416C4B78D407F03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ VA - Big City Lounge Top 50 (2013) [MP3|320 кб/с]<Downtempo, Lounge, Chillout
 ```bash
 magnet:?xt=urn:btih:6FA6CECFC65187FD4025FAE3F50A57BEDAFA7BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Eva Cortes - In Bloom (2013) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:7023A7A77775B78D2B091A5BBD7F31F56347BC99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ NG. Реальность или фантастика? Туринская пла�
 ```bash
 magnet:?xt=urn:btih:89C9DD598D95E6DC7333075C1124464DD09B45FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - 100 кг шансона (2013) [MP3|256 кб/с]<Шансон, поп>
 ```bash
 magnet:?xt=urn:btih:2764C01CEEB280ECB64F864DBA9E00EA5CD8F7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ Maxthon для Windows использует уникальный двухдви�
 ```bash
 magnet:?xt=urn:btih:A50BA2303AC07E26924983E6BB07C96E3B21C5E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ FotoSketcher поможет вам автоматически конвертир
 ```bash
 magnet:?xt=urn:btih:A5F4CAC0BD0549E14AE4B6625449D590B9AC8D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +611,7 @@ Jai-Jagdeesh - Of Heaven & Earth (2013) [MP3|320 кб/с]<World, Folk>
 ```bash
 magnet:?xt=urn:btih:4F729CAFA6A59F2C677CEF8543FCB341FE8D1880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ DVDVideoSoft является независимым разработчиком 
 ```bash
 magnet:?xt=urn:btih:1D726D8D842286851BA701561A66D65D452DF306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6582947053493325372B7CB0AB7648F70A966DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92A7CFBE6FA2C2613F6C97540A2CDCA27FD1FD6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E301A95CBFE13E38B9A69E7CE98743AC3045C9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

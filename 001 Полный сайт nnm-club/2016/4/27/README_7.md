@@ -19,8 +19,7 @@ ESET Smart Security - новая версия комплексного анти�
 ```bash
 magnet:?xt=urn:btih:9B11B8AE05F9C511D326DF666BA63A515FFCAB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

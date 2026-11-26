@@ -18,8 +18,7 @@ Collection 3D models for a child's room: Сборник профессионал
 ```bash
 magnet:?xt=urn:btih:A99146C928B0470846FD93FDBDD792225B56EF8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27FB39571D8802F543671A8A1222FC7700B16CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Dead Space 2 (2011) [Ru/En] (1.1/upd1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:08C216A53BCE3B6B727A39FE73234CF9D19B43B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:261EFD4E7E51DA7B97317078A6797620BAB6D050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Assassin’s Creed: Brotherhood (2011) [Ru] (1.03/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9279EAE7FA8D2ABF536C6BBF40690886556E0BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ HTML Academy | Интенсивный онлайнкурс «Базовый PHP�
 ```bash
 magnet:?xt=urn:btih:C13D7F2015D7570485DAFBAC902048D6F16CACD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack Mizantrop1337 [Game of the Year 
 ```bash
 magnet:?xt=urn:btih:9AD1BC60ABBAA96D26863F2DB0D50042FD94D665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ FL Studio Mobile — профессиональная программа, кот
 ```bash
 magnet:?xt=urn:btih:FB973D09DC6ACC5EB4CAD4A6E4BE77608AC23EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:2152D3F172FB20E72D35171C552619E2E1A223D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41D5984CBE678DC4C04936EBBCB7780994374951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Dead Space (2008) [Ru] (1.0.0.222) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A774F9F85921D36C002D280A9AE1426D85C8A5D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C79CAD60830C1072C92881C983D4D87004D5B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:ADE658D2393F4DC40D24F470A6CF7E1687218FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack Other s [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:DCDA24964355BA726AEA75CAAEFD501688AEC79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:1BC2F1900E0C32141C0634848376216CB7CE96C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

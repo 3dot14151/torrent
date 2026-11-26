@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8238711DCC06638E5AD137A94E064D375ED56946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:77CCCF6FAA796E1E29CB6CD3EF021D1C0E92EF27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:1408C9FF888F99435306CB203CF5195F18BB1ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Over the Sacrifice - First Seal Broken (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 ```bash
 magnet:?xt=urn:btih:339114C67D70A4524200D384E53838F5337393E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Oozing Wound - We Cater to Cowards (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash,
 ```bash
 magnet:?xt=urn:btih:5E69640170F8F5C37534A6C87F0AD8FA9A2BFFF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Embargo - High Seas (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Har
 ```bash
 magnet:?xt=urn:btih:97D6D957A323F7AEFF0898B3A7B47556902401E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ People Like Us - In Heaven (1997) Koch Jazz [FLAC|Lossless|tracks + .cue] <Mains
 ```bash
 magnet:?xt=urn:btih:05A82485A266CCCE3714C72BEA7594D085AE309C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Orphans of Dusk - Spleen (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom Meta
 ```bash
 magnet:?xt=urn:btih:17E6CB247D9827B8984E1749FCBB3743894EC671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Toledo Steel - Heading For The Fire (2021) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:7D62D6683D7D915969F456397E0C6C959C4673FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ dEMOTIONAL - Scandinavian Aftermath (2021) Deluxe Edition, 2023, Relapse Records
 ```bash
 magnet:?xt=urn:btih:145CFF568EE67FAA202668EE017398CC8A6ABA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ John Fedchock NY Sextet - Into The Shadows (2020) Summit Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:0387FFEB88EA3CAA4C73BB76A4480F89994A1428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Molly & The Heymakers - Live Wires (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:46E5EC4163D1CAF5D2D3DA0BEDE74890CFBDD55E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Miss Fortune - Gravity's Rainbow (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock
 ```bash
 magnet:?xt=urn:btih:A247027355C6C934B301C8CE941523D5ED71DCCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ PFM (Premiata Forneria Marconi) - The Event Live in Lugano (2023) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:2B504081420D20D6B962C76AF7326D817BB0F9FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Elvis Costello – Live At The El Mocambo (1993) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:2AC59C0356521BACB10A4C6F8B842BA1AF4E0FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ It Is - The Exister (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Garage Ro
 ```bash
 magnet:?xt=urn:btih:C636198FB5AA8D517B98B4455CA0C6B16BC67995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ Wardencliff - Город (2023) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3024E66D322CCFF141175493DD4340E1FC6B50A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E1819D6AA93B5BF7FB53B888408978036987BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ RTG. Ювелирное искусство Костромы (2012) SATRip
 ```bash
 magnet:?xt=urn:btih:F6EF63D32FB01B098B771D09358DFAA949F72779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64DAECB75AF984739FAF5F836957527923E9091F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ Ghost - Phantomime (2023) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4FC22AF69FA4DB646B2D3FCE48FE57EC9B00D583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9080FCFCF927F2053B47807022C544EA95D45639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F8030EAE29E7A984AF524866E9AE385104E7C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:27AC9C8779226E57D2DDFB92A4A42F761939E129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 ```bash
 magnet:?xt=urn:btih:1323838D60496912140DF7E6AD6456BC076B7A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ OpenNumismat является удобным и надежным приложе�
 ```bash
 magnet:?xt=urn:btih:4B6C0C5CE08ED0EAD28FF0372877F52D925BE942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

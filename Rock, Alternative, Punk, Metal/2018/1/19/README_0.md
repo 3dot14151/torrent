@@ -22,8 +22,7 @@ Exact Division - Be Fair If You Can (2017) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:90628EBA129CF7D151A04FB6E7FF4654884475E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ para bellvm - Сердцебиение (2017) [MP3|320 Kbps] <Dark Rock, Gothic 
 ```bash
 magnet:?xt=urn:btih:38F4A83A0B33948A5740ECE8AD6B94BE2BB4110E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Virulent - 3 Альбома (2012-2017) [MP3|320 кб/с]<Progressive Deathcore,
 ```bash
 magnet:?xt=urn:btih:BEF6BA62BEAA18DCB28F6C0B1A0CC3D02B293C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ The Atomic Bitchwax - Force Field (2017) [FLAC|Lossless|tracks] <Hard Rock, Ston
 ```bash
 magnet:?xt=urn:btih:49F77226382585D7A324117FB65CF9A5543A652E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92F64CFC3A932E76C557EE7940DF1FF542757CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tank Squad - это тактический боевой экшен, в кото�
 ```bash
 magnet:?xt=urn:btih:3C805741C69B87151D92834BEC0D6B3387499342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sky Force Reloaded – это воплощение классической ар
 ```bash
 magnet:?xt=urn:btih:9FC0FFB5173C8E3323256393AF94679B6A1CC359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead of Darkness (2025) [Ru/Multi] (1.2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:10345ECF852F23BA7ABE71186728980283A7C0D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wild Story: Primal Secrets / Дикая История: Первобытные �
 ```bash
 magnet:?xt=urn:btih:3CA2BECE607100A219A13A14BD890755A1CE3420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sugardew Island: Your Cozy Farm Shop (2025) [Multi] (1.0-20261013-1336/dlc) Lice
 ```bash
 magnet:?xt=urn:btih:65B3919560651E0EB69A936E35CBC34B04BD1DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sky Force Anniversary - это юбилейный ремастер класс�
 ```bash
 magnet:?xt=urn:btih:D08A226438101A7186FDA74F56089099CB507347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Fire and Ashes – это иммерсивный хоррор, где безум
 ```bash
 magnet:?xt=urn:btih:47DB3A8D390FEF74633C917973E798220AE202BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Hubert (2026) [Ru/Multi] (Build 25945532) Scene Rune
 ```bash
 magnet:?xt=urn:btih:4A34483545AA4E6229D134C6AF65EB812063EF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Castlevania: Belmont's Curse (2026) [Ru/Multi] (Build 25766122/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:336957469C5CAE315002DC6E287FE2E0959159E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Wild West Supermarket Simulator - это симулятор управлени
 ```bash
 magnet:?xt=urn:btih:0270ED2D2BDA99585902DFC0E0825C8FC160AFB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ over the hill (2026) [Ru/Multi] (Build 25931885/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:C20A2E7B452FD6F78EFEE85523682A1D63CA788C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Qliphah in Providence’s Shadow - тактическая ролевая иг�
 ```bash
 magnet:?xt=urn:btih:CDBFEEEFC158B31A9F65B882F35C8D5FD411172E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Wild West Supermarket Simulator - это симулятор управлени
 ```bash
 magnet:?xt=urn:btih:52C13474838925AF7091DE2BA998CD2E445733CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

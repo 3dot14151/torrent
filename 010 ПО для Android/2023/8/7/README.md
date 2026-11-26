@@ -19,8 +19,7 @@ Delight VPN — это самый быстрый бесплатный VPN-про
 ```bash
 magnet:?xt=urn:btih:725288EB05FAFA6E7D79F9AF04299CDA17C34BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ avast! Mobile Security защищает ваше устройство от ви�
 ```bash
 magnet:?xt=urn:btih:C85B0FC0BFD51E5618EF9220E9630B5E69C13D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Tacit Fury - Horrors From Depth (2012) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:214EE6CAE3515AC652A3D7EBE378BA19A6FF2F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F46132B0B3026B3B9E6BF7C059707C7935D2394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

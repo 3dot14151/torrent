@@ -22,8 +22,7 @@ They Breathe - необычная аркада, в которой безобид
 ```bash
 magnet:?xt=urn:btih:081E6C69201ACD31802238200C7CF592D532D034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Procyon (2013) [En] (1.06) Repack OUTLAWS
 ```bash
 magnet:?xt=urn:btih:776AD0DF6FF6007A43BE3D0AB928BEE110459FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Fable Anniversary сделала большой технологический �
 ```bash
 magnet:?xt=urn:btih:35E0F8212B288710702D6E38A530E41158F528E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ PDF Shaper Professional 9.2 RePack (& Portable) by TryRooM [Ru/En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ II Женский турнир Волейбольной Лиги наций 2019
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Rondo Classico - Amadeus (1994) [FLAC|Lossless|image + .cue] <Instrumental, Pop,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Elton John - Love Songs (1982) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ DYATHON - Recollection (2019) [MP3|320 Kbps] <Instrumental, Piano>
 ```bash
 magnet:?xt=urn:btih:0AFBE6F8429567D4B7C104371487C6DD78CFF697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Tipard 4K UHD Converter - мощный конвертер для преобра�
 ```bash
 magnet:?xt=urn:btih:5B6DC4D4873BDA5E75BA640D58F26E60E61F0DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF0B72CE578967D2ED2B1644DB9725713B800F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ II Женский турнир Волейбольной Лиги наций 2019
 ```bash
 magnet:?xt=urn:btih:BE890D510337A3F0A0DFAD0A287C016B39020F29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ YouTube By Click - отличный и удобный в использован�
 ```bash
 magnet:?xt=urn:btih:7F2668ECFAC9250CC0A988EE31C52DEBB6B6B696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Yes - Yes 50 Live (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:67E4B3D956477474C3860ACE42A081C5B6B447B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ II Женский турнир Волейбольной Лиги наций 2019
 ```bash
 magnet:?xt=urn:btih:7D0D6EA026B6878B6705A53BADD7E7C6B8CD09AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Tipard Video Downloader - это профессиональный загрузч
 ```bash
 magnet:?xt=urn:btih:D8F6D35FF835C7DCD63A3AC93215CCD9FBE5B7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ NASCAR Cup Series 2019 - Сезон 2019 года
 ```bash
 magnet:?xt=urn:btih:638B01E97FE42B377EE3EAD482C49A52E2152F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49597C72640C3D20DC67BD8DB4341271239FFDDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ II Женский турнир Волейбольной Лиги наций 2019
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ Cатояма: Таинственный Водный Сад Японии / Satoy
 ```bash
 magnet:?xt=urn:btih:23951B7ED4CB9C7CA5A422062659452770934F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ II Женский турнир Волейбольной Лиги наций 2019
 ```bash
 magnet:?xt=urn:btih:B6401A6865209B29CC1345F23DCBCF875EBF2417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Der Blaue Reiter - Discography 9 Releases (2006-2019) [MP3|320 Kbps] <Dark Ambie
 ```bash
 magnet:?xt=urn:btih:5015F9836F5F1964DD0EFCD8874FBCF7EDA96F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D2A5799625CF897D972FB1EC9861E49B0F785F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:956BFDE689604453869768B8E59DDCFF787F7CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4085B59A612655B8A717739872ACB32C62E57DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10A9512B1D67A1C310179A6DB7110B4222EB0314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:F166B7E6565426B361CC7AAA27F17E8AED046DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ Mgosoft PDF To Image Converter - быстрая программа, котора
 ```bash
 magnet:?xt=urn:btih:916AEF9A4AB68500A646618B29D04FC88A3585E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ PDF Creator PDF24 - это программа, предназначенная д
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ IsMyLcdOK - небольшая бесплатная программа для о
 ```bash
 magnet:?xt=urn:btih:AC67B930D0F6A3FA473F46CF4EC8B217116215A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

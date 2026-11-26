@@ -19,8 +19,7 @@ Wondershare Recoverit- мощная и простая в использован�
 ```bash
 magnet:?xt=urn:btih:D8F17F35F2D50B7AA5DC1574CA7AE0A33F800490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

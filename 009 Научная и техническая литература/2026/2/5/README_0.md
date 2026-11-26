@@ -21,8 +21,7 @@ Introduction to Aerospace Engineering with a Flight Test Perspective provides a 
 ```bash
 magnet:?xt=urn:btih:1FE847E3025AA94325FBAB4C010456F64DB6FE96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

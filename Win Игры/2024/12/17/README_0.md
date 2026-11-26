@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A8721F9B4A288E09922E8AF71EEF3D8F3311CB1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack FitGirl [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:EFD8E8E8F2B609D36BB639DCEB8C7A50259B47E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DEVOUR - кооперативный выживастик от первого л�
 ```bash
 magnet:?xt=urn:btih:CE0F252D8B7638EAFDF1AD810E8657E0ACC2AA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Cabin Factory приглашает геймеров в мир, где за �
 ```bash
 magnet:?xt=urn:btih:9C8AA7DE93C0004DC552812FE8E5F967DFEA3C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Barony повествует об обретшем вечное существо�
 ```bash
 magnet:?xt=urn:btih:D1D764FFC42844192BB19AEF3B8DD315192F7FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

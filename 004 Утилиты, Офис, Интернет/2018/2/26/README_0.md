@@ -19,8 +19,7 @@ Lunascape — браузер от японского производителя.
 ```bash
 magnet:?xt=urn:btih:B65CC52C540EC99F03561BDC7AF76B1BF12BCA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Professional developers will produce leaner applications for the ASP.NET Core pl
 ```bash
 magnet:?xt=urn:btih:990DF944E43F22EA65507A6FD52AA78A3154C1E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D77708F260389507E56934DC56ABB1CBA39D57C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

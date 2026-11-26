@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:78BE290F87AC501417391F37EDB648A0DCB681C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Expressif Systems | ESP32-C3: Беспроводное приключение: �
 ```bash
 magnet:?xt=urn:btih:5747B52018A5866060E205A8AE8C178D46D28930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:64219465B9AA1CE8363E8242B49C11F50506A2A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A3463CF29E3D27FC018A3BD84BB6D7E3723A7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Windows 10 Pro VL x64 21Н2 (build 19044.1682) by ivandubskoj 07.05.2022 [Ru]
 ```bash
 magnet:?xt=urn:btih:37A2A39CC53B5900DDC8E2D0F0033286D3E1E3F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0693FF56FC8DA9652F3478CD477479AB97B4DC8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

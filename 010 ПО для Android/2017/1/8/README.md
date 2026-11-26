@@ -19,8 +19,7 @@ Recorder 4 in 1 PRO - Запись входящие звонков, исходя
 ```bash
 magnet:?xt=urn:btih:F75D60AB5D49B46B130C90E0148C2F94D202BF1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1107A4D2DA4D432B30B51A595E02FE63C15BA1BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

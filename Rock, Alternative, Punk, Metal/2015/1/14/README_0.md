@@ -26,8 +26,7 @@ Agael - Trost (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Post-Black Metal
 ```bash
 magnet:?xt=urn:btih:F11AC78A8500D1C83DDDCFF7788E5623FA0B8BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ La flag - Spargelzeit (2014) [MP3|320 кб/с]<Post Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:291D8C20AA975B8476274C85E2BFA22C9BDFA774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Van Wolfen - Wenn der Mond weint (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:FD6A95EAF89136D883D13B647E669FF2193E49E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Ohrenfeindt - Auf die Fresse Ist Umsonst (2013) [MP3|~245 кб/с (V0)]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:0902C5A16AFA7E3AF5EA8A7FF4EEE2009F543B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Lights & Motion - Chronicle (2015) [MP3|320 кб/с]<Post Rock, Ambient>
 ```bash
 magnet:?xt=urn:btih:16093DF5D6748CC170C440DE1377BD7005542744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Yngwie J. Malmsteen - Spellbound: Live in Tampa (2014) 2CD, Live, Japanese Editi
 ```bash
 magnet:?xt=urn:btih:8F329C1200F9C251E9B4D65C3B759ADBA1913E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Puhdys - Rock'n'Roll Music (1998) Compilation [MP3|320 кб/с]<Classic Rock, Ro
 ```bash
 magnet:?xt=urn:btih:A5B74B64E9EC705124E3B8FBF0DD85EAA8B0E97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ Yngwie J. Malmsteen - Spellbound: Live in Tampa (2014) [FLAC|Lossless]<Neoclassi
 ```bash
 magnet:?xt=urn:btih:F4930072F517F40CCAB2348299D863C346E9F8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Xerath - 3 альбома (2009-2014) [MP3|320 кб/с]<Progressive metal / Symp
 ```bash
 magnet:?xt=urn:btih:D7D6F5B5F5472A401655B79E45AD4FE86D0F808D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B74EFB8ED9C5368DB41D0845123ADD73CABEF75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

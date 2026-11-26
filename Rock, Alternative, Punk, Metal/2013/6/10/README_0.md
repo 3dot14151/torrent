@@ -22,8 +22,7 @@ Shadows Of Stone - Shadows Of Stone (2013) EP [MP3|320 кб/с]<Doom Metal, Post
 ```bash
 magnet:?xt=urn:btih:F068245764DD72CC9520BD08FD32C5D38CCDE8D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Denaro - Denaro (1992) [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Marchenbilder - Flickering Truth (2013) [MP3|320 кб/с]<Symphonic Metal, Femal
 ```bash
 magnet:?xt=urn:btih:7C3FC099B637DF5D03454D39781E0FF7F374D5F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA988A668E6F7586CFC929FF9CF6A2CCB6357B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ S.U.N. - Something Unto Nothing (2012) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Side of Despondency - Dissociative Ideals (2013) EP [MP3|320 кб/с]<Depressive
 ```bash
 magnet:?xt=urn:btih:B0F5AC80C5B15B065149801D8D6A564B27454432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Hardline - Double Eclipse (1992) Japan [APE|Lossless]<Hard Rock , AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Bullet - The Entrance To Hell (1970) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5612F0278A2AEB31DB153F511395421B6165D989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Faster Pussycat - Faster Pussycat (1987) Japan [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Cavo - 3 Альбома (2006-2012) [FLAC|Lossless]<Alt.Rock | Post-Grunge>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Bryan Adams - 11 (2008) [MP3|152-219 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:B08425AFDD2CFB9F341B15F6774D25CD548F8157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ Dismal Euphony - All Little Devils (1999) [APE|Lossless]<Melodic Black / Gothic 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +418,7 @@ Sigur Ros - Kveikur (2013) [MP3|320 кб/с]<Post Rock>
 ```bash
 magnet:?xt=urn:btih:FAB14831406DF63877D6D5E905193202D17FD006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +446,7 @@ Camel - A Nod And A Wink (2002) [FLAC|Lossless]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +480,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:62A5A0505C26DC9EE822933D27ABC5F42B34E33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +514,7 @@ Children Of Bodom - Halo Of Blood [Japanese Edition] (2013) [MP3|320 кб/с]<Me
 ```bash
 magnet:?xt=urn:btih:3652ABF39EC22A4A54A0817A4665943A4AFDB2A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

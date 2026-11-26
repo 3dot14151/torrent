@@ -21,8 +21,7 @@ Sinepearl - Cycles Within Cycles Within (2014) [FLAC|Lossless|WEB-DL]<Ambient>
 ```bash
 magnet:?xt=urn:btih:46EAF7806353C888A1628662CADDFFB8B51CE395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:658E9B1F9FC05D9CCDC3DB53A09CA8B68C87E380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:BF84CA19E1B227B7E80A55B2A447C9813AEA1A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0373B2123B87CA1E09303C751D74387D8EA7EFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADB9D302EE693256DB25855B96843B25FB8B6288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F57D2FD4BB281B648224AAC4CDEE0B7120E6449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ TotalFinder – это набор полезных утилит, расширя�
 ```bash
 magnet:?xt=urn:btih:CDFAFA979E8668488CA699C6AFB4FC61778E0CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ GoodSync для Mac создает резервные копии и синхро
 ```bash
 magnet:?xt=urn:btih:0E60C64D4448266B45F5A06173AF883ED2B10B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ AFK - Cloud Kingdom EP (2014) [AAC|WEB-DL|256 кб/с]<Bass, Trap>
 ```bash
 magnet:?xt=urn:btih:0632BC9E00BFA3EEFAD318324AEE3D530540CFD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0A25ACB6E0D6E7DDF02F9C79B2E56A4EB07D97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:390B2CE5E2C6DE4B91C3F26877309B3DEC0E0C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Жажда Скорости Часть 15 (2014) [MP3|256 кб/с]<Pop, Clu
 ```bash
 magnet:?xt=urn:btih:7BF128C90F0FE001231B516D2FD6E8995F4B4CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Work Drugs - Insurgents (2014) [FLAC|Lossless]<Dream Pop, Chillwave, Indie>
 ```bash
 magnet:?xt=urn:btih:DCBF391D10338878597742743A2FC44B8A84C9C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ House Of Lords - Precious Metal (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2F6AE6EE58EC8339CB54DEB5EF101B1563CB75C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ VA - Взрывной Хит-Парад. Выпуск 50/50 (2014) [MP3|256-320 
 ```bash
 magnet:?xt=urn:btih:80072B5E3B9254C02708BB2527131816F606394F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C27C15A647CF9DB65CEAEC28701CDD2BFCD9B97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ JetBrains WebStorm позволяет добавлять разметку HTML-�
 ```bash
 magnet:?xt=urn:btih:13B5F1E7D6E3613776BB45B2F25D0C7C82C5F708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7892913F9144126E2D4DE94C9B04792C13CDC1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ Stereo & Video первым встречает и представляет са�
 ```bash
 magnet:?xt=urn:btih:F0972422818DE0267E18C38B0587294ECDC4D289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ Wallpapers - Desktop Wallpapers Collection [JPEG]
 ```bash
 magnet:?xt=urn:btih:0075F6294B635CFA726C12DA5F3C99B36D72C281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ DVDStyler - программа для создания DVD видео диско
 ```bash
 magnet:?xt=urn:btih:192724883DC8F9A305A139EA75B0CFCADF089665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4D975A7FA0DB37BBF527F6C105EE79482E3EBE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18432A7DBB7DABDE4DAF9DE3ECDFD027A0BC7252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50C5FE5F81E6CFC2542C6F413DD904D43E4B82D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C29DA919BBE0E515F72DE946FD0F0F22A489B487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

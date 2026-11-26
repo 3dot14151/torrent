@@ -18,8 +18,7 @@ ZOMBI / ZombiU (2015) [Ru/Multi] (1.1) Repack West4it
 ```bash
 magnet:?xt=urn:btih:D2EEC993C9498C8323DC7E2A4263F5DAACECA861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2452AB77A468B8B14BB5581D01C5EF335C5C45BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38EC63BEFAADCFF14BAAA004CE35711F243B5264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Windows 10 Pro 20H2 b19042.804 x64 ru by SanLex (edition 2021-02-10) [Ru]
 ```bash
 magnet:?xt=urn:btih:749EA04B230A3783050AAA0F128E431F5BC1DDD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F086961BD702BD6ABF3C6DB6D2B9FA4EE74306B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ WeatherPro — это надежные прогнозы погоды по все
 ```bash
 magnet:?xt=urn:btih:3790B9E313427686C22CF86C475514F47FEACF23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Новый Арсенал (2007/2016) [Ru]
 ```bash
 magnet:?xt=urn:btih:87F1F15E3D60DE2EBDA4B2544A213623A4BBEA82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:6E0435D7B960340E1996B38BE9A621BA08151992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Edna B. Jerano - Let Your Feelings Show (1978) LP [MP3|320 Kbps] <Electronic, Di
 ```bash
 magnet:?xt=urn:btih:783ADB2B276F67AB59A2E454382F50AC6316F6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BFBB3C1E0C5761E03264E97AAE12712B006B918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3DAB066A9FC524343F3791829281A6D803A2970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ David Knopfler - Songs Of Loss And Love (2020) [FLAC|Lossless|WEB-DL|tracks + .c
 ```bash
 magnet:?xt=urn:btih:815E227719ADC2DC93DAB3169579FAA086B4FEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ VA - Ouca Playlist (2021) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:A7E167BDED85E2732E09F90A5C39930594AF76DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Kandace Springs - The Women Who Raised Me (2020) [FLAC|Lossless|image + .cue] <J
 ```bash
 magnet:?xt=urn:btih:645DA9BBC8F47A7D89B63326D57FE4E739E2B1C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:167D6AE1BD7FF981E85F63E3B3B0453016127CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ Chris Wonderful - Music for Lovers, Vol. 1 (2013) Yoola, 2020 [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:66FA994CB13FA31F789F9F3B235450B6F9DC60E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA4C553758B0ACE7385D79FBE200AECC01E67081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ Alexander Popov - Adagio (2021) Singles [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F5A2B7116D65E80B2877DF378DF36CC1F22462A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ Lennie Tristano Quintet - Live At Birdland (1945, 1949) 1990, Jazz Records [FLAC
 ```bash
 magnet:?xt=urn:btih:9F27ECB48EBD9CF1542A17B243D76D0A623FE42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ Enrico Pieranunzi Quartet - New Spring: Live At The Village Vanguard (2017) CAMJ
 ```bash
 magnet:?xt=urn:btih:89ABCF9E7D581FF0753A4DF14F1D763BD4C213A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41A115AA0AB5F053DE4F592E9BC6639D5E40325E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:730FBA68B2CF397D4671DE74B1A6A00E0FF26E01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55A0BD24D89F5F7C9DA8302B2ED68511D467F3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ VA - Beatport Electro House: Sound Pack #238 (2021) [MP3|320 Kbps] <House, Deep 
 ```bash
 magnet:?xt=urn:btih:639518752B48D138FE08EEF87248D53D5BE9F83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ VA - Abstract Electronic: Experimental Synth Pack (2021) [MP3|320 Kbps] <Synthwa
 ```bash
 magnet:?xt=urn:btih:16E5943B6931078C6A2AD50F98FE8F68D3A10935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ Submarine Silence - Did Swans Ever See God? (2020) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:E644102CB3D88745DB0F1C66DD4768178E7DDEC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

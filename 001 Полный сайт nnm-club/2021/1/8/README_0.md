@@ -18,8 +18,7 @@ PasswordTool - это простое приложение, которое быс
 ```bash
 magnet:?xt=urn:btih:0BD7301E164DAA6217B8E65942413D71C3CAE00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ C помощью этой книги можно подготовить ребе�
 ```bash
 magnet:?xt=urn:btih:DDC0BE9CBC5D10BC1C42D4A30917815E8D5982E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Zwangere Guy - BRUTXXL (2020) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:A3CEA0542BBF7632D5205709BA299787895D0245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ QR Capture 2.3 [En]
 ```bash
 magnet:?xt=urn:btih:D7CFDF058E7B53824D71700993AD2B062DDE2AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D651CA0C0C7D1FE638C58ACFF4F93AF0E43E9F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA4490C4E094B11687556B4C8B73B8E38B08C5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ VA - NaHiM Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting
 ```bash
 magnet:?xt=urn:btih:4BD25B6F1F9A63AD65838596B967689A4BAC3AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65983F235ADDE29463355A5282BF26BEF0C6F5B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ PhoneTrans предназначен для быстрой и удобной пе
 ```bash
 magnet:?xt=urn:btih:8DA20D4B22FEB87DA6F24A49450904622A05DF2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:DA3B875485C1FAD6BFFF5451ED1DE1CBB0724D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Sammy Hagar & The Circle - Lockdown 2020 (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:F8CC326D5F0ABEAC6BFF8AF3B5821BE1AF5F6E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ VideoProc - новая усовершенствованная версия пр�
 ```bash
 magnet:?xt=urn:btih:40EEF52F9608E0F783253FFCD2DE4A82F0B6D6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Restless Spirits - Restless Spirits (2019) Jараnеsе Еditiоn [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:B528CAEE5204AC91B643BAD86BCB41604E7539D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDBCC297B02501A7772071CF884B0B7278797995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:4AEE758610A12A7DAB5E3476BA49A44CCA183795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Tiesto - SiriusXM Tiesto & Friends NYE Party (2020-12-31) [MP3|~245 Kbps (V0)] <
 ```bash
 magnet:?xt=urn:btih:AAE48488253156D9E75968E76894E7DC1CD9A9C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:025FC55C342519982CB05C2647694D8D04814C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:A2DEC2139ADFBC8D60C2E78A70FC822002FF87FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:032F8920785FCBFD71EBFB5C6C8C59E892B8257F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ The Instatute - The Instatute (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:758F80ABD35C12DA1012B2CB6D097DE581E295DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Skin - Hot Skin (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 ```bash
 magnet:?xt=urn:btih:13604A91CEE0CF7DCB2FD78724B8D0BD83C57856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78E5E43F3308727B54D6B4A64622B997C89C285E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ Lyris Project - Instant Flash (2021) [MP3|320 Kbps] <Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:FF6EE5D2F5293C48B2608E34F6181342AAF3FE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Seemone - Seemone (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal, Instrumental
 ```bash
 magnet:?xt=urn:btih:1BA53B042E99BB4DA8038776C5071DBC262D588D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ VA - BEST OF NEON 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillsynth, Chillwa
 ```bash
 magnet:?xt=urn:btih:A372CAE5C99654BDE9D105F4B99D0E6D3089FAA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ Gabriel & Dresden - Remedy (Remixed) (2021) [FLAC|Lossless|WEB-DL|tracks] <Progr
 ```bash
 magnet:?xt=urn:btih:802FFDF5823B6780828B5F2A79354A4E03EF106A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

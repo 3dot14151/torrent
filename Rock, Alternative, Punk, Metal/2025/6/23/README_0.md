@@ -22,8 +22,7 @@ Sinphonia - The Divine Disharmony (2002) [FLAC|Lossless|image + .cue] <Prog Rock
 ```bash
 magnet:?xt=urn:btih:6DEFCA9CFDB398192BC013110A188FE520B2E9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

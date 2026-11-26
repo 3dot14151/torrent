@@ -20,8 +20,7 @@ CD 1 1982-1988
 ```bash
 magnet:?xt=urn:btih:8F95AB7F4B8494422C9A9EF43BE9EDA15173FC99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ David Cook - This Loud Morning Deluxe Edition (2011) [mp3|~264 kbps]<Rock, Alter
 ```bash
 magnet:?xt=urn:btih:9EF9FFF80C0D958ECB7ADC4D8978C35C981B98B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

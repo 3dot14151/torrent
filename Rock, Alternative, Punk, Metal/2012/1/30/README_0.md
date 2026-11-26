@@ -27,8 +27,7 @@ Ildra - Eðelland (2011) [MP3|320 kbps]<Epic Metal / Pagan Black Metal>
 ```bash
 magnet:?xt=urn:btih:E5E961EBC77D911029504064EF2D8E2911B32A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Kittie - Дискография [6 Альбомов, 3 Ep] (1999-2011) [MP3|320 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

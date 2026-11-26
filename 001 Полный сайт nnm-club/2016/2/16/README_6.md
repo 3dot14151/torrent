@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0F976651A982F6342862CB02A84FCD2F30FDD74E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E89B7ED535E66D4B8B86DC3C8A3F0D21E2ECB56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DECB92E2E24B0A71B857F6FEB958C5CB014B6977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C513DB66471A803034B0D46632C510B6B4EFE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ TimeShift – крайне необычная игра, рассказывающ
 ```bash
 magnet:?xt=urn:btih:7AEC42CD77A75F55586AF5A4ED71E6C0B3F7A054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
 ```bash
 magnet:?xt=urn:btih:78BC5B4D91FE1C8CFB5C28654ED39D39C5B52834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7724C97C826F6D97377C0D04CEA144A2D125D6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:954092E2B80598CE1DBFF1655BEBC4A4BA5F620E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5D16AEA07A31D8182E559773C8D98B68CFE4F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Меха
 ```bash
 magnet:?xt=urn:btih:E1A078F4CEB597097B828263325B5EC350489525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Arslan: The Warriors of Legend (2016) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO I
 ```bash
 magnet:?xt=urn:btih:F4D08611B44057B6777281D510E7A9A69516F090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Swift — быстрый, современный, безопасный и удо
 ```bash
 magnet:?xt=urn:btih:A2B5965EB9B90201480517E995B1F72951E882A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Trainz Simulator 2 Mac (2014) [En] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:17591E6E3A70E1557463F1D31B03463F0153D48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Recover Keys - это приложение для Windows, созданное д
 ```bash
 magnet:?xt=urn:btih:5B2898BC5D0704C3D8DBC823AA8A9383769509E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A210057ABD175C3281B14D2628DF048C7EA603EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C63831704EE9981ECBBB7434FD8DB200AB2FCC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F364046ED4D5410ED85C6B0359EA27F0A6324141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Pesadelo Regressao (2016) [En] (1.4.2) Repack bosenok
 ```bash
 magnet:?xt=urn:btih:B74B6B35D7A795C317F9ACC73D1E03742ECB963D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:738C27381AE1F664BB4E4BE27DB2068E8CB594C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F14B7460CA4CE307615D12D843925791CDD8C208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D47D56C65CB9A28704868609B7DED26034D728B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:346E40BA0BC404A89B1D9D883E43C8D4A621EB88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ Opera — популярный браузер с высокой скорость
 ```bash
 magnet:?xt=urn:btih:F6FE887BEA30D96754F744638ACDFEC0FF46F19B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +602,7 @@ IIPA: Украина – самая "пиратская" страна, Росс�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ Guns, Gore and Cannoli (2015) [Ru/Multi] (1.2.5) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:76BE49F0A58D1DB5AB044B4296F3B2ECC8110A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C4BB61FD796B968DBB5AEE8AFB7DE69BF6D293A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ X-COM: UFO Defense OpenXcom (2014) [Ru/Multi] (1.4/1.0) Repack/Mod Pythoon
 ```bash
 magnet:?xt=urn:btih:FB5620D39E4D26C89E870FC3B771DBF28D341BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ XCOM 2 (2016) [Ru/Multi] (1.0.0.33124/dlc) SteamRip Let'sРlay [Digital Deluxe]
 ```bash
 magnet:?xt=urn:btih:DD3EC2CB0485E8BE7CDAF0970AA39FB17BFDD448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

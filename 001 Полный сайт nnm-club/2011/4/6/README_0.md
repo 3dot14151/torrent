@@ -26,8 +26,7 @@ GeKo - Corrupted Symphony (2011)
 ```bash
 magnet:?xt=urn:btih:0D51A250C525767172ED4E16E90CB72CA6F7790B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ VA - Огнеопасно - Горячий музон (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:AEB39A0E4DD2C5D0624725D6CD1B934EAB66F39F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Bloodbound - Unholy Cross (2011) [FLAC|Lossless]<Heavy / Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ VA - Record: Свежий клубный хит Vol2 50/50 (2011) [MP3|256-320 k
 ```bash
 magnet:?xt=urn:btih:3E21EC3FBCF0E9DE01C08E7F842364F7EF84DC09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ VA - Chill Out Paradise Lounge (2011) [MP3|320 kbps]<Downtempo, Chill Out, Loung
 ```bash
 magnet:?xt=urn:btih:649B0493A3117E2BFEA0054D02FC76FECC093AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ Willie Salomon - Let your light shine (2010) [APE|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Pedro Del Mar - Mellomania Vocal Trance Anthems 151 (04-04-2011) [MP3|256 kbps]<
 ```bash
 magnet:?xt=urn:btih:FB6C438D64F420EC37A0DA9593F920ED49689F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41FE7EFEA9AC3F2BE6A84C6A1EB65CBF91E7B20A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D01B678670A5F93BC8F15698969A6DECB2EBABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC163BB71178ED0C662DD8F39724D2F1CEE79711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Back And 4th (2011) [MP3|320 kbps]<Tech House, Techno, Dubstep>
 ```bash
 magnet:?xt=urn:btih:49099733A361E3179E9F6DFC219F27C29F4B39DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:564E4E4032598D671A73AD007A76C45D5095E90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ VA - Хит Презент Европы Плюс Часть 4 (2011) [MP3|256 kb
 ```bash
 magnet:?xt=urn:btih:047D310E1F167A79CE107BBAD9AF1742BC7F5EEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ George Bellas - The Dawn Of Time (2010) [FLAC|Lossless]<Progressive, Melodic Gui
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Space Tribe - Continuum vol.1 (2 CD) - (2011)
 ```bash
 magnet:?xt=urn:btih:8CD9552FF7D09884F6CCCDA56902F26A62F0DACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ XXL – информационно-развлекательный журнал �
 ```bash
 magnet:?xt=urn:btih:058FA69A39B3B80236EE68449A974A29CE26E35B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ ConvertXtoDVD - программа, предназначенная для пре
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Gloria Estefan - 90 Millas (2007) [MP3|320 kbps]<Pop, Cuba>
 ```bash
 magnet:?xt=urn:btih:1894AFA713162229988BBB8CE9DC36CE955F7D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2026312A4905EDF779B331DB6FCD19DDA35922F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16FD4A35DEB1DAE2B22B01C52FB57E072E4CFE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ Bon Scott - Round And Round (2011) [APE|Lossless]<Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2C21A1710CE33D7B734C38683138DFD0981EDDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ Yellow Magic Orchestra - YMO Go Home! (1999) [MP3|192 kbps]<Electronic>
 ```bash
 magnet:?xt=urn:btih:77353604D7BA805D358C1A611DB140B5539411A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +714,7 @@ VA - Fear FM Hardstyle Top 40 April (2011) [MP3|320 kbps]<Hardstyle>
 ```bash
 magnet:?xt=urn:btih:E4349A6CB34F233AB76FDA527890560E04D33566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Rainlendar Lite — календарик для рабочего стола с �
 ```bash
 magnet:?xt=urn:btih:8E7371C9C5B50A9A93CD16CA99B8DB9DF1154AA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

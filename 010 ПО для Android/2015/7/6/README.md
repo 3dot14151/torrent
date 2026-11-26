@@ -19,8 +19,7 @@ Weather Channel предоставляет вам самую важную и т�
 ```bash
 magnet:?xt=urn:btih:AD3DFF729210204912F18BD1567A2FB510406126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

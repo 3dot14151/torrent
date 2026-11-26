@@ -20,8 +20,7 @@ Paint Free 3.5.4 [Ru] - Рисовалка
 ```bash
 magnet:?xt=urn:btih:8001DD4A7DCEE031A041CB4397E536181F8CE3E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ TinyCam Monitor PRO – это программа позволяющая вес�
 ```bash
 magnet:?xt=urn:btih:FB35CA5A9ED02984DD0642F6E479D3E22D5F8994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Xcast.tv v1.4.0.4 [Ru/Multi] - трансляция на телевизор
 ```bash
 magnet:?xt=urn:btih:C365EC23389B9F6F3EC7954C13515279A7F3F499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

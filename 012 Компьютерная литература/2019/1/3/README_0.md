@@ -19,8 +19,7 @@ React в последнее время выигрывает на фоне дру
 ```bash
 magnet:?xt=urn:btih:24DF64E46A721A213753F65591F6C0683E3CE2CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

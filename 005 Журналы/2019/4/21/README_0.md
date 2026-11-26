@@ -20,8 +20,7 @@ Bu günlerde kipir kipir bir bahar kendini müjdeliyor! Yeniden uyanan toprak, t
 ```bash
 magnet:?xt=urn:btih:CDA08458A3DC25C882DE7CAEDA0BECBFC78CDFF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Köfteler mutfağımızın en çok aranan ve tercih  edilen tariflerindendir. K�
 ```bash
 magnet:?xt=urn:btih:23F72D088440E1585A8B7DCB1E896B8D80F1E2AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ UPgrade – журнал о компьютерах и компьютерных �
 ```bash
 magnet:?xt=urn:btih:0320D376924F09EA1E3E378854065D6910C837B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

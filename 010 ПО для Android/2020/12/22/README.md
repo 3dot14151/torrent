@@ -20,8 +20,7 @@ Bubble Screen Translate распознает любой текст на ваше
 ```bash
 magnet:?xt=urn:btih:BCC8978FE248167C9AC3F6AF86C17C68FB2FF993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

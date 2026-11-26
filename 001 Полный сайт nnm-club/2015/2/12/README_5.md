@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7F374D5E687246A4DAE68670ADCD8778F02203DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4767CFEA52B2DFEA5B1489CC912FA452BFE7AE20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Amnesia. The Dark Descent / Амнезия. Призрак прошлого (201
 ```bash
 magnet:?xt=urn:btih:EF3A22CC8728E27CFDB31EB81380A265E3D090BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ ABBYY Lingvo x6 Professional 16.2.2.64 Portable by Punsh [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5A4743DEB8F7D0D08F6C490233BDF7AAE400085D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C7E481F86351A1913994ECE38E7A1028D2F8E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:290D8C4C62F19AC170A617655B3DD58D2B55CD47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9387AD4DFE3D7DD8B0949616B2CBB1D1666E0A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Evolve - трехмерный шутер от первого лица, где к
 ```bash
 magnet:?xt=urn:btih:F9BBF2FBD9CC43AB7DDF8BA2752F3F4F87B60DA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Evolve (2015) [Ru/En] (1.0/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:D75E5F2F1A13784A0CC5D0E8EFB22A4F7390357F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ ABBYY Lingvo x6  Professional 16.2.2.64 Full RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E1D5970FF4385937165D2386432A7E3BC2EE7CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

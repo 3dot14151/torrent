@@ -19,8 +19,7 @@ The English Garden - журнал для всех, кто любит краси�
 ```bash
 magnet:?xt=urn:btih:25C7D1AC4C4663BE905B03516C68FC83BCC3F96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The English Garden - журнал для всех, кто любит краси�
 ```bash
 magnet:?xt=urn:btih:D733AC55AA949650F5B3C7EECB63F587C7DF34C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tatler журнал о светской жизни и моде, это брит�
 ```bash
 magnet:?xt=urn:btih:B6EF10246DE02CFE638071950210E06ACAFA7943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D4D479EB5C00EB7FD5E71BCBE273786A2495A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

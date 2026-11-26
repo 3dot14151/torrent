@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:9D3CC16E2E427D43CB4E5CEFA83924231691034A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ AC/DC - The Razors Edge (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1806501DB310E439618365EECA7B6C15C330B054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:275F4064F1F7447CB1E61DEEA0D8FE0D4802E875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ I сторона
 ```bash
 magnet:?xt=urn:btih:CE1FDC9734BB3C284F7E75370D19A7754AD6A8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Your Wildest Dreams (J. Hayward)
 ```bash
 magnet:?xt=urn:btih:0E75E46114179205577E3DD79E2ACE6C79A2AC00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ AC/DC - Stiff Upper Lip (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6DAA135FCAB30E63D786256E6A293CDABB56DBB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sting - The Soul Cages (1991) 1992 [FLAC 24/192|Lossless|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:D9CB59120B45A7FEC8952B954198180475562397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ AC/DC - Rock or Bust (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:32AF562F344693E295A567B0F9FBC6CCF73E2ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Supertramp - The Very Best Of Supertramp (1990) 1992 [FLAC 24/192|Lossless|track
 ```bash
 magnet:?xt=urn:btih:472DAAD91B14667DFB7D10F2546CFED2FD43B79B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:807CF8D9699648BADB857FBDF5AD7DA266F559E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

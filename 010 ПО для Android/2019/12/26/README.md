@@ -19,8 +19,7 @@ VPN Germany v1.30 Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1E08A1ACE5D1476466C3DB217233C1556E0E1ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

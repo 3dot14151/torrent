@@ -27,8 +27,7 @@ VA - Vocal Trance Anthems 2014 (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:05D17AF1DAA7646A89F222907E1F81161ADFE1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ XXII Зимние Олимпийские игры. Сочи. Хоккей. Же�
 ```bash
 magnet:?xt=urn:btih:62EE164999A0413696597AB49C4BACA4033EFDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Super Dance Party Vol.36 (2014) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:F68303E0EAF404B08C006658D99F545D3622711F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F726CA33658E42C9B18F8F05BE222B12DCACCC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Registry Life - бесплатное приложение (от создател
 ```bash
 magnet:?xt=urn:btih:D4A85ABAF1F7E9054D5A11F0AF127ABF4E49190E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C0898C9F89335F8A0519F9DEBC5F05D8610CC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56886826F264E6BDE4D4256874594B1B7D6F05D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ VA - A Tribute to Queen - Tie Your Mix Down (2000) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:AAC4551B20C9C6A0D5EC801819A939B46141E9F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ XXII Зимние Олимпийские игры. Сочи. Хоккей. Же�
 ```bash
 magnet:?xt=urn:btih:D9E3EA11AB4694B225083E79A22EE066422B0B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ XXII Зимние Олимпийские игры. Керлинг. Группо�
 ```bash
 magnet:?xt=urn:btih:DB340CCF72144EE0F053514EDFBA852806AAF18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F00D5C25A52B8B3A6CADF2320EC48F15D562D26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D4D4D44FB4BA5642D487DED9CE0D2C24627A163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2030AB21F66AF01B085BE01CAF9A39616F932EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:0F186E8990E00DEE1B288E318807590C833F1121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDA1F808C9695D456FCCC0262BF7BE2B944EB468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:709128F9D333C312DE815B05A7151812BB35EABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55A3FB6ED7260A518775022F6BCD69F7D2E756E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Harmonium - Les Cinq Saisons (1975) Reissue 1991 [FLAC|Lossless]<Prog Rock, Symp
 ```bash
 magnet:?xt=urn:btih:FF892E1AC5EC86DE3567B4B671FDB1EC7E5F7EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ Hekasoft Backup & Restore позволит вам сделать резервн�
 ```bash
 magnet:?xt=urn:btih:05F7B7E2105E7A414FD8DF4D083A89FF33EC715B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Broken Teeth - Viva La Rock, Fantastico! (2010) [ALAC|Tracks]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CEA59F5E7C8A5921905E138243BD2407D1088B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDF65F3CC779E8F123ACC72251673F32719EF1E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCD2DA8F9167ECBE11DD9E4A556F66D2AAB4FE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ Minoru Niihara - One (1989) [ALAC|Tracks]<Heavy Metal/Hard Rock>
 ```bash
 magnet:?xt=urn:btih:57DB21DD53B86A30E43D84BFD474544D39F31975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ Aura - Вдохновение (2013) [FLAC|image+.cue]<Symphonic Gothic/Power Me
 ```bash
 magnet:?xt=urn:btih:66EB3A287497111597FE975427B8354875B658D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1087200C74D281BA7A5128289467F5EC2BBC8404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91296D54BDEFE6032B11D85121FF33C8469E5F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

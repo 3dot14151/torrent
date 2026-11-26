@@ -20,8 +20,7 @@ The book starts with an overview of AI engineering, explaining how it differs fr
 ```bash
 magnet:?xt=urn:btih:FC119190AE9946E8957D5F6C7807A91844CE8A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

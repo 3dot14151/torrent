@@ -22,8 +22,7 @@ Lake Cyanide - Lake Cyanide (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:82D425EAC5B29603FE8F601F34101A344B248115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lintver - Distorted Perception (2016) Reissue, 2017, PRC Music [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:9F75B7C4CCAF3DACE2623EAB08D65739A9D5426A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Signs Preyer - Mammoth Disorder (2015) [MP3|320 Kbps] <Groove Metal/Hard Rock>
 ```bash
 magnet:?xt=urn:btih:88C6057000682F442284C029FD713DEF2A024129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Karmen Field - Black Star Emperor (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard, He
 ```bash
 magnet:?xt=urn:btih:DDA85549626A7EDE08009E1B9DCBB3B390A7E0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Shores of Null - Black Drapes for Tomorrow (2017) [MP3|320 Kbps] <Melodic Black,
 ```bash
 magnet:?xt=urn:btih:EEEFFC47BD79B439C090C7D0EDC73901D4060395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ascendants of Kings - Ellisius (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:7D1C8955D6E2D8C8C9A5FCA6998C5AE3F7DAC796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Shores of Null - The Loss of Beauty (2023) [MP3|320 Kbps] <Melodic Black, Doom M
 ```bash
 magnet:?xt=urn:btih:57A669C998AA01B4F950343128DBE97996F2BB57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Skinher - Heartstruck (2023) [MP3|320 Kbps] <Heavy Metalб Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4C7343983F09984A8315DF12294EC69E1C610D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Vanta - Empire On Fire (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EB927E9014D19853EC7E4B1812B4CC79E555690E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Shores of Null - Quiet Whispers (Unplugged at Traffic Garden) (2021) Live albom 
 ```bash
 magnet:?xt=urn:btih:4E39258FD083DF171741F82614268B4F59E16ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Tania Kikidi - Wings of Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D5CEBA529F049E9A2842284C73256074902E489F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Liverbox - The Great Spirit Of Rock 'n' Roll (2023) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:753C9EA8777E9B645ACC90980588363ADA3B189A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Decadents - Lost in Translation (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E399CD9D59D8EE67345B5A456BAEA7E8369C74F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Denis Pauna - Kill 'Em All ZZ Top Style (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 ```bash
 magnet:?xt=urn:btih:3C34FAFB4478024FF8F0ECD34113CCE59826DF80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Long Voyage Back - Close to Animal (2002) [FLAC|Lossless|image + .cue] <Gothic, 
 ```bash
 magnet:?xt=urn:btih:5EC37A033FD416F9F7D318C1C280343DDB30F7C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Magnum - On A Storyteller’s Night (1985) Japanese Edition, Reissue, Remastered
 ```bash
 magnet:?xt=urn:btih:6E83119F5B331D7704D0FA75F5718531416E193C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Glen Matlock - Consequences Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:893422E57AF39EEEA80442126BFEEA1D84BA9B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC3237E3E48D28FA16A67CCDD0BFA9A2D643053A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ The Sixting Music - Rendering Pink Floyds (1974) [MP3|320 Kbps] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:DB28449C6AEBE6CC9FB38A834368EC352A7DC496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ VA - Abbey Road Reimagined – A Tribute To The Beatles (2023) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:326F1CA6FDEAD337AB515D9B2831D137628FBF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

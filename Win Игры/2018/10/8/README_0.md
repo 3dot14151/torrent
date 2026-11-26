@@ -19,8 +19,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) Repack R.G. Cat
 ```bash
 magnet:?xt=urn:btih:47B3EDF1A89FCC99BC59CFA58C924A202DA222BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Absolver — сетевые многопользовательские сраж�
 ```bash
 magnet:?xt=urn:btih:B77D64A21500F41455E93D06061CD66723DBB270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

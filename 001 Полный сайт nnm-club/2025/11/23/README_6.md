@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CC26E3191D031232C28DF45F195E4879B4435926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:D81BB37B942AF2C1A996BBC82F0DBD6EF37E0AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BCA775E575BBC26975AA451A922498583CD9369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DAC92D87B6BE3FBDC38944CE4938757B24314CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04F7EA2B66EB09F03697DF8F9B677E768C48D3F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Pioneer [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:61A178A7F3B0540705EE10B9F26CE45DE062D2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

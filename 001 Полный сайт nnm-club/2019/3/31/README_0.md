@@ -21,8 +21,7 @@ VA - Empire Records - Mushrooms 3 (2019) [MP3|320 Kbps] <Big Room, Dance, Hands 
 ```bash
 magnet:?xt=urn:btih:0B51A7A014C332BFEDF32A5A411D0153BAD09C02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Empire Records: First Disco 4 (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:53D9A8249418E4EF66834CF38A751AED4EB73E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Bookends позволяет сканировать существующие фа
 ```bash
 magnet:?xt=urn:btih:A2745117080B3FD027B0303D1A7CBF0D425608AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03E9004B54E8AF4F06C0EF3771E9A2A4A1B5B50D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Anthem - Nucleus (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9E417C72B3F3D3023051B3F00AC9D67522F123FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - Stars Dance 2 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
 ```bash
 magnet:?xt=urn:btih:4AA5E5C9CE79EA527A8872D84558D9098656D29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C6AF9C60C0BCBCE0BDD831415D57E8EEAB5F839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Maceo Plex - Mutant Series (2019) Ellum Audio [FLAC|Lossless|WEB-DL|tracks] <Tec
 ```bash
 magnet:?xt=urn:btih:FB43C79372C4B53C2D247401659E4E7005F4CC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - Eurodance Evolution 2019.02 (2019) [MP3|320 Kbps] <Euro-dance, pop-dance>
 ```bash
 magnet:?xt=urn:btih:8D57A8B23EB6D1ABBCAD29FC0F46707C7D900BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Fatboy - Diggin' the Scene (2019) [MP3|320 Kbps] <Rockabilly>
 ```bash
 magnet:?xt=urn:btih:71C0B9C1EECF608A148403E88474EB1BD79BC748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4328D12C3BD42D7C0D48A883FABE32BD5A531549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49FA13729CEBB0F3AFBCFB2EA4A38917D8C4D450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Eurodance Evolution 2019.01 (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Danc
 ```bash
 magnet:?xt=urn:btih:2629864888F45F9F586679CE8293B69D56A83AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Kayatma - Ambivalence (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, 
 ```bash
 magnet:?xt=urn:btih:6EA5019C9BFAC3F732DD9853136B2EBA2CEA112C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20C112AC4D0E98A7459755E67DA3B4F3E01B5295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AFCBA2A8965CB05A8EB8DF095E2B1A500AD3DF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5286D36D3F33A964BE6F12B3AD99664D1D05351C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ VA - EDM Club Sensation (2019) [MP3|320 Kbps] <Electro House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:E97A344A0886489849D314365B12A279B8138CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ VA - Fairy Tales vol.4 (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient,
 ```bash
 magnet:?xt=urn:btih:DDD7B57CDCA9CA668689A5E2A3A70C1F83249F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ CD 01: (03:20:59)
 ```bash
 magnet:?xt=urn:btih:DFCF3645306E87B287E4686AF5CB23997E196E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B722F73611A1E956C371112BD7AC8B0F934B94F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB21847BF950E16EE6EBE34EDF84286E22FB88D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CA5760BF2DE4EE9198E6AC68D670C7377E8B4DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04BEB8719C14BC7922590FFDDD56ED3FA859F69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ Merlin & Lydia Delay - Infinity (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, 
 ```bash
 magnet:?xt=urn:btih:4F1640BB7AE179AFE85F5A838F4EEB518C6AEE25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C10743C986A82A68874621C0955A9B17E01952A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

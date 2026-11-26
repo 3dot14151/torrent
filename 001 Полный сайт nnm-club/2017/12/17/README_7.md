@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:F27564927C4AE21D8DB27C8C3B4AC4F8976FDF13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Trine Anthology (2009-2015) [Ru/Multi] (1.09/2.12/2.01/1.11) Repack R.G. Мех�
 ```bash
 magnet:?xt=urn:btih:6A753E7F6A9700646DE535BED96094FD5D8929B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Star Wars™: The Force Unleashed II (2010) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B50983292C2FCCA397305723823EBAF68DDD0204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:913F450B40F245231D24A98604FB3473F2120A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Star Wars™: Jedi Knight™ - Jedi Academy™ (2003) [Multi] (1.01A) License GO
 ```bash
 magnet:?xt=urn:btih:18B77C0942418DF54AACEC0CC45CA64B2B9B838E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05695EC75C4D02050715F795C30F0AF76F3F8548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:925389C0683CBC56EDDDE5FE4622CAF5E7767170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:756550B7DDF52222C98393F8EB2273F3FC6791C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Star Wars™: Knights of the Old Republic (2003) [Multi] (1.0.3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F973740C6009AB7E6F4C32AA57F236D40F2645A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) License GOG [Ultimate 
 ```bash
 magnet:?xt=urn:btih:C71B902EB33825918A0A8D0D0299EE7C7347F88D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F20CB94D54B8848EF3DD11E097ED0145D3DEBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886
 ```bash
 magnet:?xt=urn:btih:64FA301CE02730809B3B23A6EB6A976CA37D451B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:3F49A449EA38F3B198FEDE529B35B55974B9AD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ VA - Зайцев.Нет: Лучшие Новинки Декабря (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:60A51B0E5F717766EAC51EB84867F3297FAE0316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ Microsoft Office 2007 предоставляет удобные и просты�
 ```bash
 magnet:?xt=urn:btih:7CE317EAAE91819B78A363EEEE458F10009E4943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ AAct - KMS-активатор для операционных систем Windo
 ```bash
 magnet:?xt=urn:btih:C02D7DBE747C2B73516A85AF10644DCA73521CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB06C420DC8CFA0E0D7AA84C9D4ADD53FBF4899D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35B1E02CC362AAFD5730155E9F6285F3A7200BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D6A32F428D94E31AAB6663051BB94690BC27FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ Refractive Software LTD, использующий CUDA и работающий �
 ```bash
 magnet:?xt=urn:btih:AB3902DAD8A54E95E64EB74C9B95C26FD864EF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE340C78318806423538726B207E12A2E6B636D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B5B08531A23E98988CFB2845D1DBBBB4C5EBD4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

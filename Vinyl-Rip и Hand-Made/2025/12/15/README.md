@@ -22,8 +22,7 @@ A4 F.B.I.(   Читать дальше...   )Жанр: Rock, InstrumentalПро�
 ```bash
 magnet:?xt=urn:btih:97944095D9A79D553658B394934C60ABF17DF83D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ At Vance — немецкая метал-группа, созданная в 199
 ```bash
 magnet:?xt=urn:btih:AF8AF25AD78217D5C9BD99141B8F7DE3ADD22B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

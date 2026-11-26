@@ -22,8 +22,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:1FD547C183B0A6A1C877E26E2765866AF757658F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Celestial Scourge - Observers of the Inevitable (2025) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:656051E61E9EA6F9B360416E97632F1A35D69153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Naxatras - V (2025) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner, Space Ro
 ```bash
 magnet:?xt=urn:btih:364852446E35E486272C7EF8854D27D449A9362A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

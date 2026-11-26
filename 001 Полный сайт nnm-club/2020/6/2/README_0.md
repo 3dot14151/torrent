@@ -21,8 +21,7 @@ VA - Hopes For Tomorrow (2020) [MP3|320 Kbps] <Pop Lyric, Romantic>
 ```bash
 magnet:?xt=urn:btih:54E09623548E34DE8279F473280B99463237299D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC4ADBC476F6B16C367555BAEB55897D8DD97B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ IObit Software Updater позволяет выполнить обновлени�
 ```bash
 magnet:?xt=urn:btih:28F951D9C6E2749964A78CD093CC2CB71CECE0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:EF4313D70F31E7C584E4123C3272793E72E734CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Elmedia Player PRO (   Читать дальше...   )Тип издания: m
 ```bash
 magnet:?xt=urn:btih:0E2457888C62FB1D6AC7E74DD85CDE8C860D94DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - Skyline Deep Sound (2020) [MP3|320 Kbps] <Deep House, Edm>
 ```bash
 magnet:?xt=urn:btih:26E226757248D7333305C9FD18A72A24BC2E0F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - DMC Dance Mixes 255 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
 ```bash
 magnet:?xt=urn:btih:16BDCA92D1ABB76BFC1238DBEC5763967D7C8899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:BF437CCC2A6957F8D20236D562C97598A0F329DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Donguri to Yamaneko | Жёлуди и горный кот [1988, Movie] VHSRip 4
 ```bash
 magnet:?xt=urn:btih:C17286701437B4E963B1745DDC2A3C634893E05A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Luke Vibert - Luke Vibert presents Amen Andrews (2020) Hypercolour [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:52D1F54716518C74776C000F80E44953ABE887EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou | Haikyu!! Karasuno Hig
 ```bash
 magnet:?xt=urn:btih:2252ED70D35D87CC1307FD7643DFCAA3936A8438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ VA - Rockin' the 70's (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8482B2681BEB6BD1DA7A2D048AB55026E8A1BF35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Allavsoft Video Downloader Converter - профессиональный инст
 ```bash
 magnet:?xt=urn:btih:0DCB307D4A39BA7F1D950A21E6B1A26CA1466B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38478CF1C252885941122C6E67173FFEA94AF65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ PDF Expert - редактор  PDF
 ```bash
 magnet:?xt=urn:btih:5EC697067124D1796248D7A938DAC5FF81CDF04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B86DC15036C00EA1C8CEB1324A2C237F7A89165F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ VA - Rockin' the 80's (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1B771EF3F4E228EF847F4F7D24C5ACDA85CFE959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E44165219436CEBD1B819D885E98EED00359871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ Gon the Little Fox | Gongitsune [1985, Movie] VHSRip 360p raw
 ```bash
 magnet:?xt=urn:btih:AC59F04F4FBE1E9805103748244659E0BC39353D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ VA - Let's Hard Dance (2020) [MP3|320 Kbps] <Hardstyle, Hard Dance>
 ```bash
 magnet:?xt=urn:btih:369C09FB8714978A1EDC4E7838E7FAE23667F664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ VA - Rock Driver: Old Classic Rock (2020) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:80BEEC40EBB092A03CD5D4FB6C3A9DFD6C93739F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Personal Vault - Удобный менеджер паролей предоста
 ```bash
 magnet:?xt=urn:btih:051691FF1E877B2DEACFE3339B0478415CC8B673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ Widgets - CPU | RAM | Battery 3.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:3B15F61E0A2741309F5F0673182ED9FFC8E2C66C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5770E154C5B066F3E769577CEA4B8B2730FF07B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C35FAF555C7122EE721BE771BBB17BA08DF25E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22EB66C4973F6D8D487A51BF112E51A3CEDCF5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

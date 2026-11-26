@@ -19,8 +19,7 @@ King Arthur: Legion IX представляет собой сочетание п
 ```bash
 magnet:?xt=urn:btih:AF561542D9403438FDC58CBDE37E40F0C6F833D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bloody Heaven 2 – в основе сюжета заложена популяр
 ```bash
 magnet:?xt=urn:btih:3E438D46EE3DE538CE3A52F863382D4818940D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gift (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F76D8329FFAEA9BEBE6BEA6E79E8EED39D992D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Bridge Curse 2: The Extrication - продолжение одноименн�
 ```bash
 magnet:?xt=urn:btih:05DA5E27C7E54993DB77116C1AFDF9F1724EEC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ektomorf — венгерская грув-метал группа, была о�
 ```bash
 magnet:?xt=urn:btih:B9399131CA75F4822A1B9D3560095426391D536E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

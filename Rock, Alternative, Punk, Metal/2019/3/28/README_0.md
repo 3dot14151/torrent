@@ -22,8 +22,7 @@ The Nickel Slots - Pack up All Regrets (2019) [FLAC|Lossless|tracks + .cue] <Roc
 ```bash
 magnet:?xt=urn:btih:BC474DC9DBE971C9A94F0DED188FC6979966BBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dirty Shirt - Letchology (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative
 ```bash
 magnet:?xt=urn:btih:5CFD9FC97E23931791B83616E5A50E7A8E50992B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Emerald Sabbath - Ninth Star (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Ro
 ```bash
 magnet:?xt=urn:btih:483644FA9BFD790FA298B1136F400D001F7A8B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ravanna - АМОК (2019) [MP3|320 kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:845CD339C3915A9008EBF0B9DEB3F8EE9098E8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Long Distance Calling - Немецкая пост-рок-группа, обра�
 ```bash
 magnet:?xt=urn:btih:25493081158FA5862E4752EDDCAF69BA94C2DD91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Yngwie J. Malmsteen - Blue Lightning (2019) [WavPack|Lossless|image + .cue] <Neo
 ```bash
 magnet:?xt=urn:btih:B0164AC1E85B7A3424C75877F70F1BCE863D7B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Suzi Quatro - No Control (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:FEE5CD423407A11E674D3CDB77F994A54E272BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Suzi Quatro - No Control (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:1EA0897F848F42E462AFEE94E78D475210120D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Pink Floyd - The Dark Side Of The Moon (1973) Reissue, 1984 [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:8681CBA88B2915C52A577F6A796CDEDBF9ADB60D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Rammstein - Deutschland (2019) Single [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:72C60E269E8EAAD4D900543E5ABEECA0F5F6978C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

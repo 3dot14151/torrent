@@ -19,8 +19,7 @@ Living Legends Remastered: Ice Rose / Живые легенды. Переизд�
 ```bash
 magnet:?xt=urn:btih:2DB3BBE4BB7E972C493EF1C39B368760C99E3AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Being a DIK Season 1 (2020) [En] (0.4.8.14/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:E1584A0883C3A1B4006914E275188D56801D8A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ELDERBORN (2020) [Ru/Multi] (1.09/dlc) License GOG [Metal AF Edition]
 ```bash
 magnet:?xt=urn:btih:62AFF8C3FC2B748F45568AB037AB2C58E7F0D91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

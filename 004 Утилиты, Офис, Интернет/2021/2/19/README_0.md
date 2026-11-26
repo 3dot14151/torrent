@@ -19,8 +19,7 @@ CardRecovery - программа для восстановления фотог
 ```bash
 magnet:?xt=urn:btih:4C65E9E4A3AC812D16AAE701BB569AD9672F674E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Abelssoft X-Loader - программа для взрослых, позволи�
 ```bash
 magnet:?xt=urn:btih:6260F118C077466CAB11F2EF5DAC9FFED8195F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

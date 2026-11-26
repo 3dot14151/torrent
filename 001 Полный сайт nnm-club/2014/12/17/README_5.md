@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3339563FE6CDC4F42B631702F06ED0AB1B18C3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C191A5889FF62ACD96E3FE1DCE5C2EDEEA45EB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13BAACC1ACE5226D0BEC9BB2DAF870BF1D5A18A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Farming Simulator 15 (2014) [Multi/Ru] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:85D8FCE707088BA7483038A7FD8B5EB74A277868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D357A8EF6ED95670DCEDDECC3DFAE85689631D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86C3D9F36C4B4B35D51B89E6DC925A640E9FD3F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Naruto Shippuden: Ultimate Ninja Storm Revolution PC – игра на комп�
 ```bash
 magnet:?xt=urn:btih:DC43D2A5E2A8AC761261FE186744859CADED207B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2B5713E4CA10C130A6B51006B0E8A8390B15D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Fight The Dragon – ролевая игра, которая состоит из
 ```bash
 magnet:?xt=urn:btih:CB8D1B07A0359EE72A572934BA2BAC779A507869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ CorelDRAW Graphics Suite X7 - новый графический пакет, по
 ```bash
 magnet:?xt=urn:btih:561A8D87CED014EB290BDA46545887FBB300A912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:585B0D3DE5838DB2577FF40D171215C04DBEE480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C73CBFD4BBA58DA4AE06FAEEE8AF0A67B297F6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ RPG в стиле "Metroidvania". Во время очередного сеан�
 ```bash
 magnet:?xt=urn:btih:7BC01898AF59EB63C4C12F3BE0427ED6128E1697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ DAEMON Tools Ultra - новый продукт линейки DAEMON Tools, уд
 ```bash
 magnet:?xt=urn:btih:F0EC38F2E7550CDCE7C0130EF0592E60A0C240AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ ESET NOD32 7 гарантирует вашему компьютеру высок
 ```bash
 magnet:?xt=urn:btih:78F7371B00854D8AFB0B3D87E2E9CA8A3ACB7626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Open Server (Базовый, Расширенный, Максимальный) 5
 ```bash
 magnet:?xt=urn:btih:025DBB10CD3560E2E5CD4E360353FB70CA7E67AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ SolidWorks – система автоматизированного проек�
 ```bash
 magnet:?xt=urn:btih:3A22E4021A19EC41F42734E4961B6B1E7D94DEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ Wedding Pack II - After Effects CS4 - CC проект. Разрешение пр
 ```bash
 magnet:?xt=urn:btih:420632BFDE07CE48D6B36E2EBD30F1DBF0369412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Just Trucks - это место, где можно продать свой ст�
 ```bash
 magnet:?xt=urn:btih:B5E08937A3A1D26900B33CD6FA8ECCC16BA90AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ AYOKI - Дети Света (2019) [MP3|320 kbps] <Alternative Metal, Female Voc
 ```bash
 magnet:?xt=urn:btih:F5C1E24049278967BD8DB65D84FD840AA99E0E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Cantoma - Into Daylight (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, 
 ```bash
 magnet:?xt=urn:btih:A30720CFED5B004ED9DB2CB8F4A70C78A1EA8FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Comic Life - великолепное приложение, с помощью к
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Wondershare Filmora 9 v9.5.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4E1482AD5D9238D4D6510C46F39E0D252DB39464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:90D794A2E76ED96C88CD623CFB8A37A084DEC3D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ MotoGP — главное престижное соревнование по ш�
 ```bash
 magnet:?xt=urn:btih:32D8D6BC6A139997ADAF3D48152A097FDA1A7D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D78A3E947CD8DE9F5AAD4AF7B578977DA7423F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:211BD514D2716BCC5EF471105D536B25E8E6244E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ YouTube Downloader - удобная программа-загрузчик для
 ```bash
 magnet:?xt=urn:btih:700E173155B06028359C05F96FD86AB34C76F9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FBAC30D83C41ED074AEDEC92CFEEABDB15C25F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ RegCool 1.122 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0C0B6808E02482DFC1EC2DAB3F03112EB5D3C49A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:1D18B919EA197BFE7681277D96D8FCA9ECDB45E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14C5722525520A4EB498488F43DC3BFB6DA4B86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ The Galactic Force Band - Spaced Out Disco (1978) LP [MP3|320 Kbps] <Electronic,
 ```bash
 magnet:?xt=urn:btih:98E33EB9218E746EBB015B0574D14246E67EB930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ MotoE, официальное название FIM Enel MotoE World Cup, это 
 ```bash
 magnet:?xt=urn:btih:D9DADD684574B53D424D8F4A25F16EF7008093E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3C8B92D897D51AEDDFC940B41662B951CDC1353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ Opera 70.0.3728.71 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:865F51E78010072B53F1979018BF8A4B7AC47CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BF65C4AB232358FCD00BAD71EEAC17D424AF319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B8493D1F91F061BB0BFAC2F04415A3A0E9C2902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ Mgosoft PDF To Image Converter - быстрая программа, котора
 ```bash
 magnet:?xt=urn:btih:E8C71E441131A8C91AA90DDBCD5885F3AAF1C6BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ Hetman Uneraser 5.1 Home / Office / Commercial Edition RePack (& Portable) by Tr
 ```bash
 magnet:?xt=urn:btih:7BFB074030B1AF1C7642A501BEA2EA807D9151D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

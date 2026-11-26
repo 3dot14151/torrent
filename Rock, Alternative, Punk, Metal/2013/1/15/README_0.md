@@ -21,8 +21,7 @@ Puzzle - Nothing But The Rain (2012) [MP3|320 кб/с]<Post-Rock, Experimental, 
 ```bash
 magnet:?xt=urn:btih:AACD7BBC8F06AB309F21519C60E068AC0743276A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Love, Robot - Rebuild | Rebirth (2012) [MP3|256 кб/с]<Alt. Rock, Post-Hardcor
 ```bash
 magnet:?xt=urn:btih:A2FBCFCC56D4F26373BE4E6745F1ADD5E0A5D5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ DIIV - Oshin (2012) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:4DA15CB833395AB81D2C03F9E07F4A70F0629FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Arcanorum Astrum - Прозрение (2012) [MP3|320 кб/с]<Progressive Symph
 ```bash
 magnet:?xt=urn:btih:B58E6FDC22EE58FAF5FC4239EBA7B3F0DA3663A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Linkin Park - 3 Альбома (2012) [MP3|255-320 kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:C6B15210FD628DCC60A3A7637854E2F9C896DCE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

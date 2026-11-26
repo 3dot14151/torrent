@@ -19,8 +19,7 @@ The Unseen Fears 5: Ominous Talent / Невидимые страхи 5: Злов
 ```bash
 magnet:?xt=urn:btih:B3611B69C2E4EC025BB558EB2B2095037C62CAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Living Legends 8: The Crystal Tear / Живые легенды 8. Хрустал
 ```bash
 magnet:?xt=urn:btih:74F60A9E732DC98404A1F98426D67DCCD0A45E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Outbreak (2017) [En] (1.18.0/dlc) License PLAZA [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:82A0C3211E2DB3F693E779B7FB65C59DAA44F59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E1C694BA6AAB89940FD7027C4E07975EB088674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) License PLAZA [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:56FEC985E18DB377FFAA75780970EC37E220E172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A3881C31255D1251F34C56DD8E39223189618FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

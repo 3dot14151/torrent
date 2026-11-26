@@ -26,8 +26,7 @@ Vince Esquire - First Offense (2012) [FLAC|Lossless]<Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Glove One - полностью работоспособный мобильный
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ VA - Доля Воровская Выпуск 5 (2012) [MP3|256 кб/с]<Шан�
 ```bash
 magnet:?xt=urn:btih:C8D77D8420593F4C6CE6AD76DD16E5CA186CBD3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63E8C881771FEF83DBB88D25C5E10777CA2F526F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ VA - Танцевальный клубный поп хит vol.7 (2012) [MP3|256
 ```bash
 magnet:?xt=urn:btih:2F43EF5DA448C76A7C9F3E4F04FB88BA6B54CEA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:118E35A681DB23923A65704DFDD5688AAF51C6F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BDA045BBF00CB2602ECCB9C0C9E9A7363F82B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ VA - 6 Blues Giants Live! - vol.2 (2007) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:8B94EFC5F58624922C5789B33D26F7FF80D111A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ S'n'D - Место для свалки(2010)[MP3|320kbps]<Punk>
 ```bash
 magnet:?xt=urn:btih:ECB1EAA231D99F7A54A74DBD0C3AE211E46694AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ Myrkvar - Als Een Woeste Horde (2008) [MP3|320 кб/с]<Folk\Viking Metal>
 ```bash
 magnet:?xt=urn:btih:0261D4139EE3CEF72C4FDFCFA6B47D3D763E1D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ VA - Русский Хитовичок (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:088F16344BA5B3A0634AA583DC1AA3C7311B9AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

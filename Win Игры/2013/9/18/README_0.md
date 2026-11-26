@@ -19,8 +19,7 @@ Flights of Fancy: Two Doves Collector's Edition / Полет Фантазии: �
 ```bash
 magnet:?xt=urn:btih:0104D2CE86825344144B3C512F70697D5623A3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Subject 9 (2013) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:552F1389E5E7D0A4F449C1BE9148196E7599F3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Evy. Magic Spheres / Ведьмочка Эви. Волшебное путеше�
 ```bash
 magnet:?xt=urn:btih:F9954EE74612D00694189DF86A7B00B6A3B957BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

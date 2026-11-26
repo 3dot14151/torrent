@@ -19,8 +19,7 @@ The Cursed Crusade объединяет в себе красоту средне�
 ```bash
 magnet:?xt=urn:btih:44ED667E45FC5FE4007BD181001D695FC301771B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

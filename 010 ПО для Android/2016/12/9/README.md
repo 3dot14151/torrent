@@ -21,8 +21,7 @@ Peers.TV — это бесплатное приложение для просм�
 ```bash
 magnet:?xt=urn:btih:22479F2D9960FB0156A9AC7E54D56751030CB030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:1D0D376D5BCCDC6004737D708B078DBF71EAC159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C71533DB96887BBD2076A727EE39FEEB5533745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jimmy Page - Ohio (2021) Remaster, 2024, gOLDfISh reCORds [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:17052CB705C4AA8930DC48F399ECB0BD8280DC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Chronicles of Father Robin - The Songs & Tales Of Airoea - Book III: Magical
 ```bash
 magnet:?xt=urn:btih:CA3A7ADD9374A5DD012243A09A0A17447D4C1AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8359A4B10F22F00B3E9447AF2F745F9F59E185DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Visions Of Atlantis - Pirates II - Armada (2024) [FLAC|Lossless|image + .cue] <S
 ```bash
 magnet:?xt=urn:btih:34EA7144C404E9C4BCFF78A225715935088E2B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4A6E40CB803B901C2EB70E02576E9250471AA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Axxis - Coming Home (2024) [MP3|320 Kbps] <Melodic Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:455C8E40CF73F179C9ECD1FBF8A97B14C6B72813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Stay Away - СССР 2078 (2024) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:F75DB7FB878AF91F613F17E85FAC5ECDE95C115A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Sylvan - Back To Live (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:CE5DD66C175262F117363592DE236240DAA6F276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

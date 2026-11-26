@@ -22,8 +22,7 @@ A4 Sweet Dreams(   Читать дальше...   )Жанр: Prog Rock, Symphoni
 ```bash
 magnet:?xt=urn:btih:70858773752C1E07300167E7C371F1DC5A3ADCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

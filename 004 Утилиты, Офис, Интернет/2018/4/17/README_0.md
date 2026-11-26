@@ -19,8 +19,7 @@ AnyMP4 Screen Recorder - программа предназначена для з
 ```bash
 magnet:?xt=urn:btih:1A7D2FFA3531B65E03910B78221DCF4EC52A19CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Coolutils Tiff Combine - надёжная программа, с помощью 
 ```bash
 magnet:?xt=urn:btih:046901BFA920C72F2EEB086637CC409343295D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Faces of Illusion: The Twin Phantoms / Иллюзия Облика: Тайна �
 ```bash
 magnet:?xt=urn:btih:37169D34DA4DB46344927A11D617137EC9C91C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nevertales 5: Hidden Doorway / Несказки 5: Тайный Портал (20
 ```bash
 magnet:?xt=urn:btih:4F93706364048ADBD512EF9109ED0014A79AE613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Secret Order 5: The Buried Kingdom / Тайный орден 5: Затеря
 ```bash
 magnet:?xt=urn:btih:5056E615A2E9029E66700ABF1CEC7046D91A2B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Euro Fishing позволит Вам полностью погрузиться �
 ```bash
 magnet:?xt=urn:btih:9BB5FD2E2F65F5D31FECB0089F8DF9F8AD59EE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

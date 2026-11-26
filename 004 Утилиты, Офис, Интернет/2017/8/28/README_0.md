@@ -19,8 +19,7 @@ Gihosoft Android Data Recovery - для восстановления потер�
 ```bash
 magnet:?xt=urn:btih:5D71E198AF61A19D4D5A140982B82B843D1D5879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

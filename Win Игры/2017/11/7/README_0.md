@@ -19,8 +19,7 @@ Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0) Li
 ```bash
 magnet:?xt=urn:btih:FC44B48C9A57FEC7239BEE5560F0CF975DA6893E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

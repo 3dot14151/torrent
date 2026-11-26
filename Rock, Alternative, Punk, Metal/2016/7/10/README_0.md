@@ -22,8 +22,7 @@ Kissin' Dynamite - Megalomania (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:258AA88458A0016B1B23F378F10D1D1ECDBD1E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ La BIG Rabia - La BIG Rabia (2016) [MP3|192 Kbps] <Acoustic Rock, Blues, Latino>
 ```bash
 magnet:?xt=urn:btih:40D42FAB50125E6808851897BD402BD338D4C7C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kissin' Dynamite - Generation Goodbye (2016) [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:1F38356440463EDABEEC712112380DC2F6239066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Faithful Breath - Gold'N'Glory (1984) [FLAC|Lossless|image + .cue] <Hard Rock, H
 ```bash
 magnet:?xt=urn:btih:2C6473471EE60070204A4688766B9A54D73E7C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fall of Envy - Poetic Rage (2012) Special Edition [MP3|320 Kbps] <Rock, Alt Rock
 ```bash
 magnet:?xt=urn:btih:D60D0C12F152BAF75EB525CF1E448DB5DD5613C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Heart - Beautiful Broken (2016) [FLAC|Lossless|tracks] <Melodic Rock, Hard Rock,
 ```bash
 magnet:?xt=urn:btih:93D97DADF187F46BD5E8F6ECA174F866AFD989F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mech - Painkiller - Original Soundtrack (2004) Promo [FLAC|Lossless|tracks] <Ind
 ```bash
 magnet:?xt=urn:btih:E26134C7D0912789873FAEB01A6D28F80E575A29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Biffy Clyro - Ellipsis (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alte
 ```bash
 magnet:?xt=urn:btih:F032614831BFEF608DA3E09C55C1528B13DAE1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Billy Talent - Afraid of Heights (2016) [MP3|320 Kbps] <Alternative Rock, Punk R
 ```bash
 magnet:?xt=urn:btih:919D361617F8A87B313C7646853CE3A15A9F1A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

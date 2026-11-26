@@ -19,8 +19,7 @@ Feist (2015) [Ru/Multi] (1.0) RePack xGhost
 ```bash
 magnet:?xt=urn:btih:AFC6688DE6283ED181E39984A58254518AC9A619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Icy - сюжетная survival-RPG, где Вы возьмете на себя 
 ```bash
 magnet:?xt=urn:btih:ACF77E6C68A714D3CAA3CF4F04D1CC59F5EFF255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

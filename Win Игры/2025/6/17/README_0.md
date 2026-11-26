@@ -19,8 +19,7 @@ Mindseye (2025) [Ru/Multi] (4598223) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5564DB41CD11D1616141BD37A3A81A2BD8D1D469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hero of the Kingdom: The Lost Tales 3 / Герой Королевства: Ут�
 ```bash
 magnet:?xt=urn:btih:B11ACFA0426540894DB3D05E4428266B0CF7AAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Long Dark (2017) [Ru/Multi] (Build 2.44 157357 S/dlc) Repack Let'sРlay [Qui
 ```bash
 magnet:?xt=urn:btih:2AD9E1E8FDC4DA6D187793CFBECFA1E19EE1C931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ STONKS-9800: Stock Market Simulator (2023) [Multi] (0.6.2.19) License GOG [Early
 ```bash
 magnet:?xt=urn:btih:D6DDD369302BE97FAF91CC9285E131B018D293C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hero of the Kingdom / Герой Королевства (2012) [Ru/Multi] (1.6.1
 ```bash
 magnet:?xt=urn:btih:C8DC9CC1D4315EB011BBA3F741E3786743DB34B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Scene Rune [Elite Edition]
 ```bash
 magnet:?xt=urn:btih:69FE0A0486CF0BA65F9647B461A3684014BA788D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.524/dlc) Repack FitGirl [The Galactic Te
 ```bash
 magnet:?xt=urn:btih:16CA7B90C4AC483F796DDD049D05BED1B2631345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Lamplight City (2018) [Multi] (1.13.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1E65BC402B0C6D6D12821F6DBE32E19DB2FCA57C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Far Cry 2 (2008) [Ru] (1.03) Repack EXROW [Fortune's Edition]
 ```bash
 magnet:?xt=urn:btih:ECACFE75BB4265B5C85F1EEDC100EF5EA8D6B719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Near-Mage - нарративное приключение со щепоткой 
 ```bash
 magnet:?xt=urn:btih:545980482DB498A1033D20C84C224F267E50BC56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Rain World (2017) [Ru/Multi] (1.10.4/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:2A84DEA94432A2333B07E78F279D4B394D445395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Prison Simulator (2021) [Ru/Multi] (1.4.3.18/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB8E05DE5AD3414A28D28A7C477AE53C89D4CD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Parkitect (2018) [Ru/Multi] (1.11e/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:3C80FEEEAAA383D930789D94E9BB5879ED41F31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

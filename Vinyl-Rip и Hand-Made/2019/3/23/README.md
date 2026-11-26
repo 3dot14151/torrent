@@ -22,8 +22,7 @@ VA - Dance Hits Collection (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Disco, Eur
 ```bash
 magnet:?xt=urn:btih:8B3C16641CB9BFC79448C46B8450579E0C82AC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

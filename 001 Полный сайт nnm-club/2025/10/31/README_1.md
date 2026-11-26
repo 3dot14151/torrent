@@ -21,8 +21,7 @@ VA - A State of Trance - Classics Top 10, Vol. 10 (2025) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:C4A1E7BC6A68590AAC4CBFDEE1CB5D084A663E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Darkest Dungeon II - путешествие обречённых в жанре R
 ```bash
 magnet:?xt=urn:btih:B0FCF17E30C80A4C38262E1AB3844F2750090215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Dark Moon – стратегическая игра о выживании, гд�
 ```bash
 magnet:?xt=urn:btih:42892582BA40D6B2D0F25CC86EC0789D4D6CBA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Beneath - это шутер на выживание от первого лиц
 ```bash
 magnet:?xt=urn:btih:8446DFA157A9528361C5EB8178357A4FFC229532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:96333B80F966B2903A742A2D54BAC85D0BA669BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Cities: Skylines II - это живая экономическая систем�
 ```bash
 magnet:?xt=urn:btih:F9215CF23515BF87CCD514C83A4F7418AD0F18C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 ```bash
 magnet:?xt=urn:btih:5A316DA037EE9870984E7009AE8A607776725629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6C09EC74DF0DE34FD8C6F47DFD9EB8048AE48E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Don't Starve Together - это кооперативная игра на выжи
 ```bash
 magnet:?xt=urn:btih:817B5946F883DF83C42458136EC42FF9626CE350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81ABF32B630DACF9C65F5DA171AAA2E7D2DA0E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.3) Repack Necros
 ```bash
 magnet:?xt=urn:btih:47DE12F4A5F9F6E09318A72BECE92ED9AEB8338E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Eslava состоит из 6 стилей.Формат: OTFПоддержка к
 ```bash
 magnet:?xt=urn:btih:A5EBA2C605D6A69C0192E3D656662D7FD8593881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Lezo – футуристический акцидентный шрифт с у�
 ```bash
 magnet:?xt=urn:btih:226AE0ACAEF403D975B2D4F44427830FBB481A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Nunito - это хорошо сбалансированное суперсеме
 ```bash
 magnet:?xt=urn:btih:55B202938CDE16F8C74E0A3B38D4A38F13185A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Nunito - это хорошо сбалансированное суперсеме
 ```bash
 magnet:?xt=urn:btih:2A81B597CDB55B77100E0CAF5D101D52808BE461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A36D46D2CD70E8C8FAF7D716DF3421F5D63C0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC8781776B52A1D40CDA865D9DD194466A764B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57A57BD8C9F6D2D5AFE225C0C28719749F0D36C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ Diraga Serif — современный и стильный шрифт для л
 ```bash
 magnet:?xt=urn:btih:97A68E6EAFC69A2949471F7ACC0F083598DEC246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFAA6AFCE5144413EE73C2BAB1822200574CE3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E2A0AEE48E4FACE66722BE0B1174DE837733381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8038942B7485D22E31A8246611932C24BD6D6F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ Dругой Ветер - В темноте (2025) [MP3|320 Kbps] <Rock, Alternat
 ```bash
 magnet:?xt=urn:btih:E266690DEEF98D62A0FE7838F97ED450347CAC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F032F625EA68EE502CBD197D40A59D601EE940DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:825AE165054A274FB63CCF00538B4269A1E6D363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6AA5FCA9CC9B7E98825DEBD9A7F8FF70839ED43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

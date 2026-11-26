@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:FF3FF3E30955D9F048E8E58740838D40081A0E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18EAF823C495736AC067DB22E4F72A2BD830885C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ VA - Viva Club Rotation Vol. 8 (1999) [MP3|320 кб/с]<Trance, Dance, House>
 ```bash
 magnet:?xt=urn:btih:F88F36595238B4362A557D58C538732C98822460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8FB7FF058910FDD75E9E9446936145BA18BF666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ TeamViewer устанавливает подключение к любому к�
 ```bash
 magnet:?xt=urn:btih:AAAC66CD5041E09B947FC051F3F0981E48D194A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ AnyDVD HD - это программа для дешифрования CSS и с�
 ```bash
 magnet:?xt=urn:btih:55509E01CD9C439E0986DFD03F42DA5C454D87A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ VirtualBox - специальная программа для создания �
 ```bash
 magnet:?xt=urn:btih:6F941057E34D719C3EEE8BEB1C85B483DFEF748D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C8B7DB103ED06F03F2A8AC494220E8165F9BA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB80D26ED7E0DAE2969B85C792F0FF3BBD2966BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ VA - Europa Plus. Магия super хитов (2014) [MP3|256 кб/с]<Pop, Danc
 ```bash
 magnet:?xt=urn:btih:34B82AE32E13AB724C94F229A076D00BBA0A2399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDAA1E5919E41B8DA2625ED12356D34A4F712042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ TapinRadio — простой и достаточно надежный ради�
 ```bash
 magnet:?xt=urn:btih:C58CF02367F75469FDF069013E7F93159B15014E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Zentimo xStorage Manager - (аналог USB Safely Remove) это менедж�
 ```bash
 magnet:?xt=urn:btih:53107B7C4AB6F8D7E47A63BF8DB1808891B738F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ VA - Tribute To Мастер: Talk Of The Master Generation (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:03913D6623D1BE33FF48194C11C25D022673415B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Psych (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:D176F369E775F700E13E6A1B8613C19F1505521E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Efdemin - Decay (2014) [FLAC|Lossless|tracks+cue]<Techno, Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:64442AA12944589982B161CF8815AFDA492208FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E08E9B3444100A2483154F8E4D628E732E72AB27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C226754BDD7B3E7DCAD914CC31FA575157DE106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:785DE66213A5C3706EEB5BBED9028D10B14158B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB9AEECAEEB8A733696B884E552A5CE2F96535AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ Wilko Johnson & Roger Daltrey - Going Back Home (2014) [FLAC|Lossless|WEB-DL]<Ro
 ```bash
 magnet:?xt=urn:btih:A4421AACA92D50C56DE2147EDE772AB4F85ABD91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D71EAA98500E8E268CAEE6C4E4694E2AB09FB4E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:562CC6C22271A96EF2FEF953582C70205E749C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9F6E181DA2E96F2BA8458B076EF242D335DDAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1187BEE6FBF358B8B3D71BF7E10E846DF7666BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

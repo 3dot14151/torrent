@@ -22,8 +22,7 @@ Act Of Defiance - Birth and the Burial (2015) [FLAC|image+.cue]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:2ABC6E79EAD8A74798E46DE611D1A46D868DC6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Motorhead - Bad Magic (2015) [FLAC|tracks+.cue]<Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BC0B35131059B0CE64FC025A2BDE462BA50919BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Amorphis - Under The Red Cloud (2015) Limited Edition [MP3|320 кб/с]<Progress
 ```bash
 magnet:?xt=urn:btih:822DEC915FF74299CAE474C84C2822EE7560ACE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 ```bash
 magnet:?xt=urn:btih:49BCB6088C35195C8C73D69F35E64BFF743CF6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Search & Rescue 4: Coastal Heroes / Служба Спасения: Берего�
 ```bash
 magnet:?xt=urn:btih:763FD8B0F636A08C7924F453F41E3EFFF590589C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

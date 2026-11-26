@@ -27,8 +27,7 @@ Little Feat - Live In Holland 1976 (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:58EC52C2B1D960E73CE8340436D70CC40E019E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Protoculture - Music Is More Than Mathematics (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:B546C28E8E8A83307401C4114A1E08769FCD497F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EFBB5462768916FAD1C4A497773F525E263A3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ PAWS - Youth Culture Forever (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:6EF6D527EC629D4CA61D0BF18DDFC84B606823E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Release, LoKo - Rage / Failure To Communicate (2014) [FLAC|Lossless|WEB-DL]<Drum
 ```bash
 magnet:?xt=urn:btih:D10BC88D3B6C84CFCC37485A07C2E9B4BEAF8835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:49FF0F153118CF1B28F2A470AC0DBC133A1F6558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CA7B62C505E9E83BBC9AC80AF5B9CDD917C3761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62F60B063A508D50653E3ED2B50FD5857382B4B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Agulo feat. David Berkeley - Fire Sign (2010) [MP3|320 кб/с]<Trance, Progress
 ```bash
 magnet:?xt=urn:btih:DA2F5E2AB6F1E76BBB95B1202DFDBC28374CD0E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D9215E7187550CAABD1F152D9036FD7496C9F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C050DBA84A44F523123464BFBEF8B4B8A3A84288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D9EE5B93534C78003247999E178D956A526E1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB322B09CAB2261572D2114A2DCF2E7AD2DDB703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Elephant Gun - Castle Boots (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:72CD00B1B4C6C4866A6B4DEC00ADA1887A107269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ Sigiriya - Darkness Died Today (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:A95D765214321F2C87A3B1E17897D56AA598A4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +452,7 @@ CD2
 ```bash
 magnet:?xt=urn:btih:8DCEDCABE624D9DC18133D80DF3CE68A39F8BC59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ Sanctuary - Она исчезает последней... (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:4CC35DB822A9F819C109D613CAB34F638470845E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ Lynx - Take Back The Night / Shimmy (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:5FCDC5D006B4E644B6C824DDFB19C193B1C03BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ Georgina Upton, Mediks - Rewired EP: Part 1 (2014) [FLAC|Lossless|WEB-DL]<Drum &
 ```bash
 magnet:?xt=urn:btih:4F4FE761828EED1BEAD66364CD67FBFA14A4FC1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89F873884170BCD0470018BF2C456CD460B5697F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ Mediks - Cannibals EP: Part 1 (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:FE95B102DE3876F257597B3165FD4470165DE4B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEEB3394E0735E05474F6A56A9BADF680D00F330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ VA - Hits RFM (2014) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:20E8CAA3C1A5D486BEC2FE5DC32492EB673EB894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0C6AA041FD0B7277AF3E0F8D4DAC037537A6F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +703,7 @@ Emotional Horizons & X Plorations feat. Aneym - Nobody Knows (2010) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:73919DA0D4E2FA0DF5223A33D323432F6BD9E9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +730,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF9FE9B8BEFE8BBA2A704B5A438FF7F729B6E5F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

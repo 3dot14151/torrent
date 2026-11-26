@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D7F0A394D0FDC05D0890FF5F08558EFDECE5E20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B237B7266B62819F179545FA7BDA75729E5EE44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Молодежный улетный музон (2013) [MP3|224-256 кб/с]
 ```bash
 magnet:?xt=urn:btih:00FD65DFE48C1CF28022F36E3D6A6466DCB7CDB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Sasha Yeller - Acid Day After Tomorrow (2012) [MP3|320 кб/с]<Techno, House, G
 ```bash
 magnet:?xt=urn:btih:CB30D93B1DCBB5ABF41A2C9EB098F205218E2847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Pamela Moore - Resurrect Me (2013) [MP3|320 кб/с]<Heavy Metal / Gothic>
 ```bash
 magnet:?xt=urn:btih:BFD678891888E8A823CB2735D8C7229C3F687734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A925359F130A475F1B2AABDC53601D243B6AF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ VA - American Heartland (3 CD's) (2013) [MP3|256 кб/с]<Pop, Rock, Country>
 ```bash
 magnet:?xt=urn:btih:6B3DAFF26BA71152D4A2BE32EC46600FF2869C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Lifeblood - Stairway To Destiny EP (2013) [MP3|320 кб/с]<Dark, Industrial, Te
 ```bash
 magnet:?xt=urn:btih:8D9348CD223831FD1EE62C9BEB0D1CF0A105CB02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ VA - EPA Frozen Rmxs (2009) [MP3|320 кб/с]<Techno, Minimal, Downtempo, Ambien
 ```bash
 magnet:?xt=urn:btih:6B1B50E2989371E89E157D51AAB09938A461B753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ Danger Angel - Revolutia (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ Duo Jalal - A Different World (2011) [FLAC|Lossless]<Contemporary Classical, Eth
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B1221D5D9C3C4879F6F9EBA46E516E3552594E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +395,7 @@ VA - Maximum Music Отборный Mix (2013) [MP3|256-320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:88E155854FE17FAC1263A2589CC9E79518937363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C75079B6B26891B003EDFD3E73DACA1E3A9DE9A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ GeoGebra - это бесплатная, кроссплатформенная д�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ Amateur Photographer — английский журнал для энтузиа
 ```bash
 magnet:?xt=urn:btih:EC04BA325B618BEB3F65CD3D0C64562F245E1856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1BC4DEA25B7600D7D5590D3EA465231D6E211B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ VA - Total Trance 2013.1 (The Best in Uplifting Vocal and Instrumental Trance) (
 ```bash
 magnet:?xt=urn:btih:923CF4F768CC6F17455C4FE3B1BDBEF0433F22E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EB089AC6CC5E24945180638A06975379FED21B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC965A33F70F133AA2A7F1887434107BA867D2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +624,7 @@ Mutiny Within - Synchronicity (2013) /WEB/ [FLAC|Lossless]<Melodic Death, Progre
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ La venda sexy - La venda sexy (2012) [MP3|320 кб/с]<Techno, IDM>
 ```bash
 magnet:?xt=urn:btih:109A5EB64FDF0E575010E86D0C0FA63B348077F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ Gift - Blue Apple (1974) [FLAC|Lossless]<Hard Rock, Kraut Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +721,7 @@ Vega - What The Hell! (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +755,7 @@ VA - John O'Callaghan - Subculture (2009) [FLAC|Lossless]<Trance, Uplifting Tran
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +780,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F363C16259CB5CBE3E435B400E4C9582E42669D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

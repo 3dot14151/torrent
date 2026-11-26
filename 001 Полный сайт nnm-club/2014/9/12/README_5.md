@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:96E4B0B909B5BF8055B90961D7BAFF2CFF7CEC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ AudioJungle Bundle 2014 Vol. 7 [WAV, MP3]
 ```bash
 magnet:?xt=urn:btih:7C060911F24E9DE79119C92A84F26FBD494A831E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DB5F47B63BF1CF875E10955596A13A402A3396B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wedding Pop Up Album представляет собой элегантный, �
 ```bash
 magnet:?xt=urn:btih:8486F691EAC99419F321EC56698169E0B05B2DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82D22E79013C0EC7C882ADE4AA021B99FC2FE0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Kaspersky Total Security (бывший Kaspersky CRYSTAL) обеспечивае
 ```bash
 magnet:?xt=urn:btih:F85A7FE1F6A9DBEFAA91768D7C8D84F399D7B79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Visio 2013 включает в себя набор новых функций, к
 ```bash
 magnet:?xt=urn:btih:F5080245266D19A9BD10B218B44C73DA54D87B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:621E0E9EE82515BB23A0F8035B815D0A0C153F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Baidu Antivirus 2015 - очень легкий, простой в использ
 ```bash
 magnet:?xt=urn:btih:F8EDCDB1FE1258F8D32682FBA59939FDC713FBBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ PhotoScape 3.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AB19C67BC032294F2032EBDFD9096375F39774A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DDB11AC078D3E6245CE107A5F7D91D11090A80E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB065D8A38FD77E4D359FC22E8A15EC7E96864CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F17F4D2DD11D240A7991617DF29307DC2EE1A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:222ECA4E6A530ACC3B6D281082729CCF92F09527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ WPI DVD v.07.09.2014 Lite By Andreyonohov & Leha342 [Ru] (Авторская р�
 ```bash
 magnet:?xt=urn:btih:E60504413AF6C072DC5DC5A5EC96063E6137D182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2441DF1B02D351E66E63B1A788B250F2653F4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ Appleseed XIII / Яблочное зернышко OVA-2 (2011, TV,  13 из 13)
 ```bash
 magnet:?xt=urn:btih:CE2B21C054D27CF06633F7BC650185AE97D93E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0D69602063D84D52F4627CB39661EB13A60AEF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:7E269947B61193236B1D77EA4616967B64343E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:ED7E31FE835A10F3FDBDDECF95614784C50E7DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

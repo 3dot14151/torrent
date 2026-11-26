@@ -19,8 +19,7 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:D58F22C94B36E1832F4152795D24F208317AF479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OVERKILL’s The Walking Dead — энергичный кооперативны�
 ```bash
 magnet:?xt=urn:btih:D346586FEA5A67A6A137CBE6340F4B1266FE3482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Monster Energy Supercross - The Official Videogame - симулятор от Mil
 ```bash
 magnet:?xt=urn:btih:D2AAE4AD00D0E40BEB9FE4512D6285D0D2938536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

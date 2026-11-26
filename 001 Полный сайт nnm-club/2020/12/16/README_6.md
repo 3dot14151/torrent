@@ -18,8 +18,7 @@ Galactic Civilizations III (2015) [Ru] (4.01.1/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8630A9FCB217FA617AB36177AFF925D13AB70DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DEF71CAFF70A388E59860DAC95B843847E3807A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

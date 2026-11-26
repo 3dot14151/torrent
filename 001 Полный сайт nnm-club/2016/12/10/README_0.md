@@ -21,8 +21,7 @@ Votum - Metafiction (2009)  [FLAC|Lossless|image + .cue]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:FC3529451514C6D615536E0F9D469E6F81E71BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Jive Aces - Spread A Little Happines (2015) [FLAC|Lossless|image + .cue] <Ne
 ```bash
 magnet:?xt=urn:btih:7935D3A468003911701CEB4F8D25F0415DBB720A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Music For Everyone - Glitch Hop Vol.1 (2016) [MP3|320 Kbps] <Glitch Hop>
 ```bash
 magnet:?xt=urn:btih:A5C5CBED21EDA0DA9AD341BA876C014A3650B1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA337E303111F358203EEFA2C4D63224EB10D18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Bert Kaempfert & sein Orchester - Seine größten Erfolge (1993) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:836BC4E9626B1EDB1820EE10DF122E5BD42B8C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:406CFE9C8BE793EA143E04A67B526F65419EA323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Pennygiles - Want The Girl / Wanderlust (2015) EP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:11178AA9617AB71D61B50D1754D059CABBD3A423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ VA - Christmas Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:7D6CCFA238BB8E36506E171BCBE38B7D97C893C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Willie Colon & Ruben Blades - Siembra (1978) 1991, Musicavision[FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:504D6D30578E62511E9A9A01BE96F975CD7C42E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Michael Heemskerk - Angels (2016) [MP3|320 Kbps] <New Age, Meditation>
 ```bash
 magnet:?xt=urn:btih:1BBFCCDEA7097349308F877A2E3BD34AA9C2D583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:498AAEBD4F91A5AD3EEB3200B13BB5CEB21F7437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:727EB4F84932817F158268E58FD2FFFF88544053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Pennygiles - I'm Sorry (2015) EP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:9C6DE729C41647D8510E833379AC6719243D16E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Jill Garcia - Shine (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:A991FEEC3A2A591FBC5CEA4F76542B5BAD7E13C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Andres Roots - Winter (2016) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:2A332CF410DDE3083D8E6386746AA22C5D08AAD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:398EDD22867ECB5B0CE7884114E74310F9012273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8E3FB7704A38953C79767C63B96D83181F28B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Duoscience - Hope (2016) [MP3|320 Kbps] <Drum & Bass, Liquid Funk>
 ```bash
 magnet:?xt=urn:btih:E7FA99074784FCC95A18041CC663A424E5BFCF41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FC56AD520A14B51DD841C4A3FD692CB1ADAB758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Marc Broussard - S.O.S. 2: Save Our Soul: Soul on a Mission (2016) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:A61CD267A4271B3881542215A685EC13459CA3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD922C3FC748D12110364985BBA0F2413403C3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:516345D237D4CAA8B8875AEB6B9E06173D3E7B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EAA726A920389E49E23588FAE2F4C9DC0BB952D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D85C1E1D04C6B6741352195CC2774CC82D28765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:332B2BCA4B606550E820479496AEBC6597459815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ VA - Valentine's Day: Sexy Shades of Chill (2016) [MP3|320 Kbps] <Downtempo, Chi
 ```bash
 magnet:?xt=urn:btih:6A38DD3E7E947EEFC420BFB210F96EFCD49037F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

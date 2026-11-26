@@ -19,8 +19,7 @@ Voice Aloud Reader – весьма удобное приложение для �
 ```bash
 magnet:?xt=urn:btih:44B61EDAE52241B34C641CBDD7A0AEA750C3304F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cool Reader 3.1.2-69 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E025E53F59FE7F8F9A992A400E0B46DFA630D1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

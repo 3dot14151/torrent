@@ -22,8 +22,7 @@ Ras Algethi - Oneiricon - The White Hypnotic (1995) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:7D7EC546D3ACAB97D10B8822FB190AA4B7B17655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Red Rot - Mal De Vivre (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death M
 ```bash
 magnet:?xt=urn:btih:64C351F89856824763A725749BF24425C5BD6945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bastard Saint - Homewrecker (2010) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock,
 ```bash
 magnet:?xt=urn:btih:A4545F0F8B9BB82D28182644801B5B9FA16DB948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wölfhead (Wolfhead) - Blood Full Moon (2022) [MP3|320 Kbps] <Heavy Rock, Stoner
 ```bash
 magnet:?xt=urn:btih:4E9E91308A8102215B245CF30618ABE0EB5E6943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Big Rooster Jeff - The Good Notes (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:5277D43AB1214B5CA630AAA7D61F2E65B24425C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Astral Mantra - Rise of the Lords (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic D
 ```bash
 magnet:?xt=urn:btih:4FA27427E9B919A5AB56BF4ED57CF2AD477C108F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Le Orme - ClassicOrme (2017) [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic 
 ```bash
 magnet:?xt=urn:btih:DDA158AA0935BE7936F12D201D30456078C5E73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Stratovarius - Elements Pt.1 (2003) Reissue, 2008, Victor [OGG Vorbis|484 Kbps] 
 ```bash
 magnet:?xt=urn:btih:627DF49D6C24583FEAA6BD322C0ED7DC3BF508DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Catharsis vs Margenta - Алый Король (2020) Maxi single [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:1AA46ADEC20327BDB75D6AFD3A25660D5A3B65EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Margenta - Сон Императора (2022) [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:FEF14374E1B51DB460DFCE56C1F9822E995E7141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Taxi Caveman - 2 Albums (2021-2022) [MP3|320 Kbps] <Heavy Psych Stoner Doom Rock
 ```bash
 magnet:?xt=urn:btih:987D09E824C6361530CBBC8E00529AAF5CAF1796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Hudu Akil - Eye for an Eye (2020) [MP3|320 Kbps] <Heavy Rock, Stoner, Punk>
 ```bash
 magnet:?xt=urn:btih:F8463272212516AEFF83E931F2F7368CC3F27333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Stratovarius - Infinite (2000) [OGG Vorbis|485 Kbps] <Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:87C0002F8FF337835B8464BAB0B6DE557B5A58E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Citizen - Life In Your Glass World (2021) Deluxe Edition, 2022 [MP3|320 Kbps] <I
 ```bash
 magnet:?xt=urn:btih:6FE592539E2BFA5230D34400C4152EC65C4DC9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ US - 2 Albums (2020-2022) [MP3|320 Kbps] <Progressive Symphonic Rock>
 ```bash
 magnet:?xt=urn:btih:9B7B569950CC17109B8240EBAC184C7FE867236F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Naufragant - A Short Life (2022) [Mp3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:4BEE732A289483E952B21E6C709E618E19D7CCB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Wine From Tears - I'm Fine (2022) [FLAC|Lossless|image + .cue] <Melodic Death, G
 ```bash
 magnet:?xt=urn:btih:232BBD5B66E4FEE7E8351A79B6F67CE038DE118A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Bandolier Kings - 2 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:33D44994509CF7485BB0E1E3913D711AF61CCA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Super Vintage - 2 Albums (2020-2022) [MP3|320 Kbps] <Classic Hard Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B1F6D4B966E195A8A73FEFDBE0B5F0E8F203145F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ Chris Norman - Rediscovered Love Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop
 ```bash
 magnet:?xt=urn:btih:691AE22827ED9883DCB873190CAB29856317AA92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ Amon Amarth - The Great Heathen Army (2022) [FLAC|Lossless|image + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:287851C51C249CD39281269DDD7D9BE525AD3178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [FLAC|Lossless|image + .cue] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:5C8D562A97FFB3715525BDEFBCDAE389201F271C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

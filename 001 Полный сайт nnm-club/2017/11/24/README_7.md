@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B7D5B6FF0184CB1E282B2ADAC7264BD73F7986C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:712FE4DE64FCF85579C0309BDBCBDCD9DAC26C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Navitel / Навител: Официальные карты релиза Q3 2017
 ```bash
 magnet:?xt=urn:btih:EAB40041401639FD5DF26B96164B1A3315FC36B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Assassin's Creed: Syndicate / Assassin's Creed: Синдикат (2015) [Ru] (1.
 ```bash
 magnet:?xt=urn:btih:06F1259B07C4416802DCAAE86A82E0A84122C778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6426DE63FE1CE2FED5C464F18A03CAA843A0C030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

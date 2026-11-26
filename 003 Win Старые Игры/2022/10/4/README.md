@@ -19,8 +19,7 @@ Warhammer 40 000: Chaos Gate (1998) [Ru] (1.2 Hotfix 3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:265E1D369BAF6D32BA13695FC5573D39E17AEC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

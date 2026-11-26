@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:95AE6446B655B35B6067A0B55B1A7A01503DDD1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D792198256E252DB0A96CDB94D9F18AA9C0FE39E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0A2720007E99703F415E92259BA005330E1C57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:957084821526C7F28672305DB495FA37081D6715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (upd4/dlc) Repack xatab [De
 ```bash
 magnet:?xt=urn:btih:0D96D1DF2389A29A4A8123D928BE82699B2503C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2134EE2211809479C8AD6A28A36CEAE54219C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ PyCharm – это самая интеллектуальная Python IDE с п�
 ```bash
 magnet:?xt=urn:btih:A833054A3EF181AC016DA4EE6E97EAF1E6669D5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ MInstAll v.17.04.2020 By Andreyonohov & Leha342 (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:9981EC118204337D38C903133266EF4F48F31934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ WebStorm - Легкий, но мощный IDE, прекрасно оборуд�
 ```bash
 magnet:?xt=urn:btih:8300FC4D88EEDD9DEB7B96551AB175869E956980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 04.2020 1 
 ```bash
 magnet:?xt=urn:btih:A1FF2EE1B699029CD026B552128A4FFB5B0E15B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ XCOM 2 – это продолжение полюбившейся игрокам
 ```bash
 magnet:?xt=urn:btih:E115C3BFF8154E1977E59A77C47BAB76AE23A4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA85870216A87031234125ADB9C16F7700720A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ BATMAN: Рыцарь Аркхема торжественно завершает 
 ```bash
 magnet:?xt=urn:btih:307F386BE413C73A8C36C9A000397E14730ADEAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +368,7 @@ CONTROL — приключение с видом от третьего лица,
 ```bash
 magnet:?xt=urn:btih:2F727783A6A6454B0287D48D991D26A5FFF7169E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0885FF3E2E8FBCC338E6421DE68A6EE72A7BD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC75F8151B11F79114E22E50B40EFDD42127729D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ TextMate для Mac OS - Отличный редактор программно�
 ```bash
 magnet:?xt=urn:btih:21C7ECE9ED8EEE68E3F1F873D12AF5F3738E42BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D638367435A5C6C4F7AF1CB91DDEB3B736532D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +495,7 @@ Farrago предоставляет лучший способ быстрого в
 ```bash
 magnet:?xt=urn:btih:1D8CE848060ED6D763C10E4670A7496712BEDF2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +523,7 @@ Harry Allen - I Can See Forever (2002) BMG [FLAC|Lossless|image + .cue] <Mainstr
 ```bash
 magnet:?xt=urn:btih:12CD6C56278F5FF957798170BFE9C737CA7AFF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:694382BDCC62C89E25320B6FA921D370E8BC63E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +573,7 @@ Cascadea 1.5.1 [En]
 ```bash
 magnet:?xt=urn:btih:45D84B33F2CDC277A7419E6A96114AEB3B1061D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ Disphoria - Чёрная Метка (2020) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:0450A419ECB642E59C06A307430AD9F47B2FE9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EA756EBC2DF61F1C00BD6F66599BC6F13423403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ Throwdown - Take Cover (2020) [MP3|320 Kbps] <Groove Metal>
 ```bash
 magnet:?xt=urn:btih:D672B89B800133510D8C2E91C13D735CF63C31C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

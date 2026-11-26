@@ -19,8 +19,7 @@ Weeping Skies / Плач Небес (2015) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:7778774DA37A11F59971567B2B115CC88AAFFB74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Runaway Express Mystery / Тайна Летящего Экспресса (2015) 
 ```bash
 magnet:?xt=urn:btih:10E231D0E7C018EE66385E551A9B2819C66F8EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Psycho Train / Поезд Психопата (2014) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:AF4B5694F7FE84CBB6047F484FDB4F1329F77434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Auto Age: Standoff (2017) [En] (1.1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C37D3A6BF4E386ECE07D42020F9BB017E02F9F51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Forgotten Land это небольшая адвенчура, в которой �
 ```bash
 magnet:?xt=urn:btih:69490DEE06D1E212F16B76E3A54C3F7202530A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sleeping Dogs — это экшен с открытым игровым миро�
 ```bash
 magnet:?xt=urn:btih:FB4BCEB39D11274A64E74C445D9184662AB87811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:4B522C4702CAFDD410486CE9F4522490D15A6B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

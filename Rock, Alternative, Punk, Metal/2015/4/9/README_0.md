@@ -23,8 +23,7 @@ Comaniac - Return To The Wasteland (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:ED4AC52CB86B4E12E97607BE7BBBBA86DDD6D1A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Funeral Tears - The World We Lost (2014) [MP3|320 кб/с]<Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:0EF9CBD36A884A06CACA6B3E6ACB2DCCA1882DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Procol Harum - Secrets of the Hive (2007) 2CD  [MP3|320 кб/с]<Rock, Progressi
 ```bash
 magnet:?xt=urn:btih:7893417713130BB127380F0299FA0771FDDFAC26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Steve Hackett - Wolflight (2015) Special Edition [MP3|320 кб/с]<Progressive R
 ```bash
 magnet:?xt=urn:btih:9D3501252B0D773262EAB9ED5530D4DBB0E6D9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Testament - The Very Best Of Testament (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5A8776D8268F7D91E555B4BE559AFD8441BABCA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Mark Knopfler ( Dire Straits ) - The Ragpicker's Dream (2002) 2CD Limited Editio
 ```bash
 magnet:?xt=urn:btih:675D684826290DF1BCE5F62C666B74EE3D84F6D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ VA - The Ultimate History Of Rock 'N' Roll Collection (1997) 10CD, Box Set [MP3|
 ```bash
 magnet:?xt=urn:btih:DFF24997D50AC0840A6954BD8153E55227D6019E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1D8E34E95DF702B501CAC70A9313DB83D5C49E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13B13042EAEF4E8718D107C59DC97D7A3032C81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - Tallinna Lounge Collection Vol.2 (2015) [MP3|192-320 кб/с]<Lounge, Nu Di
 ```bash
 magnet:?xt=urn:btih:EFF21D034148747624CF8525B0B245353B72C24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9AB112CF7700FEB3562F83649A040415887E0EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ JJ Grey & Mofro - Ol' Glory (2015) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:9F48D281D681467B139397FF5EF908BFA0E44235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7D8A3EFC9BD8E4B549B0547B9E415209B120104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83830DFB0EE9CD5BA3C76CFAAB84AB4F87FBD5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - Planeta Mix Hits 2015. Winter Edition (2015) [MP3|320 кб/с]<Dance, EDM, 
 ```bash
 magnet:?xt=urn:btih:DA9B1E7A63EE6D84CE763928076B38A2CE118B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Fabrizio De Andre - Canzoni (1974) Remastered /2002, Ricordi/ [WavPack|Lossless]
 ```bash
 magnet:?xt=urn:btih:2065D297094ED55A5E612CEB6C65E5DA05AAA9CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Jack Savoretti - Written In Scars (2015) [MP3|320 кб/с]<Rock, Acoustic Folk R
 ```bash
 magnet:?xt=urn:btih:5A69773DC9D4F79ED845DBF7D2CDE53D947DCD9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B45E8DC7AB79DAD6E543164D77E2E7A0EDD15F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Elle King - Love Stuff (2015) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:B6B5F53AD0D7E47538D5DE0C059CEBF778DBD2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07B391B6FCFA8EF385C76E00A9650667A2353219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ VA - Pure Bliss Vocals Winter (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:1D1E3430FAB18EC1A6BE088F867CF20F7E5DC603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D98499F967B495ADFE5D1246C2A2741B317A2EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2949D94A250D2CC589BA67EB438F334379C0660D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Ensiferum - One Man Army  (2015) [MP3|320 кб/с]<Viking/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:2CE22D4D12E0729A9C59EB2FF655BA32D24F62AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ Belinda Carlisle - California (1997) [FLAC|Lossless] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:0B9D3003D5CDDE9E7863306BEAEC83168A617317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7F6DE79F8A403F388C15DB21EA7D9AD39363683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5CA6C363DFFAB51356F3EF970B7EBD43DCCF073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:746021B13EF00AA5D8DAE544C12BD2859048F04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ Texas - Texas 25 (2015) 2CD Deluxe Edition[FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:5D2E5D84CF359F62E60831E1D77433C861D2FED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A11A831074E2DD454098C55B912C63D0AA3AFB5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9C33F525CD380F1CFF480E3152D32EA4A1478BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D9A6E6EB5AED8AAFCF015A2CCA3945BBA468AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

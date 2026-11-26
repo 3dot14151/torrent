@@ -22,8 +22,7 @@ Top Task Bar v1.6 - Настраиваемая верхняя панель за�
 ```bash
 magnet:?xt=urn:btih:F2F7EA4CC3E9ED2B60A3CB6EC2062CEC392C9C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

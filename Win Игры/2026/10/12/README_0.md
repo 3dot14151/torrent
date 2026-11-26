@@ -19,8 +19,7 @@ Olga - это короткая эпизодическая игра-симуля�
 ```bash
 magnet:?xt=urn:btih:CF93EA0C255509D6EF7E1B2618C66D532D77DF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tiny Bakery - это уютный симулятор небольшой пека
 ```bash
 magnet:?xt=urn:btih:C8D965ACF7B41CDAC1FA417AAF558DF3064D1CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RuneScape: Dragonwilds - это приключенческая игра с э�
 ```bash
 magnet:?xt=urn:btih:173E9B0A998B43384DDECA9A1E33D7E4B8A10FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Welcome to Elderfield - уютный ролевой хоррор, в котор�
 ```bash
 magnet:?xt=urn:btih:29FB20BBF2C6B8FD64D0C0ABB30E8AEC9E7448A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Permafrost (2026) [Ru/Multi] (0.44.2.4650) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:8DF3607C78CD33C27D1A633E3D2FD4C653ED8E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Anime Shop Simulator - это увлекательный симулятор от
 ```bash
 magnet:?xt=urn:btih:9710E91A2956E3C01C3F4C1BCB1823D0CFF32C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Clive Barker’s Hellraiser: Revival - это хоррор от первого �
 ```bash
 magnet:?xt=urn:btih:B0C14C91410A3D60BE7A628DF9A49437A8D73F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Age of Empires III: Definitive Edition - новая веха для культо
 ```bash
 magnet:?xt=urn:btih:66FDA4E8CAB3BCD80F21AFEC00E877D889D7249C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

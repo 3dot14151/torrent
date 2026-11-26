@@ -19,8 +19,7 @@ Kingdom Under Fire: A War of Heroes [Ru] (RePack) 2001 | Pilotus
 ```bash
 magnet:?xt=urn:btih:772EF162B2A8C9907B5CDCDAF3B33093017DE868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

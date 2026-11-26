@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DA6C6137FA8EE50A17AB368E699A4852CF7121EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Aiseesoft PDF Converter Ultimate - мощная программа, котора
 ```bash
 magnet:?xt=urn:btih:E4CF895F5A68FA248A7C2B601A59C00DDF57AA81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Welshly Arms - Welcome (2013) EP [MP3|320 Kbps] <Blues Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:A94F621347E86442391DE241D834E008825ED694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:263AB8514DF7C6F8051D1EE731B2DF866D11B04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:C5559F99E313EE88A9F76A19E54D15E239E25B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Hits of My Soul - сборник электронной и инструмент�
 ```bash
 magnet:?xt=urn:btih:FD89F2CEB82D301564968CA303A2A5081F01FC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B504E44A525D66D0444ADE1CF8B091992E13E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F21B82C1F19B8FF359F5D1D8C823EA0B71FDF7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ BetterTouchTool удобное приложение, которое позвол
 ```bash
 magnet:?xt=urn:btih:18994A1891B834A1D43A5EA5C340D33DF0E50024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0FB322F440BD78B07150EBD5B36445FF29005F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 ```bash
 magnet:?xt=urn:btih:11EBF6A4324C973072A29BE3F5404B70FCE99136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Screens – это доступ к компьютеру из любой точк
 ```bash
 magnet:?xt=urn:btih:F0723A1E83D7EF6B4293410FC73330E3C563F9A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ RonyaSoft Poster Designer 2.3.14 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3485CD68DA8BDCD94FD3B80B552CD271641B01F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ Driver Reviver – это приложение, которое проскани�
 ```bash
 magnet:?xt=urn:btih:7B856DDA6BDEA7C1F715CF1FE45573B5F7568835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0B4972D1BDE578BF4B42D9E942F2A68C74FFF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Shy'm - Reflets (2008) [FLAC|Lossless|tracks + .cue] <R&B>
 ```bash
 magnet:?xt=urn:btih:EEB44DDD77CD36F45A05972BAC994F51410AD8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ Timecop1983 - Lovers (part I) EP (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Retr
 ```bash
 magnet:?xt=urn:btih:6D7B6AFDCF0ABC5D14D176D7064B38C592414E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:C068613FA20441A921BD327FD8681D991F7150AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ OpenMandriva Lx 3.02 PLASMA [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:F33DD7A28DE71CB0866772883FDBC7C6B2242E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ USB Safely Remove это надежная и удобная замена 'Без
 ```bash
 magnet:?xt=urn:btih:578F8EAAB151E7A71A1EC0FBF333D3984ED55FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7198A023FB8E788B525E55DD0E0004D5D6C91809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:E1C34B06D97B68F796A8F86994F78226435EC199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:2934E624BB639CEB2E456508DAE88BA64A78D1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5B430C4AD8EB788DED1FE34CBA1A1A9431E75F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76B1F3AACBB1D5DCB07231B34B3D6AF451B48398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

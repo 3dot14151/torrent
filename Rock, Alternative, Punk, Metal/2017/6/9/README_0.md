@@ -22,8 +22,7 @@ Phish - The Story Of The Ghost (1998) [FLAC|Lossless|tracks + .cue] <Psychedelic
 ```bash
 magnet:?xt=urn:btih:86FA70DC76690AB0C00AC55A91353365CD532D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Alice Cooper - Paranoiac Personality (2017) Single [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:779E3A750DF92FB1CDF5388E0062BD0CAEB44DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Anathema - The Optimist (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive
 ```bash
 magnet:?xt=urn:btih:4382F88C9221FE774FA3BCD06B135C5BDDF4F8AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:2F288FB20358C98DE238DDCB21A6E683C83E7E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5E44933F12FFBC6A10F634E34DB9501E4FA094D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ O&O DiskImage Professional - программа позволяет создав�
 ```bash
 magnet:?xt=urn:btih:4EEFD9F4AAD09C2F40C4FC47C818890BFD59DBDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:418DBB6D1A3E5506F68E1D876E76F915E4FA4FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85CFC1704452CF67F8B71C298809C4DCBC716371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:445AF679A2775837F3C0EA3DD491DDCD2E3A9F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A41A741B616D87472025B3603747BABEEA07AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Лучшая клубная музыка ANDRS vol.32 (2013) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:697477605F9FA3AD1425B66D08694C91B0570143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Molchanoff - Inception \ Начало (2013) [AAC|Web-Dl|256 кб/с]<Heavy Meta
 ```bash
 magnet:?xt=urn:btih:4AD3B0F3AEFAA8CA3A80A3E7C115E0AED872835C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7059C7015DFDE80180F74A72884FB3B5C3926F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EBAD301096B18F303F9CCCF7F3D76D281BA20A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2529F50C7E8D59B2D2CF8D7C02B114F47A3A6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Zero 7 - Simple Things + Remixes 2CD (2002) [FLAC|Lossless]<Electronic, Deep Hou
 ```bash
 magnet:?xt=urn:btih:1BDBEDD492D010BED9D442686B2FBA3E659AB365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AA946D30C65315EB44AA95D85948D5522685126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ Purple - Salvation (2013) [MP3|320 кб/с]<Electronic, Chillout, Atmospheric Sy
 ```bash
 magnet:?xt=urn:btih:E0796D96CB0DA395CAE36787FC56EB2DADB4EF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ B5. Колыбельная [2:35](   Читать дальше...   )Жанр: R
 ```bash
 magnet:?xt=urn:btih:CB55C907B29FF27D74B906FC18AED1B416A885EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37B7C9B43262E5E50FE92DAA44565692519AE792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ DBeaver является бесплатной программой, с откр�
 ```bash
 magnet:?xt=urn:btih:B4AABB684FE4E243B6FB86FDAD6F2635D6B69D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ```bash
 magnet:?xt=urn:btih:9C46145F6A4E57B124FD0CD2C61D884955A0DE54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ WindowsPlayer - инновационный видеоплеер для прос�
 ```bash
 magnet:?xt=urn:btih:B18D78F6FDE71317E2013A509D9FAF66AF507C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ Wallpapers - Minimalism [JPEG]
 ```bash
 magnet:?xt=urn:btih:7A4FA85BC6744ACE7942BEF2CB92F856C802DAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95FD1989459CFA719EA3C800E7EE7F17FBEEED4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A99191457201E09CF9D5A520A371AAD1D37E52CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ The Human League - All The Best (2012)2CD [FLAC|Lossless]<Synth-pop,New Wave>
 ```bash
 magnet:?xt=urn:btih:60DF53533346D183226CC24165DCA7E1435ED743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

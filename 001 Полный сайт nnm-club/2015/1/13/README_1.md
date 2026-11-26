@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3342019553A765E4518F363268E2A119E9E2F72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Beatles - A Day In The Life (1967) HDTV [1080i] [hand made clip]
 ```bash
 magnet:?xt=urn:btih:4B5F1BCB5DDE969B0462AB19C0B9D4944BFC290B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FileZilla - программа, предназначенная для загру
 ```bash
 magnet:?xt=urn:btih:F64D90A95B554AD567FE3200AAE2BB1BD2625EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EBE729D162EF45A75FDE72F21093AA661301FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Yousei Teikoku - Hades: The other world (2014) [FLAC|Lossless]<Gothic Rock, Goth
 ```bash
 magnet:?xt=urn:btih:659F9D6A37A737349AB785CC62619B87511AAFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Ed Solo & Deekline - Welcome To The Jungle Vol. 2 The Ultimate Jungle Cakes
 ```bash
 magnet:?xt=urn:btih:E98E2D0C0716479337D872F90AAD1D593074A661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2013) HDTVRip (Се�
 ```bash
 magnet:?xt=urn:btih:F1C91F6F1FEF3A2D7A89BD36B8986557F67B45EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Beginning Android 4 - обновление к Beginning Android 3, написа�
 ```bash
 magnet:?xt=urn:btih:90A026E81B1779938F97520AACCD2CAF784C53A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Blues Cousins - 3 альбома (2004-2011) [MP3|320 кб/с]<Blues, Blues-Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DDFBE5E70D6D99D14433A51F9C45EB7D5367AC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Angelika (Анжелика Ютт) - 4 альбома (2002 - 2009) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:F8F5B5C3F28F790287A448B7CEC1EDCAF9D14231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81DDA582CB6EA4D1F7A871E3C04ED456FD374D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EA78546841BF079AC1C693E05B261BA08A52096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Icaros это расширение проводника Windows обеспечи
 ```bash
 magnet:?xt=urn:btih:C1FD357ECC7698256B587EB0884AF876C5C675B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Keyboard Maestro 6: Минимум времени, максимум эффект
 ```bash
 magnet:?xt=urn:btih:7DA9F4E8F69B3834A975763A0671582E72317123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Slash. MTV EMA World Stage (2014) HDTV
 ```bash
 magnet:?xt=urn:btih:F2AC953B0CB9050DBDFA81F38E6E0FDC26E9DD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD8179B9D302F61BFAEB27295F5D4A6692EF1180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15294D7368FD7668D3B3449D033FA4EA78875195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73C99EA906A958979C69A6B69AF85F29872B30C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:573BB5B1865F9B5559B8B3861A2793BA651ED923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B51B9E140418C9103BD5A0B9747B869163B301E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ Queen + Adam Lambert - Rock Big Ben Live (2015) HDTV [1080i]
 ```bash
 magnet:?xt=urn:btih:3D2E9AAE6BA04B0F58D94F07BFD6106F21BFC796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ O&O SafeErase Pro - полностью исключает возможность
 ```bash
 magnet:?xt=urn:btih:C4C845F05E42A3D670175E29CC00A21575AC0F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38D7BC0CBD29B5BEE064E3D8289E9A8DC401AD38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ Wallpapers - Витамины для глаз в середине зимы. 100 
 ```bash
 magnet:?xt=urn:btih:C30AA3F20C59BBBBE9F2476AE43AD1AEF6126F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

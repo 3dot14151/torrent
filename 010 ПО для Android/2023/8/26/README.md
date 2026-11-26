@@ -19,8 +19,7 @@ Lexilize FlashCards v4.8.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F70C4AFF10002840828748D8C1B363AB3EF2D64F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CB45765FDEE269225DBD3B0D51FAA306F54A5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LazyIPTV Deluxe v2.46 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E6285495FA6E66FA3D868D04E49D6D578E4D3AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

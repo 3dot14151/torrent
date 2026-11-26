@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:B49F5845B9F20DDA720212319A15DD130CE3ED59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Urban VPN proxy Unblocker 1.0.51 [En]
 ```bash
 magnet:?xt=urn:btih:62EC512221743F331CFFC6016978371BE26A2193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

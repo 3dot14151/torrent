@@ -19,8 +19,7 @@ System Ninja - быстрое и эффективное решение для о
 ```bash
 magnet:?xt=urn:btih:463E5C91B2D693EEB6AD9FEEB71BF33F3BAAB5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

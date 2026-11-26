@@ -22,8 +22,7 @@ Aleynmord - The Blinding Light (2020) [FLAC|Lossless|image + .cue] <Atmospheric 
 ```bash
 magnet:?xt=urn:btih:82384B082FE30E791EF5C7F00B36C5A09FA17A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Windhand - Levitation Sessions (2020) [MP3|320 Kbps] <Stoner, Doom Metal, Heavy 
 ```bash
 magnet:?xt=urn:btih:91719788C23E9B337190695F409732958175397E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:16664540693E2FDB733D17FF332626F47945E5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D39295C12FEDEF22E1384A9D2032EC7D225B9483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lost Generation - Blues For My Ex-Friends (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E75A0DCF8571A4D8E6BB1AD5C81CB0F9FD3B3090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

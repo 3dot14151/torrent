@@ -22,8 +22,7 @@ Hannon Tramp - Hannon Tramp (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Glam
 ```bash
 magnet:?xt=urn:btih:B6DA11B38A03EAF5DC39419FE3C903C87BE89ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Radigost - Nocturne (1999) (Reissue 2002) [FLAC|Lossless|image + .cue] <Black Do
 ```bash
 magnet:?xt=urn:btih:5AC63B7BB61A0E3FD989A4202964B7BF7966191D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Turisas - The Varangian Way (2007) [FLAC|Lossless|image + .cue] <Epic Viking Met
 ```bash
 magnet:?xt=urn:btih:4C977618EC622ED8CC9EA4467B34C2189C2DCBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

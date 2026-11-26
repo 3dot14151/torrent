@@ -19,8 +19,7 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:D095EB22C183AA8CD9A1E607A455FF0E382E4565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EEC3C7FC69E3FCE8EF10648055B849F9AD3DCDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead Age — переживите зомби-апокалипсис с поша�
 ```bash
 magnet:?xt=urn:btih:ADFADB3FDEB623FC222B0BC6BC4F17CBD5648519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

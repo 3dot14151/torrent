@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F80BB7CECE2B5F0534C9FEE554B732C00D3CFE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Jean-Pierre Como - Empreinte (1999) [FLAC|Lossless]<Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:251830D2440B83C595A50F4FBDF2963C2674E04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1E01D8A3876306C53E6CEC5038F66B01639E2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB1EE5377CCEAB095C447FE3D4A3BE32C5E21A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:614705FCF5A914B6F2F583C92B1663F707053F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E11B9B9E03F61CC24BAA633439471C4A27D5205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:40F33E4C84414E3B01E8B866C7BE311DFAD4F291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCED6C12B8B4DCC6DC5A4017C7A467600D8053CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Judas Priest - Live In London (2003) 2CD Japan [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F160C8F1AEADBF3D8E955753938789251EE927C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5454A1CC8269440B157A9AAFBFFCF9543A5EA82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E823365E19ED5A8792B4C243CC878BA9A907B3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FAD1D8916A7014FC275771F4CADF30469A8D239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Light Alloy – мультимедийный плеер для ОС Windows. П�
 ```bash
 magnet:?xt=urn:btih:FF869FB01D22C02FC531C9A1099FFD83CAC2787C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99CEAF22C4732C61E37B325076538606C02ED986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8B176116AE8C5552D8EF9B65D1E8DC03F004BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Dinah Washington - Stairway To The Stars (2001) [FLAC|Lossless]<Jazz, Vocal Jazz
 ```bash
 magnet:?xt=urn:btih:944BB916AADC034A7061115271DB18754F511D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Light Alloy - компактный мультимедийный плеер. По
 ```bash
 magnet:?xt=urn:btih:AD55D953E0100AFFA8FB3C7AB41531C9AA9D959A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Total Eclipse - Violent Relaxation (2003) 2CD [FLAC|Lossless]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:C18416A641D89841D23297E94CB9712C5503CA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1DC1D61BBE427FADB4CD0AF2B423164D7BCBD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF3746BB23143F6A218F350D50162CB4B4DD6188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:136D7DDC760ACDC8B1D7410724159FAEB8BD7E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ Blue Sky Black Death - Slow Burning Lights (2008) [FLAC|Lossless]<Hip Hop, Pop, 
 ```bash
 magnet:?xt=urn:btih:436B4F88CB7CE0BCA175ED40E096F2295EA2136B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +640,7 @@ Vanilla - Sweet Talk (2014) LP [MP3|320 кб/с]<FutureBass, Breaks>
 ```bash
 magnet:?xt=urn:btih:F8E4608C1B17B71B67B6359268FB5A052C9D5815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +667,7 @@ The Prototypes -  Don't Let Me Go  (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:30AF9EC6ACC7E301CFB278A92F35C18838E5E16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +726,7 @@ John Murphy - 28 недель спустя / 28 Weeks Later (2007) [AAC|WEB-DL|2
 ```bash
 magnet:?xt=urn:btih:F69451AF69AEB82DBE02A65637FB95202236072F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

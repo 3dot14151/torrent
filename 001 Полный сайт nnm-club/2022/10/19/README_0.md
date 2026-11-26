@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:29A40EEEA11B31949CA3BA5A8E9C7CE6F846C9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:87F5C9A275B00A946D0F07134ECB98E097B48601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Michele D'Amour and the Love Dealers - Wiggle Room (2018) [FLAC 2.0|96/24|tracks
 ```bash
 magnet:?xt=urn:btih:368CA4A4EFB8A9D82AFA71F1E74629AD8C3BCCDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:6B7A3F3FB45CBAA25FF33CAD643CBA82781B1882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:1E356E37C7500B1C3B80068A047925127E17A1F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 ```bash
 magnet:?xt=urn:btih:9E6C06D247D7ACB95ADF624AEF901A25E8494DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:876ACFF67371D2C88C554C5463F2A9DFD38D0CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECF7D54B8F227C99C792F63B9AB5E55599D91D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:2754169FD5D7F3E41DB00C4E032C1BA9CA5714D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F478FC3365697C9D4B56274632A76353B33787A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:D9129B778F12440412439E3176BDC63FAECAFA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Belinda Carlisle - A Place On Earth · The Greatest Hits (1999) 2 CD [OGG Vorbis
 ```bash
 magnet:?xt=urn:btih:714980479131A990B04E7126E96E6AB8E4C8CD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05BDC24BE2F33C096F4CBBBAC90D9C9D8E412567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:646611BAE51FCD1B3C4A6D16ED524670608A9105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Selena Gomez - Revival (2015) [OGG Vorbis|480 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:17D82959A2E28A82A626E587936842D95A75514F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2325AAFE44BE659025560DA157509CFC80E8EF1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ doPDF — программа для преобразования докумен�
 ```bash
 magnet:?xt=urn:btih:0CA5E28B278B2B8AB5F8A8BDBD61A5D15D9F89EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ Bee Gees - This Is Where I Came In (2001) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:000730291D6BDC8736294BF55060D300E2659B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:E96ED2BA460B9F725F0F27D0C5B6DC647C88329F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:0E5DB20F7795E350BE115FB8945CDF3AC724A9BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ IcoFX – мощный редактор иконок и курсоров, обл
 ```bash
 magnet:?xt=urn:btih:8FC5AA0C8CFF7C5E65B98191A55786C789EA2057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:9236762CAB57000EF0210E2E583BBE207EF5924D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ Feskarn - 3 Albums (2014-2022) [MP3|320 Kbps] <Viking Folk Metal>
 ```bash
 magnet:?xt=urn:btih:FCC03714F1ED48E7ADBA04121CBFEFC39FABC9AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ Shin Ikkitousen | Истинная сила тысячи [2022, TV, 3 эп.] BDR
 ```bash
 magnet:?xt=urn:btih:B2A03F1839F55EAD20516342FC13D228C5D08124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:030A9C9613B3F2674BA05C8E13BBCD58BB995EEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28AC37A0D3A39CDEFA6FE99C52021EC86214648B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

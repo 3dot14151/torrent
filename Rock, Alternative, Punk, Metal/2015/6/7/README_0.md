@@ -22,8 +22,7 @@ Secrets Of The Sky - Pathway (2015) [MP3|320 кб/с]<Post-Metal, Doom Metal, Pr
 ```bash
 magnet:?xt=urn:btih:98C3D9AA587D886322C00831CF708035C706D52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Neuschwander - Neuschwander (2015) [MP3|320 кб/с]<Progressive Rock, Psychedel
 ```bash
 magnet:?xt=urn:btih:61460A1B676478D1FAE4478069053970CAE6F482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kinski - 7 (or 8) (2015) [MP3|320 кб/с]<Psychedelic Rock, Experimental, Post-
 ```bash
 magnet:?xt=urn:btih:0DD78F0A382E1CD14D418DC130F18867AB7A76CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Vitor Bacalhau - Brand New Dawn (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:0B12D77108D373C6B0A8CD9C861413A13BF6CDBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Reanimator - Horns Up (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A364A83065F2186413427AE81FE06840EA30C3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sintonia Distorta - Frammenti D'incanto (2015) [MP3|320 кб/с]<Progressive  / 
 ```bash
 magnet:?xt=urn:btih:D9104F96A2C63EBCBFFCBE5756734DCA7F9FBC8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Crimson Stone - Crimson Stone (2015) [MP3|320 кб/с]<Hard Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:65DE807E3C8019CA7098996F9A3463E2850FFEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Gandalf's Fist - Uprooted (2015) [MP3|320 кб/с]<Progressive Rock, Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:C011BA278AF09512308F9C395029FB980E58378A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Morly Grey - The Only Truth (1972) Remastered /2010, Sundazed Music/ [FLAC|image
 ```bash
 magnet:?xt=urn:btih:A557E56CEEA3AFAC44E8F63C93F8F9BB1B82B68F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7C8FE46AA22BD2DAB7F6EA51CC4A86F222CEA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Algiers - Algiers (2015) [FLAC|tracks|Web-DL] <Post-Punk, Indie, Experiemental, 
 ```bash
 magnet:?xt=urn:btih:E4E2B40C44E971504EB762C549400DCFE95E6436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Paradise Lost - The Plague Within (2015) 2CD Deluxe Edition [FLAC|image+.cue]<Go
 ```bash
 magnet:?xt=urn:btih:5C7EC38BEDCF1226AB01F37DA2159BC9239C45FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Sabaton - Carolus Rex (2012) (Japanese Edition)[FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:CCD15FD167A4473043F60A73519D18698D1471E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Mark Knopfler - Greatest Hits (2015) 2CD [FLAC|image +.cue]<Blues Rock, Soft roc
 ```bash
 magnet:?xt=urn:btih:BC438E5CECBCDB37FC49C0A42D6C04ECF300D364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

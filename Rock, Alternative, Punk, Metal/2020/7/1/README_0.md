@@ -22,8 +22,7 @@ Millenium - Angelfire (1999) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:02FFEAA275FFF2DE2BA219F676BA675582B37CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vandenberg - 2020 (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:856247CC3571BFE41917814CB1FC6F818C758966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Полигон Records. 2019. Всё самое лучшее. (2019) [MP3|3
 ```bash
 magnet:?xt=urn:btih:32AEA0F4BA0A2392A41CCE7056D94600637BDC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

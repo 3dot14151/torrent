@@ -22,8 +22,7 @@ Crrombid Traxorm - Anamnesis Morbi (2020) [MP3|320 Kbps] <Progressive Metal, Dea
 ```bash
 magnet:?xt=urn:btih:A9E4897A08C23ED8AF565F4E9B6430240D777AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Slytherin - When The Darkness Comes (2021) [MP3|320 Kbps] <Atmospheric Black Met
 ```bash
 magnet:?xt=urn:btih:63B04EC6EC8BD872A6DF7FC2FB69B8725D14DAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Red Skywalker - The Origin (2021) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E30485C2E2CBC374C0F70C90FE8A858EAC1BDB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Men Of Munga - Ballads Of Munga And Men (2021) [MP3|320 Kbps] <Doom Metal, Stone
 ```bash
 magnet:?xt=urn:btih:0F79AC160EE1E2094E330B21BE1B594E3684DB81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Compassionizer - Caress of Compassion (2020) [MP3|320 Kbps] <Progressive Rock, R
 ```bash
 magnet:?xt=urn:btih:F07E5CA01401D81A34E976B086BB64D429C0A3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Skogmark - Aera Av Ensomhet (2020) [FLAC|Lossless|image + .cue] <Atmospheric Bla
 ```bash
 magnet:?xt=urn:btih:98E724183BA649C77A4F9DD342395D0076CEA1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Crimson Caravan - Big Big Bang (2020) [MP3|320 Kbps] <Stoner Desert Rock>
 ```bash
 magnet:?xt=urn:btih:6D535BD5CC7D2FF34A46A63F2B5F49B2CD52519B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Echelon - Поехали (2020) [MP3|320 Kbps] <Modern Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:FC0231EFA05C5F10B8CE2C094E808720BAE57994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Gary Schutt - Drastic Measures (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6545BAD855A440DE561539B9A42CFF9CA2D7FB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:ED49BEECBD3B035BEB13FE8A1556DB5607DA5493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Primordial Throne - Possessor (2020) [MP3|320 Kbps] <Symphonic Metal, Death Meta
 ```bash
 magnet:?xt=urn:btih:78C7CA8914B74B4ED9B2CC937A07CF40E2869F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Sacrifice - Sex With Death (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4A651F1053CDE16F290264E2871BFBB9F0DB788F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ CD - 1 - Best Of Rock:
 ```bash
 magnet:?xt=urn:btih:48DE0852DDE0A795A54ECBDAF11A94CDFEB1C6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ The Groundhogs - Split (1971) 50th Anniversary Edition, Reissue, 2020, Fire Reco
 ```bash
 magnet:?xt=urn:btih:F9FD65A00A6D98D943F8BBE1357F7647CC97D4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ Firewind — греческая хэви-метал-группа, для муз�
 ```bash
 magnet:?xt=urn:btih:74C7C6B30A5D03CEF944E25757995F612AE65D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

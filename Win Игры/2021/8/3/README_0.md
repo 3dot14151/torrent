@@ -19,8 +19,7 @@ Reflections of Life 10: Meridiem / Отражения жизни 10: Мерид�
 ```bash
 magnet:?xt=urn:btih:EFBF20754507935705D60FD95260EB0E90E95042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grime (2021) [Ru/Multi] (1.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:98B01159BD87DC22A2D41EB67A7DF2542935C47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Submerged — приключение от третьего лица, дейст�
 ```bash
 magnet:?xt=urn:btih:0E130FC940479781DD93859042C7466309363D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

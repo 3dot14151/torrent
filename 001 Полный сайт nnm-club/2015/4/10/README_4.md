@@ -18,8 +18,7 @@ Google Earth Pro 7.1.4.1529 Portable by PortableAppZ [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9E908FCE0C0F7D426FB75F4CE0EDA4DDE6E5EF9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Windows 7 Manager - утилита позволяет пользователю �
 ```bash
 magnet:?xt=urn:btih:93BB0F22FBCB7804DF1B26782B4E5EAD88534BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tank Battle 3D: World War II / Танки Второй мировой войны
 ```bash
 magnet:?xt=urn:btih:4DADC7945FB5061FFC68F433D41B76DD27D6A978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kami-sama Hajimemashita 2 / Очень приятно, Бог [ТВ-2] [2015, TV
 ```bash
 magnet:?xt=urn:btih:1871ADFCE492EF6B7DAEFD3C5183F1D450FD2EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:384F0C39FE54E957C8ED60B78C5C7BF156E14DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FC5F5EECFB5D3DBD155ED698FDFE2E6D3CB0C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69A2B54E42847C3A8D2C22E15BA2FFDB62C5B53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:103A08B8A4291C441EA28FD35EBA91A7CB313FD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Spring WebFlow - это дополнение к стандартным возм�
 ```bash
 magnet:?xt=urn:btih:3B657B4FA5216234AFCB109709FDA762046F3BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB6358822ACF0E4EA0E284F78A71871569ED73D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Insane / Безумие [Ru] (RePack/2.1) 2002 | Liones
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFC16AA63CF0DE8B2C72BA7D2BA8AE5C583DC60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAF8F6B6DA310F9D111BC04ADE43BE2288C51136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Minecraft — это строительная игра жанра «песочн
 ```bash
 magnet:?xt=urn:btih:454BDA203BDB9249D381D03CF63CC57056A6F3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Tom Clancy's Splinter Cell Anthology (2003-2013) [Ru/En] Repack/Rip R.G. Revenan
 ```bash
 magnet:?xt=urn:btih:D5E5730E42453A8D50F8426D72E91F14ED44C108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ iExplorer - утилита для просмотра и работы с файл
 ```bash
 magnet:?xt=urn:btih:BD474C6902A686BD36AB112E859B29CFFFBE0A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7898BD840F86EB441EF47E57E0842FAC869D26C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B36A168AE16B70F222813CECEEBB9839C366EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ Artlantis Studio – профессиональный набор инструм�
 ```bash
 magnet:?xt=urn:btih:00D109778CB82F3CA4915697EA90AEA46C38A8AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23E99892CD2393D55B3D18DE55F9E9E3E9C91090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ FIRE — это приключение-исследование с множес�
 ```bash
 magnet:?xt=urn:btih:7CA42DC860FC2727B62595150050C400444C16D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:066ED581416CE6A5BF2581AFCB8ECA0B4476F0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ After Effects — одна из самых популярных программ
 ```bash
 magnet:?xt=urn:btih:EB258A15096D524AD144B1DE296B1A440423DDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +635,7 @@ Tor Browser Bundle 4.0.8 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:3CA64C4C11AF1D807F01DDCC649925CE952D99D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +660,7 @@ Acronis BootDVD - загрузочный диск, который вмещает
 ```bash
 magnet:?xt=urn:btih:FC035D64616AF7B90D83DB8313225C39005269F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

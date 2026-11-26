@@ -21,8 +21,7 @@ Edelis - 12 альбомов, EP & Single (2008 - 2018) [MP3|320 kbps] <New Age,
 ```bash
 magnet:?xt=urn:btih:F56FD625981A476D7749840A5523FD147D6354C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB5A60B1302E4B35C5BDCDD2FF4749EE220B4777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1097C64DA9D1F6DA9C3BC7AB5161CFE445FAD350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Wintermoor Tactics Club (2020) [En] (2020-05-04/dlc) License GOG [Wintermost Edi
 ```bash
 magnet:?xt=urn:btih:3207359C2DE7C6F2A13049F2BFC1487860FC1B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACAC3443CB3D3598491CBF38699BA780C7D91C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Open Camera 1.48.1 [Ru] - Фото и видеокамера
 ```bash
 magnet:?xt=urn:btih:335E1379CD786A2BF53ED109DCB8EB30CCE16B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0184D58B1C0F2B9CED5DA7114677746C20FAB9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9680C9650FF477642E2F8ABBD952A26AFA43EE28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Clover - утилита, которая призвана усовершенст�
 ```bash
 magnet:?xt=urn:btih:32AFF8F304948C056075B8A68DD1647AE858FE25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A0CDC09B9D06DA4DC4D31DB54AF79C8F409699F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B542EDF6A58CF88016F25E18B191D8C402CC187F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:493286B4B4B7955C4EC9D7B24193CF8662EF0DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17186B1DEEF699D96E306ADFC63E8A32ECC8B3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ DanMachi  | Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: 
 ```bash
 magnet:?xt=urn:btih:4EF396612F1C20EA2BEAA31CA29F3E5158CD6095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Sword Art Online: Extra Edition | Мастера Меча Онлайн: Посл
 ```bash
 magnet:?xt=urn:btih:57D521CF962B072C4F63FF82CEA22601EA8E4DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword
 ```bash
 magnet:?xt=urn:btih:21E8CBE97D71D466800B34E08E3A1EC0CC4987D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka | Is It Wrong
 ```bash
 magnet:?xt=urn:btih:7F3CB134510BAC45860A134BFBB9B65ABF761CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ Deus Ex: Mankind Divided (2016) [Ru/En] (1.19hf/dlc) Repack  xatab [Digital Delu
 ```bash
 magnet:?xt=urn:btih:C587FB87C8661861432A99A64353718BC7CC1180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | Is It Wr
 ```bash
 magnet:?xt=urn:btih:055E5E2BD8BAF1D43FDD484D0D68E4358FEA0618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ Adobe Photoshop — многофункциональный графически�
 ```bash
 magnet:?xt=urn:btih:C7351F5088E8F667FDB81E49605B372E8D0A8904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ Need For Speed Underground,  Underground 2, Most Wanted, Carbon, Pro Street, Und
 ```bash
 magnet:?xt=urn:btih:22BF358FB6E9D66A0B2A30E6F87F7F0F402C24AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ VA - Need For Speed / NFS Underground 1, 2 / Carbon / Most Wanted OST (2003-2006
 ```bash
 magnet:?xt=urn:btih:6D9750715D6B933C3981C04CF16E58323C9BA07A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

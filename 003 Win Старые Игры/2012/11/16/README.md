@@ -20,8 +20,7 @@ MegaMan X2 [En] (P/Emul) 1994
 ```bash
 magnet:?xt=urn:btih:27A306D90DC326794F26707575A8938BCDC7C026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ MegaMan X [En] (RePack) 1995 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Megaman X4 [En] (RePack) 1997 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Y2K: The Game / Y2K Problem / Millennium Bug [Ru] (RePack) 1999 | Kirill Games
 ```bash
 magnet:?xt=urn:btih:7D18458685BB6A9B118CE1B376AD5DA421CF5D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Mega Man X, его друг Zero и новый герой Axl продвигаю
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ MegaMan Legends [Ru] (RePack) 1997 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Mega Man — платформер. Игра начинается с ролика
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

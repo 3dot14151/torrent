@@ -19,8 +19,7 @@ World Rally Fever – взрывная смесь боевика и сумасш
 ```bash
 magnet:?xt=urn:btih:3C969A74CDB9DF47AB10927114C1C04004E177CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

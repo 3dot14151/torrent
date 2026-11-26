@@ -19,8 +19,7 @@ Sofie: The Echoes (2024) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:51BEB3E6412BA695E917662E6F0EE380ED38AD06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.40/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F0C287BA978F2597E70FDF28432117C25A10DA41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WWE 2K24 позволит вам заново пережить культовы�
 ```bash
 magnet:?xt=urn:btih:DBFAD909344065DE3BEA08E4E46F71219DAE95CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Call to Arms - Gates of Hell: Ostfront – стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:7E081A2A18154FC1153600790611D603B5081291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0/1.0.38.0) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:E1B2AB65532BEF825AC69EBAF605AF695BF5D605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 ```bash
 magnet:?xt=urn:btih:78C48427C0F2B566AB481A7193F316F81EE22212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:AF57BCCB50DB3D18AD529B848FA8A5FF68365824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 ```bash
 magnet:?xt=urn:btih:755719E3DDE81E59D145ECF1B3D8B12E95A7CC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 ```bash
 magnet:?xt=urn:btih:9C6A23F5BA838BCA5B8E3B88F526522201249409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Ashes of the Union (2024) [Ru/Multi] (Patch #7 Hotfix) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:D3C5D07F290A0D0F62D4A65556CE94CE9E3D0A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:BA87C76B26BF8B6980442EB09A44B168AD5AA1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Farmagia (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EC2193E3DF8DC0FE377E82E7DB91922E105FA501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ L.A. Noire – мрачный и жестокий триллер. В игре и
 ```bash
 magnet:?xt=urn:btih:E6BAAAB363BD82B42D802E7D020EB658F090BA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Chrono Ark – ролевое приключение в классическом
 ```bash
 magnet:?xt=urn:btih:B74A599021FB72FB63476F41C72FCF1D3C177BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.0/dlc) Repack FitGirl [Ultimat
 ```bash
 magnet:?xt=urn:btih:80365C5CEDA5BD6D4EA9CD652D67AEFE1DDC76F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

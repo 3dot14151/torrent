@@ -18,8 +18,7 @@ PyCharm – это самая интеллектуальная Python IDE с п�
 ```bash
 magnet:?xt=urn:btih:12E6404127FFC667E38AC15C1444F0B80FBA5856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35708946CB28A975A6B5AED0C9A34EBF849C408B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ao no Exorcist: Kyoto Fujouou Hen | Blue Exorcist: Kyoto Saga | Синий Эк�
 ```bash
 magnet:?xt=urn:btih:8C89F6D51DC79FCB51A4C21684EA4ABE01E64DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B064EF246FDAC6E20ABDE1CF627DC061E99161F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Zemana AntiMalware - облачное антивирусное решение, �
 ```bash
 magnet:?xt=urn:btih:86934F0B1D9A7E0CCDDD454C99E5A108FD1933D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ PhpStorm – это интегрированная среда разработк
 ```bash
 magnet:?xt=urn:btih:7FD357910B7AFBFC8FBA3647A2FAC8F15F0D02F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDDA3ABFF88324A470743A993B9D86994F3FA068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Label Pack - Future Sound Of Egypt Recordings (FSOE) - 223 Releases (2009 - 2017
 ```bash
 magnet:?xt=urn:btih:A3F35CEDFA56FCEA8BD86686FC73FB4D1413E947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ VA - Дискотека  Dance Club Vol.162 (2017) [MP3|320 Kbps] <Dance, Club, 
 ```bash
 magnet:?xt=urn:btih:FAFFDBEC51FAF85BD972491283F2A0E8499C1535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Windows XP Pro SP3 VL Ru x86 by Sharicov (v.25.03.2017)  [Ru]
 ```bash
 magnet:?xt=urn:btih:0D132839859649D60E23C920D64C08B03462272A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3782C6446EC6571498B96C10FBE28C553B9DBDF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Microsoft Windows 10 Pro Insider Preview Build 15063 (ESD) [Ru]
 ```bash
 magnet:?xt=urn:btih:0580E069C8C46FCB9400EB45457005F5464FD500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:353A46F9A0053A90611C090FC1BE410463D7AFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ NaviTel / Навител Навигатор v9.7.2493 WinCE [Ru]
 ```bash
 magnet:?xt=urn:btih:77D5866685EDA5CE8EA047E0E43EB8A0DAE65AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ Microsoft® Windows® 10 Professional vl x86-x64 1607 RU by OVGorskiy® 03.2017 
 ```bash
 magnet:?xt=urn:btih:6B5F5FEB1381CEC2B9C2FE0E95B13EDDEA7E36FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Auto Call Recorder Pro 5.26 [Ru/Multi] - Запись звонков
 ```bash
 magnet:?xt=urn:btih:0ED110AA50AE3D3BAB199142654D25ADDE75EBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

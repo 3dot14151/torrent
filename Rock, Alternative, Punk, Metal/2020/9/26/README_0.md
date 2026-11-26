@@ -22,8 +22,7 @@ Draupnir - In Culpa Versari (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:1986991C4B4F0B2E1572BCD265A030C7BB916932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Messiah - Fracmont (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:CA4C6EEC56054B7AA93A3D1D08C044617281EE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ebony Tears - Evil As Hell (2001) [FLAC|Lossless|image + .cue] <Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:F1761F7134613E9CCD622512DA812AFC3089F4E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Kings of Frog Island - 3 CD: The Kings of Frog Island IV-VI (2013-2020) [FLA
 ```bash
 magnet:?xt=urn:btih:92E49C88796F5B7A52C5535DC490BF6DFBA50731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Summoning - With Doom We Come (2018) Box Set, Deluxe Limited Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:E59661777D50390975CA4CB19CD1B8C246FFFE51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80DFE9F37C8AF250B0DBFFDE5E13A13CC6387520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Metheora - Голоса (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:6F1D81AEC3BC3F33DCA11235CAF56DB25D8A7BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Deftones - Ohms (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal
 ```bash
 magnet:?xt=urn:btih:C03D5BC55FB984B9A0023DA61A5E6DA8062904D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Matthew Lee родился в Пезаро (Италия) 6 января 1982 г
 ```bash
 magnet:?xt=urn:btih:90FF4423BDBE0158AC39D610EA7DC3911C830B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Mad Max - Stormchild Rising (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Ha
 ```bash
 magnet:?xt=urn:btih:A883FD4BAA2DAC6F53926829410C4A6A22E5DD1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Metallica - The Woodstock Sessions (Live'99) (2020) [MP3|320 Kbps] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:6166D1D0350B8AF88E03D37475EBC9ADECB34107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ Bismut - Retrocausality (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic desert
 ```bash
 magnet:?xt=urn:btih:8A275AD1745B1FF4BC064A37FCA445E9D55085B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ Echo Kid by Dead Earthlings. From the debut album Dead Earthlings available on a
 ```bash
 magnet:?xt=urn:btih:7D15591536F3C93AFBF905E225FD3FB185B6D66C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ Nasty - Realigion (2017) [FLAC|Lossless|WEB-DL|tracks] <Belgium  Beatdown Hardco
 ```bash
 magnet:?xt=urn:btih:1164AC64884D982872877FAC94B775DA9E62E4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ UADA - Djinn (2020) [MP3|320 Kbps] <Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:D43CE5803577937CCE3F6B0DB751626D713E077F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +446,7 @@ RUMOURS - Neither Innocent nor Wavering (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:038FF1F8169A9A8E4A5517496C8C761307F2DEA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:A3B4DB7CD58130AA65DD8D8FFC712B8E2E757ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +502,7 @@ Svalbard - When I Die, Will I Get Better? (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:B838E7916BB79FF8301DD39A9ED9EBBF96912F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ Yuri Gagarin - The Outskirts Of Reality (2020) [FLAC|Lossless|tracks + .cue] <Ps
 ```bash
 magnet:?xt=urn:btih:50DACDE09370DC76CF7AC22408F4F30AC4239D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ Just Before Dawn - An Army at Dawn (2020) [MP3|320 Kbps] <Old School Death Metal
 ```bash
 magnet:?xt=urn:btih:69861605E6703C237EEA3EB349F386F6615BCB0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

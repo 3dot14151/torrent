@@ -19,8 +19,7 @@ Beginning 3D Game Development with Unity идеально подходит дл�
 ```bash
 magnet:?xt=urn:btih:E12FB10EBF8B6420DC0DE67396E1E6BDB941A40F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

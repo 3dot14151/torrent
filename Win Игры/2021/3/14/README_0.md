@@ -19,8 +19,7 @@ Vampire: The Masquerade - Coteries of New York – это визуальная �
 ```bash
 magnet:?xt=urn:btih:34BA323B2B999D73D83FDC1DCD3807C3410593E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Atelier Ryza: Ever Darkness & the Secret Hideout (2019) [Multi] (1.08/dlc) Repac
 ```bash
 magnet:?xt=urn:btih:A9A901B80EDE49F0FDAB56E08779775B264D4A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

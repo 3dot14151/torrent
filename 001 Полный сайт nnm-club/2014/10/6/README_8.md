@@ -18,8 +18,7 @@ Forza Horizon 2 [Rus] (2014) [XBOX 360] (16537) [Freeboot]
 ```bash
 magnet:?xt=urn:btih:2DC3311467CAB184DED415BB5F8AB10BAFFAE8D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ God of War: Ascension – новая игра в знаменитой серии
 ```bash
 magnet:?xt=urn:btih:183CE896FC84A3EB20C4E2C4703EED919C344353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ AutoCAD Architecture – это AutoCAD для архитекторов. Спе�
 ```bash
 magnet:?xt=urn:btih:831A36ED19C77A9618FB1C599D8B7F13300AD3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Adobe Premiere Pro CC 2014 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:A8C1E6F18C16B18E8341676403A8FA1B6CD8B2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ M3: Sono Kuroki Hagane / M3: The Dark Metal / М3: Черный металл [20
 ```bash
 magnet:?xt=urn:btih:89DAFE2E087C8528554A823A640D397302D8F2DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F73CBE9CDD95484F95CF1FD070C42B8C9C01ECE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ V-Ray — мощный инструмент визуализации, подде
 ```bash
 magnet:?xt=urn:btih:621608B576D2D1C286EDFCC32C08CD8D3987CE4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CC43A3F3D8E218D0250F4B79F151F1DC9D58D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ The Wolf Among Us станет приквелом к комиксу Fables (ко
 ```bash
 magnet:?xt=urn:btih:75F23FBDD193909AD046136D3D2372984E5EB74A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ WPI x86-x64 by OVGorskiy® 09.2014 1DVD (32/64 bit) [Ru]
 ```bash
 magnet:?xt=urn:btih:4978087668C7F26CC9F9582BD01DC05452BACE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Dark Souls II привносит традиционный для серии вы
 ```bash
 magnet:?xt=urn:btih:899D84EA74E9D76AF247442EA979064ACD3B6C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 ```bash
 magnet:?xt=urn:btih:FFF884C3E24674AE6350962902C3E2001E474CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

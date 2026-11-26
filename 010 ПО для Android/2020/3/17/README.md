@@ -19,8 +19,7 @@ Piano Companion PRO: аккорды / Piano Chords, Scales, Progression Companio
 ```bash
 magnet:?xt=urn:btih:C68D4171A6E2FDD8E8C843CF1EA15F947E87795C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E34C3A8094C50A7386059E6CAD12AA65F53FE9C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

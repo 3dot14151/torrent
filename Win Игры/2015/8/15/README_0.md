@@ -19,8 +19,7 @@ Haunted Train 2: Frozen in Time / Поезд привидений 2: Замор�
 ```bash
 magnet:?xt=urn:btih:C7F77CEF43F444C3ABA0748B94235CF88823F72D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Attrition Nuclear Domination (2015) [En] (5.0.2.721524) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2CDFB3B406EB1904B08079B1EEA30D7562C61BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Royal Bounty HD - приятный подарок для поклонников 
 ```bash
 magnet:?xt=urn:btih:276930BC8B5012383B219317BB5D5FDCB2B956F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fairy Fencer F (2015) [En] (1.0/dlc/u2) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:5C01767C9F8D372774189BB0B87342865CA3B2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pike and Shot Campaigns 1494-1698 - ожидаемое расширение дл
 ```bash
 magnet:?xt=urn:btih:554EF53BE2E36E47E5B61A6E5821463A0953D051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

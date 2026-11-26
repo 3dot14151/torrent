@@ -22,8 +22,7 @@ The Ugly - Thanatology (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:7468EFECF369CE1781A66E55E2447B86966853D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Makeout - The Good Life (2017) [FLAC|Lossless|tracks + .cue] <Pop Punk, Pop Rock
 ```bash
 magnet:?xt=urn:btih:6A5BA2D1D4753CC751C019544E832F2AB7703D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

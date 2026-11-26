@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:82A329F359CC2C754B4A55B2BE28ADF70D781CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jack White - Frozen Charlotte (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie 
 ```bash
 magnet:?xt=urn:btih:FDB057423FFEF889EE877E312D9BEBD9AEF0F837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

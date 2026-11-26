@@ -22,8 +22,7 @@ Blasphemous 1.0.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:BA9ACDE0ED30A0DBA2BDDCA2F3EAFFE61C319450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

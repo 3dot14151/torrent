@@ -22,8 +22,7 @@ Zarpa - Imperia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9A37B13F448AFCFAA6E788A57104D529C5AEC55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Zarpa - El Loco (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5BDE2E34E0D3FF645D3AC0812864E0D1C59E97E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Terry Brock - Diamond Blue (2010) [FLAC|Lossless|image + .cue] <Melodic Rock, AO
 ```bash
 magnet:?xt=urn:btih:853FC67183CBA9BDD2F0115757E915C06DEC4482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wizard — пауэр-метал-группа из Германии, сформ�
 ```bash
 magnet:?xt=urn:btih:A8BF40F740E60C26397B5DEAD14902995951D84C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Wanka - The Orange Album (1977) LP [MP3|320 Kbps] <Hard Rock, Prog Rock>
 ```bash
 magnet:?xt=urn:btih:D4F582D75E4F4C51856D20D0DC8F0381C22D932C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bewitcher - Under The Witching Cross (2019) [FLAC|Lossless|WEB-DL] <Blackened Sp
 ```bash
 magnet:?xt=urn:btih:2A06DA6BAE6E022B8623D907A877768B1540BCC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Orden Ogan - 7 Studio Albums (2008-2021) 8xCD [FLAC|Lossless|image + .cue] <Powe
 ```bash
 magnet:?xt=urn:btih:E471D124F8896EEFA38E9FF612C5470FF2E07A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ VA - Original Rock Anthems (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:86727DA6611332CBAEEB480BA90DCE993E1E0C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

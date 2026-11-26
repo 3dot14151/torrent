@@ -19,8 +19,7 @@ Zork, как много в этом звуке ... Говорите, никог�
 ```bash
 magnet:?xt=urn:btih:DC6722598F4D5D1E189DDE1F7BBBDB219579A483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:C61FB5ACC4BA128DA7D6A6B453AC8A49CA8BE94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. 
 ```bash
 magnet:?xt=urn:btih:5B352342564DDAEFBB31EE58647C1331CCB9ECB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DesktopSnowOK 6.22 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7AA398CEB7F4E981972FAD0166D665CD14B78F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:779D7BC814B6EA336DB7AFF3ECA588030FA51F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Feeder - это полнофункциональное приложение дл
 ```bash
 magnet:?xt=urn:btih:B002AC5FBDFF48A745DFF8A2A78C6FA326C1E95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:F36C60078E2D62235744FD1DAF7DDF7B5710877B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:317EDB78030D3EC8D4A093AA51DE0ADB1BB5F07B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8904E7265B7B2F6F923F901EBF07D6CFD5F1F971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ The Crawling - All of This for Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 ```bash
 magnet:?xt=urn:btih:CAFB587AD8D085CA94F190CD792AE79EE83E9FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ A4 Wake Me(   Читать дальше...   )Жанр: Hard Rock, Classic Rock�
 ```bash
 magnet:?xt=urn:btih:23F2395F15CECEDD3EC5C0D21159D9AC9E6F83E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:836A2B2D98CDC2C6FA8E704AC6E76BA33177E293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFCB5B7A8F11558C085835231586024BE7CFD6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DE3ECC19F19A89ABF54353CAF70AE242F6C57F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5533D6810C0D3255928B2D7BBC197866444DC024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21CBD27705B1A496AD739425A278EA9CD57ECFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:F93F1463D881D8BBB124D5F742B3877C1CFC73E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:1650B1F9B4AFB083D2E522ACD6845D38AE897BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ Azula Queen Quartet - Blues Sem Fronteiras (2023) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:8FA5B3432E2BAE94284DEC7E4986D15225A90185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ AutoHideDesktopIcons - небольшая и простая в использо�
 ```bash
 magnet:?xt=urn:btih:7355FC94669725FBB3B7FC4297363E6C2EE641A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:150F40B85DC5CF35F11DCFBFE0E0FD682C573937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ Haggard — немецкий музыкальный проект, исполня
 ```bash
 magnet:?xt=urn:btih:797F95D5B116B6390A84A57163CE1955E99D3179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Dynamic Wallpaper Engine позволяет использовать живые 
 ```bash
 magnet:?xt=urn:btih:A48271CFCE583DD542F759E5562AA0553B503F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:086BE825B1A48555BC6C0CC66B24834CB0220949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ SyncBird Pro - это файловый менеджер iPhone, который �
 ```bash
 magnet:?xt=urn:btih:EA2E5FB1F1D25AC2955DBC0A29E48A9C8D7F0B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ Richard Wilson - Promised Land (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:2D19B04FA39CA54AC55634BA3F17425E3ABA35FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +667,7 @@ The Hurricane Party - Cat. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:8FF31F86211BA7F044CFF4E4DA956F276247D24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

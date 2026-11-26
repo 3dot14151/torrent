@@ -19,8 +19,7 @@ Myths of the World: Chinese Healer Collector's Edition / Мифы Народов
 ```bash
 magnet:?xt=urn:btih:1EDA6BF48E2288CE04F280AF7837B2F84ED73082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Maw - настоящее увлекательное приключение �
 ```bash
 magnet:?xt=urn:btih:D2AC80506F6E14157CC42D544059AD07EC8267EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Narco Terror (2013) [Ru/Multi] (1.0) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:02FA1A21248CC9EDD5AFEDE3F9494C50473CAC7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

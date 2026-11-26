@@ -22,8 +22,7 @@ Armored Saint - Emotion Factory Reset (2026) [FLAC 24/48|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:884D41CB643492DC1C2CBE74CB795FDE344BC9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Yungblud - Idols Complete (2026) [FLAC|Lossless|image + .cue] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:CF09C569F84801396E15FF6D602E586594D026B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:4389E3EE036118F51B208D2A71974BF02189BA28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ An Abstract Illusion - The Sleeping City (2025) [FLAC|Lossless|image + .cue] <Pr
 ```bash
 magnet:?xt=urn:btih:04C029FEE06A837A5C81F990004A8126A73F2414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Glen Burtnick - 3 Albums (1986-1996) [FLAC|Lossless|image + .cue, tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:B7907F58DF9B9B8828BE197683F7408DC92D2645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dimmu Borgir - Grand Serpent Rising (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:6BF8172491E4DC578027E52558B9D947ECC7199D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

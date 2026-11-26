@@ -18,8 +18,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Photogrammetry Course: Photorea
 ```bash
 magnet:?xt=urn:btih:BA59661CD8513A8D41EA8484286272D30F808E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Travelers Refrain (2025) [En] (04) License GOG
 ```bash
 magnet:?xt=urn:btih:2C574AAFEDB7A49B45505EA4D23EE6897A045198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Viking Frontiers (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E46DDFD2E7FB672F7729E57058CEA505A3635867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Artstation Learning, Javier Perez | Creating a Modular Sci-Fi Environment Using 
 ```bash
 magnet:?xt=urn:btih:6047A795EC3B7ED0806D19897CC4017DA29849B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:D05264550C229B60FD64F90021F7C928A994A8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADF2D3ADE02518472EBECEF32EB048D3F8F0333B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C77A5820EA4FF4F432FD4B184CDFA059B62FD96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3415412EF8402588E4882A837E2ABEAB762A740D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7C732C55C6A14005A9DD795DE6CA6D34440D181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 ```bash
 magnet:?xt=urn:btih:A43F0CF74D8B0B3B4F8A1B560CFED86FA94B6643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D80514BEB3A04EB8606B98A6CB32F5421F3797F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Adobe Photoshop Lightroom Classic 2025 14.3.0.8 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E7969BEDB5CDB0BE8D4176CC0C1F11E36BA412A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6A55A5E720566DAA086060EA8899E9672DD9A49A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.8) License GOG
 ```bash
 magnet:?xt=urn:btih:689844B8B920170FFDE18ADF3096645FD2E3DD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76D29C9702675036354987B3294DD992B3F4B683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ The Last Man Survivor - мрачный roguelike, в котором вам пр�
 ```bash
 magnet:?xt=urn:btih:A3F1E977857A614C3F44A1D42E965AA7CC81DCFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 ```bash
 magnet:?xt=urn:btih:FA5CBFCA83F80CA010DA634420052507DADD00DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4A41C23D80721E1B7F2BE2FECA0154165729C8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 ```bash
 magnet:?xt=urn:btih:57FEDE632A4D7E338B572F7FD6E9AAA8D29FE72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10060F0C359D9D344851D9224E4FABC77E01C117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +548,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (242) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3CD4018BB053CE322E7908C224FA8481674963F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C267E4B5DD3FEE65C12BA0759E90FD75961400EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +599,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.9.200 Gol
 ```bash
 magnet:?xt=urn:btih:454B5674E32E521C0C36C15935538E3A5A878EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08A6EA9E189267983C6C95F15901C386E000ED72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED1FEA48E0084E5DB27A3978F0BF2AF9BB942588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

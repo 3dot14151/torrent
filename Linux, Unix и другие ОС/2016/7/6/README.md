@@ -19,8 +19,7 @@ Remix OS - дистрибутив Linux, который позволяет ус�
 ```bash
 magnet:?xt=urn:btih:4122A0E5AAFB2445960CB30E58FCF34FF0E0B31B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Peter Royal | Building Modern Business Applications (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:4E513004599AF3E5A1DB2C35C62A9470F24AE7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Patrick Hall, James Curtis | Machine Learning for High-Risk Applications (2023) 
 ```bash
 magnet:?xt=urn:btih:25F7DF4A6C84C5ED03009C02CE43754D221A9A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Joshua M Willman | Beginning PyQt, 2nd Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F03820A8DA3862CA398323F3F57109FD2E2E8426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pedro Igor Silva | Keycloak – Identity and Access Management for Modern Applic
 ```bash
 magnet:?xt=urn:btih:2ADA4E0EDBFEBE9224832D64AD1F15EAB1D5E946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Sufyan bin Uzayr | Mastering SQL: A Beginner’s Guide (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:14DCC4FC2B7C4BB11C074AA1F469A800B28C699E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Python - бесплатный, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:6B9B32583578E4A596E56782F973E86009B20F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Shing Lyu, Andrew Rzeznik | Practical Rust Projects, 2nd Edition (2023) [PDF][EN
 ```bash
 magnet:?xt=urn:btih:52976C819F190DBA46E9E89EC7DD62E8CE97DE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ JavaScript, безусловно, является одним из наибол�
 ```bash
 magnet:?xt=urn:btih:6DD7DFEA1FAFF46B2FC08C71AEA2CEB5910C1C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DE325F0C0C817F19226561F5F9062F02E83847F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

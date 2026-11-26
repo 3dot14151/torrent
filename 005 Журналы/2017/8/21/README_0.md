@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0A4A3ED78F2A667BE8B9D43E60A431B0A7094327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8A922A4E3DA2F4D675E44D03CA8CA67DCDA86B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ UPgrade – журнал о компьютерах и компьютерных �
 ```bash
 magnet:?xt=urn:btih:10097AF5094BDA2CA346071D0E4D088539A05E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

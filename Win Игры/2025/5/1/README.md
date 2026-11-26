@@ -19,8 +19,7 @@ KIBORG (2025) [Ru/Multi] (202.50.4 30:1:50) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:989F91ABC71403207AE134C12ABB346574976393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.7.1_15_e769f28c) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DF5C68374B6593F6AAB7AAD1E5FCDF958F1D3AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Raft: The Final Chapter (2018) [Ru/Multi] (1.1.03 Beta/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:301902B58DCA6EA0CFF7CBED099E406E882DD994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.65p2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3502E4E61EAD7A4309555DB32EEE9B1116F4207B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1a) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:57C0BEA866900ED85090CBB24FE275E361883E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dinkum (2022) [Ru/Multi] (1.0.0) Repack FitGirl [Official Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:1475C79CF9E58F11FB5BFE1D3D023C4A77B9AF22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3CE5F7D51468F2FA3EDDA0333ADE4A5A49401326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

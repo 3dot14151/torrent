@@ -19,8 +19,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:4336F9773AEA09C6C6D9BC10F0DC782B7DAE22E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:CB098A0668784BC58FA94056EEA56E5E039BD681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:483AFC54C2EEBF6D78071ACC2426FE95844AD7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:8152660009BFC36DE8AC3ABDED5FA4415E3F2D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ DesktopOK - это небольшое, но эффективное решени�
 ```bash
 magnet:?xt=urn:btih:DD6FE270B55BE504841E63724869A4F7406949CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:8488B673E6FF1E38D5B82E1CF80DFCEF0C96530D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ WindowManager - программа от разработчиков EarthView и 
 ```bash
 magnet:?xt=urn:btih:BFD26640270B6114F813368C2B64F6CEBFD8F627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:4FE5C2CBCD3538CA957DC4B6D8435187D8ED47E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ CSoftLab Advanced Diary 9.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:27CC2B68B57EC3E351AC384B577D908F1021652C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:4B934FA6B780D7177E297044BE5A36E54AE2D0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:452ED00E6ECC3571CCF31BFFCC552C5994BE290B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Syncovery Premium 11.14.4 build 185 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:69F2EC71E4BF43888161D63B631EF9A4EF1111D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ AppControl — приложение, представляющее собой д�
 ```bash
 magnet:?xt=urn:btih:CFB4A1A43ED9C67549EE7327D1335B65F05D6CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Fences упорядочивает рабочий стол, размещая пр
 ```bash
 magnet:?xt=urn:btih:8EF6300474A353D149B39FC625E21EAE5DB15230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Kalmuri не имеет встроенного редактора изображ
 ```bash
 magnet:?xt=urn:btih:8CCDD8C38A28E5BD3247D22307E509D91C8B594C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Vivaldi 7.9.3970.55 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:29700A4F843F873F8EB7B9AB203C97786AD3527C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Opera One 130.0.5847.41 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5D594C239EACF82FF78E90486CA6B323E9FBC9A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12E92E98EE67D9EF565D32F8BE99FD0F07ED6ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:13966C6E94E094009AA790528AF99969C921A725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ Bandizip — программа для работы с архивами. Дан�
 ```bash
 magnet:?xt=urn:btih:2E49FE7361268CE3E87E2CE382DD292A9032F762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08591C3D977B3856C34B6E68E0CFF94F7752E96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ Any Video Downloader Pro - это приложение для Windows, помо�
 ```bash
 magnet:?xt=urn:btih:9FF40C86798D33AA0E028F28893944828C7E8630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

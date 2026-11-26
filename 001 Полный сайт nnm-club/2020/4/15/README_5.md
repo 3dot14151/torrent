@@ -18,8 +18,7 @@ Windows 8.1 20in1 (x86/x64) by Eagle123 (04.2020) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B587B6B3DAAAC26CCA6F93D43E033915295D9BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC2381DC1909E62C8B4D126BCB7EA950A88F32EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EF70BEE32FBEB5764A206A52FC92BBDA5F62BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ After Effects — это ведущая в отрасли программа д�
 ```bash
 magnet:?xt=urn:btih:067690F77A74FA94EC97CB88FEE85C0EF4D2D573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Sousei no Onmyouji | Две звезды оммёдзи [2016, TV, 50 из 50] B
 ```bash
 magnet:?xt=urn:btih:639EACF400DC8C4992883C923A7CE7D1434C2C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Adobe Premiere Pro 2020 - профессиональная программа д
 ```bash
 magnet:?xt=urn:btih:7D2D02CCBE1A9BD8E052299EAF50EEA87D934CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC90C0F688FCDFB6836DD132EB1D7F6E6419F670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:480267F5F7FBBD85B21C25EA798A1DDABD846BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ SpeedTest Net Premium 4.5.4 [Ru] - Проверки скорости соеди�
 ```bash
 magnet:?xt=urn:btih:3BB6F17405B1A9516B947D36D093339A5B00C262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0951BDC46A8355D2FC439A0385840D7F780C7A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Dead or Alive 6 - это новейший зрелищный трёхмерны�
 ```bash
 magnet:?xt=urn:btih:1131D60AF55F9820E5FAD1DFA7EFF79FB228AE98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ GRID — это уникальная гоночная игра. Неповтор
 ```bash
 magnet:?xt=urn:btih:A9F47B2A75A8F3B17FA3AEEFB5A8164748AD3BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

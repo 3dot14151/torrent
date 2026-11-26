@@ -20,8 +20,7 @@ Secret Files 3 [Ru] (v.1.0) 2012 | Questomafia Team
 ```bash
 magnet:?xt=urn:btih:0F619DBBB653831860D3DC8E973490B50EA71B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Haunted Halls 3: Revenge of Doctor Blackmore. Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:AD2906B4FDFC6F723203EC783BA242FD9670E5C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.0) 2012 | Audioslave
 ```bash
 magnet:?xt=urn:btih:E144A09BB2B0553BB542AE3BB5F48AC702FD98FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Sticky Linky / Стики Линки [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:2CFE9EB8EEE55E387A54B6CB85A75E80558A1814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Iron Brigade [Ru] (RePack/1.0u1) 2012 l Fenixx
 ```bash
 magnet:?xt=urn:btih:52894050A7C056659974794BC7393C83FBF1ACCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Black Mesa (Русификатор) [Ru] 2012 | mexahuk61 и Ко
 ```bash
 magnet:?xt=urn:btih:5245004F4B02B014F20ECE74E0FFD01D3695BA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

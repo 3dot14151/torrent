@@ -28,8 +28,7 @@ The Beach Boys - That's Why God Made The Radio (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:44686FDB78CDCD10AB9D191BA21C0BFD54C691C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Delain - We Are The Others (2012) Deluxe Edition [MP3|320 кб/с]<Symphonic Met
 ```bash
 magnet:?xt=urn:btih:50F6FD0B88CB7A0A5F9E5D3252729DADC54B72BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Riverside (+ Lunatic Soul) - 13 albums (2004-2011) [FLAC|Lossless] <Progressive 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E51D09B539D99AA914146DE943F84F31E5726783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Jack White - Blunderbuss (2012) Japanese Edition [FLAC|Lossless]<Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

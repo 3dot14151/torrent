@@ -19,8 +19,7 @@ Elastica - Дискография (1995-2001) [MP3|320 kbps]<Alternative Rock/Pu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

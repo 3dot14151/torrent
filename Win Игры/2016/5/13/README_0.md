@@ -19,8 +19,7 @@ The Curio Society 2: New Order (2016) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:C891DA2088FCC482CFC3B007523BB7A3F673F89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Green Moon 2: Children of the Moon (2016) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:924395245E23C46B1738646DECD2A19EB345A539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Chicku (2016) [En] (1.05) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C99C2D047EF4EA3EF91301A52D046204D17D9995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

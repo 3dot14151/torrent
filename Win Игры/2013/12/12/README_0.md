@@ -19,8 +19,7 @@ Dream Hills: Captured Magic (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E022B79C68539DDD5702B11F2A6C36727BDE61CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spirits of Mystery 4: The Silver Arrow. Collectors Edition (2013) [En] Unofficia
 ```bash
 magnet:?xt=urn:btih:5D6C921F8A4BDC3A980CFC4032FFD560367C5116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5846B52144FC7536978543EC566E6B934CF7008D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Death Track: Resurrection (2008) [Ru/En] (1.2) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:EE5C6C6A59FE9A502C1FB4842234F10D687B6363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Zombie Tycoon 2: Brainhov's Revenge (2013) [Ru/En] (1.0) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:8D58A54B444D51C47A7A25061AA6B830E992554F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Resident Evil: Operation Raccoon City — классический шутер о
 ```bash
 magnet:?xt=urn:btih:CA18647CE0F3C9877D3EE139C9C8B14931935F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Memoria (2013) [Ru/En] (1.1.4.0336) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:988EC8860A8F15CB960FEA8A8ED7F2E826F4234F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Phantasmat 9: Insidious Dreams / Фантазмат 9: Коварные виде
 ```bash
 magnet:?xt=urn:btih:AF5497270D61E56B5382B185CCCD4204EF897BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bomber Crew (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:26B42CA8D08E83D2320A8BD0C4237D8D54FDD67A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nioh: Complete Edition — полное издание приключенчес�
 ```bash
 magnet:?xt=urn:btih:B941024EB3A9B8D735EC88DE55F0F9ACD332072F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ World of Final Fantasy (2017) [Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4358472D8EBAAB47AA696B6FE31AA6FE55FBDFD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

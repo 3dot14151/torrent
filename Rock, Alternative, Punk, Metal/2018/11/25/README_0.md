@@ -22,8 +22,7 @@ Antiquus Scriptum - Immortalis Factus (2008) [FLAC|Lossless|image + .cue] <Symph
 ```bash
 magnet:?xt=urn:btih:42629B589E6A180817A953CA5795BFB361B6D6DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Death - For The Whole World To See (1975) Reissue, 2009, Drag City [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:63F5A8855C8694ADE9BB5C29EFAF478EBC36211C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Second Coming
 ```bash
 magnet:?xt=urn:btih:CB6CF8A913470AC93F9184DC5FA3BCB641044C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Docker's Guild - The Heisenberg Diaries Book A: Sounds Of Future Past (2015) [FL
 ```bash
 magnet:?xt=urn:btih:7A7D55438E24635C579D66AE010BAC44CAEFBCF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Children Of Nuggets - Original Artyfacts From The Second Psychedelic Era 19
 ```bash
 magnet:?xt=urn:btih:B1E69B013D141A9B3F5827C7CEE474CD46A10024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Docker's Guild - The Mystic Technocracy - Season 1: The Age Of Ignorance (2012) 
 ```bash
 magnet:?xt=urn:btih:9A66C3AA510422D491683B24D370E146BBC671C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:FE7A25DE8D6FDDCB8732884D85F44ABCB3E8D50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Virgin Steele - The Book of Burning (2018) [MP3|320 Kbps] <Heavy Metal, Power Me
 ```bash
 magnet:?xt=urn:btih:792E3925DEF17598CB193E6EA7435192DAD993C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Khymera - The Greatest Wonder (2008) [FLAC|Lossless|image+ .cue]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:33D0CDBD7839FDDF5E00A4B485C7EE320FA703FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The Beatles - 9 CD (1963-1979) Remaster / Toshiba EMI Ltd./ [WavPack|Lossless]<B
 ```bash
 magnet:?xt=urn:btih:43E74D40B878EFBFA301B0540A041EEA4C6B4A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

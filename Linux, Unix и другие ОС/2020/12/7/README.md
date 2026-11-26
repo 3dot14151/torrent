@@ -21,8 +21,7 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [i386] 4xDVD
 ```bash
 magnet:?xt=urn:btih:C1A3A4940F916DC4E504751543DD3C9F00030CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:8B9031B8B34BC29983163B1356816B3905BDB883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:ED9FF2508F0E5598A7B0DFB2785D2712D8D66754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

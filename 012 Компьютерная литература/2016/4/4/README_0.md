@@ -19,8 +19,7 @@ Windows 10 сочетает в себе все лучшее, что было в 
 ```bash
 magnet:?xt=urn:btih:FF482E163D2929D535D3A65875BCCC98397D40C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:307E0D64071E007849652752BF431E1C4FB7CD48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ JavaScript - основной инструмент веб-разработчик
 ```bash
 magnet:?xt=urn:btih:634D6BC4AFABEBD4A3E098F62665C537C690648E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

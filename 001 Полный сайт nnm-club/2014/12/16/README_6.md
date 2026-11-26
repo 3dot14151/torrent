@@ -18,8 +18,7 @@ Aion - это MMORPG которая вобрала всё лучшее от та
 ```bash
 magnet:?xt=urn:btih:6141223E4B7A68D9A14CA741D1C2B79E55C654B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

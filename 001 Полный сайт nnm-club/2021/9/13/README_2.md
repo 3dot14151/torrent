@@ -18,8 +18,7 @@ XXIII век. В таинственных и малоизведанных глу
 ```bash
 magnet:?xt=urn:btih:9EF1C808CD8E17E8A319191AA7C87320C52D43AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA530B74994C9D40C9F37012F21C673EA154B89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ RPG о выживании в городе. Человечество порази
 ```bash
 magnet:?xt=urn:btih:7AA101640C53BED50F14E16D24A7A2327338BAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ ItGid, Александр Лущенко | HTML для JavaScript разрабо
 ```bash
 magnet:?xt=urn:btih:4CDA270D5058670CD2990DD747770ECC14BB7CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Zorin OS - дистрибутив на базе Ubuntu, разработанны
 ```bash
 magnet:?xt=urn:btih:0A40AA72000D4891B68C0EBB9FF1624927118154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BAAC1728CD7775FDF514235CD38BB64AE773B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ kondratiki | Абсолютный ZBrush курс ZBrush-1 (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:CA8FAB147C3F247F19F2C3473A77D1EA645E3C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61E8446CDEB8A3FE151E50310D05F2E6D8C4F009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Tales of Arise (2021) [Ru/Multi] (7034068/dlc) License Fairlight
 ```bash
 magnet:?xt=urn:btih:D3258B8CF96610D796602AA6C490C25996EEA730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ GoodbyeDPI.0.1.6. Launcher-4.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:930895447F4EA1ED37B93DDB0DA30BC10E11B114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ ViNTERA.TV v3.1.457 [Ru/En] - просмотр сотен телевизионн
 ```bash
 magnet:?xt=urn:btih:415FFDB858F45CA9E688A17D462B01B55F7D83D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Police - Synchronicity (1983) 6CD Super Deluxe Edition, 2024, UMC (Universal
 ```bash
 magnet:?xt=urn:btih:041B796015591AFB5DA82AE13B2B26E4CDF4BE00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CAGMO - Симфония Король и Шут (2024) [MP3|320 Kbps] <Symphonic
 ```bash
 magnet:?xt=urn:btih:DF1E6B8BF5203D33095607E4979F07697A2B6B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dmitry Spirin (ex-Тараканы) - Чем кончается родина (20
 ```bash
 magnet:?xt=urn:btih:361CCB5FF3A1EB02F3EA63C77AC4509447FA3955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Beasto Blanco - Kinetica (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Hard 
 ```bash
 magnet:?xt=urn:btih:A880A3B394B8F3995410152199A3FB28959F2A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EB62BB06BB4213DD1233E53D8A7D4F22BEB0AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Crawlers - The Mess We Seem To Make (2024) [FLAC|Lossless|tracks + .cue] <Indie 
 ```bash
 magnet:?xt=urn:btih:F879A5F33FBA0765AEED342320BA59D8B9F524A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1B888B65B05CA4C81C82DDE2A71461F8291994C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Keys - The Grand Seduction (2024) [MP3|320 Kbps] <Melodic Rock, Prog Rock>
 ```bash
 magnet:?xt=urn:btih:232F1ED48642285F21FDDA7BDD7FABE91224AF73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

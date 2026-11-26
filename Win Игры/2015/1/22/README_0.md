@@ -19,8 +19,7 @@ Phantasmat 3: The Endless Night / Фантазмат 3: Бесконечная �
 ```bash
 magnet:?xt=urn:btih:5A385BC50091D5D791EB4387F0E41F830B636973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assetto Corsa [Patch] (2015) (1.0.2) Official CODEX
 ```bash
 magnet:?xt=urn:btih:F33B2201A7FA5652F1B4FDDDCE0FE7844CDAADE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Silence of the Sleep – приключенческий психологичес
 ```bash
 magnet:?xt=urn:btih:11E9FB3CA9F98F86648E58DB90E6752829520922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Deadlight (2012) [Ru/Multi] (1.0.9249.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:9B73FA34A30C4D0DC43AF916B5DB8E6F016AB522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

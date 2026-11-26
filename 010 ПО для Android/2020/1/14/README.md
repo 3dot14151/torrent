@@ -19,8 +19,7 @@ VK Coffee - Модификация официального клиента ВК.
 ```bash
 magnet:?xt=urn:btih:E199E59803AACFF43FFCD2365B5D4EF9A740A20D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

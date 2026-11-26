@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CBA7A80F0D2EDB7CC2179CF9F7D97BF76C78F5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Media Player Classic - Black Edition (MPC-BE) – универсальный п�
 ```bash
 magnet:?xt=urn:btih:3BBE677EEA9F23DA3BC161880225427AFB840926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Strawberry - музыкальный плеер и органайзер музы�
 ```bash
 magnet:?xt=urn:btih:0F6F665DA9755EF4A915ABB7B851AD2799386059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Pepakura Designer 5.0.14 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:33C45885002985ED0441B424A964851CC208998A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B3EBCB55D5B0DA19D8CF9F1AF475C99E68F7188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:39C30BE1F3FBF3145040D2763540A4DF34E498FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Stellarium – бесплатный эмулятор звездного неба
 ```bash
 magnet:?xt=urn:btih:63F796A26179F86F2C46FF4A9F6EF15FF8F19743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:251D91BF1493B8B4C771564A710BFF219D2FC0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F84C014C200FE126C057AC1D93EE63167AA383DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Mirillis Action! 4.34.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:157B420A1488B952D674BC6FED035FC32E366118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F60B18B7A2F03AA9D72563C425E1C267815A4F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01D4443A65D31C58B871C920150D59E4AD77BED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Text Editor Pro 27.3.0 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9EEDB048C41D24DECCF3F5BDA1DB94610380F9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Ghost Buster Pro находит и удаляет файлы из приложе
 ```bash
 magnet:?xt=urn:btih:B52DDD5D465B24064FA1BBC1DABA3EA0A0CB379B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE1E59F646CD00467C358E55F779B183A8BFD103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:8AF16DDED47D9B66438C4823CB891FBB4216EDAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FED9DE81CD9348889FDFE3F1CA937C6044E96E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:BF33C9FF978209D1F64ED521FEC136185A77DDFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C941BE6846377C77680575B00EB18ED628687CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ X Icon Changer - отличный проект по персонализации
 ```bash
 magnet:?xt=urn:btih:CADC4B4B8DEBC59DB1A3920B0958991D0F79750B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:A0F75B73F6EA7DFCCFC60B822F1BAD694B33EABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC49CA2413FC43B4C427B3BF0063F0BE6AE3146B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C735D6E5B736E8545910E43B092EF77839A27B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ Revo Uninstaller Pro 5.1.7 Portable by FC Portables [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:59C0340D759DE0DA7B638F23A5A8627B93EE3A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ BimmerLink for BMW and MINI - приложение, что пригодится 
 ```bash
 magnet:?xt=urn:btih:2E187693F235D0D852A548639F719936B8468427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ VA - 90s Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:6ACA38234D2D1E01449F9A6F99DD2B50FDC52F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Todd Boston - Alive (2010) [MP3|320 кб/с]<New age, Instrumental, World Fusion
 ```bash
 magnet:?xt=urn:btih:BFB0869318F01CFDE3059352001EA6DAA59F9F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Cancun Summer Party 2014 (Anniversary Edition) [MP3|320 кб/с]<House, Dee
 ```bash
 magnet:?xt=urn:btih:11F6BEFC6ED6D1C6584722292BAF14536ABC1237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Hello Summer 2014 [MP3|320 кб/с]<Lounge, Easy Listening,  Electronic>
 ```bash
 magnet:?xt=urn:btih:83FC57904AD8E8C2674A681DCA82D2AE8F7CF81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Awkword - World View (2014) [MP3|320 кб/с]<Underground Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:86631D63D4AE2905EDDA59E10C011854E268ADDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Drescher - Erntezeit (2014) [MP3|320 кб/с]<Folk/Melodic Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6E6F689F7605D16D9081B90CC1C38ACEBF92CC35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ VA - Клубные Новинки Vol.453 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:A09C12304C1D39F88D7C573C93AC938F62A72148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Buddy - Idle Time (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:5B898E76A1DA450074626447A74560AD71475558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ VA - Hot Dance Summer Vol.5 (2014) [MP3|320 кб/с]<Dance, Club, House, Electro
 ```bash
 magnet:?xt=urn:btih:DF034CAA01C3C230DA09739E95B410FCCD611AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ Shogan - Mind Pulse (2014) [MP3|~256 кб/с (V0)]<Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:1927100CE71A69F17F000A7E7BC81E43644ABE6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EA9B7D29B51D37FE005902A7B002A0BCAA61E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +382,7 @@ VA - Клубные Новинки Vol.452 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:5522AC833A51759199B8362D92268BDA6816D94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +416,7 @@ VA - Клубные Новинки Vol.451 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:4DE4E5F07C251A9DB040BE2134CEC33330015CFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +450,7 @@ VA - Pure Chillz 10 (2014) [MP3|320 кб/с]<Electronic, Ambient, Lounge, ChillO
 ```bash
 magnet:?xt=urn:btih:1589149EE990EE625E3FB8818F82F26E3A67C3F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +476,7 @@ Mournful Congregation - Concrescence Of The Sophia (2014) EP [MP3|320 кб/с]<F
 ```bash
 magnet:?xt=urn:btih:9C534A59635743223B75B438F6F1CD7153129ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +510,7 @@ Young Money - Rise Of An Empire (2014) Deluxe Edition [MP3|320 кб/с]<Rap, Hip
 ```bash
 magnet:?xt=urn:btih:832F17A3EB58EEC39D65BCE39AC824D715C0BD5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +544,7 @@ The Doppelgangaz - Peace Kehd (2014) (Deluxe Edition) [MP3|320 кб/с]<Undergro
 ```bash
 magnet:?xt=urn:btih:0EE96B8C45717EA65CED18329355B995E0F4B294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +578,7 @@ VA - Trance Hits Top 20 2014-07 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:28BDDD81594F43A941DA2956D8F229B0D95BB391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +606,7 @@ VA - Lounge At The Seashore 15 (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:A0237EE36A93FD40D8FE452467D7B8A517F05B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +640,7 @@ Vali - Skogslandskap (2013) [MP3|320 кб/с]<Neofolk, Instrumental>
 ```bash
 magnet:?xt=urn:btih:0B71511C8C3A3F2E6DCE66A75C7D065F5DBE8FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +674,7 @@ VA - Sunset Lounge: 30 Chillin' Lounge Tunes /I-II/ (2012 - 2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:E4CA55076D671773B62608319D72C570F8343EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1F4ABDB3C61E31A1270093F87A4DC60DA0BB690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +733,7 @@ VA - Клубные Новинки Vol.454 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:FCC87563954BD29A53AC0FA785CC65992B99B117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +767,7 @@ Who Knows? - 13 лет 59 мин (2011) [MP3|320 кб/с]<Reggae, Ska, Funk>
 ```bash
 magnet:?xt=urn:btih:52F0D1F44BE1E8A0DD0C339A8C9F271E6A9FA64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -825,8 +801,7 @@ Step Brothers (Alchemist & Evidence) - Lord Steppington (2014) Deluxe Version [M
 ```bash
 magnet:?xt=urn:btih:FA423EEC378D5E77466F124D46BB8940A7505EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -860,8 +835,7 @@ Marchello - The Magic Comes Alive (2012) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FEB1E05FD6FAA75EB74DC7FDEE9AC712E8C6C985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

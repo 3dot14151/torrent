@@ -19,8 +19,7 @@ Linux Format — первый ежемесячный журнал, целико�
 ```bash
 magnet:?xt=urn:btih:835BAEF01C6C30BDBFA0A46173DAEC243A942A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

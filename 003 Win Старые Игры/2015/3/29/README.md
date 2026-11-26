@@ -21,8 +21,7 @@ Red Orchestra: Ostfront 41-45 предоставляет игроку на вы�
 ```bash
 magnet:?xt=urn:btih:2057CA3B4FDD504B4918F85EEC74C0242BE5EEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

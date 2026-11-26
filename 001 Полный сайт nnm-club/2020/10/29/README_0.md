@@ -21,8 +21,7 @@ LIGHTSPEAR - Meteor (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 ```bash
 magnet:?xt=urn:btih:9857AD76607067B9AE0834350A136E13A10FE0A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:B51C565615B1E282532C47E22E29379A252D92AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Rick Miller - Unstuck In Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 ```bash
 magnet:?xt=urn:btih:42573D9D03076B76E37182AE7D3EBC16FBA99CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Be Focused Pro: Сосредоточьтесь на производительн
 ```bash
 magnet:?xt=urn:btih:F2C6ACCC4BDF1A25C44816A082108CD8A3EB01E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1614926D36D685905D85CEEC4894C0F596A3C84B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Christmas 2020 Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Chris
 ```bash
 magnet:?xt=urn:btih:2113136AF159E42FE3AB51C1753E85568A161542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Trojan Killer – представляет собой антивирусный �
 ```bash
 magnet:?xt=urn:btih:E4EE490CFB1DD7860FC5F349C7972FB4425814EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ LIGHTSPEAR - Metro (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Chillwave>
 ```bash
 magnet:?xt=urn:btih:2327E4F3FE3C39E961D7FD2E5EC95CA2448A80A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E87FAC3E064DE9CBDE7EDE94DFEFDA5DD901A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:50AC2A8294EE153F66AA51EE7B7DF93086BAA889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Armored Saint - Punching The Sky (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Heavy 
 ```bash
 magnet:?xt=urn:btih:834A64CC6FCB9DC8424259B772DFFC69F26AEE0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB152EA8AAD1CA93176F0950C84939143482869E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Any Burn - небольшая бесплатная утилита для раб�
 ```bash
 magnet:?xt=urn:btih:4D2817FC58E86B5A66A776D61085BDDAF1346D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5124F32F7EB1D369E36CC23E07E0A029C5C22FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Sketch от Bohemian Coding — один из лучших векторных р
 ```bash
 magnet:?xt=urn:btih:8B00F86F9687A289DE53F7D3B1E5A14864DD17C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2D204A8292A77EC71BA4A65315D621A3BBCEE49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Missio - Discography (2016-2020) 3 Albums, 2 EP's, 14 Singles [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:370F6C3127BCB777419624BC919C643BFC3C6180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B4D0DBD1DAFAFC7794644AE7C7279A0ADD1789A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ SimpleRockets 2 - полностью трехмерный космический
 ```bash
 magnet:?xt=urn:btih:4C73C7E87C240720B1B1666C3B2569FA6D48EBE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ Thin Lizzy - Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:62F3CF28FA0EEA9EC9BCCC4C982612E9126BACDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E130762D63FF9538F76B29CC54E76CAAE7F76A83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ Opera 72.0.3815.186 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:37F437B54F203DACC3AB4EF5D9214EF259784CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 ```bash
 magnet:?xt=urn:btih:ABC9CF55CBCDD20DE4D943623E08E49268C6FDA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97350E087C305F5BAE173877AAD4FCA993330048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ Wise Duplicate Finder помогает найти и удалить дублик
 ```bash
 magnet:?xt=urn:btih:71D3733F83EE47B09177914ADCA05BF52B4C4B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ Hybrid 3.0 - это синтез следующего поколения. Это
 ```bash
 magnet:?xt=urn:btih:C6E7D4F3A75ED8C10844B9A7D9AB412778453025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

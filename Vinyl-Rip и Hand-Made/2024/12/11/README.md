@@ -22,8 +22,7 @@ Jerry Cantrell (Alice in Chains) - Studio Albums (4 releases) (1998-2024) hand m
 ```bash
 magnet:?xt=urn:btih:3D119A60D7A3A103BDF8C22AC66A3ADAC6C7F0A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:A26F7F5A39365D6112E89330E2D35A56B3268FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

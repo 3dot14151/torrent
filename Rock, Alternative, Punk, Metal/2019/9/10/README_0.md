@@ -22,8 +22,7 @@ Inquisicao - Reborn (2010) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Meta
 ```bash
 magnet:?xt=urn:btih:3C290AFDAACE2FED8F34F10ED9C0FD296A63B10D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Psychosis - Complex (1996) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B1C8F3DC317E0657F8C0EAEE6D8A8C387C084E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Messina - Terrortory (1990) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6335379B66A64AFD144F98BCB0EE894EE6D40E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Imminent Sonic Destruction - Recurring Themes (2012) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:624CCDFD0CC47913DF8E12266BF1742AA1D2A92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Allegiance - Vrede (1999) [FLAC|Lossless|image + .cue] <Viking Metal>
 ```bash
 magnet:?xt=urn:btih:6EF5697FB8F1627619590B08C559FD8EE3A5BF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Pyramid - Gold Tooth (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:2ABD00FBB9A1E99AC3FCDBACF1063C34C2251149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ To The Wind
 ```bash
 magnet:?xt=urn:btih:DEA097A00F1E018EBEF69F011FF7DD091D1EC3BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Circus Maximus - Isolated Chapters (2019) EP [MP3|320 Kbps] <Power Metal, Progre
 ```bash
 magnet:?xt=urn:btih:B4491D7B052D58B1A53A1821A6E32B104D0C2F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Turilli / Lione Rhapsody - Zero Gravity (Rebirth and Evolution) (2019) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:E171B99D1F368F717A2E126ADDE07257A453598E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ VA - Без меня. Трибьют Егора Летова (2019) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:94FF77701A66CAF576F683BA91088BFBCD7887B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Cyril - Gone Through Years (2013) [FLAC|Lossless]<Melodic Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:0FDEB552E703321D24503DB3173637D8A620F1CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Dregen - Dregen (2013) [FLAC|Lossless]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:1F3A864157C6E7197DCE6FCE1DC39B44269653B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Perfect Smile - Erase una vez... un cuento al reves (2013) [MP3|320 кб/с]<Pow
 ```bash
 magnet:?xt=urn:btih:344798841083D0549C39EDF15059156CE73827F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ The Sins Of Thy Beloved - 4 альбома /Дискография/ (1997-2000) 
 ```bash
 magnet:?xt=urn:btih:8C6E8848B8939C26105C8D88FEA4E45ACBD9CBA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Wolfheart - Winterborn (2013) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:7EE2FF0CDEE4EBC2591A757056511D5FFFD38562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Xandria - Kill the Sun (2003) [FLAC|Lossless]<Symphonic Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DEA85677DE124A130CFB1D71E6F0DC87D2AFE3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Icon For Hire - Icon for Hire (2013) [FLAC|Lossless]<Alt. Rock | Modern Rock | R
 ```bash
 magnet:?xt=urn:btih:884BFEA34E47010C9FFBAE17FC55A20D2A5DEAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:200078CCB7E656A95AC9E1255DA114E0960E9F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54471AFA6220A2FFEB5438867D6D9B1B103771B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24ED9B4234FCA677A4255F6351603425F56A5A4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:65F168EA3EABF5CB72D4BB65FD0CE033AC48F179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:640A13E44926A97199CB12FA22C3F8BB93E9499F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:499916079555271619D7C6D8258712DE12704A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49BC6D0A8A9CB774FF3258A79361BFD3A4B0ABE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rizzo/Ratliff's highly popular FUNDAMENTALS OF ANATOMY AND PHYSIOLOGY, 5th Editi
 ```bash
 magnet:?xt=urn:btih:BE11D47129594E6C37A9B5EE83A544E48E8288AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ It provides an initial traditional anatomical description of each organ or syste
 ```bash
 magnet:?xt=urn:btih:E62FE877B594A63C69244A19C337D2B6F601142F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ The Archaeology (   Читать дальше...   )Жанр: Энциклоп�
 ```bash
 magnet:?xt=urn:btih:476E1C5EA1EAEF5A369B6F41E6A8D9FE924AF0C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Completely revised and expanded since its French publication, Armoured Trains: A
 ```bash
 magnet:?xt=urn:btih:9B97D81F48B7D348189DE053164E0CC64DD2ADA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

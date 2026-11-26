@@ -19,8 +19,7 @@ Bluebeard's Castle 2: Son of the Heartless / Замок Синей Бороды 
 ```bash
 magnet:?xt=urn:btih:C00712A40963282F4C720C1864F126E202455D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Expedition 18: Neptune's Gift / Секретная экспедиция 1
 ```bash
 magnet:?xt=urn:btih:B9DE71ABDEDBE0BCE958B84D78DC45392B899865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Inuyashiki | Inuyashiki Last Hero | Инуяшики [2017, TV, 11 эп.] WEB-DL
 ```bash
 magnet:?xt=urn:btih:225F27A0A1E103406CECFFD24BB53ABAEDFBB6E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Dr.Web Security Space предлагает комплексное противо
 ```bash
 magnet:?xt=urn:btih:2F830BA77453CF1F72EA3BB0EDB24436B0282F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC143F16E5C2473D2EDCF118A5282D2E5C62FF78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Shadow Warrior 2 - продолжение ниндзя-шутера Shadow Warri
 ```bash
 magnet:?xt=urn:btih:07F97E61F591A08D7A38B11585725BE396540FDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ MAGIX Video Pro X – это программный продукт для быс
 ```bash
 magnet:?xt=urn:btih:F370D2AB0FCD7A4DF34663A823283588DD3FC848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49B370AD1D413001DB82CF508813152BC985C4CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B165640E0364E87B33B3801165435BA59989BA60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C2A9B76DE3143C7915BE7631318768DEDB6D9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Netojuu no Susume / Recovery of an MMO Junkie / Жизнь онлайн [2017, T
 ```bash
 magnet:?xt=urn:btih:0E91F0841A3480F69ED77EC5F346D94CF9E75CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Acronis BootCD WinPE - загрузочный диск, содержащий п�
 ```bash
 magnet:?xt=urn:btih:5BC20473F866B63BFC9E50FD16D100F26AC79396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E2E3863B6C1F54A3F6E462A0478DFF3654FCF9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Sharon Van Etten - Are We There (2014) [MP3|320 кб/с]<Indie Rock / Folk Rock>
 ```bash
 magnet:?xt=urn:btih:3F89CCCF34DA644472DCFEC05D3F2CE94AE56BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Wise JetSearch - программа, которая предусматривае
 ```bash
 magnet:?xt=urn:btih:62BE9B1606D04735B67604225339ECB62990AF8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Wise JetSearch - программа, которая предусматривае
 ```bash
 magnet:?xt=urn:btih:D6BA2F94DD0E37E32D2401963246221A47C7F957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83484D79CABD92EE2465A2600A97A3D858780CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BB477EE1B6BF349F5D5AAFBA6CF653CBEAFC94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Max Cooper - Inhuman One (2014) [FLAC|Lossless]<Techno, IDM, Experimental>
 ```bash
 magnet:?xt=urn:btih:E4DD39682B91EF7DF1B95A6992D6C59091791799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Tiesto, Quintino & Alvaro - United (Ultra Music Festival Anthem) (Revero Remix) 
 ```bash
 magnet:?xt=urn:btih:FB8AF271E1C087A90F273107075DFABEDB7BF197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0A605C8981325D2A7790AA2B6448BEE51701E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ The Great Jazz Trio - Blue Minor (2008) [FLAC|Lossless]<Cool, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:B93C51CA8A1632D266AAECBC0589FEFA45D5B0C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ OmniOutliner Pro, равно как и другие Omni-приложения, �
 ```bash
 magnet:?xt=urn:btih:941E572CEE2D85EA1846478959A4543D3CDB3D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A405CC097925B55B5D0E4F91C972A5437093C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Mal Waldron - My Dear Family (1996) [FLAC|Lossless]<Post-Bop, Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:59632E29B02EDFB12664C4C092EF78C02D4FA2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Daniele Liverani - Fantasia (2014) [MP3|320 кб/с]<Guitar Heroes, Progressive 
 ```bash
 magnet:?xt=urn:btih:47AC3750E7A36F9AF5A60DCAA887DC8A0C132679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ Leon Parker - Belief (1996) [FLAC|Lossless]<Fusion>
 ```bash
 magnet:?xt=urn:btih:98CD4596A640E343ACAC5CD4F39DAF5F26D6C965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ TechTool Protogo - интересное приложение, которое з�
 ```bash
 magnet:?xt=urn:btih:F411FC07A2B6B5EB6863C433876AFE9F28BFEB97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ Peter Cincotti - On The Moon (2004) [APE|Lossless]<Vocal-Jazz>
 ```bash
 magnet:?xt=urn:btih:00C0352E90B8AD7F18F56FDA95CF1B1BF8D1F337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD6AB9AF5B9976198C6F02E67DC34D959362A014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +518,7 @@ Later... with Jools Holland. Guitar Heroes (2008) HDTVRip
 ```bash
 magnet:?xt=urn:btih:FCA0769F1EF9E5013FE3B41A44AF0BE3B0F46524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:11CE4427CA58C56FC6D30E6EA75475ADB69E353B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ Harry Allen - Jazz for the Heart: Ballads II (2006) [FLAC|Lossless]<Mainstream J
 ```bash
 magnet:?xt=urn:btih:2090A696843C3F79012808FDB0B7788EDEB911A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ Ghostface Killah & Adrian Younge - Twelve Reasons To Die (2013) 2CD, Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:FAEDF076BF9AE692AA6BDA8ECE614365281D324E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ Budda Power Blues - One In A Million (2013) [MP3|320 кб/с]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:04E1985064D347D41CBFAAE28F4833469DE5F0D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +683,7 @@ Naibu - Never Released (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1736D4365C4E522E3608C9F5CDBD7DB018C8D79A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 ```bash
 magnet:?xt=urn:btih:726FCD0E80B7FB339EBA7994E5744F4BDC99CF6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ Feed Me - Calamari Tuesday (2013) [FLAC|Lossless|WEB-DL]<Electro House, Glitch H
 ```bash
 magnet:?xt=urn:btih:63C92ABEA2EC9AB1F29D770D492E01972C57ADE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +771,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:216A230BA4285CB8685CB836A29C40AF24838EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

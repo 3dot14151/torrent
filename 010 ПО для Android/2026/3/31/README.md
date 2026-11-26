@@ -22,8 +22,7 @@ TuDiziPlay — это легкое и быстрое приложение с ч�
 ```bash
 magnet:?xt=urn:btih:00F4EF60628BBEA6A97429D514C09AFB419579BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

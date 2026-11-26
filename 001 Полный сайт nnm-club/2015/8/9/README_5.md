@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B2FE9496269B13CA3AA1975DB000B3BA9D1B8F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4B286F6DB97A9872AC20086741D6E42DB4FFC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Hotspot Shield VPN защищает ваши веб-сеансы, обеспеч
 ```bash
 magnet:?xt=urn:btih:7D380FF27C02C2DD62DAD7FFB67FF07BB63B9092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ A Story About My Uncle - это приключенческий платформ�
 ```bash
 magnet:?xt=urn:btih:BE0558EEE4650C149FBA01812D1CA633AC54CF04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Recovery USB-flash for Asus X553 MA / Windows 8.1 (х64) [Ru]
 ```bash
 magnet:?xt=urn:btih:2B0299A0A28FD1B88163EC93FAD3A7C52570A3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Pinguy OS создан в первую очередь для неопытных 
 ```bash
 magnet:?xt=urn:btih:0F08C97739A85B89BDA8E88F661C8A742D624B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ S.T.A.L.K.E.R. Save and protect KILLER v 0.99 (1.0006) (2015) [Ru] [OS X WineSki
 ```bash
 magnet:?xt=urn:btih:BB9268EA2AC96BC8251901D37BF43174569111A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ED46CA8006F2BA09328BAB31144CBBE84B41293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Lara Croft and the Temple of Osiris - продолжение одобренно�
 ```bash
 magnet:?xt=urn:btih:8F17304610D40FCDD7DCE4133ED9CD5F70ED1725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:E80A10160B127ECAA55AE54E31F61B57BE0323F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57C63CE59524C65121516F626C3F23DF7489DB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Star Wars: The Clone Wars - Republic Heroes (2009) [Ru/En] Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:224894837A8A46321FCF29440CDA5AE315D820BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Prinect PDF ToolBox 2016 16.0.24 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BC3B978E47C55E6015F43F719971162DAF5349C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Star Wars: Republic Commando (2005) [Ru/En] (1.0) Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A5904A99E7DA1EFFCE66F587E0B51D9A2F81355B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Easy Context menu позволяет вам добавить разнообра�
 ```bash
 magnet:?xt=urn:btih:CD137154B4A61E164A0188698434F60C137B0CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:100FB5DC6002D34FDB5A42A945916B1D97F98C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8B92E43A8F1E7133231389BEDB07FD257A0AEDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7073C6EB67ABFB2AD8E0873DFA0E82233573B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ EDIUS 6.55 представляет собой профессиональное 
 ```bash
 magnet:?xt=urn:btih:28374132D6760EE1E01F2867D01C38FE7E9CE258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 ```bash
 magnet:?xt=urn:btih:35E5C339D448CEEAB4A39B02FE68DC18FA1FD1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E058652BE97497C80D011519C5A0F72F9CBEA088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52CE02AF4CE68E740254377AAA19D7C15103D9D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +607,7 @@ Windows 10-8.1-7SP1 Plus PE StartSoft 50-2015 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:4E4A6C7D92B96B6BD5A432D7FD962361BDA920FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +632,7 @@ Star Wars: Battlefront 2 (2005) [En] (1.1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:9E40C94E13B2D022B45CA5AA0987B43C5D28D4E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EE308E2249DF51BBBCA70D4274220C01281503A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

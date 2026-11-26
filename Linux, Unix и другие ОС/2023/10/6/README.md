@@ -19,8 +19,7 @@ Kali Linux 2023.3 [amd64, i386, arm64] 11xDVD
 ```bash
 magnet:?xt=urn:btih:84A50043B9F64FBD5AD32310A80EBA5A370FDAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

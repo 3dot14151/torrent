@@ -22,8 +22,7 @@ Timo Tolkki - Classical Variations And Themes (1994) Reissue, 1996, NEMS Enterpr
 ```bash
 magnet:?xt=urn:btih:B98A69EFBB1A36DB2A301F8C1BEB2CE5564B277B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mastedon - 3 альбома Collection (1989-2009) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:0EA1EDC4D005B2EE8F7F6A47B0C2AF768898FF30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Platinum Overdose - Murder In High Heels (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9BFF40943C240B1E5F55FF20E45520ED82276BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Airbourne (Воздушно-десантное) - австралийская р�
 ```bash
 magnet:?xt=urn:btih:E590999BE0238B1967921AB2680B4A3C96CE1ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D55C34278E725E98ECD48D971A2BD760626F9D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

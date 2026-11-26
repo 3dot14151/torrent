@@ -19,8 +19,7 @@ Adobe Photoshop Touch на Андроид – скачайте и установ
 ```bash
 magnet:?xt=urn:btih:9F01516B35C300CC47B146638F7821D9F22396ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Self Camera HD Pro 4.2.21 [Ru]
 ```bash
 magnet:?xt=urn:btih:86598EF771D779EFEFA5A8191291ECF43C3E9353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Colorize Images - это сервис, основанный на автомат�
 ```bash
 magnet:?xt=urn:btih:54EB27B741C8F2160E07D6F1597722BD40D2483B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ RIPOUT - это хоррор-шутер с режимом совместной �
 ```bash
 magnet:?xt=urn:btih:B50C1D26E92A1A54B48BFB716F1399638B60FBAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Satisfactory - это игра от первого лица в открытом 
 ```bash
 magnet:?xt=urn:btih:93C2BE4EA5F506747AC451A3654B7C4CF46477F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LEILA (2025) [Ru/Multi] (20250803 Build 19462323) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:865F1E4E8744244CFD26344891D316197E3EA15B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deck of Haunts (2025) [Ru/Multi] (1.16) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0E1C2632262A74486589245B46CAAF5E6703D76D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hidden Portals: Eternal Balance / Скрытые порталы: Вечный б
 ```bash
 magnet:?xt=urn:btih:ADF9E9A5039B3EE0221751DF03D3C4134C849CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grim Chronicles: Superior Sorcery (2025) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:474F65A12EE70800AE17DAC4A797A48EE92026BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Satisfactory - это игра от первого лица в открытом 
 ```bash
 magnet:?xt=urn:btih:8DCE61CAC4D139F4306A9EB34F81D9FA8DD60D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

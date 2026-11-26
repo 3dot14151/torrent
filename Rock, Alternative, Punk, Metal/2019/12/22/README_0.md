@@ -22,8 +22,7 @@ Veil of Thorns - Dosage (2018) [FLAC|Lossless|Web-DL|tracks] <Metal, Dark Ambien
 ```bash
 magnet:?xt=urn:btih:CEB3FFD5A5B1E2595B0FB5C433AC400244B61999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Emerald Rain - 6 альбомов Discography (1997-2005) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:5E98E72CB55AEBA07DED69009BD3A1E6B0E999A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Degreed - 4 альбома Discography (2010-2017) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:C19BD7FD917CD56773A1FAA9C6EA8A026F59313D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Badhoven - 3 альбома Discography (2001-2013) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:27A7E0E48DF996B0E3E6C14F3606C3C63FB6C5EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Emerald Rain - альбомов Discography (1997-2005) [MP3|320 Kbps] <Melodic 
 ```bash
 magnet:?xt=urn:btih:52813C6E563CCD6B1F54A33D5053C56CF7D3B521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Casablanca - 3 альбома Discography (2012-2015) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:90EE512B0EE3DF53161D353B2677FB168E29F717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Heartland - 13 альбомов Discography 14CD (1991-2011) [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:5B7AE57668D41FDBB8B910C86D6833E041813F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Badhoven - 4 альбома Discography (2001-2019) [MP3|320 Kbps] <Melodic Hard
 ```bash
 magnet:?xt=urn:btih:8C4B7C8421DFE34110D54FE62F472F64097E0C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Gary Hughes - 7 альбомов Discography (1990-2007) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:786524471CEF3543DD932E297A11FECE72DC39CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Pink Cream 69 - 18 альбомов Discography 20 CD (1989-2017) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:25965B27FDF83B7E721FF87DC646923985FC258E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Ozzy Osbourne - The Essential Ozzy Osbourne (2003) 2019 remastered Epic [FLAC 2.
 ```bash
 magnet:?xt=urn:btih:A01DE2F21AA895A97AE46F9F727B87B75AFCEBFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

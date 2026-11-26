@@ -22,8 +22,7 @@ Mr. Big - Hey Man (2026 Remastered) (1996) Remastered, 2026, evoXS [FLAC 24/96|L
 ```bash
 magnet:?xt=urn:btih:A853473325C3BA01A67F14ADFE9DC6F6A8F35E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Testament - Practice What You Preach (2026 Remastered) (1989) Remastered, 2026, 
 ```bash
 magnet:?xt=urn:btih:BDAA4C62F21AD649999197E1F84CCE97FF323645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Metalocalypse: Dethklok - The Dethalbum DKXX: Dethmastered (2007) Remixed & Rema
 ```bash
 magnet:?xt=urn:btih:6E6FAD03594AEA728C71E4E79E123AB7C3950398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Death's Gambit - это хардкорный 2D-платформер с элем
 ```bash
 magnet:?xt=urn:btih:E75F82475CAFF84D1AFA9C81B20F4C5F5D2DE75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

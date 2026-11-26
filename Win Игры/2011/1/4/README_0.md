@@ -19,8 +19,7 @@ Shaolin Mystery: Tale of the Jade Dragon Staff / Тайна Шаолиня. Не
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Special Enquiry Detail / Департамент особых расследов�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ KChess Elite - Программа для игры в шахматы, котор�
 ```bash
 magnet:?xt=urn:btih:2FA065FDADE1AA4F6A329317EE902A2581283B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

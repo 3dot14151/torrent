@@ -22,8 +22,7 @@ VA - Летная погода. Песни на стихи Михаила Тан
 ```bash
 magnet:?xt=urn:btih:63126EB0B7897E07B1C15273756C1E0F2F1F0262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Мир песни (1 серия) (1973) [FLAC 24/192|Lossless|tracks] <Pop,
 ```bash
 magnet:?xt=urn:btih:5117310C952C2444FCC81F1E705322C1916057A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Играй ещё - Keep On Playing (1981) [FLAC 24/192|Lossless|tracks] <P
 ```bash
 magnet:?xt=urn:btih:8C77DC329D6362CAB98D68F297861606B1447455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Леонид Дербенев - Треугольное солнце (Роб
 ```bash
 magnet:?xt=urn:btih:F64E8A347E130BF14A72F250733C93DDF7619177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF325A340C78E3BCB2C441E20289BC180A4E19E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ B1 Where Cold Winds Blow(   Читать дальше...   )Жанр: Death Meta
 ```bash
 magnet:?xt=urn:btih:680077D83BA132D0C3704C8609291041C7621546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ A4 Don't Feed The Bears(   Читать дальше...   )Жанр: Thrash Meta
 ```bash
 magnet:?xt=urn:btih:E30EE1E98ADF72E3B6A7E779F085AA30AC48D3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Black Label Society — сольный проект гитариста Закк�
 ```bash
 magnet:?xt=urn:btih:B4AB29AD4F19B22344E0F74F15607E0927936591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

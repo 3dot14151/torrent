@@ -19,8 +19,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack Other s [Deluxe
 ```bash
 magnet:?xt=urn:btih:8D1C5865BD2AB3BD5B3354A00B45299C6DBEF9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:02598873B9350C3CF9AF277F73B91624AF3CA9F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294_40/dlc) License GOG [Brutal Edition]
 ```bash
 magnet:?xt=urn:btih:FFCCC75457107971D783EFC9F6D1BE990906CE01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Frostpunk – игра от создателей This War of Mine. Это игр
 ```bash
 magnet:?xt=urn:btih:0588899834DEA32F8EA6D2125BEC0C8476717E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Atlas Fallen: Reign Of Sand (2023) [Ru/Multi] (1.119040/dlc) Repack LetsPlay
 ```bash
 magnet:?xt=urn:btih:56130EEE2D12251A3D9793FC010769CAC335E30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:B07444763EAA80933E7A92B025154056E395DA6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

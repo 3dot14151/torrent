@@ -21,8 +21,7 @@ This is your hands-on guide to creating real, production-ready language (   Ч�
 ```bash
 magnet:?xt=urn:btih:3FACBF5B8E728A6E81A307E40048636B6DB6847C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ The Book of R is a comprehensive, beginner-friendly guide to R, the world’s mo
 ```bash
 magnet:?xt=urn:btih:90C0084613BEC0D53A96A394E1FB99AD4874A579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ In this completely new manual, gain a deeper understanding (   Читать д�
 ```bash
 magnet:?xt=urn:btih:DB4D35B14D394D5E7B44A958260C29E5851E8B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ The Benchmark Series is designed for students to develop a mastery skill level i
 ```bash
 magnet:?xt=urn:btih:5DD9C25D42392F67A870614634DB2686683BA19A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Discover important Excel functions that can quickly and easily perform calculati
 ```bash
 magnet:?xt=urn:btih:9FF2F6A3B44437ABF28B27E9A6FEDBA9DBE2078F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Explore advanced Excel techniques, including formulas, data analysis, and VBA ma
 ```bash
 magnet:?xt=urn:btih:7BC333B6CD659A6B91DEC9881D69D397AB31F79A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Word Wizardry: Forge flawless documents with advanced formatting, collaborative 
 ```bash
 magnet:?xt=urn:btih:844518D162CC5718CEA43D23A9124CA341DACACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89CF2FD67C899CF3A4028E7B492A5E09DEA6CC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDC8CD8A765CEDE50C6B09C436177A4FB6652B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Cloud infrastructure is the backbone of modern enterprises, and Azure is at the 
 ```bash
 magnet:?xt=urn:btih:9D4323A7D33736490A4F1EE8EA71E70528E5A5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

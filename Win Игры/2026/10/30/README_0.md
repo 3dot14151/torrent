@@ -19,8 +19,7 @@ Olga - это короткая эпизодическая игра-симуля�
 ```bash
 magnet:?xt=urn:btih:649FE8F962E4C656BD82D5DD8B08D0DB7B3A0AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Criminal Archives 5: Symphony of Death / Криминальные Архивы 5
 ```bash
 magnet:?xt=urn:btih:8A36D0EC01611D962AAA068F26E11C6870F7D6EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Metro 2033 Redux - это сюжетный шутер с элементами с
 ```bash
 magnet:?xt=urn:btih:E7EABFBD8782979CC3EAF238513B3E321514919F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Foolish Mortals (2025) [Multi] (2.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:EC857A8DC49C79EB21A5D1CAF7EC99A08DD53517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Croc 2: Kingdom of the Gobbos - продолжение классической 
 ```bash
 magnet:?xt=urn:btih:869D2E020FB5894C60A53701B1F234A64CD973F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ RESONANCE OF FATE / END OF ETERNITY 4K/HD EDITION — переиздание я�
 ```bash
 magnet:?xt=urn:btih:0741F3AE46A877C56D922C75A6850BF56A191A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

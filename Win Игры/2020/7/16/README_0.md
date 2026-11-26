@@ -19,8 +19,7 @@ Panzer Corps 2 - лучшая стратегическая игра о Втор�
 ```bash
 magnet:?xt=urn:btih:CE9B817039D07E08F5089F32740563BCE881725F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Beautiful Desolation - это 2-мерная изометрическая при
 ```bash
 magnet:?xt=urn:btih:EAA63C2B31A9318EE9A88E3E1D92BC6C385F7F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

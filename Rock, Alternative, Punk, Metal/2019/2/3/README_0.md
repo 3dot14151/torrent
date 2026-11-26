@@ -22,8 +22,7 @@ Methods Of Mayhem - A Public Disservice Announcement (2010) Special Edition [FLA
 ```bash
 magnet:?xt=urn:btih:6274441CCAB59FE12FC74B6566F7D5F1EF206BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ancient Bards - Origine (The Black Crystal Sword Saga Part 2) (2019) Japanese Ed
 ```bash
 magnet:?xt=urn:btih:0B1D0271DEE195CB6EE5EA475B19B8856AD5E0E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Arena - 10 albums, 13 CD (1995-2018) [FLAC|Lossless|image + .cue | tracks + .cue
 ```bash
 magnet:?xt=urn:btih:B9DA18561346C082099DBCB219A5EBC37A7B8A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63CA8656EC5D4A9E589B8E42A5FDB978073C65B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

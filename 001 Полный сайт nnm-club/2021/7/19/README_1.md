@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:ABE6D00F74FAE7BE64A695D00D3FABE8E554D92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E9BD2FCAB2E5573229F149A424B4E454958B4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F2832F609B72F1F449ACF0BFDB6B6E9A1E46318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Record Super Chart 17.07.2021 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:D7C5BEA4B54B02613927134D0B6F79DCF4B62167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ IsMyHdOK 3.33 Portable [Multi/Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Phase One Capture One PRO - один из лучших профессионал�
 ```bash
 magnet:?xt=urn:btih:021B3771220C7298AD411C560D21CC907D2CAB58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Revo Uninstaller Pro 4.4.8 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:277C43ACFAC06464D135ACA2F83DB490CC2E6F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ DRUM&BEEKER - Peter Beeker - GRMBL (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 ```bash
 magnet:?xt=urn:btih:4AB128DA1898E00EE7B95EE500197B0C1ACE1C59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:644BDD7544A9557B7E7C853CD78B301C1E3616EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Profondita - Eternal (2021) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progres
 ```bash
 magnet:?xt=urn:btih:E41C2DB039536751F663B181FC20AEEA2F35806B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ SVS, Jake Parker | Creative Environment Design (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:1FA8570B7D5A61B04C4D52223829CCE5A520CFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ Gumroad, Lu Dongjun | Metal Study (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:A2EB3E485D6CA176E5C47BD17810C11B0F90237C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8102F044D0B93F211A689F0A1A009B209AC18995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ The Blues Band - Let The Good Times Roll (2021) Live [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:88DF5A57295A6288315047D1EFD4F3DBDE66B469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ CartoonArt - Cartoonizer 1.1 [En]
 ```bash
 magnet:?xt=urn:btih:0281167551E207DBE9275A4071ECBAE70A42CB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Revo Uninstaller Pro 4.4.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CAE6E23834E7BD7FD7C577ACF8A02E8499680FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5A12A07F31A532C5CFA034BC784CB437BDC2AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ Gumroad, Lu Dongjun | Jungle Study (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:C9FA031AD5D455F1F7E24BE8663A28CB4F65DBD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ Discovery. Жизнь с Тиграми / Living with Tigers (2003) TVRip (се�
 ```bash
 magnet:?xt=urn:btih:840103DDEDC48660B94C1E52AB8C804D737C2061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F17D37EDD0600B9AD2CB3C4D6C6A8CEF3EB84C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ SVS, Jake Parker | Drawing Animals: Mammal Edition (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:656C3B4282D12D64B5CE44A4B4D2E0F746A98FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A65F88DA5909C7E3DC178B795228FCC9169F8BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A7BD5A9C7FB2A61B9C91E2F11FA695B0B7CBD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE6536CA9BF0DBBCFE492CB91349CE1038B53659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

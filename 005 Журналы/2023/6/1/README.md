@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:10DCD02799BA0F4971E7F74DF164273F614CBB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Men Today ноябрь-декабрь - все, что нужно для луч�
 ```bash
 magnet:?xt=urn:btih:C2B4B6A4159F7264EC60654E135E89322C25E6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

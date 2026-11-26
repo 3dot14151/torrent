@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4EFDA2F4ED04060B99AA1982D91A4206BD6DA797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C84CE9AD9F0BC2F4190E9D3A91344555B2CB3659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - Overdose 2 (2012) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:DC29F6219167EB8039A0DA51E325410961D70EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ UltraDefrag это мощная программа для дефрагмента
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C0B66D6A6787163AC35F356CB7B1A776A652A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62CF824442296A66248EEF54E6FA75F2CD9B2C19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ VA - Хит за хитом 30. Зарубежный (2012) [MP3|256-320 кб/с
 ```bash
 magnet:?xt=urn:btih:7FC30709A30AEE8E16FD97F408551B9671053C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ VA - 100 A State Of Trance Tunes Vol 2 (25.02.2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:C6FB6184EF1382C5248FF6F93007AE4DF2AC6646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71CC4C376A89FF31363B40EC85A2AF704639C4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:478C6C5CBD40818649BD7AE8EAA816F0AFD3CA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +337,7 @@ Anna Abreu - Greatest Hits (2012) [MP3|~245 кб/с (V0)]<Pop, R&B, Dance>
 ```bash
 magnet:?xt=urn:btih:2A01394FA85C30E152CADD8939BFF222E53F8502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC119DBCEECD4C0E4DD24A10A193642250073BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D594F56EE9D5050C9019ADE80026263FDE199AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ Nite Jewel - One Second of Love (2012) [MP3|320 кб/с]<Electronic, Indie-Pop, 
 ```bash
 magnet:?xt=urn:btih:BC2390D4B6451C9C7E2E13B64622F18264F1F5B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F36E9BF58A195D20D62BC3006C852BD77B7B0850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8F75467D8B94785AF251C6618F5587EAF61C8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D337D6B34E6B3A46A0003D4F9C368B57FD9554C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +538,7 @@ VA - The Official UK Top 40 Single Charts (19.02.2012) (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:10ECA95B8F25537E26E2956702D6ABAA711DF317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +572,7 @@ VA - Energy Super Dance Vol.5 (2012) [MP3|320 кб/с]<Electro-House, Trance, Da
 ```bash
 magnet:?xt=urn:btih:339B14FCB074CE5E3D22921A55D367D81D823E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ VA - Звезды Русского Радио (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:AED05D20C3C80768617D6878E25A3C217C1DBA90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ VA - Souz RnB (2012) [MP3|320 kbps]<RnB>
 ```bash
 magnet:?xt=urn:btih:E7AB0DBCC85110387D3472DBFDF6DD797CB66D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ Zee Avi - 2 Альбома (2009-2011) [FLAC|Lossless]<Acoustic Pop, Ballad, Voc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ UltraDefrag это мощная программа для дефрагмента
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ TapinRadio - это простой и достаточно надежный ра
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ Hobo - Iron triangle (2012) [MP3|320 кб/с]<tech-house>
 ```bash
 magnet:?xt=urn:btih:9A23608B2EA128E203C9AE04CAE1B5E349518982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

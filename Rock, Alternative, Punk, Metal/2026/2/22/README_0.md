@@ -22,8 +22,7 @@ Slik Helvetika - Walk Through Fire (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 ```bash
 magnet:?xt=urn:btih:423502275488069F576E87ABBA66C58FD57CC0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elvis Presley - EPiC: Elvis Presley In Concert (Original Motion Picture Soundtra
 ```bash
 magnet:?xt=urn:btih:EEF315D5126B89E569D48CD015685D4586C14FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ igo - 3 Albums (2012-2026) AI-generated content [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F9683B376C91C1B54908723EA160802F79A2FB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

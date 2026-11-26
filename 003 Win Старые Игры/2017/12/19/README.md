@@ -19,8 +19,7 @@ Alien Shooter + Expansions / Alien Shooter: Начало вторжения (200
 ```bash
 magnet:?xt=urn:btih:0374B143083DC115C6F2A1F6E4136902EBE7ECF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

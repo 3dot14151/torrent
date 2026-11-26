@@ -21,8 +21,7 @@ DJ Feel - Top 30 Of May (30-05-2016) [MP3|320 кб/с] <Trance, Progressive Tran
 ```bash
 magnet:?xt=urn:btih:598AC479954F4FD25C65315FFD8584B056E143C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Krokus - Metal Rendez - vous (1980) [APE|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D916B451783A7812B4D9A61F89836A0B45DC7D5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Above & Beyond - Acoustic II (2016) [MP3|320 кб/с] <Downtempo, Chillout, Acou
 ```bash
 magnet:?xt=urn:btih:58B24EDE81C2F26484588442EE279DA6921B2618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Shankra Music Festival (Ambassadors Of Psychedelic Trance Music) (2016) [MP
 ```bash
 magnet:?xt=urn:btih:B3F0A13613880F5958CDA6C15E03AE822A3A868D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Ultimate Dance Crazy Shakers (2016) [MP3|253-320 кб/с] <Dance, Euro, Dis
 ```bash
 magnet:?xt=urn:btih:1ACF79E81EFFCAEE8D53DE60AE868489F0A3F247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:042091E363310931C1CB6F16ECD45DBABB7D0733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Milchbar - Seaside Season 8 (Compiled By Blank & Jones) (2016) [FLAC|tracks
 ```bash
 magnet:?xt=urn:btih:E3373247787883FE0B836F8DBC11B2B103ABADA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFA34D71F9F4E0DE8ED5EE68B662DD576A10B818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D590404CA974B619D8807B0A52BCE00B72C335E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ The Kelly Family - Christmas For All (1994) [FLAC|Lossless|image + .cue] <Soft R
 ```bash
 magnet:?xt=urn:btih:316AFAEB9C79B02C2986AD91EFD5B76939EBF294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79A713BC73B16BE0D04F3A0866DB272754DE9B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDB9B2D06AA99939CD0A6BF4A5B897F55035C794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6669E06EE1100504FC3BD7FA41C8762C8B57AD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Smokie - Solid Ground (1981) Reissue, 2016, Sony Music [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:12D3693F39897DEA75995830A7E35ABC35A60850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ VA - Love Therapy: Romantic Piano and Instrumental (2016) [MP3|320 кб/с] <Dow
 ```bash
 magnet:?xt=urn:btih:970BFB6077868C91A98931D42DE89EBCF31BB7B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E0EADEDE8D5BCCB6573BA0B6CAABD39450A2BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Zyce - The Fifth Dimension (2016) [MP3|320 кб/с] <Progressive Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:732A6561D4AFAF611439EF972C17FFF1C74BA00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ SPEQS - крошечные спутники, являющиеся первым �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39DEC7C8855C87196DFB7A7AFF82549CC127215E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Bobina - Speed Breaker (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:286C36A3D687FDE3BFF0C3059094DA9836028119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A96FCFE9DFCF9DBD875481409A80A359B6385397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ Hypnotix - Star Gates (2006) 2CD, mCITY Edition 2016 [MP3|320 кб/с] <Electron
 ```bash
 magnet:?xt=urn:btih:27864D805D34D9E395B13FD29C1792ED47F6D2A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ VA - Easy Jazz Love Songs (2016) [MP3|320 кб/с] <Jazz, Instrumental, Easy Lis
 ```bash
 magnet:?xt=urn:btih:746F83D0424993D3DB515E63F7835B49E30F3576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DC62A0E01DC7A6C13972E8E71FCC1B8F112191E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ BlueHarvest -  утилита, помогающая автоматизирова
 ```bash
 magnet:?xt=urn:btih:B708AE51F606EAD6AA717413A3979BB3AE6606AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

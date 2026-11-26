@@ -20,8 +20,7 @@ Diaro - личный дневник v3.20.0 Pro [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:23DEB5AB7BF8DA73590D395814E5E44956CB65C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

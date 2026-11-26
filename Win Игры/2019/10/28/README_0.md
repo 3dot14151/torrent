@@ -19,8 +19,7 @@ The Keeper of Antiques 2: The Imaginary World / Антиквар 2: В мире 
 ```bash
 magnet:?xt=urn:btih:FF959D0FB1E0BEAD75BF8C25BB61B3AFE00DFE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Homefront (2011) [Ru] (1.5.500001.0) Repack xatab [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:015B6F4137E5F0769CD69529EB67CE014C2761C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

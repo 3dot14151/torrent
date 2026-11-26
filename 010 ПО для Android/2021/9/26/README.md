@@ -19,8 +19,7 @@ VOCHI — это видеоредактор нового поколения. З�
 ```bash
 magnet:?xt=urn:btih:C7B30D5CE2706A4AA19D1CADBF1399299070A003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:167C5EDE6F0BEAE91541A990612A0B58F69DC2AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PicsArt - Photo Studio v18.1.1 Mod by Alexey070315 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6B7B32980F7F90638A685D16A37F965366E2EA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

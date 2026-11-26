@@ -26,8 +26,7 @@ Yosh - Metaphors (1996) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:46AB0D2947E39AD7C1703C8B8BB4FBF15CAB0F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Dysnomia - Dysnomia (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:166A5D0007328AF6A25001B6994E3E774FA3F502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:F04F50373920F018A4D0FC633811920F940D7A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Vi Som Alskade Varandra Sa Mycket - Den Sorgligaste Musiken I Varlden (2014) [MP
 ```bash
 magnet:?xt=urn:btih:131861C85F4B97E83A46DFCF3E63D85BE6C5C8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Seas of Years - Ocean Rift (2014) EP [MP3|320 кб/с]<Post Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:3BE2E2FBEDC2A72C05531273C21847D8ACF37500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ NOFX - Backstage Passport Soundtrack (2014) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:F53740DA1D36526ACE36A694D486A87077F96C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Luna Rossa(Ex-Panic Room) - Secrets & Lies (2014) [MP3|320 кб/с]<Art Rock, Pr
 ```bash
 magnet:?xt=urn:btih:279954C460D657770EB5D3C6813A9188F9FD4CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Giant - Time To Burn (1992) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5D2139856AD93552DD7B7D860197C1E54E5354D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ VA - Classic Rock Presents: The Best Of 2014 (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5DE97B811F47CD49056EDF0C76D9372682924588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1642B164EEC56DA7E47786E802A4C18C720B05D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

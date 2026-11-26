@@ -18,8 +18,7 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:1C45B62597140DFEC4B9EC594A2CE6191769F53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Boogie Funk Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, RnB>
 ```bash
 magnet:?xt=urn:btih:F3C2859BE7D5D1ADBACF2DA875CB626CA3790A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Halloween Teaser Promo Pack - специальный вещательный па
 ```bash
 magnet:?xt=urn:btih:C29962771A162F0D9A1F5DF67197212C1B993729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B399CEC79877AD70087B4DFBD5D1FC48B6085C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Impression Ink - экшен фотошоп превратит вашу обыч�
 ```bash
 magnet:?xt=urn:btih:A6FF7119AE7576F658B2F31ECD2E1290B0C8A68E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BCCAA0263BBE30E51EE6F4B417A343A9F0D5E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80B737CFF7FCB108EAFF7CD378C4A4AFE4455764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Modern Art - экшен фотошоп превратит ваши изобра�
 ```bash
 magnet:?xt=urn:btih:252631AAD79E6BA28A995E49B70060ECD9398733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC5BF6792A0C27AD4EDEFBB60B681405E27D4AC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Yesterday / Yesterday (2019) Blu-ray [H.264/1080p] [EUR]
 ```bash
 magnet:?xt=urn:btih:5246B2769660C2484F4B39E77E5A31C096AA8EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Halloween Logo - это простой и эффектный шаблон,  с �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Remotix - быстрое и мощное приложение для удале�
 ```bash
 magnet:?xt=urn:btih:42D475A0F70739703C5C453F8ECC3F1DBD99A4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59A3AED85076DA4BC3C566AAE8B3E6F99D878148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Caramba Switcher - это новый, понятный автоматическ�
 ```bash
 magnet:?xt=urn:btih:7B6102F024407002304720D8EC69162269527B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91392C1E5D6B60F137B75616E3A0F585133DDA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89B2509E0D9A5A54A64D79FD0B0F83281C35D5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F71BBD90A9ED8E7D064028FED744F65A1EB01EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A248B56DF300FF72E7537E30126CB15E9DF70CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:600B6AB293271AE2C7DE9611F607A785317789B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC106BF654C04C4457A39E36556620A73264C294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ Halloween Zombie Hand Logo Template - это забавный, реалисти�
 ```bash
 magnet:?xt=urn:btih:8AB44F64927748E4CC65D8E3BB768F18D3378044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11C7BAF39C36EBB9B7158FCD2D4E00EA37ABEBB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ Halloween Party - это интересный и забавный шаблон, 
 ```bash
 magnet:?xt=urn:btih:5AC6D1A595C5F06D530CACC9F22BAEC8414EB555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +625,7 @@ VideoHive - Animal Protection Veterinarian Promo - 24939415 [AEP]
 ```bash
 magnet:?xt=urn:btih:A087087F5D1F57C17C1F63583EF4948AA10E5BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +650,7 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:FC46A1887EB460D7B94F290DEC1F056147E98B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

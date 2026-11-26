@@ -21,8 +21,7 @@ Slackel Fluxbox 1.0 Live (Легкий дистрибутив) [x86, x86-64] 2xC
 ```bash
 magnet:?xt=urn:btih:7267693054C66CD3F6F1B810B72F9D0ADE350D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Xubuntu — это разрабатываемая Canonical, основанна�
 ```bash
 magnet:?xt=urn:btih:41BD83FBBEE55391C5099CF3525DCD760E37CE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ```bash
 magnet:?xt=urn:btih:960C0DF3EC4931DA251087B129CC1A66BB25835E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mageia 5 Alpha II [i586, x86-64] 7xDVD
 ```bash
 magnet:?xt=urn:btih:49AFBE08C8CF66E70E4FB0B219B7B4145EB28F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

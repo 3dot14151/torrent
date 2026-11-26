@@ -22,8 +22,7 @@ The Apple Pie Motherhood Band - The Apple Pie Motherhood Band (1968) Remastered,
 ```bash
 magnet:?xt=urn:btih:D4AA7CB5801D2B1C0A6AF4D746AD5768CC74AAED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Never-Trust - Bras De Fer (2014) [FLAC|Lossless|image + .cue] <Thrash Metal, Har
 ```bash
 magnet:?xt=urn:btih:A4C7E1D192CA35521E993E2F8D0DE1C8130E45CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Apple Pie Motherhood Band - Apple Pie (1969) Remastered, 2004, Estrella Rockera 
 ```bash
 magnet:?xt=urn:btih:3B2AF3E3C7612B1EE224D2868578DC134D844811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wild Rose - Four (2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:EB06A233ABBA7CE33416B500F386D1FE8AD33617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Andy Rock - This Time (2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:DAAD30CF8657A2C22E7B21FDE66825CF70E46BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ BANCHEE
 ```bash
 magnet:?xt=urn:btih:2627A5F3317F0937DAE542B5615FCAC641453EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ David A Saylor - Ship To Nowhere (2016) [FLAC|Lossless|image + .cue] <Melodic Ro
 ```bash
 magnet:?xt=urn:btih:0EE3C5450574B3123E67721D399767D59C37BA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Blackeyed Susan - Electric Rattlebone (1991) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:645EDBAD1E03F42BCDAC878B37874B52B1736665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Tommy Heart - Spirit Of Time (2016) Japanese Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:F3C842A37A1A8A9F8168122B2C63AF27D3108791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Frankie Miller - Frankie Miller's Double Take (2016) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:7F2EA3FAB975862F3EEFA0BC5D49F99779124E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

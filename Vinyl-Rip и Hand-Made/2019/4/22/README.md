@@ -22,8 +22,7 @@ A4 One For Sorrow(   Читать дальше...   )Жанр: Europop, Euro Hou
 ```bash
 magnet:?xt=urn:btih:23CA163EA6D6E4DDC4AD2742BFB805C6D61DD4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C9FC68084896F933C1152CA4D25072D23287B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

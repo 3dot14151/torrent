@@ -19,8 +19,7 @@ FaceLab редактор лица - лучшее приложение для с�
 ```bash
 magnet:?xt=urn:btih:5F5E32424840E539CA4C86BE1DC3FE61E65DFCE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

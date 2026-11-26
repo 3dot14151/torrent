@@ -19,8 +19,7 @@ Remothered: Tormented Fathers - первая часть долгожданной
 ```bash
 magnet:?xt=urn:btih:37BE2F391D6DD5BFACDA75C976413EF70971F26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

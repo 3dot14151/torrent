@@ -22,8 +22,7 @@ Your Favorite Blues Band - Presenting Your Favorite Blues Band (2026) [FLAC 24/4
 ```bash
 magnet:?xt=urn:btih:704450946634160467E9A989806E8F029A0AE56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tom McLoughlin - Modern Dissonance Blues (2026) [FLAC 24/96|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:940D8D22DDE5F845626E2C2F904337D65C7CBC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Vic And The Pigs - Vol 1 (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:CCB3D550F985FBD39B9884E7918CC726AC7BCF65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Severed Limb - Skiffle in the Rain (2026) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:B8FD0A10FE9A891DC542AA7CFEA8C8733348F649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Name Droppers - Let's Live Together (2026) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:A6E528C2147E9D8C5CD80208CB2FD98DB95974DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:761EA0BE435742FE96AF6288E4BC671ADCBEDA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11CB6365A63C320EE0BB2C27C6B23D9020F5CB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAE4043A3F31CFAEB14AD654BDF48CFFBC3E627C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Psalm2 - атмосферный психологический хоррор от
 ```bash
 magnet:?xt=urn:btih:C754FD0E6BCDD0CF9E744B85A23F16B38E359EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Vayper - Песни на стихи Branikald (Часть 01) (2026) AI-generate
 ```bash
 magnet:?xt=urn:btih:1CC338C1C0A647F49D43A576D3605AF67E00037B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Vayper - Песни на стихи Юнны Мориц (Часть 2) (2026) AI
 ```bash
 magnet:?xt=urn:btih:992E148DCDB0881F04CFC241D44A1DDDDEAED226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Pussy Riot - Cyka (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Rock, Alter
 ```bash
 magnet:?xt=urn:btih:A4397D954A6DCFA43FD693E8A6EFD3CFC8310440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Steelballs - Rebels (2026) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:F46091EF4538665913AAA63C1071B61557DD0D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0155E9C9048F6BFAD16D33418BA108BDE30DA6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE50E5A32A4FA01EC0EC065D0578BFFB09C2D006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ Goblin Company - кооперативный экшен‑симулятор с �
 ```bash
 magnet:?xt=urn:btih:F8DAE8F7FC719AB7885EA2129676C378F18C54DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:018EC4FE9C05395DC007942282C99376E8832349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA21C0A4145FE13375470480FF2AF50056CCA652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Model Context Protocol (MCP) стремительно становится кл�
 ```bash
 magnet:?xt=urn:btih:FDDEC07CF022C5D97B7F3A88FFD891E6851D55B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B15E12D28550FCE46CD6FA6A4545D54D2683D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D122DB3593359A47EE52AD093A87B2818F49DE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ Code with Antonio, Antonio | Создание собственного Claude Co
 ```bash
 magnet:?xt=urn:btih:118F11BC57FE2CA3D51E6209C8B134429F649699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DD5E2FA45CBAE8D177723E6AAD04F3F21C57FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A93EAE5D775368CF2D082B44219FF22CFF118F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ Chaos Vantage 3.3.0 [En]
 ```bash
 magnet:?xt=urn:btih:6CF19F14AD77BC1E97EE2F68DDE739614DEC05A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

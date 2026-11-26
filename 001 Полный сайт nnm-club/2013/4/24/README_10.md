@@ -27,8 +27,7 @@ E-TYPE - 7 Albums + 33 Singles + Bonus (1991-2011) [MP3 |160-320 kbps]<Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Astrix - High On Mel (08.04.2013) [MP3|320 кб/с]<Psychedelic>
 ```bash
 magnet:?xt=urn:btih:7C1E67F6653C96DA81E106749A8B793DDCCA4C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Dead Island: Riptide (2013) [Ru/En] (1.4.0/DLC) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:BF3CBAF41774F69EBFB6F6E13569141DBC7263D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Dishonored: The Knife of Dunwall (2013) [Multi] (1.3/Up3) DLC | RELOADED
 ```bash
 magnet:?xt=urn:btih:5DBD1291F5FC32CD66488DA70E2E5699B2B544FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Mass Effect: Paragon Lost является приквелом к игре Mass E
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Hiren's BootCD избавляет от необходимости держать
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Infinity Blade 2 [4.3+jailbreak]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Konung 2 / Князь 2: Кровь Титанов (2003) [Ru] License
 ```bash
 magnet:?xt=urn:btih:F5CD23BAEDDB16481E885B3847DC648CC33279F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Call of Duty: Modern Warfare 3, известный экшен от первог�
 ```bash
 magnet:?xt=urn:btih:7AC09CDFCBFBC0855BA2E4EA3DEBDF93F87E63BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Acronis True Image Home - позволяет проводить резервно
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Forza Horizon DLC [Xbox 360] [RUSSOUND] [Freeboot/Jtag] (2012)
 ```bash
 magnet:?xt=urn:btih:608C528E40796C51D4493CE23F9EEA4D1A4E2932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Dead Island: Riptide (2013) [En/Ru] (1.4.0/DLC) | License RELOADED
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Windows 7 Enterprise SP1 IDimm Edition х86/x64 v.15.13 [Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ SEMA - интуитивно понятное и простое в использ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

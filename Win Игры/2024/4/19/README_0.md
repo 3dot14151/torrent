@@ -19,8 +19,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Decepticon [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:7E54E3D28DF93ED430DAAB7E9BE7E14DB742FFF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GWENT: Rogue Mage / ГВИНТ: Маг-Отступник (2022) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:1C41EF6EB8CC904E16ABC340615D2EF8749B4878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ John Wick Hex – нео-нуарное приключение с элемент
 ```bash
 magnet:?xt=urn:btih:3214CC0D8F8F34C0B9FFFE3E8B007775EDD5A752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (Spider's Thread/dlc) Scene Rune [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:139A3DB1A2F92CBC23925C362366AB4F478CC2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grand Canyon - это игра, которая предлагает вам по�
 ```bash
 magnet:?xt=urn:btih:95E4DF973FBC98241B3C4C8B3D5E62503FB02E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Revival: Recolonization – 4X стратегия, события которой
 ```bash
 magnet:?xt=urn:btih:7E0BC705D49789B0F8050A982A2608D759172F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ SWORD ART ONLINE Last Recollection - это приключенческий ро�
 ```bash
 magnet:?xt=urn:btih:40757B8A5D0ECD5021743DA7778D85310F6DDA2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Lil Doll House - атмосферный хоррор в формате escape th
 ```bash
 magnet:?xt=urn:btih:E7A4ECD341643687DCF75C674F802EC740FC2132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Farmer's Dynasty – высококачественный гибрид реал�
 ```bash
 magnet:?xt=urn:btih:1BD64BA68E5F4CF9872E2E31703EDDA143C08B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Inspector Schmidt A Bavarian Tale (A Bavarian Tale: Totgeschwiegen) - ролев
 ```bash
 magnet:?xt=urn:btih:D55875A738A48C9FEB19D98F5249035DB7711E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ BIOMORPH - это научно-фантастическая приключенч
 ```bash
 magnet:?xt=urn:btih:65C38E390243CC8DB541AB5BDD1D946347D4890C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Mystical Riddles 4: Ghostly Park / Мистические загадки 4: Па
 ```bash
 magnet:?xt=urn:btih:D1184D1377977EDC11AA461B5EA6E5B8309441D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ The Harmony Chronicles: Chaos Realms / Хроники гармонии: Царс
 ```bash
 magnet:?xt=urn:btih:713CF90BE6014FF2B1D860161EED561CB5B1ED19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Hypnospace Outlaw – симулятор киберохранника в 90-х �
 ```bash
 magnet:?xt=urn:btih:CAD4EA12C805EE090A6989328D6DB9240473D811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

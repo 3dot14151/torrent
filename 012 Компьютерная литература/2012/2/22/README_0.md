@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:67715BF304021BA6C2395D6A6B99E9C747B34C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AutoCAD 2002 — мощная система автоматизированно�
 ```bash
 magnet:?xt=urn:btih:250D4F8EFCD1ABB2C9BD1C3F97DC0BFA725FC9CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EED7FA1C79991A75043C11939D82DE783679DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

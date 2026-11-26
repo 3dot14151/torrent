@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B96DBA8C3F98F0C9FAB5CF4693F751A0AF8A4DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Victorian Mysteries 2: The Yellow Room / Викторианские тайны. 
 ```bash
 magnet:?xt=urn:btih:6170290230D3B515B8F5B8D28EE2B357EF5C8EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hidden Expedition: Titanic / Секретная экспедиция: Титан
 ```bash
 magnet:?xt=urn:btih:3A976C11D5E74FC75A045A0F7C11AF42BB5957C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cases of Stolen Beauty / Дело об украденной красоте (P) [
 ```bash
 magnet:?xt=urn:btih:52E3B861A84B91E781DC4EF7FAC9072DAABEB354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ PuppetShow 4: Return to Joyville Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F593A10D280A42D04262414BCF32B6D2B28DDCD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

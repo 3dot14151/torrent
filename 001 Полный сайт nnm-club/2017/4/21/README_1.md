@@ -21,8 +21,7 @@ Alice Coltrane - World Spirituality Classics 1 (2017) [MP3|320 Kbps] <New Age, F
 ```bash
 magnet:?xt=urn:btih:296CC8D84C697A3E71AB0550D9B646726E7C9412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B91BB5C4A127F7E1E2472F728DF51D7DC7E6D277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Solarstone - .---- (2017) [FLAC|Lossless|WEB|tracks] <Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:73FBDE641C7923422E120DFB69F970ED713129AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Bonfire - Byte The Bullet (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:40FAB40E26FA07F2A78636CAFC995B931F51E7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F8BAA0A08932B22A1F71E92CA0DB27E680D2362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:67628F7EAF88944187905640C6AF7345485A24D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ TunesKit iBook Copy 2.1.2 [En]
 ```bash
 magnet:?xt=urn:btih:C8CAF0C36BCF143F66141D6550A30219825E6110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ AnyMP4 Blu-ray Player - комфортный проигрыватель Blu-ray 
 ```bash
 magnet:?xt=urn:btih:EA7EFB0E5DF7DE8F8AA961B07E9E8EA00747FDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C31E96195AA276B175178594D47192982C862B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Avant Browser Ultimate 2017 build 06 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:904D5B75DA5664575A8302E49B8D94A0885F8411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ DJ Khaled - Major Key (2016) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap, R'n'B
 ```bash
 magnet:?xt=urn:btih:7538B65B431D8AA3BEBD4136378F994B6DBFCCAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Gas - Narkopop (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
 ```bash
 magnet:?xt=urn:btih:B4E1B611106CD51248DED93E0AA18C185A790C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Contacts Journal CRM представляет собой мощный инстр
 ```bash
 magnet:?xt=urn:btih:76ED52983E4C78FB3C1CC8FCF58BC08F5AE655A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:000550FB7BE7ED447B046811A2DB84A968AE3E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Discovery: Братья Дизель / Diesel Brothers (2017) HDTVRip [H.264/720
 ```bash
 magnet:?xt=urn:btih:66E5A9ED133835F20F411A4571C23BED6F38A8B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Aiseesoft Blu-ray Player - универсальный в работе "все в
 ```bash
 magnet:?xt=urn:btih:18DEA80198652CE297615D5328791809F2D4FF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ Coda 2.6.3 [En]
 ```bash
 magnet:?xt=urn:btih:62D64263A38790EAE2986FC3A6F0AC0637503C7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:97C1FE723677728F7401E40B2CC6D76EFFF9DF32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F87B948937527B63F478A30AD5CB218A2DF4A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1263A486CE63173476E5C3B0B4C7C37FD3FC6915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ Image Vectorizer 1.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:163853EA551BDEEF64A778988D4206E9E53252FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D61D4A898A61AFE9882E5CB0570709C4E74A25C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87054C691894C173A37AAEB4B7512B04961FBE2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2160E29AFB3F32809E973AF0CA3C4BE8CC5B96E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

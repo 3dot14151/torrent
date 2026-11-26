@@ -19,8 +19,7 @@ Agatha Christie: Peril at End House / Агата Кристи. Загадка Э
 ```bash
 magnet:?xt=urn:btih:B4DDDED41FB140D244C3F31C2CB8733A61C848A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightmare Adventures. The Witchs Prison / Кошмарные приключен�
 ```bash
 magnet:?xt=urn:btih:CF6D66872DD6671D933A0812B6A97A90773473EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wildlife Park 3 / Wildlife Park 3: Директор зоопарка [En] (RePac
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wildlife Park 3 / Wildlife Park 3: Директор зоопарка [En] (L) 20
 ```bash
 magnet:?xt=urn:btih:61A70879D4A5B6C40BF0AFE8CF11D1B869FFCD9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Commandos: Gold Edition [Ru] (RePack) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:2FEDED3CB8B4DB9F575007D19CD3DE0442AA3F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

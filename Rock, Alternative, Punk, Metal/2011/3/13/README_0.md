@@ -28,8 +28,7 @@ Sylosis - Edge Of The Earth (2011) [MP3|320 kbps]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:C69F5EA720F9E378F5D52190D9C001785E94F7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:27504230A9393C4E85A7688CB921A9F1A93F6BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Dead By April - Stronger (2011)
 ```bash
 magnet:?xt=urn:btih:1056319A2712DB684AC351CCAB04E71B3E106BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Simon And Garfunkel - Parsley, Sage, Rosemary & Thyme (1966) remaster, 2010, Aud
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Sting - The Best Of (2011) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ House of 1000 Doors 4: Evil Inside (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:D03076869B7EAD42FC9F3B2F4745A0791306820E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hektor - это психологический хоррор с видом от �
 ```bash
 magnet:?xt=urn:btih:4FFCE45BC6614A4EFBB019F312FF82AEB2B2F130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Assassin`s Creed: Rogue только что была выпущена на ПК,
 ```bash
 magnet:?xt=urn:btih:E8CEDE94E51F9E475E1F1734C5924CAC3D5CEF8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hektor - это приключенческий хоррор, главный ге
 ```bash
 magnet:?xt=urn:btih:8E5CBD48E7208040DE96B41F5C3FC2A02BDD617A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

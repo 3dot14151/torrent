@@ -19,8 +19,7 @@ Deadly Voltage: Rise of the Invincible / Смертельное напряжен
 ```bash
 magnet:?xt=urn:btih:CED0C88F69835D32980DD4F9B1C6297AC29D08D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mortimer Beckett and the Lost King	/ Мортимер Бэккетт и Проп
 ```bash
 magnet:?xt=urn:btih:924596817818D9808AE6BFB0209803837DA2E3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nightmare Adventures 2: The Turning Thorn / Кошмарные приключе�
 ```bash
 magnet:?xt=urn:btih:9C0FC95F7E5DABBFA389200A8B4D824483033524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Witcher 2: Assassins of Kings Enhanced Edition (Patch/3.1-3.3) 2012-2013
 ```bash
 magnet:?xt=urn:btih:88A434E957F76ECDBEC7FB06C279C2708BD21603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Resident Evil 6 (Patch/1.0.3.140) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:8CFDCB93EA1CBFB231DE19A82D7554A59DE49D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Emergency Room: Code Red  / Скорая Помощь 3 [Ru] (L) 2001/2005
 ```bash
 magnet:?xt=urn:btih:29CF52E505123A7CBF2AB9A11C5853EB55AAE33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

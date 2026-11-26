@@ -25,8 +25,7 @@ Raw Material - Raw Material (1970) Reissue /2003, Akarma Italy/ [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:FF4D5FE8F54A1719076B84033AB0A57E4C25261E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Bliss Of Flesh - Beati Pauperes Spiritu (2013) [FLAC|Lossless]<Black Metal \ Bla
 ```bash
 magnet:?xt=urn:btih:D9A63C05B5E8E9DE520EEA0F79ACFE533690C43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEACECA48B140B2F4ACE8447D9F82B4F2988B639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Demon Eye - Leave The Light (2014) [MP3|192 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2B9809D2304EDA10ED6B69A1AB758CE52E5E0237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Joe Satriani - The Electric Joe Satriani An Anthology 2CD (2003) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:35543A253A519A3A9533C7DC68CE22E63DDABF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Bonus:
 ```bash
 magnet:?xt=urn:btih:A6F57EA48FA8CCF42EE0DF7F7C03A35EB4921B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

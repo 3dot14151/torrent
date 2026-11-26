@@ -28,8 +28,7 @@ Killing The Catalyst - The Next Chapter (2014) [MP3|320 кб/с]<Groove Metal / 
 ```bash
 magnet:?xt=urn:btih:711B9B8492C27890857FA2217AA0B34C571BAC32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Serpents - Pestilence (2014) [MP3|320 кб/с]<Symphonic / Progressive Deathcore
 ```bash
 magnet:?xt=urn:btih:4F15081A2983891F6EB6214E2A1AC4086ED7E25E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Fire In The Field - Gypsy Tea Room (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CCBEC2634F0A1CA07BE0BD4FD4A70832C95F7A42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90204F2A15F52990F1BD7519C474DC2EA4585F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB98214ADCD04499ECD7CD2F404CE05E1B405823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Alpha Rhytmika - Retina EP (2012) [MP3|320 кб/с]<Techno, Dark, Industrial>
 ```bash
 magnet:?xt=urn:btih:530E05517039809DF7C741EF575E8FDCB953D7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Ludicrous - Altar Boy Discocult (2014) [MP3|320 кб/с]<Melodic Death/Industria
 ```bash
 magnet:?xt=urn:btih:A50B68F373386765B3CBE82BE85F30D1D0821C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ Diesel - Into The Fire (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:40B03447B2F12D317BD92562E27E60DE586B7A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:766ACE9001418C4D56F0592759324F6F49EED817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ Henry Threadgill Sextett - You Know The Number (2003) [FLAC|Lossless]<Avant-Gard
 ```bash
 magnet:?xt=urn:btih:C491528690A13D15BFE87F6B51B4B118DB462F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F527E49A4AEA81F6E7AF4DA8D24BCC33E74168A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Stefan Torto - Ambion (2011) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Ambient
 ```bash
 magnet:?xt=urn:btih:6E5611ED47D90DF6E3BCB0B8CAC8E8FF3BE6D6D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ Mixersmith & Robotron - Radically Changed (2011) [MP3|320 кб/с]<Techno, Dark,
 ```bash
 magnet:?xt=urn:btih:BEA57D6F60F3E7426EC0D06422EA6D9F4C6B66C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ Noseda - Stormfactory EP (2014) [MP3|320 кб/с]<Techno, Dark, Industrial>
 ```bash
 magnet:?xt=urn:btih:97FB976F33BC80FC1240BAFE28E0BA333943B477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ The Indigo Kings - Contotallyfused (2014) [MP3|320 кб/с]<Swing, Jazz Vocal, B
 ```bash
 magnet:?xt=urn:btih:B38BB6A4C72D59851DA2143B0FB7E3E720950DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC9C340AC678EDB6C4D90FD0496AFACE92821C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ VA - Fifty Point Four (2011) [MP3|320 кб/с]<Techno, Dark, Industrial>
 ```bash
 magnet:?xt=urn:btih:6A9CBEEF739894492D132DB90CD99236B662D507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ Tyrone Rubik - Second Wind (2011) [MP3|320 кб/с]<Techno, Dark, Industrial>
 ```bash
 magnet:?xt=urn:btih:43764E2610E7E60C4ADFC090AFFD9735688A26DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ Structural Form - Visszateres EP (2012) [MP3|320 кб/с]<Techno, Dark, Industri
 ```bash
 magnet:?xt=urn:btih:C2F02B6A543F6FC3ACB1ABF935806D4F9E6404B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B82C3FA0094E8F4E8543420D82BCBB758E6CE744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ VA - Chill Me  Spring 2014 [MP3|320 кб/с]<Deep House, Nu Disco, Chill Out>
 ```bash
 magnet:?xt=urn:btih:970DF8CD97B7188C2461E90C0AA78004DDAC4FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +675,7 @@ Challenger - Challenger (2013) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:3D2B2632DBE48B933D10F130D45E509CDBF95A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ Hoth System - 2 релиза (2011,2013) [MP3|320 кб/с]<Techno, Dark Techno>
 ```bash
 magnet:?xt=urn:btih:C4C0DD923F4C3AC811E7D21B23CD39E2031895ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +737,7 @@ VA - Lounge Baloon (50 Chill and Deep Hits Selection) (2014) [MP3|320 кб/с] <
 ```bash
 magnet:?xt=urn:btih:D558F1E836921AC3FEFA05AA86E4505F8B82E00F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9405C6437C8D01C452F6BE28ED54F73B9E88904D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

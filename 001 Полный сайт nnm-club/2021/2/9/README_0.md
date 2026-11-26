@@ -21,8 +21,7 @@ Nas - King's Disease (2020) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:C5DA37896B51444D7B632270D2644ECC81972799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ J.J. Mack - You Can Make It Dancin' (1979) LP [MP3|320 Kbps] <Electronic, Disco,
 ```bash
 magnet:?xt=urn:btih:39AADE04907E3F75F10023F3BD30039467B72996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85F9D7110C2D1DA5D074541772E3153BD38CF5E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E2F569CDD0EB65809BD08AE89964B336F494E5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ KPlayer - простой и надежный видеоплеер для Mac OS 
 ```bash
 magnet:?xt=urn:btih:10F8A67127C3D45C1211BFFA9466F82A98EA0091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ W.E.T. - 5 Studio Albums (2009-2021) 6xCD [FLAC|Lossless|image + .cue] <Melodic 
 ```bash
 magnet:?xt=urn:btih:1644E5D737BBCC354A253499EC243B2A2D5EED4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Advanced Installer - приложение, с помощью которого, �
 ```bash
 magnet:?xt=urn:btih:304637435A3633C9AA4A9C228DFD99FE2FFEA7EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Anthony Braxton - Five Compositions (1986)1993, Black Saint [APE|image+.cue]<Ava
 ```bash
 magnet:?xt=urn:btih:2ADF1761A1BC61D206F7B557969231D0373E2EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Samantha Fox - I Wanna Have Some Fun (1988) [FLAC|Lossless|image + .cue] <Synth-
 ```bash
 magnet:?xt=urn:btih:676FA6530496E69D90E01B2C9ABA7675257C9F01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Opera 74.0.3911.107 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:DF2C8FE7DC76D4603FDF34390D053548247A474E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79564EC26662EC2F6EEA772D1175D337F80E8206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Lo-fi 24/7 Hip Hop Radio v3.80 [En] - Relax & Study Beats
 ```bash
 magnet:?xt=urn:btih:6B4C42D2874735899BA2CDCED772B161E4BF260C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09374D9557D59915182FF2338C9E7A8C3183C539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:91C7420D21B7BB235640C7B5D9212D51747EDB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1DEDF7C7205D407409917D0EFC32AF607C2E1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ CoolUtils Total Image Converter преобразует изображения в
 ```bash
 magnet:?xt=urn:btih:5CD89A7995F63E54F3702E54AEC8BF7A69836E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ Odessa Kane - Cuetes And Balisongs (2012) EP [FLAC|Lossless|WEB-DL] <Hip-Hop, Un
 ```bash
 magnet:?xt=urn:btih:ACF2C5AEF45458BD99171F157A7709DA5D25434E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Nimble Commander полностью оправдывает своё имя (в �
 ```bash
 magnet:?xt=urn:btih:A86AECB821406755A8390E7AE0643D88D7366993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ LuLu - это бесплатный брандмауэр с открытым ис
 ```bash
 magnet:?xt=urn:btih:85B697D75146C63DBF3F63C11E1C979A9AED72C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ Opera 74.0.3911.107 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8E3D3C44E26252CAFEB0B455D09E4DBFABE1CCC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. 
 ```bash
 magnet:?xt=urn:btih:AE24E7919051B07121D6B93C6A71DD22D52D41EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:5F4CF1D0270DA69C2397C3CD3812319FDA396A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. 
 ```bash
 magnet:?xt=urn:btih:18DE786B682A73F86427D89DAFD9A6E1C1F0E3B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D80683BF5C4805407E7038E18D59406B19D5B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C351E36FEF3DD41C5ADBB337A5174E4D817D0CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E14EE5123713AD87B14511BC25EAD7BCDCC5ED95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

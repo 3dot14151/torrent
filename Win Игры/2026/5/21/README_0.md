@@ -19,8 +19,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] (1.
 ```bash
 magnet:?xt=urn:btih:B660D1BB273AD800E896A6E4CEBB2EF4FA7C2B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forbidden Solitaire - таинственный артефакт эпохи CD-RO
 ```bash
 magnet:?xt=urn:btih:09B4512445915042146BEDE098C98684A95FB071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aces and Adventures - карточный баттлер, основанный н
 ```bash
 magnet:?xt=urn:btih:DD3FFB86AA7C3E68068354346E9D6F10362A7816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Black Jacket (2026) [Ru/Multi] (0.1.0.217_CL298670/dlc) Repack Let'sРlay [Suppo
 ```bash
 magnet:?xt=urn:btih:55B60D4BE08438BB5B28FB7CDFFD85A040458B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Forza Horizon 6 (2026) [Ru/Multi] (354.221/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:E21F3FF430AFE5286BD5D249A48D81062B450848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

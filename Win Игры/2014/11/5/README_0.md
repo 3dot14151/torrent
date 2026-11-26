@@ -20,8 +20,7 @@ Tower Wars (2012) [Ru/En] (1.1???) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:75EC9852D8695793DFAD79862A3312E98FA4DBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Tower Wars - эта игра включает в себя сразу неско�
 ```bash
 magnet:?xt=urn:btih:941387694B3CEB97A175A29E118A1B5030EA8384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

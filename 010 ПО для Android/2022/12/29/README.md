@@ -19,8 +19,7 @@ Lighting calculations / Расчеты освещения v5.3.1 Mod by vedsereg
 ```bash
 magnet:?xt=urn:btih:E8409FC9FD700FD1009892B86FF452B988EBDB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Electrical Calculations Pro / Электрические расчеты v9.0.5-h
 ```bash
 magnet:?xt=urn:btih:9B9AF7333D0DF1922ED45E3ADC7448957DC14BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ OTT Navigator PREMIUM v1.6.8.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C21F12A669C36418412991BC425A739FE6A74AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

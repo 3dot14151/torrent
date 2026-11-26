@@ -27,8 +27,7 @@ Gun Barrel - 2 альбома (2003-2007) [FLAC|Lossless]<Heavy-metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Amaranthine - видеоклип на песню  с дебютного альб
 ```bash
 magnet:?xt=urn:btih:40881F7E02A3C1F303822AEA077B2CD1F8F70E5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ VkBot 2.0.6 [Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:134C56E312C45EFBBC6E24565532BF0C0E350BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ V.A. - Come and Get It: Best of Apple Records (2010) [FLAC|Lossless]<Pop, Rock, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72E93A93385AB2D233285CD115F050E4D8F47106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D9D9B950E06CCF46D86866F3026B940D4198740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72185CE6D257A894040D8B5101FAB031C43D1B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ MKVToolnix 5.3.0.421 + Portable [Multi/Rus]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:213E4486897D83B8F1368CDEB3035CD54291045D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ SAM CoDeC Pack 4.00 RC2 Best [Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D1A00EB4EB8FEFE0BC3676F9C9995851E67F3B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ VA - Шоферской Хит 6 (2012) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:366CB18109D4DA6ACDCB3EA71A20A81AB70D6CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74375E3FC34E2631EACADFAE3AE93E2F93719A0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:470B055A155398BCF08602C75912AB37F3CE93F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ The Peanuts - Best Album (1992) [MP3|192 кб/с]<Dance, Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:0E3A1270C966397289E66AE5AA206DC5B3AE50D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ VA - Кружит музыка (2012) [MP3|192-256 kbps]<Шансон | Поп>
 ```bash
 magnet:?xt=urn:btih:55987AEE203636B524B5B41D41CFED9315F28378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82D5B950EE24236FBDD7ABC41C8BFE69ACAE017A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ VA - Generation of Psytrance Vol.8 (2012) [MP3|320 кб/с]<Psychedelic / Full O
 ```bash
 magnet:?xt=urn:btih:F8A23B9079126A7BC12FFDBDD6938165DEFFD41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ Soulfly - Enslaved (2012) [MP3|256 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4635BD7FC1DB20A19C9A71B356B7F544D76B4F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ Armin van Buuren - A State of Trance 551 (2012) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:47CAC63849C1EB92DBFFF586E96936F35341FFEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C90848ACBC2211CF0BA0BD08D042FAED12042DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ BurnAware - простая, но могучая программа для зап
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ VA - Самые Сливки Дискотек (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:47ABAB8B0E8923A20C2B2036CCEC5101009EF4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ Lotus Cars — британский производитель спортивн�
 ```bash
 magnet:?xt=urn:btih:768D878CF3B68154FA757431FAC12D7349276C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

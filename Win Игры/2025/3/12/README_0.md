@@ -19,8 +19,7 @@ Tales of Graces f возвращается в красивой версии, в 
 ```bash
 magnet:?xt=urn:btih:32FAF473EC7B28B53F5BAA59DD872B164CE3B88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:6984FAA5B42397BC200716CB3B8E98118AE73526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rising Sun: Iron Aces (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B6273D087A545991C065751C97117DBF7C70EDF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nightmare: The Lunatic — это платформер rogue-lite с элеме�
 ```bash
 magnet:?xt=urn:btih:909E261C4CF17B567D2B36E35C5EF9A9FD7ED4F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Trans-Siberian Railway Simulator (2024) [Ru/Multi] (Build 17516909) Repack Wante
 ```bash
 magnet:?xt=urn:btih:7F7FE7E8512B714D22703D3FCB095768F4B8EDEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ WWE 2K25 представляет вам непревзойденный сост
 ```bash
 magnet:?xt=urn:btih:9611965B66B539CC4BE3F4E6B487AC3779707C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Remnant 2 - это атмосферная и брутальная комбина
 ```bash
 magnet:?xt=urn:btih:448D75D464330A3180F852C205CA3C6C1E7C5E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Legend of Heroes Trails through Daybreak (2023) [Ru/Multi] (1.3.5.0/dlc) Rep
 ```bash
 magnet:?xt=urn:btih:9EF1DB107AD2C5B2C38B1CD0A4A666A38BC15B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Panzer Corps 2 - Field Marshal Edition - ультимативное люксов
 ```bash
 magnet:?xt=urn:btih:2500154D517319C7E4A7BD3513746325A9DE5B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

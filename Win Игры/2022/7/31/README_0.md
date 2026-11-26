@@ -19,8 +19,7 @@ Mini Maker: Make A Thing (2022) [Multi] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:3FF55E4D768EC8081CA491B0CD644F3F7E9FF476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Galactic Junkers (2022) [Multi] (1.0.1.0) License FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:D61557E107FBBC15FEF4FB63B150F37C5ECD221E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beholder 2 (2018) [Ru/Multi] (1.6.15770) License GOG
 ```bash
 magnet:?xt=urn:btih:59946EF658A5B747F69B4DFFEE5704F0A4CBE80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cross Fire – один из подобных воодушевленных пр�
 ```bash
 magnet:?xt=urn:btih:C1DD385BD5670F5A60794E381D6B22D676AC13FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Noctem - это психологический хоррор от первого 
 ```bash
 magnet:?xt=urn:btih:966E456F94DE489BE6D25BB8207D250DBF16757E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Swallow - это психологический хоррор от первого
 ```bash
 magnet:?xt=urn:btih:81BBC6F4D478EE6A4F3DEC209188F094E64DD86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

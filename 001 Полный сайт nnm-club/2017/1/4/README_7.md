@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B8B8450DF802D56D6F50D0AD8EEE0B289A7D9A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ WARSHIFT совмещает в себе сразу несколько жанро
 ```bash
 magnet:?xt=urn:btih:CE6742137EAD8A264874B81375931C00435F2B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ The Binding of Isaac: Afterbirth — это аддон культового ин
 ```bash
 magnet:?xt=urn:btih:6B0F99DB43C79C4FB25B41F5B289AF479EB0114E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Moto Racer - аркадные гонки на мотоциклах. Изнача
 ```bash
 magnet:?xt=urn:btih:B836E684D0232B2ECFEA59A9EF2BF32A578D411A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tor Browser 15.0.24 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:52B9EA55ED15085CED84081B5F46EE055EF8C6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

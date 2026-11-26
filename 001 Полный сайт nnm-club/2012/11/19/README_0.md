@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8143158302BA7B9538DC974ACD3AF2D5D620C9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alisher - Компромат (2012)  [H.264/1080p] WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:93310584671C0FB9610ED2A135CA0493ABCF5673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nature HD Wallpapers (17.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:768BA7532E932430EB6A587133A44698C4F02D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE0185495BB1A6DD856C8D3118840DDCABBD70DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Usher - Numb (2012) [H.264/1080p] HDTVRip
 ```bash
 magnet:?xt=urn:btih:9B63666303AEC5F9BCAE974374F6811FF48658E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Kwartz - Spiral Of Silence EP (2012) [MP3|320 кб/с]<Dark, Industrial, Techno,
 ```bash
 magnet:?xt=urn:btih:D73D7948C4048E3BEB145D1FDB256BEE011CCB1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Space Wallpapers (18.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:295CB6EC8975396D897DC544EDC5266C736B0C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61BB23A950D3A62E3C6871C8A59D3404D5F07758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Best HD Wallpapers Pack (18.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:B8315B5F7F3070E0E26CBD71B556E55F628EEE99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ VA - Easy Summer Top 30 Summer - Spring (2012) [MP3|320 кб/с]<Lounge, ChillOu
 ```bash
 magnet:?xt=urn:btih:74B36F44F6E0281CB9B335EC5BD6A902189288FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Usher - Dive (2012) [H.264/1080p] HDTVRip
 ```bash
 magnet:?xt=urn:btih:056E18E5D7089609560D09C6B404AFB0A72A2696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Abstract Wallpapers (18.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:789F207F71F2B95D7C6F9D37BE02AFD8843315C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ VA - Super популярный осенний Хит №32 русский (2012
 ```bash
 magnet:?xt=urn:btih:C6F22DD97F9624D4BDEC7BB4DA7B21C905CDE33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #102 (2012)
 ```bash
 magnet:?xt=urn:btih:0FD38A88CBD389F26A573AFFCCC158A9334F7BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E3A09D65D977FF1229A80DF1ABD04A6F2D3D964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Shadow Wallpapers Pack (18.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:43FAEBBC849E1B450404D8591F33FA42FE3B3A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FA2682DA467BC9AA2725630D3D2C313D7E801DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:051DDCC795DB63EACC149BA732E2247346E28134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Ludacris - Representin (Explicit) ft. Kelly Rowland (2012) [H.264/1080p] HDTVRip
 ```bash
 magnet:?xt=urn:btih:4459BA3506CE17F6F6AA113080EFD5E2A8A65C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD6FBFE85D1B4CAC13181B97213A54F97FCD45D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FE53CF7ABD0BCA0A490B4DAB9036DD831EEA7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E12028ADFDA5C79B0681FE55D3BF6F89087C7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ VA - Ночной клуб Record 4 50/50 (2012) [MP3|256 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:7F1B3CDDD592B10EE289F69E75046D1ED365E419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ VA - Luxury Chill Beach: Maldives Buddha Resorts (2012) [MP3|320 кб/с]<Downte
 ```bash
 magnet:?xt=urn:btih:2FA402DD383D1800DE4C44A42687A652D501DBE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ VA - XXXL Чисто Зарубежные Новинки (2012) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:2906A4F1782C0DF6CBC68B522C5208C0282B2200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B19BE52C917478056CEF5BE8F51A96DDEC677B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

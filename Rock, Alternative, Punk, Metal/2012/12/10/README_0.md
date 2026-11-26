@@ -28,8 +28,7 @@ Dimlight - Psychosynthesis (2012) [MP3|320 кб/с]<Dark/Death/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:7F606CEF59CF675C8D2143BCCDE9968E24C9FC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Impera - Legacy Of Life (2012) [FLAC|Lossless]<Hard Rock, AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Illdisposed - 3 альбома (2009 - 2012) [FLAC|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E3E64109050996B14C76054C9B53DC3CEE41AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Imprintband - Птица - Вечность (2011) [MP3|320 кб/с] <Христ
 ```bash
 magnet:?xt=urn:btih:9DE633574542E842A4EBADB7240DB133858A971E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Built to Fall(   Читать дальше...   )
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

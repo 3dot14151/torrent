@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DDC9C867D5EF8A05371C5E428CA58541E1C13294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56D7A9101FBEB6764023F354F4E15EBDC12070A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Daily Magic с гордостью представляет новую игру �
 ```bash
 magnet:?xt=urn:btih:CF608B3546284A02A3462D7861D38DCC8446F707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Thomas Newman - Finding Dory / В поисках Дори (Original Motion Pictu
 ```bash
 magnet:?xt=urn:btih:AFE5E6C8AA5AB400F43519D71B0E5652F115E713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ AnVir Task Manager предоставляет подробную информа�
 ```bash
 magnet:?xt=urn:btih:95F9AEB570C4D766274701552013638A6DF28EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ De/Vision - 13 (2016) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, New Wave>
 ```bash
 magnet:?xt=urn:btih:0B66F89CB50500170675BA8991DC4508F24FE09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFE3BB3674E9681C3406D2A591B821F2187C82A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73B23259D0E91D99D7F42694E92074BDB7B04D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Top Of The Town V2 - проект для создания трейлера к ф
 ```bash
 magnet:?xt=urn:btih:E43C0FE5F11A1DE1D08EAF9DEC25EE3AD8D94FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2432B332245CDC642992789F1FBA6FB7A904E7F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Parallax Slideshow - представляет собой современный 
 ```bash
 magnet:?xt=urn:btih:D59FDF467693B29F9282ADDE3A09A7A7523CEC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26DBA5ABD3A297ACD682454F453B3D2C939D1556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7997023C41603A49C5E7C0B449786A6000B5CAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Sparkle создана специально для веб-дизайна и ст
 ```bash
 magnet:?xt=urn:btih:735A95DE3E3672FB904A235DFE94D822CB649179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BE533CFB91BFAE3F1F1983C6396D8922604F288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A22EABC22BDB90009432F21A17D37ACC814DA817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Nemesea - 5 альбомов (2004-2016) [MP3|320 кб/с]<Gothic, Symphonic, In
 ```bash
 magnet:?xt=urn:btih:B931BDF111D39B93DB72732AF1DC22F7E40E05D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ Windows Repair - инструмент все-в-одном для ремонта
 ```bash
 magnet:?xt=urn:btih:78A4BC927DD5C3E2D41438CC5B05A3338ABB8A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:435E34AF330FE5674F94B35E1C8F1B4C1DEB3AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ VA - Дискотека 80-90 годов по - новому C.C.Catch (Зару
 ```bash
 magnet:?xt=urn:btih:2B78721D7D224FB646896ED0DE31F5CF4917BFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ Hans Zimmer & Junkie XL - Batman v Superman: Dawn Of Justice / Бэтмен пр
 ```bash
 magnet:?xt=urn:btih:A9DE33AA3018E7306E791535A573B88BBE885392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DDB37B3AE91122F9AAF1978059903CEFC414251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ Spirit of Revenge 3: Gem Fury / Месть духа 3: Самоцвет ярос
 ```bash
 magnet:?xt=urn:btih:29F796FDDA8AAE6D1B8F8924869F5455FE450D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FB4D34AF633F7B7B2AFEBB11BD87D9071BCEAEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

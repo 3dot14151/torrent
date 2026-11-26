@@ -22,8 +22,7 @@ A4 Sabbra Cadabra • Саббра Кадабра(   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:8F3153064D4C14D10A793B331CA37198DBE2E20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

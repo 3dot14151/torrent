@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AF131636FD5AEDF6614EB3469082793BD385318F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CrystalDiskMark - утилита для сравнительного анали�
 ```bash
 magnet:?xt=urn:btih:E42E928D7CE2BCAD317105DC43733DD68728348A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PCMark 10 — это простой и удобный в использован�
 ```bash
 magnet:?xt=urn:btih:F24D7FB99258CD7F35C15506C66A86F6323321AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MediaHuman YouTube Downloader 3.9.18 (1402) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:75E00A79BF6A923E70471EE5898DD67F1124BF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:298DCF1C4064322F0421D608B9DB71E58856AD95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Throne – это программное обеспечение, которое 
 ```bash
 magnet:?xt=urn:btih:B26D977FE816967AA3EDCDA1FA34621CC4D434F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5D13A82B901FD17577E129A289F15B2EA84EC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:9C269A49154F751657F2E44B0CF93F12D67176BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Air Explorer Pro — один из лучших файловых менедже�
 ```bash
 magnet:?xt=urn:btih:E7FB8F5AD386CAF81EE104BC44BBF2BCDE12D422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Total Commander – самый популярный файловый менед�
 ```bash
 magnet:?xt=urn:btih:B8E5B4832D56BF985966C57969704651F08D4000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Total Commander Ultima Prime — это набор утилит и разноо�
 ```bash
 magnet:?xt=urn:btih:097D25E231FF5E06E57E6D1F4EFC16CADD2A927D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:D8414D98094222AD8157F4C0D62F9E23EA3937A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:2313FF5B38F0D928E9AFF4700785F5054CF1B106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Hard Disk Sentinel — отличная программа для монитор
 ```bash
 magnet:?xt=urn:btih:F46B462BB9B995ADF04B40D937248B1B7D5B9E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:317929E94D8EF1DC72246165C3976E804CACB3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

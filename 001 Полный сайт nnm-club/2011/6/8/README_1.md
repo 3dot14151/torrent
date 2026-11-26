@@ -18,8 +18,7 @@ Google Chrome - веб-браузер производства Google с отк�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ HdO Adventure: Dr. Jekyll & Mr. Hyde: The Strange Case - Extended Edition (P) [E
 ```bash
 magnet:?xt=urn:btih:66C6D354F9D06F8153B103FF33211FE14403AED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Sarah Jarosz - Follow Me Down (2011) [MP3|224 кб/с]<Country, Acoustic>
 ```bash
 magnet:?xt=urn:btih:05826AFECB24D190FF5BF0D31C1B5DF7EE28FC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF82942441F34B654808F27A7C779A9B9C4AB7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ CPU-Z - крохотная программа, которая сообщит с�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B16E7B6A560655F907637FC0A85F1FD4B55101C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Easy CD-DA Extractor - один из самых универсальных па�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Loscil - Coast / Range / Arc (2011) [MP3|320 kbps]<Ambient>
 ```bash
 magnet:?xt=urn:btih:636C3EA20A2C88E376A215984E76143DD7531FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - DJ LEV - Fresh Dance (Summer 2011) (2011) [MP3|320 kbps]<Electro House,Club
 ```bash
 magnet:?xt=urn:btih:E60D0BCA7463ADAE539CB86E6053E18AFB0D91C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90CC99C159C01756C13961FB3D27224359619307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ VA - Masters Of Memphis Blues (2004) 4 CD Box Set [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ Bruno Pronsato - Lovers Do (2011) [MP3|320 kbps]<Tech House, Minimal Techno>
 ```bash
 magnet:?xt=urn:btih:C62D19644FF38BA5966FFF210D726C0A9F78BAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Playboy — классический мужской life style журнал!Фо
 ```bash
 magnet:?xt=urn:btih:EE6AFFAF3ADD9F9C23AC4D384AFAA5501573E53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EB23168AD8E0F00D5D00C487D262AF9C2B136B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Seecrees - Genesis (2011) [MP3|320 kbps]<Cyber Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:CC94F3834883CAAF8BA8F2D8ECC7C4AE2082A8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ In Flames - Sounds of A Playground Fading (2011) [MP3|192 kbps]<Modern Metal>
 ```bash
 magnet:?xt=urn:btih:430ACC8ED930319C721C703685031E41213C1D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ Magic Acoustic Guitars & Palatzky & Waßer - Ohne Worte... (2011) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:403880E62736E0E92B198248D35C3CC235F67E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:862A581058EEDDC8E9C779BDF2FC553F6A7B2C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ Benny Benassi - Electroman (2011) [MP3|243 kbps]<Electro House>
 ```bash
 magnet:?xt=urn:btih:78D18349B59607C56ED1DD57C6C07056BA2B4E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ VA - Amnezia Super Hits 59 (06.06.2011) [MP3|320 kbps]<Dance, Euro Dance>
 ```bash
 magnet:?xt=urn:btih:098C7229B3F98A07F25F3810ADD98465BFD40B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ NHL 10/11, SC: Финал, матч №3: Boston Bruins vs Vancouver Canucks (06
 ```bash
 magnet:?xt=urn:btih:FFB057FAAA8B9B840116B3606B12E0E7BEC87746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:139FED69A6EECF154F13CEC503A3738A98219751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ло
 ```bash
 magnet:?xt=urn:btih:8F17031F3FE53D42481537DB6F39BBDCD8DA038A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Total War: ATTILA - новая часть прославленной страт�
 ```bash
 magnet:?xt=urn:btih:6F562A472B5D3B256C9BED5EC37F8BC62F064CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Sprint-Layout 6.0 - это простая программа для создан
 ```bash
 magnet:?xt=urn:btih:EE1867751A85D618BE324E3874E7B5C5777FD5C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D40CE44A81748CA438900B1D6E7AF57037C29906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VA - Vocal Dubstep Vol.1-14 (Обновляемая) (2013-2015) [MP3|128-320 к
 ```bash
 magnet:?xt=urn:btih:3826D76477ADCAE21B8F456A10D04822372D21C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Mad Max (2015) [Ru/Multi] (1.0.1.1) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:08E9C7BC3C49B50A849981636857995E93C7165F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

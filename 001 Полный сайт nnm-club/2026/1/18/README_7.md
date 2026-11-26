@@ -19,8 +19,7 @@ Hanazakari no Kimitachi e | Hana-Kimi | Для тебя во всём цвету
 ```bash
 magnet:?xt=urn:btih:A3E08ED193AC34609D613A887C036616A3CE2D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ikoku Nikki | Дневник другой страны [2026, TV, 1 из 12] WEB
 ```bash
 magnet:?xt=urn:btih:939D485CE0B3A4810638E88A044328572A5CAF2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Gnosia | Гносия [2025, TV, 12 из 24] WEB-DL 1080p raw
 ```bash
 magnet:?xt=urn:btih:765CB8922F5E9B7900B087E6B778EE2F5D630200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

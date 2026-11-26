@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:0980A228B8BCCAC4AECBC4D342D757AF7F5607B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ AC/DC - Rock Or Bust (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:93B8336B743045F0A7B46A13BB4F04DD3789E762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Metallica - Helping Hands... Live & Acoustic At The Masonic (2019) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:9F5FEDBB5DEC986C2A4371600553C8B2474B283A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Green Day - Father of All Motherfuckers (2020) [MP3|320 Kbps] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:A63D5526E9FC58DF7FED21D8FE9903098BE53B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Annihilator - Ballistic, Sadistic (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:7C3944ADDD99EE1A541FD504CC1E09EE13031D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Metallica ‎ - ..And Justice For Jason (Limited Edition, Enhanced and recovered
 ```bash
 magnet:?xt=urn:btih:2742E30CBAD15E8691706ECA82F65D97BFE1F8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

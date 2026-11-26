@@ -19,8 +19,7 @@ You Deserve - игра в приключенческом жанре. Вы ник
 ```bash
 magnet:?xt=urn:btih:F45F9B29743C38FA4597FF3D48CEFEF62B19C9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Last Will - это приключенческая игра в рандомно-�
 ```bash
 magnet:?xt=urn:btih:AFA05DAE2E1B97F47733836BF26CF5AB30804DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ You Deserve - игра в приключенческом жанре. Вы ник
 ```bash
 magnet:?xt=urn:btih:4BA15E81667F96E94D09914C5C4028354CD3E860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Fall of the Dungeon Guardians представляет собой броди
 ```bash
 magnet:?xt=urn:btih:F3C9C075DB065D59DAF03E8D89EF631EDDD1BA74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Savage Resurrection – возрождение классического мно
 ```bash
 magnet:?xt=urn:btih:EAA2370F40B80712FC83391B349D3C8F0147079B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Forge of Empires (2012) [Ru] (1.82) License
 ```bash
 magnet:?xt=urn:btih:6FD9E6FC3710C28E6B32EB7754B8478B9CFFE0B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

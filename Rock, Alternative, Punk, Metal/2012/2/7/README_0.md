@@ -28,8 +28,7 @@ The Maccabees - Given To The Wild (2012) [MP3|320 kbps]<Indie Rock / Alternative
 ```bash
 magnet:?xt=urn:btih:13A0F7BB49876ACC4A203196FBB963C75A50A96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Lord Wind - Ales Stenar (2012) [MP3|320 kbps]<Darkwave / Folk / Medieval>
 ```bash
 magnet:?xt=urn:btih:C68A0684C4B3B9F76C1CA1F7966C21202F998A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:3E5CD758BC0E65DDDCE0ADDAB4B4D074D661F97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Hell In The Club - Let The Games Begin (2011) [MP3|320 kbps]<Heavy Metal / Hard 
 ```bash
 magnet:?xt=urn:btih:225FF01E8D63263111EBCB9A96BE3F816FF5006D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:FD82A93A18741FB9DCB834A709C4D8F81AC0BBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Deep Purple - Singles A's & B's (1993) Digitally Remastered /2012/ [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

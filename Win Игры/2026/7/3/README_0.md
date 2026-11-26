@@ -19,8 +19,7 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 ```bash
 magnet:?xt=urn:btih:EE80CE99721F5C325E8BB022357EF5D33726225F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ House Flipper Remastered Collection (2026) [Ru/Multi] (1.26155) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:925A26BA1EDB0602A2498C827D68E6BE28CAA8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kebab Chefs! - Restaurant Simulator (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AF046108C7189E38047404C77DB8548AE7358458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Romancing SaGa 3 (2019) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A1C2711DADF14FF33A25F73A591C99AB026464A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Log Away (2025) [Ru/Multi] (1.5/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7B1912D63FEAA02DD299DCEDF2B31CCD6EDCCFBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Artifact Seekers: Season 4 (2026) [En] (1.0) Unofficial [Collector’s Edition]
 ```bash
 magnet:?xt=urn:btih:E90821D2C27593C13B7E93DE5602FCD1032CF8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Fruitbus (2024) [Ru/Multi] (1.0.12) License GOG
 ```bash
 magnet:?xt=urn:btih:527F9C8C5339E33BD920ADA26DFD12B47446C0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

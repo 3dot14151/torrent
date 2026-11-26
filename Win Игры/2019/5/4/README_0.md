@@ -19,8 +19,7 @@ New York Mysteries 4: The Outbreak (2019) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:6CD7E3B55D19F599A9F65BAA025E377606478FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DEAD IN VINLAND — это игра с элементами выживания �
 ```bash
 magnet:?xt=urn:btih:A469DD4C6700D8C9552BCC7951E72E7763BA5828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DEAD IN VINLAND — это игра с элементами выживания �
 ```bash
 magnet:?xt=urn:btih:7172AB92CC73AB91F4BB51793CD1F1B581FD0DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Clue/Cluedo: The Classic Mystery Game — игра, в которой вы ок�
 ```bash
 magnet:?xt=urn:btih:6EAB464CB638E46D3C61D7E18B644F93B380463C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0/upd6) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C6013D7FDE5B5775541CEAA29C10207592771F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

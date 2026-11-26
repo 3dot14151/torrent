@@ -19,8 +19,7 @@ The Blackwell Unbound (2007) [En] (4.5) License GOG
 ```bash
 magnet:?xt=urn:btih:C2A7378ABE23C3DA15BD1F652A6EC86FCB0D41B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

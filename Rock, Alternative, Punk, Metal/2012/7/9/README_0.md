@@ -27,8 +27,7 @@ Domination Black - Dimension: Death (2012) [MP3|320 кб/с]<Symphonic Heavy Met
 ```bash
 magnet:?xt=urn:btih:6A46EF7802F361008A3E2BB62A30C7121B618F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Motley Crue - Loud As F@*k (2003) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:041875F15A34D2145A7592F4D364686333FCEF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Mat Kearney - Young Love (Deluxe Edition) (2011) /2012/ [MP3|320 кб/с]<Indie-
 ```bash
 magnet:?xt=urn:btih:B12CE2EB6D08EC934014BCC79D4CC6DA6B6D1DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Vladimir Kuzmin - California Rain (2012) Bootleg [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EE7AE4AAB3AB0415956FB8FD2DA04DB81BCE2683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Serj Tankian - Harakiri (2012) [FLAC (tracks+cue)|Lossless]<Alternative Metal, E
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

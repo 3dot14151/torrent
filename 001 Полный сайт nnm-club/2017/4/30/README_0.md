@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:6BA9B77B3FBDF89510D718BDC7069597743940F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ App Pier представляет собой клавиатурный пуско
 ```bash
 magnet:?xt=urn:btih:284FB9C6AE31DA1B8C2703291BF431FA2A7242F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Until Rain - Inure (2017) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:10E5957FAA6CB24DFEB659AF484FBD2E7CD02124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Emerald - Reckoning Day (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Melodi
 ```bash
 magnet:?xt=urn:btih:A8FC5E172155457F8F0A185FC1AC52605D774C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Keosz - Ava (2017) [MP3|320 Kbps] <Ambient, Dark Ambient, Drone>
 ```bash
 magnet:?xt=urn:btih:F50FDA4996676D1CE2F9A89ABBBC0F1AE944F882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE89F3F5D89DB10C3E241961832D3E9E8CDEC42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ VA - Electro House Party (2017) [MP3|320 Kbps] <Electro House , Club House>
 ```bash
 magnet:?xt=urn:btih:FE27EC9841D3F4C50914011D84888C4EDDB86087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - Chilli Vanilli Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:F52A62A45EDD283CF5D7D641E0D593189C41762A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Hideous Divinity - Adveniens (2017) [MP3|320 Kbps] <Technical/Brutal Death Metal
 ```bash
 magnet:?xt=urn:btih:C68B375EF840BF7752E323E15BF61AD3B385C736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Limelight - Limelight (1980) Reissue, 2012, Flawed Gems [MP3|320 Kbps] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:3A2E1F7DEDC36D358C9EFBDA727503B40AC8E171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:588F66E965785455B38D06AF5B22B7B3E714F735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ VA - Mush-Up Dance Music (2017) [MP3|320 Kbps] <Club, Dance, House, Mush Up>
 ```bash
 magnet:?xt=urn:btih:0543F8EE33C1E305B4FA8600CA52C91BB4C8E561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Alina Baraz & Galimatias - Urban Flora (2015) [MP3|320 Kbps] <Electronic, R&B, D
 ```bash
 magnet:?xt=urn:btih:E6034F11DB33C9A7694F09E69269BE8D6AA5BCFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Wille And The Bandits - Steal (2017) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:0C803DDD2D3A1C202617E5F218544E35573ECCEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E91DD4CD761979DBCB4926E79DBDE6A553B5E80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F25D6C2EE07FF1666FF6F290BE4EFE800EF8BA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1275C34B10CB9974CFD4CAEA43D5529ACB0FC26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Watermelon Slim - Golden Boy (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
 ```bash
 magnet:?xt=urn:btih:B450055DFCA058CE4F6228BF5AE538CEF30793CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ VA - Forgotten Memories: Dubstep Trap Bass (2017) [MP3|244-320 Kbps] <Dubstep, E
 ```bash
 magnet:?xt=urn:btih:928CC9EC85E5094FAFB8A98172EF7697E32C99D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Disbelief - The Symbol of Death (2017) [MP3|320 Kbps] <Death, Thrash, Sludge Met
 ```bash
 magnet:?xt=urn:btih:FCE096739EF1A39AC67D0A95345937A89B241776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ Gallina - Самолёты не летают (2001) [APE|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:FE5753FF2AB9B8596EBBD854B2688367EB8A7288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CBC46C451510A6C3C7C87B0CE03D0FC8FF3E690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ VA - Empire Records - Club Hit 13 (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:7B5C245789D100C4151EC8A01991C20BE63DBDF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ Sverre Knut Johansen - Contact (2017) [MP3|320 Kbps] <Electronic, Ambient>
 ```bash
 magnet:?xt=urn:btih:FD441574E24BB018995CC754FCFEAFD0226B96D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Leaf проще как по функциям, так и по внешнему в
 ```bash
 magnet:?xt=urn:btih:8AC93A87554AC8F5F19B7E8790F8F42C51998348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

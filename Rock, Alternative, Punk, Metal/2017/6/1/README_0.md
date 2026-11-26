@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:FF7A6822423EA5F50A1097A12A2898B79C7688E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Unruly Child - Unruly Child (1992) [FLAC|Lossless|tracks] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AA03A9E9FB3DAC5C88E3819B136CA8119C891203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Roger Waters - Is This The Life We Really Want? (2017) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:0BB815DE421B2F3412543AA1D9757B6361932D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

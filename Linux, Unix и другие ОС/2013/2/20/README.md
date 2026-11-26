@@ -21,8 +21,7 @@ ArchLinux 2013.02.01 [i686 + x86_64] (1xCD)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

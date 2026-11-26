@@ -19,8 +19,7 @@ Clairvoyant - The Magician Mystery (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:EFD28D13EAFB0CCA7AB3A04991C8FD8622A47394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shattered Minds 2: Encore / Расколотый разум 2: На бис (P) [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Lost Crown: A Ghosthunting Adventure / The Lost Crown: Призраки из
 ```bash
 magnet:?xt=urn:btih:85550894C71816C5AFB4D74CE555E67B4AE232F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Botanicula [Ru/En/Multi12] (Repack/1.0.0.7) 2012 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:51F6528ABF271394C31420CF96865BA9C024598C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

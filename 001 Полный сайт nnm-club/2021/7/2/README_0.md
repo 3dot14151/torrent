@@ -21,8 +21,7 @@ Escape - Fire In the Sky (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:9BA79E7139DD7140DC063ABB9EC8D722D6AEFAD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Beatport Deep House: Sound Pack #310 (2021) [MP3|320 Kbps] <Deep House, Ele
 ```bash
 magnet:?xt=urn:btih:4E4728FAB8C423B0D3440934049AD44C77CB81AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Mp3tag - мощный и простой в использовании инстр
 ```bash
 magnet:?xt=urn:btih:83233BFBA390C0698B85DA02B804FA7BBD2FFCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Super Vectorizer Pro для Mac, уникальное программное о�
 ```bash
 magnet:?xt=urn:btih:8B90FF68609B406F7BEBF1F25766027F4E7B267A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Les Brown - Giants Of The Big Band Era (1993) Pilz [FLAC|Lossless|tracks + .cue]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ DjVu Reader Pro предельно простое в использовании 
 ```bash
 magnet:?xt=urn:btih:4429D8F14AFCEB2C1A0164AC23DE4EA3A4B18796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C65F0C16EB8A1025D53CF9023630102108AE9358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68EA8C606310AC6BAED3A67757139F35574A8D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ AlimkhanOV A. - We Are The Universe (2021) [MP3|320 Kbps] <Spacesynth, Synthdanc
 ```bash
 magnet:?xt=urn:btih:160B79F44EFBEF0DDC4858D62396221ED87DF8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BD6DC173483ECDA6C0721CFD03752C4BE6B15C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:2B1E73DB7F20023BEF06943AEC3ABB2E5CF7DC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Sketch - это новаторский и свежий взгляд на век�
 ```bash
 magnet:?xt=urn:btih:8198A5FC4EAAB051F14AD95EA46C1406DF3EB6B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ A-Zippr - небольшая, довольно простая, быстрая и
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ AlimkhanOV A. - We Are The Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Spaces
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ Pixelmator Pro — это невероятно мощный, красивый и
 ```bash
 magnet:?xt=urn:btih:2F62DAF9B614577A6478A94690FD2794D48925C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:847E983DFF7D0BFAF58BC806C3F5276A756A1B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ Audio Hijack - отличное решение для аудио записи н
 ```bash
 magnet:?xt=urn:btih:9F339197152F86B516385A67E095D9B2328871AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Frank Duval - Lonesome Fighter (2021) [FLAC|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:4B8425F2D37E86CEB138B0611D659C99848512CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Carbon Copy Cloner - утилита для клонирования дисков
 ```bash
 magnet:?xt=urn:btih:ED2FD6C744353D64CD352E44B3B0DDF009B83136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:0903EBEDEC0E07CF38DBA4B4A41B07D275D71D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ Maxthon Browser 6.1.2.1800 Beta + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A159F7040F4D640ADE81E24E17829F4243D07996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ Santana - Splendiferous Santana (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:E2DF167AE5F056D78972BA24BBC75AABE03277F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:22E1B0C78FAF09311C95EB0E428B92898BF2A5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Pink Floyd - Wish You Were Here (1975) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
 ```bash
 magnet:?xt=urn:btih:91891C2E119EB87B576C1C8C3706B6B254F4835B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

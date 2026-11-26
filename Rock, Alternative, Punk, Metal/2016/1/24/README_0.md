@@ -22,8 +22,7 @@ Antti Martikainen - Set Sail For The Golden Age (2016) [MP3|320 кб/с] <Epic M
 ```bash
 magnet:?xt=urn:btih:FA5C0161751C2FCB24C0BA0CBBE23C7F2773991D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Primal Fear - Rulebreaker (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:BBD7060B8175B3AD5F7733131785720B354B78D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Covered In Blues (2014) [MP3|320 кб/с] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:45AE6D28007CD4E713AB2B9C74198ED1DC417EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A07A2B255AF921B0F1F5EDB55AD74E77F4E5B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dire Straits & Mark Knopfler – Private Investigations - The Best Of (2005) Com
 ```bash
 magnet:?xt=urn:btih:638DD20CE6913F5CEE2B26C8D751D50242EF673F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

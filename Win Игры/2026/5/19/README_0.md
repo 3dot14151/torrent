@@ -19,8 +19,7 @@ The Midnight Walk (2025) [Ru/Multi] (1.0004) License GOG [VR]
 ```bash
 magnet:?xt=urn:btih:62D4E0E70874655BD8786ED92EFCBB7E72770256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forza Horizon 6 переносит гоночный фестиваль на те
 ```bash
 magnet:?xt=urn:btih:FBE4209B205862252A0E10C0AA40AAEC4FA78457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MOTORSLICE (2026) [Ru/Multi] (Build 23164180) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:02375674AB3D03D26905E01177C5651B9708E67B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Better Than Dead (2026) [Multi] (0.190) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:05F5E5D18F59F515637B8C20118FBD9C51F721F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dark Dominion - мрачная Souls-like история о человеке, п
 ```bash
 magnet:?xt=urn:btih:8F41CEBC4EBF1CA1E24FE1BA9230272CABC7D3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crimson Oath (2026) [Ru/Multi] (1.4.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:37332F7B54E527751FCED3C1F05AE71498626212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

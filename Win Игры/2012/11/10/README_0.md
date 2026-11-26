@@ -19,8 +19,7 @@ Island Tribe 4 [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:3AC8EE60FFF019801CB4AFB5245BD07772E9B13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Weird Park 2: Scary Tales / Парк Ужасов 2: Жуткие Сказки [
 ```bash
 magnet:?xt=urn:btih:33D645165AC6B258E827952734F4186285685E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Druids / Друиды. Тайна блуждающей башни [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:F955E57BC604CEEC2D4045094334081EABBFEF79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Island Tribe 4 / За семью морями 4 [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:82EE90C01E601D3A8CC115E30D06881591229A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Emergency 2013 – дополнение для игры Emergency 2012: The Ques
 ```bash
 magnet:?xt=urn:btih:6CBFDF25DA93E7CDC60988A8F01A9A094AA9A3FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Deponia 2: Chaos on Deponia – это продолжение чарующего
 ```bash
 magnet:?xt=urn:btih:9C85A0A8AA91CDA9DBFA6FB36FE0E3DAA622A8BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

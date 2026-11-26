@@ -22,8 +22,7 @@ Kreator - Violence Unleashed (2016) EP [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:206F7419B5D2A70D81929840BD3DECCA22EEEF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

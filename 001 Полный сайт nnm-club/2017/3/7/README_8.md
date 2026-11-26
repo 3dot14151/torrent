@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:1106517FFFA651183B6289107F74320B5039CFD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Syncopy Recordings Trance Anthems (Mixed by NG Rezonance)(2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:BEB3C5DD3FC0ED1B78EAE5DF32C342130E3C7127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ George Cables Trio - I Mean You (1994) SteepleChase [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:F0D1504465ABCBAE67204617685E91427E353FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ George Cables Trio - Beyond Forever (1992) SteepleChase [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:9978D5470F1FA6F0AE4F9F2A9FC5640446192B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ George Cables Trio - Bluesology (1998) SteepleChase [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:475C41C086214F63E6F076B8C377DC4067DBAE4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jason Moran - All Rise (2014) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop,
 ```bash
 magnet:?xt=urn:btih:D765AB26298B0055A3227CB0DF0442919318D334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ George Cables Trio - Dark Side, Light Side (1997) SteepleChase [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:2CE148EA47C2C7EC1A7F64F93FB527EAEA9D9D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Joe Lovano - Landmarks (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
 ```bash
 magnet:?xt=urn:btih:B6BB80B1275E0F5DFC695BAD69EE0B75280C8F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Harry Allen - Something About Jobim (2015) Stunt Records [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:71269FDEA93813AE734A2531FAF82B7232961EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Yves Deruyter - 2001 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:528D21A24504E5C9784D4B39F1A17AFBDA5F0C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Djavan - Bicho Solto (1998) Epic [FLAC|Lossless|tracks + .cue] <World Fusion, La
 ```bash
 magnet:?xt=urn:btih:A94052427740A05B6C5159663114367EED37E485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Straight No Chaser - 2 Album (2015 - 2016) [FLAC|Lossless|image + .cue] <Acapell
 ```bash
 magnet:?xt=urn:btih:7E246222DD36E5A30C5750EFC49E9F82E6412F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ UninstallPKG может использоваться для очистки св�
 ```bash
 magnet:?xt=urn:btih:57AB22B2EE17F27BF052FE0BA2786B016007C7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ VA - Chilling Sunset Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:D52BC21BB7B5E3225309683CC3A1EC671822BE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ PicturesToExe Deluxe 9.0.3 RePack by вовава [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FC002EACCDA54C59C1077CE80EC7CB0761E2E631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:0E919A10836E07509BF334827D74DBFE8495F273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF400642B48FA5409C4A7FCB3776BF9776B82F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ High Performance & Invadhertz - Mesozoic (2017) EP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:CD388A698935D155D0143C270BC6483777069F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ VA - Empire Records - Dancenudisco 11 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Di
 ```bash
 magnet:?xt=urn:btih:A95EE6B97184CBC74F18539FEA791F10AF359DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B59C75A7BF459CDBFA2D6EEF63E845BD2C9CB859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ Optiv & Btk - Crowd Control / Supernova (2017) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:427D0FC1FDA2334DDDDCFB15D708D2D9F98EF1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ VA - DMC Dance Mixes 2016 (Volume Two) (2017) [MP3|320 Kbps] <Club, Electro Hous
 ```bash
 magnet:?xt=urn:btih:BCB4B2FE8A88B335C915F6E508416E3F353657C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9472286F792E29D8889C709D0A43C3473B602427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DA8CB822CF7770618653ED01C64404848AACC29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ VA - Empire Records - Dancenudisco 10 (2017) [MP3|256-320 Kbps] <Disco, Dance, N
 ```bash
 magnet:?xt=urn:btih:903EA95704C7D2EBFF8CF46C36BAD80DDDE408C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

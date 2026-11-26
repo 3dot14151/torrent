@@ -21,8 +21,7 @@ Ctlos Linux — базируется на Arch Linux, iso образ собра�
 ```bash
 magnet:?xt=urn:btih:FDD3B0B10375435E28C843CAEDCD8D4937BF8C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AmigaOS — операционная система для компьютеро�
 ```bash
 magnet:?xt=urn:btih:85C88950E2B910DFF1F6A0846082708C3D7D32D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

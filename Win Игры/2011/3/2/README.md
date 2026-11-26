@@ -19,8 +19,7 @@ Monster Jam / Monster Jam: Большие гонки [Ru] (Lossless Repack) 2009
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Xpand Rally Xtreme [Ru] (L) 2007
 ```bash
 magnet:?xt=urn:btih:E6830936DC6DB15C123878416464AEFC49092272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Dead Space 2 Limited Edition / Dead Space 2 Расширенное издани�
 ```bash
 magnet:?xt=urn:btih:1E89F23EEDA7B76D36EEA8294254065931FA80E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

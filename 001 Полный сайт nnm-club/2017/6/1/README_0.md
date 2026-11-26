@@ -21,8 +21,7 @@ VA - Enormous Tunes - Ibiza Nights 2017  [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:1D306E2BCF24834014CED0008C405AEBFC2414C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Timelock - Universe Unfold (2017) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:7A19A93168CA9644CE2D286D2F2F3CDD73C0D953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Yin-Yang Deep House Music Vol.02 (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:1133D38CE3E24867F3091779AB2F7257806541DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D8F4BA76C8FBD59F2D34CD8D7454AAB76E20F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:887E073B32335564CEAD238BC134E80BA1758C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2C9A21A4559F21C83FF0F0F0FFFF126E8BB1AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Privacy Eraser Free 4.25.0 Build 2340 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BD63C891B8ACB837E2D0941BF2F9B13687C0D8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F26E182D167FDACCE5F0600CFF89A497D423C081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Discovery: В погоне за классикой / Chasing Classic Cars (2009)
 ```bash
 magnet:?xt=urn:btih:326C904D6185F85E3E5B32139C8CAA733D6F0551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16B8702A079C9E3CD7DA62EE7BD5204EF4A35002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ VA - Amsterdam Trance Sessions Vol 10 (2017) [MP3|320 Kbps] <Trance,Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:2F6C8D9438F346AF61E2EEC317B1BEE04C9BE643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Sean Webster Band - Leave Your Heart At The Door (2017) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:3CD82213F255AC3CB90F0C4BB3935F8BCCEF2581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Url Extractor легко извлекает информацию, такую к�
 ```bash
 magnet:?xt=urn:btih:B3F7A1A75CE35AC7473F9E733B17F0306CF1C564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ VA - Yin-Yang Deep House Music Vol.01 (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:2ABB15C5BDEAFEA1F9490FC777B5709D2AE929CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ VA - Deep Silence Meditation: Best New Age 2017 Asian Garden Chinese Music [MP3|
 ```bash
 magnet:?xt=urn:btih:6F5D7E6BDDFF5ACA3D713922FEC07415470529B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Opus - Up And Down (1984) [FLAC|Lossless|tracks] <Pop, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:C923BDCD35B1B4039787E2419DBCD94F6FC892BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ KoolSax - Meditation (Relax Your Mind to Save the World) (2014) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:E13EC5F55A8876C7EDAB20850DA4B64F43ACF846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ VA - Endless Music (Mixed & Compiled by Paul Lomax) Vol. 1,2 (2016-2017) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:ED7EA59B8BFD52B8F55D6E1F3C3651364DF88EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EEE6393B7881AD9EFA56246F8E3F2900BD199BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CFDE3A1AE57C4CA419367485357712CADC8E8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Ashampoo WinOptimizer 15 - новая линейка пакета програм
 ```bash
 magnet:?xt=urn:btih:8F2BDBA3F314605044232328C974888A7388B623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ Unruly Child - Unruly Child (1992) [FLAC|Lossless|tracks] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AA03A9E9FB3DAC5C88E3819B136CA8119C891203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7910D6B8E32449F1D23212C7D51AD20D465CFE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ Tale Of Us - Endless (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Class
 ```bash
 magnet:?xt=urn:btih:B994F2C7ABAD8F68CDF184186990703C064FA57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ Discovery: Братья Дизель / Diesel Brothers (2017) HDTVRip [H.264/108
 ```bash
 magnet:?xt=urn:btih:C96791268E519573DE15D4758B8A36087381B612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ Ashampoo WinOptimizer 15 - новая линейка пакета програм
 ```bash
 magnet:?xt=urn:btih:0FF1197AC3734B0A16B69485478B64268E2D7FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

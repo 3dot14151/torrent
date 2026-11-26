@@ -23,8 +23,7 @@ Barrowlands - Thane (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:CC31C0241C8AC99CF660F2F94D6011666C996801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE3053AD176296F5ED7F3E5506E6BB3BB32AAFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Клубные Новинки Vol.397 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:178A1489C39B6BFBCDA0D275150B998F7EB7CC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7539CDE2BF0A55B911B5B062DD32D5C02598BE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4D99143982395687F9F8DBD7ECFC135D6A98884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBB20BED5D1292296235A2D7863B1240120B929E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ VA - Клубные Новинки Vol.399 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:C339C09CCB4C92C4D145B5EB528DE38045DAF3CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9D9333CA0B77D90A164CE170F92F0160C60E433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C8A938ADBE786CFB4758D30BAC58F964A640ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ MediaInfo позволяет получать техническую инфор�
 ```bash
 magnet:?xt=urn:btih:ABEBC99A16EED7735F3255A8A3BDD8558CA88FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:578AD9ED6F93341A96A0D0D20E9EAC4434340D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ Carol Tornquist - Angel Melodies (1997) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:D47CBB042E21794BD2FCD7AB65C9A1E2DC8BC976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A1A5CFCAEE2BE31782E4FB51DB3F255F4DB5AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE6F1B6076E0BD4FE599549FD413472E7A021F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ VA - Клубные Новинки Vol.398 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:EB8FAB8639B64B26B337B35F960CA92E652E6605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +492,7 @@ VA - The Religion Of Deep House Vol.2 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:15AF013AE4FC4C6FA5C00D377386C50DBAE08071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:065DFC47870DC68F69C065CAE896346CFC8398D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:980C8BB8E796B36E92ED23C8D9088346BB0C619C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ VA - Poolside Miami (2014) [MP3|320 кб/с]<Deep House, Nu Disco, Chill Out>
 ```bash
 magnet:?xt=urn:btih:C93E3E667333DA5203CA78CAA246DFF17D105FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ Reflection - The Masked Craftsman (2013) [FLAC|Lossless]<Progressive, Zenonesque
 ```bash
 magnet:?xt=urn:btih:05D90A77D872FC33B06A48ACE78F86116E8A5127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBA2AB1C2B194E57EBCAF0AB09CA07BD9B62A43F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ VA - Клубные Новинки Vol.400 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:A120ABFE619D7B6A64F71E79DBD88AC567F458A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ VA - Hypno.Tembr (2013) [FLAC|Lossless]<Progressive, Zenonesque, DarkPsy>
 ```bash
 magnet:?xt=urn:btih:2E7FCE387D532B8CE38334D1A0B991A1F915CBD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ VA - The Religion Of Deep House Vol.1 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:339CF6B4B711D1C040F93D2DC16AE19D6C60DE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ Ben Webster - Plays Duke Ellington (1998) [FLAC|Lossless]<Mainstream Jazz, Big B
 ```bash
 magnet:?xt=urn:btih:C2885072FA10C0E51D7C1110BDE8737DEA0DAC95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

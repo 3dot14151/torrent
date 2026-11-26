@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9505B3643EDA7497AB103160E9C45BE87D3074B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ AllDup - бесплатный инструмент для поиска и уда
 ```bash
 magnet:?xt=urn:btih:095B15B9598E6C32462C3BC00F72F63D2B752C53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ ImgDrive - простой и надежный эмулятор дисков, п�
 ```bash
 magnet:?xt=urn:btih:FCF816E71CE37712C49702EF361E80F12E800B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

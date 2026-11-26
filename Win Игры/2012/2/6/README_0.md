@@ -22,8 +22,7 @@ The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Мех
 ```bash
 magnet:?xt=urn:btih:A865979D5F04F94A92942B33B456AFC37686E04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Just Cause 2 + 9 DLC [Ru] (RePack/1.0.0.2) 2010 | Fenixx
 ```bash
 magnet:?xt=urn:btih:883D30DECB9170CBA9FE514DB59D358A57AFD7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ War Rock {20111018} (L) [En] 2007 (2011)
 ```bash
 magnet:?xt=urn:btih:CDC6D0402785831CD46965A9021AAFDD0C865306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CE89F759A1BEB03A4F9209398BE5912FC44463C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Darkness Within Дилогия [Ru/En] (Lossless RePack) 2007-2010 |RG Packers
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Cake Mania 3 (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:42EB7F3C3D748E0654046B1A9DBC9997B70EE3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Process - игровой проект в жанре adventure, действие 
 ```bash
 magnet:?xt=urn:btih:39BDF86006DED1CC901EB63EB2AFB33DE5D7941D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Flying Dutchman: A prisoner of the ghosts / Летучий голландец: �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C252496B890608FA64F26A37DAF7FB56EB1FE7ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

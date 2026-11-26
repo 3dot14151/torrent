@@ -19,8 +19,7 @@ Sinner: Sacrifice for Redemption (Грешник: Жертва во имя Ис�
 ```bash
 magnet:?xt=urn:btih:8B4D139CF72578940B05414E11C7D4F981A30004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Krater (2012) [Ru/Multi] (1.10.1/dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:BCBF12CAC0DAAD2307CA155F3179D3DCF3BE09BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

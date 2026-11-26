@@ -27,8 +27,7 @@ VA - Омут Серых Глаз (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E69A85253B66CF8E6FF0A9A0D9B0D9130FDCCEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD1154C44623984F5C98C49992E3A9E337E9002C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - XXXL От судьбы да от тюрьмы ... (2011) [MP3|256 kbps]<Ш�
 ```bash
 magnet:?xt=urn:btih:30ECF66F2E1DBB69A65C5C3E5E5ED0079478F2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0AEA10837D542E3E62AAF3527C405DEB96148D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A563F7B44FC4C5B554BFFD56B32DADF0DE6A845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ The Idea of North - Extraordinary Tale (2011) [FLAC|Lossless]<Vocal Jazz, Acapel
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7267F0FD259739F1F796AF1133C74BA1A381A1E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF81CB0C44754D4D90BA3A70754FDB939120F06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ VA - Record Super Chart № 206 (10.09.2011) [MP3|320 kbps]<House, Trance, Dance
 ```bash
 magnet:?xt=urn:btih:0A88A16B0BA9A40FC859F21D45D773E7692212D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ Booglerizers - Ironbound Blues (2007) [MP3|320 kbps]<Acoustic blues>
 ```bash
 magnet:?xt=urn:btih:1CC6FD3F67E91E59E49140C2F6E6F520D29C25F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FE4E6835347D9D2C9DAAC72F0360969D6132739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ Nouvelle Vague (Live at Nyhetsmorgon, 2009)Два супер-клипа  DVDRip 
 ```bash
 magnet:?xt=urn:btih:F53ADF269D0A14A5CEB5B495316F88B098425B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ Sexy Girls v.9
 ```bash
 magnet:?xt=urn:btih:F689694A9306B850B4E7C8D5E6678F95DFA76E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ Mark Ashley - Play The Music (Brazilian Special Edition) (2011) [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ The Jan Holberg Project - Sense Of Time (2011) [MP3|320 kbps]<Melodic Rock/AOR>
 ```bash
 magnet:?xt=urn:btih:83C37FCD8D9587E6892968D4CD5B34784AF3759D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E14B45DFC74307F7490F8784C63D05256786DE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBC47A13DE80D44D49CE8C28CB4366D6A8F64ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39D3F4F3D2BEF9D91DA553D873AC435C82024F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86C307C6D6CA763E3A29804E8D96AA6C8420BC44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +569,7 @@ Sexy Girls v.7
 ```bash
 magnet:?xt=urn:btih:D68C0D7039082BF2C63316E55014A9CFA793CCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AB47642F5263568296067D6DBAB0FDCE10EF4A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ Sexy Girls v.8
 ```bash
 magnet:?xt=urn:btih:B1040658E46C3A2C7CAC477F34906CFAB096E163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ BBC. Безопасно ли небо? Рейс 253. Детройт / How Safe A
 ```bash
 magnet:?xt=urn:btih:E3A5853404D2FFA93A667C1FE30F1258C8E777B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ VA - Шансон Удар (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:71F79FA0937B3D762DD303CE2BFEA02073FA5920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58D3E403E0362DBFF1CAE74B2F27F04C92047698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +743,7 @@ Sexy Girls v.13
 ```bash
 magnet:?xt=urn:btih:E4D6D2EB84D43EC3EFB1E5C7213B4F6D11203E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

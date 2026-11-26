@@ -24,8 +24,7 @@ Griefrain - Aura (2013) [MP3|320 кб/с]<Post-Black Metal, Atmospheric Black Me
 ```bash
 magnet:?xt=urn:btih:49DF27B3F1A718B563484BF6E77AD2F401A747EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Fear Of Eternity - The Evocation Of The Unseen (2013) [MP3|320 кб/с]<Atmosphe
 ```bash
 magnet:?xt=urn:btih:D9C11CB15B467FCD4097143B72853B39A3CEE1D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Astronomikon - Dark Gorgon Rising (2013) [FLAC|Lossless]<Heavy Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Animal ДжаZ - Фаза быстрого сна (2013) [FLAC|Lossless] <Rock, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Behemoth (IPA (bəˈhiːməθ); рус. Бехемот) — польская м�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

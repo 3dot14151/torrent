@@ -19,8 +19,7 @@ Dictionary.com Premium v9.7.2 [En]
 ```bash
 magnet:?xt=urn:btih:1190592D6638F0F2BF0F328E1D6D377A1507A0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

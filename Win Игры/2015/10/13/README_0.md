@@ -19,8 +19,7 @@ Dark Canvas 3: A Murder Exposed (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:B0A7A38A1AB55738B87B8EB66F17C4DD5B683810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Redemption Cemetery 7: Clock of Fate (2015) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:11B6401C25B4F76D9DCC29999415F244B1E509D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Elly Cooper and the City of Antiquity (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:8AFE08C0FCD029FDA78DD8A29CE011FC61F4462B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Whispered Secrets 4: Golden Silence / Нашептанные Секреты 4: �
 ```bash
 magnet:?xt=urn:btih:4929ECDDF1A3AA241FFAEF8B2871B0A5A5D5CEBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ League of Light 3: Silent Mountain / Лига Света 3: Безмолвная
 ```bash
 magnet:?xt=urn:btih:6C63FDC18ACDAD7F4A5B65E14C3629535FF8B578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D70039D3BA6D6B45BDFEEF3C5AFC1437CCF56BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Wasteland 2 является прямым продолжением игры 1988
 ```bash
 magnet:?xt=urn:btih:8EBE012369C6916C130BA2DB2A2F4528C38C9E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

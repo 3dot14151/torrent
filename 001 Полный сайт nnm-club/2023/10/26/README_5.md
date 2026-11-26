@@ -21,8 +21,7 @@ Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:CFAD018914B7D8EBFECED9CF7A4CEF2296B77E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:E5AD378B14C2054D28EFFD22895B4B9DD443078D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE63C918B20EE8017671D8D3AFEE689EA955EEA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:8EFF0DD0CA77F8F486F48A21B17BD2AD486ECA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25C1EB07EE6C5D7B94D1BBA0110E62C8C271D437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:895CA9A26E0E167349A6D4F7F7F345C6012E3D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Yong Cui | Python How-To (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:6D05DD748DEA76D03FF036340F54DBEBDFB31E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 ```bash
 magnet:?xt=urn:btih:8C4A3C20BB4DDC65B1FDC7645D6AAE283541C790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ AOMEI Backupper Pro (Professional) – комплексная, простая и
 ```bash
 magnet:?xt=urn:btih:6468382AE450D206E24100D6916CF023B6E0C86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Kerio Control — это комплексное решение в области
 ```bash
 magnet:?xt=urn:btih:83F4636AB5BA263ABC1B3E427EC42FE232044213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE06136BC8501411369F93D51EEBE9EB6003ED0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Mustafif Khan | Rust for C++ Programmers (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:9D31BD1354CA9BCAE97DA238E9F60C343BF98B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Optical Flares - инструмент создания и анимировани
 ```bash
 magnet:?xt=urn:btih:615300A784F642E722FFDBADF49780EFBBE22968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Mullvad Browser подойдет для пользователей, которы
 ```bash
 magnet:?xt=urn:btih:7110D735CC9B6B758C841CF7B158F859A7C7CCA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9089CFFAC798ACCE1C154F81798A4612685A5250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:F4BF32B6C6743AAD8D97B7FE35A45B017B1E7BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEB8120DCE6F626DABF97E349DA8F520B8C24C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ Rollback Rx Professional - программа предназначена для 
 ```bash
 magnet:?xt=urn:btih:35E817CB3E543A6C6FC01FEFF1987FD05F5DB6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC1AE3CE2A1C86855C6171D9ED80AC192BD1D16B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:F8EF24964B1D224FE7F80E8B02E78335BC98FA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2974B6FCE67F48537EDF3998A5ABE69CA4038E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E0941D2A221812EF30BFD588DBA5CAA5B8B98A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F497FA0A67656518387B90226DD1B76E3436237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +628,7 @@ macOS Sonoma открывает новые возможности для раб�
 ```bash
 magnet:?xt=urn:btih:7559C9B06E50ABFA4422E65ACA491FD2D0A4A0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47F189D1A9B0567A405269E0C0EFF5FDBFA7D3ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

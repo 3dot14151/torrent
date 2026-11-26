@@ -19,8 +19,7 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 ```bash
 magnet:?xt=urn:btih:9B6121F6B14B8F2A9A595DD12C9F402DCD9CD2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

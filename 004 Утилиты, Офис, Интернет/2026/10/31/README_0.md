@@ -20,8 +20,7 @@ Hasleo Backup Suite — это программное обеспечение д�
 ```bash
 magnet:?xt=urn:btih:EA2AA58072A08070163D536FE7F2CEDD8CCBBD52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:E964A76A6FA208DA8EF0A34B3D0CDCA76BEBEAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ CareUEyes — это утилита для защиты зрения, котор
 ```bash
 magnet:?xt=urn:btih:6B99DB6160CE652F00145EF6B18619FDB0F1EAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:1245CA83E3DB260E7F5732015841A6176A6803B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Hasleo Backup Suite — это программное обеспечение д�
 ```bash
 magnet:?xt=urn:btih:E427F1D1B5B326E04ACD73F29692CA7B05ADAEFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:8F72A673C85022F03E1F792DDD2737996FBAABF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Vivaldi — это современный веб-браузер, созданн�
 ```bash
 magnet:?xt=urn:btih:667CB5EE4A505F2E57606BC1A81125C3F80FED0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

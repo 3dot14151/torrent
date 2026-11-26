@@ -18,8 +18,7 @@ AnVir Task Manager - это мощный менеджер процессов и 
 ```bash
 magnet:?xt=urn:btih:6D6879A214611520BF0D8FEFD02FC51676ED2104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Borderlands 2 (2012) [En] (1.8.2/46dlc) SteamRip R.G. Игроманы [Game of 
 ```bash
 magnet:?xt=urn:btih:F68544FD64BA2EBD37F83E0BCCF280AE08803005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC6182A4FC189DCA8A1FADF208384ABC09D51A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ FreeBookmarks 0.1 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:789BA9E05934E61330D7807B2A4DF9B2584FD3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Warlock 2 - пошаговая стратегия в фэнтезийном се
 ```bash
 magnet:?xt=urn:btih:D400B1ADB02D376984740FCCCF8AB04F06057643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:867F86C37A3443C70F9DE58B8C59DD4CA9F43E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ WRC 4 позволит вам принять участие во всех гон
 ```bash
 magnet:?xt=urn:btih:BBFE93AE18917475F7F4C08959D0E53A5C553311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D29DF1D5E8710980FAC9CC0861E48BACD6C7B5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Mechanic Escape – платформенная игра (2D) в жанре пр�
 ```bash
 magnet:?xt=urn:btih:DEE04BC7C94AEC02559357D5B209E403C14E3C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9478EA002BE3D663CB67AFBE9B99EC5AB27FE6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9531FA6BB3409BC129060484AD94BB3D56463CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ EA SPORTS 2014 FIFA World Cup Brazil позволяет вам пережить 
 ```bash
 magnet:?xt=urn:btih:35C708573862003641BE2AADD6977CF7FDA01F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Electric Universe - Discography (Album Only) (1995 - 2014) [FLAC; APE|Lossless]<
 ```bash
 magnet:?xt=urn:btih:0B972155F22BDFD2C05E12CDE32E84486F446447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8CA515FC8D35C0F9CB46E2B61883EEAFB609B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ AutoCAD Civil 3D — это САПР для проектирования объ�
 ```bash
 magnet:?xt=urn:btih:2F0F48E3D905FDF3E17ACBB8ADF03A882C602F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D58D0E89C08A579EFBDB0AD1585D9A620F31C4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6BDE5CD54454924E747A40F098D706291924EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ LAIR [PS3] [EUR] [En] [1.93] [Cobra ODE E3 ODE PRO ISO] (2007)
 ```bash
 magnet:?xt=urn:btih:362F186376A627C40D646A5DD5D9D75C54B4A654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ Agarest: Generations of War Zero (2014) [Ja/En] (1.0/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:190DD9E08ACEB1EF92AC2C3C1A5245BECE70C1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ Bolide Movie Creator - простой и легкий в использован�
 ```bash
 magnet:?xt=urn:btih:83AA5912BE1EDF487FDB844658750D41207ECE56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:202C3FDF1E02F5DE0C189B221FC420B3673CB112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ Borderlands 2 (2012) [Multi] (1.8.2/46dlc) SteamRip R.G. Origins [Game of the Ye
 ```bash
 magnet:?xt=urn:btih:900D95D32A84A24FD8113D1D6070A5A9EF6BAE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ Classic Shell - эта программа предназначена для вк
 ```bash
 magnet:?xt=urn:btih:C85CBE0C24CAC7B162466439E0AE62FE4AA558E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ AutoCAD LT 2015 предназначен для разработки и дета
 ```bash
 magnet:?xt=urn:btih:ADB74B94C999C6185816B65C1A9A69AF2EA57D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ Hurricane Polymar / Полимерный ураган [1974, TV, 1-26 из 26] D
 ```bash
 magnet:?xt=urn:btih:85C3F89F78DFFC0586D715F1834C6D9C5747E3B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Crypt of the NecroDancer — хардкорная ритмическая rogueli
 ```bash
 magnet:?xt=urn:btih:2C42074EF9B0D8F29664CE781BA37617FF8DA662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ McPixel 3 (2022) [Ru/Multi] (1.0.38) License GOG
 ```bash
 magnet:?xt=urn:btih:C6A25F9357893D68B447E03D0B219EB0C3AACC88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Status One - это тактический шутер в 3D с видом све
 ```bash
 magnet:?xt=urn:btih:97AC44D92E6699EF3A8BDF270D43411D7E257A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dying Light: The Following (2016) [Ru/En] (1.38.0/dlc) Repack xatab [Enhanced Ed
 ```bash
 magnet:?xt=urn:btih:DED8DDF6D0FAEFA1E652A8076B6C3799D0DF17E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.7.0/dlc) Repa
 ```bash
 magnet:?xt=urn:btih:1C4998F0B8CE0A4AFE37B52CA885FCC89A85C6BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 ```bash
 magnet:?xt=urn:btih:A4CEB9ACC7259FA290C4AFB2014436EFBCF78B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Eyes of War (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0FD13F7A48BEA0C0485DD24BEDCB278B1E0EE1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

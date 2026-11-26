@@ -19,8 +19,7 @@ Roger Ye | .NET MAUI Cross-Platform Application Development (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:913E0F158EFC9D79F60BE5ED18189F93D9C3E9E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

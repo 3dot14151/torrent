@@ -19,8 +19,7 @@ Hidden Mysteries: The Forbidden City (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:1AA4CF8D60ADEC1873C4405F0057B4673A0DDBA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TV Farm дает возможность игроку окунуться в ми�
 ```bash
 magnet:?xt=urn:btih:FB06EB908BDCBFD0386CFFB6E0A61C601D732674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SD Maid v5.6.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BE116EE5F2AF3DF06D87A0AE3AEBE06D7DE42593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MX Player Pro v1.78.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C64B0B478C795D2F6F7948233398A7D029A0FE05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Offline Maps / Офлайн карты для путешественников v
 ```bash
 magnet:?xt=urn:btih:840DDC6E9BEAE79AF2BB9C292711E8CED29F1627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F72EAEC6493880E21A89915EA5B6A79DBACF09A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:315B2C3B14B6AA347228AE5EB796683A81B2F726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

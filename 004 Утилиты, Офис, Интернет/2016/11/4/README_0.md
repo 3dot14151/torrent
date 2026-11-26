@@ -19,8 +19,7 @@ Paragon Partition Manager - программа предоставляет луч
 ```bash
 magnet:?xt=urn:btih:3DE544450A70D0A4D5A215BB8E5538CBDFFA0BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

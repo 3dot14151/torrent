@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A417D15BAE02D3A223E6E2F9F8FFAC009DD03EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:534EC59135DCE164657792861FBF7D9EFF982484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Windows 8.1 Single Language with Update 3 [November 2014] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8F83695AEB57C84AA1D2220B39F6509726571FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AE9284DFCC8BBE5105F7AE293A5F37D3BF89805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Endless Legend - 4X-стратегия от создателей Endless Space. 
 ```bash
 magnet:?xt=urn:btih:A3D5355620B7D8EABEF27E432175B2DD314FD181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FC9D92A61667503427FA92E6EEB0E49D54DA092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Windows 8.1 ProfessionalWMC with UpdateЯзык интерфейса: English, �
 ```bash
 magnet:?xt=urn:btih:6202BD7A4311D37580475800A1E6F4AA38E207A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ D - это язык программирования, цель которого 
 ```bash
 magnet:?xt=urn:btih:81EF2177FD46C761BC269402D1B8C4408BE26954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

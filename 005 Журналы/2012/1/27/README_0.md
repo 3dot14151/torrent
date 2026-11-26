@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:110F25EA7FC146DCF70C8BA6768F4C3EA5AC961F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ PC Magazine/RE «Персональный компьютер сегодня» �
 ```bash
 magnet:?xt=urn:btih:2E31A1689C85D46A04DEDFD4997D872AB7C1A9E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ GEO— научно-популярный журнал с уклоном в те�
 ```bash
 magnet:?xt=urn:btih:81CDCBF68CC35F92A7C17855124F9C2F43A8FEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53C48002B36792233CB226CA7CD2348643493455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

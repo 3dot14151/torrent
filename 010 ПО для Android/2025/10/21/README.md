@@ -19,8 +19,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:BCF8320EE4513413EA4951D5EEA90587C5752FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EB0210EC9E4A4E37C3ADD6C2ACC59986366DC0C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WiFi Analyzer v6.6 (b104) Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3D51E5A6D4111BC3D173E8EEEAD1881CE5CCC83F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Sensa – журнал для женщин, которым необходим о
 ```bash
 magnet:?xt=urn:btih:9879C8C807EE80526AE539160B9EC180F9271B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80503B66B913A093DB4597C0D8338F018CA89364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Bungle - Down to Earth (2007) [MP3|192 кб/с]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:0153DA9A95B0B01AB26A8A6332DED041299209D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Basti Grub - Primavera (2012) [MP3|320 кб/с]<Tech House, Deep House>
 ```bash
 magnet:?xt=urn:btih:11F2BA570ADE537FDDCDC6ACC79DCC658A88C036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F378366D7A10D85E8D16F33FB14C42B147BFFAE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ VA - Russian Club (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:EB1D504F6EEE113FA82121B94D5F4A9F449A42AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ VA - Juicy House Beats Vol. 1 (2012) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:C194F73A4BC9F3C3BF2E66B237381B148814E8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Lin - Как воздух (2012) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:6D0785E9B834D5CCE720EA3BF3538C8937BC96DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DB4F6EF058F3826CD6AB70297C7EDA2829C1271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A15795842866C258DBFA4B9637E35DF879B69F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A7D427A2765012239C3B0D5DBFF33AE9FDA4B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74DF9C124037FB009E48B74604C3061F29E2B49E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BA4C51F0202D64CB5302D02A6DA7C5145A0FCC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ VA - V.I.P. 200 Тусовка 8 Русский (2012) [MP3|128 - 320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:0EF2D58E15BD0892164716850226E04F2F967377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E62AD5C5945ED2B43884F6A2D21933D7383A1351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ VA - Авто Дискотека С Тюнингом (2012) [MP3|256 кб/с]<Cl
 ```bash
 magnet:?xt=urn:btih:4A501BC39D2D85D4FBEC8B2E7958E6E5C62D9126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ VA - Loco – Carnivorous Attack (2012) [MP3|320 кб/с]<Ragga Jungle>
 ```bash
 magnet:?xt=urn:btih:8ECD6E21024141FFFBE9C277E072DF86004843F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:DE0309CFFD77F011DA69100204E8AE5FC34ACEC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ Breakbeat Era - Ultra-Obscene (1999) [MP3|128 кб/с]<Drum'n'Bass,Breakbeat>
 ```bash
 magnet:?xt=urn:btih:D353B7AD2BD1BAD01ACC93F00B1BE4BD81182E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +588,7 @@ Poshout feat Ange - Beside (2012) [H.264/1080p] WEBRip
 ```bash
 magnet:?xt=urn:btih:D5DCAA1A3FF393549BF120CD5A1B87FF069E7EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07CB5CF323B71BD96BDFCBB8BEE9924EEEBD4F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ UltraDefrag (Ultra Defragmenter) - небольшая, но в то же вре�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E7A4B1C061518FEC940625E23A0D24630E6886C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +726,7 @@ VA - Танцевальная Музыка: Music XXL Vol.3 (2012) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:20C293DCA364742506B329217CDC558D13DA9059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A0D338D5D0688CAA808367C248BB138587F8487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

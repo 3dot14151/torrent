@@ -19,8 +19,7 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:7732D4ECDACEDCE899C7B25CD9EABE82C7A6DD01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

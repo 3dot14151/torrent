@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:800190BA7EA04F23A9CC546FE77BB314EEFA2DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7184EC86431D1787246CE3249A5CD2EEC57AFDD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Classic ROCK предлагает читателям глубокие анали
 ```bash
 magnet:?xt=urn:btih:BB18DADA1DC21B32B84F5480E8CA02A9362E2CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:191D5034C951884A0F23ABF696DFE8CFF400768A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA097127004E0248CA12E877AE0B85C0AE660BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8082C4DE31886AE01CD201BB314132D3FB38A038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7D0929BB0746DB7D174216F58BCE4D152186B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7799DCE85546D1B2153CCB050CEA8972E755396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Swedish House Mafia - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House / progressiv
 ```bash
 magnet:?xt=urn:btih:7FBC1D8BD9F9C73727EEFC4D96C95A823392CFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ VA - Блатная песня года 2013 (2012) [MP3|256 кб/с]<Шансо
 ```bash
 magnet:?xt=urn:btih:92BAAD0D0264A1CBBD4E596ED38A264BA779A90C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ VA - Музыка по заявкам. Версия 50/50 (2012) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:07AA2F61F819BA4B4AA80DF005DD8D8DF041F32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Sola / Sky / Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 1080p Hi10P raw
 ```bash
 magnet:?xt=urn:btih:1C11053D1707196F6DB9F4EB65F46B3EC29BB47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Mago de Oz - Hechizos, pocimas y Brujeria (2012) [FLAC|lossless] <Folk Metal / C
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ VA - Christmas in New York: Chilled Tunes For Relaxed X-Mas Days (2012) [MP3|320
 ```bash
 magnet:?xt=urn:btih:9AEA86C41162CA64305E7EBCDF48E36DF1C56583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9212036645368881A54322EE31B4C326CDB052E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +449,7 @@ VA - В стиле МАКSИМ: New! (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:CA72CA90BAA3ECB5E5C85DAF10119E6E0A30DD3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE299EC49FADF91EF0756447C4CB3B96E2B8B92A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E64463AF586B677E4932169DE958024AD8705F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ Megapolis FM 89,5 - Стилистика - mixed by dj Dima Stylin vol.4 (2012) 
 ```bash
 magnet:?xt=urn:btih:851025A364455925E9511349CDE5D02BF7334709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A25825BD9E9EB60243000535C2EBE1CD9ECDDCB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ VA - Радио Energy - NRJ HOT30 (30.11.2012) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:1E479D8D6469667A3026ED382FD2A03660073F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CB79B6F19D57E4406E8113C3CD3B4E0A3D7224A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ VA - Silent Night Chill Out: Chilled Music For Relaxed X Mas Days (2012) [MP3|32
 ```bash
 magnet:?xt=urn:btih:420F3A13FEB461AFA1363FAFA5FEA44E895EE831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +679,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +704,7 @@ Total PDF Converter — преобразовывает PDF в Doc, Excel, HTML, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8ADE133501BCCE5357EA215E1E3E55EEE97D854A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

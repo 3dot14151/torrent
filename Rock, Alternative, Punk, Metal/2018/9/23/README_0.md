@@ -22,8 +22,7 @@ Dead Summer Society - Visions From A Thousand Lives (2012) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:0456EBE588E4D262F704867DFC36DAA54D0603A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ James LaBrie (Kevin James LaBrie) - канадский вокалист, уча�
 ```bash
 magnet:?xt=urn:btih:17E3C53964C5513307FD3EB979F3C8AA5A8059EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Paragon Collapse - The Dawning (2018) [FLAC|Lossless|image + .cue] <Melodic Doom
 ```bash
 magnet:?xt=urn:btih:F293338BC419B6C45A6653D46B5BC419B394AE54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dark Sarah - The Golden Moth (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 ```bash
 magnet:?xt=urn:btih:E739AEF1DCE957C3D731871E0A31A53DF6495F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Black Majesty - Children of the Abyss (2018) [MP3|320 Kbps] <Melodic Power Metal
 ```bash
 magnet:?xt=urn:btih:74341166CB5EBCBAA7FD75CD07B690738B40B20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

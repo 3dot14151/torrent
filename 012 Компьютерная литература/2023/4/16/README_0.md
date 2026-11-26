@@ -19,8 +19,7 @@ Victor G Brusca | Introduction to Java Through Game Development (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:C593E2EFE2F46B1DB9FD5CFEE5EB1B8AF19D21AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Kidou Senshi Gundam: Gyakushuu no Char | Mobile Suit Gundam: Char's Counterattac
 ```bash
 magnet:?xt=urn:btih:69EF41EB6215859DAC9CB1C93E04F724C96464E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Fright / Страх (2014) [Ru] Unofficial [Collector's Edition / Коллекц
 ```bash
 magnet:?xt=urn:btih:7B5EF7DAF880D1EE65334F0A495F8DCC12A70BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E387EDE2F175020082F8B99D256FD0E625DB81E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:CBC3412E8DF12A95FB5AF29C087F6031E80A3355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ RadioBOSS - это программа для автоматизации эфир
 ```bash
 magnet:?xt=urn:btih:176CB4AC3AB317FEF176E6194B25F532F58C231A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ BBC: Живая природа. Собаки / BBC: The Canine Conspiracy (2002)
 ```bash
 magnet:?xt=urn:btih:98914F252231414144190E5C89B3DA59A03A7705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8136D493C57BBE24A744722DED0254EC68D35BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:155183FA7DBDFDF31F5516E7EDFF9EC4C30DEAC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7F18347FFE484E904C2B0849F9CBDDA495C4C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ UberStudent это Linux дистрибутив, который разработ
 ```bash
 magnet:?xt=urn:btih:FB868C14117230969CEF167218704BE9C38A078D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Deluge разрабатывался на основе каркаса «клие�
 ```bash
 magnet:?xt=urn:btih:5ADB155F3F5EBC477732ADBB70CCE93F6262CC64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Hatsune Miku Live Party 2013 in Kansai (2013) / Живой концерт Хац
 ```bash
 magnet:?xt=urn:btih:F7F6D981BE380CD549603FB825BAF40C23D9023C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ Ashampoo Movie Studio Pro 1.0.17.1 RePack by FanIT [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9575B05B6341D59A0859C29F63299789454AB782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ BBC: Шпион (серии 1-10 из 10) / BBC: Spy (2004) HDTVRip
 ```bash
 magnet:?xt=urn:btih:5852D4FC67DB95DF4D69DF462018D689D9B67D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ Advanced Driver Updater - программа для автоматической
 ```bash
 magnet:?xt=urn:btih:6E611B1B3EDB0DE851AC425F5027C2B15031369D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ VideoHive - Statistics Theme Pack 1 - 1723519 [AEP]
 ```bash
 magnet:?xt=urn:btih:8FC8ECCDAD30F822C644D519413DCAE132E0239B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ Amarra хвалят меломаны во всем мире для того, ч�
 ```bash
 magnet:?xt=urn:btih:0C8642E5AC795DE1F898ED55F660E0D6E6219244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A447B2639B9AFE65FEE5F5AB8B2393D74DEAF935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:CB18EBA4CB6803DB8F9455F6A956609C6E871059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +575,7 @@ Proxy Searcher 3.9 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E710B4E41EBAFD5DA75627CF72EA6C64834A2F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADE864592F3228D4340EA0BC9152F6159AE25AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FC7824E067F65E14742D9059792C92982E30E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:021E6CBB7065A2BC1DF2480B625A8209A864D391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

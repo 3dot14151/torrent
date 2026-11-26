@@ -19,8 +19,7 @@ Labyrinths of the World 13: Eternal Winter (2021) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:FBCB9A9CDC1F1A56F8B28810921777C9C15A552C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NBA 2K21 - новая часть всемирно известной серии 
 ```bash
 magnet:?xt=urn:btih:D917CC00823E4AD82B2DCFD3D09E265F855362D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

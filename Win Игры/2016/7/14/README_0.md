@@ -19,8 +19,7 @@ MechaGore - это аркадная приключенческая игра пр
 ```bash
 magnet:?xt=urn:btih:F18098E6A68BB392ADFB9491B342FA16D4C2A4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Under Night In-Birth Exe: Late представляет собой нечто с
 ```bash
 magnet:?xt=urn:btih:6332EFC1CA3EA68C6FA8A6C83E4DD961C87CDDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hyperdimension Neptunia Re;Birth1 (2015) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:68238F2969650D7F67B027C3E113F204E5489A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ghostbusters (2016) [En/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A5260B26E0FF80956FE6C02C43A2D4E69ED43674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

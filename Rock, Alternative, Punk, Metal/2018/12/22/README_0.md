@@ -22,8 +22,7 @@ Phlebotomized - Deformation Of Humanity (2019) [MP3|320 Kbps] <Progressive Death
 ```bash
 magnet:?xt=urn:btih:16B1D866304BC705B97DE6CE0FBD68DCD543EB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Foghat - The Best Of Foghat (1989) Compilation, Reissue, Rhino Records [MP3|320 
 ```bash
 magnet:?xt=urn:btih:93A4CE9394EBA0F0A41DE339162C3A09F91998C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Helloween - Better Than Raw (1998) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:A289DF5B668E466070BF1268C62B5D27966644B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9024B9AF624E90463CC59D25A8EF00F87E142DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Led Zeppelin - Led Zeppelins Swan Songs (4CD) /Сборник/ (2011) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:03388DB549BD13D72556003CC5220DF8B9D3A953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

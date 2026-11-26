@@ -21,8 +21,7 @@ Reboot Restore Rx Pro (ранее Drive Vaccine) предотвращает вс
 ```bash
 magnet:?xt=urn:btih:6DADF1CFE37C98B2C038E08B7639A33280CD63EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ WinNc - файловый менеджер, обладающий широкими
 ```bash
 magnet:?xt=urn:btih:AF6E5AE6E157C755EC6FB6A447AC98461C86948A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ VA - Kiss FM Top 40: Октябрь (2017) [MP3|320 Kbps] <House, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:2C1D42E8566E87D4F35CBA5BFA2D2563A834D9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Sword Art Online: Hollow Realization - это очередная часть пр
 ```bash
 magnet:?xt=urn:btih:3693299F6584E56F4975462566FE19476490F6F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ ELEX — тщательно проработанная динамическая 
 ```bash
 magnet:?xt=urn:btih:F16CF226ED795B8B276F1B4180DBE145774BC27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Profileschool | Adobe Photoshop. Коммерческая ретушь (2014) PC
 ```bash
 magnet:?xt=urn:btih:F80CDCB96D86DC68AE6D48A9016CA13FAB9A61FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1E75186DD90E78550EF15D63F07601A93BD952D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:968D10D84CC917678B6190DFC8610D93FE6969B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Udemy | Полный курс по кибербезопасности: Секр�
 ```bash
 magnet:?xt=urn:btih:567854E241152399489327FCD7861E272ADCC50B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

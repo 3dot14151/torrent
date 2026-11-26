@@ -19,8 +19,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:3B577E4AF363D953AD7CCD216ABA632180058B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dream Cage (2025) [Ru/Multi] (1.1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B029EAE19066F8D145B7CD542F0AA34027DFCE59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deep Rock Galactic – научно-фантастический шутер пр
 ```bash
 magnet:?xt=urn:btih:980FDA808E47615A0E6565940537457E59AD27E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2E9F46AE07B3BC4DAB6A70CB9229653BAC5E3FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

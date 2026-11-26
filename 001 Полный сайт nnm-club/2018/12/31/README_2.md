@@ -21,8 +21,7 @@ Senran Kagura: Shinovi Master - Tokyo Youma Hen / Сэнран Кагура 2 [2
 ```bash
 magnet:?xt=urn:btih:ED587ECE7AA6184E7D0B6E186D2392A538B1ED02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C68172D82426C30AFFCA5E7F7081BBD5968C4B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:41DC9E4E2F9966EA82B28ADC9990236693BE41E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BE1423053690DE9A95F4BD618E5350A98A5DC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ ESET провела опрос о новогодних фильмах
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ uTorrent 3.5.5 (build 44954) Portable by SanLex [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:019F141D7B554A75BC63B0FD9BDEBBC9EA31BB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60844B609355C99C2A4C785FB2DCF06C70BE77E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 ```bash
 magnet:?xt=urn:btih:02F37040B4E973807AB9A61C554FA97C116F7183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Yagate Kimi ni Naru / Bloom Into You / В конечном счёте я ста�
 ```bash
 magnet:?xt=urn:btih:87A16437C39439E0B3E0AFD8BB103312DEF8800B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Goblin Slayer | Убийца гоблинов [ТВ-1] [2018, TV, 12 из 12] WE
 ```bash
 magnet:?xt=urn:btih:09DAC23B0A6DD7CDFA8E4C8B330D41B6A3AA6EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Itproger | Создание Андроид игры на Unity 5 (2018) PCRec [H
 ```bash
 magnet:?xt=urn:btih:B27F285FEBDACFE70CC7EE99A5897A5F19D58567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Itproger | Изучение Java (2018) PCRec [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:21D44429D951E60076CA08F71D478E89516730EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39FCF89B7E1B138932B29EB313840CF4EF760B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 ```bash
 magnet:?xt=urn:btih:AB1A4C12B6E03B733326393D2BB53A65DFEAC70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:06C7CF55663AC217DFC17D605B6AC61EB9E13202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Lingon X позволяет визуально создавать файлы а�
 ```bash
 magnet:?xt=urn:btih:720AC0282ED78F591291D47D32AF6270814DCE6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ VPN с колоссальной скидкой 88%.Крупнейшее ново
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ MInstAll StartSoft 51-2018 [Ru]
 ```bash
 magnet:?xt=urn:btih:3C9284A4BC098DAB9ADC2E283D4A31F17B09780C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ Goblin Slayer | Убийца гоблинов [2018, TV, 12 эп.] WEB-DL 720p r
 ```bash
 magnet:?xt=urn:btih:3CD5958F5A75934744097FDBABBF8F27D2AD3A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:954C3BCBA59835F3E20FA0E74EC6B9C6C2FEC2C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E68A83D0BADFD018A83EC48E4E919BCB50D07B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ BELOFF 2019 [Ru]
 ```bash
 magnet:?xt=urn:btih:9464EAE48296ADA20548798BFD6305311E3CDCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ Antigraviator (2018) [Ru/Multi] (1.31) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:9DA52EAF662C5AC02651135EC5E48BEBCA1D6B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AE6F28F628870BE9EC3A7BB9FB8FD139926A988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1537E15C69048B4629C87E782FD45AABA6C28708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE3E38117012AC47BE47BE514078A3C891C6C6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

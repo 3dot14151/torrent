@@ -20,8 +20,7 @@ TV+: Бесплатное Онлайн Телевидение
 ```bash
 magnet:?xt=urn:btih:08DA20EB0A540DFDC6D30776B9AB86FA772EFFE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:C8DFFE76CD232D596515563D0C316614742F4E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA12130E4E196E63408A2B9BDF8E78EAC93AE8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C86B7DAFC1359EE61A85BA6DF5A5DD5E9E77781E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B9B0A782DE42FFF5C62E6752FFC950593FEA568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Bria Mobile: VoIP Softphone v6.22.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0227E79445EC241C5E1C3981C9C45FADA2D834EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:62E0EAF5B4141ED8BB2481EEF2737982D4E808CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Battery Guru предоставляет продвинутые инструме�
 ```bash
 magnet:?xt=urn:btih:B22CF6AAFBE85B023AEFB2B07466BD632FCF987F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

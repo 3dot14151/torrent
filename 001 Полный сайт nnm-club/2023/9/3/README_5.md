@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6850B06DC6B34B1D029787C22BCE4A400B358AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Fillthegaps, Яковлева Диана | Многопоточное прогр
 ```bash
 magnet:?xt=urn:btih:E3F6AFF12896568915C09D2135ADC3D2FE5AF48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 ```bash
 magnet:?xt=urn:btih:FEC533B5BA6414D48FDC67651B9453004BBB3ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ OTUS, Александр Ключев | C++ Developer. Professional. Углуб�
 ```bash
 magnet:?xt=urn:btih:F8F3ED3DD14335A4C91592BDD2D605A1F5D6C729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Daymare: 1998 (2019) [Ru/Multi] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:31E85387B5D3C5FDA9859143B4A49988B700E707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31C15D5B75E26B3F6E92FB5D4CD0A12D99F9F9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Starfield - первая более чем за 25 лет новая игров�
 ```bash
 magnet:?xt=urn:btih:4B551DA421222C619383A66F3A2755C4E6D8F14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:694DF19D5FC8F9EA9AC413BF4ACF0DD9F020B8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:BE3437A8BC3FA651F4146CF1DDAE69A4CEDC1BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F408E810D9CD5FC239BD91334A378E14CC494F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ FIFA 23 (2022) [Ru/Multi] (1.0.82.43747/dlc) Repack DjDI [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:1FC5D7DE54213DCC92D8CE2B2E4BBDCF7A2D2711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

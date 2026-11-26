@@ -28,8 +28,7 @@ Dead Flowers - For You (2013) [MP3|320 кб/с]<Rock, Blues, Country Rock>
 ```bash
 magnet:?xt=urn:btih:DC15EC901F126350D8D76EB53999413DCB302AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Noumena - Death Walks With Me (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:47224D9BFC3B02925D092D1BD68B49237C6E7FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Rise and Shine - Rise and Shine (2008) [MP3|320 кб/с]<Screamo>
 ```bash
 magnet:?xt=urn:btih:80433A65CDEC1D225A7B28D3AB7E0D17DE5DF4E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Ghost - Infestissumam (2013) Deluxe Edition [MP3|320 кб/с]<Heavy Metal, Occul
 ```bash
 magnet:?xt=urn:btih:81D8028301118DD04584B651579CEADB3D249586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Mindless Self Indulgence - How I Learned To Stop Giving A Shit And Love Mindless
 ```bash
 magnet:?xt=urn:btih:4C5368ECCD782DC0FF2B6CF08C8EE0B536D8C485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Dr. Hook - Rising/Players In The Dark (1980-1982) remaster 2013 [MP3|~ 250 кб/
 ```bash
 magnet:?xt=urn:btih:3269E537E4256917B4D2A370D09332BB366E4E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Heaven Shall Burn была основана осенью 1996-го под име
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Gama Bomb - The Terror Tapes (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A4FCDBEB4D4AEBF23FD2F8E38231A219A97C0BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

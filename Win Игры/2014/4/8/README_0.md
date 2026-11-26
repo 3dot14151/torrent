@@ -19,8 +19,7 @@ Bridge to Another World: Burnt Dreams / Мост в другой мир: Cожж
 ```bash
 magnet:?xt=urn:btih:D7409D110D4893747E6BC8E9941C5E8EC606B033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Sledgehammer / GearGrinder (2008) [Ru/En] (1.0.0.1) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:A7F76C02BA88189E8071040E45119FEB8529BC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Ninja Blade (2009) [Ru/En] (1.0) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:AF0D0FD395322B104CDB8555AAC9C8C03A1D5ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ The Swapper – это платформер рассказывающий о пр
 ```bash
 magnet:?xt=urn:btih:50F51EC943F8EA8A86FCA00094BA36A0BBC0ABDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Split/Second: Velocity (2010) [Ru/En] (1.4042) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:4D50E03DB5FE8E1CE04D3BB4D85E985DFF62BBAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

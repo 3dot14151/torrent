@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:19F8AAC42CE12316862F8721588723D79F2A46BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E23D2A13E18CA5A0E2BD6967C488DFBD76402A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ WinUtilities - набор для настройки вашей системы, �
 ```bash
 magnet:?xt=urn:btih:37630741464D4A3DD7FE49E6B8E907D8D234CA39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - House Music Pause Vol 1 (Deluxe Edition) (2013) [MP3|320 кб/с]<House, De
 ```bash
 magnet:?xt=urn:btih:198027D87B9D23FD6DAA3BBFCD7F908865749BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Fridrik Karlsson - Feng Shui (2006) [MP3|320 кб/с]<New age, Relax, Nature sou
 ```bash
 magnet:?xt=urn:btih:988E2229A89B6158D4E3D12608C2FAEEF9ABA1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D4EE0BAEFACBADD16F540B254A1ED89B0D6073B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Carol Lee and Adrian&Raz - I Belong To [Single] (2013) [MP3|320 кб/с]<Trance,
 ```bash
 magnet:?xt=urn:btih:30AFA07C9FA8B8E60CFA71AD48F0E0C9A2498B0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Darryl Way's Wolf - 3 Albums (1973-1974) Japanese SHM-CD /2008 Remaster [APE|Los
 ```bash
 magnet:?xt=urn:btih:2E2C02E0D32E7AF5A84A3D2631B5B7A32D0FFB16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B402B00E688717611833C52B4F4069A69D8A3F42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ VA - Sexy Trance #61 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:C7FDDE01E2C844E6E26736667C3A3D99B7F46F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ Liquid Soul - Revolution (2013) [MP3|320 кб/с]<Psychedelic, PsyTrance>
 ```bash
 magnet:?xt=urn:btih:176D7EE38AA4B57EAFB55869F1EB13109C55A205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ Nolongerhuman - Introvert (2013) [MP3|320 кб/с]<Dark Electro>
 ```bash
 magnet:?xt=urn:btih:89269CC470C85BF1431AF61B153EC72D2A6F8D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ BBC: Невероятный Гудвин. Серия №5 / The Incredible Mr Go
 ```bash
 magnet:?xt=urn:btih:43631B18112A7642BBF5F1C0C5D3A63368C73D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:557EAC011294C4F1752A7206D55FBC449B9658C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4EF595DDE3110A519B01F134C46B49C2A52C3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ Miranda IM – интернет-мессенджер, способный раб�
 ```bash
 magnet:?xt=urn:btih:8E5637D0EC9D59EB4A4D20470EBD6E6FD03BC0DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +506,7 @@ VA - Lounge At The Seashore (2013) [MP3|320 кб/с]<Downtempo, Lounge, Deep>
 ```bash
 magnet:?xt=urn:btih:32CA7A13CB6992A28B75D691A8C435E6068A96F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ VA - Скоро Новый Год! Зарубежный Выпуск (2013) [MP3
 ```bash
 magnet:?xt=urn:btih:48E1F3CA6506D7C49F3E3C0F8E7C0C03A973825A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88DF11BCB51BDC9CB6A48F3F52D7EE3AF05B4A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85F7CB97B7CEF4112CCBD05354008D4F6789A9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30AF328607B60A261F11515A8AC00F0924A05F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9ABD2F1B3262AB826A803C2D07C8C49ADFE2CDED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ Tangerine Dream - Atem (1973) [FLAC|Lossless]<Electronic, Berlin School, New Age
 ```bash
 magnet:?xt=urn:btih:14CBD455A7D53CF9E21AACC2EC0FBED760F7DCBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28556B72D3143F557D97EFB62A2400A30CFE29D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ In Flames - Whoracle (1997) Japan [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C74BCBA8FE186BCA6EC08285681BDD8885214308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

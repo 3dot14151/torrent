@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:B711366813886967A11C2FF93FCF683EE495511E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:861D22B13B26D36C411C6792058CE22BC7A301C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56D25716E9458E9CA20C2542FDF9C152160A8656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Johnny Varro Quintet - Speak Low (2011) [FLAC|Lossless]<Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:AE05DB67B6671EDD9D253A1CBDB4597B371FCAE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ VA - Smash! 2014,Vol. 1 (2013) [MP3|~245 кб/с (V0)]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F73A1681484BCD4DA6BB5338ED24BD2037F0A2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:418651721A1484FE092331AC6286F4036C9E47BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA8C1CCE76BFEAE9DF357F13EC4AF523790C34BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68E6E5E83F121BF19FC2608106431107C05BF120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ Dogface - In Control (2002) [MP3|320 кб/с]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:02EE45FEF9872E366CDF20400BA5302D1C4495C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C171ADAA5A603A0630C45764C6F66A8B7040A5C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ Nation Beyond - The Aftermath Odyssey (2007) [FLAC|Lossless]<Progressive Power M
 ```bash
 magnet:?xt=urn:btih:DF8C4383822C554CD38252BA7109469893C0A928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4086E71D9DB1355544C4F121F353E4F3E9BD3E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9141704F4F5BFB4E24E41DC6766D69D8D73EF0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F7ABC72685E57BB1D22346B5E50B4357CDCEFDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +474,7 @@ VA - Ultimate Uplifting Trance Volume Two (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:846ED0898261CC02F7A76772D0CA5CE286F38224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ Jon Christensen - Selected Recordings (2004) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:BA5D1EA9A1FD1C09A6DC78D2F57237BCEA25989B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27A403C71F6A8B2FB643FA297EFADEA60A69DDE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E42AF2A144F6F3240071BFC56BD9FBAA414EE7E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ Jon Eardley - From Hollywood to New York (1990) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:3D415BCE6BD115D7C1B3AC83906CA8C6FCF6BA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C1B6101C7B8E75EDA78C789977B03AD10813C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A7FA17AFD64AD20464A4E4F8B71A62078D8E4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ L.A.O.S. ‎– Retrospective (Unreleased Works 2005-2012) (2012) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:F1CC7C02A353DE1FCA76E5DB9E1FA992BC0447F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA4947A466C62B6695BEA9ACE535335ABF4A301A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51FD978BE11E070CFFD16D4E434F29A9BA62266C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +762,7 @@ VA - Bugged Out! Presents Suck My Deck (mixed by Boys Noize) (2008) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:EE1B7037B67D88CF50BE9D3220B09E9B1FCE37CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

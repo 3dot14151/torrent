@@ -22,8 +22,7 @@ Metall - Chasing The Truth (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy / Power M
 ```bash
 magnet:?xt=urn:btih:9ADCB110AD5E6AFDE684ABA15DBC9AEED9B980B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1 - Life Is Killing Me:
 ```bash
 magnet:?xt=urn:btih:8F39669F95B4845D303FDCD453C397A6997BBEE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Anathema - A Vision Of A Dying Embrace (2022) [FLAC|Lossless|image + .cue] <Doom
 ```bash
 magnet:?xt=urn:btih:38E8E7051BAA2413B8A702B5DC6D8B13F330B93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

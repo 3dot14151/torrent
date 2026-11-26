@@ -22,8 +22,7 @@ Ricky Nelson - Les Genies du Rock - I'm Walkin' (1993) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:715A3E528471C5D80457E9A206668B78B147BB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Soulfly - Savages (2013) Japanese Edition [MP3|320 кб/с]<Groove / Thrash Meta
 ```bash
 magnet:?xt=urn:btih:69C14C15BE167191610DCD52B5B554A6034AF283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ We Are Harlot - We Are Harlot (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:17848070C66D4E098A8F9A06330E5B9C64630B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ August Burns Red - Found in Far Away Places (2015) Deluxe Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:2B36AC1001DA97BA8176DF40E5E7ED9E97757F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Soulfly - Archangel (2015) [MP3|320 кб/с]<Groove Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:3AE4EFD5291A71489A388FD186517D612C099898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A24A2C2697A8DCB6D28E0127E6E21D660F054BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

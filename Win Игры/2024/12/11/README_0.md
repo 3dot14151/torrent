@@ -19,8 +19,7 @@ Kong: Survivor Instinct - это 2.5D экшен-платформер, дейс�
 ```bash
 magnet:?xt=urn:btih:515C70F6D69D02A623F492316BE6950A8BA97297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bad 2 Bad: Apocalypse (2024) [Ru/Multi] (Build 16701862/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A0C8C46BA9F4DD3BEDCD06F3BC5B263B01DA4674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (Build 16541638) Sce
 ```bash
 magnet:?xt=urn:btih:27C53F4CE5076005C06182F46CE7C4623D533D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:C4FEF441D48F73B11CE6A0702A7B4AA1C8C3F746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.4.127/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:758BBBF6707BB170575C4F5C6166513286E4C760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Halloween Stories 8: Inspirations Spark / Хеллоуинские истори�
 ```bash
 magnet:?xt=urn:btih:65E3B070F23D74834D60F219152E945CE62B2164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Harmony Chronicles 2: Demon of the Void / Хроники Гармонии 2:
 ```bash
 magnet:?xt=urn:btih:23344D90D6C4F13A64532ADA42DE274F29124BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Scene R
 ```bash
 magnet:?xt=urn:btih:420A251E92DDD174E039E8364B992DA1980BACBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Splav - Сверхновая (2011) [FLAC|Lossless|tracks] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:D2101FD5B8B201B92B10475AC2C697C8CF3827A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

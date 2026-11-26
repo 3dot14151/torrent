@@ -20,8 +20,7 @@ Asterisk Key – утилита для просмотра паролей, скр
 ```bash
 magnet:?xt=urn:btih:0AA051334DD5A33BB393CD2223C992F7507D1486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

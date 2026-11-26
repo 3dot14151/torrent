@@ -19,8 +19,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack FitGirl [Qua
 ```bash
 magnet:?xt=urn:btih:8653209D1E09F6D0CDC6EE75444C713C6CAF8BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Driver: San Francisco (2011) [Ru/En] (1.04) License
 ```bash
 magnet:?xt=urn:btih:9D5DB15062375FFCC6F723E2351E64248A6E6C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Total War: Attila (2015) [Ru/Multi] (1.8.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:520D6E1E6749A18679263DF9D7258C1EC3963155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ KLETKA / КЛЕТЬ (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7EE1F3104CAF298ABDB85553B00E75330DCDA73C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kupala - мистическая визуальная новелла в жанр�
 ```bash
 magnet:?xt=urn:btih:B8528037B05A614581FDCA63C330D527CF9D3053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Menace (2026) [Ru/Multi] (0.6.8) License GOG [Earle Access]
 ```bash
 magnet:?xt=urn:btih:FF4969C2F1625E25E68B542AA650C749ED64D0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

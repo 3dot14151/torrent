@@ -22,8 +22,7 @@ Leo Sayer - Return to Paradise (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop
 ```bash
 magnet:?xt=urn:btih:2A767977CC1107FFBCCA93D03F48B6F90EE633C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Velvet Club - Are You Falling In Loveʔ (2026) [FLAC 24/48|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:9D94A53A74F6A6803D8298CB584D865775FA56C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tiger Island - Let's Go Out (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:BBD63656A47390E00025EEF700DE76161112EB29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tim Erickson - Too Many Ghosts (Midnight) (2026) [FLAC 24/44.1|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:21F5EAAD449345625DD177B475C8BD33EDD3F672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Welshly Arms - Nothing But Static (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:2778F6B1E0BBBCF8F5FFC67F37267C9FF0270858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ David Duchovny - Prince of Pieces (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ro
 ```bash
 magnet:?xt=urn:btih:3E00DEB3F17101B3D6D03368557D8EC39D0F2CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

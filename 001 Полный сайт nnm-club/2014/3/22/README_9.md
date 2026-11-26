@@ -22,8 +22,7 @@ Breach & Clear это тактическая стратегия, дающая к
 ```bash
 magnet:?xt=urn:btih:CE196A45FA43193F489AC154601CA80763FD24A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Parallels Desktop for Mac 9.0.24217 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0C316D9035FA2AD5284F9931681EAB781FD91EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ OS X 10.8.4 installer USB for Mac (12E55)
 ```bash
 magnet:?xt=urn:btih:3BE7E6FB555652F8C7147F9508F78B75844937BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Project 2013 поможет вам планировать проекты и со
 ```bash
 magnet:?xt=urn:btih:A139DE9EB6E24AD0EB6FFAA8486453736A6C99F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Batman: Arkham City / Batman: Аркхем Сити (2011) [Ru/En] (1.1/6dlc) Re
 ```bash
 magnet:?xt=urn:btih:38D3766DDA3BE5FEB064237B7A25219A6C892616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Tomb Raider [PS3] [EUR] [Ru/En] [4.31] [Cobra ODE / E3 ODE PRO ISO] (2013)
 ```bash
 magnet:?xt=urn:btih:727B0B3F7C3372B08B5877DB052EC487B6725239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ OS X 10.8.4 installer USB for Win (12E55)
 ```bash
 magnet:?xt=urn:btih:FD7B523C2C026730166C784634CAFB33196DFD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D87A45EAE9A0899597DC008D5E13AD77389B0DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ ru_windows_8_1_pro_vl_x64_dvd_2972044.isoЯзык интерфейса: Русс
 ```bash
 magnet:?xt=urn:btih:CF838183A0B53CF6CA268972978D670CCF78223F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Microsoft Windows XP Professional SP3 Russian VL (-I-D- Edition) с интегр
 ```bash
 magnet:?xt=urn:btih:63372739033C808F4D5DCA873CCD295AB61A2278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2351FA9AC1FC060BC15F5A10152BB2E04C44292E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

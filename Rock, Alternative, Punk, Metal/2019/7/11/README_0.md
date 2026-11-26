@@ -22,8 +22,7 @@ The Kills - Black Rooster E.P (2002) EP [FLAC|Lossless|tracks + .cue] <Indie Roc
 ```bash
 magnet:?xt=urn:btih:84A22E24FF9E5D46BDF858FF5401A189F2D066B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Kills - Blood Pressures (2011) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:A9DCF5AF6D0E0321F45D8615197184F847A255EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Kills - Midnight Boom (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:19FF0CE0BC2B41D6A08A61661902033B31572ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Kills - Ash & Ice (2016) [FLAC|Lossless|tracks + .cue] <Garage Rock, Lo-Fi, 
 ```bash
 magnet:?xt=urn:btih:DB19B4F45C176CBFEF33A642D5935D4D6A1C89FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Kills - No Wow (2005) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie
 ```bash
 magnet:?xt=urn:btih:5E56D95B3B7DA96B26D541175FD620E6C29BC5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Вечное Лето (2004) [FLAC|Lossless|tracks] <Rock, Alternative Rock
 ```bash
 magnet:?xt=urn:btih:49F529B6AD17274E7C49BCC1259AAB17204500A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Kills - Keep On Your Mean Side (2003) [FLAC|Lossless|tracks + .cue] <Blues R
 ```bash
 magnet:?xt=urn:btih:CB20F5362F3A1AE956D9E2E1C899240BD0B41ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ L.A. Guns - Electric Gypsy Live (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A000F44870F075A5433917C7876B214594A483D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Batushka (Батюшка) - Hospodi (2019) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:B4E2A1DEB9095FD6DFCA9D10C388E1C1796D7D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Theatre Of Tragedy - Remixed (2019) [MP3|320 Kbps] <Gothic Metal, Industrial Met
 ```bash
 magnet:?xt=urn:btih:99DD2FEE7D417391FF65E9AFE54F56386D2121F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

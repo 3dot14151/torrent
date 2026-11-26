@@ -27,8 +27,7 @@ VA - Everything's Perfecto 2013 (Extended Versions) (2013) [MP3|320 кб/с]<Tra
 ```bash
 magnet:?xt=urn:btih:DE8EC8102A32ACAD01D3C35F12D99C2FC60D3A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Pleasant ChillOut (2014) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:CC4BE4D4B45C8C4B85ED94C8223768C07EF7B857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Rumpistol - Away (2013) [FLAC|Lossless|WEB-DL]<IDM, 2-Step, Downtempo, Abstract,
 ```bash
 magnet:?xt=urn:btih:144E68748554748347A1986D26612815563472C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FDF396C46C954F5AD2BD421823BA4827D083F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Chillax'n And Bird Of Prey - Digibliss 01 (2009) [FLAC|Lossless]<Dubstep, Psydub
 ```bash
 magnet:?xt=urn:btih:C61D07ADED97CFC83C52666236BF52D8160F11B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A402895BBBF5C1D3AD3AA72E2D62FF69F79DA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Jenix - Circles (2014) [MP3|320 кб/с]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:9463FB20FDDFE44B257FB4170DE3A97687BDF414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ Venture - Touch The Sky (2013) [FLAC|Lossless|WEB-DL]<Downtempo, Ambient, IDM, C
 ```bash
 magnet:?xt=urn:btih:280C2EC96544DB3575B82619C748B05C6FFBA8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7858BF81BD67A53853AECF810BA02F42134601C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A098505E218F886ECC1C00AAC3607AA7ACFC511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ The Last Gambit - Songs For People Who Like Us (2011) [FLAC|Lossless]<IDM, Downt
 ```bash
 magnet:?xt=urn:btih:D2702F4E7D14438B4BB9364E50606116870537B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B101B0758099C08A844C4A489928E38849284ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ Solid Globe - North Pole (2014 Remastering) (2014) [FLAC|Lossless|WEB-DL]<Trance
 ```bash
 magnet:?xt=urn:btih:96E59BAB96CA49AFE39B0008C6E745F38DE47F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ Red Heat - 1st (1993) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:03D62401F94A009C2B9DBE903CD2332487F45194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ VA - Ambient Nights (2014) [MP3|320 кб/с]<Ambient, Downtempo, Chill Out>
 ```bash
 magnet:?xt=urn:btih:677733537310185DD2007E074F6D4E01D2812BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BEF45DFFD0E322DFEBDBF8194C248430A9EC355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3632CA27B5B40681D745B6663163BE14E3FA8DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ Bird Of Prey - Atrium EP (2009) [FLAC|Lossless|WEB-DL]<Downtempo, Dubstep, Psydu
 ```bash
 magnet:?xt=urn:btih:2DDFDD078186404A97B5860F905A883F04AFC602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6C367F4BDE94F7591E6269978DBF684241B66CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89CE555FD81960C2463BEDA3B5F370D806EC59C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E213A768F7E807DF55B56563F93869EBF811E0F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ Ben Frost - Black Marrow (2013) [FLAC|Lossless|WEB]<Experimental, Industrial, No
 ```bash
 magnet:?xt=urn:btih:F82228AA0ED06B1D790F775FDE78D4A02FAE2726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5799B74D7EEB685773462ADED741BDC8FB616483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BE40470FABA40A81BCB58B17D41B3D5E1D2CDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ Sacred Earth - Breathing Space (2014) [MP3|320 кб/с]<New ega, Meditative>
 ```bash
 magnet:?xt=urn:btih:AD383D5CC8D84BBA7687AE152106CD1F538B08E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28257279DA1D1285F0AC05894FB14E637A1F0E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Deus Ex: Human Revolution - третья часть в одноименной с
 ```bash
 magnet:?xt=urn:btih:67D1A9541CB4934B5515EACE0B10D2F66F89A5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Last Haven перенесет вас в мир после ядерной в�
 ```bash
 magnet:?xt=urn:btih:7C07989DB0FE025500E1515BF7EE8F2BD7BAB72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

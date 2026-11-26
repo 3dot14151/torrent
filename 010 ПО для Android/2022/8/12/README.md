@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C5FCEA7DA73E4908CB74DB9777DB2E45C68BE89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XMusic - это великолепно исполненный Музыкальн
 ```bash
 magnet:?xt=urn:btih:AA668D7765E0DA1469B98E5ACAD636D3FE3F45F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ GPS Waypoints Navigator v9.24 [Ru]
 ```bash
 magnet:?xt=urn:btih:3FAC1096D93002AC4A01EE017B1866DF381F0CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

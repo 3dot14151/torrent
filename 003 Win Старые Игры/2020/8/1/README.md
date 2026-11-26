@@ -19,8 +19,7 @@ Blades of Time (2012) [Ru/Multi] (1.0/dlc) License GOG [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:2DDD12D4C1ADAF868F40311421D4C7BF5CED90A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

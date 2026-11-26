@@ -19,8 +19,7 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A210057ABD175C3281B14D2628DF048C7EA603EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pesadelo Regressao (2016) [En] (1.4.2) Repack bosenok
 ```bash
 magnet:?xt=urn:btih:B74B6B35D7A795C317F9ACC73D1E03742ECB963D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Guns, Gore and Cannoli (2015) [Ru/Multi] (1.2.5) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:76BE49F0A58D1DB5AB044B4296F3B2ECC8110A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

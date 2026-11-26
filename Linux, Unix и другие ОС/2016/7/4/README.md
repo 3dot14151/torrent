@@ -21,8 +21,7 @@ Slackware Linux — один из старейших дистрибутивов 
 ```bash
 magnet:?xt=urn:btih:D5E489D2FAE3E84C8E76F53E18F12A7FAF7CEA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

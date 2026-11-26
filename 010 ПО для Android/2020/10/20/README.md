@@ -19,8 +19,7 @@ ADV Screen Recorder v4.3.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:756713FBB2BCD5C49A4171D85B3EE7907B1C3463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Wink Plus Mobile: обновленный мобильный мод. Эта ве�
 ```bash
 magnet:?xt=urn:btih:0A78FB7DD8DB26493D843367F07B812C7C382443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

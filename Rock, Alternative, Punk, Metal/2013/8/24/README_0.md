@@ -27,8 +27,7 @@ Disc 1: 00:39:29
 ```bash
 magnet:?xt=urn:btih:7D41A3A5D1FD0D279731B0A4EA62C2B90F49A3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Project: Roenwolfe - Neverwhere Dreamscape (2013) [MP3|320 кб/с]<Power Metal/
 ```bash
 magnet:?xt=urn:btih:9C83A67EBE6AD4CE7909815E111A9B699BDFEB29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Unshine - Dark Half Rising (2013) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:DF3CCA558EB57299214DBF27E4F7A957FC627E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Katatonia - Dethroned and Uncrowned (2013) [MP3|320 кб/с]<Depressive Rock / M
 ```bash
 magnet:?xt=urn:btih:6382B39C8CB7B553CBFB22E57AD81F994F642800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ The Doors - Morrison Hotel (1970) /W.German Target CD [FLAC|Lossless]<Rock, Blue
 ```bash
 magnet:?xt=urn:btih:138574E711C59600D59A32CF2D8D5287FB507CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Arven - Black Is the Colour (2013) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:161A1A729472F9F22F87E7097B77157C299CFE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ John Mayer - Where The Light Is: John Mayer Live in Los Angeles (2008) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:6A3AA8818B4F0D1F831F5E999FF5D02968C462EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Avenged Sevenfold - Hail To The King (2013) [FLAC|Lossless]<NWOAHM>
 ```bash
 magnet:?xt=urn:btih:D99832F70EBB726448F830C1369CAB77F5A99A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

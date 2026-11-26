@@ -19,8 +19,7 @@ RTL Winter Sports 2009: The Next Challenge / RTL Зимние игры 2009: Н�
 ```bash
 magnet:?xt=urn:btih:E27F5B72E778E20A37F566DFD646C24657FFB5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sally Face (2016) [Ru/Multi] (1.2.18) Repack Z0l0t0y [Episode 1&2]
 ```bash
 magnet:?xt=urn:btih:B8A99B5674CA1210221D83E29CE18D03351EB863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RTL Biathlon 2009 / RTL Биатлон 2009 (2008) [Ru] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:880BAF908085B58D109D379BD429A4B61D3943BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blue Estate дарит уникальное погружение в мир ма�
 ```bash
 magnet:?xt=urn:btih:80FF5C5DDDF5EB19982CCA3D9EECCE4F89B8D6E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ AtmaSphere - это игра о шаре, происходящая в средн
 ```bash
 magnet:?xt=urn:btih:6A130DCB16073B6A740273B7B7F1A1F9EBD2BA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:24B4DE07159C87FA677750CAE6DB09CEC17095AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

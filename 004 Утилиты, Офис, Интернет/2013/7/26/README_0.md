@@ -20,8 +20,7 @@ PDFZilla - программа, переделывающая PDF файлы в д
 ```bash
 magnet:?xt=urn:btih:DD507D8A970183EAA69054FC23E27502B93131CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

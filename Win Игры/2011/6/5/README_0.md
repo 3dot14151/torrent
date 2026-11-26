@@ -19,8 +19,7 @@ The King Of Fire (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:40BBE1D4B0D3C0A3402C6F64676DA03EF9C16300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Glamour Puzzle (P) [En] 2009
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ The Juicer Reloaded / Джусер: Перезагрузка (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:20D7E5000FF62BE8A3CEC1C506B3C4DC201AB388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2CA2E3E09485C18DD6994570A43CA5EA950A4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Tiny Bang Story / Теория Крошечного Взрыва [Ru] (RePack/1.
 ```bash
 magnet:?xt=urn:btih:9FE7175CDEF2D981C36744EF186BE38A3FB6D6AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

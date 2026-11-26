@@ -28,8 +28,7 @@ Riccardo Fogli - Collezione (1982) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop>
 ```bash
 magnet:?xt=urn:btih:8E80001DF57E0E71D8EF849C5C43EB0F44BB2C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Elvis Presley - Viva Elvis The Album (2010) [FLAC|Lossless]<Rock and Roll>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

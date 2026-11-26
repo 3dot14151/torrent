@@ -22,8 +22,7 @@ Denial Fiend - They Rise (2007) [FLAC|Lossless|image + .cue] <Death Metal, Thras
 ```bash
 magnet:?xt=urn:btih:F25DEB5976782E43E43EF3D9E58DDC00D328E43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hibria - XX (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal, S
 ```bash
 magnet:?xt=urn:btih:0297E0A63AC005B2B69678394D9F75FABC5F1280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Karlton Coffin Band - Three Minutes Of Fury (2010) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:C742139D1EE4185C6DA4336CD3A9B2C01C4A2204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kelly Richey & Kelly Richey Band - 13 альбомов (1994 - 2016) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:74B5F7085166416A620CEA2DAF084E7031460984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rob Moratti - Transcendent (2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AO
 ```bash
 magnet:?xt=urn:btih:0BA8399E2FEA2193D1AFFA82C8D2AFD8015624DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Siberian Meat Grinder - Hail To The Tsar , Versus The World (2015) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:C8D19999E190F23BC039133B0881B64C02E35775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ PJ Harvey - The Hope Six Demolition Project (2016) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:46F0CAB4B05B56D2D137BB848BD338A3EE51AABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Jo Harman - Dirt On My Tongue (2013) [FLAC|Lossless|image + .cue] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:D52B6412F5D75F000F17C80205A21287CDC7E98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:FEAAFBD3A7D78A3FD8202665C93FAB0632ED65E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Soilwork - Death Resonance (2016) [FLAC|Lossless|image + .cue] <Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:3995C7B39BA2766C2F02935EC537E4A0EDDBC48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A71842E0E0A983FF64A2AB2EB190642096453FAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Soft Machine - 44 издания / 57 CD (1967-2015) [WavPack|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:B7080792CB21F4984A2D967CC2D304F153348D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Sabaton - The Last Stand (2016) Limited Edition [MP3|320 Kbps] <Power Metal, Hea
 ```bash
 magnet:?xt=urn:btih:2891EA3011D5462B908D6B1A484102BF14ABA933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

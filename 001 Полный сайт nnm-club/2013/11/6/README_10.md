@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - NumberOneBeats Deeper Pres. Tech House Weapons (Special Edition) (2013) [MP
 ```bash
 magnet:?xt=urn:btih:85327DEB79175AE0FB0876839A5D7A7C9564DE96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Музыкальный заряд бодрости (2013) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:F8C6F444E749565972F0131119004CEB7FD65D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Deep Thing: Deep House Vol 4 (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:01969FB6EB807F0FD620B8AD055BAA0C81F69AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Best Hits. Заряжайся по полной (2013) [MP3|256 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:B3375F3DDDDECBDF8DD1D59254F30F3039FC1AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Осенний Best-Hits драйвовый (2013) [MP3|192-320 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:B4B9FDDF50EC45C2188006EBCF6554582C4208EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ VA - Hope Storm Greatest (2013) [MP3|320 кб/с]<Uplifting, Progressive, Trance
 ```bash
 magnet:?xt=urn:btih:C7AA867B8D6E41A17F01A907D7F82A04A12D0826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ VA - Trance Classics Collected 04 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:BE74323FA73F33A807FAA57A093A62F779AE0AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ a) Awakening(   Читать дальше...   )Жанр: Progressive Rock, Psyc
 ```bash
 magnet:?xt=urn:btih:B1CF6D49AFDEB6D455788A10F1115E9EABF536CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ DJ Цветкоff - Танцпол @ Record Club # 239 (01-11-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:8DAB0D250AD3CEAD39AFF50A68E78F4727EC4785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +359,7 @@ VA - Гламурная Осенняя Дискотека (2013) [MP3|224-226 к
 ```bash
 magnet:?xt=urn:btih:01ED2E68478997132198D2BB55A903E4863EC7E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +393,7 @@ VA - Только вперед! Лучший драйв (2013) [MP3|224-226 кб
 ```bash
 magnet:?xt=urn:btih:15552EECFF834A6953BA63667A8070C8818C0728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B594991D52491B6E29441F1FDF7C2D64538B1965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +452,7 @@ The Other Side [03:45](   Читать дальше...   )Жанр: Indie RockП
 ```bash
 magnet:?xt=urn:btih:D0599B21BCC7B0AA0CD61BC893A42A6EA1E2F8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +486,7 @@ VA - Осенний Хитовый Top 100 (2013) [MP3|192-320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:F7F497878A776B44E4D345B0D94712A85F8B467E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +520,7 @@ AOR - The Secrets Of L. A (2013)Japanese Edition [MP3|320 кб/с]<Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:C2DC7A80FF0B76191809DB4D3676D32611F2915B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EF88B3DACB4B00B1E4B8177B9A6C3279DD22756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +583,7 @@ Howard Mostrom - Demigod Soundtrack (2009) [MP3|320 кб/с]<OST>
 ```bash
 magnet:?xt=urn:btih:409266FEC96DD0E9C49D02A5852164E62206A81A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BBF7E22032DCC2A1DE430F3E4F4EA79DF90DADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90A104728E17A1B875269421E6DEF6F09704E3B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40D94191295ECE28A15BAF343955833D5C83950C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB7A7BEE10CEF498958F16311AB55DD649C7F186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D4B4E5A0E0D849D9AED4F14644E12CE490B40EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -803,8 +779,7 @@ DJ Цветкоff - Танцпол @ Record Club # 240 (02-11-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:103A739F678A243D3FAEF07E6A7B6098B181C4C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -829,8 +804,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:971F78A7FDBA134751E2E65A0E6EAB18E83464C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

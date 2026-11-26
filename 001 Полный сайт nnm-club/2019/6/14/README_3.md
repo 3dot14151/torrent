@@ -18,8 +18,7 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:93024141E53C7E03152BD52051463EE14B76F47D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Office 2019 — новый офисный пакет от корпорации M
 ```bash
 magnet:?xt=urn:btih:04E3EFF5CB8479134295A740B3D48DB20BBA19FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ ZYTOKINE | CYTOKINE — 71 альбом (2006-2019) Touhou Vocal, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:A57AE2B79691D9142A250A70E55A81896E14BCDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21E5AE4307CCE66A899A21E8D5ADEC9744F4EB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Windows 10 Pro 1903 (build 18362.175) x64 by vladislays v19.06.12 [Ru]
 ```bash
 magnet:?xt=urn:btih:72694E8B4103BE16C29536710F00A837F7FD508E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Kerio Control — это комплексное решение в области
 ```bash
 magnet:?xt=urn:btih:B1CAA03607AB14FAA41A0B4A25D8928E6A546409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Win 10 Tweaker — это небольшая, но очень мощная пр�
 ```bash
 magnet:?xt=urn:btih:DF6A3184138B57942B5ED9A87F4E8CBAEB7857EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

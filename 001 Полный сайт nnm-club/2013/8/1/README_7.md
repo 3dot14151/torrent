@@ -19,8 +19,7 @@ Fiberio - новая сенсорная поверхность, способна
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:652CD5AF8608BE654A2B639AD4FEA6F130442240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CC6B8252897D8DC90AD6138E7E7070C12498606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Любимая волна. Мегахитовое лето (2013) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:095F7FD049E75D7B7F732DB4CE15EBA1EC51BAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:389053E3FA13CADEF9D54EFE7962EA1218FBCFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF519392DF0A75CE3603B0FDE0BDDD33403A11E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - Big Summer Party 2013 (2013) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:AC37D9C1B2538454F993CE9496115744DECCA5F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:73CC6BC9CA76478F70066AEA0AD282F156C3C908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ VA - Самые Сочные Молодежные Хиты (2013) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:CAAF8E598C35DFCEFB26E6FD1E98A3F2E5F09D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +337,7 @@ VA - Хит Презент Европы Плюс часть 8 (2013) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:0445103C23ADA27E184CEBDDA2757E5C931EAF74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE4D4C8F7FED3BA982A2D65BA0C2CBD2308CB4D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ VA - Верхушка хитов радиочартов. Летний выпус
 ```bash
 magnet:?xt=urn:btih:7269D416737A1EDB32D8FC21966AD7310DFADCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4671038DA976BF0CD35F7EEAD432230EB13891F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +475,7 @@ Beauty Pilot - программа для коррекции женских фо�
 ```bash
 magnet:?xt=urn:btih:8E428D00F5694DDB8D84D6844285E3893112F542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ UPgrade – еженедельный журнал о компьютерах и �
 ```bash
 magnet:?xt=urn:btih:DC6328B82E2D5D69DC2BD1A99DF5150A3C9A77EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +535,7 @@ VA - Убойные Русские Хиты. Only Best Hits (2013) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:55ED65B409DF6995D58437214D06904E369CE4B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3056EE9B21317824A013A9153D548FA0250EC4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +588,7 @@ Bandicam позволяет записать определенную облас
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +622,7 @@ VA - 50 Best Of Summer Hits Edition (2013) [MP3|320 кб/с]< Trance, Euro, Danc
 ```bash
 magnet:?xt=urn:btih:A406E8B109F6CD694C518F60F418841B84603ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ AIDA64 (бывший Everest) - утилита является мощным с�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ VA - Летний Хит Возьми В Дорогу (2013) [MP3|256 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:E8FD598D797B86890AE7FBB51E82BBF7B9FAEBDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 ```bash
 magnet:?xt=urn:btih:EDFD60F48954890057012631917299CA3BA24259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +743,7 @@ Modjo - Modjo (2001) 1st Press [FLAC|Lossless]<House, Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:24436D6EB065E76831C5DBECF9920EEDDB05C787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

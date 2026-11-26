@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:38DB2969E18E00B2739A7D68AC06466C58AD09F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Anna: Extended Edition [Ru/En/Multi8] (Repack/4.0.1.62181)] 2013 | Fenixx
 ```bash
 magnet:?xt=urn:btih:1D99C7805DB3F18B6D9B5CC3725054C7D63DA653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Mysteries of Undead: The Cursed Island / Тайны живых мертвецо�
 ```bash
 magnet:?xt=urn:btih:AA92116C597E9B17291BA1D4C86685C15374E58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Anna: Extended Edition [Ru/En/Multi8] (Repack/4.0.1.62181) 2013 | R.G. ILITA
 ```bash
 magnet:?xt=urn:btih:D63E0C222EDE49DCE3CAF750FC92A7B040FA72F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Grand Ages: Rome - Reign of Augustus Expansion Pack / Великие Эпохи:
 ```bash
 magnet:?xt=urn:btih:8D5592514CDDC36B4EEC8EFB2FF6B8EAC8B10F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

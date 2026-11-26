@@ -19,8 +19,7 @@ Wei-Meng Lee | Beginning Android 4 Application Development (2012) [PDF, FB2, DJV
 ```bash
 magnet:?xt=urn:btih:6750F2B0D4CB1D7AA8B904CD47B1CB56E32474F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

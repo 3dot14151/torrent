@@ -22,8 +22,7 @@ Desoration - NON (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic Death 
 ```bash
 magnet:?xt=urn:btih:FD8A865408906DD4DA6801BBAD9FB976A8D5C89B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Leifellerhunden - Innan jag faller (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:68C5EF0ECC1B95E1150F7C3EF8CCA8CB47C0270F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lost Faculty - Temper (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & 
 ```bash
 magnet:?xt=urn:btih:C4F0EF1835D3C64CDFC199ADA1B73C9D0F63E2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cactus - Temple Of Blues II - All Stars (2026) [FLAC|Lossless|image + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:ACC1B79C8E3B690963A67B856C6DA4509B450193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:AAB439047F29EFCC7A04A7548D891A8693267E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD1 - Sexual Affective Disorder:
 ```bash
 magnet:?xt=urn:btih:0204AC2EBD0B17CADCD0EFBEA551F211507937B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Otargos - Apex Terror (2013) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:81FE860C08CDF94AC79E7B5DC9D98B276192CE96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Oath - The Third Aeon (2011) [FLAC|Lossless|image + .cue] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:352DAAD3144886069652EE3D598224F58C3A660C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ She Must Burn - 1 альбом + 1 EP (2015-2017) [MP3|320 Kbps] <Symphonic Deat
 ```bash
 magnet:?xt=urn:btih:643038EBECFC500C0D10FE75871AFC4E29057228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Richie Kotzen - Salting Earth (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:C3804165237D069984493D9E651AA2D8513E7C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Cold War Kids - La Divine (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:0A654FE0220636B661E00D537DDC613485595D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ayreon - The Source (2017) Promo, 2xCD [FLAC|Lossless|image + .cue] <Progressive
 ```bash
 magnet:?xt=urn:btih:01FCD28AB4261F05E6606DCBA05EAA6D95D287E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A149342264ABF1D610DDCD15C91BC5860D0754A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

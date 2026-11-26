@@ -19,8 +19,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.3853173/dlc) SteamRip =nemos= [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:FD78BAAB3B92404ECF30AC773BCD478CDCF54F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) SteamRip =nemos= [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:293C6777E2323F2EDE233A1429CC4CBA2FF685FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Victory at Sea Pacific - игра про морские сражения в се
 ```bash
 magnet:?xt=urn:btih:A7AA62BDFF88BFB8B30EEB264C3F3951AD362934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Victor Vran - это изометрический ролевой экшен с �
 ```bash
 magnet:?xt=urn:btih:4BED57BEE18042A258365DC18968CDD6AC1D32F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Generation Streets (2020) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:20022564E827AA256765BB53AEDB06A200896D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

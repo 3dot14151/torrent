@@ -27,8 +27,7 @@ VA - USA Hot Top 40 Singles Chart (26.01.2013) [MP3|256 кб/с]<Pop, Vocal, Dan
 ```bash
 magnet:?xt=urn:btih:E0B2E5D5F2824BCBDC4D47F1502D127F19BB3C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43D012B26FEA94E79B65BB58D091D53BD283D6CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Various Artists - All Around Jazz (2000) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA-Muz-Mix Полный вперед! (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:85DC245FE67B18585AB62B93898B67D9D33EE605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:127EB87845E32FC608C12B3D83E966C300B786BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3638DB44DA53214AF218E390A489A67CAD1A73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ VA - Best Of 2012: Progressiv & Trance (2013) [MP3|320 кб/с]<Uplifting Trance
 ```bash
 magnet:?xt=urn:btih:A294EDA06962AAFEDE32D9B46E9011A968FA9313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Various Artists - Blue Note Plays Rodgers & Hart (2006) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CE11BEE1FFB14D52FE1FDD91244782FB2CF5386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61C7CD42E5A415FDC73CF3176D48A1383B091567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +337,7 @@ Wallpapers - Girls Wallpapers vol.1 (27.01.13) [JPG]
 ```bash
 magnet:?xt=urn:btih:62AF5348FC2D35FEADCDE0BBBBC2D7C84EF821B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ Wallpapers - Large collection of wallpapers vol.6 (25.01.13) [JPG]
 ```bash
 magnet:?xt=urn:btih:4E7406E8DCDCD4855156845174CF5F0EEC2F550C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ VA-Энергичный Музыкальный Заряд (2013) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:600921CC51753BA7BEE109C3A9006E500C48D887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ Nitrous Oxide - 3 Singles (2006, 2007, 2012) [FLAC|Lossless]<Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ Various Artists - Jazz Sensuality - Close Your Eyes (2006) [FLAC|Lossless]<Jazz,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2622B3FF58F25BC975AC0A02582F11959B2394EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:104E43BF9F1DF75B0007A16F494502F675A525F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ Wallpapers - Car wallpapers (27.01.13) [JPG]
 ```bash
 magnet:?xt=urn:btih:0A9A0F41954B778281A09277A2D9BB7D652C52D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ VA - Dance Extra Mixes: Party Come InSounds (2013) [MP3|256-320 кб/с]<Club, F
 ```bash
 magnet:?xt=urn:btih:9A068DF4DC352344F60EC852576F07DB24735827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +614,7 @@ Wallpapers - Girls Wallpapers vol.2 (27.01.13) [JPG]
 ```bash
 magnet:?xt=urn:btih:84B20FC5148BBCDC72A5E4CFEC6BD9391054893A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ Wallpapers - Nature Wallpapers vol.1 (27.01.13) [JPG]
 ```bash
 magnet:?xt=urn:btih:C9E418B34BE73A4223BA02EB2FE8CCF2A9112836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ VA - Deutscher Disco Fox (2CD) (2013) [MP3|192 кб/с]<Dance, Disco>
 ```bash
 magnet:?xt=urn:btih:EB70A3E6943AE13EEC18E935E308F5D494062A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +700,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:DEDCBF32A4A5C801001693FBECED7FA91CBF6D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

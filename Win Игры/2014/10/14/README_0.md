@@ -19,8 +19,7 @@ Dark Realm: Queen of Flames / Темный мир: Владычица Огня (
 ```bash
 magnet:?xt=urn:btih:E67D355C51546756E99508270FE3383AC7079285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

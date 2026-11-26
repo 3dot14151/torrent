@@ -19,8 +19,7 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:657D964A06E57B00BE4BC92CD8D76169688AFD6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B6E400F25CF0EB95E2D3E50D90883641EB31D71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Folk Hero (2023) [Ru/Multi] (1.0.9) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7F87F7A6A3A124D026B97B82E657D9AA7674FD37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lovecraft’s Untold Stories - это экшен-роглайт с элемен�
 ```bash
 magnet:?xt=urn:btih:13446BB378831EA6CC12BBC4814EDA685A173701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Skabma - Snowfall погружает нас в мир преданий и кул
 ```bash
 magnet:?xt=urn:btih:84BC7D106F7E7CC565362A5B84F200F2EF656BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

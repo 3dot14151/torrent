@@ -19,8 +19,7 @@ The Cursed Island: Mask of Baragus (2014) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:890D52C06EB565753E0CA3F7D184A25FC4CDA00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PuppetShow 6: Lightning Strikes (2014) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:E10CF57952D0FF35E71EF3192979555F35AF7838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Witch Hunters 2: Full Moon Ceremony / Охотники на ведьм 2: Обр
 ```bash
 magnet:?xt=urn:btih:812E2A6A2B668F1A31C5A3F5EEECEE615073326F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Infectonator: Survivors - это смесь шутера, tower defense-игры
 ```bash
 magnet:?xt=urn:btih:55B1FDF0C716F1BE05B6D379B0E88EBDCE5E390F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ The Golf Club бросит серьезный вызов вашей техник
 ```bash
 magnet:?xt=urn:btih:440F35B5D6DCAB46A6885818F8FD9AF430585EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

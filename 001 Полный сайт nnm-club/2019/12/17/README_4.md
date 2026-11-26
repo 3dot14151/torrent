@@ -18,8 +18,7 @@ Windows 10 1909 24in1 (x86/x64) +/- Office 2019 by Eagle123 (12.2019) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CE90C19F21033E438021643BA1CF34BD8F8B86DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CrossOver Linux 19.0.0 [x86-x64] (deb, rpm, bin)
 ```bash
 magnet:?xt=urn:btih:C8AFB7F6065CD592F9612451D6232B36DC1A2EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:8DE1D14CFF89EEDA5411AB4D43FC44978B7A49E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Doom: 1 и 2 части [En]
 ```bash
 magnet:?xt=urn:btih:ABBB3C805440CE430FD1A70D80BA02D32C7C31B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XCOM: Enemy Unknown - Легендарная Стратегия серии XCOM 
 ```bash
 magnet:?xt=urn:btih:19C039FA2571DC9D638EABE64A2EA4929832235F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Assassin's Creed Pirates – игра на андроид, которая пос
 ```bash
 magnet:?xt=urn:btih:C286B5F8DEC8D38A68484ACE22453720E6E9CA40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

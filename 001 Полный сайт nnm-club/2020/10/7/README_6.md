@@ -21,8 +21,7 @@ Skillbox | Таргетолог от А до Я (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:A4BACB40EF152CA9262A7C460068824895DEF392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F57905AB8E76458B61BDEF1FAB94BD1C476B8766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

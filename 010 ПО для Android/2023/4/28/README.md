@@ -20,8 +20,7 @@ Dr.Web Security Space Life v12.9.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:5C84CFC0802AB82E9244C7D0AD4A50A26B59BFEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

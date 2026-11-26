@@ -19,8 +19,7 @@ Armello сочетает три стиля игры: карточную такт
 ```bash
 magnet:?xt=urn:btih:A723614A6AAF5D554F9E834610D9ADCAD63A5EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

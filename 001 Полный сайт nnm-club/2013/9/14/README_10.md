@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:328331F8AF319C8EE93DB5BDB502B70784E1334E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Djinn and Miskatonic - Forever in the Realm (2013) [MP3|320 кб/с]<Stoner/Doom
 ```bash
 magnet:?xt=urn:btih:C9348272F2FA2E6ADC12762B203D349D217CCFA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3419C1EDD6C480F67E15566980B04DD0C3839A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:382E5EB7440D872E10E04593DF2D042B079814ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Trance Superstars Vol.10 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8EADE025E206C33492C7FAB50841803A0079BAA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Exist M - Redefining (2012) [MP3|320 кб/с]<Modern Metal>
 ```bash
 magnet:?xt=urn:btih:5A9EC2E8ECD3ADD025240206D0D6CE7547398CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ V.A. - Jazz Goes Hollywood (2007) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:0D212D15B637ACCB4C0F4F4B16A466F4DB06A720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ Pelican - Forever Becoming (2013) [MP3|320 кб/с]<Post Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:269C0F8B9AD35D3CF5342389181251262A2BA471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ Aska - Fire Eater (2013) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:FD2E80313D19E31991F1E420ED9B0CDF9838B3C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Lustre - Wonder (2013) [MP3|320 кб/с]<Ambient, Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:FC1B469658A110D5740DA0FB13D43B394702FE98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ VA - In Da Club Vol.73 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:3FCF0B8584BFF6871D79EF51E8C995E99ACF9B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:389A199F85CF1AA22840C0473CAB4617C2A824B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36599021F834030146A127367079BD62A4EC49C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6D63A37B8A038E8446A9984ED6679390BAB79F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ Protector - Reanimated Homunculus (2013) [MP3|320 кб/с]<Thrash / Death Metal>
 ```bash
 magnet:?xt=urn:btih:40E6E048E35A75F5A5A1F13E573451890FAC9E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ Element A440 - Intravenous Nursery Rhymes (2013) [MP3|320 кб/с]<Industrial Me
 ```bash
 magnet:?xt=urn:btih:C6FF3C44050B8F1B89D111BD7F8D079117960078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C964EA38D3B1C07FA552780BA9EFF3ABE3E16E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ VA - Brilliant Voices (1998-2011) [MP3|320 кб/с]<Classic>
 ```bash
 magnet:?xt=urn:btih:2AC1AFEAAEC622D1C5C3E807BE30DD19AA66B04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F9984124F0314C8D0B24EA635DBA7C32776B8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B7A95E48CB6E57023DCB78DA4E4B6E7F9D5523D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCB257AAAF23048AA241E6A11DC29B4E6200C03D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE90AB56A83A25E56F3472B32F27B7718B902F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +669,7 @@ Cult of Luna - Vertikal II (EP) (2013) [MP3|320 кб/с]<Post Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:9234837B1A6513DC13B8FEB709B60549676CE2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ Cloudkicker - Subsume (2013) [MP3|320 кб/с]<Instrumental/Progressive/Math/Pos
 ```bash
 magnet:?xt=urn:btih:7029DC207F7936C99CFCAF9A8B252A8BFE269FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +747,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9923CAD826F6283848569E19E9A947652376A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

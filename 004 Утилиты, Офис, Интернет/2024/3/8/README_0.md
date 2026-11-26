@@ -19,8 +19,7 @@ Foxit Reader - профессиональное приложение для чт
 ```bash
 magnet:?xt=urn:btih:D256D40E12BE7244B9C78C204CDBEA2A01548E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

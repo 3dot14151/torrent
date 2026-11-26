@@ -19,8 +19,7 @@ The MagPi - о различных поделках и экспериментах
 ```bash
 magnet:?xt=urn:btih:9B155D942541EA1161D8C9CC82E80EAC5BDBE5E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

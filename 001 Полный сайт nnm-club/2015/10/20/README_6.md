@@ -19,8 +19,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.13.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:53DAF8E9DD0E580A38D5D06568A0CD9A5D9991EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83E7061B8E78C1B7589350B57DCEF9B8BA5BAB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Assassin's Creed 2 - сиквел успешного экшена про уби�
 ```bash
 magnet:?xt=urn:btih:7D8D26A9D24032FC382516C654AF314696E02F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E093D1386AD332E42DCA63CB9288ED3330336EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tales of Zestiria (2015) [Ru/Multi] (1.0/dlc) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:2DC6907E28C5EF62F46781AC054C9A61E7AB4E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ uTorrent заслуженно является одним из самых поп
 ```bash
 magnet:?xt=urn:btih:9EF43FAE6456B15199040F9A687CC574105D2E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:4B8187F5E576221C68309CE45CC33135451873A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Zver 2015.10 Windows 8.1 Pro x64
 ```bash
 magnet:?xt=urn:btih:37E6E5CCFB856E10A43A2307A01D3EB1B0F84FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Boot USB Sergei Strelec 2015 v.8.4. Win8.1 (x86/x64) [Ru]
 ```bash
 magnet:?xt=urn:btih:D92363EAC0C847F5051113E8BE7032C3C50E9298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

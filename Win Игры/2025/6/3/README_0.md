@@ -19,8 +19,7 @@ AirportSim - это передовой симулятор, который поз
 ```bash
 magnet:?xt=urn:btih:17408E1D2C98B51E6069C8769B6CDF33C5632A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AEC65CAE55AC28AF2163E95AEFE964C344B16346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

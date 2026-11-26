@@ -21,8 +21,7 @@ Frugalware Linux 1.8 [x86_64] (5xDVD+1xCD)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

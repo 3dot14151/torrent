@@ -21,8 +21,7 @@ Symphonika - Symphonika (2012) [FLAC|Lossless]<Symphonic rock, Alternative rock,
 ```bash
 magnet:?xt=urn:btih:8172D62C3A6B551CF20064E9E57433C702EC17A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8B7C0A2349E6BBEC0B633DBC28CAC85A3842AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ J&B - 11 альбомов (2007-2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:F120D979D34720BA657B1A979A1AEAC13B4905CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Kota-rocK - 6 альбомов (2006-2009) Touhou Vocal, Instrumental /Doujin/ [
 ```bash
 magnet:?xt=urn:btih:38AB9966BA38AEC2648BC9242509ED479421F6A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4A9CC375730ADD2F412F9548CC6BAD12B31D854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Knights of Round - 4 альбома (2007-2010) Touhou Instrumental /Doujin/ [FL
 ```bash
 magnet:?xt=urn:btih:025A40A5FD33ADFBEAEA02A1F80418F4658BD334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Final Conflict - Return Of The Artisan (2012) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:2FE641326A93088A3390D44DFEB168E0ABE587FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ A4	Блус За Залива Сан Франциско (A Blues For The San Fra
 ```bash
 magnet:?xt=urn:btih:5FFEF3FB9080A47E408374A3E2A816C4A9DBF525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ VA - Strange-Eyed Constellations (2015) [FLAC|Lossless]<Psychill, Ambient, Downt
 ```bash
 magnet:?xt=urn:btih:34FE0DA4ACCD5E67E3FC77E3979CF49F5A005AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:C53B456BF179ADB02ABEBCFEF1EBBFDF5CCE1805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ John Mayall - Find A Way To Care (2015) [MP3|320 кб/с]<Chicago Blues>
 ```bash
 magnet:?xt=urn:btih:B85E897BD14CEAFBC9315A3ED5B13EDAB7803A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Polarity – современный интернет браузер с подд�
 ```bash
 magnet:?xt=urn:btih:2196C50469017A3E11F678CB4C0686DD634FB9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9FE4E63FAAC8EE7E0EDE4293A501360B960DC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CAE322FB17AD6846D1FE3B9F29B65FB969F9FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24463272A6F1A7ABF9B7438303780DE456C307E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25768F17145CBB4D94A6D444D94178C9D1C8B939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ VA - Hi-NRG Dance Classics (2 CD) (2015) [MP3|320 кб/с]<Hi-NRG, Italo Disco>
 ```bash
 magnet:?xt=urn:btih:8DA8F5D7058D10437054C6A19CCE591CC576ADC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:051D46FA338823DE71F85456CADEE406418AE5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32EB6F17D77E22252FE2EE3D8F97BE180A25E8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ VA - Smooth Chill-Out Grooves, Vol. 1 (2015) [MP3|320 кб/с]<Downtempo, Lounge
 ```bash
 magnet:?xt=urn:btih:7AA1361A310B395946E219984B82B62D697E170F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ VA - The Very Best Of Uplifting Vocal Trance (2015) [MP3|320 кб/с]<Trance, Vo
 ```bash
 magnet:?xt=urn:btih:62401B5E1637622CA6AF0DCC48EF947D0F010E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ ESA - Themes of Carnal Empowerment Pt.3 : Penance (2015) [MP3|320 кб/с]<Rhyth
 ```bash
 magnet:?xt=urn:btih:F6031D476C8BC411679CAF73C79A20FC05CD710A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F3031F31DA06251CCF32C691F1AAF4A5046942B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ Leona Lewis - I Am (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Soul>
 ```bash
 magnet:?xt=urn:btih:E94FED1DB6EB17A175D9306D33995EFF431EC918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A90608E9AF06B219640027AE4CF9473165DFC31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ Slayer - Repentless (2015) [FLAC|Lossless|WEB-DL]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:55F5E315B8FCC1FC6B3DB94C49704B32A7F67175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

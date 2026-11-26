@@ -19,8 +19,7 @@ Unknown Device Identifier - небольшая утилита, предназн�
 ```bash
 magnet:?xt=urn:btih:6AC85DC0DEE869C6D640CC1C9A501696F92FE369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

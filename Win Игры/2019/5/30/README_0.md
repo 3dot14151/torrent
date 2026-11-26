@@ -19,8 +19,7 @@ Elephant Games с гордостью представляет совершенн
 ```bash
 magnet:?xt=urn:btih:1B21EDD04654C602A8937B6E5A22A58907C32F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ATOM RPG - это постапокалиптическая инди-игра, в
 ```bash
 magnet:?xt=urn:btih:E2DE40E5B2189BC1B3F6AB5E687E8568D5C36C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ City of Brass (2018) [Ru/Multi] (1.6.0/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:726F9A8D7F81B19169D81D615B1048CC158CD79A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Delta Squad — это игра в жанре экшен, разрабатыва
 ```bash
 magnet:?xt=urn:btih:0B790FA6DD4E195972F0125E255F9669C3CD3298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tempest: Pirate Action RPG (2016) [Ru/Multi] (1.3/dlc) License PLAZA [Pirate Edi
 ```bash
 magnet:?xt=urn:btih:A055F862F78D666C9F0BBBB99822EB992D4092D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Yakuza Kiwami 2 (2019) [En] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8E9DECA30A3C9CBA590275724B11F74AD267D0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

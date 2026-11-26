@@ -22,8 +22,7 @@ Exodus - Goliath (2026) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7966546F8DB86A6051EFF64385D025296DBC4AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Heaven & Hell - Breaking Out Of Heaven 2007-2009 (2026) Box Set, 4XCD, Reissue, 
 ```bash
 magnet:?xt=urn:btih:03FA64DF9132CE500EF4CAB1197B7B3F3C0A44BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1 - Remaster 2024:
 ```bash
 magnet:?xt=urn:btih:3B5F2BB771D509575625620F47D2555691323AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Monster Metal Hits & Power Ballads '80s (2007) 2 CD, Compilation [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:45D07AD17CE1244A827D677DBC7BF9F628171293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

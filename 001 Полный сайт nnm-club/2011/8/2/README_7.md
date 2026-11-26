@@ -18,8 +18,7 @@ XVI век, Карибское море. Эскадры пиратских ко�
 ```bash
 magnet:?xt=urn:btih:054BC1746D388FED26239707F92E3B869A86EEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Daemon Tools - маленький по размеру, но мощный по в
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Radmin - это одна из лучших программ удаленного
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

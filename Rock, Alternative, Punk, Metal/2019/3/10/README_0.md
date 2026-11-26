@@ -22,8 +22,7 @@ Kriegsmaschine - Apocalypticists (2018) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:3D7513528FC2E1E3876F26E71F59929641225926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vanir - Allfather (2019) Japan[FLAC|Lossless|image + .cue] <Viking Metal, Folk M
 ```bash
 magnet:?xt=urn:btih:2CC78C9043C9AE7756C74C62AAA6F5099849B6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Charlie Daniels Band - Tailgate Party (1999) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:AE08490CC2A815CE818C3CBD87CBE5CFA1D07DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0777134B1EEE8229A4B9ACA311F8149C1C26980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Candlebox - Happy Pills (1998) [FLAC|Lossless|tracks + .cue] <Rock, Grunge, Hard
 ```bash
 magnet:?xt=urn:btih:F2B037C18CEE9B15B22725A084D681068B15E083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Big Head Todd And The Monsters - Sister Sweetly (1993) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:64698DF5A5796033937274BDF1DF0BE49E02886F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Zaklon - Viatry Karačunavaj Nočy (2017) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:7A07CC48EB014FF264C3BC96FA2FDEB1B8735D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sheryl Crow - C'mon, C'mon (2002) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:28C57BBA62C2F6B53221A34C5AC0CEB68F77314C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Feinstein - Hail And Farewell A Tribute To Ronnie James Dio (2017) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:0A2A160A09F7850275951F137F7926E44118C2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Meredith Brooks - Blurring The Edges (1997) [FLAC|Lossless|tracks + .cue] <Rock,
 ```bash
 magnet:?xt=urn:btih:56890055D9A0700B5482F97508A069AF51BBD3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD892094FFDF60BAA37DFC7EF97F79FCC61A35C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ BY Effect - Первый шаг (2012) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:3E14C6C2E1186EA59593BAA4E3FBEE19E4DF7C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Bradi Cerebri Ectomia - Demo (2010) [MP3|320 kbps] <Goregrind>
 ```bash
 magnet:?xt=urn:btih:196CDE98626DE3760EAA5F0D367744F2A98E1B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Megadeth - Warchest (2007) 4CD, Box Set [FLAC|Lossless|image + .cue] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:8513E33F0F53FC628DFE63F305FD9D3B6EBCC2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E3D9CFD77257639746867F51D75547CEFF2E006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Trapt - Trapt (2002) [FLAC|Lossless|tracks + .cue] <Rock, Grunge>
 ```bash
 magnet:?xt=urn:btih:DC38C00E403A1684ADD0293EAA5C4BF170EE892C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

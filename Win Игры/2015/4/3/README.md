@@ -19,8 +19,7 @@ War for the Overworld [Patch] (2015) (1.0.0.1) Official CODEX
 ```bash
 magnet:?xt=urn:btih:4AA74D7E8FFD46194F355688F30374CF542C87A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Cypress Inheritance: The Beginning - приключенческая игра, в
 ```bash
 magnet:?xt=urn:btih:C1442B839D01903E2745D2BB6D87DF33A911F08F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Dyscourse - это приключенческий триллер, события
 ```bash
 magnet:?xt=urn:btih:2829E13B95950165504F8C6233E56A632B1D535A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ DG2: Defense Grid 2 — это игра в жанре tower defence и по со
 ```bash
 magnet:?xt=urn:btih:20472D31039E268A5010BB223E1BEDD3978D2358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Tormentum - Dark Sorrow (2015) [Ru/Multi] (1.0) Unofficial FANiSO
 ```bash
 magnet:?xt=urn:btih:AAFF26DA8D3B325E7EBA94C1749C38E0797058C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Wanted: Weapons of Fate / Особо опасен: Орудие судьбы (20
 ```bash
 magnet:?xt=urn:btih:7F3A83A815EC4B630E74480DAA9785DA252466BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Joe’s Diner (2015) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:3332E8A77EA1E3D2FCC2D41A9C5C704A98A1714B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B87A9C79DBECCA36AC606EBA08DE426049560CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ BattleLore: Command - это фэнтезийная стратегия, осно
 ```bash
 magnet:?xt=urn:btih:3D24C18F88434C8815275B52F1867B2351C8A358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Pom Poms - Turn You Out (2017) [FLAC|Lossless|tracks] <Alternative Rock, Female 
 ```bash
 magnet:?xt=urn:btih:80CB6EB6D8138AA6A3E6C31FCD3D39CEAD0B93D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gideon - 4 альбома (2011-2017) [MP3|320 Kbps] <Metalcore, Hardcore>
 ```bash
 magnet:?xt=urn:btih:7AF59E1EFD8309CE8C4960B24C97853B11C1700A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Voyager - Ghost Mile (2017) [FLAC|Lossless|tracks] <Melodic Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:ECA393A802F31C7CC95D703045C40C735A9ECF64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E6996F3F3F60A0DA2B2CF3D8C84B26371375D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Papa Roach - Crooked Teet (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:0DD6276692713640855385538089CB12073032BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Papa Roach - Crooked Teeth (2017) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
 ```bash
 magnet:?xt=urn:btih:B57863ABA88B4D9247CE6BFBA738ED0AA263E545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

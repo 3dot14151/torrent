@@ -22,8 +22,7 @@ APG - This Brutal Addiction (2007) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hea
 ```bash
 magnet:?xt=urn:btih:9188EAB245F8187E4C96050CF841B3E89CE160A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Green Carnation (с англ. Зелёная гвоздика) — рок-гру
 ```bash
 magnet:?xt=urn:btih:A3DB7296E5E9248613F2DFD7671F1A5B0A64E4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ The Matrixx - Сингл (2018) Single [MP3|320 Kbps] <Neo-Post-Gothic, Alternat
 ```bash
 magnet:?xt=urn:btih:EAF5690C9BF2748ACC31E2AF370B9D091DBA0987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Emigrate - A Million Degrees (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative M
 ```bash
 magnet:?xt=urn:btih:DBE7D3E52344F7ADBE03D847F4DD372037FB571D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Parts 1:
 ```bash
 magnet:?xt=urn:btih:FD2FFF44E7C20EB6A1D8C16D959761E8E9D4B992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ BrainStorm - Closer to You (2018) EP [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:8C685E4CDF7D8426C5E4166450A208BAB10733DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Sphinx - 4 альбома (2003-2010) [MP3|320 kbps]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:522FA10F3FF293DF5686A114B8A6EC8A5F3F2608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:914DD82B8EA4769AD127A7455470268E65C5DACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Lordi - Babez for Breakfast (2010) [MP3|320 kbps]<Hard Rock/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C8076E8ABA0E33BC782C7B13B6553809D51DDA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Margenta - Дети Савонаролы (2009) [MP3|320 kbps]<Heavy/Gothic Meta
 ```bash
 magnet:?xt=urn:btih:C62AF9BDA38D30CA3CD872DD2A8930BE115F2D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Sonata Arctica - Takatalvi (2010) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:441B709FB12A4AD3A9EB267C191A66C545F56D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5015B8E295F0B935CA613C781AD28516ABD3B9C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7DDA1FA927DA8AE8890B0F760035D64AA080666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

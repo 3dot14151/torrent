@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:3035A4A33B3CEE5E004EE26441949729BE066DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Crazy Lixx - Forever Wild (2019) Japanese Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:1E2663C508C2EE6D9A663B447BA1D92E0D19875F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Lords Of The Trident - The Offering (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ```bash
 magnet:?xt=urn:btih:E7D3C7B158BA2BA65DC48CEA9C08B4E47BB3AC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Trick Or Treat - Creepy Symphonies (2022) [FLAC|Lossless|WEB-DL|tracks] <Power M
 ```bash
 magnet:?xt=urn:btih:22AF832639A175376865A6F4E9BA13995DC91DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Disconnected - We Are Disconnected (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 ```bash
 magnet:?xt=urn:btih:800316DAB404B25D39D212DC390E55929391A0D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Moss - Cthonic Rites (2005) [FLAC|Lossless|tracks + .cue] <Sludge Metal, Drone D
 ```bash
 magnet:?xt=urn:btih:4C66A179578137486A46C797832A0B53012A21D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

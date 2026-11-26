@@ -19,8 +19,7 @@ X4: Foundations - это космический симулятор, продол
 ```bash
 magnet:?xt=urn:btih:522B514799AB386F4F9ADD2235140F5FB9ECE4D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

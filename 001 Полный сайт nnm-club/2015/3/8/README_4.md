@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:1B18696B586769DE0CC80625B20D59B07F909045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A70DC76890B7A4F1B431F4E9AA9AA5F053134F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F676D86DF2F8CC58099FEC4E7E623294A8BEE79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Multitran 3.93 (12.01.2015) [Ru]
 ```bash
 magnet:?xt=urn:btih:E130EA7A696515398A8F643E22CA15BD1A1C691E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Kingdom Rush (2014) [En] (2.1) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B8FB6E672AB04208032509AD710194E715D417BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Real World Racing - сумасшедшие аркадные гонки с нео
 ```bash
 magnet:?xt=urn:btih:118D8C11F352BAB4ED3CF558A7D35FBBE5B88D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:050126D0E77EFC6B5B466A515B9CA1C740451871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Crysis 3 продолжает знаменитую серию шутеров о�
 ```bash
 magnet:?xt=urn:btih:DEC8761E201D41B186926F4B63FFFD14B02D72F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Crysis (2007) [Ru/En] (1.21) Rip R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:2458753C5D52658B34C9C50E192317AF10936163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Tropico 5 (2014) [Ru/En] (1.08/9dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F4EAA32AB8EF367100F021317D25393B30350E3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ XVIII век, Северная Америка. Среди хаоса и наси
 ```bash
 magnet:?xt=urn:btih:ECAC2A677BD14583C86D58FAE0DBC9E79CB352B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4824AD0F15302D21031D7B5B146A0A9C6C35A5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ XCOM: Enemy Unknown (2012) [En/Ru] (1.0.0.4963/1.0.0.9040/9dlc) Repack R.G. Ме
 ```bash
 magnet:?xt=urn:btih:757DBEDF88A32D426E0449F3725E5847FE9C6905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

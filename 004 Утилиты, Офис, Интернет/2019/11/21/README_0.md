@@ -19,8 +19,7 @@ CDBurnerXP - программа для записи CD и DVD, включая Bl
 ```bash
 magnet:?xt=urn:btih:B3DA3B30976676C6D1071BF2E98CA3A0D258FB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Mandriva Linux 2012 технический превью предстоящего
 ```bash
 magnet:?xt=urn:btih:99EE3A8EB36C19EEB18B26C769E9B2109CEF1700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

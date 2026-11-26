@@ -22,8 +22,7 @@ James Bond 007: Blood Stone [Ru/En] (RePack/1.0.0.1) 2010 | R.G. Games
 ```bash
 magnet:?xt=urn:btih:1C566F42C3C5C0512AE817B6B4DF20385FF97410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Slimjet — это переработанный проект Chromium с отк�
 ```bash
 magnet:?xt=urn:btih:AFADE9F39029932E44603C169BDF21944C048BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 ```bash
 magnet:?xt=urn:btih:BA51796B614FF75D30DC10B6BED35F0B8DE679CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:1404F71A2E8E55506300EF492211094EB9DAAFAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:06AF4155D5758DF078E3B2F174CEC1A2A70BDD9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:476CD44016B15E1990A4F90578E9306D765294F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:A5CCD9182C6595A1687F335C68E92C73FB23AF10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:8945D8F471D746E2DA19AC6375C42DBB74724048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ HWiNFO – информационный инструмент, который с�
 ```bash
 magnet:?xt=urn:btih:C11A011B939B177FEF59FCE185E85002F391F8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Wise Disk Cleaner 12.0.0.961 + Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:BBB3292CDF0619138384400668BE28C31E2D1310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

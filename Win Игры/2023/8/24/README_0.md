@@ -19,8 +19,7 @@ Darkest Dungeon II — это путешествие в жанре рогали�
 ```bash
 magnet:?xt=urn:btih:EBDAB308FAB65CDBF3A3BBED8632C20734E8FCC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Wreck (2023) [Multi] (1.0.0) License GOG [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:F64B0519B34EA4368B54778C8DE71A72990D459B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

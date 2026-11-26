@@ -21,8 +21,7 @@ J.T. Connection Featuring Dennis Tufano - Bernadette (1979) LP [MP3|320 Kbps] <E
 ```bash
 magnet:?xt=urn:btih:1D95C89D6516AA06725DB38B85F9E2DD478E66F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Breeding The Shadows - Breeding The Shadows (2020) [FLAC 2.0|44.1/24|tracks|WEB-
 ```bash
 magnet:?xt=urn:btih:28C65760BF4DFCD08E12394E4B9BDA8A6F059FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CA7C784BBD55191B0E0CA2360B0859093D4B169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47B6B5E1647FA12AE8670CC4D543C6AF664B8EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Kingdom Of Giants - Passenger (2020) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:997A91684AFAF719C23599262E3D00E6BB00BBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:14C0EE5E5218B20801E0195C85830CB5E3EDCA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Carla Bruni - Carla Bruni (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1FE4579CEAA93019D9278330FEB17F6938AC1701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B0FD17B5998CF45412389D7B4336C711B89C256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Bucky - Foreign Blocks (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <UK Garage, Ambient
 ```bash
 magnet:?xt=urn:btih:FDF336117574C67742F698C14A0555D6C5C2462A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ VA - Jazz Ballads, Vol. 2 (2018) [AAC|~300 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:2CF5E7EDA47C4E3077A3D6E5713B3A4A000D0EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7420E4C8DAB70925BD996BBFCBBEEE30DED40D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAFEEBA8FF3D538F093B9582111BA0FEAD5AA3D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:874930F7E132E0B19153D9DFC611FD6651079B4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ OCCT 7.0.0 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:96B87480D595A47393B6EC2CA4E3E66D2FA60FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Secret Garden - Nocturne: The 25th Anniversary Collection (2020) [AAC|~319 Kbps]
 ```bash
 magnet:?xt=urn:btih:4D288E617F89673A97BA4DF5548AD9F515C1BBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:985AAB236EA649A966766122B741FA5442476E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DD6B08B913A8C609E7E751A4CC3BBF7B837A92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Freac – бесплатный инструмент для конвертиро�
 ```bash
 magnet:?xt=urn:btih:87A7E025AE2D683DBDDD9ED8C6B67AE9E36311AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ Revo Uninstaller Pro 4.3.7 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:403082BC8F233BA6A93A79BB616B77FA6552BECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ Sublime Text не является свободным или открытым п
 ```bash
 magnet:?xt=urn:btih:425A6D18F3805E598029C32365A76C620F528958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ GeoGebra — мультиплатформенное программное об�
 ```bash
 magnet:?xt=urn:btih:73CEDD612C783A02120243F610DADA0336486FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ Mariah Carey - The Rarities (2020) [AAC|~334 Kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:8F57066DDE2FEB8B60DEBFA261597E6C9B9FB67B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3767C57A3914B0A47A283F64D38EDF49C5C281D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:ECEF2B205B10CBE53536EE44B5A8C439C15BA227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ VA - Italo Disco - The Lost Legends Vol. 29 (2019) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:252643EAC943931029B6050231E5726A2C6779F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ VA - The Waiting Time (2020) [MP3|320 Kbps] <Funk, Soul, Blues, Jazz>
 ```bash
 magnet:?xt=urn:btih:A798BFD1361518E6A2298D280B8706BEF013459A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

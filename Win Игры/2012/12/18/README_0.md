@@ -19,8 +19,7 @@ Christmas Wonderland 3 [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:EF57C1ECE57A80C3408E2A7AF5E73D485A914851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Candles [En] (L) 2011
 ```bash
 magnet:?xt=urn:btih:DB9197A62F1B18BAD8EF96B10D19BBE6D6473166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
 ```bash
 magnet:?xt=urn:btih:7F2CFE7A87F6938540630C167C1DCBC6B4A7B068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4		Lover For Life	4:45(   Читать дальше...   )Жанр: Electronic,
 ```bash
 magnet:?xt=urn:btih:8DFCAC09B0B95719E08F455F57E20928094D910D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

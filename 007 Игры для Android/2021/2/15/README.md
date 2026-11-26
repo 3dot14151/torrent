@@ -19,8 +19,7 @@ Hellrider 3 - третья часть захватывающей экшн арк
 ```bash
 magnet:?xt=urn:btih:1F0E35A120F7CFA8FAABE2AC5399E2DB7355BE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tempest: Pirate Action RPG Premium – приключенческая игра �
 ```bash
 magnet:?xt=urn:btih:4EA83DCEE80AA85703803B336C6D2570048C3216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

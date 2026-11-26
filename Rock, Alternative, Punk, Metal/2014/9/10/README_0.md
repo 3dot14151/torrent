@@ -28,8 +28,7 @@ Onheil - Storm Is Coming (2014) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:169A5E90CE1A434605EB4EB26194797FF7306D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Superslims - Неизвестный номер (2014) [MP3|320 кб/с]<Dance-Ro
 ```bash
 magnet:?xt=urn:btih:87E6636C0125BEAD8FE2A7AACBC08CFA62DAB446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ The Color Morale - Hold On Pain Ends (2014) [MP3|320 кб/с]<Post-Hardcore / Me
 ```bash
 magnet:?xt=urn:btih:F48BEDE960625A9A044ED49F7BD568E495D62DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Riot - Unleash the Fire (2014) Japanese Edition [MP3|320 кб/с]<Heavy/Power/Sp
 ```bash
 magnet:?xt=urn:btih:17929D0CDE3890CC2188935C0143E675A4AE8FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Rocket Lab - Океанами (2014) [MP3|320 кб/с]<Alternative Rock, Modern 
 ```bash
 magnet:?xt=urn:btih:C0AAEFB37E47A280B0369856F7B7639E4436E0F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Phil Collins - No Jacket Required (1985) [MP3|320 кб/с]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:DA814533DC144FA291CA72D20FFE1ADFC7979EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Dominia - Theophania (2014) [MP3|320 кб/с]<Gothic / Dark Metal>
 ```bash
 magnet:?xt=urn:btih:F0B1311E9298F02205F00428A3FEE9CADC9EF8B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Phil Collins - Testify (2002) [MP3|320 кб/с]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:E960C4EB19A581067DEE02941464CA9BB030A6EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Marillion - Clutching At Straws (1987) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:54935E684096F00C65AE71EA46CE9C7A89D17078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ U2 - Songs of Innocence (2014) [MP3|~246кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:D0EAEC1D365A2B1CFE185F4C0E637DEB19F01318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5DF1B4A012B11A789E84631B0B8FE8F88D54D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

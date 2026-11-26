@@ -18,8 +18,7 @@ LEGO The Incredibles (2018) [Ru/Multi] (1.0.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:2895C9BA921B3B5D6CE651269B08A3B8C2ECC124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Ni no Kuni: Гнев Белой Ведьмы рассказывает о при�
 ```bash
 magnet:?xt=urn:btih:EDF61B9A63806141C37862EB9C191741EFF76DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Microsoft прекратит техподдержку Windows 7 и Windows 8 н�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 14.06.18 [Ru
 ```bash
 magnet:?xt=urn:btih:A65E9EE3E80CB1F0F5971097CB89DE8A844AB846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF7773AF33CD9601D18833571401D3C343CFE9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ VA - Club Dance Ambience Vol.151 (2018) [MP3|320 Kbps] <Dance, Club House, Elect
 ```bash
 magnet:?xt=urn:btih:7FBB2C8024D2642A206FAA1ACCDE3B07B4F2270D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ VA - Deep House Collection Vol.174 (2018) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:6575AFE2159FEF0FC92A1B8ED6486079E5F494D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 15.06.18 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:02175E34C440D2741699F22D3EBFBCBBB3F09A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 15.06.18 [Ru
 ```bash
 magnet:?xt=urn:btih:FE43FD2F4DF9500105FE78B0810DF84C45DDC7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Windows 7 SP1 (x86/x64) 13in1 +/- Office 2016 by SmokieBlahBlah 15.06.18 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5D6DC9028DEF68EAFA2B43F29576DE61C026012E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37EA7B2D864326A3CB79544F66F5A997E904DE55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

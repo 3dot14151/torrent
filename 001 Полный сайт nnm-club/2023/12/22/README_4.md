@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F68DFBFC3A9A500D439C4BE10C165A20F4817196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2135C5503692E86483B8BEC00977044AAC78B873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Tune of the Year 2020 - 2022
 ```bash
 magnet:?xt=urn:btih:80A27FCA1B6DA6BFA1C7DD23D7757978E9778A55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:228F27E3DE3085B0568BB227CA6FEF1CC488194D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACDE581F39FEA83945C9369E5DA8A47C489054EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Animal ДжаZ - Корни (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:B382784E870DE950E1E1D48439E1B9841A5820EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ The Karminsky Experience Inc. - The Power of Suggestion (2003) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:3F9BA834F4CA13B2FC0D2E508B7C08E42CBE4398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Arch Enemy - Stigmata (Deluxe Edition) (1998) Reissue, 2009, Century Media [FLAC
 ```bash
 magnet:?xt=urn:btih:3B75A65526343547E6944C3A91E946803598207F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - The Best Of Hit News Vol.2 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 ```bash
 magnet:?xt=urn:btih:9B8CEACCC3F335BC6AACC12CB0B172FF021150BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ACCD3599BB6309CBC5C90F1811069D17735B75E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83A2D8A914FF2160458740983D2F1D91F87939F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Randy VanWarmer - Warmer (1979) Japanese Edition, Reissue, 1995, Bearsville [FLA
 ```bash
 magnet:?xt=urn:btih:2EB0059ECB507506B653DF3A7843BB2DE1935A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Damnationis - The Fallen Princess (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, D
 ```bash
 magnet:?xt=urn:btih:5834FC788B06F38574DFD88559916D52740B65FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Kaos Krew - Blackout (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, In
 ```bash
 magnet:?xt=urn:btih:79875618ED946EDE1548C4BFB8C98E24D06744FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Vargrav - The Nighthold (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Me
 ```bash
 magnet:?xt=urn:btih:9B8A737561D78DF7B5B0D093B307A69EA084B569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ Power Reset - Son Of The Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 ```bash
 magnet:?xt=urn:btih:F147588CCF5D10947794862B4D12C367C6780BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Rencontre Nocturne - Recap 2023 (2023) [MP3|320 Kbps] <Electro House, Progressiv
 ```bash
 magnet:?xt=urn:btih:7AAE33462099DCD0021024A66857902F018DC238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ Edward De Rosa - Darkness Falls (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 ```bash
 magnet:?xt=urn:btih:F5D69350F77E4C22A4CED3D93324AE193E0EF2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32A239DBA7ACC7E35A4469D88B552BE981D29546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ Ritual King - The Infinite Mirror (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:786F106DBD2E3B34BB0D04B588018BF8A76DC076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFC33D81B218C33FD3E80AECCA8C52DBCCF4887F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

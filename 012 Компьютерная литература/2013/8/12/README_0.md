@@ -20,8 +20,7 @@ Lesa Snider / Леса Снайдер | Photoshop CC: The missing manual / Photo
 ```bash
 magnet:?xt=urn:btih:27EDB5ECC9693FA5BB08EAA832FB32B286EBE407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

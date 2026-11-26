@@ -28,8 +28,7 @@ The Charlie Daniels Band - Off The Grid: Doin' It Dylan (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:2E74758A0195269A1D671A05ACD1A6C63DDD9DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Family Rain - Under The Volcano (2013) [FLAC|Lossless]<Alternative Rock, Ind
 ```bash
 magnet:?xt=urn:btih:30492BC4D484F3C267CE42936A83A721E271A090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Family Rain - Under The Volcano (2013) [MP3|320 кб/с]<Alternative Rock, I
 ```bash
 magnet:?xt=urn:btih:99193C0A565F0FEC5BE98FF2EE8E1CB79AACE617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Katatonia - Kocytean (2014) EP [MP3|320 кб/с]<Depressive Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:1F3125286351E5646A95B041B0711D67D0B7ABC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Centaur - 5 альбомов (1990 - 2009) Full-length Albums Discography [FLAC|
 ```bash
 magnet:?xt=urn:btih:BDF85E48BAF27C53C4300F5F8F4581C1CBB58FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ NATRY - Я 2005 (2014) [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:9D6FA3438931ED6E7638B621BB479B51290093D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Liv Kristine - 2 Альбома (1998, 2006) [WavPack|Lossless]<Pop/Gothic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Joe Cocker - Have A Little Faith (1994) [FLAC|Lossless]<Rock/Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

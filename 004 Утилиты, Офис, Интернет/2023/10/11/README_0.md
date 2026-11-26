@@ -19,8 +19,7 @@ WinSnap - отличный многофункциональный инструм
 ```bash
 magnet:?xt=urn:btih:6DF0BB84541699146EEBFC17FBBB07196AB04AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WinSnap - отличный многофункциональный инструм
 ```bash
 magnet:?xt=urn:btih:D4DFDF58A4FC1BF7BE6ED4DFCE1D4D746099709F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WinSnap - отличный многофункциональный инструм
 ```bash
 magnet:?xt=urn:btih:46354256ACAEC3DD559EA97C89055385799CD9B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

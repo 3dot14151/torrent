@@ -22,8 +22,7 @@ Serapis - Vita Et Mors (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Deat
 ```bash
 magnet:?xt=urn:btih:2A5F7E91A599D09026BA202388D1CD805DEC047A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ SolarenD - Subhuman Born (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Groo
 ```bash
 magnet:?xt=urn:btih:4EAADB974AF32D80C4A609F06AD276FCB8BA90B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Scitalis - Doomed Before Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:7CE5295759B44A4E0786CE102B220BD76EE78BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ We Are Many We Are Legion - Breathe Fight Believe (2022) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:A7DAB810E5EDC705A4970E78EBB93CA2AFB779EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Reverend - World Won’t Miss You (1990) Reissue, Remastered, 2019, Divebomb Rec
 ```bash
 magnet:?xt=urn:btih:2A7354E985B8B8F73A2B046115F4187F05337307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ The Warning - Error (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Voca
 ```bash
 magnet:?xt=urn:btih:092261ED317A3E16D5B3B5807A01552C8A5B9B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Mega Colossus - HyperGlaive (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CFC26CCFCB9D0ED34CE644EE9B5A6255FAA7A895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dying Aura - Of Death, Kings and Solitude (2020) [MP3|320 Kbps] <Atmospheric Bla
 ```bash
 magnet:?xt=urn:btih:357608B184F22131D2E3EC2D40C56EAF9360FF19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lancelot - But I Just Can't Stay Behind (1983) Reissue, Remastered, 2015, Limite
 ```bash
 magnet:?xt=urn:btih:9CBC711B20297A405C0E6B05C518D66BF60687CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ricochet - Pieces of the Ricochet (2020) [MP3|320 Kbps] <Progressive Rock, Heavy
 ```bash
 magnet:?xt=urn:btih:4EC186CEFD004B3119110B40840A10A806B534FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Vengeance - Piece Of Cake (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard
 ```bash
 magnet:?xt=urn:btih:0EB67957B30B52591FEC4EC9C1A89D96B9A9CCAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Paradise Lost - In Requiem (2007) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:BE1430279EC66825377966B1C290CF2263F23A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lachy Doley - Double Figures (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:893373F70D15786D5758A906571D7B61E945E73C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Paradise Lost - Faith Divides Us - Death Unites Us (2009) Japanese Edition [FLAC
 ```bash
 magnet:?xt=urn:btih:FBC094A38134DE7EC0FB3F0DF5C68E3E7CF59F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Paradise Lost - Tragic Idol (2012) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:4721D76885C107E247858357051F4BEF917283DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Tragik - Faith Healer (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:47FE13B39A022D95D742C4B69E70B845B0F8B456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Withering Surface - Meet Your Maker (2020) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:A22C338B3D1756BD9A9AF55891E80D5CAA3A304B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08626017BB70B198B4510947A0CB7328904FC338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:760EE686C0AE26DC301D25C2BA4A4449D982B2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

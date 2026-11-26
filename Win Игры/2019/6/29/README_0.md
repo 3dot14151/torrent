@@ -19,8 +19,7 @@ Midnight Mysteries 5: Witches of Abraham / Тайны прошлого 5: Вед
 ```bash
 magnet:?xt=urn:btih:590A330BA034ED6353D01FF24EE6BDE1254F5932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

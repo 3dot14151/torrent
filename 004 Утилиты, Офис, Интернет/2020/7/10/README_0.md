@@ -19,8 +19,7 @@ SoftPerfect NetWorx - утилита для учета интернет-траф
 ```bash
 magnet:?xt=urn:btih:25E756AA92BAE1790900517342DB4578469C63F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Network Scanner - программа, предназначенная для ск
 ```bash
 magnet:?xt=urn:btih:C52A576C4B583AF145D099A7F9971896DBABFF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

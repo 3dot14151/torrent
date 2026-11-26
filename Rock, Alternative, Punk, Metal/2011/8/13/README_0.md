@@ -27,8 +27,7 @@ Disc 1 - Poetry for the Poisoned2011Жанр: Symphonic Progressive Power Metal�
 ```bash
 magnet:?xt=urn:btih:8A81133D819FB9BE3A8952A4CAEAA256493D60A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ The New Yardbirds (Led Zeppelin) - London Blues (1968) [MP3|320 kbps]<blues rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Kamelot - Poetry For The Poisoned & Live From Wacken (Limited Tour Edition) (2CD
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ VA - The Rock 'N' Roll Era Cruisin' (1992) [FLAC|Lossless]<Rock & Roll>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ VA - 100 Rock Classics (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B6DB46809D44ADE2EF4990558E5E4E02C104AC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - 100% 70s Rock (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:33613EE4BA7522544A2C8EFF95AB6A0355F7889E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AF8C15610AA9C652AF29B2E5C8FBD34C8F4CB52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:924725DAD1428C54519EA963E65F0BF0F7EC55E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Battle Chasers: Nightwar – ролевая игра, вдохновленная
 ```bash
 magnet:?xt=urn:btih:311170B44431A7E106F288ABED0166E1608CB05A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Thundercat - It Is What It Is (2020) [FLAC|Lossless|Web-DL|tracks] <R'n'B, Funk,
 ```bash
 magnet:?xt=urn:btih:D4390BACF76336E8B916E11540969DBDF84C010A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3CA2916EBCA1C4871DA7E394996AC8310207669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ FileBot - это идеальный инструмент для организа
 ```bash
 magnet:?xt=urn:btih:C9A48386C4AAE890C074B1C66616AAF525D6C44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83489484CA9ADB471C084D73B5C47520F05D1E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B1EB8AD7FCAFE8F76EE1D439FD25BCF7D0FE5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Rainlendar Lite — календарик для рабочего стола с �
 ```bash
 magnet:?xt=urn:btih:DFDBCCB4866152A5BEADA50875B42A5618584CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:346B86F36C8BBDD865B3C907E3F153C7F2294D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E1854ED00A85E4F5D4FAC0969E7F1EF51A64E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Lee Anthony Norris - Discography 4 Releases (2013-2020) Unknown Tone Records, ..
 ```bash
 magnet:?xt=urn:btih:514BAA86699D686AC030721E353EC6E72031CF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ Roger Waters - 100% Roger Waters (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:BEC70712E7D9443B9A12853D0352B97F7A973D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ VA - Хорошие песни: одна за другой (2020) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:AF4A5AD2C020C076767B543A86919259607D74D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Shiny Photo Slideshow -  это модный, красочно выглядящ�
 ```bash
 magnet:?xt=urn:btih:7ED8166DD3BB962AA4C3FD42B408DCD6236BD966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4978C7C99BF844CFF313D0240C369319D729ED0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3065CECA1BFCD7104413AEC6BCB8F3CA4F9B6E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Tor Browser Bundle 9.0.8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7786837AD576B35EED3F3EBE435B6832A90D4D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A637A14834FEE4DCD173AAA7D9D9CC0B7F9ED004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2FDAFBDB5EEBFE88DD8B002D8C87FB13334BC44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93584ADABAE8C2A8185F895B9A5C9501310160D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC3C535D753C35943572C0CBF7B167626A6034F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ Victoria 5.25 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:11BE9C22AA409FE2DCEE15B0055618BD87C8C8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8AB0C227CC03C6025A91D23878A57439B5ACCD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

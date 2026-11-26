@@ -19,8 +19,7 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:F838FEDBC3BE758F0AB89A5EB2082661D47C803F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:0DB5B900856D9DCC1D8E4F7075418D44881BD1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Talksy: Навык общения v0.2.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D4EC168310AF211528769BAE64B6BDBAB902FE43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Smart AudioBook Player Pro v11.6.1 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:82DC3E3B44DC9B0C58272595D701F505EB3CFCCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Smart AudioBook Player Pro v11.6.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BBFC5F998A682C5585A141F46D95BA102DB0C228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ AirBrush: ИИ Фоторедактор v7.20.1 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0D728A39ECF094AD5D08D22AE1EA8A6BCAFE5259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:9A06CEF7BC6E5A8FE3A2B78C119CE05A3E6D3368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE208E29D725BCADF0325A9F959631D6CD570C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Android-версия популярной идентификации проце�
 ```bash
 magnet:?xt=urn:btih:45AD697A130730E2E883EB638605BD221881E742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Background Eraser (InShot Inc.) v2.30.91 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BC42CBCFE888EA8DD5B26A6CB2DC9A751954297E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

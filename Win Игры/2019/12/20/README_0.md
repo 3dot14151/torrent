@@ -19,8 +19,7 @@ Edge of Reality 6: Mark of Fate (2019) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:A860B7AE71D03866814E7C27844C226559010B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

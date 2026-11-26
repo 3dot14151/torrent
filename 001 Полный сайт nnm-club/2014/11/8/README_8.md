@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:28B3D3DD648B66A4A922EB13F236EBA3E69B024E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB12B841E29A2E46E45906A638427A598FA50088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Fox And The Law - Scarlet Fever (2012) [MP3|320 кб/с]<Garage Rock>
 ```bash
 magnet:?xt=urn:btih:135434A51BB8090E3889C734AECE1401B4E71927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A51BF78E7893736D430BDB4FC7A9656258C742D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ VA - Monster Tunes Autumn Collection (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:88493B60F684B2769A0F552D8EE4CFD2383502D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F89CF91D1DE7D31752DADAF108FE28A4745DA26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4B4E5F7B87ADBD9BDA1C5E1CE3084CA6FB7298E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A493CA1579AFE200831B626C9DE670652F5D9426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ David Murray 4Tet & Strings - Waltz Again (2005) [FLAC|Lossless]<Jazz, Avant-Gar
 ```bash
 magnet:?xt=urn:btih:B55EF02DF04446B234A8BBC2C0AB8B406477330D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEB74191FA008CAF200B785E9C830079711B9740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:002301832FC2BCB64E3BBF51A7282384BB4D8AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Chillstep World Vol.11 (2014) [MP3|320 кб/с]<Chillstep>
 ```bash
 magnet:?xt=urn:btih:C6948AFDF2B4C5E6D019AF38AD56C92685DEAAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45BD92629BE722D4336AA0AA2FC99E07FAC264B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Discovery. Ник Валленда. Человек над Большим Кан�
 ```bash
 magnet:?xt=urn:btih:4EF1CEE278ADD1AE2C7BFDB259E63FA57886D5AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:822446DE74DC193E711552AF4123AE7F5D840E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DA1C0032D0F7F0E176C6A91640254FC7A63FD68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ VA - Bizarre People Gleams - Exceptional Only (2014) [MP3|239-320 кб/с]<House
 ```bash
 magnet:?xt=urn:btih:769DF16E74448DC7AE8E6853F61283BD545966B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C17DDFF2CEF8228289F22DFBF98A8AEC0C79FC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Discovery. Ник Валленда. Человек над Большим Кан�
 ```bash
 magnet:?xt=urn:btih:58913D683123C142DEB4A9D1F71F482479B18C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ Amanda Jenssen - Killing My Darlings (2008) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:FB4A589B7AEAB6BAB8C5B074EF161D5E2726E921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ VA - Intimate Emotions A Lounge & Ambient Collection (2014) [MP3|320 кб/с]<Do
 ```bash
 magnet:?xt=urn:btih:79331A262F214A1E57A78AB07251E109DE912123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +612,7 @@ VA - When House and Chillout Meet (2014) [MP3|320 кб/с]<House , Deep House>
 ```bash
 magnet:?xt=urn:btih:410C6097943004C8B09E6AE36A4B7A268E39F776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +646,7 @@ Amanda Jenssen - Hymns For The Haunted (2012) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:652C3BF1A09B1AC7455BB8D838BD2BAF7C4224B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D39C0F44B6457BE3416C132D5609B177BFF1E791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3B4E2F66B4B75A827CDEA502BD912F04F8EDDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39CF3ED9698B04F4438430071060486AAF1C5AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

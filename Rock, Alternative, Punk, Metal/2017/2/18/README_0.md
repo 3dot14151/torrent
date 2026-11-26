@@ -22,8 +22,7 @@ Grand Illusion - Ordinary Just Won't Do (2004) [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:DDC120EABB286F9C825EBF362E608406DEEDF26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Inglorious - Inglorious (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FFD33035B31FEC1CB2010CB15CA4A17699FB10AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Doro - Love Me In Black (1998) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard R
 ```bash
 magnet:?xt=urn:btih:BA8E56335ED0C86386C0A266D552EA4B3BD32191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Eric Clapton - Backless (1978) Reissue, 2008, Polydor [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:D8F423F2E0A03D5EC37F5465DB3B46E9741E865A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ CD2 - Instrumental VersionЖанр: Symphonic Power MetalПродолжител�
 ```bash
 magnet:?xt=urn:btih:CCEB75802A043948078C68C53622EA598735FA78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Jade Warrior – самобытный британский коллектив, �
 ```bash
 magnet:?xt=urn:btih:2A644055200CA72BAE51280138E27BC34F7D4C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Electric Guest - Plural (2017) [FLAC|Lossless|tracks + .cue] <Indie, Rock, Synth
 ```bash
 magnet:?xt=urn:btih:6D3BD8389B9F2434AD70E29121FB525C2FECA4AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Pride Of Lions - Fearless (2017) Japanese Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:D2DF6A5B5CE656BEA0DEA92523F82FCD334D093F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

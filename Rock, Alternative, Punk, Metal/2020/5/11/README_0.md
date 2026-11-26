@@ -22,8 +22,7 @@ Catamenia - Eternal Winter's Prophecy (2000) [FLAC|Lossless|image + .cue] <Melod
 ```bash
 magnet:?xt=urn:btih:4C5865DED98DD7A21ACEF09DFF19225C960D8DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Catamenia - Morning Crimson (1999) [FLAC|Lossless|image + .cue] <Melodic Black M
 ```bash
 magnet:?xt=urn:btih:81ED3DE6296A9B7332702B544F5D87D4BD2F0DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Domain - The Sixth Dimension (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:50CE0EC2B1E70F19F255934D27319BCB6E55D97E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD4 - Can't Believe You Wanna LeaveЖанр: Rock & RollПродолжитель
 ```bash
 magnet:?xt=urn:btih:DD4B626B5B5AF5F5DAF66FD3473941B6AF447202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

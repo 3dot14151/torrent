@@ -19,8 +19,7 @@ DNS Jumper - удобный портативный инструмент для �
 ```bash
 magnet:?xt=urn:btih:AB0A657C34082173872CBACC08FD1C17EDAF3819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

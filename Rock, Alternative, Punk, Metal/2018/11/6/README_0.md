@@ -22,8 +22,7 @@ Tetrafusion - Absolute Zero (2009) [FLAC|Lossless|image + .cue] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:15848D9E16232D17BD76C41BC3900D1310FFA45A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Primus - Brown Album (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:74C99878CEF299D21BD41392D907C5802875401D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ blessthefall - Hard Feelings (2018) [FLAC|Lossless|tracks + .cue] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:241F015B1D7347641A14626BBA549B3AE5C81DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Primus - The Desaturating Seven (2017) [FLAC|Lossless|tracks + .cue] <Alternativ
 ```bash
 magnet:?xt=urn:btih:D960C6294DFF59A34A6588A0B868F21018E622AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Voices From The Fuselage - Odyssey - The Destroyer of Worlds (2015) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:A88F9D3FF75AA1CB07EDD6A8E7E13CB9EB82B87D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Radio Tapok - Песня для твоей подруги (2018) Single [MP3|320
 ```bash
 magnet:?xt=urn:btih:AADEB74DB01A621ACD3888701760A20A195EB0F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Chef Aid - The South Park Album (1998) Compilation [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:364725F227533637585EBB6DA3A7791D7A34AA99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

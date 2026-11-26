@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:CCCED6A46311FF8EF78022C232797DDE4411C564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:370ED98A12D995A6E6BCA1452A402AB37B0FD565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DC072E7D2B952164F23FCAD8783C6D29324DA9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF829130D9B427A7B5D9ACC76478887BF0228352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Cullen Bunn | Ultimate Comics Wolverine / Росомаха (2013) [Cbr] [EN]
 ```bash
 magnet:?xt=urn:btih:B3F38C7255D5CE2F3FC09C08E15AB19382AAB95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ MRT - Kingdom For A Whore (2013) [MP3|320 кб/с]<Industrial>
 ```bash
 magnet:?xt=urn:btih:1FEC6C66F1A62867CC7C1B0C0C685DF33ADA018E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 ```bash
 magnet:?xt=urn:btih:18FDA8AB7D9DF000D2BF25543E5CC8E545CB07A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5707D98062371BD04D8050E1EDF2430004AF6BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ B2.  The Right Time (Instrumental Dub Version)  :: 03:26Жанр: Synth-popФо�
 ```bash
 magnet:?xt=urn:btih:2A0A2E5A1362B057AB600EA989B4E8EA111DA44C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3334C5F6B68C082E2BE115A98CEE1E295138A64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72DA0D523533DAF197A52775B71443B6249570D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:028B355AD4987B1BCDC792A3ABEC4E21A75B400B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4C0AAE663694B04AF60A2AFC6C11EB3BE859099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Ontrack EasyRecovery Enterprise 11.0.2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AE5C8B4C80E3E9281D3AA86C0513F0EB97F0D74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Alphaville - Cathink Rays On Giant (Delux Edition) (2010) [MP3|320 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:94DDC2BA0D7B308E0888C251DDA9473E55F0BF16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF741C71732887B3BDB7518F84B5D19DD8CD2705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ ZZ Top - ZZ Top's First Album (1970) SHM-CD, 2013, Warner Music [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:CB1231E20429BB745AF0C32CB586F6BC4CEECB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Wallpapers - Обои для рабочего стола - apple by kuloymin (26
 ```bash
 magnet:?xt=urn:btih:301BC24189DE4E7EF51096169EB2DABBF678F316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:604916937DE982212FCB27B2356F78E5381C61B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07AB87E7DF0976245A32CF81C410B497CE3FFE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96B14472914A9E07CA6882274C22D2055A47A06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EB7440006DFB76A94206E7879955364B7FB6520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ CCCP. Обратный отсчет. Белорусская Атлантида. 
 ```bash
 magnet:?xt=urn:btih:4AAFC8EFBB8B53D997988A1EEABB836F1293C963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ E.S.T. - Чёрная Гвардiя (2013) [MP3|~245 кб/с (V0)]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F7583D8A2B0A7898878679C91D3EB3DCAD94AEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ jv16 PowerTools - одна из наилучших программ для ра�
 ```bash
 magnet:?xt=urn:btih:A150F31436ED2B63D433A156EE2677197901D9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ Freemake Video Converter - бесплатная программа для быс
 ```bash
 magnet:?xt=urn:btih:8B81E23F65822407350117527A54CDFA8BDB3793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

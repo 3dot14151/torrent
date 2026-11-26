@@ -28,8 +28,7 @@ Trollfest - Kaptein Kaos (2014) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:D6F745F16C29D64F8750D447F234809A40C82300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Pretty Maids - Louder Than Ever (2014) Limited Edition [FLAC|Lossless]<Melodic H
 ```bash
 magnet:?xt=urn:btih:55DC93A5C576B69E424E50CBA194B1F2AA807A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Anette Olzon - Shine (2014) [MP3|320 кб/с]<Symphonic Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:6F3A34F5F34107C965233D7E7A29668A84B52FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Jamie's Elsewhere - 3 Альбома (2008-2014) [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:6FECD317D5A6E66BA1823E070C8C5AA87E1CA643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Pink Floyd - Down Of The Piper (1965-67) Bootleg /Harvested/ [FLAC|Lossless] <Ps
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Gamma Ray - Empire Of The Undead (2014) Limited Edition [MP3|320 кб/с]<Power 
 ```bash
 magnet:?xt=urn:btih:C4331A283DD8E8D202384BB9EB0767BBCD087D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

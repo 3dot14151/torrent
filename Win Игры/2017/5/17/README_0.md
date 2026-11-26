@@ -19,8 +19,7 @@ Shio - это игра, которая не покажется вам слишк
 ```bash
 magnet:?xt=urn:btih:C93C20BDA1DC5CD05D0ABF461D7A2E240E2EFFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Empathy – приключенческая игра от первого лица
 ```bash
 magnet:?xt=urn:btih:3326C25D66BEE65E419ACAF7B9839C93122A5086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CRIMSON METAL – это хардкорный, брутальный, динам�
 ```bash
 magnet:?xt=urn:btih:92C5DCC5E67F83F03430A0336DDAA0C20A52BE12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

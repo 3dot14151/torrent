@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:D3CF487818A5DF18E95A3E3D180AB0D7DF53B38E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:20650BFB86B2765D9F5E8AD357C5CE85A1732C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CB42E2C78F9AF8641B574C037C982DB417E1487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Barry White - Unlimited (2009) 4CD [FLAC|Lossless]<Soul>
 ```bash
 magnet:?xt=urn:btih:A28D4914E053A52B1877CB0795D8BB9AB3665FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00F266D92AF96D1336C27F3D586E20EDC9CB6545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Mylene Farmer - Timeless 2013 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:D867853A4ACE4BDC1FFDD7E896BD24E0C0F0B2B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Tetrobot and Co. (2013) [Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3A8448CD8F4EB8C8ADD12120CC33A5053FA0561B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Adobe Flash Player - межплатформенная среда выполне�
 ```bash
 magnet:?xt=urn:btih:0917D9B71644E8D226C4181E89FF279B554F23B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:52ED02CC62D247993095833C94F9F26691EE1A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ OddPlanet - небольшая красивая приключенческая �
 ```bash
 magnet:?xt=urn:btih:F5B5300B44A0215471E324A122996DE5A85AB409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Oбщие сведения o сoстоянии спецификации CSS3;
 ```bash
 magnet:?xt=urn:btih:42779BBFCDAABFD7CBC6982822D888A4288E3527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47525853A6607BBF9E79EA1E41E123A68087BF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D8140E5118D5026827EA8490B16C950B19A7B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Toxic Traxx 7: Cinematic II - Новая, седьмая библиотека м
 ```bash
 magnet:?xt=urn:btih:8FC962DF9B87839A2D8FEDA89D2414D51A531178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE7F9E351F79EA15A5C992EF75FF1CBE5162E624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0B2CB876C2D531F8CDF06CB2301660CCE9C96EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Castlevania: Lords of Shadow [PS3] [EUR] [Ru] [3.55] [Cobra ODE / E3 ODE PRO ISO
 ```bash
 magnet:?xt=urn:btih:3AF8FBE7411A7074ED039E149EC1A50DDB6749BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ WinZip — одна из самых популярных утилит сжати
 ```bash
 magnet:?xt=urn:btih:D6E993175E0124CE6EA4076692BB785E246A5628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F04721CE3FF916EECF1B2106BA480AB01F7B114A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC1A3E5CFF05A181A336A51491CDEE32690B0F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/En] (1.1.26) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:CAF52BBB3345EF7956659A145410788014BE83B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Open Server (Full, Mini, Apps Pack) 4.9.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:32353D82E730BC82F1F438D7CDD79855BA4B4741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B151447D2F17B501EF14461B6AB4D2E43C16CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9C743409FABF65F811F8262DE3EFC00D8677FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

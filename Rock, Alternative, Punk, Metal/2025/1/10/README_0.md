@@ -22,8 +22,7 @@ Garden Of Stone - The Grave Mistake (2025) [MP3|320 Kbps] <Melodic Death, Heavy 
 ```bash
 magnet:?xt=urn:btih:50CB724AAFB5C916694AF8DD6650CE0F1D14B610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Broken Silence - Last Man Standing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:6B06EF96CD2F96A6D477769B724B58E5631BB940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1 - Original 2003 Mixes:
 ```bash
 magnet:?xt=urn:btih:C22D646C810C65FCB20EE2B9F863B3FD9699B88B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83A0DD4C23C7FDABFC01CF0745373DB9DF67DA76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Queen - Flash Gordon (Original Soundtrack Music) (1980) Japanese Edition, SHM-CD
 ```bash
 magnet:?xt=urn:btih:37AB6DB5F9CF50AFF1BA2308139B897D53A44151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

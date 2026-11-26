@@ -20,8 +20,7 @@ Cadenza: Music, Betrayal and Death (2014) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:7DA72E0B07D25FDEB014DB53BCF16750173594E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 ```bash
 magnet:?xt=urn:btih:B5381AA10AAF0F9C2BB27C278B020AFE66CAFCC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ BioShock Infinite Complete Edition  (2013) [Ru/En] (1.1.25.5165 / DLC) Repack R.
 ```bash
 magnet:?xt=urn:btih:348E748AB6155759A0CC29B5B62E00655115E479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

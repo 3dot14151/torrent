@@ -22,8 +22,7 @@ Big Head Todd & The Monsters - New World Arisin' (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:768E051CC1AE0AB80B00196018F861F012A41081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Project NT - Дневник Постороннего (Истории Темны�
 ```bash
 magnet:?xt=urn:btih:D6A4C94857613589B9FA5EBC721A95AD338FF0B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B3BCB1959BC8B2D5923E21D01F3106ED6DBF3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Chris Rea - The Very Best (2001) [FLAC|Lossless|image + .cue] <Blues Rock, Soft-
 ```bash
 magnet:?xt=urn:btih:A71BA12C3660D11FEACC1324CBE9056A78721487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:1A56ED9967B365653984C15801365AEBF87122F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Jethro Tull - Stormwatch (1979) ремастер /2004, Chrysalis, EMI/ [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:0E04BD4996B3CA53867C543E0824C761DC13C6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Password Safe позволяет легко управлять паролями,
 ```bash
 magnet:?xt=urn:btih:297443E7921A0A4C0B610BF762B109AFACCB6C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F1825C33C55C939CEDEDE33E6F4D0ECA34D7EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E6719CFF97CF0A5EBBAE52793C700D2F2C07BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ NG: Ужас в небесах. Маленькие ошибки / Terror in the 
 ```bash
 magnet:?xt=urn:btih:0CAEB841E05DF95F3BAC99EE8E8D580D2EA22D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ Christopher Drake - Темный рыцарь: Возрождение леген
 ```bash
 magnet:?xt=urn:btih:8ADB56E39A7F6A9CD4D5F4B58135343E54591474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ The Police - Regatta De Blanc (1979) Platinum SHM-CD /2013, Universal Music/ [FL
 ```bash
 magnet:?xt=urn:btih:C98AE26129C6B3171862C73E6FFFB2F305CC457A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7A4708DED9B6932DE6F41A39D7283CF38054230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E67A032E91FFE13C329BD4CDCEF99BA853F4F94E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A9BEBF7D29068F5FC21834309D76461341BFA0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57763D6365F2DE101C93E8EAB822D5EC257B58B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A8902A61E74969B66331AE67DE89160A5801924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ Roger Waters - Madrid Experimento (Live)(2011) 2CD[ALAC|Tracks]<Progressive Rock
 ```bash
 magnet:?xt=urn:btih:7671F965583B8B4961EDD5AD51B1C1D417A46121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD0150356B906951B8AEC44DEB451AEE1424A8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAF4C23EF436163D654E2F23EE44494AEBE28C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A90DC0BC9799DFF15844EB93B63FC18023952CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A10711EBF50F0B3F91FB0E24D360BE19E1675BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ Led Zeppelin - III (1970) / 1st Japan Grammophon / [FLAC 2.0 24/192|image (Vinyl
 ```bash
 magnet:?xt=urn:btih:E76FBA587CFDE740E3C1C05400D77EA8535E69BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ DVDFab Media Player - основной Windows медиа-плеер, котор
 ```bash
 magnet:?xt=urn:btih:F1F46298AAB38FC656D04C731B693CE1E3B927BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ Debian GNU/Linux 7.4.0 Live [amd64] 4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:3AC7820ED60A7758EC169503323E6603A0F83D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E14A8957A35870CD06A33BCC670142D7E6A71A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ Wolfgang Amadeus Mozart - Requiem in D minor, K.626, Kyrie, K.341: Collegium Voc
 ```bash
 magnet:?xt=urn:btih:C05D8F06FDBF7E3F1A6C347E12E290896B6FF664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C18BDAD1D04E32EDA1241AB26500E2CC2B32F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ Stand Up. Выпуск №16 (2014.02.16) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:D7BEE4030E8FBF108320FCDF0EC2D807FFC7DC8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +714,7 @@ Stand Up. Выпуск №16 (2014.02.16) SATRip
 ```bash
 magnet:?xt=urn:btih:DBAEEFDF15873D30A3A93BC6E933A195759F2833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

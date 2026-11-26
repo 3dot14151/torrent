@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9E5433A4F21D364EB2CA6CD0855F488D3BA6D409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Python - простой, но мощный язык, поэтому он исп�
 ```bash
 magnet:?xt=urn:btih:9FBF4348C7F13B6B52EE2336C319D462603B471E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

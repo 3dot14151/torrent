@@ -28,8 +28,7 @@ Amy Winehouse - Lioness: Hidden Treasures (2011)  [FLAC 2.0 24/192|image (Vinyl-
 ```bash
 magnet:?xt=urn:btih:52DB0A20EFC4D1D2DBCC13BA2AB8FED88929671A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Silent Circle - No.1 (1986) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:B0FE9C88DB8D0B1460ABC50B18DD740AE7508ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

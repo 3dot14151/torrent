@@ -19,8 +19,7 @@ Alekon (2021) [En] (1.0) License DOGE
 ```bash
 magnet:?xt=urn:btih:6452EDCD050AD24A00F96F2B33A0B8E249985F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Sisters - Party of the Year (2021) [Multi] (1.0) License DOGE
 ```bash
 magnet:?xt=urn:btih:5E17C1D37350D67B91F509E400E2C4145BA5F62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fareo Shadowlands (2021) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:5D87C23DBF2CD4F75732D82237A175313577D168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Spellcaster University (2021) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3C2BB75C64E1D7F0EFC4F9150DDF2DE6B234F50C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sherlock Holmes: The Devil’s Daughter - это захватывающее пр
 ```bash
 magnet:?xt=urn:btih:F3CFBBF3190FCCA32BA2D0917533B786C18928ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

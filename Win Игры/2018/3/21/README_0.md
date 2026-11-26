@@ -19,8 +19,7 @@ Distance – это аркадная гонка, выполненная в ст�
 ```bash
 magnet:?xt=urn:btih:791F1D25E81BE2B897D450812B658AD0E08CD470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assault Gunners HD Edition (2018) [Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3BDCD976DAB325FC4153763BE593AF679A9E3DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

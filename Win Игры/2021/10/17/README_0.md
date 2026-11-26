@@ -19,8 +19,7 @@ Megadimension Neptunia VIIR (2018) [Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3B9CFF5F56C6ED1A2FBF13E14EB72A2A4BF177E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eliza (2019) [Ru/Multi] (08.31.2020) License GOG
 ```bash
 magnet:?xt=urn:btih:AE781A2F304654F22CDD35A5C26EC50BC90443DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

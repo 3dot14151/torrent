@@ -19,8 +19,7 @@ Clockwise (2017) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:FF65F8194F2BED5C66FAD0F42BE6DDD5ECE7C410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Olav: the story of one boy (2017) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A68941D247F5F5787283C89728B5B13DD18BD4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

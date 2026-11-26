@@ -27,8 +27,7 @@ Demonaz - March Of The Norse (2011) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Black 
 ```bash
 magnet:?xt=urn:btih:91094E75982B8BE27B8CB44EEFB4A3F860E79DCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ B5. Things Change 4:04Жанр: Thrash MetalПродолжительность: 
 ```bash
 magnet:?xt=urn:btih:49C4B48A122429A5D3DD0480FD2AC7A364CCB51B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Wes Montgomery - Уэс Монтгомери, Томми Фленеган, Пе�
 ```bash
 magnet:?xt=urn:btih:804407BF231BB80224583E8F4CE2C2CE6633CD1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Motley Crue - Dr. Feelgood (1989) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Glam Met
 ```bash
 magnet:?xt=urn:btih:03116A28FD610100E2C5397D021E63F69EFDB1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Charlie Parker - Чарли Паркер (1988) [FLAC 2.0 192/24|traks(Vinil-Rip
 ```bash
 magnet:?xt=urn:btih:3159A6486A60B2485D567BB69381C91BA80B3AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

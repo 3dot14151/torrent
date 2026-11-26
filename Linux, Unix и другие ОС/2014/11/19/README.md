@@ -21,8 +21,7 @@ Xubuntu — дистрибутив Linux, основанный на проект
 ```bash
 magnet:?xt=urn:btih:D9AAD75A134305F7FE991F2EFB3ED8B6D2E1DE7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

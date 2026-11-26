@@ -22,8 +22,7 @@ Steve Cochrane - With Or Without (2007) [FLAC|Lossless|image + .cue] <Prog Rock,
 ```bash
 magnet:?xt=urn:btih:76E603F74B5FF5D460A9B8C9181D08A9A162B397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Paradise Lost - At The Mill (2021) Live [FLAC|Lossless|image + .cue] <Gothic Met
 ```bash
 magnet:?xt=urn:btih:AD426A196D0F882DAB7DF9C247F34F42A1DE433E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

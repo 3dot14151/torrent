@@ -19,8 +19,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:FF06C7E68082838F0B63F6A89918D15610872AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Disney Dreamlight Valley – это симулятор жизни с элеме�
 ```bash
 magnet:?xt=urn:btih:FA197E73537F945E23D4E3F0033664535B885D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SpaceBourne II (2) (2023) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BD74361D4B08E0CB20F8E8A988B2D9413E5D1D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Fit
 ```bash
 magnet:?xt=urn:btih:3A8E1F38FDDF329478F2E1DEE149F6E0E8950AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sleep Awake - завораживающий психоделический хор
 ```bash
 magnet:?xt=urn:btih:B02B507A66167875AFAEF33FF7D8D1C856BFD784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

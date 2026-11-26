@@ -19,8 +19,7 @@ Sky Words – это игра в слова, которая приглашает
 ```bash
 magnet:?xt=urn:btih:0B407A5BAD5D7F9CD13D6C06E0CA551E3015965F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.9.5 Mod by v
 ```bash
 magnet:?xt=urn:btih:DFE397BBC6581DC12DD6FF02F7721E5DFE8D9851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

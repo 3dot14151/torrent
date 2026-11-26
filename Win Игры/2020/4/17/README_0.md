@@ -19,8 +19,7 @@ Grim Tales 18: The Generous Gift (2020) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:4C419BAAD71467A8EBF0D3391ACFB21DA4EA1135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

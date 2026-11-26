@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CA66C8C97844FA9ED06572BFFD8736537E186464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5D28F99087D9DE080427B88ACBC284E4B58A605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54F7BE7492451B74886AD21C53A04F7C39C0D65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66AD64A2A6ABF39F84C3287DE04D6A2DD75E811B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Luciferian Light Orchestra - Luciferian Light Orchestra (2015) [FLAC|image+.cue]
 ```bash
 magnet:?xt=urn:btih:088F592FDC7ED74BF6F56BF6C383D082A7AE61D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Tiefschwarz - Left (2015) [FLAC|Lossless|WEB-DL]<Tech House, Deep House, Mnml>
 ```bash
 magnet:?xt=urn:btih:72A665AC2C17337A41ECC07E127321FA90CD6815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Rufus & Chaka - Masterjam (1979) Remastered /2012, Geffen Records/ [FLAC|tracks+
 ```bash
 magnet:?xt=urn:btih:77FA925C247A358B057636EFB85D0CFCDB70515A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ JaraLuca - Perpetuum Mobile (2015) [FLAC|Lossless|WEB-DL]<GOA Trance>
 ```bash
 magnet:?xt=urn:btih:9FAEFE7DB75EAFB143D9A11417172D40883EED7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ InfoCity – ежемесячный журнал о компьютерной т�
 ```bash
 magnet:?xt=urn:btih:D2B992B44748D85B15133FAA3F8C5A461F8DF84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ George Kollias - Invictus (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Technical D
 ```bash
 magnet:?xt=urn:btih:80F1BEDD13F3385C3C7046F8FA1EFF096B187B4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ PopClip предлагает достаточно удобный способ р
 ```bash
 magnet:?xt=urn:btih:928564BEB2512B14161F157E3F6F90A7036165FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Recorded At Chess Studio Chicago, USA, 2120 South Michigan Avenue, 10/11 June 19
 ```bash
 magnet:?xt=urn:btih:B7359DA86668755BCAC584E950CCF0F21154A107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ The Dead Daisies - Revolucion (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B4ABFCF5B777BBF12FED4024DD34C7A18ABC935B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E98B6E54A6601B8527F18EF754CDBCC9EFACB1F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:329EBD92EE7C52CF1A8A021FBF1CEFDA4CEE4DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAB2397C2417BD57A848730F85ACECB2F3973BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0288FB3ED315C72A4FCA9A18647699AFA97D5B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12232D75E1685F69A4BE4B22AD901EC2D558832B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ TeamViewer устанавливает подключение к любому к�
 ```bash
 magnet:?xt=urn:btih:58761475C5D688FB2A144DC8014BDAFD3CD039D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E5E7E1F30A9AFC69DE3C48399ADBCA7DE23D5F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Late Night Alumni - Eclipse (2015) [MP3|320 кб/с]<Deep, House, Chillout>
 ```bash
 magnet:?xt=urn:btih:1306A7979A0F515CB7B86CA003577E7AB607798F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:975DD7C08890301C4BE7E73CF069CF3CF4350D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ Dub Fx - Theory Of Harmony (The Remixes) (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:AE76D1B96A60B15198603421E4DDB19B49983C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ FileZilla - программа, предназначенная для загру
 ```bash
 magnet:?xt=urn:btih:42A936B86FC8FF04F7B293157EC5926538E09C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

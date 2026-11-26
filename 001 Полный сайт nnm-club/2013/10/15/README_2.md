@@ -18,8 +18,7 @@ Kaspersky TDSSKiller - это утилита для обнаружения и у
 ```bash
 magnet:?xt=urn:btih:68259180C84B3B3810FB7461EB0E717553ECD1F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ CD1 Tohu Bonu
 ```bash
 magnet:?xt=urn:btih:3ECF91E7BC7AE05E74AEE80D20E58573F5C20912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Bireli Lagrene - Mouvements (2012) [FLAC|Lossless]<Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:8F253C6D063E8418F9B50B277BDC21092E8EE68F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFB3A56B903C16F25DD6045CCBC0D642D5937E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Andy Scott (Sweet) - The Solo Singles (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2E9FA3A14295BC90AB708FF247CFBC6E7326EB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Telomere - Lux Primordia (2013) [FLAC|Lossless|WEB-DL]<Ambient, Space>
 ```bash
 magnet:?xt=urn:btih:DC4F548F7DDCCFA1FAD712A1C7AC3B2C86B1384F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Svartediket - Svartediket (2008) [MP3|320 кб/с]<Avant-garde/Black/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:B4883F6FDB37E2776E2CFCDA27C733C98E8D40EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEE25EEF7640A880E56986C6D1FBD69F9A99D483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ John Abercrombie, Jack DeJohnette & Dave Holland - Gateway 01 - 04 (1975-1996) [
 ```bash
 magnet:?xt=urn:btih:F4DECF91480AF97C17C3D29455049B5E92BED6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ Steve Howe (Yes) - Homebrew 5 (2013) [FLAC|Lossless]<Progressive Rock, Art Rock>
 ```bash
 magnet:?xt=urn:btih:27550AF376C513FC944F8C7A1C9A2B4B6AEA9683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A25407B4E4FC32DE4C7F266316F56D671B06F939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ Wallpapers - Обои разное 19. [JPEG]
 ```bash
 magnet:?xt=urn:btih:8A5FF54530739032F0D31F7BAD978C858EC30102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ Feed Me - Calamari Tuesday (2013) [MP3|320 Kbps] <Dubstep, Trap, Glitch Hop>
 ```bash
 magnet:?xt=urn:btih:4E02B5A2D2FA4EE498E7FBF01628E619576EAFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ SystemTools Hyena 10.0e [En]
 ```bash
 magnet:?xt=urn:btih:1564548BF7ACC45682F11F7E257145C4C4A81BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1EA9097618434F1B6EF64516800F61A5AC496D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:597EACC62C7E7C81098DC5D67BAFB263DE51040C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5E8A5BA4D8921EA0DBAB069B9B0AA3C24EF2442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:209E1536450AE1D08072D6B10A63F5B98D3BE9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C29DE0F7CB18FDE938379C89EFB5D96A181E46A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +588,7 @@ Dr.Web CureIt! 8.2.0 (15.10.2013) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2C678989F865E95763D4C4575C25F3DCFB5FFCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +622,7 @@ VNV Nation - Transnational (2013) [FLAC|Lossless]<Electronic, EBM, Futurepop>
 ```bash
 magnet:?xt=urn:btih:116F2C05AFC16A1F7C0EA08FBD672013F50B3885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0935808A76EACBEFCF16B4604F5438675EC2F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +672,7 @@ Windows Hotfix Downloader - небольшая бесплатная утилит
 ```bash
 magnet:?xt=urn:btih:FD5E8A3B9B92BF2C321D0DCF987127A5FE0EFF75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +699,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:DBC1706E482DA6266B25BACF0D1D7F60C6B5A570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ Starship (Jefferson Airplane) - Loveless Fascination (2013) [FLAC|Lossless]<Rock
 ```bash
 magnet:?xt=urn:btih:B42E5D046A711AEA308D8B595F0372DE772A00B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

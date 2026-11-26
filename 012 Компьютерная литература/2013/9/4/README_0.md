@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:55F1D89BBC829F79CFB1D3B048F2A78516233FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Alex Atsctoy | Самоучитель Хакера: Подробное иллю�
 ```bash
 magnet:?xt=urn:btih:187A548C3277AF142ABD84834986CF946F16CE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

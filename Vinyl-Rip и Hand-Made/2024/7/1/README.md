@@ -22,8 +22,7 @@ Turilli / Lione RhapsodyЖанр: Symphonic Power MetalПродолжитель�
 ```bash
 magnet:?xt=urn:btih:AF1E9CD184C7FD6E4F368E3A1430FCD067C28574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 City Women(   Читать дальше...   )Жанр: Pop Rock, Psychedelic
 ```bash
 magnet:?xt=urn:btih:B69EB5B3C2953CBC93ED2F4B3A7183171E275644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

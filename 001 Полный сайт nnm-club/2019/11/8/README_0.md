@@ -21,8 +21,7 @@ VA - Black Hole Trance Music (05-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTra
 ```bash
 magnet:?xt=urn:btih:940A1BAE3D3B13EDA3D4FD822AB4F1ADFEAF1042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Elle Québec - ежемесячное издание журнала Elle в Кв
 ```bash
 magnet:?xt=urn:btih:82825DDB22C07001F4B76F98013C90FB04B4B694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Elle — французский женский журнал о моде, кра�
 ```bash
 magnet:?xt=urn:btih:E04325ACC60115B3BB5A27FDEB8F30F7A47D9938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Snow Patrol - Reworked (2019) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:7B8A2CFE8E842E306F00723A77BADC8178E99447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Black Hole Trance Music (06-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTra
 ```bash
 magnet:?xt=urn:btih:DB72FC1BB99F817BC1C9AE918586C29AE98CA524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Audirvana - мощный аудиофильский плеер с широчай
 ```bash
 magnet:?xt=urn:btih:A47C563BC84D8B45BC3A06A0327700BFF7FA31ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:16FA031823A3622DCC558939A92AAFA279DCB208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Eine Kleine Disco Band - Disco Saturday Nacht (Feverish Sounds Of 1830) (1978) L
 ```bash
 magnet:?xt=urn:btih:DABC4A9BDE8D65051A5B338A0491816596752605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - French Synthwave Compilation Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <S
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Blockhead - BUBBLE BATH (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumen
 ```bash
 magnet:?xt=urn:btih:D912C9FEC3E74137F671F6742AC10509B3867626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:4498EC8D041007FC4F4F6B972214A5B3A50EA2AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Royal Coda - Compassion (2019) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Exp
 ```bash
 magnet:?xt=urn:btih:1F1690D506199E0F96E103E8DC015FE3997477AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F4E0B9B63A4526E7E259186BCA956C9D0769060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ FKA Twigs - Magdalene (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental Electro
 ```bash
 magnet:?xt=urn:btih:B69A3DBB7890DDB81D3AFC6490C4F810F1F5A854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FED108AE5BA9CA3B76A66A9B009E59D354EBCE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ VA - Vocal Trance Gems: Best Of (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:7F1029F5D6A43A191E6537E3D8460CC72A0A05F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ VA - In Search Of Sunrise 15 (Mixed by Markus Schulz & Jerome Isma-Ae & Orkidea)
 ```bash
 magnet:?xt=urn:btih:826F686AC560FD782962A05229609C4ECDB486B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A164E774E1E48797468E8E11EA08C85CA59303A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:95C77FB72ED6DAE259E39572AEAE12896426E23C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6ECAEAE082A3D7237B2AA098DFA413791DB658A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:32DFAEA59E5F55B0A3CEC90105E34F41AC240F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ Auslogics Registry Cleaner поможет вам избавиться от ош�
 ```bash
 magnet:?xt=urn:btih:9B74DF70F091DA495760B0655AFF73E86509A142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:A4B8CC0F7EE35AC10F8CAB2D0D266BBE4BD7EAB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9E7A20499BD58F272B57D0F9129C0C216E25D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA988BAAC1F2E3B5D3FA8DF57C3F5BE86C42A8BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

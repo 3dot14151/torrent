@@ -19,8 +19,7 @@ Royal Romances 6: Fortunes and Foes / Королевские романы 6: У�
 ```bash
 magnet:?xt=urn:btih:A8F309BF4A05F388F4C1AC5C07F5B8295550F500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ This War of Mine - первая игра, которая позволяет ув
 ```bash
 magnet:?xt=urn:btih:21A6AAE4FABC09A96CFE6BF77D3C85F980363718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Season 7/dlc) Scene TinyISO
 ```bash
 magnet:?xt=urn:btih:AF38461161BC356C3146901C5FE2CEEC050763EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gloomy Tales 3: Hotel Frightsylvania / Мрачные истории 3: Отел
 ```bash
 magnet:?xt=urn:btih:6D1ACEA1514D05681549E5932E32033518AC9016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Silberbart - 4 Times Sound Razing (1971) (1 альбом, 2 издания) [FLA
 ```bash
 magnet:?xt=urn:btih:98A07DE0D7AF17DB9003381406B1385206DA94D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dark Funeral - We Are the Apocalypse (2022) [FLAC|Lossless|image + .cue] <Black 
 ```bash
 magnet:?xt=urn:btih:F805DAEF4E7C625811302382EA618D6B51B1D744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

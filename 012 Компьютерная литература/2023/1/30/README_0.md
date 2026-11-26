@@ -19,8 +19,7 @@ hon — простой в изучении и практическом испо�
 ```bash
 magnet:?xt=urn:btih:9C6BE2B08A39B53D7F9CDFB2D2ADEFD27827611A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:636A4FAF469ACD11D00A35935135BCCB058FD104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

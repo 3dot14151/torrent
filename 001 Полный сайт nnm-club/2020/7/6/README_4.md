@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:03CA541E6555B5DC439183B6FCFA4CA60E30E4E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E6350F610CDCB8DE96A11690F2A66D2185DA2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Haibane Renmei | Союз Серокрылых [2002, TV, 13 ep] BDRip 1080p 10-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Ennio Morricone | Сборник нот для фортепиано [13] (2003) 
 ```bash
 magnet:?xt=urn:btih:FBC077863D9D30E943AF81576EEAFB9210C73D7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

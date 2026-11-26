@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:26444A4765DA490B354AF0B8C0853472BB8C6C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Omega - Az Arc (1981) Reissue, Remastered, 2004, Hungaroton [APE|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:A9809B407B863489809573F06111AFBE7AC4178E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Aberratio - Thanatos (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:C8E9319ABE08F83165A6EA281D83FA3BF2259CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Askon - Sacred Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 ```bash
 magnet:?xt=urn:btih:BE3FC157ADF8FDACFD357105F472DEBE939B3F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Electric Wizard - Wizard Bloody Wizard (2017) [FLAC|Lossless|image + .cue] <Doom
 ```bash
 magnet:?xt=urn:btih:E51AD64522D580B05D7F900C4FE4A9BF1A56BD88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Seven Spires - Gods Of Debauchery (2021) [FLAC|Lossless|image + .cue] <Symphonic
 ```bash
 magnet:?xt=urn:btih:FB6B6BFD6236D2FFEE40FFEBC24AA53CA0FE8976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

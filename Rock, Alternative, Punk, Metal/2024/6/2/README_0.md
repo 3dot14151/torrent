@@ -22,8 +22,7 @@ Interloper - Search Party (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Prog 
 ```bash
 magnet:?xt=urn:btih:6D85AEDC13FA7CB4BFA3AB29B59FF9C1294054C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Antreib & Burning Flag - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 ```bash
 magnet:?xt=urn:btih:14051196C8F462DF742C110851E115920E3EAE0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Týr - Best Of - The Napalm Years (2024) Remaster [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:0E512FAD6CF0DBAB9EE2A86120761E5A1A6F8A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Voskod - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:25315C216D2206324123DD7F0F79719E96CACF6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [FLAC|Lossless|tracks + .cue] <In
 ```bash
 magnet:?xt=urn:btih:B3122359040435D8EFC004BFF1E1DF7091ACED41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Barock Project - Time Voyager (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 ```bash
 magnet:?xt=urn:btih:C62EDA05DD754151E58B6A1E933F134108E585BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Bludgeoned - Live at the end (2018) [MP3|320 Kbps|tracks] <Crust Punk, Doom, Slu
 ```bash
 magnet:?xt=urn:btih:A5B6A0F838430C246BD443C5C16A481677E60B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Deliverance - What a Joke (1991) [FLAC|Lossless|image + .cue] <Speed, Thrash Met
 ```bash
 magnet:?xt=urn:btih:2C6FACB068952E48232035639DAA1F8EBEEC5827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Through These Gates - The Majestic Rights To Passage (2024) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:C409464128111B4D8D2A4A5AA5C41AB6E0C8D002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Deliverance - Weapons of Our Warfare (1990) Rerelease, 2008, Retroactive Records
 ```bash
 magnet:?xt=urn:btih:D5CD014264F471795E1FFAC354A581FA0A1942AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Deliverance - Weapons of Our Warfare (1990) Remastered, 2021, Retroactive Record
 ```bash
 magnet:?xt=urn:btih:11FC6F0A7A3C5242549563CFB33D2E2AE6CB67F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Deliverance - Deliverance (1989) Remastered, 2008, Retroactive Records [APE|Loss
 ```bash
 magnet:?xt=urn:btih:757701DA7586557AA902C7C74CBF5B410E2A600C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Laura Cox Band - 3 albums (2017-2023) [FLAC|Lossless|image + .cue | tracks + .cu
 ```bash
 magnet:?xt=urn:btih:41D7C5E97B671C9919B0686749B2692B37321AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Machine Head - Of Kingdom and Crown (2022) Scene, Limited, Special Edition[FLAC|
 ```bash
 magnet:?xt=urn:btih:D87FDE3DCC46DBE1D55ED4535BF7F730E7FAB2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

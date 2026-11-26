@@ -22,8 +22,7 @@ Carach Angren — нидерландская симфо-блэк-метал-гр
 ```bash
 magnet:?xt=urn:btih:58B350C19B51CD0A1C56FB5BD10DB67E2684986D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Arcturus — норвежская группа, играющая авангар�
 ```bash
 magnet:?xt=urn:btih:F40F45A128E4EB1B8FC3F1992EE06F089970B4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sabaton — шведская хэви-пауэр-метал группа, осн
 ```bash
 magnet:?xt=urn:btih:F03A16672CE4EC97B33F11FC26C041D01801B51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

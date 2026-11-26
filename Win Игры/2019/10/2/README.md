@@ -19,8 +19,7 @@ Deus Ex: Human Revolution - третья часть популярного РП�
 ```bash
 magnet:?xt=urn:btih:BC22B4B8CE36A68FE132622E2DD8F4CED33654EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

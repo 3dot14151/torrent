@@ -20,8 +20,7 @@ ClipClip - это программа, которая намерена решит
 ```bash
 magnet:?xt=urn:btih:EB71E21C9EEA1ADBE5E514A2F359B3A389300CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Run-Command - небольшая программа, которая создан
 ```bash
 magnet:?xt=urn:btih:B1229F331AFA374CE9F219DC1B6355EBC6BA6FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

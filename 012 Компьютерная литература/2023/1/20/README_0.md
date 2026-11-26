@@ -20,8 +20,7 @@ You'll learn object-oriented programming, writing, testing, and debugging functi
 ```bash
 magnet:?xt=urn:btih:9502F4E946EF1683348C4CA582F76E031923E088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F331EA07ABC13522AE3D988A1C871F53D0F350CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

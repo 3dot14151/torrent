@@ -28,8 +28,7 @@ VA - Road to Nowhere #3 (2014) [MP3|320 кб/с]<Psychedelic, Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:7DF17C345564B52F1DEF7B65C9544CCA0E52F553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Skogen - I Doden (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:E038A350DA1C3A66CA34D5523DD964617219CFD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Voodoo Highway - Part Of The Plan (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D840B6849ECC97A9713D00BB231EA9DBF8D78965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Stormheit - Pohjanmaa (2014) [FLAC|Lossless]<Folk/Black Metal>
 ```bash
 magnet:?xt=urn:btih:50DD30AB703865F869BBEC2016DA3C434061C41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Chet Baker - Jazz Moods - Cool (2005) [FLAC|Lossless]<Jazz, Cool>
 ```bash
 magnet:?xt=urn:btih:20725A9451FD5CFCCF2EE71E222AF9B20564A55F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Summer (2014) [MP3|~247 кб/с (V0)]<Psybient, Downtempo, Ambient, Progres
 ```bash
 magnet:?xt=urn:btih:E78F49E83E22C7FE48E410F42A8E75949DE06437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Deke Dickerson and the Trashmen - Bringing Back the Trash! (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:9045E4E8DB111F662BABCD96286F44D0B58E5183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ Roy Etzel - Serenade (1984) [MP3|192 кб/с]<Easy Listening, Instrumental>
 ```bash
 magnet:?xt=urn:btih:4ED43F9EE35B73E389A8569049F5B4224108D499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +341,7 @@ Hamasaki Ayumi - Colours (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:D50827552990505BA1E6AA23CAACC40CA9E4EA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ Fourth Dimension - In Between (2014) [FLAC|Lossless|WEB-DL]<Psychill, Downtempo,
 ```bash
 magnet:?xt=urn:btih:6DB70181573EA1AE9A5ED18807C296244EE61AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +408,7 @@ Various Artists - Viper presents: Drum & Bass Summer Slammers 2014 (2014) [MP3|3
 ```bash
 magnet:?xt=urn:btih:42319086022F41CBE44B6C6A7FF42C0237EBA7C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +442,7 @@ Freda Payne - After The Lights Go Down Low And Much More!!! (1963) / Remastered 
 ```bash
 magnet:?xt=urn:btih:57ECA8CC05907B2A18FC7198EDBFB38CE8FC2C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +476,7 @@ Black Eyed Sons (CD1)
 ```bash
 magnet:?xt=urn:btih:D7C4A8B55C507C1D12F3B704E8EF404316100D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +510,7 @@ Banco De Gaia - Rewritten Histories Vol.3 2002 - 2013 (2014) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:A9E386B43ECEB4B7B2332D308517C15D0A8EB303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +544,7 @@ Skull & Bones - The Cursed Island (2014) [MP3|320 кб/с]<Pirate Power Metal>
 ```bash
 magnet:?xt=urn:btih:832098BD2191E04E7F5A645721985DC047BF8B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +570,7 @@ National Geographic: Сделай или умри: Охваченный плам
 ```bash
 magnet:?xt=urn:btih:D9ABCE9A0EBF794F960812792FCDD77198B1BCE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +595,7 @@ Process Lasso Pro - позволяет вручную или автоматич�
 ```bash
 magnet:?xt=urn:btih:93023B5A9D71C593A55C0DE3F9F44799313818E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A915C37116DED994D49BC7E595CD3605FAEA3281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +646,7 @@ National Geographic: Сделай или умри: До конца  / Do or Die 
 ```bash
 magnet:?xt=urn:btih:90F3B816EEFB664C140E438BB017625AE7DB78E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +680,7 @@ Powershot  сможет стать существенным помощником
 ```bash
 magnet:?xt=urn:btih:9618060B958C33AADE7FB881948DDFF0AB552D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +705,7 @@ System Explorer - диспетчер задач для Windows. Функцион
 ```bash
 magnet:?xt=urn:btih:B511F247018CE371B981370798B671245C4FA74E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:819CDEC85DFA1195A5E6BE92D725479433B85A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +772,7 @@ VA - Tour De Traum VIII (2014) (Mixed By Riley Reinhold) [MP3|320 кб/с] <Mini
 ```bash
 magnet:?xt=urn:btih:F2220AE386B72923DADD83DA12E431F588BBBF23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -822,8 +797,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:3A01C989E6A764EBA3A1D899C0E2DF5C71529AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

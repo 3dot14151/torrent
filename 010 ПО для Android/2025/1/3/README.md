@@ -19,8 +19,7 @@ Picsmaster Photo Editor Pro, также известный как Picsmaster, �
 ```bash
 magnet:?xt=urn:btih:05999D511F2F84618CA7A99EC8680C4478EF8200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Time and Memo / Время и Памятка v0.8.95 Mod by Alex.Strannik [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:B3A0010576C965FE10EE646E95EAA9470275482B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

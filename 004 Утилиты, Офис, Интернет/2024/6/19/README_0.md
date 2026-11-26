@@ -19,8 +19,7 @@ Abelssoft Win11PrivacyFix - позволяет включать и выключ�
 ```bash
 magnet:?xt=urn:btih:90AB60A329D27207A32575800AEEBC0B8526DFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

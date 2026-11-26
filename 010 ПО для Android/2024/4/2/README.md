@@ -19,8 +19,7 @@ VivaVideo - это простой в использовании видеоред
 ```bash
 magnet:?xt=urn:btih:0ABA3B9AFF58C5EB327EAE4220CA260052304501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

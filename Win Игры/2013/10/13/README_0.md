@@ -25,8 +25,7 @@ Amnesia: A Machine for Pigs (2013) [Ru/Multi] (1.0.1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:5D3FD48DB68E9A45F805D0F4E2A74B924F9B223D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 ```bash
 magnet:?xt=urn:btih:B8CBB1DC976B1C5F53F9373B384493AAD5685905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Alan Wake Dilogy (2012) [Ru/En] (1.06.18.1326/1.03.17.1893) Repack a1chem1st
 ```bash
 magnet:?xt=urn:btih:4880C9C3EDFB6B9B0D215C92D47D2F8D8935DFF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Viscera Cleanup Detail: Shadow Warrior (2013) [En] (beta 0.20) DLC HI2U
 ```bash
 magnet:?xt=urn:btih:6532B83E0F98F290479E0BFDD7F06ED7AC25E311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

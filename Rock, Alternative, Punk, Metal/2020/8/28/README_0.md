@@ -22,8 +22,7 @@ Callejon - Metropolis (2020) [FLAC|Lossless|tracks] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:D459BBC513EDC1109E603832966D4722CDD61861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ From Ashes To New - Panic (2020) [FLAC|Lossless|tracks] <Post Hardcore, Alternat
 ```bash
 magnet:?xt=urn:btih:A354D44179FAD9FD691387B85846D84202F6D37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Otto Dix - Автократор (2020) [MP3|320 Kbps] <Darkwave, Alternative>
 ```bash
 magnet:?xt=urn:btih:2395253F4F097F0547C5A225DB9EB41D8150B3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

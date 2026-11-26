@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BFC6240ECEEB6A30F1EA70DF7DC04CCF6A48E551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Namaste. True Tai Chi (2007) [MP3|192 кб/с]<New age, Relax, Meditative>
 ```bash
 magnet:?xt=urn:btih:0F90BF8C78591212891D00FE5AF95DB206621A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE565378E00F2A46AE84770A24D1EFC6083FEF74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E7D95D11620785C034CF9739783D3A7A4F567E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ V.A. - The Downtempo Room Vol.2 (2008) [FLAC|Lossless]<Downtempo, Lounge, Nu Jaz
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B36074DD6BC5B55E0237D0757F1A5D4E929A940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ Evgenica - В Зеркалах... (2012) [MP3|320 кб/с]<Melodic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:C4868685A85901FB0EC6A92ADECF9EFB4E422737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD152C9307BAB6B9BED4AE5F8ABBAA437F526B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B652D769A0D7382FE3BC25E8849693C6462471EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ Red Lamb - Red Lamb (2012) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:67714F45164DD2701F5B1AE6667BC6C6D067D863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Ana Marie - Namaste. Os mais suaves mantras (2007) [MP3|192 кб/с]<World, Mant
 ```bash
 magnet:?xt=urn:btih:7BC4C6B7B42598CF0DDF4BECE9EF15ECA868FABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FACD69E186C28605C16A3C04747C62AF74BDC009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95D38506F8C7F69B74DEE01C869A8E77CB495D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ VA - XXXL Внедорожник №15 (2012) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:69FB83FAD3D3FE8F47F744D468BAD81AA9DE750D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ Intra Spelaeum - Intra Spelaeum (2011) [FLAC|Lossless]<Melodic Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ VA - Most Wanted Chill & Lounge (10.02.2012) [MP3|320 кб/с]<Downtempo, Lounge
 ```bash
 magnet:?xt=urn:btih:5BAFAC23FD712B247D25901DED0ADD419D68FBF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11C37CA067C7E1279F00720920025D0E33E0590E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8814D6C0A552477A74515546BFE9B92A78B2A762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BEEE9F1076C197D84ED1F1E78A4ED99449D2DBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +625,7 @@ C. Васильев | Александровская слобода [1971] [PDF]
 ```bash
 magnet:?xt=urn:btih:50AACB9B6916578F5E2766A808FDA216B00A0802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ VA - German TOP100 Single Charts (05.03.2012) (2012) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:D02C81EB61B8877FB30B2695A58EC954BFB22DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ Car — журнал с мировым именем, первый номер в�
 ```bash
 magnet:?xt=urn:btih:2A8CD733E152B3FAE0FD911CCD989040EE46511B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ VA - Record Хитовый весенний (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:B1C20F7E2336382B3C77171F7ADD57288DE95D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ Gabrielle - Celtic Angel (2001)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

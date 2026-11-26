@@ -22,8 +22,7 @@ A3 Child Of The Wild Blue Yonder(   Читать дальше...   )Жанр: Co
 ```bash
 magnet:?xt=urn:btih:590B37716A3D6A4F0CAC70B6A1B75434EAD2979D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <
 ```bash
 magnet:?xt=urn:btih:F367F64B06BAB6FB44ED0DDF90950454BF3DEF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

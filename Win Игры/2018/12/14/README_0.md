@@ -19,8 +19,7 @@ Christmas Stories 7. Alice's Adventures / Рождественские исто�
 ```bash
 magnet:?xt=urn:btih:2947744BA0DD88CF5FBEFE6FAA9CACE918A9AA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:3C21BAE8971416368DF28D13E5CF8388E81AB9E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lake Ridden (Озеро Риден) - игра-головоломка, осно�
 ```bash
 magnet:?xt=urn:btih:36B02D2A760920AF54B105EE6D3BF775EFE5E733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

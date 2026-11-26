@@ -19,8 +19,7 @@ Bus Simulator 18 (2018) [Ru/Multi] (1.0/upd13/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2542ECB4815386468D1FAC29FDF303259EFD2F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Last Floor (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F64E816F198F9D0E27E6440B45117FB638DA1556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Subway Simulator (2020) [Ru/Multi] (A 2.8.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A380527C89C15D5BC41486C7AEA2EC2E0C953299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

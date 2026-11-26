@@ -21,8 +21,7 @@ VA - Золотая коллекция Ретро (2006) 4xDVD5
 ```bash
 magnet:?xt=urn:btih:D9F7B3B48FA4A0AE508087D40EFB6F0CCC7A1A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BE85E26A871F8E9871795700B3F5A0DA2146A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4918556A3502B801BD69352489F644FCB8757C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ NRG Player Full 2.0.3 [Ru] - Аудио плеер
 ```bash
 magnet:?xt=urn:btih:19FECE0DAC849EDB389452C4C8E9BE96E425679E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4CEA19850C9D63B87CD30D3B09C1B14DDCCD50D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC3741FF6095BAA734F4137AEA72539F829D115B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Rhinoceros может создавать, редактировать, анали
 ```bash
 magnet:?xt=urn:btih:1ABE0B5A43716E3186D8F1601C96BE845A3B6285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Garmin: City Navigator Europe NT 2017.10 [En]
 ```bash
 magnet:?xt=urn:btih:6D437D393EED4FEE1FF759EFD9EFDED2FC310803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ HDRI Studio Pack - это коллекция более 70 студийных и
 ```bash
 magnet:?xt=urn:btih:698103E344C507F8CD228226EA612549ADE9FD41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ March of the Living (2016) [En] (1.1.1) Repack ARMENIAC
 ```bash
 magnet:?xt=urn:btih:F592EE7F18F8937314177FB51426942A499B80C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Windows PowerShell – средство автоматизации, позвол
 ```bash
 magnet:?xt=urn:btih:1D9EEA3887EA54D76269AA4A4805E5C8B990C056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50D79EB3F84C14AEF029F2F5216E314D17B1A6A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ FINAL FANTASY X рассказывает историю героя по имен
 ```bash
 magnet:?xt=urn:btih:49744F8A63F5D49E38B61A3126969A51C70506CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ REDCON (2016) [Ru/Multi] (1.2.0-273) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4B4542AF0D5025C2F3DF9B721FA5E542A55D4B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ CorelDRAW Graphics Suite X8 18.0.0.450 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F1AD303474F9C066BC0EC8C000DDD01C484B18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ BELOFF 2016.5.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:03B0416507708615BCD1F88F28F73F363B251968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A66BFDCABE318C8D03F96263ACE15EE62150218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ WinPE 10 Sergei Strelec (x86/x64) 2016.05.12 [Ru]
 ```bash
 magnet:?xt=urn:btih:2384A351B5A840A8E7F79CE34FDB50213084415F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46874E85DD13AB3989B2F239D3097CB48604E74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

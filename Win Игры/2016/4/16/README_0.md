@@ -20,8 +20,7 @@ Mad Games Tycoon (2015) [Ru/Multi] (0.160414B) Repack Dante159
 ```bash
 magnet:?xt=urn:btih:2D0897844EAA041D70EAB485F32D21AB4AAA4EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Granado Espada Europe (2006) [Ru/En] (25.86.30) License
 ```bash
 magnet:?xt=urn:btih:CB8B85553091F4AA52C04492C44F5E0D33F9B16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Automata Empire - захватывающая инди-стратегия, где
 ```bash
 magnet:?xt=urn:btih:3D24F6F30E85E3B88C3E45CA8F52FC4DEA406F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Worst Case Z (2016) [En/De] (1.0) License CODE
 ```bash
 magnet:?xt=urn:btih:49F6D822189CD120B931D1357153795BF76925AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

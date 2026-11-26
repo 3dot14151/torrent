@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CB4EB9C38A4E01C133AB0A3E7C3E23A4DCB45D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Tower of Time — удивительная игра со множеством п
 ```bash
 magnet:?xt=urn:btih:4DEF6DE9E6B5CB58D6648C2C8634C732BA18C528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ PDF Expert — это один из лучших инструментов для
 ```bash
 magnet:?xt=urn:btih:8D214BD4B31060B13EF5BA797974B4F4D63BBE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Bad Boys Blue - You're A Woman (2019) Remix [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:1F6368A76116965A79EA7E626FE73534F27EA241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A42354F75A025109FC8F9D9D19809AD6EE0E99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ TypeX - Text Animation Tool | Broadcast Pack: Modern Colorful Typography Titles 
 ```bash
 magnet:?xt=urn:btih:19F3477FB5119529238C2DADF5AC999735333396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4687D28F6198C6E36CBFEED8A5F7CBF4C863A77E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Genesis Alpha One (2019) [Ru/En] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:1B6628BA53225D6CCC38717DFC00375AA6F774AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEDCCCA5190432C91FAEFE3102A0B62F9B7A0414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Windows 7 ultimate sp1 x64x86 Matros Edition 27 2019 [Ru]
 ```bash
 magnet:?xt=urn:btih:F39E19062CCD712597E09C0EE3792D7AE2F783CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Windows 10 April 2019 Update: 7 новых функций и улучшений 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Darkest Time: Extended (2007/2016) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:0A6AECC67105FC776AD085EBB6CCF43A04D0E532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C57E1D55F647A27D3D09DEF4EDA2283719AF357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

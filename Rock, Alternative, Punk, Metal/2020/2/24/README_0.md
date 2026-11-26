@@ -22,8 +22,7 @@ Indoor Pets - Be Content (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alter
 ```bash
 magnet:?xt=urn:btih:4B530ED3A07AAE61006B7A91ACB23660EE8A2A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Klangstof - Close Eyes to Exit (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 ```bash
 magnet:?xt=urn:btih:FFD12781ACF6382F03A46D76EA2B8ECD610D7D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eternal Tears of Sorrow - Before the Bleeding Sun (2006) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:D2A89541F989A5DC58250EDA088BA1DAE42DF9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Axel Rudi Pell - Gunfire (2020) Single [FLAC|Lossless|WEB-DL|track] <Melodic Hea
 ```bash
 magnet:?xt=urn:btih:2695FC583627A3E136605AD7E989247DB67E991C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Radio Gold Volume 4 (2001) [FLAC|Lossless|image + .cue] <Doo Wop, Rock & Ro
 ```bash
 magnet:?xt=urn:btih:A790471236A8A5942021616DB3BA3F08A6D38A23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Ned's Acoustic Dustbin - Ned's Acoustic Dustbin (2019) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:377F92E86345E7EEA301D74CC6876811591CF781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Sepultura - Quadra (2020) 2 CD, Deluxe Edition [FLAC|Lossless|tracks] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:EF12F20FC96D5EB24157C399EB7C22E263E5FA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Little Scream ‎ - Cult Following (2016) [FLAC|Lossless|tracks + .cue] <Indie R
 ```bash
 magnet:?xt=urn:btih:90BF3FBEED5AC99157534564EAE3DC32E90FB5DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Little Scream - The Golden Record (2011) [FLAC|Lossless|tracks + .cue] <Indie Ro
 ```bash
 magnet:?xt=urn:btih:D0D26C9A6A1BFC041336EA97D0E937EA5344E4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Pixies - Beneath the Eyrie (2019) Deluxe Edition 2020 [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:844929662C73C9006D4934A70D5DFF1F0EFE93B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Little Scream - Speed Queen (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Al
 ```bash
 magnet:?xt=urn:btih:8702F3BDA83A3994004FD55AE2255649292FCBBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Chuck Berry - On The Blues Side (1993) [FLAC|Lossless|image + .cue] <Rock & Roll
 ```bash
 magnet:?xt=urn:btih:EF7E8CA1EFE6AA26D765958C84F333529F33350E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ ADX - Bestial (2020) [WavPack|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5C39DF6DBB731C01ED158C4769EA691A443927E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Klangstof - The Noise You Make Is Silent (2020) [FLAC|Lossless|WEB-DL|tracks] <I
 ```bash
 magnet:?xt=urn:btih:083AFAB380A164A127BD4F1BE88DEDB6481B7553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Serenity - The Last Knight (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Pow
 ```bash
 magnet:?xt=urn:btih:769857E11B9772999DAB35CC7F48B140F510040F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Haunt - Mind Freeze (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:58A6F361D5AED4C295D3B5E813F575E39E8A001B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

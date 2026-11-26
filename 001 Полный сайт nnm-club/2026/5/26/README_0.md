@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6106D02226218299D3734463D728C92EDB7B49F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82DDD3B31AD3ED3030240F29ADAF0D9C3B3CE0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ FileVoyager содержит множество инструментов и фу
 ```bash
 magnet:?xt=urn:btih:5808463832FBAFA6183D2FAA86F5681C3BE23AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35498B864A091340442B191F7A433C7B8630A76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C994E0FC006611D2A74B0DA6583FEC1613B5C698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Minimal Firewall — это портативный интерфейс бранд
 ```bash
 magnet:?xt=urn:btih:F07B770E4A084028780F34DBF3DF362B47B972A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ JetBrains CLion — интеллектуальная среда разработ
 ```bash
 magnet:?xt=urn:btih:E3CDE25997CE9499006F317B760F015DCBED5C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:D5D62B09AEEF06A145BC6B92E28E402ACD36C58A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ IDE GoLand предлагает широкий спектр инструмент
 ```bash
 magnet:?xt=urn:btih:794BB9F661F814D9B3B9E086E780C28BACDE3910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ DataSpell — IDE для Data Science. DataSpell создан специальн
 ```bash
 magnet:?xt=urn:btih:AD1DD7B9132761251F2646582B516A8032218AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ PhpStorm – это интегрированная среда разработк
 ```bash
 magnet:?xt=urn:btih:AB926D75B7F196683064A85BB73F66C1E338B87A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Rider — это кросс-платформенная интегрирован�
 ```bash
 magnet:?xt=urn:btih:BFF0D8A8CADA5CD44C30BB6E295CAAE392F151B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ RubyMine — умная и удобная интегрированная сре�
 ```bash
 magnet:?xt=urn:btih:CC9F5D5FC2465969103D317DAF46CCDCE8CCADA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Space Haven (2020) [Ru/Multi] (1.0.0 Steam Build 5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:19F3C56FCF56274A2AA7F8EDD02F86D071EE77DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:299908433B168C384243A2B3F67C2951CE58ECE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88733154469669A80B3D3014C878B2AE69B910BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ RustRover - это мощная и удобная среда разработк�
 ```bash
 magnet:?xt=urn:btih:59FA18429BD01E3B05014DAF4448CA386D3B1AAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ JetBrains PyCharm Professional – это мощная и многофункци
 ```bash
 magnet:?xt=urn:btih:668D1E4A17BE871D21E93BDBAC0D40A4E381A6AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:714FEBB36099731ED452BD077CC3A5402987F73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ JetBrains WebStorm — это мощная интегрированная сре
 ```bash
 magnet:?xt=urn:btih:B369F2EE1329AEB08F83860E606088A92B2CA33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:A1FF05CE45C38D3309180E5067DD8D24F7268024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:208962096F1AA30645AFDD548908A4B39E67B42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A907FF8A1A11E8B7ED0C47B36F711E6CA8616015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ Becoming the Archetype — американская метал-группа, о�
 ```bash
 magnet:?xt=urn:btih:6B5CC025123BA8B7303069589A2A1CD76F286C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08BFFAB47E253960AC65AE20910E927DD3F2410E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ Slurm (Слёрм), Марсель Ибраев, Максим Мошаров | �
 ```bash
 magnet:?xt=urn:btih:630D8E6307C6F7E826ED5FD853ADEF8912C4DF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

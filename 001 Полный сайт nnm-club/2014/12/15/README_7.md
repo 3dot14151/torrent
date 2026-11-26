@@ -18,8 +18,7 @@ Bloody 5 2014.1202 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F5C4049836416C68C0A9D35C75961EAB804A0A55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37FD325E86270822CE916B7CD142254B23468414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Windows 7 SP1 x64 PE StartSoft 56-57-2014 [Ru]
 ```bash
 magnet:?xt=urn:btih:8CF9316E4BCBA6E63E8A3E228E4DE81647A2A867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B859E0685B833B75FBCD22DA025297DF065A1927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89B880B8F2499FCADF22B7A019E4A812E9D7F5B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ LittleBigPlanet 3 / Little Big Planet 3 (2014) [PS3] EUR (4.21/4.60) [Repack / 1
 ```bash
 magnet:?xt=urn:btih:0835F54035095F147BAC682AD4C21C5959D044A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Omerta - City of Gangsters – симулятор гангстера, дейст
 ```bash
 magnet:?xt=urn:btih:A0D0DEB5F9D944864D96647C69E4217806AE014B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:499851C8F9BF50F6C4EA7E0D996933405DCAE522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Highlights School | МК Обработка детских фотографий 
 ```bash
 magnet:?xt=urn:btih:A36401E9126DFA292BF9637AE090D1D4CEA4BD94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14E685476D2EA8F5F2A8C26081F78AB0CD711EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA398BCB3F3010C9268028C50B27997840052D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Revo Uninstaller Pro 3.1.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C9ABF53F8C4940B72C40E92C5CB36F431D99EDBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC6480C07B1C279B311646570B4DF63F6D7840D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ XII век. В ночном море пираты Балтийского поб�
 ```bash
 magnet:?xt=urn:btih:986DB08CA5939DEAEAB42D971FC2CF85EB272764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Highlights School | МК Цветокоррекция и тонирование 
 ```bash
 magnet:?xt=urn:btih:E29F65DA3A367BF0B8B662FC4B0084AA6B4CA8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/2dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:316A4D3B6DD85EF7BD7087F79D6DCE1A40DCDD25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ Resident Evil Revelations после доработки снова на плат
 ```bash
 magnet:?xt=urn:btih:1ABD3F85C5F7A2D67654639235E8DE426E0899A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3F54B3A48FE1A5DD78551F542E5A9A531F1A6E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29837F66A133FF6375D3554CF6FB588B1FD70B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ WPI x86-x64 by OVGorskiy® 12.2014 1DVD (32/64 bit) [Ru]
 ```bash
 magnet:?xt=urn:btih:785ABDC89B06F94B8DC317429DBA4E0478826D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

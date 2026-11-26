@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:A5BF1FD1CA653FF0B53FCB1BAAD4FA77BF1A0538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62BF710905969CB5EEC3E83CDBA47F9328D16D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:631ADF469CD397FE88F88ADE6802F32BB7C349A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC1FD78D2486692D927B129D46564250DD8186B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E97CDF3C1C712D7346953BC56B80A594677CCEAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A73525C4A38B1CA712B8C40EDFCED2A0388DED64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4871CF03A60B6934DAE1BED3C13A5BFCDB3B8F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADEE7B53035DDBE5DBD88424548A8E18BF5F79D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Nullingroots - Take Care (2016) [FLAC|Lossless|image + .cue] <Post-Black Metal, 
 ```bash
 magnet:?xt=urn:btih:204B3AA474527A503C89F9DB08CCF662E76CFDAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Vladimir Tolkachev (Владимир Толкачев) Big Band - Plays Duke (20
 ```bash
 magnet:?xt=urn:btih:64760D289A8CCCFA107E241608DD88530225EAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:2DBA6AB4E315C7183AB8DAFBEEF7B07500C4EF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Moom небольшая, но очень полезная утилита, за �
 ```bash
 magnet:?xt=urn:btih:096841EC51C4304412F6D3F2FAC705F57B16EA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ VA - Utrecht Series: Vol XXII (2017) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:109D6A63B706B94F2687E9E1065C30CB964FCBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Tusmorke - Hinsides (2017) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Prog
 ```bash
 magnet:?xt=urn:btih:F5FAB7BB937A89CC130910D8921850C229BF0966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Diemonds - The Bad Pack (2012) [FLAC|Lossless|image + .cue] <Glam Rock, Hard Roc
 ```bash
 magnet:?xt=urn:btih:B6631D5EDD7512F5A6765ABA048DCDAB895922AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ KCNcrew Pack  -  это огромнейший сборник серийнико
 ```bash
 magnet:?xt=urn:btih:C2A3FC49E74ED7AEDF07E419C0EF632898381BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ VA - Trance High - Fidelity (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7F61B5EBA43C4DA66497D0BDB6BB39E801B2B3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Hazel – это ваш личный уборщик, который органи
 ```bash
 magnet:?xt=urn:btih:9593BC0E8446A09CEF87E3A1C3300DEFD77E0AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ VA - Hed Kandi Beach Body (2016) [MP3|320 Kbps] <House, Deep House, Disco>
 ```bash
 magnet:?xt=urn:btih:792C1C6821414E0CDBAAD536E01F5AB2BE57E86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ Clearview - Программа для удобного чтения электр
 ```bash
 magnet:?xt=urn:btih:F3625F64FCA0EC70325A1F5E670B5E4DE5533F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:96905CBDCF34340F2BCE68E1908CBAA29797A30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:874C896017C8B00C0EC08BB298C0F92028BAB689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD4CDA7DA1C1AE1DD6586895D6BA1A9721B254A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ Airmail – это почтовый клиент для операционной
 ```bash
 magnet:?xt=urn:btih:CBEDCDDDCE5993A815C6F6B0642B142A770EDDFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E07BD85ED09CDE1E093D452B2207051D0C3E7656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ Scotty Bratcher - Put My Mind At Ease (2010) [FLAC|Lossless|image + .cue] <Blues
 ```bash
 magnet:?xt=urn:btih:B5E979895104F45CE6553B2AB2C74315F8925ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

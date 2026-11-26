@@ -19,8 +19,7 @@ AOMEI Backupper Pro (Professional) – комплексная, простая и
 ```bash
 magnet:?xt=urn:btih:259E0320001A4438E326DAB7079656BAA3823A55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

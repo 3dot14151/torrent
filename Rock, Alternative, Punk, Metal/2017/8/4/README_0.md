@@ -22,8 +22,7 @@ Vanden Plas - Christ 0 (2006) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:A163115F75D0770E6912E4B5E49826429D894374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Abydos - Abydos (2004) [FLAC|Lossless|image + .cue] <Progressive Metal, Progress
 ```bash
 magnet:?xt=urn:btih:2FE08958E09CC976B3D1FD2B7DC16E406F65F13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Devils Deuce - Supercharged (2017) [MP3|320 Kbps] <Rockabilly>
 ```bash
 magnet:?xt=urn:btih:5395573C8DFACA36F3C7D2770EAF385ED67CCA6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deep Purple - Johnny's Band (2017) EP [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B062547BE30BCFFED9A2DD2F3BEEA602F40E8AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

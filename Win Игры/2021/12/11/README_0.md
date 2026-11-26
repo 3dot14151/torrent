@@ -19,8 +19,7 @@ Faraday Protocol (2021) [Ru/Multi] (1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:7943967A00D1155E4F6912C4D0F62EB5B55C5AAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Terminator: Resistance – шутер от первого лица во врем
 ```bash
 magnet:?xt=urn:btih:DBFA32DA11DBFEF83A4A67F6EDFA7CA4E359B380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

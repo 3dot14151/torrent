@@ -22,8 +22,7 @@ Jeff Beck - Performing This Week...Live At Ronnie Scott's (2008) [APE|Lossless|i
 ```bash
 magnet:?xt=urn:btih:94F7A672722C013AEA64BA05D0EA507140705A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Natalie Merchant - Ophelia (1998) HDCD, Tri-fold card-paper sleeve  [APE|Lossles
 ```bash
 magnet:?xt=urn:btih:08CA1B5DAB740E62B9CF8264261EB47D79618C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Snakes - Once Bitten... (1998) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FD7246B3E285D7FB64FA9FFEB23B16349C6D00A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Robert Palmer - Sneakin' Sally Through The Alley (1974) Remastered, 2013 [FLAC|L
 ```bash
 magnet:?xt=urn:btih:B473BBA78978C23F5CD027501C91503A9F18A949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Digimortal - Дети галактики (2015) [FLAC|Lossless|tracks + .cue] <I
 ```bash
 magnet:?xt=urn:btih:77C1EDE61FC6C34E34C4B906A5B969F88F3F48C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Placebo - Meds: B-Sides (2016) [MP3|320 кб/с] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:7E48DDF062776C5AC1E033833592CFBD8F923101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ KORPIKLAANI уникальны, их смесь финской фолк-музы
 ```bash
 magnet:?xt=urn:btih:4F48CA2785DF0C8E8490B24B66CAF48DCDAC4057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:701BEEF82881F3B06F2C95FBDD276257D6BC168C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E698F63DC63B848445E4BF499EAFC51E1E3654C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ The New Madness - After Hours (2020) [MP3|320 Kbps] <Classic Rock, Garage Rock, 
 ```bash
 magnet:?xt=urn:btih:7A3D18F149B8DCEEAF01DCD8E255F590EDE726CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Slayer - Reign In Blood (1986) Remastered, 2009, American Recordings [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:B344893CFA0F4022073CD09DFA3C9DCB814F2873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Whitesnake - The Blues Album (2021) Rhino Records [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:1F17CC50D89A2D3F5002EDD65E3B9C5D96F73DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Korpiklaani - Jylha (2021) [FLAC|Lossless|image + .cue] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:47A5C5963D0E49A51FE809E47D3554A238723F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ The Dead Daisies - Ноlу Grоund (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:350283A0DDC4C39049D65C9334ADB575E33C6559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Wizard - Metal In My Head (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal
 ```bash
 magnet:?xt=urn:btih:7C06C5EB02E8E0ECAB643204C61B465E1B71F6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Nagart - Вы это слышали? (2021) EP [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:72C33BDD60B3D183A8E4724C65336DE8FF3983E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

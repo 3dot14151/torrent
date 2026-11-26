@@ -22,8 +22,7 @@ All The Cold - To The Emerald Land (2020) [FLAC|Lossless|Web-DL|tracks] <Atmosph
 ```bash
 magnet:?xt=urn:btih:C25119502CB2FA5B3B83691617928B19E1C34FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

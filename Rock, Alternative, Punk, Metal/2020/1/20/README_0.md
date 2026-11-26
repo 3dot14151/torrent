@@ -22,8 +22,7 @@ The Hold Steady ‎ - Thrashing Thru The Passion (2019) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:8E4B308FF379A6C9D167E00FF2F041639BF5AAB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ancient Knights - Camelot (2019) [MP3|320 Kbps] <Epic Heavy Metal, Power Metal, 
 ```bash
 magnet:?xt=urn:btih:42462856489B29711C109F78D31575554ADD5601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stamina - System of Power (2017) [FLAC|Lossless|image + .cue] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:15A948BA1296409057EA9F9FD2C2F957AA371ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Prog Rocks! (2011) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Prog-Rock, B
 ```bash
 magnet:?xt=urn:btih:DAFDD929BCA8A7468801E603F252AE238182775A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Prog Rocks! Volume Two (2012) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:2EA8548C23460BE8B1A3845ECC18E1C893A8151C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Beyond the Black — немецкая метал-группа, исполняю�
 ```bash
 magnet:?xt=urn:btih:E5730B564F27F9B2BA76D1724B4318711BF71FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Жасмин(   Читать дальше...   )Жанр: Pop RockПродо�
 ```bash
 magnet:?xt=urn:btih:F54016146C4B7B40ACA8DA37774976200B0234EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

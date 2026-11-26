@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:329D72523341161B1966C0504CAE16FB5A2F8630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:033B9C3E127422F5385A432396A88FF479CECFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Oiynsoft Фонарик. Проще некуда.
 ```bash
 magnet:?xt=urn:btih:4D4E73D488D167B6D29A0C5F14AC494EB9F1A8E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

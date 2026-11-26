@@ -22,8 +22,7 @@ A4 Magic Fire Music (From The Valkyries)(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:B11B3B3DAF469562D6B9B466EBC67ACC7472AB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 A New Day Has Come (Radio Remix)(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:94C0B5DA4B028F01BFCFF170016CE51F803C9FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

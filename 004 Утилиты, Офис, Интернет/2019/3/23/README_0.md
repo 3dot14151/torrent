@@ -20,8 +20,7 @@ Falkon - это веб-браузер KDE с использованием мех
 ```bash
 magnet:?xt=urn:btih:670C1303EAEE7A06D7D3FF18E8798FF5D64242EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ iSpring Suite 9 является дополнением к PowerPoint, поэт�
 ```bash
 magnet:?xt=urn:btih:C0D8C7514B5E1363A267E77F9832ED351258A8E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

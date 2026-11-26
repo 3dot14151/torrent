@@ -19,8 +19,7 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:03A30CB4C1624EFA0A3C4C913CF84B75877C037A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

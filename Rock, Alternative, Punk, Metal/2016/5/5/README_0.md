@@ -22,8 +22,7 @@ Rob Zombie - The Electric Warlock Acid Witch Satanic Orgy Celebration Dispenser 
 ```bash
 magnet:?xt=urn:btih:8821EB0478AB965C1A9A7784F69E06D47096736F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blackfield (Steven Wilson project) - 4 Studio+1 Live Albums (2004 - 2013) [FLAC|
 ```bash
 magnet:?xt=urn:btih:DF3F7EAD1EC8A971F82423EE103689C6DF6120D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

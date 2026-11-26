@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:D3FE5B99B47EBECF1203D60216B60F5758A1EC8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sim Aquarium - реалистическая 3-D экранная заставк�
 ```bash
 magnet:?xt=urn:btih:4F88624B85930F1D5817EC926A9AF34CA8BFEECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BBCDF9DC73F5A320796D127354F795660629F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Nirvana - A Big Mix of Besides. Collected (2013) [MP3|256 кб/с]<Grunge>
 ```bash
 magnet:?xt=urn:btih:11D229FE3125E167F123579429BEA0319A1CD427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ VA - Electro Vintage Revolution, Vol. 1 (2013) [MP3|320 кб/с]<Electro Swing, 
 ```bash
 magnet:?xt=urn:btih:B089586FBB562FD849D5CEEC64AFA4235913B7ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ GOM Player - мультимедийный плеер для систем Windows
 ```bash
 magnet:?xt=urn:btih:22F04DB6C663ECA1F1D9D2E2955DBD035439CD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3095EFBBD3EFABA26B4E7B0946A6578A10662B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ Arnd Stein - 7 альбомов (2006-2013) [FLAC|Lossless]<Meditative, New age,
 ```bash
 magnet:?xt=urn:btih:3E8300DE7A802FC4B0420E9B6B3A5A52745CA51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5C631F2D45D635D801B93DD59B1CC6E5358D7E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Ashampoo Movie Studio Pro - cоздание и редактирование ви
 ```bash
 magnet:?xt=urn:btih:F4E86F671629AB7E539F7AEFA109C02EE23827B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4F385890D34529929A5852E4819EBEABF2E7648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ Bryan Adams - Полная коллекция хитов (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:14431A4439C67FB18112A3EE0097EC4A7E2C554B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF57FAC4BD4B1A656E9E0732721F5C427CBB5F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4C56837AD42F291B928D68D2488B5706380EFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71D1A24F2D328CB9F24866BD12D7E381EB5B03BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2007880ED9698D8B5294E84239CC599C3B6B0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ Phil Collins - The Very Best (1992) [FLAC|Lossless]<Pop / Rock>
 ```bash
 magnet:?xt=urn:btih:FA2A76013F9413A3FE790101578EBACF787485E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEDAC5693871BBB75B95DDFB8DF5F46836720549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A00D0AD192DDC16E98D75A5EA748E17B4F75AC95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:295D3AFD06E263AE1E66C21126B375D7741008CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2390E3BA1E833D2C60D0814EBDAC645F6F1D8FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83FA75A61D1157D6DB02356FAF59B8A799FD7A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ Stevie Wonder - Best Of (2009) [FLAC|Lossless]<Soul, Funk>
 ```bash
 magnet:?xt=urn:btih:2EBFCE0A3CF0F40808AE7DCB23A76996DF50F4AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:525E8F35F33C201974EFD1C9F6CF8248DA5DFDF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +692,7 @@ Smokie - What Can I Do 20 Hits (1996) [FLAC|Lossless]<Pop-Rock, Soft-Rock>
 ```bash
 magnet:?xt=urn:btih:75BE9460685DBD5DA7CD21A526C5B5C9620AE106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:121BB4AE4ED5BB631408921EC29944222FAF66A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

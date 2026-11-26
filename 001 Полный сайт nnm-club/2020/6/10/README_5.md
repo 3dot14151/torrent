@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:1F1CF4F35AD20B2EAAF687590C2BFF7EB8C52633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Darko US - Pt. 1: Dethmask (2020) EP [MP3|320 Kbps] <Progressive Deathcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEB11D0CCCC1E69C60BBD64451CC1044609051DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ BPMD - American Made (2020) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:ECC1F38578D7306A2FDC2517BEF238ED4FB3AEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:571D98D1A497B96D2B5D27A37AB5AA9B4638D9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Martin Taylor - Sarabanda (1989) Gaia Records [FLAC|Lossless|tracks + .cue] <Cro
 ```bash
 magnet:?xt=urn:btih:765E9B984C82F2BD8DBCDB93DDB0EDB5E71FF267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Dears - Lovers Rock (2020) [MP3|320 Kbps] <Indie Rock, Alternative Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DAE437FA71762B3A6A5714E291834315DE90DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Maks Henning - Spring Dub 2 (2020) 7th Cloud [FLAC|Lossless|WEB-DL|tracks] <Tech
 ```bash
 magnet:?xt=urn:btih:C0425E5A415A84380613A56339963EDC43FA65D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ The Dears - Lovers Rock (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Altern
 ```bash
 magnet:?xt=urn:btih:26154DE220634DF3BA8B40059A41CB3BD005217C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Slimjet 26.0.11.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:386EAF7A56B0861CE347C04E4DE679561A9BBDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Inukami! | Инуками! [2006, TV, 26 из 26] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:AEB262DF8AA479A7862E3AFD15FEC797322A879A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - Music News vol.17 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:4C611A921996157D8F1D49E45E231E5443ACAED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAC3EB7FE547371DEFA1D2BF5A54A34F103012CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CEEDF3C41B5C74F42F75F58021901FF0913BC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Lamb Of God - Lamb Of God (2020) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ AllDup - бесплатный инструмент для поиска и уда
 ```bash
 magnet:?xt=urn:btih:F442669721B07361A4A8450CC6FA91B5DFAAF759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ CudaText — абсолютно бесплатный мультиплатфор�
 ```bash
 magnet:?xt=urn:btih:1970272033BDBC908AD827CD0E13D15AA4692F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ VA - Music News vol.18 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:0A43053D3D9B375A0488E472C3E304D2E9FFBDEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Inukami! The Movie: Tokumei Reiteki Sousakan Karina Shirou! | Инуками! [2
 ```bash
 magnet:?xt=urn:btih:54CF320276CB8CCB3A2C99A4331B2AA8C87E8324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E4677323AE5481B5A79F5F6BA535B997B37D0ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17534848CFF4EAD2F194BCF63A53CF028AC27D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ FinePrint - это многофункциональный драйвер для 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Oda Nobuna no Yabou | Великие Помыслы Нобуны Оды [2012, T
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

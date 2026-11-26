@@ -19,8 +19,7 @@ Forgotten Books: The Enchanted Crown (2014) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:A7DB55843414E16E22474C8B6F83852F81008A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Witchcraft: The Lotus Elixir (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:ADC2BF446AAD449F1AA2D0B0A26D255F70584CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Sisterhood: The Initiation / Возрождение Темного союз
 ```bash
 magnet:?xt=urn:btih:8697A32819F211658FCEC8108EA70A96F3513401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Royal Detective 2: Queen of Shadows / Королевский Детектив 2:
 ```bash
 magnet:?xt=urn:btih:6F82F7872BBAC3784FC387CE22484D1C16CC711C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Constant C (2014) [Multi] (1.0.0.0) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:776D2BC5A1680F26E3C97B562886024BA0409E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:883A18FB3937B344BB3AEDA55E3B8D99D05A336D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CEEAFD14D3F2ECD8822DB8F7BBB3ED77F99B854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Reaper - Tale of a Pale Swordsman повествует игрокам истор
 ```bash
 magnet:?xt=urn:btih:940E02182F016B33A0CFD9625A64A2837DEC334A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Avicii - Live at Pacha, NYC (23-04-2011) [MP3|192 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:1A49B5B921C2F628EE752A6100E804FD9C81D980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ DeepChord - Hash-Bar Loops (2011) [MP3|320 kbps]<Dub Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:34C37BD0233756B4C97D05EA2149C2E3D3AC1BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ CD 1: ~246 kbps (01:18:28)
 ```bash
 magnet:?xt=urn:btih:C33A360782244A0FA7889D3B0FE3AD1982BB8324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ StoneLake - Marching On Timeless Tales (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:36056BF8098A70F406BA27977C60033275ECC835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AC9B52307262E38498206C1374D23DBE32840CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ ReinXeed - 1912 (2011) [MP3|320 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:D1116818808EA6C0F6E10514504AE0B5CEDABD43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D610AFE6630CEACFE25C4177C12038619159B850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:741723940FD4694BADAC3FE6F0A45B2C83A81FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ Vanir - Særimners Kød (2011) [MP3|320 kbps]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:95BE8CDF7AB4080A468C71A4397D0717428786BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ Syndicate - Syndicate (2011) [MP3|192-320 kbps]<Hard Rock, Modern Rock>
 ```bash
 magnet:?xt=urn:btih:C2EA97EC8A08517194AAEEE75EB6086E09A5A22D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ Flowjob - 3 Albums + 6 Singles & EPs (2002-2011)Год: 2002-2011 | Жанр: Ps
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2FBD3803DB5A6592E24775C5ACD93F922D4E9FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +459,7 @@ Panzer Princess - Get Off My Back (2011) [MP3|320 kbps]<Sleaze Glam>
 ```bash
 magnet:?xt=urn:btih:C25E4AC4B619292A9CF88176B0FBFE711F1B4541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +493,7 @@ Patty Ascher - Bossa, Jazz'n'Samba (2011) [MP3|320 kbps]<Jazz>
 ```bash
 magnet:?xt=urn:btih:FE809464925175930C4E3BB5ED53A6D3787684BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ Baltic Queen и Silja SerenadeФоторепортаж блоггера ottenki_
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ Media Player Classic HomeCinema - удобный во всех планах му
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ Rob Moratti - Victory (2011) [MP3|~277 kbps]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DB23E20DC16292FC4CFF4C88C9B9C0D290CF15A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ b) Fox Rock 2
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ The Golden Nightingale Orchestra - Golden Gypsy Melodies (1988) [MP3|320 kbps]<I
 ```bash
 magnet:?xt=urn:btih:BC353727F7AB513C10AB8DE3B88A7EE7D7F88101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ Centox - Centox (2011) [MP3|320 kbps]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:4EFEA484A653F1A1D9EF39F012EB25D18383ADAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +713,7 @@ Asgard - The Seal Of Madness (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:D95C7A396A05F744AA43D2750B4DBB5064B91C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCC9BBA0F70A648D9E864842CDC526A91CC1EFEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

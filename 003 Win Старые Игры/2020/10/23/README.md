@@ -19,8 +19,7 @@ Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
 ```bash
 magnet:?xt=urn:btih:221BF8288B8939DE4C9D53497BB50E9C291CC6CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

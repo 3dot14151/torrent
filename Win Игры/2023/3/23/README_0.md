@@ -19,8 +19,7 @@ Rough Justice: '84 - детективный симулятор, дающий в�
 ```bash
 magnet:?xt=urn:btih:FAE71DF420B6CB5D73B45ED3F875783130EDDB1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Have a Nice Death — это экшен в жанре roguelike. Его глав
 ```bash
 magnet:?xt=urn:btih:3C045A38FAA777DD28F261A885E9B4861DDA0EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Super Trunko Go - это сложный шутер с видом сверху, �
 ```bash
 magnet:?xt=urn:btih:A7940D7E6DAA49B68401DE27612119DA30195F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Life of Delta - приключенческий поинт-н-клик, отпр�
 ```bash
 magnet:?xt=urn:btih:D9A57A03326AFCBCB37E5F5C5961766E10F5FBA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

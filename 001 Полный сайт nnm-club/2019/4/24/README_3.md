@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:19E54B899104B47DB731758EC69039A19AA64AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ KMSAuto Lite - KMS-активатор для операционных систе
 ```bash
 magnet:?xt=urn:btih:48CEC87FF70A55F941B0F5D9B713D207EF25E399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ The Sims 2 (2004) [Ru/Multi] (1.17.0.66/dlc) Repack S.Balykov [Ultimate Collecti
 ```bash
 magnet:?xt=urn:btih:5A73396201F497BD380DCC06717194E23105934A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

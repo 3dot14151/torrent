@@ -22,8 +22,7 @@ Perfect Player - IPTV/Медиа плеер с интерфейсом ТВ пр�
 ```bash
 magnet:?xt=urn:btih:9A9A52E09A063F06F8541AD75D269260E2E571F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

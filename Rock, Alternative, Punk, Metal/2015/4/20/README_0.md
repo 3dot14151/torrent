@@ -23,8 +23,7 @@ Lappalainen - Kraken's Awakening (2015) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:1F98EC9E01DB7006DE8A38296E236ABEB4C76EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Ne Obliviscaris - 2 EP (2015) [MP3|320 кб/с]<Progressive Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:D2FF3E3683180D9534445FE077556FA239FFB354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ The Starks - The Earth & The Ego (2015) [MP3|320 кб/с]<Alternative, Psychedel
 ```bash
 magnet:?xt=urn:btih:EDE59C1A7C4E8BDCD2207BEEFAB3924B4F59CA72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Munkor Smush - It's All Red (2015) [MP3|320 кб/с]<Alternative, Electro Rock, 
 ```bash
 magnet:?xt=urn:btih:A6C3740C18EA80845A046A8CC505D7F5C0507940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Aqua Alta - Dreamsphere (2015) [MP3|320 кб/с]<Alternative, Indie, Dream Pop, 
 ```bash
 magnet:?xt=urn:btih:9AD372E1EAC14BE4EFB8790AF0D6EC2442F3C984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Frantic Amber - Burning Insight (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:F7CE76A0768CE7CB1CA797CC59DF660CB6332D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Kontinuum - Kyrr (2015) [MP3|320 кб/с]<Post-Metal, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:612C4060703A7F51D683D660FDD07E6F993B91D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Minsk - The Crash & The Draw (2015) [MP3|320 кб/с]<Atmospheric Sludge Metal/P
 ```bash
 magnet:?xt=urn:btih:F72C6643C3CABC6E18867B7F0FFD8EB1E9C28313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ James Dewar - Stumbledown Romancer (1998) [MP3|320 кб/с]<Rock, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:4B395E2E5EAA01AEFF749128AF82CB1EADE900A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Rains - Stories (2006) [MP3|320 кб/с]<Alternative Rock, Modern Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:5C2CDDC3BC0943A0789AF8214FAE10538F15153F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9EEB30BCE48142813E7E842DA65D8A89A375A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ Rains - From The Ashes (2014) [MP3|320 кб/с]<Alternative Rock, Modern Melodic
 ```bash
 magnet:?xt=urn:btih:DF11332A029431E08AF828677DABBD0696ABD7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ Stone Sour - Meanwhile In Burbank... (2015) EP [MP3|320 кб/с]<Hard Rock, Alt.
 ```bash
 magnet:?xt=urn:btih:91E2A3C6F692433F48057582FCF464ABA4D63D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ Metallica - No Life Til Leather (1982) Cassette Limited Edition /2015, Blackened
 ```bash
 magnet:?xt=urn:btih:3AFB9D63630D7956D69FDE9499CC28EF3C5F0FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ Michael Kiske & Amanda Somerville - City Of Heroes (2015) [MP3|320 кб/с]<Heav
 ```bash
 magnet:?xt=urn:btih:8754D4B4590A5E8CE2A4EDEA31C58BED2F8407E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ AELLA - Мания величия - 30 лет спустя (2015) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:02EDBB9774B7F26C2E8E0EDB5F9C2ED936F36700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ AC/DC - Platinum Hits (2001) 2CD[MP3|320 кб/с]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:ED3A26954DBDC86500EB2A547DDF409732BAF667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Toon Quad / Большие Гонки 2: Трасса [Ru] (L) 2003
 ```bash
 magnet:?xt=urn:btih:49E3268221DB323F097FCB4AAC4C779EE698DDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

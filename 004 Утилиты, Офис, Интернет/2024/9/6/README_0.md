@@ -19,8 +19,7 @@ MuseScore — великолепное приложение для создан�
 ```bash
 magnet:?xt=urn:btih:83923A522D91848DE17F820628F12B6369B47337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:E8A7C53DC257AFC7DE6A0C1E1C77F92B6F397A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DefenderKiller - программа для удаления/восстановл
 ```bash
 magnet:?xt=urn:btih:1C55040AA145AE8F489F3993F253DF2FB57285C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Viber - десктопная версия популярного мобильн�
 ```bash
 magnet:?xt=urn:btih:4A4912A21B396662B213738A04100D1AE087E873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Mullvad Browser основан на движке Firefox ESR. Содержит �
 ```bash
 magnet:?xt=urn:btih:E0467CB8E0CD26EAFE3BBBE4D4FB9774E5C84131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ SRWare Iron 126.0.6400.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:14842244CDD4E8FB9CA3B301232C36934C243594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Extreme Picture Finder 3.66.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8E98E718E0E23FD1E679126E466E9B9F52390A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:07BF51744130F22C4FE9B1355242B251CC96DF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ EssentialPIM - это отмеченное различными наградам
 ```bash
 magnet:?xt=urn:btih:4C1103EED0C8C9C59319C0372307F8CDA70DB078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

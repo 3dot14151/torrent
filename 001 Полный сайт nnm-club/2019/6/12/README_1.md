@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:977A756D2C865146B1D620FC3444FB40E059B190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ THE WORKS (2009) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
 ```bash
 magnet:?xt=urn:btih:8EC64DF29D401E7294EE25C89B30D1D689055471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ PC Reviver является многоцелевой утилитой, кото�
 ```bash
 magnet:?xt=urn:btih:D4D10CDB3651CB4B7BCF92D0015649DFA6BF9AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ NG. Рыбы-чудовища: Таиландский рай / Monster fish: Tha
 ```bash
 magnet:?xt=urn:btih:6EC1995D41DA6B7F33A18F47840B48764396511D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Katakiri Rekka — History of WORXSONGz — 2 альбома (2011) Anime games 
 ```bash
 magnet:?xt=urn:btih:DC442849246EA63C5B22F5BFBF55E5ED3FCAAC4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C0D3F24532337AC52610BB6B3A1A5E9B79F99C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ ALcot Vocal Collection — 3 альбома (2008-2010) Anime games OST [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:4208968AE99EA885179EC10F5B125599520D8F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Atelier Series Vocal Collection — 3 альбома (2005-2010) Anime games OST
 ```bash
 magnet:?xt=urn:btih:E6241CAC7977DCA9DCED62D11FE604EA49D02B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9A1D3182FC1E7F35C5DB8C63CCE847CCAD8EA41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Aneimo Vocal Collection (2008) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
 ```bash
 magnet:?xt=urn:btih:6CADBE13A51DAD8A3672A3655405CDAF7ECC687E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Melonbooks Records — Touhou Compilation CD-BOOK (2019) Touhou Vocal /Doujin/ [
 ```bash
 magnet:?xt=urn:btih:9E17E76BDCCCCCD4D63776982D7136B620D4754E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ BALDR Vocal Collection (2010) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
 ```bash
 magnet:?xt=urn:btih:7848157F622F5A64048F3BECD142A4D2703C85E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ AQUAPLUS Vocal Collection — 10 альбомов (2006-2015) Anime games OST [F
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ AXL Vocal Collection — 3 альбома (2007-2011) Anime games OST [FLAC|Loss
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Madonna - Madame X (2019) Deluxe [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:AAAD0D70E6934C65BFC5DEAEFEC9F7E47AEBA718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96D886BE6B0531DD6A6DADFFBF8B8953EA4407AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ SpeedyFox - небольшая утилита, предназначенная д
 ```bash
 magnet:?xt=urn:btih:4C077A79E071882ADABF1FF131F73DD422B7D14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Infix PDF Editor Pro 7.4.1 RePack by KpoJIuK [Ru/En]
 ```bash
 magnet:?xt=urn:btih:458417F6EDDAF479C91EACB09CEA83B43D86500D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ NGW: Тайны дикой природы / Secrets Of The Wild (2013) HDTV [H.2
 ```bash
 magnet:?xt=urn:btih:BB8B823AA87B38794FBE039D6F53DCDAA59924FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ I've GIRL'S COMPILATION — 8 альбомов (1999-2010) Anime games OST [FLAC
 ```bash
 magnet:?xt=urn:btih:BD59E1AEC5E965F3ACFD8F41AB57A09C8F372128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ VA Compilation (2009) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ SHOT FES TWINS (2014) Anime games OST [FLAC|Lossless|tracks] <J-Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:80FCC7176BFB92CCF06D1447C4625E1F8B66DA36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA7DABB3090425F83980AC5AF3674D6A08A8BC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BA616785EA25BCF93271815C1A43C511C7532EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89E6CD245E9589F363FAC515F8E45EBA451513B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7989287C032821DA3C80BC738AF13BE3417AE8D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

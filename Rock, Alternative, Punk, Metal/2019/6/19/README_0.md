@@ -22,8 +22,7 @@ Rustin Man - Drift Code (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, 
 ```bash
 magnet:?xt=urn:btih:02326B69077EF080F1A25DF2BDE4CE322C314112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eveline's Dust - K. (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock>
 ```bash
 magnet:?xt=urn:btih:EE79B5E49F3FADCBBBACAD1F66C491BFBA814702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Melissa Etheridge - The Medicine Show (2019) [FLAC|Lossless|tracks + .cue] <Rock
 ```bash
 magnet:?xt=urn:btih:BE6785553BCD2D07C1491DA44A4A7469D742AC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Motanka - Motanka (2019) [MP3|320 Kbps] <Ethno Folk Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:F465D5EB77F92EBCCF2978264A0C577CFDF2A295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rammstein - Sehnsucht (1997) Reissue, 2017, Universal Music Group International 
 ```bash
 magnet:?xt=urn:btih:F342D03EC3AA977E90CB21CF9208B82A8D597820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ A4. Досуги-Буги(   Читать дальше...   )Жанр: РокП�
 ```bash
 magnet:?xt=urn:btih:94F93CE58C63A970DAEB30A3884A1F75AA5C49CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

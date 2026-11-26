@@ -21,8 +21,7 @@ Bodhi Linux 2.4.0 [x86, x86-64] (3xCD)
 ```bash
 magnet:?xt=urn:btih:E440B847276A2850A8CB24AA1D8EC8F3D5C850D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

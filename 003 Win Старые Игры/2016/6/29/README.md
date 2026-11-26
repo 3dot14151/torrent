@@ -19,8 +19,7 @@ Action Legion - это аркадный шутер с видом сверху, �
 ```bash
 magnet:?xt=urn:btih:06240BDD925961374923449F2D6683FBA61DA63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Living Legends 7: Fallen Sky (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:3BAC98D43E43D628F7D323DA07C72E31EFB5B34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Romance 9: A Performance To Die For / Роман тьмы 9: Жизнь з�
 ```bash
 magnet:?xt=urn:btih:A93E500F93CAB4016A63A5ADDC47F8BB8EB9D640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grim Tales 12: Graywitch / Мрачные истории 12: Грейвитч (2
 ```bash
 magnet:?xt=urn:btih:8103F6B25608667474AC541CBFC4C51727E4DF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Hong Kong Massacre (2019) [En] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3A7F7E808C152A4D0733D5CE2F3E664309A0989D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Enemy Front является шутером от первого лица, соз
 ```bash
 magnet:?xt=urn:btih:67E3D4092C909780EB632531D374BC7335CC18DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sundered – ужасающая борьба за выживание и здра
 ```bash
 magnet:?xt=urn:btih:4A8B7EF4EB0D7C9124A648A2FD20ED9658E59D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ghost of a Tale рассказывает историю отважного мы�
 ```bash
 magnet:?xt=urn:btih:E194AEE02E5C9C6CB0DBBABEC0237E7AA649FCF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

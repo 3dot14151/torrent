@@ -22,8 +22,7 @@ PDA 005 A
 ```bash
 magnet:?xt=urn:btih:872D0C131A63D2E70D7BDC5143854B1E0BE9E404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

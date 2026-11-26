@@ -19,8 +19,7 @@ Dreams of a Geisha (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:17159A8A0084F014778FAEEEF86376906A784B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Puppy Sanctuary (L) [En] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:7F1C3D2A27E21088CBBCD1A7C6AECDAD2F2B4B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DinerTown надеется выиграть право принимать у с�
 ```bash
 magnet:?xt=urn:btih:A60446E29FB42B48700EF4A7963E1E63CF0CE746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC1264EAF224FB8753807474BE1557B30856C8EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Gourmania 3: Zoo Zoom! / Гурмания 3. Зверский аппетит (P)
 ```bash
 magnet:?xt=urn:btih:61C7E57E943F2194FEF76ABD485621849E7EE2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AF4639F839F6AED96DA4A47338C91ABC5F40D87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:A4E5173C3469E24EFF6F45A359CB8AB580B1787B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ CareUEyes служит для изменения цветовой темпера
 ```bash
 magnet:?xt=urn:btih:02577ECA3055C83F01E99621183AD48272BEC346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Qalculate! - это многоцелевой кросс-платформенны
 ```bash
 magnet:?xt=urn:btih:E4DB108A078E9FB28CBA57BDCDD41F433D751294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

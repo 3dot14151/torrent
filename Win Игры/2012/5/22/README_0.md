@@ -21,8 +21,7 @@ Resident Evil: Operation Raccoon City — классический шутер о
 ```bash
 magnet:?xt=urn:btih:988DD48B99B731A42498515BBB7E579EDA1A762A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Fahr Simulator 2012 - продолжение популярной серии Fah
 ```bash
 magnet:?xt=urn:btih:B5AF4614495932696B61C9020924233EED53ADE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Star Wars: XJedi Academy (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:978885EF9013BB1ADD5DAD63B455015CE5208CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Top Secret Finders / СверхОсобый СпецОтдел (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:2B13C1839E5A80476CB90D662E014BB052D70B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Inspector Magnusson: Murder on the Titanic / Инспектор Магнуссо
 ```bash
 magnet:?xt=urn:btih:CA9982690017BA93396D9E47F1EA5292C93B6400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

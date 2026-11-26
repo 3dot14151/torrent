@@ -19,8 +19,7 @@ SQL Dynamite 1.7.2.24583 [En]
 ```bash
 magnet:?xt=urn:btih:42D77BFA3EDDBA1C4C9177F31EFC4A62B4423B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Stan Getz - Plays (2002) [FLAC|Lossless]<Jazz, Cool, Bop>
 ```bash
 magnet:?xt=urn:btih:1D196272CA21AAACED124B786772E4BF2313912E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Tapage - One Pale Goldfish (2015) [FLAC|Lossless|WEB-DL]<IDM, Experimental>
 ```bash
 magnet:?xt=urn:btih:86AF82B39D2B7649049BE33ED8C362B380FD9369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0A2CC7D0D5415B08F86F7E914F02969702967B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D780633C36A96E56F90630DE99A0DFBB5453B6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ VA - Top Dub 4 (2014) [MP3|320 кб/с]<Drum & Bass, Dubstep, Breaks>
 ```bash
 magnet:?xt=urn:btih:879D40C5C723C998343A1BC24E35D49F4C76EEEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1457D2004566BB1BDDFAD6B7375B33BFB9FAE341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Aly & Fila - The Chill Out (2015) [MP3|320 кб/с]<Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:03A919A6D6E61BC924E7BF4BFCBD081DAC487401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E96AEE7BB187D7FE390905171907928533B0B32E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:564EF3901CD7C8165B26F1EEA2A64072E8CA5780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BDB51F2B7733E7AE028D1C84EDD1F837BA24067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Milk & Bone - Little Mourning (2015) [FLAC|Lossless]<Electronic, Indie Pop, Fema
 ```bash
 magnet:?xt=urn:btih:AAE2DAFD4058D6C86F0BC124D58B127BB978291C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C283B378F54818D0CA740990A14A74977490594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01531508AADAA397A2AA6FDE348836616A9DE29A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ VA - Top Dub 5 (2014) [MP3|320 кб/с]<Drum & Bass, Dubstep, Breaks>
 ```bash
 magnet:?xt=urn:btih:4500C69E1923BD470BD37D1929FBB48D89DA0287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ VA - Top Dub 2 (2014) [MP3|320 кб/с]<Drum & Bass, Dubstep, Breaks>
 ```bash
 magnet:?xt=urn:btih:5F7CCB3BECBFE544A0421F87410B0BFDE80388A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAE63142A7AF3919353819B8311C0456D7A5912E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ VA - Ruby Trance Vol 11 (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:EBE680980BC8ABB974FDB158B1F4D8887F79AED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F63BFFAF1C43DB67874E561678742283A71F619F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A49711172743FE0121459844B696AE6A125525D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ Time To Meet The Devil - Odium (2015) [FLAC|Lossless|WEB-DL]<Industrial, Post In
 ```bash
 magnet:?xt=urn:btih:86C53B91E0150F230E72757CEEFE4F0CA37FA576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ B2 Blues March (6:16)(   Читать дальше...   )Жанр: JazzПрод�
 ```bash
 magnet:?xt=urn:btih:54E960F6A0F7230DDA665E914B81B31FA60C21AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ VA - Top Dub (2014) [MP3|320 кб/с]<Drum & Bass, Dubstep, Breaks>
 ```bash
 magnet:?xt=urn:btih:540F5704FA3E4C3C56928EFC8A764CBA7863A4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ Pura Fe - Sacred Seed (2015) [MP3|320 кб/с]<Native american, Ethnic, Folk, Bl
 ```bash
 magnet:?xt=urn:btih:2458F4539D5BAEC91A837D6C9CCE2969115B26CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ Amon Tobin - Surge (2011) [FLAC|Lossless|WEB-DL]<Abstract, Dubstep>
 ```bash
 magnet:?xt=urn:btih:7CBBF8FC3EB1694853DE21FDA5F7653D972DBA76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

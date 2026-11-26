@@ -21,8 +21,7 @@ Firebug — расширение для браузера Firefox, являюще
 ```bash
 magnet:?xt=urn:btih:11F7CB4736D965460FEF924AAE5201D851DA99B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

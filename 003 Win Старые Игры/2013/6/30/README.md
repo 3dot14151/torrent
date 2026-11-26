@@ -19,8 +19,7 @@ Ecco the Dolphin (1996) [En] Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:F2E125A80B884C3573443637DE890D3AD6FB7CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Beowulf: The Game / Беовульф (2007) [Ru/En] (1.1) Repack R.G. Механ
 ```bash
 magnet:?xt=urn:btih:BAFE5E1C9814CA953C1D2AA9546BBA7C0A768EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

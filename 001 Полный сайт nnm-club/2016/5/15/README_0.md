@@ -21,8 +21,7 @@ Joe Cocker - Civilized Man (1984) [FLAC|Lossless|image + .cue] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:1992253158365C41564DD10923C669F84682A315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Anca Pop - Anca Pop (2016) [MP3|320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:915DA33CCE090F3408679BAFEDF20163EFCCA826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - EDM Party Summer (2016) [MP3|320 кб/с] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:1C5BBA9E5620C88C7A392F502DB67813A990F4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Soukie & Windish - Loom (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech H
 ```bash
 magnet:?xt=urn:btih:87370758E1195811D22091B9F7A39C33BA87EFC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - EDM Ibiza: Eurodance Party (2016) [MP3|238-320 кб/с] <Club, House, Eurod
 ```bash
 magnet:?xt=urn:btih:C35F316C213AABAC202BC9291069BC6CD5039999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ mimoLive - программное обеспечение, которое пре�
 ```bash
 magnet:?xt=urn:btih:2A3BB4F0EB426CEC7B3A273FD099C514944F8B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:867C9CDBE2905CD5096C8D8E43DEDC32269412CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01D9679B640A2C5375C68F31F24F7CBF408C99DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85CBD7487231E99DDD72CF0DE1D8CBE7E519B8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Nadama - Waves of Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Ins
 ```bash
 magnet:?xt=urn:btih:1284F39925C436E563572C3528F3B21F060B6A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D81AB5D2D6C4A03CF9A22348348F5939B90F5E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9513FA7E8FE897E07D5D76D416691917FBD11EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Joe Cocker - Unchain My Heart (1987) [APE|Lossless|image + .cue] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:2882BBE137EEDE7806C2BBE707C562AAA07936C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ VA - The Best Lounge Vol.1(Compiled by Sergio) (2016) [MP3|239-320 кб/с] <Lou
 ```bash
 magnet:?xt=urn:btih:C32415ECF77461A813859F45F2BB2317AF855BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Joe Cocker - Cocker (1986) [FLAC|Lossless|image + .cue] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:01E94BA782CD23F5C1A288760E6CC7D98B81C5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6CACBFAD2AE69E0D18B4E9792B776B5D84817E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Joe Cocker - One Night Of Sin (1989) [FLAC|Lossless|image + .cue] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:D32B767778A83A0AC68A83AB3574FAA5F815F8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ VA - Весенний хит супер популярный 7 (2016) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:77CC30A063384ADF6FCEC2C5D967976EA3864308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ VA - Весна пришла 8 (2016) [MP3|256 кб/с] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:236C634224A9E7A224D3BFF372A037D855862871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C45A83B85A2C97B02481326A15F67C26990DA305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Mail Stationery - это определенный стиль и высокая �
 ```bash
 magnet:?xt=urn:btih:FEB70AAD0B314DC9C0E5241E684B4C27D978804D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51D78ED47259E653F5C927229A9D9B37CA7311F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD80A10E920B440C93B29C1A438D162B4A382B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ Jane Air - Unreleased'n'Live (2016) [MP3|320 кб/с] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:D626344B57369EBB061DBBBC5F76F119F0208D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29838FD2E31EEC7D826703010CA282E55ECC0B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

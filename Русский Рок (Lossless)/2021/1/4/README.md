@@ -22,8 +22,7 @@ Skogmark - Aera Av Ensomhet (2020) [FLAC|Lossless|image + .cue] <Atmospheric Bla
 ```bash
 magnet:?xt=urn:btih:98E724183BA649C77A4F9DD342395D0076CEA1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

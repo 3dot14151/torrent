@@ -19,8 +19,7 @@ Zuma Star Wars / Зума: Звездные войны (2007) [En] (1.0) Unoffic
 ```bash
 magnet:?xt=urn:btih:850A1D796FD8FE87941384955037B58BC47FC593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

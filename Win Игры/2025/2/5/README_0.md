@@ -19,8 +19,7 @@ Kingdom Rush 5: Alliance TD бросает вас в мир, где враги �
 ```bash
 magnet:?xt=urn:btih:189BE44E4FC0D18541C0024F29F90FB56560DD31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Sims 2 (2025) [Ru/Multi] (Build 17175009/dlc) Scene Tenoke [Legacy Collectio
 ```bash
 magnet:?xt=urn:btih:4C0EB4868652F86FD1AB274ED236C865E1163094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:95DC24673CD3E44975188A7638BDFB68B9833360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:09DDC2E94C95752B13DEC138B9458849F76FB363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Warhammer 40,000: Shootas, Blood & Teef (2022) [Ru/Multi] (1.0.36) Repack Let's�
 ```bash
 magnet:?xt=urn:btih:5AF73424C4BAAE931FEC7F11174E0E089C1CBBCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B714C634AAEFF8C7E13F94E7D51994CEA1EDA311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.72/dlc) Repack FitGirl [Legacy Collection]
 ```bash
 magnet:?xt=urn:btih:B5EB06644C1442830C5DFDAB5CF75CAAE14C92B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Great War: Western Front - это проработанная стратег�
 ```bash
 magnet:?xt=urn:btih:9E01D64C423FDF24C05AC21D5465800C4575C34F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Snufkin: Melody of Moominvalley (2024) [Ru/Multi] (Build 17112046/dlc) Repack Le
 ```bash
 magnet:?xt=urn:btih:BDA35211B901DEAB71CF672CC656E30604E8C405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:344CC0CFC42E6A3794C34D28CD15150DFA26688A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Dead Season (2024) [Ru/Multi] (build 15673615) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:0215304D5A95B13AD32B3DF2ED81875A0A2390F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Detective Club: Missing in the Fog / Детективный Клуб: Пропа
 ```bash
 magnet:?xt=urn:btih:FD1358BDCD5A48A80336738F4512591458A0B8D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:78BD2FD7B372DF513F1D696389A4B3A4D507EAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ VA - Italian Hit-Parade/Италиански Хит-Парад (1983, 1984) 2LP 
 ```bash
 magnet:?xt=urn:btih:E577F0EE098B59C9858607ED2A5FE826144E379B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

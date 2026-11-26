@@ -20,8 +20,7 @@ ONLYOFFICE — это офисный пакет для работы с текс�
 ```bash
 magnet:?xt=urn:btih:ED974CA82815238B2C6870E27EA2A01A1F06891F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Megacubo - это бесплатный IPTV-тюнер для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:79A5554229503B14CDDD39322EBCD3852772D6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Auslogics Disk Defrag Ultimate - это профессиональная вер�
 ```bash
 magnet:?xt=urn:btih:73246EABF8871AE060AE3D7059D6BAD56849BED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

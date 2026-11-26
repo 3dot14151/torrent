@@ -19,8 +19,7 @@ Debian Linux 8.2 Jessie [i386] 3xDVD + 1xCD
 ```bash
 magnet:?xt=urn:btih:7D4EA940CD7F91FE1C47FFC9CBFA7571050D543A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

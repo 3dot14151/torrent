@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C33D1B6D71A38B3F270E117646C09ECDC4449C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AD14E741A844E9DDE1E0E5F34F475CB5B84840F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VirtualHostX - приложение, которое помогает вам о�
 ```bash
 magnet:?xt=urn:btih:AD20E364ACE64B2DAFAAB4C35B691A164B53390D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Tantrum Desire - Nationwide Rocker EP (2016) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F9D01BE0CC228ABC92545DDE09F648B6B42553F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Trailer Radio - Country Girls Ain't Cheap (2016) [MP3|320 кб/с] <Country>
 ```bash
 magnet:?xt=urn:btih:ED64DA8CF560CCFE48C11718DACD410B2CDB1F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56CC2DFED66786F7BED3216F2E9ECFBD28E25B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ The Upbeats - De-Evolution, Pt. 1 (2016) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D622B0D5595B73E92D9D9EA01155567526BF76FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ ATOMIC - самая обширная программа тестирования
 ```bash
 magnet:?xt=urn:btih:03797140AC444F1A3D14BA488BE54A17518A31EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Benjamin Biolay - Palermo Hollywood (2016) [MP3|320 кб/с] <French Pop, Chanso
 ```bash
 magnet:?xt=urn:btih:22D4E7C5A40D5B29065E813DAE80853D8A4DEAD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0333A34AD03D5447F5A85B823D6BA8FFE76A8434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Roger Shah - Music For Meditation, Yoga & Other Wellbeing Moments (2016) [MP3|32
 ```bash
 magnet:?xt=urn:btih:6DAD877FB2FDAFAABEE6F129490B42575D007CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5680700B4FA99A32C9CC39D037A65AB3A1B57F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2585C93443A7073F54FB26FE06DD66508F8DDADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B9D090F8904D97369E6E00BF4CEF661F27F2943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ VA - 100 Пудовый Auto hit №3 Шансон (2016) [MP3|256 кб/с] <Sha
 ```bash
 magnet:?xt=urn:btih:5C1E0B3DEC5F13666A26CA4155E5376A8FD1AEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Mr.Kitty - Fragments (2015) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, New Wave>
 ```bash
 magnet:?xt=urn:btih:D2C064AABADE3A1837815D4BD47915EAF5134D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ BookReader поможет вам погрузиться в мир новой к�
 ```bash
 magnet:?xt=urn:btih:F689188C860CBDB3CD194A8D4602A0FDFA4E3967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A5BB8C5B661F65DACE952CA5265FEEFF77DB9EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79FF5AB83AC19F61AE2F3ADB9022D6741CF02A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD054F3585C871A39228C85D86D840BF876F70DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Easy Disc Burner 4.7.7.349 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1B64793FF6899AACF4B67D44B48712AD4D67A4E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA6CA6D86B6AD6675627AF2677281BE0A36BCE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6772B2FEE44BBB07904D6210CB745939D7AFD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23AFCC0A9F9F80AFBC1C20A3C46CCAEC733A7C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:326563B5DD2D43FC089EF731983A5AEE5DBD394F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ Triplex - Катапульта (2003) [FLAC|Lossless|tracks + .cue] <House, Tran
 ```bash
 magnet:?xt=urn:btih:B34209664F5546223530F09C777703C5E132EA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

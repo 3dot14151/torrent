@@ -20,8 +20,7 @@ myTracks — замечательное приложение, которое б�
 ```bash
 magnet:?xt=urn:btih:89EC5D1980E394FCDDA47490C0369E8C3544FF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

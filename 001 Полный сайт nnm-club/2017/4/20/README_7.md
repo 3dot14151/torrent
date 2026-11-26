@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:F3134E5872217EF1D9A911DF78CECEEA6208F12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC5A3A341904551DA5B74F1F63DAB5BA70ED5363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nels Cline & Vinny Golia - The Entire Time (2004) Nine Winds [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:803641727D8D25081D48C69ABA662FBCD951334D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Metropolitan Lounge Selection Amsterdam (2017) [MP3|320 Kbps] <Downtempo, C
 ```bash
 magnet:?xt=urn:btih:E5DD9B3C3FCA5940387F7ACE227751F51A9FED66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Chillout AAA Vacation Time Real Set (2017) [MP3|320 Kbps] <Downtempo, Chill
 ```bash
 magnet:?xt=urn:btih:C54A5DEB6A9DEE74F92AB7097B1FF5A29F9F55C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Cookie  - Программа для полного удаления cookie-фа�
 ```bash
 magnet:?xt=urn:btih:32CB3F5A8087CEF1837DCD9C24501557EB19C79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Jungle Essence 11th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:2997004D1509CEDEDF4FFEC4EB03CD065AA905F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DDCCC77AECBBA838D0D7DBA028A92A32B8E8701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Chilling Poolside (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:7ACA0960F826E6431370B19F7B427678D23A7435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8F3E9F23F483E2A8AEC5E0161FD7AE6602B4D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Dream Travel - Megamix: Best Of Dream Travel (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:586F67B766F64206CCD779E0C8F2906FBCE34B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DC8CAC418AC0E4DF40415A87D1A537C7B653B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Nuta Cookier - Space Age (2017) [MP3|320 Kbps] <Ambient, Drone>
 ```bash
 magnet:?xt=urn:btih:489274B60C508EE7F43B1AC57440ECE6C9414AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Beach Party Sunset (2017) [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:769370AD0A9EEACAC190F0EF251EADCE9DA0A1E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Felix Magnus Grossmann - Lounge & Chill (2017) [MP3|320 Kbps] <Balearic, Downtem
 ```bash
 magnet:?xt=urn:btih:DD9D47AA9D8371A09EF74C6EDEB0DC847C855180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Calendar 366 Plus - календарь событий и напоминаний 
 ```bash
 magnet:?xt=urn:btih:390E6F53321840779F969FA39B2531269E6C3E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Airform - Quantum (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0B42C85453DD864987C853D37F73DB46EF6B5AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ VA - La Maison La Rue Vol.4 (Pure Lounge For Now People) (2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:6B333C3C2C461882C48A37E2B8B76ADFA9298EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - Suanda Classics Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Voca
 ```bash
 magnet:?xt=urn:btih:118BC94D12EA626EEFD34825EDCEEB5F94A288FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ VA - Ori Uplift & Shimotsukei - Uplifting Only 218 (2017) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:D487A336AF48F2C1046351C8E4D78DA56FB7C7DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ VA - Chill Out Amsterdam (Lounge From The Lowlands) (2017) [MP3|320 Kbps] <Downt
 ```bash
 magnet:?xt=urn:btih:D90CF5A2B9BF6F2B4D3EE650C953154531F46A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ The Project Hate MCMXCIX - The Lustrate Process (2009) [WavPack|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:38A44F37505D69C2169870CB8ED13192FDFB664E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ PrimoMusic предлагает Вам возможность перемещат
 ```bash
 magnet:?xt=urn:btih:3D92C2454BA7921E7E13350A2BA9332A86AA592C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ VA - Chill out Nation Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:6CEA93DC230C18E81A04FD08502A4FBAE5D50846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ VA - Топовая сотня весенняя. Версия № 2 (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:DEA4454A58C2F8F5B0D6372883B08980C1259221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ VA - Calmness Sky Is The Limit Vol.1 (Waves Of Chill Out) (2017) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:F98FFEBC1DC1F5AE32EB6B9F88677B4053746FAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

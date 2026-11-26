@@ -28,8 +28,7 @@ Angeli Di Pietra - два альбома (2009,2011)  [MP3|320 kbps]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:AF2FDFFB672970AEC75C452C562C13160CC73F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

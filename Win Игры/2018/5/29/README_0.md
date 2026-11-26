@@ -19,8 +19,7 @@ Zombie Forest 2 (2018) [Ru/En] (1.01) License PLAZA
 ```bash
 magnet:?xt=urn:btih:9DBCEF46D061F39570F1D528AC34FECB381089DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TASTEE: Lethal Tactics (2016) [Ru/Multi] (1.0/dlc) License CODEX [Ultimate Colle
 ```bash
 magnet:?xt=urn:btih:8F8E7C4A722699636D67FA81BFEC0C860A98E8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Zombie Forest 2 (2018) [Ru/En] (1.01) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CCDCE26590E013351A40DDB72B2D3D23A204AC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hand of Fate (2015) [Ru/Multi] (1.3.19/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F442EEC83DDF978824CB9577FB4912E6830E67CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

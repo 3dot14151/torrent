@@ -21,8 +21,7 @@ VA - Ultimate Deep House Selection (The Grand Rhythms) (2020) [MP3|320 Kbps] <Da
 ```bash
 magnet:?xt=urn:btih:4D066F3E61F390C299DF8D76C99F2C589A7DE10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ```bash
 magnet:?xt=urn:btih:65E29832BEC8378A52D8A19B8B0AEF5E99829404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5F7129733729721A255D3A665DD97C0B2DBB13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E623002118FD17BB1BBFE492830052E50D1C11B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Record Super Chart 621 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:1DD81E5D952581E3597D63B98189427238594B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C7A3337DF9AC00E84B3CC84E37E5380D041305D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E41C51DD265599049F7AD163A957790EFAE55856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ USBclean 3.4.4 [Multi]
 ```bash
 magnet:?xt=urn:btih:250C4BE0D5FD701DBAEBFD01FD958EE688A5CC92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Formula-E: Santiago E-Prix, Квалификация, Гонка [A21 Network] (
 ```bash
 magnet:?xt=urn:btih:3AD9BEA95538EE9A653DA97391D3CEFFD677C57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ VA - Beatport Tech House: January Pack #02 (2020) [MP3|320 Kbps] <Tech, Deep Hou
 ```bash
 magnet:?xt=urn:btih:1731F2890B75206633F4AA7A697B93AFE8AEEFD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ VA - Vocal House: Club Edition (2020) [MP3|320 Kbps] <Vocal House>
 ```bash
 magnet:?xt=urn:btih:E856D5185B668D999557B2FDD2B6F0C65D9244A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Diana Krall - Wallflower (2015) [FLAC|Lossless]<Vocal Jazz, Pop>
 ```bash
 magnet:?xt=urn:btih:80384410894DB223D8F15FA8EA23333A1168E597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Formula-E: Santiago E-Prix. Гонка [МАТЧ! Арена HD] (18.01.2020) DV
 ```bash
 magnet:?xt=urn:btih:3D2C5AB4E5482E24F88212EED682FF051F901FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE9B8ACAE2DBEB72765311F6F87690180CD38BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5714241AA4958BC828E762E536B5159B274C21EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ VA - не Громкие новинки недели 52 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:D7EB05657F27BC2B8F76004D05722599710B95D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:22BF43E62122C85202F0E344A480774D32A274BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB9739D5EC96BCE607F848B9D580E9CC3C19EC8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71D01047D72CA9EEF6361AB87D48251883EDE14E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ VA - ЕвроХит Топ 40 Europa Plus 17.01.2020 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F78E9971E3886A76E88C965DFE41A72D0D4F1DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE260A440B44EC645FF91C249E40441EED3A301F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E26B30015215523A1834D876E950C33A3FD48696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD142E81364576B9B829170D1B9CEEB91AC39CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ a-ha - Stay On These Roads (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:D4777B16D43A747DE825F5B16F6A9F53E3419022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ Halsey - Manic (2020) [FLAC|Lossless|tracks] <Indie, Pop, Alternative>
 ```bash
 magnet:?xt=urn:btih:1A46C2759E06B70FE22A86C3CEC779B830F09CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ VA - Chillout: Supreme Relaxation (2020) [MP3|320 Kbps] <Chillout, Ambient, Down
 ```bash
 magnet:?xt=urn:btih:CF09043C14BB79A4E5E46A8DB920FC15872BDDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

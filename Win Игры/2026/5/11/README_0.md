@@ -19,8 +19,7 @@ CrossCode (2018) [Ru/Multi] (1.4.2-4/dlc) Repack Let'sРlay [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:46CA90C60653EF8B5C56998101E17C9988ED513B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:50EC2F5383EACC061250AC33CE69F61E3A7CB01F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Invincible VS - это жестокий супергеройский файти�
 ```bash
 magnet:?xt=urn:btih:AD7C3D45C35A71EA40651CB603E8681CFA63F3B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Last Gas Station (2026) [Ru/Multi] (1.0.0.304) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A6175D250159E603F334BF48336CEC0BF2C785EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.3) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:CA057A0375EAC0FB0242A6423972D2CA9EC3C3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mafia II (2): Definitive Edition (2020) [Ru/Multi] (1.0/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:B274E4B0FA67362DF30CC6A0839D24599ABE68D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mafia III (3): Definitive Edition (2020) [Ru/Multi] (1.0.1/dlc) Repack Wanterlud
 ```bash
 magnet:?xt=urn:btih:9F4860C60AD8E7A31DB471B8121B849105A16051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Restore Your Island это медленный, уютный симулятор �
 ```bash
 magnet:?xt=urn:btih:2DF39D2E1DC42E703ECE2234A5678AB8E317DDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Don't Play This - это инди-хоррор от первого лица в �
 ```bash
 magnet:?xt=urn:btih:56F623DCCB2E1D2F99C3CA2E504265CC66F901D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Grind Survivors погружает вас в неустанный экшен в 
 ```bash
 magnet:?xt=urn:btih:807545E12605FDE56C945A62DAAC7420C55AF655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

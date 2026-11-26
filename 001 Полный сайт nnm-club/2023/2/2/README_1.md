@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B8B1F14AFA3C06B94BBA2A4D88F06A659FD02B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Airbourne - Hellfire (2023) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:78B7B577A1BDF789B1C78560EECD08653FC5EB63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B8651B452563D84D396AB8003FFD972D15B6157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ MediaHuman YouTube Downloader 3.9.9.79 (3101) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:87D915B9D04819413062A7271141657B562A828C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12A9AFF50B9869886188A85E55877EEF83A33D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:C52A5ED3995289CC540812E18EBEA716286A9A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D540B04828630AA8E5924097FFF0990E86CC63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Nox App Player 7.0.5.2001 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:97CC237DB2B611F72284A22C39DCAE6AD30F5B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C6690C3FDDBA5CAA70C4A2AFF8EA4579A7B4507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:718F88568B3D98E7F8C4469ED62195B2CB396157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 ```bash
 magnet:?xt=urn:btih:5C981282B9C6864C098CF57FE428FB475E5AFED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ RAR - это консольное приложение, позволяющее �
 ```bash
 magnet:?xt=urn:btih:78BABCEF6BF6C1577DA80339A148F88142BECBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:402F1D66F59E71A3E23E6A25225F4BDB9A6202E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Vidmore Video Converter 2.3.32 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:21ABE4F78563EB7F43BC813CFEC496208A79B805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Sarah McCoy провела большую часть своей жизни, иг
 ```bash
 magnet:?xt=urn:btih:7C648377C9FE1ED6DCDA179A2758C6A380D08EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ AIMP 5.11 Build 2421 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:94841D589E32FB1D825ADC6FE892ABEC4802508B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ VA - Europa Plus: ЕвроХит Топ 40 20.01 (2023) [MP3|320 Kbps] <Pop, Dan
 ```bash
 magnet:?xt=urn:btih:E6D249B60A9757E31C186FEA1A35C29F119079E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ R-Studio Technician 9.2 Build 191126 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:48BA696646FCBEF2B8A840B76A87C2886F1C4E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ Ashampoo Photo Optimizer 9.0.4.28 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7C5F9AD2FC2968F3AB1511F7274BA77841DEA25B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:0CCCD110CF89A006A9F7039CFE2AB544BBBD476A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:768D144F2807F4C7F6C4B890C79CBD289790492E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4EA5D0EA3D899DAE03238477B65495A88D57B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ Ant Download Manager - отличный менеджер загрузки сам
 ```bash
 magnet:?xt=urn:btih:A8D8E6B1C06F87D1155BC548A2465A0E8BEF44FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FB953B83B78A676EB476F8F6013BA8B42DE6492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +638,7 @@ uTorrent Pro 3.6.0 Build 46672 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:4316561ECFC46EE3F34F0D4F97356E4264EEBE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ unRAID — это операционная система (на основе Sla
 ```bash
 magnet:?xt=urn:btih:A55C8E4157004134620B69B66715530FCED06C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

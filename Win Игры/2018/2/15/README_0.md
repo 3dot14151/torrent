@@ -19,8 +19,7 @@ Of Orcs and Men (2012) [Ru/Multi] (1.0.0.2) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:6B419EB5B8A0B04347F01DEC913170031CC5411E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Styx – харизматичный гоблин, который обязан с
 ```bash
 magnet:?xt=urn:btih:983C4FA5C06B940D8074270F93FA1C5B2DDDF9D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ben and Ed - Blood Party (2018) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:CDC2583C11F8C114BAB2FA0D22083D886DB027E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Burnin 'Rubber 5 HD - полностью обновленное издание �
 ```bash
 magnet:?xt=urn:btih:A5B8FA05E90EC63276D8D859E69601F088199DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Legend of Heroes: Trails of Cold Steel II / The Legend of Heroes: Trails of 
 ```bash
 magnet:?xt=urn:btih:8D62BC988624167B02ED926515766FA5B1A41FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

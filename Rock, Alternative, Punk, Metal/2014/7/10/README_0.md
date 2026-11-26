@@ -28,8 +28,7 @@ Ground Control - Dragged (2010) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:9DB7E0A317884D0E15A2C1229F81C77637F5DEB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Empty Yard Experiment (EYE) - Kallisti (2014) [MP3|320 кб/с]<Post-Metal, Prog
 ```bash
 magnet:?xt=urn:btih:4A01DDE77411CA91EB4882FA304837E10749B655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Legends: Get It On (2014) Limited Edition [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:4F6FBFDE79A18E7D3678F64A236E12065C0300DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Three Days Grace - Painkiller (2014) [MP3|320 кб/с] Single <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:493BEF3F58CC3B9FCACB829BD2688DF13B51B53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Blackfoot - 14 альбомов (1975 - 2007) [FLAC|APE|WavPack|Lossless]<Southe
 ```bash
 magnet:?xt=urn:btih:E3621606337110EB6AC3DCD0A36957C618465E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9886BF0058F49A723023276D68C36F49DFB25301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

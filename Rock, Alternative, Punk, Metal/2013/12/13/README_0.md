@@ -27,8 +27,7 @@ Conjonctive - Until The Whole World Dies... (2013) [FLAC|Lossless]<Blackened Dea
 ```bash
 magnet:?xt=urn:btih:971F95C44701AF6A02F419C0590230674FF2F5A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Battlecross - War Of Will (2013) [FLAC|Lossless]<Melodic Thrash Metal / Death Me
 ```bash
 magnet:?xt=urn:btih:99FC5BEC01BAA49899CC3278553FE03164F06D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65D751ED546FA8B605D0504369F03EADCBE96719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Brutality Will Prevail - Scatter The Ashes (2013) Special Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:E756D66158761880D433A8B424390BF166C42BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Lord Of The Lost - Die Tomorrow (2012)Deluxe Edition [FLAC|Lossless|WEB-DL]<Goth
 ```bash
 magnet:?xt=urn:btih:4CB8C5A44F25A430E504FE8C2DE640624D03A585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Epica - Requiem For The Indifferent (Instrumental) (2012) [FLAC|Lossless]<Sympho
 ```bash
 magnet:?xt=urn:btih:C0F9EDECFC958B83170D4735D0CCBAC3E41B9DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Sybreed - God Is An Automaton (2012) [FLAC|Lossless]<Groove Metal/Cyber Metal/In
 ```bash
 magnet:?xt=urn:btih:B52E82DCB2D1C22B44BE7660B3F6EA669112BBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ECA7B4059D93E7947DD7C3AC034BC6EA631D1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C11A04E85F722CF411B823B07E63454D28D1A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D88F7AA23BAFCAE2FF1A64B664149B35DB6B3C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ BrainStorm - The Best of (2013) [FLAC|Lossless]<Alternative, Brit-pop, pop-rock>
 ```bash
 magnet:?xt=urn:btih:6BBB4A6C5E76346EF706BC49C2B2152A8E2998ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:642938E06BCC387E4AE53DDC808DFEAE723FE21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

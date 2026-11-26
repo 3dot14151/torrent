@@ -21,8 +21,7 @@ Authors Nathaniel Schutta and Dan Vega guide your journey with (   Читать
 ```bash
 magnet:?xt=urn:btih:C71F6A719C62A8EFFEA808543743BABA9F5FB924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Author David Pine, who focuses on .NET and Azure content (   Читать да�
 ```bash
 magnet:?xt=urn:btih:76E7AEAB98F4D7DDB81871930060CE7D67BE5783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Mastering Flutter is ideal for the developer at the beginner level as well as th
 ```bash
 magnet:?xt=urn:btih:9CCD00C8FA805A3D2A53F7BDBB1136DCAA2FC702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A29D7D6FA21B7267271020E6DF09BC62D8E80C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Great (   Читать дальше...   )Жанр: Computer Systems Analysis &
 ```bash
 magnet:?xt=urn:btih:3E5848C41C12277386B6616D5F8EA17F21938ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Architects across industries are turning to Kafka for its unparalleled speed, re
 ```bash
 magnet:?xt=urn:btih:F2529C5A329A218CF1FFFE8DD47BE1C1C6817D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Justin Mitchel | Road to Kubernetes (2024) [PDF, EPUB] [EN]
 ```bash
 magnet:?xt=urn:btih:C5451941C37CCB1F227FC7CF5562B18242753D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Are you struggling to manage and make sense of the vast streams of data flowing 
 ```bash
 magnet:?xt=urn:btih:3BDE5F925D1B5577E234B2525D510D28AA57E1E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Become an expert in implementing observability methods for legacy technologies a
 ```bash
 magnet:?xt=urn:btih:13CD3CB4BE59A8B334A28C46EF67A7D4F2631FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Kimiko Lee | Terraform for Developers. Essentials of Infrastructure Automation a
 ```bash
 magnet:?xt=urn:btih:7D7101211B053C075424F6C0586AF727F1C2B4BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Discover a practical, streamlined approach to systems development that focuses o
 ```bash
 magnet:?xt=urn:btih:A15D64BF29E6613ACFBE4A94079D4491890FDA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Designed for both absolute beginners and seasoned developers, this in-progress p
 ```bash
 magnet:?xt=urn:btih:D0523D7D478251D9CE19A5A87BD223997EAA3DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Zions Abyss - T.A.L.E.S. (1991) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:681D5160121BA0FF860A3E7E9E4D03F0AE21FB54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Zombie Holocaust - Strike Force (2009) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:47E4A54B400014098B59FB835B767A3748D62447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Outrun The Sunlight - Terrapin (2014) [MP3|320 кб/с]<Progressive Metal, Instr
 ```bash
 magnet:?xt=urn:btih:B458488A8260FA236F45CF6CF65BF54B3412182F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Pallas - Wearewhoweare (2014) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:26163BBF77201D8F8205D09667E07AB5E8A1C517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:865B9D3B05BC7EA55605EA24AE02AE34CDCF3F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Ozzy Osbourne - Bark At The Moon (2014) Remastered /1983/[MP3|320 кб/с]<Hard 
 ```bash
 magnet:?xt=urn:btih:EF5668AD8484AD39DB381652A54A2035955E075E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9C843EE84343AE0F9D2A5159B81F6DE812DA05F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Deep Purple - Stormbringer (1974) remastered, 35th Anniversary Edition /2009, EM
 ```bash
 magnet:?xt=urn:btih:F06114B2F9A685615B07A9449FB7DB5298BCADB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30CC3C70FEC4F7111ACD41A709291AD9D9E347AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6EE84EF8F8572EF6B5AE44103F2E5F600B3E62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

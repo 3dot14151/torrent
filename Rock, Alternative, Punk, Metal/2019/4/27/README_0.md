@@ -22,8 +22,7 @@ Mechanical Organic - This Global Hive Part Two (2014) [FLAC|lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:CF38F35215B4308D718EC2DF9950B8D22EF1249D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Band of Skulls - Love Is All You Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Alte
 ```bash
 magnet:?xt=urn:btih:9C2509F2B45A00C91CCD02695FAFB4654AFE66C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mott the Hoople - британская рок-группа, образованн
 ```bash
 magnet:?xt=urn:btih:4E3C1943816B7F1987B620391B7DEEEBAA32210E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3802AD9613B15FB55995FF42662ABA24A2CEAA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Queen - Innuendo (1991) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Roc
 ```bash
 magnet:?xt=urn:btih:969242059347B8258326851A09432CEC6A0198B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Queen - Made in Heaven (1995) Japanese Edition, 2019 [FLAC|lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:136047EB01BDEEF07F158649F7424A7C59979146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Булат 95 Tribute. К 95-летию Булата Окуджавы. Part
 ```bash
 magnet:?xt=urn:btih:FB9698C230AED1C287E21C3D1707B25AD259F311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

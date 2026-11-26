@@ -19,8 +19,7 @@ Bridge to Another World 7: Secrets of the Nutcracker / Мост в Другой 
 ```bash
 magnet:?xt=urn:btih:AFD0CF449F5854CB46F3731DC5E21ED18A53EF41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

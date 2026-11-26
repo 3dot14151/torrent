@@ -23,8 +23,7 @@ Prong - Songs From The Black Hole (2015) [FLAC|Lossless]<Thrash / Groove Metal>
 ```bash
 magnet:?xt=urn:btih:F2FDB762FF607DAB25251E53010E7C3CF9B3C9C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Morton - Come Read the Words Forbidden (2011) Japan [FLAC|Lossless]<Heavy Metal 
 ```bash
 magnet:?xt=urn:btih:7666E47485C0F2EA3239EA2150042241DD910C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Tristana - Virtual Crime (2015) [FLAC|Lossless]<Power metal>
 ```bash
 magnet:?xt=urn:btih:326DE85DF2EA03C7F586F27E4E9800B1A96A4D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Polaroid Kiss - Youth (2015) [MP3|320 кб/с]<Alternative, Electronic Rock, Syn
 ```bash
 magnet:?xt=urn:btih:F4C3C1A073571102A064FD8CEC3329914069552B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Micky Wolf - Guitarjunkie (2015) [MP3|320 кб/с]<Guitar Instrumental, Surf>
 ```bash
 magnet:?xt=urn:btih:AE7AF3266F7B7E4FAD75B0FA2C149039D82F3AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Mizantropia - Забвение (Oblivion) (2015) [MP3|320 кб/с]<Gothic Metal,
 ```bash
 magnet:?xt=urn:btih:65DBF0C8D823C4DCCDA03D22DC6EEF6EEA39FD58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ VA - Essential Rockabilly. The Columbia Story (2012) 2CD [MP3|320 кб/с]<Rocka
 ```bash
 magnet:?xt=urn:btih:2A635B1C5E9534A32277B08B02EC5940E5A7EFD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Van Wolfen - Wolfsmusik (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:529BB91C91D62F1A5924899A61D45B134909697E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Little Bee - Moonlit Night (2009) [MP3|320 кб/с]<60’s Guitar Instrumental, 
 ```bash
 magnet:?xt=urn:btih:CAFD3A3B7D7345F5FDD019B794C6F23D3ED48FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Styx - Edge Of The Century (1990) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:BD4CD2FE87CCA9A5E7A3FB02C9F36AAD1F306DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ Erra - Impulse (2011) [FLAC|Lossless]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:63D9F94216836657DCBE5B3426A93D873C4EE86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ Arch Enemy - Stolen Life (2015) Japan Tour EP [MP3|320 кб/с]<Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:B2CBD954C2E8B676A1510965731C8D776BE302D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15D12F3EFCE0A4460BDFD65C44B7B2898122C3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ Garbage - The Chemicals (2015) Single [MP3|320 кб/с]<Alternative rock, Electr
 ```bash
 magnet:?xt=urn:btih:8CB2860DD5D700E5DA09DFF6577A959936174F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

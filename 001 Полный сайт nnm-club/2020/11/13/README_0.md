@@ -21,8 +21,7 @@ Jubilee - Меланхолия Drive 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:1DD8760B2648647EBECF7D3B38C81A05AA6E902E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B43835E4B9466A5B786F10F05362D84B0B4007F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:0067FC1A3DBEA377284D9594C4BE76D41C5EDC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Prism представляет новые способы организации,
 ```bash
 magnet:?xt=urn:btih:3B560AB77EFA6DB5BF3B60B3BF43A32D0117681F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ DCommander для Mac - двухпанельный файловый менедж
 ```bash
 magnet:?xt=urn:btih:9C373DD79B89B49AB6C3420C75AC2C304B112D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Black Soul Horde - Land of Demise (2020) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:03838C4E6FB5EAB89D7F72741ECF210AFEFD369E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Brian Eno - Film Music 1976 ~ 2020 (2020) [AAC|~299 Kbps] <Score, Alternative, E
 ```bash
 magnet:?xt=urn:btih:E5D2CCCB75D44098050D04624D4697C1BDCD9F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Currencier практичный конвертер валют. Приложен�
 ```bash
 magnet:?xt=urn:btih:A4E9D5C53F63A2C22C113872A2D7F1D3B1BAEE35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Hotel Lobby Instrumental Greatest Hits (2020) [AAC|~353 Kbps] <Instrumental
 ```bash
 magnet:?xt=urn:btih:7A06A23CB79093786213F63438405D525398D95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Coffee & Jazz Lounge: Chillout Your Mind (2020) [AAC|~335 Kbps] <Downtempo,
 ```bash
 magnet:?xt=urn:btih:BE53F18C1D36B28A62E6BC7DC0C59ADC7BCFE844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCEDB3F0722D311D839D33576267938AE86DC110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ iA Writer 5.6.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:771AC2F8178CA0772F4B892409809B0EA1D5D89F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Roxette - Bag Of Trix Vol. 2 (Music From The Roxette Vaults) (2020) [AAC|~342 Kb
 ```bash
 magnet:?xt=urn:btih:6B5BD739B941B227FECFB67D8A87F26E0F141704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86D9ACDA9E35DA8A67913DD7716038F4082AC55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ VA - Elevator Music: Greatest Hits Instrumental (2020) [AAC|~348 Kbps] <Instrume
 ```bash
 magnet:?xt=urn:btih:1C9CFC5114C0B8CC5CBC67F811E33448AE68EBA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76369C5AD6894189B19AB9401DDFADE3C27214BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:366ADA7F8204B452613EDBA14ED78578455F068E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Reeder 5 v5.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:089996F7279877B186C22F601472B3FD00B43A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ VA - Restaurant Instrumental Greatest Hits (2020) [AAC|~355 Kbps] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:133CEB57D64293CE3391CF094A34665395052F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ Leæther Strip - Introspective & Aggressive Dark Electro-Industrial (The best) (
 ```bash
 magnet:?xt=urn:btih:DE3DE31427340ED73453DB74FEE83AB163A9C900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ VA - Future Party Trance (2020) [MP3|320 Kbps] <Trance, Psy Trance, Psychedelic>
 ```bash
 magnet:?xt=urn:btih:8A195877F898F4CCD753E5A67D7A188E5CCE9AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17C3083CB830A2E9858BDBB44726BBA0969A5B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:6E4E13E4AAA9E9C8BA308B85526B5217B5AA423C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ VA - Restaurant Instrumental 80's Hits (2020) [AAC|~366 Kbps] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:959033B5E46254E157743EAD6B04FC4758E87A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ Phil Campbell - Оld Liоns Still Rоаr (2019) [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:5A3249618355089B0DBAF981D718422454DF6BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ CADintosh позволяет ускорить проектные работы и
 ```bash
 magnet:?xt=urn:btih:8078355E63F3C45DD1BFE6C245996682A746FDDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

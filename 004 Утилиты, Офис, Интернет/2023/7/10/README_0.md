@@ -19,8 +19,7 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:604599E25F63D20E00FAA484E347BB936108313F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:6383E252E8AA8F3C2F360E6DD58D0FE119ABCB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

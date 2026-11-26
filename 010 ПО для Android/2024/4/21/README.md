@@ -21,8 +21,7 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:9BE1035ED40C4A4A394565EAF71F4DD8A3A3EC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:CDE367AA7145D1B281A82FF616B268DBA190EC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Square Home - красивый, стильный и функциональный
 ```bash
 magnet:?xt=urn:btih:5559A5F3B6D7232F2551D86DB8B4B8DD2238A5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ AIDA64 2.01 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C4597C168C3356F4D327F35165986C7B83F36122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Grab Photos From Videos / Фото из видео v11.1.9 Mod by derrin [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:5052A58D543A4C2B9B31D168F9867187932E2E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 ```bash
 magnet:?xt=urn:btih:233B3A7654F30F35A5E65501BBD27524BB4640DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

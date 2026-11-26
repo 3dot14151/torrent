@@ -19,8 +19,7 @@ Total PDF Конвертер преобразовывает PDF в DOC, RTF, XLS
 ```bash
 magnet:?xt=urn:btih:87035AFB26AF86BE47EC9720CEFFB34FD258D085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

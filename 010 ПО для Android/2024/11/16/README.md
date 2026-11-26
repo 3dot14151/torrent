@@ -20,8 +20,7 @@ AdGuard — уникальный блокировщик рекламы без ro
 ```bash
 magnet:?xt=urn:btih:ED6E2D0CBB7125A997A014FCB6027BE7A6BC5A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ exFAT/NTFS for USB by Paragon Pro v5.0.0.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:70F1FCD0467CFEE366B63F65FA9C5D0DDA0046A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ DIGI Clock - отличный способ персонализировать в
 ```bash
 magnet:?xt=urn:btih:55EBA724C44F1AEAD7846E880EFC3037EE002BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Keepsafe надёжно хранит личные фото и видео при�
 ```bash
 magnet:?xt=urn:btih:D0B6495BAB6AE64F2D0163F944D4BE973326CA42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B31B09F0913C6F5C89D577AAAFF923D9BDC2384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

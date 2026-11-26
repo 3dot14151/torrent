@@ -19,8 +19,7 @@ CamCard - Business Card Reader - это очень полезное прилож
 ```bash
 magnet:?xt=urn:btih:5055913BD66994D3A0BFADD5FDDF27E138F3059B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phone Master - инструмент с широким набором функц�
 ```bash
 magnet:?xt=urn:btih:C6AC3B6ABC0120FB3493E92039F565C4308F39A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battery Guru: Battery Health - ещё один полезный инструме
 ```bash
 magnet:?xt=urn:btih:161990B9DB160C948A5845B648526874B830EDF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tor Browser - анонимный браузер, который работает
 ```bash
 magnet:?xt=urn:btih:1F13C338C9526863F4863C91B11486B9888F0547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

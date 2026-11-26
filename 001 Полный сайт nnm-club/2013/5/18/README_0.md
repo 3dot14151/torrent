@@ -27,8 +27,7 @@ Never - Back To The Front (2009) Japanese Edition [FLAC|Lossless]<Melodic Death 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Bar Affairs - Jazzed (2013) [MP3|320 кб/с]<Jazz, Chill Out, Lounge>
 ```bash
 magnet:?xt=urn:btih:09E7729FB16731B316EF7D02CF0E855B08CD8BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A47746295344B54650CFD8CBD55335D96C071F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:944B9A4100DF342BB54B1C3FB11B555C1C03A6AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Leprous - Coal (2013) WEB [FLAC|Lossless]<Avant-Garde / Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - 15 Top Trance Hits 2013.05 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:3667067A830EFB7ECC3C60CD656E6EB018B3A994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Dapayk Solo - Colours (2013) [MP3|320 кб/с]<Tech House, Techno>
 ```bash
 magnet:?xt=urn:btih:2D96CC14D073997EDCAE218B83D41CB36C52E9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ B2 Hail Tyranny(   Читать дальше...   )Жанр: Symphonic Black Met
 ```bash
 magnet:?xt=urn:btih:E39FA2506EE276C5B99C0A6D26DAC2C0980F3C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ Elzevir - Rise From Knees (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8920C8395ED66511702F3D815CFC021D42EE9606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B547908A5E6139C9E86BB5AB4A77B1208C55D882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ VA - 3LOOP Elite vol.1-3 (2012-2013) [MP3|320 кб/с]<Ambient, Experimental, Gl
 ```bash
 magnet:?xt=urn:btih:7F56F2281EF238E06A19C0ABBFD99E9F54A3FBE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +417,7 @@ Red Lamb - Red Lamb (2012) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +442,7 @@ Family Tales: The Sisters (2013) [En] RePack Dizzery
 ```bash
 magnet:?xt=urn:btih:489543580B4A187F9DB920850265BDC67D7AA00E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00AE9A1C0DF4E99FD8DC676A1CF01072AD4BC876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB611277E661053194E8ADB7B39E9B928BEBA358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +526,7 @@ Ocelot - Night & Day (2013) [MP3|320 кб/с]<Psy Trance>
 ```bash
 magnet:?xt=urn:btih:0575E7419B5F440BB5D6EC50F3B2D790188AA9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +551,7 @@ Glary Utilities Pro - функциональный набор системных
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:269611A538A0CB93486E09B9D79F4632B1A6F51F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +610,7 @@ Damned Spirit's Dance - Weird Constellations (2009) [FLAC|Lossless]<Avant-Garde 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57B257644A13236E4ABED337B4E969ED5C02B63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +669,7 @@ Trudy Lynn - First Lady of Soul (1995) [FLAC|Lossless]<Blues, Soul>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DFAFBF9950603AF80270B0DD0C8EB6F55547176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:029776F7802A36DE8083731056266B540C6D633F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +756,7 @@ Arik Livnat - Arik Livnat (2002) [FLAC|Lossless]<Jazz, Smooth Jazz, Fusion, Funk
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -806,8 +781,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6299ABEA630095806C60325EB04B24B138519CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

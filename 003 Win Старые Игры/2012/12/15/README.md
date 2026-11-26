@@ -19,8 +19,7 @@ Warrior Kings / Лорды войны [Ru] (L/1.4) 2002
 ```bash
 magnet:?xt=urn:btih:F0CC09E7A2C282248BD58A27A14053CAE32FA378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Battle for Troy посвящена мифическому событию, опи
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Gates of Troy / Легион 3: Врата Трои [Ru] (RePack) 2004 | RG game
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Back Then – это инди-игра с видом от первого лиц�
 ```bash
 magnet:?xt=urn:btih:018F2036F22B4B85A0F20D88869B2BB5DFB53F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.05b/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:A01A2F1C223830FDFDA9CBA39AA19A19B12A4E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.12b/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:711071139A7624153BAE1F325A7143AFABFA0567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:87F7BA01DBE6F62BB23DA7B4DE8AC005A2EA6A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ BROK the InvestiGator - Natal Tail, A New Christmas (2024) [Ru/Multi] (1.0.7.1) 
 ```bash
 magnet:?xt=urn:btih:B85719738FE67FADF6C813DAC8B982594183EE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:77FFE28569B6FF551263C817F8307CEBC859CB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cardfight!! Vanguard Dear Days 2 (2025) [Multi] (1.0.2/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4CC061F347DD32792916CF56C43FD632B9801119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Door Kickers - инновационная стратегия в реальном
 ```bash
 magnet:?xt=urn:btih:1D71F6965C45D1E121134B6BB9BE1577A5F67B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

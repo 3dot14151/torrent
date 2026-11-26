@@ -22,8 +22,7 @@ Alias v1.5.9 Mod by Dymonyxx [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5E23A70CC8F3972409EE5B324CE618A40507A70C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ragnarok - To Mend The Oaken Heart (1996) Japan [FLAC|Lossless|image + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:505E3BDBB5E7CE43B4B47942390E21EDD0A9E9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Autumn - Rivers Of Dead Leaves (2008) [FLAC|Lossless|image + .cue] <Black 
 ```bash
 magnet:?xt=urn:btih:8F8E4C138305DDD34BBF65645FA03DD29BBA9E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Enslaved - The Sleeping Gods - Thorn (2016) [FLAC|Lossless|image + .cue] <Black 
 ```bash
 magnet:?xt=urn:btih:9F70FFFC414D382DAC5B19DE8C096828408CEF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cry Venom - Vanquish the Demon (2016) Japan, Reissued 2017 [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:5376D1D84177DABE17845252D635A9131CF28239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ IF YOU DON'T ROCK NOW
 ```bash
 magnet:?xt=urn:btih:D383DCDCFA6FC22F897FE5C86A48EF4916CC707C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ At The Drive-In - in•ter a•li•a (2017) [MP3|320 Kbps] <Alternative Rock, P
 ```bash
 magnet:?xt=urn:btih:E5AED3EE39F90752A4CB7721FCD730AE3006A403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Birds of Tokyo - Brace (2016) [MP3|320 Kbps] <Alternative Rock, Electronic Indie
 ```bash
 magnet:?xt=urn:btih:7A9F58A6FD1BC143BA67C38D91645801DC9DE622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Unity - The Unity (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:3664085EDD5AEF4A4BF045991EFA8AA0506912FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Sideburn - #Eight (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:81EA335EEE25DA8C89AA0A508F4F78C77A09888A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Neutrino, Нейтрон - 7 релизов (2012-2017) [MP3|320 кб/с]<Melodi
 ```bash
 magnet:?xt=urn:btih:C0E324876523A2A81763566CD3D9386165E0629C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - A Tribute To Iron Maiden (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:53AB9B4770D67CA28594138B700FA3DFDEC00A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - A Tribute To Iron Maiden (2017) [MP3|320 Kbps] <Heavy Metal, Thrash Metal, 
 ```bash
 magnet:?xt=urn:btih:15711199F085CEEAC12307DAEE829F30E2F54210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Dimmu Borgir - Forces of the Northern Night (2017) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:D57D1B199491D91FD88E4D4F60449E539FD458F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:159041BF68C7D93F05E2E91AC357AD000AF847E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Gravity Ghost – красочный физический пазл-платфо�
 ```bash
 magnet:?xt=urn:btih:98FA98BA5E2C9E9CCE29DB76EC57F5C1848796CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Infinity Runner - это научно-фантастический экшен-р
 ```bash
 magnet:?xt=urn:btih:D9F2AA9201F6924B063168F93859D0994E80087F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

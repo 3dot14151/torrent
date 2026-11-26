@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:174E21D2023CD1C86F522E9C74870C453AC9B45E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAE4A53CD875D6EF5F8FFF7EB81BB5D7EBEEDA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AD9F33727F194CE392D152BEE35B1AF9DFC5589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ The Wise Guyz - Hot Summer Nights (2014) [FLAC|Lossless]<Rockabilly/R&B>
 ```bash
 magnet:?xt=urn:btih:6235E5644457E506DD93A1EC40F44CE86D652851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EDE26221EFC5205E35FA5900D5028C5C80BFCEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6C6FD61BFB7D211686B2C08D95F468F657476D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Wise Folder Hider поможет вам спрятать важные файлы
 ```bash
 magnet:?xt=urn:btih:4723159CC09344246DACAD07AC7026535EB463EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Feed Her To The Sharks - Fortitude (2015) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:E2EAE68F4297789619C00C67F8E124EB65198DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Wise Plugin Manager 1.26.54 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EE99A367123468BF6DDFB5537FC7D75B93E5DFD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86122107FC345E8C51CE3DA44DB96F5B286C14E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8B657C0E5851CD2637F021215632F6F35195C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ GifCam бесплатное приложение для захвата прои�
 ```bash
 magnet:?xt=urn:btih:510BA7C16810214CFB35E68232FBED9D3459C14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Drake - Take Care (2011) [FLAC|Lossless]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:BE70E6426F4FCDBA49AFF12128952FEF81A242F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ CunninLynguists (образована в 2000 году) - это хип-хоп �
 ```bash
 magnet:?xt=urn:btih:2695F637F76D6689E4AB323642A250D58B4230C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CF8C2BF5F5A72BF0A96A5AA8CF04E7EE94AC43F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Hungry Lucy - Pulse Of The Earth (2010) [FLAC|Lossless]<Trip-Hop, Synthpop>
 ```bash
 magnet:?xt=urn:btih:BA22790BDA70B4D8069FE139ABF79139EE3F5757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73B17D37F78576A5F11A72F7671A6FB7FCE6B96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24A07EC44157C3F2FD33858DD790D764996C87CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCC8BCA8FE20CDF06B23AABCAF6928029643ED8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:672B4964497DB5A0B1A3DAE57B1621879B7C70B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Brian Wilson - Reimagines Gershwin (2010) [FLAC|Lossless]<Pop-Rock, Ballad>
 ```bash
 magnet:?xt=urn:btih:6F9014F6614918CB531C91BE83B65066C7744E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ VA - Audio Presents Ramlife Drum & Bass (2015) [AAC|WEB-DL|256 кб/с]<Drum & B
 ```bash
 magnet:?xt=urn:btih:AD7793937236C7735D52F1539246B798CD16D904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52AD8B976E031CBE755B8C15FAA51AE90C1F1F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:721A3D0B01EAD28A1CE1C32A101BD9300A1A2416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ Brian Simpson - Out Of A Dream (2015) [FLAC|Lossless|WEB-DL|tracks]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:7D6FDE5855D85FC0033EDEB6A2D09BE610BABEFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ VA - 15 Years of Technique (2015) [FLAC|Lossless|WEB-DL]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:D9EDE18E1E144EC06227F840C9A2D4DA5FC8EAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

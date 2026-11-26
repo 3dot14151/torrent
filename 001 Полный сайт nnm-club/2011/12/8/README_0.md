@@ -27,8 +27,7 @@ VA - Blue Note Jazz (1993) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Зимний Super Модный 50/50 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:52EE9EFC3CDA242531643C529BD522640E04B3B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1507BB93A2999E6D6822B91CB527FC749B9CF5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Joia Records presents: 10 Years of Bad Things (2011) [MP3|320 kbps]<Progres
 ```bash
 magnet:?xt=urn:btih:FED13D5C5A5E794F16957D789D308E7E3A643E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ CD1:-00:46:05
 ```bash
 magnet:?xt=urn:btih:4F56B586D07B027E3762E6E00CF6D0225D308165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ VA - Jazz Carnival (Blue Note Latin Jazz Grooves) (2000) [FLAC|Lossless]<Jazz, L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ VA - House Dance Remixx (2011) [MP3|320 kbps]<House, Dance>
 ```bash
 magnet:?xt=urn:btih:0622D62D150D6AE2DD272DEBCCDD010A82A3258F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Part 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ VA - XXXL Шансон Vol.4 (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:DBA4AE73815CC897D370780F0890503C03DB69D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ VA - Ibiza 2011 Compilation: Fever Sound Records Selected By Amin Orf  [MP3|320 
 ```bash
 magnet:?xt=urn:btih:2346F245132F36E620A88FF22D46534FE3A899F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD041B28265F13CBAE651C0BB442B43CF716807E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ Moonbeam And Tyler Michaud Feat. Fisher - Love Never Dies (Single) (2008) [FLAC|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +433,7 @@ Malcolm Braff - Inside (2011) [FLAC|Lossless]<Jazz, Post Bop, Modern Jazz, Piano
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2EA04493697D032FCFEA76945BBE384F5D013CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +492,7 @@ VA - Zouk Summer Hits 2011 (2011) [MP3|320 kbps]<Dance, Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAA4DFA11E126A432B81F9F4F45432DB093D23AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +576,7 @@ Alberta Adams - Detroit Is My Home (2008) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +610,7 @@ VA - Зимний Муз-драйв (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:8650B5D184C887D4A1FFD212A051EA4DF9F517D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +644,7 @@ VA - Зеленоглазое Такси Vol. 2 50/50 (2011) [MP3|128 kbps]<Danc
 ```bash
 magnet:?xt=urn:btih:5821C6FAF3D49C93D4235689A41488F1241EE3DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +678,7 @@ Jacqui Naylor - Lucky Girl (2011) [MP3|320 kbps]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:27C3E2FE92649B9EE5EC2B7A33EF7BFC10A7F58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +712,7 @@ Dj Tapolsky - Time2Bass 046 (07.12.2011) [MP3|224 kbps] <Moombahton, Drumstep, D
 ```bash
 magnet:?xt=urn:btih:2B161A04F692CE32CE42F50D375122A109980997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +746,7 @@ Michael Zander - Down to the Wire (2011) [FLAC|Lossless]<Blues-Rock, Country Blu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +780,7 @@ VA - Реальный Блатняк. Зимний Выпуск (2011) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:661380B22B513AF462FED356AB4E714D9681CC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -839,8 +814,7 @@ Mr. Oizo - Stade 2 (2011) [MP3|320 kbps]<Electro, Experimental>
 ```bash
 magnet:?xt=urn:btih:119AA8BD59C50D9053E0A4587B10741BA9F4A3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Triptykon — швейцарская экстремальная метал-гр�
 ```bash
 magnet:?xt=urn:btih:8858B6C68B50D2C584EB7AF16EE12E55E915DF0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

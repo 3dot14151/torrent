@@ -28,8 +28,7 @@ Hidden - Dead Land Energy (2011) [MP3|320 kbps]<Death metal / Black metal>
 ```bash
 magnet:?xt=urn:btih:61B17C17F610BA95206A61530002AC31B020A93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Mandragora - Carnal Cage (2011) [MP3|320 kbps]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:C0FB80F13E9D5B713431A4AE3515AEE23671A00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2D91E01CECF107B466D2C981A04661D4DD66724E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Animal ДжаZ - Animal ДжаZ (2011) [MP3|320 kbps]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:1EBA18833E20CE3750FA538E5D8698E772E926C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Slade - Discography+ (1969-2003)[MP3|320 kbps]<Glam>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

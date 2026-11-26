@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3F86C13C49A7756617B8B44972BBF95C96904689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C859DF882FEA546082A035D05F40210D53C757E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.
 ```bash
 magnet:?xt=urn:btih:9A4916319175BA1B8319BB4812D247F1205AF7B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

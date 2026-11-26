@@ -19,8 +19,7 @@ Hetman Internet Spy Unlimited Edition 3.8 RePack (& Portable) by elchupacabra [M
 ```bash
 magnet:?xt=urn:btih:D750F0215CD1EF3D8F9A1BB167F4F6BA04D87E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Hetman Uneraser Unlimited Edition 6.9 RePack (& Portable) by elchupacabra [Multi
 ```bash
 magnet:?xt=urn:btih:E0C8358E042FC70BA34EC8DC3ADA25EAE3ADAB3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

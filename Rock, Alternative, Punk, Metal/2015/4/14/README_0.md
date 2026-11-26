@@ -23,8 +23,7 @@ We Are Bodies - We Are Bodies (2015) [MP3|320 кб/с]<Alternative/ Indie Rock>
 ```bash
 magnet:?xt=urn:btih:A54FBAE89BB0AFBA800A6DA60682C31467BC9528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Iumenta - Blood Red (2015) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:C8AD3EE0F18425F323EF11B67373FB124216CADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Martin J. Andersen (ex.Blindstone) - Six String Renegade (2015) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:B84AB9389B0117083B72D7515ECE2E8980EC8A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Radioactive - F4ur [Japan Edition] (2015) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5758B21EB3D0A026908FEBE1D2FBF3E2382A3135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ VA - The London American Story. Rarities (2011) 3CD [FLAC|Lossless]<Rock'n'Roll,
 ```bash
 magnet:?xt=urn:btih:A60E51F94B88D7DCA825BCAD509082C3D1389414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Besatt - Triumph of Antichrist (2007) [APE|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:7A72C4782EE03C0297081EF510D34A03DDA74508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Capricorn - Cult Of Blood (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedeli
 ```bash
 magnet:?xt=urn:btih:C068CA31F4633EDFF27151E95DB21BC247C51C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lucid Grave - Cosmic Mountain (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 ```bash
 magnet:?xt=urn:btih:2DA1F25C89CE407CD0BBD473C2DA50C7EF62608F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Supasonic Fuzz - Cobracadabra (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 ```bash
 magnet:?xt=urn:btih:7937C952035801564F6510E56EA24944558B7774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sons of Arrakis - Volume I (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doo
 ```bash
 magnet:?xt=urn:btih:63B94DF94DD49B27A18354450030EA5F23DD6A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Malicious Onslaught - Rebellious Mayhem (1992) [FLAC|Lossless|tracks] <Death, Th
 ```bash
 magnet:?xt=urn:btih:CC4DBE87DA8C4ACE3CE3F28FECEF4D538B4177BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Maul - Seraphic Punishment (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:58B079313E8A2126C528EF43A0DCE4E59021D1E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Molder - Engrossed In Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, T
 ```bash
 magnet:?xt=urn:btih:D2169CCE7ACE2B92DF7A709F235C9E9564480382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Glass Tides - Wake Me Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:53584BBC2653DA15C8AC349786D2F7CAA2834555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Blackslash - No Steel No Future (2022) [FLAC|Lossless|image + .cue] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:485254EB58EA661399253050633C71E9F7FEF866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Threar - You Live With What You Create (2022) [MP3|320 Kbps] <Melodic Hardcore, 
 ```bash
 magnet:?xt=urn:btih:082605B6189C61B5F392B3CE355721A1A0FAF5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ October Burns Black - Two Worlds Collide (2022) [MP3|320 Kbps] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:B16D25D2F13698EE66607C97860C53CFC2E9F5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Oceans of Slumber - Starlight and Ash (2022) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:1C0F2D8C792CD45C3BFE97AFEA5F7D0E361A43B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Highway Sentinels - The Waiting Fire (2022) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6960D33F7CCF53D2F75BC6E9F0149931F10A9564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Miss Crazy - Clones (2022) [MP3|320 Kbps] <Hard Glam Rock>
 ```bash
 magnet:?xt=urn:btih:01A49D7D7045D75F0A5330BFE01ED1EBA2F01D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ White Palms - Хейтспич (2022) [MP3|320 Kbps] <Post Punk, Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:ED5A92EBF4A9620FC472BF652C722E3D6B926495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Lessmann/Voss - Rock Is Our Religion (2022) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F2E67AA1CFAF3A1E8655B006E0B039B905D3B1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Phil Vincent - No Respect (2022) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A98AB336F08C4136D59263080A43C356EF922796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack [MP3|3
 ```bash
 magnet:?xt=urn:btih:441536FAB6D8B02FB25FA377767F8EA6477319EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

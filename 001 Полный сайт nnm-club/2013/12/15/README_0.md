@@ -27,8 +27,7 @@ VA - Зарубежная Бомба Года. Зимний Выпуск (2013) 
 ```bash
 magnet:?xt=urn:btih:97FD12E48EC961EA637A60D032D20F8E4AFEBF37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:DD71048AA4B04A41455F4D728DF232C1419DCE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97BE4EC21061C134FE591279DC47932E848425BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Alghazanth - The Three-Faced Pilgrim (2013) [MP3|320 кб/с]<Sympho Black Metal
 ```bash
 magnet:?xt=urn:btih:39A769DE87C17BE9A42B43D8B8B1CFCEB73C6DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Brain Dead - Menace From The Sickness (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E5E7EBBFA9708B570ED8A6B316E78E647B3F46A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:958DCCD94C35A343A3144F9750D54BBECB2B3E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B00A9E7C891D866CE74DF60772316DE79DF2F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F78FCAE662278342240A4C0ABB6F078C9A71FBC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:361B2FA7BD587EADFB554A66415FC8D2A8B7372E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0EF0FB50E1EF45FBF24F1A97B5524C08335F402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBE80C0A782D4260D9626ADD39E85165C51120B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:783355A140016D8D3DD648DD16D9425A9B1BDB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD4B56DD5B073A959E567327DCF974499481AF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10261A57BA46CD8E9397F40A5D68C7B934E23CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Jon Cleary - Occapella (2012) [FLAC|Lossless]<Funk, Soul, Piano Blues>
 ```bash
 magnet:?xt=urn:btih:2E535925EE83EFCB7D5339CFD48633D540C0D9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ VA - New Years Eve Dance Anthems (2013) [MP3|320 кб/с]<Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:B2C8112D6C9D7333080F7994770F83AA1C444AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0B47524E47616CF5061FF679732E42B9A7A4DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ NG: Охота на гигантского крокодила / Monster Croc Hun
 ```bash
 magnet:?xt=urn:btih:E1A9F1CC5F0E87F86DFB8D9B1A6DDC7BB92E1CDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ VA - 100 Клубных Хитов 15 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:3C013ED7CCCDD7BEC51B3E0D0BB99C54BCE5C37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ VA - In Da Club 2013 (New Year's Eve Special) (2013) [MP3|320 кб/с]<Trance, V
 ```bash
 magnet:?xt=urn:btih:80B42894028DC541A9E15734D5ADDBF0805A8D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ VA - Feel The Spirit Of Music (50 Lounge & Chillout Tracks) (2009) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:AEE1F6B9CB4DEFCAC0E1D4473D48260E238D0A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AE6773201EEADFE14DF349294B4D86B177462DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4D8601D55F6D187E9CAFE1DC9307316451438B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FACAF39259C899AFB8ADE78158A537FA20DBE2B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ Andromeda - The Definitive Collection (1969) 2CD, Reissue 2000 [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:9AFD4AE29F9202F78FC474A36E078A51CF57244D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:0C6FF2C966B613CD5EA1F3713B74BC50CB9BFB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:E7109107D6EEDEAA5DA26C77F4A39EF25265BF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:A722DEB1A6ED090B9D7F60821C0BA95621D71D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Throne – это программное обеспечение, которое 
 ```bash
 magnet:?xt=urn:btih:2622FFFC28271BD3244FD1DEAE88BD922A60C7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ OCCT 15.0.11 Portable [En]
 ```bash
 magnet:?xt=urn:btih:F9F310E8DEBE6AB993A80E92FB96D56CC390586E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:F8378093AFE68011DB8F16C61ECAA7292A15269A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:FD3E003C1E7DF1E328A3BBBBC14C50D8B4F2F073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:89CB1AC7772DF886081FCE9A76933F667FCDBB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:BD5A218760B696F0123B33FA93EF0FAEA6935BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:68752D371811902A0EC1AFC3C09B01F0D87661B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

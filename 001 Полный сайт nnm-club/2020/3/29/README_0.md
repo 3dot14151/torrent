@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:1A806343B0664DCE264E1B25A9A1A59F0EBF683C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B5AE550AA40919020E0CCEC2F5FAD84776D3B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Wasteful Days of High School Girl | Бездельные дни старшекл
 ```bash
 magnet:?xt=urn:btih:DB5A09A3F7546B3DC59599427D3A2E4BA80BE146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - German Top 100 Single Charts 27.03.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3AE5F7DBC14335CC5CE935D6A4B8029F414AD2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Razen - Robot Brujo (2020) [FLAC 2.0|96/24|tracks|WEB-DL]  <Experiemental, Minim
 ```bash
 magnet:?xt=urn:btih:C53FC18DF5F150E7A18F330E533B64BCD9AD0869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Sasha - Airdrawndagger (2002) 2CD, Mixed, Limited Edition [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:F5CA7AE818B4A815F644C5BF82900017C744D07B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:3F1E93118B24FFB1A9A8D3B223F54EFE06E60E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:288C0BB41F49A037F70A3142AB798FCADB34397B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EFFFE2EE7AEA8CC19F61902F056C278A3007244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DFB8A87F076635AE1ABEF96BF751489D5861BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Waxahatchee - Saint Cloud (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:33E9A020C13D9E040C9A66405F23B217A47C56C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F29C77EA81A2EA9FDB7F797E200CDAF8B09C7974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79EAD063AB43991151FB070D0915F106EABA1E69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:7F2F6B62D08BDFC6C5DCB79A5380F80504174240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ CDA Трупный Яд - 1995 - О.В.О. При О.В.ДЖанр: ThrashПро
 ```bash
 magnet:?xt=urn:btih:6172C9E1F13EB6FC615E8B4132265310BD3488DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 ```bash
 magnet:?xt=urn:btih:E1C8BE01B4BA38451CCC58916AD7EC09ACAD8B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7829DD5F0A6E240D88B53C676BC20A98936A54A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ Acoustica Premium Edition - профессиональная программа,
 ```bash
 magnet:?xt=urn:btih:17902949B4DC0A9017C856171D14327EA153786B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FB7BC805E88934682BCC866F951B660F99348E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ CDA Skrik (2020) Жупелъ ЕP (Hardcore, Crust, Россия)Произво�
 ```bash
 magnet:?xt=urn:btih:A1E222BC7E2F4021C36C0F1DE87CF960CD884796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6B5845BB194290977C75A68C46CB3A19B0123B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Richard Clayderman & James Last - Together At Last (1991) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:AC58E2699462652A3241498D32FD2EC4E4E4EAC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:471F91EE09B41E0FE2E9C46B7E8972F14928761D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DC2159C0AA978CD67AE3FCF89F1229A44F70625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E213F028B1AAFAFEDEC831904057916F49FF91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5717472FC2AF49082DDD579229F3D1E65FBA4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

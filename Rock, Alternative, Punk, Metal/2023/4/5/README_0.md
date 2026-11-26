@@ -22,8 +22,7 @@ The Bar Stool Preachers - Above the Static (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:4FA0525F998F33B0E8EAF7313C6E2D87F3729320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vanguard - The Power That You Hold (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 ```bash
 magnet:?xt=urn:btih:49161204E65D435D065C2F26F6032F0F5A7D150B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

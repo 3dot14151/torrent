@@ -22,8 +22,7 @@ Hellmotz - South Born (2015) [MP3|320 кб/с]<Southern / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6E571595358ACA91B914F1BAE4F06FBFB612DE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Scavanger - Between the Devil and the Sea (2011) [FLAC|image +cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7A770422030624572F27EBBF62229962DA2639A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sanguine Hum - 3 альбома (2012-2015) [MP3|320 кб/с]<Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:28BCC2F75ADE05519A282CF90E716AF65A822E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Reflection - The Fire Still Burns... (1999) [FLAC|image +cue]<Epic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:22CDD9F901579139DE65C93A0F6862ADD747CA81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Cindy Alter - Faith And Fire (2015) [MP3|320 кб/с]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:F27CF97E1612FF7C21CA2C0E5B4ACB5A76457172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Exarsis - The Human Project (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C49021792D6DFEAFC4171944DE12C3326B695268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Abnormal Thought Patterns - Altered State Of Consciousness (2015) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:519F8AA49740A919013D4A9790445E6F94A5C869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Ad Astra - 2 альбома (2008-2015) [MP3|320 кб/с]<Progressive Rock, Symp
 ```bash
 magnet:?xt=urn:btih:E58876A11A3A1E95A5B87C4DDFE8FD49CB5B1863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Bang Gang - The Wolves Are Whispering (2015) [MP3|320 кб/с]<Electronic, Indie
 ```bash
 magnet:?xt=urn:btih:7AE568167E9693AF352114B179BC192FA3C81E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Next To None - A Light In The Dark (2015) [MP3|320 кб/с]<NWOAHM, Progressive 
 ```bash
 magnet:?xt=urn:btih:D80AC5CCCC0AB054B5B2D44918E0F9A59B6299DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA633A89ED0752CB6F30BE3030E994ED9262E66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Elvis Presley - That's The Way It Is (1970) 2CD Reissue /2014 RCA, Legacy/ [FLAC
 ```bash
 magnet:?xt=urn:btih:CC5A9449D7BF20756754572FB8AC05DC4C7DEF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

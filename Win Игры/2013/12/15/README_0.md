@@ -19,8 +19,7 @@ Botanica 2: Earthbound. Collector's Edition (2013) [En] (2.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:E07C4F8466E58ADC638067FBE983C0F1722C6012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gardens Inc. 2: The Road to Fame. Platinum Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:42B3DD618F3C7EFD748123A34820ACA9CCECD0F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Tiny Brains – кооперативная головоломка, в котор
 ```bash
 magnet:?xt=urn:btih:1E1B0D9275940E9DFEB47A78EC79AAFFD210C0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Omerta: City of Gangsters – симулятор гангстера, дейст�
 ```bash
 magnet:?xt=urn:btih:1133C5DD2AC721611985CFC9250329F02FC4B13F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Master Reboot (2013) [Multi] (1.1) License FASiSO
 ```bash
 magnet:?xt=urn:btih:A06E29ED2A81CEC8D2937909ECC69ACCF0597D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

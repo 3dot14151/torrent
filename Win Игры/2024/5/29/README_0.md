@@ -19,8 +19,7 @@ CONSORTIUM Remastered ставит вас на место Консорциума
 ```bash
 magnet:?xt=urn:btih:54BA8099D41DD1C67F4279A3B88AD280B69F6AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sucker for Love: Date to Die For – настоящий лавкрафтовск
 ```bash
 magnet:?xt=urn:btih:A1011865B43B4A4F5F729D899FBCB98EEAB82C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lapin (2023) [Multi] (1.8.3.2) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6C5F145C7A6312D372512E16B04ADDD2D75A2F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vox Machinae – боевой экшен-симулятор, в котором �
 ```bash
 magnet:?xt=urn:btih:6AFCF4340052792059A1B01CC0DC6D47BE7F548E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ StarCraft Remastered - это обновленная версия знамени
 ```bash
 magnet:?xt=urn:btih:D620ACC39B0E00B1B6F7FA3BA3908587FA0C06F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ozymandias: Bronze Age Empire Sim (2022) [Ru/Multi] (1.6.0.10) License GOG
 ```bash
 magnet:?xt=urn:btih:FB247E264ABCFC8AC03183058CE5A5939F70CA21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ RAILGRADE (2023) [Ru/Multi] (6.1.56.1) License GOG
 ```bash
 magnet:?xt=urn:btih:86C58BB3FCFF0A9A2D482DCCB76F8434755E27CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SpellForce 3 - идеальный гибрид RTS и RPG! 518 год. Так н
 ```bash
 magnet:?xt=urn:btih:F28F0505090C7D8887A8F45D18DEF68FF476DAEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Withering Rooms отличается от многих хорроров. Во-п
 ```bash
 magnet:?xt=urn:btih:0F012FE198F8C18943BBA8ED9D3B93A78AEF5BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Ikonei Island: An Earthlock Adventure (2023) [Multi] (20240425/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CE35FCE763F9B3F7D7826F20E7C25FE82369A454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

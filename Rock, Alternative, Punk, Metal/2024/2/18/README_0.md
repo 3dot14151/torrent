@@ -19,8 +19,7 @@ Various Artists - A Tribute To Smoke On The Water (extended) (2008) [MP3|320 kbp
 ```bash
 magnet:?xt=urn:btih:890BC5B3E31BFB38F017ED1004405BB253422104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Vanir - Epitome (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Heavy Metal, V
 ```bash
 magnet:?xt=urn:btih:E5E84AD08E05827F8AA2BE7AD2EBCBFAA92E9CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Heart Line - Rock 'n Roll Queen (2023) [FLAC|Lossless|image + .cue] <Melodic Roc
 ```bash
 magnet:?xt=urn:btih:18A10620C087B72D97E5ECB71EB39B3873C7862B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ U.F.O. - Covenant (2000) Remaster, 2024, Cherry Red Records [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:DD24C905AFC2DB9A27F4AF1DF5345AE12A6C0ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Swanee - Bushido (1985) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 ```bash
 magnet:?xt=urn:btih:BC470F68197B9472F6BD7353FBC1A8FE7170A492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ For I Am King - Crown (2024) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 ```bash
 magnet:?xt=urn:btih:ACD82114CF7795A7ADC3E38874A446BE2DF685EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Stardust - Kingdom of Illusion (2023) [FLAC|Lossless|image + .cue] <Melodic Rock
 ```bash
 magnet:?xt=urn:btih:71845A64FFD0E9A4D91E12350E14F4CC93280F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Corvus - Immortals (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:C336A6221DC33B0AEF099A336CF5B94EC57F4EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ The Runaway Wild - Wild Night (2023) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:3CE93D5DA89A9097FFCC67E09222FFB1E3198204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Deaf & Dumb - Evildarkrooted... Total Dumb (2013) Compilation [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:A0780069D91B115019B2CAC4FC18BE77CD8E2544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Chimeras - Silent Cries in the Stifling Haze (2024) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:FA46FD5648CD99FBAE937422A61B3C1D9A27BB02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Sujin - Save Our Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:0CB561290A37875ADFF5281A44A7B5E73141D274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Bonestorm - Under The Sight Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Old Sc
 ```bash
 magnet:?xt=urn:btih:78230F4A2516BE091DB5E7906AE89C676D10548F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

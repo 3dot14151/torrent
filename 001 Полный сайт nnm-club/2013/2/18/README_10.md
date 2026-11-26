@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:524AFC9501588DA1EC96F14D6E2B1D9A20C2F244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Nuclear Dawn - первая игра, в равной степени совме�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Crysis 3 продолжает знаменитую серию шутеров о�
 ```bash
 magnet:?xt=urn:btih:FD0FE9BEB4E8F164695B87829913FE1CEF24002B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ SolidWorks – система автоматизированного проек�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Call of Duty: Modern Warfare 2 + All DLC [Ru] (Rip/Multiplayer Only/IW4:3.0-121)
 ```bash
 magnet:?xt=urn:btih:7D0B47176ACB91D09F59F8348B92ED6B4D8B887D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Mirror's Edge [Ru/En] (RePack/1.0.1.0/DLC) 2009 | z10yded
 ```bash
 magnet:?xt=urn:btih:FD3232D436BFC6647DCDBCEC6A8B29CC347D571B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7F28FDC619AE8C7F32510472A85685629587788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ SamLab являясь членом команды Bashrat имеет возмо�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:249890E64802499F457D1DC0948C23488B72E109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Sundome / Сандоме (2006) [1-51 гл.] [Манга] [incomplete] [Русс
 ```bash
 magnet:?xt=urn:btih:240463A170926B120776473055DCDA6A453540DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Crysis 3 продолжает знаменитую серию шутеров о�
 ```bash
 magnet:?xt=urn:btih:79858C9D1C9D7F1F8AFBBEC2E69FBAC292CE5773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Microsoft Windows 7 SP1-u with IE9 (2 x 3in1) - DG Win&Soft 2013.02 (en-US, ru-R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ The Lord of the Rings Online: Rise of Isengard / Властелин колец �
 ```bash
 magnet:?xt=urn:btih:BDB2A30237580C6CFFE3FA57B5433D8F76B9E13F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Dishonored — увлекательный и необычный экшен, в �
 ```bash
 magnet:?xt=urn:btih:9627963A0DBAE6259CB335B913D858333808845D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Mipko Personal Monitor 7.6.3.1814 [Русский, Английский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

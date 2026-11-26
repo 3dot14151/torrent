@@ -21,8 +21,7 @@ VA - Shazam Хит-парад Russia Top 200 Май (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:06715D10546FCB93CDEA02439C029BBC176BD35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Nox App Player - мощный эмулятор операционной сист
 ```bash
 magnet:?xt=urn:btih:56D970528C508D88858A52DF1412074DF340B5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Microsoft Visual Studio Professional - полный набор инструме�
 ```bash
 magnet:?xt=urn:btih:72892D5AA1D4A786578935CA9F622296627C6909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA7C885E031453AE17E220A107FFFE3646DF5DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Audacity - свободный, простой в использовании зв
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ All GPS Tools Pro - приложение предназначенное в пе�
 ```bash
 magnet:?xt=urn:btih:74C9413CA389A96B70DD621213FFE3C99E2B4A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Talisman: Волшебное приключение от Games Workshop - это
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Universal Viewer - универсальный файловый просмотр�
 ```bash
 magnet:?xt=urn:btih:9CEE3C480E7E1B01DFD2331BA73467AF7EC699D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6058D02EDCDB5744C6E7C40F635EAE4F11EC5FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4EDEBF4067CC5E1AA000046B20F3628179A3FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 05.2019
 ```bash
 magnet:?xt=urn:btih:A1D52A95EDE1DB3FAE19676EC522C39C6A480110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Santiano - Haithabu - Im Auge des Sturms (2018) [FLAC|Lossless|WEB-DL|tracks] <F
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:604519952B89D7FF5074A39DF7B17B4521EB1B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8A9E1F66C19764DC3B9BE858DC877E05C857F288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E89B1CAE592284BAC180478AAABEB1D4397CB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ Iron Marines (2019) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:D579838D25404054BAF9879DB3856F50E1CE211B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ Need For Speed: Most Wanted U (2013) [WiiU] [USA] 5.3.2 [WUP] [Repack] [Ru]
 ```bash
 magnet:?xt=urn:btih:3788A58ECADA1768994BFFB6999C26C8FAD208B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ Assassin's Creed Liberation Remastered (2019) [Ru/Multi] (1.0.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:944AE19E53D43DBE5752BD9A76F46FB7116F7582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ Man O' War: Corsair - Warhammer Naval Battles основана на настол
 ```bash
 magnet:?xt=urn:btih:C4E4FF83EA65144CB70D394C622151E6677A88C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 ```bash
 magnet:?xt=urn:btih:8B4CF3CB5303F88C32C4FD5B859063557C5FD6AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +606,7 @@ Rean no Tsubasa | The Wings of Rean | Крылья Рин [2005, ONA, 6 эп.] D
 ```bash
 magnet:?xt=urn:btih:6B4AEEE902165116C62C8B78E51C495D2B164559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +632,7 @@ Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивител
 ```bash
 magnet:?xt=urn:btih:302C33E061B532D7108F2B9413E0A1364236A405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 ```bash
 magnet:?xt=urn:btih:6FC44AEE5EF4273082AD6A8E709ED74AC1810242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

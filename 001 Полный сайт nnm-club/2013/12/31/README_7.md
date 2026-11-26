@@ -21,8 +21,7 @@ Eternal Darkness: Sanity's Requiem (2002) [Ru/En] (1.0.0.1) Repack Ma2012ks
 ```bash
 magnet:?xt=urn:btih:2EE99633845238C1F8A456970EF030EB6D084435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29617C37088436FE968C1188193BE9F4CF1950E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3AF0B0911D104B3804B379DEC0C9C03BC2C92FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ LEVEL 1Жанр: Music Inspired By The Film(Game), Tribute, Pop-RockПродол
 ```bash
 magnet:?xt=urn:btih:D8A9500510CD6C854D0FC1AE3124FD50D414E9B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VideoHive - The Wedding Roses - 5580414 [AEP]
 ```bash
 magnet:?xt=urn:btih:00BD697F8ABBE51BED4F2501034BA7F32FC8DE28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Alan Wake [XBOX360] [Ru] [Freeboot] (2010)
 ```bash
 magnet:?xt=urn:btih:02E44856092E8EF273A3E4460576AA67268E4160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:217775FC375C1DBBFF9977F4254C503AD26DB14F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ VA - District of Trance (Compiled by sseless & Lazyra) (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:52A8B9261AB90B322C4B55699F77C4B320FB6008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Call of Duty Modern Warfare 3 [PS3] [PAL] [RUSSOUND] [3.41] [Cobra ODE / E3 ODE 
 ```bash
 magnet:?xt=urn:btih:B68F1D2FFC4D3A1AF8BF1929671411E90C490FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73D9652F51641F12F5C0DF864FA8E818EB64A03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBA3BEE21BBDD8F9EFC849CCF033452D5248BC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5074F6D7F735A57942FF1E78CEA4A96525DD9CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ KMSAuto Net - автоматический KMS-активатор для опе�
 ```bash
 magnet:?xt=urn:btih:502B806B23ED9F375913CE01FB93DD227AB018D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31C89C2B1DEF7F1A217BFE2247A50F92DA7DCE41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5987377A4C03763E811958FFF4771AB2ACA2F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Amnesia Dilogy / Дилогия Amnesia (2010-2013) [Ru/Multi] (1.2.1/1.0.0.2) R
 ```bash
 magnet:?xt=urn:btih:1FB4FF986267B50D08A6C3949D6A1657C6893271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ Castlevania: Lords of Shadow Mirror of Fate HD [XBOX360] [RUSSOUND] [XBLA] [Free
 ```bash
 magnet:?xt=urn:btih:E87A274CB2F9E47572B7E45FEBB543E2877F57C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5C19D437737C942F4F5E5DAFAA9EA505B424471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F154D6E7FF7D29D824E99CE530B673CB3F42BB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AB8494967D7CDE5994AAB565B4416BDA2AD1D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - EPILOGUE (2013) [Ru] (1.0) Repack/Mod Sere
 ```bash
 magnet:?xt=urn:btih:630C3E4FE775D97AC68F54366E681DAC23DADB1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ AVS Audio Converter - программа для преобразования а�
 ```bash
 magnet:?xt=urn:btih:D98D90C0A76C8B12F3D68413B3CCB9A384F23835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB61D31862D8C0618ED76AED334170519B37CEFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ Catherine [PS3] [EUR] [Ru] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:AFFC148FB624A67AA388B6D88DE3A086661AF082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ Black Rock Shooter: The Game [PSP] [En] (2013)
 ```bash
 magnet:?xt=urn:btih:9880F7411D359DBC5A6D6193DC5C2D2675E02251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A8565A42FEAD0CBF02B84FF14D085BA781AE4B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

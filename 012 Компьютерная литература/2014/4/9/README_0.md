@@ -19,8 +19,7 @@ Git - профессиональная система контроля верс�
 ```bash
 magnet:?xt=urn:btih:486A1CFD33B66E810DBC505BCAFCBA687E5E3E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Dkaos - We Are The Virus (EP) (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:BCC28EBD99E61CF5CE64C481B50F18256FDA1758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA4BD20556D06266B920AAAF4292BF38B85ED80E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ VA - Поблатуем, Пошансоним! (2013) [MP3|128 кб/с]<Шанс
 ```bash
 magnet:?xt=urn:btih:E02A94B5903561172CA7E0F050398F061D4E7688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4476F78053008E33AB153BC8AF6AF45EB8E3C1D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B3856CC663E3A548B3551C8D2740231653FC244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ VA - Нажми на Play. Лучшие треки (2013) [MP3|160-320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:57457FBD4F1050AE6DBE74251BA5D69163F29281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32ACF97EBB8179DA2C8F43289F93F60612EC2EB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ WWE Vintage Collection-   программа посвященная видеот
 ```bash
 magnet:?xt=urn:btih:5F71EE29B0BFE17329947BDE0D9689913D2F6153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ VA - Super Dance Party-23 (2013) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:8C8554558846A2AEB1B2667CB0E118630CA11491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FFA92DCE5F76E173121A0F2CF3DF4B3F0F3BDCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BE3B060A927B7548BA791B29DB54C192991219B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ VA - CD Club Promo Only May (Part 1-7) (2013) [MP3|~245 кб/с (V0)]< Pop, Danc
 ```bash
 magnet:?xt=urn:btih:D9B7E694ECCCD670AD8D3FE5D4F76EF9571BEF43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA20DC68553176C84B8455C99540799B1201A328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56D02D65419038F753C126E21DEBEAE107DADCEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ VA - New Vocal Trance (2012) [MP3|320 кб/с]<Vocal Trance, Trance>
 ```bash
 magnet:?xt=urn:btih:C898B64B4C7B19F2D4FB9A44E142F2B103E5F340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DF391345038A0DE7AFE5CF7257513ACE4728424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ Wallpapers - Обои Rolls-Royce [JPEG]
 ```bash
 magnet:?xt=urn:btih:D2ADB94A88843D40D83DBDCBF01C473903008BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ VA - K-Boom Hits Vol. 375 (2013) [MP3|192 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:4A9924C7A6DEB08F31B606ACBFFE8D408B8B8139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ Starus Photo Recovery 3.2 RePack by AlekseyPopovv [Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21D6744A34015C6542B4E976ECA02DE55CFD9C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +611,7 @@ VA - Drum and Bass Pro V.16 from AGR (2013) [MP3|320 кб/с]<Drum&Bass>
 ```bash
 magnet:?xt=urn:btih:13BDA87375A4EE89CE9959E3D944DD69ADB76E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ Room Arranger - программа для разработки дизайна п
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Tim Ismag - Anthem EP (11.03.2013) [MP3|320 кб/с]<Dubstep, Electro House, Tra
 ```bash
 magnet:?xt=urn:btih:8298C17FF1C20AC715DD0C5F5BF0CD22AA5D1E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ Starus File Recovery 3.3 RePack by AlekseyPopovv [Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ VA - Antivirus (2013) [FLAC|Lossless]<Tech House, Minimal Techno>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

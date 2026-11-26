@@ -22,8 +22,7 @@ Faidra - Six Voices Inside (2020) [FLAC|Lossless|image + .cue] <Atmospheric Blac
 ```bash
 magnet:?xt=urn:btih:FC5D97C6DF0463C85C6F98829321C7E3D1FEDB7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pallbearer - Forgotten Days (2020) [FLAC|Lossless|tracks + .cue] <Doom Metal, Ep
 ```bash
 magnet:?xt=urn:btih:5E1FB31534024800D156E905F6B83A787218550F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Morreale - Appunti Di Viaggio (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic
 ```bash
 magnet:?xt=urn:btih:003EB83DFBF6180DAFA271D6DAAD244B7C44348A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Belore - Journey Through Mountains and Valleys (2020) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:390841FB690379AFBB082556298C31144301D5FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Myridian - Light in the Abyss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 ```bash
 magnet:?xt=urn:btih:C0EA9984CF6D18A9277C8AF69F7714F840D77F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ola Englund - Master Of The Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Exper
 ```bash
 magnet:?xt=urn:btih:1F091433664415BED83F29C26A5F73A05BB54D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Oceans Of Slumber - Oceans Of Slumber (2020) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:90CF194E5ADEB025F9922DA23DE94A5562992204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Rain - Singularity (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:89F7FF38D573C863227D6604677E9DD276EAAD75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Jinjer - Cloud Factory (2014) Reissue, 2018, Napalm Records [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:9C76AAC17EB3B2582877C9C21E3529F456E5BC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Disturbed - Ten Thousand Fists (2005) [FLAC|Lossless|tracks + .cue] <Nu Metal, A
 ```bash
 magnet:?xt=urn:btih:7D56C35B6CCCB57A036E459E2BA8701B83E4B018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Slow Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:76884E7EA5FE3CAFA26CABF6056E32E07C672398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

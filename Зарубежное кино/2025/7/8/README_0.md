@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D4837807503EAA89788416D760A1C28BE316D861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Z – значит Захария / Z for Zachariah (2015) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:7DF3768E1073707141E88D3BA7DE9F99A9E2146A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46C5CF3F54B5673806B326ECEA6D51788B319EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

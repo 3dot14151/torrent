@@ -19,8 +19,7 @@ Metro 24 Pro v3.2.3 [Ru/Multi] - удобный навигатор по метр
 ```bash
 magnet:?xt=urn:btih:E26D186C58F67BBD6583FD8732A1603B123BD1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

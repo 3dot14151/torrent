@@ -23,8 +23,7 @@ Apart - Gray Light (2012) [MP3|320 кб/с]<Screamo, Emotional Hardcore>
 ```bash
 magnet:?xt=urn:btih:1BD582CD61286F06215F8AA394835F4A0A7E27A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F76F6F6733623C5ECBE35AEA16C7013E0764A11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7746FCCA4538D5EAC0163595D12B1192509E7408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Denise Jannah - The Madness Of Our Love (1999) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:60DAEDB038D78F86AC53647D42820C7EB54DEF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52D824F6311E13F0B15EA89008BFD869A20C855A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Miles Davis - In Person, Friday Night at The Blackhawk, San Francisco, Volume I 
 ```bash
 magnet:?xt=urn:btih:226127A85BB133B0E9651F4C051F610ED6608B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Earl Bostic - Dance Music / Let's Dance (1999) [FLAC|Lossless]<Jazz, Swing, Jump
 ```bash
 magnet:?xt=urn:btih:DBA955929FC37BF6386A4016E5E1AA5AEBCE0397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Black Hole Presents Miami Essentials (2015) [MP3|320 кб/с]<Trance, Vocal
 ```bash
 magnet:?xt=urn:btih:53A884A6909899948316C2084581BD34E76F9099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Telekinesis - Fight Club (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:AF9720FBE822A8BBF769C3419F62061D08C67801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Xenoton - Traveller (2015) [FLAC|Lossless|WEB-DL]<IDM, Electro, Ambient>
 ```bash
 magnet:?xt=urn:btih:B5D1756A67E3D24F9DD2AC4B9712583E3D2B4A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Tungsten - это браузер который разработан, чтобы
 ```bash
 magnet:?xt=urn:btih:AC22F5CC9F99E10ED42167A81CD2EC49940522DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ DJ Nike Twist - TranceWave 110 @ GTI Radio (19.03.2015) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:1795DE0FAFB4B091AA1055509B9C7003EC13037B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Tony Bennett - 16 Most Requested Songs (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, 
 ```bash
 magnet:?xt=urn:btih:F65FCADFD37148F039C26B6DF8F7CF8B01C31CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Markus Schulz
 ```bash
 magnet:?xt=urn:btih:D86851366A91C13DD834BC68BAB00F7D0D040720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:59A009FA49D7BC439378D0424E30D05FE92F31C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:376F28BBCD8F95A4E690362F4555B0786D4065B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7BD405C869A220B47F8E5F1D20BA5B0789E6651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37F70B2355FCE718BB161960C0A25A43EAA11713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDC180A512D48F40B7085E5D51BD70B7385F74F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CC9782354AF8603324E0DADF687AB7C0758237A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ DJ Mixx - It's Time To Party Now (Free Ends Resident Mix) (2014) [FLAC+cue|Lossl
 ```bash
 magnet:?xt=urn:btih:04E1E5113B162828A37DB611B7397DE15293FEB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9249BF2D7F03B67B2445C2EE149311DF258E8C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ Majesty - Generation Steel (2015) [MP3|320 кб/с]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:D42BA980A1BBE9281D764DA2279F45A62BE01404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FC0B6BCC4A3BF8312DA7091E8F40E90D6DEB069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C8B835229ACE0746B2F8107D82C5FFF62129719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ Shlohmo - Dark Red (2015) [FLAC|Lossless]<IDM, Bass, Downtempo, Experimental>
 ```bash
 magnet:?xt=urn:btih:99F92DCDF6E4370E8427E4C517FD413F1F971D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

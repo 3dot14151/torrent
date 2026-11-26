@@ -22,8 +22,7 @@ Tender - Fear of Falling Asleep (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:6B43E3AD6D8F6BC4B5A8AAD575948BAC813B0D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chasms - The Mirage (2019) [FLAC|Lossless|tracks + .cue] <Industrial, No Wave, S
 ```bash
 magnet:?xt=urn:btih:040946C21AE9716D3C968426917F0CEA280B7E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nagart - Секреты оборотня (2019) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:1CD480E6638F174EFE7740BBB6BF2C5B368F82E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ B.F.G - Blue (серия "Другие восьмидесятые") (1989) Remas
 ```bash
 magnet:?xt=urn:btih:A3CDC84EA55441F0F9606C7E1A96F580B3DF78A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

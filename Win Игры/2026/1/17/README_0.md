@@ -19,8 +19,7 @@ The Stone of Madness – тактическая стелс-игра в реал�
 ```bash
 magnet:?xt=urn:btih:3203EB23A5D6EA0996E612A6D35AB30781A2CCBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nobunaga's Ambition: Sphere of Influence - Ascension - это дополнени
 ```bash
 magnet:?xt=urn:btih:A380C921D9D5357C7BD3A4E8DEB1FF81E5883BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ House Builder (2021) [Ru/Multi] (20260107/dlc) Repack seleZen [Tiny Houses]
 ```bash
 magnet:?xt=urn:btih:E4C1ADD68C3C0C7754AC7F167C2A958B2BC1AF4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:78C8A146DC42BE46A98584D4A78AFCFA810F397E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DuneCrawl - это игра в жанре экшен-приключение с �
 ```bash
 magnet:?xt=urn:btih:A51CE7B2D32597C496D6ECABBE7ED992BFF6EB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Centum - это повествовательное приключение, ко�
 ```bash
 magnet:?xt=urn:btih:B2F8CA1B1094DFB39B3DA9693DA2DB57DED38546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Hive - это стратегия с элементами ролевой иг
 ```bash
 magnet:?xt=urn:btih:2D1B9A5ACACD3C84DC881CC7F24D85B13E6E06B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Under Night In-Birth II (2) Sys:Celes (2024) [Multi] (1.32/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:55CB5F79D2D8C5713B6656B6C53EBC5CB28FDB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0779BBD2EA0B5551A1A9506992A838C1A57D8B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B7C37630E88AEA01B1616905CA2FA5E591EEB023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

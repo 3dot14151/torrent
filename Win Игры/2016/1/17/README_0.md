@@ -19,8 +19,7 @@ Tharsis - научно-фантастическая пошаговая стра�
 ```bash
 magnet:?xt=urn:btih:F92C580C494CE9FD50F99A802CD57EA0E6D7386D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sol 0: Mars Colonization - фантастическая стратегия-си�
 ```bash
 magnet:?xt=urn:btih:FEF3C4FAF9AFFD407D361A778D0A0BA5247A204E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Fishing for kids / Рыбалка для детей 1.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:D26A2EE85D30A3F010DF796556783DD9367DCA34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ War of Chess - отличные шахматы, обильно приправл�
 ```bash
 magnet:?xt=urn:btih:0EF99D419719A88CF9988D4AE7A16DF8A4CE3E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

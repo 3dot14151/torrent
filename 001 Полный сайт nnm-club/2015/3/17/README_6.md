@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:7DCB1BEC9D56CC579C8D53B7FBD778157D34D92C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Hotline Miami 2: Wrong Number — это брутальное завершени
 ```bash
 magnet:?xt=urn:btih:6ABD4D789A24E57646BEECF10367017065E634B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34E2132C55A705BEEDE35CC4B3E1D0CC9200B753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C64FA55131F4149DEDEF2A1F3E8B4357648EBBE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Tom Clancy's Ghost Recon Future Soldier (2012) [Ru/Multi] (1.8/4dlc) Repack R.G.
 ```bash
 magnet:?xt=urn:btih:C4B604E884A35DB08F13CEA651FA2D5CD69705D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Alien: Isolation (2014) [Ru/En] (1.0 upd8/7dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:0A4122065648BB2579BBDE616A72EAFE5BA6C820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ XVIII век, Северная Америка. Среди хаоса и наси
 ```bash
 magnet:?xt=urn:btih:472467380F5C0AE41A078488E6D9A1BBBF9258F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Fortitude – небольшой городок в Арктике, из-за п�
 ```bash
 magnet:?xt=urn:btih:0E374C35CB8F988098E8C95B5278E8ACD48479DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:275AABBBC55ABB3C6DE4E156EE7CE6F47747397F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ S.T.A.L.K.E.R.: Lost Alpha (2014) [Ru/Multi] (1.3003) Mod/Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:2A7BDB756917B0750CE06D9097CC1BDDF56312B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Dying Light – экшен на выживание от первого лица,
 ```bash
 magnet:?xt=urn:btih:17D85008F8F1C87EDA1EC1CEF74AA5910320CF97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

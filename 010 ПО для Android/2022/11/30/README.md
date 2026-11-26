@@ -19,8 +19,7 @@ Calm - Sleep, Meditate, Relax - простое приложение, не тре
 ```bash
 magnet:?xt=urn:btih:C7DF5382998E3CAD9404DF3AB72B252FD74F97AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Monefy Pro - Трекер бюджета - программа для учёта 
 ```bash
 magnet:?xt=urn:btih:663B261EE495BC5ED22D253C2202013975BE9C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Olauncher - это минималистичный лаунчер без рекл
 ```bash
 magnet:?xt=urn:btih:975CB22E10B57E47A561361ED2F430CD7C9B5C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ YoWindow - это нестандартная но очень удобная по
 ```bash
 magnet:?xt=urn:btih:35E4143E7D7EB128DF856345421153384ACA7E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFE6099668C1028DE429FDBBD22F17AD03CE5077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Carly — OBD2 car scanner 90.89_beta Mod by Fxolan [Multi]
 ```bash
 magnet:?xt=urn:btih:9D7D469007026958EF553CB0127E84D4BA0B94C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Carly — OBD2 car scanner 48.47 Mod by derrin [Multi]
 ```bash
 magnet:?xt=urn:btih:E71EAB9D4E234736F8680DD19E404FCAB1DF025E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Poweramp Music Player - версия для мобильных платформ 
 ```bash
 magnet:?xt=urn:btih:8ABA63D6D61E0F9853A1E13BB3F37ADDE1FDC2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Poweramp - это мощный аудиоплеер для АндроидаТи�
 ```bash
 magnet:?xt=urn:btih:6E3E3177B46705DBF7257B1163277CD0C0E648F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

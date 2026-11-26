@@ -28,8 +28,7 @@ Luv Machine - Luv Machine (1971) [MP3|320 кб/с]<Prog-Psych Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BB224F840AC2B62931C15B46FF29A68F08A6A7AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Albums, EPs:
 ```bash
 magnet:?xt=urn:btih:7BBDC94B3EA2AE1D0A49D709C5E70078CF5FBFAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Catfish and the Bottlemen - The Balcony (2014) [MP3|320 кб/с]<Alternative, In
 ```bash
 magnet:?xt=urn:btih:150A3400B03B64741C1A3D7550536E957413FAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C087A1CD62205876BAC4429B759CB2890904723F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Pink Floyd - Wish You Were Here - (1975) /1983, Columbia Records/[FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:75980902981F97505ABC6273029AD67565767361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

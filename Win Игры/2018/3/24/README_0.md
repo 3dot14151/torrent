@@ -19,8 +19,7 @@ Mars Taken - шутер от третьего лица, основанный н�
 ```bash
 magnet:?xt=urn:btih:8F8FCE14A60CB588C44ADF9C55F304839E382059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ VA - Shotgun (2012) [MP3|320 кб/с]<Tech House, Progressive Breaks, Progressiv
 ```bash
 magnet:?xt=urn:btih:9C810899498293613D4376CC005760534BB990C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:578D1DD9C1CF5C2CF635D2F7F2E4884484034DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76BBBFFD014D6F6C524B946DF93F81BE35EEE100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ VA - 20 Summer House Tunes (2012)
 ```bash
 magnet:?xt=urn:btih:E3CF27FC2C47A9D016E7DF0C471017172B6A3597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:751C2D08B472D41830C958EA6D5F0B8D0FECC000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78AE690572786698C3014F362A9C93EB65832D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31900AB5BB6F95DECF3F03E78B956B2E746B64FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6B689EA67776A5FADCE879A1E596C1D93AE2E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AAB3F152C0911A6105C0C1B226C0D4055F09901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Free Disc Burner - мощная утилита для записи информ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ Dай Dарогу! (Дай Дарогу) - 2 альбома (2004-2008)  [MP3|32
 ```bash
 magnet:?xt=urn:btih:B359AFE49B0A4A365BC0242865BF2033BADE7364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +343,7 @@ Roberto Rodriguez - Dawn (2012)Год: 2012  |  Лейбл: Serenades Records  |
 ```bash
 magnet:?xt=urn:btih:A5D1D6BB7F871589367FB35DEAF013E046455709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95A2F351F5C31465829FAFF9E8D23D53472A35E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ Marauder - Elegy Of Blood (2012) /Pitch Black Records/ [FLAC|Lossless]<Epic Heav
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6228BEB71B31999A24D1D70A9996562499C38080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ CD1 (Продолжительность: 01:17:19)01. Jungle Warrior - Jungle Je
 ```bash
 magnet:?xt=urn:btih:0713F406A0550464022D8006F32C5A164F8D6F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66BF7F5839F7041CD88D56CA4BB610BB216AA643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ VA - Sexy Music Compilation *Selected by Carlo Cavalli* (2012) [MP3|320 кб/с]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1DA1623345329909D88D4C31C8AC601F72DF6B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +569,7 @@ VA - Auto Mix vol. 8 (2012) [MP3|320 кб/с]<Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:0EBB6FF9390C50BFA6F41ED3F311D94A9A60CB48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ AkelPad - текстовый редактор с открытым исходны
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ Discovery: Спортивные арены Чемпионата Европы 201
 ```bash
 magnet:?xt=urn:btih:B3D802B0EAE69D0BBE84C8E9C2DB2F5BE4445243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ Steve Thorne - 3 Альбома (2005-2009) [FLAC|Lossless]<Rock, Progressive Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ VA - Breakbeat Massive (1997)Год: 1997  |  Лейбл: Mutant Sound System  |
 ```bash
 magnet:?xt=urn:btih:7566FEFA08846759FFBDF7EB137AB52E5AFDF7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABE755B5DDC1ED48C8006C99190EEAFD76D9ABA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +740,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBEF7ECD3595F9324F3EA0550CA366EA8B71D711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

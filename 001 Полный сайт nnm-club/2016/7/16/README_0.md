@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3E4A9AE73D2CE5B45DA0820EC27468817B6E24FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Cool Story: Summer Eurodance (2016) [MP3|320 Kbps] <Eurodance, Electro Hous
 ```bash
 magnet:?xt=urn:btih:2DC19CB5381F6C304D13CB3C86B5D65561BA64A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:025EAA31F748BDBDD112EF8615B4E95B9AC2EB69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Doro - Strong And Proud / 30 Years Of Rock And Metal (2016) Live [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:24A2C9C5F3C0E90B496A6CC2A3729205308101D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Best Of Vocal Trance 2016 Vol. 2 (2016) [MP3|320 Kbps] <Trance, Uplifting T
 ```bash
 magnet:?xt=urn:btih:CE869B4320A7361AC0DD6D7B089831995DD4AA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ FontExplorer X Pro предоставляет пользователю всев�
 ```bash
 magnet:?xt=urn:btih:370C1F40E5173A77ECF39782DD565BDB32AD8E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Flava D - Fabriclive 88 (2016) [FLAC|Lossless|tracks] <House>
 ```bash
 magnet:?xt=urn:btih:490E0E0336B4C4A98F9086F76820170AEF0FD90E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ John Debney - Ice Age: Collision Course  / Ледниковый период С�
 ```bash
 magnet:?xt=urn:btih:FB39DF0787B2AF995AF0684A7301D3FB35A01C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCBE2127D22D32EA373C33744AC96939D7BA3262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Mollono.Bass Remix Collection 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep 
 ```bash
 magnet:?xt=urn:btih:36DB71601C3BA49EF7128DE0A793A8D9295B377F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE3BA06D0BFDCAF835DD31FC5D01478171E83ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Steven Tyler - We're All Somebody From Somewhere (2016) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:6875D2371EFFB0D1570786065DFDFA60A84415A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Theodore Shapiro - Ghostbusters / Охотники за привидениями
 ```bash
 magnet:?xt=urn:btih:8298977E7235136BAA32490DEDB31A7D60567247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ SwagBot - робот, который может оставить без рабо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ The Erised - Room 414 (2016) [FLAC|Lossless|tracks + .cue] <Downtempo>
 ```bash
 magnet:?xt=urn:btih:A5DB757583672C70340C18ED7674A4A355927EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ VA - Tomorrowland  - The Elixir Of Life (2016) [MP3|320 Kbps] <Trance, House, Pr
 ```bash
 magnet:?xt=urn:btih:8B91C6FB92BB0198E949554323E9F43EA57772CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ VA - Come and Get It: The Best of Apple Records (2010) Remaster [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:31EF3B31EFEA66F5DEA51D6C606A129E9DD9F0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track]
 ```bash
 magnet:?xt=urn:btih:1264EE03FD48E4EA2F89233B33E689B4025FD14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B68BFBC76739A43FD1D1529B20080FD1D67FD485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:B6702645B12AABE6E348136E450D755106469B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ John Debney - Ice Age: Collision Course  / Ледниковый период С�
 ```bash
 magnet:?xt=urn:btih:3A2B48D290EA2990D389CBAAA1C411D0B4EF0D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:617682B32B6D74C2130CC6F70ED152DCF5CD44D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Viasat History: По железным дорогам бывшей империи
 ```bash
 magnet:?xt=urn:btih:FEACE8BA40CF884D76CC4FCCE2703FD6F38C8402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ DOGO - маленький вооруженный робот, предназна�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99EBDA9FAE02170376CB0C829A991AC0AA98ABAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7C6986B71B2FF83159D1F34AC61CEEDD4DF8B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

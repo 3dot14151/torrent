@@ -28,8 +28,7 @@ Yaotl Mictlan - Guerreros De La Tierra De Los Muertos (2006) [APE|Lossless]<Preh
 ```bash
 magnet:?xt=urn:btih:CB0BCF3EA89D9062651F65AB3FB624A948A060E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Lyfthrasyr - The Recent Foresight (2007) [FLAC|Lossless]<Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:CD0A9153093BF94498B11572BF4301EEC0690FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ De La Tierra - De La Tierra (2014) [FLAC|Lossless]<Groove Metal>
 ```bash
 magnet:?xt=urn:btih:A096DCD74851DFD8A8385E170BB156E6E55CD50F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Talmud Beach - Talmud Beach (2013) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:6BDD550B03BC5501977D1806DA789133C5FB35A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Zonaria - Infamy And The Breed (2007) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:681FB6FC68F6CB155F50B0C24C9032B096FA3BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Raintime - 2CD (2005 - 2007) [WavPack|Lossless|.iso.wv]<Melodic Death Metal / Po
 ```bash
 magnet:?xt=urn:btih:4207F247403BEDAB03E7A760E5224716627E3447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Kopecky - 4CD (1999 - 2006) Discography [FLAC|Lossless]<Progressive Metal / Prog
 ```bash
 magnet:?xt=urn:btih:F8377F18F17BAB86BE046A0A13BD94638AA4BB0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Ariadna Project - Mundos Paralelos (2005) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:383848C9C356039BCFC97FB763950F3B47785290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Wild Adriatic - Big Suspicious (2014) [FLAC|Lossless]<Classic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BB957F08D88CCBF103FE7F136D29B1D886CBCA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Yggdrasil - Kvallningsvindar Over Nordront Land (2007) [FLAC|Lossless]<Folk Meta
 ```bash
 magnet:?xt=urn:btih:6B1FF8A2D46D53154789340F895C0DD9552182FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ N.S.U. - Turn On Or Turn Me Down (1969) Remastered /2006, Get Back, Italy/ [FLAC
 ```bash
 magnet:?xt=urn:btih:60DF665D4D849A04619AA77B1006B46D67DAC792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ Twink - Think Pink (1970) Reissue 1991 [FLAC|Lossless]<Rock/Experimental>
 ```bash
 magnet:?xt=urn:btih:6510B68F6299D09E9677031BEF6F636C7FFD633B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ Grand Magus - Triumph And Power (2014) [FLAC|Lossless]<Heavy Metal/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C5B7F83AEB297123039358C06812C4AF33F482F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +455,7 @@ Bong - Stoner Rock (2014) [FLAC|Lossless]<Dark Ambient, Drone, Metal>
 ```bash
 magnet:?xt=urn:btih:63315DDD5B330A3D6C92D078CA70D707E951620F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +489,7 @@ Bonus Track(   Читать дальше...   )Жанр: Rock/Psychedelic RockП
 ```bash
 magnet:?xt=urn:btih:4165D8B969CE27966F23F3931CF8A5D2020ADA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +523,7 @@ Ron Keel - Metal Cowboy (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:81999560CF43E65EBE9A284B1C523CB8884B5685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +557,7 @@ Ozzy Osbourne - Dreamer (2014) Compilation [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:2B9AC235BD2A29B66907831C27C427C1C2E98BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +591,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:C2408B8D5BF6CC49808204083A9B70F922944BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

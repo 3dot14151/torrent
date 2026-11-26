@@ -22,8 +22,7 @@ Septagon - Apocalyptic Rhymes (2018) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal,
 ```bash
 magnet:?xt=urn:btih:9FF6B36E7044ECABE58E02952D5AF7685B57AB3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Terronaut - 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Post Rock, Post Metal>
 ```bash
 magnet:?xt=urn:btih:B68B112A0FB01616BD1515E8C201F369006F3799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Band Of Spice - Economic Dancers (2015) [FLAC|Lossless|image + .cue] <Stoner Har
 ```bash
 magnet:?xt=urn:btih:3DDEBBF2C88836714EBDFFC10E08FD929695B736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Shylmagoghnar - Transience (2018) [FLAC|Lossless|image + .cue] <Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:2B688462CCD40CDD1418E90E2B2C8E2F474B017C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Shylmagoghnar - Emergence (2014) [FLAC|Lossless|image + .cue] <Atmospheric Black
 ```bash
 magnet:?xt=urn:btih:407DEDCE7DCE2BA982DFB839819D4FF9D5928926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Black Expression - Regreso A Casa (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 ```bash
 magnet:?xt=urn:btih:31C4045422D79C671DC274AE7F680C4285B0B527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ MaterialEyes - Three Of A Kind (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:E5AA11F3225AC361640AE0035BC0D3AFF29F6AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Palace - Rock And Roll Radio (2020) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:A24ABBC9DABF53C1AD4CCB0625CE755D8A27B297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Palace - Binary Music (2018) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:23DA3E45BFFEF26B9543A03815DA4DA07BDB0163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Band Of Spice - By The Corner Of Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:EBA545B1CF91CD30BE952C0ABC10B7EA9C9990AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Solarburst - 2 Albums, 1 Single (2017-2021) [MP3|320 Kbps] <Alternative, Pos
 ```bash
 magnet:?xt=urn:btih:1073D4A9C1542C2594B2F3AB0F59727180EB2FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Snake Bite Whisky - Black Candy (2021) [MP3|320 Kbps] <Glam Hard Rock>
 ```bash
 magnet:?xt=urn:btih:223BD0DE77A8326B291A22921DD92B2636F5E660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48DEEEA2415C27A417B7EC6EA8EB4515B8741B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ECCFE9D9832292812BECE7A840399FBF7BCD7D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Evilizers - Solar Quake (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B9B54705524F275C87A9811685C3B0937ACA8591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Sirenia - 10 Albums, 3 Singles (2002-2021) [MP3|320 Kbps] <Synpho-Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:7BB236DF2A89D6A75044F72CA42DA7ABD67DD94D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Whitesnake - The Rock Album (2020) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:266643FEFB044F2615AC244A3156D20EB81EC33F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Servants To The Tide - Servants To The Tide (2021) [MP3|320 Kbps] <Epic Doom Met
 ```bash
 magnet:?xt=urn:btih:AE6937BF4D604DAFD66B34645D043C47827C3899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Red Hot Chili Peppers - Devotion to Emotion (2021) live [MP3|320 Kbps] <Alternat
 ```bash
 magnet:?xt=urn:btih:85FCB9B214AE8913B82CADC3C842CCABA02AD493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

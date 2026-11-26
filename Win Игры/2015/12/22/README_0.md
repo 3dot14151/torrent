@@ -19,8 +19,7 @@ Christmas Stories 4: Puss in Boots (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:DFA417895F99F0916B818FB98CE88DA2CD91446F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phantasmat 5: Behind The Mask (2015) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:E294E62EF6927478ED06CF98BEBF7FBBA16BC236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Christmas Stories 4: Puss in Boots / Рождественские истории
 ```bash
 magnet:?xt=urn:btih:AFF46F84CD69C40E88811689054F21E6CC8A5702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

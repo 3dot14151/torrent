@@ -19,8 +19,7 @@ Words of Wonders: Игра в слова v5.3.5 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:46BEE0A5C1CCE5920551424568B7D3BEE822881F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Jewel Legend: игра три в ряд v3.18.00 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4CB44AEFE665815DB622505393EE741ADDB4A58A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

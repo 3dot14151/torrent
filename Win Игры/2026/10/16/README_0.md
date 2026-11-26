@@ -19,8 +19,7 @@ Way of the Hunter 2 (2026) [Ru/Multi] (1.0.0.212045/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CC1C4AEEFAA3BFED543F8F22D40DD11BA6D297BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Way of the Hunter 2 (2026) [Ru/Multi] (1.1/dlc) Repack seleZen [Digital Deluxe E
 ```bash
 magnet:?xt=urn:btih:84B874EC75D4D487AA4D3E24BF37D131FD3A4D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sporting Goods Shop (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EF49DFFB87C8A95D50D9596670711877925CD15F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Enshrouded - ролевая игра для одиночного или совм
 ```bash
 magnet:?xt=urn:btih:B0DFFEEF9E3CCFF3FF70B45EB69D2407305E8FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Frosthaven (2026) [Ru/Multi] (Build 25947704) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9AEF7EA9678BA307E847A33D1FC10EE3AEC494A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Chained Beasts (2026) [Ru/Multi] (Build 25950801) Scene Rune
 ```bash
 magnet:?xt=urn:btih:C7A3D086501B802BD4293D6FFE652E4EB66D4602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Disney/Pixar Toy Story: Retro Roundup! (2026) [Multi] (Build 25667807) Scene Run
 ```bash
 magnet:?xt=urn:btih:3F1405B2722C87959BEE175E061C12DD0D2B8EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ ATOM RPG - это постапокалиптическая инди-игра, в
 ```bash
 magnet:?xt=urn:btih:B60B0E998C2EB1DBEE8B47642C9DDE6350F819F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Disney/Pixar Toy Story 3 (2026) [Ru/Multi] (Build 25668953) Scene Rune [Complete
 ```bash
 magnet:?xt=urn:btih:D1A2D921406348A0840864C2E24C7CBEAE0058E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Low-Budget Repairs (2026) [Ru/Multi] (1.7.17/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:5DF5395F2B07147A03F2D771313E27524AB76155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Castlevania: Belmont’s Curse - это двухмерная метроидв�
 ```bash
 magnet:?xt=urn:btih:EC12931126187C0777BD9C4C36EF0ACDC5BF2E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

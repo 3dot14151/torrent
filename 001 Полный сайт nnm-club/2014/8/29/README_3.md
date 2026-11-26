@@ -20,8 +20,7 @@ Windows 8 Manager - программа-оптимизатор все в одно
 ```bash
 magnet:?xt=urn:btih:4EC2F61FC4F209C9299AD0BFD51CCAFD66BE94ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A9955941FD6775AA655D3A0356B3846FDF6D58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ SnagIt предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:FC69E8777794B7B8DC0B91F9D8B661CD101A2A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2014) HDTVR
 ```bash
 magnet:?xt=urn:btih:9C140F2BCB3CF2AD7AB8C4AB6BC5634494DE7DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Tixati — это полноценный не требовательный к р
 ```bash
 magnet:?xt=urn:btih:DCC23F2D3547C3E9B1A024F87277ADE48C77F5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Swift — объектно-ориентированный язык програ�
 ```bash
 magnet:?xt=urn:btih:06AE86D8B368432CE5AB551860AF24B4E34A3BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Distant Star (1996)(   Читать дальше...   )Жанр: Jazz, Piano, Po
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCA08C9DBFA58F2945F77743DFF0304A174CE2A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - TOP 100 Зайцев Нет. Сентябрь (01.09.2014) [MP3|160-320 к�
 ```bash
 magnet:?xt=urn:btih:EC1DA8DBABA97014C2CF48A5F0AF73CE1490BF56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:431978FAB0560D2B2F9C562E57E8F0354854593A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Blu-ray Player – это лучший, всемирно известный Blu-
 ```bash
 magnet:?xt=urn:btih:7A13EA706F68765E99E162ABD626121827E1DE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F3AFBD0FE4A5CAF4502BD4E4E9B456A935F52F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Google Chrome – веб-браузер от Google с открытым исхо
 ```bash
 magnet:?xt=urn:btih:5958F74C4693646095F74B457EE6F2F9AB6CDB3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:C76BFA7AC9B275DAC190114549CC648057412185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:745993691D37163298D2EEDD1ECB392A8EC50947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ BitTorrent готовит убийцу облачных хранилищ дан�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ WiFi Scanner  может использоваться для беспровод�
 ```bash
 magnet:?xt=urn:btih:AF967684963F160F11FE62A3F625030598A24BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B32F6CFA29B81571761942E69E186438FE1C056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2877F40A15347CDA358B4BBE9978FB08F27EA4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Scanitto Pro - это легкое, быстрое и не перегружен�
 ```bash
 magnet:?xt=urn:btih:4EC91552C256904B467D0EEE2CB2E0B9E86E2B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ VA - Блюз Хиты (vol.18)  (2014) [MP3|320 кб/с]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4B4106A880BF058E2C69A5BB27E53E8C601C0EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC344F5BD37B4A1FBB3D72ACCECE407C11C465DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ AVG AntiVirus 2014 предлагает защиту от самых сложн�
 ```bash
 magnet:?xt=urn:btih:10ADCEBFE89C9FEDAA8403FF0CA8B2DAECB80452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FAD4C69B45A3699BD4F2BF6253EF0B43EBCA7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ VideoHive - Promote Company-Service-Site - 5215748 [AEP]
 ```bash
 magnet:?xt=urn:btih:A310481136DB844E875A856636A7B13290A7FCF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:CC84AF1D5B1EF2871AB9162C8E577EDC79D6A379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

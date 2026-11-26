@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2B164B51DF46C300CDED76B6C0964C4A68FD0299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FEA952EB3121D3AB1710C56F7EE666421F7285F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:021463D76F541BFE90EF87E4F74799266D72E9C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3269C2FCBDD4C84799D3B79ACE267D0C0A9D2F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD80C768AC774EA7AC6D94B3532C07919B600D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2DE7D36D5101250E4A3D11A491F280766F9EC72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Lamplight City (2018) [Multi] (1.13.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1E65BC402B0C6D6D12821F6DBE32E19DB2FCA57C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Dolby Digital®, Dolby Digital Plus™, Dolby TrueHD, Dolby AC-4 и Dolby Atmos�
 ```bash
 magnet:?xt=urn:btih:651B3DF7EC482773A85C63D02F20464ACF4DB97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 ```bash
 magnet:?xt=urn:btih:881CF6533A0770BE23FE21F97E931B191F34D634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F9F87417C7A9B2B6800F1F94E777DEBEDFDB3D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 ```bash
 magnet:?xt=urn:btih:9E39CDA149C1AF29749A8880FF0E5B72C6EB8C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36EC92B23F3ACE3FD02E7D11A058414D20273B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Franzis ZOOM #3 Pro 3.31.04132 Portable by Spirit Summer [Multi]
 ```bash
 magnet:?xt=urn:btih:4D5E49AAD4DC9BEABEC06611446D45502C90ACAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Warhammer 40.000: Dawn of War (2004) [Ru] (1.51/dlc) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:E811A1EBE14E7B3527518403D2C9ECDD3AA6A1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F89DF0E9AB3E14624F316E79D72242860F59D284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4275FADAEB8683AD8A550C45C7F63E6DCB47DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```bash
 magnet:?xt=urn:btih:6EE91C1871333E4F87A6CC7F78AFE901766A8C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ Far Cry 2 (2008) [Ru] (1.03) Repack EXROW [Fortune's Edition]
 ```bash
 magnet:?xt=urn:btih:ECACFE75BB4265B5C85F1EEDC100EF5EA8D6B719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DC6919EEE7FDEC7CC654ACA401F6E796E7D8465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:2A4387AAFF2D7119A2683391DD52AD868759C4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:29C37094EC152435E8B41A5C1AFCD1BB946AEF90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ Aru Majo ga Shinu Made / Once Upon a Witch's Death / Пoкa вeдьмa нe ум�
 ```bash
 magnet:?xt=urn:btih:8E7761E554AFF29D67DB2A3F3997E29E21E2F3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15C0924CC14468E47B65A3FB7F68B58D9386F389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +599,7 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:295AB34A3D328C394805AC96B3182653FB019468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +624,7 @@ CorelDRAW® Technical Suite — это универсальные инструм
 ```bash
 magnet:?xt=urn:btih:7E5608598AC11842111CAA250E9B7CAF3CE997D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +649,7 @@ Near-Mage - нарративное приключение со щепоткой 
 ```bash
 magnet:?xt=urn:btih:545980482DB498A1033D20C84C224F267E50BC56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

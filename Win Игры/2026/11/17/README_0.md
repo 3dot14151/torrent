@@ -19,8 +19,7 @@ Field of Glory: Empires - это пошаговая глобальная стр�
 ```bash
 magnet:?xt=urn:btih:78CBCB862BED64A5D114FD12B9C8AEE6CFC1D2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunt the House: Terrortown - современная 2D-интерпретаци
 ```bash
 magnet:?xt=urn:btih:3C141247C2E971D4EC2BD9FB62AB396AFF6F2DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Psychonauts 2 - это платформер о невероятных парап
 ```bash
 magnet:?xt=urn:btih:800CBEABCBBFC57868CF3A5437171B48CC960A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Adventures of Tango Rio (2026) [Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:318E68FDC92D9907FFCF7F4B06955A809AA6C883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fish & Hike (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FF7C383574517E976622655535BB542F2EF50783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ancient Wars: Sparta HD - это ремастер классической с�
 ```bash
 magnet:?xt=urn:btih:E639D5F767A34666BE32D184AC3679225B23E8B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Frontier: Path of Shadows - это хардкорная пошаговая т�
 ```bash
 magnet:?xt=urn:btih:2735935A2E681718BF45D237AC6F9BBA9D8AF3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Unbroken: The Awakening - это мрачный экшен‑RPG‑шутер 
 ```bash
 magnet:?xt=urn:btih:C7446CEDBBEDF3A26FD6C748C207236BEFCE19F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Assassin’s Creed Black Flag Resynced - это ремейк культовой 
 ```bash
 magnet:?xt=urn:btih:6FBC04EED6D962B0835A2AB27025D2E8177A80A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Mario Kart World - это аркадная гоночная игра от Ninten
 ```bash
 magnet:?xt=urn:btih:CA57B16FB6FEEA9C8A7E821A00E2028F6A729306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAF6DFD38E5DCE508F4D2244EBCA1DF0AFE06C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

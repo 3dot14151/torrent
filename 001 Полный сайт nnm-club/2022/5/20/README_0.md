@@ -21,8 +21,7 @@ VA - Lounge & Sunset, Vol. 3 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:07AFA96229D2D1561E3386365EEED246BA831A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Deep-House Gladiators, Vol. 3 (2018) [AAC|~328 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:D4799F65A7D50DAC17CFCD41AD07037099200E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Deep-House Gladiators, Vol. 4 (2018) [AAC|~324 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:A0ECC5D0D24EABCE0077574AFEE444433BD1132A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Giuseppe Ottaviani - Horizons (Part 1) (2022) [MP3|320 Kbps] <Progressive House,
 ```bash
 magnet:?xt=urn:btih:C393182958EA0AC9E1F3202339C4298C8BEAE1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Lounge & Sunset, Vol. 2 (2019) [AAC|~325 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:5A005439EAADFB8C59090FB77F604B051590CB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7752B919EA560E7989329CBA5D38D6AD3405040D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Lounge & Sunset, Vol. 1 (2019) [AAC|~331 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:874BB0473E3525EBC89749EADD0D218EFD127265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:00EC723EF91F22710A3684831CB1FB0A05E42481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C6453BF0ADB76DE208550048038227E97726D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3B036249FD8A5B4F8AADE99C2D65CAA454D8E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB8E4BD2521503331B8E7F7E8573C8476B6759EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ VA - Lounge & Sunset, Vol. 4 (2019) [AAC|~332 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Persist Volume Control - продвинутый регулятор громко�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Nox App Player 7.0.2.8005 [Multi/Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ VA - Italian Chillout Cafe (2022) [MP3|320 Kbps] <Chillout>
 ```bash
 magnet:?xt=urn:btih:77C0555DEC991015AF790A32316319F0D58A9484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Giovanni Marradi - The Best of Giovanni (2008) [FLAC|Lossless|WEB-DL|tracks] <Pi
 ```bash
 magnet:?xt=urn:btih:5FE0D41720921B531CEA789DDB8E45C0A59DDB3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ HDCleaner – многофункциональный программный пр
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Photo Recovery v1.63 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2FBF33175EED447800C71300D967CEAFFF1865D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E21EA293E73FAE8F3490F6EE24408574D8C2447E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор програ�
 ```bash
 magnet:?xt=urn:btih:1DD4D8A9F372625C848326F9C2FB30768F4638E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ SeriesGuide – менеджер фильмов и сериалов 64.0.7 Mod b
 ```bash
 magnet:?xt=urn:btih:CC607DDB5C0772441AE2928AEC057AF86B354CAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ VA - Disco Top 50 (2022) [MP3|320 Kbps] <Disco, Pop, Club>
 ```bash
 magnet:?xt=urn:btih:E4F79D7D34153A625A47FC71CF7EECD12A525383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ DIGI Clock Widget Plus 3.1.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6C8FABCACB5A19E1872ABC892AB329312034FB28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA8D9198EE2041E0CEABE636FDE064CC7AB97963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

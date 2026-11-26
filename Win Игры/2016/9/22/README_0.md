@@ -21,8 +21,7 @@ Virginia — триллер от первого лица про маленьки
 ```bash
 magnet:?xt=urn:btih:C4EF38887D5BBAE4F4DBE5A5D5936D237A41DDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Virginia — триллер от первого лица про маленьки
 ```bash
 magnet:?xt=urn:btih:61CFD6D5D0D11185887103F073E6323FED4D8CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Pankapu (2016) [Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:4E805EED095D822178F6586DB51ACE656DD54E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ The Lost and Found — приключенческий платформер (Metr
 ```bash
 magnet:?xt=urn:btih:D4F3D1F081124ED3EDEE876F1191F234C003A262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

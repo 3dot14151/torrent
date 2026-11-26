@@ -28,8 +28,7 @@ Chris Rea - Auberge (1991) [MLP 2.0 192/24 |DVD-Audio (VinylRip)]<Rock>
 ```bash
 magnet:?xt=urn:btih:27B84345B6E232FAB13B2E702E7A0563041D4AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ B4. Hallowed Be Thy Name [7:09]Жанр: Heavy MetalПродолжительно
 ```bash
 magnet:?xt=urn:btih:43074C6433D16BCB213561C51551B457C1FF4CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

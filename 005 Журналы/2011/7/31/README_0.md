@@ -19,8 +19,7 @@ Men's Gadgets - ежемесячный журнал информирует св�
 ```bash
 magnet:?xt=urn:btih:7177281F91A6129BFBEF45CA7507174367F39F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ PSYCHOLOGIES — уникальный «специалист по жизни», 
 ```bash
 magnet:?xt=urn:btih:DD324FAF9B86A33A48669CA462D7609D5326E225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

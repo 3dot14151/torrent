@@ -22,8 +22,7 @@ Evo - La Redención Del Fénix (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:BEA489A21B25671C10075C4181FAFAEA99216D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alex Kilroy - Break My Chains (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:81C24AE324570E5C6671367043D882C5EFC5C4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Billy Morrison - HOLLOW (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:29397EE2713E3E11E90C3BECD29360D11DCBC5F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hardbone - Hardbeat (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F3A5D6DEC60C2884193AF4ADAA0493728C4D0B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Boguslaw Balcerak's Crylord - Birds Of Steel (2026) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:5409D4FA1D64B187461DB99C19C866EF9B8F2C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Moon Shot - Thunderlust (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:CD9C2424BF9896FD833F4D192A963521B91EA6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Public Opinion - The Curse Of Public Opinion (2026) [FLAC 24/48|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:1A5D6BAE19145FEEA24D02FE948302629A64AD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Tempting Heat - Trip Tales (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:018E29F3913E587882399D2253E67911233FD7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Hollywood Stars - Hey! LA! (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 ```bash
 magnet:?xt=urn:btih:81E5A346A7A0BECFEB536D368D606959230FFC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Aviators - Shadows of a Halfwolf (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop
 ```bash
 magnet:?xt=urn:btih:A66C1D0DF262D139A47AE93464615D9E79769DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

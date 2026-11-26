@@ -19,8 +19,7 @@ Intruders: Hide and Seek — игра в жанре стелс от первог
 ```bash
 magnet:?xt=urn:btih:B0F0244A4143A290C312E9584246432812EE23D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

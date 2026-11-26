@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7407CBEAD9FAD2FBEB4111B60DE26DE01E420DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34616E859B17D0A7A28A9C875984F90CBDBD6CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F23C914DC036EF1EBFF4CE7324023C43BBAD840F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Krai Mira/Край Мира (2016) [Ru/En] (1.1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:741BB994DCE675AE252885A25888A803CE459F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Ghostbusters (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:6201CF61DAC9C6042D4085D4556B568BA3FEAFFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B2FE98CFF18F48B7982E87443C4D28FC295B0EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD43577964E5BFF0FAD59662DE1FD31E9B1C4369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Arma 3 - Apex Edition (2016) [Ru/Multi] (1.62.137494/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:1C7A10E2AB5F9107E1BFFA6D6765D13634BF3B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Krai Mira / Край Мира (2016) [Ru/En] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2C8867519AC54EF0CCF4D6C39CF67F255DA1CACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ BELOFF 2016.7 [Ru]
 ```bash
 magnet:?xt=urn:btih:A6BD12A3AAFF8ED6AD82D3C492BB83E0EDCD9A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ Qt позволяет разрабатывать приложения при п�
 ```bash
 magnet:?xt=urn:btih:E65157D55F8A5BEA9DC93B896BC375E65FDE541A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B4D794247D808AD976AFBAC0B6F4BB69FDA428F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86EC81E25A5253BF44FDBE48C60FE7C5624F4316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA6FE2ECED3072F5DA49416D8A4B40F81FFEF8DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3136B5832E2D5CCF035E9B3C581B61B1E0F79A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ACED81AD25E78883C6F4BD4D0A0163927FA076E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Battlefield: Bad Company 2 (2010) [Ru] (795745/MP) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:DB0C857CDA8A6DD1021DA0708F48173491067BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Disciples Anthology (1999-2012) [Ru/En] (1.00/2.01/3.0/1.06.02/1.00/1.00) Repack
 ```bash
 magnet:?xt=urn:btih:EE8AE66BBEAF1E0E8E168866AC6ECEE4D43CF15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ CorelDRAW Graphics Suite X8 18.1.0.661 Special Edition RePack by -{A.L.E.X.}- [M
 ```bash
 magnet:?xt=urn:btih:605739B3D69474924FCD9C68EA9B6440D4F8E349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

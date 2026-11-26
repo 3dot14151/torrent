@@ -18,8 +18,7 @@ Free! / Free! Iwatobi Swim Club / Вольный! [2013, TV, 12 + 3sp] BDrip 108
 ```bash
 magnet:?xt=urn:btih:94E33829CD25482046C6612109BE5E7C8832937F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ KillaGram - 8 выстрелов (2014) [MP3|320 кб/с]<Alternative-Rap>
 ```bash
 magnet:?xt=urn:btih:8EC6B5BEC33C9C7705608105D3F8990D87B49141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ AIDA64 (бывший Everest) - утилита является мощным с�
 ```bash
 magnet:?xt=urn:btih:22BF269E890ADC04AC6EAEFCF59B29829FD26CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B6E4699B96CD6DECD41FAA4AD55138807E36226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C58CFE3CD4A8D048D32C067DAD930E3C78EA01A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ VideoHive – Dark Opener - 1392588 [AEP]
 ```bash
 magnet:?xt=urn:btih:204272315323476255DEC5B3C2DCCE977037809F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Ashampoo WinOptimizer 11 - новая линейка пакета програм
 ```bash
 magnet:?xt=urn:btih:387CFA9DA6C37AFCB98138BFAB4600CD5DF8C8B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ VideoHive – Dual Impact - 2803447 [AEP]
 ```bash
 magnet:?xt=urn:btih:038D3DD3A4028D9D1ED29E094344EFB70068F70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ SuperScreen - программа предназначена для снятия 
 ```bash
 magnet:?xt=urn:btih:ACB6B8AF79799867E838EED7537883A728659051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Hell Yeah! — это приключенческий экшен-платформ
 ```bash
 magnet:?xt=urn:btih:25E1DA55419035221892EF778109B66514DA70CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Xilisoft Video Converter это простая, удобная и быстрая
 ```bash
 magnet:?xt=urn:btih:76E6D8CFD6B646F895FE0D516E9452ECE7E12157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8BD2384903F25EB4622D3523CD83B9AC22CED4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Wallpapers - Обои на рабочий стол - Сборник [JPEG, PNG]
 ```bash
 magnet:?xt=urn:btih:C3C6EA232FC78344EE4FC947608EDD7C2A2A9971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Blu-Ray «Beyoncé» — это диск-видеоприложение к од�
 ```bash
 magnet:?xt=urn:btih:93A756C27C20A2DF1FEB7609C8A6A90DD18972F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ VA - День Победы (Из серии "Актёр и песня") (2002) [
 ```bash
 magnet:?xt=urn:btih:E0BBAC2DC4413D84B44483B2897BB476E0EF4696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Yu-Gi-Oh! Millennium Duels продолжает серию карточных и
 ```bash
 magnet:?xt=urn:btih:EB537BD57ABDA5EF1CAAAAEF1F7622FA5EF633F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5156686C82AFFDBFD5D4F4799FF97578C805F684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Avto Logo - Easy to customize. Resolution: FULL HD 1920/1080. CS4 - CS6 compatib
 ```bash
 magnet:?xt=urn:btih:12839E914F7F3BADA3DAA27192FB5DD7B256EA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Panda Cloud Antivirus Free 3.0.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6E00B6FE6CA45F1EEEE0CBCF34DEFAC233F8B552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4153508D206C12B8C575DBDA56E3E5BFD4674640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ TotalFinder – это набор полезных утилит, расширя�
 ```bash
 magnet:?xt=urn:btih:566F54D3CBFF9CFD0E8EDC48B841F0334C419BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD5F0C52A92BC44203E6B22610BE3614B33F7F1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ VideoHive – Bright Logo Reveal [AEP]
 ```bash
 magnet:?xt=urn:btih:86ACB3E7473A74CE1A173421E592F807A40D9888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ VA - Золотые Наши 70-е (2014) [MP3|256 кб/с]<Pop, Retro>
 ```bash
 magnet:?xt=urn:btih:03F37EC341D771475B652916A202D33321272A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9151D436D285C76937F9D1E8FBA09CA517AC53B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ HWMonitor - программа предназначена для монитор�
 ```bash
 magnet:?xt=urn:btih:C3AC8CA091F694789B563FF1852BFA6FFAD001B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

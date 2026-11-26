@@ -19,8 +19,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License CODEX
 ```bash
 magnet:?xt=urn:btih:2EE09F03579BFCE98C20303D8510DA74CB0E704C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Q.U.B.E. 2 погружает вас в полуразрушенный иноп�
 ```bash
 magnet:?xt=urn:btih:5EA7DFFE21799A50D370006EA77C7C1624AE6E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Need for Speed™, одна из ведущих игровых серий воз
 ```bash
 magnet:?xt=urn:btih:83D0CCF93FEA97D9B7D47E443957E780DD383058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

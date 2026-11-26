@@ -19,8 +19,7 @@ Adobe Photoshop Express - ещё одно крайне нужное и поле�
 ```bash
 magnet:?xt=urn:btih:1E74BE09004FEA37A8ADE9F23D9704B6681731D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MyBible поможет вам внимательно изучать, разби�
 ```bash
 magnet:?xt=urn:btih:3939A14B41EF79C60D976B18363EEBAC5875317F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ultra GPS Logger - удобное, функциональное и универ�
 ```bash
 magnet:?xt=urn:btih:1EE40947545575B50CA0C9F874B3E191D6F9A8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso - �
 ```bash
 magnet:?xt=urn:btih:D244FD88639F8C4A4C2B1A679A93D04B1B438224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

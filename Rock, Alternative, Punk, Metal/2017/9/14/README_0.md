@@ -22,8 +22,7 @@ Atlantis - Atlantis (1972) Reissue, 2008, Universal [MP3|320 Kbps] <Krautrock, P
 ```bash
 magnet:?xt=urn:btih:050667476F95A60D31BE896FA9A5CB8CE90519D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ensiferum - Two Paths (2017) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:19AF2B6ECE720230EE51202BF063370CD20288EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ringo Starr - Give More Love (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8D800CDA69E3B3E82D0D0329F875A017BFE68165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Chris Norman - Don't Knock the Rock (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C795C457DD1266273C17DE76AA3AC150EA70678B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

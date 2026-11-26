@@ -19,8 +19,7 @@ EA SPORTS™ FIFA Online 4 – это футбольная игра на рус�
 ```bash
 magnet:?xt=urn:btih:E0D1ABC12E36878B2FDF57D0D99A7649517F9B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

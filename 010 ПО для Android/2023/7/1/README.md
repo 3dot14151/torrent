@@ -19,8 +19,7 @@ AirBrush - удобный, быстрый и очень результативн
 ```bash
 magnet:?xt=urn:btih:B48152A36A337A0176EEC7B6A5B1C44AA534B853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KineMaster - ещё один представитель когорты виде�
 ```bash
 magnet:?xt=urn:btih:792C565C87211CFCBF32CC2C282FEAF9F1A88D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Adobe Lightroom - версия известного графического р�
 ```bash
 magnet:?xt=urn:btih:A0BEFC0C67D01A063966FF6FDE3608FE9FD4CC0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AirBrush v5.7.1 Mod by KirillCXV [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E17333A887D0225F0288C996D3025BC1C5FFBC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ AI Art произвел революцию в создании цифровог�
 ```bash
 magnet:?xt=urn:btih:ECE2966145F321F336AF0CAA4715EE8B28EA37AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ ByVoice v3.7.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:739ACD6DD1D37CA062DD945F93CF97FA09D0BF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ WiFi Analyzer предоставит вам самую полезную инфо
 ```bash
 magnet:?xt=urn:btih:819173BE9A4B958B335F005D5B2B51B41E1E63AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Tone Generator PRO v3.36 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:DEEA961C5D776488CE86E67B1A8867B59FA370DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

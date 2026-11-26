@@ -20,8 +20,7 @@ Beat Find / Распознавание музыки v1.6.51 Mod by Alex.Strannik
 ```bash
 magnet:?xt=urn:btih:DBEBFF8854EBE26F89D089942C8F131C5CB9E35F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA5FABF7632304AAF2C00652229BE49217F94DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ ToonMe v0.7.15 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:13DAE4345959D14F3A4CD23F36F44027A4048C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

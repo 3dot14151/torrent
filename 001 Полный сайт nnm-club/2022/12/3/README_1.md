@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9C6498ADF57516EBBA85167F77C0804854F77481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ScAnDroid Experiment's - Live Forever (2022) авторская раздача [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ C.C.Catch - Heartbreak Hotel (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Euro
 ```bash
 magnet:?xt=urn:btih:BE9E4113E46A537B01FCA7D7971F853DEDAE559F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:129BF53F14EF73FE6F5C95DB0293F637E2276971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ MaxCommander - это все, что вам нужно для управлени
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Female pop rock part  11 Compilation (2022) [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:BA495EC5235C354CDB248517B74998C54C6230E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Airmail – это почтовый клиент для операционной
 ```bash
 magnet:?xt=urn:btih:A2904697691AE15AA8108CEF38B34AD8677494B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Luminar Neo 1.5.1 Intl [Multi]
 ```bash
 magnet:?xt=urn:btih:7E344E586C517F2F86416F95A482F43776A5F468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Selber Machen — немецкий журнал для домашних маст
 ```bash
 magnet:?xt=urn:btih:4BC7FBD7A378485404B59153C5FD0CBC627D6A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:F82C5C1AC7A6750BE081746CC98E3E3A0B5B5437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9056395838E8575A086424D52D24F0A09335F636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ Tower - мощный и элегантный Git клиент для Mac
 ```bash
 magnet:?xt=urn:btih:F4FA0270B1EB6B01D21767FB3730BC3192EA8D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F152994F673D8D5CEF390A01251576B712C02770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Paul McCartney - The 7” Singles (2022) [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:D0391539718231BB44CD0B693F4D6729145DFFB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5079BB99FBF03F18C1FFE1436DBC1E702A025C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A86A3ADAB915E4EDCABC41EE447B556675E02D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:90B6B5609D9DE5B666162148BFC00A6736FDC97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ VA - Music News vol.228 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:564E6870C62B59333E7098F5FFE1519DFBC6748E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ ACDSee Photo Studio 9 v.9.1 [En]
 ```bash
 magnet:?xt=urn:btih:D389591B4383433589E0D380915BF0DE5ACDA7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78648A22420525EF929739B83CBBBFAD2148F5E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:528677692310916B9461943ACECEE547AB99C1E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ Luminar Neo 1.5.1 ARM [Multi]
 ```bash
 magnet:?xt=urn:btih:031BA6FEA439315C7D09A9D98E4CBA64437B7A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Wondershare Filmora 11 v.11.7.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BAFFBEAB7F405D08CBD145B1839C2AF9C98637A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:649650271C74FAEC2D06D68E2936EEB7E64F2384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ RSS Guard предоставляет строгий и лаконичный по
 ```bash
 magnet:?xt=urn:btih:82EC437DD552CE51F3DF4EDC0DB21C8EE73FDB71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

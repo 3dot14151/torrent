@@ -19,8 +19,7 @@ Rite of Passage 2: Child of the Forest. Collector's Edition / Обряд Пос�
 ```bash
 magnet:?xt=urn:btih:367A97A5159409A1F507B91831C3630979051483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Botanicula (2012) [Ru/Multi] (1.0.0.7) SteamRip SmS
 ```bash
 magnet:?xt=urn:btih:DE108C2C298622442A4FD3C537DA0293B4B62349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

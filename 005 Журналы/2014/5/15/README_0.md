@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:39B6732BE982C87F1B9FE6485FC2709828C28B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Empire - популярнейший ежемесячный журнал о ки�
 ```bash
 magnet:?xt=urn:btih:5B329D62C21794FD8DC29ABCD817DE76E373603E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:C39F8025036B6C898A1EA19EDC6DC88C115F208A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

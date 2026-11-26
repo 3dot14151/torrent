@@ -22,8 +22,7 @@ Moonspell - Night Eternal (2008) Reissue, 2019, Alma Mater Records [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:DD6DFB0454CC88722F7A838952A63157FFE95BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CCCF8045A6AB0517F14696270379216965BF03D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:2A07006AE6B9D94045A54DA2311B4FB41B49E305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:2253CC6C3B6C3ECD14ACF823FB28925B46373589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6753A7BC7879A76DCE3F25FEEE4D731D2C998BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ No Good Sons - Sin Reprisal (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C9D7342A4C4A7C71AD406790196D5DC970CBCC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Disphoria - Чёрная Метка (2020) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:0450A419ECB642E59C06A307430AD9F47B2FE9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Throwdown - Take Cover (2020) [MP3|320 Kbps] <Groove Metal>
 ```bash
 magnet:?xt=urn:btih:D672B89B800133510D8C2E91C13D735CF63C31C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ The Twilight Sad - It Won/t Be Like This All The Time (2019) [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:CD7DEDF2517728577701B0AC382E81FDC3CF24DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ VA - Драйвовый жаркий музон (2014) [MP3|256 - 320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:8EE53C3232B5F28D7D0E156DD9955182ABD090B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Speccy – компактная программа от разработчико
 ```bash
 magnet:?xt=urn:btih:40611229BC3D06E62E870E7A0D7532EB200AAFE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Roger Shah presents Sunlounger - Balearic Beauty (2013) [FLAC|Lossless]<Lounge ,
 ```bash
 magnet:?xt=urn:btih:BCBF1A2A2F543D28FBE229ABD4E8D0097E751130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Archiver для Mac OS - Быстрый и удобный архиватор, к
 ```bash
 magnet:?xt=urn:btih:4F43DB72B33EAF38F69809EFF02932114A484CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Zedd feat. Matthew Koma & Miriam Bryant - Find You  (2014)  Remixes [AAC|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:541D456A2CFBEF6268F3CC52F7AAF284A42516B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48E606D51D37E99FCF5A711DF8593AAD2C54397F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B28FA1395F2DBDE3EF1A466E8B808AD0060CC3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53BD44A4D8D360C23883A2AD190FBE58017C0EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA97716E54BC1D8617C26478AEFE27143989B1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ Hi-Tech Pro предлагает своим читателям знания и �
 ```bash
 magnet:?xt=urn:btih:1D173DFBA6545D5F50116FC0E8A202F735BB80E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E33227EAEF46B91A4EF6CC8D19AD068AD945DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (09.04.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:45C1DB74020246873DEC1A85D6273331381E62CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:532AAE4F8BB498DBEB6C599D1C607C411AC4EF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A4E208333A2941C1EC301C56DE87AC4351EACBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Ah Nee Mah (Diane & David Arkenstone) - Ancient Voices (2001) [FLAC|Lossless]<Ne
 ```bash
 magnet:?xt=urn:btih:5C53AE66FFCBB9B0DDF0AB0815A619D32985224C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FC7914A4A79AD338EDA5445EB6DB9DA27A46D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C37E87AD3B65D93C4FF97E90F8EC62FBD933B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ First State - 3 Альбома (2007 - 2014) [FLAC|Lossless]<Trance , Progressiv
 ```bash
 magnet:?xt=urn:btih:818EDB2E524A4061A285968FE196D4AFDF861BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +529,7 @@ Various Artists - Ultra Music Festival 2014 (2014) [AAC|256 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:20E881712F2811632F4C43420D4780E373C1C53B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ VA - Muzzic postcard - White Blues (2005) [MP3|128-192 кб/с]<Blues, Blues Roc
 ```bash
 magnet:?xt=urn:btih:7E7B77F1E7EA64476843F6B629876850ADE3385F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ Defraggler - утилита, предназначенная для дефраг�
 ```bash
 magnet:?xt=urn:btih:28E25DDDA11F3F5F2DFBB559A2CDF18CB75CB84C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ VA - Milchbar Seaside Season 6 (Compiled by Blank & Jones) (2014) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:9C0740FF0FD5E457E710F6201A1959E450999239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ Fundy Designer - новое слово в дизайне фотоальбомо�
 ```bash
 magnet:?xt=urn:btih:75AA4C1D5A272FAFE1847FF67E00CE1E61663A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ VA - Muzzic postcard - Black Blues (2005) [MP3|192-320 кб/с]<Blues, Blues Roc
 ```bash
 magnet:?xt=urn:btih:60AC015CD7140A668ADFA912B72C023AAE6640F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96A823BB2FF82ED2A104D855DA9708F5548E3118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D5AD7B6E5B4BADB5B1BCDFED3A1B6DC98F7A4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

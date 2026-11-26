@@ -19,8 +19,7 @@ The Fog (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:BB6B5430DD8B2A911031E798F82150FA32B7AE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Disciples III: Перерождение / Disciples III: Reincarnation (2012) [R
 ```bash
 magnet:?xt=urn:btih:755430380878F9D89B021808E0275FB0B25D219F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

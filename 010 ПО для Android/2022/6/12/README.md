@@ -19,8 +19,7 @@ Text Scanner [OCR] v9.3.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6C5271FC7CD30355903A9D5D8917B0DA52EC932E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Computer Launcher Win 10 Prime v4.7 [Ru]
 ```bash
 magnet:?xt=urn:btih:9A3F3093C6F154D0839FF823AA044B207B99270F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ TapScanner — сканер документов, это простой скан
 ```bash
 magnet:?xt=urn:btih:7407E6BF15C8FA158EA09288606F30EC6F98B271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ F-Secure FREEDOME VPN v2.7.4.9292 [Ru]
 ```bash
 magnet:?xt=urn:btih:75CF06F3CC29FB60BB53B458D4A67EF25E83A0DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

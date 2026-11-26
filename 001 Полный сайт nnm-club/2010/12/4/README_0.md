@@ -27,8 +27,7 @@ Tia Fuller - Decisive Steps (2010) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Зимняя Вечеринка Non-Stop №18 (2010) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:1A898AD0A9AC72E1BA209E5F5588926A3E5363D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Sub6 - Who Needs Love Songs (2004) [MP3|320 kbps] <Psytrance>
 ```bash
 magnet:?xt=urn:btih:79EB81D365F8C896D9201BC5377184BAB627C749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AB3E08D0DF69CB9E57DACFE4FBFDED10A263CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Charles Glenn - The Bass King (2007) [FLAC|Lossless]<Jazz-Funk, Contemporary Jaz
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ VA - Trance In Motion Vol.71 (2010) (04.12.2010) [MP3|320 kbps]<Trance, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:F125B5585D734448086DC4F74686966C95E3217A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Hour 1 :Жанр: TranceПродолжительность: 01:59:49
 ```bash
 magnet:?xt=urn:btih:EB05A47FD614821CA31AAD1B5278918CE4E8B026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ VA - Trance Tattoe vol 1 (2010) [MP3|320 kbps]<Trance,Uplifting Trance,Vocal Tra
 ```bash
 magnet:?xt=urn:btih:48710A31E6D3CCFACC264A0F1E40E5FDC08D91FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E70BBBE5AFCF39ECE035DD2A356447ED51B2EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D788E92A11B55D46D2DA9C3B4C00641974A27855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63492B3BC3FFF208DD298AAB818BE46BF31BC30C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EC358042EEE12E7CEDD815263E6FEBBDCD6EDDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2290DEDB691C21D74D764A08A18A4A383BFC17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Tingvall Trio в 2003 году основал шведский пианист и
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Armin van Buuren - A State of Trance 485 + CUE (02.12.2010) [MP3|320 kbps]<Tranc
 ```bash
 magnet:?xt=urn:btih:D201BA4489B3A2892712C12508DA0A1DCC27D210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Recue - Leftover Love Extended Edition (2010) [MP3|320 kbps]<IDM, Dubstep, Glitc
 ```bash
 magnet:?xt=urn:btih:FC74118B155D4987934447A29160146A4B148D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Signum - For you (2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:4E14C10961A8E38C1202834AF0B80EF45318E829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:106ADECF6240BF23EBE1917B94F936DB5EF46D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Tingvall Trio - Vattensaga (2009) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0DF2948AD822D1A9D1AFC990B7AC5B702D88BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ VA - XXXL Шансон Новогодний (2010) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:05B4806950C583A15B1F58040E37689B0F4028F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ Dark Moor - Ancestral Romance (2010) [MP3|192-320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9025F42FA07A5B025AACDBC0EEF7B4356686E4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ VA - DreamSounds - Eurodance по русски (2010) [MP3|320 kbps]<Pop, Club, 
 ```bash
 magnet:?xt=urn:btih:CD233C9081BAE997FAFD63A754758BC9983DC814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F2635A329C6AEC108C5E794F9D221350AD80A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ JACKYL - Дискография (1992-2010)Жанр: Hard Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

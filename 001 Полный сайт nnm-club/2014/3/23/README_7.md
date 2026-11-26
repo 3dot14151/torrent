@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6716F6A7FCCB911B43CE1EA55CA7D501A2847313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Star Trek: The Video Game / Стартрек [PS3] [USA] [Ru/En] [4.31] [Cobra O
 ```bash
 magnet:?xt=urn:btih:E73EFBEC8A2F601CA22AE6EA23432AC8E4D1D8DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AD4333B79F387644CC7B3EAF5D4AF1BFDC69683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F8735A01E972A6D14EF38BC4C2DC33D8FB5D9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C764EA9249DC6CAFF01D314FBEA1085B072BC1F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Mirillis Action! - программа позволяет в режиме реа�
 ```bash
 magnet:?xt=urn:btih:D60342C780C86C79F5F1DE80792F590ECB234804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Microsoft анонсировала DirectX 12
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93850DE1086180DF168587EA237A0C2F8E8690BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22D5A42224DC7CA49FE17CEF80BB5A173084B969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Adguard 5.9.1080.5519 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:054145A156F352C2CE527CE497A7BBCCFC6764F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ King's Bounty Anthology / Антология King's Bounty (2008-2012) [Ru/En] R
 ```bash
 magnet:?xt=urn:btih:E8F06532D052258A9ED788EA9E3E03CC2AB38097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54DF74038B0882E7896ACC02273827F53BDFFB62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24E4E5AF5C7CB5AEFD8654DB98BABBED50C3C7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ The Witcher: Enhanced Edition (2007) [Ru/En] (1.5/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:BEDA45B7279196C92F264E1434FAF70BBABB6DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ Ni no Kuni: Гнев Белой Ведьмы рассказывает о при�
 ```bash
 magnet:?xt=urn:btih:FE438B72054F4C159ED48BED8C9D5323177266E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ NewBlue TotalFX 3 - это всеобъемлющая серия програм�
 ```bash
 magnet:?xt=urn:btih:45F3228DD4DF9F881A525487D116995AA2C978D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ LEGO Marvel Супер Герои: Максимальная перегрузка
 ```bash
 magnet:?xt=urn:btih:4134521BA2B4CD54BAB1095E70F6319BD29E41C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F21B457522EA23173FA9FB92AB852C8EC5569B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ Payday 2 (2013) [Ru/Multi] (1.7.1.0/10dlc) Repack z10yded [Career Criminal Editi
 ```bash
 magnet:?xt=urn:btih:F181A15CD82498EC6BA6D30FC4452607C52DEDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ Injustice: Gods Among Us — новое слово в мире файтинго�
 ```bash
 magnet:?xt=urn:btih:E23E363FE71B355C6F4B839EA3A596F89189F326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97C1CC1135EB29A37CB4120D9EBE3DD32566A1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ Boot CD/USB Sergei Strelec 2014 v.5.3 (x86/x64) (Windows 8 PE) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0AE47174E41FE6F023D31DBE634F170F0B942962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ Microsoft Visio 2013 включает в себя набор новых функ
 ```bash
 magnet:?xt=urn:btih:86FFBE7989A001005A15BD7FD520C6D837C4F288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2004,
 ```bash
 magnet:?xt=urn:btih:24FF5005D0B423CBB237AC924344521EC400C410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3B7475B395E0BE7FF8ADB0C6BAE63761BF5765A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ Red Dead Redemption [PS3] [EUR] [Ru/En] [3.41] [Cobra ODE / E3 ODE PRO ISO] (201
 ```bash
 magnet:?xt=urn:btih:2040A8C9F65B3B58B8156C536047F39D9003BC10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

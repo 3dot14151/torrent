@@ -19,8 +19,7 @@ Sufyan bin Uzayr | Mastering Unity: A Beginner’s Guide (2022) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:674CF7DFEAD1515B3CA0254C798806D590B16E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

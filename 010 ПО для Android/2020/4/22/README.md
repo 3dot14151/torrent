@@ -19,8 +19,7 @@ SanDisk Memory Zone 4.1.16 [Ru]
 ```bash
 magnet:?xt=urn:btih:B526B932307893FB266B33F81CE071F1835F28A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Glextor AppManager 5.32.0.507 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9526D1CBECD1D6D2EFA799B7A9F583B12468BBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Android Помощник является одним из самых мощны�
 ```bash
 magnet:?xt=urn:btih:022C4F7B4EF26B0F001DAD122E8633ED973771C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

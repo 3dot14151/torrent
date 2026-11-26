@@ -28,8 +28,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:F843AB087FED7F2721182D09FDA010E61FBB91F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B5. The Gift :: 04:53Жанр: Synth-popФормат: Vinyl, LP, AlbumПродо
 ```bash
 magnet:?xt=urn:btih:3ADFB87D693C9A33C9C71F930112CCE3BF03C1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ B2. Voices (Instrumental Version) :: 04:01Жанр: Synth-PopФормат: Vinyl
 ```bash
 magnet:?xt=urn:btih:AE59D5991DA6FE15BD274777797BCEAEEE563B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ A4. Ласточка (3:51)(   Читать дальше...   )Жанр: Рок�
 ```bash
 magnet:?xt=urn:btih:DA81DF2A22CC0BC1268C2A7116831EC7F6A1E316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A9B2DDF832DD245A900C7CF3186A6C67350DD0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ B4. Question :: 04:15Жанр: Synth-Pop, Europop, Pop RockФормат: Vinyl, 
 ```bash
 magnet:?xt=urn:btih:0AD9700175F9E7A554FD253B98C413123FC0FBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ B5. Staring Down The Demons :: 04:14Жанр: Synth-Pop, Pop RockФормат: V
 ```bash
 magnet:?xt=urn:btih:70BC052B8663FD2F1927F0D1149D5B425DBF9E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:2A1AC1FE608794E72836C60D63B751C424469330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

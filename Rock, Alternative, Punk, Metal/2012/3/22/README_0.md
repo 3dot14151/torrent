@@ -28,8 +28,7 @@ Pythia - The Serpent's Curse (2012) [MP3|320 кб/с]<Power Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:F725CDE758F7EC7C49D47EEC029267BCE3D1CC79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ OverMaster - Madness Of War (2010) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:D8EC9669B208DF8DE8E6C6A9FEEA53CBF428CE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Sleipnir - Bloodbrothers (2010) [MP3|320 кб/с]<Epic Viking Metal>
 ```bash
 magnet:?xt=urn:btih:B2D79D845E3555D147071CBC30BCE21AA14F4988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Crossover - Pythagorized (2011) [MP3|320 кб/с]<Industrial/Sympho Black Metal>
 ```bash
 magnet:?xt=urn:btih:0AFE2EC48C9CD60B11942FEC7EB42A297E1D6A3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Ministry - Relapse (2012) [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:621C5DED85277DA63F5E2D5413811985CE9DF230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ VA - Time Life - Hard and Heavy Box Set 9CD (2008) [MP3|320 кб/с]<Rock, Hard 
 ```bash
 magnet:?xt=urn:btih:EC4173240121A3E93EF318DAC8729E23390E0765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Esperanto - 3 альбома [Дискография] (1973-1975) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:39509B9DF738B73991EA79B8086B6B4C0DF7DF1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

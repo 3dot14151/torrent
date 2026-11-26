@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:99E285F3ECE1FE98ED8B7E70511805BB53F94525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0FE74BC2D42EF326473B8FC07CAF5568F8C3C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B99CD3FA85D450D19CBE37F24D9D2EA23E22E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Selbst ist der Mann — популярный немецкий журнал дл�
 ```bash
 magnet:?xt=urn:btih:39FD2B2424431DA761A323DD2FAFA393E90EA5B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Woodworker's Journal — журнал по столярному делу пре�
 ```bash
 magnet:?xt=urn:btih:B4CDFA8928C683845CD58444AC6230FD27026E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8B68F9E610CE995DE3AB38FEBAD2F2CBDD91A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19CC7009D14D831750EB537A7776CE7DADEA5129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:11228B68BCF367349BB56564526937C589EF31B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ The MagPi - о различных поделках и экспериментах
 ```bash
 magnet:?xt=urn:btih:080CC4F221D437A928FB2D444EDC53B9F14D2811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

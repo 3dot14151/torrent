@@ -30,8 +30,7 @@ A2-2. Vertical Vision :: 04:19(   Читать дальше...   )Жанр: Loun
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

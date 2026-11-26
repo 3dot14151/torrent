@@ -19,8 +19,7 @@ Succubus With Guns соответствует своему названию. И�
 ```bash
 magnet:?xt=urn:btih:9EDC4F76EE2A77FC00428CFAC8D14FF4FA46AFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

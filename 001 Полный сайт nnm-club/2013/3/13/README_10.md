@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:52F3100D1202DF19F5D951576275E8EE9E8DC1B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Попсовая Атмосфера (2013) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:670ED12158AD336537A4A9C193D8780C5A3E3678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Coldharbour presents KhoMha (Unmixed) (08.03.2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:90D49AD54476D654E1FB1A1A0282EE05903823C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Tidal Dreams - Once upon a Tide (2012) [MP3|320 кб/с]<Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:082BF49BABD89510DFE0BBB846E5AC13C9BBB033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC141A70C24E49023E57BFB87BBB421FACCD56DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CFA087D0B5070991F429CB758CB8EB6D424FC90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Richie Valens - Rockin' All Night (1995) [MP3|128 кб/с]<Rock n Roll>
 ```bash
 magnet:?xt=urn:btih:C8D5569B09C010CDB24D53C1601A30D00DC49E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Intro : tyDI - Her Lullaby (Original Mix)
 ```bash
 magnet:?xt=urn:btih:73870CF55C42D72DAFB952E6C5E74496CD07FF7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A1CAFBBD45D08EF2155E4C2F322619CE6E1C6E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ Yasunori Mitsuda - Chrono Cross (1999) [MP3|128 кб/с]<OST>
 ```bash
 magnet:?xt=urn:btih:F25F85B9490F37FB556EB70DE54FC1F4A14C46C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D043A47DA34A4B08E924266F573DFCA734CF9064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ Butterfly - Organic Synthesis Episode 009 (10.03.2013) [MP3|320 кб/с]<IDM, Am
 ```bash
 magnet:?xt=urn:btih:AF41AD9FFBB8A3577681317AD8BEAF134B3BA67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBD3593D90B86075F78D9ECA477B28C8F794B8C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAA6FB876372F1CAC4174D33C324E303A96CAF1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:253C6DEB2549E14152DCF6B1B9F1AE93B8F18D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A43421B2CF06C6522EDF201AD1BD8718A6A03A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:994BA36E96966D3D599CB7FD2692FD724BB10DEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +517,7 @@ NТерапия - Время и Смерть (2013) [MP3|320 кб/с]<Depressive
 ```bash
 magnet:?xt=urn:btih:BE10AC875763796E50D76F819DB543DA5C50E7AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ Poco - Indian Summer (1977) 2004, Lemon Recording [MP3|320 кб/с]<Classic rock
 ```bash
 magnet:?xt=urn:btih:6EAA029F1029BB390310AFC233C182042F278FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ Monsieur Minimal - Lollipop (2008) [MP3|192 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:00F4840281AD4E89C60383E0CDB14405DAB0F302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ Wolfsheart - The Call of the Canyons (2010) [MP3|320 кб/с]<New Age, Native Am
 ```bash
 magnet:?xt=urn:btih:6DA02B55D354751F094D1B5BE92ADE98443691C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ Eric Burdon - My Secret Life + 1 EP(2004-2006) [MP3|320 кб/с]<Rock, Blues Roc
 ```bash
 magnet:?xt=urn:btih:F5D1E51450DFD4B1C4F5A33CC4372F5FAA3263DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDC586CD4A1CA9A67A09EE28DFE996D0D3D1FB53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02B2AB57421F25D5B44DFA13798662756CC96E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42FEB2E00E9D643221D67B5BB8DFA5409C75F5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ VA - Молодежная Муз Энергия (2013) [MP3|256 кб/с]<Dance, 
 ```bash
 magnet:?xt=urn:btih:303519A5EB44CD462A0C5AD9B1F1C0A5199DC305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

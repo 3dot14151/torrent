@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:4D347C173513C3763FE1C29BB7BC425EF49AD0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A Forest Of Stars - Stack Overflow In Corpse Pile Interface (2026) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:236F2F174BAB6342B79E4C39B683CEB73616DECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Engels - Engels III (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:179AE236564403047E0654D58A4358F12234B662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kerry King - From Hell I Rise (2024) Reissue, 2026, Reigning Phoenix Music, Delu
 ```bash
 magnet:?xt=urn:btih:8727AD1C529A6643C89CE0889A5CC09DA90C927D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ryan McGarvey - Up From The Ashes (2026) [FLAC|Lossless|image + .cue] <Blues Roc
 ```bash
 magnet:?xt=urn:btih:41D370058EFB1CC48FB82BA9688A7D3468D394B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Adekaem - January's Dreams (2014) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:5700A03D95E354D61BCD9021F863E2E6F640BE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

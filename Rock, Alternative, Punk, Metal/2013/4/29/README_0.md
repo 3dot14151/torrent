@@ -28,8 +28,7 @@ Arsis - Unwelcome (2013) [MP3|320 кб/с]<Melodic Death, Technical Death>
 ```bash
 magnet:?xt=urn:btih:6D8592DD8DF794B681076D3A9ADA795AA89ECC08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Hondells - The Complete Motorcycle Collection (1993) [MP3|128 кб/с]<Surf,
 ```bash
 magnet:?xt=urn:btih:4190CEC766C78D8E24F90AA1864491CC72841B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Deprave - Change (2013) [MP3|320 кб/с]<Instrumental Progressive Metal/Djent>
 ```bash
 magnet:?xt=urn:btih:A499E525111F5EE439C8AB9478DB1E2EDF542226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Crying Steel - Time Stands Steel (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9E4202C74CE00C58C884A7DAF030C14B7A781928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Cathedral - The Last Spire (2013) [MP3|320 кб/с]<Doom/Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:F42BD45D3BB9A8E904408079B015476C0E6289EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Trail of Tears - Oscillation (2013) [FLAC|Lossless]<Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Queensryche - Frequency Unknown (2013) [FLAC|Lossless]<Hard Rock, Progressive He
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ VA - Strings Of Fire. The Acoustic Tribute to Guns N' Roses (2000) [MP3|192 кб
 ```bash
 magnet:?xt=urn:btih:0B618AAC7D5C3761E6440049EADD32EBB0DCFCA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ Streetlight Manifesto — ска-панк группа из Нью Джерси,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D3B7AD2EE8BCCB2DB8C9AA9C287ADE154FA439C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ David Gilmour - 3 альбомa (1978-2006) Официальные альбом�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

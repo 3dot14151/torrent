@@ -21,8 +21,7 @@ CGTarian, Вадим Беседин | CG Generalist (2015) TVRip
 ```bash
 magnet:?xt=urn:btih:A44D41751CB7D9BFB59EDCD747C55A74A38EF49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0B4A614DA5E8E327FA35231FEBAADC146079B128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:410749866BAC2DA162A4BDC3F3A83F080014562B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Осенняя свежая 30-тка Vol 4 (2020) [MP3|320 Kbps] <Pop, Dan
 ```bash
 magnet:?xt=urn:btih:8146F9E8A4EE659B2E07461D26840EC76C932B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5BA443530EDFB13C7E51AA85EDDC34978EE20FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C8460955141CB44AEE044B31EB683B73B15E2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ VA - С Новым Годом [Детские Новогодние Минусо�
 ```bash
 magnet:?xt=urn:btih:069A35FAD8BF754F842C419A2285D2ED321C7F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD9960BC8368377C9743A0A42355FF71E276ECCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E5F8EF066E6BFC7541B03880D1AD9BA23F0AC03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

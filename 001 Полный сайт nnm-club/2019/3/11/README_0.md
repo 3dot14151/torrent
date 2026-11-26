@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:0E19406BFC262723B421C042823A0D2EB31CCF43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Creo - это инструмент macOS, целью которого являе
 ```bash
 magnet:?xt=urn:btih:5DA2913A374236DEC041DE71109401E07CB150AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EEE36B1D879B7FB45CDD28C86B1B88C5972426D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9F4E7B05B7BCFF492D3647BA2F5798F031C9E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:461E130BE17A50AC1BC8C7D7BB6FBE78193106E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C95FF282257F61E0A07F608F65598FDB347C90E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Touch Forms Pro - кросс-платформенный конструктор W
 ```bash
 magnet:?xt=urn:btih:3EB4D5664549C0FAEE43581AFCBC21FF1DDDCBCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Vatos Locos ‎– Welcome 2 Da Barrio (2001) [FLAC|Lossless|tracks + .cue] <Psy
 ```bash
 magnet:?xt=urn:btih:7EA94934B4F9BB711D915DD1CC112A6A65AAC981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Money Pro сократит расходы и покажет полную кар�
 ```bash
 magnet:?xt=urn:btih:5D71E9985C71C9DCDE6057102CE29033FE4E0FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Imperia - Flames of Eternity (2019) Limited Edition [FLAC|lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:C98C84873ADAD8C77BB73DAA0A48024994DB994F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:BCB1D27B73D122D819CF4AE624C3754D31ECC14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - Empire Records - Trance 90's (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:324D98621C5559624E79EA683E49791412F6B84E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:AD521C8F94B644D7D73EC5984668A48D610BF5AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:26D99FA8C4470AF8EC06F5811C1E8E8156B84829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:350103DD543A7FF1C634A5E18AA840C275BD5ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9034917941EFB6A59CB68A0E5343CD3AE36BE808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Allavsoft Video Downloader Converter - профессиональный инст
 ```bash
 magnet:?xt=urn:btih:25EE2A9A9F2690E7F42806FC2C48D995272795E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:88B44F2D0D986EDD63AFEA5A1AECA9799ACD3132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ iDatabase - это самый простой способ организоват
 ```bash
 magnet:?xt=urn:btih:5677FE663F5770BAE4491438057F5035AB720245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ SPlayerX - легкий, с отличной производительност�
 ```bash
 magnet:?xt=urn:btih:292FB25E10433A42E39E7B8E65DF2030D5793118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:770D6DF49ACE3276E0C152AF076112C4D243CBA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ VA - Pop Slam Radio: Spring Edition (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:786463C6CE138C587540B645208CAB33233A3F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ VA - Empire Records - Trance 90's 2 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:9AD70C76C2E265BA36D94775BCD2BAEA21DD4BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B48DEE7946DD038D1104BDB45EAB49E4F7223170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ VA - Latino Sound Cartel (2019) [MP3|320 Kbps] <Latino, Dance, Reggaeton>
 ```bash
 magnet:?xt=urn:btih:A280F40F9559AF268421DB583618DE7D7ACA8079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ Foals - Everything Not Saved Will Be Lost Part 1 (2019) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:5FAC58AC48792506D1861F74743BB437B4D197F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

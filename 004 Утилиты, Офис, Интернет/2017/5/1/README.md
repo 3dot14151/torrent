@@ -19,8 +19,7 @@ PdfGrabber - профессиональный PDF-конвертер для Wind
 ```bash
 magnet:?xt=urn:btih:92458ADD700A39A405F9D262987AE1BEF90AD933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

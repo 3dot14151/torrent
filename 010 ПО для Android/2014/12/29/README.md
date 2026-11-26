@@ -19,8 +19,7 @@ My Alarm Clock Pro / Мой Будильник Про v2.8 [Ru/Multi] - Мног
 ```bash
 magnet:?xt=urn:btih:B61F54A56AB052E340961FB7506E6D031BC536BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

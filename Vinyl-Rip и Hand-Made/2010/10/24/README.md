@@ -19,8 +19,7 @@ Jean Michel Jarre - (1976 - 2002) [MLP 44.1/16 2.0|DVD-Audio (CD-Audio Rip)] <Tr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

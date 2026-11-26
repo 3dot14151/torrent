@@ -22,8 +22,7 @@ Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:FC5A47CA3C8BC51DDAC8FB9BDA90E307F0CA08CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

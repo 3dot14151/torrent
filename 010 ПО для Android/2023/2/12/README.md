@@ -19,8 +19,7 @@ Bike Computer v1.8.4.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:102E6A6D4192B1F5D8F482B0A1C4576CCFC13F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

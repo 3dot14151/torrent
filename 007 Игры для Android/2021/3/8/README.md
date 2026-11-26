@@ -19,8 +19,7 @@ Cell to Singularity - Evolution Never Ends - игра события котор�
 ```bash
 magnet:?xt=urn:btih:2944C2B925A57EEDAB94DBAD4B20E9C7072000A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

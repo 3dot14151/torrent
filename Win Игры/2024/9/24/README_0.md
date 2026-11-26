@@ -19,8 +19,7 @@ Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C45DB335420E1DC40454C62BE061F22D6273914F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Virtual Rides 3 - Funfair Simulator – это очередная игра в ж
 ```bash
 magnet:?xt=urn:btih:386A891B76D5694B93876B1BC35C8B340C3049B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Slackers - Carts of Glory - это гоночная адвенчура, кото
 ```bash
 magnet:?xt=urn:btih:40325028401C8823684D6D5ECD1CD40ACB2176AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ How We Die (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:ECE77E44E781DF5C645AE152ECC8EBACC3CF9490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grapple Dogs: Cosmic Canines - это 2D экшен-платформер, рас
 ```bash
 magnet:?xt=urn:btih:008B73DC8318C680AF729D8D3E9DA817C4989B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Emptiness (2015) [En] (1.0) Scene PROPHET [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A97783DADF64062C99C8707B36C19041AE7CEAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Abnormal1999:The Compass and the Sand - это загадочная голово
 ```bash
 magnet:?xt=urn:btih:C465A2E7ED2C74A69CACF01C908D946851BC2E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Three Alpha One Nine – это сложный и одновременно ул�
 ```bash
 magnet:?xt=urn:btih:BBFBCAD01DA8C08E8EE76E4E4BAA1634540DDE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ VA - De Top 100 Aller Tijden 1971 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ```bash
 magnet:?xt=urn:btih:F14A3F4B927A787D9125FDA003443130042BA3EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D6F27EFB53D3A7E0F8D9E6D37034D0AE2DABAF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Juicy J - Rubba Band Business (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:73F3FD00ADE4CDBD63B8943889E5E6609E4D64B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Sunroad - Wing Seven (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AEDE97872C7BF87B39435D7F8C1546455FCC93AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9F1E1B1494C0B63B9213557771436E54DFD1770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Markus Schulz & Dakota - The Nine Skies (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:530E2A1DADCE47D82F84BB800BF37D7BBF776A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Stand Up (2017.12.10) WEB-DLRip (сезон 7, выпуск 11: Дайджест
 ```bash
 magnet:?xt=urn:btih:E682E019BCE05E426CFC726E5201E2201BCFA273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC29374F83B4BEDBBB36ED9819379C3BF85A0AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32D580EDE989EAC530475B6A63CB3BEBA9F0B01B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6D87A3BA1EEDA1D0AA87B605526160CA67C6A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Uconomix uMark PDF Watermarker Professional - программа, которая
 ```bash
 magnet:?xt=urn:btih:4A650DC8998A9D842910EB539F452A1DC2A196E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Sly5thAve - The Invisible Man: An Orchestral Tribute To Dr. Dre (2017) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:F2B3DEF8612DB694F56AA9551E3E33C3FE50EAD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Ocean Jet - Glowing Black (2017) [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock
 ```bash
 magnet:?xt=urn:btih:559855E4130641DB60D17F84E35D1A14B2E87329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:7D12173017C332BCA07CA0D12B59597D02ACAF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:EFB1AE430D8DFBFC82AEF71558EAE2B517B2FC1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ Stand Up (2017.12.10) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 11: Д�
 ```bash
 magnet:?xt=urn:btih:925DBE7386F93848575C6D1045D440621BCBD8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A630483B93993B2801B41A23C9AF68E279283054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ VA - 150 Popular Eurodance Megahit (2017) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:085224826707A7826A8C35314EAC271CA9341955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ DCommander для Mac - двухпанельный файловый менедж
 ```bash
 magnet:?xt=urn:btih:0DA28AF55C4EA136A703F4418D57E99699EEC77B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04B6169E570DE9E816985C75C075F0466DF84A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:466715E6EDF1DB2E08C990F34F6690090835B65F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ VA - This Is Acid Jazz (2017) [MP3|320 Kbps] <Funk, Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:5905CE4F49C8DC08170A2ED8D9AD7F924CE9A8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CCFB265AFA15C0A27A34C1BA7FD869E26409CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ Total Mail Converter надежная программа для конверти
 ```bash
 magnet:?xt=urn:btih:96D6F92BBCC790880073527532BF705684038DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8922E7FFF33979E80DF8461185687900D26E4C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8687B37D0003634B817CE0E5372CA8C0CECB4462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

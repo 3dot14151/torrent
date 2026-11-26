@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DD4EAD67AAD05976EA85C21DDE70ABB9645D4E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Sven Hammond - IV (2015) [MP3|320 кб/с]<Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:560EA6D7152AF653C80363A4C354221523AABF7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65A4039F1E18C0108B72E9FBF60CC2CA5ECBCD30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Lemonchill - Hashtag Chillout (2015) [MP3|320 кб/с] <Chillout, Downtempo, Amb
 ```bash
 magnet:?xt=urn:btih:1A43814C0371D2438B21C497322E1F19C2C341CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:113482C7D7FE8A7A9EC45B3B7D76BA5915EFA5DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6550599936ED3A3413788CF909060C0AFF7FA98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Waters - What's Real (2015) [MP3|320 кб/с]<Alternative/ Indie/ Pop Rock>
 ```bash
 magnet:?xt=urn:btih:0CB9CDA23B158DA76B13D5FD899F1F42F297A229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2198F03C6EAE2C63007D2D0CFFF8146F938B614B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AFC0E2F78268E99D0394A70ED5083D27D046C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ VA - Lemongrass Lounge Vol. 1 (Asian Inspired Chill Out Beats) (2015) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:75A0492569F2E863EF233F519EF460C2921FD198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63ACCED365829CA4575C261B5AC931A6A1A45725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:424D45EA227F06B8B84BAE8D59AE078D76BF1BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ VA - The Deepest Taboo 25 Deep House Tunes (2015) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:915170621EEDBC5CDF5B930F260526AC79979C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E980EEEBC13376F0F090A2FD0364BCCE020EF48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DB1E6455F124C117D10440255EBDB63F5BA9E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ VA - Sectioned v5.0 (2015) [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Industrial, Te
 ```bash
 magnet:?xt=urn:btih:34B85095523B792A0DFC76BCE255FE80270C1445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ E. Серова | Цветы (1987) [FB2, EPUB]
 ```bash
 magnet:?xt=urn:btih:F63DF6EAED75ED53588B2515F4BDCACBB78DDF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ P.S. Качество — на риске клиента.(   Читать дал
 ```bash
 magnet:?xt=urn:btih:45C97951681E487F665C8E69C9CCB4C01F766BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ Cravagoide - Arborea (2012) [FLAC|Lossless|WEB-DL]<Ambient, Downtempo, IDM>
 ```bash
 magnet:?xt=urn:btih:4FD7F03AFB470FFEB7C97B116BBE4B944B93541D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7298B85FCF2E2EB120E717138794224FDDBCBC46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31A3F40A797D69C798BB2FD3D4B6D9225556C836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFBDE6EFA689F7D4BD39B2A49CAA578849AF4696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:330C6D47EA9004ADF6309848DE3CEB383524F638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C983AD21B0FA96D8AE2ECA5A8735BC95645C6171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ The Atomic Bitchwax - Gravitron (2015) [MP3|320 кб/с]<Alternative Stoner/ Hea
 ```bash
 magnet:?xt=urn:btih:2D80D8B2AB26A130FE79AAF5968D8BD6CCD358F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39AEC7B18190A329A228B328244EB5BDC2FB067C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Confined By Yesterday - Blackmirrors (2016) [MP3|320 кб/с]<Deathcore, Metalco
 ```bash
 magnet:?xt=urn:btih:A0D80C2025B0C631BC5B337DB4CF6C46982AC58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Condition Critical - Extermination Plan (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8B7372C913A18A0C01D6C4549E26A8D335ACA7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Novembre - Ursa (2016) [MP3|320 кб/с] <Progressive Metal, Doom-Death Metal, D
 ```bash
 magnet:?xt=urn:btih:FEB70EF2C9DBB399E8C33DDDCA491A1C7C1E4B99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Steepwater Band - Shake Your Faith (2016) [MP3|320 кб/с] <Southern Rock, 
 ```bash
 magnet:?xt=urn:btih:5AC845B57B25C6D3E42112FBAFA04653E80D83F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A787F620704B60920B99B5136B64D5EDE0B1045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Nuggets (Original Artyfacts From The First Psychedelic Era 1965-1968) (1998
 ```bash
 magnet:?xt=urn:btih:F7FE475765CA41F8F43AE2717B68A4DD2AC51357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

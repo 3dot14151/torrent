@@ -28,8 +28,7 @@ Samantha Fox - Touch Me (1986) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop>
 ```bash
 magnet:?xt=urn:btih:F224696C8E7BC411B245B1ABF84EA5B02BA817E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Blizzen - Genesis Reversed (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6EC20B3E7C4FE937B5E0868EB5A0E103506AB2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Suicidal Angels - Division of Blood (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6E9253FDFE0C93DCFBEDB2EB6E9A12E960BFB351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Death Angel - The Evil Divide (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:CF1677218968FEEF6D1D0579633336925C3ABA36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Human Zoo - My Own God (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic H
 ```bash
 magnet:?xt=urn:btih:35E39DC8811CC6670155FB8B0C02911C00AE9D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53506E4FA604E96686304A9D0526C4A8A105AB57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Lacuna Coil - Delirium (2016) [MP3|320 кб/с] <Gothic Metal, Alternative Metal
 ```bash
 magnet:?xt=urn:btih:72EFABD4E34560B6182A8F9EFEAF453CA6F02857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Jon Lord - Concerto For Group & Orchestra (2012) [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:6E6E8A50313970426EC23A97CE0F274FDE8B6D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:9E4196CBFBAC53A54471587DFECF78F8102D63BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

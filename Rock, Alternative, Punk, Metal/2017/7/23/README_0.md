@@ -22,8 +22,7 @@ Subterranean Masquerade - Suspended Animation Dreams (2005) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:B1B8E42992913CFFBC2D87E76E6EC8CCFD6C92F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Legion - Legion (2010) [APE|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:59153E3EED857720B2C3125956E96F20BD869524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Foster The People - Sacred Hearts Club (2017) [FLAC|Lossless|WEB-DL|tracks] <Ind
 ```bash
 magnet:?xt=urn:btih:B00989DF586CE480EB4D84FE709E6392246FF7A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

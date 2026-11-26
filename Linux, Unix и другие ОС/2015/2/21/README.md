@@ -19,8 +19,7 @@ Xubuntu — дистрибутив Linux, основанный на проект
 ```bash
 magnet:?xt=urn:btih:FF255549B31BA1330F650DC9C14FAB76F9F51FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Mythbuntu - это современный специализированный �
 ```bash
 magnet:?xt=urn:btih:6B08618AF3318BC4191165425AE9FF42CD88FCAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:35A8EDC1ADC2E89DACA26AC53DAF2B773F291170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

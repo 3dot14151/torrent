@@ -21,8 +21,7 @@ VA - Саундтреки из шоу Танцы (2014-2016) [MP3|128-320 кб/�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ LEGO Star Wars: The Force Awakens (2016) [Ru/Multi] (1.0.3/upd3/dlc) Repack =nem
 ```bash
 magnet:?xt=urn:btih:2002D31B1F19A34A5FD075A0FB197FAABBD99E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Acronis BootCD - загрузочный диск, содержащий паке�
 ```bash
 magnet:?xt=urn:btih:D7915ED69E5CD63A972FC736813BB8DB443AA95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ STAR'цы (2015-2016) WEBRip [H.264/720p-LQ] (сезон 2, выпуски 1-31 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

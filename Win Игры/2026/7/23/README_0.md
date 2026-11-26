@@ -19,8 +19,7 @@ Origament: A Paper Adventure (2026) [Ru/Multi] (1.8.91o) License GOG
 ```bash
 magnet:?xt=urn:btih:1EDC6738C49337E44AF061E6B34E04CE50D14C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LIFTED (2026) [Ru/Multi] (1.0.8438) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C5132C354F709DA2FFA14B1F8F9EB70C194FF369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Samurai: Ronin’s Path - это хардкорный экшен в сетти
 ```bash
 magnet:?xt=urn:btih:601ABA6F74E18FE3F477C57F364CA62379A9FE60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Reviver: Premium v1.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:9D66829F65E1369DEE1E12DEFFC8FDBFFA3B50CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

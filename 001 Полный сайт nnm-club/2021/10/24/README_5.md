@@ -18,8 +18,7 @@ Tinytopia (2021) [Multi] (211013) License GOG
 ```bash
 magnet:?xt=urn:btih:A59C2C64671B77C0BFBF754EBE0411BAF0D3F815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2509) License GOG
 ```bash
 magnet:?xt=urn:btih:7D25513E1326B75E3B265BCACE74D53500BFEAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Cinema 4D – программа с мощным современным функ
 ```bash
 magnet:?xt=urn:btih:39716926709E8191EF3EF583270AFDE91334D72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Star Dynasties (2021) [En] (1.0.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:17CAE33169F48268987F6F2AE963241F7DF32122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:945C010E43D9ECEC633F1D5A75E0B3DE181AC34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Defender Tools — это небольшая утилита от Ratiborus, ко
 ```bash
 magnet:?xt=urn:btih:D506532E7634C46E43202DD7E327417A28480FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8162F81EE84AB009EA7436AA6E1F9F138941BF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Starmancer (2021) [En] (0.1.49) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:8D137728A37624CE9B133680951ACCC88BA2ABBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D9749ECEDF7C02E5A5547B65FA34A00CCCFE3B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5F0AAFECC7F9E0AB83BA83F4848792A58F7AEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45B767C5AB79992BB2731E01F604FC7B89664350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ VA - Beatport Synth Electronic: Sound Pack #358 (2021) [MP3|320 Kbps] <Synthwave
 ```bash
 magnet:?xt=urn:btih:ED12BC073E33922C513164E0929D718CE08219F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Pure Tuber (ex. Vanced Tuber) v3.1.8.101 + Mod [Ru/Multi] (обновляема�
 ```bash
 magnet:?xt=urn:btih:44C1363C37C06B4A683A9600612AACEC8CA9C1AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ Death Trash (2021) [Multi] (0.7.23) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:A91B4759BFA079739425A2F0A7B8E9D4A6415D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ Timberborn (2021) [Ru/Multi] (20211021) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:20F446BA1D7CCB3A4A2924CADCF51F41E331B11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7 (A)) License GOG [Deluxe]
 ```bash
 magnet:?xt=urn:btih:A5AF6BD4BDB9E5EB7C312ED2D0A4DF92F09E5304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8E96E3D7E5C76FB55F67139BAD7101060E3F3C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B712E26627AE63CB1F9A1FC21079D722556271F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +523,7 @@ Microsoft® Windows® 11 Professional VL x64 21H2 RU by OVGorskiy 10.2021
 ```bash
 magnet:?xt=urn:btih:B34288C16FA0F4E75678A74331A061AF8D8B2BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +548,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:D4BACC253697ECFB157DB2F8940CAF6DBE47D173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA70A96FBFA062FDA51A80308DD6A8BF3806DADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82F49B1A251198D221925F99A4865F114B5E7189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ Tom Harrell - Moving Picture (2017) HighNote [FLAC|Lossless|tracks + .cue] <Post
 ```bash
 magnet:?xt=urn:btih:7B80DE17D572B22B448266DD685B9A644E7E50EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ Hex A.D. - Funeral Tango for Gods & Men (2021) [FLAC|Lossless|WEB-DL|tracks] <Pr
 ```bash
 magnet:?xt=urn:btih:488FF4A79557868747B18837F7A914B86444B86D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

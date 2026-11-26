@@ -19,8 +19,7 @@ Calavera: The Day of the Dead / Calavera: День мертвых (2013) [Ru] Un
 ```bash
 magnet:?xt=urn:btih:4F7EC49E1E486F5A8507F0FEDD032EFD5F0099B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Clarc (2014) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:41F4EE745FB267F918BDA2E8D570E092D02CEC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Venetica (2012) [Ru/En] (1.2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C56B2F702555A78B7BA55B21ED8A69023D6FBD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cyber-Chicken — бесшабашный 2.5D платформер с кибер
 ```bash
 magnet:?xt=urn:btih:FAC9C25A76E065AE0DAC3EB48CDDA08EEF637DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

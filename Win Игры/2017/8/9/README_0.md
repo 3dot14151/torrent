@@ -19,8 +19,7 @@ Myths of the World 11: The Black Sun / Мифы народов мира 11: Че
 ```bash
 magnet:?xt=urn:btih:C4E5CDA29EEEC9D032009A5835DAEED1EC917A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sine Mora - великолепный сайд-скроллер в жанре sho
 ```bash
 magnet:?xt=urn:btih:FAE4724387F586B5208E109680DB6FAC51B69E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Peregrin — это сюжетная головоломка, объединив�
 ```bash
 magnet:?xt=urn:btih:C5906EE9D480DA8226F9A392601C3DC5D8F119F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dead or Alive 5: Last Round - это доработанная версия зн�
 ```bash
 magnet:?xt=urn:btih:AB3FD8ECAAE5F166916370D8EE3036E3141CD27E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Texpad это редактор LaTeX предназначен для прост�
 ```bash
 magnet:?xt=urn:btih:E5FA2659C1B76F0E49791A7E1310E3EDEDBE4877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ TextSoap для Mac OS - Поможет подчистить текстовые 
 ```bash
 magnet:?xt=urn:btih:6D39FC185EE6C625920EBC5E3E5ED218FB3EC0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC30D2FF4454A1E33DA7625DFD48076D862F42A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Downcast – программа для загрузки и прослушива�
 ```bash
 magnet:?xt=urn:btih:43E31FA0B77F7F2992A7A402F43E88B91C618F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Middle  просто добавляет возможность сделать «
 ```bash
 magnet:?xt=urn:btih:9E99E0979CFB52263C5117BFC3E182577A5F4673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Storyist для Mac OS - является мощной средой для ра�
 ```bash
 magnet:?xt=urn:btih:4B686B2A5AFD4B4014798A52754C1B8C8EDF32DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:978821409486808EDF9A4D851FBB96CFB9ED2BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ iconStiX предлагает обработку нескольких объек
 ```bash
 magnet:?xt=urn:btih:F963889895669C943C3286A15A45B7E0B779A546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Caffeinated 1.19 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:04D99BBC806B841ED6C3BB26E5D7DA3464185EEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Bonded - Rest in Violence (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7E397794D48B76C10C99E61BAA5AE757EE27A673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ After Forever - Emphasis - Who Wants To Live Forever (2002) Limited Edition [FLA
 ```bash
 magnet:?xt=urn:btih:55C86FB09CC299D5FEF91BAF8C579898BBEE2350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Temple of Switches - The Wings of Mind (2020) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:BE6CDF9E21A53D75FBC5A9FBB45C1F8337E3BBEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Don McLean - Starry Starry Night (Live in Austin) (2020) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:3C04922C460187C3EEC908047C4DBFF7E6A56F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ After Forever - Energize Me (2007) Single [FLAC|Lossless|image + .cue] <Symphoni
 ```bash
 magnet:?xt=urn:btih:86AFE92BB690E71B4A7BE9B751CD1AB8BC85970F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Trishula - Time Waits For No Man (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic R
 ```bash
 magnet:?xt=urn:btih:A2C8AF79068D9ED4C91F7FFF4AD4DD5128EC0C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ After Forever - Follow In The Cry - Silence From Afar (2000) Limited Edition [FL
 ```bash
 magnet:?xt=urn:btih:C7DB89D0E7E70FD3A85A469552CD5D4ED8FA45B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ After Forever - Monolith Of Doubt (2002) Limited Edition [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:87BE4710CA4586A54A0F1507F24E07689883B661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ After Forever - Prison Of Desire (2000) Reissue, 2003, Transmission Records [FLA
 ```bash
 magnet:?xt=urn:btih:EEAF3AA61A9A3C91AE0D3147F4DBBF34DDB7D387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ After Forever - Decipher (2001) Reissue+EP, 2007, Avalon [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:C3410BB706B94ABE4CBDEAEABE4776EA375644AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ After Forever - Remagine (2005) [FLAC|Lossless|image + .cue] <Symphonic Gothic M
 ```bash
 magnet:?xt=urn:btih:87F19765BE1DB075DE7BFD5251A6FC8D7BA9FC44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ After Forever - After Forever (2007) Japanese Edition [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:7530C2BAB34F4026AF3B930FC13B9C1F28987ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Ad Infinitum - Chapter I: Monarchy (2020) Limited Edition [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:06B528B046E150CC93DE4524EFE0F78851875243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

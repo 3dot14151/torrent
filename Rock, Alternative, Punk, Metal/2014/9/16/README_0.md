@@ -22,8 +22,7 @@ Undercurrent - Expectations (2014) [MP3|256 кб/с]<Screamo, Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:8BBA991115A6CEC6F1426FB419A1C8D5567688FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Plank - Hivemind (2014) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:FE5466C3E0A9E0FCC8B7BA6BBFE838B0F162D19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Lunchbox - Лицом К Лицу (2014) [MP3|320 кб/с]<Alternative Rock,>
 ```bash
 magnet:?xt=urn:btih:E602DFF6806296F1A11237F2450DCC2B733BC70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ String Theory - At The Edge Of Universe (2014) [MP3|320 кб/с]<Melodic Death M
 ```bash
 magnet:?xt=urn:btih:CA96381168BA735498243BD7A8D519EE49A059C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ War of Ages (ранее Point Zero) — христианская металко�
 ```bash
 magnet:?xt=urn:btih:D125B6A6AA77A1E88D36882873B74C8D766A3365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Red Zone Rider - Red Zone Rider (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:22C066806B3DA1BF54BED413F97E83C32E925055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Bungalow Bums - Lawless Days In Reservation (2014) [MP3|320 кб/с]<Rock, Psych
 ```bash
 magnet:?xt=urn:btih:6BF155BFFBF41169411E282333C9BA7DDDD10123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Flyleaf - Between the Stars (Special Edition) (2014) [MP3|320 кб/с]<Alternati
 ```bash
 magnet:?xt=urn:btih:D45D9509762FFD175931E43BD3601D754A9F3D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ Celldweller - End of an Empire (Chapter 01: Time) (2014) LP [MP3|320 кб/с]<In
 ```bash
 magnet:?xt=urn:btih:E33A9A21B7ED04FB4647D8110D470F82B68F2945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:191CE17D6A952BDA6C83468845892048A2C40F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ Leonard Cohen - Popular Problems (2014) [MP3|160 кб/с]<Rock, Folk Rock, Blues
 ```bash
 magnet:?xt=urn:btih:D66FCBA36877CBDD1FE0AD03B910885307D529C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2816A8498DAF6A586AE9BDA332CC7D53B94339B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FC5D380CBEBC0160AC918CE106ED0510D7C6599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCD81C8BF8495459066F1CC8941CA7F34BF25D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

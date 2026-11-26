@@ -19,8 +19,7 @@ The Dreamatorium of dr. Magnus / Дрематорий доктора Магну�
 ```bash
 magnet:?xt=urn:btih:D000FA44EF29C7CB1358A918832E7613BABA6EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Unfinished Tales. Illicit Love Collector's Edition / Незаконченные 
 ```bash
 magnet:?xt=urn:btih:94BE4D76B507D2F903C6972266C216FE7630176B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Painkiller Hell & Damnation [Ru] (Repack/v 1.0) 2012 | R.G. Games
 ```bash
 magnet:?xt=urn:btih:36B6531F8FD76C5366061E2D37A41C17387A2B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

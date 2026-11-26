@@ -19,8 +19,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:1C0368BFE6107BFEF4091BAC046B6A1A5BD7638F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:972E00698CBD55F1210AD5B66A8CE76576955CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:CA05FEF04C143E453E9780CE6486292612CECA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ R-Studio Network 9.5 Build 191671 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:58A7CFBF954EF8724B3D32D9889E817C6F273C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ R-Studio - основанная на новейшей уникальной те
 ```bash
 magnet:?xt=urn:btih:008B6D03FE460EEA4E635200292420309CA1D543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:20309307B792CF55493F3BA1C069458B42D84FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Uptooda (бывш. Image Uploader) – бесплатная программа �
 ```bash
 magnet:?xt=urn:btih:6916EAFEB98E2632A6108647FA71BB0EA453F623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ IsMyLcdOK - небольшая бесплатная программа для о
 ```bash
 magnet:?xt=urn:btih:FDFEEE79E2A15FF39731933C65BA52397CECAFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:AF30E941ED6C172D96DCAFA667D0C2084B2B5BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:101A6D090A71EB6BCD4F62D22AE63B69367AFC29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ MediaHuman YouTube Downloader 3.9.18 (3012) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:30615405D865E2AAB2E2138DE53C8B5E2EDD6D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ NVCleanstall - портативная утилита от интернет-по�
 ```bash
 magnet:?xt=urn:btih:16C656DB032D9327BAADCB404661C6ED8085537B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

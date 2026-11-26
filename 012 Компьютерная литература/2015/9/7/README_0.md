@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F5D76768A64AA697A94079751B423471C26D8273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFCC9496E690EB56D4BA2E8E0429DFA7AAF75729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LabVIEW - это среда графического программирова�
 ```bash
 magnet:?xt=urn:btih:FE231ADFF375502DA6D33569F00A7BE7A7F74E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

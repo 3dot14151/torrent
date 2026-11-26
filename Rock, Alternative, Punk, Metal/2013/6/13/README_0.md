@@ -24,8 +24,7 @@ Revelation's Hammer - Revelation's Hammer (2013) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:2A74AAA248FE7169BF8B9F8F49E363CD194964B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Crows - The Dying Race (1991) [FLAC|Lossless]<Progressive / Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ David Crowder Band - Give Us Rest (2CD) (2012) [MP3|192 кб/с] <Christian Rock
 ```bash
 magnet:?xt=urn:btih:06251E756082724D38C4FD0A82E88CF2DD6D6D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Cydia - Evil Sun (2011) [WavPack|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Cryptic Wintermoon - Of Shadows And The Dark Things You Fear (2005) [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Terra Nova - 2 альбома (1997 - 1999) Japan [APE|Lossless]<Melodic Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Jorn - Traveller (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Theatre of Tragedy - Velvet Darkness They Fear (1996) Japanese Edition [FLAC|Los
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Dark Moor - Ars Musica (2013) [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +363,7 @@ Dirty Shirt - Freak Show (2013) [MP3|320 kbps] <Alt. Metal / Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:C0399B8FCB92C23FC2433B0459A63D5C0D91FF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ Black Sabbath - The Singles 1970-1978 (2000) Limited Edition 6CD Box Set[FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +417,7 @@ Iggy Pop - 3 альбома (1988 - 1993) [FLAC|Lossless]<Alternative Rock, Punk
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +446,7 @@ Golden Earring - Moontan (1973) 1991 Remastered / Polydor [FLAC|Lossless]<Hard r
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +480,7 @@ Electric Light Orchestra - Live (2013) [FLAC|Lossless]<Rock, Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +514,7 @@ John Fogerty - 11 albums (1973-2013) [MP3|320 kbps]<Rock, Country-rock, Country,
 ```bash
 magnet:?xt=urn:btih:6370DC04C187FDB01DB3F5406FC7FA3130925B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F82B77AF0C3BE3CBB4D4C89D385E11D35E121C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +582,7 @@ In Flames — шведская группа, играющая в жанре ме
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +616,7 @@ The Beatles - Stereo Box Set (USB Limited Edition) (1963-1970, 1988) 14 Remaster
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

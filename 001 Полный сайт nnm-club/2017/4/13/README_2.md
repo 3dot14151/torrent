@@ -18,8 +18,7 @@ Paul Van Dyk - Touched By Heaven (2017) Single [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:65244BCDE90AABC3AA83D525B3D5300E03238BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Middle Man / Средний человек (2016) WEB-DL [H.264/1080p-LQ] [AD]
 ```bash
 magnet:?xt=urn:btih:39A0F888FA9499F52716ABC009F8A5808D5872BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Above & Beyond - Anjunabeats Volume 13 (2017) [FLAC|Lossless|tracks+.cue] <
 ```bash
 magnet:?xt=urn:btih:E06F6912D4B738FE39B1A3231901C6DD036F4879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12] BDrip 720
 ```bash
 magnet:?xt=urn:btih:8F52AEFA80C00C3CA0BCDBA7DD3B3C063C6B954D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:45A691CECEE7867CF61576B74E12954E0E13887D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:3186DB84580C264B18B43052713DD537F5810C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7B8E08ABBC25A7BB4F085A472CEDE6A0BDD2070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - Armin van Buuren - A State of Trance 800 (The Official Compilation) (2017) 
 ```bash
 magnet:?xt=urn:btih:8BA9A21F1C71DA9D1930645B29C855286B1A4A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E953C548DE054FB58E56B374D642998ABB921D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FF6C1460ECD36146340B5701BE93684510A226B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Eric Clapton «Live In San Diego with special guest JJ Cale» (2017) DVD5
 ```bash
 magnet:?xt=urn:btih:765D2A7AEC0B0D4734FA35D87BA47341631B766C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7547838DDFE471F2C5E5B3E8B9912F37F858F9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF7D115E6C110CE150513D9DC342B4F6384D76EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Jamiroquai - Automaton (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Ac
 ```bash
 magnet:?xt=urn:btih:517D734BCDB4290814E1AABC410D8BEEAE262E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ Tommy Emmanuel - It’s Never Too Late (2015) [FLAC|Lossless|image + .cue] <Jazz
 ```bash
 magnet:?xt=urn:btih:07CCC5F5458429CC8A035E6C0BE2BDB4909D701D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00FD753FF5754EAA13BDEFFFE838E7F97E82F850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Audirvana Plus - мощный аудиофильский плеер с широ�
 ```bash
 magnet:?xt=urn:btih:1446B5D9AC315768AD3DAF0FFFD17A5279E3B641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDE87A0F52857875081B186D1969C416E63743CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2F5DDDB4DE04C64F06CF593CD30C678C00DC003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C5FB69B9FEDB7EC9037CE5D9B4922ACC6D66779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ Opera 44.0.2510.1218 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E87B1F8F5DD735DBDC0DCB3A29BE710779A8D8BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A3F2E562274743FAC71C211A35CB36866557ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62230EB61C301B4C256BDC9E4F577FD14C8CBCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C78A4D73D7752431F6A3C87EED8025DD2827390B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ Vivaldi — интернет-браузер, созданный компание
 ```bash
 magnet:?xt=urn:btih:68713E520B963E85B54EF75BEF0A98241142A63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ Gürcan Erdem - Discography (2006-2008) [MP3|256-320 кб/с]<Disco, EuroDisco>
 ```bash
 magnet:?xt=urn:btih:AFB3F6B4BE88179E41CAC4EE0B799CF5FE76DB63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

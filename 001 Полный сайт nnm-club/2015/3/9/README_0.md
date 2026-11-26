@@ -22,8 +22,7 @@ Nessi - Rolling With The Punches (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:A0C05850CE05348B8D371EFC8B1A8193F50EECC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Funky DL - Jazzmatic 2 (Nas Remixes) (2014) [FLAC|Lossless|Web-DL] <Hip-Hop, Jaz
 ```bash
 magnet:?xt=urn:btih:BBED63E242694427BAADD398F74DA784F853CD73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Sodium - Haven (2015) EP [MP3|320 кб/с]<Hardcore Punk, Crust>
 ```bash
 magnet:?xt=urn:btih:55C45A06B65A282E9BFF151395267E0D0CF5506A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ VA - Anjunadeep pres. Deep House 02 (2014) [MP3|256 кб/с]<Progressive House, 
 ```bash
 magnet:?xt=urn:btih:E2684C8D964044DF2D9FF5655B3235162DD4BA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ The Wytches - Annabel Dream Reader (2014) [MP3|320 кб/с]<Alternative/ Indie/ 
 ```bash
 magnet:?xt=urn:btih:3124E88CA09CAEFADF247AC87C004586A6A0E1A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Soul Scroll - История Ушедших Дней (2015) [MP3|320 кб/с]<He
 ```bash
 magnet:?xt=urn:btih:8941FCFFAE48188E66AE044851566531EE8544D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A737FFC5A69DDF53CC4EF8B32F92DA267053B583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ MisterWives - Our Own House (2015) [MP3|320 кб/с]<Alternative, Indie, Pop, So
 ```bash
 magnet:?xt=urn:btih:757A9731D6D42E2935C5051F00DE2BC0D8FA90DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ Enabl.ed - Saccharine Morning (2011) [FLAC|Lossless|WEB-DL]<IDM>
 ```bash
 magnet:?xt=urn:btih:A9186925CBB7E195EE82A2E15CB386485D6A0C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ Like A Storm - Awaken The Fire (2015) [FLAC|Lossless|WEB-DL]<Alt. Rock | Modern 
 ```bash
 magnet:?xt=urn:btih:5031CEA0C193539BEE1428BC0DFF7E4B1C28E9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ VA - First Class Lounge (Best Of Easy Listening Flight Collection) (2015) [FLAC|
 ```bash
 magnet:?xt=urn:btih:8BDFA94963F93BDAF59E89D39F7390050E563A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ VA - Девочки танцуют (mixed by Dj Vitalik) (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:D70FBB967EE4137774BAF531658B9DCF65FF194D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36B62D3DF86EFA3B5C3FA35E17FFB2E2713AB317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ Funky DL - Jazzmatic (Nas Remixes) (2013) [FLAC|Lossless|Web-DL] <Hip-Hop, Jazzy
 ```bash
 magnet:?xt=urn:btih:32E8CB2F31D79E678E32A1A2C090134366F652E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ Zero Cult - Inside Out (2015) [MP3|320 кб/с] <Downtempo, Psybient, Psychill>
 ```bash
 magnet:?xt=urn:btih:F9B9372807BFBC25906DAFC13FDF1C3EBACB8459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ VA - Девочки снова танцуют (mixed by Dj Vitalik) (2015) [MP3|
 ```bash
 magnet:?xt=urn:btih:B00B7821E4DB6B4CB56F96C04A1111FA842BFEEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:488F65EB51B3739026CDEE34DC34F65B628406CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB50F3F42151EDF005C70104C3AF7A179EADB81F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73FC305E09CBE568C96FECA59384C38DC5BC9483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9602813C1E789DE6B9D92528A6F00DBA13E89EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BC6206E2BC9DFFE9916331272D04D9B1EA65D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ VA - Tallinna Lounge Collection Vol.4 (2015) [MP3|192-320 kbps]<Chillout, Downte
 ```bash
 magnet:?xt=urn:btih:09560057C02733AEA4242EDDCF45F7862954D450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ VA - Vocal Trance Hits (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:44A87A001C3312CB158F2FCEF2533C70CC9C9207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7B98E865F1CFED0660420271536212FF6A680C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F25F338D527CBFCCD926DC90CA02E3807EC5721A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

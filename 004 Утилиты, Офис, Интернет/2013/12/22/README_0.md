@@ -20,8 +20,7 @@ DVD Decrypter никогда не позиционировался как "ср�
 ```bash
 magnet:?xt=urn:btih:6814A54E78684EB7CDA6BA9B533C9248811EE207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

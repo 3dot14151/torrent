@@ -21,8 +21,7 @@ East India Company Gold Edition / Ост-Индская компания Зол�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Tropico 4
 ```bash
 magnet:?xt=urn:btih:E0AB3A14C9F9D9F9A4597FC917770C022C397FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Death Road — это футуристическая гонка, действи�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Hidden Mysteries: Royal Family Secrets (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F3870514D1F6001E6B220D21945303EEDBDA9AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

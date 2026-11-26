@@ -18,8 +18,7 @@ Microsoft SQL Server 2016 13.0.1601.5 (RTM) [Ru]
 ```bash
 magnet:?xt=urn:btih:57DC74AC2090AF444ED3861CB3542A3A66FA583B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C1F80978015F6E4C6F6EAFBE5EBE5C666DC44CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FC4BF8FC09EB8ED2F7E00532A0BC7AB5DACB984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

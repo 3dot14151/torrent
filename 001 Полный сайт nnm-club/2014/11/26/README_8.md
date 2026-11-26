@@ -25,8 +25,7 @@ Fever Dreams - Life Has Departed (2014) [MP3|320 кб/с]<Dark Hardcore, Blacken
 ```bash
 magnet:?xt=urn:btih:16C31AC8B2F26BBDD1938FC23456A969E89BB241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Fall of the Idols - The Seance (2008) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:26A731B862DA7C958D510704E34E1F86A34D0D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Fall of the Idols - Solemn Verses (2012) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:9E83B07C0A92F6BDE6AD132E8784AA1EA16EA2CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D85792DA6C50EC7224A3FD116EA93744D2A69C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Taake - Stridens Hus (2014) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:F40B7BEDBCECBEF4182B14DF1DDCCF385FC1E75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ VA - Winter Chillhouse Favorites (2014) [MP3|320 кб/с]<Chillhouse, Deep House
 ```bash
 magnet:?xt=urn:btih:5D87B01B579F50D07425A36530405986B68E6C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Rick Vito - Pink & Black (1998) [MP3|320 кб/с]<Rock, Rockin' Blues>
 ```bash
 magnet:?xt=urn:btih:0C147C86502335FDF928E3F90EAB3B27B642C804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Jaimee Paul - Christmas Time Is Here (2010) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:BEF14C5C5356B2EF7C4AFAAA3235D53B3887A06E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ VA - Look at Me - Hot Lounge Music (2014) [MP3|320 кб/с]<Downtempo, Lounge, C
 ```bash
 magnet:?xt=urn:btih:2FDC13BA758D0D71171F3922020A8283AE72DA28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ VA - Bullseye Blues Christmas (1995) [MP3|320 кб/с]<Blues, Christmas>
 ```bash
 magnet:?xt=urn:btih:8C5967E2936247E18E951DF5ECF4BC2A0698987A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:425EF958BCF70C1B96E99FDB85F7B6822C24B023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ John Coltrane & Milt Jackson - Bags & Trane (1999) [FLAC|Lossless]<Jazz, Hard Bo
 ```bash
 magnet:?xt=urn:btih:23AAACE129D94AF96696D735D6C98FD2E902CEB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69EF18E99A4731E25C79E0243C777EA30503E7D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF690FC2CE5577094A51BA1D4960754506A9CF91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55ADE71B1AACBF80A084F32E127457DA0C142311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ John Coltrane - Transition (1998) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free I
 ```bash
 magnet:?xt=urn:btih:BB5E1BC6B35896E4AA3F699E481E54C374771A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ VA - Planet V.I.P. (Mixed By Jumpin Jack Frost) (2014) [MP3|320 кб/с]<Drum & 
 ```bash
 magnet:?xt=urn:btih:D127BE9E09897BC5D279FF5CB59A38AD92C0C6F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +539,7 @@ Engel - Raven Kings (2014) [MP3|320 кб/с]<Modern Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C226764E70F1FA5F7519FBD5D6B0379CB135E76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E454D331175941F1EB130D972E2AC31535CFB4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ The Band Perry - The Band Perry (2010) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:9BABB4F8F0A1358BE3E10B4ACEF9C72181344804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AB4A936BEADA52E836247A96C6B479BF45D8F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ Lucas Rossi - Return of the Sun (2014) [MP3|320 кб/с]<Electronic, House, Prog
 ```bash
 magnet:?xt=urn:btih:2AB6183E6F5713B3E25B7EA0063E21D6E174387D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +682,7 @@ V. Ватикан на службе империализма. (   Читать 
 ```bash
 magnet:?xt=urn:btih:C48D86F0EA09A815F6D8CA9CAF6C74EBEBC51F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +716,7 @@ VA - Progressive Psy Trance Picks Vol. 16 (Compiled By Vaishiyas) (2014) [MP3|~2
 ```bash
 magnet:?xt=urn:btih:FB6B16595D88AFB6CDFA03DA59F4EF208A1378FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +747,7 @@ Stan Getz - Yours And Mine (1989) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:584DDDED537C642423EAFCE234489BAFDC479A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +779,7 @@ EPs:
 ```bash
 magnet:?xt=urn:btih:44234320FFDA94AB934D0534205D09A82E9FD438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Gunnar Svensson - Head, Fingers & Heart (1995) Phono Suecia [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:6776AFF1046958696AD15A0EC18A69B284993203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mose Allison - Lessons In Living (1982) 1994, Discovery Records [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:E0ABBF05574B6D134145B8BA2829FB063ADCBD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9F4EC06FAC31C2C20195EF9BE4B7404496D0F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Club Sounds: Futuristic Electro House (2019) [MP3|320 Kbps] <Future House, 
 ```bash
 magnet:?xt=urn:btih:E7F1BD5403879FA2DC23536A7007A845B4DA46C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Nothing To Lose (2019) [MP3|320 Kbps] <Indie, Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:8BDCEA8D3F58F1A39302BE16554F272D842C61DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Wondershare Recoverit - профессиональное приложение, �
 ```bash
 magnet:?xt=urn:btih:3AB4EB4A0F57BBC9524ADA5FD26CE48AFF28BDEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1065B80A4ED8E69019C5F758E7B480201A3B0BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - Autumn Mood: Positive Session (2019) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:E1DA83CBC745344615D715069A0A1A2E742BAAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 ```bash
 magnet:?xt=urn:btih:C2D1AC6494620D4BBAC6ADB3DBBEFD6894CED263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A8A4E2BBFCBEA2BDAEF4FE81E6D7BAC3B300CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Alex Wright @ Luminosity At The Beach, Beachclub Fuel Bloemendaal, Netherlands 2
 ```bash
 magnet:?xt=urn:btih:1109468B962B2E7E644045CC82E7E8FC3394C367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FE087C8B7B5E5B015E80FA17B1E0AFA4550B982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Gaikotsu Shotenin Honda-san | Skull-face Bookseller Honda-san | Скелет-к�
 ```bash
 magnet:?xt=urn:btih:C991A987881F772F1B59EBA252CB63D8829BEB94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F23378EEB9642F503AD3E7E2FB5F0AE7B5C247EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D08A7294336F4C395639D9B697D7FDF3DDBD7F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16E8073596221B326389C12EA5B5FF28F420B8AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43FB78AEECB0235AF2B801E3301D584297080BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C1E6C5833CEF480DD32FED082C13B08F3D50F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Uratsakidogi - Black Hop (2018) bonus track edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:6D77969C4B320E8863815C31D3BE5017D852BC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ A1 Ai No Banka
 ```bash
 magnet:?xt=urn:btih:62046206D8BC624EE55326F6E99665A95C91B372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBC8A040C7C6063E42233E044CB20799BCF1F224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F22C76B68AACEDD29C1C24D720E5331CC87FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:441A8C9DF2FC9FAE04281D273B1CD74CB8472FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81E95517284DB7CACD85B499BC022E782246A686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ MathType — это мощный интерактивный инструмент
 ```bash
 magnet:?xt=urn:btih:BF4197E940EBA0A5C8497CCD4F57C59C49F2857F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

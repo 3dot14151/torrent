@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7B6DD3A43CF12CDC5DCC7AA63A1394D23BFBBBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:E08452FBA921D9634A7BA16CDA9CD3C51B19DE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CF6CA501BE4F17AE6961DC3C85B0D25170AB976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:B5DB514BDA8B61BD3B8617E48189C6A5CB2987EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SpectraLayers расширяет возможности аудио, отобра
 ```bash
 magnet:?xt=urn:btih:11E073A8F8AAFD07EC8F01806FB72067659DC4F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Ricky King - Compilation (2022) [MP3|320 Kbps] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:55BFAE3FE876ACBD73E07E19C29B336C9870D50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ EssentialPIM - высокофункциональный менеджер пер�
 ```bash
 magnet:?xt=urn:btih:1A89FC99FD7F1A38533DA8082EF4F6C6694C34C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E13FDBA5903E8CD2FD91258A8B879047CED66181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ VA - Morning Chill & Relax 2 (2022) [MP3|320 Kbps] <Pop, Chillout, Other>
 ```bash
 magnet:?xt=urn:btih:76F20992923ABE51A980D6CEAEBD657C73D7A438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Ashampoo UnInstaller — это ваша подушка безопасности
 ```bash
 magnet:?xt=urn:btih:FEF4812C89FA5FC0E1AE757495AFABAAC8166ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:57D4AC59A073D4441B7E72EFFDA67288D941A643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:90601348CB77815739C107C80BF81CF5745BEA21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C47CA5D0511F73018ADA3D456FF09B1CDB5A8B99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:39F73EAF41043A39AB035B3594443D2FF2482A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:D76382A9593D7E36BB14B760832F69B5557237F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5B90E79B2515610804DAE2C80A819CDB06AAE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:01A47E5134C4DB4546AC5231EFE09E03EBB8F8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ Windows хороша, но всегда есть, что улучшить. Во�
 ```bash
 magnet:?xt=urn:btih:7B266955C556F4608D5B1388C6A3529BD13797BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9643292CAD2E271785D700EFC42AA16B3B0A8C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ Imagine Dragons - Mercury - Acts 1 & 2 (2021) 2CD, Deluxe Edition, 2022, Kid Ina
 ```bash
 magnet:?xt=urn:btih:F5712F3B8567F6D0760E715511ED7914F4B85D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77B31D01C5340A7752691384136CD549912B4232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ AAF DCH Optimus Sound Realtek Mod, аудио драйвер "всё в одно
 ```bash
 magnet:?xt=urn:btih:8CB46435EC469699FF6E0EDE0DF32CF0A7779FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +582,7 @@ Blender - бесплатный редактор трехмерной графи�
 ```bash
 magnet:?xt=urn:btih:A0151E83813BE8AF0E5D9CA41480B8BAB71BCA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +607,7 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:396C8DEE89C3B0945F0FFAD7CE06E4083232F3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +634,7 @@ O&O Defrag Professional – инструмент дефрагментации д
 ```bash
 magnet:?xt=urn:btih:1AAD8C8546C5994D9D52B445887E15AADDFD16AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:FD36E4ED61E2D7504E14D21CFC09F0DF42FA18BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

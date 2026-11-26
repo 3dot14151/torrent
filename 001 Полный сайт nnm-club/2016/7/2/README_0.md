@@ -21,8 +21,7 @@ VA - Русская Дискотека ХХ Века - 13 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:3FDFFC85E43B21AA06F1330B2EE1288D7A4D2DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BF197DD6700FD806AF7376AD66979EC0AFCD8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Зарубежная Дискотека ХХ Века - 39 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:C59675CE0D92D5DC1F788B08BC405683D4E05FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Русская Дискотека ХХ Века - 14 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:AA99E42E9A7DF6898BB4A966CA4D5726AE791752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97422DCE1CC879419ED711638F115B540FC1EBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Зарубежная Дискотека ХХ Века - 45 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:9E48CF800FB1943E489605A1EFE1A60C98085115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Sugar - 2 Albums (1981, 1982) [MP3|320 Kbps] <Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:24E64AEA968239C28C6EFF6F00295BED21E52CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Русская Дискотека ХХ Века - 16 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:FFD5DB8D4E18051DDD3E404453FAE57C5145AB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Capture Gif 1.4.2 [En]
 ```bash
 magnet:?xt=urn:btih:5F859783573369849B7848A9F841A094F1104D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B88D5C451957E8061F80CA8F4F475F742537D3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ VA - Русская Дискотека ХХ Века - 19 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:9C35112BC56F298BB12BF7CFF408E3E777C01F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ VA - Русская Дискотека ХХ Века - 12 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:FF750B3EFDC00B251D26B68D15337F696CEC4671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49FA4A65A4338C5F4331857D66ABFACB9079DE79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Greg Howe - Sound Proof (2008) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:2083D0C73F75E997A3A64B7C9027F478CD947326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ VA - Русская Дискотека ХХ Века - 15 (Именной) (2010
 ```bash
 magnet:?xt=urn:btih:B2E393E7B492FD1F91005216160736A2FDAED9A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:975A7A9514E0BAEA2AB7EBC1B722E483C68C4B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01A0FC3E718991FAF959CEC597D92AB20A7674B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ DJ сборникЖанр: Deep House, HouseПродолжительность: 
 ```bash
 magnet:?xt=urn:btih:A1BD02CDDECC700B0BCCCF4B2E48763A3A6ED1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF45BBBB761A31FF0247FF2AA37D5BEEEF42D2F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ VA - Planet Pop: Summer Version 04 (2016) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C92550BF5B450DCF21362CBD2791C4A90D8F3768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ VA - Ibiza Sunset Dreams Vol.2 (Compiled & mixed by Dj Zappi) (2016) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:DA854D472218CB508581C71A02F9AB6DFE8E7E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ Timelime является идеальным помощником для:  Фр�
 ```bash
 magnet:?xt=urn:btih:626B14D106B0554AA54CFBB2E460A6A78AA3C249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ VA - Русская Дискотека ХХ Века - 11 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:2F0DDBA12392B4CBE494BEA0551F9CAA1265DCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBD34558AD40F869ABE36F22FE89B74901B6C1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2F2E8F8B9CF97E1684BEF236E44E8F994563E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ VA - Зарубежная Дискотека ХХ Века - 46 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:44B1B095D059444F52203E1E51E9AEBB783F2118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

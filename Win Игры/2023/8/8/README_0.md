@@ -19,8 +19,7 @@ ArcRunner - это захватывающая киберпанковый экш�
 ```bash
 magnet:?xt=urn:btih:6CBD67D28A4FE47B4CC7DF231994AC322E7A5094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sonority (2022) [Ru/Multi] (1.6.2) License GOG
 ```bash
 magnet:?xt=urn:btih:9EE9E17EA34DBC6CBBA6903167AB6CCDFA683A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Coffee Talk Episode 2: Hibiscus & Butterfly (2023) [Multi] (1.11) License GOG
 ```bash
 magnet:?xt=urn:btih:0BB21D1C3390DD482036B075EC8D962D89236750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Last Shot – платформерная адвенчура, действи�
 ```bash
 magnet:?xt=urn:btih:D4FCE61824EFB9446ADE34FC3E193D5829B480E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Anvil - исследовательский центр, который заним
 ```bash
 magnet:?xt=urn:btih:01068E6F909F4693812831887926D1E612DAC5AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

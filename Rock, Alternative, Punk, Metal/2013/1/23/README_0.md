@@ -28,8 +28,7 @@ Fall Of Mankind - Frolic Among Remnants (2012) [MP3|320 кб/с]<Brutal Death>
 ```bash
 magnet:?xt=urn:btih:81556F4569A36C7A5DA86B0B0DBA3930D76B6985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Shadow Circus - On A Dark And Stormy Night (2012) [FLAC|Lossless]<Symphonic Prog
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Razorlight - Razorlight (2006) [MP3|320 кб/с]<Инди-рок>
 ```bash
 magnet:?xt=urn:btih:22C90054432BE66944C24A7015B68905483DCAB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ CD 101. House Of The Rising Sun 05:00
 ```bash
 magnet:?xt=urn:btih:A20B2960BE5B8DE1BE17E072C8DD271ADB3876B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Clockwork Times & Middlename - Sport (2013) [MP3|320 кб/с]<Ska Punk>
 ```bash
 magnet:?xt=urn:btih:2C6BE4DB399322BD5EC183ACF7B1C849EBF34732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Bullet For My Valentine - The Poison (2006) [FLAC|Lossless]<Heavy Metal, Rock, H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ The Pretty Reckless - Light Me Up (2010) Japanese Edition /2011, Interscope Reco
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

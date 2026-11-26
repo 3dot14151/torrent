@@ -22,8 +22,7 @@ Firkin - Whup (2010) [FLAC|Lossless|tracks + .cue] <Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:173E97B3E521DC2C3DFC6A48843AA90A93EA7622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Helix - Wild In The Streets (1987) Remastered, 2011 [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:AA2E46C51CEC6FC7CD5C5970685DFD35CE6118C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

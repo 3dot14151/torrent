@@ -18,8 +18,7 @@ Adobe Photoshop CC 2018 - новая, следующая за CC версия п
 ```bash
 magnet:?xt=urn:btih:9092156B9029CE0E27DFE806B37B2B1BECAC1DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Gears of War 4 (2016) [Ru/Multi] (12.0.0.2) License CODEX
 ```bash
 magnet:?xt=urn:btih:86E8DB7B1BB596EEB37ABFB931446EEA7C0CBDD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Windows 7 SP1 (x86/x64) 13in1 +/- Office 2016 by SmokieBlahBlah 14.03.18 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5EB5EDA750F7492844E6DA80CE46D5EC35F425B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF3ACFB70005390CD6C933AA8A1096E4775E7A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

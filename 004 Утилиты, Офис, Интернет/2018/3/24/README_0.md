@@ -20,8 +20,7 @@ Reg Converter 1.2 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F6E891297F8542CB6BE0FD511C5ADAB1866769D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

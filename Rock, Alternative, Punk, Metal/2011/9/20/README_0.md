@@ -26,8 +26,7 @@ Editors - Unedited - Box Set (2011) [FLAC|Lossless]<Indie Rock, Post-Punk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:C0D2C311BDC9ED7FD4C69F0A4A7607CB0938D7C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Slade - The Very Best Of ... (2005) 2CD [FLAC|Lossless]<Hard Rock, Glam, Glitter
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F015188A3E5C5CD1422EC1F2D1D45220666D2612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB794E51B18E41C4154A61CB82883CB36B301DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ VA - Classics in the Metal (2011) compilation [MP3|320 kbps]<Heavy Metal, Power 
 ```bash
 magnet:?xt=urn:btih:CAE709625DEBD1676315A54878AAC9772539A66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

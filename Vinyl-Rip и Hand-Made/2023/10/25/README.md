@@ -22,8 +22,7 @@ A4 Secret Face(   Читать дальше...   )Жанр: Death Metal, Progres
 ```bash
 magnet:?xt=urn:btih:0FE311C7FF8BB2A7F2ED42C507E7132C9BCFEB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gorefest — нидерландская дэт-метал группа, обра
 ```bash
 magnet:?xt=urn:btih:02BCB5A49FB354AE7678DC39DF60E2076FCB756D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

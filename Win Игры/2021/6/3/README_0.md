@@ -19,8 +19,7 @@ Sockventure - это история о ребёнке, чей любимый н�
 ```bash
 magnet:?xt=urn:btih:0ECD4FCB159C42E2A4BBA05A36219672564049D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wing of Darkness (2021) [Multi] (1.0) License DOGE
 ```bash
 magnet:?xt=urn:btih:22E39039BF3871DFA75A5B2D36E3FD60BA1B4575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Röki пропитана духом скандинавского фолькло�
 ```bash
 magnet:?xt=urn:btih:9E1B16017048A8DC118082733FFD3F5812687FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

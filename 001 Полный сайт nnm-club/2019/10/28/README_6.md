@@ -19,8 +19,7 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:02D6ED19E7505CBE27D3E75D9B93771ECC8BB5DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Item - Outlife (2009) [FLAC|Lossless|image + .cue] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:85D65EEA45C7637D07492FD7CC4E95E9C0C493EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Cisdem OCRWizard с улучшенным механизмом оптическо
 ```bash
 magnet:?xt=urn:btih:79FC6E228F5723B400B456C6942B5D7C855B9D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ DxO PhotoLab 2 ELITE Edition 2.3.3 (build 47) CR2 [Multi]
 ```bash
 magnet:?xt=urn:btih:48CAF8F03C207FADCB39D619AB9A5069A47407F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ PDFpen Pro - приложение для создания и редактиро�
 ```bash
 magnet:?xt=urn:btih:6D0D3D82465FE6BDF6E70D80E7E78456F191DCE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Posterino – программа, ориентированная на созда
 ```bash
 magnet:?xt=urn:btih:7A26300621499627340E4DEC8D075F2D94CAD764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Giorgio 'Fico' Piazza - Autumn Shades (2018) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:1F62B51A500E176DB31530EB793A8496203AC489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ VA - Progressive Onrush III (2019) [FLAC|Lossless|WEB|tracks] <Progressive House
 ```bash
 magnet:?xt=urn:btih:38F530C9ECA0C939C6B04FF954404080DB74C951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ VA - Best Hits Of Jerusalem Radio (2012) [FLAC|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:66DCB7FDA15ACF52B3D9700909B18FB0D6356715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96A6D52FB9814D2ADB04BAFF62EB956CA558A347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:7EEC319D4D3C67F1CC8B6EAE5F205BAB3B9BE6CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ ScreenFloat — приложение для создания висящих на
 ```bash
 magnet:?xt=urn:btih:B9F7C850AA693C5AE1AAAD205CDAC0ED40047972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ CADintosh позволяет ускорить проектные работы и
 ```bash
 magnet:?xt=urn:btih:E5B8C312F6FCD770AAEE280114A765AB5D63739F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ mindXpander - Triumphant Return (2012) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 ```bash
 magnet:?xt=urn:btih:FCDDE6E36EAC528E1D20855172F03402235884B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Apowersoft Screen Recorder Pro – программа, предназначен�
 ```bash
 magnet:?xt=urn:btih:4A0A23CA6A5804AF486190416DCC488BE1BA6277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ VA - Abstract Vibe Techno Beat (2019) [MP3|320 Kbps] <Techno, Electronic, EDM>
 ```bash
 magnet:?xt=urn:btih:EC919C31353EB16C6F69B6454373E743F2A580F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:BFF63D448BC47F0289387D1D3B17787B89EEFC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Tron Syversen - Piano Poems (2009) [FLAC|Lossless|tracks + .cue] <New Age, Relax
 ```bash
 magnet:?xt=urn:btih:B16A0134B501CBBD7428E769096345AA4AEAEC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ mindXpander - Xpanderland (2002) [FLAC|Lossless|image + .cue] <Spacesynth, Synth
 ```bash
 magnet:?xt=urn:btih:2B604BEFA7F47B5FA46287A2C4DC62A0A9E7D0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Movist является простым в использовании и мощн
 ```bash
 magnet:?xt=urn:btih:2073BB1AB573AC0B058AB757F3FEED5C6C26E885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47122342A22E9B79AC990370D3DA04F8C05DBC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:3700DF8E1AD811A8034ED4B26A841149F1E75B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ DxO PhotoLab 3 ELITE Edition 3.0.0 (build 21) CR2 [Multi]
 ```bash
 magnet:?xt=urn:btih:DFDE75483AAEE6A525C0C41F10E6BB23572435AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ VA - Magic Island - Music For Balearic People Vol. 9 (Mixed  by Roger Shah) (201
 ```bash
 magnet:?xt=urn:btih:27D3C0F4C5121A470F87BA43F1EEA1E4196BDA44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Tron Syversen - Peaceful Journey (2011) [FLAC|Lossless|tracks + .cue] <New Age, 
 ```bash
 magnet:?xt=urn:btih:BF403CC86D2DD395B45643572858A18B6940EF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ VA - Охота 89 (2019) [MP3|320 Kbps] <Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:08CFF85609EAB521AFB34535FD9DF4F5933458B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

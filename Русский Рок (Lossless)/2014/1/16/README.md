@@ -28,8 +28,7 @@ Nu-Nation - Wake up (2012) [FLAC|Lossless]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:6322674D6A0A9BBDD6BE8745F710EF83A4A1D602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

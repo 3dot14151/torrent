@@ -20,8 +20,7 @@ Ingenious / Ingenious. Все гениальное просто [Ru] (L) 2007
 ```bash
 magnet:?xt=urn:btih:67FF833AD7C561E23593AA33A144E9914AED9117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Reality Show: Fatal Shot Collector's Edition / Реалити-шоу. Фатал
 ```bash
 magnet:?xt=urn:btih:7D8EFD7B059819BD2C2D649B362B6CEE71BA090A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ The Corridor [En/Ru] (RePack/Alpha) 2012 | Defuser222
 ```bash
 magnet:?xt=urn:btih:C0080519A31BF7D3CF7821EBDE0D7DDCFAED9257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Darksiders II: Death Lives + 18 DLC [Ru] (Lossless RePack / v1.0u6) 2012 | Naitr
 ```bash
 magnet:?xt=urn:btih:B29989FF53C53E15487031BA583983F822502F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

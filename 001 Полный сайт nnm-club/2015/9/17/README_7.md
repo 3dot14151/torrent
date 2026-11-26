@@ -22,8 +22,7 @@ Earl Hines - Lionel Hampton Presents: Earl Fatha Hines - St. Louis Blues (1977) 
 ```bash
 magnet:?xt=urn:btih:8272FCAF45E68C4BB3EAE32B3F61210E02B1CD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bill Evans - Re: Person I Knew (1974) /2012, Universal/[FLAC|tracks+.cue]<Post-B
 ```bash
 magnet:?xt=urn:btih:E3C707762BB17DAA72A0328EB740430BA7A61094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Claret Ash - The Cleansing (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Pro
 ```bash
 magnet:?xt=urn:btih:832D19CE71BFEE8681B6A8D10DCA27699864A815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A0A05CE40F6BBFDC5212FFB286112F871EC9A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43289D9878A4BB097D650978F7A38F6B9F9F07BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Fisherman Bob - Church of the Blues (2015) [MP3|320 кб/с]<Blues, Rockabilly>
 ```bash
 magnet:?xt=urn:btih:17BAB7E1226BC0B1F37A3769427559C19DAD5734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - Good Chilling Good Feeling (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:3CC305E0B4F95C68DA586552DE970E6A8428B2FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F5047BB023CAD34B56339774DD775B05159678E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8522DFF1F2BBCC5EC24AC5A26F19FF0C47387D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DD24658021CC72BD1618C6DE7DCE2FBBDAB93E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E905F4FCF41AE155839FCF903F7AD8FA42BC001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A118DF2E84AAD0C5441C0591837470F519D4570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Venetian Snares - Thank You For Your Consideration (2015) [FLAC|Lossless|WEB-DL]
 ```bash
 magnet:?xt=urn:btih:37C07EE0D6010F5813A5752F00CC5BEE1534CDEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D15DA4F2CCC5D8B313A9AA7B282CE0330FF5A09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ VA - A Love Song For Bobby Long (2004) Original Motion Picture Soundtrack [MP3|3
 ```bash
 magnet:?xt=urn:btih:FAA1078488DC9208194BF3AD68C08BDD6ADF04DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ Jedidiah - Inner Spirit (2015) [MP3|320 кб/с]<Psychill, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:9BB74FA36B440F23832189B97C8B51A8DD7E8586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:B0FEEA63E14305B179EFBC48031A46E2CFC025E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8A05D857A6742A2DA02EEA61645AA72F0B106AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Blazon Stone - No Sign Of Glory (2015) [MP3|320 кб/с]<Heavy/Power/Speed Metal
 ```bash
 magnet:?xt=urn:btih:23B5BBE74E045D7790AC87277AC60300DE764481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:192F923C91684190B613BC44328F27A95016A400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Super8 & Tab - Unified (Extended Mixes) (2015) [FLAC|Lossless|WEB-DL]<Trance>
 ```bash
 magnet:?xt=urn:btih:DE0111775AE1F306A6853F67594DBF946601566E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ VA - Trance De Luxe (2015) [FLAC|Lossless|WEB-DL]<Trance>
 ```bash
 magnet:?xt=urn:btih:F960BCF6AE156096F95455BF0633BFF3037AC51D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:DB43A91DAFC69E3F4860EB4BAAC81CD891282476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ Weber, Mahler - Die drei Pintos (Paolo Arrivabeni & National Philharmonic Orches
 ```bash
 magnet:?xt=urn:btih:15BF1D119CE8C6AD9DB088DFCEADC34FF7C5118D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93BA8F2C3D5E256C1DC6BBE80D624A4A01CF84E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DB7010BAD58734680649A69D452DF3C4E50CFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

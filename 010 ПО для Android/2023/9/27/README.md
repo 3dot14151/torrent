@@ -19,8 +19,7 @@ DNS Changer Android — это первый уровень интернет-бе
 ```bash
 magnet:?xt=urn:btih:820E0A740CC2D5AE2378965FCEB5CDF4BD231D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

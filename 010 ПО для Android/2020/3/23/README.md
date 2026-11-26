@@ -19,8 +19,7 @@ Edge Screen S10 1.6.4.5 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:AD0B3097BA7CF0D493E148D396FA66F2549DC5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Group Ringtone – удобное приложение для андроид о�
 ```bash
 magnet:?xt=urn:btih:C38B887E4FFD7C49496FE1ABE7BCC502794B811B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Easy Currency Converter Pro 3.5.9 [Rus/Multi] - Курс и конвертер �
 ```bash
 magnet:?xt=urn:btih:164FB099BAD989C6FCF88313154091FD05465C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

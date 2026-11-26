@@ -21,8 +21,7 @@ VA - Cinematic Chillout: Wintertime Collection (2017) [MP3|320 Kbps] <Deep House
 ```bash
 magnet:?xt=urn:btih:7E0D788B2D5AB357A91C33E322ABDA670CF20C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Aaron Keylock - Cut Against The Grain (2017) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:DCE31BB229101093788AFAC29BBAA3BFF79AA71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ The George Lewis Band Of New Orleans - Jazz At Preservation Hall IV (1962) Remas
 ```bash
 magnet:?xt=urn:btih:B041CCCC287D347CA73B862FA2C17EAEFB6BFACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Z O L B E R T - Inside Out (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Smooth J
 ```bash
 magnet:?xt=urn:btih:ABAA4DE66ABECABFCE0FC7BCDECF10DD9810B8C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Aaron Gillespie - Out Of The Badlands (2016) [FLAC|Lossless|tracks] <Indie, Acou
 ```bash
 magnet:?xt=urn:btih:4EAA43EAA361EC665A48BF5AABF86F28C67FFA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37866E40E80921FE5A18AB762AF82DC0408E10D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - I Love Fitness Training (2017) [MP3|320 Kbps] <Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:E76F1BE9D1F7FFED9BAC7C321DE3978742F4767D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Empire Records - ANDRS Parody (2017) [MP3|320 Kbps] <Club>
 ```bash
 magnet:?xt=urn:btih:C418C17047D3BA4BE4B266BED527D34042D661F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Klangstabil - Taking Nothing Seriously (2004) Ant-Zen [FLAC|Lossless|tracks+.cue
 ```bash
 magnet:?xt=urn:btih:06F39416C374D1F0A505CC8C7DB920878D798DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ VA - Deep Chilled Island Moods - Volumen Uno (2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:D63A7B28AB0CFAC1146AB45018B5FA27370CE7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ iTrash (известная ранее как AppTrasher) утилита для �
 ```bash
 magnet:?xt=urn:btih:4A6632337C78E3D05A0AE7E5D5BC66BCF1F176C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:640FBE0FBA364B0FD99D718C96BB652700AABEDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Empire Records - Club Hit 5 (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:233673B7C9B249598A83D18191750F47FB17DAF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ VA - Motivation Training Music 2016 (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:817EF78BF0F3DED7A754C72371BD022E3902EEF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Kreator - Live Antichrist (2017) Live [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:EBCB52C85106D657DA49E4CAD5BDA79F4A445269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV
 ```bash
 magnet:?xt=urn:btih:FA5082ADB65083893A48AA17FAD159C7467E2D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEB64159F8B1EF5667D050875561F57629528036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B83FDAC31051CE131BAD4C8DC9A75FEC3C514520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99B7DFA2C8588412DA3CF584D698D28A685D0B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A4762A89EE442009FC755B5B57B05363D3FDB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ VA - Function Total EDM (2017) [MP3|320 Kbps] <House, Future House, Progressive,
 ```bash
 magnet:?xt=urn:btih:DCBC23616FBDF91723CAAE19E3885D65533A370E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ Peng Jing - A Good Day (2004) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Ins
 ```bash
 magnet:?xt=urn:btih:8C422EA87B244F556B8EDEE26FB4AB4A9BC948AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44ECE86C27FE20B68F83F0AE58B5BB8D14E2A58D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ Cкелетон. Чемпионат Европы 2017 и Кубок мира. 4-
 ```bash
 magnet:?xt=urn:btih:5295D6068C9E795AA1C5EA2640D43440BADB16A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8C9C1068FA98DB06F973573F7E471F1FD7537FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:183AF90C8BC74CC2508CDE05CDD3DBEA304FB796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

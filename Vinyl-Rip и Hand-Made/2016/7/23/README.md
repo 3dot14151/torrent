@@ -22,8 +22,7 @@ Kenny Rogers/Кенни Роджерс - Поёт Кенни Роджерс (198
 ```bash
 magnet:?xt=urn:btih:835C9AA4685820D3B914CC84B12EAA58E1E9DD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

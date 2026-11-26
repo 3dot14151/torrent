@@ -19,8 +19,7 @@ Stray Souls: Dollhouse Story. Collector Edition / Заблудшие души. �
 ```bash
 magnet:?xt=urn:btih:E9AABD424B451BABCA87F7CBF03D0178DBEF08FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Awakening - The Goblin Kingdom Collector's Edition / Пробуждение: К�
 ```bash
 magnet:?xt=urn:btih:6FE08B8385FDC784D6E9D9F8FFC0D5D26A8AC73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rettungswagen Simulator 2012 (P) [Ge] 2011
 ```bash
 magnet:?xt=urn:btih:FBCDA25C2A26A9027187A83E915D32F158CB5458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

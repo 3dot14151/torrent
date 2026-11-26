@@ -21,8 +21,7 @@ Orbital Gear — это динамичный шутер, в котором вы 
 ```bash
 magnet:?xt=urn:btih:BBC8D3E83F3A4CBFDDAFFCDF24084D9E84E69613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

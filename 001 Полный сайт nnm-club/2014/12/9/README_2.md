@@ -20,8 +20,7 @@ Microsoft Malicious Software Removal Tool - утилита для обнаруж
 ```bash
 magnet:?xt=urn:btih:CF35E1A5E649F78105C938749546AB6286E4F505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ VA - New Age Style - Enigmatic 18 (2014) [MP3|320 кб/с]<New Age, Enigmatic>
 ```bash
 magnet:?xt=urn:btih:5DFDF3D2B45E783E7D4A92FA6E97C5EBEB5D414C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1503C43D087C9DF8A749A797EE17C1EC322CDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:377FC30683208F7572BE92BCD9E582D35BBE8A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ NG: Больше чем фокусы с Ди Эм Си: Горящий чело�
 ```bash
 magnet:?xt=urn:btih:8E18E79298D38ECBD2532540FDF2111EECB5C0E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E26DF1EF197077EBB3C5D62AAFE006DF1DB5C412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:9CA17234A5FF0CBA9EBCF7D8898F56BD1711F9D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22FFF77FCE2B423AE117EE47EBFC891A161944DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ MxNitro Browser - быстрый веб-браузер от разработчи
 ```bash
 magnet:?xt=urn:btih:88D6650D5B881EF8A0A924F2AC235F8A48208C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85A3D76CB1B4CFC2E475621AB78C96BC4E069BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1A4BBD21F9E53F65EFA48131B658114D779A889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 ```bash
 magnet:?xt=urn:btih:CF688C3A789685BC39CD6CA40056A910EAC884F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:681D0764AC026B708C7783AA1450DC03BB8688AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Pat Metheny - The Orchestrion Project  (2012) BD-Remux [1080p]
 ```bash
 magnet:?xt=urn:btih:51EA12C520F0DC18993E7134FDC319470E934CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:F8810581D58BF9D9F31A52358864E3A4BC1FE324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ Alien24 (Дима Билан) - Alien (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:970619E13FE46D45E155CC3007B75BF680CA7ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ ZPlayer v4.25 (05.12.2014) <Ru/Multi>
 ```bash
 magnet:?xt=urn:btih:E046640F5D3AA71AFF4FA23FBA277B14662C980B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ Ashampoo Music Studio – полнофункциональный програм�
 ```bash
 magnet:?xt=urn:btih:FF1199A704955636C1C2E8B975A3D3EF8FE3A5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FF6D75DB643788CF3EC090AFD283A4162D26E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ VA - Electro Swing 2015 (2014) [MP3|320 кб/с]<Electro Swing>
 ```bash
 magnet:?xt=urn:btih:261B027CA5C7550FD61AB758D1C1EB6BE73953EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B3B86538634513D53FEB96E4B385FF561299C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFB406EA686DBBFFC13516155F6D6A320929A978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Microsoft Silverlight - технология, разрабатываемая Mic
 ```bash
 magnet:?xt=urn:btih:FAC9D31264535DBA1A31C0EACEB6C0AFD5FB8FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DDB0C6FA491767122745E7BBB2CDA7F2527DAE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

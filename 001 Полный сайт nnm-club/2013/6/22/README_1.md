@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8267F2B177D0DDC7D27790FE7C30B425138D3ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8F3BC28B2F837692F2323B86F57B092E92BF343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ VA - Танцевальный рай Club Version 20 (2010) [MP3|320 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:40F84FC5413C95414431F9FC88EB727CC60E5CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Telekiness - Magic Touch (2008) [FLAC|Lossless]<Psychedelic-Progressive Trance, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:215BBF9759A639B6AE263E9267B602F448324687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Discovery. Выживание в засуху / Surviving The Drought (2008) BDR
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ Red Line Chemistry - Dying for a Living (2010) [FLAC|Lossless]<Hard rock, Post-g
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ Armin van Buuren - A State Of Trance Episode 618 (2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:6A67D5CFB131F4ED8B13FB041A386A8A298F50FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Clip-Air - транспортная система, совмещающая вс�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1171290C274737B3AD44F2FFC57A02EB2269B0A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ AutoHideDesktopIcons - небольшая и простая в использо�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ PicPick - бесплатное приложение, объединяющее в
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ VA - Танцевальный рай Club Version 24 (2012) [MP3|320 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:119D1722A10D91A34C7121F5E82839BC540DE9C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B881AE52359D4C880418369D143A0F9FFF4DE278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ VA - Hardwell Presents Revealed Volume 4 (2013) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:A173365EAF42846601CD5FEF4BD879D6B39513B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FED5D74DAB2387876319BC0C1780CC78CCB594E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ VA - Жажда скорости. Летний DRIVE 50/50 - 30 (2013) [MP3|128 
 ```bash
 magnet:?xt=urn:btih:4D9F4DCBEFD0C4DD07136F1B49C7EC8257D91846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ Bandizip – это легковесный архиватор с симпати�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ EZ CD Audio Converter — утилита для преобразования а�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +562,7 @@ GPU Caps Viewer - бесплатная утилита, показывает по
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +596,7 @@ August Burns Red - Rescue & Restore (2013) [MP3|320 кб/с]<Christian Metalcore
 ```bash
 magnet:?xt=urn:btih:8A48E01C73D6BEEA73F7ABD465332A144E3A75DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +630,7 @@ Vidunder - Vidunder (2013) [FLAC|Lossless]<Hard Rock, Stoner Rock, Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ November Novelet - Magic (2007) [APE|Lossless]<Electronic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E56CBF628B6D9C9F062723E747C971A14EC639C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +723,7 @@ Sexy Music Lounge Club - Sexy Music & Love Making Music (2012) [MP3|320 кб/с]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4AD108F06485EB686FAA748BC6144536021CE57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

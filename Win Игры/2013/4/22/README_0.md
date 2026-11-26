@@ -19,8 +19,7 @@ Redemption Cemetery 4: Salvation of the Lost Collector's Edition / Кладби�
 ```bash
 magnet:?xt=urn:btih:5B9CE20877CCC9C888962ABB245A3C0810AC10BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Assassin's Creed 3 (Patch/1.05) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:A732CEDA855A9A09EC14074E07531F56FA1F64F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Tomb Raider: Underworld [Ru/En] (RePack / 1.1) 2008 | R.G. REVOLUTiON
 ```bash
 magnet:?xt=urn:btih:517FA3DAE89922127E5D928C9B472DFD1341D667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

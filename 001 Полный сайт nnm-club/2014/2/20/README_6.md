@@ -20,8 +20,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Emsisoft Anti-Malware Free (бывший a-squared Free) сканирует ко
 ```bash
 magnet:?xt=urn:btih:9791C7FB5D0394052BD63CCCBA2FC9110EB53558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Starперцы / Last Vegas (2013) HDRip
 ```bash
 magnet:?xt=urn:btih:AFBCF560AA7ED9C7A3F6E25B02EAD28AEEDA8231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BE15A976FC00371F068735B8115853216A5C9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3989FE58C455B806B07A972AD0BEC26C06FB2468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C708748453D09A7FDA737A8E45F41A632D3D03AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Thief [PS3] [EUR] [Ru/En] [4.53] (2014)
 ```bash
 magnet:?xt=urn:btih:003BB0B42A34BB853A0F6E2AF0D468396BAEC61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Queen - Greatest Hits (1981) /2013 SHM-SACD/ [DSD 2.0 1bit/2822,4kHz |SACD-R]<Ro
 ```bash
 magnet:?xt=urn:btih:FA9889547D88DA9E4FE2BAFCC8A5A025E64803F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Thief [PS3] [EUR] [Ru/En] [4.53] [Cobra ODE / E3 ODE PRO ISO] (2014)
 ```bash
 magnet:?xt=urn:btih:ED13A89CAF0FC1B68B60832BC06A118575B81167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94F7B86A76F5B494075338DF24D8553F2BADB9C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ The Temple of Elemental Evil (2003) [Ru/En] (3.0) Reрack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:8A446E2D931ABFE661C5A2BEFB56F001898F1FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Thief [XBOX360] [RUSSOUND] [GOD] [Freeboot] (2014) | R.G.X360-Club
 ```bash
 magnet:?xt=urn:btih:841423FF0F3259DDDE947FAAFD4A9EBC3D1EA707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DAD70AFFC5E42E95DB5009CC103E6896D49D404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

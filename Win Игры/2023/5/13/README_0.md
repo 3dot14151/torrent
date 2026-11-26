@@ -19,8 +19,7 @@ Backfirewall_ – приключение, которое понравится л
 ```bash
 magnet:?xt=urn:btih:344F38D7A4E92C061640525DE26B92CDDFF71BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DIG - Deep In Galaxies - приключенческий платформер в 
 ```bash
 magnet:?xt=urn:btih:33FEDF559C8DAD17F65CD154E503BD0B50299C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Edelweiss - это JRPG в жанре ужасов, которая отправ�
 ```bash
 magnet:?xt=urn:btih:067CF981007A18BBB2DE552E31C4CC964FD011F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

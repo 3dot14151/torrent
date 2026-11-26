@@ -28,8 +28,7 @@ Good Chum - A Gentleman's Hobby (2014) [MP3|320 кб/с]<Heavy Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:835E65FD07A3B3AC31D8B765B444258E26231C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Paceshifters - Breach (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:BD512CCA86B4CA09E062551CACF499A00C4B83BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Mandatory - Catharsis (2014) [MP3|320 кб/с]<Melodic Death Metal, Thrash Metal
 ```bash
 magnet:?xt=urn:btih:D7A4188551324CEEF50D51E027B9B2E929A397E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Epicurean - A Consequence In Design (2008) [FLAC|Lossless]<Symphonic Progressive
 ```bash
 magnet:?xt=urn:btih:509CD7A834F26108DEDC7762EBF9399CE2A270DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Enthrope - Tomorrow's Dead Days (2010) [FLAC|Lossless]<Melodic Death Metal / Dar
 ```bash
 magnet:?xt=urn:btih:3B99DA402D61D04BC52E5CE1AF14B692226B1262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Axxis - The Big Thrill (1993) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:974BEB3990ED0865C0B937CCFD2D8B04388DF8D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C48FD851A196E1212CDDF641AFA244AAFCEF758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Essence of Sorrow - Reflections of the Obscure (2006) Japan [FLAC|Lossless]<Powe
 ```bash
 magnet:?xt=urn:btih:482C29A816A6094676DC3107C21C88A7E94309F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ Axxis - Utopia (2009) [APE|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EC51846538760D4773487C3813D7FE874ED9BB6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ The Picturebooks - Imaginary Horse (2014) [MP3|320 кб/с]<Alternative Rock, St
 ```bash
 magnet:?xt=urn:btih:E8149958A7519E0D57BE30523DEEEC8AD5F07EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +363,7 @@ Redemption - The Fullness of Time (2005) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:1F2752940A657CF5AC34018A34F66D705F538F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +397,7 @@ The Head Cat - Fool's Paradise (2006) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:BE515E93D66408BCAE685696CD5E7F21B9A5A382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +430,7 @@ New Medicine американская рок-группа из Медины, ш�
 ```bash
 magnet:?xt=urn:btih:0BFBFB981539D4D1153B8EE60EC738CE3266CFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +464,7 @@ Onkel Tom - Н.Е.L.D. (2014) Limited Edition [FLAC|Lossless]<Beer Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:2CAC845CEB8166EE1AB4FF8E29F10FB2A3B3268F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +496,7 @@ Marcus - Marcus (1976) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7682F3E9AAFEA59C8C5C55B6EF6B8D0FD06504C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +530,7 @@ Escapist - Hidden Memories (2013) [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:AA02132780ED455D3D9830D293A1692D628B6658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +564,7 @@ Jeff Beck - Truth (1968) [MP3|320 кб/с]<Blues Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:704CB595DC5C680F614E3A395DEA9646534ED967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +598,7 @@ Gerard Way - Hesitant Alien (2014) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:4EC811E384826B8C75B0AA70551E2AD6FA623046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +632,7 @@ Billy Idol - 20th Century Masters: The Millennium Collection (2014) Compilation 
 ```bash
 magnet:?xt=urn:btih:5E055B36D54D7D27693373F7A8140FD1308079B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +666,7 @@ Poets Of The Fall - Jealous Gods (2014) [FLAC|Lossless|WEB-DL]<Rock, Alternative
 ```bash
 magnet:?xt=urn:btih:0866342625C84985DE95E5128C70E0767AC8DEB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +700,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:B5CCB6ECD5A3DD3AA403E314878890958F2F41CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +734,7 @@ Fleur (Flёur) - Штормовое предупреждение (2014) [MP3|320
 ```bash
 magnet:?xt=urn:btih:5082F60C805D4811EEA62772BECA26DA0974DA8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +762,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E5A091389CF467ED484A4F6BCD275CAC068AC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Correct spelling v11.0 [En] - English learning app
 ```bash
 magnet:?xt=urn:btih:631F0D0A418BFC8EC3D2ADE3BD5945C1F1C31667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

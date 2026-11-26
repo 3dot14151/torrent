@@ -22,8 +22,7 @@ Robert Plant - Manic Nirvana (1990) [FLAC|Lossless|image + .cue] <Classic Rock, 
 ```bash
 magnet:?xt=urn:btih:2948709A37B5E296FC70BCA072441E65D9D3E30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bonsai Kitten - Let It Burn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:815BE61A65473A0FC883060C513B13A3C2A4E299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Seether - Seether Workout (2023) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alte
 ```bash
 magnet:?xt=urn:btih:A80209AAA49EA474ED1357B74D4B026F3C29CB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Corporal Shred - Thrashtosterone (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:5C5E45CD840A68A32FD6B6957F4CAC0B33B8CD5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Evil Impulse - Evil Impulse (2024) [FLAC|Lossless|image + .cue] <Thrash, Groove 
 ```bash
 magnet:?xt=urn:btih:92803AEA56F57B60F6AB91D84A0A726EBA01A6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

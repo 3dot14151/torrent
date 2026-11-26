@@ -19,8 +19,7 @@ Nightfall Mysteries: Asylum Conspiracy / Тайны Сумерек: Клиник
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ The Treasures of Mystery Island. The Gates of Fate / Остров секрето
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

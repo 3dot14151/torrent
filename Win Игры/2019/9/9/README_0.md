@@ -19,8 +19,7 @@ Distance — атмосферный гоночный платформер. Об�
 ```bash
 magnet:?xt=urn:btih:2F9521137533D445BE219B9F683B55B4277F92F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

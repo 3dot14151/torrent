@@ -28,8 +28,7 @@ Breed 77 - Evil Inside (2013) [MP3|320 кб/с]<Hard Rock, Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:D9379B3628ADA81579520E128700434836B8FB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Anthrax - Anthems (2013) EP [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:1CDB21CEE2D771207B49FB4F900D3BB51AC56BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Clutch - Earth Rocker (2013) [MP3|320 кб/с]<Southern Rock | Hard Rock | Stone
 ```bash
 magnet:?xt=urn:btih:DC550183C5DE447DA86EC92A51E66EE106A91C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Hypocrisy - End of Disclosure (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:31B01CD673450A7E28AD4981FD3659E9636DEF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ VA - Glam Rock Anthology Remastered (3CD) (2012) [MP3|320 кб/с]<Rock, Glam ro
 ```bash
 magnet:?xt=urn:btih:E53BB092F8E8BB7551F41E20C827E876E40F2D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ VA - Glam Rock Anthology Remastered (3CD) (2012) [FLAC|Lossless]<Rock, Glam rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B2DF678E8F63D58AEA6C673F6E690B41E3349DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Linkin Park - Living Things (2012) Japanese Release [FLAC|Lossless]<Alternative 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

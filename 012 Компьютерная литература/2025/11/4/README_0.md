@@ -22,8 +22,7 @@ Did you know that most Python programmers waste 70% of their time Googling the s
 ```bash
 magnet:?xt=urn:btih:DD38CC09B981B80B25F328DCAF97DB4ABF2B300B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

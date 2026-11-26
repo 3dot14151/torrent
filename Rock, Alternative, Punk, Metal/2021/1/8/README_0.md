@@ -22,8 +22,7 @@ Zac Leaser - The Arising / Ostiarius (2019, 2021) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:E25E19E911144729920C2675CBB20AFB8E5561CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blind Ego - Preaching To The Choir (2020) [FLAC|Lossless|tracks + .cue] <Neo-Pro
 ```bash
 magnet:?xt=urn:btih:B04EACECE1E4335C2DF98F92A30C5146B494928E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Season - Sangvis (2021) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Meta
 ```bash
 magnet:?xt=urn:btih:BF89032DBD4274FFF3DA753119D23C74AB2D25F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Viral - Viral (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E8537DC0591B8E4A0B75CFD75C6B085D9A08BB5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bury Tomorrow - Cannibal (2020) [FLAC|Lossless|image + .cue] <Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:F1FF63E9A9FEC5253F805C40893118F1D45D42AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Corey Taylor - GMFT (2020) [FLAC|Lossless|image + .cue] <Alt. Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:35D5F5F71160271B9D86FAC224BD89A1D8BE0C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65983F235ADDE29463355A5282BF26BEF0C6F5B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sammy Hagar & The Circle - Lockdown 2020 (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:F8CC326D5F0ABEAC6BFF8AF3B5821BE1AF5F6E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Restless Spirits - Restless Spirits (2019) Jараnеsе Еditiоn [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:B528CAEE5204AC91B643BAD86BCB41604E7539D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:A2DEC2139ADFBC8D60C2E78A70FC822002FF87FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Instatute - The Instatute (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:758F80ABD35C12DA1012B2CB6D097DE581E295DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Lyris Project - Instant Flash (2021) [MP3|320 Kbps] <Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:FF6EE5D2F5293C48B2608E34F6181342AAF3FE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Adam Nitti - The World Is Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:6BE294C295184D2720800F33F9200BFE6EBD038B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Trust - Recidiv: Trvst I-II-III (2020) 3CD Boxset [MP3|320 Kbps] <Hard-Rock, Hea
 ```bash
 magnet:?xt=urn:btih:FA32111E337F4AE8415A82BA7DDAD330724A2896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Magnum - Dance of the Black Tattoo (2021) Compilation [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:23BB3FFA93F1589894F30BB97E9567E059EBD9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Korpiklaani - Niemi (2021) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:C8FC8380DE9DE8604BD3F1DE61FDB238256DB47D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ VA - Rock Classics Rock Legends Rock Anthems (2021) Explicit [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:360752B028002B97D6D3CBEBE02F3A053F9B100F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ The Almas - Truth Sells (2021) [MP3|320 Kbps] <Original Modern Hard Rock, Female
 ```bash
 magnet:?xt=urn:btih:C37EB87CEF23C2C57EDE5755736DBCBEB50884F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Mother's Day - Alta Reign (2021) [FLAC|Lossless|tracks + .cue] <Heavy-Metal, Mel
 ```bash
 magnet:?xt=urn:btih:B2BEB72500F83C53BE9A6A4A368B15CBD3D6C18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Amaranthine Voyage 8. The Burning Sky (2017) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:D5572AE3157BBE8D2E1F78BFD894A32233AF9505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Titanfall 2 (2016) [En] (2.0.7.0) License CODEX [patch]
 ```bash
 magnet:?xt=urn:btih:65B7F2547FDD811DE0528BE8C7103D58849D9CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rat Simulator (2017) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:D00BDC792BC7F1DC6AB32BF45095429E27E76EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kayf-Life Remake 2017 (2017) [Ru] (1.0.0.0) Mod Antinomy Collective
 ```bash
 magnet:?xt=urn:btih:F3761B1D11889E796398AFED60C01131F2D0783E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

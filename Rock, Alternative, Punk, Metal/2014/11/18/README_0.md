@@ -24,8 +24,7 @@ Darkinfrost - Dark Heaven (2014) [MP3|320 кб/с] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:83230C52BEA7C391C69308CCE396D30570347FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Boot - Boot (1972) Reissue/1998, Lizard Records [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:6E7CDD745E0D44FC485111F7FACA3A801A1E13C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Your Own Little Space - The Only (2014) EP [MP3|320 кб/с] <Instrumental Rock>
 ```bash
 magnet:?xt=urn:btih:11186FAB8C5EC9E3F3824614A463C0FA95717C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Release The Long Ships - Wilderness (2014) [MP3|320 кб/с]<Post Rock, Instrume
 ```bash
 magnet:?xt=urn:btih:6591AD89126F55FDFE8BE6DBDCC2A7B04E21CBB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Joanna Dean - Misbehavin' (1988) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EF9B54FFAF917A602649BF872E158863EFC9401A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Vesania - Deus Ex Machina (2014) [FLAC|Lossless]<Symphonic Black/Death Metal>
 ```bash
 magnet:?xt=urn:btih:708372970B89A5896C29999AF5CA99A95BBA0828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Ben Howard - I Forget Where We Were (2014) [MP3|320 кб/с]<Indie>
 ```bash
 magnet:?xt=urn:btih:5C0AE952355D9C34F2CA9F81E655A7C17195587B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

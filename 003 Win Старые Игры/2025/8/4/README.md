@@ -19,8 +19,7 @@ OpenSCP (2025) [Ru/En] (01.05) Repack/Mod AndyFox
 ```bash
 magnet:?xt=urn:btih:B9911DC80D7643453588A03ECD064B1FE07F0B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

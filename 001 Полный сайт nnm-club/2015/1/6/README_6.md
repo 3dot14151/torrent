@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1A4EEF05B2F5A564C0E48FCA03CD050D4E13BB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Mitchell OnDemand5 - это информационная база по ремо�
 ```bash
 magnet:?xt=urn:btih:E6ACCA70008CA583C70953790B7539954A328CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Kaspersky Internet Security 2015 - комплексный Антивирус К�
 ```bash
 magnet:?xt=urn:btih:4818563877EEE5385A0A963FA33B0462068BEAB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ WPI ЛЮБИМЫЕ миниИГРЫ - Пакет ИГР с "тихой" уста
 ```bash
 magnet:?xt=urn:btih:A1BEF1F488E8176D7D5234836016949880983D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Microsoft Office 16 Professional Plus Build 16.0.3327.1020 Technical Preview [En
 ```bash
 magnet:?xt=urn:btih:6267F3501DDF4B5FC722C05B54C7D5E55E096D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ KodiBuntu ( ранее известная как XBMCBuntu ) - бесплатн�
 ```bash
 magnet:?xt=urn:btih:761A2FE283770B7311DC08044611460C7E98D0EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E24C350128C9F7B143B387B56F6E96DAA5A8973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Starpoint Gemini 2 возьмёт игроков в захватывающее �
 ```bash
 magnet:?xt=urn:btih:E1170225CF28F1164BDA601211F2C0BCEC917D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Mathworks Matlab R2014b (8.4.0.150421) [En]
 ```bash
 magnet:?xt=urn:btih:EF49083F3157776C6E58E13F3EA7F7515C5106CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ CFW Darknet 4.66 v.1.02 (by darkjiros) (2014) [PS3] [EUR] 4.66 [Unofficial] [Ru/
 ```bash
 magnet:?xt=urn:btih:AA3D06D710B297467FB78D7CF15911D3539280F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F38D8C4FA9D644288F369B9D8A9102A6D173A441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Fable Anniversary сделала большой технологический �
 ```bash
 magnet:?xt=urn:btih:C5B1545F3ED09D2B8892232EFF2E5A0D700D9BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ State of Decay (2013) [Ru/Multi] (14.6.23.5340 upd17/2dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:418B192B7EC020100A0A64623A002C088447C017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:664A5240AC8E8B12E3111E11F7787A303B97B666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ A Haunting Novel: Burton Hotel / Проклятый роман: Отель "Ба
 ```bash
 magnet:?xt=urn:btih:09416A84E426878B1671BDCF8FD008DF25505EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A84E9A17C9C8DA2499E703FF50EA5DF4F063EB63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:941B6EC7E3498C040AF76AB6AFF2BE8ABF48F6F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Book Travelers 3: A Gothic Story / Книжные странники 3: Готи
 ```bash
 magnet:?xt=urn:btih:7DC6299B3416E42A44F8136F4C87C256696719FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tales of Kenzera: ZAU - это не типичный экшен. Здесь вы
 ```bash
 magnet:?xt=urn:btih:C8FDFD1626412278052A52D800AE3354D96BB58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Forever Skies – это нетипичное выживание, в мире п
 ```bash
 magnet:?xt=urn:btih:E0F36ECC1A29B07B51A82CDCC1E84C2D993EDA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 ```bash
 magnet:?xt=urn:btih:D3EA20FA70F0F5BCF1CD8305BFFC3845681C3A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Archons - это Roguelite, Survivor-игра, в которой вы управ
 ```bash
 magnet:?xt=urn:btih:B692D5B7FB7A496B58DAD58A7ED8CA89D7CB2343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DDD846FF66160776AD87D59FCB0A852474BFFB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Go Home Annie (2024) [Ru/Multi] (build 16636802) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3F121D3E4D98E0710FB9913DDCCE62ED13FEEA6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Chess King - это идеальный инструмент для любого 
 ```bash
 magnet:?xt=urn:btih:F6015DEC68C1B2FA1BE9F4A4EFD85BA89E1D1B05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Spirit of the Samurai (2024) [Ru/Multi] (1.0.00) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:258E067AD262AAA5E49D96B37E2594E1F5BC7560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 ```bash
 magnet:?xt=urn:btih:3434C661F441C52A45E9741065ABD7839E1377FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Sir Whoopass: Immortal Death (2022) [En] (1334) License GOG
 ```bash
 magnet:?xt=urn:btih:371F15DB3399467D37F2AA9C487731687847A538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

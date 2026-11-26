@@ -19,8 +19,7 @@ Medieval Dynasty (2021) [Ru/Multi] (1.3.0.5) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A77206C31D7E4BA42A3B33727759CEB46D5C57EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

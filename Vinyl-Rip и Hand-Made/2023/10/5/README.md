@@ -22,8 +22,7 @@ A4 Icecold(   Читать дальше...   )Жанр: Heavy MetalПродол�
 ```bash
 magnet:?xt=urn:btih:09FA6A4EB2F2B5EED9F5AE6DAC3534E56D07C001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Hardbreaks(   Читать дальше...   )Жанр: Heavy MetalПродо
 ```bash
 magnet:?xt=urn:btih:78D5BDD0DA815AC715F26E84E79DD415E55EFE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4. Let The Blood Run Red 5:06(   Читать дальше...   )Жанр: Heav
 ```bash
 magnet:?xt=urn:btih:F2ED574EB85A1560D48D08734A701FEA3560729B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Scar Symmetry — шведская мелодик дэт-метал группа
 ```bash
 magnet:?xt=urn:btih:FEB566CF7549519A280FE23102EB2B5BF8698DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

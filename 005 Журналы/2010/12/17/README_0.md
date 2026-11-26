@@ -19,8 +19,7 @@ TOTAL DVD – ведущий журнал о кино в России, знак�
 ```bash
 magnet:?xt=urn:btih:0FCC680E2E24585FB120D6FCF6FAA4A292387D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

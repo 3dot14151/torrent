@@ -27,8 +27,7 @@ VA - Танцуй Закрытыми Глазами c Europa Plus (2013) [MP3|12
 ```bash
 magnet:?xt=urn:btih:B9A43297DE829F28F32E9C3BA2AAF4D7EA95096F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Bo Bruce - Before I Sleep (Deluxe Edition) (2013) [MP3|320 кб/с]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:B2F5052E605D6791EB9A8402584BC56CB2673DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2C87878A3AF341C91F461C8CCDC330D4CCE1C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Wallpapers - Коллекция обоев - Разные сладости | Fed
 ```bash
 magnet:?xt=urn:btih:D740FDC5F8B0437B5391C7F0A2C70D900BA3F638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ FreeFileSync 5.15 + Portable by PortableApps [MULTi / Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Ashampoo Photo Commander - универсальный набор средств 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FFB5D5ADBF692D5BF4D4CC58AF41A3A79087318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:049E4AD90CB6511C804440E34FB33855797F0B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Uconomix uMark Professional - программа для защиты изобр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ SlimBrowser - это быстрый и надежный веб-браузер с
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47CF2E267C4638C39DC57EBA70439F7D6E5116AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Niall - Power Animals (2009) [MP3|320 кб/с]<Native American, New Age, Easy Li
 ```bash
 magnet:?xt=urn:btih:0576C0D2260734EAA4575C6BE7A899C00E09F88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A8B333A1DFE3C596BAC44FE8B800D6EB7332A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Zazie - 20 Ans (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:449F5EBEA6A6717881C8D54F6EEAB37868EC9CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ The Souther-Hillman-Furay Band - 2 albums (1974-1975) [MP3|320 кб/с]<Southern
 ```bash
 magnet:?xt=urn:btih:3E07B4B3652A84B28D62CECCD6222BC2205296A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62CBD437850FF5101A767D70BFE87BBD6DA71ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FACDBAA9BCFF79CCE531E3DFC5004972253707CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Eri Ohno with The Great Jazz Trio - Easy To Love ( Eri Signs Cole Porter ) (1984
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E104433C3986AE052BBDC536C097EE9BFBE8BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ VA - Kiss FM-Dance 10 from Кулемина (01.05.2013) [MP3|320 кб/с]<Dance
 ```bash
 magnet:?xt=urn:btih:6837F2DE78A1623609855ED3DFFC2045E9C8A373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +583,7 @@ Nok - Nok Box (2013) [MP3|320 кб/с]<Psy/Goa Trance>
 ```bash
 magnet:?xt=urn:btih:2851BF380EA944724E792818B1977188B6607376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10BA41D0A9F28CEE576D593A8CABD9593F7C7A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +643,7 @@ VA - Smooved: Deep House Collection Vol 5 (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:9DDDA270D70597F64088CFC61F4600B42A745E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +677,7 @@ VA - Club Dubstep №3300 (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:F29C46611C9D85FABC2E60496080B8A26DD1AE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ Leaf Hound - Growers Of Mushroom (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:637860C356B123F42C05CE6B9607103E5B0DAB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

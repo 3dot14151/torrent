@@ -19,8 +19,7 @@ Love Alchemy: A Heart In Winter (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:3526587C39C004A4E7A563FDDCD7BBBDAA0F1D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Christmas Adventure: Candy Storm (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:BEB810A083E28843CC8B04F1FE89797513985824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battlefield 4 (2013) (upd3) Official RELOADED
 ```bash
 magnet:?xt=urn:btih:B3AF25C44BC9F74ACEE884F91836AB2843794BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Bridge Project (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:0AEA6412F01F11F38C2AF5207EAB972406536262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

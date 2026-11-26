@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2B2E8EBD153416C4C0A7198C6E13CDFEB6D5ADEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:998A7FE45BC9313A41AC7BB923F20A60EBC7DBF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39B59E4A21A41742628304DDA22A5082689E9FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Architects (UK) - For Those That Wish To Exist (2021) [FLAC 2.0|48/24|tracks|WEB
 ```bash
 magnet:?xt=urn:btih:C5F2514D78A2CA538CC396EB4099CADEF41179E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A386CA62492EBDFDBA80AE052C360C932CAACC65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ VA - Trance Pioneers (2021) [FLAC|Lossless|WEB|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:87AF016A1243BE2110210FD7E521432DFB322E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Factor B - Theatre of the Mind (2021) [FLAC|Lossless|WEB|tracks] <Trance, Progre
 ```bash
 magnet:?xt=urn:btih:31621F0C2ECFEB10A4140D55106F102574AF76EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Rod Stewart - The Tears Of Hercules (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C018ECFA7F3A68D8ACB08173010BC7A5D69D23FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Deep In Chill: Instrumental House (Irma Dancefloor Chill House Selection) (
 ```bash
 magnet:?xt=urn:btih:9A308B0E580D713AB23C66C9B61DEB6828CF77B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ VA - Dark Sessions Live At The Recoverworld Club Lounge (Mixed by Chris Hampshir
 ```bash
 magnet:?xt=urn:btih:4CD4D2E66488813ADBD343C7A84E788555F47F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ VA - Study With Relaxing Jazz (2021) [AAC|~334 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:B28ED8A57CBA560C919C95E98103C1B5B8829424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Mediterraneo 4 by Billy Esteban (2021) [AAC|~331 Kbps] <Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:398311366EBA45320AC57B02028C84F4CCF96CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3596EABA7B63CD4101647A68041E12A054B38A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:513BE017AB8601E6F115A62B1AEBD8336465F49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9172CFF0043C3D9292CDA14FD7682D3BBA0C39B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A820FD4189610C58C74F3639BCE4506DDD678B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ VA - Music News vol.148 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:AAAE8B7898261649EB17DF25477B9AE8095BBA1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Rod Stewart - The Tears Of Hercules (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Pop, 
 ```bash
 magnet:?xt=urn:btih:88C94B84AD6E74B026D66C380F5E76D38D9BBFF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Shakira - Laundry Service꞉ Washed and Dried (2021) Expanded Edition [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:C7C60ED09AAB0BB71A435569370711384F9E227C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ Fancy - Locomotion (2021) [AAC|~336 Kbps] <Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:3CC25FDBCF28E80B5BC660C80E301682926F5F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ DesktopOK - небольшая бесплатная и портативная (�
 ```bash
 magnet:?xt=urn:btih:48D259D86E6D4B46FF343CB615AF26459017B1BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A401C3923A4B19A59D381F03427114B6FACB8D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C400E25ECBCABD35D933F8E891F566093BE2E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ The Rolling Girls | Девчонки-путешественницы | Девич
 ```bash
 magnet:?xt=urn:btih:A8F6CF3D1464EA7BAAC5ED123CE8B4D258F5E0A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1ECD46C56E77B2BC78FFD0E79FB82EC2D48AAA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:10E55F78C5CB97F837BA350E8CADD46D742CD1E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

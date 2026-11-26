@@ -19,8 +19,7 @@ Lightroom - в приложении для мобильных устройств
 ```bash
 magnet:?xt=urn:btih:FDF41C9F2679A96C6972E4052C7A4323ED4EFE6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lightroom - в приложении для мобильных устройств
 ```bash
 magnet:?xt=urn:btih:4B93132272F9C60E5415DE0BD2EE44A808931CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lightroom - в приложении для мобильных устройств
 ```bash
 magnet:?xt=urn:btih:04ACB7F3ED403405BCFE7A852C3830F2C5F0EB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lightroom - в приложении для мобильных устройств
 ```bash
 magnet:?xt=urn:btih:3FCADCFC7611A103223041433E97AF22F563CBD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lark Player - это удобный и легкий аудио плеер, ко�
 ```bash
 magnet:?xt=urn:btih:C9139AD2573A0CB755CB2C0FB9752FF82EEA3A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

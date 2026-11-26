@@ -27,8 +27,7 @@ Widerfahren - An Expedition Of Haze And Thorns (2011) [MP3|320 kbps]<Symphonic D
 ```bash
 magnet:?xt=urn:btih:36986F7AEC6DE5757EC8B1799B40FBEBA1944811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Bury The Truth - Reunite (2012) [MP3|320 kbps]<Melodic Death Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:6E3CA986B9D902D40EFAE38DC75E141030C1B925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Empyrean Sky - Extending the Tangent (2012) [MP3|320 kbps]<Progressive Melodic D
 ```bash
 magnet:?xt=urn:btih:4B22BF57E5CB18727914A13149D2E85125A45479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Inmania - Forest Of Despair (2012) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:20E411A08CB38C052B3DA115AA9C09FCBBE9524F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Imperium - Sacramentum (2012) [MP3|320 kbps]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:F6EA8912221386BBFAB97358C5E9070BA38C1BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Folkodia - Battles And Myths (2012) [MP3|320 kbps]<Folk Metal, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:4C0720801A14CC5F83A59B85307570D5BC475883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Requinox – Through the Eyes of the Dead (2012) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C357E353A837A99012557A5E684AEC482A2D91E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Keith Davies - Symbolic Hemispheres (2013) [MP3|320 kbps]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:EFD15ADA3A94F26D5C0F492761885634FDF03FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Mors Principium Est - ...and Death Said Live (2012) [FLAC|Lossless]<Melodic Deat
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AFFEC4BCE6B92E825C7B6EE3631CF2992821037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ Eagles - The Complete Greatest Hits (2003) 2xCD [FLAC|Lossless]<Classic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

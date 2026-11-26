@@ -21,8 +21,7 @@ Debian GNU/Linux 8.3.0 Jessie [amd64] 3xDVD, 2x update DVD, 1x netinstCD
 ```bash
 magnet:?xt=urn:btih:50A183B8E1FB565D26DF09EDC28C131DD54857BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ ROSA Desktop Fresh (KDE + Plasma) R7 [i586] 2xDVD
 ```bash
 magnet:?xt=urn:btih:0CBD9058F06B84116A837DDFD33626969988BEB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

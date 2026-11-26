@@ -19,8 +19,7 @@ IOTransfer PRO для Windows позволяет передавать данны
 ```bash
 magnet:?xt=urn:btih:F956F1868FB5D7FC3BC123E322E4421DAC25866D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

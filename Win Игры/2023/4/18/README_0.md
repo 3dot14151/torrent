@@ -19,8 +19,7 @@ Gripper - приключенческий экшен, в котором пред�
 ```bash
 magnet:?xt=urn:btih:7250D15CB20D568DA152755E462490653B0B4666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Souldiers (2022) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:72411F6CB166E1B34C53A3B8E7BB5C8873C92371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Moviehouse позволяет игрокам стать владельцами �
 ```bash
 magnet:?xt=urn:btih:C5B30F4B1CBDFB5F3F6DC396C913A52DBD840403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

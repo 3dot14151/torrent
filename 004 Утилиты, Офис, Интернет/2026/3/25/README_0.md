@@ -19,8 +19,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:35BED0818AF2CC65ECF506C9580548360A135D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:189E15366E30C6AD935197429965F8D17DB93DEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 ```bash
 magnet:?xt=urn:btih:5CDD3F822C2BCE1EA7CF90501E809B6EE3CC80C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ PDF Combine Pro — это настоящая находка для тех, ко
 ```bash
 magnet:?xt=urn:btih:E1F04F380BFC1B7078D4D888A38294E3DF1C874A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:EBBE48103BA4AE567ECDCD985AC32425C1266B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Tor Browser 15.0.8 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BFF4F01D076CC10C73AD84E1BAEDF183F9BD4850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ ThisIsMyFile — это небольшая, но эффективная прог
 ```bash
 magnet:?xt=urn:btih:ABC17BEA1802720C449BA93B281DFA09AFA57C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Delete.On.Reboot - небольшая и эффективная бесплатн
 ```bash
 magnet:?xt=urn:btih:ADDDA30E5A97911B2012D1AFE88B1ABE96C5749D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Run-Command - небольшая программа, которая создан
 ```bash
 magnet:?xt=urn:btih:3624AC1D89F97905AE83B380C6CA9B2974EC4644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:FA0D41588723E184ED6909F2A07C8884B8DA1CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ DesktopNoteOK – простая портативная программа дл�
 ```bash
 magnet:?xt=urn:btih:BCC10661231F1301B6EEF76D1DB59CBCDAE243F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ GetWindowText - маленькая и портативная программа,
 ```bash
 magnet:?xt=urn:btih:B726FDA09E2939AAA7AF05C783F86B8C5F9AE32D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ GetPixelColor 3.49 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2CB38264264D3796C3BF6075C5E502E7C10D6675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:6483B0C4361EAFC132567BB0188BF9A31920B490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:5E1FA8C17F6BFFCF816ED34DDDED0EA54BA14E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:EEDD76C53E74EAB987825B10C6853D6D887144BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:20D3A6B9E8540E57077F5E73BB7A506366C6E1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78816B5AF2A002079C89D8CA74572BF33F31BD47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ Vivaldi 7.9.3970.45 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:51EAAB899379CE5030A7FD7150AB507FDE4027CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ MAX Desktop 26.10.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CC632B7DA6B47B913BB65C3678B362233F66FCCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

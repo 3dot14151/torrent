@@ -22,8 +22,7 @@ Imminence — шведская металкор-группа из Мальмё �
 ```bash
 magnet:?xt=urn:btih:5B0C51341AFAD9BFC01D60DD75781C8B7EB6C688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Malevolence — английская металкор-группа, образо
 ```bash
 magnet:?xt=urn:btih:CC52E89ACE0CABAA173E459C9B4B8374EF9611B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Crown - метал-группа из Тролльхеттана, Швеци�
 ```bash
 magnet:?xt=urn:btih:5E5BB30CC681B13E9ED75B758874BD1F3347BFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

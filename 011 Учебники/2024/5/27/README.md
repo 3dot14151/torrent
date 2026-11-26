@@ -19,8 +19,7 @@ This is an third edition of our popular introduction to language teaching method
 ```bash
 magnet:?xt=urn:btih:5719691AEE22CCAB10F86697A3091DFEEC0E3CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B0E76299D4CB9B9B26FDC1D5EA338AD976C156E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

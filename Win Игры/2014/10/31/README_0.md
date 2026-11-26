@@ -19,8 +19,7 @@ Blue Tear (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:4D7734C694C924338D395F001EEA84C15EA43B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

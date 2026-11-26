@@ -22,8 +22,7 @@ Shabti - Trembling and Shorn (2019) [FLAC|Lossless|tracks + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:CFF84F7CD4156EFBAC4D1C19DDB757E83565BB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Accuser - Reflections (1994) [APE|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8D621B9AC1F6D7352D9788D5696E42648A9F954A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Meat Puppets - Dusty Notes (2019) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:4608B95E449F3970FA0E7F5951B4D6675C92AFD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cea Serin - The Vibrant Sound Of Bliss And Decay (2014) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:7A8AA7476AA78438BBADE3F2AC29213D96380607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ KÁRYYN (KARYYN) - The Quanta Series (2019) [FLAC|Lossless|tracks + .cue] <Elect
 ```bash
 magnet:?xt=urn:btih:65AC9E3DDE5F3BA37474B81F2B18F8237F27FCC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Lucy Rose - No Words Left (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie
 ```bash
 magnet:?xt=urn:btih:0636DCEBFF1DE0EA7DFB7B2F94AC59330B5E4DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFFF2C335BEBDA0F8EB74DD01D2CCC182460EF2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Max Roach - We Insist! Max Roach's Freedom Now Suite (1960) 1986, Candid [FLAC|L
 ```bash
 magnet:?xt=urn:btih:AC8136000907E058FBC4E6A81A37C5B377259743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E8925FB70E3D63489FB4E1F4DAC38E26FB7278E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ The Herbaliser - Bring Out the Sound (2018) [FLAC|Lossless|tracks + .cue] <Elect
 ```bash
 magnet:?xt=urn:btih:EBF059B7F01F9A5ABEB0CF5D9518562A0E83E661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67F740EB264924168EDDD6E137E00F3FB3D23B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E594AEEF1341D19A6ABD1712FAD80C4FBCDF526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ VHS Dreams - The Bundle - Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 ```bash
 magnet:?xt=urn:btih:7DAEE70677815EEED705978BF821F018895B4A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:FEFF59A000C444EA1AFE37947D63089A821D8C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ WarKings - Reborn (2018) [FLAC|lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:71F0235BC6AB48E639CE6E7B4DEE9C8ECD01E0FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E5E589184343BDF8A902CE70C21C71BF0DA7610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A46767D0F86CE7ED5539A5D4C07D638988AD74ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Prins Thomas - Ambitions (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Funk, Nu-
 ```bash
 magnet:?xt=urn:btih:FBB6C6C6549EED4BC633301096B9261D686AABE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0053370E8CE7E8E7F8C07F92E47B0363F4A6E4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Vivaldi 2.4.1488.36 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0105EBBDAE066998690473EFA5BFEF6AAC4B6F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Allavsoft Video Downloader Converter - профессиональный инст
 ```bash
 magnet:?xt=urn:btih:D6611869E1ADB4429E72A91BD658967A7942AD78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D536F5E6BE95D95F6BF3C6D1A2CEC8BA609EFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2475340A1CBAB5C2359B7256483BF544CB622A3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Battle Beast - No More Hollywood Endings (2019) [FLAC|Lossless|tracks + .cue] <H
 ```bash
 magnet:?xt=urn:btih:EACC6DD0FEAEC928E0335594F8BECBAE64F2A20D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C96B486DE5C8AF6CA79884BC8174D22207193322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:311F061C2D6D4CF561613619A1776AE8A0B75450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

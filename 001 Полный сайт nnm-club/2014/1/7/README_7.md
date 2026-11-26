@@ -25,8 +25,7 @@ VA - SuperBomb Club Music Pack 6 (2013) [MP3|320 кб/с]<Club, Electro House, P
 ```bash
 magnet:?xt=urn:btih:E9BF7D2D9A6579C04BD96192BC4F1214E7DB4BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ VA - Marquee Miami 2013 Edition (2013) [MP3|320 кб/с]<House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:736BFBB6C5DF9A928F25D5F3B43053F8987C6F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Forlorn Path - Man's Last Portrait (2013) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:019C99355949412DAD77A805E3AAC33BF086D0C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F87585551A6870EDABF8B53DE091B90E57182BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Slava Finist - National Techno / Mix (2008) [MP3|320 kbps]<Electronic, Tech Hous
 ```bash
 magnet:?xt=urn:btih:54910DECA1DA105A9265B383C90AC7E91EAB532A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Conniption - Time Has Come (2013) [MP3|320 кб/с]<Heavy Metal / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:10739AC714FF75AC2745E66AF2EA44C9D095FF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Beyond the Vortex - One (2011) [FLAC|Lossless|WEB-DL]<Metalcore\Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:B93FB40DC2FD17068777CAAE70CCB5B502DCB4CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Shung - Guitars(   Читать дальше...   )Жанр: MetalcoreПродо
 ```bash
 magnet:?xt=urn:btih:09AF022E6C3C019C94AF7D8FFBAD726C45038136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Al-Namrood - Heen Yadhar Al Ghasq (2014) [MP3|320 кб/с]<Black Metal, Folk Met
 ```bash
 magnet:?xt=urn:btih:9B317659C2CE3165A6418C2E214B7C5D9E2ED6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Operadyse - Pandemonium (2013)Japanese Edition[FLAC|Lossless]<Symphonic Power Me
 ```bash
 magnet:?xt=urn:btih:86C18AD98D8887CF01ECA2CE8FEEA832A6DA28F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +353,7 @@ Benedikt Jahnel Trio - Equilibrium (2012) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:758B38997280BA2BA35911D35A2179EAEDC20B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +387,7 @@ Slava Finist - National Techno / Mix (2008) [FLAC|Lossless]<Electronic, Tech Hou
 ```bash
 magnet:?xt=urn:btih:E09E1BA8B022A7E9DA60F7F82984703A902B93B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +421,7 @@ Jose Luis Monton - Solo Guitarra (2012) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:AEE3AB0B2C151E2985B95B013ECC80E166886CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +455,7 @@ Souldrainer - Reborn (2007) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0C017D3EA79BADFE4E2964370E180DA3DECB076F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +514,7 @@ VA - Hello 2014 (Progressive House Edition) (2013) [MP3|320 кб/с]<Progressive
 ```bash
 magnet:?xt=urn:btih:6083CD2DAC63A07635226815845AEB25CC8E7628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +548,7 @@ Neon Sky - Сollection (2008-2011) [MP3|192 - 320 кб/с]<Electronic-Rock, Elec
 ```bash
 magnet:?xt=urn:btih:3BB5748526795BCD47B8BCA9C1C7DD2E9ED9D4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +582,7 @@ Allison Thrash - Do You Come With the Drink (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:0E80BF0C69226092A4BE382EC68762ABD803209F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +615,7 @@ Elfenbein - Made In Rock (1977) [MP3|320 кб/с]<Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7B0E0652806EB2DEE61F692EA0DC03F7BADBAA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77B3CCF18ACCFFC3EFD328202122DBD64586F6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +678,7 @@ VA - Anjunadeep In Ibiza (2013) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:C650E2A6A541EB496773C62D12DD43A509FC84C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3BD6639713763121E4CC3BC65D596265D06D5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8F50C2FA93983FC0213CBC501217BB7196A101C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +757,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D283FB54B8BFDE21857D363CB3091E848D136D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +791,7 @@ VA - Jazz Legends 3CD (1998) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:DF0FAA3779FE3EE7F999F6A3A45838D509913D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -846,8 +821,7 @@ Svreca - Overgang EP (2013) [FLAC|Lossless|WEB-DL]<Techno, Minimal Techno>
 ```bash
 magnet:?xt=urn:btih:11C966B8694095906863F18B56593ACDBDCE53FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

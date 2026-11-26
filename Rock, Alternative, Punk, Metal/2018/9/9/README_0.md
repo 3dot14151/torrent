@@ -22,8 +22,7 @@ JJ72 - I To Sky (2002) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Ro
 ```bash
 magnet:?xt=urn:btih:4877FDA240C909F3F418BE8513C28CDD36907DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ JJ72 - October Swimmer (2001) Japan Promo [FLAC|Lossless|tracks + .cue] <Alterna
 ```bash
 magnet:?xt=urn:btih:D332BDA0CC42EB83C5CDE474CB59FE00DDBFCC1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Sunn O))) - Kannon (2015) [FLAC|Lossless|tracks + .cue] <Doom Metal, Drone>
 ```bash
 magnet:?xt=urn:btih:EF90732DF74D5B66B134FC2221E812CD7F2E808C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Clutch - Book of Bad Decisions (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:0C379579DB9535DFA5552731A802B8AC227A2F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Dream Child - Until Death Do We Meet Again (2018) Japanese Edition [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:F49B78013F3787A0A55FEE6FB77069FD5AE36BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

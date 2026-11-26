@@ -19,8 +19,7 @@ Access — это намного больше, чем средство созд�
 ```bash
 magnet:?xt=urn:btih:EBB4316A7B4F0E6FD836A741FD1FE6A6142021E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

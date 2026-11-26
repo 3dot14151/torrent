@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ D.J.GOLUBb - Underground Pathos (2009) [MP3|320 кб/с]<EBM, Techno-industrial,
 ```bash
 magnet:?xt=urn:btih:0939127207C33B71ABACC8B5E8656687DF1D5179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86BCE11B41E8CA28250616F2F11513FCF2358BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Red Seas Fire - Exposition [EP] (2013) [MP3|320 кб/с]<Djent\Progressive\Math 
 ```bash
 magnet:?xt=urn:btih:40BF1BBEE43402255E5B94226E11A1126A322929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Critical Solution - Evil Never Dies (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B01A73A31444D6529AF16B119EDC9EB90E515603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ Veil of Maya - The Common Man's Collapse (2008) [MP3|320 кб/с]<Technical Deat
 ```bash
 magnet:?xt=urn:btih:2867090465E6BDF6EF93E8A01A82AD4E6723F222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Macabro - We Live Lies (2012) [MP3|320 кб/с]<Downtempo, Ambient, Psybient>
 ```bash
 magnet:?xt=urn:btih:0BFCDF9401FE27784A1ACD9EA60395E520C3230C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6EE0EF5A13445EDCCF14FB8C61989A20764C4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ Asgard - Outworld (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9D5240CDC006C48BFDD39283059D313F6F2E59D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ Stoneload - Addict (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B1A5B0EA7A127238AA6E79085128CFF8628BBDA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F8D30C18445079F3391EC7AD449A854840A30C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Zi - Yulan (2008) [MP3|320 кб/с]<Psychedelic Trance, Downtempo>
 ```bash
 magnet:?xt=urn:btih:4B7E8B14D30BDEC81762C41E7C0335938FCDA78A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60B519FD7B1037F500EF7E6714B43F5A36C2CCD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ Chris Duarte Group - My Soul Alone (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ VA - Les Plus Belles Voix Cherie FM (2013) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:85AE9B322C29BFCF040C08CF13C2EF35A5771F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ Vanden Plas - The God Thing (1997) [FLAC|Lossless]<Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:582B28864F1C963F12B8AEF77CDA609CE465B724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC7C87AE3872E521D125F1489B8F8DB88EA60974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +565,7 @@ Medline - People Make the World Go Round (2013) [MP3|320 кб/с]<Latin, Funk, N
 ```bash
 magnet:?xt=urn:btih:B10BC8B5752428CB58E28DD6A5B232208C6097FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C81BAAEEB54CFF09E76D23017E5F7A16901AC56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE52608AFDFB95A7741920F11A885506E3B22C6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ Children of Bodom - Transference (2013) Single [MP3|320 кб/с]<Melodic Death M
 ```bash
 magnet:?xt=urn:btih:1F29E4CE647491881F24FC3CC4A403FC59F4E4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ Nancy LaMott - What's Good About Goodbye? (1996) [FLAC|Lossless]<Jazz, Vocal Jaz
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ Grant Kirkhope, Mark Cromer - Kingdoms of Amalur: Reckoning - The Soundtrack (20
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ Halford - Crucible (2002) Japan Edition  [APE|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ IN[TOXIN] - 2 альбома (2010-2011) [MP3|320 кб/с]<EBM, Trance, Techno I
 ```bash
 magnet:?xt=urn:btih:E666BF487A0F956FB59734AD8976255CF9EE7F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

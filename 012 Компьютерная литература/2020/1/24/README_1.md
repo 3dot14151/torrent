@@ -19,8 +19,7 @@ Black Hat Go исследует более скрытую сторону поп�
 ```bash
 magnet:?xt=urn:btih:4527C7BE31DA48597C98E4E3EF80A08AF898CA5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

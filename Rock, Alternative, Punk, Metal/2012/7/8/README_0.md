@@ -28,8 +28,7 @@ The Teens - Past And Present '76-'96 (1996) [MP3|320 кб/с]<Pop Rock, Glam Roc
 ```bash
 magnet:?xt=urn:btih:BDA351EA0240B33D67E15D008DF86C6FE6B4960D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Affector - Harmagedon (2012) [FLAC|Lossless]<Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Oxygen - Final Warning (2012) [MP3|320 кб/с]<Melodic Hard Rock/AOR>
 ```bash
 magnet:?xt=urn:btih:655375FC2B7779CC6F74F8CC5C70C3630E51DAF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Hardline - Danger Zone (2012) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Def Leppard - Songs From The Sparkle Lounge {Japanese Edition} (2008) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:24A410CAAB7A0E5080ABC99CE24F4E35680DB57C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Kiko Loureiro - Sounds Of Innocence [Japanese Edition] (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:14BF6538488ED56E81DFAFED58AC3D414301298D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Steely Dan - Two Against Nature (2000) / Warner Music, Giant Records / [FLAC|Los
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Steely Dan - Early Albums (1972-1980) 2008 7 SHM-CD Reissue Set, Cardboard sleev
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Eagles - Greatest Hits [2CD] (2010) [MP3|320 кб/с]<Rock, Blues Rock, Country 
 ```bash
 magnet:?xt=urn:btih:E26E857878224E1371BBB3CA874D25A595620404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ P.O.D. - Murdered Love (2012) [FLAC|Lossless]<Nu Metal/Rap Metal/Alt.Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D07F93C6760B528B39A5BDDFC6A059DEBC0340B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

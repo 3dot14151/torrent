@@ -22,8 +22,7 @@ Ethereal - Downfall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Gothic, Do
 ```bash
 magnet:?xt=urn:btih:5A54A6EEF69C45C05736E5F7EEEBAB93B80750FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Alan Parsons Project - Pyramid (1978) Reissue, Remastered, 2024, Cooking Vin
 ```bash
 magnet:?xt=urn:btih:9063480F93D51269B15BEF081F265A266CFAEE0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

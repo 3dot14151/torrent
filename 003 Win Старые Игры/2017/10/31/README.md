@@ -19,8 +19,7 @@ Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
 ```bash
 magnet:?xt=urn:btih:EEB4778A9E7E03213123A5F5C1D0AC7BA23D4A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Final Doom - сборник из двух любительских IWAD-файл
 ```bash
 magnet:?xt=urn:btih:1E8BE565B607FCB3B100FD821A361FE07FD21898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DOOM II (1994) [En] (1.9/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:36743EDEBBF5D61964FFCFAD1E295F9342DDEB3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

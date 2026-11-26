@@ -22,8 +22,7 @@ C4. Афанасий Никитин Буги (3:54)(   Читать дальше
 ```bash
 magnet:?xt=urn:btih:0DFE44147D50044ADDE2F8DD4BFFCCB808B93E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

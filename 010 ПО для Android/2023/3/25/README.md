@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:469D7F08B0E970D5436768E400B5BC5338261CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wall Factory поставляется с потрясающими, уникал�
 ```bash
 magnet:?xt=urn:btih:FC8426FA29EBECA9706E884177018003DA930E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

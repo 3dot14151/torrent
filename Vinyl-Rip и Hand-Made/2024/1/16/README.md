@@ -22,8 +22,7 @@ A4. Dance(   Читать дальше...   )Жанр: Middle Eastern Folk, Prog
 ```bash
 magnet:?xt=urn:btih:ED4B718E820F99A53875D54D416B7ABC7F9D2CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anthem — метал-группа из Японии, основанная в 19
 ```bash
 magnet:?xt=urn:btih:2B6711036FF2939873896775730D1A71597E5C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

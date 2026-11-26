@@ -25,8 +25,7 @@ Anti Suburbians - One Way Generation EP (2014) [MP3|320 кб/с]<Street Punk, Ha
 ```bash
 magnet:?xt=urn:btih:32B43B0900DCA4138FDC079251ED48B319693F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Pervertum - Creature Of Ungod (1995) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:A7AA49F26557DEE84D24F581FA782918A4287E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Vorax - Guerra Mental (2011) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8B381FA0E4F4F8CEDB9965453DB3D85CD59DA535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Kodomo - Patterns & Light (2014) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:0E089BA61F4D0087F8FBAEAAB0F02DC8435E548B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Celeste - Animale(s)  (2013) 2СD [MP3|320 кб/с]<Screamo, Post Hardcore, Slud
 ```bash
 magnet:?xt=urn:btih:A3E42CD1AD4F5DA3F5F0D698FA5A009C2DB63582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Rustie - Green Language (2014) LP [MP3|320 кб/с]<Trap, Alternative>
 ```bash
 magnet:?xt=urn:btih:B246873B00B35EDA028E3BA82F0D3A8A37A549B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Aidan Baker - Hypnotannenbaumdronefuzz (2014) [FLAC|Lossless|WEB-DL]<Ambient, Kr
 ```bash
 magnet:?xt=urn:btih:B264EA3358D49EC8B21B6235FC0B171A2B89FF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Manhattan Jazz Quintet - Someday My Prince Will Come (2007) [FLAC|Lossless]<Post
 ```bash
 magnet:?xt=urn:btih:273511C2148F8DCA2D4B421BE464C63ABA0696C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Star.One - Elements Mixtape (2014) LP [MP3|320 кб/с]<Trap, Garage, Drum'n'Bas
 ```bash
 magnet:?xt=urn:btih:C817EBA62C71E9470290D990497E440662E8AC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Chiefs Of The North - Reach (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5ACA697128A45274DEF8317E4F66C87B9944CCE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Taberah - The Light Of Which I Dream (2011) [WavPack|Lossless]<Power/Heavy Metal
 ```bash
 magnet:?xt=urn:btih:9C1CAA18F713FDB303D1CA819EBE4A99C6B9E53F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D19DA06C47F8AD87B4C8FD114D9D69B3C6308CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +411,7 @@ Kodomo - Frozen In Motion (2011) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Leftfiel
 ```bash
 magnet:?xt=urn:btih:652F50BD09D603D690006F25B285493F73454A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +445,7 @@ Malene Mortensen - Date with a Dream (2005) [APE|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:DC3E1B84D8C301A37591CE7975F15C734911DAC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C4A8C75AAD718F95D5C95760CD9EA71F37E82F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +504,7 @@ Rebecca Kilgore & Harry Allen Quartet - Live At Feinstein's At Loews Regency (20
 ```bash
 magnet:?xt=urn:btih:B46AEE7B2C15F0C9587A0104178A08DD73720E69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:121761E36AA719BE87EB5E9D44427B3A301D43AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDE079DF502BED35995ECA4B59A64AC63A203793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +588,7 @@ VA - Deep House Purpose (65 Chill House and Lounge Hits) (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:D1976F9A03F770201E25614A19C20B96D05C51B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +621,7 @@ VA - 100 Dance 2014 Vol.7 (2014) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:06A90B5CDFE47B9DC0B9E48EE23112A5F4D35B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30D47952127724D4EC7CA67A213B91F5C74D461E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F29EA0A3A87EC6F424AD7EFC886253E73F59E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +714,7 @@ Astral Doors - Notes From The Shadows (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CA8614944C878632FF58CA45EC182D3CC96AA16F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -797,8 +773,7 @@ Broods - Evergreen (2014) LP [MP3|320 кб/с]<Alternative, Rock ,Electronic, Do
 ```bash
 magnet:?xt=urn:btih:69F4C39336D2367E60759850B12BB8FE35A3BE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -823,8 +798,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2396A3AC99A0BF32FA5BBDA3BB54883D8E0F4726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

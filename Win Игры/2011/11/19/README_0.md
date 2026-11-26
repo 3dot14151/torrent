@@ -19,8 +19,7 @@ Haunted Manor 2: Queen Of Death Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:81598CB3BB2CB07EA60C5C032B8D48A86FE39D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ inMomentum {1.03} (P) [En] 2011 l THETA
 ```bash
 magnet:?xt=urn:btih:BF3CAB27D4F1E1451B6F990CC022D3C7CA50F683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

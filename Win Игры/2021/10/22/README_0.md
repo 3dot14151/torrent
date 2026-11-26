@@ -19,8 +19,7 @@ Dark City 6: Paris (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:8547CC321481C7286B7ADAA64B4E08B084C83132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Motives: The Diamond Rush / Скрытые мотивы: Алмазная
 ```bash
 magnet:?xt=urn:btih:E34E780DBCA7D3AE4F6D92D679BCBC326FEE3DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Evertried (2021) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:38780C138E41691FCA71FD0C92BCB2C5408A21FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tandem: A Tale of Shadows - новое слово в жанре платформ
 ```bash
 magnet:?xt=urn:btih:87BAC0CD233B7D7C3228C48E1D36602728089EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Okinawa Rush (2021) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:AC027DBE7D2C965747CCD4B03859AA4B481F2D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Youtubers Life 2 (2021) [Ru/Multi] (1.2.1.3) License DOGE
 ```bash
 magnet:?xt=urn:btih:B79BDD50A25C8EDC2579A61F36361515E1BC3600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ This Land Is My Land (2021) [Ru/Multi] (0.0.9.18436) License CODEX
 ```bash
 magnet:?xt=urn:btih:43F50B04C1A15976356034A7E6153C73ABE39F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Poppy Playtime (2021) [Multi] (7543327) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:FC0516F940D58A995DF21B5A85890A2CA1DDA31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Tairus - Tairus (2010) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6820D4015EBA865E9D22106820945A374C3E3122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Stratovarius - Elysium (2011) Japanese 1st press /Victor/ [FLAC|Lossless]<Melodi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Seether - Holding Onto Strings Better Left To Fray (2011) [MP3|320 kbps]<Alterna
 ```bash
 magnet:?xt=urn:btih:6E6240991ECFB508B9BFE70D5647378AF30B85EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

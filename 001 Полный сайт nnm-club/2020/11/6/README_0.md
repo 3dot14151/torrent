@@ -21,8 +21,7 @@ Trivium - Shogun (2008) Reissue, 2012, Roadrunner Records [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:250B947A1CFCF3EBB1B61A7A8FA6F9D0D13A1702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Deep House Mafia (2020) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:1CD878CB81D32EE404B332276A282EA87D2CB142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - The Gambling: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:73BD57EED8F5F3DDFFEC9DC71F679B93EABB8060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0664B4F2D61D036985A314897964AAF6C26EFADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Neil Young & Crazy Horse - Return To Greendale (2020) Live [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:F6AAED62528E247FBACA7B1EA6B4C0F0E6639DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ pdfFactory Pro - удобное приложение, представляюще
 ```bash
 magnet:?xt=urn:btih:037480269E02FBB4DC8B3A52E163EEF8F38035ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D4D08475B5D80393921F4725C9434C2074AF586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Bracelets Of Sound: Instrumental Jazz Music (2020) [MP3|320 Kbps] <Jazz, In
 ```bash
 magnet:?xt=urn:btih:013DEE37F31B6EE7463597CC2F332B400AB146F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87230AAEDE5154C8A0D9CE37240231526707A668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ KDRR - Корея (2020) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:76046F6D85EC23997467BFA8D7A01C406249EF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ VA - Led Zeppelin Salute - Get Some More Led Out (2011) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1889CDEE4E2883D7095FC866EBAC7B178F7F495C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Sunset Vibe: Absolute Chillout (2020) [MP3|320 Kbps] <Chillout, Lounge, Amb
 ```bash
 magnet:?xt=urn:btih:3939B2ED97CE611261A772B62789A8F43AB7E636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Jazz In Pink - Joy! (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:9656FBCDE9FD826F300D816828979EC5C3BCB111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ VA - Music News vol.46 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:F032E06EAC948DAF0B8289C9018ABEE059D3DBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Miss Emily - Live At The Isabel (2020) [MP3|320 Kbps] <Modern Electric Blues>
 ```bash
 magnet:?xt=urn:btih:EA0A53520AFB9AE1B2DDF190BFF0CE21D93012D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ VA - Fun Disco Roller: October Set (2020) [MP3|320 Kbps] <Disco, Dance, Remix>
 ```bash
 magnet:?xt=urn:btih:B4833725DA22D7B6E1DAB99E013E841324D3738A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ VA - Русская блатная тридцатка 14 (2007) [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:A2921DF74A3568C968CCAEDB04FAD7B8576FE0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Electro Lounge All Stars - Erotic & Sensual Lounge Bar 2020 [MP3|320 Kbps] <Bale
 ```bash
 magnet:?xt=urn:btih:E63379B6EB6EB7BD4492B2BC969BD9717D464B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Pole Dance Zone - Erotic Pole Dance Music 2020 [MP3|320 Kbps] <Balearic, Downtem
 ```bash
 magnet:?xt=urn:btih:DFC7A4293CE42FE80C8AC50EF1F34F8AE2ED22E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:922F583AB8ABB17C2189A12221BB5ECC7FDD99C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E670518A85A329DCF8C7ADD2FEC667F9D8EE034E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ VA - Zumba & Fitness 2020 [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:EC20AC2F0248510B4BEC66F335FB91EC55C8B4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:D31AE96F20A23C42F69C1FCC7F579A7CE5CDA2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8EC01DEE93BA568E37920065292301E4BE809A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:0BF5B65B971E4897FB11683DD63F4B9221B88B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

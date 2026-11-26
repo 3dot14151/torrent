@@ -20,8 +20,7 @@ Counter-Strike — популярная многопользовательска
 ```bash
 magnet:?xt=urn:btih:D720D7C87E1445FB4EF26C5554FF7BF58C35B6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

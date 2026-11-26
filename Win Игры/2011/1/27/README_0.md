@@ -19,8 +19,7 @@ The Stroke of Midnight (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:1CBACE9C2FDD66619529FDB091842FACC07264E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Secret Legacy: A Kate Brooks Adventure (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:72D03446325CB55A6D7B6AE55721ABD004F88C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

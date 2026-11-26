@@ -18,8 +18,7 @@ Pinnacle Studio 15 HD Content (Adorage) from VM & OB Team - сборник эф�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Microsoft Windows 7 SP1 RUS-ENG x64 -24in1- (AIO)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

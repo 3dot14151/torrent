@@ -22,8 +22,7 @@ Infrared - No Peace (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F8C321275AE47C74768A513E2051F1B9C98F16D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Endless - The Truth, The Chaos, The Insanity (2016) [MP3|320 кб/с] <Power Met
 ```bash
 magnet:?xt=urn:btih:0C4FF9CD6E3E95D2D2B19AFA4403F81D1C9B8B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dream Police - Dream Police (1990) Remastered, 1992, Epic, Japanese Edition [APE
 ```bash
 magnet:?xt=urn:btih:BC5411F56616246CF323EDC58B4F389F306CB2B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Eternity's End - The Fire Within (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:51D87F7E9A83E0FBE6DFA2B2B174D7DC61A4685D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sleep For The Weary - Nocturns (2016) [MP3|320 кб/с] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:E3341590E64441472411701E9CC464DF55A748BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Sniff'n'The Tears - Love/Action (1981) [FLAC|Lossless|image + .cue]<Pop Rock, So
 ```bash
 magnet:?xt=urn:btih:5489F0A0CDA6F7D4396786476A4B5C9C4D73DEB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Metal Church - XI (2016) [MP3|320 кб/с] <Heavy Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:1F5FF65855ECB1E768CF92D9767E228BB4A31DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Caliban - Gravity (2016) Deluxe Edition [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:AE9BE284091DBB8F845B24B09E14CE457E3D8858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Queensryche - Greatest Hits (2000) Compilation, Remastered [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:F5D6CDD37386584F2A76F2F14AE587B6ACC4EEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Tool - Undertow (2001) Jараn Еditiоn [FLAC|Lossless|tracks] <Rock, Alternat
 ```bash
 magnet:?xt=urn:btih:6D5554DC88485CB250CA8BF97A4AEA6906C46ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AE83B0EC24E4D2717AE9DEF156FA035B3C78159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93043B918F76EFEE98760E040B7EAC7F348B0F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

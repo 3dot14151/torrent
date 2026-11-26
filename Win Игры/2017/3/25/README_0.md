@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:289C2C48303AA593F350CF3253036E298322722A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nancy Drew: The Deadly Device / Нэнси Дрю: Смертоносное ус
 ```bash
 magnet:?xt=urn:btih:B6B238F070AB1BDB22A83783B74BE1AAE9998632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Homefront – сюжетно-ориентированный кинематогр
 ```bash
 magnet:?xt=urn:btih:2633FFAD05F86BC578AA2263274F98EFF68EA857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Witness (2016) [Ru/Multi] (964-Ansel(A)) License GOG
 ```bash
 magnet:?xt=urn:btih:1BD0E3DBDE2700DB4823B556202DAAB3402A28A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Train Mechanic Simulator 2017 (2017) [Ru/Multi] (1.0.16) License HI2U
 ```bash
 magnet:?xt=urn:btih:7096E024E74CCF3F2CEEA396044C77208329CE98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

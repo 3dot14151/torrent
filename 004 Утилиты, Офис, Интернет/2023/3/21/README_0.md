@@ -19,8 +19,7 @@ Wise Data Recovery - утилита, которая позволяет быст�
 ```bash
 magnet:?xt=urn:btih:32BC40A6DDF8CCF6D3B476F3426EC2008127C858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

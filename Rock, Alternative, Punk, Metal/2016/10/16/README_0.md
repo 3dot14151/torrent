@@ -22,8 +22,7 @@ Symphorce - Unresticted (2010) [FLAC|Lossless|image + .cue] <Heavy-Power Metal>
 ```bash
 magnet:?xt=urn:btih:1D6EBEB1AC540B25788DF6812DFDD12DE7A30E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Suicidal Tendencies - World Gone Mad (2016) [FLAC|Lossless|image + .cue] <Thrash
 ```bash
 magnet:?xt=urn:btih:A9EB078F8FD6E5C6EDF606DAAFE0F94D0F26BFAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Acid Drinkers - Peep Show (2016) [FLAC|Lossless|image + .cue] <Thrash Metal, Cro
 ```bash
 magnet:?xt=urn:btih:64FECDB87B43CA9049484921DF97B669AA68A6E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tango Down - Bulletproof (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:03B752D5F1962E9C476E6872818DC78CFE6B0853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Wolves in the Throne Room - Two Hunters (2007) [FLAC|Lossless|image + .cue] <Bla
 ```bash
 magnet:?xt=urn:btih:6BAB9331BF6541B4DB625496BF5511882D87CE60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ BY Effect - Нам по дороге (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:EB9B29E0891B10CC74FCA82B24C82B5C123FC347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Hotter Than Hell
 ```bash
 magnet:?xt=urn:btih:77817348537C33A1DF6390FCDE615239581BFB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Bigelf - одна из самых харизматичных групп хэви
 ```bash
 magnet:?xt=urn:btih:C99F08C7C12DE381E2C66D51A2D97F26BDB92660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ After All - Mercury Rising (2003) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:DEA40876E50DEF018A9168FE88CE2D14B72E0E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

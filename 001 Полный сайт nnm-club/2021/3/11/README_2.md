@@ -21,8 +21,7 @@ Udemy, TCM Security  | Windows Privilege Escalation for Beginners (2020) PCRec [
 ```bash
 magnet:?xt=urn:btih:C0E965A530AC178229B53F70935EA560C5D4518C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Singing With The Stars (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:F6B8CC7A425ACCDC5BB02CEA6A1482576411389B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E09D8738F45C8C91D20EA8EE79CC0D250833602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D966153E1C3431893177A569AE74165263450D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Legendary Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues; Soul; R&B>
 ```bash
 magnet:?xt=urn:btih:893137389BD1201726F235F446773C750B37D477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Basilisk - это веб-браузер с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:0DD0243629838E8F240967C85AAFB61FE0386691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:097E62FB2E0D4CAFEF9951AD22B582AC95DCB774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Udemy, TCM Security  | Linux Privilege Escalation for Beginners  (2020) PCRec [E
 ```bash
 magnet:?xt=urn:btih:A99E18E1CC125D432279F68115B6FF4DD9FACC3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:926D8921E5A4EBE18C4DEE65E1F5C0E41AB8DE96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ VA - Blind Raccoon & Nola Blue Collection Vol. 3 (2021) 2CD[FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:88A8B39064EA4C5CAA535C90E1193B7CE0753A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Black Banjo - Out Of The Skies (2021) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:8B4E600265FA3A5045D70C89A28A44CD04411A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7068EE94BB530B9226C4E4A12055BE062888C199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:EE096749CA7BB15F8158266A6BCBF16B9204AF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20F06F110F521D2046CCB1E54B00ABD89A6D4161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Movavi Screen Recorder 21.2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:548B55515CDF2FB2024F2A8C6E6E8A0B2AEB9D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ VA - The Rapsody Overture / Hip-Hop Meets Classic (2021) [MP3|320 Kbps] <Hip-Hop
 ```bash
 magnet:?xt=urn:btih:AF49EF8559063557C3927589A72AD4D202A9BFF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7303F6ADFE0D3ACCA0E930E9E1C2BB806D963D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ Golden Software Grapher - мощный и одновременно просто�
 ```bash
 magnet:?xt=urn:btih:6038E0266551AF1B1D043EE26EAD8D41ADB3A940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66A0A4201D419683ADBF163B55A99F80D97DCEB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:647A451065E4670B73424D802E143496DCFB55F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ VA - Singing With The Stars Vol.2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 ```bash
 magnet:?xt=urn:btih:5DA72EBD1871282C0E46D5915ED278B46CB6D5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:074A640350603454AC6C6539DD2394468A41C471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EDF6D2405E2B15FA86CF5746E4728957E13913B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ Yunagi no Machi Sakura no Kuni | The Town of Evening Calm, The Country of Cherry
 ```bash
 magnet:?xt=urn:btih:910679B41A0814EBCBBD7A74FAD32D96B99C164C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ Udemy, Maher Haddad | MikroTik Monitoring with LABS  (2020) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:4690CDF2AA4A1EFC89049B6A0E5B626890FE0C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ Kings Of Leon - When You See Yourself (2021) [FLAC|Lossless|tracks + .cue] <Indi
 ```bash
 magnet:?xt=urn:btih:7CDE6AE58EE8B7AAF29E378D420FB4BE28D74EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

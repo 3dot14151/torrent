@@ -18,8 +18,7 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:BC8D452E551ACF0970F1C228104B31DAE60136A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ ProShow Producer – приложение для создания професс
 ```bash
 magnet:?xt=urn:btih:951F2DD96773303E091F037E3685FF6398FD74C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tiny Brains – кооперативная головоломка, в котор
 ```bash
 magnet:?xt=urn:btih:80A83E5A4A59496B965E5A7FF6FBC031FF3FC1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ UFC Personal Trainer: The Ultimate Fitness System [XBOX360] [KINECT] [En] [Freeb
 ```bash
 magnet:?xt=urn:btih:964F1E8ACF6FEDF06C55F9672B49808BC1000CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ VA - 100 Величайших Хитов Шансона (2013) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:261BA34930ADA1D1A49D8E84ECCD35DC6212E28B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Enslaved: Odyssey to the West (2013) [Ru/Multi] (1.1/4dlc) SteamRip R.G. Игр�
 ```bash
 magnet:?xt=urn:btih:20B79E6DE78F71D91824EB9AF698A5E894064D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Folklore - игра в жанре "приключенческий боевик",
 ```bash
 magnet:?xt=urn:btih:FC8FF2EAF0E8C17B5CDC3752C679F0CCE09CF01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Violett (2013) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:F5E8D5990E2F79D9474356A413D463149552F075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF52710031072A71BEFF22D4A82C86DDC421471F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Taobao.com - это самый большой китайский интерне�
 ```bash
 magnet:?xt=urn:btih:4F10958ABDF2D3CC9CC7AE95E27CF34F5B177C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Recovery USB-flash for Asus X550 VB / Windows 8 (х64) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:82D614147382AAA92E147B121335480E8CE83C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Mail.Ru Облако 13.12.1300 [x86, x86_64] (инсталлятор)
 ```bash
 magnet:?xt=urn:btih:E5E0E43DCE811935213405786191B75E20296E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Trine 2: Complete Story / Trine 2: Полная история (2013) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:286CACECB908EDD543EAE89224AC259C5A0666F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Emergency 2014 включает четыре абсолютно новых за�
 ```bash
 magnet:?xt=urn:btih:A231A9FD925EED5BAE2E154ABF06CCB3D8E8EB65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Resident Evil: Operation Raccoon City – это командный шутер, 
 ```bash
 magnet:?xt=urn:btih:3911171AFEC793121372BDF3FE139A719753D478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Minecraft: PlayStation 3 Edition [PS3] [Ru/En] [Repack / 1.02 / DLC] (2013) | R.
 ```bash
 magnet:?xt=urn:btih:813D3DD53E41F6617B486B7D1EF2BA2921B5ED62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17FD4D9590EAFF3FE3A52B41932C9829B614AB04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ Recovery USB-Flash for Lenovo B590 / Windows 8 (х64) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:ABA4A9B5136489CE0E4D86E2B07840EA0D88B108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Train Simulator 2014 (2013) [Ru/En] (38.3a/dlc) Repack R.G. Механики [St
 ```bash
 magnet:?xt=urn:btih:8A5A1BAE474F2E900C46F09B9834AC6729B72EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 ```bash
 magnet:?xt=urn:btih:25230AFD7A53E4EED8DB8FEA0AF836009739878E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B7B9D1E9249E356DBD8974FBCA45E83C0A22DEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ Edge of Space — новая научно-фантастическая муль�
 ```bash
 magnet:?xt=urn:btih:DA62DE9A538CCF05BFE77636F152077A6EA5C42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ Va-банк / Runner Runner (2013) BDRip [1080p] [Line]
 ```bash
 magnet:?xt=urn:btih:1F60A9E9F3A9228AA730720E6AB235F12BDE5A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ mLooks3.pkgТип издания: OS X SoftwareРелиз состоялся: 20
 ```bash
 magnet:?xt=urn:btih:F8F8C1B019F0C3CE5FD033743C08B8CBF04F6060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52044073606B8B9D3C7D637EA440DAD2421E7B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

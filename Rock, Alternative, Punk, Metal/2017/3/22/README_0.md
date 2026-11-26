@@ -22,8 +22,7 @@ David Byrne - Grown Backwards (2004) [FLAC|Lossless|tracks + .cue] <Alternative 
 ```bash
 magnet:?xt=urn:btih:D1313C9477DDEB4EAD0A05BEB79413AD605D27F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Huis - Neither In Heaven (2016) [FLAC|Lossless|tracks + .cue] <Neo Progressive>
 ```bash
 magnet:?xt=urn:btih:4D581EB2C24D29C06EFB036BFF4129767C02AF46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Fire Escape - Psychotic Reaction (1967) Reissue, 2007, Fallout [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:5537D9D330352FA5A239FD9C850D7FF578D1C81C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Obituary - Obituary (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:F242B63F88DF1EEABE076D27F74FBC0EEEAB14AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Albert Hammond - Original Album Classics (2016) 5CD Box Set [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:86933CE553FDFBEDD0EF3D308D12F463A9F2D927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Reamonn - Eleven (The Ultimate Best Of Reamonn) (2010) Compilation, 2CD [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:EAFA6F078DC179A347C3972A1BDA3C5746FE428C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

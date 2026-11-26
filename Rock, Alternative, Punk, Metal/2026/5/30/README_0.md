@@ -22,8 +22,7 @@ Degrave - 4 Albums (2017-2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:EE7ECC2084137BF2777E9E78B7B6C4DC1AC81EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lynyrd Skynyrd - The Best Of Lynyrd Skynyrd (1999) Compilation, Reissue, Remaste
 ```bash
 magnet:?xt=urn:btih:1D432898B73C40408C7ABBD23FE5A2B86C350F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Cure - Entreat (1991) Live [FLAC|Lossless|image + .cue] <New Wave, Alternati
 ```bash
 magnet:?xt=urn:btih:AD2FC3AB68F87B453A4F3870176C083DA76F7095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Absentia - Heaven Still Burn (2009) [FLAC|Lossless|image + .cue] <Symphonic Blac
 ```bash
 magnet:?xt=urn:btih:2F4FFFCD2E06F5324E142E57FB8C0352E996ABCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Soulbreach - My Dividing Line (2007) [FLAC, Lossless|WEB-DL|tracks] <Melodic Dea
 ```bash
 magnet:?xt=urn:btih:110F5430EC6055D1465B43CE719E32F7697F089B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Eyeconoclast - 2 Albums (2009-2013) [FLAC, Lossless|WEB-DL|tracks] <Death/Thrash
 ```bash
 magnet:?xt=urn:btih:0F3D699FFFE28980B8F0440A705B48A8801E5D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Quinta Essentia - 4 Albums (2006-2024) [FLAC, Lossless|WEB-DL|tracks] <Melodic D
 ```bash
 magnet:?xt=urn:btih:D46A881BAF63CF4DD4527C877D7C7BC83C578B35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Hecate Enthroned - The Corpse Of A Titan, A Lament Long Buried (2026) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:55161684B88D26786FF1F067411CDDC0EC2DE8DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

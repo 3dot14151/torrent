@@ -23,8 +23,7 @@ Linkin Park -  рок-группа из Агура-Хиллз, Калифорн�
 ```bash
 magnet:?xt=urn:btih:F1BE16F7F88AB731498FF17D3BD17C6320A7199D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1B1A087C32DB3352F9C870A7D07055A52A6DB26A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:00C4F3999DAB08047FF9A2D4CF79EB5624865DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D015A5CCB20DF90C798B355E24A7698740B51BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ O&O Defrag – инструмент дефрагментации дисков, �
 ```bash
 magnet:?xt=urn:btih:A3E2A762B1A658DE0958F61A9306A4984A2EE697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:BB46687805408AB7D65AC9B4A9C6A91D1C946280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:DC405BCF88FD29E328982A96A01BB44AA1AD5515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:DCFB0449106CF4C4E4B631FFABB17EB6D75B1ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ ScrollNavigator - программа, которая поможет вам пр�
 ```bash
 magnet:?xt=urn:btih:A249811CBECA37D33FD72388EF91BE2C2D1C1B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:0A9EF297D5DE6765924B456C4BD74507EEE3C8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

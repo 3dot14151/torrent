@@ -19,8 +19,7 @@ Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2958DDF69D2573969DF5133447C6C0889FF491B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

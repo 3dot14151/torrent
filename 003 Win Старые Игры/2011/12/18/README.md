@@ -19,8 +19,7 @@ The Boss: La Cosa Nostra / Крестный отец: Честь семьи [Ge/
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Earth 2160 / Земля 2160 [Ru/En] (RePack) 2005 | Sash HD
 ```bash
 magnet:?xt=urn:btih:18212E13E483C4A417FFD583970BF74B0116B7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

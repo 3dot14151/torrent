@@ -19,8 +19,7 @@ Hexagon Defense (2016) [En] (1.01) License
 ```bash
 magnet:?xt=urn:btih:8D1B730B1F802E07A5ECC7FD27AD9BC4D656ED45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Toxtronyx выпустила “Bridge2!” на мощном движке Unity
 ```bash
 magnet:?xt=urn:btih:5DEDD74ECE66294F2FEA79983FE7F3A3D975F3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blackguards 2 - это продолжение пошаговой стратег�
 ```bash
 magnet:?xt=urn:btih:4A9929B5ABF6AEC4938DE9D876D89FB8CD4FE4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dovetail Games Flight School - это аркадный авиасимулято�
 ```bash
 magnet:?xt=urn:btih:53C009A854AD8ECCD7A2EAFFE513555D4318D7F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

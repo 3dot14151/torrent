@@ -19,8 +19,7 @@ Age of Wonders (1999) [En] (1.36.0053) License GOG
 ```bash
 magnet:?xt=urn:btih:F8C7DF3DB5EF73A2AEB842495A9F7919669F215C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Age of Wonders 2: The Wizard's Throne – вторая часть прослав
 ```bash
 magnet:?xt=urn:btih:38126DE20B5FA4A61620E3D9CEAE4BAA5866D3F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

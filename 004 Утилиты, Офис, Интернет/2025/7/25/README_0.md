@@ -19,8 +19,7 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 ```bash
 magnet:?xt=urn:btih:86919434E046F27800D98F5686669D66C6245467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Cleaner for Zapret 1.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:8556669598F9ED5D2985856BE463DC7E32E7A477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:AAE689C5E7AE633D59F9C0939E225A93DB02B12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

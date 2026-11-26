@@ -19,8 +19,7 @@ Kane and Lynch: Dead Men / Kane and Lynch: Смертники (2007) [Ru] Licens
 ```bash
 magnet:?xt=urn:btih:2816413BF85342C41A08952476D036396F217CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

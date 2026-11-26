@@ -22,8 +22,7 @@ Archaic Oath - Determined to Death and Beyond (2026) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:2C1A99D86075AA650DBAE71404FF13FD29E080AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Efflore - Elegies of the Island (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 ```bash
 magnet:?xt=urn:btih:70370EF5B32409785B8B3F88393C0336F07376B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Baron Rojo - Volumen Brutal (1982) Reissue, 2005, Sony BMG Music Entertainment [
 ```bash
 magnet:?xt=urn:btih:607434E5549C8B1C30346E92CCC31CF25AE8D30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Order - Empires (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A78B39C0113DC7150145EC324147DEA0286EFC29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Riot - Sons Of Society (1999) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:0A3A2CE2D6B65F59FB5147723E294052FD8D5EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ ALCEST - Spiritual Instinct (2019) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:56D6EEF97B4F519DAE2BE7E75FBA6B47A15F4916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Disc 4 - Long Island, New York 1st July 1982(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:AB3FE1C9C6A16E76F17F02ACB9698DE553D338E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Blondie - Greatest Hits: Deluxe Redux / Ghosts of Download - 2014, FLAC (tracks+
 ```bash
 magnet:?xt=urn:btih:F50508E58DD7A062746F4C0F2656CE3713551C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ At The Gates - The Ghost of a Future Dead (2026) [FLAC 24/48|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:32ECAE27F13C42C1FF04BC5024E655DC45981BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Witherhoard - For All Who Have Been Broken (2026) [FLAC 24/96|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:A30E28393EC460A8101A56E79F39BD381F3B5CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Powerrage - Beast (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:C06AE1376C91599A27DEC55868E10E715F25E9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Marianne Faithfull - Broken English (1979) Reissue, Remastered, 1999, Island Rec
 ```bash
 magnet:?xt=urn:btih:9DDF2D1075F1ED0B86A112B44781E6E1B95C49B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ All About Eve - Scarlet and Other Stories (1989) [FLAC|Lossless|image + .cue] <F
 ```bash
 magnet:?xt=urn:btih:AE6450C3A03C2BB8086B829E2A49DBE67AD63ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Atreyu - The End is Not the End (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Me
 ```bash
 magnet:?xt=urn:btih:8166F863CE7D5FDEA00904047D6F3DF177F3A884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Njiqahdda - Nji. Njiijn. Njiiijn. (2008) [APE|Lossless|image + .cue] <Atmospheri
 ```bash
 magnet:?xt=urn:btih:593746C5843F254977FF3AA31222F39FABB6BEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Camelot: Wrath of the Green Knight (2020) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:17960815832C7FCC0BA3F9A8CD6DEA92631CB021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:064EC4DB958F4AA6F6C8C1802B4E021215DE5678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40AA3EF28DE36A494F41076BEC581A606873B8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9385B21A5A0C37C2E5BAE3803B7CE45D7FA61D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C41F694724BFCF931C6357854DB6FAD8FEA27831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2B8E8DED22415BCAC51457271B3DFFBE296C4AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:683FB8CE0A2146697E54FF9F582736F0EE10B780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9875DFCFDEF7B7DD432FE335A742ADFDCDD783A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34B9AAD286FFC446A405793EEFF40463A776B713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Stephane Grappelli - Afternoon In Paris (1971) 1991, MPS Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:6BC65CC9FAC321B2E96D3F451DB9ED131E3753C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32F3128786C0924FD4F1AD9F8022D48997B01FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Chet Baker - September Song (1990) 2002, M&I Company [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:91EF6F56CAD35F286B5A10759AE9A7F3A26E9A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ The Dave Pike Quartet - Pike's Peak (1962) 2016, Sony Music [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:F0F66994BE5FB891AB128418F98C10A8B0BD809A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Saturnalia Temple - To The Other (2015) [FLAC|Lossless|image + .cue] <Stoner, Do
 ```bash
 magnet:?xt=urn:btih:79881A3DCE2E10E45B7CF08A025C775949985C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A07C2A79E3449338CEFD5EB13E0F75165B0A678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Paul Desmond - Desmond Blue (1961, 1962) 2016, Sony Music [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:551BE83F7F04ED2C708BE9F6B59157C6A57A53E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A343A24A1C5D4B37E10E0F6E18473B24690B117D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ VA - World Wide Trance # 01 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:0D4FFCFF75566AFA76519BD4554FAF82A7C7FC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Ragan Whiteside - Treblemaker (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz,
 ```bash
 magnet:?xt=urn:btih:76A521C9F2809CE79179B859BBA066F509B0753B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - White Dinner Session Vol.1 (Relaxed & Sunny Dinner Tunes) (2017) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:0FEB9E91A27CAF462C67F6549FA7F29A8EEB1192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F2BA6B3C39C821E136F165FFA9C1A27FA31A55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ VA - Island Of Summer (Ibiza Smooth Summer Tunes) (2017) [MP3|320 Kbps] <Downtem
 ```bash
 magnet:?xt=urn:btih:A29A296BE253E35EA80FD69E82068B1F51B5A17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:A29136C8109BAFF84D7A694EF6B18987D71FAAD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ The Idle Hands - Ready For Business (2011) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:0A542FC909B7D0E8DB0A75DD38BDF8C00C393E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ VA - Not That Simple Sound Vol.10: Premium Lounge & Downtempo Moods (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:02B9B920554FE6EE0C986AACC906FD25A8412A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21798B38FF303179C8FCB7472FADD36B1630A7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ VA - EDM Hits Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:506E43231A1A3264FFEA187B1BBCB0C374302E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

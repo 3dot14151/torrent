@@ -19,8 +19,7 @@ Directory Monitor можно использовать для мониторин�
 ```bash
 magnet:?xt=urn:btih:97B39F71BC88CEA22CDEE115FD8F731DA78F194B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bandizip — программа для работы с архивами. Дан�
 ```bash
 magnet:?xt=urn:btih:9D8A0373A20E9E9EB66C45066FA337AF24D905A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ QuarkXPress CopyDesk — это программное обеспечение д
 ```bash
 magnet:?xt=urn:btih:2557479281D85C8F9871EB4923F21B6DD0E042C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ VideoByte Blu-ray Copy — это наиболее удобный инструм
 ```bash
 magnet:?xt=urn:btih:A08904CE19A2AE484B0A39D325A14C924EF104EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ WinRepairSuite 1.0.0 RePack [En]
 ```bash
 magnet:?xt=urn:btih:028D8C0AADEA58DF1609CDF2948CFB56928E8E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:B7C37235FEAA9A4455F7E304AB5C259E5997726A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

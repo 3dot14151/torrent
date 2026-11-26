@@ -19,8 +19,7 @@ Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
 ```bash
 magnet:?xt=urn:btih:502A0F7FFDB5A355CC126F2225F4FB0535BF66A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

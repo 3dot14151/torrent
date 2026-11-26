@@ -19,8 +19,7 @@ Halloween Stories 3: Horror Movie (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:B678D334581DFF2E48F2AF87AD0EE7784F4336FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Surviving Mars (2018) [Ru/Multi] (20191010/dlc) Repack xatab [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:C5EFAA594AB81494F669BD1EF7B8C9D148AA9AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

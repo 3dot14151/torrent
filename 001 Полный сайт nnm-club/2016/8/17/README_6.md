@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:329F6DA6CBF1B6A84EADD00972630908B0C336BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B222ACC69F5536613A7978D63A5005EC1F29C4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Mind Dead — это аркадный шутер-хоррор. Вы играет
 ```bash
 magnet:?xt=urn:btih:F21CF361BFEAC85D5CDC849AFCE7FC38E86BA3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Painkiller: NecroGenesys (2004/2016) [Ru/En] (17.08.2016/1.3.2) Repack/Mod Diavo
 ```bash
 magnet:?xt=urn:btih:A87DB511EF1C3061B4E8FC024CC872A4890ED1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F56D03F090E105C4404AAC5D66D2CA128A88A895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Avast Internet Security - Nitro Update в сочетании с самым за�
 ```bash
 magnet:?xt=urn:btih:B60C5B838F92475C7C08BBAB98ED9B2F2F1AA172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50E0997FCB20943B3BCD76D1CDF02D51149A0F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A041FF2DC4BA492388B9B699DC2B87CAAEAE5D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8451E602804C48111800381F3A28547D0B3913A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Lumo, волшебный платформер повышенной степен�
 ```bash
 magnet:?xt=urn:btih:85D8DB0F8D1E0FBD7E1554A52FCCC5683D9A77F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Advanced SystemCare - программный пакет, содержащий м
 ```bash
 magnet:?xt=urn:btih:5A924E4C1418377DB388F6E0115E049B68524539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Linn Records - The Super Audio Collection Volume 2 Sampler (2006) [DSD 5.1, 2.0|
 ```bash
 magnet:?xt=urn:btih:C39F3C8247981DC84A795F3BAC1DD1BA73312969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Avast Premier - Nitro Update совершенствует сканировани
 ```bash
 magnet:?xt=urn:btih:091783222F34B03A4050DADA421DFFC8F1D78652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C643A7892A736D2F3A8C305CDCB29C30EF13DFC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ Microsoft ранее в этом году анонсировала выпуск 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A0294CF9FDFF4CF4BC842C45C964FC37ABF3E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ PROMT Expert 12 – надежный и эффективный инструме�
 ```bash
 magnet:?xt=urn:btih:A90F45C841D63DAC254F662EDA788395B2911F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3773AE747793270EA6A64F9BA1146ED1130425B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +523,7 @@ DiRT Rally (2015) [Ru/En] (1.2/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:A562710F5AF7C2666D714863CD364DBE860BB97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +548,7 @@ PROMT Professional 12 – переводчик и словарь для мало
 ```bash
 magnet:?xt=urn:btih:7E592E362A71246F6404A5AA505D062BC244929B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +573,7 @@ Bounty Train (2016) [Ru/Multi] (0.10201/dlc) License GOG [Trainium Edition]
 ```bash
 magnet:?xt=urn:btih:1C37120F793FDB29F62A13B8B6F75CF23630A5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ GoIT | [GO IT] GoStart (2-месячный онлайн-практикум) (201
 ```bash
 magnet:?xt=urn:btih:9BCEB7E8D807CF1A92334EC203A6037E218150ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DF7D252A3225E0DAF14017CC608D695FEE59C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +651,7 @@ Link2SD Plus v3.4.2 - перенос установленных приложен
 ```bash
 magnet:?xt=urn:btih:71419BA898F9A17037439846FF68A858E2B21ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

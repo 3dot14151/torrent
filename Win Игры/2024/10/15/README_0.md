@@ -19,8 +19,7 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:82CA320879F963DA2E3F4C55170C35C2598F40BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SteamWorld Build является спин-оффом франшизы Стим�
 ```bash
 magnet:?xt=urn:btih:275EF07E7FC8F33F9B754B7ACD5150DB9FB58CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Game Builder Tycoon (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FF6CEA449EBC5BD9EBEE3CDFDE03C8EE10C638A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7F7590FA88EEDB58472CF4E2F3DDEDF87DA92843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kitten Burst - это сюрреалистичная гоночная игра, 
 ```bash
 magnet:?xt=urn:btih:B6FFC8C38B295A55461A3BE2DB7E0C82FB9E9BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Edge of Sanity - психологический хоррор на выживан
 ```bash
 magnet:?xt=urn:btih:523D78B7871A42A5467117C16073E7F0FD311B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Portal 2 (2011) [Ru/Multi] (Build 14822445) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C3A27C45950FA4EC1301EA74F211630C32402991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0.15) Repack Fit
 ```bash
 magnet:?xt=urn:btih:CB96FE0E0EE8953BCACBD3B369FB61CC4E46E896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

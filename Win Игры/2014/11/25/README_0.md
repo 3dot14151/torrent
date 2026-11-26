@@ -20,8 +20,7 @@ Mercenary Kings - убойный 2D экшен-платформер в стил�
 ```bash
 magnet:?xt=urn:btih:73663D6DF43898887D6309DC7CFC0B8E4CD6CB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/En] (2.4.0.19581/dlc) Repack R
 ```bash
 magnet:?xt=urn:btih:C27BDE736467606BE46708D7CF4C6E2ABA83A51D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

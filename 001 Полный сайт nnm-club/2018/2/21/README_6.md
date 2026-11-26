@@ -22,8 +22,7 @@ Mose Allison - Ramblin' With Mose (1958) 2005, Original Jazz Classics [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:E9D82A760D2C53022D7A0FFB1770C372FF30CCB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Billy Childs - Rebirth (2017) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bo
 ```bash
 magnet:?xt=urn:btih:DF92CC8983AF6F0EE753A2F2FDDA423342F9438D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) 2011, EMI M
 ```bash
 magnet:?xt=urn:btih:2B0B91CB24EBC447B5BA78FA0C1EA7B742A6CDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Power Sounds (Volume 1) (2018) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:1AE5201ABF7BB3643285CE8A64BEA1FDCFA0C1E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ John Shima - Elements Unknown (2017) FireScope [FLAC|Lossless|WEB-DL|tracks] <El
 ```bash
 magnet:?xt=urn:btih:421DD4CBB53312BED78054C89BD42CFAEE35FC1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Christine Jensen Jazz Orchestra - Habitat (2013) Justin Time Records [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:C9DF4DFFD20F3F1B38FF567B4127020D447A7B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Pharoah Sanders - Izipho Zam: My Gifts (1969) 2006, Bomba Records [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:A7619A2C45ABA5A4D448271086710FE96F4E7B5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Earl Hines - Spontaneous Explorations (1964) 2017, Solid Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:E7724CB1C92A408B972E62E9CCD9091C79A01177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Bernard Primeau Jazz Ensemble - Virage (1997) Swing'in Time Records [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:4DDF3335887AB994274ABCC312E717F37283A7A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Chico Hamilton with Paul Horn (1954, 1956, 1957) 2010, P-Vine Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:89AC385F6961D8D016C29EDE8FC31202DDDC48C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Orchestre National de Jazz de Montreal - Christine Jensen: Under the Influence S
 ```bash
 magnet:?xt=urn:btih:5860D7C5BB2A3C84E23718FBCABA571E50DD6514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Mose Allison - I Don't Worry About A Thing & Mose Alive (1962, 1966) 1999, Colle
 ```bash
 magnet:?xt=urn:btih:FACAB99484580D881D01BEE74F0CAD5D50AF3CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00E03D71B5A10C9349D8B64309F4255ED84796FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:A2F75A81FC8F8707077B79FFFDA466F31B8822E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Tom Guarna - The Wishing Stones (2017) Destiny Records [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:7CA57C893A95F2D24EE4BA06E215027D90E6E83E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:581AE629CA5D8E91C72BC962843C001AFA1FF7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ VA - True People: The Detroit Techno Album (1996) React [FLAC|Lossless|tracks+.c
 ```bash
 magnet:?xt=urn:btih:12557AE82B0B714A70BCA091AA511E8114685B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:2FEF509CADA5F7B9E774B25474EDE1D3BA2EE531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ Paulina Cassidy - Drawing Up A Storm (2018) Projekt Records [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:B9240883905E63FBB277159D0258D9D864C99CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:4E17EA688A5D525FD003B208E3A7A499EF2CA6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39F6848B188E9F1CBD0B7E60400526E4B1E12658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:5F36FA4E88103768913905436FBD4B6D8E707920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F15FAACF983E8A60279D91C935BF783E8F426A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:029FE6F410A218E0349EF652F2C9E71CE72673E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ Noa Fort - No World Between Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals
 ```bash
 magnet:?xt=urn:btih:AAC7AB5BA8AAAB023D368DB1EE322CF75B021EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ VA - Winter Twilight: Eurodance Party (2018) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:4E0EBB71EA59DD9A00E1C3C0B0FBEC13C07D457B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ VA - Nothing But... Psy Trance Vol.01 (2018) [MP3|320 Kbps] <Psy Trance, Psychod
 ```bash
 magnet:?xt=urn:btih:AD543772B483BBF67E04434C89D20CA0A20CDCC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Goa Vol.65 (Compiled by DJ BIM & Materia) (2018) [MP3|320 Kbps] <Psy Trance
 ```bash
 magnet:?xt=urn:btih:6B2297B4994074219E7277DC3CA8C828147C7743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Number One Ensemble - 2 Albums, 1 Singles & EPs (1979, 1980) LP, 7" [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:EBBA7A891180FEC2DD8953ABBA64C6517683FCFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCBCE68BFB22C7CE4EE7C0BD7CD4FD24EDBBCE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Roots - Roots (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:5AE244783682E74FB1202A827AED2CE9F6B695B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Nu Disco Vol.6 (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Nu Disco>
 ```bash
 magnet:?xt=urn:btih:6B585DA5AFF8058B8A93ACBBF417F1508C0E4CFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78FDCB6893FE4426069AE6999FCD669D59E3D377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Klaada - Breaking The Cycle (2018) [MP3|320 Kbps] <Balearic,Downtempo>
 ```bash
 magnet:?xt=urn:btih:A9C5CDFF7F8706133FC5B3196BB41D2AFE8FD6C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5B6F90E18EB669895BA061CBDDD641769C7113A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:560E24DA7A1B158099D64D63208518842B531B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Pentangle - Reflection (1971) [FLAC|Lossless|tracks + .cue] <Folk Rock, Jazz>
 ```bash
 magnet:?xt=urn:btih:FF328A7DDB84508BD8D770001D0B7212350A5351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ MacBooster поможет настроить и ускорить работу ma
 ```bash
 magnet:?xt=urn:btih:0E212F7D4C50B820023CA57344F92E47FAD92623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Marika Takeuchi - Colors In The Diary (2016) [FLAC|Lossless|WEB-DL|tracks] <New 
 ```bash
 magnet:?xt=urn:btih:A082171CE9AE98ADBFF706D8133513D34B6F9E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ A4 Squeeze Me(   Читать дальше...   )Жанр: Big Band, SwingПро
 ```bash
 magnet:?xt=urn:btih:0CBFC2C9D10B006FEAB54FAEFC01ED494A406CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED2CB77A84963D52FCEE33B78D28843EA8A2A3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8195D3C8928FAB2208346E204CFCAF8D894A10F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ Llewellyn - Return to the Temple (Re-Recorded) (2018) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:44FB78FF01243C28EA0196197DF902108144F3E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Marmozets - Knowing What You Know Now (2018) [FLAC|Lossless|tracks] <Allternativ
 ```bash
 magnet:?xt=urn:btih:49BEB076F7010B9D5B5670F6B2B3D2763D9A3537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ A3 	Chiisai Aki Mitsuketa(   Читать дальше...   )Жанр: folk, Wor
 ```bash
 magnet:?xt=urn:btih:164751F2695D64E635B9A1893CE2C0D60C0D4FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7018732DC320FF870ED436A3DDC1DF38628992D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C16BD69C28EA79227DFD06076790060B1BCD74CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:AD06DFC2FE3328723FFC0F9263C0E488B72E1924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6945EEB7BC03B9B77CFBE8790BA25C4754421F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Kruger - Врага бей в рога (2018) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6C1D8B552BACAB20C07A2A7B536AF0E612169AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ Tune Of The Week(   Читать дальше...   )Жанр: Trance,Progressive
 ```bash
 magnet:?xt=urn:btih:12B98B51496038D5CEB068988F28F8AD78ECB1C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ Pound your table polkaЖанр: Folk, World, & CountryПродолжительн
 ```bash
 magnet:?xt=urn:btih:BF2EC4A40FB4F01D545AF727A18DD697746EC584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

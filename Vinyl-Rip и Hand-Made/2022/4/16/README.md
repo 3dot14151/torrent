@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:5D336984AC1CB96C0F77ACC92BDF252DE8FDFFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F9E024105677E772DF14B445D007991E7D08F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ A4 Flesh And Blood(   Читать дальше...   )Жанр: Pop RockПрод
 ```bash
 magnet:?xt=urn:btih:7B83BAB6E66B9436BADA4446EFB99F23D9659D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ A4	История Любви(   Читать дальше...   )Жанр: Pop, C
 ```bash
 magnet:?xt=urn:btih:E1E65B9B856742027C7E9D86F3727932BD599739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Golden Hits Of Turkish / Золотые Хиты Турецкой Эстр�
 ```bash
 magnet:?xt=urn:btih:FCDF75C9E94F3F159AD388A4B25EC609962A71D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

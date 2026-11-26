@@ -19,8 +19,7 @@ Ea - Дискография (2006-2010) [APE&FLAC|Lossless]<Funeral Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sweet - Sweet Originals The Best 37 Glamrock Songs Ever (2CD Box) (1998) [MP3|32
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pink Floyd - 12 Albums Japanese Edition (1967-1994)  [MP3|320 kbps]<Progressive 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

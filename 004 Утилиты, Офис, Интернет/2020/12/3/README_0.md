@@ -19,8 +19,7 @@ Windows 10 предлагает множество удобных функций
 ```bash
 magnet:?xt=urn:btih:1DA00C8F60120F54747F4CB1C48F87D9A22226D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

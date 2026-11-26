@@ -27,8 +27,7 @@ Rhapsody Of Fire - From Chaos To Eternity (2011) [MP3|176-196 kbps]<Symphonic Po
 ```bash
 magnet:?xt=urn:btih:157B9433AE851BF318F82A2615EF27CBA15DB9AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4F9CFB08BEC8D167978E08A75E92F7AE3ADA891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Morbid Angel - Illud Divinum Insanus (2011) [FLAC|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Kaiser Chiefs - The Future Is Medieval (2011) [MP3|320 кб/с]<Indie rock>
 ```bash
 magnet:?xt=urn:btih:1B6D0E274CD5F49A89B4BF91CF854AB165DE430C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59E6B3F63C25972E9B24F1296F2EFF9771B4D287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

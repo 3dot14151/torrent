@@ -19,8 +19,7 @@ Nioh: Complete Edition — полное издание приключенчес�
 ```bash
 magnet:?xt=urn:btih:9C9C258861ABDCFCCFC7D707A2F58B79C6A17489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16C39F4AD4BC8733B356FD82884110DF3DEE71D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TIS-100 – бесконечная игра о программировании 
 ```bash
 magnet:?xt=urn:btih:91F3C3E8AEC611651195FD502264A9582240C199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

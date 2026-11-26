@@ -19,8 +19,7 @@ Advanced Office Password Recovery Pro 6.34 Build 1889 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DD715447181B123C58F254673ECD89069364DE8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ V.A - Shadows Of Tragedy (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:C2892BFB4BDEDE150A4FF56062BE28C2FC3AB667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ My Darkest Hate - Anger Temple (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:45F88271FC3330DC1A4E8D60D6EED1457320C8E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bathsheba - Servus (2017) [MP3|320 Kbps] <Occult Doom Metal>
 ```bash
 magnet:?xt=urn:btih:AE3B1D74295780E70A5A52252B1D097F78AAF5AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Chrome Molly - Hoodoo Voodoo (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:72F8B29531F4ED2FB728403C7A0F0D2AE7FDBFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mastercastle - The Phoenix (2009) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:EC617DD432188D1E26C635B6EDBDC45EF784DF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Al Atkins - Reloaded (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:40C608D68094BA11A3AFC4E6A757E7C977612223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Best of Lovy Metal (2007) [FLAC|Lossless|tracks + .cue] <Metal>
 ```bash
 magnet:?xt=urn:btih:A855B1EDFA2EB36FC6F6E19CA993FB03E8F5D3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:96759E465B14B082C95A218F6E08300C8FE5197F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ John Garcia - The Coyote Who Spoke In Tongues (2017) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:96FA69B90D95AD718F1080DFFF893B929366921C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Magnum - Princess Alice And The Broken Arrow (2007) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:3AAB7C3860666FB19A79CA99144DE1A300CCBA0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

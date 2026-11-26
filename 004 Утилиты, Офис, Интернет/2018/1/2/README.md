@@ -19,8 +19,7 @@ Surfblocker - программа, значительно упрощающая о
 ```bash
 magnet:?xt=urn:btih:9672122849F8D6B25C6AD2A8642C9B28182DF9FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ cdrtfe 1.5.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:531FDB76279CC6F5CDDE545952C85F6DAC910400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tenorshare Android Data Recovery - мировой лидер по восстан
 ```bash
 magnet:?xt=urn:btih:9C2E6CA2DEB1D8BB09CBEAE66BA085F7BBA6446B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

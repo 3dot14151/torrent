@@ -19,8 +19,7 @@ Questerium: Sinister Trinity Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:A4A99660A62F0A59ED6F801894D6A7B7D798D047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Stacking (2013) [Ru/En] (1.0.0.4) Repack a1chem1st
 ```bash
 magnet:?xt=urn:btih:7A3B4AA4C29C3A952D3A3E1840A9DA5AA078F950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Sniper Elite Nazi Zombie Army 2 - сиквел спин-оффа в серии S
 ```bash
 magnet:?xt=urn:btih:93206AE3C0046C0A5326740A274F9FE260B49962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Earth 2140 - это стратегия в реальном времени о в�
 ```bash
 magnet:?xt=urn:btih:BBFB59D7C9CBA834BBB268BB9656E8016E06A19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/En] (1.0.0
 ```bash
 magnet:?xt=urn:btih:39CEBAE12FD259BDACAC716493DAF9A29E7A4CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru] (1.0.0.14
 ```bash
 magnet:?xt=urn:btih:7E68ED56A2F6D0E2B203E5DEB6663C2068061427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

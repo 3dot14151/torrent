@@ -19,8 +19,7 @@ Strava: бег, велоезда, хайкинг v344.9 Mod by ReVanced Team [Ru
 ```bash
 magnet:?xt=urn:btih:33ED3C8C445D1398F17BC948937C42A076458FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

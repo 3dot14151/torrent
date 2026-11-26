@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FAEF39AD47E8EADE6DE408C0D049A3585857FF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:208CA98E847EAECF8A3AF8D9A7A8B738DD8E600E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Minimal Firewall — это портативный интерфейс бранд
 ```bash
 magnet:?xt=urn:btih:792CFBAC163F4906DFB3E609A8F7E87CE6392791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:F64420042C0A9EE5BAC9E37C33EF9AE13FD17E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Seal of Evil (2006) [En] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:8511C3156E84C1AF545C5729CA4D6E39AD36634F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AE98DDFBAE33FE7E4608A7A71BCADE5C834E2B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:99118EA0B3D7C59ED66DF3016FA101BC9D75620F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:DDE768A0E9D9AFEF8A0D4E025363C4C6381B0AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12AFA23D6957617C5B5E16345E22B0FB721B3800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF49DD62568D7FEC0A3074BEB63ED65BF7B42488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Gallery - Photo Gallery, Album (XGallery) v1.9.9 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D1F6564363D87FB83B0025901907469EAEB00C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59FC98B6C89D840641F77D1CE6542A500C1959F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Folder Player Pro - это ориентированный на каталоги 
 ```bash
 magnet:?xt=urn:btih:A42CE0A9DE3D360589E7036CE4CEC85159B5E7F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95D8E385AFB676B33DDE92AC3A0C0352FF58B875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA35D43ACA91E292A75C97796CF2E1FF45C7C429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Wise Disk Cleaner 11.2.7.847 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:38C59B37E0F7C06C1D562DC5A59C328AE97C522A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 ```bash
 magnet:?xt=urn:btih:2EE0F66FB6C7B6ED9D22918F0AF8B1786E095025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ O&O Defrag – инструмент дефрагментации дисков, �
 ```bash
 magnet:?xt=urn:btih:0A7B882AE8888A08024C720D48D34C266AE09EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:843C0D45E012A01D04038C1A48C54229B791E430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B32203E8DD9679B28F59C21E2353E4CDBAAA7D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +522,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:2009B3BBC4F0C61B9D4712E97E4BFF3394BE79B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1446DB76AA2724D5BC7830583E605DA6178BEFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +575,7 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:976547F26AF22F95EC2507E54CF774EE362F6A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 ```bash
 magnet:?xt=urn:btih:C11AF59B394A3CE623E44AF09FD55C99DB7967DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B27B500024E630E433CC4A45DB4AA199EF56D9F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24051CC5FCE789A9436EE9447CBDAF8A0BF08B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

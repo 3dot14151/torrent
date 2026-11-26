@@ -19,8 +19,7 @@ Flower (2019) [Ru/Multi] (1.45) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CD49A6481D36A36735C5B01D4FDDEEEBFB0067BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Slaughter 3: The Rebels — это шутер от третьего лица с 
 ```bash
 magnet:?xt=urn:btih:F35027FCF8425EB65827ABDBDBE182B15101E422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Divinity: Original Sin – новый выпуск знаменитой сери
 ```bash
 magnet:?xt=urn:btih:9B0C8ADA66F8D69E42E32672EAF7553D7A86D48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

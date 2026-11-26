@@ -19,8 +19,7 @@ Harry Potter - Anthology / Гарри Поттер - Антология (2001-20
 ```bash
 magnet:?xt=urn:btih:F45CC6FF0D5B2CB7EDA4630B35B2C9EE7AE08523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Trek: Voyager - Across the Unknown - это стратегия о выжи�
 ```bash
 magnet:?xt=urn:btih:B742DBA8A3AAE493C91BC2A00FBA8F72E2F9A5FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (269) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:2CED0AE995FA8F8CAC359717BF6C9564E1B9D9A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Yakuza Kiwami (2019) [Ru/Multi] (2.13) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0FC1DBD0C1948CEBDD7774A2ED8D6FA04C341B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dofamine (2020) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:AEF23CC5153EE44205ED4EEF44500FDAA4A9C6BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ ChromaGun 2: Dye Hard - это научно-фантастическая гол�
 ```bash
 magnet:?xt=urn:btih:4E1C90A1711683A5058CABF6D1413E09E66DEE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Half-Life: Alyx - это возвращение Valve во вселенную Ha
 ```bash
 magnet:?xt=urn:btih:2AE93745071C5294900404B53771D5CFE3F8C643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Discounty (2025) [Multi] (1.0.16/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:670D6BCEA2E9F456F1C1AE2FC4355DBA001F9199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

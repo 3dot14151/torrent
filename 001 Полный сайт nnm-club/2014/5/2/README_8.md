@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:A3E0D9917DD51BB13722B3DA420DA6361E3F6D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Absolva - Anthems To The Dead (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8E0CE802928F8BDD913AD682CD0274F888E18FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ VA - Indeependent House Vol 1 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:C85153D982D6654192AF2B5B9785A16F51EA01AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Julian Jordan - Up In This (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:E0DD3969ADD0978236451821AD182C5603E2C144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Comedy Баттл. Суперсезон. Выпуск №5  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:8DF671BCA614DBB2913EDA11323E5564F44A2BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Mike Hawkins - Soldiers (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:291C49D15D4B44003B572921919878F48B584C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E55FBE99B886A9F36F777C327F2BF27E97B3646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Reactory - High Of Radiation (2014) [WavPack|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:03080C6C05409713AC800FDC99FEABE2680CD0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E9228373F4F254A45E37C97A3354DC574D6A777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AC0556A5746D1FB483C703571F790BA68FC30D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ VA - Black Hole Radio April (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:58E645D9A3FC5BB687E00204BB9132C814468E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ DJ Nike Twist - TranceWave 088 @ GTI Radio (01.05.2014) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:EB612F4C1A9AD3AEC875D8EA4105F2E3DEB0FFAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ Ralvero & Dropgun - Hayao (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:D02147032AC23CFAEA29BE771B267A7E52ED94BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B251043DB431D43B08A5FAF0A660B28A1DB16B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF8057A5796B5ACA0F27368A62F3DBB0A5E2DA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ Blasterjaxx - Fifteen (Hardwell Edit) (2013) [MP3|320 кб/с]<Progressive House
 ```bash
 magnet:?xt=urn:btih:94B4A43737255FC3505B0520A2F3EAFB8385D520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BCCD1F87566D72E41AAE4E48BCB4E1C716E6650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC4753D1FC8563FF8E0B68E732E0FAE0194606CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ The Hundred in the Hands - Live Melt (2011) HDTVRip [H.264]
 ```bash
 magnet:?xt=urn:btih:16FC7EE399C8D8C557C0855D266900FBAF8560A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ FrainBuck - Dubstep Collection (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:4952D517762F234A9F6B61DD578131B434E1F800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ Kodiak Jack - Alhambra (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:95D8E208E5404E898F15555C7B01EE83664449BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FC5F8560EB9F4C7F3198C6FDA2F490B5212B252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ Sander van Doorn & Firebeatz - Guitar Track (2014) [MP3|320 кб/с]<Electro Hou
 ```bash
 magnet:?xt=urn:btih:73BC907945F26CF47B8DF0E8C911F90A222BF30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A59A4D3AE0D5C176E4654249F7D4F47328C8C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

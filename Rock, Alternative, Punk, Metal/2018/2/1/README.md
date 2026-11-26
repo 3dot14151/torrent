@@ -22,8 +22,7 @@ Booth And The Bad Angel - Booth And The Bad Angel (1996) [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:4B8DEE62511C44EB0F347B32EE6563CA0B4F7638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Morrissey - Bona Drag (1990) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:93D992D201567AF582C2E5B2DBE1B226FFFA9F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tiny Moving Parts - Swell (2018) [FLAC|Lossless|tracks] <Alternative>
 ```bash
 magnet:?xt=urn:btih:CF74D9E12EDC02DD3315268B96395C0A780F7A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20CCAD09CD005889295C17EA384FB5C33EB44D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ The Killers - Wonderful Wonderful (2017) Deluxe Edition [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:8B4F0411FDF89A0B6ABF9389D1150D6E84AF6421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ The Cardigans - First Band On The Moon (1996) [FLAC|Lossless|tracks + .cue] <Pop
 ```bash
 magnet:?xt=urn:btih:82DC048F2258B1C2DBBFDE11A8F6A2D47E0927AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Radiohead - Pablo Honey (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:9B7D708374DE3668F6A82E4B84F3054841F7ECD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Песни простого человека. Трибьют группе �
 ```bash
 magnet:?xt=urn:btih:A48F78F53CB1977B15ED435B36EC6794243B53CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

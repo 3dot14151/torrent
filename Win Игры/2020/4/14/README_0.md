@@ -19,8 +19,7 @@ Barrow Hill: Curse of the Ancient Circle (2006) [Multi] (bh1-gog2) License GOG
 ```bash
 magnet:?xt=urn:btih:B4ADC57B1643CCEDE3F1DC1B1700DFB9E40DEE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Barrow Hill: The Dark Path (2016) [Multi] (bh2-gog1) License GOG
 ```bash
 magnet:?xt=urn:btih:012F9E80787BAB1B80290AB16DDD71CD9F3595E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Panzer Corps (2010) [Ru/Multi] (1.30/dlc) License GOG [Gold]
 ```bash
 magnet:?xt=urn:btih:DB827C8A8BFF3423CAD248DFCE2B5DBAD1B1BE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Xeno Crisis — это шутер на арене, где один или два
 ```bash
 magnet:?xt=urn:btih:2905BE298DDD47068E0F974D42B13F740A328133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Weedcraft Inc изучает индустрию производства, выр
 ```bash
 magnet:?xt=urn:btih:A3D8F6ED2FD754506D4687650B1DDA760A90C6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

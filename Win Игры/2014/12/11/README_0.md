@@ -19,8 +19,7 @@ Christmas Eve: Midnight's Call (2014) [En] Unofficial [Collector's Edition / К�
 ```bash
 magnet:?xt=urn:btih:03B7F662B62157602AE302D42E0A0522A7121748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Flyhunter Origins (2014) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:01B5973DFE2AB879D5C971A67242DC5181A40189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

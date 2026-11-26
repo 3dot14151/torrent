@@ -21,8 +21,7 @@ The X-Files Game (1998) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:67CCABAE9A2F0219843F97354C8E9180516F8922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

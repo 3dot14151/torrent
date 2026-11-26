@@ -22,8 +22,7 @@ Blueneck - Discography 12 Releases (2006-2018) Don't Touch, Denovali Records [FL
 ```bash
 magnet:?xt=urn:btih:53525A141AC133482610CA6CDB34AC4408E3E74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Motley Crue - Shout At The Devil (1983) Japan +5 Bonus Track [APE|Lossless|image
 ```bash
 magnet:?xt=urn:btih:F18954CA659146ED68BB1FF0485D66E884F7581B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Steelheart - Through Worlds of Stardust (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:39400CF5913EA7583CFB1B6D166BB3A1382DCCCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:452D9A0C3C17DCE10E8BAEF8FBFCA766AF8F4F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Sweet - The Polydor Albums (2017) 4CD Box set, Compilation, Reissue [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:AE1E025677A679D08F8B91040171D501439792FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:553F5449C389C88B6C746DBDBF3730B34038F20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WARNO (2024) [Ru/Multi] (150731/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:94D2C57F39587A7869A361CDAFDF0387CD14DDD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sugardew Island: Your Cozy Farm Shop (2025) [Multi] (3781/dlc) Repack FitGirl [S
 ```bash
 magnet:?xt=urn:btih:76748FCF9922EA605148281025D64959CC68D449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cities: Skylines предлагает по-новому взглянуть на 
 ```bash
 magnet:?xt=urn:btih:7DF73AB0531ACF357CABC0917964A59F84BA87D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.29/dlc) Repack FitGirl [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:D0FF06CB8612F24CC0609CC1D26E763E684870F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Zombieville USA 3D - это аркадный шутер, в котором чу�
 ```bash
 magnet:?xt=urn:btih:A16B3B0C1F0143975A7018BA70CBB886B239FD8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Icebound Secrets: The Frostwood Bane (2025) [Multi] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:74FC73ED536E79D81AEE2AA28AC1A870CA33EB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Woodworker West - журнал, посвященный столярному де
 ```bash
 magnet:?xt=urn:btih:C76AF3595EDAA41001064113AED23079A8500B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

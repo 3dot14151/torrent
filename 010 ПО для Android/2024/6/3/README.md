@@ -19,8 +19,7 @@ FBReader Premium v3.7.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6FCB3E274F0A359EE1D9DB993108EF09A78EE5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

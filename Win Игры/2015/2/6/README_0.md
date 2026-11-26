@@ -20,8 +20,7 @@ Apotheon (2015) [En] (1.01) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:55D3D4D868138748DA2F4E2AC8E8E8DD26988779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

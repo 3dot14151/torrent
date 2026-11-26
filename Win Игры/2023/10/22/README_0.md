@@ -19,8 +19,7 @@ Lair of Torment - это короткий инди-хоррор с голово�
 ```bash
 magnet:?xt=urn:btih:A5E3631DC60BF832C656EF7DE793336ACC48C919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
 ```bash
 magnet:?xt=urn:btih:B128678B347D6705D094AF55EBC5FD9475459721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

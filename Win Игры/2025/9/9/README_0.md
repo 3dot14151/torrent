@@ -19,8 +19,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.9/dlc) Repack Let'sРlay [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:0501A03AC35734034317671E6F34C76240181411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:C0A37E5DC808F9F0B7281E90327561CF28982BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CarX Street (2024) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Deluxe edition]
 ```bash
 magnet:?xt=urn:btih:67CCF6587CA48278681C2139D2702EBE8F4D12A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06AD071A996BD3AFD3DA07B1AFBEF4125C055593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Satisfactory - это игра от первого лица в открытом 
 ```bash
 magnet:?xt=urn:btih:4B4F247EEFA5FF0BFD4E0EEE7C9441C9DFCC6154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack Let'sРlay [Total Conflic
 ```bash
 magnet:?xt=urn:btih:0AE8B1F34A59EA0400C6CB0312F992FA01EC5B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Kaptain Brawe: A Brawe New World – первая часть приключен�
 ```bash
 magnet:?xt=urn:btih:1065C27DD9BBDCC595A898BB49ACA38F7BC6322A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ No Man's Sky (2016) [Ru/Multi] (6.03) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:2FF010C7A37AD2EE3FB4D977EB9984E9BA110523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Fallen City Brawl (2025) [En] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:26D5467B92D6B351A1143BD589FB81056902EEDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Open Transport Tycoon Deluxe – это экономический симуля�
 ```bash
 magnet:?xt=urn:btih:433F5A333CBCBAE89E32F79F07736BF7BD51FEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

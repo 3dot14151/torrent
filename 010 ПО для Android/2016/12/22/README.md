@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D553AF496C9EA425BB8EF4BF07214A6727433C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ LG camera — Камера (фото и видео) с расширенными 
 ```bash
 magnet:?xt=urn:btih:4C6013D412C2FA8F41C2A57E1A1474326EC3924A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Video Converter, Compressor — это мощный видео конверте�
 ```bash
 magnet:?xt=urn:btih:124293D5B9A4D8BDCC8267A6E468C81E10A4A2A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pixlr - фоторедактор с множеством бесплатных ф
 ```bash
 magnet:?xt=urn:btih:4844D383C12BE0ACCAE3A069DD9C33F23BECCC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nova Launcher - это мощная, настраиваемая и универ�
 ```bash
 magnet:?xt=urn:btih:9F878B6AB9A2608F25F6D7371D84D04B1778C363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

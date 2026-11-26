@@ -22,8 +22,7 @@ A4. Hooked On A Problem (4:59)(   Читать дальше...   )Произво
 ```bash
 magnet:?xt=urn:btih:D9400E4EF1B1EA5782302141DB7AFC5D2F29301D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

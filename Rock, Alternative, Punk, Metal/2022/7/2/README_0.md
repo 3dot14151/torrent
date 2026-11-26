@@ -22,8 +22,7 @@ Sorgeldom - Innerlig Förmörkelse (2009) [FLAC|Lossless|image + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:57C28826B62390DC1ACAC0D3A561D764B27156D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sorgeldom - Vithatten (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:28B1B185B656E605B4F461E373AB865A566DB7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Bongbongbeerwizards - Ampire (2022) [MP3|320 Kbps] <Drone, Doom, Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:C8B6FB2B68DED420CC5A75AF9305138F294B3216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Jukka Takalo - Vastarannan Laulut (2011) [FLAC|Lossless|tracks + .cue] <Pop Rock
 ```bash
 magnet:?xt=urn:btih:334804594A951F180CDD981EDE2ACF25ADA3C31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Overthrone - The Path of Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 ```bash
 magnet:?xt=urn:btih:57F21EE1C17B6F0AA1EDBA6021023BB62C8DFB89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Blood Command - Praise Armageddonism (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 ```bash
 magnet:?xt=urn:btih:BC8CAB91A182944135771EA2CD225DF04E0EB613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Lodestar - 2 Albums (2021-2022) [MP3|320 Kbps] <Doom Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:E54EA804618D1DF93C7DE8AD8AB55D5C8B16E909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Lobate Scarp - You Have It All (2022) [MP3|320 Kbps] <Progressive Rock, Crossove
 ```bash
 magnet:?xt=urn:btih:EB49CFF8681B42CBFF27C28A7230358766035789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Satyr - Totem (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progressive, 
 ```bash
 magnet:?xt=urn:btih:B113C74366D7F56E5C49BF07B75297B9A8535654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Superheist - MMXX (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rapcore, Nu
 ```bash
 magnet:?xt=urn:btih:F006DD1B52ABC4E8F898225ADCF03EDDA4FA26D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Conjurer - Páthos (2022) [MP3|320 Kbps] <Sludge, Doom Metal, Post-Metal>
 ```bash
 magnet:?xt=urn:btih:F1C7115EE038245FCEAE37EFCBC98ACA8CC4F46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Peter Goalby - I Will Come Runnin' (2022) [FLAC|Lossless|image + .cue] <Classic 
 ```bash
 magnet:?xt=urn:btih:E2836907C65D9A9891CC07EB9181C36980472C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Khamyel - Loser With A Crown (2022) [MP3|320 Kbps] <Heavy Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:47C40A557E493327767C84BCA147EFA1A863ADF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Horizon Ignited - Towards The Dying Lands (2022) [MP3|320 Kbps] <Melodic Death M
 ```bash
 magnet:?xt=urn:btih:D7CE5213685AE83AF3001D6716964D9ABFC3FA0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Crashdiet - Automaton (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:7869BA1FD47509D97DB40CD007F5AC5B820B7F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Speaking With Ghosts - At Its End (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:D5FA0AF73845D23F2049CEB8EE4D344C8B87C5E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Seether - Si Vis Pacem, Para Bellum (2020) 2CD, Deluxe Edition, 2022 [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:95018C2F92052F0C43ADDE9FBF3631BF8FDFA5A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Porcupine Tree - Closure / Continuation (2022) 2CD, Limited Edition [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:D01847CD59D9CF54E6721ADA74CC96AD0A112FA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Shining Black - Postcards From The End Of The World (2022) Japanese Edition [FLA
 ```bash
 magnet:?xt=urn:btih:185E6AE25730CF5200E84C008589E9859C767CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F6A8332CE39F1A47F0668E15BB7E4A35596774F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ Imagine Dragons - Mercury - Acts 1 & 2 (2022) [MP3|320 Kbps] <Indie Rock, Electr
 ```bash
 magnet:?xt=urn:btih:EBF22422595DFB9A0A31A866558D9A9B1FE0865D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

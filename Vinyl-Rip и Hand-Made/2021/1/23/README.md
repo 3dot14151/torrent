@@ -22,8 +22,7 @@ Mark Knopfler - Down The Road Wherever (2018) 2LP [DSD128 2.0|5,6MHz/1bit|tracks
 ```bash
 magnet:?xt=urn:btih:58592041013DB29AC5E67E57DE0393A99BF0E287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Robin Hood's Tournament [Ru/En/Multi4] (RePack) 2001 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Test Drive 6 [Ru] (RePack) 1999 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Test Drive 6 [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:ADF4C4860B1E60E2EF2B6EDDBE76ACB8BB08D892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Civilization 2: Test of Time [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:BF7FA97A2631BACF2C4B79CD3CD75A75CAD676CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Far Cry K9 Vision - то, что изначально планировалось
 ```bash
 magnet:?xt=urn:btih:402A294D4FF3654B3E083EDB40CCB36BC8C573B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

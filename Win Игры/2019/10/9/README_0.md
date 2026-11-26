@@ -19,8 +19,7 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 ```bash
 magnet:?xt=urn:btih:96B0A7E0EC7E2707A38801D557FAC09274B3CF9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gears 5 (2019) [Ru/Multi] (1.0.1/upd1) License PLAZA [Language Pack]
 ```bash
 magnet:?xt=urn:btih:AA61A4AA13721B94F04D1A676AC2696DC73AC5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Roberto Capuano - O.B.E. (EP) (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:422DF44835C5609735A13F8F74807A357F4FD550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Elle Decoration - самый красивый и полезный междуна
 ```bash
 magnet:?xt=urn:btih:4FDA639B27D0BC5D45195DBA565C9B4F947F11A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Satore - Back Home EP (2012) [MP3|320 кб/с]<Deep House, Dub Techno>
 ```bash
 magnet:?xt=urn:btih:8A2B19FFFED6E28275AD41C235D5CF74AB5D262F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:309CA63450238CF3CDDBBE624A33394A4DBF80EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1196636EE7D37868794EE6D5454A3ECA17C005CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Atlantyca - To Nowhere And Beyond (2012) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:9ADC8D35B29889211ABE8386AC38081D714DC6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Candy Disco Vol. 6 - Ibiza House Issue Pt. 1 (2011) [MP3|320 кб/с]<House
 ```bash
 magnet:?xt=urn:btih:9A070EB97D618B103B2B60D4DE9512DA114EF1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ VA - Жажда танца. Будет жарко! (2012) [MP3|256 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:1A1DA2C088C5129000138ACD368422F8B438839A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Elle Decoration - самый красивый и полезный междуна
 ```bash
 magnet:?xt=urn:btih:0C731BE282F04F508033C1BDD8BCCCCD7C371699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Elle Decoration - самый красивый и полезный междуна
 ```bash
 magnet:?xt=urn:btih:BC5D911A684D1F1AED3EB27E733DC071D0A16572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69D28F4B7026CAA6263B7599432A8B8261CED525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F213D43D5D711F9C3F173E08B17F7D3FDA28589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Total Escape - издание, воплощающее саму суть изыс
 ```bash
 magnet:?xt=urn:btih:3EBE2D63F68161EC6A1AE26C75E0015E7F99DD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:000BC2295575D931F8FABD1F1A2C98111EB82212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Steeltower - Night of the Dog (1984) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:17017715A6DB04E0B3D54CB35AD30B7839AF3A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ DJ Kocmoc - Electro Sensation vol.27 (праздничный lite выпуск) 
 ```bash
 magnet:?xt=urn:btih:7A1784BEE1C9C8A4B007964F813F29376F9795C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ VA - In the Club Vol. 5 (2012) [MP3|320 кб/с]<House, Tech House, Minimal, Dee
 ```bash
 magnet:?xt=urn:btih:4D55B13AE270244EB947037977436C2AC2D626EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +503,7 @@ Shantifax - Delete Automation (2011) [MP3|320 кб/с]<Downtempo, Progressive Ps
 ```bash
 magnet:?xt=urn:btih:93818688A6FD40FE35EEED855C68A6DCA485897D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB37F83E6B7E0A7C9C507279549D6811EB75ECB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFFB1F560B5603F5DD550BBEE7F006BEC775B0BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:922914032160372ED9AB708BC06D1496F08328C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +612,7 @@ Etic & Double Click - Undercook (EP) (2012) [MP3|320 кб/с]<Psychedelic / Prog
 ```bash
 magnet:?xt=urn:btih:F38E076497BBDC62A516F05944A9B52A44166423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:0B02222AE87772F24FF4AA3406875548F5967986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:BB2AA1BF89C549EBDCB5452EC6EDE2EA6BAFD4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:937779F1273842ADA367F28067EED1973347102B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:D95BDB77909630DBAF8FB2A355DE943383F6A91F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

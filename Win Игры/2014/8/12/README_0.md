@@ -20,8 +20,7 @@ Vivisector: Beast Within / Вивисектор: Зверь внутри (2005) 
 ```bash
 magnet:?xt=urn:btih:F5461A1CF1FB2BE0E70A38E70A2D1442F5D44C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Rogue Legacy - игра, в которой каждый сможет стать 
 ```bash
 magnet:?xt=urn:btih:6F9D58879946D42871DE0B3EAB66094C733BB0A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

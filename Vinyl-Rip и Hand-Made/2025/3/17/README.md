@@ -22,8 +22,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:26C0C4EE524952A83EF80D462A488C9CF55146D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 For The Love I Bear(   Читать дальше...   )Жанр: Death, Doom 
 ```bash
 magnet:?xt=urn:btih:76ECB60708AFB9489D029D806546FE47AFB94CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Her Last 5 Minutes(   Читать дальше...   )Жанр: Death, Doom M
 ```bash
 magnet:?xt=urn:btih:DD8EF4E5C3C3B175BABD8C50DF9A4F4E44404126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:0C680CED789F6E17F98B1447DEF9CB3520032C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

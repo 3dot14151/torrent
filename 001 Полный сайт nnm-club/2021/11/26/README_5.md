@@ -21,8 +21,7 @@ MindManager - это инструмент который повышает ваш
 ```bash
 magnet:?xt=urn:btih:54A2B0F830C2D2593921EF997B38DFAC829AC9FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Microsoft Operating Systems on One Flash Drive Release by StartSoft 09-2021 [Ru/
 ```bash
 magnet:?xt=urn:btih:05DDCBBC337579DC49594029544AD03CAF8BCA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31838B76AD0B6389A3157284F2EF5705E331C25C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0F6BC1A5775C162C3A426D394020B4A00A8DCA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

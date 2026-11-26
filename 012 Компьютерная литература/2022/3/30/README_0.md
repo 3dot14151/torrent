@@ -20,8 +20,7 @@ DongHo Kim | Space Drawing: Perspective - Volume 1 (2020) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:61E13A3CB98DB6EB0B9D93838CED99E6A9845FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:386B9DBE6722DBFBCB8E5A863E443B759A4A86B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

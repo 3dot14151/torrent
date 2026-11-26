@@ -19,8 +19,7 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:DE171AE1CD91693F409475C7E15EF6023FD66CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:3D19B53F9236270269A12CE4D124AFA4987E4B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11200055BA269E73D9F6D66CA12895063524F1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:75F7F2739B5A03091E26AA69DCBBFE2E97E0DFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

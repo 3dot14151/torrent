@@ -19,8 +19,7 @@ Samsung SSD Magician - многофункциональная программа
 ```bash
 magnet:?xt=urn:btih:309EDC5E21186D85BA0EA8BC9A1D6A217E96C94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Glary Utilities - комплексный набор инструментов д�
 ```bash
 magnet:?xt=urn:btih:128C2B9F81A7A6B67E79021CFBE50ED86648923F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ R-Studio Network 9.5 Build 191733 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B107FC089E63BD9102B03ADC0F7CB9395CD710E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:E4B71386DF791C91880C78E52DE9109B0A4567B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:0FA40DBD6062C04BAE309D5AD8E644407CFEA2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:951402421AA70C185A48ABB4D48E8649E8E96C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ R-Wipe & Clean - программа для невосстановимого уд
 ```bash
 magnet:?xt=urn:btih:6C91E7D9A5D6AD53059CAC9EC2528919EE8B766A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Vivaldi 7.9.3970.47 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AB4788D827D954DD471C4EB8384863D077D12CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Resource Tuner — это мощный программный инструмен
 ```bash
 magnet:?xt=urn:btih:111AEC9BBEE2F488863346F32D9C0E171E4AC188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Any Video Downloader Pro - это приложение для Windows, помо�
 ```bash
 magnet:?xt=urn:btih:7DAFD26A61D76F47BA51EA4C86B93BFD135E0EEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:215029865AC0FDF3B9EBD1B4A6B5D0F495A378C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Tor Browser Alpha 16.0a4 + Tor Service Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AA09D759CB9F276E4101358B8A0E58864B28DCC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Hetman Partition Recovery - программа восстанавливает д
 ```bash
 magnet:?xt=urn:btih:A3C0EA63108C33F462ABD36BE3CE38597D75E9BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B68D395DD9459A05644EDD85596503E3F74A520A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ MiniTool Partition Wizard - мощный менеджер для работы с
 ```bash
 magnet:?xt=urn:btih:1050073CF7B51CA86E6C51CC13518066C778AF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 ```bash
 magnet:?xt=urn:btih:07620EB599D59C35531779271296A21D57B9FAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9AB94591CDB79DB51AF70080298285E46D767F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +446,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:902B5113EB0566DE76AEB4DE80E0E313DE5D41E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +471,7 @@ MathType - это мощный интерактивный инструмент, 
 ```bash
 magnet:?xt=urn:btih:3B45288FE32107DA44E140727996EDD6173869F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +496,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:2AB171B61C80B0762775F840B7ED5F1135A8826C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

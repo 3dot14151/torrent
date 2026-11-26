@@ -19,8 +19,7 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 ```bash
 magnet:?xt=urn:btih:3678913461BDA4613F86124C570B0AF4AA4F72D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

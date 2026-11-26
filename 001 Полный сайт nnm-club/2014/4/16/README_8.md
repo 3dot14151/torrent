@@ -20,8 +20,7 @@ Resident Evil 5: Gold Edition [PS3] [USA] [Ru] [3.15] [Cobra ODE / E3 ODE PRO IS
 ```bash
 magnet:?xt=urn:btih:A6F4AFC5565B328C2C80F22BD55BDDDE5E9AF045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8255AB1CB7AB0C640EB98CD595E1BB5ECAE88739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:F8C3D3D29DA080C93CC79CE4D98DCFB7E0134C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ X Rebirth — новая веха в истории развития серии 
 ```bash
 magnet:?xt=urn:btih:A6C0E90CA45718B173604335EADE0533E0999F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C6382F7B286F63D5EA60E5E922D9546621C574E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Symantec Endpoint Protection, использующий технологию Insi
 ```bash
 magnet:?xt=urn:btih:C45AE2F47A8D3A1FB06325E2BBE5B6499C299044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A85F509A9A460E8D119B0413E64DBF53C15D85B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ SolidWorks является ядром интегрированного комп
 ```bash
 magnet:?xt=urn:btih:95CAF705753F1BCFDC1704FD35F9D3B2E699609F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

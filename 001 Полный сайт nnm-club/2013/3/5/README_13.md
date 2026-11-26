@@ -28,8 +28,7 @@ Sez One - С плеча (2013) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:CAF3E5BC2C15914B9446F2B6A2C9CF9DBDF7AA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Darkrise - Realeyes (2013) [MP3|320 кб/с]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:2CC589461F6C1002D9C0B288D829FC01AB68C57F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ The Pleroma - Шум (EP) (2013) [FLAC|lossless] <Shoegaze>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Grju - Зимний (2013) [MP3|320 кб/с]<Rap|Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:8D30017D93BF5FFABCA9FBD33E744C1351062016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ VA - Drive Poison Melody Days (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:91078704F309A8E1059979417CF14717C34F7F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB35EDB3A4CB6480AD75AE5426405196A1E6366C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Emissary - Emissary (EP) (2013) [MP3|320 кб/с]<Progressive Metalcore, Deathco
 ```bash
 magnet:?xt=urn:btih:6A678C5DB3FFA9BF738D466268E05749E90CAC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Sculptor - Pact With The Doomed (2013) [MP3|320 кб/с]<Death/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:66832FCC6C9FBEBC2B0D2115693615193014F826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Reformers - For King And Kingdom (2013) [MP3|320 кб/с]<Progressive Metalcore,
 ```bash
 magnet:?xt=urn:btih:D1F96028734A2D27F38936579A6C7669BFB01349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9324E979B82402A73606C7E48DD9B8A003607D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ VA - Enhanced Music February (2013) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4D67EBDB364C68E0934AF3EEF4536C3C04DA22C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ VA - Factory Chasing Clouds (2013)  [MP3|320 кб/с]<Club, Progressive, House>
 ```bash
 magnet:?xt=urn:btih:9ABA91BE2861187D2BCA190CEB8B8FCA7D49B976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +406,7 @@ Tracklist:
 ```bash
 magnet:?xt=urn:btih:C0E7708CF948D778E9284A8E8A2841BB004AB910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +440,7 @@ Umberto Tozzi - Tutti Tozzi (2CD) (2007) [MP3|~225 кб/с (V1)]<pop>
 ```bash
 magnet:?xt=urn:btih:30B451CC90C8101439F842B44B4F92A7418D005E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +474,7 @@ Chelsea Light Moving - Chelsea Light Moving (2013) [MP3|320 кб/с]<Indie Rock,
 ```bash
 magnet:?xt=urn:btih:9193267506563A1E0021D9CB7735087BA74F3F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B8D4A69E3185A3C03C50FC8678797DA67300F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +567,7 @@ Shout Out Louds - Optica (2013) [MP3|320 кб/с]<Indie Rock, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:B3E1278870F80FE9EABABAC5A3093070C49CC1EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC1C048F9F5041C30A067E1BCE951326AA2C16C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +624,7 @@ VA - Moment Oasis Dreams (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:D91DB71DAF0A831C5757B882948F027337A188F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7F96D67F8D4ADA2DDC38A908A3E873CA2F4F884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +683,7 @@ Diamond Dawn - Overdrive (2013) [MP3|320 кб/с]<Melodic Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:8490EDBA2AA4A977683C866E83E5BF14347B7062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +717,7 @@ VA - Armada Top 15 March 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:CC9972471BF0CD1A647C26099AE20B4159926A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +746,7 @@ Cipher Prime Studios - Algorithms and Angelology (2013) [MP3|320 кб/с]<Sountr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +780,7 @@ VA - Sublime Chilled (3CD) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut,
 ```bash
 magnet:?xt=urn:btih:7CF6BEF4E6FD402D4B0E4E96226597BFBDDCF8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -830,8 +805,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:673D6DB77DE4886D4E795D392F7392696BCFCD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

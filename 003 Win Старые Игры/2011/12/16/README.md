@@ -19,8 +19,7 @@ Alien Odyssey [Ru] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:927457F06D43205C2C815ED270A414CACD3B5067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lords of Magic [Ru] (L) 1997
 ```bash
 magnet:?xt=urn:btih:606684A73B00E243A3A40FFB993298E0F12353A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhammer: Shadow of the Horned Rat [Ru] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:910A4201DD9AE6E240FD750F07069653D3BAF9C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blood Omen: Legacy of Kain [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:E954B280A9BEF921B1D64EA6566C0EC18F74678E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Sister - The Way We Fall (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:62CA226A2A9368375B186C0B8C202602B83C574B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sadistic Demise - Chainsaw Travelling Band (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:11A70D185CEB00642586E4778B884B0D988FBF2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Queen - Live Magic (1986) Japanese Edition, SHM-CD, Reissue, 2024, EMI, Limited 
 ```bash
 magnet:?xt=urn:btih:F73653D7218B28D5B13DCD83F639A4D3C88F665B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

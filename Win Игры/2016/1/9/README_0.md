@@ -20,8 +20,7 @@ FS Global Ultimate: Europe/Africa - это меш земного шара, ра�
 ```bash
 magnet:?xt=urn:btih:EF0B057A2A215BEE9944DFD019BE50B324F43746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

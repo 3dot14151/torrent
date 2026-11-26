@@ -19,8 +19,7 @@ Strange Investigations: Becoming / Удивительные расследова
 ```bash
 magnet:?xt=urn:btih:9BEB12F389614DD99847AE2633FC89B4F4FF7384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:A9CD096B71B7DFDE827AE6EB5C2ED6E71337EAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ DBF Viewer 2000® - приложение для просмотра и редак
 ```bash
 magnet:?xt=urn:btih:BE40F8ADB71FE4FFE7F643E1AAE07E33C712A782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:6E880F7416B360387C6B34EF47D72DCFCD6E99BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ PIDKey Lite предназначена для просмотра, обновле
 ```bash
 magnet:?xt=urn:btih:7E1411D37D58F125E356E2ED4A8F6A1C880B4608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ MediaHuman YouTube Downloader 3.9.17 (1010) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C29FE3FEFB4A23B7A134FAF8B4584560351F7AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ O&O Defrag Professional – инструмент дефрагментации д
 ```bash
 magnet:?xt=urn:btih:EB99B9DF7A1B30339AFC9700881645D2426D0BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:A936EB5857441AB8BDFA57CDCBADC8F95F3CFE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:7283489011938FEA5BDB688B94A0EE5A359229C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:198543A75A0E04D8E90D1CCD660748C7426931B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

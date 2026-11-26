@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:40EEBA1C1859A55C6583C4E73806E3A913E10E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Magic Mountains Vol. 1 (2013) [FLAC|Lossless|WEB-DL]<psy prog>
 ```bash
 magnet:?xt=urn:btih:8D782BB74DECB34A1DE80A27B969ED7CAFC2BEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCBFDC50884BF7BB43342D6BE8463DFCBB2CCA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Andrey Malinov - Love Story vol.8 (2013) [MP3|320 кб/с]<Chillout, Ambient>
 ```bash
 magnet:?xt=urn:btih:C9694A08CF06EDB12116D668D2BA5431F9C64E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A03ABCDC2DEC39FBC0DCF0BA5AE1C35347732D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ VA - Vocal Trance Collection Vol.109 (2013) [MP3|320 кб/с]<Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:71434C1BC4C3012C8586A97EB233EA7BA4EAE5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE8A6AE3206A08D6C2672E53E7BA7E08FD260957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ Hell - Curse And Chapter (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9175270BED9B0FF3709AEFF17B1A9375D8EF18F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ Algae Bloom - The Blossom (2013) [FLAC|Lossless|WEB-DL]<Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:3E38795B57FCAEB3C36FF358C8FE6B41415E9C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B55CEBB0F010E0D3C0B886568E5E0C554FC6814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:075B67A2ECD00DEAC86166CA1AE41BDE74F4AEAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD8AADC0619C1A411AC105C6C74F789F34FB79F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ACAFCAB3DDFF4A0EFAE61641B99BB3302AF6340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9EC9FD6E8A9B7463E765CDEC8639A46F450BB70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31BDDC7E004C8C6106B7BD062EBE6C06DC4EF4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +481,7 @@ Kickback City – Специально составленный сборник �
 ```bash
 magnet:?xt=urn:btih:FC020171409BA1778F3D800AA3C13F22573D4B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +506,7 @@ Stand Up. Выпуск №10 (2013.11.24) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:FE4D57CD562890FC097B156F4E4D24967A34B4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF74208CAE044F83F89BA024FEB22A9C6956DE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ Paul Carrack - Rain Or Shine (2013) [FLAC|Lossless]<Soft Rock, Pop, Soul>
 ```bash
 magnet:?xt=urn:btih:52A15F6F919C55A4A686AA55AD76109EA03A1A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ Bonus Tracks:(   Читать дальше...   )Жанр: Heavy MetalПродо
 ```bash
 magnet:?xt=urn:btih:FDC0BF23C1ECAD446174A06F5C4295EE71171911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5C74AE51D2241B98FA01BC687A5B047D4356D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ NG: Джон Кеннеди: День, который изменил всё / JF
 ```bash
 magnet:?xt=urn:btih:F4E48242E517CA048AE482B0B60F91A29F36F1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E28D2576E79D9604232202DDE237887C618AEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD4E65219E9D584E99B4E441E079DCBA52E53E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +729,7 @@ Wooden Style» — первое всеукраинское издание о д�
 ```bash
 magnet:?xt=urn:btih:7CED9E47EFA8C578AAF830266EA5268561219529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

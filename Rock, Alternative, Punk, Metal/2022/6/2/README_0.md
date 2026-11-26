@@ -22,8 +22,7 @@ Morcrof - De Pessimism Philosophiam Et Dogma Nihilistic (2022) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:55A8768385787F39F7187FD803BEE0CA2573F3A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jonathan Cain - Arise (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:0BBE964D0F4265E6FCC68B8508E37460FF47F2DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Syndicated Madness - It's Not The End (2022) [FLAC|Lossless|WEB-DL|tracks] <Clas
 ```bash
 magnet:?xt=urn:btih:84BF62023E9764DECAC52FFCEF607BD7A8700DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Origin - Chaosmos (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Technical Brutal Death 
 ```bash
 magnet:?xt=urn:btih:B015F87017BA4FA6F12863B6550541B3F5B8232F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Battlelore - The Return of the Shadow (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Epi
 ```bash
 magnet:?xt=urn:btih:9E4E67A950BE0DFE52D803B597A514C9EEC83252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AF56396ABC608D6375E993EEF41551295E8CC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Kills - No Wow (2005) The Tchad Blake Mix, 2022, Domino Recording [FLAC 2.0|
 ```bash
 magnet:?xt=urn:btih:B28527EC5146F88A25B616AAFF3AC3C3ACDB9696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Andrew Bird - Inside Problems (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:9D53E4FE455F19DA30B11F39F3F56A7FAD18FCF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ While She Sleeps - Sleeps Society (2021) Special Edition, 2022, Spinefarm Record
 ```bash
 magnet:?xt=urn:btih:33733D3A87AA4281DF2640DB0A4361FEFD667FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Tedeschi Trucks Band - I Am The Moon: I. Crescent (2022) [FLAC 2.0|192/24|WEB-DL
 ```bash
 magnet:?xt=urn:btih:010D69F1A4ED7C6AFB66E00535E4C05E397BD7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Ancient Door - A Tribute to (Music from) The Elder (2022) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:3B41C849CEE4A32C778ED8068BDA89822324E73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Bleed from Within - Shrine (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Melodic Death 
 ```bash
 magnet:?xt=urn:btih:221BA859AC6693011FE7A11CCBCED4B9690BFC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

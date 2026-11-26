@@ -19,8 +19,7 @@ DVDFab StreamFab - это наиболее полное решение для с
 ```bash
 magnet:?xt=urn:btih:73A5614CDA4E4DB6E64F4B1B86E32D9E2F31A742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MyPublicWiFi - бесплатная программа, которая прев�
 ```bash
 magnet:?xt=urn:btih:E55B2369D9E1F03B52C03ACF23CC4D00938282F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Orange Alabaster Mushroom - Space & Time: A Compendium Of The Orange Alabast
 ```bash
 magnet:?xt=urn:btih:C86B3E5173F9FE27C60FBDDFFC4734497D1FBB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ida Maria - Accidental Happiness (2014)  EP [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:10766C5E00A8E1EDBD93DBCF67F2D378F6B9EC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Asper X (Аспер Икс) - Прозерпина (2017) [MP3|320 Kbps] <Altern
 ```bash
 magnet:?xt=urn:btih:F724194019053AAA19C4D7E47F510106A4220099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ida Maria - Katla (2010) [MP3|320 Kbps] <Alternative Rock, Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:47C640449951B972472DBC26B3955481D3699A83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Royal Blood - How Did We Get So Dark? (2017) [MP3|320 Kbps] <Alternative, Rock, 
 ```bash
 magnet:?xt=urn:btih:12342F142EB60D55098B39C706DF3ACE28B76BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Linkin Park - One More Light (2017) [FLAC|Lossless|tracks + .cue] <Alternative R
 ```bash
 magnet:?xt=urn:btih:BC75AA8198C48B597F58A8EDBE132AA82D0AD808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ McCartney, Ram, Wings Wild Life, Red Rose Speedway, Band on the Run, Venus and M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

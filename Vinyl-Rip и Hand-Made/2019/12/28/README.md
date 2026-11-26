@@ -22,8 +22,7 @@ Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Ro
 ```bash
 magnet:?xt=urn:btih:BD51D2CA58B2F54286599D7B06E741C242536019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Scarlet Rain - Eleventh Hour (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard R
 ```bash
 magnet:?xt=urn:btih:49CC6FE0D58DCE8CCB704181628CD85457F4CA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jodo - Guts (1971) Reissue, 2007,  Lion Records [MP3|320 Kbps] <Psych Hard Rock 
 ```bash
 magnet:?xt=urn:btih:9EEC3BC6442DC0F9A50AD1ADACF3B8527E244DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Black Star Riders - Heavy Fire (2017) Limited Edition [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:88472BCE4D27BB12F2B8BED015030581F9EB5641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cosmosquad - The Morbid Tango (2017) [FLAC|Lossless|image + .cue] <Instrumental,
 ```bash
 magnet:?xt=urn:btih:D099B7B6EA54155A54CEA582AA9B4EB9758E1D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sunz of Sam - One Night Only (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:30B32F69F5CD14D6EED94E2022B1037B2FBCBA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Turmion Katilot - Dance Panique (2017) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:BFC883015747BBFF5250DED01CA7D0EB193AEFC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AD7AEDC8627C3760128EBD4F67DC7034222BDE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A0F084F63625FC39EF7A1409BA505A303DDA3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Whitesnake - Greatest Hits (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DDFAB641040DEAE7E3356770B3CC4F300A7EA799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Mastodon - Emperor of Sand (2017) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:37E9942AA1AB9EC6E4BBAE628442A8FB98CB98A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Chuck Berry - Gold (2005) 2CD, Compilation [MP3|320 кб/с]<Rock and Roll, Rhyt
 ```bash
 magnet:?xt=urn:btih:CEFE0BEBFD59D977B192970E9584DB2AFC982E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

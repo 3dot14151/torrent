@@ -22,8 +22,7 @@ Okktli - Okktli (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:9B35BC052498B549554A4C7F1063FE7AEDF41869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Child - Meditations in Filth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 ```bash
 magnet:?xt=urn:btih:CB45587248770F76C7EF0FD8C03BB5AEB040EDF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Arcane Focus - Volume One (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 ```bash
 magnet:?xt=urn:btih:6AF62EECE63584F645E82E65E2B5962D05825BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Child - Soul Murder (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Bluesy, Ps
 ```bash
 magnet:?xt=urn:btih:268CC93E3C2931D5F23C474105233357A87BB1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fell Fyre - Romance and Revenge (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:4EA6A722CEEB85E189B6AE17409774F809BE92A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Chaos Magic Featuring Caterina Nix - Furyborn (2019) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:A0B41D17AF1B4635B60ECC233250CD74605E4B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Samurai Of Prog - The Spaghetti Epic 4 (2022) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:E430663EA8EE57433E300090B61EC6122810A1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Odious - 2 Albums (2007-2015) [FLAC|Lossless|WEB-DL|tracks] <Middle Eastern Folk
 ```bash
 magnet:?xt=urn:btih:55FB34332F8FDAC6FEBDDA918C59B6261BDFADE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Unit Of Inheritance - The Impossible (2023) [FLAC|Lossless|WEB-DL|tracks] <Symph
 ```bash
 magnet:?xt=urn:btih:30C2706919A5489E1574B64FECA3CBDE47986306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Seventh Legend - After Death (2023) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:55B6A0A9CB8249313782F12CC80C2CEE6A1871C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Celebrity Sex Scandal - Convergence of Infinite Sequences (2023) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:9A725696149620D94F299BAD505564029E7C9A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ Phantom Elite - Titanium (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:BA91C51CE6E0F28C682A8C99AC1F9A404C3E5881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ Rabies - Бестиарий (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:BBC4359797FDC9145866791BCE2D7F9A1DAA3A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ Treasure Hunt - The Good, the Bad and the Innocent (2023) [MP3|320 Kbps] <Hard R
 ```bash
 magnet:?xt=urn:btih:29B6AC0ED0F19EEEE6727D43B226CFAD5DBCEDF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ CD 3: Recording Session Bonus TracksЖанр: Simphonic Progressive RockПрод
 ```bash
 magnet:?xt=urn:btih:6FFF7E157283FBFC2169696704CA605FA4EF684A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ CD 3: Recording Session Bonus TracksЖанр: Simphonic Progressive RockПрод
 ```bash
 magnet:?xt=urn:btih:A4BA7019C40FB3C4071ACF8C479BD1626423CB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Nomicon - Halla (2001) [FLAC|Lossless|image + .cue] <Progressive Gothic Black Me
 ```bash
 magnet:?xt=urn:btih:684CA66215BDA422F85422C51F6939E2D3A82821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Lantlôs (Lantlos) - Wildhund (2021) Deluxe Edition [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:6121C191FFACE0B03E7A0CEFFB3DF463EA3A2822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alestorm — фолк/пауэр-метал-группа из города Пе�
 ```bash
 magnet:?xt=urn:btih:A1A03B7A19BEBC5DC1FB654832121D5BEA6FC713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Big Hogg - Pageant Of Beasts (2021) [FLAC|Lossless|image + .cue] <Progressive Ro
 ```bash
 magnet:?xt=urn:btih:9E45FD7371C7F544E138F6F6492EACCB6DD78367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Killers - Pressure Machine (2021) [MP3|320 Kbps] <Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:45EB63A7E973EE37A9B3101C9EE9266ECEE5823B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

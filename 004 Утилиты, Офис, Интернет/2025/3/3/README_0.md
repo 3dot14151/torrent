@@ -19,8 +19,7 @@ Wise Program Uninstaller 3.2.3.266 RePack (& portable) by elchupacabra [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:E55F860789A1C354852D0F171433F544CBA29C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

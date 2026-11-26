@@ -20,8 +20,7 @@ Free Download Manager позволяет организовать загрузк
 ```bash
 magnet:?xt=urn:btih:7EEF380C67A27B6DFDC8EB092966CC4B8E111005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

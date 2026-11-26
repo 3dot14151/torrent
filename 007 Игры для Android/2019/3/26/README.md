@@ -22,8 +22,7 @@ DLC «Father's Promise» представляет:
 ```bash
 magnet:?xt=urn:btih:ED15B770E57186A12F5B7A531A3737A86C5EDAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Half-Life HD+ADDONS+MODS [Ru]
 ```bash
 magnet:?xt=urn:btih:254131741EAE52E002710C2F6729FE7481615D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ VA - Зимний шансон топ 100. Версия №4 (2017) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:EFE4A54DCF204A0306A5CF858F4392931A6F0E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ ProtoU - Khmaoch (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient>
 ```bash
 magnet:?xt=urn:btih:2E9FA74EA71D06CAF49CE4A2C569C39EDD98E3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Gita - робот-чемодан, робот-носильщик
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Зимние блатные песни на радио Шансон вып�
 ```bash
 magnet:?xt=urn:btih:717C727118E1D3E41B742E511151E2CADAB5B38E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Regain – Point Of No Return (2017) [FLAC|Lossless|tracks] <Hard Trance>
 ```bash
 magnet:?xt=urn:btih:D4EF85D7559E333DB19D7956CB2177D91F89F381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Лучшие блатные хиты года на Шансоне выпу�
 ```bash
 magnet:?xt=urn:btih:759CFE5A90B8D141E91299ADD638922B78B71793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Robert John Tognoni (Тоньони) родился в Улверстоне, н�
 ```bash
 magnet:?xt=urn:btih:17FE0E0BB0E54056BBCCBFA146DF135891B9CB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Pride Of Lions - Fearless (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic H
 ```bash
 magnet:?xt=urn:btih:D8A02414356A2F019CE48EA082C34B00C516E279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43601D447A975DFB81A06246ECE94ED941A0271F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Phaedrus - Gravity, Vol. 1 (2007) [MP3|192 Kbps] <New Age, Enigmatic, World>
 ```bash
 magnet:?xt=urn:btih:7BD3DAC269870187E0B0309219BD4CA832AEA28D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Epic Emotional Uplifting Trance (2016) [FLAC|Lossless|WEB-DL|tracks] <Tranc
 ```bash
 magnet:?xt=urn:btih:03C2B53CD90EF8DA4D058D61B4EB8CDC29536E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - Trance Collection Vol.57 (2017) [MP3|320 Kbps] <Trance, Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:5BD2D0FD4CF628C9DA20A97DEA6CA2B77466FA55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Stray - Saturday Morning Pictures (1972) Remastered, 2006, Castle Music [MP3|320
 ```bash
 magnet:?xt=urn:btih:3F728C6BFAD4A75B4A53CD1531E04125C9F5183B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:BF42BBC564B154FEEE2773480F7C114598157C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27579E79E82F308A50B0F741EB0C4CBEA6F57B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7538B7CD1382F3DF90543616EFBA993CD2BBB059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Eric Clapton - Eric Clapton (1997) [FLAC|Lossless|image + .cue] <Blues Rock, Roc
 ```bash
 magnet:?xt=urn:btih:A394CED82AF3C6F2FE18B4B8DA29C7D993AB9824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AE08AF8A16977E89F03499430C1D4CE71A4FEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Disk1:
 ```bash
 magnet:?xt=urn:btih:A56543B6D6FAA75D2EE06A792BA541BA239F1B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A358E8A0391E2A02E8773F0C2A2DB029B46FEA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ VA - Chill Soul (Life + Love + Relax) (2017) [MP3|320 Kbps] <Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:A8C9DEF8C41BE88D140F93BA01666E3D5879FE1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D211DFC5468C8CA4E92EDA9EB7528CA1797A8449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56C43558780B55CCD83F08A1208DA9621FB579D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Forecast Bar - точный прогноз погоды  Forecast.io  прямо
 ```bash
 magnet:?xt=urn:btih:5F4E903141AC19F93D3FC880B4B3268A27960ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ VA - Goa 2017 Vol.1 (Compiled By DJ Bim) (2017) [MP3|320 Kbps] <Trance, Psychede
 ```bash
 magnet:?xt=urn:btih:D018917F2D503CF663B373B96282048C2B416392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

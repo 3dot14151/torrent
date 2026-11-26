@@ -19,8 +19,7 @@ Queen Rock Tour - песни легенд рока, группы Queen, всег
 ```bash
 magnet:?xt=urn:btih:8D2FA2022C612FD2756008F7AEFF9226FB5391D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hungry Dragon – крутая и забавная аркада, где кажд
 ```bash
 magnet:?xt=urn:btih:C5B2F00BC78CD689B16166CD07B401B46E982F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

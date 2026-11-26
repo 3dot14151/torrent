@@ -22,8 +22,7 @@ The Volume - The Volume (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Prog, Psych,
 ```bash
 magnet:?xt=urn:btih:ACF03051D6F3ED37265F8DD14C9822E1AA186CBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Winterfylleth - The Hallowing of Heirdom (2018) Deluxe edition, 2CD [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:E33A727DCD41145FB470D7F93EFC0BFDEAF9B9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Winterfylleth - The Reckoning Dawn (2020) Special edition, 2CD [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:A597DAC4BA7425F19C42C013D7A9ABB9400429D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Ayoki - 8 Relises (2018-2022) [MP3|320 Kbps] <Alt. Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:CF6B585ACA77D85EAFE9F925C4C7DFB23A8F27F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Stone Nomads - Fields of Doom (2022) [MP3|320 Kbps] <Stoner, Doom, Sludge>
 ```bash
 magnet:?xt=urn:btih:B6FA346919C32323CE03E5D5C64B4BCA5CF31B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Nonoise - Beetah Duh'Dhul' (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Psych Doom, 
 ```bash
 magnet:?xt=urn:btih:C4165AD92399DA63EDF8811C813BCF804FBE2D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Nonoise - Beetah Duh'Dhul' (2022) [MP3|320 Kbps] <Psych Doom, Sludge, Stoner, Sp
 ```bash
 magnet:?xt=urn:btih:A028C83A063A72C0B5F243ABBD2EBE2BAB53F2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Freight Train Rabbit Killer - Hammer Of Judgment (2022) [MP3|320 Kbps] <Psych Do
 ```bash
 magnet:?xt=urn:btih:15AC1A542D10DF368BD410274B60D5EC1EC0319E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C65E802947C5291FAA8B499A735C951E6D48D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ In Flames - Clayman (2000) Reissue, Remastered, 2020, Nuclear Blast [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:9639B28510ECA9FB91EA362361EC2CAAED753B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ The Volume - The Volume (2022) [MP3|320 Kbps] <Heavy Prog, Psych, Stoner>
 ```bash
 magnet:?xt=urn:btih:E36004A23842D33D0080D29EB6FFB6AD30BA0BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Lifeburn - Город греха (2022) [MP3|320 Kbps] <Hard & Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:554326732F08559E5D58DBBED9365ACD09D5B056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Sepultura - SepulQuarta (2021) Japan Edition [WavPack|Lossless|image + .cue] <Th
 ```bash
 magnet:?xt=urn:btih:F822BC728F4E647068396B6C1FFC7A184973F07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ CD 1 Gammapolis:
 ```bash
 magnet:?xt=urn:btih:ADA5472B65D53DD921B5F19C42B5AE67182BB3AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Jane's Addiction - Ritual De Lo Habitual (1990) [FLAC|Lossless|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:7126935D269C5552AECCD437A657FF89A7CD64F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CE329A097316C593DC927F5F41FD8A5B5F0F593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Seether - 11 альбомов (2000-2011) [FLAC|Lossless]<Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:4FDB22A0D47F54941F23FF540E5D0328B0346272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

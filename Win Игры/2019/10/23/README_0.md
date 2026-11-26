@@ -19,8 +19,7 @@ Dreadful Tales 2: The Fire Within (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:3EA17DBF5B5B2FFDF456ADE436DEED42F19B473E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

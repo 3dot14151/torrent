@@ -19,8 +19,7 @@ Nioh: Complete Edition — полное издание приключенчес�
 ```bash
 magnet:?xt=urn:btih:17317CB3C698F224A766C76BC3375389B7EC5880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Outcast - Second Contact (2017) [Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8C7C0759F7F7CA9111FF1B0A7F3E1F7A1E59D6AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:1FB8EE40FCEAAF50A86380A71191CDBF31042554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Whispered World / Ускользающий мир (2010) [Ru/Multi] (3.2.041
 ```bash
 magnet:?xt=urn:btih:DD9EFF28E4F1AFE19C14CE70573BF07CA7095C79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Road Rage (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:EE0940981FE182ED7D9FD307A17662E7774014DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

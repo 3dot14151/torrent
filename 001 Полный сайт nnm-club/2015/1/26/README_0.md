@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:7481DEFF06AF7B0AB8A0B336C27CA171E90F7D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:140D5580E5E565C7276DAA656F89A63505DDDFDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - The Swing Era - The Music of 1940-1941 (1970) [MP3|320 кб/с]<Jazz, Swing
 ```bash
 magnet:?xt=urn:btih:0D47E6710518716D76894B7CD476129393B78624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D72E8F1EBDFC95D2376887815E2697EE615319F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66215084447527C3C7CA97BF2DECDD19D2566FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:026534EE42A35E77FE04EEA8D9599FA256F171D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB4914DE57EC591847BFE0F2CD86E3B504A999A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E73AFE0730287DA5D76669F3020D47BA019D9262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Duett - Horizons (2014) [MP3|320 кб/с]<Synthwave, Dreamwave, Chillwave>
 ```bash
 magnet:?xt=urn:btih:E3F431B4D93AA1C2B8E6014D61C1786778DE49D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A25D4CACF59B7335BBE1E362452E2947E0AA79E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8750AEF96287B2E2827DF3F3BA3F1975A00F7760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F40B33E687DDF5BA723B60E5C4927681D0BFD99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ CD3 (00:45:28)
 ```bash
 magnet:?xt=urn:btih:1AC239252B3B1BD867317F87A2A10F1385460AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:7E8614037EFEE68854EE707617DE97F46774C360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09A7EF9D98F209C3D8F9B966F005126720BE776E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ WinUtilities - набор для настройки вашей системы, �
 ```bash
 magnet:?xt=urn:btih:956F6C668803C5D69621FFDD77CF382D8EADF923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:348C8B7742AF15F3BAEA59230F79B5CBE7A00D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE4BE767B1228ED821208A25A4246484E70BE4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Demis Roussos - Reflection (1984) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:8F5DBD101471940641DE50E41BBC5D83BA07DE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ VA - Deep In The Jungle Anthems (2015) [MP3|320 кб/с]<Drum And Bass, Jungle>
 ```bash
 magnet:?xt=urn:btih:C304E6166EB52455D248B33BF4E237B7BC15D494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C26D66EE8C4D71E8B966D58C2055E4A9C364A430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ VA - Sex and the Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:E6A79A767F8692FD64E0A83BE71DA7367B588379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ B05. Кино, кино...Жанр: ChansonПродолжительность: 0
 ```bash
 magnet:?xt=urn:btih:16F3B746B1D4075EE1552A7672D289B6F1B75612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ Timecop1983 - Journeys (2014) [MP3|320 кб/с]<Electronic, Italo-Disco, New Wav
 ```bash
 magnet:?xt=urn:btih:D1802262A5468662F4870DDA7FA27B88C5D94089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +695,7 @@ David Weller и др. | Beginning .NET Game Programming in VB .NET [+Code] (2004
 ```bash
 magnet:?xt=urn:btih:C26DCDE3B4B7D80B2C721DFC82246CEC9BE65196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +729,7 @@ Salvation - Resurrect the Tradition (2015) [MP3|320 кб/с]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:DA14E0CB532339EC5C92AC3AF9716CF23911D195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

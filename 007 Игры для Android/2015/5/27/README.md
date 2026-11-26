@@ -21,8 +21,7 @@ Naval Clash Admiral Edition 2.4.6 [Ru]
 ```bash
 magnet:?xt=urn:btih:1CFF282B411356E2EAC08428658B9DEA063E40FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ DuckTales: Remastered / Утиные истории 1.0.2 + Mod [Money] [Ru]
 ```bash
 magnet:?xt=urn:btih:91B608C811AAC7687C5418965CC914D568B4DE50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

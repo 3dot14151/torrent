@@ -19,8 +19,7 @@ Off the Record 5: The Final Interview (2015) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:19B6EA58A939A2A526A2634609020ACE3A9D919E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Island: Eternal Storm / Затерянный остров: Вечный ш�
 ```bash
 magnet:?xt=urn:btih:3B2101A62C2A510CD2051B93D34ECC99958A06ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Living Dungeon - это пошаговая тактическая насто
 ```bash
 magnet:?xt=urn:btih:21E9C02476B2288B05D7505DBCC86E4E437093E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bulb Boy - увлекательный приключенческий ужаст�
 ```bash
 magnet:?xt=urn:btih:1049483F1A12F21FB27DDDD417962976E3206A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sonic Lost World (2015) [En/Multi] (2.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:F27E82CA3FF256C7BD6AA195AEE60A0B72A4655B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Toukiden Kiwami – это расширенная и дополненная ве
 ```bash
 magnet:?xt=urn:btih:2B820F6AE58398D06F8D010A4534E381D2F308D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

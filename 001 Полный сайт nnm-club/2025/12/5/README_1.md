@@ -18,8 +18,7 @@ Hi-Fi Rush (2023) [Ru/Multi] (Build 20567064/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:8CA426F78FE8435275747FE372EE96257D96B43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CEBFC0B34B3888175EFBCC8CF499D6C4773567C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26844CFE6FD2F55DF00E0916DC13B7FE3AFE776A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A19C1E3B8904223D9B4E504190F1692E137C9BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F01A35E883AFEC9B059ACA81DE249EA45671C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F789BDEC57E09EF33C25D250B7C99174C36A67E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:A40D508DF0E95F64899DE9343B6A56C721657ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:689907CB9BB403891E1FD0B871A1AB9C590E042A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:D25EDAB66105131AEA8D9D21E4BD98402A3449A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Apowersoft Video Download Capture 6.6.2.0 RePack by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2F0C855F1EAC88E8CA2CDF18E27296310844D979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ OCCT 15.0.9 Portable [En]
 ```bash
 magnet:?xt=urn:btih:5CDFA39B35AB6A8201A4E97F6C90DBD77EB0E779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E84D0B76E9F9F2D1165D46ABA9DBF9FCA390AC55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22F288C71CB7635C982F91C59CEB049DAD6001D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EF5F9E7809D5C8DBDFBD8796ADA54F8808DFF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Inazuma Eleven: Victory Road открывает возможность собр�
 ```bash
 magnet:?xt=urn:btih:8955C65F1A461728884D2F3A187D9B68BB10B8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Women In Jazz - Women In Jazz (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:BFDAAAE340D179F40BF98DE28CA2BBE79CC057DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:EDF28229B7F48D21C6A2F31C89B626C1296E6B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ Zentimo xStorage Manager - (аналог USB Safely Remove) это менедж�
 ```bash
 magnet:?xt=urn:btih:BEDCC8FDC94FF29899DD01286CF800F52A520FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ Depeche Mode - Memento Mori: Mexico City (2025) Live [FLAC 24/96|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:08921D7A6F5A4560A512167BABEC785DED3F2109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16C03BA2A0A59D88E1ADBDEA163BDFA8D6234A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:F2536C3BB115AEB5A8FCB2702A44508A6B93C05A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27A7AB76E0886068FCF158A27EA76B60B958CAA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:CCD303B9B6EB7E6575558EC009C2661ABA9836A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ Blank & Jones & Marc-George - Inner Sanctum (2025) [FLAC 24/48|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:C3884977D8F1F99DA53DB7BF912EBDBDE8C3F4D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ The Last Case of John Morley погружает игроков в роль де�
 ```bash
 magnet:?xt=urn:btih:72D97F24920BB2869D9E4F6E4ADF94C6B907A295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ FIFA 21 - футбольный симулятор, использующий но
 ```bash
 magnet:?xt=urn:btih:439963F10F9C6D0DBA78C9B9D02DD626500E82FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

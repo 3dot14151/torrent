@@ -22,8 +22,7 @@ Anthemon - французская метал-группа, основанная 
 ```bash
 magnet:?xt=urn:btih:EABFC7A71D69FB6E0CE4DD688655C8125DF030CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

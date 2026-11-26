@@ -28,8 +28,7 @@ Zykes Cross - Altered States (1996) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:909213F136D43E0E0B8BFE052A6E7FF548B0317D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ The Great Old Ones - 2 Альбома, 1 Single (2012-2014) [MP3|320 кб/с]<At
 ```bash
 magnet:?xt=urn:btih:A520FFCF35B343AF8B2C79FAE46A84DA64613F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Lantlos - 4 Альбома (2008-2014) [MP3|320 кб/с]<Depressive Black Metal,
 ```bash
 magnet:?xt=urn:btih:BCFE1FE4C11A68C9FC78795624208E62649A501B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Cardio Kazan - The Baralax (2014) [MP3|320 кб/с]<Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:59EA6DCA322CCA1BAAB47940F97C734F558FBD94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Born To Suffer - The Rambler (2012) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:1EAE4380BC166CAC6D11F8BCB81E47BBFC7E50BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Gallows - 3 Альбома (2007-2012) [MP3|320 кб/с]<Post Hardcore, Hardcore
 ```bash
 magnet:?xt=urn:btih:BD35EB04998068320CE40FE72A6FA9148C0080F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ Avercage - Hyperpolis (2012) [MP3|320 кб/с]<Power Metal | Female Vocal>
 ```bash
 magnet:?xt=urn:btih:EBB91532CFC899C9D081B76ED46AC9DF11985F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Dying Awkward Angel - Waiting For Punishment (2013) [MP3|320 кб/с]<Melodic De
 ```bash
 magnet:?xt=urn:btih:7CA42D4282D5F5F6930B3B30E7F44CBD4FBA2E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ Kauan - 6 Альбомов (2007-2014) [MP3|320 кб/с]<Atmospheric Black Metal
 ```bash
 magnet:?xt=urn:btih:4E5BFFB81C20887014A815C18E36B3C0ED6FADEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:88473958A8EB22354D3305E9F98C062C88583E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +343,7 @@ Grinder Blues - Grinder Blues (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:24E56E1C8601856F1A86AD7CC63DEA398C86C90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +377,7 @@ Bloodbath - Grand Morbid Funeral (2014) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:4A18E37B2DD32F8D9DFC77987D580182756250A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +410,7 @@ Sister Sin - Black Lotus (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:65E791D50504901E2FB6D3CCA50F7A8215410E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +438,7 @@ Liv Kristine - Vervain (2014) [FLAC|Lossless]<Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:18048FE0DC2FA32B8C51E73CBBA8756C9B836BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +463,7 @@ Daughter - молодая инди-фолк команда, основанная
 ```bash
 magnet:?xt=urn:btih:234C60A63EF8C31A23098B1F74C9A708067D12F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +497,7 @@ P.O.D. - SoCal Sessions (2014) [MP3|320 кб/с]<Acoustic / Alternative / Nu-Met
 ```bash
 magnet:?xt=urn:btih:809D5F6A53C088EC72F586A6901BEB4913D1C169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +531,7 @@ David Bowie - Nothing Has Changed. The Very Best Of (2014) 3CD, Deluxe Edition [
 ```bash
 magnet:?xt=urn:btih:98CD22222747D5BEEB9444495EC9B6B8F85E26CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +565,7 @@ Eric Clapton - Pilgrim (1998) Remaster /2014, Audio Fidelity/ [FLAC|Lossless]<Ro
 ```bash
 magnet:?xt=urn:btih:6DF826A0E20F884166BCB42260420F0E4EEFE431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +593,7 @@ Pink Floyd - The Endless River (Deluxe) (2014) [FLAC|24/96|WEB|Tracks]<Psychedel
 ```bash
 magnet:?xt=urn:btih:3E4F9579EC200FD46A23024540A20456FD3D4C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

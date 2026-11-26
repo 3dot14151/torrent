@@ -22,8 +22,7 @@ A4 She Loves You(   Читать дальше...   )Жанр: Pop RockПродо
 ```bash
 magnet:?xt=urn:btih:ECBAE82AC36EC834EB4F0F5333B2EA61274C2342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ VA - Союз хитовый Русский (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:7E8D702AB2E7D5B476AC67F5E307E6410E434BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ NeraNature - Foresting Wounds (2011) [MP3|320 kbps]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:27BDAFAB812F262C9423C29D19AE7AEB39FF4F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Stephane Pompougnac - Hello Mademoiselle (2007) [FLAC|image+.cue|Lossless]<Downt
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Теплое море (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:98FAA34BCF56712AC1362BB67EBD2F55CC1178EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Летний мегахххит (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:9851E55B8AFB708A51B2079CC67A88C6F24E3A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Enimo - The Way to Space (2011) [MP3|320 kbps]<New Age, Abstract Hip-Hop, Ambien
 ```bash
 magnet:?xt=urn:btih:6C08A853F3D7ED93EF5D50AE64C3AFC6FE2ACC5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - Я вернулся - Сборник шансона (2011) [MP3|256 kbps]<�
 ```bash
 magnet:?xt=urn:btih:DE735F8955DA9A919A3615156DC91ECD35601DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ VA - Vapour Recordings 100 (2011) [MP3|320 kbps]<Tech House, Progressive>
 ```bash
 magnet:?xt=urn:btih:CEBB029C2B8322EC63D0312DC956A3D5A6DD6342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ VA - Самые сливки дискотек 6 Русский (2011) [MP3|128 k
 ```bash
 magnet:?xt=urn:btih:A3CFC3F6F79AF4075A673B355E2CB5D2A691D911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B0887BB4A95D2B9D10B72DDE21F080E52B081B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ VA - Русский Хит Лето Выпуск 10 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:688A45A96A1120F45F0AB2ED8BEFCCF962FC06EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ VA - Хиты MP3 Горячая 30 (2011) [MP3|256 kbps]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:CEE1CBB4CD1EB697135BA63C3C66C0829B5AFCF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Noctura - Surrender the Sun (2011) [MP3|192-320 kbps]<Gothic Metal / Alt. Metal 
 ```bash
 magnet:?xt=urn:btih:8417C4D6B82AB9E7B166CD325D86D304287BFF0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ VA - Only Best Trance vol. 15 (2011) [MP3|320 kbps]<Vocal Trance, Trance>
 ```bash
 magnet:?xt=urn:btih:1EB06C5A533BA83DFC8C9BBCE271B8893E0F3917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Bonnie Tyler - Heart Strings (2002) [MP3|320 kbps]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:23EA9378FFB82B81D377D29BBFBE2D24C7221FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEE491133F13EE89A62556C64A2AB5727A263A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Cat.#: YSE1CD253
 ```bash
 magnet:?xt=urn:btih:CB48BCC4BC662C93B72116056CDA667BCD4FA7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Ian Boddy & Parallel Worlds - Exit Strategy (2011) [FLAC|track's|Lossless]<IDM, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ VA - Maxi Dance Sensation.Vol 23 (2011) [MP3|320 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:6E20928DAD8D27B118CAC447048F0DE824C1E901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ VA - Пляжная Дискотека (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:7EF44F0653F175EACD1FE344C0C4FFD2177C18C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ VA - RO Dance Hits 2011 Vol. 43 (2011) [MP3|320 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:FEABD8762EC723612B2F4B83E586037438391E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ Google Chrome - веб-браузер производства Google с отк�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ VA - Zoo di 105 Compilation Vol.5 (2011) [MP3|320 kbps]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:2CE8CD039809EAED76FB82527E13BF739866639B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ Gang Gang Dance - Eye Contact (2011) [MP3|320 kbps]<Leftfield, Trip Hop, Experim
 ```bash
 magnet:?xt=urn:btih:2F778E8669D43EAC80D9558C71C3BAD92F9D85B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

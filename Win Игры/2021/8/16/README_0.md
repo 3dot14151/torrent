@@ -19,8 +19,7 @@ Fragile (2020) [Ru/Multi] (5896114) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:6A3D7E61A891D10D62931F1BE0CF84C077FBF129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fragile (2020) [Ru/Multi] (Build 5896114) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4A828323E6752871810A57F8DBE8648BFDD614B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

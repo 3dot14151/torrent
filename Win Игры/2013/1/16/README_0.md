@@ -23,8 +23,7 @@ Torchlight 2/II [Ru/En/Multi4] (Steam-Rip/1.21.5.1) 2012
 ```bash
 magnet:?xt=urn:btih:49C393C5B9A1E121FA824ABA54AC699E1CED401D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Dracula: Origin раскрывает темные начала прокляти�
 ```bash
 magnet:?xt=urn:btih:737BFA7A22A84D1891EACB118C65D9B4BAF47365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Torchlight II [Ru/En/Pl] (Repack/1.21.5.1) 2012 | THETA
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Torchlight 2/II [Ru/Multi4] (RePack/1.21.5.1) 2012 | R.G. Games
 ```bash
 magnet:?xt=urn:btih:AEB312640DFB0A96D909F1776168B6872A429536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Painkiller Hell & Damnation — это восхитительный римейк
 ```bash
 magnet:?xt=urn:btih:1D9071BE28EA8ABE64AD88067CD41BEC39B9ADDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Sherlock Holmes vs. Jack the Ripper / Шерлок Холмс против Дж�
 ```bash
 magnet:?xt=urn:btih:C555D74B5DB7E2344458883AF25AF4CCE662F867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

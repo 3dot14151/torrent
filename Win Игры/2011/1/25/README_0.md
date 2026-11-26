@@ -19,8 +19,7 @@ Yatzy Twist (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:1D9F5F357F5FA165745731BD2D9F04AB805A2E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Solitaire Epic (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:EDB91821368568F66A2771065E51C324422F70A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kakuro Epic - головоломка с числами, которую можн�
 ```bash
 magnet:?xt=urn:btih:A6470D3740CBCEBE948E52EB322BBF3E609A6FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sudoku Epic (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:663FBE4C430B2CF4A6A95DAF095DDA2388720DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Evochron Mercenary [Ru] (P) 2010
 ```bash
 magnet:?xt=urn:btih:CD06C87626D200188886BFB0BA9E56B25BC9967F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

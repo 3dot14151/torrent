@@ -22,8 +22,7 @@ Cleophuzz - 3 Releases (2018-2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 ```bash
 magnet:?xt=urn:btih:99A26484B071F02BCE8C863753955BAAEC816E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Doomas - 3 Albums (2008-2023) [MP3|320 Kbps] <Doom, Death Metal>
 ```bash
 magnet:?xt=urn:btih:662C9542FB4F5BB452BE8BD8B91A445954B3088A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rossometile - Ostara (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Gothic Met
 ```bash
 magnet:?xt=urn:btih:F4CD6397B7016F370254E2A95EF0EE5DEEE0F154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Schizophonics - 3 Albums (2017-2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:09BCD7770E5B9ABA7A25278473A15BE8023AFD3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Oak (Portugal) - 2 Albums (2019-2023) [MP3|320 Kbps] <Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:BE04C5A51D2BE5D469C1EF1400E986187E81B417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43B6FF94DEC406264937AFBBA1D4311BC39F2ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Konfirmat - 2 Albums (2019-2023) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:7170C1376C7397E46B2851B98665B83979FA572A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C29B5FA6E48FDFD2A48B8DA920B6B01D06195EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ The Iron Bees - 2 Albums (2015-2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6143EADCD0BA6F7FB143C8167F0DCF027661F929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DF8A1BE637C31522AAFF9977847447EDE5264A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEE4B04C190D325DA0D0D69ABE2181E15DC31B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ DegrodTeam - Поеб... (2023) [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:8F7D6FE49CEDF3C92FF0C91CDB7E627D970BCE66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Shiningstar - Songs of the Northern Lands - Chapter One (2023) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:97FA640C405792EB7A459BF708237DF19B18B10F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Solstice - 3 Albums (2013-2022) [MP3|320 Kbps] <Neo-Progressive, Folk Rock>
 ```bash
 magnet:?xt=urn:btih:7C4CF9D43ABAEFFE88F15DEFB311728F12CC2BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:C91B8D49B8621172E88C96FE31823A358243BB7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Burshtyn - 4 Albums (2016-2023) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:73046F62ACE941A1F8345B6B2B8C41EF4CBB0AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Within Temptation - An Acoustic Night At The Theatre (2009) Reissue, 2022, Music
 ```bash
 magnet:?xt=urn:btih:44137E2F57DAC4E19F6D94AA2912757336E0F8F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Chris Norman - Rediscovered Love Songs (2022) [FLAC|Lossless|image + .cue] <Pop-
 ```bash
 magnet:?xt=urn:btih:64EA42815317760922F86F6CE197E82FB036579F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Fast Food - Collapsing Babylon (2023) [MP3|320 Kbps] <Pop Rock, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A147DCC9B43BD7B83AE7637797B72C2F29EB8173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Amthrya - Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
 ```bash
 magnet:?xt=urn:btih:6F0E10CE5626D978F045241ACFCD13C64C3F9A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ Ashtoreth - Bruxolico (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:4A11D70BE3ED75642BFE70BA0F1E45082F177EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ Atomwinter - Sakrileg (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:35E64E6D5D28328B7CF2E2F1C55D9227C9553A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ Lansdowne - Medicine (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:79DA7621067544638A883AC16D584F6325EBD86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Narrow Head - Moments of Clarity (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock,
 ```bash
 magnet:?xt=urn:btih:5A8BA86694DBC3823FF8B7F601065CCD3EEEF4E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

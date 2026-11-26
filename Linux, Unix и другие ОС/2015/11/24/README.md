@@ -21,8 +21,7 @@ Jondo Live-DVD предлагает безопасные, предварител
 ```bash
 magnet:?xt=urn:btih:2F6CF7EE3BD8E10C0BDB7207553572E6C74BF391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ KNOPPIX 7.6 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:CF8C34360A7FEC226E279411B07B9DF9093CCB6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

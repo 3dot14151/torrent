@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8436374786EC4514CB71B03B30612C9820B88A3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Rock Love (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:E343CC578AC4134E2DF1B2617DEE5611CCB71BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - 100 Greatest Heavy Metal Hits (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal
 ```bash
 magnet:?xt=urn:btih:35D945EA86BC1371C67F01C7AF9FBD0ECFEC46C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

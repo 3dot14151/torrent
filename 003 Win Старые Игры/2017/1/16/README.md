@@ -19,8 +19,7 @@ Fantasy Wars / Кодекс войны (2007) [Ru/En] (1.0.9) License GOG
 ```bash
 magnet:?xt=urn:btih:665A710FDF9FF2A9A1E767510ED9B21E847B1980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

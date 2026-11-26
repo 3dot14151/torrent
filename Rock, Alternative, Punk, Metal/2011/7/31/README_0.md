@@ -27,8 +27,7 @@ Arctic Flame - Guardian At The Gate (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:253D3C0C69C006D412BE4199AAFCE1906E0984FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Powerwolf - Blood Of The Saints (2011) Limited Edition [MP3|320 kbps]<Power Meta
 ```bash
 magnet:?xt=urn:btih:1D7A0488468333E764B62CC6A6BC2BF6CBE05737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Fleshgod Apocalypse - Agony (2011) [FLAC|Lossless]<Technical Death Metal/Symphon
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Cliff Richard - The Rock 'N' Roll Years (1997) [FLAC|Lossless]<Rock 'N' Roll>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:8DB5B3F0A27CD76232E1C411C0537D1A47CB561B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ CD1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

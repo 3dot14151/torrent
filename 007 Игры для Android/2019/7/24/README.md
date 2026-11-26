@@ -19,8 +19,7 @@ Streets Of Rage Remake 2x - Неофициальное издание всеми
 ```bash
 magnet:?xt=urn:btih:AA3AE0FB01CCD1CF555AC348ACD19CCB4916A834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

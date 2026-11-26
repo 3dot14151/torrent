@@ -19,8 +19,7 @@ VA - Classic Rock. Discover Download (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:E21A4CB9415E7FCA6747D04B84974992FBA4F869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

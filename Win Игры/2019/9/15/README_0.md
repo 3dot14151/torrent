@@ -19,8 +19,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1F340015E3801AC3C6BBE9C4CE954B8F8BCA5EFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2CAF9DF5DF198BC834A5C0EABEE1E4A4FBEFFAFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sheltered (2016) [Ru/Multi] (1.9) License GOG
 ```bash
 magnet:?xt=urn:btih:D08240044E57B7BC803A64C045A633B157DD1056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:F5368F6B541080DC0B909423DB23B9ED00A08EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

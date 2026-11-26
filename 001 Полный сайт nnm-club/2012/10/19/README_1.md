@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8F8E76ED916CA50425381111F82BD2DB276BB39D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05CB349861A568F04FEE2C7A81F38D29E0BDA5E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Direct to Dreams - Adagio For Strings (Barber Remix 2012) [H.264/1080p] WEBRip
 ```bash
 magnet:?xt=urn:btih:F4CE15F4935AB2E80CED8750DDB771DC54FBD958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Танцевальная CLUBничка MaximuM (2012) [MP3|320 кб/с]<Cl
 ```bash
 magnet:?xt=urn:btih:38A8CB5838F4684CF03DBC62C9BA26BD1F3AC9C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Andrew Rayel ft. Jano - How Do I Know (2012) [H.264/720p] WEBRip
 ```bash
 magnet:?xt=urn:btih:E22DB0A0F1FA02858E14D351973102C2AD13E466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D97884A02A5582C4E85A59673928D13C520EE3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ HyperSnap - инструмент для захвата изображения, �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDE010FE2D6D30A14D6DA9E9D23DF4F37BB6E9E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ L.Micheli, M.Felici (Guitar), Orchestra Sinfonica Abruzzese
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ VA - Шоферской Выпуск: Лучшие Из Лучших (2012) [MP3
 ```bash
 magnet:?xt=urn:btih:EF99AD17C0C895EB763DC1B4D6D32D7A42B72CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DFD0D2A15D32BB24606E7FFC361943E793F7259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ Digital Juice Jump Backs - это сборник включающий аними
 ```bash
 magnet:?xt=urn:btih:AC6B6F66C59E6CD1231D79EB51E5AB093542E4D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E363645BB3B0CC1632B39EDAE87A6ADA5F992D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ LeaderTask - это Планировщик + ПИМ + Календарь + Ад�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8D443C10845002EC659D192BA89FE9D043EF9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:002469A4F51FBF5625B808896C7A2BF1F4CDC921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ VA - Клубные Новинки Vol.151-154 (2012) [MP3|320 кб/с]<Pop, Dan
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B72702B5E4DAD5DC32CB67DF496D2EFDD3341E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ Shadow Wolf Mysteries 3: Cursed Wedding Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:13CBA54FCA3D874C41A6E12DA7AFA1EEB7C8CE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Digital Juice Jump Backs - коллекция высококачественны
 ```bash
 magnet:?xt=urn:btih:4C90096A5AE9E0DCD765146070323F5DF72031F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ After The Darkness - Бродить во тьме (2012) EP [MP3|320 кб/с]<Go
 ```bash
 magnet:?xt=urn:btih:DC3E2050A7D46B356173BB2ABAD8448EB1F4F7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B7DB0265601F1A56FE79E4E27CFC0F69CFA0D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ Digital Juice Jump Backs - коллекция высококачественны
 ```bash
 magnet:?xt=urn:btih:BCDDEB37B510617E3D3C1D7A65AB134BDD9635EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ Digital Juice Jump Backs - коллекция высококачественны
 ```bash
 magnet:?xt=urn:btih:4CA2239603C5BC68E3490FC93682594A4FCC4A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ Armin Van Buuren - A State Of Trance 583 (2012) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F7A700FCCAE9A8772900A67FF1D9C3B2DA7C867B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

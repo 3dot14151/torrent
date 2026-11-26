@@ -19,8 +19,7 @@ Saints Row (2022) [Ru/Multi] (1.1.2.4374033/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:AEF98383B39C21711302927F7F6E3C7F53870E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A804BDCD072961732C1798DBD895A8E64EE92803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ IMMORTALITY (2022) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:ACDBE02A3E2C4EDF43B2C8E0A346466B8EAC1E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Stellar Ghosts Settlers - это научно-фантастический шу�
 ```bash
 magnet:?xt=urn:btih:9C4CDCCB74D285F79B27A2E2B94F3CC6117AC2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Disco Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0A5FA5497CF9652F3F48CEE1ABC78D20D6BD3723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

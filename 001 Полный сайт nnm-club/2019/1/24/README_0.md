@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CDD34A80B7F84D34FE0C3E2170525E75425C6DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Path of Sin: Greed (2018) [En] (1.0) Unofficial [Collector's Edition / Колл�
 ```bash
 magnet:?xt=urn:btih:960107F86AFF6F0F6CE86AF5CA3039C5525EDC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Missy Higgins - 18 Releases (2003-2018) Коллекция [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:96F8C6FC5B7B2F70DF2D42404311FB0B6AFE2A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40725122D001E9235BEE31BFB321025B3BDBD17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Weezer - Weezer (Teal Album) (2019) [FLAC|Lossless|tracks] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:A4A40D5679B0F848DEB1192A9A6986712EA62AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Shakira - Laundry Service (2001) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:E17998B6BCEDA3EC16492936A1DDB2FC2A5A5945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Certificate Templates - DesiGN прекрасная коллекция из 160 
 ```bash
 magnet:?xt=urn:btih:94345AA2B67DECCC1491B0FB9254ED6874EE2A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FA08D9FA44CCC6E37C7B36A44F1416A9E6ED593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EE1F9ABBF663FAE755FD4E27348A9B9247B4401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ LensFlare Studio - отличный инструмент для фотограф
 ```bash
 magnet:?xt=urn:btih:BA8306AAC69476BCBBCB88999E1FEF25FF7ECF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ VA - Unexpected Present (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A77638FEE7131ABB7AB45318D50110C3178D1353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3B35F14A9D452805D28B892DF791A63045EB60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3AABA2A46DE0232B60117D8674E13B5CCAEC160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ LaserDance - Greatest Hits & Remixes (2015) 2CD [FLAC|Lossless|image + .cue] <Sp
 ```bash
 magnet:?xt=urn:btih:AACBBA70BBE3E3F8E3BDA6D10021012B33546C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98745CC2910F3CB6010C3182F3B810FA8C7506B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ VA - Beautiful Vocal Trance - Chapter 2 (2018) [MP3|320 Kbps] <Trance,Vocal Tran
 ```bash
 magnet:?xt=urn:btih:7DDCF579D249431CFAAA257B3CEFDB500625154B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Pale Moon - веб-браузер, созданный на базе популя
 ```bash
 magnet:?xt=urn:btih:6D2F8696C516A662D1F14F685AB2CA944695E46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ VA - Formation 2 (2019) [MP3|320 Kbps] <Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:4D26687947D8BD23336BD8F241A2A1B095ABDC1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ Paul Rodgers - Free Spirit  (2018) Blu-ray [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:138D8B540E4224845E2CFA8BF40FD820CA505385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62BED70198F80DFD06685480F715E814CEAB3263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAD93DF62C01FB3976817A6613DE1B9B6BE1E0CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ Vermillion Watch 5: London Howling / Алый Дозор 5: Волки в Лон
 ```bash
 magnet:?xt=urn:btih:D1E4F826AC47F8C9AB9D9C0E7E4244345B3AAE55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ FastStone Image Viewer - вьювер, редактор и конвертор г
 ```bash
 magnet:?xt=urn:btih:6CEA09A3D145799E1E222E59C1346441E9153E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:19412BDC733EBD6CF4683B4C1B83C5E9D473B454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:106F4273370ACB726A1400BD19A4D68B3100941C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ VA - 90's Dance Attack (2019) [MP3|320 Kbps] <Euro-House, Dream House, Hard Tran
 ```bash
 magnet:?xt=urn:btih:EBD6A8FB7873092E88290946EDBB01085A84CBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

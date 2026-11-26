@@ -19,8 +19,7 @@ Street Fighter x Tekken (L) [Multi11\+] 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:EAD7FFB21FC8E73BF6EB4E57C62648098C9D3373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ S.T.A.L.K.E.R. A.P.T. Mod | Epsilion Group
 ```bash
 magnet:?xt=urn:btih:9EA1848CC6FE403F5C89729EE3C801C8589FFD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Abandoned: Chestnut Lodge Asylum / Позабытая дурка. Каштанк
 ```bash
 magnet:?xt=urn:btih:9967ED98E6777684644C0210D78DF81F73B43BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Secrets of the Dark 2: Eclipse Mountain Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:8A06AC7B3E85A9BBA3958706D4ECF12C58C9DA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

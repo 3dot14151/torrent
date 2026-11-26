@@ -19,8 +19,7 @@ Apocalipsis: Harry at the End of the World - традиционная игра �
 ```bash
 magnet:?xt=urn:btih:1635C6B82CFBDA231789F6620C87AF689EF9F891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Typical Nightmare – это сюжетный приключенческий х�
 ```bash
 magnet:?xt=urn:btih:1198A23484756A1785A673B661489286E136192A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

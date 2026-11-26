@@ -18,8 +18,7 @@ Life is Strange: True Colors (2021) [Ru/Multi] (1.1.190.624221) License CODEX
 ```bash
 magnet:?xt=urn:btih:4AB5870887AB2ED0EA7E62C979E527B83512E1C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A3AE4029A4F1FE8E513528F279F76DCF5DABB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Playboy - легендарный журнал для мужчин, основа�
 ```bash
 magnet:?xt=urn:btih:5E17A040EC17352A756A65A78B3EBB8E5F28FFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Adobe Photoshop 2020 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:6532C1F15F585E49204B10A29CFD5BF76172B1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Advent Of Bedlam - Flesh Over God (2012) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:DDD6A2E78BAAE365625B88490818FE3162C775B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Eisenherz - Fluch der Zeit (2013) [MP3|256 кб/с]<Gothic Metal, Industrial, ND
 ```bash
 magnet:?xt=urn:btih:9F0F78D4FFFEEA0A1F5DFBD79C553610E26C9E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Darkthrone - The Underground Resistance (2013) [AРЕ|Lossless]<Black Metal / Cr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Faster Pussycat - The Power & The Glory Hole (2013) European Edition [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:19608C85BD14F456574B95B1A33256E069DCCD5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Frank Zappa - Shut Up 'N Play Yer Guitar (1981) Remastered /2012, Zappa Records/
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Republica - 3 Albums + 7 Singles + 1 Compilation (1994-2002) [FLAC, APE, WavPack
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Discogs
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

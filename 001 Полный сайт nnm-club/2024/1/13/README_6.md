@@ -21,8 +21,7 @@ Serocs - The Next (2013) [FLAC|Lossless|image + .cue] <Brutal Technical Death Me
 ```bash
 magnet:?xt=urn:btih:AA52F5B3329F5D1C42A6755080A0D885910D0377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Boxy SVG 4.21.1 [En]
 ```bash
 magnet:?xt=urn:btih:D6B2A97F293F1AF69E0A4434DC5412CAC26449FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 ```bash
 magnet:?xt=urn:btih:7F5C0105FAF572412E97A12F17CA568F05721AD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Alluvial - Death Is But A Door (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 ```bash
 magnet:?xt=urn:btih:68782000C7C6A69452E5A3EA3748F4ADDB2B7FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Henry "Red" Allen - 1933 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <D
 ```bash
 magnet:?xt=urn:btih:D9201F5313DE40F4CA76E305F5C5F89D4664D4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Noir — это расширение для Safari, которое автома�
 ```bash
 magnet:?xt=urn:btih:3F1242117968EAF65D57CDD3FD18687A459E29DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ MarsEdit 5.1.2 [En]
 ```bash
 magnet:?xt=urn:btih:650EBEFA42C6D06EAD9FCB36CE0CEA99DD918DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Serocs - The Phobos / Deimos Suite (2018) [FLAC|Lossless|image + .cue] <Brutal T
 ```bash
 magnet:?xt=urn:btih:B05B146D9D07DBE5E9BE407E4A9F87A117320FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Serocs - Vore (2020) EP [FLAC|Lossless|image + .cue] <Brutal Technical Death Met
 ```bash
 magnet:?xt=urn:btih:9E4D90933D013602E798A7051B3A64B5429C9C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Temperance - Temperance (2014) [FLAC|Lossless|image + .cue] <Melodic Heavy, Powe
 ```bash
 magnet:?xt=urn:btih:C2A07041C6BBE59FBA4634CEBDF0C9725E148B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Depraved Entity - Angels of Sin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:4E3D0793742D97E35BE8F735DCC54E42D5C04E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74D0962B457CB0E42F9861DC8FEBC389690D0827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ The Clamps - Megamouth (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:A0B2429A10B3A62B04C0A7CAA2F4072858B53640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

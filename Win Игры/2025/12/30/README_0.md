@@ -19,8 +19,7 @@ Star Ocean: The Divine Force - это JRPG с элементами экшена 
 ```bash
 magnet:?xt=urn:btih:3C0519A0F3650773299F58A2EC198A617E48CB45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bendy and the Dark Revival - это хоррор на выживание от п
 ```bash
 magnet:?xt=urn:btih:54D1956A9B869D9EF1961C53F566148D791D5DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Repack FitGirl [Digital 
 ```bash
 magnet:?xt=urn:btih:20345305B2511503642029FCC8362CD674FBBD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

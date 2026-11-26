@@ -19,8 +19,7 @@ Dark Romance 10: Hunchback of Notre-Dame / Мрачная история 10: Г�
 ```bash
 magnet:?xt=urn:btih:E8E06501387A1FA1927BDFF0AFBF506F785EE0EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Matanga (2019) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A1E4B3A5D1D1274C6BE42CE53DCEA9DA984E252F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd2) License CODEX
 ```bash
 magnet:?xt=urn:btih:835BAA1570F5FD569ADEEE3ED782511BA23DDBE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

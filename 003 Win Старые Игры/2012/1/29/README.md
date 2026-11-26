@@ -20,8 +20,7 @@ Grand Theft Auto 3 [Ru] (Lossless RePack) 2002 l R.G. ReStorers
 ```bash
 magnet:?xt=urn:btih:A8EF4F143B5FBE926AC3964B1A8BEEA609A0040E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ XIII [Ru/En] (Lossless RePack/1.1) 2004 l R.G. Origami
 ```bash
 magnet:?xt=urn:btih:0011E77528EDBF3C7F8065EDC63E3445C79D0AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

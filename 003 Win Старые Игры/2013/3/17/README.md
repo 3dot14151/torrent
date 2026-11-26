@@ -20,8 +20,7 @@ KA-52 представляет собой продвинутый вертоле�
 ```bash
 magnet:?xt=urn:btih:3CA71D08A3A32B88D04F7C66180AB9DDAA84AA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ GTR – один из наиболее реалистичных автосиму
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ KA-52 представляет собой продвинутый вертоле�
 ```bash
 magnet:?xt=urn:btih:F8FA14E43CE37C6701C5679A18B38164086E5E6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Enemy Engaged: RAH-66 Comanche vs. KA-52 Hokum / Разорванное небо
 ```bash
 magnet:?xt=urn:btih:765B5729B0091A900E4E926F0486BB64655AF90A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

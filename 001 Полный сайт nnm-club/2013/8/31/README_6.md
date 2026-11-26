@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6D6466329110E93DB2F9CE644508E7E211958FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ JoJo’s Bizarre Adventure: All Star Battle [PS3] [FULL] [JPN] [4.30+] (2013)
 ```bash
 magnet:?xt=urn:btih:99B10D08827136FCF14FD96940053618C285CFF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ All My Movies - каталогизатор фильмов для всех. Ве�
 ```bash
 magnet:?xt=urn:btih:1D238BAB2C4E347404DEA5C04A2F7A8C4E88F5C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Volo - это смесь фотоискусства, гламура и секс�
 ```bash
 magnet:?xt=urn:btih:4E1F94695E7199E2A805A424F9612A1057F21AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Castlevania: Lords of Shadow - является переосмыслением �
 ```bash
 magnet:?xt=urn:btih:8EB9281FBE728DD3B6FD7A13473083189AB451BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67BA3BF941D58A1639626A3CCE211FA5B62EBB6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0414EC92AFB3163A9E22EE1FE50F639297339334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Hagane no Renkinjutsushi / Fullmetal Alchemist: Brotherhood / Стальной �
 ```bash
 magnet:?xt=urn:btih:F16C9F079A6D4D233BB0BEE9D713E97065774CDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Battleship: The Video Game [PS3] [FULL] [USA] [ENG] [3.41/3.55/4.30+] (2012)
 ```bash
 magnet:?xt=urn:btih:0EDF3E267CB1348D406F215B6F0EAF77F5394F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A371517648F15A1DD4BDDDA9FEA8837BC2A0AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ DuckTales: Remastered - это красочный, нарисованный вр
 ```bash
 magnet:?xt=urn:btih:14E479668D1D10E77F6834E35AC98CD791E4659C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8679B4DE6F937729F5E81F770AA4D2CEFF27DD28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Lost Planet 3 - предыстория других игр серии. План�
 ```bash
 magnet:?xt=urn:btih:0730D97137B9F3DA37185ADCEDE7EDF20662E621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Boot CD/USB Sergei Strelec 2013 v.3.8 Mini [Ru/En]
 ```bash
 magnet:?xt=urn:btih:77571CC5CDC00CD67C09440FE47E90450D4C032D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Black Fire – бесплатный онлайн-шутер на движке Un
 ```bash
 magnet:?xt=urn:btih:04195BB6BC692E39F04E2C9E8C91FB54EE9C91B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC1496D61C1E6AB5CC12FCCD1FC70F27B7345721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ The Bureau: XCOM Declassified (2013) [Ru] (0.1.0.57 / 2 DLC) Repack YelloSOFT
 ```bash
 magnet:?xt=urn:btih:3E264C80CE3A2F0FB1DE790BF393322242503C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Intel Chipset Device Software - новая версия драйверов дл�
 ```bash
 magnet:?xt=urn:btih:C6E4480AE357C5EEECE780EA9DBFE70B5C1A412D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ Transformers: War for Cybertron расскажет сразу две захва�
 ```bash
 magnet:?xt=urn:btih:D25729A269029EFECAAAADED8F047F56128BF59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ Farming Simulator 2013 продолжает серию симуляторов ф
 ```bash
 magnet:?xt=urn:btih:D06873D0507C47EB171DF83D9B988F01014B587C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ Rohos Mini Drive - утилита для шифрования данных на 
 ```bash
 magnet:?xt=urn:btih:7062E0B5F99435CE1C72DE3B8184FDA9078F9386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5CC3375B70FAD15B72652340F1BDC9A2D474B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ Killing Floor — кооперативный хоррор-шутер на выж
 ```bash
 magnet:?xt=urn:btih:393DC8417B7450FACFCB32FC3B23F179398292FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

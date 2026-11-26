@@ -28,8 +28,7 @@ VA - Deep House V.27 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:7482747F0034B689A4A377943DB56D5CAFB3C7F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Xthirt13n - A Taste Of The Light (2014) [MP3|320 кб/с]<Progressive Power Meta
 ```bash
 magnet:?xt=urn:btih:750A909E3B2D35D44A0C494D142ABEA748B3866B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC1767E9F61F0AEB03A4D84BF441487050754724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Deep House V.28 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:79D4C5D69FC9F130E95817D7B277D5D2A37BDFB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D9151AA454ADD2F19D39940888088470E07EABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D666A68F1C4449BB1FDD0CC1E085489C55D1080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Phoenix Rising - Versus (2014) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:C26CA77353E093872726026B43D051298AA1F9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Gene Harris Quartet - Like A Lover (1992) [FLAC|Lossless]<Jazz, Hard Bop, Soul>
 ```bash
 magnet:?xt=urn:btih:0DB02751DD273BF2D26D16D53DD28738C35195E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Tyler Jakes - Evil (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:FC3494FA718BF11B58F3CA092626787254E7641B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ VA - Defected presents Most Rated Miami (Mixed By Andy Daniell) 2013 [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:FB9F9AE6998538CD1554882C7C8EBC26A1BD5457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ Flip Phillips - Claw-Live At The Floating Jazz Festival (1986) [FLAC|Lossless]<M
 ```bash
 magnet:?xt=urn:btih:E9CE0497C354B644819E2A0FBBC9C2DE0DCEF9B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA7561463344D92AB64202AF24A947B23EC472AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +425,7 @@ Red Norvo - Dance of the Octopus (1995) [FLAC|Lossless]<Early Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:981927921E659ED5351F5D82FB4AA9B932FD3C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +459,7 @@ Machine Code - Samurai (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F222F8928CB48A8B85099C05E6FE0FC25CC32A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E09D0C4ECF10560020B0432ECA929D9A7BEE0A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +524,7 @@ VA - Vocal Trance Collection Vol.125 (2014) [MP3|320 кб/с]<Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:80C950FE68690018596EBDE933129E04AD9347EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:672939A8F3BA11A69C7391D7D8FC73C9CC01F731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63ED4188B1E51E73F59AFAAA5A7AB507D0926F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4215CAEBB0D158B7B16B29E6BD7EF12AF6AB24E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B716D107D2103A3C22058095D9CEB58A1751AC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC3D9CF0ADD6EFB902A1E619F84ADFBF72A1C1BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E46AAD516D5F825132ED7BC3E0DF89F5F7088CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4C3EAB80F475305D2EE57299706299ADEFDF94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:053C753E1AA2E43AFB6375F819B8CDF1E20BE322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +768,7 @@ VA - Zirkus Zirkus, Vol. 6: Elektronische Tanzmusik (2014) [MP3|320 кб/с] <Mi
 ```bash
 magnet:?xt=urn:btih:AD2F13CAC5FBBBA9E551EFA1C85C7EDA7CCC6E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

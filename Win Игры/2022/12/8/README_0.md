@@ -19,8 +19,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.09) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2C528AF7E3854E7F9DC90644C1E8322ABDB2B679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

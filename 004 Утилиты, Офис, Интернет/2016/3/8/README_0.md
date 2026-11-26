@@ -20,8 +20,7 @@ AutoRun Pro Enterprise - мощный визуальный инструмент 
 ```bash
 magnet:?xt=urn:btih:84607F02476922BF3C5A2F25C281AC296D9EA68B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Paragon Hard Disk Manager - многофункциональное и удобн
 ```bash
 magnet:?xt=urn:btih:625173FEB625EDC7083E6CD9266214A206AA0C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

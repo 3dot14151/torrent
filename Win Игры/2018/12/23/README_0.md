@@ -19,8 +19,7 @@ City Patrol: Police (2018) [Multi] (1.0) License CPY
 ```bash
 magnet:?xt=urn:btih:F3EA804512B053107620F7D12BA60BFDE6902BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ATOM RPG это пост-апокалиптическая инди-игра вд
 ```bash
 magnet:?xt=urn:btih:0FB0462040D6AA6D2E6812427DB21F0A3B114076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

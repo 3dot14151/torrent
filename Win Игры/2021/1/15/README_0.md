@@ -19,8 +19,7 @@ The Cabinets of Doctor Arcana / Кабинеты доктора Аркана (20
 ```bash
 magnet:?xt=urn:btih:45455E7509F9581F9E533480029F9D5E60181AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Portable версия настраиваемой бесплатной прогр
 ```bash
 magnet:?xt=urn:btih:EF048E483CD9B27A6FCEF720F192D965F6F8552B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

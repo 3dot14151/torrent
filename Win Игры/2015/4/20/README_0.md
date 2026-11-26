@@ -20,8 +20,7 @@ Halo: Spartan Strike (2015) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A5966717FF93B329B211BB7651A0345C748CCD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

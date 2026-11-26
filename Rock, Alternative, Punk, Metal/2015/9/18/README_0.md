@@ -22,8 +22,7 @@ Faust - Excerpts From The Rock Ballet (1996) [FLAC|image +.cue]<Melodic Rock, Ha
 ```bash
 magnet:?xt=urn:btih:542FD366DD66E649732D9523196318A6905D8B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Blue Hawaiians - Savage Night (1999) [FLAC|image +.cue]<Surf Rock>
 ```bash
 magnet:?xt=urn:btih:F01E4F476E4B2A5003898B97A9009ED81A994F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Leaves' Eyes - King Of Kings (2015) Deluxe Edition [FLAC|image+.cue]<Symphonic M
 ```bash
 magnet:?xt=urn:btih:288D774395C9E3CC24504357FCD56B9282534758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Chemia - Let Me (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E4D03551A055CDF936D2944D7CF5BF95EC2ACF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Crossfaith – XENO (2015) Deluxe Edition [FLAC|Lossless]<Alt. Metal | Metalcore
 ```bash
 magnet:?xt=urn:btih:1C2EC4EE4230F1A32D66B328392299388996B42E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Annihilator - Suicide Society (2015) Deluxe Edition [MP3|320 кб/с]<Thrash Met
 ```bash
 magnet:?xt=urn:btih:8CBDE5F23B89A10738F6C7C52B1DBA08F5F0A4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ David Gilmour - Rattle That Lock (2015) Deluxe Edition [MP3|320 кб/с]<Progres
 ```bash
 magnet:?xt=urn:btih:ECC2C000FB7E91D19279382FDB4A62BD73DC858F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ David Gilmour - Rattle That Lock (Deluxe Edition) (2015) [FLAC|Lossless|WEB-DL]<
 ```bash
 magnet:?xt=urn:btih:555CF4449C0D7628AE0AE28F085D154262E3E70A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

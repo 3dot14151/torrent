@@ -19,8 +19,7 @@ SimpleRockets 2 - полностью трехмерный космический
 ```bash
 magnet:?xt=urn:btih:4C73C7E87C240720B1B1666C3B2569FA6D48EBE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C14CC467B6A39E5365E6F3A5375C484958F50949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

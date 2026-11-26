@@ -20,8 +20,7 @@ Magic Intuition / Магия Интуиции v4.3.0_15 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FB5361D12B40D13897D0B55F50FFCF04F38CB8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Astrodox Astrology / Астродокс Астрология v1.5 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:40C802984288FCAD8EBE1FA9F037A0B59ADACEAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

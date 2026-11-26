@@ -20,8 +20,7 @@ Ubuntu*Pack 22.04 MATE (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1E457FB42F8077D09A3FDEF17BC3C953AD684B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:BC3D09D9E53FFEEED42555FCC7CFB70FA45FAFAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ubuntu*Pack 22.04 Unity (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:87AC0EBFBC77F2BE1915FE505189F1100C1D0CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:0B1D71AD068D2B8EF5AFF442CBEEDC014A95B20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Ubuntu*Pack 22.04 LikeWin (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:717D30226237ACB2382273AA3FC536104B2C9AC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Ubuntu*Pack 22.04 GNOME (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:379F648E336676D9C0CF5200F29E84F0CB21CA49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:EB674431DADF96F73AEF3573DA85E60D74693F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Ubuntu*Pack 22.04 DDE (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:FC70D122184CE6B6B2A36D77997581737B769BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Ubuntu*Pack 22.04 (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1A4B339C7C49F8E3851C4BCB691B5BDBE69BC8FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Ubuntu*Pack 22.04 Cinnamon (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:5A3A023A938B3A4DA82CB8CD11F9E44481C78E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Ubuntu*Pack 22.04 Budgie (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1A2377F6817E1E33F2B138DB4F7299DC463460DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

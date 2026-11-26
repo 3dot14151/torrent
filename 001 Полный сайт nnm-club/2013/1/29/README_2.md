@@ -27,8 +27,7 @@ VA - Metallica A Tribute To Kill 'Em All (MAG) (2013) [MP3|~245 кб/с (V0)]<Th
 ```bash
 magnet:?xt=urn:btih:0D1319A32D8EFAD10D94AC693F655689EDE11EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F191B3BAECE24123B3321F9630F9E2280D03707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Labrinth feat. Emeli Sande - Beneath Your Beautiful (2012) HDRemux [h.264,1080p]
 ```bash
 magnet:?xt=urn:btih:7664EE9AD383FE6F8FD02FFBF44CAA49EFD6F47C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5200E8E7CE3F5E4BB5F2978D1E6274DAAFDD63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Wallpapers - 100 Wallpapers vol.1 [JPEG]
 ```bash
 magnet:?xt=urn:btih:2978265BF5A78E02466B115F7C262C0C29249D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mlada fronta - Revolution (2012) [MP3|320 kbps] <Industrial / IDM / Power Noise 
 ```bash
 magnet:?xt=urn:btih:86FB3D02A6F26953172919906691426C9E079E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ WinASO Registry Optimizer — программа для поиска и удал
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DFEC4E7DAB17D71E164ABB10DEE03912DCB4EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Undelete Navigator 1.1.0.188 [Английский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ SYN:DROM - Iconoclasm (2013) [MP3|320 кб/с]<Technical Death>
 ```bash
 magnet:?xt=urn:btih:F3407FFEFF547D1F083A879DBC0E0F92402283F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ ANFEL - 5 альбомов (2009 - 2013) Discography [MP3|320 кб/с]<Gothic Do
 ```bash
 magnet:?xt=urn:btih:A5CE31AE11C8938E3676786CA044BAAAF4AEE457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ Torturous Inception - The Parable Of Scorched Earth (2013) [MP3|320 кб/с]<Bru
 ```bash
 magnet:?xt=urn:btih:9E8AB0C15F2C2C23A60B712B36B5716AA32BB846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ Full Tilt - Take Me Away (2012) [FLAC|Lossless]<Progressive House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ Wallpapers - Обои 2013-1 [JPEG]
 ```bash
 magnet:?xt=urn:btih:881FF8314D9664CFD69534A36770069725476120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ Tom Boxer feat. Antonia - Shake It Mama (2011) HDRemux [h.264,1080p]
 ```bash
 magnet:?xt=urn:btih:380F156AF6B948AAA28F3860CCDADAA9DEB5CBC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9910ED5466591B3AAB88DD65552FA8C6B686A280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Desktop wallpapers vol.1
 ```bash
 magnet:?xt=urn:btih:8BAB55A4D6862E9B1B025880F2A93CFB517EDC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Alexandra Stan feat. Carlprit - One Million (2011) BDRip [h.264,1080p]
 ```bash
 magnet:?xt=urn:btih:DBE35D8259BEB703C70EF7CD322CBC7F6680D290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14B6B26E3B4C036019A8B5B75F0705AE83C71DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +556,7 @@ Poshout - Five Years (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7D6060CF5CA56E1374295548E4FA290534661502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ VA - Club Dubstep №27 (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:C77862CDC5C603E32F130EA66AE6DD3C20B7EC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +615,7 @@ Bob Taylor feat. Inna - Deja Vu (1st Version) (2009) HDRemux [h.264,1080p]
 ```bash
 magnet:?xt=urn:btih:622B40FC883BD7CFAFEBC9AAA0BFCA5D45FD263A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56E9A2FCF6111CE63765ACC5A26D47EC5FDD3D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Empire - популярнейший ежемесячный журнал о ки�
 ```bash
 magnet:?xt=urn:btih:A9423777ED40C11B08C819DF51BE73B1453FD641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ Rihanna - Where Have You Been (2012) HDRemux [H.264,1080p]
 ```bash
 magnet:?xt=urn:btih:EBC7B5F096546C943F17DDF9CFF77667919BE5A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ Freemake Video Converter – бесплатная программа для бы
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

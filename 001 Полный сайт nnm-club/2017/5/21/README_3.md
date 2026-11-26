@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D78D49AF49405691AE7DEF829B24BC5AF7EE3790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Absolute Hits Of The 80’s (2017) [MP3|320 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:BE17ED2437548E668FDBCB481E163E9B1DC9ED90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Erasure - World Be Gone (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New-Wave
 ```bash
 magnet:?xt=urn:btih:64AD2D11370ECFDD25E07DB9B07E1DC1E8DAF29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:1B62042B31612D023E0383054CF0C2633CB048A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B67EE275F39090419FB0689DE54D21F9A151825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:9C394C330167A1EA46AB0CD2F151F6BCCF2D46D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0160A1A72BF93E2134B826EF6FCE21FE7FF0B8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65B3DA6BA23DDC26F14E6B99AC15D8769D556842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49F94333ACF26718293B3C33280FAF7358D269E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:C44A198BDCDFA93D1204FC268FDB05E11FABC7DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Omnimar - Poison (2017) [MP3|320 Kbps] <Synth-pop, Synthwave, Darkwave>
 ```bash
 magnet:?xt=urn:btih:82E09FE7EB4C189396D78ABD57C15A1E84249278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Rainbow - Catch The Rainbow: The Anthology (2003) 2CD, Compilation, Remastered [
 ```bash
 magnet:?xt=urn:btih:AC87AA52DEDAD41E09B2C001596D18A5124F856B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A52FF2FC42CE46C3193E737FE99AD06BBD416B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ jv16 PowerTools - программа, представляющей собой н
 ```bash
 magnet:?xt=urn:btih:48C8507A5A423141DFBFB5EF9076CEF224CCC9D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:944BC63017D06D83AC4E91372A7F13587F04F1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2F75BEA1DA73C2916C8E12D5E063AE94AA71572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:564EDCB3F02433A070B3E10D716F975BCB92F88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BE242BE0BA7558C86B3878A5C026ECE27FAF75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ VA - Back In Disco vol.2 (2017) [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:AD78800BD237173DF819590EBC66B1FE9957C8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ Coloring Book ColorCure v1.3.3 [En/Ru] - раскраска
 ```bash
 magnet:?xt=urn:btih:D9E69BE5FDB922C6BD53E83554077D7DFD742FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 ```bash
 magnet:?xt=urn:btih:9F2BFEB55C48F9843D49FF0D87F8BDC129EC179B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F95C2CAEBC62B72D9071C193A862FCE3EE6E4BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6D43781BB05FB47385181B50CE73577D6D27AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ VA - Relaxing SPA Music Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Relax>
 ```bash
 magnet:?xt=urn:btih:016E007770EC05F131764FF5D54112563FF17674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F1463F51D61E337ED14FB54E57A27984F42E711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Ryan George | Freeweight Training Anatomy (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:8D7A9E7F0EB5B75198F29A4747E1B6E0EE7B5BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

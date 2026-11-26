@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:4B449273ACB9C5092A5E67D320B40E9922367CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:0494B4CAA13F91E086FE155EE31BA481EC88F886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ WSCC (Windows System Control Center) - портативная программа
 ```bash
 magnet:?xt=urn:btih:7EB1D05ECEEF1DB05E7C02717D980CCF68691B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Architects (UK) - The Classic Symptoms of a Broken Spirit (2022) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:258A77D2BF4B7E93D3B87AFC87BBEB79BBB1616C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ R-Studio Network 9.1 Build 191060 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8B88F1A44C25F46AED5D7DC401CBA9113C4EA3CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ VA - New Pop Classics (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:1272C8CA4DF15637658D1509D31891A391691F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:8561923D740995F2D3994909BC8F442AAFCC070A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7588C1F9A2F936A4D934268467B16933AA853F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Java SE Development Kit - программное обеспечение необ
 ```bash
 magnet:?xt=urn:btih:A62195E9EEFA7CC9847277F69C12266B6F11ABB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Windows 10 November 2021 Update (под кодовым названием "21H2"
 ```bash
 magnet:?xt=urn:btih:85DD796DC72DA101FB291CC2B4BB18D28552F292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Architects (UK) - The Classic Symptoms of a Broken Spirit (2022) [MP3|320 kbp] <
 ```bash
 magnet:?xt=urn:btih:438753DC5BEB2765F4B862AC65F6436E24F24D2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ V.A. - Buddha-Bar - Best Of 2 by Ravin (2022) [FLAC|Lossless|WEB-DL|tracks] <Tri
 ```bash
 magnet:?xt=urn:btih:36B3EFED08494F190F556D742BA37BEF86B86524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ RAM Saver Pro - инструмент для профессионального �
 ```bash
 magnet:?xt=urn:btih:3397841D0B125B39BCB168E2EB730618A4D3302E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E944EF5749FF12858F98C3DBDE68C6423B98CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0869207189B40DA2D553A01238B99E95820688EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A034F2CE621E40441BF9502B0F7023A1334AC8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Arctic Monkeys - The Car (2022) [MP3|320 Kbps] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:3C7FA1C4F3A2200931397009EE5D8EA4E131F432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AEBDB2657A5BDA07467D98B1A5527F5EFC165F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ SiSoftware Sandra Lite - бесплатная версия многофункц�
 ```bash
 magnet:?xt=urn:btih:756E37A18D785AA93D57ADE85DA6BF34BD0A4982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B066B9861D2486C030A958A330B1D04B518FEA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F2268A16CE46F30A2C5DE4A8D468C9AE975123A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4603AB7952E26CA3EB38325EF79BB9021890B71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 ```bash
 magnet:?xt=urn:btih:C4EDECCF0D3026F1E1681F97F1F64B43B1394757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ R-Studio Technician 9.1 Build 191060 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:74D7ADFC1863BA1415BCA775EFB663007C4EE5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:CED773939A253CC1CEBC07629638179E40173B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D388862757EFE3187AC8BA248742803506A338B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

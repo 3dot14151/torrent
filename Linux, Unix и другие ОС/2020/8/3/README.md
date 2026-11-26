@@ -19,8 +19,7 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:8809286008D945F56DA3EA30D5C6B535E7226066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

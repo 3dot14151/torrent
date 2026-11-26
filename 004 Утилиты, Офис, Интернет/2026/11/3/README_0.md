@@ -19,8 +19,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:DECAA8D12C7D8F5798BC5C014735C7AA9DD1DE1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:80FA254ED12AFB4AEC214BEBC44E91A12C93AC1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ InnoExtractor - это приложение, которое поможет ва�
 ```bash
 magnet:?xt=urn:btih:A14A82BD09C782D111753B4233EF2D7B1E75029E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Browser Tamer — это сверхлегкий, открытый прокси-�
 ```bash
 magnet:?xt=urn:btih:36D7A5990E4000AA4E1E99E54ACAD1A23E86DA2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ MiniBin — это легковесная, но мощная утилита дл
 ```bash
 magnet:?xt=urn:btih:D6E4DC424656DB56722DF9EAF56BD185AAEE0745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:59CC18BFE6CF4DC96733EF87BE905C178FB00E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ DISMTools — это программа с удобным графическим
 ```bash
 magnet:?xt=urn:btih:B7E688FC08CAB959FEC839C1B04CAD2757BBE1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

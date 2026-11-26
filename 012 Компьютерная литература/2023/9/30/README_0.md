@@ -19,8 +19,7 @@ Matt Frisbie | Professional JavaScript for Web Developers, 5th Edition (2023) [P
 ```bash
 magnet:?xt=urn:btih:0AACE089FDD267F1FF20A89BFA532AA04EEBF27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Marcelo Guerra Hahn, Araks Tigranyan, John Asatryan | Expert C++, 2nd Edition (2
 ```bash
 magnet:?xt=urn:btih:A4971FF48DE4AD01D967029C9784514728B1AA20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Som Prakash Rai | Core Java: Made Simple (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:4E77F4B140916A397307407B4CEB0503F2D60AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:BBAFEC0311B67D22EEFB764A11E8734607A8405B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C367EC669C0A4E55E1323AB302C72C94B1D4C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

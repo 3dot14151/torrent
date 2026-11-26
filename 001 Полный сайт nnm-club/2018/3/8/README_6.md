@@ -22,8 +22,7 @@ Michel Donato - Maree Bass...e (1995) Label Bleu [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:2220F82861173742E67C1D76FD779DF83A207E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brother Jack McDuff - Hot Barbeque & Live! (1963, 1965) 1993, BGP Records [FLAC|
 ```bash
 magnet:?xt=urn:btih:592A9BFBEA088E5938B5D2F61496AB59B863B662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Thomas Morris - 1923 - 1927 (1995) Classics [FLAC|Lossless|tracks + .cue] <Early
 ```bash
 magnet:?xt=urn:btih:CFEF21C921FDEBE0CB076BAA58FCFF31B052E350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:830FF5745972A626273DC0FF93359E1F089ADF67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Progressive Trance Vol.2 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:075C9957E2A8B74F03812A04A1F44515F2AA8888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Jazz Orchestra Of The Concertgebouw (2000) RN Discs [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:77D69972B98BF94598B549474041BDDF7B7C80B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Spatium Options Vol.01 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:B33A28C7899CC395969B837F7B022E8D4062B875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Individual Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:29134893615E10FCA1B9BC82074724CA004D69E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ MegaDriver - Gaming Hell (2016) [MP3|256 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6E54448B59438B9C3993CA8833D8D17E89725856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Spring 2018 Collection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:3F0FDC010D8BFC8939B3752BAA08D18C0C699CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ F. Roses - The Prologue Of Mythology (2012) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:AF58B909B83150BADAED9958CCC28D2CAA1AB8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Lounge Tonight (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:9712D84DADFE58A9B28559B774EBCFB7662265C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82EA54699D2BD8EE7E6038EE40791A4FAD596C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Letzte Instаnz - Morgenlаnd (2018) [FLAC|Lossless|image + .cue] <Folk Metal, N
 ```bash
 magnet:?xt=urn:btih:C2118138B5E707511E35E4503DC1B17CBF38F964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ VA - Miami Madness 2018 [MP3|320 Kbps] <House, Tech House, Deep House>
 ```bash
 magnet:?xt=urn:btih:5D279AD73E5314F4E13CAB30E0937FD7A1F39CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ VA - Relax Vibration Vol.02 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
 ```bash
 magnet:?xt=urn:btih:1ECD0D4831EE7FB7659F649E71ADBF5CD53BED96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Girls Aloud - Sound Of The Underground (2003) Polydor [MP3|320 Kbps] <Pop, Elect
 ```bash
 magnet:?xt=urn:btih:6A4239AFB788C344C715F59068ED1FDD2B19CA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B82370E0A59C1D9D13DDD69B62B2E9DB79F421E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:276D39E91EF550AA1FD450FD4BE075764CF48138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ VA - Vocal Anthems Miami (2018) [MP3|320 Kbps] <Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:3286C7B1435E2BE1BEFC7A0FEFDD5E08CC1BD2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ VA - Russian Electronica Vol.3 (2018) [MP3|320 Kbps] <House, Electronica>
 ```bash
 magnet:?xt=urn:btih:E680A258929A0C32D15167BEB41F4B2FA997A7F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11A9ABF34AB46824873FE4F23B301B09E3577ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ VA - Mastermix Pro Disc 213 - March (2018) [MP3|320 Kbps] <Indie, Folk, Neo Soul
 ```bash
 magnet:?xt=urn:btih:445F2C233DBA778A2AF95C1331314E9D8FEC290A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ Privatus - это простое приложение для удаления н
 ```bash
 magnet:?xt=urn:btih:FD87B1E5894C9B1A47D26B190F93E9474CE29B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ Donna McGhee - Make It Last Forever (1978) Reissue CD, Big Break Records, 2012 [
 ```bash
 magnet:?xt=urn:btih:7792C31CDF2C54C3DAF99104A8CEA3C8F47F4EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ VA - Love & Relax: Temptation (2018) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
 ```bash
 magnet:?xt=urn:btih:19C4D6EA6E315DDB5DDD1B194A9ABE4374588CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

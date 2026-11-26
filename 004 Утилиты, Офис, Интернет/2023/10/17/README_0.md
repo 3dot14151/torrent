@@ -19,8 +19,7 @@ Auslogics Video Grabber - быстрый и простой инструмент,
 ```bash
 magnet:?xt=urn:btih:7B6A8879DD065E46B1DCBC0C7F0B2DAC063D33C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

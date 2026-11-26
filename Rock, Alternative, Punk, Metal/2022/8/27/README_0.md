@@ -22,8 +22,7 @@ Cavalera Conspiracy — Бразильско-Американская метал
 ```bash
 magnet:?xt=urn:btih:1E93379AFC4913D64671D27F9803FFA48D4F043F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Belphegor - Collection (1993 - 2017) 13CD [FLAC|Lossless|image + .cue] <Death, B
 ```bash
 magnet:?xt=urn:btih:EA5C33F47A58CFDB7ECDE293DDB08B374690B10A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Janis Joplin (Big Brother & The Holding Co. feat. Janis Joplin) - 22 albums, 1 B
 ```bash
 magnet:?xt=urn:btih:68C056AB89543FE539ABA09532B415C144A9DE7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Imperial Age - New World (2022) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:A5281EC8153814B3E1069625AD53EA1C17CA40CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Muse - Will Of The People (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:8CDC0776DB76FFFE57771CAE4CEF0A459352ACBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

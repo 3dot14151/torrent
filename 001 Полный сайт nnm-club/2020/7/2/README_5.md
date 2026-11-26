@@ -18,8 +18,7 @@ Movavi Video Editor Plus – универсальный инструмент д�
 ```bash
 magnet:?xt=urn:btih:71CFCC802DC58855C790A252AEB2419890785C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Windows 10 Pro 2004 x64 Rus by OneSmiLe + Store [19041.330]
 ```bash
 magnet:?xt=urn:btih:23EB2A7169E9EB2C5E35056D1AE15FE2AFBD2C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09A3EC8945E5B28876CCE6470029BF2E725D8980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Toradora! | Торадора! [2008, TV, 25 ep + OVA + 4 sp] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:1D661472F2D197C4CA9D2B33715E51310D419BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Mahou Tsukai no Yome | Невеста Чародея [2016, TV, 24 ep + 3 OVA] B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66A313BDCAD81208D687FCA3D3CAE4C949B61A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ OfficeSuite - самый быстрый, с резко улучшенной ск
 ```bash
 magnet:?xt=urn:btih:FFB4744FAFA45C31385B3D6C55E234D5BD05E884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ FL Studio Producer Edition 20 - это новая версия одной из �
 ```bash
 magnet:?xt=urn:btih:EE9748FE997E333A1B738EC2562E469A95651D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 06.20
 ```bash
 magnet:?xt=urn:btih:5931678E448B80D72A92BAAA84FE3E92881FF848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Soviet Military Maps Pro / Советские военные карты Pro 4.4.
 ```bash
 magnet:?xt=urn:btih:8FB642DFA27AEE9D6F88DBF8E1203AB1510D2CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

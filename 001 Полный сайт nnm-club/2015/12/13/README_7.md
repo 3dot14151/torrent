@@ -18,8 +18,7 @@ Dispatcher (2015) [Ru/En] (1.00/upd2) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:1A40149FFBFD020C3209101C9B8F2A439D6CD28D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2635091CF71B96639BFA25F081821AFC2D1FE34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:006DC300F698256D31A12B07E2D85C9AC7D5342C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

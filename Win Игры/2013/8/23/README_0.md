@@ -19,8 +19,7 @@ Twilight Phenomena 2: Strange Menagerie Collector's Edition (2013) [En] Unoffici
 ```bash
 magnet:?xt=urn:btih:4EA6B9CE8692AE13E502183C572E54A04F1414AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Left in the Dark: No One on Board (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:9954305E741291EA462D411EA9C4548FC1D47E0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Treasure Masters Inc.: The Lost City / Бюро кладоискателей. З
 ```bash
 magnet:?xt=urn:btih:8A352C0AC0E6D4B7F6A9B032FF4098B210425C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Deponia (2012) [Ru] (1.3.4.1274) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:54E12778D584A933A325486E5867E0B305374E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

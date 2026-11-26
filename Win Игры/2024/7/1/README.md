@@ -19,8 +19,7 @@ Alaskan Truck Simulator – уникальная игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:4628E4309401493DFB756DFF145DFDA8B2C12FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Undeadly - это пошаговая стратегическая игра на 
 ```bash
 magnet:?xt=urn:btih:55B170B3007331C7539A99582847CB61A4AEB942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ New Yankee 14: Through the History Mirror / Янки 14: Сквозь зерка
 ```bash
 magnet:?xt=urn:btih:E702A97658362DA414B8309637FA1FEC31913C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nightshade Mysteries: Eternal Moon (2024) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:368B73240551DC5E5596C535D490E90973693C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tom Clancy's Rainbow Six (2001-2008) [Ru] License [Антология. Част�
 ```bash
 magnet:?xt=urn:btih:2505F1EB944A9B8E538C786D86345FA86296651A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

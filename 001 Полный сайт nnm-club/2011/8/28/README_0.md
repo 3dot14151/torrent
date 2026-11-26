@@ -24,8 +24,7 @@
 ```bash
 magnet:?xt=urn:btih:5EF8A64D19A52592CF516B86E1772A1C77167321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ VA - Super Europa Plus Выпуск 3 50/50 (2011) [MP3|128 kbps]<Поп>
 ```bash
 magnet:?xt=urn:btih:FE312B5A0C4573853D0DE9595F127790DAB8CAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ VA - DJ Remixes Of The Summer Vol.1 (2011) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:002DEDA23C3E577A137BA11546D7EE2C371E87ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ VA - Armin van Buuren -A State Of Trance Radio Top 15: August 2011 WEB (2011)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E82B3E31495C2BF4E1F76A454E0446EA7530ECB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ DJ Kocmoc - End of Summer (chillout mix 2011) (25.08.2011) [MP3|320 kbps]<Chillo
 ```bash
 magnet:?xt=urn:btih:21722999DD715F8D1AF03B3C67AE07170D4AC998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Made By Monkeys feat. Darcy Conroy - I Think Of You (Part 1) (2009) [MP3|320 kbp
 ```bash
 magnet:?xt=urn:btih:DB771FCEF2241A73E50FEF854D6952EAC2887403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ VA - Gabriel & Dresden - Mixed For Feet Vol. 1 (2011) [MP3|320 kbps]<Trance, Pro
 ```bash
 magnet:?xt=urn:btih:2A0ECCEDFFC10EAB3ABFD84D33AC16FE12633799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Little Milton - Stax Profiles (2006) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ VA - Armin van Buuren - A State Of Trance Radio Top 15: August 2011 (WEB) (2011)
 ```bash
 magnet:?xt=urn:btih:0BAB3A23C3463EC6E5F9B236692EBA10BAD416E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ Vanir - Sarimners Kod (2011) [FLAC|Lossless]<Viking Metal,Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +382,7 @@ PeaZip поддерживает собственный формат архиво
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA5962AEB4E4EE2C9E2D71B1F8721D62F1597C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +441,7 @@ Encoder: LAME 3.98r HQ(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:13188EFAA660A05EC29F7F1C3D258E52DD38C8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +475,7 @@ Roger Meno - I Find The Way (2010) [FLAC|Lossless]<Italo-Disco>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +534,7 @@ VA - Blood Money LP Part 1 (22.08.2011) [MP3|320 kbps]<Drum And Bass>
 ```bash
 magnet:?xt=urn:btih:4FBCA69A11A281C903132D561E8347C6740CAED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +563,7 @@ Lingoes обеспечивает быстрый перевод с более ч�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB2D3F26F41DBE5F64EA1DE31F560BCCD7C5D540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B79F5DD4CF5CD41A624F51ADE2C8106EE5CED310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +693,7 @@ NG: Люди на болоте : Новички / Swamp Men : Newbies (2010) HDT
 ```bash
 magnet:?xt=urn:btih:271958EB07757507D085D8B487F41C35CBE16754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +721,7 @@ Dan Gibson & Hennie Bekker - Natural Stress Relief II (2003) [FLAC|Lossless]<New
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +753,7 @@ VA - Sexy Trance #13 (28.08.2011)
 ```bash
 magnet:?xt=urn:btih:2DB44DC9260E0AE6601372916C1445A69C509023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -803,8 +778,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB4F458C5FF9BFBCA7E6EEC131D77574042692CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

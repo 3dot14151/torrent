@@ -19,8 +19,7 @@ eDrawings Pro 2.2.0 [En] - Порт CAD-просмотрщик
 ```bash
 magnet:?xt=urn:btih:512AF9640ECDECD2ECCB2F9DFBF0F92340733E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

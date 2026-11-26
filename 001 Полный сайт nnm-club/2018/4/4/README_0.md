@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B49BEC08828114C622FA1581500AD6E2D6B6A61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Parijat - Serenity (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:9DA960B7B5D879631E90A0758843115B75C1F1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C68C98E367B3853FE95E97DB9BB9ED7D0461A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ BetterZip – удобная работа с архивами
 ```bash
 magnet:?xt=urn:btih:10573584B4930A2BBD9B52EA23F0F549F765AD9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Welcome To The 90s (Vol.2) (2018) [MP3|320 Kbps] <Eurodance>
 ```bash
 magnet:?xt=urn:btih:32BE036E8E3B9DA0EABE825DC45CBE9127F07AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7799547FF9E95EFEC354F4B3AC08564D3DA9F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81A98AD8E61451226A86AF681356334FC072C448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3BAAE8CC94E3B56F2377E64D0DFD959DF022FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Piano For Dinner - Finest Jazz (2018) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:97D959EA85BFE980C85C6A541F70B379EECA3382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1A3CAAED753EE1FC44D575CD2125B57C61B186E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EBECB5FD8AD8BFBE236D749106EB0BC88EDFFAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Sierra Cache Cleaner, предлагет пользователю широкий
 ```bash
 magnet:?xt=urn:btih:1251E5275AE8BA1EE3779734DD036B207BC262CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6035A45F08029711A194F0EBA7A501B5300201D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ VA - Another Moon Song (2018) [MP3|320 Kbps] <Jazz, Blues>
 ```bash
 magnet:?xt=urn:btih:D746EE1ECBFF0EA9968103CCD0C6B3CF6E509EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ Auslogics Disk Defrag - программа, призванная помочь и
 ```bash
 magnet:?xt=urn:btih:4D13D55208CDA38CEA0202A7954F1A00DA24CA79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Comodo IceDragon 58.0.0.11 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D6A8DB3274D7DDCA35F20F7CCB5C9B077A011556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ VA - New Music Friday (2018) [MP3|320 Kbps] <Rap, Hip Hop, RnB>
 ```bash
 magnet:?xt=urn:btih:956A8DD7026C0E19542670280A3D5CCF0E873665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ NG: Птица-динозавр / Dino-Bird (2017) HDTVRip
 ```bash
 magnet:?xt=urn:btih:7AE84E4F12BDF10B453D83EB81421DAD2225FB11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77BD9637B59304F9BCF5A8AEC7E9676FCB7EA2C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ VA - Ancient Spell (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
 ```bash
 magnet:?xt=urn:btih:7E147CDE1A037845A9BFF5DE42F248A9A58070BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ Woodsmith — журнал по столярному делу представл
 ```bash
 magnet:?xt=urn:btih:5983F6205F04841031100E626EB371253A4AAD29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Kylie Minogue - Golden (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:9D9185BB285687A31BB19BD8AB1BFF077703539F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A41A887FD4D308CCD069F93FBE52034EDD6127B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86ED2AC95F8E5B27BFFE4CC0A134C2A941EF2390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ XXII век. Первая звёздная экспедиция продолжа
 ```bash
 magnet:?xt=urn:btih:C0A88AED3FE3646BC0D82AA21B5A0225D9A24A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ Sergey Cheremisinov - The Signals (2017) [MP3|320 Kbps] <Neoclassical, Ambient>
 ```bash
 magnet:?xt=urn:btih:7DB4EC2710BD1351EFC999CD1340DA5573E4883F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

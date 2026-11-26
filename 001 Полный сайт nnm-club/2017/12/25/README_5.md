@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B974ED39BBBE4B40C8995D0B020623E153A92210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0EF1432DDE10F098C5C0B16B5F006CD6FB4F0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ tceh | Разработчик на Python (2017) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:009175729AEA6607BF9FB7DF33C7C87C3082AAA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Utopia Press - Utopia Press (2021) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:DFFB687D81EEF2A1ED7DB346211031454068202F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Atmospheric / Melancholic Post Metal проект одного человека 
 ```bash
 magnet:?xt=urn:btih:07F30CFCE0641E8567FF8F35DA556AA45FC6785E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ektomorf - Reborn (2021) [FLAC|Lossless|image + .cue] <Thrash Metal, Groove Meta
 ```bash
 magnet:?xt=urn:btih:85198A12EED0C0E37CB87D8844FA3073E743A47C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Van-Zant - Van-Zant (1985) Reissue, 1997, Unidisc [MP3|320 Kbps] <AOR, Melodic R
 ```bash
 magnet:?xt=urn:btih:893D3666DCA9FCA42EE42DE45D8CD3A07F485143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Black Country, New Road - For The First Time (2021) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:80A1589EE9105C42DD3BA1190CECBCCBAC9DC2BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Benjamin Orr - The Lace (1986) [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:4C8C6B534582BE23DDE77B13F004C176B295C529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Rough Boys - Hard Rock Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:3EA2CC154E64FB10F4BAB18DD9A53574EFFF4089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Moonspell - Hermitage (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal, Goth
 ```bash
 magnet:?xt=urn:btih:A40DBB825C60A16757184073C2B362B19AFF0D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F795704EDB7EFF0CAC81C30B5F27A6EE2315F4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Orion the Hunter - Orion the Hunter (1984) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BF0E93BDF0A721EB5E231F423A825CFF38F019A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Immortal - 9 Studio Albums (1992-2018) 9xCD [FLAC|Lossless|image + .cue] <Black 
 ```bash
 magnet:?xt=urn:btih:F29B15428E40B9775739ED812C35EDF34B5A7D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

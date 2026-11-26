@@ -22,8 +22,7 @@ Gene Loves Jezebel - Voodoo Dollies: The Best Of Gene Loves Jezebel (1999) [FLAC
 ```bash
 magnet:?xt=urn:btih:552165209756096B791D6F2ABA7DF708565CE268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elliott Smith - Figure 8 (2000) 50th Birthday Deluxe Edition, 2019, UMG Recordin
 ```bash
 magnet:?xt=urn:btih:D169D0C31DF3D3277DC42967FA52915C92F0D8FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

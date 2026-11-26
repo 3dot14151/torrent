@@ -21,8 +21,7 @@ OpenCart многофункционален, прост в использова�
 ```bash
 magnet:?xt=urn:btih:11D83CFCBAAA1FD6077B87EBA054BDF27FD27C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

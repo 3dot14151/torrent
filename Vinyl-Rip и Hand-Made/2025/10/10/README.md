@@ -22,8 +22,7 @@ Collapse 7 - метал-группа из Зальцбурга, Австрия, 
 ```bash
 magnet:?xt=urn:btih:A748F49EBDCDB4680C01D90DA1CCA630EB37C80C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Immorium - австралийская метал-группа, основанн�
 ```bash
 magnet:?xt=urn:btih:70F882FE0E09D050209503E618A4A2890A1EB512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Testament — американская трэш-метал группа из г�
 ```bash
 magnet:?xt=urn:btih:F1A56923C7EC4DF7BA716A261B68C47EB1275392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

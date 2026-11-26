@@ -19,8 +19,7 @@ Resident Evil 3 - Nemesis (1999) [Ru/En] (1.0.1) Repack/Mod KaSix
 ```bash
 magnet:?xt=urn:btih:1CB0FF65487A85A75DCAC9A9480D4A2C0630EE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

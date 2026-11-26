@@ -21,8 +21,7 @@ NHibernate Поваренная книга объясняет особеннос
 ```bash
 magnet:?xt=urn:btih:2185DBC17B699F85B7EBE990E732F12B79EEC148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Silverlight и XNA от Microsoft 7 предлагают вам возможно
 ```bash
 magnet:?xt=urn:btih:3C458160024E5AD9C95F46E5B0988E822F5E85EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ C# в глубину - тщательно пересмотренная, впло
 ```bash
 magnet:?xt=urn:btih:C520BC26E0E260E39F8B02174E62A8C834DA1022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FADD0AA1AF08F276F9185E20283D56D0259E1C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

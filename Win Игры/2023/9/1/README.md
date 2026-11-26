@@ -19,8 +19,7 @@ Daymare: 1994 Sandcastle — это сюжетный хоррор от трет�
 ```bash
 magnet:?xt=urn:btih:34CD09BD6540E83C45109F18217EB53C82C0879A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

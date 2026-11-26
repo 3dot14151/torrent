@@ -19,8 +19,7 @@ The Wheel of Time (1998) [Ru/En] Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:D3D3AB8254F801A456F968E75BDD72E5F7FB1259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

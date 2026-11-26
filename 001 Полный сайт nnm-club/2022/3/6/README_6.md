@@ -22,8 +22,7 @@ VA - Restaurant Background Music (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:7E34F09A194021797DE02C97251FAB06C06EED04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Ethno Sorcery, Vol. 3 (Compiled by Salvo Migliorini) (2021) [AAC|~322 Kbps]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Viva 2021.1 (2022) [AAC|~325 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:562F916B2FC1D3125C5BC24A04D5D7DBA1A82E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Buddy Rich - Swingin' New Big Band (1966) 1995, Pacific Jazz [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:A6336BA23E1E537155BEB7EE5AFF8EE500D35D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Caliberty - Caliberty (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:71284863038694204859DCE0047BBE0548CFCDE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Alexander Som - Axtone House Party (2022-03-04) [MP3|~245 Kbps (V0)] <House>
 ```bash
 magnet:?xt=urn:btih:594F38ACC46A2067B2CC36C81920F9648A1069CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Valentina Studio - это идеальный инструмент управле
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - A State Of Trance Top 20 - 2022, Vol. 1 (2022) [AAC|~327 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:EBCB92E62F51F7A8F22F6F28713CE68A67FA124D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7940CFDAA938363421F6A85446AB8897407A3421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - The Perfect Soulful, Vol. 3 (Chillout Your Mind) (2022) [AAC|~324 Kbps] <So
 ```bash
 magnet:?xt=urn:btih:DF057A51CA30CD91147A5EE4FD691F1FFCA10759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7937D233FE4C64BA15DD12949F0F1462219B454F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ VA - Dj Tonik - Good Foot (2004) DJ Mix [FLAC|Lossless|image + .cue] <Hip-Hop, C
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Bartender - утилита для простой организации икон
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Joe Bailey - Devil in the White City (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16B9BC404D7BFBBEFD4554E8B3CAE35C5619E987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ VA - Sugar Girls (Indie Sweet Voices) (2022) [AAC|~320 Kbps] <Lounge, Chill Out,
 ```bash
 magnet:?xt=urn:btih:16B5CBC6ED8F0F26E5FF83FA77BA5AE74705E2D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ LAU - Circumstance (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Re
 ```bash
 magnet:?xt=urn:btih:C1FE233E63AA4F3774E8A11E2CD8F3A95BD79A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:B435ED076CE5BB85E50E22E124B0B89E5035D7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBD9DC86C28C5ED11318CFD88D407D42F7A2A723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Uma2rmaH - The Best: 1825 дней (2009) [AAC|~371 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:99ABDF87711C021F2B0260C9281FDF63A1F3A621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ GARRISON (Игорь Савосин) - The Dreams of Morpheus (2019) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:CE108F02B009990A61C054BB910F728749C551FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ All Windows Appear 1.2.2 [Multi]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EA807441C6AB405AB21065FCD2B2A056EF50127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Heartland - Into the Future (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:BB7270DDF1F628DA21274E5DF33E3CD1788A74CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ GARRISON (Игорь Савосин) - Signal (2018) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:5B6E92B1F26812ACBB5E607CD67F02A030D50C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

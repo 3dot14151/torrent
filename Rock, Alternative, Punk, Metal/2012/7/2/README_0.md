@@ -28,8 +28,7 @@ Bonded By Blood - The Aftermath (2012) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4C91DFF0226B68E3AF6CB3B6A2CBFB5174E1A90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Rod Stewart - Smiler (1974) [MP3|320 кб/с]<Rock, Folk Rock>
 ```bash
 magnet:?xt=urn:btih:9C45164D26BD533C0F328A6AA27730B3AD168557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Reel Big Fish - Candy Coated Fury (2012) [MP3|320 kbps] <Ska Punk>
 ```bash
 magnet:?xt=urn:btih:19186108CD8017DEFD525CFE18E4B3E3234C86C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

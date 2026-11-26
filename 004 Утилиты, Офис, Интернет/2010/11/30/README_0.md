@@ -19,8 +19,7 @@ Foxit PDF Editor 2.2.1.1119 + UnaTTended + Portable [RUS]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

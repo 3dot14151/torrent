@@ -19,8 +19,7 @@ Nevertales 6. Forgotten Pages (2017) [En] (1.0) Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:00A7030BD49128A0B0BC9678F17540D1A8E1B322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Off the Record 4: Liberty Stone / Не для печати 4: Камень св�
 ```bash
 magnet:?xt=urn:btih:5972A61D138815B78ABA835FF73DE0744FFDBA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Maze 3: Nightmare Realm (2017) [En] (1.0) Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:F12B5751B5D1ECD5115D0B2C560D31118669033B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Myths of the World 12. Fire of Olympus [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:495CE1CAFB8A8BDA0796DFF9218AC1EEE4AF3E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mystery Case Files 12: Key To Ravenhearst / За семью печатями 12:
 ```bash
 magnet:?xt=urn:btih:12B0ABDF7C0E02A4BB7F12774EBA802066462366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Phantom Trigger (2017) [Ru/Multi] (02082017) License GOG
 ```bash
 magnet:?xt=urn:btih:3575C68DFF7595918FC490826CB60280C39D94E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Black The Fall (2017) [Ru/En/Ge] (5.5.2) Repack xatab
 ```bash
 magnet:?xt=urn:btih:BBDB7494F3355EF00A892144B31B4017C310109C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Surge (2017) [Ru/Multi] (1.0/dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:C771E89E3FADD9457E5620EF40F3C0DF9A157582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

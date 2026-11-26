@@ -19,8 +19,7 @@ Shtriga: Summer Camp / Штрига: Летний лагерь (2014) [Ru] (1.0)
 ```bash
 magnet:?xt=urn:btih:3F78F37F182F7F24ADAE595E47FD44BB2B08F787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Urban Trial Playground - это аркадный гоночный экшен, в
 ```bash
 magnet:?xt=urn:btih:A65FAECEDCB53BBB3A79A91196DECE38BCD47B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2B8628082391ECA46F2001F4DBB6DEDDF8A9BCA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dance of Death: Du Lac & Fey - это приключенческая истор�
 ```bash
 magnet:?xt=urn:btih:4562F0706E3331941220B2D2D1E9600426EA9BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hitman: Absolution рассказывает историю самого личн
 ```bash
 magnet:?xt=urn:btih:E83F35A1FE27B2A371B00A45F588020955410131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

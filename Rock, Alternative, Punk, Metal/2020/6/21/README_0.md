@@ -22,8 +22,7 @@ Coriky - Coriky (2020) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:E0E735F3D534B0909CA6CF454AFFC577A6DBC1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tense Machine - Echoes (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
 ```bash
 magnet:?xt=urn:btih:CB46AE7B00470CDB9ACE5053BF8DEC192DE7CA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Richard Schneider Jr. - 2 Albums (1977, 1980) LP [MP3|320 Kbps] <Krautrock, Expe
 ```bash
 magnet:?xt=urn:btih:FAB9FC9B4891D83A307C60F2AA5AF11A5F5D451B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

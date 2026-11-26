@@ -19,8 +19,7 @@ Product Key Explorer - программа позволяет расшифров�
 ```bash
 magnet:?xt=urn:btih:15B298FA6F438379497A51344AA581ABEEFF1C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

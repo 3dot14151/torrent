@@ -21,8 +21,7 @@ Revlin Project - Trascender (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:8B607E8F127DD4B1640D077C8B082C038BFE0F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Death from Above 1979 - Is 4 Lovers (2021) [MP3|320 Kbps] <Alternative, Indie Ro
 ```bash
 magnet:?xt=urn:btih:1F7E4A1CBB76A5D8CC93A6A7F6E8FFACE9690AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Breaths - Lined in Silver (2021) 2CD [MP3|320 Kbps] <Blackgaze, Post-Hardcore, P
 ```bash
 magnet:?xt=urn:btih:DE7FBFE2BB0D74E53678BB624238E38245137703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Byron - The Omega Evangelion (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, 
 ```bash
 magnet:?xt=urn:btih:AEB726871293F0149EFC03EA45D8A0B09C7E18A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Andromida - Hellscape (2021) [MP3|320 Kbps] <Progressive Metal, Djent>
 ```bash
 magnet:?xt=urn:btih:267BF1F48BA6448D0A12C24D2CB11BF9643224B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

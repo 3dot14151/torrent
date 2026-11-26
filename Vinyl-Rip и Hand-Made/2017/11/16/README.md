@@ -22,8 +22,7 @@ A4 Flight Of Fantasy (Remix '89) 5:15(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:7CCBF0B60EE38D1729C38ED26BDB004BA0CCC081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pet Shop Boys - Super (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electroni
 ```bash
 magnet:?xt=urn:btih:86194D95EB0462787CFD9987A8CBF0DD61A46D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

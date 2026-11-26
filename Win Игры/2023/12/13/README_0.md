@@ -19,8 +19,7 @@ Another World: 20th Anniversary Edition (2013) [Ru/Multi] (8516704) Repack dixen
 ```bash
 magnet:?xt=urn:btih:187650C0E6F2C6F2DBA0AC0853884E1B30FE7344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

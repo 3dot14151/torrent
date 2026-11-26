@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:294E357724BF5A2F9DE0241CB098AF260CED1865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CF11BA212010DE7631200E59709A4D1DEFDC0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB11ED35F65135048B436125A374B47C1F3513CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Dragon Age: Origins - Ultimate Edition [PS3] [EUR] [RUSSOUND] [4.21] [Cobra ODE 
 ```bash
 magnet:?xt=urn:btih:EBBFD29A2A0F60C8155B5CF271C889E662C8971F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Windows 7 SP1 x86 x64 Plus PE WPI USB StartSoft 65
 ```bash
 magnet:?xt=urn:btih:799AB09472AD550FF1CCFD3F48411B731DD7874A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Sony Vegas PRO — профессиональная программа для м
 ```bash
 magnet:?xt=urn:btih:148F508A4A2558258F84A38D631DBF29F08CB755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ iidsp | Командная строка Windows для "Чайников" (2010 
 ```bash
 magnet:?xt=urn:btih:5ABB9FC62EE641F8B4E4616A3F2A9D6BD16D62AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ New Super Mario Bros. Wii (далее NSMBW) стал настоящей сен�
 ```bash
 magnet:?xt=urn:btih:F9B88A83D47BBDCCA007E42673738F5095A3F491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B0C01E3201CED0FC089CF701280BCF2FEA31B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Sony Vegas PRO — профессиональная программа для м
 ```bash
 magnet:?xt=urn:btih:18BD14BD8C935EC3EEB16DC70308C63F12EBFC69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Windows Embedded 8.1 Industry Pro расширяет возможности Wind
 ```bash
 magnet:?xt=urn:btih:5E14C03866DBC965F28F1F472014719BC72BC2A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:E15344D5FB4625E0CE473DE5D6DB182910095537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2D65BFB4A68DFB8274CC5BE8A3D2E79B4FF868D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BC532DFDBA864A714432D4D4EC697E3995572B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ Acronis BootCD — загрузочный диск, содержащий пак�
 ```bash
 magnet:?xt=urn:btih:DF1648ADDED21465BB86E41C7F6021D2047EC724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ HDD Low Level Format Tool - утилита для низкоуровневого
 ```bash
 magnet:?xt=urn:btih:B7E7AD53A414D8670CF1F8A2B15EB39C75244854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

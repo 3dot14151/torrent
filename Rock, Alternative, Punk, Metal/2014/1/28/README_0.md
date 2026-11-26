@@ -28,8 +28,7 @@ Svarttjern - Ultimatum Necrophilia (2014) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:E8B0AB730865B6DC34467E5B78F9865E0A31AA21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Choice Quality - Daydreamer (2013) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:2A955F0EA0C05AC06560CE7A3CE8D51531D16133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Deviant Tactics - The Horizon Went Black (2013) [FLAC|Lossless]<Melodic Death / 
 ```bash
 magnet:?xt=urn:btih:DDD4FF16E2465A80A08CC295702A8E50010AC9D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Deviant Tactics - The Horizon Went Black (2013) [MP3|320 кб/с]<Melodic Death 
 ```bash
 magnet:?xt=urn:btih:52A7AC212CF1F4B14BAF5B3A04B1B6E12122CDCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Nekrogoblikon - Stench (2011) [MP3|320 кб/с]<Folk / Melodic Death / Symphonic
 ```bash
 magnet:?xt=urn:btih:91D8F5BA82D255333035AE615F035FEDE419915E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ If Destiny Remains - Once Upon A Time (2013) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:B6B5FD32548C07368F508FB7F5A839EA44AEB72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Valtari - Fragments Of A Nightmare (2012) [FLAC|Lossless]<Melodic Death Metal / 
 ```bash
 magnet:?xt=urn:btih:716D67C8019FB913D7B128EAC14B323182BAE2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Against Me! - Transgender Dysphoria Blues (2014) [FLAC|Lossless]<Alternative Roc
 ```bash
 magnet:?xt=urn:btih:D2E4140E2973064343836F6A90D80167918E62AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Roads of Time 2: Odyssey / Дороги времени 2: Одиссея (2020) 
 ```bash
 magnet:?xt=urn:btih:2CF6752604D59D09C7D461BA053D0ED577D98F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hold Out (2020) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:69DDEB162567595BD5462B226A00ED91F7060327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resolutiion - это динамичная игра в жанре action-adventur
 ```bash
 magnet:?xt=urn:btih:8121CBD08DDFD48B975288FEABDDB4373745519C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

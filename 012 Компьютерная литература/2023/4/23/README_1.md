@@ -20,8 +20,7 @@ C++ - это язык, не похожий ни на один другой, уд
 ```bash
 magnet:?xt=urn:btih:4B5E581CAC4FD31ED3A92449737A9DA8433BC831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

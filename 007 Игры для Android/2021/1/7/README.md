@@ -19,8 +19,7 @@ Don't Push The Wrong Button 2 - Самый реалистичный и слож�
 ```bash
 magnet:?xt=urn:btih:37E3174F56934C1FAA4A1E98F84DD3DD84A9C7ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

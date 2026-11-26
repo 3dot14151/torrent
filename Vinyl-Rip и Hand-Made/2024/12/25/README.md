@@ -22,8 +22,7 @@ Ill Niño — американская ню-метал-группа латино
 ```bash
 magnet:?xt=urn:btih:C15CBA43A2A3A582F9B0602323E1970E1BE22065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

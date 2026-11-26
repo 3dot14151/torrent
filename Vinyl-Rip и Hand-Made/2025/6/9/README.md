@@ -21,8 +21,7 @@ Sanctorium - метал-группа из России, г. Санкт-Пете�
 ```bash
 magnet:?xt=urn:btih:EC9357AEA626BFB48D29C842601BE4D596717BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

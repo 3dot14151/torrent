@@ -22,8 +22,7 @@ Bilskirnir - Hammerschlag (2017) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:1E9BF5B401D0B4A7CB8A4D82A4AAB187B132C3B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Whitesnake - Unzipped (2018) 5CD, Super Deluxe Edition [MP3|320 Kbps] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:814F76FF2C1B041FFC6EDCF03714CCCC1087A6C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

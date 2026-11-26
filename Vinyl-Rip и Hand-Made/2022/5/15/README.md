@@ -22,8 +22,7 @@ VA - Звезды Мехико (1969) (Л. Барашков, Т. Миансар�
 ```bash
 magnet:?xt=urn:btih:7A6AFC1DEBE7D1E0B3CA6F28B0F3994563883DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

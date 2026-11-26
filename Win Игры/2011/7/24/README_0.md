@@ -19,8 +19,7 @@ Shooting Blocks (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:71BE10C1124FE7E3BC990372AC39E41B2DCE1A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Chronicles: Betrayals of Love / Мистические хроники 2:
 ```bash
 magnet:?xt=urn:btih:97BBF71DA474D0BE9D848432B15BBDA17998CA28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Azada: Ancient Magic / Азада. Древняя магия (P) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:BB13BEC11003C86ED369130899BD82919C819B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Millennium Secrets 2: Roxanne's Necklace / Секреты Тысячелетия
 ```bash
 magnet:?xt=urn:btih:629CC0621A73A255D8252DA3DBF6ABD015688C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Supreme Ruler: Cold War [En] (L) 2011
 ```bash
 magnet:?xt=urn:btih:3BE0D23B5A8994637EC131E4BA2B17DDA902C1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

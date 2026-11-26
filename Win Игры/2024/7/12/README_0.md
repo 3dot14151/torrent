@@ -19,8 +19,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (14569299
 ```bash
 magnet:?xt=urn:btih:3945428ABEEE32E61092B21916A680CFDF90C207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Empyrion - Galactic Survival – это приключение с выживан
 ```bash
 magnet:?xt=urn:btih:4373C13E5A27774046B30BFC7D748CBC48747579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SaGa Emerald Beyond - это новейшая отдельная игра в с�
 ```bash
 magnet:?xt=urn:btih:05D63F23B47C3693DBB661E588951CAAB0F80B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:82E363602A7EF8FB85473E283DFDED67D527000D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Riftbreaker (2021) [Ru/Multi] (11738015/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:415E155D085A6090BBAC2436F322BF3D13202733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tabletop Simulator - единственный симулятор, в котор�
 ```bash
 magnet:?xt=urn:btih:20FD020134FE304C9B409AF50613170BF2BBD62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ms. Holmes 6: Letter M (2024) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:3CA2275092AE38D58CD76CC1BF24EBD75AACC340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SunnySide показывает приключения молодых ребят,
 ```bash
 magnet:?xt=urn:btih:D427A97B496416A46CDFA16EF5139F5618496CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

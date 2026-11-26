@@ -27,8 +27,7 @@ Healer - Enthrall! Gibbet! Interdict! (2011) [MP3|320 kbps]<Trash\Hardcore>
 ```bash
 magnet:?xt=urn:btih:5188E17A310695F122C5B2A6767CACDD6D2B0228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

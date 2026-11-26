@@ -18,8 +18,7 @@ Whale Browser -  южнокорейский быстрый интернет-бр
 ```bash
 magnet:?xt=urn:btih:2B863CF2CA5878AD28639ADC0FC4044BD5674393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ PIDKey Lite предназначена для просмотра, обновле
 ```bash
 magnet:?xt=urn:btih:5BE155CD3F3DB7765BD4F6513E935815FDC81070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9017989AE0C8BA56E876D98E43B9E5609895E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Dynamic Island - dynamicSpot - приложение, что предоставл
 ```bash
 magnet:?xt=urn:btih:64963BB70AC33D038B22FE0C536D73FC6283C100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D018177DD19309E87BE09D1781B39D1F62A012F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Jean Michel Jarre - The Concerts In China (1982) 2CD, 40th Aniversary – Remast
 ```bash
 magnet:?xt=urn:btih:FA9A7671A5CD1A2B14861003F07FEDA451CA2493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5252834DA7EBAF6B60B9949091CBFCDD1426616C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ WSCC (Windows System Control Center) - портативная программа
 ```bash
 magnet:?xt=urn:btih:E4BB938681E959521A93A8B1DF08E6B6C0C9F97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ DISC 1:
 ```bash
 magnet:?xt=urn:btih:C7692C98C3E5A969ECDB07E63966EC2658403C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:206B5F323484AB5B718218CEA9307AA0A8CC575E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Arkane Studios | Артбук по игре Dishonored: Обесчещенный
 ```bash
 magnet:?xt=urn:btih:6FD23C0C2784AB0C9D2708A7CBCA9150FFF224B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ XYplorer – удобный мультивкладочный файловый м
 ```bash
 magnet:?xt=urn:btih:1186012C380653BDCE0CBCEE5FAC3F7BE0353EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:90E093BE6957F83D019DBFC235FB22A1F94F88A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F470A0903B5A8282587F67B47157BE09EFA7FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Yakuro - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 ```bash
 magnet:?xt=urn:btih:87AF839CBE09EC84C24A97B9655307A6502E0F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ iZotope Audiolens 1.1.0 (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:87DC31AB153AFF0D166776AE2AC3E3DBB125E724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5193218EDC7D8366EC0FCF73503F11F554CC423C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ KORG Collection 4 4.0.0 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:50CA344264B79FDE3770A6722F597A61F4A92A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ Artweaver - это полнофункциональный инструмент �
 ```bash
 magnet:?xt=urn:btih:85AA2C3141F689ADAF3FAD423A3854DC6F0E993D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7546F17D537B32B851A8686C690D9AF81EC77571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ Christmas Wonderland 13 (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:7B225F06DA72C98D9C5415DB71D23CD53BFCE1DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECF10B5AAC1E72EA81B4F1DD14F5CCC1397104A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:064060518EDDD44BBC612E202D77F5AE8195E0CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8729993CD1B8127621488B3C7F82557F7FEC073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +635,7 @@ Valhalla Delay — это наш взгляд на классический и �
 ```bash
 magnet:?xt=urn:btih:261B795824D0269ADA2BD791B803F0685111E488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +660,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:F37167A6DD0F3C13282C61C4F0A3262C12157C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

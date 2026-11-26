@@ -22,8 +22,7 @@ Obiymy Doschu - Vidrada (2025) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5CB1E3B1CF00E075F48020EAB56C133357693CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Speedemon - Fall of Man (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:3ABFC4D705B67A370DAC4520AA3ED542293F86BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Soliloquium - Famine (2025) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 ```bash
 magnet:?xt=urn:btih:56FB953CC2CF8D964FFB2BB61B1F9FFD764FD88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Drum Nation (Volume 3) (2006) CD, Album, Enhanced [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:24D2921BD7AB82AD367B3D7F9201F3B44A5296C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Spanish Gold - South Of Nowhere (2014) CD, Album [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:6CB9C8026EE19F4995253C84D42B2826FE9BF223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Russell Morris - The Very Best of Russell Morris (2013) CD, Compilation [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:B49D821DB73CF381A2CB492C60D930A3FBE33624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Daniel Martin & The Infamous - Gone Days of Silence (2025) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:D6616A5710A88898FAEBD6CA22AF715F21421448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Queen - Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam
 ```bash
 magnet:?xt=urn:btih:5D14C2BE295BB45DA107310FD6FE648BC7870773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

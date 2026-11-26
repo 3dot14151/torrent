@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CD534F6DAA60945227121129FECE0724B09B77ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Playboy — легендарный журнал для мужчин, основ�
 ```bash
 magnet:?xt=urn:btih:4990CFEF81AB5997A4F1527B55D908EA5FA75384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pусская версия самого известного в мире еже�
 ```bash
 magnet:?xt=urn:btih:3E198E6F6191DC81C02E255C766BC8A9759D68FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cпециализированныое издание для тех, кто ст�
 ```bash
 magnet:?xt=urn:btih:B02B2C20070101F9B79E53149D008B3E0ECADBC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0F8E397D775EFB8108C4B0F6DCFDD8FEBA947B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Oh...Sir!! The Insult Simulator (2016) [En] (1.07) License GOG
 ```bash
 magnet:?xt=urn:btih:277AF718593E07032DCCA08929073C5CD29ECDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Talos Principle - это философская головоломка с в
 ```bash
 magnet:?xt=urn:btih:0E2F126C2966D23F5697A059D91D5793DDAC6FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rise of the Triad — думаете проходной какой-нибудь 
 ```bash
 magnet:?xt=urn:btih:14772BBB26AFE89937FC38A3CF46DA85CBFB3FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ CAYNE (2017) [Ru/Multi] (1.26) License GOG
 ```bash
 magnet:?xt=urn:btih:516E4C255C2A38093B24764FB2ACC3ABE8B73827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ VA - Летний  штурм 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E371D55C353C24BD492A236AD6B2C6FF2439167F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Mega Dance Party 14 (2011) [MP3|128-320 kbps]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:D8A9A55188E0922ECED92006BE08C8A8ADE59DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70B6B63FEA22C86EDE7DB8630375B89F050911CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9914A7D19605958CC45FB69A5A890A959D64428D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:552520FF46565B7D7FB585A97A83A1E61F9D1180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95D9080FACA234D5FAA5AF747819801CBC3E4500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D04B96AD773A0FD0C63F13AECCFEF65E0085643C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ VA - Лучшая 100ка Взорви танцпол 5 (2011) [MP3|256 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:8D436A1F9404D48C3E1B9A46AE38B331EE257DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ VA - Шансон: Шальная жизнь #100 (2011) [MP3|256 kbps]<Шанс
 ```bash
 magnet:?xt=urn:btih:01BE0BF8BC83711EC1221E07CCE308E8A03A30F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ VA - A la ferme De Mathurin (2007) [MP3|320 kbps]<Детские песенки>
 ```bash
 magnet:?xt=urn:btih:633AE3CCB9BC74290E60DDDF8249CCF1B44C9AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFAC4141DBC2C8B27A75B5C87EFABC91829C55CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ VA - The Best Remixes (11.08.2011) [MP3|128-192 kbps]<Dance, House, Electro Hous
 ```bash
 magnet:?xt=urn:btih:A4CA74A501C4C5DB4FEF78970A4440D0761587BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +446,7 @@ VA - Клубный Mega сборник: Горячий хит 3 50/50 (2011) [M
 ```bash
 magnet:?xt=urn:btih:484C43FC4304D1A83309165A40121C00BEB10A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ VA - Dance Collection Vol.3 (06.08.2011) [MP3|~287 kbps]<Electro House, Dubstep,
 ```bash
 magnet:?xt=urn:btih:BF356549315E7BE13EF620BCDC395DC9A19DE82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2470B205F8168B36DE50DA48D865D1061D4D202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ DJ Revolution Presents Malcolm & Martin - Life Doesn't Frighten Me (2011) [MP3|3
 ```bash
 magnet:?xt=urn:btih:4D0123E075ECE3A4EA958DC7FCBF976149082952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ Sea of Sin - 3 albums (1995-2000) [APE|Lossless]<Synthpop/Electronic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:905584F533055ACDDF20128442367ADB275F3FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +658,7 @@ Esben And The Witch - Violet Cries (2011) [FLAC|Lossless]<Experimental/Indie/Got
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ VA - Лучший клубный сборник Vol. 21 50/50 (2011) [MP3|256-32
 ```bash
 magnet:?xt=urn:btih:0D5FFC29D12F227327BDFF0A94FB5673CD373636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ Deepcentral - Speed of Sound (2011) HDRip
 ```bash
 magnet:?xt=urn:btih:C1FB2A4C0F3E1BB604B53A29EE4105EC8D083D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ Xотя Сара — красивая, умная девушка и во все�
 ```bash
 magnet:?xt=urn:btih:20C6FCE996A7418C839924741AD54E61FC0E5306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

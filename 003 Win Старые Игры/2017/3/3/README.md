@@ -19,8 +19,7 @@ Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License 
 ```bash
 magnet:?xt=urn:btih:833E747B6156F61C71AFFFE0B0372EF5419D61B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

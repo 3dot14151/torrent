@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C21789CFCA390D21F71DC3DEA6404C77940973CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ IINA 1.3.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:203F47AEAF0CAF8ED9F8FA53B8612536C1E8E737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BAD39B02971FFD323495714F8C1502136B66B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ VA - Happy New Year 1995! (1994) Compilation, Unofficial [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:B4EE31919B1CC2335E9BB4DA600530D5C7DA0D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Reflections of Life 11: Spindle of Fate / Отражения жизни 11: Ве
 ```bash
 magnet:?xt=urn:btih:5C534F0CBA9A120ADDA2BDE5185D60BE92A719C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:57AA88081F2A6C6BAFA4587E54E661E8099146DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:240BCE0E3621E03507CB3EB2E6AB8885283F5D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Savage - Greatest Hits and More (1990) 1995 Reissue, Compilation, Unofficial [FL
 ```bash
 magnet:?xt=urn:btih:3508247AE02810946B9C7A8187BF4826A3B4A21C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 ```bash
 magnet:?xt=urn:btih:5C5300FB5227FEF08C0875EA1FAD084A85561592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6480BE25FBF7FCCCF6B06545EBF036FE1A0BE86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6D2F35B4AE709C5229DD50601D586757F8D4F6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6759321133AB54B533C59B295511229C0D6E6E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:1AD7C2C52B704040103B5BE51633B3AAE3484891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY Ледяное короле�
 ```bash
 magnet:?xt=urn:btih:48E99B24FAF27A94C3F31526952E66CA274A6927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6E7F6BFEEA9A3F48318433648A4E3CF9F2B6A42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:DFFDA887DA1AF56F8260468331F3540959CE77F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ George Kopaliani - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 ```bash
 magnet:?xt=urn:btih:3E55DD16F667FB72CCCC47DDAAF5D512695C8A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:737EA5EDB0CA4E7BFFE7922644BF66960919657D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:313D70A01D46618241845D87874D261DEDA24AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ Dorling Kindersley | Как работает наука. Наглядные фа
 ```bash
 magnet:?xt=urn:btih:292C7D5B3323A4098CA279CDBE0D7FF05AB61B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ Spy x Family | Семья шпиона [2022, TV, 12 из 25] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:4E9B729CFA41400B8024169EDA7C9C59086E207B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ VA - Sexy Bath 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:6E1E8232E57FE92D27888CCD30DD61C6DC2EF2B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ Dorling Kindersley | Как работают технологии. Нагляд�
 ```bash
 magnet:?xt=urn:btih:FE0774FDB9E0CFD7A2BF69A4A1F4986AC9AF9E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +638,7 @@ Dorling Kindersley | Как работает тело. Наглядные фак
 ```bash
 magnet:?xt=urn:btih:F8C9323301BF0BB369DE24C526CB74F3A157B54E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +663,7 @@ Infix PDF Editor Pro 7.7.0 RePack by KpoJIuK [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3A566F6FA4E586AA3E1F43DA22564B1BD8C79F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

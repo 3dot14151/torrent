@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1F5B288CCBC77479B04F62D8A9C4E4769A5D6039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:245587E442CDEF6D7C0D7FDE786FBF579B91CFF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ cFosSpeed - это сетевой драйвер, который привязы�
 ```bash
 magnet:?xt=urn:btih:0AFFB024EEBB242D9F91DC3D732E952E5D3075E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97C20A0C43448BB7E01B94690B6C7B248EBD621D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Wargame: Airland Battle (2013) [Ru/Multi] (14.02.18.2100001616/2dlc) Repack R.G.
 ```bash
 magnet:?xt=urn:btih:0F1C36E4EF281D0E852EEB7F1A6D62371887202A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A98740452C6B940D8DCC4455A05C89952D022CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2D46B0BB005A6CC58C7584F0D1BE9062BBD63A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Kaspersky Anti-Virus 2015 15.0.0.463 RC [Ru]
 ```bash
 magnet:?xt=urn:btih:05E9FD7E316EF5CB32286909815FF97A55354AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Sexy CostumesРазрешение файлов: 350х583-700х1167Формат: 
 ```bash
 magnet:?xt=urn:btih:098E02586C864B104FEC1F6E27274BBAB68F44CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Age of Wonders III - давно ожидаемое продолжение отм
 ```bash
 magnet:?xt=urn:btih:A6ACA9CF3B608D945D578454C2A1E763E9D73A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03A7949AFCB60163A00462526F05EBC48841A95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Autodesk Mudbox 2015 (x64) [Multi]
 ```bash
 magnet:?xt=urn:btih:630D5E8022507357E33DAE8E0B6592D2C1B5DC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Sony Vegas PRO — профессиональная программа для м
 ```bash
 magnet:?xt=urn:btih:B80173B6D4C2056E75E8206E597009768F01B4E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E7077A3F419109F0F106902F89BA28DBAEC54D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ Sony Vegas PRO — профессиональная программа для м
 ```bash
 magnet:?xt=urn:btih:B759372AED18E56A1F8802432B1BAD17217318B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ Child of Light рассказывает о том, как Черная Коро�
 ```bash
 magnet:?xt=urn:btih:92C3D9AE8EFD32CDF546669EE921A0FF2888D780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5107576A59EFDB6639E88897AEB8617E9B7BC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ The Amazing Spider-Man 2 (2014) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:BC73768559FB4E5F8202E83EB6B9478035E2DC9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:586A2DD0A48A377B5F367DF5CE51D09211339A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ Borderlands 2 (2012) [En] (1.8.2/46dlc) Repack R.G. Механики [Game of th
 ```bash
 magnet:?xt=urn:btih:8822CBE0F7119B495DDA49B6507FC93519717404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A9C3DE87FFEA5D74319C2B77BE6832FD3A76B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ The Amazing Spider-Man 2 (2014) [Ru/Multi] (1.0.0.1/4dlc) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:36B6EFD47DF59AFB372CCB57E8FF8EE8F54CDF97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Kaspersky Internet Security 2015 - комплексный Антивирус К�
 ```bash
 magnet:?xt=urn:btih:B55CC1B1FA1443BEC0C106242E45D47C26A1074B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ The Amazing Spider-Man 2 (2014) [Ru/Multi] (1.0/4dlc) SteamRip R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:CB5D6E8D7D0CC9C72BFB01A0A1F4EC159F7B33A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

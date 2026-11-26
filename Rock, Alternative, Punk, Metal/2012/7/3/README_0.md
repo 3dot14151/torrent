@@ -27,8 +27,7 @@ Holy Knights - Between Daylight and Pain (2012) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:592C1F7BC571BBAF005387F32C464B8346CABA01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ On My Way - Апатия (2012) [MP3|320 кб/с]<Alternative Rapcore>
 ```bash
 magnet:?xt=urn:btih:50DC3FD2EDF8CF17C7A44EF1719AB341A03E9F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ DeWolff - DeWolff IV (2012) [FLAC|Lossless]<Psychedelic Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Jefferson Starship - Original Album Series (2009) 5xCD Remastered expanded editi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Van Der Graaf Generator - ALT (2012) [FLAC (tracks+cue)|Lossless]<Progressive Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Jeff Beck - Original Album Series: 2 Box Sets (2008, 2010) 10 CD, Remastered / S
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Pearl Jam — одна из четырех главных групп (наряд
 ```bash
 magnet:?xt=urn:btih:437A8B0BAD36C60FC74FEB3B2FF61FBF2EF25162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

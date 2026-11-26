@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1BD3C356F5A2DA74D777E919EC7634D7B0C2E590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Bobbie Gentry
 ```bash
 magnet:?xt=urn:btih:F9A7F99433BEEBE18E16FBB65A61A197F04318F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Hollowick - Beautiful People (2011) [MP3|320 kbps]<Alt.Rock, Modern Rock>
 ```bash
 magnet:?xt=urn:btih:2291C02A449FF0E2D249100579269B0687F67C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0B44315A13BEBF05774D270B1B3F40645DC7316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98DDCBCF8233816D3612AC259A0F6A3BAC6185A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62348E4390C26F8947F0D1DC0F40564ECD4AFD8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7118181BB37C24371E729B3D3E102D248632012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Christmas Tales: Fellina's Journey (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:A26FBA4A079F8CD5A04910EA9B14E31D2518A668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DF6D651E2BD93F00EB59A56346FDAC578601332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ CODA - Навсегда (2011) [MP3|320 kbps]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:C81A69EB9331EAEE3CC4C0E531C45B7D75CDB9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ VA - Light Drum & Bass Collection 18 (2011) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:AAF258D8756B63C77594B7847A7DC0082F233867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01BE794E18D798A9487E1B0DDA66E039F24B2B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ VA - Best Of Dance Hits Vol 2 (2011) [MP3|320 kbps]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:78CF3FA1B5BA5E7A6E6753008E84DCC4BE782B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ Deepfield - Nothing Can Save Us Now (2011) [MP3|256 kbps]<Alt. Rock, Post-Grunge
 ```bash
 magnet:?xt=urn:btih:A88CF44BC6939E79667F61F09BC32BDF21E7B8C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ VA - Рунет FM Топ-30 (2011) [MP3|320 kbps]<Pop, Dance, Rock, Rap>
 ```bash
 magnet:?xt=urn:btih:B57EE33F8683689B637A67A949A7F5F2E3DB16C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ VA - Самые лучшие хиты 3 Зима (2011) [MP3|256 kbps]<Dance, Po
 ```bash
 magnet:?xt=urn:btih:CE6CFD7A82C1523E89CD8D58977CADD10CAC581E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ VA - 100-ка Самых Самых Новогодний (2011) [MP3|256 kbps]<D
 ```bash
 magnet:?xt=urn:btih:2716E8F6FCBF23CB649177306536A4542654D812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ VSO Media Player - бесплатный медиаплеер, с помощью 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDA2A975A4B6735B77ACDDF9E27C421D32DBE18A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85F8E164EE0E9B4D532B0863FDA8007AFBA93686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +616,7 @@ VA - Disco 2021 (2011) [MP3|320 kbps]<Disco House, Disco, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:550A753CBE504714C6337FA5211108A3502CE73D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B11F62BB7EB7B2A5BF9C5470350BA9CD8A595201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ Bonaparte - 2 альбома (2008-2010) [FLAC|Lossless]<indie/dance punk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDB01ADDA7C8B1492FDA4B6D65A25A43498B8C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95E57DE48F0BD408D401D0C9821E5E6DDD47953E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ A Broken Silence - A Broken Silence (2011) [MP3|320 kbps]<Alt. Rock, Rap Rock>
 ```bash
 magnet:?xt=urn:btih:CAA0ABA877E7BC0358F043BA3B1D644254AFB7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

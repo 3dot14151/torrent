@@ -19,8 +19,7 @@ Power Notes - простой органайзер, планировщик и н�
 ```bash
 magnet:?xt=urn:btih:72FA180E5A1EAD716B0B4A9271390ED4C0B40577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

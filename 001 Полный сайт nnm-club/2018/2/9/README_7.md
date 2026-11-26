@@ -22,8 +22,7 @@ VA - Fifth Listen (2017) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, A
 ```bash
 magnet:?xt=urn:btih:A45EE00EBFD868F43B6E654805525AB79415428F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Fourth Listen (2016) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, 
 ```bash
 magnet:?xt=urn:btih:D1340F25629CB20BA224DC7B0D6AED17F8B912ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Traumfanger Vol.1 Sophisticated Electronica (2018) [MP3|320 Kbps] <Deep Hou
 ```bash
 magnet:?xt=urn:btih:B68C208E6D3B182F27EABF342319AED920D64750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Balearic House Classics Vol.2 (25 All Time House Anthems) (2018) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:9F83576C9341CA73F44A60EB9AE54003B39FE788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Roman Slavka - Material That Has Been Stored For A Long Time (2017) CleanError R
 ```bash
 magnet:?xt=urn:btih:3CAA4E77DEC0643B6572D814F7FCD040B07C2EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - We Love House - Winter Edition (2018) [MP3|320 Kbps] <House, Tech House>
 ```bash
 magnet:?xt=urn:btih:222DEFFC5F4BD6603FED7C88C68B37537C3E9D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Dudes Of House (30 Groovy House Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:8A71A5E08B04D0B55FAF975AD33B24A2999A597A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Chet Baker - But Not For Me (1982) 2003, Random Chance [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:4193048FF9AF6538EBD1B8FCBFFCCA7F5F124667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - James Haskell's Back Row Beats Workout (Mixed by James Haskell) (2018) [MP3
 ```bash
 magnet:?xt=urn:btih:AE4A429F243B54FC46FDD375FC2B554C01877D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Contemporary Chillhouse (A Journey Into Deephouse Music) (2018) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:8D9A727B3A6DCFF744548260817F92F0760222D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Air Texture Volume V (Selected By Spacetime Continuum and Juju & Jordash) (
 ```bash
 magnet:?xt=urn:btih:488CFA2B61B1438EABA2131B973B1E756336D165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - A Taste Of Kandi Summer (2008) [FLAC|Lossless|tracks] <House>
 ```bash
 magnet:?xt=urn:btih:5B8C0EC2C87C98256C45391977B3DD3BA21782E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Chilhouse Room (Deep Selection) (2018) [MP3|320 Kbps] <Chillhouse, Deep Hou
 ```bash
 magnet:?xt=urn:btih:257EC21F6E82A477380419815F846488CCCAB8F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:3C359F5010B7AEB2296F0402D0C3B445CC6BF30B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - World In Lounge: Ethnic Nu Lounge Vibes Selection (2018) [MP3|320 Kbps] <Do
 ```bash
 magnet:?xt=urn:btih:865CF34AC64234721162882ABB2B931B85386CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, Hou
 ```bash
 magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtem
 ```bash
 magnet:?xt=urn:btih:DFDA4F2A7687FEB8F3EA20B875483B0AD3731329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse
 ```bash
 magnet:?xt=urn:btih:F10B2F87C26111D978C7814D217E13E5B33B2F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
 ```bash
 magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:8F7154C00E607E2FA89ACB387F7C838FF546C809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:7DF637A7A04ED33D22FC22525D28535B3BDBDDE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ VA - Dance Party (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:DCBD4FEEB66CC757E8F2F736C4C7E27137D73A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:9DB67F9999003C27E30383B72B9FABE3D58ECFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:0569D61E9E135EAA517CC273B265F4AB6790FA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:123B35D0AF20545977A4D74C7A44BE0396571537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +721,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:CB644D297975526DD3B3BE6209580757322C8A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

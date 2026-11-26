@@ -18,8 +18,7 @@ WinNTSetup представляет собой утилиту, которая д
 ```bash
 magnet:?xt=urn:btih:E059BD3CE6042B6F696309D77A9E499F999BB751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18632E0431A7DF34AF1E7545E355A513AFB8F442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63D837FBA0439F7FC71A806FCEE42222B37E7ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Resident Evil: Revelations 2 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO
 ```bash
 magnet:?xt=urn:btih:A0EC5168E989B63BC898158E064FB9D50AB0BF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Marijn Haverbeke | Выразительный Javascript [2-е издание] (
 ```bash
 magnet:?xt=urn:btih:EDB3E10E07311E0112D2E01B19EA130F64305B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D74B0978E306530EDDB9AFB14E00AC56ADEB75C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C0734ADFD5DB36DB30ED14745F178E4E06882F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Microsoft откажет пиратам в бесплатной лицензии
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Enemy каждый раз генерирует новый игровой мир,
 ```bash
 magnet:?xt=urn:btih:31F90453239F7E802BBD676746F8B27EB39148AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Corel Painter Essentials 5 предоставляет в распоряжени�
 ```bash
 magnet:?xt=urn:btih:8297D07E599E679D2FA3179AD40E646495A76BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Resident Evil: Revelations 2 - Episode 1-4 (2015) [PS3] [USA] 4.21+ [PSN] [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:069407D564A50EF0EC8C1B9F74A9184C34709AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Teenage Mutant Ninja Turtles: Out of the Shadows переносит вас в т
 ```bash
 magnet:?xt=urn:btih:C2D8A97C185F4B93586889E98D75D28FA27F6334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AC8A576506C16B83BE452FA09D84AF32FEF285D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Corel® Painter® 2015 настоящая художественная маст�
 ```bash
 magnet:?xt=urn:btih:CE1B8CA7960B9B965079B5E4B79819D6336A133F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Adobe InDesign CC 2014 - профессиональный продукт для 
 ```bash
 magnet:?xt=urn:btih:830770842AF38EB7E82EA13F6B26748194BDEEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Dead Rising 2 (2010-2011) [Ru/En] (1.0/1.0) SteamRip Let'sРlay [Complete Pack]
 ```bash
 magnet:?xt=urn:btih:297CD04C305BE4BA2C1D945C353D43910D0CF319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ Hotline Miami 2 Wrong Number (2015) [Ru/Multi] (1.03a) Repack Let'sPlay
 ```bash
 magnet:?xt=urn:btih:38F7D5F7B9E097066718CC289819A7C6C757A7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +471,7 @@ Battlefield Hardline (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unoff
 ```bash
 magnet:?xt=urn:btih:FD4FE9296A5B6106793F7CA376A74BB75C4FC348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF887B5800EE9590A22B10CE4E5AD79448E7F2E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +523,7 @@ Resident Evil Revelations 2 Episode ALL FreeBoot (2015) [Xbox360] [Region Free] 
 ```bash
 magnet:?xt=urn:btih:3AA16F2112BB8A04D8DA71C1EF37B3804FD52940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ Battlefield Hardline – новая часть серии Battlefield, в цен
 ```bash
 magnet:?xt=urn:btih:FC5338860342B0B2EE965A721DA45AF47B74D57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +575,7 @@ There Came an Echo (2015) [Multi] (1.0.6) SteamRip Let'sPlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A29F939714E63B1CE2995165D905AA534FB65C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10041 (x86, x64) (esd) [Ru]
 ```bash
 magnet:?xt=urn:btih:95E916C9AFD99B255D3A4D1603438E82D302929E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +625,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.10041 (x86, x64) (esd) [R
 ```bash
 magnet:?xt=urn:btih:50CB79705EECECD9724C9BA72D656D00A9DDA062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +650,7 @@ Far Cry 3: Blood Dragon (2013) [Ru/Multi] (1.02) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:126EB76C1F3CBF425ABF43D5ED511BF6A313F5AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

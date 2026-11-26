@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:2FCF4DA99D3D524376FA4A410E2488EFB64365AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ad Infinitum - Chapter II - Legacy (2021) [FLAC|Lossless|image + .cue] <Symphoni
 ```bash
 magnet:?xt=urn:btih:6BC9A3D361EBBF19881E6B661E3E2888F54B7313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

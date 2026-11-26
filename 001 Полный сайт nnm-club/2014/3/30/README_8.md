@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:766BAF9D40E60404285E1A430EB458B5A0E770E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ratchet: Deadlocked - HD переиздание игры 2005 года и нов
 ```bash
 magnet:?xt=urn:btih:4B5C3CEE60832E1E0F9658A92BC8FB2056689C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01E44B0FA44E2164DDE3465FF1320D37999E0991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Hot Virtual Keyboard - это виртуальная клавиатура, со�
 ```bash
 magnet:?xt=urn:btih:3D385503CEB43FD449BBFD49175DD6AE184DBF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:214FB5E901BFFEE1B6A34844CA719042A8C180D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Cпираль / Helix (2014) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1
 ```bash
 magnet:?xt=urn:btih:163A20AD3EC6708BD598173FE8070BD568306568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80C21702C36852A32161E40A0924CE7D65C7FE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Strike the Blood [2013, TV, 24] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:CE33E86BD89FD6FF5C2E5F673639A01DF3C863B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:606A371AA6B80EE1767B8BD7D07DB5545B53C50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E700743EA539EA0F3BD3423EF0D3188D0576805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Adobe InDesign CC 9.2.1 RePack by JFK2005 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CC9B8BD8AA8B3679564CB0148F91DC04554C23AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Risen 2: Dark Waters / Risen 2: Темные Воды [PS3] [EUR] [Multi4] [4.11
 ```bash
 magnet:?xt=urn:btih:B7DA5CE111B5DCAF26CB42C788C8AF6C47B112D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Sniper Elite Nazi Zombie Army 2 - сиквел спин-оффа в серии S
 ```bash
 magnet:?xt=urn:btih:97F906539CFB502090B44BDAA96B90A5E6C68AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Autodesk Sketchbook Pro - приложение для рисования и че
 ```bash
 magnet:?xt=urn:btih:2DE916ACD86BBD0EFAD787D4605F16BC6B1DBDDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Strike the Blood / Удар крови [2013, TV, 24 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:4E06D8EE4A4015E96BCA9EE65848D0091850E022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1850B887873C5C0519B5BF5F61482C46D628A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00BC34C6C92231EEDC31D274990DC629CAF626F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ Kill la Kill [2013, TV, 24] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:64898D6C72ACA6C79A0BF811B45C8C7182393E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7313A3E6327C2A677578B23EB3069F1C6974B1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36806844063F4583EF7CEB4A24495CFFADA38987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:ACB4C7902782ED02697FE25CCB01A6608250B74F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ Kill la Kill / Убей или умри [2013, TV, 24 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:440D1927F606328F69912262E33951A6426A9953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ Sniper Elite V2 - это долгожданное продолжение пол�
 ```bash
 magnet:?xt=urn:btih:DD79CAFB83A5FD32ECCD98225BBFE49AD568A3EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DF610DE9B755072B18366FE794619B04F4BA34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ DOOM 3 - игра на андроид,  далекий 2145 год, научно
 ```bash
 magnet:?xt=urn:btih:4B30AB89EE91ABE89A0DB28EBB2109C6A5253B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ Might & Magic® X Legacy - это приключение для одного и�
 ```bash
 magnet:?xt=urn:btih:DD1D340B6992E62F759C7518809B8CE145D87099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

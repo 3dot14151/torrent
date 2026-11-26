@@ -22,8 +22,7 @@ Tedeschi Trucks Band - Future Soul (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:DD479D0875350BB659DC3567B575A76F13130FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Scar Symmetry - Symmetric in Design (2005) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:86D18D39E09394DE14B663158CBFD74786817232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fabienne Erni - Starveil (2026) [FLAC|Lossless|WEB-DL|tracks] <Folk, Symphonic M
 ```bash
 magnet:?xt=urn:btih:CFE6974D3B5F7C3F3C1DC678B61F078A887B07EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Axel Rudi Pell - Ghost Town (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:5968FDF0BA22FC1C7414F86B107B1077A787C57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Exodus - Goliath (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E3714F0CBD18021489A4F894CD568CA8A8513691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tyketto - Closer To The Sun (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:00371A85AE4C076DB18D158C7C3DB0C325FA1879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Gaerea - Loss (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post Black Metal>
 ```bash
 magnet:?xt=urn:btih:14D9B01E91F41D18452312609A1510CBB36069FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

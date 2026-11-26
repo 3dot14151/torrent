@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:FA1AF76B7F3FB40C6ED9BFEAD6C6F9815C32BCA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A06A1A5A64094438A44DB23D1C9938635903E19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Titan Workouts / Сила Титана v3.2.5 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3D387792E7A8CDA33DBAB5C51BF037A892C88CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

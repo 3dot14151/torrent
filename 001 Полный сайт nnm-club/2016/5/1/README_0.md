@@ -21,8 +21,7 @@ Simon Sigurdson - The Second Coming (2016) [MP3|320 кб/с] <New Age, Contempor
 ```bash
 magnet:?xt=urn:btih:D00B1729E2B87E1451105AF3AC9436A242F6201B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Sexy Summer Relaxation: Cool Spring and Buddha Cafe Music (2016) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:4B89A0E1AC33E8FA1C0C996CBDDC99977DD30273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:873FE3C7BBE83A96D3148EC941150164FA031239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43262A7A0F5D2B4106C776F5FA14CF09E2CA5485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A941A8A01AC30DD308E82D2C3B05601658D199DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13658E7947CDDF16A0294E1AE3DC1C128A49639F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC51124F91F8C8D7BE3AAA4BC2DE8F80200F766D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Ann Sweeten - Where Butterflies Dance (2016) [MP3|320 кб/с] <New Age, Neoclas
 ```bash
 magnet:?xt=urn:btih:9CE3281A6862E271301A1EE7B84CFDD9B2F54588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ YOAV - A Foolproof Escape Plan (2010) [FLAC|Lossless|tracks + .cue] <Indie, Pop,
 ```bash
 magnet:?xt=urn:btih:CA833F246FDAE918C96C7E4C0C4C0D58265554E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Old Soul Society - The Farmhouse Sessions (2016) [FLAC|Lossless|tracks] <Folk Ro
 ```bash
 magnet:?xt=urn:btih:E889322C1A6DBF8ADC7A118AD7CA91AF1FC63255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Bugs Henderson And The Shuffle Kings - Four Tens Strike Again (1996) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:E452A40403AE453039B48199669CC4D9728E65B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:303381C0DC0DEC38293CEA72512327822D557706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15712116FA599B36C981E700FAB2D00CAE5932C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Serial Box 05-2016 [En]
 ```bash
 magnet:?xt=urn:btih:639D7CB97A4FC7D1D7E69B6D65F48EF9FA93BA48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15F9998942205D1E31F2FDCA0734D2F301AF3265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ VA - Deep House Edition #001 (2016) [MP3|320 кб/с] <Deep House, Club House>
 ```bash
 magnet:?xt=urn:btih:F1357CFBC8578BADC75F8E8BAED20B06613ED785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ Capto (was Voila) - профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:C8D5EDB34F38EAFE2555F7E6A5FDDC4641AD80D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CDCB40ED02EE97443F1236DB9960FC85C0579B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ VA - Vocal Trance Top 40 (2016) [MP3|320 кб/с] <Trance, Vocal Trance, Uplifti
 ```bash
 magnet:?xt=urn:btih:111B90809B4FACD3DC7C35F50C8E04D17615AA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDC34840BFDFC6E8399144F6820D4BF04C4C6754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48C4986E54673F9FDB3316417A92479F0FEBBEEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ Easily Embarrassed - EE4A (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillou
 ```bash
 magnet:?xt=urn:btih:4836B9FB49916F61349A150E17C796988B5D2462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ Billie Holiday - My Man (1995) Series Success [APE|Lossless|image + .cue] <Jazz,
 ```bash
 magnet:?xt=urn:btih:4383070D2124F161003CD4BBFA401AA561139344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Robin Bessier - Open Road (2016) [MP3|320 кб/с] <Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:C267B5AAE11D689E870DA59EEE63B397D5FCF09F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ djay – это программа для управления и микширо
 ```bash
 magnet:?xt=urn:btih:0A7969133910C7F0871A31E1FDFFF8982E735912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

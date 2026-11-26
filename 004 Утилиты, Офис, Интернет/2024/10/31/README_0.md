@@ -20,8 +20,7 @@ Mailbird - это простой, удобный и главное быстры�
 ```bash
 magnet:?xt=urn:btih:724E7D54745D52953AA0B10484B573558CBF97F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

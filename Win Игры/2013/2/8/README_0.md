@@ -19,8 +19,7 @@ Chimeras: Tune of Revenge Collectors Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:A8787599012D7D9597B15E5190E9BB80ECE99250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Outta this Kingdom [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:4D59A7430C3F80450F974D2467035CF5B615E400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mountain Trap: The Manor of Memories / Горная ловушка: Особня
 ```bash
 magnet:?xt=urn:btih:EFDFF678DB1AAB6615915AD1476BDD8BFD025C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sanctum — это шутер от первого лица с элементам
 ```bash
 magnet:?xt=urn:btih:C96851524943AB9C82513C87FAA82B9523CBEF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Gardens Inc.: From rags to riches / Все в сад, или Грядки в п�
 ```bash
 magnet:?xt=urn:btih:0FED20482F0FB2DFA6DF167AFE18D59B1D3FA31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ R.A.W.: Realms of Ancient War [En/Ru] (Lossless Repack/1.0.u1) 2012 | R.G. Origa
 ```bash
 magnet:?xt=urn:btih:E9D9D5DDDDCF4763B2979FA48D7956F7280B0CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Defense Grid: The Awakening – яркий представитель жанра
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

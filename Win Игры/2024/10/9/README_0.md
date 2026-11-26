@@ -19,8 +19,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:95DDC50A583BD408DF7F74A99ED3CA43D30C7224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором
 ```bash
 magnet:?xt=urn:btih:74C0A94F2053D42DA8B0578E2EFEDD0E746BE05C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Anima Flux - это кооперативная метроидвания про �
 ```bash
 magnet:?xt=urn:btih:4C33F509BD548DAE352E81F5D3253C4B8F38B992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Zoochosis (2024) [Ru/Multi] (1.2.8) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:9B34E45C50647E6B7E3A6B4C390A020F53C30200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Repack Fit
 ```bash
 magnet:?xt=urn:btih:9A62E74D3021F1DD5B607E00985C3CB4BF65EA43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 ```bash
 magnet:?xt=urn:btih:98FF5B91DE2B23518128D1411D055A621A879FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 ```bash
 magnet:?xt=urn:btih:0097CBB136C1FFAA783E15B9158B5DDF7FDDAE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Thyria (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:77C018D2EA6F426E70325F6BDCC87001C6C7731C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Quilts & Cats of Calico - это уникальная и наполненная 
 ```bash
 magnet:?xt=urn:btih:34104A254880EC6F914D3B81B92F805F3F0E2EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:90AFCD3E5053246F7E579222DF1327ED89F739FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

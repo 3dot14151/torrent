@@ -21,8 +21,7 @@ VA - Just listen ... Part 40 Other Soul (2026) [MP3|320 Kbps] <Blues, Blues Rock
 ```bash
 magnet:?xt=urn:btih:921F35A162615C1F590686AA9E506F5EB103F865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Ricky Martin - ReVivo∶ Los Hits (2026) [FLAC 24/44.1, 48, 96|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:74CA8E1AAD24B21572605807E99BC7C0D1FD6BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73437CFA8C732853A358B0AC9E50D6DC340A9D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B29CAC08877B7A1D30653DCD11AD8D97C06CC226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Windows 10 22H2 x64 24in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 202
 ```bash
 magnet:?xt=urn:btih:0A4445F66E3E3D7241C4DF12411528E5933307BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84E54528E844AA6950CE3736E661EDFFF9CF1BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E01724D7305624CAAE6B847511818A8F3278FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Uncanny Tales - эпизодический хоррор, где самое ст�
 ```bash
 magnet:?xt=urn:btih:027874388CE5D3A2174EB38542884D00CF721FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Pax Autocratica - это гибридная игра, совмещающая �
 ```bash
 magnet:?xt=urn:btih:68C221E91A80103FD711BF4F6D315A53C9BC71E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Enemy Engaged (1998-1999) [En] (1.1e/1.11) License GOG [Антология]
 ```bash
 magnet:?xt=urn:btih:C2AF38279B76C250B360F7ED7434955942E8D488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Pizza House Simulator (2026) [Ru/Multi] (1.0.0.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7C6E72A704839002EF0434CB253E0B2175FE2F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Polylithic (2023) [Ru/Multi] (1.0.0.24) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CF4AAF8454A5886FBE5F619598FE5C2F8EF15CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Polylithic (2023) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D00BA2571ED91C16CB82AACCC7209CA68497E63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Feed the Scorchpot - это пошаговая стратегия с элем�
 ```bash
 magnet:?xt=urn:btih:B4B96AB67868A6837078BFA71FF867599CCBCF80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Can I Come In? - это короткая атмосферная психолог
 ```bash
 magnet:?xt=urn:btih:0B2EE18DDB6EFC69574BB93539EC7DE0A1678448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4720E50DA5BB442694D09D7E6E6518C13CCB2DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ WinCam – это программа для захвата видео с экр�
 ```bash
 magnet:?xt=urn:btih:7156C9925561652E8CA8A636BD848F5DF3575C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F57D9901166BB239532AF626246B751A299FCB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70107F970D76BF7E2499055D1922966C41EB909A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F1DF946D9B00F3F39E4454739D74EB9786A13E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:466D8189699E7BF9DA133B81C1ED6660EF3178CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:CB879DC2A388FD6AB00E0E5AB7767F736E4D5B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E43AE60250A49EF49474395D43962EBDA00809F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ MotoGP. Этап 14 из 22. Гран-при Сан-Марино. Спринт (
 ```bash
 magnet:?xt=urn:btih:E3FEB533781A8B7E8DDB3C227139F25134325349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

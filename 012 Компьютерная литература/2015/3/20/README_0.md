@@ -19,8 +19,7 @@ Marijn Haverbeke | Выразительный Javascript [2-е издание] (
 ```bash
 magnet:?xt=urn:btih:EDB3E10E07311E0112D2E01B19EA130F64305B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C0734ADFD5DB36DB30ED14745F178E4E06882F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

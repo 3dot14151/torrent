@@ -22,8 +22,7 @@ Seducer's Embrace - Sinnocence (2002) [WavPack|Lossless|image + .cue] <Melodic D
 ```bash
 magnet:?xt=urn:btih:8F0538D4EC26BEA0FC6FA1282D0C80BEBF92A720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Burning by Desire - Insight (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 ```bash
 magnet:?xt=urn:btih:05B506894509992A9415440A464CFD75D711A312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Softline - Маяки (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, M
 ```bash
 magnet:?xt=urn:btih:B40AF169C1F808C6B544FED7C6A30A2630E8B58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Simulation: On! - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:15378211AF3CA241D16CF814038BEF972926DD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Korella - Начало (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melod
 ```bash
 magnet:?xt=urn:btih:6C2898B4516AB609E6A3729677A606FDD4E32BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Helvegen - Следуй за мной (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk
 ```bash
 magnet:?xt=urn:btih:81649365A68B7576BF20C6B140D20C69A47682A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E06B862ACCA1F7F7101A43CF31DC53DB83732058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

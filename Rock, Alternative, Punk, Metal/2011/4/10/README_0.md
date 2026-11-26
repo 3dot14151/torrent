@@ -28,8 +28,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:72DAF8DFC9A067834796C96AAE78F179A0A2EEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Uriah Heep - Byron's Lost Poem(Landhalle1972) (Bootleg) (1972) [MP3|320 kbps]<Ha
 ```bash
 magnet:?xt=urn:btih:C0AB54A55CCF2AADAD6D6BD199478230ED13FD56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ The Ventures - The Very Best Of - (1992) [FLAC|Lossless]<instrumental rock/surf 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2825E4F7DDCE32F5119AB23086FACC247A893521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

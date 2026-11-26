@@ -21,8 +21,7 @@ VA - Mystic & Secret 2 (2012) 2CD[FLAC|tracks + .cue]<Chill Out, New Age, Downte
 ```bash
 magnet:?xt=urn:btih:BF393DD941B64AC04AAD453749CC519C7E9D14CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA39587AED78E12860FA0A7BF1BCE6710E2E3842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Halie Loren - Butterfly Blue (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:01D6950D13FC6DCA996754F0EF31BC765CFC0D73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - White Double Vocal Bass (2015) [MP3|320 кб/с]<Drumm and Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:2C12C50E00402560A6558AF0E16E9C6D6B09E97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Jottacloud предлагает клиентские приложения  че�
 ```bash
 magnet:?xt=urn:btih:5FC0BBDC12347F8CEC154B3DAB09C6DF51944D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ A2	Chanson Sur Toi Et Nous(   Читать дальше...   )Жанр: Chanson�
 ```bash
 magnet:?xt=urn:btih:3D97A9DE8AC54A9F4CDA30F63A87D4A3FFF4350E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Mystic & Secret 3 (2012) 2CD[FLAC|tracks + .cue]<Chill Out, New Age, Downte
 ```bash
 magnet:?xt=urn:btih:A303756DF87615CEA2F43A8C97E8A26D59CF92FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Red Dog: Superior Firepower (2000-2015) [MP3|320 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:B558EA28BFE2F9FB99C1E2EE324025B23338983F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51FFB0205CCD612A37235F7B2C6533B39EC78FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ pCloud - это Ваше личное облачное хранилище, гд�
 ```bash
 magnet:?xt=urn:btih:E7D8ECA27F764A7FE15C86FCFCDF9E3839A81759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4317E3841B2093372D08C8AF874F7728E92CF844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CBF0E70BF8B29ED3EB26C1E09AF3DA174F4ABF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A6669872A7C74C026125BE5807F4896DB22E334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Christopher Lawrence - Rush Hour 001 - 089 (2008-2015) (обновляемая) 
 ```bash
 magnet:?xt=urn:btih:178D5FF4788CDA2CF831D40314BE3E07C519DAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30C996D7700D95A25325A9E390687DDB284E79CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:D162579FD01ED252DBE070077979D381FF03B362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B888CB178F45DACC962E374643F83054604D52B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ Windows, по умолчанию, позволяет программам пол
 ```bash
 magnet:?xt=urn:btih:956F9F546F74824C6D24F0027E41D4B976BC6EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ MediaInfo Lite позволяет получать техническую инф
 ```bash
 magnet:?xt=urn:btih:2480082BD72FF1E7AD316A578835124688192C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85DE96D2A2AEF5A64B54B9E4ED699070D4F99FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ VA - XV (2015) [FLAC|tracks + .cue]<Psytrance>
 ```bash
 magnet:?xt=urn:btih:54F1A0ACF99CE856E18BE640B275AFB858983475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AD931BE6983F5CE8406781DEBE99DDB499BB225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65F5E0588082059A81BF77088938C158E5C1D58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC7AE6CBC0592D4C3EF730295E5C7BBF331604BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FA2F8EB131D6287D9B531537D0EA9A8990B313F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:65E67793191AF5BCB992CED0909249A47EAD7309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Hollow Coves - Moments (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie>
 ```bash
 magnet:?xt=urn:btih:2B06F68E9D191A09182E0D4DAA5E98A164259E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Score - Pressure • Stay (2019) EPs [FLAC|Lossless|WEB-DL|tracks] <Electron
 ```bash
 magnet:?xt=urn:btih:8D09DDD38AFBD377BD61547B3F21B55222A5C07A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

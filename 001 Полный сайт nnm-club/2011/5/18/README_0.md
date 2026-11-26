@@ -27,8 +27,7 @@ Maleficium Arungquilta - Касание Сквозь Стекло (2011) [MP3|19
 ```bash
 magnet:?xt=urn:btih:B4BFF8E7FC5208B19FE2A46EBF9451D600F9038D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Hi-Tech Pro предлагает своим читателям знания и �
 ```bash
 magnet:?xt=urn:btih:CEEC7208CA45C62B6244331266F7A5C9E8595138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ In Flames - Deliver Us [Single] (2011) [MP3|192-320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:A8F008019B8829BB167B7F0E79CFCFFBE9256EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5298400156312ED34D9DC43A71DBEAD7C5407A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ VA - Grower (2010) [FLAC|Lossless]<Psybient/Psychill>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAD9B3B2C95514B983396A2816A1A91A90DF2C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Танцевальное искушение 4 50/50 (2011) [MP3|256 kbps]<P
 ```bash
 magnet:?xt=urn:btih:25E8B1D56FCEBB66ABD93BA3F4BD6B80B0EB50A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Moлoдaя, никoгдa нe yнывaющaя Фeникc, пpиeзжaeт в бoл
 ```bash
 magnet:?xt=urn:btih:B4722FA2CA1C4F899A6BAB65872D5D870B2F482D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Capitol Sings - Frank Loesser (1995) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ VA - House Sound Pack (2011) [MP3|128 kbps]<House/Club>
 ```bash
 magnet:?xt=urn:btih:9D8428F457A25DA8A2BED204420190052AABFE70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ VA - HIT Прорыв: Русский выпуск 6 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:1375B9749CD6A0E2F49FFE9E5CB1A025857078A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:566DA3E5663B105CD4B1BDE79974A18F195DB66C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ VA - Милицейская Волна. Новинки Эфира (2011) [MP3|12
 ```bash
 magnet:?xt=urn:btih:552C6DD6FFC2C97639F1EDDAC0423C29110FD7B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ VA - Поцелуй меня, удача! 2 (2011) [MP3|160-320 kbps]<Schanson>
 ```bash
 magnet:?xt=urn:btih:566C8D0CC986027E20F48EE635EF55D49C22DDBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FC26DA46F5BCBE79CDB226BB0B88CCDB8D44B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7205297BB3BAE2F3D5F9CE201C4740D590BE964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ VA - Soundtracks Promo OST (2011) [MP3|128 kbps]<Pop/Soundtrack>
 ```bash
 magnet:?xt=urn:btih:F1622807C58F78E85BCAB09FE7C1D69DDB022473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A24D6512D0D9575389B234500E3C025AF7332193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Puppy Sanctuary Beta (L) [En] 2011
 ```bash
 magnet:?xt=urn:btih:6C56128DC13E029485C9A2DF14408039A0008E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ VA - Самые шикарные хиты на Первом (2011) [MP3|256 kbps
 ```bash
 magnet:?xt=urn:btih:88CEA80D9BB140F5FA5C79D1BCAF5A81F1CF5CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Playboy мужской журнал. Эксклюзивные съёмки зн�
 ```bash
 magnet:?xt=urn:btih:3329FCDF98649C48CD0E8F1E9311C3F1B78C2847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ VA - TOP 100 Зайцев.нет от 18 мая 2011 (2011) [MP3|128-320 kbps]<P
 ```bash
 magnet:?xt=urn:btih:039A0C551BF2BCDE4B7B462769FAF81F578D54F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

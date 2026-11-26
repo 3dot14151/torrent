@@ -27,8 +27,7 @@ VA - Mega сборник Осенний DFM 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:BDD5E1CAF3D3899F7890FCDA00180051D3341C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31DD0F43CACF5671A41750986B1196FEF7C7E66A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ SQ1 - четвероногий робот из Кореи, конкурент р
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Энергичная музыкальная 100-ка (2011) [MP3|256 kbps]<
 ```bash
 magnet:?xt=urn:btih:08D74F9A8A52E001ACD57D7A0A50250B3E3D4E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FDA6A5F491053F6C66863B8231C9B84122945D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Cartoon HD Wallpapers
 ```bash
 magnet:?xt=urn:btih:9C800FB09F7428474D9983C63943303BE4A5EDD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ VA - Autumndance 2011 Megamix Top 100 (2011) [MP3|320 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:900CFBEEE0B92A3B32AD01D702DD0D817D910CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ AVCWare Video Converter Ultimate - мощный и удобный конверт
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ VA - Русский Dэнс Vol.2 (2011) [MP3|320 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:E2BCA761D21B8B48391D17A41538849E05964A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ VA - Plano Astral EP (2009) [FLAC|Lossless|WEB]<Psy-Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DDB93E33AE3BC709B3255FAE8980284084814E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ VA - Улетные новинки музыки (2011) [MP3|320 kbps]<Pop | Danc
 ```bash
 magnet:?xt=urn:btih:C27C5E3B97D7E4017E7101468D1B80BE1761D753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ GEO— научно-популярный журнал с уклоном в те�
 ```bash
 magnet:?xt=urn:btih:45C897087D639E70BE5282E01D5A6FBEEA59DE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ VA - Бомба Dance (2011) [MP3|320 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:91A91B66DBDB07A0C779FB95564F3039CE489CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B73D29030BD336C08201483215A7E680ACED35B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ VA - До 19 и Старше Радио Record 50/50 (2011) [MP3|256 kbps]<Dance
 ```bash
 magnet:?xt=urn:btih:93A3B38E1705DF3D0A7954EEE5BA4659A112E2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:361213A19A6993855B8C130449A55533F81C8E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ VA - Хит-Зона (2011) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:154FEA1EFA2AF8EBD1DD47580FDDE76AE711FB93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ CD 1: Продолжительность: 01:19:52
 ```bash
 magnet:?xt=urn:btih:D0276367C4A3C0B9C8AAE6F4440805E08E216A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ GEO— научно-популярный журнал с уклоном в те�
 ```bash
 magnet:?xt=urn:btih:5D5CCB9A4D9B0449D49AE413AEA2E83A4226D008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B536D23EA091536B7A94B827CD60368B164DBF46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ Light Image Resizer - (раньше называлась VSO Image Resizer) - п
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:035DC254FFE361700522E33D5B15CC162DBA656B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ VA - Trance. Vocal Fascination 04 (14.10.2011) [MP3|320 kbps]<Uplifting Trance, 
 ```bash
 magnet:?xt=urn:btih:C8CA638BD44FB6CFFE9DA559086DFDDBCF0157ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D058EC7B5FD0DB9B16C515BB1A2F2507B4BD26B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +743,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFE9CC83C4AE5B0440B67EA76977524290ACA75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

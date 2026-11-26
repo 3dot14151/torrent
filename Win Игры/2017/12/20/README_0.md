@@ -19,8 +19,7 @@ Dark Tales 12: Edgar Allan Poe's Morella / Темные истории 12: Эд�
 ```bash
 magnet:?xt=urn:btih:C1D7A32450F416EB918EE1DBFEB5CEBCBC66C63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mind: Path to Thalamus – головоломка с видом от перво�
 ```bash
 magnet:?xt=urn:btih:B1F2920DC68F62C428CE227B1259DEC4DDE48A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Project Cars 2 – это вторая часть мегауспешного г�
 ```bash
 magnet:?xt=urn:btih:EC921FE12EAF005DF548A947752649A58D2AD044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Black Mirror (2017) [Ru/Multi] (1.1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A2FA14B1E7E7518451D0C6DC32F5395EC77F6AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

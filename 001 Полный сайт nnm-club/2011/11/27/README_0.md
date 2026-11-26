@@ -20,8 +20,7 @@ Monomood - Oktrosis (EP) (2011) [MP3|320 kbps]<Dub Techno>
 ```bash
 magnet:?xt=urn:btih:E8E92A66ECD8DEC06A2A793E3FF3E73829DCB8CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:599647787949FE792C330DE605EE362EE75F9EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ VA - Armada Top 15: December 2011 (2011) [MP3|320 kbps]<Trance, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:445AD467A5A5BC6E86C824F0B431F273D7221F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Lingerie Insight является представителем различны�
 ```bash
 magnet:?xt=urn:btih:6135ACCBDAB72027CAD8D11CFE03D78BC1461365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ GPU-Z не требует установки и имеет опцию прове
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Men's Gadgets - ежемесячный журнал информирует св�
 ```bash
 magnet:?xt=urn:btih:0320F6445BAB8FAF6A53450F2A6C8BE116E3ECE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Girls Wallpapers 30
 ```bash
 magnet:?xt=urn:btih:6B74FB249A67229D01760845793E77BF33C2CCCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ Robert Lippok - Redsuperstructure (2011) [MP3|320 kbps]<Experimental electronic>
 ```bash
 magnet:?xt=urn:btih:7AFC0BDE54669D840DD1F20FA9ADE3A83509E0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F07E34076EAF0EEBB42B3A44FECCFF2107CC96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9364F327A1A761E226E10246ADDD04769F1C57DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:FAD7F9A0DFD8996D318B3A831B8908F582AE6D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ Girls Wallpapers 29
 ```bash
 magnet:?xt=urn:btih:04EE66A9DEEF1F2D1A150B515F17815E504252B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Theocracy - As the World Bleeds (2011) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ VA - Billboard Hot 100 (03-12-2011) [MP3|320 kbps]<Pop, Rock, Dance, RnB>
 ```bash
 magnet:?xt=urn:btih:46E2169FF98DE6617D23BD73555181F6B6D92304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ Opera — один из самых быстрых и гибких в настр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ VA - The Best Metal Hits - Part I (2011) [MP3|128-320 kbps]<Metal>
 ```bash
 magnet:?xt=urn:btih:B9C9A86385ED0B5AD9142C131CEF28A78B3BC169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ Lingerie Insight является представителем различны�
 ```bash
 magnet:?xt=urn:btih:BA7AF5017050C3E2948C5E608D93680D1C439605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ Zomby - Nothing (2011) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:C5E898E5967ABF5F8BEA29F2816C94BBA456B4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ Desktop Wallpapers (26.11.2011)
 ```bash
 magnet:?xt=urn:btih:AE09B03B5E4E90AEBED37B4B060DC74CE79E83B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:916D7C44560DD3C2EC017D2E0AE89BD046EED575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ Hour1:
 ```bash
 magnet:?xt=urn:btih:3FA246D742F4AFBFBD7EF091F546291B66C7871B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FEBA8E11910DD9D413E1B78F2797938336B7667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

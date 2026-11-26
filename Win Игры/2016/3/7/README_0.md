@@ -19,8 +19,7 @@ Dance Magic (2016) [En] (1.0) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:F43BB2DE167A565F9837DC5569A1F2B7E5A60015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Her Story - уникальная нелинейная игра, дающая в�
 ```bash
 magnet:?xt=urn:btih:A4A372A3A1C30CA158781E21A6CDF5FB5EC2CE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Disgaea PC - это переиздание первой части Disgaea: Hour
 ```bash
 magnet:?xt=urn:btih:061EF41092F98522C034CD362AD53D958D44A19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Red Risk (2016) [En] (1.0) Repack Mr.Weegley
 ```bash
 magnet:?xt=urn:btih:17CBEC74328690E037216494BBBE7C9351B3EB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

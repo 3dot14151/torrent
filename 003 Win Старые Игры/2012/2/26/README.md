@@ -20,8 +20,7 @@ Riven  - это сиквел оригинального Myst. Сюжет игр�
 ```bash
 magnet:?xt=urn:btih:BD2CFE8334BCAE9DE0A7F17A9C8FDD210D53076E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Myst 4: Revelation [Ru] (RePack) 2004 | Pilotus
 ```bash
 magnet:?xt=urn:btih:8E6B06A6EDD642115DD34763DFBB142C03C91AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Myst III поразит Ваше воображение. Каждый из 5 м�
 ```bash
 magnet:?xt=urn:btih:55DC63EC6B1B7E18FEE2257E22450738AB3C862C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Beasts and Bumpkins [Ru/En] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:681C1D40ED37ADD764FDE77397DB8FA91E53C115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

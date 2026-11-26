@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8A8EE0016A1C65E072726249166D16EC7674B003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. 4:39 AM (For The First Time Today, Part 2) (2:03)(   Читать дальш
 ```bash
 magnet:?xt=urn:btih:93CE33C2983B52713AE3425C77A1A017D3784D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

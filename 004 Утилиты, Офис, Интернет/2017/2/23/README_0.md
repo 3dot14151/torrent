@@ -19,8 +19,7 @@ Ace Translator – это отличный и мощный интернет-пе
 ```bash
 magnet:?xt=urn:btih:773AB20E518713FA8BAA96870AC883D379FD46CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

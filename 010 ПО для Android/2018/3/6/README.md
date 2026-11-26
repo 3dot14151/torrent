@@ -19,8 +19,7 @@ VideoMix - это приложение позволит вам смотреть 
 ```bash
 magnet:?xt=urn:btih:FBA47A0A144257956CBC7D9DB1722395617CEA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

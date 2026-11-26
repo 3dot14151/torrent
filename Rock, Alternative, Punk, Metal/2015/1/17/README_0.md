@@ -28,8 +28,7 @@ Dave Forestfield - Loyal Till the Bitter End (2015) [MP3|320 кб/с]<Country Ro
 ```bash
 magnet:?xt=urn:btih:86C55309CB3D87CE5CD0871FA531C8061B1423D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ An Army Of Squirrels - Pirates Vs. Temperature (2011) [MP3|320 кб/с]<Alternat
 ```bash
 magnet:?xt=urn:btih:53175A54279F4A965BFD1049962ADB13B6373688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ La Menade - Disumanamente (2014) [MP3|320 кб/с]<Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:461BC332FFF958C37DCAB7E32149C3B74B2C9932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Nangilima - The Dark Matter (2014) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:E9F0AD7A3DBC6316E5DA62BD9673C68DC19E850A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ In Tenebriz - Autumn Constellation (2015) [MP3|320 кб/с]<Dark Metal>
 ```bash
 magnet:?xt=urn:btih:5DE3F4799FC2B880D8ED19F08E294C65D2F62FEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Elitania - Templos De Cristal (2015) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:9F988BCF033134768E70407911F8C99AAB7D801A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Thunderfuck And The Deadly Romantics - Sexploitation (2014) [MP3|320 кб/с]<Ha
 ```bash
 magnet:?xt=urn:btih:358E6915ACFE62AED17058BBA5AB8702D2F04883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Cody Jinks - Adobe Sessions (2015) [MP3|320 кб/с]<Country Rock, Americana>
 ```bash
 magnet:?xt=urn:btih:5C8FCA5AEBDC8B981EE78B516D912DDFD3E9A582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Katzenjammer - Rockland (2015) Limited Special Edition [MP3|320 кб/с]<Folk Ro
 ```bash
 magnet:?xt=urn:btih:91CDA3AA6CF8E4271BB832933906AC68CB1AA077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ Eden - Memories (2015) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:D13716A63AD171E48B883FA9CCC8637289CBF9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ EVO - Сингулярность (2014) [MP3|320 кб/с]<Trancecore, Nintendoco
 ```bash
 magnet:?xt=urn:btih:A62C4B6D1667E6711980DEABB950B7F74D3DC7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Battle Beast - Unholy Savior (2015) Japanese edition [FLAC|Lossless]<Heavy Metal
 ```bash
 magnet:?xt=urn:btih:A25824D999F78469C9B5CC04305EC45A77C61A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +420,7 @@ Eric Clapton - Time Pieces - The Best Of Eric Clapton (1982) Remaster, Hybrid SA
 ```bash
 magnet:?xt=urn:btih:FB4A2420824D2479809AB9D8D928EED33494463E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +454,7 @@ Fall Out Boy - American Beauty / American Psycho (2015) [FLAC|Web-Dl|Lossless]<A
 ```bash
 magnet:?xt=urn:btih:10F0EE4477F832A8B07A51EF7F82D02B289E892F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

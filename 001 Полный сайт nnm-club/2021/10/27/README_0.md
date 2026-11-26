@@ -21,8 +21,7 @@ Morthereon - Cultura Mortem (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death,
 ```bash
 magnet:?xt=urn:btih:5323170894396E056BB3DD485B750872DC4B4F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Evergrey - Monday Morning Apocalypse (2006) Remastered 2019, Fono Ltd. [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:C816BE05ACC757E22784BD7C9BE05858B9C8DDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A5CA1EE747D5581C1CF2767DEE6AAF6CDF553A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ PhotoSweeper — отличный способ поиска дубликатов
 ```bash
 magnet:?xt=urn:btih:FFFB3EFD57AB08CAFB8050592E20A00549EBB9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Librarian Pro 7 v7.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:0596D0FD2621739A7218E71FD420024D1C4FA687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Storyist для Mac OS - является мощной средой для ра�
 ```bash
 magnet:?xt=urn:btih:782D87F811541A031065262DF94D60369519701E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86EAF18506313E07367516B93E903F95EC3789AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Sepultura - Dante XXI (2006) Remaster, 2021, BMG Rights Management [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:D9340077E7E37B91F1AA14D1454F813DDD88752C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Fausto Papetti - Musicals (1990) [AAC|~338 Kbps] <Jazz, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:BE4D952C0D498C9BCADFC9DCC09603BD61AE9CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ The Barettas - All Is Fair In Love And Rock & Roll (2021) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:9CEE86850D83DDA57ECC70188C498F2404496D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ September Son - Risen (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Desert 
 ```bash
 magnet:?xt=urn:btih:58D05DA35F94FAC22F9C794C2D9D1E351E5B0C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Ottoman - Heretic (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5AFA7DC7CA4E9628B411971BF99632DEAB3C96FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:847C516D881B356FDFB9348BFA8F73B5910AB449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Portals Of Glory - Divine Alliance (2021) EP [FLAC|Lossless|tracks] <Symphonic P
 ```bash
 magnet:?xt=urn:btih:AF9F53AE006D0D73087D32617A208D620543C233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD4D2DEA4B6634FBD5E652673D115A37E12232F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ Massacre - Resurgence (2021) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:0B3BC0597D9F1475BA5C55FC8342E10249C5D74F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ John Diva & The Rockets Of Love - American Amadeus (2021) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:6135DB7FDBC14BC2394C21BADC39F5213275063A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ DxO PhotoLab 5 ELITE Edition 5.0.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:8A895F5A3FE1383E681CD3910D4506733CA8F768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ CodeRunner - отличный редактор для программиста �
 ```bash
 magnet:?xt=urn:btih:0B005432B264D672C3F189A686C01F92ED799B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE59E87755511B1A10CCC8F650E35C2490186A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7653479E1431018AE59A4C5BC9C83BE56CED293E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19E77C41A5536337397479085B5561CF12A1F66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E69085C58211F239C54ECC5A632620E0C78FD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C5F65EF2841DB1818C2AA6158332B94A51A8415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ VA - Free Floating: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ```bash
 magnet:?xt=urn:btih:4B1B46FB09FE3F86F33A6094E0FCF880F88C18C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0485977FCD2174A8912623042F3F4199AACFB29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

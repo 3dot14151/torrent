@@ -18,8 +18,7 @@ PicturesToExe Deluxe 9.0.9 RePack by вовава [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2DBB2D733B5C49AE522BA1652F33CE0290E34F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01E3F856582319CA838CF029BFACA87DD13DFF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91AACAADB4B5BAD47E1666D69F8D2C7CD826F69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Video Downloader Converter - это программа от Allavsoft, кото�
 ```bash
 magnet:?xt=urn:btih:FF32FD4E3ED41F4C237D7CA17848E272A01614FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E413CE57905580FF5AF401E0346A66A4E248B03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Antares - Sea of Tranquility (1979) Reissue CD, 1994, Mellow Records [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:76123EA299F613B76BDFD33212895420CAA1E85E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Asia - Symfonia: Live In Bulgaria 2013 (2017) [FLAC|Lossless|image + .cue] <Prog
 ```bash
 magnet:?xt=urn:btih:F37BFC91782E7EEDAFBFAF83DB68837AFD0F99B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ BBC: Мир природы - Горы тропических дождей  / Nat
 ```bash
 magnet:?xt=urn:btih:855D6705F76BE9571E582CFB15CF5D8543C2B3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Texas - Jump On Board (2017) Scene [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:BC9A059339CE2003CB0D280CC4721B515E1DDF2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ SILKYPIX Developer Studio Pro  — мощная программа, котора
 ```bash
 magnet:?xt=urn:btih:D7E46D94FFABD207537D5AA60620098E260E1AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ VueScan — программа для работы со сканерами HP, M
 ```bash
 magnet:?xt=urn:btih:70C0E439A47C609194690E294D1EA6233CC25A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ VA - Training Hits 2017 Workout Music (2017) [MP3|320 Kbps] <House, Electro>
 ```bash
 magnet:?xt=urn:btih:EE53F4D0275069B312295E1073FC85958A2B9922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D161EA8C0043FB45D21DC336DC2BACAEF321AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Gente de Zona - Lo Mejor Que Suena Ahora (2007) [MP3|320 Kbps] <Reggaeton, Cubat
 ```bash
 magnet:?xt=urn:btih:4B13901CCB37BEECC02E077CE5CB497ECF0BAB7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:D5C379E53ADEE83A6166EE2364520D4D624DEA9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Gente de Zona - Que Suenen Los Metales (2010) [MP3|192 Kbps] <Reggaeton, Cubaton
 ```bash
 magnet:?xt=urn:btih:0B364A7DA6215B6EFE8DD6C9C2B80908BA2EE4C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Poison - The Best Of Poison: 20 Years Of Rock (2006) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:2EF27B67A9D0C95E5F14C0AE149C92C4DF540BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ Rhino Bucket - The Last Real Rock n’ Roll (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C745AF1F47104E13BC5A0CC5E0886722CF6369F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3935946095A9624F34D21628CB1FB65B4A486227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ Polarr – это продвинутый, интуитивный и многос
 ```bash
 magnet:?xt=urn:btih:187662887987C1B4D5869963DF56D3E6AE433ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ Crazy Lixx - Ruff Justice (2017) Japanese Edition [MP3|320 Kbps] <Hard Rock, Gla
 ```bash
 magnet:?xt=urn:btih:85F090903100EEA1CE21D6BD48E36A39BEEC9244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ Sheryl Crow - Be Myself (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Country>
 ```bash
 magnet:?xt=urn:btih:A098FC99CF64EC752A47B98C49FEABD11EF413A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ Discovery: Братья Дизель / Diesel Brothers (2016) HDTVRip  (1-й С�
 ```bash
 magnet:?xt=urn:btih:4542C7F3FCBCDBA408EE6F945792E5E67C73FB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30A5516639A9774D1B1106B214F92CAB7744AF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9C6D2513B1131B78AB9F1C5C45127369943129B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

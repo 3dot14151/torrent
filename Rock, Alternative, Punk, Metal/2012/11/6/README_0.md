@@ -28,8 +28,7 @@ Trail Of Murder - Shades Of Art (2012) [MP3|320 кб/с]<Heavy Metal, Power Meta
 ```bash
 magnet:?xt=urn:btih:9EACFD033E54194BC2B671B1C6C59820E6862A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Fail Emotions - Speed of Light EP (2012) [MP3|320 кб/с]<Post-hardcore \ Tranc
 ```bash
 magnet:?xt=urn:btih:67A20599685B3AA0F2AB1E14FC98A11964EBCA0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Emmure - Slave To The Game (2012) [MP3|320 кб/с]<Moshable Metalcore / Deathco
 ```bash
 magnet:?xt=urn:btih:63DB082871138410170A70CEBD659CC1FF122C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Dethklok - Dethalbum III (2012) [web] [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

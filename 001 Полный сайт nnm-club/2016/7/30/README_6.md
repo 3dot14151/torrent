@@ -22,8 +22,7 @@ The Bad Plus - Give (2004) Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 ```bash
 magnet:?xt=urn:btih:84EB2B39282AA00C302AC5703C432A751A1B88C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB0319F7E8742CD26AA02C991C9158D1540366B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Chet Baker & Philip Catherine - There'll Never Be Another You (1985) Remaster, 2
 ```bash
 magnet:?xt=urn:btih:5E583444AEC8FEDDB885CDC774D3C53BFC236ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F23B85D3713FFC52F5005DC7DE6F6F13937F235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Dosis - Technoir (Part 2) (2016) [MP3|320 Kbps|image+cue] <Techno>
 ```bash
 magnet:?xt=urn:btih:050B5EDFD3CCC7BD63236A9EA0011EA4C77224A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Howard Leese - Secret Weapon (2009) [APE|Lossless|image + .cue] <Melodic Hard Ro
 ```bash
 magnet:?xt=urn:btih:82DA97ED638720E7B395E55E9F5022E4492284C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CA9539B6884054350901FBF93FE4ACF28C96BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A550F15DEEE2576FD62144D83D0EBA0044C2F8F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCB060F043F96F629F252B24904D3D97D8F352B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Mick Kolassa - Taylor Made Blues (2016) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:00FD351FB6EE84D0EE2776465D1FA31FC70EEF91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Armored Dawn - Power Of Warrior (2016) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:77D7FEBC0CA7324D522FED4F799649BD713E17EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Uplifting Trance Collection Episode Third (2016) [MP3|320 Kbps] <Trance, Up
 ```bash
 magnet:?xt=urn:btih:23A4EB2E305F13B4FD8CCBAD469CE3A91724807F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C9AA2D0D668B5B78CDAE6AE1480F65065D037E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AED4C5B33759AC70EFECA748AB0C4C07434D0BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:542EA10F935E1427B328B7E6EB666677697E3F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ VA - Dance Fitness Playlist (2016) [MP3|320 Kbps] <House, Progressive, Dance>
 ```bash
 magnet:?xt=urn:btih:2B1007304814AF2D0A8CD05BC71AB80536CB08F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:623BA6C5F2A82A26921F24814DB5F0C64558FCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ VA - Package Complete Expand Future House (2016) [MP3|320 Kbps] <House, Future H
 ```bash
 magnet:?xt=urn:btih:8F5C83CA4E1C806082E7E4A202CB5B6E0577556E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:9B07212296333763044A01E1983210C6019065E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0272BC795ADE13F7550CDA14B8EA91A748A7F400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Paul van Dyk - Victory Mix (2007) [FLAC|Lossless|image + .cue] <Trance,Progressi
 ```bash
 magnet:?xt=urn:btih:91A248B1468BC624F07C7F14FDBB39AC7741FDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ VA - Yoga Groove Album (2016) [MP3|320 Kbps] <Downtempo, Chill Out, New Age>
 ```bash
 magnet:?xt=urn:btih:12CAEA74CD332724E16512531D768BA0B15C9C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:F7264F81CD062D9F0616483D79DF2F88BD985CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6814F777781F77D84E43642EA50E370932B88AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ Dropbox 6.4.14 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:29C325EAA38F61E8C81DD51BE52D572295190EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6258CBA4197580D53BF3ADF4ED749DBF1028F4C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

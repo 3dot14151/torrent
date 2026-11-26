@@ -22,8 +22,7 @@ Rotten Sound - Abuse To Suffer (2016) [APE|Lossless|image + .cue] <Grindcore>
 ```bash
 magnet:?xt=urn:btih:DC6411F231D9B29B1664502640BDED9570B47F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Besta - Eterno Rancor (2019) [APE|Lossless|image + .cue] <Grindcore>
 ```bash
 magnet:?xt=urn:btih:41A5151A9734C7DAC4B27F823C8440227383FE05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Since The Death - I Belong to Christ (2022) [FLAC|Lossless|WEB-DL|tracks] <Death
 ```bash
 magnet:?xt=urn:btih:E503ABF0E746BF6E366FE461672B344ECC25FCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sincarnate - On The Procustean Bed (2008) [APE|Lossless|image + .cue] <Doom Meta
 ```bash
 magnet:?xt=urn:btih:1EB583C5D0A5B212E93DA7289DBC60D458E1ADB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Spectral - Autopsy Of Hope (2007) [APE|Lossless|image + .cue] <Progressive Death
 ```bash
 magnet:?xt=urn:btih:8C128C2A7A202A68457D198BEF643A3BD7B10AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dead - A Dirty Mind Is A Joy Forever (2017) [APE|Lossless|image + .cue] <Death, 
 ```bash
 magnet:?xt=urn:btih:17113D3212DBB9EC50261FAD101510A826F75C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Theories - Regression (2016) [APE|Lossless|image + .cue] <Death Metal, Grindcore
 ```bash
 magnet:?xt=urn:btih:F9F9C60BDB77EB2736DC71AA7AC22C4DDBBCF01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Obliteration - Perpetual Decay (2007) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:05E5FAF0B4414E03444DEBC0EF0300B2F38C84E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Yattering - Genocide (2002) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:E38DD909A04EEBD4104D26D1BAED41DBA7CAF9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Ryth - Deceptor Creator (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:927B822B061D0AF421A289B1F03E26A9B52FA03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Spider Mother Earth - Insights of Prophecy (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:98547834947341647561BC52C0A45FDCF8B54170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Skull - Drag Me to Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic, Symphonic
 ```bash
 magnet:?xt=urn:btih:B168B6C73DAB77F736CC210BEE50940F2F429289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ White Cameleon - The Brain Mincer Machine (2022) [MP3| 253-269 kbps VBR (V0)] <N
 ```bash
 magnet:?xt=urn:btih:8F6AE64A214ACB549F7CE33AF664EA5288F91108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Rioghan - Different Kinds of Losses (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic
 ```bash
 magnet:?xt=urn:btih:417A8B89BE15A2EA586899B3922A5247C360DADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Anti-Flag - Lies They Tell Our Children (2023) [FLAC|Lossless|WEB-DL|tracks] <Al
 ```bash
 magnet:?xt=urn:btih:C722AD6CA8673E4998DA92D7DF766CD3C8442398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Concrete Age - Bardo Thodol (2023) [MP3|320 Kbps] <Thrash, Power, Melodic Death 
 ```bash
 magnet:?xt=urn:btih:CF6737C572FB903EA5A2E8E5959164E3BD3E2737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Kornmo - 3 Albums (2021-2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Rock>
 ```bash
 magnet:?xt=urn:btih:37438DE02CFD502750AA83E88DF0E91FCE838EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Dario Mollo / Tony Martin - The Cage 2 (2002) Japanese Edition [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:6054365DCD8CB49438E3133D9D27EFF53775EE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA4FBA27021F4C18A4AF347F35BFBE905D4D6AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Anti-Flag - Lies They Tell Our Children (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <A
 ```bash
 magnet:?xt=urn:btih:F2ADFB409DFD99522532584A01EB13C8831B9FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Iggy Pop - Every Loser (2023) [FLAC 2.0|44/24|WEB-DL|tracks] <Alternative, Jazz-
 ```bash
 magnet:?xt=urn:btih:16BCA8CDEB3C6D36D8E798F3C31E63FC2A7C2319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

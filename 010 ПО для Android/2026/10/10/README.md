@@ -22,8 +22,7 @@ IPTV Pro (Patched) - Откроет доступ к IP-телевидению о
 ```bash
 magnet:?xt=urn:btih:20A34911E1A70E7727845C16FA7C95F06F3531F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Rosetta Stone: Изучение языков 9.2.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9D2EB1D2B720E1869839517BC0270B8E4AFCAD0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

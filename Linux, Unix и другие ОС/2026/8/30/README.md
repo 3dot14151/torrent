@@ -21,8 +21,7 @@ EndeavourOS включает графический установщик Calamar
 ```bash
 magnet:?xt=urn:btih:88D82E58A6100D79FE45F5D4D7F0389436D1FBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Christmas Stories 7: Alice's Adventures (2018) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:C02F51F441409C1C5B9FAE4BBC546A46E1481D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Iris.Fall – приключенческая головоломка, выпол�
 ```bash
 magnet:?xt=urn:btih:752602842CFFBA54E877C8637DF52E64B1789186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rocket League - это аркадный проект, который сочет�
 ```bash
 magnet:?xt=urn:btih:CF8427E8ED4817EDEDC41233EBA123BC3B87B63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Treasure Hunter Simulator (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:703CAA7C41927B02654AA347F2E432DFBCDB11CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

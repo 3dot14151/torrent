@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:A0C0D3335B80854D89422FE8F85A646A498D96E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Pink Floyd - The Wall (1979) 2LP remaster /2012, EMI Records/ [FLAC 2.0 24/96|im
 ```bash
 magnet:?xt=urn:btih:8CBA510ACDC3DE4FAC7D964D4A873FCACF8E4B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

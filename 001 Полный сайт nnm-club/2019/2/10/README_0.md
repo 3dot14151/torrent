@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DD207922BDFD46912C83E5D467C390FEDE4A7478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F5A2FCA3C2202A4D15B23E0F890175CAF5B75F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Drum and Bass Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Drum and
 ```bash
 magnet:?xt=urn:btih:D16A69D351E3F0AA2BB8AB0B021CAE491EC36EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:E4661525A293EA587D2C49119FD3849BDA965D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Butterfly's Eyes: Trance Project (2019) [MP3|320 Kbps] <Trance, Progressive
 ```bash
 magnet:?xt=urn:btih:D066CFC1F482ECE454B8E426317B0A38260F5AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D523A7763DF7AE74EF22C227A08F5F02D27384BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8309EBACEC25513C4576C9164DA8B46F93B24FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53187A44FA925F11405D534E4A01304BF4A3CB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DBB336A6B07A9DBDCFC537556F376D8BE536917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B311A5DF79DDA30858C1F8A7467E222F78DFAF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ VA - Just An Illusion: Hard Rock Songbook (2019) [MP3|320 Kbps] <Alternative, Ro
 ```bash
 magnet:?xt=urn:btih:51D3325C59A3C288A1849FD293AAD26B294A72AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Wirecast предлагает доступное программное обес
 ```bash
 magnet:?xt=urn:btih:98CDE247AF14740A9BB4B9D6E017C03B4C43C8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Island | Остров [2018, TV, 12 эп.] WEB-DL 720p raw
 ```bash
 magnet:?xt=urn:btih:A2FB4B1FD7FF17ADC676D2D51A8E99CD38E39579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:81E02A6228CDA5C25FBC75FB132605A18B7ECD93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ VA - Record Super Chart 573 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:497083C3C7C25B6448D812DD46EB1109866AF89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ VA - Rapper's Delight (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:BD017205C4B64C83CC73C034B43D5DC71319E633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ HyperSnap — инструмент для захвата изображения,
 ```bash
 magnet:?xt=urn:btih:A07D57F48C3FF1337E45AFAE19647B624636A4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90845D098EE97FE31BF51016A17999C4FD19446D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ Sopor Aeternus - Death & Flamingos (2019) [MP3|320 Kbps] <Darkwave, Gothic Rock,
 ```bash
 magnet:?xt=urn:btih:07FA4AA5AA2A946EAD5A3E228F07BE6C98115133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ VA - Disco Night Fever (1979) 3LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, 
 ```bash
 magnet:?xt=urn:btih:D7A2A6B81C6D2D77219AB4023366E10BE4038FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:9B489DFF1A7A659110250056A264EB3D40CC897E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:A33228DDB8D9116991C9243E2C8D46013E081314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ TunesKit DRM M4V Converter - лучшее и самое быстрое прог�
 ```bash
 magnet:?xt=urn:btih:57FA08CB4063D7E492970EE43B311C3D30AE01F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ Ark and Neo | Подкасты (2014-2018) [MP3] [En]
 ```bash
 magnet:?xt=urn:btih:25AEB0A8D28023002E700FBE8104D40E38BCD1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ VA - Dark Thunder Riddim (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
 ```bash
 magnet:?xt=urn:btih:6D07F0583F70DB754B09925A5BA26AB1A08048E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BAFA296BA46E9268B58B4B101FF686E85A0FA8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

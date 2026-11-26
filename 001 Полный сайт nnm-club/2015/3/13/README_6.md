@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9A3741901278D9FAFB9DFC64E2FFC8BFAEDE6DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legends of Dawn – ролевая инди-игра, действие кото�
 ```bash
 magnet:?xt=urn:btih:8F922A6411C18473ACB757B85DBA6DFFB3B9E020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Sid Meier's Starships (2015) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:DB1C7070176A44D5F4E65AC3C02F678DEF84E8F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ SPB Shell теперь от Яндекс. Пользовательский ин�
 ```bash
 magnet:?xt=urn:btih:86B60D71D32AF7092811622536F0E08D6426E026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ MInstAll v.11.03.2015 By Andreyonohov & Leha342 [Ru] (Авторская раз�
 ```bash
 magnet:?xt=urn:btih:61D84187F32A98FDC0BA8A454AAA8D542F3B82F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07E0B0E417C02CD551A29A5ED9E6BE1C2C7FC4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D097737A74C65D4091C2207EA6FA5D1BB0EB223A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ XVIII век, Северная Америка. Среди хаоса и наси
 ```bash
 magnet:?xt=urn:btih:11F54CD32ACB26B83E44E403F43725E560669005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:540F1670233F060B0AC0A40C5B1C217AD8E17832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99484C14FFB850919980782CF6DCAEFE8A3C8906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Far Cry 4: Valley of the Yetis / Долина Йети (2015) [Ru/Multi] (1.9.0)
 ```bash
 magnet:?xt=urn:btih:64C74E21F2217A9880BAD02260AFBFB06BD94931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:749B3EB12CE35E3FD44C803422690CBE830678BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:E32A104B2FCB92AA2F422267A9B7D3002CAE5C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05B9C63914A5DA302EAE2BB18AC31E1652312FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91FED868DBE6FB1FF9161FE52398E7A17F9172AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFA93E7E12F4D52841737F27DD3642BA9F1911FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2AA454130F06F394D6A11AD771BA2EEE9CB7DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ VA - Amsterdam Trance Club 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:B646E52B971B36952F3EF93A3600635DDE56C8A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ Architrav - Marode (2013) [FLAC|Lossless|Web]<Dark Ambient>
 ```bash
 magnet:?xt=urn:btih:DADB461E51A1E33D9EAFC76C3A436271ACD5027B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE155DE0B1198E02430BC17983A361F501ED2B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ VA - Exclusive Wake Up Melody (2013) [MP3|320 кб/с]<Trance, Progressive Tranc
 ```bash
 magnet:?xt=urn:btih:B9CCB9647740BAB936FFED3A66A8CE2774B3FF0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ VA - Club Sounds Vol. 67 (2013) 3CD [MP3|~245 кб/с (V0)]<Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:6515D0E53B394A21AAB94F763B987C50B7DE2A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ NFOPad - маленький, гибкий и простой текстовый �
 ```bash
 magnet:?xt=urn:btih:5950BC329783905E367807D5A3BD39AD258F3414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79F2629C159E29A912847C275B5D0F75DA5301DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ VA - Armada Top 15: November (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:23EEBE2732118C740C076FA11BA0A6C06612DBFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D51B75AAF00DD77C5540FDC3785B9FF46D4C46B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EC72BE3C5E9AB9BBCCF16655EF65DFA719A2C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BA681BBE1B504F5A93D10E4804C9E265945B3B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ Tectum - Inner Voice (2013) [MP3|320 кб/с]<Psy-Prog/Full On>
 ```bash
 magnet:?xt=urn:btih:147C0A138B08B9DEA3DCBE265B8A110EFA4B0A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECDD00879A916F0D2F7CA12D8EEBCCD5D8F2AC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF3FC86E1F36F99834A615FF5B2A141C162B14D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CC6FB88BB6CD5F6C2B8BBA068A6651C3C270AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95E28B9B6A5449145ACEE5CF0A7D30A6D6914538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +653,7 @@ VA - Monster Tunes - Amsterdam 2013 (mixed by Photographer & EDU) (2013) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:57D2A23076D51A72334122BA7ED84BEC93F65148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +687,7 @@ Bee Gees - Bee Gees' 1st (1967) Repress /2004, Polydor/ [MP3|320 кб/с]<Pop-Ro
 ```bash
 magnet:?xt=urn:btih:736D21E5A7A2F2E96819B344D8753F5126E145E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA699E84432AD9708C04A8B50293761264512897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +746,7 @@ Ike & Tina Turner - The Blues (2013) [MP3|320 кб/с]<Pop, Rock, Soul>
 ```bash
 magnet:?xt=urn:btih:097526ADBB391C15C215D53237F3848B1E919764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

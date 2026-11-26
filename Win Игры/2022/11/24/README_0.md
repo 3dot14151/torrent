@@ -19,8 +19,7 @@ LEGO Batman 3: Beyond Gotham (2015) [Ru/Multi] (1.6/dlc) License GOG [Premium Ed
 ```bash
 magnet:?xt=urn:btih:B6F01B875408ECC1B91D1C7DE1B9A4D3BC75D376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Goat Simulator 3 - очередная абсолютно бестолковая 
 ```bash
 magnet:?xt=urn:btih:DF59E6D37671C747948E6739CDC3CE44AF6BA4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (53106) Repack Other s
 ```bash
 magnet:?xt=urn:btih:BD964F629F62252C1C9AE20CF6327DF6702CCA5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

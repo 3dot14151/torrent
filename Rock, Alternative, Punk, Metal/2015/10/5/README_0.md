@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:16D32203CADF13D134CB2EDC4F4E4EF5753EA5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Deathdefier - Transformator (2015) [FLAC|Lossless|WEB-DL]<Instrumental, Technoge
 ```bash
 magnet:?xt=urn:btih:72AF0BACE8AA8F64F36885B3E9AEF04FAE9D15EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Children Of Bodom - I Worship Chaos (2015) Limited Edition [FLAC|image+.cue]<Mel
 ```bash
 magnet:?xt=urn:btih:CA574371653F6E589DCA941EA9FDFCC49703DC09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Clutch - Psychic Warfare (2015) [MP3|320 кб/с]<Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:B5EB7101F3018D8842B6A5F8915D05EDD839996B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1666947D3FD32845F48667FD912722165D57B5F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

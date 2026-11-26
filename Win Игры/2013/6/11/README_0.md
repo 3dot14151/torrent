@@ -19,8 +19,7 @@ Shiver 3: Moonlit Grove Collector's Edition / Дрожь 3. Души леса. �
 ```bash
 magnet:?xt=urn:btih:2BDC094A4559B3C26D26CB9B1D5D8BEFD963DB26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

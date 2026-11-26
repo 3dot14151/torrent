@@ -19,8 +19,7 @@ Remini - Улучшение Фото - обращающая на себя вни
 ```bash
 magnet:?xt=urn:btih:1887B668DD4A2474829558051DBCBBEC14332829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

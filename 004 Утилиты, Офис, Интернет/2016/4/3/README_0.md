@@ -19,8 +19,7 @@ Paragon ExtFS for Windows® Professional - это уникальный инст�
 ```bash
 magnet:?xt=urn:btih:1A46FC711469D5DBF25C2871030676FD7606995F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

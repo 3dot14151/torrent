@@ -22,8 +22,7 @@ N.Y.C. - Built To Destroy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:52DF3DDB1CC7097A2106CCAE5A12612305017A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blackbraid - Blackbraid II (2023) [FLAC|Lossless|image + .cue] <Atmospheric Blac
 ```bash
 magnet:?xt=urn:btih:7A09DA8C518970FED871B2031A693A51E9459B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blackbraid - Blackbraid III (2025) [FLAC|Lossless|image + .cue] <Black Metal, At
 ```bash
 magnet:?xt=urn:btih:92723E3EA461706E695A337B993C6832D30B9F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

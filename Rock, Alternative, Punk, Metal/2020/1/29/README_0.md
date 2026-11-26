@@ -22,8 +22,7 @@ We Are the City - RIP (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternat
 ```bash
 magnet:?xt=urn:btih:CD839E77BE42B31E8B090DAA275A11BB3ED4D589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ TORRES - Silver Tongue (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alterna
 ```bash
 magnet:?xt=urn:btih:24514E825593D651AB991E1B6F42AF699F401C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dangerous Curves - So Dirty Right (2018) [FLAC|Lossless|image + .cue] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:481E49C0A732522A5733B2F4777E66C39E368326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Darkstar - Marching Into Oblivion (1996) [FLAC|Lossless|image + .cue] <Instrumen
 ```bash
 magnet:?xt=urn:btih:8428E0ED2FF57124FC0CDFAAA5CDBD5222CD98EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ark - Ark (1999) Reissue, 2000, Avalon [FLAC|Lossless|image + .cue] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:A14588A49ABC3D40968F87139C74130B0972A222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Marko Hietala - Pyre of the Black Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Sy
 ```bash
 magnet:?xt=urn:btih:66E5CAC057E219C089FCAF712BE7C8A07C3C4DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:249065F5FE832ECD1E5DF920159B81EEC9362EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:D5F1516DCA85F290D71AFDEDFC54A06874EF247B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:E59F57C056959CD1E5C6EE4E7E21B7DC173DA93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

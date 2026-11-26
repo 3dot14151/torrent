@@ -19,8 +19,7 @@ Harmony: Музыка и Ноты – это игра-головоломка о�
 ```bash
 magnet:?xt=urn:btih:15312011776C66EC3C84EBB500CAD3F4F448A651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

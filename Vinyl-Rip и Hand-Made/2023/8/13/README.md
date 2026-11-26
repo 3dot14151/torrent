@@ -22,8 +22,7 @@ Orphaned Land — израильская рок-группа, объединяю
 ```bash
 magnet:?xt=urn:btih:3EFCC2A565AE0D72AEAF067B350E52991FB88680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

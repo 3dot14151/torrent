@@ -19,8 +19,7 @@ Airhead отличается от прочих метроидваний тем, 
 ```bash
 magnet:?xt=urn:btih:937AB1F4D69E539798654FA8CDBAF39E404563DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Skydance's BEHEMOTH - это оригинальная история, дейст
 ```bash
 magnet:?xt=urn:btih:84763FD3D3ECB90C8FA4F3BEF0974486492F4857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Car Mechanic Simulator 2021 - симулятор механика, позвол�
 ```bash
 magnet:?xt=urn:btih:648494B8AED1FC596B4D3DB761A01CCD8E28F547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Metro Awakening - это разработанный специально для 
 ```bash
 magnet:?xt=urn:btih:09C06B216EF88817FC4E1BFDBAE2629B11C32C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4936A6B34751401F5BA1212350B32C126F75F469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ AquaFantasia (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2B1B4FA790D80F325F746721DDED3BCDB169F376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Heart's Medicine - Hospital Heat - это долгожданное продол�
 ```bash
 magnet:?xt=urn:btih:86392DCC63C4554219849DF992626E33DACB52A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Your Android (2025) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BFD95E6A62120D7A526F506B67042340B154902B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Ultimate General: American Revolution (2024) [Ru/Multi] (1.0.3/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:4B9581F4880F2F4B28DE30A290B0E2F1079CD3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Age of Darkness: Final Stand - это стратегия в реальном в�
 ```bash
 magnet:?xt=urn:btih:1A2F7C4BDC88DC6F18AA618837F1C03D4077EEA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Beat Hazard 2 – продолжение яркого представителя
 ```bash
 magnet:?xt=urn:btih:B85D327929C7BC70FAD33D248880CC1EB09155FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack FitGirl [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:4410FE85B6D4D13ABA97965CE87B4ACFAE9D9202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Pocket Cars (2020) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:852F038EF5E01D0D1502BFA474FA27AA71519DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Catizens (2022) [Ru/Multi] (1.0.r153) Repack FitGirl [Game & Soundtrack Bundle]
 ```bash
 magnet:?xt=urn:btih:187CA3AA105A776654DD6EB007A7DBAF95545254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

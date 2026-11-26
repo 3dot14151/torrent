@@ -21,8 +21,7 @@ Seasoned trainer Dawid Borycki presents Modern App Deployment with Microsoft Azu
 ```bash
 magnet:?xt=urn:btih:AE94491C45F9D173A37540D0A12946877347070C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68F59AD03D02E5A280B616832649EC45A1D77493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90254B027A43E327F142769D20957090044BC9B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F571EE77DEB9BC3B68B94B0EB5C2925B6B90BE70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ The Eighth Edition continues (   Читать дальше...   )Жанр: Intr
 ```bash
 magnet:?xt=urn:btih:B24FD895703863BBA07D1E682BCC370CCD267AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ From your Facebook News Feed to your most recent insurance premiums―even makin
 ```bash
 magnet:?xt=urn:btih:2C2FE30B246A269C7BEC8F155B922D61CD50ABE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE29E709B49D4C17DA2A560ADD32FDC953EFD026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Welcome to .NET MAUI Fundamentals: Your First Step into Cross-Platform Developme
 ```bash
 magnet:?xt=urn:btih:2BFC1993BC867DCE00B7735A52274EA2BFFBF6E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Stack Overflow | Blender. Самый подробный самоучитель. 
 ```bash
 magnet:?xt=urn:btih:449ABE07CD0618A9BEB43845CA0C64C0A02E184E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA8C10E3C104943452ADFC67C9580322A9022294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

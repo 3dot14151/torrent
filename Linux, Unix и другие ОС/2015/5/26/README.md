@@ -19,8 +19,7 @@ Fedora 22 Live (KDE, XFCE, MATE Compiz, LXDE, SoaS) [i686] 5xDVD
 ```bash
 magnet:?xt=urn:btih:DBC0BCA9AA347F62DC5A681E391D12D1A14C45D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fedora 22 Server + Server netinstall [i386, x86-64] 2xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:240E717F8C87349EE01F762182EA75B5D010733D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fedora 22 Workstation Live [i686, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:6338FA3909CE051AE4380F0F480E238B1E51DAFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

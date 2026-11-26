@@ -21,8 +21,7 @@ VA - New York City: Deep House Rhythms (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:D4C2DB8252341591D7A530838A9CF7A7E55369DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Sonny Rollins - The Cutting Edge (1974) 1990, Universal[FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:2BD234D207A7C7F36CC217EB8DCFB095CE0A3DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Hteththemeth - Best Worst Case Scenario (2016) [MP3|320 Kbps] <Avant-Garde Metal
 ```bash
 magnet:?xt=urn:btih:BD0A671E5EB6ECB8F4AF8EC151DD631F6DF6B4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ CD1 - Topsy:
 ```bash
 magnet:?xt=urn:btih:EEE8BF617BA193C819E1F0C5292A464C44672C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Airwave: Trilogique (Trance Edition) (2016) [MP3|320 Kbps] <Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Getting Deep Vol.7 (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:C08097401DDF2D888CFECACC0082A4555E217AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Krzysztof Lepiarczyk - Art Therapy (2016) [FLAC|Lossless|image + .cue] <Crossove
 ```bash
 magnet:?xt=urn:btih:71889F0A693D31F8899BD7478B78693A6EE10BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Speed of Lounge: Road Trip Selection (2016) [MP3|320 Kbps] <Downtempo, Chil
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Chillout November 2016: Top 10 November Relaxing Chill Out and Lounge Music
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33D244C166D61EB49B4EBB39B1270C259250974A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Paul Di'Anno's Battlezone - Children Of Madness (1987) 2016 Japan Remaster [FLAC
 ```bash
 magnet:?xt=urn:btih:C48C51C69499420725307F975B9C624680EE687F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ Overland - Break Away (2008) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AO
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5E4C8A09C3AB74AF470269EC5FBDCDB78A10F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Bulletrain - What You Fear The Most (2016) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:BE1F41FBDB427EFBC35CF2EF01E4612C9B742B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D05A165C1A93AA2AFC9E037DA100CAFBF1F45C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Andrew Lang - Visions (2016) [MP3|320 Kbps] <Progressive House, Progressive Tran
 ```bash
 magnet:?xt=urn:btih:35B239F8E5A27D29F469DAE5898584E517C23EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ VA - Best Day 50 Hits Ways (2016) [MP3|320 Kbps] <Future Bass, Nu Disco, Latin, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ VA - State Of Trance Civilization (2016) [MP3|320 Kbps] <Trance, Melodic, Uplift
 ```bash
 magnet:?xt=urn:btih:512E38B4F8AA74FC9E98B844C6F4BD32825164AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5629E7A39CCD7055D07C5462EE05B2B593DE3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ Chuck Mangione - Classics Volume 6 (1987) 1990, A&M Records[FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:58E2721FFA23C5AA66D6897B2AB582EC088EBCCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA23D2441E6365E84D634028CF83729FBA99F596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAC8C27462190ED4375326A823CAFD4A3870540C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ VA - Попсовая соточка от Хит fm 4 (2016) [MP3|256 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:527E68AFD8682EEF4B3EFD96A0856E7795594924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ VA - Fifty Shades of Lounge Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:AC3B9CE2EBE4AB02C7F178D823A6D3D6DC2471E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D9C83913E8BEACCF3D9C68EF164C3C2560DF96F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ VA - Latin Hot Party Maria Bonita (2016) [MP3|146-320 Kbps] <Latin Dance, Pop Fo
 ```bash
 magnet:?xt=urn:btih:478F3B9625667BF8002E7A6029553DBA2EADCDAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Woodshop News — издание представляет самую после�
 ```bash
 magnet:?xt=urn:btih:46497E05BDB767CD3D7221F4A8F5F8F9EF2F926B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

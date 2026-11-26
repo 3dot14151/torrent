@@ -22,8 +22,7 @@ Existence - When Tomorrow Comes (2016) [MP3|320 кб/с] <Thrash Metal, Death Me
 ```bash
 magnet:?xt=urn:btih:EE459CF99AB0582BFB5997F5FD4EC2EA69059768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mourning Wolf - Duskfallen (2016) [MP3|320 кб/с] <MDM>
 ```bash
 magnet:?xt=urn:btih:62D14D1284D11FED0CD9CCE4F1C072430D449CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dany Lademacher's Wild Romance - Out Of Heaven (2016) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:83C65EB75C133003E1ACFDEF018DEE579167D1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Unruly Child - Worlds Collide (2010) [MP3|320 кб/с] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B54F55884D98605DCB130D45CB6F5576615A8A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bonham - Mad Hatter (1992) [FLAC|Lossless|tracks] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FB6065D9B3863E749E85BF096E42FEC946C074DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Treatment - Generation Me (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, G
 ```bash
 magnet:?xt=urn:btih:D0B1CBB6626935C284A10D5A881FD135537451FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Birth Control - Here and Now (2016) [MP3|320 кб/с] <Progressive, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BA6DF07EA26BC381D8B272E33083BA2330B5ADC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Power Tale - Урфин Джюс И Его Деревянные Солдаты (
 ```bash
 magnet:?xt=urn:btih:1D67C777E67FD14C6A9E18D7FFE10FA31691DA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

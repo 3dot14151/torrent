@@ -19,8 +19,7 @@ Maze of Realities 2: Reflection of Light / Лабиринт Реальносте
 ```bash
 magnet:?xt=urn:btih:EA3E2F6A58521C790DB7127B1226C0100F601AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Noelle Does Her Best - пиксельная японская ролевая иг
 ```bash
 magnet:?xt=urn:btih:E7A62D28863342347484DA9F5820ABF26CF62268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Starless — это стелс-экшен, где вы в роли одной и
 ```bash
 magnet:?xt=urn:btih:C78B0B55F5A1F6D883F06E0BBD9FEF5190447033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Best Month Ever! (2022) [Ru/Multi] (1.0.0_020) License GOG
 ```bash
 magnet:?xt=urn:btih:4AD6A273BE002B589C2715BC5E59021EE8B661D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Are You Smarter than a 5th Grader - это очаровательная юмор
 ```bash
 magnet:?xt=urn:btih:0D187E4EF812C559C160E9B2B72E666DB44DA40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

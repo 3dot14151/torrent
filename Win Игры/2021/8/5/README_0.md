@@ -19,8 +19,7 @@ The Forgotten City — это детективная приключенческ�
 ```bash
 magnet:?xt=urn:btih:3514A427D401D05F3BBB8C3627ADF51E066A0007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

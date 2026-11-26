@@ -20,8 +20,7 @@ Lindemann — метал-проект, образованный 4 января 2
 ```bash
 magnet:?xt=urn:btih:7060F8A74B2559AFB208A06482390AC0A41CCF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

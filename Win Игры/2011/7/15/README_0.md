@@ -21,8 +21,7 @@ CivCity: Rome — новаторский симулятор градострои
 ```bash
 magnet:?xt=urn:btih:02F0AE705D08BAA79EC0C2A604C6EA9C04388795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7941F89DF228AC48E0E99594BA47A3AC7AC16F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Nancy Drew: The Phantom of Venice / Нэнси Дрю: Призрак Венец
 ```bash
 magnet:?xt=urn:btih:FB31964FDA4131E88A74926C996C5A9FC732E8D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

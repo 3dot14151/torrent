@@ -20,8 +20,7 @@ Egypt 1156 B.C. Tomb of the Pharaoh [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:8583066517A02255F49D331B5615F849AA85D6A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

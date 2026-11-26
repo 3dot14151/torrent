@@ -20,8 +20,7 @@ Nero Burning ROM 2021 - позволяет записывать диски CD, D
 ```bash
 magnet:?xt=urn:btih:731FADEA0827FC474F59693A287687BA9C51878D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

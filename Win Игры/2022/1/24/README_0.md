@@ -19,8 +19,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (1.08) License GOG
 ```bash
 magnet:?xt=urn:btih:16EE93DBDC621A8378A0E50A361182DA2FC35B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

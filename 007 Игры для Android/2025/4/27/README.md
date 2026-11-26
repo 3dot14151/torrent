@@ -20,8 +20,7 @@ World of Goo 2 v1.0.25042604 [Ru]
 ```bash
 magnet:?xt=urn:btih:833716CDA763CE5A425B192B16ACC92005DD34CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8A3FDBEA5867788CD9291C87347E1C0C6F3ABC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

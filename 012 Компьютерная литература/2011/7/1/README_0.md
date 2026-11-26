@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:959578EC963643702CDF1366C2461CB1F0C5DA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14A1F9EFE0B05DDBB402658EB7FC05F5DD09CE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Scott Kelby | Professional Portrait Retouching Techniques for Photographers Usin
 ```bash
 magnet:?xt=urn:btih:ADE6B45857687C252FEE027E1F7FA39F801D327A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Torment of Whitewall Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:DA8DA63616D55C0B47B19E6A02FB47AA2C3CE465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Building the Great Wall of China /   Возведение великой кит�
 ```bash
 magnet:?xt=urn:btih:99849AA409A06E5969C30BC99F11D58E78C96DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Mass Effect Dilogy / Mass Effect Дилогия [Ru/En] (RePack) 2008 - 2010 | R
 ```bash
 magnet:?xt=urn:btih:6AF81BB2F3593C948C93EA554C79DF62E53A70E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

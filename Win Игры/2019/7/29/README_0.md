@@ -19,8 +19,7 @@ Chimeras 9: Wailing Waters / Химеры 9: Кошмары Чёрного оз�
 ```bash
 magnet:?xt=urn:btih:86C51862094FDA15FE5067336976746629A111B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LOST ORBIT повествует о космических просторах. В
 ```bash
 magnet:?xt=urn:btih:E568CC7BE25DC5160EB82D2DE5FBCCCF92C33CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Valiant Hearts: The Great War (2014) [Ru/En] (1.1.150818) Rip West4it
 ```bash
 magnet:?xt=urn:btih:E7EB907602B175E336205CDF6E0B7506B644158D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Valiant Hearts: The Great War (2014) [Ru/Multi] (1.1.150818) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DB12F31A9C0B966707F0BB9B6A76BC2E3F826C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

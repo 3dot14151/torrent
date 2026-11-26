@@ -19,8 +19,7 @@ Contra - Hard Corps 1.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:55C65609B1AA0EB21B53F8414689A7B642DF5AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

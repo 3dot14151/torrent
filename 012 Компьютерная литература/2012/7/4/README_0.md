@@ -20,8 +20,7 @@ ABBYY FineReader — это система оптического распозн
 ```bash
 magnet:?xt=urn:btih:487EF6F8254B18EEC7501F8E56EE017AC89398F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FC2DE03A32CD2DED0B72A3B2EA2EE5215407A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

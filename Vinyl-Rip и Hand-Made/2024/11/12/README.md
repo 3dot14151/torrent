@@ -23,8 +23,7 @@ Blind Guardian — немецкая метал-группа, образован�
 ```bash
 magnet:?xt=urn:btih:16B3C75E32148359B23793D347F09EC6C8C2B949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Kreator — немецкая трэш-метал-группа, основанн�
 ```bash
 magnet:?xt=urn:btih:2E766A677B505A92D94E77AB6748E446F2DB29AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

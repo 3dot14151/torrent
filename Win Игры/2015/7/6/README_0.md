@@ -19,8 +19,7 @@ Boid - классово-ориентированная стратегия в р�
 ```bash
 magnet:?xt=urn:btih:ADDBEF749056D6EE6994F54B9137090E5FFFC17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

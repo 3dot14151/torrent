@@ -22,8 +22,7 @@ VA - Sidewalk Bistro, Vol. 2 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:313D7CAD5F6211C16F0D8446BF4E25EDDB53BBED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Sidewalk Bistro, Vol. 3 (2016) [AAC|~328 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:F1328FBB3663BCC0CCA48AF6C70E8BECE35CE729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ AYBO 1.21.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:383AF694A4D3C7AE6F7A60305FCE0D3463756DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Omni Recover для macOS позволяет восстанавливать уд
 ```bash
 magnet:?xt=urn:btih:C48137FF0E9BEAFF08E2AA825346EE1F65375E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Bart&Baker - Electro Swing Stories (2016) [AAC|~325 Kbps] <Electro Swing, Nu Jaz
 ```bash
 magnet:?xt=urn:btih:12822EFC275E3CAD0B045D8C13F978272470C7D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - Sidewalk Bistro, Vol. 4 (2022) [AAC|~332 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:35D6CBFC7902E8AFF0A1892623C8AF9CBC0575A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Bart&Baker - More Electro Swing Stories (2016) [AAC|~316 Kbps] <Electro Swing, N
 ```bash
 magnet:?xt=urn:btih:6B33107D0E4920CBE911164896975F6B672104C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Mirror for Toshiba TV 1.1.3 [En]
 ```bash
 magnet:?xt=urn:btih:5CD21B1D8236F6A2B1E795AFC2494C83DF0E3C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ GoodTask — это элегантная и мощная «напоминалк�
 ```bash
 magnet:?xt=urn:btih:591F69BB25792748AAC84B2202763E849F17458E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Swing Republic - Electro Swing Republic (2011) [AAC|~309 Kbps] <Electro Swing, N
 ```bash
 magnet:?xt=urn:btih:475A9C98571E25E74D9FC3A83CF1FB6A3A4AFE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ XCOrganizer - это инструмент, который позволяет л�
 ```bash
 magnet:?xt=urn:btih:F34EC766447225BB896EEA7ADD85B6CA29A8EF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Lamuzgueule - Iceberg Club (2021) [AAC|~326 Kbps] <Electro Swing, Nu Jazz, Broke
 ```bash
 magnet:?xt=urn:btih:BDBE878C7013B12825D2753AE4155FEC38981A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 2 (2015) [AAC|~332 Kbps
 ```bash
 magnet:?xt=urn:btih:4168DE88A6F2A3D4B1D8AB3A12644C676AF6EAA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Money Pro сократит расходы и покажет полную кар�
 ```bash
 magnet:?xt=urn:btih:522A525D9095BA72C8CD3CE987AE315A6476A570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Swing Republic - Mo' Electro Swing Republic - Let's Misbehave (Deluxe Version) (
 ```bash
 magnet:?xt=urn:btih:7D7AFA72F7C2500B833C790C9F4A1559DCB42274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ SyncBird Pro - это файловый менеджер iPhone, который �
 ```bash
 magnet:?xt=urn:btih:DC562EC2CF7DA8D4A7C1149C4EE61EA738799668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ VA - Sidewalk Bistro, Vol. 1 (2015) [AAC|~343 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:1B882254B777AD5E2191F03395DDFD76A44B2575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Valentina Studio - это идеальный инструмент управле
 ```bash
 magnet:?xt=urn:btih:4F9B38C517ABBD38AB0A37B385A6A6029CF662B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 1 (2015) [AAC|~313 Kbps
 ```bash
 magnet:?xt=urn:btih:2F4EE4C5908535B669175655B3CBD509960E9438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ```bash
 magnet:?xt=urn:btih:91C2BD61ECB59CAA7CC0E1579BAA35207E76B6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Omni Toolbox - это обширный набор инструментов дл�
 ```bash
 magnet:?xt=urn:btih:EAD860C065BCBAB0101EA4514086748B8E235F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ Battery Indicator for Mac 2.12.2 [En]
 ```bash
 magnet:?xt=urn:btih:3CE6EA1E68ADF0D20585087A0E19AD4DE6A0655C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:D721AAAD4A42B7DCD462C88054DC5B3F8CE3E15C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ AYVY 1.19.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:397A3E4A3A36E05562B6560ACFD60A909FB12D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ Paw (HTTP & REST Client) 3.3.3 [En]
 ```bash
 magnet:?xt=urn:btih:1DCFB815C6EEC99B237503EBF3A5E37293D42583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ CD - 1 - 2018 Automata I EP:
 ```bash
 magnet:?xt=urn:btih:A50B592E1DE4E16DFD60A2B0722949C6D33D9B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

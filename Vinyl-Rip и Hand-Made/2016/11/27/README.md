@@ -22,8 +22,7 @@ A4. Bad Man (3:49)(   Читать дальше...   )Производство: 
 ```bash
 magnet:?xt=urn:btih:FA475E5CE2F3EEFAF18C64652D1AB21CF0516EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

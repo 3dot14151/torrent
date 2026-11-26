@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:1B8F9BCD3EEEF16441EE6598A738A0718166544C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Flume - новое приложение для просмотра контент
 ```bash
 magnet:?xt=urn:btih:D85032E4CD3EDFD492B6D3409E0A8344C53964F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Damien Dubois - L'instant sacré (2018) [MP3|320 Kbps] <New age, Relax>
 ```bash
 magnet:?xt=urn:btih:B62521898AED1196A9ADA6D06C56C949C3D0B4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7693FC9214B6353DA56AEC9E3DE96AA4D346BD8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4266091BAE175354032F31F587C5DC2C0C44EBC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Coolmuster Android Assistant — программа предназначенна
 ```bash
 magnet:?xt=urn:btih:3DB01116492BB0BE030357DDAD668E8AFDABAE5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B192FFB6AB9BFFEE949C6AC57CF1E4730195E4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C92009237736D34C8DC36E73BD6422AF490C031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD4DF775765FD36142FE56C52007D2D3F73516CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A61AE86F86E800847C9933CABC0C104A74EDF642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ BCee - Magic Words (2018) EP [MP3|320 Kbps] <Electronic, Drum & Bass, Liquid fun
 ```bash
 magnet:?xt=urn:btih:11E0E13B01B26C63A2EE9115FFE2DC372C20F76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41CF6C243FBA8C620EC4D12330F079EFDBE480D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Czeslaw Niemen - Czas jak rzeka - Zlota kolekcj (2000) Compilation [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:5E8456BCAC0AF7FA4311951013EA5E78E1D18F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:2E1F2CAFFC13364462AE2CF3436A8CF781C31213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ A Perfect Circle - Eat The Elephant (2018) [FLAC|Lossless|tracks + .cue] <Altern
 ```bash
 magnet:?xt=urn:btih:83D58CB6A56BBC3FDC48FCA16033BE2CCDB9CD18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ R-Drive Image - отличный инструмент для создания ф
 ```bash
 magnet:?xt=urn:btih:469A186481AAD8EC94E28BF841D22BA7DCDE8A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Rider позволяет разрабатывать приложения для 
 ```bash
 magnet:?xt=urn:btih:4D7E86B1FBF2A26ED07B464264ED7765D5AC073C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ VA - Extend the 80s - Hits (2018) [MP3|320 Kbps] <Pop, Disco, Rock>
 ```bash
 magnet:?xt=urn:btih:694658381609FD940D21AC300009F14AAF32105D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3683C428B04032C8633976BB88A856A6C625DFF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ VA - Unknown 80's (part XI) (2018) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop
 ```bash
 magnet:?xt=urn:btih:B833D86056DD5AD61431B48E9DE6345D3600CD64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ VA - Back To The 80s (2018) [MP3|256 Kbps] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:D53F34D4FFBA905EAC9E53AFE7B146B683CF1C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ History Channel: Охота за трансильванским золотом /
 ```bash
 magnet:?xt=urn:btih:D7767D01123F4D8C7017CE920CF5B4B60C808CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B403AC4600EEF980E62D2FABB67D44B2D1FE05B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ Gakuen Babysitters / Школьные няньки [2018, TV, 12 ep] WEB-DL 720p
 ```bash
 magnet:?xt=urn:btih:2B3F09FF98EB9EDDEE0853ED4FB809FEF77F0B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ VA - Popular Romantic Ballads (2018) [MP3|320 Kbps] <Pop, Rock, Ballads>
 ```bash
 magnet:?xt=urn:btih:8DEB654FCB72CA687FE6F3F6D3B874A4018D9042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ Amazing Any Data Recovery гарантирует безопасное, быст�
 ```bash
 magnet:?xt=urn:btih:E6C2F5596CA0ED12C2357E00F96D89813EEABED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

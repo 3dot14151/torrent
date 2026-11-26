@@ -19,8 +19,7 @@ Fear For Sale 12: Tiny Terrors / Страх на продажу: Кукольн�
 ```bash
 magnet:?xt=urn:btih:D3585E913F8296DFAAA82B1D8A20F149BFF4620A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stranded Deep — это квест с видом от первого лица �
 ```bash
 magnet:?xt=urn:btih:8F6828104E90CB42CB6492605AF2B8FEFE8E883B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

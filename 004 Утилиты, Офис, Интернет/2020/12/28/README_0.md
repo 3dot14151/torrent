@@ -19,8 +19,7 @@ MiniTool Partition Wizard Technician - мощный менеджер для ра
 ```bash
 magnet:?xt=urn:btih:2C9F2FE11551B442B4CA845A794A061A01945006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

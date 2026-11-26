@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1AC76DF306874C707CCC1458B6F70F5F4BD0320E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3C15DC007C4D6EE45544B26F888E5E621F444B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Wood - предназначен для читателей-мастеровых �
 ```bash
 magnet:?xt=urn:btih:4629C36C99F2A1733A0231C6B6F00428CC797F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

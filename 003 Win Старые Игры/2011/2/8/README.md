@@ -21,8 +21,7 @@ Sonic Adventure DX (2004) [Ru] (1.0.0.9) Repack [Director’s Cut]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

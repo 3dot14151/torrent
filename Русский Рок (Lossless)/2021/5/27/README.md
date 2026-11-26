@@ -22,8 +22,7 @@ VA - Машина Времени (Трибьют) - Машинопись 2CD (20
 ```bash
 magnet:?xt=urn:btih:3C7B1A5A8831A0174C0C8ECC94F92FCED2A109D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

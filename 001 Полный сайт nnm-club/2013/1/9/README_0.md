@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:CB9E27BC52B1608D2396D64BA552519F8DB6CCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Subtonix - Tarantism (2002) [MP3|128-320 кб/с]<deathrock/batcave>
 ```bash
 magnet:?xt=urn:btih:0E1E5B572580D045B22D3333EFB114087908B319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Sexy Girls Pack Wallpapers (07.01.13) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:A2380D7C3B7A6BB9959A2F4BCB565CCFE9159296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149361D8F2C16219AF8AEF100DCD4EF2014DE1E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5DD78E4C42ABBA66D07773ADAED900A2AF3CE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F9242B121E9BEB76FC2C3344D8F12693B644422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Sexy Girls Pack Wallpapers (06.01.13) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:C9430EE16B0170C1245E5CC5679AEBDAAEE6456D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Interior Wallpapers (06.01.13) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:937EDCDDDAF5FD42CA98A62A59E5DB9F01A83983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Nature Wallpapers (08.01.13) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:3F608C5A2199510DB247408718B53E4F6BD5A9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ Rogue Male - Animal Man (1986) Remastered 2007 [MP3|206-241 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D955A931A902D561F6011BCA02192472C4ED26BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Nature Wallpapers (06.01.13) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:098CA631399BDA429BF9BE678E1100752B95AD72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F98EE288A6B655A4DA79DBB24264BDA45A1CC633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Best HD Wallpapers Pack (07.01.13) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:0E853388EF245600583430477062A05CF7C1A013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58AA21AA8C3AD1ACD054D167CD29C2F655498A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ Sexy Girls Wallpapers (07.01.13) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:20E8959DAF9EF6CC7F2B98B694027D8F5ECCF10A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A0E529FB0E94B7335453A7E5D8374F2E7C3F83F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D47687D3C358A6A74A73F5A967B8768641F8DF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ VA - Клубные Новинки from Primemusic Vol. 1 (2013) [MP3|128-320 к
 ```bash
 magnet:?xt=urn:btih:5E9461272300449CCBAD69200F37F0233B0B50E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC7FF35DE6250166E56AEB367C79DA6A580DF0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ Computer Desktop Wallpapers Collection (06.01.13) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:B93F50ABFB0A52936AD6C2C3001B7BB24AF7DD22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ Computer Desktop Wallpapers Collection (07.01.13) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E6EDA1B3F48D931CCD31E904C0B23B4346B390F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35A423CEE3CA2C045D0B9BE44D5091597F131D94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ SynWrite Editor - мощнейший текстовый редактор для 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65D7580A2B33E63FDE3E3DBF3A08542B04EB55C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ Sexy Girls Pack Wallpapers (08.01.13) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:6A61515CB1A3223AFE5D86150C3AB0DC8AD74DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5BDF31E41E30400678219544DEF77A2825C7337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Queen - News Of The World (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock, P
 ```bash
 magnet:?xt=urn:btih:97472E7B1ABF53E64E1FC11981E5C04A9A743F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

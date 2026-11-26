@@ -19,8 +19,7 @@ Cursed Mansion - это леденящий душу ролевой хоррор,
 ```bash
 magnet:?xt=urn:btih:E58B14142773CB0DE9874D90D82F3B0A4B107BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Saga of Sins - это атмосферный ролевой экшен в мра
 ```bash
 magnet:?xt=urn:btih:473AAD8B73C7ED48D2B921223BAD4BD9512ED2CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

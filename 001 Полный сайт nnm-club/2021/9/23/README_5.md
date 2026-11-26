@@ -22,8 +22,7 @@ Wanton Attack - Wanton Attack (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D7727B2B65B872AAF7B12EE416BFA4C9CB108F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Obscenity - Summoning The Circle (2018) [FLAC|Lossless|image + .cue] <Death Meta
 ```bash
 magnet:?xt=urn:btih:EB7D2365C36AA63D01C2C7090335BA27286EDF98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kankar - Dunkle Millennia (2021) [FLAC|Lossless|image + .cue] <Atmospheric Black
 ```bash
 magnet:?xt=urn:btih:5D0D6DF591B2F88667F54EF24127318C136734E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Flame, Dear Flame - Aegis (2021) [FLAC|Lossless|image + .cue] <Epic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:3EA3929ADD2A8A84C5D2B3AFDE67143C2B98FDCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Peak Theory - Shattered (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FA471A2C7BAC189D60BA80D30F29157D9175D4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Metal Church - From The Vault (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:48C7935DE7B4EABA42C42D037D94BFE4B9B8F201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Terry Gibbs Quartet - Plays Terry Gibbs Featuring Alice McLeod (1963) 2012, Fres
 ```bash
 magnet:?xt=urn:btih:7BDAE1397162109EB2C7826F854C91F9C9B58915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Insomnium - Heart Like A Grave (2019) [FLAC|Lossless|image + .cue] <Melodic Deat
 ```bash
 magnet:?xt=urn:btih:0A353C8721092EF02979FD2EDA8C057E4BFA5F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:8543093F182A20F3B00FAC6F66D40A3C24B6B2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Butler – менеджер, который дает доступ к прило�
 ```bash
 magnet:?xt=urn:btih:1CDA34BDAF8E8B0EB185E2712A412953B90B71F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6107E1CE5C05F2385A194DAF7C93BDD2E1C6803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2458644F0A1A2B603D3367078E6A16052DDF4426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Sync Folders Pro - это простое в использовании прил�
 ```bash
 magnet:?xt=urn:btih:40564EE682F1915AC544CF7F776C127829B3BD5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Rage - Resurrection Day (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:7A9F7EA1F07293218785E900932DAFCA4AF5A8E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:28E6BFBB1C7D0A72C1463A64F15BBB883CB126C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25CAF6CADF24DDA12578B487EF8A88339C297164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ Mellel предлагает специальные инструменты для
 ```bash
 magnet:?xt=urn:btih:0466C61BC2C3259F3AF643C14D2CE25DD01BDBDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3406387AAABEF7BD066E60B1308583C27EDEB28C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Chronicle Pro 9.8.1 [En]
 ```bash
 magnet:?xt=urn:btih:473B8BB56721141F5BAED4CF49D544CE32EF836A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Cocktail - комплекс утилит по всестороннему обс�
 ```bash
 magnet:?xt=urn:btih:F7485AF6B73DFF931CBA2EABA33609279F31BD16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96DD9FDDFE012B0DA1557A26CC58E9937AE785D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ Eternal Valley - Kingdom Of Misery (2021) [FLAC|Lossless|image + .cue] <Atmosphe
 ```bash
 magnet:?xt=urn:btih:63EAF420B9D12F5340311B1E78EBF4EE7B85A007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:186F8DC9021CEFA7FDF134D0392D1EBFE07CB8AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Unknown Artist - A Night In A Greek Taverna (Unknown) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:69699C288E57B1F084B08C7F3C00ED771AC1D510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Opera 79.0.4143.56 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:42810FC8EA498B24DF9F1A4BB83B158D04436E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26D655B9335F0C96DF2CE4C36E2101FCED4202A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Dave Brubeck Quartet - Gone With the Wind (1959) [FLAC|24bit/192kHz & 24bit/
 ```bash
 magnet:?xt=urn:btih:9DBD0323C9BB70D0AFB59316635BEB0D7BE2990C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Private Eye 4:44(   Читать дальше...   )Жанр: Synth-popПро
 ```bash
 magnet:?xt=urn:btih:48DAC657497338BD5E9EF221B428E7D88B720060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Baby I Love You 4:05(   Читать дальше...   )Жанр: Italo-Disco
 ```bash
 magnet:?xt=urn:btih:0516415DA150824AE74BA119DF738D99981E4E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

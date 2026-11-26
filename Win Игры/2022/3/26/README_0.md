@@ -19,8 +19,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (1.0/dlc) License FAIRLIGHT [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A61909FD40910884AAF47A5E3EEC49C840E2D776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil 4 специальному агенту Леону С. Кенне�
 ```bash
 magnet:?xt=urn:btih:0129E81439B02F720A8C3AC975F67CB28E1A835B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

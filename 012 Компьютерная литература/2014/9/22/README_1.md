@@ -19,8 +19,7 @@ Jason Gregory | Game Engine Architecture [2nd edition] (2014) [PDF]
 ```bash
 magnet:?xt=urn:btih:AABC2340CE0D5868BD72FD852D57EEDDD8279243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21E2BC94171537B098B9CB5CCF5182BBABF4E681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Adore (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3457A604F4EB51AD8FA0DEAB534E976815B27008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Scrap - это независимый шутер с видом от трет
 ```bash
 magnet:?xt=urn:btih:C4481C6F4C41E0E4E6497A633CFB247600C8DCEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ World War Z - это напряженный командный шутер на �
 ```bash
 magnet:?xt=urn:btih:B610B2033F177E91BBDBD7CA4A04A9F86A5519FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wo Long: Fallen Dynasty – это ролевой экшен от третьег
 ```bash
 magnet:?xt=urn:btih:D96B3C2060131CB4FFD7A3816A7C4B945963B260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lucas Chess - одна из обучающих шахматных програм
 ```bash
 magnet:?xt=urn:btih:2A20CC23B0DB6E40E75BE867A2C6FB57C805EAE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

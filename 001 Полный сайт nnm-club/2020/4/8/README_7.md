@@ -22,8 +22,7 @@ Harry Allen - A Night at Birdland, Vol. 2 (1995) Nagel–Heyer Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:220282EEB05A41199A30272B158D7F191B7B8B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Logtail позволяет настроить фильтр и правила.
 ```bash
 magnet:?xt=urn:btih:9C63848B0535EC07D44A26609561FC8CD6E52655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Website Watchman 2.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:9B11176A9C13B8BA61BEECEBB960E60ACF7AD12F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Jump Desktop (RDP & VNC) - программа, которая делает до�
 ```bash
 magnet:?xt=urn:btih:0E6088E27B7762ED18D82B2777C39D98FE2787D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - The Surfing Happiness (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:ECD9DF247804A0FFE428A11759F49C4913BC0269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:A8303891798F1671FDDAE6481C19A050021B22A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Lattice поддерживает множество популярных фор�
 ```bash
 magnet:?xt=urn:btih:945016DDA0FB8D33E15C489CE79336FF33EA4BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0010A0C106DA74BF73A29B6181C90AB5EA144F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Nicky Romero - Saturday Sessions@Don't Let Daddy Know (2020) [MP3|320 Kbps] <Ele
 ```bash
 magnet:?xt=urn:btih:5D8166A0EEB4DA279A56939DF11D12E2EAE8D40D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Timmy Trumpet - Live From Sydney, Australia 2020-04-05 [MP3|320 Kbps] <Electro H
 ```bash
 magnet:?xt=urn:btih:557D49E62A1A517260662310F8B51AD899BC3476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Amtrac - Oddyssey (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Deep House
 ```bash
 magnet:?xt=urn:btih:49C772578124CD08DC2DCB5A3F0BBA0DF654A525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Iridient Developer - мощное приложение для обработки
 ```bash
 magnet:?xt=urn:btih:F0A83FEBB329FD38298C9108E70F9EC7341B1A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Greg Dusten - Pure Trance Selection Winter 2020 2020-03-30 [MP3|320 Kbps] <Tranc
 ```bash
 magnet:?xt=urn:btih:42BD20256735F225271F107AFE2B3FA21273E687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Al Jarreau - Accentuate The Positive (2004) [FLAC|Lossless|image + .cue] <Jazz, 
 ```bash
 magnet:?xt=urn:btih:D07C5BF5490048D6E040B94E56BF2F04547D6E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Dirty South - 4 hour DJ Set (Quarantined from studio 2020-04-04) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:412B67EE007F38E1F174C4F83AD2D76E2B3B3E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ Slow Leaves - Shelf Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:77398BD83DFFAC315766AFA86980FC5E27BECCE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:C2E133639D29ED9CC962E173A722304A0FDA304B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ Slow Leaves - Beauty Is So Common (2014) [FLAC|Lossless|WEB-DL|tracks] <Folk Roc
 ```bash
 magnet:?xt=urn:btih:DCE4962E8A909350FAB19ADC4C134ED8BE08696C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C73830D5DB43AF470980ED69D8CB88C54B4EAF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Slow Leaves - Enough About Me (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:51290CE84072D29B5D905755392961CA95405F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ Geekbench 5 предлагает обновленный интерфейс и р
 ```bash
 magnet:?xt=urn:btih:9A3DF0CF6C88A94F28AFE7960E7F43C78051FBC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ Chaos Control Premium 1.8.1 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:B97CA76E6AAB4DEF7DC2FA02D2296CCBDA1AD65B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4646B474F183E0DA42D75D06A0DFA2B300B697A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ DJ Rap - Propa Classics Volume One (2001) Mixed [FLAC|Lossless|tracks + .cue] <D
 ```bash
 magnet:?xt=urn:btih:9C2E19391AEAB1680ADEEFD237E2EA24F4C6C84A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65098D56805083D2C2DBCB164DD17413C85AE4F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B7F0C8AD8BD9AF29AAB16B0394F39D53300454A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ On Rusty Trails - стильный иллюстративный платформ
 ```bash
 magnet:?xt=urn:btih:168E59AA91E46DC800CCB0B7DD2B32FE578D30C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Darkness Assault (2015) [Ru/En] (1.03 f1/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:6C39529EA06B40E0A4B3715E24765C864CF4B86B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

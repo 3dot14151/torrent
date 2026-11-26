@@ -22,8 +22,7 @@ Paradigm Shift - Becoming Aware (2016) [FLAC|Lossless|image + .cue] <Neo Progres
 ```bash
 magnet:?xt=urn:btih:E8242085E42269AEC062CA44154E0EA229DE4E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Internal Cold - 1 album, 1 EP (2013-2016) [MP3|192-320 Kbps] <Atmospheric Black 
 ```bash
 magnet:?xt=urn:btih:DC2E600F57AAA2F84377D0DB8476FEA746DC540A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Arktis - On The Rocks (1976) Reissue, 1997, Garden Of Delights [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:9B18375F67EAC85843411F6741CFEE5C0726623A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Svartby - Swamp, My Neighbour (2015) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:0293C63A64B82D978DC2B843712CCCF7E32C5B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ygg - Ygg (2011) [MP3|320 Kbps] <Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:99ECDA6A4CBC63438BC335F8CBE580D1CB6CDD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Serj Tankian - Orca (Symphony No. 1) (2012) [FLAC|Lossless|tracks + .cue] <Alt. 
 ```bash
 magnet:?xt=urn:btih:DEAA46A7B3FE6C9C336DA5CB613FC793B6178BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Marillion - Marbles In The Park (2017) 2CD [FLAC|Lossless|image + .cue] <Progres
 ```bash
 magnet:?xt=urn:btih:EA8F7050785DF6F6A5FB8DA7883B12D8961D9426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Civil War - The Last Full Measure (2016) Japanese Edition [MP3|320 Kbps] <Heavy 
 ```bash
 magnet:?xt=urn:btih:C572CAD9D75B60B43095FE0DCC7241125DF59BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Lights & Motion - проект музыканта-мультиинструмен
 ```bash
 magnet:?xt=urn:btih:5E0ED5ED5628B2173F0031FA006980D00C877596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Mono Inc. - Together Till The End (2017) [FLAC|Lossless|tracks] <Gothic Rock, Da
 ```bash
 magnet:?xt=urn:btih:5454DE11615D6E0FEC04E6F38A58475C9EF6B1B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F34F7E5E33A6A834DE8214F5148916D31CA38E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

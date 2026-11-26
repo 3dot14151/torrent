@@ -22,8 +22,7 @@ Gloryhammer - Space 1993: Wrath of Kor-Virliath (2026) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:E47127A9E294648FEAECCA2A83D7008EA6F04009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gloryhammer - Space 1993: Wrath of Kor-Virliath (2026) [FLAC 24/44.1|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:6E39258F37ED13051054F8DCEB595BEFB1ECF93D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

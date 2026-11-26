@@ -21,8 +21,7 @@ The Kryptik - A Journey to the Darkest Kingdom (2023) [MP3|320 Kbps] <Black Meta
 ```bash
 magnet:?xt=urn:btih:1E357F67BD165418C305D809E3785278F523191A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Pandrador - Seidr (2023) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:E70B56F63B980229A7E62DB4F983D67CDE32570D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Maegi - Skies Fall (2013) [WavPack|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:D7EBCF5552478B500F493B79ED7DDD61AD37A51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mo
 ```bash
 magnet:?xt=urn:btih:C12194C14791DECBCA5433B8841C12CA1E53C585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Sculforge - Intergalactic Battle Tunes (2023) [MP3|320 Kbps] <Speed Heavy, Power
 ```bash
 magnet:?xt=urn:btih:25598E6C9B86C6AF942828ACAE9231B1238E060F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Talvienkeli - In A World Full Of Clouds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 ```bash
 magnet:?xt=urn:btih:8C2DAC4EBFB492B09616B51867D8F8EDD78A502F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Nexorum - Death Unchained (2020) [MP3|320 Kbps] <Black, Death Metal>
 ```bash
 magnet:?xt=urn:btih:28B20581D00BE768BD7D15C8E8AC6FD80F3FFDC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Terranoct - Icon of Ruin (2023) [MP3|320 Kbps] <Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:D498A940C973F010203BED2ED19008E8A1C29E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Nexorum - Tongue of Thorns (2023) [MP3|320 Kbps] <Black, Death Metal>
 ```bash
 magnet:?xt=urn:btih:0168653607B8E38779DC1236F8D9FCAB50B0D319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Pyramaze - Bloodlines (2023) [MP3|320 Kbps] <Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:588143903BD26EB09ECD79BD94F60B50DDF480B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Garrett Campbell - Skies Of Dragonlight (2023) [MP3|320 Kbps] <Symphonic Power, 
 ```bash
 magnet:?xt=urn:btih:88AA7AAA99D6EBBFB2348F1E0B9971B27FFF68A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ YT Saver Video Downloader & Converter for Mac 6.9.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:84B1F9BE909B212B3095664A9F54F5F9E612701F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Nighthawk - Prowler (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard R
 ```bash
 magnet:?xt=urn:btih:B06EB2F50DC4DE4EE481111C652A65A5D3EA0D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Mecca - Everlasting (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:92C47A016F9123B6081E552721ED50DD2A811DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Tropical Fuck Storm - Goody Goody Gumdrops (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:1B41F9430F32C091B75CBDFB67590C61B2F6C838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ Heathen Hoof - Rock Crusader (2011) [WavPack|Lossless|image + .cue] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:1D8FFC8E217E8EC1B8144CFB703D57BFE96A921D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ Viper - Timeless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power, Speed Meta
 ```bash
 magnet:?xt=urn:btih:CB3B2EC9BEFF2CC27E41841F7195C609F7DE1129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Martial Solal & Joachim Kuhn - Duo In Paris (1975) 1991, Dreyfus Jazz [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:FEC1C5285FBCD8F201B230E00546BA8AF3D8FBBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Hank Crawford - Night Beat (1989) Milestone [FLAC|Lossless|tracks + .cue] <Soul-
 ```bash
 magnet:?xt=urn:btih:873710FDF178F79D7A52405DD56D0ABFE84B38D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ ImageRanger - программа позволит найти все нужные
 ```bash
 magnet:?xt=urn:btih:0ECE0CFB390617F2B12352F152E0889187F14C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ Eddie Gomez - Per Sempre (2009) 2012, BFM Jazz [FLAC|Lossless|tracks + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:50574E3463677E1467811A1E491C50F063B34440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Popular Mechanics - журнал о новинках в мире науки и �
 ```bash
 magnet:?xt=urn:btih:06840B867EFCAB819F467AFB6A90ECA0D1129323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F04E366AC311877A9D625EC65F371A91914B081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAB381173D26A37BD85DEB9759B36D7A26307243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-
 ```bash
 magnet:?xt=urn:btih:1D6BAE678A51A99362CFFD2FFAE15D09F116E8D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Jethro Tull - Stand Up (1969) SACD, Remastered, 2023, Analogue Productions [DSD6
 ```bash
 magnet:?xt=urn:btih:5AD111939237D4A3676690FF964DDE0C2703CD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

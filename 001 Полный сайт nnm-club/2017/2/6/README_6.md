@@ -18,8 +18,7 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:B036602986A642CE32ECE4ADD7F3B546C70ABBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/dlc/upd3) Rip =nemos= [Digital Del
 ```bash
 magnet:?xt=urn:btih:A602E1A6354D03ED73C36C02DCB6C6385AA5C85E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

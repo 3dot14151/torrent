@@ -22,8 +22,7 @@ Thessa - The Other Side MMXV (2015) [MP3|320 кб/с]<Instrumental Progressive M
 ```bash
 magnet:?xt=urn:btih:65B34EC7E9C53FB3C37A1EE090D80C794EA0B068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tanagra - None Of This Is Real (2015) [MP3|320 кб/с]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:7D5B6F0590F75FDE77BA58436BBD737D227049A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Enthrone The Unborn - LXXVIII (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:32909A948A747533052A68857980B6438ACC86C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Aranda - Aranda (2008) [OGG|496-533 кб/с]<Alternative, Modern Rock, Funk>
 ```bash
 magnet:?xt=urn:btih:AA6EF1655B0A006253589F02C5F9F4BBD064C413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fferyllt - Achanterez (2015) [MP3|320 кб/с]<Folk Metal, Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:6A63EE90AD82002312F66113AB478A42C3DF31A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9029C994DE14294FE3CA7F55ABE7D90EE1C05027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Maren Elise - Mad Girl (2015) [MP3|320 кб/с]<Alternative Baroque Pop, Experim
 ```bash
 magnet:?xt=urn:btih:4FBB494EF9391F3170C3E3EFC2C18ED3488614DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Tame Impala - Currents (2015) [MP3|320 кб/с]<Psychedelic Rock, Psychedelic Po
 ```bash
 magnet:?xt=urn:btih:9939D4B19EBDEC29F87898BEE61295255FB58FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

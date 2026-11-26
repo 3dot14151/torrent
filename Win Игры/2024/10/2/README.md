@@ -19,8 +19,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.2.105/dlc) Repack Pioneer [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:5ECA02A431E4CDA017FB1A7696D1362106AF16C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Starfield - первая более чем за 25 лет новая игров�
 ```bash
 magnet:?xt=urn:btih:B875AB8F81DBE9EF3D20E30C6BA14F28DD36B53F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Scene Rune
 ```bash
 magnet:?xt=urn:btih:214220F1C88E1B735E7C8FCE91780E1A0A4C02D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (28.16.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:5CC37D8BF90ED0902F133565A657D8CC026A65AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8279CBFD6F411B0AE62D8CEDB3778251571DD03E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ To the Stars (2024) [Multi] (1.2.53) License GOG
 ```bash
 magnet:?xt=urn:btih:1E8A8341A218EC4957E4E4963CECBF7E645E0383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CFACF0BCCD0200126DB45083DFB9656B29A026DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

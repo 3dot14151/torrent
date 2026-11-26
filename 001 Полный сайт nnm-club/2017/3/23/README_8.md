@@ -22,8 +22,7 @@ VA - Love Is Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:800C9B2DF4DF277A62493448DB935D8DB0B5AFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dave Brubeck - S' Wonderful (2003) Tyrolis Musik [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:4A25A0C8EC5DCACC168831CC77211623FFC6DDBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:A1E027E771AA0F67C2406A1596F941ED48C604E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Just Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:9EECA2F942A7EBAAC073EAF5B4457F403758B941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Chill Out and Lounge Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:9DED3A55421B2C0C9F0D73F6300BBEFF83910938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ VA - Beach Deep House (2017) [MP3|320 Kbps] <Deep House, Chill House>
 ```bash
 magnet:?xt=urn:btih:B078207F12080A155A86D0CC61714D940ECC8FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ File Multi Tool   — мощная и полезная утилита для и�
 ```bash
 magnet:?xt=urn:btih:8B1909423D8CFC2D5EA31CE187A520B4B75822DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Ken Peplowski Quartet - Memories Of You (2007) Venus Records [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:8E70B0B995A6B2D16538DB511B5DA194E02658D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - Весенняя танцевальная вечеринка. Версия 
 ```bash
 magnet:?xt=urn:btih:2304DAD5E223E23944A16A76167666F09D98E221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Playr был сделан исключительно, чтобы сосредо�
 ```bash
 magnet:?xt=urn:btih:2766147865E819A496F34BD8EC4E6CAE1B644B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Музыкальный подарок на радио Europa Plus выпу�
 ```bash
 magnet:?xt=urn:btih:9900654CA811424AE3F546C4017DED18D200628F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF854929648399A01E4844A15A483F0AA7685008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEEEDFF3C3036B50CBC913335A42AD9B31376DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ VA - Pure Heart Chillout Love Party (2015) [MP3|320 Kbps] <Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:6EF54CC66141C139ED99E267F1EE7AD3960B981D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ iLock очень проста в использовании. Выберите л
 ```bash
 magnet:?xt=urn:btih:7430D773007DFF65BAC2778D2F9BB596EA3FF693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91474CE604342CFE2ABCE19800A60D231443A466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ VA - Музыкальный презент хорошей музыки от Ев
 ```bash
 magnet:?xt=urn:btih:A421ED6FD04469A2628AF98E28370BF2EF81925C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Chris Duarte Group - Lucky 13 (2014) [FLAC|Lossless|image + .cue] <Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:1E8252BCF606DD1E005ED7F302010D1D53375662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Disperse - Foreword (2017) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:390745132F7CBBE4E73E8F3EB2813920719020D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ VA - Miami Nights Trance Party (2017) [MP3|320 Kbps] <Dance, Club, Trance>
 ```bash
 magnet:?xt=urn:btih:CB49958E4EF21C8335CF059BEEC751CAB25DCD53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ Blue Plate Special featuring Marty MacMillan - Glass of Teardrops (2011) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:27B36BD3C31F0AC61E966C6469FC1FA22036C6A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ VA - Отдыхаем душой на стильном радио Шансон �
 ```bash
 magnet:?xt=urn:btih:4810AA6657D83E5D8CE02B5F347CEAE918A1A744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1607E5C4A568DDC4924EE8412FBC2021CECEDCD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ VA - Вечеринка на радио Шансон выпуск № 6 (2017) [
 ```bash
 magnet:?xt=urn:btih:7807969DDC1DC9958D2AC203A611CD1714D14578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ VA - Empire Records - ANDRS Parody 3 (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:268A023B3DDC38994F5E34BCBBF4EA29C4E8B60A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

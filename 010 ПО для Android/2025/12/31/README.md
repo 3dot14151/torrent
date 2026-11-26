@@ -19,8 +19,7 @@ Exo Player - Видеоплеер и IPTV v2.1.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8A87179DE23632B7AE630DADF914C30DED8491C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Device Info — простое, но мощное приложение для An
 ```bash
 magnet:?xt=urn:btih:F491B041201C164DFC62EB5FE6FF1099AAC1CBF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VK Музыка: песни и подкасты v8.7 Mod by VK Equals [Ru/En]
 ```bash
 magnet:?xt=urn:btih:59E1797D4A9A283B64E4FC6EF3A6348B822AFE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Night clock / Ночные часы v2.11.17 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D39E7FD78999F0FDFB663A76EA99DCAC0DAC9089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:13BD0FB745C9A88CC1FB5CF3EE564A03AA23E417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Seven / 7 Минут Упражнение v9.24.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:22FB447142DAD45C9F34B4C4A08DE8ED54D79AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ STEEZY - танцевальная студия №1 на вашем устрой
 ```bash
 magnet:?xt=urn:btih:01593C2E66E905C3744A90524E5E8A1613DFEAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ KineMaster - Video Editor & Maker v8.0.9.35926.GP Mod by youarefinished [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:A8AAFD31C1E44948E257693A08B025F3B35DC6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Relax Rain: sleeping sounds v9.3.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:54AA3F320B98926F6D662C29658C3F5A9FE90558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Photo Mate предлагает библиотеку фотографий, в к
 ```bash
 magnet:?xt=urn:btih:78B15D02E16C1C7B6DCB39CC5B38DCE07491E2CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Listen Audiobook Player v5.4.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:396D016254F7FA55291DA8BFB72C050C4D2ED6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ SuperImage — это ваш универсальный инструмент д�
 ```bash
 magnet:?xt=urn:btih:603B9AE55B2414805E3B31168E0447A7A2564DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:C49C5C9C107BB3C1D23AC90FC18592D6C93C30A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ FBReader Premium v3.8.22 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:449E4613DBD3781A08DC31E1B3B955FBC5B40EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Audio Books – новая платформа для прослушивания 
 ```bash
 magnet:?xt=urn:btih:D69F2E5D25198C2EF3DFD23569433CE24025839C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

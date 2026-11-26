@@ -19,8 +19,7 @@ Doug Lowe | Java All-in-One For Dummies, 7th Edition (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:192BA4911EB529977C1C0CB916CAAB1876F1E28B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F22B246A16818E14FB814A994975BFDBB43BD594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

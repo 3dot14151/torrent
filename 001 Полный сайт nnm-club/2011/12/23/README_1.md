@@ -27,8 +27,7 @@ VA - Сборник Лучших Хитов К Столу (2011) [MP3|256 kbps]<
 ```bash
 magnet:?xt=urn:btih:195093D6D7841A567ED2FA73908AC853DC348C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ OOO "Комплекс" | Пир горой. Накормим Деда Мороз
 ```bash
 magnet:?xt=urn:btih:39E438827506ACD35460ABB34FA380AC1884BEEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Consequence - Test Dream LP (2011) [MP3|320 kbps]<Drum And Bass>
 ```bash
 magnet:?xt=urn:btih:C7E147EB72086B6D83748B10EDDE8C4670BD6699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC77E1CD77F957977029351515ED8C08DE1293BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Released: 2011-12-21
 ```bash
 magnet:?xt=urn:btih:099DBDF40C148A57429319F05BF7DFB683AD7C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ VA - Молодежная Вечеринка. Зарубежный (2011) [MP3|1
 ```bash
 magnet:?xt=urn:btih:B54BA07A52CE8DEBD91477E561E46433F6094651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B3CD9FE38598D46242520FC3DF3DC38828B8B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:138D1839C5897E89B7C091A2596F17EAC1307628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60747636EE8BB97E87299938B8669E5AEF71F46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ Phunk Investigation - Necropolis EP (2011) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:BD935A48548883159B57E18618AF2A9B1CA2083B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ David Gray - Greatest Hits (2007) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:F99A1A10C0D070864143E6463C4A404F376987B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8CD0F1E1F1370AC124E61B38FF50FAFC28A3658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ VA - Latin Lounge Club Vol 3 (2011) [MP3|320 kbps]<Downtempo, Chillout, Chill Ho
 ```bash
 magnet:?xt=urn:btih:C3BF09A1EFA968223D8BC7E9CA62FEE8B2CFA077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ VA - Гуляй Братва. Сборник Честной Музыки (2011) 
 ```bash
 magnet:?xt=urn:btih:4CB46952E699F1E4AA66D4A2B8B2064FC4BE7CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ VA - Red Station Lite 2 (2011) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:6B1AFFDB175584BD351D554FFA3AD1232C3ECD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ VA - Звуковой Мираж Новогодний (2011) [MP3|256 kbps]<Pop,
 ```bash
 magnet:?xt=urn:btih:91C63E2A5AB20FBE6B36FD5C21BA2D0CF11B4211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ Black Label Society - Glorious Christmas Songs That Will Make Your Black Label H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +551,7 @@ Nicole Moudaber - Feline EP (2011) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:E4F35EF3DDC7F933A52612611F91B35D555855C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D50BA69EC84281982FDAB49F40E549D6665B780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B056B68D0C94861C2136543A7DE6B8DED9AA3049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ Irina Mikhailova - Fearless (2010) [MP3|320 kbps]<Lo-Fi, Tribal, World, Trip-Hop
 ```bash
 magnet:?xt=urn:btih:D364CC33CD98CDBDFC1C289B2FDCF8E26B9FBBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ Lavrentis Machairitsas - Discography (26 albums, 1982-2011) [MP3|128-320 kbps]<r
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ VA - Парад Хитов. Русское Радио (2011) [MP3|256 kbps]<Danc
 ```bash
 magnet:?xt=urn:btih:C76927E3751C8E114BBBEF359AFF845F5AAF69C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ VA - Новогодний Русский Хит (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:0D742E7B1B620FED3EF4F0858E3362345CB1A21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ Sleepwalker [En] (L) 1999
 ```bash
 magnet:?xt=urn:btih:C7A890D81A13A8DA05711CB7152EC6C56F813810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

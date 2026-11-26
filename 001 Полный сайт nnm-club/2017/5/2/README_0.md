@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:DF1992D4200E8AB2C0F38D5FDA50DCA9E4556741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Boomer - Dim Side Of Mars (2002) [FLAC|Lossless|image + .cue]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:7B10448EC55B607949A462D38E8A560579AD7C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Saint Of Sin, Thunderbrain - 45 Minutes Epic Fantasy Music (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:056B89B10138C17A4B071319ABD327205D2F3FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Piano del Mar: Easy Listening Chill Lounge Moods (2017) [MP3|320 Kbps] <Dow
 ```bash
 magnet:?xt=urn:btih:6E2C07ABC73F54048A1C3A52DAF6EEF6E165F809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C789E44C304D093CD27310004AA8C1C7F783D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Running Magic 90s Comeback Hits (2017) [MP3|320 Kbps] <Funky, Club House, D
 ```bash
 magnet:?xt=urn:btih:60CDA2D19464DA9F0BF9E1280BF7785D04343226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ ChronoSync представляет собой приложение для Mac, 
 ```bash
 magnet:?xt=urn:btih:5B0ECEB2F7B07494DCE56555F9A370E2AED29241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ CD1 (00:13:12):
 ```bash
 magnet:?xt=urn:btih:14018C8E64B605CF12228402CA4C5E66E32788FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ VA - Classiques de smooth jazz Massage sensuel (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:75A6255AEF7C894E8B7A955414D62289AE9F6AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DC874ECBC5576A0D3660402EBC394323BB72C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A507DD99373E00BF409B8CDB7496FAF53AEFFA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ SteerMouse — продвинутый драйвер для USB и Bluetooth м�
 ```bash
 magnet:?xt=urn:btih:0E7D71E0A18EA76C86E686361315D73E818198A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Hatikwa - The Second Narration (2017) [MP3|320 Kbps] <Goa Trance, Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:4BE883746CC69A049066DE5A3EAA52E0D5B8781C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Midnite Climax - Release The Beauties (2017) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:C775252C56C160D520BFFD0CB40AEFDDF4F922B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Jeanne Mas - PH (2017) [FLAC|Lossless|tracks + .cue] <Chanson, Pop, Rock, Female
 ```bash
 magnet:?xt=urn:btih:1F4CD1D8389FBA8477FDECE3D05CFD13EF3A89CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Flinto - создание прототипов для вашего устрой�
 ```bash
 magnet:?xt=urn:btih:E2278516A0F7C14738982D459AC07EDF0AB95065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Pixa поможет организовать все изображения по 
 ```bash
 magnet:?xt=urn:btih:53D7A02E39E1461554579864C397673C435FCA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ COAM - The Study Of Change (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychi
 ```bash
 magnet:?xt=urn:btih:F29C0691FE581F639923297D327EDF4B8153439D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7F934DE5AFA4C418F9723249A2403FFF7FBD4DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ BetterTouchTool удобное приложение, которое позвол
 ```bash
 magnet:?xt=urn:btih:223D1F1DC9840E5C8628339BD3C5587F9EC8E67C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FAEBAC4A38FA1F237EE1390A2334EEE8290F98D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C19A97428342EE4372FD3A2D2FEC57F80F87AAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB75EE37A24A930280DF37D9EED2836662137979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Sylvan Esso - What Now (2017) [FLAC|Lossless|tracks + .cue] <Electropop, Indie P
 ```bash
 magnet:?xt=urn:btih:77A7E47077F3CB4CCD208A54F46F08DFF190EB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ VA - Synthwave Drive (4CD) от DON Music (2017) [MP3|320 Kbps] <Synthwave, Elec
 ```bash
 magnet:?xt=urn:btih:38FF8C69DDABE8A6B2CEFC84AF178A307B95AA2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

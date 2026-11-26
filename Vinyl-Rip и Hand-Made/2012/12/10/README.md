@@ -28,8 +28,7 @@ C2 Revenge [04:48](   Читать дальше...   )Жанр: Heavy MetalПр�
 ```bash
 magnet:?xt=urn:btih:5A7DF4D8B4D278D90E2D866AE15A84503F6AE723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

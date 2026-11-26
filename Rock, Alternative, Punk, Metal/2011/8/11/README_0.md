@@ -28,8 +28,7 @@ The Yardbirds - Rare Concerts (1965-1968) [MP3|320 kbps]<blues rock, psychedelic
 ```bash
 magnet:?xt=urn:btih:88083BEA6D71699EF46D82921BBE05CEAE5C4829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ ReinXeed - Swedish Hitz Goes Metal (2011) [MP3|320 kbps]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:C7E2BD545F69C01D57109E853DA929AD9FC0980D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Helen Schneider - Schneider With The Kick (1981) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

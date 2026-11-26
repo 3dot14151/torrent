@@ -22,8 +22,7 @@ Rosetta - Flies to Flame (2014) EP  [MP3|320 кб/с]<Post Metal, Sludge, Ambien
 ```bash
 magnet:?xt=urn:btih:32019876685A1AFE408F43F58B09B8E7B0E813BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Moose - High Ball Me (2000) [MP3|~245 кб/с (V0)]<Alternative/Indie Rock, Alte
 ```bash
 magnet:?xt=urn:btih:3B07DD0C408243450EF312CA8C787EEC1EB7B7B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ The Rubens - The Rubens (2012) [MP3|320 кб/с]<Alternative/Indie Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:549D1210313FFFC6A20D230B3D9001B071FC9E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ The Kendra Gale Band - Carousel (2014) [MP3|320 кб/с]<Rock, Heavy Blues>
 ```bash
 magnet:?xt=urn:btih:7C370FC622A0A89C61C06EA2B2D10A0919EA45A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ The Pineapple Thief - Magnolia (2014) 2CD [MP3|320 кб/с]<Progressive Rock, Cr
 ```bash
 magnet:?xt=urn:btih:B87FCE5B385B9D7A8EC1EC2CAAE51210E65B92A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Sixx:A.M. - Modern Vintage (2014) Deluxe [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:48144B81D08B8F3E4ACC1498533A002E4B5F3765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

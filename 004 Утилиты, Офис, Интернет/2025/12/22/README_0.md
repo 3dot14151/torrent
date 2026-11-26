@@ -19,8 +19,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:EA8C002E2111157E24A8AE3730632CC0FA13C175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Raid Calculator 2025.12.21.1400 [Ru] (авторский релиз)
 ```bash
 magnet:?xt=urn:btih:06DE31921D072E4E5C31B3DA8295E68D970E940C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ MiniTool Partition Wizard Technician - мощный менеджер для ра
 ```bash
 magnet:?xt=urn:btih:DB71E1B28360C1CADBEB627910E81D7FCFDD8258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Activation Program 1.16.1 Portable by Ratiborus [En]
 ```bash
 magnet:?xt=urn:btih:400CE309C4051A370C6028F829A27BB3FDF97F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:E023C465B64301C9EA925D3935AD8A2E7F05D08A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

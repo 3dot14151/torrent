@@ -22,8 +22,7 @@ Sniff'n'The Tears - Fickle Heart (1978) Remastered, 2005, Chiswick Records [FLAC
 ```bash
 magnet:?xt=urn:btih:272299FD421B2E2246C18676B1ADCE61C805CAE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mono Inc. - An Klaren Tagen (2015) EP [MP3|320 кб/с] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:7924A09A6078FDCD716885B1E57E921D4834D1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rhythm Sophie - Born To Live The Blues (2014) [MP3|320 кб/с] <Rhythm & Blues,
 ```bash
 magnet:?xt=urn:btih:25EA827C6684F2DF7387D8ED3449665B837E7DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

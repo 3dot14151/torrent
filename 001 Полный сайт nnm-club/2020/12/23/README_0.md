@@ -21,8 +21,7 @@ VA - Blues Harmonica (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:D074818F7A987006DCF9BF2B798E630D61756F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - HGM: Move With The Beat (2020) [MP3|320 Kbps] <Vocal House>
 ```bash
 magnet:?xt=urn:btih:DC001002BAC658027B8C5F1523822607D65E3DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Rocío Jurado - Canciones de Am♡ r Love Songs (2012) [FLAC|Lossless|tracks] <L
 ```bash
 magnet:?xt=urn:btih:A32250836F3A7F1415FF5A32E895ABF1813875F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Poisonblack - Nothing Else Remains (2CD) (2020) Japanese Edition [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:7F9AF6992489FAE1A56DE7C091E057010882639C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Yummy - это приложение для загрузки видео или м
 ```bash
 magnet:?xt=urn:btih:FD4534BF9B9E66912BE7C8C41F2F3DCF69BA3B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Oniblu - Play The Blues (2020) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:0E6510F3A34B98EB3F0E89C624CB053CC2D31F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF2E071C5A2D63AA9D6232687D98BA4C160E53B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:EC072BBC03062906D1C0B29BFC52B207948CDB78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 ```bash
 magnet:?xt=urn:btih:D605D68B906A10F003A81C63E058DF2BD7374500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ RAR Extractor, распаковать и открыть любой файл. RAR
 ```bash
 magnet:?xt=urn:btih:8484F92CBB601D1B305EABD47C906F79F93E99E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Yuki – Ad Blocker+ for YouTube - приложение для блокиров�
 ```bash
 magnet:?xt=urn:btih:B046FA119E2B6919E8C40363FBE9BCAA39651588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:BA251483DB37009AD53AEFF0E5E439110A9146B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB93A24AA285A44E69151CF5363442BE64010BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1D97E74E2C2653F47C448A8A5C8AC92CAEBB149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Autumn's Child - Angel's Gate (2020) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:B27308700829081DD1E6B85798CFF510EF715901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DB0A833330D506FFD3AA2AFD10B48C9B83C6CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26C68813A1268ECCA1F78149D6A55CB61B250690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC63ADEFE50AB329BACBA8E7EA4787D5BF206C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77FBA6DB4AC26A4D74DCC523EBCE8583111BAA25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:9C26CC06458F9E08B095BD868AF0974F19181A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ VA - не Громкие новинки недели 92 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:F8AE232133604264E859C8281F8593610EF4EF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ Artlantis  – профессиональный набор инструмент�
 ```bash
 magnet:?xt=urn:btih:3A758C2080D5D9A81F56121BB6AA3E38EF93D3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ Tapatunya | Сборник произведений [8 книг] (2019-2020) [FB
 ```bash
 magnet:?xt=urn:btih:31A8A911927E703324FCA564A23034F6128CC9C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23C0E71CF3CAFBB74A0658A6856B0EA7352C0828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ NetSetMan - бесплатная и удобная для повседневно
 ```bash
 magnet:?xt=urn:btih:2C8EB4FC71A7AF0FC935FE23EDA16F9D59ADFBE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:3AE2A89B92559D12E84949CE8CFB291B506454D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

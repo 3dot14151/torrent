@@ -19,8 +19,7 @@ Screen Lock - приложение для быстрой блокировки / 
 ```bash
 magnet:?xt=urn:btih:97DC4A96990868827DC461B0C7DAC1CDA0C6FD01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F6A279E66336ACBBD1B4B0FD833F06AA5138770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:11D1F892F7ADC7369992E4EB2FFB4D481B9D7785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Killing Floor 3 (2025) [Ru/Multi] (Build 19273238/dlc) Repack Other s [Elite Nig
 ```bash
 magnet:?xt=urn:btih:68BFC8E8A9FF51F623F9B70ED549EF55AFE7F38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Against the Storm - это игра c элементами roguelite и стро
 ```bash
 magnet:?xt=urn:btih:25B5CF1417287F150DF98F4F0A14B430FA789589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 ```bash
 magnet:?xt=urn:btih:3346DE88E8595B098D5EE0FA2CA06E68C4197CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.0.9290) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:850F4E161BB83648307C82E3BF6837F3FED2BD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ NINJA GAIDEN: Ragebound - совершенно новая игра с боков
 ```bash
 magnet:?xt=urn:btih:081AB5CC852A9F8CC70F38D80CD866A05F546AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 ```bash
 magnet:?xt=urn:btih:42C44E1450DE147E39151F4F9342D6BBBA0CEFA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Hubi Meisel - Kailash (2006) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:16F448BD7703BA0736F9B8782038D364A4A58D79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Brocelian - Lifelines (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:6DC312E53E568CE225EA0069F8EB2BB40AA9F269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ All Out War - Into The Killing Fields (2010) [FLAC|Lossless]<Thrash Metal/Hardco
 ```bash
 magnet:?xt=urn:btih:1DD839F9BBC45FF1CB03D56B02F4D741F58BF032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Warmen - Beyond Abilities (2002) Japan [FLAC|Lossless]<Neoclassical/Melodic Powe
 ```bash
 magnet:?xt=urn:btih:F3853DF3FD69497AA67964F3876FEFFC4BDE38D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Bruce Kulick - BK3 (2010) [FLAC|Lossless]<Hard Rock / Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:FC1E9BDB827227F96335EF9CE030D5D21E3B929B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B2EDE5EB03C54E8BB8D62AD89EC8383DEAB363E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Jimmy Page & Robert Plant - Walking Into Clarksdale (1998) [FLAC|Lossless]<Hard 
 ```bash
 magnet:?xt=urn:btih:0E7622F679F184629A98DA5EE5D6B9E7A78112C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Bon Jovi - New Jersey (Deluxe Edition) (2014) [MP3|320 кб/с]<Hard Rock, Glam 
 ```bash
 magnet:?xt=urn:btih:0DC53B916D8FEC6D39FD89F4AC187008381283E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Starset - Transmissions (2014) [FLAC|Lossless]<Alt. Rock | Electronic | Symphoni
 ```bash
 magnet:?xt=urn:btih:30D202E07CB9BED33D4BABB0E05BA19C6D80DA4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ Elvis Presley - Elv1s: 30 #1 Hits (2002) [FLAC|Lossless]<Rock’n’roll>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

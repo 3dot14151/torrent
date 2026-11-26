@@ -22,8 +22,7 @@ A3 Angel Eyes(   Читать дальше...   )Жанр: Art Rock, New Wave, P
 ```bash
 magnet:?xt=urn:btih:F83ACB44E747F4FA6D5EE396478127C262650E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

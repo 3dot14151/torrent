@@ -19,8 +19,7 @@ Stupid Zombies 3 - продолжение интересного проекта 
 ```bash
 magnet:?xt=urn:btih:34761E2EED398AE27631E55505C1B0F6623F368E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

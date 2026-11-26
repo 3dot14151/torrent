@@ -21,8 +21,7 @@ Last Rizla - Seamen (2014) [MP3|320 кб/с]<Post Rock, Sludge Metal, Instrument
 ```bash
 magnet:?xt=urn:btih:1A6EEA380507837B3CFF313819CABB16BD928974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Nothgard - Age Of Pandora (2014) [MP3|320 кб/с]<Epic Metal, Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:2B4F6034AE3F0E01ADC6311AFD0A0737913FDD61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Neil Diamond - Dreams (2010) [FLAC|Lossless]<Rock, Pop, Vocal>
 ```bash
 magnet:?xt=urn:btih:03A062E88A31AAEC3708F01FF1F8031365006C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Cannibal Corpse - A Skeletal Domain (2014) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:4A6329D96384B5DE569286CFCC6F21896E398F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ U2 - Songs of Innocence LP (2014) [MP3|320 кб/с]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:1FC8BA8B432908C4414DA68F8FCA3777372CD3CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Brutto - Underdog (2014) [MP3|320 кб/с]<Rock, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:258B716E494A45088B03D7EE5419E2D1BFCCA394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

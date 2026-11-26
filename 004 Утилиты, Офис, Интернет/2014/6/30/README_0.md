@@ -21,8 +21,7 @@ Paragon Disk Copy 14 предлагает наиболее эффективны�
 ```bash
 magnet:?xt=urn:btih:DC52F9D4FC177C836D975D6A32C1B63A348DCB7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

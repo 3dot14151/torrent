@@ -19,8 +19,7 @@ Royal Romances 4: Endless Winter / Королевские романы 4: Веч
 ```bash
 magnet:?xt=urn:btih:A31E09696AD3EAE9419411E2249F873C09B121A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Verne: The Shape of Fantasy (2023) [Multi] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:01C1D29C3F2DFF2922CF89A38F526B46D1956612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:57380905D7F93142288C7932C0F2955D56AC08B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ GNU окружение, портированное под Windows и состо�
 ```bash
 magnet:?xt=urn:btih:64D8853D24CCE1ECA83A9811B57C02D3E1139335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Windows 7 SP1 x86 x64 Plus PE OFFICE 2013 StartSoft 71 72
 ```bash
 magnet:?xt=urn:btih:5ED3643533E719C1A156699F52B07886FF3D1DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Acronis 2k10 UltraPack CD/USB/HDD 5.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1789D5821C66303F883B57DBBCC97EDB343A9735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBC3B047CDD65EFBC1E22494AE6158ED8947BC01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05734112D24DF79C2AB207C07AC7E16B4BB508F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Google Nik Software Complete Collection 2013 1.1.0.9 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:824C22455AAA04B030F5092C961160C9771543B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:662BB0CBCBB34AAF91DB3848AF9B77A6E8D5EB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Master Reboot (2013) [Multi] (1.1) License FASiSO
 ```bash
 magnet:?xt=urn:btih:A06E29ED2A81CEC8D2937909ECC69ACCF0597D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDA3CF6A7C4908CFE26C78FA611F9E40574B7C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39C98A88118236AA0E7B9B5C6F9DDAE5B6911346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Anime Studio Pro - профессиональная версия одной из
 ```bash
 magnet:?xt=urn:btih:1E54945BB34E84E1A9EACD556D40A2964B9238E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ Adobe Illustrator CC - принятое в качестве отраслевог
 ```bash
 magnet:?xt=urn:btih:ED934C3C8B72D2F915E84D50EC3DA87AA78390ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92A5F745BCB72D91AF180C46FAF0EE2BA267054A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Windows 7 Ultimate SP1 x86 x64 Plus WPI PE StartSoft 75
 ```bash
 magnet:?xt=urn:btih:EE6D7AB8B3AA840E3FBC2380F8AB75A76E2C15C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E714C2BA349F91AA66E661CC1733B7A3B466E182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ Battlefield 4™ – это определяющий для жанра, полн
 ```bash
 magnet:?xt=urn:btih:52A0AF18885E883989B230938CC68A038A368F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ ACDSee Pro - профессиональная программа для рабо
 ```bash
 magnet:?xt=urn:btih:2838A83E25678DF7562C7373234D9C5E553EB410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DAF122260FFD4956147FC976C1EDD103B95FF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.isoЯзык интерфейса
 ```bash
 magnet:?xt=urn:btih:1CDE27535DE658BCFDA198ADC05500194D9FEAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ FIFA 14 (2013) [Ru/Multi] (1.4.0.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BE12931A9F8DA5C8150F4B0F7359F4FC1F8D6E40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

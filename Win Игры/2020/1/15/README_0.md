@@ -19,8 +19,7 @@ The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:DB07FE8A14AEBC27E579FAF750D76771E568DFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mafia II / Мафия 2 (2011) [Ru] (1.0.0.1/upd5a/dlc) Repack Other s [Director
 ```bash
 magnet:?xt=urn:btih:49ED563C93D6556E4DED4F7543702D508DC803E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

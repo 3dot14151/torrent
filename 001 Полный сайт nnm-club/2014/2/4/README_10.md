@@ -28,8 +28,7 @@ VA - Other Story After Sunset (2014) [MP3|320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:E9C2F04DB051E1C2139E85BF3CF4CDFBFFC41548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Colorstone - Steam (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B253839BCEF8548BE3C4A84B5D69CDC5CD4D5C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Pedro Del Mar – Mellomania Deluxe 628 (2014-01-27) [MP3|256 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:DD8AFBB6DB1E6A403A85D8A9F9D06A1C10BFFB3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Data Rebel - Sketches (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:A711271BEF170AFCBB15E704A191E0EDC0D21F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:240242A2D12401D7D29D74C497A8AF27DFEAA3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Structural Disorder - The Edge of Sanity (2014) [MP3|320 кб/с]<Progressive Me
 ```bash
 magnet:?xt=urn:btih:3C50A565F953C540BDDD035672102F2330085F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ VA - A State Of Trance 650 New Horizons: Mixed By Aly & Fila (Extended Versions)
 ```bash
 magnet:?xt=urn:btih:33E2488CD29BEA53E11370DEB86AE83E2214DCA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ Stefan Torto - Argus (2012) [FLAC|Lossless|WEB-DL]<Ambient>
 ```bash
 magnet:?xt=urn:btih:6EF366ECD349BF20B0067BAEEE7695B49D3E6872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Valentin Stip - Sigh (2014) [FLAC|Lossless|WEB-DL]<Ambient, Leftfield, Downtempo
 ```bash
 magnet:?xt=urn:btih:8917DB416387D4FD08F2CEDD016DC6C0C3E1D941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Phobium - Oort Cloud (2013) [FLAC|Lossless|WEB-DL]<Ambient, Berlin School, Psybi
 ```bash
 magnet:?xt=urn:btih:59A8385270F252FD3786698DE93E34B38B0EBC99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89179A42F95C0AEE18D314D6140E1DD9056614CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ Pedro Del Mar - Mellomania Vocal Trance Anthems 299 (2014-02-03) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:47632BCE0136960BF418C3CB8535B6D11D33546F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ Uner - Tune432 (2014) [MP3|320 кб/с]<Tech House, Deep House>
 ```bash
 magnet:?xt=urn:btih:2A33B153A20F850416E87AEE1FB3C940240CFA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ iTriumph прост в использовании и работает с пос�
 ```bash
 magnet:?xt=urn:btih:367B273FAA4A7AA9FC91CEB0B03B1A792F0C3127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:1EDAF53116523681662DD36053468B79F853556C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +491,7 @@ VA - 50 Weapons RMX 01–09 (2014) [MP3|320 кб/с]<Techno, Dubstep, Abstract, 
 ```bash
 magnet:?xt=urn:btih:D95C285B4EC03E6D6DAD8314B158F9768729776D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +517,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:9E4993B9CC547665793A3072BE393ABE495066B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +551,7 @@ Plastic Mind Frequencies - Plastic Mind Frequencies (2013) [MP3|320 кб/с]<Pro
 ```bash
 magnet:?xt=urn:btih:C7085B4EB7E8020770CE1CF626F3E077E162ABB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +585,7 @@ David Arkenstone - Christmas Pan Pipes (2003) [FLAC|Lossless]<New Age, Christmas
 ```bash
 magnet:?xt=urn:btih:B46360F8D5611F1460727BF8C24091FF78C65D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +619,7 @@ Nicke Borg Homeland - Ruins Of A Riot (2013) [MP3|320 кб/с]<Melodic Hard Rock
 ```bash
 magnet:?xt=urn:btih:D1AB605D3BC827A0E42F2E64E63317CE5D2449C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AC20F6746EF726EA69BC276400412BE1030B41C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +678,7 @@ Andrew Bird's Bowl Of Fire - Thrills (1998) [FLAC|Lossless]<Neo Swing, Dixieland
 ```bash
 magnet:?xt=urn:btih:CB409942F67EDA17C6C6CF4191B56F31BE6665CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +705,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:F913B2D0F9A76A288398CE77C07F303739652FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +739,7 @@ Exmortus - Slave to the Sword (2014) [MP3|320 кб/с]<Technical Melodic Thrash 
 ```bash
 magnet:?xt=urn:btih:8BB710FCC71AAB6464B5E00796F0A298CE3C52AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -797,8 +773,7 @@ Vanity BLVD - Wicked Temptation (2014) [MP3|320 кб/с]<Glam Rock, Hard Rock, F
 ```bash
 magnet:?xt=urn:btih:F89DCD682DEA3046EEAC5FB2BAD1633E7D73E0EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -823,8 +798,7 @@ Mozilla SeaMonkey основан на традиционном проекте Mo
 ```bash
 magnet:?xt=urn:btih:5E855FE96056E1A74C25241B5CB4307648574306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

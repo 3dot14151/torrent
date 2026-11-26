@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:39DBA4B1A80B7617695406620A8BD7F2DFC596CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Words – это лучшее приложение для изучения сл�
 ```bash
 magnet:?xt=urn:btih:293393AD68F896EF20A9F5BEE1727701FFACD402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Annual 2021 (Selected by D-Formation) (2021) [AAC|~339 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:3762D96C347FF61F4F2EE7AEA276F43BFB44D78F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Large Music Best of 2021 (2021) [AAC|~330 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:4DC9EA6D5DC9B34EF1FE0C498F21B88641E8CFA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Soul Remnants - Raising The Sacrificial Dagger (2021) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:96C73E8B88CF8C8CBBDDE03E328D4A547D20E6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Caravan 3 (2020) [AAC|~321 Kbps] <Chill Out, Downtempo, Organic House, Ethn
 ```bash
 magnet:?xt=urn:btih:41EE50EB424272EBD3996C850A87A7746E946933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Racecorner - Radiostation (2021) [AAC|~365 Kbps] <Dub Techno, Deep Techno>
 ```bash
 magnet:?xt=urn:btih:DCD64FBAFA72718A0443D66DE0DE7EDC23838760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Defected Presents Most Rated 2021 (2020) [AAC|~322 Kbps] <House, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:87021E3A19FE92C8B1CC5D3C557FBAA63D1D5B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Defected Presents Most Rated Summer 2021 (2021) [AAC|~318 Kbps] <House, Dis
 ```bash
 magnet:?xt=urn:btih:4BEBDD2EB9B0B491539A3B918C641D2899043664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Cap Outrun - High On Deception (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 ```bash
 magnet:?xt=urn:btih:415A343FEFC53F7D300DA92FAB73169A77E7F170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Zelbo - In My Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:2D3B64CCBB20EAF13BC7A6A41D5A04F8F8A003DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Jazz & Soul: Urban Chillout Music (2021) [AAC|~305 Kbps] <Chill Out, Nu Jaz
 ```bash
 magnet:?xt=urn:btih:AB39E78007681FA7688A2027C9CF6B2F34B165F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - A Strangely Isolated Place | 2021 (mixed by todos) (2021) [AAC|~304 Kbps] <
 ```bash
 magnet:?xt=urn:btih:60C96A96562B6979901336180AC8830E22420DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Animal Drive - Bite! (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:16CFF4FD82B1D2E58B37676C04970C94FC7FA072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Harry James - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .cue] <S
 ```bash
 magnet:?xt=urn:btih:58F4A3262F2AE3808DC0DAB8201CCD0A17AF652C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:FA8C1D4FA31A79F1E0B626E021C902DDC2B3F086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ VA - Balkan Connection: Winter 2021 (2021) [AAC|~334 Kbps] <Progressive House, D
 ```bash
 magnet:?xt=urn:btih:6245B83A2F643BAE8648EAA6FF11730149796B66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ VA - FROZEN ORANGE (2021) [AAC|~314 Kbps] <Dub Techno, Deep House, Deep Techno>
 ```bash
 magnet:?xt=urn:btih:B9D98ABBB913716E2D57BEBF0EAA1C99238A4AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ VA - Bar 25 Music: Selektion 2021 (2021) [AAC|~321 Kbps] <Deep House, Tech House
 ```bash
 magnet:?xt=urn:btih:10E79AA6A2DADD74CA5AD552855946A6FB0F4449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Lordi - Lordiversity: Abracadaver (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:A0C79928209E20319D9C02F7608CA78BBD430618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ VA - Maretimo Late Night Grooves, Vol.1 - Cosmopolitan Lounge Music (2021) [AAC|
 ```bash
 magnet:?xt=urn:btih:B031201E15B74C2E3D81B5E692F7EE4D096F89A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ```bash
 magnet:?xt=urn:btih:F29F82C1F96D8C235E2798C53DE669C61A740D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ VA - Armada Music 2022 (2021) [AAC|~322 Kbps] <House, Deep House, Dance, Trance>
 ```bash
 magnet:?xt=urn:btih:1BFF709DF50FFDE2379BD08EC030D2A8EC1342DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ Jettison - размонтирование внешних дисков перед
 ```bash
 magnet:?xt=urn:btih:77AB3D8CAD992801A088E6F7B09AFBC4861F289A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ Land Of Gypsies - Land Of Gypsies (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:22CE1C38D06C0E79BE122B99B1AD4DA83E0F5395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ UltraCompare — это текстовый редактор, оптимизир�
 ```bash
 magnet:?xt=urn:btih:45E68DDBE4C1A2D702C511BD793E92B67064DA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ VA - FROZEN Yellow (2021) [AAC|~300 Kbps] <Dub Techno, Deep House, Deep Techno>
 ```bash
 magnet:?xt=urn:btih:A8055969E7F4CF861CB495699C25B19828BB8178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:8B93E2F9F0D84A642063B4520B94F42AA422A3FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

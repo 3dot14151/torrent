@@ -21,8 +21,7 @@ The Contradiction — группа, базирующаяся в Чехии, хо
 ```bash
 magnet:?xt=urn:btih:61B535E72AA6E60B5F9F25369F17116BBFB08209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

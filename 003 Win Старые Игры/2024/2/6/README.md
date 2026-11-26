@@ -19,8 +19,7 @@ Star Wars: Jedi Knight II - Jedi Outcast (2002) [Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:2644B1BDE9E7809231294851333BF54D127EA5B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

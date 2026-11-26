@@ -19,8 +19,7 @@ Sony corporation | Руководство по Sony DVD Architect (2007) [PDF]
 ```bash
 magnet:?xt=urn:btih:F7B66E93E4105F6B15E13A89B9D3110C0DA20897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:612AE75DEF3185E303D57CBEBF4D03388895027C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Chrisette Michele - Better (2013) [FLAC|Lossless|image + .cue]<R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:382052D9FD8FA7092989C65F0C6052453FB9B6A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ VA - Новинки Шансона 34 (2014) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:27018FB6F15D3F6334B4167A9AAADACB1DBCC505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ FotoSketcher поможет вам автоматически конвертир
 ```bash
 magnet:?xt=urn:btih:80CE73F1A332B96EB336E4FB8648057B23136960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ VA - Новинки Шансона 35 (2014) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:0B475F6BF9A768FD2ED0DEB8D8493568A676BB86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A20AEC169BFAA7D6501A90A1A29DE0F59001DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC056AD923C7DAF3D249253BAB492F947A54C472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ VA - Лирический Союз 100 Зарубежных Хитов (2014) [M
 ```bash
 magnet:?xt=urn:btih:81AB64F4FB870F80916F355DD8D40A56DE830CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ Peter Peter and Peter Kyed - Вальгалла: Сага о викинге / Va
 ```bash
 magnet:?xt=urn:btih:CB3FB7433BF80BEEF6298C6266CCB8D52ABD2A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFDF8F0E2F702586D5596F03B2D9DBAE4354F21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:494D2373AEA9F9295EC08CED2D5F86374D80EB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +343,7 @@ Prince Fatty - Supersize (2010) [FLAC|Lossless]<Reggae, Dub, Roots>
 ```bash
 magnet:?xt=urn:btih:6628EC149406D2787A4E78757FA64F4DDB1ADF4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ Steve Jablonsky - Игра Эндера / Ender's Game (2013) [AAC|WEB-DL|256 к
 ```bash
 magnet:?xt=urn:btih:14B49D9786C8E9D67F5E1C9F692E876AB1247AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ Steven Price - Гравитация / Gravity (2013) [AAC|WEB-DL|256 кб/с]<Sc
 ```bash
 magnet:?xt=urn:btih:A59B6C3747025E198F736DB3771ABB63F25D6FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A244184904C60E1267C8F332F839245FBEA06E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ O&O SafeErase Pro - полностью исключает возможность
 ```bash
 magnet:?xt=urn:btih:6E187E11105F5CF2B4FD7EB778B61D27D093D7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ uTorrent 3.4.2 Build 32354 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A1CC1A3F256FD21C164C0A9472AA25A9B2CF1343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3742EDB19FEBD88243F2F241749EE022AA575DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B939D7419DDA8C0F0F639117349E55D657DA917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D9863DEF95AC3810E3F662B7BF1ABCD7BDE402C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +596,7 @@ La Roux - Trouble In Paradise (2014) [MP3|320 кб/с]<Electropop>
 ```bash
 magnet:?xt=urn:btih:28A6D8AB277CC6C962051E84299322228A5DF4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ MotoGP. Этап 9/18. Гран При Германия Заксенринг. Г
 ```bash
 magnet:?xt=urn:btih:33F644400E3B6F9BCEEAF558050D8AC3E7503248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03AA455FDA93BB599AAAF18DE3626A771DFCDA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149CB1CE5402507FF9CB5085C2DE957744AEAAB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +705,7 @@ uTorrent Plus 3.4.2 build 32354 Stable Portable by PortableAppZ [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F35E4163BE27A99B2B2EE53C0E7B2CB55430A61E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +730,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:826A7AFB5A96170B3249D1842B4049E83B82EE78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

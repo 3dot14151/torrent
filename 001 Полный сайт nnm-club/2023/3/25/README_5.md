@@ -21,8 +21,7 @@ VA - Chill Out Electronic Music (2023) [MP3|320 Kbps] <Electronic, Synthwave, Re
 ```bash
 magnet:?xt=urn:btih:46A42B9F5CEF22F248FF7E1DCA80711C9ABFFF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04A7F323FC8851FCFEFFEFC46C200DE12D912FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | Истор
 ```bash
 magnet:?xt=urn:btih:E74D1E4521323DFB1A2D9E70799F5A1BC139ED77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68626904AC81E56E041719EBB34D9CE3697BECF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FB2D2D883D808F49964A72B382C9FB2D08D1491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D13E460AB4C058B511870C80602314AE72D6FEAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Rougo ni Sonaete Isekai de 8-manmai no Kinka o Tamemasu | Накопление 8
 ```bash
 magnet:?xt=urn:btih:D6BF1FD93371BBCF01884AE6765981FA69731834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1C01F5760CA0CCBAB28706129202029B7238DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Warhammer 40,000: Mechanicus v.1.4.10.0 (2018) [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:38C5B8826F4E3EFAFF828091D8ABC3F63B05F06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Phantom Brigade - это гибридная тактическая ролева�
 ```bash
 magnet:?xt=urn:btih:D65DC31A4ADC7E353B01E536EA2000928CABEEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Blue Lock | Блю Лок [2022, TV, 24 эп.] WEB-DL 720p raw
 ```bash
 magnet:?xt=urn:btih:9EBBED78821849F5916EAE0E3BBB29135687747C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Tor Browser Bundle 12.0.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D66E6C5CBBB32C2C8B6A3E8CF0D670AADDC41684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13322AAE866198F8C417D94B1DEC361375C82AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ Boku no Hero Academia Season 6 | Моя геройская академия [Т�
 ```bash
 magnet:?xt=urn:btih:A9E03B47F8A240652537768C13EBD1B55D953813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ Trigun Stampede | Триган: Ураган [2023, TV, 12 эп.] WEBRip 720p ra
 ```bash
 magnet:?xt=urn:btih:ED8A8A13B06B55B251DD8CD6F20F6DD77C1677F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ Streets of Rage 4 – Это новая часть одной из лучших 
 ```bash
 magnet:?xt=urn:btih:7B76EBCE26D6B5290301EA1CAC7198F2A48607EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

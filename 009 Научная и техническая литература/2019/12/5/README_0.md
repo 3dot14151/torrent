@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2E65CCCFFFE5CA727DE561FE65FC7E134DB1AADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Gordon Campbell | The Oxford Illustrated History of the Renaissance / Оксфо
 ```bash
 magnet:?xt=urn:btih:FAF86B70737CF728F4EFF4D39A116FB42DB2440E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F4D78BF1A5AEECF4853D7A912878CE342A7FAF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B7240C93D7462787D6F22E253452232947248C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

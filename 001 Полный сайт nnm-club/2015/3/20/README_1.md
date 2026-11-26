@@ -18,8 +18,7 @@ Comedy Баттл. За кадром  / Комеди Клаб / Comedy Club  (20
 ```bash
 magnet:?xt=urn:btih:10881C758A6EA733B96A6CF33DC0BA31A757D4F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Flaer Smin - No War (2015) [MP3|320 кб/с]<New Age, Enigmatic, Electronic, Amb
 ```bash
 magnet:?xt=urn:btih:5E1F0DF765B0B982BB37A314DD95C4F4A7704CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ashampoo Photo Commander - универсальный набор средств 
 ```bash
 magnet:?xt=urn:btih:3216C468D3A81CAAEEF29002523106C365131D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6553D6EDB7CEF0363D81FBE56A9F01FE0C17F2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8524205D32A90620CCBF90BFC73538A608B7426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B317796A7849138F1DFBF9E272A0477F37199EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ VA - Жажда Скорости. Полный Драйв (2015) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:F083930535FA8186EA07B20517F916A988804061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13A259239FB1512194F89E6905632587A8FA6AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:716FB20D9695997909B3E9FF5D54972F6E0A75D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CC9AF64A545ABC3C07C2968468E885BF9481719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Michael Schenker's Temple of Rock - Spirit On A Mission (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:92823A8527189D27419681EA191C1CE0E70F826E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Fancy - Shock And Show (2014) 30th Anniversary Edition [FLAC|Lossless]<Euro-Disc
 ```bash
 magnet:?xt=urn:btih:2B79D31FF56CD30CA918DC6B9F443FC6929E0CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:4377CD39B97301EAABBFA48668AB2FA39BFE7F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:484F286CCECB634ED2C8D56C43C9DCBAE6C5182A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BB6FCAE1137917ED35C47B75AF1144C65DAE76D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:671FB74561749E73F0C823C320EB2C9C3D34A79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Wise Program Uninstaller — это утилита для полного уда�
 ```bash
 magnet:?xt=urn:btih:DACF599F3666D0B50175C53D6A481F348315C8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC68D17AFA35E0529E28B841AC149377686C70A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ P-51: Истребитель драконов / P-51 Dragon Fighter (2014) HDRip
 ```bash
 magnet:?xt=urn:btih:9A395AB5861006F94C73B5D78EDA248DA5887CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ WinToFlash — это приложение, позволяющее полнос�
 ```bash
 magnet:?xt=urn:btih:C4051E54048A2E010595A437E9DE648CF4E16EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ Minami-ke Tadaima / Сёстры Минами [ТВ-4] [2013, TV, 13 ep] BDRip H
 ```bash
 magnet:?xt=urn:btih:7686364D25BFCA8F41B44209298D95AA94700AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0F4C6ACC7977E043CDE095F2C363EB54E12AE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ XMedia Recode - бесплатный видеоконвертер с функц�
 ```bash
 magnet:?xt=urn:btih:B8DC9B56F4B0F97D33FCD8059911A1B7F647B9C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4DA19E775930B78919C2F18A99D9136CE00967E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AC7F5CA9A2A7213D29E4DCAA9322C64C146E34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ Paul Leonard-Morgan - Battlefield Hardline (Original Soundtrack) (2015) [MP3|320
 ```bash
 magnet:?xt=urn:btih:457987EBA3D1C5F04A7B23D22C80E86379565BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

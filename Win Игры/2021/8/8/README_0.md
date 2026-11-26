@@ -19,8 +19,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.2.0267/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DC8432E9C50D45092659F96CF2B384DEB6AE667E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Almost My Floor (2021) [Ru/En] (1.0.1) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:81027D6BE295C65EFE64443CFAA56B03360B6312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

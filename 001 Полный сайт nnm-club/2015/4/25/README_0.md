@@ -22,8 +22,7 @@ Nils Wulker - Up (2015) [MP3|320 кб/с]<Jazz, Fusion, Jazz-Funk, Jazz-Rock, Sm
 ```bash
 magnet:?xt=urn:btih:8DAE18603D5A7CEC583F81D47A39A1B838937E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Basarabian Hills - Enveloped In The Velvet Cloak Of Midnight (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:88EC7A0C0BAD5CAE7D64FBBC0FF968367B9C6795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D178B072326575F42EDF611CE329EDE1C45BA2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BDBB610A60C4DF89946C2E8E1C9D0224388D25E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Destination Ocean Drive (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:68AB5A1A6D672C9901557E81CA480B29550236D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9274C82A02B4C7035921688CED4BEB75F75DA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA06738CFF4E9DCD4204FFD78FBB0CCE4F8F87F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65158B53C16F1FED669DE9C19A66206DAD475C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:D69E99616EF08D8757CB3DD928CB1284E19BCB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Schwarzer Engel - Imperium I - Im Reich Der Götter (2015) [MP3|320 кб/с]<Sym
 ```bash
 magnet:?xt=urn:btih:69A4B4FB43CDDABDBFA5EEDA5D7DB8C972455E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Benga - Newstep (2006) [FLAC|Lossless]<Electronic, Dubstep>
 ```bash
 magnet:?xt=urn:btih:A36DBF8B6FC907F4A8AB68B7B5B2438C1EC2EDE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48B192528C8AE6C4832D2BA7524E1BF2FB0339DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Browser Care - является мощным приложением, котор
 ```bash
 magnet:?xt=urn:btih:6DF0AF4A78692D06AB817D763363D830D3BA5556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Thomas Blug - Electric Gallery (1997) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:C5818809EAC6CCC6339D85F7AD43BB7E40F4F86B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ VA - Hits Cocktail Vol.6 (2015) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:E1257419F1F1BD1EC5E9F4328AE14031081F5B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Benji Bananas Adventures 1.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:6F3DACC47A71DD59C00E538F4589228DB47AFD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80D30681AE0D9ADEB8CC60D3A1FF0174BCF989A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Paradise Lost - Maximum Plague (2015) Metal Hammer Exklusiv [MP3|320 кб/с]<Do
 ```bash
 magnet:?xt=urn:btih:829DE21FA807C7FB79975ACBC06D1322551C30D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0DBC0F565695EB107B801E2824075BCA60084E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86006134480814212D0A6E95A8AF122FBED33547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9370CE3CD11BC30B719E6028089152479D2E0E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F01B1FEDA56F605F4845EA61F59E32EEF21D51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:544BF24E936D8B7CE37BCDA09487BCF122592E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ VA - Dance Collection. The Remixes 60s (2015) [MP3|320 кб/с]<Euro Dance, Pop 
 ```bash
 magnet:?xt=urn:btih:638CEFA742C2988D22BFD12DCF30321B1B2B70F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B3F0100DD1B37832BD6DB07FA557A102F4B3733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ VA - Dance Collection. The Remixes 70s (2015) [MP3|320 кб/с]<Euro Dance, Pop 
 ```bash
 magnet:?xt=urn:btih:06EA1F11D410A16DD207E8FFF91EC248ECEF65EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

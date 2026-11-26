@@ -19,8 +19,7 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:7E1887130D841F66631996EDC775E2EDD1B15B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

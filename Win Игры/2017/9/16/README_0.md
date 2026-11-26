@@ -19,8 +19,7 @@ The Keeper of Antiques 3: The Last Will / Антиквар 3: Последняя
 ```bash
 magnet:?xt=urn:btih:0414DC361038EB2456F43720AFB7D4CEBD0FFD20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Impact Winter (2017) [Ru/Multi] (2.0.5) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2ACD9D04B767E99E23794F4D296641375CB49A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5E1EBE00A7DAEB02484654473E26B2871D90A23B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Total Commander PowerUser v.73 Portable by HA3APET [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CC9DBE3AB959ABAB02F78B06B2A8844AE64D40A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4AE3455BE5ADE79987745C65FA289847DAFE497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Internet Cafe Simulator 2 — это комплексный и детализи�
 ```bash
 magnet:?xt=urn:btih:A66643BFB502D059F0018E8390D21534CA3066F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Mirror for Grundig TV 3.5.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:23B41858EE1634BD32F3206B0086B91927D6CC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ EdgeView 3 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:70A64640EB92528A9C9E8DB1EC234D18A157917C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ VSO BlindWrite - программа для быстрого копировани
 ```bash
 magnet:?xt=urn:btih:28CEA759312045DD637790C3A8C28E679F1D488A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

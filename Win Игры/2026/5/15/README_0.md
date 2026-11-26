@@ -19,8 +19,7 @@ Subnautica 2 (2026) [Ru/Multi] (0.10.0.113109) Repack seleZen [Early Access]
 ```bash
 magnet:?xt=urn:btih:7697A70631C41A8DC872BCD777852897EE31590E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Iridio - это инди-приключенческий экшен-шутер о
 ```bash
 magnet:?xt=urn:btih:D567A3EB92A72D7E9B957125C208B225990D1FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Dominion - мрачная Souls-like история о человеке, п
 ```bash
 magnet:?xt=urn:btih:3D760642C79D74B85FBFE0A442FE4C361BBE2F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8C6A2C7F4716B4B72CA17A3D723E775508CC4D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ WILL: Follow The Light - приключенческая головоломка �
 ```bash
 magnet:?xt=urn:btih:5D72DD8134C866F4F5FA7AB98E46F396D3C0B233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ PRAGMATA (2026) [Ru/Multi] (build 22357085) Repack HardwareMining [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:DEFF4A56F82065925F7514A6CB879C12861EDA7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Underling Uprising - это новый взгляд на классически�
 ```bash
 magnet:?xt=urn:btih:4484016D7D5F3B7176568C656E9EC8ACFC7B62FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Scene voices38 [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3215AC1434F45B8C59776CC53A90B8AE338DC7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Iridio (2026) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8202DCE034B23628B705D68BC706424347FCE51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Valor of Man (2026) [Multi] (1.1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:C974825359CBF8CAE45FABF7942B35DB57663B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ WILL: Follow The Light - приключенческая головоломка �
 ```bash
 magnet:?xt=urn:btih:7C55A54B5B866381F88CD73EE8661EDBA98E0678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Fun Mode - Сверхновая (2023) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:321899E7237C1F641B1841BB8CB3F02217300AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EAA2E42060BC3820EC6B07D352A1FE7EC012646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:39947A1B9566330DCA2F44DA20BB0E42FA583F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Soulsad - Two Funerals (2018) EP [MP3|320 Kbps] <Melodic Doom, Death Metal>
 ```bash
 magnet:?xt=urn:btih:3F2C1C9632BC26F7C3516C515F40D24B4A82AD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Squeezer дружище веб-разработчика. Он может ком�
 ```bash
 magnet:?xt=urn:btih:979C2E6EBF46676095520619969DD3A9D8A587BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Villanos - Bisonte (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:BDD54163FA246F89A9B2DFF0177C4856CB5E4AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Data Guardian 7 v.7.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:99E6B281DCDA706F58EDBE05FFCFC8EFE2D63C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.2 (1953)
 ```bash
 magnet:?xt=urn:btih:552FBA4295C50AD6B73B37BCE2E043CA141A1333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:4BCD66C7F0E945056CF6ECD0B51A34D7231F88B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ another wave project - The Best of (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 ```bash
 magnet:?xt=urn:btih:8E7C7EC4A3112902E799FAEED687938FC9898E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Sons of Ragnar - Lindisfarne (2015) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:8FF594184DAF91D0CC9D1AD46FC404535BF2D306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Soulsad - Doomed to Funerals (2022) Compilation [MP3|320 Kbps] <Melodic Doom, De
 ```bash
 magnet:?xt=urn:btih:DF178BA3783B4AE463A48E7A53F25293BF961CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Downcast – программа для загрузки и прослушива�
 ```bash
 magnet:?xt=urn:btih:720E63BD91FFFE5FE453743A41A75CBEE7F47939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Sons of Ragnar - Echoes over Valsgarde (2023) [MP3|320 Kbps] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:34C7089EC2EC8C059886EA97DB329A9D8636B35B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Final Draft — профессиональное программное обес
 ```bash
 magnet:?xt=urn:btih:0F555D379E0A7220AF89B303431EBCC76C16CDEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D783A7EBB98E0607566F8FD8F4CB666D97DD29AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ Dragony - Viribus Unitis (2021) Japanese Edition [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:5AC689338E993F3A230B758AA7633F72F7B80C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:684F4B65C649D92524CFE06E2BA664CBCFE7F8BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ Legion of the Damned — голландская трэш-метал/дэт-ме�
 ```bash
 magnet:?xt=urn:btih:6A62A075CEA9CE6CBD4D5123F025155C00852838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8EA03C84C9FB813548DC90509DED9E009E85E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ VA - Nothing But...Ibiza Closing Party 2023 Trance (2023) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:88D20B1DD7200A41CFE66768C17BD175CE116132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ AMD выпустит в сентябре HYPR-RX — систему ускоре
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ Smurfs Kart (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B89DF256B3673B16DBD1AD2EA7E00EA9A2F95E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CBC73B6554ABF4043166B9340BDF0EBA4B5EB5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8388393A23430BF52020603DDB43117D7F04A442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B538BE993A920192010B137B21082559E76F465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

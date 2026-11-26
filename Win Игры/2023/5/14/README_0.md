@@ -19,8 +19,7 @@ Lost in Darklight - это увлекательная интерактивная
 ```bash
 magnet:?xt=urn:btih:55A95A0751A7735E782A08C374E12F64B26ECD7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sunless Sea - это приключенческий rpg хоррор, в кот�
 ```bash
 magnet:?xt=urn:btih:36BE2ED7D7F007FD7A068661ECC7EC92770F193D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

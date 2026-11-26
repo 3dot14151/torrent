@@ -19,8 +19,7 @@ Pro Basketball Manager 2024 предлагает стать тренером и 
 ```bash
 magnet:?xt=urn:btih:E63E1A5FC844170C8835D95363DDD5A559C6C23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E95AB7D08237350E3E32DBA9C4D3F3547EC46B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Creature Lab - симулятор лаборанта, занимающегося
 ```bash
 magnet:?xt=urn:btih:C97E1F4D0CC55BC0F2D712B017B5498AFF93C866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fuga: Melodies of Steel 2 переносит в разрушенный войн�
 ```bash
 magnet:?xt=urn:btih:B32FCA428B649CC73668A283C434450FC7BE190B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tourist Trap в царстве виртуальных приключений в�
 ```bash
 magnet:?xt=urn:btih:30CE6ED92F1208A632DD5AB4398785AE3ADEB3C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Zipp's Café - история о кафе в городе животных, на
 ```bash
 magnet:?xt=urn:btih:166158B271746E6A1CBB72622820F5ACEB0D16E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Another Day — это психологический хоррор, с граф�
 ```bash
 magnet:?xt=urn:btih:010A65937D0F138C60269BEE1A7B26E37B588027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Turok 3 Shadow of Oblivion Remastered - это точная реставраци
 ```bash
 magnet:?xt=urn:btih:0E11B2F591C61B56D5899053C73A930224CAFE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PDFpen 13 v13.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:68D8B492DF0E636A33185BF89BB2519AAF1DEBC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ DeskCover это простое приложение, которое позво�
 ```bash
 magnet:?xt=urn:btih:D893F9FC309D0BC5A5FE20C14A2659BFA6673C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Posterino – программа, ориентированная на созда
 ```bash
 magnet:?xt=urn:btih:4BFC3343E745C11633103B8EFDD4D71713D0B105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Don Patterson & Booker Ervin - Legends Of Acid Jazz (1964) 1996, Prestige [FLAC|
 ```bash
 magnet:?xt=urn:btih:EB762DDD5EBA86555F2CEDFF6A8A341241AA3378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5681F39C1BA6BD18F3D98C7C89CD7FFB587F39B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ MaxSnap - мощный менеджер окон, который позволя�
 ```bash
 magnet:?xt=urn:btih:9E3ADFEE3734DC5D94A047B45ED6F7E35DDE2FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Crumbsuckers - Beast On My Back (1988) 1998, Century Media / KINGfisher [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:AAA2655647C0EC30790A3EC51BEA3CFABEDA91EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Blocs - простой способ создания красивых сайто
 ```bash
 magnet:?xt=urn:btih:456BE9219ECF58956E66A3E7D5976A71A55DE72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Martial Solal Trio - Triangle (1995) JMS [FLAC|Lossless|tracks + .cue] <Post-Bop
 ```bash
 magnet:?xt=urn:btih:62DBEC2F91CF3759B551CF440C0F7B3F7234A291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Georgia Satellites - Georgia Satellites (1986) [MP3|320 Kbps] <Southern Rock, Ro
 ```bash
 magnet:?xt=urn:btih:2D9B21A1B534C379FB78C1F97C402F31CFAF29A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ AC/DC - Californication (Live) (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9B9CC417FA28B64EF973271BCD9ABB311EB47832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E6652F5D527EC19FDBDE403E5535D5E6E3424C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:063522930F6BE94B907B5D39C9473B8250113FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C38D250C0B9E80BA33BEEB00C7F2EE67E10D6014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Victory at Sea Pacific - захватывающая стратегия в реа
 ```bash
 magnet:?xt=urn:btih:AA6B273707D574F79F733B93ABBE4136EE7E407B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Gold Rush: The Game – это симулятор золотодобытчика
 ```bash
 magnet:?xt=urn:btih:4CA3E4A3141A2B577B0A49600EF9CD871C7E6941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Microsoft .NET Framework — программная платформа, выпу
 ```bash
 magnet:?xt=urn:btih:0FA90E52279D336CE1F5E33FCC06A3D471B77141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17A1F8ABF93D7ED6E0FBD9B6733E97AC111E29A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B055D6806A3FA0936B5ED3818F42CD4C55BCA9D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Call of Duty 4: Modern Warfare (2007) [Ru] (1.7) Repack xatab
 ```bash
 magnet:?xt=urn:btih:814ED4EA9852A369A5E6AAD2294A5016536BAF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ AutoCAD является мировым лидером среди решений
 ```bash
 magnet:?xt=urn:btih:B1E2798A49FC3E24C42AB1ADB306C33E15B5759E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ TopStyle (   Читать дальше...   )Язык интерфейса: Р�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Runtime GetDataBack for NTFS & FAT 4.33 Portable by PortableAppZ [MULTi / Рус
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

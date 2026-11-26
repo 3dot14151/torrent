@@ -22,8 +22,7 @@ A Caustic Fate - Chromatic (2019) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:BD11F8B28948FF910647CFC2113719DB3364E646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ American Bombshell - Tattood ‘N Bruised (2019) [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:CCE3C6849F8E75303352E6045D3FEE73E0D43D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hardline - Life (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EDF8EB8E36B25A715500079720BA92321B8BD9A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Not Drowning, Waving - Claim (серия "Другие восьмидесяты�
 ```bash
 magnet:?xt=urn:btih:E25C842DC017E64F6B2C590D27CA08B0C82EA5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Skys - Automatic Minds (2019) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:AC98051F3F938D97DE48B471F384B2D85C87819D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

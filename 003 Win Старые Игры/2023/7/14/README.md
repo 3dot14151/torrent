@@ -19,8 +19,7 @@ Strike Commander, видеоигра в жанре симулятора боев
 ```bash
 magnet:?xt=urn:btih:DAF7D27201E7B442A5B0FE99FAC39968E3A2F39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

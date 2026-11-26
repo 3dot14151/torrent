@@ -19,8 +19,7 @@ King of Seas (2021) [Ru/Multi] (7677098) License CODEX
 ```bash
 magnet:?xt=urn:btih:3110438A9C6EF6BE6EB74C87AA2FF5DB7F679479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.09.00/dlc) Licens
 ```bash
 magnet:?xt=urn:btih:2AB2AF30C6DAE18F3F265405120B17CD2A88941B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alpine - The Simulation Game (2021) [Multi] (1.0.0) License DOGE
 ```bash
 magnet:?xt=urn:btih:D627656CAC0A54F49B9315FC9971F291D65CA3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Empire of Sin перенесет вас в сердце преступного �
 ```bash
 magnet:?xt=urn:btih:B611C494F837C4BA665F6D65E9513C5993EBD7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Winter Warfare: Survival (2021) [En] (1.0b7604797) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:297F30D0810279286D757490C7BDB861E0FC803D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Exo One - это приключенческая игра, в котором иг
 ```bash
 magnet:?xt=urn:btih:4F0D713C95D419490CA6D894BC5B9A233EB8060C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:422CF0CD31B2083E74F750409121EC140869A68F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

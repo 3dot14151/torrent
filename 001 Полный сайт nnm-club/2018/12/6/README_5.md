@@ -22,8 +22,7 @@ Bunny Berigan - 1937 - 1938 (1994) Classics [FLAC|Lossless|image + .cue] <Swing,
 ```bash
 magnet:?xt=urn:btih:58BC09CF3F3E4BCF8B5D78C23533F58465F104F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:DE2562ADA295E6564117E46C4F6D7C312A4A3DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Art Van Damme - State Of Art (1967 - 1970) 2000, MPS [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:7338F385202F1EC9A63BA29B79C75EF4B4344282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF732E322029AFBECF06669408B81B99BCFAAD88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - M/N (2018) Mélodies Souterraines [FLAC|Lossless|tracks|Vinyl] <IDM, Experi
 ```bash
 magnet:?xt=urn:btih:13B8DE0F2E7D16F59F1F18F765618439EBCAB752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Iron Hunter - Mankind Resistance (2018) [FLAC|Lossless|tracks + .cue] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:50FD1BB9EC3900FCDD8C97D236DCD5C50F18E5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - German Top 100 Single Charts 30.11.2018 (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9CB411397AD9E769B75F24C1E2D8E1D5CD8B2F73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - We Are Humans: Synth Electronics Mix (2018) [MP3|320 Kbps] <Synthetic>
 ```bash
 magnet:?xt=urn:btih:4926209B3C2C2C83503F3C542D50AC33CEDF31A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ CocCoc Browser - браузер, который является продукт�
 ```bash
 magnet:?xt=urn:btih:B5DAFC5C716835233DC8F16439A5925812EA1053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ VA - Cosmic Cubes - A Cosmic Trance Compilation Vol. 1-6 (1994-1997) 6x2CD, Comp
 ```bash
 magnet:?xt=urn:btih:47C0649543BB76EA5CEFF5AB8943616E7D7ADA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Simonetti, Morante, Pignatelli - Tenebre (1982) The Complete Original Motion Pic
 ```bash
 magnet:?xt=urn:btih:35B62ECBEE7005E5E7F716AC9DEFA5D879294F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Anderson .Paak - Oxnard (2018) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Funk, R'n
 ```bash
 magnet:?xt=urn:btih:2306D21095BE039F6E77ABC5A36A458B64CE52DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - Billboard Hot 100 Singles Chart 08.12.2018 (2018) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:CE5474F0062E94BFB1E9AAC153C5D2FE9DEEDA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ Soulfly - Ritual (2018) [WavPack|Lossless|image + .cue] <Groove Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:0BBF7C53EFF913809EBC75638B0DCC4351AC9DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ Sweet Inspirations - Hot Butterfly (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:8170B535D37028528EF5020D9409A51C98F1200A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ VA - Sunset Meditation: Relaxing Chill Out Music Vol.6 (2018) [MP3|320 Kbps] <Do
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFE9EB6B1AD55F16F1A450CFB1C4A4E79AA7F2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:555337B0013E7832865558116F8F420414B91A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD2571F93BC29253EDD9EF84E145688F392D9E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18EED00DD00D3BC36E1250BB28C9CE5D009AA830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E02C58EAED41CAD7037D81D1F5FF445FD935F0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ Van Morrison - The Prophet Speaks (2018) [MP3|320 Kbps] <Blues, Jazz>
 ```bash
 magnet:?xt=urn:btih:7502D5606A34E9F530D4D1CFE031C3881B813BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C343BF903B507F3531011A8C27065D8410843956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ VA - Time Of Revelation: Hard Rock Box (2018) [MP3|320 Kbps] <Hard Rock, Alterna
 ```bash
 magnet:?xt=urn:btih:D3F464BE55ED4C30DBCEB1623CB975BC5EE3BED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0475C40EA4CB5785A9373218040BAF55CF821637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04AC63185AAE682353C75778005E856E6B2FA896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

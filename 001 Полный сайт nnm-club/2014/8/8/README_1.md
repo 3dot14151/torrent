@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E4DC6E8FE4A03E3933A76187A5156455C51788AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Sonatina for violin & piano in G minor, D. 408 (Op. posth. 137/3)(   Читат�
 ```bash
 magnet:?xt=urn:btih:3B96C4C395CDC272C2FB96B9CC71C907C4380788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:454CEADEC908A6292E3252ED04CF0AB2E586EA1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1E625D755180C040317E1B93A9C302C0A15A36B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01087592CA2E14DEDC7ACCB557A81DE1B483E898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Macaw позволяет очень быстро собирать дизайн, 
 ```bash
 magnet:?xt=urn:btih:53E93485B4FB006EB7E359C96815331F3A0BD713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Reg Organizer - это многофункциональная программа
 ```bash
 magnet:?xt=urn:btih:3341C9246382D7AED2A40FA322929B14E1F0A3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Icecream PDF Split&Merge - это бесплатное приложение, п�
 ```bash
 magnet:?xt=urn:btih:BC3C81FBBFE87C109FA0E1950776850C8ABD1462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49459978E024CC3F9E2A8B78AB2A3C4E0C41444A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Leaf выполнен в виде старого доброго Tweetie  — о�
 ```bash
 magnet:?xt=urn:btih:4BA9081FDBF0B824FC0C4F172765A0AF898987DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Flash Player Pro - весьма продвинутый плеер, со множ
 ```bash
 magnet:?xt=urn:btih:B3E1A58061B62816519329A41A18D62F2AB2813F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B57051FDD34ADC84BA8661540E69A0F22DE1B05D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9073DF42514B5346D45B793B0A02F5045E3F672F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Wallpapers - Природа. Мир на экране [JPEG]
 ```bash
 magnet:?xt=urn:btih:CFB0904F9A5DA85CE2C4556661B3153EC87CE132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:B1F8FF95DB116BA7B1D75C0FE48E9642C09B47A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ AutoRuns - утилита для контроля автозагрузки пр�
 ```bash
 magnet:?xt=urn:btih:096A1836D3F16C424E691295EF11BD0DB955689A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ Silicon Dream & Projects - The Maxi-Singles Collection Volume 1 (2007) [APE|Loss
 ```bash
 magnet:?xt=urn:btih:E4A650A66D46AA755CAD539B6DFF9585E2E2BE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ OS X Mavericks 10.9.5 Combo Dev Update (13F12)
 ```bash
 magnet:?xt=urn:btih:19C1A06EEB2D4DC3E67C5296FC95AAEC6154935D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7966AF4C304E29460AA7B5EF1327D1ECC17F912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ VA - Alterportal HITS 14 Vol. 71 - July (2014) [MP3|128-320 кб/с] <Alternativ
 ```bash
 magnet:?xt=urn:btih:019768E56EF474846F78D92DEBF6C48884C2DCC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ M83, Anthony Gonzalez, Joseph Trapanese - Обливион / Oblivion (Original 
 ```bash
 magnet:?xt=urn:btih:F2694CE004F1643170093BF299B8630719E4ADA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ Symphony No. 1 in C major, Op. 21
 ```bash
 magnet:?xt=urn:btih:8E60D6256AB4ECD73C1EB4201EF0651EEF93CF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Image Tuner - простая в использовании утилита для
 ```bash
 magnet:?xt=urn:btih:1BCCD466EDD3E9F7F3CEE53CFEB4577C0760E53B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ DVD приложение к журналу «Computer Bild» – крупней�
 ```bash
 magnet:?xt=urn:btih:69C63265CE32BC913C1B0146CDD922251C1BE87F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5001E24068B12AA5D05D0859747633C0B7EB2467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

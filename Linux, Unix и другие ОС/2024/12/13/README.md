@@ -21,8 +21,7 @@ DR14 T.meter - это свободно распространяемый инст
 ```bash
 magnet:?xt=urn:btih:09BFC72C72E2477E41BC7D5919213EF266D06C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ True Crime: Streets of L.A. [Ru] (RePack) 2004 | tukash
 ```bash
 magnet:?xt=urn:btih:456B5C3F38E7D79243CCA6980C4489B65CEF4091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ World of Horror - это ролевой хоррор, нарисованный �
 ```bash
 magnet:?xt=urn:btih:F5003880A403000BEB4C0E8714FC6737879F0D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fables of the Kingdom V / Сказочное королевство V (2023) [Ru
 ```bash
 magnet:?xt=urn:btih:2DEBC40A01708CF87464D920F3C570CBECE22BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grim Tales 24: All Shades of Black / Страшные сказки 24: Все о
 ```bash
 magnet:?xt=urn:btih:5F42CDFAA30056F4EB40F2F30E6AD61502F1997C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

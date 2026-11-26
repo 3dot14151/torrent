@@ -18,8 +18,7 @@ GnaCAD - приложение, что представляет собой оче
 ```bash
 magnet:?xt=urn:btih:CA740569368C55A06C3F93A81B2ED0DC3115D044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:6DC6CE3B73631AFA71E9B9B6CFE26D648ADD53C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3806A3BD5A773C4F749035A768ECC0907FE89AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Electrical calculations / Электрические расчеты - прогр
 ```bash
 magnet:?xt=urn:btih:43F25AD0E607D7A4D00A34389F97009BBD552472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Image Converter / Конвертер изображений - просто от�
 ```bash
 magnet:?xt=urn:btih:CDED048A23EC5D98BDC2891CAE9545852D5AF7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Switch позволяет Вам воспроизводить разнообра
 ```bash
 magnet:?xt=urn:btih:3E8380325A6DAE7C470D35FE25692CB4ADD2617C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack)
 ```bash
 magnet:?xt=urn:btih:79A55F34E7851D276DDB99B7D04EBF1686248F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Spotify имеет громадный каталог музыки, поддер�
 ```bash
 magnet:?xt=urn:btih:82AE9B7909982EDA1210424C0B2CDC341383EE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ ItGid, Александр Лущенко | PHP Stage 2 (2019) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:05E97A6893A5362BF39EAF2AA6C5C04E50906B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8198F3A6A5C1DF22E806F90F4F4E34B2FD5E4EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ YouTube Vanced (Extended) - это неофициальное продолжен
 ```bash
 magnet:?xt=urn:btih:32C2E427B63F7CC15F7ABA14C8706EE570383838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License 
 ```bash
 magnet:?xt=urn:btih:30FD0AE135C1AC890C864293854958FB67B06CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2D162A8055ADDEC2DAE142B1649AA6256119ABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CA17E853BCBAF4C5A5A736A28C12C45BC2DEC0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FACA327C747054BBE33745D22B0118B7A680360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6C187997D7CBD9809942525EE2C0175BB94BB30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Dire Straits - Sultans Of Swing the Very Best Of Dire Straits (1998) (2012, SHM-
 ```bash
 magnet:?xt=urn:btih:2D8AF32E0CA8D5E25D83CE40CF68B81B4F5E8AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Windows 7 Professional VL SP1 x86 (build 6.1.7601.26022) by ivandubskoj 14.07.20
 ```bash
 magnet:?xt=urn:btih:EA098504A43F1DD147ED83CEAA07ACC711CA4E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5851CF85EC040B697E74452086F946FAC86FF5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E789E8AF0AAD7928D7DE193E22387149A4A835B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ MADiSON — это психологический хоррор от первог
 ```bash
 magnet:?xt=urn:btih:72E171CE7767B09E840F59AF4635684AA0514156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C781D05D49D09B08FA31BFA83323A5D0E25CAFC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ WebCademy | JavaScript разработчик: Уровень Developer (2020) P
 ```bash
 magnet:?xt=urn:btih:7F999161DF22127E081EB6643814E8B262D95D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ Star Wars™: Empire at War (2006) [Multi] (1.05.48808/1.01.58910/dlc) License G
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB7DBA395AF9CE212300BF9AF006EDB2BFB38685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

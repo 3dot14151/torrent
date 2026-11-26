@@ -28,8 +28,7 @@ Lahmia - Into the Abyss (2012) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:13F9F89E20E29E3152890766667091F576FFE627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Megaherz - Gegen Den Wind [Single] (2013) [MP3|320 кб/с]<Industrial, NDH>
 ```bash
 magnet:?xt=urn:btih:A7BC159B9D0925F1D948A04DF4D3855EB83005C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Six Feet Under - Unborn (2013) Scene [FLAC|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Dan McCafferty (Nazareth) - Two Original Albums (2CD) (2002) [MP3|320 кб/с]<B
 ```bash
 magnet:?xt=urn:btih:4FE3A27AF9A934523D0643706D378477545D7312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

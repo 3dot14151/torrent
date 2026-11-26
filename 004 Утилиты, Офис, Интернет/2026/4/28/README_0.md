@@ -20,8 +20,7 @@ Hasleo Backup Suite — это программное обеспечение д�
 ```bash
 magnet:?xt=urn:btih:7A9263AF77A178AFE597453B3337359245E8B132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Fences упорядочивает рабочий стол, размещая пр
 ```bash
 magnet:?xt=urn:btih:B29B3036AC9C684A9E3D8098A1C003823D25C8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:660A9537BFAA4188C55B4B438BE3FDC7EFD1D4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ WinMerge является весьма полезной для определе�
 ```bash
 magnet:?xt=urn:btih:B6745C81C6C080C4C21D373225CA17A82AA1668D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:D5D96B6EE06BB038F1F7A580CE8D63610E7FD93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 ```bash
 magnet:?xt=urn:btih:8029CC229A43FDE1C3D7A83C5E4DFF41A37EB0BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

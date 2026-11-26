@@ -19,8 +19,7 @@ AFUWIN - утилита Flash Memory Writer, которая обновляет �
 ```bash
 magnet:?xt=urn:btih:03D1A4DD59AE189130294750915737E1170BF2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:16DBB63417D610FC15DFEBEE58F690FD3F764540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

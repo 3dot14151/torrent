@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B5B7959F655E6755726D8E5098935524B1893582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Timeless 2013 — шестой концертный тур французско�
 ```bash
 magnet:?xt=urn:btih:8DA3E31984F7A844B0952A45CBC8FF362AF9ECE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Q-Dir — файловый менеджер с очень малыми сист�
 ```bash
 magnet:?xt=urn:btih:FD8DA8BE0D5D3B740849DC16C7E57703CFC860CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Dora Saves the Crystal Kingdom / Даша Спасает Королевство 
 ```bash
 magnet:?xt=urn:btih:EDFE466E56A90CD187FC97A7F698A6F850CB82D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ CCleaner - бесплатная программа для оптимизации
 ```bash
 magnet:?xt=urn:btih:8AC26BE21A09D239703DC41FD19404E228DFD88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:684BEF1DCEDE1441AC96FB12BFC04052A80ECEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ OmniFocus, пожалуй, идеально подходит для планир
 ```bash
 magnet:?xt=urn:btih:53A6D4DCF3F4823828CCC6B365F7AA34156574C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2322239ABD79672C38C986C393AEB8D2E3C629B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ uVS обладает рядом уникальных функций:
 ```bash
 magnet:?xt=urn:btih:A72DA4E6218BA4DD2B9F3B43FDA47E9641D87573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [720p]
 ```bash
 magnet:?xt=urn:btih:FAEC2B99E1B89A96AED344854C86486A3B826998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Pixelmator представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:9A8B32AC974F84E0D29036066111870CEB3EEFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84D9EA9DF3C1CBECEAD9D4E52B4053D01BF7629D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [1080p]
 ```bash
 magnet:?xt=urn:btih:E828BE986B912834A7E286E7B4EC6C1C7A4F8328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5524991F40B5DBE717EEC3C52DC359B2153C638C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA99E90716FB48E80328C153E8B0A6B8A7F7AB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:14B1BFCA52545376A95B3875C14172A1C09A55B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E20EC017C0E55DFDFEE648C505B085428A03F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:ACF1724BB3D0A31E2FA512F0CABD65743CF3A25C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F07B9559CE67CF88744159711C2B63FBDE78FA0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:660AF8F60C583370510BBD87055DD61E181353F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ BattleBlock Theater (2014) [Multi] (1.0) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:F1D4C5E825D655B43322C34AD892400CCFEB798A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ CyberLink PowerDVD - один из самых мощных на данный м�
 ```bash
 magnet:?xt=urn:btih:57F4E91F7ECFFCAA0A3FE42E865B0C50290D247F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3F5E432AAE7BD80AD4B88EA82B7A5FA4C0BD72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ Complete Collection — это наиболее полная коллекция 
 ```bash
 magnet:?xt=urn:btih:6BD422D60BA2086C0F986218A04A8981F4735794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ Google Nik Collection — это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:E181E26DEBCA3227E71501A1697DF87283699E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

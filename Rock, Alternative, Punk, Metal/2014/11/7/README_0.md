@@ -28,8 +28,7 @@ Burning Black - Remission Of Sin (2014) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:62CC7D39E4BE842C62D58420C0083A1B23386802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Faster Pussycat - The Power and the Glory Hole (2006) [MP3|320 кб/с]<Industri
 ```bash
 magnet:?xt=urn:btih:F046C6C4297E19CBBC4DC2951252C78E963F2FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Skyharbor - Guiding Lights (2014) [MP3|320 кб/с]<Progressive Metal / Djent>
 ```bash
 magnet:?xt=urn:btih:78A190F56B36A2A2F69DFD36F5082F6F9C47891B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Pink Floyd - Live in Venice (2006)  Bootleg 2CD[MP3|320 кб/с]<Progressive Roc
 ```bash
 magnet:?xt=urn:btih:D0806BF3842834234B5E97EB10D6A277C9E8FA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Smokie - The 25th Anniversary Album (2000) [APE|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:3138F45EA5B9699E29E007ACD692FD4BE1B55E0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ The Doors - Love Me Two Times (2002) 2CD [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:D093B489A40B144D8B8E390074B79EE305DFE26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4695782DEF180A3AE8B6263AEB3B364D7A265328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Pink Floyd - The Endless River (2014) [MP3|320 кб/с]<Progressive Rock , Ambie
 ```bash
 magnet:?xt=urn:btih:6C974E1D0D0B8960F7DF22360E6A371BF4145D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

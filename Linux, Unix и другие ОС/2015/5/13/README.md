@@ -21,8 +21,7 @@ Jondo Live-DVD предлагает безопасные, предварител
 ```bash
 magnet:?xt=urn:btih:821D4FE0B766FC40B145E34FE85B6D19210E09C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:070D0B0532A2367161FE3B2655186C7322E25A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

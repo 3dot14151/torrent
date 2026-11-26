@@ -20,8 +20,7 @@ SAM CoDeC & DeCoDeR Pack 2014 5.75 [Ru]
 ```bash
 magnet:?xt=urn:btih:ED8365E8605AA08FBEC007CF06B3B584A43E848C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:60BF2F80941E6448A79F007498A9664E451BA3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C16A96A156BC9057350A4049D1128EFD9D45C162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VA - My Favourite Hits of 1970 (2014) (8CD) (2014) [MP3|320 кб/с]<Easy Listen
 ```bash
 magnet:?xt=urn:btih:6EBE47F56FCB836754F2FA0A1701392992488515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8309661A735D3277DCB35D1A912B1DF1A920624F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D2BD07B57F3780328634A70D592EFC9E90C041E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:353A5D403246C471ACEF40B244922C97EF83ACA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Skype - программа, с помощью которой вы можете �
 ```bash
 magnet:?xt=urn:btih:DDEC9A65906C24822CA92EE30AAAC244D6B1BDA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ VA - Новогодний Хит (2014) [MP3|24 -256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:31A0EF1C06441E49FBE95062284DD80141D25652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Dan Balan - All The Hits (Orange Exclusiv) (2012) [FLAC|Lossless]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:82CFDD8FB0DECCE370B08CFFED488685C81E3B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Deponia 3.2.5.1333 (2014) [Multi/Ru] [AppStore]
 ```bash
 magnet:?xt=urn:btih:8DAA83BD2279797FB4CB5A6FD7621F76ACB80D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C17CEAAE87DCB9D6F5B6CAEA17946651ED98771F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Weird Park 3: The Final Show / Таинственный парк 3. Послед
 ```bash
 magnet:?xt=urn:btih:AC036E0D0ABB10718598742CF52881EFDBF2F9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:214443002B599FD3C35BB072E289CC64AA6D8979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4425B9B864F5984AAEBD4685469C5D78C4961550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ The Idolm@ster Xenoglossia | Idolmaster Xenoglossia | Idol Master Xenoglossia | 
 ```bash
 magnet:?xt=urn:btih:1F33A3283A69A1A288F16478044312A34D85342E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ Format Factory - многофункциональный конвертер ра�
 ```bash
 magnet:?xt=urn:btih:3D9080943CBD61F7848607787FD3E7688EFF39FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ VMware Workstation — известная программа для виртуа
 ```bash
 magnet:?xt=urn:btih:C5F65CAF3BAFA7EF88E5BB77C50A3CE009A7BF81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Howard Shore - Хоббит: Битва пяти воинств / The Hobbit: Th
 ```bash
 magnet:?xt=urn:btih:2AD14CFBEFC33A5CD20642111A647D135ACF93E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C022DC1CAFB40B98EE7510B0067F8AEF545D229E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F02C3C52E4D2F18341CFE306BB3A9322BC095969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BB749D526C0CFF07E6296C6A6A30DF0EA39FD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:884E8BA6E30A8B31BF2DEA348E0E53CF4B036CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ Total Commander 8.51a Extended Lite 14.12 RePack (&Portable) by BurSoft [Ru/En]
 ```bash
 magnet:?xt=urn:btih:680D8457BFCB92DAC28D45664770B404CE4BDBBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A938D295BA988B77C5074882CDE15C6913A7EE66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57D5BCFE59C2A9DE2C8014122F7055676F90B053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

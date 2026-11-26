@@ -19,8 +19,7 @@ Force 21 [Ru] (Rip) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:D8E949C6B7542C58568A6F5500F28DE143DCC0CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bad Day on the Midway - интригующая 3D адвентюра от раз
 ```bash
 magnet:?xt=urn:btih:61F90D1F17EA808EB2BF63928B8532B675FAFED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Magic & Mayhem [Ru] (Rip) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:9AFF0113E7A640B7F361FAB60EE3BEF420E3C954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Congo: The Movie: The Secret of Zinj [Ru] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:67A92A1FFA9A5FAA3CD0F275D5E59B3AD02B7B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Galador: Der Fluch des Prinzen [Ru] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:BB0261B626580EFBD68ABDC64F2751E5E9B8B676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Shadow Warrior [En] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:1989C27C199DC9C1EF9DB00AE2C6079B412A6EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Deer Avenger 4: The Redneck Strikes Back [Ru] (RePack) 2001 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A110C8B53AC8F5A4AB812FA5EDE6FAC0E44F2A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Starship Troopers: Terran Ascendancy - тактическая стратегия
 ```bash
 magnet:?xt=urn:btih:D4216DC5166A397A8C0E04E04FF0F740DD6EEE7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

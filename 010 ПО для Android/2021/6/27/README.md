@@ -19,8 +19,7 @@ Zemana Antivirus 2021: Anti-Malware & Web Security v2.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:0B34D77C7C487E0F3FCDD5B274EC39B15081AC36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Umbrella - это уникальное решение для блокировк�
 ```bash
 magnet:?xt=urn:btih:617E1F4509AC0094DDB340E7CF777562E11787DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F35B508CF9D0F45E20F1AEB94DF71A6C79D682D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F07ACA1EDE10976DFA0C2CCD6CD5AC615BAE20B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Envato Show - After Effects CS4 - CC project. Easy to set up. Draft resolution: 
 ```bash
 magnet:?xt=urn:btih:FCCFC47DB88EA76B75204503EB9CF852BBBB315F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C201D56C47D0B14CD2E12648A4804DE53D8D242D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:539370D454C3AED0B65B067FBF0C9DACAEF730FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:44EBF589D20BDBAE041107158C1A558DE455A709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Angry Birds Epic v1.0.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:EC9DFD1703A7053BD4F96483C415DCA2215F40C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ How To Train Your Dragon 2 [ENG] (2014) [XBOX 360] (16537) [Freeboot]
 ```bash
 magnet:?xt=urn:btih:F33B86D1221C738797671CFB332726FA15588DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ VA - Music from the World of Osho. Collection (1987-2009) [MP3|320 кб/с]<New 
 ```bash
 magnet:?xt=urn:btih:5BB5BCBE25CBDBFD4EDB66326930FD4AF57D0032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - Хиты Европа Плюс Топ 100 Июнь 2014 (2014) [MP3|128 - 3
 ```bash
 magnet:?xt=urn:btih:A2F2F22141725BEB052B8C249D791D0EDCFA69CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ MotoGP 14 – официальная игра по MotoGP World Championship. Д
 ```bash
 magnet:?xt=urn:btih:746686C27EB37C9929D871FAE8D5D563BF7E845C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Linux Mint 17 KDE [32bit, 64bit] 2xDVD
 ```bash
 magnet:?xt=urn:btih:27F82CAAAAC3456F7E3D4CE18ECE768D21BC132B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B5C5ED65093C55616D3F3FA33F4753D5DA5291F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Adobe Dreamweaver CC 2014 - новая версия приложения, пре
 ```bash
 magnet:?xt=urn:btih:C93C75734D06D34D9DEEFB941EC9149DF1A93C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ Adobe Audition CC 2014 7.0.0.118 [Multi]
 ```bash
 magnet:?xt=urn:btih:860A8FBADDBE21FEBB1CDA7200290D2F6EFC5BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FDB8AB49DEB2ED1B25B6D3F5251B131D6DEF000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Camera360: Искусство в твоих руках.
 ```bash
 magnet:?xt=urn:btih:D4A878AF2DB0E0320F8391F3F6DFA09157E84A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA1E24871DE936BEB6DD54E905CB054FD5688CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Symantec Backup Exec 2014 комплексное решение для резе�
 ```bash
 magnet:?xt=urn:btih:8BB03365ADAD6F9EE1E1E8192EB122CD7AE92843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E963EC0A450E9B14D732BC13E2D8729D58E375DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C10FF963783D7438872A8BBF21B4666FB6FAAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ Call of Pripyat Complete является третьей модификацие�
 ```bash
 magnet:?xt=urn:btih:8F2CF79AFF94CD14BF35A05256DD0A893FA4D9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ Sins of a Solar Empire: Rebellion – первое самостоятельно�
 ```bash
 magnet:?xt=urn:btih:08EF35B1B2E7E7937291F38663222B0D254E4E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ Split/Second (2010) [Ru/En] (1.4042) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C1435E92A072ED1AE704FFA7EBEC18696FAE98C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

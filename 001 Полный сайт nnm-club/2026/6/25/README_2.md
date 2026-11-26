@@ -18,8 +18,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.1.0) Repack FitGirl [Ultimate
 ```bash
 magnet:?xt=urn:btih:A0ABD725403128BC3C43CA36C5267E3C7747785A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Hogwarts Legacy - ролевая игра по мотивам знамениты
 ```bash
 magnet:?xt=urn:btih:AD2CDAE40C05F2198233E2B765AA77EC2B4CAD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BE53FF67CE60A938CCA90A2821E701EE7A72FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:607B96D3ABA9097CEC140913C067D4A48AD8066B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F51B738CFC676244AE27F39B956A839D153F2C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hitman: Absolution (2012) [Ru/Multi] (1.0.447.0/dlc) Repack xatab [Professional 
 ```bash
 magnet:?xt=urn:btih:5F2A95C1D4EF07593319D43EC553D27388BEF42D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECD397B06E5086482BB802EBDD093720C23177E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Balun.Courses, Алексей Бакин | Golang на практике. Для 
 ```bash
 magnet:?xt=urn:btih:7F05F869A99C0B2FDB1F4BBF9B9EB5ACF72FE195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Kobezzza, Андрей Кобец | Архитектура Frontend прилож
 ```bash
 magnet:?xt=urn:btih:A096D17670FB5BECEB6154D51BBE33D1CFD7D07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Kobezzza, Андрей Кобец | React «под капотом» (2026) PCRec
 ```bash
 magnet:?xt=urn:btih:A30D7C78BE7C9E1B60843DBBAEA7C63BA6E580A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Stepik, Роман Дремлюга | Как не получить срок в �
 ```bash
 magnet:?xt=urn:btih:686FCCD7AB38467238793FAC49E8F5F001412DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F549692B59526870FF49C61576DD7512D2DBC516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

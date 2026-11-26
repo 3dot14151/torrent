@@ -28,8 +28,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:8D99D4E9B6798A8D26DEE0A44158F63BE840B697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Celldweller - Wish Upon A Blackstar (Deluxe Edition) (2012) [MP3|320 кб/с]<In
 ```bash
 magnet:?xt=urn:btih:DE8927696F2028D3B366A2222BD347BEAC901C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Rasmus - Greatest Hits (2008) 2CD [FLAC|Lossless]<Rock, Alternative, Metal, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Sonata Arctica - Stones Grow Her Name (2012) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:B39766B7AB864DF83CA810485831C7F6D81860BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Pint Of Stout-Pint Of Stout (2012)[MP3|320 kbps]<Pirate Folk-Punk>
 ```bash
 magnet:?xt=urn:btih:2E7DD05B37801ACBB92D6E03D1A88750B6111315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A054FDB66731353B3E6F2BED8F630B1AE5F658C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Griefrain - Follow The Dusk (2012) [MP3|320 кб/с]<Depressive Post Black>
 ```bash
 magnet:?xt=urn:btih:9AF5A7A6142243F1AF14C21E8205AE387562D5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

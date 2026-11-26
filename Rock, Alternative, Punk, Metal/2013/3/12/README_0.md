@@ -28,8 +28,7 @@ Hypnos 69 - The Best (2002-2010) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:76FF00FD6BDCB277DD560A883B4BDE3661F2DB30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Imperium Dekadenz - Meadows Of Nostalgia (2013) [MP3|320 кб/с]<Atmospheric Bl
 ```bash
 magnet:?xt=urn:btih:E3BF6FFCD7842A04C457E332B42F6F2AE68408C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Hatriot - Heroes Of Origin (2013) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Cliff Morrison and the Lizard Sun Band - Know Peaking (2008) [MP3|320 кб/с]<R
 ```bash
 magnet:?xt=urn:btih:EEB3D8A61F3401CAD028774AE545D68D115D43AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Eternal Tears Of Sorrow - Children Of The Dark Waters (2009) Korea Edition [FLAC
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:471EFB5264304EBF806C998440B60F1C9190D7A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

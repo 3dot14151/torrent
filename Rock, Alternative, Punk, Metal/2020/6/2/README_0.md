@@ -22,8 +22,7 @@ The Ghost Inside - The Ghost Inside (2020) [MP3|320 Kbps] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:F6F06E2634353C6CC13F0681650D334C8E3A1739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Rockin' the 70's (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8482B2681BEB6BD1DA7A2D048AB55026E8A1BF35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Rockin' the 80's (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1B771EF3F4E228EF847F4F7D24C5ACDA85CFE959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

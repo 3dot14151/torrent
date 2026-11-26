@@ -22,8 +22,7 @@ Beyond Creation - Algorythm (2018) [WavPack|Lossless|image + .cue] <Technical De
 ```bash
 magnet:?xt=urn:btih:5CBAEEFFAB4F58885CAD21D446F425DF80A93C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ethereal Sin - Kakuriyo (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Bla
 ```bash
 magnet:?xt=urn:btih:803145ADD9ABC9F0249773DFA3B6BCF93C0F7D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Disgorge (US) - Parallels of Infinite Torture (2005) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:29B34DB33933DCD120DFEC776B10A314F4D6BFFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lividity - Show Us Your Tits "Live" (1999) Live [FLAC|Lossless|tracks + .cue] <D
 ```bash
 magnet:?xt=urn:btih:B36D34041F44C52F8791AE997E30D4AC97265829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Metal Inquisitor - Panopticon (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:075FEE05577A5E3F9D9B95A2F67F9E4AB728B463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ashes of Ares - Well of Souls (2018) [FLAC|Lossless|image + .cue] <Progressive M
 ```bash
 magnet:?xt=urn:btih:AB66231F38A7E1CD4BD13CC6B06AA8098E86F21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Blood Incantation - Starspawn (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:7B40E0DD4D939B5F7FF8E66D376CD09437E89B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Lividity - Used, Abused, and Left for Dead (2006) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:27EA780C7E7AFFD0BCD3D48697851FED1B94F147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Frozen Land - Frozen Land (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal
 ```bash
 magnet:?xt=urn:btih:7EB19AA4AA7F3BCC356E195707242C714A537690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Starbreaker - Dysphoria (2019) Japan [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:C198655D7120BB46DFCDA5D9DEC5A801F01F400D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Evergrey - The Atlantic (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:9EDAD2D959E22617AF9ED659D0324E027611663C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Lutz Rahn - Solo Trip (1978) Reissue CD, 2012, MIG [MP3|320 Kbps] <Electronic, K
 ```bash
 magnet:?xt=urn:btih:0CA14CFD9E1E253DB246B228CF03854CF02B29E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ Inkubus Sukkubus - Beltaine (Original Recordings 1990/91) (1996) Reissue, 2006, 
 ```bash
 magnet:?xt=urn:btih:487CD6FDFA6536BE21F941F9E6E1E8C85DD78D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:426BF5A8EEF87F2218B616D35CEA6AE67C9D3E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ Rocky Burnette - The Son Of Rock And Roll (1979) LP [MP3|320 Kbps] <Soft Rock, P
 ```bash
 magnet:?xt=urn:btih:4A0CC194AF6D5A64C266B0247A65A5AFDED17B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:B7B0EA92EE69AFEB7A1620D43A2450D68BB54A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ ZE FISH punk-rchstr (orchestra) - Welcome to Russia, если не страшн�
 ```bash
 magnet:?xt=urn:btih:B1D90420241D7742B0229AF33E8B761CA369C2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

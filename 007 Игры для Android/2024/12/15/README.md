@@ -21,8 +21,7 @@ Dead Cells: Netflix Edition v3.3.25 [En]
 ```bash
 magnet:?xt=urn:btih:A36F828CF9BB651714CF31989727AEE57F8F6BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Trudograd 1.0.75 [Ru]
 ```bash
 magnet:?xt=urn:btih:45C31398A4C3BB0DAF2FC8014B7BE3D3761CA21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Forgotten Memories: Remastered 1.9.102 [Ru]
 ```bash
 magnet:?xt=urn:btih:04F7BD126D48613B37179EB0A4A285D68562BAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Conquistadorio v25 [Ru]
 ```bash
 magnet:?xt=urn:btih:072DAE0E54978C03D81BC07C70738D36BF6DB33B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ GRIS — медитативная и умная игра, (   Читать да
 ```bash
 magnet:?xt=urn:btih:5409832A24B7AB226B2AEE794988583E81EBBC35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Gomorrah v1.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:9DDB93201ED0B95AE5132A013EB8A9B84F9F441B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Endling *Extinction is Forever 1.3.2 [En]
 ```bash
 magnet:?xt=urn:btih:97CAA9AFE58816CCDF1F7C337AA6D79C0FF2FCE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ CARRION — хоррор, в котором вам предстоит оказа
 ```bash
 magnet:?xt=urn:btih:835B107DA44A61D7D5C87700F3AA62B7112B6BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

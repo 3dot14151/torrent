@@ -19,8 +19,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.4 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C3C7B86FD882B2A764EBC070801A541ABF1787DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

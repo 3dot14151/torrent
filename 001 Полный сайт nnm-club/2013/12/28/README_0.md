@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2B334AFEA277FD96E44761E1924D690F88191902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F7DA65405F4E26D8309393044CBB57A0DFA063D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB99FC200C813F29BB58DBDA55E5191DAF2CE6E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEBD433DFCE1571586CAD5FC4356755DDD97DE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Клубные Новинки Vol. 357 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:1BC2261F7C349742929C97BD0C64B589107BC104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD55810A07D790123270A78636061C49E6409ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ VA - Native Planet (2012) [MP3|320 кб/с]<Downtempo, Psy-Trance, Ambient, Chil
 ```bash
 magnet:?xt=urn:btih:F4349AB5691E508E49234B1F973F57C396E510CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2171A7297FC26E3C64B3E5D3108832AF3FBF42F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Uruculator - Uruculator – Type Your Name Here (2013) [FLAC|Lossless|WEB-DL]<Hi
 ```bash
 magnet:?xt=urn:btih:6379E5CB454681D053A0564D802A63484C52C144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ BabaJack - Running Man (2013) [MP3|320 кб/с]<Acoustic Blues, Folk Blues>
 ```bash
 magnet:?xt=urn:btih:843E075DC3F2FF59B801E577F59CC7C153951601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2465B6E40E42B5BF5316017262F2F922D239DCFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ VA - Wicked Forces (2013) [FLAC|Lossless|WEB-DL]<Darkpsy, Hi-tech>
 ```bash
 magnet:?xt=urn:btih:0D0B7A53DB4C35FDC26E399C418174626847892D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ Ty Burhoe & Bill Douglas - Horizon (2013) [MP3|320 кб/с]<New age, Relax, Medi
 ```bash
 magnet:?xt=urn:btih:8F18864FCEE1B8982B79C5DFB69B60EB3C9F51B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45452DBBA61D17DD048A4578001E6ADE76818A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:505AACB745426CFAFBFDE077D0F45694C6B1D22C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ XP8 - Burning Down (2012) [MP3|320 кб/с]<Industrial>
 ```bash
 magnet:?xt=urn:btih:F047C5039EF2282D6FE073ECF8FE28B7BF9A667D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7C4B4C3962F16574489518E90D62BC39E98C1B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EC723F74FD4289D499D0E4895B4518FF9D153F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ Skylark - Divine Gates Part V Chapter I: The Road to the Light (2013) 2 CD, Comp
 ```bash
 magnet:?xt=urn:btih:C878B0B85EC909C7A577D8698F32AEFD32FF9AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +571,7 @@ Peter Seiler - Christmas Songs & Traditionals (1993) [MP3|320 кб/с]<New Age, 
 ```bash
 magnet:?xt=urn:btih:32BBD53984EE8D7732AAE854976C7B658E7A90C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D841896C1AA26309FA6257F14EF5DC911A5EF0CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F4639CD8ED5F0D8541197590F3AB2F9DC8CCABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +650,7 @@ My Widow - Пустые Коридоры Клиники (2013) EP [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:B783E2B83DB3DCA338B736CB3942655CCD85FBA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95F591AF9CDFB728CD3E26DCF4C07465E062488B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ Beegie Adair & David Davidson - Christmas Elegance (2012) [FLAC|Lossless]<Jazz, 
 ```bash
 magnet:?xt=urn:btih:47BA1F44DEF0F2E05E22411EC1C0EC14EC0EB368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:646D4E435CA16F6B129B8CA524DAD7A17B60D109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

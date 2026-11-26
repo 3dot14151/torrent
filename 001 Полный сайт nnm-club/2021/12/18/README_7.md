@@ -20,8 +20,7 @@ Caps Lock Tone v1.72 [En]
 ```bash
 magnet:?xt=urn:btih:D2519F69F80D91B2D0A496CE91B955B87A3297EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Author 8.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:D5257EBCEE70AA33E200782454D9473043609560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Akroasis - Ilion (2021) [FLAC|Lossless|image + .cue] <Thrash, MDM>
 ```bash
 magnet:?xt=urn:btih:65BD868236B8FD562C0528D273CBB9533AE8AF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Erroll Garner - 1949-1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 ```bash
 magnet:?xt=urn:btih:733F049A45A60085DC6D0DA08134DC1641290F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Diagrams - это редактор диаграмм для Mac, который �
 ```bash
 magnet:?xt=urn:btih:5BDA72DE313E7F756A50F11C1205F95CB6014E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ DoubleTake - приложение предназначено тем пользо
 ```bash
 magnet:?xt=urn:btih:5E21F31FC25EB00D9A53FAEA5D74F2C0F414D6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ The Ruby Braff Trio - Bravura Eloquence (1990) Concord Jazz [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:E6D1C4B72BF2B713CAEC934787ECCC539205CEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Times Of Grace - The Hymn Of A Broken Man (2011) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:5E9E9FAA0B6353B18E41E3112A9224372DE5A440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Affinity Publisher Beta 1.10.5.1224 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:095C42CC443A32C02FCD42E879BC98C311C5A002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ SnapMotion имеет два режима:
 ```bash
 magnet:?xt=urn:btih:30DD3600304B7F2F63826D0E35F325E3E3D563BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Piezo не требует никаких настроек, достаточно 
 ```bash
 magnet:?xt=urn:btih:5B9B8F33EB99B2920EF5CFDB9B61135DCD03BCE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Electronic Moon (The Chill Out Journey), Vol. 2 (2021) [AAC|~321 Kbps] <Lou
 ```bash
 magnet:?xt=urn:btih:F501CCF91F4F05792C9DC41E09C1D69805EFEA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Note Studio 2.1 [En]
 ```bash
 magnet:?xt=urn:btih:95D9676ADCB0EAA80363EC4877D9392192C3CB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ File Juicer может быть использован (   Читать дал�
 ```bash
 magnet:?xt=urn:btih:3D7628A31BF592CF2498BF64F1716A65DD568B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Blo.Torch - Blo.Torch (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:7E0B14108643FB65D75A0C50051330F6AA8AEA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ VA - Lounge Top 55 Deluxe, the Very Best of, Vol. 2 (2015) [AAC|~328 Kbps] <Loun
 ```bash
 magnet:?xt=urn:btih:EE977949D18804B5F529D8D6BEC02AD5DA119F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ VER:WEST (Tiësto) - Tiësto's Club Life 767 (AFTR:HRS Yearmix) (2021-12-11) [MP
 ```bash
 magnet:?xt=urn:btih:5DA615C231FF6EB0150D7388D5597994DAE9FA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51D9A6BED0340ED7FA7E7242B91E62A740EE1A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Meta поможет Вам управлять постоянно растуще�
 ```bash
 magnet:?xt=urn:btih:B131FC549AB6FCF81FB2F4E6510820E2E338FB65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8DBC153F409F4576041BE1422A75F73BC6840A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Times Of Grace - Songs Of Loss And Separation (2021) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:0735047319C32E599CE87B0723C8E14D234618E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Photo Perspective Pro - это профессиональный инструме
 ```bash
 magnet:?xt=urn:btih:7C5DFD786B5DDF6F44BC10FE752C0DBCF84331F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ VA - Lounge Top 55 Deluxe, the Very Best of, Vol. 1 (2014) [AAC|~328 Kbps] <Loun
 ```bash
 magnet:?xt=urn:btih:78F602458D9520786B225A2CE3E7653BAF761E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Disk Analyzer Pro - это гибкий инструмент для мгнове
 ```bash
 magnet:?xt=urn:btih:2D94AE8366BDE9B4818FA0781E1E2CE9956E1424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ VA - Caravan 4 (2021) [AAC|~319 Kbps] <Chill Out, Downtempo, Organic House, Ethn
 ```bash
 magnet:?xt=urn:btih:362863867CC0EFF9D3CECFBDE5FA2192C24D3B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:629AEF1B74DDDD095AB516A956885F21F08231AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

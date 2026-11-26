@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:215955C5670FDD7D5F3F3F4A7D31505DE8603946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Cemetary - 3 альбома (1996 - 2005) [FLAC|Lossless]<Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Darkwoods My Betrothed - 3 альбома (1995 - 1998) [WavPack|Lossless]<Black
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Judicator - Sleepy Plessow (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:932FF126A7D4D3D0348CDCAC085D2B33523D951F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ VA - Коронный часть 3 (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:7214E753473B3CDF8D6E06CA2FE664D790D33905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ The Dogs D'Amour - Errol Flynn / Straight??!! (1998) [APE|Lossless]<Hard Rock / 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ Canvas Solaris - Sublimation (2004) [FLAC|Lossless]<Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Protector — Одна из лучших немецких трэш-дет ком
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ GeoGebra - это бесплатная, кроссплатформенная д�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E24AC2BCD4B136D017DC2DE51BD98EF7ABE2931D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +390,7 @@ Klang Maler - Harmony (2010) [MP3|128 кб/с]<New age, Ambient, Relax>
 ```bash
 magnet:?xt=urn:btih:2EA78051753856D8D70F802D1073C3B8BBD9F91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ Esteban Ramirez - Welcome Home (2000) [MP3|320 кб/с]<New age, Instrumental, P
 ```bash
 magnet:?xt=urn:btih:73D293EEBC14BFFB5527254929E60D391CFBF4FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ Isaac Shepard - Awaken (2010) [MP3|320 кб/с]<New age, Piano>
 ```bash
 magnet:?xt=urn:btih:1F60257A74CBBEB00E65A2DCC42D976FBEC0DC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ SlimBrowser - это быстрый и надежный веб-браузер с
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E389C128183D4E3FFBF902A5FADD1E70FD36981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ The Black Dahlia Murder - Everblack (2013) [MP3|320 кб/с]<Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:31D228E9F043521E1A74AEC667D7FF80E8A05775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C35B6749C282998268DE383830640C9E1B47DD8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ Photo Collage Max – программа, которая создает фото
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:071F27F4252D9D10100E007F58650C7948B2FD8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ Cosmos - 2 albums (2004-2012) [MP3|320 кб/с]<Rock, Progressive & Art-Rock>
 ```bash
 magnet:?xt=urn:btih:5F14FA4ABA7D91F46355329E0D0E695E6ABDF8AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:260CF4B07730A8CEFA0ADC868A30CE586EB94929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +711,7 @@ Diablo - Mimic47 (2005) [APE|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +745,7 @@ VA - MOS: Anthems Disco (2010) [FLAC|Lossless]<Disco>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +770,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87CE0500B30C1062375A78FC3B86018D8F5A70F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

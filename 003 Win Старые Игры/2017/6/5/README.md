@@ -19,8 +19,7 @@ Company of Heroes (2006) [Ru/En] (2.700.2.43/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:56D5873E6298D6E688CEB3DCA93B3228937A763C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

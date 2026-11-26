@@ -19,8 +19,7 @@ Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
 ```bash
 magnet:?xt=urn:btih:59C151339DAECF402A200B8C8CB61AA625C93A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

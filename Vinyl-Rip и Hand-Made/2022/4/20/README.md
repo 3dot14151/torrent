@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:9DE2AAAC1C27647C413F393F8EFF4E12C01966D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4	Хочу Танцевать С Тобой • Don't Bring Lulu(   Читат�
 ```bash
 magnet:?xt=urn:btih:173C2045E881510204BD5DC50DB237D0C76BB8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4	Пульс Улицы · Street Pulse(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:E295BB7B92C3A78D4E87E192A11EAE1C9E1FB22D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Louis Armstrong - Louis Armstrong In Prague (live at the Lucerna Hall 1965) 1983
 ```bash
 magnet:?xt=urn:btih:B25F4519AE89CB7FB61F29A1E98178D96B090DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|4
 ```bash
 magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ A4	Если Это Любовь • If It's Love(   Читать дальше...
 ```bash
 magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ A4	Мой Путь · My Way(   Читать дальше...   )Жанр: Instru
 ```bash
 magnet:?xt=urn:btih:283E20E2AD4C0C598BE7D96DAC5AF35F018B2241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

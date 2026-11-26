@@ -21,8 +21,7 @@ Markus Schulz - Global DJ Broadcast Afterdark (2021-10-28) [MP3|320 Kbps] <Progr
 ```bash
 magnet:?xt=urn:btih:A6BB26611E87C51036F7772C0A7EF3E1A54A86BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - A Day to Chill: Chillout Your Mind (2021) [AAC|~317 Kbps] <Lounge, Chill Ou
 ```bash
 magnet:?xt=urn:btih:23D5CACB7D69ED0069044445DFF26D12FB4909A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Eyes Of Eden - Faith (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:DAB7C6F2275B325127CE0729B7FE9844D4C6F820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - A Day to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ```bash
 magnet:?xt=urn:btih:7655D6EBA24E057F8F188AA17E29E9C13FA942DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B84472C490A957643A381D9FFE69AF3BB881590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Osukaru - Starbound (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:69672A60A47E54616860E90DFAB3AD40BC015787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:D0FE094C9E0EEF42A8732D94689ED8A78117CB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Statistica - подробный монитор системных ресурсо
 ```bash
 magnet:?xt=urn:btih:21F8FABEEE6EBAC7E1F8FFC07DA329B1B77DB4F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ TurboMosaic — утилита, позволяющая легко и быстр�
 ```bash
 magnet:?xt=urn:btih:0F1E6FFE7B3FA987FE458ECE3E6D5692C246C695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ```bash
 magnet:?xt=urn:btih:D21F41772AEF5180C01D10DBA39E4365466CD94E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:6FF801C50382AFF7543E1B375B1F56064D0D713B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Charlotte de Witte - DJ Mag Alternative Top 100 DJs Winner Set (2021-10-27) [MP3
 ```bash
 magnet:?xt=urn:btih:B5C75864C5735C451108FB489D18C0968728E010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ VA - Relaxing Therapy Session with José Sierra (Pt 2) (2021) [AAC|~326 Kbps] <L
 ```bash
 magnet:?xt=urn:btih:A0B26ED4ADFFFFC968632747A21BC1CB93DD8BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Qrion - I Hope It Lasts Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep 
 ```bash
 magnet:?xt=urn:btih:7B8982B4F3BB9040DD349A415EAAE0975B0A5B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ VA - Halloween Pop (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:663C94A04ECBF1192C62FEBB73301617A80E7ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Camtasia for Mac — эффективное приложение для созд
 ```bash
 magnet:?xt=urn:btih:D7A70B71C653F1090AD4F37E0D8B8B8AF2AF9AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2D54E6F98F6895EF61768C6E59881B1602D281B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Fatboy Slim - Everybody Loves A Mixtape Podcast (2021) [MP3|192 Kbps] <house, te
 ```bash
 magnet:?xt=urn:btih:3C3E8713E6CECBA582438613E46F4629BD76052C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6845F1AEEFA2F763A11B825F7AE79B630DE8764D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ Motörhead - Everything Louder Forever - The Very Best Of (2021) [AAC|~347 Kbps]
 ```bash
 magnet:?xt=urn:btih:7D6255DB29688BDFF678A253322BEAAB293DFB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ The Doobie Brothers - Liberte (2021) [FLAC|Lossless|image + .cue] <Soft Rock, Cl
 ```bash
 magnet:?xt=urn:btih:17E2E5C3E1251D7167CCFE17EFCA6A9B750F5B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ MacBooster поможет настроить и ускорить работу ma
 ```bash
 magnet:?xt=urn:btih:5CB6FEABD7522866D506A6861CFA134FE8559D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:002FF79387CFABE52D802DDAA2D85890FA554619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:438B3086416E986AF60898F7924A53D3A05BF55E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ MacX Video Converter Pro — приложение, которое автомат
 ```bash
 magnet:?xt=urn:btih:9D0F68A81BCBCDA3DAD59E6BA0FC0A120C9A48C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ Movavi Video Suite 2022 - все для монтажа видео на macOS: с
 ```bash
 magnet:?xt=urn:btih:5BA2D7711CB1FD6B64721369C2F328EE30FE83E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

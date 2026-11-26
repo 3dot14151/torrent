@@ -19,8 +19,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:BD81AF65F5D82B243A27365DBBDC429C15C16154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Panic In The Woods - это одиночная или кооперативная
 ```bash
 magnet:?xt=urn:btih:CA7A77111555000AB4F5CC6FBC2D8F701E028A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dune Spice Wars – стратегический игровой проект, г
 ```bash
 magnet:?xt=urn:btih:FF4C971B2FC1A464AFB3845C60650FE616F781FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MiSide (2024) [Ru/Multi] (0.93) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:037A8BD6F0C2CE1C83A988446BC541D96A98E4E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D92F766EC76074C62B3AA5512C2C6E854479AFAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Turbo Overkill - динамичный жесткий шутер от перво�
 ```bash
 magnet:?xt=urn:btih:CEADB74E27C664BEACA76322D19130F9573C2BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) License GOG
 ```bash
 magnet:?xt=urn:btih:F8AD194B15BAEFFEA3B210EFCEB436E1C8985BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ While Waiting (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CFD9D7D5856C1D31070FD3FC055960F8971C570B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F10044D773351EB5DF6C23920C909E5B626C0C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:14A03572254B835D1FB8B4B9FC127999C69EF84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:95F0C4A669E16CE97B9D429333888E3DB16FDEBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Geminism - это визуальный роман, который вовлека
 ```bash
 magnet:?xt=urn:btih:9DF9C337EC4ED352497D5845F84203D6C1B61636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Feudal Baron: King's Land (2024) [Ru/Multi] (1.0.20241220.698) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:89B815CE37A0514F68AB2E71450261D8352FFBB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Dead of Darkness (2025) [Ru/Multi] (1.0 Update 4) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5949D7E5A7F18D63A16881D74578A7157D3B1B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Living Legends 12: Frozen Destiny / Живые легенды 12: Замёрзш
 ```bash
 magnet:?xt=urn:btih:D6190C9D220AE6E804E35B89E35155A4F5EB4E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

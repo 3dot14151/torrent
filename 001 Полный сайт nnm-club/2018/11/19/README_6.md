@@ -22,8 +22,7 @@ Kazuo Yashiro - Love Is Here To Stay (1968) 2014, Nippon Columbia [FLAC|Lossless
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kazuo Yashiro - Black Nag (1969) 2014, Nippon Columbia [FLAC|Lossless|tracks + .
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ GSEP - Through The Clouds (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Martin Tolosa - Emphasis (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 ```bash
 magnet:?xt=urn:btih:616C43EFB23F5535AB360FBC4649D1510587DA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Agustin Vitale - S.O.S. (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:7960FCD7050B1493CBD9922EF1C777A4D0535000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Alec Araujo and Cryptic Realms - Katharsys (2018) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:CB695770FB1BFE1628DCA26C7AA6602B9D42F204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Gabriel Amato - Parodi (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:E1264ECA5B86EDD5E9EB95BCF995F7EA7302123E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Lacunae - 2 Albums (2004-2006) [FLAC|Lossless|tracks+.cue] <Trip Hop, Experiment
 ```bash
 magnet:?xt=urn:btih:F74A3AB5010A93633FC8372298503B948E68949C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Hiroshi Matsumoto & Hideo Ichikawa Quartet - Megalopolis (1969) 2006, Think! Rec
 ```bash
 magnet:?xt=urn:btih:3967BF2EE05ECABA1BEB355E2952950403951016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AC911A0F98E441459180174F2B8ACB705573F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Eli Spiral - Sol One (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:7B021CBD29E21C813F117358A74AAF7FED9D2BCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE7877AED000BD980279E47533AA18C82D34B5FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Ligovskoï (Ligovskoi) - Esam (2018) Field Records [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:AB19FCB3C928165A343A681F576FE1B7BB93B047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:99E6CF133ED177732DF5EAC151EC99CB709693B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Norio Maeda Trio - Alpha Ray (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:28F50613621F6630AB4FD367CD3439D0170F3DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29EC493F94DC6DE51135F02BA7BB3EAC07CC0901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A80918C50663E78F0B39D4E38EBF3A3E5FF646D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:2102C25995B73E655B6793392A6A865F6DD1CE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32A482B73F06BCB5CA2113BD40B2A824CC2818DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ Don Cherry Trio - Studio 105, Paris 1967 (2018) Hi Hat [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:FC1A12325CEE2ACE05B6D592FF410AE829FC571E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F74D4738715C12931704F96F4BC23EAE19B1957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ TaskPaper - простое приложение для создания и ве�
 ```bash
 magnet:?xt=urn:btih:B8CC626DA19E81B18C26820CB7808268C8101091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ File Cabinet Pro - файловый менеджер строки меню Mac O
 ```bash
 magnet:?xt=urn:btih:5A7A5D1071FF6DAEFE2836B7EEB958AAC9E662C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ RapidWeaver отлично подойдет тем, кто ищет ПО для 
 ```bash
 magnet:?xt=urn:btih:1B110A9A1582A3D315CBB8D2FE1AD18AF0A9E0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Sip Pro 1.1.3 [En]
 ```bash
 magnet:?xt=urn:btih:9DE075B5A6FEF4D452AF5CF953CDF8F6B35AFF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE3FB824E3A60E40832218923A900EEE88388C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

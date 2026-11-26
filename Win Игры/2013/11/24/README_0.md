@@ -21,8 +21,7 @@ Mars: War Logs (2013) [Ru/Multi] (1.0.1722) License PROPHET
 ```bash
 magnet:?xt=urn:btih:E01A8ADD46F3B58D297122491ECB81F515EC5E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Edna and Harvey: Harvey's New Eyes (2012) [Ru/Multi] (2.0.4.0394) License PROPHE
 ```bash
 magnet:?xt=urn:btih:97ED199EEE4CC2C84B80D0599029CDD91552E23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Dead Sky - это шутер от третьего лица, действия к
 ```bash
 magnet:?xt=urn:btih:CA0C258E60067A738723E1FCCA5EC615A33A52AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Rise of Venice - Beyond the Sea (2013) [En] (1.1.0.4742) DLC/License Reloaded
 ```bash
 magnet:?xt=urn:btih:A7E7D23F074C2C3169B6785737040087C5AA46A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Space Hulk - пошаговая стратегия. Игра создавала�
 ```bash
 magnet:?xt=urn:btih:918210F438EFB99F1BCB71B01B34D4EC89DB83AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Interstellar Space: Genesis (2019) [En] (1.6.3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:118E4AB0DEADDEACA42BD587B8EB9A52E3F3EACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tank Squad - это тактический боевой экшен, в кото�
 ```bash
 magnet:?xt=urn:btih:6E4B46EB6641009A12CC5F4A079BECE870D36E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Revival: Recolonization – 4X стратегия, события которой
 ```bash
 magnet:?xt=urn:btih:5A9F25B6A42E25A609DF38CDF8F4CDF465B899B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Sims 4 (2014) [Ru/Multi] (1.115.216.1030/dlc) Repack Other s [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:68D7D3F81FC85659BF11F2C998CE9D6CB9311FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Caves of Qud – игра в жанре рогалик с необычной с�
 ```bash
 magnet:?xt=urn:btih:7BA94485A3BA67DFA7A2E93DEE780056A950C2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Terra Invicta (2022) [Multi] (0.4.90) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:D1B04B8039621926F1BBF39003ADA24B555C8D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Space Haven (2020) [Ru/Multi] (0.20.0.29) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:2B6F65F0C1AAE7407FD65C43E4579BFFB9AF6E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Contraption Maker - головоломка, опирающаяся на зако
 ```bash
 magnet:?xt=urn:btih:338AFAD47A97EE4EC3B5D704535273CF4D153E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ inZOI - игра в жанре симулятора жизни, в которо�
 ```bash
 magnet:?xt=urn:btih:A023C264D66EF87C63DB1F07BA35FE040B34B7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.000.004) License GOG
 ```bash
 magnet:?xt=urn:btih:D35CB3C2FF61142E7D79BFFC80525117E0CE28F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:66D5BEDF78684A0E9D00274166FEF59976A97FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31971/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7455CF4A0F00A6563783437E38872F946583C244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.9/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:2D386B19A7C710BDD5F6766C019C27C4900F6E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F6E3E57956756A8A68CFCDFA5E5B862252A7BD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

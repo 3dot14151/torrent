@@ -19,8 +19,7 @@ Jagged Alliance 2 (1999) [Ru/En] (26614298) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:BC90E460142743D17627EF46B4039653F67A7738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

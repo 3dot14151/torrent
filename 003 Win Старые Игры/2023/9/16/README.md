@@ -19,8 +19,7 @@ Pilot Down: Behind Enemy Lines / Падение ястреба: В тылу вр
 ```bash
 magnet:?xt=urn:btih:7425F0061B64FD9F71C3163B9ECEDAEBE4B37AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

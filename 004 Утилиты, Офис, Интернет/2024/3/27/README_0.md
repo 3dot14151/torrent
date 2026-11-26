@@ -19,8 +19,7 @@ Wise Memory Optimizer 4.2.1.124 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:006638B17191ACE4FA0213C662A11A30078B56E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

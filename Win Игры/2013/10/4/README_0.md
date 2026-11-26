@@ -19,8 +19,7 @@ Mystery Of The Ancients 2: Curse Of The Black Water Collector's Edition / Тай
 ```bash
 magnet:?xt=urn:btih:EC2BC71B2FE2A22087C3D7AE26DCEA631CFEF9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

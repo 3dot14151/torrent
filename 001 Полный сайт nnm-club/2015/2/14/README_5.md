@@ -22,8 +22,7 @@ VA - Супер Дискотека 90-х (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:8B88796E0BD646BE6F0C15B9EAB1ADEE2B4A0415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ X-Men: Destiny (2011) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO] [Unofficial] [En
 ```bash
 magnet:?xt=urn:btih:82028930D8514D66409CE94770208DBA679B04AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ ESET Endpoint Security 6 - новейшее решение от компании
 ```bash
 magnet:?xt=urn:btih:B69486C45BD3FA04B2E24B0ABDB28EBE9832401B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Roxio Toast Titanum Pro предоставляет множество вариа
 ```bash
 magnet:?xt=urn:btih:6C8EF07CE88E8EE4F896E811B8924441683C694A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Double Dragon: Neon (2013) [En] (1.1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:05656E552007422821E09BEFAAA4AEAC2011FBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:243A97270ED5E7A3401C773440A3A26A02CAADF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Visio 2013 включает в себя набор новых функций, к
 ```bash
 magnet:?xt=urn:btih:8D20E1FBBB859F66A2F7970DF9FBF5ACCD69A42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ LEGO супергерои DC: Лига справедливости против
 ```bash
 magnet:?xt=urn:btih:ECFD2F31843F51DAB615D28C76B81CB93986D50F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F85F5EFE5AFF2521DA5992A6FAE4240CC2BAB7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C3BED364B3CF38D5167E8A1557A80E00884FE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ uTorrent Free | Pro 3.4.2 build 38758 Stable RePack (& Portable) by D!akov [Mult
 ```bash
 magnet:?xt=urn:btih:E0818BB9DD97C3C88F9759CB288C67F4CCA2555E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Spider-Man: Web of Shadows (2008) [PS3] [EUR] 2.42 [Cobra ODE / E3 ODE PRO ISO] 
 ```bash
 magnet:?xt=urn:btih:C9DE817829338CB90AE268023E1FE8BAEFD483C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Hard Disk Sentinel (HDSentinel) - полезное и необходимое п�
 ```bash
 magnet:?xt=urn:btih:ACC027454ABD692E016ACA91A0E7277191551963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BB9A1F20165CD5C5EF7129A560BC77AC224F304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A494630A7CF2B0FE60E01403ABCFB48111EFE047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30FB3638D4ED22F3E31C6E9CD2DBA87B178BA260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ Minecraft: PlayStation 3 Edition (2013) [PS3] [USA] 4.46 [Repack][Unofficial / 1
 ```bash
 magnet:?xt=urn:btih:EC31D2D632478207A6782611ABED7AEFC27FBFB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:071FF25D8FA5D63ED1DE4B6FEF11803D60F58F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:CBD71B6AF4D67FDEEB351B03587AA6C846FEEECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3862FE3661749923D1F784FEBAD75431DAABED99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FD075433272C70552E84487BD19BFB670479B56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53B0BDBDA83039223DA1AF4B7B203149660B12D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ Adobe InDesign CC — профессиональный продукт для п�
 ```bash
 magnet:?xt=urn:btih:9A6D8F8080A794AAFD99235BB415164758CC8186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9FDC21D179C9FE346E08B9F216B5551D12AD80D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

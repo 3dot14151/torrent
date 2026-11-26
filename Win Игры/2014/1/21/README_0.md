@@ -20,8 +20,7 @@ KickBeat – оригинальная смесь файтинга и музык�
 ```bash
 magnet:?xt=urn:btih:483AED14EF418A35E06B306DD9725B56482E5E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

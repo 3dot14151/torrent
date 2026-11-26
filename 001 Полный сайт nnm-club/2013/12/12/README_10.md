@@ -26,8 +26,7 @@ Josh Arcoleo - Beginnings (2012) [FLAC|Lossless|WEB]<Post-Bop, Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:264AA0098AC7EEF23EC7E79CB2E55AC59ED3642E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Future Trance: Volume Two (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:982D365DC2C536432A7E2D4CB9632C11D3246BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ VA - Ultimate Uplifting Trance: Volume One (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:1CE9CE3CEECC11616911698931BC3AAE05EA084C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Jordan C Thomas - Jordan C Thomas (2012) [FLAC|Lossless]<Swing, Beat Jazz>
 ```bash
 magnet:?xt=urn:btih:CDC84F439081671B6A7F4E2A7331C0AF968C223B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Knightscope - робот-охранник нового поколения, на�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Luxury Grooves - R&B Jazz Lounge Vol 2 (2010) [MP3|320 кб/с]<Downtempo, R&B, 
 ```bash
 magnet:?xt=urn:btih:63D06F62C9FBFAE17AFFD6CD3EF0012D2FD6DB5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ The Self Help Group - Not Waving, But Drowning (2013) [FLAC|Lossless]<Bluegrass,
 ```bash
 magnet:?xt=urn:btih:B490C1B3744AE5CC0385B2451050AC06E4CE1D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ VA - Estiva-Enhanced Music Top 15 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:32FED0E89D359A4D4E4C55FFFD19847985695AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D3DCA80983638B0F2FAB139C68315959E5A981C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A60442F7E2A481F666C6D1263A2BE2CBD9867033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E01AEC6EEBEB4FCA376F7CA7833FD6F1F73ECD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A283F1F4309D8065BE8B699BA95D97E9CA437875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7932FF4D117D5027AD51E81CBF13EEF48586E8D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ The Wrong Object - 2 Альбома (2008/2013) [FLAC|Lossless]<Jazz-Rock/Fusion
 ```bash
 magnet:?xt=urn:btih:CCF67607F9AF8E665112201798CC8C912831A297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ VA - Trax 6 Fluo Summer (2013) [MP3|320 кб/с]<Downtempo, Chill Out, Deep>
 ```bash
 magnet:?xt=urn:btih:D29218E9DEC07C7D31296CE1115BD354ECBC300D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ Mark Cook - BackWoods Chaos (2013) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:494169586857554453CD0B9F1E3BD675FCF5306C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ VA - Русские Новинки Vol.136 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:9B1DA078003A12F21B965D50EDBEE87E5D4252B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ Gordon Giltrap - Visionary (1976) Reissue 2013 [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:B82237C7F3E1BD9F5C68F8E95C72CB0BF850E95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ Josefine Cronholm - Songs of the Falling Feather (2010) [FLAC|Lossless|WEB]<Voca
 ```bash
 magnet:?xt=urn:btih:5C83EDD1D22C8A81DB4231EE3E842AF8F4C610B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ North Mississippi Allstars - World Boogie Is Coming (2013) [FLAC|Lossless]<Blues
 ```bash
 magnet:?xt=urn:btih:E18EEEA7424B9E56D22961537712262B1A635469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41473C57EE0F1E713BEE58B88D2AF48134443818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D6ECDF412D43DCA1A2378A4B2CFDD4DE76F61B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D3618D59B6B0CEEC716FA9AC3CDF2FEA03FD9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +748,7 @@ VA - Best Of Toolroom Records 2013 (2013) [MP3|320 кб/с]<House / Deep House /
 ```bash
 magnet:?xt=urn:btih:F88E797E82BFDE69DD12399CD339D861EC5A0383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -798,8 +773,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35D429D29E16309629B3AF0FCF7C32FF406AAF1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

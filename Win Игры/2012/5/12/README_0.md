@@ -23,8 +23,7 @@ Apocalypse, Aliens, New World Order, Illuminati...
 ```bash
 magnet:?xt=urn:btih:8E14D48FF6C967E084A5F536B232BE2F73008C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Mystery Case Files: Return to Ravenhearst / За семью печатями. В
 ```bash
 magnet:?xt=urn:btih:22FC71CD21FBB4E7A6EBD41E216E221D68BD5BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Dark Alleys: Penumbra Motel Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:2E718F9C87D230BEBDF7222B1D05D1A4BE557593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

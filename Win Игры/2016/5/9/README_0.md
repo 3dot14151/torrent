@@ -19,8 +19,7 @@ A Golden Wake - адвенчура от независимого разрабо�
 ```bash
 magnet:?xt=urn:btih:02ECA6BBE55CA2D1BDCA8E69EFD24254E45A3462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Night Blights — небольшая хоррор-игра подозрител�
 ```bash
 magnet:?xt=urn:btih:366BEFC5B0A56016518FCC91A6E80CA99B8CA589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pathologic Classic HD / Mор Утопия HD (2015) [Ru/En] (1.03) Repack R.G. 
 ```bash
 magnet:?xt=urn:btih:650CC6E514F87D9085595C51C66D5753B6148EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bombshell (2016) [En] (1.2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:818014C83387E15682F2154C74945F32B75EF032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

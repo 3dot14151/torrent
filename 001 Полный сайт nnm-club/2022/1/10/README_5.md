@@ -18,8 +18,7 @@ BELOFF 2021.12 Full (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:329A1EE38CFA0AE4CB62A792905DA2AE71EF1EC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4FDCA8BB3DFFCF749A495C9D2023F7D70EC9530B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Black Mesa («Чёрная Меза», ранее известная как Blac
 ```bash
 magnet:?xt=urn:btih:0F45C3CB8697B7DA0000B1E8B8A2EE83AA4329FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F7E8449D09A1075AB333CE025887708B500E19B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ WonderPen - приложение для как для профессиональ
 ```bash
 magnet:?xt=urn:btih:CABC0F41F26BB22013DD5797A6B807247FB16ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ VA - Nightflight Rio - 22 Premium Downbeat & Lounge Trax (2014) [AAC|~340 Kbps] 
 ```bash
 magnet:?xt=urn:btih:0886DC823E4921329C40B3E084199BF606649CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ VA - Nightflight Mallorca – 22 Premium Downbeat & Lounge Trax (2013) [AAC|~345
 ```bash
 magnet:?xt=urn:btih:E249CB017A2D6A8357702BC478616DBD08DB5204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Hej Stylus также предлагает сменные пресеты. Это
 ```bash
 magnet:?xt=urn:btih:6BE3723F8D1A02B008FCB416DEFAD09D827CE605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - Reggaeton Nocturno, Vol. 4 (2022) [AAC|~312 Kbps] <Reggae, Dancehall>
 ```bash
 magnet:?xt=urn:btih:BE36167F986CFE4D26ED7E04564E6A027058A09D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ PullTube 1.7.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CE5C6F72DA87CAB89AB9726DAE43A9655A950C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ VA - Nightflight Dubai, Vol. 2 - 22 Premium Downbeat & Lounge Trax (2015) [AAC|~
 ```bash
 magnet:?xt=urn:btih:E9E8C30E4067CB06BA69656025558C2C92A743C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:766AF488F2832F960A998A8FAD690A7F81F84098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

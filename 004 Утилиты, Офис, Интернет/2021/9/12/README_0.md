@@ -19,8 +19,7 @@ AutoRuns - утилита для контроля автозагрузки пр�
 ```bash
 magnet:?xt=urn:btih:04751DE87496D0504F6B21207DBE04DDCBAE61E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

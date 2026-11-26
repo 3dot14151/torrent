@@ -20,8 +20,7 @@ Greenshot - небольшая и простая в использовании �
 ```bash
 magnet:?xt=urn:btih:5F12DBEE6A2A7C94DEEAC721026E348B3748BF36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Bandicam поможет вам сделать запись игры с высо�
 ```bash
 magnet:?xt=urn:btih:9F84DF5890E3E4FCB6090E7843404FA8B178A285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

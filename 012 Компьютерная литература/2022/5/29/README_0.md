@@ -19,8 +19,7 @@ ADMIN Network and Security - это реальный мир системного
 ```bash
 magnet:?xt=urn:btih:63394C1307D746022970B7FBDC906B5DD263ED77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ This handbook provides a hands-on experience based on the underlying topics, and
 ```bash
 magnet:?xt=urn:btih:7B700030FADCAC6291808DBC0D4C1CDBE9C2A103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

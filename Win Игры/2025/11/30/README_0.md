@@ -19,8 +19,7 @@ Floodland (2022) [Ru/Multi] (1.3.22354 HotFix) License GOG
 ```bash
 magnet:?xt=urn:btih:E261F95E3EAC62F44AABE364377C18C066A03D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Please Be Happy – игра с упором на повествование. И
 ```bash
 magnet:?xt=urn:btih:D05EF66B1A440168DB2852625E580AEF272C3032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ghost Town - это приключенческая VR-игра-головоло�
 ```bash
 magnet:?xt=urn:btih:D4406D6BD6DAB1333D4D1DA0BE0B012664A802C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ First Racer - это аркадная гоночная игра, которая 
 ```bash
 magnet:?xt=urn:btih:9F0A55967124757BC5AC08C5E4E91956A59BC9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sapo 3D - классический трёхмерный платформер с 
 ```bash
 magnet:?xt=urn:btih:EDF1A89142D88920008362ECC4A06E590B13631C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hunter’s Moon: A Sovereign Syndicate Adventure - это карточный rog
 ```bash
 magnet:?xt=urn:btih:E18399F38FE82B194A5FA88C1515E58C65DD05C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dominova переосмысляет roguelike-декбилдер с тактич
 ```bash
 magnet:?xt=urn:btih:6B9AC4AFD341295CF8CEC71F6C96C173B11F98E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Shin Megami Tensei III Nocturne HD Remaster (2021) [Multi] (20657000/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:329852A6C1AE07A9182222FB6AA98E0787050DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Broken Arrow - это масштабная военная тактическая
 ```bash
 magnet:?xt=urn:btih:2717E2DBA41A5F362D66BDB36748C7A66FF70070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Eschalon: Book III - финальная часть трилогии, в кото
 ```bash
 magnet:?xt=urn:btih:FE5A79C084DFA0CDA740C76571EF41A1FB8934FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Salt 2 - пиратская игра с открытым миром про ис�
 ```bash
 magnet:?xt=urn:btih:8DDE40DC94EB74FF5D8F2968BFA197C0F1383E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack Necros
 ```bash
 magnet:?xt=urn:btih:A8E81915905E856CFF3374598280EAF92FAD12F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:684ABFB6A39D86B07BF63C95D26DB10E81AD4BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

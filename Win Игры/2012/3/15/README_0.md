@@ -21,8 +21,7 @@ Chess: Secrets of the Grandmasters (L) [En] 2012 | JAGUAR
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ New Yankee in King Arthur's Court / Янки при дворе короля Ар
 ```bash
 magnet:?xt=urn:btih:E978D38211F6A161726AA1C6760D6BA0B7851061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Cheats XXI (32) v4.5R C2 Lite [Ru] [Обновляемая]
 ```bash
 magnet:?xt=urn:btih:4AA88E66447FE9B6B5B8A83EEC71B1F90A187597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Silent Nights: The Pianist Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:55C14D67B1100B2BE7131F9FCB26D002FEC8C810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

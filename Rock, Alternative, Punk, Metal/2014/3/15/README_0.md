@@ -28,8 +28,7 @@ Subway To Sally - Mitgift (2014) [MP3|224 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:2307AFEF8B580F1F059EE78BF57A0F0A340394B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Yeah Yeah Yeahs - Mosquito (Deluxe Edition) (2013) [MP3|320 кб/с]<Alternative
 ```bash
 magnet:?xt=urn:btih:BEE2212C813CA846557DE9F14C504F2CA68A9BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Magnum - Escape From The Shadow Garden (2014) [MP3|320 кб/с]<Melodic Hard Roc
 ```bash
 magnet:?xt=urn:btih:0825D3CB9FD880790F161A9750EE62BE96910080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ ANGRY MACHINES (p) 1996 CBH
 ```bash
 magnet:?xt=urn:btih:02B24B5053D7F04A7942CD561E23A4428BB0B3B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ VA - Classic Rock (The Collection) (2012) [FLAC|Lossless]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:61E2450F08E5D0D9B038C025FDBD3C226899A906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

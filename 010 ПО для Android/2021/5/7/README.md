@@ -19,8 +19,7 @@ OPlayer Premium v5.00.19 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E30B57D227686AD8402DA8667782703A595B02A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

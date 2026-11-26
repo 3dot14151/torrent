@@ -19,8 +19,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 ```bash
 magnet:?xt=urn:btih:5240F170BFE33C592C95182893E7D10082D3E158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

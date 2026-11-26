@@ -19,8 +19,7 @@ Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks / Сказки лагун�
 ```bash
 magnet:?xt=urn:btih:02476EE321D3525150F5A040CEEA8AFB5E9E2F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crown of the Empire 2: Around the World / Корона империи 2: Вок�
 ```bash
 magnet:?xt=urn:btih:9946A8246797E3A9CFF1ADA3F1FE66D55C856D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

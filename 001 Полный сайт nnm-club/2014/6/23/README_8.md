@@ -23,8 +23,7 @@ Septimo Inferno - S/T (2014) [MP3|320 кб/с]<Hardcore Punk, Sludge>
 ```bash
 magnet:?xt=urn:btih:95EC84103C27FDCB6656E70EA1B8115FB4982291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Funkware - Beyond The Stars (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:03BE4109880565ED6BEF17D9EB7C0E584878360C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Pervy Perkin - Ink (2014) 2CD, Digipack [MP3|320 кб/с]<Progressive Metal / Ro
 ```bash
 magnet:?xt=urn:btih:BAC514B7FF28CA86289B2D5F7C8115802F2B8388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2532377A12749393DAF0D1D9FB1F53B65D4060B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE8CC04EE00A5161B29ADFD7042EE88FBD6F29AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3C6B770CC3F2974B4692EF5378F836CA3F9381A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Jack Teagarden - Classic Jazz Archive (2004) 2CD [FLAC|Lossless]<Dixieland, Swin
 ```bash
 magnet:?xt=urn:btih:2F65E4310E40751FEA2EC0C006349F65B606A120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ Watered - Some Are Born Into The Endless Night (2014) [MP3|320 кб/с]<Post Roc
 ```bash
 magnet:?xt=urn:btih:3DF67B12EF6C6402DCD4DA100ECA023C56085748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5AEF17FC1C508821AE18D79BC350190EF1AE4AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DB012CA477840B2B5794002AD122DE66DFF1734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91CBD6FEE85CD67BA10B8473540EC4E332CE52B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ VA - Music For Everyone - Trance Vol.1 (2014) [MP3|320 кб/с]<Trance, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:2117F653D9A355B19AB28A76ECA02CB182FD0908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ VA - Ibiza Opening 2014 [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:984C40E9570A0228D698F676BAA247FAF059F923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECD9AAF5EC2BA39D890ED86B41CE095384BBBD41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A07FDFBE70929896DB3C4B7702EFCAE440C6E975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:522D6AD05B51D093B6F49FA8C0B353E5E35A8200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +481,7 @@ VA - Fonarev - Connection Vol. 2 (2014) [FLAC|Lossless|WEB-DL]<Trance>
 ```bash
 magnet:?xt=urn:btih:8A4FBA0BF3C238BF67E64E1907EAA5CDA6D9012E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ Allegaeon - Elements Of The Infinite (2014) [MP3|320 кб/с]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:F9F1AAFC4B82E1711FCC38C4685E2B9FD0AD4CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ Optiv & BTK – Blackjack LP (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F78B2E485BF040B80DD15153E81BAF092DCB1011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ECA76DD775A77AAC782DB6A874E6A063FA6C72D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ The Dukes - Smoke Against The Beat (2014) [MP3|320 кб/с]<Indie Rock, Punk>
 ```bash
 magnet:?xt=urn:btih:5D44D7B38D665961B23751557F3A4C5DBDDADD95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ Varttina - 4 альбома (1987-2012) [MP3|320 кб/с]<Folk>
 ```bash
 magnet:?xt=urn:btih:4F6B9662D8D03C94F5C2D2D39A8A4824FE912D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ NK2Edit 2.94 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:B135BF2CC10E7E728FB83973530A3B3C19D010F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ Three Man Army - Two (1974) [MP3|320 кб/с]<Hard Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:6C34C0C9BB51100FB47F5E125DB9119FA4A193F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ Ring of Fire - Battle of Leningrad (2014) [MP3|320 кб/с]<Progressive / Power 
 ```bash
 magnet:?xt=urn:btih:6A47A9E5D1FE18C255E82B5752D0EA5F30C36BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF57325A32B37E609E16202E6465951DE628DE9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PhotoRoom v5.1.7 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EA9DBE46BFC71DDAB2C5AA6F36E0595E64443573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

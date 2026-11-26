@@ -19,8 +19,7 @@ Toy Defense / Солдатики (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:F641501D2DF0BD5E0EC45D750421308E80769D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Fall Trilogy Chapter 3: Revelation / Трилогия падения. Гла
 ```bash
 magnet:?xt=urn:btih:A3D8BA005BBFBB8493B6550B11C564B3C0E97D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Port Royale 3: Pirates & Merchants (Patch/1.1.2) 2012 | SKiDROW
 ```bash
 magnet:?xt=urn:btih:CDCE8F2D6D8A5DB311BBFED6E81D9F78DBEAD290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

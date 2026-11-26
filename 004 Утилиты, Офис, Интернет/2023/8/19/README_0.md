@@ -20,8 +20,7 @@ DesktopNoteOK – простая портативная программа дл�
 ```bash
 magnet:?xt=urn:btih:2681327CCA654C2098FCDB30A067F40996C72FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Caramba Switcher - это новый, понятный автоматическ�
 ```bash
 magnet:?xt=urn:btih:6239D655E64339D71584EA99C3ED3B5E24CFB441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

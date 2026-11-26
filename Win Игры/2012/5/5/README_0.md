@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7E18409D2A225B85044ED825E94A76739F932CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystical Island / Мистический остров (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:1BB912E7FED9895F3C9087A14D7C8D2A14A41DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Atlantic Journey: The Lost Brother / Атлантическое путешест
 ```bash
 magnet:?xt=urn:btih:85BB1423935D2BE0B1167DCE244AE093D599740F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Malice: Two Sisters (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B83291F983172A3DE82517E3B0143CD34EB4D7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

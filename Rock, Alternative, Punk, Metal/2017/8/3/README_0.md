@@ -22,8 +22,7 @@ Cult Cinema - Iscariot (2011) [FLAC|Lossless|WEB-DL|tracks] <Crust, Hardcore, Po
 ```bash
 magnet:?xt=urn:btih:C8F59C1EC7E6CCEC9D6CEB422BFCDF4657429A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Saor - Roots (2013) [FLAC|Lossless|image + .cue] <Atmospheric Folk, Black Metal>
 ```bash
 magnet:?xt=urn:btih:B989E2BE4CB40A69961341F97AE0DD56E7C13084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Odyssey - Odyssey (1999) EP [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:1B28C33344E388CA9A733E48EB56F3A8068C3F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Vanden Plas - The Seraphic Clockwork (2010) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:296A29E80105D41185A0122B018C069E06179E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Vanden Plas - The Seraphic Live Works (2017) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:EDB6CFC00D6CC9F8EFB8F1ACA64B0A0D9065F348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Dan Swano - Moontower (1998) [FLAC|Lossless|image + .cue] <Progressive Metal, De
 ```bash
 magnet:?xt=urn:btih:961FA9E06BC9153FF39AAAC0666B01BA4C7F83D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Accept - The Rise Of Chaos (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F6A2306146775AE9E6DE784D9411735AAEE71D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Accept - The Rise Of Chaos (2017) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C03ADF2F25C3A166D995FF00B45A833E0C3DC911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

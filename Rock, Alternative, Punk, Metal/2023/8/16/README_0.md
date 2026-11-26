@@ -25,8 +25,7 @@ Moroz Records представляет…
 ```bash
 magnet:?xt=urn:btih:2A806F67E20788B4C4ED8FA28EF1007FE3925B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Blutgott - Respawned In Heavy Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ```bash
 magnet:?xt=urn:btih:0849BECCBE9CE45B8CCB4BF07F7DEDB38B092DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Sargon - In Contempt (2011) [MP3|320 Kbps] <Thrash, Death Metal>
 ```bash
 magnet:?xt=urn:btih:871703CDDC98999187F536DE4284E3C3BF3F0E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Sea of Dreams - Dawn of Time (1996) [MP3|320 Kbps] <Melodic Progressive, Power M
 ```bash
 magnet:?xt=urn:btih:15EF8AD24EE4033117187F3185FEA9CC00EDEBDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Jag Panzer - Tyrants (1983) Reissue, 2013, High Roller Rec. [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:939DFF1243990148CF6F2C21A79A1A58F78F4978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Rideout - Driven To Insanity (2023) [MP3|320 Kbps] <Progressive Hard, Heavy Meta
 ```bash
 magnet:?xt=urn:btih:300C3B2A6A6590171F8C1C709A28F6F6BCB62F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Jag Panzer - Ample Destruction (1984) Reissue, 2001, No Poser Rec. [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:5F56872EC8D2C722A4DAC9AF5B98019E59DD14DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Sea of Dreams - Land of Flames (1998) [MP3|320 Kbps] <Melodic Progressive, Power
 ```bash
 magnet:?xt=urn:btih:51A78722B7B0FC996872305896AA7EAA82052752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Blutgott - Respawned In Heavy Metal (2023) [MP3|320 Kbps] <Heavy Metal, Death 'n
 ```bash
 magnet:?xt=urn:btih:FB4075A4CF9440354DC4B7CFE41B9B9EA2422D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ Hyades - And the Worst is Yet to Come (2007) [FLAC|Lossless|image + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:300DBEF84036001664BDB0F293DAF0056BC7AC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ Iratus Vir - Under a Midnight Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 ```bash
 magnet:?xt=urn:btih:561FBD790A5807ED679E7C0332DD2E9BD59D617E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ Uncaved - Dogmatorraistes (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:6CA03F6E096F06523295804B5D3D6313C0B29E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ An Autumn For Crippled Children - Closure (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:CF5B24F8E86061BB0A8790363A6DA80FF20A105D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ Hyperdontia - A Vessel Forlorn (2019) Compilation [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:245E0C877489D0047DC3D06F092DF5066C3BA2B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4976615980E53A1DD0DF3ADF8C87378DF2D7A14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44A5D497E80C7C9B1CE71BFA46A4679E932FEBEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Manfred Moser | Trino: The Definitive Guide. 2nd Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A6E968376933A3026C823A8ECE64589D13B19CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Hari Narayn | Just React!: Learn React the React Way (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:2F5727D7109817542916BDFADA95D4EA6C92ED79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Thorium - Ocean Of Blasphemy (1999) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:5AD762FCC93A304AD1F6D91FD85540A62277AD81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fungus Hill - Cosmic Construction on Proxima B (2018) [MP3|320 Kbps] <Psychedeli
 ```bash
 magnet:?xt=urn:btih:61DC2ECD04E0ED34D50D874E2AB0A64777113C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Absence - A Gift for the Obsessed (2018) [MP3|320 Kbps] <Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:C7262224821DF9DDC2E1E43F57E67F96AF0F86FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Eldritch - Cracksleep (2018) [MP3|320 Kbps] <Progressive Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:086F148A97A0A049327BF3909E150C5350354CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Stormzone - Lucifer's Factory (2018) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:740596189381EB946AF8865F513DA284AA142CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Monster Magnet - Mindfucker (2018) [MP3|320 Kbps] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:93E2B059F51A65EA82F26909BB0A1C7811BD34DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Good Times - Просто Сложно Понять (2018) [MP3|320 Kbps] <Ska, 
 ```bash
 magnet:?xt=urn:btih:CBB9069EF483EDC5CE5B298BEA110B5BD9ED4AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Three Days Grace - Outsider (2018) [FLAC|Lossless|tracks + .cue] <Post-Grunge, A
 ```bash
 magnet:?xt=urn:btih:D9B15F6B9145C10B08458AC33318F3F66F3921A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

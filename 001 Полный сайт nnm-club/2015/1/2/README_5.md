@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4C257343F6DB76270B0F5F346154A56838937628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jagged Alliance: Flashback - это игра с классическим так�
 ```bash
 magnet:?xt=urn:btih:E483A4911E043267EDA428B39A7AFAF463151820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Adobe Premiere Pro 2014 - это мощный, настраиваемый ред
 ```bash
 magnet:?xt=urn:btih:708289F2FA6C1F5F52AFC91BBEE9BFDA4A35DE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78FE76B2686A52D61E0E2C4146A9CC3902140619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Pinnacle Studio 18 18.0.2.444 Ultimate collection by VPP (64Bit) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:39C06D437A7C6D03019848CE5FF9E4283FE380EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

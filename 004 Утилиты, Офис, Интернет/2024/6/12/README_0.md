@@ -19,8 +19,7 @@ AntiPlagiarism.NET - инструмент, позволяющий исследо
 ```bash
 magnet:?xt=urn:btih:C31DB1C66946345B0ABC1B733BC72693BC256A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

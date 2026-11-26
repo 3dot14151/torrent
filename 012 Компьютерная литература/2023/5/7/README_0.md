@@ -19,8 +19,7 @@ Robert Benefield | Lean DevOps: A Practical Guide to On Demand Service Delivery 
 ```bash
 magnet:?xt=urn:btih:414D4F59262A0A6EAA7D4AFC995CE061C02B7DEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alberto Gonzalez | Linux Server Cookbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:CCF99447DCBD1A29E795DDCD0918DB262CBDC438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Jaime Buelta | Python Automation Cookbook, 2nd Edition (2020) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:13BB9C4FA3A5D385A66DCECE26C7686DF2846A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ David Tschumperle, и др. | Digital Image Processing with C++ (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:82013087BFBA75C1A63D569140BFAF55FB3E3EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

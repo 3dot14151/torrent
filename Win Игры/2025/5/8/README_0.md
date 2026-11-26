@@ -19,8 +19,7 @@ Forza Horizon 5 – продолжение популярной гоночной
 ```bash
 magnet:?xt=urn:btih:0B0E0572874E8BC0731075D4E4097D28994C748A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:3A8CCEEB67F4D675092BEF531D4702F36F586B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cybernetic Fault – сатирическая приключенческая и�
 ```bash
 magnet:?xt=urn:btih:19A7B77CE99FB0302CADDD7A4D872B9E710C8D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Drop Duchy - это легендарная геометрическая голо
 ```bash
 magnet:?xt=urn:btih:6B88DD9732AB6F9786A507E244B4CEC77C63E197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:70C9E35802915DC3591551D4D60DD0C8F1E5C622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Teardown – симулятор проведения ограбления в р�
 ```bash
 magnet:?xt=urn:btih:0FC807EBBBC9EC8789B6D08E2BDFC707FE49EC49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

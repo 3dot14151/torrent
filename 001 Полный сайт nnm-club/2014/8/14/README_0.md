@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8055C1408CC890A8299FCF0F5D9739A7CF3DCD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9817598544CEBA0208485B9C0A0D5DDBAD41F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30FFFFBE15B0411BBE0F5C63C8D0175710203C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ System Explorer - диспетчер задач для Windows. Функцион
 ```bash
 magnet:?xt=urn:btih:5568ACEDC22EAD8B4ABE53CB59D2E882D2C5A969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ PhotoScissors очень пригодится, когда (   Читать да
 ```bash
 magnet:?xt=urn:btih:93A72B438FD1E1172246D70109B637B9F2C7308E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CFFCADC5FC754F226277A944077F22FE484C896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Simon Viklund - PAYDAY (2012, 2013) [MP3|320 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:38ED67AA0CEF0357C46CAC89CABA0C6CEA59CC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Nobunagun / Пушка Нобунаги [2014, TV, 13] BDRip Hi10p 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:66E12DB9FC72C36D6D92DDAAD7437AA1D50E2B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Giorgio Moroder and VA - Лицо со шрамом / Scarface (2003) [AAC|WEB-D
 ```bash
 magnet:?xt=urn:btih:D90312108B7C55DCEFA25F935945EC46E6F0366C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5F956822A9E129220E9ED727EF400A69060853E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77E293E3A2AB4944763E87EEE7E85369530AD0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46E4D5A15084DF6F867EB8C895792226E948864C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:837C3720175E16B49D79216CF6BAA82C58D54A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Yahoo! Messenger - одна из наиболее популярных прог�
 ```bash
 magnet:?xt=urn:btih:9E04AE895C68D22F3D478C6730FD92B7352887A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2967FF00E5B0837E6FA2CF88C34F2A95BC372706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Babe - Never Listen To A Bouzouki Player (2001) [FLAC|Lossless]<Disco>
 ```bash
 magnet:?xt=urn:btih:57D9FB8B49EA2085812D7C3F8B85C53E19383CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ Babe - Hollands Glorie (2003) [FLAC|Lossless]<Disco>
 ```bash
 magnet:?xt=urn:btih:F22DB5801840F4E75C5FD6F3C2BE230DAA46D038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ Fission - обрезка, склейка и конвертация музыка�
 ```bash
 magnet:?xt=urn:btih:1A1CE384A17B7D7E66CFAFF3E5D653FB7D5326FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C581098E3BFF3BB9E381E0D8D2C7F620ED09F79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A20BB956A7581755B00BFD323C1AE00C3210D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Various Artists - Summoning of the Muse / A Tribute to Dead Can Dance (2005) [FL
 ```bash
 magnet:?xt=urn:btih:032C0DAED9F3C0DE07A1318633CC5BFD88BE13FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B13D343C9943E5CA4CABAA64049EA47AB03AD0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Virtual Families 2 [En]
 ```bash
 magnet:?xt=urn:btih:08C81C40EE8AF7C93D4039C9602D5022D6D46B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ BBC: Мир природы. Исчезнувшие острова / Natural Worl
 ```bash
 magnet:?xt=urn:btih:ED7B1653B60F160396CFB2FEBD8B63EFDAC58513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ Magic Number – это отличный помощник для всех, кт�
 ```bash
 magnet:?xt=urn:btih:80A37A9093EA4984F1F066CAE8A0AEA4EB142C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

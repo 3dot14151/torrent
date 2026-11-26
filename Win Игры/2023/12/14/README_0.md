@@ -19,8 +19,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:24AC4ECE7A933638EF7E76A4C53E80C1B4E581B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

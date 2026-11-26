@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:53F69C81B72E646D32B5E08C477CE6F6AAC50209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32B44A1F1A86B24CA35DFC8F8F6FE4B195110079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Indra Rios-Moore - Heartland (2015) [MP3|320 кб/с]<Vocal Jazz, Soul>
 ```bash
 magnet:?xt=urn:btih:4664E1D2D33D824AA554C1BBA1DEE686AA66B48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - The Best of Relaxing Nu Jazz (2015) [MP3|320 кб/с]<Jazz, Lounge, Chillou
 ```bash
 magnet:?xt=urn:btih:34B49819B1321B29271978B647171779B7388DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Jared James Nichols - Old Glory And The Wild Revival (2015) [MP3|320 кб/с]<Bl
 ```bash
 magnet:?xt=urn:btih:98C6B5B900041ADEAE4E07250050E72C6F53E597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE180177B79335CF8398BD84742C2FB24C27B4DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Ritual Side
 ```bash
 magnet:?xt=urn:btih:E14C809253210F70D56FD216E89A71772C2DF421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - Techno Club Vol. 47 (Mixed By Talla 2XLC & Liquid Soul ) (2015) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:5C30FB3A38B21F8A774B39F95649C4DAF3F83711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ VA - Chiringuito Aigua Blanques Eivissa: Playa Lounge Y Chillout (2015) [MP3|320
 ```bash
 magnet:?xt=urn:btih:CA1F047B75A64F829C9567AB61F26C524D8303FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A943087F1081F1D46A3CD0FBCAB647B6158EF62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE5389049CC056BDC415124B195B6A488B30590C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5751C23B94C057C178330F2958A067631B4D3F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Marilyn Monroe - That’s Me Marilyn Monroe (2015) [FLAC|Lossless|WEB-DL]<Vocal 
 ```bash
 magnet:?xt=urn:btih:5465C6A4038B610ABC4F83512ACEB271080FBF5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA99524007BD78BD84C62D93354AB559472F67B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Marilyn Monroe - That’s Me Marilyn Monroe (2015) [MP3|320 кб/с]<Vocal Jazz,
 ```bash
 magnet:?xt=urn:btih:CB4730E5015F28260D33EC66CCB9649FD800A6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B50E24F6E747E6E0103F985BCD447EC8E5D1FA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ al l bo - Scheme Of Jetpack (2015) [MP3|320 кб/с] <Disco, Nu-Disco, Deep Hous
 ```bash
 magnet:?xt=urn:btih:6C4E434D7EA30202E0C3751DB8C13CC7F9FD2C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ Portico Quartet - Дискография (2006-2013) [OGG|407-519]<Post-Jazz>
 ```bash
 magnet:?xt=urn:btih:4EA70C5DD96BD0BBE44BDA9ED7BF3EC9C71BC5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Joe Cocker - Organic (1996) [FLAC|Lossless]<Rock Blues>
 ```bash
 magnet:?xt=urn:btih:305DFE956F2B6C18C1A72E9218C99046979DBA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:59E8B993781E576B1A87A9E03868A59306B16297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5C5718246B330FA83B71A05BF0824AA639A0545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66F417C068F601179E0D497AFC1A90C3160A581B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34B5A87A89D22B3D103BD64B8BDBE6CDBC3C3198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ Unclutter – это виртуальный карман, где вы сможе
 ```bash
 magnet:?xt=urn:btih:AD49358C27BD38AB17C9811D7926FC9ED27EE3AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8718F8D50E4E9BD3DFC48CB416F308355D55AC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ al l bo - Jetpack (2015) [MP3|320 кб/с] <Disco, Nu-Disco, Deep House, Synthwa
 ```bash
 magnet:?xt=urn:btih:D79D930042DD71059316CDBE7F3BE94AF8CA2AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Huntress - Starbound Beast (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:AF95EC94E44FD19830A34AA315E46C01279D658F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE616FE44E2D0172A49D521C4E8F92ACF3710E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ I.F.K. (Insect Flying Killer — «летающий убийца насеком�
 ```bash
 magnet:?xt=urn:btih:0B338B976A43816882D4AE23177AC576CBC0E963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +131,7 @@ Fractal Gates - 2 альбома (2009 - 2013) [APE/FLAC|Lossless]<Melodic Death
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

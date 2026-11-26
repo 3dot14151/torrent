@@ -20,8 +20,7 @@ Leviathan: Warships – это кроссплатформенная видеои
 ```bash
 magnet:?xt=urn:btih:8C6B1A52E034F7098D0AD346CB6AA35016144822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

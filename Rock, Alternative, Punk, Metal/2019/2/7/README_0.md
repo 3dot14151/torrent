@@ -22,8 +22,7 @@ Tyrant Eyes - The Darkest Hour (2003) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:EFA76C75CA7D3EFB2416B8910A016AF9EB620F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Veer Union - Decade II: Rock & Acoustic (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:122C28B6614D49B7A627690BF3057E7F92046884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Herman Frank (ex-Accept) - Fight the Fear (2019) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0584865B22487C480B321A19375F75F4D85B7094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Beast in Black (ex-Battle Beast) - From Hell with Love (2019) [MP3|320 Kbps] <He
 ```bash
 magnet:?xt=urn:btih:170A53CECF3B89CDA60BD4E3686CD59291510D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

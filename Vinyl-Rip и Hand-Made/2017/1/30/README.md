@@ -22,8 +22,7 @@ D1. Tiesto - Euphoria (7:34)(   Читать дальше...   )Жанр: Trance
 ```bash
 magnet:?xt=urn:btih:5A7650CE41A392D200F5473D6C4B3FA4DE024B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ D1. DJ Tiesto feat. Nicola Hitchcock - In My Memory 6:08(   Читать дал�
 ```bash
 magnet:?xt=urn:btih:B4D32980DC3D80BA9F5016FFA2555CDAF3B34A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B2. GTR - Mistral (9:18)(   Читать дальше...   )Жанр: TranceПр
 ```bash
 magnet:?xt=urn:btih:569774D38921D7A97C634AC843F9755CAD48D961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ D1. Tiesto - Bright Morningstar (8:16)(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:F6F5F3B4CD88F33CE47FE940353C514100A1F917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ C. Columbia (07:31)(   Читать дальше...   )Жанр: TranceПрод�
 ```bash
 magnet:?xt=urn:btih:204F40F5614F2DEF168C111DAB845727B9D4294A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Enigma - The Fall Of A Rebel Angel (2016) [WavPack 2.0|32/192|image+.cue|Vinyl-R
 ```bash
 magnet:?xt=urn:btih:63980C31979D75EE5D2953BEAD32229CC25F6BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

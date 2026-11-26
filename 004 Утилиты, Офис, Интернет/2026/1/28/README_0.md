@@ -19,8 +19,7 @@ JetBrains WebStorm — это мощная интегрированная сре
 ```bash
 magnet:?xt=urn:btih:85E303EC9ED77B586EF45E99E84195B89C35308A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MediaHuman YouTube Downloader 3.9.18 (2601) (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7ADBA1780A4C3018E27313DB44E97C8615FDAFF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wise Program Uninstaller 3.2.8.272 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F7874DD674939E9593EBF8BE831E7A0906F895C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ R-Studio Network 9.5 Build 191686 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AF233F7B4CD4FB91CB8E2D8D2609E88C626C4FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ iTubeGo YouTube Downloader 10.13.0 RePack (& Portable) by elchupacabra [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:76AB263F55C8ED1384FB162CC46E9D8C6EE6E0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ MediaHuman YouTube Downloader 3.9.18 (2601) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:CAD695D20F44C97A3238210A46FBFD5F704E7CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ WinArchiver — это мощная утилита для работы с арх
 ```bash
 magnet:?xt=urn:btih:74D8B20135A33BA6A1FAD470696244A353571CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:1EAADF0CA1F797D0B7910765A2DE25F9AD1702C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:4B3F812F06A3228D2E1BF9942C93FDE23B6BFE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Any Burn - небольшая бесплатная утилита для раб�
 ```bash
 magnet:?xt=urn:btih:F683C36F4D20B8168162A2CEDE1F5E8631EF3214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

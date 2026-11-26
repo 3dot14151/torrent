@@ -19,8 +19,7 @@ Enigmo 2 (L) [En] 2008
 ```bash
 magnet:?xt=urn:btih:CF6714D53EFE069BAA8852423CA5D623E3A48847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enigmo (L) [En] 2003
 ```bash
 magnet:?xt=urn:btih:525399F9F982D8F237C09C68BF397A7BB7DED8A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Immortal Souls: John Turner #1 (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:617241A64452DD657C906C2EF95343C32E03D144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Mystery Legends: The Phantom of the Opera Premium Edition / Таинственн
 ```bash
 magnet:?xt=urn:btih:9CFBAAF15F898C2361D29AC1B04C68CE64DB71C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ BlackSite Area 51 / Зона 51 [Ru] (Lossless Repack/1.2) 2008 | R.G. Catalyst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Order Of War / Order Of War: Освобождение [Ru/En] (Lossless RePack) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

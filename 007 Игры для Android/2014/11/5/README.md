@@ -19,8 +19,7 @@ Pool break- это набор игр, который включает неско
 ```bash
 magnet:?xt=urn:btih:1E670AF3EADFD8242FA68BA6DB0DE946BD3934D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

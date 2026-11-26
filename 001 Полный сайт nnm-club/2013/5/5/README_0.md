@@ -27,8 +27,7 @@ VA - DubStep Pro V.27 (2013) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:730A068A6C14AF09E45183A537CCC60BCB61BF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Side Liner - Missing Pieces Of A Puzzle 2 (2012) (WEB, #CLCD043DG) [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ BBC: Замерзшая планета (Застывшая планета). Се
 ```bash
 magnet:?xt=urn:btih:6A33A3652A0D2F61EDFC2472A0AAB3DB381705EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Merle Haggard - Chicago Wind (2005) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:708CDF032E6E86374053478DB86B62FBC0A36E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Database .NET - простая, бесплатная (для некоммерч�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:903D6A2F1FF4187F6F38EFB7C77271B3F151601D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ Cерия «Warhammer 40000: Битвы Космодесанта»
 ```bash
 magnet:?xt=urn:btih:1424A335B605302BA145A6AB463E098F5CDCB018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ VA - Spring Time (22 Premium Trax: Chillout- Chillhouse Downbeat-Lounge) (2013) 
 ```bash
 magnet:?xt=urn:btih:C35172FF40F43E4B3100E6D98F489F0FFAC2C71C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C45FB809F8998B85A149BFDAB2DE840D98C0CC4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ MediaCoder позволяет увеличить компрессию видео
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8815A389A90A74B30605BF599CBEF4FC2EEA6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ BBC: Замерзшая планета (Застывшая планета). Се
 ```bash
 magnet:?xt=urn:btih:7989725494EC251D0479CC1E87D5BF9105AD3607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ VA - Club Dubstep №3400 (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:B0BA9A1C03A7773564FF1D011993FE4FAF01B78C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ VA - Raveline (Mixed by Florian Meindl) - 2013 [FLAC|Lossless]<Tech House, House
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0206C496175FBCD3048A9CEA7E02D757F14FF0F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:AD6BF863505421B3A1F57A3B4067776F239EDB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8112DC3FA35281D2FA7FF71F1A371D3B19E3F95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +545,7 @@ BBC: Замерзшая планета (Застывшая планета). Се
 ```bash
 magnet:?xt=urn:btih:4B3E73787A0AD9F4610F40BC9256625762E814D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +572,7 @@ NirLauncher Package - это пакет из 168 небольших утилит
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A60B2F7359564875AC143D2DBB03B58BA03E2E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ Hord - The Book Of Eliot (2013) [MP3|259 - 291 kbps] <Industrial Metal / Groove 
 ```bash
 magnet:?xt=urn:btih:37787BF68DD288045589CC562D0B5C71637C2B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ Cерия «Warhammer 40000: Битвы Космодесанта»
 ```bash
 magnet:?xt=urn:btih:57307887C8E552EBE3FD4BC43CEE87105A86640E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ Big Bud - Blue + Green (2012) [FLAC|Lossless]<Drum & Bass>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6A3C593DCC6A2FE7A62C6626435B842B0C07B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ Bonus 1:
 ```bash
 magnet:?xt=urn:btih:43881394CF127D77E54A1BDDFB7398006E5E1E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Teardown – симулятор проведения ограбления в р�
 ```bash
 magnet:?xt=urn:btih:AAD42B102F78A58D8DE1FB41C0F41D1323B50115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 ```bash
 magnet:?xt=urn:btih:ABA4F703EF80D7608497546366F11940D08F6BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dungeon Defenders: Going Rogue (2022) [En] (0.9.34625EA) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:54FF0A2A0C1FED531AA35739C1C80CCD1D2E7565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shadows of the Damned: Hella Remastered - долгожданное переиз�
 ```bash
 magnet:?xt=urn:btih:2E99E48B6C6A5A3A5D501DEABB7F40CCC6D2A3A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Undead Realm: Ego - это интерактивный хоррор, которы
 ```bash
 magnet:?xt=urn:btih:C4849CC3F10ED4688568FB0EDDAD993AF37D24C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Construction Simulator 3 (2024) [Ru/Multi] (0.9) License GOG
 ```bash
 magnet:?xt=urn:btih:7192E169F31ED73182EBEBDFD678C280C6A0752A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Amenti (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9B824D8DF85A928C563154ABD954F59518217D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ FREEDOM WARS Remastered (2025) [Multi] (1.0/dlc) Repack FitGirl [Contribution Ed
 ```bash
 magnet:?xt=urn:btih:95C7BB61E4AA43C27D56FE6F25257A40462E2B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Exsys (2020) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8733CCB02A541A89AB578557BE4BCA53D93697DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Beyond Hanwell (2024) [Ru/En] (1.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F0DCAEA7E3E1C5BB9F7C63ADD4D14200B52E0E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Marko: Beyond Brave (2024) [Ru/Multi] (1.09) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:03052594723E7659CBA4D30A12D5EBC17C465E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4F8C3D4E2770F79B2BACBCA620D11F52A500F1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4E79AB563C4CCF83F1EF5BE842BC3CED2E74E490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:41875B29D3CA83B82CC06C6BFD60F057D5180CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7AD8374214052A5B98B1B2B6EE5C5CA0D24E5402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Dropsy (2015) [Ru/Multi] (1.5) License GOG [Warm Damp Hug Edition]
 ```bash
 magnet:?xt=urn:btih:4BC188DB5AE063B3AB45035D410C9EDA3C800474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Raccoon Roller – настало время для увлекательных �
 ```bash
 magnet:?xt=urn:btih:635E1C6EAC9C23DE2C39F1591881B32E2613D78C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (0.9) License GOG [Pocket Edition]
 ```bash
 magnet:?xt=urn:btih:5A7D9FBA66C52AA2451B07D3DFD853730D032B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -32,8 +32,7 @@ CD4 (00:52:02)
 ```bash
 magnet:?xt=urn:btih:8E1BC1B3B3BC3AA4AAB8CED2632C29523A549AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -67,8 +66,7 @@ The Debauchery Blood God - Blood Is My Trademark (2014) 2CD Digipack Ltd. Editio
 ```bash
 magnet:?xt=urn:btih:7623AD01943CF4985E83A2099AC476880DC45C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E497EFD5E409DA9608780F5A2791419C24CD0BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC610E48301959CE027AD55C4B73829249FCB9B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ VA - One Night In LA (2014) (Luxury Lounge Music) [MP3|320 кб/с]<Downtempo, L
 ```bash
 magnet:?xt=urn:btih:6E351C65D638ED1BB2ADE1DE760E751DF6C28A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ VA - Addicted to Deep House (2014) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:E9B44286C06A5298E2A4742DA3F1104073539FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EB5000A9E6AAF468CC89D5890C601506585D1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE92E9410AB9448DEC720F40BBED40C77A6933C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ VA - Deep & Chillhouse Long Island Summer (2014) [MP3|320 кб/с]<Deep House, C
 ```bash
 magnet:?xt=urn:btih:07DCD0567C1506133DE49A808A75BF3ADDCE5449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:629725F7DAE2B74DC43113A80E2D9D33EA5CDA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80C9E53572D35B6C6EB62BE0897F6520E34D1A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2617E0B8FFAEE30A5759E801F821920B8F191E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B72A943513B1E0ACA9906812D02BF7C9C02265E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ Solstafir - Otta (2014) [MP3|320 кб/с]<Post-Metal, Progressive Metal, Post-Ro
 ```bash
 magnet:?xt=urn:btih:DD48E06DB256D7ADB60D99D3B46A71628F46BE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:109CD7BED01D9FDA1DB838014A3AE38ABF3E52DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ This Patch Of Sky - 4 альбома (2011-2014) [MP3|320 кб/с]<Post Rock, In
 ```bash
 magnet:?xt=urn:btih:5CCEF26D89863E998AE7977CE16EBEA26D04A519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:479D445D076DBF0FD27668C6FF538CCD4D7FB7B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ DJ Orkidea - Metaverse (2008) [FLAC|Lossless]<Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:49BAAE3E537A9B8DFCE38C56A142CBE7C47C6B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ VA - Sonne Mond Sterne X6 (Compiled  By Mathias Kaden & Sascha Braemer) (2012) [
 ```bash
 magnet:?xt=urn:btih:FC7CB101ACB5DCBC0601E0CC49E73DBC73FB8DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ Light Alloy – мультимедийный плеер для ОС Windows. П�
 ```bash
 magnet:?xt=urn:btih:F568254DD69CCA840F3F1112D237E85E12BB3A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ Ashampoo Photo Optimizer - простой и удобный инструмент
 ```bash
 magnet:?xt=urn:btih:4F2ACDDF1B30A4ABC90AEB1EEA0FCB02AE27CDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F969A71634EA44DF14981E785F47680BA3EF18C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +690,7 @@ Machinae Supremacy - Phantom Shadow (2014) [MP3|320 кб/с]<Power Metal, SID-Me
 ```bash
 magnet:?xt=urn:btih:9FA8A0D15951F1F4162C75C3199FBA19505AC603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23DFF46B2659E85E217C3C0561781D32303256CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DBB13294337044FF0F9E842CDC569758CB77D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

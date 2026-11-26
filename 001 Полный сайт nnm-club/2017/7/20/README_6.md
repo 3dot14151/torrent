@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D37787CA5E3701E67B2117EB2563BC0FC3918543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97F0F1B8E8A735659922FD558B446F1B4FC11F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Michael Garrick Sextet - Promises (1965) 2008, Vocalion [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:6AE6D08F25A87CD1649E2644A3CB403F40EF4B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lee Konitz & Warne Marsh - London Concert (1976) 2002, Wave Records [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Gerry Mulligan Quartet - What Is There To Say (1959) Remaster, 2014, Sony Mu
 ```bash
 magnet:?xt=urn:btih:B152453A894C4641B1C251F13025185030D6DAEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jimmy Raney - Live In Tokyo (1976) 2016, Xanadu Master Edition [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:DE86B081B30CD93F8E101654355EA5B3924CAEF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Clipboard Manager 1.9.0 [En]
 ```bash
 magnet:?xt=urn:btih:87EDFE04CFAB9348741ADB929662B2DFC30D511C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Trance Elegance On This Year 013 (2017) [MP3|320 Kbps] <Trance, Melodic, Up
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Voice Of Suanda Vol.4 (2017) [MP3|320 Kbps] <Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:2664595479E5D96086FED7ABADB8A6E5D300B571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ NetWorker отображает сетевую информацию в строк
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ The Four Brothers - .... Together Again! (1957) 2017, Sony Music [FLAC|Lossless|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Love Story, Vol. 1 (20 Summer House Tunes) (2017) [MP3|320 Kbps] <House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C82090189C1C7B534E3D3810F55DF2DBF13BD09A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ VA - Poolside Heat Paradise Summer Beach Lounge (2017) [MP3|320 Kbps] <Downtempo
 ```bash
 magnet:?xt=urn:btih:0D62E7F698C65782BF1228AEFFC69A3EEF74A1DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Noumena - Myrrys (2017) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:9B42AB41996452DF943D387BF81986CFD7857328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Herbie Hancock - Thrust (1974) 2016, Audio Fidelity [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:5A612A1337AB5337B46583D22D96A45C3970F802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ VA - Nothing But... Trance Anthems Vol.10 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:080E05DF34A771EEE65789A1162C3C86959DAA27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBBAAB7BEF0FEE9BE8A48F0EFCD893217FB81BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:794B31FFA3E75CCAA0B6690248CDD831905D4F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ VA - Romantic Lounge Date Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ VA - Summer Time (Dance Hits) (2017) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:623AAE352951DE69577A2F2FC7CD4AF363A211D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ Sasha - Last Night On Earth 027 (2017) [MP3|320 Kbps] <Club, Dance, Progressive 
 ```bash
 magnet:?xt=urn:btih:C35E1F7201713E9FDCC9D55E1097F71E68848F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ VA - Muscarix (2017) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2D7DD414ABC6BD2097370EAC5D14B58F85D7552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ VA - Erotic Chillout Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:AB96E6FD164450972830EDD00CA0CCBEC55C17BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

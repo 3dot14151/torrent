@@ -19,8 +19,7 @@ OSGeo-Live 9.0 (Дистрибутив для географов, картогр
 ```bash
 magnet:?xt=urn:btih:3D69D3A2C19902C25869B5124F3D187F43D2ABDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ MovieShot - бесплатная программа для создания ск
 ```bash
 magnet:?xt=urn:btih:87F5AF940A316BE94C1FADF06E80BAA3B21D4676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

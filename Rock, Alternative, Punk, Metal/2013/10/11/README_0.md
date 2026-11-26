@@ -27,8 +27,7 @@ Teodasia - Reflections (2013) [MP3|320 кб/с]<Symphonic Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:9FE54B73AB4BCD08F57F4BA84D2B892AB9886987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Under Silence - Memories Lost In Time (2010) [MP3|320 кб/с]<Heavy/Power Metal
 ```bash
 magnet:?xt=urn:btih:988CBF8A44D1C1418C62D35D3947B6EAE82DCF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Virgin Black - 4 albums, 1 EP, 1 demo (1996 - 2008) [MP3|320 кб/с]<Doom metal
 ```bash
 magnet:?xt=urn:btih:698333C84A4E3624561ACE72E65E5AD6EFDBF153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Saitenfeuer - Kein Zurück (2013) [MP3|256 кб/с]<Hard Rock, Deutschrock>
 ```bash
 magnet:?xt=urn:btih:BCCD77FF72823A888EFB32B56A9F5FA4F2A44C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Chalice Of Doom - Into Hypnagogia (2013) [FLAC|Lossless]<Melodic Death, Doom Met
 ```bash
 magnet:?xt=urn:btih:AB4E36345E9AE85D430014E9BF126F2BDAD13C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Epysode - Fantasmagoria (2013) [FLAC|Lossless]<Progressive Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:78BC06D47C03EC2FE43B1386903E2F2D8862D87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Linda Ronstadt - Get Closer (1982)/W.German Target CD [FLAC|Lossless]<Rock, PopR
 ```bash
 magnet:?xt=urn:btih:9A2D53117A3371363C9DC39B909117C48E26DA6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Fantasy - 2 Albums (1970-1976) 1992, 1994 Reissue [FLAC|Lossless]<Rock / Progres
 ```bash
 magnet:?xt=urn:btih:73A4CF135124D7FFEB1453A81095C2D481A2EB52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Europe - Super Hits (1998) Compilation 2007  [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1BE154D6495A78FEC8C31EF1CEBBA5002D4E7420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ House Of Shakira - Pay To Play (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:607B87D15488854A7C5EAE7AACF58A2DB21D2B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71DA9641B8D11731CACD6C7C88F3E0D879229DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CCD313C4A00F9A76EB047D9781D95600283BF1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ John Fogerty - Wrote A Song For Everyone (2013) [FLAC|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:2C6D8C142542350170269D401E21202BFA0C2D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE8E60C542A501E7451E89E4B6472656DA05CC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +491,7 @@ Bon Jovi - Gold (Compilation) (1997) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:9CCAB2DF9448FA07C98F2F32517694F2E14DD6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +525,7 @@ Nazareth - The Ballads (1994) [WavPack|Lossless]<Classic Rock & Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FF656A28395B490EC3AA2BBF1CA036C41988594F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +559,7 @@ Bon Jovi - Best Ballads (1997) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:86D5CB70158CD0A3C71CDC1D043966471823CE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +593,7 @@ Foreigner - The Very Best... And Beyond (1992) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:48EF8EF5864EA2F154F8482D375AFA6E11CF2D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC80F4687DD28B9CF4F9D76C1D39146C9253247F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Massive Rock Hits (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6DBA54BEF4F6598E83F3267911F7063AAE966322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mirror Of Enigma - Angels Are Dancing Alone (2023) Deluxe Edition [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:63C474FFA63221ED932C6E6932B2D20D0732BFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sun Dweller - High Ride (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Grunge, Blues
 ```bash
 magnet:?xt=urn:btih:665CA676CBD3AA9BB3D4AA4430A6EC2E84B95D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deserta - Don’t Dare Stop (2023) [Mp3|320kbps] <hard rock>
 ```bash
 magnet:?xt=urn:btih:F0094A295E65EB6968F12B4521CB39DA8EAA01DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Royal Blood - Back To The Water Below (2023) [FLAC 24/44.1|WEB-DL|tracks] <Alter
 ```bash
 magnet:?xt=urn:btih:ADA9A4E6AAD8B9F2EC9DDC13CFB20AAB6BFF8491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Eclipse - Megalomanium (2023) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:57766032EABECDCF0D45512FD28E00FB72C87415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Soen - Memorial (2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 ```bash
 magnet:?xt=urn:btih:B8AAF25100960A93271A31F193AE8B1FC29385CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Van Halen - Montevideo 1983 (Live) (2023) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7A845BC8CEB9F8264CAE7BD36BF1D30982B89E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Phil Campbell and the Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:02B688D6474B635BFB45F413BDDD2476528AF676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Pulsar - Дотла (2023) [MP3|320 Kbps] <Alternative Metal, Metalcore, Female,
 ```bash
 magnet:?xt=urn:btih:DA8A4A92956C0DEE619C47B1E315EB38D61C42F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Marduk - Memento Mori (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:A3C70F12692B844ADFE082F2C1EE8B1157C21FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Quatro | Tunstall - Face To Face (2023) [FLAC|Lossless|image + .cue] <Classic Ro
 ```bash
 magnet:?xt=urn:btih:57F961E0EC8F0C716D1780CE9B22BF00A3BFE7D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Stackridge - 3 Albums (1972-1974) Remastered, Expanded Edition, 2023, Esoteric [
 ```bash
 magnet:?xt=urn:btih:A4253628D3E257492145F0BF3FA9ABCA4E59AA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Sarazen - Alchemy (2023) [MP3|320 Kbps] <Alt.Rock, Female Vocals>
 ```bash
 magnet:?xt=urn:btih:155737E315AED5281F117FB0DB6EA21F33578F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ The Spirit - Sounds from the Vortex (2017) [FLAC|Lossless|image + .cue] <Black, 
 ```bash
 magnet:?xt=urn:btih:42F18652EC64385E636591514D107AC995844CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Threnody - Threnody (1997) [WavPack|Lossless|image + .cue] <Progressive, Melodic
 ```bash
 magnet:?xt=urn:btih:2F7104C6A52058275AC74BA1FDD917C687BB4F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Jag Panzer - The Age of Mastery (1998) [FLAC|Lossless|image + .cue] <Heavy, Powe
 ```bash
 magnet:?xt=urn:btih:FF7064A81178E4EB08F5533CAD1691BE2CDBAC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Threnody - As the Heavens Fall (1993) [FLAC|Lossless|image + .cue] <Progressive,
 ```bash
 magnet:?xt=urn:btih:9940FE81132BBF48EB819F09558DA56CFDC4457A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D4830464FACB2BFD40FB8B0D404CDA973E903F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Trancemission - Back in Trance (1989) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1EBDDB077FF51EC9E19CF7661FD14DF9A32FB4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Empire State Bastard - Rivers Of Heresy (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 ```bash
 magnet:?xt=urn:btih:6C86DA9073BB7AAFBD18593A587BACAEED05B381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ Lord of Shadows - Echoes of Yore (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Do
 ```bash
 magnet:?xt=urn:btih:802C4DBCBDA67AF8467C26E6B8C64AC23BBCD61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

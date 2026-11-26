@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:7C3EBEB566ACF8D405EDC9AB8F7D625BB4B35E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ B4.  Kiss Of Life  :: 04:18Жанр: Progressive Rock, Pop RockФормат: Vin
 ```bash
 magnet:?xt=urn:btih:811080A3E51345B8E1D772D392D78B105B097C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ A4.  Ленинградский Рок-Н-Ролл (Leningradskij RockNroll)  ::
 ```bash
 magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

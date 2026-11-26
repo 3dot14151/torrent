@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5D841EAB5E0E00765560174AEBA8532BC4D240CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Camera Stream позволяет вашему смартфону или план
 ```bash
 magnet:?xt=urn:btih:0F29E0C4BAD37F55BB5C18F0510F7E7235DE4FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

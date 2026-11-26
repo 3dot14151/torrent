@@ -22,8 +22,7 @@ A4 С. Степченко - Песенка Герды ''Где Же Сказка
 ```bash
 magnet:?xt=urn:btih:24A0FBCB5E793F3264906C901880BEE5661A2C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

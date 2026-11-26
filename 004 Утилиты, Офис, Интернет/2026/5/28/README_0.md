@@ -19,8 +19,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:F80D5D651AAA6EA04497243A817C195164D9FBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Snagit предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:4862182B0E502E4F1E0EEC15F67818DBC7F2C8DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3460E5A98003CCC0C7CAE489048CE6861426C1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:4F1B44F83E58AE589EC17A725C87B97E263E82A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:7A95B113557A12B8CEEA6B76DE930CFDA5420FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ PMAS - PowerShell Multi Activation System 11 [En]
 ```bash
 magnet:?xt=urn:btih:4AA267F95520B726DD6DE298BB2985831E07ED58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DE0C9B3111B801D5824C39FBE79E1011A6FC22A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Just Manager — это многофункциональный, универса
 ```bash
 magnet:?xt=urn:btih:BB6215E13D1B8FC781F6F1E09768AC279013A380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:0002345C79EC17AB90CB03891460D18B4F0991DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:D35CEFA52ECD6487D47F6F79C8CF5981470D03E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Revo Uninstaller Pro 5.5.0 RePack & Portable by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1EF32E9FD12903D9D613F2CC199F7F29FA8AAB47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Filmex — это программа для организации домашн�
 ```bash
 magnet:?xt=urn:btih:5B5301DB5A0874DB3181D53C1905593BD23E73A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Zen Browser — это новый, ориентированный на конф�
 ```bash
 magnet:?xt=urn:btih:7557C1B0240E4CBB99A25567A45468E9DBF864E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Mullvad Browser основан на движке Firefox ESR. Содержит �
 ```bash
 magnet:?xt=urn:btih:1F2DE630401C73667FA88DDF67EEDCD221F5DEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ InstallerClean Standart / Slim 1.8.2 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:3EDB1985B581CC2BDD60CA7758B0EC08B2608842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ Opera One 132.0.5905.11 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3BBDDE7B67C96CFE41932087F4595ECD13884471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ O&O ShutUp 10 Premium 3.0.1076 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F6966B389FBED946B5431CBC596C6E6BDDFD5DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -25,8 +25,7 @@
 ```bash
 magnet:?xt=urn:btih:32D569CCF26C6BC4D16BD86D6937A13F582FBC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Spider Project Professional Demo  –  аналогичен профессион
 ```bash
 magnet:?xt=urn:btih:76A3B5AE066E65DB9C00C59AD902F6507EE595EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

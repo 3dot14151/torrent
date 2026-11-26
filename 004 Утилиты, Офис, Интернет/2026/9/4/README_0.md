@@ -19,8 +19,7 @@ OpenOffice - бесплатная альтернатива пакету офис
 ```bash
 magnet:?xt=urn:btih:A1A0D9AF73C7254FE5DACF189C8DFC9553895CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WPS Office — это офисный пакет с набором самых н�
 ```bash
 magnet:?xt=urn:btih:02F427200E80C4D2AC1C62B9835FC2908BD0FA25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ ONLYOFFICE — это офисный пакет для работы с текс�
 ```bash
 magnet:?xt=urn:btih:3BD9731DEAD9AA47314EE7A79959E4888EA1B33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Aomei Partition Assistant – программа для работы с жёст
 ```bash
 magnet:?xt=urn:btih:3488208216347561698331E36BCBEDC180D3A84B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ FreeOffice содержит полный набор офисных прилож�
 ```bash
 magnet:?xt=urn:btih:17CF9357B96E26F33ED2BFFF34E299BE732256DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:3D36705D72B517B66300ED93D9CA12362373B980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ MAX Desktop 26.30.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B141486E0A27A510EA3BE6180A475F6A52A8DCA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

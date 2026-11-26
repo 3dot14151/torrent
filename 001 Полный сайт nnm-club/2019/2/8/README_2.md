@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:38F7B3E326DE946D84E49613F0509AE4674DE5AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Lara Fabian - Papillon (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:629C6DFB84A0F72E1AE15D0451C558A4D7BD77CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95D7353C87498D2C1D291F0141E246B4D92992B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A28DFA5315F5A514165FF040D758DA7D99F0102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1592B3B19C938672AEA6EF01FA8D1EB9C0AA0424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ FACE - SLIME (2019) [MP3|320 Kbps] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:DC2D1B4AD9429F5C9067145C24B140BA92BD6DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Torch Browser - браузер на платформе Chromium с расшир�
 ```bash
 magnet:?xt=urn:btih:BA6DE3901AFA1614F55B055ECE88DAA7B31F314C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2BBEFD8C8D1BEBBF65C0E6E813A7D7C152F79A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Pet Shop Boys - Agenda (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 ```bash
 magnet:?xt=urn:btih:A889C0101D759859D056DA9285D458D5FDF05655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Animal Planet: Дом для рептилий. Террариум юрского
 ```bash
 magnet:?xt=urn:btih:DD6FED649EDCD0A754A9ECC9975926693B9BDA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Ariana Grande - thank u, next (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop
 ```bash
 magnet:?xt=urn:btih:2A8448677C845CFE762D759FDF4C14AADD754218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ WinCHM - небольшая утилита для создания файлов 
 ```bash
 magnet:?xt=urn:btih:5D0ECFFC71A25DC9AEC478384774231E75F303C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D31B2D21D8250766B3B36C73A552AE5539BCC7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8C3B841CF6CE65AA4F8B8DECA6BF4CCE2F74996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Sexy Suicide - 2018 - Techno Scar (Single)Жанр: Synthpop •Продолжи
 ```bash
 magnet:?xt=urn:btih:079B0B3F7F18758C9761F75115A7C271D3E6E671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40860EB7CE56A54C050E093D91D51178CC5E8EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ VA - Сегодня на радио хиты FM Vol.4 (2019) [MP3|320 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:11B5295EA63133C645A3CD4A5CC34D53EECC4B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC4948869B7F3753857A7180684E99DDDD72681D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8F4013E219D38F180092B354F89549C59212BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA6A4F0A54C7DF91A80B25FB4F79A247678112B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Skype — программа от Microsoft, с помощью которой в
 ```bash
 magnet:?xt=urn:btih:C35499A604427F4A493264CE0401B6D03B96CECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:176A01576051A21E4687ABA4C7F0F22DD6B2DF9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ The Stillness of the Wind (2019) [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:C9411FED0250F0F0230229E30370E364CA8D5480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CC4F00B80DF50CDEA8D978FFACFCCC09E136120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ Hekasoft PassKeeper — бесплатный менеджер паролей, к
 ```bash
 magnet:?xt=urn:btih:F284F3DD27561F6208222613C15015F922494EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ Crrow777 расскажет вам об очень многих интересн
 ```bash
 magnet:?xt=urn:btih:AF751252919049A4CAABF80A4F93838037E65131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

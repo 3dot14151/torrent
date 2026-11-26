@@ -19,8 +19,7 @@ MultiHasher - это калькулятор хэша файлов, которы�
 ```bash
 magnet:?xt=urn:btih:303FF8344C9C6132192510367AF147543D7A3565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ TaskSchedulerView - простенькая портативная (не треб
 ```bash
 magnet:?xt=urn:btih:FC498C6BD684895CAA00D74AEE6FD033B7B401B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

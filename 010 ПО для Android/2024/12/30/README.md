@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8EB8CFE2C4A4D0D035B527894DC4A83A294ADA5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ASR - это одно из лучших приложений-диктофоно�
 ```bash
 magnet:?xt=urn:btih:D7FC829EB42B90EE74EC92A8332265D9CE3A401B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

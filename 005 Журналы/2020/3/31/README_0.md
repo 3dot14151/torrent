@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3834F24677B8A12AD6770DB17993A649CF48853D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Raspberry Pi открывает невероятные возможности. �
 ```bash
 magnet:?xt=urn:btih:3B202B3A3632B6CEA7A1C878B3120BC3ABA55C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

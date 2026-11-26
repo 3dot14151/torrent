@@ -24,8 +24,7 @@ Santa Esmeralda & Leroy Gomez - Don't Let Me Be Misunderstood   (1977) [FLAC 2.0
 ```bash
 magnet:?xt=urn:btih:E18040FC3232DDA63C3F8D108D13EBCE0897CC54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

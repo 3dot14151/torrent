@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BEEA7BA166F0CB2E2E61262B769157701B9DFA09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Becky! Internet Mail - это почтовая программа с умени�
 ```bash
 magnet:?xt=urn:btih:EB1CCC952693C508711315813837B71261DF92C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:767309C15B85BD54089AF1261E1785E61CA7049B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Freemake Video Converter - бесплатная программа для быс
 ```bash
 magnet:?xt=urn:btih:E410CDE55B639DB517753F75404ED8B21F577D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Nostalgie Summer Party (2013) [MP3|320 кб/с]<Pop, Dance, Rock>
 ```bash
 magnet:?xt=urn:btih:209917ED9D62A6939FFC19D6E7297763F93D5AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF1A30BD36A0923A86CB93ED1144D671E29A406F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF0C3B66F86D7AB3993B385385297F88843848EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35AA632A5477E8D77FC386779E31E81B0DA374FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E30B2B942526D367CCA8E605D4E556F00550A818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Wise Program Uninstaller - отличный деинсталлятор, анал
 ```bash
 magnet:?xt=urn:btih:ACA036C9EA4E43BCA340ABD944FF9F442762AF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD2D17CFC02AB010B4B9BAFD1A3769B4AC66BE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF9A888888F599466D2CA97B208FDF5103E2EADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ B5. One For The Road [4:02]Жанр: Pop Rock, Classic RockПродолжите�
 ```bash
 magnet:?xt=urn:btih:D0B57DE00BF6EB660F5470A2340A8BDAE56B0FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ iDeer Blu-ray Player поддерживает все популярные вид
 ```bash
 magnet:?xt=urn:btih:1B42CFC6F58328FCB98876E1B121048A5B060EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ BlueHarvest – c помощью данной утилиты, вы можете 
 ```bash
 magnet:?xt=urn:btih:F2EDEE1BE22C0DA7600585E40AE1694BDE18D7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ RiDoc - программа, которая сканирует документы
 ```bash
 magnet:?xt=urn:btih:47AE0AF8455F688FB1FE523EF27E236B087EA783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE00C483C5829A8A941A68DCB1FD8654F19F1564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ God Is An Astronaut - Origins (2013) [FLAC|Lossless|WEB-DL]<Post Rock>
 ```bash
 magnet:?xt=urn:btih:F0C87264A79D1AD7B276ED5EC737438A39577C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F61C6740CC1B92581BC29ED24F1CAF2CCD5A9A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CE88B67279D0C1F2E868BE97B765D45A0F21474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:5C1F2262650C270C58822FAD64F03411CF82A5F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ White Lion - Anthology '83 - '89 (2006) 2CD [FLAC|Lossless]<Rock, Arena Rock, Cl
 ```bash
 magnet:?xt=urn:btih:9980A732B405112E08BCA49E32548767B5E5EFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ B5. Mistress Of Mine [5:18]Жанр: Pop Rock, Classic RockПродолжите�
 ```bash
 magnet:?xt=urn:btih:6202851FD97ED86E88A78369319A4BC387EBF9EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ VA - Баллады Для Влюблённых (2013) [MP3|256 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:3AE5D478168C9405F53DE1BFADD334553ECCDE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22193EB688A3656734EC45EC57BFCBD612B31C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

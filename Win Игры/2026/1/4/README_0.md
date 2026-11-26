@@ -19,8 +19,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.11.18.994fa78/dl
 ```bash
 magnet:?xt=urn:btih:628C93944F2ED38D86F15FBDD111A2F5336755AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Whispered Secrets 17: Poisoner's Masquerade / Нашёптанные секре�
 ```bash
 magnet:?xt=urn:btih:4BF39A634415B94C1D1B722C90FB9286A24B4510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ UltraGirl Alters (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FED87E5F2310A2BD0B7A9FA6F11CCFB2C0B5451C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vampiress: Eternal Duet - это трехмерная экшен-игра в с�
 ```bash
 magnet:?xt=urn:btih:027A3D773D5D8DCEB39B467DA20F435BC2EEB1E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Scarred (2025) [Multi] (1.25) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F76798A78BF1A8AA52A698B0B63153E7C5BE287C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Utawarerumono: ZAN (2025) [Multi] (21148349/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:82263647FC18921A4B0137528DA6CAB135138936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

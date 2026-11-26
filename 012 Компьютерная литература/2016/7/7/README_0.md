@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1D1605872D79FF02C6154CE2D84563314DB9A4F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Swift — быстрый, современный, безопасный и удо
 ```bash
 magnet:?xt=urn:btih:959BC60E0AC48460E0B3E79C7B5E151D953F4F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4506B591A08781CF260714739E6B931A267E294A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

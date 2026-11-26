@@ -19,8 +19,7 @@ Delivery INC (2023) [Ru/Multi] (1.8.3/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:383D930444D3E4B53B5C49104ADA8E6AC30D1565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dome Keeper сочетает в себе рогалик, экшен и симу�
 ```bash
 magnet:?xt=urn:btih:5787EA45F18A10F61474593FCB2AA9BE8220AEDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ We Are Football 2024 (2024) [Multi] (1.4.0.18237532) License GOG
 ```bash
 magnet:?xt=urn:btih:530852320995D0990E1382A9B6CDBDC4D6C8E085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0 HotFix 4) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:73E3BE1C28486D63643AB3F8199CA98F37003537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Trailmakers — это игра о строительстве транспорт
 ```bash
 magnet:?xt=urn:btih:47058DCE6619FACD799CA75E8F6626BA91228EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Omega Crafter (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6AF6FFECADC4A9C2F013188918C81C8AADA2FF2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Avowed (2025) [Ru/Multi] (1.4/dlc) Scene Rune [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:A6A680BDA33221CC82B53420E294A284235EBAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

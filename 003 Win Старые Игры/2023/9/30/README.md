@@ -19,8 +19,7 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:B21CC24117CBE2CB0C454A822EB75590530A99CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

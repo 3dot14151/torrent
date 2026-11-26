@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:571253D4A320F0582F450A364762056499DB2D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AR GPS Compass Map 3D Pro - 3D-компас дополненной реальн�
 ```bash
 magnet:?xt=urn:btih:67F9C68C84320CCEACC607F74F9F7311C19DFDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:948E86D29B7CC51136C83DCC5C8D81C55735C1B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

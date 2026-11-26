@@ -19,8 +19,7 @@ Best PDF Tools - это универсальное программное обе
 ```bash
 magnet:?xt=urn:btih:E660FDBBAA4166237971628C9F2CBE1983578E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PassMark WirelessMon - программа для мониторинга 802.11 W
 ```bash
 magnet:?xt=urn:btih:6AEBC12D1A90C6D8307BDA8B62D29053752BA8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

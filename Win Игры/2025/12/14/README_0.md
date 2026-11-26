@@ -19,8 +19,7 @@ Asterix & Obelix: Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack FitG
 ```bash
 magnet:?xt=urn:btih:F116F7B72114C0A45765F890F6BD1E510FB6F1B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Foolish Mortals (2025) [Multi] (0.7.5.1.11) License GOG
 ```bash
 magnet:?xt=urn:btih:614B6B8186D46D98A993365FBC65895DCFBFE054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Biped 2 – это продолжение увлекательной игры о
 ```bash
 magnet:?xt=urn:btih:276EBC90F83B232666C1F5D5D0EE5ADABD0374F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hoomanz! - это милое и забавное стелс-приключени
 ```bash
 magnet:?xt=urn:btih:BE78055E5DFF544B2CC0B76A2858CF54CA9215DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Three Kingdom: The Journey (2022) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BFC7FEA2005F13746BE04389AB5885CCE7464DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Last Case of John Morley погружает игроков в роль де�
 ```bash
 magnet:?xt=urn:btih:88544032A103ACD626CFAB8F3D476A99D3785489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Master of Command - это тактическая стратегия в реал
 ```bash
 magnet:?xt=urn:btih:3AA12C9D90191D154BE9816C3BD98EA02F4DF447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Driving Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F612ECCC54F26DD506813E3CE6DF866FE7FAA3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ ANGST - мрачная, сюжетно-ориентированная survival-�
 ```bash
 magnet:?xt=urn:btih:E17723559629516D3D5826719B01FE0C1A038450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D35B664171DA403E8CCC82C6A73DB6B3F50499CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ HELL OF FEAR Mind Breach (2025) [Ru/Multi] (161.5.1.f) Repack Other s
 ```bash
 magnet:?xt=urn:btih:133C2CB1AEB90587E55FE31089F20E4EDDB50993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Morsels (2025) [Multi] (0.28.13) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F5DD287A5091A2C82EE9A46DD94567C1D244DD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Driving Life (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:77C8AAC8ECB904023A16FDA49399D8F3EA62F09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:EED77E4DC4321A022C94020AFE993F9782C46354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ NASCAR 25 предлагает пройти сложный путь от нов�
 ```bash
 magnet:?xt=urn:btih:3D7C215BAC5D91C4C15BB4503D58A9AA5C07A095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Whiskerwood (2025) [Ru/Multi] (0.6.157.0) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:9DCE90EA43636D617CF2918594BB9D26A5CB7EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Anima Gate of Memories: 1 and 2 Remaster - ролевой экшен, боева
 ```bash
 magnet:?xt=urn:btih:0616683AA0C96DEED86422C7CD120F8356C92010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Biped 2 – это продолжение увлекательной игры о
 ```bash
 magnet:?xt=urn:btih:7E8D3C629802E68C47CAD33A8DFBC152C51A883F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Crypt of the NecroDancer – популярная и хардкорная рит
 ```bash
 magnet:?xt=urn:btih:6AFC9D796AEA94D2A6F6116829EF1E3F2E93AA6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Samurai Academy Paws of Fury (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:704D3CBDF3D83CAF13326C1003C2C88E2E80C01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack HardwareMining 
 ```bash
 magnet:?xt=urn:btih:51173CB2E22F9DCAD25526A6FE1B7116578D18E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Lance Richards - Friends (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:4ADC0A9F87E3F1221FF85E32B55ECED88ACE0C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Silverstein - Redux: The First 10 Years (2019) [FLAC|Lossless|tracks + .cue] <Ro
 ```bash
 magnet:?xt=urn:btih:8371420F0F3FCD77789D0AEB8AE55E1333842919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EF3E729B2D66FD77ECB434A882869BDD326983B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sting - My Songs (2019) Deluxe Edition [MP3|320 Kbps] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:4EB86639F9FC6BA0AE46AC2C750CB91FDCE3DE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

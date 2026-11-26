@@ -28,8 +28,7 @@ VA - Les Slows Italiens (1997) [MP3|320 кб/с]<pop>
 ```bash
 magnet:?xt=urn:btih:FC13D7951BFA2EAE5A0D278F9A4228860FABF182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56774072FAC60C058182C74BBB8A48CA29F101E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Minimal Underground vol.21 (2013) [MP3|320 кб/с]<Progressive House / Tec
 ```bash
 magnet:?xt=urn:btih:5AC1568E04F4487B0E305C74396469B0CDE07746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Minimal Underground vol.20 (2013) [MP3|320 кб/с]<Progressive House / Tec
 ```bash
 magnet:?xt=urn:btih:87E1F7EAF7D5E41616B3FE905E50BCDDD3604975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F84D540009CD9008946C3EDB9108BBEBC69CCF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Purgatory - Deathkvlt - Grand Ancient Arts (2013) [MP3|~304 кб/с]<Death Metal
 ```bash
 magnet:?xt=urn:btih:81146DD9B834569289C8AC989ACA833F95CF93A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89FFDEA99566AD262D806BDF1C052DF6DCCBE47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:432E6CD05B1FE6DD5F63B8554FB9E8E3AFC90AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ VA - Glow (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5F52D9A35AD43087419AE142B9EF2AE159715EEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48D459620A8E9252431EBCFF3B8B5B408C2C751B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ PBS: Природа – Эхо: Воспоминания о слонихе / PBS
 ```bash
 magnet:?xt=urn:btih:2CAD233A2F71EE04743416753E0B421D55EDF996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD9D564C9EA5601232FB00C5B85ED5078807B5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ OSTAFO - Неуротерроризм (2013) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:E7C240BD5572187BEE7BC701746AFA8FFCD09F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ Officium Triste - Mors Viri (2013) [MP3|320 кб/с]<Melodic Metal, Doom/Death M
 ```bash
 magnet:?xt=urn:btih:39C9C3E01325A9447BE472C8F7920B054711E3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:116DB6F3771F4F6363BFEA9814633FF4C71E529B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ VA - Deep House Selection (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:40207F83B3B7E080873B3766A9610D84FACD8676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0748F34103E89E7CD0766797117A2F0FB609B6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8F71626F00BC0C5BD5BA8C0F1D48F51FE53037C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56DF97470648CB6F0B49F95CCE7EFC2072131CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD259F7C304BB9F116ABA3DA034BB986BAB2FB2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C906997A1D7C5A1CA557DC78582C1E114E1A229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ Andrew Wyatt - Descender (2013) [MP3|320 кб/с]<Alternative/Indie Rock>
 ```bash
 magnet:?xt=urn:btih:7E81712D5AF457C372864783F18C26A9E0F848D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA824C82B370A71E54D5B8F2AA36EF73BB3534FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65086FA1DBB6A88E654979048E97C3BFE705E127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +743,7 @@ VA - Хитовая Попсовая 200-ка (2013) [MP3|128-320 кб/с]<По�
 ```bash
 magnet:?xt=urn:btih:9AC3272F81EC98271F96736A09DAC7CA533EC535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

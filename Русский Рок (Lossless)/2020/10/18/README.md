@@ -22,8 +22,7 @@ LosiKenguru - ВЫше норМЫ (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:C6B09B51996092B5C5F6F28586696E328774201C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

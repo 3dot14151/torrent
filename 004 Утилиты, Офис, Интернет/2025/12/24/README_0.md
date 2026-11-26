@@ -19,8 +19,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:7BC57F1B724DC5F492163D88FFABA87D478FCE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:33B2BD3D4585D965E290F0D8E6404225206A5CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:FEDEC30B71E475A225F59992AB864494B3E6957F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:D48E9B3B673A2EBE5FE0FA6EA4D7BAECAA5DB9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:C56EB1C966E3CE0727C28B1037B3DF10323DCFB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mullvad Browser основан на движке Firefox ESR. Содержит �
 ```bash
 magnet:?xt=urn:btih:0CC8A73906F851A8EDF15483B3FDAB05CE520AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:10DF376496497E86F983EB3C336C427887CC02A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21913D7F7A9101B8A2FDA5D9004EB172C7BAE23C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FF116374D09F964B46D3BDCED9A5A84D5FB7D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEE16D60C1DB7F739BA8D58F4BD9FD812E22DDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Artstation Masterclasses, The Gnomon Workshop, Brian Recktenwald | Designing a M
 ```bash
 magnet:?xt=urn:btih:01956DEA7469E7781C4130C77F52AB4AC65CC157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Yiihuu, WingFox | Movie CG Opening Concept Short Film: Ultrain-Ultrain (2021) PC
 ```bash
 magnet:?xt=urn:btih:C0AAE4DAFC587D8909ACD424C5F09609173AF5E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [PS4] 
 ```bash
 magnet:?xt=urn:btih:0323B6D8068776E0E010AB735DCDAFD0217889C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

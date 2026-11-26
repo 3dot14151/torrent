@@ -22,8 +22,7 @@ A4. Shooting Star (6:17)(   Читать дальше...   )Жанр: Hard Rock�
 ```bash
 magnet:?xt=urn:btih:C5DCA37F860681E62F864175C74038B3DA628726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

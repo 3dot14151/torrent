@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:CF00B63F0037EEB87093C7EBF958DD840686CE99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70F492DC02626C70056D4C952FA7E0A2D7D3793B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66ACF111DE12F9AAC66A016F0A433AD7E25D04B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7D828B26B7F47172346F3E20EC99F778A670DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1E2555AAB878D3DE5195B5CD4ADDB64E43E1C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Dolores O'Riordan - No Baggage (2009) [FLAC|tracks+.cue|Lossless]<Alternative Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F6E4E468F34300CF4FA775242500417FD4C8086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Opera Next 16.0.1196.25 Beta [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:13E66A84F85199BEF01E5D8761EB71F02F587089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Kaze no Tani no Nausicaa / Nausicaa from the Valley of the Wind / Навсика
 ```bash
 magnet:?xt=urn:btih:98E06164E3C0E5414F6D3088E74763BE836A9712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D8DD249039248B4B957878AA7886A5F7BD4574A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ SUPERAntiSpyware - профессиональная программа для с
 ```bash
 magnet:?xt=urn:btih:EF159D7BD8B3AEF726B5C8D9A0DE4607EA78088C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Acebyte Utilities Pro - это утилита представляет собо�
 ```bash
 magnet:?xt=urn:btih:D3D0F8C595A753A80026AC140F3DCB191446374D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Dota 2 The Defence Season 4 Grand Final Na'Vi vs Kaipi (2013) WEBRip [H.264/720p
 ```bash
 magnet:?xt=urn:btih:F0CABFAC729BF934ED19D73597262132B66BE7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ PDFZilla - программа, переделывающая PDF файлы в д
 ```bash
 magnet:?xt=urn:btih:DD507D8A970183EAA69054FC23E27502B93131CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Surf Anonymous Free - бесплатная утилита, анонимизир�
 ```bash
 magnet:?xt=urn:btih:7375C7613FF65171E87E7A7ADE7451B92C64E864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D48862C877A7BC8AE911048B1E2C0885852D053D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D8299DF95401D2596B9C2DABE5EF7E78A600822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Unified Color HDR Expose 3 - программное обеспечение, ко
 ```bash
 magnet:?xt=urn:btih:ACA9E76B3216C7BFAECB6C2DDD0B8156A5E16713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ Fierce Tales 2: Marcus' Memory Collector's Edition / Жестокие истор
 ```bash
 magnet:?xt=urn:btih:ABE6C5A2E5E922B8A0635C74BE32610BDA584514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10921F37F75565C20D6FC6D29D128304A6DC7F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ Playboy (Плейбой) — имя, ставшее легендой. Попул
 ```bash
 magnet:?xt=urn:btih:C24D901BF7CCDA323F14C4AEAAD5D2F3ABDE9D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Dream Theater - Live At Budokan (2011) Blu-Ray [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:DCC92EB7CE351BE40D17A92731813C7C7FED2D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3B6C7EDF69A6D54AA7629E4158992D22299B02E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Full HD AE динамичный и яркий шаблон проекта для
 ```bash
 magnet:?xt=urn:btih:B4E43806D76F64DB6DE5CD99DD609529AAF7364C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A471C883AA7D03E8B1D2BD9A1E8C3A675CB9652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ We Came As Romans - 4 Альбома (2008-2013) Дискография [FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

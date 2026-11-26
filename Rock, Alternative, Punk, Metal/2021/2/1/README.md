@@ -21,8 +21,7 @@ Oscuro Mito - Mientras las Nubes Ciegan la Luna... (2015) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:3B521FCD45BA7A34FC0B56E1EC115EE71AAB4D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Pungent Stench - First Recordings (2018) [FLAC|Lossless|image + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:58B0CE06AA2ADA05529538786F5C72EEC763B48C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Midnight - Rebirth By Blasphemy (2020) [FLAC|Lossless|tracks + .cue] <Blackened 
 ```bash
 magnet:?xt=urn:btih:21F44D056E066047C59FC32F2B3E9881852D89BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Mordred - Volition (2020) EP [FLAC|Lossless|image + .cue] <Thrash Metal, Funk>
 ```bash
 magnet:?xt=urn:btih:81FE316474781D533C983D1727E4C2759C986694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Voivod - Lost Machine: Live (2020) Jараnеsе Еditiоn [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:7B0F53999534E8EF36A439ED18B91C58D375FF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ From The Sky - From The Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Cla
 ```bash
 magnet:?xt=urn:btih:6BEE467E7BD732C2EF88A09810DDCCD0DD20A20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Storm Seeker - Guns Don't Cry (2021) [FLAC|Lossless|image + .cue] <Folk Metal, P
 ```bash
 magnet:?xt=urn:btih:40B0A1A76B4D0F1371CE084169611F1F1C649F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Syrinx Call - Mirrorneuron (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:98AEEF3A587FB10A105FC1D48C33ADF4019E04C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F193ABC29E42E92416EF21A38F457F7633E4BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - 70's Rock Classics (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:05DE8367B580F006DFA515F6E551109A7D1557F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

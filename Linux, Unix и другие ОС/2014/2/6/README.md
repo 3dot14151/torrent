@@ -21,8 +21,7 @@ Jondo Live-CD / DVD предлагает безопасные, предвари�
 ```bash
 magnet:?xt=urn:btih:65A5EF2A5430439CB1A262FB8E242302C3BB424E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

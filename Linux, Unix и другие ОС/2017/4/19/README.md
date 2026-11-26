@@ -21,8 +21,7 @@ OPNSense 17.1.4-OpenSSL [i386, amd64] 2xCD, 6xIMG
 ```bash
 magnet:?xt=urn:btih:289FFEDEACCB909DFF32D1776AEB219AA4219D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

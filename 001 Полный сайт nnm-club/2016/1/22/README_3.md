@@ -21,8 +21,7 @@ Pandora - This Could Be Heaven (1997) [APE|Lossless|image+.cue] <Euro House>
 ```bash
 magnet:?xt=urn:btih:01FC1CC713408ED8CAA6F35A64DD376E93AD6F51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:041115B618EE6954AF079EC1A1A8A5B7C9315000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ handyPrint (ранее AirPrint Activator) - приложение, котор�
 ```bash
 magnet:?xt=urn:btih:C382FE9BE778D2832151309400429788A814D6C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFEE23729CE51F9A41EE1738A9FF2F272967E73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73D6577369D1E9E09119C96EEF634CA8AD39FEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Planetarium: Meditative Party (2016) [MP3|320 кб/с] <Chillout, Longe, Re
 ```bash
 magnet:?xt=urn:btih:8335578D7B91C09427308BEAFCC470ABE5912EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:975B4C9C2B730CD854185AB092E67B85EF5A932E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5634991F8F997473663B8341440FCAA716470DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ PhoneRescue - полезное приложение для восстановл�
 ```bash
 magnet:?xt=urn:btih:C8DB7847AB166CEA50EC08E56A42DDDD525C4F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C6BE47ACC2FC99269560C377A98F41A7E6252D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ VA - Best Of Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:6B55E49AB84837BF6519982131FD4FC7630D5C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ AVG AntiVirus 2016 предлагает защиту от самых сложн�
 ```bash
 magnet:?xt=urn:btih:7C6FD95F4AD60A701BB55AC0FC252FBEBE0FB497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Windows, по умолчанию, позволяет программам пол
 ```bash
 magnet:?xt=urn:btih:F28BC5AFAE38DD90D6498C0B4226993F64724B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:261B0D10B0F553E2B16BF8E0137F9B6CD76F9F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ VA - We Be Jamming-Reggae Superstars (2016) [MP3|320 кб/с] <Reggae>
 ```bash
 magnet:?xt=urn:btih:1DF02C6CD85AF39A2AC539AFCB302276E0443B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:847ABCA0A03D81F99CCA87F0B34B17423FEDC6BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B01EBE63A6204741D211BCA17A9337913E86AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ VA - Старая пластинка: Ритм-н-Блюз (2013) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:6319AA1736F01AF66E56317A2B46800CCC353C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C32E6A3F0A140B76DB8E7747F65AE242FE927C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ Scorpions - Love At First Sting (1984) 24K Gold, Remastered, 2012, Audio Fidelit
 ```bash
 magnet:?xt=urn:btih:420ABD0124C24740C83415C00638C27F230BB956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C990141AE3646A9D4FC06C1F57588142896E587F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ MainStage 3 позволит вам взять Mac с собой на сцену
 ```bash
 magnet:?xt=urn:btih:D6410EB4AD9C93B5E93EA68F954BC7032B5F6B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E013E4DCE8BB7F199F5CD57384E0ABBC78E9D2B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ Soft Organizer 5.03 RePacK by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:099F6F00AFCFCB779722DF7EB29B768CEFC2D33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F878D9EE628F6E3C69124AC9C6ECF97792A51F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:064D82F91DC10469F0E5D348DA17F9C0EEB58DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

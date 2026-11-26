@@ -19,8 +19,7 @@ ASUS Armoury Crate — это программная утилита, предн�
 ```bash
 magnet:?xt=urn:btih:EDA6C684D1C940B5FEDC5895B152E6807DDBA7CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

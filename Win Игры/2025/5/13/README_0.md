@@ -19,8 +19,7 @@ Empyreal - сложная и динамичная ролевая игра. Од�
 ```bash
 magnet:?xt=urn:btih:B8FBE00D9BCE60D048223CA3CC59D3F54764B9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Karma: The Dark World - это кинематографичный психоло
 ```bash
 magnet:?xt=urn:btih:32966A7614AB5F57216C72D6D8428C8D5E92494C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56442/dlc) Repack Decepticon [Del
 ```bash
 magnet:?xt=urn:btih:973692383D17DC1E117F551F4197D0716991693F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dakar Desert Rally — это самые масштабные и безумны�
 ```bash
 magnet:?xt=urn:btih:0F61042A84D85CF6A2048D6152046831EC96B58F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Shredders (2022) [Ru/Multi] (13234/dlc) Repack Let'sРlay [540INDY Edition]
 ```bash
 magnet:?xt=urn:btih:00F7E1F4C37082B2635A0974DCF9C50970D103F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

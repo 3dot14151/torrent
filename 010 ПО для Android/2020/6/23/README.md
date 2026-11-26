@@ -19,8 +19,7 @@ Global Equalizer & Bass Booster Pro позволит вам улучшить к�
 ```bash
 magnet:?xt=urn:btih:902A49392A7F1EE4B77C8B0E467055765DE6334E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

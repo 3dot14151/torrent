@@ -22,8 +22,7 @@ Sean Feucht - Key of David (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Christian Pop 
 ```bash
 magnet:?xt=urn:btih:C2720DFA15F96C5E845BAA069FDC40A45E3F43BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wind Rose - Warfront (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Folk Power Metal>
 ```bash
 magnet:?xt=urn:btih:4C1098C593895912957F0861DB810A52BF35D4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dirt - Deadbeat (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:38C0A84CF54643BA8B04BF0A462C5786D568F230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Keys - Keys (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard, Prog Rock>
 ```bash
 magnet:?xt=urn:btih:383FD49ABB420DFBF033A77B75264550216923E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dead Register - Alive (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Gothic R
 ```bash
 magnet:?xt=urn:btih:5670983F17E33F6B3991CEDA9EFE5964EB4679DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Nekonomicon - Nekonomicon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nintendocore, Me
 ```bash
 magnet:?xt=urn:btih:D843C9E786ED60363B4107F8F4321E0FA0EC57DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ronni Le Tekro - Bigfoot TV (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A558E22C60BB100A9E3B0FE129AB8AC31087171E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The 69 Eyes - Wrap Your Troubles in Dreams (1997) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:6FEAD32EAC1D6813A1636B8BB9DEB91C8FDEB365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

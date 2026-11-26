@@ -22,8 +22,7 @@ Dysmorfectomy - Disembodied Anomalies (2018) [WavPack|Lossless|image + .cue] <Br
 ```bash
 magnet:?xt=urn:btih:893B6CE54E7550A77D247F4030F2E95EA1D0C2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dinosaur Jr. - Live In The Middle East (2021) [FLAC|Lossless|WEB-DL|tracks] <Alt
 ```bash
 magnet:?xt=urn:btih:7EFC47D89E92FF9B36DE8502CE66ECD574582B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Whale Fall - It Will Become Itself (2020) [FLAC|Lossless|Web-DL|tracks] <Post Ro
 ```bash
 magnet:?xt=urn:btih:4FC2F417353DFA8865511257246163238C310E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ruins of Elysium - Amphitrite: Ancient Sanctuary in the Sea (2021) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:7B157589445AE91855C00E5998A744511243C300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Miss Lava - Doom Machine (2021) [MP3|320 Kbps] <Hard Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:334E1DF02358A36D3B873ED4EE7C363EC54DBA50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The London Symphony Orchestra - Symphonic Rock - American Classics (1997) [FLAC|
 ```bash
 magnet:?xt=urn:btih:AB368081BC0F2A4E8D79168B2B0CB27250710B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ John Diva & The Rockets Of Love - American Amadeus (2021) [MP3|320 Kbps] <Hard R
 ```bash
 magnet:?xt=urn:btih:9D154579CEB1D22F34C475BE05DCC8F48FABF3D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ OzNor - Sea of Stars (2021) [MP3|320 Kbps] <Heavy Metal, Shred, Instrumental>
 ```bash
 magnet:?xt=urn:btih:645588FC67375C9F84670DE01541BAE63C3D6370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Mass Madness - Innerbeast (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:2C26CFD685FEBEE13EFC25C04F5CD962C6EE70EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Planetariet - Deluxe (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock>
 ```bash
 magnet:?xt=urn:btih:FEA0478BEB202B1E706D3F0EB4C91A56F0462990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Lost Sacrament - Praesidio in Animo (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:515AC0A40D1FE7616A95431CA0C852DAFFC21A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Fireforce - Rage of War (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power
 ```bash
 magnet:?xt=urn:btih:9053158FF003B0792D736E2D6459346DC9507094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Perfect Storm - No Air (2021) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:FBF78AA555C628D1B3FB77BD71DA1A79B4CCE4BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

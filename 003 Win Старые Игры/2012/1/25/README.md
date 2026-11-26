@@ -19,8 +19,7 @@ Transformers: The Game [Ru] (RePack) 2007 | R.G. T-G
 ```bash
 magnet:?xt=urn:btih:582E455BA63F856F865DE0CEF74EAC3176408C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Armed and Dangerous [Ru] (P) 2003
 ```bash
 magnet:?xt=urn:btih:9DAEA468B241052D96CFBD97BD7A4C9743E0B828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Myth 2: Soulblighter [Ru] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:0888C33A0090F79F91A4AA0A812DA7D97E74254F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

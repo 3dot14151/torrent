@@ -19,8 +19,7 @@ Tower - мощный и элегантный Git клиент для Mac
 ```bash
 magnet:?xt=urn:btih:EB09E0595C03E9C0438BDE87379C60829A80BCEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C05C8731FAF85F5F5305750AB2D0F8BDBAB04270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Existance - Wolf Attack (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C236591A903271E1149046DFD3C5D9993F4F44A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Memoria Avenue - Memoria Avenue (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ro
 ```bash
 magnet:?xt=urn:btih:138700E917FC504FC32295231B52B976042F181D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9F3D4FB992127B3347A313DCEAE3CD8B66D6F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6186098C1B604EBA4979E8CE8F316560E32854B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ t.A.T.u. - 200 KM/H In The Wrong Lane (10th Anniversary Edition) (2012) [AAC|~33
 ```bash
 magnet:?xt=urn:btih:93A3780A80D7F0F349E458369F88C27A5EB3105F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ AIR - 10 000 Hz Legend (2021) [AAC|~343 Kbps] <Leftfield, Downtempo, Experimenta
 ```bash
 magnet:?xt=urn:btih:7F54BA9121074FE08BC4115F4DF54677B2D6D3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ HitPaw Watermark Remover 1.2.1 fix [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D53D8540E1B8F35F6A3ECEBB555A5BBCE7441E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:50F0C4FE5C46422EED4A6FDBC59070ACE84004DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Progressive Downloader — теперь уже платный менеджер �
 ```bash
 magnet:?xt=urn:btih:7CD06FFDED9062373C6BD067762C0B07B6B01043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ RAW Power 3.4 [En]
 ```bash
 magnet:?xt=urn:btih:2945177529BE403AA2D4D764C7C561BF7FDA5DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ The Digital Blonde - N3ON (2021) [MP3|320 Kbps] <Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:1540F2359FAA8302C528C2A587951FF55618DCA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Nik Kershaw - The Works (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:B4219C17C4441EF350106B2D1011E01D51035626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ The Dark Horde - The Calling (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:08094090B2DDAF8176F75AF50EDA484ED8360A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Wraith - Danger Calling (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:D1E5A23731E90F75DC46C3AE937F816FB37E3146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ BurnAware Free - бесплатная и простая в использова�
 ```bash
 magnet:?xt=urn:btih:A3C11240390123DEBEC6546E5F23CCDB1795D42E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3466F7EC38741585FC5EE899F64B8C8D4EA3AD77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4FCBD98C2B379F8428139C38C893846A1C1E205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:663AC25D0ED1CD8FA909692615F63E08FD26D8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ t.A.T.u. - 200 по встречной (2002) [AAC|~338 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F821F23089260E02C300B2F829A9A84DF26ED1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Procol Harum - Conquistador (1991) [FLAC|Lossless|image + .cue]<Progressive Rock
 ```bash
 magnet:?xt=urn:btih:D1C2D39F92CEB8A42F006AE045C5F9DB137B6C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78FCD289D15849337D923E13150B16CBEC8594F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ Slimjet 32.0.3.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:71AE9713883F549FA6D42F8D416BDBBC85D8EE99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:A5D2BAA128E5EF4D970638A0EC76201BD50218AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

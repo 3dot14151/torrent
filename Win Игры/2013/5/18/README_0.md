@@ -19,8 +19,7 @@ Family Tales: The Sisters (2013) [En] RePack Dizzery
 ```bash
 magnet:?xt=urn:btih:489543580B4A187F9DB920850265BDC67D7AA00E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Family Tales: The Sisters / Семейные истории: Близнецы (2
 ```bash
 magnet:?xt=urn:btih:E4749594CC2982BE8B0DE8D3E26E1AF7B008F591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Football Manager продолжает развиваться и покорять
 ```bash
 magnet:?xt=urn:btih:EB82D3804317627BB50AADCA61F818D50897E808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Torchlight 2 (2012) [Ru/En] (1.25.5.2) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:9E9C8A0880C7167DD8ECAD3EF82EA0A3DCAC7782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] (1.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

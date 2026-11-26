@@ -19,8 +19,7 @@ Tipard PDF to Word Converter - это простой и быстрый спос�
 ```bash
 magnet:?xt=urn:btih:DB2750ECDA522602A0627BA58C1E7A51327A947C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

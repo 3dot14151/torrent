@@ -28,8 +28,7 @@ Amongst The Thorns - The Rebirthing (2014) [MP3|320 кб/с]<Progressive Death M
 ```bash
 magnet:?xt=urn:btih:33C7F3543507BB3288DEFF9C923D9DB02A68B5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Artist Portraits: 01 Roald Velden (2014) [MP3|320 кб/с]<Progressive Hous
 ```bash
 magnet:?xt=urn:btih:0E8EF3A1C075035834E4007DF499C9F3D5BD0E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Chariot - Demons And Angels (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:792E49A2EA8AE1694B056831CDDA9EC0044BDC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Basement Jaxx - Junto (2014) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:6788F2C85C494B6BAF7C49E98CBD599B2F9B2A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ VA - Deep & Dark Dubstep Vol.3 (2014) [MP3|320 кб/с]<Deep Dubstep, Dark Dubst
 ```bash
 magnet:?xt=urn:btih:85795149282BC6B178DF8B9543A6271326CF19D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ VA - Bass for Autism Vol. 1 (2014) [MP3|320 кб/с]<Glitch Hop, Brostep, French
 ```bash
 magnet:?xt=urn:btih:589F076C0B1EC7562D01F2152C75B78478C8B098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ The Order Of Israfel - Wisdom (2014) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:D4CC355C45DC93DFD69695DC7F25582D0F498C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C8B37576116D0C52CCEC6F09F21FB98736C7A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A7260A06F6C8ECCAE41FC3C4B23D8E9682B4888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ VA - Ibiza Chill House Conditions (65 Deep House and Nu-Lounge Selection) (2014)
 ```bash
 magnet:?xt=urn:btih:EFF00E2292A7F0A7C347359642EE6361AD53EC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC3FE3FDA66B88A7AB5099B6394E183F5D20FBEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EB7529CD3261E9A43A48EF38C93FB28D3BDF4A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +394,7 @@ Dark Fortress - Venereal Dawn (2014) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:367B8C60FFD58517C2B3268FAFBE3F859425446A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +428,7 @@ VA - Body Music: Nu Disco Choices, Vol.3 (2014) [MP3|320 кб/с]<Disco, Nu-Disc
 ```bash
 magnet:?xt=urn:btih:0C3CBE4DB91685DC10B62C359BCA78701D456187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +462,7 @@ VA - The United States Of Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:1E41B5665E732F14F6D588A1E62BD3E06401B4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91327D3646E33D77967733B097BE2E0CB705515E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E68D4A0D93572E8CDACF5EDF2F2571E01C253AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +546,7 @@ By The Sea - Endless Days, Crystal Sky (2014) [MP3|320 кб/с]<Indie Pop, Dream
 ```bash
 magnet:?xt=urn:btih:B73826B6F45E9BE352D57DE0AF707663103FD85D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +580,7 @@ Troldhaugen - Obzkure Anekdotez For Maniakal Massez (2014) [MP3|320 кб/с]<Fol
 ```bash
 magnet:?xt=urn:btih:F136A4D572F213A2F0528C3446ED919B10330E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3FDCFB4BFB442B60A902DE7A49A6766D07B876C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12D49E7F499929F4DB3B9F34830614C5EE3E2E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +659,7 @@ Blood God - Blood Is My Trademark (2014) [MP3|320 кб/с]<Hard Rock, Heavy Meta
 ```bash
 magnet:?xt=urn:btih:BA6B4DF778A7DB4EE6EEE8986DFE32C8F95E5BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +692,7 @@ Kyoto - Discography 3 Releases (2009-2014) [MP3|320 кб/с]<Ambient, Psychill, 
 ```bash
 magnet:?xt=urn:btih:71B7DE5AE7C6457F7F0B597CE6DA1AB80CA01424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +726,7 @@ Deadly Dive - Snakebyte (2014) [MP3|320 кб/с]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:CD9B9E2AE3C2E50D7488F51C17FE81CD11534E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -782,8 +758,7 @@ Totorro - Home Alone (2014) [MP3|320 кб/с]<Post Rock, Post Metal, Math Rock, 
 ```bash
 magnet:?xt=urn:btih:BEC19402A9DC558C1F072125D9FF250FF99075D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -808,8 +783,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:840611F688F038D591580E03CEF7771342BF1E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

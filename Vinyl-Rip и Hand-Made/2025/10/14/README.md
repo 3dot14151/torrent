@@ -22,8 +22,7 @@ Trivium — американская метал-группа из Орландо
 ```bash
 magnet:?xt=urn:btih:7D819840B377D25E8AE4BEE79E81291FAF4DDEE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

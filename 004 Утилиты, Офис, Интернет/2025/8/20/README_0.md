@@ -19,8 +19,7 @@ Torrent File Editor 1.0.0 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8AE035C0D107AF84BA00C4D6B37FB5E2C732803A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:BA9FF37EF151B7E58EA164787F1065DCF4A0198F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:54DDA235B390E65CE9A51681F442E1C7DB16B56C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:B2578BEEDCF7D6DCF9A53D729A83DD0258073D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ doPDF — программа для преобразования докумен�
 ```bash
 magnet:?xt=urn:btih:D6588E01EDE65E50EE5DA9A9C9E91958345B6D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

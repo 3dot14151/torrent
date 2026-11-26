@@ -19,8 +19,7 @@ SMS Backup & Restore — утилита для создания резервны
 ```bash
 magnet:?xt=urn:btih:19116B82E5EB3C9E971FAD4D3FA893334D2D612A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

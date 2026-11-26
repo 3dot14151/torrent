@@ -22,8 +22,7 @@ Nocturnal Rites - Shadowland (2002) Japan [FLAC|Lossless|image + .cue] <Power Me
 ```bash
 magnet:?xt=urn:btih:42F535A5E785628647667486DDFEE8476A514D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jerry Harrison - Casual Gods (1988) [FLAC|Lossless|image + .cue] <Indie, Post-Ro
 ```bash
 magnet:?xt=urn:btih:F5850007DF0C85A415DF03F5C9D3D33A069527EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Imperial Age - Warrior Race (2016) Japan [FLAC|Lossless|image + .cue] <Symphonic
 ```bash
 magnet:?xt=urn:btih:249C3EB2068973FCC868A6CFA01D1DFF94A99A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Erra - Neon (2018) [MP3|320 Kbps] <Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:25CF113A7553A065B63D2A88D77A927266F4C9B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Radio Tapok - Потрошитель (2018) Single [MP3|320 Kbps] <Metal, Rock>
 ```bash
 magnet:?xt=urn:btih:AF57BAED0A55D5AD079A063AC6B098985AE1CA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Primal Fear - Apocalypse (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BAA2E038E79B182AC341C5B323CD6A5D6E7FDF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Electric Light Orchestra - Secret Messages (1983/2018) [FLAC|24/192|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:8C18F037B9FECD94EED47D4140A87AF7E577C20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Binary Domain: Limited Edition (Steam-Rip) {1.0} [En] (2012)
 ```bash
 magnet:?xt=urn:btih:EA5AF4D51918CF9946D241F82E0810AA247E4B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Risen 2: Dark Waters строится вокруг пиратской темат
 ```bash
 magnet:?xt=urn:btih:A4818FC48EB3B5EF778B75E8F0D9C3B4D99AB957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Skydrift – аркадная гоночная игра, действие кот
 ```bash
 magnet:?xt=urn:btih:ED4FE4967CB43A8159570DEEFD5A315CC4228B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Fireburst – зажигательная гоночная игра, в кото�
 ```bash
 magnet:?xt=urn:btih:F89105270EBE329959CB1FE01C6708B64D7EB013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

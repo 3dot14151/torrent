@@ -20,8 +20,7 @@ DiskCatalogMaker  - Простая утилита для управления и
 ```bash
 magnet:?xt=urn:btih:4611875D42201F6143A66C317516FBD56DAD7BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Ken Peplowski - Last Swing Of The Century (1999) Concord Jazz [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:1AF6B724279C476EBF27D83DA9C7DE360AC108CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Tidy Up - приложение предназначено для поиска д
 ```bash
 magnet:?xt=urn:btih:74D18567B258BB5B042E1A75F6B26D1A1FBEA838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ TurboMosaic — программа, позволяющая легко и быс�
 ```bash
 magnet:?xt=urn:btih:2E70DBFBE7F1201314F9FD953768B759716F55E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:2DA46B60D5D8FEFB2B0958640C2DB891135D5CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:6F4B8FBA0DE60302FB11C5E0A00C784383938B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ DupeZap (бывший DupeZap Plus) - Утилита, позволяющая и�
 ```bash
 magnet:?xt=urn:btih:E27FC03025DCFEB087F0438C40075097FD19C266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ iTubeDownloader 6 v6.5.7 [En]
 ```bash
 magnet:?xt=urn:btih:391049A74C784D4DA598D98C7B17C155D8CA0491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Onaje Allan Gumbs - Dare To Dream (1991) [FLAC|Lossless|image + .cue] <Smooth Ja
 ```bash
 magnet:?xt=urn:btih:A86CE982B5DB95E23A345B9E6A776F25CBEEAEB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Vectoraster - программа для создания векторной гр
 ```bash
 magnet:?xt=urn:btih:5E492B862FF72BAD5D4A2C5C6D7C0AA34DEB7193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ PrefEdit - уникальное приложение для просмотра �
 ```bash
 magnet:?xt=urn:btih:480E39D811E08E3DD1F4CC54EC0CF5DE62D31E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ SILKYPIX Developer Studio Pro — мощная программа, котора�
 ```bash
 magnet:?xt=urn:btih:87AB9662351843D125BADDBC57BFC85B7F1EFBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ JixiPix переносит винтаж в совершенно новый эк�
 ```bash
 magnet:?xt=urn:btih:5F766E044765286024417165D6F8074BDB4D683A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Geekbench 5 предлагает обновленный интерфейс и р
 ```bash
 magnet:?xt=urn:btih:C24F416B2AB5406CAF3E3F6633365161C35D9DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ VA - Nothing But... Amsterdam Dance Essentials 2019 - Trance (2019) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:A38983A26B6D8E7E9DA520FF5790CFD00150FC72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ The Presidents of the United States of America - These Are the Good Times People
 ```bash
 magnet:?xt=urn:btih:C390A3FC60FB13794BB4399E56EAD4122A15B67F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ The Presidents of the United States of America - Love Everybody (2004) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:AFA92F31C9C3510750348553361FA564D0E169A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ System Monitor - это приложение для панели меню macOS,
 ```bash
 magnet:?xt=urn:btih:E02B7C9C414DF946B3FAA6CE5DBBCFC0AC231F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ Adguard — это лучший способ избавиться от разд�
 ```bash
 magnet:?xt=urn:btih:1209E0F88CE0D3D19AD886A7C594CBA2FFEB1EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Grids for Instagram - простая и удобная программа име
 ```bash
 magnet:?xt=urn:btih:E40FEB2952A8CF49C771D4EDE921FCAF3F78CAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Banktivity (прежнее название iBank) - это серьезное �
 ```bash
 magnet:?xt=urn:btih:E77AEECF95BD3A3227B55D7300214744A9EF8FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ SecuritySpy работает с широким спектром камер чт�
 ```bash
 magnet:?xt=urn:btih:D307341E4FC496F58B7B506A0F9C168CB5507D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ JPEG SILKYPIX Photography 9E v9.2.14
 ```bash
 magnet:?xt=urn:btih:109CBF70EA08AD7756A7BE60688DFB5865D1828B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ Audio Hijack - отличное решение для аудио записи н
 ```bash
 magnet:?xt=urn:btih:2D4B1691B73ED219C9FB78263716B2149D8C5361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ Radiocamp - программа для прослушивания интерне�
 ```bash
 magnet:?xt=urn:btih:17F5E50A2E8B6A7DF59AC2DD43E6BB145616BAD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ The Presidents of the United States of America - The Presidents of the United St
 ```bash
 magnet:?xt=urn:btih:ADCB72BEA6ACC21F55B5E7E33DD8063A82F03C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

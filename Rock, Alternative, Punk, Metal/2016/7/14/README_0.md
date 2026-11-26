@@ -22,8 +22,7 @@ Kissin' Dynamite - Addicted To Metal (2010) [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:88120EFB00961051DF1AD25DD1E43E9C6AA99433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Lizards - Reptilicus Maximus (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3527D1BECAB45C285FFC26425E59C5D00B38583B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tinsley Ellis - Red Clay Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:BDB1F609EA4B8D576FBD2B62FC4DC5B5092FF1CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Adrenaline Mob - Men Of Honor (2014) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:30D8B35883C8E5CCB3004D999D85CA2F7ABB8D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Third World War - Third World War 2 (1973) 2001, TW Records [MP3|320 Kbps] <Hard
 ```bash
 magnet:?xt=urn:btih:B128984139F6CEF1C8844882DB61C7F87BD63441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Third World War - Third World War (1971) 2001, TW Records [MP3|320 Kbps] <Hard R
 ```bash
 magnet:?xt=urn:btih:1F988F982D36DF2276BCFA1329EB9E629446E614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Erika - Deaf Dumb & Blonde (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy
 ```bash
 magnet:?xt=urn:btih:4A045EDB24DD5CBD77A46D1D288341C2CB9596FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Elvis Presley - From Nashville To Memphis - The Essential 60's Masters I vol.2, 
 ```bash
 magnet:?xt=urn:btih:B8902E79E22073F61C92AC6E89E3B380B5318F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Good Charlotte - Youth Authority (2016) [MP3|320 Kbps] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:F43DE8AD69E3EAF247CD3EECE6E0E8C7247BCC68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

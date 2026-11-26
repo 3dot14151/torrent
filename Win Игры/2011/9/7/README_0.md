@@ -19,8 +19,7 @@ The Timebuilders: Pyramid Rising (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:4F9F7FDFAE57847CBEC73419BEDC52846ED49820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Secrets of Arcelia Island / Секреты острова Арселия (P)
 ```bash
 magnet:?xt=urn:btih:F7A46141B770A5EECA83B575E6E0C711EB3C2114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Age: The Dark Priests / Тайны веков: Жрецы тьмы (P) [
 ```bash
 magnet:?xt=urn:btih:911489B800084197E3E31729E6D371A404882998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tales of Monkey Island - это пятая часть знаменитой са�
 ```bash
 magnet:?xt=urn:btih:E572219050962B24228614BCFED92C102DC0596E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ HdO Adventure: Aladdin and the Enchanted Lamp. Extended Edition / Алладин
 ```bash
 magnet:?xt=urn:btih:3B3E8A851E2A4A054B429F8592C489CCF1F177B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

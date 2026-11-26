@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:20379596F13393DD41726E72845FC6C8DA345736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Röyksopp (Royksopp) - Running To The Sea (feat. Susanne Sundfør) (2013) [FLAC|
 ```bash
 magnet:?xt=urn:btih:029791898444B57908BB3FE5C81A5A68CA54C441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFBADFD5B4EB22FA26F29B805E32949297093C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11ACF781987776641C51CE45A051836E49A84B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Simply Red - Original Album Series (2011) 5 CD Box Set [FLAC|Lossless]<Pop, Rock
 ```bash
 magnet:?xt=urn:btih:9F166F0D3A77605B0338BEC48D6BC34786E18272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F7B2871EE4EB5CB53D2DD5A50FF807F71F6F48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B36C5B27AD48F5B69EEDF03525BC8D1BD553067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3796CCEE4504F01BB3CDB74D88859DF130DE1F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ The Doors - Remixed And Ready (2007) [FLAC|Lossless]<Electronic, Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ Linux Format - первый в России ежемесячный журнал 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ Hidden Files: Echoes of JFK (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:ADF9A583A60BE054FEA45BDB8839837621113F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FA4B455B996B9EA90564AE6E947AED076CB5E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB9BD0B302875F18812744B6249822240E0B5D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82D2941649EAF8C6B724CA30EA1509C973B34A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ Opera работает на новом веб-движке Blink и JavaScript-�
 ```bash
 magnet:?xt=urn:btih:849C1023B0FE4B2368A03E6185B8B97388386989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ Brian Tyler - Assassin's Creed IV: Black Flag (2013) [FLAC|Lossless]<Score>
 ```bash
 magnet:?xt=urn:btih:EC022EC3C06D566F5FEE5DF7A882C458DFE891AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ Unchecky - небольшая бесплатная утилита, котора�
 ```bash
 magnet:?xt=urn:btih:340D77B00EFD0E9C1852B24684EE470619FDED99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ MOV to AVI MPEG WMV Converter - является программой для к�
 ```bash
 magnet:?xt=urn:btih:F9F4D6B5916EC19A3D52E143AE26B4B8518D6A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:676FFE0C836651ABAC79532999D34FCFC5D5762D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ Yves Montand - Master Serie (1991) [FLAC|Lossless]<Chanson>
 ```bash
 magnet:?xt=urn:btih:D2A173718E9149E219C59FF2BAA6392499F319D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C222440F891CA265DF9E3E3F1D7ABDABB1B79B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ Salvatore Adamo - Best Selection (1986) [FLAC|Lossless]<Chanson>
 ```bash
 magnet:?xt=urn:btih:D04D7993C27E93D738CA48378F80877604F1D47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FA8649F3E7205E3A6E49E19F36D2414B17934BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ VA - Коллекция из серии: Настроение шансон 33 CD
 ```bash
 magnet:?xt=urn:btih:480FA53644C29ACEF522A08F4E5A03C5CFC66C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0696DF0DEA6A7BE126D7DD0C67D30E46FBBBB53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ Aretha Franklin - Original Album Classics & Series (2009, 2010) 3 Box Sets, 13 A
 ```bash
 magnet:?xt=urn:btih:DA306A54849EF8972812737532EA6B2D71A1A785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ASUS Backtracker 3.0.9 [En]
 ```bash
 magnet:?xt=urn:btih:A001F291ED549CADCBB7AD489370812BD685E406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

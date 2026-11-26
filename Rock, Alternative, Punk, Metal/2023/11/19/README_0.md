@@ -22,8 +22,7 @@ Darkness Ablaze - It All Shall Burn (2023) [MP3|320 Kbps] <Melodic Death, Black 
 ```bash
 magnet:?xt=urn:btih:44FC637F3C6357E8E6295EFE0086A41F66FDDC56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Asia - Live at the Teatro Colegiales, Buenos Aires, Argentina, 2011 (2023) [FLAC
 ```bash
 magnet:?xt=urn:btih:0E5B3A5C200C6DF7CACB533941425CC386DC8DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nightwolf - The Cult of the Wolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:7FBABA5DA171378DC60465AF927EA9C2CF0D5F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Disc 3: Live In Hollywood, California, Hollywood Palladium – March 23, 1973(  
 ```bash
 magnet:?xt=urn:btih:6869F66A162C8EDD313A446972FDFB6C2D4D2C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Oomph! - Richter und Henker (2023) [FLAC|Lossless|image + .cue] <Industrial Meta
 ```bash
 magnet:?xt=urn:btih:C261FE5F572AC9CCBF871B88EECCA919EC013C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ This Dying Hour - Longest Memory From The Shortest Life (2007) Delux Edition, 20
 ```bash
 magnet:?xt=urn:btih:6B7B5D08BE81A2505095CC7B2A657EEA85306676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Disc 3: Live In Hollywood, California, Hollywood Palladium – March 23, 1973(  
 ```bash
 magnet:?xt=urn:btih:37DA0362A3B5681C83FAD4A3F3D36987086EC3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:7F241ED71FE8F4A2956DA3D9D8D1A32EA766B5E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Jack - Tribute to ACDC (2023) Live [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1047375741803CA4DA0FF969A960D3484857DBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

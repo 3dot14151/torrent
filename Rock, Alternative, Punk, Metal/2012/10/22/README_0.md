@@ -28,8 +28,7 @@ Razorwyre - Another Dimension (2012) [WavPack|Lossless]<Heavy Metal/Speed Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Part A: Original "Traces Of Sadness" (2004 album) ---
 ```bash
 magnet:?xt=urn:btih:822A6FF94C6A9E0201461CE23AF926D648DAB95E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Sylosis - Monolith (2012) [FLAC|Lossless]<Melodic Death Metal/Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ The Sword - Apocryphon (2012) [FLAC|Lossless]<Heavy Metal/Stoner Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Parkway Drive - Atlas (2012) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:34FE73BC30F72451858D706B788900138CFB1026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Moody Blues - Collected [3 CD] (2007) [MP3|320 кб/с]<Progressive Rock | Psych
 ```bash
 magnet:?xt=urn:btih:3A5ADBDB15DE86FE0368ABCE5897D3B5B5ACC913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Ten - 12 альбомов + 4 EP (2005-2012) Japan Edition [FLAC|Lossless]<Hard 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Ozzy Osbourne - 10 Studio albums + 4 Live-albums + 3 Compilations + 1 Limited Ed
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A Sense of Gravity - Atrament (2016) [MP3|320 Kbps] <Progressive Math Metal>
 ```bash
 magnet:?xt=urn:btih:22412AAE4E68E31D707AFCAC08CC9417142CFC92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Devilment - II - The Mephisto Waltzes (2016) [MP3|320 Kbps] <Extreme Metal, Goth
 ```bash
 magnet:?xt=urn:btih:845513FD1C75BEE3869E0DFCEFA858EED03DFFDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Diabulus In Musica - Dirge For The Archons (2016) [MP3|320 Kbps] <Symphonic Powe
 ```bash
 magnet:?xt=urn:btih:5FD0A981309837F7D55E641842E53640DE293F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sandy and The Wild Wombats - The Girl Can't Help It! (2015) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:3844E1A002A4E7564C466375E81E2A2C214D49B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lera Lynn - Resistor (2016) [FLAC|Lossless|tracks] <Indie Folk Rock, Post-Americ
 ```bash
 magnet:?xt=urn:btih:5E64859A8C257D6E3841902E1CBB8EFC92E39F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sixx: A.M. - Prayers For The Blessed Vol. 2 (2016) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:99E3B7036F10CB6B142C8F6E446B7B40FA97FF65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lamb Of God - The Duke (2016) EP [MP3|320 Kbps] <Groove Metal>
 ```bash
 magnet:?xt=urn:btih:63B3F186E2F4C52F60F7954DCE2775FF628FE630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:253A482F03F109EEC0082315D19B8EE976C2D538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

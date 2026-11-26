@@ -19,8 +19,7 @@ Amaranthine Voyage 8: The Burning Sky / Вечное путешествие 8: �
 ```bash
 magnet:?xt=urn:btih:9C8BFF48F3226613CC1C29C0F653D5D9D6FED781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Carrier Command: Gaea Mission - это футуристический экшн �
 ```bash
 magnet:?xt=urn:btih:3C7C99490CCA2178DE2EF3513286417A013C88F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Algo Bot (2018) [Ru/Multi] (1.0.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:390E8223E48DA6DD00C83A029B247F6D4ED99C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ State of Decay: Year-One (2015) [Ru/Multi] (1.0 от 12.02.2018/dlc) Repack R.G.
 ```bash
 magnet:?xt=urn:btih:5E00EA6425F6A19471EA7039A54382138878A1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

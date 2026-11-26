@@ -19,8 +19,7 @@ Paranormal Files 7: Ghost Chapter (2021) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:D03FE1FF4629C6E8B724A4D2E9448D1613EBCA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Viking Heroes 2 / Герои викинги 2 (2021) [Ru] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:3C02F4EAF584152EEBBA59D0119D1E14F4F4AF57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:50D26BFE24D35407E249B5CF2EAC4DA35B2BA3E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5C5F46B306E322F9A0FDBC9E758983FD83777F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ EasyBCD - менеджер загрузки операционных систе�
 ```bash
 magnet:?xt=urn:btih:D4FF05C37BE078637DE2EE95BA3437F2AF00746C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

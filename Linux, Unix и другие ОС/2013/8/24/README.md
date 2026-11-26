@@ -23,8 +23,7 @@ Ubuntu 12.04.3 и  его производные продукты обновле
 ```bash
 magnet:?xt=urn:btih:1C7EE39FD9A1F854C6E6031B8429513DB7D07515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

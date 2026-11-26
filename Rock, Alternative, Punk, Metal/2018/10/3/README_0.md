@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7B291CCFAF20A838F51C22B4AED92CE1D77B024B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Joy Formidable - AAARTH (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:B91A8CD37C0A772D34C716742743087E2E0E71D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lake of Tears - By the Black Sea (2014) Live [FLAC|Lossless|image + .cue] <Goth 
 ```bash
 magnet:?xt=urn:btih:C6964977268769D9F59C71018515F533203AEDD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Metric - Art of Doubt (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:5E5BBD8123900126F84D2B780D6D2E439CF261D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - 00s Rock Party (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:464C3AEA0518DBD123DB1015426F4F48B9295F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E96E26B479799029AEE1CB65B3DE1ED95DAF91DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Twenty One Pilots - Trench (2018) [MP3|320 Kbps] <Indie Rock, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:5D0DEFA3E01E2BF9AB609883BA1516120BEDFC6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

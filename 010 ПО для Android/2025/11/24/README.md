@@ -19,8 +19,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:FF1C4F41AB0AE266FD3FEA6447E32B2C6913BA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

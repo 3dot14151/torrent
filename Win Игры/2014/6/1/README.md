@@ -19,8 +19,7 @@ Panopticon: Path of Reflections (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:FC720C1C0CCB84AF9D0291AD33149FD03034030D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Awakening 6: The Redleaf Forest (2014) [En] Unofficial [Collector’s Edition / 
 ```bash
 magnet:?xt=urn:btih:EA2EF8F568FA4211AC6A08321C58F00479F2F352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Urban Trial Freestyle - игровая новинка, которая предс
 ```bash
 magnet:?xt=urn:btih:C211FA6EC2407920F71EBA7D1247F323DCAF1321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Grim Tales 6: The Vengeance / Страшные сказки 6: Возмезди�
 ```bash
 magnet:?xt=urn:btih:FA1A62EE4A21711EB7F9FCE69E2E54D3154CB502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Magrunner: Dark Pulse (2013) [Ru/Multi] (1.0.10246.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:930442B99AA764FB2017FF308B345B46CAAEF34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Kill The Bad Guy (2014) [Ru/Multi] (1.0.5413.2) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:BB4833F07458C1F52218990B19016713127AD799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Painkiller: Hell & Damnation (2012) [Ru/Multi] (build 20140415_3933/12dlc) Steam
 ```bash
 magnet:?xt=urn:btih:B0534C9E1F4C39F87813DF8D3C7DF5BADD4600C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Homefront – сюжетно-ориентированный кинематогр
 ```bash
 magnet:?xt=urn:btih:FF295EE67F1E1C1A0C6B23E88BFEAE6B53B41D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ The Amazing Spider-Man (2012) [Ru/Multi] (1.0 Upd1/4dlc) Repack R.G. Механ�
 ```bash
 magnet:?xt=urn:btih:FC19F82B91A4BF3A6B625C34C63B0A4E44E308A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

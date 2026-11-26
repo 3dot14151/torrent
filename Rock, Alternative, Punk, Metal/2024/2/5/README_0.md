@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:587E1A0B6D614B3022D6F2C6D7AEED4597F5CE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ NADИ & Юрий Шевчук - М.З.И.В. (2024) Single [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5B49D5109D60343A65E78AA7014F2B40D8B8FC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Metallica - Master Of Puppets (1986) [APE|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4C431658C7F81E53F5A7B5F275546BC0B0334311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ beatport
 ```bash
 magnet:?xt=urn:btih:95D0C60827F76268FDB3A141625BCEFC2EA6B5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A550CF477DA2F1CAD288CD83DD3F45F6AD9FFCBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Metallica - Metallica (1991) 1st German Press [APE|Lossless|image + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:340E6BE24434DCB09BAE48133BCC3E2FB87230E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Bryan Adams - Waking Up The Neighbours (1991) 1st German Press [APE|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:59D45C19F5C14F7AD0934B937FE1188757A566F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:286411809A1FBC98123649ED17EA8DFDA240FAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Sacrify Souls - The New Begin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E175C2783F4B8758E3602EAB5E57BC4BDCAFE77B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Millennium - The Sign Of Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:28D3782201D3A24B3FD8C1E6C91A6A2C828A2991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3FEA5AF079D7E1B1DAB8D01B20500C7E6BB291D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Ribspreader - Reap Humanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:5DBE4FD3DCF92F5CB01863A5BD967054030A324F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ The Soulless - Isolated (2011) [FLAC|Lossless|tracks + .cue] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:CCBF20E2CAC5DB03E142B73B61F749113D847FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Sacred Darkness - Dark Depth (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:1B7F43493BA4AFA30604B0B45C78A1362CAB936D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Black Paisley - Perennials (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 ```bash
 magnet:?xt=urn:btih:11557F08B6B547F76CE45AB85CD7086C0A7399F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Hit The Ground Runnin' - Control Yourself (2000) Reissue, Remastered, 2023, Prid
 ```bash
 magnet:?xt=urn:btih:2023C54D7507E0C8212BD4E36779BD14BFE9E031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Madder Mortem - Old Eyes, New Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ```bash
 magnet:?xt=urn:btih:F46FE162BD42AB4FFE7F5EFC8E82C476EE718BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Running Wild - Gates To Purgatory (1984) [APE|Lossless|image + .cue] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:134730B59069D964A4F66912314CDF0B382632CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Seventh Crystal - Wonderland (2023) Japanese Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:09498B35ECCF8FB88CCF289B06D185A9FCB6A5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Running Wild - Port Royal (1988) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CB7331FCC8121D7F48AC92F31C9E795D4DBD319F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

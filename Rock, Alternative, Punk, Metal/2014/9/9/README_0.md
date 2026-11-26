@@ -22,8 +22,7 @@ Majestic Downfall (Мексика):
 ```bash
 magnet:?xt=urn:btih:649E8A2BA9BF4CC9A7A1480865897005CFBE3DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Vance Joy - Dream Your Life Away (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:0FCABB57BA3E63411870065B3F1136476A99353E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ M83 - Before The Dawn Heals Us - Remixes & B-Sides (2014) [FLAC|Lossless|WEB-DL]
 ```bash
 magnet:?xt=urn:btih:63F51573CD8BD06D5B18B2F41AA7B612ED623BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ M83 - Dead Cities, Red Seas & Lost Ghosts - Remixes & B-Sides (2014) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:5691DB5BC9B010E8F5EC51877CBFA29A81CAF13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Kerosin - Панк и Рок-н-Ролл (2014) [MP3|320 кб/с]<Punk Rock / Ro
 ```bash
 magnet:?xt=urn:btih:EF39B43449E483DD84AB04938C3C3D031FF5AAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ VA - Pure... Psychedelic rock (2010) Box Set, 4 CD [FLAC|Lossless]<Rock, Pop, Ps
 ```bash
 magnet:?xt=urn:btih:77F718F5A5EE79F53D3ED22EEAEE8842E110BACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

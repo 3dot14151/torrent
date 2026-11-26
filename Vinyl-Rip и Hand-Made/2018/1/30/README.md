@@ -22,8 +22,7 @@ D Todd Duncan With Eva Jessye Choir - Buzzard Song(   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:14B9E82E3C995C53FED2F8AC41156887BB76CE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Piano – Сергей Курёхин(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:B6F53772CD7D0F267625D8E80793695C7D38AC8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

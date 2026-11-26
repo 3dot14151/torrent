@@ -19,8 +19,7 @@ Youda Fisherman (P) [Ru] 2011 | Fyrrion
 ```bash
 magnet:?xt=urn:btih:D61F212893DCF6841CF9FEBA773B274579950D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sonic Adventure 2: Battle - это быстрый action, с возможнос�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

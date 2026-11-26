@@ -22,8 +22,7 @@ Falling Up — американская христианская группа, �
 ```bash
 magnet:?xt=urn:btih:AAC1FABE25415A91BD21B7BBB766F94B3B860364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Josh Todd (of Buckcherry) & The Conflict - Year Of The Tiger (2017) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:71DA699672ECCDABA4E25AFAFBA2D593641AA3BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Marilyn Manson - Heaven Upside Down (2017) [MP3|320 Kbps] <Alternative Rock, Hea
 ```bash
 magnet:?xt=urn:btih:A3F550CAAC0A7DE7313D56B3213A1854739B56DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

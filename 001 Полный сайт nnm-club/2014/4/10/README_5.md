@@ -19,8 +19,7 @@ LEGO The Hobbit / LEGO Хоббит (2014) [Ru/En] (1.0.0.21750) Repack R.G. М�
 ```bash
 magnet:?xt=urn:btih:279A17A062A8BA14642A618035AAE8F011E5A084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windows 8.1 with Update - Оригинальные образы от Microsoft M
 ```bash
 magnet:?xt=urn:btih:2E78DFE22EE39AD5D050DB1F7835C8741ECA5C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BE0FD5CF21047655A442FB55BB31296658A24AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6EE324521D388DE905302F6A359923CCA2284D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Boris Continuum Complete 9 AE (BCC 9 AE) - Наиболее полный пак�
 ```bash
 magnet:?xt=urn:btih:F7F08038499AA1C3F1027F348929CBBFED707A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3612940352110353A7DE4C58B4EE9D15619EE81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ X3: Albion Prelude / Рассвет Альбиона Patch (2013) (3.1/Ru) Unoff
 ```bash
 magnet:?xt=urn:btih:08462090C2F7A7A9A9AAFCC9E0B6FB4CBA243B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/En] (1.0.0.1 upd1/4dlc) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:FA4EFEE90A42B8780DE53B45FAF2DACA5C12B4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Adobe Photoshop CC - программа для обработки растров
 ```bash
 magnet:?xt=urn:btih:BD174FBCD2D20C97D07BF4347616EF14EEA02ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Windows 8.1 with Update - Оригинальные образы от Microsoft M
 ```bash
 magnet:?xt=urn:btih:8C75A346D7B1BCF4E491CD98858C76809F8BFE6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ VA - Disco Remix Mistery Revision (2013) [MP3|256 кб/с]<Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:11DE585EBCE8DE43598C4B54BE59E3380C0BEB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Pirates Odyssey: To Each His Own / Корсары: Каждому своё (2012
 ```bash
 magnet:?xt=urn:btih:EAF78BDC95930CE8180FFA97DA68FB25BFBED793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Adobe Photoshop — программа для обработки растров�
 ```bash
 magnet:?xt=urn:btih:D288EE8577FD5CDBBA8D201E9B321BEF3AD6D3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Shameless, основанный на одноименном британском
 ```bash
 magnet:?xt=urn:btih:961D4BCCC92AF7C9FFDF5957E3EEA294CA1F5163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Windows Server 2012 R2 - это проверенная масштабируем�
 ```bash
 magnet:?xt=urn:btih:3662F99268F13EC25F93162D54542F8A214D968C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ Shameless, основанный на одноименном британском
 ```bash
 magnet:?xt=urn:btih:D90C3DE4795B871CE829CBF0A15F509B9763A84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

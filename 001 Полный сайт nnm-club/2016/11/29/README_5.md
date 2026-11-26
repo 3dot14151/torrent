@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B95851973AA17BAE84B5F1F4E55F7EE3B6BFA99A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hands Off! - контроль доступа в Интернет
 ```bash
 magnet:?xt=urn:btih:B24AD7C9BFE2048A93F89066E135B1634D8C0E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Awards Show - Новый, мощный, современный и роскошн
 ```bash
 magnet:?xt=urn:btih:A72E7FDA70E7591C6C67A87A057ED933FE3B7918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc) Repack Seraph1
 ```bash
 magnet:?xt=urn:btih:BA2704D3C44F852A2E905EB68B6DB8E8B54A7761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Norton Internet Security - комплексный антивирус, котор
 ```bash
 magnet:?xt=urn:btih:851FF7A2022E6873FA05475C5463EDAD918E504A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9578CC7B2F58F12F94CB4376AC53649138DBAFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Adobe Muse CC 2017 – визуальный конструктор сайтов,
 ```bash
 magnet:?xt=urn:btih:08417262EF8A839E4078B36900D1926CFFCC88D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6258FEA553E9F77055DCF5896927AE1B0F62022C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Office Enterprise 2007 — самый полный набор программ �
 ```bash
 magnet:?xt=urn:btih:FD902F72564B2A0B6409E84962B9422A11F5B754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8262F80EAFA81808DEA718BC3AB5543850F3DC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.6.0-f4/dlc) License SKIDROW [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:CB1BB6398818F376D034734032263C3EDF057BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Bullshot (2016) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:CE240F83B8AAA0D5023A175DD9BB3E9A0FB133BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ KOPLAYER - эмулятор мобильной операционки Android, �
 ```bash
 magnet:?xt=urn:btih:832BAC2B0CF543F14589B87D57C61E9B2DB7E043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D78DD54C9D3F680C32A41669E1E84B2D456DAC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1513A0A0A04D0B24B64649A6BE1786F1C181E647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ Start Menu X - усовершенствованный вариант меню "�
 ```bash
 magnet:?xt=urn:btih:680540570AD6B0882259F750DC00D41E505406A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ Quern: Undying Thoughts (2016) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:200D2F0270871830AFCB81A6A3A996CC7F278BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:939B99882F3E08938A92826675DF84D1BB11D4AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28F5DB1BBC95C68674435E32873111AC4B43E99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3B2FCC9F166053E9EA9799D98310F2F2F5BD958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +547,7 @@ Active Boot Disk Suite — это самая настоящая операцио
 ```bash
 magnet:?xt=urn:btih:D2B9558FE5DF510937EF87DA67DEA1C42637F01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +572,7 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:4D3C43E930E9AA1A300B4FD1E6234CEAD370D157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +597,7 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 ```bash
 magnet:?xt=urn:btih:B667D2F4DD24347937044487278B4A7BD73B87FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB1105223F0FCA426FD2A9B8EF020C84EFF7E201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +649,7 @@ Breaking Bones - это игра от первого лица на выжива�
 ```bash
 magnet:?xt=urn:btih:3949DC19403276ADC74BEEBCD04AE8CD337AB1E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

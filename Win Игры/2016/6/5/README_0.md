@@ -19,8 +19,7 @@ TurnOn - это замечательное приключение в жанре 
 ```bash
 magnet:?xt=urn:btih:3BE985EF0FEB0D622260868A27E02433DC500DA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License CODEX
 ```bash
 magnet:?xt=urn:btih:712C05B4D3DA6EE69BDB38C713BBD99BB356C195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Brigador - это изометрический экшен, в котором и�
 ```bash
 magnet:?xt=urn:btih:1DD3BD7F618FF427737F7A906D5E41ED12553AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Postbox является почтовым клиентом для Windows, в о
 ```bash
 magnet:?xt=urn:btih:C81E2ABD07480006962039854CB134536F34D8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

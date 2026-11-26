@@ -28,8 +28,7 @@ VA - A Journey Into Tech House (2011) [MP3|320 кб/с]<Tech House, Progressive 
 ```bash
 magnet:?xt=urn:btih:D04DDCBC8A161C3475D5AF4A5FA1B4D0F4E96332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Space DJz - The Rhythm Of Resistance EP (2013) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:35F917E7BD10942B30158E402BEE1F0808854D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B90A31B27B555C3476591306FA02F28F110DD7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Terminal Depression - Dysthorium (2013) [MP3|320 кб/с]<Depressive Black Metal
 ```bash
 magnet:?xt=urn:btih:527AC1703CC252AF531934EF1EE8B7C28B73059F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F73264B5D3F5124851309196D43ADD98DBA584F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ GOTARD - Gaia (2012) [MP3|320 кб/с]<Downtempo, World>
 ```bash
 magnet:?xt=urn:btih:E757255466862D6019206CB2CFD2A201E3231FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ VA - Into House - Soulful & Funky House Collection (2011) [MP3|320 кб/с]<Tech
 ```bash
 magnet:?xt=urn:btih:8710BF7781ABCB06DCFA6C6BC7223E9D162EC72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ Mike Vath - Dunkle Lichter EP (2013) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:D2DB260BB69DFD2788DDFA9B6A7090A66299F356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ SlimBrowser - это быстрый и надежный веб-браузер с
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ VA - Dub Session Vol 6 (Strictly Dub Versions) (2012) [MP3|320 кб/с]<House, P
 ```bash
 magnet:?xt=urn:btih:06A5189984BD0710270909D44EF4EB939CE0D34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ VA - Stereonized - Deep & Tech House Collection (2011) [MP3|320 кб/с]<Deep Ho
 ```bash
 magnet:?xt=urn:btih:3664750371F60BEC64BAEC3BF47534DAB50BFD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ VA - Mission Ibiza 2012 (Including 50 Ibiza House Anthems) (2012) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:0E89F732F28535838DF13964327031A6674461DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +394,7 @@ VA - Summer In Brasil: Beach House Vol 2 (2013) [MP3|320 кб/с]<Minimal / Tech
 ```bash
 magnet:?xt=urn:btih:7F6E88E97C5F45155029D150E5B3943E98CE59C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3F234F660164CC98B184A5E5CCEC44FEDD9966F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +454,7 @@ VA - It's House - Vocal Mixes Edition 4 (2012) [MP3|320 кб/с]<House, Disco Ho
 ```bash
 magnet:?xt=urn:btih:18C0758FBF33EABEB3A88A1D3B8C95FD06C52632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ SynWrite Editor - мощный текстовый редактор для про
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C94963FBCA058AF034193E10DB70FC82C1336FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ FreeFileSync 5.18 + Portable [Ru/Multi]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F8BAD919A7CB95E4538BC232B76FF573268BB41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ VA - Deep Magic Waters Vol. 2 (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:AF629C6AAB6ABF89D0E5136ED380504817DB5E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +624,7 @@ VA - Summer In Brasil: Beach House Vol 1 (2013) [MP3|320 кб/с]<Funky / Club H
 ```bash
 magnet:?xt=urn:btih:9AEF2641176A3487D7EB7FA1DAFCE0F811639014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6508C68B042710E8A4035BE5206F75523D5921BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ BurnAware Pro - простая и в тоже время мощная прогр
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ Lonewolf - The Fourth and Final Horseman (2013) Limited Edition [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:8000208A2338B2244F2379F2ABB493393C4D080F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ Mickie James - Somebody's Gonna Pay (2013) [MP3|320 кб/с]<Rock, Country rock>
 ```bash
 magnet:?xt=urn:btih:F7052BA5B72DC14D5897ACA3CD4D9A68D3628E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ VA - Let's Get Deeper Vol 2 (A Collection Of Unique Deep House Tunes) (2012) [MP
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

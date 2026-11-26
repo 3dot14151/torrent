@@ -21,8 +21,7 @@ Sidus Mortuorum - Endless Funeral (2010) [FLAC|Lossless|image + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:524375A816D7525CC8E36EECB33660D813773EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Lungo предотвращает засыпание Mac и затемнение 
 ```bash
 magnet:?xt=urn:btih:7CC910ABD7DC03C3A45EFE28E6E2709752CAE113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Chillout Lounge 2021 (2021) [AAC|~318 Kbps] <Progressive House, Electro Hou
 ```bash
 magnet:?xt=urn:btih:3FFC270537B946A0FA7DB2DAEAF9F3E00D4D2C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Take It to Church, Vol. 2 (2019) [AAC|~322 Kbps] <Disco House, Nu-Disco, In
 ```bash
 magnet:?xt=urn:btih:B1A9EAC99849A481F32B4A9D12B3B1E2D474669D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Post Modern Lounge (2015) [AAC|~342 Kbps] <Lounge, Nu Jazz, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:7F13C924F2F574DB72212C446660C688D6B47F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Stillborn - Los Asesinos del Sur (2011) [FLAC|Lossless|image + .cue] <Blackened 
 ```bash
 magnet:?xt=urn:btih:47A2C49324529382FE0A7FC399046A641DF932CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Strigampire - Where Torments Drown (2009) [FLAC|Lossless|image + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:EA2B9BC0A1D6A7A6B3CD064745968D1346AB1427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - House Doze, Vol. 1 (2021) [AAC|~319 Kbps] <Deep House, Chill House>
 ```bash
 magnet:?xt=urn:btih:7C8485E37EEEB383DF6D41B14DAB1FCB5F6C73B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Sea of Disorder - Sea of Disorder (2012) [FLAC|Lossless|image + .cue] <Post Meta
 ```bash
 magnet:?xt=urn:btih:FE25680B41780991F78F6D900505329978E31E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Seasons of the Wolf - Seasons of the Wolf (1996) [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:3E45CFBF12A0EF8FA74CED657A96085A5778949B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Skyliner - Outsiders (2014) [FLAC|Lossless|image + .cue] <Power Metal, Progressi
 ```bash
 magnet:?xt=urn:btih:A1B8E903E716076C39B2BFC6F98076D84886E79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Data Guardian 7 v7.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:71163FA32E97EF89CC7251EB7D62C7A1677205B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ VA - Post Modern Lounge 2 (2021) [AAC|~321 Kbps] <Lounge, Nu Jazz, Easy Listenin
 ```bash
 magnet:?xt=urn:btih:D05D300F51843636DF5EAD60F677E9890DC49364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Spearhead - Decrowning The Irenarch (2007) [FLAC|Lossless|image + .cue] <Death M
 ```bash
 magnet:?xt=urn:btih:F5F207F00C4640B765D9B7838EAAEC8B37B109C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ Stigma - When Midnight Strikes (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:90DE4DECE7D2532E274AAC99DB7EEAC08140F508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ Terence Blanchard - Absence (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop, Cont
 ```bash
 magnet:?xt=urn:btih:ED0E72F103191E9D4627C2B1EFC966EEA7A074F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ VA - Take It to Church, Vol. 4 (2021) [AAC|~347 Kbps] <Disco House, Nu-Disco, In
 ```bash
 magnet:?xt=urn:btih:F86B89E866A94809E36A1107EA4F84A3802DC295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ Stormlord - At the Gates of Utopia (2001) [FLAC|Lossless|image + .cue] <Extreme 
 ```bash
 magnet:?xt=urn:btih:1265B427B12F057CBE0C881D9DB3499BF7DC60AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ VA - Sunday Chill - Berlin, Vol. 1 (2021) [AAC|~325 Kbps] <Deep House, Chill Hou
 ```bash
 magnet:?xt=urn:btih:D9133284619B892BD2622307FCCAFEC70BC5C3B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ Magic Sort List поставляется с нашим революционны�
 ```bash
 magnet:?xt=urn:btih:FD73E0C8CEE41C76071BC23F1A59F3E856B806B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ VA - Take It to Church, Vol. 3 (2020) [AAC|~351 Kbps] <Disco House, Nu-Disco, In
 ```bash
 magnet:?xt=urn:btih:1565350EFBB27D8CFD35C478314F89B25791F275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:9466CB7EFC3308429659DC7BFE5AE4869867F257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0093D6ACF26AADED540E1D3ADABCFDDD1A5EB72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B8746CAF715F199415680BAA1C073FC4BD1A018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A7A635EA17EE94ACE64FC0FDF0B2D746AE93148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

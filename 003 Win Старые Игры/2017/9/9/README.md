@@ -19,8 +19,7 @@ Shadow Man (1999) [En/Fr] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:44825B4D52D005EA05A190B66033AC286E9B228F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3E0E93EFDEB6557C7E0945C356E75B0A2855BD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Good Hash Production - Тот самый (2012) [FLAC|Lossless]<Underground Hip-
 ```bash
 magnet:?xt=urn:btih:1718D3A752A3DAC4CCEDBACF074E3065FC54D4DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Atomic Alarm Clock - данная программа преобразит ваш
 ```bash
 magnet:?xt=urn:btih:0CE3F383176AD6F5F9850E16EAD7595CF9A6D140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Scorpions - In Trance (1975) BSCD2 /2013, Sony Music/ [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ MilleniumART5Разрешение файлов: 401х600-1191х670Формат: 
 ```bash
 magnet:?xt=urn:btih:D83C4FB785C8D80DA5195CD355141A63ED20ABDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ ADVANCED Codecs for Windows 7 and 8 - это свежая версия прог�
 ```bash
 magnet:?xt=urn:btih:86A3AEE1B9AF281C4523929A0711DE801B11DC7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66C1727F5615CEE1700326D7936DEFC8553DE929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0861571B081AD119BBC46556428779F14C4602DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17B4630CC57C016F8D8AEE16F5BB270A5E7754EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Synthesis - Galaxy Fighters (2012) [FLAC|Lossless]<Spacesynth>
 ```bash
 magnet:?xt=urn:btih:8C913F212E016134BC8B486ACF5D166BF678C2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ Erasure - Snow Globe [Limited Deluxe Edition Christmas Box Set] (2013) (3CD) [FL
 ```bash
 magnet:?xt=urn:btih:4DAF3A99B532AE89900AED72BE1B9AFC02FDDBEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ TechSmith Snagit облегчает захват изображений с эк�
 ```bash
 magnet:?xt=urn:btih:DBC2C9A8A3BDA03509D0F020F9410C6D36F02FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F262CB6D774ADD01F207F04F10FB3F42A9D8F6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ Hatsukoi Limited / First Love Limited / Компания «Первая любо
 ```bash
 magnet:?xt=urn:btih:A2B2F33A9C58180E77D60DF15D6CB07BEC4AF95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43B92C5ECC6C18F0A22D4FF49F113943A8673D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +451,7 @@ The Living Room Sessions — самый последний релиз, сост�
 ```bash
 magnet:?xt=urn:btih:B71250433D6D11E7A4814D3F50106A48CB04702D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ADB203EBFAF70ACDC45EE6DDC338F382BA82025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:538621FD6388876E334652BC245F71F0B0BD646E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +535,7 @@ Black Sun Empire – Variations on Black (2013) [FLAC|Lossless|WEB-DL]<Drum & Ba
 ```bash
 magnet:?xt=urn:btih:FD956AE75379A118ECB2B3C2913483D8615A01A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36733169A0FFAEF842DCA61E3B866C2C628DCE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38C0982C1C1CAA0FEB9E037CEC9D5ED16E1A1BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ Adobe Flash Player - межплатформенная среда выполне�
 ```bash
 magnet:?xt=urn:btih:3A95A8188E356979D5D99FC6D4088276C6D57354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26468E0D9FD74675EF57298F754BF6E834EAD25A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BC5C484AB7F64A68474223DF9DE982C8378600D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ NG. Убийство Кеннеди / Killing Kennedy (2013) HDTVRip
 ```bash
 magnet:?xt=urn:btih:9AB05A1E16D3F440AB5179F034C50AA09AC22E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:937C2628D5A2503F6845EB77E66D7BCBF52394E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

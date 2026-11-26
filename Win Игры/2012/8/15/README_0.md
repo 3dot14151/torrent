@@ -21,8 +21,7 @@ Symphony [Ru/En] (RePack/1.0) 2012 | SEYTER
 ```bash
 magnet:?xt=urn:btih:B27D5A8CA5DDA26E0A3646EE9416BBC84B47C386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Darksiders II (NoDVD/1.0) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:C7733B3C98AD8F7DA019F7E33AA610D1DA8E6875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Symphony [Ru/En] (RePack/1.0) 2012 | VANSIK
 ```bash
 magnet:?xt=urn:btih:C07D0AE034D74AF6F725B9F00A82FEBA66FC9241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

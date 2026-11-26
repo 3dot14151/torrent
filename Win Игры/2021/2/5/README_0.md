@@ -19,8 +19,7 @@ Rite of Passage 10: Embrace of Ember Lake (2021) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:E44AA3AEB9D968EE48556CEC9BC2C6B7EE217EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Riddle of the Sphinx: The Awakening / Загадка Сфинкса: Пробу�
 ```bash
 magnet:?xt=urn:btih:AD7C5CEA4E9D0F42853835BD8C6A9F4ACAB0D799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

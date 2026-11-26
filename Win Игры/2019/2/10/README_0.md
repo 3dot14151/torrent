@@ -19,8 +19,7 @@ Saga of the Nine Worlds: The Gathering (2017) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:28219513FC3289445CBBE05B68A0B0AAA7703279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dreadful Tales: The Space Between / Жуткие истории: Кто таит
 ```bash
 magnet:?xt=urn:btih:431B1AA8582E8363DBCD03897789EE311D3B71C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rise & Shine совмещает в себе аркадный шутер с ис�
 ```bash
 magnet:?xt=urn:btih:0BA1DD3DBDAE545370819BB513D6EF3F0657B2C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

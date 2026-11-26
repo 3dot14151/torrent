@@ -19,8 +19,7 @@ Resident Evil 4 (2023) [Ru/Multi] (1.0/dlc) Repack Decepticon [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6C0D26602954F130A48855C02D86042293A4488D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Detectives United 6: Beyond Time (2023) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:58D802FCADD15055D5494011B772AE72E52E6A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

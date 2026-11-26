@@ -22,8 +22,7 @@ Coma Void - Stormking Twilight (2001) [FLAC|Lossless|image + .cue] <Death Metal,
 ```bash
 magnet:?xt=urn:btih:F6C50F6ED3CCEA9A593CBE83A0F97D28776B8262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Viikate - XII - Kouvostomolli (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, R
 ```bash
 magnet:?xt=urn:btih:11F8E96759798B5F2F80D405537E14B28AB7D4AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ TNT - A Farewell To Arms (2011) [MP3|201~295 кб/с (V0) ] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1F7701ADBC6C9AA1110988260BD9A119A1944624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mystic Braves - Days of Yesteryear (2015) [FLAC|Lossless|WEB-DL|tracks] <60's Ps
 ```bash
 magnet:?xt=urn:btih:F3BDDC18CFF0142553A36EDF7CF50D408FCE4C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Project NT - Ottobre Nero (2016) [FLAC|Lossless|image + .cue] <Dark Ambient, Exp
 ```bash
 magnet:?xt=urn:btih:20178461753CCC1A7412F5AD0D2C907EEE500DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Ultimate Rock - 4CDs of great rock music (2015) [MP3|320 кб/с] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:33966FB8D866EDE5E5357A44643CBD02A60EE00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

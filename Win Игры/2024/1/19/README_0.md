@@ -19,8 +19,7 @@ Grand Emprise: Time Travel Survival - это приключенческий си
 ```bash
 magnet:?xt=urn:btih:4A8F532D7CF0215249A9ECC5D2D7FE6B40B0EAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spin Rhythm XD - яркая и динамичная ритм-игра, в кот
 ```bash
 magnet:?xt=urn:btih:0B769F9B0BAEA6BE6EE0F2EEB3F018C92C0D7735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cursed Fables 4: Before the Clock Strikes (2024) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:08344193D4D47F4DA1CC19E3AAB75EFFBACBC91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

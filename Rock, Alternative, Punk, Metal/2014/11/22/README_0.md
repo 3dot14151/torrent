@@ -28,8 +28,7 @@ Zandelle - Vengeance Rising (2006) [APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:31A2A0B5FF6E5D8AE6AC1B842D84EB53A486F7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Hess - Hagalaz (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D239646FEB83D77DECCDA135C5AB8FF0718D07BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Cripper - Hyëna (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:34631EC47A2B2A52B68220EC01502D56DC5A751F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C35E0824DFDBACBDA5BE3445B5C57D797617D79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Bloodbound - 6 альбомов (2006 - 2014)[MP3|320 kbps]<Heavy Metal, Power M
 ```bash
 magnet:?xt=urn:btih:4ABF28F276EAC207E3CC21E472930F2742C16174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F899BE393BCA279AC30AB80AEDEE1F55AFD4406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

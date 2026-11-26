@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1D478782703D81C5327A489B93BC8F7686817C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Christopher Smith, AGI Creative Team | Adobe InDesign CS6 Digital Classroom + у
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jennifer Smith, AGI Creative Team | Adobe Photoshop CS6 Digital Classroom + ур
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AGI Creative Team | Adobe Illustrator CS6 Digital Classroom + уроки [2012] 
 ```bash
 magnet:?xt=urn:btih:BE208666E0338F219E55E4312DEF3671313AAB27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ CSS (каскадные таблицы стилей) - это технологи
 ```bash
 magnet:?xt=urn:btih:B8CF65E365D533EB3662AC8CEFE824EC6B01BC57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

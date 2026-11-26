@@ -19,8 +19,7 @@ Demise: Rise of the Ku'tan (2000) [En] (1.0r353) License
 ```bash
 magnet:?xt=urn:btih:9FDAFCA127D08961CC242AD65BCB0500184AF5EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:024BB6695032FD820D167B5E20B5FFAA56E237AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:279884F0E03662B1D3D962AAC85067F9DD1A3FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Andrea De Luca - Andrea De Luca Blues Trio (2016) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:35FD88E69C91E39E261DEEF7F5CC47A83688C8A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:088A0B736A3D5CD9ACC40CDBC4D7C4E2B3224D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ VA - Зажги Под Летние Хиты 8 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:AE5AA5FC35BCA0664A2A363C4FE6F1ACED119D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2416692299D09EE5F66178A97AF0B99F680AA1E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Dropbox 7.4.30 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:70ED5DD1F9BDA858D976E377B3E76A53D3C9BCBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ VA - Lounge Cafe: Music for Relaxation (2016) [MP3|320 Kbps] <Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:EBFB56248C10ADA92D40E8B22533D79916A58587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6F5FD0710C8FA05476687161467C8681016BF1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AE7FBC591814C4A7CA05B07EBDDE71D903B4035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99AA6E537630015911B6C04C3FFCB07B3A9C21FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2537CFF682FBD6FD98F9BE90E960C8914D89906D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B06D4D10E5C8DC931076F0553CFFD82C41BF16C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ VA - Turbo mix World Hits №6 (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3C4E042D4ED938C03A866D73D3A0D72F2AE22F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:A6587DCA8C7A2D3E8D3499259081F462A8DA3767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ VA - Ultimate Workout Music: Bigroom Hits (2016) [MP3|320 Kbps] <House, Tech Hou
 ```bash
 magnet:?xt=urn:btih:81F25E8CA186DA7B23FCA5DED93D46AB6B933181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Eric Gales - A Night on the Sunset Strip (2016) [FLAC|Lossless|image + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:194FFD394FA650281D37D0ACE1D803966F144492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ VA - 90s Jams Hits More Talking (2016) [MP3|192-320 Kbps] <Soul, R&B, Pop, Grung
 ```bash
 magnet:?xt=urn:btih:4B728E8C319AA69C2047833265170030F5748BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB153669A8E889C5D8D2AE2BDE9D12AAD6B446B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ VA - Шальные Ноты На Радио Шансон (2016) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:C80599116F323A31F41457CD1A9729E789626DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ VA - Наша летняя соточка №1 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C05CE783F2943C13135B7C9BAA0F7A4822B056D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ VA - Super Dance Party Vol.4 (2016) [MP3|320 Kbps] <Dance, Club>
 ```bash
 magnet:?xt=urn:btih:9B56A2A13A62527C6E3C873283344AE9508E0B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Moti
 ```bash
 magnet:?xt=urn:btih:CD17C13FBFDF1B71C7FAFCADF9A2849A00A83499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E873E19D273C465301AEDCD0F83B54B1CE236773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Incognito - In Search Of Better Days (2016) [FLAC|Lossless|image + .cue] <Funk, 
 ```bash
 magnet:?xt=urn:btih:212E7C141FE879C347D97FB87952A79032D1CBDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ VA - Deep House Collection (2016) [MP3|320 Kbps] <House, Deep House, Club House,
 ```bash
 magnet:?xt=urn:btih:99B25F2024B507803A3CC3CC608BF67732D32BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

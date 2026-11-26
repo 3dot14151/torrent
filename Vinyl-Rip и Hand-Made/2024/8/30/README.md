@@ -22,8 +22,7 @@ Haken — лондонская прогрессив-рок/метал-групп
 ```bash
 magnet:?xt=urn:btih:C72B77356158E8A1E5CB16ED7FF8C553841AB3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Lazarus A.D. — американская трэш/грув-метал-груп�
 ```bash
 magnet:?xt=urn:btih:3C87E41B20A110DB4B29C14D6EFEC95C434D9EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

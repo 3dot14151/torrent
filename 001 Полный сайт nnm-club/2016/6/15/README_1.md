@@ -21,8 +21,7 @@ VA - Instrumental Chill Sound (2016) [MP3|320 кб/с] <Instrumental, Downtempo,
 ```bash
 magnet:?xt=urn:btih:3559FE6051B390BBDACB9C05F5AC69FB016F5A0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:882ABEAB919568F08AFD06531CBE89F5966C003C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Megahits Sommer 2016 (2016) [MP3|320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:0986243DEB9857DE78DE3F0527C6DFF85E344E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DC84B97BA4827399B70FA719D03AD43F78C5351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Crazy Picture - новое бесплатное приложение с самы
 ```bash
 magnet:?xt=urn:btih:F82B812579925AFCCF8724EF5A54AF6975156584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Anhidema - Conversation with the Cosmos (2014) [MP3|320 кб/с] <New Age, Ambie
 ```bash
 magnet:?xt=urn:btih:ACACB98297AE60CD9F1BDB1D9576EF811D6610FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68295920DCDC0A3A130533206CEC710DFB94987D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:656196CD60453AB191AC2F1ACD0994DDAAA0F827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Wise Folder Hider Free 3.35.144 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DD599E26E23271F42DBC0DA11906CD0D6812B806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ WinUtilities - системный набор для настройки Ваше�
 ```bash
 magnet:?xt=urn:btih:472A0177F1B4406060AF4594709BEE3EB171CFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0482FD2BA85DF8C818D6093AB0DE9044CE345D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Dark Gothic - экшен для Вашего творчества.Формат: 
 ```bash
 magnet:?xt=urn:btih:8C6F22B8317ABD8C202AD2F0DF005E54BB4F1472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ Sketches Pro 1.3.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BF7D5BC8D0531A2085DA4550DC4FB3C457BA4F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ NetWorx - утилита для учета интернет-трафика и м
 ```bash
 magnet:?xt=urn:btih:C4916D4FAC723136F889645A5A1EB6288524F6D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02A79668B3EE678E62D211C24F0EFE474904746E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ WinUtilities - системный набор для настройки Ваше�
 ```bash
 magnet:?xt=urn:btih:1AD9B3108B9F1835DFAF0CFA60C0571A8C8EA1CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Hello!! Kin`iro Mosaic | Hello!! Golden Mosaic | Привет!! Золотая �
 ```bash
 magnet:?xt=urn:btih:1E11C4B17B3784B4BD17FA1C359F76E20E5CA65F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C62424E1C2047C52CB2B0ED302EF65EDA0C14A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:986A19AA274A306DBDC18AD35D4B7E8DB88313B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ YouTube Downloader - простая и легкая в использовани�
 ```bash
 magnet:?xt=urn:btih:E16FF1AE68DEF8D40F19357B62FC65DA0DD93128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:217B2E7EB71474C4FD6FD621CCBA1254D1860058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ Malware Hunter - антивирусный сканер от Glarysoft для о�
 ```bash
 magnet:?xt=urn:btih:14BA59C97D1A363D7B88503E22142189C3539E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ Norton 360 - комплексное решение "все-в-одном". Эф�
 ```bash
 magnet:?xt=urn:btih:3577770E79B954E5529DA59B4E9DC2833D826A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ The Clock - The Best World Clock 3.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:8B6D8EBBBD2F00C5DE3FF2F02DFD1A099ECF184E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ Eclipse - экшен для Вашего творчества.Формат: ATN,
 ```bash
 magnet:?xt=urn:btih:A883741F979966C3B089FBB3D06698EF80CDA33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

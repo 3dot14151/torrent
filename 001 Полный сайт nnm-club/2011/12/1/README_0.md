@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8B061C86303997D77D51AE140E67440DDCC7CDDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83F66A6DEB6F4DC49295B8E0FD0BEEFDDDAD7D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Радио DFM - Dинамика from AGR (2011) [MP3|320 kbps]<Progressive
 ```bash
 magnet:?xt=urn:btih:F5B1EB51F351753496E7AA17B640FBC013710251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Marc Enfroy - Unconditional (2011)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ VA - Mega Dance Top 100 Best Of 2011-4CD (2011) [MP3|~245 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:46A0F1315734AD730E2022D60732051F7DAC1993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ Solarsoul - Heart & Soul Of The Earth (2011) [MP3|320 kbps]<Chillout>
 ```bash
 magnet:?xt=urn:btih:663EC6498C1C0A7C57E9494B3DE6B051E8009E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ VA - Kaiserdisco Present: ADE 2011 (2011) [MP3|320 kbps]<Tech House, Minimal>
 ```bash
 magnet:?xt=urn:btih:2261C150C4AC5A7C82042C5019EE594A52A833E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ VA - TMP: Vanilla Dreams - 047 (30.08.2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:1670222332CEC062E1B489C1DA2F6CBFD9407BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ InfoCity - ежемесячный журнал о компьютерной те�
 ```bash
 magnet:?xt=urn:btih:306DF87094D30BC67B2E3C066B24B36F4DDAEFAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ CD 2
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ Mel Brown - The Wizard/Blues For We (2011) [FLAC|Lossless]<Soul Jazz, Modern Ele
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ Solaris - Live In Los Angeles 1995 (Official bootleg) 2010(DVD5)
 ```bash
 magnet:?xt=urn:btih:6504B538AC50A8F0518C097D896BBA8FEFB1D2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ EL SOLDADO TV представляет вам серию выпусков обу
 ```bash
 magnet:?xt=urn:btih:B9C24F34434FAF6A8D13BFDB43722BA73801CF81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ Advanced Installer - программное обеспечение с помощ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +518,7 @@ AppRemover supported applications listЯзык интерфейса: Eng
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ Cosmithex - Visions Of Sound (2011) [MP3|320 kbps]<Psy trance, Goa trance>
 ```bash
 magnet:?xt=urn:btih:2B57A7133DB2E48DF1EC84E31D84BD516752EEA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ VA - Радио Energy - NRJ HOT30 (30.11.2011) [MP3|320 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:7BB3896D5EC9F3BEBD775E14D8432D8C0729420B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +671,7 @@ VA - Дискотека по Русски 200 Хитов (2011) [MP3|128 kbps]<P
 ```bash
 magnet:?xt=urn:btih:71C23C2AF3B190CF21C7644679E9B23D14FD3988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ NG: Львы-хулиганы / Lions Behaving Badly (2005) HDTVRip [720p]
 ```bash
 magnet:?xt=urn:btih:4A68D13D7780F60E6EA3D134E3B96623017D4702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ InfoCity - ежемесячный журнал о компьютерной те�
 ```bash
 magnet:?xt=urn:btih:1561D12C1F3CA50D672765BE45836D018C7D931F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +746,7 @@ Sunrise inc - Nina (2011) HDRip [1080p]
 ```bash
 magnet:?xt=urn:btih:958A2342DDEC44D5679217EAE3C9B0F85FB8A321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

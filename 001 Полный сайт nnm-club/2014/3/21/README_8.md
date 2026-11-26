@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CC20DC77427894728944414FC1038687B5DB4A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dishonored — это насыщенный экшен от первого лиц
 ```bash
 magnet:?xt=urn:btih:46DE9E0A40F3D56E352FF584ED085B885E08A7F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Excel 2010 – это набор инструментов, с помощью к�
 ```bash
 magnet:?xt=urn:btih:3407CDCEEBC2B9E01558A9F2474CDAE9A75E187B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05DA945C6F4E62D9B96FBC07FF56B931A72E00AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Recovery DVD for Acer Aspire V5-531/V5-531G/V5-571/V5-571G / Windows 8 Core (x64
 ```bash
 magnet:?xt=urn:btih:D0E3E81B68366C14F47D41FA85705F4E48AFBF11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ ID COMPANY | Самоучитель Microsoft Office Word 2010 [2010] ISO
 ```bash
 magnet:?xt=urn:btih:1D11C996F6EDA5A69A140CB5349D501F72FF187D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F73F4B76D7F508A70E35DFE69694AA65712B4414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2DEDB3347986FEB14CBDC1AC86B7BF8C957134C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1C65CEF9A862220207B8627D2CDD7964D992FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:946B16A20449515DA372FD269B9F25ED19620F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Multiboot USB Flash NeleGal Edition v2.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:84C4D4AF2429511B9923FB85796AAA18C96AA2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0135EF14B3E57CB369B1848080FC677B5D13086A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B2A4684431B3B31AD12EDEDA5F90984076DDD50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ KMSpico 9.2.3 Final - оффлайн активатор для продукто�
 ```bash
 magnet:?xt=urn:btih:E3CB564A05E525167F62C4F3D66CC68E8813913D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ The Witcher: Enhanced Edition Director's Cut (2010) [Ru/En] (1.5.0.1304) Repack 
 ```bash
 magnet:?xt=urn:btih:40C9610D855DC5F739DB5F2138C00B023113B58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6967E220CF609DF166AF5DE9DDC1B8E901E8A6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0340B44B00B6332400A56B0F3C2ED0EDD8C05634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ KMSAuto Net - автоматический KMS-активатор для опе�
 ```bash
 magnet:?xt=urn:btih:EE8AD563DDE5E5D7E61B0D9DE622CD65FCF45E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ Autodesk 3ds Max – это комплексное решение для 3D-мо
 ```bash
 magnet:?xt=urn:btih:C5D691C9937556F1357CFEA54CF1921162FAC377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

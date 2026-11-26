@@ -28,8 +28,7 @@ Lords Of The Trident - Chains On Fire (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:938F58C15941429CAB2426D4555576A34EFF1BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Rock Giganten (2CD) (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:3CDBADE119E9E90E6ED712ECA684160A759A626F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

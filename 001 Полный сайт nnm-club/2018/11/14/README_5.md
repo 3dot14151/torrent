@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:BF2846B4CA142D524F4BE929A7587BB03E952BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ ShredIt X отлично работает не только с локальны�
 ```bash
 magnet:?xt=urn:btih:CD268EACA8D28DC37395A2D67F855D05A8F4E766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Multitouch позволяет связать пользовательское д
 ```bash
 magnet:?xt=urn:btih:02171ABC46C2492EFF6511B794A0A4F51A2BC6BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Tap Forms Organizer простое в использовании, абсолют
 ```bash
 magnet:?xt=urn:btih:BAF2360E6AA1FC3099CF896DECE18C0737799A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Stephane Wrembel - The Django Experiment II (2017) Water Is Life Records [FLAC|L
 ```bash
 magnet:?xt=urn:btih:780CE0549AA66F2D9CFA908D8E048F4BD2842D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ MiniNote Pro — очень простое и удобное приложени�
 ```bash
 magnet:?xt=urn:btih:E489F1299294346E303616D159C651FDD1EB0B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B76EDC04AC306AAF5767546002D20A1E50AC9EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Touch Forms Pro - простой в использовании веб-разра
 ```bash
 magnet:?xt=urn:btih:EF8D3FB667F51FF604B14E539DFAD112677F684D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Xspance - Warm Horizon (2017) [MP3|320 Kbps] <Downtempo, Lounge, Deep House, Dan
 ```bash
 magnet:?xt=urn:btih:0F09AEB86DBF176B2063132E2828EED824A437ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ TextMate для Mac OS - Отличный редактор программно�
 ```bash
 magnet:?xt=urn:btih:5D3A1B09FA7A61949B780325DF46349C14E48259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Onus - Proslambanomenos (2016) Cyclic Law [FLAC|Lossless|WEB-DL|tracks] <Ritual 
 ```bash
 magnet:?xt=urn:btih:14BF4362FFDBD9D39B0DE57F7DFC3589162561DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Egotrya - Egotrya (1981) [MP3|320 Kbps] <Electronic, Disco, Space Rock>
 ```bash
 magnet:?xt=urn:btih:C4D2199F907DC7B75688716B6424E48B8F8887C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Dance EDM Remixes
 ```bash
 magnet:?xt=urn:btih:043FA2337C8395941556071648481912BC17FC1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C04060FC6751E0D7043739925D4BDEE967BC641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43F71255A4EED93C943F4CB92D092A6B94C7C4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ SoftRAID популярный пакет создания и управлени�
 ```bash
 magnet:?xt=urn:btih:5FC07C1BE256D0EFEBC340D9C28B4988FDB7FAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ SILKYPIX Developer Studio Pro — мощная программа, котора�
 ```bash
 magnet:?xt=urn:btih:70636226B127465FD0D7FCE861A8DDE1347FBF6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C56536183DE3B01D89F763898D4BDC34A12BC296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Pale Moon - веб-браузер, созданный на базе популя
 ```bash
 magnet:?xt=urn:btih:82BD499C9FEB79D7D62052E76ADEB3D416B0F36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Miami Disco Boys Club - Music to Make You Feel Good (2018) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:39743264EDB7179A03D8CB0F5F9A099A409908B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F18C12DA313DC9C10A88D49C0DAA0460F3149943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ VA - Party Sale Music Quality (2018) [MP3|320 Kbps] <Reggae, Dancehall, Latin>
 ```bash
 magnet:?xt=urn:btih:68B39CA9C25ADD7F5A580D4D5487870F1A926E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Macsome iTunes Music Converter позволяет преобразовывать
 ```bash
 magnet:?xt=urn:btih:BE4C227A536827629DBF5881266FD96FED27F625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF7520F896D66DDD308F4007AD107FE37C68FB1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Kryder - Kryteria Radio 159 (Live @ Sensation, Spain) (2018)[MP3|192 Kbps] <Hous
 ```bash
 magnet:?xt=urn:btih:9546B7873A9E4E0DE2CDEA6DC27B9EC3C3FCE0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ Neuroq - Catharsis (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ps
 ```bash
 magnet:?xt=urn:btih:3BFE47A8231C7E1E052A9991E56993087D59B34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Jinn'sLiveUSB MSOffice Addon - дополнение для Jinn'sLiveUSB, сод
 ```bash
 magnet:?xt=urn:btih:D8891FDEEBCE5AB83E05B65D60404A468A314A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Battlefield V / Battlefield 5 (2018) [Ru/Multi] (1.0.3894003) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9D66FC7EB9D7A7081CB56387FCB4B69DA54DD34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

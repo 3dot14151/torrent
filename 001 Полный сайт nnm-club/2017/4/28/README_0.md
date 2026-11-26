@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:9772EB2923C305B192F756A5BA31357AFCED8891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Guilles - Harvest Of Grey Days (2017) [MP3|320 Kbps] <Death’n’Roll>
 ```bash
 magnet:?xt=urn:btih:5F1232833E7A7DE7FB383EF7DDE252005194070C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Inner Holographic Reality (2017) [MP3|320 Kbps] <Psy Dub, Downtempo>
 ```bash
 magnet:?xt=urn:btih:98C82DD619B654E55EF151B49AA27F389E339D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:793F4D798AB27DA82FA527833ECD281E958CD729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B4062B2331C0BC601F34DF97874BCB4A294C913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ goPanel - наиболее интуитивное приложение для у
 ```bash
 magnet:?xt=urn:btih:484A0FF0DC3F9EE6FF283FFAC6F9D5BB08C9A798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Лучший весенний хит. Часть № 12 (2017) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:ADFAB1A54E9594BB2FF4879E80680DB70AD6EBD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ liquivid Video Improve 1.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:844604535E66723981B031BDD9CEEEB13370F4EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00BAB3235E179EA9DD2BE216701F7EB6A8547DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ VA - Весна. Высшая лига. Сборник № 5 (2017) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:7B6D65296869A85A98DF42F5D1DB88594E4D05A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E6E92917F94C08A2895C23A1B416209A7BA01FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0564EB9318D0226B83B63D33A2A221EA0689E9B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D718EA052B396E6558CEA7241DED4897A1BBD221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ E-Clip - Biointegrated Design (2017) [MP3|320 Kbps] <Progressive Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:4D0B4713B71EF6B6E1E218C8D1F36C29185ED1B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:303C42C57F8E9E044BBEDF72E4A49F98AD11A270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ Slimjet 14.0.4.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0A32B4F76CDA5D873623638FC6BB3400EC6CB291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ VA - Los clasicos argentinos - Tango - Vol.17 - Francisco Canaro: El ritmo canye
 ```bash
 magnet:?xt=urn:btih:3F9B3AFC2652620D44EFD06A8BB1D9AB69FB9990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Karen Lovely - Fish Outta Water (2017) [MP3|320 Kbps] <Blues, Blues Jazz, Soul>
 ```bash
 magnet:?xt=urn:btih:F7F77D32170C9CD3BEC0B8EBC4E119145D892DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ VA - 5 Years of Gravitas (2016) [MP3|320 Kbps] <Dubstep, Glitch Hop, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B41C31EF48F267F2604150293107A627D3F245A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ VA - Disco Hits (2017) [MP3|320 Kbps] <Pop, R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:125201B4C84B47DF375C012DD243B047FFF8A63C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ VA - DEF CON 23 - The Official Soundtrack (2015) [MP3|320 Kbps] <Dubstep, Glitch
 ```bash
 magnet:?xt=urn:btih:2EC18384074346DC139D0926E4B19E23281E064D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ VA - Buddha-Bar Monte-Carlo (2017) [MP3|320 Kbps] <Electronic, Easy Listening, D
 ```bash
 magnet:?xt=urn:btih:35EB070EADF30403339CAAC39EB94DC37ABBF6A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ SyncMate — это единственное приложение для син�
 ```bash
 magnet:?xt=urn:btih:05D413277816CAAE4652EA3C6B5348DF448CC697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ VA - DEF CON 24 - The Official Soundtrack (2016) [MP3|320 Kbps] <Dubstep, Drum &
 ```bash
 magnet:?xt=urn:btih:B3CB47326C5A378A50F6F70D3BB40AEA2DEE942E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EBDF2EBD92D2E32F34831FC54C9330F3A086051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

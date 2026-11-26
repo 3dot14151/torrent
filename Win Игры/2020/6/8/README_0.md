@@ -19,8 +19,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack xatab (обновля�
 ```bash
 magnet:?xt=urn:btih:20372E4EA90F20FBD5DD82F3CD4D90A84048A9BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ B5. Письмо Отца (Е.Мартынов - А.Дементьев и Д.У�
 ```bash
 magnet:?xt=urn:btih:0B82FB23B81E787EF08768040E6483CC7515582D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

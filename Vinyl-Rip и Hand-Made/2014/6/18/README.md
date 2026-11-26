@@ -28,8 +28,7 @@ Stevie Wonder - Солнце моей жизни (1988) [FLAC 2.0 24/192|traks(V
 ```bash
 magnet:?xt=urn:btih:8E2E6334FBB479D2081A94AE7C7ACCE071F762F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ A4. Mission(A World Record) (4:26)(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:BA838D758940C33A349AA194B3023C52A9E5973E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

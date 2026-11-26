@@ -22,8 +22,7 @@ Mortido - V (2018) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:C5A0EF220860AE92823F6249D6D44684579680A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F433E5364E094FCB83B2C19073B8F8296733B26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Euphoreon - Ends of the Earth (2018) Japan [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:85FE4CDAA9CBD2319F3AA3835AEB4BE4B5979F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Redemption - Long Night's Journey Into Day (2018) Limited Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:952FCD318F51E14C850BBA4680DA4826AE59ACC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:DE5ADB5D21F2D7270CF968214C42295C485EC6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Leech - For Better or for Worse (2018) [FLAC|Lossless|tracks + .cue] <Post Rock>
 ```bash
 magnet:?xt=urn:btih:EA40A5C3A5E677BA35EA75AEEE4276C86F8E1005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Axxis - Monster Hero (2018) [MP3|320 Kbps] <Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:797B584E1B0BFE30A7CFBD8A500E1E3750DADCD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:652BDD2361BF8584FB63AC485AD8302B6BE12900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Behemoth - I Loved You At Your Darkest (2018) [MP3|320 Kbps] <Black Metal, Death
 ```bash
 magnet:?xt=urn:btih:CB25BBF81BF699EDBFEC72EEA2BA0D2CB860FECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ John Lennon - Imagine (2018) The Ultimate Collection  [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1AB4D120AADC696D452B0D68B582EFE4E938E9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

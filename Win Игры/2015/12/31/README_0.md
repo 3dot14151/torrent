@@ -19,8 +19,7 @@ Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:34AECF282EF6DEFA3A004A20C957A33DB6EBD2D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Valhalla Hills (2015) [Ru/Multi] (1.02.01/dlc) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:A32E60DCC0A6C449D2D5F40DAE577E653C218F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Minecraft: Story Mode предлагает отправиться в попул�
 ```bash
 magnet:?xt=urn:btih:5BC39416C99EE6EA72BC16E186ABC4AD22DAC080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

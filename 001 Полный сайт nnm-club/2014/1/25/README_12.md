@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:FA7FB7E75B1BCE0DEA4F34520EF3468DFC6DEBB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A5DA29312F1D6FBC383C356396226197F4A160E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - After Sport Relaxing Tunes (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:294F1E110C5F59931A07185C7B2A9A8CB2592342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Jared Burrows (guitar)(   Читать дальше...   )Жанр: Jazz-Fusion�
 ```bash
 magnet:?xt=urn:btih:EAF405162886C8F6E51A9E674DE78877F9AA933D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ David Buchbinder - Walk To The Sea (2013) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:CB57ABA92113887D3FAE79381BB9696DF0530000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Doctorfunk - Second Opinion (2013) [FLAC|Lossless]<Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:7E1163092E40A45BEDD21F38F499859BA128C93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Buddy Guy & Junior Wells - Play The Blues (1972) 2CD /2014, Friday Music/[MP3|32
 ```bash
 magnet:?xt=urn:btih:478E11648C0AB37B5CCA0955D23EA3F68052AB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42483BE2D3028BB71BB9B92C49A699FD7B17BD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF5D7EC8D6640E1D2012AF71295C30FB5477911A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ Paul Motian Trio - Lost in a Dream (2010) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:9C65ED016F3130203457BD5B4B6D8D044F7620EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29D1E34D0C2BE5C0A5895B946FB7896C089E00AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Jason Elmore & Hoodoo Witch - Tell You What (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:4A3DD0F6E53E5CF4A83460C1E2CC1A5CDA43E8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ Sonny Stitt - Legends Of Acid Jazz (1996) [FLAC|Lossless]<Soul-Jazz, Jazz-Funk>
 ```bash
 magnet:?xt=urn:btih:EDA0477F4FFB2729B70D93F0BDB2D7E819651D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:957E2DB494A0CB1D3BE24C682F934909978490E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ Lyfthrasyr - The Final Resurrection (2005) [FLAC|Lossless]<Symphonic Black Metal
 ```bash
 magnet:?xt=urn:btih:EE5EE995DE97880445D1F17D3B980A9323CBF742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF28C68B0F2966DEE076FB40562CBC5427037A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93CF16949E7BB4E9066F5C0B0DDDBB8D6D20FA72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D6262A9B9312DD198DFCAA6AF93856AF57E079A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:862E2DBC723AEF50C4D599B69D58E0A0ACB811AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7733D927902C8298B375375FE12884035B3CC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ VA - New Age Style - Christmas Chill (2013) [MP3|320 кб/с]<New age, Chillout,
 ```bash
 magnet:?xt=urn:btih:1182A62643F437A8EF09C8EAED6137970ACF1463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E32B5CE21254061E5B6DB87CAB5BB7D5DE00C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ Stacey Kent - Let Yourself Go (1999) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:26694CBA003B0ECC2CD98172136DE6BE5343A560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8342282D58F68B3D1E9C80C11C1F5B56419156AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53D25AB20A4AE995F34FEE458208230058963C02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ Sonny Phillips - Legends of Acid Jazz (1997) [APE|Lossless]<Soul Jazz, Groove, F
 ```bash
 magnet:?xt=urn:btih:918D68A2AD2E6558B1D68B2AD462922E5F0FCAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

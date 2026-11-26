@@ -28,8 +28,7 @@ Pink Floyd - The Division Bell (2014/1994) [LPCM 2.0 96/24, DTS 96/24 5.1 | Audi
 ```bash
 magnet:?xt=urn:btih:D41D625B609F869D1DC58D87738714A2C2FD57EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

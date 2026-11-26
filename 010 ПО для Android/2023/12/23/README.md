@@ -19,8 +19,7 @@ Xodo PDF Reader & Editor - просто великолепное приложе�
 ```bash
 magnet:?xt=urn:btih:19E3385FBCF0095427E9A0CB8362DC2F850C49E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:4AD8AA488A4ABF4D305FE79CDFFEB0113DDBD018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Xodo PDF Reader & Editor - просто великолепное приложе�
 ```bash
 magnet:?xt=urn:btih:D0F7A70B9012A3FE264BE749B4CE38ECF0B717F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Bjorn Johansson - Discus Ursi (1998) [MP3|320 кб/с]<Progressive Rock, Symphor
 ```bash
 magnet:?xt=urn:btih:A16E1D256FA2C32BB7BF1240FBEDBA5E5F5B3C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Boppin' Pete 3 - Dorkabilly (2012) [MP3|~245 кб/с (V0)]<Rockabilly, Rock & Ro
 ```bash
 magnet:?xt=urn:btih:60418C34F6050A027FF428694C9D002DC030B394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ The Kelly Family - Live Live Live (2CD) (1998) [MP3|256 кб/с]<Euro-Pop, Rock,
 ```bash
 magnet:?xt=urn:btih:7A9975C52FAD562E109F67D645CFD789C38B6EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Schlafes Bruder - Heute War Gott Nicht Hier  (2013) [MP3|320 кб/с]<Symphonic 
 ```bash
 magnet:?xt=urn:btih:18B131C2A85BA0EF03175FDF4C9FAD2C89276506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

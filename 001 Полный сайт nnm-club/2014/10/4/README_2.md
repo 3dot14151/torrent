@@ -27,8 +27,7 @@ Nat King Cole - After Midnight (2002) [FLAC|Lossless]<Jazz, Vocal Jazz, Piano Ja
 ```bash
 magnet:?xt=urn:btih:71EE9A2C3CA6A6C12A801B8452C91E30383FCC87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEAD3932907238B32AFD9018374086B94BB326F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Circuito Cerrado - Distortment (2014) [MP3|320 кб/с]<EBM, Power Noise, Hardс
 ```bash
 magnet:?xt=urn:btih:D9DFA728648A974C7761C7667C1976B20A56AE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Voicecoil - Awakened (2014) [MP3|320 кб/с]<EBM, Futurepop>
 ```bash
 magnet:?xt=urn:btih:3C25FA08111A97CE6B25DFEDF562D4C1CA098C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Blake Neely - Стрела / Arrow (Original Television Soundtrack) (Season 2) (
 ```bash
 magnet:?xt=urn:btih:5CAD055653E96384C7D0173B76D6D6C0880EA253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6B746205882A57F71A293D658F1F84E65BADE62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:652706B78B3E82413D1E901DA0AF27E1EEF0F528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Various Artists - Balance 026 (Mixed By Hernan Cattaneo) (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:4E38074694E4129BA0F690A8115A8221A7F74701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ Fly By No - Endless Space (Original Soundtrack) (2012) [MP3|320 кб/с]<Soundtr
 ```bash
 magnet:?xt=urn:btih:149FDFF251F14FBDFBFB266DA59D963774C247E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ BitTorrent хочет стать сертифицированным RIAA муз�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94E1FA5A5F463E73B07C25F12BAD84F50EAF50FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5F0EA81C5ECE6E371861EC59DD3CC61A9A53CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ Roger Waters - Star Profile (2001) Bootleg[MP3|320 кб/с]<Progressive & Art-Ro
 ```bash
 magnet:?xt=urn:btih:D25A7858705142D9E30C8D2245D9E6481BA1AB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ Piano Sonata No. 12 in F major, K. 332 (K. 300k)
 ```bash
 magnet:?xt=urn:btih:A5786BF60CBF7CB9E591511E44A4FE5016EB65F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:786FB427F5C0E71DC06856F59C19F96D7700C19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ Auslogics File Recovery - простая и эффективная в испол
 ```bash
 magnet:?xt=urn:btih:3CE3981F0DC6BBB86F3DB046AA950601F0E4A30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CB39F24E787919DAD30FF84A3537673AEB994CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:9FB9C970A3C06E5F8303955C5B358263B5778FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EECA528C46D7349B9000E324AD4785CD6B2B792F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ Lady Antebellum - 747 (2014) Delux Edition [FLAC|Lossless]<Country>
 ```bash
 magnet:?xt=urn:btih:CA85ECA00AEFA3C6B3F86B5550AC50CDBE1116F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +648,7 @@ A-ha - The Singles 1984-2004 (2004) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:77F436DD362343CD7795C927F2B5E5050D5BE66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33FBFD30CB7C96C0B5C40EF10495FE46A94D1791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFCE864E4C514BD262AD631EEACD709346F5A535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BADE0A1BC7CCD546248D871BB8E5251467681B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:377D4CC467411EEE2CEBEF5D5B49472B2D3D4325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

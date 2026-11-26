@@ -19,8 +19,7 @@ Motor Town: Soul of the Machine / Город-призрак. Проклятие 
 ```bash
 magnet:?xt=urn:btih:672F4B78F5D4BE88DD79FB6401AF2017DDEA2423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales 5: Bloody Mary Collector's Edition / Страшные Сказки: �
 ```bash
 magnet:?xt=urn:btih:CC0C79D12F9BF3A5EEE8C298E15FC41E5A3274CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Catan: Creator's Edition (2013) [En] License FANiSO
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Anna: Extended Edition (2013) [Ru/Multi] (4.1.5.67491) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:46EA7EC3E73DEB5493DE410C54F3FEEFC389D9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

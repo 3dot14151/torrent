@@ -28,8 +28,7 @@ Stanza - Дыхание (2010) [MP3|320 kbps]<Modern Rock / Nu Melodic Hard>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Diablo - Дискография (2000-2008) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

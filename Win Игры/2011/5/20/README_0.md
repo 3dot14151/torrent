@@ -19,8 +19,7 @@ Mystery P.I. - Lost in Los Angeles (P) [En] 2009
 ```bash
 magnet:?xt=urn:btih:8ABD428E8A0EBFFFBEC451D2539AF4F7417C0BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery P.I. - The Vegas Heist (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:B7930E5D5ADC110C8FD9CB3B2CC09D6C60EE488D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Treasure Hunters 2  / Охотники за сокровищами: Тайны �
 ```bash
 magnet:?xt=urn:btih:91083B91650C426E6E9495BB22249336FD99CA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

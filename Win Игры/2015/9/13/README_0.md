@@ -19,8 +19,7 @@ Killer is Dead - Nightmare Edition (2014) [Ru/Multi] (1.0) Repack R.G. Games [Ni
 ```bash
 magnet:?xt=urn:btih:F077D1CEB0456F4EB8FD1F9F3E199B292C78DD87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

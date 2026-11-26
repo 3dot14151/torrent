@@ -23,8 +23,7 @@ Mad Riders – аркадные гонки по бездорожью от соз
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Red Orchestra 2: Heroes of Stalingrad [Ru] (RePack) 2011 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D71EA4CF8F9DAA5B59A7C052F5C9754A696FA94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Chicken Rush Deluxe / Куриная месть. Снова в деле (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:D1C3563D620A2D95959A54C27881806BFA8D0E55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Build-a-lot: On Vacation / Построй-ка. Каникулы [Ru] (P) 2011 (
 ```bash
 magnet:?xt=urn:btih:2F757DE6BCA0D5453EDC257D2C0068B770C260F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Haunted Hotel II: Believe the Lies / Проклятый отель 2. Паути
 ```bash
 magnet:?xt=urn:btih:DEF1D8327923802D20BEF2A4FD294B56C89B4E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Build Alot On Vacation / Построй-ка. Каникулы (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:4D3BABD478384882CAD7B995501EC28E7641F23D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Dark Heritage: Guardians of Hope Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:E578176A3BB9BAF09990521FB88626DB2FAA09E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

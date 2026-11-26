@@ -21,8 +21,7 @@ Beneath a Steel Sky (1994) [Ru] Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:704A59C2E8090AE9BF501FE54A02E1ED480B3DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

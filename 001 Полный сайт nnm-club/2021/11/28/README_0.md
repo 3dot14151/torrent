@@ -21,8 +21,7 @@ VA - Dark Melodies, Vol. 4 (2021) [AAC|~330 Kbps] <Progressive House, Techno>
 ```bash
 magnet:?xt=urn:btih:FAA13DD27BB692132E179B41995512FD8569A4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Berlin Rooftop Sessions 2k22 (2021) [AAC|~308 Kbps] <Melodic House & Techno
 ```bash
 magnet:?xt=urn:btih:B58241409D409F9FE711915CBBC0B02B8AB93394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ PhotosBlender «обрежет» результат, чтобы он соотв�
 ```bash
 magnet:?xt=urn:btih:964B9CA5D8131F00C4D083ED5A2B13AC744AD66A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VideoProc - новая усовершенствованная версия пр�
 ```bash
 magnet:?xt=urn:btih:6BA13E42A56CF85932DED04074FD1104835EB30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ WonderPen - приложение для как для профессиональ
 ```bash
 magnet:?xt=urn:btih:E3AA8B3819DE3779B4228D0F1BB23231FAB59B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ VA - Rail Tail (2021) [AAC|~337 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:1350B841322150D506490E3F83D57040F1A82D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Valentina Studio - это идеальный инструмент управле
 ```bash
 magnet:?xt=urn:btih:34692D83EDFD909D154BD822F5524130B81A7638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ VA - Dark Melodies, Vol. 1 (2020) [AAC|~324 Kbps] <Progressive House, Techno>
 ```bash
 magnet:?xt=urn:btih:2BDEADDBA81BA0A31F366EAA993768187A9822B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:A4A70B757AE5F6295250D5FB2D4386168341A863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ SubsMarine 1.3.0 fix [En]
 ```bash
 magnet:?xt=urn:btih:EF7AC70AE308C5E352DDBA7FEDA6CB1508D56344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Chaotica - это приложение фрактального искусств
 ```bash
 magnet:?xt=urn:btih:1207C589B96BB666D212227BD74F7EDEE75E1217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Astral Doors - New Revelation (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0BDD455BE4D0D11C49FBFE9EAB4F374F12939E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Tipard Mac Video Converter Ultimate 10.2.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:0E4717F40A5AA704587F0843B4E6CA09868DD481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ VisualDiffer сравнивает бок-о-бок папки и файлы с �
 ```bash
 magnet:?xt=urn:btih:3DD1C329A3F68DE26C7B27931E26705086D0E3B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Alexandra Shakina - All The Way (2020) Venus Records [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:D3898403C0C1B5FCE87942BD7086C96E5401FB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ DeafBrood - Hell Reel (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:35B6677EAF20B39A6D426D6D562C6896B2F121FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ VA - The 100, Vol. 1 (2021) [AAC|~330 Kbps] <Progressive House, Deep House, Tech
 ```bash
 magnet:?xt=urn:btih:1EF8E6E593AFA9408B6276F55286A27A917240EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1F5F9AEFB0809AC6987DE759F06DBDD6066990C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E77EC7A070EB16B07AF460203A8562429101C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ MiniCAD - это небольшое приложение для просмотр
 ```bash
 magnet:?xt=urn:btih:10997303DF89B5D54B2401BA01A45DFCC4F9950F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ Andrew Rayel - A Place To Find Your Harmony #3, Chisinau, Moldova (2021-11-14) [
 ```bash
 magnet:?xt=urn:btih:2E0B0BB0B7A9483C2E14D5F035FFA2FE10E48255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ VideoProc Converter 4K 4.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:BBC1B738275A14FFADDC48661F1965AF66DD88E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ Pink Floyd - Chillout (2021) [AAC|~320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6A3C729DEB4A783E0992A8864F5752086C200998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ Typora дает вам безупречный опыт как читателя, 
 ```bash
 magnet:?xt=urn:btih:93F4BB05AD21A560C70AAD15EFDC64E2C60FFC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ Omnium Gatherum - Origin (2021) [FLAC|Lossless|image + .cue] <Progressive Metal,
 ```bash
 magnet:?xt=urn:btih:07ED8B3A50D34EA0B1C6A52891DFDAC770012E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0204CC9C6E80D412833E0A8B731BBD65598C8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

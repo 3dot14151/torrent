@@ -22,8 +22,7 @@ WoodScream - фолк-метал группа из Санкт-Петербург
 ```bash
 magnet:?xt=urn:btih:F706457ED67CA3E25B467667BBE9EB07109DDA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:DD77480CC8B9599FF7572FBE9010EF646776E743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

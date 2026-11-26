@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4EE585AF8272C1795F97FA5D98C8E87B98DE2B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAC4CA24A9F43EB755AFBA97E61E0CC730DCB918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43F4D6030717F4687A9DC2A87084625F4EE95D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Microsoft Windows 10 RTM_GDR 10.0.10240.16393 (esd) [Ru]
 ```bash
 magnet:?xt=urn:btih:9A95CCB97BF2AE13B505AC519C6F8245D54877FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Microsoft Windows 10 Insider Preview 10.0.10547 (esd) [Ru]
 ```bash
 magnet:?xt=urn:btih:95E69F6E057DC5B80925B3D72F7C5C67E326979E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Cyberlink YouCam – простая программа для создания �
 ```bash
 magnet:?xt=urn:btih:C0A3E4BF867F2063806B305361AEE0EA6ED1108D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E41F74215C5E0D9253126750FD5B750D4BDDF717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17DC9DC56CD3DEDE57519CC20F5C8D1375642CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35528C2E1119C6A61607781C8FDF1AB694AC7FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Katawa Shoujo / Disability Girls/ Калечные девы (2012) Ru,En,Fr,Es,J
 ```bash
 magnet:?xt=urn:btih:2FF8487FCF547660971CACC9809393B3459851CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ VA - Metal Goes Acoustic (2014-2015) [MP3 l 192-320 кб/с]<Acoustic Metal>
 ```bash
 magnet:?xt=urn:btih:F8803BB8E8F130C05A9F9835A7CE273001ECC660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:434C2B8D1282143396850E5366856707CC746DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Half-Life 2 Beta - это Half-Life 2 на стадии создания от 19
 ```bash
 magnet:?xt=urn:btih:4933E6B42218DE1640420AC6304D21595908F80D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ FIFA 15 (2014) [Ru/Multi] (1.8.0.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:CC66A44540839BF477E2827F71B9E339ADC3E415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

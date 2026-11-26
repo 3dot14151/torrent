@@ -19,8 +19,7 @@ Sandwalkers – это пошаговый «рогалик», где главн�
 ```bash
 magnet:?xt=urn:btih:9762B02336B3D91B04D63135CD0804DFB7C6BAA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CC1B1F0BA770A1D50A947B110BD1EC51AD9F6543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spacechem (2011) [Ru/Multi] (1016hf) License GOG
 ```bash
 magnet:?xt=urn:btih:0250D0C00F2A5DCF2CCD3BBFD447EFE70EC344C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Coridden (2025) [Ru/Multi] (1.3.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:2907D4505CE21B7E13548B57DA606F570616D64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pocket Bravery - динамичный файтинг, знакомящий с х
 ```bash
 magnet:?xt=urn:btih:A6A487BCBD29584EAA44155DB010C8F7D5C3489D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Post-Apo Builder показывает постапокалиптический �
 ```bash
 magnet:?xt=urn:btih:F51B38B6E315A17C7885766F7C7DA97E230BFBFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5D8CEF14F5D98956EECC00638400AEC724F439B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ DOOMER SIMULATOR погружает игрока в жизнь человека,
 ```bash
 magnet:?xt=urn:btih:755B76B4AB4B85B761C54E424DF88DF06FE5936F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

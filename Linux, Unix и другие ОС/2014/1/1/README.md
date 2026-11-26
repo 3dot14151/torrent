@@ -19,8 +19,7 @@ Tango Studio - полноценный Live (GNU / Linux) DVD дистрибут�
 ```bash
 magnet:?xt=urn:btih:6E5EB1A3376E87E411FD177AEFE2E56EA711609D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Scientific Linux 6.5 Live Beta [i386, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:8321E6E6334A2906BDAF04F2077435D2BDDBDDA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Debian GNU/Linux 7.3.0 (LXDE, KDE, XFCE) [i386,amd64] 6xCD
 ```bash
 magnet:?xt=urn:btih:45755A34145CD5F25EDABDE1A710E16FA6F0AC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

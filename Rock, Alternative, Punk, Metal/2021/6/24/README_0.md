@@ -22,8 +22,7 @@ The Tung Bandits - The Tung Bandits (1990) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:BD5423ADD08621DF8F40C4FD117DFC383AC5CC0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

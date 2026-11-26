@@ -19,8 +19,7 @@ Warhammer 40,000: Dawn of War - Soulstorm - самостоятельное до�
 ```bash
 magnet:?xt=urn:btih:0CF4CA4D223ACBE10A6DFB1E38676340BE599A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Questron II (1988) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:8EE28C8334955284F777C8C23F72A18B39302965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Trek: Judgment Rites, продолжение игры Star Trek: 25th Anniv
 ```bash
 magnet:?xt=urn:btih:ABCB36DFC2A225E59EF0F440CA767C41184C9241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ VVVVVV (2010) [Ru/Multi] (2.4.3) License GOG
 ```bash
 magnet:?xt=urn:btih:7AAC84F235F696E7B849E0A9797B7C3C9F18ADBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Star Wars: Rebellion (1998) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C344B5F28E6216060712649D0E73E131567437B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

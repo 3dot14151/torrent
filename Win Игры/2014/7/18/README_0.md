@@ -19,8 +19,7 @@ Dead Reckoning: Silvermoon Isle (2014) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:909488608575B7FA94B30ACB1946C0DD655CED65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ominous Objects: Family Portrait (2014) [En] Unoficial [Collector’s Edition / 
 ```bash
 magnet:?xt=urn:btih:97B8AAD48B2FA63813C190971D53C58BBEAE5757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

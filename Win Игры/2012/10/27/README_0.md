@@ -19,8 +19,7 @@ Twilight Phenomena: The Lodgers of House 13 Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:7C6D6AFA219E0ED598D4CB2D39B15C4B21D39F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Gift [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:8228886858E1E85EDA931393FE3EF31EAEEAEF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hidden Path of Faery [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:B7DA1FC71AD048E77361D8C898F54E55F38EF119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ King's Bounty: Воин Севера (Русификатор/1.0) [Ru] 2012 | Se
 ```bash
 magnet:?xt=urn:btih:C078151B507000677E81FF346110D65B2A44BD91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Lost Inca Prophecy 2: The Hollow Island / Древнее пророчество 
 ```bash
 magnet:?xt=urn:btih:13E6729509C584D3E9EF488663D6C30AAED8B2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Farming Simulator 2013 сочетает доступный и интересны
 ```bash
 magnet:?xt=urn:btih:9DF240F0211A20BFCEF0854CEB3B72A1C5DC8822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

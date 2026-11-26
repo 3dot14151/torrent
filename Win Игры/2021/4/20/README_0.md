@@ -19,8 +19,7 @@ WarriOrb — это экшен-платформер, где ты играешь 
 ```bash
 magnet:?xt=urn:btih:6B2F05F73A09D90D3F5C20AF87E616FC287DAC31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

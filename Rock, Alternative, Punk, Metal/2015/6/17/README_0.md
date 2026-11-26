@@ -22,8 +22,7 @@ Dew-Scented - Intermination (2015) [MP3|320 кб/с]<Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:3EFA5D2484F3C45715C59F6BB8259EF3B4623589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kegan DeBoheme - Songs of Woe (2015) [MP3|320 кб/с]<Classic Rock 70's>
 ```bash
 magnet:?xt=urn:btih:792742B94E181D227AE1E5BC171955C78F2CF25D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dagoba - Tales Of The Black Dawn (2015) [MP3|320 кб/с]<Groove, Melodic Death 
 ```bash
 magnet:?xt=urn:btih:8019BDFCF5161C972F608407BF564B49C73C26C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Darker By Design - Sinister At Last (2015) [MP3|320 кб/с]<Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:084DD5CD0F043DEE636854B4E2B446E810B9F3CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Whispered - Sakura Omen (2015) Single [MP3|320 кб/с]<Melodic Death Metal, Fol
 ```bash
 magnet:?xt=urn:btih:590E569D5EEEEB99638AA5F7B38732741CF3EB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Palace Of The King - White Bird - Burn The Sky (2015) [MP3|320 кб/с]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:D4042CB282793B498F6A9FB7F89701D181FE44EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Fire - Could You Understand Me (1973) Reissue /2005, Skyf Zol/ [FLAC|image+.cue]
 ```bash
 magnet:?xt=urn:btih:236FC50A128088AFDB2677C11C0E68F6C3D3F66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - Classic Rock Presents: The Sound of 2015 (2015) [MP3|320 кб/с]<Classic R
 ```bash
 magnet:?xt=urn:btih:0558C053DDB6E6F5310393F1E66B117C218C0590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Emergency - 2 Альбома (1971-1972) Reissue, Remastered /2005, Green Tree/ 
 ```bash
 magnet:?xt=urn:btih:986584CB4F5A8CD7497492CD1947E17AED45A782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Plastika - Лети, лепесток (2015) [MP3|320 кб/с]<Alt. Rock, Grunge
 ```bash
 magnet:?xt=urn:btih:E5DCB51AA1CB5669666FB610BBEDBD72EAEEF024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

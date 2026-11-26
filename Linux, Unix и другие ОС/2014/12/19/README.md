@@ -19,8 +19,7 @@ Kubuntu 15.04 Vivid Vervet Alpha I [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:59657C58F5D0736259D98CA737574FACBE475F62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:3950FF7DEA404E2C55F92291BE8D128947BA4E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ```bash
 magnet:?xt=urn:btih:7BD75BA65E81009B7D59054B8B97A98EA3C5B6A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

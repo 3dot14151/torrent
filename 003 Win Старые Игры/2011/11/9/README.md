@@ -19,8 +19,7 @@ Magic Carpet 2: The Netherworlds [En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:5019EAE18A162790A6C446B07F2AE5BBF82D9B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ American Chopper [Ru] (L) 2004
 ```bash
 magnet:?xt=urn:btih:D15A5A74E3C70C0CA24268DE737CC47D42EB3C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

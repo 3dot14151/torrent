@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4A170DEDB10E29ADC3695968DC9F2BF446D84310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Beyond: Light Advent / Извне: Пришествие света (2015) [Ru] U
 ```bash
 magnet:?xt=urn:btih:6C963989D35316139518699E8C1543538B8F0C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5E901DB952A7AF3491ABB3A22A8D7B7EEEB8ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D958314202EBFE64BD85F9194CE3408846674D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ AIDA64 (бывший Everest) - утилита, являющаяся мощны�
 ```bash
 magnet:?xt=urn:btih:AAE2238212B99802B32C778DFA16B064792449E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ RollBack Rx ™ является мгновенной машиной време�
 ```bash
 magnet:?xt=urn:btih:1418B188D71129B3DEFDFF4A192677680A2B1C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Kyn – ролевая игра, действия которой развора�
 ```bash
 magnet:?xt=urn:btih:F54CD2B66C4501210420015FB3DA10CF192E2522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Velvet Assassin (2009) [Ru] (1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:B753A4174A8E313A338C1AAD9742EA3D850ECA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ V-Ray — мощная система рендеринга которая хор
 ```bash
 magnet:?xt=urn:btih:484A0CE610D9A573C6233090F4F24633D8859458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DA2F61F051F3F7261C350C6C286A8001E1F1C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Miles Davis девять раз становился победителем пр
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ History Channel. В изоляции / Alone (2015) SATRip (1 сезон: 1-10 �
 ```bash
 magnet:?xt=urn:btih:0078A623D02E2539D810BCE428959DDD861E9F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Windows 10 x86 x64 DVD-USB StartSoft 58-59 2015 [Ru]
 ```bash
 magnet:?xt=urn:btih:31242A98E36DA401A3CDE0505FE066D4D0DE0AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0459D6F78CB397DAA5B125CA9AEF4DABEBFFD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ SnagIt предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:2EEE0D57A71F747F013EBEFB7485251D20AB3D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:E2009B59989D34CA6C6E68FE0E0055508733160D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.0.1.3005) Repack R.G. Ме�
 ```bash
 magnet:?xt=urn:btih:A51F84049A63B41EA6A5D4E3E11C02DFFC4F0DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ LittleBigPlanet 3 / Little Big Planet 3 (2014) [PS3] [EUR] [4.65] [Cobra ODE / E
 ```bash
 magnet:?xt=urn:btih:B8D6B642FD80081C789E3C0A88FCC013CE8E2D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F2B1B842379292C0BE3D771D9C351367F9652F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA0FAF5E6F1D2AEE2D77143CD1AFEB2BB02360A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:856F308401AAEA4BCC7828BA84C05718E9D3CC92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +599,7 @@ Camtasia Studio - мощная утилита для записи изображ
 ```bash
 magnet:?xt=urn:btih:4008BDCEFE33F2F23C1DACCD1A27BAF318DFC519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46B2D5B0244C1C73D7BA046016289D6DD74E4D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +649,7 @@ Dead Rising 3 (2014) [Ru/Multi] (1.0.0.6/dlc) SteamRip Let'sPlay [Apocalypse Edi
 ```bash
 magnet:?xt=urn:btih:1845555D0CD3E2E5F947773A88724BF6B7B65DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

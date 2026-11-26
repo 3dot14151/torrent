@@ -19,8 +19,7 @@ Farmington Tales 2: Winter Crop / Фармингтонские рассказы 
 ```bash
 magnet:?xt=urn:btih:3623413302D3E8239A95304FDD46B764C812206F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Christmas Stories 2: A Christmas Carol / Рождественские истор
 ```bash
 magnet:?xt=urn:btih:013E13054D7D9E52AF0FAB867CD3EDB9A792B92C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

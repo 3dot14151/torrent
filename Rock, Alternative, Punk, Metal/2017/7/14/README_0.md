@@ -22,8 +22,7 @@ Silverstein - Dead Reflection (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative 
 ```bash
 magnet:?xt=urn:btih:C0B5B69DF77974B9C9FCEF5D40E3D8C494649193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Status Quo - The Last Night of the Electrics (2017) [MP3|320 Kbps] <Classic Rock
 ```bash
 magnet:?xt=urn:btih:B2E015DB5D75C98CB2ED78624EF9B3A5FFB07299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cradle Of Filth - Cryptoriana - The Seductiveness Of Decay (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:6C46B2A7061066B927CA70D7B65940764ED4AE3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

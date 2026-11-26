@@ -22,8 +22,7 @@ Purvpn 9.5 [En/Farsi]
 ```bash
 magnet:?xt=urn:btih:49CB05D33D75580A189FB0195480C95423A29612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ My TTS: Text-to-Speech v1.5.4 Mod by Alex.Strannik [En]
 ```bash
 magnet:?xt=urn:btih:5E43B420D86F8292936882EBC351AFD2BD18897D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Material Pods: батарея AirPods v6.68 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:632EA445FA729B6C930CEE2E9BF05E9FE94D2D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

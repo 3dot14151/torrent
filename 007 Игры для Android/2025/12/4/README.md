@@ -19,8 +19,7 @@ Word Surf ‒ это новая оригинальная игра-головол
 ```bash
 magnet:?xt=urn:btih:1B06F51554B970086E007EEC6C99836546215791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Words of Wonders: Игра в слова v5.3.8 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FB06B3F51A90F3A6841129BA2D18B713781EDE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

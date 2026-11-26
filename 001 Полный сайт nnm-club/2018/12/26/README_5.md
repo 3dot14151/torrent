@@ -22,8 +22,7 @@ Me Vs Hero - Days That Shape Our Lives (2010) [FLAC|Lossless|tracks + .cue] <Pop
 ```bash
 magnet:?xt=urn:btih:82AFC07F23FBAD15EF0BD370216D93CFD55F6317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Meet Me In St Louis - Variations On Swing (2007) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:8070739BB10677C94C1F82CA16937CC41372DEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Kargol's - Invertébré (2002) Sampler [FLAC|Lossless|tracks + .cue] <Ska, Hardc
 ```bash
 magnet:?xt=urn:btih:BD9D6ACD1282CC0E680A8A3C20C45B092D337B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Hassle: Volume One (2007) Compilation [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:90BC09D723A10D9BB4F8AB6DC174FDABDBE26615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Les Cameleons - Todos (2001) Single [FLAC|Lossless|tracks + .cue] <Rock, Ska>
 ```bash
 magnet:?xt=urn:btih:F9CEB2997B0C29BC73B16CAB8C08CD2072790B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Roy Hargrove - The Vibe (1992) BMG Novus [FLAC|Lossless|tracks + .cue] <Post-Bop
 ```bash
 magnet:?xt=urn:btih:192A0D2ED2311EAA43C6DFBD7E1FCC86F4E90A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ MarsEdit 4 v4.2.4 [En]
 ```bash
 magnet:?xt=urn:btih:A8031F729CD9B7284F7FCE035E2EBFAC97BE7E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Metusa - 4 альбома (2009 - 2016) [FLAC|Lossless|image + .cue] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:51EDF73E66CA7A892E8C23F8E16282725DCC9DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1C821997D426EEFA2A1194A344CEE18179DA577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Dirty Ducks - Yearmix (2018) [MP3|320 Kbps] <Electro House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:B695E35BFA2B5A39A3F05C585CDD22084953753D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Even The Trees - If Only Everyday Could Be Like This (2018) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:FC7ABF02612A9A1B9EAC5661AB06185A03D0F5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ VA - Abora Progressive Best Of 2017-2018 (Mixed by Mhammed El Alami) (2018) [MP3
 ```bash
 magnet:?xt=urn:btih:02D7DFDDF9041091467B5DA301AB11A7C5FDD825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ SmallCubed MailSuite 1.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:6AAB245C265F61FBE823079244F1ED67B2AE963F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88299E2AA924FA81493FE07A1183255D2C38D05C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Phlebotomized - Deformation Of Humanity (2019) [FLAC|Lossless|Web-DL|tracks] <Pr
 ```bash
 magnet:?xt=urn:btih:FFBC210E22914ED3EA3D0E0D76B8A6AD28F113FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ VA - Best Of Trance Vol.09 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:37835717940CC55639F2CB6390498B38FA364FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FA7DB89C59F18F328B367CEDE1ACCCBDEE53562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCE1BE8EB124290BF61252ED5D0210D740FD14CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D263CFF582F2CF9513FAA3113B6BC8DECCB9FF05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ VA - The Best Of Suanda Music (Mixed By Roman Messer & Ruslan Radriges) (2018) [
 ```bash
 magnet:?xt=urn:btih:CC88F8B71A39B95FA15AA24EE97CAC44FEC538E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14CAC74ECE76584C5F522A7B2831C0E95123B59C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ VA - Smooth & Relaxed (2018) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lounge,
 ```bash
 magnet:?xt=urn:btih:8BEDB75D3186DE0735B258E5FBEF5B44E2CDDFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Frank Sinatra - Christmas Dreaming (1987) Columbia [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:7B338E45C7B461974A7F6D454B6DBE158D3F3372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5C36D2A623400EC3010C922CACDEEDA4B2C5DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ VA - Black Hole Trance Music 12-18 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D78031D2271F811288108303C2E56930AC5A255E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ SZMC - Dark Energy - The Album (2018) [MP3|320 Kbps] <Spacesynth, Synthpop>
 ```bash
 magnet:?xt=urn:btih:BA5C4D6FFDEF48F02C950F472D6E5E5B5FDD7608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

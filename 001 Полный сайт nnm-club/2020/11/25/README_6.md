@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1E42CC5CF773B1B1FA29DF8E30938C957DE5A7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ HAYDEE (2016) [Ru/Multi] (1.09.11) Repack Other s
 ```bash
 magnet:?xt=urn:btih:ED58DB394C1AEEB8FA13A2BFD00F46EDA669581F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

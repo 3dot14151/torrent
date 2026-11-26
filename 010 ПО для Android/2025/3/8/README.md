@@ -19,8 +19,7 @@ PictureThis - Plant Identification v5.1.4 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C7B37CCBA3BAD606428A4EAA62777C5ABC24F6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Photo Mate предлагает библиотеку фотографий, в к
 ```bash
 magnet:?xt=urn:btih:654F0DA6C085D648B06F5903F1E7DBFE84E66594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BD2A5B9BF1993288CA7303EAAD4A902C9745059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 ```bash
 magnet:?xt=urn:btih:6BDF6EDCF2A07ED1F7646BD9181947CBCBB7E48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

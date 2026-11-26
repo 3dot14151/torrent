@@ -19,8 +19,7 @@ OpenOffice - бесплатная альтернатива пакету офис
 ```bash
 magnet:?xt=urn:btih:A07F492ADE2D3336188FC92F2A32D4F708CFBE0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

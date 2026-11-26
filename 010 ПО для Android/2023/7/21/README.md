@@ -19,8 +19,7 @@ Videoleap by Lightricks - весьма впечатляющий своими к�
 ```bash
 magnet:?xt=urn:btih:C11B3C12BD8EEA799570CC58F9AB8EAFF7581BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alight Motion - это первое предназначенное для сма
 ```bash
 magnet:?xt=urn:btih:F12411F0EBC958478A1F458FB1EE40C99F10ED69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

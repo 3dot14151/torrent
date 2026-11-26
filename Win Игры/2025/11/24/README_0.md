@@ -19,8 +19,7 @@ Speed Demons 2 - аркадная гоночная игра с уникальн�
 ```bash
 magnet:?xt=urn:btih:6B63048644A88B6AC2FDA56F10598C71641554B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phoenix Wright Ace Attorney Trilogy (2019) [Ru/Multi] (Build 20282248) Repack Le
 ```bash
 magnet:?xt=urn:btih:5F2957649378A6A56E2DD10C3925642C576ED01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.2.0.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:56691AC91F81596286C48D1ECC6A7E14D69ABE09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.1.6) Repack Necros
 ```bash
 magnet:?xt=urn:btih:026DD76AFF6698F644FF49EA8B0FC21CB1A145A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Chivalry Quest: Sword and Flame (2025) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:3F6CE11EDC1C204090B7E89ACE407256B35CB21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

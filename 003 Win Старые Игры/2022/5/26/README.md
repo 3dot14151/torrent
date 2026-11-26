@@ -19,8 +19,7 @@ Castlevania: Lords of Shadow 2 является продолжением при�
 ```bash
 magnet:?xt=urn:btih:C21BF26553DF475929C9F0B61B7B15E065B2F51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

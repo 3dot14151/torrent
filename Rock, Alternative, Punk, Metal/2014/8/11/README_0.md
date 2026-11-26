@@ -28,8 +28,7 @@ Winter in Eden - Court Of Conscience (2014) [MP3|320 кб/с]<Symphonic / Gothic
 ```bash
 magnet:?xt=urn:btih:09BD992D2B45E88A50904AF095275B185C54E993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

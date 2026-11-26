@@ -22,8 +22,7 @@ Gus G. - Quantum Leap (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Guitar 
 ```bash
 magnet:?xt=urn:btih:07FD31B137C945A12931B885607740AB446304D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Roderick Falconer - Victory In Rock City (1977) LP [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:E1B6F9671DBFE7FF7604EC4122058332D77EB785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - DJ Beats Chart 94 (2021) [MP3|320 Kbps] <Pop, Dance, Dubstep, Disco>
 ```bash
 magnet:?xt=urn:btih:DE2D19E4CAFB598BB29722C66653B5E88C5A3230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Humphrey Robertson - Essentials (2021) [MP3|320 Kbps] <Eurodance, Euro-Disco>
 ```bash
 magnet:?xt=urn:btih:ABA6E288AC68B65789B4B300C1E71241CA914ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Dream Theater - Train Of Thought (2003) Reissue, Remastered, 2009, Elektra [FLAC
 ```bash
 magnet:?xt=urn:btih:F24A6E9805719D22FCE3F4D4C831F5986B572286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42B79BFED5FC5DC86744B83B2B74EB732A3710DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - Promo Only Alternative Club November (2021) [MP3|320 Kbps] <Club, Dance, Du
 ```bash
 magnet:?xt=urn:btih:D515FC33B1BCB2ED67DEFE6D2EB4135203C1AF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D6690A3849AB99A077AC87962A59602FECF6463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E7178C2D416F341F15745CC022537B5A150BDCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB0B11A083AEEDECBCD6107783444F94E8ADCCA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ VA -  Motown In the Mix (Classic Mixes) Vol.6 (2021) [MP3|320 Kbps] <Electronic,
 ```bash
 magnet:?xt=urn:btih:9BEA1FF98EAA436F43AA93547E9D29BD4B24A98C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Dream Theater - Master Of Puppets - Live In Barcelona (2002) Reissue, Remastered
 ```bash
 magnet:?xt=urn:btih:F48DB2718DFC9DD069D5C685ABFC74C9FDB4700E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ VA - 35 Best Aerobic Hits (2021) [MP3|320 Kbps] <Pop, Dance, Electro>
 ```bash
 magnet:?xt=urn:btih:01E0EA5A43ABD45212F0D714FDA621F574B91F01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Grinder Blues - El Dos (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Roc
 ```bash
 magnet:?xt=urn:btih:E4C78908291214BDC022681BFFC31E6E5B3B08C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ b. Race Against Time(   Читать дальше...   )Жанр: Progressive Ro
 ```bash
 magnet:?xt=urn:btih:967442D8E478EFBABD47799E93468CDB18EFA712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B92CE9DCFCF2201FAB551C05F4FAF813C1D4B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B433A6A9907232B7C14CDA28537BAD372A64B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:456FADCFD99CD51B2DD88FDC76C82EA317BBB630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Harmony Cats - Harmony Cats (1982) LP [MP3|320 Kbps] <Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:CD4005B1A9443E33F531C684F11F3D58162678BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C8F22D63DAA1127862F9A934A10165B1703A98D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEC62C61F855ACBFE191798BD13B8C7945D2956D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ Lisa Nemzo - Out of Desire (серия "Другие восьмидесятые"
 ```bash
 magnet:?xt=urn:btih:473BDB4F96C370896F19AA5285B21E5AD3B6E563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ NTO - Apnea (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minima
 ```bash
 magnet:?xt=urn:btih:E71FBAA30022E4E0D27D0FB9D31A0BDE8ED9882E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9FB3BCDC35E95F507F1AEE4B2201A4C224C119B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ VA - Record Super Chart 09.10.2021 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:E041C8A50CFE631882E0EC2672F75737AD69CB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ Till Lindemann - Ich Hasse Kinder (2021) Single [FLAC|Lossless|image + .cue] <ND
 ```bash
 magnet:?xt=urn:btih:000B7D3D7391A8F0F125DF044E8CF354AA05E48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Eternal Journey: New Atlantis. Collector's Edition / Вечное путешес
 ```bash
 magnet:?xt=urn:btih:5D45D395663218E1EFA0F9AFAF281C5FA0DA02AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Captain Morgane and the Golden Turtle (RePack) [Ru/En] 2012 | Audioslave
 ```bash
 magnet:?xt=urn:btih:BF7993EC49DCD4E2D1B5C74B6E654F18080C6E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Godfather / Крестный отец Дилогия [Ru/En] (RePack) 2006-2
 ```bash
 magnet:?xt=urn:btih:3E14C858288219EA980BA035AF4C27F4760ADF2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

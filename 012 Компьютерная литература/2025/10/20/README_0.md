@@ -19,8 +19,7 @@ This introductory book is a beginner-friendly resource that empowers you to harn
 ```bash
 magnet:?xt=urn:btih:A8B519B3B45CCCA2368279BF17F21FF0B035644E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3491C6D60C43E34784FFD6DCC104F2DB0B39DA84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

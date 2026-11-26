@@ -28,8 +28,7 @@ Black City - Fire (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3DF23957A07145842CA8E2DA22E2B42F6BB257E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Dirty Penny - Young & Reckless (2009) [FLAC|Lossless]<Hard Rock, Glam>
 ```bash
 magnet:?xt=urn:btih:AEF6275505D3B5A4E5BF9EAF994832F5DFBC4BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Moon Duo - Circles (2012) [FLAC|Lossless]<Psychedelic Rock, Space Rock>
 ```bash
 magnet:?xt=urn:btih:124D31F082B02CD9509CD78C3002A69F67F87227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

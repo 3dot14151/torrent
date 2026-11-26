@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FB4C0369DE19E83BE0DC3839EBCCBFE455DB633E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Midnight Lounge Vol.38: Sol do Brasil (2017) [MP3|320 Kbps] <Downtempo, Chi
 ```bash
 magnet:?xt=urn:btih:FEA7DDC068C45323A34AEAD7623F381AD1198B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Ralph Lundsten - In Ralph Lundsten's Universe (2009) [MP3|320 Kbps] <Electronic,
 ```bash
 magnet:?xt=urn:btih:CFAE26F7B112865E1B89DC84E3C6E67C4C5F77B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Smokey Fingers - Columbus Way (2011) [FLAC|Lossless|image + .cue] <Southern Rock
 ```bash
 magnet:?xt=urn:btih:A05ACE9680BAE9A0F6741A468458350B4971A64F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Omen - Hammer Damage (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:5836985D037314FDFB2B4DA00EE0FFF58A0DC2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ The Black Sorrows - Certified Blue (2014) [FLAC|Lossless|tracks + .cue] <Roots R
 ```bash
 magnet:?xt=urn:btih:7D11F8A81ED03052E7D5C50B7024F159CD418C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Mcdougall - Reaching for Some Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 ```bash
 magnet:?xt=urn:btih:2E564A74A43DFE3DC5838D70814FA97717E46E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Echobelly - Anarchy and Alchemy (2017) [FLAC|Lossless|tracks] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:DCBB5067D6AD18AEC2E48C2FA1BC3655AB5B01A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Sherpa - El Rock Me Mata (2007) (ex - Baron Rojo) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:6431FA9AD0E5BC86A0597AB521FA311397A606FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ VA - Ibiza House Opening 2017 - House & Chill Music At Its Best (2017) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:E4B072089AA96B4693CDDB53A9D31C45B7D06308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA0E96D5A4BBB264AE05EF4DDA8DEBCAF6F5838A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F151DC263114D16F2AFA200EA93AB5ABBDD650C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Miss Tess - Baby, We All Know (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, World
 ```bash
 magnet:?xt=urn:btih:B18F7129E8A010EC1F4888CA695521810DE18B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Jeff Jensen - The River City Sessions (2016) Live [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:88CEF272CF303EF830AF114563BCAD91276B8661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Sabre, Stray, Halogenix - Oblique (2012) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F9E136ED684005D72849EF5196FD92075A7F59B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:147179EA5E5A857CD60CAE6E34A20C5E9102E600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D5C555DA198F5894CB55079572B6D09C8C90BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Ice Cream Men - When Time Was Yours (2017) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:6C23803F8A11DB33EB45500E7FB9C6F6DA8A6C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Apoptygma Berzerk - Rocket Science (2009) [FLAC|Lossless|image + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:3C82D30A8CC7AFBF139DF5DB2C6498CFE24EA990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFF6319DD938794FC48DA98E730AAEB10C428AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ VA - Global DJ Broadcast: Top 20 June (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:842186795DB0E2D50A760B0B295E7B934DC9142A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ Disco Digitale - In The 25th Century (2007) EP [FLAC|Lossless|image + .cue] < It
 ```bash
 magnet:?xt=urn:btih:67473EEA5403D1DA6F69AA0F99FC73D57308C90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Halogenix - All Blue (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:739360D1C5F5BAE32001DC2C9F0BE3D1DC2D795B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ Disco Digitale - Computer Dreams (2006) [FLAC|Lossless|image + .cue] <Italo-Disc
 ```bash
 magnet:?xt=urn:btih:D708678DE1AAFE7962F2B7AD0B2514F2796EC1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D156D8AA9D4816C593413A6CFAE6D06A40A1963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ Vellum — приложение для создания электронных �
 ```bash
 magnet:?xt=urn:btih:C05F0CDA966CCE2415AB53883CFC27E7ABF88A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

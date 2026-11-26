@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:AC930FBCEFF6B4E2D2072F9BF4AD2C7EDEB3D5FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:77DCCC215C954FD2E85F0E3A093C2B5304FF8010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

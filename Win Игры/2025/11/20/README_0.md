@@ -19,8 +19,7 @@ Tales of Old: Dominus (2025) [Ru/Multi] (1.0.261025) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6E90D9F985B05022E04DD3DE22BDFE4EA4772C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:493F6330D2DA08C351EA2AB5A9FD73BF500019F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Licens
 ```bash
 magnet:?xt=urn:btih:3C24B121E7A9AFAF4C6CE7D980DD9C92B0883971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Railroads Online - это «песочница» в огромном откры�
 ```bash
 magnet:?xt=urn:btih:2A1CFE01A1188DE7162D7D59A36A41F7B387B9E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Winter Survival сочетает классические игровые мех�
 ```bash
 magnet:?xt=urn:btih:8AE40BF85AC6ABAAF6C6C90B97FFE4EF2839BB48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Winds of Arcana: Ruination (2025) [Ru/Multi] (1.101) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F8E33F8EA82EFD61D541182CEAC0B2FFED22642A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Fatal Claw (2025) [Ru/Multi] (0.9.81) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:90099B1B71227569EEAC10E3D6FDBBC543C90571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Intravenous 2 - это уникальное сочетание тактичес�
 ```bash
 magnet:?xt=urn:btih:3FF3502A601EBE0EA4719C2CD972239F7C41093C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Wall World 2 (2025) [Ru/Multi] (1.0.8.351) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C9C208A2A1D993A1593C9C52255909E3A75D9773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Planet Crafter (2024) [Ru/Multi] (1.609/dlc) Repack Necros [Deluxe Bundle]
 ```bash
 magnet:?xt=urn:btih:4EFF5717F3A2F09BA72C717C15FA93A176CB5AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.2.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:1CEA6AEB0580EA7A0FAF038D9DE3E6A548AAB182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Salt 2 - пиратская игра с открытым миром про ис�
 ```bash
 magnet:?xt=urn:btih:B8ABA2857FBEC995C13C111633DEF0AB6EF427B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

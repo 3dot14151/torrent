@@ -27,8 +27,7 @@ VA - Новинки танцпола (2012) [MP3|256 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:065F4B2D8F34603ED9B721A5D62DC2BC2A36DBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Disco Solo Exitoz (2012) [MP3|320 кб/с]<Pop, Disco, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:469D9242953BB681F831AFBE1A4D18E79B7EAF1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Winter Chillout Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut
 ```bash
 magnet:?xt=urn:btih:2C0AA5C032CCCDDF3CA6A05D74587A93101306EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41BB5EA56A6B477738AABF405FB23C51A687F7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D50737043106FD1D58B98A4506356DEC993FEFAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C3248CA09391806A702B1E92EE90E0DEF403433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Space Wallpapers (12.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:431F7409FF0C76046F5BE7CDEEC7C662A4C1307E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Mindscape - Martian Chronicles (2012) [MP3|320 кб/с]<Drum & Bass, Neurofunk>
 ```bash
 magnet:?xt=urn:btih:A4F2CC492D3C8AF813C377501D0301DD564E65F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAA1FC2E47FF1A9D8DF055E7778194E7C0D4B9CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C41C60077DB05C3953729975609001C9A4C326F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C235A615059916E02544123C79A858A86CF9640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ Cinema Wallpapers (12.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:DA392E136C73DCCA9A6704455739329ACB62E1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Winter Wallpapers (12.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:F61EB9023CF8CF3080052F615A86AC1D2BE885BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Interior Wallpapers (12.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:2B29C6838FA50185C643EA55E6ABE54FEEC8FE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ VA - Снегопад Хитов (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:B09BAF5F960FD7DE01C97A8434C2994F24D21008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ New year wallpapers 2013 (12.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:3B257806CD0DF7B3395BD073EAAA41276C7E7F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34345EA5EA5DEA1EA137B649F838CEB29F91C798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Computer Desktop Wallpapers Collection (12.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:091CB6F2F64F5BA862BF090268F2F2466EDB1E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0B45B47505200D54072A6710CF9C326C07DD0AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ Majestic castles of the world Wallpapers (12.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:40E09E8AC0F2FD36D5EAC8FC70E307D480F91B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ PDF24 Creator - бесплатная программа, которая позв
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ NG: Народ вулканов. Надзиратели вулканов [час
 ```bash
 magnet:?xt=urn:btih:9CA511ABB355C7ECC1C963B1F6496A4ADDB193D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ VA - Дискотека- Апокалипсис (2012) [MP3|320 кб/с]<Pop,Dan
 ```bash
 magnet:?xt=urn:btih:E86B2084B123B8090ECA80E467E1F06851034494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:180F3140780B2AB808E9A49B44C6B049F3B5CCFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ VA - Super Dj Tonight Time vol. 1 (2012) [MP3|320 кб/с]<Pop, R&B, Dance, Club
 ```bash
 magnet:?xt=urn:btih:35F98A2B5893430E6B01E27E8F08D7B2F9F6A349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

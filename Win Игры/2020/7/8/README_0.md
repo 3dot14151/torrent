@@ -19,8 +19,7 @@ Haunted Hotel 19: Lost Time / Проклятый отель 19: Потерянн
 ```bash
 magnet:?xt=urn:btih:920ED01BE1553AA9FDCB6C718606491140F8EC34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

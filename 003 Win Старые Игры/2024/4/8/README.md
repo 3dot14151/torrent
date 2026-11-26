@@ -19,8 +19,7 @@ Gothic II: Night of the Raven / Готика 2: Ночь Ворона (2003) [Ru
 ```bash
 magnet:?xt=urn:btih:8433153D0D88B84F399E6FE61B048272859A82BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

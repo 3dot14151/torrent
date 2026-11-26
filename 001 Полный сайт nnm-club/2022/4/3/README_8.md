@@ -21,8 +21,7 @@ VA - Deep-House Carnival, Vol. 2 (2022) [AAC|~316 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:6C010480A91AEA2BCC03CD3E665647A53BC54E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - After Work Chillout, Vol. 1 (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:2F06EF84616BFD4DE0B6DEACDC61E929A71B1412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

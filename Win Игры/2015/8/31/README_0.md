@@ -19,8 +19,7 @@ Haunted Hotel 9: Phoenix (2015) [En] Unofficial [Collector's Edition / Колл�
 ```bash
 magnet:?xt=urn:btih:D9A1631ACFA61E99C203FAACFADC87132810F2DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead In Bermuda - survival-RPG, в которой игрок возглавит 
 ```bash
 magnet:?xt=urn:btih:35499960789DC025C97038866FF68DF42779D1F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beware Planet Earth! (2012) [En] (1.3.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:60B3137EA5417D97BD8F8489A1A64D3FB22418AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cast of the Seven Godsends (2015) [Ru/Multi] (1.0/upd10) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A75E9470B3D43F4E55835B0EBD3492CD97D91B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mad Riders (2012) [Ru/En] (1.0.1.0/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3FC94730631B042169CBDBA6A26141D38E89172D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ninja Blade (2009) [Ru/En] (1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:A97B17CD483651ADE07692B00936AB209EB564A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hegemony III: Clash of the Ancients (2015) [En] (1.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:E05BFCA0E248427D05E26128F57C281939E09888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

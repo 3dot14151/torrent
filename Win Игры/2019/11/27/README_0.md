@@ -19,8 +19,7 @@ Dawn of Man - уникальная историческая стратегия �
 ```bash
 magnet:?xt=urn:btih:DC37A4323BCE958D6650FA486F51571F0C82BC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Undercroft - Evilusion (2002) [APE|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ More Like Trees - Roots, Shoots & Leaves (2013) [MP3|320 кб/с]<Indie Rock/Pop
 ```bash
 magnet:?xt=urn:btih:8239E0887FF126737BAB98F95973C232538C2913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Made of Hate - Bullet in your Head (2008) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Gloryful - The Warrior's Code (2013) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:DA0207C60895BFD87CB3DDD172E4C46A19D6112B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ VA - Sharp Dressed Men: A Tribute To ZZ Top (2002) [MP3|192 кб/с]<Classic roc
 ```bash
 magnet:?xt=urn:btih:63158D32B93CE101278F61EEBD0735D73E99C3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17FF61B9AF44E85CA27F9D57F5DA80778DCAA651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Suidakra - Eternal Defiance (2013) [FLAC|Lossless]<Melodic Black/Death/Folk Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Filter - 7 альбомов, 7синглов, 1 компиляция (1995-2010)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Pat Travers - 39 альбомов (1976-2012) дискография [FLAC|Lossl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ Napalm Death — дэт-метал-группа, основанная в 1981 г
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ Queens Of The Stone Age - …Like Clockwork (2013) [MP3|320 кб/с]<Stoner Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

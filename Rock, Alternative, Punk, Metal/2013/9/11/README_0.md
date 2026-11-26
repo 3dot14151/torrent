@@ -28,8 +28,7 @@ Jack Johnson - From Here to Now to You (2013) [MP3|320 кб/с]<Alternative, Roc
 ```bash
 magnet:?xt=urn:btih:B0DAD815CF1E64B3BDF5999EB146EFD578B1F600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Thin Lizzy - Vagabonds Of The Western World (1973) 1990, Deram [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:B87404EA8CAE976DC336B8A546BD578503D26A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Portnoy, Sheehan, MacAlpine, Sherinian - Live In Tokyo (2013) 2CD [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:0CC6FF6000AED6AFE8D8664335928A402473E4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Linda Ronstadt - Original Album Series 5CD BoxSet (2009) [FLAC|Lossless]<Rock, C
 ```bash
 magnet:?xt=urn:btih:5733B3F5C5315774EFB3FDA4A743EE377E9A15E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ London Grammar - If You Wait [Deluxe Edition] (2013) [MP3|320 кб/с]<Indie Pop
 ```bash
 magnet:?xt=urn:btih:62C71505DE27979360242A93A35968669304246C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

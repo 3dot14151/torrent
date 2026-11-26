@@ -19,8 +19,7 @@ Girls With Secrets [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:0768E5D8CF4D96C7D7C904EBDAAC6FE6026B2A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Monument Builders: Statue of Liberty [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:C1D4DB2CC00AA65D2A075F30847BF51A19F38E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunting Mysteries: Island of Lost Souls Collector's Edition / Загадочн�
 ```bash
 magnet:?xt=urn:btih:280DBFC14D5B6CFEC767E3ED3EB9EC335F644060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Twisted Lands: Origin / Гиблые земли. Истоки [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:6327F5A0A5AC297FDB67EDB720F558F586980BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

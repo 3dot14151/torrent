@@ -23,8 +23,7 @@ Arch — «легковесный», простой и гибкий дистри
 ```bash
 magnet:?xt=urn:btih:328FB28E394A5E7E5582E3702D885CE299428E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:54C44207C8D7F10E96292C091AEB4717FD640AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

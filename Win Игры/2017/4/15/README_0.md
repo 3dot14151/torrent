@@ -19,8 +19,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:8E0788B36D4AB050D0D225E976D76B6FB041C428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crazy Buggy Racing (2017) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:DD544DC142C5AA4BEC78A15D9B91CB0F2BA187DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Snow Moto Racing Freedom – гонки на скоростных снегохо
 ```bash
 magnet:?xt=urn:btih:A32DD652B2F9E7ADEF24413DAE5672B48AE38250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:55AF300D57AC3AC5044472D4651B8025E52BC059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 ```bash
 magnet:?xt=urn:btih:D4E04385706A0F4CC835BD98E66BC4136092253E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

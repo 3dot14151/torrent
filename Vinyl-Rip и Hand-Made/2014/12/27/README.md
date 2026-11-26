@@ -22,8 +22,7 @@ A4. Sole Survivor (4:07)(   Читать дальше...   )Жанр: Hard Rock�
 ```bash
 magnet:?xt=urn:btih:D2E6C99E010067B0C8009E48F499565050784F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

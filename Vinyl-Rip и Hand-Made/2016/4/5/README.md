@@ -22,8 +22,7 @@ A4	Страсть (Passione)(   Читать дальше...   )Жанр: Jazz, 
 ```bash
 magnet:?xt=urn:btih:5D91344BE128BA4E7707AAFAA8C1B1B48739E07A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

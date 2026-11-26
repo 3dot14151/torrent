@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A91BE2A40CF4B9EC86C9F4EFC41DA9C3D95A6C53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BD54E311C40D78A3AA8D70DE6828886C14A6BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Flat Animated Icons 1000+ представляет собой библиотек
 ```bash
 magnet:?xt=urn:btih:B7BFE85A6B0CD5A65B9414F0A05190C43A9E8D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4881309532433BACC4E48D6C36C461B920D98639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VA - Русский Рок: Коллекция (2016) 11 CD [MP3|224 Kbps] <Ро
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Love Inside - Romantic Slideshow - Романтический винтажный
 ```bash
 magnet:?xt=urn:btih:A4F72AFEF08DE04E3993F0BCE70FFB4C029774C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Triune Sound: Fighting SFX -  поставляется с более чем 600 
 ```bash
 magnet:?xt=urn:btih:B251315C3B54D97CEC0B1F8BBAE500C9E5D25257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D8DDEBA249D28638E7A7BA01F3E644853476DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Winter Slideshow -  хорошо организованный и легкий п
 ```bash
 magnet:?xt=urn:btih:A2EEAE2DB9DDACD3169E8A0FCDD2AE788B7C8D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Microsoft Product Keys позволит вам получить ключи дл�
 ```bash
 magnet:?xt=urn:btih:F31A665665231EA1EED680DB739A2BBBB8869F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD9C3F4CB82B23CF27D769019107927B0DFABA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Ukrainian Ninja (2014) [En/Uk] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:8165F6154DB68020D42DE9E90E025C5E9AA92D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CC9FF8439CF819382CC8E41E79724F68B368D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Tanida Demo Builder - программа позволит вам создава�
 ```bash
 magnet:?xt=urn:btih:30529156CA52BAA3617F061E35216BD8D6DB7970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ uTorrent 1.8.7 (43001) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4CDA2187B104B90274826B34D670CA204BCD010E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA71808A07233AED3B079CE87C5369B0C89B42F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ Sketch FX - представляет собой псевдо-эффект, ко�
 ```bash
 magnet:?xt=urn:btih:6370AEEAED7DFC55350C2D5E5B10FAFFB7645E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +446,7 @@ RResource Hacker - это небольшая утилита для просмо�
 ```bash
 magnet:?xt=urn:btih:53FB6458A54FD4D7B35F5CF6473966322C42299F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +471,7 @@ FAST Racing Neo (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License / 1.2 / DLC] 
 ```bash
 magnet:?xt=urn:btih:895EA7CE1B111764CE5D176877CF1883D574B2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:710665DB493DE30CA635BACDB841581268F61FC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9FE7D1C25298C72B2C9B24FDFD841FC49F2DB3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5505D6D4B57FD08623068B3CB8A0CBD08AEBC12C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AC7183DC69C7D95896EC45BE1A8B6550D1368FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F787E016CFC6923F81D13A9A8C9E2FB53F604283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B6C55E7DE7BE64F153440F7956D144534CAF7E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +651,7 @@ Metallica - The Best Ballads (2005) 2CD [MP3|320 Kbps] <Metal>
 ```bash
 magnet:?xt=urn:btih:9F47E1652CB2FF6643CF55BBA10E74B796311050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

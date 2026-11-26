@@ -19,8 +19,7 @@ Yi Pro - Yi Action Camera 3.3.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:33B998086D3752DC97BB11551E453D1F44715593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

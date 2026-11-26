@@ -19,8 +19,7 @@ Dark Romance 8: Winter Lily / Мрачная история 8: Зимняя ли
 ```bash
 magnet:?xt=urn:btih:2CCB57953F89DBD497EAEBB302422E3B3D032F8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FC63855BC4863EC1C1B4D16B92013FAA036F7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Call of Duty: Modern Warfare, одна из самых популярных иг
 ```bash
 magnet:?xt=urn:btih:46DF6C68B7547FC9AE67DACB58A9FD48A67A381A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

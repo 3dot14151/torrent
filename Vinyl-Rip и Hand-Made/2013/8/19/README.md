@@ -27,8 +27,7 @@ B5. Surf's Up :: 03:10Жанр: Synth-pop, DiscoФормат: Vinyl, LP, AlbumП
 ```bash
 magnet:?xt=urn:btih:8BCD85BE776FFB5152808F4F2F0E77531D2EAA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

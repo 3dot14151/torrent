@@ -28,8 +28,7 @@ MachinaTx - The Process (2012) [FLAC|Lossless]<Nu-Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ SoulHealer - Chasing The Dream (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E076F16186116E9284ECF61D0C290DF46007CC14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Leviathan - 2 альбома (2010 - 2011) [FLAC|Lossless]<Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Crisix - Rise... Then Rest (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:677A6A9E6C95D727350E4DBA13DA2FD0105B1069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Megace - Human Errors (1991) [FLAC|Lossless]<Progressive Metal / Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Nosound - Afterthoughts (2013) [FLAC|Lossless]<Progressive Rock, Psychedelic Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Manic Eden - Manic Eden (1994) Japan [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5650FF55AF6AAF297E9B5BFA7C15641E4551F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Element A440 - Whips, Knives, Candles and Quills (2013) [MP3|320 kbps] <Industri
 ```bash
 magnet:?xt=urn:btih:BEF10FA82574DD4BF31498F30795EEA0C7C46AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ The Poodles - Tour De Force (2013) Limited Edition [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Jono - Requiem (2013) [MP3|320 кб/с]<Rock, Progressive rock>
 ```bash
 magnet:?xt=urn:btih:C74BD7D31990A6D546BC0E9AEAF241DE0965DC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27008F03D5C7E39ADD5F331728EA9458FA2D9BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ The Polka Floyd show - (2CD) (2007-2009) [MP3|320 кб/с]<Rock, Polka, Progress
 ```bash
 magnet:?xt=urn:btih:BCC6DD3097DAD42AC944D26EA24727A982456C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +463,7 @@ Diamond Dawn - Overdrive (2013) Japanese Edition [FLAC|Lossless]<Melodic Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +497,7 @@ Black Star Riders - All Hell Breaks Loose (2013) Deluxe Edition [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +531,7 @@ CD1Жанр: Rock & RollПродолжительность: 01:18:05
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +565,7 @@ Samael — музыкальный коллектив из Швейцарии, т
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +599,7 @@ Yngwie J. Malmsteen - Alchemy (1999) Japan [FLAC|Lossless]<Neoclassical Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +633,7 @@ V/A - Митьковские песни (1996) [APE|Lossless]<Русский р�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +667,7 @@ The Dillinger Escape Plan — американская маткор группа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +701,7 @@ Jimi Hendrix - The Ultimate Experience (Special Edition) (2005) /Remastered/ [FL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

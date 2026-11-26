@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:7D8EAFCD61E6B7B9AFCBCF0CEF22E44309E58C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ VA - Ibiza Meets Beauty Chill 5 (Balearic Lounge & Chill House Grooves) (2014) [
 ```bash
 magnet:?xt=urn:btih:DF68A2642962459E8A7EC123523705CDDD46089D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Screamin' Rebel Angels - Hitch Hike (2013) [MP3|320 кб/с]<Rockabilly, Surf, P
 ```bash
 magnet:?xt=urn:btih:E2570623E2AC186380C48D9E127C7A68C12E5E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ VA - Клубный Рай Лучшее 50/50 (2014) [MP3|256 кб/с]<Club, Dan
 ```bash
 magnet:?xt=urn:btih:268B1AE64FC21BD4670B22559360F43EEEFF9F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Carey & Lurrie Bell - Son of a Gun (1997) [FLAC|Lossless]<Blues, Harp>
 ```bash
 magnet:?xt=urn:btih:1BAAF47969F7A3FCA59D6D836D54F9309314BCBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ VA - Paul van Dyk VONYC Sessions Selection 2014-05 (2014) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:CD72B521517DBC30E9C2961C4EC580212A3E6697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Nemirie - Harvester of the Self-Reflections (2010) [FLAC|Lossless]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:1B2DC4132578927E213A24EFACAB568024F2B153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Weed - Weed...! (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:97B500090C85DD12512A288EA9042AC2605BE04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FA986F6F94DA7A37511479C78F4438259F2DB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +312,7 @@ Maxim Wolzyn - Intercity Express (2014) [MP3|320 кб/с] <Dub Techno, Techno>
 ```bash
 magnet:?xt=urn:btih:5379E935C82232A9EFAD002B37566A4AD60E6D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01EBF86EA842219844F276ABA548471083E774B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28836CE6E47721EAC82B1EA09B409F0F82E9094F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2D49A4E5C78E241010B5F393E5AE3A2940F96F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ VA - Hall Of Dub Compilation Vol.1 (2014) [MP3|CBR|320 кб/с] <Dub Techno>
 ```bash
 magnet:?xt=urn:btih:E9A00783C819AFDFD0EB1B49BE77161165ED6710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D27E9CDB479D8EB47781D03B82FA07D3A7C9C769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ InfoCity – ежемесячный журнал о компьютерной т�
 ```bash
 magnet:?xt=urn:btih:C8826A602B66FDA342AC34588909BE646B150586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7E4C7EB8FE762D71A86C899B91539119504A2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F79BAA028A6AE9B0F0B469193CEEDC808D0764E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +577,7 @@ VA - The Official UK Top 40 Singles Chart (01-06-2014) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:683D4F2304BB0F74E7C9A469D5CBD85F65B84382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:872694F1283670F1D438C25AD1F4D3BC28F55CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C244B4A4337DB5945CDB9F91FC716D00D5A45B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CB83B2A8F2CC09C21C9F9AD5FC433BB67B0E7C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24035A15147192A5F9B94CB61128233BC6623684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +706,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:37BC5DD17FBDEC80E2CAC9887590E45EA7A49E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1B6560C8AC435ACA5750EFE992B62725BCB9C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

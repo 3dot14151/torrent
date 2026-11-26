@@ -27,8 +27,7 @@ ST - Пуленепробиваемый (2013) [MP3|192 кб/с]<Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:3DC3571857955A9D72A04F6D7753DCE9A93F0872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:FDA2825F290DB1E328F072406629D4D8E09F9533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:589BCB6C5C62BB97174A9A6A96F95F0452C155C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Mushishi / Мастер Муси (2000) [Тома 1-8. 37 гл.][Манга][Р�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Umberto Tozzi - Non Solo Live (2CD) (2009) [MP3|320 кб/с]<pop>
 ```bash
 magnet:?xt=urn:btih:634E7A4C649EB112CC7653668A7BF695DBCB3233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ The Room - Open Fire (2012) [FLAC|lossless] <Melodic Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70DBBE9BD2443A8C2568BE1FB89AB83B816E724E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Gianni Morandi - Canzoni Da Non Perdere (2009) [MP3|~190 кб/с (V2)]<pop>
 ```bash
 magnet:?xt=urn:btih:7D49C189A568AD9F80290B63235C77ED26AD96A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:035B0FF3061065BE8FE1988CE2E77A428D5C38BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ VA - 100 Trance & Progressive Hits (2013)
 ```bash
 magnet:?xt=urn:btih:1765B50F8255674130EC9B3E1592E34DF03EA10F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +341,7 @@ Dirty Pretty Strings, Howie Casey, Dr. Robert, Linda Lewis, Gloria Jones.Про�
 ```bash
 magnet:?xt=urn:btih:4E4F1B278464FFD7399F6D6FC162FE04F25C845B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ Hetman Photo Recovery - программа, с помощью которой п�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ Kellylee Evans - I Remember When (2013) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +436,7 @@ Bruce Nasmith - Pleasure And Pain (2012) [MP3|320 кб/с]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:013F80D8E00AA56021556C99C92DDEE8DBE47ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D011A3EC34BE269B0582DBC92862F1BDFA477D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF44D6F4D0D115DAC73AC7ADF51371E1B7CD1BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F32A3F4C63E25495E93DD2B99C77933CA9E6836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ Funny Photo Maker - это интересный фоторедактор, кот
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46E8558BD73004FF22D4D50E58116CCDA6CE5CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ VA - Песни на долгую память. Самая лучшая мама
 ```bash
 magnet:?xt=urn:btih:40FF924564666DD740FA3FC0B28DE09DEDEC5C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ VA - Сливки Русских Хитов (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:06CFCFFC2E48206EF8134DD58CB6DAC99CD90A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +673,7 @@ VA - Максимально продвинутый зимний. Русский 
 ```bash
 magnet:?xt=urn:btih:A32FAEA00633F55B218C9AEC5D7757317062898F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:241ACA62D7AC880970670A9A52480C90EC7A10D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +756,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DDE566DA132E88FAE00034DD21E55C4A7D0E6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:552EDB862694E2B08BFC0971CF2CC0ABADD5CA48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

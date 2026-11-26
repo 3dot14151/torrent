@@ -28,8 +28,7 @@ Tormenter - Prophetic Deceiver (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7107E007E99E68213CEA954B4E43CED45BD8ED0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Umbrio - Unique Forms Of Continuity In Space (2014) [MP3|320 кб/с]<Atmospheri
 ```bash
 magnet:?xt=urn:btih:595DEDF93CD4001CFB2FEF3BA356699524535309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Winters Bane - Redivivus (2006) [FLAC|Lossless]<Heavy Power Metal>
 ```bash
 magnet:?xt=urn:btih:CE01C897592B6D48C10D2A8F61457FCE11F31E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ The Alchemist - The Alchemist (2014) [MP3|320 кб/с]<Progressive Metal, Instru
 ```bash
 magnet:?xt=urn:btih:C52A7BEDAEAA6346D9070BF26E2094C3E3E93C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Bloodshot Dawn - Demons (2014) [MP3|320 кб/с]<Melodic Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:AD7F27B6FED646A8DA8E9D81801FD3D10E4BCB58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ John Miles - His Very Best (2000) [MP3|320 кб/с]<Classic Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:CACDDC2895AE6D78F241561145500491017C26BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Bill Haley & The Comets - Rock Around the Clock (1999) [FLAC|Lossless]<Rock & Ro
 ```bash
 magnet:?xt=urn:btih:1EF373E3B0523B0E82D681AF55E5F9EB85976C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Liv Kristine - Vervain (2014) Limited First Edition [MP3|320 кб/с]<Folk/Gothi
 ```bash
 magnet:?xt=urn:btih:009D865D3F4D75470FA6499D717AE078C919B091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ Bryan Adams - Tracks of My Years (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:9A1C44BB055BD2B37404B393B5A02D129D934FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EE5E9F84C69DD2F4B610CE1A997FC7B3DD76EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ Amaranthe - Massive Addictive (2014) [FLAC|Lossless]<Power Metal/Metalcore>
 ```bash
 magnet:?xt=urn:btih:5FAA253EFA3C2AAB5857D086765822DFD2768617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ Manfred Mann - The Very Best Of The Fontana Years (1997) [FLAC|Lossless]<Classic
 ```bash
 magnet:?xt=urn:btih:1CD50139B6767AA64E4E2B661A24E685FA066587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ Chuck Berry - The Definitive Collection (2005) [FLAC|Lossless]<Rock & Roll>
 ```bash
 magnet:?xt=urn:btih:6B4D23A813B0AAA20B5E5C8536456450AAACD63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +457,7 @@ Sonata Arctica - Ecliptica – Revisited (2014) Re-Recording / 15th Anniversary 
 ```bash
 magnet:?xt=urn:btih:16B9CE08FA98963C0D101DA59001426932FFDEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +491,7 @@ Motley Crue - Monster Hits/The Very Best Of (1995) [FLAC|Lossless]<Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:63D68353B59518F52643FB2916AE260E1028AB5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +519,7 @@ Flying Colors - Second Nature (2014) [FLAC|Lossless]<Progressive/Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3DC4C46C47911BD09BB7D0D0746E20E98CFDD2E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +547,7 @@ The Beatles - 272 Albums, 39 Singles & EPs (1962-2014) Discography /EMI Music 19
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

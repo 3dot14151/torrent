@@ -26,8 +26,7 @@ Donald Fagen - The Nightfly (1982) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:C7E7CC559408531F989EF00DAD1109ED3552F75D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Testament - The Best Of Testament (1996) Japan Edition [FLAC|Lossless]<Thrash Me
 ```bash
 magnet:?xt=urn:btih:9F774BAE04F85654257C0DC383DB1072A0FEAC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ In Vain - норвежская Death/Black metal группа, которая б
 ```bash
 magnet:?xt=urn:btih:F395CB3638BFFB12880E29ECE9B33E6F25D51D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Supertramp - Retrospectacle The Supertramp Anthology (2005) [FLAC|Lossless]<Rock
 ```bash
 magnet:?xt=urn:btih:748E9D9614A17523EC22EB03F0B96B74C86638E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Avatar - 4 альбома (2006-2012) Дискография [FLAC|Lossless]<Mel
 ```bash
 magnet:?xt=urn:btih:471D72C2419AC8F9D2B24F9D0E41172D563334EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Programme 1 (Band Demos)
 ```bash
 magnet:?xt=urn:btih:35BB41D88B3FFD4AE5EDFD29B36E5CD83BB9509C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

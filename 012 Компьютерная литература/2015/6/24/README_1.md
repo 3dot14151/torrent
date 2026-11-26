@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:C16C84050DAC51E6610F7CD5282B82F361A78733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ JavaScript — популярнейший язык программирован�
 ```bash
 magnet:?xt=urn:btih:1403E89180FD9A1F4CDC63E94C6B98EA52D0759D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

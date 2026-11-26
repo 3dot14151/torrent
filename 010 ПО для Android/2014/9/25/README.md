@@ -21,8 +21,7 @@ Cool Reader оптимизирован для чтения художестве�
 ```bash
 magnet:?xt=urn:btih:634FDBEB12959206DE37B533292C1B55B769F4C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

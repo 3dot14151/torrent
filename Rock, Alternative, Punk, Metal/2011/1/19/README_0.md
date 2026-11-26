@@ -28,8 +28,7 @@ CD1: Greatest Hits Vol.1:
 ```bash
 magnet:?xt=urn:btih:C3D1E83E7535F82B1328C4F182A6162456D81FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Belphegor - Blood Magick Necromance (2011) [MP3|320 kbps]<Black / Death Metal>
 ```bash
 magnet:?xt=urn:btih:35EDA4D27C9A3B6BF53F6D8C02123AD5C0F57F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +98,7 @@ The Cat Man01. God Of Thunder :: 4:15
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +132,7 @@ Sirenia - The Enigma Of Life [Limited Edition] (2011) [APE|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Deep Purple - Deep Purple Forever. The Very Best Of (2005) 2CD [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:61071395220229A91E1A8D1350E1A449538C00FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

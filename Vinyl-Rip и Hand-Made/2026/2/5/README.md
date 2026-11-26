@@ -22,8 +22,7 @@ A4 Front Page(   Читать дальше...   )Жанр: Synth-pop, Pop RockП
 ```bash
 magnet:?xt=urn:btih:FB83BB4932B80DD0E3F23B07E3054304193FBBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ronnie Romero - Studio Albums (4 releases) (2022-2025) hand made [restored, decl
 ```bash
 magnet:?xt=urn:btih:0E3C80538E4763A3B9730E440CE1CE5F0750493D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ MailStyler – это мощное программное обеспечение
 ```bash
 magnet:?xt=urn:btih:3F06001513C1F1CCA8680B32789AA91807501F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

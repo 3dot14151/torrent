@@ -19,8 +19,7 @@ Gif Me! – это лучший способ сделать из коротко�
 ```bash
 magnet:?xt=urn:btih:47DBE2C31A7FEC81A204DC990381D427A2B4F158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35D767F2B34948D98EC81BA2A5F394649F4A612B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A99583100FB8362E74529394A406CA21FE80DDD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D41AE8A4A135AB02DD9391D323B0316063E72208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Revo Uninstaller Pro 5.3.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:426DFDE3D69427428593EE6D106EEC556F115D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ The Smoothies - The Sound of 70s (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:40851206D92577BDB3F0C460C871A036F338F317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB0C7C0EA7D96C4CF737CA211B53E35354078366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Electrical Calculations Pro / Электрические расчеты v10.2.3 
 ```bash
 magnet:?xt=urn:btih:587F1252D0B4405862FA361AD7AAF3E5A867CC0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46958CD38A76B7EFCF4C87EC2A5CF4705C34FE72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

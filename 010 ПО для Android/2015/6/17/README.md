@@ -19,8 +19,7 @@ Tasker 4.7u1m [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5542A5E179FA5DC026C4DFF9FC9D068C7F1769B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ DaemoNight - Трибьют к 50-летию Юрия Клинских (Сект
 ```bash
 magnet:?xt=urn:btih:6980E96C04144D3379208C97565BC039497B0CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Paris Capitale - это не только зеркало города нашей
 ```bash
 magnet:?xt=urn:btih:3A0A27511A09651EBB92925B21E10A2EDFC93B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:7456B429915ECAF6E751B1D5A5B575E5D1857308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4041BB00A9F81789211D4479F48E315F7011DDBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:874EC8F9EAC30E66C3EBB183B74D933CC03A850A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Axel Rudi Pell - Studio Albums (28 releases) (1989-2024) hand made [restored, de
 ```bash
 magnet:?xt=urn:btih:584F4A6A3A62C72AC07FA1D95796F2C7D873DD02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ad Infinitum — швейцарско-немецкая симфо-метал г�
 ```bash
 magnet:?xt=urn:btih:D5BB6ED316B3FCDC8FC10C3C88A10E24A298DA49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

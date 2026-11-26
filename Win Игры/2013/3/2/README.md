@@ -19,8 +19,7 @@ Grim Facade 3: The Cost of Jealousy Collector's Edition / За гранью же
 ```bash
 magnet:?xt=urn:btih:30635F4B736F3BE208D45CA3C1DF0984CA43A1CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Runner2 - это продолжение одобренной критиками 
 ```bash
 magnet:?xt=urn:btih:0F309D50E80302A5B65ECB8A5C5C66FBA65D232D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Them Bandits - Black Town (2013) [MP3|320 кб/с]<Alternative Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:D4237EA379DBCF8CC20B2318755FDC822E121EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Frank Hannon - Six String Soldiers (2012) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:286DEA785511A0D81181B60A9015659131387BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Van Halen - Balance (1995) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D15E686687B68826E10F3823D9E2808862A279BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Electric Light Orchestra - Out Of The Blue (1977) [APE|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:C92A961B3C84838688A688A48BCC54604051F3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Michael Monroe - Horns And Halos (2013) Special Edition [FLAC|Lossless]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:105F8853FCB7BBEEC3A9E9657DFB49681F2FCD09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Avenged Sevenfold - Waking The Fallen (2003) [FLAC|Lossless]<Rock, Hardcore, Har
 ```bash
 magnet:?xt=urn:btih:671F7CC9203B48B0DDCF1FE8BB1FF235DDEC9266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Van Halen - The Best of Both Worlds (2004) 2CD, Compilation [FLAC|Lossless]<Hard
 ```bash
 magnet:?xt=urn:btih:D7108622554FDD74942268BEC8911DD467AFEB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Arctic Monkeys - AM (2013) [MP3|320 кб/с]<Indie Rock, British Rock>
 ```bash
 magnet:?xt=urn:btih:719D93A87819F4BE8F4D4658097FEC266BDAFF7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Ringo Starr - 31 Albums (1970-2012) Discography [MP3|320 кб/с]<Rock, Disco, C
 ```bash
 magnet:?xt=urn:btih:99E82CB39903F7F78DE792910B43D28FA3F25E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

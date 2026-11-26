@@ -23,8 +23,7 @@ Ablaze My Sorrow — мелодик-дэт-метал группа из Фаль
 ```bash
 magnet:?xt=urn:btih:F59AA77849FFF45C7283D0505CBB9C992CFFF1D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

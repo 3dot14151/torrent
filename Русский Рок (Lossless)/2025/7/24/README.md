@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:98A1FC9194EB56E0D9951910B4E6A77AC6084816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Oblivion Machine - Око дня (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:48806530141A8BAE7F4262E5370601FE0B6C2F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:523DB2AD10A0D8FF3BE7B171335FBAFE0D075F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Dan Guidance - Dubwise Brilliants Vol.15 (2013) [MP3|320 кб/с]<Drum & bass, J
 ```bash
 magnet:?xt=urn:btih:8352DE9FE54DE83A0E64FA84F31F2F68EDA990B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Get Happy: The Harold Arlen Centennial Celebration (2005) [FLAC|Lossless]<J
 ```bash
 magnet:?xt=urn:btih:61978153A46B66116FC4896EBD0DBBFB61068CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC46E78B728976CE14AD11B3E117815F6BD9D40C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DF00E593D874904E0F1976C0B01F9906F1A8307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Dan Guidance - Dubwise Brilliants Vol. 19 (2014) [MP3|320 кб/с]<Drum & Bass,J
 ```bash
 magnet:?xt=urn:btih:B28096D31CC6861A4DE2C64B99C0579AC501A604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Paltry Dream - Hold On (2015) [MP3|320 кб/с]<Chillout, IDM, Downtempo, Future
 ```bash
 magnet:?xt=urn:btih:03182406663EFB881DF8D9B3DC4FCE28AF5F3498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Headphone Science - Collection 7 Releases (2003-2011) [MP3|192-320 кб/с]<IDM,
 ```bash
 magnet:?xt=urn:btih:FC5FF2A61B0E112DBE79DEE063B123E5DF6D7B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Th.e n.d - Schizophrenic Birth EP (2011) [MP3|320 кб/с]<Ambient, IDM, Modern 
 ```bash
 magnet:?xt=urn:btih:FD849A2228D57D8785E8B4FD775D2C69A7C6966F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Eliana Cargnelutti, Sadie Johnson & Heather Crosse - Girls With Guitars (2015) [
 ```bash
 magnet:?xt=urn:btih:613420ABE7801187EAEA2FAD28304D3E954A6751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ VA - Nomad Ambient Vol. 1 (2015) [FLAC|Lossless|WEB-DL] <Ambient, Psybient, Psyc
 ```bash
 magnet:?xt=urn:btih:7C76DEFD0CD26B5666B93F9ABE15ACA0C7B1F493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ WhoSheDo - Appetite! (2014) [MP3|320 кб/с]<Retro Swing, Vintage Jazz>
 ```bash
 magnet:?xt=urn:btih:60E9A4F29A181E155285DCC5557AC61AEA23B7D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ VA - Dirtybird 10 (2015) [FLAC|Lossless|WEB-DL]<Tech House, Techno, House>
 ```bash
 magnet:?xt=urn:btih:3391EF47A6F10369DE8EA5B53FAAF1E824CCE46F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ VA - Dubstep Chapters (2015) [MP3|320 кб/с]<Dirty Dubstep, Trap, Grime>
 ```bash
 magnet:?xt=urn:btih:E2FBA4D7A48B48A3A9B557AE1C5304A6551906F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADD91BCF92C39215C458333C0ADAAA3956802606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:854E40DE488F378F0B7BF0BA2737642071CED873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD16EE8AD4B173FD2578FBCA924482EA651F0624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7B3DB57BE7DBC1332BC42F85E04981462C5435F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:343869A825981B01C9847571B33692792C180944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B8D1B1AA45A97358347C7DDAAFFED4A78A06969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ System Explorer - диспетчер задач для Windows. Функцион
 ```bash
 magnet:?xt=urn:btih:0E7FD910B43B3DFFE3DCE381BCD96D20E512C7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ TPB в сети всего несколько дней, но у него уже 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Planet P Project - Pink World (1984) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D4A668A6CFD8AB5CD481A54AFDBF943B86983F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

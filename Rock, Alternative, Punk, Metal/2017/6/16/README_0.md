@@ -22,8 +22,7 @@ Chris Rea - Auberge (1991) Japanese Edition [FLAC|Lossless|image + .cue] <Blues 
 ```bash
 magnet:?xt=urn:btih:BAF76EC1C2FB051873B7B8333B93075D6DB4917E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Rolling Stones - Ladies and Gentlemen (2017) Live [MP3|320 Kbps] <Classic Ro
 ```bash
 magnet:?xt=urn:btih:06375F53A80F9E3730ED2256ED025D7533933390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

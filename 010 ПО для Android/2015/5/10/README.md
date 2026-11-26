@@ -19,8 +19,7 @@ FL Studio Mobile - Пожалуй единственное полноценно�
 ```bash
 magnet:?xt=urn:btih:B1DE685ED9C814ADF53516C655497969036649B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Dreamatorium of Dr. Magnus 2 (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:314F44D77982EFBA7D7F68372D151E23D13775C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warlock: The Curse of the Shaman / Чернокнижник: Проклятье 
 ```bash
 magnet:?xt=urn:btih:DEC43C732CC52ABE28BBB18F3C3B4365E9328983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Interrogation: You Will Be Deceived (2019) [En] (1.1.9.a1704342) License GOG
 ```bash
 magnet:?xt=urn:btih:5C1C149475C78469745818BBB1CA4FCF5F61449C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Dynasties (2021) [En] (1.0.4.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B5B11BCCF18392A9D7BF5518981C7066B60A6AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Exit the Gungeon повествует о небольшом аркадном п�
 ```bash
 magnet:?xt=urn:btih:469D4C3C51439FB3FCCD09300D9FAE2FDA4707C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

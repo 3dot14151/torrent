@@ -28,8 +28,7 @@ Electric Light Orchestra - Discovery (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<P
 ```bash
 magnet:?xt=urn:btih:397EC607483D91CDA4647D23B7448F3D62F88C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

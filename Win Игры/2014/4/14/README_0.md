@@ -24,8 +24,7 @@ ZAMB! Biomutant Extermination (2014) [Ru/Multi] (0.8.190) Unofficial 3DM [Early 
 ```bash
 magnet:?xt=urn:btih:E7D66DC532205E2AB4CC4EECC026F8654BA0799F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Dark Dimensions 4: Somber Song / Темные измерения 4: Мрачны
 ```bash
 magnet:?xt=urn:btih:AEAC1EC1169EB0806293E4E186EC6C34C2349C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ LEGO The Hobbit / LEGO Хоббит (2014) [Ru/En] (1.0.0.21750) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:C0607DB7D2289251D11C56EEAB307A81A7FFCD9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Beware Planet Earth! – это увлекательное сочетание к
 ```bash
 magnet:?xt=urn:btih:3F3EB3550B7C8A1E6B1FA3C474CF8704D2C476F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Scourge: Outbreak (2014) [Ru/Multi] (1.103/dlc) SteamRip Let'sРlay [Ambrosia Bu
 ```bash
 magnet:?xt=urn:btih:E33A69E3F9452727EEDCBBAFF11530C17A0C5A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Game of Thrones / Игра престолов (2013) [En/Ru] (1.5.0.0/3dlc) Repa
 ```bash
 magnet:?xt=urn:btih:DF2909246EFD6D2AF9A44C5E9D660FC5280A3155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Halo: Spartan Assault это вертикальный шутер, события
 ```bash
 magnet:?xt=urn:btih:BA608ADB93753DE349EAAF8BCD834FABBF6D1F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

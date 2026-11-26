@@ -19,8 +19,7 @@ Dungeon Drafters – это пошаговый рогалик с видом св
 ```bash
 magnet:?xt=urn:btih:B233DF202F4116B0888FEC40B9576BCFC4CA8DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cats Love Boxes - это восхитительная игра-головоло�
 ```bash
 magnet:?xt=urn:btih:E7C21C55C7C9FA2BB71713786194E267EE82A42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

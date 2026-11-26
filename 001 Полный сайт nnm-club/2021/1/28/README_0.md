@@ -21,8 +21,7 @@ VA - Beatport Electro House: Sound Pack #231 (2021) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:1B64F3559A86A354EDDC4247649BC58014017E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Children Of Bodom - Hate Crew Deathroll (2003) [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:BC908C9EA0DBF4844D60F33F3861F55D6B2CD6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ ProtonVPN конфликтует с антивирусным ПО и вызыв�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2B5A9C749D29A6DA1450695EEEF2876245D105B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Dawn Wall - Birdmask (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:9365D9B96E810346862E3FAD8D5EC41028479B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Calming Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:D8CCC301CC0C56664DABB54899436F2046958D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Rhinoceros 7 v7.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:59BCF7F7BCC0CF3D0AF13EA2837B8FD3AD32CB33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A4DBF273CD413C1D22A2C1224CF29BA37422071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ April Rain - Mirror of Ether (2021) [MP3|320 Kbps] <Progressive Rock, Post Rock,
 ```bash
 magnet:?xt=urn:btih:C9BA874FB49FF45D82B67416BF1130D9EA281BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - Beatport D&B: Electro Sound Pack #229 (2021) [MP3|320 Kbps] <D&B, Bassline,
 ```bash
 magnet:?xt=urn:btih:844358A00CCFB82609E04600864132F3162096EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ VA - Beatport Chill House: Electro Sound Pack #230 (2021) [MP3|320 Kbps] <Chill 
 ```bash
 magnet:?xt=urn:btih:FCFB0A1BA575EB31F6313E70AC46CFA2D2E74036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Children Of Bodom - Hatebreeder (1999) [FLAC|Lossless|image + .cue] <Melodic Dea
 ```bash
 magnet:?xt=urn:btih:0FA3F6F71955CFF7974C8D7CCE7C86113C405178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBA834751A7915819748051DBD39EDA08E259263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Substance Designer - мощная программа, которая предн�
 ```bash
 magnet:?xt=urn:btih:5CB8609E161BEFCC368B72E4CDC58477A5526BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Soen - Imperial (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E2F0053E09EBCF547E5397F3FB7146339887B021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:705DED68AF351D23360012AEFE07756D3DDE8D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28058CC01A6716D9FB9BE3CDD5F171003EA8D3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ VA - Ablazing Winter Sessions (2021) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:37340A5FA63C89ACB779614BB9C4063E3F5825A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F6550620007A5BF45AEEDAB0AEF270E027B5038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1163DA86DDBFF4705BBA84D4BC20A7F40B179F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Hej Stylus также предлагает сменные пресеты. Это
 ```bash
 magnet:?xt=urn:btih:81559A6DBED868F3FDBC24A107B10CA9BECF2224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:502DD12817D1A9E7B386446F25E0933905FA6E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ Antti Martikainen - Sonic Savior (2020) [MP3|320 Kbps] <Instrumental Epic Metal>
 ```bash
 magnet:?xt=urn:btih:A6DC039D9FE1B89BC19691859D83438B00563F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73E52B8FECB61568AC80C47F13A2EE0E3C94C61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAB5D4FE8A7540E06A31CC8F02E490D7E42B0C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

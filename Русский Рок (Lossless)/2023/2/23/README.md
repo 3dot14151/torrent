@@ -22,8 +22,7 @@ Cold Eternity - Холодная Вечность (2023) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:D54FB926F7B5EF7E20B956E41C2443E345952E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

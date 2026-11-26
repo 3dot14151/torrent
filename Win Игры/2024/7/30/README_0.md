@@ -19,8 +19,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FC984E3DF23064467D2748A21CC23035A34F4991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:E2D427BDED2CD944A5C544D175162C9863FB4E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (20240719/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B1FFE6BD34D23AEECC95CA841FBC147B369C9F6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Renovator: Origins представляет собой инди-хоррор
 ```bash
 magnet:?xt=urn:btih:0B9BF7322C92A75C48EF443471ECF4B3ACC99B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ State of Decay 2 - игра-антиутопия про выживание в о
 ```bash
 magnet:?xt=urn:btih:44CCE2836E60DB4A11F136F0F70002BE301B9171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ War for the Overworld (2015) [Ru/Multi] (2.1.1/dlc) Repack FitGirl [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:AB62C32FB312E046D979047440B3249525CF5435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E3E6180EC3E0A366FA41EE9600832E972A4CBC1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

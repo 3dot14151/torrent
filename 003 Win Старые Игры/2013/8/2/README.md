@@ -26,8 +26,7 @@ Penumbra Collection (2007) [En] License GOG
 ```bash
 magnet:?xt=urn:btih:86AA61291C6525A56CFB28B16E08B12EC5348122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

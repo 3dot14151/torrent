@@ -18,8 +18,7 @@ Sony Playstation 2 Pcsx2 (2013) [Ru/Multi] (1.3.0.20140413) Emulator
 ```bash
 magnet:?xt=urn:btih:92DC4A7803E651AF369F6EC21E5FBDE1A4E41F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ AutoCAD является мировым лидером среди решений
 ```bash
 magnet:?xt=urn:btih:A3486D63A1FB4133520506B7A5F7CD69AFF75FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Metroid: Other M [Wii] [Rus] [NTSC] (2010)
 ```bash
 magnet:?xt=urn:btih:42197BA96859F80FD5DAC284537E0AED87AFF913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Divinity: Original Sin возвращается к истокам памятны
 ```bash
 magnet:?xt=urn:btih:3A13B2EB122BB51F0E95226FC705181CDC4EEE49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Sony Vegas PRO — профессиональная программа для м
 ```bash
 magnet:?xt=urn:btih:913C32AAE9A9564E52C2C7C3C150ED413CA11C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Gothic Anthology / Готика Антология (2001 - 2011) [Ru/En] License
 ```bash
 magnet:?xt=urn:btih:613EE0EB1F9F286C049741F728FA6A2D2A0CD058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:214E20A2F09BF2B68F77D1CAECDE2E3F73DD8E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE2699EA0BE05E91D171B178CA32F3D3142D2FE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Windows XP Pro SP3 Rus VL x86 с интегрированными финальн
 ```bash
 magnet:?xt=urn:btih:780900E1B4630BA864965592B1C26B3A250DA867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Xbox 360 Controller Emulator (x360ce), эта программа позволя�
 ```bash
 magnet:?xt=urn:btih:AFF15F337DE0367FC73BFC4E56A9E7FC76C82663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

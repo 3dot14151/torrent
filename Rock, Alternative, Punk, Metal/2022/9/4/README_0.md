@@ -22,8 +22,7 @@ Pure Massacre - Pure Massacre (2022) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:804AB2D6BCF7A6F333FEEAB39D2115B97EF082B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dynazty - Final Advent (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power M
 ```bash
 magnet:?xt=urn:btih:A7E91030471E60CED3377ED84DFBF5D822454AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nordic Union - Animalistic (2022) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:1C91CD62CBBE1264B7D91D94B4A41667D083AA6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pat Travers - икона блюз-рока и великолепный гита�
 ```bash
 magnet:?xt=urn:btih:E4DCD2AD4F201ABC66909030F6BA14AF220C1E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hydra - Point Break (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:8237AFB7182A3D45485F199888B30FD6C5B841C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Femme Fatale - One More For The Road (2016) [FLAC|Lossless|image + .cue] <Hard R
 ```bash
 magnet:?xt=urn:btih:0D37D3AA77974AB566CE65AC17D8847511C34F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Machine Head - Of Kingdom and Crown (2022) [FLAC|Lossless|image + .cue] <Groove,
 ```bash
 magnet:?xt=urn:btih:2A0B391A32A5E2218C0D6A76E48B216F4312AC4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Venus 5 - Venus 5 (2022) [FLAC|Lossless|image + .cue] <Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:D4BBD8B05B2E4631EE42AAD2C47127AC6DD41C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Epica - Live At Paradiso (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, 
 ```bash
 magnet:?xt=urn:btih:1749CBC5218B86CAA4C9C302C2A12BA8C97B346B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1DFC993C3D23772516C06911D5A188FBCA78767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Single 02 - New Gold (feat. Tame Impala and Bootie Brown)Жанр: Trip-Hop, Lef
 ```bash
 magnet:?xt=urn:btih:EF560AEB3868D1384E6A76452B0A03CC3114BD6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Drautran - Throne Of The Depths (2007) [APE|Lossless|image + .cue] <Sympho Black
 ```bash
 magnet:?xt=urn:btih:4A7E5B801E9BB49FDB3723CC89FC03AEFCD196C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Drautran - Unter dem Banner der Nordwinde (Demo) (2002) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:EDFD46235840762D933DF754EF87ED07C1BB7095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Dark Millennium - Ashore the Celestial Burden (1992) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:B3FE73D9FBD0B53DB3CC2239F6473F8994C05872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ Dawn of Creation - Self-Destructive Matters (2022) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:ECBBCB4D85874466326B25DF6CC8695E622B6AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ Titanskull - Titanomachy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:AA767E6B99F145898D56B44170630374FD77F0BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ Page 99 - For Imagination's Sake (2022) [FLAC|Lossless|image + .cue] <AOR, Westc
 ```bash
 magnet:?xt=urn:btih:AACE671C31C370C3965E4FA1A728013F03715687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ Crimson Sunsets - A Furore Normannorum Libera Nos Domine (Demo) (1997) Reissue, 
 ```bash
 magnet:?xt=urn:btih:AF91422394BDAE375907849C191CAD6C4BF22AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ Escape The Madness - Continuation Of Misery (2020) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:82F31C57301F8216E8898F72CEE6FF5D56FC4D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ Tomi Malm - Walkin' On Air (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:86FE474FBE0E020E3205CD6B49DFA08CE7D76420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +580,7 @@ David Sinclair - Apropos Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 ```bash
 magnet:?xt=urn:btih:657F339A9B5B79EA87D5372EDA6ADD065E56BBC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +608,7 @@ Arjen A. Lucassen (Ayreon, Star One, Ambeon, Guilt Machine, The Gentle Storm) - 
 ```bash
 magnet:?xt=urn:btih:A6C9042E83DF93401DBF6D9D54C98876D123E339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

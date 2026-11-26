@@ -21,8 +21,7 @@ VA - Beatport Trance Pack (08.08.) (2016) [MP3|320 Kbps] <Trance,  Progressive, 
 ```bash
 magnet:?xt=urn:btih:14CC99A08A5137361324F34E6B757B0ADF933653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EF1FCD8EBFD2E26FFE81BC6AA35A364B6BAD6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Sexy Deephouse Selection (2016) [MP3|320 Kbps] <Deep House, House>
 ```bash
 magnet:?xt=urn:btih:B57D22D1B082E11DD46093C2CB3041F454D8F960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A96478BCEA17D5728BD2A6808EBBD9A1B35CA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Summer Megamix (2016) [MP3|261-279 Kbps] <Electro, Vocal, Club, House>
 ```bash
 magnet:?xt=urn:btih:B9C590732E5B95853E5D0E7E19EC18D17B7797E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Mike Pachelli - Tube Driven (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Blue
 ```bash
 magnet:?xt=urn:btih:502FE046920491BDA01112DB90664EAF15E0F1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD7E808B2E8096B024553AF13AEE6CCF8A6D6B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Lew Jetton & 61 South - Rain (2016) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:49D034671D83F44EDA214418D29DF5F8D88F9EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Paul Brown & Friends - White Sand (2007) [FLAC|Lossless|tracks + .cue] <Smooth J
 ```bash
 magnet:?xt=urn:btih:D27AB9D325D28B85CC7E20A00FC4D52428DF10A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:02BA7EA19283552979786BD7AC473B5B9C4D6429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:6D5233C087B5F09A35704ADFA6C5770C4BF00495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B48319DE9D7AD17F91FE364A3C58B0E40B22FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:758EB1C338DD183117918ABAA55429D66A514601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CCE508B30F1930AEE0703B84BABBA45D0FDEBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ iA Writer — фон, шрифт и курсор
 ```bash
 magnet:?xt=urn:btih:B97F741EEF2841EEF1E1664B674375AFD9235CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F2B9754B78C22A1A428A566C63B87CD50287BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Nick Simpers Fandango - Slipstreaming & Future Times (1999) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:077E2FF8C0224C63EA11F27A4556832306F80EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ VA - Summer Hits 100 Empire (2016) [MP3|320 Kbps] <House, Progressive, Dance>
 ```bash
 magnet:?xt=urn:btih:A8517668D4C112BF828055CE7BCF62EB795414CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ Trello уже полон полезных ярлыков и опций. В то�
 ```bash
 magnet:?xt=urn:btih:A60A3F5085E3F82229F1BE8E46C1EBF63E4E0AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ Nervosa - Agony (2016) Digipack Edition [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:70190DB313951FF3EFC0667AAEF79E3178E9E0E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ Playr был сделан исключительно, чтобы сосредо�
 ```bash
 magnet:?xt=urn:btih:C110660E2A310601C04EAFB02892C96BE62F7A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:98EAAEAD22C1974920849D2265F456BE3C1675ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA019220CCA9FCB32D5F640BE0C28374D227A5AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3641259C43106EB66AF9F3155A107685258B29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DDE4E7FB2F8C0603BCB82FFC5440F7AABCAFB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ Stratosferic Band - Splash (1977) [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:8B4A67E3032D63E5AEAEDAE9E4B0D0A6D7AF92B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

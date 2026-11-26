@@ -19,8 +19,7 @@ Stereophile - авторитетный американский журнал, п
 ```bash
 magnet:?xt=urn:btih:D8C4A7AF999C52DD44A35D7B23B991A80BEA5F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Top Summer Trance 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A8579CB6DC06AFA0169F321DD62CC00242B7ABB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - High Contrast Presents: Dennis Sheperd (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A40BD0362A1AD365790684ACFAF7D4678FED6811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ The Kris Norris Projekt - Icons Of The Illogical (2009) [FLAC|Lossless]<Progress
 ```bash
 magnet:?xt=urn:btih:6081DFE225E2897619DC7653A59568EFA5BF72AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ VA - Ocean One: Chill Out Lounge (2013) [MP3|320 кб/с]<Downtempo>
 ```bash
 magnet:?xt=urn:btih:937A41CFB3385DA147CEDE082475BC5578A06022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ VA - The Official UK Top 40 Singles Chart (27-10-2013) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:C706D4BDD64C108E30D524563134ECDA6D6E55BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:456A413DCF8C0E8DD8C8A9987951BA0E5D931CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ VA - Ost-Rock Megamix XXL (2008) [MP3|320 кб/с]<Pop, Pop-Rock, Dance>
 ```bash
 magnet:?xt=urn:btih:4882A751EAA733E127CFC78F53473F51B1F84AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ Maximum PC - журнал для тех, кто занимается апгре�
 ```bash
 magnet:?xt=urn:btih:B4C15DE86E53CC07B8DB0886E2565108C1E2DD37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +349,7 @@ VA - Glamour House - House Music Collection (2013) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:F2A51048FBB6775B84CC882BA01D741B93E2FF0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ```bash
 magnet:?xt=urn:btih:E8B33CDB2736FA2B3A708ECC693454BCFCFB0EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1094FE770D536BDBC7F68CE6A1C1F0DA33303E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6974E87C4E6C2DA9450CC30B56C083886DEA1F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ Coney Hatch - Four (2013) [FLAC|Lossless]<Hard Rock, Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:83FA65C13182A0F286180F41E8DF1B25849A02C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ Abbey Lincoln - Through the Years: 1956-2007 (2009) 3CD BoxSet [FLAC|Lossless]<J
 ```bash
 magnet:?xt=urn:btih:FF7F43BE17429FCCF85DA174BC7DAEEA0733B4D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ VA - Mеllоmаniа Step 23 (Mixed by Pedro Del Mar) (2013) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:A875AE70AA8D2CEEE15F4C6A050D148EC8CA4826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ Linux Journal — ежемесячный компьютерный журнал �
 ```bash
 magnet:?xt=urn:btih:C8C9215C25EDCECA8AF426AB0F81395E9AA61236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D896135CF31954B35CC20177958650714F4B963E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ Mooncake - Zaris (2013) [MP3|320 кб/с]<instrumental / post-rock>
 ```bash
 magnet:?xt=urn:btih:F480CD400E7B12D5281BCBB6F74A97E4301820CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82DBCBB038F6AF1DE9719E4DB7BD93CB104C955C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +689,7 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ```bash
 magnet:?xt=urn:btih:BE90E4B3B8D844E9B5803030F1277E2094FBF1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA3B0D018A6AB31C7F604852F1C80181B5D78A3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B734EDBB225CE4B05810F10D0A22E11B28A7553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

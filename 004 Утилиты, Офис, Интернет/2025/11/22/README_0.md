@@ -22,8 +22,7 @@ DBF Viewer 2000® - приложение для просмотра и редак
 ```bash
 magnet:?xt=urn:btih:5DBB44E8613B688B31BAA0A40161D21E405D5718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ DBF Converter — узкоспециализированный программ�
 ```bash
 magnet:?xt=urn:btih:6B1A1AF3CF2F1748631F742323853550523F4FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:C1F8D6329E795AD723129DE147363F8C7F72FF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ MathType - это интерактивный инструмент, которы�
 ```bash
 magnet:?xt=urn:btih:F945C1EECA19BAE51433D3A144999295733324F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:1BCDBB7EE6243EA31678C77CA665326B43D536CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:667ADC30A62B6325CD580097CB32052ADC91CC87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ MediaHuman YouTube Downloader 3.9.18 (1711) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:342EDD1510726843CD3975FB085D39F00E8ABEAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:F7485970C89508CCD128CA3D653D703AEF59DFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ MathType - это мощный интерактивный инструмент, 
 ```bash
 magnet:?xt=urn:btih:ADE9B71E5086FD253D25EB974CC02E69FB115A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

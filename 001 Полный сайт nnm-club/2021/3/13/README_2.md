@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:18841A55883DA0B6CF48BF6DD37D8717C3CB4A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:F963A77BD16C02F3E1B7DD185DAA37335197B192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Памяти Михаила Круга посвящается... (2002) [FL
 ```bash
 magnet:?xt=urn:btih:D4D65AECC5A3590F5129F3F0B2A6216FCD767290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2CC7AC20949B124B2EDED85C73483B0F1988580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:453CEBF9D48D7F0E69D8247722460AB9B94BA0CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Udemy, Maher Haddad | MikroTik Switching - Spanning Tree Protocol  (2019) PCRec 
 ```bash
 magnet:?xt=urn:btih:02546FC1CE14E5760358D242B3DCC9FDA57D101A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Visual Studio 2019 - полнофункциональная и расширяе�
 ```bash
 magnet:?xt=urn:btih:9D5EC4E03560F93244508DEB552B2AEE49F20403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:7C281C6E6267E17EBF10DDEF7F9B0E0861E49F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Evanescence - The Bitter Truth (2021) Scene [FLAC|Lossless|tracks] <Alternative 
 ```bash
 magnet:?xt=urn:btih:E61BB14D2B967E94E82E5CBA16495940282A2AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74BF717550D7B21A5F8360FAD2F78807A9C26C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4519399CA86A83099638E085569620A67EBCA75D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A675E406D84E0450CBB558C14B7C0DFDF4CDA473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Shinpi no Sekai El Hazard | El Hazard: The Wanderers | Эль-Хазард: Ст
 ```bash
 magnet:?xt=urn:btih:79636720C17803E33F503A0E46482661AA8EA39B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Le Chevalier D'Eon | Шевалье Д'Эон [2007, TV, 24 эп.] HDTVRip 720p 
 ```bash
 magnet:?xt=urn:btih:931252738385434B632A337166EDD83E6AF27B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:343945306BB3701377DF0EF8C8ED5D18F004C1B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ ToonApp - карикатура фоторедактор лучшее прило�
 ```bash
 magnet:?xt=urn:btih:1353EFBBC03B316108145A9F40D90AEAAFE0ADF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Udemy, Maher Haddad | MikroTik Failover Setup with LABS (2019) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:D89396E4359A541A15AD54E427F6A540E7A946AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7789D817544DC459AA5AF04ECB20C5F7AAD778BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EDF6E4FE1E5FD80B1487D9A1A6E1197C0BAC0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ Speed Grapher | Спидграфер [2005, TV, 24 эп.] DVDRip 480p raw+rus
 ```bash
 magnet:?xt=urn:btih:2BC480CA24DC391D45A1D7D6C075C09ADA03C338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ Nox App Player 7.0.1.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:53297DE4428AAAA12E6A4B49303439D95A50AD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DA85850F0CFBDC1D4C09A9AF7FD60D46DCA660D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:958715BBCA6597F01D0AF0BD606A0C68929BFBFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ FIRST STRIKE – Первый удар - это захватывающий ст�
 ```bash
 magnet:?xt=urn:btih:13C4673E33B577E5F44F4AAE091C3725E76BFCB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ Fontexpert - полнофункциональная программа для п
 ```bash
 magnet:?xt=urn:btih:A7034409BD25F2EC0E49B4E5C43664949764A230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C97D33623DB050A9317DF751421B0349916AC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

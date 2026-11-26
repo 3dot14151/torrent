@@ -19,8 +19,7 @@ USB Safely Remove 7.1.2.1328 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:10153022526F7F80226B5F5B1D036001D8FFEBA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 ```bash
 magnet:?xt=urn:btih:26254A3EED354735F05A94D57FBA727F98BA9DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Uptooda (бывш. Image Uploader) – бесплатная программа �
 ```bash
 magnet:?xt=urn:btih:CA14B19FDC90C2AE44427FFC8D85CEC85B7D1FEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Insofta 3D Text Commander 6.5.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E139D04F95944EA33C4D2CFAA3500E0BDC4F7411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Visions Of Atlantis - The Deep & The Dark Live @ At Symphonic Metal Nights (2019
 ```bash
 magnet:?xt=urn:btih:2520DB6FEF23FE034AE690633900360D6A88541E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Overkill - The Wings Of War (2019) Japanese Edition [FLAC|lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:DAB937BAD5C0AA17F8A526C24E099DF61B5469E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tyr - Hel (2019) [MP3|320 Kbps] <Progressive Viking Metal>
 ```bash
 magnet:?xt=urn:btih:F50E0A85EA34A8B031DF1250F5AA5B90189F65EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Doro - Backstage to Heaven (2019) EP [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DB0B80ACFDEB57F95A8AFC2C30EF8803D0D73019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6697BD7C44282B721940651B858BF6B53D136A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Children of Bodom - Hexed (2019) Deluxe Edition [MP3|320 Kbps] <Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:9AFD7CB1E857B4259545D4A3FACDB41D0055E518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD7DE1FF15CE4969614B5962338075E9F0CAB2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3675B7FCBFD302992933850797A599226C20017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

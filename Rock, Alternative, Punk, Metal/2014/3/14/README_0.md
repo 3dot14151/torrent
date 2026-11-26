@@ -28,8 +28,7 @@ Dave Cousins - Two Weeks Last Summer (1972) Released 2004 [WavPack|Lossless]<Roc
 ```bash
 magnet:?xt=urn:btih:17B40AB60CD742500AD5433B9734C37F3085C7CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Battleme - Future Runs Magnetic (2014) [MP3|320 кб/с]<Alternative Rock, Indie
 ```bash
 magnet:?xt=urn:btih:D11940E48EBF5E717700E4620453603B53A5A4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Goncalo Pereira - Upgrade (1999) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:8784EDC0DE507F69CD5A6DC3B7852FF5738A0016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ A Guy Named Sid :
 ```bash
 magnet:?xt=urn:btih:B75D40734F640025996C58EFEDBF64D6DB2AD3F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Jon Anderson(ex-Yes) - Olias Of Sunhillow (1976) Remaster, Hybrid SACD /2014, Au
 ```bash
 magnet:?xt=urn:btih:4871D6593B5908971DEC18782DEB113BBD49A498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Stuck Mojo — рэп-метал-группа из города Атланта, 
 ```bash
 magnet:?xt=urn:btih:A8FD741BBBF4198BE308FF99140C9A43995B3DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Pink Floyd - Spaceball Ricochet (Live Boston Gardens, Boston 1975) /bootleg/ (19
 ```bash
 magnet:?xt=urn:btih:8E80D8A51591D7F2D4D58EC1B70C430D159FC845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Gojira — французская дэт-метал группа, основан
 ```bash
 magnet:?xt=urn:btih:CE799C522A799AFE43D48F0CAFDA021FE487A1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

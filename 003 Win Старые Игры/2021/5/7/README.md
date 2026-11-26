@@ -19,8 +19,7 @@ Hocus Pocus (1994) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:EE95000C9D7531EEB644D099C3052354D942D33F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

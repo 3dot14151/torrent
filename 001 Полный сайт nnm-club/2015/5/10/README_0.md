@@ -22,8 +22,7 @@ VA - German TOP 50 Offizielle Dance Charts (11.05.2015) [MP3|128-320 кб/с]<Cl
 ```bash
 magnet:?xt=urn:btih:FC73085FAB899B47FDBEA3C1CF46E540E72ABD65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F00A5632EB8811AD483C34CEEF8AC4C87DD022E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Jurassic 5 - Power In Numbers (2002) [FLAC|Lossless] <Hip Hop, Conscious>
 ```bash
 magnet:?xt=urn:btih:3F8E0E69E9C7BACE6B38CEFCA684AFF1E5F28A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Veil Of Maya - Matriarch (2015) [MP3|320 кб/с]<Progressive Metalcore, Deathco
 ```bash
 magnet:?xt=urn:btih:A5B967AFCCAAF6A2C14207F7A0463E4EEE075B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Sensual Approach Vol 1 (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:0482CD61F3D6A9CED00A8F21E6406900F48BF7A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23A40C7D9286DFBFDCDA2B24833932A6BC5BE749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A31FB0D47AEDE171B178E499F49CB15F4FFB0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ ArtIcons Pro — популярный редактор иконок, котор�
 ```bash
 magnet:?xt=urn:btih:F6615D4158642D842DF1F75DFBB24663E416F662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Natalie Cole - The Best Of Black Vocal (2004) [MP3|320 кб/с]<Smooth Jazz, Sou
 ```bash
 magnet:?xt=urn:btih:939AA28608AA48FE906C51AD27A86229F8FC0515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ VA - Aphrodisiac (Lounge and Chill out Music) (2015) [MP3|320 кб/с]<Downtempo
 ```bash
 magnet:?xt=urn:btih:6EEE7AADD6E85021714F41E10E03B275C388DC4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A724383E3A32485941D9CF19BEFE6B491CD30D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Zane Williams - Texas Like That (2015) [AAC|~256 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:9B02711A7DB8F1A24B8CF4D080C2F457294F9B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Comedy Баттл. Последний сезон. Выпуск №6 / Комед
 ```bash
 magnet:?xt=urn:btih:8032BC58F8A091B937CD887C596433434AD3E4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Dark Sarah - Behind The Black Veil (2015) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:A487FE5CB4B31084569998F7C598D7EC07306B66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B03D6CAB7C07E67771DB67BD1952B23DF36657A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC951F140B08EAEA825B33FE6CF83E3F6C193D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Junkware Removal Tool 6.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:D088CE0BF5FF51028196E85B63C70556EF1D3F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:E8EE69BD2871FF8C8788B27324CB061613944886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ VA - Show Me Your Body (Erotic Lounge & Chill Out) (2015) [MP3|320 кб/с]<Down
 ```bash
 magnet:?xt=urn:btih:06B5F7658BE0276BC458AE8112FF20D8FE4D570E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B7C6AAD1CC5149C50306F4E63BD5C37A9F84578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ Armin Van Buuren Feat. Mr Probz - Another You (2015) [MP3|320 кб/с]<Tech-Tran
 ```bash
 magnet:?xt=urn:btih:7EDB2593A96C28BB65E680B881C71E537620D255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Gary Moore - Wild Frontier (1987) [WavPack|Lossless]<Hard rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:35738249E6DBBA3D93BC9A74091008ED2646F104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ VA - Erotic Couple Lounge Smooth and Sensual Deluxe Chillout Music for Bedroom L
 ```bash
 magnet:?xt=urn:btih:C4A317B6032474C5322EED5CC3250B3F5A81BB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Dark Sarah - Behind The Black Veil (2015) [FLAC|Lossless]<Symphonic/Gothic/Power
 ```bash
 magnet:?xt=urn:btih:36BA532F1AC905B6F45DD56258411A6D9E1F4D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F174128DBFFF480A6B3F976245B8F44E3B5F2724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ Sonic 2 - The Hybridization Project 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:489CF9253F6E05A6EA32BBBD73A073DFA915F147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

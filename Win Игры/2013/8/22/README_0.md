@@ -24,8 +24,7 @@ Betrayer - это экшен-приключение с видом от перв�
 ```bash
 magnet:?xt=urn:btih:028B509449B9AEF9E485900B5F31BDBA3594BC34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

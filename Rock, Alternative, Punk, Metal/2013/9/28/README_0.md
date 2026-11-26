@@ -28,8 +28,7 @@ Hydria - Freakshow (2013) [MP3|320 кб/с]<Gothic Metal, Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:56311BC7716CDA3F30A42A6097C7F5B40A5B2B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Mystic Prophecy - Killhammer (2013) [MP3|320 кб/с]<Power Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7C2E14A7B39871CAA153382EA43AB522EC70E5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Berserker Berlin - Fur Das Leben Bereit (2013) [MP3|320 кб/с]<Hard Rock, Deut
 ```bash
 magnet:?xt=urn:btih:FECD548C601A449308798165F7A6EA01B48847CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Steve Hunter - 2 альбома (1977-2013) [MP3|320 кб/с]<Instrumental Guita
 ```bash
 magnet:?xt=urn:btih:FBFB514F973438BB768F244767FAA2B03302FF23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Les Friction - Les Friction (2012) [MP3|320 кб/с]<Alternative Rock, Symphonic
 ```bash
 magnet:?xt=urn:btih:FF61E61E82CA8FDD72BD51317323DE3EA41F8861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Aura - Вдохновение (2013) [MP3|320 кб/с]<Symphonic Gothic / Power 
 ```bash
 magnet:?xt=urn:btih:970FA312D9B44ED3D86CDFA1DC7A1AB3D951AA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Eklipse - Electric Air (2013) [FLAC|Lossless]<Instrumental Symphonic Rock>
 ```bash
 magnet:?xt=urn:btih:A3DFC0AD6FEB04B292111DCE0616C4E933D1313A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

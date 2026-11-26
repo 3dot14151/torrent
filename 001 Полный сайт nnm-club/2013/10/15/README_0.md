@@ -18,8 +18,7 @@ VA - Amsterdam Enhanced (Mixed by Ost & Meyer, Suncatcher & Johan Vilborg) (2013
 ```bash
 magnet:?xt=urn:btih:97679D7582B01B4BB28787378551AA59D36E0032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F54B9B6C3F945F5C026CD71FD275C6880D7E5B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ When I Fall In Love(   Читать дальше...   )Жанр: JazzПродо�
 ```bash
 magnet:?xt=urn:btih:7A8D07D8237A54C3FC8D5DE1A27DA0B6557CF974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ NFOPad - маленький, гибкий и простой текстовый �
 ```bash
 magnet:?xt=urn:btih:F7CC765F435195838AF939B873563C66BF7C2A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08C3AA617431D0B92875A9C4A62754054583F40A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Empusae - Sphere From The Woods (2013) [Ant-Zen] [MP3|~245 кб/с (V0)]<Dark Am
 ```bash
 magnet:?xt=urn:btih:4E51F67F83C0519B595A991D4DC24CABEC297AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ History Channel. Новый Нострадамус / The Next Nostradamus (2008)
 ```bash
 magnet:?xt=urn:btih:DD11DE183316B5355211E98297A5D25017CD1C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AC5A823BA381D44CCB1224DC4126A0AE3F28EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Shotu - Friends (2013) [MP3|320 кб/с]<Psy Trance>
 ```bash
 magnet:?xt=urn:btih:21ED501AAFE33F7479864BB9C830700BDA5792ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E6152BE835D918864CEF77FB8F19D08BC05B8C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E75E2B253C9B2F604760B141DD5E2E905169028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ VA - Summer Meets Autumn (Compiled by Anubis) (2013) [FLAC|Lossless]<Ambient, Do
 ```bash
 magnet:?xt=urn:btih:76817723B4A80DC0DC01F7B259B6635E7CBB8D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ Discovery: Война от первого лица  / Ultimate Warfare  (Сер�
 ```bash
 magnet:?xt=urn:btih:423FF600FC59404C41D057CCDF826BD3641C07BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB33EF9A68D1C4404C6CBF93F8E3D67E06C8AED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:444B1647ACEC3A52475CA232D220652B1FF93A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +449,7 @@ VA - Осенний шансон по-русски (2013) [MP3|256 кб/с]<Ша
 ```bash
 magnet:?xt=urn:btih:28501FC59A50BF461A7EAA914E06AE8824A2B9F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E94EFF1EA5E4CBE02FADFBA3E9F3B8EB81FA63C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2727E7C2BF09EB9F57EA8DAD099622058181A172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ VA - 25 Years of Global House Vol. 2 (2013) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:A790AA5C5807271903CDE2226B034C2A9C5A6169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:561C293AEBC0CEE9D5FB68870B3F898E065D3672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ Giyo - Tons Of Sky (2013) [FLAC|Lossless|WEB-DL]<Trip-Hop, Downtempo, Electronic
 ```bash
 magnet:?xt=urn:btih:94BFD9244B5BE48369BB232EE1D05D86CF1BC400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ Gaiser - Slapback (2013) [M_nus] [FLAC|Lossless|WEB-DL]<Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:2D75BE967C0755EBFE8E54F3B69EF00EBBA07C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B92A42BE8E7EDC86862E7019480957D28D90B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +677,7 @@ Far Away Trains Passing By
 ```bash
 magnet:?xt=urn:btih:0AA870282700B87AE1C006CDCEEC434CFAEDCDD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6781F00EE5C801B6496D57D8C479E32FE0882E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC9D9BFC57A4C344D64961F1BA9EB87E779369B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

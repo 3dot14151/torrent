@@ -19,8 +19,7 @@ The Elder Scrolls IV: Oblivion Remastered представляет собой п
 ```bash
 magnet:?xt=urn:btih:4D3FFA0D5F7F69D03E28471D0971B029350F6009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Forever Winter - это тактический хоррор-шутер на 
 ```bash
 magnet:?xt=urn:btih:EE818740D531D90F32995C2B41F617AA3B0114C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:ABA8040839C260155E58465EB88CE9029FF4A23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17717270/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:5D0EA743BEEC26F6199BD35BB98841601110547F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:761617E41CD40B62FEAE8F78507035616AAD5D7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Steel Seed - захватывающая приключенческая экше�
 ```bash
 magnet:?xt=urn:btih:6E765DD6AC5613FB5F6AC4EB6FFF4018A9868772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Steel Seed - захватывающая приключенческая экше�
 ```bash
 magnet:?xt=urn:btih:B47C89515A1BD74BD86B4FC6D75F2A81BACC8225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Post Trauma (2025) [Multi] (1.04) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9942371CA1366C39088CDEA493E7945DB745D7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Lushfoil Photography Sim – это невероятно красивая и р�
 ```bash
 magnet:?xt=urn:btih:108964DE9465E4BA96CA1A94F9E4E8D75A47A7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Pecker (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FE123E32571ADEC436BBB269358AF22577578B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ b]Системные требования:Разработчик: Hildring Studi
 ```bash
 magnet:?xt=urn:btih:4DEBCA37ABC7BFC94D398B39FD6B8DA1E03810B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Brassheart - это приключенческая игра в жанре кве
 ```bash
 magnet:?xt=urn:btih:62873C2BF6CEA5B5526D4423A8369432AC27ED7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Steel Seed - захватывающая приключенческая экше�
 ```bash
 magnet:?xt=urn:btih:88A335F7F3C8124441DB851690640B6FB0FF81D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:A9D5CC1A6FB12DF99E7409D17F48EFE5D6B4E70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Hyperviolent (2023) [En] (0.9.0.6) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:4A55173BDE5ABB217CAE7C05D1311DE344F40AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

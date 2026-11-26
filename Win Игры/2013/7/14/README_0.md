@@ -19,8 +19,7 @@ Angela Young 3: Lucid Dreams: Messages From Beyond (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F4AD29C498AF649428924EC826920B2FED997633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Strange Discoveries: Aurora Peak Collector's Edition / Странные Откр
 ```bash
 magnet:?xt=urn:btih:499EAB42305059C669FC64438A5C99BB8252C050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Secrets of the Seas: Flying Dutchman Collector's Edition / Морские тай
 ```bash
 magnet:?xt=urn:btih:3257E07BA8D0612854E2F8EB12E6944005255E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Mars: War Logs (2013) [Ru/En] (1722) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:6995174AD60ADCAAB42909769E624FCEF7F6C89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Sid Meier's Civilization V: Brave New World / Sid Meier's Civilization V: Див
 ```bash
 magnet:?xt=urn:btih:95C7DD502A737A89FB83799F8C45F069BFFEBBD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Unified Remote v3.21.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E1A1823F91C9D7B3D3AD609F8B54B5097F7CD33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

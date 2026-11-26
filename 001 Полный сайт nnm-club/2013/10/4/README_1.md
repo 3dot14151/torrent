@@ -27,8 +27,7 @@ Captain Jack - The 90's Mega Party (2013) [MP3|320 кб/с]<House, Euro House>
 ```bash
 magnet:?xt=urn:btih:227682FCB225147C86C2EA73272FF92B4867D33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:65094B1F6B8123079E1196E28729DB1D83F604DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E41BEBD262876E8DE71635675098E99FB1FC746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Kiss FM - Top-40 + Kiss FM - Top-10 (01.10.2013) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:803EEBDA26C441958E40D85EDF93D58365F973F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:814D91D52E678FB28146910EA7279C8063ED21B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E3A657C57913ABDCCD04FEE5A9B0F6A99B6CAA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D32377E8342733EDF0C72D5715FBF49D30EB32E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48D4BA6B13FA0A2C6343044CF7442ECE9519CEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Soulfly - Savages (2013) Deluxe Digipak [FLAC|Lossless]<Groove Metal>
 ```bash
 magnet:?xt=urn:btih:2FEE51F258CAE49D2C50B97362FECF6690DA5568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AE49089879B12731934460AA3E8CC6022C3217E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Paul Ruskay - Strike Suit Zero (2013) [FLAC|Lossless|WEB-DL]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:1D49F61DF510365A6709E5F164840A3B3D460FB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B47013D72878F6A4EC85FE0FFA1D806600D1C5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ B5.  Bring It On Home  :: 04:20Жанр: Hard Rock, Classic RockФормат: 20
 ```bash
 magnet:?xt=urn:btih:AD14DFECC82B458083A1E82B1E10C12A661D5973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Google Chrome – веб-браузер от Google с открытым исхо
 ```bash
 magnet:?xt=urn:btih:81B67D4C7632C1AD3F0CC6105D738670EC776F29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ CHEats MAXimal Rus - наибольшая русскоязычная база с
 ```bash
 magnet:?xt=urn:btih:B9358694E6236B2844F7A38CE38F3085CE416ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ Comedy Баттл. Без границ. Выпуск №20  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:AA126283E74AB1D4A3E8E42C254819086DF68AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:79184C0F0350609463EE74C774B0185E3EA47E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ ANIME-PATCHWORKРазрешение файлов: 1500x1000-4092x2893Форма�
 ```bash
 magnet:?xt=urn:btih:ECB7FD7B1C173E73858718C48E30BFE5BE02DD53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ VA - Самые сливки шансона 14 (2013) [MP3|320 кб/с]<Шанс
 ```bash
 magnet:?xt=urn:btih:2565474D44212D3FC5CAA8133780C514DAD7B423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ VA - ЕвроХит Топ-40 + Радио BIG LOVE 20 (01.10.2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:CDD03FDEA9FBBCFE16386BB297BFDC7831D149BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Serial Box 10-2013 [En]
 ```bash
 magnet:?xt=urn:btih:894E5E9B5858B7E3BE3F3DEC6062D747889287CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ VA - In Da Club Vol.74 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:7A4792322ED1D609A7762DBF07939D5285706AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4C945A800316F6392197AA6CC37D891B2E93556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:84F9D9781C54015B7A41696B5E874CD96270B9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +702,7 @@ Aly & Fila - Quiet Storm (Extended Version) (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:254DE214D5FD6CAC4A8CAEC69EB9D5B5C91CFAA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63501A5754BAB054E6AB60C9AD224678CDB6E7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

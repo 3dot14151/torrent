@@ -23,8 +23,7 @@ Blades of Time. Limited Edition  (Steam-Rip) [Ru/Multi7] 2012 | R.G. Игром�
 ```bash
 magnet:?xt=urn:btih:AD2A69903FF4ABE4571B0644A226238EFEAB386F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

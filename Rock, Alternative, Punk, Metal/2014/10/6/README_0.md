@@ -24,8 +24,7 @@ Sjanse - Resentment (2014) [MP3|320 кб/с]<Screamo, Emoviolence Hardcore>
 ```bash
 magnet:?xt=urn:btih:B79BFDD566E8E3EDD4FF37891E186FEF8E3BC2B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Fvkc Mountain - Dead Dogs (2014) [MP3|320 кб/с]<Blackened Hardcore, Crust>
 ```bash
 magnet:?xt=urn:btih:3CE2802E2AE34F4421BA4FE888C2C63B6E33D57A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC4CDD7B19437D24710A8320DF057AA501366794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Kaunis Kuolematon - Kylma kaunis maailma (2014) [FLAC|Lossless]<Melodic Doom/Dea
 ```bash
 magnet:?xt=urn:btih:1CD980DB6BBEB4F070B24002CBCC7DACF549B39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Custom - Fast (2002) [MP3|320 кб/с]<Alternative, Pop Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E79A61721FD8FEC35B21092DAF22EFA07BD5A573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ New Found Glory - Resurrection (2014) [MP3|320 кб/с]<Pop Punk>
 ```bash
 magnet:?xt=urn:btih:A4075554DA1C97DC168B06444B25E03DC855CFAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Decadawn - Solitary Confinement (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:A8124D97791D32880DA3EC65C2E5DEB6F025B95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ Shakin' Street - Psychic (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5B41E608D2D23BCE626380E842607EB1649F90C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +285,7 @@ Mike Tramp - Museum (2014) [FLAC|Lossless]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:6677447F9E7AA66643C8583865CB546B4BEB2C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +319,7 @@ Flickerstick - Tarantula (2004) [MP3|~190 кб/с (V2)]<Alternative rock, Indie 
 ```bash
 magnet:?xt=urn:btih:95311E92C3D2C640DFE6CB8A92739A2E89CB923E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +353,7 @@ Redemption - Snowfall On Judgement Day (2009) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:6C474AAF3E127F63DA62A6213EBEF4E64435C2A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +387,7 @@ Houston - Relaunch II (2014) [FLAC|Lossless]<Melodic Rock/AOR>
 ```bash
 magnet:?xt=urn:btih:3704C7645EBD0F35A3A3D2A1B4D5AF5F8B01E000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D58DB91CC03AAFC69FBBEC82F132EC19EA41DF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

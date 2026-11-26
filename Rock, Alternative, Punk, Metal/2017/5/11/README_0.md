@@ -22,8 +22,7 @@ Mean Mother - No Rest For The Wasted (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 ```bash
 magnet:?xt=urn:btih:052936267464B73F16235E2DA6ED4C7ACC4AB373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mallory Knox - Wired (2017) [FLAC|Lossless|image + .cue] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:94F0AB184B36F9355994436F4918E9BDCCC9C0F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Agent Provocateur - Where The Wild Things Are (1997) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:CD305617D10656AF53335E5B8A5927445DE605DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mac DeMarco - This Old Dog (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Jan
 ```bash
 magnet:?xt=urn:btih:9E4CE468B807B72E1B206BF07E42ADB6BA906BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mogli - Wanderer (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative, Folk>
 ```bash
 magnet:?xt=urn:btih:773479D61F6CBA0A621B18E5A28E22C4199D7F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Last Train - Weathering (2017) [FLAC|Lossless|tracks] <Blues Rock, Garage Rock, 
 ```bash
 magnet:?xt=urn:btih:C9522595B0EB4C549826F6EEEFE8966656D79B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Planet P Project -  Pink World (1984) Remastered, 2008, Renaissance Records [FLA
 ```bash
 magnet:?xt=urn:btih:27C4CC9B633DB0645FD86B44A0BAD72E80549538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Harem Scarem - United (2017) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4510E592CD437C78CD937982F6DB1E0477C04A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ VA - Dansk Rock Historie (1965-1978) 3 Box Set - 33CD, 2010 [WavPack|Lossless|im
 ```bash
 magnet:?xt=urn:btih:D4D759BC01BCD2D2673F8C936E1855E8713F04C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Manfred Mann's Earth Band -  Nightgales And Bombers (1975) Remastered, 1999, Cre
 ```bash
 magnet:?xt=urn:btih:FE01F163A61B2DC13AA740BD961F408FE9E24CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ Hoops - Routines (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Dream Pop, Lo-
 ```bash
 magnet:?xt=urn:btih:20DF9B5C0F3C4F0815F4804CF123973433BCB736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Riverside - 7 Albums (2003 - 2016) [FLAC|Lossless|image + .cue]<Progressive Rock
 ```bash
 magnet:?xt=urn:btih:A3357E1573BD78A417C18CD405DC1D6A8F12C48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ Paramore - After Laughter (2017) [MP3|320 Kbps] <Pop Rock, Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:253B51DAB92B568E7E67A0C699188D2596978C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ Seether - Poison the Parish (2017) Deluxe Edition [MP3|320 Kbps] <Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:7C48564B535C231AA8129F8C6C6AF827B1101650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

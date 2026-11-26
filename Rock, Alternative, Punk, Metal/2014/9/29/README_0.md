@@ -28,8 +28,7 @@ Esqarial - Inheritance (2003) [APE|Lossless]<Technical Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:3EB09613CEFD3A139F86B6DF5521260FDD5180B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25D3723FA14A54FEA282F6847F46E8A3E3EFA6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ A Shattered Dream - 4-D Society & Other Nocturnal Emissions (2009) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:3454B0C78D5E19CD0C6B64874D2366D5EAD1DF11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Esqarial - Discoveries (2001) [FLAC|Lossless]<Technical Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:56B1E11DC36EFA80FB17C79BB2871C5C55BDD60F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA44245EEB3EE857C1B6041ED41214F310B153C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ A Perpetual Dying Mirror - Towards A Constellation View (2000) [FLAC|Lossless]<D
 ```bash
 magnet:?xt=urn:btih:CAF88D45AFF283EF6A44E8CBDF79190B0CC4BEC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ The Glorious Sons - The Union (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:78CEEA8B86DFD564255E35D8F346A9B912EA385A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Exotype - Exotype (2014) [MP3|320 кб/с]<Post-Hardcore, Metalcore, Electronic>
 ```bash
 magnet:?xt=urn:btih:BD8C410FEAFD32F50BA591F947D7EE5D1FC74851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ A Tortured Soul - Lucifer's Fate (2010) [APE|Lossless]<Heavy Metal / Dark Metal>
 ```bash
 magnet:?xt=urn:btih:508AD6B66643E4629608CE7B3245CDECB1D7D7D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ Flying Colors - Second Nature (2014) [MP3|320 кб/с]<Classic Rock, Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:289515E3C07C259744A344B34EE7224F91438E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ Side One:
 ```bash
 magnet:?xt=urn:btih:F21AFCBFAD5167D04DF42598426CF923C9D10D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE0A076F3AA724D03AC765A722F28A8D33EA6263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ Estatic Fear - A Sombre Dance (1999) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:64CCD9F91D520ABD0A9EF425AE223B7FAB5869CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72D181C7CA67C4C95A61165F426D107675CA6E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C78B79703C04E7B8A10A0EDB5F48ED4AAA9DA8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

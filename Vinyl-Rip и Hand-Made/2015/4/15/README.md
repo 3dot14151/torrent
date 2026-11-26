@@ -23,8 +23,7 @@ A5. Love Has Taken It's Toll (3:28)(   Читать дальше...   )Прои�
 ```bash
 magnet:?xt=urn:btih:C12D7C2FBFFAD61CDB5EC4DD996632EDAF7E01D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

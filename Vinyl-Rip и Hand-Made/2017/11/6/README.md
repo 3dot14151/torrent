@@ -22,8 +22,7 @@ A4. Run To The Stars (4:39)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:96B5822D464C356CDA712AF27CD41606469F8578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:BCE2418FF743FED75E6CD496E6F971F22EDF1754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Hardbone - Bone Hard (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5C32DEBCE654F45993288B74856A9B98CF42AAE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:838BECF4407777A21AFBB98AD47B2252CF484324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1AB02A60134503321848953BFDB3E76FC988CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ECD26EC59C1F9D8A9262AC16B9DC88AEFB19236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C47FE735A80AC1190C4F90924F6DEEEC4AD0DC22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A23953CAAF389C7597A4A3921E0500D0135449EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07D9535FABF7D18F922E05E8FD4DB580DC534EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Exhibition V (Mixed By Ben Lost) (2014) [FLAC|Lossless|WEB-DL]<Trance>
 ```bash
 magnet:?xt=urn:btih:242474792A559FF81FEA6C3C78AAAA8C54C9A9FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5063500A17D943698819FB7042809D074FBA1E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Time In Motion & Flexus - Sexual Activity (2013) [FLAC|Lossless|WEB-DL]<Psy-Tran
 ```bash
 magnet:?xt=urn:btih:461E3C6D3FC226E57B0DDEA5E6D2257D54A9AC8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5211B2930156C6C8C47192806EE79C3818035354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99E833310593EC517FF3CA8CDF3B98E17A4BCF9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Free Disc Burner позволяет записывать любые папки �
 ```bash
 magnet:?xt=urn:btih:95F4B2A43E4144CF0F7769116FE80DBBD4EA04AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ VA - The Magic Of Disco (2014) [MP3|320 кб/с]<Disco, Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:49D662DDCC2285900142F9A5FCDB17D897AA0737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ Mastodon - Once More 'Round the Sun (2014) [FLAC|Lossless]<Progressive Metal/Sto
 ```bash
 magnet:?xt=urn:btih:49E70CA60F388F8517FA84D11B60CD333940A5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +477,7 @@ Winter of Sin - Violence Reigns Supreme (2014) [FLAC|Lossless]<Melodic Black Met
 ```bash
 magnet:?xt=urn:btih:9CBA49EE4662FB97F3476D88C14A5022730CB7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +502,7 @@ iSpy - программа, которая с помощью микрофона �
 ```bash
 magnet:?xt=urn:btih:12998072EC92593432B7511781A2E58310C43E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60CB79D8AE5783DB14FDCFF9959D2E56F7F88A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4008DC05C985929338B8C211365E64630DD804C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Acacia Avenue - Cold (2014) [MP3|320 кб/с]<Melodic Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:5882C5B12C89DB57CB1F5A79E31569FEAFB931B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +612,7 @@ Electric Mirror - Walk The Plank (2014) [FLAC|Lossless|WEB-DL]<Psy-Trance; Progr
 ```bash
 magnet:?xt=urn:btih:61EDF17F610B501F1DE113F2E97046F69B6089CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +646,7 @@ Anathema - Distant Satellites (2014) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:89532B664492EDBABDA3966F5A2D08FD0DD53212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +680,7 @@ VA - Бесславные ублюдки / Inglourious Basterds (2009) [AAC|WEB-
 ```bash
 magnet:?xt=urn:btih:D46ABF4FF500B717E5745E0C009F138AE47C2090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5D8F7DD8714CF0ECF60E47C1FF760B7530DE506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06EB00206B20DAD88695905E2A9C96F0010E0BC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

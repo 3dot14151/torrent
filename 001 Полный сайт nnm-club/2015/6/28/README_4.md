@@ -19,8 +19,7 @@ Supernatural | Supernatural The Anime Series | Supernatural the Animation | Св
 ```bash
 magnet:?xt=urn:btih:539AF7C087EC7C81077E25A003FBF72CAB5F987C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XnSketch - интересное графическое приложение, с 
 ```bash
 magnet:?xt=urn:btih:1E0E140E5C9D9B01C2156EE7FDBC498FB51A9480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Kings of Kung Fu — новый увлекательный файтинг, гд�
 ```bash
 magnet:?xt=urn:btih:A7D2BA093355FD5123773E83DA43FFE11DB481BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ qBittorrent - свободный кросс-платформенный клие�
 ```bash
 magnet:?xt=urn:btih:E4A99967FFF5D607D01421B1D939A90B8C223802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Surface 7: Alone in the Mist / Внешние Пределы 7: Одиночес
 ```bash
 magnet:?xt=urn:btih:062319A2A8F066506B604B15E5EAB836C5EECD32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ House of 1000 Doors: Evil Inside / Дом 1000 дверей. Зло внутри
 ```bash
 magnet:?xt=urn:btih:23C76C67C89334FAAAE30AFC2442F40B82BFA332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F32E6613B6997F96EC38C7942000107AD3754A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 ```bash
 magnet:?xt=urn:btih:2B2CED46B51FE785F5B51B61BAA1B6F7B9180BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Ectaco Universal Translator-Качественный оффлайн словар
 ```bash
 magnet:?xt=urn:btih:F303514A2337F51058A0337209AE9D0E3C803195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1E7FFB849D287A284EF86CF7F0043FDD4CBC5EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EE32AD8A449F95F3298AD63E2C49EC590353AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4BB014FB46325F6B289DA05B720863A051A0996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8412AC7D624EC0E6B51589E921FED196C97138AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75DD57DE74A132454A7B3B15A0826CB6A019893D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59093314586D4C8F7616CB961E8540A393D9492D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55D467FF6E4A21608491A066B9842538B12DE71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B295BE443F32C817E9B839E5BC0724C2C783557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E40A56B7738B95635D3F215D434187601872BCC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ Animal Planet. Дома на деревьях / Treehouse Masters (2013-2014) HD
 ```bash
 magnet:?xt=urn:btih:3261A88F4C54EA4ED60C3F7260A6FA05604069C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E31F75C246978AD1F25C31B906F260914831426E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ The Mystery of a Lost Planet (2015) [En] License DEFA
 ```bash
 magnet:?xt=urn:btih:847E04A2D6BC7545459D8546321EDE3257FAA9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D2626DB5ADF7E19E456739E49488E7AB81E207C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ Adobe Media Encoder CC 2015 - это программа кодирования, 
 ```bash
 magnet:?xt=urn:btih:1ECA530AF476FF75D6A16DA8EAF1FCCCB6515709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ Ubuntu*Pack 15.04 Classic (июнь 2015) [i386 + amd64] (2xDVD)
 ```bash
 magnet:?xt=urn:btih:2D5D8146CAC3485B22FD6C4FC39DE6721C7FC888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4007B6436F6DEDEF5B39AB83256F442B285A8D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ Animal Planet. Дома на деревьях / Treehouse Masters (2013) SATRip 
 ```bash
 magnet:?xt=urn:btih:4EF5FAB14714816742A6E5A17F8928FB6C820B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

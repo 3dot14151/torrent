@@ -21,8 +21,7 @@ VA - Italian Style Everlasting Italo Dance Compilation Vol.7 (2017) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:D425B50531D689BD472AAFD1655F4EB96CFD4FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F5B06F1D486D5B04336E6A16E74F66DF6279C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Jazz Digest May Edition (2017) [MP3|320 Kbps] <Jazz, Lyric>
 ```bash
 magnet:?xt=urn:btih:AC6E7842793024F55D6F7805CC306BED0DC5CF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Jan Blomqvist - Remote Control (Remixed) (2017) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:07A3DED281B477EE27DBA0DB2CBE5D4B65C0BBC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C956C37F4BA9213FB79984B2A4DBCCEB98083305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CA303BE44ED8CF1F36B69CF32528739F9278E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Record Super Chart #488 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:613B68000051EECC282DA648FF4E4E664656548A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ AnyMP4 MTS Converter имеет возможность конвертирова�
 ```bash
 magnet:?xt=urn:btih:C1FA6F84C0A9C6EA2D7217B06052F658830A081B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ P.S. Не знаю почему в издательстве решили, что
 ```bash
 magnet:?xt=urn:btih:6984389BC001A619E4EC48E5BC583B3AF46DBEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ VA - Club Dance Ambience Vol.110 (2017) [MP3|256-320 Kbps] <Dance , Club House ,
 ```bash
 magnet:?xt=urn:btih:358A2AC6A85DBDA201DC603732280624F224F8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85C35664D4009CBEEE9F3BBB80116DA85E94D59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAF9995F2962C020CC5F52F78E8CD999F75E83CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FA884808E5A33FB9E918C4EFF86959F3221EEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ VA - Erotic Massage Lounge - Sexy Chillout Obsession Music (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:3E9CE3A83A7D047E2A1EC11775AD07778F949A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27E1BDC4C5789168E60C3BB4EE9C08B7B3B5D1BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01C93E06E90035ED6A27C7464B05C6838D15FC7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Zakk Wylde - The Beginning... At Last (2017) Compilation 3CD [MP3|320 Kbps] <Hea
 ```bash
 magnet:?xt=urn:btih:8823CF044E3F1E2134750CC821942FCD968C155B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ VA - Грешная любовь ХХХL выпуск № 3 (2017) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:0BF7B9DCB378F25E9883D0E31AAADF6288A5EEA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25F0A446274C6B91877944C962A0DE825121107F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:8527A324B9D7DA4A35A130990E1A181CE0033F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ PowerPhotos также поддерживает (   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:B3AD969A31C80F04B8258ECB66C79720F4EED183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:146373FEE1966AE2CFE149CAAB31034458CCC1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ Maitreya - Avatar Kalki (2017) [MP3|320 Kbps] <Ethnic, Psychillout, Psybient>
 ```bash
 magnet:?xt=urn:btih:5295B9ED8DDDDC358EC39E6B40DF8AF2C4C182F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ VA - Future Trance Vol. 80 (2017) [MP3|320 Kbps] <House, Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:F759DF4AB82A0E8CC540E3256A6909356CC4DFAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E913BED02F415A9B169D2CC51328D559710A852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AABF382004D77B2BEF31A770B261A63AA9289A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

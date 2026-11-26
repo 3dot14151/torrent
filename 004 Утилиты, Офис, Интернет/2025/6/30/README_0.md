@@ -19,8 +19,7 @@ MediaHuman mTube - программа будет отличным решение
 ```bash
 magnet:?xt=urn:btih:1B54D9F6E9A2B3DF431A6EB786E504A43ABE2A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:162F3BA664E243E4F459784833470CDC2F4DDB8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

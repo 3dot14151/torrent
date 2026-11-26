@@ -19,8 +19,7 @@ Train Fever Patch (2014) (build 4246) License CODEX
 ```bash
 magnet:?xt=urn:btih:E791E322BBD1610F4C5ACCC127716665738D1636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

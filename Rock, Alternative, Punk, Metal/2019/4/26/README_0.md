@@ -20,8 +20,7 @@ Rammstein - Radio (2019) Single [MP3|320 kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:11F7379A7E23F7244ADF440EA0DC8260F05C174E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

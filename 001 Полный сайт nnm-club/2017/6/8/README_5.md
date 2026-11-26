@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7B8A690274FA833166F10D2D09277257E4C4585E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Harry Allen - Here's To Zoot (2001) Novus J [FLAC|Lossless|image + .cue] <Mainst
 ```bash
 magnet:?xt=urn:btih:181791E099714C6C0ECEEB3F26D27962106936D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Heavenly Tears (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:653D396065D18593DC586C3568ACB02B119B2285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Harry Allen - Once Upon A Summertime (1999) Novus J [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:A0EDD15090D4B1099A80AD266A490EFCBE2D4607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Recoverworld Trance Sessions 17.03 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:757867BBF349015233CC7C6B0BFA7388C69C08C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Throwback EDM Tracks (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:897C773B2F6C708F40D116C2647061F41EEE61BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57AFA6F615B565264A407CF166CCE547726A0B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Balearic Dinner Vol.1: Island Chill Dream Dinner Tunes (2017) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:B01F35B090479B4584E80CC4BE981FB6DA26FC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:391ECBDA716305F17B25093A4A35E724EEC84AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Ann Hampton Callaway - Slow (2004) Shanachie [FLAC|Lossless|tracks + .cue] <Voca
 ```bash
 magnet:?xt=urn:btih:814C36B974DECDFEC8EB267F170FD9B4714CCE36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Astrobiologia - Астробиология (2017) [MP3|320 Kbps] <Trance, Breaks
 ```bash
 magnet:?xt=urn:btih:6A5610ED659FEAAA4C5E46AA3E71476AC3948364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B9E23B5C267A385E5C3416E400093DE9E56D24A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E0F26732AEF6B57F8C3974EEE24B4AA0954AC26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ DarkSunn - Mint (2011) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract Hop, 
 ```bash
 magnet:?xt=urn:btih:43C4B64AFD2E2498265B8B7D77976ADCCCBDE313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ VA - Naked Ibiza Vol.1 (Pure Fresh Balearic Summer Chill Tunes) (2017) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:F50742F703751C12384AC5FD0597F8692342E65D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ VA - Nothing But - Electronica I (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:7EF869BE5A5C201F28316CEB88F88F7154EF42F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF4FD7BC0E687F003B424B829B0E1104CB4931FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FE7EB2AAE7945C762FA134DB8143D37338B9DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Harry Allen Quartet - For The King Of Swing (2009) Swing Bros. [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:83E24997061D7AD85836D0CC5F5BE6AA487CA9EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C81D752C93A059564B4E5573EE0966DA34F3BB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE51ACAA16B6BA20ED76AFE31E9F7D558AA131FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EDE3164859D17290CA4BCCCF6B6AA37C0CC6A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE7883D11158D461488010BF7D31DDEF49468E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F466431FD01EFADF9E153FC4E19837E400E00F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2487EE3A5ABD1D9BBDDB838BE50C574AA352F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Phelian - Luna (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dubstep, US Garage
 ```bash
 magnet:?xt=urn:btih:62A6FA78634F241A309EED3769CA294D6F48E43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8801D7914FDF1F5C1087C30C19EBD6C98C4242F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lindsey Buckingham & Christine McVie - Lindsey Buckingham & Christine McVie (201
 ```bash
 magnet:?xt=urn:btih:DF89A8AC963985750CF2A8A7980D457A3DDEA1F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Volumes - Different Animals (2017) [MP3|320 Kbps] <Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:1C33CD8C28E5054972668F2AC31EED0CFB243750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rise Against - Wolves (2017) [MP3|320 Kbps] <Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:F36BDE62A35079F63E17BDFC83DE4558D59E034D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

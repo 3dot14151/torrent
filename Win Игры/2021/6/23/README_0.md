@@ -19,8 +19,7 @@ Builder's Journey - это лирическая головоломка, кото
 ```bash
 magnet:?xt=urn:btih:0760AF114D3909E2BF8BA518F0CCC66B319E1CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ender Lilies: Quietus of the Knights (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:D52B7B62E8266A1B60B77DC4966D052F77D9EAE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

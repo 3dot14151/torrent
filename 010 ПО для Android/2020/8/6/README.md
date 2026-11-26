@@ -19,8 +19,7 @@ AdAway 4.3.6 и 5.0.6 Beta [Ru] - Блокировщик рекламы
 ```bash
 magnet:?xt=urn:btih:54AB0B15657CAAE05993578920B510C05FEB899C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Resident Evil (1997) [Multi] (1.0 HotFix 3) License GOG
 ```bash
 magnet:?xt=urn:btih:18F397333BCDBA00060046C5E246359DBAC471AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

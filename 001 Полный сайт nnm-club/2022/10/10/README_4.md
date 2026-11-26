@@ -22,8 +22,7 @@ Commoner - I (2022) [MP3|320 Kbps] <Heavy, Doom Metal, Crust>
 ```bash
 magnet:?xt=urn:btih:6E1882603B49F5B45A52C5D86F3EEBD67D0F16A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sympuls-E - Immensity (2022) [MP3|320 Kbps] <Technical Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:F1AA67F379E454F02EC38CC6AB8CCD9EDA75632C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Refugium - Refugium (2022) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:22EA2B78FF90075AE0CCD64C01BB557D0941157B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stay Away - Олдэйджер (2022) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:6B5F1210BF1DA4DACD2A359A74442DFAC42154D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D123DBB8436FB652A56BFB52238DF4686951822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3C0BB7EA360941F751C7F2460CDE8AB4CF65103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ John McLaughlin And Mahavishnu - Adventures In Radioland (1993) [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:1CD473659AF5E303B6EADAA1A198A562B521767B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:536597CBE8D84FC4D1EC941F649FD477794044A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A2F012C246602CC6110C9FCD119A39DC3DFAA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24C55C865856836BF92255DBD55B0B383D3D8316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49958EDD6C51439BF92173693E61F5B3F2D45C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7AD89391E38F93C793CB5A97CE98CFD2EE64CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:82E378519EFF0F0C554AB0F0DB51DF582E994B4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:80B6278D70D8340C23D6A12D3B48D4251053547A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3312E367A961FB775C4719461B311A1AAA8E258B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:857ED47F2E85FF70B7323F0E70B60CCC968F018E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:65F9586E706BF554F3A5DA33200835A37933ACFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Santiano - Die Sehnsucht ist mein Steuermann - Das Beste aus 10 Jahren (2022) 2C
 ```bash
 magnet:?xt=urn:btih:4CFD558B9ECDC9309BB6ACCBE2B38DD7A06D9621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ ImgDrive позволяет одним щелчком мыши монтиров�
 ```bash
 magnet:?xt=urn:btih:9EEE90507EC73CCFFEAE6CFFD4A375D430D32EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:1B5675197B38C0120C5058C090FEA545C15BF149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA2D17528692462F64B8E39490483C6BCF49D97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6270F9725850B86E23A3D52B2531745D1E883C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77307FDE6E19DCCA7C82F3E12453A8C279C50E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:C33A356797F482E04B3C1106B2405C9E3C6610E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:625B3AE663679E68AB6968D6BE54624A8746E8FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:73A78C5398D9FEFB8E9E6C59217804C92C813988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

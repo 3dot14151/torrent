@@ -19,8 +19,7 @@ Krita - это бесплатный инструмент для рисовани
 ```bash
 magnet:?xt=urn:btih:85F0CCD448583AA62E8A3DFD88A98BDD38C5D6C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

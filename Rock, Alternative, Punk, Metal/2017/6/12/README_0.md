@@ -22,8 +22,7 @@ Rainbow (Ritchie Blackmore's Rainbow) - Live In Birmingham 2016 (2017) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:AF368C373F7B5FDF9A0A548710AEAE4477108B4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

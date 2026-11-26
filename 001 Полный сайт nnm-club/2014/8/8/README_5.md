@@ -21,8 +21,7 @@ Back to Bed - это трехмерный изометрический сюрр�
 ```bash
 magnet:?xt=urn:btih:85B29DAF5E1B3871A8A4EE2711D978E6CC8F9D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69AC9FF46340D4097865E682C2E99AF0453AA633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ DriverPack Solution - это самая популярная программа 
 ```bash
 magnet:?xt=urn:btih:6D3D20D5103DB55F22677281E372D8A741B2812D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAB5C01C12F24BE8FFA882AFD026F24926812A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5E9DB86E28E24ABEDF2A779FCD4B0EE5A1EAE70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5B35AA2D8819CE25D6C62C91E3232A6E3209198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Profileschool | Photoshop - Curves. Работа с кривыми (2013) [PCRec
 ```bash
 magnet:?xt=urn:btih:C20023417949AD81DDFC887B4BEB48CD5E214756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Ad Muncher - утилита для удаления всплывающих ок�
 ```bash
 magnet:?xt=urn:btih:A3976DA626A34A0EEDC366B391A73787DBA71128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Resistance 3 [PS3] [EUR] [Ru] [3.41 / 4.55] [RePack / 4 DLC] (2011)
 ```bash
 magnet:?xt=urn:btih:069FAD819BD0A5D12D943083F56C8EE1E8DA3365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ MiniTool Partition Wizard - это программа для работы с р�
 ```bash
 magnet:?xt=urn:btih:7CE753FA6138C359978EDEF3F4FB956646A17F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Webroot SecureAnywhere AntiVirus - cамая быстрая и легкая за
 ```bash
 magnet:?xt=urn:btih:F21C556C35BC630BCFED6F5F990CA5BD75BE3058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ SamDrivers 14.8 - Сборник драйверов для Windows [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A6411B3058DEF431A9CACD52851692282436D438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Ultra Street Fighter IV (2014) [Ru/Multi] (1.01/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:117780E25492C6CC8943055090686911526F7548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ VA - Музыка для вашего офиса (2014) [MP3|192 - 256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:131976BCF99624BF1C4A1F13501B4BA0D62C06D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Ultra Street Fighter IV [PS3] [USA] [En] [4.55] [Cobra ODE / E3 ODE PRO ISO] (20
 ```bash
 magnet:?xt=urn:btih:582464D9B68BB6FA2AC36D61A64E4C9A1BBFB86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Windows 7 SP1 x86 x64 PE StartSoft 36-2014 [Ru]
 ```bash
 magnet:?xt=urn:btih:351B6A003B79665A6D902DA9279E746546CEA221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Broforce The Expendabros (2014) [En] (1.0) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:1072745B38953201F6302FA0A9843DBE92C1689C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Garmin: Дороги России Топо 6.19 (FID 4594) (7 августа 201
 ```bash
 magnet:?xt=urn:btih:41820D9169673C172D174437FBF21F7F637CD256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ Garmin: Дороги России Топо 6.19 (FID 3332) (7 августа 201
 ```bash
 magnet:?xt=urn:btih:81561850EA8BD63D6EA91F0927F5FC4DB1331749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:5D34779D3B807DAD3AC98646A0EC233CC3A48D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:187655A8EAA8B99685063DB7F33F6F691C8B1A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ C OS X Mavericks работа на Mac становится ещё удобне�
 ```bash
 magnet:?xt=urn:btih:32D8C158A43A5D752A5AB2BAD11DF0342DD2987D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77C517B3CBD7C20164E79B07CF94296157F89EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ ru_windows_7_professional_with_sp1_x64_dvd_u_677024.iso.
 ```bash
 magnet:?xt=urn:btih:0995FA2547A53B1D61B80BCED79BC9BF8272D9C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

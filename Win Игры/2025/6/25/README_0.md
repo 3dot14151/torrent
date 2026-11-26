@@ -19,8 +19,7 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 ```bash
 magnet:?xt=urn:btih:CAA01CA5E08FBE7CF44478C30BFDFF6E2FE201B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tesla Effect: A Tex Murphy Adventure рассказывает о приключ�
 ```bash
 magnet:?xt=urn:btih:366EE537612133B8B1BAE1488817DF79F669E555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Teardown – симулятор проведения ограбления в р�
 ```bash
 magnet:?xt=urn:btih:07682DCC4E3A54CEB772E4CDFEE6F0FE245F7FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Teardown – симулятор проведения ограбления в р�
 ```bash
 magnet:?xt=urn:btih:AB5B3FF825CB415F793887FFF39DEF69E16ABC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (1.2.18.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5D79F0D57FE95436D85296E9669CBD5C440A177C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kingdom Two Crowns является новым этапом развития э�
 ```bash
 magnet:?xt=urn:btih:9BF2924326BEE1EB94E9C7895093ABD53A446461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Lightyear Frontier (2024) [Ru/Multi] (0.5.1593) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:B7F36E52194CD161A4319BF44E0D8F4E23624FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sorry We're Closed - это напряженный хоррор на выжив�
 ```bash
 magnet:?xt=urn:btih:832503F7D2855989E95B880F3E1B10C6C711C541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Near-Mage (2025) [Ru/Multi] (1.1.4/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7CBE3C59B3D3B4A7B79FCDDB64E82BFB8C476D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Forgotten Mines - тысячу лет назад в шахтах Дорвгра�
 ```bash
 magnet:?xt=urn:btih:00242A6E00F7DD8E8B8D33E5EB35ED7B66C9C747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.0.64099/dlc) Repack seleZen [Digital Del
 ```bash
 magnet:?xt=urn:btih:BBA660C83F18D0E7AB4C14EBA7596377DD41436E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Breach : 83 (2025) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:D50BED21DFED1790440A38F026B9604DE21E946E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19225) License GOG
 ```bash
 magnet:?xt=urn:btih:78D0997D00634B089C40FC257281C62ED1EC95BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Afterlove EP рассказывает драматичную историю лю
 ```bash
 magnet:?xt=urn:btih:B8963FDBD29C78CA043B0F1325242CA75AE65CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:5738935ABAD4A2533F085B9DDAC18E30A0788786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Road Food Simulator ставит игрока непосредственно в�
 ```bash
 magnet:?xt=urn:btih:8E99D709C2C08CD41D6E88EA0AE9E08345257DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Tobacco Shop Simulator дает побывать в роли владельца 
 ```bash
 magnet:?xt=urn:btih:C65C0C235838756FF2D219820773CF4C42FA833A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

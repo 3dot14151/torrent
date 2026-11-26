@@ -19,8 +19,7 @@ The Lord of the Rings: War in the North (2026) [Ru/Multi] (519831.2) License GOG
 ```bash
 magnet:?xt=urn:btih:A941C4B4BBAA8DAFE4CFEAB9AF1D30B2D3E6B14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Castle: The Mirror's Secret / Таинственный замок: Се�
 ```bash
 magnet:?xt=urn:btih:BDFD818F4F846306BE7EF6793E2E91F8518A7EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ IRON NEST - игра про тяжёлую артиллерию в стиле б
 ```bash
 magnet:?xt=urn:btih:3CB1A3EC2EFB9CCE2E29DFB39217F87407A36F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cralon (2026) [Ru/Multi] (1.0.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:6532CFA510F6F1C896F806243BAEBF7C0949BF9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Flynn & Freckles — молодой пират по имени Флинн реш
 ```bash
 magnet:?xt=urn:btih:CFAEA2A30F76DD76954D37738878F22FFD64EB8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

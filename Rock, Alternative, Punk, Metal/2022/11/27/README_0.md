@@ -21,8 +21,7 @@ Avril Lavigne - Love Sux (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 ```bash
 magnet:?xt=urn:btih:B17EC775DC075A6A2CF20E942CBBA6D86BC750C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

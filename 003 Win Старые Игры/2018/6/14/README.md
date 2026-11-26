@@ -19,8 +19,7 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 ```bash
 magnet:?xt=urn:btih:3FC95089AA3EB55A9B0866BD301DB84130E5D913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

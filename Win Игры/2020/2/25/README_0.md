@@ -19,8 +19,7 @@ Royal Trouble 2: Honeymoon Havoc / Королевские неприятност
 ```bash
 magnet:?xt=urn:btih:8040FB8BAE82B1C1B43F7B269B9D02EFC6AA2B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Conglomerate 451 представляет собой ролевую игру в 
 ```bash
 magnet:?xt=urn:btih:BBC5540CA0695B2BE3CB1D07CB6368D7D796E5BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

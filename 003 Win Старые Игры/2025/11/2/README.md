@@ -19,8 +19,7 @@ Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
 ```bash
 magnet:?xt=urn:btih:88B623F901792936E77F503324DC172A2C0A4C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

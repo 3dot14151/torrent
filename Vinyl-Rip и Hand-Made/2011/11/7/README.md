@@ -22,8 +22,7 @@ Within Temptation - Black Symphony (2008) [FLAC 5.1 24/96|tracks (Blu-ray rip)]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

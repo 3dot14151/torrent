@@ -18,8 +18,7 @@ TextLab - текстовый инструмент преобразования, 
 ```bash
 magnet:?xt=urn:btih:062E486747BF9ECCF9AA8CA7EF5A988B721C5866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3469DD73D18390A16C26B8970554D6BC751BA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFACBA42ED6BB594650E3AE447B623B5B3CDACEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ VA - My Boo: R&B Dance (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1E9875FACC7075A48314EDE01C5F15635443B5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21F9C02B4CC5579D4E62D73C04E4C2793CD42F6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Royal Southern Brotherhood - The Royal Gospel (2016) [MP3|320 Kbps] <Blues, Gosp
 ```bash
 magnet:?xt=urn:btih:F71D6F752FB528E6ADC6E1CE177B43E4F65B847E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BC7E2FF634655D8143E71EA9175D8E9A8A0C63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Coco Morier - Dreamer (2016) [MP3|320 Kbps] <Electropop>
 ```bash
 magnet:?xt=urn:btih:E24CE0A4C7510EA03DF90C58E9E89EFDB088DC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ CameraBag Cinema 1.0.520 [En]
 ```bash
 magnet:?xt=urn:btih:5522DA6B60E0E9AD1A9986F58CA49D70AFDE3484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58F47DEC42BDF5BD753AF079A1F97B7E02350C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ MAGIC! - Primary Colors (2016) [MP3|320 Kbps] <Pop, reggae>
 ```bash
 magnet:?xt=urn:btih:8D36ABAE02EABE0268AAB28C2EB58D2A8EBC9FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ VA - Funky Club House XS (2016) [MP3|245-320 Kbps] <Club, Funky House, Electro>
 ```bash
 magnet:?xt=urn:btih:0B3D40582F95990711288C6889DD6A58DA522CAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA965BF5CF44961B6D1515C2BE5C3D61BB0DA2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19A015320B011F784511DD930CACBE3F10FD861F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E006A54070F98F78431D2D767DF40FC93E78F65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Mike Howe - Lichens (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Acoustic Guit
 ```bash
 magnet:?xt=urn:btih:7D956668F00BB0AE9E701240E309319F8B8FA3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ VA - Planeta Mix Hits 2016 - Summer Edition (2016) [MP3|320 Kbps] <Funky, Progre
 ```bash
 magnet:?xt=urn:btih:CC70020D231BE415DB83B2DC4A159F6A64ADFA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Forecast Bar - точный прогноз погоды  Forecast.io  прямо
 ```bash
 magnet:?xt=urn:btih:BE3A2B1FA55932276D5362C59D8E0A89529F7E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6304EF2B187B764C07294ADDDDCBD4F21D983B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ VA - Ibiza Chill (2016) [MP3|320 Kbps] <Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:F3659A951CF0DB47C0A3391997C411FE8F942686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ VA - Chilled Jazz Vol.2 (2016) [MP3|320 Kbps] <Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:A79E5723677576E757AC415BC8DA9DE7582B1CDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ Heart - Beautiful Broken (2016) [FLAC|Lossless|tracks] <Melodic Rock, Hard Rock,
 ```bash
 magnet:?xt=urn:btih:93D97DADF187F46BD5E8F6ECA174F866AFD989F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83E8C4116135B1660A3C287CEE36107CF8F7CB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46C37D2A374274AE68803695A36687CDB3E3FF05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Wise Program Uninstaller деинсталлирует программы с ко
 ```bash
 magnet:?xt=urn:btih:2E58AA2631F12122D72E2E45DD2D514126ED80BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9456D8F33CA516907B14E62E9DCD4D3CF3B7A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

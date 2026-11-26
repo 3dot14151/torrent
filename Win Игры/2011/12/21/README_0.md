@@ -19,8 +19,7 @@ Haunted Legends: The Queen of Spades Collector's Edition / Легенды о п�
 ```bash
 magnet:?xt=urn:btih:D93F5658759001FC44B3038AF65F00C0ED5B69C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

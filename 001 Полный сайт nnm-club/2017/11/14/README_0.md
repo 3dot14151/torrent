@@ -21,8 +21,7 @@ Mark Dwane - Cerebral Hemispheres (2017) [MP3|320 Kbps] <Electronic, Ambient, In
 ```bash
 magnet:?xt=urn:btih:559FFFD9A260C873DF740783DE32DBC9854CDE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 022 (2017) [M
 ```bash
 magnet:?xt=urn:btih:E9E684606F54BFCAE96E861D65CD2D09B4EF42CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Dяgilev Proжект - Residents (2007) [MP3|204-320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:418D7E99AA91E2D026C6D4DC6FED0D8DD6EFD5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Disco Swing (2017) [MP3|320 Kbps] <Swing, Jazz, House>
 ```bash
 magnet:?xt=urn:btih:01898D15419B62A04F9302FC0A1610D38CEF7274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A98420EBD2E3AA339CF5CF5AB0BF3196AD284335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10DB19BA048326CB7F22006221618B73978812DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Kinza Browser - японский браузер на базе Chromium с доп
 ```bash
 magnet:?xt=urn:btih:2FBF536C76BEEEF1CC38A2863F94C463B48106BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6E95AC352D67EA6542B52B348DF2FC8E4BCEC9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Forecast Bar - точный прогноз погоды  Forecast.io  прямо
 ```bash
 magnet:?xt=urn:btih:82706FD88BB7C58AD81ACB328EE608D6A7E3040A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Michael Rother - 9 Studio Albums (1977-2004) CD [MP3|320 Kbps] <Electronic, Krau
 ```bash
 magnet:?xt=urn:btih:721E152D492C75C694645437B7682AF8E3904C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ L'Orange & Mr. Lif - The Life & Death Of Scenery (2016) EP [MP3|320 kbps] <Hip-H
 ```bash
 magnet:?xt=urn:btih:AB82172C3863B5B8F9776753B20073760CC0E0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Olga Stankevich (Ольга Станкевич) - Alone with the City (2014) [FL
 ```bash
 magnet:?xt=urn:btih:CB27711524DE823DBBE91FC5654A1129DE59FA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ VA - Uplifting Only: Top 15 - November (2017) [MP3|320 Kbps] <Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:8F1C5DF640EFCD848F217A68E856EAFB940DB759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ VA - Euro Dance Party Vol.5 (2017) [MP3|320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:402101F953B304AFD90AD1DC0E7425AF9E93820D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 ```bash
 magnet:?xt=urn:btih:D50A1ACB3F0173F4B3863CB233EFBCCCA9158E28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94D0F914C6C3E96342006767EF8B378A9BA5ACAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:646BF1B6E24C0D6C02BBCB1436765B316ED0C6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35E09B4B4742721652439B470444BA1CA6AC977E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ Logoist - универсальное приложение предоставля
 ```bash
 magnet:?xt=urn:btih:9AF6FCA7CE4C3CFFAC849E400554575FA36C958E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ ScAnDroid Experiment's - A Trap For The Traveller (2017) Single, Авторск�
 ```bash
 magnet:?xt=urn:btih:0C0A3ED77287E4CFA8539E27DFCCA1821329E49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE57BE31237AEE6E1EE1B3202C1B9D7D417EEE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 021 (2017) [M
 ```bash
 magnet:?xt=urn:btih:A9CEDCE236FEA46C59A179F4E7B953F37693A6D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 023 (2017) [M
 ```bash
 magnet:?xt=urn:btih:DAAB12ECCE5571F8206A444AB4BCBD23481AC5A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE082118D0FFA10995A9BFEBF83D7B3853CB879B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99B4AB3EC97F568C4C6D23C37052E10FA4B08308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57007165F3CDD8FC3D9CA842A3AC87D44CA8D469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

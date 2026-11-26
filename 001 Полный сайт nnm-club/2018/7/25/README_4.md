@@ -21,8 +21,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ CD1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Pessimist - Pagans (2017) Osiris Music UK [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ```bash
 magnet:?xt=urn:btih:6F1EEAF50F340B5EDEF0F872F9A3287492EE05FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Minimalphunk - Counterbalance (2000) Form & Function / Zomba Records [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:CECC38AE34981B6C593779EBF474AA0C51F6DB3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7B0ED3FC6A06EE0511C24FCBF75F28B2B215AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Super Sapien - Ethereon (2018) WoNKed Records [FLAC|Lossless|WEB-DL|tracks] <Dow
 ```bash
 magnet:?xt=urn:btih:C551DCC5516EEFCFDE1445EA416015860ED5BF34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Super Sapien - Awakening (2017) WoNKed Records [FLAC|Lossless|WEB-DL|tracks] <Do
 ```bash
 magnet:?xt=urn:btih:A276DF923629E78993BA1D75D1BEAE80DB33389D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Melorman / Mokhov / Data Rebel / SineRider - Of Tree (2018) SunSeaSky [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:263CB9A44ED6A86602418F0E4326C66D57294DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Ron Carter - The Puzzle (1986) SMS [FLAC|Lossless|image + .cue] <Post-Bop>
 ```bash
 magnet:?xt=urn:btih:84C963A7F426C63480D3E3173637D3941361564C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Paean - Scorn Of Eternity (2015) [FLAC|Lossless|image + .cue] <Progressive Death
 ```bash
 magnet:?xt=urn:btih:A18F0D2512A4CE06A94955336F3F039E997F4B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Binary Park - Nothing (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:794FE265F2BDA2878EAA67B7F760120F900C6F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Flume - новое приложение для просмотра контент
 ```bash
 magnet:?xt=urn:btih:598B51C4451FC836CB13F36A76EF7B8EDDA16AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Rudy - Just Take My Body (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:1D825AFEE797752D97F592E6C8F8BB3DF516D5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Super Sapien - Aeonian Paradox (2018) WoNKed Records [FLAC|Lossless|WEB-DL|track
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ VA - Florescence (2017) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Future Garage, A
 ```bash
 magnet:?xt=urn:btih:0840AF0235D2693E2DC835B89C6BEA8F0DE18A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Madame Monsieur - Vu d'Ici (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:E889C7C5E6D25CB0B83E3DED5165AB9DA4CB85F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E175BD78432204B9927EDC2104D0608A6AEF874B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ VA - STAVRLS (2018) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Ambie
 ```bash
 magnet:?xt=urn:btih:7823C043BF1F8243F9A434C885A372CA517F7958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Constellation Orchestra - Perfect Love Affair (1978) Reissue CD, Italy & C, 2013
 ```bash
 magnet:?xt=urn:btih:EF6487746AB39D3C8BEC69F70EDF0FC41131DB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ Opera 54.0.2952.64 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9240A3C5A04E88DE06E34EB9706DE118B34DFC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D3387595B2887DA188CBFD78F35D3FFE1BF1BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ Kosmonavt - Escape From The Earth (2016) IMMINENT [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:35099C76FAEE7A57760EECEE5A055362B106440C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:816886457DBD306BFFDF29BBC69CB86B057E0E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ Katee Kross - Don't Fade to Grey (2017) [MP3|320 Kbps] <Country>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D825CE72C6177741149C87BF751C7369EBD8F5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

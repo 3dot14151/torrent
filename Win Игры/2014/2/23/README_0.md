@@ -19,8 +19,7 @@ European Mystery 2: The Face of Envy / Тайны Европы. Личина з�
 ```bash
 magnet:?xt=urn:btih:643AE9EFDA70E3F561B70FCD769A9316BA923542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ European Mystery 2: The Face of Envy / Придворные Тайны 2: Лик
 ```bash
 magnet:?xt=urn:btih:7E3FB23268A33193E8AC82E119D72DF74CF6F66A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Swapper рассказывает о приключениях астрона�
 ```bash
 magnet:?xt=urn:btih:4D22C1E1A1630DEE073BDB0AB8F463E997ED969F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Leisure Suit Larry: Reloaded - это римейк первой части се�
 ```bash
 magnet:?xt=urn:btih:B2FA7D1FC635F291950FA3DB46ACD16BCC101F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

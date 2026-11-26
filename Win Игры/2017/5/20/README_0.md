@@ -19,8 +19,7 @@ Ghost Files: The Face of Guilt / Дело Призрака: Лики вины (2
 ```bash
 magnet:?xt=urn:btih:31CAE2FC39ED522C31C49144153F777D3BB7C39E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [E
 ```bash
 magnet:?xt=urn:btih:9CEF745FF292D0BA880D458368D5914E0D1169CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

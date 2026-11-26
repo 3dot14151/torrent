@@ -19,8 +19,7 @@ Sonic Back In Time 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:5A1DF762992C224092CB5604DD30AAAB0BE20833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Earthworm Jim Eternity 1.3 [En]
 ```bash
 magnet:?xt=urn:btih:E8FEC04AD90EB366AD2A236D430434EBA6BC6886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

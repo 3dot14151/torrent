@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ SolveigMM Video Splitter - редактор для MPEG-2, AVI, WMV, ASF, MP4, M
 ```bash
 magnet:?xt=urn:btih:2327824DDF6BD7355FDEC9985E2B85B355572BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:272E627724A51D0CF0384D60D7478281F2F422A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Mysterium - The Glowering Facades Of Night (2000) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:B16FAA2BF296B38E9023DA7D80E4C2E079F9987B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Wicked Maraya - Cycles (1994) [FLAC|Lossless|image + .cue] <Progressive Metal, P
 ```bash
 magnet:?xt=urn:btih:D4F667B4842CC7AC707C28D1B9A8BB1EE40C0DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ PowerPhotos - позволяет разбить ваши изображения 
 ```bash
 magnet:?xt=urn:btih:495C050F74DA73E934ECA1774EB70271B294AE33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ River Crow - Remains Of A New Life (2020) [FLAC|Lossless|image + .cue] <Groove M
 ```bash
 magnet:?xt=urn:btih:382F3D20DD073CDA631AC12656D6CA600141E318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:06EFFEA3320144CA489DEA971CFD01D82E889BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Mysterium - Soulwards (2003) [FLAC|Lossless|image + .cue] <Dark Doom Metal, Blac
 ```bash
 magnet:?xt=urn:btih:E6A7B4690A0BFE0149B8A47A52174EFE2E48BDBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Netler - это сетевой монитор для строки меню и Ц
 ```bash
 magnet:?xt=urn:btih:1C1306B09863911DAE134760777A8EC035ADDF67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31C5EAF423687D51A5E356368EF761878CE01A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ VA - Lilac Aromas Lounge: Chillout Your Mind (2020) [AAC|~326 Kbps] <Downtempo, 
 ```bash
 magnet:?xt=urn:btih:2577A605226899B6C708783C93352FD7CB3235C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Alfred 4 Powerpack 4.2.1 [En]
 ```bash
 magnet:?xt=urn:btih:BB441277F80617CFDB6A51DCA76890F13301AA54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:5BF797B61028A6593344D769FCCE67324599529C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ SideNotes - это боковая панель, которая заполнит 
 ```bash
 magnet:?xt=urn:btih:3D9C606FB679DCA84BA15CA0387F9F0D8115EBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ DMG Canvas создает образы дисков (.dmg). Процедура �
 ```bash
 magnet:?xt=urn:btih:518F07A04DEE6125F83651E4F371F86E1E83D8FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ PrefEdit - уникальное приложение для просмотра �
 ```bash
 magnet:?xt=urn:btih:53C31E9C348D802FE20221AB5DFD3E2910FF0A29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5475E793269A93632B7A0AE81976B60A2768F86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Huis - Abandoned (2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:CE6F2CEF04E9C0C2D3BB2CF96E8708677F9ACB6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ Storyist для Mac OS - является мощной средой для ра�
 ```bash
 magnet:?xt=urn:btih:9FDE9FA7F2384ADCFD8304F1412C2A5606099AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FAE44ADF2BADB1F61A83AB372EE93DD08CF4693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ SwitchGlass это новый проект Джона Сиракузы кото�
 ```bash
 magnet:?xt=urn:btih:702B72FB72C6A26F36A24DCD76F96295F2F4962E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:DD84D39E8E099CF9AE59F3320B70025BBDB752F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ VA - I Love the Rain Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtemp
 ```bash
 magnet:?xt=urn:btih:7190A203F00DF5FB92B76C1B9E54A02F405DCAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ Serial современный эмулятор терминала, которы�
 ```bash
 magnet:?xt=urn:btih:6B0FC1EE5A602A21693C20FC7570B73D09C09B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ VA - Autumn Leaves Lounge: Chillout Your Mind (2020) [AAC|~325 Kbps] <Downtempo,
 ```bash
 magnet:?xt=urn:btih:F916A850C3D06FF1A6CE654302832008CBB2955C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

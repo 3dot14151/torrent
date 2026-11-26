@@ -22,8 +22,7 @@ SQL для простых смертных - это полное введени�
 ```bash
 magnet:?xt=urn:btih:B2A5EDC3A17D536CFA5DE28DAEA30C4A0FC4BE92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

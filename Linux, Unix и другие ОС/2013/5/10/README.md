@@ -21,8 +21,7 @@ CrunchBang 11 Waldorf (Легкий дистрибутив) [i486, i686, amd64] 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FileZilla Pro - это быстрый и надежный FTP, FTPS, SFTP, Amazo
 ```bash
 magnet:?xt=urn:btih:486D4F72C5B0AE268478EFED629530401099F1C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

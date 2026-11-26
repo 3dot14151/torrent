@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:30E4588D42FD58B2CFE7E561FE0C66DA799086ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE9F0D75EEF83EF6B1E64FFBA00AD9E96926007A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ DAZ Studio представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:6BBF42441CA768B88DBD8D6C1E3E6A2C496262B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Tixati — это полноценный не требовательный к р
 ```bash
 magnet:?xt=urn:btih:AE1876F67DAFAA31D6D613E21AF52069B21BFBA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

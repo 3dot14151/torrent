@@ -21,8 +21,7 @@ VA - Melodica, Vol. 1 (2020) [AAC|~325 Kbps] <Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:0C090EC7BC9C34491934922B94C85EAC87AA0DA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Chillout Adventures, Pt. 7 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:25AD905C1D8B5992F320B299D2E2D4BE263A0C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Balearic Deep-House Winter 2022 (2021) [AAC|~325 Kbps] <Deep House, Chill H
 ```bash
 magnet:?xt=urn:btih:ACB65A9414715B69B8F8AF5F1A639FE016DD354B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Chatelaine - Chatelaine (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:C7ED6292146AFE84DBE7029E0768561D9228F95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9728D4B84C80574723D42644DB0511B53808CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Arabian Nights 2 (2020) [AAC|~329 Kbps] <Chill Out, Downtempo, Organic Hous
 ```bash
 magnet:?xt=urn:btih:035FABA42D4D00E8F6149926BDE41D0BDC237423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:446D500853F20760E4206838D7F29E45D498E2D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - Jazz Lullaby (2008) [FLAC|Lossless|tracks + .cue] <Jazz, Children>
 ```bash
 magnet:?xt=urn:btih:8798E9083E4F4B700773FA44E94DB98DC258E7EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3478AE8575500C1172DF73436E69FF46A86CEBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:895B71447EC34F7E2FBECB9A235B2DA8BB6D1005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EBB4A1CFCEC962FC53C9E2706E31BB9AD5E5C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC21D6AA0A69697A0083A970F445E576B59395ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:863BD1CC748730D9C1BBE542BFFBA7401C018BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A26F0892BFD1F2453DD009FDD642A7F6A9B2AFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ VA - Winter Chillout Lounge 2021: Smooth Lounge Sounds For The Cold Season [FLAC
 ```bash
 magnet:?xt=urn:btih:3E78F2D216D923B0B42231F63DF0FB67373D9F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Eternity's End - Unyielding (2018) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:16FDA52558A49497BB949EC7F35BC46CD10932F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ VA - Arabian Nights (2019) [AAC|~314 Kbps] <Chill Out, Downtempo, Organic House>
 ```bash
 magnet:?xt=urn:btih:BEE006EA78D51F194840652567E1D7FE3ECAA7EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ VA - Winter Chillout Lounge 2021 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:EA54967BBB2C7C9DE13E89F8F0A542654BA788C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ VA - Clubbing Electro House: E-Dance Mix (Vol.06) (2021) [MP3|320 Kbps] <Club, D
 ```bash
 magnet:?xt=urn:btih:D927981D54F561A2E9B9EA7A9882361879C772F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C85412B86A899264295ECC72B3F56635EA15E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D329CB3A7081B414CC8CAFD5CA85EEFEDFD6020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ VA - Diskoteka в стиле O-Zone (2005) [MP3|320 Kbps] <Europop>
 ```bash
 magnet:?xt=urn:btih:60E367B122E971ECCF03AE4A9AE2F93F9A60CD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ Emigrate - The Persistence Of Memory (2021) [FLAC|Lossless|image + .cue] <Indust
 ```bash
 magnet:?xt=urn:btih:3592FB9BE13780B53053496836E4F7A8A4FDE17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F77729D88A5428224A61C108D861F141465E2C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ VA - Uplifting Trance: Beach Dance Classics Mix (2021) [MP3|320 Kbps] <Uplifting
 ```bash
 magnet:?xt=urn:btih:65A2457E3D7F993B2E01AB4E8502B68942CAA931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:253188EA6FA7482D5E27CC884C17EFCEDBF26462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

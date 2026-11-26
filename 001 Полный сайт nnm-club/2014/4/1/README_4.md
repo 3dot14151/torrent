@@ -18,8 +18,7 @@ Xilisoft Video Converter — мощная программа для конвер
 ```bash
 magnet:?xt=urn:btih:28EA82F2E3C2C64C9D2100C3AD7916051012D20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ SMPlayer — графический интерфейс (GUI) способен в
 ```bash
 magnet:?xt=urn:btih:D72677344C787758AF71EEE7313014B19B36851E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ DVD приложение к журналу «Computer Bild» – крупней�
 ```bash
 magnet:?xt=urn:btih:735E2AFEA29151B674E33671FB8D53D8E999B67A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Still Got the Blues vol.3 (2014) [MP3|224-320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:99BCA18DE9B9B6C178A6595A4F989E49AB1B1796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ RonyaSoft Poster Printer — программа для создания и пе�
 ```bash
 magnet:?xt=urn:btih:F499CD04FFF8844898B5BB6FBE9FB57AFFFE8681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD7F2DEC256BDA23BCEE399A6BE1702415512D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ RiDoc - программа, которая сканирует документы
 ```bash
 magnet:?xt=urn:btih:1EF1D3A0BEA410206DBA1C315824C76BC590DB3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Airmail – это почтовый клиент для операционной
 ```bash
 magnet:?xt=urn:btih:4E5869457F0DE5B94CEDE8B6ED33D77BC7327B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Wallpapers - Обои для рабочего стола - разное (1.04.20
 ```bash
 magnet:?xt=urn:btih:944AF216DD00FDD4DCB62E5DC1F5C913543FB727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80C6CBBE14AEB190B47EAE27FDA145100200BBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Sekai Seifuku: Bouryaku no Zvezda / World Conquest Zvezda Plot / Звезда: �
 ```bash
 magnet:?xt=urn:btih:43778DEA2B1FD9A3E67E6F4BE2515FC8314BB503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9588D5413FF2A3D0D1F97FE0FF6BE794B23B5074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Classic Shell - эта программа предназначена для вк
 ```bash
 magnet:?xt=urn:btih:90BD75493DD6E94D0F295E88BD13DBF7D974BFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ VA - Still Got the Blues vol.2 (2014) [MP3|254-320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:EB4FF603B33C8910755FD0D216E758514280282D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ WYSIWYG Web Builder — это веб-редактор, позволяющий �
 ```bash
 magnet:?xt=urn:btih:E7C4F5BCF54649FBE051227F1F42383605A63534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A5BF0CF26764F4988CC2E8A1F5E05C375BE1B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:244BDAAC8E584406F2C1CDE0E650039ACF75FB27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ Macaw позволяет очень быстро собирать дизайн, 
 ```bash
 magnet:?xt=urn:btih:1AE3B4293668FACD77DF6A6A52B41100A367FC04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13AE82C9C7CCEF542771A3C659802A52A256B6B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F3B7BF5C071CFE2BD4EB8CAD0A323A5D74D5EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ Top Gear (англ. Top Gear) — популярная английская те
 ```bash
 magnet:?xt=urn:btih:5FE2E94D157B040EC0FE66C32E5E23493D2C47FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD57138971B134FA71215A5C360CCC4CE7F7BF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AE35C5B098D30D99E467DB257AF6FD9A875C545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ Lords of Midnight Antology / Антология (1984-2014) [En] License
 ```bash
 magnet:?xt=urn:btih:77B6BC02BABAA6BE5C755F6DD6F2CF2EDE0617FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ MSI Afterburner - утилита для разгона видеокарт, ра�
 ```bash
 magnet:?xt=urn:btih:73AC891B3D8551A897F70AC8ECDF82C54719080C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

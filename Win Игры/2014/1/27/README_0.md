@@ -20,8 +20,7 @@ Secret Files: Sam Peters (2013) [Ru/En] (1.0) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:6560BC37D869898738663EB072CB0F352F76A36B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

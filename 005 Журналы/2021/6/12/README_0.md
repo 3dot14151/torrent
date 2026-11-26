@@ -19,8 +19,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:98D5C956CF6A1C6DE7298A5D871873AE2060B6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1
 ```bash
 magnet:?xt=urn:btih:2E139619DF26ECD6CDD4BF3E1E4CAC694A8526B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Goatsmoke - What's the scene, Bob? (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner 
 ```bash
 magnet:?xt=urn:btih:855E3EC15319C5862B2779DC9B4E086CF311C0EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Vinnum Sabbathi - Live at Channel 666 (2022) [FLAC|Lossless|WEB-DL|tracks] <Ston
 ```bash
 magnet:?xt=urn:btih:E4146EAA1A8C69CCB73EDF03A40D265263647938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Rustorm - Razed to the Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial G
 ```bash
 magnet:?xt=urn:btih:DEE208C9BD310045D0B41BAC8409BEC4C68E931E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Lost Tribes Of The Moon - Chapter II: Tales of Strife, Destiny, and Despair (202
 ```bash
 magnet:?xt=urn:btih:3E02B06B4B7B2C602635EFBA273038F8357A04BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Blood Red Throne - Imperial Congregation (2021) [FLAC|Lossless|image + .cue] <De
 ```bash
 magnet:?xt=urn:btih:CEF91CD1A56E444F8F9B7DF65202943389658C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Crucifliction - Heresy (2013) 2022, Re-recording and Re-imagining [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:76923B0FDA52FFE90FEBB2F15E08F6601820A11B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Luminous Vault - Animate the Emptiness (2022) [FLAC|Lossless|WEB-DL|tracks] <Ind
 ```bash
 magnet:?xt=urn:btih:EBDB43ADD02ACC9F2F175DBD9B5D7AB2F85B17B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Teenage Slaves Of Satan - Poison Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom
 ```bash
 magnet:?xt=urn:btih:02329C4E10C59CDBBFE70C7D8AF77C99B816BA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

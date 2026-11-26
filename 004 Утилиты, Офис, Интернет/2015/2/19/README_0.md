@@ -19,8 +19,7 @@ DocFetcher ­– это приложение с открытым исходны�
 ```bash
 magnet:?xt=urn:btih:E1A02EC4DC0D74A49FCD6D555B7C7CB6F89C671C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

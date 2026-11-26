@@ -19,8 +19,7 @@ Borderlands 2 (2012) [En] (1.8.0 / 35 DLC) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:F0FB0EA3C5EC9C00E47ED819E64BB6473A795D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Worms™ Clan Wars - это самая большая и самая лучшая
 ```bash
 magnet:?xt=urn:btih:E8A6392C2B73460D012040DF648618E1367A9689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

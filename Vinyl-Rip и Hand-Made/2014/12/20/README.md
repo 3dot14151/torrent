@@ -28,8 +28,7 @@ VA - Песни из кинофильма От заката до рассвет�
 ```bash
 magnet:?xt=urn:btih:C0CBE246A6CEA6813EE310B7525A7317CD521088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

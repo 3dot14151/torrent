@@ -19,8 +19,7 @@ Moccasin (2017) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:ADF5C5F190DE17DA7000F1DA563AA29AF366BE26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MX vs ATV Supercross Encore (2015) [Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:15401040E71BB5F7436C0861A3F5A1D39738039D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A Second Before Us (2017) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:EAC9F3264FE55B58CB9ABD3A69079A1684902AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

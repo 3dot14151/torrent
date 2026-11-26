@@ -27,8 +27,7 @@ Manuel Granada - Chillout Guitar (2008) [MP3|192 кб/с]<Instrumental, Chillout
 ```bash
 magnet:?xt=urn:btih:A2EF55F7BFD9D0CE319D4FBA86F901AE1F5475D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - 45 Italo Dance Tunes (2013) [MP3|246-320 кб/с]<Dance, Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:FED607981159AC8A55962D3A7407AD9AC01E90A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ r.roo - innerheaven (2013) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Downtempo>
 ```bash
 magnet:?xt=urn:btih:5CE688DCDB62AAE0EE5D3B1AD2F7C4FFB9444D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Linux User & Developer - ежемесячный британский журна�
 ```bash
 magnet:?xt=urn:btih:4890C5002694326DE4AA968CC9AE0187A81FA56E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Falkenbach - Asa (2013) [MP3|320 кб/с]<Viking / Black / Folk Metal>
 ```bash
 magnet:?xt=urn:btih:7B3F2372A756CC504B5D0F3AB84E53AC4DE3F844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Aaron Parks - 2 альбома (2008 & 2013) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:704C3F2C679F6050B17078584715A0FD08E83DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2EBD86ADF9EA57552C82A45A0760D49D5FAAA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16BDE6FD49A20E684E18636DC078D0A424E5CC1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:CDD111AD2853CBFB11989059EB5C10361F164D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ VA - Попсовая соточка MTV Зарубежный выпуск (2013
 ```bash
 magnet:?xt=urn:btih:AE122F5CDD4AE964E4A533BE3DB070FC2C6B314C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90FD719A6CC8080AED72270F3E0C54BFBB2D11B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +367,7 @@ The Crusaders - The Vocal Album. The Greatest Vocal Hits From The Crusaders (198
 ```bash
 magnet:?xt=urn:btih:7946B86CD3DA40CB465437CB51BD2D6658E8EF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D68DAA91CC0862D72EEC954956D629EB2E0E83F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +426,7 @@ VA - Top Club Music World Hits 20.10.2013 [MP3|320 кб/с]<House, Club, Euro, P
 ```bash
 magnet:?xt=urn:btih:50BDE72B2869BAA0CBC974E980A1D20980C911EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6EFD7AD1951A7CE96DDF2D53EFDFA3A0DAFE10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +485,7 @@ VA - City Beach Club 8 (Mixed by Ping) (2013) [FLAC|Lossless]<Downtempo, Lounge,
 ```bash
 magnet:?xt=urn:btih:A270CC6D7D404ECF9549E8681BC1F4D3E282ECF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A91D278F500A73B1053C76C325739C825CED15F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +544,7 @@ VA - Italo Disco Hits Vol. 87 (2013) [MP3|198 - 320 кб/с]<Italodisco, Eurodis
 ```bash
 magnet:?xt=urn:btih:CABBD301FE642D8E81CA6C8D7AB0507C5DEDC32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +578,7 @@ Dale Cooper Quartet & the Dictaphones - Quatorze Pièces de Menace (2013) [FLAC|
 ```bash
 magnet:?xt=urn:btih:E0A926A90EE40E972F539B187B40178538768E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +603,7 @@ Total Tattoo - английский журнал о татуировках. Вы
 ```bash
 magnet:?xt=urn:btih:1C060D24603D19B9F87C4E0DCBF784AB3970C381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEE1803BF9A27D111A4CEF20B0EC9802E5279D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34221BF5EB5F83EFFF242785DE97765752480249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50AD3AC8EAE3F0FA9818AA128765F24FC4705EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F124CC104DCC43A30CB4483D0796D9BDA926AE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (26.10.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:5DC42DBB13A8FD1FE07B24CAD8C5514656364FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ Andrew Forrest - Starseed (1997) [MP3|320 кб/с]<New age, Meditative, Ambient>
 ```bash
 magnet:?xt=urn:btih:108F18A267FD359C2EA162D250EFEBD3B8EA215F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Fats Domino - Greatest Hits (1991) [MP3|320 Kbps] <Rock'n'roll>
 ```bash
 magnet:?xt=urn:btih:7AEC450A75C63251C6026B84AFA8707FFF41549F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Tempo Bay - Disco Ball (2017) Single [MP3|320 Kbps] <Indie Rock, Dance Rock>
 ```bash
 magnet:?xt=urn:btih:8B793F9287C0662B3FCD73970D21B4E8E4099FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Amberian Dawn - Darkness of Eternity (2017) [MP3|320 Kbps] <Symphonic Power Meta
 ```bash
 magnet:?xt=urn:btih:53ADFF7676EFC883336836ABD8FE65A04E8F89B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Shakra - Snakes & Ladders (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:92A291B77782D4B87DADE7951AA8ABE96455700C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73B8CCCB3849B7F090FF5DCD352F6963CFC09C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Kid Rock - Sweet Southern Sugar (2017) [MP3|320 Kbps] <Rock, Country Rock, South
 ```bash
 magnet:?xt=urn:btih:DEB4BB8D20E4B4E5486B89352DBA59AC16780BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Metallica - Master of Puppets (1986) Remastered, 2017 [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:DBC19EF6B3F6C275591C03482E51BBE3DA44EA2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Evanescence - Synthesis (2017) [MP3|320 Kbps] <Alternative Metal, Symphonic Rock
 ```bash
 magnet:?xt=urn:btih:F9F5586CA8C8E15DB4FB53283B08EF4C5DE8956C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

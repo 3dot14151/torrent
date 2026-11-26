@@ -19,8 +19,7 @@ File Association Fixer v2 for Windows 10 Portable [En]
 ```bash
 magnet:?xt=urn:btih:BBD88C8AF898A3F24A37C25BBB51FB6A530AF16C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TrackOFF Elite 5.2.0.26899 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A2622D4CDF4A51DA8D8A14950B913CEE832297C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

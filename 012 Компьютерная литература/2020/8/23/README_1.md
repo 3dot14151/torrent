@@ -19,8 +19,7 @@ AutoCAD 2007 является очень мощной средой трехме�
 ```bash
 magnet:?xt=urn:btih:F845E94A43140D071145DCF6FD837235DF771FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

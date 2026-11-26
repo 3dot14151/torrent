@@ -19,8 +19,7 @@ New Art School, Егор Гришин | Скетчинг (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:2C93252BFC3EAF7392EF195220322DAABE44CE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF1D0F4644E2E66DA916396AC466EE793356D07A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vampire Hunter D: Bloodlust | D: Жажда крови | Ди - охотник �
 ```bash
 magnet:?xt=urn:btih:2F87B99B6DCE7E8BD8C477597C24BB034AA3C259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01E5D027385926A3699ADE29E9B39FB0E1EE0EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ IObit Unlocker — «легковесный», но мощный инструм�
 ```bash
 magnet:?xt=urn:btih:7E62932BE0EB75E27290F1B5DDBA2BBE3C5D7A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Microsoft Office 2019 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:0184D8B16C751CB252EAB616AD633CCF2DED6EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Microsoft Office 2019 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:99E300D01A530103E810EBEE33CC2CB5807F592D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Sims 4 (2014) [Ru/Multi] (1.70.84.1020/1.70.84.1520/dlc) Repack xatab [Delux
 ```bash
 magnet:?xt=urn:btih:114E2E42061D30D5F4A59C6161F1011900E0ECFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

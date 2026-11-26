@@ -22,8 +22,7 @@ Ideal Zero - In Perfect Darkness (2014) [MP3|320 кб/с]<Alternative Rock , Hea
 ```bash
 magnet:?xt=urn:btih:4A5B7574D7B7AF2BDE01522265906E38A9AF69FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Failure - Fantastic Planet (1996) [OGG| 477-552 кб/с]<Alternative Rock, Space
 ```bash
 magnet:?xt=urn:btih:353CA1ECA84E6A70909371B50777A71FB974E1EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Failure - The Heart Is a Monster (2015) [OGG| 391-551 кб/с]<Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:5A609741728432B5C9FD59CE546DDC78AD124147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Murder of My Sweet - Beth Out of Hell (2015) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:E0B9DF846B8B964FC28900D3674C9E943829A95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ King Gizzard and the Lizard Wizard - I'm In Your Mind Fuzz (2014) [OGG| 487-614 
 ```bash
 magnet:?xt=urn:btih:6AAFB97DD557EFCB7C3B70AFE7DC841F31D12D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Wolfheart - Shadow World (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:D9EE5151D2CA2A214A785BB41BDFAE2E75DD5247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Myrkur - M (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:512EE2FF19F92CD61358DAAFF69B95CA3AABB435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ AC/DC - BBC Live 1976-1979 (1998) [MP3|320 кб/с]<Сlassic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EE9278BC149F4CACFFE0D27E6861BA54F501AE06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ P.O.D. - The Awakening (2015) [MP3|320 кб/с]<Rap Metal, Nu Metal>
 ```bash
 magnet:?xt=urn:btih:E716275445F2E1253323475CDE980AFF370AE4DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ King Gizzard and the Lizard Wizard - Quarters! (2015) [OGG| 493-548 кб/с]<Alt
 ```bash
 magnet:?xt=urn:btih:D9D74A7716F386A1574D19165FDB4F9FF7742EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

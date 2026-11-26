@@ -22,8 +22,7 @@ Scrooge - Scrooge (2020) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:1BA2F591AB62ECB41EC7C62ED4209FD5C5B45553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Asphyxia Perception - Invalid Shape (2020) [MP3|320 Kbps] <Melodic Death, Doom M
 ```bash
 magnet:?xt=urn:btih:F7ED896860B5716E4D7D7D854F75FD3B316950AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E42EB87302AC8147CC20B020141D6557F03159C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ PostNecrum - De Nocte Vento (2020) [MP3|320 Kbps] <Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:603A16916EE7CA06AF3A8F226BE989656399107B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C600EBDE4243A589017FC0BF744DA86C4AD95AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Swng my prty - Лето 2020 (2020) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:A43702ABA79F517422AB7076F083C8600C9538B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Allison Crowe - Tidings (2004) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Christm
 ```bash
 magnet:?xt=urn:btih:37C008CBF47C84821E59DE8C7C60D32F37483144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44E751516A93A461B7796B3B2BB810EE2531A03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Gary Batchelor - I Am The Eye (2020) [MP3|320 Kbps] <Progressive Rock, Progressi
 ```bash
 magnet:?xt=urn:btih:7BD195AB9850192E7B7A64F4F1456940CC57FD51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The Whispering Of The World:
 ```bash
 magnet:?xt=urn:btih:FE21505978BA528F986C599C668D07AFA9D49163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Apofeozъ - 2 Albums (2019-2020) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7CB265DE7FC734894BCB842675313E5A0A1D1F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:977142AC8236956C324559D16D62443DD9993BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Heavy Pettin - Best Of (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Met
 ```bash
 magnet:?xt=urn:btih:B273791E53873F6E2FBF3BD52088F989C04C1B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ The Grinch - Земля остановилась (2020) [MP3|320 Kbps] <Punk Roc
 ```bash
 magnet:?xt=urn:btih:413E43EDEBE0695EBCDB1EC64374D687FBC00FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Lumuroze - What`s the Point of Falling Down If We Are Already in Hell (2020) [MP
 ```bash
 magnet:?xt=urn:btih:832E46C002DD7DC7EC2FE2FF82844D0E2FE483ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9371497A5AE92AC46E6C25D27BC25F0C697B6DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Papa Roach - 20/20 (2020) [MP3|320 Kbps] <Alternative Rock, Nu Metal, Rapcore>
 ```bash
 magnet:?xt=urn:btih:4F310E1AB0CF33CAA315176B65FC03143A9A0D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

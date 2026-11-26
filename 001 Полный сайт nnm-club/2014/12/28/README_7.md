@@ -28,8 +28,7 @@ Apocalipsis - Apocalipsis (2012) [MP3|320 кб/с]<Neocrust, Post Metal, Sludge,
 ```bash
 magnet:?xt=urn:btih:E18E6247700AD027BAF794BE23EACDE23FA85CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Throwers - Prosaic Materialists / Rudimentary Bodies (2014) [MP3|320 кб/с]<Da
 ```bash
 magnet:?xt=urn:btih:881A87CB0287FA0FA0AA5AD69BBED2D143D39A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Zen - Gaze Into The Light (1997) [WavPack|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:CC9410E22FE7CEA523B8650D519B7678DD200AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Albums, EP:
 ```bash
 magnet:?xt=urn:btih:A646D0366993F8866E0FCEB8945EA35BFD297A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Angel Of Nature - Golden Age (2014) [MP3|320 кб/с]<Atmospheric Black Metal, D
 ```bash
 magnet:?xt=urn:btih:CD37AE1590D7CF37AF7F89A0EF80AA9737F1CEF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6E555D076D00F1F3DCB2E6BA0C0CEC22AD3785A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Chronosphere - Embracing Oblivion (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:035ABAAE0EDBB71202580B340E304D619A199905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ Zeke - 'Til The Livin' End (2004) [APE|Lossless]<Hardcore (Motorhead)>
 ```bash
 magnet:?xt=urn:btih:8F4F9FD29C4DABB998C6A154BFBBD9443F2E5609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ Debbie Davies - All I Found (2005) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:66DE25B9333D6E8983B12823C61F4EE963F6258E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ Nothing Looks Perfect - Ничто Не Идеально (EP) (2014) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:90BEC3ABB69B7B8D9532D7F737F4562F59211F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ Duke Ellington - Lotus Blossom (1999) [FLAC|Lossless]<Jazz, Swing, Big Band>
 ```bash
 magnet:?xt=urn:btih:9FC841788EEADA1150DFCCE8C55A03C7C6EECB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:309B949B2694BE001110576F271468449D98E526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ Chroma Music - Strike-Slip Fault (2014) [MP3|256 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:761C8F55F38DD3771B29090DA969E4E9AFCB10F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F169A85113475A41C50C0581A8674D2436562A20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ Delian - Огнём твоих грехов (2014) [MP3|320 кб/с]<Melodic Met
 ```bash
 magnet:?xt=urn:btih:53F25CA86B93E09776F18BB9080F9E8388245922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9541FE0FBD4B87DA6ADCFD10946C4E0C4AA65C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE7CCEAD5EA19D80A3A538F8EFFDCD3E7805807C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ VA - Club Playlist December (2014) [MP3|320 кб/с]<Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:4963130474F8CB2157052AB87EAE7C1FA4242CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ VA - Live At The Montreux Jazz Festival: B&W Present (1988) [FLAC|Lossless]<Jazz
 ```bash
 magnet:?xt=urn:btih:BCB62A4EBAE6FDE29736973DA6C811DF4E9DDD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AA5B14655B03E2C3CA377F82A2CF2E3F99F6F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC8059CB3E936A5FF4FE3053BF901909D2FCB7C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A10673C0CF91FC212C42BD48D99465C3E9D73706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ Duke Ellington - The Far East Suite (2004) [FLAC|Lossless]<Jazz, Swing, Big Band
 ```bash
 magnet:?xt=urn:btih:A3CF0D58CFADDEA109B50CC799A03F3C67E6008F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:565C94D791F4EDEB250E9857B93A2F5666957D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -782,8 +757,7 @@ Hammingway - Начало (2014) EP [MP3|320 кб/с] Авторская раз�
 ```bash
 magnet:?xt=urn:btih:F2E2DB8F02F630693AF3B2029D812391AB6E8A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

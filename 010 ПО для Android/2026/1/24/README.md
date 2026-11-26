@@ -19,8 +19,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:9600E75A20D3138D304492EA9BFCADB27D5A55E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ventusky: Прогноз погоды v50.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E294BEC0FCF913F83D33C572E9C153C08EE6A166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5EF8DCA6A9122F175D645836D314F5AB57E6BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5B61759D578D2F59C9117AF569A0D206328824F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MiX Camera вдохновлена ​​камерой Mi, но добавляе
 ```bash
 magnet:?xt=urn:btih:67376E04E79DA1BD54F2CA6810418EF4924F78AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Happy Color — самая популярная и излюбленная бес
 ```bash
 magnet:?xt=urn:btih:9DA4D87984992CB2CCA437AF87C438397A8322B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EAC6078051FFA9D97F0780B82379854DE931A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v26.3.5 Mod b
 ```bash
 magnet:?xt=urn:btih:DC9AD2397AAEC5D79C61B8B0F269AEE1468C1E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8197AD53A1F3FF202B53EC8C455F77278A1DFA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ English Galaxy - уникальное приложение для тех, кто
 ```bash
 magnet:?xt=urn:btih:DE1DF96F45FECE2298587CE3EDFEFB57EB16E62E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Simple PDF Reader \ Простой PDF Reader v1.0.98 Mod by Alex.Strannik [Ru/E
 ```bash
 magnet:?xt=urn:btih:2405C08B287689EC00D0867764BEA86AD880668C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:3ED9BE5C246B65567FD0076A7A8DF8B067D2F22B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ WaveEditor для Android™ — это профессиональный инс�
 ```bash
 magnet:?xt=urn:btih:7F4BFFB32CE4B8D1D9FF09C336936DCE71F06598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B59F6D947B3D77B175928458DD6B1D5D3A43C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8971DEE2B0980782FE4510FED4243B15B9D054DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ AIDA64 v2.17 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:47CE1E049C3302AA2F227F0E7A728FF9BC87231B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

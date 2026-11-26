@@ -22,8 +22,7 @@ VA - Beatport Trance Pack (25.07.2016) [MP3|320 Kbps] <Trance, Emotional, Energy
 ```bash
 magnet:?xt=urn:btih:4DF22D085C1E3A1402F766CCADC587CA5C986BCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D9A61E5D976D4DDB5848EEC3BD6B33096F0928A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Godsticks - The Envisage Conundrum (2013) [FLAC|Lossless|tracks + .cue] <Crossov
 ```bash
 magnet:?xt=urn:btih:234417CDB1516668BC95D2A566ACE6C5A2D722FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ride The Sky - New Protection (2007) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:85A93527DDF11869E3CDAF5C3334C5D75A86FF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tricia - Radiate (2013) [MP3|320 Kbps] <Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:9A6E8E50E6D1A4FC1F510B88B4CF359485A701CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sans-Fin - Orage Magnétique (2015) Raumklang Music [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:FA302D6792204CA1C82F7204C60104FDE75F460D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ iStat Menus 5 — лучшее приложение для контроля ра
 ```bash
 magnet:?xt=urn:btih:E2EE6F8B5A649E85258AD2484E1CB106A0152AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Trance Evolution - Top Collection (2016) [MP3|320 Kbps] <Trance, Progressiv
 ```bash
 magnet:?xt=urn:btih:E0B7CDDAB0ADB21B49022FCF9D5ADEADDD1B606B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Aphexia - Breathe (2015) Raumklang Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Amb
 ```bash
 magnet:?xt=urn:btih:5D7A9E7825535F2F6233844E367BC3C466DD885B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Gypsy Pistoleros - Welcome To The Hotel De La Muerte (2009) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:763A50BDFB374F21EF136B12BB43C6BA767AB12E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Jens Buchert - Elevation (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Loun
 ```bash
 magnet:?xt=urn:btih:E79A25E75A533219059989012E1785D5CC16DFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - House Nation: Jeans Mix (2016) (2016) [MP3|320 Kbps] <Club, Progressive, Vo
 ```bash
 magnet:?xt=urn:btih:24D18A535E92480926BC725A8C7A2AFD30E32BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Big Creek Slim - Keep My Belly Full (2016) [MP3|320 Kbps] <Modern Delta Blues>
 ```bash
 magnet:?xt=urn:btih:6E34826688008840B55FAC01E5A51341F61379BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - TOP Non-Stop 2010-2015 - Lounge, Chillout, Ambient. Vol.1 (2015) [MP3|192-3
 ```bash
 magnet:?xt=urn:btih:E81F09057C3DDF9ABDB8CE20ED705395D035259F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Zen Sounds Music For Relaxation (2016) [MP3|320 Kbps] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:B58E63BBF92E4FDB4D5623B8FBF503127DE2C692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:ACC4F6AF683C03BC3BD9798C440A2A4B69070D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D357AAD54A3FEF6C8719AD34909351B300347E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Tetuna - Alien Existence (2016) [MP3|320 Kbps] <Psytrance, Psychedelic Trance>
 ```bash
 magnet:?xt=urn:btih:C144C9C94556E2157EE342AF48DB486F52FA7894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2142978EB80D64370C7EC8FEB0D5DD8C69BD6962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:837E5D8DBAECCC2146425F6E55329EF87D977016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39EEB4C7D460DE5B56D3EA04B063B1ED8D02ECD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ VA - The Sun In My Hands: Instrumental Chill Jazz (2016) [MP3|320 Kbps] <Chill, 
 ```bash
 magnet:?xt=urn:btih:36A93B5745D018367D2452F884AFF5E0E778872C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF7ABD475D42D5E4676874A26D277C84DCCE7E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2334B3B49FE5E1F1F01C1A20A16AFB9D88220E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ XMedia Recode - отличная утилита, цель которой - по�
 ```bash
 magnet:?xt=urn:btih:D793CA4E08E2F48873B8A9314B0E9847B2AA49C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Halloween Stories 6: Mark on the Bone / Хеллоуинские истории 
 ```bash
 magnet:?xt=urn:btih:BF5D73D7797143E0E61E87E709EFF4ED073FAD1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Return to Monkey Island (2022) [Ru/Multi] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:BD5FFF0E2B328B6C6F834A1F148FE0513C003C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ABBYY Comparator – универсальное решение для сравн
 ```bash
 magnet:?xt=urn:btih:3D6D07017A29B216475C3155C3DB0529540B867D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

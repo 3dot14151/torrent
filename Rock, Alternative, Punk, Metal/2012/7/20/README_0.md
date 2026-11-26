@@ -28,8 +28,7 @@ Paul & Linda McCartney - Ram (1971) 4 SHM-CD, Super Deluxe Edition, Remastered, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

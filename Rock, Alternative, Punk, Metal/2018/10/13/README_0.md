@@ -22,8 +22,7 @@ Craft - Шведский метал - блэк коллектив, начина�
 ```bash
 magnet:?xt=urn:btih:FBB955DB328E5A5AA34F4606F7575F18A51C7F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dragony - Masters of the Multiverse (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 ```bash
 magnet:?xt=urn:btih:8D524DBD0417D0E00D65826EEC301625946F06BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Suzi Quatro - Suzi Quatro (1973) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A2B5E3D15A4B2C0982FBFA3620756B8F33170A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

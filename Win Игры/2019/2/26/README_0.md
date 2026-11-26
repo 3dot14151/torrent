@@ -19,8 +19,7 @@ Pacify (2019) [Multi] (1.0/upd1) License PLAZA
 ```bash
 magnet:?xt=urn:btih:557110BA7967E310E63A586B7EB1029C2D6B61E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mutant Year Zero: Road to Eden (2018) [Ru/Multi] (1.06) License CODEX
 ```bash
 magnet:?xt=urn:btih:0233EECCC42CC15EC5D3C131AA6E81AD8EF47199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Devotion — это атмосферная игра ужасов от перво
 ```bash
 magnet:?xt=urn:btih:EE15FBC74D33C5B2C87888C853759CC23440F23C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sudden Strike 4 (2017) [Ru/En] (1.15/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:408FD183115B8ECD422D5909BD44E8292829A18A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

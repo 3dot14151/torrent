@@ -22,8 +22,7 @@ GT Legends - исторический гоночный симулятор, ко�
 ```bash
 magnet:?xt=urn:btih:CC8C04D24CF871739BA14561E205D9630487567E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

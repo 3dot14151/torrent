@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C4F0CE60528A91D37FC74097F8B4EF522A093DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Kiss FM - Top-40 + Kiss FM - Top-10 (01.11.2013) [MP3|~320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:1C59D2070755501ECFB79D009293081B7C206BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Beauty Pilot - программа для коррекции женских фо�
 ```bash
 magnet:?xt=urn:btih:3685080656EED742F44020F212A77598D8BABC22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A1E66917612258DDD7727F6D54958F5E0B8B664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31699C3FEE95F4E2BC3D09254C684513026C0642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Samsung | Ноутбуки Samsung (2012) [PDF]
 ```bash
 magnet:?xt=urn:btih:F81FEC8BD6BE182C3907C212E9A5434673978435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D6965D8476BE0450D434A5F5E076BE7177DC07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Chromium - мощный, портативный и довольно обычны
 ```bash
 magnet:?xt=urn:btih:D40001EB9C3EC30506F30648A8A368F45387CDBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ C3. Running [4:07](   Читать дальше...   )Жанр: Industrial, Alte
 ```bash
 magnet:?xt=urn:btih:31A2B59CC15F1B0315DB4FE3E0679934EBC4DE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDA125885286183DA55564A62DB37F16CE6F253E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Kraftwerk - Man-Nature-Technology (2013) [MP3|204 - 320 кб/с]<Electronic, Syn
 ```bash
 magnet:?xt=urn:btih:367A7B67C30D04A87AB268E2D670E460465AEBF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE15D3F3FCA998B710DEC1C23AEFB8C5DA3C1846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Jon Bon Jovi - Blaze Of Glory (1990) SHM-CD Japan /2013, Universal Music/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:7561C86196AAED8A0951A514AF6F6B09084647A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ VA - Грёзы любви - 2: 20 самых романтичных хитов 
 ```bash
 magnet:?xt=urn:btih:808FB699EF3CC5E1982987D66BA79C301303BDBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ NG: Пирамиды смерти / Pyramids of Death (2006) HDTV [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:F6E09869FC9591203F044D9BFFC0B8F957B2C592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D83E7A4C14D2B45300FE00E5518DBA6ECCF4218B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF5862F09B9FD388D414F274BE28483F72D108F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ VA - Millenium Sunshine 2 (2013) DVDRip
 ```bash
 magnet:?xt=urn:btih:67DC70FF73DF0E9AB5E9246190D5F42733AC21AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +556,7 @@ VirtualBox - специальная программа для создания �
 ```bash
 magnet:?xt=urn:btih:7C527CC8323DBE5FD55B8592729A62B7A77CD411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:358A85E2416F53C14131C4CCAC15AE95435C64D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C22D55984F2547C3FAABC341C9DA8829B7B8EB5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:D586413D5CE80BE7A48B2277FB2BC417FA89A7D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5421BC02152E61B559B9E3E9DFD8F21D23E52DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +692,7 @@ Avril Lavigne - Avril Lavigne (2013) /Scene/ [ FLAC (tracks)|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:55DCDC738B23CD1ABBBFB14189DDB3E8D27C0870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

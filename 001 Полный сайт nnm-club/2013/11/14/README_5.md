@@ -19,8 +19,7 @@ Blood Knights рассказывает историю Джереми, охотн
 ```bash
 magnet:?xt=urn:btih:28FDAE038F59A0D5E53313AFC579FE93E669D04F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5BA26D642EAB893ABAF69A499FE215E8AEB2B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Injustice: Gods Among Us — новое слово в мире файтинго�
 ```bash
 magnet:?xt=urn:btih:A74DE51A008DF394FB318498164AB3E5C47D980B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8955E21686C8FF6614EF34FAA5B8C7BE6BA67F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Adobe Photoshop — программа для обработки растров�
 ```bash
 magnet:?xt=urn:btih:D1A14B8BCF99A1C50765339ED4E2F7831B08621B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

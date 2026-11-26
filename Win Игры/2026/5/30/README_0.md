@@ -19,8 +19,7 @@ Gunsmith Simulator, как понятно из названия, являетс�
 ```bash
 magnet:?xt=urn:btih:F60EEDD89F34D533504424D4320CAC4F91041C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Realm of Ink - это роуглайк с элементами экшена и �
 ```bash
 magnet:?xt=urn:btih:BEB80ACC998871B26A2C3D9EFEACAD087B85DB8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.387/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:270D0C93FCFE42485078C4A23A6A0723B5032488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AI War 2 (2019) [En] (5.810/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3F5470C13C0F6830E88944185317A99D103B2B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Yerba Buena (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:08B97242080BE6D848EDCF2EDE007DB209E4CD2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Occultist, геймплей которого базируется на то�
 ```bash
 magnet:?xt=urn:btih:7A8B35C784B804F653358BD6161107A516CDF61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Zero Parades: For Dead Spies (2026) [Ru/Multi] (cs36599 k01) License GOG
 ```bash
 magnet:?xt=urn:btih:0202103481A9835B8F1F4EDA59FCA37A53BCECC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

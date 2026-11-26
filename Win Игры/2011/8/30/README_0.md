@@ -19,8 +19,7 @@ Shooting Blocks 2 – продолжение первой части Shooting Bl
 ```bash
 magnet:?xt=urn:btih:5022E74CAA27B8BC5409561B2B58858A59BEF09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Age of Enigma: The Secret of the Sixth Ghost / Эпоха Загадок. Тай
 ```bash
 magnet:?xt=urn:btih:5A939C1D0A1D8F6408E9B7C09C28A617263A4A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BreakQuest {v.1.16} (P) [Ru] 2004
 ```bash
 magnet:?xt=urn:btih:D06428E9F709A50EAA7D59CFA0A29320649B123E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rainbow Web 3 / Радужная паутинка 3 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:C297D0EEBCC5DB117049931077C40B58E2D240CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Lunatic Rave 2 совместима с BMS и BME форматами и испо
 ```bash
 magnet:?xt=urn:btih:26AEE03106986477A7515CAD0EA1938E7BE41488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Assassin's Creed [Ru] (RePack) 2008 | Fenixx
 ```bash
 magnet:?xt=urn:btih:17AFEDC6EFD3BF154AA4EC6337C23F6A67727724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ From Dust - это последний оригинальный игровой к
 ```bash
 magnet:?xt=urn:btih:35F75D8F7208424896AA1D72FF88CA5F428CFFB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

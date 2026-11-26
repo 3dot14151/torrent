@@ -22,8 +22,7 @@ Aeon Of Horus - Existence (2014) [FLAC|Lossless|image + .cue] <Progressive, Tech
 ```bash
 magnet:?xt=urn:btih:8EAC5CC93F236B795E6631C1A24ED0C4BF97C6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Seamus Blake & Chris Cheek - Let's Call The Whole Thing Off (2016) WEB [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:FCAEA14BBC242C3A21ED1F474C7E0C3E2D1D889E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Melvin (Mel) Rhyne - Organ-izing (1960) 2000, Original Jazz Classics[FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:366D01F4287121678121D3D32EABA222E8C1CDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Mercury Tree - Permutations (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Cro
 ```bash
 magnet:?xt=urn:btih:22ABF39F0057279AFB09118C23FD42277E42B935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Framer Studio построена на Framer.js, является основой
 ```bash
 magnet:?xt=urn:btih:87BC5764CB99308225C7362DD7E941E7E01623FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Ornette Coleman And Prime Time - Virgin Beauty (1988) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:CB12639C25E73DC81B00DC9B794709122A349FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ The Lew Tabackin Quartet - What A Little Moonlight Can Do (1994) Concord Jazz[FL
 ```bash
 magnet:?xt=urn:btih:BECE603317AE9280C356CDC0EDA4A995FF58FD91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C9F22D8FB6A04C255F7AF8478317913CDD9847B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE38C8C9AE4D8276EDA8992E84CB5EDD1E2786E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Paroni Paakkunainen - Plastic Maailma (1971) 2010,  Rocket Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:E07A6DF272C0749AAFCFE5159C4CA68E335FCF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Glenn Kaiser Band - Octane (2008) [APE|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:6E820F1718C0D129370D650228F1CC64A5007A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F14ABC3981271068CCB780680CE658D9A5C732C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ The Marcus King Band - The Marcus King Band (2016) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:640A8111D5330FD44D4B4DF8BC7D3E9135E27C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B586F54AB2480A602536A41B668366EDE0C2DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13AC3BF3D21A36B8EB721D60C8863F73B2F5F202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Mad Mamba - Pure Venom (2017) [MP3|320 Kbps] < Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A06F8F8DE73333E1BD629065218C87AB624154A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E98E1ADCBCB128F0872991EA07D56841DE50A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93220C3F28507D57E132C549C195D7A54DC75012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:210DCDBD2346E8B0614E900C3B18420279081292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F52697E7F5D9043266119102A47D7AF28468764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Heart - Live At The Royal Albert Hall (2016) [FLAC|Lossless|image + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:0A2F67E35F1442278E98289127D99EA1499C983A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E83EE055E79ABB642414D8A7F25EAF60D826479C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ CD1 - Time Out:
 ```bash
 magnet:?xt=urn:btih:85AE9BCD7C842C5343602C8FAA3D8B580093E5FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ SmartAlbums является революционным программным �
 ```bash
 magnet:?xt=urn:btih:7CB1048B99F43513D2961E358268435D3B917C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Stellarium это бесплатный планетарий для вашего 
 ```bash
 magnet:?xt=urn:btih:3683ACE7EC5DACD577BE7B59F140AAA93F079DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76FD2FCA129F9D8E2470ED14F44D167116957907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

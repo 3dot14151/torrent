@@ -21,8 +21,7 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ```bash
 magnet:?xt=urn:btih:9515DB6B510A98ABDF085D6ECBBB4522DEDA0AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ```bash
 magnet:?xt=urn:btih:56E76D4E983AE74D4AAFFB4753D7479ABEA74EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ```bash
 magnet:?xt=urn:btih:0A0B718FD9BCA8359F335FD4931986D42EFB62C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ```bash
 magnet:?xt=urn:btih:7A15B9D82C40A0C31FFD0D6519524AAAFE905422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5519C0A7BAC1E60D66FF2FF0EE19F1D36DC8701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD9904EE9C5C03DB4223FAD0FDD93A6684F1C636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

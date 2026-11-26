@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:689686C645F38DE8B61B96380BB72CB526B94351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ```bash
 magnet:?xt=urn:btih:5D3EA68E6C366C5B6DF2CEB5EEF25FF7FFBEA964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:424DFCEA603E0C4C717E7D055C92AB55C527088A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Lacrimosa - Live In Mexico City (The First Edition) Bonus DVD (2014) DVD5
 ```bash
 magnet:?xt=urn:btih:D14DA9277693873F3A42F6108C1190021F334537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E18C16912AFDA355DD336D6125CBA845BF91AF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C6001F9B77A631E2AA74F062BF1BD816ECB7E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3789C2D9A474BE6AC7441C49760ECDCB5D6AC732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Ataraxia - 2 альбома (2014) [MP3|320 кб/с]<Neofolk, Neoclassical>
 ```bash
 magnet:?xt=urn:btih:675E34622B67F979D7758BE7D000CA07F07EB85F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ VA - Шоферской Хит (2014) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:0BD166078A42E0AFEA233C13A79E2EAD4A15802A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Wallpapers - Mix Full HD 8 [JPEG]
 ```bash
 magnet:?xt=urn:btih:18CBEF7A84BBF00907F20FA55095B2E4C16E0F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Capture The Crown - Reign of Terror (2014) [MP3|160-320 кб/с]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:3CBFF42E62B333B9D18BDFD069A575A07F614FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70307EE43A78926B03DB5DB15E7DF85B65513124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:611A3BF5A9F841168F6133A5F3DBE69FD8441DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Art of Fighters - Keep on Rocking (2014) [MP3|320 кб/с]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:994FB4300450D975092706209B297B78A3FF1450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8080B9FD87752355F0C1578D5EB1D43B7FBA8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Noize MC - 10-летие группы (2014) WEB-DLRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:07E269150ED916F5E7FD931050C280A9D070B349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:835AD1C49546F798D0A928E0D9C61A3B4EAE7553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ Wallpapers - Mix Full HD 9 [JPEG]
 ```bash
 magnet:?xt=urn:btih:DAB14084DAADD5C07C43A0966957EEC6E8E056EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ Enolsoft PDF конвертер с OCR - это эффективный инст�
 ```bash
 magnet:?xt=urn:btih:F58080DAB2C11A23DD57A3F00D3291AC48396778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ Data Rescue 3 полностью безопасен в использовани�
 ```bash
 magnet:?xt=urn:btih:6E103B60FF3C81FC0F3EA40056D6B68308080E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63B53CE79BBE9A7020B2F7D4B7E5CA46D4FEF85C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ VideoHive - Outcome Glitch Slideshow - 7494021 [AEP]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14A65E5F2A57DBB03F107270298A7A8580A396A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:182FED33B7DF71012AC4AAEFF6E0A43F51B874D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ Oiynsoft Cheats - это огромнейшая база чит-кодов дл�
 ```bash
 magnet:?xt=urn:btih:1A4D336DCFB2552C82A8C0AB3DB85246EDE4DC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB0C50C8731C6F8490BA9410E78DAE531C73F04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

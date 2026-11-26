@@ -19,8 +19,7 @@ Republique Remastered – игра в жанре стелс от студии Ca
 ```bash
 magnet:?xt=urn:btih:608A886954662375ED442BBAA785CA4E66433F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dynasty Warriors 7: Xtreme Legends (2018) [En/Ja/Ch] (1.0) License CODEX [Defini
 ```bash
 magnet:?xt=urn:btih:4725E8F6BAE65F169D0C332309527C39AE210DBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Project CARS 2 – это вторая часть успешного гоноч�
 ```bash
 magnet:?xt=urn:btih:145713576E94EF4032C553A60E6C9653F821E981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:0AD9CA67A2322B4F3202C2E0DBC1722D1B765F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

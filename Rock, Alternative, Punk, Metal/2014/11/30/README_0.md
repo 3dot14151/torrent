@@ -28,8 +28,7 @@ Black Clouds - Dreamcation (2014) [MP3|320 кб/с]<Post Rock, Post Metal, Ambie
 ```bash
 magnet:?xt=urn:btih:ECF0535B8686B45593D0FF3ED7C64B2A83471254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Scapes - One: Unseen: One (2014) [MP3|320 кб/с]<Melodic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:534AFDFB50BEAFEE114687D384AA2BC97F80033C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Triosphere - The Heart Of The Matter (2014) [MP3|320 кб/с]<Power/Progressive 
 ```bash
 magnet:?xt=urn:btih:B20787DBDF083367AE59F44A6FC658753853A766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ The Beauty Of Gemina - Iscariot Blues (2012) [MP3|320 кб/с]<Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:E0D00890CA30490E6A6D3868BEA929FA2663FBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Nexus Opera - Tales From WWII (2014) [MP3|320 кб/с]<Power Metal, Progressive 
 ```bash
 magnet:?xt=urn:btih:71A5999CDF790E14E11B01800F9C9918EB6FC91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Exlibris - Exlibris (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:2B86A4B028787DC1CF3B9683C2936A66A5450CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Astralion - Astralion (2014) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:F5129A10E63C0D8A3EDA3B22415288ED39E0A12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Avenger - The Slaughter Never Stops (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:354C5C7D0585CFC1293A4FFAA306EDC2F0791167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Ken Hensley - Free Spirit (1980) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:B2D0527E81D784F875FC11E6BEF9884411D65AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ Estate - Fantasia (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:80F21136ED478D6D6C0BE0496E65B6EA697AF65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ Elvis Presley - Elvis' Gold Records (Volume 4) (1968) [APE|Lossless]<Rock & Roll
 ```bash
 magnet:?xt=urn:btih:592ED1042337F9184FF1ADDEEC46218CC821C0AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +398,7 @@ VA - Stereo Rock Приложение к журналу Stereo&Video, №09 (200
 ```bash
 magnet:?xt=urn:btih:F4FB72E18652E90C911E8F08FABEF4D9F7A70744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +427,7 @@ DevilDriver - 6 Albums (2003-2013) [MP3|320 кб/с]<Groove Metal, Death Metal, 
 ```bash
 magnet:?xt=urn:btih:53F5B1690E054C6B2054CBDDC72BFEFBE729C94D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +456,7 @@ Machine Head - Bloodstone & Diamonds (2014) Japanise Edition [FLAC|Lossless]<Pos
 ```bash
 magnet:?xt=urn:btih:3D005C61E572EACBDA6D4BBC4C6D320441C88DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Night In The Opera (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:43D095427F5B1FBC2293F88CCBB0A758565D8C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fierce Tales: The Dog's Heart Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:1BC671622D925A6BFF72C161E50188EF05AF97CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Arizona Rose and the Pirates Riddles / Аризона Роуз и загадки
 ```bash
 magnet:?xt=urn:btih:92D813306A4FE46B1771A1A814EC256101DB568E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ LEGO Batman 2. DC Super Heroes (RePack/1.0.0.18994) [Ru/En] 2012 l Fenixx
 ```bash
 magnet:?xt=urn:btih:798D9189CE065F865330962C022CF5BC0B693648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Chicken Shoot 2 Edition 2012 (Р) [Multi9\+] 2012
 ```bash
 magnet:?xt=urn:btih:F2BF5884253EB778B68A502628F35257F442C90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

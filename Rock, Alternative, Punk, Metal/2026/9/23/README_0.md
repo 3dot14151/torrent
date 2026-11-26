@@ -22,8 +22,7 @@ CD1 - Riot 祭 2024 2024.7.20 (Sat) Club Citta':
 ```bash
 magnet:?xt=urn:btih:DD61931F81D9EE360B00B552EC419B9EEB46AA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blackment - Pandemonium Portrait (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 ```bash
 magnet:?xt=urn:btih:4B45D0C719B73F4BFE9ECFB763C8FEDD0AD7B97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Raunchy - Prisoner (2026) [MP3|320 Kbps] <Industrial Metal, Melodic Death Metal,
 ```bash
 magnet:?xt=urn:btih:A8C06E62E5DB4B3A26CFF0A7102C8A8BDD88B1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

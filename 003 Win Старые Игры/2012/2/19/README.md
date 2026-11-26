@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E2BD6BD97E91783B100BF82BF9A7DEC5E1E8C020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C89FBBD4004885870DE6EB6286FA17DBBDEB9E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clive Barker`s Undying [Ru] (RePack) 2001 | Pilotus
 ```bash
 magnet:?xt=urn:btih:0AC5548B98D7A8B88E41355A9497666C4E5D20A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Asterix and Obelix [En] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:FD1A27AD58E0D9F06D0C5A9A76733695B6E6A5BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Montezuma's Return [En] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A4249527AE23E022B1250BD646FBBE0DEB7B295C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

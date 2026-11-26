@@ -19,8 +19,7 @@ ChromeCookiesView - не требующая инсталляции неболь�
 ```bash
 magnet:?xt=urn:btih:DE995E059B5D48B33EEA3CA706F8BCAEC969E2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

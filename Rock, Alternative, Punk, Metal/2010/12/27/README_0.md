@@ -28,8 +28,7 @@ George Harrison & Bob Dylan - Sessions at Columbia Studio (1970) CD2001 [МР3|3
 ```bash
 magnet:?xt=urn:btih:3970C063E9192177350D551B72DCA66759916DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Widowmaker - 2 альбома (1993,1994) [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Scang - Сам себе враг (2000) [MP3|192 кб/с] <Альтернати�
 ```bash
 magnet:?xt=urn:btih:B36BAC8DADE6EBFFCDFF132F4EFCEE66E104FB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hank Marvin - Marvin At The Movies (2000) [MP3|320 кб/с] <Rock, Pop Rock, Ins
 ```bash
 magnet:?xt=urn:btih:73E9FDBC2CB15E47828F4705D4CFFA65DCBE4A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Made In Britain (2001) S&V #04/2001 [FLAC|Lossless|tracks + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:9590E07532FA44B51840258B6952193D6ACE2B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92B2CABC5645745A3DC79A5870E6AECF9C95131A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

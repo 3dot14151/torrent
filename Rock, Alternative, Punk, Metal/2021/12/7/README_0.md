@@ -22,8 +22,7 @@ Soreption - Engineering The Void (2014) [WavPack|Lossless|image + .cue] <Technic
 ```bash
 magnet:?xt=urn:btih:A1366A34A5AB98091BDA30DC45B87B774522F60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Forces United - Hits From Metal Musicals (2021) [FLAC|Lossless|image + .cue] <He
 ```bash
 magnet:?xt=urn:btih:796DB5517A7424BB1480BD8FF0AB8F2576C9B2CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Forces United - 2 Studio Albums (2020-2021) 3xCD [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:1C80B011C589A041687472721BB626881342B72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - No Ballads: Hard Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock
 ```bash
 magnet:?xt=urn:btih:AE15781885CCF130C5648197E43E827909CD6D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bloodstone - Fight For Jerusalem (1995) Japanese Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:F8336460F87F9B08A107FB3A07DDE9E9B112BC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Volbeat - Servant Of The Mind (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:BDD829E49EFD04E21D644FE3FE398F7E662532F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Famous Last Words - 3 альбома + 3 EP (2012-2021) [MP3|320 кб/с]<Post-H
 ```bash
 magnet:?xt=urn:btih:2C5892F868234D8827D3E5ED282EF4FDCBAE2F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

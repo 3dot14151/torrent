@@ -22,8 +22,7 @@ A4 Gotta Rock(   Читать дальше...   )Жанр: Hard RockПродол
 ```bash
 magnet:?xt=urn:btih:E18421F42ED375F675BE66EDD46BB02C87E3B9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

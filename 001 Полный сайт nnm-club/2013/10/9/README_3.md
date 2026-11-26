@@ -18,8 +18,7 @@ Toolwiz Care - это очень мощный набор всевозможны�
 ```bash
 magnet:?xt=urn:btih:CB82D616E2503A4105D22FF3FCD79DB26AF6124B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:212495A5DC83D6FD1007408E6107ABFCDAFA9558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:836C1265A5085BDABA245D598D0A6F1B57A4F274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Twothousandfourteen - Эротический календарь под назв�
 ```bash
 magnet:?xt=urn:btih:6436ABF0FB7937045BB87037A8C505335A43F4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Infix PDF Editor Pro единственный редактор PDF, которы
 ```bash
 magnet:?xt=urn:btih:359EB6D81B8D3E20CB231245D78F1BD815EC7E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84A50CD8D02A26937EF4BB1850A2F4A5A91AF6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ EmEditor Professional способен открывать очень больш�
 ```bash
 magnet:?xt=urn:btih:9D2D1203B7790BE37C516B2AFCF9B5C5931D2B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ VA - Московский Осенний Клубняк (2013) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:8BB507E962C242EB750288A43BE7C61B0119A3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Kaspersky TDSSKiller - это утилита для обнаружения и у
 ```bash
 magnet:?xt=urn:btih:42120742A9D922E8ABD88A5A152C633F7D621C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:23884758DCC4029A79E08534D1E4C519E4F8CED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ SpeedUpMyPC является удобным настройщиком вашей 
 ```bash
 magnet:?xt=urn:btih:84AB61B822DDC8A0E79BB113F1288A2AA6218D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Digital ArtФормат: JPEG, PNG
 ```bash
 magnet:?xt=urn:btih:7782874720623E762E512CF99643DF35822FEE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00FF0CF91D765F396071939BE017525E1CE5281F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ Espresso - программа для веб-разработчиков и веб
 ```bash
 magnet:?xt=urn:btih:DD8C660EFF1D3BCD4A4E3468B4505E1DCAF13513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ RonyaSoft Poster Printer — программа для создания и пе�
 ```bash
 magnet:?xt=urn:btih:93C4D753C4D814C8B8F1788B88ACFC377D667388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:835A2C396971A83F5873B0BCB31E979FF0BACFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03AED7CB5E2EA41E8826286A14AA3109EA23E092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ VA - Music Top 100 Hits Flame (2013) [MP3|224-320 кб/с]<Club, Euro, Dance>
 ```bash
 magnet:?xt=urn:btih:2F4300773A5BC2341556104A53A1A4792C2F57EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2C72FDC1B6A5D8E4ABCFC841EF2EC4A30B644B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ AppDelete работает и по сети, при этом использую�
 ```bash
 magnet:?xt=urn:btih:B42D6F3856BA597EEEBABBBF0A182E0A2E4FF771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48D766FA3FB952E3A4ADD3D9B0EFF65BB4A394A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Kaspersky Virus Removal Tool 2011 — это программа для лече�
 ```bash
 magnet:?xt=urn:btih:22DCAB27CF3535F07C584D4FBE4A9EBE6B583EA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Xee полезна как более мощная замена для предв
 ```bash
 magnet:?xt=urn:btih:8CF332C52A68431BD16A8CCD5173A75045BD6F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ Hard Drive Inspector – мощная, удобная и эффективная 
 ```bash
 magnet:?xt=urn:btih:EB8CB6BAD09378B06E4A83B96A9E5EC4CC475753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1705316C7A4B5CD7A09211072C32A6492DD58118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

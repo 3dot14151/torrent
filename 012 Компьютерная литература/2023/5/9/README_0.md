@@ -19,8 +19,7 @@ Narendar Singh Saini | iOS Developer Solutions Guide: Learn How to Create Stable
 ```bash
 magnet:?xt=urn:btih:02FA0563610484CD75685FA679B5F12A5E2D31B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

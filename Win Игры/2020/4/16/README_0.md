@@ -19,8 +19,7 @@ Sunwards — это сложная приключенческая игра ос�
 ```bash
 magnet:?xt=urn:btih:806874984655672AA72EF91C4935BE6A1CAA9C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ VA - Новинки сезона от русского шансона Vol.6 (201
 ```bash
 magnet:?xt=urn:btih:B0C0C00B996DED20CA6EA5B10AD5B014D0027662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA5711A877C450A3114EBEF4594B423269798B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A132DB29A5A878D65B8CE6F08708A8F71215B371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0FDFEAFD516F49FA210480B2EE8AF19C9010816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Computer Desktop Wallpapers Collection (10.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:860B2BE8EA6FF6726791FFC5A22DB707F4D64C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Dance M from ARTMKIss v.1 - 4 (2012) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:8A51E90A82380D74C4EAFF858528C255D7F3DC1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Macro Wallpapers (10.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E98E760215FFE66BB12C016C8AFEB6A61F47BE2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Evadam - Jiva (2012) [MP3|320 kbps] <Metal>
 ```bash
 magnet:?xt=urn:btih:B30BD418A7427EC33B45405B177D40937EA00D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Kenworth and Peterbilt (10.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:CD809A967ECD22F36F2D2F3A7A2EBF8E0BC6DD4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ VA - Дави на газ! (2012) [MP3|128-320 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:DFBC351C1C541A99C23671BB1BC6681427D9B241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ VA - Choose Ur Way (2012) [MP3|320 кб/с]<Ambient, Chillstep, Dub Techno, Drum
 ```bash
 magnet:?xt=urn:btih:A1C731D8C48FF9FA960E9613C2D6651E4E5A5E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ Marc Atmost - Versatile + EP (2010-2011) [MP3|320 кб/с]<Ambient, Electronic, 
 ```bash
 magnet:?xt=urn:btih:6DB6085A1D1A8BC3C6A444F343C92535AE492CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ Warships Wallpapers (10.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:594C370188285E0FC624B7821D49ED8F80ED741E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ VA - Зимний Шансон Года (2012) [MP3|256 кб/с]<Шансон, P
 ```bash
 magnet:?xt=urn:btih:35A8A05C15C5730B339A7ED420C042CA0195A759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4331CB9CB3D6CD1E8A4A8B4D7E1CB21F17D621AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ Winter Wallpapers (10.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:EC07C5C28F42970889E694B1BAB82822A23E84D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F1057C8764F5C6A604CA696FEE0E3268C3B50C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Wallpapers Sexy Girls (11.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:A9EF3DFAAE1E8C8490F2CA4E8D942F854EB94998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F366D1F29BFDE19A4546B5DC7DCAEEF1FB20EB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08AD9432C6C619F87E469DDFD7FB04FCD8318800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ Atom Willard - DrumsПеревод: ОтсутствуетПродолжител
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ HQ Wallpapers for a desktop (10.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E921E0C892AF8CCFF959B322D4CE619B3A1A3361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:557862363BE5C0D605A1CD5368D9CC594AA9D208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ VA - Новая Блатная Лирика 12 (2012) [MP3|320 кб/с]<Шанс
 ```bash
 magnet:?xt=urn:btih:799438E5DF7F6D49A69BC3DC34CC73E63AB978DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ VA - Лучший клубный сборник Vol.4 Зима (2012) [MP3|128-3
 ```bash
 magnet:?xt=urn:btih:E88CA702617FFCB9132EA5B7A20E94A25C9EBFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +727,7 @@ Arty - Together We Are 024 (06.12.2012) [MP3|320 кб/с]<Trance, Progressive Ho
 ```bash
 magnet:?xt=urn:btih:CE4AEB6FB967E19746376D79B8655CF8A1C7F56D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

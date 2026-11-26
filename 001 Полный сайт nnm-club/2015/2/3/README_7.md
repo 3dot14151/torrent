@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:819DCBCD0CD687D65CAAD8139C95281B678CAD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD68445A2EFE72B0CAD21D0412FFFDFB7B7C37F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Demo, Split:
 ```bash
 magnet:?xt=urn:btih:2CE1D93DE2C52E7958AFDB81E638B18CE42F51A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68A0DD8058F0595FD29EA8CC63B66A8AB7C72B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7702B6C351DA9DF1ABE36250171EBDC938CEEFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFDFD87AD27520A4A5D4DE145B086CCE63B12195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ OAKE - Vollstreckung (2014/RM 2013) [FLAC|Lossless|WEB-DL]<Darkwave, Experimenta
 ```bash
 magnet:?xt=urn:btih:DD7A73DB6C4AB00EF61CE403628F089F2E6B8397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ VA - The Gallery Pres. Re Generate (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7129B1273228607072CA4ECE50EAA57EEF58E0BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Milieu - Sadhills (2010) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:7E7EF6523BE96A165B4C6B548F52B002DB29135C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ VA - Impulses (1994) [FLAC|Lossless]<Jazz, Swing, Bop, Hard Bop, Post-Bop, Vocal
 ```bash
 magnet:?xt=urn:btih:6D5E3F0345E091A51F14BF6C56FA167B82E77238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Comaduster - Slip Through (2009) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Industrial
 ```bash
 magnet:?xt=urn:btih:D28C80E58F2DCFB67D868A3804BA28430FE0C7F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ VA - The Best Of Stunt / Sundance Records Vol.4 (1996) [FLAC|Lossless]<Jazz, Pos
 ```bash
 magnet:?xt=urn:btih:55ADA7510CEA6D8840B74F31BDB6F291200B12F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Sammy Davis Jr. - What I've Got In Mind (1993) [FLAC|Lossless]<Jazz, Vocal Jazz,
 ```bash
 magnet:?xt=urn:btih:071959C07F364B920D1EB1B711C9E9528ECAA540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Night Terrors of 1927 - Everything's Coming Up Roses (2015) [MP3|320 кб/с]<Al
 ```bash
 magnet:?xt=urn:btih:B6EEC06ED2E8C77DD9B39EC302C8E7546F29A3AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Royal Bliss - Chasing the Sun (2014) [MP3|320 кб/с]<Alternative, Modern, Hard
 ```bash
 magnet:?xt=urn:btih:04584D913D7697A14BA464EA639DBA87A826D6A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1E37B2585FC26D42AA7C0AA90985D9808B59650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12F808821BE28024BE98421C09BB8D3EC15489B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Casiopea - Answers (1994) [FLAC|Lossless]<Jazz, Jazz Fusion>
 ```bash
 magnet:?xt=urn:btih:07FA06E090C08A31E426BC7D177C03FB95AE0E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ All We Are - All We Are (2015) [FLAC|Lossless]<Indie Pop>
 ```bash
 magnet:?xt=urn:btih:DD552C84ECAD302A8F14EC289FABD7163D875C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ One-Way Mirror - Capture (2015) [FLAC|Lossless|WEB-DL]<Modern Metal | Nu Metal |
 ```bash
 magnet:?xt=urn:btih:B25E95E8D2AA65936EA611FD5BD7F7755698F441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:5FC79BDF79E64E2E54A47102F5528449A9A56B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EE530B5608F6D5D72A5153250970A64DC4250ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ The Carbonfools - Poisoned Goulash (2004) [MP3|192 кб/с]<Alternative, Electro
 ```bash
 magnet:?xt=urn:btih:0D31F54692F9996E3470811EC456FA8A96617EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ Adrenaline Mob - Dearly Departed (2015) EP [FLAC|Lossless|WEB-DL]<Heavy Metal  /
 ```bash
 magnet:?xt=urn:btih:DBEF7C2C322518C8357C42868139F9D35B6D158E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ABRACA - Imagic Games (2016) [Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:93CD81C269AE325AC7BC1B9A548446ECB79608E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pixel Privateers - тактическая ролевая игра, в котор
 ```bash
 magnet:?xt=urn:btih:B723E4706B56036DB14F5CDB83DDFDD12F860011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SHENZHEN I/O – это достаточно сложный симулятор, 
 ```bash
 magnet:?xt=urn:btih:97C389F3C595BA2B75C2E1AD5C7D87E42D7106DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ULTIMATE MARVEL VS. CAPCOM 3: Marvel и Capcom объединились, что�
 ```bash
 magnet:?xt=urn:btih:2D79F0AB262BEDAD3147BBF59ACBE91BE7171871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SaGa Frontier Remastered (2021) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:D35F019C5F0F3C2EA17A9299F0E419EAF159B224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Comedy Баттл. Суперсезон. Выпуск №7  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:E9B41A4BE2324692581D9656799F08E5507037A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Blood Of The Martyrs - Completionist (2013) [MP3|320 кб/с]<Deathcore, Metalco
 ```bash
 magnet:?xt=urn:btih:5691E99C595ABC830EA334C7878D348A64DBC459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Nibiru - Eternity In Me (2013) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:1FAF0BD25394F64FF545750CA48FB4B3A135345E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Winds Of Plague - Resistance (2013) [MP3|320 кб/с]<Symphonic Metalcore>
 ```bash
 magnet:?xt=urn:btih:3D6D1A87BAD91888092E9FEE3A4C18703A011785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC9638759DE122504E789D1C5D30ADBEE51F5677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Honour Crest - Spilled Ink (2013) [MP3|320 кб/с]<Metalcore, Electronic>
 ```bash
 magnet:?xt=urn:btih:575706B19C7B135D4256FA99D3C3E24ABB98A09A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:829F44784256F06006A2371504DBF19C3DD8813A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ Dirty Woman - City Of Sins (2014) [FLAC|Lossless]<Heavy Metal / Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:C7131907404A620B341BBB8684EFCF61443334B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ Sirens & Sailors - Skeletons (2013) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:F5F9BF0465D1034EE8403859CF191ED6976FB2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ K-Di - Страшно смешно (2014) [MP3|320 кб/с]<Hip-Hop/Rap>
 ```bash
 magnet:?xt=urn:btih:5314F2FFEA80B088B194804B74144660446532BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ Oceans Red - Hold Your Breath (2013) [MP3|320 кб/с]<Post-Hardcore, Electronic
 ```bash
 magnet:?xt=urn:btih:CEEDE633D2D5B577805D4C5D9A74D568037DF08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +395,7 @@ VA - Catwalk Anthems 2014 [MP3|320 кб/с]<Electronic, House, Deep House, Nu Di
 ```bash
 magnet:?xt=urn:btih:9171F165D7CF6B6081329821178B2D45181EE1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B22D057256DCC8203590FB3D6C644EC633035318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ George Duke - Keyboard Giant (2007) [FLAC|Lossless]<Jazz Fusion, Funk>
 ```bash
 magnet:?xt=urn:btih:62EFFB4A16BBDFC260F5F8D8F8B98A401DF8EB96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D4B455B739610F97D55985A8D00E566DEC897AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ Inca Son - Paraiso Vol. 11 (2005) [MP3|192 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:23D50BB175D06BFBEE436B431BF2DCEA123165C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ VA - Ibiza Beach Club: Cafe Do Mar (A Chill House & Lounge Session) (2013)[MP3|3
 ```bash
 magnet:?xt=urn:btih:F6650DFACE94E28AF1D8410FB0F7375E94697484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38F219D473B671DFEF521F239011FE8BCD021910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ VA - Молодежная Тусовка. Special Edition (2014) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:66F7947A647CADB4395F38E92CE85D3BE9538E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ A Broken Silence - All For What (2009) [MP3|320 кб/с]<Alternative Rock, Rapco
 ```bash
 magnet:?xt=urn:btih:BACD199CA64BD31136FCB0F8BF91B49FF713BE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FC8C75C6D78840787703F35C1AA16E709B99584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4399A43A3B0571EE48D99F77C3A6EB1221ADDA3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10DC7BF452DF70EC9B5169D854813E639B2815BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ The Franklin Electric - This Is How I Let You Down (2014) [MP3|320 кб/с]<Indi
 ```bash
 magnet:?xt=urn:btih:10DD28BBA1685647E892DC9F7501CD9B52C26425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

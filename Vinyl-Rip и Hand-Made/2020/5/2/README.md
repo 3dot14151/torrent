@@ -22,8 +22,7 @@ Gordon Jenkins - Johny Mercer(   Читать дальше...   )Жанр: Jazz�
 ```bash
 magnet:?xt=urn:btih:F460D95A1A04D01DC062104C8D7FDD41FE675D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

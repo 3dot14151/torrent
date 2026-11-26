@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A149455D90C18CF86D9C4976E96BE76BE57492B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Once Upon a Time - сериал в жанре фэнтези, действие �
 ```bash
 magnet:?xt=urn:btih:2E1B743A05162EB7ECF2AA11472EDE63ADD6E2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

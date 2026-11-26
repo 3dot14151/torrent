@@ -22,8 +22,7 @@ A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 И Утре Е Ден • И завтра будет день(   Читать
 ```bash
 magnet:?xt=urn:btih:26A0EF948F1A68E406BCA6542E1D05245B67CB82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Le Secret Farida 3:17(   Читать дальше...   )Жанр: Synth-pop�
 ```bash
 magnet:?xt=urn:btih:2A20B056CFF437D1DA437C695FAF5CAB9CAD60C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 I Can't Live With You(   Читать дальше...   )Жанр: Pop Rock, 
 ```bash
 magnet:?xt=urn:btih:ADA16C759D651387337931A76B26DAACD737D873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

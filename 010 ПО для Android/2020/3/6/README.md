@@ -19,8 +19,7 @@ KitchenTimer 4.2.1 [Ru] - Кухонный таймер
 ```bash
 magnet:?xt=urn:btih:BF16750CA12232E14E67CFF436F0156025AD0C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DF733E600225D8C572E784771B6588ED921247D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:552060E36C3965B4792C0072621F89D84535F636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Marcos Mateu-Mestre | Framed Drawing Techniques: Mastering Ballpoint Pen, Graphi
 ```bash
 magnet:?xt=urn:btih:DCD4F9622E29F6EC552D3C881531944A9AE11F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

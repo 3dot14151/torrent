@@ -22,8 +22,7 @@ Java нельзя понять, взглянув на него только ка
 ```bash
 magnet:?xt=urn:btih:3E4F14DD3A95925694C7EEB4F7F9446CF64A96FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

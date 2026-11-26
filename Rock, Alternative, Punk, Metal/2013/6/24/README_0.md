@@ -26,8 +26,7 @@ Officium Triste - Mors Viri (2013) [FLAC|Lossless]<Melodic Doom / Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Bono - Lonely Planet (2003) [APE|Lossless]<Pop-Rock, Soft-Rock, Pop-Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Queensryche - Queensryche (2013) [MP3|320 кб/с]<Heavy/Power/Progressive Metal
 ```bash
 magnet:?xt=urn:btih:8D77C0EF4360CC287FD81032595230259D54B69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Electric Light Orchestra - Live At The BBC (1999) [FLAC|Lossless]<Rock, Progress
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ August Burns Red - 9 Альбомов (2005-2013) [FLAC|Lossless]<Metalcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Electric Light Orchestra - Zoom (2001) Remastered /2013, Frontiers Records/ [FLA
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:97CCA34C13508E93D207851BD563C901EEEAEBDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

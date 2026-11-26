@@ -28,8 +28,7 @@ Satan`s Host - By The Hands Of The Devil (2011) [MP3|320 kbps]<Black metal>
 ```bash
 magnet:?xt=urn:btih:96292A440968CDD1E18DE362D9A7DD55BE2A5EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Sahara Rain - Eternity (2011) [MP3|320 kbps]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:35154AB20F084A21CF56DC6A7BAE940F12468D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Demon - 12 Альбомов (1982-2005) [MP3|128-320 kbps]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

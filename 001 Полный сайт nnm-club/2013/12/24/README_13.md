@@ -28,8 +28,7 @@ VA - Enhanced Essentials - Volume Six (2013) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:AEE41BF7171FDF8FAC1B7FB8ADFB66C15462DFA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Getting Loud Uplifting Angel (2013) [MP3|320 кб/с]<Trance, Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:E04FFAE44743DB264A70ECA48A602DF8FFFC4847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Trancern 2013.26: 3LIME Official Compilation (2013) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:059CB4508BAE2BA7164C8CC1ECE0C43F30E55247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Love Cream - First Taste (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E6DA91A9FD47A1DACBBFF67213F5F9AB2BB61C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Deadly Tide - 8th Deadly Sin (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FBDA229F7B0C21A141EEAD6A79670780E89C5D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ VA - Клубные Новинки Vol. 350 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:3CE9D9983E6434A7F837142838FCAEAE7094BE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Solar Soma (Ex-Projected Twin) - So Much For Style (2013) [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:DB7C324210BE6A8B78026A9A9C067C82D1D76293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ VA - Клубные Новинки Vol. 349 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:18450F6F2012DBF37C9AD091EB3E8D3E1231E1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ VA - House Your Pool Party (2013) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:D34D8DF454B65F9277C07B86C2173CAF0E48CA06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Dawn Lights - Exaggerate the Distance (2013) [FLAC|Lossless|WEB-DL]<Alt. Metal |
 ```bash
 magnet:?xt=urn:btih:80724D194038F7A1D109F92E14985467C9D2EF03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ Avizura – Lucky Star EP (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F75E30BEB10B3B2B2D2155E82F79BDF306FD91EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +391,7 @@ VA - Unsung Heroes 3 (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:8C2299537006DB8554705975F7F3BA1E0B6BC2F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +425,7 @@ VA - Hope Recordings Presents XV (1998-2013) (2013) [MP3|320 кб/с]<House, Pro
 ```bash
 magnet:?xt=urn:btih:CAB410146CE241833545B06E0166BE8AF278C8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE2CAE683E9AE0854E7968EEDE0B6DBFEF4D11B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +476,7 @@ Micon - Song For Reiki (1999) [MP3|192 кб/с]<New age, Relax, Healing>
 ```bash
 magnet:?xt=urn:btih:38D2C17198957C460C2822B22E78B33D8584669B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2A2E4111F1197AEE881A15A00591511FE7A44FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +529,7 @@ Psycharge - Unknown Existence (2013) [FLAC|Lossless|WEB-DL]<Darkpsy, Forest>
 ```bash
 magnet:?xt=urn:btih:6AD781E39D9301301160DD782992A01FB6256818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +563,7 @@ VA - Клубные Новинки Vol. 351 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:7D3701B7D21FF3A34430FE9FEACCBE907DBC3B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +597,7 @@ VA - Русские Новинки Vol.137 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:E21C87124ED0BC2C41675959576F9F44AD1A7CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +627,7 @@ Northern Light Orchestra - Ring Out The Bells [EP] (2013) [MP3|320 кб/с]<Melo
 ```bash
 magnet:?xt=urn:btih:CB5D674748A0BCF6DACB0B0D594031894001EA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +661,7 @@ Can Atilla - Idea: Trance and Lounge (2013) [MP3|320 кб/с]<New Age, Downtempo
 ```bash
 magnet:?xt=urn:btih:4DC647FF5642625F7CB255F8763A7BE0962EF366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +695,7 @@ Lori Mechem - Return to Ipanema (2009) [FLAC|Lossless]<Jazz, Bossa Nova>
 ```bash
 magnet:?xt=urn:btih:74527E16DBEFF0C8C0754117942EC21D0E97725D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF58F9095BC8AA41435F4DA55AA1A03E4E458B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +754,7 @@ Black City - Fire (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3DF23957A07145842CA8E2DA22E2B42F6BB257E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -812,8 +788,7 @@ Xmas Lounge Project - Christmas Chill Out (2013) [MP3|320 кб/с]<Christmas, Lo
 ```bash
 magnet:?xt=urn:btih:EB4CE61E0903F80A9367D7270743BDBAE2E21518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -847,8 +822,7 @@ Elegy Of Madness - Brave Dreams (2013) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:18671E971A42FA80CDA556426AC5DA7B977B8070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

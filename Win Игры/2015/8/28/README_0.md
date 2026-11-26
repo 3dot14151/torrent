@@ -19,8 +19,7 @@ Nom Nom Galaxy - это приключенческий экшен про исс�
 ```bash
 magnet:?xt=urn:btih:11B60247A7ACC2984482246CC9DCA083A13DFA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Valdis Story Abyssal City (2013) [Ru/En] (1.0.0.25) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:C12635D8B4C476683823EA8E68C03B7C3A88895C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Invisible, Inc. (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:CB3EF6849C71137B772CA59F0B1249651CC7AE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Calvino Noir (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A20A6EEBEA8B13A0E740AF41DAE2E88B0E1394CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Calvino Noir (2015) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:D2E124DA6D29812CD45CB22CB8F63D1499695E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

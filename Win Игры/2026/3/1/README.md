@@ -19,8 +19,7 @@ High On Life 2 (2026) [Ru/Multi] (Build 21897943/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:82095C3EBA5315E7B693952663D9812A870288BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ High On Life 2 (2026) [Ru/Multi] (Build 21996152) Repack HardwareMining
 ```bash
 magnet:?xt=urn:btih:BD1F3A09D78E760987828DD65FD60B0642A8D329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.1180.1) License
 ```bash
 magnet:?xt=urn:btih:53D56E699FB1CEA1927E89B04705F68B0AEB991B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alan Wake Remastered - в этом отмеченном наградами ки�
 ```bash
 magnet:?xt=urn:btih:E75487C4C49546C2E0A8CF81C37AF19113D91830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Scott Pilgrim vs The World: The Game (2023) [Ru/En] (Build 10135169/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:32CB84CCF244272E38CCD6225136CE099652D01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dark Light - захватывающая игра в стиле Souls, отлич
 ```bash
 magnet:?xt=urn:btih:145FACFC1684C724CEC6F733B9A814604FA4EBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Alan Wake Remastered предлагает полную версию игры, с
 ```bash
 magnet:?xt=urn:btih:2333BEB10E74FA19FBA13973801657B50053B4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Harold Halibut - созданная вручную нарративная игр
 ```bash
 magnet:?xt=urn:btih:246DF8E731272775017E8BCD3A96126BE55FB091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Strategic Command: American Civil War - долгожданное продолж�
 ```bash
 magnet:?xt=urn:btih:B36D5AD3E7735AB6671BB3B9C6EC9E8DCB6F8353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Slave Zero X - это биопанк-экшен, выполненный в по�
 ```bash
 magnet:?xt=urn:btih:382C1C666C812D1B3347D83B657542EBBFE5D331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Europa Universalis IV (4) (2013) [Multi] (1.37.5.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DF3F5DB55D643765903C37640F5DFB26948C2F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Welcome to Empyreum - видеоигра, в которую можно буде�
 ```bash
 magnet:?xt=urn:btih:8413B5E5B6C2681A9814814599C59253431D5A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

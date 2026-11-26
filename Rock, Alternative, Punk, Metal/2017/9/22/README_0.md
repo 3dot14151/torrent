@@ -22,8 +22,7 @@ Redhouse - One More Squeeze (1976) [MP3|224 Kbps] <Hard Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:85662DBABB12B343DDD4C910432D9C7B2813525C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ After Tea - Jointhouse Blues (1970) Remastered, 2002, Progressive Line [MP3|320 
 ```bash
 magnet:?xt=urn:btih:B2D84668976D6332CAE4C313A618FD5E011058EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sounds Of The Eighties - The Mid-'80s (1996) [FLAC|Lossless|tracks + .cue] <Vari
 ```bash
 magnet:?xt=urn:btih:33C585925DAD32BF382CEBBBA0371A4D1FC18058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Belphegor - Totenritual (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:81B2F81AB76F493AFAAFCF5C23171A5408566D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Van Morrison - Roll With The Punches (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6A3ACC8E914775F4819AF536D6DE5D15F9CFC6C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

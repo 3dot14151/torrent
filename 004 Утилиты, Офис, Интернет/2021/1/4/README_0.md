@@ -19,8 +19,7 @@ MemTest - это тестер оперативной памяти, работа�
 ```bash
 magnet:?xt=urn:btih:0C37E4769FE427EDF7503A20BAB64D7B3911AB99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

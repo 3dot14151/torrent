@@ -22,8 +22,7 @@ Kayak - Out Of This World (2021) [FLAC|Lossless|tracks + .cue] <Rock, Progressiv
 ```bash
 magnet:?xt=urn:btih:31B777AACD5467F2D72B2FD68A65CB716D12C74E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Van Canto - To The Power Of Eight (2021) [FLAC|Lossless|image + .cue] <A Capella
 ```bash
 magnet:?xt=urn:btih:00E37EB7357FF95C3799EA5A9977A6EA76C4253B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Converge - Unloved And Weeded Out (2003) [FLAC|Lossless|image + .cue] <Chaotic H
 ```bash
 magnet:?xt=urn:btih:41603FB2C0A591248B761D8A5D585DFEF3356F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Brian Bennett Band - Rock Dreams (1977) [MP3|320 Kbps] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:9A92737CCEE839C7501F52A1192F08A6E3094B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Desaster - Churches Without Saints (2021) [FLAC|Lossless|image + .cue] <Thrash M
 ```bash
 magnet:?xt=urn:btih:96B73563155035AD79DF21E3A475528F195CC7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:514A29E0ABCB611F38A9D389E5F503AB3AF81CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Heavy Raid - Железный марш (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B42C3E010C45D94131D90E23C00C828E640F9F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

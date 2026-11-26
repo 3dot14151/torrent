@@ -19,8 +19,7 @@ Password Cracker 4.35 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FF78C9A73F54406ECCB1468102D06D9D32886F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

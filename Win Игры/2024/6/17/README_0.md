@@ -19,8 +19,7 @@ Q.U.B.E. 10th Anniversary - переиздание культовой голов
 ```bash
 magnet:?xt=urn:btih:1177FF3F077DBE5A551868310F886794B56EE7C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B21BC6314DBF6467F3B2697D563F72BCBBC76B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DOOM Eternal от id Software – прямое продолжение хита D
 ```bash
 magnet:?xt=urn:btih:6B886E22CBEB80B183C83166CB976ECE4DAB911C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Whacking Hell! - безумный 2D-шутер с видом сверху и э
 ```bash
 magnet:?xt=urn:btih:BACB3D7E7F919C35014AA2E2930FD88ACF625284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cosmotroid – постарайтесь как можно скорее поки�
 ```bash
 magnet:?xt=urn:btih:56915E88ACFAC5060BC48499A242D12A073BBA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Pinball M (2023) [Multi] (1.0.4/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D8D967D8781E7CB2BC818C42F90B94842E289759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Loser Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E0D6220D757AF071620038592E10CBA5CEE606A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ BYTES: The Reverse Tower Defense – это вариация традицион�
 ```bash
 magnet:?xt=urn:btih:6AF11F9DB4BC93DED0D1745601FB2782C5F40A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CC8570C1CF17FFB8B7E52A3478D74587D865224D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

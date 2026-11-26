@@ -19,8 +19,7 @@ Nevertales 3: Smoke and Mirrors / Несказки 3: Дым и Зеркала (
 ```bash
 magnet:?xt=urn:btih:782F5ED882777284F099508D708774A8C2022B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

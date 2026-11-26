@@ -22,8 +22,7 @@ A3 From Me To You(   Читать дальше...   )Жанр: Beat, Pop RockП�
 ```bash
 magnet:?xt=urn:btih:43605E3D08B535E30D60EEEFB531B46D092426FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A3 Sgt. Pepper's Lonely Hearts Club Band(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:ED79CAA200AAA39DE6A04C1F3E3CB96C0EB7126A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

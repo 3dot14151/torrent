@@ -22,8 +22,7 @@ Periphery — американская группа, играющая в жан�
 ```bash
 magnet:?xt=urn:btih:BFC09D39B5C765154131DE943D3A59AD10BBD084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Five Finger Death Punch  (с англ. — «Смертельный удар
 ```bash
 magnet:?xt=urn:btih:83FA8ECD7604578E00BFA8BA1886F0A447926B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

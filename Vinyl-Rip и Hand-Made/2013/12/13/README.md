@@ -24,8 +24,7 @@ B3  Nowhere  (6:04)Жанр: Progressive Rock/Psychedelic Rock |Продолжи
 ```bash
 magnet:?xt=urn:btih:9B41F2EFC354E35CB2BD69D3CD1F12E62B864F51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

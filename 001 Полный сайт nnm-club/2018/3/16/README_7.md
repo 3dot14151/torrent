@@ -22,8 +22,7 @@ DJ Nikolaevv - Melody Of Leaving Summer (2018) [MP3|320 Kbps] <Trance, Uplifting
 ```bash
 magnet:?xt=urn:btih:0FFB40DCF976EED70AF6782EB01B42ABFDD74953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Eyephone - Discography 7 Releases (1995-2016) [FLAC|Lossless|tracks+.cue, tracks
 ```bash
 magnet:?xt=urn:btih:036CD5D61EFB01BCE19169E8E817D09829D4EBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ The BBC Big Band - Harlem Nocturne (2004) Galaxy Music [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:2153D6FF0D87F316DF4524ADC96AB99F0D88C7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ D. Batistatos - Sides (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <D
 ```bash
 magnet:?xt=urn:btih:ED8C4AA4760B4E173D0A5014FB880CF0D5F8C6EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Neotrance Selected Works [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Neotra
 ```bash
 magnet:?xt=urn:btih:876E9994534FC2E3C2CD6B3E5AACE69ED1E228F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:D8972D687D53EC3EB195D25D4BF9EEC977F2D05A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0BF10C0681645BD6CEEFD021EAE8B368AE440C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ VA - Easter Chilling Breakfast (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:712CCBA3117057D200B1A11DF44EBDCABB97048F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Swingle Singers - Best Of The Classic Years (1963 - 1968) 2003, Helicon [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:0826A2BE089BFFA6D2417FAEF8123C68C35886AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ MX5 - новая версия веб-браузера от Maxthon для Window
 ```bash
 magnet:?xt=urn:btih:4F5F4C0F8692F3DD146DC3B6EB5529FCB5D4E5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:629256B5DBED9296CECBC49B3354FE6B52CC1466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Alapastel - Hidden For The Eyes (2018) Slowcraft Records [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:149AF7BD0D07A6BC0C6F9ED9D13796B5E76395C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Transmit представляет собой отличный FTP (File Transfer
 ```bash
 magnet:?xt=urn:btih:276988FCBFB1CBFDAFC036B1936B112FA82FC327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Graeme Keavney, Geoff McGarvey - Dawn (2018) [FLAC|Lossless|WEB-DL|tracks] <Mode
 ```bash
 magnet:?xt=urn:btih:0A081BFFD14C28D7B5DE9F5BD1DA0BEA66A51B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:34C51ABB595087743369F1FCC256054E0591F4B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Silk Cords - Chill Out And Relax (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:4820C94FEC82BC3F706201183C1C8B63F0C0ADA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9CEE46FBF8C0B70529332C979CCBEE16FB4F290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ VA - Lounge Bar New York Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:5F6201A24748171C5361F9A6FDCE4674D21C209C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ Flyers - You're My Lady (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:EB904D809746C4D634BAF50F0AE65494D58EF8F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42DA698792A5E9778F4CE60F23403C46BD52ACC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDD6C492E471A1C1F414D415CB20F5BE205E08EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ Miсhael Sсhenker - А Decade Оf The Mad Aхеmаn (2018) 2CD, Compilation, Ja
 ```bash
 magnet:?xt=urn:btih:ADEE7F7C3347574EB90610399103715437A14374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Geoff McGarvey, Graeme Keavney - Dusk (2018) [FLAC|Lossless|WEB-DL|tracks] <Mode
 ```bash
 magnet:?xt=urn:btih:FD0A4DC83A98AE4BFE4B00E843D4EAA1393C0112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ Ulla Haesen - Rio (2018) [MP3|320 Kbps] <Jazz, Bossa Nova>
 ```bash
 magnet:?xt=urn:btih:10E5F71D3FA1CCC6F2BFC15DF73F82F53D76B9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:920BA08C69CDCC433C615868EA4492710E54F28A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:656793B24CE2DC846B98DD30FDCAF927890E16C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Grand Theft Auto: Vice City Long Night Zombie City (2005) [Ru] (1.0) Mod Hellfis
 ```bash
 magnet:?xt=urn:btih:A4D2AB8258E6A92CD5C7D8B12AD1B9E52984C514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

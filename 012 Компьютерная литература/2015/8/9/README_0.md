@@ -19,8 +19,7 @@ No matter how much experience you have with JavaScript, odds are you don’t ful
 ```bash
 magnet:?xt=urn:btih:3E5883CFAD70E5D8E39FD75835CF1C151A4826D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ED46CA8006F2BA09328BAB31144CBBE84B41293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

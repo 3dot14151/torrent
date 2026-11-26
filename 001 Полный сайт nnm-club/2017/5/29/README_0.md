@@ -21,8 +21,7 @@ Helker - Firesoul (2017) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:B05751CC306DC4E2577E9310BE661611BB46232A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Gato Barbieri - The Shadow Of The Cat (2002) Peak Records [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:998219E4116BF5FBD6689587A584FE9D1B96F7F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16ED2B6C0D11A31E22E3629AB30BD0F99795F711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Lounge Traveller Vol.1: High Class Chill Out (2017) [MP3|320 Kbps] <Downtem
 ```bash
 magnet:?xt=urn:btih:4D97A3D7F63492D4A007CC138E189F3FAD36B170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Geisha - Die Verbrechen Der Liebe (2008) [FLAC|Lossless|image + .cue] <Space Roc
 ```bash
 magnet:?xt=urn:btih:053FC7193B6FF94411F0A701A87650C323DA314A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ MediaTrans фокусируется на одной простой функци�
 ```bash
 magnet:?xt=urn:btih:32AB59D300D83318496737369FBB8191F3F41949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Strandgefuehle Vol. 1 (Leichte Sommer Relax Sounds) (2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:2B94F0F1D47D0D641E1CAAB8C9B517374B2FD38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Zentimo xStorage Manager - (аналог USB Safely Remove) это менедж�
 ```bash
 magnet:?xt=urn:btih:A6D78F3C6AE431517E148DC6D7FCA89B93651716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Vampire - With Primeval Force (2017) [FLAC|Lossless|image + .cue] <Death Metal, 
 ```bash
 magnet:?xt=urn:btih:D69842545E5DDE6BC7B596EB9FEE3236D73AAFFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - Sexy & Chill Feelings (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:FF67C045AF98479890E502091C50F20711973157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ VA - Best Of Progressive House Vol.04 (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:BD3C037B72F6899A39D2BD51055AB41B2DDBB6C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Nalle Pahlsson's Royal Mess - Royal Mess (2015) Special Edition [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:A64B09A8CC47593FD8E786ECCB0673D22D9430A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:974DD7C35B6B77A7983A8D30D97D01EA5E678131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Disbelief - The Symbol of Death (2017) [FLAC|Lossless|image + .cue] <Sludge Deat
 ```bash
 magnet:?xt=urn:btih:99D02245B93E19CE88563C5C2B7B6B8F21CE2764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Dogs Of War - Dogs Of War (1977) LP [MP3|320 Kbps] <Electronic, Space-Rock, Disc
 ```bash
 magnet:?xt=urn:btih:F2F6EAFF09F2DF9F472852851CBA71942D9CF06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Ascended Dead - Abhorrent Manifestation (2017) [FLAC|Lossless|image + .cue] <Dea
 ```bash
 magnet:?xt=urn:btih:022F261B709B89CD4B9C2615FF82049434019BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB91209F03427F6298E4E8C996E7CE579D0A49CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE93E35B4B6A49F72D2C2669664CD7C3A0E70F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65239E607CAA876836054A5AB2A828B4C90B1552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Wired All Wrong - Break out the Battle Tapes (2006) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:69D1908DBC61DBD45765A1448A3635AD9222DD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8412408CE5EEEDF76C6B36C8043E2E67BDBA792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB9FC487628EDFD1BC327B96F2B91A76096D8ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92F61E99B1157556B9FC4B90F166E741D8F24821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA2715CBCEF24A79DC4BD0BAB2C011665DE6F0F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ VA - Jazz Dictionary S-1 (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:BE9BBA589298B564159C50A79D9908463E9B7A4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ VA - Jazz Dictionary J (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:29137B8C6968FE49C144C259F6E7718381C82F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

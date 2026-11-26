@@ -19,8 +19,7 @@ aCalendar+ Calendar & Tasks - Простой, но очень качествен
 ```bash
 magnet:?xt=urn:btih:610093FD82741C1927FFAA6DCDE88B32EFE6C40C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A97AF91933F8BECB097691E77253948EFC3B564F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Genius Scan+ - PDF сканер v6.1.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:F444C495A4B34A515DAA8182A641B14012A48275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

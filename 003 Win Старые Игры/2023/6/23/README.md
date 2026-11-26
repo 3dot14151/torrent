@@ -19,8 +19,7 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 ```bash
 magnet:?xt=urn:btih:24D92F7A47C51AA704EB5713FF3AB9207E954B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

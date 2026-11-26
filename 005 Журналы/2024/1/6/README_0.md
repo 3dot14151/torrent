@@ -19,8 +19,7 @@ Woodsmith — журнал по столярному делу представл
 ```bash
 magnet:?xt=urn:btih:E3A2A9AB60D3B03C947E0CE8FFC90A9D3E6487DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Woodsmith — журнал по столярному делу представл
 ```bash
 magnet:?xt=urn:btih:24E6332FD3AB93E6AB0A935A96D3A75CCBD31CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Woodsmith — журнал по столярному делу представл
 ```bash
 magnet:?xt=urn:btih:82BBC8C9B97C4CE067F9FE1A545FB53C50C6D17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

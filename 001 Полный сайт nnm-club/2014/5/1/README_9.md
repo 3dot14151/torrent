@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Tor Browser Bundle 3.6 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:3DC63785C68E44EB891A5FB451A3A298CA7FA6D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ PCRADIO 3.0.8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:32068D245752E2030FC3AEDC6DF868C222EE39CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ ACDSee Pro - профессиональная программа для рабо
 ```bash
 magnet:?xt=urn:btih:E2BCBC45DB36E0AED1A30439761ACF9A20B09E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Movie Studio – видеоредактор, включающий в себя в
 ```bash
 magnet:?xt=urn:btih:48F2867B68F82938338C2B2766A610BEE27440CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Sound Forge Audio Studio 10 - функциональный звуковой ре
 ```bash
 magnet:?xt=urn:btih:94C5410BBA2BEDBDC0844F1783C5C4DFDFDCD9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F343021D4A0E2546070AFBE4C944F5580BBE747C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ BBC: Тайны Тихого океана (6 серий из 6) / South Pacific 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Movie Studio – видеоредактор, включающий в себя в
 ```bash
 magnet:?xt=urn:btih:E472F488FFE0C4BB6D3FF3905D285B6C82771495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E9CDC22BB93E1A3D96A8304E4A3621796485A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Batman Arkham Anthology (2009-2014) [Ru/En] (1.1/1.1/1.0 Upd12/1.0 Upd2) Repack/
 ```bash
 magnet:?xt=urn:btih:6A9012034F00C17B68BD07813298128508CDB8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Sony Vegas PRO — профессиональная программа для м
 ```bash
 magnet:?xt=urn:btih:548CEA36A325558329FB93BE933DE70B12919569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5693A2B6739D5CEBA3C883F797FDE2157053049E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3623852EC44DD3731DBF566E880110D460ACCC5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46276CDE14385BDAA9EDAFD3AD852D8E9D46CA3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7273388DAE156F39C6FF7D412C5FDC69777A438D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ NAVITEL® выпускает глобальное обновление карт 
 ```bash
 magnet:?xt=urn:btih:2AC3FCFC3C65E8923294E2BAC0B5EDD1AA7EAFB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

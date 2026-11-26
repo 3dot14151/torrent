@@ -18,8 +18,7 @@ W.A. Production - Obsidian 1.0.2 VST, VST 3, AAX RePack by BUBBiX [En]
 ```bash
 magnet:?xt=urn:btih:94EE426A025E14933D62AC1A5EAA14372BAC761C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ FontViewOK 8.61 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E486BB5D61DB7036B7001131607CAEAF00EA4C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A85E1131C79055004A1456474F0E3660BE64C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:412C0E9E7E8BBCC651C53EA92D6C5518FB772555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BF32DA679921CE7925A8746078A700FDACBB10CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7917FA4B93EA0348FCB66CF18CFC1E48AD2A9F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21B07486CF6CF4D2902A4AB4416D1C31D58DE01B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

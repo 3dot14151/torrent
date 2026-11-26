@@ -21,8 +21,7 @@ Cellador - Off The Grid (2017) Japanese Edition [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:C4C12AC0D625E06EDF8796CEE57B82C202993F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACB8CF7F996F66E1ED6B4821091EB871BB5C369A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - No Stress Music Playlist 3: Pure New Age & Chillout Relax (2017) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:59C6F7F2404CCC9EC390C7AE1FF1DC80C216D1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - DJ Zen - Winter (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybien
 ```bash
 magnet:?xt=urn:btih:60A30F1D2E562710338B6B5961AE9470F845790F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80B281AC3E0EE028B7FAB3D8B74DEA59613FD472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:773D82CD06BC3290B651C0E072FB11B84BDB432C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Mr.Kitty - A.I. (2017) [MP3|320 Kbps] <Synthpop, Electro>
 ```bash
 magnet:?xt=urn:btih:63032621CE583DF652054622A71C75B8E709FB2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D71266245D73FC0CE2484008623DA69A571D985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E87D9795B6D649E6639461ED76C16A88B352D0F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Soldout - Forever (2017) [MP3|V0 (192- 320 Kbps)] <Electropop, Synthpop>
 ```bash
 magnet:?xt=urn:btih:B86851420B8ABD6655FE81BF0D371C6F7A8AE777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Neikka RPM - Battle Scars (2017) EP [MP3|320 Kbps] <Electro, EBM, Industrial>
 ```bash
 magnet:?xt=urn:btih:7AF762E9EDF1FA8A856625C55DCBF6ABC315AD61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A91C7E522A502575A6D7FE711FDED599297EE76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E2E81B1AA24B08A41822D7A5BB3E65EAA1D4803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Simbolo EBM - Inquisition (2016) [MP3|320 Kbps] <EBM, Industrial>
 ```bash
 magnet:?xt=urn:btih:FD7463E3B24F5BFA474A6220DBE66BB2B2FBF496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Earthists. - Dreamscape (2017) [MP3|320 Kbps] <Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:8E35D8FA64DF9482147DA18B790CE355CD358B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:938C8294ECB651D01FB6A71B8A25A57D0B85C451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ ROTANOV - Best of Nu Deep 08 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:F56A5A639D8C3074A42A562455F71B5F29736814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ VA - Yoga Balance: Asian Traditional Music for Meditation, Yoga Pilates, Relaxed
 ```bash
 magnet:?xt=urn:btih:92D12D4464A1BACF30241ABAB2E63081EED9E5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81B8C238D5731106D4DCE430D43EFABE72E04CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0BCB2DAA4B2C73513C42CFD908E01B31B953C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ drew the architect - dythlyre (2016) [MP3|320 Kbps] <Experimental Electronic>
 ```bash
 magnet:?xt=urn:btih:005624B3A1301E7A31A4CC531409B79545FB55AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ hnrk - neonurban (2016) EP [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:C8A53FA38A5B11CC729E61D1B7412A56249B8DEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0FAC3397BC5D3C0BE88D17E301465772568A805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ ATMSSPHERO - VCVBTRVP V (2014) [MP3|320 Kbps] <Experimental Electronic>
 ```bash
 magnet:?xt=urn:btih:85B77A6C5597A004BC3B73A3FD60ADBBF76842DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D183BD2A2E64793BCB1BCC7CCFF9FD0A981F58CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E163928161CBD6B5E675F1535FE8B49ADDF8E2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Delicious 8: Emily's Wonder Wedding Premium Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:23EBAFC4468BB2DB4B82D57B82C9B3C242B2117A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DogFighter - аркадный симулятор от Dark Water Studios. Игр
 ```bash
 magnet:?xt=urn:btih:C1D74667483BEE10549B41D9B53F1D29B1DF4C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deponia 2: Chaos on Deponia – это продолжение чарующего
 ```bash
 magnet:?xt=urn:btih:33CA81C03078DC4F8F433233EBB4AE97462C33BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Air Conflicts: Pacific Carriers – это совершенно новый ти�
 ```bash
 magnet:?xt=urn:btih:EB565DFF3C61088A267C8E73F0986EF72EC645FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Call Of Duty: Black Ops 2 [En/Ru] (CrackFix#2) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:17A1E39DE88256F84EA4C37363A7994C1E20D2A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ```bash
 magnet:?xt=urn:btih:8DBF1428DFC3CBCF11045977885F9ADD915FAABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

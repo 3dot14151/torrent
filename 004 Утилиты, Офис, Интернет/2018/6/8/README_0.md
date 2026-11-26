@@ -19,8 +19,7 @@ PDF Eraser Pro - программа для редактирования файл
 ```bash
 magnet:?xt=urn:btih:46992A8677F39ECF49F6A0D4BAADF04B85D83308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

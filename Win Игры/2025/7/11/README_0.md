@@ -19,8 +19,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.37ea) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:F919C82F97504642EF78496094746CEE67F974BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Build 18713680/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:CC6851145E06897E19515396881513205D4491C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Vault: Logic Puzzle Box (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E6AB118F0FE21F1B99FE3DDB32C82E8298DA5042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Palworld предлагает находить и использовать пр�
 ```bash
 magnet:?xt=urn:btih:EB3B695244599054BB70D6D0126BA4C66B7C18AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Blacksmith Master (2025) [Ru/Multi] (0.8.147) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:E92800A221450F2D27C202E6E966B610F3BD5873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Everdeep Aurora (2025) [Ru/Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:143935606AC8FAF6D8CD85A62EDDADBFECDA0F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Union of Gnomes погружает вас в причудливую револю
 ```bash
 magnet:?xt=urn:btih:1185E36E390604E2D4E21095F0079B6945284F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:0894E408FD69F37B10B4B83CAC50AF9B3A95A60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1s/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:34866F0D253B0F52D74D25A23F87C0F74912CFF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Paranormal Files 13: Chaos Weekend (2025) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:11AD5DE38CB8948CD2DE5E08EA3F7E5FC793ED08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

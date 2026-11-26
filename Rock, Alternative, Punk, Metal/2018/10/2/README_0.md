@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:B5031FD2C9239C9D06F28080564A1C729ABEBB7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:548487128D7D2AF7CBB50C606F187D74B80FC7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85E497F1B68C4F00F0E1861245244B27BA0CA156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Crematory - Oblivion (2018) [FLAC|Lossless|image + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:000E93EEF5AF89CEE774D0575954B052929C67BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Stratovarius - Enigma: Intermission II (2018) [FLAC|Lossless|WEB-DL|tracks] <Mel
 ```bash
 magnet:?xt=urn:btih:DA395E3F49423B7C14B4B83571ED8C3BE2D502BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Led Zeppelin - An Introduction To Led Zeppelin (2018) Remastered [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:CE0FE2EB432C77A65673F768844B8795644742A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F876F519B0D6398B165F04E6418456A40F57EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

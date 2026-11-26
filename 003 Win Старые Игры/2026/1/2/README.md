@@ -19,8 +19,7 @@ ECHELON (1988) [En] (3.40) License GOG
 ```bash
 magnet:?xt=urn:btih:82FCBCDD6CE0BBBCE5EC2137F923A08B54B2E331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Airborne Ranger (1988) [En] (441.01) License GOG
 ```bash
 magnet:?xt=urn:btih:2CFE6A796E2254961A3B3192D64082CC1A7F3D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Redline: Gang Warfare 2066 (1999) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E548BDFB530DCE578F484430F0BFB5CB49068128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

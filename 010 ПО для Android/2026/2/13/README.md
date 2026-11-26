@@ -19,8 +19,7 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:C0C3B1A5B959B4C6952AE58A288971AAC2AD8866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57C2E4F3E230859FC47CE9F730497918F34B5847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3EFEF88926049E214B78C11E55DCC259CB654B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Screen Mirroring - TV Miracast v4.0.0.230 Mod by vadj [En]
 ```bash
 magnet:?xt=urn:btih:D72A703B5FB6A4AC4184753F90DE859B8F914A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:BDA34B37D5D838090752B85E68EDB5FA608DD84B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ TV+ HD v1.2.5 Mod by ajrys [Ru]
 ```bash
 magnet:?xt=urn:btih:8731FFE96B26860D6293F81D47D24E34B3C617B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

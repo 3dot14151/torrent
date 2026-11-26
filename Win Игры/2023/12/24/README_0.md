@@ -19,8 +19,7 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 ```bash
 magnet:?xt=urn:btih:58D0AA660455A21606A6F1818B5E11F358D63A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Buried Alive погружает игроков в клаустрофобичес
 ```bash
 magnet:?xt=urn:btih:C2E664F2F5E8E0F11A2B3895EE14D45550B746E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4.0.0/dlc) Repack Decepticon [Complete 
 ```bash
 magnet:?xt=urn:btih:F4C3E1808FB82B019BE3D5C592837082422B8D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cyber Shadow – инди-платформер с видом сбоку, име�
 ```bash
 magnet:?xt=urn:btih:2341B798F6BC74888E277B1C5098D0421AFBE03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ You Will Die Here Tonight - ролевой экшен с пошаговыми э
 ```bash
 magnet:?xt=urn:btih:EE7A24D6DFC8D9C0135E91F7EE3834799582E552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

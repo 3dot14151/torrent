@@ -20,8 +20,7 @@ IRPlus - IR-Remote (Пульт) v1.9.13 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:E8DF387BEB753D2C64870BB9DB99B803607FCAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

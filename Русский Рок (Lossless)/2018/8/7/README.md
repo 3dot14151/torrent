@@ -22,8 +22,7 @@ Imperial Age - Turn the Sun Off! (2012) Japanese Edition, Reissued, 2018 [FLAC|L
 ```bash
 magnet:?xt=urn:btih:D0CFE668DD5BFB5B39CC3BBCEC227EB13062F8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

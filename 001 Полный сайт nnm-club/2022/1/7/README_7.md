@@ -22,8 +22,7 @@ Myriad Lights - Mark Of Vengeance (2012) [WavPack|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:CEC0568760633E1AD7E598586036EDD80A99DFD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shok Paris - Concrete Killers (1989) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BBB5CD3EAB7C801BD6EA856E22EF69E0C06B2A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crossfire - Live Attack (1987) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A6057B1ABC121D6809CA54310FB35C2DE2989250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Restless - We Rock The Nation (1985) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A8A525B3B4D21A48C27B002F2F9DC17660BD4F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Skew Siskin - Electric Chair Music & Voices From The War (1996) 2CD [APE|Lossles
 ```bash
 magnet:?xt=urn:btih:8B32039691DEA37288FD19FF5F5120701C632456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Angelo-K - Memories (2021) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:6D02C66DC1B258D48AAA800FA044B14CACA3E53A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Deep & Sweet 2: Best of Deep House Music (2020) [AAC|~319 Kbps] <Deep House
 ```bash
 magnet:?xt=urn:btih:267F9FC3003E6FC2493DEF2B2AA3D4F71F4498A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Angelo-K - Collection of the Best Tracks From: Angelo-K, Pt. 1 (2021) [AAC|~342 
 ```bash
 magnet:?xt=urn:btih:8737A983F77944334721114255D3AA580B428102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Deep & Sweet 1: Best of Deep House Music (2019) [AAC|~316 Kbps] <Deep House
 ```bash
 magnet:?xt=urn:btih:B90779F513DCA614556AEC384384E37828CDA626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:57DFB0041FB6A795CE237A88E6087D95C1BDBBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02D13AC139F001EF19415D3142F972FEFF86B769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Deep & Sweet 3: Best of Deep House Music (2021) [AAC|~317 Kbps] <Deep House
 ```bash
 magnet:?xt=urn:btih:88088D3D1F32F25F6E3D2A86E804F0F5688C2BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:2CB228C4E419B5FFCE6802CB6C3D7DF0AF5E971D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EE12BECCB7456393B4DFD915A7B54A85BDE1172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5B70AD7927EE2808003436032917EFC2C77C95C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A8E834A28603F516C4827373CEEB63D64DE678D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ VA - Ufo Lounge (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:CEE067E11A823C34F9C7823D48DA86A4B263070C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ VA - Christmas Chill Out: Best for the Year 2022 (2022) [AAC|~333 Kbps] <Lounge,
 ```bash
 magnet:?xt=urn:btih:C4FF4DA4552FC3D67A63C02CB4767A76E64AC504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C805F182950500FB454B8D10E6384D8DDE492F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE42F24395EFBD110534FFEBF5C65BAD74EA3837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1766475D0B9071AE70B5533A9697290A18D872B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02541D0ACA15089D5A9E0F689D1911144D6DFA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ VA - Yoga Music Session 2: Music for Relaxation & Meditation (2019) [AAC|~315 Kb
 ```bash
 magnet:?xt=urn:btih:E6F102D1BF77FFCB9C6129FE01E400B5F42FB1BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2B7D7C412DFF85CCA19CDA61C163126722F8E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ Ventana - Discography 6 Releases (2008-2021) [MP3|320 Kbps] <Industrial Metal, N
 ```bash
 magnet:?xt=urn:btih:BC3BC5EC99F7EB62482BFA057FC23BB593A5C32C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ Crossfire - See You In Hell (1983) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B22A87D180388506135B4800CEA10684D1BB1166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

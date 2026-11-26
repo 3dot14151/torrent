@@ -22,8 +22,7 @@ Zmey Gorynich - Vжица (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Deat
 ```bash
 magnet:?xt=urn:btih:51FD69005A0210A8394A35B9C3AF15262CB0782D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

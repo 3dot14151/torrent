@@ -22,8 +22,7 @@ Blues Company - Ain't Givin' Up [Mastering YMS X] (2019) [FLAC 2.0|96/24|image+.
 ```bash
 magnet:?xt=urn:btih:49524F38172E15AACA7797FEEB5F2B485DAAAED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

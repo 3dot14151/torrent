@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:60666FDF39F12D175A544E441E4751F22DD058D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ M-Hunter - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death
 ```bash
 magnet:?xt=urn:btih:B709226F55A497EEFAD37D790C62C69CEA94DDC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

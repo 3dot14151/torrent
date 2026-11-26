@@ -19,8 +19,7 @@ WinZip v6.1.1 Premium  [En] – Zip UnZip Tool
 ```bash
 magnet:?xt=urn:btih:61221A20DB99F5AFD0FE17D5877B8CDF8A679ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Radarbot - это Ваш помощник на дороге. Это единст
 ```bash
 magnet:?xt=urn:btih:E98FD0247442FA58B45B306E3A0FE43D666F82F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

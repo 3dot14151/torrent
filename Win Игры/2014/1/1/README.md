@@ -22,8 +22,7 @@ LEGO Indiana Jones Dilogy (2008-2009) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F751FBB98CA81F356CB5CA318A0C062E09557F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

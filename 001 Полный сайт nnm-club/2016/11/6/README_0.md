@@ -21,8 +21,7 @@ VA - Top 100 Deep House (October) (2016) [MP3|320 Kbps] <Deep House, Club House,
 ```bash
 magnet:?xt=urn:btih:29F4C083D0AC147A37A44E1044C9AD083834DE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Otis Grand - Nothing Else Matters ... (1994) [FLAC|Lossless|image + .cue] <Moder
 ```bash
 magnet:?xt=urn:btih:571E92FBD769D7704DBADF21EB8CCF3585B4BEF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Elements for iWork — это премиум набор изображений �
 ```bash
 magnet:?xt=urn:btih:3E94D130165EDAD574251996984F08440F775B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Nothing But... Liquid Drum & Bass Vol.2 (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:DF0089A5A8BA6A1F5D9A55B644B77577A34D9FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Top 100 Club Tracks (October) (2016) [MP3|320 Kbps] <Dance, Club, Club Hous
 ```bash
 magnet:?xt=urn:btih:BA692316FD3481A8A899BC492F83397D3059FACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Space Ibiza: 1989 - 2016 (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:9DFD4D3426AC3466397C42CFB16C7CEBDA875A4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Different Sounds Vol.40 (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Sit and Lounge Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:8031D21EE6AFBCC4D7076DCFB09879CFADC65914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Sebastien Texier Quartet - Dreamers (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:7C929BB59B58A86DCBDEF898C889497BDA1F8655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ VA - 100 Dance Elements Club (2016) [MP3|211-320 Kbps] <Progressive, Happy Music
 ```bash
 magnet:?xt=urn:btih:A33ED34647AE014356BBB0B4452DBAD5E7B5ED3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Melodic Relaxation Vol.1- Finest Chill out Selection (2016) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:E66EAD887B640703937B0A60AE43197B512BEA43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AAE3A4CABF138A61D90DFF3C6AC6CA485E944EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Death Valley High - CVLT (AS FVK) (2016) [MP3|320 Kbps] <Industrial Rock, Experi
 ```bash
 magnet:?xt=urn:btih:25FC0AA64F366B71573B5B6BD718817A5961EFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ Duke Robillard - Passport To The Blues (2010) [FLAC|Lossless|image + .cue] <Blue
 ```bash
 magnet:?xt=urn:btih:A2FF87DD33463FAD6734681F61E1E51C52A8E1AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Lars Leonhard - Evanescent (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Graphic Styles  содержит набор высококачественных
 ```bash
 magnet:?xt=urn:btih:60F0A156BCCB22AE1B51465BCA725723C83983C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Crack Jaw - Branded (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BDB8ACA35D2F0BBF54BCE20751236AD2F17CF9B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Pene Corrida - Volume Juan (2016) [MP3|320 Kbps] <Alternative Metal, Post-Hardco
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Whoopie Cat - Whoopie Cat (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classic R
 ```bash
 magnet:?xt=urn:btih:B2CC4E89F6C009D7BA1C5B2DD040395FC74C0CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Mario Hammer And The Lonely Robot - L’esprit De L’escalier Remixes (2016) [F
 ```bash
 magnet:?xt=urn:btih:E711EC66708EE587E3A6538E9CCDA965A1CDE794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ VA - Блатная осень на радио Шансон. Часть 10 (2016
 ```bash
 magnet:?xt=urn:btih:9A42F67C23ADC4CBCD7AD393FA0AFF354901A0AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ Jimmy Thackery & The Drivers - Spare Keys (2016) [MP3|320 Kbps] <Blues-Rock, Ins
 ```bash
 magnet:?xt=urn:btih:DA0F6D394EDE3841A6F3AC8BC9EC1EE9F3733FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ The Big Hustle - Worldwide (2016) [FLAC|Lossless|tracks + .cue] <Funk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:028EDB72EDAD95744E67DC08FE9EFA1AF554EFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E08ADA947A2CBC3CF670B6DC65EB14A5256F81E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +710,7 @@ VA - Top EDM Boom November (2016) [MP3|320 Kbps] <House,  Future House, Bigroom,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Tales of Evening - Hajlektalan lelek (2012) [MP3|320 кб/с]<Gothic, Symphonic,
 ```bash
 magnet:?xt=urn:btih:EC2E7183DCD9969220B4BCA4006032C37C3AD20B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Lunar Path - Memento Mori (2012) [MP3|320 кб/с]<Gothic Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:3EE6CCEE00761D78F86A03A02DAC4E01C1E7B204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ As I Lay Dying - Awakened (2012) [MP3|192 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:9EC9EDAD44FD83F79BEABA7FC0989CC1C408E6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Vision Divine - Destination Set To Nowhere (2012) [MP3|320 кб/с]<Melodic Powe
 ```bash
 magnet:?xt=urn:btih:556C768ED499F756F58DE77A2ED83DD5C81885A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08FF5BBB458EC43193E36012503A9770CC517886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Sweet - The Best Of... (1997) [MP3|320 кб/с]<Classic Rock & Hard Rock>
 ```bash
 magnet:?xt=urn:btih:838D188697640A8177760FBD0B99F2767812F91E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

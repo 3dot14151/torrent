@@ -21,8 +21,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:AD2E24EAD5702E5A943F438ED6F5D1C20D7A1ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Amnesia: A Machine for Pigs (2013) [Ru/Multi] (1.0 build 145815) SteamRip R.G. �
 ```bash
 magnet:?xt=urn:btih:CEE358914F1D459EA7B32DC4845E839FDB5E7DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Serv-U File Server - гибко настраиваемый файловый се
 ```bash
 magnet:?xt=urn:btih:394759A34EDA2DBD70CB678D2A87FB9FE3197D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ HAZE [PS3] [PAL] [RUSSOUND] [2.20] [Cobra ODE / E3 ODE PRO ISO] (2008)
 ```bash
 magnet:?xt=urn:btih:DD3C2AC84F7576A6AD0C862FD79A4DD6B1EA45C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89689421FF19F8EA12C4A7B8BD9C3E93E240F0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ HD-сборник Devil May Cry HD Collection предлагает лучшую 
 ```bash
 magnet:?xt=urn:btih:3916C21C96669C8FEB31C564D4CF456F5422CF73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Metal Gear Rising: Revengeance – совместный проект леген�
 ```bash
 magnet:?xt=urn:btih:7574F246982D8D8A53E31EBB31A3DD2F306ED28B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC85EE46B83A2EC5FB4A59022D17C1DEDB5A3816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Heavenly Sword [PS3] [EUR] [Ru] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2007)
 ```bash
 magnet:?xt=urn:btih:2827630DE9DC051CFD2CB8B78D2175B22B1E99C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA7BF84D5D6137AA0FD9AD3CAF260EEF84C18B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ ICO
 ```bash
 magnet:?xt=urn:btih:2909840017B005F28797D1CCBC82AE6DF4CFD456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ VA - Блюз Хиты (vol. 1 - 13) (2013-2014) [MP3|224-320 кб/с]<Blues, Bl
 ```bash
 magnet:?xt=urn:btih:0DA760E06534A2A7CCF068044A62ED1AB4CB7088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Hellsing / Хеллсинг: война с нечистью [2001, TV, 13] DVDRi
 ```bash
 magnet:?xt=urn:btih:75BE06F3E94A92522F2D471777D61357D08C97E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D351388417EDA5A95E72FD30A26C646E7E071DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D27A278B30638B0F70C62303F95B4E0650F14EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Consortium (2014) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:5EE2ED47C9636CAFE5C163C5E2624E8D1EDADC95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ Metal Gear Rising: Revengeance – совместный проект леген�
 ```bash
 magnet:?xt=urn:btih:A1901EE2F0BB2427F05122D5C119B3110DAD95CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ Metal Gear Rising: Revengeance – совместный проект леген�
 ```bash
 magnet:?xt=urn:btih:04C9EEF25E187354895999CA21BD1C6C23D03784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BA2DFF263C3C15006F32C782F518B3CECE0043A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [En/Ru] (1.03) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:4E51491FD8EC2279C7D905FF365C36030152C28A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ Garmin: Дороги России. РФ. Версия 5.32 (FID 1868 + FID 4941)
 ```bash
 magnet:?xt=urn:btih:8817383153EA038130772F5BD2211889085BEF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

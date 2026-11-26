@@ -19,8 +19,7 @@ MediaHuman YouTube Downloader 3.9.18 (2401) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:464E63E7ACA6E33C347BEB53E2989ADCC3FFEDE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:A7D4E05826AA1AB81961128D2DF6EC52E58CB6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

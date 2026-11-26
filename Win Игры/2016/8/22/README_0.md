@@ -19,8 +19,7 @@ Incredible Dracula: The Last Call / Невероятный Дракула II. П
 ```bash
 magnet:?xt=urn:btih:D0F136D7FB4B80781370F447CF02FFA3BC43565A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chase for Adventure: The Lost City / Погоня за приключениям�
 ```bash
 magnet:?xt=urn:btih:236A90FCA591A576D42106C9B5512218E925637D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Door To Door - это приключенческая игра в ретрофу�
 ```bash
 magnet:?xt=urn:btih:498A033710F4B540CAE6A6431F52AC9F7F36FF29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Red Faction: Armageddon – новая часть в серии экшен-шу�
 ```bash
 magnet:?xt=urn:btih:14A3BEF76593153A713AE9C37679F8E9193D6570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack =nemos= [Colle
 ```bash
 magnet:?xt=urn:btih:EC25BFB15E620C7D687AFBD222D46EDAB64D46A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

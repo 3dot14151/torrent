@@ -19,8 +19,7 @@ Sniper Elite V2 - это долгожданное продолжение пол�
 ```bash
 magnet:?xt=urn:btih:AC90F45087CA18DE55EC3BF7B0FC5D9A7D0C50B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Saga of the Nine Worlds: The Gathering / Сага о Девяти Мирах: С
 ```bash
 magnet:?xt=urn:btih:33B1C5B42E9DF6DF1A6F73D645C20F7F5A8B703B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sniper Elite V2 (2012) [Ru/Multi] (1.13/dlc) License PLAZA [Complete Pack]
 ```bash
 magnet:?xt=urn:btih:DB6A056009126F2977EF9F8E9DB824AE549ED508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Talos Principle - это философская головоломка с в
 ```bash
 magnet:?xt=urn:btih:6B31881D525BB42C9DFD252210107C88197D69CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ PAL - Prime (2018) [FLAC|Lossless|image + .cue] <Melodic Rock,  AOR>
 ```bash
 magnet:?xt=urn:btih:4634EADE0849048E9AE405F1B83C98D99F5766C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Revel in Flesh - Death Kult Legions (2014) [FLAC|Lossless|image + .cue] <Death M
 ```bash
 magnet:?xt=urn:btih:2F5EAF067D28FD01ADF52D0E8B03EA55D69A5335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Interloper - A Revenant Legacy (2021) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <T
 ```bash
 magnet:?xt=urn:btih:0FB74F6B2D2C25D8CCB182847A5B40CB45ED6FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ S.I.L.U.R. - Uranophobia (2020) [MP3|320 Kbps] <Melodic Death Metal, Progressive
 ```bash
 magnet:?xt=urn:btih:7F1AD5A12D98F5B214FBDA60BD912050FA683E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Archon Angel - Fallen (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Progress
 ```bash
 magnet:?xt=urn:btih:C1119214B89A564F576C8420A72533A945FE1455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Kat - The Last Convoy (2020) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F4BA0E5855BA712E26E1FDAE7C0B132B41E72B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Rods - Brotherhood Of Metal (2019) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:10A28D9AB62CCA3F7C0B1385AB5B9E821F8FB83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Dennis DeYoung - 26 East: vol.1 (2020) [FLAC|Lossless|image + .cue] <Rock, Melod
 ```bash
 magnet:?xt=urn:btih:222F873FEA0180EA7B79412FC91FA2BA3E96C264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1896165A7D09CF0A36076B39EFFFF7634E0046F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Thrudvangar - Vegvisir (2020) [FLAC|Lossless|image + .cue] <Viking Metal, Pagan 
 ```bash
 magnet:?xt=urn:btih:C5C2D9532FE8BB23B6448F4AFB000D6F0BEA519A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - Millennium Hits, 1970 -1979, Rock (1999) The Unique Collection [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:4BF14BD71646FE253689019A242852271C255660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45F67BD9D7F06436BEA62537DE5A176B4E4031B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Hellhole - Whores in the guise of saints (2020) [MP3|320 Kbps] <Black Metal, Pos
 ```bash
 magnet:?xt=urn:btih:D46C5614823170686A56E7B95F26D58ED3DFAD57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

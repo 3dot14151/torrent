@@ -22,8 +22,7 @@ TesseracT - британская рок-группа из города Милт�
 ```bash
 magnet:?xt=urn:btih:0640E4329519E4EA9CC5590F1471C2D8B94E0866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

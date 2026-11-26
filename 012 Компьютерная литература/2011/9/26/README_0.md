@@ -19,8 +19,7 @@ Andrew Gahan | 3ds Max Modeling for Games - 3ds Max Моделирование �
 ```bash
 magnet:?xt=urn:btih:5D89DB0FF44DEB048B0AC6533085CF40E74E03FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

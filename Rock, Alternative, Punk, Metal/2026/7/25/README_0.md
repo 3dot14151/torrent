@@ -22,8 +22,7 @@ Tyraels Ascension - Grave Seeker (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 ```bash
 magnet:?xt=urn:btih:5FFE8B6A2682A0D9073856CE108773F5CF35691C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:319A342F9706B5174DD774C776D105761045DB3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Combichrist - The Venom In The Mouth Of God (2026) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:17233CD51DF66981A13E5A274032DBACEF212CAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Combichrist - The Venom In The Mouth Of God (2026) [MP3|320 Kbps] <Industrial Me
 ```bash
 magnet:?xt=urn:btih:E9313C2FE40EF8B57313AE16D2A306C6D6EA9FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

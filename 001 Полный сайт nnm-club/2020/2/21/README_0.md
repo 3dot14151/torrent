@@ -18,8 +18,7 @@ RegScanner 2.40 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A31EEE930236C03D317D6878BCEE67FBA23A5C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Elle — французскийЖанр: Женский журналФормат
 ```bash
 magnet:?xt=urn:btih:D4B012C9C8B61AEEE420997C544DCB73D6B0B19A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ DJ Ruby - Live @ Sea Raid Boat Party, Sydney Harbour, Australia 2020-02-08 [MP3|
 ```bash
 magnet:?xt=urn:btih:905384A4AD70DAB06F04C819524E049B674D4E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Soft4Boost Any Audio Grabber 7.7.1.341 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:77DAFFE3EA8D3F22F5550E68AE1E0253A32784D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Elle — французский еженедельный женский журн
 ```bash
 magnet:?xt=urn:btih:CEAFCDD8BFAFCEFE149815ABDA8ABC8744F32A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2306B00069A0F32C89F9FCD81E21C7D9FD559CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Bauer Media Group — одна из самых успешных и передо�
 ```bash
 magnet:?xt=urn:btih:0EB5AB157522CB63E23C5E13B1BC6076481CCF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Elle — французскийЖанр: Женский журналФормат
 ```bash
 magnet:?xt=urn:btih:0BA49F655198C1210931D86FBE9293D610486C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:F6AC1213EA1FBA14C42F26C97220D6CF642C0AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:9D9930C85171384DD978214E63D49E8CCDB95C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEF022B7F28CEB06CBB4691059E2773A15B7FC45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D99816E8B374A9105613DE519D1B5E473581657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:4201C0456FC90F1E7AB19B0C16D4564ABB24DBFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Alien Skin Eye Candy 7 — новая версия набора из 30 филь
 ```bash
 magnet:?xt=urn:btih:0DBC5689C68A0BCFB7E63B6F4FF13E098257EC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ save2pc Ultimate - это простая в использовании прог�
 ```bash
 magnet:?xt=urn:btih:1CC230D0A3D7DF6DB303F8656385AE4603E3CD7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ VA - Italodance Winter Hits 2020 [MP3|320 Kbps] <Trance, Dance>
 ```bash
 magnet:?xt=urn:btih:1C5E953E221206C88A70DBF0811BC23865819D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8287D2230977111F49800B9A5C36BC9F15D759C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ Soft4Boost Any Uninstaller 8.7.1.505 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A523EA24EDBC26A96A5AA492B72ECE797C7EDA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ Snap Art 4 - этот плагин предназначен для превра�
 ```bash
 magnet:?xt=urn:btih:B8B6B739ED58C9818CDA4AB5F062BE6648998607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:230C522DC1A37837352D7AB0443334EB655D08F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1459F05948B96F4DBECED5C934F6227F76B99D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:BBD701AFFDCC531733D0FBE54BA73B6EB94EE75E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:58AE1C17126D7AC93BE48B7E212468E022F9E53F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ Nachtmahr - Flamme (2020) [MP3|320 Kbps] <EBM, Neofolk>
 ```bash
 magnet:?xt=urn:btih:26D4202A46C6A87630DFF01EAC2EE89105C1FE47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F178A566A4E95FEDE1A7F451D38DB7C103E4D514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +661,7 @@ Blue Attitude - All Shades of Blue (2020) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:C3193F8B076B75285B6F510DAF5F892B7DA32CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

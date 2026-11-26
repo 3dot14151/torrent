@@ -19,8 +19,7 @@ WebcamMax - продвинутая утилита для работы с веб-
 ```bash
 magnet:?xt=urn:btih:312B274F1079BCCFF45489F57028D96CD310A0FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

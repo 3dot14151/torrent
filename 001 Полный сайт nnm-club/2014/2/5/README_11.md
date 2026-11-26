@@ -28,8 +28,7 @@ VA - Dreaming - Make Front Time (2014) [MP3|320 кб/с]<Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:65DCBDBD16FEFB8DCB29B2F38B38B7424E4F4D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Berggren Kerslake Band - The Sun Has Gone Hazy (2014) [MP3|320 кб/с]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:82AA84CACF648DC24DFC8AB177C3BDFCB877B1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2CB6F297591FC9666029A6A64695F1140FFD977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Andrew Bird's Bowl Of Fire - The Swimming Hour (2001) [FLAC|Lossless]<Neo Swing,
 ```bash
 magnet:?xt=urn:btih:991644BA95ADF77C65CEDAB2B82DB48D0DB75B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Chillhouse View (2013) [MP3|320 кб/с]<Deep, Chill House>
 ```bash
 magnet:?xt=urn:btih:E4345166FB2EA0AA21E790D47B2652BDF61F10F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Jim Hall - Magic Meeting (2004) [FLAC|Lossless]<Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:22C99D033BFBBBC9A06A0E450F56081D29F58EC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Rosie - Soulful (2014) [MP3|320 кб/с]<Vocal Jazz/Pop>
 ```bash
 magnet:?xt=urn:btih:5EC1C4BCD212421F8A574F4E22D6427991CCF3BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ VA - Lovely Spring Lounge (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:0E644960585698260B434CFE0AB46292ED30F2B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Curtis Stigers - Baby Plays Around (2001) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:924215B038876B4CD8A571215B5A1ED4FCAE537B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE332325E06EEC3D3752FBCB0B1782AF0F2F1575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E830E71C98CC20196DF83CA6661B28A3BDDADCB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71D345110F28B619677A1DC908407DDD26431F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F44529D0A2FE4FBD979477E720D3DD5A601C36A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E2E5443C6A14F06DC3DC2543DDB4F478545A691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EE4C1D0B4583DC26217037AA2C99918EE05CC78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ VA - House Music Pause Vol 6 (Compiled by Alex3107) (2014) [MP3|320 кб/с]<Hou
 ```bash
 magnet:?xt=urn:btih:C00D060580CFCD5CB4A4900F7E694994816AACF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ Vijay Iyer - Mutations (2014) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:7919E405ACEDE1DEB54258427E055B5081282F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +565,7 @@ Stephen Malkmus & The Jicks - Wig Out at Jagbags (2014) [FLAC|Lossless]<Indie-Ro
 ```bash
 magnet:?xt=urn:btih:174E64603577C3C81EFE6BB980BE69003ACA8556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ Cryo - In Your Eyes (2013) [FLAC|Lossless]<Industrial, EBM>
 ```bash
 magnet:?xt=urn:btih:EF8C84214422630A6F6D80A750796512A06DD80C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ Bonus Tracks(   Читать дальше...   )Жанр: Progressive RockПро
 ```bash
 magnet:?xt=urn:btih:A4A29049EE88D10670630C05EBB7BE4BF2B20F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +662,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:B145F003B1E98A86D17306BB003036DC96927656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55A26F7A58542D3E3D7AD5FFDCB7368E6040EDE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAD838449039B0C422F5A5906515B1B6218BC788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +746,7 @@ VA - Vocal Passion Vol.54 (2013) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:4E3C3EB66E78CE1F56AF5819C1B44D5C0EC1B3CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +771,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FECC45F836F0690AD15C21B1F95608BC6B5D38C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

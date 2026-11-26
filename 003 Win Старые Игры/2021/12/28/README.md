@@ -19,8 +19,7 @@ LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BE86A001793E25C416A3AA1FC2EB29A51B61A552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

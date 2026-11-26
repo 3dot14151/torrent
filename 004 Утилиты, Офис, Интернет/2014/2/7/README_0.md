@@ -20,8 +20,7 @@ ActiveSMART использует S.M.A.R.T. технологию для конт
 ```bash
 magnet:?xt=urn:btih:FE919DB85B4C4EEF2555B2BFED29A1FF9EF71107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Sonata Arctica - Stones Grow Her Name (Deluxe Edition) (2012) [FLAC|Lossless]<Po
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -64,8 +63,7 @@ Six Feet Under - Undead (2012) [MP3|320 кб/с]<Death Metal, Death'n'Roll>
 ```bash
 magnet:?xt=urn:btih:B5D7743A0D7BB035431EC57B7E2E1D01E535B6EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +97,7 @@ VA - Glory Days Of Rock 'n' Roll ( 5 x 2CD) (1999) [FLAC|Lossless]<Rock & Roll>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +131,7 @@ CD 1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +165,7 @@ Dee Snider - Dee Does Broadway (2012) [MP3|320 кб/с]<rock, cover>
 ```bash
 magnet:?xt=urn:btih:5DC16A68889D83516559304713D0B4E5B39D3997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +199,7 @@ Axxis - reDISCOver(ed) (2012) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A30970492CE481830D5B725852577F776C3CD5D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ VA - Metallic Emotions (2007) [MP3|320 кб/с]<eavy Metal / Power Metal / Symph
 ```bash
 magnet:?xt=urn:btih:2694CC02ACB351E7DF2CF6097E6F7AEC8E9A2DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Red Johnson's Chronicles [Ru/En] (Repack/1.0) 2012 | R.G ReCoding
 ```bash
 magnet:?xt=urn:btih:C5A9228DBC03A0E888BD2AE15F4972FF74E662B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Duke Nukem Forever + DLC [Ru/En] (RePack) 2011 | R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:6B758083ECD17876F6DE2DD747FA94596A497938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

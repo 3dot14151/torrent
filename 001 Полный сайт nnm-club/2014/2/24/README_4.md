@@ -20,8 +20,7 @@ Rocketmen: Axis of Evil [PS3] [PSN] [USA] [En] [1.92] [2.01 / 1 DLC] [Cobra ODE 
 ```bash
 magnet:?xt=urn:btih:17586EDBBC7E3B9CFBCB6923B539CCE74AB22DF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C853D14EDA46E85E53260FC688115FEB0E1ED284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26F6E635D0F41E4AABBC4370AC0D57F4CB78CB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83D620B77F082AA1FD49C09BE7B0D951393B782A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP № 3 (март 20
 ```bash
 magnet:?xt=urn:btih:35A3A3A617B8F9011F917F30013D37CDA5318815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:2D3C590EAC798CE7261A71CCF87A0CB0F9F3DBE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2250452CAE1E5D8C17ACA6D93DBA8C1AD3B2161F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Adobe Muse – визуальный конструктор сайтов, фун�
 ```bash
 magnet:?xt=urn:btih:6F020B440E1150AB2670E6261BD3C8F55F8DB729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ABC7A92DBEAB706674C092F627E0CDD67D3CCBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E5DA955485122F35444D33AEE0D5CF6C29D3FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Kolor Panotour Pro - программа предназначена для соз
 ```bash
 magnet:?xt=urn:btih:A99630FFA7AF7072CCC4B4D9987AD1DE739EFF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Tales of Symphonia Chronicles [PS3] [USA] [En/Jp] [4.50] [Cobra ODE / E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:AB33860DF11BC87311A7DB0DDD72ACA07C9DC8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA7F4119312B11F9A7680E400A5BD3C0FA5A2B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D07E6CC128317FD6ADAB610115A472810F5709D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ RusTV Player - программа для просмотра телевизион
 ```bash
 magnet:?xt=urn:btih:803B56801002548BC8AA26792DBFABEF0EF4C131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ VideoHive - Film Festival Slideshow - 3441597 [AEP]
 ```bash
 magnet:?xt=urn:btih:E93CED473E7306B588BF43820AD7E39E0FDB4D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ Daemon Tools - маленький по размеру, но мощный по в
 ```bash
 magnet:?xt=urn:btih:789B7DAC97F406A13D30FBD86BAFE6214AF81CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ Ubuntu CyberPack (ALF) 1.0 [i386] 1xDVD (2014)
 ```bash
 magnet:?xt=urn:btih:3565D26211DB071139B2086455ED3154747D0539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3438DDB9FDCAA58535A85E967CCE7A65B3F78ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9C45266B5372EE914A9F82BD56C2CD60E3A6E0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ iMindMap Тони Бьюзена - это вершина его работ и и
 ```bash
 magnet:?xt=urn:btih:BA74F5F3F233469FB7E5703E2FF5CCF1A0DEF3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:FBC54A6029182BD966D40262E2350AD56B8B3274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCF989E5C9E4907312E090379F71DB4352B791DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C432BD823DD9D1DF389FACE5E8B945AAD2EFF2E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ Green Lantern: Rise of the Manhunters [PS3] [3D] [USA] [En] [3.60] [Cobra ODE / 
 ```bash
 magnet:?xt=urn:btih:EC1C51135E6AD399DD6918AA480625856009F0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Warhammer 40,000: Kill Team вверит в наши руки управлени
 ```bash
 magnet:?xt=urn:btih:65B0DF7B3BF6B68D3A197F8209D340924B4515B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

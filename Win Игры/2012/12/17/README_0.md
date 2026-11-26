@@ -21,8 +21,7 @@ Inside [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:D2D657B7596B0A228156E3D0BC699903E8099DCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Haunted Investigations [En] (L/0.2 Demo) 2012
 ```bash
 magnet:?xt=urn:btih:011AB6E655997A72DDB3065C3BF7F811BA498D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Detective Quest: The Crystal Slipper Collector's Edition / Агентство "�
 ```bash
 magnet:?xt=urn:btih:F9522085ED42561E2D36AD8AB2038D81C2E6EEA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Sine Mora – инновационный шутер, совмещающий в �
 ```bash
 magnet:?xt=urn:btih:3332292996884AE0F42F435F83B4DC7568692D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

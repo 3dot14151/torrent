@@ -19,8 +19,7 @@ Brigador - это изометрический экшен, в котором и�
 ```bash
 magnet:?xt=urn:btih:0290C5C4233B9FAECBEEAB7FB6F16ED8674A6844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.1.0) Repack R.G.Catalyst
 ```bash
 magnet:?xt=urn:btih:3501AB9B83721EFD1DE26928D21896DBF7758212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RWBY: Grimm Eclipse - это созданная по мотивам одноим
 ```bash
 magnet:?xt=urn:btih:BB946DD9FB420A36AEB502640D1754DDD1C2BF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Megadimension Neptunia VII (2016) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:F0200725FD1F1C4A5D80C866DDC5A9192B22DFAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

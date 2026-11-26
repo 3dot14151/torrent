@@ -27,8 +27,7 @@ Verdi - Chorusess and Ballet Music (Claudio Abbado & Chorus and Orchestra of the
 ```bash
 magnet:?xt=urn:btih:536A8362D64770CB8C781005F6B36EF5774E43D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55012B6DE0C0C9A8B958714658330BF4C362E320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC089EA26A22DFB110EC066D9340C81B6EA0297D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ SQLite Professional - профессиональный менеджер баз �
 ```bash
 magnet:?xt=urn:btih:72E4C9E301463EF0FB98D24F19461245BD367C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ uTorrent 3.4.2 Build 32549 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5DAAC68EF010304C19CEBF37AEACD9169885FEC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Mark Mancina - Самолёты: Огонь и вода / Planes: Fire & Rescue 
 ```bash
 magnet:?xt=urn:btih:9D3FDEBC39FA44B8C59AEE5985DD106C416681DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ M83, Anthony Gonzalez and Joseph Trapanese - Обливион / Oblivion (2013) 
 ```bash
 magnet:?xt=urn:btih:8B2C8D16A267FC56CF2FDE200D17DB373C517891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ DxO Optics Pro - профессиональное приложение, спос
 ```bash
 magnet:?xt=urn:btih:B8ED90C411A2424C8221AA02B5C8E7473C1DDBF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCCCB1E0483314A28D8719D6BA9BA9E2DEAC72A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ Stellar Volume Repair является наиболее мощной и безо
 ```bash
 magnet:?xt=urn:btih:DD5ABF5F0288048E495D81D01E37A9C6B559E9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1EC95CDBD2E8C08C7D3B00BD34DCD3D158B2BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Nevertales 2: Shattered Image (2014) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:E744AAD0F7FB08DB2E8B9690A708A090CD48ECF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ Vol 04: Double Concerto for Violin, Cello and Orchestra | Tirol Concerto for Pia
 ```bash
 magnet:?xt=urn:btih:9AC6F83911043A29E28FFE47F1B172A81ABC97F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F57DD1A53AD09777F8D7373DAA8D9D88D7D1AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ uTorrent Plus 3.4.2 Build 32549 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A079FD9BDD4ECF7919A6E470FA893E69E2ECDEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ BRAVO Hits представляет собой серию музыкальных
 ```bash
 magnet:?xt=urn:btih:6790BB78EF9DBD1C0B4AB837385A4911DB229A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ Debian GNU/Linux 7.6.0 Live [amd64] 4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:06FB9792303056F00F6BE116C00C0BFA52D78AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:790E733C8BA0BB1DC58E7E2310B6580C3D309348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ Shambhu - 2 albums (2010-2013) [MP3|320 кб/с]<New age, Instrumental, Jazz, Gu
 ```bash
 magnet:?xt=urn:btih:F4823107F9F2314379E1CF1B331FE6AF7D56F2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ File Governor 1.8.0.0 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E00EE76C65A1F0A5F540563E1F63E4FF328EF315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0905EC18665336CC55A2D54C9CE004DF2282CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5B88B9ED93FFF38CB807E84BD8B42EC30034764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F3D494D3F41E6F93E84CDF720E89AD2740DDC18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F59BD17F5CB6CB060D5E92DA2FD135AD79B7E34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F1EBF1D489EC019678C71470FF1FE52E95AFA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

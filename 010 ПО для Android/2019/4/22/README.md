@@ -20,8 +20,7 @@ Infinite Painter v6.3.21  [Ru/Multi] - редактор растровой гр�
 ```bash
 magnet:?xt=urn:btih:6FCA21DFEDC2071EFF6F7BDB7766915315E1A130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

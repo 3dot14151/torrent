@@ -19,8 +19,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:7DD6A2B05C0EF9CA5C00D244439DB2C1BD8E067C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Witch Hunt это симулятор охоты, смешанный с хорр�
 ```bash
 magnet:?xt=urn:btih:AF431F651E6C25F0F40B5A46C378DC0AD0EDF66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Train Sim World — железнодорожный симулятор от бр�
 ```bash
 magnet:?xt=urn:btih:E4CD203AE721C3B8196BAD3607DE5FFA0FB03A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D775028A8AC9BD801E1A4380EC0EA3854338896E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Last DeadEnd(на рус."Последний Тупик") — игра в п
 ```bash
 magnet:?xt=urn:btih:C8FD0D6265B644FA0635E15D650D364315DCA589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

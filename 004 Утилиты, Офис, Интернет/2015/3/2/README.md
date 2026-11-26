@@ -19,8 +19,7 @@ Trogon MAC Scanner – профессиональный инструмент д�
 ```bash
 magnet:?xt=urn:btih:BF1AD4CFE578887D18EB27BF3E8D9FEC666B79D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

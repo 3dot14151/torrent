@@ -19,8 +19,7 @@ Battery Guru предоставляет продвинутые инструме�
 ```bash
 magnet:?xt=urn:btih:C69ADF8DB35BC2A85EDC5D1D5B5C6806D9E6DEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ TV+: Бесплатное Онлайн Телевидение
 ```bash
 magnet:?xt=urn:btih:CD93BB809C4D4F3199F154CA01D2D1B0AE1A4085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

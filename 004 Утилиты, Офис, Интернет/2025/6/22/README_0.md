@@ -19,8 +19,7 @@ Exiland Backup - простая программа резервного копи
 ```bash
 magnet:?xt=urn:btih:635FD8C8CB60791FA28D9D3586C7E747DEE406C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

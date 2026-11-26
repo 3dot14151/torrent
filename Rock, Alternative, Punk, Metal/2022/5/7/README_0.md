@@ -21,8 +21,7 @@ Norium - A Journey Through the Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Power 
 ```bash
 magnet:?xt=urn:btih:7CC232F38F605D4CEE084454EBBDE562E6EA79EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Altaria - Invitation (2003) Remaster, 2022, Reaper [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:57D0AAF3DF036FFCBB104EB2FE9E60DAD9E9FD71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ August Burns Red - Leveler Live (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 ```bash
 magnet:?xt=urn:btih:A2CCE45474FAD8E8EC286C17D1E444002E0F69B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Strange Horizon - Beyond the Strange Horizon (2022) [MP3|320 Kbps] <Doom Metal, 
 ```bash
 magnet:?xt=urn:btih:A0567F8D789FEE14535EEA46C8251847F9AF9BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Kadavermarch - Into Oblivion (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyched
 ```bash
 magnet:?xt=urn:btih:297691B08809606961BAD22AA2495491E685021A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Pink Mountaintops - Peacock Pools (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Ro
 ```bash
 magnet:?xt=urn:btih:67E021C1117119CCF97D6E1DBD5686C464EB0B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Simple Plan - Harder Than It Looks (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Pun
 ```bash
 magnet:?xt=urn:btih:D85DC766910810A622903A47CC6CC8738AAE5E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Altaria - The Fallen Empire (2006) Remaster, 2022, Reaper [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:75F269FAB7850683FA20EA14B8897EE1EFE24DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

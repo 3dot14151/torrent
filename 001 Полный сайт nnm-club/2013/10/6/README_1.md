@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CB062826043B04D05E0A240BDFCDA31EFF1EBC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A99513441972B087DEA9C545C7D083EFA89DF3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Armada Top 15 - October 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5D247B0FC51CB00C6720CE4DFA508A4832A5DCA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BCC2558605AD389A2BC7F2DE0F2F0CBB39AEC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC6E92245645CDDF62164F431AC6D41511F40AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Wolfheart - Winterborn (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C27A30EC0B279207428418BA6D3747A8389A63CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39DC9491B1D35185FF796593263E5CE35F6D760E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56970B69E56C4649FB13E12E30743BA0E12E3C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F6C57F7548B31A35A67FE4AF782AC34CB72CD61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E7A0B3F8BA0F0B6DF709F5E3E04845180C28C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Glue On Smile - False Evidence Appearing Real (2013) [FLAC|Lossless|WEB-DL]<Dubs
 ```bash
 magnet:?xt=urn:btih:E7FFBB754D7B3B870F4C0D7D71448525EA6B11CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Joan Jett & The Blackhearts - Unvarnished (2013) Deluxe Edition [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:B7A432ABCC9F66FA208DF51F78112855077C3226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA1A0BC8AF117ED3AF1D7FE59D884CC7958DDC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E6E515F63AC1BF7AF902BE5A42FD3429489E191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB8C8CAEEBAD819323CAC8D40965A707240AD491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Symphony No. 34 in C major, K. 338
 ```bash
 magnet:?xt=urn:btih:999D585C9183007BC10C70AB8F43039E0C9A0C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ VA - Buenos Aires '13 (Mixed by Markus Schulz) (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:90BEE443EF265747F58C374715EF8F7B9B307EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (06.10.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:AAF18228DC7D03CB37B118B964C5467BB154F6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90AE383B0A35144AFE690B92584ACD13A08356CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Kiasmos - Thrown (2012) [MP3|320 кб/с]<Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:0224FC4985DCFE0294AAC7DB940887152E10590B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Rise Against - Long Forgotten Songs: B-sides & Covers (2000-2013) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:0D73E09E3A79ECCE8A00BE159045B2569C23F36D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ Armin van Buuren - A State of Trance 633 (2013-10-03) [MP3|256 кб/с]<Trance, 
 ```bash
 magnet:?xt=urn:btih:B4285D4474F8933CEC75A14FF0BF6E5C6D1E911F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +650,7 @@ VA - Drum and Bass Pro v.24 from AGR (2013) [MP3|320 кб/с]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:6BB5C5720BBF21620C0950B4930F66A509592CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ Ike & Tina Turner - The Hits Collection (2012) (2CD) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:C0C3801A5788AACA824F2F97DDC14AFDCAC44E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ Everlast - The Life Acoustic (2013) [FLAC|Lossless]<Alternative>
 ```bash
 magnet:?xt=urn:btih:A2AA88155BD91BD92F97B1F6E4605733C7C0932C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +747,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AEE99BE124D3EF96281F08AFABC03EBE5E33353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

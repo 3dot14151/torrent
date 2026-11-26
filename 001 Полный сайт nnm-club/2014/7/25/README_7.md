@@ -27,8 +27,7 @@ VA - Клубные Новинки Vol.468 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:E6F4017C466ACA253F7F216067171FDC10802F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Eluvium - Catalin (2014) [FLAC|Lossless]<Ambient>
 ```bash
 magnet:?xt=urn:btih:BC6B7683282678B6566BD5077A210DB60E3C237A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ VA - Клубные Новинки Vol.467 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:56F9355197AE5D3898338506F62E4B6E0FB06A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ VA - Miami Summer 2014 (2014) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:11FF750B17D81D807093928FB4FF97491228E919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Olegario Diaz - Basquiat by Night-Day (2014) [MP3|320 кб/с]<Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:195AB79A0496562F80A3EEA6C2D2C32E9431674F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ VA - Клубные Новинки Vol.466 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:57D93BCCC6301DF996AD3F368C1EFE8EA810A4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Peter Epstein Quartet - Polarities (2014) [MP3|320 кб/с]<Modern Creativel, Co
 ```bash
 magnet:?xt=urn:btih:675E973D4419F52B9B0D267D8F2BD555331E1D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Little Daylight - Hello Memory (2014) [MP3|320 кб/с]<Pop, Indie>
 ```bash
 magnet:?xt=urn:btih:6B1841BCF01880395DEFABE8B185D83A9D6A3069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9621233483D8503622AB7F5B5048830B24A0C2B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ Tembo умеет искать файлы, папки, письма, заклад
 ```bash
 magnet:?xt=urn:btih:3FB5D5E7688DCCCA855B9D6821075614E6440E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ VA - Клубные Новинки Vol.469 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:2C49B02402A18B95B20EB26B92C408449F1761D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ Silent Screams - Hope For Now (2014) [FLAC|Lossless|WEB-DL]<Metalcore | Post-Har
 ```bash
 magnet:?xt=urn:btih:0AC0A14C50BB834E4E591236B687BA76E53EF8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +404,7 @@ VA - Friends Trip - Compiled by Voodoo (2014) [MP3|320 кб/с]<Full On, Psyched
 ```bash
 magnet:?xt=urn:btih:017C7FBD034074DF8F8528BE9FF4BAAC9E5B2FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +438,7 @@ Biohazard Bass - Mutation (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:92C58FDF4E27D2A7273FEEBD228EFBE3DDDDE0D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +472,7 @@ Sienna Skies - Seasons (2014) [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:0A73887CE8F920BD0DBA068EE1B8BFCFBFE9CF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +506,7 @@ Le Cafe Bleu International - Plays Edith Piaf (2014) [MP3|320 кб/с]<Contempor
 ```bash
 magnet:?xt=urn:btih:32FE2358F6BF262D68C54F2CB4911F7DE80B5390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +531,7 @@ CoolUtils Total Image Converter - преобразует изображения 
 ```bash
 magnet:?xt=urn:btih:BD5B7D43E114D4471450202B45A95F0B4D9EAEF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +559,7 @@ Cookie  - Программа для полного удаления cookie-фа�
 ```bash
 magnet:?xt=urn:btih:F871133AB994DE6AF96BF0196EADFD889949A621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +587,7 @@ Mark Murphy - 2 альбома (1981-1989) [FLAC|Lossless]<Jazz, Vocal>
 ```bash
 magnet:?xt=urn:btih:CD8A8F601F6F61D58D7C44B14AD801079331EC0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +620,7 @@ Richard Evans - Breathe (2004) [MP3|320 кб/с]<New age, Instrumental, Relax>
 ```bash
 magnet:?xt=urn:btih:3AC35DA1C299650C275B1841528CC1663C618DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +654,7 @@ VA - Chillout Summer (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:B0F91DF578B9B3EBFDE8C44DDC905B2AD4FEF22C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +688,7 @@ VA - Sundown Cafe Chillhouse (2014) [MP3|320 кб/с]<Electronic, Chill House, D
 ```bash
 magnet:?xt=urn:btih:63F8BFF4188BD8F9919B1F305F9C981B862888A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +715,7 @@ Reader 2 для Mac самостоятельно «подхватывает» RS
 ```bash
 magnet:?xt=urn:btih:ABCBCF587A7E0AA59B76D78A0B24C5492AEF89A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +740,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99DD2506BECD30606C1DA159C91C3B6502362DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +765,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ Calibre - программа для конвертации и хранения �
 ```bash
 magnet:?xt=urn:btih:0457D0B6312EE3823F1BD5CBC5696D1AB28148A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

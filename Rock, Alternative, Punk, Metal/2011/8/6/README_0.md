@@ -28,8 +28,7 @@ Midnight - 3 Albums (2000-2008) [MP3|128-192 kbps]<Gothic Metal/Rock/Acoustic ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Velvert Turner Group - Velvert Turner Group (1972) [MP3|256 kbps]<Blues Rock,Har
 ```bash
 magnet:?xt=urn:btih:E2223A3748542A38D395D07CB3CECDB5D3D5B968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Peter Criss - 6 альбомов (1978-2007) [MP3|320 kbps]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ The Beatles - The Beatles Ballads (2002) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:E14CED402FDE3254D217CA0422F50B9E4C25D520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF959E8BED15498A10613DA09809626B6666006E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

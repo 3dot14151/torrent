@@ -20,8 +20,7 @@ meego os это дистрибутив linux основанный на red hat
 ```bash
 magnet:?xt=urn:btih:53EB002EB1EF5EA6B859BE583AA309F9CE425C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

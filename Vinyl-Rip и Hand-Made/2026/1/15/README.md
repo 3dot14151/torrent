@@ -22,8 +22,7 @@ Dust In Mind - французская рок-группа из Страсбур�
 ```bash
 magnet:?xt=urn:btih:2BC7784923DE601EE1EBA9E54CC396C0A7219F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Magic Gate: Faces of Darkness (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:4E520701CDE01DFC566A2A4C73E290A03A1DD27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Besiege [Русификатор] (2015) [ui] (0.2) Unofficical ZoG
 ```bash
 magnet:?xt=urn:btih:57573E4297C918C8583C3B9E894F135FC686813B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Valkyria Chronicles (2014) [Ru/En] (Upd3/4dlc) Repack R.G. Механиков
 ```bash
 magnet:?xt=urn:btih:B7EACAD1EB036BD18D37C8EA6578D16D19907D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Psychonauts (2005) [Multi] (1.1.603.0) License GOG
 ```bash
 magnet:?xt=urn:btih:753AE6A83C4D945391AB643746DEE94BC29E66A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

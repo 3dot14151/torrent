@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7A9342AA8348AC3B2ABD35C3D289B81C699987AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC4ED450B9292FF0F2448F81A1860BECB3D73A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ L'Orange & Kool Keith - Time? Astonishing! (2015) [MP3|320 kbps] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:C905171C84CF8345751DAE7FCEC6AD387D96F430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C55D6099C9F430D4E4C3BA738A181925C014B002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Jazz Loves Disney (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:5788A7C3AA0F47DE5DA629DD7C14F96C4798ED04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13C51CE27D199894C54B47223F246A6F759AE7F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ L'Orange - Koala (2016) EP [MP3|320 kbps] <Hip-Hop, Instrumental Hip-Hop, Trip H
 ```bash
 magnet:?xt=urn:btih:613F514E37A64BA068E9A284AB600B4D3AD39CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:440B69F72512F545F8EE8CE40B5B294535C5E04B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Cyberfox 52.5.0 for Intel + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C1A57EED88F1FE320A5DBD163A984BB2391AF091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Adobe Shockwave Player - плеер для проигрывания Flash-рол
 ```bash
 magnet:?xt=urn:btih:2F594D367C24A7009180811174AB46298CE9FA48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A5F5BB2F45490DEF321695F2FD87578B51C0363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02890B7091C2926A83C57CD143C8286E19A5372A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ L'Orange - The Ordinary Man (2017) [MP3|320 kbps] <Hip-Hop, Instrumental Hip-Hop
 ```bash
 magnet:?xt=urn:btih:9B548518D8D56C6FDDB2EE5B65BBACC7C9FDFCAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ VA - Jazz Loves Disney 2. A Kind Of Magic (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:0870B9D0A46BA534B80FA43444EA9915CFA950DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C56D0D35988E88D7EB3BAD906B0A2E4E3D257942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Elvis Presley - The Real... Elvis (The Ultimate Elvis Presley Collection) (2011)
 ```bash
 magnet:?xt=urn:btih:7AFB2A47C2C944874B88EE4275A34CB96340DA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16CDC4830B32C363C59FFC4E88C33AE6AC060781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ AnyToISO Pro 3.8.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:348C81C6ADBCEE982262BD59619A7EF9AAC99712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AFF87111254CC3E30D730A169DCD72EFBDF952E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D37C2673959AD1F94E042609EA7942901DF1980B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EEF79C8A81827B49C626567451EC0106CCDA9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:775658353C6EA33CF83DF82DC1A4E921BCF3E76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70DC9DD49374C79C25C6A67EA68EAF6F8167897E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ Live Home 3D, преемник Live Interior 3D, является мощным, 
 ```bash
 magnet:?xt=urn:btih:FD5A6C6B290D1F16DFE7539E705E4164BC2204A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ NGW: Африканская суперзмея / Africa's Super Snake (2017) HDT
 ```bash
 magnet:?xt=urn:btih:15E29EF0BB5CB38700A38BAD5BDFA74B1DB7612C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ Tipard Mac Video Converter Ultimate 9.1.20 [En]
 ```bash
 magnet:?xt=urn:btih:31A9F851185A663FEB16ADCDE0070D4DBB943D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

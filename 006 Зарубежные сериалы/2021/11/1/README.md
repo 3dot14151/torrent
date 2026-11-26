@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5E41C0F9C3C05C3A067A36752C9CD67AC1836968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Y. Последний мужчина / Y: The Last Man (2021) WEBRip [H.264/1080
 ```bash
 magnet:?xt=urn:btih:16C57414EE7CA761B626D32D1AB538F223A71664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Y. Последний мужчина / Y: The Last Man (2021) WEBRip [H.264/720p
 ```bash
 magnet:?xt=urn:btih:EAA45952795E821BC23F8E60B158D32A2B7E4496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05023EF5AD4A2C65996C161635CACEC3E7E50918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2430F5ADFD5950F71216A8F27E1A467C5BEC8287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

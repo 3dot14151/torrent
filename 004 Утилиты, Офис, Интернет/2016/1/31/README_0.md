@@ -19,8 +19,7 @@ iExplorer позволяет легко передавать музыку, фи�
 ```bash
 magnet:?xt=urn:btih:5ED776CDDD8ADAACF52E851DE0F3016A404FFAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3BD7097D9E4721ADF9F90F8F0B6761E0BE18C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

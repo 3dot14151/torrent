@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9183C3538EAB475A54B5ABBB5E8935E2080F029F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E5A52D385207376B43C492954EBB81272D71EB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Linux Format - первый в России ежемесячный журнал 
 ```bash
 magnet:?xt=urn:btih:63F9B626BBF68C99F7B7E503FDF1FF7A542264B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

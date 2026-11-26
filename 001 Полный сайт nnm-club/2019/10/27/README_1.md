@@ -21,8 +21,7 @@ Yotto - Hyperfall (Remixed) (2019) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:3F0097C44AA275C4E29366C9F2405B7C6161CB24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0493A8AAD86A60794B4AEB9F7FBB9A04F5F53725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - не Громкие новинки недели 40 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:852DD3C2518B55839BF5FB5189A97D27C1565F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - German Top 100 Single Charts 25.10.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B888D45EFA4DF5090CC199933F60A47769BE9B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Van Morrison - Three Chords And The Truth (2019) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:CA78D8B119EC826AAC8B858E6E15CA8CBF075039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDCF5EA54EE8A8CE6E947D8097390B9E8549B07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:426ECBDCF1B1234C25606FD50819932CC681725C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9169183E8D4A41EB13B3921726F893FCDBE011AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Abora 200 Timeless Favorites (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <U
 ```bash
 magnet:?xt=urn:btih:D18FA54CCE4C8346691D30B8E6C256E1158CAA44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EA9C2CC86CA942A52D46893E488EBF31EB46C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - Interchill Records presents: Compilations Collection - 25 Releases (1997-20
 ```bash
 magnet:?xt=urn:btih:9206E509BD8F0BC0EBA46EB01A93A1D7A9116F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Uta Kata | Ута-Ката [2004, TV, 12 эп. + 1 OVA] DVDRip 576p 10bit raw
 ```bash
 magnet:?xt=urn:btih:3EBF663C01513CDC0489CC0B5FD8EF2A90A6444B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ VA - ЕвроХит Топ 40 Europa Plus 25.10.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:DE56C7F64AE1B5ECFCECA48CE906315332D80C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Joe Bonamassa - Live At The Sydney Opera House (2019) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:986D487E7D86E25EE344F4FE80D540359585C6C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ VA - Future Sound of Egypt 600 - Sands of Time (Mixed by Aly & Fila & Ciaran Mca
 ```bash
 magnet:?xt=urn:btih:DCAEC42CA31E238C7B539B9DAF78DEC8DCDCC407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C16654DB449AAF862D3D6AAAC06872ABB7422308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ VA - Sleep & Massage Music (2019) [MP3|320 Kbps] <New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:362C8C8FE33127A2FF63D3C8936B65EE3EAB46DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ VA - Last Day Of Summer (2019) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:874C7988ED7759F5B112331B90021FBD564095B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FBED0F1BBC2DC7F56A8CA9D8005065D915019FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6645C6A4760A445EC3A347B03EAE170525B1AAC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ Adguard — это лучший способ избавиться от разд�
 ```bash
 magnet:?xt=urn:btih:7BA676EC6A5CDDE162D66124D9C3E5BFA0D35BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:488A3E9A1F2B7C70FC1F19902FB4C694AA338B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAB06CE5141D32669231AC7F0A33B576F10AA618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ```bash
 magnet:?xt=urn:btih:AD751C62FD38D79696607806E1C4D004C7BBD769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66D5829D4BE031E342101AC25349166E462E9792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17B5308711432228008326B351EE2FC9ADAF0041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

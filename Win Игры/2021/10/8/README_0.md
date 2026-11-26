@@ -19,8 +19,7 @@ GRIP - это крутой высокооктановый боевой гоно�
 ```bash
 magnet:?xt=urn:btih:B59288C67AD110F48FDAB9F00B19DE4F540B26E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Children Of Morta (2019) [Ru/Multi] (1.2.74/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:EBBA2B0AA21E31C0CE8AE6F5489D2A60503843D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

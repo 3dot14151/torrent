@@ -19,8 +19,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:A2BA336E2D63EF20C0779690DD1E8DD14979853F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

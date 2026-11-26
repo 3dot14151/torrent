@@ -25,8 +25,7 @@ Jesse Freeman | Introducing HTML5 Game Development [2012] [PDF]
 ```bash
 magnet:?xt=urn:btih:B47B9827AC3663DB6546611AE15044A69B81C229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B3FD9F281CA7CE7AEAAB1E843D9BD96A9DFA5A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

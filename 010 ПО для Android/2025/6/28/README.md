@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4057643DD9885C7D6B038E4D14E48417E8234951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HDRezka TV — это неофициальный клиент для просм�
 ```bash
 magnet:?xt=urn:btih:9756DCB742079C4FD8CD75BBF926EC50A609BB43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E12A20E7148FC3C140DC3B2B3194D041CF95A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wallace Wang | Pro iPhone Development with SwiftUI, 4th Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:9E1E779C04A58882E258166EFF56EA6A0F66EDB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sufyan bin Uzayr | HTML: The Ultimate Guide (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:1DBBC85B70D6B23757E24250A50521DCB1BA300D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Madona S. Wambua | Modern Android 13 Development Cookbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:221986CC7A095720E0FC065C769F6AF16BDF5BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

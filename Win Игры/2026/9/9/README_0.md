@@ -19,8 +19,7 @@ Unrailed! - безумная сетевая многопользовательс
 ```bash
 magnet:?xt=urn:btih:188033AC9B4D0CD4621F3E2899514759AE87BBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tiny Eden (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3AEE4EE203EDFF7A5F39C1FF7DE7C0FFF3D87F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rogue Blight - это 2D‑roguelite от студии CodeRadGames, объе�
 ```bash
 magnet:?xt=urn:btih:AD5CF534D1E3718CF49C5CF28E45BAFF152D3032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Star Wars Outlaws (2024) [Ru/Multi] (1.7/dlc) Repack seleZen [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:CAEE2E35074E3760E3E8FEA9D567931A2DBD1534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Far Cry 5 (2018) [Ru/Multi] (1.016/dlc) Repack dixen18 [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:C2FEDAE722AD51F83DE5B45163B85129015BA750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Prince of Persia: The Lost Crown - это динамичная метроид�
 ```bash
 magnet:?xt=urn:btih:EFBA15F67847AE4D42613DA46655BD291C49C59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

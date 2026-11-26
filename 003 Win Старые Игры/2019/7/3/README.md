@@ -19,8 +19,7 @@ MX vs. ATV Unleashed (2006) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8B027BACC1442FB46957791083BB48E12A11AD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Imperialism 2: The Age of Exploration (1999) [En] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:D3E54DED862542DE9E9A3DD40B40043CC5E8B612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

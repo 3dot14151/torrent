@@ -22,8 +22,7 @@ Blackball Bandits - Confrontation on the Extraterrestrial Highway (2016) EP [MP3
 ```bash
 magnet:?xt=urn:btih:34CFBC11BC7F623BE9313900E6E623032DAC70D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ GROVVES - Grovves (2017) [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Synth
 ```bash
 magnet:?xt=urn:btih:BA9C0BF0664A2D51D9D7A74809A9219E17C6A053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Useless ID & Тараканы! - Among Other Zeros and Ones (2018) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:E03AFAA00D324926F16999D7B6AD79D30B069090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Black Stone Cherry - Family Tree (2018) [MP3|320 Kbps] <Southern Rock, Hard Rock
 ```bash
 magnet:?xt=urn:btih:BBAB934EA5A43400270A90168FC5A2A671969FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Cars - Heartbeat City (1984) Remastered, 2018, Expanded Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:77AC7EE5924B581C41B4900F7FD67C6970B52B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

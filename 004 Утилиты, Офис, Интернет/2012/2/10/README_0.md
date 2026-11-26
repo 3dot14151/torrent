@@ -21,8 +21,7 @@ Exiland Backup Standard 3.2 Repack+Portable by R00tOS [русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

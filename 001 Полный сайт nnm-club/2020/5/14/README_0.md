@@ -21,8 +21,7 @@ Charli XCX - how i'm feeling now (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:9C1122F71D94F77B68C5ED8AC7AE12C7819C8643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ A4. Judy(   Читать дальше...   )Жанр: Prog RockПродолжи�
 ```bash
 magnet:?xt=urn:btih:CB9BBC79CA8F8E3021CDD157BAA86B78170D12AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Pop Jam Vol.03 (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:964CF629CB84780B72E636B9E17B9DE616D3ECE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Classic Latin (2020) [MP3|320 Kbps] <Latin, Salsa, Rumba>
 ```bash
 magnet:?xt=urn:btih:8CCE5D340061D9F9171AD9D99C42462B81E9B515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ YouTube Downloader - удобная программа-загрузчик для
 ```bash
 magnet:?xt=urn:btih:DE5A3ECCCE57E9BAF4418486F380EB0F2454B335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67F932B94C1E41A50CAB4BAA38936EBF97AB8D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Cardcaptor Sakura: Clear Card Hen | Card Captor Sakura: Clear Card Hen | Сак�
 ```bash
 magnet:?xt=urn:btih:DD70A6D72C4D3C8571D43010D61BBF31785B5748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Asian Zen - Yoga Reduces Stress (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C1F12188E390F2D006C1C8EEBF9652069669797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Albert One - Best Of Albert One (1998) [FLAC|Lossless|tracks + .cue] <Italo-Disc
 ```bash
 magnet:?xt=urn:btih:93FA5AADA9713451623AB7F7B28D5D483C0A34E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Asking Alexandria - Like a House On Fire (2020) [MP3|320 Kbps] <Metalcore, Post-
 ```bash
 magnet:?xt=urn:btih:25E3A2F6ACCE6BEB580D0845070B4C255B664C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Opera 68.0.3618.104 Portable by Cento8 [Ru/En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:1417DDACE2C029A02E3B93C3F7E9E7256F73C241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58BAA70A499C6E0FF07DD04815CD18B1594D5513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Albert One - Turbo Diesel (Maxi-Singles Collection) (1988) Bootleg, 2000, VAL Re
 ```bash
 magnet:?xt=urn:btih:93D8886B27DEAEFAB4327CB58ED597ED29C75EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF025063875B7A2ECEBD7D8B650E55F73F27EF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ NetBalancer - утилита, с помощью которой пользова�
 ```bash
 magnet:?xt=urn:btih:E3E34995E6FE6727462F6E32AE43A56D0ECC3C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Cardcaptor Sakura | Card Captor Sakura | Сакура - собирательни
 ```bash
 magnet:?xt=urn:btih:95330CAC285FFED717932486F4C3F782AFA6E254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:809DCEBEF6BFBCCBBEBCEE8AA922B567A9D7C1ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC613462CDBC07D602B90FD812FC36075140AA98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ VA - FLYWAYS (Compiled by Fishimself) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <P
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB24A2DC1524E53F57A32C858825895D322D33C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:7413915F83A2FBA1B54B742A8317545537F4E3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ Paradise Lost - Obsidian (2020) [MP3|320 Kbps] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:A58D66294EBD33A2FAF1F215E7C93D5CD1C1CC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

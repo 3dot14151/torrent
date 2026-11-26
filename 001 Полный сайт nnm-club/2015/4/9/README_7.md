@@ -20,8 +20,7 @@ OS X Server — приложение, которое можно добавить
 ```bash
 magnet:?xt=urn:btih:E839B12B74FBB7B2F93BC926FD58429DEFA446CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.0.0.3) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:9B97B033F2D9A5F3124FFE6A0F9EA11971D3CA72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Spring Framework - библиотека или набор инструменто
 ```bash
 magnet:?xt=urn:btih:87277EC4804B8468A95019AD2A86414EF04362F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65F3FD8D6FD2696CF4CE6BEEC5F073A650E53550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ StartIsBack Plus возвращает в Windows 8.1 полнофункцион�
 ```bash
 magnet:?xt=urn:btih:C17C990EC5FC946370FB7DA41D5DC7A35BC2F841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Metro: Last Light Redux (2014) [Ru/Multi] (1.0.0.3) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:1C2B95B001ED79FC6746B8791971A0905D8D2835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.0.7c/dlc) Repack R.G. Catalyst [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:2AEB514F9B1255017ABE1EB2A1C597345318C0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Dark Souls – это настоящий вызов усидчивости и с
 ```bash
 magnet:?xt=urn:btih:3C3A69AFB6F38C938E51C06985E875DDB5967AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - Дискотека Казанова Старые Песни По Новом
 ```bash
 magnet:?xt=urn:btih:229D79C475AFB730B64F6C4E70EADBF576E73A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FAD5C0500313D8FD6FB2F9A96F7D52A6C136055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Need for Speed: Undercover (2008) [Ru/En] (1.0.1.17) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:9D7A0242EFEC7D73533879BCF967DB270B5B0C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Dishonored – увлекательный и необычный экшен, в �
 ```bash
 magnet:?xt=urn:btih:B5F850670B6BD00ADA3BC9A72551D94ADD34579B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Crusader Kings II открывает перед игроками один из �
 ```bash
 magnet:?xt=urn:btih:C7BEE90AB1B7D0650E6B42917A41E58295BAED28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Need for Speed ProStreet (2007) [Ru/En] (1.1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:B684368CCD77F2F7B53091E64305C5109AD8A05C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:284D70930F85573C0C44890B90723510C036E823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ Embarcadero RAD Studio XE8 — это решение для разработке
 ```bash
 magnet:?xt=urn:btih:6F4BED3E26CC8D731759BD79DE5F3536FF93E31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A916B1A7F00289C71193AF4200BD8D9912AE998F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB9DEE27D79BBCFE068047C922593875F92360B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ The Evil Within (2014) [Ru/Multi] (1.03/2dlc) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:DEEDA549022434250BAE8DEBBC95C309737D4B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Garmin: City Navigator Russia NT 2016.10 Navicom [Ru]
 ```bash
 magnet:?xt=urn:btih:952205A8846CB39338B9FD5BC081CA17B745EDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3907DDE7348899069C7D9491BF6A86CAD91CD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:697447238073D32D14A3AF4B651F17C01F96E224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ The Sims 4 [Обновляемая] (2014) [Ru/Multi] License
 ```bash
 magnet:?xt=urn:btih:5694CF2B505724B6E77571C7D22CA07D3EEA3526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Nightwish - Amaranth (2007) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 ```bash
 magnet:?xt=urn:btih:FD26508BD3B166C56CEE4EAE2D3AE3280554D78D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Aeonian Sorrow - международная мелодик-дум-метал/ф�
 ```bash
 magnet:?xt=urn:btih:BBC99651D76B408754434EA309F642C11CC108EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ A4 Selfbetrayel(   Читать дальше...   )Жанр: Death, Thrash Metal
 ```bash
 magnet:?xt=urn:btih:84A798D0A79E7DFD2E82C5AB7B8BFE9F680A6644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ A4 Epistel(   Читать дальше...   )Жанр: Doom, Death Metal, Gothi
 ```bash
 magnet:?xt=urn:btih:A551BE8AFBFD6489BCCC7F1B25AE91BEFB1532FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

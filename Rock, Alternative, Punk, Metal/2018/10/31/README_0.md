@@ -22,8 +22,7 @@ Zumpano - Goin' Through Changes (1996) [FLAC|Lossless|tracks + .cue] <Indie Rock
 ```bash
 magnet:?xt=urn:btih:3C1863206B0B038E52B83E4255F7CD853E6F0A23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Yo La Tengo - Upside-Down (1992) EP [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:3F36E3B4FB43911AE749FBB187BADA5850A6D2CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Severoth - When The Night Falls... (2018) [MP3|320 Kbps] <Atmospheric Black Meta
 ```bash
 magnet:?xt=urn:btih:0343248DF6A505951EEB9FE93BADD507994E6778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Passion Pit - Manners (2009) 2010, Limited Edition [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:BB2786D519CDCBE68706B387E297C0BDC8B26AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ CD2 - 01:18:15
 ```bash
 magnet:?xt=urn:btih:D9E5B9C0D0D37A6BD1769D2D678D55B50AB3E825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Led Zeppelin - Fillmore West 01/11/1969 (1969) bootleg [MP3|320 Kbps] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:C95C908240F98F1674A8A4EE23F16ADCBEBCF1AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ CD2 - 01:16:59
 ```bash
 magnet:?xt=urn:btih:24A458EF788C970EB99FD80C217978B6CA7EDA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB859DAAA6638854AB9BA10B2736101E012F1BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ Nordic Union - Second Coming (2018) Japanese Edition [MP3|320 Kbps] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:542DD6127FE7CFA0391D85C20E715739BF45C800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED796A08C6804452860099993BC527E4746736D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ Pink Floyd - The Animals Recording Sessions (1976) [MP3|320 Kbps] <Progressive &
 ```bash
 magnet:?xt=urn:btih:C58F2D9ACDE8691EDFF535933654AB7D24BE6DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Robert Palmer - Collected (2016) 3CD, Compilation [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:241E1251153ED60763C2D95E80608F07828C2A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

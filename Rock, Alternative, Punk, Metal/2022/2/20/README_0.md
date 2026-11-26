@@ -22,8 +22,7 @@ Enuff Z'Nuff - Hardrock Nite (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7C53FA047B3736C0E1891FA8FF9E671834867F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vega - Anarchy And Unity (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock,
 ```bash
 magnet:?xt=urn:btih:760A5A71650F67B25B89E4318AFD92E6AF97DC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Zelbo - In My Dreams (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 ```bash
 magnet:?xt=urn:btih:9FFE12E4E4B08A851D278D67E4BDD20437473794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ NorthTale - Eternal Flame (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:99FE48FA2FD21A0DD59B8EB9AA53BCE4FC7FAE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bite The Bullet - End Of The Line (2022) [FLAC|Lossless|image + .cue] <Melodic R
 ```bash
 magnet:?xt=urn:btih:3BABD9CC46B48817CFB9AD2422C01203CE3E01D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - 25 Years Metal Addiction - The Rare & The Unreleased (2021) 2xCD [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:645DFB2C368D3EFEF813A9B2621D0CC632089127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Sonata Arctica - Acoustic Adventures Vol 1 (2022) Japanese Edition [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:3759F5D9605C99429AA69C3D46B8F006F747725A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Rian - Twenty-Three (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:C605C7CBEA689DAAD5F2D4C073D48AA17B2592E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Disc - 1(1969-1978):
 ```bash
 magnet:?xt=urn:btih:FA6AB84D2DEE7C68A6E721FBD1420921C120E787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Nightwish - Decades (An Archive Of Song 1996-2015) (2018) 2CD, Compilation, Rema
 ```bash
 magnet:?xt=urn:btih:E1AE51CFBE371231D55347953FDB5A98F92B2DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

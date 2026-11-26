@@ -19,8 +19,7 @@ The Uncertain: Episode 1 - The Last Quiet Day / The Uncertain: Эпизод 1 - 
 ```bash
 magnet:?xt=urn:btih:4521F8F48C54B27393FB42A9B8F23C5C2C3F5056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Quadrant (2015-2017) [Ru/Multi] (1.53) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:17FB398B371E1DD981F4B22816BF49FC1D3247AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ God Eater 2: Rage Burst является самостоятельным допо
 ```bash
 magnet:?xt=urn:btih:8345E35A30EC5EC02AC1C76D508E411FC8C7B9D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

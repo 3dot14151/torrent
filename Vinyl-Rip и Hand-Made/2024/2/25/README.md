@@ -22,8 +22,7 @@ VA - Александр Зацепин, Леонид Дербенев - Песн
 ```bash
 magnet:?xt=urn:btih:A07E7EFD82AE6DE81FEB18A9F29D62684A271157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kyuss — американская стоунер-рок-группа, обра�
 ```bash
 magnet:?xt=urn:btih:B93F25AEA29F1A18F38064095A3A9A56D4AB36F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Side 1
 ```bash
 magnet:?xt=urn:btih:C22259174722198FBDA1B17E0E78CA4C4919794A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

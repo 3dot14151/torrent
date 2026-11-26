@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3CDB4E22CEC0AACB96E8DBBF0FE7635B6A8C6DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Chernobog - Vlidoxfato (1999) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:E72292AA6666EE5F27C81E07300B932E3267FCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Al-Namrood - Kitab Al Awthan (2012) [WavPack|Lossless]<Oriental Black Metal>
 ```bash
 magnet:?xt=urn:btih:1AD4C7081D5873F14ADDC7BC07DFEC58FF1ACB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Tenebris and Ordalium - In War We Trust (2005) Split [FLAC|Lossless]<Melodic Dea
 ```bash
 magnet:?xt=urn:btih:772C7F964673090F52ED941D86A72F262F0BE9B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Buried Dreams - Necrosphere (2002) [APE|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:F8291B7C7FFE78810DBE0BD5B0B4B88B8FE0932C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04315F79BBE509E2573CE4CFF3DEC4BCCDA40570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ VA - Electro-Electro, Look High BASS (2013) [MP3|320 кб/с]<Electro, House, Pr
 ```bash
 magnet:?xt=urn:btih:B461969E746001B76AACAD12661AA73FEC7578B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8F80109A5D9AEF6C213F68A05907258F26E62A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59BD825C6EB274B04BD8319B75B8655DA05CB497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ Discovery: Патрик Демпси в гонке Ле-Мана. Серия 3 /
 ```bash
 magnet:?xt=urn:btih:3BE205DFA03BDD9D0943FA224890FB3D6A86C7A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ DelFly Explorer - первый миниатюрный летательный а�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ Discovery: Патрик Демпси в гонке Ле-Мана. Серия 2 /
 ```bash
 magnet:?xt=urn:btih:078BA811BD1E9060F676459ECC048EBE425094FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +393,7 @@ Banco De Gaia - For Such a Time (2013) [FLAC|Lossless|WEB-DL]<Downtempo, Psychil
 ```bash
 magnet:?xt=urn:btih:DB948881896CFF30CD1EBA020918A7BD8F03F02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ Ashampoo Snap - это идеальное решение для быстрого
 ```bash
 magnet:?xt=urn:btih:BCF756C264110C928FEBCBC48520A915E67DF391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42F42FC032B055B50FF2DB023D469B4E2AB2EE91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ VA - Exotic Wafture 2013 (New Year's Eve Special) (2013) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:87522309A98F4591BCB57311D04957C02FEB7D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ Steve Wingfield - Cozy Christmas (2007) [MP3|320 кб/с]<Instrumental, Easy Lis
 ```bash
 magnet:?xt=urn:btih:9EF690251A6B4074C15CD62DDADA20AEB9959CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +546,7 @@ Monica Ramey and the Beegie Adair Trio - Monica Ramey and the Beegie Adair Trio 
 ```bash
 magnet:?xt=urn:btih:A74341259FC34B8185EBE86FD11666B33AF3BB94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BFB2D50363A62FBAA60183737C296967D2BF65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ Riccardo Scaramelli - Thunderproject Vol.I (2013) [MP3|320 кб/с]<Melodic Heav
 ```bash
 magnet:?xt=urn:btih:BB8E47937E3A0B4054EA378ADA65050D2F210E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CCEBE059C6F48F49FC89BBDFB1731E998AC86D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F28F14CC2B2A2B84ECFC25919006CF555969F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD46F840067E3BCEFC65A1E2C2949AD45D006AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC6AC45908B0FFE888A2A8C197C03BA421E39498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD204262A936EBB1D8DFC0889F6F894FDD46D903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

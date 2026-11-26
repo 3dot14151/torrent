@@ -19,8 +19,7 @@ DREDGE (2023) [Ru/Multi] (1.4.2/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:861A378197F454538B639B025CF8A6E044F99D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Shadowsocks - это надежный socks5-прокси, разработан�
 ```bash
 magnet:?xt=urn:btih:E5EF1CFDE0321C9E053998D63730986C2A2C51E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

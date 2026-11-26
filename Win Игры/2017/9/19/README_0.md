@@ -19,8 +19,7 @@ Myths Of The World 12: Fire Of Olympus / Мифы народов мира 12: О
 ```bash
 magnet:?xt=urn:btih:AF857EC43F8AA9A32B338824E3833FD5926B622B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Transformers: Fall of Cybertron / Трансформеры: Падение Ки�
 ```bash
 magnet:?xt=urn:btih:2B83891ED54B5D230D7CAA56945E7F3DF27A69DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Don't Knock Twice (Не стучи дважды) - игра-хоррор от п
 ```bash
 magnet:?xt=urn:btih:2AF3742930E16848A3F89C48F1399ED9584C80F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ECHO (2017) [En/Fr/Ge] (1.0) Unofficial CoolGames
 ```bash
 magnet:?xt=urn:btih:4820F06491698E6CEB5D89689C11B95721F401FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

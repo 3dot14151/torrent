@@ -19,8 +19,7 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
 ```bash
 magnet:?xt=urn:btih:E8614647E01921281F8F6F9F33F0FE03AF8128DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

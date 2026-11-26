@@ -22,8 +22,7 @@ Liam Gallagher - Down By The River Thames (Live) (2022) [FLAC 2.0|44.1, 96/24|WE
 ```bash
 magnet:?xt=urn:btih:5F3CEDB4FF1C88D51FD6009E358B7D78B44386FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Motionless In White - Disguise (2019) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Industri
 ```bash
 magnet:?xt=urn:btih:4705B72A7465BD7202001D9DA4623938D0E05641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:398EF1DB15C4F98B261CC57944CB021023E61D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

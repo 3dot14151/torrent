@@ -22,8 +22,7 @@ Neuraxis - Asylon (2011) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:1CE08653D2E91860180F2AA1D7CDFB46433CCBC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Universe Infinity - Rock Is Alive (2018) Japan [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:B25B2A5480696463E81ACBB76D872E8E93FFD54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Inquisition - Demonic Ritual In Unholy Blackness (2018) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:DC868D93C4298D15A48FE58098FC88B165E1BF81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Icon - Right Between The Eyes (1989) [MP3|320 Kbps] <Hard 'n' Heavy>
 ```bash
 magnet:?xt=urn:btih:92373CFFFC0155BCD0A75B62A4F96D472DEA5955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ From Ashes To New - The Future (2018) [FLAC|Lossless|tracks + .cue] <Alternative
 ```bash
 magnet:?xt=urn:btih:78B9327457AC4CB469B345D6D06E9162DAD2F3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

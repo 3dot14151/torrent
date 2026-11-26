@@ -28,8 +28,7 @@ Glenn Miller And His Orchestra - In The Mood (В настроении) (1986) [F
 ```bash
 magnet:?xt=urn:btih:3506AD86D277BA081A4056E040088901F8A5AFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Santa Esmeralda 2 - The House Of The Rising Sun (1978) /Japan/ [FLAC 2.0 24/192|
 ```bash
 magnet:?xt=urn:btih:CB796933E640E783E07B4F131D47B3A0BE8BE32E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ F.R. David (Elli Robert Fitoussi David) - французский певец ту
 ```bash
 magnet:?xt=urn:btih:382EE2380966A55CD7FA478149FEAD23214D5FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ V.A. - Metal Ballads - Vol.1,2 (1988,1989) [FLAC 2.0 24/192|image (Vinyl-Rip)]<R
 ```bash
 magnet:?xt=urn:btih:A9C454CEFDB60A3078935197D71FBFD61D67AE49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

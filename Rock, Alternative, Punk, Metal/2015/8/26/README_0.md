@@ -22,8 +22,7 @@ Chris Randall (Sister Machine Gun) - The Devil His Due (2007) [OGG| 424-522 кб
 ```bash
 magnet:?xt=urn:btih:A77131B0E76698BA53AD3CB0EF4D34CB398A22D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sister Machine Gun - The Future Unformed (2015) EP [OGG| 499-530 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:C87193A3DA88EA56C142F213C7CE72AF4F16A91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pillar - One Love Revolution (2015) LifeWay Exclusive [MP3|320 кб/с]<Alternat
 ```bash
 magnet:?xt=urn:btih:4BE46A3B383927D844A096D0072F67BA329C6BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Styx - Gold (2006) 2CD [FLAC|tracks+.cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:8D08FA5DCDDE3C39B28C97E8FC2D0FAED19DC284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Santana - Greatest Hits (2012) 3CD [MP3|320 кб/с]<Latin Rock, Blues Rock, Jaz
 ```bash
 magnet:?xt=urn:btih:43B171162317958C5B192C6E27F489B1F2A374E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

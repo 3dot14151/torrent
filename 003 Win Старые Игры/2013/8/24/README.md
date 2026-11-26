@@ -19,8 +19,7 @@ Pike: Операция "Громовержец" (1996) [Ru] Repack R.G. Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Lord of the Rings The Fellowship of the Ring game / Властелин Ко�
 ```bash
 magnet:?xt=urn:btih:5B8F4AB5714E218514FBF780F3681F6612505F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

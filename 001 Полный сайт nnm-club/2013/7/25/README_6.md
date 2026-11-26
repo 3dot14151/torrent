@@ -18,8 +18,7 @@ Rugby Challenge 2 (2013) [En] (1.0.0.0) RePack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:DCE092AAC047A2C89132ED6E52C51A1E6247A3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F853F70B6BC0998B9F48CB0FB63A1ED26FE696C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Deus Ex: The Fall является началом нового путешест�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Microsoft Security Essentials - антивирус от Microsoft обеспеч
 ```bash
 magnet:?xt=urn:btih:924D6C1AEE7CEA87125528E25BC51BD2046CC005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ HD 1280 × 720
 ```bash
 magnet:?xt=urn:btih:212CF8931D315B95BA57F65F7D44A68BA34C13EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Rugby Challenge 2: The Lions Tour Edition (2013) [Multi] License FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:3116AEAFB459A789C31B72EFB020CA5979792C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BC3D0A507E0FE4E1BCDC699F74D94A77AB20CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Trondheimsolistene - In Folk Style - 2L Audiophile Reference Recordings (2010) [
 ```bash
 magnet:?xt=urn:btih:951E644A9CF7BB4F93CA8F50EF2A2D3A48A21458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ ACDSee предоставляет вам более широкий выбор р
 ```bash
 magnet:?xt=urn:btih:080A20E6280EEB381241BCCF894AAF001296CF95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:664D1D57D5AA7A871DE5C3691DEE9B578615E7EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Rayman Origins (2012) [Ru/Multi] (1.0.32504u1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:ECD12012C4104B1C8420FAF1B52768BCC64D02BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Action Launcher преобразует концепт лаунчера на Andr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ G Data AntiVirus 2014 - мощный антивирус с двумя движк
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:451DCAB16293005530E9C41C53CBFBB6F7EA9F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88BEE402A4C3A2AF4F1BEDA68BF796F7686951A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5027C91018B16865ED7D7A8EA5D1D97730B089B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ The Raven — Legacy of a Master Thief - это увлекательное кр�
 ```bash
 magnet:?xt=urn:btih:4E35BEF5044405D7386B98BC585C2A93D941AB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ NASCAR The Game 2013 создана по лицензии NASCAR, что зна�
 ```bash
 magnet:?xt=urn:btih:9D864B80DF28EE6485AE0169F39206C157BDF277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Pacific Rim – это новейшая игра-файтер в стиле эк
 ```bash
 magnet:?xt=urn:btih:4C58388819088CDE6FD58380509B1780E13BAA89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B9517E0F735AFFDDAEF8D4D629B69706315B672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ PayDay 2 – кооперативный шутер на четырех игро�
 ```bash
 magnet:?xt=urn:btih:B5A8783F2B523B8D10BDCCFF4C02D1208693AFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ Game of Thrones / Игра престолов (2012) [Ru/En] (1.5.0.0/3dlc) Repa
 ```bash
 magnet:?xt=urn:btih:4449BF4A3EC00F186A943A8DA05A05390ABF2A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ Tor Browser Bundle 2.3.25-10 [Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ Grand Theft Auto IV (2008) [En] (1.0.7.0) Repack AGB Golden Team
 ```bash
 magnet:?xt=urn:btih:3423E65A5CE65161C7B446CC351442F446D57F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ MultiBoot USB Utility and Windows v13.07.00 [Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

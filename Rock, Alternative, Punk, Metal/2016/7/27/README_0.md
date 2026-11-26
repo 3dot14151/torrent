@@ -22,8 +22,7 @@ Godsticks - The Envisage Conundrum (2013) [FLAC|Lossless|tracks + .cue] <Crossov
 ```bash
 magnet:?xt=urn:btih:234417CDB1516668BC95D2A566ACE6C5A2D722FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ride The Sky - New Protection (2007) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:85A93527DDF11869E3CDAF5C3334C5D75A86FF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gypsy Pistoleros - Welcome To The Hotel De La Muerte (2009) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:763A50BDFB374F21EF136B12BB43C6BA767AB12E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Cars - Moving In Stereo: The Best Of The Cars (2016) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:9CB0E56D1D038C08BB0844CFC2BBF9EF26102670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82A1B433734AF7CA5408DC7F4A7F053C56553A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

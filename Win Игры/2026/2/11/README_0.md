@@ -19,8 +19,7 @@ Crisol: Theater of Idols - напряжённое приключение от п
 ```bash
 magnet:?xt=urn:btih:364473773F09D4C6D2BD0C20307A6343863C2E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

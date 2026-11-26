@@ -21,8 +21,7 @@ Tony Levin - Bringing It Down to the Bass (2024) [MP3|320 Kbps] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:ABC753C2018E29B9282C21122E609590F3ED7D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:9BC4AA039765E87A6168F52BEB22A129257D55DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:044826A03CB77C556211A3B330AF55C95249EE9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Vivaldi 6.9.3447.44 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:72BCD1A24ACF5A4150714C34B6A388D3F8D65278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

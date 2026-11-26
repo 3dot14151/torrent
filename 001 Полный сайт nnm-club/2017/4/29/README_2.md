@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4CC6B4426518E3C17246B49C3C395ABD71003132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:912662BEFB5B43A4CC7034F343B43008141F21D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Deuter - Immortelle (2016) [FLAC|Lossless|tracks] <New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:F802343E703FDC1BFD7257E6653BB79D8499E883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:6906B8F49C3FF7E6534980B7FDAEE250F10E48BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70116A62767EEAB36D4711A62AB08D7C4710223F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ M3: Sono Kuroki Hagane | M3 The Dark Metal | M3: Чёрная сталь [2014, 
 ```bash
 magnet:?xt=urn:btih:8ABC00DC7C0455D0EE2C625E1055CE0B9BF6601D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Jinsei Soudan TV Animation / Jinsei / La Bonne Vie / Советы по жизн�
 ```bash
 magnet:?xt=urn:btih:95616701ED46F66C1708F6A42429A6723DD87799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electr
 ```bash
 magnet:?xt=urn:btih:C504A049E721CFEAD4ACCA3A2B7A7C1673F9B767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0132F73C20F7A5B4062E744ABF1278447DC2C851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Opera 44.0.2510.1457 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:24E58D053AF9375EB3BC998CE0B691E64E27DF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Cashmere Cat - 9 (2017) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:64E812BDF1FE940497D6FD8F377AB1DC2C93BBBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:C864027638BC5E00895B35719BEA924CB6C2869A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE1790380B961E31C85569892E884A5C41E8DDA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Den Harrow - The 12'' Collection 1984-1987 (2015) 2CD, Limited Edition [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:5FFD35017B44D97CAF71E5748C9C958163BE343A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE2125740B5EB8D85238041C932DA38B8F8AF777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3BFB6C655CC7E0F66814E7AA2F65692B0AD49B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E230FDB10E3E3F76228C5CBDF2F78201C3B3749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Driver Reviver – это приложение, которое проскани�
 ```bash
 magnet:?xt=urn:btih:D0DDC778CAB6E8A2DAA0CB2F26A316A7F41B892D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B0C38B2DD99A14AFC245A0875E7A7E4B6EEE9FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ Conjure One [Fake Enigma] - Sleep (2003) [APE|Lossless|image + .cue] <New Age, D
 ```bash
 magnet:?xt=urn:btih:EBE16ABB3B499C60364A9648F89CE1AF79DCABDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:861F89BA2DC8052670BC71B19868252662FF6048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ Luigi Boccherini: Sonata No. 1 in A Major, G. 13
 ```bash
 magnet:?xt=urn:btih:748254FC3FC313E75A9D1F9AC04B520C8731379E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ O&O Defrag - одна из самых известных и лучших про�
 ```bash
 magnet:?xt=urn:btih:6D8C2AC2B44A9DE3FF2B451B2B36890937FB9987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ Cent Browser - является усовершенствованной верс�
 ```bash
 magnet:?xt=urn:btih:74FBC93D0CDF1870136EB824F777B8A10AF2CC46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ VA - 100 Hits Sunday Morning Songs (2017) Box Set, 5CD [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:2B187667912098D3F6F8FAD72AF6995110B2BC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

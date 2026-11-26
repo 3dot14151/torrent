@@ -21,8 +21,7 @@ VA - Compilation Part 168 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:CC105876DF687B84F0F8751F898BE16D78A21A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6F60E248A19D5096A29BCC48627770A403B1824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [FLAC 24/44.1|
 ```bash
 magnet:?xt=urn:btih:3C8F257C9877839346E3B6F206CC401943FC2773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Saxon - Eagles Over Hellfest (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 ```bash
 magnet:?xt=urn:btih:2D704BB31725FAD4652A32938CC7B80DD9F4DF8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:4F980F0C57867BC33EDDBECB6356BE8BF9366C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ The Veronicas - Hook Me Up (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Roc
 ```bash
 magnet:?xt=urn:btih:B515FFF5A0FCB12BCC1FBD54E64E4152B1E79747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Highsociety - Datamosh (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, 
 ```bash
 magnet:?xt=urn:btih:9FE126F7714FE8F66C07A82108B219D252A26C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Our Lady Peace - Clumsy (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock, 
 ```bash
 magnet:?xt=urn:btih:D1BC670F98C805AB2A2D2CE677DA183558C63B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ The Beautiful South - Welcome to the Beautiful South (1990) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:F84150524A5162D13A693E487828EA7B7FD1C63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Kings of Leon - Only by the Night (2008) [FLAC|Lossless|tracks + .cue] <Southern
 ```bash
 magnet:?xt=urn:btih:829C2F4E6A5793440B33C1F7800673AA6B7965AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E264965FB249A84DF3AE1A66E84046E669E8C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ NoiZZy - Dreamland (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:FCAB9B9618EF77C098A267E67060A1D733AD6BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Saxon - Eagles Over Hellfest (2025) Live [MP3|320 Kbps] <Metal, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:88195AF8279CDB19ABDFC0FB8FE3D1FC51093D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ ARTY - Live @ Audio (San Francisco, United States) (2025-05-24) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:E9217FCD63EF317AFC6578EB2858E6B8365E9024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0DF53FFAA1737C20331132067A6AD16FDCE2A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Insania - The Great Apocalypse (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 ```bash
 magnet:?xt=urn:btih:FCB83541CCE621F78A1D31E49E073CCFB5CBFF76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Del
 ```bash
 magnet:?xt=urn:btih:8DD186B90C38262D9E9288FED5988E4CDD8483BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Neil Diamond - The Best of The Movie Album (1998) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:167F7E0900F4980E3593A980BD8E607ABB4EC818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:5229224C856971504507DB44B3B63871D46C71DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance
 ```bash
 magnet:?xt=urn:btih:D897B35CE14A6C84A3BECE75FA115FB025B8441D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Li
 ```bash
 magnet:?xt=urn:btih:AFBB0871E67DBDEB3213813A991B4D588FA1F0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordi
 ```bash
 magnet:?xt=urn:btih:798DBFC6222AF8BC193EC504AF5962434DBE9CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Del
 ```bash
 magnet:?xt=urn:btih:EAC64DD849B80A6240FA137917792218B41290FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Li
 ```bash
 magnet:?xt=urn:btih:931A31D6D0882E4EB028D82D22E965D6F669784F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42CF34FE8CC0BA843281ED831D81BD7B407DC33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F97954E6A7EC35C1D3C5AE7A5EAFD95A4AAD303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

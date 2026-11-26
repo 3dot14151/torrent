@@ -20,8 +20,7 @@ Babooshka - Чёрный список (2023) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:DE3E0C6DFB21973B0398DAABB1156842E2DB1424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ VA - Heavy Electric Guitar (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:3E9DFCB433C2DC7970F6DB77041DBE1709CBB971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C5BFCC3384077AA232166BADF74D0FC07C433BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Rash Panzer - Liberation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard
 ```bash
 magnet:?xt=urn:btih:2390E9F99547C8F93FAA9535139DF752B25D3FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Iris Official - Heart Of An Artist: Resurrection (2023) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:71488B865E0EF020DD0A28429325D9433DFC24C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ VA - Heavy Electric Guitar (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:6025930D7BDC49E1292CE413EBC7F03F649F825F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Heavy Load - Death Or Glory (1982) Remastered, 2019, Reissue, 2023, WM Sweden [F
 ```bash
 magnet:?xt=urn:btih:E28EA4569FB1FA794C8CF600861AEB241A90CDD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBD23DA7BEA95FA43AE95FEF640414FD4091E374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BBF7E7519CADCD05C40238E69A3BAEB48A61472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Holy Giant - Diviners & Dividers (2023) [FLAC|Lossless|WEB-DL|tracks] <doommetal
 ```bash
 magnet:?xt=urn:btih:6D45B68665BD096ABF9B0D849858B537B59190B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67B29684DF14A9A0319CC9715C62BB35D217B484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Impress - Враг не дремлет (2023) [FLAC|Lossless|image + .cue] <Thra
 ```bash
 magnet:?xt=urn:btih:FFC61739ED3C3CDDBA4C21447446C7EF90790225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Avenged Sevenfold - Hail To The King (2013) [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:EF8B95F9E044605E005C6CEFF7FC1F22C097145D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Valentino Francavilla - Midnight Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 ```bash
 magnet:?xt=urn:btih:B06D6A16FD4E984666AA27D7E82106F612634C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15980C103ACAA2FB3368D7DDB0581BBB75A93B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ Lissa - Гости без будущего (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:A998CB94DF7206062AF779FC15CB980F2BFBC07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C250823CA40E7B95AA522F74E62820C485C4BF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ Consume - Genetic Waste (2023) [FLAC|Lossless|image + .cue] <Death Metal, Grindc
 ```bash
 magnet:?xt=urn:btih:5A7DFA32993E561C1C180921AF21E11BA3C36A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ VA - With Us or Against Us (1995) Compilation, Napalm Records [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:C5E843A9B5EDB0C98C1D22448DAD3D7FA7F436F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ Dusk Chapel - Astrophysics And Abnormal Activities (2022) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:213D10D6A058A82178063FF1BD53FE8011C48292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +580,7 @@ Illt - Mercy Of The World (2022) [FLAC|Lossless|image + .cue] <Thrash Black Meta
 ```bash
 magnet:?xt=urn:btih:2E1465C94757256396A2E0FD18B0CC878B48DDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +608,7 @@ Gravegod - Promised Graveland (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:D0B05119AA6FF759B99E599329F8879F3E87D5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ Shamayna - Shamacaine (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Me
 ```bash
 magnet:?xt=urn:btih:E92D33EC5618FDC9730BF69C5734F7DA6A66E647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ UseEye - Stoned Mental (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal,
 ```bash
 magnet:?xt=urn:btih:02026E849E59F78EBE4B5B6B668E540C5AB8F117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

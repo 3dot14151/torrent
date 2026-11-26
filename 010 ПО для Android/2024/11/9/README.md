@@ -19,8 +19,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:75EB6CBFE999BFADC36A73E27B1187D794B16211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PhotoRoom v5.5.6 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:441D48B4D954658C03E9AD1522C30FE1CC05CFD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VivaVideo - это простой в использовании видеоред
 ```bash
 magnet:?xt=urn:btih:8F8A627EC0FAB626642D6297AC92778C1430072D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4683A5BFD0055A5BFBBDE2F1476A72794FE67FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6AFD5738676149A482C436D83C021E3331BD2CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Stellio - продвинутый плеер, с мощным звуком, по�
 ```bash
 magnet:?xt=urn:btih:5F405EAB57C4E1935D133ED634BC06D5094D81D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ PicWish — фоторедактор с искусственным (   Чита
 ```bash
 magnet:?xt=urn:btih:7F4070C66FB379F58ACE7CA38F6332F104A53FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ PictureThis - Plant Identification v5.0.11 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:611A18381D442F41D6D307CA37575BD2C76B99D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Listonic / Список покупок v8.14.3 Mod by NURIK kz [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0F3CC1E9027A684F55F336837D5FA0F2C5E6C059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

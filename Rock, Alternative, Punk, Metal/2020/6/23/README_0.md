@@ -22,8 +22,7 @@ Binary Code - Memento Mori (2020) [MP3|320 Kbps] <Deathcore>
 ```bash
 magnet:?xt=urn:btih:60A358888D2265CBB66206348CE40661A272A091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Oceans of Slumber - The Banished Heart (2018) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:A3E0E05EF2038EE8B415DC8FF578384D63C51445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bob Dylan - Rough & Rowdy Ways (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5C7CEB015780A55A67C3EF4FB6E3B48B24B8AF4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

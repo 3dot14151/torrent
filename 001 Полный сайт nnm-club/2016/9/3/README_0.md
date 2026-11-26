@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CF6996696C3A9C16D887512DBF98D4EE2E007793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97E2B9A1C1D0F69711C9D39E7D78165C037A2678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ The Quireboys - Twisted Love (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8E719F6ABECEECE23EE9C755C8EB890259B5C759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18F3B8E2BAEC755B35382F9EA499D496E18E5A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Trance Aliens (2016) [MP3|320 Kbps] <Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:AF7D77F9A7E278F9D861EFF07F54873CE7A0085A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CEBAA26219C0F48806DAF18EDBD26F6A0FD1EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ VA - Shine 3 (1995) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:B7090C7178DB0DF6751050FCE0F0CA47D0BC4E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ NG:Армия львов: Битва за выживание / Lion Army. Battle
 ```bash
 magnet:?xt=urn:btih:3A91EA1BB83C2155AD0CF9588DDE34DE7C35E8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - Beatport Top 100 Tech House August (2016) [MP3|320 Kbps] <Tech House>
 ```bash
 magnet:?xt=urn:btih:610B948FC814F11B2222E90BBA94D24A37C7316A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Money — приложение, предназначенное для упрощ
 ```bash
 magnet:?xt=urn:btih:8707C3423929A656C5602B308EBD0DB40B2661F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D0293CAC3BF0D9DFAD1FBDBD927059BEBEE64A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:674DF66D2EF38D31B30B3A6C87C70F372B6E3D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Flip PDF - программа, которая позволит произвес�
 ```bash
 magnet:?xt=urn:btih:E29359AB65BE84661CF79DFAB6E5BB6BAE8057B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ Get Backup Pro - Универсальная утилита для выполне
 ```bash
 magnet:?xt=urn:btih:B045BFBF5E7F8054EC6244A0053CC7AD497FF05F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82F8552FDDF39ADF9DEC16AB941EB3E827D65677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DC9659DAF40016E80106FF839B3AD720E175ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ Armin van Buuren - A State of Trance 779 (2016) [MP3|320 Kbps] <progressive tran
 ```bash
 magnet:?xt=urn:btih:A62E5C7A8A18F318A1EE74715E4F4928A862B812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Rocking Rolling Living Loving Band - Thousand Percent Touch (2016) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:910A489D50CBC49F0532341949D8720EE64ED550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD74E6182455D0391D3F21389DDE9AB27C08C1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E8F2B8378C143F6FD3BCB801DFC6EB62ACF44C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ VA - Ibiza Deep House Essentials (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:F614C382E2B612FB3CD10D49591339355EBA927C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Brian Bennett - Voyage (A Journey Into Discoid Funk) (1978) LP [MP3|320 Kbps] <E
 ```bash
 magnet:?xt=urn:btih:52C38E735ABFFB14CBC2EBECE2B0AE251F4DD45E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ Artur Mena - Sabia Medicina (2013) [MP3|192 Kbps] <World: South American>
 ```bash
 magnet:?xt=urn:btih:D262544E6A28FF8D541F07E00A4C7B5FC7627541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ VA - Beatport Top 100 Deep House August (2016) [MP3|320 Kbps] <Deep House, House
 ```bash
 magnet:?xt=urn:btih:3FE074A4F14F698B67BBBC2E85E00F65A0D648C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ VA - Hits Disco and Pop Dance - Part V (2016) [MP3|256 Kbps] <Pop, Rock, Disco>
 ```bash
 magnet:?xt=urn:btih:7347319BE149D2ACB5DC6080889BE474A6D468E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ VA - Sports Club Charts Vol.1 (2016) [MP3|320 Kbps] <Trance, House>
 ```bash
 magnet:?xt=urn:btih:DDED355619E74BD7F44E8703B763194B8D1FB058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

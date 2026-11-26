@@ -19,8 +19,7 @@ Giana Sisters: Dream Runners – это скоростной соревнова�
 ```bash
 magnet:?xt=urn:btih:332C75AECA214A5E32BE557FAFD01172770170EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ The Souther-Hillman-Furay Band - 2 albums (1974-1975) [MP3|320 кб/с]<Southern
 ```bash
 magnet:?xt=urn:btih:3E07B4B3652A84B28D62CECCD6222BC2205296A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Leaf Hound - Growers Of Mushroom (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:637860C356B123F42C05CE6B9607103E5B0DAB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Rod Stewart - Time (Deluxe Version) (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:9ED6EA8EF3DEF32D9D6BC511B237CE851C3E66E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0258B6305A43720F0BADFDDD6D1F53A8BE85618B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Dreamtale - 5 Альбомов (2002 - 2013) [WavPack/FLAC|Lossless]<Power Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Simple Minds - Celebrate (1979 - 2013) 3CD Set /2013, Virgin/ [FLAC|Lossless]<Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ADB AppControl Mobile - это новый менеджер приложений 
 ```bash
 magnet:?xt=urn:btih:C97FEC118C696D1C9375543BADE377C6627D2A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

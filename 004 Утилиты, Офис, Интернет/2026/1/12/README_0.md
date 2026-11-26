@@ -19,8 +19,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:41B11BF4A02A3D4F3CDAAC83559BFC10A72AC0BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blue Iris представляет собой профессиональное �
 ```bash
 magnet:?xt=urn:btih:8F6943FFE2E11DD74D45D651B088B4A674C017F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:1CBE95C9C89A59DF84CB091F1114AEDECA4D2DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Raxco PerfectDisk - программа для дефрагментации же�
 ```bash
 magnet:?xt=urn:btih:1A49D3AF86B03955C5EDC5C037E9D304EFE403AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ The Wolf Among Us (Episode 1-5) [PS3] [USA] [Ru/En] [3.55] [Cobra ODE / E3 ODE P
 ```bash
 magnet:?xt=urn:btih:E65E3B063406A19ED0448B2F54BE7D10FC42D521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Omerta – City of Gangsters позволит вам на своей шкуре 
 ```bash
 magnet:?xt=urn:btih:E546BDB3EFFC37F93F201E8457DF65F5FF8B3982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Transformers: Rise Of The Dark Spark связывает вселенные Cyber
 ```bash
 magnet:?xt=urn:btih:A2B377FE6BD901EBD70B1E9DCE5B9647C8086383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ The Stanley Parable - профессиональный ремейк необыч
 ```bash
 magnet:?xt=urn:btih:CDC7E7C1E28BEEC5629AC5D2318549EDB583575B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.6/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:111B132C910CABA9A056FBAA31656588A62BB76B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0573D19A1E2F200CA5FE4A17C52B34F7AF14CC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:EDD1B8E2AE4946DA3E12E2450D3DFF3909682B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA93568908D4C8DDB45118C21C85F18BE19CFCE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Discovery Channel: Разрушители легенд (Разрушители �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Disciples II Gold / Disciples 2 Золотое издание [Ru] (RePack) 2005
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Oceanhorn: Monster of Uncharted Seas (2017) [PSVita] [USA] 3.65 [NoNpDrm] [Licen
 ```bash
 magnet:?xt=urn:btih:9585D8AE683976DADBEEDF827EEDFBAC106F37F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Watch Dogs / Watch_Dogs (2014) [Ru/En] (1.06.329/dlc) Repack xatab [Digital Delu
 ```bash
 magnet:?xt=urn:btih:68C78DD38781CDEF43A9F8DE77E0B5E829F815D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Grivina - Я Хочу (2018) Remix [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:CA0289D14BF099344476A44F131A9620C07AA89F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ED7FDDA750599596EF71CAFC41E63B52A444AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 14.03.18 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3246587635E388F9337A5E9B4EDD516C51FB5D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70F2DE170F1212D0CD65CD42145C4F97B9DD6845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BA415801688A8999710DDCFA81DFA9C232A33BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1702257293888D4B1AF96A195453263FF1C91A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:256B7DBD7A4D28D0BFBE2DD10C6921C41E200BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Windows 10 в апреле ждет масштабное обновление
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Adobe Photoshop CC — программа для обработки растро
 ```bash
 magnet:?xt=urn:btih:880AF105A64FD9AA97CAEFB67DAEAAAF2A15D0F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ ITVDN | Django (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:418471E83BD80C7626E4C2E0DD110BA5A5920E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:BF53843F5831B062AE0CED2EB223193074CDD72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Adobe InDesign CC — профессиональный продукт для п�
 ```bash
 magnet:?xt=urn:btih:C6A14A2EE3AEDC506486EBF0E7B9DDCDBBD4739C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ EDIUS Pro поддерживает большое количество форм�
 ```bash
 magnet:?xt=urn:btih:7F8F3C7E05EA63E2084A94F6E019C73439D2DCF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

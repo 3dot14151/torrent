@@ -19,8 +19,7 @@ Beyond the Kingdom 2 / За пределами королевства 2 (2025) [
 ```bash
 magnet:?xt=urn:btih:00326E6D2C96BFC682F897236AA0181681E5D11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Lonesome Guild - это одиночный ролевой боевик с в
 ```bash
 magnet:?xt=urn:btih:5F322D2323579FE0B6716B1804595A5A10351647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reflections of Life 14: Gone But Not Forgotten / Отражения жизни 1
 ```bash
 magnet:?xt=urn:btih:F32C81D8F7CAE55573AB1444CEC368A6CC15ADF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Digital Deluxe E
 ```bash
 magnet:?xt=urn:btih:6FEDC67095F4A286FC701059475F260A91612BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ A Light in the Dark – это визуальная новелла с рисов
 ```bash
 magnet:?xt=urn:btih:E07775FDF426A47BBD35D695174F774F0C5DB65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A3376C3D2A41108C52072C7E0AEA53F9C2F257B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:CE1A7C820C7D7A98E5196BE7049CCCAC94061A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Crime Detective Red Flags - игра, вдохновлённая реально�
 ```bash
 magnet:?xt=urn:btih:D1450F4C7C395672FB880C8627B0DC7C5F21E9D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Dreams of Another - это экшен-игра с исследованием о�
 ```bash
 magnet:?xt=urn:btih:A6815BC2F8C4A34CEA878B4711919F874A895854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Farthest Frontier (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D08A59B9ED9EFC364D2EC06234099D9448D6B4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Radiolight (2025) [Ru/Multi] (0.9) Repack Necros
 ```bash
 magnet:?xt=urn:btih:C5F2C90AD3CA5AFD9CB140A530F3FC3FB06BFB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 ```bash
 magnet:?xt=urn:btih:2CABB4D38A7D31C9D029DD8F30B37CC9E5A221C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Fate of Wanderer – это полностью переработанная ве
 ```bash
 magnet:?xt=urn:btih:B596F57F40B7C235A39335B2753E0A4C72B42EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
 ```bash
 magnet:?xt=urn:btih:230229DF37DC99C7089B8B3CC1962D3029C2DBE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Nocturnal - это экшен-игра, в которой вы играете з
 ```bash
 magnet:?xt=urn:btih:94D459B4A40077F5229129B72161687F98761A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

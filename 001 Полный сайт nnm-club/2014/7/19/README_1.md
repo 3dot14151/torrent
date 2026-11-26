@@ -27,8 +27,7 @@ Harry Gregson-Williams - Принц Персии: Пески времени / Pr
 ```bash
 magnet:?xt=urn:btih:DFD29AC7C31B5C4D35B76664168ADA20A5465D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Andrea / Андреа - 4 альбома (2008-2012) [MP3|320 кб/с]<Pop-folk>
 ```bash
 magnet:?xt=urn:btih:D858656D7855D364507312F8CB1A2E3F76655078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43E5077E96D1FCED143F064D4B353D1E68F02A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:090B7B88616DF549D6D4004C5071D2BB8EF0B15C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Dust Brothers - Бойцовский клуб / Fight Club (1999) [AAC|WEB-DL|25
 ```bash
 magnet:?xt=urn:btih:FEEE19CE9EDC267BA2B4557A0E2B616D7F8FD5D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Media Player Codec Pack - простой в установке пакет код
 ```bash
 magnet:?xt=urn:btih:3728EA62A3BDC8D81597B922FA3EE7575C9C4AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Fatboy Slim - You've Come A Long Way, Baby (1998) [AAC|275-358 кб/с]<Big Beat
 ```bash
 magnet:?xt=urn:btih:B4D9B566BB83B89603FEE8A6763718F63CD437FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ VA - Коллекция шансона от ФиНика (2014) [MP3|128 кб/с
 ```bash
 magnet:?xt=urn:btih:AD1C27A0619C95E739A95D2BFBA92D3C3FD2E4E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38CA2DAF511B2B3093A0150B74780D1353479EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1ED941ECC0B9CDDD686A37368A1E1874AFE88044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ CCCP первоначально был создан, чтобы заменить
 ```bash
 magnet:?xt=urn:btih:8167D8CBBF9FD8597A99528D5A44AD95F7F799DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ AC-DC - For Those About To Rock (1981) Remaster /1994, Atlantic Recording/ [FLAC
 ```bash
 magnet:?xt=urn:btih:B1919C77A7400BE145F7CE8752B46B65482463F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ Soft Organizer 3.50 Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5A068973AC655A6938471F29239D51355112EFAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:429C43CE976FDD7809F1638DCD960CECA7C03658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:688A0F7A2DF40CAF060D499FEE9F5BD61C6914E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B44B8DE7D98C887C9334B551DF5B86F867B9730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ Ore no Nounai Sentakushi ga, Gakuen Love Comedy wo Zenryoku de Jama Shiteiru / N
 ```bash
 magnet:?xt=urn:btih:886A5246690A541F2797288DC3F86548E972955A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24F94C3088EB2619D6A6CF3819E872F9BD3CFBC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ Meridian - это приложение, которое позволяет вам
 ```bash
 magnet:?xt=urn:btih:58D95DD59C5ECDD11927C92C9A2069022E329570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ Modern Talking - Music & Video Stars (2013) [MP3|320 кб/с]<Pop, Eurodisco>
 ```bash
 magnet:?xt=urn:btih:0D5207E9845BD4AAF4CC7718B9B55CA4FCE104EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ Anti Flag - 9 Альбомов (1996-2014) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:B3698FAF117DDDE9D792FBDCBBB60EE73B8262C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D00B2D66C7E8CE2540749C8775575CC3F4335CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ Beyond Compare - мощнейшая программа для сравнения
 ```bash
 magnet:?xt=urn:btih:115A49A4C6DF4830F1EC5B024A5B98CFEDA7A391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ Blu-ray Player – это лучший, всемирно известный Blu-
 ```bash
 magnet:?xt=urn:btih:4449CECADD29C859F20CC36BE314F59C812AE879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

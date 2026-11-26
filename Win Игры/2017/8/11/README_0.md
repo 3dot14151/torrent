@@ -19,8 +19,7 @@ The Myth Seekers: The Legacy of Vulcan / Искатели мифов: Насле
 ```bash
 magnet:?xt=urn:btih:E74444C016F071A44FD928C295E7AEC05158BC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

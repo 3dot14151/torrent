@@ -28,8 +28,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ SeecreeS - Genesis (2011) [FLAC|Lossless]<Cyber Melodic Death>
 ```bash
 magnet:?xt=urn:btih:7532737E26D5E8307041E6773F7DD65D1CCC457E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Awesomenauts — это MOBA, сделанная в виде доступног�
 ```bash
 magnet:?xt=urn:btih:1D3F1A852BAB7BDD68E71117DD0A5C3352783AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

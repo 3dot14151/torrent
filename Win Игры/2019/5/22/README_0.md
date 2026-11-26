@@ -19,8 +19,7 @@ INVITATION — хоррор на выживание в котором игрок
 ```bash
 magnet:?xt=urn:btih:FC0BD4D619D29770026CE07D945E6D502386DFB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Observation — это научно-фантастический триллер,
 ```bash
 magnet:?xt=urn:btih:794CFFEA29B4C8A19570196F587E65024AD36B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

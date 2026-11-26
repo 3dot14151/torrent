@@ -20,8 +20,7 @@ Papo & Yol (2013) [En] RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:27B905089B4C091213D63D70D13C55980AA55C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Trials Evolution: Gold Edition - ответ на их ожидания.(   Чи�
 ```bash
 magnet:?xt=urn:btih:388E2D15FA17EF0FE04CC907167C0F667E96D046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

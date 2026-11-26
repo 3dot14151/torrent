@@ -23,8 +23,7 @@ A5. The Gunner's Dream (5:04)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:ECC8E7F82F562EE02CE7A357829754BE6FD86221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ VA - О Любви не говори... (2014) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:370A971E03387F5E9B1FDEC6AFF587DCC8565116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Electro Life 34 (by ZiP)(2014) [MP3|320 kbps]<Electro House, Progressive Ho
 ```bash
 magnet:?xt=urn:btih:56F14CEBF3835FF36A090C5A691439C79C954801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ ChronoSync представляет собой приложение для Mac, 
 ```bash
 magnet:?xt=urn:btih:A63CA7B43D66ED0BA0E8AF2790D390A6CF3D786C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Oscar & The Wolf - Entity (2014) [MP3|320 кб/с]<Indie Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:A0CAA35DAA79893FE810DA583820588A7189F861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Reggae Love (2014) [MP3|320 кб/с]<Reggae, Pop, World>
 ```bash
 magnet:?xt=urn:btih:A4DF6C5E3D35EE10BDBB3EBB54539C1A5A110F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:172F1AA3017AA7A51D2CD9CCDA6874616BD69DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5278D3A70A1BD30EA46BB6C44E6FBB4A693299FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ TeamViewer - удобная в использовании программа д�
 ```bash
 magnet:?xt=urn:btih:653CCFD7A0CBD36B0EE4F0F4FF3710AE4137B20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ English Suite No. 3 In G Minor, BWV 808
 ```bash
 magnet:?xt=urn:btih:52ED45B84C88DA585775C0458CC8D94626789C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF5A896B22987C00B85A076C0181D855EBEBFE89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ VA - Пляжная Туса На 5+ (2014) [MP3|128-320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:34ABE3BD338D3D67DFC61E159471363CCC1EFD1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EEA36762F1E8EF5CB1CDCD662C0A555C269F962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D7E169527EEC865FCF4AB9BEDEE64AB690AE328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ VA - A State Of Trance 650 (Armin van Buuren - Warm Up Sets) (Moscow, Yekaterinb
 ```bash
 magnet:?xt=urn:btih:958BFE8F02DF9D74E1C5F2074FA2B24E0763A883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ Serenata notturna, D Major, K. 239 (1776)
 ```bash
 magnet:?xt=urn:btih:1771B4B622139BA307D2C72C5C273592644C1B4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5ECC046D33DCE797F2F5D9B4D802567CB79A769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:588896D4BFFFDCC817B39DE653C48736D1BD2B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E8BF9C10EEB2F5508A0F3830C6C7A14258845C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ VA - Ministry Of Sound: Trance Nation (Mixed By Aly & Fila) (2014) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:4C55C9D6767F764FF42082930DF71791F6DD89BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +588,7 @@ VA - Les 60 Ans Du Rock (2014) [MP3|320 кб/с]<Rock n Roll, Rock, Retro>
 ```bash
 magnet:?xt=urn:btih:0DB507C71D8F68BA289C9FA2FBA5C171EDBC3646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2310509414FE6A132D56F204266BA55DAC9471F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A97959D173C205B1A32B9EA674EC5E53BE8350D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C1B7E44B98278179EE1AB832F93FB6473299984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ MP3 Skype Recorder - бесплатная программа, с помощью 
 ```bash
 magnet:?xt=urn:btih:988ADFC09B755B29D8198E8F0A27B6972526971D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1A2E11B78FC92888D03F65A2BB7F2C84A8F9053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:642DF0C7A6B26DF6C1CC35C162EE7822F6A515E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Auslogics BoostSpeed - приложение, которое поможет бы�
 ```bash
 magnet:?xt=urn:btih:BD725F14EBB7010C8E63D40936F15D6D0530A413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

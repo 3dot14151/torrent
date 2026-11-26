@@ -28,8 +28,7 @@ Revocation - Revocation (2013) Deluxe Edition [MP3|320 кб/с]<Technical Death 
 ```bash
 magnet:?xt=urn:btih:65A0EE97F9FBACA32B42AC4B683F7D16C4A246A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Debauchery - Kings Of Carnage (2013) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:5896BA22AA8193EB808E5288FB6FB75F87725CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Amaze Me - Guilty As Sin (2013) [FLAC|Lossless]<Hard FM, AOR>
 ```bash
 magnet:?xt=urn:btih:C2A914D60EA50D06DD2E7BEE625026E6ED5604C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Black Jade - The Prophecy Of The North (2013) [MP3|320 кб/с]<Black Metal, Epi
 ```bash
 magnet:?xt=urn:btih:FA2257453823F933EFD765E0A3668A8284C853B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Iwrestledabearonce - Late For Nothing (2013) [MP3|320 кб/с]<Deathcore / Elect
 ```bash
 magnet:?xt=urn:btih:6855F4E8AAFFF46BD1656DF5C6EDB9913CC021CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ The Deep End - Cop This (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C8B07B9FF9E0A66862183EFFC1320657D284E5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Covered Call - Impact (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7C3CF4F8E1FD3AA7EC4EAC9FE7412E8D8680FB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Carcass - Surgical Steel (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:4D6D61CD44BF7974CE7ABA107D27048E510EACD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Evil Masquerade - 5 альбомов (2004-2012) [MP3|320 кб/с]<Theatrical Me
 ```bash
 magnet:?xt=urn:btih:4F775F40C6378E85803D43492CAB9B7FECB119A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ BBM (Jack Bruce, Ginger Baker, Gary Moore) - Around The Next Dream (1994) [FLAC|
 ```bash
 magnet:?xt=urn:btih:8543B1F645AC6A697129F4AC965F3D458F27E491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +368,7 @@ Pink Floyd - From The Vault (2013) Bootleg [MP3|248-274 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:BAFEF54B2E6AE52877771E188CAD2E1E285074A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +402,7 @@ VA - A Collection of Delicate Diamonds: A Tribute to Pink Floyd (2011) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:22CC2549002F1F61FA8A812F0719088E3CED4C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +436,7 @@ Hollywood Undead - Notes From the Underground Unabridged (Japanese Edition) (201
 ```bash
 magnet:?xt=urn:btih:322C44BE0F80DEBE8D6DF679616F82E2F32193F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +470,7 @@ Asking Alexandria - From Death To Destiny (2013) [MP3|320 кб/с]<Post-Hardcore
 ```bash
 magnet:?xt=urn:btih:9BD380A603955C216628669B0563F2F8272E6851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

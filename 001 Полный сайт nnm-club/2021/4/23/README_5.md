@@ -18,8 +18,7 @@ Windows 10 Home 20H2 19042.928 x64 ru by SanLex (edition 2021-04-22) [Ru]
 ```bash
 magnet:?xt=urn:btih:B9EBDA087D94E290534E5BE4A7F4B47622AF9B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:890E142FA2E237FBD66A183A0938759BB3434F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47F57AA6EB839A59F5A2BC36048559E499560D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:30BE17865CD5AED0C9144B0D6D4E307ED0BF3486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Nebuchadnezzar (2021) [Ru/Multi] (1.1.16) License GOG
 ```bash
 magnet:?xt=urn:btih:B33BDC414924BAFA786282CC2DEC8D112C3E82A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5486F6BE73A71B9F20E20253F7C80B143A9D9696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

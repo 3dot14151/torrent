@@ -21,8 +21,7 @@ VA - 0815 Lo-Fi Chill Hop (2019) [AAC|~264 Kbps] <Jazzy, Chillhop, Lounge>
 ```bash
 magnet:?xt=urn:btih:D8C15DAFA371EF76BADFA75E0E7D1E4ADF221E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - What About Lounge, Vol. 2 (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:2654DC392ADC0B0A2C222AED7E6F6CC433AF5899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 5 (2019) [AAC|~293 Kbps] <Ea
 ```bash
 magnet:?xt=urn:btih:A0307B1FB838D0DC4F902851CFBC6B9EE1FDB6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Röyksopp & Robyn - Do It Again (2014) [AAC|~331 Kbps] <Electronic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:8146B1BCED7ADB515ADDE88EC4A14F26FDEAC38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Café Deluxe Chillout - Nu Brazil / Lounge (2014) [AAC|~326 Kbps] <Easy Lis
 ```bash
 magnet:?xt=urn:btih:26CC07E955522243544CBE3F9A6CEBFEA485AA5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 4 (2018) [AAC|~302 Kbps] <Ea
 ```bash
 magnet:?xt=urn:btih:3C573B2E17D0545DA32EEB070662970C3BD4802B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 6 (2020) [AAC|~284 Kbps] <Ea
 ```bash
 magnet:?xt=urn:btih:6FACB075C6084E6805041078C3E132472010CFDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 2 (2015) [AAC|~323 Kbps] <Ea
 ```bash
 magnet:?xt=urn:btih:4F22D5379CF98E753A8AAC13C26C04C91E7722C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge (2013) [AAC|~316 Kbps] <Easy Liste
 ```bash
 magnet:?xt=urn:btih:80DC55306FEF6871BE47E7826FDFBE677F5EE468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Buddhatronic - the Compilation, Vol. 6 (2021) [AAC|~299 Kbps] <Downtempo, L
 ```bash
 magnet:?xt=urn:btih:03DBF7EACAD6A0144BA315DC18871453C43ECCDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ VA - Urban House Grooves, Vol. 2 (2021) [AAC|~323 Kbps] <House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:5A0FCB9152B47CE6DBEE90ACA705DFCB78AAC062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Urban House Grooves, Vol. 1 (2021) [AAC|~323 Kbps] <House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:0D5D56466E8633193D009585B6C3C00F3D4AF4BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Tequilajazzz - Камни (2021) [AAC|~331 Kbps] <Alternative, Rock>
 ```bash
 magnet:?xt=urn:btih:23BE160FA5758BB7EC4024F9679AD520D641BA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 7 (2021) [AAC|~294 Kbps] <Ea
 ```bash
 magnet:?xt=urn:btih:274AC542A9821133731A009D5300B6A0E2DB7288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Sublime Merge - клиент системы контроля версий, ко�
 ```bash
 magnet:?xt=urn:btih:C444AB4123FC13D19F2D9C4C3ED75611670659BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 3 (2017) [AAC|~309 Kbps] <Ea
 ```bash
 magnet:?xt=urn:btih:F0DC25C9C3576E93299C9D8689CBD4E226A3D669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ VA - Luxury Lounge Sunset, Vol. 3 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Dow
 ```bash
 magnet:?xt=urn:btih:4FD0BAD409F5AC3A89B6C0F7F15470A2BBC44E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ VA - Playa del Lounge 3 (2012) [AAC|~324 Kbps] <Lounge, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:6ED037EBCCE077B9B59A57089E02F8D5E1AE1BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ Exmortus - Ride Forth (2016) [FLAC|Lossless|image + .cue] <Death Metal, Thrash M
 ```bash
 magnet:?xt=urn:btih:0CC6658CAF66DEB2A2050F1B96222928B4D0E5EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ EXMORTUS, появившись в 2003 году из мегаполиса Лос
 ```bash
 magnet:?xt=urn:btih:0FEE5FC9A3246CB07AC0E9DA72C71A1F4F2DB2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ VA - What About Lounge, Vol. 1 (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:F63B638F202E0B2E1483893044B003DCCC044A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ Exmortus - Beyond The Fall Of Time (2011) Japanese Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:BB35AC529326B6240F012F1578C4BB28C7DDA18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ VA - What About Lounge, Vol. 3 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:A4A047F01A371C25E34550429B9762A7FFD432B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ Röyksopp - The Inevitable End (2014) [AAC|~309 Kbps] <Electronic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:136D34EDB5A85DA3E45E3FEA544E2DFBA58A0811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ EXMORTUS, появившись в 2003 году из мегаполиса Лос
 ```bash
 magnet:?xt=urn:btih:06A8BE2F8297A4E1483D9BF1F4A3CDE0EB0DD0A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +718,7 @@ VA - Los Angeles Beach Lounge, Vol. 3 (2018) [AAC|~335 Kbps] <Chill Out, Lounge,
 ```bash
 magnet:?xt=urn:btih:CC3A9ACB341F783546A92DD48240BF8C58C66E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

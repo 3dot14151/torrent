@@ -19,8 +19,7 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1ACBFD676F30DAE88DC41DEF1FEE599FC0336261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ POSTAL Redux – римейк классической игры, где поль
 ```bash
 magnet:?xt=urn:btih:F728974650FEA21B197D3282E6D556CFD5ACF509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Monstrum - жуткий хоррор-экшен, где вам предстои�
 ```bash
 magnet:?xt=urn:btih:95ED84DD6C40FE5EC93831F435F4AC2C6FEADE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

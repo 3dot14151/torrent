@@ -19,8 +19,7 @@ Timberborn (2021) [Ru/Multi] (1.0.12.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B0BFF952FEDA4600BA7DBDB718DAD99663F1F007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Legend of Khiimori - это свободное путешествие по �
 ```bash
 magnet:?xt=urn:btih:9E22FE0B43545EE83F7C5106765D064D34DEFC97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Heroes of Science and Fiction (ранее известная как Silence of t
 ```bash
 magnet:?xt=urn:btih:1167406C88B0A251183AF13F9C31F6417FD1EB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Age of Barbarians Chronicles (2026) [Ru/Multi] (1.0.2.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A037599EE24CC612B6B5D47FED3362B887E87455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack Other s 
 ```bash
 magnet:?xt=urn:btih:1236FA69D3CB6B6BF831662A674F71574B940F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bullet Noir (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8229ADB636D811B17DDBC0798B09D76DC413409D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack Deceptic
 ```bash
 magnet:?xt=urn:btih:EA66DE714FF8EEF957FB4738737907FBFDE71331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

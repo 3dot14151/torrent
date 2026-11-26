@@ -28,8 +28,7 @@ New Morality - No Morality (2013) [MP3|320 кб/с]<Beatdown Hardcore>
 ```bash
 magnet:?xt=urn:btih:81B5BF84CA19824275BD1AF3C1FA62E588584F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Morbid Suffering - Trasladando Muertos (2013) [MP3|320 кб/с]<Death Meta>
 ```bash
 magnet:?xt=urn:btih:FF785064D41958ADE2AE0D7B921F9C584FD33F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Andrew Lu - Club Universe Radioshow 060 (28.02.2013) [MP3|320 кб/с]<Trance, U
 ```bash
 magnet:?xt=urn:btih:B6760D49777247FB4C915C304FE2E6702EC5F1C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Druid - The Cosmic Serpent (EP) (2013) [MP3|320 кб/с]<Stoner Metal, Doom Meta
 ```bash
 magnet:?xt=urn:btih:455783271B136C991D954644CA23977D74AEAF0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Tuatha De Danann - Tingaralatingadun (2001) [WavPack|Lossless]<Folk / Heavy Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Synesthesia - Synners & Saints (2013) [MP3|320 кб/с]<Power Metal, Progressive
 ```bash
 magnet:?xt=urn:btih:3E2C76FD97D632E0CA542BEC96A54FF310D68D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ VA - Lights Dreamers Space (2013) [MP3|320 кб/с]<Melodic, Energy, Uplifting>
 ```bash
 magnet:?xt=urn:btih:A43F65E5B982B8B0084407BD5B18502C5BE53C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ John 00 Fleming - One Hundred Ten WKO (2013)
 ```bash
 magnet:?xt=urn:btih:A2D7A154B81FF35DC46E1991D66383796078260F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2ACEC16AAEEF2C59ADEDB07FC52DD65E4EEC8A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ PicPick - бесплатное приложение, объединяющее в
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ VA - Jet Set Love Vol.2 (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:85102456F771D421427948C45C279C5DBFB3F7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +400,7 @@ Frank Steiner - Touching Silk (2004) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:C0AA243FD7BF729BC6B779DEA1914B43BEE29BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +425,7 @@ Phineas and Ferb - Holiday Favorites (2010) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:AA1DE7896C1B79730175B085194D69C498FBAC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ VA - Anjunabeats Volume 10 (mixed by Above & Beyond) (2013)
 ```bash
 magnet:?xt=urn:btih:62A31AB5EFF3CDADEBB4ECE3389C93BB4829C956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +491,7 @@ Anawaty & Russell - Analog Universe (2012) [MP3|320 кб/с]<New age, Chillout, 
 ```bash
 magnet:?xt=urn:btih:EF8E739F64E31269097AF9C46E0C050C2D6E2999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +525,7 @@ VA - American Jazz Lounge (2013) [MP3|320 кб/с]<Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:7FF9C40C45B5EAD0742008C45F3ED032B531008B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +557,7 @@ VA - John O'Callaghan - Trance Pioneers 006 (2013)
 ```bash
 magnet:?xt=urn:btih:EFB83DCD0C0C04CC588AD02213F14179F21FED1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +591,7 @@ VA - Dance Hits Vol. 285 (2013) [MP3|192-320 кб/с]<Dance, Hands Up>
 ```bash
 magnet:?xt=urn:btih:38AD182EB32EBB0BD87ACEC6F5CEAFDED4636805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +616,7 @@ Freemake Video Converter – бесплатная программа для бы
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26A3AFD7D426100F24641ADF88DA6489431E6543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +675,7 @@ VA - Vocal Trance Gems Volume 1 (2013) [MP3|320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:6FD80749EB0A47AAF87FD5F78D6CE54A60D67AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +709,7 @@ Ghost Riders - Five (2013) [MP3|320 кб/с]<Southern Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D0B9D35897F0C236C979DF1B101A5EE632C06559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A5A2D00B3037E54EDCBD9EA4A4EDA958CFD23F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BF1AAC18FBA6BD937083D4C6A0B4E07A68223F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +785,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:509B5D18869C5D2B5EE86A89BD0A1085E20EFCE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

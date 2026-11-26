@@ -19,8 +19,7 @@ The Ghost Inside - Aftermath (2020) Single [MP3|320 Kbps] <Metalcore, Melodic Ha
 ```bash
 magnet:?xt=urn:btih:42CF6CB6AC7A9BC4E89F51DF955AA6A98E9059DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ BONGTOWER - Oscillator (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Psyched
 ```bash
 magnet:?xt=urn:btih:83D33EA4E2467D357F2987BEA2F70CCF44C148D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Dance Gavin Dance - Afterburner (2020) [MP3|320 Kbps] <Post-Hardcore, Progressiv
 ```bash
 magnet:?xt=urn:btih:6EC21AB611675C764B1BBBCEBC565F83659FA96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Trivium - What the Dead Men Say (2020) [MP3|320 Kbps] <Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:6DCC6CB98BB126F6FD6BA2AC1120EEB0FC38E254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C771F7A2191108E7D6CE72BC469A67AA19C26E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCC230A970596E1783CAE25B626F5738A5D9D44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Katatonia - City Burials (2020) [MP3|320 Kbps] <Doom Metal, Depressive Rock>
 ```bash
 magnet:?xt=urn:btih:7D62CD81504A8A31A6315DDC53BAE36457905168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ John Fogerty - Solo Flight (Live) (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8568A15358E445A554477B80DC65807BC63E21B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A12D236207D4FA6796EC88D2C781E87F9F17CB50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

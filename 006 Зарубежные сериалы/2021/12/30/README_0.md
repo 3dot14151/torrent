@@ -19,8 +19,7 @@ Cупруги Будько и Ковалевы-Берковичи снова в 
 ```bash
 magnet:?xt=urn:btih:36C02152B9B5851BCE119F286A16B412C51E2C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CFC4BCA3530F371F5378CC12CB7BE46425DD74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

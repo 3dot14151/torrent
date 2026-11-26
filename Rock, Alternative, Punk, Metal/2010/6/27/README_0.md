@@ -28,8 +28,7 @@ AC DC - Live Olympiastadion Berlin (2010) [MP3|320 kbps]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Tito & Tarantula - Discography (1997..2008) [MP3|320 kbps]<Blues / Latin / Hard 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

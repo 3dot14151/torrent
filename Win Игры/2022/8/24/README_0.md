@@ -19,8 +19,7 @@ Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:88FF2D0870A7BE41BD66972381C5A878CC6EC3D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

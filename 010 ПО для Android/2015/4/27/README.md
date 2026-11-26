@@ -20,8 +20,7 @@ FiiNote является самым удобным приложением вед
 ```bash
 magnet:?xt=urn:btih:72E5766E9D14F3CC5D04D001267FD04A33882740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

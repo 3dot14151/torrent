@@ -19,8 +19,7 @@ Password Safe and Manager v8.2.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:36E1E8A6DD69FB62656676477F76572B8928F1A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PhotoRoom v2025.15.02 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F3C232B9633D3CA598C3E79414268E700CACB10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

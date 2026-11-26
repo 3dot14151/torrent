@@ -22,8 +22,7 @@ Office 2007 оригинальные MSDN образы. 12.0.4518.1014 [Русс
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

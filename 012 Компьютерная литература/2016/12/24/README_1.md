@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:06DECCB2ABA7E2BA2D68FA161FF94788B5C15D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ O'Reilly | Head First Сборник [18 книг] (2008-2016) [PDF]
 ```bash
 magnet:?xt=urn:btih:5AFA92175155B7E5B888D72DD84F6ADE74E2C544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

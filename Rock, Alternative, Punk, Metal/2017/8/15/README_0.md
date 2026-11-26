@@ -22,8 +22,7 @@ Chris Robinson Brotherhood - Barefoot In The Head (2017) [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:C0E3B800068A75ECE8F7D37C23DA72F3E5C87E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dark Angel - Time Does Not Heal (1991) Reissue, 1999, Century Media [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:689B666DEE380785B065017E15F1356EB6C31222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sitting Bull - Trip Away (1971) Reissue, 2002, Long Hair [MP3|320 Kbps] <Rock, K
 ```bash
 magnet:?xt=urn:btih:13BA47C6166898FCA38172A9D1C968E904306404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deep Purple - Johnny's Band (2017) EP [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:63ECDAFFC79C2FF30120EF18592E4F4071F3E55F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

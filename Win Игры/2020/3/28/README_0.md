@@ -19,8 +19,7 @@ Dark Romance 12: Ashville (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:39DC2524BED2E1BB525E99B177B924BF8FF2C128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Family Mysteries: Poisonous Promises / Семейные тайны: Медлен
 ```bash
 magnet:?xt=urn:btih:28357A045BB995B0EC30623034303339F2CF4192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

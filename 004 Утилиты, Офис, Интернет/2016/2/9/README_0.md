@@ -19,8 +19,7 @@ Sothink SWF Decompiler - программа для конвертировани�
 ```bash
 magnet:?xt=urn:btih:43FE543A2CD6BCCE73AD02F3DC483D1592FEB8EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Starus Partition Recovery является главным продуктом л�
 ```bash
 magnet:?xt=urn:btih:B51CE610A0423D296006A5139D009F791FC784E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

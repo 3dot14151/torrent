@@ -19,8 +19,7 @@ I век до нашей эры, Римская империя. Бывший г�
 ```bash
 magnet:?xt=urn:btih:D98BF697C53477AD049065169325D98F9A15EFC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04D4A0E64D2AB23F41D7AE135F7F9E6092D8C03F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

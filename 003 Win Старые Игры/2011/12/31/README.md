@@ -19,8 +19,7 @@ Twilight 2000 [En] (RePack) 1991 | Pilotus
 ```bash
 magnet:?xt=urn:btih:131D1F4F56934B5576E447ADB1C3D9E7E63E44DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Conquest of Camelot и Conquest of Longbow [En] (RePack) 1989-1991 | Pilotus
 ```bash
 magnet:?xt=urn:btih:775B7175226A39BDB67759F083EA2F991F97ECF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ugh! [En] (RePack) 1992 | Pilotus
 ```bash
 magnet:?xt=urn:btih:0AF9B42869E8D54D459138C9BD0B06AABD7A7880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Strife: Quest for the Sigil [En] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:AD6B526424778F258138DF233D6E040B968D9BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7775C676E1D4A622EA1A02806119742B2037AFD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Star Wars: Rebel Assault [En] (RePack) 1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:8C1E2B1ED2FF14C36761EC1E99C706B7DF251722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Dyna Blaster [En] (RePack) 1992 | Pilotus
 ```bash
 magnet:?xt=urn:btih:1B8A1432B24A017F330B1DC285DBAD51D84ACD51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ The Lost Vikings Антология [En] (RePack) 1992-1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:D2911771F60B1213E7230CA0E9507C4C5EF5B0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Teenage Mutant Ninja Turtles: The Video Game / TMNT: Черепашки-нинд
 ```bash
 magnet:?xt=urn:btih:58A900F9BA7E55A7B1A0EC7C07B45F4D1DF21DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

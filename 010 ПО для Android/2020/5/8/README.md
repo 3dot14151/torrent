@@ -19,8 +19,7 @@ Open Camera 1.48.1 [Ru] - Фото и видеокамера
 ```bash
 magnet:?xt=urn:btih:335E1379CD786A2BF53ED109DCB8EB30CCE16B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

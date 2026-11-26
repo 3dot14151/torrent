@@ -19,8 +19,7 @@ DAVY x JONES (2025) [Ru/Multi] (0.12.1) Repack Other s [Early Access]
 ```bash
 magnet:?xt=urn:btih:0B99F0BCAA158577BA35A7589DF2549429E99D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Soulstice (2022) [Ru/Multi] (1.1.0+219971/dlc) Repack Let'sРlay [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:8FE9BD49CEA8681C1FF39B14152F455D8F5B61D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack FitGirl [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:706CE1D34EC6ABAB168EC45997C8C8AB1D941B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Astral Ascent — это 2D платформер и упрощённый рог�
 ```bash
 magnet:?xt=urn:btih:0491F2D692655576672CAA10B820B9F3FEA1DD30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Oddsparks: An Automation Adventure – это стратегия в режиме
 ```bash
 magnet:?xt=urn:btih:3983857AF285E075B20656D3B0837FED813EBFC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Automobilista 2 - это праздник автоспорта - всеобъе�
 ```bash
 magnet:?xt=urn:btih:FE17048D88B9BC97EEE3BA4AB1EE7936F815725C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Abyss Eschaton Survivors (2025) [Ru/Multi] (1.00.10) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A7038A1E70A3428883D2682E57A3A8068CAB2930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CF81364982E77AF558D866B9AECF10FC26F7B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ SkullX: Aibohphobia (2025) [En] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3F2C4A62D3FC4C63EC09E17BE82644C2C889C068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ No Man's Sky (2016) [Ru/Multi] (6.00/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5D26F8CEDCCDC54CCB5DBFD662B90FF221F8750F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 ```bash
 magnet:?xt=urn:btih:86A68CD4392BBD4E40B213164FBACB0E803EBCDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594/dlc) Scene Rune [Digital Delux
 ```bash
 magnet:?xt=urn:btih:955691C797454599E1E7A5E5BF19D9ACDFD9976A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AADCE09068EF141A22BF7969E63D4AF6A5174AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Monument Valley 3 (2025) [Ru/Multi] (1.3.19596) Repack FitGirl [Game & Soundtrac
 ```bash
 magnet:?xt=urn:btih:49FA68B1E274E9340F2B6F11BE87CD4AAAAA5338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ WolfQuest: Anniversary Edition (2019) [En] (19315088/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0B88FD4CE614A84D1B57F28A7DBFAB5381CAAA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ PGA Tour 2K23 (2022) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:90C8E9EE5E341811699B91012A68F1F409420E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Veil of the Skies (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:94AB697EA219DE10DC09ACA526DD9A4F73FBF9ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Metallica — американская метал-группа, образова
 ```bash
 magnet:?xt=urn:btih:E0864958871EF26E3FB7C6FD9ADC485A3A91DA6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Rebellion — немецкая heavy metal группа. Была создана
 ```bash
 magnet:?xt=urn:btih:2086E899A69D23FA4FDEF886257285F302E36339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

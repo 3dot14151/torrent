@@ -24,8 +24,7 @@ Eye 2 Eye - The Wish (2011) [FLAC|Lossless|image + .cue] <Neo-Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:AA63315D845C378A6E416F1AE9239E851C9B07E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Flying Colors - Second Flight: Live At The Z7 (2015) 2CD [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:72FC36FB04102280D3D9357EB9B84AA435A6F41C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Mourning Beloveth - Rust & Bone (2015) [MP3|320 кб/с] <Doom-Death Metal>
 ```bash
 magnet:?xt=urn:btih:6E354E3B1DB74553C16F9FDF9DB9709754157BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3DDBBA9C53B1BA1C946A6BEF95BF49F2959F471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Kingdom Come - In Your Face (1989) Japanese Edition, 2013,  Polydor [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:62E69D8E0836422A832706A84E3D9F6A89DCE026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ VA - Музыка Твоих Крыльев (Special Volume) (2006) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:756A49610F59A5C9657BC7B34A4A010A3E9667C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFD8E7015EDD9116CF7274719B75E2165692F787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Rolling Stones - 1989 Steel Wheels ● 1991 Flashpoint (2015) Mini LP Platin
 ```bash
 magnet:?xt=urn:btih:27A6938D9D687723E5C549A7FB6A18C474B30B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

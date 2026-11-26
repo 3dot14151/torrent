@@ -21,8 +21,7 @@ The New London Chorale - The Young Beethoven (1990) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:79A54AE70485E329F9DE4868BF8924DB6AD56F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA2F52370CEC0FBC82B4A54C0921573536A5D2E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ PhotoScissors предоставляет очень простой способ,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D798D3287D506BB11449D3F67C6460CEDBDF6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Wolfheart - Constellation Of The Black Light (2018) [MP3|320 Kbps] <Melodic Deat
 ```bash
 magnet:?xt=urn:btih:782CD773ECF39A044F2EF647611A250DBEE8B7C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11E3CEEC903CFA414555F57A33D2BCD52D028020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ VA - Золотая коллекция - Песни Нашего Кино (1998)
 ```bash
 magnet:?xt=urn:btih:A4DDA2250D4BD1F9C5D8514D7BFAF3D1AF98B4AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Brainstorm - Midnight Ghost (2018) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:D099035C8A0B758013F673AF0320A564E2983F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:63025F0897FEFCA6290AAD6FEB3AB98B745CA9D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ TechSmith Snagit облегчает захват изображений с эк�
 ```bash
 magnet:?xt=urn:btih:0317A8EB1BEBB55905A7FEBB7AEB52E96F4727B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26C1F716100662EA7BF2F50C139FD4474E682A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DC99D92C17FB748A101F2123E800DAA1684AC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ NGW: Дикая природа Аргентины. Безжалостные го
 ```bash
 magnet:?xt=urn:btih:A9C4367AD56637851BCB76B80914C4A99D5F70B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Drowning the Light - Varcolaci Rising (2017) [FLAC|Lossless|image + .cue] <Black
 ```bash
 magnet:?xt=urn:btih:2420DDFF571F0B1228D8D2BF21E65635CD273C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Slash (Featuring Myles Kennedy and The Conspirators) - Living the Dream (2018) [
 ```bash
 magnet:?xt=urn:btih:AB8A5B652232EBB9BF058041B018C70F942F9A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBB33645FC8D80991DF45E00EA8D8F1F8F37F447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ VA - Jazz Butterfly (2018) [MP3|320 Kbps] <Blues, Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Rhinoceros 5 v5.5.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:733CC207E1780E95DDA76F2B98570948160AFBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Rod Stewart - Blood Red Roses (2018) Deluxe Version [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:93131E1441FF4E4E3C12D4B1823958CAB77B192A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Spectrum - экшен фотошоп с эффектом современной 
 ```bash
 magnet:?xt=urn:btih:F172D2209E4348FBC5B7294184BDE9C21AAA9348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ Delight Watercolor - многофункциональный экшен фото�
 ```bash
 magnet:?xt=urn:btih:CEDB1FF98621876BC40F1C11A2838A4314DBD78A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ Viking Squad v1.16 (2016) [En] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:2575C89DBA512D7A3E23832DA4B69069B5ED0081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF7C0077B00D73B022CB817CA616BBBD21BCB553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:353184DBE4E676E3C6ACA516CFA5B1ACC2964204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69C9371C3C1A19EABC9F479AC32D888270A9413E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ Cher - Dancing Queen (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:EEC56C166601723B8677E786B4150AAA8061C5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

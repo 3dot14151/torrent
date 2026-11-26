@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:65E7CE5121BCE553DC99A731EFAC8E60B1EF8017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C3F90C5E55982AA667A0EC7530E2B3743239278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Xiaomi, Huawei, Oppo и Vivo решили создать свой аналог G
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (1.0/upd2/dlc) Repack Other s [Part 
 ```bash
 magnet:?xt=urn:btih:C717AEB8F65AD44C5AADEEDD18E3450D25BD2CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ VA - Deep Blue: Vocal House Season (2020) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:9FDC9BC9DCE30FD47FF61698A8288065CDEF9B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Kona - атмосферный приключенческий хоррор с г�
 ```bash
 magnet:?xt=urn:btih:4EF819BB92E1FF19E9F541AC3267519FEC4B956F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Heisei Tanuki Gassen Ponpoko | Pom Poko | Помпоко: Война танук�
 ```bash
 magnet:?xt=urn:btih:053D9F2F6D29D019E41DC9D7176024E957FDE70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:623180E60F313B072098607056AB88C7D81E7C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в Последне�
 ```bash
 magnet:?xt=urn:btih:1B724F92F2528E5144BD5B1B59E7906669E1ABC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Kill la Kill | Убей или Умри [2011, TV, 24 ep + SP] BDRip 1080p 10-bi
 ```bash
 magnet:?xt=urn:btih:3FD282DBB0D930E780671627E5C0BF770EE49C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:649387A344696D92927AA72843E1A63AEBDC4408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Mirai Nikki | The Future Diary | Дневник Будущего [2011, TV, 26 e
 ```bash
 magnet:?xt=urn:btih:DF331DEC29706CCB55863C8EDF90FCF07F103473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ TeamViewer - удобная в использовании программа д�
 ```bash
 magnet:?xt=urn:btih:845C8A09DBFA93AAA350C12DEABD0C631AD9E2DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF9BFFFFABAE6220AAA555265B2B90BE173A55BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

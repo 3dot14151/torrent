@@ -22,8 +22,7 @@ Snow Patrol - Reworked (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Ro
 ```bash
 magnet:?xt=urn:btih:3A49F38DF272385B683435015BBEEB9580818485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pretty Maids - Undress Your Madness (2019) [MP3|320 Kbps] <Melodic Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:29AC0954E71BFBE639E168F7BF0633DB6E629F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Dark Element - Songs the Night Sings (2019) [FLAC|Lossless|WEB-DL|tracks] <S
 ```bash
 magnet:?xt=urn:btih:C8E57EB69FCF210A5CF7EB30A9F94F1D943E4C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jinjer - Macro (2019) [FLAC|Lossless|tracks + .cue] <Metalcore, Groove Metal>
 ```bash
 magnet:?xt=urn:btih:00D50D20840827DF22F7C3C5B2CAB76ABC0AB389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - XXXL 10-Рок (2003) [FLAC|Lossless|image + .cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:AEDAC46A5CC650390988F3B3FF64F6DFDE321E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Zucchero - D.O.C. (2019) [MP3|320 Kbps] <Pop, Rock, Latin>
 ```bash
 magnet:?xt=urn:btih:D3C0295C81C74B4A0F85160802C5F165071277B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ John Fogerty - 50 Year Trip Live at Red Rocks (2019) [MP3|320 Kbps] <Classic Roc
 ```bash
 magnet:?xt=urn:btih:946A3F485CAF68EF5DE4CCBC6E1814418BCF5CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

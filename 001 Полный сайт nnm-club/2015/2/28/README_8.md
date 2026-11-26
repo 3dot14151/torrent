@@ -23,8 +23,7 @@ Angry - Future Chaos (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:416A461406AEBE4745958BB7A19732FB613BC2C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Masada - Tet (Nine) (1998) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvis
 ```bash
 magnet:?xt=urn:btih:339B074215417EE382A482C284726F01CF6C3103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ George Russell Sextet - Stratusphunk (1995) [APE|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:08F716A66D8ED2D7BCF626840BF16AE87F66E01F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Ama Jazz - In These Last Times (1995) [FLAC|Lossless]<Jazz, Avant-Garde Jazz>
 ```bash
 magnet:?xt=urn:btih:26F9FAC0F10043AB2944F39BF0F0A462FA7937F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Nicola Sergio Trio - Illusions (2012) [FLAC|Lossless|WEB-DL]<Post-Bop, Contempor
 ```bash
 magnet:?xt=urn:btih:BEDAA392D1F868B6A1E151DBE461B14DB242B752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Oyaarss - Zemdega (2014) [FLAC|Lossless]<Experimental, Industrial, Post Rock, Ab
 ```bash
 magnet:?xt=urn:btih:795F025881F898015CD661F57CD5039C2F17FAA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Eva Taylor - Not Just The Blues (1996) [FLAC|Lossless]<Jazz, Vocal Jazz, Early J
 ```bash
 magnet:?xt=urn:btih:D1C8601FF577D94621A2A8438066C7E0420DAC1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Masada - Zayin (Seven) (1998) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Impro
 ```bash
 magnet:?xt=urn:btih:1B4B5D5FEB8C25A760905B5B5C1CD3F649309C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Neil Finn - Dizzy Heights (2014) [MP3|320 кб/с]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:18E5985F3A930D0A7F43D2BBDECCD2F998FE25DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Ambush - Firestorm (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3ED266715321EBC708EC3411843DC71ACD7216FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ VA - Verve Next Generation Vol. 2 (1995) [FLAC|Lossless]<Jazz, Swing, Post-Bop, 
 ```bash
 magnet:?xt=urn:btih:4A792040E4488B3FC8EBFFF25A83DC4425274E00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:799814584078E14597F235022998FDF96EC5A2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ Milt Jackson Orchestra - Big Bags (1989) [FLAC|Lossless]<Jazz, Hard Bop, Big Ban
 ```bash
 magnet:?xt=urn:btih:A0FEB09087FE03FE3BEAB3CD133C50FF82B26AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ Nicola Stilo, Toninho Horta - Duets (1999) [FLAC|Lossless]<World Fusion>
 ```bash
 magnet:?xt=urn:btih:79876D78440BE60611083AFBF37CF08873B9D2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ Angry - Future Chaos (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:46DA9771924E04ABE9E73B489A7F6444350FFA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ Mudfork Blues - Drivin' On Home (2004) [MP3|320 кб/с]<Blues Rock, Boogie>
 ```bash
 magnet:?xt=urn:btih:C68F4A978BFD189A185ADFF85C0C0696F3A0C6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ Ray Noble - The Complete Standard Transcriptions (2000) [FLAC|Lossless]<Jazz, Bi
 ```bash
 magnet:?xt=urn:btih:FDF40617F5C11EE547FFC06C0282BCEF925E87CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ Silence Groove - Reflection EP (2015) [MP3|320 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:ED9A75CC882136D65C48512333455318F1EB6346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ Arbitrarium (Human Error) - Data Collection (2015) [FLAC|Lossless|WEB-DL]<Ambien
 ```bash
 magnet:?xt=urn:btih:0952B26C07974254D287C9901792279AC4DE40AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E465A72A4905930F2F2AFCA56C58DBC57B09AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ Nicolas Bearde - On Lakeside Drive (2007) [FLAC|Lossless]<Smooth Jazz, Vocal Jaz
 ```bash
 magnet:?xt=urn:btih:8C254D20F93767DC265AAE0ADB7BFA3169DA59C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +647,7 @@ VA - Enhanced Music: February (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:FC9450F597268A9D24D2FEDBA53A29E776E15997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +676,7 @@ State Of Salazar - All The Way (2014) Japanese Edition [FLAC|Lossless]<Melodic R
 ```bash
 magnet:?xt=urn:btih:E291DFE5B3BF4853FA196ACCA653617C512D79F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +705,7 @@ Ambush - Firestorm (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5C1DDE2AE96BE80AAE6748446CFA2BFC7336EF81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ State Of Salazar - All The Way (2014) Japanese Edition [MP3|320 кб/с]<Melodic
 ```bash
 magnet:?xt=urn:btih:5EF2DDC447E5826293DE7D17F18DCA43686EDF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

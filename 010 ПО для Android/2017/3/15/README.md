@@ -19,8 +19,7 @@ Electrical cost - программа для расчета стоимости э
 ```bash
 magnet:?xt=urn:btih:8847FF954AA27E59B04142B2F586C0E18484F9F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

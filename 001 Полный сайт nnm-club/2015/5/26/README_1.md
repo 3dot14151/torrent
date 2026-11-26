@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:1434261F593A1B4C436765745789329A72DE1D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB66C82C04D1C76282264ACD034DC682FD3AB8B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0356E8F65655F7FBF236B5816926BCE993EF8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Cox Communications одна из крупнейших телекоммуника
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ VA - Le Chic Club 6 (2015) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:BEACA6B1A3839FC1A0F2F7080241399FC84BD183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Wise Plugin Manager 1.27.55 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1ABED71C22D6B1444283AA512049D338CB1398BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D16D8DEBADAE97757B6F5A505383F080FCCF190A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Bill Whelan - Riverdance - Music From The Show (1995) [FLAC|Lossless]<Folk, Celt
 ```bash
 magnet:?xt=urn:btih:312742E6BA412E86CE8B0E3183673573872A958D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ MediaInfo позволяет получать техническую инфор�
 ```bash
 magnet:?xt=urn:btih:3D290E8104591E77AF53B831BFB742AE4434DAEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Concerto for Cello and Strings in E flat major RV 408
 ```bash
 magnet:?xt=urn:btih:B3EE7A7A702365E4AFC7FBF6428DE16215E601FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Artweaver Free 5.0.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E072970EFD19B1EC15781212FBE7FBF91880457D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Ronan Hardiman - Music From The Show Riverdance II (2000) [FLAC|Lossless]<Folk, 
 ```bash
 magnet:?xt=urn:btih:31F1DD22D3D778D2A2503BC7F8D30BA3EDD3DF5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Icecream Screen Recorder 1.44 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:671220B721A433693FCA2EB20CCA279E474D1D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Welshly Arms - Welshly Arms (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:2CDB4DE61768EF6AE250C4E581E3DC15282D68E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51CF975C3873B6349BEDDBA559D2F7878B743DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Biostacis - Re:Generation (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:5E03D4B94C61337AB8BF6FD005D5A74FE72BF29B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ VA - Very Best Of Eurovision Song Contest (2015) A 60th Anniversary [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:8478AB67D9BCA499333CDD40039CD6F6CAC86FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ Wise Reminder - достаточно удобная программа для н
 ```bash
 magnet:?xt=urn:btih:F8CA8097EE5A7C4AE6F40C702142C8D54585E028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ AutoLogger - автоматический сборщик логов на ком�
 ```bash
 magnet:?xt=urn:btih:8AC20A8F7F57FA19681865594F76B08FDE55FA63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5598CE494938092EFD592B398BA9675896082AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ PassMark RAMMon - удобная и полезная утилита для по�
 ```bash
 magnet:?xt=urn:btih:2BFBD559A442F351238D7CFB84F27F9198036CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ VA - Весенние новинки интернета. Май (2015) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:1A198D86D2C06E94FFE158FA88BCC1BC42E2FFDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74DD539FE4FFB3FB8A819C494EC8CBFA83AC3499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E22049D211F2A406E6D24634FBA8E25628E704E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ Wise Game Booster - бесплатный инструмент для увели�
 ```bash
 magnet:?xt=urn:btih:AB6D70B66B8A2EDC8112CAB0AF6BF1CACA47D227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ Hide Folders 2012 - это удобный инструмент для сокры
 ```bash
 magnet:?xt=urn:btih:20FB48F94E607DF9933B096A2B12B7926BA1E388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Blackrain - It Begins (2013) [FLAC|Lossless]<Glam Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1FE731441F472796519C55C714CCF10499921966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Coronatus - Recreatio Carminis (2013) [MP3|320 кб/с]<Gothic Metal, Symphonic 
 ```bash
 magnet:?xt=urn:btih:5523F53544D3046AD613BC45D39208E798EFB90A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Fernando Noronha & Black Soul - Bring It (2006) [MP3|320 кб/с]<Rock, Blues-Ro
 ```bash
 magnet:?xt=urn:btih:DF96BB5C943D484F5B13EA1162DABB17A45A26BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Vengeance - Piece Of Cake (2013) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:47C9B966B2A0D6F03A99E3E6C7C2AAC734D3A940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Death - Spiritual Healing (1990) [FLAC|Lossless]<Death metal>
 ```bash
 magnet:?xt=urn:btih:F81E24651F8F7A270295E219D149749E0AAE0AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Dead City Ruins - Midnight Killer (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:73F175CB7A36BA8F73BE5B6DBD1DC5624500FE50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Noiseworks - Greatest Hits (1992) [FLAC|Lossless]<Rock, Classic Rock, Pop-Rock, 
 ```bash
 magnet:?xt=urn:btih:F3943905DFC099BA90CE079C0ECDFB269376C756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ Death - Leprosy (1988) [FLAC|Lossless]<Death metal>
 ```bash
 magnet:?xt=urn:btih:A20E6E4284029C9FEB0DD1D92DC900CAD852CD67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Burning Kingdom - Simplified (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B04E6F88F40BF807376B39B1C86DB464E3C53036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Jefferson Airplane - Bark (1971) Remastered /2013, Culture Factory/ [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:29BE1BDD99FB4692E60F8EF04BECFC643636E2DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ Jefferson Airplane - Long John Silver (1972) Remastered /2013, Culture Factory/ 
 ```bash
 magnet:?xt=urn:btih:A77139B0BFB616294B816E6114CD94DC5005BF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ Hungaria - Arena (1982) [MP3|320 кб/с]<Pop-Rock, Rock & Roll, Rockabilly, Twi
 ```bash
 magnet:?xt=urn:btih:CEBB97EC9269D0EBB079E6CFF297143ED0501E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +424,7 @@ Europe - Live at Sweden Rock "30th Anniversary" (2013) [MP3|128 кб/с]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:57F0F9CC9961BEAAC466DC782C334DEFE497492D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +458,7 @@ Ihsahn - Das Seelenbrechen (2013) [FLAC|Lossless]<Extreme Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:3BC31AC6C9BC946AA3AFC88EC80353F788CC178B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +486,7 @@ Rod Stewart - Rarities (2013) 2CD [FLAC|tracks + .cue]<Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:CAD46498A0783C9919250E651163185916264468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +518,7 @@ The Flower Kings - Desolation Rose (2013) 2 CD Limited Edition / Inside Out/ [FL
 ```bash
 magnet:?xt=urn:btih:50E971E9D627D6F0186C78A6A9BE7D13F143B884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +552,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:5234977AC7BA943C68F4701CEC486FE5F71DF5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +586,7 @@ I See Stars - - 4 Альбома (2009-2013) [FLAC|Lossless]<Post-Hardcore | Ele
 ```bash
 magnet:?xt=urn:btih:1AB24483E95B273A70158AC7D646297B2E08039F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +620,7 @@ Aerosmith - Devil's Got A New Disguise: The Very Best Of (2006) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:A892FA621D932B085F8A8519E255599692A63B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +654,7 @@ Arcade Fire - Reflektor (2013) [MP3|320kbps] <Indie Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +683,7 @@ King Crimson - The Road To Red (2013) 24 Disc Box Set / Panegyric Records/ [FLAC
 ```bash
 magnet:?xt=urn:btih:CFF83EE652F4C013A2AF1BE706F35960E52510F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

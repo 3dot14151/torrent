@@ -23,8 +23,7 @@ The Silent Rage - Harvester Of Souls (EP) (2011) [MP3|320 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:BE03C12A379C45C60CB41E713A9A2A300077D247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Dreamtale - Epsilon (2011) [MP3|320 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:E9AFE97E56F4AB58D3C0ECB6FD62F6E16CED6F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ If These Trees Could Talk - Above The Earth, Below The Sky (2009) [FLAC|Lossless
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Bryan Ferry - Slave To Love (The Best Of The Ballads) (2000) [APE|Lossless]<Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Spiderbait - (7 альбомов) (1992-2005) [MP3|CBR/VBR]<Alternative Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

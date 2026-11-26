@@ -19,8 +19,7 @@ Teenage Mutant Ninja Turtles: Out of the Shadows переносит вас в т
 ```bash
 magnet:?xt=urn:btih:C2D8A97C185F4B93586889E98D75D28FA27F6334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Dead Rising 2 (2010-2011) [Ru/En] (1.0/1.0) SteamRip Let'sРlay [Complete Pack]
 ```bash
 magnet:?xt=urn:btih:297CD04C305BE4BA2C1D945C353D43910D0CF319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Hotline Miami 2 Wrong Number (2015) [Ru/Multi] (1.03a) Repack Let'sPlay
 ```bash
 magnet:?xt=urn:btih:38F7D5F7B9E097066718CC289819A7C6C757A7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

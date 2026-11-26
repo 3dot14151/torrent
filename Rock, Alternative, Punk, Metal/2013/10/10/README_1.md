@@ -26,8 +26,7 @@ Party Roxx - Party Roxx (2013) [MP3|320 кб/с]<Glam Metal>
 ```bash
 magnet:?xt=urn:btih:DB3A3921337B5DF7CFCF53BEBED3CEFDAB6662CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Spector - Enjoy It While It Lasts (2012) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:9DC300D3FE807E5F3A130DA424603F018AE44477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Grant Hart - The Argument (2013) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:FF4E6B9E679EC3C09F0392CFEA3E6DCDF0E9E8BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Battle Ram - Long Live the Ram (2013) [MP3|320 кб/с]<Epic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8E78B8C70E97F773219ECAA8536D49CF8CA982DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Cloud Control - Dream Cave (2013) [MP3|320 кб/с]<>Indie rock
 ```bash
 magnet:?xt=urn:btih:B1CB503751D86C4221189E0129C3CEC2702C4BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ I See Stars - New Demons (2013) [MP3|320 кб/с]<Post-Hardcore / Electronic>
 ```bash
 magnet:?xt=urn:btih:742E7C6C9E2DB4CD3C7950CF6A80E4E3C15BC33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ The Jokers - Rock & Roll Is Alive (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2269DA3C66FA1519A91CC4F1B4F7D4A4DC8CACC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53EF17E3899C4DFE30FAA059BE9891D7E0B36F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Monster Magnet - Last Patrol (2013) Limited Edition [MP3|320 кб/с]<Hard Rock 
 ```bash
 magnet:?xt=urn:btih:D7152ABF41D9091E75A5B886B58AAD6799720EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +332,7 @@ Eden's Curse - Symphony of Sin (2013) [FLAC|Lossless]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D9688580A252E446C8F534D762F056B5F824F5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ CROWBLACK - Dark Hearts United (2012) [MP3|256 кб/с]<Dark Rock, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:EC052EE3857970314D197FED37BE266E5E2A4D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +398,7 @@ Physical Noise - Follow The Noise (2013) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FD34529C4F47D9B0C8DA083026D500107FCDDB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +432,7 @@ Crosby, Stills, Nash & Young - American Dream (1988) [FLAC|Lossless]<Folk Rock, 
 ```bash
 magnet:?xt=urn:btih:207B469DF8DD99870F693AE429AAACC16923D9C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +466,7 @@ Gerry Rafferty & Stealers Wheel - Collected (2011) [WavPack|Lossless]<Rock, Pop 
 ```bash
 magnet:?xt=urn:btih:83D9B91ECDDA6D7F966E9041BA36F44947DBFA55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +500,7 @@ Bryan Ferry & Roxy Music - Street Life :20 Great Hits (1986) [FLAC|Lossless]<Gla
 ```bash
 magnet:?xt=urn:btih:A17F20AF350966A96213E7C5000F941DC267CBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CB201FF9ACEB86AD33E13CED03F1B95916B020E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D08C2404317B765BCE8441D7B6F89FDDF2C66380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8133F3E1DC64C446FF066005C69657974CDD37C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

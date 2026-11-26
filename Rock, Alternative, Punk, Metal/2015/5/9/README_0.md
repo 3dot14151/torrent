@@ -23,8 +23,7 @@ Paradise Lost - Maximum Plague (2015) Metal Hammer Exklusiv [FLAC|Lossless]<Doom
 ```bash
 magnet:?xt=urn:btih:7BAC1EC7C155989B5667C6ED2D2C0D7FC20B3E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Sweet - New York Groove Plus (2015) [MP3|320 кб/с]<Сlassic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:70AB0E14DAB1E13072F3DF6563120B86D3D80F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

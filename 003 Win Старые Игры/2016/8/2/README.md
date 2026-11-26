@@ -19,8 +19,7 @@ Parkan: Iron Strategy / Parkan: Железная стратегия (2001) [Ru/E
 ```bash
 magnet:?xt=urn:btih:1500BD0000F0D72B76FCDF4FFDD6F71C73B18D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

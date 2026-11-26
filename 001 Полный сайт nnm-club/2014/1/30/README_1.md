@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:6726C8E3DA1976A2D70D617844C745452F2C0227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:036562E998B43AC220915C83593AD1A1303023F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3244A2313E1FF2F52A04977EDEE71CBB78D30B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CE574037B2CDE365B175F2A290D2FD000E2E0E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ VA - Armada Deep House Selection Volume 1 (The Finest Deep House Tunes) (2014) [
 ```bash
 magnet:?xt=urn:btih:72F9B6EDDBB4567A424627442583AB1DED94E5AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ VA - NRJ Hits 2014 (2013) 2CD [MP3|~245 кб/с (V0)]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:B4979C8E67AD3B4D04FEC00945F6EEA2C073DFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ VA - Ministry Of Sound: Running Trax 2014 (2013) [MP3|320 кб/с]<Disco, Dance,
 ```bash
 magnet:?xt=urn:btih:6DD8278D9F50F6265C1E3B7B9B84D29CF620B83E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1585B901CB98A5E3A6454E4E424643962430602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8A7F3022D3AAB3DF8ECA1CDE1E437941C6B9F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ Bad Company - Dangerous Age (1988)  [FLAC|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:CC55AE8BCC12E1AEE81993B1EAA1C60482C3F95C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ Tropicalia Chill Lounge - Wonderful Chill Out Sex Relaxation Music Lounge (2013)
 ```bash
 magnet:?xt=urn:btih:B9AB1B6BE523DD5596ED9657BE4AC3D1F8809F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ Mystery of the Ancients 3: Three Guardians (2014) [En] Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:2694C882BDDFE13E521514E1D4B64DD5513FB5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:ED9CC9B14FFF9A60A7CCCAEAEA1131D502FF1C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ Indica - Shine (2014) [MP3|320 кб/с]<Symphonic Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:B12BD579E555971CC75A5A1DE9B3B76D38A09740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ Solar Fields - Origin #02 (2013) [ALAC|Tracks|WEB-DL]<Psybient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:1D01C190C6C6FCBAFACA00CD9F3A0E73E5B9A0A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D459F25059A2C8470577783FAFF463E0947957C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +493,7 @@ Wallpapers - Мир животных 8 [JPEG]
 ```bash
 magnet:?xt=urn:btih:226F1F262987CBB8D9BB297487B0E2469E217338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +518,7 @@ Wallpapers - Коллекция обоев - 100 новых микс обоев 
 ```bash
 magnet:?xt=urn:btih:625A7F53EB5AAFFD118CA258046F94AC0E3DC246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1EF36A0D83F7ADE96222545241C566BF3BD507E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ VA - Armin van Buuren - A State Of Trance Radio Top 20 - January (2014) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:E25C7636A0377545E1865271F7E1BAF78BD56498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ VA - Ministry of Sound Presents Clubbers Guide To 2014 (2CD) [MP3|~245 кб/с (
 ```bash
 magnet:?xt=urn:btih:58CAE9DF6227E3B60D612ADAD1A42CD0437709B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ SRWare Iron — браузер с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:170E86B4F3787283A30267C50B79A4C27FF72EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F39929D06DE75D124112FD389A3C5E34E8683C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ VIPE Holodeck - новая среда виртуальной реальност�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ Blackmore’s Night - Winter Carols (2006)2CD/Remastered Edition, 2013/ [MP3|320
 ```bash
 magnet:?xt=urn:btih:15C4836544C3FE5262E33AF4FEAB85E7225BBF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ David Arnold & Michael Price - Sherlock - Original Television Soundtrack Music f
 ```bash
 magnet:?xt=urn:btih:EB5B9A1A3522CDFA97A863EAF8B6DB3966EB8A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

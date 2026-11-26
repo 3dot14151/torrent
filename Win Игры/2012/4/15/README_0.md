@@ -19,8 +19,7 @@ Jewel Legends: Tree of Life (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:DE813E8D4C7B526CB59799E4FCD4FCF0B3FA12ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Mysteries: Return to Titanic (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:A41A75DEE6642CB7E16BC292B5BFD5B7AE6388A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Victorian Mysteries 2: The Yellow Room (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:BAF26B5209B86F4CE54CEFCC5AA7CCB3B8861185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

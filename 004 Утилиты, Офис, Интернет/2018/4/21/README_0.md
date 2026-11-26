@@ -20,8 +20,7 @@ Aiseesoft Data Recovery (   Читать дальше...   )Язык интер
 ```bash
 magnet:?xt=urn:btih:FE1E91F79ADA3368EE918FB1F35393221D78E249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Magic Photo Recovery 4.7 (Commercial Edition) RePack by вовава [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3C46C2D7D7F7C799D3E96B99D0AE9FB0FA6462C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

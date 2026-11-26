@@ -22,8 +22,7 @@ DBF Viewer 2000® - приложение для просмотра и редак
 ```bash
 magnet:?xt=urn:btih:98F814993F23D7D7B60E8E49A92222B61D8FD6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Opera One 125.0.5729.12 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9E846A4D32E6AB349D89135BD5B50747E752F48A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ DBF Converter — узкоспециализированный программ�
 ```bash
 magnet:?xt=urn:btih:3B8B36230DB998F05245A3CCA73C0E945A6F4E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:296911BEAB7A1BC1DB7F40FEBFE87D19E99F7029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:E8C7A22E7E6B00C7DFBABDCAEBC054782B27F5DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:3AF8A6453EAF1B6F4C848E46E39A2C42EE658850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:018FF58567BF65FC5E786367C437D71F24046CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:561E5DFC6BCA46B8C1CA14615E6F489233628247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

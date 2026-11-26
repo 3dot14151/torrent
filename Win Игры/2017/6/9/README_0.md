@@ -21,8 +21,7 @@ Punished Talents 2: Stolen Awards / Наказанные талантом 2: У�
 ```bash
 magnet:?xt=urn:btih:E7E752C29914B44081A5A0D356B58C872816246C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Scarlett Mysteries. Cursed Child / Алые Тайны. Проклятое ди�
 ```bash
 magnet:?xt=urn:btih:04E3D1AD2B5E5020F33D4F6AC1D2E741C1742489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Bridge To Another World 4: Escape From Oz / Мост в Другой мир 4: �
 ```bash
 magnet:?xt=urn:btih:CB097F266F6BC4083D02E69A4C90B258B9E1A4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Pretty Snails / Спаси улиток! (2017) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:BDF47199C0E07EDCB66B194120CEFC7E4F897ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

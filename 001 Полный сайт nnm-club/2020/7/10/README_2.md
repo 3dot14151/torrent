@@ -18,8 +18,7 @@ Cartoon Network | Артбук по мультфильму Steven Universe: The 
 ```bash
 magnet:?xt=urn:btih:47C6C367640A3AB092BACBF13210BCA982CBE5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - This is Rock Blues folk country (2020) [MP3|320 Kbps] <Rock, Blues, Country
 ```bash
 magnet:?xt=urn:btih:B3E88DDD0750F2710FDCFC7BA90AF02DC71A75C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ BBC. Как устроены шикарные отели. Hacienda Hotel Vira Vi
 ```bash
 magnet:?xt=urn:btih:3342106AFF103A30D51BB38C7BC57206E29C129D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Romantic Soul: Popular Lyric Collection (2020) [MP3|320 Kbps] <Romantic, Po
 ```bash
 magnet:?xt=urn:btih:28708B16CDC416AF31C0AF766F0068F414B38DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ ArenaNet, Indigo Boock | Артбук по играм Guild Wars / The Complete 
 ```bash
 magnet:?xt=urn:btih:808D59C986E8AF60FDA71EBCD3793D7DA49669CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ mp3DirectCut 2.30 [Multi/Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Boris Brejcha - Live Stream Mix (Continuous Mix) (2020) [FLAC|Lossless|WEB-DL|im
 ```bash
 magnet:?xt=urn:btih:6416FDD794C3C90BA55167FFFE9EB650669BB2DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF59EE34A7F7D0B919DC62176FA142B5DDB74B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ VidCoder - небольшая утилита, с помощью которой �
 ```bash
 magnet:?xt=urn:btih:E53F7DC3F62223E25D08A303DC5A9130959C9D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:896E792E18B78F701922269133DC26E4AF4821B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ VA - Летняя свежая 30-тка Vol 2 (2020) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:4B14A851D312EB479160F2397337FEBEE904D2AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Atom Music Audio - Guardians I (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Ennio Morricone - Famous Morricone Soundtracks (2020) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:5F4B487499C709E0864C859B1C0481F70DD59BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Visual Studio Code – визуальный редактор кода от ко�
 ```bash
 magnet:?xt=urn:btih:125A97217CA37001CF5303C9EBB9D47A52CC1C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ Tim Lapetino | Артбук по играм Atari / Art of Atari [2 книги] 
 ```bash
 magnet:?xt=urn:btih:87A6BC5DFC1185852E88D8C1BB853CC00C74D570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Atom Music Audio - Exogen: Metahuman Themes (2020) [MP3|320 Kbps] <Soundtrack, I
 ```bash
 magnet:?xt=urn:btih:EB0528A4B33CB44D67AA7F825CB0306635A79FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B01BC057B558AE62704843389D3D75AE9706590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:E56BBFD0DFA2AAF24105F4774134F96FB5DF1FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Tara Bennett, Paul Terry | Артбук по фильму "Большой пер
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:B6FDB90E23293E57BCFC83B4713E68F855BDD56E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ Skottie Young | Артбук по комиксам Marvel / The Marvel Art of Sk
 ```bash
 magnet:?xt=urn:btih:20D9B0E90C701F0D9395F703796701F8ACDE03D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ Kerish Doctor — комплексное решение для автомати�
 ```bash
 magnet:?xt=urn:btih:2AD68D1EC82906329EB9712BC10D7014A4A50CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1482065E3A9EC44AC80995E57B01C4A60FB4F28A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ WhatsApp Messenger - это кросс-платформенное приложе
 ```bash
 magnet:?xt=urn:btih:14946E567B0D7292FF05D4F14D799F0F40C4D1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ Hard EDM Workout - Running 70s 80s 90s Hits: 150 bpm (2020) [MP3|320 Kbps] <Hous
 ```bash
 magnet:?xt=urn:btih:9358425F14947882A8312C4FE193954363FBE6ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

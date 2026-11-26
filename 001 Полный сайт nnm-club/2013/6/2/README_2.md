@@ -27,8 +27,7 @@ VA - Route 66 - Chilling the Road (2013) [MP3|320 кб/с]<Lounge, Chilling, Eas
 ```bash
 magnet:?xt=urn:btih:8DAE9636DFA177FBCBB60C866DDD4FDF01D7505F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Trance World Volume 2 (Mixed By Aly & Fila) (2CD) (2008) [FLAC|Lossless]<Tr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ CD1 - DelugeЖанр: Synth-PopПродолжительность: 00:37:07
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ VA - Сделано В России (Выпуск 2) (2013) [MP3|256 кб/с]<Р
 ```bash
 magnet:?xt=urn:btih:AC3BC806165394AB036068B49D370153BD8F5A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ B4 Standin' In The Shadows Of Love 4:24(   Читать дальше...   )Жа�
 ```bash
 magnet:?xt=urn:btih:8835D4EBA8CA391A27DAAD47F1B7BF54605890AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ The ВЙО - Карпаты (2013) [H.264/1080p] WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:E97828AF6C8C32FDBBF75B3833BAF5F242F40763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5F1CC68E5CFB5D9DFBA0ECA90CB72DCCE652AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Disk One
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ Geo Da Silva  Jack Mazzoni - Booma Yee (Official Video) (2013) [H.264/1080р] WE
 ```bash
 magnet:?xt=urn:btih:FB03D4E26CED649408B4009BB82694EA6044D9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ VA - Попсовая Соточка MTV. Зарубежный выпуск -3 (
 ```bash
 magnet:?xt=urn:btih:DF1B63AE122A0096763D5CF88C5B22E0D05FAF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ Process Lasso Pro - Позволяет вручную или автоматич�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ VA - Gothic Spirits: Vampire Lady (2010) [FLAC|Lossless]<Gothic, Symphonic Rock/
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ Basement Freaks - Funk From The Trunk (2013) [MP3|320 кб/с]<Funky Breaks, Dis
 ```bash
 magnet:?xt=urn:btih:74304F32473DC8A75B557B92D770866493C9A669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ Multi Commander - бесплатный, удобный, мощный, функц
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30AB302CEF3F77EF54D1A63E5130ED2BEA9BE3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E358B2B26175FB3ECD0078CFE3448B402E26C90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ Evacuate The Fallen - Things Might Seem Real (EP) (2012) [FLAC|Lossless]<Alt. Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ Au4 - And Down Goes The Sky (2013) /WEB/ [FLAC|Lossless]<Electronic, Ambient, Po
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ VA - Cool Jazz: The Coolest Jazz Selection (2011) 2 CD  [FLAC|Lossles]<Jazz, Bop
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ Hannah Williams & The Tastemakers - A Hill of Feathers (2012) /WEB/ [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:652F26E8E6051C872B648B52F13F87D9630E3CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +668,7 @@ VA - Теплое лето с Жаркими хитами (2013) [MP3|256 кб/�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EAB23334284DF6711E6AC29729FCEB46C503F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +727,7 @@ VA - The Blues Is Alright For Hurtin’ (2013) [WEB|FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +752,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:704F8786A573C86452F922EEEF215AA823FF3A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +777,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C607AFB6348A77ED2FC03259EC514C82785CE1A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

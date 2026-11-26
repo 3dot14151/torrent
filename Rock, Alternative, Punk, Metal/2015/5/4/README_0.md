@@ -22,8 +22,7 @@ Lanthanein - Nocturnalgica (2015) EP [MP3|320 кб/с]<Symphonic, Gothic, Doom, 
 ```bash
 magnet:?xt=urn:btih:0FD267032A8BB2E967E540D5A8A35945DB9990B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Svengali - Theory Of Mind (2015) [MP3|320 кб/с]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:79AB20A9429AB10B46CA925322851CA3E43084CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Elvenpath - Pieces Of Fate (2015) [FLAC|Lossless]<Melodic power Metal>
 ```bash
 magnet:?xt=urn:btih:991A699410ED7346B73C39168B36E0B6F30A15F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Imicus - Turbulent Skies (2015) [MP3|320 кб/с]<Alternative/Modern Metal>
 ```bash
 magnet:?xt=urn:btih:58D557E963EF3E498DA93867DCC07182CA18D07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Valve - Apnee (2015) [MP3|320 кб/с]<Sludge Metal, Doom Metal, Hardcore>
 ```bash
 magnet:?xt=urn:btih:ACA886C35D60508DCB7C2BBDFE66D2473EA1AC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ War And Peace - The Flesh And Blood Sessions (1999) reissued /2013, Deadline Mus
 ```bash
 magnet:?xt=urn:btih:6FC7F7111638139D227C98CD13BA81B52AAA76CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Bury The Fallen - We Are The Wolves (2015) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:7709A4773C87AFB84A0DD9A892C8B623DA41BE2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

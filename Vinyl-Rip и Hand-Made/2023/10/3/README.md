@@ -22,8 +22,7 @@ October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|V
 ```bash
 magnet:?xt=urn:btih:25CAA81F498E82E7CDB3A121B3B5F1E98B9685C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Benassi Bros. feat. Dhany - Every single day (2005) hand made [restored, declipp
 ```bash
 magnet:?xt=urn:btih:98631A0DF3C6DBD774A515BF58FF272763772C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Wolf - хэви-метал группа из Эребру, Швеция, дей�
 ```bash
 magnet:?xt=urn:btih:3734A623F6F496335F408F0DCE5D0A736F64FD6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Benassi Bros. feat. Dhany - Hit My Heart (2004) hand made [restored, declipped] 
 ```bash
 magnet:?xt=urn:btih:78423F6EC0FD903007BE53D4D051B181D1C601CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:050ECBFE7C7D63B3138ABA625EB15FBF32DBA005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, 
 ```bash
 magnet:?xt=urn:btih:F36D88635320CD5AD68676CE4356BFD73B4B6FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

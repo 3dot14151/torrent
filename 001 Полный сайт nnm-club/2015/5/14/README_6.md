@@ -18,8 +18,7 @@ DARK SOULS™ II: Scholar of the First Sin приятно удивит игро�
 ```bash
 magnet:?xt=urn:btih:88F8E127E3FC91B3BC54AF9C5F256BBE95A6FF64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dementium 2 HD — это возрождение культовой и люби�
 ```bash
 magnet:?xt=urn:btih:D75F1F7D245189FA55C52C3A8C207797C9A0C643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2ECF267C63F3D5D1E1C53116933359B77761E8D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Guitar Pro 6 - лучший редактор табулатур с реалис�
 ```bash
 magnet:?xt=urn:btih:CE96B5AF41A8201E7E26C36A4F4EA6419278BFCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ avast! SecureLine VPN - простой в использовании VPN-кли�
 ```bash
 magnet:?xt=urn:btih:CBE23543869B81EA54998B51007035BC76D4E78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:862507C89A8EBDC992FF6B46E9343464E6F69180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Dark Souls II/2 (2014) [Ru/Multi] (1.11/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0A1D258E3B2048949EDB2C5E9D61B6DCD3721D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Cinematic Mod — прекрасный способ вспомнить заме�
 ```bash
 magnet:?xt=urn:btih:02A25CB93EE46A0F0F67BE7A206539498A8A70C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

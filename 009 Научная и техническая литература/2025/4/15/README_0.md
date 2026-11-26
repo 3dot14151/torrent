@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:9580B02EDBF0F499D23E9F631545F912ABDC090F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

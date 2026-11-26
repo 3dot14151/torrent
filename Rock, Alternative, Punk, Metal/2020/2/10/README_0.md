@@ -22,8 +22,7 @@ Ihsahn - The Adversary (2006) [FLAC|Lossless|image + .cue] <Progressive Black Me
 ```bash
 magnet:?xt=urn:btih:838447E10E9A93391F5AEE751DB04453D0CE5C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elysian Fields - Queen Of The Meadow (2000) [FLAC|Lossless|tracks + .cue] <Rock,
 ```bash
 magnet:?xt=urn:btih:CFAD6A5D0D331D191E035682F85B50E4598F92ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sergey Golovin - Sculpture (2018) [FLAC|Lossless|Web-DL|tracks] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:FDAB6BA698566575557B9830973E9524290E097F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Firewind - Few Against Many (2012) [FLAC|Lossless]<Heavy / Power Metal>
 ```bash
 magnet:?xt=urn:btih:AE566C4DE50C2A3D15C0423FF621AC056392A0CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Servants of the Mist - Healing Process (2020) [FLAC|Lossless|Web-DL|tracks] <Doo
 ```bash
 magnet:?xt=urn:btih:45EE6BE7B6948A76EEBE4DB9D9EC7D412DF91C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

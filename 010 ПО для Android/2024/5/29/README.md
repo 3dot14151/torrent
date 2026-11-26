@@ -20,8 +20,7 @@ eWeather HDF - это точный прогноз погоды от двух м�
 ```bash
 magnet:?xt=urn:btih:434A12BE8655371BEC8551161F557761B1EC0145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ AndroPods v1.5.26 Mod by adidas [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:459925BAC9DAF0A153582943FB39ED38A4C21966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Sebastian Bach - Studio Albums (5 releases) (2001-2024) hand made [restored, dec
 ```bash
 magnet:?xt=urn:btih:8627A3B9280F79AD96A2796BD2135A7749CBCC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

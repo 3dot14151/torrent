@@ -19,8 +19,7 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:A534390726BB936716D18065BD30A990E64A8412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magic Uneraser Commercial / Office / Home / Unlimited Edition 6.8 RePack (& Port
 ```bash
 magnet:?xt=urn:btih:1A04F13B9F2BE23A226E57562DCBA6742A1BBFEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Hetman Uneraser Home / Office / Unlimited Edition 6.8 RePack (& Portable) by Try
 ```bash
 magnet:?xt=urn:btih:2EB2A5B5F5137B2F5EAC6498DA14154861D7B296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Hetman Partition Recovery - программа восстанавливает у
 ```bash
 magnet:?xt=urn:btih:A16659D124EACF356B2420EA2FE82AF94F6BA591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

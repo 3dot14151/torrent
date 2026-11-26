@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:67430E4EB0C04757C83023C0ABEC4E8F7A3B2E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7246D34C5825AE428BE17445C530B37485E4CD6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:515FB7276673E5E4BA37A0299B21D6B748F41C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Diamonds Gold & Silver Logo - еще один красивый, полность
 ```bash
 magnet:?xt=urn:btih:C078ADA32D1348C9EDB4F00056C9FB774D4681BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B52AD42A6DDB68991684E68771FF3F74F1F11B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ CyberGhost VPN позволяет просматривать веб-страни
 ```bash
 magnet:?xt=urn:btih:009E7879F8AA36798ECB89AB615195BD26BD4A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Red Giant Shooter Suite — комплект инструментов подго
 ```bash
 magnet:?xt=urn:btih:6943EEBACF9295F817B8906077B1B75D0FF7CCF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ XVIII век. Российская империя. Начало царствов
 ```bash
 magnet:?xt=urn:btih:4ED25E56D7697B180A2320B9F38C34FAE1778F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ AAct - KMS-активатор для операционных систем Windo
 ```bash
 magnet:?xt=urn:btih:2448FDB9CE4F5587541673A96977B59350AC69FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack Other s [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:5EE43CECD6B634D082A25F62E4051E8BE54AFE2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB57F9744A928601F5C90DA13471AC90A8D4FEA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:BE7EF87B4A55C5DC18C103598B9EEF059BF32D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ DiRT 4 игроков ожидает новый революционный ре�
 ```bash
 magnet:?xt=urn:btih:C76E87EFA3C96B31951499ABDCDC4D6588D5910A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ Webformyself | PHP-Мастер. От теории до собственной C
 ```bash
 magnet:?xt=urn:btih:E229BE2B1CDF8CFC2C2182335A9BEAD723776279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ Navitel / Навител: Официальные карты релиза Q1 2018
 ```bash
 magnet:?xt=urn:btih:75D966CDC420B914FBAC7194B4022D8C888C870A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

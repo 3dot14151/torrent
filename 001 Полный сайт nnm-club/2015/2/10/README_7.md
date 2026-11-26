@@ -20,8 +20,7 @@ Java нельзя понять, взглянув на него только ка
 ```bash
 magnet:?xt=urn:btih:FFAC9AF691585E7416A0981C08FA2970697D6EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ mDusts 2 - 125 Royalty Free 2K Dust Elements for Final Cut Pro X, Adobe Premiere
 ```bash
 magnet:?xt=urn:btih:1906E4DA44C771662EC9B2FEE9B70185DC54EFBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ADD30364111A0F5C4C7BCD66A485A509F09E982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ ArtCAM JewelSmith разработан специально для произв�
 ```bash
 magnet:?xt=urn:btih:4B550336D25221755C77ADE7EC2B5FCD45FBF207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Raven's Cry (2015) [En] (1.01/dlc) Repack R.G. Games [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A4BBE104BB926A305457710CEC8CF6643BA89C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ MInstAll v.07.02.2015 By Andreyonohov & Leha342 [Ru] (Авторская раз�
 ```bash
 magnet:?xt=urn:btih:1EDDAB7762FFFEFAAC71889841B5A76AF6AA765E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

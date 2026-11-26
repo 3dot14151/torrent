@@ -20,8 +20,7 @@ Media Creation Tool 21H2 10.0.19041.572 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5EC39670516F5B61872C134CBB401C6E46595EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:0EA80B809756AF4158C4A7D656DE2DBB66A906F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:7DB35FA66BE89D9268C204F2B271BA7AF7E0183B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

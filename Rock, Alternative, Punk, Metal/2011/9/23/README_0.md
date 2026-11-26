@@ -28,8 +28,7 @@ Diamond Plate - Generation Why? (2011) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:273F864DFC2968E5976095805F149722F076944E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Redlight King - Something For The Pain (2011) [MP3|320 kbps]<Alternative Rock / 
 ```bash
 magnet:?xt=urn:btih:13C8CDC5715219DF6601C9F6BA70EBD380CA6970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Grand Funk Railroad - The Anthology – 30 Years Of Funk [3 CD] (1999) [FLAC|Los
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Mastodon - The Hunter (2011) [FLAC|Lossless]<Progressive Metal/Stoner Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D7C5D1BF4CFCC927CBC7BE51A1E3CD452FFC669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66CC7C535AEA124C6295BE8CDB9054B488D40A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

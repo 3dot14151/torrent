@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:41DDD22312DAD7E8BDD0992B08A1E068FB18E830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OpenGL ES - это ведущий интерфейс и графическая �
 ```bash
 magnet:?xt=urn:btih:6851216C11DE59DEB33E23DABBBE8596B50DE6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

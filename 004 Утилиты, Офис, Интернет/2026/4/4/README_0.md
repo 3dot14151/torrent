@@ -18,8 +18,7 @@ FolderSizes Enterprise 9.8.584 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:66DFFD195A39F4BCF9F810769FB9FC60DC770B5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:A509B02891638F49FFDA0FA2C5971C38CBA6B749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ uTorrent 3.6.0 Build 47228 Portable by Alexandr1235 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:11DAB2D5EFC67AFCD87BB2A869BD4C1D8A13E498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06560F86256D30B7CF18A03185E9FAAC7AC6B64B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kingston SSD Manager — это приложение, предоставляющ
 ```bash
 magnet:?xt=urn:btih:5057A34C255A63325B07765A478C71DBD85D3BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ RadioMaximus 2.33.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7354050F0AD8252555EEC77609D4357459C7A15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ r3dfox — это форк веб-браузера с открытым исхо�
 ```bash
 magnet:?xt=urn:btih:014BD58353F4E534536831B712B887496BE09F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Mullvad Browser основан на движке Firefox ESR. Содержит �
 ```bash
 magnet:?xt=urn:btih:ECDAEF00359C36A171B883C82A1B23A9D238B45E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 ```bash
 magnet:?xt=urn:btih:1FB1069A7AACB8419C1F85F61E19DAAD179383B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:F13C49EAAF431455820214BB8097210766BE01E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ PDF Shaper Ultimate 15.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CA38AD0162631FB2FF38BD601C5D24A9DF16EA12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ AllDup - бесплатный инструмент для поиска и уда
 ```bash
 magnet:?xt=urn:btih:62A458CF47C98830A72DF8FE2448ECE26F99B891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ WinMerge является весьма полезной для определе�
 ```bash
 magnet:?xt=urn:btih:AFA3F2A5D87CD6089B35B77A69E1E047045D4C79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

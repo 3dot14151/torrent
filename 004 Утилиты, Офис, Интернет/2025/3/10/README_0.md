@@ -19,8 +19,7 @@ FocusWriter 1.8.11 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:911B92DB02B4C0A9CCDC1E985A16BB473F847BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

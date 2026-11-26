@@ -22,8 +22,7 @@ Bulletbelt - Burn It Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Meta
 ```bash
 magnet:?xt=urn:btih:8F6BCB4F2F7EBF1CA4DFD24A68507482649990FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ King Ov Wyrms - The Womb Ov Borealis (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 ```bash
 magnet:?xt=urn:btih:08F950634F919C9FEDFBBCF65AA639F27820376C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dopelord - Songs for Satan (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:9F002FA314FFD0BA0462EB7555AFA58C6A06E74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dying Fetus - Make Them Beg For Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Brut
 ```bash
 magnet:?xt=urn:btih:64E1CC78BDFBC92D84E7238BD2F7884981506975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Grief - Crucible (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:A2EF430153CF25B5C5792ED932CDB20632D2D0A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ XTC - The Big Express (1984) Remaster, 2001, Virgin Records [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:DBE434F1C1830DE1EF9BD8253D1D8A85210A36AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Samsara Blues Experiment - Rock Hard in Concert - Live (2023) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:A598A930E89FA07B41E93238D11128653B78A825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Mortifer Rage - Murderous Ritual (2008) [FLAC|Lossless|image + .cue] <Brutal Dea
 ```bash
 magnet:?xt=urn:btih:22A7D2D192DB0C06821AB1952DBC3005AB312C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ KK's Priest - The Sinner Rides Again (2023) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:2D2626FDE1E396EB6FB7205FBC36A0F90FB10F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Velvet Two Stripes - No Spell for Moving Water (2023) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:8BCF68872BA19ADD4B49DDFC19CBC3504E8CFC57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

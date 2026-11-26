@@ -21,8 +21,7 @@ Issa - Queen Of Broken Hearts (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:B23238F7B8A4D4D6E838FD31857235CD95F7E9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Wings Of Destiny - Time (2015) [FLAC|Lossless|image + .cue] <Melodic Power Metal
 ```bash
 magnet:?xt=urn:btih:0863C4D9F01DF4949AB5B7798AF93BAC8303F439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Primitai - Violence of the Skies (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BA4988F13A18A0D84F3B8F1D18F0575A9818DFD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEFC77AB2A1D8C6C64D3C5D090B05D30FC681547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Christian Liljegren - Melodic Passion (2021) [FLAC|Lossless|WEB-DL|image + .cue]
 ```bash
 magnet:?xt=urn:btih:43C8889CECF9A8FEFDD5B78B8F8F8856AE55E8C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Silent Winter - The Circles of Hell (2019) [FLAC|Lossless|WEB-DL|tracks] <Power 
 ```bash
 magnet:?xt=urn:btih:476C3FDCDA8F7E177DC67DBA8E6B471845C82170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Gary Hughes - Waterside (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:4CE8B1B6918B1AD5F929F87A9BA887E7BACC656C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

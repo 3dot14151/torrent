@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:6C45BDD5A8EF4A593B5D106D8EF7AF63A5CBF1D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Morphology - Plankton (2015) AC Records [FLAC|Lossless|Vinyl|tracks] <Electro>
 ```bash
 magnet:?xt=urn:btih:086950B255134B81936461A49070BBDCC98F90DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Network Radar представляет собой простой в исполь
 ```bash
 magnet:?xt=urn:btih:A78A41B23777A80609BDE2AE2FEE3142DF361DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Tom Schuman - Designated Planets (2013) Jazzbridge Music [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:6A0A9495086405EDBB7CF9654B184C4E6F7F5AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B9069CB9CE2E898FF925414BD2C2218863CF66A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - This Is My Church Vol.5 The Chill out Edition (2017) [MP3|320 Kbps] <Balear
 ```bash
 magnet:?xt=urn:btih:599508805C8C19F2F34FEC60F5FCD6D520EDFA3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Saint Just - La Casa Del Lago (1974) Reissue, 1994, Mellow Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:928AFB5C8C18EF49796FA6C0D63696C2B9F03C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Cookie  - Программа для полного удаления cookie-фа�
 ```bash
 magnet:?xt=urn:btih:D368879202387CA1C118815F68179FE7DD5F00C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:23EADC6C64646F001AAB7FEACF93AC5A3B79EDC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ VA - Electronic Chillout Instrumentals (2017) [MP3|320 Kbps] <Balearic, Downtemp
 ```bash
 magnet:?xt=urn:btih:7AEB303596CF16F6B53A3A9EBCDEE0E84C377385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ File Juicer может быть использован (   Читать дал�
 ```bash
 magnet:?xt=urn:btih:AA0D5C8D828934F964BB153DEF928EE34D48556F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D763D5C25D4DBA910ADBE4F7B94C936F48899DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ VA - Body Shaper Vol. 2 (2017) [MP3|320 Kbps] <Pop, Trance, Dance>
 ```bash
 magnet:?xt=urn:btih:3D7152EF2AAC333BC765DD98EA9DB143B89066D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21582BE96963AD777D334C7F061546CABBB8BFE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Video Downloader Converter - это программа от Allavsoft, кото�
 ```bash
 magnet:?xt=urn:btih:BCB16A95A4CA543A52B258AE11EAB7B6EB31C789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36DAA4C7C35673AF92A5D2CC5E375F2490A9289E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ VA - Orchestral Trance Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:472074DE2F358AB072F9586AB17DFAB2C943D04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Graphic Styles  содержит набор высококачественных
 ```bash
 magnet:?xt=urn:btih:D5B51B7A09B0C464B6A125802F27A7402E3ED433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Robert Fripp and the League Of Crafty Guitarists - Live! (1986) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:0227332C0844DC29C92C8B89A64713A436F88BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A7AB1BFB37C4F814377CCCBC80A08580DAC1E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0700A68D5FFC67A2729A9E68A84222628C4CB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ Bigasoft Video Downloader Pro - популярный онлайн видео з�
 ```bash
 magnet:?xt=urn:btih:2D5867AE6483B73567C7806279D94B7122F6CF9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F07C6F551202D5DD189B3C77D079A6C33E49F937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:815903C4BE0CD51E7DAB058916052FA9707DA5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AF952BC59EEC6ACBE4525A7F193F82A726DC3F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ VA - Jazzy Romance: Lounge Smooth Instrumental (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:D9C7853018D922FDE795750323EB1627FF138A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

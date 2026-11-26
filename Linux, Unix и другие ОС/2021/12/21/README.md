@@ -19,8 +19,7 @@ elementary OS 6.1 Jolnir [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:8AC8290650DB5AE9115C4B1640F312CA721F896E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

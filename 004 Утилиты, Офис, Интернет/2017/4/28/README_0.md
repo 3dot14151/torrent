@@ -19,8 +19,7 @@ VeryPDF PDF Password Remover - программа используется дл�
 ```bash
 magnet:?xt=urn:btih:007853403927B2134986CF6813DF7EE07F6D563A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

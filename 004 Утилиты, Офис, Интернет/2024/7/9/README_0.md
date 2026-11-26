@@ -19,8 +19,7 @@ Glary Tracks Eraser - полезный инструмент для защиты 
 ```bash
 magnet:?xt=urn:btih:18377B899314E95FB0A980646FAAB91E1AFF1EA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ MetaX 2.88 [En]
 ```bash
 magnet:?xt=urn:btih:2DC61A5B47F4AD5029B50103ECE06AF7A4DC74C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Glary Disk Cleaner - инструмент от компании Glarysoft для
 ```bash
 magnet:?xt=urn:btih:0A1A2091D1930E156A7DD4E7796B6EFFAA8D011B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 ```bash
 magnet:?xt=urn:btih:1C936553EE99A1CE953D38FD6A97B02949A09599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:245076F17E64391E095826192D13FC7A6034A254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Folder Marker - помощник, который может маркироват
 ```bash
 magnet:?xt=urn:btih:CE34EBA166C4C496BC35FDC68FE541626F4C72C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Abelssoft Win11PrivacyFix - позволяет включать и выключ�
 ```bash
 magnet:?xt=urn:btih:19794FDE222B4C9B06B0773F4091227CF799D55D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ iFind Data Recovery - программное обеспечение для во�
 ```bash
 magnet:?xt=urn:btih:37779946D63BAFC400069BF4EE1608F8EED5E8FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Alt SwitchER - программа для автоматического испр
 ```bash
 magnet:?xt=urn:btih:4EBF4D639CBD526512098E961E82EBD0D51255A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

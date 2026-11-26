@@ -22,8 +22,7 @@ JoNo - рок-группа была основана в Готланде, Шве
 ```bash
 magnet:?xt=urn:btih:E5D88F3F3E52DA0822861F8270E1656415EE051B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tristania — симфо-готик-метал-группа из Норвеги�
 ```bash
 magnet:?xt=urn:btih:D9FDB3371A7D6D454B1BEB9695414FB66375469D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

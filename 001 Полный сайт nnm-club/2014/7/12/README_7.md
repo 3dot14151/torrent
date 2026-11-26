@@ -26,8 +26,7 @@ VA - Shut Up & Trance (2014) Vol.1 [MP3|320 кб/с]<Trance, Uplifting>
 ```bash
 magnet:?xt=urn:btih:2EFCE61D8725F7570D7B547AD05A83F77F73327A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Comedy Баттл. Суперсезон. Выпуск №15  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:BBBC8EA60E55711685728F27CEBCD475A8F3017B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30CF83B287520CFFA3255917E1A20BCEE2ECB28B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFBBAC476DF0C84C751C302F528B336A1AD2C260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Claude Hay - Live At The Clarendon (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:67F8596209F1455F15D1A86918FB07331CCED471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ VA - Luxurious Lounge Affair (30 Sensual Songs For A Hot Night) (2014) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:B44C98826FF4C341248ACFE52BDF33303A026B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B53C840B5D517259AEC31E38F3FD948CACFCB88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4562B63A62BCA35FD5579E2B8BA591BF35D014E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Paint.NET - простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:D61AD54A414249F46E46FC3DF5A1462BF8071B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Опасные Связи (2014) [MP3|320 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:7FD82206F542CBF9E031CF632E4E5A7421F84207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ VA - Pulsar Top 10 (2014) Summer 2014 [MP3|320 кб/с]<Trance, Uplifting>
 ```bash
 magnet:?xt=urn:btih:B7EC7F0FA2366EB9AFF998DC0A222011D7C8DFE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ Anna Abreu - V (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:39699E2EA0690755400246EB598DFE99DBC0187A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ Jill Barber - Fool's Gold (2014) [MP3|320 кб/с]<Pop, Jazz Pop>
 ```bash
 magnet:?xt=urn:btih:0C3C7AE62804220DCC73BD06DF1900BB833752AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95A6D244AED97CF4D719C99C82494B13E2909A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A503A0BBCAFE20C10F8693617FE6F8D253AFDD60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6E48AD0B8D39FE8ADAAD838C0B3252E619EECAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6380B46ECC3B58250547B916EA92B14A49FB51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ Two Timer - Two Timer (2014) [MP3|320 кб/с]<Heavy Blues Rock>
 ```bash
 magnet:?xt=urn:btih:43C7D21D4385848A044E1CA406A63F76DE716F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9261A2D7D8C12B31820408226D2AE943273DF76A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ Smoove Records - In Love With Eagles (2011) [FLAC|Lossless]<Vocal Jazz, Bossa No
 ```bash
 magnet:?xt=urn:btih:4E085370FFB9CEB2C0218E545194182BB3FAE9C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66E65E95DF12DA252274B2339CD1E7CE243358E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ VA - Ibiza Acoustic Clubbin' - The Dancefloor Classics (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:07E8BA9E25CC3FC3F14F3D0E0F9CB0D127072AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +741,7 @@ VA - Selfie Lounge (2014) (Sexy Chillout Music for Ibiza Del Mar Lovers) [MP3|32
 ```bash
 magnet:?xt=urn:btih:18AD6053CD070BD293417A63B5B3BF013569155E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sabayon 16.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ```bash
 magnet:?xt=urn:btih:15F902C4D3B80277FDF68BB691281BD02E2F079F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

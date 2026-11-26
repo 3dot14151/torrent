@@ -24,8 +24,7 @@ Diablo III/3: Collectors Edition [En] (L) 2012 [Без таблетки]
 ```bash
 magnet:?xt=urn:btih:7E738C09DB7EBB083DB2C4E2EBB99C20D7FCBB90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Weather Lord  / Повелитель погоды (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:FC798D92822C71B74B29FB724CAC9B4FDF413A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Fabled Legends: The Dark Piper Collector's Edition / Небывалые леге
 ```bash
 magnet:?xt=urn:btih:14625A952297EEC5C2CB179F614949C62FF48CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

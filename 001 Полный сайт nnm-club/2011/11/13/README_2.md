@@ -27,8 +27,7 @@ VA - Клубный Рай (2011) [MP3|128 kbps]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:16CE5981329632AE54202EFCF203898E78336D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CFBBB7371AD53677D998BA45111D27F3308FCC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - RM Electro Sensation Vol.25 (2011) [MP3|320 kbps]<Electro House | Electro>
 ```bash
 magnet:?xt=urn:btih:2D60E754373F1C9222D71E57E64CC22135215973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Girls Wallpapers 16
 ```bash
 magnet:?xt=urn:btih:10B7FF7F940BBA0912A80C2513AF31F03F9F900C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEEA4D1B8D66EA95CBB5A27EAE38E1B23369B6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ VA - Хиты Под Водочку Выпуск 11 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:D2AD42D0D4FFE63442B065F8A2DE6D92572B70A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ The Keepers: Lost Progeny Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:E2AFE1672F6FCB253D7DC39A4B771E74E76A75EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Sonata Arctica - Live In Finland (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:0BE87F58F5497B0373E6923C501425009A4E5007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E4CD4A60B3F3F61AA24ADB364EB6EC04DA413E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE144D2665536F8CD9AD432892CD37B5744027AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ Girls Wallpapers 15
 ```bash
 magnet:?xt=urn:btih:0C06369999FE0AF516231125D9F19D39560F4148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ VA - Mega сборник: Хит-парад Europa Plus 2 50/50 (2011) [MP3|128 
 ```bash
 magnet:?xt=urn:btih:732EDEE08280BC072191AF08BDF94707341FEB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ VA - Лучшие танцевальные хиты (2011) [MP3|192 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:803887D51B6DF4BA72F793BE6F451E8F0F9DA8D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F221B6D0BEE039F78DDB8D9570C9E7074CA3AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B7B91F607764D74B79CDC2A3C265D630D544E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ Mobile Digital Magazine - самый популярный и авторитет�
 ```bash
 magnet:?xt=urn:btih:D80B00DDD0F424A07717917F74AF4CF05085E1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C91391D7E6BDDCA9C6F200597744F438BDD7BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ VA - Золотая лирика (2011) [MP3|320 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:C95FEB35F5CEEE71679F23041217AC9141391B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DB4B575778A2A86CDFDE5E57911537BC3D027BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ VA - Карусель Disco (2011) [MP3|256 kbps]<Pop, Dance, Club,>
 ```bash
 magnet:?xt=urn:btih:464FD098270D84E845A13927586FAAF45B87C4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E9B85312530EBDBC743B9EDE37DF05A56780DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ Cartoons Wallpapers
 ```bash
 magnet:?xt=urn:btih:070675B9BA7D52B0B9272D67E597730B252F6DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D4406962744FFAF75B5CAB1C31760A37FE3D705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E40A220A5A8FAD4DF93D47FFAAB7C603C23F4E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6447E5F05182EE6FB4C68E5E2485DEB0274F0588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Vanced YouTube Music v4.18.50 [Ru]
 ```bash
 magnet:?xt=urn:btih:5A3306AF0AFC7F514A1072C3406EAD74B8CA22FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

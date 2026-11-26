@@ -22,8 +22,7 @@ Slayer — американская метал-группа. Коллектив 
 ```bash
 magnet:?xt=urn:btih:1DD796BA825238F446AACC471E3AC304C20DB4E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ D8 Dear Father [7:18]Жанр: RockПродолжительность: 00:53:56
 ```bash
 magnet:?xt=urn:btih:883A87F275036E358083F40991C447C0CF60FFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

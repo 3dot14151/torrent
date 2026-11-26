@@ -26,8 +26,7 @@ Shah - 4 альбома (1989 - 1994) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E4CC42BC6476129F12211E3CDB0FF1E4F47F574A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

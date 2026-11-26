@@ -19,8 +19,7 @@ Looney Tunes: Wacky World of Sports (2024) [Multi] (1.0/dlc) Repack FitGirl [Del
 ```bash
 magnet:?xt=urn:btih:131E745EFCD9E1C11CEF337475D125F42DFEAD80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16069251/dlc) Repack FitGirl [Delu
 ```bash
 magnet:?xt=urn:btih:07E388ED994A436523B3B7701E1A22EA72692125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Supermoves предлагает игрокам освоить фриран и п
 ```bash
 magnet:?xt=urn:btih:331C9F65648C911FC3713D25EE85383D2D159C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:7DD0BFB6B6E520E435A3BBDDBFA4570516ADF5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pneumata (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:316E1D7B3FF5491CAB3730A772C90627DE126491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Yars Rising (2024) [Multi] (1.1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:75A05319EECCB32E2E7C4E5C28873421094CC5B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Rugrats: Adventures in Gameland (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:66BBC6D34344285E7BC6E82A22EB8F56AF21F1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Townscaper (2021) [Ru/Multi] (1.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:F4EAA5B705EA644F32DD89FB2EF2FD3A2F0597D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

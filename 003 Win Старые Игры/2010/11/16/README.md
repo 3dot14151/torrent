@@ -26,8 +26,7 @@ Half-Life 2: The Orange Box [Ru/En] (RePack) 2007 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:D884F45783A6D91CAAEFF345094927C802DD82FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

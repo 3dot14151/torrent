@@ -21,8 +21,7 @@ OS4 13.4 (легкий дистрибутив) [x86, x64] (2xDVD)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

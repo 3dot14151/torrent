@@ -19,8 +19,7 @@ Fantasy General (1996) [Multi] (1.0.20211006/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F1CB0E937F08765132D5090B4BFD46A884E58CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

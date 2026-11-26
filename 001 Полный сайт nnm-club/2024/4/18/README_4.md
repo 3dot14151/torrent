@@ -20,8 +20,7 @@ O&O Defrag – инструмент дефрагментации дисков, �
 ```bash
 magnet:?xt=urn:btih:690456DA444E0368C92D4585EC9D3CFC13DEA1CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

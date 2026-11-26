@@ -21,8 +21,7 @@ VA - Новая Русская Дискотека - 3 (2016) [MP3|256-320 кб/�
 ```bash
 magnet:?xt=urn:btih:46C294E2FF03F05FB639007D695E7669F0D80184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Call of Duty 4: Modern Warfare 1.7 (2008) [Ru] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:6A3A0D80A4604F3D65A68C9E48468B8D6FAC2E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D4AE7BA0B9EA3A674D90D6C24E980C7956AAD9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ VanDyke SecureCRT 8.0.1 (x64/x86 build 1082) April 26, 2016. Эмулятор т
 ```bash
 magnet:?xt=urn:btih:F86E142EE47A37621C4D44725173BE45A3B4C232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C52000C1D1E1EC663E1C735BD932167061D44A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63DF914D111720DC8235751493AE6AFE5AD48B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2684AC59C79DDAEC6148F13DDD76D539CEF62293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ VA - Disco 80's Maxi Club Hits Vol. 1-3 (Remixes & Rarities) (2012) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:67BA880E56407BB849283C38DC039BF6307AA107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40CE8215B5CA82C8554C0C164103CCDAD67B8F8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Final Fantasy IX (2016) [En/Multi] (1.0.20160426) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4FA2980A041E91F88D65A5CD3F03AB0352BE2076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ ArtCAM является ведущим программным обеспечен
 ```bash
 magnet:?xt=urn:btih:D5D256F4C4893BD830757001FE69B1F65431E150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27B53E37F551827862E378224868196E71BD5601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Fallout 4 Patch [Patch + Crack] (2016) (1.5.157)
 ```bash
 magnet:?xt=urn:btih:0CA52D6EBF63A26151EC39C375712D7E938FCFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

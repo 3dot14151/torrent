@@ -19,8 +19,7 @@ KidsControl / Cемейный GPS трекер v5.2.14 [Ru/Multi] (обновл�
 ```bash
 magnet:?xt=urn:btih:8E0063BA2B6E5B122A26D06240403D5B31774871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

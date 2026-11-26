@@ -19,8 +19,7 @@ Kentucky Route Zero: Act I — стильная сюрреалистичная �
 ```bash
 magnet:?xt=urn:btih:7660AB8C72E79AFA7C0F739ECB7E1C4CB9347F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hallowed Legends 3: Ship of Bones Collector's Edition / Священные ле�
 ```bash
 magnet:?xt=urn:btih:822EB0A89A4B64A996284F6886276E5ED7725C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ The Bridge - 2D-головоломка, которая заставляет иг
 ```bash
 magnet:?xt=urn:btih:91442F841709DD75D62D83EE11D71DE52D10062B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Romeo no Aoi Sora | Romeo's Blue Skies | Голубые небеса Ромео 
 ```bash
 magnet:?xt=urn:btih:189B389635B3831FD65F97818DF99BCD53D5B43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jurassic World Evolution (2018) [Ru/En] (1.12.4.52769/dlc) Repack Other s [Premi
 ```bash
 magnet:?xt=urn:btih:4E33990EC17761FC7A655D9B0520F550173B1CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ SkillBox, Сергей Корниенко и др.| Веб-разработчи�
 ```bash
 magnet:?xt=urn:btih:759CA32E258DA7EA8DAC318F4E1B8B8E82076B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Supraland — игра-головоломка от первого лица в ж
 ```bash
 magnet:?xt=urn:btih:9C0D056A8FC8E772CB26330BDEE2302BE88026D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

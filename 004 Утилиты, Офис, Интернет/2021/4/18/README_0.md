@@ -19,8 +19,7 @@ IObit Screen Recorder - это бесплатное (пока) удобное в
 ```bash
 magnet:?xt=urn:btih:9BFDC85008D864ECECFC3DC55F1733579A465E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ProduKey - крошечная, бесплатная утилита, котора
 ```bash
 magnet:?xt=urn:btih:B0E6FC5A86FBBC35304DEE0856E72F87F46051B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

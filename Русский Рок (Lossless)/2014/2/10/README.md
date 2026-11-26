@@ -28,8 +28,7 @@ Project NT - Songs for Owls and Dead (2013) [FLAC|Lossless]<Rock, Folk, Acoustic
 ```bash
 magnet:?xt=urn:btih:035B297F01F820573D62EFB9557FA3D2A7493589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD61D183F47874BCFF12C776DFE9C3D3E727529A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

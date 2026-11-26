@@ -22,8 +22,7 @@ David Rogers Sextet - The World Is Not Your Home (2007) Jumbie Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:FCE0E28E2EDA14A5207A8C872D835325B2BDD951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Teodross Avery Quartet - In Other Words (1994) GRP [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:AFB7AD89D262C9BF3E5935D21794AAD418DBBBFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Paul Motian - Play Monk And Powell (1999) Winter & Winter [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:6CDEF6599E03FFDF70131A7A86736A1868B6CA6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Antonella Catanese - Red Inside (2012) Jazzy Record Label [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:59BDB192B7F6510EFCC6891FC98964EFB3B26C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Vince Guaraldi Trio - Jazz Impressions of Black Orpheus (1962) Analogue Producti
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - 6 Years (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:E0F97252AE281338927A7397F5EA6D1C7C3829E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Herbie Hancock - Head Hunters (1973) 2016 [FLAC|Lossless|tracks + .cue] <Jazz Fu
 ```bash
 magnet:?xt=urn:btih:C9F1496BA5E7F6E7EB8B7CD78782AB440987C883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Markus Schulz:
 ```bash
 magnet:?xt=urn:btih:9D2E5AAC650BDDB1C1E5C169D10E8B8CD72C79E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - For New Music Lovers & Dancers (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:B843A7DA3B9890710476349B61AA69D3F67E714D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Lingon позволяет визуально создавать файлы ав�
 ```bash
 magnet:?xt=urn:btih:97B9C72E4884E9224AE88064ED8B76649B1D48AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ VA - Fashion In Profession Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:6BED3562F4AB1937AE18D9994835ADC0B411CC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Fifth Harmony - Fifth Harmony (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:960C8177023CCB42A58DFBE23EEF814BB0257C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01FAD07583555496EBEDBE2272FC7B38485219C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ D.C. LaRue, настоящее имя - Дэвид Чарльз Леро, род
 ```bash
 magnet:?xt=urn:btih:1DBD5FF70DB1716C461CBE626E0E239DE43FE595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5116921C2E5B07BE172F48657D33288A408046E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BAEEC57A71F5562EC87F56141F6E739968CA559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA5C118D7263CBA2A476B82D9F99C12E3643A8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Maniac Cyberpriest: Synthpop Lives By Various Artist (2017) [MP3|269-320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:18681AA932AC77E39ED3587DFACE50959E6C846E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Vektor - Terminal Redux (2016) [FLAC|Lossless|image + .cue] <Thrash, Progressive
 ```bash
 magnet:?xt=urn:btih:49B20F0BA4825F8B0A4C0E7733A3B2632698EFE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ VA - A Song For You Dance Europarty (2017) [MP3|320 Kbps] <Dance, Pop, Shlager>
 ```bash
 magnet:?xt=urn:btih:15BFFC3E52C5C551A3D087391AB63942D911977F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F21FBA561388D067DDE1AA2233588F23E620F6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Samantha Barks - Samantha Barks (2016) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ Airmail – это почтовый клиент для операционной
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ Downie поддерживает более 1,100 популярных сайто
 ```bash
 magnet:?xt=urn:btih:D5906B40BAB3EC9DFA937044292484543DC75A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

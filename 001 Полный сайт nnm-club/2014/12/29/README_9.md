@@ -28,8 +28,7 @@ Your Shapeless Beauty - Sycamore Grove (1999) [APE|Lossless]<Melodic Black Metal
 ```bash
 magnet:?xt=urn:btih:B96341426FF64C9CDCD61EF516062F509C2F7DA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Zarpa - Infierno (2004) [APE|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EDA3587D39B9C4CC73B2CC45B56BFD28F2394964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Zeke - Death Alley (2001) [APE|Lossless]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:3A9EB859CAEC58D8D41D559132D8F903C7A2863E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Carsorica Vol 1 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:3C4E0336CD6163B479CFB0A6115A763DD460D0D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ H-Bomb - Attaque (1984) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4B7C72B0BA9609F5FB44A342213874DF2AEEF7AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Galactic Cowboys - Machine Fish (1996) [FLAC|Lossless]<Progressive Metal / Heavy
 ```bash
 magnet:?xt=urn:btih:5C1BC2A5E09B6DB34CEA122277848BFA43CC5414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Galactic Cowboys - At The End Of The Day (1998) [FLAC|Lossless]<Progressive Meta
 ```bash
 magnet:?xt=urn:btih:9A7583AC636FD3FDA803443522E7D5526EA8E7C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ H-George - Slave Of Society (2011) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C84557913B215E92EC18D2396D7D17134F7C016F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ Blodhemn увидел свет ночью 2004 года, образованны�
 ```bash
 magnet:?xt=urn:btih:EF0C39D35B654F38FB97EF3D5AFE5BA9CEC8874C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ Vreid - Welcome Farewel (2013) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:86AB2622D0A823BB566219B090A3EF3B043980C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +382,7 @@ Galactic Cowboys - The Horse That Bud Bought (1997) [FLAC|Lossless]<Progressive 
 ```bash
 magnet:?xt=urn:btih:FCACE56AB71F39A1CA880F335DB07953213E8531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +416,7 @@ Six Magics - Behind the Sorrow (2010) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:E477D685D310162F945449BD791B2571700CABFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +444,7 @@ My.head - Only1 (EP) (2014) [FLAC|Lossless|WEB-DL]<Ambient, 2 Step, Future Garag
 ```bash
 magnet:?xt=urn:btih:4486C2DA61D99A04B534B4CC2A473EC9FA4AF26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DEEA340D228BD8F087159EBC3474384694D2973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +503,7 @@ MasterCastle - Enfer (De La Bibliotheque Nationale) (2014) [FLAC|Lossless]<Power
 ```bash
 magnet:?xt=urn:btih:6C1A14BEE9C264872D2EBD3E62630D22FA05F5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +537,7 @@ Galactic Cowboys - Galactic Cowboys (1991) [FLAC|Lossless]<Progressive Metal / H
 ```bash
 magnet:?xt=urn:btih:5D0059001A173BDD7B0035321EF1DAD9F8B1B37A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +569,7 @@ VA - Jungle Funk Recordings Xmas 2014 (2014) [MP3|320 кб/с]<House, Deep House
 ```bash
 magnet:?xt=urn:btih:5BF32DFD363BF154009AB0B5DDC918B54D67F258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +601,7 @@ Qualia - Melancholia (2014) [MP3|320 кб/с]<Post Rock, Ambient, Instrumental>
 ```bash
 magnet:?xt=urn:btih:143F0D1F4615BFBBA2E74CEBB0CB6E2A5901C298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +635,7 @@ Zeke - Flat Tracker (1996) [APE|Lossless]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:3C08893AF06CBD3126936C1F0C98110B5ECD0538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +668,7 @@ VA - Dark Mystery 02 (Compiled and mixed by Deeper82) (2014) [MP3|320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:FD459559F0A65F7FE18DA4BFFCB9591C3B6ED90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +702,7 @@ Zeke - Super Sound Racing (1996) [APE|Lossless]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:80A926C439ACF484F1A99659B0306072997C6D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +736,7 @@ Zarpa - Las Puertas Del Tiempo (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:218779A8EBA54CE1BE7521BF9335620B1C5EA00F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +770,7 @@ Galactic Cowboys - Let It Go (2000) [FLAC|Lossless]<Progressive Metal / Heavy Me
 ```bash
 magnet:?xt=urn:btih:579D77C7F02DEB34FC2BD12D077C2DA172DCDA37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -819,8 +795,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6FD545CB7F20B37F4EE91EEB1F99B269F948DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -854,8 +829,7 @@ Destrage - Urban Being (2009) [FLAC|Lossless]<Thrash Metal, Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:9477B13C47AC25E1B31A1A28CFEB8EE0D068F0F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

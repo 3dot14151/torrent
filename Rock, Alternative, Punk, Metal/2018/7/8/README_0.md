@@ -22,8 +22,7 @@ Darklands - Darklands (1998) [FLAC|Lossless|image + .cue] <Gothic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:D0FB9A93CCE9C64F75C1051BE955A1BA9E917F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Heretic Order - Evil Rising (2018) [FLAC|Lossless|image + .cue] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:1ED90970D438B93F78690F064D46374EEA369D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Masfel - Kinai Natha (Chinese Flu) (1994) [FLAC|Lossless|tracks + .cue] <Experim
 ```bash
 magnet:?xt=urn:btih:A951B0853C63F2677C197089FB71B5AF6C8F32FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

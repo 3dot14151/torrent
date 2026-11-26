@@ -22,8 +22,7 @@ Brighton Rock - Love Machine (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D140FDB8049F501A47D2B1D7D8CDE853715764A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trivium - Ember To Inferno (2003) Reissue, 2004, CD-Maximum [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:58E32DD5884733D59C2267B42E59EFE2107A78B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ White Magician - Dealers of Divinity (2020) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A78FCBD0AD712465D1E68749DFB043DDA7141389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Albert Bouchard - Re Imaginos (2020) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:FE0C9554BE347F960392A59B9DBD7E2CBBD29C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lucid Dreaming - The Chronicles, Pt. III (2020) [MP3|320 Kbps] <Heavy Metal, Pow
 ```bash
 magnet:?xt=urn:btih:97104C56F1847E13F8409D7CFD422ED47B4E10A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Astirium - Время Перемен (2020) [MP3|320 Kbps] <Heavy Metal,  Power 
 ```bash
 magnet:?xt=urn:btih:50B1B0B533A0E06ECD2848B7F33F4BA09F434AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF56264F9E11FEA8809861228B4233BE6776A909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Trivium - Shogun (2008) Reissue, 2012, Roadrunner Records [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:250B947A1CFCF3EBB1B61A7A8FA6F9D0D13A1702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Neil Young & Crazy Horse - Return To Greendale (2020) Live [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:F6AAED62528E247FBACA7B1EA6B4C0F0E6639DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ KDRR - Корея (2020) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:76046F6D85EC23997467BFA8D7A01C406249EF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Led Zeppelin Salute - Get Some More Led Out (2011) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1889CDEE4E2883D7095FC866EBAC7B178F7F495C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ CD- 1:
 ```bash
 magnet:?xt=urn:btih:ED92232D1C24A526E468F5FFC0DBE76233B1049C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF9B577D44D74D92738B94A3D8D468A620D2F5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Whitesnake - Love Songs (2020) Remix [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, D
 ```bash
 magnet:?xt=urn:btih:AB028944C29767ECDE2B831FABB0E3430413ADED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Территория ДДТ (2020) [MP3|320 Kbps] <Rock, Pop & etc.>
 ```bash
 magnet:?xt=urn:btih:1FE34B35E33ECDFC2913881EA6C22C264005F066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C79B4BC6595938F8CFF031ECF01E7854FB79B444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Sirrah - польская метал-группа, играющая в стил�
 ```bash
 magnet:?xt=urn:btih:827837427EC9DB8514073186E00439577922ABC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tobias Sammet (Edguy; Avantasia) - Studio Albums (21 releases) (1997-2025) hand 
 ```bash
 magnet:?xt=urn:btih:FD0416D70E041545A2709C58E38683D5FE96630B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Linde - Cold Sore (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative 
 ```bash
 magnet:?xt=urn:btih:FB9820398463E88A7DE52A0D69E4EA300254B387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Infected Rain - 86 (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Metalcore, Me
 ```bash
 magnet:?xt=urn:btih:80C33AB720E9DDD4DFEEB1FCBCD5E218F9EBAAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Infected Rain - Endorphin (2019) [FLAC|Lossless|tracks + .cue] <Nu Metal, Metalc
 ```bash
 magnet:?xt=urn:btih:F09E4A2B46890A141E8D9F41462A9F1AF980F429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Brazzaville - Sheila's Dream (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:7BB967C400809B92A70DD4EC0F17C1E5218F1FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pearl Jam - Gigaton (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard
 ```bash
 magnet:?xt=urn:btih:73A43AD913AC5BCA1AB21BB335858D0EB300E7A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ George Michael And Queen With Lisa Stansfield – Five Live (1993) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:504C64EF08EB8274DE55B17C0E42416BBC312F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

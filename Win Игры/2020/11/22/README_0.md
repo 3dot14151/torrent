@@ -19,8 +19,7 @@ Fairy Godmother Stories 3: Little Red Riding Hood / Сказки Феи-Крёс
 ```bash
 magnet:?xt=urn:btih:22CCECCDB3572D45C6870BFA2764623BE24A4C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0B4A614DA5E8E327FA35231FEBAADC146079B128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

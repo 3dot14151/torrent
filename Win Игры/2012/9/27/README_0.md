@@ -19,8 +19,7 @@ The Great Unknown: Houdini's Castle. Collector's Edition / Тайны замка
 ```bash
 magnet:?xt=urn:btih:7307505B863D77539BFC67AA56253B9E5FA7D665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Small Tanks - 3D игра на популярную тему танчиков. �
 ```bash
 magnet:?xt=urn:btih:6A20E82165E2690CD7CB5DD0CA7793083BD8D5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Deponia [Ru/En] (Repack/1.3) 2012 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:B44B951CAC69DCB0F368863F769552C7E5078F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

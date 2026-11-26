@@ -19,8 +19,7 @@ Gobliiins [Ru] (RePack) 1991 | RG Games/Pilotus
 ```bash
 magnet:?xt=urn:btih:D85F32C83767606542428D14ACEA6E8144E0BB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Battlezone [En/Ru] (RePack/1.5.117) 1998 | Ken Miller
 ```bash
 magnet:?xt=urn:btih:A81D34FE9CF910E139B3260C511D8CBCE3AE694E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Pitfall: The Lost Expedition [Ru/En] (RePack) 2004 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tale of Imerion (2002) [Multi] (1.0.3) License
 ```bash
 magnet:?xt=urn:btih:8D045925FFB408E2503F8CCFB2E8781FBB03F676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

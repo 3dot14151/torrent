@@ -19,8 +19,7 @@ WebCamMax - продвинутая утилита для работы с веб-
 ```bash
 magnet:?xt=urn:btih:6E59E53AE5EDF85E760850AEF67000909C2F2E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

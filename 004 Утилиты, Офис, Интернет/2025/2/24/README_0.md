@@ -19,8 +19,7 @@ Simple Sticky Notes — простая в понимании программа 
 ```bash
 magnet:?xt=urn:btih:C65DF5901EA766F602F76F54845212D89229CF38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Leafing Home - это уютное приключение, которое пер
 ```bash
 magnet:?xt=urn:btih:114B57CCE602B925E6059C64ED08B3311EE484AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:D535CC94DE880F8BFCE7037C4BA93D4EB55429A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Masterplan Tycoon - это самый минималистичный симул�
 ```bash
 magnet:?xt=urn:btih:D8ECA74BAB4B6CD4CEF4F8B48791E4B5224E951C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:75D1F9FB1807ED0B2433CBAE7F23C3823FA4F6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DARK – ролевой стелс-боевик в антураже мира, г
 ```bash
 magnet:?xt=urn:btih:60FB28A94A09EA43B08D66B174B44DAFB3C5ABA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 ```bash
 magnet:?xt=urn:btih:AB84625A2A9AD86A8395F2E31E090A16D53A1A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Pools (Бассейны) – игра, разработанная в жанре 
 ```bash
 magnet:?xt=urn:btih:10057239DD0FD115FB4CE5390014B30F48607E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Stolen Realm смешивает пошаговую тактику с данже�
 ```bash
 magnet:?xt=urn:btih:9F9C82F0F24410762271907D10A8880E634D8D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Grimstar – это стратегия в реальном времени с с�
 ```bash
 magnet:?xt=urn:btih:E82F23DDB64BFA242F715312FBE9B2F67F4B64B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Stray – приключенческая игра от третьего лица
 ```bash
 magnet:?xt=urn:btih:87F926BBDC0937E74B9FA1EAD1952E35AADA03EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Brownie's Adventure (2024) [En] (8.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3F7B69F20531923D36290AF69DC98B6DC59951F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Reality Rash начинается после того, как корпорати
 ```bash
 magnet:?xt=urn:btih:A60FF77765C0EFE770033802260952A60FEA867D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (Build 28889904) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6ABF53D402778772DD28726C9F4F95549AA53C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Stone 4 Souls (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB378DE0A6100DDCCA0C84D5C6F45E3A5EF132D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Castle of Secrets - это мрачное психологическое при�
 ```bash
 magnet:?xt=urn:btih:B5DC456B96F20DC1E3AF354BA4B9BC6E051E61F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:F43EE7E38BA834A32A2EC644E15066C6D399117F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Yao-Guai Hunter - это уникальный рогалик с элемента
 ```bash
 magnet:?xt=urn:btih:4E3C7F99D28B0DFA2D87FD9FC802B58B8BF47BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ```bash
 magnet:?xt=urn:btih:95071C041798D361873C473CBFAD1FD22BF743B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Augmented Empire (2025) [Multi] (22089) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:81146A5DE5C3371E0305CDD9E052105E4EB4009F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Void Sails (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9DD4BF4292D1210062E545C761161CD1041CF3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

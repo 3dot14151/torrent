@@ -27,8 +27,7 @@ Simon Le Grec - Don't Let Me Suffer (The Lounge Chill Out Experience) (2011) [MP
 ```bash
 magnet:?xt=urn:btih:788410E166BD4FDD95384FCF17BBD82E97208267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:700B78CFE25C9DC3B211DF67C6CA56C25B5228D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Ambient Cycles (2014) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:D546B1D895F1237FE3BB938CA011AE2B02A6D809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E99E87A6FC9A83BE93541ED48E8C4BDC6B0ABAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Dj Compressor - Energy Mix 14-03 (2014) [MP3|320 кб/с]<House, Club, Danc
 ```bash
 magnet:?xt=urn:btih:86635F3D53A12BB55F2BA64FF036429A27112949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Lee Konitz - Sound of Surprise (1999) [FLAC|Lossless]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:11F8E191E4BF163DB1E2970FCE3470D4928E5C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B68A8CE1EE1D57AF00F78D7B40DD73E73988A271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12E122FE1693E720416B192A44758D10FD3599FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ Lavay Smith & Her Red Hot Skillet Lickers - Everybody's Talkin' 'Bout Miss Thing
 ```bash
 magnet:?xt=urn:btih:90F9670D3868F9003C18ABBAA2B5732D24006BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54D5C37CA18E80B173093C4E0B0DD856D398270D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B18F802686B329A0A0771FE3400177CB545F394D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55544ADC6AC87C7208B2A67968529FE12482D567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77167F790618E645E1D2C55BCCC1AFE04A9EEF7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ Carolyn Martin - A Platter Of Brownies: The Music Of Milton Brown (2014) [MP3|32
 ```bash
 magnet:?xt=urn:btih:4CE6F4EFE80B95526ECFA2AB6525C730D37210F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ Macaw позволяет очень быстро собирать дизайн, 
 ```bash
 magnet:?xt=urn:btih:22FCE52A231A5890AFF282B351FC213DC2CBE9A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A067149A044E3287773823141CBEBF8332D0C8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ Jeff Steinberg - Cafe Cubano (2007) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:76A7CF17575808B2EC508AD41A8D476CC8BBBA01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B39CA40C7B89E9D8865792F409ADC4474653872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ The Secret Order 2: Masked Intent (2013) [En] Unofficial [Collector’s Edition 
 ```bash
 magnet:?xt=urn:btih:A7F96690BDF0D45E9C5C9AC26B635B1385D75DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB80F16D4ED0B2E4085E3652357899163394F670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ Doyle Bramhall II & Smokestack - Welcome (2001) [MP3|320 кб/с]<Blues-Rock, Mo
 ```bash
 magnet:?xt=urn:btih:47C768127FF795CDA170A0087E87335C87E8AF80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD07FD52BDD6576E89FE92972B7B1037025E4F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +682,7 @@ VA - Armada Trance 2014-001 (2014) [MP3|320 кб/с]<Trance , Progressive Trance
 ```bash
 magnet:?xt=urn:btih:AE7FC12C69CBC3F9EACADD98EDAC2041D662FB5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +716,7 @@ VA - Andy Moor - Breaking The Silence Vol. 3 (2014) [FLAC|Lossless|WEB-DL]<Tranc
 ```bash
 magnet:?xt=urn:btih:1D04A95B9D32504874DAC0F7069E45826551238C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +741,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:120A9CBDF083ED20939A2F0C448654D257C291BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

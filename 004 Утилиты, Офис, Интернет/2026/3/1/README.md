@@ -19,8 +19,7 @@ MediaHuman YouTube Downloader 3.9.18 (2802) (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:38222FA0AAED46BB0BBC22C46D1E2B7797034B43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:0BC656212F5AFB018024F06F7FDFF106A76E931D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DISMTools — это интерфейс для DISM, позволяющий уп
 ```bash
 magnet:?xt=urn:btih:9F26E604CC7CD227DC318E219C1852F8AC370371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:8834096286F5C8A6793E5E94D4334BC33DBFA7E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ MITorrent Client — быстрый, удобный и компактный то
 ```bash
 magnet:?xt=urn:btih:D9C18408E108D4F4DDA22A73FEC2A01935240952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ MetaProducts Offline Explorer Enterprise — мощнейшая программ
 ```bash
 magnet:?xt=urn:btih:4DCDBC1D136BAF993D351559164898ADE5353220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Google Earth Pro 7.3.7.1094 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3501ABD8A00D013D9997DACC2778F42105294D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:52C7DF7B3DEAEDF2D2D0C96A4C5F4BCDAF1D15CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ IceCream Ebook Reader Pro 6.53 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B7325D77F4172903B9249629A7D455231A71B35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:9B4559A9A47329D74C6C01674395D22537A5D279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:C60C5077367EA5EB559CE8E55DED631F2EF22BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

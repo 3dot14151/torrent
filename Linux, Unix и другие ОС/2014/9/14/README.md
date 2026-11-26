@@ -19,8 +19,7 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:F122783E2049CC3B12729110CF923D7E133BE992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Debian GNU/Linux 8.0 Jessie (Testing, 12.08.2014) [i386] 3xDVD
 ```bash
 magnet:?xt=urn:btih:86C29A401928BB030D7FA7862D82B71AAACD21A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

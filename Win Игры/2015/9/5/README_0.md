@@ -19,8 +19,7 @@ Lost Island: Eternal Storm (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:6D1A68F564D3B8CAD7668BFDF4AD6741CE210441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunting Mysteries: Island of Lost Souls / Загадочные Истории: 
 ```bash
 magnet:?xt=urn:btih:473214CA1F46509E6748277B9F46700650323B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rugby World Cup (2015) [En/Multi] License RELOADED
 ```bash
 magnet:?xt=urn:btih:0CC1D9066782DC8F7C423962457487D418D14BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lumini (2015) [Ru/Multi] License RELOADED
 ```bash
 magnet:?xt=urn:btih:3C4D750E5C8726A9F828EBD2770DDA3706B6A31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) Repack R.G. Механики [De
 ```bash
 magnet:?xt=urn:btih:ABF49DB2FEA17003694A4794008EF841E981BD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

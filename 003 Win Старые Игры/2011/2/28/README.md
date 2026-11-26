@@ -20,8 +20,7 @@ Jacked / Угонщики [Ru] (L) 2006
 ```bash
 magnet:?xt=urn:btih:B1C5669C611678991F164A745192B1871002FFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

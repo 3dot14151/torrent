@@ -19,8 +19,7 @@ Paper Trail - это увлекательная головоломка, кото
 ```bash
 magnet:?xt=urn:btih:14EA413BA8724BA7638F43711654D7DC3526449D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ CRYMACHINA - это ролевая игра, в которой механиче�
 ```bash
 magnet:?xt=urn:btih:A0A0053083FB3083EC44969C3F368DA1D51068E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:835EB7AF379CE10B8B05115E89C7EFBDA388F52C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Curious Expedition 2 – это пошаговый нарративный рог
 ```bash
 magnet:?xt=urn:btih:CA175BFBC8920F75C3F3DCD129B56D7C455F9EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Doom 3: BFG Edition - это переиздание Doom 3. Жанр и смыс
 ```bash
 magnet:?xt=urn:btih:BAC92894D236577BE9B17EC3FD7A3E1C135E3280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Backpack Hero переносит игроков в фэнтезийную все
 ```bash
 magnet:?xt=urn:btih:03E8F272571614DC2DF14B97E8BD6AF9D540628B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Garden Life: A Cozy Simulator - не просто песочница, а еще 
 ```bash
 magnet:?xt=urn:btih:C6AD3FDEC1DA87FFB3F0E6417A3F154AA5177BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Hunt the Night – приключение в стиле ретро, включа
 ```bash
 magnet:?xt=urn:btih:67DA7C80B86A6AD82C04D1B98B046461A9BA1C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:9E84744027E470C9890BDFEE81B4CD6C268517E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ My Museum Prologue: Treasure Hunter понравится всем любител
 ```bash
 magnet:?xt=urn:btih:433916FE4D40641F2FD6D3020A2B5A70D585210F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Dead War: Rise of Zombies снова покажет вам постапокал�
 ```bash
 magnet:?xt=urn:btih:A515625CFF869A1A5F8C1608007832001D13F579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Republic of Pirates - это не типичная градостроитель�
 ```bash
 magnet:?xt=urn:btih:F635755688C788C12B0B43B58E37DB834358B16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ The Day Of Survival (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:16C44F3364B9F3608BAAE708AA11B9BAECD06718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Fix it - The Handyman Simulator сделает вас мастером, кото
 ```bash
 magnet:?xt=urn:btih:49F4246A2222FAC4E87FA3AA9F91FA205BDA36CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ SPY×ANYA: Operation Memories ставит вас на место очарова
 ```bash
 magnet:?xt=urn:btih:9CF00E107CA5D56B41A8A695EE4B555235BDFEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ Chocolate Factory - это не обычный симулятор магната
 ```bash
 magnet:?xt=urn:btih:C03665AAD8C994555AF27784C38FA622EE1EC313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Dystopika, градостроитель, разработанный студие
 ```bash
 magnet:?xt=urn:btih:E09A02A0557FB92878563242645E01F975D12A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ Fae Farm - симулятор фермы с элементами ролевог�
 ```bash
 magnet:?xt=urn:btih:E5F0379AC4FF7FF1293D0C432FBE89C88A64D9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +470,7 @@ Messy Up погружает в мир восхитительного столп�
 ```bash
 magnet:?xt=urn:btih:A1555CF15CEECD58347E339936AEC8886A3791C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

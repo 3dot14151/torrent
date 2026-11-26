@@ -20,8 +20,7 @@ DirEqual - это инструмент сравнения папок, котор
 ```bash
 magnet:?xt=urn:btih:BF5A81CED3FBA57F0C64CF3DB5786E9B5E5A927E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ GlanceCal 1.6.2 [En]
 ```bash
 magnet:?xt=urn:btih:CDD9FA72637460A36FBDB5B2B71D0EC65F2FCB82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Scrutiny проверит ваши изображения, ваши внутре
 ```bash
 magnet:?xt=urn:btih:D4A9E8725A6CD6BC8179DC18A0483FE3A479496A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Screegle позволяет вам поделиться любым окном, �
 ```bash
 magnet:?xt=urn:btih:547B491262E4D68E0037E9FE4A4CE0722392AA43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0532A258C02F5EC76CDA4174E201288DD5670F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ GroupsPro позволяет создавать и упорядочивать г
 ```bash
 magnet:?xt=urn:btih:0FE5C57358A00FF221305A9ADB653ECBDD5D340B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Text Workflow 1.0.6 [En]
 ```bash
 magnet:?xt=urn:btih:2575A08EF24456314D82187F6911A7CE4506049A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Junior Mance Trio - Happy Time (1962) 1999, Original Jazz Classics [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:8DD75948E074A2282A8A6D25A081D8E80D51E228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:7D1F86322EEA1B383763CBEC28A0DE2A8AF4A690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ VA - Spring Chill Mirage: Chillout Your Mind (2022) [AAC|~324 Kbps] <Lounge, Chi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Color Folder - измените цвет ваших папок самым про
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ GoodNotes 5 v5.8.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CC95FA4BD07071DC4712FBDFD95C9E2A2D6F8069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E531849B36CCF709B643FCDBD5D9FA8A2C9468DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Tristitia - Burial Of The Sad (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 ```bash
 magnet:?xt=urn:btih:6BB6C1F344FF4664D87173BA3A3D6D01DFC546CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Hyperia - Silhouettes Of Horror (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Th
 ```bash
 magnet:?xt=urn:btih:6C94385B031AEAFEFEE062F07EA9B24C120855F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ Final Cry - The Ever-Rest (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thrash M
 ```bash
 magnet:?xt=urn:btih:CEC44C33F741858E0735FE1E07E2A34DA03FE6D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Tristitia - Doomystic (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic M
 ```bash
 magnet:?xt=urn:btih:EF02CCE87332A0B50103F8F09C5E3D245213878B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Brian Auger - Auger Incorporated (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:A4EFC94413C4214E87DAC1774A5EA9EB600F4F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ iKuka — это легкое приложение-помощник, котор�
 ```bash
 magnet:?xt=urn:btih:CD25EBA94B450A1A578C1D8708581F2205B7BCE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ Foldor - это инструмент для создания и изменени
 ```bash
 magnet:?xt=urn:btih:84DE465B6E89A15F2A29619325162024F0054DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ Cocktail - комплекс утилит по всестороннему обс�
 ```bash
 magnet:?xt=urn:btih:485893F526EF4EE09F68CB437768D0612013F8D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36734421E8FB77FCD32429996D2A85E0421BCB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

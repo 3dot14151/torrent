@@ -19,8 +19,7 @@ LEGO Star Wars - The Complete Saga (2009) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B602F119500EC69CDB2E041008F3C3680C43BAFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kung Fu Grand King (2022) [Multi] (2/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:71DDB901E22FEFEC448F5A9A04B12789F3AD781E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

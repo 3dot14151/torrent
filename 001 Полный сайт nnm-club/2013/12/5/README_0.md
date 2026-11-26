@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CE923AF1F44AE698335EEFF1D9D5F9EEA81528E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Anjunabeats Journeys 01 (2013) [FLAC|Lossless|WEB-DL]<Trance>
 ```bash
 magnet:?xt=urn:btih:35D2BE3E3D7B6D337FA9D1A7CA257B863D27A11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Lado 2:
 ```bash
 magnet:?xt=urn:btih:5470A30CE76D64AAE62431DF8D66E288A8C80E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90DA885A7F958638C18CC2308CD2978CEE77770B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D6C57FCBC5326DAC78326318642E97D5A5055F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB331010103622E707571F8CD0F4EC67B2964AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ The Coral - Roots & Echoes (2007) [FLAC|Lossless]<British Alternative>
 ```bash
 magnet:?xt=urn:btih:75DBA3735EE948A3732AFEC9145A946901C84FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ VA - On Air Lounge Vol 2 - Selected Chill Out Lounge & Deep House Tracks (2013) 
 ```bash
 magnet:?xt=urn:btih:2FD6BDBAD035888E32907CA65C396B7452628EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9618526CBEE37E5FEEDAA6FAB15CB7BCE0A811C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Pestilence - Obsideo (2013) [FLAC|Lossless]<Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:7AFCD910AF2191E0967713B082915B5B604F370C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ Leona Lewis - Christmas, With Love (2013) [MP3|256 кб/с]<Pop, Soul, Holiday>
 ```bash
 magnet:?xt=urn:btih:F98455CF143EFF342EF680BB668ED019BC0E6471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8976B6931C07F7C7A52D3421A27D32CD7F1B51A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ VA -Anjunabeats pres. Sunny Lax 01  (2013) [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:FCCC1748FFE9F13EF737A5E3E06BFF0B3DAA7555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C95CE9A265EDDC7EE054787BB44905B0608B198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5340D3FE3A964997C742EE0D5403AE41632E25EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +466,7 @@ Chick Corea & John McLaughlin - Five Peace Band: Live (2009) 2CD [APE|Lossless]<
 ```bash
 magnet:?xt=urn:btih:6890461DBC5C6EF161651D1E5CF89FBFADCD4213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4FC21B78637EA04570C6FA06C3909DF190A34E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:815CD8EB780950A7732A5A697948B9A721544D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:389DB83A2C829CB06E61331553A934461C27C21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ Umberto Tozzi - Tozzi Masini (2006) [FLAC|Lossless]<Italo Pop>
 ```bash
 magnet:?xt=urn:btih:94A3D0F0ECD6569BAC8512357E465140399DBDD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DEB6F370CFB6EECF529009A19055B80C3C040C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35D3E82556CCD420621A8D158B9B2157E769172C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:695A2C2BF093084189BD78529C4FA6876684BBBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E9B7A83762CFC4AAA6C97DF1A529F04FDA4FC64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ BB Brunes - 3 альбома (2007-2013) [MP3|320 кб/с]<Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:6FA1813DA6ED57980E23C5032EB0EB09F232B794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EC5A57E6C2C8436EF69F647DFCAA1273740BADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

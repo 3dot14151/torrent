@@ -19,8 +19,7 @@ Amaranthine Voyage 2: The Living Mountain (2014) [En] Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:AF0A2A628E237CC5EAA0F91D00597A7C2791653B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Questerium: Sinister Trinity / Questerium: Зловещая Троица (2013) 
 ```bash
 magnet:?xt=urn:btih:BB0F5E172A427E9FED04F22C101187D91F65C4EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dangerous Games: Prisoners of destiny / Опасные игры: Пленник�
 ```bash
 magnet:?xt=urn:btih:A4F27A635A005E25D69CC4D997B8DA89F95F08DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Castlevania: Lords of Shadow (2013) [Ru] (1.0.2.9upd2) Repack xatab [Ultimate Ed
 ```bash
 magnet:?xt=urn:btih:65942604DB8A1EA85ABE91157E0B3E19126618C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

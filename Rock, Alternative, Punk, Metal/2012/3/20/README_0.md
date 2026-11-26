@@ -29,8 +29,7 @@ Rolling Stone Magazine's 100 Greatest Guitar Songs Of All Time (2009) [MP3|150-3
 ```bash
 magnet:?xt=urn:btih:0610F2651763DD2D7FCF66443E866F2B338EA1F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Manny Charlton Band (ex-Nazareth) - Stonkin' (2000) [FLAC|Lossless]<Classic Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Nitrogods - Nitrogods (2012) [FLAC|Lossless]<Hard Rock/ Southern Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

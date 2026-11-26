@@ -22,8 +22,7 @@ Part I: Godfrey's Cordial - An ORphan's Life
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

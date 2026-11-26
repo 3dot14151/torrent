@@ -22,8 +22,7 @@ A4. Magic (4:09)(   Читать дальше...   )Производство: Po
 ```bash
 magnet:?xt=urn:btih:2A1D7CEE68453C8F35F1F24CF03080D1DAEF669E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Additional Material (EP) (2016)Жанр: Art RockПродолжительнос�
 ```bash
 magnet:?xt=urn:btih:A2E64ACFFC0C28BED4A082D7AE7F507D8C2E85A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

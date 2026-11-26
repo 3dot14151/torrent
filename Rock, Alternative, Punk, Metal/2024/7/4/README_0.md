@@ -22,8 +22,7 @@ Visions Of Atlantis - Pirates II Armada (2024) [MP3|320 Kbps] <Melodic, Symphoni
 ```bash
 magnet:?xt=urn:btih:904A512E79B077448A9487F63F447433F154275D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eric Clapton - To Save a Child (2024) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:769550A170248CC1D4E8FE6B9343B2C72D7EA7EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

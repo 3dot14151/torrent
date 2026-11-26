@@ -19,8 +19,7 @@ PuppetShow 14: Faith in the Future / Шоу марионеток 14: Верит�
 ```bash
 magnet:?xt=urn:btih:1C493A95B7CA132076F81217FD533624702E0B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

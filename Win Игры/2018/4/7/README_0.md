@@ -19,8 +19,7 @@ Mystery Tales 9: The Other Side / Загадочные истории 9: Дру�
 ```bash
 magnet:?xt=urn:btih:3D4EF6AAD0928C2DD63BA600E6100A6652779764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9C180DF5EBFD264A3BCF6A3AEFD6BB27C2174912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

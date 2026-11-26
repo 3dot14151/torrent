@@ -19,8 +19,7 @@ Modern Tweaker - программная оболочка для твиков Win
 ```bash
 magnet:?xt=urn:btih:DF8E555948D527F933A5FFAAB3484D5C68E110C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

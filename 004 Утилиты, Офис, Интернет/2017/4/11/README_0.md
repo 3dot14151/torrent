@@ -19,8 +19,7 @@ Tenorshare Any Data Recovery Pro — мощная программа для во
 ```bash
 magnet:?xt=urn:btih:D03B5840B4C094EE8FEF9BDCB2E99044C9559F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

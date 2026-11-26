@@ -23,8 +23,7 @@ Tantetimbuktu - Play Songs From Zurich (2014) [MP3|320 кб/с]<Screamo, Post Ha
 ```bash
 magnet:?xt=urn:btih:6F6478542D5AAD4BE6B423CB87847CD37F4CDB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Escapism - S​/​T (2014) [MP3|320 кб/с]<Screamo, Hardcore>
 ```bash
 magnet:?xt=urn:btih:7597E7BC25071923CB07B75ABB1E82268F9B28B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ VA - Dutch House, House #9 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:0C57B40DC7E1E7D7D097BA7FAAB6F9E80C26E323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ VA - Dutch House, House #8 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:9FD95DEF6A1452FB6B7228DCD0D496DFAE363B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ VA - Essential Guide: Trance Vol 08 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4CE8A0976AE7E70E0782A60423F60F5ACF522D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AAC0289FDEADA914EAA56640DB54C99FA43847E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ VA - Trance Pro V.61 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:87C8248E9121B2FCA81C2A3895110527DA8E4D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ VA - Deep & Dark Dubstep Vol.8 (2014) [MP3|320 кб/с]<Deep Dubstep, Dark Dubst
 ```bash
 magnet:?xt=urn:btih:33B94949577352F0E7DC12899458D9E57C8B2B5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ Black Autumn - Losing The Sun (2014) [MP3|320 кб/с]<Depressive Black Metal, A
 ```bash
 magnet:?xt=urn:btih:73A455E8D62B109E98C03FA0228541E0C4F95271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99034EE0DC2817CB49FAFF089CCB45371A0A4FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ Hiatus - Parklands (2013) [MP3|320 кб/с] <Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:432C0A77CF9341337526291F3F5BF044E6247C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ Mark Feldman, Uri Caine, Greg Cohen, Joey Baron - Secrets (2009) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:312C0F1B492DE9C7753E19E2B2346105ABEE0C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3EC459A206742E4FBA0A308D240C8FB795B098E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ Clemens Neufeld - CLEMENS (2014) [FLAC|Lossless|WEB-DL] <Tech House, Techno>
 ```bash
 magnet:?xt=urn:btih:5CA766EE55F217809249378F7643E543541F19EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29509E7AA02CA97281ECD25A9CAFB2E13F83AD0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A025663EA63DA63D0D6FA423B1489C419BA3C9EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15426B8442F06DA6044A80EBAEBB879531DA7B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ Whiskey Moon Face - One Blinding Dusky Dusk (2014) [MP3|320 кб/с]<Folk, Root 
 ```bash
 magnet:?xt=urn:btih:7F89EAFDD405A7F5407759E10294908252C63022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ Paul Desmond Quartet With Jim Hall - First Place Again (2012) [FLAC|Lossless]<Ja
 ```bash
 magnet:?xt=urn:btih:0DC19035C72FB2B8EBE7384D3BB37018A8CFF137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +651,7 @@ Godflesh - A World Lit Only by Fire (2014) [MP3|320 кб/с]<Industrial Metal/Sl
 ```bash
 magnet:?xt=urn:btih:B25FEB66DF69AB33815A97AB045DFB45775D71B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ Astronomical - My Name Is Astronomical (2014) [MP3|320 кб/с]<Psychedelic>
 ```bash
 magnet:?xt=urn:btih:F39A63C15822ABACE439E2BE0A671874F79AD34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FDC495D529096F3C40FD7F5D36AB97DD21EB928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ N/AЖанр: PsychedelicПродолжительность: 01:29:52
 ```bash
 magnet:?xt=urn:btih:5D1107898F60168C5843650C01779EEF080EBEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F11C09792A9961A258EAC6C9411E6FF05874DD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

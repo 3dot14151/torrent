@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:4B906584D9C1E060C01DC6CBC69B25CF207C9748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Drama - Silver Brilliance of Nocticula (2006) [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:49709225FDA05EB7704BCBD778ECD53FEDCC53B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ McCoy Tyner Quartet - Live At Yoshi's (2007) Half Note Records [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:B6A215700CE9A90B7652C062FD1B516520726D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Antipop Consortium - Antipop Vs. Matthew Shipp (2003) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:383501450ACA0F669AE9A7E00069416A3DD5AF29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - WMC Trance Tunes Miami (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:BB0FB7FE1F4FE4E8DFFE6AB4193A27C50DA0D797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Earl Bostic - The EP Collection (1951-1958) 1999, See For Miles Records[FLAC|Los
 ```bash
 magnet:?xt=urn:btih:A6157697055C15AFD7C4FEE5B260CEB83152623B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F694A0CEFB51E4314AD8B75FDF1CF63F7EF97149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Russ Freeman - Trio & Quartet (1952 -1959) 2010, Fresh Sound Records [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:A15401B9F00F9D0236A59BE700EEFE6E14BB5D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Scythe - Decay (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:DCA73FE3BA34D3F929DE5583EC1AD29007DDCA7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Scythe - The Process Of Rotting (2004) [FLAC|Lossless|image + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:D0932FE2E3B06F97D62CA819E2D8D0F24D7A2C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ VA - Condura Sounds Coming To Miami (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:711461473559E1B3E02DDBAA6DF37CE99FF514A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Sidify Apple Music Converter может удалить DRM от Apple Music и �
 ```bash
 magnet:?xt=urn:btih:ACBECB0557DE348A95ABF7A4F982D95B46B2CEEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Chico Freeman - Tradition in Transition (1982) 2008, Wounded Bird Records [FLAC|
 ```bash
 magnet:?xt=urn:btih:6107C2B23049291FC63B5B7097CEED1CB18DB92B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:CAAC53BC2883B68C1A7F0597D6BE53972231C601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:066B333FF97BBCEBC9F9DFA6E1A4FC7A3A18F8F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ John Budnik Band - Transformations (2017) [MP3|320 Kbps] <Northern Rock>
 ```bash
 magnet:?xt=urn:btih:2D0F1BA56352393D9E92AC3CB51FF39B7191946E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ VA - Beats For Life Vol 1 (20 House Machines) (2017) [MP3|320 Kbps] <Funky, Club
 ```bash
 magnet:?xt=urn:btih:710A49129DF3EAD1BD9FD80B454E91670E6598C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Shane Dwight Blues Band - Boogie King (2001) [FLAC|Lossless|tracks + .cue] <Blue
 ```bash
 magnet:?xt=urn:btih:57DC037C285FC957353F5B886EF8FF1BB283E907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:DBC1AA10C5A8A6D4CC55234F0837413A9380D2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC57FB342AF4523128C65B87121CD7061C3A97CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ House and Leisure — популярный южноафриканский жур
 ```bash
 magnet:?xt=urn:btih:438364B5FE8645EE43C876BD570898505E3E2846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ Rockocola - Rockocola (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:C31A3FBC5CCDCF07FF6E5B0F0CE7D64D747F190B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:119167A6E05D32F71AC2CE391374EA3A95B9389C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ House and Leisure — популярный южноафриканский жур
 ```bash
 magnet:?xt=urn:btih:EB349D9BE7AC8288E299FFA06B229FF46DD55B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D33F540EA0AE4CD3C3BD1AB2D9044A7DB49D0C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

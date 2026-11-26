@@ -19,8 +19,7 @@ Order of the Light: The Deathly Artisan (2014) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:F4650CBC87C010A90081E61D6AE9D7FFFE86CD69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Carrier Command: Gaea Mission (2013) [Ru/Multi] (1.6.0011) License PROPHET
 ```bash
 magnet:?xt=urn:btih:C2AE293D9B94B5AA5F75793DCAE8CA3526DCBBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ The Dark Eye — Demonicon рассказывает о печальной суд
 ```bash
 magnet:?xt=urn:btih:E64580EE11EDBFBF0A3A2E06C769F3350902D66C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

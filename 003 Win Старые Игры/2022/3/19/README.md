@@ -19,8 +19,7 @@ Black Dahlia Black Dahlia - так прозвали известную в 40-е 
 ```bash
 magnet:?xt=urn:btih:A783525B65C901EEAEF5A7C56DF9A3E10239B3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

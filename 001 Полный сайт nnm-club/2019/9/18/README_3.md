@@ -22,8 +22,7 @@ CD1 - Big Band:
 ```bash
 magnet:?xt=urn:btih:45250A40CC93D69579966570842AD0E3FA1C30D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Mate Translate обладает невероятно полной базой д�
 ```bash
 magnet:?xt=urn:btih:B3816A7E86E02913AAE0D4E457A45C7C44CB82FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Vellum 2.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:8FD2D7FBFC0C9BAF30401765DD9D5276BE002972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Artstudio Pro 2.2.9 [En]
 ```bash
 magnet:?xt=urn:btih:180966BD1F0E6BDA835F3B26FDECE71E33BF3017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ TextMate для Mac OS - Отличный редактор программно�
 ```bash
 magnet:?xt=urn:btih:3F9CCB7E8D1EB00F52D69BE38801F5DE5F8FBD84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:F244912F3576104E837727BE4A2DFDEC36ED4476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:160F24D625B442B128D07F68FE304C8E3D4B529D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Seclusion: Techno Electronic Party (2019) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:8101031C7F024C18C50EC77ADC2995219A5AC92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Flamenco Group - The House Of The Rising Sun (1978) LP [MP3|320 Kbps] <Electroni
 ```bash
 magnet:?xt=urn:btih:5406EC895FF7DBB79EFC2A3A75D0DD1C3B3D5E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ The Swingaroos - Music  Of The Night (2019) [FLAC|Lossless|WEB-DL|tracks] <Retro
 ```bash
 magnet:?xt=urn:btih:D471D917B6412CF2DB788EA867DCF9779DCE7074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Garden Of Eden Vol.1 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 ```bash
 magnet:?xt=urn:btih:F59B0A51E091F87D09C8111B6F66028145B7786E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Uranium - 2 Singles (1979) [MP3|320 Kbps] <Electronic, Space Disco>
 ```bash
 magnet:?xt=urn:btih:07FCC2CA2E67F3E1AA479F3F15FAB7E6E6F082AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Navicat Premium представляет собой очень мощный ин
 ```bash
 magnet:?xt=urn:btih:2C4EB8DF3240A5A52D96368329D51174D1B3E9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:638DD1D116FAD3809C237E413850088708804BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD34DD775FE1949BBD4F60B51B1EFAA3C91F6E01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:B00CB9CBAB7EAEA44E63DCF528B712FFA96A4C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:CFAEC201FE83884DC4FFB5C200E292815932BEF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ VA - 90s Retro Dance Grooves (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:60D94EEDED4CE0E37ED7993F8FBEAC4172C2C280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ VA - 90s Dance Hits, Vol.4 (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:3B52B8BC92D02BAA7CBFFA10AD6C9F1A93FA2145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ Money Pro сократит расходы и покажет полную кар�
 ```bash
 magnet:?xt=urn:btih:37C7C08FEFA42EA967533838A4F49B171A1F5E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E1F7C4DD6F432B845377E1480BC573EF381E8D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D4FF00C1879C8B138BFE6384CA28D0FD013F83F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ Dälek (Dalek) - Respect To The Authors (2019) EP [FLAC|Lossless|tracks] <Hip-Ho
 ```bash
 magnet:?xt=urn:btih:C5031C414540113B1043AC89D8A23611E161E66F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Liam Gallagher - Why Me? Why Not. (2019) Deluxe Edition [MP3|320 Kbps] <Indie Ro
 ```bash
 magnet:?xt=urn:btih:7960EA0839452A9DCC1577ED02BD9C6590119F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36FCE9E0283A6172BF1F42227392BD6F11A93345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3E2B85E3E7B98EC58D72254AD2D77A7158771DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

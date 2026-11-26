@@ -19,8 +19,7 @@ Criminal Archives 4: Blade of Deceit (2024) [Multi] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:B8F6C25429C3420C54477CC4632FF070A27DFD92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ House Builder (2021) [Ru/Multi] (20240619/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0B8BE7C5B915792990FBCCAF23C51FDCCA279C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ UnEpic (2011) [Ru/Multi] (1.51.1) License GOG
 ```bash
 magnet:?xt=urn:btih:D06673B7F86CB701169DE5F5142F5AEF3906A7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Homebody (2024) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6CBEAA2ECCF0208598F2E86D9D4BE16D31E9DFCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Alisa (2021) [Multi] (1.18) License GOG
 ```bash
 magnet:?xt=urn:btih:DF1700A748A30DE8B052C6EA093350C7D1E08CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B819061E046C6093AA8E32570A6DDC21EEE5441C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ A Tower Full of Cats - это уникальная пазл-адвенчура �
 ```bash
 magnet:?xt=urn:btih:F0A6E46FA9EF70DE73F319EBC2D1B2AAFED093C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ My Horse: Bonded Spirits ставит вас на место маловероя�
 ```bash
 magnet:?xt=urn:btih:F78AC8ABE9A0E6DC70D738E05E7B34BD188CE0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

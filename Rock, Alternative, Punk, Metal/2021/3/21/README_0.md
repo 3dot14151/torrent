@@ -22,8 +22,7 @@ Lake Of Tears - Ominous (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Progr
 ```bash
 magnet:?xt=urn:btih:D00407B92A52D25F3427CC02D88BF96946EBD65F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Barry Goudreau’s Engine Room - The Road (2021) [MP3|320 Kbps] <Hard Rock, Clas
 ```bash
 magnet:?xt=urn:btih:1EB47CD6E0FE6C1DBE27CE1E487FD42CB3B50C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Warrant - Cherry Pie (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:FB797025F3956E38F0519E1C46C59C02883258B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ ThunderCloud - Healing The Hoop (2021) [FLAC|Lossless|tracks] <Progressive Rock,
 ```bash
 magnet:?xt=urn:btih:774B14313FB95E3AE81370E7BBB318678F577ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Delorian - It Is Time (2021) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:6F0A37663A5C1E1DBD197EBD0432CDF78DEBC5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Warrant - Dirty Rotten Filthy Stinking Rich (1989) Japanese Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:640EE764356D39DC17D89303DD228B75BAA184BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Warrant - Dog Eat Dog (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:AA9A07ACCCE96E02AAD33D4A990B9BC081E80B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Barry Goudreau’s Engine Room - The Road (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:66B43B2D905161898C989C56D322848907D27963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Arret's Odyssey - Arret's Odyssey (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 ```bash
 magnet:?xt=urn:btih:6FD79BC224717CE548DE270E0930E17171701E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Tim Feehan - Full Contact (1990) [FLAC|Lossless|image + .cue] <AOR>
 ```bash
 magnet:?xt=urn:btih:8BE81F40D0864D96E54B4D6AA4ED8FDDBD4AFEF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Sic Vikki - Streetside Picasso (1995) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:AA00A471BBA6CF81D2F883CED5C38AFD678E2AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Alan King - I Saw The Rain (1995) [FLAC|Lossless|image + .cue] <AOR, Rock>
 ```bash
 magnet:?xt=urn:btih:416F4AAFEA144AB9408775B4CCC9B7AFF6FA65D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ The Crystal City Rockers - After All These Years (2021) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:BA6FA92A07DC82CEDF1D693E809827568E37B188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Egor Lappo - Trancevoicer (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 ```bash
 magnet:?xt=urn:btih:820AB441420FC2B4016A359C8EB81C353A9548C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Delorian Domain - Alchemilla (2017) [FLAC|Lossless|WEB-DL|tracks] <Extreme Metal
 ```bash
 magnet:?xt=urn:btih:4AC8D0ED7EC8BBBE2218FE87A90DF42B29C856B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ The Crystal City Rockers - After All These Years (2021) [MP3|320 Kbps] <Classic 
 ```bash
 magnet:?xt=urn:btih:67A7DB30BCCADF090EA773FB33DB90A162FC1F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Plotnik82 - Не любил (2021) [MP3|320 Kbps] <Rock, Electronic>
 ```bash
 magnet:?xt=urn:btih:80CD965BAA36B4BD8432E1627012E8E305E49E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B5D961A9EE57621434091843AB918C8CE7854ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

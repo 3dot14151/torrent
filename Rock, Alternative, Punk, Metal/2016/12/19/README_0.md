@@ -22,8 +22,7 @@ Nanaki - Dandelion Radio Session (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock
 ```bash
 magnet:?xt=urn:btih:A40F5744A115EC49770A4367422508DCD15EDBAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Headcrash - Overdose on Tradition (1995) [FLAC|Lossless|tracks + .cue] <Industri
 ```bash
 magnet:?xt=urn:btih:42A0829AAEA741F5E5C15D5BFCD982CC1ED92D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blackhorse - Blackhorse (1979) Remastered, 2013, Common Sounds [MP3|320 Kbps] <H
 ```bash
 magnet:?xt=urn:btih:D6C1BBB55C832E2764F45847E78FCF1BA417D0DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Styx - Caught In The Act (1984) 2016 Universal Music Japan UICY-77890/1 [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:E8FEC6EB3CBB8E62A61ED3297E5EBF70143E878A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Bill Bruford - Acoustic and Electronic Percussions(   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:76EE755B1D5322D24B6B2BF2E9370A7077EB14C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Deep Purple - Time for Bedlam (2016) Single [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F138D836B6130DB6A3D3C56DB08C596BC969CE21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

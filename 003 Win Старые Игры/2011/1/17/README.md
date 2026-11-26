@@ -19,8 +19,7 @@ Valhalla Chronicles / Вальгалла [Ru] (L) 2002
 ```bash
 magnet:?xt=urn:btih:CA9B1C3F4508E6DA1AB432A4935D9603DD7E4472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

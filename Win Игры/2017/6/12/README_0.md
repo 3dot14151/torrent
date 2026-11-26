@@ -19,8 +19,7 @@ The Voice from Heaven / Голос Небес (2017) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:AAAFD5DF5CC5D5FAA2388C1901823F6020C9A07B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

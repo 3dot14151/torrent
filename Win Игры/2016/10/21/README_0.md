@@ -20,8 +20,7 @@ Lost Socks: Naughty Brothers (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:BA42B36AF775E665377B1720F8540B64BD349F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Odallus: The Dark Call - красивый аркадный платформер.
 ```bash
 magnet:?xt=urn:btih:FD4F0AD68E98B0F5BD71061F684C179C6B5F3F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Descendant — это приключенческая игра в сетти�
 ```bash
 magnet:?xt=urn:btih:5C5EF584112D43A62C13A0652CBF284D838CB0E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Wolcen: Lords of Mayhem, ролевая игра с элементами экш�
 ```bash
 magnet:?xt=urn:btih:C38D143445062CEF4043D0CF446A4DFB10015430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

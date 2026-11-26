@@ -18,8 +18,7 @@ Queen's Quest 5: Symphony of Death (2019) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:B03B45F1822956BEC929E22AF74878A7999EFE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF326E77DB27A1BD09DE379D7327EF14810A1FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Nightmares On Wax - Back to Mine: Nightmares on Wax (2019) Compilation [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:F59704896DA15863659AC81DA62F809129F7D144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Giorgos Zaras - 2 Albums (2013, 2017) [MP3|320 Kbps] <Electronic, New-Age, Ambie
 ```bash
 magnet:?xt=urn:btih:8BA681F82090318A34AD1E6534B5A2B3A0942249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55EFE226E5DF6CAAC420512117EEDE6BF57EC36A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Demis Roussos - Grandes Exitos en Vivo (2012) [FLAC|Lossless|tracks + .cue] <Pop
 ```bash
 magnet:?xt=urn:btih:8FF0A5FF6A043591194F7C6396B378D6DEEA0357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Lebowski - Galactica (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:783328EDC78E27A67C1F2C53ACC7E0ED7C2AE7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Sweet Home 3D это приложение для дизайна интерьер
 ```bash
 magnet:?xt=urn:btih:1FB94FCF4EA64A85D523F24ED785CDFF94D0EC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Radio DFM: Top 30 D-Chart 25.01.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:D4F738D0049C7AA89D076DB7AABD7AD50CA43795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DE951B677FA4578969B978A09B7627200F5AFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:6466A60825A49E433D9A9A97A8671D9AC3A6B936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:475ED3A2B9DB51E844EB6D4CD3C3A67C5D758925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32F990340C7A473E1B7C3677B024593226480AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CA73C7C16E74D6440476795AFF6DB2548976CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Backstreet Boys - DNA (2019) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:5FCE4DF0BADAFB6E5827D2953BE8F494F9A3CD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Royal Gigolos - California Dreamin' (2004) [FLAC|Lossless|tracks + .cue] <House,
 ```bash
 magnet:?xt=urn:btih:93F2FD11F3BB39B059D777D8431E51AFC5A633EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:141AAB244FB917C5EDBB6FFD8ECDBE215D1B7807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Lena Horne & Michel Legrand - Lena & Michel (1975) [FLAC|Lossless]<Vocal Jazz, T
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Secret City 2: The Sunken Kingdom (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:C8C2C347C7336202F7D928960CD5D964A0020F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ Master PDF Editor - это программа, предназначенная д
 ```bash
 magnet:?xt=urn:btih:D2C7B9D4C59971CFFDABFE47E71B4BA08F909AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ Santana - In Search Of Mona Lisa (2019) EP, Scene [FLAC|Lossless|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:73AFB2187538830A7AA65999952225AEE5FE5E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ RegCool 1.101 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C1281DC00FB608FB8568447EB2DC8937B9CA686D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ Vangelis - El Greco (1998) [FLAC|Lossless|image + .cue] <Modern Classical>
 ```bash
 magnet:?xt=urn:btih:048749AA29970C89FBF4B63C9D5C1A696C5D731C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ FonePaw Data Recovery - программное обеспечение для в�
 ```bash
 magnet:?xt=urn:btih:48758414A656DC09EB2A41180DF0437DB75C37FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ Michel Legrand - The Very Best Of Michel Legrand (1990) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:8EC79913BB953DD9B16CC7D6A808AFE1BE78CEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBBC626BDCF55B0973AB54A954CDC38A3DF84A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

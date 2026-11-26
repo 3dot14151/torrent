@@ -22,8 +22,7 @@ The Sweet - Grand collection (1997) [MP3|320 Kbps] <Hard rock, Glam rock>
 ```bash
 magnet:?xt=urn:btih:0BA37CE02773762F99FA806E05B02E4F69D2C9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PrivaZer – полезная утилита, которая поможет ва
 ```bash
 magnet:?xt=urn:btih:3B376E0572299FEEA23945B1B43BD3E4C63DABE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:3567E7D46B0B98F1B0E8F0DBC41E5B2FA7D0A61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:8E05E822DBD0D7D9528DA4130094DF9F56207D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BDF0FA52E799FAD040A612FA193FFFAF9F3DE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MediaHuman YouTube Downloader 3.9.18 (0703) (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:09A560FF51E64ACDAD4744FE801516EFB72689C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

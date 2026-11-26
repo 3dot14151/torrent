@@ -19,8 +19,7 @@ forma.8 — уникальная вариация на тему приключе
 ```bash
 magnet:?xt=urn:btih:B03FAA06CE7841D8AFEA91EA4911915A4F8FB427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Among the Innocent: A Stricken Tale — адвенчура от первого �
 ```bash
 magnet:?xt=urn:btih:DCD4DBCDD8ABEAA5AC12C764DD49B98BD73E660F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96
 ```bash
 magnet:?xt=urn:btih:67992160EA2E9783A7BD32C0A985BA50F6B2D98B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

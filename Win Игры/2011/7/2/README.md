@@ -19,8 +19,7 @@ Tales of Lagoona: Orphans of the Ocean / Сказочная Лагуна: Сир
 ```bash
 magnet:?xt=urn:btih:E6B5C8B35949E257EBD7CBAC3ABD188E00222C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pinball Yeah! – фентези-пинбол с 4-мя столами, кажд
 ```bash
 magnet:?xt=urn:btih:54B9B107847BEE1FE620AC38EDD3750686D1940E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ GooseGogs - это забавная игра, созданная 17-летним
 ```bash
 magnet:?xt=urn:btih:7F75FD4F9E9E6A6D1ECCDC714FCABF4623DF8CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

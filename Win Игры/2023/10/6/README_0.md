@@ -19,8 +19,7 @@ Halloween Stories 7: Written in Blood (2023) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:6B5B615FEE8A90EE6D06BDE10CDB9B8444DFA48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

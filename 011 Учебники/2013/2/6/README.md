@@ -21,8 +21,7 @@ A.С. Копылов и др. | Процессы и аппараты перед�
 ```bash
 magnet:?xt=urn:btih:93564911FB85E0590401716EAFABB1192D2870DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AC8DBC5365CA3E0D244044B268437B7A93460B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

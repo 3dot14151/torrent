@@ -19,8 +19,7 @@ Complete Internet Repair 11.1.3.6508 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6394E63523578460FCB7623DBF3A612B9B10ED9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

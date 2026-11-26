@@ -22,8 +22,7 @@ Garmarna — шведская фолк-рок-группа, основанная
 ```bash
 magnet:?xt=urn:btih:3339C8A594217714A1D05338E25254EFEA462313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Amorphis — финская англоязычная метал-группа. Г
 ```bash
 magnet:?xt=urn:btih:4A8F9435EBC069394420658E09378068B6A0A680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

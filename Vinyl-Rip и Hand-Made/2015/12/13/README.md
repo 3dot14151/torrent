@@ -22,8 +22,7 @@ Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:45A5FA839A3BA8784EA5DBFD90310AF74010359B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Boney M - Ночной полет на Венеру (1980) [FLAC 2.0 24/192|trac
 ```bash
 magnet:?xt=urn:btih:B3D1B3F57618B4E802E4A5A97D4A70337216A99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

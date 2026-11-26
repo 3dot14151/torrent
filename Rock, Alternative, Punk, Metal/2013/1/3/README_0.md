@@ -28,8 +28,7 @@ Danny And The Juniors - For Cool Grandkids Everywhere (2001) [MP3|320 kbps]<Rock
 ```bash
 magnet:?xt=urn:btih:53EEDFB06BCE0A0380CA8462523B3CDE7E866F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D61F758DB0CA6998D04AE22019F476FF26BE0A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Von Thronstahl - Corona Imperialis (3CD Luxus Box Edition) (2007-2012) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:F2A44CC1DBA211CC63722EBEAAC786C2FC5B6F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Gazpacho - 9 albums (2003 - 2012) Discography [MP3|320 kbps]<Progressive Rock, A
 ```bash
 magnet:?xt=urn:btih:B196B0F26321FBD9C2A0D789A6F0270EEED28250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Jace Everett - 4 CDs (2006..2011) Discography [MP3|320 kbps]<Country Rock, Blues
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Deep Purple - On The Wings Of A Russian Foxbat  (1976) 2CD /1995, Connoisseur Co
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ CD2-01:15:16
 ```bash
 magnet:?xt=urn:btih:A40CA892BEC9D3AEF3ACC0C248DF2E0568708CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

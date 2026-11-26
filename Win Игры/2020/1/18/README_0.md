@@ -19,8 +19,7 @@ Wizard of Legend — игра о стремительных походах в п
 ```bash
 magnet:?xt=urn:btih:F01BAB200ABB397D2DFA85D25EF329A5AB2DAFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forgotten Passages (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0636FAEA3C3A131AA19A8E6374EF6A848736ADA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

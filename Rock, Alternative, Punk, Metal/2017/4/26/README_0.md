@@ -22,8 +22,7 @@ Order From Chaos - Dawn Bringer (1995) [FLAC|Lossless|image + .cue] <Black, Deat
 ```bash
 magnet:?xt=urn:btih:AE369F92148A134710DF8F88B648D605593FB14A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elffor - Dra Sad (2017) [FLAC|Lossless|image + .cue] <Medieval Ambient, Dungeon 
 ```bash
 magnet:?xt=urn:btih:6CD602564CC924F936982A28DEF005CC184804E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Emerald - Reckoning Day (2017) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9C39224BE84D1BAABC9E44ADA15695FE724C70B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Gorillaz - Humanz (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternati
 ```bash
 magnet:?xt=urn:btih:E99CC24D56CD81BD0DE9EE860B246F781691E9BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Low Roar - Once in a Long, Long While... (2017) [FLAC|Lossless|tracks + .cue] <I
 ```bash
 magnet:?xt=urn:btih:F649EDECCA5BE628B4E6C89A351431E42C00E820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Kaleo - A/B (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie, Blues
 ```bash
 magnet:?xt=urn:btih:264196705D17C4662877F28401039A63163DC997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Gorillaz - Humanz (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock, Hip-Ho
 ```bash
 magnet:?xt=urn:btih:A06EBAD2914074BCB5072197122C6377B1F0D1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

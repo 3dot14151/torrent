@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F811AD46F96FBF3BA3E672F2A5CE1F00BC1A7643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ABBYY FineReader 12 Professional – программа для распозна�
 ```bash
 magnet:?xt=urn:btih:E2DFC4E62A95827A6C9C32151D1E4AE23BFA551B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Digital Art Live - это потрясающая демонстрация одн
 ```bash
 magnet:?xt=urn:btih:F2B90596552F9C1923A889CCF3FA527F758ABCE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF7190CE1D1B17A3CE68C60D77653EC45F9A4E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

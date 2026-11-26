@@ -20,8 +20,7 @@ Shellshock (1996) [Ru] Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:638AA964F022F462E01CEF7B366FE78A0C97FF79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

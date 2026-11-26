@@ -20,8 +20,7 @@ KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip]
 ```bash
 magnet:?xt=urn:btih:4262D28043174089C8BAF420107D31F23E73D08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

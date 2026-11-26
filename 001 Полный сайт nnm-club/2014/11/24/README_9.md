@@ -28,8 +28,7 @@ Fall Of The Leafe - August Wernicke (2000) [FLAC|Lossless]<Atmospheric Melodic D
 ```bash
 magnet:?xt=urn:btih:C6411900061EFEF7DF2E0997557C9275C23889B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Triphon - Awaken (2014) [MP3|320 кб/с]<Melodic Metalcore/Modern Metal>
 ```bash
 magnet:?xt=urn:btih:EF876C6F902DCC6A21FB6B22A3E2632937DA50CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Dutch House, House #17 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:05945447C9425B5BE067FFEB23C4C36EAAF94F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:59130CC23B1C6DF1A73E3C3A0314299419A39D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Uplifting Trance Anthems (2014) [MP3|320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:70B25BCC1DD02FAA895EEFD870D7CD8FF9B0A00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6D0A15C2C903BE9E07F084CEF3B4AFA1050CB98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Kormac - Doorsteps (2014) [MP3|320 кб/с]<Electronic, Hip Hop, Funk-Soul>
 ```bash
 magnet:?xt=urn:btih:B8D2E4C91705315DF34F65B672A77DEEE9E04127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ VA - Press Play Vol. 2 (Mixed By Susana) (2014) [MP3|320 кб/с]<Trance, Progre
 ```bash
 magnet:?xt=urn:btih:B31CF8FAC219397269098A3A8049546C0F64A697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ VA - We Love Trance Vol 1 (Mixed By Jam Da Bass & Rene Ablaze) (2014) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:4C44A8266FA21AB4A2E7FED25617FC806E4DF8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ Nikolay Gromin & Alexey Kuznetsov (Николай Громин и Алексей
 ```bash
 magnet:?xt=urn:btih:CBAAFB3CD74FAFF3DF34465817BB0BB904BB4B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +344,7 @@ Henry's Funeral Shoe - Everything's For Sale (2009) [MP3|320 кб/с]<Hard Rock,
 ```bash
 magnet:?xt=urn:btih:710F311D985E418C40B514BF8665D854726A456E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD4BFCD1B1F9C7B1992E0E7C5BB14B7091270D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:744426F354C5A411CD3F34DA8FAA945746B40A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ Erik Berglund - 2 альбома (1994, 2014) [MP3|320 кб/с]<New age, Meditat
 ```bash
 magnet:?xt=urn:btih:C77748FF6D00096266935AA7F9C338EF035D6337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:38DE3A00BE2C34AEA96473CE0B3DC645C0ECD243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ VA - Vocal Trance Collection Vol.129 (2014) [MP3|320 кб/с]<Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:3125E1C8B07E61E53432DD58FF7A81F348C1BB2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55817EDC90FFFB2BEFA01DA110855BF986C89F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ Ashampoo Music Studio как глоток свежего воздуха для �
 ```bash
 magnet:?xt=urn:btih:11B86265DC5FDDBBEAA6DC0DE4BBA95CCF600F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ Arcade Messiah - Arcade Messiah (2014) [MP3|320 кб/с]<Post Metal, Progressive
 ```bash
 magnet:?xt=urn:btih:90962AA56267EECD785DF9D3BEF2C5A45F063AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFA3A6259692E157644BC632EB306F3875CDE37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ Primordial - Where Greater Men Have Fallen (2014) [MP3|320 кб/с]<Black Metal/
 ```bash
 magnet:?xt=urn:btih:00F80E173FE5A1570DC1AA7C6A391913B9BF50F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ DJ Fridrikh - In the house #295 Live! Unmixed (2014) [MP3|320 кб/с] <House, S
 ```bash
 magnet:?xt=urn:btih:7B0AB01D0C65E554DB0828E15405D8DD874B6F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +683,7 @@ Garmin: City Navigator Southern Africa NT 2015.30 (ноябрь 2014) <En>
 ```bash
 magnet:?xt=urn:btih:116432271A9AA4C8D42D5E36813A682F9988002C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +716,7 @@ Sherry Finzer - Sanctuary III: Beyond The Dream (2014) [MP3|320 кб/с]<New age
 ```bash
 magnet:?xt=urn:btih:92223096A0059F96D67DE1B396D41BAE85588AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ Ryan McGarvey - The Road Chosen (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:319D7E1FC6E49CB7627BF17464418A0CCAFEBA92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -800,8 +775,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFCC4D462E20653FDCDB52DADABCCB9B22F3A193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

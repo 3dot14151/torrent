@@ -19,8 +19,7 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:ED05267FF63A80B76E581D9878D3B7C1E1C5F6EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CleverGet 26.0.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:92F917BF446B5416E3E6EB4924720AFF3A68050C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Process Explorer - это расширенная утилита управлен
 ```bash
 magnet:?xt=urn:btih:F5EDDB7F0CE8AB858D7ED92BC0C43707F7E6CB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hosts File Editor - небольшая бесплатная утилита, ко
 ```bash
 magnet:?xt=urn:btih:497C9F6BF76840A44BD7B892B231A3E914EDF561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FluentCleaner — современная утилита для очистки и
 ```bash
 magnet:?xt=urn:btih:BB3F32CD09A4458830C5FFFEA292C3D4038780AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Trayy 3.0 Portable [En]
 ```bash
 magnet:?xt=urn:btih:484444AA54E3FC53695D930BD879B3CEA28A5A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:A2E88FCD9E3F9FF69C16177C11DFDCB165E50743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Icecream Screen Recorder – простая программа для запис
 ```bash
 magnet:?xt=urn:btih:05CB0F4F7E38378689DF502AE2956DDE22AA7F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ ShareX - программа для снятия снимков и видеоза
 ```bash
 magnet:?xt=urn:btih:E524333575E9DE55736F611250FFAB3BBECC1164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:2B39A44F66CC52868DB4D5B28266D809EA01FD09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:AE4B1C1B1DF7E4A35B9972088DCBDF66BD1DAF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:E465A15DD19B2D88988D439FA64B5FF3B76EF6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:255C2D2808917941CA63351B7E223714EB9DE441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Brave построен на том же движке (   Читать даль�
 ```bash
 magnet:?xt=urn:btih:68C95CCDB77D6E030ED49599175D39029B417917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:844930C327083A88AD5A284272CA4B820F7DE2FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ QontrolPanel 1.15.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3F6B4B3EF48A942118F3C0C0CDC7C0B7CCA678A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Teorex FolderIco 9.1.1 RePack [En]
 ```bash
 magnet:?xt=urn:btih:7ADEAE466E7242F03372B12C3BE79E07E52F51DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Opera GX — это специализированная версия брауз
 ```bash
 magnet:?xt=urn:btih:98B28D008484AD02898CC46285681545721D1BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

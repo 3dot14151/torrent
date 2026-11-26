@@ -24,8 +24,7 @@ Maleficium Arungquilta - Слезы И Пламя (2013) Single [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:706EE87FED9EDA3CBA7CCBCC408B762CF8DBCEDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

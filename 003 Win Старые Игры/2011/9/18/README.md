@@ -20,8 +20,7 @@ I Have No Mouth, and I Must Scream [Ru/En] (RePack) 1995 | Kirill Games
 ```bash
 magnet:?xt=urn:btih:36636C999B0156098DDC31015FDAA3BEB12DD403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

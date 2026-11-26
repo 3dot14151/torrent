@@ -19,8 +19,7 @@ ViewBox - приложение для Android устройств (в том чи
 ```bash
 magnet:?xt=urn:btih:53F43784A92BD5D973991BAF234BDE29483A940C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1848216932EFE76C8BE19643D1064054956E90E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Picsart AI Photo Editor, Video v25.9.6 Final Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2296F260574AA75BD8FD26AD7E71A0D26CFC593D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AirBrush: ИИ Фоторедактор v7.4.0 Mod by MustHave [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:20C26DF4ED7EBF16C2351C368EE3CA057D10627F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Citrus AI - Photo Enhancer — это специальное маленькое 
 ```bash
 magnet:?xt=urn:btih:29F9C4971DC8C684301B12458C0F33A370B0ACD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:3B104415E9DC70D9421D3901EE56D81AB03509BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bria Mobile: VoIP Softphone v6.17.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A971CE86A0BA9A2D08916E7E869DDCA92824AE3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:F5F04A6B2B594178ECF9F5FAEB8041AB1E7284FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

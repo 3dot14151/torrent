@@ -20,8 +20,7 @@ Sang-Froid: Tales of Werewolves является смесью экшена со 
 ```bash
 magnet:?xt=urn:btih:06D6A2101F3EE43D064DB528B8E876988C7A0769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

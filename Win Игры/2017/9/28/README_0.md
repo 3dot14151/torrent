@@ -19,8 +19,7 @@ Through the Woods – приключенческая игра от третье�
 ```bash
 magnet:?xt=urn:btih:87FB252E7AF9CF4B9271C77801E3033A90CCC7BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:DF38E7815A22CE1388C4C3193C17AC6555518FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RAID: World War 2 - это захватывающий кооперативный
 ```bash
 magnet:?xt=urn:btih:46A2A0693599144D2CE29FEDA07E85BEAB0E2E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

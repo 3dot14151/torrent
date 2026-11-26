@@ -22,8 +22,7 @@ Black Reaper - Blood Moon Rising (2017) [FLAC|Lossless|image + .cue] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:B6377226B144271CE5B5690F86988CDCF39032A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hand Of Fire - Nuclear Sunrise (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7FF54FD59E901C58EA7B60B349080B7EAB12BB53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFA072E0E92F6B3E83F47A10DEDE9315DFEDB69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Шаг вдох: Трибьют Animal ДжаZ (2017) [MP3|320 Kbps] <Rock,
 ```bash
 magnet:?xt=urn:btih:A2A5E7DEA29240E90EAA2A2042D94DC596F6E640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Animal ДжаZ - Шаг. Вдох (2007) Remastered, 2017 [MP3|320 Kbps] <Rock, 
 ```bash
 magnet:?xt=urn:btih:7B1F3F1A12FA6E512EA7547F073FCACD65122FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Roy Orbison & The Royal Philharmonic Orchestra - A Love So Beautiful (2017) [FLA
 ```bash
 magnet:?xt=urn:btih:FB72C4EA0A5A6C05BFB9E4E4F212E93E2713AEA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Green Day - Greatest Hits: God's Favorite Band (2017) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:52224E567F50791BA5E9121D9E61C25488E37816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89285C8E35ED429D0E460B5652801E951740C949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

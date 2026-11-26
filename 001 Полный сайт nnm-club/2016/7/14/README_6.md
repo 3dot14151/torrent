@@ -22,8 +22,7 @@ VA - Festival Trance Music Vol.6 (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F621059409DE4518AA8B744CF6F7D00ED3C856CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Life Store Stone Clubbed (2016) [MP3|227-320 Kbps] <Funky, Club, Progressiv
 ```bash
 magnet:?xt=urn:btih:B9D75CF893E2EF607993321A859E1DDAB819E325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AF61026B4300068C3AD5D2A84BE63102208E116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76E084DA1316DDB80E2243572B0A24D7A1E99DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Jeremy Steig - Fusion (1970) Groove Merchant[APE|Lossless|image + .cue] <Jazz Fu
 ```bash
 magnet:?xt=urn:btih:3E0A53DAAADBB867A3BF97F965E7D81457D9CDA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - Dancin People of Electronic Music (2016) [MP3|320 Kbps] <House, Dance, Club
 ```bash
 magnet:?xt=urn:btih:8C734F880B7D88FE9F87E7912A4182ACFF9FDC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - Champagne Party - Ibiza Grooves (25 Summer Beats) (2016) [MP3|320 Kbps] <Fu
 ```bash
 magnet:?xt=urn:btih:B0D07E97E12A8EFD5EC01D5E51D8010B3456446E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Kissin' Dynamite - Addicted To Metal (2010) [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:88120EFB00961051DF1AD25DD1E43E9C6AA99433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C122C9BAAF234B432F88FEA6B07378EFE14B3094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ VA - Pro Dj School World (2016) [MP3|222-320 Kbps] <UK Funky, Bassline, Progress
 ```bash
 magnet:?xt=urn:btih:5DC8A3CD7CCD7B8D132DBF01EFF76E8F69DFEE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - Selected Uplifting Spiral (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 ```bash
 magnet:?xt=urn:btih:CE1A9F8B567F862A683F75188BC8108E928FC95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Caellus & Camulus - Genesis (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:1EB077547F4495E97D5B7B26473F25BC52803D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4504158155875AF8B23C9FA1B1CE515F92FACE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8B5226AA955F9CA7273BD1213F492FBA55B85AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FCE5F4F4FCBA4DD477D25D8DD76DE130F07299D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ VA - Bonzai & Friends 500 - Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ```bash
 magnet:?xt=urn:btih:6E05101FC7AB892B54340F6561245416C56AB77A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ The Lizards - Reptilicus Maximus (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3527D1BECAB45C285FFC26425E59C5D00B38583B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ VA - Top 100 Massive DJs Infinity (2016) [MP3|320 Kbps] <Trance, Progressive, St
 ```bash
 magnet:?xt=urn:btih:98A6C02A5122BBF19757A5D45BF8B02D5AABA153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Tinsley Ellis - Red Clay Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:BDB1F609EA4B8D576FBD2B62FC4DC5B5092FF1CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ Adrenaline Mob - Men Of Honor (2014) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:30D8B35883C8E5CCB3004D999D85CA2F7ABB8D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ Audioglider - Subaquamarine (2016) [FLAC|Lossless|tracks] <Deep House, Progressi
 ```bash
 magnet:?xt=urn:btih:C5AEE8A89D890AFACDF446206F98560C4EED0894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ Jon Secada – Heart, Soul & A Voice (1994) [APE|Lossless|image + .cue] <RPop Ro
 ```bash
 magnet:?xt=urn:btih:ADF5D7F2B00441E737F7A716692DD23A171BD5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ Third World War - Third World War 2 (1973) 2001, TW Records [MP3|320 Kbps] <Hard
 ```bash
 magnet:?xt=urn:btih:B128984139F6CEF1C8844882DB61C7F87BD63441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ Third World War - Third World War (1971) 2001, TW Records [MP3|320 Kbps] <Hard R
 ```bash
 magnet:?xt=urn:btih:1F988F982D36DF2276BCFA1329EB9E629446E614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ VA - LUXEmusic - Топ Июнь (2016) [MP3|320 Kbps] <Club House, Deep House, 
 ```bash
 magnet:?xt=urn:btih:FB553BE65D1D8CB3BB2CC549CFD589B757E75C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ VA - Open Oceans - Trance Session (2016) [MP3|320 Kbps] <Trance, Melodic, Harmon
 ```bash
 magnet:?xt=urn:btih:4394B11052325AD4C02B9D169CE63D7EFFF9B19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

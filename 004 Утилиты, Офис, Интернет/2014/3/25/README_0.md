@@ -20,8 +20,7 @@ ViPNet Password Generator 4.1.1.21539 [Ru]
 ```bash
 magnet:?xt=urn:btih:50F947DF1B62487ABEFAE9C56171DA34A3BEABA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Soda PDF Standart представляет собой программный и�
 ```bash
 magnet:?xt=urn:btih:E85D61C9E4915354D144471C29900C1B5292E4DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Recuva - программа для восстановления удаленны
 ```bash
 magnet:?xt=urn:btih:594951C2CC5EDDDD2D413E8B9BA74FDB3AA1A95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

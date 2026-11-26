@@ -22,8 +22,7 @@ Dream Evil - Dragonslayer (2002) Japanese Edition / King Record /[FLAC|image +.c
 ```bash
 magnet:?xt=urn:btih:133E0829A87D42F8E736E6B07DF055B962A74D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trivium - Silence In The Snow (2015) [FLAC|image+.cue]<New Wave Of American Heav
 ```bash
 magnet:?xt=urn:btih:D8A3101C32909102D42FEA61958195A0CE937897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CDE1CFB9EBCCC9DBDDB9430C238B53C126761BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

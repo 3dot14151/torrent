@@ -19,8 +19,7 @@ Doom 3: Fallen Angel [Ru] (L/3.0) 2005
 ```bash
 magnet:?xt=urn:btih:26D10CF0BA833761B3DB73C2C616535DF4CF6955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

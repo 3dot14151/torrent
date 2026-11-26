@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BFD30208D426B36A0C9D3DDDD5AF50AB73BACB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Громкие новинки месяца Vol.25 (2019) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:AF612F1921A27A1B9FA022EB29DC1EF4E38F6829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECC7A12A1BD6994D08CBE77F48913CC216F7869B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:EE20883BA1A62AE5CE81F9F0D9A3FFEDE24A0A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Fright Chasers: Dark Exposure (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:DE9E71AC1CF8B3005EB62C3D83AF5319F49044CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Avril Lavigne - Head Above Water (2019) Japan Edition [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:0CE49CA856F0C7A228A75F255332B0DB2BAD990C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ TechSmith Snagit облегчает захват изображений с эк�
 ```bash
 magnet:?xt=urn:btih:383A5DA202BFBF16D6B79CA6D4DEC2158C2AEC75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Auslogics Disk Defrag - программа, призванная помочь и
 ```bash
 magnet:?xt=urn:btih:B9C2BA8F717F8256CF1CD3D6F2A1768C651D4803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Mystery of the Ancients 8: No Escape (2019) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:AB76E9908BF926925C9E9E5806122E21C9F52B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A4D65C68CAF2298678DAD72ABE231B960B2A42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:126AFBEC168D55288E53CC56D9B479D637CEACAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD8EBB0F228164E7E58AA12DEBB4864F26441494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDDB47A9C34A9EB6304EDF74D4CED3C4F8E19D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ DaVinci Resolve Studio 15.2.4.6 [En]
 ```bash
 magnet:?xt=urn:btih:3404426D21879A44EB4049CEE8D3AEE295D02E28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96B7C5DC7C1A7979AD7640BD6CCA03049648DFE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07909FEAE8B1346A12F415B565CE055BBC598401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5C062AA20362B53F0A6CBB7A9983AE9396AD27F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FA64BCE5ACB5A2B4F1A83981DBF50AB0028DBE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ Banco De Gaia - 30 Times Around the Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Ps
 ```bash
 magnet:?xt=urn:btih:5670C69A3289A1193E89067735B8EB78A09D33CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ PDFelement Pro - профессиональный инструмент, кото
 ```bash
 magnet:?xt=urn:btih:A658AB3FC14F57010C875AA20DC3075E25A19F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ Slash - Conspiracy Series Volume 1 (2019) Compilation [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C0EA7F500C1F149E97C4685991E38863D776A256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8464E72DBCF364A7BB83606AC56D2605659FBF4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ Auslogics File Recovery - легкая и эффективная в исполь
 ```bash
 magnet:?xt=urn:btih:9A86EFDE8422FAB93680DCB73B375FC22A8A0B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ SnagIt предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:9239B2DCC684ABB8CB8192D38E08B2EFD0C8C465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ UPgrade – журнал о компьютерах и компьютерных �
 ```bash
 magnet:?xt=urn:btih:606A13073907AC07E2F7E3A7C202E1CF621AC4B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33AACD21AF2FACBD5E7F3561C92486BFE499D19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

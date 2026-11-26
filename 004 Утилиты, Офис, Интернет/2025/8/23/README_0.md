@@ -19,8 +19,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:DE84E4E11E516FBC96C02931172C69F968924C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

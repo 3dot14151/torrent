@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6277265C19D45F2FB275B0478B42377D05B1DA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07DF03898C26961F412E08CFB28940CE8237666B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4523D994BB014F6F2AFC72A7C8B43F4566D328BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Nocturnal Species (2013) [FLAC|Lossless]<Progressive, Zenonesque, DarkPsy>
 ```bash
 magnet:?xt=urn:btih:9669F1056E5CC349A99D550904D014B0F47282EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6F989BBD67DD42788A8B7AEBE9302805FAB2829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAF98A1AF67FC7747C46AE4A77B55B56159D367D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9067544A74F8D0AA5D2A42D19F89E2C34F31633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D59AFE90D1D7D608969624C698B4B7FA529D3170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA2DC90B37817767AADA3C141D07418B0C87B15C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:687BE9839E8E08676415CBC0F4872F68F9429DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ VA - Intropix (2013) [FLAC|Lossless]<Darkpsy, Forest>
 ```bash
 magnet:?xt=urn:btih:9BF330D4BCF24EEBBAC0F344F97E4D7886DA871A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ VA - What Is Life - Life Is Life (2013) [FLAC|Lossless]<DarkPsy>
 ```bash
 magnet:?xt=urn:btih:C6330BA8D95D9084860A7EA1ABFD8F75B4461DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ Meditation Oasis - Peaceful Mind, Open Heart (2012) [MP3|192 кб/с]<Relax, Hea
 ```bash
 magnet:?xt=urn:btih:9AF40786638EBE5122825611EC94D9DAB30F253E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ iWatermark – отличный инструмент для каждого бл�
 ```bash
 magnet:?xt=urn:btih:7918DDC75F23F78EEBD65F040E3123EC16A0ADC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ Adia - Mystic Hits: Best Dreams, Vol. 04 (2001) [MP3|320 кб/с]<New Age, Relax
 ```bash
 magnet:?xt=urn:btih:49CCDD9BDFA662E0B8F3579AC67C26C9C418AFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77B3ACBE92F5C12E77D30ACF10E43991EC4C5D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ VA - Super Bomb Electro 41 (2014) [MP3|320 кб/с]<Electro>
 ```bash
 magnet:?xt=urn:btih:9EACE77D82102CCD827598EC7A608E64822496A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ OmniPlan 2 разрабатывалось для менеджеров или р�
 ```bash
 magnet:?xt=urn:btih:B86E1F18DE0E2AD61BAD3A56E1CF4589797089D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E863542A2E93A735517D433BA0B4DBFE4CD82D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +560,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:158B9106E9D47B0443746CF2C165A5C5E8098F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +587,7 @@ Serial Box 04-2014 [En]
 ```bash
 magnet:?xt=urn:btih:776190C58470811209B6D055051FD8D9DDF96B43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +612,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:793C6110014A0861D8EBEDBCA0A2F200B5620CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +646,7 @@ Animals As Leaders - The Joy Of Motion (2014) [MP3|320 кб/с]<Progressive Meta
 ```bash
 magnet:?xt=urn:btih:C8A83C4CC82F18FB0CBFD28AFF26D6937E02A5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +680,7 @@ John Mill - Romantic Guitar (2013) [MP3|320 кб/с]<Instrumental, Easy listenin
 ```bash
 magnet:?xt=urn:btih:2AD37B965F2FA1AAE9D3B65292708798215820C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ Dr. StuRm - Redemption (2014) [MP3|320 кб/с]<Industrial, Soundtrack, Metalste
 ```bash
 magnet:?xt=urn:btih:24C4A9B6BC2ADCBFDD22BC4C9621FA588D108F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +747,7 @@ VA - Dark Rituals (2014) [FLAC|Lossless]<Progressive, Zenonesque, DarkPsy>
 ```bash
 magnet:?xt=urn:btih:3550630EE56350025AAC6BF8EAB135924A7B0029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

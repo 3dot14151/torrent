@@ -19,8 +19,7 @@ Hanazakari no Kimitachi e 2 / Для тебя во всём цвету [ТВ-2] 
 ```bash
 magnet:?xt=urn:btih:AB9B62374B732453EE16C82E86EC904812A36CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4706BC059059CDFA96AC28D9FC783DC39923A36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:388D381F574BF37AF64163147645A97983F2311B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lv999 no Murabito | The Villager of Level 999 | Крестьянин 999-го у
 ```bash
 magnet:?xt=urn:btih:6DC5F6085BE234E72FB715DB02A679AB85BA3977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ All You Need Is Kill | Всё, что тебе нужно, это убивать
 ```bash
 magnet:?xt=urn:btih:EBA1D95467827EE859D7B0A3F0F6904FFAEB5784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

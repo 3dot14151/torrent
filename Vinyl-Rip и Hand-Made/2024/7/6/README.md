@@ -22,8 +22,7 @@ B1. Gate of Hell (02:47)(   Читать дальше...   )Жанр: Doom, Deat
 ```bash
 magnet:?xt=urn:btih:C96CFE848C5EB9063B4713B6AE3B0C39D8EDF3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

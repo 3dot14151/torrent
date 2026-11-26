@@ -19,8 +19,7 @@ ABBYY ТехtGrаbber — это очень интересная програм�
 ```bash
 magnet:?xt=urn:btih:E689B208537C30F2B9655AD8AD803593E1D48E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

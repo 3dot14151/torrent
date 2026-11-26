@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:40E6F32BDBFE4FA0574516C61F90C854D964222C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ iSkysoft iPhone Data Recovery: легко вернет утерянные дан
 ```bash
 magnet:?xt=urn:btih:C5AA332C0773DEC77E572AD310AE58B9DF9E7BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Trio Mandili - With Love (2015) [MP3|320 кб/с] <Ethnic / Georgian Folk>
 ```bash
 magnet:?xt=urn:btih:B71B917F084ED4B35C7D4F35D5F3300DA7C53CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2E979BBA0FC46480A0967BC924DE2F7888BF810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Nero Burning ROM 2016 — настоящий «стандарт» для про�
 ```bash
 magnet:?xt=urn:btih:83EE02881B6D81DD860311D83565D6F8DA930491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ UnHackMe позволяет обнаруживать и удалять разл�
 ```bash
 magnet:?xt=urn:btih:F778A477A6E521506921C93F66454C84B97ED491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Traanan | Обучение трейдингу На NYSE/NASDAQ/AMEX GT Capital (
 ```bash
 magnet:?xt=urn:btih:72F7203C2EDD2B928326F4446F58F1E95E4A16AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDBE05EBD8B1EE9881103113D1D5A6C4790B662B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Depeche mode - Devotional. Live In Barcelona (1993) DVDRip [hand made 60fps]
 ```bash
 magnet:?xt=urn:btih:757B44BB9ECE2C5C50B3F5F852F8AED97B4CE9E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA6CCA320B53D20D8DB0D370AAF1E812F05C8302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C2B541F6BE12930297D5CE2F495C493226DC3C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ VirtualBox - специальная программа для создания �
 ```bash
 magnet:?xt=urn:btih:ADD078059DD5E6E051B9B328F1B97B58ED1F7D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Star Wars Pinball — никто не думал, что даже пинбол �
 ```bash
 magnet:?xt=urn:btih:0E17555ADF1CE2C48AFB1D218572AB8D2B5B158C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21F02391D4015D06E58790D7E54001C9BDFFF181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AEB1812D6A50AA68F1C8D71AFF82E7EDEA3D36D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52FDCBC600C426A1040969D7524313EC53F2CB98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4834D7A717662EFC46AA951D8F2383F33E8FB3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ pennystock.ru | Курс по торговле - PUMP AND DUMP (2014) PCRec [H.2
 ```bash
 magnet:?xt=urn:btih:744B7D81767786387B5B090F72BD888BF57BBEAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ Udemy | Улучшение вашего рабочего процесса с Gul
 ```bash
 magnet:?xt=urn:btih:914606E19D2B784EBB7A43A107A9982755FFD589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:88018B96BC3603406127030ED11D3741A3B9D673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ Political Events - новостная видео-заставка. Вы може
 ```bash
 magnet:?xt=urn:btih:322DA941D7B582C2CF642408B4C22C052C625DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA91DA853EF6A1A22BFDF7CA5623E9857A743B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ EximiousSoft Logo Designer - простая и интуитивно понятн
 ```bash
 magnet:?xt=urn:btih:253A4CCA5350EFF6FE9FC6C74CB5882D1A67D2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +667,7 @@ The Silent Age - приключенческая игра типа наведи �
 ```bash
 magnet:?xt=urn:btih:468C1AA5BCDD81CCC99D170CD7738BA48FDBB117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

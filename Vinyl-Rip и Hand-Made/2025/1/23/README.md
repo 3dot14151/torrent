@@ -22,8 +22,7 @@ Witchwood — итальянская хард-рок-группа, основа�
 ```bash
 magnet:?xt=urn:btih:FBBD40BD5CF113A7E7760072782A0A0DAA916B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

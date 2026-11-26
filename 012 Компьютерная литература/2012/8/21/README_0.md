@@ -19,8 +19,7 @@ Mike and Linda Wooldridge | HTML and CSS. Самоучитель [2008] [PDF] [E
 ```bash
 magnet:?xt=urn:btih:A01B9138C3FE7DF05E25E4218D5128BEB6EA04A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ William Wood | PowerPoint 2010. Самоучитель [2010] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:17DA97A6FA61F6AF51745A3D841CB6B84EB67992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CB4FFDE2A0120658850D7EECC8466F8A4724629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Zend Framework основывается на простоте, лучших пр
 ```bash
 magnet:?xt=urn:btih:12069CC3771F7A848CF3A136D3838AEED49165F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

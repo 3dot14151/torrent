@@ -19,8 +19,7 @@ Cyberia 2: Resurrection [Ru] (RePack) 1995 | Kirill Гамес
 ```bash
 magnet:?xt=urn:btih:5A2F3FD3C86E62398C73BFDB9B627288AD7D4CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ BloodRayne Дилогия [Ru/En] (RePack) 2003-2005 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:0795E4E073FDE1236FBAE7CB41A1718D4A5DB505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Star Wars: Empire at War | Гражданская война охватила Г
 ```bash
 magnet:?xt=urn:btih:22971AA7CC4664E9ADF25C61618DA0BF7F305FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

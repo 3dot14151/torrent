@@ -18,8 +18,7 @@ Sid Meier's Civilization: Beyond Earth - новая часть знаменит�
 ```bash
 magnet:?xt=urn:btih:F8F207B27F30836954F289F9B9A1F396C15AD76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Adobe Photoshop Touch 1.7.7 [Ru/Multi] - Фотошоп для планшето�
 ```bash
 magnet:?xt=urn:btih:A534CBAF7AFEA89DFEE5E08A80E0BEE53CACDF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ The Evil Within (2014) [Ru/Multi] (30.12.2015/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2D72EC63881CBA6B8ED8131F85C44B99BC401010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:643636E9639A6F89C47019404B23F51547B3DB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Genymotion - быстрый эмулятор Android, который включ�
 ```bash
 magnet:?xt=urn:btih:A23ECDC9049D0AB97DE133637BC6AC4C81CD5278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F17FA7CC09128943C1E5EF205CB3830EFCC2285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:300A5FC6115061BF8FAB399BA3FA0AFB4230E6A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Navitel / Навител Навигатор v9.6.1978 RePack [Ru/En] - толь�
 ```bash
 magnet:?xt=urn:btih:3811A7082973EAB3315288A4A1FBA074A28C11B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ MIT GEOMATICS LTD представила новый формат карт для
 ```bash
 magnet:?xt=urn:btih:2C8FAA3CB05F7A53A76A9DE5FCC84280B044E429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:759802C1438100F403EE6723D85F9492B0281F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

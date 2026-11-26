@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0D768C14452937054CEA3526210ABDD0C89BA21C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Manhole: Masterpiece Edition открывает перед каждым иг
 ```bash
 magnet:?xt=urn:btih:091BC9379F8F15937AC922E9CCF5D9D945708692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0CD4C0F262CECDB96F33D93C3FD0286AA6972A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Analytera, Центр Статистических Технологий, Его�
 ```bash
 magnet:?xt=urn:btih:4231B13881A956AF70F1AEE1F2341436C22AD69D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Topclass, Алексей Каптерев | Мастерство презент�
 ```bash
 magnet:?xt=urn:btih:903A109FB29D0F9764D774B5C1AE33ED825ABD82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:146749D2BD4E8A7D559F962B7D0740786FB52016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89F9F15E2B2E9345123855EBFD9B94F79244919F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FA6E90E1743C11D40C5EF17A57EB6870FC5DDB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Gumroad, Ivan Smirnov | Illustration development by Real-SonkeS (2015) WEB-DL [A
 ```bash
 magnet:?xt=urn:btih:AFC7EF15650ACF23D4984345D1A2B39C9F17073A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Rebelway, Urban Bradesko | Realtime FX for Games and Cinematics (2019) WEB-DL [A
 ```bash
 magnet:?xt=urn:btih:1E8759AA9BA7FABF30A217193B719EB68BB5AD3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81224A6C12036FFBB2E3F0F46FE40EC2DA4A7B71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ The Gnomon Workshop, Adrien Paguet-Brunella | Creating a Swamp Scene for Games w
 ```bash
 magnet:?xt=urn:btih:F4F0C4B1EF315537BB3A899D465684B7C32AB0B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCB80FEF9F056BC1CC9E62BACF9F8CCBCBA5E10B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ NoMachine – это средство доступа к удаленным ра�
 ```bash
 magnet:?xt=urn:btih:D53B5B947C8E6DDB81D31DB758F8CE1FE8A61DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:ED1871D4F9BB83623B9473554D2A5AE2B3573915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:DF5335E0428FEB559B2DCE1950F0DE2B09033A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ App Builder позволяет создавать приложения для с
 ```bash
 magnet:?xt=urn:btih:D94EB0746161AD83CB740E132CCE16A541E2D46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 ```bash
 magnet:?xt=urn:btih:CDE8DDDFAAD56AD6A89852FB24A685D48897C5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A089E4823C6ED79E59D169D75F2145C45E4B488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ Apple Motion — приложение для создания анимирова
 ```bash
 magnet:?xt=urn:btih:94A65B584557792CE328E01F823555C132409935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ CGcircuit, VFX Magic | Houdini Flip – Chocolate (2021) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:D4D8161B532517F9FCEC2798B66F45000BFDB293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +553,7 @@ MEmu позволит играть в любимые игры на персон�
 ```bash
 magnet:?xt=urn:btih:5FBE02A5FBCB1CEF443B46EA915553FE35913D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86D2716FFBF27D6CBECF20C498AE336530C5BF37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4FEA9BC03D8F6B3F912F4E370E7872DEB9C2C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +631,7 @@ Multi Commander - мощный многооконный менеджер фай�
 ```bash
 magnet:?xt=urn:btih:869E45E554B02D6C6245FE674A83FAD1BCCAA190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A28F6341F5178FDF12004B31867A69E0143FEAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

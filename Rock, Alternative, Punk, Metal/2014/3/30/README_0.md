@@ -28,8 +28,7 @@ Dunkelgrafen - Baphomet's Aeon (1999) [APE|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:A47D2DEA4887386F0E9094A4E8078324044155EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Gory Blister - Skymorphosis (2006) [APE|Lossless]<Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:33001C8F2F404530A07F886F41E24F7DD5FCEFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Korp - Demon-Reborn (1999) [APE|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:BC03318F52583394C831BB23D3934F7BAA74E630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Korum - No Dominion (2003) [FLAC|Lossless]<Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:28AC56F1675D2E807FA87C2169BF3D1BFE283F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Negator - Old Black (2003) [APE|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:F9C5B6C23255F1C1626543F8F35016DA24277363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Forgotten Tomb - Under Saturn Retrograde (2011) [FLAC|Lossless]<Black / Doom Met
 ```bash
 magnet:?xt=urn:btih:D9927119C4E9B7583238117B064CE7D41129C3B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Juggernaut - Architects Of Deceit (2008) [FLAC|Lossless]<Brutal Death Metal / Br
 ```bash
 magnet:?xt=urn:btih:5CDDED062BAFAE25CEDC7A8E3E5F3252069B6046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Temtris - Shallow Grave (2014) [MP3|320 кб/с]<Heavy Metal, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:406A1710ED94A8427D26DF9C102CE8C6C12713BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Olympos Mons - Medievil (2007) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:A933FE941D30CBC57760171151153B9CB19481BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Ignis Fatuu - Unendlich Viele Wege (2014) [FLAC|Lossless]<Medieval Folk Metal>
 ```bash
 magnet:?xt=urn:btih:126D21707DC2E38CD65CC333D38BB95C79E69E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ Lоst Sоciety - Tеrror Hungry (2014) Limited Edition [FLAC|Lossless]<Thrash Me
 ```bash
 magnet:?xt=urn:btih:3EC8900C6A15697573653D77578346EC74E1816C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +394,7 @@ Ariadna Project - Parallel Worlds (2007) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:CF0772C353F1E2978E16106AD59D598CBCB7488C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +428,7 @@ Sinbreed - Shadows (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:EF286C9F8A8FEC3EDAEE55F92621BA26FC01B3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +462,7 @@ Crystal Tears - Hellmade (2014) [MP3|320 кб/с]<Speed Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:CD9F5D6B3DDA0DB5C1F3AA5292FE491D1F0C8AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +496,7 @@ Girlschool - Believe (2004) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7634CD7B6E31055B98D6156F120195D1FFE07E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +530,7 @@ Northern Kings - Reborn (2007) Japan [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:5E43FA9ED6CB16D706A64A21AD1B414988ECEB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +564,7 @@ VA - Voltage Overload: A Tribute To AC/DC (2003) [MP3|320 кб/с]<Classic Rock,
 ```bash
 magnet:?xt=urn:btih:3BD1C21AA7015999EF51FE2B9B13EAD4723C6D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +596,7 @@ Lux Occulta - Kolysanki (2014) [MP3|320 кб/с]<Alternative, Avant-Garde>
 ```bash
 magnet:?xt=urn:btih:B83167B5B1BDBC41FFABCE020FEB516EC89BCFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +630,7 @@ Cage The Gods - Badlands (2014) [MP3|320 кб/с]<Hard Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:F7D5656BA1BD6FF2456BEB83381A5C3325D9CAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +664,7 @@ My Chemical Romance - May Death Never Stop You: The Greatest Hits 2001-2013 (201
 ```bash
 magnet:?xt=urn:btih:EA37868D265F62FBB8371B85F28639C2FEC45A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

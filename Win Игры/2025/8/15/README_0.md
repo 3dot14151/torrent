@@ -19,8 +19,7 @@ The Slormancer - эпическая двухмерная экшен-RPG с ис�
 ```bash
 magnet:?xt=urn:btih:5C3CE3379BB2E51FCBB9442B7A657206484D9CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Project Downfall (2022) [Ru/Multi] (1.0.6.2) License GOG
 ```bash
 magnet:?xt=urn:btih:776FD47166F1E7F2009FB69DB49CB7FE2F19415E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 ```bash
 magnet:?xt=urn:btih:CF3A74F5C6B1D4596599403163E417DD866A8EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rail Route – экономический симулятор, в котором 
 ```bash
 magnet:?xt=urn:btih:1AC48BD97ABB4331240F182FC917581F2D4102A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Witchfire - это тёмный фэнтезийный ролевой шутер
 ```bash
 magnet:?xt=urn:btih:490A3B0D01C7892222449B2E368F4406721B8A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Vagrus - The Riven Realms – ролевая игра с элементами с
 ```bash
 magnet:?xt=urn:btih:B2B3B59427F43AF0B1AF23B14E3F9160E23D5AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F633813A2B6FE6DB6B2A63AE902B8970875A7205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Ys: The Oath in Felghana (2012) [En] (2020.03.11) License GOG
 ```bash
 magnet:?xt=urn:btih:3C8379CA255157A63BA762532585A0BC0048F526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Impaler Gold - это динамичный минималистичный аре
 ```bash
 magnet:?xt=urn:btih:D605355E5FBA1591748321E7648B07A435D3D559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ CraftCraft: Fantasy Merchant Simulator отправляет геймеров в 
 ```bash
 magnet:?xt=urn:btih:0D85DBF328D5D1AE18015DE3AE6788BBF95D3996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Tennis Manager 25 ставит геймера во главе теннисной
 ```bash
 magnet:?xt=urn:btih:4833617D2727AFACC761F886ECA4FB63BB966709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Call of Duty Modern Warfare 3 (2023) - ремастер третьей част�
 ```bash
 magnet:?xt=urn:btih:D63818089ADAE38FF722DBF665F4187251E76F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Tiny Witch (2023) [Ru/Multi] (1.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:159C47982950E702BD207BBBB28F02E24A476A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Call of Duty Modern Warfare 3 (2023) - ремастер третьей част�
 ```bash
 magnet:?xt=urn:btih:B260A2A6247528F7A655F137717DF3772CC7DAFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Ys X (10): Nordics (2024) [Multi] (1.0.9/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:416A6A58676340F380894AA28F96677E69D5EE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Pinball Spire (2024) [Ru/Multi] (1.02.03) License GOG
 ```bash
 magnet:?xt=urn:btih:C4E2B757548BE4ABA850918C28F7C2DBFA82803F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.710170/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:50619397B16D9970F03CF1EFD28F91D434822CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wan
 ```bash
 magnet:?xt=urn:btih:A0C560C51B13BE5023BF5E2E0D254C6E5B318C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Eridani Survivors (2025) [Multi] (12.08.2025) Repack AIexandro
 ```bash
 magnet:?xt=urn:btih:93FA2B214C710C08DF6573C9DB22D1475C2CC25B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Scrapnaut - это командно-административная игра н
 ```bash
 magnet:?xt=urn:btih:45A723F167339B6EE7C1F52FB98685319EC6F59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

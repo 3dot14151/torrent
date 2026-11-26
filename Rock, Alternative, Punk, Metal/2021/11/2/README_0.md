@@ -22,8 +22,7 @@ Aeon — шведская дэт-метал-группа, образованна
 ```bash
 magnet:?xt=urn:btih:AF70669AB94213FA40E110468D4B5DE6A68E7276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eyes Of Eden - Faith (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:DAB7C6F2275B325127CE0729B7FE9844D4C6F820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Osukaru - Starbound (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:69672A60A47E54616860E90DFAB3AD40BC015787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Doobie Brothers - Liberte (2021) [FLAC|Lossless|image + .cue] <Soft Rock, Cl
 ```bash
 magnet:?xt=urn:btih:17E2E5C3E1251D7167CCFE17EFCA6A9B750F5B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Split Heaven - Electric Spell (2021) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal,
 ```bash
 magnet:?xt=urn:btih:09237BADAC5A1DC81FB2AE7433D6434C1EF47532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:55A8C509FF516A4B155A87F23EA4EFFCDD73DB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

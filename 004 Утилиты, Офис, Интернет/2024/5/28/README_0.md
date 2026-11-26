@@ -19,8 +19,7 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:C2F9BD2F0B4FCCD3EFCAC111893EAACB220EE856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ```bash
 magnet:?xt=urn:btih:26D70772CA74813155809400BB4F2404793D707A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

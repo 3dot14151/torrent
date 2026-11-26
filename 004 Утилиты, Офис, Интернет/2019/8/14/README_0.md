@@ -19,8 +19,7 @@ FileViewPro GOLD Edition 1.9.8.19 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:182F1490256203C4752E4848324432BAE691B51F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

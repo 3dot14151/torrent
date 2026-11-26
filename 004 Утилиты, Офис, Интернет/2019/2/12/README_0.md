@@ -19,8 +19,7 @@ SSD Tweaker для Windows оптимизируйте параметры исп�
 ```bash
 magnet:?xt=urn:btih:630BD27619CE07ADE392A10A8AF4AE9BD914F901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

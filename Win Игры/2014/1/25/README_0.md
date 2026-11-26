@@ -19,8 +19,7 @@ Mystery Tales: The Lost Hope (2014) [En] Unofficial [Collector's Edition / Ко�
 ```bash
 magnet:?xt=urn:btih:69DBE122928674EB9FE95329DC71C16A69DC95B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Beast of Lycan Isle / Зверь Острова Оборотней (2013) [R
 ```bash
 magnet:?xt=urn:btih:18153688AAF7B5DBDCF04CBF37126206176898BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

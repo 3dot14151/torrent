@@ -22,8 +22,7 @@ Losers - How To Ruin Other People's Futures (2016) [MP3|320 Kbps] <Alternative R
 ```bash
 magnet:?xt=urn:btih:6236B16CE1BF5CF725A5ADF3410D3863063394A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

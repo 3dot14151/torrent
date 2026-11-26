@@ -19,8 +19,7 @@ Legacy Tales: Mercy Of The Gallows Collector's Edition (2013) [En] RePack Dizzer
 ```bash
 magnet:?xt=urn:btih:37C423FCAD873722FE074DB9A1FE135892678738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Droid Assault (2013) [En] (1.91.5) Repack ALiAS
 ```bash
 magnet:?xt=urn:btih:A2D5AD002183B03617767CACBCBC8C1BCA7090B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Demolition Inc использует технологию, основанную �
 ```bash
 magnet:?xt=urn:btih:70637CF49522D7AF340230C20D87C25D6B727E69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Cargo Commander (2012) [Ru/Multi] (1.1.3) Repack ALiAS
 ```bash
 magnet:?xt=urn:btih:CFF8EFD0CD4429D2100D940861BFC31F55FCAAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Drox Operative — это action RPG с космическими корабля�
 ```bash
 magnet:?xt=urn:btih:447F1D09218817DAF3275DB53200C66B83363AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Two Worlds Anthology (2007-2011) [Ru/En] RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8C2873219D4222DD74C5C12E895034FCAB3F9C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

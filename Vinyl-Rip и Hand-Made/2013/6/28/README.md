@@ -28,8 +28,7 @@ A1  The Ballroom Blitz [04:04]
 ```bash
 magnet:?xt=urn:btih:B7477B6CC9AF258C6E39F7717A3A953ABBD3EE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Death Angel - The Bastard Tracks (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:E4DB865713FF381480A5665D9FC2B1BA9787AA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Act of Denial - Negative (2021) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:C503F826DC478DCAC49766F764D197AE0D4DD681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Grandmaster - Skywards (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:B5AEF2F19BF580954DCBBAFE2209D960B1D5ED56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lucifer — это проект немецкой вокалистки Иоанн
 ```bash
 magnet:?xt=urn:btih:D113F6C0589CB49AA09F4E59160C5E96F688F6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Draconian - Шведская готик-дум-метал-группа, игра
 ```bash
 magnet:?xt=urn:btih:A683ED36808C3C34636CA57810689BE20633F3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

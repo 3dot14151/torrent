@@ -28,8 +28,7 @@ Mago De Oz - Hechizos, Pocimas Y Brujeria (2012) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:3CFA0EFD19133745E7E94A337399D290B8D6EF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Uni_Form - 1984 (2012) [MP3|192 kbps] <Post-Punk / Indie Rock / Alternative>
 ```bash
 magnet:?xt=urn:btih:D883B61162889B42FA7F7A1717E0AA9E461787F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Niburta - Screams From The East (2012) [MP3|320 кб/с]<Folk Metal, Melodic Dea
 ```bash
 magnet:?xt=urn:btih:1ECBB74F58A2A45778EB9B4126811435B63EB639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ T & N - Slave To The Empire (2012) [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Like A Storm - Chaos Theory: Part 1 (2012) [MP3|192 кб/с]<Modern Rock / Alt.M
 ```bash
 magnet:?xt=urn:btih:E50BE01D33E03C2194A4F8E6426DEDF9BDCF946F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Saturnus - Saturn In Ascension (2012) [MP3|320 кб/с]<Melodic Death, Doom Meta
 ```bash
 magnet:?xt=urn:btih:F573538033CA995B7C9AAB193ABE805D54F31361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Gorgoroth - Дискография (13 альбомов) (1993-2011) [MP3|192-32
 ```bash
 magnet:?xt=urn:btih:3F0FCA1085F989EE8B7AD3BC339EA8D652A7A896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Kraan - 13 CD (1972 - 2007) [FLAC|Lossless]<Progressive Rock, Kraut Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Dio - The Last In Line (1984) 24 KT + Gold CD /2012, Audio Fidelity/ [FLAC|Lossl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Shocking Blue - Venus-The Best Of (1993) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:68458BF9286AF00CF7AACB08406C5296BC7F3658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E03398B1C2E27B985CA40488B6CD0B532684FB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ Rainbow - Best Ballads (1998) [MP3|320 кб/с]<HardRock>
 ```bash
 magnet:?xt=urn:btih:AC8C54C8253C1C202FCA1879498A1C19F6C0FA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

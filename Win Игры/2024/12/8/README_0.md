@@ -19,8 +19,7 @@ Railbound - это удобная игра-головоломка о паре с
 ```bash
 magnet:?xt=urn:btih:221E8FE42CE63EDD06D06DE08869B36531AA1EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0234671DA10873E24430E88508F54AD5584A8A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Killing Time: Resurrected (2024) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:28BE3C9E589FCC026178248BEC2109169D3DF922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Outlanders (2023) [Ru/Multi] (Build 16661186/dlc) Repack Let'sРlay [Complete Ed
 ```bash
 magnet:?xt=urn:btih:868396C7A6EFF530ACE642A3F7AB4D11436FFA12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Let'sРlay [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:86321BF889ED98542603F926C0371D2EC29AE5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ CONSCRIPT — это новый хоррор на выживание в духе
 ```bash
 magnet:?xt=urn:btih:14D24F5F416FBD0D552859DCF32CFE6EFD7D62F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Let'sРlay [Complete 
 ```bash
 magnet:?xt=urn:btih:96B6E5832058DC7C435A5C96701123805702B569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Railroads Online - это «песочница» в огромном откры�
 ```bash
 magnet:?xt=urn:btih:E8AC0D6613EDC0661E088E66FE61AB39740108C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1F1F8F42B8B09267ABAF0E17E3817EE9E53C1285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

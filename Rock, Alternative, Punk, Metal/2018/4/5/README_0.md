@@ -22,8 +22,7 @@ Zazemlenie - Почти в одиночестве. Часть 2 (2018) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:48931370527BA884176D072475EC878C6F8F1B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Tremonti - A Dying Machine (2018) Single [MP3|320 Kbps] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:50814ED50164A21BF19DF05B2000F253615B37F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Kamelot - The Shadow Theory (2018) Deluxe Bonus Version [MP3|320 Kbps] <Symphoni
 ```bash
 magnet:?xt=urn:btih:11A008882EDF77258B6CAB334F661586C62D645A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Caliban - Elements (2018) Deluxe Edition [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:26E71A22F39835A7BBB83B0E1B14B4F8E085473A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Louna - Колыбельная / Лопасти / Так / Другие (2018) 4
 ```bash
 magnet:?xt=urn:btih:38E965C809123DE764755FA80FDA6667972B7B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Rainbow (Ritchie Blackmore's Rainbow) - Memories In Rock II (2018) Live [MP3|320
 ```bash
 magnet:?xt=urn:btih:5C7BD8D74E0861BE4C4681F13CCE90A96BA708A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCC5210EFA40E7E429C65F802A148B8CA85D1835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

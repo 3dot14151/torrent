@@ -19,8 +19,7 @@ IObit Unlocker — «легковесный», но мощный инструм�
 ```bash
 magnet:?xt=urn:btih:8AEF74A563554F0D0D09EBED8A917CBFD03D293A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

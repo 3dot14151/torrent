@@ -27,8 +27,7 @@ U2 - Songs of Innocence (2014) [MP3|~246кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:D0EAEC1D365A2B1CFE185F4C0E637DEB19F01318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Music For Your Sports (2014) [MP3|128-320 кб/с]<Pop, Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:7CB866D1DA7DFD743AB59B1937C25E0E55983B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Google Chrome 37.0.2062.120 Enterprise [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F663CF70BE340096F951CF8F5FE58DBD15CADDAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70B30939AE73831CE9EED3242F7C5D2AE82A2F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D70DB006CE2CFCFCE128C8F62C946C7587849886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69EC3B5595CCEB9785CD2E9475656E7C413E78D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:789CC833B8C4549C2F428F5CFE1876EEDE66F6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:610EB402C32A25D56FBDA512305265F46A9C5F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E82DD457B2900785C60E6096396A727085D7AAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AE4233A3F14F231A86830F3D15062F33724BBD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADAEFBB5C4920CFF6394B09B04A940436153E640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Everdune - Spaceventure (2014) [MP3|320 кб/с]<Spacesynth>
 ```bash
 magnet:?xt=urn:btih:69E241AF928607C2E8BD48E6D0B690BB8A2C0B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BE11DAE12EC32F7EB64B6C90B7475AC29708E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149429C80DA28D011308961A611ECF3F79FCC0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC627723BD4B560FD832A28DAA07E4B2AE812EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E444F37B83A5D43DEDD6D51A27918B7F5506BD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Cafe Del Mar - Dreams vol.5 (Compiled by Toni Simonen) (2012) [FLAC|Lossless]<El
 ```bash
 magnet:?xt=urn:btih:8CF75CCD8E2367C7767F4B3456A7AB33DBF188CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ VA - Sound Clinic (2014) Bass Edition[MP3|320 кб/с]<House, Breaks, Drum & Bas
 ```bash
 magnet:?xt=urn:btih:5A3900CC631BE58CEA865C621A12A5B2251526B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - XXXL Европейский. Europa Plus. (2014) [PCM|256 кб/с]<Pop, Dan
 ```bash
 magnet:?xt=urn:btih:AC8D45541355DA986D0C08747FF19A3CE5CB0C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ Google Chrome 37.0.2062.120 Enterprise (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F9FE7F118A90A25C881A1D295E9E58AA4444C481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:174D3ADB874C969531368E86965DB7B66FDC9A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ A4. Waiting for a Girl Like You (4:52)(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:7AADACB392DFD3487C52CE9E329BE6620AA9574C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ Noize MC - Hard Reboot (2014) Explicit Version [AAC|WEB-DL|256 кб/с]<Альт
 ```bash
 magnet:?xt=urn:btih:E923D354E89C5DEF7E37A485C2F07EE672BE5079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ Microsoft Malicious Software Removal Tool - утилита для обнаруж
 ```bash
 magnet:?xt=urn:btih:348452A4C7A226B970BE3CC877336713CCEF22A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +697,7 @@ MindNode можно использовать для различных зада�
 ```bash
 magnet:?xt=urn:btih:24977B8F55F2EF98C39211F768DED90193992A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +722,7 @@ AusLogics BoostSpeed - утилита для оптимизации работы
 ```bash
 magnet:?xt=urn:btih:BAECA10809576BD8416F100388B73242E079023D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

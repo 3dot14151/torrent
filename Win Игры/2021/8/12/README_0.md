@@ -19,8 +19,7 @@ Lawn Mowing Simulator (2021) [Ru/Multi] (7142717) License Fairlight
 ```bash
 magnet:?xt=urn:btih:004ABCAA7B2DD66F40C2D96FB94BE5D619FD7797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Library of Ruina (2021) [Multi] (1.1.0.5b1) License CODEX
 ```bash
 magnet:?xt=urn:btih:4AF762EBF2A3A10E7C6F64C0C888D3BB03CBCC91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Foreclosed (2021) [Ru/Multi] (7174262) License CODEX
 ```bash
 magnet:?xt=urn:btih:CDCF3BAA471A49C32ED4E616BFB081FE05A37B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

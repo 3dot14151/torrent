@@ -19,8 +19,7 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:8B44B2D84C5EC1DE43951DEF6E5C0B5A42FF567F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

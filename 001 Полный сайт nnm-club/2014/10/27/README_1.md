@@ -27,8 +27,7 @@ Super8 & Tab - Unified (2014) [MP3|320 кб/с]<Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:3C6F5B3A4F7ECA1B23C1D278E9BAEFD6E02ABF5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Media Маг – это площадка, где публикуются самы
 ```bash
 magnet:?xt=urn:btih:007C52C69029B006CD38C8B66484988B8A0C5D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Thomas Datt - Inside The Glacier (2014) [FLAC|Lossless|WEB-DL] <Chill Out>
 ```bash
 magnet:?xt=urn:btih:E66740FD4CB04E51ABC61CF98D6EF34A9680C453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Marta | 100 рецептов для мультиварок MARTA MT-4300, MT-430
 ```bash
 magnet:?xt=urn:btih:C9A17D4A78B0A6C7E69953317AA8060B3801940E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Sister Sin - Black Lotus (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8DAE56A58B9EC94CDA3B4A638CC44F944987C554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:8A7FAB9585021BCDF2DF4F3946597113A0A6EA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04080DD38B97EA71B88C51BCA8FD6E51E3859DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82DE072EA7D4DD31BC0EB15674CA7134BE56706E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ VA - Record Dance Label Compilation Vol.1 (2014) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:1345B45BD96A8B71E143C2C25CBB8B88FEA97C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AC1BAD1BF95E52CE8822CDABD117C20223DC14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECBAF2542B535F68D4FE45F8EE2C05A54497AE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4BB3CE1A944F5F905988665542FA7F09FEBFC69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB19E8E5C53582D5247150F9C35BFB4F1DDE1EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ Buddy Complex / Товарищеский комплекс [2014, TV, 13 ep] BDRi
 ```bash
 magnet:?xt=urn:btih:186301A85FBA69FF1F9B5D8A82855446B704C293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ VA - Top of the Stax: Twenty Greatest Hits Vol.1 (1988) [MP3|320 кб/с]<Funk, 
 ```bash
 magnet:?xt=urn:btih:464D8D189167DCF01F2EDF0C60BB17FDC285AC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ Grand Funk Railroad - The Millennium Collection (20th Century Masters) (2014) [F
 ```bash
 magnet:?xt=urn:btih:0228FED6BF8C4E8E2FB69D9AA84F7936C1740D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4ED5971371BF064C00A43D0A0E8A9AC3190BBF74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ MotoGP. Этап 17/18. Гран При Малайзия Сепанг. Гонк�
 ```bash
 magnet:?xt=urn:btih:E84B9EC693542CC20C6A60029DAF49CCE687EBB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ VA - Top of the Stax: Twenty Greatest Hits Vol.2 (1991) [MP3|320 кб/с]<Funk, 
 ```bash
 magnet:?xt=urn:btih:A00A74CA8DB7CF7586C8C2FEDC2F50078CE2D8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A76023778167011EF3EE91B556221DE8D1B8C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:156515063B4167FBD8EDD46B25DAEA65975F5BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +652,7 @@ Pink Floyd - Cosmic Music (1997) Bootleg [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5037263C6183E8DCDFD0C28049985929E9A87ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +677,7 @@ Marta | 300 рецептов для мультиварки MARTA MT-1988, MT-198
 ```bash
 magnet:?xt=urn:btih:B712362200D4AF407B007068EEDFC2417A9E5047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8767E58342760797AE1731AF04D2D2F582E4EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ Blondie - Plastic Letters (1978/2006) [FLAC|Lossless]<New Wave, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:1CA708089D5C8DEB8509061E499C7CF78BEFCF06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

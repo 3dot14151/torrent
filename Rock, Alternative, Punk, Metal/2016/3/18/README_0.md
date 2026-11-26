@@ -22,8 +22,7 @@ Vredehammer - Violator (2016) [MP3|320 кб/с] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:CA3E489AE54E02C6144A584027BC094E92A8F910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Deos - .​.​.​To Depart (2015) [MP3|320 кб/с] <Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F0669B81938F824320CF1A16696356A8A1F93D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Toxic Waltz - From A Distant View (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:434820AA3C9EC1B2995A5C4AF4C0A51AEED4B9BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Human Fortress - Thieves Of The Night (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:6B579EC42E05D9D47FE90F750F7F55FB1C575D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Freddie King - Burglar (1974) Reissue, 2001, Polydor [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:B440772168A12A277C295646DBCE1EC85E3154C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Spiritual Beggars - Sunrise To Sundown (2016) [FLAC|Lossless|WEB-DL|tracks] <Har
 ```bash
 magnet:?xt=urn:btih:352F91B932F4A6FA2E122E86BEAE9DB6829F0A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Almanac - Tsar (2016) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:BC1A5C31E0A2EA0C30AFF0F9458DA12199670F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Entwine - 7 альбомов (1999-2015) [MP3|320 кб/с] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4EBBCFD9A8B92E94CBDEA06F406EFEB59113FC50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Dante - When We Were Beautiful (2016) [MP3|320 кб/с] < Metal>
 ```bash
 magnet:?xt=urn:btih:131894F90B5B29F36EB1634B868E81F3D83E4545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Louna - 18+  (2016) Maxi-Single [MP3|320 кб/с] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:21C68DEF4BE8B12730E26760C931605915589680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

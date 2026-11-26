@@ -22,8 +22,7 @@ Black Book Lodge - Entering Another Measure (2015) [MP3|320 кб/с]<Progressive
 ```bash
 magnet:?xt=urn:btih:AB8235C08B387B7DA0EB8F6BD97A81DABEDC0D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ultimatium - 4 альбома (2004-2015) [MP3|192-320 кб/с]<Melodic Power Me
 ```bash
 magnet:?xt=urn:btih:E6B3AC4B9A7A2EE80C1AA6BDC949CEC5E455CCDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Embersland - Dark Ages (2015) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:BB774B6B0BDFEF0624F6FC5624583D9FFB035551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Immension - In Vain (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:617792990E9A72DD38239CB152BC9803F34C6C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Pop Group - Citizen Zombie (2015) Deluxe Edition [MP3|320 кб/с]<Post-Punk
 ```bash
 magnet:?xt=urn:btih:CBEC0180D3A8F79587DFAEC0B75FE96F08C5CCF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jgor Gianola - Rockmantic (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EA75074783A1BBD19B1ECEFD4E8079A08CEC804B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Jupiter Falls - Revolution (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8C6005D4811C4D155EAA26DAA7E595167337B433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Travelane - Freeze This Moment (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AA20C0A60A31D214DFA8CE53D1C4EBEDAB4D8BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Light Your Anchor - 2 альбома (2013-2015) [MP3|320 кб/с]<Melodic Hardc
 ```bash
 magnet:?xt=urn:btih:26129FA4C84E7AFDD98C7A3E8D2833DD4F94D3B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Iwrestledabearonce - Hail Mary (2015) [MP3|320 кб/с]<Deathcore, Mathcore, Exp
 ```bash
 magnet:?xt=urn:btih:C635BCC6794CA749BBF6A28C850D0D9A3A37F12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Dirty Youth - Gold Dust (2015) [MP3|320 кб/с]<Alternative Rock, Female Vo
 ```bash
 magnet:?xt=urn:btih:047C4B1C017D1CE4627AF7FB4F9B831DA947F340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ I.C.O.N - The Blacklist (2015) [MP3|320 кб/с]<Heavy / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7AC868E7FC6BFBA1E11C09F8B747672BA36DB9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ ZZ Top - Cheap Sunglasses (Live) Bootleg (2015) [MP3|320 кб/с]<Сlassic Rock,
 ```bash
 magnet:?xt=urn:btih:9F90A3DE84E2892351B2561EC3358259167C109A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Papa Roach - 8albums + 5EPs + 10singles (1994-2015) [MP3|320kbps] <Alternative/R
 ```bash
 magnet:?xt=urn:btih:0BDD4441ABCFB688CF43E600DD090935351845A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

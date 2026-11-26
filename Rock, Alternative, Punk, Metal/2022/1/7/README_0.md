@@ -22,8 +22,7 @@ Myriad Lights - Mark Of Vengeance (2012) [WavPack|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:CEC0568760633E1AD7E598586036EDD80A99DFD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shok Paris - Concrete Killers (1989) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BBB5CD3EAB7C801BD6EA856E22EF69E0C06B2A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crossfire - Live Attack (1987) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A6057B1ABC121D6809CA54310FB35C2DE2989250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Restless - We Rock The Nation (1985) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A8A525B3B4D21A48C27B002F2F9DC17660BD4F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Skew Siskin - Electric Chair Music & Voices From The War (1996) 2CD [APE|Lossles
 ```bash
 magnet:?xt=urn:btih:8B32039691DEA37288FD19FF5F5120701C632456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:2CB228C4E419B5FFCE6802CB6C3D7DF0AF5E971D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ventana - Discography 6 Releases (2008-2021) [MP3|320 Kbps] <Industrial Metal, N
 ```bash
 magnet:?xt=urn:btih:BC3BC5EC99F7EB62482BFA057FC23BB593A5C32C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Crossfire - See You In Hell (1983) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B22A87D180388506135B4800CEA10684D1BB1166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F8E2492FCB5454D4D7CDD028A7920106FE4907E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Evildead - Annihilation Of Civilization (1989) [APE|Lossless|image + .cue] <Thra
 ```bash
 magnet:?xt=urn:btih:6FACA6A3CA0533CF08BB64F60DFB9F31CB2D738B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

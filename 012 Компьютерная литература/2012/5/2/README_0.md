@@ -19,8 +19,7 @@ Autodesk | Autocad 2012. Руководство пользователя [2011] 
 ```bash
 magnet:?xt=urn:btih:F82C013F90073BDCE765728250EC2AB64C8B5A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

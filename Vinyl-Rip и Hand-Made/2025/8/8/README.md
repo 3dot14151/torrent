@@ -22,8 +22,7 @@ Chaos Magic - хэви-метал проект, созданный Катери�
 ```bash
 magnet:?xt=urn:btih:30181E5CEE86954F23E78EEFACCC9106E424D2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

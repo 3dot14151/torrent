@@ -21,8 +21,7 @@ Java – один из самых популярных и востребован
 ```bash
 magnet:?xt=urn:btih:6A91728A6759331A8FC822C6444E718E6A3D01AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

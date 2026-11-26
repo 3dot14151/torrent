@@ -22,8 +22,7 @@ Yak - Pursuit of Momentary Happiness (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie
 ```bash
 magnet:?xt=urn:btih:854EAE1FB4840987854F5309CC916CB88B4EC2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Galactic - Already Ready Already (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Fun
 ```bash
 magnet:?xt=urn:btih:59448AFF4D0222F4E0CCDEE312F0E8825F6CC2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cat Stevens - Foreigner (1973) Island Masters - IMCD 72, 1993 [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:7D176BE31195B0C48BF593590DFA7DD71D194330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tyler Kamen - Transformation (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 ```bash
 magnet:?xt=urn:btih:4A791E833ECA19DE31D7060538BC7F633B289340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tobias Sammet's Avantasia - More Moonglow - The Rock Hard EP (2019) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:BAFF40DED694C9D6C63BBC3E9B3E776E3A425421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ John Diva & The Rockets Of Love - Mama Said Rock Is Dead (2019) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:ED3150175A0BCDE53AF141FA67FFA88288363E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC3965ABA81D99A70DDD06C9D1072593494A198A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77C53BA102EEC7DB551A2248BA22704EF02B93CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Papa Roach - Who Do You Trust? (2019) E7M [FLAC|Lossless|tracks + .cue] <Alterna
 ```bash
 magnet:?xt=urn:btih:8849924AEBB8ED7B74E62FE23DB1D72F1EF9C822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

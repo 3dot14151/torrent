@@ -19,8 +19,7 @@ Blend Photo Editor Pro 2.5 [En]
 ```bash
 magnet:?xt=urn:btih:AD9628D76618EFB3E9CA69BFD3E4EFE12A9B8840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

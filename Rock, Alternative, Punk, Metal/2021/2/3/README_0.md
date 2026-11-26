@@ -22,8 +22,7 @@ Cân Bardd (Can Bardd) - The Last Rain (2019) [FLAC|Lossless|tracks + .cue] <Fol
 ```bash
 magnet:?xt=urn:btih:C707EDDEF62C42A7958E63B24867CD27B762E905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Labyrinth - Return To Live (2018) Jараnеsе Еditiоn [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:11050BAD61DB1FCD9FC0B3DEBBF52A6DA74C0497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cân Bardd (Can Bardd) - Nature Stays Silent (2018) Limited Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:59BE9205D0B56784E5ACB6A86C2AC82E97106558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Diabulus In Musica - 5 Studio Albums (2010-2020) 5xCD [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:9A36BFA206B0C0868753A0A665931907D09297FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Besnard Lakes - The Besnard Lakes Are The Last of the Great Thunderstorm (20
 ```bash
 magnet:?xt=urn:btih:B8DA93F643C082C0491D9B89EDBD7BF4505AEB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Phantom Scimitar - Electric Nemeton (2021) [MP3|320 Kbps] <Psychedelic Rock, Pro
 ```bash
 magnet:?xt=urn:btih:E43851A760CD4E9F019A1F4EED61A196C5B2E07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Soft Rock Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:658D88963DE274AC7C706CCCD1CD2E286A2B0EEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

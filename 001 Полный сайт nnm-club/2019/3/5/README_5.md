@@ -22,8 +22,7 @@ Arne Domnerus & Rolf Ericson - 1950 - 1951 (2003) Dragon Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:22C63503F45658FA66E75967CF204B09ED51E16B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Attila - Chaos (2016) SharpTone Records [FLAC|Lossless|tracks + .cue] <Alternati
 ```bash
 magnet:?xt=urn:btih:C22B66C4ADD8CF71FDBF8B0BB0B7E12F4458789D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Guignol - Ash Land (2019) [FLAC|Lossless|tracks + .cue] <Gothic Rock, Post-Punk>
 ```bash
 magnet:?xt=urn:btih:9BE51790A42B39A122229F789748F24677E84617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94278ED556D66873AF8517B3C5D539F0FC8FAB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Liane Foly - Crooneuse (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:F34CD2D11EF1E8FDB79FACC3F7BA499EE7EDBDD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Pitch 92 - 3rd Culture (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0AC76612F19B86E8A3145BD1206686E2D9D39435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 ```bash
 magnet:?xt=urn:btih:DC83338B63596049856C2A25FB9E7B2EB926474B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Arne Domnerus Group - Jazz At The Pawnshop 2 (1976) 1991, Proprius [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:15ABFF5F0BE66730D86A34D331499A209D6D38A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Consider the Source - You Are Literally a Metaphor (2019) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:85C0BAE83212BB06DCCD18B3179B65ED210C66EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Butler – менеджер, который дает доступ к прило�
 ```bash
 magnet:?xt=urn:btih:DFFA9A898415826490358D6E45CECDB7760D86DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Beach Sound: The Velvet Jungle (2019) [MP3|320 Kbps] <Drum And Bass, Jungle
 ```bash
 magnet:?xt=urn:btih:0DC6EE2D0A03EE71623AAC48F5040C4C4A2D6B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ Mirror for Panasonic TV 3.4.1 [En]
 ```bash
 magnet:?xt=urn:btih:14DE429361421921C2620085AE3601388E41763D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Studies - это приложение, чтобы помочь вам освои
 ```bash
 magnet:?xt=urn:btih:E6B070D6E7223D95D159E04C4C6C94B53E74CA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ VA - Divine Lotys: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa Tr
 ```bash
 magnet:?xt=urn:btih:A5EF1508554800F9E265F199FD095C5ABAC87690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Methyl Ethel - Triage (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:D6A0DB8738777DD2B9BC27503872B768330CB7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ Seven Mary Three - American Standard (1995) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:736E411ADF25683DACB3C8C779B742AE84C7E8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:FDC9F68F9F13FDDB473FB81B6DDA92EC4DDA310B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AB692A2E6757805A25997E8F7CFB5E40BE62518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Planetary Assault Systems - Straight Shooting (2019) Mote-Evolver [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:014BF28483FED1091871A35DAD02382AFB03224E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ Attila - Villain (2019) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:955D7FA8BBF9ECA363ED5135CF06C9B65D7ED575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ VA - From euphonic to Russia (mixed by Kyau vs. Albert) (2006) [MP3|320 Kbps] <T
 ```bash
 magnet:?xt=urn:btih:6F6B1BF9AD9DE35B1D0FC4E8A7707F60752CF2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ Vince Gill - The Key (1998) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock, B
 ```bash
 magnet:?xt=urn:btih:35727C42712D94880DB3D0E67F73EE031DA73FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:C697339F5B8B30063464E0DCC31CAE82BEEA8827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAD2F85EC6592BF7E47DEA9240ACD03F290C9772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7F2757359306AC13E3F8AA9EA359B6E63AC8F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E4A0EED28A23417581297BEA134BD27AAFA328C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

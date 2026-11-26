@@ -22,8 +22,7 @@ Unkempt Herald - Diatribe (2015) [MP3|320 кб/с]<Heavy Metal, Groove Metal>
 ```bash
 magnet:?xt=urn:btih:73022D3248A0909AE94A5DF97AF94DD9179E1ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vennart - The Demon Joke (2015) [MP3|320 кб/с]<Psychedelic, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:CDB105FADA5929CA7EF77A0DA976980027B9229F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Aghast Afterglow - Imaging (2015) [MP3|320 кб/с]<Symphonic Metal / Female Voc
 ```bash
 magnet:?xt=urn:btih:235D9313EC3F0AA645215918DB491608BFF195A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lucky Bastardz - Alwayz on the Run (2015) [MP3|320 кб/с]<Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:264754149ACF35D69BF170B4C5EB33113D621749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Millencolin - True Brew (2015) [MP3|320 кб/с]<Skate Punk / Pop Punk>
 ```bash
 magnet:?xt=urn:btih:A67BC4C9C72F62A35DC15253CFCE889F6D714B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jarrod Alonge - Beating A Dead Horse (2015) [MP3|320 кб/с]<Metalcore / Post-H
 ```bash
 magnet:?xt=urn:btih:82E681A52834D43E81A79C5AFD4A2FF13FA6BD4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Nightrage - The Puritan (2015) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:E7F0358BE5A232EF5BA65B80C2711B279431C285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Bukowski - On the Rocks (2015) [MP3|320 кб/с]<Hard Rock, Heavy Metal, Stoner 
 ```bash
 magnet:?xt=urn:btih:9DBFE8BBF0A9165D8B9104E9B27E37BD41C30728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Marc Benno - Minnows (1971) /1995, A&M Japan/ [FLAC|Lossless]<Rock, Pop Rock, Bl
 ```bash
 magnet:?xt=urn:btih:4D265B9918DC8E051AF90073567C7772DB2F556E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:0F1900A83BA7D773AA8BFA94BA1068219B7506EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Lifehouse - Out Of The Wasteland (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:8217AD4BD538BFF53DEB5C8822059D41852B65C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

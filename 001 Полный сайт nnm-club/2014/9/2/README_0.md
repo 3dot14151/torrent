@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:7EF3D199C0EDDC24F83BCBFD4D5718F60E2A8326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Outloud - Let's Get Serious (2014) Japan [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:DCF5CC5F10AD1443D812A4509369F4EA899A75D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Wolf - Devil Seed (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7FD4640C5EF64ABEA029C1851E6A94134A6BA887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4295225131AB9B03DF28C76DBF63F8E2322D253A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66F31F7D344570280C7B27A2035D5A40FA67313F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C068169D34A7328A7F5B8A3016198FD7E9C78459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18F19EEA18E9B4BF87A50860A4E0B01F8094B06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ Matt Pincer vs. Xam - Still Waters Run Deep (2012) [FLAC|Lossless|WEB-DL]<Uplift
 ```bash
 magnet:?xt=urn:btih:F48FB4C266C631C480B62312425593049BCDFCF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Maude - #HoldUp (2014) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:6F629D1A1BE4D0842875E1593834B2850EB45EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0BEBAF0C4A757845C574DCE15E95304D05D65F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C81CBBF31DE8D3F5FDB9C1BF33CB5B11E300BC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +343,7 @@ Tower - мощный и элегантный Git клиент для Mac
 ```bash
 magnet:?xt=urn:btih:D99CB0152456BBEA0F8E2AA883D17376ADDDD43F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2D0CA75FDB576EACA0BB385D82989BBD128F9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ CellarDoor & Illhesher - Rebirth (2014) [MP3|320 кб/с]<Rapcore, Electronic>
 ```bash
 magnet:?xt=urn:btih:D852661ECA4701BD2A4129C97D648E5966C42826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +434,7 @@ VA - Top 50 Club Hits August (2014) [MP3|320 кб/с]<Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:FCA0730AF86BBE8F9D183281B3BEAA7D4EBDC7C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:717E1845487EEA7C380CA1E05C411AA1E0401101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:972785FA68AF1D0025A3E12A7C9BA58EF92D201E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +509,7 @@ Ashampoo Photo Commander 12.0.3 RePack by FanIT [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5E22D741B89D7D6F152A9372171FD5444E98C24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AD8426C59865C402DEBA93CD85AB9674EA2116B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +568,7 @@ ELECTRO HOUSE
 ```bash
 magnet:?xt=urn:btih:386E32E0F23470C3E87C9215B871F7A7D4DC8D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +602,7 @@ Gauntlet - Birthplace of Emperor (2014) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:364476DF6DA30C4B93CAF2D41F41FBFA9D25E74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46209705907FE5237A3DFF9214FE6076A5311ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D6326C1EA795942BCBD09769EC1376C9770AC0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +678,7 @@ FreeFileSync 6.9 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3DE8E8867B768B825C199812C77627D7FD4F9432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D525FCEF91AF53ED7A6157B35ED6096F97AD829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

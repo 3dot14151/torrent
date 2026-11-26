@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ My Backup Pro 4.5.1 [Ru/Multi] - Резервное копирование
 ```bash
 magnet:?xt=urn:btih:51DAB0D4851B8049AD391B03B163E90E9FB89AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 12.2016 [Ru]
 ```bash
 magnet:?xt=urn:btih:B4BFF6E9990078A2FD599F22243B26F18A2E765B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Premium Wallpapers HD 4.3.6 [Ru] - Обои
 ```bash
 magnet:?xt=urn:btih:8A69E2A4BC9A7DCD8DFDE41985D301DB8813D78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F4C2C0FAA647F6EFF0B97D4306C25BF212E8243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Adobe Photoshop CC — программа для обработки растро
 ```bash
 magnet:?xt=urn:btih:9084EAA43C102CD8CC505F7830177C6B0C547CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Stronghold Kingdoms: World 4 (2012) [Ru/En] (2.0.30.7) License
 ```bash
 magnet:?xt=urn:btih:C0F4F5EC9753496C2D580BA8DAC902B78AC2B105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Subnautica – это своеобразная и удивительная ко�
 ```bash
 magnet:?xt=urn:btih:E45AF422B3B938B69699C57427D3AED5F04CEAC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

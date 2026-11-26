@@ -22,8 +22,7 @@ Larry Coryell - New High (2000) HighNote[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion
 ```bash
 magnet:?xt=urn:btih:4F62217EC759F457A269B029581B0CF1328E5DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A552D92D058BB27CDAED74D598427D720DB2389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5509C2B271ABE2C16BF52875882932F164555833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F856B009F81F49A3DCA972DEC607FC86803D6964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ A4	Filipino Baby(   Читать дальше...   )Жанр: CountryПродо�
 ```bash
 magnet:?xt=urn:btih:9CB5562BA23D00DF7D03ACA279E7E0725272ECF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADB2C7B3D186E66EB836B7817E64CC1C3FC03DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Veselin Tasev - Believe You (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:653865F676A998DE660898B08CB3500E1DF8BC59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Kelly Richey - Sweet Spirit (2013) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B11C629CC8930DD897A2E908373016666504C38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8ADE36DA5DE71325FC2EB6F7964B2149E14BB0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Andrew Franey - The Stars Shine For You (2015) [MP3|320 кб/с]<80's Retro Pop,
 ```bash
 magnet:?xt=urn:btih:8169F43D46E88E775A32334EB7DEE155F7598686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8758EBCC6ABB863F8E0750A4FEB869FCCFDCCFFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ O.B.M Notion vs Arczi & Nikolauss - Tropical Island (2015) Single [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:2B2994592F28F4495D109042AC28050F3B629D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ KIROV - Волны И Вибрации (2015) [MP3|320 кб/с]<Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:DE9124046C3D19E4305240A0BFC280C2AF6FABAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ VA - White Chill Out Vol 2 (2015) [MP3|320 кб/с]<Lounge, Chill Out, New Age>
 ```bash
 magnet:?xt=urn:btih:25AF5014AD5C91132A21FD4D4EA4F201551981F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ VA - Bursting Out Volume 4 (2015) EP [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:1B383DA106B4E6C0F576C9E9177FA77278B7CBAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Madwave - Yukatan (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:9FCFC836CE59BAD3F775378C016152EC47F56356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F8EE701893E0732A62D666D70B4F8D3CD2AE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Black Ferns - Black Ferns (2015) [OGG|448-488 кб/с]<Alternative Rock, Psyched
 ```bash
 magnet:?xt=urn:btih:E86FE00BB8DD7A034D247D86A6FB4E56B0E47132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Andrea Ribeca feat. Lokka Vox - Cyberfly (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:B7C17670DD4C30B3D6796C92445DB6153F411A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Megadeth - Fatal Illusion (2015) Single [MP3|320 кб/с]<Heavy Metal, Thrash Me
 ```bash
 magnet:?xt=urn:btih:73FE7FD15F1E20E6174FC986636B7294143CEB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82389211F0778305D0A1461108FF61D29A36C4A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ Hoyaa - Losing Precious Moments (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:3F78A75A8E620757CADE563754E0DD912521B2A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:ED0E01B19C303D586C07F50124E01980C747063A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ VA - The Dark Side of Trance - Day Of The Dead Vol. 2 (2015) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:B9E4A1E6F124140479AB14F42460DB778266D483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

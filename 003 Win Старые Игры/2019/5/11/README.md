@@ -19,8 +19,7 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:90D74114EDB585C4A074EAE80C994DF301FEB7F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Red Alert 3 - Uprising представляет собой глобальное 
 ```bash
 magnet:?xt=urn:btih:DE822F68AD7D5326D229DEA9CDDDABB6D0FFB669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

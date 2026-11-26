@@ -19,8 +19,7 @@ Redemption Cemetery 12: The Day of the Almost Dead / Кладбище искуп
 ```bash
 magnet:?xt=urn:btih:B8DC1D343FD73716192ADEEB3C79FE03DDE6BCD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ghostly Matter (2018) [En/Fr/It] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4BFF2B5C10062B72B2ED9E64037EC7B64942206C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

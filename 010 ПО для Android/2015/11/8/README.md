@@ -19,8 +19,7 @@ Barcode Scanner v4.7.4 / Barcode Scanner+ v1.12.2 [Ru/Multi] - Сканер шт
 ```bash
 magnet:?xt=urn:btih:3F84CFB627B0172CE45E96C81AB5308A49A144AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

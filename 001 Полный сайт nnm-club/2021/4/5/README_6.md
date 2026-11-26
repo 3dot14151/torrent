@@ -20,8 +20,7 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:6BCEC4B20201F2F75BE6BE31B09E041DD43E744C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ PowerPhotos - позволяет разбить ваши изображения 
 ```bash
 magnet:?xt=urn:btih:055628AB8D4A4853B3232DD1070D3A4DF9AF226A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Photo Ninja - это RAW конвертер, который обеспечива
 ```bash
 magnet:?xt=urn:btih:DE962B947F135EE539425A23BBB1F18049DB0E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:B0CA101CC3749732342E18DD0ECBB9EF0AB11138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:B93EF893197A760274983CC4A2798E122E61ED6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:0BC15B20314891DBA988EAC12CF45E2AFD069E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Mac DVDRipper Pro 9.1 [En]
 ```bash
 magnet:?xt=urn:btih:FD3BB607C9957D8DE2C4085A354798DF8B4D741E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Magic Sort List поставляется с нашим революционны�
 ```bash
 magnet:?xt=urn:btih:03EF464E5A091EE1202DA2E4848A1658C0C20E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ AYBO 1.18.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:1FF44AE89E9B09AC5A15007E96A693F594EF1B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ CryptoEdit - это абсолютно простое, мощное и безо�
 ```bash
 magnet:?xt=urn:btih:36AAA3074A156BF9670EDA390A77CDEB0F8C2BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Performance Index 64 Pro 4.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:1293338BD5CAA68371A03C26734D3EE36D85268F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:98E4148CF22D9B525833AA821997D163FD832E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Valentina Studio - это идеальный инструмент управле
 ```bash
 magnet:?xt=urn:btih:4B45CFC4801D9AF3A08216AAF3288558FCB863D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Cronette - это приложение для определения задач,
 ```bash
 magnet:?xt=urn:btih:CA5F7648131214DEE145E230A0F9A2A5AB73857F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ TS Calc реализует числовое разрешение расчетн�
 ```bash
 magnet:?xt=urn:btih:A33F8B9CAD978525A42DD5C11AFB8EBC12D8411E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ AYVY 1.10.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:8D02BEBA77211985B28496F2638CF307ED976868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Serial современный эмулятор терминала, которы�
 ```bash
 magnet:?xt=urn:btih:7DB119A5E2CF5DB7A581685070F25E32D12AB4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ NeoOffice создан на основе офисного пакета OpenOffic
 ```bash
 magnet:?xt=urn:btih:89C27FC468BD8B1EA010881AC90542EB5B7E229A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ Private Contact - это приложение для управления на M
 ```bash
 magnet:?xt=urn:btih:F25CCADC9E97EF239B60A57B5F7B2BF1B9164087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ Rhinoceros 7 v7.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3E4194BF420AFB09E06C8CBC306B2A14DA615513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ Erra - Erra (2021) [FLAC|Lossless|image + .cue] <Metalcore, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:910FBF2C418F5815BD7BA445A586DB356ABC18B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Mr. Cloudy - Shades Of The Deep (2012) Entropy Records [FLAC|Lossless|tracks+.cu
 ```bash
 magnet:?xt=urn:btih:9C5EB1F3695D2EC1E1C21B9B51AD47DDF8194849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ Alamесоs Dе La Siеrra - Las Pacas (2021) [MP3|320 Kbps] <Latin, Folk>
 ```bash
 magnet:?xt=urn:btih:E7A4FE2AED1B8465E986093BC244DC41EA3F7F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ Glyphs - это профессиональный редактор шрифтов
 ```bash
 magnet:?xt=urn:btih:72D2BF0792F76D07ED3E9F4D0685110C1646B111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:9DA1583828ACF7945A414E54200F3E6C80DAB53B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ Find Me - Dark Angel (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 ```bash
 magnet:?xt=urn:btih:3D53D5942DAD905D5DB006C092E737A925B0255B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

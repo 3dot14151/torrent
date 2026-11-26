@@ -18,8 +18,7 @@ Adobe Photoshop 2020 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:582B9EDA364F9C42F1038ED488C9649B11C4B782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD3D66BF8190877136A5B472B72F5E07E2770BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Paradox Development Studio представляет продолжение од�
 ```bash
 magnet:?xt=urn:btih:92A20F3FEE8309D6A70BC93E16B17E91B1D3A612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Pine — это приключенческий боевик с открытым 
 ```bash
 magnet:?xt=urn:btih:039027DC881D8216600AE809E2C42388527E9EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Tropico 5 — игра в жанре экономического/градост
 ```bash
 magnet:?xt=urn:btih:F23DE49316580AA779C4091D81D3C83B8B51788D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9C6B1FF1631955EC495FBFF6E8B552111BF3103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -25,8 +25,7 @@ Zaraza - 2 альбома + Demo (1994 - 2003) Дискография [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:49A9E4BA4A0A58593B02C093BCD891323C1DF8FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Angellore - 2 EP (2008-2009) [MP3|128 кб/с]<Atmospheric Doom Metal>
 ```bash
 magnet:?xt=urn:btih:6FE408B204B67033AD7D29DDF0B6CE8AD932C4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Velcra - 3 Альбома (2002-2007) Дискография [FLAC|Lossless]<Ind
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Whispers In The Shadow - The Rites Of Passage (2012) [MP3|320 кб/с]<Gothic Ro
 ```bash
 magnet:?xt=urn:btih:CD4BF6238317D7C5F52B9BBD419C518327B19FBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Nina Karlsson - I Deny (2010) [FLAC|Lossless]<Alternative Jazz, Indie, Electroni
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Bad Religion - True North (2013) [MP3|320 кб/с]<Punk Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Steve Lukather (ex.Toto) - Transition (2013) [FLAC|Lossless]< Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

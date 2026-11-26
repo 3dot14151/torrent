@@ -22,8 +22,7 @@ Michael Musillami Octet - Spirits (2004) Playscape Recordings [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:CA7E12E09DBF30C30C5AADA5B323CDF34AFDD2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cosmin Nicolae - Semnal (2018) Opal Tapes [FLAC|Lossless|WEB-DL|tracks] <Techno,
 ```bash
 magnet:?xt=urn:btih:DFD5E2A187B6CA36FE0561E2D4B13B04E08280BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kadaverdisciplin - Death Supremacy (2017) [FLAC|Lossless|image + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:6D9444EE7791E06B46253765B01BAA5DF96F9D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8442AA14929C3162FD2991C41AB0EC49FB8A2D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Lady Beast - II (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C7D16FCEE5B1E9A6F376AC38C2475C3248715866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Festival Anthems Vol.3 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:C8B02A1C521C469907B9A32F0AEEFEF266090354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEB995E734055A078DA3F6193F62CDD02F7874EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A95F38585EED97CE00E6BC5BA517686BC08AB8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ VA - Music Generation: Big Room Electro House (2018) [MP3|320 Kbps] <Electro Hou
 ```bash
 magnet:?xt=urn:btih:2DED95F801ED87035A1E103544414417BC682832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Bloodhunter - The End of Faith (2017) [FLAC|Lossless|image + .cue] <Melodic Deat
 ```bash
 magnet:?xt=urn:btih:B893CCDA67BA326B21692A04D59023D772A3C143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Defecto - Nemesis (2017) Japan, Reissued, 2018 [FLAC|Lossless|image + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:ECE70865EFBFD33E0BC60BBF705A66ED0D8E8E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6248C084B4CA05B42222CC4A70EE4F3ACAEF2C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BDD1233B943A8D7F91FDD39F0471785C77C5EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Lords Of The Trident - Frostburn (2015) [FLAC|Lossless|image + .cue] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:A65C0772DD4FE90A3F92E5BC678EB240FA133489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ The Benny Goodman Quartet - Together Again! (1963) 2016, Sony Music [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:A3888AB133C6B42CB1BAFEA4C20FE31F46FAFC4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ VA - Weekend Warm Up! (2018) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:2483756B2C6000FE90C387D4D590D6379FA8AA37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Mick Abrahams (Мик Абрахамс) - All Said And Done (1991) Elite [MP3|32
 ```bash
 magnet:?xt=urn:btih:EB7ACC23D0BE61CC01B955010370FD6EC9317CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ Mate понимает 103 мировых языка! Переводите тек
 ```bash
 magnet:?xt=urn:btih:4045AADD17DC0C6A43705951710237D405BFAB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ VA - Miami Opening Party (2018) [MP3|320 Kbps] <House, Club, Nu Disco, Electro H
 ```bash
 magnet:?xt=urn:btih:A9467A50D30E46941729D2187CDFE23C780930D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ Necrophobic - Mark of the Necrogram (2018) [FLAC|Lossless|image + .cue] <Death M
 ```bash
 magnet:?xt=urn:btih:3BEC3466746EDA60EDD9E41E4FD117DFADCC7A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ VA - Deep House: Deep Calm (2018) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:844DF43B507ACBADD9B068D74011BF79D57C50B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ Tribulation - Down Below (2018) Japan [FLAC|Lossless|image + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:B6186729887ED250E8DC5B64BFEB4C4AE914F20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F57EF6F1FF644C0C8E4B3D800BF4F6C2E11CDEE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ Mick Abrahams (Мик Абрахамс) - Mick's Back (1996) Indigo Delux Record
 ```bash
 magnet:?xt=urn:btih:A6305F4E0EE3B173B7DC5CA1ABC53445F8F98E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ Zinovia Arvanitidi - Fluttering (2018) Kitchen. Label [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:7F100FD75D4A5982EC60FFB9F3CE377A6866BDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Motorhead - Tear Ya Down: The Rarities (2002) 2CD [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:15533317799E8783493569E5D3D405063B4131F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

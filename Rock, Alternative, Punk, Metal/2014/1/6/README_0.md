@@ -28,8 +28,7 @@ Brutal Hand - Brutal Hand (2004) [FLAC|Lossless]<Heavy/Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:DD925ECD923372930EF76CFBA71D0CBDCAD87E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Refraction - Fossils (2013) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:CE92FAF4553B2CFC6DB4D4A18D51150B75DF4CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Mechanical Organic - This Global Hive Part One (2012) [FLAC|Lossless]<Progressiv
 ```bash
 magnet:?xt=urn:btih:65C6225D87EAF5E373200E7C8BF62C08E06F00A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Hawklords - Dream (2013) [FLAC|Lossless]<Psychedelic, Space Rock, Progressive Ro
 ```bash
 magnet:?xt=urn:btih:EAA8C361F6EC712BF490CE1F6128B52AE7032A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ VA - Schwarze Welle: Dark Season (2013) [MP3|320 кб/с]< Alternative Rock, Got
 ```bash
 magnet:?xt=urn:btih:F94755DF8803E868F7004ADED1ACC59EC432DFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Vergeltung - Exploration Of Space (2012) [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:86B5E27A50A71F298626AF77FC85FCBFBCDA8BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Mechina - Xenon (2014) [FLAC|Lossless]<Symphonic/Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:DAED0579599A83843C0A997604BE51820C8B368F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Burden Of Grief - Fields Of Salvation (2003) [APE|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2E06EB14E99CE40C4CDB75BFD7B94AF35EAC244B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4E03806F8489F629F702D091285C3F2BB288693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Barcode - Showdown (2005) [MP3|320 кб/с]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:9BCBA61316135F018F18446D9CF6E8D89FE45267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +356,7 @@ Franz Ferdinand - Greatest Hits (2005) [FLAC|Lossless]<Post-Punk>
 ```bash
 magnet:?xt=urn:btih:6F01DB33E2FBBBF29ECDA9B71E0C67628CF6DF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +384,7 @@ Rainbow - Since You Been Gone - The Best Of Rainbow (2014) [MP3|320 кб/с]<Roc
 ```bash
 magnet:?xt=urn:btih:CB763BC5CA10B44A97BE9796632F432E62FE3760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +418,7 @@ Jimi Hendrix - 6 альбомов (1967-2010) Blu-spec CD2 Collection /2013, Son
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

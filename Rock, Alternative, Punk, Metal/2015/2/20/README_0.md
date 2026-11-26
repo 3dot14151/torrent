@@ -23,8 +23,7 @@ Bryan Adams - Golden Colllection (2001) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:00FBC105200210103D241B3E85C8FFC5EFC530EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Crazy Crazy Nights (2013) [FLAC|Lossless|WEB-DL]<Rock, Hard Rock, Heavy Met
 ```bash
 magnet:?xt=urn:btih:84FE705163F527F964A9007D6B1CAC90411A23B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD1DEA2916DDC607748BE551043DB83932E0F041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

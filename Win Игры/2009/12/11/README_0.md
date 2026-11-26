@@ -21,8 +21,7 @@ Angela Young 2. Escape the Dreamscape / Анжела Янг 2. Побег из �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Heroes Of Hellas 2: Olympia / Герои Эллады 2. Олимпия (P) [Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

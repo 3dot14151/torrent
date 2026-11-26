@@ -23,8 +23,7 @@ Siculicidium - A rothado viragok szinuket vesztik (2012) [FLAC|Lossless]<Black M
 ```bash
 magnet:?xt=urn:btih:1AB2401ACFDE8428A57B6D19AA36BC3480ADA5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Mindfeeder - Endless Storm (2013) [FLAC|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:9B401F0FE09AA900E3C4CBA4D2762669B2672A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Siculicidium - Hosszu ut az orokkevalosagba (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:5C82CE24965EA0F5939D12FBF23133C9EB1E77FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Siculicidium - Utolso vagta az Univerzumban (2009) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:0FB0842AFFCE8E22CD71421112759836246D6059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Devil Lee Rot - At Hell's Deep (2005) [FLAC|Lossless]<Blackened Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EA3BD247A091E6578C6989A738A4983975FE8BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Aenaon - Extance (2014) [FLAC|Lossless]<Black Metal/Progressive/Avant-Garde>
 ```bash
 magnet:?xt=urn:btih:8D224D767DA712C90567D265A9EF61580FCA0B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Edgedown - Statues Fall (2014) [FLAC|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:32B3ABBDE19398F4C255109CDA6797E27F921B43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Gloryful - Ocean Blade (2014) [FLAC|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:1249AB6C71065EB2AA50C257867E74E2E90FD60F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ The Black League - Ichor (2000) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:9E470B9AD3967A359D2E8FB160B9FF47EBD81D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ Goliath - Hot Rock And Thunder (1972) [MP3|320 кб/с]<Hard Rock, Progressive R
 ```bash
 magnet:?xt=urn:btih:8DEACB3C3426804618D8D8B57921E346E2FF38E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ Arkan - Sofia (2014) [FLAC|Lossless]<Folk Metal/Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:7C013A6A0078C79C9A11AA7DF2C43C0500F6CF63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +380,7 @@ Saor - Aura (2014) [MP3|320 кб/с]<Atmospheric Black, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:8514EE49E25CEBCB4984BCD92F251AEB8FBCF191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +413,7 @@ Chrissie Hynde - Stockholm (2014) [MP3|320 кб/с]<Rock, Soft-Rock>
 ```bash
 magnet:?xt=urn:btih:1C5C8CE95FBB92676EB57E76D03EABB3AEC44000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +447,7 @@ Stepson - Stepson (1974) remaster /2010, Flawed Gems/ [FLAC|Lossless]<Hard Rock/
 ```bash
 magnet:?xt=urn:btih:D42BE8F31760434B75F38E0C7D3FD6E181ED9B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +481,7 @@ Pillar - 7 Альбомов (2000-2009) Дискография [FLAC|Lossless]<A
 ```bash
 magnet:?xt=urn:btih:237C630BF6DE654A85E24248706371BE964537F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +515,7 @@ Powerwolf - The History of Heresy I 2004-2008 (2014) [FLAC|Lossless]<Power Metal
 ```bash
 magnet:?xt=urn:btih:6F96A7113FC5E616D8A0E385BD9595EDF39666F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +549,7 @@ Jethro Tull - Heavy Horses (1978) Remastered /2003, Chrysalis/ [APE|Lossless]<Bl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +583,7 @@ Theatres Des Vampires - Nightbreed Of Macabria (2004) [FLAC|Lossless]<Gothic Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +614,7 @@ Nazareth - Rock 'n' Roll Telephone (2014) Deluxe Edition [FLAC|Lossless]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:3B9A553D706202B3C1F94306FF6FEB1BB76DA79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

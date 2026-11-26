@@ -19,8 +19,7 @@ ABBYY FineScanner – ваш карманный сканер для любых �
 ```bash
 magnet:?xt=urn:btih:B10FEF38007DC70BA89591964EFF84A7B4BCA395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

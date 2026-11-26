@@ -19,8 +19,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B23EBABE61956EF2A17091D2636332C8E02DB787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Trail - это верный ремейк классического про�
 ```bash
 magnet:?xt=urn:btih:82A8776833FDF1D639B74E5604A1439CF8E685F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Airship: Kingdoms Adrift - это симулятор торговли и бое�
 ```bash
 magnet:?xt=urn:btih:5E4F105C0253F9DBF9C287C150168043B1CBFDB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (1.1 patch 2) License GOG
 ```bash
 magnet:?xt=urn:btih:B0FB3FCD4899741C1BCCE9B8FD25A51481CCDF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Shadow Warrior - шутер от первого лица от создателе
 ```bash
 magnet:?xt=urn:btih:A8058D2326DD1058F760A44AEC78F62622521E2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Song of Farca (2021) [Ru/Multi] (1.0.2.25) License GOG
 ```bash
 magnet:?xt=urn:btih:739A3DF0518E07672C29BE884A9826E4567B5760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Janosik 2 – продолжение истории, начатой в перв�
 ```bash
 magnet:?xt=urn:btih:DD9D6ECABA211D9589F84793919C18271D65361C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.1.1) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:CDF0B283A939B34183567265D5814616000E08FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Slave Zero X (2024) [Ru/Multi] (1.06/dlc) Repack Let'sРlay [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:8A64F9F4CFBBD6BE7AB78291BE6BCF834706A633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (2.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E6ADDBB47FEC0732BE7E53033B6B9C2E68C94F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Snufkin: Melody of Moominvalley - это приключенческая игра
 ```bash
 magnet:?xt=urn:btih:6FAB344E2AD011ABF4477A13D4E646D8982603CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Starcom: Unknown Space - это увлекательное сочетание к
 ```bash
 magnet:?xt=urn:btih:EFA049055C007B2B65564E828BE16EF346CFF48C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3244F6AE41A741AFE70202EEB3DC9C92291F5B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3868E9ABF5812EADA0AC96AD8D661885F0FF59B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Slay the Princess (2023) [Ru/Multi] (build 16887603) Repack seleZen [The Pristin
 ```bash
 magnet:?xt=urn:btih:13BADD3A17E1ED57F351FC537C086636E2AF8C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ SUPER BOMBERMAN R2 (2023) [Ru/Multi] (1.3.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:93D32ED9C922C86ED996E7CFD9DF7F33EC48A560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Nelly Cootalot: The Fowl Fleet - приключенческий квест, в �
 ```bash
 magnet:?xt=urn:btih:7F82ABB3792A091191631E643E7F80EB28064216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Slay the Princess — это психологический хоррор с вы
 ```bash
 magnet:?xt=urn:btih:F256B0986AFBE86B7644C414F2DAEBE250D98B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Nelly Cootalot: Spoonbeaks Ahoy! HD – переиздание оригинал�
 ```bash
 magnet:?xt=urn:btih:92B1C8242A7EFCE000FC089AF95FB8AFD4461AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Spectacular Sparky (2021) [Ru/Multi] (1.0.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:538CD4ACFB0E73116F0E57671C8BAE16951D0363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

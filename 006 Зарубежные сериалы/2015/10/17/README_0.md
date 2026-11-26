@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:866F6CE8411FE1EAABAD1F90A49CB25D8C8FAE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fortitude – небольшой городок в Арктике, из-за п�
 ```bash
 magnet:?xt=urn:btih:CEBB566B6B5E5E050325A6EE944D4D6FE8AAA067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

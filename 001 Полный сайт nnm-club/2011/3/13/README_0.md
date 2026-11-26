@@ -18,8 +18,7 @@ VA - Sensation Celebrate Life Belgium (12.03.2011) [MP3|~208 kbps]<Funky House, 
 ```bash
 magnet:?xt=urn:btih:81DA47C66EA11F81EB69EDADA783590A8634DE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ VA - Chillout & Lounge (Vol 1) (2011) [MP3|320 kbps]<Chillout / Lounge>
 ```bash
 magnet:?xt=urn:btih:F31F9773933000613FF5A34C190D422B5D3599F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Sylosis - Edge Of The Earth (2011) [MP3|320 kbps]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:C69F5EA720F9E378F5D52190D9C001785E94F7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61B57DB8ABD1F1B566F7EDA06694BD6D6069AF34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ WinMend Data Recovery - это Windows приложение для восста�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F3F28006661015AF28E239DF17DE5BC640CEDB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ VA - Club Reminiscence 1 (2011) [MP3|320 kbps]<Tech House, Techno>
 ```bash
 magnet:?xt=urn:btih:B1307D10245FA6FABE2A35AB82392AB1831D22D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFEA8447C046E706CD6B65BFE42FF4CBA60AF90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F02EB3642AC625C0DCFD1CEA439D7B2748A4DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ VA - Весенняя радиоволна Русский (2011) [MP3|256 kbps]<
 ```bash
 magnet:?xt=urn:btih:4CE8F647A1FD3D922467BEA732948A7C62C5FC3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F9518072FEBD1F4AB3BC2036F5D2258712584E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ VA - Breaking The Silence Vol. 2 (Mixed by Andy Moor) (2011) [MP3|256 kbps]<Tran
 ```bash
 magnet:?xt=urn:btih:BE25463F6811AC943B01A357B6EDE962EDFFEE1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ VA - When Techno Meets Progressive House (2011) [MP3|320 kbps]<Progressive House
 ```bash
 magnet:?xt=urn:btih:24EF4E77C7F402B46232B9EC5F8AE8BBADE9FBB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Process Hacker - мощная и достаточно функциональна
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ VA - Союз шансон №2 (2011) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:9A3DAC01DA79F24FB15A49E76B3A291F33264830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9961D5B03A1E0B6FC91F3401B835E54A37CF13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ SOM - Morning Trip (2011)
 ```bash
 magnet:?xt=urn:btih:94609FC56BA397B7473E59310F9E0A871B10F475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Aum Orchestra - Yoga Healing (2005) [MP3|256 kbps]<Relax, Healing>
 ```bash
 magnet:?xt=urn:btih:10E75AA982E6DAD4E7EF142BB01192B7C60E9E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B03BAB6DB69956953B23E82DB629576EEA657936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ A. Коротеев | Пилотируемая экспедиция на Мар�
 ```bash
 magnet:?xt=urn:btih:80D133456C6A4F3FB2BAB87AD5EB5E6E6027BD8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7042E35B9645F85962DD48B413C867C2D4630B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ Gino D'Auri - Flamenco Mystico (1992) [MP3|320 kbps]<New Flamenco, New age>
 ```bash
 magnet:?xt=urn:btih:BBB9C3A02AE53E9B701D1E3BCC67AEB095E77684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA81FFB86225BCD25529D188C2BE67A453CB5E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

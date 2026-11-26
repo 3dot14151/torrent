@@ -21,8 +21,7 @@ VA - Летний Заводной Музон 9 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A2DD0F3D2C6D7A72B23418ED97403E9F74EBBB78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Dan Patlansky - Introvertigo (2016) [FLAC|Lossless|tracks + .cue] <Modern Electr
 ```bash
 magnet:?xt=urn:btih:990FAD046DD45D0B77FDA7DC839DF7EB10EC5B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - DJ Club Charts (2016.2) (2016) [MP3|251~278 Kbps] <House, Progressive>
 ```bash
 magnet:?xt=urn:btih:BC3F1EB8754553C09B228F8B269FEC2D38990794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Ultimate Vocal Trance Anthems (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:6A30BC9661DD9C193D0535F1B88E9CA003F33390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Хитовые Летние Песни 8 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C3FBCA7A7DF56C1CABD996D92BDDA5BFE0C055EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C82C043D7E4FDAC041D77C8335EF20B313D4432A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:8FA12BAC9945BCE6DF496433B9B20D2A3FCF5B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2DC0E00D49E783587703FCAAA702ED329BC9C53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ VA - Ultimate Workout Music - Trance Hits (2016) [MP3|320 Kbps] <Trance,  Progre
 ```bash
 magnet:?xt=urn:btih:A66FDBCD9CA6FA968258B9986C22957731B173C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76C70355A3A154D1AC069634DB81641A290E8AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E4FCFCE5A18E8593103788681FE54C944746664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:2116AAB2BF43C1DC03EFC22A663B8CCDAAA7DBD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Harvey Mandel - Cristo Redentor (1968) Remastered 2003, Raven Records [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:AD731A613A33FEB469F3A8CC2FBB0713FEC38B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ VA - Discofox Club Megamix (2016) [MP3|255-279 Kbps] <Disco, Pop, Schlager>
 ```bash
 magnet:?xt=urn:btih:F79D9364992E09C416994276E4FAB0DD82231A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Blood Red Throne - Union Of Flesh And Machine (2016) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:0301CAFDC5864B1D70540678FFAE6E64A12F9B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ VA - Uplifting Trance Classics Vol. 2 (2016) [FLAC|Lossless|tracks] <Uplifting T
 ```bash
 magnet:?xt=urn:btih:168205B4940BC5308ECEE438E69C2E2D8EEFDA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8832E4603736379EF42442173ADA3414037C9953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ B.J. Thomas - 20 Greatest Hits (1983) Compilation, 1990, FST Records [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:5A2854FA30EE3E8287B97D2FE0B00114B8CE1878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91FA415399FFC7379F855166A4CF2892C275D29F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ VA - Summer Relax (2016) [MP3|320 Kbps] <Relax, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:86D3A29D8C10026159A0ACEA7C862725CAFF47CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ VA - Мега хиты хорошего настроения. Версия 3 (20
 ```bash
 magnet:?xt=urn:btih:DACDD2C2CEA62066133A7567D4380B4B6495D80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2653E331AFCBD77A4ACE25426DB422C1A6769918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C73201F91926ED4F73400673C98E5BD1E05DCFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32B52D4E21F5C4B0B4D1F6983B2B4026AAE23BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ A4 Джамбалая(   Читать дальше...   )Жанр: Pop, FolkПр
 ```bash
 magnet:?xt=urn:btih:58C066592730F242B641B27E1AC2BE9C1287FB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ VA - Душевный сборник Шансона (2016) [MP3|256 Kbps] <Ша�
 ```bash
 magnet:?xt=urn:btih:A9A113DF69EDD8652161EA3F5979E7612E40C9E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

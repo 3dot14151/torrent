@@ -19,8 +19,7 @@ Legacy of Kain: Ascendance - динамичный и требовательны�
 ```bash
 magnet:?xt=urn:btih:88A18E15712A1CEA67E507BC89D8498D38272680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crown of Greed (2026) [Ru/Multi] (1.0.0f5/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1DBD53B59B1140C4578C0D54803A4C0CEEC43713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Whispers of the Eyeless (2025) [Ru/Multi] (1.0.3.4) License GOG
 ```bash
 magnet:?xt=urn:btih:C2FA703C982F43F16C80001F77EA3E8FA4B54E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Legacy of Kain: Ascendance - динамичный и требовательны�
 ```bash
 magnet:?xt=urn:btih:83C464B9F4C80FBEE992F75B39B7D2574714DDE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Aether & Iron (2026) [Ru/Multi] (1.0.159/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A718D93D2326FC3501C4F7FEC83BBEB0AC86D0A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 ```bash
 magnet:?xt=urn:btih:232478F69FFD16E5B94F31E1C78EA4EE33F83941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Truck Mechanic: Dangerous Paths – это проработанный до ме�
 ```bash
 magnet:?xt=urn:btih:D1559DAC58686445CBB997869CFA21103FE6848B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326) Repack dixen18 
 ```bash
 magnet:?xt=urn:btih:6F30DDE009AB3323DC508A450FB0C576D3D4CF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Temtem: Swarm объединяет азарт игр в жанре survivor и �
 ```bash
 magnet:?xt=urn:btih:952D676B628F306B55FB6759E0E71CE4A18426F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Darwin's Paradox (2026) [Ru/Multi] (1.0.1.24747) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:014CC9B98E2329ABFD61B76E7833115E7198D382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Ukrainian Warfare: Gostomel Heroes (2026) [Ru/Multi] (1.1.508.2) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:D71C1A9D0B705AC37352B96F23BE51EA87A6258D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

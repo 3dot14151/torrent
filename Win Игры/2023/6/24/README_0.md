@@ -19,8 +19,7 @@ A Game of Thrones: The Board Game - Digital Edition – цифровая ада�
 ```bash
 magnet:?xt=urn:btih:2996BFA9A5FC7EA61B13020B5029187420C19C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trepang2, сумасшедший кровавый шутер от первого
 ```bash
 magnet:?xt=urn:btih:C0C64DE07AB6E53EAA2106FE3423A6629B15B5A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Yakuza 4 Remastered (2021) [Multi] (1.003a) License GOG
 ```bash
 magnet:?xt=urn:btih:44C681C14B025CA8DC68F776DB0C9849EB907C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Yakuza 3 Remastered – это обновленная игра, ставшая �
 ```bash
 magnet:?xt=urn:btih:4ABDC2D3B16CD52D6F96EA6635CC0362DEC49454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Yakuza Kiwami 2 (2019) [Multi] (1.004a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:253EF4DF246D0942B5B4D0589BDFCA10D7FA5219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Forgotten Fields представляет собой инди-приключен
 ```bash
 magnet:?xt=urn:btih:15CA3C8ACAF864807D8310986CFCE8F509E2C398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Yakuza 5 Remastered (2021) [Multi] (1.006a) License GOG
 ```bash
 magnet:?xt=urn:btih:99C01D346FC057D60C1E02BB513A8937CC13D959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Unwording - это не просто набор головоломок, а на�
 ```bash
 magnet:?xt=urn:btih:669D81347DD9BCA8325B29D25E01CF31206C44C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

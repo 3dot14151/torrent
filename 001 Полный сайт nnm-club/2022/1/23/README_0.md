@@ -21,8 +21,7 @@ VA - Beautiful Vocal Trance, ch. 7 (2022) [AAC|~326 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:BC15772E977FF84B0D500B3768A5123AAA943B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Beautiful Vocal Trance, ch. 1 (2017) [AAC|~338 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:52D131820A0E393189C6EF8DEA7E7CBF999BDE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Stygian Dark - Gorelords Of War (2021) [FLAC|Lossless|image + .cue] <Old School 
 ```bash
 magnet:?xt=urn:btih:B76F80DD4FC67BB6AE2E38A109D4A9EC6B41C797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ PDF to Pages Converter 6.2.1 fix [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0DCFD026DF387063143306CB447C340EE7CEEDB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C6630DAE1B69777F54D0595CFCF02EACA87B089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Mercury Gates - Carpathos Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:A510CFB03D85B1044F11FF32B08D66669F932850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ PDF to Numbers Converter 6.2.1 fix [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E7E1D73A0B874D6B75F3BDA7C53652684058E213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ PDF Converter Master, мощный, легкий в использовании. 
 ```bash
 magnet:?xt=urn:btih:ED2A5360D9989EC8920BEE27C3FF0137151B76E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79CAAA921A686F9972347F8212D3182AC90F1F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ PDF-файл может быть очень большим, если он сод
 ```bash
 magnet:?xt=urn:btih:7034FFA3A2E5196074CAB05AB1AC81B3F73FC987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF875503F621CC51D041ABFC346DC0CCA5C9DE3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Planeswalker - Tales Of Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:8CA521C2935D457B8A1050BCB26552BE20EC4069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D60C6B5478ED668DD5CE404822815F430FB0430F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EB88F4988B79D4F3A5D6B91865EB296C3FBE420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ VideoSolo DVD Copy — это быстрое и простое в использ
 ```bash
 magnet:?xt=urn:btih:24DA63644F8BE575CC7949D5F784CD22A4F1F951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ VideoSolo Video Cutter 1.0.8 [En]
 ```bash
 magnet:?xt=urn:btih:FB3461B8049C3E6BF8B8B95777D7CB11C1635211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ D'Sound - 25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Soul, Funk>
 ```bash
 magnet:?xt=urn:btih:EFD27E51E7C485F463312268D9DF0435790D6494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Image Exif Editor был разработан, чтобы представить
 ```bash
 magnet:?xt=urn:btih:A6AF3B13BAEA6B088E9A828791EFD0C44B71DD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ The Sherlocks - World I Understand (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie R
 ```bash
 magnet:?xt=urn:btih:61CD3F6366D473F88F89392D4FF17142D094C5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ Ally - With You In The Room (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:D8B026FFDF37CB116D756E38AE13F2CDABB43FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93D06117240DD0EF68C9544DFF18D17F4FA0686A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ PhotoSweeper — отличный способ поиска дубликатов
 ```bash
 magnet:?xt=urn:btih:799A1F17085D53366B4E1653A80CD45A9CB33AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ VA - Beautiful Vocal Trance, ch. 6 (2022) [AAC|~332 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:40D924EC491C5C614F1BDF2410D6C292B2DFE65F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4040872348DA4DD5163AF48AE28DB31017C810D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD338D593D0C690147CD36F3FD4CB8958EF4687D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A384D85BFBB44D933A614D05F0F2AB467FA5E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

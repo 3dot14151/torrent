@@ -21,8 +21,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:7012E18C96F6C3097EFDA36717B585EAFC791D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:1D428D8175EAB5CE6F5E1C8498FCCA1866E16A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:602AFF1CBB8D025DBA78236CA47F7D0AE742118B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Roland - VS SYSTEM-1 1.1.0 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:5926CB1C72D1B81D121ABCEA4E1E2BBC57924ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ MX5 развивает заложенную предшественником к�
 ```bash
 magnet:?xt=urn:btih:C4D4DE80AE1A8BA45E465DE83288630EB98DE9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Ism - Micronui (2018) Organik Audio [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:EF5B000A9FD354F3F548497DFA36A79D261F0BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Doro - Backstage To Heaven (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CC149B3F7F99E6DBBFB371107DF9AD1564CB6B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ A-Zippr - небольшая, довольно простая, быстрая и
 ```bash
 magnet:?xt=urn:btih:0D0431018D05E0207ACB7FFFAF1989A5CF1B3767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:777D483654816DC9084A008BD28036D0F65155C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Roland - VS PROMARS 1.0.9 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:34EE3570A1DACCA9AA6600A30C96468CC666FC05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Subskan - Discography 10 Releases  (2002-2018) Ambivalence, Hymen Records [FLAC|
 ```bash
 magnet:?xt=urn:btih:B39576EF87103C69C675C43483E5C2714C07EE42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AD30FCDB351C1866CD5C2A39D572863A93F0DBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCA2E73BD5A40B7873C597E0C2943E0198FD324B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ VA - Sing A New Song (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Soul>
 ```bash
 magnet:?xt=urn:btih:4AAA32A3BA5695F0428B6A7E577C4CC510974217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ BluffTitler - программа для создания красивых тек
 ```bash
 magnet:?xt=urn:btih:B69FE2993F4E84643568B6799D13FC20F1E1B883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ VA - ЕвроХит Топ 40 Europa Plus 08.03.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F6D024F7F9A08459F2C189AE4B5F23B9AD0005EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:CBD6A7F12DDEA3D930E4338BB9B89E697CD10A29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ State of Euphoria (с англ. — «Состояние эйфории») -
 ```bash
 magnet:?xt=urn:btih:7177CD95E9535B6F62C8903B318EBE2E7E331D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ VA - Trap Pro V.02 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Trap, Future Bass
 ```bash
 magnet:?xt=urn:btih:329D0F95D7CC1D29AE5CFDF8FACAF4FEAF88EDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ VA - Громкие новинки месяца Vol.26 (2019) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:FBFB187D8650B3816DD11FEDD3C22CDE33F342FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ Roland - VS SH-2 1.1.1 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:729C14182B6E452D94327089974CB9840ECAF194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BF26A31BEA8869CA2CA48BD28678C3A998257AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Pathology - Throne of Reign (2014) [WavPack|Lossless|image + .cue] <Brutal Death
 ```bash
 magnet:?xt=urn:btih:84AA82518E3E7E139FEA8F7140F52A125DD29A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ VA - Get Physical (2019) [MP3|320 Kbps] <Drum And Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:4CED9EAF257B0C6A0B91C848A339270A93CE9C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ Roland - VS SYSTEM-8 1.3.1 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:A46A47DE7D0D891181E11FB6E9DECBD534D6158A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ABCFCABA3C2442035A7083670E83F97A7BC4493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

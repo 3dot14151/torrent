@@ -19,8 +19,7 @@ Ethereum — окно в мир всемирных децентрализова�
 ```bash
 magnet:?xt=urn:btih:42C7B970DAA0F3DBC427DFE35DC8433C0A172C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

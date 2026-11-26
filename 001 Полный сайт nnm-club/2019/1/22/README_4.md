@@ -22,8 +22,7 @@ Pillorian - Obsidian Arc (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:87612653CF798475D4FFD38B0A0023C69860A648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Panikos - Eclipse I (1998) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:BAB9861278E966B440F4386BF1EDFDD484604E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Watch Them Die - Bastard Son (2005) [APE|Lossless|image + .cue] <Thrash Death Me
 ```bash
 magnet:?xt=urn:btih:55FE8D91E02672A32F2DCCEB16FFD89239CD8078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Enchained Souls - In Memoriam (2010) [FLAC|Lossless|image + .cue] <Symphonic Met
 ```bash
 magnet:?xt=urn:btih:3F5BCFE0160C0710F99DABFC330E778616D75EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Zaphyria - Hate and War (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:553F6DDC39418249FC156576DBF5D4E2AE1F5A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ MarsEdit 4 v4.2.6 [En]
 ```bash
 magnet:?xt=urn:btih:60B900E352837B76E5C3580743D90BE3AC9B901C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ CD2 - 01:01:01
 ```bash
 magnet:?xt=urn:btih:FAD58F3B2D56D8883D707D2BE1C5AF68523B8321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ VA - Abstract Vibes 2 - More Vibes (1997) [FLAC|Lossless|tracks + .cue] <Downtem
 ```bash
 magnet:?xt=urn:btih:B5CD5FB990E2193F6701F8C54F14F0653AAEAC19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:D545C53983D62F142B0E00E33B1A9322D7C62CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ GraphicConverter 10 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:7AB9EEF2807E3CE93992E3C063A51FE1CAF73900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Obscura - Akroasis (2016) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:D2AE1D8EE65ACD7DB0A04A8FD011D792D2A266BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Scrutiny проверит ваши изображения, ваши внутре
 ```bash
 magnet:?xt=urn:btih:EFF0E167FD2C7C5610FC92C5832C34BB4FAAB6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ VA - D.MAX Recordings: Best of 2018 (Mixed by Bryan Summerville & Dave Cold) (20
 ```bash
 magnet:?xt=urn:btih:A634EA4CB3E502AB105588DFA7C204EE26F6A261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C6B834972DF87CCDA0DB9C869F03A61EB1E4A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Emiliana Torrini - Love in the Time of Science (1999) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:D146DC7E5474AB00A234E5FF344EB36515DF0B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA57913D955B7D1FDE790778882D621A120F4A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Dave Thomas Junior - Echo (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:9F7FEB72B2B698B86934D09589D4174B26656304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ VA - Winter Sun 01 (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:0A9E7A3E5BC907B47290AF32A89D8BC19F6EDE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Ben Wa - Disciples Of Retro-Tech (2001) [FLAC|Lossless|tracks + .cue] <Electro, 
 ```bash
 magnet:?xt=urn:btih:F0194179505E51BB9176094BE07F9C3C13712C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A44432495BE8AE7D90626DC8E95B8F61DD63F1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ Milica Pavlovic - Zauvek (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:330DE547F7C1A758DB266F18199EC3ACB2A55DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ MRUKS - Enchantment (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Ret
 ```bash
 magnet:?xt=urn:btih:4C2554465710DD6CE3DDDA16ACC85A443BDADB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ SILKYPIX Developer Studio Pro — мощная программа, котора�
 ```bash
 magnet:?xt=urn:btih:3DE0AE4F426436AD48A92309A601B9978C9E6F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ Helevorn - Aamamata (2019) [MP3|320 Kbps] <Gothic Metal, Doom>
 ```bash
 magnet:?xt=urn:btih:91E0CFDC221B01192055767B484162AEBE958B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ Living Legends 7: Fallen Sky (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:3BAC98D43E43D628F7D323DA07C72E31EFB5B34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ Swift Publisher - это пакет графических утилит для m
 ```bash
 magnet:?xt=urn:btih:23055B0713F78C5D5760E0B1F8AF6E0B6E9DC4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Stephan Moccio - Color (2010) [FLAC|Lossless]<Instrumental, Neoclassical, Piano>
 ```bash
 magnet:?xt=urn:btih:910BB8BB6BFFE5687D235651819F4292BD38FAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95B3DF519A70F67F99320D9EE8669A974DDD343B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ DevilDriver - Winter Kills (2013) [FLAC|Lossless]<Death/Groove Metal>
 ```bash
 magnet:?xt=urn:btih:E2A00CE6B03B8F746F239F2A814D317B08A16ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ An elderly couple fight against local authorities in rural New Brunswick to buil
 ```bash
 magnet:?xt=urn:btih:6ED05982329497F2041649DAF9A9F337A25813B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ MediaCoder является универсальным программным м
 ```bash
 magnet:?xt=urn:btih:B4139B9700D1AD6C5660D7DC8DAC4A61B9A21F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Ashampoo Music Studio 4 - всё-в-одном для создания, реда
 ```bash
 magnet:?xt=urn:btih:41CD3ABBAC6893823EF36708C42C08D6424B99BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Ashampoo Music Studio - полноценный пакет для работы с
 ```bash
 magnet:?xt=urn:btih:50B68F1487C7BCB2B7C062AA10D29A1A5A3B7D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Chillout Masterpieces (High Quality Collection of 33 Balearic Cafe Lounge P
 ```bash
 magnet:?xt=urn:btih:D330C0BDD512D46767C098B12B1AF64C06A32417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B244744385BDAA08C81C6D0C96FB46614B30B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Ashampoo Music Studio 4 - всё-в-одном для создания, реда
 ```bash
 magnet:?xt=urn:btih:C23B34D3F11D36B069A08FE84135DDB7A432133A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ The Devil's Blood - III: Tabula Rasa Or Death And The Seven Pillars (2013) [FLAC
 ```bash
 magnet:?xt=urn:btih:D523BB191C897BC9403F04C321EB2566691C6658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC13B969B1A5C6E594EAEECABC27E9FD17E6C01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ End.user - Retox (2013) [FLAC|Lossless|WEB-DL]<Breakcore, Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F64C194686F05DC1314739A54647BB957E1C5965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:152650E59B0FFF8A1E38F61337662D8477BBC17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16F995596F38408754BA754174AF8772948F0BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0811C52A0508155F938A4151F16B8F7D0D180293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ VA - Хороший вечер с Радио Шансон Vol.8 (2013) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:75088958E9D4FF5AE22ABA5FE7435EDE6716ACC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C27196AF838C270FE9D1EC7713978FC75F0184F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ VA - Jazz Only Pt.1 (2013) [MP3|320 кб/с]<Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:AB6E4B8AB0FC42413F18D9AB46BFE19585B2CC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:244EBB55560E49DB9A24C9FF3E306AD8783FAD8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31C3B4854FD2BB8EA96B1F7AA2DE09E9D883ED23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ Ashampoo Music Studio 4 - всё-в-одном для создания, реда
 ```bash
 magnet:?xt=urn:btih:353A87A5D1A0152E85B48ED717B70E855CD87075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6805A0A3DF704CF415A48B273AD0C9389D2B14BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA0744B0BB44A9217E6EB4F724EAF8BE510D8346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

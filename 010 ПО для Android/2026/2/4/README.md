@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5D4EE53C2DD99D8DE243E5ABB921C1B7C747BC15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Exo Player - Видеоплеер и IPTV v2.1.4 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2CB7223A1B86C2E1C53E2B92B2ED8E8361801996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ SD Card Test Pro v3.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B72B905E90116987953B77709A5896085065348A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C344E633A863C8ADFA1C0C437E0D8852504FEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Win 11 Launcher Pro v5.1 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AF26AAE32A3C6F8DEC23A8FBD5A1FBFF762D30CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:F98A27DB0A4624659617084BC332E8A00501280E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3E016467AFCBF038A349271ED40BD48EE93B14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

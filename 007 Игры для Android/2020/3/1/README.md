@@ -19,8 +19,7 @@ CaRRage — это увлекательный аркадный рейсинг н
 ```bash
 magnet:?xt=urn:btih:DF5CB09559F41D497C10AE805CBE020643C6F4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stardew Valley – ролевая игра на андроид, где вы бу
 ```bash
 magnet:?xt=urn:btih:A188C7A572D6E3D266FF855DB8065F5A413F6C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

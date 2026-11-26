@@ -23,8 +23,7 @@ Data Rebel - Illusions Of Reality (2013) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Do
 ```bash
 magnet:?xt=urn:btih:256B3595171FEB4D41C9F75F1145EEF33658C54C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Phil Woods - At The Montreux Jazz Festival (1998) [APE|Lossless]<Jazz, Bop, Main
 ```bash
 magnet:?xt=urn:btih:59E87131C13ACAE71CF54A056394E3038EBE31D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8647CD112EEF824916F946E01D450E8A00E7CD3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36B224E3BFAC037EAE122EE88B3688BB317CFBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF871F0FD0DE195F67756C71DF3A2E248F6F0B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Oil 10 - Modularium (2014) [FLAC|Lossless]<Ambient, IDM, Berlin School, Electro,
 ```bash
 magnet:?xt=urn:btih:34CB2A7CAF776944B19A0AFBD55DC015A19CC822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BB7676E6E52D8FD979149A172CC95C753E0C76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ r.roo - a little story about (2015) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Glitch,
 ```bash
 magnet:?xt=urn:btih:0DDB6515678EF444B0BFAD575586027139B101A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Gary Burton Quartet - Very Touchy (2015) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:9A0929D8B8C116790F2577638C0E10FEC2BD7501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Stan Getz - Body And Soul (2000) [FLAC|Lossless]<Jazz, West Coast Jazz, Cool>
 ```bash
 magnet:?xt=urn:btih:76A692B0179414BFF8DA5724DE9C5DC77A4ABCA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6741259D9CD05378425FC8E6DCEC0D600241BDCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A937EF9425DDEF52830B5EA183A00FB47C9DECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:111211C22C26BCE96685509C63F81A92FBB1B0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Phace - Shape The Random (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:4E4148E7486B12D70954933B0C3F80E91D40417C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Will Matla - New Orleans (2015) [MP3|320 кб/с]<Modern Electric Blues>
 ```bash
 magnet:?xt=urn:btih:B80BCE0B5C2FCA9FB23007B79EB55CD6745FC4E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8B152518CE3C4E6554E4124FB1B8614FDB1A65B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ VA - Penduloom Waves (2012) [FLAC|Lossless]<Psychill, Downtempo, Ambient, Progre
 ```bash
 magnet:?xt=urn:btih:4B29C1FCC0661487FCBF2F8A6D823527923C63E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:7EA334C7A02AAE9A5B6E25345135A77BCA8F353A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Markus Schulz & Global DJ Broadcast - Special guests Cosmic Gate (2015) [MP3|320
 ```bash
 magnet:?xt=urn:btih:156898D2425AB42C19961FC78B346C55DE9A18B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F94BC18EC07FC94D1E793B06660CF7D08FCA422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:369E8FF83E409C8503EBB2B6CA67520CCED2CC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ Whyzdom - Symphony for a Hopeless God (2015) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:602854B2B784238B9A6D1324BC3520599364544A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D319F49E43D4528F50B8E98A90A143B4EB547096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ VA - Sexy Trance #82 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:889E6C4584E1CAE09533B81893DAA5BF599BD1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ Breakdowns At Tiffany's - Constants (2014) [MP3|320 кб/с]<Metalcore / Post-Ha
 ```bash
 magnet:?xt=urn:btih:F5C30AA8771DAF24A2E7B1E06D32C01806D93493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

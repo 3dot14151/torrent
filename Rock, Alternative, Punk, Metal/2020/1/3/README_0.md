@@ -22,8 +22,7 @@ Deliver The Galaxy - The Journey (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 ```bash
 magnet:?xt=urn:btih:E9EF4EA5A347DD2D040854AAD1903F6893C7FF95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

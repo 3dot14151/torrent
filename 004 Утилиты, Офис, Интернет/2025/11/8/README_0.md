@@ -19,8 +19,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:3129E31E7FC74B967A33C23C335B4B1DECBA4C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:8172E8C735759662D3B34D26D6F6E7A2EBA45B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:6B5E80D43D095D7509931DEEDDED52A7292179E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:02CA5DDFD62F1AA52E7445A4DA26EE7A294184C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wise Program Uninstaller 3.2.7.271 RePack (& portable) by elchupacabra [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:6036C849853FECE20CB7A47E1548E4333F0B31B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:B2FB350CD2EEEEAFB1C4408B53CCD6A698BDF73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

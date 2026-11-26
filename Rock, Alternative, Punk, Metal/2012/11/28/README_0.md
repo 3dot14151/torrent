@@ -28,8 +28,7 @@ Light Among Shadows - Welcome... Back! (2012) [MP3|320 кб/с]<Melodic Heavy Me
 ```bash
 magnet:?xt=urn:btih:7AC6DB34EA14D529CD68730E9AF2D2DDBCC7C7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Scar For Life - 3 Minute Silence (2012) [MP3|320 кб/с]<Melodic/Groove/Power M
 ```bash
 magnet:?xt=urn:btih:93D77E416627CB28691670077620E41B60C89E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Rise To Fall - Defying The Gods (Japanese Edition) (2012) [FLAC|Lossless]<Melodi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Godspeed You! Black Emperor - 'Allelujah! Don't Bend! Ascend! (2012) [FLAC|Lossl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Mandragora Scream - Luciferland (2012) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:70F1D5471A5334D9077FC3020B432F4A77B7283D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Nazareth - The Singles(2CD) (2012) [MP3|320 кб/с]<Hard Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:6E16D060C0A70CE6803693E8A52EBBC8482C563A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Bon Jovi - Cross Road (1994) Deluxe Sound & Vision, 2CD /2005, Mercury/ [FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

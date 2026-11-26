@@ -19,8 +19,7 @@ Last Day on Earth: Survival v1.31.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:0A43D035880EE421763A346AC98CDF43D26816CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Homo Machina - это игра-головоломка, вдохновленна�
 ```bash
 magnet:?xt=urn:btih:614C12F63733BE7470DCE660181AA65374675E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Castlevania: SotN v1.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:AC5189506378C29E8A822B4F9438716A9552D23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Grinch 1.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:65153C019EAE22EE4AFE887D51DFFD2B13E8AE53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Universe for Sale — приключение в густых облаках Юп
 ```bash
 magnet:?xt=urn:btih:03DFC1D31EC08D7134DB5F0418478FD05055D8F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Not Another Weekend v1.12 [En]
 ```bash
 magnet:?xt=urn:btih:B81B6C6A31077C8DF5E3455173AA420C5CEA09D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

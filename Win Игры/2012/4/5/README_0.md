@@ -21,8 +21,7 @@ Anomaly: Warzone Earth — необычная смесь экшена и стр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Warp [Ru/En] (RePack) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B814937AC71AD22CC14D8B876EF95A3E1BCBB62E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ F1 Challenge 99-02  F1 SMT 2012[Ru] (P/Mod) 2003/2012
 ```bash
 magnet:?xt=urn:btih:AE5D837B2258057133C1A537CF9062EC63EAA004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Warp [Ru] (RePack) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:F41D6426F165EB4DBB2915E5B027C25DB210CD9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Flux Family Secrets: The Rabbit Hole / Секреты семьи Флакс 2. �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Legends of Atlantis: Exodus (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:AD524E05600F1F0FE161295F8CF20BB7DF39633F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Go-Go Gourmet: Chef of the Year / Пальчики оближешь. Шеф-по
 ```bash
 magnet:?xt=urn:btih:2D2D789910954311345AC14177EFC0654591C34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Shannon Tweeds: Attack of the Groupies (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:66220782226DDBC75B36B39BD3D6CA71203914E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

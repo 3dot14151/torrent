@@ -27,8 +27,7 @@ Bryan Ferry - The Bride Stripped Bare (1978) Remastered /2007, EMI Music Japan I
 ```bash
 magnet:?xt=urn:btih:43BA70E0F5E972D4A87884EC902465DD9C919AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Stormwarrior - Thunder & Steele (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:438E4548F8F07EFC054B377440E037C655050022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Rogier van Gaal - Spiritual Diversity (2006) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:49D7ED895600326110AFDDE674139C3CA98D9665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B6B9A22B96A8B106F3D554D5ECFBCBF8BC76752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ VA - For Nihon (2011) [FLAC|Lossless|WEB-DL]<Modern Classical, Ambient>
 ```bash
 magnet:?xt=urn:btih:A5CD7F862E3B8C1AD3039F3A33264BDAF3E0D1CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Tomasz Stanko Quintet - Dark Eyes (2009) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:BAF9C4EE6CF41E318B1F9225CAD6F90EA7E1852C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D5D896780FBBA50C1353720D8FADB4953E3CE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01B552686A971AE76D55A0EC64A1FEE32F723D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD2FCF0F689EF6E7B062E04759B4C3333DA1BBD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A56E205ED0047C9B5FCCFC5845A32AA3FDC63AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ Smokestack Lightnin' - Off The Wall (1969) Reissue /2008, First Of May US/ [FLAC
 ```bash
 magnet:?xt=urn:btih:0065523A500FB803ACA93B3B7D6DB62C97EF2991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A74130B75C43F1F8FD046DE002D5C7F4F66855F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ UltimateZip - архиватор, внешне похожий на популя�
 ```bash
 magnet:?xt=urn:btih:CFD0F4F8E4CDA0AD5587185B89598DB9B235C7EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACF872479E6D789DA0263DBA9874108C72921C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C0683724ECB4EA22F025012DB288CFE0257B6A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BFE5297A1666C79D8B0E573E8C3AFE998F46232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A2881F6A5AF9B25E4392FC37F4B8E886F66BDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +503,7 @@ Alain Caron (bass)(   Читать дальше...   )Жанр: Jazz-FusionПр�
 ```bash
 magnet:?xt=urn:btih:E0FF4FD1F759D37D53D49C45433A767528776D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +535,7 @@ B2.d  QuestionЖанр: Jazz Rock/Prog RockПродолжительность: 0
 ```bash
 magnet:?xt=urn:btih:941FC37AC9662C31FF9B8ABC40E6A19C9D90F4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +560,7 @@ NFOPad - маленький, гибкий и простой текстовый �
 ```bash
 magnet:?xt=urn:btih:F2F633A87007BBC8DD383941B0FE8FA6BE668BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AF10BCE4E8ABC9527FEA4216BE98952F733BC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +619,7 @@ VA - Ministry of Sound: Maximum Bass Nitro (2013) [MP3|256 кб/с]<Hip Hop, Clu
 ```bash
 magnet:?xt=urn:btih:279A4E8A4452E5CBBA0960D3099D0BC661F8F271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5729919A8ABCD096FD7863E692E8A105601AC5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +677,7 @@ Otis Waygood - Ten Light Claps And A Scream (1971) Reissue /2009, Shadoks Music 
 ```bash
 magnet:?xt=urn:btih:2CAB99BACFD8AA3BFD662F6CC62FC5FF740B0BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +711,7 @@ Jeff Ballard - Time's Tales (2013) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:F69E2BD2C918D9D44AF201B2803087A896C224A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ Disc One01. Air - Cherry Blossom Girl (Radio Mix) 		(03:40)
 ```bash
 magnet:?xt=urn:btih:B095A85A92CB4C5600F7067DB7082A544E304C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

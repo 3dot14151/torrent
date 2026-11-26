@@ -21,8 +21,7 @@ Adventure Park (2013) [Ru/Multi] (1.02) License PROPHET
 ```bash
 magnet:?xt=urn:btih:7055E04627723F1F61EDD5EFD7F22E4B4FBB7C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dark Raid - это олдскульный шутер от первого лиц�
 ```bash
 magnet:?xt=urn:btih:708AF758C1502A972BCBD1A185751DCAE3155667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Euro Truck Simulator - игра, которая стала классикой ж
 ```bash
 magnet:?xt=urn:btih:09531F72B86E6FE51AF118DE0EB9D9A31DAFB600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Lord Of The Rings: Conquest / Властелин Колец: Противост�
 ```bash
 magnet:?xt=urn:btih:6B006889FE42EFC1D44EDC1BE384D1ED239703EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Legends of Persia – яркая и независимая ролевая игр
 ```bash
 magnet:?xt=urn:btih:0D43F8DF726CAEFA7D20C5B3DA9C3412B96AE6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

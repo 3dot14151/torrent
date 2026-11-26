@@ -20,8 +20,7 @@ Tropico 4 расширяет геймплей предыдущей игры но
 ```bash
 magnet:?xt=urn:btih:4549CF5A218BAFD11410C3717735FE8762349CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Elder Scrolls V: Skyrim (2011) [Ru/En] (1.8.151.0.7) SteamRip R.G. Origins
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

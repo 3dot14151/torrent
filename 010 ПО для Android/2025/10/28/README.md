@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:52BB1C31189EB37600F06AFBB5C5F369FFB238FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ HiPER Calc Pro v11.2.8 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:00A8CCA131B3CDD35A0BB153C6CB796950348D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:3528C91AB350F16272FDA486FF42DA731C23D4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ SoundHound — ваше лучшее музыкальное приложение
 ```bash
 magnet:?xt=urn:btih:92293474BB36BE1070FF1E1B3FFB3E23EB86E15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ TapScanner — сканер документов, это простой скан
 ```bash
 magnet:?xt=urn:btih:4257C08260B979F9F8E179D89688B5A26DD24E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ FBReader Premium v3.8.20 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D90A68C9185501F1A408E360BE9A52900F4D96D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

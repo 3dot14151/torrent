@@ -19,8 +19,7 @@ Catan - Die Erste Insel / Колонизаторы [Ru] (P) 2005
 ```bash
 magnet:?xt=urn:btih:D2802CCA05864F246E52D84F7D7E5209212D0E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

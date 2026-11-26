@@ -19,8 +19,7 @@ Suicide Guy - игра от первого лица в жанре "action-puzzle
 ```bash
 magnet:?xt=urn:btih:DE3931654EC40755E713E4735A985BA3E0B8E66A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Suicide Guy Deluxe Edition – это приключенческий экшен 
 ```bash
 magnet:?xt=urn:btih:6BD859C67D5A42A75E01284833E3E348083CEBD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Suicide Guy Sleepin Deeply – популярная приключенческа
 ```bash
 magnet:?xt=urn:btih:7A189DB9B41DE5F8F8BB86E38D8B594A760514DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Lost Dreams – это новая глава из серии игр Suicide 
 ```bash
 magnet:?xt=urn:btih:5BB31AFC1CADEFF91C42248DCA83FE33D410C9BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D3B2122888DBD45CE7B6928B9F087CCC63F46F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Betrayer рассказывает историю героя, оказавшег�
 ```bash
 magnet:?xt=urn:btih:92A2CF2FB0D9525D1A6D50AF012F40D37E3E0A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead Rising (2016) [Ru/En] (1.0.0.1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C44758E1C86C9159988865A42FC59AF982D4B9D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ STAR OCEAN - THE LAST HOPE - 4K & Full HD Remaster (2017) [Multi] (1.0) License 
 ```bash
 magnet:?xt=urn:btih:4A6AD85E6DBBC12240630B4EDE1BB1A867468F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

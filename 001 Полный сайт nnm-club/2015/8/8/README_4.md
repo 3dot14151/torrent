@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EB35064D258B08B2EF7DAF8B2B90CF17658C9558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DA50D537B0D5446BA57122DD1297ED773A62CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Novicorp Remove Windows 10 Spying Features 1.1.0000 Portable [En]
 ```bash
 magnet:?xt=urn:btih:7279AD49976096E93268242BA1C7A1DAC3069E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Linux Mint — дистрибутив операционной системы Li
 ```bash
 magnet:?xt=urn:btih:CF50F54720C0D328737EA1C98F602B27180C23E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Cradle — научно-фантастический квест с видом о
 ```bash
 magnet:?xt=urn:btih:D6C423D6A3B826753DD7E18732B098C03F076D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ DAEMON Tools Ultra — это самая мощная, функциональн�
 ```bash
 magnet:?xt=urn:btih:026F7320091B59EBBA28050BAB1AA1B8D0557976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Ubuntu 14.04.3 LTS Trusty Tahr [i386, amd64] 2xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:D7846A4296DCCD84C541AC5634CA0C2A85CE0051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Microsoft Windows 10 Pro - Оригинальные образы от Microsoft 
 ```bash
 magnet:?xt=urn:btih:474CF5E1CB2D97D9C723A826AFA6121119E720DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C2F13B3467659C031315EA2A056883704CD16B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Destroy Windows 10 Spying 1.4.3 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2F22ABEEF73F44565280D5FD4E425A7962A54C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95D48FDD8370FD4569380A251600B6A65F21D8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

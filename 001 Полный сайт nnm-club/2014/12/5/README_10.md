@@ -23,8 +23,7 @@ Anopheli - A Hunger Rarely Sated (2014) [MP3|320 кб/с]<Neocrust, Dark Hardcor
 ```bash
 magnet:?xt=urn:btih:2F6EF0D587B4ADDAAB0AC94A1999CC8BEE67868F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Polarbjorn - Polarbjorn (2014) [MP3|320 кб/с]<Neocrust, Dark Hardcore, Post M
 ```bash
 magnet:?xt=urn:btih:8D69DE4E2E206E3E0630038980C0229C629D533F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Parusia - Y Su Noche No Tendra Fin (2014) [MP3|320 кб/с]<Neocrust, Dark Hardc
 ```bash
 magnet:?xt=urn:btih:0BA2B0D1A7A17F322CE12352EFED26CC8FFFC3A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D7D78ADE5D078CDB7AF3ECB3802506DFD7ACA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ EPs:
 ```bash
 magnet:?xt=urn:btih:80463686261B617C65D5E5A56870BC8AC9AE8833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F6B13144B606D6986C12482D6BFA3AD43B1A2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ Kouzin Bedlam - Longing for the Incomplete (2014) [MP3|320 кб/с]<Heavy/Power/
 ```bash
 magnet:?xt=urn:btih:F39E5F5814C7EE4D27E6F91742574F1D960118F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Faithful Darkness - Archgod (2014) [MP3|320 кб/с]<Melodic Death Metal, Thrash
 ```bash
 magnet:?xt=urn:btih:718D00F40BA8086C3E2013CB262D8C4FF473D17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB1331A0845B6E6E8195F8D1B3AEF40E009DD276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F63D615D8984D486A0BC887C834C02DE711C328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ ReallySlowMotion - Exitium (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:A36B24726B02C4538F406A677C77EC4A00016EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D2427DA7359326EB3B8A47B88EB287E51A83D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B34AD3E528CD933A55A6404D3FCC62FC781ADC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ Igor Dmitriev (Игорь Дмитриев) - Jazz Old Trio (1994) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:F814608DBFB644C55213CF5FB2B641956147EE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ For Giants - Depths (2014) EP [MP3|320 кб/с]<Progressive Metalcore, Instrumen
 ```bash
 magnet:?xt=urn:btih:2CB2BF07600033CC710FA38507921BB6D02148F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F2E5FE9A1C55D7F74B9AE9A5FAD0F233CABFB20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ Marmor - Alma Celta (2014) [MP3|320 кб/с]<Neo-Classical Metal, Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:7536C52C87C657C5366DEA710EAD295BFAED7B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ The Hit House - Re:Action Earth (2012) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:E4F82875DA5BD33DEE89E5958FB89C0934F4B138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ VA - Star Flow, Vol. 1 (2014) [MP3|320 кб/с]<Dance, Club,Pop>
 ```bash
 magnet:?xt=urn:btih:62FE9BCAF6BD11112D8AE9CED931846C4B11035E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ DJ Feel - Top 25 of October (06-11-2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:42C99AC89C8A254F7F2E03DDCA12B7406BA683FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ Coronatus - Cantus Lucidus (2014) [MP3|320 кб/с]<Gothic/Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:654443C203E985CA81EF289A540F7520F3C5A58D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10632B852FADC69B099ACB74976B61D85BF62CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +712,7 @@ VA - Melodic Trance (2014) [MP3|320 кб/с]<Vocal Trance, Melodic Trance>
 ```bash
 magnet:?xt=urn:btih:9A2E70FDBC3FB4050EC294CF458A123EDF584DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BD20BE0A91D43812656BBF5EDFBFE4DEF086872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4B7F7D86FE7E822B149A6C464A55E652A51310E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

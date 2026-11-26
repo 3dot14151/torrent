@@ -22,8 +22,7 @@ Dragonforce - Warp Speed Warriors (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 ```bash
 magnet:?xt=urn:btih:B16F3CDF2164BE5FC3780F9E6B8FE2DBD754297B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EB79DB1B217987EEF6FA379D8B8E26296EC8119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rathole - Out Of Phase (2024) [MP3|320 Kbps] <Modern Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3B045D3141294A6E309020E1360BE7A553B41DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [MP3|320 Kbps] <Melodic Heavy, Po
 ```bash
 magnet:?xt=urn:btih:7930330026F99EB8DB6458DCFCCD01E64AD50EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lipz - Changing The Melody (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 ```bash
 magnet:?xt=urn:btih:53966AEC9B886D1EA59FFF5ED7659C9B5179C958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Whom Gods Destroy - Insanium (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 ```bash
 magnet:?xt=urn:btih:7BF545B4D2ED41D8663E9A6E38EE2484B090E906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (Deluxe Edition) (2024) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:C4CDC21AB8E51E7F4F6E0439FF6A9E0CFEF8BFE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Aborted - Vault Of Horrors (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, De
 ```bash
 magnet:?xt=urn:btih:BCA3CA2FEBDCACA8CAF93A72ABEE03DC2EE09039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Linkin Park - Lost Demos (2023) [MP3|320 Kbps] <Alternative Rock, Rap Rock>
 ```bash
 magnet:?xt=urn:btih:F70229D38E65526EC71AEE8A5150F90FDAB38DF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

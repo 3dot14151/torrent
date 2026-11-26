@@ -22,8 +22,7 @@ Empty - Omnia Amet Lorem (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:4583E16E4A747B0AF48D54578DCB394089D498B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Thumos - Symposium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom, Post-
 ```bash
 magnet:?xt=urn:btih:2B6136E9910AA8ACEB6B9E98D7466AFC68C482E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Oceanhoarse - Heads Will Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groov
 ```bash
 magnet:?xt=urn:btih:23D11BD5606DB8B5EFB394DE506CFD9E5EADB191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Shell Beach - Solar Flare (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 ```bash
 magnet:?xt=urn:btih:BFEDE5D4469ED6EAAA77D7CDA00DE9883D787396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Anareta - Fear Not (2023) [MP3|320 Kbps] <Symphonic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:3728B04B9025E2BC96E48D4F34BF50EB794FB38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Eldkling - The End Of Eternity (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pow
 ```bash
 magnet:?xt=urn:btih:709333BB6FDDC3B54AD5896E1BC5E19091977EFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Rick Miller - Altered States (2023) [MP3|320 Kbps] <Progressive Rock, Crossover 
 ```bash
 magnet:?xt=urn:btih:EEBE7C39E928BF2092080DB8B04475A3820CDE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sodom - 40 Years At War: The Greatest Hell Of Sodom (2022) Japanese Edition [FLA
 ```bash
 magnet:?xt=urn:btih:A98E9B249626164C621E499BA5D111DF6D09AE60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Tierra Santa - Destino (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power M
 ```bash
 magnet:?xt=urn:btih:3DDF4BB31191FF0D096F19734ADCD66490CAEDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Classic Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:B3B7A88325964D3DC2399AB664B2B018E3684C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Classic Rock Classic Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:0C43A9D550329FA65C90473D636EF35413D8CC42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ LaScala - 8 Альбомов + 1 Live + 12 Синглов (2012-2023) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:FA796D7C701E30BE6989820CCE9C104C4023E800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

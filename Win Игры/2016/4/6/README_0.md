@@ -19,8 +19,7 @@ Rack N Ruin – игра жанра shoot 'em up, в которой вам пр�
 ```bash
 magnet:?xt=urn:btih:99FFAD0C6322D67B2C315AF5828158395D7A7841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Toby: The Secret Mine (2015) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:184A21C37D2322224FC28804651F66FFCA1B218C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

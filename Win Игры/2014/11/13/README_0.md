@@ -19,8 +19,7 @@ Nevertales 3: Smoke and Mirrors (2014) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:166851CB3FA73BC09CA9BE4DD8D9EC3CE8FDEE8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

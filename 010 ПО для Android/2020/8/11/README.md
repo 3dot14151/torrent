@@ -19,8 +19,7 @@ Audiomack v5.7.3 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:C76409FB636C7478E9406308A47F95AB68F7DE68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

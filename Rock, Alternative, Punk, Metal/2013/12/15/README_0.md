@@ -28,8 +28,7 @@ Nation Beyond - The Aftermath Odyssey (2007) [FLAC|Lossless]<Progressive Power M
 ```bash
 magnet:?xt=urn:btih:DF8C4383822C554CD38252BA7109469893C0A928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Alghazanth - The Three-Faced Pilgrim (2013) [MP3|320 кб/с]<Sympho Black Metal
 ```bash
 magnet:?xt=urn:btih:39A769DE87C17BE9A42B43D8B8B1CFCEB73C6DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Brain Dead - Menace From The Sickness (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E5E7EBBFA9708B570ED8A6B316E78E647B3F46A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Andromeda - The Definitive Collection (1969) 2CD, Reissue 2000 [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:9AFD4AE29F9202F78FC474A36E078A51CF57244D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Ra - Critical Mass (2013) [FLAC|Lossless]<Alt. Metal | Modern Rock>
 ```bash
 magnet:?xt=urn:btih:FA16DEF242B286172BC97CE4FBA7F4BF0B3640DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Bonus Tracks:
 ```bash
 magnet:?xt=urn:btih:6F72FCC719952F093A3F0C4E9C22CD85B6C30A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Sleeping Romance - Enlighten (2013) [FLAC|Lossless]<Metal, Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:01A4B41F3641D2D6190969C57FC303130ECE1A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Red Hot Chili Peppers - What hits!? (1992) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:6D9FD09D6E3180D3446C28C7EA964E36F001916A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C8B109B89266BB84A029A7A61A64C0AE4EAE443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

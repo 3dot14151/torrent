@@ -19,8 +19,7 @@ Dark Tales 16: Edgar Allan Poe's. Ligeia / Тёмные истории 16: Эд�
 ```bash
 magnet:?xt=urn:btih:33CF64EE6D2E13AD79EA4F7B44D145ACB90B810F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fictorum (2017) [En] (2.0.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A26687DDB8100A683D8A8754813BF92371EF7BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Lift (2018) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A27BF9280F15B144A10EF8D9517866234F4E433B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

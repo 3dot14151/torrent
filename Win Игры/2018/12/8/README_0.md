@@ -19,8 +19,7 @@ Spirits of Mystery 12: Whisper of the Past (2018) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:544ECB30318C6E0A11B6265DDCDD4D6979407A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Surge (2017) [Ru/En] (42876/dlc) Repack R.G. Механики [Complete Edit
 ```bash
 magnet:?xt=urn:btih:865EFA5C1148675FF313B8093B08456965CC22D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hello Neighbor - это интерактивный ужастик, в котор
 ```bash
 magnet:?xt=urn:btih:F6F42D8B8D6E6EF9F97FA6D42AD5971F96F9251B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

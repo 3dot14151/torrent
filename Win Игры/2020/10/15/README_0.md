@@ -19,8 +19,7 @@ Dark Romance 13: Vampire Origins / Мрачная история 13: Приро�
 ```bash
 magnet:?xt=urn:btih:DDAED639E8B78DB1E209C34B4F07ACAA8B5B2951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales 19: Heritage / Страшные сказки 19: Наследие (20
 ```bash
 magnet:?xt=urn:btih:75BDEB2999F6ABCF04A729FE95E6DECFD101D46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ikenfell (2020) [En] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:C240E4C117DE1176EFB61C9D3957D26F2DA81E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Overland (2019) [Ru/Multi] (840) License GOG
 ```bash
 magnet:?xt=urn:btih:110C08249EBC0A2F2BAE174D133F78924569B552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.20.9:500/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:358A2E88AC9261DF5D12BA6B1C22C0BC6BC128A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

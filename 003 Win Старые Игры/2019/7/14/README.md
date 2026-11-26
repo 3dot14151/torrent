@@ -19,8 +19,7 @@ The Original Strife: Veteran Edition – это возрожденный кла�
 ```bash
 magnet:?xt=urn:btih:BD671A775DEA8FA5B6F717155F132965AE8B054B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

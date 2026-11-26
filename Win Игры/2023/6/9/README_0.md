@@ -19,8 +19,7 @@ Tour de France 2023 (2023) [Multi] (1.00.04.703) Scene Rune
 ```bash
 magnet:?xt=urn:btih:DD7C57C9EC559461C1AB36FA7611B3C8047C24CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Scorn - атмосферный приключенческий хоррор от 
 ```bash
 magnet:?xt=urn:btih:1323E14E52F8B0B1492265CBF13DD57900A4221C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Loop8: Summer of Gods (2023) [Multi] (1.0.2/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:883BFB08D4D915AD37C7E2F3B74BCE259450D6B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MotoGP 23 (2023) [Multi] (1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:799440E0B742F665F218AD62C61E6F6CD9B33CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

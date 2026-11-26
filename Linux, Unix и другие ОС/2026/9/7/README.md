@@ -21,8 +21,7 @@ Tails (The Amnesic Incognito Live System - Забывчивая Анонимна
 ```bash
 magnet:?xt=urn:btih:36F7C566EB5A37CE88678BB5F070F2E544CE0001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Glacier / Ледниковый патруль (L) [Ru] 2009
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Star Wars: The Force Unleashed 2 - DLC Unlocker [Ru/En] 2010
 ```bash
 magnet:?xt=urn:btih:D8D13F9B018DEA2AF1C891148480C25A26AD6591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ The Godfather / Крестный Отец Дилогия [Ru/En] (RePack) 2006-2
 ```bash
 magnet:?xt=urn:btih:8F736CCF9CB0510238FF092A12CD2F894CAC5FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hobby Farm / Хобби ферма (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:E193538C35E1A0318486D85B2D7AC5C1A97AC8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Renoir — это сюжетный платформер-головоломка, 
 ```bash
 magnet:?xt=urn:btih:37E543D3F45374A3A65F8CA1D7C46514A90AB96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Admin — футуристический экшен с видом от тр�
 ```bash
 magnet:?xt=urn:btih:654A79B94160D3085702834DCEA4413E1E847276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ SafeInCloud Password Manager - комплексный менеджер паро�
 ```bash
 magnet:?xt=urn:btih:5C0739FA35B576FAF105B23041F3FF8B776FD7EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Readiris – это мощная система оптического расп�
 ```bash
 magnet:?xt=urn:btih:70B1299620D5EF67E149317A32EC3F8A1C913648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

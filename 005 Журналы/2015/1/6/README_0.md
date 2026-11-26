@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B0CAEA7DB3C7046F393807CE44954431683ED52B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Women’s Health – качественное издание о здоровом
 ```bash
 magnet:?xt=urn:btih:03AE77BAD9A37F395A23C4779D378F2DE032A99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EBCEA033BD5C2B527F2D82C289714411E7324C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

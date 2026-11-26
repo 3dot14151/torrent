@@ -19,8 +19,7 @@ Total Mail Converter надежная программа для конверти
 ```bash
 magnet:?xt=urn:btih:FE26C7E44B6E1D20BEDC674FF13754DFB28B8333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ O&O ShutUp10 позволяет получить полный контроль �
 ```bash
 magnet:?xt=urn:btih:E711A427FECF87964FB2EA94635A2468E74CA2C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

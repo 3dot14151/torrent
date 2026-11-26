@@ -19,8 +19,7 @@ Void Bastards – это революционный стратегический
 ```bash
 magnet:?xt=urn:btih:F136C7D38A89D4899CF6CEDBD31F6F05FD057960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

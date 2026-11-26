@@ -19,8 +19,7 @@ Sam Newman | Monolith to Microservices: Evolutionary Patterns to Transform Your 
 ```bash
 magnet:?xt=urn:btih:9A953B8DE6C8F4137723269488833A3110B801CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Express является золотой (   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:398B08008757C886A6728BC51417D62ADDED251A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

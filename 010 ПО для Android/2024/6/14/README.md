@@ -19,8 +19,7 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:D263CE8F69AF4C5B1D533F1B8727C8B2BF37923F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:D00A09F370F539305A43DE3BA45CFC626A24FC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

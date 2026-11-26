@@ -21,8 +21,7 @@ BackBox - дистрибутив Linux для пентеста, основанн
 ```bash
 magnet:?xt=urn:btih:EA7FC3B1564B6B3B93A2E415BAC3A4E7DA965E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

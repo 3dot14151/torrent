@@ -28,8 +28,7 @@ B2 Redemption Song (No Kwazulu) 7:38(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:1218F48FCEB680E24B190F60BC0FA4FBD83500DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

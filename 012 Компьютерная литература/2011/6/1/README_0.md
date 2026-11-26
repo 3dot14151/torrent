@@ -19,8 +19,7 @@ Alex Fedoruk | Комплексная защита от вирусов [2011] [P
 ```bash
 magnet:?xt=urn:btih:D5D4B901956A6260A79DA234340FD89ECDD8BAE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

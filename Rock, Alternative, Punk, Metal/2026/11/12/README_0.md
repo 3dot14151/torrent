@@ -22,8 +22,7 @@ Aeonblack - Treason (2026) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:D430F48A8BE754A391534EC1C90D18D0EB8D2CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

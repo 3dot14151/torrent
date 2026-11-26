@@ -19,8 +19,7 @@ Faery Tale (L) [Ru] 2011 | Fyrrion
 ```bash
 magnet:?xt=urn:btih:A33665834E201918BCF3A6DC64C488A262908634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Renegade X: Black Dawn - это однопользовательская мин�
 ```bash
 magnet:?xt=urn:btih:B90D0F9E31F66A33DB91BB569EF0FBD1D08B6239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49782CA1DA9EF953CFDA558F63D6430768C2E2C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Out There Somewhere - Voskhod Edition (P) [En] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:9F37FAFFBE03D7A0C5504EA5EEF7DC40324235B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Time Dreamer 2: Temporal Betrayal / Путешествия во снах. Заг
 ```bash
 magnet:?xt=urn:btih:4CEC385AB510D558CCBA105966B92F16C45DD2D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Natural Threat: Ominous Shores / Естественная Угроза: Злов
 ```bash
 magnet:?xt=urn:btih:5CF82617ACB01FCA3490D61D063F2AE172758048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

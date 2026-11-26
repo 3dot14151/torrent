@@ -22,8 +22,7 @@ A4. Legion Of Aliens (3:37)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:42E6D37D98E03BEF65A23D665C2EF3794717E9A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

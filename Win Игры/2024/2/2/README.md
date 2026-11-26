@@ -19,8 +19,7 @@ Lunacid относится к жанру Dungeon Crawler. В инди-проек
 ```bash
 magnet:?xt=urn:btih:9A7FB6BD56F58468E7585A7F82E6E70114327B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reflections of Life 12: The Shattered Timeline (2024) [En] (1.0) Unofficial [Col
 ```bash
 magnet:?xt=urn:btih:69FFC2891FC3C86F11257A19D8852F9F80CDBA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

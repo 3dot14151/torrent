@@ -22,8 +22,7 @@ Derdian - пауэр-метал группа из Италии, Милан, об
 ```bash
 magnet:?xt=urn:btih:F1A7345F8E979EFC41132885DE591AC37B3645FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

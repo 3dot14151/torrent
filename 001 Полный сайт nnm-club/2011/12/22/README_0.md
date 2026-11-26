@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CA8553F675DF67735A3B7177DFF10B0F96CA6B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A07C667DC1995B1BE0CB961488501F7D2C1E795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Trance Eve (Best of 2011) (2011) [MP3|320 kbps]<Uplifting Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:6596EE88F78AA3E216D2EDBD615FAD53B20ECA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D37F73BF6CE01EF69EB037E592A1A8956C9F20A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5374FF5F0C49754A11B913F77141B17FFD375C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C417AB93B90EE11FABBF426DB5DB62CE05A1692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Sinheresy - The Spiders and the Butterfly (EP) (2011) [FLAC|Lossless]<Gothic Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82778B094FC25CA560BE3B2E717BCD9DDAD62E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - Лучшая 100ка Радио Шансон: Ночная жизнь (2011
 ```bash
 magnet:?xt=urn:btih:1D4891EC87D189114E57DB9F8A5D95FE6F584A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Звездные Хиты. Зарубежный (2011) [MP3|192 kbps]<Dance
 ```bash
 magnet:?xt=urn:btih:D44C72C404474323C5659A994398931B59BF687B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:763A0DA4F167796F1023FAED8F587AAD8424F01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ VA - Trance Eve Volume 21 (2011) [MP3|320 kbps]<Uplifting Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:E1C2981C261DDF133AE5B84A526546C89644457F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CACD8B8C6BFB2272F15BC8648CB2C0599101805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ VA - Dancefloor Winter 2012-2CD (2011) [MP3|~250 kbps]<Dance,Pop>
 ```bash
 magnet:?xt=urn:btih:8F31E5FF1B46E00A4A13801A9826EE1B351F40EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ VA - Зимние Новинки Шансона (2011) [MP3|256 kbps]<Шансо
 ```bash
 magnet:?xt=urn:btih:AE4BBB092F522B45D317814AEB7A1C0F08A1A8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ Moonbeam - Club Mix (2011-12-15)  [MP3|320 kbps]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:FEE49DEE9A4669F109062AF99790EC9DA116DF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ VA - Smooth Jazz Christmas (2009) [MP3|320 kbps]<Smooth Jazz, Soul>
 ```bash
 magnet:?xt=urn:btih:9640FB1E8EBBE93E73E4BFC1A3309652E993A015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6703195586AB51B8DC06D380F0931017F4707C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ VA - ХХХL Зимний хит 50/50 (2011) [MP3|256 kbps]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:4B4DB5B706C9FB6798A4C7431C17900563D77A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ VA - Самый Улетный Хит. Зарубежный (2011) [MP3|256 kbps
 ```bash
 magnet:?xt=urn:btih:93ECA7E22C607E388359A51AEDA0C77FBC23B5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ Phillip Henry - Dragonfly (2008) [MP3|320 kbps]<Acoustic, Folk, Indie>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +656,7 @@ VA - In the Club 2012.1 (2011) [MP3|222-278 kbps]<Dance, House>
 ```bash
 magnet:?xt=urn:btih:7516ABC049ADD335EF9203EC180EB49309BE140E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:332EDD8AB77C9B2629B146E71477632ABCCDB8D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ IT-Expert — журнал для профессионалов в области
 ```bash
 magnet:?xt=urn:btih:EDDB21E3804977290B420AD6B65C567227CE0ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62CED607F9AB1966BA7FA72DC098D28F5A81438E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ VA - Зимний поп-музон (2011) [MP3|320 kbps]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:C57AF348080EFBEB18CB333A16720FAE2576FE13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

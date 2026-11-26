@@ -18,8 +18,7 @@ Saints Row IV (2014) [Ru/En] (1.0.6.1/dlc) RePack =nemos= [Game of the Century E
 ```bash
 magnet:?xt=urn:btih:3A9EC286D29FFC6D7F8685E93EE2FE47DDC4D66B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:3131847F9E6EABC2E0CEE0A9370DBEF8A27CE018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Shift 2: Unleashed (2011) [Ru/En] (1.02) Repack R.G. Механики [Limited E
 ```bash
 magnet:?xt=urn:btih:BCCBCB4A7A245A69760E89756C9CBD83D9A9045A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Banner Saga - ролевая игра, сделанная в сеттинг�
 ```bash
 magnet:?xt=urn:btih:754639347074601A017DF06ECE7EF0BA6C32CABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9205141ADD0A6F4AD941612B4E5E741B2C1A56E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30CCF62B18B730ED5079DB6A09015AA35F684188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ NFS High Stakes - это четвертая часть легендарной с
 ```bash
 magnet:?xt=urn:btih:A5127E92DD23EB001C935EC6D19738B5D08BA483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Windows 7 с интегрированным пакетом обновления 
 ```bash
 magnet:?xt=urn:btih:C5A2FDAC0530B75DF3F9E306D7F0B819A3851ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ AVG PC Tuneup единственная программа, которая поз
 ```bash
 magnet:?xt=urn:btih:AD84047E8D567E2A2E566DBAACA674E67EA885EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Geekbrains | Работа программиста. Чему не учат в у
 ```bash
 magnet:?xt=urn:btih:DDA34F0B6AEA0E48BDC771DA28C78E2C0639FE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C68123D1F664CABAD9D7C25954E5FF8C511CA3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Web-разработка, системные утилиты, десктопны�
 ```bash
 magnet:?xt=urn:btih:29B43124F179E3AE2F6FF4F8CA4E3CD076610FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6DC29CB8C7534B14ABC839DA51D6D139C40A665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11EDCA365B28A3F67F7B00C6BAB4AAF307573853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Need for Speed: Porsche Unleashed – одна из лучших игр сери
 ```bash
 magnet:?xt=urn:btih:EB17A90A151E5EC20D62EE4EC54F086317376020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.2 upd5) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:8326DD17467CD171B156328C052259BE4DAF03CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ Adobe Photoshop CC 2015 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:4C8E62750A3459D1D3E7CC84C10C97F1B275E855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:857BFECCCDBD4BB7ECB0A4ECF50368726A88D9E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

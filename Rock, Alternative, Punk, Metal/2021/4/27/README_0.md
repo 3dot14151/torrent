@@ -22,8 +22,7 @@ Vexillum - Unum (2015) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:F84FD18E3F40B303C6451D33CE52448BF8AE4BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vexillum - The Bivouac (2012) [FLAC|Lossless|image + .cue] <Power Metal, Folk Me
 ```bash
 magnet:?xt=urn:btih:D4C01F735AF5E0608E806995F6A3009328D67ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Vexillum - The Wandering Notes (2011) [FLAC|Lossless|image + .cue] <Symphonic Po
 ```bash
 magnet:?xt=urn:btih:B315F1D83BD482AB9778C2F942C8C25C7BDBABFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Profecia - Renacer (2021) [MP3|320 Kbps] <Heavy Meatal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:AF9AE21438F23E2D5EF909C0E712689CABB0FAC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Blacksmith Tales - The Dark Presence (2021) [MP3|320 Kbps] <Progressive Rock, Sy
 ```bash
 magnet:?xt=urn:btih:05CC7BA744DB43B74012BC7119FC077573E85BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Serpentine - Сirсlе Оf Кnivеs (2015) Japanese Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:0E25A7998BE2D72770478F62186EFCF7AAECBF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Percival - Riders Of The Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Me
 ```bash
 magnet:?xt=urn:btih:9FF08786ADF3A6003C722B83903DDC8E3BC0375C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Kruger - Аномалия (2021) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:29904975C498ADFEDBE7E92606C757AE443C630E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ As Everything Unfolds - 5 Albums (2018-2021) [MP3|320 Kbps] <Melodic Post-Hardco
 ```bash
 magnet:?xt=urn:btih:A864E7D892CE75CACA82F7133EB8F9BD9946F0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Bahroma - 5 Albums (2014-2021) [MP3|320 Kbps] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:E01BA4C0378FD2696B08E03321ABA260E84353CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Chill Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:4D4CD5F11D015E26F84F8AED9AB01731D1BE9AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ The Southern Oracle - Exodus Aesthetic (2021) [MP3|320 Kbps] <Hardcore Punk, Thr
 ```bash
 magnet:?xt=urn:btih:5022E90095021E2859609F2D8FB341A36FB6DD21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ The Offspring - Let The Bad Times Roll (2021) Japanese Edition [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:91EFC061F5503C81A521DDADC27DF59B5E350747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Y & T (Yesterday And Today) - 26 albums, 1 Box set, 45 CD (1976-2018) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:2A72B8B73A690D03A6F573E384A0D84616C50DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

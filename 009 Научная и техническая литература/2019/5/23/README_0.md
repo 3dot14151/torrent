@@ -19,8 +19,7 @@ Christopher Tyerman | The World of the Crusades (2019) [EPUB] [EN]
 ```bash
 magnet:?xt=urn:btih:6C8B7E0433DDA96327B43E882CCA5A895B7E1DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C2D3186BF5931740771D5719A53836EC5070B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Candice Night - Reflections (2011) [FLAC|Lossless]<Folk Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Cynic - Carbon-Based Anatomy (EP) (2011) [FLAC|Lossless]<Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ The Black Box Revelation - My Perception (2011) [FLAC|Lossless]<garage rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ VA - The Metal Museum (20 CD) (2006) [MP3|320 kbps]<Metal>
 ```bash
 magnet:?xt=urn:btih:F5D076D2117C08D3B3F3DE6EAD2EB7789B57BC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:FD31AA5A8617CBD317E03E06678E45E6A9A0D1C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Within Temptation - The Unforgiving (Japanese Special Edition) (2011) [FLAC|Loss
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

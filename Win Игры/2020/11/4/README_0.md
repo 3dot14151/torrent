@@ -19,8 +19,7 @@ Asterix и Obelix с помпой возвращаются в новой вер�
 ```bash
 magnet:?xt=urn:btih:CC23138CDEE9E92BC280E88D069986CA7AD71216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

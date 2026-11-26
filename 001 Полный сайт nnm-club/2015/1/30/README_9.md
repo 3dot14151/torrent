@@ -28,8 +28,7 @@ Unru - Demo MMXIII (2013) [MP3|320 кб/с]<Atmospheric Black Metal, Hardcore, C
 ```bash
 magnet:?xt=urn:btih:555520948253A597726B6CA761BB42A3514B25D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Dead To A Dying World - Dead To A Dying World (2011) [MP3|320 кб/с]<Blackened
 ```bash
 magnet:?xt=urn:btih:31671DAC25FBE6D2E59F748B8D3D00A734314208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ George Adams - America (1990) [APE|Lossless]<Jazz, Avant-Garde Jazz, Free Improv
 ```bash
 magnet:?xt=urn:btih:2B17B431D798E92C1BC08A7A46A79C2419EB10BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Octex - Every Sound Tells A Story (2009) [FLAC|Lossless|WEB-DL]<Dub Techno, IDM,
 ```bash
 magnet:?xt=urn:btih:C88B62B5A66B8E5B85C35161D6E885CB6241FB43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Ecocide - When Will It End (2012) [MP3|320 кб/с]<Blackened Crust, Sludge, Fem
 ```bash
 magnet:?xt=urn:btih:664C86BC8546AC4E3A8B4C42444C31650B3FA408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Karl Berger and Friends - Around (1990) [APE|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:829EEA5D9AB45BE18A722043D119C36300E9C020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27CC97BACD0D2C0A58867B244AFC6AB6556D3D5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ Thulcandra - Ascension Lost (2015) Limited Edition [MP3|320 кб/с]<Melodic Bla
 ```bash
 magnet:?xt=urn:btih:B3A2130EFFB3C8319D097B4A72F9858756D7D4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ VA - Liquidation 2 (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:35DA9F56E6E3E48AA1F2E6732A0BEC01D15F0FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ Stargazery - Stars Aligned (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:13F2D7CEB2F93F0DEE3C72CD21473D8553E3D6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ Tank 86 - Obey (2015) [MP3|320 кб/с]<Stoner Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:04BA1DC2723715263B6AFDC343A763768BEAC822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ Scanner - The Judgement (2015) [FLAC|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:4751CC6901812BA722007DAC23BB43B6DAF5FDEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +436,7 @@ The Ghost Of 3.13 - The Saturn Return (2014) [FLAC|Lossless]<Ambient, IDM, Glitc
 ```bash
 magnet:?xt=urn:btih:AAC2F390F81DA60E96B2791B267D1BA74158E801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46A0D07013CD43270637BBCAC6ABA9B8B1D23596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +489,7 @@ Cosmic Replicant - Supersensitive (2012) /EP/ [FLAC|Lossless|WEB-DL] <Downtempo,
 ```bash
 magnet:?xt=urn:btih:3C0E72C1E0E4EF40108FAE6421F41A4FB383319D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +523,7 @@ VA - Sensuelle Outdoors, Selection Chillout Vol 1 (2015) [MP3|320 кб/с]<Loung
 ```bash
 magnet:?xt=urn:btih:F23C77DC189764C1B4800ACD475DC2433A26AFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +557,7 @@ VA - Unsung Heroes 4 (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:382E696BB6F15DB36E8C5B1CF33F46121DD8D925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19002CBF371B25180CC0C3B10BBA2C5F772EF9D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +618,7 @@ Stormwitch - Season Of The Witch (2015) Limited Edition [FLAC|Lossless]<Heavy/Po
 ```bash
 magnet:?xt=urn:btih:00390EC66968C62A33715627D109062D9BE93647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7D5AA605D6E60455FBD06E7E4FB54162621B535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +678,7 @@ Bipolar - Alive (2015) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:431C59550470FB8FC3EA2BB44D42417240A2C3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44057D48183D4A993395817163800A3DCF124688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FD806628FF40A16408068F6FCBBD1AA7E55DD3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +757,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38EBEB2EFFB383955DF8C2ED559C392149C04416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -816,8 +791,7 @@ Shadowbane - Facing the Fallout (2015) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:CE0E11A2B690A7A2F1E6A744A4900A7CBE8AE04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

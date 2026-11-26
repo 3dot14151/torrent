@@ -19,8 +19,7 @@ The 9th Gate (2018) [En/Ch] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7B999FE87CF02AF28D06769C0B168520008623FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

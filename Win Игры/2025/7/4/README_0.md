@@ -19,8 +19,7 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.2.101/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:85AB2FFCE694D910FDF67C77781580B02F56F632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Spell Brigade - это кооперативная онлайн-игра, в 
 ```bash
 magnet:?xt=urn:btih:7F006AABCE3BCBBD526B857C40DFD628E2C89720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kainga: Seeds of Civilization (2022) [Multi] (1.2.21) License GOG
 ```bash
 magnet:?xt=urn:btih:47046E6E05B2335F2146359614CB174605382957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Moonstone Island – это более 100 островов для исслед�
 ```bash
 magnet:?xt=urn:btih:5CAC1136B5E8807A5FA14DC32FBA6A20B2CCD485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tales of Maj’Eyal – это ролевая игра в стиле roguelike �
 ```bash
 magnet:?xt=urn:btih:62CEB84881376E09D411E21EBFA7A1201CAFE802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Frog Jump ставит игроков под контроль амфибии с 
 ```bash
 magnet:?xt=urn:btih:FE4F5F5041F36FF08EFA1678AD71C65CC0573C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Build 52126/dlc) Repack FitGirl [Brutal Ed
 ```bash
 magnet:?xt=urn:btih:31C803359C83537E3447E47D79460F23D8890A29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Perfect Heist 2 – это соревновательный шутер на те
 ```bash
 magnet:?xt=urn:btih:B7C095702E91A9E93D82D8F804EEF5AE0D11066C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.4.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2EA236EB52C70F77ADCBDE63DBAECE5562547E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E778318BAEF1BD8ECBC828D6DB7E07CDC994EFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

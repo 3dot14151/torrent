@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:30DD4366A61F917614A4B2A8FA320A5E7B7703ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:658B144F9E737EA410E1D73D68B275148D02176B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Lovers Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:DB649806F669699E7ECFF3AFE1D088923F788AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5C34C2AD6CF35CAB477B38468ECB0A52FE37CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAF0EC707DCCB87D21C2EAF14F760B9BF136498D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ VA - Uplifting Trance Essentials Vol.7 (2015) [MP3|320 кб/с] <Trance, Uplifti
 ```bash
 magnet:?xt=urn:btih:C0E56DE92A50A1A6219D1C7ECF5BD2E8462C2596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49E675FFC6AF3EF8160C033E9ABB0FB9DF9AA04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AECC2BECCF9BFDE459D9FE40EDB24E0B0C201986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Seba, Paradox & Robert Manos - Because / Lie to Me (2015) [MP3|320 кб/с] <Dru
 ```bash
 magnet:?xt=urn:btih:199A2FBB5BC791F9F0B97568A12D045961ED653B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Cravagoide - Empty Frame (2015) [FLAC|Lossless|WEB-DL] <Ambient, Downtempo, IDM>
 ```bash
 magnet:?xt=urn:btih:3EE48B6A0E064C8AE6F1C486336EF37C6530FC7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ IconKit 4.7.2 [En]
 ```bash
 magnet:?xt=urn:btih:D4FC6774207594ECDF356D0D865944015724942D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ VA - World 2016 Future (2016) [MP3|264-320 кб/с] <Club, Tropical, Future Hous
 ```bash
 magnet:?xt=urn:btih:9C35E5C25C839F64331B20586701E2C68C817A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ StatsBar - небольшое, легкое и симпатичное прило
 ```bash
 magnet:?xt=urn:btih:0C294740D1270FFC250E80845844DE4C33E1395F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 5 (2015) [MP3|3
 ```bash
 magnet:?xt=urn:btih:55E64A217E221182118E37DC5E69DD44E921C3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14E850B00459894379B3B273297C5FF3BF4C4B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DB42361719FCD4DA464C7DC384EF33FE866EB93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Lars Leonhard - Orange Dawn (2016) [FLAC|Lossless|WEB-DL] <Ambient, Deep, Dub, T
 ```bash
 magnet:?xt=urn:btih:2F20DE6CDE746E6BEAC569C06A02D8C7DD218E3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0EB32110AEDBE66AA67B22659C2FFE29ACF4170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ VA - Cinema Lounge Vol 1 (2015) [MP3|320 кб/с] <Lounge, Chill Out, Easy Liste
 ```bash
 magnet:?xt=urn:btih:DEE255A4932DAD55081D41B803E197246AF6B125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:356B8B5E8A956682EE21FB08574E105FD8095AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Disk Map позволяет легко визуализировать файлы
 ```bash
 magnet:?xt=urn:btih:DD479A9827F37A6671DBB43B25FFC92FA7D6CA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ ReadKit — приложение для отложенного (Offline) чте�
 ```bash
 magnet:?xt=urn:btih:7FC9CC126E8AEAAAE342C31F80398ECDAEE4C95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBA6097051C077EFAED68329DF6091282C3BA4E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ Joutro Mundo - A Boogie Affair (2015) [MP3|320 кб/с] <Nu Disco, Funk, Electro
 ```bash
 magnet:?xt=urn:btih:621417BB5A4F8013A8F4959F2B6295674B11C78A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ Battery Health предоставляет подробные сведения о
 ```bash
 magnet:?xt=urn:btih:FA17E9A58B3D218FC23D9898076480D03AD768C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:908A6DF3551968DD6A1CC03A936F534E1AEB854C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

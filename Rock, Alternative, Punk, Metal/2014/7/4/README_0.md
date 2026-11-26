@@ -28,8 +28,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:E42020B3DFBF06FA61626C7F3F19A67EFEFBFA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Misery Index - The Killing Gods (2014) [FLAC|Lossless]<Death Metal/Grindcore>
 ```bash
 magnet:?xt=urn:btih:2D63FCAAEC14A81662759AC431B3F4BC387A71A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Hurtsmile - Retrogrenade (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2557FE5A95F368841BD291ABC4259E6B98EF70C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Sonic Syndicate - Sonic Syndicate (2014) [MP3|320 кб/с]<Modern MDM, Metalcore
 ```bash
 magnet:?xt=urn:btih:B7FE416977315AF5BD85BEB013A8157EA6684B56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A1546C2D92769CE010D0ACAB7623EDA627776F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Tankard — немецкая трэш/спид-метал-группа из Фр
 ```bash
 magnet:?xt=urn:btih:52CE48F05D739485C85559D54E44B910B4DDF658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Tarja Turunen - Left in the Dark (2014) EP [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:8CC9B79DD1449872719B7A69A657E21F25F3B85B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

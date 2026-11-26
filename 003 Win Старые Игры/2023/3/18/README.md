@@ -19,8 +19,7 @@ Gary Grigsby's War in the East - стратегический симулятор
 ```bash
 magnet:?xt=urn:btih:9B819EFCFC281CF34B7539104B82C75AFB7FB44D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

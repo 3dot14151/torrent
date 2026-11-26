@@ -22,8 +22,7 @@ LamaGlama - Tierra del Sur (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:517724E472ADE85A953E7FAC58E143FEC62531B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Warpath - Bullets for a Desert Session (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:57B77E92837F7739DED5C1F59D0A246E316B10D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Afterlife - Vicious Cycle (2017) EP [MP3|320 Kbps] <Nu Metal, Metalcore, Rapcore
 ```bash
 magnet:?xt=urn:btih:79B70DA2C627F0A685E9D0C58EE9CAF88B777CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Soen - Lykaia (2017) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:85B15D9D9ECE2ADD8B8ADBBAC4897396E2EAEBA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ R.E.M. - Murmur (1983) [FLAC|Lossless|tracks + .cue] <Indie, Alternative>
 ```bash
 magnet:?xt=urn:btih:7CFA3C83F3D8B80EE82EA35D4E6C400566C727BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB60535F25C0FA287822AF49FB0E18BE7CD3745D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Pixies - Indie Cindy (2014) Deluxe Limited Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:AADD930D9960CE91A7F951FAFFD7B0387058A77A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Fight The Fight - Fight The Fight (2017) [MP3|320 Kbps] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:6ECF659B399F0236FB4B891A8523B7F2340AEF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Witherfall - Nocturnes And Requiems (2017) [MP3|320 Kbps] <Progressive Power Met
 ```bash
 magnet:?xt=urn:btih:AD4FFCB2AA8AB26610E8C34F4C6C3BB6832E8F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Overkill - The Grinding Wheel (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:CE9E5EF479F88F9A308682FD28DDD559960D1760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ CD3 - Live in Montreux 1970(   Читать дальше...   )Жанр: Hard Ro
 ```bash
 magnet:?xt=urn:btih:AC93D24F37A4F795FEE961A3BE1D9C19C29875F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Nickelback - The Best Of Nickelback (Volume 1) (2013) Compilation [FLAC|tracks +
 ```bash
 magnet:?xt=urn:btih:A460733F140F2AE117408444B66E9A8CACF71A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Grand Funk RailroadАльбомы:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

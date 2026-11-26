@@ -19,8 +19,7 @@ Dism++ - утилита предназначена для продвинутых
 ```bash
 magnet:?xt=urn:btih:26B1813F6E0C4746235A0CC051A257F574CDD580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 ```bash
 magnet:?xt=urn:btih:19969019F567C04A446CAD9760199F50EB8EECE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

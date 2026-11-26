@@ -19,8 +19,7 @@ Easter Eggztravaganza 2 [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:AD822685952353E5D862D950B82AB533227276F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ele's Bakery [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:A1A4DB4515930A27A4708DF32910884B2CDFEB4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bunny Quest [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:DA2CCEADC44C3F396919F7BDA769DF50CE19FEA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ World Adventure [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:F3C073335700BFEC24DF351E579CFEBDCA78A7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

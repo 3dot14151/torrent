@@ -19,8 +19,7 @@ KITS - это сборочная игра. Открывайте, создава�
 ```bash
 magnet:?xt=urn:btih:B95708ABD56723E46DC737F1E191BC085C126C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hitman 2: Silent Assassin (2002) [En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:178A692A28EB1EAA5DEDF08EAFC99B882BF497E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

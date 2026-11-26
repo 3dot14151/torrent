@@ -28,8 +28,7 @@ Niobeth - Silvery Moonbeams (2011) [MP3|256 kbps]<Symphonic Operatic Gothic Meta
 ```bash
 magnet:?xt=urn:btih:6EA9B6A18CF1ED5497F074D7D095CDE72E28A660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Paul Carrack - Beautiful World (1997) [MP3|320 kbps]<Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:C2E1249A26864AE41B795ACD7AD29DCDA27C0341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Graveworm - Fragments Of Death (2011) [FLAC|Lossless]<Black Metal, Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Creed - Full Circle (2009) [FLAC|Lossless]<Rock/Post-grunge>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

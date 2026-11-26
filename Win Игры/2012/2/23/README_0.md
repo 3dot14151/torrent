@@ -19,8 +19,7 @@ Behind the Reflection 2: Witch's Revenge / Ведьма в зеркале 2. М�
 ```bash
 magnet:?xt=urn:btih:38D62CC2BC9D2FEB7C103341DFEF3F8E40FD1512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Depths of Betrayal Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:C83E56A2B076E5D9E03BB747DAB2FDFC755CE777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

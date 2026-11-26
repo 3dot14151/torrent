@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:421D2E6ADB9EDAB7C5FBBCFEDDC528E888E54299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ James Bay - Chaos And The Calm (2015) [FLAC|Lossless]<Indie Pop, Indie Folk>
 ```bash
 magnet:?xt=urn:btih:9332A0865A94EF484B0D8F4F3EFFF351CEDB2440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Superfrog HD - это ремейк платформера Superfrog, вышед�
 ```bash
 magnet:?xt=urn:btih:EB204C2FBCC6F176207E7EB251C1BCFBF9563426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D023F42C32A1363B196AE158FFB1126BC691AE83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ uTorrent Pro 3.4.2 Build 39586 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:848FF73933D37F82B5B4930114C9EAA3796DA40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1CE62EC2E309800D24B7B84A59C9E0EE5137E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DD1AB961DA7729C3754DA1628003BDF5B121D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Shiftlings – логический платформер, главными ге�
 ```bash
 magnet:?xt=urn:btih:F1AB7186B2538E84974CEC28AA280754849E3844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:716340382D449723CA4EC87E319A6C2DCFFFDFCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Gyo | Gyo Ugomeku Bukimi | Gyo: Tokyo Fish Attack! | The Fish | Tokyo Shark Atta
 ```bash
 magnet:?xt=urn:btih:702E4CAC4DBEB60DDF38D1F5870A9E81A7EB2AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Hotspot Shield — программное обеспечение для безо
 ```bash
 magnet:?xt=urn:btih:10C1E7AF525DF7E7591670A8040445FE031289D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ Oleg Lav | Качаем Windows 8.1 с оф. сайта Microsoft и устан�
 ```bash
 magnet:?xt=urn:btih:A98565D6AAD97B22749CBF2358FB0B32F793A197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5761CAE5A1767845596593B06964A1694550D67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Wanted Corp – изометрическая аркадная стрелялка
 ```bash
 magnet:?xt=urn:btih:F42D86082C94DC4ABCA12B59F942614F0C292B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Resident Evil Revelations 2 / Biohazard Revelations 2 (2015) [Ru/En] (2.2) Repac
 ```bash
 magnet:?xt=urn:btih:D77B1E31D594F15FE95742202CE3C9CD82DAE47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3157F9DE06D43AF9DBBE52E6E1969BF31A52F806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2CD798A5423152E332E2B2ACE0C97DBDAEC0298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ Deluge - это мультиплатформенный, полноценный B
 ```bash
 magnet:?xt=urn:btih:05666B7F6DE518EB8CE9D881F0A9F419BD8117EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ CD прилагается только к печатному изданию.Жа
 ```bash
 magnet:?xt=urn:btih:F02C1AD9D795950F59B96CC6CA7DBC728940B7CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ Android Reverse Tethering 3.19 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6B26264B7FE9CA7DB6BD2C1103757D9DB913A5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Hitsugi no Chaika: Avenging Battle / Чайка и гроб: Возмездие 
 ```bash
 magnet:?xt=urn:btih:50B3C93AFEB06573D3112859890D6872F121ECC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51BDA6D907F4DAD8254380008F806797C1502C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E36F1F1CCB3E027A9EFC28D0E7EAB95D6871B2A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2548E4096DACE203A79A3BC4D0877A3692141F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Rancid - Honor Is All We Know (2014) [MP3|320 кб/с]<Punk Pock>
 ```bash
 magnet:?xt=urn:btih:6E798B701477E01A18AB65DE9E930260BA2E29EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:036C14470E7F5C5077A738F2719EB99DE6A98455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Emergency 2017 - является игрой в жанре симулятор о
 ```bash
 magnet:?xt=urn:btih:EACD2D3EFFE1AC4138A7C0926171C9D712648562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack xata
 ```bash
 magnet:?xt=urn:btih:9738778257ED627CB6CFBB9DDEB675D119F754E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Waking the Glares - Chapters I and II (2017) [En/It] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:029A6A31974E6E8BE7E0702B4F91A602688DF061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ascender – приключенческий платформер-головол�
 ```bash
 magnet:?xt=urn:btih:C2CC259B0CAC6CF0618E65EFD4E97A71BC191032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Tenth Line - RPG консольного стиля с красочными �
 ```bash
 magnet:?xt=urn:btih:E8BF0D577A43BFC2E661A62AB68B9EEB459CEDEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Gang Beasts – это инди-игра, в которой вам придет�
 ```bash
 magnet:?xt=urn:btih:7F0C754A56153F172EA3502FBE187BFFF6A7C3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

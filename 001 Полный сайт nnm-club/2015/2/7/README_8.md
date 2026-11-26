@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Datassette - The Aviatrix (2009) [FLAC|Lossless|WEB-DL]<IDM>
 ```bash
 magnet:?xt=urn:btih:B717782867AB9608E29DAAEBE3E4FDCEDE4F2530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B960502B97B23C39770E9DAB2E12410BB28EB8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Datassette - People Without Mouths (2012) [FLAC|Lossless|WEB-DL]<IDM>
 ```bash
 magnet:?xt=urn:btih:5F18278CD08031639EAF0C875B5F9188E509F49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Wickaman Presents - Bug In The_Jungle Vol.1 (2014) [MP3|320 кб/с]<Drum and Ba
 ```bash
 magnet:?xt=urn:btih:76E1A4C4893B56E048B8566C10B9C0FF0AADBCDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Datassette - Datassette (2008) [FLAC|Lossless|WEB-DL]<IDM>
 ```bash
 magnet:?xt=urn:btih:BF5004620C07F118A9435621AFCB574309940069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Neil Larsen - Orbit (2007) [APE|Lossless]<Fusion, Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:5B8CDA4C08A292822868E98D7C8CEA9A11454594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Datassette - Can You Smell Maths? (2006) [FLAC|Lossless|WEB-DL]<IDM>
 ```bash
 magnet:?xt=urn:btih:3156C7B80D7AE1AFBB2DE66369E2BB4A0D0E7BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F87A8EA8CFF78E9FEE75EA7B26FFEF2D7335DE15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Neighbourhood - Maybe Tomorrow (2011) [FLAC|Lossless]<Funk, Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:743D44BFD4337C3AC50025D653726A7D08C27F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07B2A5DBDB4E979C66CA04A5CCDADF1FF0C4DFF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E32EF87CE620DAF5592AB3E7780150E200444B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Into Orbit - Caverns (2014) [MP3|320 кб/с]<Atmospheric Post Metal, Post Rock,
 ```bash
 magnet:?xt=urn:btih:8514BA11AA57C45B768A62086FE4C422B601C531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31D038BC43518BA6F89938519452DCF8B64DE1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74350D94932DC27B7C2299B210345090E6E82487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81E1D54712E30EEBD3E0DF58BFCDCFC9567DA3B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ VA - Дискотека С Размахом (Vol.4) (2015) [MP3|~254 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:06AA44D356CC7316F7CB23DB3F39287FE00834C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C2DE39D3D758C8A2556FE627FF777F9BDC87EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Ohio Sky - The Big Distraction (2015) [MP3|320 кб/с]<Progressive, Space Rock>
 ```bash
 magnet:?xt=urn:btih:E3B2FF6857DF85326DC9ADD65FDC996322101356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ Min-Y-Llan - The Best Of Min - Y - Llan 2009 - 2012 (2012) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:0224D6E46658042E6EC63C058F424B0B50965D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F996329910F503DBC5C3E83A188EF08536018466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E16ABB7E8133258C4FD095084D93386D8F8CDFCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D0D719D72196ADE04964D263DE14E87F15E3271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:260979E31E36E59614517E538473C5216B765080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ SAFFiR, опытный образец противопожарного робо�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ Discovery: Эффект Карбонаро / The Carbonaro effect (2014) HDTVRip
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

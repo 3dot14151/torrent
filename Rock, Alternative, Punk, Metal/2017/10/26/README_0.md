@@ -22,8 +22,7 @@ Backstreet Girls - Don't Mess With My Rock'N'Roll (2017) WEB, Voices Of Wonder [
 ```bash
 magnet:?xt=urn:btih:F16B3AC20B722966244EB7EE8D0782C1A49F1CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Powerman 5000 - New Wave (2017) [MP3|320 Kbps] <Industrial Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:4F9DE05E261EAE3A52BC9BB7AD2EE32A25CF71DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Weezer - Pacific Daydream (2017) [MP3|320 Kbps] <Alternative Rock, Power Pop>
 ```bash
 magnet:?xt=urn:btih:18DCC86A07DDAE030A1A4BCB5AF771B4C76D3463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Alice Cooper - Welcome To My Nightmare (1975) Remastered, 2002, Atlantic/Rhino [
 ```bash
 magnet:?xt=urn:btih:DE34882885F25EE6C9C49796D985F5F1B3BD8A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Serenity - Lionheart (2017) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:391BF8BED6E8D6E40E366B686696012DDBECDEC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Theory Of A Deadman - Wake Up Call (2017) [MP3|320 Kbps] <Alternative Rock, Post
 ```bash
 magnet:?xt=urn:btih:77938320D2A9814798D3FB48CA1CA89ED4CB5F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

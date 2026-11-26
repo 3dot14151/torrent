@@ -28,8 +28,7 @@ Grendel - Corrupt to the Core (2011) [MP3|256-320 kbps]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:53F4C029060462812503B400B537D64677811889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7E68DEF3EC17CE7CA7407FAD9E1F0F783867ABAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Valor Mortis - экшен от первого лица в жанре Souls-like 
 ```bash
 magnet:?xt=urn:btih:43EF4810D5B3ACF45EA6AF1AEBB8CD8D140D501C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:7C53F43D81752BA55E82C5B9F350BD8297A4596E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C6743DE936FF7E8C86A9E9DC7F53A0FAD7F30B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F30EC5434319637DC94A3314E608F545B5B152AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:12E52A4FA2DDD91169319A8DED1E47CB812214D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Tsuihou sareta Cheat Fuyo Majutsushi wa Kimama na Second Life wo Ouka suru | Chi
 ```bash
 magnet:?xt=urn:btih:10C328A29806677016EF0D051C41D969609AE996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Matchbox. Фильм / Matchbox the Movie (2026) WEB-DL [H.265/2160p] [4K, HDR10
 ```bash
 magnet:?xt=urn:btih:839E650079E77A7452C141A062A38F486FF02611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Magic Knight Rayearth (2026) | Рыцари магии (2026) [2026, TV, 1 из 
 ```bash
 magnet:?xt=urn:btih:C5C201CBCD373EBE629BA8B9E431498DDDEE1D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ Sekai Saikyou no Majo, Hajimemashita / The World's Strongest Witch / Сильн�
 ```bash
 magnet:?xt=urn:btih:3760C95DA1003EB3B4E52B1DF0A8825B04B635A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ Ranma 1/2 (2026) | Ранма 1/2 (2024, третий сезон) [2026, TV, 1 �
 ```bash
 magnet:?xt=urn:btih:445578A85E4E17466861C622E2F6FF88342118CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Sasaki to P-chan 2 / Sasaki and Peeps 2 / Сасаки и Пи-тян 2 [2026, T
 ```bash
 magnet:?xt=urn:btih:C7E1F05CEB4E71D16CB5B235634C02621BE8105C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98AB7CC4AD09DE7D15307B8C172D622CF4FB5CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FB361E72190C0C7BF110E4E02818CC2E602A655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88EA4915DABA12178A9514D77A80A27430536F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F12DE8F3B01B0C30883AB09EFAD0019E3100D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:C34EAEE0BB42D7766B97675679DD7376D3F258C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Yenra - Compilation (2025) [MP3|320 Kbps] <Electronic, Vocal, Disco, Euro-Disco,
 ```bash
 magnet:?xt=urn:btih:4F6FFAEABD6E64CD0B74A10CA721F45A1FACC263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Reyvi - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:F114EC9EB480812B3064191C71BC54FC3302A23B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11C9619640D5BF7A55854268D4470ABD03D2BDCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C741D1C383234F1614101264DAABB969A0DBD75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Grayceon - Then the Darkness (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 ```bash
 magnet:?xt=urn:btih:8A1513613AA9F4A411A4F41ADB6D111CB3B91995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Ward XVI - Identity (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Avant-Garde
 ```bash
 magnet:?xt=urn:btih:0C4044975EC07F012E93A0E8200817D3E514956D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Candice Ivory - New Southern Vintage (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ```bash
 magnet:?xt=urn:btih:9E63374EE2EC2E1FC5EB62A5143F0C73C1069B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 ```bash
 magnet:?xt=urn:btih:222ACAEA0E1D5D66D14A241AE800EC44C4AFA200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Werkdruck — это шрифт с засечками из старых добр
 ```bash
 magnet:?xt=urn:btih:4F49459064DE5692B1A6D32456EE244065CA918B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Paradise Lost - Ascension (2025) [MP3|320 Kbps] <Doom Metal, Death Metal, Gothic
 ```bash
 magnet:?xt=urn:btih:56B097A2B0A9E1AC2CEB88341C1FD5A2FEE5FF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Black Satellite - Aftermath (2025) [MP3|320 Kbps] <Alternative Metal, Industrial
 ```bash
 magnet:?xt=urn:btih:7F17E7B60DB0D60FEB2AE83887FCFCDEF2882E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Yasmine Hamdan - I remember I forget (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:0C2AC27BB059D0ADA03C5B85AB1A6159D4C6827E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Native American Music Consort - The Calling of the Wolf (2025) [FLAC 24/44.1|Los
 ```bash
 magnet:?xt=urn:btih:7FD5DB64ABB0A8812A030137A7D900CAD7D5DE4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangel
 ```bash
 magnet:?xt=urn:btih:B2E9B8094D70BCF5A963611174D8B153F59F61C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Summer Wars | Летние Войны [2009, Movie] DVD9 480p raw+rus
 ```bash
 magnet:?xt=urn:btih:2C862A7CA8830C75868644780BE0D4573989145D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ VA - Armin van Buuren - A State Of Trance 1243 (2025) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:9C595DC2B04C88FA3FE65696A243D0BFD49C1ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F5876BE8AC11ABFF58D92AD9A23B3F85E645418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Surgical Steel - Cranck It Up! (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:DB5B81A219CE0E9CF30CAA6D252203C9AC10C173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ VA - Dancefloor Sessions, Vol. 04 (2025) [MP3|320 Kbps] <Dance, Club, House, Ele
 ```bash
 magnet:?xt=urn:btih:6E76956000444E21C93C8F8667D9A7C5514F1417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Electric Land - Love 67 (2025) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CD5F1E1A8B559EAA0563034C46AE5EF2207114AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Byousoku 5 Centimeter | 5 Centimeters per Second | Пять сантиметро
 ```bash
 magnet:?xt=urn:btih:8C01A06E0199F7C403545113E66D259412C53B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Arjen Anthony Lucassen - Songs No One Will Hear (2025) [MP3|320 Kbps] <Prog Rock
 ```bash
 magnet:?xt=urn:btih:F7DAC6F08EDD9BC02CE7B1DC85AD6413F7A93EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Clara Mae Hollins & The Royal Blues - Clara Mae Hollins & The Royal Blues – Bl
 ```bash
 magnet:?xt=urn:btih:3C1E361BE7A4AA87D7117754B08B906E7E897C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ AfroHits поможет вам ускорить рабочий процесс и
 ```bash
 magnet:?xt=urn:btih:BCDEFC32A9D09DD3C14A9679E5BA842252795664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Sins Of Omission - рок-группа из Стокгольма, Швеция. 
 ```bash
 magnet:?xt=urn:btih:47D73380091BA6939F041E1BE8C65A1D1BA970BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ VA - Ori Uplift - Uplifting Only Episode 658 (2025) [MP3|320 Kbps] <Trance, Upli
 ```bash
 magnet:?xt=urn:btih:B1A14F71DE7168BEC2771643ECAC994AC7FB3417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

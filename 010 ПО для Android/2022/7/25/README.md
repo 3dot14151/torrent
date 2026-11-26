@@ -20,8 +20,7 @@ Document Scanner - PDF Creator 6.5.7 (Pro) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:48044DCA02307B0762F360439E88222AE0AEEF42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

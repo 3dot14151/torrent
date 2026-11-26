@@ -19,8 +19,7 @@ AltLinux 8 СП [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:891552B57EA36117B9FB3FB12BD05E2DA7512E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

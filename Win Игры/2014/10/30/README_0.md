@@ -19,8 +19,7 @@ Silent Nights 2: Childrens Orchestra (2014) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:F93EBB4906A35DF598EEF1A9FA2C21B3F2ECC79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nevertales 2: Shattered Image / Несказки 2: Сломанное отра�
 ```bash
 magnet:?xt=urn:btih:BF914D18A2F09105B8843BC4A41EB4CB577F5236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ominous Objects: Family Portrait / Зловещие вещи: семейный �
 ```bash
 magnet:?xt=urn:btih:2B803CD403A3043BEB93117F0414E96D0855A3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Secrets of the Dark 4: The Flower of Shadow / Темные тайны: Дьяв�
 ```bash
 magnet:?xt=urn:btih:7FBCCBD5023E2E5C73C772C5C402B2CE417DDFC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

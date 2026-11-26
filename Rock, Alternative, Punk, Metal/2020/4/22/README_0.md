@@ -22,8 +22,7 @@ Wildside - Formerly Known As Young Gunns (2020) [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:376FDC1F25DDE61C0B0806B8DB55AC167B95883E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Andromida - 3 альбома + 3 EP (2016-2020) [MP3|320 Kbps] <Progressive Meta
 ```bash
 magnet:?xt=urn:btih:2CEC176B98C2C0D2796D7600EDDB35810EBE191A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Yurcash (Юркеш) - Каралі Карпаратівав (2019) [MP3|320 kbp
 ```bash
 magnet:?xt=urn:btih:49F225881B105432EEB3E95783D596FE63A6E76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Other Lives - For Their Love (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 ```bash
 magnet:?xt=urn:btih:B76F2AF497BEB6B20EDA96398F93DB4C9B8A8546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Guitar Heroes (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:282C2E162D90C5561760243AD138E8B0C45790D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Classic Progressive Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progre
 ```bash
 magnet:?xt=urn:btih:398A0C88CFDC58860A2657DE2B88E7E0BDC8382A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Kozak System - Закохані злодії (2020) [MP3|320 kbps] <Ethno Rock, 
 ```bash
 magnet:?xt=urn:btih:CCC7C64E48F03E2BBC8147BE17A6A82A55428D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD6F850A25D879DA3C44D2E1784B19D489288911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

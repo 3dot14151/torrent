@@ -19,8 +19,7 @@ DVB Dream 2.7.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E4A5FC9FDB15832567996EE09A878EC30EC14118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

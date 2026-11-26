@@ -20,8 +20,7 @@ MegaMan Unlimited (2013) [En] (1.0.1) Unofficial
 ```bash
 magnet:?xt=urn:btih:97235B7A7ABDB3A8E7D384325DB60A7B5FB59BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ East India Company Collection (2009) [En] License PROPHET
 ```bash
 magnet:?xt=urn:btih:D12B7BDF5DB094F5D87979470730438BB6152511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

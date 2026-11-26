@@ -19,8 +19,7 @@ DOM & podium – яркий, уникальный глянцевый журна�
 ```bash
 magnet:?xt=urn:btih:59EADC5487F38B80D6981B9BD2588A2EDBFDE957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DOM & podium – яркий, уникальный глянцевый журна�
 ```bash
 magnet:?xt=urn:btih:DEEAD456C8B0554E566A6DC95D920E7BB86A32BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C660B645D7908297C7A6ECA7FE2D0A6AFBF55F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

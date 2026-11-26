@@ -19,8 +19,7 @@ Nevertales 6: Forgotten Pages Collectors Edition / Несказки 6: Забы�
 ```bash
 magnet:?xt=urn:btih:13FD870EB85BB300801860193F319FE0CBC8A093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Demon Hunter 3: Revelation / Охотник на демонов 3: Разобл�
 ```bash
 magnet:?xt=urn:btih:71B6A7252BB9B1BC65A9666C1EB5E361656FE27B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

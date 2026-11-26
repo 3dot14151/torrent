@@ -21,8 +21,7 @@ Aiseesoft FoneLab - программа для восстановления ут�
 ```bash
 magnet:?xt=urn:btih:0A9A53179C3FEF083E76B28FCF6922BAB4238DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

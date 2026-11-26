@@ -19,8 +19,7 @@ Velen 2.0 / Велен 2.0 (2019) [Ru/Multi] (2.1.3) License
 ```bash
 magnet:?xt=urn:btih:0AC1760C24E9638096E06130BBFDF638B4616A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legend of Ahssun / Легенда об Ахссуне (2018) [Ru/Multi] (1.2) Mo
 ```bash
 magnet:?xt=urn:btih:93C2F4E250355481565BC6F0EAED0F794EC16A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

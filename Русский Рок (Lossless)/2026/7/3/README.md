@@ -22,8 +22,7 @@ CD1 - Путешествие (1981):
 ```bash
 magnet:?xt=urn:btih:6CBA587E3280A44EA8AFA414255CDE5B6E4C4D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

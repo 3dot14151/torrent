@@ -20,8 +20,7 @@ Haunted Halls: Green Hills Sanitarium Collector's Edition / Дома с Прив
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Youda Survivor (P) [Ru] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Brothers in Arms Hell's Highway [Ru] 2008 | R.G. Spieler [Repack]
 ```bash
 magnet:?xt=urn:btih:10B3001FDC95235F843216C9524E4669C9B125ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

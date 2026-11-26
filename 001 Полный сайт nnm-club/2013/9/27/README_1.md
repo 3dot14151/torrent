@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:25057AB61D9CA3FA591CF8D2F3719293EA452F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB78565489CF411A53C153E8FD900F9B790A0AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Dead Or Alive - Fan The Flame (Part 1) (1990) / Epic, Sony Records / [APE|Lossle
 ```bash
 magnet:?xt=urn:btih:CBD79167F08EBD4B5257CB50C66B45BE05AD73E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB7B8A90668C6398EF5701B5ADFE635DE4CE94F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Kollektiv Turmstrasse - Rebellion Der Träumer (2010) [FLAC|Lossless]<IDM, Downt
 ```bash
 magnet:?xt=urn:btih:31D573FDC3CAA3A4C8BF81AB72B6978F923F5313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E72517E1DE356FD76E44C20D59075F1AFF8E98A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42A2B5596FBD9B651803BCAE5F4018DFFD7ADECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C83B4DF790CBB3AADAFC0025474E1247581BA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Calvin Harris - Ready For The Weekend (2009) [MP3|320 кб/с]<Electro Pop, Elec
 ```bash
 magnet:?xt=urn:btih:A6775ED04D8C31E41586986E0E95ADD748122C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ Megadeth - Countdown to Extinction: Live (2013) Live [MP3|320 кб/с]<Speed / T
 ```bash
 magnet:?xt=urn:btih:4AB009A1A615A0471FF3BEFA2C850C9C29B2FA12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ Growl — это система уведомлений и напоминаний
 ```bash
 magnet:?xt=urn:btih:24A19A6CDD30F1CD357DF6319CDC52C20B3EACE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Zedd - Clarity Deluxe Edition (2013) [MP3|320 кб/с]<Progressive House, Electr
 ```bash
 magnet:?xt=urn:btih:79ECAF37F8FB3714A58A3CDC351EB31028E43385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ Wise Care 365 - это комплекс системных утилит с пр�
 ```bash
 magnet:?xt=urn:btih:2BBE79F7F508280C9932161AB5BD90900BEC1A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:066D50E128D717215798DBE732558D11912DC27F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ VA - Epic Trance Force Vol 3 VIP Edition (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:D5C0F276D39D27B669A910CE37F80906803E1BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ Antique Shop: Book of Souls Platinum Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E108C35DB8E33F65CCB8AB1BFF3A5DEA2C0E4D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46A3595C36CCD1D108A8452F2BEE9E0F2F80A98B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +500,7 @@ NG. Калахари. Затопленная Пустыня / Kalahari. The Floo
 ```bash
 magnet:?xt=urn:btih:B82F7AAB90AFA9E206057B410278A053C8BF9DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ Tim McGraw - Tim McGraw & Friends (2013) [FLAC|Lossless]<Country>
 ```bash
 magnet:?xt=urn:btih:1A35D520C32C13FFA5CC90CE546626BE487F4ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +568,7 @@ VA - Популярный Осенний Хит-парад Energy (2013) [MP3|25
 ```bash
 magnet:?xt=urn:btih:A73387E636D0540584B8A1595BAB99597433D582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ Comedy Woman. Новый формат. Выпуск №112 (2013.09.27) WEB-DLRi
 ```bash
 magnet:?xt=urn:btih:EC3820DB882B99EF4CA80D857C68DE4B9A30F15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:719193416EDFE71296AED51353E47C98B078E6CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CEDA1EA326B053ABC9ADAF04D818B17F27B677A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +679,7 @@ VA - Лучший осенний хит. Песни для души (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:0FA62D2ABF46FD308BB8E28509A54169B3F73C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ VA - Human Trance Vol 3: Best In Vocal Trance! (2013) [MP3|320 кб/с]<Trance, 
 ```bash
 magnet:?xt=urn:btih:83DF4273BED168B75D7B919BE92C0EF7681E5195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C23947EBF8D10B1D7455C909083E783213576EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

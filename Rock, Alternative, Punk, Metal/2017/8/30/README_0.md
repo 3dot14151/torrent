@@ -22,8 +22,7 @@ The Haunted - Strength In Numbers (2017) [MP3|320 Kbps] <Thrash Metal, Groove Me
 ```bash
 magnet:?xt=urn:btih:A3DC72E7E5B80033561F04A45729386395DAAC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tito & Tarantula - Live at Rockpalast 2008 & 1998 (2017) [MP3|320 Kbps] <Blues R
 ```bash
 magnet:?xt=urn:btih:A7C4703688E9078F9E00F2AF2B7B5A7E60710F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Simon Patterson,Jochen_Miller,Airbase,Kutski,Lange - Energy 2011 @ Jaarbeurs (19
 ```bash
 magnet:?xt=urn:btih:BC54AEE10FBE329842D9ECBB5E280F6F179C796B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D67B8FB00E9CF5FE6C01C047A186FD10C1E3688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ BurnAware Professional - простая и в тоже время мощная �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F30B8BD251CE96474B20FDADA07C0C8DDC8F318C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ VA - Sonic Busters (Compiled by LIMBO) (2011)
 ```bash
 magnet:?xt=urn:btih:82AA54C772F91FCBCFB5C596F8267E74FAC245A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Serenity - Death & Legacy (2011) [MP3|205 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:0CDFC3B0905B385EFC5D8CA3976B59F5E203290F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02F21E336C2E5D9535E4D0E28F0C908DF8667C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Charlaine Harris: Dying for Daylight (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:EC181DD825D37A113BD544B7DB6F4BC9F6B8523A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - Созвездие хитов на радио Record 50/50 (2011) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:AB5E5C2F3991A6AD58E03F7343018968124EE1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ NUTS- мужской журнал номер один в Англии, спец�
 ```bash
 magnet:?xt=urn:btih:0D3EFB6FEE4E0AF7290AAF16FC4600E48C87C5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Revista Eden - мужской журнал с симпатичными фото�
 ```bash
 magnet:?xt=urn:btih:6718FA6E799900FE9FF0EFEA30B70765E64BD166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Cave Quest (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:EC31B9FAB0EE6891A68435D847CB514DE6FE561E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Digital-Tutors | Exploring Modeling Workflows in Maya 2011 - Исследова�
 ```bash
 magnet:?xt=urn:btih:B416A2FA5CB54F233083A4CCFF2A1AC54C5A841B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF2FDDB8AC4359CA734CC1B12C8227242FB3A5BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ VA - 200 Хитов Позитива (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:BC63EF02684A5AAA4EECD2DA6B18A1F4D7538434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BED9CD3021337786842ACC69D7F57D7071620C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ Paul McCartney - Flowers in the Dirt (1989) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:86CD74D70D8AC2188C5DB53A0C3F4F1F9894981D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BFA59DA2CA1080755B03F602300691DF662FA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ Discovery: Разрушители легенд. Пословицы и погов
 ```bash
 magnet:?xt=urn:btih:924AC6A62FF14C709BD555AAE5BE92084154AB99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ Dragonfly - Alma Irae (2008) [MP3|320 kbps]<Epic Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:91798A8AE1EA2C1C1642C0FAB2F627DC7FA88AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ Discovery: Если б не было Луны / If we had no moon (2004) TVRip (
 ```bash
 magnet:?xt=urn:btih:6ED49695686056D01AEE721F658EA58535B82404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ Gareth Jensen продемонстрирует разнообразные под
 ```bash
 magnet:?xt=urn:btih:CB3A91C61858BDCD921E41EA8C58724C52FCFF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ Reword - это не только программа для компьютера
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33BDC52EA2A2EBD324B818BD5AD8C8970EF81AD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

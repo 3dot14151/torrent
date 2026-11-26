@@ -24,8 +24,7 @@ The Ленинград - 2 Альбома (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:86758B42AC70EE12450EB0291719420468CCABF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

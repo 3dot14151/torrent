@@ -21,8 +21,7 @@ SQL Server 2017 уже доступен!
 ```bash
 magnet:?xt=urn:btih:9421F15307094F3D8B4B7BD85F79BABA8406DF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Windows 10 (x86/x64) 12in1 + LTSB +/- Office 2016 by SmokieBlahBlah 19.10.17 [Ru
 ```bash
 magnet:?xt=urn:btih:2C652F90ABC62B161D1B41F46B3A6F0738B691D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

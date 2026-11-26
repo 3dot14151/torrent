@@ -22,8 +22,7 @@ The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
 ```bash
 magnet:?xt=urn:btih:E25D1F1B3DCF79EDAAA1372863605DF5407B4B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Pure — это не симулятор квадроцикла, да и не г�
 ```bash
 magnet:?xt=urn:btih:B5773CA6701CF8E93BCE8C07F55743EA8D544309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Majesty - Generation Steel (2015) [MP3|320 кб/с]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:D42BA980A1BBE9281D764DA2279F45A62BE01404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Black Rivers - Black Rivers (2015) [FLAC|Lossless]<Pop-Rock, Indie>
 ```bash
 magnet:?xt=urn:btih:91F389886B06E9F3BE39598910FC616699510F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Device - Device (2013) Best Buy Edition [MP3|320 кб/с]<Alt.Metal, Industrial 
 ```bash
 magnet:?xt=urn:btih:5E7B77D2AF02F72848A7DA834C1E14E89890CCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2693E3F9480CD5C7AA6EBCB7CA912F42D5DC5769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ The Gentle Storm - The Diary (2015) 4CD Limited Edition [FLAC|Lossless]<Symphoni
 ```bash
 magnet:?xt=urn:btih:1208B24D175D26A3E92EE00F8D14E1EC46E2C02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ CD2 (00:41:38)Треклист CD1:
 ```bash
 magnet:?xt=urn:btih:74D9D72C049987EDCF6702ECDC65E4AAB8F9C254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Laibach - 17 альбомов, 2 сингла, 4 lives, 4 компиляции (
 ```bash
 magnet:?xt=urn:btih:E9DEF4F1FBBC7B69A30E0AF3E514F6E1EDF8A014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Rainbow - A Light In The Black 1975-1984 (2014) 5CD [FLAC|Lossless]<Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:B61A3A1507FB34B1D6337670533CC2AB3575D58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

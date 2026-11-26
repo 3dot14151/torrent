@@ -20,8 +20,7 @@ WiFi Password Revealer – полностью бесплатная утилит�
 ```bash
 magnet:?xt=urn:btih:61C4CA8C1E45AAA9F80BC04CF537DB62DFFDD9EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

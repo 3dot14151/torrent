@@ -19,8 +19,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.05b) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:196EC2F222BF876EB87011E2A04F9812B11863F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:38F5FB7A716725C5F9D490001A75EB841F318028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SKALD: Against the Black Priory - игра, вдохновлённая роле�
 ```bash
 magnet:?xt=urn:btih:339B93CB7E9CB3C69E7C83A36F7648BC2BD74B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Braid (2024) [Ru/Multi] (0.444 revision 15517 M) Repack Let'sРlay [Anniversary 
 ```bash
 magnet:?xt=urn:btih:4B94898B2418BFD6B1D30D9BBC67A64526D5853F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Happy Holidays 5: Christmas Never Ends / Счастливые праздники
 ```bash
 magnet:?xt=urn:btih:03FE50642E470461F63DE130BF496FBF0DAE890E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.09) License GOG
 ```bash
 magnet:?xt=urn:btih:6A73F61F5ADD09F19C2A63DB77191C9505494579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:E995F4FF67F432A5D46E951F0425E3C085A27773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ ENDER LILIES: Quietus of the Knights (2021) [Ru/Multi] (1.1.6_13932) Repack Let'
 ```bash
 magnet:?xt=urn:btih:38BFBC840416F17DD077849A3666D62488F69A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Trinity Fusion (2023) [Ru/Multi] (2.8/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:12F750702569A35276B423EF66423A330348F9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Fallout 4 - это продолжение знаменитой постапок�
 ```bash
 magnet:?xt=urn:btih:03E0D6670F3ADEFDAEA3585DFC6295130222556A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

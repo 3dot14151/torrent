@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8D69EB388E3E85454E29CF2CEE593CC675F7F4DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C603966E30B30649E08BA446311D49501F7C55CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ DJ Nike Twist - TranceWave 059 @ GTI Radio (18.04.2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:EF0E7B8D01B76032066F4C657D98B97D79CDFD4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68B6BE183D1697EBB91AEECC5FC8EBF9D5197449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5E2BF28A053CF2B8F263528502DD3A4803ABE03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00B6F20144D66C6CE1DC8F9DEA04E766E69A4828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF50ED90E2640F3A4528F49AEC6F6BD339F1705A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Far Manager - консольный файловый менеджер для оп
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Tim Wheater - Mistral. The Wind Of Change (1991) [MP3|320 кб/с]<New age, Inst
 ```bash
 magnet:?xt=urn:btih:5A441F1A56451F21920710DED26CD8E6A479B13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ Jorn - 2CD (2009) [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0D5BB3ABD173C44E709411AAB8C0C7F9B9903E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5EA7E08AF040C4362B420A5B16B4B3BC7B4A552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Blindaje 10 - Seduceme (2013) WEBRip [H.264/1080р]
 ```bash
 magnet:?xt=urn:btih:A181927BBBCF61280BC41FF45C25D7BF829234F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Burns - Limitless (2013) WEBRip [H.264/1080р]
 ```bash
 magnet:?xt=urn:btih:99BC62F1D332A55C66E92B8005F64D5D150396B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ VA - Chill in the City: Sophisticated Lounge and Bar Grooves (2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:0D889C8F0805F60FD17CC68059201DA332E92499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64256170B91AAB2B78805AFEF741447B62E3B898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Janus - Gravedigger (1972) Reissue 1992 [APE|Lossless]<Progressive Rock, Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ Coleman Hawkins - Гений Коулмена Хокинса (1988) [FLAC 2.0 19
 ```bash
 magnet:?xt=urn:btih:9863E58F919356F9C12E3AD141AC955593BBB8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ Quinti Best Friend - Kids At Heart (2013) [MP3|320 кб/с]<Pop Punk>
 ```bash
 magnet:?xt=urn:btih:3CEE4C12E314EDAEDED0C8305880E72D83DC8FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:860AC1BC7E646D02F4C8B21575A51F52B5AB52AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ COMAN - гуманоидный робот, которого достаточно
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ VA - Chillout Emotions - Chill Out & Lounge Experience (March 17, 2013) [MP3|320
 ```bash
 magnet:?xt=urn:btih:8AA2A7B0557CC3F31560C0BF74C5682AAF5AC0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A390027B8AF0FCFB1203845D8DD6876789723CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ Cooh - ReBirth (2013) [MP3|320 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:98FFDE02A2F5F8640C99AB53F906262E6C4CF31E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ Danijay - Dance & Breakfast (2006) [MP3|320 кб/с]<Italodance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EB8E3D075B5A9E41DE54F976F4CAD4F9009F9EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

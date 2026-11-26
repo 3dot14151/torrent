@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:F042A5169D66A457992AC341AB42E40C84BD961A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B89FC5E2D0625A43F5C078FD542912300247E2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:139CCACCECE0416FDD5629876F10499F1FBFC208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VA - Hot Party Winter 2019 (2018) [MP3|320 Kbps] <Dance, Lunapop, Indie, Neo Sou
 ```bash
 magnet:?xt=urn:btih:6A50EEE2E620982FF0469A784C20DDC6EE8D84CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AF68BCF0F9E4B96A24B25FBC880D15436206ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Zapp - 4 Albums (1980-1985) [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:155EAC160B3EFF7B6E36E8EE9D8E1CC76A3996A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ ZOE (Straub) - The Acoustic Sessions (2017) [MP3|320 Kbps] <Acoustic Pop>
 ```bash
 magnet:?xt=urn:btih:3996BAF96D3E5F31D143D6B394110567E5FC704E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAF193599CA90A9121664C4A46BC86CBC73AD1D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Revolution Highway - Revolution Highway (2018) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5002121BAA605660B59CC23FC220CE826C0BA6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F16F9F46B0EF4C1B7E4F7C4717541EA9E58C234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Ten - Illuminati (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic H
 ```bash
 magnet:?xt=urn:btih:FE4682DDE4F1C0BF7F10B2E793BC0F14EF3497EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ VA - NOW That's What I Call Music! 20th Anniversary, Vol. 1 (2018) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:324D25AB2D06AF86D6666D34B00DD0A46029056C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C119B2C1D177DB5333A79A90CC561711F73E5499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ VA - Top 50, A Playlist By Spotify Charts 18.11.2018 (2018) [MP3|320 Kbps] <Pop 
 ```bash
 magnet:?xt=urn:btih:5742A3001A98933869119D3A0F3E2B64CEB8E08B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ ZOE (Straub) - Debut Deluxe (2016) [MP3|320 Kbps] <French Pop, Gipsy-Swing, Elec
 ```bash
 magnet:?xt=urn:btih:F43A957A6608B8638A20CB4B1F3EE9E778DBBB1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B83B1764B8726042AA32F4983B1794C2154AB7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCE09A9867BE487A7B12E5CD00CDBB753AE0EDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB62F3AA6E5B175B72FAF585DAB9B54C8E355105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE06778DB8F5E15C95AFE626375DF93196F12A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Amy Macdonald - Woman Of The World (The Best Of 2007-2018) (2018) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:649D6110A6E2C895A814CC5FA43D77428541BC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Jim Brickman - 8: Just Breathe (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:B58A0635478FE113D5D74FA4FC3DB7F0C8404326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Doom Poets - Lost Connection (2018) Tech Itch Recordings [FLAC|Lossless|tracks+.
 ```bash
 magnet:?xt=urn:btih:B6A74A9014A94737967A8AAE5E5C985DD564190B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:407DC7EA91BD6C171A4C2948078EDDB627CB93FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:809EBF133B3FA55A81BE848BF0BFA743FC7DA2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Jim Brickman - Soothe, Vol. 3: Meditation - Music for Peaceful Relaxation (2017)
 ```bash
 magnet:?xt=urn:btih:3BC548BE74876FBA697DC1F1DE0B157BAB3BEA3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B29EF2CEBC1DE8E2F49DE5E3CAE83DA57F624B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

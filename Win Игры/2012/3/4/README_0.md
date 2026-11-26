@@ -19,8 +19,7 @@ Limbo Of The Lost / Город потерянных душ [Ru/En] (L) 2008
 ```bash
 magnet:?xt=urn:btih:8BE8E9D60A02AE221925083C86B4FFFA70D11310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50CC0EC1736F6AB1FDFDC2166215040309151FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CFD694B29A339C37974CA24121B43876B886EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mystery Trackers 3: Black Isle Collectors Edition / Охотники за тай
 ```bash
 magnet:?xt=urn:btih:931A5F7876D82F67597447481C2DD128021D5E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C57FD6002DE8F4A9784EA2F1E3B96D0BC14C6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Billiards Pyramid (L) [En] (2011)
 ```bash
 magnet:?xt=urn:btih:2C9DAA6C30627A7DDEA1658BA7FC43A8488A0D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5B624E7E3C75561F616CCB8840380F15D975BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Millennium Secrets: Roxannes Necklace / Секреты тысячелетия. �
 ```bash
 magnet:?xt=urn:btih:22EB9A01001B3250D5EC35349C8C6E315C8B28A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Voodoo Whisperer: Curse of the Legend Collector's Edition / Говорящая �
 ```bash
 magnet:?xt=urn:btih:1275F6FB3D2999938B133E36938570A7CC714FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Midnight Mysteries 3: Devil on the Mississippi. Collector's Edition / Тайны
 ```bash
 magnet:?xt=urn:btih:DBEBFB85E90ED2235DB9EE026CA9BB4830C3CE72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Cheatbusters / Брачное чтиво (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:6A8B3AC9CB58499289C64478BD1D2AE43A8B5DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pizza Connection 3 (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F18F4330B6EE19B9FC3866D772C6CF2470FA8F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paranormal Activity: The Lost Soul – приключенческая игра �
 ```bash
 magnet:?xt=urn:btih:937065B5C5E1EA3232B4862E4567A315973919C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nanoui (2018) [En] (1.0.1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:61C20CE78A9B504F7AEFDE9E1EF493BBB6795370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Ghost of a Tale рассказывает историю отважного мы�
 ```bash
 magnet:?xt=urn:btih:D88E1CD5791540ED40F24E38445B777AD7385F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chimeras 9: Wailing Waters / Химеры 9: Плачущие воды (2019) [R
 ```bash
 magnet:?xt=urn:btih:514858A92C5A42231D5B9B0146A61683588C9ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

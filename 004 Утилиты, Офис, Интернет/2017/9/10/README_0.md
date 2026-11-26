@@ -20,8 +20,7 @@ FileRescue работает на платформе Windows и поддержи�
 ```bash
 magnet:?xt=urn:btih:BBCDAC05B5BA3BB701E54658163100C137B66EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ FileRescue работает на платформе Windows и (   Читать
 ```bash
 magnet:?xt=urn:btih:1A3CFCE55C2BF33312CF058D0877CD00655E28C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ FileRescue Pro 4.16.228 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B1EA10598FF6C00590BAC52430FD92326B15B174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

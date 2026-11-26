@@ -19,8 +19,7 @@ Doorways: The Underworld — это приключенческий хоррор 
 ```bash
 magnet:?xt=urn:btih:3B6B5725620CB4E9D41DF40010DB417C3E2A3494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Taken (2015) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:89279160C0BE50CC4ADCA88C1188C3964986A91F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fortify - необычная RTS c элементами тауэрдефа, в �
 ```bash
 magnet:?xt=urn:btih:13035162932FA90DEEF90E87792D71138C407D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

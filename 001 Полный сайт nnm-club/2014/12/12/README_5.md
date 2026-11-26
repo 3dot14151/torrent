@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:63980B3903061583CBF4A79E512AF6929F5ACC18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A619AB7C5690084773D0A70ED367D9DE446267DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:E35346385A8926110D527DD68488A1CB0CDFA1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:58F6E493F9E565EBC65CCBDC0DB2145F7727D876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3BBCD4B2EAD0D935562D151972FD9F617A31A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ KMSAuto Helper 1.1.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:033A4ED64BF1C8BA68CC2BB82BAD3E7CE2230A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ JDownloader - программа для автоматической закач�
 ```bash
 magnet:?xt=urn:btih:C5B4028AC637E8F2483407EF1756F0538B62C8C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Adobe Illustrator – это принятое в качестве отрасле
 ```bash
 magnet:?xt=urn:btih:1316302D2DCF368100B5626B23A83AEB02DE20B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:381B5E88C5611769F3619E686D0AFC94E2A4B94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ DmC: Devil May Cry (2013) [Ru/En] (1.0Upd3/4dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:8C54A8C1CCB981C84973F1DEDE470749FA762DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ Call of duty Black ops 2 ( All DLC ) (2012) [Xbox360] [RUS] FREEBOOT [Repack] [R
 ```bash
 magnet:?xt=urn:btih:0201D57B887CE2841F993E0A3C1CE96473C8927A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:011C9C36147582C9374976915C825BC05131956A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ ITVDN | Основы тестирования ПО (2014) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:5D340D8A40788D24655D96575731965346969B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Castlevania: Lords of Shadow - является переосмыслением �
 ```bash
 magnet:?xt=urn:btih:530521642FC98C6A14ADBECB1FB60ECBD2FA3AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66669E4D2C11EB1261ABD65C87EC4C2D43880448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9686428B984C44738FC0C161DC94A171B0156E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ Adobe After Effects CC 2014 предлагает великолепные фун
 ```bash
 magnet:?xt=urn:btih:76FF4DD7689C6280AFDE0AFA68EFC4E9455C47EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79D5B6D5D643BC7C24A30ECAEBCBAD501FF73338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2238889ABA52DF78608B6806E890EEFD4F07943F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ X Rebirth дарит игрокам новый игровой опыт! Нови
 ```bash
 magnet:?xt=urn:btih:6C3F8980AA30818240470784A4975D0C6E348D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ Boot USB Sergei Strelec 2014 v.7.4 (x86/x64/Native x86) (Windows 8 PE) [Ru]
 ```bash
 magnet:?xt=urn:btih:7051EC0C5CC76BE796B6ACCAF87D7C11AE5613F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ Pandemic Studios приглашает вас сыграть роль дивер�
 ```bash
 magnet:?xt=urn:btih:F2C6592C08714AB4D5A24C6E285D82249F033A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ X Rebirth (2013) [Ru/Multi] (3.0/1dlc) License Reloaded [The Teladi Outpost]
 ```bash
 magnet:?xt=urn:btih:D6A458E94B1626A5260C05E92933B38074F2AE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E53329B37FBCA61A7A54797438C23F376F7AC846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

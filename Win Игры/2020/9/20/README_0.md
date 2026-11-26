@@ -19,8 +19,7 @@ The Dungeon of Naheulbeuk - это ролевая игра, основанная
 ```bash
 magnet:?xt=urn:btih:ED7CD869C6E55BA6F3A7EDB7C5BF878B497CCD52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shiny Summer (Блестящее Лето) — это увлекательная
 ```bash
 magnet:?xt=urn:btih:D8A90CA3B532F62367CED419EF2F36C1871475A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hot Lava (2020) [Ru/Multi] (1.0.431329) SteamRip Goldberg
 ```bash
 magnet:?xt=urn:btih:5A6BCC87959218D24D0F97512550F2EB14456535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Multi] (1.0 373 34341) Re
 ```bash
 magnet:?xt=urn:btih:9062B2663A90B2024B97EBC5CFF9A98130275116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

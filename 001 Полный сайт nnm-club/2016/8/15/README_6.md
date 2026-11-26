@@ -18,8 +18,7 @@ Fallout 4: update (2016) [Ru/Multi] (1.7.12.0.1) SteamRip [patch]
 ```bash
 magnet:?xt=urn:btih:4C466285E581DDD2F997DD34B3B6895ECC738CE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Best Of 90s (Revisited) (2016) [MP3|320 Kbps] <EuroDance, Synth-pop, Electr
 ```bash
 magnet:?xt=urn:btih:37C79E4EA416D76F954466A0992E3DFA1AC2F2C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BB3CEACD48CB71A6208B005405E0F8E0DAB0C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60C9BD9968B7E29F3D6F51401E4D4D9810FF09E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Adobe Premiere Pro 2015.4 - это мощный, настраиваемый ре
 ```bash
 magnet:?xt=urn:btih:31F4881DBFC13D4438E077D67AA6CF74C7E0BC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5959EFDB054640DABB0BDE20F729BCC620AACAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Adobe Photoshop CC - это комплексное решение для про�
 ```bash
 magnet:?xt=urn:btih:DEBD3962526E19AE427766528CE720E5B577AD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5832D6C460E5BF1D06EF59E75F66B77D110DF17D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CC69524B45609C24150D2EE3EEADB15C83AADC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Adobe Photoshop CC 2015.5 - это комплексное решение для 
 ```bash
 magnet:?xt=urn:btih:6D59786CD41C8086F8719764AEE29E0E55AEB391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

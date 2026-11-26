@@ -21,8 +21,7 @@ VA - Dance Charts - Dance 50 (Dazu Tanzt Ganz Deutschland) (26.11.2017) [MP3|192
 ```bash
 magnet:?xt=urn:btih:24A005795D75DD12D09B541988F527C7FE696C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7206B7F78D51B0FBD1413D6F7BB5F1B95AFE12F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Fingers In The Noise - 11 Releases (2011-2017) [FLAC|Lossless|tracks+.cue, track
 ```bash
 magnet:?xt=urn:btih:7F482C3017643BB7911520753B9932C586DBC397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AE2382FBD34F62B9E52A6228DE5190CCB6455AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Samuel Eddy - 2 Albums (1991 - 1995) Discography, Full-lenght albums [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:4F6651451DAA0369AA0377C3014A509A643E780D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88874DE21AAE72D6E48920DD43A5F7E82C27D071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - Лучшие клубные новинки Vol.5 (2017) [MP3|320 Kbps] <Hou
 ```bash
 magnet:?xt=urn:btih:5CFEB5D9E67AEFF7427D681A85800C3DAF54FECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Katharine McPhee - I Fall In Love Too Easily (2017) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:8739821A684B9CC8F3B75D0008461E8D4947C438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Miwon - Discography 4 Albums (2004-2017) City Centre Offices, n5MD [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:E0AE5A83344B4D94389D9A21E99CCA68E3B0ACE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - Good Story Rock And Roll (2017) [MP3|256-320 Kbps] <Rock and Roll>
 ```bash
 magnet:?xt=urn:btih:576596466A56EEEA8E16F2943FA226E39B613015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ No Comment - Break The Rulez (2017) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:99DC041F6F55530D145D6CF01F888D451B9F3095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E4F10492092F230D0124A6B78BD1E09282768EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD5595E83FDD38113FBFADBB6B3C63DF5C5FB58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0889D37D61AA61C3BE8E23FB9E9AFF71EF8A0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:33BF63CB16921EEBA57867657654381E1B428226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Bob Seger - I Knew You When (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:E8016EFEF6843D82BBE29309C9C60B9725FE025C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5197D07566B85D9DFAFEF61913190C569E2D622A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:135B0D351ECECE052C81565EBBD9A703A344FBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ Mike Lazarev - Unhinged (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Sol
 ```bash
 magnet:?xt=urn:btih:0523F7D3FFFA10D8147CA3B1D0C2158722A3DD41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ VA - По волне моей памяти 2: Том32 (Compiled by Виктор
 ```bash
 magnet:?xt=urn:btih:F0FFCAD286611854C22756125575EE092401C41F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ VA - По волне моей памяти 2: Том30 (Compiled by Виктор
 ```bash
 magnet:?xt=urn:btih:8CDE0302BAC065DC9BFBDBB28CA8CAEED4C50560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ iCash - приложение, которое позволяет вести пе�
 ```bash
 magnet:?xt=urn:btih:AD9075D1C16AEE9801B638237A37BAE0623A8F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ Johannes Linstead - Azul (2017) [FLAC|Lossless|tracks + .cue] <Instrumental, New
 ```bash
 magnet:?xt=urn:btih:D7B79584F19C0547920189B4F02DFBE0DAB7BD60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3108F9058DB731A16120E9EF84068989CB79AF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

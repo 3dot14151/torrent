@@ -28,8 +28,7 @@ VA - Essential 70s (2003) 2CD [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:E3AF478B01101F63672EA9116C50F8E1CAC369A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Kaiser Chiefs - Education, Education, Education & War (2014) [MP3|256 кб/с]<I
 ```bash
 magnet:?xt=urn:btih:A160590D6D8645EEA500C83DCB76D0F1AB68A146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - A Tribute To Creedence Clearwater Revival (1996) [MP3|256 кб/с]<Rock, Co
 ```bash
 magnet:?xt=urn:btih:A244A36BFA683A3E2C5A4CDDB145D1F783488F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Disc One: 1976
 ```bash
 magnet:?xt=urn:btih:CA2302A21229124973005DA13D4E4BD650E2A24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Pantera - Far Beyond Driven (1994) 2 CD, 20th Anniversary Edition /2014, Rhino R
 ```bash
 magnet:?xt=urn:btih:21CBAEFA21D337829FE29B811D5729A913DF88E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Chevelle - La Gargola (2014) [MP3|320 кб/с]<Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:ADA6402C6618B6365F73A39774BDE49DEF66BB67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:170BB1F061FAAD589A0C8E8147661A160766F88B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BEE9182714BC10F680D6FF3371CE252FB97FAA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ VA - Best Of Rock (2005) 3CD [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:DABBADA91493C942E9BC25C1E6989CA7542B190A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

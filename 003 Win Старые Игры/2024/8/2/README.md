@@ -19,8 +19,7 @@ FlatOut 2 (2006) [Ru/Multi] (1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E20D83D132EA7A894292FB0FA681A9C27C1A02F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

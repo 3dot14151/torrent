@@ -22,8 +22,7 @@ Led Zeppelin - Led Zeppelin II (1969) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Blues 
 ```bash
 magnet:?xt=urn:btih:1B4ADAF8FA9FC66C1424E026D030BD04EE0979ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

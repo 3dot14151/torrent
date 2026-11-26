@@ -19,8 +19,7 @@ Scientific Calculator Pro / Научный калькулятор Pro v2.5.4 [Ru
 ```bash
 magnet:?xt=urn:btih:2D2A738D22F1942C41632F0D39CBA828CE9E0973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

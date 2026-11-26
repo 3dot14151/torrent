@@ -27,8 +27,7 @@ VA - Trance Shivers Volume 28 (2015) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 ```bash
 magnet:?xt=urn:btih:40DA890AE0D83017BC978659F9BC6142F5B7F8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Trance Symphony Volume 41 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance
 ```bash
 magnet:?xt=urn:btih:377B98F81F162E512361A8B38B9C27A7BF20CBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #134 (2015) [MP3|320 кб/с]<Voc
 ```bash
 magnet:?xt=urn:btih:B092026B85819B102E54603EA058BD8453714032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Turnstile - Non Stop Feeling (2015) [MP3|320 кб/с]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:07A1F86711577C79A02C42FD016F29C57CF02C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ VA - Epic Vocal Trance Volume 34 (2015) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:DE4627C54A8ACC66EADB2F7D88AA517308C0E936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD9DBD915880F8F9E5946B7CB7B10ADDB5444C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF9D866FFD99B3DD3F177AB74D72096379FA3B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ VA - Whisper of Consciousness Volume 63 (2015) [MP3|320 кб/с]<Vocal Trance, U
 ```bash
 magnet:?xt=urn:btih:55C970D32B654AC41B29282BCEA6A2854A156FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ VA - Delicious Days With Chilling Grooves Top Chillout (2015) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:413DF4FD72DC38C027215E7EBCA95179B908977B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ VA - Voices in my Head Volume 76 (2015) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:070EB33BAA300C7B82B7E986D7D56371D344D6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AEEF5C22ADF00F1C2DEE6E156F919D128027347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ VA - Vocal Passion Vol.72 (2015) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:B5279FE5458CE4A7F3DE088236182945390D0D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ VA - Come and Chill With Me Relaxing Chillout Songs (2015) [MP3|320 кб/с]<Dow
 ```bash
 magnet:?xt=urn:btih:EEE772E730F89D3737B7459042AA9698B1147DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ Eyehategod (известны также как EHG) — американская
 ```bash
 magnet:?xt=urn:btih:FC95B145A0142708366B1CCDB6DDC29383737A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:545716B113597E01374664E03CF71459516FDF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:579C7EEE8796F32ECE92D1F5D412EEA6EE69B7FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +511,7 @@ VA - Музыкальная хитовая волна (2015) [MP3|256 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:3EF41CB1D36BDB8DEF303A8E56D9D5BAC054626C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ VA - Lovely Mood Music - Best Of 2014 (2015) [MP3|320 кб/с]<Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:33A23475A9C9B2C9F935398E53F71A48D6F57E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B545B462C7E862CF6F197855009742B082EE2780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ VA - ArminForum Birthday - 7 Years Anniversary (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:0B624C9028579A352DB2B89960A4760CDCF1C16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +629,7 @@ VA - I Need a Cup of Coffee - Sexy Chillout Vibes (2015) [MP3|320 кб/с]<Loung
 ```bash
 magnet:?xt=urn:btih:B9D10D462FF57AA643E9924AFFFCA84826CACF7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +663,7 @@ Grainne Duffy - Out Of The Dark (2007) [MP3|320 кб/с]<Blues, Blues Rock, Blue
 ```bash
 magnet:?xt=urn:btih:7109DD2BE04D19FC93DAE9D8261A8954DA58A6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +697,7 @@ VA - Q-Dance Hardstyle Top 100 2014 (2014) [MP3|320 кб/с]<Hardstyle>
 ```bash
 magnet:?xt=urn:btih:69288980009DCEA22C35BFC3D0B8CEF5CCFEE530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +755,7 @@ VA - Distant Hunter 100 Hits Remixed (2015) [MP3|239-320 кб/с]<Bigroom, Progr
 ```bash
 magnet:?xt=urn:btih:626F841E37888974E1EB6B1BCD43C10FE588564C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +780,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E9A6590756532D85A2913242D73BFAB2D1D82C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

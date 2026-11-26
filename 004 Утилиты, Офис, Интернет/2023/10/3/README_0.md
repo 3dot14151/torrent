@@ -21,8 +21,7 @@ CintaNotes — это небольшое и удобное приложение 
 ```bash
 magnet:?xt=urn:btih:795B23282AB0DF92BB283564507A6AACB4B0E559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Discovery: Стальные мышцы / American Muscle (2014) HDTVRip (Вып�
 ```bash
 magnet:?xt=urn:btih:151FAA2406C0E32603DAF128EF300C8AAEA4A5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E47307FCAC8F49BDC2F3656D87530CFDD4ED26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Mushishi Zoku Shou / Мастер Муси (ТВ-2) [2014, TV, 11 ep] BDRip Hi10
 ```bash
 magnet:?xt=urn:btih:AEB47D6EAD014AEB0A224E106EC0446F8EBD3D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Psycho-Pass 2 / Психопаспорт 2 [TV-2] (2014, TV, 11) HDTV 720p Rus
 ```bash
 magnet:?xt=urn:btih:0ACF64AFD899FEB4FAAACD389C97B829BF5C7F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C0FDEFB3CACE4001430A203FDB159C3ECFE58CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0DCCCF0BAE521B0233A105770E215661A2E5DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Braveland Wizard (2014) [Ru/En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B20CB4C48C2D29F55434A39D660D123FA6579CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C0763D5E39A9779C24A3206C6D4160EFEC52DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC3E598A5940EEB8A87E135C4BA979DF713FCFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Abyss Odyssey (2014) [Multi] (1.13) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:AAF0EB98748D83407E92ACCC6350175624CE99FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Ultra Street Fighter IV (2014) [Ru/En] (1.0.4/10dlc) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:CD7A70EDEA9870BC09A4D4C074612E3BBA4B305F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Sleeping Dogs — это экшен с открытым игровым миро�
 ```bash
 magnet:?xt=urn:btih:7B345ADACB4F75AD45FA52998C6E980068B536FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Microsoft Office 2007 предоставляет удобные и просты�
 ```bash
 magnet:?xt=urn:btih:151B5928BDFED5D5A4372E8D025A62E6C8587470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ iGO - программа спутниковой GPS-навигации, созд
 ```bash
 magnet:?xt=urn:btih:19CA48DDA85EF9377BF003BF88F354F2F9A2AE23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Age of Wonders III - давно ожидаемое продолжение отм
 ```bash
 magnet:?xt=urn:btih:E0DEE74EAE3C6D0C7AA982E0386424441DBEC77D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ Sleeping Dogs — это экшен с открытым игровым миро�
 ```bash
 magnet:?xt=urn:btih:4184084E6D5123D16388DFBE5678861639FBCFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AF716973BA6B709D7A7D4186BBCE714FB252275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06FE73A64A495B34B011889CF90A56A6C8FBF60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAE0E3DEDC6797F598A849066EFA2B4227F615D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ Adobe  Photoshop CC 2014 входит (   Читать дальше...   )Яз�
 ```bash
 magnet:?xt=urn:btih:FA1837D26727763582DE0CEF084DCBD9386A6339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

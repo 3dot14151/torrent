@@ -19,8 +19,7 @@ VA - Dutch House, House #15 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:444696107EAFE4A1811627D82DD5B5AEF49C1136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Montes Insania - Song From Behind A Gray Veil (2013) [MP3|320 кб/с]<Post Blac
 ```bash
 magnet:?xt=urn:btih:1CF5F71B23C93ED068232E8CA420BD8A6CB4B327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Electro House Pro V.74 (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:2FD795FED38155C00AD79B5E0AAD4D7AAD7F9779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C211A7A0BB437DF3969396EED70B2D2FE274351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Jaklin - Jaklin (1969) Reissue / 2005, Breathless [MP3|320 кб/с]<British Blue
 ```bash
 magnet:?xt=urn:btih:0DC3C0522DE3273328F82B28D4424255D497ED1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Ct2wtp & Katalonia - We don't have a leader, we're collective (2014) (Split)  [M
 ```bash
 magnet:?xt=urn:btih:168185AFFF613E5470AC78E513682E57DFE1E9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Frater - Into The Light (2012) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:74482F584D94439AB61C11A9BA91BF269BF5CE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Lurrie Bell - Let's Talk About Love (2007) [MP3|320 кб/с]<Chicago Blues>
 ```bash
 magnet:?xt=urn:btih:2DA72973DCEC75B287132E5F92057C096899F38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36AF0E908A47848E51B44F27C48BAD1AF9A05E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ The Last Day Of April - And Say Hello (2010) EP [MP3|320 кб/с]<Alt. Rock | Fe
 ```bash
 magnet:?xt=urn:btih:DAAEC76D436DB1A8209B0722A98206AD0C645705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ VA - Electronica The World Of EDM (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:0AC5C7E523816D887C0DF0B4E25AB8E4FBA043C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ Redwood Hill - 2 Альбома, 1 Single (2013-2014) [MP3|320 кб/с]<Post Bla
 ```bash
 magnet:?xt=urn:btih:4FE8EE352F3E84762DEE3162F02142A42D30FFA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +425,7 @@ Close Your Eyes - Line in the Sand (2013) [MP3|320 кб/с]<Melodic Hardcore/Har
 ```bash
 magnet:?xt=urn:btih:92BAE7FCABF19B0B4841BA15D1C70D0348B48E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ Discovery: Сверхчеловеческая наука / Super Human Science (
 ```bash
 magnet:?xt=urn:btih:67E15440C064F590E2D11210450F5647E0A527BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ Ray Kajioka - En Route (2014) [FLAC|Lossless|WEB-DL] <Techno>
 ```bash
 magnet:?xt=urn:btih:309E1062675D9B66B579B5AB93DA9A1989B4E424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ Bloodbath - Grand Morbid Funeral (2014) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:36031354B9024C55F3054D82D52A16B9F3098A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +544,7 @@ VA - Drum & Bass, DubStep, Trap #10 (2014) [MP3|320 кб/с]<Drum & Bass, DubSte
 ```bash
 magnet:?xt=urn:btih:7288759E4020A8B4C698BC87CCD44D7E4E9C0B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E72650184A5448B9D63C92CD0DE7BFC58DC182D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +603,7 @@ Dysphoria - The Apogee (2014) [MP3|320 кб/с] <Deathcore/Mathcore>
 ```bash
 magnet:?xt=urn:btih:CB249DD0957AE3BB31902076A9C437271BBF8C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAF8A58807BDC1E07CAF7B68D5ABE1CC6613B581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:005B517BD83694A8CFC3146F99B8C347B7737B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +688,7 @@ Kaledon - Antillius: The King Of The Light (2014) [MP3|320 кб/с]<Symphonic Me
 ```bash
 magnet:?xt=urn:btih:546F6B0DB4DCB4096CE30DD96A8C618A1E612785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +722,7 @@ VA - Dubstep Reactor, Vol. 1 (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:A61D011592338DC23C934F499ADDB2D731D3CE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +756,7 @@ Loscil - Sea Island (2014) [FLAC|Lossless]<Ambient, Modern Classical, Drone>
 ```bash
 magnet:?xt=urn:btih:2E8591E719C761DF8DBDE03193F501D17C776B99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ LPF12 - Inhibition Level (2010) [FLAC|Lossless|WEB-DL]<Dark Ambient, EBM, Indust
 ```bash
 magnet:?xt=urn:btih:01DD6F8706380A2AB2025848AC2AAE98937D7FBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

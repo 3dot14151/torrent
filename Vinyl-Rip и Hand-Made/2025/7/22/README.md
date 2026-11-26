@@ -22,8 +22,7 @@ A4 Yvonne Přenosilová - Mě Se Líbí Bob(   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:D6867976673CE29AEC16CC887766E8F41E3CBD73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1. Between Two Hearts(   Читать дальше...   )Жанр: Heavy Metal�
 ```bash
 magnet:?xt=urn:btih:1714BC883CFB7745D916978CBB72608436C162E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

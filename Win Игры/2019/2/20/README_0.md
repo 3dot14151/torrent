@@ -19,8 +19,7 @@ Detective Gallo – юмористическая нуар point&click адвен
 ```bash
 magnet:?xt=urn:btih:9789BA3FE2F6841CE199263C5DA0A61591A1B476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Steins;Gate Elite — это обновлённая версия Steins;Gate 200
 ```bash
 magnet:?xt=urn:btih:96CFE6B9FE95FE5184B570F888A7D526DBCD72F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AWAY: Journey to the Unexpected (2019) [Ru/Multi] (1.6) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:613F41DDAABA8DF7B07E9B19FD7A9942AC87AD74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Remothered - кинематографичная трилогия в жанре s
 ```bash
 magnet:?xt=urn:btih:6685497879DABF86C6516019A7E8F264C85947D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Yakuza Kiwami (2019) [En/Jp] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:F60098D4C7A8DB2332A914FB8C2EEF9A2DB0525A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

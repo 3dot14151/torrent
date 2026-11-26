@@ -20,8 +20,7 @@ Folder2Iso - небольшая бесплатная утилита, котор�
 ```bash
 magnet:?xt=urn:btih:FFDDF13453D9508A1AEC508D1A30081F6C548EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Syris - Syris (1995) [FLAC|image+.cue]<Power, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:0176653794ECA9EFA9795F769ED72E2D05876E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Death Dealer - Hallowed Ground (2015) [FLAC|image+.cue]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:BFEA24B44D3D411029F6A3BB3078F5F6D7C4535E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - MOJO Presents. Let It Be. Revisited (tribute) (2010) [MP3|320 кб/с]<Clas
 ```bash
 magnet:?xt=urn:btih:45A7E95683263B973AB7534130578D9765D1D25B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Amberian Dawn - Innuendo (2015) Japanese Edition [MP3|320 кб/с]<Symphonic Pow
 ```bash
 magnet:?xt=urn:btih:0FFD8D73969671D97CD83E7F04FBBDC7A28950CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Suzi Quatro - The Wild One (1993) Japanese Edition [FLAC|Lossless]<Rock, Glam Ro
 ```bash
 magnet:?xt=urn:btih:F916CD4DD464BBFA2B35328F76405056D6E4CBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dave Gahan & Soulsavers - Angels & Ghosts (2015) [FLAC|tracks|WEB-DL]<Alternativ
 ```bash
 magnet:?xt=urn:btih:1AAB33B4E6D06D8605E7366DC19831C7AFF0B1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Leaves' Eyes - King of Kings (2015) 2CD Digibook Edition [MP3|320 кб/с]<Symph
 ```bash
 magnet:?xt=urn:btih:26A8919E48D1299CBA3646FDEA38AAAE09226937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Mojo presents. Return To The Dark Side Of The Moon (2011) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:79F1AFE78412B9D9022E81A75692E7128CCAAD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Dave Gahan & Soulsavers - Angels & Ghosts (2015) [MP3|320 кб/с]<Alternative R
 ```bash
 magnet:?xt=urn:btih:488DD43824310784D5C02D3338AB98351ACD43BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AB82D90BEED6A766AB1D7DD17227DA9CE99E6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

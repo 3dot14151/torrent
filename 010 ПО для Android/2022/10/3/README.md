@@ -19,8 +19,7 @@ Kiwi VPN Proxy от Macdep - это лучший быстрый и лучший 
 ```bash
 magnet:?xt=urn:btih:72C877670FB2FAAFE6EDF2BF0D5A5D5E0D39D003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ HAWA VPN Free Защитите свою конфиденциальность в 
 ```bash
 magnet:?xt=urn:btih:5AB537408C8A424C824423DA3E015A72E122275F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

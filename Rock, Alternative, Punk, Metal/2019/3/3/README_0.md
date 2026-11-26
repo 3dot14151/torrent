@@ -22,8 +22,7 @@ Banda Bassotti - Amore e odio (2004) [FLAC|Lossless|tracks + .cue] <Rock, Punk, 
 ```bash
 magnet:?xt=urn:btih:60853D46FA5FFF99BF11554AABF58B6A09AABDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trick Pony - Trick Pony (2001) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock
 ```bash
 magnet:?xt=urn:btih:4EA22D56F960521ABB9CB3F4BE399F39C5DD3C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Backyard Babies - Sliver & Gold (2019) Limited Edition [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:4E4C8033CEA7DE509D4F6CCA39EF246BED775495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Steel Woods - Old News (2019) [FLAC|Lossless|tracks + .cue] <Rock, Southern 
 ```bash
 magnet:?xt=urn:btih:E2717E8237E39FD79FBE32AA9A625FEE50D3E5AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87EBDA20A16617E9086DA1730998089D7C3A4FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

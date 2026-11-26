@@ -19,8 +19,7 @@ Zodiacats - это расслабляющая казуальная игра со
 ```bash
 magnet:?xt=urn:btih:6E48EDF9DAE8FB7495854CAAB30776912530640D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

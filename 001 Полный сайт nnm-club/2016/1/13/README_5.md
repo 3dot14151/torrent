@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:30DE051109CCC1940B40499B75E9384930BA5298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Remix OS 2.0 - форк Android x86 призван принести экосис
 ```bash
 magnet:?xt=urn:btih:47C283263A1E3621D2B5A48525AD2D073CC48E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ The Treasures of Montezuma 5 / Сокровища Монтесумы 5 (2016) [R
 ```bash
 magnet:?xt=urn:btih:23F5FE557050AF861D92A5759167A67193D7DAF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7FCCCEF89CD847EA0F40E13D4909631DB9F5410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Kalex29 июля 2015 года компания Microsoft выпустила о�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ VA - Старое по новому 2 (2016) [MP3|320 кб/с] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:718C2C12B54698BC64FFDD34C73795E71AC88BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Navitel / Навител Навигатор v9.6.904/1327/1978 Real CLONES UniRe
 ```bash
 magnet:?xt=urn:btih:D7B120065CD2C5CB65C8D8CA594A4A389E3BEC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E1B1B062005D7EB55405BFFCE46575B13435139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C1313AD06C51BB9F41F9CE144077EB03D498503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0912D7EC420F18242A42D894494716175538A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Musketier Media | 102 позы в сексе (2010) DVDRip
 ```bash
 magnet:?xt=urn:btih:7C3F6B519F7D5E6DEFDBB7C5BB2DB1D57E1EC577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ HTML Academy | Интенсивный онлайн-курс «Базовый Jav
 ```bash
 magnet:?xt=urn:btih:37A661F3CF9A5F889ACC9CDA741E20C8D9A88A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBE5E3BE70A0EB23DF2F580DD8AC871F07D36D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

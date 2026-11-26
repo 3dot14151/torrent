@@ -19,8 +19,7 @@ Twin Mind 4: Nobody's Here / Двуединое Сознание 4: Здесь �
 ```bash
 magnet:?xt=urn:btih:3D08A0CD2E1DD6CECC76E51BFE95A8FAF7897908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Infliction – психологический хоррор с главным г�
 ```bash
 magnet:?xt=urn:btih:829B243370BA3A537A02E45C91572058BC093A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ My Train Arrives – стратегический симулятор строи�
 ```bash
 magnet:?xt=urn:btih:49F73FB660D601D2192371B5ADDFA6E82758858C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Unalive 010 (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:56907FF5833980D6BB1E1AFD64D1625A62074E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

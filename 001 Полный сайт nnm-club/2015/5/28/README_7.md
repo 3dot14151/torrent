@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7701AF9E7F832E8EB80ADA7DBE86817530173059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Win PE XP / 7 / 8 /8.1 (x32-x64) Native EFI by Xemom1 (27.05.15) [Ru]
 ```bash
 magnet:?xt=urn:btih:1D1B20577ED50FA16F321EC819F910D32F6F0E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ The Evil Within (2014) [Ru/Multi] (1.05/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:6FCAAE3B5BDDCF704EB5E0880C13BCFD2A80E7F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Evil Within (2014) [Ru/En] (1.05/u5/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:5B012B882C865BEA9D508EF84E04B2E2B11E572E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

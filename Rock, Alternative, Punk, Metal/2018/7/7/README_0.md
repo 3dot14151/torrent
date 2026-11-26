@@ -22,8 +22,7 @@ Chris Smither - Happier Blue (1993) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Co
 ```bash
 magnet:?xt=urn:btih:787C8C327B2680B5E229FE84A43C7A547B0C7FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fractal Gates - The Light That Shines (2018) [FLAC|Lossless|image + .cue] <Melod
 ```bash
 magnet:?xt=urn:btih:405BB55FCB8D8E56B5F4A5F0F962970C23D29476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ray Davies - Our Country: Americana Act II (2018) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:3C7B0BCE1C77539CBC6B41A4E38577A8214AAB8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Livin' Blues - Blue Breeze (1976) Limited Edition, Reissue, 1997, Pseudonym [FLA
 ```bash
 magnet:?xt=urn:btih:04D7E7B3FD74393040EEC7079D4ACAB0B69F43E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Magnum - Lost On The Road To Eternity (2018) 2CD [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:A8A7B1B52DDA711E898992712AA75D76C5167E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

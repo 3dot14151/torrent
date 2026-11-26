@@ -19,8 +19,7 @@ Netherworld Covenant - это тёмная фэнтези 3D изометрич�
 ```bash
 magnet:?xt=urn:btih:447D62AA5081A7EC54A9D0CE6D297F9EED63C4DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:76555CCF25A3CC5EE8910877EB9AC423D4FDFAE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ranch Farm and Store Simulator (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9BC4F7BBCAE58B9BF60911B576C90640DD65B16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BioMenace Remastered - это переосмысление классическ�
 ```bash
 magnet:?xt=urn:btih:AF871BB5CD92FE5F95BC1A80B0528567926C562A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

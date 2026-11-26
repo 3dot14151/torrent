@@ -18,8 +18,7 @@ Apple Motion — приложениеа для создания анимиров
 ```bash
 magnet:?xt=urn:btih:F1FA1241BB5FDE79CF5D56234BC0073C8CDBC2C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Mad Max - Stormchild Rising (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8D9E6ACFD035C478D9728A158F338AFA0FF285A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Compressor – простой и мощный инструмент для сжа
 ```bash
 magnet:?xt=urn:btih:8A6426EAF8B03084F3691791A5612AA8C9B07AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E742F32399F3C60D069FAFB3DCB2AE7ED9AD176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ ForkLift – это альтернативный файловый менедже
 ```bash
 magnet:?xt=urn:btih:E7878A1A6EB40D7E908E23D54012EA09AE5DF482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Rhinoceros 6 v6.29.20239 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4DC4670493492FF81AA101641F59DBC8C69B64D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Grids for Instagram - простая и удобная программа име
 ```bash
 magnet:?xt=urn:btih:65331EAB57276D4DCFCBC1A88C25C7D52E91F1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:C313333D0AD6A8B6C88F30C85FF7EB32BD721C19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:CF79AE19DCD933C5E6B292EE5E851C08BC647C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D23C1581899112688A08F41B8970747214BA808D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ John Petrucci - Terminal Velocity (2020) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:B4272C237BAE6416B2547474F4EA152AF3142190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18479B7DFE7AB0412CFB9B4D8A758CCFB8B20305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ Movavi Slideshow Maker – это простая и удобная програ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A6944B427A959E59FF4628B9DE3A12361DD0737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ PDF Expert - редактор  PDF
 ```bash
 magnet:?xt=urn:btih:C6FBA9999E9A2A59FCBBE89074E4D999F363C2FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17A8855F437ACDF46DFA844CD2E61546DA7BC563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ Buoyancy — игра в жанре стратегия-выживание. Ге�
 ```bash
 magnet:?xt=urn:btih:6768A2ABA94BB0EC0D973669FC406231703BCD58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ Movavi Slideshow Maker – это простая и удобная програ�
 ```bash
 magnet:?xt=urn:btih:24D138651EDFD863BCD4563E4292CF4E727615B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:A71D6692DAE2DFB417558E569DF1939A86FBE6BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:974209A08BBB395C9044B351FF5930842EA387EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ DaisyDisk - утилита которая весьма необычным обр
 ```bash
 magnet:?xt=urn:btih:C075F815BD606D9BC1F31767E7828166308748F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ Complete Internet Repair 6.0.3.5003 RePack (& Portable) by elchupacabra [Multi/R
 ```bash
 magnet:?xt=urn:btih:1C6B19010ABF49FEEDCD45F2544FE097D6B0FCC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32B301A2A411727F292E3679259841B6C427FD57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ Insofta Cover Commander позволяет создавать профессио
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:ECD36DB64D6903DC4A030863013164B083FF6E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA8BE4075B9AD97ED436D6D4D5A22E2322C1BA40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F762D98441F839CD124A063AB30D5A450DA2B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Barney Kessel - Contemporary Latin Rhythms! (1961) Remaster, 2013, Warner[FLAC|L
 ```bash
 magnet:?xt=urn:btih:633110CE61F95FE64A514AA3114C238149B092F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D38C126E73FE0C2B381560C2E097FFFA92A65A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bobby Scott - The Compositions Of Bobby Scott (1955) Remaster, 2014, Solid Recor
 ```bash
 magnet:?xt=urn:btih:232DB5EFFA570D346FCA0FC584B8A7E573C67359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ John Lee & Gerry Brown - Bamboo Madness (1974) Remaster, 2015, Solid Records[FLA
 ```bash
 magnet:?xt=urn:btih:01D26C5F51BBBD3153B91EFE925563E416DC696B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sam Rivers Quartet - Lazuli (1989) Remaster, 2015, Solid Records[FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:270750C064CC2B2342715B9616C3ABFCC2D9E962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Welcome 2017  [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:35371969C4DAF87C521951F0716BF1C84213C906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Next Destination: Summer Chill-Out (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:F6A9B6BF67CB426D827D79207BCFC203C4C59987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Erroll Garner - The Complete Concert By The Sea (1955) 3CD, 2015, Legacy[FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:7E7C69771F500E5C49686525F156D21FFFA8A3C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - New Year's Lounge Countdown: Refined Lounge Music to Celebrate (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:248C9798028A988196449E3381EB2C8A727AC51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ iconXprit - Программа, позволяющая не только при�
 ```bash
 magnet:?xt=urn:btih:C7C72829EBE285B076D6BAF2BAF685A022E384DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ VA - The Best Running Beats 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:F354D3FB8702D739658BA9C5AF0DAE67EC9617F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ VA - 90s Dance Classics (2016) [MP3|320 Kbps] <Latin Pop, Jazz, Soul, Dance, RnB
 ```bash
 magnet:?xt=urn:btih:4660B9EF7FACF1A4DA04307802C0D2214A29989A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31A3FD76943536556C9773E7B0415462E6D796D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5685BC40B1DDE888457260E4EC8F6FEC20044C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5030C9D12170CEFEDCD353B1478FB279064A52F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ VA - Discoteka 2016 Dance Club. New Year's release (2016) [MP3|320 Kbps] <House,
 ```bash
 magnet:?xt=urn:btih:3E79F4562AB44C9DF5812192280076B1F8580F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:83E5A3C034BA7862D3A372078353B80810A9E117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5879BCB4947C71A2A594A980DCF10CA8E5024BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79A9E66894F5174CEDE19146DF22990C35A591B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ VA - Deepalma 2017 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu D
 ```bash
 magnet:?xt=urn:btih:4F13E0291231E0899F427BAA585E1E377466D954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3505DA0D7F64FC6DE38FF5E97F8420ED98F668D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

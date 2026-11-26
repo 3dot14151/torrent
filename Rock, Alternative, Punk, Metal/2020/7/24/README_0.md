@@ -22,8 +22,7 @@ Snakepit Rebels - Dustsucker (1992) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B3A6901CB890508620D020A83BBE9358FFE207A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stone Temple Pilots - 2011-08-03 Hampton Beach Ballroom Casino Hampton Beach, NH
 ```bash
 magnet:?xt=urn:btih:ED34FC5922F670CE42D038B7F6AEC3CAEE696C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

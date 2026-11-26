@@ -19,8 +19,7 @@ Witches Legacy 6: The Dark Throne / Наследие ведьм 6: Трон Ть
 ```bash
 magnet:?xt=urn:btih:86BB2D7D6427D979F4A9962BE83415F64D0231CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Uncharted Tides: Port Royal (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:04AA90AB0A3794479E4CBBD960DFB372E0ACED3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ STASIS – это захватывающее приключение на сты�
 ```bash
 magnet:?xt=urn:btih:4798E2DAFA90165B485058789D7C041C5FDC8ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pathologic 2 (2019) [Ru/En] (1.4.25127) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:28907811DD12F4F741F0CAA56315FE600BFB478F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Survive on Raft — это симулятор выживания на плоту
 ```bash
 magnet:?xt=urn:btih:5572F653964A770C8EC49BB9F1C7977829558453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

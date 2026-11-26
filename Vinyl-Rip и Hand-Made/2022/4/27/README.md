@@ -22,8 +22,7 @@ VA - RETROспектива, часть II: Эстрадные оркестры I
 ```bash
 magnet:?xt=urn:btih:64CDE915717A0E4E70712072D67FB8BAD86BF598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81AE1EECB178B2C91858083605D08BE16C8DEBA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Level Above Human - Final Anthropic Principle (EP) (2009) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:27E1D5AE2C00E520027CE700C3D42AAE2D4D2883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hyrgal - Fin De Règne (2020) [FLAC|Lossless|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:E3E5100634A117608E7D31712994C99F3F093254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Saratan - Antireligion (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:36490FB71AD5017DE5449A7170404C1AF0B3DD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Korpelarorelsen - Är du av den rätta tron (2022) [FLAC|Lossless|tracks] <Black
 ```bash
 magnet:?xt=urn:btih:B6F52D637A1FD82E1914499774BE903D6B992DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bloody Heels - Rotten Romance (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 ```bash
 magnet:?xt=urn:btih:1CBBE7512D18DACD2F2281AAE751E63BA7FD9855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Venus 5 - Venus 5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Glam Meta
 ```bash
 magnet:?xt=urn:btih:4CAE8752227AB226E93D49F73B6F70E60B828B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Raider - Runaway (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D16C26BB51C0E41F664FCB8C039067C26DB2A9E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Wind Rose - Warfront (2022) [FLAC|Lossless|image + .cue] <Folk Power Metal>
 ```bash
 magnet:?xt=urn:btih:12D2F4FED96C02594820AD3030C48DDD5A3B4C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ The 69 Eyes - Paris Kills (2002) Special Edition, 2015, Nuclear Blast Germany [F
 ```bash
 magnet:?xt=urn:btih:21CB5959B55A5DA9313F109DDDF40E13763B2A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Gary Hughes - Once And Future King: Part I & II (2003) [WavPack|Lossless]<Melodi
 ```bash
 magnet:?xt=urn:btih:CE96C19AA548AACC41A67B5904751470B0BD3E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Blind Guardian - A Twist in the Myth (2006) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:EDCBF284B29E2A06CE8841D998C3AA4FBAC7FB7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

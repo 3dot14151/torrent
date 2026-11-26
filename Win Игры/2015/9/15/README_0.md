@@ -19,8 +19,7 @@ Ravenmark: Scourge of Estellion представляет собой пошаго
 ```bash
 magnet:?xt=urn:btih:A0082D88E4F1AC6CD33C956E8DC261CEE6B1203A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

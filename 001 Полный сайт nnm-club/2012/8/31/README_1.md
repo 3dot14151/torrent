@@ -23,8 +23,7 @@ VA - Super вечеринка радио Рекорд 50/50 (2012) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:50C67245B09555479E8E2CDC1C8BEBEA08362F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Count Indigo – Homme Fatale (2003) [FLAC|Lossless]<House, Downtempo, Synth-pop
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ VA - Summer Vibes 2012 (Artist Recordings A017LP, 2012) [MP3|320 кб/с]<Drum'n
 ```bash
 magnet:?xt=urn:btih:EB35E4D5FDC2F144A39FA746E94EDFE3189EF8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +134,7 @@ Paul Oakenfold - Full On Fluoro 001 - 016 (2011-2012) [MP3|256 кб/с]<Trance, 
 ```bash
 magnet:?xt=urn:btih:4EA43659A84B14B9CF812A8156917FCC47FF6701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +168,7 @@ PLC - Воздух (2012) [MP3|320 кб/с]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:CAC39BCD6D3B4FC69FAEAEC74DC3979F5A71C9B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Landscapes HD Wallpapers (30.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:81E9433F432A0F82D15AC96A96EA4882BB214030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ CD 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Markus Schulz - Scream (Extended Mixes) (2012)
 ```bash
 magnet:?xt=urn:btih:B9A8196BAF70C9BE3EF3E327B20423BE4D7CE182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99AF19B163F766699D712E44E27802E694296043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ SpectraSoul - Light In The Dark / Shackles (2012) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:6BE870811F626F37691851107C18739B01D4AD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +371,7 @@ Armin Van Buuren - A State Of Trance 576 (2012) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:932D96B1BE4AF1829763EA30D811D383C05233D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +405,7 @@ Yeasayer - Fragrant World (2012) [FLAC|Lossless]<Indie/Experimental/Psychedelic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB4DC6C695590E552A376BD8DA1EEFED1705BCBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ CD 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +494,7 @@ Dynamoe - Coming Home (2004) [FLAC|Lossless]<Future Jazz, Downtempo>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +527,7 @@ Kuffdam - City Lights (2012)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +552,7 @@ Girls With Secrets [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:0768E5D8CF4D96C7D7C904EBDAAC6FE6026B2A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +586,7 @@ Dinosaur Jr. - I Bet On Sky (2012) [FLAC|Lossless]<Alternative Rock / Indie>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +620,7 @@ VA - The best Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:984444A7845F92C9FCF07E09150E403562426B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FA4495CBE7F6AFD74CFC5EB554BCBDFCC4297C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DE3489BA43D4B4A142E6EF0E6720639A8E417EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD646DB56EC483DEE68D89ADE1CFBADB1AEACF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +729,7 @@ VA - Сладкий Грех (2012) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:B7A181D2162EE972CD5317478FA8F596E7A3C5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64DEDFC4B6BD4348400E6A8301329A77FCF13037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +779,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EB6BEE4597D7B9F4D38A0B08CC0C146FEA694AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

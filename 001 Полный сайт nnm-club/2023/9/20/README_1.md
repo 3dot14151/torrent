@@ -18,8 +18,7 @@ Windows Update Viewer 0.5.21.0 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:374AC4FC6C04A740BB06020794A3E37F33794CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 ```bash
 magnet:?xt=urn:btih:C39B7064B6E0FEC50BD056AD177730FD7776FD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:EEB9F029D0FD8457C46B0A213E7D4293CFBED564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:94B652154DD5C05BD29D347E7E4E8B9A3843841B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:1FB9CBA0339BBC51EDEECE6E05DAF8EB03CC7A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:ACBAF26197AC946BAA2BE74341AFBFEC75A628B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Slade - The No.1's (2023) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6CFD824C4891076AA0954DBB016055B1DC96EB9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:B1E82C4EAF0C13B34564A1704D76506DEE0987DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ PDF Shaper Professional 13.7 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:001CACDBC9823E5E08D2CA974B049CB5F1C2A426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4C90670BF713624BE5076058A11712EA7541F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E6C2DA1C1CE0A4E5D414B1F04820D2E2DC2F325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB9B3665703FFD3354585A045625C7860C46134E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ O&O Defrag – инструмент дефрагментации дисков, �
 ```bash
 magnet:?xt=urn:btih:70ABA92BFE32D6DD01A729D22046FC22FD24018C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C4BA4A25AADB38EFFE6D61AF5D008B30C3DAF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E196070687EB55ACBD26ADE3929068B3CAA7983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Qalculate! - это многоцелевой кросс-платформенны
 ```bash
 magnet:?xt=urn:btih:1ED2F0DA4EACFE1401ED288EE366BDBFF626D636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EEFB2C2CE5EFF59231860D6239AAD1F15A14229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ IsMyLcdOK - небольшая бесплатная программа для о
 ```bash
 magnet:?xt=urn:btih:6C90DFB46FE62842721984289659467C9B11EC8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ Myrath (араб. ميراث‎, наследие) — ориентал-мета
 ```bash
 magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA781081C86BE98981188E0812366ED0751B4103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ Deemo Movie: Sakura no Oto - Anata no Kanadeta Oto ga, Ima mo Hibiku | Димо 
 ```bash
 magnet:?xt=urn:btih:F1B19B3CD282AFA75BC927FA7A81963FB1DC6042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 ```bash
 magnet:?xt=urn:btih:4DB0154C11193BBABE9D198C067B8B1381786077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ IsMyHdOK 3.93 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6AED5758E451AB685428DA712B0AED8A22D3B962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +606,7 @@ Discovery: Ниндзя. Демоны ночи / Unsolved History. Ninjas (2004)
 ```bash
 magnet:?xt=urn:btih:013EAFA761A26B3EC9C7C2E3D1C99377CC93960B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D0C1A3E3C0235B4FB4058D075C59FFD570A7CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +656,7 @@ Suicide Guy - игра от первого лица в жанре "action-puzzle
 ```bash
 magnet:?xt=urn:btih:DE3931654EC40755E713E4735A985BA3E0B8E66A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

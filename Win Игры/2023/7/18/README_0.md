@@ -19,8 +19,7 @@ Papa's Freezeria Deluxe (2023) [En] (1.0.3) Repack NotDaMazzlov
 ```bash
 magnet:?xt=urn:btih:FC5C17B8BB70E4C9CC1408C23247E8A412802579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Life is Strange Remastered Collection - интерактивное приклю�
 ```bash
 magnet:?xt=urn:btih:0DCC3473651F1B50F125167F1C8FB9ECDF32FBDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

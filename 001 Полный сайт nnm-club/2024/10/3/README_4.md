@@ -21,8 +21,7 @@ VA - RetroFutur 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, R
 ```bash
 magnet:?xt=urn:btih:86821F89D4BCEE74F368073197FE8F2A7E72C19B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:16404F92B3EB071DFBB0CC1AF08A3857C216BC53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

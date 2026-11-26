@@ -19,8 +19,7 @@ Tales from Candleforth – это самый настоящий двухмерн
 ```bash
 magnet:?xt=urn:btih:B6C9D91ADDDF07A3ED2260E9FF7967B8B6C68A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Internet Cafe Evolution позволит вам превратиться в на
 ```bash
 magnet:?xt=urn:btih:3DB1144296F1366C94DEC0372E94E9ADA52555DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

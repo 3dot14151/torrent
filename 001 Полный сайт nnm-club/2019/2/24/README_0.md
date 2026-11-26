@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6558174F6A8AF71C2CF509061A8D7556444CE572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Vera Lynn - Something To Remember - Wartime Memories (1995) Mono [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:EA55B983594AC6245942BF59FC8CA98DACB6C8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F7CC5B9BCEAF6E87D941398CC34FF1CDB36098A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Poppy Ackroyd - Resolve Reimagined (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro
 ```bash
 magnet:?xt=urn:btih:7964DDD88803EFF195529599737F7728185321B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Photo Supreme - вспомогательная программа для вла�
 ```bash
 magnet:?xt=urn:btih:CB3FA0BD3A690D6BC54B29AD257BC55CB8EAA5DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ YANS - Chupa Chups (2019) [MP3|320 Kbps] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:270175C1C9A59A37EA08DE93E165590F62EEC1E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12B2AFD4525D4F64CF8EE38A60D6D03AC6F7938E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D11501971B8FB54E80041BF3CC9462E8F4236BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Nyctophiliac - Dark Side of the Mental (2016) [FLAC|Lossless|Web-DL|tracks] <Abs
 ```bash
 magnet:?xt=urn:btih:3E03F5CE5036B82B31A2DAA74AE6CD636F72D5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Mate Translate обладает невероятно полной базой д�
 ```bash
 magnet:?xt=urn:btih:524DB9ED3A43DF44546611406D08C6AF64D25CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - Tech House Electro Sessions (2019) [MP3|320 Kbps] <Electro, Tech House>
 ```bash
 magnet:?xt=urn:btih:C971D7FED5C4C29FE66303B9AD3CBDD80F10AEFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47A74CB3E78304F29C362D429252A28D33D3264B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Emerald Sabbath - Ninth Star (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C6CE03D5633FC47138296BE03594C2B2C861E9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6679933E5AFA9BBB0DC482F457AE11376BB17523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ VA - Stelllar Atmosphere Of Trance (2019) [MP3|320 Kbps] <Trance, Electro>
 ```bash
 magnet:?xt=urn:btih:6B87701B3E6E977C77CC694792955D249D1DB0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F13FEAF86050BA66FFDBFF8C66D64914883CBCDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ The Claypool Lennon Delirium - South of Reality (2019) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:4AB3596B30F2BDE3B3EE206B4098273EB2D6289A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94B924E05AB65FE6EA8AC5DD6C4F5F7698E40BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Dictionaries 1.3 [En]
 ```bash
 magnet:?xt=urn:btih:5AB2EEDE102F7586A58AF59D07BC35AC1D636846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ VA - Record Super Chart 575 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:D0ED8ED5F3AD061352FAFBB93E8455D4B45AB790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:1376EE6760F8292D77DF5169D44AA541C739AB2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Rod Stewart - Atlantic Crossing (1975) Remastered [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:635E81A9C385861F4B3FB04A387D4B9D152875B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Andrey Zhitnev - The Best Of Playing Space and Ray Orion (2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:A691F33DCC1C4CE8B0606BEF256D36DCD2FC5E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ VA - Workout Beats EDM 2019 Power And Workout Motivation Music [MP3|320 Kbps] <H
 ```bash
 magnet:?xt=urn:btih:E0FF307772041EB8EB97AD8A774A3646BB50411A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71020ABBC017AE43FCC6A1D249B25E6BA181652E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A2F1D979ACA907EFFC83D17B54AF0C57692C6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

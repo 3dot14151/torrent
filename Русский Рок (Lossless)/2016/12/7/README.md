@@ -22,8 +22,7 @@ Messer Fur Frau Muller (Нож для Фрау Мюллер) - Allo, Superman! (
 ```bash
 magnet:?xt=urn:btih:97C11836ABCC30C6FCB71C8EE564DBA06961A4F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

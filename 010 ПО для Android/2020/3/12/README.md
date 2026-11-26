@@ -19,8 +19,7 @@ Cuticon Drop - Icon Pack v1.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7986238C8ED8F289B7B798EC7EA618E15A6C3BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Regex Finder - Весьма занятное приложение которое
 ```bash
 magnet:?xt=urn:btih:D478598572DF3B05E8F86C848A6C6EB091BF6F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Calculator 2 превратить ваше устройство в интера�
 ```bash
 magnet:?xt=urn:btih:A04FB38FC6E24C0B6086D59D66253FDD2B5290F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ DosBox - высоко оптимизированный и быстрый эму�
 ```bash
 magnet:?xt=urn:btih:8EE3C8E7E28464AD88D3726C427347070B15D5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Ghost Commander File Manager - полнофункциональный файло
 ```bash
 magnet:?xt=urn:btih:A594BD9D099B40EDA25F2ADA141DC12D6055431D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

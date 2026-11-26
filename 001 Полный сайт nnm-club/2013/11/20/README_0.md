@@ -27,8 +27,7 @@ VA - Erotic Chill and Deep House Vol 2 (2013) [MP3|320 кб/с]<House, Chillout>
 ```bash
 magnet:?xt=urn:btih:CF3F4EEFCD659809FB5CBA7B7421DD0C63EF92E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5B0DC2C5ED567195714E0618443C94BC621ABAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B10638C21F2A34F1B15C67FA10E9BE7A7FE4C388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Tierney Sutton - After Blue (2013) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:8465097B7B9EA0D231D042DFBB3A561F61DBC4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Dinah Washington & Brook Benton - The Two of Us (1959) [FLAC|Lossless]<Vocal Jaz
 ```bash
 magnet:?xt=urn:btih:065FD83FAFF190B8FAB74E8E8669BF5376C08CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50B3A767F6D1E04F449A12BC5351189D50276893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Love? - Electronically Yours (2013) [MP3|~245 кб/с (V0)]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:D6C90C7C5F2DDCDA68F9DF1D4B7B2A1C41C4E7A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Northern Kind - Credible Sexy Unit (2013) [MP3|320 кб/с]<Synthpop, Electropop
 ```bash
 magnet:?xt=urn:btih:BC4F8D4A76F94EEE3D11B031720423387F9863E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F95CCA065DE160957F7055D6F42D15629848F2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ Cyril Neville - Magic Honey (2013) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:AE679149F8220ED625B69FC5E7E7FCAC89F6D197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C5D9B5F569DEC9EE95B9C4EC148378BA135125D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Melorman - Waves (2013) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Downtempo>
 ```bash
 magnet:?xt=urn:btih:BB2013208DA9925A756BABE9BBD9C42AAD94CB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ Danny Blues - Danny Blues (2013) [FLAC|Lossless]<Rockin' Blues>
 ```bash
 magnet:?xt=urn:btih:5C02814B0675054E8FE6647A7A4A84E082D54D7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C930FC6D92A1B3BF418338B901536F44AD09AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ ESA - No - One Will Ever Touch You / False In Tongue EP (2013) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:8E5AFACD1110EB442462805726D71BB3B314E6E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +485,7 @@ Amadeus Guitar Duo  - Concierto Madrigal: Concerto For 2 Guitars and Orchestra
 ```bash
 magnet:?xt=urn:btih:7E2ED16432E4844548E70B7EB6E0D69319C9D013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9DA268B170D1E64882FE0062ED86123607500D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:673CF02247B7D8CE02E4CB4B01C45C7C5004014F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B0173060E06F48BDE19A3BAE11089B2D045B080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A3B3BCDAB5F01E50F88E0E780679D927938A1AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A34959EECEA6B0B10966AEE75459C599438B3FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A31FEB9FCF6EE33E66F6EA6F85F8C5CB644E194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E120103D6AE2BA9A25D58D9502E47B734C56283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF1ECF5187BC8192BA108B80DFAF9FEE858A15E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +747,7 @@ Gino Vannelli - The Best and Beyond (2009) [FLAC|Lossless]<Fusion, Jazz Vocal, S
 ```bash
 magnet:?xt=urn:btih:F599BE28B52DD8AA2FE80E3FC5AD588552F1DFAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

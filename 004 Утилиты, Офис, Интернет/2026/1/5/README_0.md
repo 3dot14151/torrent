@@ -19,8 +19,7 @@ IP-TV Player - это высококачественный проигрыват�
 ```bash
 magnet:?xt=urn:btih:D084DA06240DD652754F377D3ABC43C7F1645EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:B864A47D789D542F22BAB4F8DEC7E8B7529A40E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Bandicam поможет вам сделать запись игры с высо�
 ```bash
 magnet:?xt=urn:btih:F8FEAFFC1FFDD03663C8079A4B39BB6E2D7D1503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:CBB596B743D4BFAC4AD74F6696C7225B0335A3C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:FB3F85F7D265F25D4FC8FE4C5673C2AC15328EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

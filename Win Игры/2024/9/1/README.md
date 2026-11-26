@@ -19,8 +19,7 @@ People Playground – инди-игра, своеобразный симулят
 ```bash
 magnet:?xt=urn:btih:9C3AF24F7C35B6F03AE52DF38CE591EA0A88EA35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Regiments – стратегия в реальном времени, где Хо
 ```bash
 magnet:?xt=urn:btih:4CBFD9ED527907AEC1661309F2E8389419CD1CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhammer 40,000: Sanctus Reach - стратегическая пошагова�
 ```bash
 magnet:?xt=urn:btih:2B6B3E2C8116240243F96B5056814DCFA18CD842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:67E57F1D2E7FD6C4CB1B6C1D36BF2E24303E461C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Borderlands The Pre-Sequel (2014) [Ru/Multi] (2.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:6E3EFF08A388370EBB1076F9813F8435A2C6307A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Campaign Series: Vietnam - тактическая пошаговая варге�
 ```bash
 magnet:?xt=urn:btih:C34A22629D4603BC255C4FB8AF9683A82608AB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Eden Genesis - это не типичный платформер. Конечно
 ```bash
 magnet:?xt=urn:btih:4D570BB8259E485E1370BA2860B0BB519516473C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Frogun (2022) [Multi] (1.9.3) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:70934CCC48381C05F7B03F3538CA72B6812E65F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Retail Company Simulator помещает вас в гущу розничног�
 ```bash
 magnet:?xt=urn:btih:1F5BA6892F43CDAF7B86DF1EE6223FBC0C0DBEAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Grim Tales 25: Light in the Darkness (2024) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:A253D9BB19896D68004116AD71DDF196AEE26D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Frogun Encore – в этом красочном расширении/продо
 ```bash
 magnet:?xt=urn:btih:8C1876A14C7A30F3B89A5D64D9A53FBF9716B65A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Highrise City совмещает в себе элементы как строи�
 ```bash
 magnet:?xt=urn:btih:79A4A69E3E01CC74F39FE6D852B99963DB186FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

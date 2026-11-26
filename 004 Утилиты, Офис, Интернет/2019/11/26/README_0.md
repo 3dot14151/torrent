@@ -19,8 +19,7 @@ Advanced Port Scanner 2.5.3869 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:029BB1E3E1E2B33809BB97F0129EDED027A1A5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

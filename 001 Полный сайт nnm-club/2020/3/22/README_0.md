@@ -21,8 +21,7 @@ Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC
 ```bash
 magnet:?xt=urn:btih:0A2AA8688D5B4791A57CF38ECEBBFAC65B05A99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C3A93A1B9850D7584A0A9F7DEBC11009979ED04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F58AE2352B3D0D2F245258B10657ABCF0BCCC363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8743D04D8D5CDEBDE8E4A56FF7C9B2B5B90E1BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Burning Witches - Dance with the Devil (2020) [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:34ECA20158132F23474B55A7C4B992DDC825A899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Битва Dj - Chief MC Vs. Бинокль Vs. Anna Lee (2003) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:C3B25C891A7D3CACCD2CBE1F8ABA0C48AA24ECE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7891AC655CAF053CEB1C478721938C664DF23E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B35A9C105141039222B0EDA8EBF9668EC49CA862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - We Love Trance (2020) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:A26EE892997C78D8381AAEFE9A33AD0AEAD6A802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ VA - Beatport Tech House: Electro Sound Pack #35 (2020) [MP3|320 Kbps] <Techno, 
 ```bash
 magnet:?xt=urn:btih:7D2D397455E54035994B8050B608592C0D88C197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7DB3ABF637D3A829BCAB22E2697C58815F2061F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCE90A3ED96FF2DD0F7819500A0D3CD7BB81D6B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] BDRip 1080p
 ```bash
 magnet:?xt=urn:btih:D71002B92399A48DBBCFD3476EC52E6BF68E99AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ VA - Progressive Electro: EDM Party (2020) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:E73D92C67E107AAFDC2D26285D850D45A2F844B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE4691537EA671D802C40DA2EDA307D17ABE0E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ VA - DJ Maretimo - Masterpieces Vol. 2 (2020) [MP3|320 Kbps] <Balearic, Downtemp
 ```bash
 magnet:?xt=urn:btih:AFEFC2021FD65461AC334895397B02E7DA45A1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EA8BA892124B6BF9251536A9ADC66AA606C3EB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Soft4Boost AMPlayer 5.6.3.277 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FA20EFE60ED99964B96FD1B8DB87D14E0EB4E383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Digits - Widget shortcut to quickly open apps - виджет для открыт
 ```bash
 magnet:?xt=urn:btih:9EA9BABC65A314191A086983F87C12D4651492BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF33676678AA0E876FE91954E654EE8F23D45706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4942F034727B1375C9184D364DF78C28582B3250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5685891943FEC1CACB6B8063249B3DF047D3F60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4168003A48F59FEA0BEB2F48C6DFC278C3D8618A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ Akanesasu Shoujo | The Girl in Twilight | Девушка в багряных с�
 ```bash
 magnet:?xt=urn:btih:BD0879320A08B4CB8578C73E6E65C0A85330249D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ Die Kreatur - Die Kreatur (2020) WEB-DLRip [VP9/2160p-LQ]
 ```bash
 magnet:?xt=urn:btih:2444597C1E6BA139CF8865D4B2CC5C5430E84942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5C1118731FA545036ECCE08AD12C220F911E500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

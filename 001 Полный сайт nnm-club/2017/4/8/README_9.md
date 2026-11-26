@@ -22,8 +22,7 @@ Eddie Shu / Bob Hardaway - Jazz Practitioners (1954, 1955) 2001, Toshiba [FLAC|L
 ```bash
 magnet:?xt=urn:btih:04C97AB8D1571E5B262AC29998C8A249FCAC9573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Expulsion - Man Against (1996) [FLAC|Lossless|image + .cue] <Death Metal, Doom M
 ```bash
 magnet:?xt=urn:btih:9C364A6A3F10ADA9D55D0A903E940201FC264D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Valery Ponomarev - Trip To Moscow (1988) Reservoir [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:EED0405FDD7644B1314D91FD87B6FEA8FE5C383F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Expulsion - Overflow (1994) [FLAC|Lossless|image + .cue] <Death Metal, Doom Meta
 ```bash
 magnet:?xt=urn:btih:91F87C2756DDBDB5E5513BDF93E55D72F08F7B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Высшая лига. Весна (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:8F43263E01C32A92AB3FAF670C24C0881E72F2DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ben Webster - Ben Webster's Finest Hour (1934-1964) 2000, Verve [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:68764A45C8AEC0791F50C7CADB30F0C81EF309B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - На волне позитива. Часть № 8 (2017) [MP3|256 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:5EFBAF4EF1D6669FA61EE50A21E0480B60802E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD1 - Monk & Monk's Music:
 ```bash
 magnet:?xt=urn:btih:463300CB4A8DCB1E0AE796CCC124242CCD9B7AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Charles Mingus - In A Soulful Mood (1960) 1995, Music Club [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:58D3970AE4152AEED98A9486662714A76046A8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Nice Clipboard - менеджер буфера обмена, который вс
 ```bash
 magnet:?xt=urn:btih:CC3A0070005E70FA4F593256158D243914183329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Музыкальный подарок выпуск № 4 (2017) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:D5B4ED66F0F97372485A0A4EBA8136A64275E2C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Loes Swinkels - Nothing As I Know (2015) [FLAC|Lossless|image + .cue] <Blues, Am
 ```bash
 magnet:?xt=urn:btih:44F35D83BBE7AD28B55DFF9444CBBBC3E17E49CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Devon Allman - Ragged & Dirty (2014) [FLAC|Lossless|image + .cue] <Blues Rock, S
 ```bash
 magnet:?xt=urn:btih:35E807FBB1CDCB1493648C583D60CA40CD359B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Oceans of Slumber - Aetherial (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 ```bash
 magnet:?xt=urn:btih:20BF1DAC2139E5BF0135C18B467AA9C90C977BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ CD1 - Brilliant Corners & Thelonious in Action:
 ```bash
 magnet:?xt=urn:btih:E07E5939E584CC57D4E755530519622E34BD2C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Популярные весенние новинки (2017) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:C4FFF823DDC6B81916687EBFD88E13FDACFAA0E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Threshold - For The Journey (2014) [FLAC|Lossless|image + .cue] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:4615C2A7139FBF342A8B66B1799CFBAAB1361732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Furious Few - Furious Few (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:800873F8E13A2512AD3E09A9C20C5A3FCC1C0265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Oceans of Slumber - Blue (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:031633EC4C7F12551ED5AFE5A21597EF34B92F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ VA - Весенние заводные хиты. Выпуск № 3 (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:E5F219625DA59877AAADC70F17D8C09B01E2EE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Rockin' Blues - Make it Right (2012) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues
 ```bash
 magnet:?xt=urn:btih:3111099A048B7296BE24331394893B1D13DB89D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ VA - Second Envizion (2009) [FLAC|Lossless|tracks+.cue] <IDM, Abstract, Glitch, 
 ```bash
 magnet:?xt=urn:btih:EED96CF73604EADF7F099DB6882C1A8C61A004ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ SkyLab Studio - изменит ваше представление о небе �
 ```bash
 magnet:?xt=urn:btih:8F4D6CBB3CA41FC15FD0D2AAE22595B08D29D0F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ The Red Earth Blues Band - The Red Earth Blues Band (2017) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:252643305E0865443DC2317B8C485DF1D8006D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEBB0F4DB2A14EA23C47BFCE2FB618A9DE30E49E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

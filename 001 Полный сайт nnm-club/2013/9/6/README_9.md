@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:878C381BB3DB52A3677FCD18EC4E31B161016C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Killcode - Killcode (2013) [MP3| 264-271 кб/с (VBR)]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8302345686475F9D1C01263F94A7573FB028256B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Mlada Fronta - Le Cycle Du Soleil ¬EP (2012) [FLAC|Lossless|WEB-DL]<IDM, Experi
 ```bash
 magnet:?xt=urn:btih:C49798306E1D96239E45C73C7AA8C763C8438A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Mlada Fronta - Dioxydes (2012) [FLAC|Lossless|WEB-DL]<IDM, Experimental, Ambient
 ```bash
 magnet:?xt=urn:btih:B849BF8281649D6DFDFE41CD7192CE813D261A0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1BAB983A1AF25BEA1AF7F1EC5EB4F3E42D5D08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Pirana - Destructive Animal Revolution (2008) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D87E8EA172840CA947A4D43A2C69741B04ABEF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19B5A309A7A5F3CEB3F9D5B178F7B86A9064BEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Mlada Fronta - Revolution (2012) [FLAC|Lossless|WEB-DL]<EBM, Industrial, Power E
 ```bash
 magnet:?xt=urn:btih:F6D8709A2490B83585C25664ED062F54BD0EA687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:910D9A2855A0B95535AA992ADE8EC9E5EF012DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EAB00BBF5C9838581B6CE2D0DCDB79336DF9876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ADE2031E9633FDB62BDD99547714D9CDDEE6B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ VA - USA Top 40 Singles Chart (07-09-2013) [MP3|~245 кб/с (V0)]<Pop, Dance, C
 ```bash
 magnet:?xt=urn:btih:B5177E3066E930558CE6E8A94D6AF4A015159534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ ReinXeed - A New World (2013) Japanese Edition [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:32B563C812EECC26F8C2A4CAFB3C42E761DCE4EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56D41BE9654FACAB37B5FAF5555057F456C5652A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2BE045FA3ED4C31F8A5187C56BBEDFE522025B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ Naglfar - Sheol (2003) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:07E7EFD80C2055488B9814718F095A96BA000FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ Chill Out 70s - Chill Out 70's La Mejor Musica De Los 70 En Version Chill Out (2
 ```bash
 magnet:?xt=urn:btih:C69555B9B35B334F06DAEE46AC9376A8203BBE92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +564,7 @@ Frankee – Black Heart / Wonderland (2013) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:DD693792099BD28D6FA9EF6FC5E87681BBEC45E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +598,7 @@ VA - Erotic Lounge - Passionate Selection (2013) [MP3|320 кб/с]<Downtempo, Ch
 ```bash
 magnet:?xt=urn:btih:28FB090F71E842380950D5E177F83316D05530CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ VA - Adrian & Raz: Best Of Progressive Trance 2013 (2013) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:A260F685401403B2EAB1F85E37582D93FBF18DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5848481C71281FC895DB59581BE33574F7AA67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +682,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:B49BCFEF88F23FE680CCDDCAD1033B94510879CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE6654F359AD3B3FF8551A633ACA5D97682312B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:C8C46223F7BE17BE4E42DB81A5854404AEA0182B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C1D7A9864D213DE2C41D4AA0615E7ED146F0F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

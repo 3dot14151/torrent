@@ -22,8 +22,7 @@ Les Discrets - Prédateurs (Predateurs) (2017) [FLAC|Lossless|Web-DL|tracks] <Po
 ```bash
 magnet:?xt=urn:btih:8D9D266F1C5CB73896AF1F52D973F00D67687232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kaunis Kuolematon - Elama Ei Tarvitse Minua (2019) EP [MP3|320 Kbps] <Doom Metal
 ```bash
 magnet:?xt=urn:btih:920071372DCC6AC5F07696CD72C75E7BC7523DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eberhard Schoener - 2 Albums (1978) (Bass Guitar, Vocals - Sting) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:1F26059BF54767A1DD0C7238E4CB168D09E72025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Noel & The Red Wedge - Peer Pressure (1982) LP [MP3|320 Kbps] <Electronic, Pop R
 ```bash
 magnet:?xt=urn:btih:74B0D6E2924A6B56490EE446A6C81C02E43C70BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Rotting Christ - The Heretics (2019) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:DA6F932561D9D8B685FF2520C2DCAD947177FE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Foreigner - Live in Concert (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:76FCCE64A9F745C9953A2968D4B927DD5745985D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Trubetskoy - Зашевелит бит (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:7600D87AE079C4B32F3600B213286C763C709247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

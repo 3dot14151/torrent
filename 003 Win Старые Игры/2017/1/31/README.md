@@ -19,8 +19,7 @@ Resident Evil Anthology (1997-2000) [En] (2.0.2-1) Repack R.G. Revenants [Classi
 ```bash
 magnet:?xt=urn:btih:C2AC0234820906EBAB5836AFB4B67C90324B313A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc)
 ```bash
 magnet:?xt=urn:btih:39C32BDF86423135B6D87E558E56F14987B32234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5F68347352548C2ECE8E689BC745E798B8753D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3126194714A6F9BE09558E97913D457CC6D6236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MAMP & MAMP PRO 3.5.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F7B01073DCD9644F8B53F50009F626DA6D474408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:345DE9040D5909B28C64F084D0810C688E0E0397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Boilsoft Video Joiner - замечательный инструмент для �
 ```bash
 magnet:?xt=urn:btih:167C04EF21F1EB0CBC5A69F02F1C3E24CFE6164E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SamDrivers 16.7 - Сборник драйверов для Windows [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:058BBAFB97F60AD30C70C279AB1CD6F5D85FF496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Soviet Monsters: Ekranoplans (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5C78452F5ED366EB08656008C03434ED40982097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Ghostbusters (2016) [En/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A5260B26E0FF80956FE6C02C43A2D4E69ED43674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Wedding Pack III - этот свадебный пакет будет полез�
 ```bash
 magnet:?xt=urn:btih:95F713A29518BB871E7D69E1177C028C90290E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:213FA930442F23E0F04231884F66FA3FB81EDE0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Elf o Karu Mono-tachi / Those Who Hunt Elves / Те, кто охотятся н�
 ```bash
 magnet:?xt=urn:btih:0119FF1AE3052D4E794125CA7A5153E9501D2873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CE0942B373C0E8BD73C95B1965575979880BAEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4ADF56D70BB8440F0A338C4D8BD149402FD5EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Battlefield: Bad Company 2 (2010) [Ru] (795745/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:8B422FC6702695A0FB320B7F0FB041C08A67D866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0285D8C852863E4D73A726246DF926D018C730AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Adobe Premiere Pro 2015.3 - это мощный, настраиваемый ре
 ```bash
 magnet:?xt=urn:btih:21BC1C4634B508060FA35BC29EB73954301DE1F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ Kaspersky Reset Trial - Программа для сброса триала (д�
 ```bash
 magnet:?xt=urn:btih:DDCD2079115D542497AAF9176CBBE21F2FD2CEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

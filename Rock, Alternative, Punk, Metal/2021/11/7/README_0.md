@@ -22,8 +22,7 @@ Monte Pittman - The Power of Three (2014) [FLAC|Lossless|image + .cue] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:F73904AE8E1E60F10FBEBA3889BE44F751370359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Monte Pittman - Inverted Grasp Of Balance (2016) [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:A80170D26C6D8B2215C4A68526029247A0C46520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stormbreaker - Strike The Match (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:42C147DD11A8BFDFD111ACFFF7FDC702690AB52C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dangerous Curves - Summertime Highs (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:A171CFC1BF1E001DB3E943630EDD53469306E7B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Thanatos - Violent Death Rituals (2020) [WavPack|Lossless|image + .cue] <Thrash 
 ```bash
 magnet:?xt=urn:btih:E2BED4E49378EB9FDE4E4DA62C87D5344ACA9A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Crashdiet - Rust (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:E9A8637E4382B45ED9D96B02FC5ABDBEA1A63380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Deviant Syndrome - Inflicted Deviations (2011) [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:A82435B2E7654AA79A33280609CE34E11774A075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Peter Gabriel & Friends - Big Blue Ball (2008) [FLAC|Lossless|tracks + .cue] <Pr
 ```bash
 magnet:?xt=urn:btih:07EAB7A42625E94B6025A8BE1C3569A8DFD145B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:6AEB618793AE308223D597DFB05802BDADBFE511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Maneskin - Rush! (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam-rock>
 ```bash
 magnet:?xt=urn:btih:C9C06E74B3860134F0E1CDE6FF08CE9BC52B71A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87C97789F723B2105B8156D337FC3B3008DB510F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

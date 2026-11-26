@@ -22,8 +22,7 @@ Preludiо Аnсеstrаl - Оbliviоn (2018) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:CAA58047F09B16FFC7F71ED9CA04841336A80345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Amorphis - Legacy Of Time (2018) Promo CD [MP3|320 Kbps] <Melodic Death Metal, P
 ```bash
 magnet:?xt=urn:btih:E732E90119B0FF026554E69B8709FC47983F19E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ No One Is Innocent - Frankenstein (2018) [MP3|320 kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:72C55334C61BF4A72A00BE942421BC93EC2403DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Parkway Drive - Reverence (2018) [MP3|320 кб/с]<Metalcore, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:18E276AE6C4A28E8CB9DFF0A39064162D73A7951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Shinedown - Attention Attention (2018) [MP3|320 Kbps] <Alternative Metal, Hard R
 ```bash
 magnet:?xt=urn:btih:37562685BA0CCD1F6A53AAB2CBE419EB561622DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dimmu Borgir - Eonian (2018) [MP3|320 Kbps] <Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:E13EDA06F559A65BF214FACD92906611DD24DA40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

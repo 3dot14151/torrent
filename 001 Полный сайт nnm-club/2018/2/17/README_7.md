@@ -22,8 +22,7 @@ Jonah  Jones - 1936 - 1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 ```bash
 magnet:?xt=urn:btih:9FBFF4F94C69BB015EFEBB154EE8908FC07C1E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eddie Bert - Encore (1955) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, 
 ```bash
 magnet:?xt=urn:btih:7A5B77965278432B9C3633DE631201484FA92C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bud Powell - Live in Lausanne 1962 (2002) Stretch Records [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:135365FAD36E9A8B17D323433BADEB5F07F99E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ California Swing Cats - Stealin' Apples (1997) Jazzology Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:55ABDC41DA3565E5860AD4784D09E91474781240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Benoit Viellefon & His Orchestra - Mon Amour (2014) JohnJohn Records [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:BB02F96F21D218D2C3ABA3C1834E62E518B2AFC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Lullaby Ambient (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:3A3F3AA16698B9B559FA5D4622EAA004C211ADE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:448DB0A155C7D937327ABC16CFD0D502218121F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:215DC0B46EE52B45D6E208A2FF3DC9EF84CA72B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:E2F38CD9C3C3BF9075B1505130756B036FB2387D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BBD30D03B1735E91F1A4057B17A3FC1B3AF137F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - Uplifting Only Top 15: February (2018) [MP3|320 Kbps] <Uplifting Trance, Vo
 ```bash
 magnet:?xt=urn:btih:6D23BB354315E40F297B2B25E42EC7DA2D197B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:86C7CA5BED1BBEC7FF0DB5E2EA42F27B344F2601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:946C89C140B62A2410004CC20FEDAB9323D248F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:160253098DF9449B76768B037E4E6705F44D923A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:3C3B505245D88E0472BB4011781D11C0E66290FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Steven R. Smith (Стивен Р. Смит) - Log The Man Dead (1995) Autopia, M
 ```bash
 magnet:?xt=urn:btih:1C3A80E133C33652142DA8D934254AB04D54B9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:8497F4A9E3274EE48134C2503A28BD00334951E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ VA - Audiotrauma Fest 2k18 (2018) audiotrauma [FLAC|Lossless|WEB-DL|tracks] <IDM
 ```bash
 magnet:?xt=urn:btih:0520975C755600F644CA4073358879ABBE8C941D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D5C951823F8855D0D0C98E118CB7D49CAF21A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:57278B00563AD96157DD8F835637DE6F0F70C610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF0CAB0475C5232D30D5BBDBF5E05E34FD1A7371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ Recondite - Daemmerlicht (2018) Plangent Records [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:3108526C48123BA76F1DB347A1A86D91A2B5E64E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ VA - Record Super Chart #524 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:EAC13BBA0B8D12DA42A32B1D9531EA4F66E2A1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ PDF Expert - это один из лучших инструментов для �
 ```bash
 magnet:?xt=urn:btih:2D2D8D7E56AF130C5D5CF09D37C73ABA275795B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:743DBAF56815582ABFDCB37DDDBEB156FF0B06F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ Asylum 8 - Repressed (2017) [MP3|320 Kbps] <Melodic Death Metal, Industrial Meta
 ```bash
 magnet:?xt=urn:btih:586116351C82271EB0E0DE789C43F3B274C3051D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

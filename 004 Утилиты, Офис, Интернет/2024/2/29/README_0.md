@@ -19,8 +19,7 @@ MathType - это мощный интерактивный инструмент, 
 ```bash
 magnet:?xt=urn:btih:9ACC122C733BE7AF92FF98652D695DB3E76EC023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smart Driver Manager - это быстрый, простой и безопасн
 ```bash
 magnet:?xt=urn:btih:A35B74BDD473246755E6AD24E2F9016883C908B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

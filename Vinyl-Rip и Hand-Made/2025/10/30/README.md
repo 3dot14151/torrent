@@ -22,8 +22,7 @@ Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declippe
 ```bash
 magnet:?xt=urn:btih:906218C82AA30C8B47261EEF2C3CEC4C1E1C6E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

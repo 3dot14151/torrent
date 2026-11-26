@@ -19,8 +19,7 @@ Kali Linux 2024.1 [amd64, i386, arm64] 11xDVD
 ```bash
 magnet:?xt=urn:btih:5CF77367F0E6AC10018F09E7B004AE75534A7945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

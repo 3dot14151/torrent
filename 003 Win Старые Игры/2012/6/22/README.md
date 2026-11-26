@@ -20,8 +20,7 @@ Redjack: Revenge of the Brethren [Ru] (P) 1998
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Death Gate [En] (RePack) 1994 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Pax Imperia 2: Eminent Domain - игра в жанре глобальной ко
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ MechWarrior 3 + MechWarrior 3 Pirate Moon [Ru/En] (P) 1999
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Metal Gear Solid + VR Missions [En] (RePack) 2000 | R.G. Catalyst Old Games
 ```bash
 magnet:?xt=urn:btih:79F78C08AEBFD92F1B843F73271EF47D9866C163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

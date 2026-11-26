@@ -21,8 +21,7 @@ CODEX выпустили долгожданное обновление игры 
 ```bash
 magnet:?xt=urn:btih:3F1FDBEA5CC63C7BFC630AC1C1E865FB585D23D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dead State [Patch] (2014) (1.0.0.34) Official CODEX
 ```bash
 magnet:?xt=urn:btih:3E26F37045FC2C42D15739A3D42899160318FCC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Insanity’s Blade представляет из себя двухмерный �
 ```bash
 magnet:?xt=urn:btih:8D87033970BBBF4F05432B3F175E2785C76ABB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

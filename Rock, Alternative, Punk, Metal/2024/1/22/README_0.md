@@ -22,8 +22,7 @@ Bayside - The Walking Wounded (2007) Gold Edition [FLAC|Lossless]<Rock / Punk>
 ```bash
 magnet:?xt=urn:btih:E328DA8DA0D2471EC9DBD874DC15298FBFDD9ABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Karfagen - Messages From Afar Second Nature (2024) [MP3|320 Kbps] <Symphonic Pro
 ```bash
 magnet:?xt=urn:btih:FC5F1C7637C0ADD02B82BE5D64D2E951EEF3E502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Femme Fatale - Femme Fatale (1988) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0787563183C0056A9BD2768155B702D77F3C8C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pirate Hymn - Explorer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:E87C37156E9A6489947D8F11E770053FF74C8FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Haunt - Chariot  Volume 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B4E487CF18EED50B96962AAC5903800E24F6594E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Verbal Delirium - Conundrum (2022) [FLAC|Lossless|tracks + .cue] <Progressive Ro
 ```bash
 magnet:?xt=urn:btih:838D1010A9A2EA740765CAF1F4AC36F67BBFA933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

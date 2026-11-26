@@ -19,8 +19,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179951/dlc) Repack HardwareMining [D
 ```bash
 magnet:?xt=urn:btih:513366DA4997BDFF40EB3673C4821E90F4775FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Contra: Operation Galuga, последняя часть легендарной �
 ```bash
 magnet:?xt=urn:btih:DA081AE90A91B6768B1B5DD529A3370BE0AA1F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Swordhaven: Iron Conspiracy с головой окунает вас в полн�
 ```bash
 magnet:?xt=urn:btih:69B53A91F55E17D9F4DA947DC93379B69C2E86FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Toziuha Night: Order of the Alchemists это двухмерный сайд-ск
 ```bash
 magnet:?xt=urn:btih:F82E9679D8287FEF7BBA48D19E5B508E1B179BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Chronicles of Albian 3: The Vanishing Village / Хроники Альбиана 
 ```bash
 magnet:?xt=urn:btih:4D2B596D2C5DC451B5E469C820393E06EDF720B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Art of Reflection - это игра-головоломка от первог
 ```bash
 magnet:?xt=urn:btih:B821F44F81AF72F1DFC998D5B12FD8B628EFA987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

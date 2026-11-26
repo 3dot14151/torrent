@@ -19,8 +19,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:221483663C700CDE47AF7504DB61270F2428B221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Picture Bird позволяет легко распознать птиц вок�
 ```bash
 magnet:?xt=urn:btih:369FF21413D0DDE6759EC8D36168E4FECC3335B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:8BF681D95D88D36D793B2F3EE7ABB0F430CAB4D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3D45C7CA26E844F52C983C86E46AC3CF79B5CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Stellio - продвинутый плеер, с мощным звуком, по�
 ```bash
 magnet:?xt=urn:btih:CAA4A7F666A7F658BAD46B643A3D1E01AEB6F850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ IPTV Pro v8.1.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:32AFE84DFA84CEFA524EB64DAB81EA8A85497CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ WiFi Analyzer v5.5 (b91) Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B4EC90594326ADE18C5D71F377B72E0C9F5E4141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:E81931C410C6F434DFB7C338E91794D1B617ED63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ ToonMe v0.7.12 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B8BBE03842C3BCABB5BE66E9EB25DEF68E56E7D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Rock Identifier - Stone ID v2.3.39 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3429505652FF73AB36E23BFF48CA90AC64745CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Ventusky: Прогноз погоды v36.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A76DB084DBB0C0DE72A4F6F1F0A3F6186BBD0455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

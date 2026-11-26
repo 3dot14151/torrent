@@ -22,8 +22,7 @@ Karing - Утилита прокси с простым и мощным инте�
 ```bash
 magnet:?xt=urn:btih:3376331A96DE74B91B19D29E71124D8A9CB7DF66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:FFCEB0852244120C36D813D2E9E5BE2726CCACBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:26B409212BE7EFC55C452EE87A64D2C0F9F0C205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:C68AD21CA821CE614EA79648C256B6E00E141653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Revo Uninstaller Free 2.6.5 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:74A9A6D536F049E96E38504D15D0D2B6D67719E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:F979587A94E59B4795D59F935941C9B43F4E5CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ ExperienceIndexOK - небольшая утилита от разработчи�
 ```bash
 magnet:?xt=urn:btih:623C0AE289D64151333D6F28218FF111C3F333A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BCEA7A71C7C7919AD4DB0625990C358C7E3F4C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:F14D9AB6AFFF8932E036B9165079480D68E6552D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:CD91605BC655148DD1F43C6969AA21E8D1910855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:F4C0A33F68BC500200F3754A46BE85AE4AD09B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ NASCAR Racing 4 (2001) [Ru/En] (1.0.0.0) Repack WinterKiss
 ```bash
 magnet:?xt=urn:btih:9BD1D04F0E589D3E3232595DDB20F94B2FD65CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

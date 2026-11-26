@@ -19,8 +19,7 @@ The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) Licens
 ```bash
 magnet:?xt=urn:btih:95E94D2F2C80418EB2AD51012E3BE1C4B28C2B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

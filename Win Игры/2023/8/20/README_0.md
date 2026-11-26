@@ -19,8 +19,7 @@ Gord (2023) [Ru/Multi] (1.2.0.38299/dlc) Repack DjDI [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:B4BB9562566D3020E919994795E9C8DAD91BA62D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Black Skylands (2021) [Ru/Multi] (1.0.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:BA4DE3D76EF7DB1111CFBC4CC40AB1D783424AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B6837806E8676EE8A969A4421B2B560AEC626E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:7485716A8A967210D02A87E65461171A2752CE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Death in the Water 2 — это сочетание в себе напряжен�
 ```bash
 magnet:?xt=urn:btih:3E373E504FBBC7EDE33D46A418AF2822BD732846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

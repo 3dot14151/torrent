@@ -22,8 +22,7 @@ Fleshworks - The Deadventure (2009) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:91AA9B7F5A15A848CC40F99045EB9A8AF7DD910B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ancient Days - Devil's Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, 
 ```bash
 magnet:?xt=urn:btih:F2EAD19966205EED8A06356C093B7572B67758FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Elegy - Manifestation of Fear (1998) Remaster, 2023, Elegy [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:AC7A56A76CE5A5DA01B1E212A8CB69C63CC69CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ivory - Alien Nation (2023) [FLAC|Lossless|WEB-DL|tracks] <Power/Progressive Met
 ```bash
 magnet:?xt=urn:btih:62428536DCACA28BD0FAD58966753EE49A238E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Inkubus Sukkubus - She of a Thousand Names (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:28147FAC7164C3528A429C7ED5DD59CD1F974D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dangerous Toys - Vitamins & Crash Helmets - Live (1999) Remaster, 2023,  Deadlin
 ```bash
 magnet:?xt=urn:btih:AA9FF6B74EBAB3FEEEEBAF8BFFDD1E9F6B6BEDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dokken - Heaven Comes Down (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Har
 ```bash
 magnet:?xt=urn:btih:0AC29D2F9A1605BDD43DFAFB8149BA1CA3EACC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Battle Born - Blood, Fire, Magic And Steel (2023) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:60D019D8457535E21EC498B6136237CB5A9678E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Sweet & Lynch - Heart & Sacrifice (2023) [FLAC|Lossless|image + .cue] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:BC8CB2F2AE5E48774AFF979E0881CBA4317899A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Fleshworks - Diabolus ex Machina (2023) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:9CF91D838DD18824C4F13E94634DF4F4ACE6441E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ DISC 03(   Читать дальше...   )Жанр: Rock, Singer & SongwriterП
 ```bash
 magnet:?xt=urn:btih:F5EE2520F629A36B59DE9DD98E6A21C956162E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Solarcycles - Lunar (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Folk / Pagan
 ```bash
 magnet:?xt=urn:btih:4E59F6B3E2E885A0F23FA9ED42D284983949A79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Arthur Brown - Dance (1975) Expanded Edition, 2023, Esoteric [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:0B084D0FFCF71AF92CE9F6950881AB528A1C610A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Aura - Hallucinations (2023) [MP3|320 Kbps] <Progressive Rock, Prog Related>
 ```bash
 magnet:?xt=urn:btih:03DFF5BD65778D170916E4F0BD305D71BADFF407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Divine Horsemen - Bitter End Of A Sweet Night (2023) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:2ECAFAF648159352AD5129E6ED30A8E8C72F7187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97A8EE5BA57DB93BCC85778C9B3FCC62C85D699C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Angra - Cycles Of Pain (2023) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:9D5F3F2E4925B9A3905FF6DF43D8BC6A7C0EE16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Doro - Maximum Celebration - Strong and Proud (2023) EP, Promo [MP3|320 Kbps] <H
 ```bash
 magnet:?xt=urn:btih:EE1D5BE4512CF479952CB68B8A296F3F082D3D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C4BB108BC2F29B3C470DBB5DCAC5D6B01A1A4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) Orchestral Ve
 ```bash
 magnet:?xt=urn:btih:94B3132B01F181B3FA59E88A80044E89DB8D3F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Bonnie Tyler - 7 Albums (1983 - 2019) [FLAC|Lossless|tracks + .cue] <Pop Rock, S
 ```bash
 magnet:?xt=urn:btih:F7CCE3BF95C6FE80D4600A9FABE6B2848597EF9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

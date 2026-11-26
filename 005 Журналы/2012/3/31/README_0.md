@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:58B83D07BEEF8A0823518DC72648E1F03C80D44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1433A33D3C74ED1FF7A6119879BFC4E58A945B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Burda — это европейская мода высокого класса. 
 ```bash
 magnet:?xt=urn:btih:FDE54E14145F7D6B7F39AEBD395C0FE98B0EF2A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Digital Photo&Video Camera значительно упрощает читате�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

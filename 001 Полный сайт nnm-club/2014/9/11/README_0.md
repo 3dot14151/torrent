@@ -27,8 +27,7 @@ Squarepusher - Ufabulum (2012) [FLAC|Lossless] <Drum & Bass, Experimental, Acid,
 ```bash
 magnet:?xt=urn:btih:2AADF2E292ED174CAA1E6C3107327287ED19DBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E78D2D7851C8C54C831681A396B7987D84FE0A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5DABCF363776BC1CFFA5CBF779EC0EA8C30E49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - NOW That's What I Call Club Hits (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:566D675AE5EE3AE4B03E83C1B84AC6050158EBDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2DBB1C37A39ABA34C969409F24529CCA4E7AA6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ VA - A State Of Trance - at Ushuaia , Ibiza (Mixed by Armin van Buuren) (2014) [
 ```bash
 magnet:?xt=urn:btih:93BBFB7D904A5E2E403D282C3AF37B21852308D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A38159C25CE86C07B7E82918663B3DF2140A35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1214D8E6F32F014EE86B16A58DE8AD6F15F21C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B070AC6C4EB62E8869C56F5D3B2EAF9FE494201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA1D5ECC6D184EB73776CF2A2F38F105C7D1940B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Pink Floyd - Absolutely Ambient (1994) [MP3|320 кб/с]<Ambient, Downtempo, Psy
 ```bash
 magnet:?xt=urn:btih:B74A0FCC38198D93FB66DB6A0DD450F83D9DA6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7ED1DCEFCF206E0839B58EEE9AD8896535CD96A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ BBC: Чудо животного мира. Пингвины / Wonder of Animals.
 ```bash
 magnet:?xt=urn:btih:54701B23DEC3CC7B8B74054BB56E2420094BB021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ Come Together - A Night for John Lennon's Words & Music (2001) DVDRip
 ```bash
 magnet:?xt=urn:btih:B08A09B1CDC94A692088C01A3074CD37B0F95E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7F69FB5FA0A531FC1A991C6AD1E51448FDC1B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0ED6D69D104A4282F0B5BE603502959D249B0085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ VA - The Best of Vocal House, Vol. 2 2014) [MP3|320 кб/с]<Funky, Club House, 
 ```bash
 magnet:?xt=urn:btih:97D9DF21861330060688B522DB98C8C47679BA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Pond5 - Color Shift - прошлогодний проект для фото сл
 ```bash
 magnet:?xt=urn:btih:27BFD29B9A127054E2E93101A6BCC10211E9285F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Pond5 - Color Slide [AEP]
 ```bash
 magnet:?xt=urn:btih:62CAE2CD3F92EF5B1121D7543F85539D0220EBC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30253FABC2E1F8C5E7D89437BB770F06E110E6A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ NG: Мое 11 сентября / National Geographic: My 9/11 (2011) HDRip
 ```bash
 magnet:?xt=urn:btih:379DEAA97A4BAAAD46B36B6D39068D5B6C161985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4F3F5DBA1F02EC876A474535D945689072F5277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ Simone Kopmajer - The Best In You (2014) [FLAC|Lossless]<Jazz Vocal>
 ```bash
 magnet:?xt=urn:btih:C1B3DA415A40C8F9FC23C11851A88696908433CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAFCE9084F9639AF28BE6A4A4FF3342677902C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D42D3F8F6C8F6124FD50602DEA17BA3E64E38E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ I Like a Beautiful Dream 2 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:3C670211842D1A48827DCB2F7552B2573CE6E79A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

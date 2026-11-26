@@ -22,8 +22,7 @@ Wisdom — венгерская пауэр-метал-группа из Буда
 ```bash
 magnet:?xt=urn:btih:E6438FAD4E4516FEF1C2A0B2E0FA85EBFEECAB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Masterplan — немецкая пауэр-метал-группа. Основа
 ```bash
 magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Football, Tactics & Glory - это футбольный менеджер для 
 ```bash
 magnet:?xt=urn:btih:F567ABDB63E7D0374F5E3D18CDA8BF692E4303B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Moonlighter – игра в жанре action-RPG с элементами rogue-
 ```bash
 magnet:?xt=urn:btih:8A6F518E7D6D9A30E397E5CE274D551946C63BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tunnels of Despair представляет из себя атмосферную
 ```bash
 magnet:?xt=urn:btih:1806D95F4030773EB28DB98CBBAC8F33C35F446B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

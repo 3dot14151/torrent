@@ -22,8 +22,7 @@ Tetrafusion - Altered State (2010) [FLAC|Lossless|image + .cue] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:B4DE35AFBF55B6FF9DE12AACF768C977E864BBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ King Gizzard And The Lizard Wizard - Infest the Rats' Nest (2019) [WEB] [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:520DEABA08B016B74E628DCD1CE4121731C1E18B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

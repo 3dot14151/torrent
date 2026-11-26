@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:CB3A0EEA396884F36FC28D0C06DCB3C16FF5DC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fight like Apes - Fight like Apes (2015) [OGG|479-566 кб/с]<Alternative, New 
 ```bash
 magnet:?xt=urn:btih:9DC31B6FDA74ABA64D77A6D1A3E1B173380DDAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dimlight - The Lost Chapters (2015) [MP3|320 кб/с]<Dark / Death / Gothic Meta
 ```bash
 magnet:?xt=urn:btih:2233761C2B6F56BE13D52C7D71CFF716A3E9DAED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ New Candys - New Candys As Medicine (2015) [OGG|439-492 кб/с]<Psychedelic Roc
 ```bash
 magnet:?xt=urn:btih:DC70116B0F4CDC5B0D0B055E7D7E42727765642C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lucifer - Lucifer I (2015) [MP3|320 кб/с]<Doom, Hard Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:ABF5C6677F2EB6BBE0C05749D45EB52AB48C9485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sleazy Way Out - Satisfy Me (2015) [MP3|320 кб/с]<Hard Rock, Glam Rock, Sleaz
 ```bash
 magnet:?xt=urn:btih:D71AF4AD8960499F385A17A9CF8C021BB8563DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:CCC270B765F63FDFD6300A76D521BFD77E1D80C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Mark Knopfler - Greatest Hits (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:2AF64E68840A07C977F6989B77B68C52FD3DCEB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B07DFF25613AE3492B008E091163EEC0BB7C2F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

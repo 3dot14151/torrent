@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:24C471FA8BE828D5217F1AB79EE18345317B2EE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Wolfenstein: Enemy Territory - это бесплатный многопольз�
 ```bash
 magnet:?xt=urn:btih:0C718F7CF8DC5B0109289861B047C4E12651BC27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:331D330D4AF42BBADDAC64495BCF5116C17E70EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40238EAE934CCCB5D7E64B4F98574AF0997711CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Live in Berlin – концерт Стинга в сопровождении К�
 ```bash
 magnet:?xt=urn:btih:6354B9B093B84B3A5B8733678EA36BB560A2A756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Windows DesktopPack 22.10 [Multi/Ru]  (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:FEF782504F2142C574A388836BE4514D1BD6E18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

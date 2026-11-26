@@ -19,8 +19,7 @@ Death Under Tuscan Skies: A Dana Knightstone Novel Collector's Edition / Сме�
 ```bash
 magnet:?xt=urn:btih:C21AB2044B34BAE52598F1B45BE9ACF36BC9C12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Azada 3: In Libro Collector's Edition (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:65C8257D287BFF819E5E8A8D6A90FE9E86B5F339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rescue Team 2 / Отважные спасатели 2 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:B21DCC6E32ABC4983341405EBB569D2F18CA1368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jane's Advanced Strike Fighters [Ru] (RePack) 2011 l Fenixx
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

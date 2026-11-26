@@ -22,8 +22,7 @@ Keep of Kalessin — метал-группа из Тронхейма, Норве
 ```bash
 magnet:?xt=urn:btih:238CFB97E998C7E3439221401141B8645FE8AAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

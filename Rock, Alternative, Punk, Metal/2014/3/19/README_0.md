@@ -27,8 +27,7 @@ Scheitan - Nemesis (1999) [MP3|320 кб/с]<Rock & Roll, Death Metal, Goth Rock>
 ```bash
 magnet:?xt=urn:btih:2EFAF221F7B3748D0C7A2DBEC0C3AA31D03CBF0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:F7C566026EA16B53FA445BD25C0565D5EB7E44B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Cabernet Deneuve - 3 Альбома (2001-2009) [MP3|320 кб/с]<Ska>
 ```bash
 magnet:?xt=urn:btih:0FD7A5FE05C3EBCF86BCC2C9F9E102B1A346F1E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ VA - Homenaje Ozzy Osbourne - Tribute To A Madman (2005) [FLAC|Lossless]<Hard'n'
 ```bash
 magnet:?xt=urn:btih:1B58E0714C1DF8AA3859D4F0A9DD1EA32BD6AF00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

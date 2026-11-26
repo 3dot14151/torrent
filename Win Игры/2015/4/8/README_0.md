@@ -19,8 +19,7 @@ Lifeless Planet (2014) [Ru/Multi] (1.4) Repack TE
 ```bash
 magnet:?xt=urn:btih:B522B1101452AA12F39C9D015FFB9B2FBB531AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Barbarian - экшен-RPG с открытым миром.
 ```bash
 magnet:?xt=urn:btih:E4413C1B6393AC328F3C88C6F561039271CA9C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Horizon - пошаговая космическая стратегия, в ко�
 ```bash
 magnet:?xt=urn:btih:C3BA3828B1C091DF7EA4F64B768BA58C5AD3D856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Distant Star: Revenant Fleet - это космическая стратегия 
 ```bash
 magnet:?xt=urn:btih:A0D930BF87444A81C403EFD5957DF5EDBBD7F23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

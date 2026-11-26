@@ -19,8 +19,7 @@ Nevertales 10: Faryon (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:5F876EAB9419A29AAD7A137F6CF5DE7A54187F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DISTRAINT − это психологический 2D-хоррор для ПК.
 ```bash
 magnet:?xt=urn:btih:7F86D4E0097BC9CCA48F3952D332BDF5835295B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

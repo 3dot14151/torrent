@@ -19,8 +19,7 @@ Williams | Cisco Press - Программа сетевой академии Cisc
 ```bash
 magnet:?xt=urn:btih:DA5376CF2325FA2C2C1212433285412E31879DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

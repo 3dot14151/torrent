@@ -20,8 +20,7 @@ Chess — одни из лучших шахмат для Android.
 ```bash
 magnet:?xt=urn:btih:F2839C2A2D44BAD8C3C4D143B41E4C659775B678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

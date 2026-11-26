@@ -28,8 +28,7 @@ Eldritch - Tasting The Tears (2014) [FLAC|Lossless]<Progressive Metal/Power Meta
 ```bash
 magnet:?xt=urn:btih:DD0BE7229B96CFD2C0F7F1E9AC984CC3EC3380D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Rise Of Avernus - L'appel Du Vide (2013) [FLAC|Lossless]<Progressive/Gothic/Doom
 ```bash
 magnet:?xt=urn:btih:649FF60BF77646EA367A17D5A2BB8A693E37E633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Keel Her - Keel Her (2014) [FLAC|Lossless]<Indie Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:55EE85384D7014D2BC0884617C304595796B2460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Fear Of Domination - Distorted Delusions (2014) [FLAC|Lossless]<Modern Melodic D
 ```bash
 magnet:?xt=urn:btih:4E6A0B0E16924A4FE3EEEA4CC8AE8F046E0ACFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Adrenaline Mob - Men Of Honor (2014) [FLAC|Lossless|WEB-DL]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3051362ADEDCE9ABFF02BB237884700733BB830D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Animal Heart — стильный лирический альбом в духе 
 ```bash
 magnet:?xt=urn:btih:021430632A422BB5F98ECC602FD9E37B213C7A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

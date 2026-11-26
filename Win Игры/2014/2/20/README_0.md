@@ -19,8 +19,7 @@ Danse Macabre: The Last Adagio (2014) [En] Unofficial [Collector's Edition / К�
 ```bash
 magnet:?xt=urn:btih:7106E9648AAB1A268C642FFD860FAD8541D1DAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Trackers 6: Raincliff’s Phantoms Game / Охотники за тайн
 ```bash
 magnet:?xt=urn:btih:78F5192F24FBC6B363D465620552572D7490E56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

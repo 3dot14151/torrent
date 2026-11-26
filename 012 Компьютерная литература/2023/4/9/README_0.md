@@ -19,8 +19,7 @@ Venkata Keerti Kotaru | Building Offline Applications with Angular (2022) [PDF][
 ```bash
 magnet:?xt=urn:btih:453F9C8F2B0611E3B6C5472684E4789AE9942CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mahmoud Parsian | Data Algorithms with Spark: Recipes and Design Patterns for Sc
 ```bash
 magnet:?xt=urn:btih:C0CE7A85128779B47C100A57B74336E0072CDEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dr. Deepali R Vora и др. | Python Machine Learning Projects (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:899C0FB6D4C28F936D915E10C06A53331AE3EBF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF55D1E84E1824654ADA77102079E923DCE53FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Unreal Engine 5 – популярный игровой движок, котор
 ```bash
 magnet:?xt=urn:btih:FF3B92481FAE8A5DDA4528529F66F262AADA8278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

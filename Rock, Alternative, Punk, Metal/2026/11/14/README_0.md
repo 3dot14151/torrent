@@ -22,8 +22,7 @@ Gomorra - Blood Of The Innocent (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Pow
 ```bash
 magnet:?xt=urn:btih:7FB3C7F904562DC4A1DA516E4AB7BAC60A55190D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Allen-Forrester Band - Red Dirt Town (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:A2BE0A8D000DC0825C84882E6DBCFB8C4721B7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Askvader (Åskväder) - Wax (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:DDDC429B403D3F4B1E151CF3BEC2646F51FDB1A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Barth Sky - Rockstars (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:E463004E2380C2C0E4AB8851A220A23F67AFF209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bobbie Dazzle - Star Power (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:43AA488D841D60CE29E987273845354C56F5B6AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Caroline Breitler - Roots (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:032E0AD8E47A8A149D3C7FC2260327BBDFFBC84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Hooked Like Helen - Lend Me Your Ear (Deluxe) (2026) [FLAC 24/44.1|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:B0CC8516984D0EF3EB31F3E5B40CC461511315D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Issa - Fire & Ice (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:71181AA74D1296CF82BD8216068B32E7E55C0590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Kelsey - Love Hard (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:CAD573D502EB3DE420645A707BEE6CD0CFBE30DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Spiders - Crystal Eyes (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:720030F66E35CE3DC2613B791A94F784E883B5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Como Brothers - Whisper In The Wind (2026) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:9A9E974D8A43B5217B39D1B7551A67744049E5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ These Wicked Rivers - Fire and Folklore (2026) [FLAC 24/48|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:98BD807EB4AF542D7F023BD40CBD42677328B82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Wolverine Leipzig - Old Pierre's Boulangerie (2026) [FLAC 24/44.1|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:71FB9BB39E37A96BBCFB8BF036010E11370D69D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Asia - Indigo (2026) Japanese Edition [FLAC|Lossless|image + .cue] <Prog Rock>
 ```bash
 magnet:?xt=urn:btih:7EFDCD64702CC4D96D7F9F14A9F04BFB043D2841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

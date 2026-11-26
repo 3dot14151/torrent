@@ -19,8 +19,7 @@ Magic Gate. Faces of Darkness / Волшебные врата. Лики тьмы
 ```bash
 magnet:?xt=urn:btih:40CD4256727F2311CF071DEFE262D0422D3651DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mutant Football League - духовный наследник игр америк
 ```bash
 magnet:?xt=urn:btih:4571350468B1024B8CA51216A04BB34306822143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:93860B589CE14662B80C9976317F324967513487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) License CODEX
 ```bash
 magnet:?xt=urn:btih:B654594BEFA611A7AFD5867A9EEFCD5016F22419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Pedestrian (2020) [En] (1.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:7F3F7C3CB67F100E72939E89FBB6E7769D28AA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Devil's Hunt (2019) [Ru/Multi] (1.05) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:E2FF8C8F914C1EC8962E396F985512E06F5DE736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

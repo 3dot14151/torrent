@@ -27,8 +27,7 @@ VA - Eurovision Song Contest - Copenhagen 2014: #JoinUs (2014) [FLAC|Lossless]<P
 ```bash
 magnet:?xt=urn:btih:53D74C01465D9C6412968573BFB1CC08178F5581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BD249D6013BA96214950C4309E7ACF69101DE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Stand Up. Выпуск №24 (2014.04.13) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:68B55A2D3A03E4714D0B5BB4B8979CCA8BCDFF63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93A10FE6EA4E53CF977BF5C41FF20DC4025DA1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ VA - В Машине С Radio Record (2014) [MP3|256 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:4FCDFB06F97C9566D8B74E2901436030F3A4AFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ VA - Русские Новинки Vol.149 от AGR (2014) [MP3|320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:3FF2412CA2D901AFA4192A0F10EA2E77DA72B07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ CherryPlayer-это бесплатный мультимедийный плеер
 ```bash
 magnet:?xt=urn:btih:23BD85139918189FB6609E291C202D898389375E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ BBC: Повелители времени / The Time Lords (2012) SATRip
 ```bash
 magnet:?xt=urn:btih:F6F573CD1A7D313EFD4BF460898C508DA3710DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Die ZDF Kultnacht - Noch mehr hits der 80er (2014) HDTVRip [720p]
 ```bash
 magnet:?xt=urn:btih:CF051B5F1E9DD215C8C85CB5579A20F5F381E909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ FilmConvert Pro - обеспечивает сложный алгоритм пр�
 ```bash
 magnet:?xt=urn:btih:13AC4E5D28B1CA4336EB5056FB73D3DFC4DDC10B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ Groundskeeper2 - продолжение игры на андроид, в кот�
 ```bash
 magnet:?xt=urn:btih:392BB8C3E241AF7B1A0B4C262774C709896C0022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ AIDA64 - эта утилита является мощным средством 
 ```bash
 magnet:?xt=urn:btih:FBD6C20F23B51BF545B595779618462CC43190FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D5CE355414827296601BBC9470CE6B2B301ECA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:C23AF319BA8F1F7E05F1B6E02CA8D6B91AA0BCEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Mental Discipline – российский futurepop-проект из горо�
 ```bash
 magnet:?xt=urn:btih:3161FE23B34B947F7ADEDAE4615B47ADE61A971F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D51A5D2B9DEA76D82BECE46D4EF07DD3FCF0A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DEFBDF345D5FBE76D4255A0EDA3DB78928C13F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ VA - Популярные песни от Радио Дача - 2 (2014) [MP3|25
 ```bash
 magnet:?xt=urn:btih:01A8781B3DD208402347DBD0339D5F322FE3FF78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ Digital Mars C++ IDE 7.51 [En]
 ```bash
 magnet:?xt=urn:btih:40EAC772CB56B65F8048C0F49E0810F46B34CBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8D60DC6D14805977347ED1C0D265DFC6C05666E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:073F0F3DACE0BDD794D420DA6C23B91D226DB4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4F644337B28C08CD36869D11BB5245388FDBF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76BAB425423F7838AA1D4A0A7FB6DCECC285DC8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ IMPOSSIBLE ROAD - тут вы будете управлять мчащимся �
 ```bash
 magnet:?xt=urn:btih:FC64460320880B3D941CCCD6FC5A4F24EA6B857C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ Space Hulk – очередная адаптация настольной игр
 ```bash
 magnet:?xt=urn:btih:DB7FB3DA72451EE586A544EC45AA16DAE52B189F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ VA - Best Of Disco 90s (2014) [MP3|320 кб/с]<Eurodance, Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:0B4FA690EB911E3B3AF775933A32B9D1B1791454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

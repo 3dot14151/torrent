@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:88F22DF1B2FE819C741C8B6623F17C974651A7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Martin Joo | Microservices with Laravel (Premium Package) (2022) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:B86C182C0EE3AD616D72FD267EA16E7456D7216E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

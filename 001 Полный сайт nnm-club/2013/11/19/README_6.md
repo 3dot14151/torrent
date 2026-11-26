@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:746D4D5E4276EEF65B6844A638DB7C5AB05D97AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82EF8E592A2CAFD882AA7835E51B54625ADB1240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBF1C7030F6329292EDD0BD7CE0A6275A033924B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Just Dance KIDS 2014 [Wii] [Pal] [Multi 5] (2013)
 ```bash
 magnet:?xt=urn:btih:4C598353389CE60F0046C82B54FBC6074508C125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ How to Survive – зомби-экшен на выживание, действи
 ```bash
 magnet:?xt=urn:btih:F63C2A79ACC30E3D44C5AA00B39604E398E4B728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EB664432B56E399EAC924D204D628E84DE53669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ AIDA64 (бывший Everest) - утилита является мощным с�
 ```bash
 magnet:?xt=urn:btih:97C25DB0434C00684A8F0D7E6CB0E85AADDF3237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Blood Knights рассказывает историю Джереми, охотн
 ```bash
 magnet:?xt=urn:btih:E36FA184DE509DA7E793495A127D00BF5086EC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24710C86E0C71941F1EF53DB3465B0A0996FBFD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ inFamous / Дурная Репутация [PS3] [EUR] [RUSSOUND] [3.55] [Cobra 
 ```bash
 magnet:?xt=urn:btih:A9C3B2FDDD1A27F4C0B17B709CF8AC4ECD2DCE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Need for Speed: Rivals [XBOX360] [JtagRIP] [RUSSOUND] [Freeboot] (2013) | R.G.X3
 ```bash
 magnet:?xt=urn:btih:94CE0E5CB4D474B5EB452103A7E55514A0858F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32F0F324FABE19058DD79FA8E3FCEA7E6DBB0A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ FL Studio — популярный редактор-секвенсор для н
 ```bash
 magnet:?xt=urn:btih:0A40A4C2A820A09AA06E80BDD3267CC52CC0203C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ Need For Speed: Rivals Crack (2013) (2.0) Crack 3DM [DELUXE EDITION]
 ```bash
 magnet:?xt=urn:btih:C37FC21441E1F1B04EB532B8E57002D1606DDDF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ Ubuntu Mint Mate rel21.6 для дома и для игр -3.12.0+3.5+видео
 ```bash
 magnet:?xt=urn:btih:0AA841BA2F8C28692AD3FD9691F2690B33E1451E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ ru_windows_8_1_pro_vl_x64_dvd_2972044.isoЯзык интерфейса: Русс
 ```bash
 magnet:?xt=urn:btih:82450A336BDA879121450094D94CAC74F10D4196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

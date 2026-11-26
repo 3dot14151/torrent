@@ -19,8 +19,7 @@ Screen Mirroring - TV Miracast v4.0.0.232 Mod by vadj [En]
 ```bash
 magnet:?xt=urn:btih:F3EC8996B9674D480924FD74B734CA486831DD25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mubert: AI Music Streaming v4.2.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F8546193876CE018F7E7828ACBBDCAFE79DFB283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:5C2FBE50AA21E86A60A22EBD2C88121091BDEEDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Device Info — простое, но мощное приложение для An
 ```bash
 magnet:?xt=urn:btih:4761294EA0887F1E3AA927B6F935A1010B5A3709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFB4088B9688E25ECE2DF5177FAFAFDD57987024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D67183BCA1931A3B5EB6E2F3F62056DAA876C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Genius Art: Image AI Generator v1.5.6 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0A2517A37BEA1226A9208D316D36542DE837AE5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:C6137A198D33F44068BADE0DFF65A2D7E8EF7790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ FBReader Premium v3.8.23 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E936C06CA4BBD6CB9D82A90A49F858CC90F2B73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Remini / Улучшение Фото v3.7.1288.202519828 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:64BC2FC8F6903DFA308252B6993A6E267A7C947B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:63576866F7C5F39FB928FEBCE49DD845F1E56B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Logic Circuit Simulator PRO предоставляет вам место для 
 ```bash
 magnet:?xt=urn:btih:F3E463E36CFEE898BBA5E620A9BEF3DC3082E38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ HiPER Calc Pro v11.3.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0D7EBDC3348E6BD2575559628D221A57A22BC3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Eatr・Здоровые рецепты v2.52.0 Mod by vadj [Ru]
 ```bash
 magnet:?xt=urn:btih:5E16C599EE72EAFF4614652A8B78C11BA07698BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Ventusky: Прогноз погоды v51.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:44446318AECB9BCE842B59AC8418EC346F599C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ Mary’s recipes: рецепты, меню v7.3.0 Mod by Alex.Strannik [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:A85602C285D4FE6F3B4C17ED563D9B7EDEB053D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5989F1576372EA0DE8A89F7A542191D9316D394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

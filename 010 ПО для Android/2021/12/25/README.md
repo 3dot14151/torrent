@@ -22,8 +22,7 @@ FlexR дает Вам возможность создавать расписан
 ```bash
 magnet:?xt=urn:btih:3F9BAA73082C3CA61C104EAA0540DA04FD81094B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:051485DC5E485285109B6679846FF42515A20D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Shamdo - серия медитаций и гипнотических индук�
 ```bash
 magnet:?xt=urn:btih:8D816AC950ABA2F7C1EFA369B4ABA43C6C3001CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

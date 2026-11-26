@@ -19,8 +19,7 @@ TrustGo Antivirus & Mobile Security 2.4.5.487 [Ru]
 ```bash
 magnet:?xt=urn:btih:01BE2C1C143F38C802E628818E6A60FC002A23F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

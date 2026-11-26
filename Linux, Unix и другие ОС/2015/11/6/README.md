@@ -21,8 +21,7 @@ RFRemix (Russian Fedora Remix) 23 Wayland (Server DVD + Netinstall) [i386, x86-6
 ```bash
 magnet:?xt=urn:btih:7C6DC8C7C76C95FA7DAD299C06198C56D6DA19FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Fedora 23 Server DVD + Netinstall [i386, x86-64] 2xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:A1E3B3E297D020304D9DF6F1FE061DEA4A6EB2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

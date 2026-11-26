@@ -19,8 +19,7 @@ Syndicate Classic Dilogy / Syndicate Plus / Syndicate Wars (1993, 1996) [Multi] 
 ```bash
 magnet:?xt=urn:btih:E70137109BBFE2F9F809142240AC9CF930EBDC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

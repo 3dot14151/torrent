@@ -21,8 +21,7 @@ Evadne - In the Bitterness of Our Souls (2004) Single [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:4439A07DA0C9759918F73FBBE0216814120BCA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Evadne - Dethroned of Light (2014) Single [FLAC|Lossless|image + .cue] <Melodic 
 ```bash
 magnet:?xt=urn:btih:07B1AC6740AF05440A7CA9F76BDF2BCE21ED9C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Evadne - The 13-th Condition (2007) [FLAC|Lossless|image + .cue] <Melodic Death,
 ```bash
 magnet:?xt=urn:btih:E3CBA29AFED08E02CDE518412B95F7BAF8171E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ The Isley Brothers & Santana - Power Of Peace (2017) [MP3|320 Kbps] <Soul, Funk,
 ```bash
 magnet:?xt=urn:btih:3DD4E50E116225E93A528F1F48B4BB0B8A42240E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Rage - Seasons of the Black (2017) [MP3|320 Kbps] <Heavy Metal, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:E9E2B8A4171A8A82DA4A26269C57A15D0065DA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

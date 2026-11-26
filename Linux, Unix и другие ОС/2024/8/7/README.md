@@ -19,8 +19,7 @@ Master PDF Editor - это простая в использовании, но м
 ```bash
 magnet:?xt=urn:btih:25976DD5F351D6571D3E0D6986CB807899CDD62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

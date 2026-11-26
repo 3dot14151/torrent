@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:74D401B35CE18BB0B92E3CCDE1C3CA0DAEFD816E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ AstroPilot - Live at Atmasfera360 (2014) [MP3|320 кб/с]<Ambient, Psychill, Do
 ```bash
 magnet:?xt=urn:btih:C361A3A957AC909F260AC97ED45B4A55EA3221D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Ember — цифровой органайзер графики
 ```bash
 magnet:?xt=urn:btih:9F267BA333B7FA5EAF5A1FB5FCDEC70814FCF430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2732665D4D994DA85BE5634C27FEB06992C0ECB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Synalyze It! Pro – это инновационное приложение, к�
 ```bash
 magnet:?xt=urn:btih:2C1C8C0BD9369B8D28FD8797929C22A1B556CD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:121B9237BF5E834488729FC45677B75366425684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F18D90FDB038C0DEDDB0E612D5AABA0AEF84A12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Registry Life - это универсальная утилита для испр
 ```bash
 magnet:?xt=urn:btih:D03B9E650F2FB3AE4B68D70651D3FAC389F5543F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Otis Clay - Respect Yourself (2005) [FLAC|Lossless]<Soul>
 ```bash
 magnet:?xt=urn:btih:19252C591A5611A3B03C15EB49C49AC58E374424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ Original Soundtrack Album (remastered)
 ```bash
 magnet:?xt=urn:btih:D2406E332216563E177C588953A78B6A442DBFBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2181E9EB8C6BF00C6A6C30689D2B9C0DE42B62C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:2D9DECD47E09AC120EEC11F82F5646B0861EE1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E24AFE4A68CDADF37691872FA6C755BA925F0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Ace Translator – это отличный и мощный интернет-пе
 ```bash
 magnet:?xt=urn:btih:177B08C145F38BF31AA346204E1FC5DFC17E7DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84C9291426EC8E7CF3CC0EAF6E6461001E42C80E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:44DA1C49F00A7A48E0BD43DD52316AC833F8905D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D36B2B40EF477FF60C1289F72C07C9CD29ECE65B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +503,7 @@ Antonio Vivaldi: Concerto Nr.3 F-dur 'L'autonno'
 ```bash
 magnet:?xt=urn:btih:313C1331EC8DBF7E19FE25133A6BE48EC0DF1299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ Bela Bartok: 7 pieces from 'Mikrokosmos'(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:5AB51D6DAC4F9F5E8FB6265A4AFDDFA4CC5FC405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +571,7 @@ Lenzman - Looking At The Stars (2014) [FLAC|Lossless|WEB-DL]<Drum n Bass>
 ```bash
 magnet:?xt=urn:btih:6040F3751B289B16CEBB15DC5D1955061D41D1E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ Bellini - Festival (2014) [MP3|256 кб/с]<Pop, Dance, Europop, Latin, House, E
 ```bash
 magnet:?xt=urn:btih:82AB4EB83AB1DA0034D712D45A2A17D44FCC45EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ Ana Popovic – Ana! Live In Amsterdam (2005) DVDRip [H.264]
 ```bash
 magnet:?xt=urn:btih:D6DD52F56CEB1741A9D512F25ABDB1EF178CA99A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ Deadmau5 - While (1<2) (2014)  [AAC|WEB-DL|256 кб/с] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:BAAF01E9BF0A73652E138A7456FD2D3FA4732A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ Oдна из важнейших книг в истории европейско�
 ```bash
 magnet:?xt=urn:btih:02775987EA7C05DE4B0E644313E7B55260242CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2DC77F260C3E361FCD47712210FDDA2F2ABE606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +743,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD9FC8FA622F6428903D97AC87B1DD5BE9E9EC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

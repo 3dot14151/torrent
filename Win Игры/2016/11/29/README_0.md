@@ -19,8 +19,7 @@ Chimeras 4: Mortal Medicine - четвертая часть мистическо
 ```bash
 magnet:?xt=urn:btih:351339DD5BE1C1A32E133F343EA3F04895FD397B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Curio Society 2: New Order / Антикварное общество. Нов
 ```bash
 magnet:?xt=urn:btih:BFE7B5CDA05BF4BB46A9F4B38706199C3ACEE9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc) Repack Seraph1
 ```bash
 magnet:?xt=urn:btih:BA2704D3C44F852A2E905EB68B6DB8E8B54A7761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bullshot (2016) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:CE240F83B8AAA0D5023A175DD9BB3E9A0FB133BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Quern: Undying Thoughts (2016) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:200D2F0270871830AFCB81A6A3A996CC7F278BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Quern - Undying Thoughts — это приключенческая игра, д�
 ```bash
 magnet:?xt=urn:btih:7F85F287E52DA305E280FCA5B5AF897C5B38DF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Crazy Machines 3 (2016) [Ru/Multi] (1.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:390B761298E8A1D3398E693E927234BE4A4DC3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

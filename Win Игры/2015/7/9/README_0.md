@@ -19,8 +19,7 @@ Phantasmat 4: The Dread of Oakville (2015) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:7317F7821F5ED67A2BA01ECB3C44EE47D614EAF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

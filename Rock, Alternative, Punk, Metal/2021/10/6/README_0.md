@@ -22,8 +22,7 @@ Sainted Sinners - Back With A Vengeance (2018) [FLAC|Lossless|tracks + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:0994365E1C89EB85ED0CE51FDF5666CCA40A0133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Manimal - Armageddon (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Me
 ```bash
 magnet:?xt=urn:btih:426EAAD9508AE9BA696DA18D2B7EA3C3B7C14F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Black Sabbath - Technical Ecstasy (1976) 2021 remaster, Sanctuary Records [FLAC 
 ```bash
 magnet:?xt=urn:btih:8FA20C87059D873B15E4046F6E01FB2254A08DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA89E45E3680A3155B63B69C74EF1DD4396FB169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:128701967B7F395E8D07AA981A365E800A33BC69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rockets - Alienation (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:CFC43EFBB8F0A8431030A7ACE5A699F2033715D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Albert and Otto: The Adventure Begins (2015) [En] (1.0) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:3DC14A3A4977217B6096954BC168CC797B6EB232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Toby: The Secret Mine - красивый приключенческий пазз
 ```bash
 magnet:?xt=urn:btih:05ECBDC3DB960ADB41381A1CD5012ED5CC240E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Through the Woods — это приключенческая игра от тре
 ```bash
 magnet:?xt=urn:btih:436CAC40213A810713E3B0DFBC1F994A52E3395D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

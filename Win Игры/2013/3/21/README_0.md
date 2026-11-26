@@ -19,8 +19,7 @@ Secrets of the Dark 3: Mystery of the Ancestral Estate Collectors Edition [En] (
 ```bash
 magnet:?xt=urn:btih:69C9DB60F4010A022BAA0DB92BBC10EB7A362673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Theatre of Shadows: As You Wish / Театр теней. Желания се
 ```bash
 magnet:?xt=urn:btih:000967EACFAD58AA8EE6719EED8EAB113A6A7FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A Wizard's Curse / Проклятие Ведьмака [Ru] (P) 2013
 ```bash
 magnet:?xt=urn:btih:576F95678AD89DEAFB84510326BB7F549F922D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Trials Evolution - Gold Edition (Patch/1.02) 2013 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:67F1DAC62A645EB31DF5B942BFDE8495BFDD310C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Alien Spidy – дружественное существо из космоса,
 ```bash
 magnet:?xt=urn:btih:82E1D7AB98BF640DC96DED054D3245B8C77AB13B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Heavy Fire: Shattered Spear [En] (L) 2013 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:C549AC011530E507E61FA4BC9DE84BE2B0D4A634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Retro/Grade [En] (Repack) 2013 | FANISO
 ```bash
 magnet:?xt=urn:btih:1500BB35733C9B292E85FCEA46AB251B749DE3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ The Walking Dead: Survival Instinct / The Walking Dead: Инстинкт выж�
 ```bash
 magnet:?xt=urn:btih:7D8BF76EF64C864784E0D36400E84F70AD8E0ABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ The Walking Dead: Survival Instinct - экшен от студии Terminal Real
 ```bash
 magnet:?xt=urn:btih:21AA5A86BCCF3AC514276205E87D8D4171060B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

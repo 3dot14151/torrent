@@ -19,8 +19,7 @@ Dark Romance 3: The Swan Sonata (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:72BB0830C6A6CC6C0E1C5D22BE82523084BF99F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sable Maze 5: Soul Catcher (2015) [En] Unofficial [Collector's Edition / Кол�
 ```bash
 magnet:?xt=urn:btih:BCA845A71FF29312CF75E275EC71A0D9B4BFCF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Romance 3: The Swan Sonata / Венок Романсов 3: Лебедин�
 ```bash
 magnet:?xt=urn:btih:1D2A3E6FB535D1054F7C9723D876A42D6D530D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Surface 8: Return to Another World / Внешние пределы 8: Возвр
 ```bash
 magnet:?xt=urn:btih:832341C86895B7280DA3ED6EE9F43B7DF79FD4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Need for Speed, одна из ведущих игровых серий возв�
 ```bash
 magnet:?xt=urn:btih:217C85B5F00C51263FDA51C1A482EA1F274E29B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maze of Realities 3: Ride in the Sky (2023) [Multi] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:153877C9F6306811893A628445C5057E53476E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shadows Over Loathing - это приключенческая RPG в жанре 
 ```bash
 magnet:?xt=urn:btih:1E8234478073D5DA9C3A6AB73CDA6EAC47ECC9A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

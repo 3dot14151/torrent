@@ -19,8 +19,7 @@ Lost Lands: The Four Horsemen / Затерянные Земли. Четыре В
 ```bash
 magnet:?xt=urn:btih:925D932C72DFF3E3AE38C990B5C36C7B181AE506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Trails / Остров: Затерянные судьбы (2015) [Ru] Unoffi
 ```bash
 magnet:?xt=urn:btih:0A98C84EA618A6868D0AAE854D42C8C6DABE3609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Airport Firefighters: The Simulation (2015) [Ru/Multi] (1.1) Repack xatab
 ```bash
 magnet:?xt=urn:btih:6C4317026E83DAEA7A301FDF4CDA4F4F19D2D8DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Lemma (2015) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:D16FA5B76F8F761D62759DBF9C678902FBB5C6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Dementium 2 HD — это возрождение культовой и люби�
 ```bash
 magnet:?xt=urn:btih:D75F1F7D245189FA55C52C3A8C207797C9A0C643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

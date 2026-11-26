@@ -21,8 +21,7 @@ Dragon Commander - это не просто стратегическая игр�
 ```bash
 magnet:?xt=urn:btih:A96029C3834F2F96313135608815F9DBC4ED23A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

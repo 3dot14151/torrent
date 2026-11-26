@@ -19,8 +19,7 @@ Eipix Entertainment с гордостью представляет новейш�
 ```bash
 magnet:?xt=urn:btih:21833A938C60399AA8B691CE1B47FA14F07FA3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Exorcise The Demons (2019) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:878735F6754024214022D541E67774B3E3C1C6EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Devil's Hunt (2019) [Ru/Milti] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:47D5669CA49A0C107246D75768F75F08E5FC5061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D7B524A39942C126722F8167488BE748990BFFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FFB00C0F190F6B2BD4C446DF8C37989A84691D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Discoteka Spring (2013) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:2AF62D7BDEB194811015085A9F4E21A8CA264A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABD6D790851F1B5D8B118FC1E2A202EF8D8DB65A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ VA - Bring The Ruckus (2013) [MP3|320 кб/с]<Breakbeat, Drum & bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:400B709136150A58884B6F3AED0CDD59E0446EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Newsted - Metal (2013) EP [FLAC|Lossless]<Heavy Metal/Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ VA - Новинки Euro Союз 50\50 (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:69817FC4A6864FDECE8E7AE5410C2041615D644B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ AOMUSIC - Hokulea (2013) [MP3|320 кб/с]<Ethnic Fusion, New age>
 ```bash
 magnet:?xt=urn:btih:F5DB82D67037CD7074129CFA329DD5E3078048F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ VA - Суперсборник попмузыки. На крыльях удово
 ```bash
 magnet:?xt=urn:btih:642E4C6D55149F68851856B08AC87B7E41835492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ VA - The King Box 1 (2013) [MP3|320 кб/с]<Glitchhop, Trap>
 ```bash
 magnet:?xt=urn:btih:171CC97120D4529646A4678FEC54F6F9901758A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC0E44109CCB8B5C3F656099AE5D86BBCBA9629A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Ashley Wallbridge - The Inner Me (Remixes) (2013)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ Los Shakers - Los Shakers (1965) Remaster 2007[MP3|128 кб/с]<Beat>
 ```bash
 magnet:?xt=urn:btih:49E1030A307136A6A15799AD1FEF8D3C6E1A03D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ VA - Зарубежные Новинки Vol.118 from AGR (2013) [MP3|256-320 к
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1AE4126FF3D33468A27C816113266E061CE9901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17E9481E6C9B1BFCCF9A5C3917FF983C2D9C8A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71F5F4C948CE8E9A316A2BD4288E4A3163CF31F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFFCDDC579863E015C7AD06B08C9048663272159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ StoneLake - Monolith (2013) [FLAC|Lossless]<Melodic Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A9B7EA8C870428B17DD33E9C7F4D2B5430DF6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ Wise JetSearch предназначена для быстрого поиска �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ VA - Sensual Beings Vol. 1: 15 Sensual and Harmonious Steps for Love Making (201
 ```bash
 magnet:?xt=urn:btih:B4EDD0D15DDFDBEAAE05B9F8E2AA5C8B3147F529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ En Nihil - Death Keeps (1997) [FLAC|Lossless]<Tribal, Ambient, Experimental>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +711,7 @@ Wallpapers - Обои Alfa Romeo [JPEG]
 ```bash
 magnet:?xt=urn:btih:D54FF036B1298C49F64BF4A0F0B83B78D1351D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E1559B02B6E40E05414165748857352E25FEFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8697AE35F8183076CB7C16F35085618065EB170B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

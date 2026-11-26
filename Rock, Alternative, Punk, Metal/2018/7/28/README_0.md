@@ -22,8 +22,7 @@ Dave Mason (1974):
 ```bash
 magnet:?xt=urn:btih:05D75362BE781FE3292FCD4E61197E72FBFB7598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

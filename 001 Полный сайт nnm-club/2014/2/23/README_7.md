@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2DBE3782C26B8F8A5537155AC8537C6CC8F3DB70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8157CEB12EE6C5AA10E578FCFFF8D0A200A6AFAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4.0.0) Repack z10yded [Digital Deluxe E
 ```bash
 magnet:?xt=urn:btih:C458E12062B423F98FB3ADE604E487AEA80DEF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Rust - это игра про выживание в мире среди игро
 ```bash
 magnet:?xt=urn:btih:10622867A0CE896940820A97BFF0656288D8E669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4878E7AFFD830BC7C8E897D3E8ADBB01CE21586F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

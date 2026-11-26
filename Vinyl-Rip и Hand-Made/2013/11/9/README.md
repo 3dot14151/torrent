@@ -28,8 +28,7 @@ C2. Stormy May Day [3:10](   Читать дальше...   )Жанр: Hard Rock
 ```bash
 magnet:?xt=urn:btih:F5398EDAA8380A73D1B4D4D7307E3CA3D74C0BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

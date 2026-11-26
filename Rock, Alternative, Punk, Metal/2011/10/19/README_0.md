@@ -25,8 +25,7 @@ Dolphin - Существо (Часть 1) (2011) [MP3|320 kbps]<Alternative, Rap
 ```bash
 magnet:?xt=urn:btih:E456C76A49984E3889EAE1084F04E761C8FAD456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ CD-1(01:19:33)
 ```bash
 magnet:?xt=urn:btih:E3BCF6CEB926EF97B373CA8523E919911CF05A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

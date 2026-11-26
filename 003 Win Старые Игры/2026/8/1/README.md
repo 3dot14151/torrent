@@ -19,8 +19,7 @@ American McGee’s Alice переосмысляет классические с�
 ```bash
 magnet:?xt=urn:btih:45CECAC55BC2A58CC2D647F2877D7F64867591D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

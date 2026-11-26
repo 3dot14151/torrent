@@ -20,8 +20,7 @@ Sense V2 Flip Clock & Weather v6.50.0 Mod by Timozhai [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:15CB265074AEC5F07A404087B0849A5AC3A3CBBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

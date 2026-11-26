@@ -19,8 +19,7 @@ Extended GodMode - это утилита, которая обеспечивае�
 ```bash
 magnet:?xt=urn:btih:77F0AA82B96767C5C8F9B807070C5402C84B63ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bootstrap Studio - мощная программа для создания кр�
 ```bash
 magnet:?xt=urn:btih:7EA45501379447D1C11DC6E411543DBB5ADC5297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

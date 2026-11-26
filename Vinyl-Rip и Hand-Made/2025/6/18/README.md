@@ -22,8 +22,7 @@ Paul McCartney (Пол Маккартни) - Снова в СССР (1989) [FLAC
 ```bash
 magnet:?xt=urn:btih:B50CC9DA2A3D60A720C56D60F0BA3E89F9EAF1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

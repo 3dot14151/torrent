@@ -21,8 +21,7 @@ Layla and Other Assorted Love Songs (Лэйла и другие песни о л
 ```bash
 magnet:?xt=urn:btih:299EA93368AF0DE59A96ECA14C28623AA4BED657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

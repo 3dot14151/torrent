@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:0D046A1A58F1A8205661802F1EFB803E9A51112E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:237A4E9FD2FD723522162A9B35C76FF6B871ECB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ EZ Folder Player - альтернативный музыкальный плее�
 ```bash
 magnet:?xt=urn:btih:5D25F766EF386B23334910BC78E05A8BBE6581F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Ultimate Guitar Tuner v2.14.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2EECEC9553C3FAA06407D6F3D6C0FADA7236ACCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ SD Card Test Pro v1.9.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9AE27A93021F6809453B49C085DE44C8A83CFF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Smart File Manager (File Explorer) - это самое простое, мощн�
 ```bash
 magnet:?xt=urn:btih:BDD3C8387592A6B9DF76C1A8CE8C153018A70E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

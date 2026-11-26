@@ -25,8 +25,7 @@ The Hedons - Tomb Of Stars (2012) [MP3|320 кб/с]<Stoner Rock / Metal>
 ```bash
 magnet:?xt=urn:btih:5E8088709267195760F5BC8C461993AD9B89F6A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ VA - Супер Драйв от Снегурочки. Зарубежный (2012
 ```bash
 magnet:?xt=urn:btih:0796A389869C0819E99AC359A0B17E16A75FABBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ VA - New Club-17 (2012) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:4FCE591923BD3EC676331BDA6B8BB6F649514D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Sexy Girls Wallpapers (24.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:E8B037258F468710AFC188C5D1057A658C9CBD47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Hellbringer - Dominion Of Darkness (2012) [MP3|256 kbps]<Speed Metal>
 ```bash
 magnet:?xt=urn:btih:8B8F0CFD4368DDDE2121817C9655A530694A2250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B6ADFCF2678A181BF003F196C2B50DAA47EE906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Nature Wallpapers (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:FF8B4C7C6E97CBCE8D619BD62C2F3FB71F49A045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ VA - Зимний шансон года. Сборник 3 (2012) [MP3|128-256 к
 ```bash
 magnet:?xt=urn:btih:CFB358B5DC1EED029A3EA58CCF1CBE6F42497D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Inherit Disease - Visceral Transcendence (2010) [FLAC|Lossless]<Technical Brutal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ Wallpapers Sexy Girls (22.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:F20C6DD21AF3BA042A7F0D7AE08799E4F4D7ECEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ Macro Wallpapers (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:1E57AC7813713A2A79F4E80CEDB03723A2D12E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ VA - Mega Зарубежные Новинки (2012) [MP3|256 кб/с]<Pop, Danc
 ```bash
 magnet:?xt=urn:btih:D7684921050FFCB9F76A5266D15025610BF7E788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ Interior Wallpapers (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:72D58EE517657D1805C916640A72BC257E2222F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DA826E0E49BF1662DF2E9B310F1EFBA7DF7B40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ VA - Club Non-Stop (2012) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:1AA7C8C2BF7CF84B095BADDD625F7FB202A21AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F8B3EA411618D9CDFD70E08260F975598E4761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ VA - Зимний Кураж Europa Plus 50/50 (2012) [MP3|256 кб/с]<Pop, Dan
 ```bash
 magnet:?xt=urn:btih:D300F292F3E7799752F2DE5636EE538F4B3715AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ Nature Wallpapers (24.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D951882DD24E20646E64F6A3DA492938C5C38339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ Computer Desktop Wallpapers Collection (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:2F5DC00FD9E0ACFD30E8790C61A7CE35D8AADE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ Wallpapers Sexy Girls (23.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:CB4530BB8852938FF1BE3D58ADDD8AA37438D559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ Animal Wallpapers (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:20B6A4759971751842A1635CB5DCE7B34F5407D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +630,7 @@ Rodents wallpaper (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:3DF92542D465BEF08B0264797F7D0A4704FFA467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ MorningStarlett - MorningStarlett (2012) [MP3|320 кб/с]<Heavy Metal, Female V
 ```bash
 magnet:?xt=urn:btih:73428A9510C27A53D02AE9CA00C787F871E90348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +689,7 @@ France Wallpapers (24.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:AFCA4093339ED66A96EEC325F67F8E8C6C9896C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ Sumatra PDF - легкий просмотрщик  PDF, DjVu, CHM, ePub, MOBI, X
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ VA - Новый Русский Хит-13 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:BBD2561EDE52E93383DB3C792963F1C58EDE96F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

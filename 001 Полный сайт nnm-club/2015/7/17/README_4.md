@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4C00D3889B23F5550D63F66F051095BF8C37CD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Adobe Photoshop CC - это комплексное решение для про�
 ```bash
 magnet:?xt=urn:btih:090141A767F8EF95B337771A04EAF6DA700BD43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08A0590F8C246064CE719EA6CF2D96D5EB0B53B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A72629F7A34B6C2D82C67B9548D0A1931CB55CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Assassin’s Creed IV: Black Flag / Assassin's Creed IV: Чёрный флаг (
 ```bash
 magnet:?xt=urn:btih:36ACC4DC2A162A3435CFA4FED6F3F982EE4DB6E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Microsoft Windows 10 RTM Escrow 10.0.10240 (esd) [Ru]
 ```bash
 magnet:?xt=urn:btih:B7B167FFC00910790379205EC24869E7AAA0B694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Enigma - MCMXC a.D. (1990) Virgin, Universal Music | Remastered 2016 [FLAC 2.0|2
 ```bash
 magnet:?xt=urn:btih:B9635BD46AD88B3ED4F7584445B60D63AF609020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

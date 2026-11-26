@@ -22,8 +22,7 @@ Brujeria - The Mexecutioner! The Best Of Brujeria (Compilation) (2003) [APE|Loss
 ```bash
 magnet:?xt=urn:btih:CC999EAD38CDCE2F2192DB04DC8B30D1F9243F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tank - Honour and Blood (1984) Reissue, 1990, Roadrunner Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:D1285F70125B5E2B6E5122C1137745BEEDA997BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Oleg Serkov - Love Deviant (2009) EP, приложение к журналу CHI
 ```bash
 magnet:?xt=urn:btih:2383A6C261216F00825751D67E2404CC44BB3636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Fataland - Выпей Вина! (2020) [MP3|320 Kbps] <Hardcore, Punk>
 ```bash
 magnet:?xt=urn:btih:2880603AC72B2AFB4550AE7D7F090E6CA7A625B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Frostnatt - Den Russiske Tomheten (2020) [FLAC|Lossless|Web-DL|tracks] <Atmosphe
 ```bash
 magnet:?xt=urn:btih:DDDD42EA7C8D9CDBE16175D4A9D086AAC4631F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Twin Obscenity - For Blood, Honour And Soil (1998) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:FC16105A21B33398F55EBA5C5C399EEB676FB958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Santana - Supernatural (1999) Special Russian Version, Golden Collection [FLAC|L
 ```bash
 magnet:?xt=urn:btih:85E65E7B1C1E2CF3F28B3689986DC2ED23CE840C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Smash Hits Cover Band - A Tribute To AC DC - We Salute You (2011) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:112383708EE5FB698940A3E6A1FACD62E6033316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Deep Purple - Best Of (2013) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6454D8FB913741F1C87713645FF6E5E9465114B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

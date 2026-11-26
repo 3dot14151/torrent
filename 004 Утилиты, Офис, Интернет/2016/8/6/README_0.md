@@ -19,8 +19,7 @@ RescuePRO - это решение для восстановления данны
 ```bash
 magnet:?xt=urn:btih:DBE9BFAC17873EDBC6E1A5A6B1F59D638588F72E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

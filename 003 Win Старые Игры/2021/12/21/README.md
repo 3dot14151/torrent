@@ -19,8 +19,7 @@ Imperialism (1997) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:8367512C24ECC4F58717596009EF6AB0ADF438E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

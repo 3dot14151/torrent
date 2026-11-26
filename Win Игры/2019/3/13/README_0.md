@@ -19,8 +19,7 @@ Kageroh: Shadow Corridor — это игра в жанре хоррор, раз�
 ```bash
 magnet:?xt=urn:btih:330A77FF812B3D0642C501C4E407D3D332FCED7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pursuer (2019) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:10F11162989FDFC246BE27485F116A66B25444BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

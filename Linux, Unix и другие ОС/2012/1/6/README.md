@@ -21,8 +21,7 @@ ROSA Desktop 2011 GNOME - это программный продукт для р
 ```bash
 magnet:?xt=urn:btih:91C71F0B54FF8E9DDCA159A87FA4C33862168D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mandriva 2011 MiB (ROSA lab) [i586 + i586(PAE) + x86_64] (3xDVD)
 ```bash
 magnet:?xt=urn:btih:24E6D567D50DD48DCFF839DB9E92927CB51B84A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

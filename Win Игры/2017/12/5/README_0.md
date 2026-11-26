@@ -19,8 +19,7 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:508F3C1611C9DC805C16D391EE46B8539A1796C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nioh: Complete Edition — полное издание приключенчес�
 ```bash
 magnet:?xt=urn:btih:4A0F114977DBFF675380F85D96FBE5176B94684F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Black Mirror (2017) [Ru/Multi] (1.0.0.1005) Repack OneTwo
 ```bash
 magnet:?xt=urn:btih:8B64881182A83AB7F1AE74C27D167201A9C3ADC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ This War of Mine - первая игра, которая позволяет ув
 ```bash
 magnet:?xt=urn:btih:D6DFB4DD1EC00C7A6B981497E947C7DEF636D5AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Bleeding Through - Love Will Kill All (2018) [MP3|320 Kbps] <Symphonic Metalcore
 ```bash
 magnet:?xt=urn:btih:A4FBF5DBE6CD8D50B8F08CBD97BA77205F6957D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

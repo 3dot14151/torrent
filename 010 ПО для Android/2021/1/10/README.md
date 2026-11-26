@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0F7D3D92CCB158C4B890C1F0E986AD7E0F74E498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Car Launcher AG - Никогда еще управление мультимед�
 ```bash
 magnet:?xt=urn:btih:308462580EE82C573D3EAC025705A7E177FE9A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

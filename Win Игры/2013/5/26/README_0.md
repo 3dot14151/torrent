@@ -19,8 +19,7 @@ Love Chronicles 3: Salvation Collector's Edition / История любви. С
 ```bash
 magnet:?xt=urn:btih:1C02D54840B77D99FA6C2B8A233E30D438475CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dust: An Elysian Tail (2013) [En] License FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:9BFF4F46C87A748DC27A41EFBE2B02956984884B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pinball FX 2 — это пинбол с трёхмерной графикой, �
 ```bash
 magnet:?xt=urn:btih:15B1D9A48BDECAA1FD71497F6887D4D6CDD5775A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Element4l это захватывающий и экспериментальны�
 ```bash
 magnet:?xt=urn:btih:0EDD59AD5BDCEF6DD7CAB68F2143C6106FAAEC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Star Trek: The Video Game (2013) [En/Ru] Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:F070669542428F2A22B3AE7C82DF341079780973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

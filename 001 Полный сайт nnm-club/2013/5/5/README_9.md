@@ -28,8 +28,7 @@ Andrew Lu - Club Universe Radioshow 067 (02.05.2013) [MP3|320 кб/с]<Trance, P
 ```bash
 magnet:?xt=urn:btih:729C619FDF0F377915794EE91BDBDD25ED4FC8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Charlie Daniels - By The Light Of The Moon (1997) [MP3|192 кб/с]<Country, Sou
 ```bash
 magnet:?xt=urn:btih:63A1139DB08A3F4DAEEC8927B65A7D0C2C0A1E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBAD26585D89C3EB9F88981D01C1D8D0C3F89D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - House Box Vol. 5 (2CD) (2013) [MP3|~245 кб/с (V0)]<House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ VA - Зарубежный Драйв from Кулемина (2013) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:31E0791CE8D2DFED94D308865155D65B3F9F18DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39EA839BC22300815EDF5032884629B42CFE7847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9340BC835D30479810228D16EB44AE9AD7067D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ VA - Electro House Pro V.34 (2013) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:5F6421C4A5DD1582BE30ACAA64F385905ADD0DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ Flotsam And Jetsam - Ugly Noise (2012) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A3483080E25463789430FD4ABA9D5BC9B0619EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ VA - Нержавейка vol.3 (2013) [MP3|320 кб/с]<Metal>
 ```bash
 magnet:?xt=urn:btih:106CB46E122FE43A700B24F9EA946F80C384DC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BD09A8D6AD1530EDA401CEE8F91F3F36449F087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ VA - Праздничный попсовый хит (2013) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:7A2C1FF70684A8D097A70BA4C6A9212D87A33B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ VA - Sweet Temptation Vol 2 (2013) [MP3|320 кб/с]<Chillout, Lounge, Lo-Fi>
 ```bash
 magnet:?xt=urn:btih:F7E38D103C2FFCA268A0C55CD7201C4054A6AB89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ Guy Fletcher - Inamorata (2008) [FLAC|Lossless]<Blues-Rock, Folk-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7692CBD2CA31F90A9B7B45AF1178AAF59E71CBE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +625,7 @@ V.A. - Machiko Kikuchi, Sharon Isbin, Vladimir Mikulka - Masterpieces for Guitar
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +659,7 @@ VA - Chillout Lounge: The Sunset Edition (2013) [MP3|320 кб/с]<Downtempo, Lou
 ```bash
 magnet:?xt=urn:btih:FF6B07DA923917E9E5C8D092722699F655AFBE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +718,7 @@ VA - Paul van Dyk - Vonyc Sessions Selection 2013-04 (2013) [MP3|320 кб/с]<Up
 ```bash
 magnet:?xt=urn:btih:9877B8E639C1DCB8AD2DA9A6A3DBF821EF8C26C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A92597A2E2A2FAFF3E46DAF0142654616B20E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -803,8 +778,7 @@ Matisse & Sadko - Record Club 563 (01.05.2013) [MP3|320 кб/с]<House, Progress
 ```bash
 magnet:?xt=urn:btih:D7AE755C6CCBA20ECE2BBBF06FEE3306D39940BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

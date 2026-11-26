@@ -19,8 +19,7 @@ Valheim (2021) [Ru/Multi] (0.145.6) Repack xatab [Early Access]
 ```bash
 magnet:?xt=urn:btih:237964D5EEB4C174F2B04FFDCE9A963FFA75288E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ THE SHORE — это игра о тайне неизвестного, дейст
 ```bash
 magnet:?xt=urn:btih:C3B410F682990B9FAB99803DB5F9FA468E494C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ House Flipper – увлекательный и интересный в своё
 ```bash
 magnet:?xt=urn:btih:381B827BD3672580EC46499510666FEEE703FDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Imperator: Rome (2019) [Ru/Multi] (2.0/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:FA7D70AAEC4589749CE97AF9DA96A2650E072159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

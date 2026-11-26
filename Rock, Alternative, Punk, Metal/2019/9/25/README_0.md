@@ -22,8 +22,7 @@ Phantom Vision - Guilty (2019) [FLAC|Lossless|tracks + .cue] <Goth Rock>
 ```bash
 magnet:?xt=urn:btih:CC699776D8B6EBED128CB16425C34693E01D90B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Moon Loves Honey - Bubbleburst (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, 
 ```bash
 magnet:?xt=urn:btih:CF7420398F3B36DA0FBC2A55DD03C89B35207134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B779F8BD97E36D6C5B8ED75101005581DF04132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2484FD7A6F19573BE5747ABC8494877C68F1508B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Spirit Legends 4: Finding Balance (2021) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:633D97334AF860FE272A320E9E1941F3ED6F164C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rock of Ages 3: Make & Break – это соревновательная защ�
 ```bash
 magnet:?xt=urn:btih:5D72CEE9C515E23BDDC5B30F20D1CB0574018ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Batman: Arkham City (2012) [Ru/En] (1.1) Repack xatab [Game of the Year Edition]
 ```bash
 magnet:?xt=urn:btih:B51163E2FEC1B77889303D6F8715226B1848F0CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

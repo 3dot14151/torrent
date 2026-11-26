@@ -19,8 +19,7 @@ MechCommander Gold – фантастическая тактика в реаль
 ```bash
 magnet:?xt=urn:btih:BE7256AF0B3BA363383E046492437E3E13AFDDB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:EF184C3EC743A49287643A6DC342F9E35B97431D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

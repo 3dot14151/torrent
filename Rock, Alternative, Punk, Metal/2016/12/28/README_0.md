@@ -22,8 +22,7 @@ Obsidian Kingdom - A Year With No Summer (2016) [MP3|320 Kbps] <Progressive, Exp
 ```bash
 magnet:?xt=urn:btih:5F743A6E5168DBE49DAE906B26F00DDF8F7537AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Obsidian Kingdom - Mantiis (2012) [MP3|320 Kbps] <Experimental, Extreme Progress
 ```bash
 magnet:?xt=urn:btih:12A1D8B3AC79A89DDEEBCA656F5BFA03A3E8F596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Three Lions - Three Lions (2014) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:1B202049ADBD24811126429E792A6F14679B39F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Violence Fog:
 ```bash
 magnet:?xt=urn:btih:F2129FC166DAA558BDE64325FE098F745DE59C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Oceans of Slumber - Aetherial (2013) [MP3|320 Kbps] <Progressive Gothic Death Me
 ```bash
 magnet:?xt=urn:btih:655DFF8F154FB6B4BA7C5689E7CBD22DE1C21BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ SADLESS - Задержка дыхания (2015) [MP3|320 kbps] <Indie, Rock>
 ```bash
 magnet:?xt=urn:btih:2F2662378BDCA4EDC1878CF1614FD5B067652576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mecca - III (2016) Россия, пиратка [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:0C5E4EA4FF9953770773C0EE8D10B21EC08968C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Oceans of Slumber - Winter (2016) [MP3|320 Kbps] <Progressive Gothic Death Metal
 ```bash
 magnet:?xt=urn:btih:AA1352A09B327EE8E5901158FD8535BFF8C45A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Black Space Riders - Refugeeum (2015) [MP3|320 Kbps] <Progressive, Psychedelic, 
 ```bash
 magnet:?xt=urn:btih:CE78DB95F84697ECD416DFD9F7E1F9352BB3C71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB70FCBD8A7B91F75E939987A1A490AB9357D8F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2A76582A31168575540B36390C79DFF43CD9C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:228E6FEBFB838257989CE895AD52D6B96C6701AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

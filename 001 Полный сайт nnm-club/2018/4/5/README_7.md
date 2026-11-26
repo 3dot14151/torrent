@@ -22,8 +22,7 @@ Azar Lawrence - Mystic Journey (2010) Furthermore [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:0C52C7E4A5A2D3E45ED16D5CCFE35D85722A16EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bud Freeman - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 ```bash
 magnet:?xt=urn:btih:183D724BA552A0F3DF51ADA163312DB382C89955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chet Baker - Stella By Starlight (1964) 1989, West Wind [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:E2067D5694BA0441B6AE0E2C17BBE59003A0E2E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Simple Ways (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:7065962F53CE4306507CA6FB89DDE1FB0A50ECF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Deana Carter (Дина Картер) - Father Christmas (2001) Rounder Records [
 ```bash
 magnet:?xt=urn:btih:1F26258B6ED3ED69B321B429F7BAC3DDE496B9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE2A2831119F466BB80721152700E3DB029F98FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBAAD1E4BDCD8A690183C1349572CA3DD3E6A8B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Monday Night At Birdland (1
 ```bash
 magnet:?xt=urn:btih:BB618E6A535986FD001965B42130053F0D48C054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FCEC91C8DA40C54650AFBFF7C1C9F7BA1753F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ VA - Voice Of Suanda Vol.6 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D80D9AF5848CF1DAC1C97139C57A698F17CBD59B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Substak - Deeper Walk (2018) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Dub Te
 ```bash
 magnet:?xt=urn:btih:27607F682AEE826F5E4A1786FEDDC39111A922D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Total CSV Converter - прекрасный конвертер CSV файлов �
 ```bash
 magnet:?xt=urn:btih:1F3058A68DEA51B8531C4DA0C9A385A4A6718640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCB9A6CECAF0ADC321D41EC8CE1A5492F9D3BBA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A22541D92CC10007C9452BA07EF1A77E6B09164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53D1CF42B556972A86464701C863B6F696C43B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Zazemlenie - Почти в одиночестве. Часть 2 (2018) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:48931370527BA884176D072475EC878C6F8F1B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ VA - Aly & Fila - Future Sound of Egypt 542 (2018) [MP3|320 Kbps] <Trance,Uplift
 ```bash
 magnet:?xt=urn:btih:76C56CB3F6435CF2034D7F7B027333412B0B934F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71F4C459D4516E2238BD53C402B50583AA544415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3D3F30577E0D045695453B02E33A466F651392A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:261E817557676B8CF6337BEAEB775030BB347A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ Edward Hartline - Edward Hartline - Human Nature (2015) [MP3|320 Kbps] <Blues, F
 ```bash
 magnet:?xt=urn:btih:AFF470D3A1BC5F6F0377332C9DD98B948D825745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Tremonti - A Dying Machine (2018) Single [MP3|320 Kbps] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:50814ED50164A21BF19DF05B2000F253615B37F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA713387F99BE5AC3A64F1BB6A658F36BF7F197B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ MediaHuman YouTube Downloader 3.9.8.23 (2903) RePack by вовава [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4FF048DEBCE10111CF1A02BDBF4359907BF79627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ Things - это настоящий (   Читать дальше...   )Тип �
 ```bash
 magnet:?xt=urn:btih:EDBC811A7D75E71CFC44298254F3DA24430930EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ Vivaldi 1.14.1077.60 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:46552799A8D3564DBD6DAA1B6AC9985BE80B2EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

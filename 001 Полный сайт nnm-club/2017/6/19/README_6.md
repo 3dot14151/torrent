@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:97E4776A875EB9C861223E325F40A7364105E2CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17F45E20388297FAD00F1CB6FD68F9557997F324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4514DB450F09EEBAB7080D445F3CFC98BCE87B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F44FF501E61015AE6E786606EC39666E21B91B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E7C2999CB48F86EECF3FCD739F5BE9B728B5EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A70BA6AC0B019522FC82E4A07E076C1B0C0A535E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4160A9326574FA5334BF71825B3E1041E4F585C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Osie Johnson - Osie's Oasis (1955) Original Jazz Classics [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:2857E087BE8DFAFC8423533234DEF5CA7DC0CFFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C6FFB57ACCAA2137B6BB10954E53304FE22C004B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Suanda Summer Vol.4 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F9E0458A55CFBA74317745E6FF488AB00480596D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Boys & Girls Want to Workout (2017) [MP3|320 Kbps] <Electronic, Dance, Hous
 ```bash
 magnet:?xt=urn:btih:539F7742EAD935BA8DB0A3EC7C48B1B2621D9B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Members Of The Benny Goodman Orchestra - A Tribute To Benny Goodman (1998) Green
 ```bash
 magnet:?xt=urn:btih:B6AD007B391E9D97226500325E1C7BFABFCF620D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Monster Energy Nascar Cup Series-2017, Этап 15 - Michigan (2017) WEB-DL [H.2
 ```bash
 magnet:?xt=urn:btih:4696FB65B99E9D4ED6E404BDEA21F7DA69A2C8B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ The Orange Alabaster Mushroom - Space & Time: A Compendium Of The Orange Alabast
 ```bash
 magnet:?xt=urn:btih:C86B3E5173F9FE27C60FBDDFFC4734497D1FBB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ VA - Lunch Break Chill Vol.1: Relaxed Summer Chill Music (2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:8462B1C5FE346105FCF72242524CACC1BE03EFF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ Privatus - это простое приложение для удаления н
 ```bash
 magnet:?xt=urn:btih:97E996256FB55C7DDEC02B13C0611F032A1936BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ Ida Maria - Accidental Happiness (2014)  EP [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:10766C5E00A8E1EDBD93DBCF67F2D378F6B9EC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ Ganz Feld - Bethany (2017) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Trap, Do
 ```bash
 magnet:?xt=urn:btih:2845FFCD641CDC1923591B9A12FEC9B4AEE9ABCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ VA - Summer 2017 [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:34A62E76D25B6C773CA11DDCDA57C6BCDB3390DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ ScrollNavigator - программа, которая поможет вам пр�
 ```bash
 magnet:?xt=urn:btih:18463A4CE17D29027B779B63914108964308B44D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ Dokken - Tooth And Nail (1984) 2011, Elektra [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:F602A57049AE464AE466111E12495F22A8CBEF95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25891D279E9FDE137C1473983D2C740239E08A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ Jerimiah Marques - Down By The River (2016) [MP3|320 Kbps] <Electric Blues, Regg
 ```bash
 magnet:?xt=urn:btih:9D3F0122855DCA7E1C922027B9FFDBF0B1EFE922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ VA - Best Of Chillout Vol.04 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:13449A5C7FAEADD709A244E04AAFEDE75B525F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77B0B8FDE624803F2A43EF6D7D53D23354219B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DACC313D140BEF2000B6499FB2B3F33DC60999C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ MAMA RUSSIA - Любовь, комсомол и роботы (2024) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:B1817606275C019CFABEAFAAD3D3138E5B56C13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Avrora - Любовь через провода (2014) [WavPack|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:D30D55B1AF623C97F67B84567846121C5CC3600B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kanatami - Зависимость (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:90803CA53979AABF908B19879716591DF236BD3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F67FB6A5A6EFE4AD6AFBB4E5EE511A3FC36AC9E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C939366DDE4F121B07DD21FB6297BF539565F82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Aggressive Retsuko: We Wish You a Metal Christmas | Aggretsuko: We Wish You a Me
 ```bash
 magnet:?xt=urn:btih:7863E084F9B6A4378ABE8D4B5366D1321A6C186A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Cafe Nirvana (2019) [FLAC|Lossless|WEB-DL|tracks] <Chiiout, Downtempo, Psyc
 ```bash
 magnet:?xt=urn:btih:EEC028B59CF66B0EB785E9DBC23551D66E2DFB6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:66AC7285B3EAB8BECEAE01F098C50EAE01C3D0A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8285D3DEC57909F8D76A724EFA59FD8A758B94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Laura Branigan - The Complete Atlantic Albums (2019) [MP3|320 Kbps] <Pop, Pop Ro
 ```bash
 magnet:?xt=urn:btih:D335610BD0994034D3B5261900D2624F4BA8B44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Aggressive Retsuko (2019) | Агрессивная Рэцуко (2019) [2019, We
 ```bash
 magnet:?xt=urn:btih:10E86217DBEAD1EC0F8AD55934EFF9EA9BA1AECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Samantha Fish - Kill Or Be Kind (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blu
 ```bash
 magnet:?xt=urn:btih:55FD8E2B4985D47E29D24C1829FB84C4A32A40A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Rotary Organ был сэмплирован из органа Hammond M3. Кон�
 ```bash
 magnet:?xt=urn:btih:EE68B0097B378B02D53ED949223CC761188B9837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:2B2E1155B44D698F85C94BED06F57175B076FA65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9D8AB925CAA9BE83BD25EDF832B848AB3398F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ The New Pornographers - In the Morse Code of Brake Lights (2019) Scene [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:1ECB87A335107EA087B3CC880B9E29B0B865B14A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Chimeras 8: Heavenfall Secrets / Химеры 8: Секреты Хэвенфол
 ```bash
 magnet:?xt=urn:btih:72621874EC95507E18E28C6AA2CB4F80ED95187D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ V.A. - Cafe Del Mar ChillHouse Mix 10 (2019) [FLAC|Lossless|WEB-DL|tracks] <Loun
 ```bash
 magnet:?xt=urn:btih:250183182FF87748E5743E8742FB946914EC938D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DCEDBDF555BA776FC6871B01DB9082932E77463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Aggressive Retsuko (2018) | Aggretsuko | Агрессивная Рэцуко (20
 ```bash
 magnet:?xt=urn:btih:5C25B684C4BEA26A9109728D5012A5A3A3779960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF73CC4B2EC731992412C2526FAED9A24F7C6486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B6612CDC4C806064F8F6928D7FD5BA5935C1B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13A857BE63A95C043D9B4A7671CB65438876E14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ The Keeper of Antiques: The Revived Book / Антиквар: Книга кошм
 ```bash
 magnet:?xt=urn:btih:898ED1A04FE446FDC9CEC8CAD4A5F94F9CC9FFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:880CA905AFED0E5CEFEA1669B2EDB1FBFE3231E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ History Channel. Президенты на войне / Presidents at War (2019)
 ```bash
 magnet:?xt=urn:btih:165E7FBB2FD7DAF04E6BFF9B3789A0742E96EA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6737F4F3CF737D6B367A3ABA1C10E30EC1D32AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ History Channel. Президенты на войне / Presidents at War (2019)
 ```bash
 magnet:?xt=urn:btih:0143F495B46240E88AA9ADC2A580AE29F23A0036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F80CCABCA2F3F8F2F0F64821BEDE570960D629D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ Beth Hart - War In My Mind (Deluxe Edition) (2019) Scene [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:69FDCA61D277F5CC574BC59B674E7E69AD1096A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

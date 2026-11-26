@@ -19,8 +19,7 @@ Whispered Secrets 10: Dreadful Beauty / Нашептанные секреты 10
 ```bash
 magnet:?xt=urn:btih:0AFA1B3826DBE0D636D049C503C1851B96A7190C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ EBONY (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:53506A64AB48F617896F96D6A71C59633B23F241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Narcos: Rise of the Cartels — жестокий боевик с элемент�
 ```bash
 magnet:?xt=urn:btih:41800F197BE04263060AD8FCA3625FEA6CAF6CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

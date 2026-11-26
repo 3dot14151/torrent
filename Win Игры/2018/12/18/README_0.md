@@ -19,8 +19,7 @@ The Unseen Fears 3: Last Dance / Невидимые страхи 3: Послед
 ```bash
 magnet:?xt=urn:btih:A45C74AA6C30F3868AE3881A933425E196705140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Evil Bank Manager (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:0A1588BC5D6C4EA848F0A28794BE73D0A8BF3963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

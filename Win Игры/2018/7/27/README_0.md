@@ -19,8 +19,7 @@ Tales Of Terror 4: Art Of Horror / Трепетные истории: Искус
 ```bash
 magnet:?xt=urn:btih:287653141D2840407B370A3035ED8F4814C893C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Banner Saga 2 продолжает события предыдущей ча�
 ```bash
 magnet:?xt=urn:btih:5F9179F9BCE822EA04B09D13B96928A5766771B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Banner Saga 3 — грандиозное завершение захватыва
 ```bash
 magnet:?xt=urn:btih:D0E07C2528855E59B57170BF77541B40F6ABDC49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

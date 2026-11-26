@@ -19,8 +19,7 @@ Chronicles of Mystery: Secret of the Lost Kingdom / Мистические хр�
 ```bash
 magnet:?xt=urn:btih:F6B7EF8DE3098C6DCDCCF37B234CF50314CC5576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Serpent of Isis: Your Journey Continues / Змей Исиды. Приключе�
 ```bash
 magnet:?xt=urn:btih:6E9E1285AE4DC553075AD6B74068BD9A826BCDB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

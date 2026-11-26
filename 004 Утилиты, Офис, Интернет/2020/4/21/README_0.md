@@ -19,8 +19,7 @@ QuiteRSS — это удобное и бесплатное приложение,
 ```bash
 magnet:?xt=urn:btih:E0D956EF75AC0D192723CDB67A04377C93C71982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A7C85CE4ED4ECC346004B47D415020C45BADC549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ KMSAuto Lite - KMS-активатор для операционных систе
 ```bash
 magnet:?xt=urn:btih:F8889BD56E835A8D5AC56F22ED591F8E94A79CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Disk Cleaner сделает всю работу за вас! Мы оптимиз
 ```bash
 magnet:?xt=urn:btih:93D8C782157FB2AAAB1444A735947659C6C5F955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Tales of Graces f / Сказания Милосердия б (2012) [PS3] [EUR] 
 ```bash
 magnet:?xt=urn:btih:2BF546B46ECCF39AD1736C6DFCFF742F8BB69E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:892090CD68B57CE5074817C44806ABB34A724C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Microsoft переходит от двух полугодовых каналов
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:105D47E61E0A1FBA75666B0F5938D5F0FEE5A2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C09B6EF434ABC6738B99ECE94E75D65E4965A744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Easy Poser – это приложение, которое сумеет реал
 ```bash
 magnet:?xt=urn:btih:37A7AEB6E784759EB09E83104BF32237FCD53802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Tales of Graces f / Сказания Милосердия б (Undub) (2012) [PS3
 ```bash
 magnet:?xt=urn:btih:D4299A33E751BDA36537C53A5B69028B7C1D2FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ GTR2 – серьезный претендент на звание «самог�
 ```bash
 magnet:?xt=urn:btih:EF4FF3EE0EE022618A0AC171CE659B77D427DEDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CDBDE2A935A008DD0D35C5F9356F8F83F5DC544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:041592E47DBD7F9AD185B6F4009157488EC102F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Mirai no Mirai | Mirai of the Future | Мирай из будущего [2018, M
 ```bash
 magnet:?xt=urn:btih:EA27DFAE07447D43A739F0D9D21E386473A066B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:501B239A4AB785EC179CBAE89CD74D2A86BCC8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10E2386632601706076B6C10A4E9ADBB1767271A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ SW_DVD5_WIN_ENT_LTSC_2019_64-bit_Russian_MLF_X21-96463
 ```bash
 magnet:?xt=urn:btih:64F04C113D4631B93C8DA4DBD6594A51B7F14EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 1809 RS5 RU by OVGorskiy® 02.2
 ```bash
 magnet:?xt=urn:btih:BC0AF33F93EFE5C1455DB88A1AEF8E3E2F29BF67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +497,7 @@ Forza Motorsport 7 (2017) [Ru/Multi] (1.141.192.2/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:133546D97FE21C9C41ABE2B091F674E9D2CAFD82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

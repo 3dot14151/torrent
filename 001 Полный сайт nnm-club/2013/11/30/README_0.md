@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:20F4EBBC521B75E8ED6782331373BDFAA7B49118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ VA - Zirkus Zirkus Vol 5: Elektronische Tanzmusik (2013) [MP3|320 кб/с]<Deep 
 ```bash
 magnet:?xt=urn:btih:6B254B9600445A2486BB4007DE3DD9E1E7D66EA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - Top 50 Hotel Bar Lounge (A Smooth Session) (2013) [MP3|320 кб/с]<Electro
 ```bash
 magnet:?xt=urn:btih:DF16BAB977DD07DB38398AABE1F420D4C3F1D1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A1A7A4DADB61BD46646EB606E97B5F417C298C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:8DE61932118AE22834BC35D5726D3A6625677D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Human Fortress - Raided Land (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:63E43C386BF29194162A7775933B20757743D354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30D3CD9E0D1A7E1DF12290C1924D91D3D20E5A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ VA - Intelligent Toys: We Make Music (2010) [FLAC|Lossless|WEB-DL]<Dub Techno, I
 ```bash
 magnet:?xt=urn:btih:511E311BA6BAEB40919C5D22988C05C187A180D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0B594C68FDF6D0CCF729C5F3FBAE696AEB16DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ VA - Billboard Top 40 Singles Chart (30-11-2013) [MP3|~245 кб/с (V0)]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:736099830D396D885E93B053BA8D10393B204AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ Andrey Malinov - Love Story vol.7 (2013) [MP3|320 кб/с]<Chillout, Ambient>
 ```bash
 magnet:?xt=urn:btih:13D47670164DFBC838B0651E1105FF40167B53F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA98E82A634C5DF52BB407BF8FD7106592A852F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ Denis Arson - Way To... (2013) [MP3|256 кб/с]<Chillout, Ambient>
 ```bash
 magnet:?xt=urn:btih:8763BFE7DB96791470BCBE66DFFF86744AFD2B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1707650EEDA1C419673B0B1631D4DF8FE17E514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF0465CECB2753B14CAE82F37B3ABC08C35665A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C45BD402065BAE87674188F0B8B6281219BB0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:054761CB6E3884D76D335096F8988C7AC2F44014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED8C726E81C201C6DD17C578BF24B5EB6C4E28C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ VA - Ministry of Sound: The Annual 2014 (2013) 3CD [Box-Set] [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:C5678DFDBB233AF7F68BB5BF886ED13189CC63DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ Avatarium - Avatarium (2013) [MP3|320 кб/с]<Doom metal, Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:FE390DDFCADD96BCFF20EAC8CCF1531CD902B423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +629,7 @@ VA - Acid Jazz Records: Acid Jazz Rarities (Deluxe Version) 2CD (2012) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:8B38DDEBCE9AB54DAC78DC4F1926E79462B92964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E18768E1E4E097D1D92E5CFBB33C1B1C4C66230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B554887A2111A248BB503A2EC434279D98EF4D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ Chris Buck & The Big Horns - Postcards From Capricorn (2013) [MP3|320 кб/с]<B
 ```bash
 magnet:?xt=urn:btih:D7A2F2B0245C2014C85B226C74668B6B5C0CC379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2E0028B66885F6FCF44E651FAB77635FF0F9A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +762,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA8DD067FB9AEBFCEF18FDEB2615F75980EBD123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

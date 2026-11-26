@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5C23B34CAA0324A466B7824DA5F086D12882D2FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Aephanemer - Prokopton (2019) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:91181B906218E4F3826318576FE4A799B9FC12B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

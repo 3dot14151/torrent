@@ -19,8 +19,7 @@ Pro Evolution Soccer 2011 подарит вам совершенно новые 
 ```bash
 magnet:?xt=urn:btih:1D1D7E96A1D646610EBD93912106CC5EB1156BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Farm Girl at the Nile (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:C8CADB63DEAF57A388268B3C61CEE627FE2E71CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Time Dreamer 2: Temporal Betrayal (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:A3436F8A1022549CC7883F4A482A8E7EBA130E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

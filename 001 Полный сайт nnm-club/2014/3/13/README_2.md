@@ -27,8 +27,7 @@ Keith Urban - Fuse (2013) /Deluxe Version/ [FLAC|Lossless]<Country>
 ```bash
 magnet:?xt=urn:btih:244DF41CD3347BA33BE8464356A7A00C19879DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEBE4B54E6A1FD90023EB70AAE29332AD0940459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F0128D88052F3D3AF540EC2750A2C0199D9514B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:177B722839D17078DA3A50806B4D4285A2357D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Heart - Magazine (1978) Remaster, Hybrid SACD /2014, Audio Fidelity/ [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:B58D5882B83A9281060D1EF95C98BBA0103721D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E6E7F8E7257D381E196AD9F47608464F966B5B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:9E9858DA65DD3EF28D0ED80607B300B342618EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ FotoMagico – популярный пакет для создания слай�
 ```bash
 magnet:?xt=urn:btih:0EFBAB029771EDCCB8BCD66EB026D4791E02AD84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F54F306D2009414826E7E12331080F71C4AD3BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC2251EEDDAA816BCBE90C2660F993D26C02299E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:334554FE8FA8815295F8EA9BA7BE43DA606EDE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Serebro - Мало Тебя (2013) HDTVRip [720p]
 ```bash
 magnet:?xt=urn:btih:D6F67D715FCD7F654B71AA2E96E17DADAE6F1004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Nine Lashes — американская группа, образованная 
 ```bash
 magnet:?xt=urn:btih:5B9A6CD257FBEAB01B95671D4A4E8A3E7367FD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:483891299B78A6223C9DC1F0F3E526561AC8E424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58B0A9BB5F79C5DD67FA9646ABDB895CFD556797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ Baidu Antivirus 2014 - очень легкий, простой в использ
 ```bash
 magnet:?xt=urn:btih:E582486A918A63675430ED06CBF3642254B46B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Work Templates - представляет собой набор из 170 сов�
 ```bash
 magnet:?xt=urn:btih:A7F6AEE7801144320A18DC9D7E1B8D1C9864F19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Synthetic Epiphany - Discography 11 Releases (2012-2014) [MP3|320 кб/с]<Dubst
 ```bash
 magnet:?xt=urn:btih:EB7E46077DE5AB6D48A4F337E6D014C93B250E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ VA - Alterportal HITS 14 Vol. 66 - February (2014) [MP3|128-320 кб/с]<Alterna
 ```bash
 magnet:?xt=urn:btih:9B4079217F8F6798C1080F4E1C3D710CCA806A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ Wallpapers - Обои для рабочего стола №3 [JPEG]
 ```bash
 magnet:?xt=urn:btih:EC595CAFF2F87363D52CC661CFA3674B39E3B24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ FantaMorph - легкая в использовании программа дл�
 ```bash
 magnet:?xt=urn:btih:F813EE3F1B6B037CDE89278F1B8C803C018D7BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ CoolUtils Total Image Converter - преобразует изображения 
 ```bash
 magnet:?xt=urn:btih:475855D761C46D1054F16C41FDF7B277437C0413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:674CB7189FB154FDF167F55D7D7D9700AB1F178C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11A24D8968D3F48163E35C5593C181F112F36324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEACFB74A45B2D08734A3A687988F75449F26D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ Adobe Shockwave Player - плеер для проигрывания Flash-рол
 ```bash
 magnet:?xt=urn:btih:87F338FE1BB7456236D3E8A574065EC1721FCA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

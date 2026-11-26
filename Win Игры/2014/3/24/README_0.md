@@ -24,8 +24,7 @@ Nidhogg - это фехтовальный экшен с одиночным и м
 ```bash
 magnet:?xt=urn:btih:64BE29ED55D2CCF38BAF6265D4109C06C2EAA632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dark Shadows - Army of Evil редставляет собой классичес
 ```bash
 magnet:?xt=urn:btih:8EE27C1807B323F6A0E6DECB56B617D0157A1DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

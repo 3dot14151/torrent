@@ -19,8 +19,7 @@ Figment 2: Creed Valley – это приключенческий экшен, д
 ```bash
 magnet:?xt=urn:btih:1A73C7C96A77B07A3FBE21922ED65030AD01F577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grimvalor v1.2.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:BD8605A1D86F714737BF276BEA336A7E58883E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

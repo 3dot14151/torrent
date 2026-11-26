@@ -19,8 +19,7 @@ John Deere: American Builder Deluxe (P) [En/Ge] 2006
 ```bash
 magnet:?xt=urn:btih:004312E142C766C85B4724A9DCDE1F95E95832D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD2B2860DD891FF120B6325AA2412CD1F039BEA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B514CC4AEBED6EC97CD479625FA9699CDC5997B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Agatha Christie: Murder on the Orient Express / Агата Кристи: Уби�
 ```bash
 magnet:?xt=urn:btih:0F6C7584CD32F1B66CA2FC950A41E8A1EF32C6BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Nancy Drew: Secrets Can Kill. Remastered / Нэнси Дрю: Секреты м�
 ```bash
 magnet:?xt=urn:btih:97F9CF9479C6A6D32CB2002DECAC029E0DE6FB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Need for Speed: Most Wanted / City Racing Mod / Городские гонки (P
 ```bash
 magnet:?xt=urn:btih:D4E857C52B92699225D018A698A92F72A60E4F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Project:HD - текстурный мод для игры NFS Most Wanted
 ```bash
 magnet:?xt=urn:btih:FA528C222EF454028C09416EDDD51666B5BA4B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Bulletstorm [Ru/En] (RePack/1.0.7147) 2011 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:5DF98AB8B5EC9F2279A910465716467A85EF8AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

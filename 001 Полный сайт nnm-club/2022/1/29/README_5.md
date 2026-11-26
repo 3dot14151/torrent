@@ -18,8 +18,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 01.20
 ```bash
 magnet:?xt=urn:btih:D679FB5999BF915B35AE055B7E7E693BA54E9C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69A675FA8241F92AF1D7A1B6C3A5B1D6CD9E2FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Horizon: Zero Dawn (2020) [Ru/Multi] (1.11.2/dlc) License GOG [Complete Edition]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Acronis True Image — это интегрированный пакет прог
 ```bash
 magnet:?xt=urn:btih:2438DB79811CF349576E271D0056C3E2C89D66CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VA - Back to Earth #04 (2021) [AAC|~328 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:60CE4ADB3B94965520B8E9D7A4E7B2C1B11A4553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ VA - Back to Earth #03 (2021) [AAC|~323 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:005B86C187D13A6DAA2B3A747ADCC20531DC5A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Foldor - это инструмент для создания и изменени
 ```bash
 magnet:?xt=urn:btih:468F7258B22CFA971389F5257A746F5E67845414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ VA - Back to Earth #01 (2020) [AAC|~323 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:88D369B30966C2B27E086ACD4F7F6CDF3492F301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - Back to Earth #02 (2020) [AAC|~323 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:019D59BD1E1E5E757C2BA4CE0C2CAE78AA4D73E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ VA - Sunrise Meditation, Vol. 04 (2020) [AAC|~311 Kbps] <Lounge, Lo-Fi, Ambient,
 ```bash
 magnet:?xt=urn:btih:F2F2D97586095F4CFA4870D41256EB10440F6D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ VA - Back to Earth #05 (2022) [AAC|~327 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:A12FF578F3F47259F58B8F6C16D39F2F324533D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

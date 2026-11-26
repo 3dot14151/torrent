@@ -19,8 +19,7 @@ Galador: The Prince and the Coward / Галадор: Проклятие Прин
 ```bash
 magnet:?xt=urn:btih:964FBF672399110B894A8CC5C270D966CD04FB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Relax Mountain ~ Nature Sounds PRO v4.3.1 [Ru/Multi] - Расслабьтесь 
 ```bash
 magnet:?xt=urn:btih:0604319763A74CAFD0D6B616A5A2807E76223E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Relax Night ~ Nature Sounds PRO v4.4.0 [Ru/Multi] - Отдых с лучшими
 ```bash
 magnet:?xt=urn:btih:609CA79D50BF6077E10B58EB01EDE5849D69898A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Relax Sea ~ Ocean Sounds PRO v5.3.1 [Ru/Multi] - Расслабьтесь с л�
 ```bash
 magnet:?xt=urn:btih:169FDF2F516205518F7764A4079059EEB4093233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

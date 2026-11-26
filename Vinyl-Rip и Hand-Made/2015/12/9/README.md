@@ -22,8 +22,7 @@ Sandra - The Long Play (1985) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Electronic, Pop
 ```bash
 magnet:?xt=urn:btih:06764854BCC7FD068EE2B1E9EC8F4D68503BC92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0692437317D1665851153A801944104FE2AB21F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

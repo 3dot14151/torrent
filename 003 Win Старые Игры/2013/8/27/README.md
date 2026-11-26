@@ -21,8 +21,7 @@ Gangsters 2 - очень увлекательная стратегия реал�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Gangsters 2 - очень увлекательная стратегия реал�
 ```bash
 magnet:?xt=urn:btih:8044A765CDA04C265994069B2ECBEAEAAFFDCD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

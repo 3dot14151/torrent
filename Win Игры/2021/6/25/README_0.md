@@ -19,8 +19,7 @@ Minute of Islands (2021) [Multi] (1.0) License GOG [Digital Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:B1EB20D22DA3CBD19FCAFE8695BF3F6D7C32FE8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

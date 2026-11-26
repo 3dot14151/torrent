@@ -28,8 +28,7 @@ Mini FAQ (Ответы на часто возникающие вопросы)
 ```bash
 magnet:?xt=urn:btih:82D3961C080FA8B23B85212E692C15E7B7164C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ M. Lombard | Solidworks 2013 Bible / Библия Solidworks 2013 + пример
 ```bash
 magnet:?xt=urn:btih:92921230A95950BA5992F15FAFE58B38BAA9E668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

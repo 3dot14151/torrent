@@ -21,8 +21,7 @@ VA - Top 150 Deep House Tracks Vol.1 (2019) [MP3|320 Kbps] <House, Deep House, C
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Музыкальные новинки от радио Record 50/50 (2010) [
 ```bash
 magnet:?xt=urn:btih:0C7C4C16606939A5FFCF54E21AD35509DD69FDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D68625021FC5EDADC434AFE0185B84EBC5F45BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ The Chemical Brothers - No Geography (2019) Japan Edition [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:473426969F6753773808C5DC31E128236D5CF901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ City Car Driving – реалистичный симулятор вождени�
 ```bash
 magnet:?xt=urn:btih:0A41D1FD870064C13A24D785588F486A0035ECBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ ru_windows_10_business_editions_version_1809_updated_march_2019_x64_dvd_5374e130
 ```bash
 magnet:?xt=urn:btih:560409C1A890F7CAA462548D00CD3CB1BFDF2BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Darksiders III — долгожданная третья глава популя
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2565899D7C9A29498B1BB67771CB6778CBC6FD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

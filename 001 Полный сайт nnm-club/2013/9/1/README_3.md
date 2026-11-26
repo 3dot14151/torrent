@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D62C9DE4DB2C31621E008125D553F35D3729642C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Jazz Erotic Vol.4 (2013) [MP3|320 кб/с]<Jazz, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:C1EAA7AAF8ED97B2CED748596C9948D904C82DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Andy Gibb - Greatest Hits Collection (1991) (1991) [FLAC|Lossless]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:B7FD16CB4D03363E27507C4617E64C59CA8D5CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D175C2589AF5A1C152CE2006BADA8A63707EEE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6AC295B53B1BA2514B5B4A32EEAA12DE53C9504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Brett Walker - Straight Jacket Vacation (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:64177F6EDD2DD7096EC5514EA78FA50DB49E4916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ VA - Популярные песни от Радио Дача Vol.7 (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:3BB1D20B68B00BA04205067F119B34998F4B1F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ BBC: В компании акул / Swimming with Sharks (2004) DVDRip
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ Lachen und weinen;(   Читать дальше...   )Жанр: Eletronic; PopП
 ```bash
 magnet:?xt=urn:btih:D0ADF4D9D165C45BDD6AB05594477E5B20C1BAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ Dr.Web CureIt! 8.2.0 (01.09.2013) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E93E2D6B2F8B90FB96A4C5C9DC698461BEC4419E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ Windows 7 Manager - утилита позволяет пользователю �
 ```bash
 magnet:?xt=urn:btih:5FFFCB9D322A6C1245EF6F906F76C061D782575E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E78FBE92530B7839554633BBB21F0B167F41F950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9A4355945939938BB29A1280BC009B93D60956F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EDB00D79CDE214509B31BC3F98B4C898FC099A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ Adriano Celentano - Greetings from the Past (2013) [MP3|256 кб/с]<Pop, Oldies
 ```bash
 magnet:?xt=urn:btih:39DC8B4470E2AFE0F65B2177B61A03E04F1706EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ Ashampoo Photo Card - это интуитивное и простое решен
 ```bash
 magnet:?xt=urn:btih:2CF40452BC2F5F7D9D9C30F6AEA4DE5D52E5DDCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ The Rolling Stones - Forty Licks (2002) [FLAC|Lossless]<Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:0D0815703CBF0CD3EBF8C04ABE1A754A61348523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC0478232CBFE2D3468C64EF270B9D967A3CC9C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AAA224B616FD3298EDB91D0976AAA465D707505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51186B4BE30D09849838E998113D61095AAAC214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A19F059D5D447C308959DA13495F6F4EB0AB68E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +614,7 @@ NG: Последние тайны Третьего рейха. Сезон 2. С�
 ```bash
 magnet:?xt=urn:btih:DAB8F7188CD4EC09A2DEDB532B5D6A4BAEF8E60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ Metallica - Live In Tokyo (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:94D140F7E7F66C51EB4D6E41941E46330F9EE989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ NG: Последние тайны Третьего рейха. Сезон 2. С�
 ```bash
 magnet:?xt=urn:btih:60888E9451A84EEB34956CE634F0A6A5C88D366B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F673ACCEB9FDFBAC4A6AACCE195007249A3A96BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +728,7 @@ Billy Ocean - Greatest Hits (1989) [FLAC|Lossless]<Pop, Rock, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:3F73F204E7161B22336B8923086BB1A5FFD84075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

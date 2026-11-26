@@ -19,8 +19,7 @@ Cast of the Seven Godsends - Redux (2015) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2DCBE038E1956A382E63BA1EAF7B1BA49852B02B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

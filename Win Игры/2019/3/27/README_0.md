@@ -19,8 +19,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack Other s [E
 ```bash
 magnet:?xt=urn:btih:72CE5C31E369B3E3AAD96530DEBE79FBD86C9D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Xenon Racer – футуристическая гоночная аркада, с
 ```bash
 magnet:?xt=urn:btih:3C27362258E0CB27BB37E6FFE0BDF1FB8749F20A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Total War: Napoleon (2018) [Ru/En] (1.3.0) Repack xatab [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:ADFEB780C64709333BC621F161BD9977D64D11DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Total War: Empire (2018) [Ru/En] (1.5.0) Repack xatab [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:EEE5B5E34F993B4875E4430341507110EDB76E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mafia II / Мафия 2 (2011) [Ru/En] (1.0.0.1/upd5/dlc) Repack R.G. Origami [D
 ```bash
 magnet:?xt=urn:btih:403DEEBD0F73F943752317C5B4EBB5D615104C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

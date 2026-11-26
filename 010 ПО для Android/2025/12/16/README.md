@@ -19,8 +19,7 @@ Mi Home - это приложение для управления умным д�
 ```bash
 magnet:?xt=urn:btih:2B426ACB32F73D5C29C4200C0747D6E9021492BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Universal Copy — это самый быстрый способ копиров�
 ```bash
 magnet:?xt=urn:btih:A0B67D2E0A314D0CD744424E01CBC374BAD53786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Sketchbook — это то, что вам нужно, — от быстрых э
 ```bash
 magnet:?xt=urn:btih:F1C927524CDFA95891EA9947025EF2823C825FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:950420F12BCF78C1FE8065099145DE6C3E0B09B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:DDA0542C14AE26BA6626A66BCAEF958F465D64AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

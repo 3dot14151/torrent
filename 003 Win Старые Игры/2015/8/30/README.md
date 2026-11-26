@@ -19,8 +19,7 @@ Pilot Brothers / Братья Пилоты: По следам полосатог
 ```bash
 magnet:?xt=urn:btih:D6E1AAD66A1A0C01886B9247402CDA650635E29B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

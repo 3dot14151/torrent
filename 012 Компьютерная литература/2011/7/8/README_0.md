@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:8B7AB7BDC6514473047E9C5F4904BF87804A2417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Manimal это серия уроков ZBrush, разделенная на ше�
 ```bash
 magnet:?xt=urn:btih:58C3F9BE3F89683D81D8C1A57C8D4672A29F17DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Manuel Scherer | ZBrush 4 Sculpting for Games: Beginner's Guide - Скульпт
 ```bash
 magnet:?xt=urn:btih:B3A897B96026434B9AFF23D94377C461ED82EDE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

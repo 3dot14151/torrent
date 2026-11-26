@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4CD8F0156484A043168A84C4D6B1534137A584B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HiBit Uninstaller - идеальное решение для удаления п
 ```bash
 magnet:?xt=urn:btih:FE04EBCB1C26EFFC7EFB6D926B2B804B4857EA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ W.A. Production - Instacomposer 2 2.0.1.240325 VSTi, VSTi 3, AAX (x86/x64) RePac
 ```bash
 magnet:?xt=urn:btih:3C4A048B28AE6E96DC480D3E5F428269923E8E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFBF392C625B8FCB8FDF3925A3E66D4D38FCED16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B81848E2C061AE023F5B2A2A48A8199F9E0C51D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

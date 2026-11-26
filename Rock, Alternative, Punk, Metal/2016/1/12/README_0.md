@@ -22,8 +22,7 @@ Diamanda Galas - Guilty Guilty Guilty (2008) [FLAC|Lossless|image + .cue] < Pian
 ```bash
 magnet:?xt=urn:btih:669F7806C49B6544115DA48C9E80BC9170C39471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Malevolent Creation - Dead Man's Path (2015) [FLAC|Lossless|image + .cue] <Death
 ```bash
 magnet:?xt=urn:btih:747EA57B4B16373D474B0C676355C9F6A2B8F938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Arcturus - Arcturian (2015) 2CD [FLAC|Lossless|image + .cue] <Avant-Garde Black 
 ```bash
 magnet:?xt=urn:btih:C3BC68B15B7B9A79A5D63455D3D157CF3D886E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Abbath - Abbath (2016) [MP3|320 кб/с] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:F037C27A15A4C2B3A25C5A91FE3CB2A3A8E0280D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

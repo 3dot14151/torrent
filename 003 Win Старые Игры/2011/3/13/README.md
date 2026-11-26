@@ -24,8 +24,7 @@ FIFA 06 — ваш шанс оказаться в центре событий д
 ```bash
 magnet:?xt=urn:btih:0F7D3BC334A58879DE1F45E18739E4651FC63DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

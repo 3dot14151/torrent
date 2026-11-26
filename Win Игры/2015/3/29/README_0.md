@@ -19,8 +19,7 @@ Surface 5: Reel Life / За гранью. Живое кино (2014) [Ru] Unoffi
 ```bash
 magnet:?xt=urn:btih:922AB00FE18E9B382B1806D0FFA48216207BE943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Munin – логический инди-платформер, основанны
 ```bash
 magnet:?xt=urn:btih:E2D143BF0C5361B4AA5DCADE106279CAFBA95F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ F1 Race Stars (2012) [Ru/Multi] (1.1/13dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:F660D08A41E99A0154A34C8F8645FCCCD524BBAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Game of Thrones: A Telltale Games Series – эпизодическая игра
 ```bash
 magnet:?xt=urn:btih:D4782B4C07A62FD2FA12100CE9B79C0E04493213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Real Boxing дарит тебе самый восхитительный, бес�
 ```bash
 magnet:?xt=urn:btih:1884548F932A2A3895E431902A9BC3BD9371C6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Legends of Dawn – ролевая инди-игра, действие кото�
 ```bash
 magnet:?xt=urn:btih:263C3E912A0CEDE7F256760C0A690C34947D5615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Trapped Dead: Lockdown (2015) [En/Ger] (1.0) Unofficial Fairlight
 ```bash
 magnet:?xt=urn:btih:B2B77E691A6FA60592906099890E2B18187A288A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

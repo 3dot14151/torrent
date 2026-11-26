@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CD2BA26525F2257BD7D97660AA2C089B9816E5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Billboard Top 40 Singles Chart (05-10-2013) [MP3|~245 кб/с (V0)]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:30B7E4ADF123D5A8A57CB3DF8EDC49CD46CD8621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Absolute Dance Autumn (2013) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:241DC421DF257CFE2CA30F057CA9AA120A98BB19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FFB4A09953E42F5DD9F70A5254E59C2859AC814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Black Sabbath - Live in O2 Academy Birmingham (2012) DVDRip
 ```bash
 magnet:?xt=urn:btih:9FE154A00612916C70E33B2AF5A131236DF1CF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ VA - Медовый Чарт Сладких Треков 50/50 (2013) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:CA43F483540B67F6E1F3E69438E6FEF9378E94E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Banco De Gaia - Ollopa: Apollo Remixed (2013) [FLAC|Lossless|WEB-DL]<Downtempo, 
 ```bash
 magnet:?xt=urn:btih:092C7FE69B0BE1F8F4C64E00F8F30FD31C00B83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2D89717B52EF7011A7BE6B4AB816B63ED6A59F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A14E0D62627FADF1F2D68A294765212F4782A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ Yes - Close To The Edge (1972) Hybrid SACD /2012, Audio Fidelity/ [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:DBBAB8EF1F7EA653C96FDDF715377E81ACCB7BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ VA - 70's Roller Disco (2008) [MP3|192 кб/с]<Rock n roll, Disco>
 ```bash
 magnet:?xt=urn:btih:6C9088498DEDD7FFBC01515CBEC42C22A1332DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ Secret Frequency Crew - Forest Of The Echo Downs (2004) [FLAC|Lossless]<IDM, Dow
 ```bash
 magnet:?xt=urn:btih:EDF23FF8386F9147C5DF248F339CABA328EA8585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E906EDDE6851C7FC0AF14A48D0944C9AE6E4E056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCBD510A6C9FBCEF9CE6B243717E098DE0BCC901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Golana - Feather on the Wind (2000) [MP3|320 кб/с]<Instrumental, New age, Nat
 ```bash
 magnet:?xt=urn:btih:D9CC3A940031C0FF313B02D894E1B75C984F1AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ VA - Фейерверк осенних хитов (2013) [MP3|256 кб/с]<Pop, 
 ```bash
 magnet:?xt=urn:btih:3DCA54DE237CC709476FCA6D751BAF2569ABC83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:928FB53564B1445A6E6103E18D5F7F475593A1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D31036E6D73A745B7FF46172F440FAB02055F3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ B4.  What's Love Got To Do With It  :: 05:39(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:F58E9FC54AE2847FABF748B4657B141B94FCE8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ VA - Cole Porter Songbook (2006) Jazzclub [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:C8F5FBCEA1B8CD57508FBD048894F550B3DA9846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83A06E91F36DBF59E5E7F5D022A0F8E35B32D8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25C739859814CA2211C34CA74D8535CF0EEA95FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ GPU-Z 0.7.3 RePack by loginvovchyk [Ru]
 ```bash
 magnet:?xt=urn:btih:309855100BF68E3927C8987F3184F827F15AAB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ VA - Who Loves You - A Tribute To Jaco Pastorius (2000) [FLAC|Lossless]<Jazz. Fu
 ```bash
 magnet:?xt=urn:btih:20F14DC2D360FC11D7D751C2A06770385A814BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CA2FE3153268BF712F3E617C05CCF4A036EA30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29B74B9F48D639B034A81EA6EFBECC01C2298919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

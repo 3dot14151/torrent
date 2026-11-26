@@ -21,8 +21,7 @@ LOL!TV v3.0.1 [Ru] - Торрент ТВ для Android, ваше онлайн �
 ```bash
 magnet:?xt=urn:btih:F05B5B65754F818B2C62B3E1835544A9EC29E1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

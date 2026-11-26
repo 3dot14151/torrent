@@ -21,8 +21,7 @@ Ethereal Shroud - They Became The Falling Ash (2015) [MP3|320 кб/с]<Atmospher
 ```bash
 magnet:?xt=urn:btih:8AAD18F3C4BBCD6A319EAA21B1225BB4F1566C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sleazy Roxxx - Dangerous Obsession (2014) [MP3|320 кб/с]<Glam, Punk, Rock>
 ```bash
 magnet:?xt=urn:btih:02F2B4D55055297FBDC108E682C5B35575C84345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Sleazy Roxxx - Dangerous Obsession (2014) [FLAC|Lossless]<Glam, Punk, Rock>
 ```bash
 magnet:?xt=urn:btih:A626F42CB8E56E54AC33C8D838EB5078B8B7140F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Heart In Hand - 3 LP (2010-2014) [MP3|320 кб/с]<Melodic Hardcore / Metalcore>
 ```bash
 magnet:?xt=urn:btih:FF66C94097203EB00EB248452481D1FEB9E2B7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ The Parlor Mob - Dogs (2011) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7E0EBB162300296CA4B2A4BF4759ACF9E8AC6793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Bloodshed Walhalla - The Battle Will Never End (2012) [MP3|320 кб/с]<Viking m
 ```bash
 magnet:?xt=urn:btih:C3FCC0DC46DBF1AC53EA2853FAD39BF2B43A606B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Solefald - World Metal: Kosmopolis Sud (2015) [MP3|320 кб/с]<Avant-Garde Meta
 ```bash
 magnet:?xt=urn:btih:71AD12046E7DF26179D8273BF37269580DCE87EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Heaven - Brass Rock 1 (1971) Reissue, Remastered /2008, Esoteric, UK/ [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:1BF11A83355A7E2C3DCEDC53C28EE0A030DCD2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ Black Rain - Requiem For A Killer (2015) [MP3|320 кб/с]<Heavy Metal, Power Me
 ```bash
 magnet:?xt=urn:btih:38D3551486847FE7A0FA549E976B7DC0E9858D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ The Parlor Mob - Cry Wolf (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5FD13549F1816CFC1FC558D1996480F7695D9FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ Eric Woolfson - Edgar Allan Poe (2009) [APE|Lossless]<Progressive & Art-Rock>
 ```bash
 magnet:?xt=urn:btih:DCC6523A45BFC6F6493A35E65F12188F72509015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ NOFX And Friends - Home Street Home: Original Songs from the Shit Musical (2015)
 ```bash
 magnet:?xt=urn:btih:CDD13B6CF243C919329C281279AD2B513D92C458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ The Wise Guyz - Hot Summer Nights (2014) [FLAC|Lossless]<Rockabilly/R&B>
 ```bash
 magnet:?xt=urn:btih:6235E5644457E506DD93A1EC40F44CE86D652851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ Feed Her To The Sharks - Fortitude (2015) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:E2EAE68F4297789619C00C67F8E124EB65198DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ Brian Wilson - Reimagines Gershwin (2010) [FLAC|Lossless]<Pop-Rock, Ballad>
 ```bash
 magnet:?xt=urn:btih:6F9014F6614918CB531C91BE83B65066C7744E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ The Agonist - Eye of Providence (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:740DF3827106BC95DE4E834FEAEB53C8DD547F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ Beyond The Black - Songs Of Love And Death (2015) [FLAC|Lossless]<Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:362952B76D3CD13148CDD5AC2088BD1A902D6BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ UFO - A Conspiracy Of Stars [Limited edition] (2015) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0F8D390EE04890D3224D990463780A1FD1D4A6A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ Eisbrecher - Schock (2015) Media Markt Edition [MP3|320 кб/с]<NDH / Gothic Me
 ```bash
 magnet:?xt=urn:btih:BD6F7104B51A8729C85EF029C4153EDB862E3DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

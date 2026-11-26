@@ -21,8 +21,7 @@ Earth 2140 Trilogy / Земля 2140 трилогия (1997-2006) [Ru/En] (1.0) 
 ```bash
 magnet:?xt=urn:btih:5214771D1E7A86676EA140F9ECB2C9445EB3C2B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:49853C14473F7A7C2055DCD94BBB71A21A158421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ RapidWeaver является приложением все-в-одном, кот
 ```bash
 magnet:?xt=urn:btih:76E1D5FFA8954CFEC9075B40523B4B810D5D3D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64185EFA284D8B38457E4B25BCF08526C71DA0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:563DB342C2A9D9B41FE1C0E7170EFA78002DDA89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Bigasoft Video Downloader Pro - популярный онлайн видео з�
 ```bash
 magnet:?xt=urn:btih:33566D2394FDFCC18EE967BC200B16A687188C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ One Chat объединяет в себе все сервисы обмена с�
 ```bash
 magnet:?xt=urn:btih:AEB01F6AFBA4758CD0E87EFF5AE4F75B60D1FE64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Smooth Springtime Jazz (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:04B0FE5097FF41ED48875E9881D97BE948F6F968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - На волне позитива. Сборник № 7 (2017) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:CA200F6967C83CE456FCD4564FDACD6D707FC00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Весенняя танцевальная вечеринка выпуск �
 ```bash
 magnet:?xt=urn:btih:EFD01D2B9CAD30A7B5BAEB525AD13BB382B51C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Michael Harrison Blues - Simple Bird (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ```bash
 magnet:?xt=urn:btih:EB0465CBC35CE8CCEB45D622E3E94AA2A81D52BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Folx Pro 5.2.13682 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EC347D9D67E77D59F7A4ED00C3E020A4DE04EFE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Ol' 55 - Take It Greasy (1976) Reissue, 1991, Mushroom [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:AD958C943BC92669DE6012DD1331290B44781D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ In'R'Voice - Metadreams Pt. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, 
 ```bash
 magnet:?xt=urn:btih:7FF5C0378A8304443C69BEFAC5C5EFABDC8C6115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ VA - Philosophy Of Time: Drumm And Bass Mix (2017) [MP3|256-320 Kbps] <Drumm And
 ```bash
 magnet:?xt=urn:btih:926FB51F1B02361E27DE831FBEB41BB9602C3F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0434748A2B0C8C629C3DCCC5F54BBCC882AEF246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Chris Duarte Group - Texas Sugar / Strat Magik (1994) [APE|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:2C6A8AA3FEA67B8893CA6A2C9B3E476A6045C4BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Billy Swan - I Can Help (1974) Reissue, 1985, Epic [FLAC|Lossless|tracks] <Soft 
 ```bash
 magnet:?xt=urn:btih:8A50249ADC746E4531F2E6EF4AFDE4AABB77FFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5221706A20823A6502B943D8FD08399D1FB2341D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Luminar является первым в мире редактором фото�
 ```bash
 magnet:?xt=urn:btih:762609807BB637F96E7BC142FA8D7E6329C327CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Dreams In Stereo - Chapter 1 - Yesterday's Dreams (2015) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:5EA6BA93D83EF44E5EDE3AFAB5A6CA43F6E154E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ The Mavericks ("Индивидуалисты") - Американская нео
 ```bash
 magnet:?xt=urn:btih:DBD00B0097237E4ED6E2D876D59C57772A1A7558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ VA - Весенняя сотка популярных треков (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:8199222E4BDD750E5B7BBEE967B44D9BBB1DE703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01A07332D68F56E10E29CCA1CC16216482EA92FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ VA - Любимые песни шансона. Часть № 4 (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:FF8E1E0C8656BE5EBD86BCC14C57057A3140185F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ B-Movie - The Age Of Illusion (2013) [FLAC|Lossless|image + .cue] <Electronic Po
 ```bash
 magnet:?xt=urn:btih:C4DE793302CBBB2B849CEC2C3B9488572FE6A9CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Curio Society. Eclipse Over Mesina (2015) [En] Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:D45BE03007E53DAE1EE4929132C7CDB2D57C6279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Handball 16 - спортивный симулятор по гандболу от
 ```bash
 magnet:?xt=urn:btih:FDBF6412CBAE980E0861A1852B5368B7B90CE814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

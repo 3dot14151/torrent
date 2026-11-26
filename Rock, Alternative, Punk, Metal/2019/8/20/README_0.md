@@ -22,8 +22,7 @@ Suicidal Angels - Years of Aggression (2019) [FLAC|Lossless|WEB-DL|tracks] <Thra
 ```bash
 magnet:?xt=urn:btih:12899BD910D02D322AE4E154470098B76BB1308A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Howe Gelb - Gathered (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Singer So
 ```bash
 magnet:?xt=urn:btih:4797E84CD2B99F8FC78518CCFA18C202B73D1202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Deo - Deo (1982) [MP3|320 Kbps] <Electronic, Rock, New Wave>
 ```bash
 magnet:?xt=urn:btih:5AD7D9AABC3F572CA79C839B2B9B1A805074570D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ HammerFall - Dominion (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power M
 ```bash
 magnet:?xt=urn:btih:B46D20923A9989B505BCD0C2BFEDECF0F2E752BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58A23399D72BCF10DF0539F1EDBC6441B609BEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

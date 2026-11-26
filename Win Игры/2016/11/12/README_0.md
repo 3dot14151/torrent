@@ -19,8 +19,7 @@ Candle приключенческая игра, в которой вам пре�
 ```bash
 magnet:?xt=urn:btih:6A68F549C987F5EED9A90EF24C9B7B8656CFF582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Alice's Wonderland 4: Festive Craze / Алиса в стране чудес 4: �
 ```bash
 magnet:?xt=urn:btih:B86306106ED1DB7CDA0E697CEE0F454406F973CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

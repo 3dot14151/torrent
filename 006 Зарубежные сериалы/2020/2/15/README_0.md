@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D5DD7CA1E213712CB48FFA00BA92021E5F209D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cтеснительный и необщительный подросток-де�
 ```bash
 magnet:?xt=urn:btih:699E2F1C0D3BE8D8B6345F0E1AE0921FF2293B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

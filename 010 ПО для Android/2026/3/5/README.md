@@ -19,8 +19,7 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:3BDC04D538836753E43BB890BEF923E6D3145518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AIDA64 2.17 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EA100C6B595E6E263EAD5AA9D268D8F851A9FB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Textra SMS v4.84 Pro Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FB042EEE1A67EE2E5771ADB7A9E06C931B7487F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

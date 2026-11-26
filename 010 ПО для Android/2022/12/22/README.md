@@ -20,8 +20,7 @@ Recipe finder 1.0.1 [Ru/Multi] (авторская)
 ```bash
 magnet:?xt=urn:btih:77C1F2859231C9793779AA54C172AF347DD918BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

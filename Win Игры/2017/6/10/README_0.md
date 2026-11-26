@@ -20,8 +20,7 @@ Danse Macabre 7. Florentine Elegy / Танец смерти. Флорентий�
 ```bash
 magnet:?xt=urn:btih:CBDC6F26DF78443E308C43AD730CA001525ABA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Haunted Hotel 14: Personal Nightmare / Проклятый отель 14: Лич�
 ```bash
 magnet:?xt=urn:btih:1C891D9196F910920476B4CE817F06BC990BEE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Streets of Fury EX – фотореалистичный файтинг, осно
 ```bash
 magnet:?xt=urn:btih:9DC03CF60F5485709686F8BC45E94207D72BE255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

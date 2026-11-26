@@ -22,8 +22,7 @@ Crow - Crow By Crow (1970) Reissue, 2011,  Austria Record Finder [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:C214C4A26FCC75032E6AA1FBF84FB67DC202795A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tygers Of Pan Tang - Tygers Of Pan Tang (2016) [FLAC|Lossless|image + .cue] <NWO
 ```bash
 magnet:?xt=urn:btih:B433B91F5E48EC339BA0C4046D08563BD3C309D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blaine Rohmer - 2 albums, 1 single (2015-2016) [MP3|320 Kbps] <Atmospheric Black
 ```bash
 magnet:?xt=urn:btih:6FEC0E2674B211A4EF062B998C1B67DEC923351D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Lights & Motion - проект музыканта-мультиинструмен
 ```bash
 magnet:?xt=urn:btih:EEEB04785FAD3C389D167BD4BD9A861F24E19890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Disc 4 - The Interviews (1976-1980)(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:87501AEF5364A84FFEB54957B1B7F7860CB59FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

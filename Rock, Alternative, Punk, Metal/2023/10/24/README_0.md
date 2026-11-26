@@ -22,8 +22,7 @@ Game Over - Hellframes (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F8B0D1D7E342E3C9DB89BA81B3BA6B3DFFC722E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bragging Rights - Orphan Source (2023) [MP3|320 Kbps] <Modern Metal>
 ```bash
 magnet:?xt=urn:btih:2F2E5ECFD1288DDCCBD6BD4EF0DD29307D525F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Thunderstick - Lockdown (2023) [MP3|320 Kbps] <Heavy Metal/Hard Rock>
 ```bash
 magnet:?xt=urn:btih:69B8702FC3AAD2B6C75BE17F3F16B1000383FDFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Skinny Lister - Shanty Punk (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C4120714D8764192EFD707C2390D40F55FDB1D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Mojo Men - There Goes My Mind (2003) Remaster, 2023, 	Sundazed Music [MP3|32
 ```bash
 magnet:?xt=urn:btih:A7D7BE17E3EB9534BEE609C3974D538A9D2DE27F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40AC273FE2BEBFF5F1970A2B4EDA28AB6AB952EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Derdian - New Era Part IV: Resurgence (2023) [FLAC|Lossless|WEB-DL|tracks] <Melo
 ```bash
 magnet:?xt=urn:btih:0FEE2980F6D579210D0B14094877D75B48F81A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sixty Nine Crash - Songs Of Love & Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 ```bash
 magnet:?xt=urn:btih:9758D3ADD3B2AC8F0AD1F7CF30BC7BFEAEFF172A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Sellout - Любовь и панк-рок, а не… (2023) [MP3|320 Kbps] <Pun
 ```bash
 magnet:?xt=urn:btih:693EC3D9C0177EF9068C850D30CAF9023BB40EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Alex Destruction - A Tribute To Guns N' Roses Greatest (2023) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:4672853CD1DC30E925FD67DFDAE00112DB1485FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Queen - Queen II (1974) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:E1025A97CCBDCC30E7C12ADB9F34106AAC0FBF56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ ZZ Top - Goin' 50 (2019) Compilation [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:F74DC0EF6D8C6FB70E61E62C908A1013A36FD7C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Queen - A Night At The Opera (1975) Remaster, 2 CD Deluxe Edition, 2011, Univers
 ```bash
 magnet:?xt=urn:btih:98F3794BA85D858DE5890190456018C593EDFA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ The Rolling Stones - Hackney Diamonds (2023) Japan [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:ED4099418E906D12B1066214E686FA7C4198174C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Lustre - Phantom (2015) EP [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
 ```bash
 magnet:?xt=urn:btih:5BAE49775465A4866B13FD4309F4F939CA3C1D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Ereb Altor - Nattramn (2015) [FLAC|Lossless]<Viking/Black Metal>
 ```bash
 magnet:?xt=urn:btih:0DBDCC0F7FC639597E2281F693DC40C573CA0EFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chip Z'Nuff - Strange Time (2015) [MP3|320 кб/с]<Melodic Classic Rock, Stoner
 ```bash
 magnet:?xt=urn:btih:9F13156AE73E51E28CA59CAD46426608E06DF388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Whyzdom - Symphony For A Hopeless God (2015) [MP3|320 кб/с]<Symphonic/Gothic 
 ```bash
 magnet:?xt=urn:btih:A6A971548901B87CC6E7B76B9145C9E0BD8AE63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Bad Touch - Half Way Home (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AA1FE310E454B5CE08D6C5B0A3B4194954604D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Michael Katon - Live At Moulin Blues (2015) [MP3|320 кб/с]<Heavy Blues Rock>
 ```bash
 magnet:?xt=urn:btih:AF00764CE101F697E852CDDE930EF34B54CD6C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Veil Of Maya - Matriarch (2015) [MP3|320 кб/с]<Progressive Metalcore, Deathco
 ```bash
 magnet:?xt=urn:btih:A5B967AFCCAAF6A2C14207F7A0463E4EEE075B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Dark Sarah - Behind The Black Veil (2015) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:A487FE5CB4B31084569998F7C598D7EC07306B66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ Gary Moore - Wild Frontier (1987) [WavPack|Lossless]<Hard rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:35738249E6DBBA3D93BC9A74091008ED2646F104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ Dark Sarah - Behind The Black Veil (2015) [FLAC|Lossless]<Symphonic/Gothic/Power
 ```bash
 magnet:?xt=urn:btih:36BA532F1AC905B6F45DD56258411A6D9E1F4D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ Sirenia - The Seventh Life Path (2015) Limited Digipak [FLAC|Lossless]<Symphonic
 ```bash
 magnet:?xt=urn:btih:51E1273AEFA891A322379EE0A90D69FB83A9B8FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ Hinder - When the Smoke Clears (2015) [MP3|320 кб/с]<Alternative, Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:07A2D52FDC1BEA9B28D74C6DC1AA9C90E9209CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ Marilyn Manson - Vandalism Aesthetics (2001) [FLAC|Lossless]<Alternative Rock, H
 ```bash
 magnet:?xt=urn:btih:A11BD08E8F3BEDD5CE2A1323DAAC4D4307631AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ ZZ Top - The Heaviest (2015) [MP3|320 кб/с]<Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5BC1E1DA4DAADFDE5D3BA86A0B3CBBE4AA276159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3ACE3B4C8E3B3655EFDFC215E6A54E3844933E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ Civil War - Gods and Generals (2015) Limited Edition [FLAC|Lossless]<Heavy/Power
 ```bash
 magnet:?xt=urn:btih:E6A22CA43279D670B99A756F48D929753D5A5098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0CC23FCAFDDC081A8D4DDF495E74A79EB5155DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89E4CE4FBC429D3535FCDB79B1759C889351BFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

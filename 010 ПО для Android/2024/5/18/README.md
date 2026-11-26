@@ -19,8 +19,7 @@ MX Player Pro v1.78.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F01304E08A8B2CC383451D85F63423687147B9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spatial Touch™ 1.1.1 Mod by IndAlok [Ru]
 ```bash
 magnet:?xt=urn:btih:BC4340EFCF547EBF2A8EFBC342155431CF4A789F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

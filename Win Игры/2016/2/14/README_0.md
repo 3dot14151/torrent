@@ -19,8 +19,7 @@ Tinertia - это экшен с элементами инди-игры, арка
 ```bash
 magnet:?xt=urn:btih:70F49430E7C06E8BEFA6C6B7A36C961CB035FAF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:086F58FBBD7D29580049693FB01728E229682BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Remini / Улучшение Фото v3.7.1276.202519488 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:E0731F0398726392C682137A65BB4D6E6E54BA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:370CB1B11487DC3532A4B3B72F5A57F9B8982EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ LocalSend — это приложение с открытым исходным �
 ```bash
 magnet:?xt=urn:btih:A548C06DE35965A2AFFBEFF3CC7823C48D149D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ aCalendar+ Calendar & Tasks v2.9.6 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A167DB6FDB55A5BC8147F96947F5DC122EFD2668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:2D41E9146DD425BBCAEA64765FF0D5EE73212F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Listen Audiobook Player v5.4.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E9C8083C2EE115CA659E20072F0C6B8C0941FF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

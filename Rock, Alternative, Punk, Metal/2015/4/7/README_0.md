@@ -23,8 +23,7 @@ Ancient Rites - Laguz (2015) [FLAC|Lossless]<Black/Folk/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:A0F4C3BD3880AA2D6747E49B1765BD45FCC9D487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Beggars - Devil's Highway (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CCC6D017FF9D70ECA8F300D892D92FAF5156C304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Chris Norman - Break Away (2004) [FLAC|Lossless]<Soft Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:B7911C06149D7B73001F6E7642F59AC49558FDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - A Tribute To Iron Maiden (1997 - 2011) [MP3|192-320 кб/с]<NWOBHM, Heavy,
 ```bash
 magnet:?xt=urn:btih:BF48A7D86E3D4CD3C9869586A094AD57DC4A435C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

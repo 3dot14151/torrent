@@ -22,8 +22,7 @@ B.T.R - Чужая война (2019) [MP3|320 Kbps] <Industrial Hard Rock>
 ```bash
 magnet:?xt=urn:btih:129F792E522AAFAED9604CF7D1EB29A5058E55E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

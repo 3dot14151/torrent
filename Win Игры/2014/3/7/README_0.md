@@ -19,8 +19,7 @@ Order of the Light: The Deathly Artisan / Орден Света: Смертел�
 ```bash
 magnet:?xt=urn:btih:CB2A45323B85E4CF274320278F2A8646FB7DCB69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Car Mechanic Simulator 2014 — это, как не трудно догадат�
 ```bash
 magnet:?xt=urn:btih:D3C4E7D8929B01B6A7DE6282DAA31ACD4A0D34B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

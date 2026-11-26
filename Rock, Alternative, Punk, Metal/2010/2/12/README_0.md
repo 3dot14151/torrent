@@ -19,8 +19,7 @@ David Bowie – Дискография (1967 - 2008) [MP3|320 kb/s]<Glam rock / 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

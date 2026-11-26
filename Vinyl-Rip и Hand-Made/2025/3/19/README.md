@@ -22,8 +22,7 @@ A4 September (När Hjärtat Blöder)(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:77DAAA6B5271AA5C046ED5A0777F6DA08867175E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Salipsism(   Читать дальше...   )Жанр: Symphonic Black Metal,
 ```bash
 magnet:?xt=urn:btih:36D3E118E0EEDA51858FD9786C791EA073AB2626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bat - Under the Crooked Claw (2024) [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy, 
 ```bash
 magnet:?xt=urn:btih:D5A288FA5F177452F98525446DCA667D3EB7DF3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

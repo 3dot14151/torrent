@@ -19,8 +19,7 @@ City Enigma / Тайна города (2025) [Ru] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:B46E64FC8C36FD578EE54BFDC72C20CD277BA5B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D4B7617D4EB2FE718C4B4B48F849ADE4FB68C6DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ My Time At Portia (2019) [Ru/Multi] (2.0.141719/dlc) Repack FitGirl [Digital Del
 ```bash
 magnet:?xt=urn:btih:09AB23B261F61E81B7F0B15BADA88EB1EC2AC18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Liminality (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0710DEC8DCBD40C7DE1BDAF56EB798AEFC5ED695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mad Restaurant People (2018) [Multi] (1.7.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:31407A4B1409B6624187F273BDE6D2D6F1060153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

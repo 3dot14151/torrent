@@ -20,8 +20,7 @@ Shiftlings – логический платформер, главными ге�
 ```bash
 magnet:?xt=urn:btih:F1AB7186B2538E84974CEC28AA280754849E3844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ World of Subways vol.4 возвращается в Нью-Йорк, пожалу
 ```bash
 magnet:?xt=urn:btih:1DEC21D6BF0481BD5A7ABC5C360FB89FAC36724D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

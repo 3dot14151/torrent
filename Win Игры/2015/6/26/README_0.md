@@ -19,8 +19,7 @@ Darkwood - это игра о выживании, исследовании и с
 ```bash
 magnet:?xt=urn:btih:78E7D0E3952A0806333F1F3D97EE37E8A5925E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tales from the Borderlands – эпизодическое приключение
 ```bash
 magnet:?xt=urn:btih:4A72FD2F63A4434DA5DB527EF2DB45758F2EF8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

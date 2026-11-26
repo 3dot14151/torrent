@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8DDBFCCDD29267E4632BC87A4A6BDA702349E007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - We Love Club Weapons Vol.2 (2016) [MP3|320 кб/с] <House, Electro House>
 ```bash
 magnet:?xt=urn:btih:61AC7E807D2467583109BDA991430C48B9070A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F4F61A2CB39136F2369A652BAC95D3509A5389B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Chucho Valdes - Tribute To Irakere (2015) Jazz Village: Live In Marciac[FLAC|Los
 ```bash
 magnet:?xt=urn:btih:15108385097D4E1C092155019E895DCF61D7E67B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Omer Avital - Abutbul Music (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
 ```bash
 magnet:?xt=urn:btih:5F625B185CAD551B710A5355DBF7D9C4A1888438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Permute: Универсальный конвертер видео, аудио и
 ```bash
 magnet:?xt=urn:btih:04902248C62BED7B9E04CD7D522EC750A15BA3B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E46FF677D51A6A93468C92B21CCC67749D78F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CDC08CBEECB8977E42DCDA4B98870338D8864D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A62F05D3CFB46399DFC4A0FB9735DFBA2120F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B320ADC983C0BBF686CE194354754DB11FFCA3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1B190904E6675A9CE981F9DDEAB88BFB0ED282F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D17D24CA9006D33C0FCAF5E80D75AECB926DBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB3B9EB582C03E87B0C20928FF09226C3709CC41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ VA - Hypnotized By Electro Dance Dream Vol.3 (2016) [MP3|320 кб/с] <House, Pr
 ```bash
 magnet:?xt=urn:btih:F2A1C423C763B8CE6654194F385285FB0A1F9540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ VA - DJ Dance Liga - Club Electro House (2016) [MP3|320 кб/с] <House, Electro
 ```bash
 magnet:?xt=urn:btih:5F33F2313B28AA2BA1FC54DDA63FD4F6AACCD778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ FotoMagico – популярный пакет для создания слай�
 ```bash
 magnet:?xt=urn:btih:A64BE4B9952509461640044F819295BF86CECE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD18AC17ED54FDCB44995BF4B896A08B6E2EC214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ I Am Revenge - Red Gold (2014) [MP3|320 кб/с] <Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:C072F32680984E36EE6F5D402E201AB42F176A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF9880DE64E0891489DE713084C7A8238CEEFD70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ Posterino – программа, ориентированная на созда
 ```bash
 magnet:?xt=urn:btih:F3E702C76AF51EA0969FF10C61C4200AF40556FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:3B7CA00D2A007A85F6D0FE21F4BD73287937ACDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ Robocar - первый концепт беспилотного автомоби�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:0D2DC16CD81AAD9F361EE18991E8F28E8AF21859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ QQ Browser 9.0 версии - это современный и удобный б
 ```bash
 magnet:?xt=urn:btih:AE220E3E44F119DF7202AC0DF7BB08432E4FFB96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ Devour The Day - S.O.A.R. (2016) [FLAC|Lossless|tracks + .cue] <Hard-rock, Alter
 ```bash
 magnet:?xt=urn:btih:299B0F6D64B4A50B268D420F6B005BC8D0EA5063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ Novembre - URSA (2016) [FLAC|Lossless|tracks + .cue] <Progressive-metal, Doom-me
 ```bash
 magnet:?xt=urn:btih:339ED7BFAF96EEB3A5A6D19F9CD5B3AC8DB160FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

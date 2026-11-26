@@ -19,8 +19,7 @@ Afterlife (1996) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:047AE690D50DCD0C9B43364B1D02D942457751FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

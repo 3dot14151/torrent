@@ -21,8 +21,7 @@ Haddah - метал-группа из Италии, образованная в 
 ```bash
 magnet:?xt=urn:btih:A64B0287768743605BF6D22EE26E25D8FDAA2CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

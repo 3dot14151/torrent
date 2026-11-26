@@ -19,8 +19,7 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 ```bash
 magnet:?xt=urn:btih:B47FFD3FD3CCB09E3C517EB5B039EBF933186202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

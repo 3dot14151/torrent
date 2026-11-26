@@ -21,8 +21,7 @@ VA - Sounds of Reggae Vol 1 (The Best of Reggae and Dancehall Selected by Sly an
 ```bash
 magnet:?xt=urn:btih:9D01CC40D63EC53263884008A1FFBAD8FF453451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Lights Leaks - украсьте свои картинки или фото раз
 ```bash
 magnet:?xt=urn:btih:0EBC2677AE75EBAED341225716474AEC9DE3265A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Coffee Beans Logo - проект для отображения вашего ло
 ```bash
 magnet:?xt=urn:btih:1B45F584358ED14C2790B7060AC3B75074DBB638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C68A85DA283512D7541E5EB85610C34B6C9BA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E6FC2FB3FFBFB8334C94AE7B823E09C06DDD7E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ VA - Самый Хитовый Сборник (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C17511ED9F43DCAD7EB44F7F8F7C05C8D0BC3560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Matthew Lien – Arctic Refuge (2004)  [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <N
 ```bash
 magnet:?xt=urn:btih:E62C7E8395415FEA0F6E3B8582EDF0D74856C0A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ NG. Удивительная планета / Amazing Planet (2006) BDRip [H.264
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Adobe Prelude CC 2015 - программа для профессионально
 ```bash
 magnet:?xt=urn:btih:CB4FB27BAB0BEA88519D9287CCDFED24F248E71D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ MinstreliX - Chronostrings (2014) [FLAC|Lossless|image + .cue] <Neoclassical Pow
 ```bash
 magnet:?xt=urn:btih:231B0E0391950734BFFBC7C58FE916658600F757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Minstrelix - Reflections (2009) [FLAC|Lossless|tracks + .cue] <Neoclassical Powe
 ```bash
 magnet:?xt=urn:btih:D7BB6248BE9DEC7261A80BAF53B5AA26BC563484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE2D01357EB0F47C9A01F8722890EEC7FD58B303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ MinstreliX - Tales Of Historia (2012) [FLAC|Lossless|image + .cue] <Neoclassical
 ```bash
 magnet:?xt=urn:btih:FF4DA94B4B10CFAAB2ACEC812A174B4CDE6E1969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ The Doobie Brothers американская музыкальная группа
 ```bash
 magnet:?xt=urn:btih:A3BF992E4CEB75145521A5F9D341997023FC842E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ MinstreliX - Memoirs (2007) [FLAC|Lossless|tracks + .cue] <Neoclassical Power Me
 ```bash
 magnet:?xt=urn:btih:A96DAFD4431CF371CAD9D2BAC747A80FD4CD7383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FC66BCBCE1D02B472F87ECD088EA02CFB2DC3BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16E8D9DF347F6AA220514BF8B2604CB1F6067D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ VA - Radio 538 Hitzone 78 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 
 ```bash
 magnet:?xt=urn:btih:4FACFAF88DCD12A784ADFA1FAE10A57ACB3CBE4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ AutoRuns - утилита для контроля автозагрузки пр�
 ```bash
 magnet:?xt=urn:btih:28056DBB71027F54D7151D8CDD166353A6FF2011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Vaya Con Dios - Live 2005 & 2006 (2016) TVRip>DVD5
 ```bash
 magnet:?xt=urn:btih:7D8146ABB9467694250EC2A71E7DFBADD7AD16FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:165D0C5F3C68EC5B1AEE403F5AA534F16A24B70C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A30E19A0E033D12E545C8C05503FE8CDCBB9346B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ Elegant Fashion - элегантный модный проект в качест
 ```bash
 magnet:?xt=urn:btih:32F3ABCD6B18B0B76129F64C3222492A75188500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDD6A4F83AC82FD2127B844FAC4FC0BA1458B891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ Liquid Logo Reveal - шейповая жидкостная анимация дл
 ```bash
 magnet:?xt=urn:btih:9BBD562EBE02F0FBBA11806A03D7A9C704FBEDCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

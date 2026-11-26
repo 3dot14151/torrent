@@ -28,8 +28,7 @@ May Erlewine - Love Labor (2009) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:C7E23565E2421D31EC39F262E4702A67A8599884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Nevrose - Sequitur Usque Ad Mortem / Demo MMXIV (2014) [MP3|320 кб/с]<Crust, 
 ```bash
 magnet:?xt=urn:btih:F64EDE52074DE68DC6DDED4614AB21903899ABFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Autumn Of Communion - Autumn Of Communion 3.9 (2014) [FLAC|Lossless|WEB-DL]<Ambi
 ```bash
 magnet:?xt=urn:btih:1473E694F6541C38ACD02F00D141054CBBF11F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Teodor Tuff - Soliloquy (2012) [FLAC|Lossless]<Progressive / Power Metal>
 ```bash
 magnet:?xt=urn:btih:C7C0DF2875DBA008147CAD18A115A0EE74967DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ MirrorMaze - Walkabout (2012) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:D0B33016040187DC9B761FD5191FDB0FF3A8AB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Blue Room - Blue Room (2014) [MP3|320 кб/с]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:96D8649D01558095F6178099CEE847B757CF831A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Vaun - Sidelines (2014) EP [MP3|320 кб/с]<Deep Dubstep>
 ```bash
 magnet:?xt=urn:btih:2053A13EA2DF0F00A83F77F7D6672249C6564194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ VA - Клубные Новинки Vol.492 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:FFB720EB0AA756869E7F19F998294A95414A189E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ Venissa Santi - Big Stuff - Afro Cuban Holiday (2013) [MP3|320 кб/с]<Vocal Ja
 ```bash
 magnet:?xt=urn:btih:6D2DA62D276DAC51FD45EC7DE6F38F86E0D78806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ Murya - Triplicity (2014) [FLAC|Lossless|WEB-DL]<IDM, Downtempo>
 ```bash
 magnet:?xt=urn:btih:E60773CC1E017CF132F93160CAC113380B84D002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ Deadlock - The Arsonist (2013) Japanese Edition [FLAC|Lossless]<Melodic Death/Gr
 ```bash
 magnet:?xt=urn:btih:676893958514184783F162FE0A3E0F9A966F0F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +408,7 @@ VA - Summer Will Neverend - Coolest Lounge Melodies (2014) [MP3|320 кб/с]<Dee
 ```bash
 magnet:?xt=urn:btih:3B065FF055355A68A0B2CBC6E51646DE0E6DC8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +442,7 @@ VA - Chill Out Diamonds - 20 Crystals for Under the Christmas Tree (2014) [MP3|3
 ```bash
 magnet:?xt=urn:btih:0572459B93CBEA3462CA69EDEC0041F78F0EE251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC829F708EC50827EA4D220D08DCFA5EECF09660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +502,7 @@ VA - Клубные Новинки Vol.493 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:55755F041E4F7E1174CB583AFB09EB89B4D668BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +535,7 @@ The Zap! - Big Bang (2008) [MP3|320 кб/с]<Psytrance>
 ```bash
 magnet:?xt=urn:btih:3618A1714E618904F91F09DC9C757AC0B43CB0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7F9C9172617C1B72510163F9D59DEEE35858D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AE7981466785434CA8865C7EF6D017942F5CC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +619,7 @@ VA - Клубные Новинки Vol.491 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:958E90BEB2BF2C5015221D11EC5FCA1402D1F054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +653,7 @@ VA - Клубные Новинки Vol.495 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:23A265E6BC729F1ED506E90BA8F882238FB77CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EB1CC214F02EBB3B31DC128BB649C6E785C6056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFE653518FCB15AB3A87BFD102FFBBB45DBD6962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +739,7 @@ VA - Клубные Новинки Vol.494 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:87BCC0A28E0BB1ABAB9E062006996017DD69FF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -797,8 +773,7 @@ Isgaard - Naked (2014) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:E51FFF1CF43C728746034F32E0F25C638AB43F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -829,8 +804,7 @@ Code Orange Kids - 5 Альбома (2009-2014) [MP3|320 кб/с]<Hardcore Punk,
 ```bash
 magnet:?xt=urn:btih:626B396BB8C9B7AC6E8BCF9C88384175DDE41BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

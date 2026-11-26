@@ -21,8 +21,7 @@ Artly v2.9.2 [Ru] - Learn Art History, Artworks & Paintings
 ```bash
 magnet:?xt=urn:btih:2B51AA9CE7A8A489F4A03E09864AAA1E48615B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

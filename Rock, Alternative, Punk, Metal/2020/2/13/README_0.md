@@ -22,8 +22,7 @@ VA - Лимonoff (2012) 2CD [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:7491202EFD2F6ABF96B99D2AF5EF840AEB7BC180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Julian Cope - Self Civil War (2020) [FLAC|Lossless|tracks + .cue] <Krautrock, Al
 ```bash
 magnet:?xt=urn:btih:EDCF625566114DC258330BF748558AD8E7E093E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Khruangbin & Leon Bridges - Texas Sun (2020) EP [FLAC|Lossless|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:D335CFE54BF217AAB661A5F9A2CF5E48BF3BB680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:012AB60B90D809AB9DB1C30111ADAA92DB16C8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hollywood Undead - New Empire, Vol. 1 (2020) [MP3|320 Kbps] <Alternative, Rapcor
 ```bash
 magnet:?xt=urn:btih:DA155C1E80B216708D189097F99C1CB907063324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ozzy Osbourne - Ordinary Man (2020) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:96475B9168ABA9EDBC11B4FEEA67B9B5D9F42AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Suicide Silence - 6 Albums, 2 EP, 1 Live (2005-2020) [MP3|320 кб/с] <Deathcor
 ```bash
 magnet:?xt=urn:btih:87C13B1C5E6671CC7D20A489C654CF64850D37B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

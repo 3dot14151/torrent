@@ -19,8 +19,7 @@ Syberia / Сибирь [Русификатор] (2002) [ui/dub] License 1С (Л�
 ```bash
 magnet:?xt=urn:btih:0BC5444FC78654CD37E57B4D749AA2186340D23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

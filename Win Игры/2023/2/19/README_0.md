@@ -19,8 +19,7 @@ Truxton (в Японии известный как «Tatsujin») возвращ�
 ```bash
 magnet:?xt=urn:btih:08A95702BC6AD3191B810E3C60125D64655AE999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SpellForce: Conquest of Eo (2023) [Multi] (01.00.26984) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:06E5C474B121A88F21825534D2A4B8D5246C906D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Zero Wing (2023) [Multi] (19) License GOG
 ```bash
 magnet:?xt=urn:btih:6A66606FC43AD5BD62FF008484E0C82020737BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fear of the Dark (2023) [Ru/Multi] (Build 10576095) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B984BBEC619814863294C4284DB7BD826A1F04AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hike Isle предлагает игрокам отправиться в путе
 ```bash
 magnet:?xt=urn:btih:D5EDE0FD4E677979426E5C636753BD637CB76FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Secret Agent HD (2021) [En] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:8D520EDA5D761E88737DEF61AB64F7EF9361908C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:B22C8AD36A591B3D70E8D1BF43C0A5BB4E57E253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:23ED220A8AAEE6D3265ED44D55AFC61E7572EDE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:75E2A7EE0881080441BF67862D9F17400EC67018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69811B47B9FE0894120F0AC48B1B83EE4FA477FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C150CD88A07D96592305F235A56174A119514AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B6848232A315BFDF6194EBBC7D8CC59F1783230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFDE2549699B497CB6CA1A8FB1084BF2138438A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5081FF1E270AA59144788A783E510AE9F15F5DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47C3571642DD85031B14D73FC870DDA3E09DDE71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Tales from the Dragon Mountain 2: The Lair (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:6DC05B8F30EEC9FB9D1BAECD227649075B363D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Neo Geo - Digital DNA (2013) [MP3|320 кб/с]<Alternative, Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:57628FD9E25233A132465B48782B73121DCE5596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A22B659CCFFAB7F5B158D6A880D8C3CBF3279C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:6638BDEFC493CE31F9E17E4CECCFFDD77AE17A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:467341586F8ACA5532B9EB9B4B3650A8756708C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ VA - Amnezia Super Hits 97 (2014) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:D9BB4CE4981BDD50A0B78E75262A1AF641BF0E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:338EFBE8F171E3FCC7A398772B992952E59334D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Wallpapers - Обои киты [JPEG]
 ```bash
 magnet:?xt=urn:btih:2FC631F492E554C63763ED997FAC86D8C62701FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97FA4B51CF689EABD5BCD66033A7ABBC2927A669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ OmniGraffle Pro - это не только прекрасный интерфей
 ```bash
 magnet:?xt=urn:btih:3359AA289CC09804E8D8197C38807A2D06DCE503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ Valentin Stip - Sigh (2014) [FLAC|Lossless]<Ambient, Leftfield, Downtempo>
 ```bash
 magnet:?xt=urn:btih:5FDF3B2275D03F9394905171BBB66DFB5845E28A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4B01F847B6C65C5170B630DD67170C4F7056B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ Diana Ross - All The Great Love Songs (1984) [FLAC|Lossless]<Pop, Disco, Soul>
 ```bash
 magnet:?xt=urn:btih:F0FA0113119409BAF51E7ED8EE3181C8E0B44B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9A41364BC1F52A1BA40AE98A90612D99E6BE874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ Firefox отличается стабильностью и безопаснос�
 ```bash
 magnet:?xt=urn:btih:C425BCADAAF65DAF2A7441FBA0FA112E6844BB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ Toni Braxton and Babyface - Love, Marriage and Divorce (2014) [AAC|WEB-DL|256 к
 ```bash
 magnet:?xt=urn:btih:56F41E56525BBEBB67CB24B8D361B2AE22CD0729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +697,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:767D0B013E7380E9FC37068956ACFCF925FF2A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +731,7 @@ VA - Радио Шансон:Шансон без тормозов 7 (2014) [MP3|
 ```bash
 magnet:?xt=urn:btih:AE698BAD4FC1933E54BEDA7A471C1D38BC58BAED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:D8BEBC45CBAB3FC504305448F903E492A7BA05AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Mantus - Melancholia (2015) 2CD [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:851BF5EE64A97381F278C14C9D4A5E12024A7265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Paolo Fresu & Uri Caine - Think (2009) [MP3|320 кб/с]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:8A3E79371D70F2134332F28878B6890963FDD737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ CunninLynguists - Southernunderground (2003) 2CD Deluxe Edition /Reissue 2009/ [
 ```bash
 magnet:?xt=urn:btih:87156FC5FDCA1F6DD122CC488B8EA8BD60FC56A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Gabby Young & Other Animals - We're All In This Together (2009) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:3F6D9374C9E708BC4367D701DB66A7F311DD3360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:688A440B8B077CD24EE86AD560579B1D283096BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D4527B4E30CAEEDAB282E6986AE70513775047D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Mute Tale - The Gordian Knot (2015) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:F2C5284C44BBF738076C4411726EAB0DEA6DCE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Gabby Young & Other Animals - In Your Head (2012) [FLAC|Lossless]<Swing, Vocal, 
 ```bash
 magnet:?xt=urn:btih:414652F52620869E908A5E915FF649677296A860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEA6A8B2E4C6B7D84ECBCEA00CD3B6C5BAFEDE2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Gabby Young & Other Animals - One Foot In Front Of The Other (2014) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:A4C9DF7ADB7CC7512F6791986641BD712DD4AD85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Tungsten - это браузер который разработан, чтобы
 ```bash
 magnet:?xt=urn:btih:A7EA351EA50C482C76238BC3955DE413881818F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DFF5A23011B9266C7BA7B3CE73A162E1E0CA65A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ The Ditty Bops - Summer rains (2008) [FLAC|Lossless]<Swing, Cabaret, Vocal, Folk
 ```bash
 magnet:?xt=urn:btih:0271864C881458B9EB074DEBDDDC224FDE9F5694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1E06ED9D661E78CE2CD098C69F5FB2C6A8841B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Storm - Storm's a Brewin' (2015) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:8AADB6F595EA0C51099E0A8EE02272B5625ED912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ Oригинальные, а главное доступные рецепты с�
 ```bash
 magnet:?xt=urn:btih:27C85E858EEE6570E428DF05F26F90EDFD0F8962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D84A2A7768915F250CD2733C358C9063A495E2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ Sacred Sound System - Me, The Sun And All I Know (2015) [FLAC|Lossless|WEB-DL] <
 ```bash
 magnet:?xt=urn:btih:C4CC1FB59F9B9C5FD999BC655CC55B6595B9952F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DFB09A4F8A7414FAA5DCEFD5CE6D5E849EFC209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B969057A278D64B5D35D33145A608B8A778B8D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45D680E4037F457C3C23D80C87DCC2F7C89B507F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Hor Zapor - Beer Metal (2015) [MP3|320 кб/с]<Beer Folk Metal>
 ```bash
 magnet:?xt=urn:btih:5BA687DC9F22ECED1909047E8E6CEF62C29F69F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5147295DE2D0C5D74D09F123C176502FD077100F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBC6D812253C8740C29F9099743E8DE83533D611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

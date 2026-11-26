@@ -19,8 +19,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.2/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:08F424FCA439450ED8201A37DEB9060A9938A731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) Repack Let'sРla
 ```bash
 magnet:?xt=urn:btih:87F089919308B0F103E4A1499881222FA11CFA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Oxygen Not Included (2019) [Ru/Multi] (Build U56-679336-SCRP/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:802E92C5B01934F319862B4915BEEF290DFA7760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.10.5/dlc) Rep
 ```bash
 magnet:?xt=urn:btih:99FF5E6D7E863DE43B7D2A9ADB79FB412161F3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ My Friendly Neighborhood погружает юзеров на роль прос�
 ```bash
 magnet:?xt=urn:btih:0D58C7586050C4B4BC201664127A2BAF86328115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C7D1471CE52E83141F545FC87BB4D2CBC1499918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3E1D60E9F63F08778F7C88A8E4BEF8C74A2A00F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00096BA537A18CC779DAE75F0F9228EFEA89F3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76F511F8E1B4EDAC12498D5D78B0A3EDB0A556C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Concerto for Violin in B flat major, RV 372 "Per Signora Chiara"
 ```bash
 magnet:?xt=urn:btih:49EA8EAAECFC44CB354BFF7FBD64E7BC2EF30C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Pink Floyd - Remixes Out There... (2004) [MP3|320 кб/с]<Progressive Rock, Psy
 ```bash
 magnet:?xt=urn:btih:FFF613A485D68770F924016CC18280AC62E99491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBEC5A36623159707FBD7BE3196ACC293E56D67C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D45AC66B3B9F18A68CCFA348E10994582FD0C2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ David Qualey - Only Guitar Parables (1991) [FLAC|Lossless]<Acoustic Guitar>
 ```bash
 magnet:?xt=urn:btih:6CA1A60115875CAFC3BCBA26B1F9C9C5F26E2686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:682CDCB57DBF21A4639BE8FF952E91552FACEEAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CDD4D51B3843589A1E358B3C27A5BFA2EC9A851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A63E46A50A24B333CBCECAC30B7EE209970C00CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Eternal Soul Vibes - Bulles Drôles (2014) [MP3|320 кб/с]<Nu Disco, Deep Hous
 ```bash
 magnet:?xt=urn:btih:ACE23A6754F6FF887105EC811F7D0CDAA92F8AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Mystery Trackers 7: Blackrow's Secret (2014) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:E274E500497D4C9AC76295E231BF1D8ECCACB14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Leonard Bernstein: Serenade for Solo Violin, Strings, Harp and Percussion
 ```bash
 magnet:?xt=urn:btih:A329C409EF023E10C85D98C8A3949720A7BEC0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Wallpapers - Природа [JPEG]
 ```bash
 magnet:?xt=urn:btih:F84AFC97688363C59E5C15F4B4DC63D08443BA92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:000327CBA602053D3253876A4A3B3E7C4F1851BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90EA1172DA3CBD8DFCC522A7D51F5F9ED08598B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Stand Up. Выпуск №32 (2014.08.31) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:494063B6A26ED252212CB10CF800132940410012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB0DFD826E3547BDC41328FA7CC162163D957732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Driver Magician - программа для создания резервных 
 ```bash
 magnet:?xt=urn:btih:87756BFCBE77A67D85D8AEF584CD086D16EFC218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82C16CCE6B8D941F5C36B0080603E0354E0E0ED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4B2ECB7443FAEE1B21D519B04FB8C958875669A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ Carlos Nunez - 10 альбомов (1996-2014) [MP3|256-320 кб/с]<Folk, Folkl
 ```bash
 magnet:?xt=urn:btih:7B791B94FF3A86CDC1F9AE05417F211F8177351E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ Stand Up. Выпуск №32 (2014.08.31) WEB-DL [H.264/720p] [hand made 50fps]
 ```bash
 magnet:?xt=urn:btih:68B9B725CC845846C5992EF7DC6CD6BEDCF45EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ VideoBlocks - Typography 29 [AEP]
 ```bash
 magnet:?xt=urn:btih:034E59CA6D0B325DB82528A02B8743C1ECDCB62C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

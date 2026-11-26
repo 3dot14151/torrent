@@ -19,8 +19,7 @@ Secret Mission: The Forgotten Island / Секретная Миссия: Прич
 ```bash
 magnet:?xt=urn:btih:147E376218950A22F75228F0F317EF9A306C2F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ancient Secrets. Mystery of the Vanishing Bride / Древние секреты.
 ```bash
 magnet:?xt=urn:btih:3698EB437D137F36210652CE0F4BF944FA219D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Redemption Cemetery 3 - Grave Testimony. Collectors Edition / Байки Ста�
 ```bash
 magnet:?xt=urn:btih:4FD77D965B95C5288468131B5F86DB781FF174D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wooden Sen'SeY  - увлекательная аркада в уникально�
 ```bash
 magnet:?xt=urn:btih:C9737B736BD6D745C0D91990A20872012AD07C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tiny Troopers [En] (L) 2012 | 0x0815
 ```bash
 magnet:?xt=urn:btih:A5455B59581A138916492122A2451C9D2C57F9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Darksiders II (Update 2) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:49F157B11808BCEE253ACF7C94A883193FDA220E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Tiny Troopers [En] (Lossless Repack) 2012 | X-pack
 ```bash
 magnet:?xt=urn:btih:7927CA68D5333FA42997BCE0FF24E62E49145A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ BGE Mario 2011 [En] (P) 2011
 ```bash
 magnet:?xt=urn:btih:C1994F8BEA516B5EB0BDBE912A93AED3AB378445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Risen: Дилогия / Risen: Dilogy [Ru] (Repack) 2009 - 2012 | {AVG}
 ```bash
 magnet:?xt=urn:btih:2370B878596E204A938C14245354E52427F21E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Zero Mindset - 4 EP (2015-2020) [MP3|320 Kbps] <Nu Metal>
 ```bash
 magnet:?xt=urn:btih:9A0C2D14CE7B00FED75FA2D69533B3EB08D14C02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Good Tiger - Raised In A Doomsday Cult (2020) [MP3|320 Kbps] <Progressive Metal,
 ```bash
 magnet:?xt=urn:btih:E979DA5069600B3295898007E1D649EF8AD38EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ DVSR (Devastator) - West Technique (2020) [MP3|320 Kbps] <Rap Metal, Progressive
 ```bash
 magnet:?xt=urn:btih:F82194AB02966CF6A72798BC4BC4B7DD8B1142AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kiljin - Master Of Illusion (2020) [MP3|320 Kbps] <Heavy, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:692C191754ABDE5A0B98BF3C7258CD7C78FB2F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ In Hearts Wake - Kaliyuga (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 ```bash
 magnet:?xt=urn:btih:5549081A4E9C854C42141D59660EC49435E61F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60A117470CFEBAE63C80EC332E53B454F183CAF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ LAMPOCHKA & Abazur - Девочка, которая хотела перепро�
 ```bash
 magnet:?xt=urn:btih:542FBE800826635F5DE53C13562B3942688EE1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Avatar - Hunter Gatherer (2020) [MP3|320 Kbps] <Modern Metal, Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:BE2682811AB4C9A22584B041421F0AB20C1A7DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Tribal Ink - Surrounded By Freaks (2003) [FLAC|Lossless|tracks + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:A38ADF9F251145B2C9AE248A95466A49E0EBC959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

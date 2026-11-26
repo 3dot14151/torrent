@@ -19,8 +19,7 @@ ScanKromsator v5.92 Full [En]
 ```bash
 magnet:?xt=urn:btih:AF4C6C804FD424F832D98D1BB20D94F71BD21185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

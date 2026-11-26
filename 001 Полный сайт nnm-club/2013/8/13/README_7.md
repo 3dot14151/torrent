@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5EAB7427628CE341FEEA1E7EF8AEBB34EEC9586C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C08761C4823FC88A4428DA2167474E9F56AF4DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dragon Age 2: Champion Edition (2011) [Ru] (1.04/DLC/HighRes Texture Pack) Repac
 ```bash
 magnet:?xt=urn:btih:D7DC5464BB9E1432E0373DFC6A2E897220A1D08B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

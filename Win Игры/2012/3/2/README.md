@@ -19,8 +19,7 @@ Royal Envoy 2 / Именем Короля 2 (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:3E6CC305984176E9B927293FB51FDBDCEDBE59B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA9A1ECD249DF5AF6FFB6DEFE8F1D5E99493A87A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Natural Threat: Ominous Shores  / Остров оживших лиан (P) [Ru] 
 ```bash
 magnet:?xt=urn:btih:ED4CB2D8BF5E128F04931B7576B646527C719A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Turtle Odyssey 2 / Одиссея Черепашки 2 (P) [Ru] 2007
 ```bash
 magnet:?xt=urn:btih:11E74CB3E7E7AAA5660B958FBB7B6465DBA68C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Cradle of Egypt / Колыбель Египта (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:24FE3C2E020B66DD7793515D82F76FDA982FBB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Chainz Galaxy / Цепочки. Галактика (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:285D0F28C9E18319CCF10486A5D8500AB8BE932E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ My Diary - весьма оригинальная игра про путешес�
 ```bash
 magnet:?xt=urn:btih:D0EA39389D75FA757693FF522ACEA83625503129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Strange Cases. The Secrets of Grey Mist Lake Collector's Edition / Тайные 
 ```bash
 magnet:?xt=urn:btih:BCC1B27BEDD4380EFD1BFE45881997FEFC7C19F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Redemption Cemetery - Curse of the Raven / Кладбище искупления
 ```bash
 magnet:?xt=urn:btih:98FD940A4704C76147C7323429A4F4FDC85F30D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Space Lines (L) [En] 2012
 ```bash
 magnet:?xt=urn:btih:64F307DA203E18860ECD904C59BABEBFDC27D33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Weird Park: Broken Tune / Таинственный парк. Разбитая п
 ```bash
 magnet:?xt=urn:btih:D23245E3C8261DEC7E3238E4B125AE277B32AC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ The Sims Carnival Bumper Blast - аркадная стрелялка. Пока �
 ```bash
 magnet:?xt=urn:btih:4477EB36ADFBF86E7C4BB9146609DDDC1DB5AA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD4ED029CEDEF6D4957417574D331FDFD1943C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

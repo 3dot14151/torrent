@@ -21,8 +21,7 @@ Peccatum —  был создан в начале 1998 по задумке Ihrie
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Lacrimas Profundere - Antiadore (2013) Limited Digipack Edition[MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:27A89B3F3F37BB73402FD8074B3861BCB8D6025F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Improved Sound Limited - 3 альбома (1971-1976) Remastered /2001-2002, Lon
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ John Fogerty - Wrote A Song For Everyone (2013) [MP3|263 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:88456BCCFCCC2088706D9C027D21DF97C519A658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ UK - 3 альбома (1978-1979) Official Discography /1988, EG Records/ [FLAC|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ The Groundhogs - The United Artists Years (1972-1976) 3 CD Box Set /2013, EMI Re
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ VA - Gothic Spirits pres. Dark Ladies 1-3 (2011-2012) [FLAC|Lossless]<Gothic / S
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Slayer - B-Sides & Rarities (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:56423514A839EC49C3AD65212E7538DF0D2B3874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Meshuggah — шведская метал-группа, играющая в на
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Paul McCartney & Wings - Wings over America (1976 remaster 2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:0127B222F7461C29D05810B8AF4A8B42882A2CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +358,7 @@ New Order - Lost Sirens (2013) [FLAC|Lossless]<Post-Punk, Alternative Pop Rock, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +392,7 @@ ZZ Top - La Futura /with 2 Bonus Tracks/ (2012) [FLAC|Lossless]<Southern Rock, H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +426,7 @@ Slayer - B-Sides & Rarities (2013) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

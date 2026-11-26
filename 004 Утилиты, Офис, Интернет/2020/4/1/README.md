@@ -19,8 +19,7 @@ Hasher - это программа предназначенная для выч�
 ```bash
 magnet:?xt=urn:btih:DDA1A9942DA3DECE488BD6F9ED83FBE7EBC8CD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

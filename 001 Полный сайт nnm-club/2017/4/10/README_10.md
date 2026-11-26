@@ -22,8 +22,7 @@ VA - Future Core Vol.1 (2017) [MP3|320 Kbps] <House, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:43F2D094BAD380B6B5FB8C8B9F85C4E777152D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Bliss Records - Bliss Music Vol.10 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:3FFEA014152845967061269E50732E54EBBCFF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Quintessence 1st Elixir (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:CAF1ED448FAA9B935C7E4711F03FCA8D32442D94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Health Regeneration 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:FFDFCFA5646D73E39A8DEC691420974EC4703274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Miami 2017: The Club Deluxe Edition (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:9A8EE65D6F6870C8E04E87CFD392299670C5C651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Sunset Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:A99A57FBABB894C039F53F323E628AAAC182F065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - The Sin of Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:6D42975432044E979A190E01AFCE2F0718090059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Armada Deep Top 10 April (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:936D0A383DAB3EF9D423748641812C6B5E35E8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Deep Progressive, Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:B630C1740278CD5736303FB4E078ED54F8824B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Waves Vol.5 (Sunset House And Deep Groove) (2017) [MP3|320 Kbps] <House, De
 ```bash
 magnet:?xt=urn:btih:92BB852ABB6197583126F3CA0532B578715A4692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Receipts призван помочь вам эффективно управля�
 ```bash
 magnet:?xt=urn:btih:DA63CC96A201AF1D4F020D600E2359019421ED7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Get Down Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:751DF25D50FBED07985480E426308B6D1A81369F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Bumpr - это удобное и красивое приложение для Ma
 ```bash
 magnet:?xt=urn:btih:C466B48506FE2D9B125255D12680A08596D3C591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ VA - Tropical House Vol.2 (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:B3339A1173414867369F284D5370FF34DD3FE614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ VA - Central Agency Of Sound (2017) [MP3|320 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:9D46C38265FE03E2A21A94CCE62CC8E5E3E7CCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ VA - Armada Miami 2017 (The Club Edition) (2017) [MP3|320 Kbps] <House, Electro 
 ```bash
 magnet:?xt=urn:btih:07B686205DADF26BB37D78696FC82E72B9F31742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ The Naughty Blokes - We Rise (2016) [FLAC|Lossless|WEB-DL|tracks] <British Blues
 ```bash
 magnet:?xt=urn:btih:291F2C75DEF980DF5948A79C93715E75D4D8C6AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ VA - Spring Break 2017: Dance Hits Selection (2017) [MP3|320 Kbps] <House, Dance
 ```bash
 magnet:?xt=urn:btih:AB2BA0EB6C532021251C5E7D1C494B9A1ACCFB62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ NetWorker отображает сетевую информацию в строк
 ```bash
 magnet:?xt=urn:btih:373987B412F20B787C04F061E2098AB066A1BAB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ VA - New York Night Tales: The Best Of Urban Chillout Music (2017) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:6FC16CAB1DFBE42B37F8246EA6531DCE99070385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9671D5067FAC3DF970EA6ACF29EE0C9A984119E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89510FDBB86EF68B7F07331EF8B43D3B5342C39D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ VA - Ultimate Chill Out: 01 The Best Downtempo Tracks and Mixes (2017) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:C9283B26F87FE61427374D3FA8581480FDA5EEDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ Pee Wee Crayton - Things I Used To Do (1971) [FLAC|Lossless|image + .cue] <Blues
 ```bash
 magnet:?xt=urn:btih:0FA4DC15530231ADD486FF78EF3C43E0B3DE663C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ VA - Ibiza's Finest - Lounge Vol.4 (Finest Lounge From The Island Of Love) (2017
 ```bash
 magnet:?xt=urn:btih:AC160F5923237F7B758B5E9A9881C824E2EC03DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ Showaddywaddy - Showaddywaddy (1974) [MP3|320 Kbps] <Rock & Roll, Glam>
 ```bash
 magnet:?xt=urn:btih:4573D98C97E1FB98CB7C5BA034521CA5F9749B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

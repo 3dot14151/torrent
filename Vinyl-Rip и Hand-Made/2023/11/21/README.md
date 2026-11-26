@@ -22,8 +22,7 @@ Vince Neil - Exposed (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal
 ```bash
 magnet:?xt=urn:btih:AC5352D3FC1302D1FEB52ED3AB839E50F51FB247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

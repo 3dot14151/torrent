@@ -19,8 +19,7 @@ Syberia - Эпический квест, который стал когда-то
 ```bash
 magnet:?xt=urn:btih:5EFFBA451D50FFD9921BAF0211432DC0EBC4B17D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Syberia 2 – знаменитый квест на андроид, в котор
 ```bash
 magnet:?xt=urn:btih:DA1E92361BB3127D06861815C67D2505A284A61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

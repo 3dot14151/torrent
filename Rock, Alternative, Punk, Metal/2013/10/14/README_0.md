@@ -28,8 +28,7 @@ Andy Scott (Sweet) - The Solo Singles (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:85FCBA618AF6A891BF0345A2917DF77C046245DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Peter Hammill - Fool's Mate (1971) Remastered/ 2005,Toshiba-EMI/ [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:6F8E3AFA1AC18A16DA057FC5F8D35915AFDD1D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Niva - Gravitation (2013) Japanese Edition [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E0B61340ACA301ADB55254EBEF23C622F9039E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Story Of The Year - Ten Years And Counting (2013) [MP3|320 kbps]<Alternative Roc
 ```bash
 magnet:?xt=urn:btih:AA819D9CA487A5C3420A5739F96B203DC87110D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Cryptic Carnage - Rozelowe (1998) [FLAC|Lossless]<Blackened Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0AF93D7CD0EDF6771CD01DD0C4E4E6BEBE942ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Tori Amos - Tales of a Librarian  (2003) [WavPack|Lossless]<Rock, Alternative Ro
 ```bash
 magnet:?xt=urn:btih:A3AEB3DE0E98017EDED3B668ECEBA987F27AFA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Travis - Where You Stand (2013) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:EF78E869BC13BE9E57A22D8ABF72E1FA97FFC487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Fox – Lucifer (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A793FCC7DF73FBD4E2DE96B5780189820F1A1113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Tori Amos - Gold Dust (2012) [FLAC|Lossless]<Alternative Rock, Piano Rock, Baroq
 ```bash
 magnet:?xt=urn:btih:B000460FE71D811C7D594467C88053281A5AC96F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ Rod Stewart - The Story So Far: The Very Best Of Rod Stewart (2001) [APE|Lossles
 ```bash
 magnet:?xt=urn:btih:063D2824F4114B87D625CFC1451BCA4BA470E85C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD0FF09DE7E3BEF4B470C969EE50AF06FFE46113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89E2DCCBC34ADA9CEB3346FFC18CF3480213368F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

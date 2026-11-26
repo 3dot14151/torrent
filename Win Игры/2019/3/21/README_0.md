@@ -19,8 +19,7 @@ Bridge to Another World 6: Gulliver Syndrome (2019) [En] (1.0) Unofficial [Colle
 ```bash
 magnet:?xt=urn:btih:76545A05501A9947AAAB3669DDD082937F99730B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.002r) Repack Other s
 ```bash
 magnet:?xt=urn:btih:02A9777E811918D45F89708546641814CB107B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/Multi] (1.94/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A72A1C457AB265546E880D5F08EF2C45693843CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.2.70/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:3C6063C77C9F479B9D8BF04A68C8EC181B1A1430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

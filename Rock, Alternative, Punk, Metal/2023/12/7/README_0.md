@@ -22,8 +22,7 @@ We Are Perspectives - Heritage (Album) (2023) [FLAC|Lossless|WEB-DL|tracks] <Met
 ```bash
 magnet:?xt=urn:btih:C6D61EB52563879E8BEDC0463AD6283FA77E15D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Old Ruins - Always Heading East (2023) [MP3|320 Kbps] <Heavy, Post-Black Metal>
 ```bash
 magnet:?xt=urn:btih:465A75F61A7ADAFC17563C7BD74CA3021416B584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Daemon Grey - Daemonic (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indus
 ```bash
 magnet:?xt=urn:btih:840CE3E0A7D31B1AFAA9F3B878868336F5748D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ MOF - Outsiders (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap-Rock, Math Rock, Alt.M
 ```bash
 magnet:?xt=urn:btih:D2F8D031003F1AE3052464ED8A6113BF2AE15F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ S.N.A.K.E. - Three (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:32DF8A2E308C63AF5C110190B2296D6D18C95663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Six Foot Six - Beggar's Hill (2023) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:53C1120D5E4E7790ABE9DADE22F0137EE449111C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Runaway Wild - Wild Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, R
 ```bash
 magnet:?xt=urn:btih:900EEEB4BFBD0A65E251590E3549C3C2CF332ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Porcupine Tree - Closure / Continuation.Live (2023) [MP3|320 Kbps] <Progressive 
 ```bash
 magnet:?xt=urn:btih:9586C522BC7945E17EF7B385580775361573D6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1999EB2F65FEE0D73F0528E2D63257E0B98BD30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Gary Moore (полное имя Роберт Уильям Гари Мур; ро�
 ```bash
 magnet:?xt=urn:btih:E32B45526850893D90ECA558AB69201B7921319C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

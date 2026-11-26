@@ -19,8 +19,7 @@ Spirits Chronicles: Born in Flames / Хроники Духов: Дитя пла�
 ```bash
 magnet:?xt=urn:btih:B4BAE70FE33CD88798A86C0C254E3E4990041091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alien: Isolation (2014) [Ru/En] (1.0u9/dlc) Repack Decepticon [Digital Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:A9E28A09937100370735890A6D7567848F3AAC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Total War: Rome Remastered - улучшенная версия историче�
 ```bash
 magnet:?xt=urn:btih:5697DFDD62249950065D36C560E014797A9F0996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

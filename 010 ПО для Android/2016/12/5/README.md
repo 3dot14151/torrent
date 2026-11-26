@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:4C3230E7E8F6AFBF35624F7A6E14A59297DBE568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ DashMaker превращает ваш Android телефон или планше
 ```bash
 magnet:?xt=urn:btih:A08200B78C93F41BD7BA730CCE2EF526B2B64EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Apk Extractor Premium 4.1.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:1A7A263D9FF332B2A700C67CC8B7F7AB0772602D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ OpenDomofon PRO — справочник стандартных кодов дл�
 ```bash
 magnet:?xt=urn:btih:160244EF9DEF798284FC0EDD6FACB863BCFE98D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ WiFi Manager Premium 4.0.0-dev2.7 - Управление WiFi сетями [Rus]
 ```bash
 magnet:?xt=urn:btih:3875D65DFD63E4056C89631EAFB0E406E29C00AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

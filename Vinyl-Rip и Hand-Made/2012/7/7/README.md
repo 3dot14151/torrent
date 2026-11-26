@@ -28,8 +28,7 @@ Tarja - What Lies Beneath 2LP (2010) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Symphon
 ```bash
 magnet:?xt=urn:btih:4F46A5D6CA87AFDA801CC5E77046028F5F05E471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

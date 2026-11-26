@@ -19,8 +19,7 @@ Labyrinths of the World 3: Changing the Past (2016) [En] Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:53181A9C303408080231B4AE7BD5FFADC7EDE6C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phantasmat 5: Behind the Mask / Фантазмат 5: За маской (2015) [
 ```bash
 magnet:?xt=urn:btih:E8557F0DA967B2E7BB615D1D7B177A309079D093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Legends 6: The Dark Wishes / Ожившие легенды. Темные
 ```bash
 magnet:?xt=urn:btih:372E24BFB9544DC6EA755E984A1A36C927C3D194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Goat Simulator (2014) [Ru/Multi] (1.4.52198/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:D6FE772C6F68FDDC5EB7639894AF479ED19441BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) Repack R.G. Мех
 ```bash
 magnet:?xt=urn:btih:0B8C6F7B78545050C4521F74350A711C9EAAB8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Shortest Trip to Earth, игра от создателя Teleglitch: Die More Ed
 ```bash
 magnet:?xt=urn:btih:38DAE116874C36FAB68EC4CD3842FF485B4132CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sable (2021) [Multi] (4.3.4) License GOG
 ```bash
 magnet:?xt=urn:btih:EABCA7289D7183B3DC43C7D66ECD2845B03C46D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cat Cafe Manager игрока ожидает жизнь владельца ко�
 ```bash
 magnet:?xt=urn:btih:5D6EE70AEA946BC15594E1BACDADEC530F57ACE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Axxis - reDISCOver(ed) (2012) Limited Edition [FLAC|Lossless]<Heavy Power Melodi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ John Mayer - Battle Studies (2009) [MP3|320 kbps]<Acoustic/Pop-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

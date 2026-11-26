@@ -19,8 +19,7 @@ Ring of Pain (2020) [Ru/Multi] (1.0.26) License GOG
 ```bash
 magnet:?xt=urn:btih:6096101D863D4EA27BB8CF6A5957FA20F241961E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Signifier (2020) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:A195ED2E98DD1305EC9CF79FB1AF28545019CEC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

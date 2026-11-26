@@ -19,8 +19,7 @@ ObsCure II является продолжением ObsCure, в котором 
 ```bash
 magnet:?xt=urn:btih:C03CFB60162959F1FF613CE64010A4859778FADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

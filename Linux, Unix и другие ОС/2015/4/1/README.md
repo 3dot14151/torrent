@@ -19,8 +19,7 @@ Tor Browser for Linux — Пакет для анонимного интерне�
 ```bash
 magnet:?xt=urn:btih:395F880C0FFAF888FF5317B28F7CFC17E58E3F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CentOS 7.1503 — дистрибутив вобравший в себя изме
 ```bash
 magnet:?xt=urn:btih:2BFA13A5A2265E0E81E0D7C8A58EC92EF0F4AA5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Help+Manual - это полнофункциональный инструмент
 ```bash
 magnet:?xt=urn:btih:517768C925BCEA0B87785103EB452B2225DD01FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

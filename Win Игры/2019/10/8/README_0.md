@@ -19,8 +19,7 @@ The Wild Eight (2019) [Ru/Multi] (1.0.4) License CODEX
 ```bash
 magnet:?xt=urn:btih:737DDAABBFCC90B968AF753F57B6DC03738F23BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sniper Elite V2 Remastered (2019) [Ru] (1.0.2797) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FFD4723F7731E0DC637C6F3EFD61EC9641EA422E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pilgrims / Пилигримы (2019) [Ru/Multi] (1.0.6.267) License GOG
 ```bash
 magnet:?xt=urn:btih:36E9770067630548FEA55D28FE9E7B1679795DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ashen – экшен-РПГ с открытым миром, что расска�
 ```bash
 magnet:?xt=urn:btih:A8C830516FC4EE5283285A04385FD76562D62550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

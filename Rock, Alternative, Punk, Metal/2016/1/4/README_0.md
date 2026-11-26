@@ -22,8 +22,7 @@ Mechina - Progenitor (2016) [FLAC|tracks|WEB-DL]<Industrial, Symphonic Death Met
 ```bash
 magnet:?xt=urn:btih:D566BBC7767E4631618E7DC91333A3B4B9601A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

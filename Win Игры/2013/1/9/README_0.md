@@ -20,8 +20,7 @@ Karateka [Ru/En/Multi5] (L) 2012 | TiNYiSO
 ```bash
 magnet:?xt=urn:btih:24AA78CC63B643ABF0619620FDD40C0D6BFD94A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Indie Game Collection [Ru/En/Multi13] (Repack) 2005 - 2012 | R.G. ILITA
 ```bash
 magnet:?xt=urn:btih:7075B38931624E5604400D20DEE0349486E66467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Ricochet Infinity вобрала в себя все сливки из Xtreme, Lo
 ```bash
 magnet:?xt=urn:btih:C8309F580A78ACCFA8E4B50E83F5D0804BC0E6BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ GTR2–серьезный претендент на звание «самого 
 ```bash
 magnet:?xt=urn:btih:511549293AAB2E8BB7E4137996DA062E41483C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Homefront – сюжетно-ориентированный кинематогр
 ```bash
 magnet:?xt=urn:btih:400C217EBD597A4F8B7EC4275D866585FD15E93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Driver: San Francisco [Ru/En/Multi10] (L/1.0.04.1114) 2012 | *PROPHET*
 ```bash
 magnet:?xt=urn:btih:C4CE049352E59E79A7516CBD34E558BECB4331E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

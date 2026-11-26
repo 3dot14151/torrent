@@ -22,8 +22,7 @@ Attila - Chaos (2016) SharpTone Records [FLAC|Lossless|tracks + .cue] <Alternati
 ```bash
 magnet:?xt=urn:btih:C22B66C4ADD8CF71FDBF8B0BB0B7E12F4458789D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Guignol - Ash Land (2019) [FLAC|Lossless|tracks + .cue] <Gothic Rock, Post-Punk>
 ```bash
 magnet:?xt=urn:btih:9BE51790A42B39A122229F789748F24677E84617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Consider the Source - You Are Literally a Metaphor (2019) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:85C0BAE83212BB06DCCD18B3179B65ED210C66EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Methyl Ethel - Triage (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:D6A0DB8738777DD2B9BC27503872B768330CB7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Seven Mary Three - American Standard (1995) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:736E411ADF25683DACB3C8C779B742AE84C7E8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Attila - Villain (2019) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:955D7FA8BBF9ECA363ED5135CF06C9B65D7ED575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Vince Gill - The Key (1998) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock, B
 ```bash
 magnet:?xt=urn:btih:35727C42712D94880DB3D0E67F73EE031DA73FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Simple Plan - No Pads, No Helmets...Just Balls (2002) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:D4A67CB1EB5BFFF74C684C98E6582FA35F396AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Sheryl Crow - Tuesday Night Music Club (1993) [FLAC|Lossless|tracks + .cue] <Roc
 ```bash
 magnet:?xt=urn:btih:83F2F837E51058D0B41CE499903BD3715846105F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Punk Collection (unknown year) Unofficial Release [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:31F3A33A8C7C2814755138DA561B8E9DD6804E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89A4857DE9B7970B33AF96933632665620E9829B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ In Flames - I, The Mask (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic-Groove, Mo
 ```bash
 magnet:?xt=urn:btih:64C11B0012CE502AE70E60995BD48CE72DA75F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Chris Rea - The Best Of Chris Rea (1993) Unofficial Release [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:37BD2A28F6505EBBDEBD58194F6A97456F2EAFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56B79FD0A87163FA3A006647E6BA89D2045A965C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ The Doors - Greatest Hits (1995) Recorded 1980, Remastered [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:45E29C2B083B8F8C50DFD2AC233C37A68D2CFDCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ Balthazar - Fever (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:6F0492B09327BDAA8A98E9E1B54637104E0C2380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Dire Straits - The Very Best Of Dire Straits (1995) Unofficial Release [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:B28579BA779C0B6C8D6485DB544578AE3F68319B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

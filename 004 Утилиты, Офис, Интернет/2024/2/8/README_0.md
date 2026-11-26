@@ -20,8 +20,7 @@ GameSave Manager - незаменимая программа для любите
 ```bash
 magnet:?xt=urn:btih:60A9EADF0964C36D71E0F4F7C60B37E7326F6B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

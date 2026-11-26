@@ -19,8 +19,7 @@ Wizards & Warriors (2000) [En] (1.0b HotFix2) License GOG
 ```bash
 magnet:?xt=urn:btih:461E970C51BF4C8688C3C0842FB6AC7B4DBC895B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Half-Life RTX (2023) [En] (1.0.5a) Mod
 ```bash
 magnet:?xt=urn:btih:234661426C2F9B485C9CE509E98F821D50FBCA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

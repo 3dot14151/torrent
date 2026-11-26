@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2BC93C8D96965EE2885F8180E212FE5BCAC54AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Nahemah - Second Philosophy (2007) [FLAC|Lossless|.iso.wv]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:CA2A16A3B72DDC27FFC100EB904B7503E4C8A94E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Paradise Lost - Obsidian (2020) Limited Edition [FLAC|Lossless|image + .cue] <Go
 ```bash
 magnet:?xt=urn:btih:821D5A0B69642DB285636E91436DC4F6E232B833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

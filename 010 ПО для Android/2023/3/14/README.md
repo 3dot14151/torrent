@@ -20,8 +20,7 @@ VLC для Android - мобильная версия популярного де
 ```bash
 magnet:?xt=urn:btih:DF183764F5B59F6C856253232318A3EC86D870D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

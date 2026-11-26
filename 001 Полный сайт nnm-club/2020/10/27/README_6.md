@@ -19,8 +19,7 @@ MarsEdit 4 v4.4.4 [En]
 ```bash
 magnet:?xt=urn:btih:F7110DBFBE3E2C218DBB29772C7E5D8425F46F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ShottyBlur - Яркие скриншоты со Слоями. Сделайте �
 ```bash
 magnet:?xt=urn:btih:2579FD4B7F06C185710D2CC4ACCF6775876A0536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Aeondelit - Editing Destiny (2020) Insurgentes [FLAC|Lossless|WEB-DL|tracks] <ID
 ```bash
 magnet:?xt=urn:btih:996BECAA67454101BD4A5FB192B075E03B115B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ EverWeb даже создает мобильные сайты, которые о
 ```bash
 magnet:?xt=urn:btih:3E467A342599B11B52BD9A2C601E1E385242C808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:CAAFAB628676AAD5EB2626913206F9697FF8A95E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ David Moufang & Jordan Czamanski - Live in Seattle (2015) Further Records [FLAC|
 ```bash
 magnet:?xt=urn:btih:0F2EF08E9900D2988DB2441B4C4278C1A67EB825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Ose - Adonia (1978) Reissue CD, 2017, Amphonotones [MP3|320 Kbps] <Electronic, P
 ```bash
 magnet:?xt=urn:btih:9908E73F1013457C67E3066994A10BE160311855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ JixiPix Spektrel Art 1.1.9 [En]
 ```bash
 magnet:?xt=urn:btih:606291C4F53AD2043CFCB1EF36DA6E0D24BB48EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ JixiPix Hand Tint Pro — интересная программа для обр�
 ```bash
 magnet:?xt=urn:btih:E71CFE24082F14711A45868577A1579FEF0404AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ PuzziPix - это профессиональная программа от ко�
 ```bash
 magnet:?xt=urn:btih:E948DE331AFB4419628067C9F676A575E593FD1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Coherence X позволит превратить фактически любо�
 ```bash
 magnet:?xt=urn:btih:ECCC301F21B6B10622C90317D66AD5AC14DFEDAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ David Moufang - Solitaire (1995) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue] <
 ```bash
 magnet:?xt=urn:btih:266198DBE541CC8E13E83916E67C386011B48B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90F6546606D2BCA66F4843DDE7607EF7B46DD5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Lake Of Tears - Moons And Mushrooms (2007) [FLAC|Lossless|tracks + .cue] <Doom M
 ```bash
 magnet:?xt=urn:btih:1A14414F8E10AEE9256DA27B5C70D002EBA52CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Amorphis - Queen Of Time (2018) Japanese Edition [FLAC|Lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:8BB1387B1C23092515C439D88715C884667EFA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ TribalNeed - Capetown Sessions (2015) [FLAC|Lossless|tracks+.cue] <Deep House, D
 ```bash
 magnet:?xt=urn:btih:91EDCE80ACA3C83EFDDBEE4C0784D1827B53F77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Interface - Plastic Age (2020) Unofficial [MP3|320 Kbps] <Synthpop, Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:6146375674050C5CD93A8D132D20B751B97211F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Kings Of High Iron - Sting Of Steel (2020) [MP3|320 Kbps] <Heavy Metal, Hard Roc
 ```bash
 magnet:?xt=urn:btih:597DE1F1480E21B5344E983852E1A5D67F1C1D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36D43A296C9B2207193F16764485C6ACD4D8FB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 ```bash
 magnet:?xt=urn:btih:B0AA3696BACA3F2398E252304416F21075CF5E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79BF96872BFAE488D690CB3E6BAC14074F342A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E8B8AE7A40EE6451CAF9748DCB55CBA31DDC54C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ Amadeus Liszt - Win The Race (2020) Unofficial [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:E3A0244D15891CFD4EFB9AFE619C13062FC460F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Looking-Glass Lantern - A World of Great Invention (2020) [MP3|320 Kbps] <Progre
 ```bash
 magnet:?xt=urn:btih:6D3517ECABDC7C185E4DEF812C049CAE82CD3149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Anthony Gomes - Containment Blues (2020) [FLAC|Lossless|image + .cue] <Rock Blue
 ```bash
 magnet:?xt=urn:btih:70183FD638992BAC8C73CBD06FDBFFF89F3FFFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:3B88C957EA8DEC7C4F6EE831171169480F118AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

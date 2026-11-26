@@ -22,8 +22,7 @@ Genesis - SACD Anthology (1970-1998) [FLAC 2.0|96/24|tracks+.cue|SACD] <Progress
 ```bash
 magnet:?xt=urn:btih:B345F4CCF1B7F126269C2A5139016902BCAF921C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

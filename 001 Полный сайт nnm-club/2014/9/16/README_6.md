@@ -20,8 +20,7 @@ SamDrivers 11.4.11 Printers for Snappy Driver Installer [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:307FC9D3C40839BE52CA64ABA6185B2DC6103C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Destiny [PS3] [EUR] [En] [4.21+] (2014)
 ```bash
 magnet:?xt=urn:btih:D81132D542AC5BCDD1698DA59ACDF77BE25A8777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Element 3D – лучший в мире плагин для визуализац
 ```bash
 magnet:?xt=urn:btih:2F611FDE398B328B9B04484B265E2D020CAFF9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A44E8A14B6DF8DBF98E4856BE01B7BEE453F96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78E92BD14E0108CCCE1AD7D2C4604F51550A7453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Ancient VVisdom - Deathlike (2013) [MP3|320 кб/с]<Dark Folk, Occult Rock, Psy
 ```bash
 magnet:?xt=urn:btih:C46F832490F86856FFBAC2CDDF17A075A631EDFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Killswitch Engage - In Due Time (2013) Single [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:2543C80AB25A82A32F5724919FA2FFD026146F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Septicflesh - Mystic Places Of Dawn (1994) Reissue /2013,Season Of Mist/ [FLAC|L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Atoms For Peace - AMOK (2013) [FLAC|Lossless]<Experimental, Rock, Indietronica>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ CD1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

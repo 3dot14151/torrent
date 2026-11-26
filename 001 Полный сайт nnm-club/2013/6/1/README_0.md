@@ -27,8 +27,7 @@ Priestess - Prior To The Fire (2009) [MP3|~225 кб/с (V1)]<Stoner Rock / Metal
 ```bash
 magnet:?xt=urn:btih:28816493E820B5FB6337FA544AA21AE31DCA00DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Клубные Новинки Vol.283 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:81351107F34EEF1327C47CB627EFB43D53C26F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Witchery - Don't Fear The Reaper (2006) [APE|Lossless]<Blackened Thrash / Speed 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Morbid Death - Secrets (2002) [APE|Lossless]<Melodic Death / Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Artlantica - Across The Seven Seas (2013) [FLAC|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Brainworlds - Discography 8 CD (2008-2011) [FLAC|Lossless]<Ambient, Experimental
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Hand of God - The Hand of God (2013) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:B64FC7AA3CE5C6ADB8EF62C3B4D0393FE78C0805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0130438101907DD27D0B355392146F6E55D98B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ VA - Короли шансона (2013) [MP3|128 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:E1FF3BCEF5FD61AB6645E5ADB6FA5AC95DBBEC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +346,7 @@ Thergothon - Stream from the Heavens (1994) [FLAC|Lossless]<Funeral Doom / Death
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +380,7 @@ VA - Школа жизни (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:11DA7346C38D6831252C18E819D6120CBD2CB303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50E78691BA2F175D43B9D047C42C1392ABE1EB85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +439,7 @@ ChipaChip & Женя Дэп - Шорох (2013) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:9C704723038105363DCF1C05F9ECC00811F802D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +473,7 @@ VA - Armada Top 15 June 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:04653F8BD9E80B50697F8A66D0515F86099DD441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3554F013A79A19D6152485EA50FBF43AEC5A5E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +532,7 @@ VA - Любимой женщине (2002) [MP3|320 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:EC350712109FEF3ACC1ABF4F63EE47213D641A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:622134B372573FD1DF341BB72E1AF03CDF27FABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +594,7 @@ Baron Rojo - 9 альбомов (1981 - 1997) [WavPack|Lossless]<Hard'n'Heavy>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +623,7 @@ Lapis Lazuli - Lost  (2013) [MP3|320 кб/с]<Symphonic Metal, Female Fronted>
 ```bash
 magnet:?xt=urn:btih:9BB2B66BDE9E803E1FD11D939E67DB904A807B4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C63F149995CAEAC6E5FDB9D7D71E4AFDF3D1101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +682,7 @@ VA - Drum and Bass Pro V.18 from AGR (2013) [MP3|320 кб/с]<Drum&Bass>
 ```bash
 magnet:?xt=urn:btih:C38B8444F4D7B5D273537805C80939CF19452D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +716,7 @@ Winger - 2 альбома (1988 - 2006) [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB2A651E6A11EAF3250FD3E7A016E618D315EEDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -803,8 +779,7 @@ Testament - Low (1994) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -838,8 +813,7 @@ VA - Блатная вечериночка (2013) [MP3|128 кб/с]<Шансон
 ```bash
 magnet:?xt=urn:btih:1A3330CB78190EC1CBFA2A9868B8298B824423EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

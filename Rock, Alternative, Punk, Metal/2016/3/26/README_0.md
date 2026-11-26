@@ -22,8 +22,7 @@ Gloria Morti - Kuebiko (2016) [FLAC|Lossless|image + .cue] <Melodic Death, Black
 ```bash
 magnet:?xt=urn:btih:0323877735C86778DBCB630E548670D2606D5607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Draugnim - Vulturine (2016) [FLAC|Lossless|image + .cue] <Epic Pagan Black Metal
 ```bash
 magnet:?xt=urn:btih:56DDC04EA5DA90C66C6BE834C30764518FC14A0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ I - Visions of Exalted Lucifer
 ```bash
 magnet:?xt=urn:btih:4DC429D66E811F3AA2223DCD6F536529C77CA2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Batdorf & Rodney - Off The Shelf (1971) LP [FLAC|Lossless|tracks] <Folk Rock, So
 ```bash
 magnet:?xt=urn:btih:1E0A78B9FB9501335854E1650F8CE6F89F45195A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mick Jagger - Mick Jagger and Friends (2006) Live bootleg [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:3D86996633272329A82D7FE994D20A61256F6979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Amon Amarth - Jomsviking (2016) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:61A40BC48807177B85FA325A1B56460296649C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Aerosmith - The Millennium Collection: The Best of Aerosmith (2007) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:327F5B48ED73167E144E4BF1DE4B8D9193F351E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Scorpions - World Wide Live (2015) 50th Anniversary Deluxe [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:64AA62C3F7E911ACC72D726359FBDCFA4818B773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ TextCrawler - программа для поиска и замены данны�
 ```bash
 magnet:?xt=urn:btih:33E056FBE64F507EA0DF71D590CA47D02BF40671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

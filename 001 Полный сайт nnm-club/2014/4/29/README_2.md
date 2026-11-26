@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4F3EEECD66449ADDEDF764FDD283ACEE2FBCB63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Europe - Live at Sweden Rock: 30th Anniversary Show (2013) DVD9
 ```bash
 magnet:?xt=urn:btih:EFBF3F82C766E290063D86AEE23019EA3EE89D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCC87C41798191A96B435AE39EDA2834A820F87F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ BBC. Мир природы. Лобо. Волк, который изменил А
 ```bash
 magnet:?xt=urn:btih:1F6C8E0B8C644F8E7B89252478D06233052FCD84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ BBC: Полет Земли. (Земля с птичьего полёта). Аф�
 ```bash
 magnet:?xt=urn:btih:45312E8020B836A866A395C8B988DFDF89DD8C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ WiFi Explorer позволяет быстро идентифицировать �
 ```bash
 magnet:?xt=urn:btih:5F895786DBF4BBB44F61B363B24A91D60343A136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CC11E39E4AF264E5BC0990F208E8E8FD2EE1B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Wallpapers - Best Mixed Wallpapers Pack (29.04.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:E5022A602B64BE88D504179A77FDC9FAE598E97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:244F35294B4FB52AD048F4F4DE58111367A802C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Recover Keys - программа, которая позволяет опред�
 ```bash
 magnet:?xt=urn:btih:7C44F7137AA64360EC962035000CF72D1BC20D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Ocenaudio хороший визуальный звуковой редактор,
 ```bash
 magnet:?xt=urn:btih:62B85C2580761114EB29118EBDF278C85E0084BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ BluFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:3E97C992564E059EE18DEAB2B69C40998127E9DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ ProgDVB 7.04.03 Professional Edition [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FB030FFFFEACD37D7371CB201FEFB31E7BA6FF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0746D87AB81D04B36081911329FFE385EACB3A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Bitdefender Total Security 2015 - комплексный антивирус "в�
 ```bash
 magnet:?xt=urn:btih:135A4C7FB4D29CF80034206E6B882C4DAA6477A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ WindowsPlayer - инновационный видеоплеер для прос�
 ```bash
 magnet:?xt=urn:btih:E6668B7060FA8E72F059C90E04C1B685E7A3E432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:923096339A7871B6DCC1C85E666E6E14D05EC5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A3C4F6036E037A0DCE863A062B5273630E8D932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:80223AA7B014319A50B0727947665C7AF929103C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ VA - Весенний марафон № 107 / Видеоклипы (Русск�
 ```bash
 magnet:?xt=urn:btih:7F14E1122A4533B61D254918164FC73F4EA42977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D32EDC44528D4D72DAE242316DB3D98543E2F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FF4C286B503F5B1048CC3D3F603E5178B92497B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:40ED4C940B03EC9904D99E1D8A7B739DC40B27DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29737C2DA3533CF181B9B8F5826FDC9B110914FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBB2A7EF168321BA97FD0111DC606BC0EC45C16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F00244D343426D7647283C3BCCB9C2C5860F1CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:B6B95C8D408FA63082E5FA07545E19D9C25394BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

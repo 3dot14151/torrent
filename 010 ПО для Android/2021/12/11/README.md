@@ -20,8 +20,7 @@ Evernote синхронизирует данные между всеми ваш�
 ```bash
 magnet:?xt=urn:btih:B81C9282053B1E12FC71755D3DEC320C05AEBFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8F1D5D889C0DC45FC6F0FB691A515EE2776315F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

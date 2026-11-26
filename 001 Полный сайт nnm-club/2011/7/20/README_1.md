@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:13B31B81C389A5A2DE83E3A7838D7F5E4BCED4C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Ensemble Morkos - Cedre (1999) [MP3|~200 kbps]<arabo-andalusian ethnic music>
 ```bash
 magnet:?xt=urn:btih:E995769479E50490BE372E779B993FC12A787F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Зарубежный Hit-mix (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:801A15B1E302CC4B6805D964E0900C8CE4927B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Khan El Khalil - Oriental Music (2002) [MP3|320 kbps]<arabian ethnic music>
 ```bash
 magnet:?xt=urn:btih:24A49835F9E2D67ECBFB7BDD550222051C47F801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ VA - 200 Летних Хитов Муз-ТВ (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:92FDF9B4965593B98C414628443CB5ADC2E549BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ VA - Sexy Trance #11 (20.07.2011)
 ```bash
 magnet:?xt=urn:btih:9545A4F3112B2462DE9FD28716DB6B384A8DE78C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ Shankar -  Sitar Concertos & other works (2005) [MP3|320 kbps]<arabian ethnic mu
 ```bash
 magnet:?xt=urn:btih:5E97DF22E699AC4DF94FBAF305E58A4BE263EC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94B9F96849199C8647D8F5818F29B35124B33299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ VA - Лучшая 100ка: Лучшая дискотека страны 2 50/50 
 ```bash
 magnet:?xt=urn:btih:6BF75D27FE0A3AE993B329A88DE23A88C708DA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ Midge Ure & Ultravox - The Very Best Of Midge Ure & Ultravox (2001) [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1303C757BFCF357C4C93AF41542BF283CEC3AA82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53979F15CCB08FFC4E82353433B86213342AAC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ Suren Asaduryan - Horovel (2005) [MP3|320 kbps]<Instrumental, Duduk>
 ```bash
 magnet:?xt=urn:btih:B142419C160A5DF67C47F3474B56FE08D1E65E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ Cosmopolitan – женский глянцевый журнал №1 в мире
 ```bash
 magnet:?xt=urn:btih:12EA290480AF1012ED0948A0BDE1969A0EF733EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D926157704738FA0C8157E81F92DE4F55C5F0DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ Cursed House (L) [Ge] 2010
 ```bash
 magnet:?xt=urn:btih:A6EEDB3618822CEBFD2D78327546F34672CE0399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE235551E0B42255EF0CB30B2E4D3E9B1A1BBED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ VA- Vanovlad часть №16 Русские новинки (2011) [MP3|128-320 
 ```bash
 magnet:?xt=urn:btih:22C0EF28235FEDBCE4BE431A1725E4E2B707D35C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ Schoolhouse Test - Простая в освоении программа для 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FDF56D73B4C4B815C9B4AC5E7F8D8B967C823BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +658,7 @@ ViewFD - очень легкий, компактный файловый мене
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44BCE7344735807CA5AC357AC31A68300D6DC363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +708,7 @@ Cosmopolitan Shopping — незаменимый гид по стильным п
 ```bash
 magnet:?xt=urn:btih:44E729E46289BFA4B3DC3668E22570A93B4BBDE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ VA - VIP Lounge 10. Deja Vu (2011) [MP3|320 kbps]<Lounge, Jazz, Chillout>
 ```bash
 magnet:?xt=urn:btih:E3CA76EDDD45D52669526466A5171BC27A1393D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

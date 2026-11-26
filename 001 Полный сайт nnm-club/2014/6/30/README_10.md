@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D9E88B115925985BD8DE646C4D6B8F376E6A63C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Maahlas - Nightmare Years (2014) [MP3|320 кб/с]<Melodic Death Metal, Progress
 ```bash
 magnet:?xt=urn:btih:75AFBF44C9426E65E9D30A8605E9A4A8678DC29A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Guti - Rompecorazones (2014) [MP3|320 кб/с]<Electronic, Chillout,  Downtempo>
 ```bash
 magnet:?xt=urn:btih:5A8261706ED4ECCCDCD2F9F82BAD4734013B401F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5078733F083986EEC8904D8C419F6021120B00D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ VA - Global Trance Sounds (by Alex3107) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A84782DB7F6FAAAEBEF073F977DF5FF8ED6ADD6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DA122553C11CE44038622AF9C4C15BC45E92A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Hauber Zsolt - Ice Coffee Lounge 2012 (2012) [MP3|320 кб/с]<Lounge>
 ```bash
 magnet:?xt=urn:btih:768904614C36839C8EAB091EB296F8E757113A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33B93C3BD43BE65D73A5878D7DC0060E934C79C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB4B51AF4F77483D1EC181369ACFA7687FEA7C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ Leslie Mandoki - People In Room No. 8 (1997) [FLAC|Lossless]<Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:055248C81A0AD43FF42AD99AD1F4C4AA662A273C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6B41B9D055BD7B7A512583DF0F7FD583DF7BC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E8FFEBD55E7F054032B1066A67487CD4B224C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ VA - Planet Chill 2014-01 (Compiled by York) (2014) [MP3|320 кб/с]<Downtempo,
 ```bash
 magnet:?xt=urn:btih:51DDBB8BD19840D0B063A4C0EFF8BB5A88422FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9377086B5F9CB775B4A520463B7F6534C0BEE933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D09D43A4B6C987EAF4853EA2456173A6CE71F9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F62226DF0C65CD5211D8227290D1DEA7732F5D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +569,7 @@ VA - Best Of Lucidflow Vol.2 (2014) [MP3|320 кб/с] <Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:B4941B1CE6F58CA21C188C1C23968709FC55782E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ PicPick - бесплатное приложение, объединяющее в
 ```bash
 magnet:?xt=urn:btih:6E06FB4A6F854668DE6F9327FBD708420F704D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +627,7 @@ Big Apple Blues - Energy (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:795E3B73F3DADAD2F3CAE321C76F5F8065553990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97612391468CC3F151DB7CBFFA3738138F7DF284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ Robert Randolph & The Family Band - Colorblind (2006) [FLAC|Lossless]<Rock, Pop-
 ```bash
 magnet:?xt=urn:btih:B5D9906CC4734881E60222E75F936DEB1F6359FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5E0FB6AF292E3D3F8A58B33072995CF6059B84C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ New York Dolls - One Day It Will Please Us To Remember Even This (2006) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:3BE21D1666A2622BE3BE242FF1AB7273769420DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

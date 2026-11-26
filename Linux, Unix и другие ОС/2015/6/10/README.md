@@ -21,8 +21,7 @@ Jondo Live-DVD предлагает безопасные, предварител
 ```bash
 magnet:?xt=urn:btih:65844F34FFAD8E59CFBC8C4886CA616AC807150C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ OpenVMS (англ. Open Virtual Memory System, или просто VMS) — пр
 ```bash
 magnet:?xt=urn:btih:999DD737CDB71B5DCA4A07193065BFC0705CF6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ XLSTAT является лидером в области программног�
 ```bash
 magnet:?xt=urn:btih:42BC56D54A242D222FF22CF3DEB112A4829486A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

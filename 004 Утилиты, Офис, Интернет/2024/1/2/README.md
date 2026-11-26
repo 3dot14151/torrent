@@ -19,8 +19,7 @@ ColorControl - небольшая программа которая после �
 ```bash
 magnet:?xt=urn:btih:3515291DAA18F8A43ECEE2CB31EB929E19461C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

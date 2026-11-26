@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:84A88F238117E17CBB0762ECD9B01FD3DCA3E1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Herbie Hancock - Empyrean Isles - 1964 (RVG Edition 1998) [FLAC|Lossless]<Jazz, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B48A30DA26B8DAB199EC59C131647006DA0E8FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ John Lennon - Gimme Some Truth (4CD Box Set EMI Records) (2010) [WavPack|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD65CBB810929B3C21D6BEB95F123847AFC75994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Gary Burton, Pat Metheny, Steve Swallow, Antonio Sanchez - Quartet Live (2009) [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Herbie Hancock - Man-Child (1975) [FLAC|Lossless]<Jazz-Funk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Wes Montgomery - Full House (1962) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E803E4E85865218CF4E77C3E3C8B88EB4B94BA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ QIP 2010 является прямым преемником QIP Infium и QIP 20
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ The Bruce Katz Band - Live! At The Firefly (2008) [APE|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +335,7 @@ VA - Vintage Cafe Lounge & Jazz Blends Vol.4 (2010) [MP3|188 kbps]<Lo-Fi/Lounge/
 ```bash
 magnet:?xt=urn:btih:414669C582E3708533A1BCC0DC8629CA9E268C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ Melody Gardot - Worrisome Heart (2008) [MP3|320 kbps]<JAZZ>
 ```bash
 magnet:?xt=urn:btih:44888F5C3BC7AFB65CF8022288C32F6C8EA451BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ Miles Davis - Enigma (2004) [FLAC|Lossless]<Hard Bop, Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ VA - Шальные 80-е 4 Русский (2010) [MP3|192 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:7F8687EFE775393288D8B9EE10E24B83884CD5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5D7F309F25EEF87C18A340B2D80A13CAEB9064A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ All You Need (2007)Жанр: JazzПродолжительность: 03:56:47
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A428D466E021983689996A5677B5631642B42248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ CD1 (Пьесы из репертуара оркестра Г. Миллера)Ж
 ```bash
 magnet:?xt=urn:btih:47845079A9F87339A6841974E5CC9DBA9A0215BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ VA - Диско 80-х [MP3|128-192 kbps]
 ```bash
 magnet:?xt=urn:btih:A6BEE022CDF6B9F184C52629EFF51BCB4A1C4DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CCB2B7796AE078954B49F5AC38D06D1FD565AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +608,7 @@ Sodom - In War And Pieces [Deluxe Edition] (2010) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:96C69BFEDBE86CE02E3D98D852F1230EF8D8CF59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ lynda.com | Final Cut Server 1.5 Getting Started [2010] [EN] PCRec
 ```bash
 magnet:?xt=urn:btih:85CD6DF4543DF60671EC157A2A4ADAA9B2812053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1123C7FFA943176D146627F8F9D5A08C8DAB79FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ VA - Весёлые ребята - Звёзды советского джаза 
 ```bash
 magnet:?xt=urn:btih:F2032CA979F8C80131B496465E423A625C4B58BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +722,7 @@ IMDbПродолжительность: 01:43:29
 ```bash
 magnet:?xt=urn:btih:EF87C2C83AA62A268CD1D4F9A034F84BBA205B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

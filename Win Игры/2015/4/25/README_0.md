@@ -19,8 +19,7 @@ Dark Romance 2: Heart of the Beast (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:3D3787FE06420C12FE7BCE8242A2338113207649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Amulet of Dreams / Амулет снов (2015) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:C96BA66052B667B93B2CE0495A81CB89512FFE68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Airport Simulator 2015 (2015) [Ru/Multi] (1.0) PLAZA
 ```bash
 magnet:?xt=urn:btih:A9108BB0A27960AFC9B36E2B49D5FD7696FF431F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Trine Сollection (2009-2013) [Ru/Multi] (2.12/2.01) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E2EA37E6CF1348CE03755DC41C8CABBD0243C96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

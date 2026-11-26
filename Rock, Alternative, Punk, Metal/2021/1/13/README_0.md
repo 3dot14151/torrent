@@ -22,8 +22,7 @@ Brad Wallace - Slow Worm (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Me
 ```bash
 magnet:?xt=urn:btih:05BA171499C8DF0F2FBD8F35CBF8E2A323488BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ ProAge - 4. Wymiar (2021) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:F6CFF7917C0BD6C0130129F393D79EC12C61269A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Foi - Transcendent (2020) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:5CEA389D519AE06B2F8AC82CAAB4DFE69FBB5F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fatal Fusion - Dissоnаnt Мinds (2020) [FLAC|Lossless|tracks + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:A56F4C9890F27364EFE38C656FF4013B461E7DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:248C8A7A9D2D2A2920F97472AECC39FBBFC6448C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71E82B059D5B3D0181292F6FDF02A719A08170FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ The Black Keys - Discography (2002 - 2010) [MP3|320 kbps]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:D3D5DFD7ACD1A34BEECA53F6C4C3A534FFBDF87D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Alter Self - Seven Deadly Blessings (2013) [MP3|320 кб/с]<Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:F11187721FCCC1EBEA90012877CB4B5F7081B3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Pollo Del Mar - 4 альбома (1997 - 2005) [MP3|192-320 кб/с]<Surf-Rock>
 ```bash
 magnet:?xt=urn:btih:3BCA83C1E7AD9B43594CB7B93941E77E292F48E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Status Quo - Blue For You (1976) Original Recording Remastered [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:86392FAAB29C561165124D149A81D3538F8B394E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +131,7 @@ Micky Moody и Neil Murray входили в классический соста
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Avril Lavigne - Here's To Never Growing Up (2013) Single [MP3|320 кб/с]<Pop, 
 ```bash
 magnet:?xt=urn:btih:4D2C29D5ADD3819F82041352FFF700E344C64CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:318A3BCCD3FD5C637CAD03828CE47825E24ECC31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Bastille - Bad Blood (2013) [MP3|320 кб/с]<Indie, Electronic, Alternative>
 ```bash
 magnet:?xt=urn:btih:AE1E67774716D7539BB61B99422D9104A2000052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Device - Device (2013) Best Buy Edition [FLAC|Lossless]<Alt.Metal | Industrial R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Margenta - 6 альбомов 1 сингл (2003-2013) [FLAC|Lossless]<Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

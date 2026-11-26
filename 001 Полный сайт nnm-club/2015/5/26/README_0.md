@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:512D640469BF4D1A7D81868014760345A1EDA954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FD183906FA223D4B89FC612881E3BFC81000FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Xilent - We Are Virtual (2015) [MP3|320 кб/с]<Drum & Bass, Dubstep, Electro H
 ```bash
 magnet:?xt=urn:btih:AA1BDBEDC9A750503F854847C05F2E9F2F04CA65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Wise JetSearch - программа, которая предусматривае
 ```bash
 magnet:?xt=urn:btih:591C88243CC96452FE2CF065B3B1E93C265F5CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B8B64F8F472E89DC69C278CEECF42A4479D371F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Jeff Beck - Live + (2015) [MP3|320 кб/с]<Blues Rock, British Rock>
 ```bash
 magnet:?xt=urn:btih:5213F468FCD48CFC377CC87FDA2E29B1F72265A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Junkware Removal Tool 6.8.0 [En]
 ```bash
 magnet:?xt=urn:btih:03A528E91149D73C18D6055C1A4185AEC19B1F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Icecream Slideshow Maker 1.19 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:403B700E6C512BC61C9CB7493664FD27AAEA0DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:820C4057EFF2867988BE65ECB59E3509C3662ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Icecream Media Converter 1.45 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4791C1DB78D11F5E1989D6A4B00E28CEAA88793A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Ten - Isla De Muerta (2015) Japanese Edition [MP3|320 кб/с]<Melodic Hard Rock
 ```bash
 magnet:?xt=urn:btih:1A3212B348A2D9E26B055BB6E0EAEC3D68B77E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AC666485269C7669062AF62291A6F004B704117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ N/AЖанр: Electro HouseПродолжительность: 00:57:34
 ```bash
 magnet:?xt=urn:btih:C0D4559F6D43AB27EC7788848FEDC7B589F00F62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D74FCFCF7BA0ECFBF1729F97717EFD8EADB3DC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E6E617FD2626A628671BE9B9299E5B694750661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:B05E7857C486F31E253EF2AF44EEDF3A9D0F556A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ Sienna Mercer | Моя сестра вампир [5 книг] (2007-2012) [EPUB]
 ```bash
 magnet:?xt=urn:btih:A017BE21120E712CE31DF765F319A8F8486C9F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ N/AЖанр: Electro HouseПродолжительность: 00:59:35
 ```bash
 magnet:?xt=urn:btih:5537C9ABE7411ACB9B07B47D375C99E6E3E34D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ Bill Whelan - Riverdance - Music From The Show (1995) [MP3|320 кб/с]<Folk, Ce
 ```bash
 magnet:?xt=urn:btih:87E0DCEFEC4EAD8C50D31A359A0E48FFBC60842D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ Icecream Image Resizer - бесплатная программа для удоб
 ```bash
 magnet:?xt=urn:btih:837D37D420BB393A3790A9BB438258A0DEDDD5C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ Ronan Hardiman - Music From The Show Riverdance II (2000) [MP3|320 кб/с]<Folk
 ```bash
 magnet:?xt=urn:btih:812856E0EE61C0E82C2B852EB0E88DED8D23879A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A931935FCE12AA2210AC20A0CB2647D7E53F6D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ The Pharcyde - Bizarre Ride II The Pharcyde (1992) [FLAC|Lossless] <Hip Hop, Con
 ```bash
 magnet:?xt=urn:btih:6E74F0F3198D57F511D4BC8F565FFDB731E2B297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ Bandizip - это быстрый и мощный архиватор, подде�
 ```bash
 magnet:?xt=urn:btih:259361BAEE0627ACFBD991395B143BE1106CC5AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8E271D0E328C0C69D5D6C151FF0B8E19C0FE202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F9256983D5C5598C1AAFBC3F27530235FF90689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

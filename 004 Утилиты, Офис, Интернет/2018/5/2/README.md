@@ -22,8 +22,7 @@ Registry search and delete - программа для поиска в реес�
 ```bash
 magnet:?xt=urn:btih:5F90FCC7BDC40E749E75E33A388965DB527D8558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

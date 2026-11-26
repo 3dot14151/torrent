@@ -22,8 +22,7 @@ Tedeschi Trucks Band And Leon Russell - Present: Mad Dogs & Englishmen Revisited
 ```bash
 magnet:?xt=urn:btih:0200E7B2B13FC2451965AE4B09B0CC9604C1A961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A4F99EE3D0BFB4B5646ED939DF8F911808BC8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

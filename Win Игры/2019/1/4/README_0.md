@@ -19,8 +19,7 @@ V-Rally 4 — это продолжение легендарной серии г
 ```bash
 magnet:?xt=urn:btih:28183E18BD9A16A800C20B8C791E9369A365304C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

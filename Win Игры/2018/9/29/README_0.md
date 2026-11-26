@@ -19,8 +19,7 @@ Tower of Time — удивительная игра со множеством п
 ```bash
 magnet:?xt=urn:btih:90ACF622A10E41B4122876499D321AA426D33D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Diluvion — трехмерная игра о странствиях в морс
 ```bash
 magnet:?xt=urn:btih:C3B5946829E3D7299C8AAB4D8814BA9C52582F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

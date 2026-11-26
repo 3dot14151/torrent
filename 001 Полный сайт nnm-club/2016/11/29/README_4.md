@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:EA3ED9CE3137C1148D2A9F60EBD7491BC60BB78E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Windows Player - инновационный видеоплеер для прос
 ```bash
 magnet:?xt=urn:btih:85630DC4725D28A72AE967A26C263A9170CBD0AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Curio Society 2: New Order / Антикварное общество. Нов
 ```bash
 magnet:?xt=urn:btih:BFE7B5CDA05BF4BB46A9F4B38706199C3ACEE9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Mobile Mail.Ru Agent 2.2.315 - 6.11.4540 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8E35FD0A0CE00681C5FBDB2A12D3CDA75F58236A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Viasat History: Женщины-самураи / Samurai Warrior Queens (2015) SA
 ```bash
 magnet:?xt=urn:btih:5B180ED225F3452270B0AC2E86D6A1EA2A6C8B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Dynamic Color Opener - энергичная быстрая модная през
 ```bash
 magnet:?xt=urn:btih:59F618A0D0DB519664C1B5767BD2B3F751915B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28835177811BA4BA7FFE25B0D268681C819513B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Kickbox FastFix — это жиросжигающая кардио-тренир�
 ```bash
 magnet:?xt=urn:btih:D928D1942FFA959DF5626BD0E8A4C6AB4416A8B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Parallax Brush 2 - слайд-шоу с эффектом параллакса, �
 ```bash
 magnet:?xt=urn:btih:B1FC8AA2CEE23316CBF9F1B347D30A272A26AA46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C506E5849EF50A6495BE0ED35EA258B5A74F941D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ AndDocPro - PDF & DJVU Reader 1.0.7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ACF9FCCCFE3A5A18B45AE03EC3D38BDE06608899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAFD42EA95EB1AE0DA1B8A91A21BC06474BC311D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Cinematic Intro - красивая плавная анимация с эффек
 ```bash
 magnet:?xt=urn:btih:B24578243985514D20D334591E295B68A17B0A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Norton 360 - комплексное решение "все-в-одном". Эф�
 ```bash
 magnet:?xt=urn:btih:F914204276FD0212DE731B592E9C6B5EF1B5ADDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Nigel Stanford - Solar Echoes (2014) [FLAC|Lossless|WEB-DL]<Ambient, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:4BC7E4A0B1A99949DC2C295B0BB871B50834B304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:615FC2EC6EF816A2D5363E99EA94A5728D628C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E6EF95E389ADA5BD5BFFD835ED109B3148D3E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Gif Animated Sparkler - эффект анимации бенгальских о�
 ```bash
 magnet:?xt=urn:btih:65F3CF8353C552A601E0BF25540F9954FDBF1BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ Christmas - красивая Рождественская заставка с п
 ```bash
 magnet:?xt=urn:btih:502C7DA36C3AA697560A61C9B2B0AF7DDF56B688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ Let It Snow - добавьте реалистичный снег для ваши
 ```bash
 magnet:?xt=urn:btih:3EC98B34E8BB8F9B7703626DBE4EF7935000A92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EE1B7AAA613C364122FB7E6E44BED75DF017D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DDFF1D4B7E81817D2707640A0E2CE963C131D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B77E2D684B4FD881F07E6F69EEDF32A0E542AB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB45B0ECF9E80E1448B872BDD83B34DA58027603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A975FB02AD1D57EF9F2609C9D4AD35E401EC90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ Sketch от Bohemian Coding — один из лучших векторных р
 ```bash
 magnet:?xt=urn:btih:FD17BA8B4CE0546B23E9B32DCA8DABDEDC6A5040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

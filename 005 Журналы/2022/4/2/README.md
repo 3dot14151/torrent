@@ -19,8 +19,7 @@ The MagPi - о различных поделках и экспериментах
 ```bash
 magnet:?xt=urn:btih:CE114E721D9B54C751A38D208072F9CCB9962293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The MagPi - о различных поделках и экспериментах
 ```bash
 magnet:?xt=urn:btih:54F6F976F953BFA1D62F0D102F970F8F6282F5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

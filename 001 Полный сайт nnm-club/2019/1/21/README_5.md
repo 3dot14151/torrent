@@ -18,8 +18,7 @@ Windows 10 x64 USB Project Release by StartSoft 05-2019 [Ru]
 ```bash
 magnet:?xt=urn:btih:AA63A9E71EB50CBB598B464F645AA120D09C5A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ RTM Build 17763.1.rs5_release.180914-1434 + Cumulative Update KB4480116 = OS Bui
 ```bash
 magnet:?xt=urn:btih:E95B0F74E07E5C1011FC93AB2C4A9D6639AB0765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Call of Duty 2 (2005) [Ru] (1.3) License 1C
 ```bash
 magnet:?xt=urn:btih:AEF9E08C65E7B4C3717800A96764311CDC354EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ECFFC17ABA7FCCEF1C3ED1FB2F6B2D90F4F2438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Warhammer 40,000: Sanctus Reach переносит игроков в темну�
 ```bash
 magnet:?xt=urn:btih:BD7E592E2701FE2A8BFA321A671BE0711E49681C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Windows 10 32in1 (x86/x64) + LTSC +/- Office 2019 by SmokieBlahBlah 14.01.19 [Ru
 ```bash
 magnet:?xt=urn:btih:77B07FE311BA37A90AF5898F06C97EF367EB9B99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

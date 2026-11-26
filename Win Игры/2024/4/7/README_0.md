@@ -19,8 +19,7 @@ Lucky Season: King of Fools / Сезон удачи: Король глупцов
 ```bash
 magnet:?xt=urn:btih:BC41B8DF93A97FEA8321B5880337EE515C33BBEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reflections of Life 12: The Shattered Timeline / Отражения жизни 1
 ```bash
 magnet:?xt=urn:btih:4A5D5F7341B0AF3F78B7ACE72B3AA479EADC8BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ War Tortoise - игра-кликер абсолютно нового уровн�
 ```bash
 magnet:?xt=urn:btih:F6304AC1C49A06A64B96E396301DBE0F74C10860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pathfinder: Gallowspire Survivors, созданная по мотивам поп
 ```bash
 magnet:?xt=urn:btih:70B455260E2680AF111C8EA6AE3726AC0CA0D20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Scene Tenoke [Dual Edition] [
 ```bash
 magnet:?xt=urn:btih:59EA8F0E91EC3604BBB13902910694E8395C1E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Withering Rooms отличается от многих хорроров. Во-п
 ```bash
 magnet:?xt=urn:btih:415C582D3877CE102FB1CD4C85B853D22FA841E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:53F1ACC60BBB2D7483EC8DEC5051A69CA7F2C30B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D3AA18199231ABB8D06A06E67C3F01FB252C6BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Ario бросает игроков в фэнтезийное царство, т�
 ```bash
 magnet:?xt=urn:btih:556C9C70A470F1783CEE83322EC3FBD33901167F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Spider Fox - это однопользовательская игра о без�
 ```bash
 magnet:?xt=urn:btih:959FF9CE25315A3F99744A9EA6D37E536C332C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Gridrunner. Revenge of the Mutant Camels. Tempest 2000. Llamatron. В брита
 ```bash
 magnet:?xt=urn:btih:DD8DD9C189E0AF43D1C7C0E47D9767EC0427CD93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Motesolo (2021) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:0F66AFBC23A7D28F75C15FA75C11A93E16321140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Hydroneer – это симулятор добытчика золота и др�
 ```bash
 magnet:?xt=urn:btih:E9B36710E079C346F295D12BC0F4712461479160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Handball 17 – это возможность сыграть в професси
 ```bash
 magnet:?xt=urn:btih:F0FB9B0F49694A7251780B9FE01B351A88BA6FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Timeworks погружает вас в безумный мир путешест�
 ```bash
 magnet:?xt=urn:btih:2755A97BCEB4D3C05C502284EFBBE1B6707868CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

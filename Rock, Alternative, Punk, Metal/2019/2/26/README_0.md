@@ -22,8 +22,7 @@ Cirrha Niva - For Moments Never Done (2009) [FLAC|Lossless|image + .cue] <Progre
 ```bash
 magnet:?xt=urn:btih:1A66635D4E11EA09587FFB23F845215EBDFA3467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Condenados - The Tree Of Death (2016) [FLAC|Lossless|image + .cue] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F5DD9B55038A34AE2EFD39582CC0B36546103C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bleib Tapfer
 ```bash
 magnet:?xt=urn:btih:B6901C7F69C0F07783E9A94AC0BDA289840E4C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hybernoid - The Last Day Begins ? (1994) [FLAC|Lossless|tracks + .cue] <Goth Roc
 ```bash
 magnet:?xt=urn:btih:43D79882A6CC7052CB550294204A227BF82C9842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Illdisposed - 1-800 Vindication (2004) [FLAC|Lossless|image + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:136AA198C73BF6BC1DC87001317A31E9A4F1C950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Agatus - The Eternalist (2016) [FLAC|Lossless|image + .cue] <Black Metal, Heavy 
 ```bash
 magnet:?xt=urn:btih:F6BC4B06E9C40DBFAA47D3E7E0F3DB6DAE4B0EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Cytotoxin - Gammageddon (2017) [WavPack|Lossless|image + .cue] <Technical Brutal
 ```bash
 magnet:?xt=urn:btih:3FEC1936D208A13A2C7763982A776F6BD6E39156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Cytotoxin - Radiophobia (2012) [WavPack|Lossless|image + .cue] <Technical Brutal
 ```bash
 magnet:?xt=urn:btih:A55357FA704E235D9E9E97F7EBB50CBCF9B3232D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Holy Terror - Guardians Of The Netherworld: A Tribute To Keith Deen (2015) [FLAC
 ```bash
 magnet:?xt=urn:btih:1DA9119459AC0F63C0F5ED40A4ED2CF8D121946B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Teeth Of The Sea - Wraith (2019) [FLAC|Lossless|WEB-DL|tracks] <Metal, Experimen
 ```bash
 magnet:?xt=urn:btih:32623B6B3EE4E634D888A269798273A831971B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Dream Theater - Distance Over Time (2019) Special Edition, Digipak [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:5E03B37CD7B82F16C2DBC0FF6AE81AAF8E9FED06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E66AC26CB1E32C43B26D1CA8F4B9F0D55792639F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5B50BA3EBACC72A6409B60F30C6FB28291ECFDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

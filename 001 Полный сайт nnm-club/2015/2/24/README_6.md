@@ -23,8 +23,7 @@ Mortalium - Obligate Loneliness (2015) [MP3|320 кб/с]<Doom Metal, Gothic Meta
 ```bash
 magnet:?xt=urn:btih:70604AAB87129E94E83ABCA63AE7A76CB6114461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trna - Pattern Of Infinity (2015) [MP3|320 кб/с]<Atmospheric Post Black Metal
 ```bash
 magnet:?xt=urn:btih:8A379EFFE44F45FD872C1EB2265D2FF55DC7C1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Don Nix - Back to the Well (1994) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B907D5DCB5F32A8F8726C16BC17E7D02B48D2072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AAA0F5DC6C257B60D67013DEC5E12AE20F0DA74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Copeland - Ixora (2014) Twin Edition [MP3|320 кб/с]<Indie Rock, Alternative, 
 ```bash
 magnet:?xt=urn:btih:48F992D17B9020C067A1AAB7C11CA594E29E97F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ The Modern Jazz Quartet - No Sun In Venice (2013) [FLAC|Lossless]<Jazz, Cool, Th
 ```bash
 magnet:?xt=urn:btih:3F12C89272A09B0036D62C732BE2781D05F15792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ VA - Welcome to the Chill Lounge (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:E19D6EF71172EDEB3BC10F40E27B65EA666E4987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Copeland - Ixora (2014) [FLAC|Lossless]<Indie Rock, Alternative, Indie Folk>
 ```bash
 magnet:?xt=urn:btih:E80A81CF1ADDFAB66096B76FB5AD494F7B0F1C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ Fjord - On Icy Shores (2015) [MP3|320 кб/с]<Post Rock, Post Metal, Shoegaze, 
 ```bash
 magnet:?xt=urn:btih:CAC1D15702104A583F27DA78D07CA53EAE08FD38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ VA - Manchester Punk Festival vol 1 (2015) [MP3|320 кб/с]<Punk Rock, Hardcore
 ```bash
 magnet:?xt=urn:btih:1599C057F7AE76378729D10465B7DAECFF092D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ CD2 (00:50:22)
 ```bash
 magnet:?xt=urn:btih:E6ED9103343898FC8133443DE9375089A989ABEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Sleater - Kinney - No Cities To Love (2015) [FLAC|Lossless]<Alternative Rock, Ga
 ```bash
 magnet:?xt=urn:btih:94E3F03344979DB283508347E91D6C57CE1276F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ Pack Of Wolves - Echo Of Love (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:FAEFAC362BFF68233B1E353FF9365E0CDEED9C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E5B0A314123FB918C8169A9B9B67553A4578FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ Homemade Wine - The Road To House Mountain (2015) [MP3|320 кб/с]<Southern Roc
 ```bash
 magnet:?xt=urn:btih:27BF36DD352647D0BD7BFAD06BAF6EC95FD09D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ Risenstar - Unspoken (2014) [MP3|320 кб/с]<Industrial, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:700530ED1A22BEC061B58AACF92F112E88221911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ John Zorn - John Zorn's Cobra: Tokyo Operations '94 (1995) [FLAC|Lossless]<Jazz,
 ```bash
 magnet:?xt=urn:btih:8542D5CEA2D160E11E9BE34CD35EFE00BEF1278A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ Izah - Sistere (2015) [MP3|320 кб/с]<Post Hardcore, Post Metal, Atmospheric S
 ```bash
 magnet:?xt=urn:btih:FD12FFBBF121D737D3133C46CB0045B1A8B2EA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ Endlesshade - Wolf Will Swallow The Sun (2015) [MP3|320 кб/с]<Doom/Death Meta
 ```bash
 magnet:?xt=urn:btih:1A07AAE466B8CB0308948B4374B9F670E4A1B21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B069460B0A9CBECBB33012998AC94DBBFD9CED46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:883B17D5B7A68C9C21344CDD8D99DECD9401A0FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D05E905925EE2AA6C89DBEFFB1666C513C08149F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC2E3C44F0DE07F167AC7250A67BEB9AE5FCDF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +672,7 @@ Dodsferd - 2 Demo, 8 Album, 4 Split, 2 Compilation, 1 Live, 1 EP (2004-2013) [MP
 ```bash
 magnet:?xt=urn:btih:0D5ADBFC7C829B453E342B974FEA41581078397C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57CD389807F69E903ABAD6F51463C013D361A76D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65FBBE63EF56489F9896102CD22AC858A6BCE2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Spy Tactics — смесь головоломки и пошаговой стра
 ```bash
 magnet:?xt=urn:btih:D16C8E34F0E10A9B55DBFAE17D693498692FE4D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blazing Chrome (2019) [Ru/Multi] (0.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:05783D815D7C2AE926F6710B1AA598A968B2773A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

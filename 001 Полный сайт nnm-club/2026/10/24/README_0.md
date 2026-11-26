@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E11801E776899184A8FD345D298C702418F7DAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Plan B: Terraform (2025) [Ru/Multi] (1.1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1E5FA4DB58CD4A0CE29F8339627B39B307449CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Final Fantasy XV: Pocket Edition - это компактная адаптац�
 ```bash
 magnet:?xt=urn:btih:9244E20889BCEA22FA5FAAA84998FD59C7D20A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9976A7019AD347A322AD9CA33AADD4DD17AAF8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F8837ED71CB4FB20C8C4CC18C7B641B9689F142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Savage Grace - Underworld (2026) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Met
 ```bash
 magnet:?xt=urn:btih:6760E485EC720C5D535A70B29969339F3C595697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ WarDriver, Боевое Вождение | OpenWRT с нуля до профи (
 ```bash
 magnet:?xt=urn:btih:5B9CDBDA3065A5A205C56D3ADF273D0FB60D2B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

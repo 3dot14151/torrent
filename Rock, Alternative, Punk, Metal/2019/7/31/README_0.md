@@ -22,8 +22,7 @@ Mark Knopfler - BBC Sessions (2019) Unofficial Release [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:B3D04D1C7E9242290FC99FC7BE2005E77658D88A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

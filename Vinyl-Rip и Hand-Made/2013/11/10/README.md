@@ -28,8 +28,7 @@ B5. Колыбельная [2:35](   Читать дальше...   )Жанр: R
 ```bash
 magnet:?xt=urn:btih:CB55C907B29FF27D74B906FC18AED1B416A885EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B5. Песня про солдата [1:42]Жанр: RockФормат: Vinyl, 2L
 ```bash
 magnet:?xt=urn:btih:FEA8BFF5266DF02CE99D773227D76360563476DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

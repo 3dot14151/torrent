@@ -19,8 +19,7 @@ ReviverSoft PC Reviver - мощный многофункциональный и�
 ```bash
 magnet:?xt=urn:btih:D2ECC853884C7A786E7BB01D382649620915D26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

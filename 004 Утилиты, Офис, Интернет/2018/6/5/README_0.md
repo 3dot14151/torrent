@@ -19,8 +19,7 @@ WinCHM - небольшая утилита для создания файлов 
 ```bash
 magnet:?xt=urn:btih:32F84FF4ACFD9607DF6118736113923C9C4C16A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

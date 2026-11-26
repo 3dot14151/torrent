@@ -19,8 +19,7 @@ Guns n Zombies (2014) [Ru/Multi] (1.7/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A5945DA06257C5FCAC78108D7D47753B8AC66BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Whispering Willows – приключенческий логический ин�
 ```bash
 magnet:?xt=urn:btih:FF2E3C5858CBF19413928B946C0FB84ECCFFBF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

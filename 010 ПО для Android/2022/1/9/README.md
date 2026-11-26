@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AD462B81882F6F94D612F8F40A9CE6E34BA06695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Listonic v6.44.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EC44E88B837503548BE3AEF1C6B815AE21F98B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

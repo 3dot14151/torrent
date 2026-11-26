@@ -27,8 +27,7 @@ VA - Sacred Spa Music Series 2 (2008) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:C60548D91DE9897EC22D6456E0BFDFCCC1CF5B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:948859520732F51810EBFD42EE60AADC2AF8D26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Cesar Del Carmen - Musica Ecuatoriana Para Guitarra (1999) [MP3|192 кб/с]<Ins
 ```bash
 magnet:?xt=urn:btih:A4E2480A40F0F49AA3085413F5D2B50076FA93D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Ishqamatics - Earthbound (2013) [FLAC|Lossless]<Ambient, IDM, Experimental>
 ```bash
 magnet:?xt=urn:btih:B83EC668DA8933962C90E02896E3A8AB5608E56B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ VA - Translucent Best Of 2013 [FLAC|Lossless|WEB-DL]<Techno>
 ```bash
 magnet:?xt=urn:btih:E916229B30DB6C74272FA90027D5ABD6D3C9A3C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A157F5A2A6FEEE5BFB71AA2803577CC8E8CB7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41AE7B4BBBC809B6332DC7C0BEDBF89F5B1CD30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:730E74DEAC1507E74BCED023B18CAE3E2DAA301E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Nocow - Solus (2013) [FLAC|Lossless|WEB|24Bit]<IDM, Ambient, Experimental>
 ```bash
 magnet:?xt=urn:btih:5CE0C74D96460569A531E6668F883E97E6642DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:67A771FBAD88CE3680C7D5B0E1B6EC72A5B59D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90672D0633FE5FE12C9896DB6C32FED80B0A2DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E68273AB06FA21B02192D31E6C9E0FCBBC0BF90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ LiquidMusick - Collection (2013) [MP3|320 кб/с]<Melodic Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:DF237E030B613F23DA1D7CCDDA9EAD9A59E9DAF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D4D015B6FD96B0D12DC82E9608379220021B5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5E22D1DD8A129114554F24DFFFDC2209E69780C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +452,7 @@ Nu-Nation - Wake up (2012) [FLAC|Lossless]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:6322674D6A0A9BBDD6BE8745F710EF83A4A1D602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73A035EE7C46E9D4E008E66861E163743144B4DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ Peter Paul - Visionary (Part One) (2013) [FLAC|Lossless|WEB-DL]<Techno, Breaks>
 ```bash
 magnet:?xt=urn:btih:16F33120E8A66FA66B2B2395D98CA28308633AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70887CCBB1D7487E60CEDC9D802450BF1B6D3DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C69D16BA55A7967B1C106DFE05417AC90B2F1033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FB13122E9CE5E533569FED2A86B0EA708CD34B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE23F4A8E7CBB3960CA799FE724E645034C7D7AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ PicPick - бесплатное приложение, объединяющее в
 ```bash
 magnet:?xt=urn:btih:AAE593148F63B7D6C729BFF38E4C22C6E99CAE94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ VA - Epic & Massive Volume 1-5 (2011-2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F62C1E99EFC8B70E7CB8E411FAB7291FD48F2A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ SiJ - The Brink Of Time (2014) [FLAC|Lossless|WEB-DL]<Ambient, Drone, New Age>
 ```bash
 magnet:?xt=urn:btih:102E2009DD084445021F7EDF08BD40EC76717B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ Any Burn - небольшая бесплатная утилита для раб�
 ```bash
 magnet:?xt=urn:btih:98F8F0FEDC1C45E2ABC702600E7C83C0DBC1CA99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ GetDataBack Simple - новый продукт известного разраб
 ```bash
 magnet:?xt=urn:btih:7A215C808B27B0A7EA886EBF105900B69DFC4B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

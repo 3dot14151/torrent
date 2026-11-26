@@ -22,8 +22,7 @@ Savage Soul - Suffering World (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death
 ```bash
 magnet:?xt=urn:btih:D4150CD2BBD78B8B58F8B56265BADAF4897FD9AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

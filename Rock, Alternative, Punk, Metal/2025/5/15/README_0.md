@@ -22,8 +22,7 @@ Samiarus - Reign Destroyer (2025) EP [FLAC|Lossless|WEB-DL|tracks] <Black, Death
 ```bash
 magnet:?xt=urn:btih:3B348A78C919B9355D1CBFA79FDA27F92BC937E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Interceptor - Metal Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hea
 ```bash
 magnet:?xt=urn:btih:C07EB6A1D91B513A0472E301C62CD33EEDAD05F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Elleven - 8030 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:8C3BC78D3E73489639C7E4D4FC1EDC1860B0F935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deep Sun - Storyteller (2025) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:55121378CB5D64E56E9CC99ED535E86633D99ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Legacy of Payne - Spawn of Creation (2025) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:9CA5ADF1CA29B02B7BDF5D94540E702FE0457532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Running Death - Overdrive (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6A4D69F4BA82E4BE852E5DF05F6C78E872791D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Echosoul - The Time of the Dragon (2025) [MP3|320 Kbps] <Progressive Heavy, Powe
 ```bash
 magnet:?xt=urn:btih:92158817B1D90732BA32A5167CD5E408CA7F0B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Concrete Age - Awaken the Gods (2025) [MP3|320 Kbps] <Melodic Death, Thrash Meta
 ```bash
 magnet:?xt=urn:btih:465AE9C894BBECCA750CA529CEBD064D9D1B4191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Echosoul - The Time of the Dragon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:924E1B00644C03115F1A33584E04E2A8C2D689FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ CD1-3 It's So Easy 3:15(   Читать дальше...   )Жанр: Hard RockП
 ```bash
 magnet:?xt=urn:btih:F5CC2888D145527A0C048467BDA64CE16E2321E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

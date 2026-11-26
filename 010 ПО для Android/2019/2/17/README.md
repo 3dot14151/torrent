@@ -19,8 +19,7 @@ Easy Poser – это приложение, которое сумеет реал
 ```bash
 magnet:?xt=urn:btih:37A7AEB6E784759EB09E83104BF32237FCD53802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

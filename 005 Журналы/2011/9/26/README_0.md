@@ -20,8 +20,7 @@ Hi-Tech Pro предлагает своим читателям знания и �
 ```bash
 magnet:?xt=urn:btih:15C1247AFC9DF705B6D720DD1C6CB12D09F9AA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

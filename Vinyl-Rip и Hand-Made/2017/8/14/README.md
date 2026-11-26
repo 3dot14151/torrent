@@ -22,8 +22,7 @@ VA - Мельница - Песни Игоря Николаева (1987) [DSD2.0|
 ```bash
 magnet:?xt=urn:btih:E7CB922EAE8B71F9F5347E5FD3A4BCB4E23CB8AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

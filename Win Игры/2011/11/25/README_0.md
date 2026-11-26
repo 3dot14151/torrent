@@ -19,8 +19,7 @@ Odysseus: Long Way Home / Одиссей. Долгий путь домой (P) [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cave Story+ - игра, которую в народе называют идеа
 ```bash
 magnet:?xt=urn:btih:A76F6737DDFD16E6C75074C8FE4DD06F4255A18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ War Front: Turning Point / War Front: Другая мировая [Ru] (RePack) 
 ```bash
 magnet:?xt=urn:btih:04277144E29AC0AAC0B3C7A70507223D3DEFD1E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

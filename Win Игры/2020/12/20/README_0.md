@@ -19,8 +19,7 @@ Secret City 5: Mysterious Collection (2020) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:74950B62892D5811EC0AE99D999705AEFF1BC5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

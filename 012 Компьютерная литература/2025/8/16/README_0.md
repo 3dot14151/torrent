@@ -19,8 +19,7 @@ DeepSeek – это генеративная модель ИИ с открыты
 ```bash
 magnet:?xt=urn:btih:D12D2184D1B8017E6AC71A86697FF87648734551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

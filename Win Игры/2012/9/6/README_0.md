@@ -19,8 +19,7 @@ The Powder Toy — инди-игра, особенностью которой я
 ```bash
 magnet:?xt=urn:btih:3B03FDEE6425284369D0F2C5970F10FB3E7002F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jo's Dream: Organic Coffee / Бизнес мечты. Кофейня [Ru] (P) 20
 ```bash
 magnet:?xt=urn:btih:B3EB84303D4CEF4908C253CC0EA0BA0CD262CC10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Starfarer находится в процессе разработки, игра 
 ```bash
 magnet:?xt=urn:btih:3F1160293AA4879CBC1915CF8DD6C2350AB064B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ CYPHER: Cyberpunk Text Adventure [En] (Lossless Repack/1.0) 2012 | SHARINGAN
 ```bash
 magnet:?xt=urn:btih:E2478269611D00811401536A0DA7BEFF6190DC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

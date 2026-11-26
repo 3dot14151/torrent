@@ -19,8 +19,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A6DF27A62E334BFDB93BDBC2CE5DC9C46316D4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Revo Uninstaller Pro 5.4.0 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0006F7A7382FC5C0E6727B3B7C7514A8811F23A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

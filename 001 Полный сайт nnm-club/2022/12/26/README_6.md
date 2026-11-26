@@ -22,8 +22,7 @@ Aerial - Semangat Serigala (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 ```bash
 magnet:?xt=urn:btih:A68C750C4E98DD469AD646D76E6F64ABFFC73A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ice Chemicals - Alchemy (2022) [MP3|320 Kbps] <Progressive Metal, Death Metal, M
 ```bash
 magnet:?xt=urn:btih:A61A273D3287EC2FC4202E15CF073ECA7E09A043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Thammuz - Sons of the Occult (2022) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:DE4BF8A20D3DAFF078B5952EF417270879F8819A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kryuhm - Only in My Mind (2022) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:EFAD0D3EB910ADC605B4A2D52130242C8DEAA845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Arctic Winter - CCCXXXIII (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9CF066C277DCD992FD51FB16C39CC09F83E5A503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:CE691D0F707AFB0F5071A3BA7083904F3D4EF2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Clark Terry Quintet - Serenade To A Bus Seat (1957) 2007, Riverside [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:D0F92F6DAABB6359CD96A1C5E442CEC18C802AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ FRAGILE ART - The World You Wanted (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:9D5618778D8ED7D20FDCB66D3471E3812C9E2BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7F30188701CEA1C317B76B3CFDF3327E934BF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Slowfoot - Something Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B44979844AADA19C3A2AC16F911CF512C07631C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Aidan Black - About Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:AFCBD0AED2CEF2261A5393059EF575465A609B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Various Artists - Gods Of Grind (1992) Japanese Ed. [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:78BDEB59FFDB9850E33341AA908684AB088E0BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Andy Lindquist - Life's Too Short to Spend It Raining (2022) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:43D00E2BEDC1967A78818A475A69FA23F7AEDF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A2C2B794D84ACBD66D5FFBF7F1E06C261A242F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ Xenoform - Zombietown (2022) [MP3|320 Kbps] <Alternative Rock, Space Rock, Elect
 ```bash
 magnet:?xt=urn:btih:F53410952D2680C4C6541E6D162A3C387F36E601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ Garrett Smith - Volume III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BAFA955C8171A0F32E42B4383DF65B2DABE506C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ If there is such a thing as Michigan punk, it's Werewolf Jones. Musically, the b
 ```bash
 magnet:?xt=urn:btih:92D0A102A859AAB40C2E723FF350BBF69F84D730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ AnyMP4 iOS Cleaner может помочь вам освободить боль�
 ```bash
 magnet:?xt=urn:btih:8DAF50D9C05155E574F24FD2DBDD2C3EDF9D3737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AE3972E0F020326761ABF88A9D50F51A1E02EFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29345AAECA15546ABF8BC6DF882267396AFF4F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:D551E22310B657DC3C075B8A9FC22E5B1145EC4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:590235EB214E7EF27F749D1585676FC4A6E21E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ NEONIC - 2 Albums (2021-2022) [MP3|320 Kbps] <Synthwave, Darksynth>
 ```bash
 magnet:?xt=urn:btih:071DD5CB8FB5E376495D35EB32BA341834B4628E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDB6A55C6BCC610479D7A7A04B74B5A31F9A00E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99F216F98D10799AF9FD516986059A02E7BEB807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ Michael Kistanov - All About You and Me (2022) [MP3|320 Kbps] <Pop-Rock, Folk>
 ```bash
 magnet:?xt=urn:btih:7855F089C1F5444DC8FA7151647F616674731A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Secret Doctrine (2017) [Ru/En/Ch] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:901984BD34085ADF6AE5AB7E739F85E874241578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Secret Doctrine (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:56481E06840157619BEC706E433F272F0DABBB25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RiME (2017) [Ru/Multi] (1.01) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:4FAEFC829CA39782D717674B4D906B09F7032E28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

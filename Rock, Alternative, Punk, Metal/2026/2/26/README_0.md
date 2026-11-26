@@ -22,8 +22,7 @@ Rob Zombie - The Great Satan (2026) [MP3|320 Kbps] <Industrial metal>
 ```bash
 magnet:?xt=urn:btih:A181CAB14522DB851F71234D1CB77DFE48D49ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gorillaz - The Mountain (2026) Deluxe Edition [MP3|320 Kbps] <Alternative-Rock, 
 ```bash
 magnet:?xt=urn:btih:6D77A3C540924FFB70391862AD6A740A885F0D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Morgion - Among Majestic Ruin (1996) [FLAC|Lossless|image + .cue] <Doom, Death M
 ```bash
 magnet:?xt=urn:btih:B1E758994C116EA9F3F3AC3A9612CA810C51FFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Altin Gün (Altin Gun) - 5 Albums (2018-2026) In Turkis [MP3|320 Kbps] <Anatolia
 ```bash
 magnet:?xt=urn:btih:371F390D7011CD2983D4782E9F9AB16DEF196C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Neal Morse Band - L.I.F.T. (2026) [MP3|320 Kbps] <Progressive Rock, Symphoni
 ```bash
 magnet:?xt=urn:btih:445EEBCD4971561DF2AB87583423AA5ABFEAACAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Black Swan - Paralyzed (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:92F505F2348E60AEBDA4CF178D899E963934E300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Rob Zombie - The Great Satan (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal
 ```bash
 magnet:?xt=urn:btih:59DB40A9B115E64DB01D6DCD81AE4A9FDC6E5C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Gorillaz - The Mountain (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative,
 ```bash
 magnet:?xt=urn:btih:EF7BB14AB82387FCDB09A0A9909C47F0DC2BE89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Joel Hoekstra's 13 - From the Fade (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:D45B5F0925F668FB426796511D8420441C1C7E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ BlackRain - Orphans of the Light (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Mel
 ```bash
 magnet:?xt=urn:btih:F86B5ADC6DA94CF4D4E1D113D73D1C8067C78218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

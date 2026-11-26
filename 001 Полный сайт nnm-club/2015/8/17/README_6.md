@@ -22,8 +22,7 @@ Willem Breuker Kollektief - Bob's Gallery (1988) /BV Haast Records/[FLAC|tracks+
 ```bash
 magnet:?xt=urn:btih:772124C257BE89AEB7FED6B1D2558E14EFA9C47F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disparition - Transmutations (2007) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Experim
 ```bash
 magnet:?xt=urn:btih:13E2241AD3457A25C0313134D4FFF63C27E12048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Lounge Chill (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:BD8BBFF17A4237D9F4495C626343554E0702AFC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Tales From The Mental Asylum Chapter 3 (Mixed by Indecent Noise) (2015) [MP
 ```bash
 magnet:?xt=urn:btih:88049C3C18149E94257D9F466F7FC38645C44736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Joseph - Stoned Age Man (1970) [MP3|320 кб/с]<Hard Rock, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:DE5896553E39676A2882CB894666A8BA99629534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Plenty Of Nails - Aus Schatten Gerissen (2014) [MP3|320 кб/с]<Doom Death Meta
 ```bash
 magnet:?xt=urn:btih:CD64FA218C861E0CEF3CBFFEE51E065C5DDB61CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09F93C64F86B436C8D838C4D436D63A779BEA4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FE418F9673316DFD1572EE5EF28189F0CEE95F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Thunderbird — 12 декабря 2004 года появилась беспла�
 ```bash
 magnet:?xt=urn:btih:7B62D58A3851BCACA2267EAB09DEC852FBF888D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20E744B8DE3E8B78B632D61884AAD618DDCDD106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CED5C2E5BC3D64E60D9566DE603700FE422533F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9FCEEE34653ED714079517BF3511FAC0F5F4222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ XviD4PSP 7.0.165 [Ru]
 ```bash
 magnet:?xt=urn:btih:34FC7B68A2DD9308AFEF2A1A640776A69AB27083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ David Helpling - Sleeping On The Edge Of The World (1999) [FLAC|tracks+.cue]<Amb
 ```bash
 magnet:?xt=urn:btih:5FDFDF091C47DDD65D85D9DB4A1EF661904A961E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E478008511FD862B53BC9140F5DD865C7FA793FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Alpine - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative Dance, Indie Syn
 ```bash
 magnet:?xt=urn:btih:DE169098312B4DA036753A8B7D7F497DC6903248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ New Politics - Vikings (2015) [OGG| 411-540 кб/с]<Alternative, Indie Pop Rock
 ```bash
 magnet:?xt=urn:btih:EE18950682F554F9DEB8EF8E96438B983C4D2028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Orpheus Omega - Partum Vita Mortem (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:E1639693F667FC2896A435BFBC90FC1E3732D072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ XviD4PSP 7.0.164 [Ru]
 ```bash
 magnet:?xt=urn:btih:F95B82A97D0F8CDDFEC86AD18423C66D5547445F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Flimmer - универсальный беспилотник, способный 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65B11BA65F46100363742D4C6405D9E229C89068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABE94F116AB2E1235BA4027E742CBE3641C076AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80DCA4C8FFEE7729537DAD42B7CEDA45D79DB963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ Angels & Agony - Monument (2015) [MP3|~245 кб/с (V0)]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:FC316AE2C06662263561D0AA80EFCD778165AD0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Grace Potter - Midnight (2015) [OGG| 461-534 кб/с]<Alternative, Indie Pop Roc
 ```bash
 magnet:?xt=urn:btih:CBCA56AC12EC89F4152F62471758D7A1233F37C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA1148DC34D66550FCBB5C982DF0C1BED00EB93C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

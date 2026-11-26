@@ -19,8 +19,7 @@ Pilot Brothers 2 / Братья Пилоты 2: Дело о серийном м�
 ```bash
 magnet:?xt=urn:btih:4DD49E9C19EB08E7456CBBDCEEB26E29E9B5E42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Preston Sterling (2016) [Ru/Multi] (1.1) License HI2U [Episode 1]
 ```bash
 magnet:?xt=urn:btih:1A5F463EE76708AA21142CBEAFC5EE83BB793035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Pilot Brothers 3 / Братья Пилоты 3: Обратная сторона 
 ```bash
 magnet:?xt=urn:btih:B9153754E810F9710653FFB1E106B81175B461CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Rage of the Battlemage - динамичная hack'n'slash RPG, где вы ок
 ```bash
 magnet:?xt=urn:btih:1D16F459B112B9713D3D6DABB9FCFEEDFA624E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Riptide GP: Renegade (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:57B0727AAE598A1EFABB6209C679B1A3B5157374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Day of Infamy — шутер от первого лица, действие ко
 ```bash
 magnet:?xt=urn:btih:D020F9B4D77D6545413C315EBF3E25892B61BCCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Warhammer 40,000: Space Marine (2012) [Ru/Multi] (1.0.165.0/dlc) License PROPHET
 ```bash
 magnet:?xt=urn:btih:720E4274C3CC52A370F947E18309BBA0B0BDB950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) Repack =nemos= [Complete Edi
 ```bash
 magnet:?xt=urn:btih:FFF9877B121D2FE1A107DB9054410447EAB12E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

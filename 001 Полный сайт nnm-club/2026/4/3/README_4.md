@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:65C86D2420579775D5F1B19794CF69C0F6E9C781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:67FC17ACA38AA7D499A53560B4B50A745909775A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ VA - Erotica, Vol. 4 (2018) [AAC|~313 Kbps] <Electronic, Chill Out, Lounge>
 ```bash
 magnet:?xt=urn:btih:E552044C5CA1A1521224310D5F4149524BF8225F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Erotica, Vol. 1 (2014) [AAC|~326 Kbps] <Electronic, Chill Out, Lounge>
 ```bash
 magnet:?xt=urn:btih:720A87CCC4F78870BB7D9577176399D192DDED88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DF58ED6F4E2E4DF449B51075D6B8BFECEB17A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C1FD09556B05F91176D6CA1A16250457E688F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC23322D17766691E5AA5B52E81A7EEF3290F5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Erotica, Vol. 5 (2020) [AAC|~314 Kbps] <Electronic, Chill Out, Lounge>
 ```bash
 magnet:?xt=urn:btih:41A27BD138EBF8FB675D43E04926E0D837E9AA8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29AAD596E93815949363599CB203D2972E391A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Kelly Marie - 2 Albums (1976-1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 ```bash
 magnet:?xt=urn:btih:D18CF698751A3856B6BB48956A6887E335B9E7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Larry Coryell & Philip Catherine - Jazz at Berlin Philharmonic XI: The Last Call
 ```bash
 magnet:?xt=urn:btih:4C79BC16F471B4C7F3870F950964557E85AF8C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AF60428F6F1924395967DC9DC2FBDFD35690E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D69CBB05716B464B8A5DC061FFBF34B7EE3B7410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Nu Cool Covers 1: Pop Classics ReStyled (2017) [AAC|~337 Kbps] <Lounge, Nu 
 ```bash
 magnet:?xt=urn:btih:654B099412190DD094D918AB0CBEC8293CD179AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Little Violet - Code Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz /Swing>
 ```bash
 magnet:?xt=urn:btih:E59AAB4F3E797AF1B51674AA27EEA249BFB698FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9C16260DDA296AA9E73B67D443CE44A7AD4689E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DC4488005D0A3E3C58F41E23D5D5DE0B278F349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DED8DEED7638C8434CE0AE74E9C1FCC115F03608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 из 12] BDRip 1
 ```bash
 magnet:?xt=urn:btih:3D643E136DF0807DFFC004CBB27B0E6A81B31E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Neil Young With Crazy Horse - Barn (2021) [FLAC|Lossless|track+.cue] <Country Ro
 ```bash
 magnet:?xt=urn:btih:27CF0A93CCA9270153E66C7B80D0A1530E30B904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:482BD9477448B1FFFE370178F686809A2F040A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ VA - Erotica, Vol. 6 (2021) [AAC|~322 Kbps] <Electronic, Chill Out, Lounge>
 ```bash
 magnet:?xt=urn:btih:F90F0A24C6F87826356B5C7B7573E00B04A28E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34F872C2BFEE6E5F854BF28ED3AC4500AA23EF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149A90C116801B8AAC08DA42FC1C53F56B17F0AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ Back Arrow | Бэк Арроу [2021, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 ```bash
 magnet:?xt=urn:btih:010E41BD42B9BF1DEE3A8D39D278B30F07ED71A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E670D3AF750442301D184E69A35CA0FE1B742B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADFBC0CD04F9ABB075D5BFCC1D059033AA4E7818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ TagScanner — это мощный инструмент для организа�
 ```bash
 magnet:?xt=urn:btih:1D1792A1D5E2CC52211FF6EA0205774D6CCE8C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Spiritual Beggars — шведская стоунер-метал-группа и
 ```bash
 magnet:?xt=urn:btih:972DAFDFDF928A69567A63DD856E723F05545731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Sleepy Shores(   Читать дальше...   )Жанр: Sound-Alike,  Pop 
 ```bash
 magnet:?xt=urn:btih:461FB68A2AC46D39C3EC800C31D0F264E112D983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 I Know But Tell Me No(   Читать дальше...   )Жанр: Folk, Coun
 ```bash
 magnet:?xt=urn:btih:3C791071D64528095042888568383B74BC4180EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Connie Smith, Dallas Frazier - The Laying On Of Hands(   Читать дал�
 ```bash
 magnet:?xt=urn:btih:BCEA3F83873A7725D4CE049C6D9B6696A1186D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

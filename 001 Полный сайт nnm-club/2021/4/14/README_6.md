@@ -21,8 +21,7 @@ Red Nichols - Wail Of The Winds (1939 - 1940) 1998, Hep Records [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:754DB80316719B6600179D8D59BD2C295AFC45C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ PDFpen Pro - приложение для создания и редактиро�
 ```bash
 magnet:?xt=urn:btih:83CE014DE20F8087FC9482995CA2578CF43B3EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ ToothFairy поможет вам перейти от одного выбранн
 ```bash
 magnet:?xt=urn:btih:32E436CB886AC8A3430C048F2A6601F25B1A4314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ WinX DVD Ripper Mac - конвертер DVD дисков, в том числе 
 ```bash
 magnet:?xt=urn:btih:CB0CFC3048987D234E38D6511D7DC1065AA2DF04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Blow Up работает с Photoshop, Elements, (   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:FBBF4F551BE14CE53EBA7CE2205F2B64D4FFA5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Image2Icon Pro - простая в использовании утилита д�
 ```bash
 magnet:?xt=urn:btih:E6F152B09AFD0F410072CF9F860D7E7A30BABE6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Snap Art 4 - этот плагин предназначен для превра�
 ```bash
 magnet:?xt=urn:btih:6D9127E51D497CEF4936497538F804B1A73F56C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ CD - 1 - Pansarfolk (Svitjod Edition):
 ```bash
 magnet:?xt=urn:btih:50BF3254F7FDAEDD39A229F193B1AF7F28693CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ MacX DVD Ripper Pro 6 был создан специально для польз
 ```bash
 magnet:?xt=urn:btih:DDC0A0B959652661078E2A97F8E9CC42C7352BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Exposure X6 v6.0.6.211  [En]
 ```bash
 magnet:?xt=urn:btih:9A8A2937FADAA9439525A8A2E76C183BC969A3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Dominoe - The Lost Radio Show (2018) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:106A70B3F61B98126CA442144FF2F6C0B416B7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ O-Wells - Subfriction (2021) a.r.t.less [FLAC|Lossless|WEB-DL|tracks] <Detroit T
 ```bash
 magnet:?xt=urn:btih:583D330E84D226D421920D9F86F5B3A8E6582AF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Fugu Quintet - Interweavement (2021) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, D
 ```bash
 magnet:?xt=urn:btih:6CC1CC3B1BAD8429AF7865ABF7F8A8C6B5CEA01F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5F1DCBCEA249414F0E5F9FDA7C761B6E72E7EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ RAC - RAC_UNRELEASED (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Brea
 ```bash
 magnet:?xt=urn:btih:E462DC1B89C9E1163E7C351AB5DAD7856495B55F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Lyrus - Found In (2019) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfi
 ```bash
 magnet:?xt=urn:btih:DCDECA31D57D4342A638C3AB7C86C6B73DC2116B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC91FEC5A888CE2A6A256DA49B31F4E16732EEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ DjVu Reader Pro предельно простое в использовании 
 ```bash
 magnet:?xt=urn:btih:E1EF645C9700B344839D38D6BA51D3DA56ED553B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Star Wolves 3: Civil War / Звездные волки 2: Гражданская
 ```bash
 magnet:?xt=urn:btih:CD264FFF76A78BE944B3ABDC5C0D2D3E8DAC59BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Grand Theft Auto V / GTA V [PS3] [FULL] [Ru/En] [3.41/3.55 ONLY] (2013)
 ```bash
 magnet:?xt=urn:btih:87E343CAB069F602068106D97D19E8AB2E69359D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Grand Theft Auto V / GTA V [PS3] [FULL] [EUR] [Ru/En] [3.41/3.55/4.30+] (2013)
 ```bash
 magnet:?xt=urn:btih:C119EEA0E8042F9EDC4E96C2FEA8DFEA452E80A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:606B35D33FE49C85E5D408ACD4F21A0B69931532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5B7BD5927D8C6DDABEB006C4DFE6B579B41E7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19951BDC93E9BEA34FB3CE364454EAA7E478206C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45ED4E3B7053EE32BD91229F5DFDFB3274318D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

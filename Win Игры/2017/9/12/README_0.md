@@ -19,8 +19,7 @@ Bloody Zombies (2017) [Ru/Multi] (1.0) Unofficial CoolGames
 ```bash
 magnet:?xt=urn:btih:178E8D8C736C95084A9EBCA9567F3D0036D4DD23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

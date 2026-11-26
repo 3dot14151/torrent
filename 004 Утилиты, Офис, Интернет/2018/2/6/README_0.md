@@ -21,8 +21,7 @@ PDF Combine легко склеивает несколько PDF файлов в
 ```bash
 magnet:?xt=urn:btih:DFF0EAC431EA2E40D824D0FCC8C30A3DF5406474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

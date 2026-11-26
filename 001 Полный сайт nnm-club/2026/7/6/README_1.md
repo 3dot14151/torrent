@@ -21,8 +21,7 @@ Dominum - 3 Albums (2023-2026) 5CD [FLAC|Lossless|image + .cue] <Power / Heavy M
 ```bash
 magnet:?xt=urn:btih:820BD5784B12C7FEAE09EE21E4E086C9BB15B7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ GilT - I Saw Myself In The Black Screen (2026) [FLAC|Lossless|WEB-DL|tracks] <Al
 ```bash
 magnet:?xt=urn:btih:2005545FFF0EB38EAF15F83D40DCFF94024B6747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE8D3D63C1DDC94C3F96E875D4B5535699DF401C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9977728D5B1654E4A0B40BFF5ABD8A0F41479CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8A0E0B62D50F764A65908DC4BA73A978CDC23F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BA8D1FB5EC4BED281B37AF1A8C86352929A3956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ DISQUE 2 - Summer Sessions IbizaЖанр: Chillout, Lounge, Deep-House, Downtemp
 ```bash
 magnet:?xt=urn:btih:C5BEC945DD6C2736EA57D89B6C155153FAC3F7B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ DISQUE 2 - Summer Sessions IbizaЖанр: Chillout, Lounge, Deep-House, Downtemp
 ```bash
 magnet:?xt=urn:btih:75CFB91920C24FBD90D8B3AD304AE6D6753C9E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDB913769D04117F9381B8FEB1592E71F5D1EC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ AnyDesk 9.7.9 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:76161C1C6018229422F0227EE71FB2DDC0A4A262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A09CAF014963EB8C79ADC4BADDF5C296CE311805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77F597D4C8DDCAC1944550A9E6F223ACF67E49CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE8C92760B93DAC1235CE4898D6674921EE3406A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9C0713EA754840D50D07782F7A841491C4815C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32A3D0DE4E56C54716B65D9C3969A385E01B50F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9977F54031D1403E070405F9D012EAF30FFE93B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D03269B4F7E78451AF94EE20592CD379FA090F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9D62396C2E6CC113500C13EB1F701E910239817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ Missio - Love & Heartbreak (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropo
 ```bash
 magnet:?xt=urn:btih:269F6123DBEDD30E16A6725FE1A57B491C1EE503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ VA - Trance Fusion, Vol. 20 (2026) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:818B958C50DF4A244118561F23AE0C98BEED3A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ John Lennon - Love (2026) Meditation Mixes [FLAC 24/96|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:F5E64727A1D97898FB31018CD88F3062B615EF0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ Daniele Gazzarin - Favorites Collection Part 16 (2026) [MP3|320 Kbps] <Country, 
 ```bash
 magnet:?xt=urn:btih:C4E44C91C7CAEDB5677E4D8F8F966E451E57C00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ VA - Euro Hits 2026 vol.-1 [MP3|320 Kbps] <Pop, Dance, Electronic>
 ```bash
 magnet:?xt=urn:btih:08D8664EAB73D34ED9F822CF33B4D46634837622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ Atomic Heart (2023) [Ru/Multi] (18319896/dlc) Repack Let'sРlay [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:985EF97CD37478E2DFB6A108EE65C7887100E422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E1D41B4A2927CECE162669911FCA906E93DDB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

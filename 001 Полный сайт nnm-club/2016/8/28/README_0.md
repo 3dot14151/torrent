@@ -21,8 +21,7 @@ VA - Caribbean Beach Lounge Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:ABFCCFCD80C592A4C3C383F0D770C5FE1639B9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Advanced Modern Mood Music Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:3C322E403396525764E79604B4D9509F7D41CB69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Advanced Modern Mood Music Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:96A2730CC2FEDB35C8B6F491612B1C5A7CDEC48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA88AF5D1F7DFC318F3E1CD638C698514DA2FFF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Advanced Modern Mood Music Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:41F332CCF3D23620114879A1058F90E8C0C9B3A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EC8C27EEAD91109F1A6D45BC1458794F2461B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69AFEB0A1B2F87FF711F3F439A48C5CA1B9DE521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E0F91C44965CCCF97AD8025A74BC4B24BB51CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ GLXY - Digital Soul (2015) EP [MP3|320 Kbps] <Drum'n'Bass, Liquid Funk>
 ```bash
 magnet:?xt=urn:btih:4E793D719EEA9335748B84C860F4886578215C79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Clearview - Программа для удобного чтения электр
 ```bash
 magnet:?xt=urn:btih:CF22D10A76C01C9ECE02B7BF9EB4D36D60B8B4B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - Orchestral Trance 33 Beautiful Emotion (2016) [MP3|320 Kbps] <Trance, Uplif
 ```bash
 magnet:?xt=urn:btih:7F3A6364EDD635EB8A94C9C45B4C272245E9CC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBDA99EE86AED30E03231B96E470B4069B13D940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C52E943EE173CA90780F746AE6B331DC8DB4B77E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DAA8C8AA9F9C9C76B0072B49E522532C36FE899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Furykane - 2 альбома (2011-2014) [MP3|320 Kbps] <Alternative, Nu-metal, R
 ```bash
 magnet:?xt=urn:btih:92CFFA7E5AC8DC60936B801D8FBB1EE14ECA1B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Verizon IndyCar Series 2016. Firestone 600. Texas Motor Speedway. (2016.08.27) H
 ```bash
 magnet:?xt=urn:btih:B1BCE1A87702A8DE9A748448338C4E376381185C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB16410B0995DECE46C10DB1C39E700021A51E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ VA - Trance House Season Fillers (2016) [MP3|320 Kbps] <Trance, House, Progressi
 ```bash
 magnet:?xt=urn:btih:A77030190AD7EF42BCB7ADD8CB106FE4E69134C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ VA - Chill Crossover - The 21st Century Soul Music (2016) [MP3|320 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:887F30D3E4711FC7E7D2747A7070200AE7B64DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ VA - Suanda Chillout - Mixed By RIB & Seven24 (2016) [MP3|320 Kbps] <Chillout, L
 ```bash
 magnet:?xt=urn:btih:F0CB9631C3EDEF38DBDC64C8240DBF27D99372D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2F571CF72EDF43EF8385172D3E26E89FB17AE11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ VA - Absolute Dance Summer Party 2016  (2016) [MP3|320 Kbps] <Dance, Club>
 ```bash
 magnet:?xt=urn:btih:EB5CAFBF45204D4A5B9B4D9877748DB3909A0DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Dirty Dishes - Guilty (2015) [MP3|320 Kbps] <Indie, grunge, post-punk>
 ```bash
 magnet:?xt=urn:btih:9A6D6B590FFB74541D74B9EC21AC8518690F9558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Dropbox 8.4.21 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F6A974AD8452CB4CE551285FA9023C5333D2E4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:192D7A2B53E7ED6E2E3CC34E8AA4FE7AB44CF1F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FAB5D927E472C62717ECC8D6B8161F6D36A6337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

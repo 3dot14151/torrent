@@ -21,8 +21,7 @@ Demons & Wizards - сайд-проект вокалиста Ханси Кюрш�
 ```bash
 magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 ```bash
 magnet:?xt=urn:btih:A6D7C9AEBC0D4384A673530831E5769B0CBA5784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

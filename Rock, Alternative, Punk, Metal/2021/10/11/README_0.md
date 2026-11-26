@@ -22,8 +22,7 @@ Black Sites - Untrue (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progress
 ```bash
 magnet:?xt=urn:btih:A40452744136311E2E980FC7673EF8645A1D1EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Aryem - The Bird's Assembly (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:8451FFE2D30891303F3FEA4FDCDEF10DA4E9E478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Reaper's Revenge - Versus (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A89EEAF82C449BA2C4D5D88C56F5A19F44AE25D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jacky Chalard - Avec Un Pied Dans Le Rock 'N Roll (1977) LP [MP3|320 Kbps] <Elec
 ```bash
 magnet:?xt=urn:btih:9823C331CCF9C415EF1C29FB5D8752A44440AB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Astirium - Время Перемен (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:8328CB35B31324AD35E9F51450EAB0EA0EC8DA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64055E0FD9877894441F6BD056E18C41ED74F19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dream Theater - A View From the Top of the World (2021) [MP3|320 Kbps] <Progress
 ```bash
 magnet:?xt=urn:btih:8D38FF2E9DDA020F9F781067456FB8EF29B941E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

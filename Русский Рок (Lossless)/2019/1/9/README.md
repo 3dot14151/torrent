@@ -22,8 +22,7 @@ Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Pos
 ```bash
 magnet:?xt=urn:btih:69104DCB3E86570E446F030A24A9C7FA527A24D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kauan - Pirut (2013) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Folk Metal, Po
 ```bash
 magnet:?xt=urn:btih:A1E46CB3C916DEEF491243D6D9E2E45677C61C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

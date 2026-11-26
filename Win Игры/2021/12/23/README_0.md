@@ -19,8 +19,7 @@ Scarf - это приключенческая игра, сочетающая г�
 ```bash
 magnet:?xt=urn:btih:DD49CC31442112D60888378E3B85B2A6D41B263B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

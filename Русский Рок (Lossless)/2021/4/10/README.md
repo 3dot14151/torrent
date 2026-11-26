@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:FB92C36CB7049993A1CD44840243E2C311A0A842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lyrics by – В. Дюнин/ Music by – Ю. Антонов(   Читать д
 ```bash
 magnet:?xt=urn:btih:DFD21AFAE3591B1246A2699D4760482A16054F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

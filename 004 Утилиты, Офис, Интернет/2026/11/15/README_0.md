@@ -19,8 +19,7 @@ KillerPDF — это бесплатный редактор PDF-файлов с �
 ```bash
 magnet:?xt=urn:btih:4AA33CDBCC0D1FD45F37C057A25E7477A441E605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:639DB676AA603189118FF1D4C03D1BEC8905E73D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:A44C9D46A47FE54C4681FC996E528744C36D2BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ XSearch — это инструмент поиска с большим коли�
 ```bash
 magnet:?xt=urn:btih:6E485C8A776D867D515BE553780B40AF976F29AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Catsxp — браузер на основе Chromium, сочетающий пр�
 ```bash
 magnet:?xt=urn:btih:9F9192224C77149D6B78F867F654DB32361AAB69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:035A24BE5BCD8190BF019D2B01C5F82C4DB344C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Rain Cleaner находит, чем забит диск, держит драйв
 ```bash
 magnet:?xt=urn:btih:9FA9A2715AF7F0F12F26AD858EA1E156281CECF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

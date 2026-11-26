@@ -22,8 +22,7 @@ Sarah Where Is My Tea - Desolate (2011) [FLAC|Lossless|WEB-DL|tracks] <Hardcore,
 ```bash
 magnet:?xt=urn:btih:D5EADA6A7F0CB1C6E608E9F117301426C43B4510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sarah Where Is My Tea - Love & Honor (2013) [FLAC|Lossless|WEB-DL|tracks] <Melod
 ```bash
 magnet:?xt=urn:btih:D15F9C21EB63E5D12AF21910DD9AABE91C0360FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Javascript является языком Web-программирования и
 ```bash
 magnet:?xt=urn:btih:D8C38F4AB440A742D9BDD9AFBC70760298DE7E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

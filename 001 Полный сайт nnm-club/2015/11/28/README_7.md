@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4B0C9387FCADA090E61C6649E065DEE60883B73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E81F1C2140217ECDF47B81D18EBBE9212BC9FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46BDA2CD3DA85E1DBF26CA4327AFEC8FA8ED2866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Total Commander PowerUser 66 Portable by HA3APET  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:468A89B30CC3E3BB32F63B2950992387F6C52F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1907836C0337E4B21B0FC899F92E77A262F20ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Tom Clancy’s Rainbow Six® Осада – новая часть всемирн
 ```bash
 magnet:?xt=urn:btih:F7E32AA35C4207F15204BE7F9BF554709A900E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ EXIT TRANCE PRESENTS (EXIT TUNES) - 442 альбома (2003-2015) [MP3|128-320 
 ```bash
 magnet:?xt=urn:btih:0C6DB7E1C3DE4AADC251AAD743EB78491D47F28E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.0.4) Re
 ```bash
 magnet:?xt=urn:btih:0083677BE634F13FA668510BED9A65018ED8D5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Microsoft переименовала шпионский сервис DiagTrack �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC7BB188ECDFE6C27B758895BB3241D1580543F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:9521309F1DFAC7A0C7F9E3747E72CB93B02E9DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ StarCraft II: Legacy of the Void (2015) [Ru/En] (3.0.5.39117/dlc) Repack R.G. М
 ```bash
 magnet:?xt=urn:btih:836BA0E6C19C90538B062531762B4CBC0136D582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

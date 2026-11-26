@@ -19,8 +19,7 @@ Recuva 1.53.1087 Free [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:24570F554C88FFC96FFC88281814C49C34FBD28C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

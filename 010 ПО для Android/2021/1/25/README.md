@@ -19,8 +19,7 @@ LocalCast - приложение №1 для видеопотока на Android
 ```bash
 magnet:?xt=urn:btih:297142300D9240A32DA2F0479908E7A05F2F1D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

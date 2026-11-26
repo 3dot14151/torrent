@@ -18,8 +18,7 @@ Wallpapers - Toyota  Nissan [JPEG]
 ```bash
 magnet:?xt=urn:btih:1419EF13B2070D4C9220E05BD7275EB39CDD611C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:880CC2C20440CD505478D08F5C6CF9414427BA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Peru - Macchu Picchu (1981) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:68AE579A782D945930D9A4719B781CE2EA25D28F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Budka Suflera — польская рок-группа, основанная К�
 ```bash
 magnet:?xt=urn:btih:12AEDDA5C300C5311286EABDF021A434D0B07EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ SilverCast - Имя Ветра (2014) EP [MP3|320 кб/с]<Symphonic/Power Metal
 ```bash
 magnet:?xt=urn:btih:8F26AFE741A132E04AFA63F2FB0794D4225328E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5CC9E7A98A571F438D8166470D1517BCDACCBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Discovery: Наука магии. Книжная закладка / The Magic of
 ```bash
 magnet:?xt=urn:btih:32A1B30119AFCD2170C322DCB02A25BCBBC74732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Kaspersky TDSSKiller - это утилита для обнаружения и у
 ```bash
 magnet:?xt=urn:btih:106D3512574CFAC744E9BFAADDB5BFF3C01704A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0FED91B853BF037D7F458B534918DDC1EBC7A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Wallpapers - Psychedelic [JPEG]
 ```bash
 magnet:?xt=urn:btih:3A3919306FB638C82FE2DDE512CF95DB1A747A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFA37C96747BEFA83A63DC773B2651E427DF5D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:3F61893A5F03DFF91E27BF10DE017C9705A3E0E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Andy Moor - Breaking The Silence Vol. 3 (2014) [MP3|320 кб/с]<Trance , P
 ```bash
 magnet:?xt=urn:btih:11E8D2B5DB9E4D5276ACE583BEA3EB3296E6450C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:538797EDCCCE9C40D4EDC1C7576699D9B38795ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D59383E8A803D386E0B2847C873154C58CA99FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E558FB2136CEEEFE398EDC6B8921F2A6763F4AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Aly & Fila - Quiet Storm (The Remixes - Extended Versions) (2014) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:99F7293F40DF38D50ACED42DA7ECEEDA456AD23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ Blue Sky Black Death - Skull And Bones (2012) [FLAC|Lossless]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0FE1B57468248DB31C3FAB19C7E285957BA98318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +535,7 @@ Opium Project - 15,7 грамма (2011) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:B22396735C63B51E1FEDCC89D7631C134244358C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +569,7 @@ Damon Albarn - Everyday Robots (2014) [MP3|320 кб/с]<Alternative Rock / Britp
 ```bash
 magnet:?xt=urn:btih:11DCCE0F1DBCD83DCD521DD5D5E7AE3C5A9B5C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +603,7 @@ Evil Masquerade - The Digital Crucifix (2014) [MP3|320 кб/с]<Heavy Metal / Po
 ```bash
 magnet:?xt=urn:btih:294E6858C7289DD46174AA869897AC77434147AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20F113CDBD71F1094FAE67E8DB86030D492FFFAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:812CD6986CD34F8D91208382694D132CF7E5D1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7DC2A0BEE5BCFFD522FBEF2F10BE7ADB46D3FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +703,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:7A126EDE3271965429C77955E3E3978352AF2379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +737,7 @@ Mind.Divided - Leaving For Eden (2014) [MP3|320 кб/с]<IDM, Ambient, Glitch>
 ```bash
 magnet:?xt=urn:btih:2C9ECB078C65F0EE4B6CD46FB32939DBEC33E3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

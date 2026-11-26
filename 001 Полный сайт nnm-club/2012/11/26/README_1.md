@@ -27,8 +27,7 @@ Secret Sphere - Portrait of a Dying Heart (2012) [WavPack|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBB887FF5CF3F72B448ECF16418CF64510CD60FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Tiesto - Club Life 295 (25.11.2012) [MP3|192 кб/с]<House / Electro House>
 ```bash
 magnet:?xt=urn:btih:6300CA982C97DE14F402E0013C490B68F911EF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ OS Wallpapers (25.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:CA23D0BC4ACFFD5DBF310AD9AA3B2139EB7DBE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Зарубежная Авто Дискотека (2012) [MP3|256 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:673FDF3920D0EE05840DAF7FBA801B66E9B6C0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A44D8F3A448C5735881CD19CF1E33E49289617BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ VA - Клубные Новинки Vol.185 (2012) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:52FDF8C3C12AFA851C6605C91B36FF2C1B2E3FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44D13D73302DC2AC90D9E1D81D73D863A00F4EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:212BB1E45D8BEC9D482A93168723A6065C38E5FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ DJ Feel - TranceMission 2012 years birthday (22.11.12)[MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:31AAE99269F01645CF86669E7D58E84E2D77F254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ Little Mix - DNAЖанр: PopПродолжительность: 00:04:02
 ```bash
 magnet:?xt=urn:btih:29294540187138A69240B24FE594E1E760A99E3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12F1DD39AB8F39DA787D74F5469B4F7FF10AC874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ VA - XXXL Звёздный удар: русский сборник (2012) [MP3|2
 ```bash
 magnet:?xt=urn:btih:339E38B61AFA847E81A8E17B1FB81B007F81508E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8878D17AFE35176C5F7DBA5F135D4429D5FE370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ VA - Любимой, Дорогой, Единственной!: Зимний В�
 ```bash
 magnet:?xt=urn:btih:B9D051392FA8ADAF614D9D60AAABB44D75EDE4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85A110E297A536440020C7E55B3CF77E9EACD992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ PDFCreator - бесплатная программа для создания д�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ Fantastic Wallpapers (25.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:2A60A6682ED730DFC5E0A6153CC2A43FA671EBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ PicPick - бесплатное приложение, объединяющее в
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:583728A1E2EA94E4F956D7231DF2D368F3002601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ Cпиноруб / Backslasher (2012) DVDRip [EN]
 ```bash
 magnet:?xt=urn:btih:2F5BF38A4DB40D056A2F36BB5B0E46BE53C2F75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C6D5EE45FCD7B03DADB2A5555598FA8144325DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +640,7 @@ DVDFab - мощная программа для копирования DVD и Bl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Minimalizm Wallpapers (25.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:4949967C6432796DC46F1E2EB5989648E576D7A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6CDA58D26599D4FCDC9B35C85AE45ADC1683CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01EC897FB6812D1187F27592F36F083711367CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

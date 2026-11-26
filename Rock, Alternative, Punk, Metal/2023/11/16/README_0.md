@@ -22,8 +22,7 @@ Plaguemace - Reptilian Warlords (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 ```bash
 magnet:?xt=urn:btih:F8FBF9E31741FE8BA441A8C24F1E129A8ACE0055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ DGM - Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:0F089231537C351A989C937F4FEA8F051E9BFA73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Earthside - Let The Truth Speak (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 ```bash
 magnet:?xt=urn:btih:54E5E6E8E5BAD432F0D4AD66CC56E3B06C76FE6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Signum Regis - Undivided (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Met
 ```bash
 magnet:?xt=urn:btih:219303EED145CD12D0E0C96352535C08848658DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Flower Kings - Back in the World of Adventures (1995) Reissue, 2003, Inside 
 ```bash
 magnet:?xt=urn:btih:888301E47C06651E968E6D50246A8B8065C6AE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Nita Strauss - The Call of the Void (2023) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:D41D1C1FB89433F44A6C7A1A64641ABA16F3B156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:DA646A2B2AE8A1D6B013658B6BEDC1D379172231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ McHale's Permanent Brew - Lesson's from the Darkest Storms (2023) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:8411E0CEF88EAFC122568D99D6D693F6D60F0455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Lacey Sturm (ex Flyleaf) - Kenotic Metanoia (2023) [MP3|320 Kbps] <Alternative R
 ```bash
 magnet:?xt=urn:btih:DFAAC92523C78EA22406F0172440051C062C0155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

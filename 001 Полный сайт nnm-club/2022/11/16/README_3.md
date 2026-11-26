@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F80A2EEE9A46C89E8B3E5FC4156DA8A0BC1D39F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:B2AFE08C40954DDDCA3120D1FFFFB797C3B99EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFF86FED8E1CE01F5FC1696C3145CE1A42A8C294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FBFC93880A34B6B96579DAF748BD89056792142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Steelrising (2022) [Ru/Multi] (Build 9770876/dlc) Repack Other s [Bastille Editi
 ```bash
 magnet:?xt=urn:btih:21E99EC6E4DB29A7819E51AF0BFB0137C0485B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2184CFFE45AB2A5179C91C05B159922220B6D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Microsoft Office 2021 for Mac LTSC 16.66 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:41FD0D77BB253A6EABAA472177AF8754E9BC424E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD0DD7BC63162CF8BDCF5214CC2125699B77C132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:597F3C87E6A1603A7B1A55AECE666D18EAF38164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ ESET NOD32 Internet Security - комплексное антивирусное �
 ```bash
 magnet:?xt=urn:btih:C854F5B712A41F1C8ADD32CB907C653D7206234B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Skillbox, Роберт Кубус | 3D-моделирование в ZBrush с �
 ```bash
 magnet:?xt=urn:btih:65C6598B25E6A395EECA8C508BB2220E7A34736B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ ru-ru_windows_11_business_editions_version_22h2_updated_oct_2022_x64_dvd_d03eb37
 ```bash
 magnet:?xt=urn:btih:FC22C1B0369CA757126D4CD45EFC3C92A6DBB318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Windows 8.1 6.3 (Build 9600.20666) (28in2) x86/x64 by Sergei Strelec [Ru]
 ```bash
 magnet:?xt=urn:btih:6D338D018EA14CB476F96C7217C6F15B09B57692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:9147D8BA0BD9E684442E657A994850EE7E2EB514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ Darksiders III (2018) [Ru/Multi] (1.4a/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:5DF04ECB2F0BC71189F51ED811BFB7CA9B42C73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ Windows Server 2019 LTSC, Version 1809 Build 17763.3650 (Updated November 2022) 
 ```bash
 magnet:?xt=urn:btih:A8D7005BEF3D23FBCDDC8D79F82A97B63C4E6E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ BloodRayne 2: Terminal Cut (2020) [Ru/En] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:729F6A9D870CC49E1F8365B55D772A328EC5805C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

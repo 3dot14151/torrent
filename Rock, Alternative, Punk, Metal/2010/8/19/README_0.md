@@ -28,8 +28,7 @@ Filter - The Trouble With Angels [Deluxe Edition] (2010) [MP3|320 kbps]<Alt.Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Peter Gabriel - Дискография (1977-2010) [FLAC|Lossless]<Progressive R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

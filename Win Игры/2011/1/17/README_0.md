@@ -19,8 +19,7 @@ Atlantis: Mysteries of Ancient Inventors / Атлантида. В поисках
 ```bash
 magnet:?xt=urn:btih:C35D7C04A4CADC6D917F613245F34DFA076A918E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C108E466BBACCFF729FD4FCB3A35AA742356AA38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

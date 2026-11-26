@@ -19,8 +19,7 @@ FILEminimizer Suite 8.0 DC 18.06.15 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F1326995787F16F60948877BAC334B3C597D9780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

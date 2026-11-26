@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:20D19257191EEE5366B4FF10A15E756D847EC338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4860A17F1BE4B1F1E195E9466F8AEFF64BBE8EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ ESET Endpoint Security 6 — это комплексное решение для
 ```bash
 magnet:?xt=urn:btih:E93FCB272C877EFDF980E2A3D5EC22765EB7D475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Into The Stars (2016) [Ru/Multi] (1.0) License FairLight
 ```bash
 magnet:?xt=urn:btih:9844B8FC5D16CD77AF52FACBD6F619AA452E97A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Lost Sector - cовременная и бесплатная онлайн игр�
 ```bash
 magnet:?xt=urn:btih:3AC6A86E4F0D23826A43766744C5E46F57BF39B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Prison Architect - это инди-игра и в то же время стра�
 ```bash
 magnet:?xt=urn:btih:315EED110278FB9AD495CFB0403DBD05550F767B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Windows Server 2003 является новой версией Windows 2000 Serv
 ```bash
 magnet:?xt=urn:btih:B051CF542148B86979800E1386C42CAF6652BE7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso.(   Читать дальш�
 ```bash
 magnet:?xt=urn:btih:04B579635D01A8A0025058FBD26ED7A1F03C74A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FC621FEDBA98EE3B755A006C86175FD88A1CB51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Windows 10 (v1511) RUS-ENG x86-x64 -20in1- KMS-activation (AIO)
 ```bash
 magnet:?xt=urn:btih:5ABEAB669130E6FE2B0A6538C9E842DAC70751FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

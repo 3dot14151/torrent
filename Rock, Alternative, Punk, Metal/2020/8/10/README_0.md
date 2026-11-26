@@ -22,8 +22,7 @@ Rhino Bucket - The Hardest Town (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:744782C8941C1F8BAF0CA95B76457D733A2B2293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Marakesh - Marakesh (1976) Reissue, Remastered, 2016, Paisley Press [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:7A3743963DE7620E0FE13A80B30F3ADF916C5C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ FM - Atomic Generation (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:41643911D0CA6DF52010DEF7266B11DD3742CEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

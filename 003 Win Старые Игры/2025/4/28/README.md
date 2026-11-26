@@ -19,8 +19,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд. Легенда Шерв�
 ```bash
 magnet:?xt=urn:btih:91DA7567182C7BC64359DE9304C5F440020FF5A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

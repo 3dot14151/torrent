@@ -19,8 +19,7 @@ RadioMaximus 2.23.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3C1D4F07B75A979577C2C63B862DCF1F7AF3C228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TapinRadio - приложение от компании RaimerSoft, которо
 ```bash
 magnet:?xt=urn:btih:26D18526BFB0B24155D9A5A50F56EBBE203EED80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

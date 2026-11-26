@@ -26,8 +26,7 @@ Cold Zero: The Last Stand / Cold Zero: Финальный отчет (2003) [Ru/
 ```bash
 magnet:?xt=urn:btih:BC9269209E9037CF4690F4B759BB3F2EA638BBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

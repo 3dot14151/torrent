@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C7DD60C08E8861927E36647E8AA60CFCCE323083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - SuperBomb Club Music Pack 19 (2013) [MP3|320 кб/с]<Club, Electro House, 
 ```bash
 magnet:?xt=urn:btih:091C165BBEB1EB7118E3BA742464BB8CC2C4BC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Enrico Rava - Rava on the Dance Floor (2012) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:65ED5B6B837C48989E9B3604F036007BC90D39D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Andy LaVerne & John Abercrombie - Natural Living (2005) [FLAC|Lossless]<Post Bop
 ```bash
 magnet:?xt=urn:btih:4AED447D16728EADFA58704206C29E813AB45BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Concerto In F Minor, BMV 1056
 ```bash
 magnet:?xt=urn:btih:7FD37E22DB625FEA90EB4D7933D67B76839C028E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ The Stephen Kummer Trio with The Chris McDonald Orchestra - Christmas in the Cit
 ```bash
 magnet:?xt=urn:btih:355F0408F9AF433CA51A953DB76844B243AE6793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Beegie Adair - Christmas Jazz (2004) [FLAC|Lossless]<Jazz, Christmas>
 ```bash
 magnet:?xt=urn:btih:39E3A51A37D9C0A8C2C71083BD4C0D09F031C838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ PC Magazine является одним из известнейших и авт�
 ```bash
 magnet:?xt=urn:btih:FB7FB4FF380BF23BEFAFD27434E2A80FBD7233A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ Broken Arrow - Feel The Arrow (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0A914AD7253D1F12A852EE00641D5F97E0C520D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Gordon Smith & Simon "Honeyboy" Hickling - Bare Tracks (2002) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:9DFC4D4E2CFD04BEDFA12925FB7D39050FDF027C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +343,7 @@ Jim Hall & Pat Metheny - Jim Hall & Pat Metheny (2011) [FLAC|Lossless]<Cool, Pos
 ```bash
 magnet:?xt=urn:btih:36B1D9D0CC89C9942BC127EE03F7A4EB3B96D882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:617D6324BD0C70A0B6EC2C0E49083125AF857036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ Bjorn Berge - Mad Fingers Ball (2013) [MP3|320 кб/с]<Acoustic Blues>
 ```bash
 magnet:?xt=urn:btih:D488FC801B8A1115D5894B76973916073E02797D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +431,7 @@ Wille And The Bandits - 2 Альбома (2012, 2013) [FLAC|Lossless]<Blues-Rock
 ```bash
 magnet:?xt=urn:btih:EC1931B8CCF5C4489A97F9AC8626B8CAD7C2A3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53DBA5654ED2B9FC162F4140771B2D00CBE70494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCF8AAC3C6E2E19B0731C6A3708B7326CE76EBA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +518,7 @@ Headstone - Bad Habits (1974) [MP3|320 кб/с]<Art Rock / Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:E71E77DC1CA2726DF238C3354A3B08D51BA4E24F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64B374258650A36CBA14F39F45FF71A8848FFE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ Carla Bley - 3 альбома (1989-1998) [FLAC|Lossless]<Instrumental Jazz, Pos
 ```bash
 magnet:?xt=urn:btih:C756C2A055645870492FD54082B96ABBAEACAD7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +604,7 @@ Chocolat для Mac OS - Редактор текста и исходного к�
 ```bash
 magnet:?xt=urn:btih:FAD197DE3C2391723AB23E64384F53E57E44A2E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1115792317C6CD7F682F8DCBEFCA7F0E0B13BCCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +660,7 @@ VA - SuperBomb Club Music Pack 20 (2013) [MP3|320 кб/с]<Club, Electro House, 
 ```bash
 magnet:?xt=urn:btih:645BAF896A91C5BD3A61D15F7C5D1A1F0E8628AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:336A7A1AF7FCA4273149D0FDA25F24E6270C344A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +719,7 @@ Dario Lorina - Dario Lorina (2013) [MP3|320 кб/с]<Instrumental Guitar, Hard R
 ```bash
 magnet:?xt=urn:btih:E6E35FA367DBE05E20F801D3B51A2ABA5280F894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8160809423BD4C7BE4C181B5E0490E51AA9FAE12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +770,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88DCD6E27FFF876B80A470D9B7C75C01E145CE43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

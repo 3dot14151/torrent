@@ -22,8 +22,7 @@ A4. Fire Dance (4:31)(   Читать дальше...   )Производств�
 ```bash
 magnet:?xt=urn:btih:3ADBCE6D9ADDB527CE6AC29CE084009EFF6027DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Manhunt (2004) [Ru] (1.1) Repack TaloN
 ```bash
 magnet:?xt=urn:btih:179DD8E83C5F7C1F934FAD12175658471A477D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

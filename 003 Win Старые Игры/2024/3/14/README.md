@@ -19,8 +19,7 @@ Quake II: Add-on Mod Pack (1997) [En] Repack/Mod firstlast2
 ```bash
 magnet:?xt=urn:btih:CC5E11375AB141F353E2CD67E74A6A3CB7B77A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

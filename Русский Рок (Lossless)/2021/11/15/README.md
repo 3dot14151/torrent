@@ -25,8 +25,7 @@ Margenta — проект, состоящий из альбомов, напис�
 ```bash
 magnet:?xt=urn:btih:1D0B9378D72679D394AC41CFEC73B36068417BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Transcend Elite – компания-разработчик устройств �
 ```bash
 magnet:?xt=urn:btih:7DA06247EDE14B6226024325DD1419B5F219E0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tom Clancy's Splinter Cell [Ru] (RePack) 2003 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ X-Men: The Official Game [Ru] (P) 2006
 ```bash
 magnet:?xt=urn:btih:EC1111BE30894911B39EF4141F9C800A2640BAD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

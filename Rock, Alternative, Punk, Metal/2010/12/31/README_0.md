@@ -30,8 +30,7 @@ Bonus Disc: 00:18:07
 ```bash
 magnet:?xt=urn:btih:80FC69147A83F3D30F4A7D99AB9AB6FF97229189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -64,8 +63,7 @@ Stratovarius - Elysium (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:523BA1D058469828782B23FBBC389CBAFD18EA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97454C070D6F8FE8111C29F4AD150A41A2362940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Twisted Sister - 8 альбомов (1982-2006) [FLAC|Lossless]<Hard Rock, Glam 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

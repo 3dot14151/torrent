@@ -20,8 +20,7 @@ Pool Break Pro - один из самых лучших симуляторов с
 ```bash
 magnet:?xt=urn:btih:C7D0491E41E737323D2C07FDE162A75BE3308563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

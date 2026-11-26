@@ -19,8 +19,7 @@ Shadowgrounds Survivor - продолжение научно-фантастич�
 ```bash
 magnet:?xt=urn:btih:4D7CE8300CDC2863749A9995D4FB54D17326A856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

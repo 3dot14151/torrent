@@ -19,8 +19,7 @@ Test Drive Unlimited 2 перенесет вас на два курортных 
 ```bash
 magnet:?xt=urn:btih:1061849EDEED2E80F15E33EE223A4F64345D259F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 ```bash
 magnet:?xt=urn:btih:5E17C70A2050D978B2647051924ED0030D2B144F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mirror's Edge (2009) [Ru/Multi] (1.01 jpfix) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:672B8ADB34F6E46F03C5BB6776388C5E956B7AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Need for Speed: Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack FitGirl [Limited
 ```bash
 magnet:?xt=urn:btih:420F3778A1606FBE6EB0A67C8470256BE13B0ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F8EE673B8029193825EA2236B3D6DDFEB125A5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ antiX Linux 19.4 Grup Yorum [i386, x86_64] 6xСD + 2xDVD
 ```bash
 magnet:?xt=urn:btih:CDD665398394CB68AC977A19229016011415CF63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

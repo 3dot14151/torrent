@@ -20,8 +20,7 @@ Scrapland / Scrapland - Хроники Химеры (2004) [Ru/En] (1.0) Repack 
 ```bash
 magnet:?xt=urn:btih:108E420C44711F17C770E20A7091C278AFB60F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

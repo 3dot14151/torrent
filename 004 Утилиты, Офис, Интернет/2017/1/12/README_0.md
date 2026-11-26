@@ -20,8 +20,7 @@ CloneCD является мощным CD репликатором (   Чита�
 ```bash
 magnet:?xt=urn:btih:9598641F37389641A2D730B642317840D86ACAB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

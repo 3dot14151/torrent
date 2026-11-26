@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7284090E60CB87C2B5B19614DE77C38816F54097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9CE8CA56EF6AEB5DD6D69AEF08F56713C06595B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:400A24FD7FB33A05B3221605ED3F3A2211E46568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Techno Bunker 3 (2023) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:B278160AAC0782EE5E4BB6374110103FDD01ACD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Total Commander 10.52 (03.05.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:DAE007F8640ACD3CEF0CBF6B5274519781D8B423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Airships: Conquer the Skies v.1.1.6 (2018) [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:183ED54DE336B0AF76D9F3C32337132C39AACBE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Udemy, Lincoln Margison | Procedural animation for humans in Unreal Engine 5 (20
 ```bash
 magnet:?xt=urn:btih:B8855EBBD53F2BB2B445D8643B67F632637F8280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

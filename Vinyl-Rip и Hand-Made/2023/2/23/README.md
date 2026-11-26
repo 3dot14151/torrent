@@ -23,8 +23,7 @@ Soilwork (англ.) («Земледелие») — шведская групп�
 ```bash
 magnet:?xt=urn:btih:A848C968B9D76F7EFD0561C5F38E2F3FFE9D44CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ A3 Не Уходи(   Читать дальше...   )Жанр: шансонПр
 ```bash
 magnet:?xt=urn:btih:CA2FA90A47B2C7627CD93A4D0A9E2F3119EEE91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

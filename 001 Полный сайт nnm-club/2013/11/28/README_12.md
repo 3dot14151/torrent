@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2CBA5680B2FA366685A813E2959CF0FF728660BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Pandora: First Contact – научно-фантастическая пошаг�
 ```bash
 magnet:?xt=urn:btih:9E674E0C220E1C42A64209FC86ABAED6FBB07345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Far Cry 3: Blood Dragon (2013) [Ru/En] (1.02) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C000E276F3ED4CA010AD4DB4837C6D0221221C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68EEE704A1C4534702E00BCD08F5857799B19D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

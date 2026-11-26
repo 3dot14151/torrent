@@ -19,8 +19,7 @@ The Secrets of Arcelia Island (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:C880C20C464709494B5025A25737C881E0C06567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Timeless: The Forgotten Town Collector's Edition / Вне времени: Заб
 ```bash
 magnet:?xt=urn:btih:1B6D3C9855DFCE65DBB985010354AEE7C32C4541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Paranormal Crime Investigations Brotherhood of the Crescent Snake Collector's Ed
 ```bash
 magnet:?xt=urn:btih:48EB1988288B81CD8D59E24ABDB73CDB7EE6F9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

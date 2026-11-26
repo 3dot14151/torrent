@@ -19,8 +19,7 @@ Pacific Drive — игра на выживание от первого лица,
 ```bash
 magnet:?xt=urn:btih:A7445B9A4DDB2F64D9DF9D4F161EBE2BB34835E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Factorio – игра, в которой вы строите и обслужив
 ```bash
 magnet:?xt=urn:btih:8AB4DDF38E2F366B979117AAD6C4E34423184DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ICARUS (2021) [Ru/Multi] (2.3.0.140074/dlc) Repack FitGirl [Complete the Set Bun
 ```bash
 magnet:?xt=urn:btih:21A2B83DFB156CE93816E071CC2078AFCF167984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:67C841BBF75CD8258F0BBFB2D9A0B458CB4C8B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Die in the Dungeon (2025) [Ru/Multi] (112.0f3) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:B7021BD61C5A304CBBC6DB52D8E1095D7755861C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Danger Zone - постапокалиптический 2.5D шутер с в
 ```bash
 magnet:?xt=urn:btih:6D1342C9D4D2B05FB7B6C69A0A7CCB503A52197F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Xeno Rangers (2025) [Ru/Multi] (1.0.19B) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A865B98E5459FB83EF6579A991FDE8F73BF18198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Strike Mission (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E5E954A06A8511A35F4C61F9452760D572500A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Unfinished Business - это новое самостоятельное прик�
 ```bash
 magnet:?xt=urn:btih:837A54AB11914610173A116768CD5B519140CFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Kingdom Ascension - это средневековая военная страт�
 ```bash
 magnet:?xt=urn:btih:AF95FFD0AE10EA4AF09A457575BFFFEC1A0C4944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) Repack Let'sРlay [Complete Collection
 ```bash
 magnet:?xt=urn:btih:C12A4D82CD935960356DCE4CF677FCEFBD14A79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Submersed 2 - The Hive (Улей) – это научно-фантастичес
 ```bash
 magnet:?xt=urn:btih:1121CFF5C5C20092637109A990BAA63E9254CD8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:A6759FB0487956D45176A94A843AC776E517BBE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cozy Magnifier & Microscope Plus v6.3.0 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:672AA4FAE55D21863E689FDDC0CC3E4B2ECF9091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mod: Вырезана реклама.Тип издания: Mod (AdFree)Рели
 ```bash
 magnet:?xt=urn:btih:80B5A7B4F86E8F761292D6EAB66739C88C37A336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

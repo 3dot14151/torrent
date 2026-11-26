@@ -22,8 +22,7 @@ A4 Космос • Space(   Читать дальше...   )Жанр: Pop Rock�
 ```bash
 magnet:?xt=urn:btih:029C3FA11D0FE7920587CCEB40A869598C025EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

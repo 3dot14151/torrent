@@ -21,8 +21,7 @@ Longman | Jacky Newbrook | FCE Gold Plus (2008) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:F29A37E113920AC8024614FADA97592916DBC868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VideoHive - Clean And Simple Slideshow [AEP]
 ```bash
 magnet:?xt=urn:btih:1F32E182160FA1F6F4F86342FC94D9A151F8141A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ VideoHive - Photo Gallery on Choosable Background [AEP]
 ```bash
 magnet:?xt=urn:btih:526A025619A66AB95BAC4DA83E3E8FDBC34E6E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Far manager — Бесплатный файловый менеджер с под
 ```bash
 magnet:?xt=urn:btih:EFC0BA1CFE4E468E20928CD6D5E4563C27995D79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE25057CB0AC4F7CBFA19578E11F2CAC42697432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53AF2D8A8BEE5B49904506A3F8CFA9A886FA4038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57BA7E562E7830135A6A041F25476FA43AFCC246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) HDRip [Line]
 ```bash
 magnet:?xt=urn:btih:A222DEC186111E8774F0F92D98E9E65277509F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D82A63DCDDAC65C583DD32F79CEEE073074E0F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Xilisoft Video Converter это простая, удобная и быстрая
 ```bash
 magnet:?xt=urn:btih:18CD9813F7B481456B0461DCE0B74D431FCCB43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Corel WordPerfect Office X7 — это базовый пакет офисных 
 ```bash
 magnet:?xt=urn:btih:B4CAE040C814B8A931C4CA32456056B5E37B90EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BA224162384BF4FE9E64162423CB4B6E44292F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF3F3ED6C5A0E388A02EB4D5A943085194FEECFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ DriverEasy Professional - отличная программа, которая п
 ```bash
 magnet:?xt=urn:btih:9EDEA5FBA7B43FDA65FF5E516F06C30B67F29E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA8955800267137316B022CE0C0205153B0A44BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ IP-TV Player - это высококачественный проигрыват�
 ```bash
 magnet:?xt=urn:btih:1234C0DAB24579266EDB2100181A0843E6C84721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB8513F87E126C928CEEBE3C205AE6F0F20A2EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ Blades Of Time [PS3] [EUR] [Ru] [3.73] [Repack] [Cobra ODE / E3 ODE PRO ISO] (20
 ```bash
 magnet:?xt=urn:btih:8DE6ED7478304F96B4E6C7685A965734EE72D1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ VA - Волк с Уолл-стрит / The Wolf of Wall Street (2013) [AAC|WEB-D
 ```bash
 magnet:?xt=urn:btih:B62DBFF09A468F86A3A83765B5C81F0E524398E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ X-Blades / Oniblade [PS3] [EUR] [Ru] [2.52] [Cobra ODE / E3 ODE PRO ISO] (2009)
 ```bash
 magnet:?xt=urn:btih:3E3683D41F966095ED7BCD1A3F2F8301C10B3B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17067AE8842B9D5EEB4E6BD1A16FDC240CD4E2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:561B6F6AA5C0069691B001BD7F284C9BF5F5337F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ Change MAC Address - весьма необычная утилита, с помо
 ```bash
 magnet:?xt=urn:btih:7C475411DBBB92E452BDBC610433E3CB2339DD66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ED8FE87C7266719281C79B27AF87B544B55D34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

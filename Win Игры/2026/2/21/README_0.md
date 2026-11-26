@@ -19,8 +19,7 @@ DiRT 3 (2012) [Ru] (1.2.0.0/dlc) Repack R.G. Freedom [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:C9C20E46E694935EC2DE032C638A971012F7D3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HumanitZ (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2C7BF6E01D006B6FB9AA553FD7BE8D4F95BD208A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Prince of Persia / Принц Персии (2008) [Ru/En] (1.0v2) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:2244565621E824422DCAAA476AFCB5B979893AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tails of Iron – это приключенческая ролевая игра 
 ```bash
 magnet:?xt=urn:btih:776E52F9580C7D25155DE844A3F556180835C76D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Manor Lords - стратегическая игра в эпоху среднев
 ```bash
 magnet:?xt=urn:btih:13864B8B33F6F585BBAFAF2150D85E201F7FA5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Star Trek: Voyager - Across the Unknown - это стратегия о выжи�
 ```bash
 magnet:?xt=urn:btih:2D5422E12D8091A5A952697AC598CC3056A4D369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Forgotlings - кинематографичное приключение с уп�
 ```bash
 magnet:?xt=urn:btih:6816FE6420443B83D49B89143FF6BC93B349FFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:5AC2A41720815551D46CBC6F513206419283CC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B56B4393264C94B3DDB8B69E199E7E00A42958D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Lester Young - The President Plays (2008) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:8422FD303CD59E7926CC9759D6ACF75B7F98C296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62A894AFC25CA4028F6E1B11304698525C29CFBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40508EFA80B61FCCE6D2A27DC1D252E483EDA362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Rest Among Ruins - Fugue (2015) [FLAC|tracks + .cue]<Metalcore | Progressive Met
 ```bash
 magnet:?xt=urn:btih:5278788FB57909F9DA4626E0C23803A3DC2E640E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Pinar Akbay - Spellbound Remixes (2015) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, E
 ```bash
 magnet:?xt=urn:btih:A4A34BF6CF47F735F06C4EF8624AFF6058FF5654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19786155D6A8D352CD38759BF6926FAFC7786B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Todd Rundgren - Global (2015) [FLAC|image+.cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:1514F151F149BDA3E5DF3701606689BB7B3E1FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Pete Townshend - Psychoderelict (1993) Remastered /2006, Imperial Records/ [FLAC
 ```bash
 magnet:?xt=urn:btih:4926279AB4E7504DC97B81166E116D91FA815700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ From First To Last - Dead Trees (2015) [FLAC|tracks + .cue]<Post-Hardcore | Alt.
 ```bash
 magnet:?xt=urn:btih:7C0BA6A4E178115DDD8E4E432BED7E51DC4AAEF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1E6A8025247D8061D622B99055317051EA103F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:690C19CD147B7782B2E1095C540BFFDAD476B23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ Indigo Girls - One Lost Day (2015) [MP3|320 кб/с]<Folk Rock>
 ```bash
 magnet:?xt=urn:btih:834305CE677EF531EA3A68251D6DA07204EF7BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76A24E02BA5300422DDFAE573A2C0DC97648FE0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Circuit Des Yeux – девушка из Чикаго Хэйли Фо, обла�
 ```bash
 magnet:?xt=urn:btih:34CF03077B89A411ABD42E7C263248DFC78684F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Bay City All Stars - Rock & Roll Diner (1996) Remastered /2001, Menus And Music 
 ```bash
 magnet:?xt=urn:btih:5FDF0C164FBCCB1F60A293645239A21D517ACA55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54D9D1E9ECE47DBD91B307578574B36CD8DCC3BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ VA - Black Hole Recordings Portrait 1998-1999 The Collection Part 1 (2015) [FLAC
 ```bash
 magnet:?xt=urn:btih:F28165DFC0B226016C54144B3803D83EC131C029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0417D97473E84B51E26D278A2B845085A803BFC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ DropDMG — это очень простая, но функциональная 
 ```bash
 magnet:?xt=urn:btih:3A495148B06876B6975BFDAE5FECEF2D0CD4C330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ She Said Disco - Gold Shore EP (2015) [MP3|256 кб/с]<Disco, House, Electro>
 ```bash
 magnet:?xt=urn:btih:BE6F7EB7A8339A892013781DA69DBF6832330C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ VA - Extra House (episode 2) (2015) [MP3|320 кб/с]<House, Deep House, Club Ho
 ```bash
 magnet:?xt=urn:btih:10FA7C417C4A49F3DAA0649F66AF574C045E76CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED4071433419C23C906E153D4F53B9591390329A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ Junkware Removal Tool 6.8.8 [En]
 ```bash
 magnet:?xt=urn:btih:42480D676C988CD54EA384C22136EA4F852F00AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

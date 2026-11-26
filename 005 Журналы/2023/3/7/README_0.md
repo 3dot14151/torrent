@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:F1AB3D7ED4DB1664A17A3DE6A9D06AB7293716B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Woodworker's Journal — журнал по столярному делу пре�
 ```bash
 magnet:?xt=urn:btih:BF0715971AEE9B2B37DB8DFEA4AFCCF52A8B8547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

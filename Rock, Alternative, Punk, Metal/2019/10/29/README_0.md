@@ -22,8 +22,7 @@ Santa Cruz - Katharsis (2019) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 ```bash
 magnet:?xt=urn:btih:270BAE3C7551FBD41C073815B39DA2D30F7E7566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eskimo Callboy - Rehab (2019) Deluxe Edition [MP3|320 Kbps] <Post-Hardcore, Alte
 ```bash
 magnet:?xt=urn:btih:630BDA2A26085DCFCE50C52F1D20D4D95150C17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Animal ДжаZ - Время любить (2019) [MP3|320 Kbps] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:542AB0DEE4973D2B284709F4AB1BE63573A01AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE4CAAD77B9DC5CD739B543E1C923530A2E51742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

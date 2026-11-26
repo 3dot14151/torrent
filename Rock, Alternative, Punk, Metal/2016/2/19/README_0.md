@@ -22,8 +22,7 @@ Skirmish - Through the Abacinated Eyes (2011) [FLAC|Lossless|image + .cue] <Deat
 ```bash
 magnet:?xt=urn:btih:257D424E7DE9CB2A74FB31966EE8BBA5FF491D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Children Collide - The Long Now (2008) [MP3|320 кб/с] <Alternative Rock, Indi
 ```bash
 magnet:?xt=urn:btih:BB3196E682198851C97B3A1233283BB0FDAF9BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F3FCA4F680505947B74C6AA24295E4C97E8BF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wolfmother - Victorious (2016) [MP3|320 кб/с] <Stoner Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:41194D30FAF76C15B81870E8FE8E9A368DD5C2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Stray Cats - Sex, Drugs and Rock'n'Roll (The Best Hits) (2003) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:6755C5B56CBD5D851EB0D55A6BA308663FBED920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Simple Plan - Taking one for the team (2016) [MP3|320 кб/с] <Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:13ECD8C2202A26F90B0B3B737138F651E199BDC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Joe Stump - 5 альбомов (1993 - 2009) [FLAC|Lossless|tracks] <Rock, Heavy
 ```bash
 magnet:?xt=urn:btih:F4682F7AC230B35AA159F9AC7FFBFD75C4CF9FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DFFCA7657F5CCBC6610990C5FB4AADE952477D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Inglorious - Inglorious (2016) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9605B3F210B6B17B4B566DD75ABEF85873DE3734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

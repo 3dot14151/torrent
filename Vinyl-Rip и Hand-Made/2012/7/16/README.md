@@ -28,8 +28,7 @@ Blackmore’s Night - A Knight In York (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)
 ```bash
 magnet:?xt=urn:btih:A915AC79C1F9F35693415552DC9A0C4483010787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

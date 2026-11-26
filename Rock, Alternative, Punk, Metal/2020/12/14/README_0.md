@@ -22,8 +22,7 @@ Loudblast - Manifesto (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:58368FF8BF3C7D73A3503155D678C5BDD8F3880A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:0E379809CE63CE11F0BAA7EFE56DF311D2481A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Photophobia - The Seven States Of Mourning (2012) [MP3|320 кб/с]<Depressive B
 ```bash
 magnet:?xt=urn:btih:9AD1334C9ADAE9E4F03988341425B2F375867053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Embellish - Blindead (2012) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:F0E742832F3F47B240558A11B727D1FF3418B5DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Bourgeois Tagg - Yoyo (1987) [MP3|192 кб/с]<Pop Rock, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:03FC07CF8609BCA0F94C12496691CFE0EB747516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Adrenaline Factor - Adrenaline Factor (AC DC Like Band) (2007) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:D971ED663068720BAF64017927125B4A5CCA33B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69A670A2ACB48743BC8DC3FCD01AA7A13C60829E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

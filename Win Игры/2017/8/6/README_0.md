@@ -19,8 +19,7 @@ Algotica - Iteration 1 (2017) [Ru/En] (1.0) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:57975DF606C5805713F6BFE4969D943714A01ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Distorted Reality это сурвайвл-хоррор от первого ли�
 ```bash
 magnet:?xt=urn:btih:76A47294B95088E09B0E6036E9EBDD5057A2490A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

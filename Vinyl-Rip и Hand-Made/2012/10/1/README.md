@@ -28,8 +28,7 @@ Shemekia Copeland - 33 1/3 (2012) [FLAC 2.0 24/96|images (Vinyl-Rip)]<Modern Ele
 ```bash
 magnet:?xt=urn:btih:B6B810265887C074A47820388C2D93A8C04027C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

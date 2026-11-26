@@ -19,8 +19,7 @@ Kate Arrow Deserted Wood / Катя Стрелкина в глухом лесу 
 ```bash
 magnet:?xt=urn:btih:B8499125AB08F727CD16433886255DAED84F84D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Break the Curse: The Crimson Gems / Расколотое проклятие: К�
 ```bash
 magnet:?xt=urn:btih:9D96BC0FB04599D23631357C329FECAA2ACAC49E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Golden Trails 3: The Guardian's Creed. Colector's Edition / Золотые ис�
 ```bash
 magnet:?xt=urn:btih:1DF783408512D46AA334B197076599E024F2FA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Wasteland Angel возвращает нас во времена старых а�
 ```bash
 magnet:?xt=urn:btih:F9FFF9EDEB03C3C78E3EFB78DE8CDA58D3347F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Prison Break – это экшен с видом от третьего лица,
 ```bash
 magnet:?xt=urn:btih:AA862F5185D99F5940CFF469B4557A6F3B9EFCC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Oil Rush - это основанная на управлении группам�
 ```bash
 magnet:?xt=urn:btih:FBACAE6B1ED495970DDFA34EBE816EC4F9D964CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Desperados Anthology / Антология Desperados [Ru] (RePack) 2001-2009 | a
 ```bash
 magnet:?xt=urn:btih:919B0E0BEC869DEB952ECABCD45D333208521F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Strike Suit Zero предоставляет игрокам ослепитель�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Call Of Juarez: The Cartel: Limited Edition [Ru] (Rip/1.1.12) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:B62287D838327DC853B0C7CE1FAAC61AF21F040F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

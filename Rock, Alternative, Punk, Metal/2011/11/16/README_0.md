@@ -28,8 +28,7 @@ Trillium - Alloy (2011) [MP3|320 kbps]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:C682D3D6C60D438825E821FFB78AFA1A57262757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Golden Resurrection -2 albums (2010 - 2011) [MP3|320 kbps]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:FBBFB4BBF3CDA4DC7EF68BCE02F3FFCD8B628459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Nickelback - Here And Now (2011) [MP3|320 kbps]<Post-Grunge Alternative>
 ```bash
 magnet:?xt=urn:btih:9FD541FE67FF556055895260D99FB7D4BD76F8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3A00EA60BDBDC76646356C80C8DFDBC110E9EAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Puppis A - остатки от одного из самых мощных взр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Deepness Is Served (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:D57C9F62FF2DC42359D6626B130848ACFA701573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ SynWrite - мощный текстовый редактор для програ�
 ```bash
 magnet:?xt=urn:btih:9CB256305CF8390E1A51B98A06820E6106F7FF95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Blues Attitude - Paintin' the Blues with a Phat Brush (2006) [FLAC|Lossless]<Roc
 ```bash
 magnet:?xt=urn:btih:E85C432C25FE04170189DF2BFD7A2998EB8D1064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Google Chrome 37.0.2062.94 Enterprise [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5ADAE3AC263FC728960AD76AD9933903508428BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ PicPick - приложение, объединяющее в себе возмо�
 ```bash
 magnet:?xt=urn:btih:B4C8C6C129E6DF30899A1BE6BF7FCA1DDD72BE60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC466EA8BD836913476FC075D61CC697B5274919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83ED071E73661100702BFFB2D80C3C253104AC07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Mary Fahl - From the Dark Side of the Moon (2011) [MP3|320 кб/с]<Progressive 
 ```bash
 magnet:?xt=urn:btih:0179D37E3AA7C6BCCEFBA278AC2C88EB51C09CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE8D30F918D0C389D2A11DC8D95834CCF8E65CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A578FFA8F84B0357D7310AB1F20C657846D79BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C3DA451D278EB816487F27C9649AA0F5244E42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DDB8D8E2A859DAD98A333C858A8A99CECBCFB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:D2B882FD46FFF3BBEA0A8F767DAECF883B756636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ IT Weekly — информационный ресурс для професси�
 ```bash
 magnet:?xt=urn:btih:7D3170A08ECE23CF800496D92BD0C1E20DB75FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:E0818CDDE3E214D1D8245DD56751619B31854B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D3D87F9AB04661E6D2D6AE958769272A68AD6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ CADintosh X - приложение из категории "Графика и д
 ```bash
 magnet:?xt=urn:btih:EDE8D81AF87128092FB8A243850E7E41E17672A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ The Family Handyman - зарубежный журнал для домашних 
 ```bash
 magnet:?xt=urn:btih:086502F81F3BA05239861A025BD210D5000E647C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Discovery: Повелители разума / The mind control freaks (2014) HD
 ```bash
 magnet:?xt=urn:btih:ECB8A943C26045DF6FE0A1367C951DD9467B8B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ Jeff LaBar - One For The Road (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:15E6C217F1C12849DA91E556D2CF0FCDC0FACCE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ VA - A Saucerful Of Pink - A Tribute To Pink Floyd (2005) (2CD) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:5804910079DA987BADA1231B8AF26A9B665F51CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ The Family Handyman - зарубежный журнал для домашних 
 ```bash
 magnet:?xt=urn:btih:A2517FC9C805D79B7D2D9A557A0C6D42EF197ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Linkin Park - Wastelands (LinkiS Remix) (2014) [MP3|320 кб/с]<Glitch-Hop, Rap
 ```bash
 magnet:?xt=urn:btih:9CD63B4EDC253A887FB5EDD1FE8B3FF7426BD8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Venetica – игра в жанре CRPG, выпущенная в 2009 году 
 ```bash
 magnet:?xt=urn:btih:EB61A29170B2AB7AFBD4AD20A221BC348016E741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

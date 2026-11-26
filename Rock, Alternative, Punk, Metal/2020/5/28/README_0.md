@@ -22,8 +22,7 @@ Woodtemple - Sorrow of the Wind (2008) [FLAC|Lossless|image + .cue] <Pagan Metal
 ```bash
 magnet:?xt=urn:btih:FF5D7690D56E4F0C47636AE815A7E1977B6F057C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Split Heaven - The Devil's Bandit (2013) [WavPack|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:F684F2217874371BC0A6791E068FE06D137FC5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Grave Digger - Fields of Blood (2020) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DDA0C9E9F34AA6800248F5AAD53E5733C2529F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

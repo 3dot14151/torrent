@@ -28,8 +28,7 @@ Faded Grey - Harbor Lights (2014) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:AA3763E7551D892FD7B83D15AC72FC26A600044A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Maskarad - Wrong Is The New Right (2014) [MP3|320 кб/с]<Hard Prog-Psych Rock>
 ```bash
 magnet:?xt=urn:btih:3B4B2016BDA645BAFBDB3467ADCF47E5D22B9EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Omen - The Curse (1986) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6F261BF818D4CFDEDD061FAAD5F1E5C33A901AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ MIRIUM - Предчувствие (2014) [MP3|320 кб/с] <Symphonic Melodic Me
 ```bash
 magnet:?xt=urn:btih:DFD70CBDBD3C57DA2320B94243B27630B0A70EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Ne Obliviscaris - Citadel (2014) [MP3|320 кб/с]<Progressive Melodic Black Met
 ```bash
 magnet:?xt=urn:btih:1FC90C690113D9CB20637A68AC24EC7D58393D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Bonuses:
 ```bash
 magnet:?xt=urn:btih:B3C9DE455D721F6701A8EE471F8D31689BBDC51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Electric Mary - Down To The Bone (2008) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8562ACDFE205D0C6A0DFD956591310C9DF7FDE11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Hairy Viper - Lady Killer (2012) [MP3|320 кб/с] <Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:71FFB983F6AACB228B05FF47F6EBC1DD9917BC9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Valentine - The Queen Album (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B0B953C1DB57660CE63BB128A9B6A597E8C9E783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Attila - Guilty Pleasure (2014) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:5020A0CE4BB9E9E1597064444F5D6DAABFEB5A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB11091553CBEF70A783A9EA4E949AD6ADBCE3E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ Allen - Lande - The Showdown (2010) (Japanese Edition) [APE|Lossless]<Melodic He
 ```bash
 magnet:?xt=urn:btih:CCB509B13F54DCA53B4B0314FA10DF30520BFF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA25281701C524B060A789B8D46D4C090E604C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +458,7 @@ VA - Golden Rock Ballads 10 Years... Vol.2 (1996) [APE|Lossless]<Romantic, Rock>
 ```bash
 magnet:?xt=urn:btih:EAA98B376FB1E1FB4875B236685E30E65C48F584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +486,7 @@ Queen - Forever (2014) 2SHM-CD, Japanese Edition [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:C5C38508486EAC41BDCA174456A8A61F659F5802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +520,7 @@ In This Moment - Black Widow (2014) Deluxe Edition [MP3|320 кб/с]<Alt.Metal, 
 ```bash
 magnet:?xt=urn:btih:D2E2C1C5DEA1887688342920F32A1321C5DF6DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +548,7 @@ Queen - Forever (2014) 2SHM-CD, Japanese Edition [FLAC|image + .cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:BCD7259E4F1A16FDA9B4AC67E5CE2342B8CA2461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

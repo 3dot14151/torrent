@@ -21,8 +21,7 @@ VA - Ibiza Sundown Chillout (2021) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:5B22AF21145EADB8B8555E6C952845D2F1375D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - White Lounge, Vol. 1 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:1A5E4FE9AAD5F1F3E397AE70983B7304D7F2A503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ NanoBrowser - это еще один из минималистичных бра�
 ```bash
 magnet:?xt=urn:btih:E2004A22418F115E622BD2854F03287278A6DA26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:50DFFC30D549CF6E002E2892A4D68AEAB0E72D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 3 (2021) [AAC|~293 Kbps] <
 ```bash
 magnet:?xt=urn:btih:53E9E8EEA48C1CD87BF1CC9B01F54F531DA1C21A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

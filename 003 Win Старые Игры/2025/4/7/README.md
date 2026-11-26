@@ -19,8 +19,7 @@ Action-RPG нового поколения, созданная на новейш
 ```bash
 magnet:?xt=urn:btih:15E8F710FB0FE74A68ECB6AD23C3E8416802A6C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

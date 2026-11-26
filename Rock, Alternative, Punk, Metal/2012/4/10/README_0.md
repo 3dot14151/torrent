@@ -28,8 +28,7 @@ Volkerball - Weichen Und Zunder (2012) [MP3|224 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:47B2CA35806D19C41B39E92BB5A4D98A3F2A676C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Unisonic - Unisonic (2012) /2012, earMUSIC/ [FLAC|Lossless]<Heavy Metal / Hard R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ One Less Reason - Faces And Four Letter Words (2010) [MP3|320 кб/с]<Alt.Rock 
 ```bash
 magnet:?xt=urn:btih:BB5305CE922D70FEBC88F73488DE0A68BCCD3954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Casting Crowns - Come to the Well (2011) [MP3|320 кб/с]<Alt.Rock | Christian 
 ```bash
 magnet:?xt=urn:btih:A45848FA2A5B6CE85B0716187F432992E30AF7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Gaia Epicus - Dark Secrets (2012) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:76CE33CB7D8389B54B091651B69FA3C9C018A976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Rise To Fall - Defying The Gods (2012) [MP3|320 кб/с]<Modern Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:7241D4EE08BA3F45188E4731AD76846EE6CDC61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Morbid Angel - Formulas Fatal To The Flesh (1998) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:D5CE4DFEDA41AE6FF2EDDED2F35D00CCACF07F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Canvas Solaris - Irradiance (2010) [MP3|320 кб/с]<Instrumental Progressive Te
 ```bash
 magnet:?xt=urn:btih:B05790455A7CD4BDB69E1B4CAD37D65D74E4DA54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Natural Spirit - 4 альбома - Дискография (1999-2011) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:71175B3C32730DAF2ABDBF054F9E5312DFF509BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ Kansas - The Epic Years. Paper Sleeve Collection (1974-1983) Blu-Spec 11 CD Reis
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8D2649C90612EC28F4DF4110FAC0058E0B4B62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +375,7 @@ VA - The Guitar 31 Laid Back Songs (2011) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:D03E6FCB2602C2B1E369CBD26D4013A0F3F97C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +400,7 @@ Dragonforce - The Power Within (2012) [MP3|320 кб/с]<Extreme Power Metal/Spee
 ```bash
 magnet:?xt=urn:btih:39F6F0F14BA25678E2A4ABC0B9826476CC17B9E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

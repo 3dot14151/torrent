@@ -19,8 +19,7 @@ GymUp - это дневник тренировок для тех, кто нац�
 ```bash
 magnet:?xt=urn:btih:A9AB65F3036EF96908077597A6F5C48E369753D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Eternal Calendar (Вечный календарь) 2018.09.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:37035C23D778A1DAF9DAB9EF764A5F0A0133DF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Universal Diary / Универсальный дневник v2.29 Unlocked [Ru/E
 ```bash
 magnet:?xt=urn:btih:6712E879B1AB5075D11D58F54D5B3853C1422849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Death To Spies Moment of Truth / Смерть шпионам: Момент ис�
 ```bash
 magnet:?xt=urn:btih:435E4FBE8DB59161FBEFC56E789C2003C4000A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Dawnstar - экшен с ролевыми элементами, разработ
 ```bash
 magnet:?xt=urn:btih:03B88AD707C1C67D2AEA4CE3ABE392896D9A6061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

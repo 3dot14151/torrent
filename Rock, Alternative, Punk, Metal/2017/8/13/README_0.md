@@ -22,8 +22,7 @@ Masterplan - MK II (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Power M
 ```bash
 magnet:?xt=urn:btih:396A7D77048632A72EB3DE73F1E634F89E9BDA29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

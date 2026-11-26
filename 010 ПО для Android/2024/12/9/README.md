@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:C538E8E868E9E372EA4F92E43FA0912032C60351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ MiHome v9.10.700 Mod by Vevs [Ru]
 ```bash
 magnet:?xt=urn:btih:944C880B6EDE2402002A5C0E690022994BD2617B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

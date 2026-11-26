@@ -19,8 +19,7 @@ Vengeance of Mr. Peppermint открывает перед игроком жес�
 ```bash
 magnet:?xt=urn:btih:21E7DFCC5DB4D8FE0027F9B0EB3EF030D1E843A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Citizens: On Mars - увлекательная стратегия, в котор
 ```bash
 magnet:?xt=urn:btih:DAEF5E1C26F5AC2D5EE8595C0C10AC3BFEE3F770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stray Souls (2023) [Ru/Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4E3B27F6DEF50D40E1AF744DD1B6B65EAA542467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Fermi Paradox - это повествовательная стратегич
 ```bash
 magnet:?xt=urn:btih:E799E5227C44A9E2131507E39AD0687812F4DC15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

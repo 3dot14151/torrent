@@ -28,8 +28,7 @@ Crystal Vipe - Possession (2013) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:D675429DD6E2F88EB267EFF796A66642E83EC474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Silent Force - Rising From Ashes (2013) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:1A659FC239A480F810B5B29008A1E9D51FEA03E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Shadow Host - Apocalyptic Symphony (2013) [MP3|320 кб/с]<Power Metal, Thrash 
 ```bash
 magnet:?xt=urn:btih:CD63BD47F4EE282574C705DC224E5AA8B984E5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Strangeletter - Borrowed Time (2013) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:ED213D85BB0081D8B48E76BAAEBB8D8C0F89920B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Schubert In Rock - Schubert In Rock (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D0AF71EEB6F88AF081B9C19FC30CF88310D811CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Fate - If Not For The Devil (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8EF6243489CF456CC5CD8E38867A55E7AEF4A81A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Roger Waters - Flickering Flame (2003) [APE|Lossless]<Prog Rock>
 ```bash
 magnet:?xt=urn:btih:ECFA2F0FC6DE8A308BC70A1B5978C09CDE468E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Linkin Park - LP Underground XIII (2013) [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:A600D94D4345925DCA3F070EABF0E5636592BB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:849EFA4C9FA6EB06BA01DF41C5F23B28B156D96F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

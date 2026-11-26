@@ -22,8 +22,7 @@ Les Discrets - Ariettes Oubliées... (Ariettes Oubliees...) (2012) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:6AF0EEDFD681211CD4B092AEC7FF13D5BAA7F6CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brunorock - Interaction (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:0DDC1A279420233F4B640EF7CB4D57ABCA066FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Aerodyne - Breaking Free (2017) [FLAC|Lossless|image + .cue] <Melodic Heavy Meta
 ```bash
 magnet:?xt=urn:btih:57F76E6D6AF42B7CE330A4C3AC18B9320507D045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ In Autumnus - Dysphoria Sonata (2021) [FLAC|Lossless|Web-DL|tracks] <Atmospheric
 ```bash
 magnet:?xt=urn:btih:4094057B1F0B9B382B12B6ED037663F649C8413E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ FB1964 - 2 Albums (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:F30E6DFF839896C817107302BDBDDC6519B1C5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rest in Haste - 3 Albums (2014-2021) [MP3|320 Kbps] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:2841B9C90CD8EA671884C755FA800EA2462B369A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Holosade - Anastasis (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DAA08AB108E548C6502904B4470DE651A1834B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VicToriA - Укрытый дождём (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8D5E9EFDCA9C442338335A270B5AB0B0892E4BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Capital Gold Legends II (2001) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:878B42D7EAC5209CA52D0105B50492F280C4F37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

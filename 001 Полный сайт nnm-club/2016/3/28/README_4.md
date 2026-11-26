@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:0E0C521A1E15638BBB2596B9E4344316E9949951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BDB2B391D134F14FA6B699A2FFA1840AA7F393F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAB69554379FBA78FAFBDEC83D025AC87BE5B4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A5320CA5EEA532B2882AC6BDDCA5F98F5C2813A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4269CE525E1FC5868517FD574C2CF7545B6BBA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ The Inquisitor Book II: The Village (2015) [Ru/Multi] (1.0) Repack АRMENIAC [Ni
 ```bash
 magnet:?xt=urn:btih:945A545176AEE10CBB574F0F4BFEC85D8BB61E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Lynda.com | Photoshop CC 2015 for Photographers Fundamentals (2016) PCRec [H.264
 ```bash
 magnet:?xt=urn:btih:36DA04617367F64EA7BA675EBD36EFD516400C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:726D737EA6D2296A73E84BE0680803C56E7D685D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Advanced SystemCare Ultimate - комплексная забота о состо
 ```bash
 magnet:?xt=urn:btih:3D1AF0A07E0A53909BEAC1E89324D587A562A5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Beautune for Windows v.1.0.5.100 RePack (& Portable) by 78Sergey & Dinis124 [Ru]
 ```bash
 magnet:?xt=urn:btih:258E5DB49A10CF4524C0504DF6D94E815119DCE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CD282E42A46A598B2866E56FADE1D5F2077B4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Qt позволяет разрабатывать приложения при п�
 ```bash
 magnet:?xt=urn:btih:89D5A21EB861176DAF1DE5553FFBF2036EBFD85F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC38A490917128D23E0D5CA991ECBE6D60951CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Tenorshare iPhone Data Recovery для Mac с лёгкостью восстан�
 ```bash
 magnet:?xt=urn:btih:9DF912EFBB3BF5A10551BC5903B9C8EAD400C97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Creative Cloud предоставляет последние обновлени�
 ```bash
 magnet:?xt=urn:btih:E6C74E84D3CB30DCA25B6CB03AD7098793E5443F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ The Inquisitor Book I: The Plague (2014) [Ru/Multi] (1.0) Repack АRMENIAC [Nico
 ```bash
 magnet:?xt=urn:btih:9B694594187430249793296551BEF0CEA2E962E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ Divine Gate / Божественные врата [2016, TV, 12] HDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:FB1D89BBDE86DB68A074F6EA8A3C17201A9A2833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE86850D84CA9B1D056EA59FB529551908AED20D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ Punch Club (2016) [Ru/Multi] (1.1/dlc) Repack ARMENIAC [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:AF19B5FD50278A0A51E78F62117692BD4ADA439E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ ProfIT | Дао программиста. Путь к деньгам, свобо
 ```bash
 magnet:?xt=urn:btih:176C502272F510C60F696979818892547A06CBA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +557,7 @@ Shapix - Shape Elements Pack - 2 версия анимационных элем�
 ```bash
 magnet:?xt=urn:btih:F06BA55401395142786DB177AD539C3A182FEEAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD5F371F4E3C2C5B1198B0370A10A203A95E913E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +607,7 @@ Ben and Ed: Bencalypse (2015) [En] (1.2.2) License HI2U
 ```bash
 magnet:?xt=urn:btih:C6C641824739973634B8676F9E2FC302F4972418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71E65050DEBCAD09C32894FF5B5461CE16511271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4779BF387C5E0F87DF210639AF84D0CA56BBA516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

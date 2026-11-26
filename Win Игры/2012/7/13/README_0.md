@@ -19,8 +19,7 @@ Grim Tales 3: The Wishes Collectors Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:3658AE8BA02516A2FA33A26E6793337592904B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Shank - Дилогия [Ru/En] (RePack) 2010-2012 l R.G. Механики
 ```bash
 magnet:?xt=urn:btih:867F623F349F575CCA7537AB6C94F7C3E702E755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ice Age: Continental Drift - Arctic Games / Ледниковый период 4:
 ```bash
 magnet:?xt=urn:btih:0E9A6F80E2F9210281A3262E16A49505EABB7B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

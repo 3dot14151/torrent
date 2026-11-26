@@ -19,8 +19,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.1.0/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:5A6A4B1AAE393163523FE481F52180138EBA4A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

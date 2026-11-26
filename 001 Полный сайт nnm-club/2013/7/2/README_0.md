@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6F24A33D5F2E33E55A57E0581117FD8C7274D9E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Loopstep - Coded Patterns (2013) [FLAC|Lossless]<Progressive, Psy-Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ DJ Shah meets Jan Johnston - Beautiful (Glimpse Of Heaven) (2007) (ASOTD 003) [F
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ VA - Rio Beach House Deluxe (Chilled Grooves Hot Selection) (2013) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:4F8EC9E3A064EB94C38189B7E04414CE89ED4C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ NG: Кладоискатели. Серия №9. Сокровища Нью-Дж�
 ```bash
 magnet:?xt=urn:btih:00FDB11EDC662FE3DFBDBDBCFB69C24D5169330E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08109A9855A95A84A0E53E96D9B8907A5543CB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F10EC6D3DF3268B86B280D1A5C442F8841F1FB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:841669B6343A71ADD7E061D6D0355DBECD7CABC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ InfoCity – ежемесячный журнал о компьютерной т�
 ```bash
 magnet:?xt=urn:btih:B55564312BEB6FB804158945716DD633562DA10B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F50A55A3E713086689ABB75E3EFAD555EC99FD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ VA - Goa Culture Vol. 10 (2013) [MP3|~245 кб/с (V0)]<Progressive Psytrance, F
 ```bash
 magnet:?xt=urn:btih:F2C51A387D0FEB3E23A7F3EAF2B2743EC57BBB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ NG: Кладоискатели. Серия №6. Потерянный отель
 ```bash
 magnet:?xt=urn:btih:AF1CF5FF3B24BE432EDDD990576D616C853C33EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Raise Data Recovery for FAT / NTFS - две программы предназн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ VA - Eddie Stobart - Trucking Songs (2013) 3CD, Box Set [MP3|~245 кб/с (V0)]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ Kubiks & Friends - Breaking The Mould (2013) [FLAC|Lossless]<Drum & Bass>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +506,7 @@ VA - Geniesser Lounge: Smooth Jazz Bar (2010) [FLAC|Lossless]<Chillout, Longe, S
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ Anamanaguchi - Endless Fantasy (2013) [MP3|320 кб/с]<8 Bit/Chiptune/Indie Roc
 ```bash
 magnet:?xt=urn:btih:5EBD38C645C2522CF25CF9C360450E57FA8EEE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:090E5270C4B3A204206E62FE5CA4DCB6E7DFB941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ The.Invalid - The Aesthetics Of Failure (2013) [MP3|192 kbps] <Ebm / Electro / I
 ```bash
 magnet:?xt=urn:btih:8400CD7DF3FEC32E12B09801D93F00C2C873DE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +658,7 @@ VA - Радио DFM - D Чарт - Top-30 (28.06.2013) [MP3|128-320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:A7D13EBEAE3073595C2EF00C8E5711A08B6EDA45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ Blu-ray Player – это лучший, всемирно известный Blu-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ Solarstone & Clare Stagg - Jewel (2013) [FLAC|Lossless|WEB]<Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ Orange Goblin - A Eulogy For The Fans (2013) Live [FLAC|Lossless]<Stoner / Hard 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

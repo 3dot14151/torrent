@@ -21,8 +21,7 @@ VA - Dance exclusive №8 (2016) [MP3|320 Kbps] <Dance, Club>
 ```bash
 magnet:?xt=urn:btih:212A020A0DEC20F53D099C3736270AE36DBCADED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Chillout Ibiza 2016 (Best Of Balearic Chillout Lounge) Vol.5 (2016) [MP3|32
 ```bash
 magnet:?xt=urn:btih:CFC5B1D1CB4665D30215308C30D9ABDDD713C6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Petri Alanko - Quantum Break (Original Game Soundtrack) (2016) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:217D787FF96746824DC833449A6A1C1353C7C179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B46D3A7C7186D7B45A21CDCFBA1E1F88F9DFB648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Anamanaguchi - Scott Pilgrim vs. the World: The Game (Original Videogame Soundtr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Larry Miller - Larry Miller (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:C5C1607D852E85090DCC0B074ED5C34E6C2492EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FBF862371AA1DE12F476763549D6B1DDB579F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Postico - рациональный (   Читать дальше...   )Тип �
 ```bash
 magnet:?xt=urn:btih:28710B2DE8D1E8CD84D4BD315565372D94DDCC55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CB83F155A4776DEF290E4BDCAFA8D4AC49964A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Usher - Отличное средство для создания и веден�
 ```bash
 magnet:?xt=urn:btih:5CEC1E0A2FADEF0573D4FFDA9C7FFA9E1C5A54AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Lisa Downing - The Wisdom Of My Shadow (2016) [FLAC|Lossless|WEB-DL|tracks] <New
 ```bash
 magnet:?xt=urn:btih:ED0CE0CC760C523610346F54074B02B68FB7F57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13AF181293EDFBC4A87B22E7D7EED7165AE89BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - 100 хитов от Hit FM. Выпуск 50/50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:5758C5AAD348D64A86D1F70BBCCFA0308C64353C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F99BD811C948E0F0105DEA485F935613D2FE474D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ O'Connor Band with Mark O'Connor - Coming Home (2016) [FLAC|Lossless|tracks] <Co
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ VA - A State Of Trance Classics 2015 Pt.1 (The Full Unmixed Versions)(4CD)(2015)
 ```bash
 magnet:?xt=urn:btih:7CD4E56B1E297CCBDCC52FC67D096A96B04B91E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52BACFBCEB8CFC250CD710FCBF856CD9C4B94174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Prefab Sprout - Steve McQueen (1985) Remastered, 2007, Legacy, 2CD [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Gregg Diamond (Bionic Boogie) - 5 Albums (1977-1979) [MP3|320 Kbps] <Electronic,
 ```bash
 magnet:?xt=urn:btih:D54CA9561467ECC6C2DDA0E4A04E971F99F794E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ Eldiarn - Безудержное счастье (2016) [MP3|320 Kbps] <Folk Meta
 ```bash
 magnet:?xt=urn:btih:6A37A3AF12D0619F7075416A8DB33955C0E42193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3A653FE19B0462F717F2432D88C7BBB55B5AA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ VA - Хиты радиостанций. Горячие новинки (2016) [MP
 ```bash
 magnet:?xt=urn:btih:96E902C210271AC0E73BB7056A00197B6217844F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ VA - Sinners Lounge: Pure Pleasure (2008) Box Set, 2CD [FLAC|Lossless|image + .c
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ VA - Made in Cuba (2000) 2CD [WavPack|Lossless|image + .cue] <Latin, Afro-Cuban 
 ```bash
 magnet:?xt=urn:btih:2FD48D847B9353CDCB401AE72FF91335931F5C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC77D43ABAD39D374A0AF96CAD53286D8EF40489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

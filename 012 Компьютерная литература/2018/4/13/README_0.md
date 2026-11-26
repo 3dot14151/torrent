@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5288F900CEF9AAD64B0AB049F9B1FFA82097FF2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ excelok | 151 трюк Microsoft Word (2017) [PDF]
 ```bash
 magnet:?xt=urn:btih:AF66E40FADF28911912BA8285AAC8EEF37F2958E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF12FD9D4FB0229A96720FD73CE48FFC37B1DD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

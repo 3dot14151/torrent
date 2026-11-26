@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:79EC99BBEEB52610638CB077E0A6788C5D8F6CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2767E4D4BD2909BA1625E14DA1BF2D0557E9BC46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:545E124BF99FEBBB3FAA4DFA2F459ED3AF3C2C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A2BB192D8030EA56335BC2E518777B897E95D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Debbie Bond - Enjoy the Ride (2016) [MP3|320 кб/с] <Blues>
 ```bash
 magnet:?xt=urn:btih:D302D67CEAAA4C0FDEEF352A46125D32D70C61D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Artillery - Penalty By Perception (2016) Limited Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:CE875F713A71E455B0F4F4A1650E031250976B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Sky Roses - Step Forward (2016) [MP3|320 кб/с] <Chill Trap, Future Bass, Chil
 ```bash
 magnet:?xt=urn:btih:A1B9E181576372146FAA3BD7B658032835F7305E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF1A027D17670DB93F37A702C866931DC105A5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FA72C17C0A1539913805FCF990D2DC3173A74E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Paolo Fresu, Richard Galliano & Jan Lundgren - Mare Nostrum II (2016) ACT Music[
 ```bash
 magnet:?xt=urn:btih:2300C78785A9480462B40F2345E88A184E871B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ VA - Летний Хитовый Музон (2015) [MP3|256 кб/с] <Dance, Сl
 ```bash
 magnet:?xt=urn:btih:E2ED6EC958173FDDAE81862024342A66C64B1488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ VA - Lazy Sundays Vol 3 (2016) [MP3|320 кб/с] <Deep House, Chill House>
 ```bash
 magnet:?xt=urn:btih:006A4CFA12BEAA7F57635C094B07BE6F83518B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Pee Wee Crayton - Pee Wee's Blues: The Complete Aladdin & Imperial Recordings (1
 ```bash
 magnet:?xt=urn:btih:B27B10F3026E2F2E69D8F75A46D455152BD4E623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:231C5E4DD098F7B3715274C956E826D4836FF600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31296FF7364D4D439A1F14A3EC35B2405238D6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ VA - Autour De Minuit: So Sexy (2012) [MP3|320 кб/с] <Jazz>
 ```bash
 magnet:?xt=urn:btih:B619210A4A042BAB00441412BB08F0F18D0E8955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D2EB1D7579E87F8643F764D48C354627404331D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55DD0EE454E1BD94EA57C6626282C4B33E780E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ HMR - Ад Уже Здесь (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:49C01F0282032A49AD3EAB3860EBE552A9F6A95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ VA - Шансон душевный. Любимые песни 4 (2016) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:221C5582020A280D6EC4BE9F3559B56DC9A1A6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:5A4251B207D25172169F83E03E7809628E1E5791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ Easy Disc Burner 4.7.5.341 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:77D556AFB730BCE8E980737631C1FF2076BBDA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ DJ Mash Up - Summer Vibes: Chill-Out and Dance Hits (2016) [MP3|320 кб/с] <Po
 ```bash
 magnet:?xt=urn:btih:4C79029CAF964CB4C542C7F7A848FD4E58691408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ Vigilante - Turning Point (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic Rock,
 ```bash
 magnet:?xt=urn:btih:4F23E2DAEC0867FB1AB81C5385B961C4873B819C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

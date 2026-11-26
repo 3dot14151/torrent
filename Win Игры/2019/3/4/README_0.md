@@ -19,8 +19,7 @@ Elven Legend 7: The New Generation / Эльфийская Легенда 7: Но
 ```bash
 magnet:?xt=urn:btih:7EC3E2DC53FB75463354BECD35FC4C67ED2EED14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kenshi — революционная ролевая «песочница», в 
 ```bash
 magnet:?xt=urn:btih:8C36721CAADE790AD3181F384094827938D1D0B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Space Engineers - это фантастическая песочница, где
 ```bash
 magnet:?xt=urn:btih:E52203F10E630FFC812EEEED4051D704A5395F8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

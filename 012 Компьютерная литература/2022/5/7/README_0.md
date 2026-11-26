@@ -21,8 +21,7 @@ Swizec Teller | Senior Engineer Mindset (2022) [PDF, EPUB, MOBI] [EN]
 ```bash
 magnet:?xt=urn:btih:AB4D6B3A6CE44045C0606C406695B0898B1C8B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Outpost: Infinity Siege - это гибридная игра, сочетающа
 ```bash
 magnet:?xt=urn:btih:FA81430E55AC6ED3A41452E98C5437E1DA813AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Construction Simulator 4 (2025) [Ru/Multi] (1.0) Repack FitGirl [Pocket Edition]
 ```bash
 magnet:?xt=urn:btih:83781487D4F072742788035C6DA89A0B561041F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Company of Heroes 3 (2023) [Ru/Multi] (2.2.0.40455/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:49DDECB713076903CB7BD251A936E7917776DD21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Unmourned - это игра в жанре психологического уж�
 ```bash
 magnet:?xt=urn:btih:64AACBDC3E6378BF5661C74A6CBE9FF8935EE392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Living Legends 13: Haunting Melody / Живые легенды 13: Завора�
 ```bash
 magnet:?xt=urn:btih:607E1129A06104B60AB4A4221FF2249F37D8018C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crime Simulator (2025) [Ru/Multi] (1.19b) Repack Necros
 ```bash
 magnet:?xt=urn:btih:66783640A7CDC1A5CF441E968FD2C0A38EF329D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ MARVEL Cosmic Invasion (2025) [Ru/Multi] (1.0.0.12208) Repack Necros
 ```bash
 magnet:?xt=urn:btih:7F9B04DE62381D0F8F457730FD32AAC9026C164C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Montgomery Fox and the Case Of The Diamond Necklace / Монтгомери Фо�
 ```bash
 magnet:?xt=urn:btih:0D88AE0516F6AD9851821BC2D101F58CDF764888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Crime Simulator (2025) [Ru/Multi] (1.21 HF) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:95E53B25D87AB005F013792D2E10F4F60813E779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Onimusha 2: Samurai's Destiny (2025) [Ru/Multi] (Build 16840726/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:E5744A3D0AFD7D533A951256F4C318C0F93983D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Possessor(s) - это стремительный сайд-скроллер с б
 ```bash
 magnet:?xt=urn:btih:6728AC5C24182FAD7B58216658BEEB7C9809C1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Monsters are Coming! Rock & Road (2025) [Ru/Multi] (1.0.8.0) License GOG
 ```bash
 magnet:?xt=urn:btih:21EA40B9A6E5834B9CD7FC2A513ADC732904B5D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Shana - Priestess of Tona - это 18+ автобатлер-рогалик, гд
 ```bash
 magnet:?xt=urn:btih:84AD08556C3405D048106C123C18FEB4D213797B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ SANABI - это увлекательный экшен-платформер, де
 ```bash
 magnet:?xt=urn:btih:464F682B5C1EF3B36F712ECA5D3685CC17EE071C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (1.0.4.20760/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:D1F250108C8E49234A4661ECD84C0E1EF9823106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

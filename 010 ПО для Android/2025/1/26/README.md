@@ -19,8 +19,7 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:1E3A2B8D5E75097719BA8F4EBF736C9772796E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PlayerPro Music Player - аудиоплеер, что предоставляет
 ```bash
 magnet:?xt=urn:btih:9A4FD1E5E67DD3F33DF007B56B74731581F7AECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8D766ECDCE47CB8F4597A89DD5FC19DF8BA56C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Textra SMS v4.79 Pro Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:921C5914C310D7DB7E81E21A8D4C3D9D5A75C097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

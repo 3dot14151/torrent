@@ -28,8 +28,7 @@ Kvelertak - Meir (2013) [MP3|320 кб/с]<Black Metal, Punk Rock, Black'n'Roll>
 ```bash
 magnet:?xt=urn:btih:4232662938BB3725427E80868F5E4448DCF562A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Kvelertak - Meir (2013) [FLAC|Lossless]<Black 'n' Roll/Hardcore/Punk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Stryper - Second Coming (2013) [MP3|320 кб/с]<Heavy Metal / Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FFC1235CB1535EF6B2850E91E0E842BE5A131EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Finntroll - Blodsvept (2013) [FLAC|Lossless]<Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Pretty Maids - Motherland (2013) [FLAC|Lossless]<Heavy Metal / Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Glam Rock (1993) [MP3|320 кб/с]<Rock, Glam rock>
 ```bash
 magnet:?xt=urn:btih:4590A0BF0A40B06AFDE958BC1B0E250D0BAECF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ VA - Glam Rock (1993) [FLAC|Lossless]<Rock, Glam rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ The Prophecy - Salvation (2013) [MP3|320 кб/с]<Progressive Metal, Doom/Death 
 ```bash
 magnet:?xt=urn:btih:925230C321C094D26E21A379D447B00327B24D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Hypocrisy - End of Disclosure (2013) Limited Edition [FLAC|Lossless]<Melodic Dea
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ Anthrax - Anthems (2013) EP [FLAC|Lossless]<Heavy / Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77247EE53F639DB787FF0A190E8AC69486C6AE3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5382C523DE70887E914E235CA155AC430553E84B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ Creedence Clearwater Revival - Chronicle (1976) [FLAC 2.0 24/96|tracks (WEB-DL)]
 ```bash
 magnet:?xt=urn:btih:3425C7FBC685E2A8A92FBE22C5D278E79C4AF24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +432,7 @@ The Rasmus - Official Discography (34 CD) (1995-2012) [MP3|128 - 320 кб/с]<Al
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

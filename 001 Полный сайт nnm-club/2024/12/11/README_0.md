@@ -18,8 +18,7 @@ Kong: Survivor Instinct - это 2.5D экшен-платформер, дейс�
 ```bash
 magnet:?xt=urn:btih:515C70F6D69D02A623F492316BE6950A8BA97297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB0DDB5C49E08E2CC1EC72F4E52777D67BCA5B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43478E0E4F47DB3E603779B94CD4C2265ED77911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Bad 2 Bad: Apocalypse (2024) [Ru/Multi] (Build 16701862/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A0C8C46BA9F4DD3BEDCD06F3BC5B263B01DA4674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:FC0BB4C4C373A4F7342CBD675945A1876BE48179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
 ```bash
 magnet:?xt=urn:btih:7F17E6CDA5936D305465497EE9EC841DB666333E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ MAXON CINEMA 4D – простая в использовании професс�
 ```bash
 magnet:?xt=urn:btih:92259FF5285D8F8D3E32E8EEB3E9ADB725585205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:536033C0DB8899EE8B1E11CFDC0F90D1C123378D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ MAXON CINEMA 4D – простая в использовании професс�
 ```bash
 magnet:?xt=urn:btih:1D0E777A41AD930812240202B4AE344053F6B02E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Launcher for zapret 1.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:D989E4E4E1AE5EA306C2943F12E13A4E2647A187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Jinn'sLiveUSB - конструктор мультизагрузочной фле
 ```bash
 magnet:?xt=urn:btih:C112BAAC798E2E6294E06D96A15452537D81BF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ O&O ShutUp10 позволяет получить полный контроль �
 ```bash
 magnet:?xt=urn:btih:F2BC4D45AAD925C4261E7CA3C2F88401A87D95DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18D8550822E7BBCAE1998471877034D272B2A29E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Acro Trip | Плохая поездка [2024, TV, 12 эп.] WebRip 720p raw
 ```bash
 magnet:?xt=urn:btih:5AD2445C716BF99F44BB94CD0935CA7DBC74387F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
 ```bash
 magnet:?xt=urn:btih:A9AE378988E74107FDA2DD5C98FA70231845547E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (Build 16541638) Sce
 ```bash
 magnet:?xt=urn:btih:27C53F4CE5076005C06182F46CE7C4623D533D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E17095E1A1BEF2D93FADD8F4921F420ACBA03FAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACEB7E3C3D2814C5675A60BFBD70BC89E000CFDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:4ED3A94E91305FC188C4D9ECA8EC989ABCD0B191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ HTML Academy | Курс «введение в react» [Demo] (2024) [unpacked]
 ```bash
 magnet:?xt=urn:btih:E9F6DD92C9D3D86A8D5624E4DBE63545CC29A109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B6B48E0B81601A48C3E212AA1B8DC75252B8BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ VA - Love Lounge, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:332DA6CB506E3D4748D36D249154555022A3ECDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BEAC0264EC8B0CB86D65F27B28D6ECF96535045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +632,7 @@ VA - Collection Winter Chillout (2024) [MP3|320 Kbps] <Lounge, Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:F418BDF53D5449C8ADDDB003927415A4810E1378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3A97C9E95C7E1C3858EA26A4C2AAD604F3225DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

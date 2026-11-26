@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:3EB93ECC186E669B20AFF755D1C05169F792E73A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E64F9A3ACB3D2AC3436576497CAB585F4E4E4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dig Me No Grave - Under The Pyramids (2020) [FLAC|Lossless|image + .cue] <Death 
 ```bash
 magnet:?xt=urn:btih:6183053DC104622C3EC483E03BADAFD9DAE02571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

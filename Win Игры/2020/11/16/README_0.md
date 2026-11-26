@@ -19,8 +19,7 @@ Paranormal Files 6: The Trap of Truth (2020) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:F482A50724C891E3AADF3EC5AD82E05762CC116D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

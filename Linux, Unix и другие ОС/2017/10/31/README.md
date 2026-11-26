@@ -21,8 +21,7 @@ Skype (произносится «скайп») — бесплатное про�
 ```bash
 magnet:?xt=urn:btih:65D629381AA368A0155C6E78032BD257CC322B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

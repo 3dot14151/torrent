@@ -19,8 +19,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:62D6870F253F33F7F89E0F26FB37358131B26AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trepang2 (2023) [Ru/Multi] (2471/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:12E97CC47BCD822C1F6AAB020B2DDBEFEF0DBA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Minecraft Dungeons. Новая приключенческая игра, вдох
 ```bash
 magnet:?xt=urn:btih:34088224FE640C455FEAE0AE2EA6091EED9FE890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ POSTAL 4: No Regerts (2022) [Ru/Multi] (1.3.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:73197D95185AA2B958CAA1C317754EA68D828F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:413E8CBF368B8123556816F95C28FFB72B0A9BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Earl vs. the Mutants (2024) [Ru/Multi] (1.0) Scene Unleashed
 ```bash
 magnet:?xt=urn:btih:5CC614ED9AF99F67B57410087F344EEFE4EC0175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ UBOAT – уникальный симулятор управления подв�
 ```bash
 magnet:?xt=urn:btih:362DCE3A2A4F38B130E6218E3516D1F705AD7DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Octopath Traveler II (2) (2023) [Multi] (1.1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:40E01FF992D58C7402E4F120525C5DACBDA1451B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mecha Knights: Nightmare (2021) [En] (1.620/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:04730358D1232819340C85E7B73925096339CC90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Thank Goodness You're Here! – перенесет вас в Англию, в г
 ```bash
 magnet:?xt=urn:btih:DCBCF56AC4FADDE8DD569E4E2B8198641A53AE1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ My Lovely Wife - приключенческая игра, события кот�
 ```bash
 magnet:?xt=urn:btih:538645422DB2FD0814608707FB6B04D46244DF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ PIGROMANCE (2022) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:17371BFF8DA93699668249429B91ADDF77D299AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Closer the Distance (2024) [Multi] (1.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:BC76B1B4E508A3E096F3CE50EDE64558873D0B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Deadlink – научно-фантастический шутер с видом 
 ```bash
 magnet:?xt=urn:btih:CE0C9510244C3368F4A3E8724F645CE2825713A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Kingdom Shell - двухмерный экшен, выполненный в ду�
 ```bash
 magnet:?xt=urn:btih:C006E2E9C7D0413D1637815C7E8BB78639BC85C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Neon White - приключенческий платформер от перво
 ```bash
 magnet:?xt=urn:btih:14506118BD3EE4C3D45F1F82EABD17249C7C5DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Minds Beneath Us - приключенческая игра в стиле киб�
 ```bash
 magnet:?xt=urn:btih:EDF384A03055A7BDACF0BF02762B440E75372097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Strategic Command: European Theatre – пошаговая военная стр
 ```bash
 magnet:?xt=urn:btih:24417BB60598C98FCA17CB381FAACE8759E8DA35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

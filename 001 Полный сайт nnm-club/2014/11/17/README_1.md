@@ -27,8 +27,7 @@ Joanne Shaw Taylor - The Dirty Truth (2014) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:00DAB2AA2915D443C00FDB4600286FC60C5D9944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4457A832049AED5DEBFD752B6610B937D6D4199C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Ashampoo HDD Control - программа для контроля работы �
 ```bash
 magnet:?xt=urn:btih:D3BEEA1360EBBB927C73EAA6CD8AEDBCDDA98E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C70511754A17ADCA2EB843480728B1B74A1C8ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Discovery: Динамо. Невероятный иллюзионист / Dynamo.
 ```bash
 magnet:?xt=urn:btih:6145BF0B5C39AE3DD0D52DE769017F2452F2E75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ SAM Broadcaster Pro — профессиональный инструмент д
 ```bash
 magnet:?xt=urn:btih:E75BABAE0B9149DE7DB48AB37FF10523A6BB0403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ NG: 90-е: десятилетие, которое нас объединило / 
 ```bash
 magnet:?xt=urn:btih:D2BB8C9034CB3AE870713178977453DCC50CBAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Los Pastores (Chaya Riojana)
 ```bash
 magnet:?xt=urn:btih:DD3B698418474AA383CEFFFBF50813B748C7AC62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C4A39A970D0FCCA717ACC956BA41B57B86EE4C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Light Alloy – мультимедийный плеер для ОС Windows. П�
 ```bash
 magnet:?xt=urn:btih:8BAF9AB6DA7CBF246BEB561F63E06ACF8116A39A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Discovery Scienceу: Двойники Земли / Alien Planet Earths (2014) HD
 ```bash
 magnet:?xt=urn:btih:A0BEAB08B4BEF72BA8EF0BED848D93AF5FF9EBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Akella Presents: Blues-Rock (2014) 2CD, Vol.43 [MP3|320 кб/с]<Blues Rock
 ```bash
 magnet:?xt=urn:btih:AEE5821777BD0F735E87C96E271749E2CE4C0AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ SAM Broadcaster Pro — профессиональный инструмент д
 ```bash
 magnet:?xt=urn:btih:9BA0CC000A98032D2B99483413332AD7AFC81EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:157F908C9FA9902F1F8EBF784EA7D2B4F2DC2317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:130D3CFDBF894B5174BD697067D9232BD8576AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1E9FE0A27A525C8288558A5F9BE2A654B8B3661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Crystal Security - небольшое приложение для быстрог
 ```bash
 magnet:?xt=urn:btih:68A36A1B19C8E584A49B2B8A00E7BD93C179C04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB988951365D5FF6F45C51176C936DC236C33726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42DB7CB74C15FEB39AC45A351E5E9CF71422CCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Fantasie in C, Op.17
 ```bash
 magnet:?xt=urn:btih:465DBF8ED2B30D6AF6CB2381AC8C0FCD7CBA7DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C236029B697CA96CA40CFFD40913A2A8B25E53FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ Also sprach Zarathustra, Op. 30
 ```bash
 magnet:?xt=urn:btih:6A19A04FC2BB9C1862EFBA2418C9009BCBF0945F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8682694C182207B2B20111770652508E64773453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ Costume Quest 2 (2014) [En] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:8BB105044CD1DA702178AFED10C4B1E586B3A033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

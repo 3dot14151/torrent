@@ -19,8 +19,7 @@ SD Maid SE (он же SD Maid 2) — это инструмент управле�
 ```bash
 magnet:?xt=urn:btih:84484152E11405994218AE180E4421F38CE42764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

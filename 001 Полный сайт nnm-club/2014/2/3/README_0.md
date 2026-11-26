@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DB2B19DA0EF37DE0ABBC1E28E3AB2828F4C00449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Additional Tracks By The Action
 ```bash
 magnet:?xt=urn:btih:E10A4FE3B89A6A214F886BE16C43CCDCAC6D4424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Framework - Untold Stories (2013) [FLAC|Lossless]<EBM, Electro, Industrial>
 ```bash
 magnet:?xt=urn:btih:B6240DD26538C1754348BD5BE60D052C82E190BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Juicy Bits - Moon Sine (2014) [FLAC|Lossless]<Progressive, Tech-House>
 ```bash
 magnet:?xt=urn:btih:03E8C461193051021677211EFECC33AFCC0C7B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F6284E5D508DC17199A2F488EE2DE13B6419F5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ VA - Vocal Trance Collection Vol.112 (2013-2014) [MP3|320 кб/с]<Trance, Vocal
 ```bash
 magnet:?xt=urn:btih:6CCFC995355EB1A658E35D019009019C928CB7A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF7B4FD30544BBA152D1B133C3805D161F6B50E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ VA - Project Dance Blaster (2014) [MP3|320 кб/с]<Club, Handsup, Vocal, Disco,
 ```bash
 magnet:?xt=urn:btih:1FA47CEE0AEFBAA302AFE6B8DD3D167A571EC901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F5EDE661F0C661989422DDCAB8E5064E2C75EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D9E4A8A0ED62F199C5B627E13A4A09666556A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ Allan Harris & Takana Miyamoto - Convergence (2012) [FLAC|Lossless|WEB-DL]<Vocal
 ```bash
 magnet:?xt=urn:btih:D28ADF0FE3BF509E2D95CE6F1B18123C7A62E6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2365D776652C4333BB451E6F9ECA04445485FB70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56326F98E75DE154F48C63DD14445D7DE4E145D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ Jacintha - Lush Life (2001) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:95F1758DEAF9D975474A729AE2FF9C339CECD2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ Bruce Becvar - Time Dreams (1994) [MP3|320 кб/с]<New age, Guitar>
 ```bash
 magnet:?xt=urn:btih:3C10630860918B8F0DF81B659CD85BC842D08F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ VA - The Lounge Experience 100 Chillout and Lounge Tracks (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:FC46A313C5F1AF2DA45930DC437579CE5CF4FA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ Alexander Zonjic - Doin' The D (2009) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:0683EB3642BC753F2FEA1D87A64DE34E8E71ACB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ David Grissom - How It Feels To Fly (2014) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:A13797C61F19D933908B5BBBF698E6E4BF3F809E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ Tony Bennett - The Complete Improv Recordings 4CD (2004) [FLAC|Lossless]<Vocal J
 ```bash
 magnet:?xt=urn:btih:091A44F984A434E8AE841BEB1FC50561B4B4EF16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ Jacques Stotzem - Catch The Spirit II (2013) [MP3|320 кб/с]<Instrumental Rock
 ```bash
 magnet:?xt=urn:btih:9C532EA080EC3EAEEAB8E483D942DA877ED3B8DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80D45B24705F057A43F03AD6C1602E04DA881F6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +650,7 @@ ARCONS - камера, использующая эффект сверхпров�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ VA - Essential Jazz 8CD (2002) [FLAC|Lossless]<Swing, Big Band, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:1CABF96A033FE63FE6F9910B96698FB4D7FAC835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +711,7 @@ Kazuki - Spaceship Earth (2012) [FLAC|Lossless]<Morning, Progressive>
 ```bash
 magnet:?xt=urn:btih:0169CC5323F3F0902979CAB86720BC849D216B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +745,7 @@ Davwuh - Tokyo (2014) [FLAC|Lossless]<Bass, Future Garage>
 ```bash
 magnet:?xt=urn:btih:4179C8BE42D16F045F7400EFBA999FB55BFBF68B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -799,8 +774,7 @@ Adam Hole & Mark Easton - Monster Guitars Live (2014) [MP3|320 кб/с]<Blues Ro
 ```bash
 magnet:?xt=urn:btih:F54D9F3875B73D0161FEC8244514ACBBF969A30C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

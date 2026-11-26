@@ -22,8 +22,7 @@ Centric Jones - The Antikythera Method (2011) [FLAC|Lossless|image + .cue] <Prog
 ```bash
 magnet:?xt=urn:btih:D7E7E71F70E96D5E5BD3F112AE4796BF48E2A410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Circus Brimstone - Live - Brimstoned In Europe (2005) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:79EDDED9717C489859BE2EF0730E4847A65CC36B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Alter Bridge - Walk The Sky (2019) [MP3|320 Kbps] <Alternative Rock, Alternative
 ```bash
 magnet:?xt=urn:btih:C643C4E33D20EBB1679E8BF641D3EA2FD78AE9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ CD4 - 01:16:38
 ```bash
 magnet:?xt=urn:btih:FA55AEF27739731409C88474351A28ADDE6FD94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Skunk Anansie - 9 Albums (1995 - 2019) [FLAC|Lossless|tracks + .cue] <Alternativ
 ```bash
 magnet:?xt=urn:btih:989BFA364FBE59911661D579FF1FA4639EECDCBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23B236ED54FAAC519A7303A459149A276B7505D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

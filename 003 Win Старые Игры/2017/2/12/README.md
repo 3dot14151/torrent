@@ -19,8 +19,7 @@ Leisure Suit Larry 6: Shape Up or Slip Out (1994) [En] (1.000.000) License GOG
 ```bash
 magnet:?xt=urn:btih:0147A9F53BFD8FF2189DC5C95F8D237689C5BDBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

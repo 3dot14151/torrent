@@ -19,8 +19,7 @@ Brigand: Oaxaca - это хардкорный гибрид RPG и FPS, дейс�
 ```bash
 magnet:?xt=urn:btih:69BA985716B6EB69678A139004386C037DD39EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Knock on the Coffin Lid (2024) [Ru/Multi] (1.3.5.4/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D4B35A5B30D739C9E363427318F990D9CB577F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Starship Troopers: Terran Command — захватывающая стратег�
 ```bash
 magnet:?xt=urn:btih:38CB75820E91D2F51E485E7DD2A0479989E2C690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AI War 2 (2019) [En] (5.714/dlc) License GOG [Titan Edition]
 ```bash
 magnet:?xt=urn:btih:CDB1B194FB626D9BEB8A64B6317F60B9AA81B20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Airships: Conquer the Skies (2015) [Ru/Multi] (1.2.8.2/dlc) License GOG (обн�
 ```bash
 magnet:?xt=urn:btih:5F3A153371B77338010CCD93BC70C8966D1D1D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Iron Core: Mech Survivor — это однопользовательская р�
 ```bash
 magnet:?xt=urn:btih:AF9306B9709C8C04D88EBA66A8E482CC2A7BAB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) Repack Let'sРlay [Complete edition]
 ```bash
 magnet:?xt=urn:btih:64D9498F59D473053FA22629E6020D05A28B0A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.05/dlc) Repack Let'sРlay [30th Anni
 ```bash
 magnet:?xt=urn:btih:0C23457ABA9C1080A8124008FBEB30FFB96EC141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Empyrion - Galactic Survival – это приключение с выживан
 ```bash
 magnet:?xt=urn:btih:1ADC7EEDC41D659A148BE634FF394B069D052C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Monster Prom 4: Monster Con это многопользовательский с
 ```bash
 magnet:?xt=urn:btih:6A9AAB142569D4925AA1F50CA89E3BDAAE80E9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Heads Will Roll: Reforged позволит игроку примерить на 
 ```bash
 magnet:?xt=urn:btih:043E1ED729D9CF12DD85694FE30AD4EF33146BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Shape of Dreams (2025) [Ru/Multi] (build 19939749) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:35BDCA9202F23BC1F418CA11521D1CDDA5B0AFC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.01.010/dlc) Repack Let'sРlay [Supporter Edition
 ```bash
 magnet:?xt=urn:btih:E960954363864F6987084A9398CDFA25D3E1CE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ X4: Foundations - долгожданное продолжение успешно
 ```bash
 magnet:?xt=urn:btih:79D76AC8F409101C9E7A288605D155BDA5CBF842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Shape of Dreams (2025) [Ru/Multi] (1.0.0.RC12 s) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B6765B7C49A3E0C0149DA4152670F6B3972C147C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Whispered Secrets 17: Poisoner's Masquerade (2025) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:3AFEDB4D0EF71A40EE5432D9CBCC1658E1BDD31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -25,8 +25,7 @@ Scorpions - Taken By Force (1977) BSCD2 /2013, Sony Music/ [MP3|320 кб/с]<Har
 ```bash
 magnet:?xt=urn:btih:37E8AAC06B47961B434E0CA6E3301447D0405493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Scorpions - In Trance (1975) BSCD2 /2013, Sony Music/ [MP3|320 кб/с]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:AA0549AD6F11C2D484E7079A30BF76286113157B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28A28DCDC20F99C70DD59FB1A2B7D82640663D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ VA - Романс влюбленных (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:1A44B077F09A2148C075FB96700C4D15AA1A86F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Lunarsea - Hundred Light Years (2013) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:A73DBD75D7C044FEC575BF22D7F1DCB2FCF0EDA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Designs for Mail  является отличной коллекцией из 14
 ```bash
 magnet:?xt=urn:btih:F977A6BCF53A4AB877D3A765740F3E70131C16AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ VA - Best Dance Collection Vol. 8 (2013) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:384D289E6EA47B42D2FA0FB7B5BB6DDC627B4D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D1D7FF6E6DE1ED23FEF67261E02429DCFACDAF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ Saxon - Unplugged and Strung Up (2013) Compilation [MP3|320 кб/с]<Heavy Metal
 ```bash
 magnet:?xt=urn:btih:B0ECB3B61302E8BB0112D865A15D330003E6B3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Scorpions - Virgin Killer (1976) BSCD2 /2013, Sony Music/ [MP3|320 кб/с]<Hard
 ```bash
 magnet:?xt=urn:btih:3105EEF9F47D606DCC541B2AA28F5D1C89C6C6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:7C20457BA7F941EA417B94762FE80FCCA5D2A56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFC22C7EB8291D3FE23FFEEBC0D0D8403DD54D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ Photo Montage Guide - программа для отделения цельны�
 ```bash
 magnet:?xt=urn:btih:4DEECDF269D1849F5EF9B0A8513569727E5FBE11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ VA - Trance - The Early Years Vol 2 (2002 - 2007) (2013) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:70C93C11D80CBFF63B50E04FF9DC44ACD337660C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ Virgins O.R Pigeons - Gotta Get Mad (2CD Limited Edition) (2013) [MP3|224-274 kb
 ```bash
 magnet:?xt=urn:btih:6EE1D1F43DC0BBE81E712A0DA6532AC21D03377B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ Haunted Halls 4: Nightmare Dwellers Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:6B2A2612B67F103185D7EC555BBFE1A9FB8C6B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7B9AAD2F4169639275F113EA5101CB051A17770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ Bandizip – это легковесный архиватор с симпати�
 ```bash
 magnet:?xt=urn:btih:3F0D53426DE155702868AE6238624AA491A9E040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ Business Mix Set представляет собой прекрасный ком
 ```bash
 magnet:?xt=urn:btih:F7CBF1E7758AEEA19EB3141C2536D0A1473DED1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AD32F9727B4034503A461AE0C6EE553561A35AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ Causa Sui - Euporie Tide (2013) [FLAC|Lossless]<Psychedelic Rock/Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:40E52AADD328B915ACCA2894C1D4A7E9EFC29D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C25A888B845600C5789FE5F186F3934B269A37AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ Diezel DJ Power - Beauty and the Beast (2005) [MP3|320 kbps]<Electronic, Synthpo
 ```bash
 magnet:?xt=urn:btih:68F679153A175AFBE66177BD7926A82709A49FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +740,7 @@ VA - NOW That’s What I Call Music! 86 (2013) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:FCEDEF0C9DD197F51632A85BA155FAF866800059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FA99F54AF19D298453D302F0FBBB4588BB35BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

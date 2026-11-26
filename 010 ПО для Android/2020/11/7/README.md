@@ -19,8 +19,7 @@ RocketENG v1.5.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:31C35B5D9ED434B7FCF02A07CF29F074BF1B81F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

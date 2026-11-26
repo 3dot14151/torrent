@@ -19,8 +19,7 @@ Witches' Legacy 7: Awakening / Наследие ведьм 7: Пробужден
 ```bash
 magnet:?xt=urn:btih:DD860CC6D529322936ADA224EF3E9F38B9D7DC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Danse Macabre 5: Lethal Letters / Танец смерти 5. Роковые пи
 ```bash
 magnet:?xt=urn:btih:FC133DB724AE296B5A241FA4D56B5AB6B23A4A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enigmatis 3: The Shadow Of Karkhala / Энигматис 3: Тень Карха�
 ```bash
 magnet:?xt=urn:btih:3D5C18A397A0A88A3ACE8EDD799851883BECDE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:1C6A2D05B5476B11C35B88B36B2392F10153FB57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Worms Reloaded (2010) [Ru/En] (1.0.0.478/dlc) Repack Mizantrop1337 [Game of the 
 ```bash
 magnet:?xt=urn:btih:0FEF727B4B1B60B13AE9ED7B9947BF1D788F8C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Disney Infinity — приключенческий боевик и песочн�
 ```bash
 magnet:?xt=urn:btih:46CE63753E04AD3090F68EEF8195209E2CD8B30D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Void / Тургор. Голос цвета (2009) [Ru/Multi] (1.0) License G
 ```bash
 magnet:?xt=urn:btih:5C2F0054EA35B0C906631C833B912CCA52CE8692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Warhammer 40,000: Dawn of War II. Разработанная отмеченно�
 ```bash
 magnet:?xt=urn:btih:C8C466D5E1397FA6ED77E3C72CDA0FCAC2264667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Jeromes Dream - Completed  (2005) 2CD  [MP3|320 кб/с]<Screamo, Emoviolence, H
 ```bash
 magnet:?xt=urn:btih:DEA67DB8CF14704E5E141DB885A88BFB6C9AFAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Javier Paxarino - Temura (1994) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:2888FCA5AD7157A47F98607B04246F37472429EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Monde Celeste - 1 Альбом, 1 EP (2012-2014) [MP3|320 кб/с]<Post Black Me
 ```bash
 magnet:?xt=urn:btih:7D9A69FBB4747735168C8807938823F73E916B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ VA - Deep House V.36 (2014) [MP3|320 кб/с]<Deep Hous>
 ```bash
 magnet:?xt=urn:btih:E0B4E5CEF0C002F6617F80A9E2AA1A455A479A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ VA - Deep House V.35 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:F935C702FFD63F5E7EBA5A778D5A979C267C5313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Elion - Epilogue (2012) Single [MP3|320 кб/с]<Power Metal, Male And Female Vo
 ```bash
 magnet:?xt=urn:btih:591FB226EC0F4304D6DB9CFE74661D959E6E200B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ VA - Dutch House, House #18 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:C903726DC1B0967CA30C0773D1495E739A18D19E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ Challenger Deep - 2 Альбома, 1 Split (2011-2014) [MP3|320 кб/с]<Atmosp
 ```bash
 magnet:?xt=urn:btih:EB77FCE908D1ABE8D7C4822677ABD4186DF17A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ VA - Trance Pro V.67 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:C76FAB469D9771913F399D7E9405F38F856E9B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BAE4477D1B096DF00200FB02619EABA1E945EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ Compilations:
 ```bash
 magnet:?xt=urn:btih:7BEC0E6435A69B165CAD844F249EF6CEB0CAF5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AE7B252B1FDC7C9FACA962DF696EDE8A34A9FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ Teri Tims - Made In USA (2005) [MP3|320 кб/с]<AOR>
 ```bash
 magnet:?xt=urn:btih:35E1730BE7A190596626FEAEF804C8E15D3042BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63C17825EE7E1705C8CB4D6D30446D5FF85915A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +453,7 @@ The Parish - Dance on the Moon (1998) [MP3|320 кб/с]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:4E2CE5249F53983A3B557F05CC2105D78CE03373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ Fen - 4 Альбома, 1 EP, 1 Split (2007-2014) [MP3|320 кб/с]<Atmospheric 
 ```bash
 magnet:?xt=urn:btih:E64D12257A2FB513C7C9184EEBD2551564BF0A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +518,7 @@ VA - Dare You - A Hot Lounge Collection (2014) [MP3|320 кб/с]<Lounge, Chill O
 ```bash
 magnet:?xt=urn:btih:84E3760D6F72B604D8E752455714986725A02F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAFF2397A959CCC5224B690D150C417E218D3FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:802BE16029E33D6BF57DB73AB797F655560F4351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:073A9236ABCE89A407B7E634B0D64C1716AB022B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ Pesante - Overplayed (2012) [MP3|320 кб/с]<Symphonic Gothic Metal | Male & Fe
 ```bash
 magnet:?xt=urn:btih:2BA0B419EADC6463314DD5B20F300AC7279E2EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77A679BAD76D0569A5F92DFD4A4A481EDCB6F3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5728543B8C45D8DCB519DA11CA1BA2A37B2DE9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26AB89AEAC6A547F38CE2FCB7E40ACFCB8E5EAD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ Beto Vazquez Infinity - Beyond Space Without Limits (2012) [FLAC|Lossless]<Power
 ```bash
 magnet:?xt=urn:btih:9203822E92A6E9EE6DFDDEB76BB0E2FA4A052640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CC561DA3C10BDE639C70230E676B87834407CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

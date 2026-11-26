@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:1BDEB842F8CA450056F37A2161BA38BD6630020E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Jean-Louis FANCHON | Guide des SCIENCES ET TECHNOLOGIES INDUSTRIELLES (2026) [PD
 ```bash
 magnet:?xt=urn:btih:DD3EF07073E9F3DF7C443EA1CA17D28E3FEEBA76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C60942A3D75EAEA6AC6F0AF67E420C2F5E677370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ R.W. Chabay, B.A. Sherwood | Matter and Interactions (2015) [PDF, DJVU] [En]
 ```bash
 magnet:?xt=urn:btih:2C879BD03AC0904417AF35B65FB2875B4A6CBABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

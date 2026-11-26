@@ -28,8 +28,7 @@ Gordon Giltrap - Visionary (1976) Reissue 2013 [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:B82237C7F3E1BD9F5C68F8E95C72CB0BF850E95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Almah - Unfold (2013) [FLAC|Lossless]<Progressive Metal/Power Metal>
 ```bash
 magnet:?xt=urn:btih:368A484991A5760DD50ADFF2FF1473AA184069D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Sunrise Auranaut - Way Of The King (2013) [FLAC|Lossless]<Progressive Rock, Inst
 ```bash
 magnet:?xt=urn:btih:0F1DCA52418DF1830E4A13BFCF1A9914F1E36388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Ken Hensley - Romance (2013)bootleg [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:0112EF89D2C0B92F5D36A50688EAC2F6CFEE84BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0B45DCF4F9A238A73E27F68A10BD160C9C4D057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86F2AADC0E9F48B16F2B3D04A375749DE4ACAC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CC75A27E608E6670BFA7D5C49CEFF68B3904B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ The Beatles - 33 Albums, 3 Singles, 6 Box-Sets (1963-2013) Complete CD Discograp
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

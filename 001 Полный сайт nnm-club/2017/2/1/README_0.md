@@ -19,8 +19,7 @@ TinkerTool System -  утилита для управления скрытыми
 ```bash
 magnet:?xt=urn:btih:6CD17E4FF53560A8B85BF9E4415E23F1C8181703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Maerzfeld - Fremdkorper (2014) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:DB8CCA76DD6991AAC1ACB2C5545F2BCB262BB558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Tooth Fairy поможет вам перейти от одного выбран�
 ```bash
 magnet:?xt=urn:btih:3099E04F8B3B9BFD7C3728EA300775ED63ED6A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C61C1278663E96FB5C0D0D20A7260C070CD416DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEE06EB04A340657078AB5AAF0E4967817A17E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Curtis Matheson - A Particular Blue (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:EF438E87905FFE391D13B0CB70C8275F08FA542E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Legs Diamond - A Diamond Is A Hard Rock (1977) Reissue, 2007, Diamond Records [M
 ```bash
 magnet:?xt=urn:btih:632CA58D8B83BB165E6E8E3282463F6AF5789188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D1FA4B5946044A080D296A4AB5C3259032CC56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Missa комбинирует Восточные и Западные подход
 ```bash
 magnet:?xt=urn:btih:8211A69897698D972D2920D97FA9BF5D6BB564AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E678EA7769B235725FF5D342C994B3CB57F7C80C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EC8294DCE0F4F3F20E9E767934E6BE854836E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ VA - Abora Recordings - Best of 2016 (Mixed by Ori Uplift, Receptive, & illithea
 ```bash
 magnet:?xt=urn:btih:66DCBE6D6EB668442EF69DD4354281F05AE13AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AFC8598C6B302BBE9FBEFDBF45576170DD4FE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:CE796DD78452E4550774B8B05191DE2BDC6449B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Serial Box 02-2017 [En]
 ```bash
 magnet:?xt=urn:btih:F9A0E4A535AAEDA841D1968159205D5485DE24C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AF7E3BB31224650C5056E5D30EE4CE473562D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B085AD18F6A8EBC3BA7FA7365B694B9FC175CEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Alfred Powerpack - Лаунчер приложений для Mac OS X.
 ```bash
 magnet:?xt=urn:btih:212BE6A5C1C85F5E00EA2C843E3B5EE283ADD787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBF0ECC56C7585657CE4A8659E9F63660AB8071C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ The Teskey Brothers - Half Mile Harvest (2017) [FLAC|Lossless|WEB-DL|tracks + .c
 ```bash
 magnet:?xt=urn:btih:820BFCA2FFB33345A0181024EDF418C348930559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Dead End Finland - Slaves To The Greed (2016) [MP3|320 Kbps] <Modern MDM>
 ```bash
 magnet:?xt=urn:btih:50569625AD287F32852A311CC050B0758706ED9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ PhotoTangler Collage Maker является мощным приложением 
 ```bash
 magnet:?xt=urn:btih:F6418F0DB7123E6200A175570E96F6D50FD2D653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D958270F2B6591E560C99DF44EE72EF0B55ADFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB38E6EC2833F89A6A145FD1ACD104FE2D3C9416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ VA - Vladimir Fonarev - Best of - Digital Emotions (2016) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:54BBB0F2E16B472266B6D509A753DC43807C3014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ VA - Smokin Latin Jazz (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:66ED688A1DDF4B99172722F1FA644F225783832B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

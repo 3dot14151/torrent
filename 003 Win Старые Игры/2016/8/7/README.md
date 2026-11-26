@@ -19,8 +19,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 ```bash
 magnet:?xt=urn:btih:4C6EEDA32D8F6FBAD041A096DB4357BB8B0DDB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ The Perils of Man (2015) [Ru/Multi] (1.0)  License PROPHET
 ```bash
 magnet:?xt=urn:btih:361B4E826E5147103A25104E0B21C7D5D8073E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:7A6DE1389F030C1C7A73810EFF31DC44736187B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Koloro (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2B9CC7CF300D8E3928B3B1AC0FA82B2441F02B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Creepy Road (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:EF2CB63FBFDB58766F2A90C18A213047FFE48748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Fernbus Coach Simulator - первый симулятор, позволяющи�
 ```bash
 magnet:?xt=urn:btih:2ABF4874C63ED97F82CD8999A4F90F31A12EA428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

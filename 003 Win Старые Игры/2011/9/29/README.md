@@ -19,8 +19,7 @@ Mobile Forces — несомненный Хит, причём высокой п�
 ```bash
 magnet:?xt=urn:btih:9BBAF5E684A303EF181ACF9D1622AC28ADE0FE83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Daemonica / Daemonica: Зов Смерти [Ru] (P) 2005
 ```bash
 magnet:?xt=urn:btih:735FC49EAABF5A3232F151A0BB4EF164B9BAC293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

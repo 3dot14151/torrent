@@ -22,8 +22,7 @@ Mr. Tambourine Man
 ```bash
 magnet:?xt=urn:btih:358880C8009362C10586FE4DC93E1E5826FA08BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

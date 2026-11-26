@@ -19,8 +19,7 @@ Christmas Wonderland 2 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:DBC90441E7CC036621A784482BC334EA50BFF3BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Island Tribe 3 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:0DA09595FF1564124DFD4C81F36EB6B29669CC70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3E718789940619305809848C77F8437DA85FEEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

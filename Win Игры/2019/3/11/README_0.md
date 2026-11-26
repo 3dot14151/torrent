@@ -20,8 +20,7 @@ Men of War: Assault Squad / В тылу врага 2: Штурм (2011) [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:69EAC4714CF024F66A1E6899F7916D0D9F4DC231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

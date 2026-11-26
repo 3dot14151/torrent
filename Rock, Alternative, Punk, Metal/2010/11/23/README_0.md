@@ -28,8 +28,7 @@ VA - Metalliska: A Ska Tribute to 80's Metal (2000) [MP3|320 kbps]<Ska Punk>
 ```bash
 magnet:?xt=urn:btih:DEE8771413049D0E088E9F01D7D5286406EF35B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:572873A7A266CD4643F9A92F3AB86892557FB25D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

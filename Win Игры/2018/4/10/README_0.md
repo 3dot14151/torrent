@@ -19,8 +19,7 @@ Haunted Hotel 16: Lost Dreams / Проклятый отель 16: Сны заб�
 ```bash
 magnet:?xt=urn:btih:2096992F812D318E20FBC5F356CC7F913A320CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Check Your 6! — пошаговая стратегия повещенная в�
 ```bash
 magnet:?xt=urn:btih:E962500ACF0AAE48B7159DEB63FA93B95C75FDC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Extinction (2018) [Multi] (1.0) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:ED867680B605A292DBFC98B422BC2C907AD78807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.08) License GOG
 ```bash
 magnet:?xt=urn:btih:8CB7156B8DF7ACB8F3C26681A709D18446CB7A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Vadikan - Hydrargyrum (2013) [MP3|320 кб/с]<Gothic Metal, Female Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Hiddenagenda - Beyond Silence 021 (2013) [MP3|192 кб/с]<Trance, Progressive T
 ```bash
 magnet:?xt=urn:btih:618063A8123E68992C18343A2AC0AD86E5283AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FC3E4570EF6C96E3DE20C64E229D0AEE5E87987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Intuition Recordings Collected Vol 1-2 (2012-2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:69AF3947C6F18B290BE2C95A6CA46861C38456BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ LaToya Jackson - Heart Don't Lie (Expanded Edition) (2013) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:2FA2B6A59845E2786E5AC091EAA122B48B29F259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68289C5DD95B4BB258D5ED90D6D7F49A158C2ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Siegewyrm - Legends Of The Oathsworn (2012) [MP3|320 кб/с]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:6CF951035CAAA16472EDC3D560C9BA77D3289E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E094D2D9155BEB08162464CC2CF0DA622657C9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C21325F9AF2D8C7C3403EFD18E903EEA5606783D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE4B557414E2491B85CC96CFC37B4A5F4905450E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF02F67269DC6C1C75EA47176CA6C901A378BB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ Ravenous - We Are Become Death (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:56027DEE0F75D072A431AE6ECDD69AC684501F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ Paul Gibson - Fallout 030 (2013) [MP3|192 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:0E1002A3087686697F023EB664CE7C4F2B1FF5E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68CD7B891B547D2FD5240AC519B70FC35C4EE6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ Roger Shah - Magic Island Music for Balearic People 248 (2013) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:1A2CE89266815CB85ECAD0F9458C0F8B63E856FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ Black Uhuru. Live in Essen - концерт группы В 1981 году для
 ```bash
 magnet:?xt=urn:btih:8C1E9E10A16D86DFD1C59FB23F254B46E0B53323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ VA - Клубные Новинки from PrimeMusic Vol. 11 (2013) [MP3|128-320 �
 ```bash
 magnet:?xt=urn:btih:BEFE1D4BD0D6736350D7167904DFBB470CB06F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ Vintergata - Моровы земли (2013) [MP3|320 кб/с]<Symphonic Black Me
 ```bash
 magnet:?xt=urn:btih:D2C98B72E87FFD414CE9C0BA714C20FA59E5E9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ Sebastian Pena - Abstract Subject EP (2012) [MP3|320 кб/с]<Deep Techno, Minim
 ```bash
 magnet:?xt=urn:btih:EB580F24047E99904B9BAF3EB3B268C1C186EE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ VA - XXXXXL Блатные Звезды (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:63AED53C566768C31522FAEBBA04C91B3DD15873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC43A8D4067979C47E02E1989644D12B0FC10B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF70AFBE02DC6023A9B3C1401A617040DD5A6503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D554ED4A97711D33FFC8AB9003139703C73B67B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EDFBAD66416B7E3696C010382C63C978E84794D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ Artweaver - графический редактор, умеющий работа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

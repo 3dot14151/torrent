@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:62BC063F79E658D4B3E17C8A2CF24AD29F8FF313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Onur Cinar | Android Apps with Eclipse [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:AAFAD94B30E8FE7D61DC4FF6091A5D1B45A4D050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Adobe Photoshop является центральным элементом по�
 ```bash
 magnet:?xt=urn:btih:271F83516B54418A343552182517D112AF94ACC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

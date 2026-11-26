@@ -22,8 +22,7 @@ A4 III. Sequentia, No. 2 Tuba Mirum(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:CAC52F838604E4303442A8DED893AE0B420EDC72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A1 1. Лирический вальс, 2. Танец (Пиццикато), 3. Р
 ```bash
 magnet:?xt=urn:btih:BDA781E64704F4679FE3E8297E08D77DE7F7E729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Манана(   Читать дальше...   )Жанр: Jazz, PopПродо
 ```bash
 magnet:?xt=urn:btih:8B81F9591649B7234310FAA2F989D966510BBA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

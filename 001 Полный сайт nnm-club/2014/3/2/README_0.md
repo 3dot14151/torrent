@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CD55802055527365A3E304104AC28C514D8FC533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Ambient Love (2014) [MP3|320 кб/с]<Ambient, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:9C46884F1AD717F3CC48891D96169CEE8C36DB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEA8A1AA9CB13AEC2FD06235B65FC9AF1EA2DB89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Private Lounge Club 8 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:7AAD21B845A9F28FD2C872703EC05208C004B41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C6048B82D0D0ACD8A10C2F3869A4A9231065E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Helix - Back For Another Taste (1990) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2846A449BB97100518AA2D986C2DE70270203DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21EE92045F5E7D4331D0F16B0726F24311DB467C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC7C64940E1F19A89421CB5E19A4757A94041C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ VA - Driven By The Piano - 16 Gorgeous Piano-House Tunes (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:622ADFB9E9E68AC90C2A39A3CA4156ED06AB35BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D09540A6CE1B363723150CCA3D1CFC1C5F83FEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ Frontline - The State of Rock (1994) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A4C52333F1115D66DC810DB79D772F1782F53094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:129786015B946BEED35EA7D90B09BBBC41773F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ VA - Ambient Attraction (2014) [MP3|320 кб/с]<Ambient, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:D19D0579FF5279478932B381BA2BB8F5D4267D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ Guru - Baldhead Slick & Da Click (2001) [FLAC|Lossless]<Rap, Hip Hop>
 ```bash
 magnet:?xt=urn:btih:2292B8D66ABBCD886EED4650D21E381536223436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:C6EAB8F0E0404451C1862208766ABFB0FDA53510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96FFA7046F75DFDF927C2AC55C77070B29242072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ VA - Ambient Forest (2014) [MP3|320 кб/с]<Ambient, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:45BA543BEFA844040CE4EF910C8527D1BF4B629F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ Gotthard - Open (1998) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E9EEB491A762F34B0F22DB065E806E782F7EC6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:221646A4182F4AE13E0C6593D2ADF491E559E217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ Esoteric - Angel Voices (2003) [MP3|320 кб/с]<New ega, Meditative, Relax>
 ```bash
 magnet:?xt=urn:btih:4D442ABDEFF7B796BF65C3E1B24338AEAC4ADDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6F494671E99D141CA09ABE784B2E9FC5416E235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:414A33F4818DA9ED9DA84CC03342893BBB7216E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:411A050D9FD09D57D618F172DF2FA90132612562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +694,7 @@ VA - Liquid Brilliants Retrospective (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:94DFDD237C0F2CCF0F09529F0CF5BE1DCE1B66C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +728,7 @@ VA - Клубный Автохит. Весенний Выпуск (2014) [MP3|25
 ```bash
 magnet:?xt=urn:btih:5D347A8E552ECD6B86FA7763985B9C677A466A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2AF3359A80A1B37A492C9BCB89472873FEB50CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

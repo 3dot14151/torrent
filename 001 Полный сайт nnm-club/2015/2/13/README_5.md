@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8E7807DDD5C5ECB114E03F6138D891021EBBF543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:242CA196DF22F24037CE63B69D2B179698B1AAF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Heroes of Might & Magic III (2015) [Ru/En] (1.13) Repack R.G. Механики [
 ```bash
 magnet:?xt=urn:btih:571D20C977B6967B1B25B32489DC427C69DCC2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ NBA 2K15 (2014) [Multi] (1.0 upd3) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:DD694D1C8660679E51F67EEEA6CCD87E3704EA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ ABBYY Lingvo x6 Professional 16.2.2.64 Lite RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4FECE7B171DD63CB6127BB3752EE466F80D9E2B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

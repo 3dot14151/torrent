@@ -19,8 +19,7 @@ FileRecovery производит сканирование и поиск пот�
 ```bash
 magnet:?xt=urn:btih:2ECDE17F63C28675803070EA5BCA98AB5997216F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

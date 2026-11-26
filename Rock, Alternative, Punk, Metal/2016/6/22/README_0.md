@@ -22,8 +22,7 @@ Erik Norlander - Surreal (2016) [MP3|320 кб/с] <Symphonic Prog Rock, Electron
 ```bash
 magnet:?xt=urn:btih:761857114E7F6ABCF2DCC3F5A9BD20AFE127C8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Zombies - Still Got That Hunger (2015) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:A489F4403EEFF26FB4D68BD559A336A2BB270AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Beyond All Recognition - Beyond All Recognition (2016) [MP3|320 кб/с] <Metalc
 ```bash
 magnet:?xt=urn:btih:18F19877710C4BD69EA3628DDF655FB330F1757C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:1B414FA45749AF0336F0DC1D10D2BDB19869DFD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Kaleo - A/B (2016) [MP3|320 кб/с] <Alternative Rock, Indie>
 ```bash
 magnet:?xt=urn:btih:8F8F16A3B02B663417B36FC65EFE69F00B5DA80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

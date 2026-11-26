@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DB1F1D63598C1FD111795E3849CB9237089D58BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC0A2D26B6EE53D98B0D2458CEA474B47EE15726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A85CF12D50992CCCB92A3C7EBF6A1D9635858AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Woodsmith — журнал по столярному делу представл
 ```bash
 magnet:?xt=urn:btih:58E216B180681DF829F34481ED809B7B6C7EFD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Woodsmith — журнал по столярному делу представл
 ```bash
 magnet:?xt=urn:btih:FA0E33CF02BDCFB965D22020D1BB6FD750765504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Woodsmith — журнал по столярному делу представл
 ```bash
 magnet:?xt=urn:btih:0E0012E1BEBC09D77AC0D03F186449501F5D725C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60BAB1F13DD03445B08F7781BE6A7BF4891DF1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:6BF9AC7C708FA2F5AA130DAE276F7A9A59DE2CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

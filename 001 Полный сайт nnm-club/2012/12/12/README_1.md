@@ -27,8 +27,7 @@ VA - DeepEmotions - CarDubstep Vol.11 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:CDB97138B9DA96DB5C2C4A69DB134AB95B5318CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Space Wallpapers (10.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D369A09E086AAEC26DB10511461C874BD5BE2F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Бум Года: новогодний (2012) [MP3|256 кб/с]<Шансон
 ```bash
 magnet:?xt=urn:btih:58598996CBE7074AA0027B1438529EFE1E0DA24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Wise Registry Cleaner - утилита для безопасной очистк�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:019A3F33B738983A0D705D5E74B5508BB370CA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ VA - Chill Out or Die Vol.2: Drop-Dead Gorgeous Loungism Ambient Theme (2012) [M
 ```bash
 magnet:?xt=urn:btih:C730620D09D2D70483FA8B2533F34E47648A5B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ Computer Desktop Wallpapers Collection (11.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:9784A5A148626C420A4268D504BEF9749F253A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ VA - The Official UK Top 40 Singles Chart (09.12.2012) (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:92C9AD744A694B4012777BE21FE004E895BCBECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ VA - Самые Шикарные Хиты на радио Шансон 4 (2012) 
 ```bash
 magnet:?xt=urn:btih:2B67FB2956431AA39536BBC692103ED8AD23A78F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ DJ Dan - Disko Funk Odyssey (2012) [MP3|320 кб/с]<House, Disco House, Funky H
 ```bash
 magnet:?xt=urn:btih:9411183E567F07BB5649256813ECB4C1FDBBB4C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ Sumatra PDF - легкий просмотрщик  PDF, DjVu, CHM, ePub, MOBI, X
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A84D78F87894C7FBBAE79ABEA0548E7DD9616C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ Electric Universe - Stardiver (1997) [MP3|320 кб/с]<Psytrance, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:B70EDD96681CE6DF6DBAEC2C003F722756C61932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ Winter Wallpapers (11.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:2580DEB2BBD397D1F6CB7FFB4885EFE5FADBB82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ New year wallpapers 2013 (10.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:46107BBE70866EE7E9272E16937CC5898DB083FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ VA - German TOP 100 Single Charts (10.12.2012) (2012) [MP3|192-320 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:E28199E051C7242ED91D33669CF070F18ACD3145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ ViewFD 3.3.8 + Portable by Evseev [Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ Abstract HD Wallpapers (10.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:9EBBC880A01413D2C1A9D5BD7588330067284CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A63A36EBCBAD8A0D308BE7FC8E2A8690D3920571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77BD57F8659E095F17770DDF73F6E9CCBE138287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E28037EA00FEE20BEA800BA193392440599B20AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:982DF68A84C86EF46CB7A9B12015142C664BCB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87996E1E31926CCD225AED264B7ADA29C3111562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +743,7 @@ Circus Of Dead Squirrels - Operation Satan (2010) [FLAC|Lossless]<Industrial Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

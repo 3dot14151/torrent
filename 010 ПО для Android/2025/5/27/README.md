@@ -19,8 +19,7 @@ Rock Identifier - Stone ID v2.3.55 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D9D58768480ADEC5F2F1842B4C537BFCFBCE9976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

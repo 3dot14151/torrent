@@ -19,8 +19,7 @@ Battletoads. Battletoads And Double Dragon. Антология (SEGA Genesis Gam
 ```bash
 magnet:?xt=urn:btih:43673841C956483A31E2B70D057E76DE691E58A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

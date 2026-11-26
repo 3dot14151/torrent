@@ -28,8 +28,7 @@ VA - Good Rockin' Tonight: The Legacy of Sun Records (2001) [MP3|320 кб/с]<ro
 ```bash
 magnet:?xt=urn:btih:C66A45BB7824940B3B7DBDCD99F8746877788CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Warhorse - 2 albums (1970-1972) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8385050EAAA154EC1607D5E749268C42FF8DA9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ KMFDM - Amnesia (2012) EP [FLAC|Lossless]<Industrial Metal, Industrial Dance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:171C14A50799E6B6E3B78F04670B3AAD9002A77E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ The Beatles - Abbey Road [Toshiba Black Triangle] (1969) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:F4F57697E99E4F76B7C225C3F49647068D0D0740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

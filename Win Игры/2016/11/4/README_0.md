@@ -19,8 +19,7 @@ Painted Memories — это приключенческая игра, в кото
 ```bash
 magnet:?xt=urn:btih:D4E4FE5983F28EE7E88C0C15C129869CF0F7C584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ In Verbis Virtus – фантастический приключенческий
 ```bash
 magnet:?xt=urn:btih:8918DEACC2E3A6BC0B1027274C4B9A6F4DD3E729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

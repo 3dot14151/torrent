@@ -19,8 +19,7 @@ AnyMP4 PDF Converter Ultimate - программа, которая быстро 
 ```bash
 magnet:?xt=urn:btih:913A09F2F4C09BD99A86644AD6DBC2CA8BA589A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

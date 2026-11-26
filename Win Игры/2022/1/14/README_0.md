@@ -19,8 +19,7 @@ Edge of Reality 8: Lost Secrets of the Forest (2022) [En] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:B7E4DFE2915E31A887B17613A910732237AF6624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Biker Garage: Mechanic Simulator позволит вам стать профес
 ```bash
 magnet:?xt=urn:btih:78CCAD286B4703B2D59D98F9074F7204D9ED8779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

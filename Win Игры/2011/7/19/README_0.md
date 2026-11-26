@@ -19,8 +19,7 @@ F.A.C.E.S. - новая страшненькая искалка от BigFish Gam
 ```bash
 magnet:?xt=urn:btih:1F6C13E7506EBF5695A252E8DE787ADCFCB1FCB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Billard 3D Deluxe представляет собой симулятор бил�
 ```bash
 magnet:?xt=urn:btih:765F3D79B7D1435A0855FCDB5675AD8EFB264C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Traffic Manager / Verkehrsplaner: Die Simulation [Ge\En] (L) 2011
 ```bash
 magnet:?xt=urn:btih:1D1F257E5AE72B8C4BED9E2AF112E2243DD40420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

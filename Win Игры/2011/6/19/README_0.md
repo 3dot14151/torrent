@@ -21,8 +21,7 @@ Digitanks [En] (L / 1.1.2) 2010 | Unleashed
 ```bash
 magnet:?xt=urn:btih:30D71AA8B878BA02E4606B0AD1FC1FE1C1DE02DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Offroad Racers / Гонки На Внедорожниках [Ru] (L) 2011
 ```bash
 magnet:?xt=urn:btih:3AECE183B5872713618C95A30E455406ED3718F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Talvisota / Талвисота : Ледяной ад [Ru] (L) 2007
 ```bash
 magnet:?xt=urn:btih:1378688E7E14D9F22C3662F311F8A4C989DA9307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

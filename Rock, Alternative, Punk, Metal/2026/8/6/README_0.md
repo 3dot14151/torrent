@@ -22,8 +22,7 @@ Magnolia Park - NIGHTS AFTER VAMP (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 ```bash
 magnet:?xt=urn:btih:709FD44B6AF11513BAD9AB53F2A3B1765DB3C6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Riff Raiders - Welcome to Mars (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:597CD95B79DE4179514092501AC9DD104445F977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Robyn Hitchcock - The Confuser (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alter
 ```bash
 magnet:?xt=urn:btih:F9920997D5F7D053010A5CE69EBE239D83E3DDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Evanescence —  (с англ. «исчезание», «мимолётност�
 ```bash
 magnet:?xt=urn:btih:7CD7915F6CC05FEF8765CD1179655BB76BF477A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Tony Iommi - World Alone (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0B256706CFAA3C9A5C61A43247E45EAC06569825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Xandria - Eclipse (2026) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:8059C04D16532BD7D8930D99F71770AAC066AD92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:6F796F2AF63469DA6D29E2B65DA5F49C70F87748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1 - La Vie Facile:
 ```bash
 magnet:?xt=urn:btih:F5A86E186D0C6C1AB052C01AEA6FF5B8BCFCC3DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Paolo Fresu Quintet - Ballads (1991) Splasc(h) Records [WavPack|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:810E2A0454FE8BABE5E815AAA66D9CCA622523BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tomas Barfod - Paloma (2017) [MP3|320 Kbps] <Downtempo, Electronic, House>
 ```bash
 magnet:?xt=urn:btih:8494963AEF93C3C300ABB53C364880628B44BA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lustre - Still Innocence (2017) [MP3|320 Kbps] <Ambient, Atmospheric Black Metal
 ```bash
 magnet:?xt=urn:btih:1C030C6DF74793C4C3B8376AAFABA1D37118ED82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Progressive Winter (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 ```bash
 magnet:?xt=urn:btih:831DA28B454D60AB65481C26AFFC5708E5AD283A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Carol Welsman - Journey (2012) Justin Time Records [APE|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:AAF05A0AC3F9765D5DA172CC3BABBFD5E480E5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66B514EA04292933682B6E726EE577CA86B92814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ TextLab - текстовый инструмент преобразования, 
 ```bash
 magnet:?xt=urn:btih:5A001DFB6201B03157A7A116DE8E3CC95931245D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - Radio Mania Vol. 1-2 (2016) [MP3|320 Kbps] <EuroDance, EuroDisco>
 ```bash
 magnet:?xt=urn:btih:2CD061C69B33E8E87FEA641EB2012BC3FC7F7E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ James Armstrong - Blues Been Good to Me (2017) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:A9D3E3C7EB63639B356035EFFC9AF5BFCDB7EA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47626C964E2A969613BF32970FA3CE06171B44C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Krystal Jyl And The Jacks - Krystal Jyl And The Jacks (2017) [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:7458AAF63858DAF54831D725A8DEB2AEDAEAE0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Total Mail Converter надежная программа для конверти
 ```bash
 magnet:?xt=urn:btih:8BF11D92A7B2AB86ADF264D1DAF3F2CF9162B40F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6B3F5191B33A6AF03B6C8E9E7058A36CA6F0860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1699AC917DF145B1E165C17779F9A80DDF33D579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ VA - Time Never Tells: Synthwave Electronic Music (2017) [MP3|320 Kbps] <Synthwa
 ```bash
 magnet:?xt=urn:btih:CF42B48E1353CD8E84FE881D4329B0CC15BE07B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5766B28B1AE8984371AC175A0C9E0C4448FF1E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ VA - Top 10 Sales Chart - 2017 September (2017) [FLAC|Lossless|tracks] <Progress
 ```bash
 magnet:?xt=urn:btih:9643D8BD6F4952F72291A6E4E086BF7B50B27ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ Start your incredible journey into the past with National Geographic History. In
 ```bash
 magnet:?xt=urn:btih:0A81307B2875F8129DB0FC93ACFC6010165A9454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ A4 Name Of The Game(   Читать дальше...   )Жанр: Hard Rock, Heav
 ```bash
 magnet:?xt=urn:btih:AA6B9B388F1AB40C1D34E4FDE6951BCBD1550349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Matt Bianco - Gravity (2017) Japan [FLAC|Lossless|image + .cue] <Smooth Jazz, La
 ```bash
 magnet:?xt=urn:btih:6DC47E0000D5C0548743D190AED7C09E9664139E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ Stilz - Evil Awaits (2016) [MP3|320 Kbps] <Synthwave>
 ```bash
 magnet:?xt=urn:btih:F34E771D3672608D21673DEBB71C89E777EC972E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ VA - Sweet Dreams: Vocal Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:85BB670F7BC6225B003F4724CD85B0928C5D1D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE06316CE4C761146BCCAC7A36713972FB1CC118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:854972BF5FEAF72A147346C5BEB078F625FEC3EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

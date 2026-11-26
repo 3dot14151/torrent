@@ -19,8 +19,7 @@ Necromunda: Hired Gun – шутер от первого лица, событи�
 ```bash
 magnet:?xt=urn:btih:7EA0405B7DC2E81C40C3E509833AF94B0EB86735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

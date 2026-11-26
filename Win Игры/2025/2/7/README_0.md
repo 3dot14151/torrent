@@ -19,8 +19,7 @@ Reflections of Life 13: Sleep's Embrace (2025) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:BDB07EACF909C8AC6BF24789B86D1C7934FA4A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Metal Slug Tactics (2024) [Multi] (1.0.3c) License GOG
 ```bash
 magnet:?xt=urn:btih:BE2AF9314D4319522C50C3F3194B45D3F1AC1F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:CF6D4DC88975CFCB78323700F5459A0C2E343009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11а) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:634F7D14189B426B7A55C35CE503643C1CDC6944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ City of Stories 3: The Hunter's Heart / Город Историй 3: Сердц�
 ```bash
 magnet:?xt=urn:btih:16A0A0580D3A17F8EF860DCEF8DEDD9161AD8BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (build 17163084) Repack 
 ```bash
 magnet:?xt=urn:btih:99185556132637B1BC0F0A7FBAED42090EA9D15A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

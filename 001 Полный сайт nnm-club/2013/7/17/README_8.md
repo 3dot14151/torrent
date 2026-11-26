@@ -22,8 +22,7 @@ Alastis - Unity (2001) [FLAC|image + .cue]<Dark Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02404976105E4DD6475CA9E9DDEA9E9A29B21A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Alastis - Revenge (1998) [FLAC|Lossless]<Dark Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Under the Sun - Under the Sun (2000) [FLAC|Lossless]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Alastis - The Other Side (1997) [FLAC|Lossless]<Dark Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ VA - Monster Tunes Ibiza 2013 Vol 1 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:9945EB7AC7F420B2659E4EB18CCCB99864EB0BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85E8C329335EF50A8795E6536C4E56E398D1FDA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EE0DEDEC1E7A0AF7BAE915E7F7FB09729FC3F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B042C8DB407AA710C46E942EB6AA1580A6FA1566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ VA - Ferry Corsten presents Corsten's Countdown Summer Special (2013) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:AA647257934975996A53B74ABA711620FF1AE0BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Darkel - Darkel (2006) [FLAC|Lossless]<Downtempo, Synth-pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ VA - Raven Melodic Island (2013) [MP3|320 кб/с]<Trance, Melodic, Energy>
 ```bash
 magnet:?xt=urn:btih:7533F274859DCEBD2E52C67AF435C5F359FB8FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C21300D8D09611463F731A7D9F69C43DF5A96074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ VA - Sensuality: Chillout and Rare Grooves Vol 2 (2013) [MP3|320 кб/с]<Downte
 ```bash
 magnet:?xt=urn:btih:E307359F3476FA971C6D76858EBEE877674EB055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ Azania - Rising (2013) [MP3|320 кб/с]<Soul, Jazz>
 ```bash
 magnet:?xt=urn:btih:6B50F2413A9A6C6B717BCCD16604EE896C365940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ VA - Trance 2013 - Volume Two (2013) [MP3|320 кб/с]<Trance, Progressive Tranc
 ```bash
 magnet:?xt=urn:btih:9AF317D00EDAC580FA5B25034AA7CCF18185113F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ W&W - Mainstage 162 (2013-07-08) [MP3|320 кб/с]<Trance, Progressive Trance, T
 ```bash
 magnet:?xt=urn:btih:C655C3D83FE0F845D6E5B4E52A2C25EF0F7B0A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ Photophob - Winter Forest Drones (2013) [FLAC|Lossless|WEB-DL|24Bit]<Ambient, Dr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +636,7 @@ VA - Chillin' House Grooves 1 (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:7F9D0DD3ECEEB94D9312B24D0EC09D9C3ED19B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +668,7 @@ Bekki Williams - англичанка (г. Ноттингем, год рожде
 ```bash
 magnet:?xt=urn:btih:9FB3C17CFF9562B85236CF29370D34314D1FFFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4188F30C60D9B6DCDFA853E37AF84814062F5DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +728,7 @@ VA - Club Essentials 2013, Vol.2 (2013) [MP3|~245 кб/с (V0)]<House, Electro H
 ```bash
 magnet:?xt=urn:btih:8DE7A3EC108C9A1BADA793BB3C0814D7BED86378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +762,7 @@ Mariano Mangas - The Hi-Fi Sound Of Guitar (2006) [MP3|320 кб/с]<Instrumental
 ```bash
 magnet:?xt=urn:btih:EC4272E17C9E3A4029AABDB041FF360ADE933EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -813,8 +788,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3C6F65E02E502B494E74A16ED1438EEC76DA5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

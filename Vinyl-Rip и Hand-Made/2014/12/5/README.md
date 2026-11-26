@@ -22,8 +22,7 @@ A4. Золотые Львы (5:36)(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:29307B0741427A8159A49843F9278FBBEEE28385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Allons-Y (part 1) (1:58)(   Читать дальше...   )Жанр: Progre
 ```bash
 magnet:?xt=urn:btih:BAECA0E96443950B19B267510E374357BCCE2E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

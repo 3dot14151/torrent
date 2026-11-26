@@ -19,8 +19,7 @@ Dying Light - экшн-игра на выживание от первого ли
 ```bash
 magnet:?xt=urn:btih:9DD872178A1138D182ABB906D99A3F0D68688AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

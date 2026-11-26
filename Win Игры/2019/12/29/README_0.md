@@ -19,8 +19,7 @@ Mystery Trackers 17: The Secret of Watch Hill (2019) [En] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:ECD0240A8C4AB39BCB047F546154CD95DFE2DB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

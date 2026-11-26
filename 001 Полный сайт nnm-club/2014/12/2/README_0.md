@@ -27,8 +27,7 @@ Stephen Duros - Urban Flamenco (2011) [MP3|320 кб/с]<New Age, Instrumental, N
 ```bash
 magnet:?xt=urn:btih:2317D0CE907EA5432AC14ED2BD5CE7A062C9B069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Grotesque Indoor Festival 2014 (Mixed by RAM) (2014) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:834955E2DBAF01D101C1E4D54E1A56F06DF66EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF4D95A3CED9AD4461678ABED80452A40736A23D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93A6E1B2F08C6708C7651FA09FFD8DB41FF1B04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Public Enemy - Most Of My Heroes Still Don't Appear On No Stamp (2012) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:8D6346D1808A7065167FDA43CAF482DC65DB7951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ C21FX - Hard Hitting Hybrid (2012) [MP3|128 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:6E4B3CDABD50259AEA0DE68E5112CEB33EC9C6B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D22956FEE10416EC426389BAC35CB1F81A8B984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ C21FX - Apocalyptic Pianos (2014) [MP3|128 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:24DA49F02802057704AB52B0925011F3C6FB39A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:3DEAB4C596675C1C81F7CB0BF791A58811AD5786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Aly & AJ - Insomniatic (2007) Target Edition [FLAC|Lossless]<Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:3B33B229CA793E25AE72FFA90F9E2C3BB1322E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ Cavalera Conspiracy - Pandemonium (2014) Limited Digipak [FLAC|Lossless]<Groove/
 ```bash
 magnet:?xt=urn:btih:E747FD86CA23F8CA0FBC7B8E6332BB0DE6FA92C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B85FBECB27AE643BBA004AF3D110CF69737B14AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ Black Lung - innovation. participation. reward (2014) [FLAC|Lossless]<dubstep, e
 ```bash
 magnet:?xt=urn:btih:AC39B21CD9179BD81585A37D4AA67E035F97FE14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ SuperBike Magazine - журнал о мотоциклах для мотоцик�
 ```bash
 magnet:?xt=urn:btih:BB5753E8AB4C18D2EF236461AF25D1BDDDD6EA93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ Spike - 100% Pure Frankie Miller (2014) [FLAC|Lossless]<Hard Rock/Blues Rock>
 ```bash
 magnet:?xt=urn:btih:5BE398D6B8D92F54889B50E8F866B660DE269A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ Kutski - Keeping The Rave Alive 139 (28-11-2014) (Crystal Lake Guest Mix) [MP3|1
 ```bash
 magnet:?xt=urn:btih:5B7851E4E942EEB339BE141F6E21BA6511890D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2DBCDC98378FACE7C1D90402080DA69B4F186AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ Asphalt Orchestra - Asphalt Orchestra Plays Pixies: Surfer Rosa (2014) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:980F0CB9BF2B6A457852F509D8C25FB790F50708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ While She Sleeps - 3 Albums (2010-2013) [MP3|320 кб/с]<Post Hardcore, Melodic
 ```bash
 magnet:?xt=urn:btih:2E68B6675E74AC4B48C98E440B0FFC67AFC5FDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ InfoCity – ежемесячный журнал о компьютерной т�
 ```bash
 magnet:?xt=urn:btih:46807E9BAC967EA1EE21B413CE03DE7C4EC55FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4ADC8830281FD439BC86B86F13065C9CA8010B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ CoolUtils Total Image Converter - преобразует изображения 
 ```bash
 magnet:?xt=urn:btih:5BE27C6B798152E9094B36B6D48244B47DB2B7E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ VA - Andrew Rayel - Find Your Harmony 2015 (2014) [MP3|320 кб/с]<Progressive 
 ```bash
 magnet:?xt=urn:btih:1737735E6A68C64710DC26FF6E5C8F297E25604D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6D6AAF85C03EC4B3BAFC6330F0E787BF413F1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +752,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BA629D002804BA87D2BBA4B2C27DC2F5A553B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

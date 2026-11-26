@@ -21,8 +21,7 @@ VA - Perfecto Revolution (Mixed by Tilt) (2019) [MP3|320 Kbps] <Trance, Progress
 ```bash
 magnet:?xt=urn:btih:E319CC1484AE0E767BB770C8B2EBFCC2DF864750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - YR Best Chillout Vol.40 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Baleari
 ```bash
 magnet:?xt=urn:btih:538C6FD64BFB4DF8195239F6E980CCBA66B51FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Inferno Techno Electronics (2019) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:D4833D0324BA5A1AE17BC9F4B55C310C96E487CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Duplicate Photos Fixer Pro является удобным приложение�
 ```bash
 magnet:?xt=urn:btih:BF6ED69559AA8C4C64A1BA7799C723634A6C3D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Vocal Anthems Miami (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:C7744B01AD428A095A38B4099D4BA55677BFDCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Fluid находится поверх открытых приложений и �
 ```bash
 magnet:?xt=urn:btih:828CDA020563484C02FAC00328F71F27B15D3BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ AG Weinberger - ReBorn (2018) [FLAC|Lossless|tracks + .cue] <Blues>
 ```bash
 magnet:?xt=urn:btih:06FC41CE0A57CC8D0AEF18C96A77FAEAF8FC7E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ BestReminder v2019.03.20.10  Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F87EE54FD8F12F3BE44C630B4D015AC58924835B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ The Night Game - The Night Game (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:C307A0CF92FD7F3AEEC2ECD245BEB746B095B605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEFE2EA947E5E438401796C96EA732E9872D9B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Side 1:
 ```bash
 magnet:?xt=urn:btih:8457D54F402AB5069967B61CB5491C65CA0B88C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1733D6D3F0E968C67B3A76761BCA1B6946F74FB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ A4 Stardust(   Читать дальше...   )Жанр: Jazz, Big Band, FunkП�
 ```bash
 magnet:?xt=urn:btih:D35B1332D75F523105AD336B92C50E85600B9C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F06BD95FAAD23825569F373D5F31B81FE6987D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A880DF8430A4FC6C4817C756F6B508FB3BEF3B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Argus - Pure Love / Pure Chill-out Vol.1 (2019) [MP3|320 Kbps] <Ambient, Chillou
 ```bash
 magnet:?xt=urn:btih:82404C843383073B6776A0A80ECD3B1DC0B6A225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ VA - Running Workout 2019 [MP3|320 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:F5A9CB36CC58C5F5437B23B1BB66BFF931C8D1EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ Lemongrass - Earth (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breaks, Dow
 ```bash
 magnet:?xt=urn:btih:F3730C5CF840A2D5152ED706B6D1F8072D4A63F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5625E7D69E421536194D424C7E4BB0B5B9C0305E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ VA - Chillhop Essentials - Spring (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 ```bash
 magnet:?xt=urn:btih:AC7682B4708B829FC1B914B923AE1DB363AADB9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ VA - YR Best Chillout Vol.38 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:323DA300B372035F1942E7ADFC8715397C37696B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ AirMagic 1.0.0.7094 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:691480471795FA5E4D215839CDE2007996037407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:057AA7BA1444A9D075D2CE7CA0B8301ED5C5D489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBB1BB44940E215B9EC51B1B3D94C10B6906A94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F9AD43CA4CACB59090A215F17EC0D42D8818D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Things 3.8.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4BFE573735007203B25B011D2BA051A525633D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

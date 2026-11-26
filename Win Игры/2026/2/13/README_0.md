@@ -19,8 +19,7 @@ REANIMAL (2026) [Ru/Multi] (354342/dlc) Repack Let'sРlay [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:4195A6C717DE732996BF70779AA71E973ADE7A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total War: PHARAOH DYNASTIES (2024) [Multi] (2.1.6/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:E93852239669A40445C7FC1677F4DC07D6A7443D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Total War: PHARAOH DYNASTIES (2024) [Ru/Multi] (2.1.6/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ECE75BE04A208ED57A51530C2868DD6FEC338B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jackal (2026) [Ru/Multi] (0.9.9) Repack Other s
 ```bash
 magnet:?xt=urn:btih:41EB6B595B31C4C193303802E77E0815796E439D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Jackal (2026) [Ru/Multi] (0.9.9) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:96B1791D9360B03496E4665E4DDE380C03700880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Disciples: Domination (2026) [Ru/Multi] (1.2.0.3271/dlc) Repack seleZen [Deluxe 
 ```bash
 magnet:?xt=urn:btih:1C63F8F8D893B3D6ADBF1115495E98722FBEA9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Red Passport: Ticket to Russia (2026) [Ru/Multi] (1.0/dlc) Repack FitGirl [Delux
 ```bash
 magnet:?xt=urn:btih:C002E3DD4A55F95DA1829A9C982E8CF297D30B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Heroines Through My Lens - это возможность примерить на
 ```bash
 magnet:?xt=urn:btih:A948FF8B6E89172A64E72798BD7C6C5EB3CFD895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Back to the Dawn - это сюжетная ролевая игра, действ
 ```bash
 magnet:?xt=urn:btih:8D1454735A3719970183E7F5F44AB8874D942D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Crisol: Theater of Idols - напряжённое приключение от п
 ```bash
 magnet:?xt=urn:btih:B1DE159186CB9A062B992EA2F1B9F20CC6CD5118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Nioh 3 (2026) [Ru/Multi] (1.03/dlc) Repack Let'sРlay [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:1948DDDDB3FFEE01FDEA4604ADA575D1D032FE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ I Hate This Place [Ru/Multi] (1.0.13_15856) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A97060A99895E955251ED88A95A3FB0B5554EE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

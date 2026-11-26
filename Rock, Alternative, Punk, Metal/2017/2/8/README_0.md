@@ -22,8 +22,7 @@ Monkeyhead - Monkeyhead (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5B14D1863D78B228D8454B3707F1773CA3E36EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Superlitio - Tripping Tropicana (2005) [FLAC|Lossless|tracks + .cue] <Electronic
 ```bash
 magnet:?xt=urn:btih:8203F94C561D2C63CE577A8FD240E9331394239B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Baby Miss Julia - Room of Gardenia (1995) [FLAC|Lossless|tracks + .cue] <Pop-Roc
 ```bash
 magnet:?xt=urn:btih:FE20AD2B971F14AA2EC15A53A9E54DBF81BC6EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lucas Sideras - One Day (1972) Remaster 2014 [FLAC|Lossless|tracks + .cue] <Clas
 ```bash
 magnet:?xt=urn:btih:4A6B594ACC48912D71B3B907AA735EA0007902E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:39A62AEE1C1F2BD1CBC1E595989EFEC48AB9D037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Setanera - New Era (2015) [FLAC|Lossless|tracks + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:1EA9BC0D547D7C5961AD9C4602F88FB11C7E56E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Deserted Fear - Dead Shores Rising (2017) [MP3|320 Kbps] <Death Metal, Melodic D
 ```bash
 magnet:?xt=urn:btih:0C7C6FBF4CD9758E22C56919D86FE2333090C6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Eric Johnson - EJ (2016) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, Jazz 
 ```bash
 magnet:?xt=urn:btih:99E5428B4B660720B39D6F28199EE8351017F62C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD3: Live Tuor Kansas SityЖанр: Heavy MetalПродолжительност�
 ```bash
 magnet:?xt=urn:btih:D69AABCBE27579D621633658FE3CE34797971AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:657B26C9519B2B38D5D2F4C55733E148BE15E481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Deep Purple - Time For Bedlam (2017) EP [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:83D302A2AC637C593510DBBAB389D3F29360DC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

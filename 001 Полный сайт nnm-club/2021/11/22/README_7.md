@@ -22,8 +22,7 @@ VA - Piano Moods Collection, Vol. 1 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:DA69D8280B0BE9E7E5F07103318CB9C86674F4D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Aimée Sol presents Lounge Attitudes, Vol. 2 (2021) [AAC|~316 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:76B983CE7F1263E4108374F49B3C840B85B18B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Chill Out Perfection, Vol. 1 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Dow
 ```bash
 magnet:?xt=urn:btih:671AD3583F7A5D253FB9E758DFDAA2CCC81CED1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:3C76C2E0D69357F43F16BDCBD37A8E883B147BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Calm Down and Chill, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:ECA31A5C2E25DFCE66E8C1013D775FAD20E6B16B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - The Perfect Lounge (Santorini Edition) (2021) [AAC|~290 Kbps] <Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:A0F90158D2075AE63833281FB316B20C55FCDC70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ GoodNotes 5 v5.7.48 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:44FC7F2B8B6FAB68C49C2CC261CB6B01AF76EA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Massacre - Resurgence (2021) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:33EE18AC88F1CF4A1473E24C0CBDA9C1887E2653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:9634DCE51F149151618504AB07A8AB82FA63481F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ TinkerTool System - утилита для управления скрытыми 
 ```bash
 magnet:?xt=urn:btih:1A9F958CCF0C373B5A517E9BA65F5CD48B5DDC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Dinah Shore - Private Collection (1994) Metacom [FLAC|Lossless|image + .cue] <Vo
 ```bash
 magnet:?xt=urn:btih:60F8D93968697498ACDBC9E5630D42542FFAE18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A5A30CB2A3EA8B9241FB88112D3E4EEF3F115AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Java - Change Of Heart (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, F
 ```bash
 magnet:?xt=urn:btih:5B9D75985B6C138F02351EBB1F1C12FA7B551AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Easy New File - это расширение для поиска, которое 
 ```bash
 magnet:?xt=urn:btih:3212345BA8C2A39883FFD513215C7B77B6DBE76D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ Tania Kikidi - Rock & Roll Paradise (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:FBD2E3F55B2470C27E9FD1648B5C56FD9EBF27BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Change Of Heart - Last Tiger (2016) [FLAC|Lossless|image + .cue] <Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:063A230B88D3CBD850538F3097D8C5947008D5D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ FotoJet Photo Editor позволяет каждому в кратчайшие �
 ```bash
 magnet:?xt=urn:btih:0667E9CEAA430EC7E2308C242FFD6FCA535DE744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Thulcandra - A Dying Wish (2021) [FLAC|Lossless|image + .cue] <Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:CA58A5D1003EFC3501AB450D628DC28BB7BC7127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ MonitorControl 4.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:B033314369683E24264E3B15BB595EB8214F5927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ VA - Piano Moods Collection, Vol. 3 (2021) [AAC|~296 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:0DAA622ACB3368DB13585BEF7A5964A4A299BAED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ FotoJet Designer 1.2.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:4175A0D5F1873B7D7C425D7D7E3A2C953CD1A5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DB5753567E68D130B0104A78325ED9E0524B4D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ WiFi Scanner 3.0 [En]
 ```bash
 magnet:?xt=urn:btih:A5200681C95FD783CE1FD4F3156FC807122F2357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Sia - Everyday Is Christmas (Snowman Deluxe Edition) (2021) [AAC|~315 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:F33FF4F2B97908975DE670E8C81BFFF7CB07860B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ VA - Life is Beautiful (2021) [AAC|~292 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:DEE1A3EBEA78548B42065FD95A0A5C80B844717F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ Easy Data Transform 1.22.0 [En]
 ```bash
 magnet:?xt=urn:btih:5A1E54EEBBDC4573CDF98B556E4D30B79C5A3753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

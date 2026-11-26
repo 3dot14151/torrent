@@ -22,8 +22,7 @@ Millencolin - SOS (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
 ```bash
 magnet:?xt=urn:btih:A1D4078F596D0C7C529A71984BCF0F1CD3D7F818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shivaree - Full Studio Discography (1999-2007) [FLAC|Lossless|tracks + .cue] <Co
 ```bash
 magnet:?xt=urn:btih:1643B44017ADB73FE7CD4D19895C8D472DF9DFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Find Me - Angels in Blue (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:3B1E45518EDCBEF1686CBA52DDC5E4A03B346378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Beast In Вlасk [ex-Battle Beast] - Frоm Неll With Lоve (2019) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:AA38984BDEF5F9B71587D1C2221F97D4AB39A019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Avantasia - Moonglow (2019) 2CD Limited Edition [FLAC|Lossless|image + .cue] <Sy
 ```bash
 magnet:?xt=urn:btih:FFDC9F12925274A9B791CCC74BCE39E0E4F0B605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

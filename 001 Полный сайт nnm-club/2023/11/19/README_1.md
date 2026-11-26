@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:755581F10393135C513268EF29089FBFF5BAE0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2ED3098337F966E24112BE54A5E6366E4EF544BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 ```bash
 magnet:?xt=urn:btih:713D92E1AEEB4B5901650A791B91191832F27A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AC4C28635B16BFE6C0C1DFC477E044252CB1270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E06C54EA030478A6D03F8DA544D48570D73F4D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Kollektiv Turmstrasse - Unity of Opposites (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:90CC5BE157083BBBA69683B13CA70F36D762E6A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC750DEBAD26B55692F4FC4C903E2EE91F09B119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Unheilig (читается «унха́йлихь», с нем. — «неч
 ```bash
 magnet:?xt=urn:btih:6BCD9EE9825E10121791BBFD517B848BC8806334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAF07A98ECDD6D517ED61FFEE093B6FBB563E477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Papik - Cocktail Italy Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu
 ```bash
 magnet:?xt=urn:btih:7EB721521F36FB7B06C275834417528CD543F06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Pylot - Axiom (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, retrowave, synthpop, 
 ```bash
 magnet:?xt=urn:btih:30F021FABDA5DCF081FC96C623E25C3915C183B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ HammerFall — группа из Швеции, играющая в стилях 
 ```bash
 magnet:?xt=urn:btih:55F80ACDF9BD02D819A5274DACA14A9EBAB19B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Disc 2Жанр: Synth-popПродолжительность: 2CD, 02:31:21
 ```bash
 magnet:?xt=urn:btih:CFC415B23CF32E58A2951D70D063CACBA622A39A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6388339B897FE2B308132EA0BF36173822082A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:7F241ED71FE8F4A2956DA3D9D8D1A32EA766B5E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ VA - Music News vol.315 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:43FC11EE29CA66495658514A2BB0CE097E3EE7AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Opera One 105.0.4970.16 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D8B353368972FC1A0AA8EA6EA96FF307B40CD7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management [FLAC 24/44.1|L
 ```bash
 magnet:?xt=urn:btih:D9331A7FFA9AAE22BE14363ABC6EB7902C9B8309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ Heilung - Drif (2022) [FLAC|Lossless|Web-DL|tracks] <Neofolk, Dark Folk, Experim
 ```bash
 magnet:?xt=urn:btih:A9366EA2B2625DEBFFE3B9B31257764B12F16D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:909AD22732EF0B5A0C5A2198CA08D2EC2F4B742E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ David Hallyday - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:23BCF5868A60058242B3968ED58762780BBCF189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ The Jack - Tribute to ACDC (2023) Live [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1047375741803CA4DA0FF969A960D3484857DBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [
 ```bash
 magnet:?xt=urn:btih:07CB357959481E9C5D3FE982301BB45BDD26232D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1070AD282740FAC9A3FA13FA8A606338F741274B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ Vince Clarke - Songs of Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, E
 ```bash
 magnet:?xt=urn:btih:11612E28FFD7F3A7E165484D2BE7F73352B56A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12AC3A36A1352EFB0A60EF111BA18BA83B19EFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

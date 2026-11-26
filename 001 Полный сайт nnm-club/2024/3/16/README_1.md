@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:B0A7CBDBF657B4C015D2AFB82F78BE0F0421880A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ PowerDirector – Video Editor v13.3.1 b1227130 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2AB1A6CF172BAEC05D9AB447D4C1404E6D5AC618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Для вас, женщины! Женский портрет (1987) [FLAC 2
 ```bash
 magnet:?xt=urn:btih:BED83AEBF4EE2AE0810CA62C2CEBE014F14B3F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Howard Alden Trio - Misterioso (1991) Concord Jazz [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:EAA35187BD4901126E5906FC77EA2600AF52EF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ The Howard Alden Trio - A Good Likeness (1993) Concord Jazz [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:1CE19591626E75B697816FAC0AAE1969D577991C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Wes Montgomery & Wynton Kelly Trio - Maximum Swing: The Unissued Half Note Recor
 ```bash
 magnet:?xt=urn:btih:E1818C494D41B5DD30C069C24852B8A87B896EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F86820D5080A26E2C5AEAEBD165E0C2CBC2E6B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Udemy, Александр Сокирка | Руководство по WordPress
 ```bash
 magnet:?xt=urn:btih:562FE9FE6F7AAC7B248806D20E46A2391C93A08C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD9410A08212630F7655AC18B2757BE6E0127CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E42991EB2320FF7AB0166715F78C223D1F73F65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:61B228755BE286170C1F97083B4FD0AD1AE6EED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Microcosmum 2 - стратегическая игра, основная цель
 ```bash
 magnet:?xt=urn:btih:4AA5F010FC128B192DC1FFA15D7FD75515D31CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Tomb Raider (2013) [Ru] (1.1.838.0/dlc) Repack Decepticon [Game of The Year Edit
 ```bash
 magnet:?xt=urn:btih:1FC625AF97D88A43E91FF67E1C0EFD853F0273A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80D1A3D4D434E503694C3942A609CE9DD28CDD48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CC423D6C552EC2B68F46A1166A9F7F808AEDC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Welcome to ParadiZe - это увлекательная изометрическ
 ```bash
 magnet:?xt=urn:btih:0CB8888438A7DD9859FF0FA721CE19D3ECBF4ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E87DF995D018FFBF7349DF6939C371032C012666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1027.0/dlc) Repack Decepticon [20
 ```bash
 magnet:?xt=urn:btih:A3344BAD665AF8D43A366A01886088377CA4906A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12077EA1D716987AEC3556A936E60D4F0D16996E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ AI ChatBot AI Friend Generator v3.0.5.6 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2FD3F31D69BE1175747265E10FB40DE627ACA31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19F6FDA6BAA4933131A24115CA0EF85C7A912D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F93C6ABF54A55C9FC74757948E3328B14A72C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F20C945B606B6EE04A58B70536F92ECC8733BF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ Cерия документальных фильмов снятых при под
 ```bash
 magnet:?xt=urn:btih:D8B40ABAE0D6A48135221A1226B015A85E3AB79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44D6CEA9A181B6E465552D15D9EC1F4B53915ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

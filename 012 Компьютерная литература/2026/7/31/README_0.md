@@ -19,8 +19,7 @@ Blazor technology enables you to create sophisticated, manageable, and extensibl
 ```bash
 magnet:?xt=urn:btih:BBED76C1E8CC0FE5F2D9199E5C4500D47244CE5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EC4D408827BEAA96FA7B19ECEEB1AD8C992D1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12EE0C2E863E66DDC8AF402D6492FBA478ED9990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAB0FBFE9C0875D325EB4CD771097B68832189CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DF333EC5391F2128C882D3158A5092F2A54C762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ right tool for the right task.
 ```bash
 magnet:?xt=urn:btih:1C06B2C5E1BBFC6D72B78AB09C95273427A90E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Launching Enterprise Products is your guide to building enterprise platforms fro
 ```bash
 magnet:?xt=urn:btih:E2ECCB90B6FBE147572BF9EEE78FFA104691BE79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Transform data into a clean and trusted source of information for your organizat
 ```bash
 magnet:?xt=urn:btih:6F5275885FCEA587CE0900444978CB047742CA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Before you can build analytics tools to gain quick insights, you first need to k
 ```bash
 magnet:?xt=urn:btih:009852B9E58D952762CA9B369B38D50ADC6B0DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Once you set up your Oozie server, you’ll dive into techniques for writing and
 ```bash
 magnet:?xt=urn:btih:3590285E35108A555564F7821FCC0A8FA9ADF930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ The book takes you on a practical journey from strategy to execution, showing ho
 ```bash
 magnet:?xt=urn:btih:41A893CAC40B4FB3E7EAF07D434B952D22EDD4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Informed by real case studies and years of work with enterprise-scale cloud arch
 ```bash
 magnet:?xt=urn:btih:C48E64605F7E0AF258D85F465E4BD513F697676F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ The data lake is a daring new approach for harnessing the power of big data tech
 ```bash
 magnet:?xt=urn:btih:91D8A51A5E366FD5C0267EF58392D9263CE12BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Today, investment in financial technology and digital transformation is reshapin
 ```bash
 magnet:?xt=urn:btih:50C736F3CAF19E594EAA733D5E14334ADA72A092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

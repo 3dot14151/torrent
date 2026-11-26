@@ -22,8 +22,7 @@ Nazareth - Play 'N' The Game (1976) Reissue, 1979, Vertigo [WavPack 2.0|192/32|i
 ```bash
 magnet:?xt=urn:btih:97F170DB64E7AEDF65F7012F2B62263E60440339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

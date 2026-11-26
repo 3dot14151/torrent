@@ -19,8 +19,7 @@ Post Apocalyptic Mayhem [1.0] (P) [Multi6\+] 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Charlaine Harris: Dying for Daylight / Смерть ради света (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:C7D400AE97A0C1FA9D2407BCC0A6D9548FE0F866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nail'd [Ru] (L) 2010  | R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:E3FBE47095CB2440B36B0AA0C5E9D3C77F7A9D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

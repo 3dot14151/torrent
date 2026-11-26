@@ -20,8 +20,7 @@ DesktopImages3D 2.29 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D979353002BE1890AF844F39B6A1676C281B3CBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Streamlabs OBS - незаменимый инструмент для любого
 ```bash
 magnet:?xt=urn:btih:E62534708F06B3EDE653D6F97C9E1F49E1FFF403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

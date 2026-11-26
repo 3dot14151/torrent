@@ -19,8 +19,7 @@ Redemption Cemetery 3 - Grave Testimony. Collectors Edition / Кладбище �
 ```bash
 magnet:?xt=urn:btih:C95410581C2D3C9576EBA6F5AEA2A20FB04B22B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jo's Dream: Organic Coffee / Мечта Джо. Органический коф�
 ```bash
 magnet:?xt=urn:btih:CEFAE8D874DC6817635A948EEF76F6111D01E603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Redemption Cemetery 3 - Grave Testimony. Collectors Edition / Кладбище �
 ```bash
 magnet:?xt=urn:btih:63B617A8F0A9BF3D600DCFA4E26A021B1F4119E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ A Virus Named TOM - инди-головоломка, смотрится заба
 ```bash
 magnet:?xt=urn:btih:0C0C75A4C98FA88010FBA2FCBDC92F751F9D2493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Xpand Rally Xtreme [Ru] (RePack) 2007 | Skorp1oN
 ```bash
 magnet:?xt=urn:btih:64B0D1997C3E7A0CCA49C7A4A8343AD0AE84C8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:28B33F87D40F3B4AEBE0610E0077BFC4B1C02CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:AD21BD681E562529D985F738080DCD1D44958019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:8F3FC29122CFAC6A27F462B8B1BBDDEBC74D7331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:704165E7A0D76ED5AE38EAC0FE863E5CAAD337E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EC90944DA1862D84A28DDC468E86F6FF081C497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:0A8813259E881B022780DE7E0D75F7BEF6B2BAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:B7E7387023F40C8AE01DBA8EEB524C1DC76EC890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:6D93AC367BAAA190C11D8D9E3A2E3C5E6276B39A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:F1B5A1BB5C4CC35F43E5B9B1C806B9D27C7752B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:287D28B800F5BA2A74BA3F937BCA225B245B7E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:58B20A09CA0F88F2012A7C2CDB0233CE4B672E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

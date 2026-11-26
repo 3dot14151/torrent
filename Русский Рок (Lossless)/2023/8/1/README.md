@@ -22,8 +22,7 @@ Radio Tapok - Эпоха Империй (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 ```bash
 magnet:?xt=urn:btih:2F2F8CB45CB95E2D36E8786F8A183B1B96DD82D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

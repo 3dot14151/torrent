@@ -19,8 +19,7 @@ Handy GPS - Настоящий ручной GPS с множество функц
 ```bash
 magnet:?xt=urn:btih:41175347239423C818C8A95F689665BB9875CECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCD6C9F4039EA17D1AD3CAA96868B90F2F5688B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

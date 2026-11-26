@@ -22,8 +22,7 @@ Kimi Work - десктопный ИИ для выполнения интелле
 ```bash
 magnet:?xt=urn:btih:CB87A85C28AD9D2449B47A8CC459126B0BE2A010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Qwen это семейство нейросетей от китайской ко
 ```bash
 magnet:?xt=urn:btih:1FCE37B278C79A3B039835F7EC557042C6CBA651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Blue Iris представляет собой профессиональное �
 ```bash
 magnet:?xt=urn:btih:9355A43299E2CE91CECC5D4232142A638EEAD3EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:73C8E12ECBAC9C1F0AAFB016E0BAC0B25C4F62AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ CPU Temp 1.10.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:FA01DA42D34556E3A1B777D9CF24303A338B80E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:9741233E00C258DCA96917FE2B7F2C3248116460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2566E57096127C9EB737EEAD9CDB5D1DB57151E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:130A8B884883B6040CE8E26A6D3132DBC64324DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Hasleo Backup Suite — это программное обеспечение д�
 ```bash
 magnet:?xt=urn:btih:08B79A482260A76E2BEDA317BF88C7B1A8653419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:1C9527633CEB89582588A777A0DA61FC77DE7C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

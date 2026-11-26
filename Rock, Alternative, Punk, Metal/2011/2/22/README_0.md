@@ -28,8 +28,7 @@ All Ends - Дискография (2008-2010) [FLAC|Lossless]<Modern Gothic Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

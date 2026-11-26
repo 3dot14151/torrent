@@ -19,8 +19,7 @@ Psych (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:D176F369E775F700E13E6A1B8613C19F1505521E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Pool Nation - новейший симулятор бильярда, с один�
 ```bash
 magnet:?xt=urn:btih:D4308EC49C067AE344AC962E921CA247B2564B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

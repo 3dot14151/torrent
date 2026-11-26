@@ -21,8 +21,7 @@ Grand Theft Auto: London 1969 (сокр. GTA: London 1969) — первое до
 ```bash
 magnet:?xt=urn:btih:A74C2FF0744C550880DB48B02CA9DEE017D19422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ USB Camera Standard 2.1.2 [En] - запись видео с внешней ве�
 ```bash
 magnet:?xt=urn:btih:DE173B154117130E85A4E06E92C7AC42CE18880D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

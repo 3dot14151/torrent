@@ -19,8 +19,7 @@ Wi-Fi Scanner — удобная программа, с помощью кото�
 ```bash
 magnet:?xt=urn:btih:949CF9B34E85ECC9DC0082B25F27CC9199A30F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

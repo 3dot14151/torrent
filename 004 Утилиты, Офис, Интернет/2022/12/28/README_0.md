@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4687232A5069A4DDDD2B8F1C0F8240A5C09C25B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45C0863EC7FF047F75C3F0C0AEFFB5B3FCB8C88E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E352A392F6278F65B0FF73B14D5EBE92ED723FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:804C2BF5D3CBFF8DCC830A673F73483342E4260F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

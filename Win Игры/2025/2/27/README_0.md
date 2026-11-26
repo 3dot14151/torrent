@@ -19,8 +19,7 @@ The First Berserker: Khazan — хардкорный ролевой экшен. 
 ```bash
 magnet:?xt=urn:btih:6A8C84FABDD580168ABBFFE9F199854B4E8B6A42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ninja Five-O позволит вам лично пережить грандио�
 ```bash
 magnet:?xt=urn:btih:5E050DD1034014B1D6FF86E3B1273A997E4187F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sleeping Dogs - это экшен с открытым игровым миром,
 ```bash
 magnet:?xt=urn:btih:C4BFBF59D3E6573974ADDB9F49617837AA952505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Monospaced Lovers сочетает в себе несколько жанров. 
 ```bash
 magnet:?xt=urn:btih:CAE0E47CDC648EEEE172FEAFB88A1314C3D735D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

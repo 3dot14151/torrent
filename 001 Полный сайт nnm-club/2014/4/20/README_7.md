@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:64889BF56C20BD52C51345B9D1C021D4560073E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Grenouer - Border of Misty Times (1996) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:EE55B65FD64AF67CE58DE376477C29334C0C7099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:2B9171354B16E0272B0BC05323E3C64B74227F8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3F3020AD7F1A86C37CCC2F2C53AC03C6413DBDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Воистину воскрес! (2013) [MP3|320 кб/с]<Этно, Поп,
 ```bash
 magnet:?xt=urn:btih:4488A5879F11B015752C1B35B94A1C3F3EB8CB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8894CC3AB99C9D7B5E031D58E6CF3C2F9A81F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:470D61F033E0DF3E227C4485E5FDD5C32BAA5E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:657DF1BD1B95FC89A46EFA40C89EC44052E9D810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:2ED5D911C0518E66C02C476369D54266FAB84B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5950858FCCBACA8177A44410A987329C9B0318DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ SeaMonkey — имя нового проекта, основанного на д
 ```bash
 magnet:?xt=urn:btih:E8F897781C03E796D22E8A93540CE5FBEBBE2503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3DCB435184D958AE513F98F3A529C13DEB41F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ VA - House Music Pause Vol 13 (2014) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:CA89C4F480508A584920B26BE9375A4774C63302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5772C3F96E9C07B6F37CC7B0E68BDF240C623887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A0D46F2F7B893A193D7E2ABD9316AD0D210DAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ Lustral - Empathy (2014) [MP3|320 кб/с]<Chillout, House, Progressive, Trance>
 ```bash
 magnet:?xt=urn:btih:31F2F35230893C6410DB5BDB47118AF7C940A21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +507,7 @@ Blue Sky Black Death - Late Night Cinema (2008) [FLAC|Lossless]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:01720709C8A5B26750E89D8330E8B5B5A17BC55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ Discovery: Наука магии. Опасное падение / The Magic of S
 ```bash
 magnet:?xt=urn:btih:B90CD6FA903115A50AB7BD20187D87759F2B2FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ Garmin: City Navigator Taiwan NT 2014.20 (15.04.2014) <Ch>
 ```bash
 magnet:?xt=urn:btih:CCE36C339C14663DEFFFB4ACFC8247C944B65D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +586,7 @@ Leon Russell - Life Journey (2014) [MP3|320 кб/с]<Blues, Soul, Rock>
 ```bash
 magnet:?xt=urn:btih:CDEA17CB6F1B64F99F73531F9FA37B5972302F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +611,7 @@ Wallpapers - Camera [JPEG]
 ```bash
 magnet:?xt=urn:btih:1D7538BC22772CDAC7E0B65323270465087A7E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ RAM & Susana - RAMelia (Tribute To Amelia) (2013) [MP3|320 кб/с]<Trance, Upli
 ```bash
 magnet:?xt=urn:btih:C242CF45A618A6F2CF8C5AE1201D754D720FDEF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +671,7 @@ VA - АвтоЗвук Выпуск 50+50 (2014) [MP3|256 кб/с]<Pop, Dance, Cl
 ```bash
 magnet:?xt=urn:btih:2B13034BF3016DB80A922FB42885741910B07E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +701,7 @@ iSkysoft iMedia Converter Deluxe – мощный комбайн: медиа к�
 ```bash
 magnet:?xt=urn:btih:0028DFF94BA09D4258BA114AFAF715C51FCD32B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +735,7 @@ Lounge Cafe - Vocal Chill (2014) [MP3|320 кб/с]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:941D2BBF30258E00F844C7303D473D321BCF8472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

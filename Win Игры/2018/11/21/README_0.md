@@ -19,8 +19,7 @@ Paranormal Files 2: The Tall Man / Секретные досье 2: Верзил
 ```bash
 magnet:?xt=urn:btih:BE91CC2FCFFE86E34BADFAFFE8F33E0D7F6C0BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

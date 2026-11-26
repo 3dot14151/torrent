@@ -19,8 +19,7 @@ Streets of Rage 4 – Это новая часть одной из лучших 
 ```bash
 magnet:?xt=urn:btih:77E2D60EEC56CBECDB66C410D73B50E600238EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wasteland Remastered (2020) [Ru/Multi] (1.24) License GOG (обновляема�
 ```bash
 magnet:?xt=urn:btih:A6E0786550FC1B95B0E9D2F0250B35274F6C266C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ XCOM: Отряд «Химера» открывает новую главу в и
 ```bash
 magnet:?xt=urn:btih:1AF33EA5ADAF40D13B7D35E385BCFE998523F1E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC3128F9F80DB65BFD65CFC37E1699D8AA3F5610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

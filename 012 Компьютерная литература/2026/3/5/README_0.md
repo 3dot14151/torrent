@@ -21,8 +21,7 @@ The book’s step-by-step approach (   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:940810EEE3AE1B25AD1F95A82094361A4B3077D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Fottiniya | Промпт-инженер текстовых моделей ИИ. 
 ```bash
 magnet:?xt=urn:btih:816480ACEE43803BD4B72CB1A64F49ED69BEA947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:308780AA0A50544E00A8AA7A5A38638BEC804A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

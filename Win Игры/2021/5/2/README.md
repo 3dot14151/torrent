@@ -19,8 +19,7 @@ Secret City 6: Sacred Fire / Тайный город 6: Священный ог�
 ```bash
 magnet:?xt=urn:btih:82AB7045650BC82B76DE205E6AB9E1ED5286F7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ REDEEMER: Enhanced Edition — это жестокая и бескомпроми
 ```bash
 magnet:?xt=urn:btih:205DADD6A29031EA5C006D51D7D610337EC9B8CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beholder (2016) [Ru/Multi] (1.6.0.12741/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:21324F89729F4D17EF0C486793E7CB2C4C7E4A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Signifier (2020) [Ru/Multi] (1.101) License GOG [Director's Cut Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:476CEEDDD89A372440C1AE3CB528EB4481701D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

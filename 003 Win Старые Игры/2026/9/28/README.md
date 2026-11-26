@@ -19,8 +19,7 @@ Catwoman (2004) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:384B6C7D454AC1C9B36C1DA064D5214CC130FB81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

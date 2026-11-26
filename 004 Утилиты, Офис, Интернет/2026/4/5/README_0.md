@@ -21,8 +21,7 @@ Text Edit Plus — это простой, но мощный текстовый �
 ```bash
 magnet:?xt=urn:btih:EB245FB86C20C4AA52F4FE17AB31C8956E7D24BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ IconTo Pro 7.6 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1D33241239525A8D23F41F175DD5E61B577DED16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:34F80F9E3BEB48B428CDB0B42C1EC016F8E654C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ BackUp Maker может создать резервную копию любой 
 ```bash
 magnet:?xt=urn:btih:21A2FB22C2E9E6A324154E58B8B1BC4345F085F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ WinCHM - небольшая утилита для создания файлов 
 ```bash
 magnet:?xt=urn:btih:EEBCBB1F8F166038C51797B73CF65B52E80A9663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Soft Organizer Pro 10.36 RePack (& Portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FE9C7473C8E9C759BB22C3C5C3C9A953574FBEA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ MediaHuman YouTube to MP3 Converter 3.9.19 (1803) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1EEE0F01F2F4545FD9C199508C6F568D818DFBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 ```bash
 magnet:?xt=urn:btih:92C70A7B11002C13EBA2786DF06E7B179DB30D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Core Temp - программа для контроля температуры п
 ```bash
 magnet:?xt=urn:btih:CB4125409ADD278A951571D3BE9582567FB06F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ MediaHuman YouTube Downloader 3.9.19 (1803) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:62F69124B859D0ED0C1663CDF315165F36A25D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ MediaHuman YouTube to MP3 3.9.19 (1803) RePack (& Portable) by elchupacabra [Mul
 ```bash
 magnet:?xt=urn:btih:74FEF352833FC90E5A86B81433742E75A8BC17FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ HEU KMS Activator — это простая в использовании про
 ```bash
 magnet:?xt=urn:btih:303C3A892CAF778BCACC24EE9367CABF6ADB2260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

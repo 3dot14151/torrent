@@ -26,8 +26,7 @@ VA - Glow: Washington DC (2011)
 ```bash
 magnet:?xt=urn:btih:B768E567509AE40C8206A29688EEE706B83063B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - TMP: Trance Harmony 046 (20.06.2011) [MP3|320 kbps]<Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:15C22519EC324A40526FD7B0A73655F597AEE086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ VA - The Dance Cube XXI (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:B29AB2C4991C219911FA8C57E38840B2C63C4144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ VA - Trance Classix: Volume Two - 1999-2004 (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:FE5B701003F58B31E56FF5A4E5A0BEB846862404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Soundcheck - Soundcheck II (2007) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ VA - Eternal Music Vol. 1 (2011) [MP3|320 kbps]<Progressive House, Tech House>
 ```bash
 magnet:?xt=urn:btih:7532A48764494362DE5E94174CB10F7953BA198B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ VA - Dirty Shade - December 2k11 Mixtape (2011) [MP3|320 kbps]<Progressive House
 ```bash
 magnet:?xt=urn:btih:224E37288198FB0F4158C94986B08434E9278624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DFA4DAF45D89C1B8A4A0B8EF8403D6F5B6E6371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Phil Kieran & Green Velvet - Series 001 (2011) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:D8057B62AA3EC992AD44813847280152BDE3A767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Dramatvm - The Prophecy Of Mhisty: A Prelude Of Chaos (2011) [FLAC|Lossless]<Doo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ EMIRAI - концепт футуристической информационн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C35C097DC019D66FBF8888AB402CA3CBFC86D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +406,7 @@ VA - Underground Trance Anthems (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:3511EF238C3218D7193645CC8FFD751340746CC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +440,7 @@ VA - TMP: Trance Harmony 047 (2011) [MP3|320 kbps]<Trance, Uplifting Trance, Dre
 ```bash
 magnet:?xt=urn:btih:AAEB04856B91146A9CFBF716F1C8E15FAF3A9697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +474,7 @@ Aly and Fila - Future Sound of Egypt 215 (12-12-2011) [MP3|256 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:CC7FFC7B990EA1935ABF2B31DA5C68916376B7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +533,7 @@ VA - Anjunabeats: The Yearbook 2011 (2011) [MP3|320 kbps]<Trance, Progressive Ho
 ```bash
 magnet:?xt=urn:btih:1F748F44AB59D5F9F7DC697149245021599D39AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1AD5376804C0A0CD4886C33B612BDCDBE40A96F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5A346E6D6D51EB0117866874110E823BAB4F67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA1202E0C4E0CE846B25D5FF263C24620EC15977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F21E4312B319C7ED901C521732B060BAC72B6C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +692,7 @@ VA - Best Club Radio NRJ (2011) [MP3|256 kbps]<Dance | Club>
 ```bash
 magnet:?xt=urn:btih:285297793FAFC529EF6C3C500F9E6191684B4ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63B9F0D7E7375AC0A86B85B987FAC6436124D43F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +751,7 @@ HuNTTeRR - Одна мечта на двоих (2011) [MP3|320 kbps]<Electronic,
 ```bash
 magnet:?xt=urn:btih:7089A4857F5FB4901FB98746A8696328B5D288CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +785,7 @@ VA - Максимально танцевальный 50/50 (2011) [MP3|192 kbps]
 ```bash
 magnet:?xt=urn:btih:F7B21187DA3F1F17A8B303C8648E1E6C53D9DE72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

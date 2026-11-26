@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:75C923075A0B0581A43113B465CA7301657B5E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ CleanMyMac 2 позволяет легко и непринужденно изб�
 ```bash
 magnet:?xt=urn:btih:313C330B201427F873084DAB7773E4181C7AAB9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE817E496F06D733746CDC3AC7ED07267D9FEE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ PTGui Pro 10.0.7 [En]
 ```bash
 magnet:?xt=urn:btih:D0052979DFEB37D7B1A7F8FF977FA22B176BDDE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEEBCCBC2DB71AB652379C126E3A90EBD23037B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0D8E60DDCAD07AA28807579E9AEBDBEC73E0842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ oбраз флешки создан программой Acronis True Image Home
 ```bash
 magnet:?xt=urn:btih:72E2CECD4A9BE3CF742A0DEEF531F0D94941DD0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2606C71453DD6A3887E61BDE0FDF028EF7EE868A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Autodesk Inventor – это всеобъемлющий комплект реш�
 ```bash
 magnet:?xt=urn:btih:55CC97ABD54C028428C0296480E024A79AA3C25E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Alcohol 120% - эмулятор CD/DVD-дисков. Программа созд
 ```bash
 magnet:?xt=urn:btih:6F2400CBF10969B6AE345EDDD91F4525C20673CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Medieval II Total War Collection (2006) [Ru/Multi] (1.5.2.0/dlc) License PROPHET
 ```bash
 magnet:?xt=urn:btih:319BE68B88C974F3B10638A85F112577300F19A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38B3DBB560E2582934FD6E7C2141BFBE330E6237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.0.0.574/dlc) Repack R.G
 ```bash
 magnet:?xt=urn:btih:2F5EE8EF21B90CF46F957E82C17CEB4B175DE2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Dead Rising 3 (2014) [Ru/Multi] (1.0.0.5 Upd5/4dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:5F8DAA37147F80414AFB6FAB189B59C10583AE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

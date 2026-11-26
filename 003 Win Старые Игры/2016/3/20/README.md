@@ -19,8 +19,7 @@ Crime Cities - это оригинальная комбинация шутера
 ```bash
 magnet:?xt=urn:btih:449C7072473AA644BDD849DF063467306584F21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

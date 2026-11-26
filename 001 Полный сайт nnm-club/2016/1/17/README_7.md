@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:AE9F41FFFFC3E09D8158A3B8EC7BED9F50BAFF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Fallout 4 - это продолжение знаменитой постапок�
 ```bash
 magnet:?xt=urn:btih:B9A92AB373F2E6C40C103A651E4CB60B9833FA0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Daemon Tools - маленький по размеру, но мощный по в
 ```bash
 magnet:?xt=urn:btih:E95123D50E7FC23C46779A3BA8A1E467F189159B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93557F6C8B3E5F7C56A3B68B9509C9D68D87DE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Gas Guzzlers Extreme – это динамичный, яростный, агре
 ```bash
 magnet:?xt=urn:btih:F3666DB77610860D1957FAFC8B01DFE22681574F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81E781B9BD87B57C70D3C0F5AE0635A7F2EA5652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Skyrim: SLMP-JG (Simple Lore Mods Pack - Just Game) - это всем извес
 ```bash
 magnet:?xt=urn:btih:EE044E6A61423828B875BFE99FEA3FFCE0596CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Stronghold Crusader 2 - это долгожданный сиквел ориги�
 ```bash
 magnet:?xt=urn:btih:1C48531D47426DDAB01A6D6082596ACB4F9C1429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

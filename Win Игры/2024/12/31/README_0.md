@@ -19,8 +19,7 @@ Men of War II (2024) [Ru/Multi] (1.041/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7BAE598D5B0C1302B7C7978E9E87B9A764F76BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Architect Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0DFCCEF952758171BAF55A6359FEF6086C51EBEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vincemus - Air Combat переносит игрока во времена Вто
 ```bash
 magnet:?xt=urn:btih:725BE1F9CC869C16B15CF28377A994093A439DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dustborn - дорожное приключение, вдохновленное �
 ```bash
 magnet:?xt=urn:btih:3FD638EED20A91DD861E6F64E2CAA82462393696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pyramids and Aliens: Escape Room (2024) [Multi] (1.0.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2AC39E353B6B352913987DF334A428E36C084183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Free Durov (2024) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F044D28B173DBA52563BFDA42E5D067E8A85AE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack Let'sРlay [Del
 ```bash
 magnet:?xt=urn:btih:BA416A4CA71F5C1C94B3E6A54B4106AAFB73205B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dog Man: Mission Impawsible воплощает любимую серию кни�
 ```bash
 magnet:?xt=urn:btih:434CB3D59FD6CB353682AAED79FE5A4B5F8E4D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Trade Conquest (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:35B1B82B20519E1786D76FE7138FEF6B24418EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Locked In Mind (2023) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CF98DB02B5EB18CFE15895D112092974B30CF6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Ink Inside (2024) [Multi] (1.0.2) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:C464D2471E35C9EE617D006F8C37D7D04AF6CF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Strange City (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5333D60DBABF65303DEE77730204CBA923DB209D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Anima Flux - это кооперативная метроидвания про �
 ```bash
 magnet:?xt=urn:btih:483C6E0AAC5DB653D3EDEF99FC6DA2FE3D9AAB65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Follow the Meaning - приключение в жанре point-and-click с г�
 ```bash
 magnet:?xt=urn:btih:C66A861373460E316CD2F05771D274D5868B2FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

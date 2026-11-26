@@ -19,8 +19,7 @@ Microsoft Office 2016 OEM Preinstallation Kit 16.0.6001.1054 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:16FD37D6AB132C497A009EA96B5F05E94C365A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

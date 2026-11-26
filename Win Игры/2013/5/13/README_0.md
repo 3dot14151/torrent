@@ -19,8 +19,7 @@ Football Manager 2013 – настоящий прорыв в истории ку
 ```bash
 magnet:?xt=urn:btih:9C2FE8DD2759FB2D6C61DDDD6B1D105036435D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

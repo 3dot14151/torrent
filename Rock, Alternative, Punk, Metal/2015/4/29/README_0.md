@@ -23,8 +23,7 @@ Damnation Angels - The Valiant Fire (2015) [MP3|320 кб/с]<Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:BFD1618A9DDB6FA44F12B0F9B4B4337416FBA00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Legend - 2 Альбома (1971-1972) Limited Edition /2005-2006, Repertoire Rec
 ```bash
 magnet:?xt=urn:btih:447FA23509242E0E73D2B99ABDDD6E10765822AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Nadine Shah - Fast Food (2015) [FLAC|Lossless|WEB-DL]<Indie Rock, Post Punk, New
 ```bash
 magnet:?xt=urn:btih:B32F58DAFA8526CC0CAA285041A5D83623A7FAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ The Royal Philharmonic Orchestra - Plays Prog Rock Classics (2015) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:52BD29A07DAE655944D01434A254CEB86543E268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Talon - Fourplay (2015) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2DAB8EF953377579F6CA6D9912EFB4948382DE5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ The Cold and Lovely - 2 альбома, 2 EP (2012 - 2015) [MP3|320 кб/с]<Alt
 ```bash
 magnet:?xt=urn:btih:5D466B9F339A89A7DBA7A8588F2C9F51020367A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:706A2D348A430EC1D0D0FCC2FE3CD6A9E591DDB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

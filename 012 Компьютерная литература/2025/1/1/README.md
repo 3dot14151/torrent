@@ -19,8 +19,7 @@ Charlie Boyle, Laura Bailey | Red Hat Enterprise Linux 7 Performance Tuning Guid
 ```bash
 magnet:?xt=urn:btih:E07149A043C4EEC02F2645DC238DF8B6FFEEB5C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

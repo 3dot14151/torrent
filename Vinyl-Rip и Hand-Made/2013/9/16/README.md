@@ -27,8 +27,7 @@ Nazareth - Razamanaz (1973) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

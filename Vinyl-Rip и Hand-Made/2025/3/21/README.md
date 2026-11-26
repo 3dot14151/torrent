@@ -22,8 +22,7 @@ Disarmonia Mundi — музыкальная группа из города Ту�
 ```bash
 magnet:?xt=urn:btih:5F97A4AB4EFB63E8EDE9A22CF6E40AA2B5CE0CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A-IV. Barbaric Horde(   Читать дальше...   )Жанр: Black, Death M
 ```bash
 magnet:?xt=urn:btih:72820BD4D1076434EB63F8751EECCD20ECDE9879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 As The After Becomes The Before(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:29F60F7A27DC034A7C7756CD7FFACBEBD59F881A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

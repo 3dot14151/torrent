@@ -19,8 +19,7 @@ Intel Extreme Tuning Utility (XTU) – это простое в использо
 ```bash
 magnet:?xt=urn:btih:B70456864E68A731DC999C8C742C69C8519B1021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

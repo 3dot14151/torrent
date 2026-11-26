@@ -20,8 +20,7 @@ TrayStatus - небольшая утилита для индикации в си
 ```bash
 magnet:?xt=urn:btih:99D7A60FFC2F642EFB15C02B40969413D841C01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Device Monitoring Studio (DMS) - это высокопроизводительн
 ```bash
 magnet:?xt=urn:btih:7CEF308C3E92B24E77788C560CB5C7A2617C9E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

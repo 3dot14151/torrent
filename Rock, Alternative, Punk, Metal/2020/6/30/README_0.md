@@ -22,8 +22,7 @@ Cosmic Letdown - Pustoid (2020) [MP3|320 Kbps] <Psychedelic Rock, Space Rock>
 ```bash
 magnet:?xt=urn:btih:4C58584E320DA90BDB46A449F84A6B884A9283B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fraser Edwards - The Architect (2020) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:5F2B73CEA535020C1272EDCFFEB3E13977B4D566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Message of Love: Rock Love Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock
 ```bash
 magnet:?xt=urn:btih:9E5048BA49B9C0144EB8D03365B961355684D097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

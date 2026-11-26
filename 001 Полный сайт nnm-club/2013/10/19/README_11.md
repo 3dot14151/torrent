@@ -20,8 +20,7 @@ Gianfranco Grilli - Il Tempio Di Karnak (1998) [MP3|320 кб/с]<New age, Medita
 ```bash
 magnet:?xt=urn:btih:6ED86D30CE2766AFB6F3CF97260B5CDB8A4F6BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47132C0B79C2847814A7FF3934B2716FEE28B821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAD410F197959462C4824974E32400B47061D24A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Brown Jenkins - Death Obsession (2009) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:A6022724CB20210B311B827C0AF0C99B531A5589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D4E46CF683B6E4C198A93F8D7780FD7086E1078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Gianfranco Grilli - Il Tempio Di Karnak (1998) [FLAC|Lossless]<New age, Meditati
 ```bash
 magnet:?xt=urn:btih:5BCE394FC853C07316A5CE371F85B3C4B3B950A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Monster Tunes Amsterdam 2013 (Mixed by Photographer & Edu) (2013) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:3C6D8C44681DD234922D2D8AF33B7EDED5A652DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAAF2E654889F0332A00A12DAE751DFBFD3CABB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Клубные Новинки Vol.313 от AGR - Generalfilm (2013) [MP3|32
 ```bash
 magnet:?xt=urn:btih:D0E90BFF388C56C50046F620B33C09B276E5AC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC23B1CA66B1CF695BDCF703F5DED8217E0E0356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8CB76419BF2461082A6AD04FC1796967BF3194A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Proxillian - But Sorrow Remains (2013) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:37CC0A4F542344DAA583B419BD067877664281E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ VA - Exotic Wafture #38 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting Trance,
 ```bash
 magnet:?xt=urn:btih:21CA9370473B1221973AE5F3AA0EDE3FC9C5C1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ Brother - Cold Shoulder (2013) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F5C2A32121498B8CF7015A0F4649EF3BF13B63B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:795EA6EA54B8577F72A61000D9328495AC60D789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +477,7 @@ Blackrain - It Begins (2013) [MP3|320 кб/с]<Glam Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7C83D76A67117DC834468CCA7C2CCC2A55B33AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ VA - Клубные Новинки Vol.314 от AGR - Generalfilm (2013) [MP3|32
 ```bash
 magnet:?xt=urn:btih:2BE8C4C7CABC2C5288DF4E63B6C7633139F5DCBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BDA4AC23AE0C32A79ADE3A7D5E1978E104006EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ VA - Зажигательная Клубная Осенняя Тусовка (20
 ```bash
 magnet:?xt=urn:btih:7C911CBA4DE91EF50BFF8BF4112F0AEE1B9B7503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +604,7 @@ Ihsahn - Das Seelenbrechen (2013) [MP3|320 кб/с]<Extreme Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:6808E6F0AF974653D2DA979E6C154C76FE32EF43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24BF992238272A475C6D9C7D20EDA6B86B51447B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ Dj VoJo ft. Dj Pashkevich - Любовь по-русски 6 (2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:81CA9FA86BBE9028328E29A421FD1AC97626F67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D542C3AD9E3CAE99D9A26053FA506B196FFFE10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4E46CD9039A93DA24BA589894FEBE50CB1838F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

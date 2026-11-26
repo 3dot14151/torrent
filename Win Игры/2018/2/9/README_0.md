@@ -19,8 +19,7 @@ Lost God (2018) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:9E68FFD09A66627058512CDA21B1DCE590A98EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Treasure Adventure World (2018) [En] (1.02) License PLAZA
 ```bash
 magnet:?xt=urn:btih:9AE9C47034A1FC1C9872F1510483B6C7551B8005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ling (2018) [En/Ch] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:52D9D2734ADC986CECD03E9EDF49E780C0AAF0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kona / Kôna (2017) [Multi] (07-08-2017) License GOG
 ```bash
 magnet:?xt=urn:btih:02D17115195D76C7B14679A34D8983D5B33825C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sudden Strike 4 (2017) [En] (1.06/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:8AFFC2104572AA6C3361BD87A8DA55F969DAAC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Condemned Criminal Origins (2006) [Ru] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:65FEAEF5C3E7C63EBF5F50CDDDB28093546EDD31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Castlevania: Lords of Shadow - Mirror of Fate HD (2014) [Ru/Multi] (1.0.684579) 
 ```bash
 magnet:?xt=urn:btih:3C8A4CA2BB5DB80EAD669688AD490DF897C4AD2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:CE59CE5B08FB1FC1124A1EF5BEEDC230A636D935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/Multi] (1.0.0.1/dlc) Repack R.G. Catal
 ```bash
 magnet:?xt=urn:btih:9A0A34DE3FE5387AA34D7362995E01888FF8E246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/dlc) Repack R.G. Catalys
 ```bash
 magnet:?xt=urn:btih:F40A09AFFA1F1704298E0F4ECD5CEB1AB211087E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Planetoid Pioneers - это двухмерная приключенческая 
 ```bash
 magnet:?xt=urn:btih:A322766D99132513949C3ED68CA81E6389C0B187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:205F82509DF5D8C69D00A7D5B69914A9704E9DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Stellio - продвинутый плеер, с мощным звуком, по�
 ```bash
 magnet:?xt=urn:btih:D9FFBBC2B86FD45A9DC8F092D0A72BCA28E3289F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:D0A235A7B45DBEF5C39B187ABCD82F7150F78EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:F0CD222CA8170DB27841190A6EFECD757931C0F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Stellio - продвинутый плеер, с мощным звуком, по�
 ```bash
 magnet:?xt=urn:btih:3653F20FE5B9F6BC2C9E243C97440DBBFAEBAD7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:DB2950CB0FFC60C4BE4E7E1AE30A1D92B74F697B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Anteater - Oxygen (2013) [MP3|320 кб/с]<Screamo, Post Hardcore, Female Vocals
 ```bash
 magnet:?xt=urn:btih:6488032D6580D17210DD380C1E792BA9EA7E7B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Wartex - When It All Fades To Black (2014) [FLAC|Lossless|WEB-DL]<Southern Metal
 ```bash
 magnet:?xt=urn:btih:ED3CE51682018D02B0C9BFE796ECDA71D165DACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Infestus - The Reflecting Void (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:481615250B46F04AB2388A7DB960795BC5ED5DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ VA - Trance Desire Volume 49 (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:BD0173002D9BDAEDFF32A41F30273C8F1F78C576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Greg Fiasco - Clockwerk EP (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F233FE7C5A04CC786068E3A9F484B424260C2456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ Eltharia - Innocent (2014) [FLAC|Lossless|WEB-DL]<Power/Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E453BDD90B89EF3A56E17B344120EF30BC90FAF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ These Are They - At The Feast Of Seven Funerals (2014) [FLAC|Lossless]<Death Met
 ```bash
 magnet:?xt=urn:btih:DD0876B918C73A45F0CE368B51E6669E26C88A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ Monolake - X I E (2014) [FLAC|Lossless|WEB-DL]<Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:60BD83163DBBE084D2C7BAD0E035DBC6857B9BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ DJ Nike Twist - TranceWave 104 @ GTI Radio (18.12.2014) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:93266FF633EAC84F089B94BEB1499A2505842EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Side Liner - Ambidramatic (2014) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Amb
 ```bash
 magnet:?xt=urn:btih:52193D40BD65737B930088CBED48F600670B1F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Chris Karpas & Mass Digital - Don't Stop (Till I Come) (2014) EP [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:81425CF68D2CD994676595D5096D6563582932E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ Beat.Dowsing - Rising.Current (2014) [FLAC|Lossless|WEB-DL] <Downbeat, Electroni
 ```bash
 magnet:?xt=urn:btih:89354B8D0A6A099753BBFAC57CE9845C4F278598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ VA - The Moonbeats (2014) [FLAC|Lossless|WEB-DL ] <Downtempo, Ambient, Psychill,
 ```bash
 magnet:?xt=urn:btih:569D6D451284A828485056EBB0808A082A68614B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +461,7 @@ Abando & eSonic - Valentine's: Love Lounge Vol 2 (2014) [MP3|320 кб/с]<Lounge
 ```bash
 magnet:?xt=urn:btih:4A234B789A84CA0E62BD6B7D4D6AB19AA05AC301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +495,7 @@ Stoneman - Goldmarie (2014) [MP3|320 кб/с]<Industrial Metal, NDH>
 ```bash
 magnet:?xt=urn:btih:0A50CDF11345A52C4C16F4D5844B43FCACCA19CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +527,7 @@ John Ov3rblast (Ov3rblast) - 8 Releases (2010 - 2014) [MP3|320 кб/с] <Ambient
 ```bash
 magnet:?xt=urn:btih:57DF4B35BE16FAC8A79B3E38F92BAB3D73D55BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +561,7 @@ The Steve Sutherby Band - The Steve Sutherby Band (2014) [MP3|320 кб/с]<Class
 ```bash
 magnet:?xt=urn:btih:1E5ADFA256C67ACD16441CA58237E5C6D66C49FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D29AFE3C224D562C2A90ECFC92C60C9BE740ED6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41D87E42861955C6E5D4274D0AD8531D37486421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A22FC97198BF1D7329BC898A11D9BDFF3D41ED19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B86F7A55086E27E99964764155014988E6B69195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +700,7 @@ VA - Maschinenfest 2014 (2014) [FLAC|Lossless]<Industrial, IDM, Dark Ambient>
 ```bash
 magnet:?xt=urn:btih:B4D1D026B6C1B70D46356C02FB43C49CDE4474C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1093CB94F2651A5109377882B4BBB1C730C876BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +759,7 @@ Cody Canada & The Departed - This Is Indian Land (2011) [MP3|~245 кб/с (V0)]<
 ```bash
 magnet:?xt=urn:btih:962F8A1CECD8BBDE2BA153C7C008F33BCD3BD6B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +784,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC884FFB26DFD59CB0A5FEC11250B51674CFFD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

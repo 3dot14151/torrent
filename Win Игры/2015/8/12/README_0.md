@@ -19,8 +19,7 @@ Fairy Fencer F (2015) [En/Jp] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B2266B69EF5F1E14DF95B850E1865979C8411877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gas Guzzlers - динамичные захватывающие гонки на �
 ```bash
 magnet:?xt=urn:btih:CCB10A06B4E587E2C6703C592605A6C59574D737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hearts of Iron: Trilogy / День Победы: Трилогия (2002-2009) [E
 ```bash
 magnet:?xt=urn:btih:4EFF856766417DD877148B8B2D7AE4A603054589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

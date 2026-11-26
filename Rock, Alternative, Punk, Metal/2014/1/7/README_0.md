@@ -28,8 +28,7 @@ Forlorn Path - Man's Last Portrait (2013) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:019C99355949412DAD77A805E3AAC33BF086D0C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Conniption - Time Has Come (2013) [MP3|320 кб/с]<Heavy Metal / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:10739AC714FF75AC2745E66AF2EA44C9D095FF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Beyond the Vortex - One (2011) [FLAC|Lossless|WEB-DL]<Metalcore\Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:B93FB40DC2FD17068777CAAE70CCB5B502DCB4CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Shung - Guitars(   Читать дальше...   )Жанр: MetalcoreПродо
 ```bash
 magnet:?xt=urn:btih:09AF022E6C3C019C94AF7D8FFBAD726C45038136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Al-Namrood - Heen Yadhar Al Ghasq (2014) [MP3|320 кб/с]<Black Metal, Folk Met
 ```bash
 magnet:?xt=urn:btih:9B317659C2CE3165A6418C2E214B7C5D9E2ED6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Operadyse - Pandemonium (2013)Japanese Edition[FLAC|Lossless]<Symphonic Power Me
 ```bash
 magnet:?xt=urn:btih:86C18AD98D8887CF01ECA2CE8FEEA832A6DA28F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Souldrainer - Reborn (2007) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0C017D3EA79BADFE4E2964370E180DA3DECB076F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Elfenbein - Made In Rock (1977) [MP3|320 кб/с]<Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7B0E0652806EB2DEE61F692EA0DC03F7BADBAA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ James Christian - Lay It All On Me (2013) Japanese Edition [FLAC|Lossless]<Hard 
 ```bash
 magnet:?xt=urn:btih:54D374463BCE2E1311B247C7304D757EAD6D7240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Electric Light Orchestra - Eldorado (1974) Mastered by Steve Hoffman /1993, Audi
 ```bash
 magnet:?xt=urn:btih:07A710E08FAE5BCD2457CBF38A472DCD901E602A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ Electric Light Orchestra - Face The Music (1975) Limited Edition, 1993, Jet Reco
 ```bash
 magnet:?xt=urn:btih:3D0500E71ADAB32681EFD3D35B3183C225D72722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:362B91FE2C873CEA797ED5B0F87CA8EFA6188F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +425,7 @@ CD1 (01:13:13):
 ```bash
 magnet:?xt=urn:btih:73523FF78F8AF6D511DE08009772D31C1EE30AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C89456BE28D48CFF39FE08D256A86C31E1D024D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

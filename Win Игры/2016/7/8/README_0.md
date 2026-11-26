@@ -19,8 +19,7 @@ Fossil Echo (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8C0597FA169CB1C27B4C50CEA7747EAB41BB9977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hieroglyphika – это отчаянная попытка спастись из
 ```bash
 magnet:?xt=urn:btih:C0B014F6826FEDDB86377576CEAEDB9966B2E247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Furi (2016) [Ru/Multi] (1.0.46) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0C5EDC3CEA18320EDB0CA1826E003887FE532187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Daylight Misery - Depressive Icons (2010) [MP3|320 kbps]<Death Metal, Doom Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Moody Blues Дискография - (1965-2007) [MP3|160-320 kbps]<Blues rock\ 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

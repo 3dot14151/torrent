@@ -22,8 +22,7 @@ VA - Полигон Records. Лучшее 2023 [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:E1EBD7719755D8580D0A3D7A96E2484343D37796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chase The Bear - Honey (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 ```bash
 magnet:?xt=urn:btih:631DF6C1A632B07CF8837191EBA55C7BED0D8E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Todd Grubbs - Inside Your Brain (2024) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D22364CA61E8E725149F1EBC59284A0A9A4EF6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EFF5F218497CDC72E81AA00AF53CEC61A61CD55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB36C8C937B2A33F911A741D25EBBFDAA8758D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Rock 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:FB0D8E81088F1DF9DE59024AC1E94ACBA05EA871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Evidence - Spiral (2002) Reissue, 2003, Irond [FLAC|Lossless|image + .cue] <Melo
 ```bash
 magnet:?xt=urn:btih:1B7B23A18A0707CBAA95674A5B46500D7811AC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Hazzerd - Delirium (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:13327B24CA10201959FB4A4F3A4DDEF724A230B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Evidence One - Criticize the Truth (2002) Re-Release,  2007, AFM Records [APE|Lo
 ```bash
 magnet:?xt=urn:btih:A7D6C063720E1837DFB7C4B9AEFE7E4ABB989280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Evidence One - The Sky Is the Limit (2007) [APE|Lossless|image + .cue] <Melodic 
 ```bash
 magnet:?xt=urn:btih:C0FEA9242BDBFEFBAF5FBD8E20C1CCB9DDF333CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Evidence One - Tattooed Heart (2004) [APE|Lossless|image + .cue] <Melodic Heavy 
 ```bash
 magnet:?xt=urn:btih:D6B22551FE40D32A9258E392ADCAFC5169A3610F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Demon - Hold On To The Dream (1991) Japanese Edition, Reissue, Remastered, 2020,
 ```bash
 magnet:?xt=urn:btih:9F83F11005D9096B5B588242F13C6EFE38BE3A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Lilly Beth - Бездарность (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Ro
 ```bash
 magnet:?xt=urn:btih:C71A30E9A8E5EC977446115DF193DB463A3C6E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4C387232F862A6DEE9A39A6B404472227538087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Sam Higham - Jam Fish (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progres
 ```bash
 magnet:?xt=urn:btih:091ABD2C3F6585C7D9E604ABBAECDEA3ECE0F06F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

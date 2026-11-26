@@ -23,8 +23,7 @@ Chugger - Human Plague (2015) [MP3|320 кб/с]<Melodic Death/Groove Metal>
 ```bash
 magnet:?xt=urn:btih:9BA7CD8BD476EE7BF7F243E0B012CF2DA6D4E35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Therapy? - Disquiet (2015) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:1E01D53A35A869F706B42376F8F2DFBA065F8334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Peter Green Splinter Group - Destiny Road (1999) HDCD /1999, Artisan Rec., US/ [
 ```bash
 magnet:?xt=urn:btih:4211E5FD0A8C3AC9449F3AEC2B93F04A68FFFB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:892E1DC4BFC9218AF976D5597917CE59FF714393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:388A35561C8CFA6EE712416CDE216B00B446026E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

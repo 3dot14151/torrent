@@ -19,8 +19,7 @@ Ultreïa / Ultreia (2021) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:D820BDBF55652D21261191F8AB6B1EC62566F8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ghosts 'n Goblins Resurrection (2021) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5329C372AB62A9970BABFBD2482AF5C9A3F4BB38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

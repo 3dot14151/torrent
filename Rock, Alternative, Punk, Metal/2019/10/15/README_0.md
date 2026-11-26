@@ -22,8 +22,7 @@ SeeYouSpaceCowboy - The Correlation Between Entrance and Exit Wounds (2019) [MP3
 ```bash
 magnet:?xt=urn:btih:787926B788DDC636B0D196C86C7B2E186368934B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Machine Head - 7albums + 3EPs + 7singles (1993-2011) [MP3|320kbps] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:B35E2B9BB4444820988CCA9E5A50071EFDB64400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Machine Head - 2 Studio Albums, 2 Live Albums, 3 Singles (2012-2019) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:58990DF4F03FA01904503772A57ACB3E88C17526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Soulfly - 8albums + 2EPs + 3singles (1998-2012) [MP3|320kbps] <Groove/Thrash Met
 ```bash
 magnet:?xt=urn:btih:37CB362A9D6057F2775103F0F2CDF25FCCB96CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

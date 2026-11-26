@@ -19,8 +19,7 @@ Bears In Space - это динамичный шутер от первого ли
 ```bash
 magnet:?xt=urn:btih:7879660F5F226FCA6567337840DFE418721C928F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Millennia - пошаговая стратегическая игра, охват
 ```bash
 magnet:?xt=urn:btih:A1B649B68AF99623FE0300C7A89AAA6A9D521F36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Legend of Legacy HD Remastered (2024) [Multi] (1.0/dlc) Repack FitGirl [Laun
 ```bash
 magnet:?xt=urn:btih:A660DD55B28DCFDD7E35F21B03208CE689CBAB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Once Upon a Jester повествует о приключениях Шута и 
 ```bash
 magnet:?xt=urn:btih:0DABE17E2DC061CFD49296969D896993B901443A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bloody Ink - это психологическая хоррор-игра от п
 ```bash
 magnet:?xt=urn:btih:DAE2F13B09456064B93ABFA673E7BC4DF09DC7E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Distant Bloom – постарайтесь восстановить некогд
 ```bash
 magnet:?xt=urn:btih:218C89C574E24F2EF8CA2702ACE7D569A2BF975A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Raw Metal (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C7BC3321B59AECAAE0D01B183749B25395AAD794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

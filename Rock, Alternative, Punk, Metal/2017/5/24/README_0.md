@@ -22,8 +22,7 @@ Cynic - Uroboric Forms - The Complete Demo Recordings (2017) [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:3D477F3B2540E370530E6C670A2BE0C34C6A4DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Papa Roach - Crooked Teeth (2017) Limited Edition, 2CD [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:860B945613C178AB0D45464364D773D570A40061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

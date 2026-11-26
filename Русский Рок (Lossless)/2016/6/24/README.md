@@ -22,8 +22,7 @@ Main CD
 ```bash
 magnet:?xt=urn:btih:EFE636A18CFD5515FBC4999CCCBD68543E47E289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

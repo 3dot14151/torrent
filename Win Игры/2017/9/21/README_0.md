@@ -19,8 +19,7 @@ Lost Lands: A Hidden Object Adventure (2017) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:723DA2E2B3F39CB6931B9FEE3E57C25673509EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 ```bash
 magnet:?xt=urn:btih:271A17713B808FE221D3EE92071BE4AA2132C48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

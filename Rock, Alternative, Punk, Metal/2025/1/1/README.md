@@ -22,8 +22,7 @@ Queen - Made In Heaven (1995) Japanese Edition, SHM-CD, Reissue, Remastered, 202
 ```bash
 magnet:?xt=urn:btih:0A55011D2FD7E48668826EF8F7B0B8B3AFDE1708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Полигон Records. Лучшее 2024 [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B177EA3FC6E728AB0EE4DC27527ADA7648AC7542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

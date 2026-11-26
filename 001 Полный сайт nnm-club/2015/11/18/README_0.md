@@ -21,8 +21,7 @@ DJ JIM - Halloween (2014-2015) (Обновляемая) [MP3|320 kbps]<Electro H
 ```bash
 magnet:?xt=urn:btih:03AFF3D3D4ECCEBA1C9DFCDA613CFB30A8EC9699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Ferry Tayle - The Wizard (Extended & Remixed) (2015) [FLAC|Lossless|WEB-DL]<Tran
 ```bash
 magnet:?xt=urn:btih:D62A0B4D3E8BB5BACCAB89B39848E2D0F5253858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:461A89EFAB1A1954B27485E8D168CA6891FF73F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:673984112787F42E6DEA401B9B99B7B69343EAC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1F885F0C4DB1A3BBB73E87C70E72E8A960EE08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:CFEEA3696281F7952FCF3BAF27E0E14234C4E18B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA8C8111F0A538F7AA2888A17F5A3A98243BBDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ VA - A Smile and a Tear Best Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:B64DE6E9B0AF061F1AAEE24BEE28B484B0D97541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Dirty Sound Magnet - What Lies Behind (2012) [MP3|320 кб/с]<Blues rock, Hard 
 ```bash
 magnet:?xt=urn:btih:F5B84F58E208097C984541658042D261C2B8C32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DED1ADE8EA1361D3292B83C91B0A27091C82394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ VA - Shogun Audio Presents: 2015 (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:9566C5AF2A91CC56B2FE019B12993CFD43394C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ The Warrior Kings - The Warrior Kings (2012) [MP3|320 кб/с]<Blues rock, Hard 
 ```bash
 magnet:?xt=urn:btih:3CCDAD96E5E92319C2ED84F79F97E83F76CA51E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, 
 ```bash
 magnet:?xt=urn:btih:683237595ADDAD846838D5BD20D4D2CB701BF236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ iPulse - Утилита для мониторинга работы Mac OS.
 ```bash
 magnet:?xt=urn:btih:6D841C1D7370F3CD35742EDA3AF78062B1038074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Kylie Minogue - Kylie Christmas (2015) Deluxe Edition [FLAC|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:36C52C9DA35302738C4CB82EF7261650DB3EA68E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:276D268B16B06EC51673C483A2E26F41C0940A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Avira Free Antivirus - бесплатный антивирус, антишпио
 ```bash
 magnet:?xt=urn:btih:EEB664FCE8C59AE44EA007BDE2550AEA52A1C6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Free Studio 6.5.11.1117 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8F3EA6C0A4F826CCF72A63BD868E11097BEA5464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Sergey Nevone & Simon O'Shine - Ethereal Rhapsody (2015) Single [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:76D94276EDA54ABAAC0F71272314060CD37F9C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ Tchaikovski - Piano Concerto No. 1 in B flat minor, Op. 23
 ```bash
 magnet:?xt=urn:btih:6C16B7E2659B06FA8C92B9909E215CAF1C0A9101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08474CF4CF1B3EBB2D8A081915152AAD9333270C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ VA - Electro Swing Elite Compilation (2015) [MP3|320 кб/с]<Electronic, Broken
 ```bash
 magnet:?xt=urn:btih:2FC320463DDCFD981E80F032B03883835630F115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ B	Синтез-Труппа Игоря Гранова -	ДастарханЖан
 ```bash
 magnet:?xt=urn:btih:FFD2A22AB7EA781B043B1A1DDD71E329E0B89FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ VA - Ангел снов (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 ```bash
 magnet:?xt=urn:btih:204C4B81ED6ADA8D61332A6B9E0FC6EB5C0246D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EFB15251390BCB764978262B7E26F590AF7E489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A8047F285B76B1E5D7201D547B6FFAE920C26BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

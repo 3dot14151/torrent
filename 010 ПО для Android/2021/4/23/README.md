@@ -19,8 +19,7 @@ MIX – это мощный, но простой в использовании �
 ```bash
 magnet:?xt=urn:btih:5988B6C7EF0E2AB06F70B273F413499FA374CE3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ n-Track Studio 9 Pro v9.3.6 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C6F7FB8D4C334F4125B8457D30676C67C8DB610A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

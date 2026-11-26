@@ -22,8 +22,7 @@ Mass Sky Raid - Calm In Chaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcor
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Red Mitchell-Harold Land Quintet - Hear Ye! (1961) 1989, Atlantic [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:9E371EA6EA0CDB7BBBFD07EC6CDCF3B6009CEF5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:6F9241610CA624E6E6A3097959D2E3CA4282AA78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Akuma Six - Akuma No Sekai (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metalcore, T
 ```bash
 magnet:?xt=urn:btih:6A7AAEC9B6C274F8AD34E3126916E7282E65078F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Stephen Crane & Duane Sciacqua - Big Guns (2021) [FLAC|Lossless|image + .cue] <M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Thornhill - Heroine (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Pro
 ```bash
 magnet:?xt=urn:btih:3989A594F33C9A44DD2A75E74CE7364605256450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Algorithm - Data Renaissance (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 ```bash
 magnet:?xt=urn:btih:4C9BBF26FBD0FA8572BD950AB90B991755DC5315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Red Handed Denial - I'd Rather Be Asleep (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Treat - Tunguska (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ We are many we are legion - Parallelism (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 ```bash
 magnet:?xt=urn:btih:3BC7BC95288685D89A0F79BC83DC64AEBA982BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Killswitch Engage - Live at the Palladium (2022) [MP3|320 Kbps] <Alternative, Me
 ```bash
 magnet:?xt=urn:btih:10330B4453BC1C27B71E61E21B34E425220D2AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F3C6DAF21C67095E7C8F8C2A0487DE18EC018C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:701F1F0FCC887D370FEE10EA10C85A469BB35637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ While She Sleeps - Sleeps Society (2021) Special Edition, 2022, Spinefarm Record
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ Caught In Action - Devil's Tango (2022) [FLAC|Lossless|image + .cue] <Melodic Ha
 ```bash
 magnet:?xt=urn:btih:6F3AA5D5A9079783552AF2F2CB935A386765D2F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ The Sheepdogs - Outta Sight (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Classic Rock,
 ```bash
 magnet:?xt=urn:btih:A9DA2DB19F285B2B36EF3EC8EADBF26582A4B850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46F17EA0D86BE4CC089DA9B750BC4693457E4BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:E7490343AA55F60664D957F0D5C3F51F952C4E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Ten - Here Be Monsters (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:467990D6B84A99FFD713832466E888B63F10E77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ Tom DeLuca - Street Rock (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ Kerion - Cloudriders: Age Of Cyborgs (2022) [FLAC|Lossless|WEB-DL|tracks] <Symph
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ ANVIL - канадская Heavy/Power metal группа, существующ�
 ```bash
 magnet:?xt=urn:btih:B31F67C93BF053F717BA504C56CBE60648995DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:F023032F50A0EBE61D417161370031D51DE2F1B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ MotoGP. Этап 09. Гран-при Каталонии. Квалификаци�
 ```bash
 magnet:?xt=urn:btih:7CC3F959BE5918975431DBE653F31C0CD4A329B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ Memphis May Fire - Remade In Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 ```bash
 magnet:?xt=urn:btih:4E75EDC756B9331B52F872FB4DF7464B94F7E37E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:599A8C44F5EC20A8F96B59E79DE2BD2CE34DF5DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

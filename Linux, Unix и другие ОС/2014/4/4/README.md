@@ -23,8 +23,7 @@ DoudouLinux (Rus, Eng). Linux для детей от 2-х лет. 2013.2 [i386] 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

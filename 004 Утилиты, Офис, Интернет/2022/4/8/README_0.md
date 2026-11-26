@@ -19,8 +19,7 @@ Windows 11 PC Health Check 3.5.220404001-s2 [Ru]
 ```bash
 magnet:?xt=urn:btih:3BFC3EBDAB018F8056B9B4841250A8C859830877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

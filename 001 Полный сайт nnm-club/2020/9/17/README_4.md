@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:074485100DF5302218E6AC4C7E33E5352EB4062C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 ```bash
 magnet:?xt=urn:btih:BF14692A981EE7F528833468BFBFE8414A58523C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Alan Wake (2012) [Ru] (1.0.7.33.72514) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5A8847A3DCD44C705897B2058F26DBEFB2C729DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Othercide (2020) [Ru/En] (6.23/upd8) Repack xatab
 ```bash
 magnet:?xt=urn:btih:74F13DFBCA69F9332D4BC1CDE20A87AAA41EAE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8447A7E92F675D45FA309CDB7D9317DCA3BFE921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Birthday Wonderland | The Wonderland | В стране чудес [2019, Movie] 
 ```bash
 magnet:?xt=urn:btih:9EEEFA359EB00184B8CE7469F3F10557542B9805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35B350F2524E9C529E38163119F4A567981C4DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Windows 7 SP1, включающая в себя 13 русских редакци
 ```bash
 magnet:?xt=urn:btih:3AEFBE4F16C76332A41BBB14DCF5DC096082D064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:E0CB522D6D7A5C83BA8C94D9ED2B25918BB66B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA7CE5DEB35FE97D87712E4C68274B8A5E32B703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D204F399D8139B596BFC9F11B2F59F2EA6BAB602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF8B4030FAE4EBD1084EA0794A44B5C1A506DBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ Chernobylite (2019) [Ru/Multi] (31663) Repack xatab [Early Access]
 ```bash
 magnet:?xt=urn:btih:98E809ED0EB811F42294F01C930E29B4BB87BACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ Windows 10 v2004 19041.508, включающая в себя 8 русских и
 ```bash
 magnet:?xt=urn:btih:69A58FA557819E40B8D6F59F42CFA3C38A5A84F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Microsoft Windows 10.0.19041.508 Version 2004 (Updated Sept 2020) - Оригин
 ```bash
 magnet:?xt=urn:btih:A227816EA65321EF84A0CABBC8A05BA8CB339351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Phoenix Point - это новая стратегическая игра от с�
 ```bash
 magnet:?xt=urn:btih:4BA6AF968123E79439F548712A4BA458E6E8FC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

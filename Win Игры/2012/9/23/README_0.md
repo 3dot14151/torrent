@@ -19,8 +19,7 @@ Tales of Terror: Crimson Dawn [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:967C5894FA68A0C959C96A0660080A182CB8DCB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Age of Enigma: The Secret of The Sixth Ghost / Время тайн. Загадк
 ```bash
 magnet:?xt=urn:btih:F8F18CD347BAC0E5AC30857AA2718AEA2D2EA9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ DogFighter - аркадный симулятор от Dark Water Studios. Игр
 ```bash
 magnet:?xt=urn:btih:27F905439E0C09522678118F4A64E481961BF321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Brave: The Video Game / Храбрая сердцем [Ru] (RePack/1.0) 2012 | A
 ```bash
 magnet:?xt=urn:btih:D3598127EEC2678123D0AA51CBBE13F658F4CA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Manhunt Дилогия [Ru/En] (RePack) 2004-2009 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:809B0DE4D613EB7191F8F30E5EA18E6A629A6F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

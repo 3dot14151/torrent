@@ -22,8 +22,7 @@ Octoploid - Beyond the Aeons (2024) [FLAC|Lossless|image + .cue] <Melodic Progre
 ```bash
 magnet:?xt=urn:btih:333C67C4C02B11B2A378320EE7B16FE72DC6E643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Volbeat - God of Angels Trust (2025) [MP3|320 Kbps] <Heavy Metal, Groove Metal, 
 ```bash
 magnet:?xt=urn:btih:D0F7565CE9D47A7F27C95BCDEA85016A19AF0B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Neil Young - Talkin to the Trees (2025) [MP3|320 Kbps] <Country Rock, Roots Rock
 ```bash
 magnet:?xt=urn:btih:3CA7FE9FF9BD04302DF6377A3CD24AB9E213578D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Narrows - New Distances (2009) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Ma
 ```bash
 magnet:?xt=urn:btih:85403B78138F74A53085B046C7DAF5DE16BA81C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Professor Emeritus - A Land Long Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Epic
 ```bash
 magnet:?xt=urn:btih:348CC09CB3E093F43A8C70D882D86333E63742D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ GroTTesque - Коллекция (+Bonus) (2014-2024) [MP3|320 Kbps] <Heavy, Indu
 ```bash
 magnet:?xt=urn:btih:34D560586632BF83413399AC0173DCFC9DCFA0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Volbeat - God of Angels Trust (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:8B1430685DECEE5D64163F5398EDD2FE482E1DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

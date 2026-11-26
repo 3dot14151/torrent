@@ -27,8 +27,7 @@ VA - Get The Blues 2 (2003) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2424B500DA13F6DC70DC113932EADA9980DE932D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Kenny Vehkavaara - Peace, Love & Guitar (2000) [MP3|192-320 kbps]<Instrumental, 
 ```bash
 magnet:?xt=urn:btih:309452531722467DB3B9AF482FE9E7D70E3EEA4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - Изобилие Поп Хитов (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:A8240363C40DE384D1F39C61840019556483BEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Georgia Kelly - Seapeace (1978) [MP3|256-320 kbps]<Neoclassical, New age, Piano>
 ```bash
 magnet:?xt=urn:btih:FA8E16C23E9720B1A9ED29643CC64D0B88C78F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ VA - Music Коллекция ЛЕТА vol.2 (2011) [MP3|320 kbps]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:3BD385A3EB00BFECB06B64F0C3E98A4872B5CD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ N/AЖанр: House / Disco HouseПродолжительность: 01:15:47
 ```bash
 magnet:?xt=urn:btih:5FF99A7F407AFD533B9A247B36F78999090DCC27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ VA - Chill & Dream (2011) [MP3|256 kbps]<Chillout>
 ```bash
 magnet:?xt=urn:btih:B2C40EA06AC7BDA2151C4064902A51B0CCD56F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ VA - Буду Я Любить Тебя Всегда (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:4D172A1DE03A6563232FE196073EE9ED6FCB2B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Mega Dance Party 12 (2011) [MP3|320 kbps]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:3728F4D693E228510450E8F8B93F9BBECA412379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ VA-Cafe Lychee - Volume 5 (2010) [MP3|320 kbps]<Classic Trance, Vocal Trance, Up
 ```bash
 magnet:?xt=urn:btih:89DF07BFE53035B823D44B452F2CE7FE8A3E3DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ VA - Street Racer  (2011) [MP3|192 kbps]<Dance / Club>
 ```bash
 magnet:?xt=urn:btih:22D5FB623E3E743F4734FC574A5689E175218A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ VA - Evidence Blues Sampler (1992) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ VA - Kamasutra Hits (2006) [MP3|320 kbps]<New Age>
 ```bash
 magnet:?xt=urn:btih:EBDF6879D25E4A99F176FA89E253E85AC99D8C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ VA - XXXL Super Максимальный 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:6A32F9B55ADDBA7602CEE7810FE9A41625BAEBB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +451,7 @@ VA - Убойный хит Русская версия (2011) [MP3|256 kbps]<Pop
 ```bash
 magnet:?xt=urn:btih:5A53A2A441E685FC20685E0A7BDD82BABBFB44C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +476,7 @@ VA - 100 Пудовый хит Лето (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:F8C8B71DDDBF6DAED9520F5D39BC0EE809C0D42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ BBC: Беседы с животными / Talking with Animals (2006) DVDRip [4 
 ```bash
 magnet:?xt=urn:btih:8D149E2FCCBC05EB9B7F7F90E324F30C4825298C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BC547423319D59CFEED8D9B11D61B450B0717FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ Helltrash - 2 альбома (2007-2010) [MP3|192-320 kbps]<Industrial Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D4530F9998C094186161D33AE0C6822C6C96B87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ Label: Armada Music
 ```bash
 magnet:?xt=urn:btih:8CB75BAA3173066206181FF177239E1C294ADC19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ Tron Syversen - A Peaceful Journey (2005) [MP3|128-256 kbps]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:B64FF9D819A6FD78195B7F1E93F59F8F62ABFA6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ VA - Новое Танцевальное Dвижжение (2011) [MP3|256 kbps]
 ```bash
 magnet:?xt=urn:btih:B7C14C5274FAEA9432218C4C08497ED7013E414E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ VA-Cafe Lychee - Volume 8 (2010) [MP3|320 kbps]<Classic Trance, Vocal Trance, Up
 ```bash
 magnet:?xt=urn:btih:45F18E9ECE6F6502120399468B20972374ACE1AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +743,7 @@ VA - Этап на Воркуту (2011) [MP3|320 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:56F6458DCCA245CB1C35E81CB422B09446EF2809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

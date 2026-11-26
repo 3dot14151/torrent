@@ -20,8 +20,7 @@ What (   Читать дальше...   )Жанр: Компьютерная л�
 ```bash
 magnet:?xt=urn:btih:0403F2FC8D7902A90B27ABE9523E69946CE32D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The most popular programming language for controlling electronics on a Raspberry
 ```bash
 magnet:?xt=urn:btih:31AE9DF9361D833AFDA2734D4C4AF7751813C821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ The Official Raspberry Pi Handbook 2026 is packed with all the information begin
 ```bash
 magnet:?xt=urn:btih:E2B7AF51D15F25D9EACAE1FCB0613C1A5F5CB4FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Raspberry Pi Pico 2 joins Raspberry Pi 5 in this, The Official Raspberry Pi Hand
 ```bash
 magnet:?xt=urn:btih:CC16D63EA9DA16EFFF156825A508B1598F714ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ In the rapidly evolving landscape of technology, the convergence of Artificial I
 ```bash
 magnet:?xt=urn:btih:3B4795FFDDB9EDE4090EAC25DF9DF7E83D9074D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Thomas Theis | Getting Started with Python (2024) [EPUB, PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:827814A96E2FE855FCCF9B49F1F07064516EA123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF5DBEBEB9CC2A2B39F1F9E54BA42F6FCFCB8736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Balabolka 2.9.0.565 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8268641150036A4011B3A5BF98A8C9C9EA0297CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D6BE67C27FC90583C46C6EB3D8BFB4E166D7D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ The Aquarius - Эра Рассвета (2010) [MP3|320 kbps]<Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:02B373DD9EC5A2AC275AEEE73E1AF40B53B7BB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA52974D7969B07D5454F867676FD3DA53AA6410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Nu Disco Club Sounds Vol.2 (2013) [ALAC|Tracks|WEB-DL]<Disco, Nu-Disco, Ind
 ```bash
 magnet:?xt=urn:btih:BF9752D1937EE61686D79F964933F26062A7B845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:A2AE2A8287F270FADA085093A43F5B1F35A37A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ VA - Шансон Для Настоящих Мужчин к Дню Защитн�
 ```bash
 magnet:?xt=urn:btih:23F54DA4F63DFDE2680BC0753363A1E42D4F800E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C66A043290D3E3AF483B95738F73EE90FF1927F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ VA - Hi-Fi Rock'n'Roll Party (1986) [FLAC|Lossless]<Rock'n'Roll, Rhythm & Blues>
 ```bash
 magnet:?xt=urn:btih:76D7342E2C2697F547B98B9568B9FE08D90E6586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0E513EF5C7EE9C2A90071C7B972C7521E58276A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ Video Booth Pro - создаст из снимков небольшой виде
 ```bash
 magnet:?xt=urn:btih:FC7F6FE86A793E3E1F72D21EDB777FA6BC6C7298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ VA - For Men (2014) [MP3|320 кб/с]<New Age, Instrumental, Electronic, Chillou
 ```bash
 magnet:?xt=urn:btih:BDBCB3353C302415B757E8F23B1514D81F07533F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F31F056A6E10EA3C4CF2E54AFAF03824DB3203A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ Wallpapers - Обои на рабочий стол [JPEG]
 ```bash
 magnet:?xt=urn:btih:7F2CFFEA6E49278D1E191D3E9E8B91DCC3345701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ XXII Зимние Олимпийские Игры 2014. Сноуборд. Пар
 ```bash
 magnet:?xt=urn:btih:817679D14452B041D6AD9FC40C815EC0A9998C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19D1A58E007B7297A83D4B4EC156BBE04F15A5EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Firefox отличается стабильностью и безопаснос�
 ```bash
 magnet:?xt=urn:btih:3AD4B59F90EB7E230A7AAAE5F870C03A92B3DA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ Google Chrome – веб-браузер производства Google с от�
 ```bash
 magnet:?xt=urn:btih:ECC32E24039F149C56FD1EC0A465582F713C84D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Windows 7 Manager - утилита позволяет пользователю �
 ```bash
 magnet:?xt=urn:btih:311872DB1368A9553EA5D21E14358E1E5B049846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ Album Player 2.9 (Freeware, Windows XP/Vista/7/8) предназначен дл�
 ```bash
 magnet:?xt=urn:btih:AC9DDA8703B37B69CE94F670F371007818C49D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ DVD приложение к журналу «Computer Bild» – крупней�
 ```bash
 magnet:?xt=urn:btih:3C465795005782A6732C51B2BAF64D698A20C85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ Speccy – компактная программа от разработчико
 ```bash
 magnet:?xt=urn:btih:2D0384215C1B2A8C2D05C7A9A7EF54138329B847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FBB875E42290752EAA62DA6214E93EC736A883C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF8CE1B49FB927C8B95AABBA69066DEBD0A82CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

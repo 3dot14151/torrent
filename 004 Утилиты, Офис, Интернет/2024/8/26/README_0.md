@@ -19,8 +19,7 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:301C3142E79841FB45FC39D5C486E65D5A453125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:052E596C36FB4ABC63168F83D0B4C4AA525489BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:013D4468271484336AF92E10B5F567CB8FBB4949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

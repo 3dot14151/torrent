@@ -22,8 +22,7 @@ A3 Под Шум Дождя(   Читать дальше...   )Жанр: Pop Roc
 ```bash
 magnet:?xt=urn:btih:3389959500C25050CAF04E2F30243BDEDBD5B621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

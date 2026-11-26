@@ -18,8 +18,7 @@ Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: 
 ```bash
 magnet:?xt=urn:btih:59D3EE24F746A570E01C82B280D430B8AB5CF436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ GPU Shark - небольшая бесплатная и очень простая
 ```bash
 magnet:?xt=urn:btih:6FC77B16D24044B074488112E611C9BD9FBC064B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music fro
 ```bash
 magnet:?xt=urn:btih:8BA9D19C1A49CB5523FCE180766BF186B944953E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Ballad About Love Vol. 02 (2019) [MP3|320 Kbps] <Pop, Lyric, Romantic>
 ```bash
 magnet:?xt=urn:btih:0898281C9A533F1EC10407589E3BF184F00DEEAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2EC937B9CA08DDE6F4357191C08B27DBE3FF650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ DxO PhotoLab Elite 3.0.0 build 4210 (06.11.2019) RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:16B40C104AA88618CA40A742F99259A40B85BABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E955C3C0EB82DE7FF3786B9B195C2DD28B173A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:758860D496D6C316A0638F124538B6BFD14D85FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Lindemann - Knebel (2019) Single [FLAC|Lossless|WEB-DL|tracks]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:BD2D2BC716529102C6D4E557E417AFFEB7848E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Andre & Renee Beeka - Bitin' da Blues (2019) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:0D37F141920317D016A2CBE19DAD854943B48576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B95BCC0CC168785FAB48CAE3C8289B84E02C563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1B40D163BEDA1EAA63AD0F8A708DD7D440251DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9193B3637CA0DACEFEBD2738E7E87A4AAC1CB8BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ Turn A Gundam | Гандам: Объединение [1999, TV, 50 из 50] BDRi
 ```bash
 magnet:?xt=urn:btih:78E6D73988EB913368B53DCE630570ABE92CB983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ ISO Workshop – небольшая программа для работы с о
 ```bash
 magnet:?xt=urn:btih:B0ED44B65C2C9C1F0DA0E0028F5D3ACD63BD85A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5B1F9DBCB3A33B7CE98A78F93F32A86062E6F29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B54C82A8934E54165017E03F79D08B5A4950E776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:D46A93AFE22F2CAC7ADD9A2A1E5D4F7E5BB12388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ VA - Liquid Drum and Bass Sessions 2019 Vol 1 & 2 (2019) Fokuz Recordings [FLAC|
 ```bash
 magnet:?xt=urn:btih:C543EFC114C02909FA9A721C185C0876427E4B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29C9CA922F5EF2F16251DEEFA89AC57BD4F6B3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 ```bash
 magnet:?xt=urn:btih:511AE031855DA94D7D02854FB8572FCFFD18216D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ VA - Hit Music (вторая осень 2019) от Мяу [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:33EACA03E73036790ACF4060FBE93D422932E317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AB24968CD3C74320E3DB624B029968209EC6D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ Batch Text Replacer - мощный инструмент для одноврем�
 ```bash
 magnet:?xt=urn:btih:45FFFF452FD130AC7C5D6D6F78464D0DC0152875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ NetSpot - простой инструмент для построения, ан�
 ```bash
 magnet:?xt=urn:btih:B9B0DBA7D991982366A518A7A350A8D7871FAEC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

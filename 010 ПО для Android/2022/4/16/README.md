@@ -19,8 +19,7 @@ IELTS® Speaking Pro v4.0 [En]
 ```bash
 magnet:?xt=urn:btih:95D527CEDF5B0E128BC97EDCB695728726E05513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FullReader — многофункциональное приложение дл�
 ```bash
 magnet:?xt=urn:btih:CE5774CFFD74FBDE088943EAB117E23675716F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Piggly v1.10ggl + Mod [En/De]
 ```bash
 magnet:?xt=urn:btih:84025FDEB1C1DE3E296D14EE112EFB146C9D0A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

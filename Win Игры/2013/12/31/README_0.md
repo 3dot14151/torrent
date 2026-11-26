@@ -19,8 +19,7 @@ Midnight Castle / Полуночный замок (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:FBF0EC0EE59E51A6F34F63E763FFAC2A765C8BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Angel: Masquerade Of Shadows / Ангелы тьмы: Маскарад те
 ```bash
 magnet:?xt=urn:btih:148D49E105EF3C7A0C70169228E74770095420D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Redemption Cemetery 5: Bitter Frost / Кладбище искупления. Ж�
 ```bash
 magnet:?xt=urn:btih:1D070CCED43BA6E88C7BD0F01BBBCC33A6130A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Redemption Cemetery 5: Bitter Frost / Кладбище искупления. Ж�
 ```bash
 magnet:?xt=urn:btih:1D070CCED43BA6E88C7BD0F01BBBCC33A6130A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Monaco: What's Yours Is Mine - это новая аркадная стелс-э�
 ```bash
 magnet:?xt=urn:btih:B70458487F818D9C682B35D5A0601CE0E6E2DC4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Amnesia Dilogy / Дилогия Amnesia (2010-2013) [Ru/Multi] (1.2.1/1.0.0.2) R
 ```bash
 magnet:?xt=urn:btih:1FB4FF986267B50D08A6C3949D6A1657C6893271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ LEGO Harry Potter Dilogy (2010-2011) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:E18E88DA3FA7417FB46080CBC9451B73C7CEF7AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A15CB073F9CA733926F645596E4653C4610C57B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

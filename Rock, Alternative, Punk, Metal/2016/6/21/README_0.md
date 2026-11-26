@@ -22,8 +22,7 @@ Cate Rox - Mind vs. Heart (2016) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:B55CF4DA77C3B51F4CE02607B3739A8C302C8109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69F28DC832319822DDC3D2A92C75CAC25984558E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

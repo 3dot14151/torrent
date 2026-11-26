@@ -22,8 +22,7 @@ Torrent Merkle Root Reader (TMRR) 2.0g Release [Ru/En]
 ```bash
 magnet:?xt=urn:btih:02409440A4882E123181844468E08BD42306C9AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

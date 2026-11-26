@@ -19,8 +19,7 @@ Microsoft Corporation | Компьютерные сети. Сертификац�
 ```bash
 magnet:?xt=urn:btih:90B7F7541507BF11707120DB28D440A77484FC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

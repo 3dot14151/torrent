@@ -19,8 +19,7 @@ HUMANKIND – историческая пошаговая стратегия, в
 ```bash
 magnet:?xt=urn:btih:6B0E05851D46CD4B480D7BD8FA9DEF5B554934FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Occupy Mars: The Game (2023) [Ru/Multi] (0.199.7) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:B5F5CA75BD2BB2ECF1F8F9E73A76ED4B6BB9CB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:8A0D6837D9C0DA7074A782C42C2A1A2FD3E135AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1681.9f4ce919) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3D1730940511A7FD96473F90BD73CCB6C84BEF75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dragon Ball Xenoverse 2 – это приключенческий экшен в 
 ```bash
 magnet:?xt=urn:btih:D1C3E3FBACCDED995B012F9C321D0455C75F2733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Section 13 (2023) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5EA5ACDA14926BDBA8C01FE6E469E70CBB3C8A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Fuga: Melodies of Steel 3 разворачивает историю отчаян
 ```bash
 magnet:?xt=urn:btih:DE7F5A5F453B6FC6E9042C13C8D07BEFC81BF29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tennis Manager 25 ставит геймера во главе теннисной
 ```bash
 magnet:?xt=urn:btih:D9E5321998BA9C37C4393726192D5E457A124932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

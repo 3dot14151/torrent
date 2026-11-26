@@ -19,8 +19,7 @@ IDA Pro как дизассемблер способен создавать ка
 ```bash
 magnet:?xt=urn:btih:733A9365D45970146DA14226454CBD682431C699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

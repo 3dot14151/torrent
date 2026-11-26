@@ -27,8 +27,7 @@ Now Or Never - Now Or Never (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0DD482800209939ACD63A9160D7AFBF2C7AFA0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Зарубежный Авто-хит Сезона (2013) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:FE97989AEF273FA2579885CC16A7107831F3EB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Analyze - — Endless Winter (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:70822457F52AD5791492DD7AEC9D71F40CBC2412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ VA - DubStep Music Vol.20 (2013) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:F262ED8C859B366B8816DCC2E5533C50257CD49A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ VA - Nero Bianco Best Of Chill Out (2013) [MP3|320 кб/с]<Electronic, Downtemp
 ```bash
 magnet:?xt=urn:btih:81493BC529E47D00DF0F4B22622A58178758EE64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Process Lasso Pro - позволяет вручную или автоматич�
 ```bash
 magnet:?xt=urn:btih:8AE1D49426457F58E1B16DF7E0C841773B15E246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Mayhem and Melancholy - 1 альбом (2010) [FLAC|Lossless] <Touhou, Vocal, Do
 ```bash
 magnet:?xt=urn:btih:9C98B8C2BE65B8632B93329E776317609A482F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ VA - Dancefloor 2014 (SoonNight) (2013) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:AA6C9A4CE3F5E04013E0A81CF27F902FD429BF78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ VA - DubStep Music Vol.21 (2013) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:C3AF63B91D39D8381DED2F03F6EE6FC6AC359638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ AniPix - 4 альбома (2008-2009) Touhou Vocal /Doujin/ [FLAC|Lossless] <J-P
 ```bash
 magnet:?xt=urn:btih:6C1DE17A6988BD3337240650BCBB3F6787403265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ VA - Kill The Lights (Mixed by Katy Rutkovski) (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:683995B054D2D10905A8E12FAC018F4CCF392BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:644E40A72AF54C908FDA2D62B69FC0EBB243D566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +412,7 @@ Sound Bullet Hell - 1 альбом (2009) [FLAC|Lossless] <Touhou, Instrumental,
 ```bash
 magnet:?xt=urn:btih:16777F1B97F8626374A4C6F9C1C91D24758BEA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFEB53474D1C77C69E140AA2C0768ED2FE59278C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C101A45E96D332BFEE075D786F506DFB7CE2BC67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +493,7 @@ Take it Happy!! - 1 альбом (2011) [FLAC|Lossless] <Touhou, Vocal, Doujin O
 ```bash
 magnet:?xt=urn:btih:54C492E4B9CA6C90FDF51F4E9C9649C7692A7277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +518,7 @@ Mystery of Sargasso Sea (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:A7267AD6024705A3A8D25CCFE04284F87D35B4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C06477E544B8869B8F7CC247A76840C4334161B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E90CA70E271D6CE5282D6418C03F716A59BCC5D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ After The Burial - Wolves Within (2013) [MP3|320 кб/с]<Progressive Metalcore 
 ```bash
 magnet:?xt=urn:btih:E40E62EE1AE7DE24F482D62640C39FD1A90111A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +638,7 @@ LUNATIC TOHO - 1 альбом (2013) [FLAC|Lossless] <Touhou, Vocal, Doujin Onga
 ```bash
 magnet:?xt=urn:btih:036C117F52FAA065E2274286E6398FEE0D86F4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +663,7 @@ Mysterium: Lake Bliss Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2197368CE9FBC2B4297637DB9A89FF0513595B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +688,7 @@ Esoterica: Hollow Earth (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F1C005917EC74958BEBF0262C90650AB2AD07509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +722,7 @@ The Universal Mind Records - 3 альбома (2009) [FLAC|Lossless] <Touhou, In
 ```bash
 magnet:?xt=urn:btih:D1687059C49A8140004C736AF43F568C478FB808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +756,7 @@ VA - 10 Years Armada (2013) Extended Versions [FLAC|Lossless|WEB-DL]<Trance>
 ```bash
 magnet:?xt=urn:btih:A091589B689C8F646A51BDBE052C78DF592C46C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ VA - 10 Years Armada (2013) Extended Versions [MP3|320 кб/с]<Trance, Progress
 ```bash
 magnet:?xt=urn:btih:F383ABBEB4389BC94CDD79956008343C4A4D27C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

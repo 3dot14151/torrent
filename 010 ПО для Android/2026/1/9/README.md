@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D8B1FC6B08FED31B5921376E65E0ACE2838DD1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C1038187E47CF46B941F13464A8A4C2BC5C4D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MX Player Pro v1.93.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:091E1539D8DCDACCF0365FCA2B38F1B4BA0AD4D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AI Photo Editor Pro - Polish v1.711.245 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3C51938355DDBB5696930A24BB3DCD7548DBDC7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEE3CA7D4CA698CD18736D853263116E334EC090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.11.5 Mod 
 ```bash
 magnet:?xt=urn:btih:749D67CF12CF03AFAEFC0A75AE8A775FA9480AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

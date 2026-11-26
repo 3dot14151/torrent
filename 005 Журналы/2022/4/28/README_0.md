@@ -19,8 +19,7 @@ Woodworker West - американский журнал, издаваемый р
 ```bash
 magnet:?xt=urn:btih:216C5B1A7557C964A6661BC6C56EB523D48DBCBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

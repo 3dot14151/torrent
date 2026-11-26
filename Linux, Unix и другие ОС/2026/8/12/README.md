@@ -19,8 +19,7 @@ Nobara Linux – это модифицированный вариант Fedora W
 ```bash
 magnet:?xt=urn:btih:FD281C457DE8B7B6E87984358223F8B8312CE5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MX Linux – операционная система на базе Debian с г�
 ```bash
 magnet:?xt=urn:btih:6F185D32A41B690AA0A359BA37711466F373295A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ openSUSE Leap - открытая операционная система на б
 ```bash
 magnet:?xt=urn:btih:2988709E7F163E95FEC87E6609657CF72316D934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

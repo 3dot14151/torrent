@@ -21,8 +21,7 @@ Calculate Linux 14 [i686] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:1453B8408B2315A02E362E8C5159506DFFA19F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Calculate Linux 14 [x86-64] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:7BD441B6364161F056539EFFE3B56DB23FA66A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:579397C0CFF728431E66DC33CD8C8DA2AB543AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

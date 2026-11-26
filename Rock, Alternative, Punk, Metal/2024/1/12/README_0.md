@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C2404C19754B80CCB5D56753C53409FA8432B504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Фотоаль�
 ```bash
 magnet:?xt=urn:btih:232E2FDD7367ACF3E08988A2EDD61558724D68D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Stone System - The old man within (2024) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D13FBCB191A173480ACE9F2AD7DB4392AE9BAB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Фотоаль�
 ```bash
 magnet:?xt=urn:btih:33A0E38A786A05D14927EDA41BF89F28B0A9437A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Scanner - The Cosmic Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 ```bash
 magnet:?xt=urn:btih:1D2162F243ED6E80D329FE6061C33A7BB6973E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Acid Enema - A Faint Light At The End Of The World (2024) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:414322DC63C98876F43D434513B33C39979F373F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Clarity Vision - Clarity Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Do
 ```bash
 magnet:?xt=urn:btih:D14325D24A049F0D5D3E2E3680FD922EE35BD7BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

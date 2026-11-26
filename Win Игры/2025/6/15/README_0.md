@@ -19,8 +19,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1DBB492FC235DB7F96F82FBE6A60605DFBA74DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smuta / Смута (2024) [Ru] (2.1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:04475076F58152BFEBE4F7D1CBA79F0DC4DA98B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Carrier Command 2 – стратегический игровой проект, 
 ```bash
 magnet:?xt=urn:btih:231C42F23A0B9E93023F38366748D1B02D8B347B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.109/dlc) Repack Other s [Digital Col
 ```bash
 magnet:?xt=urn:btih:A541D4AF38108676510CB02D546059E140C928B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Five Nights at Freddy's: Secret of the Mimic погружает игроков �
 ```bash
 magnet:?xt=urn:btih:33935076178044F6CBE40964436048ADD261C27E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cuphead – это в прямом смысле слова "классическ
 ```bash
 magnet:?xt=urn:btih:190258A7EE3D95A98DF3D10483C2565E15BAF701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Downward - это живописная приключенческая игра �
 ```bash
 magnet:?xt=urn:btih:595DBCEF5ACA1B1927355395EDBE712179CDCADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Lost in Random: The Eternal Die объединила динамичный экш
 ```bash
 magnet:?xt=urn:btih:948E9B7E64FCD724A9A64614DE2B6F1200770EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Kitty Collapse (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7BD28956170A02876869B1ADE47FED15AE2B02CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.5.0/dlc) Repack FitGirl [Ultimate P
 ```bash
 magnet:?xt=urn:btih:26E890450D06627E801ECDE466BAD99305DFF002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

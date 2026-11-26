@@ -21,8 +21,7 @@ VA - Beatport Deep House: Sound Pack #380 (2021) [MP3|320 Kbps] <Deep House, Ele
 ```bash
 magnet:?xt=urn:btih:3BFF34DF0E254FB99544DCE2A9250698CB0D20DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42E1CD3109A3A733D0B1912D6FD77F3B0C30183E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Selection Drum Box (2021) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
 ```bash
 magnet:?xt=urn:btih:5FD975C6BB186ED2C0513096F103C9501050CDF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADF946BC19FB67D8AB1B7CE2FBC7E7B238072300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Arkay Koo - Terra Server (2021) [AAC|~328 Kbps] <Downtempo>
 ```bash
 magnet:?xt=urn:btih:D1B0DABAFE2B4BEBBB1553F4276E84B5185EC076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - In Love with Lounge, Vol. 4 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:3904034FB26D5F558B8AB24BF2D31848F535A6BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED2F404B1EFC7270E96D322CEFA6E0FC5CFE0D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A10C553621D4FE7AA790F3FED4175C0BE5A0A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Beatport Progressive Trance: Sound Pack #379 (2021) [MP3|320 Kbps] <Trance,
 ```bash
 magnet:?xt=urn:btih:5E8247B44D30D725FEFCF10D0EF0656C3B62D492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Hardstyle Classic Night (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core 
 ```bash
 magnet:?xt=urn:btih:50D963133D92EA1183E9D64ABC457B3AA4F23194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62E655A678A2041964974E677217A317C00C9277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:876F2F96C8315C9B6ADB05C30511BFDD8D1CED16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ David Knopfler - Shooting for the Moon (2021) [FLAC|Lossless|WEB-DL|tracks] <Sof
 ```bash
 magnet:?xt=urn:btih:F5786E1D326900B2CC2301C4B7B713EF96ADDC4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EA42E66BFA3B63D28B7FEC4F413E7B670452E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ VA - German Top 100 Single Charts 03.12.2021 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:11ADAF68E0C42278014CC7D088D9C79428186C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ VA - Bedtime Stories, Vol. 1 (A One Night Lounge Affair) (2021) [AAC|~310 Kbps] 
 ```bash
 magnet:?xt=urn:btih:55271DEA8DF1F87E89C7016C3AA83646430DB134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA9D24536304D5A32D30F8C2AB1E5D32DDBFEBED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ VA - Bossa & Latin Flavours (2021) [AAC|~339 Kbps] <Nu Jazz, Bossa Nova, Lounge>
 ```bash
 magnet:?xt=urn:btih:7C1C025B740228959E6C3970A21A2BF962C7B380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Barnabas Sky - Inspirations (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 ```bash
 magnet:?xt=urn:btih:A97CBFB4004C5731F4143D4C427F6A6B3C3420A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4786E7D65031149300E20547391B5F941E43B733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ VA - Lounge Erotique (Seductive Night in a Loungy Mood) (2015) [AAC|~326 Kbps] <
 ```bash
 magnet:?xt=urn:btih:59579EDFABD4A3F008E35E8A7AFC3A9BB1B005C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCF8637C1FCD41A79F503302C35E96ED8E405161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ VA - Seduction (Chill out Dreams), Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:326738C85B423C6F7022C0973119B2AC89E3EA9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ VA - Bossa Lounge Covers (2021) [AAC|~339 Kbps] <Lounge, Downtempo, Bossa Nova, 
 ```bash
 magnet:?xt=urn:btih:F86DAA394BF8458D6B1295A9178DF39D7EDF4140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84C00EAA475B4FBD15D58ABA64E87216937442B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FE997AD217F120B1D7EE5E236EF02A5CD63C94D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

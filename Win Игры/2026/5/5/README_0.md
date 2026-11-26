@@ -19,8 +19,7 @@ Koloboke: Sickness Simulator / Колобоке: Укачало Симулято
 ```bash
 magnet:?xt=urn:btih:4B0A0CBA2CC3218B356F1EC71F7E221FBE73E038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pompeii: The Legacy (2025) [Ru/Multi] (1.000.6/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0FF00FA6DC6072B284E7D8B3E3D5A19CC8E5A80D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Outworld Station (2025) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:86AE8432C08C27260A32A2677B20DD0FF069C535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ground Zero (2026) [Ru/Multi] (27042026) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DD9BD5B12600AF143A8126CB000DF362FFF104D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Heroes of Might and Magic: Olden Era (2026) [Ru/Multi] (0.80.10) Repack Pioneer 
 ```bash
 magnet:?xt=urn:btih:0FAC12A5CBDDDA2D633E4105958E84364213AC57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ INDUSTRIA 2 (2026) [Ru/Multi] (1.0.8) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FE82BF9238FE43EF06A69BF95501416EF9721F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Moomintroll: Winter's Warmth (2026) [Ru/Multi] (0.1.1261.refs/dlc) Repack Let's�
 ```bash
 magnet:?xt=urn:btih:30FCF64A91130FAF681B32724709FFEA45D20672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Regions of Ruin: Runegate (2026) [Ru/Multi] (1.0.14/dlc) License GOG [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:B85CF53A2259ECAB9981C358E22A16BC91C3828E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Windy.app - очень и очень востребованное погодно
 ```bash
 magnet:?xt=urn:btih:C6D34D94B5F8864916E65020E9C778FF5283AE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windy.com - Weather Forecast - очень и очень востребованн
 ```bash
 magnet:?xt=urn:btih:CC504A7E9AB4B6181611AA8F6C30A98246B944ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

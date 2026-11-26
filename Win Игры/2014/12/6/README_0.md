@@ -19,8 +19,7 @@ Vampire Legends 2: The Untold Story Of Elizabeth Bathory (2014) [En] Unofficial 
 ```bash
 magnet:?xt=urn:btih:B7F33D8B9304E1351E70893CAB3CACC5585621C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fall of the New Age / Падение новой эпохи (2013) [Ru] Unofficia
 ```bash
 magnet:?xt=urn:btih:6576F71A1742FE5B4BC1A7C5223D291C694046C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Contrast (2013) [Ru/En] (1.0.11736.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:715245ED481885EB52A16C1FA8AA8167131E17AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Flashout 2 предлагает по-новому взглянуть на гон
 ```bash
 magnet:?xt=urn:btih:B911B7BB0AE9BD3CD76669248F0E9A7C23B11B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:05038F8384C1ED333ABA27B72AA771AEF01612F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Betrayer - это экшен-приключение с видом от перв�
 ```bash
 magnet:?xt=urn:btih:D1AA74814388185873E3ECD8ECABEDC916C55C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Darksiders II: Death Lives (2012) [Ru/En] (1.5/18dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:0BCBD73F1C1ACE653E22F2AFE549FE4C520C18FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Frozen Synapse Prime - это ремейк тактической пошагов
 ```bash
 magnet:?xt=urn:btih:D27343E4D1BB5BBC66673D6FAF9AE2663A477772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Dead Island: Riptide (2013) [Ru/En] (1.4.1.1.13/2dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:6B42F70841C4DCD6D86539CC0173CC9E87C6F5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Cities in Motion 2 (2013) [Ru/Multi] (1.6.3/13dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:44BA5F50CDCAE7F3313081088FC5A819F8AF94E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

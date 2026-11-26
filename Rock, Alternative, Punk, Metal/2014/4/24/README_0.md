@@ -28,8 +28,7 @@ Gladenfold - From Dusk to Eternity (2014) [MP3|320 кб/с]<Symphonic Power/Melo
 ```bash
 magnet:?xt=urn:btih:27FFB51EA6CC052DD1748E79FB95CD8686B9BAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Bruce Springsteen - American Beauty (EP) (2014) [FLAC|Lossless]<Rock, Classic Ro
 ```bash
 magnet:?xt=urn:btih:EF33C403D45B2CCCE6F34963B630E333D22FDCE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Bill Fay - Life Is People (2012) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:3EA0B8C07E7E9287813587A7804B5FB8A1DFCE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Jeejen - отличный минималистичный лаунчер, с бо
 ```bash
 magnet:?xt=urn:btih:AB8361C6B7CE154B6B66C84FD205BD7CBD469F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

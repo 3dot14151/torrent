@@ -19,8 +19,7 @@ Rebecca Skinner | British Paratrooper 1940–45 (2015) [EPUB, PDF] [Warrior #174
 ```bash
 magnet:?xt=urn:btih:451D71A84A692543EA0CD600C1A7D3F34CCF6FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Angus Konstam | British Commando 1940–45 (2016) [PDF] [Warrior #181] [EN]
 ```bash
 magnet:?xt=urn:btih:FE46097FDCFB692C2218939709084900B45D4B05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E6933EB54DF47A4C1FFE49CA7CE05E4E0A3F556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

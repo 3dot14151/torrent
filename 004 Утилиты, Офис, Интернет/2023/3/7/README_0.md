@@ -19,8 +19,7 @@ Icecream PDF Converter Pro 2.89 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8101D970313D9ADDE0A79A01FA146FC1A1356B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CCEnhancer – представляет собой утилиту, котора�
 ```bash
 magnet:?xt=urn:btih:0B1B87C9DFFF3244819374E1A07B656060EBB5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Icecream PDF Converter Pro 2.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FD3FAEF115BFA485F60E704671F4940C113E5F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

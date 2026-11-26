@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:4558FD95B94A6AD912B2EFBB0C04D93A9ABF9E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ JavaFX — это платформа для создания Rich Internet Appli
 ```bash
 magnet:?xt=urn:btih:3FFAF542D404CC915E25FCF5CB4E2715D8BFAA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Simpsons: Hit & Run (2003) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:55E3478D30B45FEDA3F1313D46F47361ACF22AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Victory At Sea - это масштабная RTS про морские сраж�
 ```bash
 magnet:?xt=urn:btih:C25A181966ED320EEDC5C3B3A230ACF73F026FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Shedko Folderico 4.0 RC12 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:70F5B56D4B979650D8E4E4B71816CE3B32B5E99C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:617DF778D88657DBC65E7213F778108616EB03AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Mafia: The City of Lost Heaven / Мафия (2002) [Ru/En] (1.2) Repack R.G. Rev
 ```bash
 magnet:?xt=urn:btih:613CE62EB92746E8C342A4CFC22CBA29868B772F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E309FA7582E2EF658A838F9F3D0FBE699AFAAE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

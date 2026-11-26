@@ -19,8 +19,7 @@ Packt Publishing | Blender 3D на примерах / Blender 3D By Example [2-�
 ```bash
 magnet:?xt=urn:btih:84411E3AFF4EC3FF16C0990587B68C6EF7A0E888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0989A9E979DB722FDAB2F56F851AF20B0CF33FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

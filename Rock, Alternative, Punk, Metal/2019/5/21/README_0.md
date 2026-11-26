@@ -22,8 +22,7 @@ Root Cellar Xtract - Lonesome Miles (2019) [FLAC|Lossless|tracks + .cue] <Countr
 ```bash
 magnet:?xt=urn:btih:03EB05560691893D46F53119BAEAF352F33DD458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Dream Syndicate - These Times (2019) [FLAC|Lossless|tracks + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:3D99C599E5059BEF1CD32461DD803FAE3D2D587D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Znaki - Видеть больше (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:8341B129287A15A9FC4F91C042E433359B613668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

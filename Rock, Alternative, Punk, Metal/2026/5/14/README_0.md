@@ -22,8 +22,7 @@ Disc 4 - Ian Anderson Walk Into Light (Original Drums) remixed By Bruce Soord(  
 ```bash
 magnet:?xt=urn:btih:493825C2EFE2D973EAE5BCBF6420C9044C8B5F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Deep Purple - Arrogant Boy (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:5B3F8E0155F3ED25CE42E16BD1A721DCEE465798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

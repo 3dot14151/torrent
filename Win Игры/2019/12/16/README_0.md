@@ -19,8 +19,7 @@ Vladimir Putin Style (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1E9E9535D2C39CE5D3FDE5C943FBAAEA9142F177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

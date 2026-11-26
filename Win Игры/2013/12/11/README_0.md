@@ -20,8 +20,7 @@ Tetrobot and Co. (2013) [Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:01C3C70DA3041AA8EA353646A0926CB8F3B6F7A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Tales of Monkey Island — квест от компании Telltale Games, ра
 ```bash
 magnet:?xt=urn:btih:24128245012FC5D6EF3DBB4325EC17D5DA82B4E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Tetrobot and Co. (2013) [Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3A8448CD8F4EB8C8ADD12120CC33A5053FA0561B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ OddPlanet - небольшая красивая приключенческая �
 ```bash
 magnet:?xt=urn:btih:F5B5300B44A0215471E324A122996DE5A85AB409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/En] (1.1.26) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:CAF52BBB3345EF7956659A145410788014BE83B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Gomo (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F9CE7386D8B89E86999E91B2997DA5B68C4474F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Zombie Tycoon 2: Brainhov's Revenge (2013) [Ru/Multi] (1.0) SteamRip R.G. GameWo
 ```bash
 magnet:?xt=urn:btih:BFBA9FE8D9A63FDC702D72BA308521FE213F05F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Back To The Future: The Game Episodes 1-5 (2010) [Ru/En] (1.0) Repack R.G. Ме�
 ```bash
 magnet:?xt=urn:btih:BA66AC4C6388D6332D65FA2AB75FA31381694BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

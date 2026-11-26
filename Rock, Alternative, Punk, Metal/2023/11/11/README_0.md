@@ -22,8 +22,7 @@ Benumb - Withering Strands of Hope (2000) [FLAC|Lossless|image + .cue] <Grindcor
 ```bash
 magnet:?xt=urn:btih:C1C05D1D01EDA1F3028DC3A2C114BD0C81778E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Autophagia - Postmortem Human Offal (2003) [FLAC|Lossless|image + .cue] <Goregri
 ```bash
 magnet:?xt=urn:btih:4080F7F29F8DC59CE6D855913905C93164806327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Von Boldt - Hallowed Be My Name (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:A09C9956BC3613C4334912E5AA6708EDDEDA5EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Benumb - Soul of the Martyr (1998) [FLAC|Lossless|image + .cue] <Grindcore, Hard
 ```bash
 magnet:?xt=urn:btih:D5705A9C4E59B49666A157403C6A318B5FBD9F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Wrath Of God - Blood Eagle (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:05DF9AA30F9F2ECCB02EC8478B08BA0B323DB30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Heaven's Guardian - Chronos (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Male Fem
 ```bash
 magnet:?xt=urn:btih:E4AB6F116F0C5A01D55A60BE4F24F10CA18681A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Emberstar - Dialogue With The Outside (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 ```bash
 magnet:?xt=urn:btih:922BC0A06C55B33413145F9174AFCF374C4F44D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D65F4ADDBB1DAE89C322ED0C6624EF96B1ECDF75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Seether - Acoustic Originals (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 ```bash
 magnet:?xt=urn:btih:B233752D78E792FEC09F01CCB7FE8C8A524BB29E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

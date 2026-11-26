@@ -19,8 +19,7 @@ Creatures: Village (2004) [En] (1.11) License GOG
 ```bash
 magnet:?xt=urn:btih:7F5FF802CE6ACB8FC9B5D7A2B7A32DEDA10D8562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

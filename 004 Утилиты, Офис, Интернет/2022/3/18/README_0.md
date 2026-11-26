@@ -19,8 +19,7 @@ ReIcon сохраняет и восстанавливает макет знач�
 ```bash
 magnet:?xt=urn:btih:38FD5B9A49621F78E65263EB60786E284005E786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

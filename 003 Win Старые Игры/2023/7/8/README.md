@@ -19,8 +19,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License GOG
 ```bash
 magnet:?xt=urn:btih:79EB43086E94F28DE2556994E42FB70977BCE080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Gladiators: Galactic Circus Games / Гладиаторы (2002) [Ru] (1.0) L
 ```bash
 magnet:?xt=urn:btih:37FEEC4E82F47C19068CCF6D1891128E53B2AC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Styx: Master of Shadows – стелс-экшен с видом от треть�
 ```bash
 magnet:?xt=urn:btih:B5050A835C6803C323BF98146CF4290505B3B1EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

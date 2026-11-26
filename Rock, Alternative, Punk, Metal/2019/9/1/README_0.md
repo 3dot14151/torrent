@@ -22,8 +22,7 @@ Beggar's Bride - 3 Albums (2006-2010) [FLAC|Lossless|image + .cue] <Melodic Rock
 ```bash
 magnet:?xt=urn:btih:F37FFBA2D02225C8C3680D291925B61C4F71A71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

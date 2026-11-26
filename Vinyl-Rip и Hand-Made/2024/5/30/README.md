@@ -22,8 +22,7 @@ A4 EKG(   Читать дальше...   )Жанр: Pop Rock, Electro, New Wave�
 ```bash
 magnet:?xt=urn:btih:150177370F96B72B4AE71AE725FB293B084562DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

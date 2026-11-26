@@ -19,8 +19,7 @@ Garden Rescue / Защитники сада (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:A3733B8260CFC736459F9005ABC6A82945A83FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Weather Lord (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:3B8669B3FDFB693E3B36C6C09FDCE4D495E31975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

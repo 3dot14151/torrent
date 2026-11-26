@@ -19,8 +19,7 @@ Leschat.net | Руководство по установке и настройк
 ```bash
 magnet:?xt=urn:btih:55291640A1825C80630532889DD9338E020225CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

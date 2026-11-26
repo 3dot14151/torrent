@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:BC1B572B532C4F4A83A4FE4574B5C24261BDD854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78DEE0EE2EC5E1B043504F7ACE0DAB8FD2B468CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Kausalgia - Farewell (2012) [MP3|256 кб/с]<Dark/Black Metal>
 ```bash
 magnet:?xt=urn:btih:421185D4D53264C13B9AB7E91974FBBB30959B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11FCBC3486735AE7FDA431BCCE7B9908D7E0D2E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Denevrelizator - Old Mind (2013) [MP3|320 Kbps] <Dubstep, Grime>
 ```bash
 magnet:?xt=urn:btih:A65C934BC48EFB3A5455224E7EDAAA8C15DE2BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4073D32024949D8E72F1F2A510F1530677F8BDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56604334D18F8CF1EF6AE31736614576F42EE95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Arovane - Ve Palor (2013) [n5MD] [FLAC|Lossless|WEB-DL]<IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:26405167BFB26CDAED6A5A326C9736DF5087DB07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Joey Summer - Even The Saints Are Sinners (2013) [FLAC|Lossless]<AOR>
 ```bash
 magnet:?xt=urn:btih:DC0D3D822CF9DD5E82C32EAB8221DB6F5FC6344B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ VA - ItaloNuDisto presents Italo Madness (2013) [MP3|320 кб/с]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:BEDFAC74D2D81D7DB04DB022ACDF9EB6627A5B0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ Skytech - No Need For Words / Out Of Nowhere (2013) WEB [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:6A91709E0CDE999199F9F416C828BB9BCD4DB627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:461B7400DBA8807DFC1044EE1560F105F5A9792C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ Sonus Umbra - Winter Soulstice (2013) [MP3|320 кб/с]<Symphonic Progressive Ro
 ```bash
 magnet:?xt=urn:btih:45AFDDB11FA6DB1BECC902CAC40628AF07EB94A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A313FBE34A4403C9D3FA393C8623BCDF3B8B632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ Fuzz Manta - The Stonewolf (2013) [MP3|320 кб/с]<Psychedelic Rock, Hard Rock,
 ```bash
 magnet:?xt=urn:btih:993855FCF9E6F2853F4C3472427F8693562ECAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76E4286D2631E811B18181594B7DA1173FA8A6A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C75EB27BA5DF4E1F188CC9D2E545B3CD3FCC02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54049270A496C37000FC02C20EA46FE0C32F0213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ VA - Молодежный Русский Best Hits (2013) [MP3|256 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:99586B3F948587808C1930583577F60AE36C0415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EF07B073B0CD7B7F396E73E9710D39D10A14FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +615,7 @@ VA - Dj Zone - Best Session 08/2013 (2013) 2CD [MP3|239 - 266 кб/с]<Progressi
 ```bash
 magnet:?xt=urn:btih:DC476A012C2B760E53108C1FC7316B806C8652E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ VA - Anjunadeep pres. Deep Tech 01 (2013) [MP3|256 кб/с]<Deep House, Tech Hou
 ```bash
 magnet:?xt=urn:btih:DDCD0A538F0AAF06F33D7D3CD72DCE6E7832C1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:791E5E3FBE9D951350E48558D47FAE90BEEE8137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +703,7 @@ Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
 ```bash
 magnet:?xt=urn:btih:BAE55149788FE0D04E75C285B380754338948578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +731,7 @@ Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
 ```bash
 magnet:?xt=urn:btih:0E41BC1703639272C2EA8432A6C724A804B70D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

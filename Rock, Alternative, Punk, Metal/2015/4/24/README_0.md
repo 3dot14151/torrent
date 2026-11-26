@@ -23,8 +23,7 @@ Blur - The Magic Whip (2015) [FLAC|Lossless]<Alternative, Britpop>
 ```bash
 magnet:?xt=urn:btih:7765B9F8E99F6E2110248D615E2CCBC9EFC6AB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Bonfire - Glorious (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DEE80AA673E94D386935BFDE7A6B9E6E04666D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

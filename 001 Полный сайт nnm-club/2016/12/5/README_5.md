@@ -18,8 +18,7 @@ Christmas Wishes - Winter Opener - проект "Рождественские п
 ```bash
 magnet:?xt=urn:btih:22585A65B9577063E72C4D295B793AEAE745A9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A5174B3B3467DE35386197AFCCDA99127974EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCCA31AEF997176172F5FE2EB0E3F78AAD895C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Between Me and The Night — из тех игр, что донельзя дуа�
 ```bash
 magnet:?xt=urn:btih:B8465A2F14E0F3161B2F3500F2CCA9D802934F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Inspired Opener - является вдохновляющим видео-вст�
 ```bash
 magnet:?xt=urn:btih:60559BEDB927872DDDEFAD8331ACF9AFC3FCACCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Christmas Paper Card - проект сделан для поздравления
 ```bash
 magnet:?xt=urn:btih:12F621562A322B68B6A7C5C690FB7616CA722D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Disk Drill - простая и эффективная программа для 
 ```bash
 magnet:?xt=urn:btih:B677537F836CFFE2F0008B6717FDC32BB585274F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Original War (2001) [Ru/Multi] (1.10b) License GOG
 ```bash
 magnet:?xt=urn:btih:14A4F9F970FBDAA641CEB658367B9F0DA5A19B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ OpenDomofon PRO — справочник стандартных кодов дл�
 ```bash
 magnet:?xt=urn:btih:160244EF9DEF798284FC0EDD6FACB863BCFE98D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FD990D54A50375A3973159FF324B935DA35F743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:638ED7406F23DB60E446EF0D043EFE71BE3CBDE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B292EC0DFEA395EED66D66B4E9DE105D48A9A21A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Junk Jack – приключенческая 2D песочница в духе T
 ```bash
 magnet:?xt=urn:btih:6D4DC3FAAC6F25649759E78A74C00C23A8E5C9FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3D566AE6D0A55A77B6AC28034C656E272E4A5FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Killing Floor это Co-op Survival Horror FPS, действие которог�
 ```bash
 magnet:?xt=urn:btih:CB668F322DB4E65E599537AA1A99F840113517A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9FAF6F3D2DBD8CDC1EE8D431AEB30D125AC2A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ USBboot Installer++ 1.9 DC 05.12.2016 [Ru]
 ```bash
 magnet:?xt=urn:btih:2C5D4D57C5E84B4DA98F29C5E93628309196067E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ King Lucas (2016) [En/Es] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FF1F0FE006868A2F2D875A42326D681A019ACA54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6F9B13FEA37DDCB58FF591CAEBF2D8E80DBC947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Agony — хоррор с видом от первого лица, в котор
 ```bash
 magnet:?xt=urn:btih:46012C4470FAB67177F5DCA6B17ECC788B97BBA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1406491018B9E75FBFF4969C618E9034D7D5DAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +553,7 @@ CRAZY CHICKEN Strikes Back (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:430C6C84147E048BEF4B51CCD9BCE390D370ED2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ Adobe Photoshop - это комплексное решение для профе
 ```bash
 magnet:?xt=urn:btih:C2A5A0B2CC254434CA48254E27C2FBDF71BA7337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62B8E01121B85DFC7651BFF65871445BC8158F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E76367645291B8E28A7FB85F489817D5081315C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +653,7 @@ Adobe After Effects CC 2017 - популярная программа для р�
 ```bash
 magnet:?xt=urn:btih:6BE6785D314A5C8FADC745A256E050767CF7A31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

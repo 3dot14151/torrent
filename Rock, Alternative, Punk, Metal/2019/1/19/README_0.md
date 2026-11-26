@@ -22,8 +22,7 @@ Embalmer - There Was Blood Everywhere (1995) [FLAC|Lossless|tracks + .cue] <Deat
 ```bash
 magnet:?xt=urn:btih:DDC688DFC6E51D1B5A1AA8E72878D0F2D0ADFFDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lividity - ...'Til Only the Sick Remain (2002) [FLAC|Lossless|tracks + .cue] <De
 ```bash
 magnet:?xt=urn:btih:9CE3819334B6E5469A085DFC9173E580A7C3389F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Joseph Arthur & The Lonely Astronauts - Let's Just Be (2007) [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:957D0BD734ADF1EE64F525130C75B9B9332FF972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:068D293C2842488C72D0C7E8A10618EA81520D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:836E7501EDA45A35896ABE5254F007774420ECAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bay City Rollers - Best Of (1994) Series Music Reflexion [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:DBB4E8CC3E11D11DFFF194EA70409E053E3BB705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lividity - Fetish for the Sick (1997) [FLAC|Lossless|tracks + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:6052594566207BA2F8AE5F4AC48BA0513D8D0A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ John Paul Jones - 5 albums, 7 CD (1985-2010) [FLAC|Lossless|image + .cue] <Prog 
 ```bash
 magnet:?xt=urn:btih:560142FCA858B92F5BF35B4B06CFAD83F88C9972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Rock Legends vol.1: All-Time Greatest Rock Ballads (1995) Unofficial Releas
 ```bash
 magnet:?xt=urn:btih:9AF54EAAEEA1264F818AA73327E9E52AC94262B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

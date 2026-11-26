@@ -22,8 +22,7 @@ Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

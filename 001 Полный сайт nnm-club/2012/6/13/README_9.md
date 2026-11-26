@@ -24,8 +24,7 @@ Kasan - Drown (2012) [MP3|320 кб/с]<Instrumental Post Sludge>
 ```bash
 magnet:?xt=urn:btih:4ED2B3DC02AA4FD193912A0AD67FDFCAE483985C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ophiolatry - Transmutation (2008) [MP3|320 кб/с]<Brutal Death>
 ```bash
 magnet:?xt=urn:btih:101F41132CAE1EBFA025E38E1D7E216E7E16D98B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ The Ordeal - Descent from Hell (2012) [MP3|256 кб/с]<Metal>
 ```bash
 magnet:?xt=urn:btih:3B48BFF85353C960F8B186A121D87D545E6D78A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Heavy1 - Minimalized (Rubik RRT020, 2012) [MP3|320 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:F7AFE6702995EA9552AF93DAAAB97BCA59834F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Moonbootica - Our Disco Is Louder Than Yours (PROMO) (2012) [MP3|~245 кб/с (V
 ```bash
 magnet:?xt=urn:btih:76D0C3AEB5102655A38ACE1549ED8714A787B31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Fourever - Solitarium (2012) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7147A2DCAD466F92FC1472A3FD86621C45A685CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Jeff Ball - Return to Balance (2005) [MP3|320 кб/с]<New age, Instrumental, Na
 ```bash
 magnet:?xt=urn:btih:8AC263E32AF6A443606055F1508EC0D0DA29F8CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A6DE428437CDCEE46330772E591CA8ECD527799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AFA437C6456FE08EDC7C9392A5AC939EF2904C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ VA - Club In Car Summer (2012) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:2C1D3E3B5B8E2623936E0D2FBD74667B28A98640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ Hour 1
 ```bash
 magnet:?xt=urn:btih:3165553254B665C7221EB9B28923083017C8AA38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45ADF66F6D43DA043452F32FF3063B1D12656689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF0C8764E4ABB1C8FCD3E6F2EA1D110ABA275DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FCE10B70A2A597EE53B32D0D566F002D23AD380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ Tyrant - Fight For Your Life (1985) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:654C21DD8873D8380D70BCD105F34F371FB47D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ VA - Клубные Новинки Vol.87 from AGR (2012) [MP3|320 кб/с]<Club
 ```bash
 magnet:?xt=urn:btih:98B854D465ACDF61782CA821C440E1551058360B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +515,7 @@ Sérgio & Odair Assad - Saga Dos Migrantes (1996) [MP3|320 кб/с]<Classical Gu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +549,7 @@ VA - Зарубежные Новинки Vol.55 from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:8DE781B85D91968FA88BDB62E84A34EB5EA3C64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +583,7 @@ VA - World R&B Delux (2012) [MP3|320 кб/с]<R&B, Hip, Rap>
 ```bash
 magnet:?xt=urn:btih:B034A5B3724ED64CF6B13003A94C2F7492110937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +617,7 @@ VA - Music Desires (2012) [MP3|320 kbps]<Deep House|Lounge|Chillout|Relax>
 ```bash
 magnet:?xt=urn:btih:2125376146D565AE3E96444FD2DA2CD9ED008B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B936D9BD5E195DFBA1CCBA24331D40607440D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +677,7 @@ Madsoul & Eros (Не Беси Rec.) - Еще Не Так Далеко [EP] (2012
 ```bash
 magnet:?xt=urn:btih:0F8D3CE5662FD68E6201307B7DF942173580D02D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49B79BCB4DF4E40FECA199A7199E95A7F2FBE981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +736,7 @@ Danny and the Devils - Danny and the Devils (2011) [MP3|320 кб/с]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:3E6BF2C9F4010D74E36E3F8990AAEAE3F5169DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +761,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1903D78B3B7EB9DA48E77A5154EB256C24F6BB05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -819,8 +794,7 @@ Mystic Rhythms Band - Mystic Rhythms (1999) [MP3|128 кб/с]<Native American, N
 ```bash
 magnet:?xt=urn:btih:19B3ECB8E2F81C01187AD586F140F7028ED4EB16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

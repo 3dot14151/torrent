@@ -19,8 +19,7 @@ Fairy Godmother Stories 3: Little Red Riding Hood (2020) [En] (1.0) Unofficial [
 ```bash
 magnet:?xt=urn:btih:11EB50AF62E372F6D4E22567014B122C4F1FEB11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.03/dlc) License HOODLUM [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:CA1ABF115CB894F4267A5874A3CF21CA67C4B7F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (SC:6879) Repack xatab (об�
 ```bash
 magnet:?xt=urn:btih:C74E8897D294F138AFAD9B3D86988699EFED15E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Christmas Wonderland 10 (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:DB1E9CD2CB12E2A1072A9EC3D767D9151EE85855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aim Hero - это идеальное решение для тренировки 
 ```bash
 magnet:?xt=urn:btih:9AD002E5050FFA2FF548BFC445B85A8442733974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

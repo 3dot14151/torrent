@@ -19,8 +19,7 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 ```bash
 magnet:?xt=urn:btih:984F1F73222BDD951603B2E38482F916AA4C5217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:13ED6691503253054BCA8D661CF3C98CB9C0CE3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:9337F34EE5AA75F59B0D9E95C87E98F9C1B7DAD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

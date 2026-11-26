@@ -19,8 +19,7 @@ FarStone VirtualDrive Pro - лучшее решение для записи, к�
 ```bash
 magnet:?xt=urn:btih:3A9986E62B2D277C5A12719EE8E8FA16A8AB799E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Manafest - Stones (2017) [FLAC|Lossless|tracks] <Alternative Rock, Rap Rock, Chr
 ```bash
 magnet:?xt=urn:btih:12D32C50101B4D529359E1C88FCFB9FE4AC86FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mick Jagger - Gotta Get A Grip / England Lost (2017) 2 Single's [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:56D8D34FBC914765EE6B8E74871899C8D7BBD54B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Alice Cooper - Paranormal (2017) 2CD, Deluхе Editiоn [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:C134C1CF1DC27F2CAEA959B6C1E51F82630316B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Live In Essen 2013 концерт группы ДДТ исполненный 11 
 ```bash
 magnet:?xt=urn:btih:7B3E06AD2EC4BDA3C47BBE6BD7AA29D446D32483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

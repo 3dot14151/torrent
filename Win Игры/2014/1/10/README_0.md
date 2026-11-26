@@ -19,8 +19,7 @@ Lilly Looking Through — это анимационная приключенче
 ```bash
 magnet:?xt=urn:btih:62B46C5EB763EE2E79516C23003B2BA14CF90D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ MX vs. ATV Reflex продолжает и развивает игровую се
 ```bash
 magnet:?xt=urn:btih:75C8529AAD824695DA61EFEF5861A0C2D6C62E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Amnesia: A Machine for Pigs (2013) [Ru/Multi] (1.0 build 145815) SteamRip R.G. �
 ```bash
 magnet:?xt=urn:btih:CEE358914F1D459EA7B32DC4845E839FDB5E7DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

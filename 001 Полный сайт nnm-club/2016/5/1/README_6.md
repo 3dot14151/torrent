@@ -18,8 +18,7 @@ AirDroid это бесплатное и удобное приложение, к�
 ```bash
 magnet:?xt=urn:btih:B263C7EB0EDA3A980A910E064FACC49397F50A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ CrazyTalk — новая обновленная и улучшенная верс
 ```bash
 magnet:?xt=urn:btih:AC2E04FBAE975905199F175C7CD2E845B9EF8B35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC52D3B587011DB9600C0C245B4B42AF24BBF5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/E
 ```bash
 magnet:?xt=urn:btih:1BB0456FA807A65525E74499D917A631899ED7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ MultiBoot 2k10 6.3.2 Unofficial [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1F54C25909BE675D084FD02A48940393EBB85FA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

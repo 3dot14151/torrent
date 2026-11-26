@@ -19,8 +19,7 @@ Enter Shikari - Дискография (2003-2010) [MP3|192-320 kbps]<Post-Hardc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

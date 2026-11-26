@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:567D39D99640975EC8C1A92EB1C1946E16D3AEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1 - Live At Hammersmith:
 ```bash
 magnet:?xt=urn:btih:5FF0DAC783740648BB76098AFA3582D00CAD5557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fruit Farm (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:C919198CCFE5108626A8F1653605180F1ADBB37A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Back to the Future: The Game Episode 5. OUTATIME является пятым и 
 ```bash
 magnet:?xt=urn:btih:FF342296A405C7DD91074A39EADC90F8D5A98310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nancy Drew: The Captive Curse / Нэнси Дрю: Проклятие старо
 ```bash
 magnet:?xt=urn:btih:E13E2F8AA5F01E8053E40479412F6C04220869C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E309404831CF928C005309D00C2B8696DE67A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

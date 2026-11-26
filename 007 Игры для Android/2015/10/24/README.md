@@ -19,8 +19,7 @@ Asphalt 8: Airborne - Новая часть одной из лучшей сер�
 ```bash
 magnet:?xt=urn:btih:AECAB2756198D87CF81170CE5BB58CCB6C16A715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

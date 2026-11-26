@@ -21,8 +21,7 @@ Guy Pearce - Broken Bones (2014) [FLAC|Lossless]<Rock, Alternative, Pop Rock, Fo
 ```bash
 magnet:?xt=urn:btih:938D02FC78B286D7EE1ABD2F12C2A07AB47F615C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Amy Lee - Aftermath (2014) [MP3|320 кб/с]<Alternative, Instrumental, Female V
 ```bash
 magnet:?xt=urn:btih:39E69C7FC11F2C9A4D5281E2C3627AA0D05083CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ V.A. - Classic Rock Presents: The Best Of 2014 (2014) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:70EF551A8E16A995611227F0879A2BF9D48B29BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0DFC19DE0560F73784B673DEA7E4B4C3E3FDBAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E312BE2A6F2C0BB4F92B2A7A1BA638FD314330F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0570164AC8052046B5C09B4DF1FD14C0C52235FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ VA - Aznavour, sa jeunesse (2014) [FLAC|Lossless|WEB-DL]<Pop, French Chanson, Tr
 ```bash
 magnet:?xt=urn:btih:762953E0E253DD3543D45C745257D8EB952144B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32684895B17547C2961CA939DA4C7C20830BF038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:861944539E1D9678CDC1F19F587D722A5141805D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 ```bash
 magnet:?xt=urn:btih:CBBACFF5ACF5909B45DAAC7EB729095307277B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:AFED349D8C3B76C4FD335F47DE3062C1B4DF64A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5A922A18DEBC69C84A9C17CFEC57CD82CBEE1FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A115A6CC1752405D482B9C97C88F6E80AF66013E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Vampire Legends 2: The Untold Story Of Elizabeth Bathory (2014) [En] Unofficial 
 ```bash
 magnet:?xt=urn:btih:B7F33D8B9304E1351E70893CAB3CACC5585621C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C014112CFAAFC1E931BF9474079F489B3AEFA536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Miko Mission - The Original Maxi-Singles Collection (2014) [MP3|320 кб/с]<Ita
 ```bash
 magnet:?xt=urn:btih:EFAB43982808A566F7CA94435E908555BBAA4B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E84B27935BE115AB1A7ED1121CD3790ECAE0833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30530C0F395A53F60146172672CA5B580119EBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ VA - Goa Culture Vol 16 (Compiled By DJ Bim & E-Clip) (2014) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:59B7F55AFC9E7D8C99EC68990242F7FE03E5DD87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ Hide Folders 2012 - это удобный инструмент для сокры
 ```bash
 magnet:?xt=urn:btih:4A44CB6381A7B5F8930CF056599AD8C56F4FC6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:ED5F0B66ADBA3A0B6E77014E8474CA41838634C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Ashampoo WinOptimizer 11 - новая линейка пакета програм
 ```bash
 magnet:?xt=urn:btih:FEBAB30A9D385B53E8D712C728ECD38382970218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC22C41C7EA7D410148E53749B92359D4A409C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ VMware Workstation — известная программа для виртуа
 ```bash
 magnet:?xt=urn:btih:BC1141B3A52568990EDE5220BFEEC8FFA0C1E278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E20A2C8B5BD2B969871A752FDC9CAA07FB68A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DB9C2A4BB200D448A3A1CE73A32DA8ABECAA9B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

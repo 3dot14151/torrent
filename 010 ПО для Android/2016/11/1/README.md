@@ -19,8 +19,7 @@ GPS HUD Speedometer является передовым приложением, 
 ```bash
 magnet:?xt=urn:btih:DDCB0EC557389DD7CB282FBD688A8E15E96AD216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

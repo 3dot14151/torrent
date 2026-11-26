@@ -22,8 +22,7 @@ Ad Metalla - Gemelli Siamesi (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:79EB1055788CCBAA7CC76957CEF0CCEC73F4B93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ancient Sky - Mosaic (2015) [MP3|320 кб/с]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:C7DA2DEFD12CFBABE2951DC93FE5ABFD095F92A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Inner Odyssey - Ascension (2015) [MP3|320 кб/с]<Progressive Metal, Progressiv
 ```bash
 magnet:?xt=urn:btih:D3BCD8F48F7450B27124024698BF93459D85C429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Withering Soul - Adverse Portrait (2015) [MP3|320 кб/с]<Melodic Black / Gothi
 ```bash
 magnet:?xt=urn:btih:AE3C303DA267B56BE958F2436DA95FEA71499D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Our Last Crusade - The Ideal & The Actual (2015) [MP3|320 кб/с]<Progressive M
 ```bash
 magnet:?xt=urn:btih:25CBD685CA52C05A3529E8C829EDE83C8F4D1BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Kroda - Ginnungagap-Ginnungagaldr-Ginnungakaos (2015) [MP3|320 кб/с]<Pagan Me
 ```bash
 magnet:?xt=urn:btih:600E2F7F83DEA4CC09AB6EF5A50FC8DD41EFA6FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Killer - Monsters Of Rock (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3DDDC70304EE52D30DE1504D36AC6CCAF39144C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Tomas Bergsten’s Fantasy - Nightwalker (2015) [MP3|320 кб/с]<Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:8E607A328712D4781667AEE346CDAFD24E6CBE64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Bulletboys - Elefante (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9B044C53E32E117530602C5ABEED1D49DB43C51F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Little Richard - Live (2006) [FLAC|image+.cue]<Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:F88240EB74BF38A84B0D77301A839D7D96C872EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Rise To Fall - End vs. Beginning (2015) [MP3|320 кб/с]<Melodic Groove Metal>
 ```bash
 magnet:?xt=urn:btih:2CF315FF6FD1DEDDBACB08D2E312816B5F136AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Band Of Brothers - Band Of Brothers (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4D5E0EFC1A1DAC784B3F895438E16D00E984101E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ The Night Flight Orchestra - Skyline Whispers (2015) [MP3|320 кб/с]<Classic /
 ```bash
 magnet:?xt=urn:btih:F792C4B626556E5F678530E7E271D88C3B71B8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Shape Of Despair - Monotony Fields (2015) [MP3|320 кб/с]<Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:A4BF26954E1DFA3F31DE59590C1D3682A71803B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Led Zeppelin - Live (Bootleg) (1993) [MP3|320 кб/с]<Сlassic Rock, Hard Rock,
 ```bash
 magnet:?xt=urn:btih:BF3F3284A0C679FF5A1D14947EE1E8AC16A52621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ Discogs01. Baba O'Riley
 ```bash
 magnet:?xt=urn:btih:6E9797DB71BFF352E63FBA58457528B45AE75F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A7FCE42B359E616B9F69AB59D53E03CD5DB90EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3643271AEA4D640B356A1BE6C24EEA82DB012748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A3 Белая Ночь(   Читать дальше...   )Жанр: Rock, Heavy 
 ```bash
 magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

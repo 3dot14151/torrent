@@ -19,8 +19,7 @@ Horizon - пошаговая космическая стратегия, в ко�
 ```bash
 magnet:?xt=urn:btih:C3BA3828B1C091DF7EA4F64B768BA58C5AD3D856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Autodesk Sketchbook Pro - приложение для рисования и че
 ```bash
 magnet:?xt=urn:btih:5A57D00D710714606AEC734FB03908AB267B174E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ESET NOD32 Smart Security - новая версия комплексного а�
 ```bash
 magnet:?xt=urn:btih:67B058192AE07062164FB525BC8C29E941F5B942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20B9C4EAD3A0FF6A8492C86685644F45391B45CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Google Earth Pro 7.1.4.1529 with 3D Support [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:30619A7B7387BB3B6EDE547EC59C26A8AD5F9E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC5734D12B52DE34D64C876D9406F692856F92E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:E7C5C38E2F729FADD6758FA967E90B50E493124C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Recuva - программа для восстановления удаленны
 ```bash
 magnet:?xt=urn:btih:A2C3D1DB2061C69F87A2587B6DC95749A58F541B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ I, Gladiator (2015) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:CEEA082103B71A6D09EC1019F4176CEE41CC40B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE18974B7FBCD3E6741B165B4203BC843DC252FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E0FE5B43871341E41E562B4165036E1A8C0AC10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Distant Star: Revenant Fleet - это космическая стратегия 
 ```bash
 magnet:?xt=urn:btih:A0D930BF87444A81C403EFD5957DF5EDBBD7F23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10193E234A4E7D3CEADF3D5D29EAA51EC76D3FD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Akatsuki no Yona / Рассвет Йоны (2014, TV, 24) HDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:F741C24B375AA21846CFCA29DD1405C5390A17B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Voice Manager легко создаёт собственные (   Читать
 ```bash
 magnet:?xt=urn:btih:10CAE54778E3747E16D4FE26F59B96AE5F908E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5B34DBF8E2D1D081FABE2CEEF0B3EA74AE2F72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ Recuva - программа для восстановления удаленны
 ```bash
 magnet:?xt=urn:btih:14A285284CFB122D6FD55C1CC54A885E1F804DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:4C46F02E9E9BC21424302C0DB6383ED5C0FD8B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ lue Estate дарит уникальное погружение в мир маф
 ```bash
 magnet:?xt=urn:btih:69E3C079F57068C2C646D990EB765A9F00A54CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B021B329F9B6467FA5BE5572340B71BF5C30CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ MInstAll v.06.04.2015 By Andreyonohov & Leha342 [Ru] (Авторская раз�
 ```bash
 magnet:?xt=urn:btih:D57D8925D86993EEED88D48714BF4A870DC90BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ Adobe Acrobat Professional DC — это полностью обновленна
 ```bash
 magnet:?xt=urn:btih:05F87B79710D76D0BA6099B67D0DC39807B0C730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

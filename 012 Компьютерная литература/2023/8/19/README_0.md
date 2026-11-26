@@ -19,8 +19,7 @@ Dan Wellman | Ultimate Typescript Handbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F362DA9D3146E1B8541E836FC96E1C0A13A7BCE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sumit Jaiswal | Git Repository Management in 30 Days (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:193ABB54D978D946E2DA5DF713A85C33237659E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Martine Dowden, Michael Gearon | Tiny CSS Projects (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:3220C0A6883FB5C44B72EFEBA261E66C4E71E4DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Wallace Wang | Beginning iPhone Development with SwiftUI: Exploring the iOS SDK,
 ```bash
 magnet:?xt=urn:btih:76DDAA99501D4A18583EB7023ADCF91301C7205E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Marius Iulian Mihailescu, Stefania Loredana Nita | Pro Cryptography and Cryptana
 ```bash
 magnet:?xt=urn:btih:62C36E812A90BFC0F9EDA10097E4CCE89FDB4051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Gregory Walters | Python GUI Programming with PAGE (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:D1F84DF5354D4A642935390EFCA2A041C4E9DF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Download code from (   Читать дальше...   )Жанр: Програм
 ```bash
 magnet:?xt=urn:btih:7819BCCB0FA0E2A90E4A639D3599CAAB878C82D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

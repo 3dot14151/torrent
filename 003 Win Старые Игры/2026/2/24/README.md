@@ -19,8 +19,7 @@ FlatOut - динамичная гоночная аркада с видом от 
 ```bash
 magnet:?xt=urn:btih:803817FABBB923C5072643D888CFF06F0CFEABB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

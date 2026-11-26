@@ -24,8 +24,7 @@ Call of Duty 4 высоко оценена специалистами,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Microsoft Windows Server 2008 R2 SP1 - Оригинальные образы с 
 ```bash
 magnet:?xt=urn:btih:9A26846EDBDF5820E498B93406E0AB52A7AAD3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ ESET NOD32 4.х/3.x Offline Update 5905 + Keys (25.2.2011)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

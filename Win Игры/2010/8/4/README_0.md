@@ -19,8 +19,7 @@ The Guild 2: Renaissance [En] (RePack) 2010 | Ultra
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

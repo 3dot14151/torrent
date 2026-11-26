@@ -19,8 +19,7 @@ The World Named Fred (2015) [En] (1.0) License FANiSO
 ```bash
 magnet:?xt=urn:btih:DEDC9F6D9472E7C5590110A3D3E2C03B052BB220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Oscura: Lost Light – хардкорный платформер с увлека
 ```bash
 magnet:?xt=urn:btih:1A7D7D36B6448945018968FD097E0A0C74951F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

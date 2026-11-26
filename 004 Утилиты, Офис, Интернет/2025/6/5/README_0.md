@@ -19,8 +19,7 @@ Kingston SSD Manager — это приложение, предоставляющ
 ```bash
 magnet:?xt=urn:btih:505B2041E795DEB692201421D3F8E3ED52456DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ CamToPlan / Рулетка измерительна v4.2.1 Mod by derrin [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:C1F32680326A703C06F4F79BE0621BC3E8A47393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Words – это лучшее приложение для изучения сл�
 ```bash
 magnet:?xt=urn:btih:43027789D1312C02E0720BB9A0FED645FFE00E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:632CF724574DFDC63618101C4FA708D34A480148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

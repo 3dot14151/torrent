@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:315F7B33251C5FBA3A4553A58C06270C515AEA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dog VPN — это бесплатный и безлимитный VPN-прокс
 ```bash
 magnet:?xt=urn:btih:91965150289058C356813653015D90AA5F881228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VPN Russia - VPN сервера в России v1.136 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C1D8B3E19BDD2CEC5C0441A44217C79F3145EEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

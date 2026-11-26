@@ -19,8 +19,7 @@ Cave Quest / Пленники горного замка (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:8F5ACAAFB1B579D170917EC19AC26F0BEE470E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Legends: Sleepy Hollow / Таинственные легенды: Сон
 ```bash
 magnet:?xt=urn:btih:9D9C026055FA590254542109DAB166CAEC981C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lost in the City: Post Scriptum / Потерянные в Городе: Пост
 ```bash
 magnet:?xt=urn:btih:68B1D06EDEF401551FE9857A3F99A9F4F274E306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Loki: Heroes of Mythology [Ru] (RePack) 2007 | R.G.Catalyst
 ```bash
 magnet:?xt=urn:btih:20160FD7FEE98FAD16FF1ABCCB6276483714ACCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Rock Legends (2017) [MP3|320 Kbps] <Blues, Gospel, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:5996855C2BA7BBD90991128D588BAC15CE370D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

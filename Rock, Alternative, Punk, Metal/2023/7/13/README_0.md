@@ -22,8 +22,7 @@ Cadaveria - Collection (2002 - 2022) 6CD [WavPack|Lossless|image + .cue] <Gothic
 ```bash
 magnet:?xt=urn:btih:A0C1847A2AAC621DB999FFABD0C3D5901E230A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eleanore Begin - 3 Albums (2016-2023) [MP3|320 Kbps] <Alternative Metal, Alterna
 ```bash
 magnet:?xt=urn:btih:E92574E8B7E860DDCEC475BC1377E2F2CD37843F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6654CF72B47FE40588E8BC7E450C939020161EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lifesigns - Live In Netherlands (2023) [MP3|320 Kbps] <Neo-Progressive>
 ```bash
 magnet:?xt=urn:btih:282478BDB9046F32CE1BFACF6E84B2B5542EF345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Edge of Paradise - Hologram (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:76EE848E3817D6DBCAABEE2CE779300513D70FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Neal Morse Band - An Evening of Innocence & Danger: Live In Hamburg (2023) [
 ```bash
 magnet:?xt=urn:btih:0ADE2DF77B4A09D8EBAADDD5654401F3ECE9E717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Infamists - Live Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 ```bash
 magnet:?xt=urn:btih:6EA21BF96AD9885280D4DA8EC706FC4970A7C75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Extreme - Six (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, H
 ```bash
 magnet:?xt=urn:btih:6415E14767419B0AD2ADC06C00F6895FB0D287D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35C9731E53CE5E6669315A5EB72C4F661174AD3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Zone Out - Турбоглэм (2023) [MP3|320 Kbps] <Glam Metal>
 ```bash
 magnet:?xt=urn:btih:C18E8265D65C616013C8CB7C1C2EF1136A86B141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Fall of Mother Earth - Another Kind of Consciousness (2022) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:B165A532588B7594461674F8F9A358979A1079BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ The Company - The Company (1995) Japan Edition, Teichiku Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:8AB45E4B659BB1B47C69847A0DCDFBD45E817F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ End of the Dream - Until You Break (2017) [MP3|320 Kbps] <Melodic Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:8C9551558A2EAD8CD883777BE721653FA4766060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Hanlon's Razor - Stockholm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:97F0065D6D96525C49A942648258AD5FB7977AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ End of the Dream - All I Am (2015) [MP3|320 Kbps] <Melodic Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:68B4B389CAB445973069C7930B2D77F17F2A8457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ The Ocean - Holocene (2023) [FLAC|Lossless|tracks + .cue] <Prog-Rock Related, Po
 ```bash
 magnet:?xt=urn:btih:01759EDF1F68AC6F83D8DCA46AA051C6C2042491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Mare Salutis - Symphony of Thunderstorm (2023) [MP3|320 Kbps] <Instrumental, Sym
 ```bash
 magnet:?xt=urn:btih:811177BDEF5672BF16AB40F4F953866AF88D6FE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ The Wealthy Hobos - Ticking Twelve (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy R
 ```bash
 magnet:?xt=urn:btih:ECBDBCE193CEF908218E738119D5233BFC13407F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ CD1 - Live Album:
 ```bash
 magnet:?xt=urn:btih:7A4FC9C8B07F114712746ACB0FEC32825BF24D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DCEDE9D5D179D260DFD6502AC84CDFAF3E8CD50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ CD1 - Interludium:
 ```bash
 magnet:?xt=urn:btih:2F42AFF4CEAD7F38EA5B59D686BCBD6B87386CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ Nothing But Thieves - Dead Club City (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 ```bash
 magnet:?xt=urn:btih:603E0223D30B65C8080CCB024B60F34C3E7218C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

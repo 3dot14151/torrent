@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:11C015E22FEC92579BC9465F64E6984BAD55E77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Marc Loy, Patrick Niemeyer, Daniel Leuck | Learning Java, 6th Edition (2023) [PD
 ```bash
 magnet:?xt=urn:btih:54E126227E2EFEEC3A28A27EE46CDB7B6D04F9AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Pascal Thormeier | Mastering CSS Grid (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:95E18E96A1AA2A801190BAED3300746822E0AFDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

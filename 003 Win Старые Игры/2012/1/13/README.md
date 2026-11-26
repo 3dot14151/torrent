@@ -21,8 +21,7 @@ Flight of the Amazon Queen [Ru] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:D0BD6BDF998C2480C3C6FB93FAEF092BBE4FF6B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Commander Keen [En] (RePack) 1991 | Puilotus
 ```bash
 magnet:?xt=urn:btih:71D03A647F6AAC9B80328A20FE6003409502D02E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Phantasmagoria 2: A Puzzle of Flesh [En] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:F4E5B5C93774AF3DEFAA89391257B45E3F80D91D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Ultima 9: Ascension [Ru/En] (L) 1999
 ```bash
 magnet:?xt=urn:btih:D3FD820A6DB64F8D83388A47FFA69B417F84E3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Silver Chains (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:45E686CC78D977819E4F6F87B966FBD691328F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PianoMeter – Piano Tuner v5.0.1 Mod by Alex.Strannik [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D5696463CD2162EAA56D1F97ACB80C7A531BBAA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ One Read / Все Документы Читатель - Офис v1.2.8 Mod by v
 ```bash
 magnet:?xt=urn:btih:91EE282D97269C233C486C3BA9C69F199CAB61B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

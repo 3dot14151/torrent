@@ -19,8 +19,7 @@ Fright / Страх (2014) [Ru] Unofficial [Collector's Edition / Коллекц
 ```bash
 magnet:?xt=urn:btih:7B5EF7DAF880D1EE65334F0A495F8DCC12A70BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ PC-версия нового проекта всемирно известной 
 ```bash
 magnet:?xt=urn:btih:32D01CA78DD549BCE7E14384525DE641992F3780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Omerta – City of Gangsters позволит вам на своей шкуре 
 ```bash
 magnet:?xt=urn:btih:E546BDB3EFFC37F93F201E8457DF65F5FF8B3982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

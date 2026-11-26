@@ -19,8 +19,7 @@ Duke Nukem Коллекция [En/Ru] (RePack) 1991-2010 | WinterKiss
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Nosferatu: the Wrath of Malachi / Вампиры [Ru] (P) 2003
 ```bash
 magnet:?xt=urn:btih:E30508AAFFD465F8DAD4029205CE12F00D8CBCCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 ```bash
 magnet:?xt=urn:btih:CC357CBD5B6C1671B6BB32AA2E50F9E5E71DA410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ The Shield: The Game / The Shield: На страже порядка [Ru] (RePack
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Dark Planet / Тёмная планета (RePack) [Ru] 2002 | Pilotus
 ```bash
 magnet:?xt=urn:btih:6F7040C0ABA7DE88458D8DBFD5EDAB4BAFF4991B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

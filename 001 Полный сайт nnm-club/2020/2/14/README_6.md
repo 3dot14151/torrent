@@ -18,8 +18,7 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:759927F0732574ECD9DD3C37E344DF96B5F224DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

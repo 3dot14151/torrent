@@ -19,8 +19,7 @@ Insomnis — это игра в жанре ужасов от первого ли
 ```bash
 magnet:?xt=urn:btih:104E9FD159184DB72B92B102E0CCCD8672EF9EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

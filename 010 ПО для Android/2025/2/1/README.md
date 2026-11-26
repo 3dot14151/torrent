@@ -19,8 +19,7 @@ Periodic Table / Таблица Менделеева 2025 PRO v3.5.9 Mod by Bala
 ```bash
 magnet:?xt=urn:btih:1C246841E30D6C4A3F80980AB671B1E7F38C2E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:4534D2DCDC735578F8B019E1DA910AEFED0C63F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D3774F7CFA7E24977FB7E7EA5643DC8A56F5E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ DtcFix -  универсальное приложение для диагнос�
 ```bash
 magnet:?xt=urn:btih:A7E0CEBE48B580ED3C469D21AB31B1C3A7EFACBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:407324A8B5294DF643083794A0E38AE87FC63BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

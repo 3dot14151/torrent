@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:057F1CFC4B6197BBDDE4FD61654AE42C4B1BA65D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:967E87C87D7C71EEAE297202C7B772C3C2109291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC182704353A4EF8D061B4DEA29AC041AF41EFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Edenian - Forgotten Once (2014) EP [MP3|320 кб/с]<Gothic Doom Dark Metal>
 ```bash
 magnet:?xt=urn:btih:B2EFC852D0564473298E931F880281507B9275D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC8CECDCECEE983F9BA2500C3DA58E9365AFCBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C236D2C0769B60964D0D45D8790D9358172205B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Albums, Splits:
 ```bash
 magnet:?xt=urn:btih:4E9AA819FB670F28806608783DA40A30EAE2CED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75FB38917A5844ABADFAF523E87823273B26B039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:733019BC4D4826EB38402F18917A0F13482EA646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ VA - Sensuelle Outdoors, 2015 Calendar Edition Vol 3 (2015) [MP3|320 кб/с]<Do
 ```bash
 magnet:?xt=urn:btih:0165062E5B8F7619630FFE8F7C2DCC6C487FF9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Zero Down - No Limit to the Evil (2014) [MP3|320 кб/с]<Heavy Metal/ Punk>
 ```bash
 magnet:?xt=urn:btih:6E8850F15D205F1DB4204F6A4E83D56D60F7CD16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF0693E96382006E6DBFCF9A1A6F61168F435B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3692CA6DA377778E1223591304EE2E028B88CB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFF8F14BCE8BDDF872FF75C7574C304A811E1763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Klangstabil - Sieg der Monochronisten (1998) [MP3|320 кб/с]<Industrial, Exper
 ```bash
 magnet:?xt=urn:btih:3F27137E0FCF7FC6E5A81120D650062558326467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Garmin: AnaDigit Map 6.33 (Greek Anavasi TopoNavigator) (февраль 2015) <E
 ```bash
 magnet:?xt=urn:btih:51B81991B144A83917E22B7DE36C2DC36FF5F40D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ ForstWolfin - Beyond Time and Space (2015) [FLAC|Lossless|WEB-DL]<Psybient, Ambi
 ```bash
 magnet:?xt=urn:btih:AC915C569AC1BEBB87D2EB108A431C385D1CED6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CAF9F5EA74D364A2E2122156280D29B1FBD2B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Destiny - Time (2015) Special Edition [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:05918B7F19DD2D7A666451FA00A8DCFF17E25C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7DEBFCC89B6CE14E639481DBA93B16F07C9ADEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DFD4B2AC683E1B4EDA5C0519B9B631699E47C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 ```bash
 magnet:?xt=urn:btih:40783EBEE5CFD9E3C7A4DC90FDD2C59401F950FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ Demis Roussos - Morning Has Broken (2008) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:E1A7F6D516B50E7AACCBFB67E73FA3A4F2FA8EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15C37250065BD74F71678BDAAD9DF04FCCFFFC50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ Bullet - Storm Of Blades (2014) [MP3|320 кб/с]<Hard Rock/ Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D6231BA3088999B5B59CB4179C887559AB5DE38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8ABCBDD8DEC5D62CFE389CB7118D9E93350BB93C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

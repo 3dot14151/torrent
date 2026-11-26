@@ -28,8 +28,7 @@ Damnation Plan - The Wakening (2013) [MP3|320 кб/с]<Modern MDM>
 ```bash
 magnet:?xt=urn:btih:8BDF9B248FC60A6B03AE2EE47E0A8D6B19D74FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Thrawsunblat - Thrawsunblat II: Wanderer On The Continent Of Saplings (2013) [MP
 ```bash
 magnet:?xt=urn:btih:F540D46460A719F881C286BD6D71D696EABF303E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Lustre (Швеция):
 ```bash
 magnet:?xt=urn:btih:8EA1A76E0D0AD73ECDB95DA9073EF7D79EF4DDF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ The Everly Brothers - 50 Years Of Hits (2009) [MP3|256 кб/с]<Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:1F6F76755B07496A1BF69B1DE5D3DD537C48F623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Gamma Ray - Master Of Confusion (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:B5B89DA3B81F2E7BD5028F67E92D58B46D829597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ AWOLNATION - Megalithic Symphony (2011) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:D2119888A032411C136619F256AD988E5BA1C4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65793DA7AD2C5D88A082560F1866C540EF20539E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Foals - Holy Fire (2013) [MP3|320 кб/с]<Indie Rock, Math Rock, Dance-Punk>
 ```bash
 magnet:?xt=urn:btih:96B0BDEC2378B5D2EA411E0899993ACEB0AB24C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

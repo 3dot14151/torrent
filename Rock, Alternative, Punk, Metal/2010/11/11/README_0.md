@@ -24,8 +24,7 @@ Black Flower Box - Sleep Well, Sweet Vendetta (2010) [MP3|320 kbps]<Gothic Metal
 ```bash
 magnet:?xt=urn:btih:33E1349229DFD28413FD8C168EF6A19496D3B103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Ross The Boss (ex-Manowar) - Hailstorm (2010) Limited Edition [APE|Lossless]<Hea
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Paramore - The Best! (2010) [MP3|320 kbps]<Alternative/Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:FB6C1F02833BDBC330D3BF590284DD0D9BFDA647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

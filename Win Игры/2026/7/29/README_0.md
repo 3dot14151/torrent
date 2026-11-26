@@ -19,8 +19,7 @@ Sintopia (2026) [Ru/Multi] (1.0.6.571/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:157DD8EFF52D32399376CF999253DE3D37F224FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

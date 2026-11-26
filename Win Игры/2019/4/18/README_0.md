@@ -19,8 +19,7 @@ Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:B90199A4A1F4BC408A7A54F2A5C8CED256052A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Memoirs of Murder 2: Resorting to Revenge / Воспоминание об уби
 ```bash
 magnet:?xt=urn:btih:CD56E1BE11E8A131869156E2FA10EBA7FBCC2ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Driftland: The Magic Revival – стратегия в реальном врем
 ```bash
 magnet:?xt=urn:btih:600908FCF483E1A4C9BC3155D9855E8FE9D7B02B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

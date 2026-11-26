@@ -19,8 +19,7 @@ Kabus 22 / Зона 22 Территория страха [Ru] (P) 2007
 ```bash
 magnet:?xt=urn:btih:CC26535687D85B04D2157679B4EAA81EE543BEC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The White Chamber: Definitive Edition / Белая комната [Multi9/+] (P/
 ```bash
 magnet:?xt=urn:btih:D1CB2111753F6CF94D2ABC27F2E855ED760FF052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

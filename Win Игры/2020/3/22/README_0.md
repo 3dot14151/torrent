@@ -19,8 +19,7 @@ Morels - это расслабляющая приключенческая игр
 ```bash
 magnet:?xt=urn:btih:8B8087D04B03D458C99F6767BD75D2FD328D75D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NEO Scavenger – это игра, где вы должны протянуть �
 ```bash
 magnet:?xt=urn:btih:49BC141F6420D7C1F674945D73440C7925CAD37C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Surge 2 (2019) [Ru/Multi] (1.40405.1/dlc) License GOG [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:52BEA6E4FFDD0D9CAEF7664206592B4627601845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hyper Light Drifter - фантастическая во всех смыслах 
 ```bash
 magnet:?xt=urn:btih:AF14FA603BB21BABCF349BDF629FFBA22B2906A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Reborn Online (2013) [Ru] (18.03.20) License
 ```bash
 magnet:?xt=urn:btih:D0A4C1E86A97E934184B55AA2FEF814DBCBF7384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

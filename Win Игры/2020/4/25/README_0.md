@@ -19,8 +19,7 @@ Iratus: Lord of the Dead (2020) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:5DA775030958D98137973486570DF07DC0BAA3BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MotoGP™20 (2020) [En] (1.0) Repaсk xatab
 ```bash
 magnet:?xt=urn:btih:B4AE391D222DA20843A64292D315752634663A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BELOW — процедурно-генерируемое приключение �
 ```bash
 magnet:?xt=urn:btih:3C8B2C1B6789240C53F6201CB692BE41EB345730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

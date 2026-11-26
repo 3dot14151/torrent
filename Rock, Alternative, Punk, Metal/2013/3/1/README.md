@@ -28,8 +28,7 @@ Godyva - Alien Heart (2013) [MP3|320 кб/с]<Gothic Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:DA834EE025DBB25813CA480BC0BD17103829F027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46824EAD0717A0D39B43391D498C80EFB6727540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Space Clash: The last frontier / Космические войны: Послед
 ```bash
 magnet:?xt=urn:btih:5056D403F593D17322ADC1708BE20C4CEC636B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

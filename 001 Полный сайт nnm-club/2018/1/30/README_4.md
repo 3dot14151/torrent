@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7332CCAE93D64756F6B34A2E109E2F7F4BCFEFED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Part 1 (Discoteka):
 ```bash
 magnet:?xt=urn:btih:280A2A8363CD2C8C5061F582ADFFAC24E47B7ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Gears of War (2007) [Ru/En] (1.3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:65403C2F8839D1DFC155529323778E9C35AF9D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Redump.org это база данных и сообщество, храняще�
 ```bash
 magnet:?xt=urn:btih:78525E36FA2D425DBFCD0C782B77B9FBFEC34210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Call of Duty: Ghosts – новая часть в серии Call of Duty. На�
 ```bash
 magnet:?xt=urn:btih:252AB0C2C69664AC70B5AF5A4F50605A8782F381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57FFFEE52AE131C54EFD62F26CA5B654A5696FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

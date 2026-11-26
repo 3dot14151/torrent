@@ -19,8 +19,7 @@ Age of Wonders III - давно ожидаемое продолжение отм
 ```bash
 magnet:?xt=urn:btih:2965B51127C5B360516AC569E1558D854771F382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Singularity (2010) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:A9C00090E7897FE478CC100BDB3EC68751E4959C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

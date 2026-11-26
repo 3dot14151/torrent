@@ -22,8 +22,7 @@ The Ryszard Kramarski Project - Sounds From The Past (2018) [MP3|320 Kbps] <Prog
 ```bash
 magnet:?xt=urn:btih:542A7DC731DEC682AA1C9050080E6BF5A7811420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wild Life — дебютный альбом британской рок-груп
 ```bash
 magnet:?xt=urn:btih:B25C256328EF62F338373F2BDE0A7188C7A27D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

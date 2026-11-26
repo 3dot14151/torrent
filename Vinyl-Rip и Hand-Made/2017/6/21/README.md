@@ -22,8 +22,7 @@ Dire Straits - ExtendeDancEPlay (1982) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:63EC11C1F8317AB11F08FBF560769CCFDCF4CD8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

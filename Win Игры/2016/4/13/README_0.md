@@ -19,8 +19,7 @@ Gryphon Knight Epic - увлекательный скролл-шутер в ср
 ```bash
 magnet:?xt=urn:btih:63A8DF2680C279B7EBB5AEA5A641CCFAE2001A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Frozen State - игра о трудностях бытия и выживании
 ```bash
 magnet:?xt=urn:btih:2DC6ACF2578DD0120BABDF4301A432573F6FD2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Obscuritas - это паззл-хоррор, события которого р�
 ```bash
 magnet:?xt=urn:btih:2A16D489712624B576FD7257C5DBAE152C18B94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sheltered - это приключенческая игра, действие к�
 ```bash
 magnet:?xt=urn:btih:232106126F57721435DE5FC71655F7BE4CCC51F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

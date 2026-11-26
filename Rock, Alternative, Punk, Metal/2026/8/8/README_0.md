@@ -22,8 +22,7 @@ Xiphos - Collapse Arises (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Hea
 ```bash
 magnet:?xt=urn:btih:9042FCA1889FE17EA6C6C1070B00D079389F8C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ LOU GRAMM - Released (2026) [FLAC 24/48, 88.2,|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:2286FD314C0F54D4996BA1485B6C812FB933CFC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

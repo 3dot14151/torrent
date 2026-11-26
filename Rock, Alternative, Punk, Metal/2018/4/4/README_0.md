@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5735E40C8AFD0369E3A4AA7C2838AE64A3F405AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jaded Heart - Devil's Gift (2018) [MP3|320 Kbps] <Hard Rock, Hard 'n' Heavy>
 ```bash
 magnet:?xt=urn:btih:2D055583BC457112237DB02BBFF7ECD3FC70F5FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

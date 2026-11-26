@@ -22,8 +22,7 @@ Nobody's Fool - Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:30B0B116AA344CA400034BAE667FE417EE9A041E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Emil Bulls - Love Will Fix It (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal / 
 ```bash
 magnet:?xt=urn:btih:EE0B008C39AF0CD1682BB7DC3170B924C8A34A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ruthless - The Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:F1DD9B4EDAC7D238589D0FA67F42EB8E859223D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Damian Wilson and Adam Wakeman - Can We Leave The Light On Longer? (2024) [FLAC|
 ```bash
 magnet:?xt=urn:btih:004000A9AFC218BB5A158C858DF52942053F23AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Temperance - Of Jupiter and Moons (2018) Japanese Edition, Avalon [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:128BAC8C07447E9E5838AF54016F720481C03E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jim Peterik And World Stage - Roots & Shoots - Volume One (2024) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:8C37C4022CC0634C9E3F8E6674E9744B1A2A6170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Temperance - Limitless (2015) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Powe
 ```bash
 magnet:?xt=urn:btih:35556B17D9C1F8E0C9843E68693510B316CB3319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Temperance - The Earth Embraces Us All (2016) Japanese Edition, Rubicon Music [F
 ```bash
 magnet:?xt=urn:btih:723016A925DF8C525FEBDE1C22D82EAFA6B69BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Artificial Heaven - Digital Dreams (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic 
 ```bash
 magnet:?xt=urn:btih:3DF533C39EB721E03886960C9C59961D38017DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Ravenstine - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:83D3A4562E95E9EFCF8B168F4C89052851D1EEC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Serocs - And When the Sky Was Opened (2015) [FLAC|Lossless|image + .cue] <Brutal
 ```bash
 magnet:?xt=urn:btih:C70C2B22187426679AC9D22B967A3B2FB1BD2EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Serocs - Oneirology (2012) Demo [FLAC|Lossless|tracks] <Brutal Technical Death M
 ```bash
 magnet:?xt=urn:btih:5F3482CA9218C48BC9FAAE0438EF47DA474C2793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Serocs - The Next (2013) [FLAC|Lossless|image + .cue] <Brutal Technical Death Me
 ```bash
 magnet:?xt=urn:btih:AA52F5B3329F5D1C42A6755080A0D885910D0377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Serocs - The Phobos / Deimos Suite (2018) [FLAC|Lossless|image + .cue] <Brutal T
 ```bash
 magnet:?xt=urn:btih:B05B146D9D07DBE5E9BE407E4A9F87A117320FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Serocs - Vore (2020) EP [FLAC|Lossless|image + .cue] <Brutal Technical Death Met
 ```bash
 magnet:?xt=urn:btih:9E4D90933D013602E798A7051B3A64B5429C9C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Temperance - Temperance (2014) [FLAC|Lossless|image + .cue] <Melodic Heavy, Powe
 ```bash
 magnet:?xt=urn:btih:C2A07041C6BBE59FBA4634CEBDF0C9725E148B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Depraved Entity - Angels of Sin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:4E3D0793742D97E35BE8F735DCC54E42D5C04E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ The Clamps - Megamouth (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:A0B2429A10B3A62B04C0A7CAA2F4072858B53640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

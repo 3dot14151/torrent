@@ -23,8 +23,7 @@ Eternal Valley - Ascend To The Unknown (2015) [MP3|320 кб/с]<Atmospheric Blac
 ```bash
 magnet:?xt=urn:btih:2CD4F4461C57ECA70BA53A3B62ABFE98040826F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Pulsar - Alive (2015) [MP3|320 кб/с]<Progressive Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:5790F2739A39D058FDF148CD2364343924CAFAD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Dr. Living Dead! - Crush The Sublime Gods (2015) [FLAC|Lossless]<Crossover Thras
 ```bash
 magnet:?xt=urn:btih:8798E83B7E5F5350B1BFBB0B708055097BB31B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Three Days Grace - Human Race (2015) Single [MP3|320 кб/с]<Alternative metal,
 ```bash
 magnet:?xt=urn:btih:2BDE51D98590ED70F264F5DFC7657F0263A9BA2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Judas Priest - Defenders Of The Faith (2015) 30th Anniversary Legacy Japan 3 CD 
 ```bash
 magnet:?xt=urn:btih:21F3C5693856608380CF6A03AB1B3422D7DF9524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

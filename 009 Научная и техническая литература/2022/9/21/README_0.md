@@ -19,8 +19,7 @@ Gordon L. Rottman | World War II US Army Combat Equipments (2016) [EPUB, PDF] [E
 ```bash
 magnet:?xt=urn:btih:BB6E517DD0497E82D016001D5C4C645854264642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gordon L. Rottman | Vietnam War US & Allied Combat Equipments (2017) [EPUB, PDF]
 ```bash
 magnet:?xt=urn:btih:06DAE3EB71E18419F9A49D996145029F00D82E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Kursani - Kursani (2020) [MP3|320 Kbps] <Beatdown Hardcore>
 ```bash
 magnet:?xt=urn:btih:91C8652E5DDCB2C7CD09CBE3B8284118FD647636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Chasing Violets - 2 альбома (2012-2013) [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:5B3C344D9F9A5DBC10C873459B1B92E5E56651F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Virginia Wolf - 2 альбома (1986-1987) [FLAC|Lossless|image + .cue] <Melod
 ```bash
 magnet:?xt=urn:btih:E1853942A1790A956515E6E0568807FDD35AFBF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Silverstein - A Beautiful Place To Drown (2020) [FLAC|Lossless|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:3020EE589147BCAB48C5EC372F68FECE15654A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Virginia Wolf - 2 альбома (1986-1987) [MP3|320 Kbps] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:491574FD8EB70EB997D2EB2EBB8C78473FF32164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F37CB35B605042D16838618563AAB25ABAF7D943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Suicide Silence - Become the Hunter (2020) [FLAC|Lossless|tracks + .cue] <Deathc
 ```bash
 magnet:?xt=urn:btih:69FE316AA2FD39285BC7EC2E47D58C35D0C4E7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Chasing Violets - 2 альбома (2012-2013) [MP3|320 Kbps] <Melodic Rock, AOR
 ```bash
 magnet:?xt=urn:btih:629A946AE01B29622E3B96C86718F2C37973AF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

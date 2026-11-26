@@ -19,8 +19,7 @@ Hawaiian Explorer: Pearl Harbor (P) [En] 2007
 ```bash
 magnet:?xt=urn:btih:F802F7D15B9816A89626900A27FF7B1D2C021B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dream Day Wedding: Bella Italia / Мечты сбываются: Прекрас�
 ```bash
 magnet:?xt=urn:btih:958FD45E5261F5D7D7C8E2768EF423CC0B0ED0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cosmic Stacker / Секреты Зодиака (P) [Ru] 2006
 ```bash
 magnet:?xt=urn:btih:14894F08B06E7D1362EECEE385DDF3A162D10BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Red Faction Guerrilla повествует о событиях, произоше
 ```bash
 magnet:?xt=urn:btih:1C19CC337FAC92BD482DDE62E0C025208E75908C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

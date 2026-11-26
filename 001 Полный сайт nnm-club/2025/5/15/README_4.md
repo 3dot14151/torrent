@@ -18,8 +18,7 @@ Sakuranbo Syndrome - Cupid no Itazura II | Шалость купидона: Ви
 ```bash
 magnet:?xt=urn:btih:2F0471481E7C43D17A5AD93E73B75AAB7813F9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (build 16505703) Repack seleZ
 ```bash
 magnet:?xt=urn:btih:72572706997214463CC8DB362E1656C5B72BB2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FF2CF46A630CC87357834033F714FA71B9104EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Ino-Head Gargoyle | Горгулья из парка Инокасира (2012) [
 ```bash
 magnet:?xt=urn:btih:E4BC5FC561435BCF7FBA40FC02F13B583193C99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ CD1-3 It's So Easy 3:15(   Читать дальше...   )Жанр: Hard RockП
 ```bash
 magnet:?xt=urn:btih:F5CC2888D145527A0C048467BDA64CE16E2321E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35672F40EDA3D8CD1384349A50D9DE871848B8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

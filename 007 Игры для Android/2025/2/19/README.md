@@ -20,8 +20,7 @@ SaGa Emerald Beyond v1.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:2FF6929CDB5A8CC83B76FE06A2CB1D519CC360B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Dungeons of Dreadrock 2 v1.0.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:890070CF3EE1C01D6B67CC1D7DD373A4B99D452D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Dragon Quest X Offline v1.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:59A5597A5A336A6BF04C83367621AC8CFE9ED338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

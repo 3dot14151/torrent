@@ -22,8 +22,7 @@ Vathos - Underwater (2020) [FLAC|Lossless|image + .cue] <Post-Black Metal>
 ```bash
 magnet:?xt=urn:btih:A1DD6C28AEA477784A46D747637BBE602B5C976B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Entombed A.D. - 4 Studio Albums (2014-2019) 4xCD [FLAC|Lossless|image + .cue] <D
 ```bash
 magnet:?xt=urn:btih:4C81D83C89E1DB877D3D8D3BF05F2592F403D9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Play Station (приложение Audio CD к журналу Play #06'07) 
 ```bash
 magnet:?xt=urn:btih:17993592AC6BD6430D95571E8AE73940C9A49AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Happy Acoustic (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Rock>
 ```bash
 magnet:?xt=urn:btih:7B3B2CBEB5A946A9F7C900471678E60E5C624B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dukes Of The Orient ‎ - Freakshow (2020) [FLAC|Lossless|image + .cue] <Progres
 ```bash
 magnet:?xt=urn:btih:B532DEE217E53B091F42F1D1606D671440C5F974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ KMFDM - In Dub (2020) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:7CD8906EA1825611B0C55CF101EAC544ADFB1BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Zero People - Конец равновесия (2020) [MP3|320 Kbps] <Alternative
 ```bash
 magnet:?xt=urn:btih:88A5B9C6CA197A0F6F712D536F5D913D1647FFAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Avatar - Hunter Gatherer (2020) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:34CFEBE6E018F7CAC0099D12F3D8A04A391A06DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Linkin Park - She Couldn't (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:AF5D5F285D1A8F14E86D9988279B4599BC23BFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

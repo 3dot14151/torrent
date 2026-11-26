@@ -19,8 +19,7 @@ Tearstone - интерактивная "я ищу" игра, действие к
 ```bash
 magnet:?xt=urn:btih:4F5C9B653DCAF80E2BA274D135EF5662B7F07A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KEYWORD это логическая игра. Ваша задача - найти
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fashion Forward (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:69A7723E2ABE74F68211168B1F3B1DB0CC378965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Secret Legacy. A Kate Brooks Adventure / Кейт Брукс. Таинствен
 ```bash
 magnet:?xt=urn:btih:D14DB3B5B44DBA7D35A415D5E4121AE307963072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Jade Rousseau - The Secret Revelations: The Fall of Sant' Antonio / Джейд �
 ```bash
 magnet:?xt=urn:btih:6C10DF0F7602A63C84C08BBC8E6AB3BF99F3B1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Avadon: The Black Fortress [En] (L) 2011
 ```bash
 magnet:?xt=urn:btih:8C46DA9938F74D7CA7FD8B690D5E49DFB7B08705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ LandGrabbers (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:31B2988BF54A5E38FA5B6F03712B7BA4867C79C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ iBomber Defense - новая игра в жанре тауэрдеф порти�
 ```bash
 magnet:?xt=urn:btih:2E72F65B7724B3CD4AFF3AA9412FFA83C8EC6465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40BF782149BEFEB09BAF5AD95E74275AE60A7E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Luxor HD - старый добрый Люксор в HD-качестве!
 ```bash
 magnet:?xt=urn:btih:82C5F2453B9F48F873C5EDA23E225BFF71CFBB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Frozen Synapse (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:4EBFAFB110B28CF42AAB74E6D226136ABB6EF78E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

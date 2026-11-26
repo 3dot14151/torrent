@@ -19,8 +19,7 @@ eReader Prestigio Premium 6.4.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1578ACAA77EF6419CDA5A3E5F14DFE6F84912CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

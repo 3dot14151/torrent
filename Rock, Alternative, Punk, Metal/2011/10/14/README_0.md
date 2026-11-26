@@ -28,8 +28,7 @@ Scavanger - Between the Devil and the Sea (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:A40B56C87FB620DA1C922D0791240CF329909612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Don Airey - All Out  (2011) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Crysalys - The Awakening Of Gaia (2011) [MP3|320 kbps]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:7DCC0B70B504FB1305135ADBE74F3E8B47B78666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Jane's Addiction - The Great Escape Artist (2011) [FLAC|Lossless]<Alternative Ro
 ```bash
 magnet:?xt=urn:btih:59F70198C33742C878A6712EACF3C40B51E60AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - 90's Greatest Hard Rock Songs (compilation) (2011) [MP3|320 kbps]<Hard-n-He
 ```bash
 magnet:?xt=urn:btih:6B5035A41DDD94160153F8FD6CC1A708ADB8C0CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ VA - 80's - Greatest Hard Rock Songs (compilation) (2011) [MP3|320 kbps]<Hard-n-
 ```bash
 magnet:?xt=urn:btih:973DCE81226BF12919C85856E73EFA1C50E3A33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ VA - 70's Greatest Hard Rock Songs (compilation) (2011) [MP3|320 kbps]<Hard-n-He
 ```bash
 magnet:?xt=urn:btih:E2CF1CBE1AE97E32600940D1C1C33EFC2DB5935A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

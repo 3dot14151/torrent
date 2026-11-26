@@ -19,8 +19,7 @@ My Cafe Manager Simulator (2026) [Ru/Multi] (1.0.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AD910BD3DBE1069B8AB7673506BD4C682498DB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World War Z: Aftermath - кроссплатформенный зомби-шут�
 ```bash
 magnet:?xt=urn:btih:C67DE987F33A774A807DEF8D7272D89DA10A06C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack FitGirl [Anniversary Edition]
 ```bash
 magnet:?xt=urn:btih:FF7C1F7C533E7836D75B08F257499FD98394DFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fear The Timeloop (2026) [Ru/Multi] (1.0.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D35725BEF98B8CA935CF95A786FFE618275BFBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Magenta Horizon от соло-разработчика Маддисона Бек
 ```bash
 magnet:?xt=urn:btih:96A1F9C7E11C3D9CC8CA7DEBBF96CAA0A6F9434B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ VonGarland Castle: Beyond Blood (2025) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DDA1734000EED3A1DD8A0E663AA7EC7786DCEE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Docked (2026) [Ru/Multi] (Build 22147336/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8B788A8389DC9B11AFAA2D6E6E7452293177FCC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Docked (2026) [Ru/Multi] (Build 22147336) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:55EA67550C8C815860D669AC1FD5F8D8E055EFD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Docked (2026) [Ru/Multi] (Build 22147336/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7979AF94E67C09C67313A9BA69938B7259F63661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Mashinky - это совершенно новый транспортный си�
 ```bash
 magnet:?xt=urn:btih:5A1C5CDDE000419EC2F47B6199B83EB0B4590EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Kingdoms And Slaves (2025) [Multi] (1.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F893B9B98139F69031181799CF4C452E5BDBFAB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Railroad Corporation 2 (2024) [Multi] (1.0.19116/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:91B56D18CC041E1EAC1B88F3DC83EB36C585D4AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ FINAL FANTASY VII (7) (2026) [Ru/Multi] (Build 21140793) Repack FitGirl [Re-Rele
 ```bash
 magnet:?xt=urn:btih:2CCBC7481635A18818BEE67AA755C61875D5BE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Car Service Together - симулятор автомастерской, глав
 ```bash
 magnet:?xt=urn:btih:DDBB16B8F5DBB69C5CA428AA5861A963E8695FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Machine Tower 2984 (2026) [Ru/Multi] (1.0.0) Repack FitGirl [Supporter Pack]
 ```bash
 magnet:?xt=urn:btih:4698331236C30CB6E09AD03BEC93D567D52FF8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.12.1485/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:13AF6C4FE209B7B36BEA0380901B0E52F15866FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Roots Devour - мрачное стратегическое приключени�
 ```bash
 magnet:?xt=urn:btih:0454BABB3A7441F1312B76A6B340783AAD950607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ PayDay 2 - продолжение игры PayDay: The Heist, рассказыв
 ```bash
 magnet:?xt=urn:btih:0695B945A51D0556FA16C62F415BE4E6B82A885C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Purrrifiers: Cleaning Chaos – Cats & Goofylike Co-op – безумно вес
 ```bash
 magnet:?xt=urn:btih:03C4A566DEA12C3D7689BC8AD1B658A4FAAF1284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ FRONT MISSION 3: Remake - это тактическая ролевая игра,
 ```bash
 magnet:?xt=urn:btih:2FD0BC26BB98F1B08D5951A0E74BA571025BF557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Cleaning Simulator (2026) [Ru/Multi] (1.0.7) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:02374492F068C80F2950C264B9E8809D59628BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ Machine Tower 2984 (2026) [Ru/Multi] (1.0.2) Repack Let'sРlay [Supporter Pack]
 ```bash
 magnet:?xt=urn:btih:22A33956CF4A03336435CDF5426F5B3E9E769574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

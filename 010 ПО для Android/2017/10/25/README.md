@@ -19,8 +19,7 @@ Apex Launcher Pro 3.3.3 [RU]
 ```bash
 magnet:?xt=urn:btih:B561D72C0DCFFD977CF8043D8402F07E66C9575C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

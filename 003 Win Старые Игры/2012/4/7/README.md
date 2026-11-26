@@ -19,8 +19,7 @@ Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 |
 ```bash
 magnet:?xt=urn:btih:85E46C6FDBD124AB4E98C1046BEFDBF15BDD55F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Morpheus [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:9F6CDCBA1F130F2931263C867D5C6DDFEA6043CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

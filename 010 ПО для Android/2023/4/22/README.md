@@ -19,8 +19,7 @@ Lexilize FlashCards v4.8.5 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CBD99B0CBEB104712F69A15B79670DDFB0C15694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

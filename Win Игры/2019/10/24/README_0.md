@@ -19,8 +19,7 @@ The Park — это психологический ужастик от перв�
 ```bash
 magnet:?xt=urn:btih:BE2FB5A6CF8EE935FD8D79B084B6F08FD924CA63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Abandon Ship (2019) [Ru/Milti] (1.0.13298) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D9F2D38D42A4DD047A4C3D018152CCD6FE1EEBB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

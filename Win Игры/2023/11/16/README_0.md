@@ -19,8 +19,7 @@ Halloween Stories 7: Written in Blood / Хеллоуинские истории 
 ```bash
 magnet:?xt=urn:btih:A5B7DC55BE03F88E8F85281AAD2D23405DD66405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sailing Era может заинтересовать любителей виде�
 ```bash
 magnet:?xt=urn:btih:54239D86989FAE39AD46F2824661F42CD5B0B21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ UFO ROBOT GRENDIZER - The Feast of the Wolves предлагает взять н
 ```bash
 magnet:?xt=urn:btih:EE276794FCBB5267541C36B107A8BC79539D8203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Coral Island – классический симулятор фермы, пер�
 ```bash
 magnet:?xt=urn:btih:CC971473F7CC4E1593DBE144C8F31C46CE3AAECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ American Arcadia - увлекательная кинематографическ
 ```bash
 magnet:?xt=urn:btih:481BAD31B1CE1E541544CADE36E76E5BFBEE1A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

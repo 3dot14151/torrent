@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6AD1E13A3ED43367F392B48EBA40393045C3B9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ V-Ray — мощный инструмент визуализации, нацел
 ```bash
 magnet:?xt=urn:btih:7C9641A3BFD3747B4763361BD3578F8F0E5E3DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 06.2020 2DVD
 ```bash
 magnet:?xt=urn:btih:778E703A92EBF378CD396BA2044252C30ED79189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Multi Calculator Premium 1.7.3 (build 302) [Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/Multi] (1.073/dlc) License GOG (обн
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Aqua Mail Pro 1.25.0-1610 [Ru]
 ```bash
 magnet:?xt=urn:btih:02062997E9B40C30098217DE8C9DD987E3CDDCD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Anshul Saxena | Financial Modeling Using Quantum Computing (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:B691DC4C7CD60246637D66C9D68AC160C9C85AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Otavio Santana, Karina Varela | Persistence Best Practices for Java Applications
 ```bash
 magnet:?xt=urn:btih:E4140E3B9A27C0F11D9EE2EA92243F1AB7E85B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ChatGPT для чайников представляет собой первое
 ```bash
 magnet:?xt=urn:btih:0630B4C1B45CE2C93D62C5D1A319E219CD55AC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

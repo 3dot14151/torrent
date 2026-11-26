@@ -27,8 +27,7 @@ Abracadabra - This Is My Swamp (2015) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:7F1AE1867F68F3276E1323880E58783046687A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Pretty Maids - Scream (1995) [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:CD8E0A3555380FCA2D74E2411FD569849115FF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Callejon - Wir Sind Angst (2015) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:E312316B23E19F860C60AF320669B1D7E965CA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Beardfish - +4626-Comfortzone (2015) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:6771534BEA3ECF571E0B1F78D3E19799F40ECA34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Palisades - Mind Games (2015) [MP3|320 кб/с]<Post-Hardcore/Electronic>
 ```bash
 magnet:?xt=urn:btih:707925E7A1D213428D098349F5D01EDA3078512B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Rusted - Внутри Миллионов (2014) EP [MP3|320 кб/с]<Rock, Alter
 ```bash
 magnet:?xt=urn:btih:47A4379C0D3B457C465564AFF40D193477BBD507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

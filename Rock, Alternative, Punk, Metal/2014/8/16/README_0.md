@@ -28,8 +28,7 @@ Ador Dorath - Symbols (2005) [APE|Lossless]<Melodic Gothic / Black Metal>
 ```bash
 magnet:?xt=urn:btih:67CFAD7090A2DF42DCEF12292F9459D96ACF25BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ A Mors Et Bello - Sounds of Horror (2006) [APE|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:DE19747066B41D0BB8B50AA9CD4E7FEC6A5D547C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ DrаgоnForсе - Maximum Overload (2014) Limited Edition [FLAC|Lossless]<Power/
 ```bash
 magnet:?xt=urn:btih:F29A111F0F84D34700DADDF3189247CA9215AD3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Stars In Stereo - Leave Your Mark (2014) [FLAC|Lossless]<Alternative Rock | Fema
 ```bash
 magnet:?xt=urn:btih:E910F8DB75057C0068CDBC8F862C9FBAF2B800B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Accept - Blind Rage (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3EA3AB31D2AFD4378E1A815399BDECC18EECE433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

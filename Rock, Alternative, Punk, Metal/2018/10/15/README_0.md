@@ -22,8 +22,7 @@ Stratovarius - Intermission (2001) 2CD, Compilation [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:0ACB1339423404A7952FCA0BE4141FCB6D400C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Evanescence - Synthesis Live (2018) Japanese Edition [FLAC|lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:E2AE4F522DE214F0B9FC846DB83684DEB32758E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

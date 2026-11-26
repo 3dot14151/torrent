@@ -18,8 +18,7 @@ Adobe Premiere Pro – профессиональная программа дл�
 ```bash
 magnet:?xt=urn:btih:8F8002217849D3A90178F905D4C59039E7B1D043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F4BA59E2BD9D208326837BD574DE69EB1D2FF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Windows 8.1 6.3 (Build 9600.19913) (24in2) x86/x64 by Sergei Strelec [Ru]
 ```bash
 magnet:?xt=urn:btih:22A90078278AE3E3A1FF1CBF5FE8632C381E2065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ghostrunner — эта жестокая игра-слэшер от первог�
 ```bash
 magnet:?xt=urn:btih:9CA0642FB95AC163CD12B3E3EF7CDE028C58FBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Anno 1800 – возглавьте промышленную революцию! 
 ```bash
 magnet:?xt=urn:btih:9122ACF73386D06BC44F2D6E495514A7E3697D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bloodstained: Ritual of the Night - это смесь готического х�
 ```bash
 magnet:?xt=urn:btih:28BBD2334715A86FF42C390F54BBA928DD644DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FB9AEAB997DBD094BDCE8EEC0FDE1E0B3C61D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CDAF3F729BF5D88839CD9391B23B24D9EA2E1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Windows 7 SP1 6.1 (Build 7601.24564) (13in2) x86/x64 by Sergei Strelec [Ru]
 ```bash
 magnet:?xt=urn:btih:C1F4F53933EC248FB7A6237D0F0A88621BE9EDFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Windows 10 20H2 (Build 19042.746) (40in2) x86/x64 by Sergei Strelec [Ru]
 ```bash
 magnet:?xt=urn:btih:D2E3B31F6CE7F60BB42F7A6F87426A1946CBBCC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Adobe Photoshop 2021 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:99337BA7C3B14250BC10F9ADBAD8C4E9E725EB6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6907F9A5F98008B9D8C69EE4F564D6FF51C87788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

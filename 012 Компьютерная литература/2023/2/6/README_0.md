@@ -22,8 +22,7 @@ and even land cloud jobs from totally non-tech fields like plumbing, professiona
 ```bash
 magnet:?xt=urn:btih:C385A18DDA5AFD7BC209596F1292CC6F6FEB59ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Maximilian Schwarzmuller is a bestselling instructor who has helped (   Чит�
 ```bash
 magnet:?xt=urn:btih:523F05EAEDFDAFCD01716F6D8D6FA1A8C863C7CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD8930688DE14B4B4E9197971024E286DB8BD825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

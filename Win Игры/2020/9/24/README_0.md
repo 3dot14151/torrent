@@ -19,8 +19,7 @@ Planet Zoo (2019) [Ru/Multi] (1.2.5.63260) License EMPRESS
 ```bash
 magnet:?xt=urn:btih:C56EB29CD5E69CAF3AC74B5D93B7E63A28EA069C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

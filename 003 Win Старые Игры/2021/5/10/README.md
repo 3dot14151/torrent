@@ -19,8 +19,7 @@ The Ultimate Doom (1995) [En] (1.9) License GOG
 ```bash
 magnet:?xt=urn:btih:E1DA55651BDF588E38E8F39C82A99CD5B45EC7AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sanitarium / Шизариум (1998) [Ru/En] (1.0hf) License GOG
 ```bash
 magnet:?xt=urn:btih:FF60CEA23A26DD220B086AF70602F5AE23CA8D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

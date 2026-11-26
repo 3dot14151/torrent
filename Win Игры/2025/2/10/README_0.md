@@ -19,8 +19,7 @@ Tails of Iron – это приключенческая ролевая игра 
 ```bash
 magnet:?xt=urn:btih:AC6F2875631613A6D98A0732518800D71E506A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Drova - Forsaken Kin - это пиксельное экшен-RPG, вдохно�
 ```bash
 magnet:?xt=urn:btih:19D6A1F434522E96B3D978324A95C6EB9C35DA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bore Blasters вводит высокооктановый экшн в класс
 ```bash
 magnet:?xt=urn:btih:334045C2E456EBB121C37D5E937EC36B69D2F00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sumerian Six - это не типичная военная история. Ко�
 ```bash
 magnet:?xt=urn:btih:C0BD73053ED36CAF94FF6259E5300763A863F8C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fallen Enchantress (2012-2013) [En] (1.32/3.01) License GOG [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:1543AD9C094AAA0B91E37B2D738FC13E318B677D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Garden In! (2023) [Multi] (1.4.5.4) License GOG
 ```bash
 magnet:?xt=urn:btih:8E2A6108AE8811B96FFB5DC60A5EF7FCAFE4E079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.512) License GOG
 ```bash
 magnet:?xt=urn:btih:43AEAD527DBDD43DBDAF81A2214A0B7FD426CD2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (1.0.27/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7D9652E44B5FCA5CB1F321169295BA5AD438D1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Thronefall (2024) [Ru/Multi] (2.12) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C8193F30C750CA02B837FFFDE351BC66C2D0988E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Stars in the Trash - увлекательный платформер, вдохн
 ```bash
 magnet:?xt=urn:btih:97E692274DC70D379712426F3BF19D405AB98DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Dark Pictures Anthology - это серия напряжённых кине�
 ```bash
 magnet:?xt=urn:btih:BCA1A66F082AB588CCA1DC8B257D7B03B7E15346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B1D83C462E7A1DCD422A23E313C918BF142CDB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Jet Kave Adventure - это совершенно исторически нето
 ```bash
 magnet:?xt=urn:btih:772DC9BB41845B3D9463A68689F7359001DC41F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Tails of Iron – это приключенческая ролевая игра 
 ```bash
 magnet:?xt=urn:btih:A5620DCA3908A6995FB293D31F41BC7B42F8F305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Jet Kave Adventure - хардкорный платформер, заточенн
 ```bash
 magnet:?xt=urn:btih:1DE41007F20C388593C2D064E65A616703F9993B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

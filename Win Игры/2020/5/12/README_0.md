@@ -19,8 +19,7 @@ Persian Nights 2: The Moonlight Veil (2020) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:41E0BEB51774F28F168F8C8EC3338FF55807BE2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack xatab (обновл
 ```bash
 magnet:?xt=urn:btih:184AEF1679B4E9D1FE168DFAF453841BA6CFF640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wolfenstein: The Old Blood – предыстория игры Wolfenstein: The 
 ```bash
 magnet:?xt=urn:btih:8E7B67EB9B878DE558E0181C34B14788D36CA80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

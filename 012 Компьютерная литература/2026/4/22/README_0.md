@@ -20,8 +20,7 @@ This book shows you how to bring order and clarity to observability with OpenTel
 ```bash
 magnet:?xt=urn:btih:2859381745CF9F7A16398CF114FD4B0A4A81E6D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Applied Math with Python: Solve Real-World Problems with Python-Based Solutions 
 ```bash
 magnet:?xt=urn:btih:94F2FFD491F8C2163BE13615FC28D6F57E86334A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB96B3C31AAB4A2F232C6F0D3AAB35C21430794F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ The book starts by guiding readers on selecting the right model architecture for
 ```bash
 magnet:?xt=urn:btih:55A38BEC56C04E28847BEFFB60F16FD83572F9B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A40C97EF30240037B82271D9FAD87EDC0E462DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ In today's competitive IT industry, technical skills alone are no longer enough 
 ```bash
 magnet:?xt=urn:btih:8D8FAC6F13F72D11F05502F9A1C48911F624606A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Engineers across all disciplines can benefit from learning Python. This powerful
 ```bash
 magnet:?xt=urn:btih:193FB55ABAFA1B6F8E35FCA9B92BD7B4A8A95592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

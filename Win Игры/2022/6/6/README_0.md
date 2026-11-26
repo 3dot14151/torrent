@@ -19,8 +19,7 @@ Corpse Party: Blood Drive (2019) [Multi] (0.95) License GOG
 ```bash
 magnet:?xt=urn:btih:54A3A235398E460601947E3A8D5B624F271D3C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Deadly Puzzles: Toymaker / Загадки убийцы. Кукольник (2014
 ```bash
 magnet:?xt=urn:btih:21CD3E193C2EC211323E9A8EDE970FE0E43D5AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

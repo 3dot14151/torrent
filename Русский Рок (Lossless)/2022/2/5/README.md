@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:82F659616825F901745288210FDB6423C119FE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Чиж & Co - На поле танки грохотали (2020) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:F284C1339D2FC113C5B2490B4D93D18C66EB8055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27EB121420A2055D8D75C1C176931693A1DD8E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

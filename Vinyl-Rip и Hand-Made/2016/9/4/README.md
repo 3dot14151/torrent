@@ -22,8 +22,7 @@ Alan Parsons - A Valid Path (2006) [FLAC 2.0|48/24|image+.cue|Audio-DVD] <Progre
 ```bash
 magnet:?xt=urn:btih:7D2B2B0337101128C04100750DB08F197FD5D7AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

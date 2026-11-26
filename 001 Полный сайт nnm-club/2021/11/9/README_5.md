@@ -22,8 +22,7 @@ VA - Airport Lounge, vol. 3 (2014) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:1D8F1038BE699FCB9457284FD167B889AE1DA7D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Airport Lounge, vol. 6 (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:0A5E425F3B4BA9EDE41E21C0E6BC3207FCCB8A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Airport Lounge, vol. 9 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:55B7DD79CB839CF55DB81332F7AC09392B3126DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Airport Lounge, vol. 6 (2015) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:81C42D879C250597A131323621E09C08F84F0330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Airport Lounge, vol. 10 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:EFCB5661E6EF3D335946B8A79B3F9FC9AFFDA584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Airport Lounge, vol. 5 (2014) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:C7564482CAD932CDCA23324BC7F7FD021262F550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Airport Lounge, vol. 4 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:83A083349EBC3497E97D15798C24905B062721A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Airport Lounge, vol. 11 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:5ED30A144D8DFF4F234B93CF41CDF99B8FD95BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Airport Lounge, vol. 2 (2014) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:870D6B9987DF7DBC1E2047AB783A3E4E20D371DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Airport Lounge, vol. 8 (2016) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:4E0FB0509D9180F916F965BD49BCEEB9140661B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 ```bash
 magnet:?xt=urn:btih:27AFDF92A52BB3C84A3890FAC6C2D2B6E1FCDD19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Caato Time Tracker использует трехуровневую иерарх�
 ```bash
 magnet:?xt=urn:btih:0CD3685A223F3C7EAA5EB61F7F0B14098C8E9D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Wraith - Riot (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, M
 ```bash
 magnet:?xt=urn:btih:C770E8B177E0A79FE002319F003E5DCFC5A981FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Tap Forms Organizer простое в использовании, абсолют
 ```bash
 magnet:?xt=urn:btih:7805C80F29BCFA19D09667B3F86F3967E9AD4FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ VA - Airport Lounge, vol. 7 (2016) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:A7D2A814D3560553A87CDD7EB7F622C319164CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ VA - Airport Lounge, vol. 5 (2019) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:D56028CC3010F8C253964B5AD8044AAB7F49DAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ MovieSherlock позволяет загружать любое видео с You
 ```bash
 magnet:?xt=urn:btih:B216AFA32F2DAB7D4CA898B4626D325C5D7B9273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:15F81BB17C74C0C78B9EB51BA3BB0913A28FFEF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ A Better Finder Attributes позволить изменить дату созд
 ```bash
 magnet:?xt=urn:btih:AD50F3A5CE62C9E8B8F0D2E81DDC7CA93019CFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:91CA9243DEF5536F092EC37894C83071EF04DEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ VA - 50 Melodic Tunes of Winter 2021 (2021) [AAC|~309 Kbps] <House, Techno>
 ```bash
 magnet:?xt=urn:btih:DEF23527B5AC18D14E913EE8099E176F9BA90401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ Nova поддерживает отдельные задачи сборки, за
 ```bash
 magnet:?xt=urn:btih:6ECFDD49965993BBF319FA4E7D68D9F2AE66692E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Invertigo - Veritas (2012) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive R
 ```bash
 magnet:?xt=urn:btih:2B1A9F1D7E34DE6F9AB7D8C853B1898F5E5A0A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ VA - Airport Lounge, vol. 1 (2010) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:250C2C96276A9B94CC4A4EC847EA6DE47A372450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:7A584BF9998BA8D0599791B4424C9B127111E705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ ToothFairy поможет вам перейти от одного выбранн
 ```bash
 magnet:?xt=urn:btih:03C5FB8ACECC10A1C1A3015F6D69194B303E1805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

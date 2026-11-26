@@ -19,8 +19,7 @@ Sparklite — это динамичная приключенческая игр�
 ```bash
 magnet:?xt=urn:btih:86EA7035BF4AE16E0524CF5802014CA69CADBFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

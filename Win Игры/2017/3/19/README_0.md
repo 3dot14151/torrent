@@ -19,8 +19,7 @@ Car Mechanic Simulator 2015 — долгожданное продолжение 
 ```bash
 magnet:?xt=urn:btih:B27657B52BFFCF2856E8C97746C8E95DED609279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HITMAN (2016) [Ru/Multi] (1.9.0/dlc) SteamRip R.G. Origins [The Complete First S
 ```bash
 magnet:?xt=urn:btih:BB2A891D7ECE9312BAC9A4B08606D115087C4A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

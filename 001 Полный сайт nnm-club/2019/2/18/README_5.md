@@ -22,8 +22,7 @@ Chet Baker - The Trumpet Artistry Of Chet Baker (1955) 2018, Universal [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:7C23ECEA8C86FD033C9BAD2CA24AACBB13CE5846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ambrose Akinmusire - Origami Harvest (2018) [FLAC|Lossless|tracks + .cue] <Conte
 ```bash
 magnet:?xt=urn:btih:6A5D1BC8C209D44A1981CE8B4CE2FE7F2D8A54A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Wesqk Coast - S.T.A.S.H. (2019) OOH-sounds [FLAC|Lossless|WEB-DL|tracks] <Experi
 ```bash
 magnet:?xt=urn:btih:8E7BD3C04B82B7CA06F8004F662BB52C34908814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Illl vs. irma - 10-15mA (2012) Soun Records [FLAC|Lossless|WEB-DL|tracks] <IDM, 
 ```bash
 magnet:?xt=urn:btih:F3A76592B4ABEA74D16B02280F7E3CAAFEF87505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ AudioFinder — программа для управления вашей фон
 ```bash
 magnet:?xt=urn:btih:26D6ADB48820EC53F78F4AA638B0F72F191A4808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Tethered Moon - Plays Jimi Hendrix+ (1998) Media Rings [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:F8091F11FE442376EAE546F626718B7EDA9271ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ VA - German Top 50 Party Schlager Charts 18.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:170A00C8B57F67473920BD2CB5C7B4842B078FED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ log(m) & Laraaji - The Onrush Of Eternity (2019) Invisible, Inc. [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:480CD3E5213A28B7BBC3FD52670D1AD98B4D2AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Bookends позволяет сканировать существующие фа
 ```bash
 magnet:?xt=urn:btih:940C58B8B6CC02DB4D14BE3D5E45FAFD2A4A3FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ autoisolation - Into the mist (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient
 ```bash
 magnet:?xt=urn:btih:6406A6408FFCCC421ED22A22AAB431147CB04769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ iSoftPhone - приложение представляет весьма симп
 ```bash
 magnet:?xt=urn:btih:7AA3D60E8CA908FCD1F6F9D663CFEE94D31A37C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ Key4050 (Bryan Kearney & John O'callaghan) - Tales From The Temple (2019) [MP3|3
 ```bash
 magnet:?xt=urn:btih:A7B63E9E73F9C545FAFB3E0CF7F0380A2113EA6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Troy Gunner - Communicate (2013) Voyager [FLAC|Lossless|WEB-DL|tracks] <Future G
 ```bash
 magnet:?xt=urn:btih:925AACAAA6C2DAADE1CE4077C6DEA5756163C168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95C228EE6ABE2CF1C5C0FF107E41E9F0DD7FA2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ VA - Wild, Cool & Swingin': Ultra Lounge Vol. 5 (1996) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:A41282717E7FD8BFF7D8153D25B8965DF982B817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Postico - рациональный (   Читать дальше...   )Тип �
 ```bash
 magnet:?xt=urn:btih:B7C4B94CBD90DF0848357F28CB27F0EA4E223F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Macsome iTunes Music Converter позволяет преобразовывать
 ```bash
 magnet:?xt=urn:btih:B807422C3A5B51300AEEE0D4B9F52F42C84FB8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ VA - German Top 100 Single Charts 25.02.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:710ED193364A3FE452B69231B9607AB8B1BFC3C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C534DB1A9099BAB01B6D6014302E55FDD315C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9D31558BA6C67ACDC9DC79E12CDC6164CB26FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E745021698E1B63AF93CFBA2951485FCF2287E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:497F7713DC720411844BD3C626144F5E4E93AB07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:939124C50376E988587B0F9707A2A42060B0AE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DF13B5C5BCB6EEDC139FF3903ACE31E311F7F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Midnight Calling 4: The Wise Dragon (2017) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:BE93506A5DF54BEA708CBA64D82EB0F92EBCD2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D3231FA8C21F80F13716DE6842ABE302387FD65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

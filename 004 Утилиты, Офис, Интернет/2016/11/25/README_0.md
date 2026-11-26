@@ -19,8 +19,7 @@ VideoCacheView 2.97 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D69B9082176AD08444D3716A95C8CB8189EF5C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Corsten's Countdown Top 3
 ```bash
 magnet:?xt=urn:btih:A229EACD20A7F54D8F916536A9D4505C67E1E2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ DJ Nike Twist - TranceWave 071 @ GTI Radio (19.09.2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:24EC232CA1AF988EB92D563478289709DC4D80BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Iconoclasta - Resurreccion (2009) [FLAC|Lossless]<Jazz Rock, Fusion, Progressive
 ```bash
 magnet:?xt=urn:btih:B2E34DC9890DF5C69CFF14D597B07AB98A8AD1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ GEER - Ufopolis Compiled @ mixed by GEER (2011) [MP3|320 кб/с]<Night Psytranc
 ```bash
 magnet:?xt=urn:btih:A46B7C6DB8EBCF20678C81F1C59FE7EF1DE42B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Black Hole Trance Volume 2 (2013) [MP3|~245 кб/с (V0)]<Trance>
 ```bash
 magnet:?xt=urn:btih:195F4D7973DAAF1F14ED39CC50D5017249F59C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Mike Shiver - Captured Radio Episode 340 with Guest Rafael Frost (2013) [MP3|320
 ```bash
 magnet:?xt=urn:btih:C3C6CC0947594299516AEF67B37D59B0FFC0B7EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ One Way - 24 Дня Тишины (2013) [FLAC|Lossless|WEB-DL]<Alternative/Elect
 ```bash
 magnet:?xt=urn:btih:E640FAB3874D26C0EE073676D5DE67687D844AF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ Jack Cortner New York Big Band - Fast Track (2006) [FLAC|Lossless]<Big Band>
 ```bash
 magnet:?xt=urn:btih:39251E4911F1C5B4BD0CECBC5D92E5C6C8DEF6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ Juan Pablo Rivera - Time After Time (2012) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:0D615010C338A65222D80452DF755E34D8B79088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1A225F7C473F93613C7C707D1B37AD93BA33DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DCC1712BCA35132630B0F73CE8F682774F84B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CD70AB43163103163A48FCBDC58CDEAF4F838E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ Lucid Dreaming - The Chronicles Pt. I (2013) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9C92645F32D17B7A9A7BB9F9C5E0B09C1EC99B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70A654C89B4B99F01E3C689A62AE5305964DF26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +490,7 @@ Paul Sauvanet - Eleusis (1994) [FLAC|Lossless]<Ambient>
 ```bash
 magnet:?xt=urn:btih:C56D88F954C827F83F2FF5A3FD50E7601AFD1F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +524,7 @@ Jack Parnell - Trip To Mars & Parnell On Parade (2009) [FLAC|Lossless]<Big Band>
 ```bash
 magnet:?xt=urn:btih:9A140F0DCCFF169DF9B99A11B8A2BE98B5B3C0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A42335D08A98AA923E09442699817B72AA54747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +584,7 @@ GEER - Influencia Compiled @ mixed by GEER (2012) [MP3|320 кб/с]<GOA Trance>
 ```bash
 magnet:?xt=urn:btih:B1FC372AF898E3798E36379156375357F8B28B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:317675A1537D32D29411898ED68D4C5D26954BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +646,7 @@ VA - Big Room Beats Vol.5 (2013) [MP3|320 кб/с]<House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:B0830B77E602ADE97D05725DCD224A730881B98D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:195987EB7F483B3580DB99DA8B10B43210542780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +704,7 @@ Shining - One One One (2013) [FLAC|Lossless]<Avantgarde Metal>
 ```bash
 magnet:?xt=urn:btih:534D005DDC35253FEE57DD305A05616A772A0733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +738,7 @@ Joe McBride - Keys To Your Heart (1996) [APE|Lossless]<Smooth-Jazz>
 ```bash
 magnet:?xt=urn:btih:0AF6BC235A6FB944A63E99627DC52DF9DE5E111F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +763,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B35F3F2D8F00EEAA76C76F121F60E4C3754B2D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -816,8 +791,7 @@ Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
 ```bash
 magnet:?xt=urn:btih:2700AED505F926128A1466972005A2A2A603CA29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

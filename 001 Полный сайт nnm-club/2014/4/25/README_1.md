@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8FF53E8AB407E7C87425C669AB69AC12E8AFFECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MediaInfo позволяет получать техническую инфор�
 ```bash
 magnet:?xt=urn:btih:92DF9B24FE24635E6939C0187A876F047836AC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Comedy Баттл. Суперсезон. Выпуск №4  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:AAF697CDDAC15D19747F15BB5BE8E79E7C6BE87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ THYX - Below The City (2013) [FLAC|Lossless]<Synth-Pop, Electro, Coldwave>
 ```bash
 magnet:?xt=urn:btih:09285906875DAA054191312CAD67BDC7C24774E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ TARTAROS JAPAN- TJ - 3 альбома (2007 - 2010) [MP3|~192 кб/с]<Experimen
 ```bash
 magnet:?xt=urn:btih:01AF66554E1D2F00FA5274EF2EED20CBC1BB306F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Gloomy Empire - 4 релиза (2005-2011) [MP3|128-320 кб/с]<Dark Ambient / 
 ```bash
 magnet:?xt=urn:btih:BB99AEC668E1399A427A8B4927994C918D805F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B903AD90CD7F1D90FD12B43A8191AC8185C738C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ Maya Jane Coles - Comfort (Deluxe Version) - 2014  [FLAC|Lossless]<Tech House, D
 ```bash
 magnet:?xt=urn:btih:F49E8EC8FB61D68743912BC287E33E28C9178C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ Aleksey Chistilin - Stop Motion (2010) [OGG|~500 kbps]<classical, crossover, jaz
 ```bash
 magnet:?xt=urn:btih:CA07742D12B225CD6CFB29B258AB90571E16FB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A9092D1BE1FAC67B2C10D051124998A2079F565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ Insomnium - Shadows Of The Dying Sun (2014) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C5979E4C81A0B5002AF4697F40A3E55899420DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +390,7 @@ VA - Schneeweiss III (Presented By Oliver Koletzki) - 2014 [FLAC|Lossless]<Tech 
 ```bash
 magnet:?xt=urn:btih:95B8BB4480B77BF5FD5AD6062248BC5CB0A4D599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F09D15201976AFD773E9A186F251DEE9D062BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ Gert Emmens - An Artist's Stroke (2012) [MP3|320 кб/с]<Electronic, Berlin Sch
 ```bash
 magnet:?xt=urn:btih:8FB0FBDAAB8AE8226259E2EFB62CA7DB5B43D7C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:3C4B3E373466EE26349B24C634FAFD9A2C82855E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E25183FBB0FD088A664C7E7B4D7D910CE0BC764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 ```bash
 magnet:?xt=urn:btih:799DA3A981C79E673678D93A1F12408B067CAF36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90AC67EA0637E963E09D1AA50BC6B7A64A12587E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ Lemolo - The Kaleidoscope (2012) [FLAC|Lossless]<Indie, Alternative, Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:11C212C4F8F46B34383CB001B118904FE9197AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ ScanMyReg - это самая удобная и простая в использ
 ```bash
 magnet:?xt=urn:btih:67833A05846FC427C49CBABC57702465E097AD8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85122DC7701E6A227D5C6212E7198EFC76E86522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +657,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:B7C51EACE2E6E378EAC0776CE3E1DAFCAE294653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BB068F250FEC711366A636366B976AF9A8E2942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ Ugly Kid Joe - Stairway To Hell (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7CA60818B19F18B6C70940900BAAB736AAD2DBD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +740,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:B3F67A73F35ABB39E57E36D72070DA157AEFBF06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

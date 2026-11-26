@@ -22,8 +22,7 @@ Soulwound - The Suffering (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:CA72B47FCD563FE449730A0CFE9BC8F841C6EE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fixation - Global Suicide (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:FF65EC16D92921B7829F258033CBA5A8E97EA7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Weesp - 4CD: (The Void/Black Sails/Crystal Clean Waters/Боль) (2015-2020) [M
 ```bash
 magnet:?xt=urn:btih:56310340CB3F7527B655ECE2D7E940369A0844B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stryper - Even The Devil Believes (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <H
 ```bash
 magnet:?xt=urn:btih:3CFBD6266C458558215EA4466E354422DFA3EC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Arctic Rain - The One (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DC5AC71A7027EDFE4AFEFE0C932E6670D23614A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Black Rose Maze - Black Rose Maze (2020) [FLAC|Lossless|image + .cue] <Melodic H
 ```bash
 magnet:?xt=urn:btih:049250DA0C4F8C7B1063459253A08F948B0DC845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Calarook - Surrender Or Die (2020) [FLAC|Lossless|image + .cue] <Folk Metal, Vik
 ```bash
 magnet:?xt=urn:btih:77240C5D8612CF04BFD786321639FB6B7AC58F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Seth Bogart - Men on the Verge of Nothing (2020) [MP3|~245 Kbps (V0)] <Indie Roc
 ```bash
 magnet:?xt=urn:btih:B9DA4961E7345D359CBCDE0018116759484EDA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

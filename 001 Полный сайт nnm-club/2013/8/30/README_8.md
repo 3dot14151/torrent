@@ -18,8 +18,7 @@ Teenage Mutant Ninja Turtles: Out of the Shadows переносит вас в т
 ```bash
 magnet:?xt=urn:btih:DDA952965BCC0210A89D135EDBC31DBCC6EA52F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6190258890C783F1AAC02EBA44C73E6D1A983BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59B5222449717573B357D423A796A2353ED3CD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Tom Clancy's Splinter Cell: Blacklist [XBOX360] [PAL] [RUSSOUND] [+KINECT] [LT+2
 ```bash
 magnet:?xt=urn:btih:E097813F20D946C43B3A6B4EB3D7677B4009B798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F72504FF4ABFA0AC0D3C6C454B2E739172A69947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Kingdom Hearts HD 1.5 Remix - сборник HD-переизданий игр с
 ```bash
 magnet:?xt=urn:btih:4FA5264A78F73A488505C8A0DDE1A9B1612956F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Windows 7 Codec Pack - новая версия одного из самых по
 ```bash
 magnet:?xt=urn:btih:228184A368D532DF7F1A6E0BA9998B941B4E8A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ KMSAuto Pro - автоматический KMS-активатор для опе�
 ```bash
 magnet:?xt=urn:btih:BFA154A3B18ECE635265C6FFBE4B0C4C74B8490D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3937C177032DFFC31D705AEA6A6C84E7FAA01290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ StarDrive – космическая 4X стратегия, в которой в
 ```bash
 magnet:?xt=urn:btih:62FE4A92B6509D2AE0A32F372B59FB6E01B911D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBD23B06B3A1B0AD767E33244B8A95F83A92A53A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Rayman: Legends (2013) [Ru/En] (1.1.100477) RePack SEYTER
 ```bash
 magnet:?xt=urn:btih:D11D49A8A7CC55104ACC6497ADA6D26DA9A483C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF6347E8774E24C8B0762909090B40346439AE85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Tom Clancy's Splinter Cell: Blacklist [XBOX360] [PAL] [RUSSOUND] [+KINECT] [LT+3
 ```bash
 magnet:?xt=urn:btih:825DC6A7A34C2EB475BF1AA0600BFC8CA93A224D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ MultiScatter - это плагин для Autodesk 3ds max, основанный
 ```bash
 magnet:?xt=urn:btih:A3D1851C361C5E1EA62C8606866CBEABBB91AD82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Cowboy WPI DVD StartSoft 30
 ```bash
 magnet:?xt=urn:btih:CE82CE1B972E5C6C0133F30E77C36D23912FF65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ Memoria – расскажет нам историю принцессы Сати
 ```bash
 magnet:?xt=urn:btih:5520C6965A93C7B626CBCAA4DDB1E8798A87A388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ Rayman Legends — продолжение головокружительных �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Isekai no Seikishi Monogatari / Saint Knight Story in an Alternate World / Ин�
 ```bash
 magnet:?xt=urn:btih:7D43B831073E121CB459474E7C81FC0DA118F938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ Acronis® True Image® - надежное решение для полного �
 ```bash
 magnet:?xt=urn:btih:4807ECEA0AD51BCA6C4E035C5533C225EB14278B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ Rig n Roll / Дальнобойщики 3: Покорение Америки (20
 ```bash
 magnet:?xt=urn:btih:708C5435B59F871C587CFBCD729249858EACC82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ Remix)
 ```bash
 magnet:?xt=urn:btih:C261F3163A1109E68E7325096C2E968D29E52E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

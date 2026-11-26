@@ -20,8 +20,7 @@ FreeBSD является очень удобной платформой для �
 ```bash
 magnet:?xt=urn:btih:A8FBA1B48E175D513AD5FB8FAF7923632AF7739C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Starперцы / Last Vegas (2013) BDRip [H.264]
 ```bash
 magnet:?xt=urn:btih:40B50C5A58DF23082AB6963005DFEEAC770368D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F92EF8554FEDF1515827D2FA67FC472782644F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA2C9DE9F93AA15DEBF9BE8F535FD181BBB16B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Final Cut Pro X включает основные функции аудиомо�
 ```bash
 magnet:?xt=urn:btih:F660D96F806AC0DBC1DFD8D9DA92FD5ED5AC49A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Adobe Acrobat XI Pro — это не просто популярный конв�
 ```bash
 magnet:?xt=urn:btih:ABEDD69277CAAC8792EF939F6747556EC7AFF352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Colin McRae: DiRT 2 (2009) [Ru/En] (1.1) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:D7143340985B4C8BD2BFBF5987A0B853C9201ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Emulators Pack: NES, SNES, SEGA [PS3] [Ru/En] [Repack] [3.40] (2013)
 ```bash
 magnet:?xt=urn:btih:C494E513CABAC58B89E8776779E817DC92701DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.isoЯзык интерфейса
 ```bash
 magnet:?xt=urn:btih:87F99E921CB7162E8308427702EC45337967D3F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:0EEE82F81DC490556F3B782866F05C464076F6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spells and Secrets - приключенческий экшен с элемент
 ```bash
 magnet:?xt=urn:btih:27E01E2B86342B8A85F536B3B1B49E2BADD78D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Not Another Weekend - это приключенческая игра в форм
 ```bash
 magnet:?xt=urn:btih:AD64B8FCE28E832F41C49BBDF8AC99532A30F2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

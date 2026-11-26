@@ -22,8 +22,7 @@ Astral Mantra - Rise of the Lords (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic D
 ```bash
 magnet:?xt=urn:btih:4FA27427E9B919A5AB56BF4ED57CF2AD477C108F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Catharsis vs Margenta - Алый Король (2020) Maxi single [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:1AA46ADEC20327BDB75D6AFD3A25660D5A3B65EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Margenta - Сон Императора (2022) [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:FEF14374E1B51DB460DFCE56C1F9822E995E7141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wine From Tears - I'm Fine (2022) [FLAC|Lossless|image + .cue] <Melodic Death, G
 ```bash
 magnet:?xt=urn:btih:232BBD5B66E4FEE7E8351A79B6F67CE038DE118A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

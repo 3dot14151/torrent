@@ -19,8 +19,7 @@ Raxco PerfectDisk - программа для дефрагментации же�
 ```bash
 magnet:?xt=urn:btih:75F221AB8631BAC4E687502DEF8C544BAB41D790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ontrack EasyRecovery Technician 14.0.0.0 RePack (& Portable) by elchupacabra [Mu
 ```bash
 magnet:?xt=urn:btih:1D5FA15D7AB27DC3C2D1B22C80A858CD29D5C960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Victorius - Heart of the Phoenix (2017) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:B7445FA9DC187D2778A3908B773A61FDBDE6684C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:78EFD947777DE799DD724D24D2E56CABCAB191AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cellador - Off The Grid (2017) Japanese Edition [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:C4C12AC0D625E06EDF8796CEE57B82C202993F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Earthists. - Dreamscape (2017) [MP3|320 Kbps] <Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:8E35D8FA64DF9482147DA18B790CE355CD358B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

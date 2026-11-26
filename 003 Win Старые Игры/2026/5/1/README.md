@@ -19,8 +19,7 @@ Mass Effect (2008) [Ru/En] (1.2/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6657BA6857E9A68B7FB333CDA9F5531A4DE0AC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ American McGee presents Bad Day L.A. / Bad Day L.A. (2006) [Ru/En] (1.1.0) Repac
 ```bash
 magnet:?xt=urn:btih:C70BBD4F765FA358A1EAB677C2082559A89A7289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

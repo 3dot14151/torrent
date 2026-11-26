@@ -19,8 +19,7 @@ Spells of Gold - ролевое приключение, события кото�
 ```bash
 magnet:?xt=urn:btih:38ADF72C5A393CF4A0BE05C7F4D53A6905F9DC41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
 ```bash
 magnet:?xt=urn:btih:F791AF542D5635CCC9B4B90F59D36EFB22D15EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

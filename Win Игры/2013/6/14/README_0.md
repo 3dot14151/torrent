@@ -19,8 +19,7 @@ Reveries: Sisterly Love Collector's Edition / Мечты: Любовь Сест�
 ```bash
 magnet:?xt=urn:btih:562A3347854164CAA8EA0E9F85A60F2F4DCFD29B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Assassin'S CreeD PentalogY (2008-2012) [Ru/En] Repack/Rip  R.G. Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

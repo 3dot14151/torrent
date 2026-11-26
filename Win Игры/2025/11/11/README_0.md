@@ -19,8 +19,7 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Let'sРlay [Anniversary Ed
 ```bash
 magnet:?xt=urn:btih:7067B3EA45237BADD95FF438A43380A3A8F086FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CRABS MUST DIE! - шутер в открытом мире с RPG-замашка�
 ```bash
 magnet:?xt=urn:btih:23068A06476DA094323ED745A26E4639DC667B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Paradise Killer (2020) [En] (1.3.0) License GOG [Perfect 25 Edition]
 ```bash
 magnet:?xt=urn:btih:B324B1DE94456B82808304A94D4720766AFD429F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Creepy Tale: Some other place – это мрачная история, раск
 ```bash
 magnet:?xt=urn:btih:1EDAE6A91E41D76882B7F62898A5BA91F7B74F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

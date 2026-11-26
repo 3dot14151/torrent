@@ -18,8 +18,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```bash
 magnet:?xt=urn:btih:9D57C6A7E6409FBFFAD058BBAD1551E486E7C33B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Pablo Munoz Gomez | A Guide To: ZBrush Comic Style Render / Руководств
 ```bash
 magnet:?xt=urn:btih:674D39DA819F25FE485E657FE6481717F175AA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E96A6E8272FBA8DD72C2C93C6905136DA9FC305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F9DAEDE2964BBE7AB4DB8A04431E268F1617558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Checksum Thing - это приложение строки меню, которо
 ```bash
 magnet:?xt=urn:btih:6EF8942F8DEE2D56FEB48B8CD71EC39C1778E8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Keep It 1.11.13 [Multi]
 ```bash
 magnet:?xt=urn:btih:B5B84855C98AB1EA4A92E930E9F0D52B12B2DD44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Multitouch 1.27.3 [En]
 ```bash
 magnet:?xt=urn:btih:96CC80EEC757129BF039C47248861755EAEFE8A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

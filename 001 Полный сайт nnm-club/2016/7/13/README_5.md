@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2AA9A0A40C41B7F23B3A924EE0E3DDE281894498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B8E6BB0C1A84F0D6B0B43C6AF7B87D786B865E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - Endless Motion - Only Trance (episode1) (2016) [MP3|320 Kbps] <Trance, Upli
 ```bash
 magnet:?xt=urn:btih:0A8655F82C8F458CEAE86834FDC1AF7F517ADA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VA - A House Is Not A Home Without A Dog #01 (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:02A1829ECAF64FA48A3BE657C90B842618C6A4EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:649B7F1036EEF02195732B8EC62342DD7602A09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5153D5C26A9FD26CED680A3BF8DF7F688D4A2D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC318DF3C4CE1E3357C0A055550BE7E8A6243309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Fileloupe - cамый быстрый способ, чтобы просмотре
 ```bash
 magnet:?xt=urn:btih:3F8C1D42D133758753DD6741425D0B37DDE3FA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Endless Motion - Only Trance (episode2) (2016) [MP3|320 Kbps] <Trance, Upli
 ```bash
 magnet:?xt=urn:btih:591F3CB9319BF9DF2CC16CB7D518CA704C62D564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:155C00E880CE224B18A57B6E867F44B04854DD05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:531B21B12BADD057382F81A92BC70EDDF9928E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ The Mystery Lights - The Mystery Lights (2016) [FLAC|Lossless|tracks] <60's Gara
 ```bash
 magnet:?xt=urn:btih:5BAF0CBF81B0E8D46BAD081FF00DC7647A6A4634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Hazel – это ваш личный уборщик, который органи
 ```bash
 magnet:?xt=urn:btih:F7EBBC83476BBA8FE0990D3016E54A01E83088FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Bacon Fat - Tough Dude (1971) Reissue, SM The CD  [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:1DCF7960C27F333F5D975806DCB25A12F22699DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ VA - Motion Of Nature (2016) [MP3|240-320 Kbps] <Dance, Club, Electro House>
 ```bash
 magnet:?xt=urn:btih:4C9BB5FAD49F2F89A3B1C4B3124659BC3D5491DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:772A90AF5413EF79F5E86C8BFA38A9B0C2352750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Joella Dawson - Catch & Release (2016) [FLAC|Lossless|tracks] <Country, Alt Coun
 ```bash
 magnet:?xt=urn:btih:8705D5ED42B50D3D83A97F0B84C3D08142A1E6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21D89F2F7A3770FDFA33ADED83B4C9C68B8F8B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:C989504E5E651A18AABC4B06B130D17AC15DCDAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF46259BCB4B57A7F5BC603381EE92307EEADE1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ VA - Legends (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:945A468B1B63DA098F36D1740E4352A96903692C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ Kathy Mattea - Walking Away A Winner (1994) [FLAC|Lossless|tracks + .cue] <Count
 ```bash
 magnet:?xt=urn:btih:5872E2019AEEE48A2AA894DE2B4FEE998AF5AD39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:777E32DA665934B1875845113A6162C1B3C6F1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ VA - Velvet Moonlight: Relax Partiture (2016) [MP3|320 Kbps] <Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:768677830C3250C255D7BFD51313E4DE4EDE15D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

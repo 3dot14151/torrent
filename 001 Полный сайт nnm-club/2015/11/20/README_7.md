@@ -22,8 +22,7 @@ VA - Who's Afraid Of 138? Volume 2 (Mixed by Coming Soon!!! & Ben Nicky) (2015) 
 ```bash
 magnet:?xt=urn:btih:0403FBF27C43D5494CF50F126DE59D4880389B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Acromizer - Spreading The Plague (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:247FFA19994FDCD1609DADCA57FB802B665EA2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dominik Von Francois - Last Resort (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:D11DBB0B09F63B774BE043B29CEE301F750C75F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - White Sunset - 20 Smooth Sexy and Relaxing Chillout Tunes - Vol 1 (2015) [M
 ```bash
 magnet:?xt=urn:btih:D45E5E89F4A8D5F503E243467EDE81BACE3F3FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Enhanced Chill Volume Three (2015) [MP3|320 кб/с]<Chillout>
 ```bash
 magnet:?xt=urn:btih:E6D53A4A85645686D2EDDDB6F5942A733969A7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Jordan Suckley & Sam Jones - Hijacker (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:9D656EA6B7FC020ED656E7BC74BEDBA3DB7C03E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80ACC942E98049598EC927F40935721CBA88D01B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Frank Blackfire - Back On Fire (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C24DF5C92BAD5D1CB61BE04458205E1C5BAD5917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D893D04C57672CAA97517C46A9CF3C5C2386278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54F3D593C65726D1F9A65C1B13BA95A1065C503B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AB933A1666E54332A55CE3E1EEBB8333D421F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ L 33, Chris.Su, Kryptomedic - Mirror Universe (2015) Album Sampler [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:D03999EC76279B9C043E9FA2CC9A60E69A455B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A1B6C482EB4D7383EE732411EA561C349BC7AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ WeAreAliens - A Day (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:3528802753242F8A7109DFF926E9F2B0323B2D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Signum Regis - Chapter IV: The Reckoning (2015) [MP3|320 кб/с]<Progressive, P
 ```bash
 magnet:?xt=urn:btih:86C0ADD95E750E818E1A0057B6804185F1AA50F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD05C9DE08FC8AEE6E338876C858ACC17D135563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Will Atkinson & Rowetta - Mesmerise (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:941B414F2939EBDF92E6A450DEF1B534BF2DB36C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ VA - Trancemission Amsterdam (2015) [MP3|320 кб/с]<Trance,Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:DDFE3F149CBA121CE66B994ECCD3BB1E214E9415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Simon Templar - Meltwater (Part III) Single (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:68261B432E7D46CDFA1FB15E6674F950BF6D9261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ Laurent Petitgand - The Salt of the Earth (Original Soundtrack) (2014) [OGG|~450
 ```bash
 magnet:?xt=urn:btih:5EDC668234A9C972CE5ABD6BA5A576B0FB9FD118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70388987D7CA55A9F39D189647142E6DFF91D176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED86CDA2C6C81EA058C328E33274BD346960AA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ The Wallflowers - Breach (2000) [FLAC|tracks+.cue]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:7A0FEA293278E8EB05CFC9CB9ECB7AB5401E41FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E733EB1AB53AAF505DDFEFC762A18B7A08B6BFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D43F481CE12FCDB372EF8E34995DB2CF0EDBF36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ VA – Cubic EP (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:E029B0C6DEA35D8A5199E82BB45111A2303BF692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

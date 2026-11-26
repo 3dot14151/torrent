@@ -18,8 +18,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.01.1 Hotifx) License RELOADED
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ VA - Дискотека 2017 Dance Club Vol.167 от NNNB (2017) [MP3|320 Kbps] 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ XVIII век, Северная Америка. Среди хаоса и наси
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Heroes of Might & Magic III / Герои Меча и магии 3 (2015) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:313312336FB0D71EE9EC8539644E7474E79F881C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Windows 7 SP1 RTM X 86 & X64 Ru 2 DVD 8.02.11 by putnik
 ```bash
 magnet:?xt=urn:btih:EE185DBE2FEBDABAB0A588B625A3C300203CF257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Pinnacle Studio Ultimate 21.0.1 + Content [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:44BC2FDA751494956E89157B41336422AEB7ED30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

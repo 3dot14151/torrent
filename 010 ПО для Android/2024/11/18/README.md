@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8F672EE1FA953937089462839793355AA87FADB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48B374BB796908BC1B70C3663A9C42902E4D7451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Duolingo: изучай языки 6.7.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:67E939CAFC15FC1E669534B223FB02139BC9D77A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AE96E6143D71EB5544BE35CCA5BA468A5978AB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Image to text - Text scanner / OCR сканер текста v1.5.8 Premium Mod 
 ```bash
 magnet:?xt=urn:btih:41341473EE05711E4B02743D173DF6611FD82CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:547E9F942AF75ACBE51779068F33C9F243926F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ meteoblue weather & maps - приложение, что гарантирован
 ```bash
 magnet:?xt=urn:btih:676383D7454DE6E450CDE8842E5A08CB23376A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ FitAI - это персональный тренер на базе ИИ для �
 ```bash
 magnet:?xt=urn:btih:6769F39F0578BD06C8D1742FE9A78A2C78E896A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Noemí Ferrera | How to Test a Time Machine (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:E265AD63C2A72217E677168B8DC9EB02426270BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ David Matuszek | Quick Functional Programming (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:E8881C717DF05ED96538783642D1ED67F7E74457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Daniel Sipos | Drupal 10 Module Development (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A6A35FF19051C30F37FAE6EAC93467169734925C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BA0C7E5262ADD87FAD7E7D14D80BF66C0D581B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Ben Weidig | A Functional Approach to Java (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:86301F5D61F265A829056E48A32FDD40BD8255B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

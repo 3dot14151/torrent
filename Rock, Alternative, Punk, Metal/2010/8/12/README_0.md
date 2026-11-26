@@ -21,8 +21,7 @@ Grey Heaven Fall - Серые Небеса Осени (2008) [MP3|192-320 kbps]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Arcanorum Astrum - Путь к себе... (Promo) (2009) [MP3|320 kbps]<Progres
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Led Zeppelin - Led Zeppelin BoxSet1 4CD & Led Zeppelin BoxSet2 2CD (1990г 1993�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ The Pretty Reckless - Discography (2009 - 2010) [MP3|192-320 kbps]<Alternative R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

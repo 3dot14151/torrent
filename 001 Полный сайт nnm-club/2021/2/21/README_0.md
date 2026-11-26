@@ -19,8 +19,7 @@ Andreas Vrhovsek | Creating Cloudscape in Houdini (2015) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:2DB45BC83FB704F651705DD4E5F50CC9C124871B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:085A1E7D4F67F781A890A89096F79CC254008C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DA61C669314BB91FD36353ADE62085459A87EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1C0E8218DBA654C2DA1D42A9BDF40B476B68BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5F35F076E8A1B047D5E72CA187EA88C8DEE40F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Takuro, лидер, гитарист и автор слов и музыки бо
 ```bash
 magnet:?xt=urn:btih:6428955B492FE29052EA0B4E216D290ECF172B4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Mflex Sounds - Back To The Roots (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Dis
 ```bash
 magnet:?xt=urn:btih:2BE7C3BE824D1911FAA3955B7F86B1D64137C97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Minitube - приложение для рабочего стола от Youtube,
 ```bash
 magnet:?xt=urn:btih:63149BE7FC945CE158C2CEAF2943DD11316A7A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Kurt Jones | Indie Game Development Pipeline Volume 2 (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:9AEA8913C0C86F44FC007C4C28E57403111C2DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Deflexity - Clusters (2021) 2 CD [MP3|320 Kbps] <Industrial, Glitch, Cyber Elect
 ```bash
 magnet:?xt=urn:btih:D07D13F7848A9F38B9CF068D386FE4ECC8ABD671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ John Moncrief | Introduction to Materials in Houdini (2015) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:CB90AD556534B3BED294AC8701BDFDB732DB0C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A47F4E59C11C7063462A1C8B6E5C3E65AA17CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ SideFX | Houdini 15 Masterclass Crowds (2016) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:587F0698CF70ED66CB9F91D9570A3A7456A82982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Combichrist - One Fire (2019) Deluxe Limited Edition [MP3|320 Kbps] <Alternative
 ```bash
 magnet:?xt=urn:btih:69DF018646E3CDEA97AD1B054747B247396527DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DBCD654693DEB905B9E60745453C20EA13FFF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ VA - Music News vol.74 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:61C6DB252304827AD2B0D699E38691680682D8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Marcus Schinkel Trio & Joscho Stephan - Classic Meets Gypsy (2019) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:0872AD5133BA31F91921B39715FC717648CCA217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Tsuki wa Higashi ni Hi wa Nishi ni: Operation Sanctuary | Hani Hani ~Operation S
 ```bash
 magnet:?xt=urn:btih:DB6382C31B7227C87A26EF420EFD9BBB61F48425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:1FF15B8AB13C259126128166E2734946F1654A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8923DA36D2E04D7A02F9EB49A23F3DE4F25A412E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Houdini поддерживает сетевые солверы со времен
 ```bash
 magnet:?xt=urn:btih:B7D4DA570D27666CF1E79F57727D4C7B31B51CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Soft4Boost Document Converter - программа для просмотра и 
 ```bash
 magnet:?xt=urn:btih:2E40E817EC94B0DBB5313585B819E680086893C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Rohan Dalvi | Houdini Rocket Ship (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:E0636F68564A3C7F40CEE2E071552637107903FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ Unity — межплатформенная среда разработки ко�
 ```bash
 magnet:?xt=urn:btih:141212F01D0CD9107166339E871324A680325C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F18F74A99C5E5764EAD7EA5898F158195AD33723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 3 (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:2398C72A4F997E3BE2208C1A6A83F33DD1BA502C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

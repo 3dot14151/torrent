@@ -21,8 +21,7 @@ Redemption Cemetery 8: At Death's Door / Кладбище искупления 8
 ```bash
 magnet:?xt=urn:btih:988BD155966587001C563BA915C69514C1E50D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Incredible Dracula III: Family Secret / Невероятный Дракула II
 ```bash
 magnet:?xt=urn:btih:ADA04ED17259C106196498E062BC9051B4BB951C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Darkest Dungeon — сложная пошаговая ролевая roguelike-�
 ```bash
 magnet:?xt=urn:btih:865BC18F8DF179A441A63389501B8D3517C7CC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

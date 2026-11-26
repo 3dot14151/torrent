@@ -22,8 +22,7 @@ S.T.E.A.M - WARP (2016) [MP3|320 кб/с]<Progressive Metalcore, Electronic>
 ```bash
 magnet:?xt=urn:btih:B891307F17A688D13D8A70720D3DC5BC24F9D24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Saving Abel - Bringing Down The Giant (2012) Best Buy Exclusive Edition [MP3|320
 ```bash
 magnet:?xt=urn:btih:3F44202FFEE6B97C51099C4AFDE76B728F9ECFAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Black Sun - Brandus (1997) [MP3|320 кб/с] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:11404AF486A278C2F773B0D2B25C5298FE0CB78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Michael Bolton - Timeless the classics (2003)[FLAC|Lossless|tracks + .cue] <Rock
 ```bash
 magnet:?xt=urn:btih:3DF1CC03880AFE12D4021E5C6D79650FB33EEB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:558897948B76321F79099889562ED2AE14DEB9E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jerry Lee Lewis - At Sun Records: The Collected Works (2015) 18CD, Compilation [
 ```bash
 magnet:?xt=urn:btih:50B0441A8A0257C9DCC101B9E05451EB1A7AF778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

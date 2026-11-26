@@ -19,8 +19,7 @@ Witches Legacy 11: Rise of the Ancient (2017) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:BECD3C8037A1019B233EDA4ED727ECDDFAA05841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Legacy 2: Prisoner (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:70CE4173D6D8FBE0683DBD6198E9612011E63B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Surface 12: Project Dawn (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:FA6FF41931B870502C1B991242C8EDE762C3DADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dawn of Hope 3: The Frozen Soul / Рассвет надежды 3: Ледяна�
 ```bash
 magnet:?xt=urn:btih:4FAA09C54662A724CE74E9618CF540348F588B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ V-Rally 4 — это продолжение легендарной серии г
 ```bash
 magnet:?xt=urn:btih:B42323A1248F49042B7D2DE659572A3B8957781F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Occupation — это захватывающий триллер от пер�
 ```bash
 magnet:?xt=urn:btih:D6146FEB1E8FF3ACC270CDC402CA77A2B6933C6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd3) License CODEX
 ```bash
 magnet:?xt=urn:btih:7778F3405FFBBACED4260F8BF5D5DC4964113977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Eternity: The Last Unicorn – это полномасштабный ролев�
 ```bash
 magnet:?xt=urn:btih:D977B24A0F2EB43F89C4788C3B90C4D0F8AF4C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ V-Rally 4 — это продолжение легендарной серии г
 ```bash
 magnet:?xt=urn:btih:97A0483949CD570C3803DDF9734FE681CC965861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

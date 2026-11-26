@@ -22,8 +22,7 @@ Nordic Union - Studio Albums (3 releases) (2016 - 2022) hand made [restored, dec
 ```bash
 magnet:?xt=urn:btih:9864A331F5B3E71184626604B124A9E0ACD6B449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

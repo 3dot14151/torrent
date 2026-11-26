@@ -19,8 +19,7 @@ XSplit Broadcaster - Программа для организации онлай
 ```bash
 magnet:?xt=urn:btih:7E807413825396D79203AD20B905B5DDB46A4169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

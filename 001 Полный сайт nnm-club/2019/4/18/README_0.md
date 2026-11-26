@@ -19,8 +19,7 @@ Avast Secure Browser - обновленная и улучшенная верси
 ```bash
 magnet:?xt=urn:btih:95C413714962F8BF20B097C64C8B1C50280586C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:32325401B374A34D72A9F22B2128ECCC578A29B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - Synthwave, Vol. 4 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
 ```bash
 magnet:?xt=urn:btih:0E5A94C72FF45BD732868EEC69F37463E7D52C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Mate Translate обладает невероятно полной базой д�
 ```bash
 magnet:?xt=urn:btih:AA3AD9026B67A0569B4BC6BC83E6B814A56416B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F63307F8B51263D69685F4B241BF8CE2E81070EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8E49610EBCD5699C64B25E0863F2F49670049F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Boy Harsher - Yr Body Is Nothing (2018) Nude Club Records [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:44EF5AB8AD62F1C438C264B8873557536F5D80AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Made In Germany Vol. 1 - A German Synthwave Compilation (2017) [FLAC 2.0|44
 ```bash
 magnet:?xt=urn:btih:9CA346CACB71C4933C688E95D01C3C10C030F1D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Jens Buchert - Exoplanet (2019) Dimension Music [FLAC|Lossless|WEB-DL|tracks] <E
 ```bash
 magnet:?xt=urn:btih:EED06C8982471AD8E69AA470E61460E836C0F8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:B90199A4A1F4BC408A7A54F2A5C8CED256052A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07DD8D01D59310B67FB6EE884F57C21B9D0E5012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Sonic Alchemy (Mixed by Chris Hampshire) (2019) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:39F7522ABDC926040E1B14B1748D6A79894DB37B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Arnaud Rebotini - Curiosa (Bande originale du film) (2019) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:7ADACAF335D1A847BEFEEE1FD581D6EA5D4DEBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CF0F96F0F022142E2BF0095AE06EAB464BFDF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:E82B732F07CBB028BFE7E6BBBD47EA2F63735605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97BA27661E8538673A705ED799444255E36B3E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Faun - XV - Best Of (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pagan, 
 ```bash
 magnet:?xt=urn:btih:93A480B5324D7CC711002FE2CF7E764CBEA211B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC80E2E63264BD77F2A231342CF6B65490524004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ Boom 3D является уникальным приложением для пр
 ```bash
 magnet:?xt=urn:btih:B4AA50BC4E8CDEA07CE27498AD99FAED43D568C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Spice Girls - The Best (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:62C4729D6BB3C17EC4E68029E7CCB2E28F0E1368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55B067CFAD7D46293CBC985A810C674E84DB81E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D7250791E1668B9CCDEE9EF3E1A24116086823B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ Zazie - Zen (1995) [FLAC|Lossless|tracks + .cue] <Pop, Chanson>
 ```bash
 magnet:?xt=urn:btih:7A9C8990E35F506A31B32E064D950ED64913F93E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Memoirs of Murder 2: Resorting to Revenge / Воспоминание об уби
 ```bash
 magnet:?xt=urn:btih:CD56E1BE11E8A131869156E2FA10EBA7FBCC2ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6845B0FF0391F8FE5B5775E6307788A45A9B3E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ DiskPulse — это решение для мониторинга изменен
 ```bash
 magnet:?xt=urn:btih:2182179BD3F6B04B799AFFD41D85051B725A8E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:DA621D695A1275B66C7ABCCED8AFAB79FF56BF22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ ChrisPC Win Experience Index - бесплатная утилита, с помо�
 ```bash
 magnet:?xt=urn:btih:B0D2299A9B0ADD4D97A45643B5D3137E6E1F53EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ ManicTime автоматически записывает использован
 ```bash
 magnet:?xt=urn:btih:E013135925E2A8AAD0AEF25C58DFF3C1685A9F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Nero Burning ROM — передовое программное обеспече�
 ```bash
 magnet:?xt=urn:btih:AF024A95EEB863E86ED636C097D1A0A844A0B1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A72220803F03863CDC25650602C0F39F36722050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ MediaHuman YouTube Downloader 3.9.19 (1304) RePack (& Portable) by Dodakaedr [Mu
 ```bash
 magnet:?xt=urn:btih:3CBD83BACC9D170A43BFD91981DE648819B7EE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:29EE295C73D7698F42B8E3A6D7075B3425037BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ OCCT 17.0.0.b10 Beta Portable [En]
 ```bash
 magnet:?xt=urn:btih:DAF70C116C01F1AA33808E1A8F89633B75C0CFF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 ```bash
 magnet:?xt=urn:btih:730006709DFA6C4D7F2BF19B3B86DEB6C9D48AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ HD OPTI 4.4.2 [En]
 ```bash
 magnet:?xt=urn:btih:A38339346292F0B7524FED8A98372B6AB6EBD9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:96E0486972C842FB1129DEA78F4E9B90A1E8EE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Nero Burning ROM 27.5.0.11 RePack [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C73A7B957DD9A63F46D263386A114822CA7DC532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5C3FE264DE69DBE76F2F3848E11B44DB0FD6CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:4C6EFF812D947CE2B7148D209C3C2F3F76BFF3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ HWiNFO - мощный информационный инструмент, кот�
 ```bash
 magnet:?xt=urn:btih:C112C6C6391C4DB4BC5A54F17599BA14F53EB2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:1F711097067CC95E6EEF06EEB7527D23BF22AAA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

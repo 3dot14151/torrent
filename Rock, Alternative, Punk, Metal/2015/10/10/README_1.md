@@ -22,8 +22,7 @@ Seasons Of The Wolf - Lost In Hell (1999) [FLAC|Lossless]<Progressive Heavy Meta
 ```bash
 magnet:?xt=urn:btih:E12D60B43C8F1503C4018C694B590F90EC73AE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vreid - Solverv (2015) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:E833BD5DAEF7079CBF0E0678AF1E2DF6A6187563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Electric Hoodoo - Electric Hoodoo (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5B448146E389A89EB5B22075551F5ECC96E7A029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Loverboy - Turn Me Loose (1999) [FLAC|image+.cue]<Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:B2BE779671338F211DEB780D3141FCE7344490AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74D368202495D3DAF5F2D3E93243886835CC9217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Zombies - Still Got That Hunger (2015) [OGG| 450-508 кб/с]<Classic Rock, 
 ```bash
 magnet:?xt=urn:btih:8565AFFCEE53E08F209A4AD43CE03340E1EE877F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Bad Company - Rock 'N' Roll Fantasy: The Very Best Of Bad Company (2015) [MP3|32
 ```bash
 magnet:?xt=urn:btih:84D5317091A9A6C45BE70ECDFDE32E33FAB45E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Bad Company - Rock 'N' Roll Fantasy: The Very Best Of Bad Company (2015) [FLAC|t
 ```bash
 magnet:?xt=urn:btih:026A5CAD8D976435E6B89A055C8EF55643BD2B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Lindemann - Fish On (2015) Single [FLAC|image+.cue]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:78C7AF9B74816C3D150BAB99ED4703E510D7E734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Antimatter - 6 альбомов + компиляция (2001 - 2015) Discography
 ```bash
 magnet:?xt=urn:btih:834EA70A42C389829A0E77B3A240C61F5908CBF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

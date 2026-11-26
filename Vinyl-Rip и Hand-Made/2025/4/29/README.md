@@ -22,8 +22,7 @@ Dream Theater - Parasomnia (2025) [WavPack|24/96|image + .cue|Vinyl-Rip] <Progre
 ```bash
 magnet:?xt=urn:btih:E6A2ED0173403F6EEE818F1F57F38C31D4A417AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Ji(   Читать дальше...   )Жанр: Progressive Metal, Metalcore�
 ```bash
 magnet:?xt=urn:btih:646A55C3C5D5065006D400E72C435F375C781E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Till We Meet Again(   Читать дальше...   )Жанр: Black Metal, 
 ```bash
 magnet:?xt=urn:btih:B54BBFD6CB7B8F15026F8B2670CC3C6F5B503AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Absence - метал-группа из Тампы, Флорида, США. �
 ```bash
 magnet:?xt=urn:btih:E5A5970BA7176B7D569D87FC164325C06F7E7146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A4 Think Of Me • Думай Обо Мне(   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:F39CD250A23C420F07AC529951AC06EB5ACFA5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

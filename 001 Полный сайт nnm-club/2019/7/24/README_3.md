@@ -22,8 +22,7 @@ Reuben - In Nothing We Trust (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Reuben ‎ - Very Fast Very Dangerous (2005) [FLAC|Lossless|tracks + .cue] <Post
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Clark Terry & Max Roach - Friendship (2002) Village Records [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:0EB2EE10422302EAFAF1CA4BDA7024771DFAA890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F8449F89E0929D9472467C9282C77A14851CEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bokassa - Crimson Rider (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Hardc
 ```bash
 magnet:?xt=urn:btih:20CBBB6F251D392D4B71A3CF6E4371B43097CB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Synthezman - Synthezman (2004) [FLAC|Lossless|tracks + .cue] <Synthpop, Techno, 
 ```bash
 magnet:?xt=urn:btih:8A045E78249E996ECFD9B17E11E5EFF0846FCA0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB03E511D62B96E2E5AD631EAD95B077353FC7BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ K.Flay - Solutions (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:9D039626AFF6D851105996DF469335B431F538DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Synth Techno: Sound Studies Lab (2019) [MP3|320 Kbps] <Techno, Electronic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ VA - Lost Magic Alchemy (2019) [MP3|320 Kbps] <Hardcore, Metal>
 ```bash
 magnet:?xt=urn:btih:19EC04E649EDF19DFD628285B7DC4BBB6CC35A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CDF7C32D7D64CFA74063152D1A8B15187967D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Hugh Hardie - Shadows & Silhouettes (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum &
 ```bash
 magnet:?xt=urn:btih:DEFB04710B0F9120E55B2B3E3382E1831A621CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ John Mayall - Jazz Blues Fusion (1972) Reissue, 2015, PolyGram Records Inc. [FLA
 ```bash
 magnet:?xt=urn:btih:CB8358321E844F0E51387C0728B7C996D2FAA5E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:024AC13B7C689454D3B1F1E6C5EC1073516165DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ XIX век, Эдинбург, Шотландия
 ```bash
 magnet:?xt=urn:btih:64C4781EC66F34678B11C08E0A1EA7C82F219BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Banco de Gaia - The Magical Sounds of Banco de Gaia (20th Anniversary Edition) (
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74D2751866054BC3F84C476019EAB1AAB1C3D479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CD9821E1CA514C393D338C786FAEEB4353EA9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ VA - Blues Forever, Vol.90 (2019) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:7ACAC355C338A3EA0AFBD7AC839E584B081EA964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ VA - Blues Forever, Vol.88 (2019) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:60E8E6978B21C6D02F331FFE34498606651D6779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ VA - Blues Forever, Vol.89 (2019) [MP3|320 Kbps] <Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ The Man with the Ivory Cane (2019) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:995BF1C2A838213611526433BD1C6658CEC52D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ In Quantum - Memory 417 (2019) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <Dark 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19703E34D0F0ED1591EB9A35CDA4DAC1355DF336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ VA - Dynamic Audiophile Jazz Vol.2 (2019) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:E2EF658783A0A1784CA8C30B82DA3AE3191585D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

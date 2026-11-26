@@ -22,8 +22,7 @@ Ramchat - Atrana (2016) [FLAC|Lossless|image + .cue] <Black, Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:1EBC1A1FD4D471868BF2579796E827656661A881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Theo - Heart Of Soul (2016) [FLAC|Lossless|image + .cue] <Classick Rock, Blues R
 ```bash
 magnet:?xt=urn:btih:0D6713ECB072EA02A091E802DF5A58E0C695972F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Maerzfeld - Fremdkorper (2014) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:DB8CCA76DD6991AAC1ACB2C5545F2BCB262BB558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Legs Diamond - A Diamond Is A Hard Rock (1977) Reissue, 2007, Diamond Records [M
 ```bash
 magnet:?xt=urn:btih:632CA58D8B83BB165E6E8E3282463F6AF5789188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dead End Finland - Slaves To The Greed (2016) [MP3|320 Kbps] <Modern MDM>
 ```bash
 magnet:?xt=urn:btih:50569625AD287F32852A311CC050B0758706ED9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ No Resolve - Unity (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Moder
 ```bash
 magnet:?xt=urn:btih:CD1A9D9A3005BD92E32A2185BCF223CF1D990065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Doro - True At Heart (1991) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock
 ```bash
 magnet:?xt=urn:btih:C82745A24751032815FDB5E267D10A3C9CC88110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Firewind - Immortals (2017) Japanese Edition [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:162B392E1E48049756ED021D85B35E15C3B1504A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Midnite Club - Circus Of Life (2008) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:990EE68B990D644441BF06C65E9BF2E113CEB533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Black Star Riders - Heavy Fire (2017) Limited Edition [MP3|320 кб/с]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:F59FC776709A17F609AD82C50778837CEA7FC66F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Shocking Blue - The Best Of Shocking Blue (1987) [FLAC|Lossless|image + .cue]<Cl
 ```bash
 magnet:?xt=urn:btih:F9B69A68F9E2E8BF54850D9A2C6707DDAFC40455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

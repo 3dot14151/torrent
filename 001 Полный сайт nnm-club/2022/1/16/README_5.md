@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:558A4DB719ECFA67051AC3B84051BB9977901519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B53AE4845DD20E4F52AF0DB360EBB147684A7B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Navitel / Навител Навигатор v9.13.73 Full для карт рел
 ```bash
 magnet:?xt=urn:btih:FFBAA78CC69AE9198D985B550E176DC2D10FC025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

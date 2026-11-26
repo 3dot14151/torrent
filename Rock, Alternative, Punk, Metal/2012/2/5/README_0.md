@@ -19,8 +19,7 @@ Gordian Knot - 2 альбома (1999,2003) [MP3|192-320 kbps]<Progressive Rock,
 ```bash
 magnet:?xt=urn:btih:25CB812D7C0DA1873B7FF34AFF9558BD26C66CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ KadavriK - N.O.A.H (2012) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0C30C5A7905390AE52143CEC043EDEF471EF98F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Paul McCartney - Kisses On The Bottom (Deluxe Edition) (2012) [FLAC|Lossless]<Cl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Deep Purple - Come Taste The Band (1975) 1-st press /EMI, 1990/ [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ The Doors - L.A. Woman (1971) 40th Anniversary Edition, 2CD /2012/ [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57F02798803A98154C467D7FCB5F827BD1FA4B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

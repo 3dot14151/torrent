@@ -19,8 +19,7 @@ Steve Belovarich | Fullstack Web Components (2020) [PDF, EPUB, MOBI] [EN]
 ```bash
 magnet:?xt=urn:btih:695516846460230B8113727B5B528844E4DA0A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package (2022) [PDF] [E
 ```bash
 magnet:?xt=urn:btih:55DFAFEAD96B45CA2CE74D6A31C94E47A944DB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

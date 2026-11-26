@@ -22,8 +22,7 @@ A4 Future Is The Reason Why(   Читать дальше...   )Жанр: Heavy M
 ```bash
 magnet:?xt=urn:btih:86529A13DDBC643461F0CB523B436A114F32D560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mekong Delta — немецкая группа, играющая прогрес�
 ```bash
 magnet:?xt=urn:btih:44AE7492408E445D7280CF7B12FBDC01224062A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Empty Eyes(   Читать дальше...   )Жанр: Heavy MetalПродо
 ```bash
 magnet:?xt=urn:btih:49B65DBAAD63F95508154A788EC552207CBC2A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Into The Night(   Читать дальше...   )Жанр: Synth-popПрод
 ```bash
 magnet:?xt=urn:btih:899AA2E0691E2EE87FCD1B0B268DC648237D016C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

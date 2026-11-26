@@ -19,8 +19,7 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:94BA4D2750C6883972DE53E683D0551579FE23F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hunting Unlimited 2 - симулятор охоты от компании SCS So
 ```bash
 magnet:?xt=urn:btih:55C87BA7B46425594067147449AFC7556C4534DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

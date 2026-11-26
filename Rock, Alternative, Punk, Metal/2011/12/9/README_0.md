@@ -28,8 +28,7 @@ Dark Forest - Dawn Of Infinity (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7E005E2E52A749AA6A4B45746F269B15FF7F9BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF5F3DA898E6EFF6E998C1EFF80732D36658BCF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Keldian - Journey Of Souls (2008) [MP3|320 kbps]<Melodic Sympho Metal / Power Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Gogol Bordello - Моя Цыганиада (2011) [FLAC|image + .cue]<Gypsy Punk
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

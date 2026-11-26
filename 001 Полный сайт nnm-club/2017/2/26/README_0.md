@@ -21,8 +21,7 @@ Trickster - Find The Lady (1977) 2006, Strange Days Records [MP3|320 Kbps] <Clas
 ```bash
 magnet:?xt=urn:btih:079090DC17453F596BC07BB96681F7559E56A6AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Hollerin Sluggers - The Promised Land (2015) [FLAC|Lossless|WEB-DL|tracks + 
 ```bash
 magnet:?xt=urn:btih:927EE493E73C61F73F89FDC74B0B3CDF49820B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ The Like - Release Me (2010) [MP3|~190 Kbps (V2)] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:4E84F5D36C1B2AAF9D284D94E47F0D2680528EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Ben Poole - Time Has Come (2016) [FLAC|Lossless|image + .cue] <Classik rock, Blu
 ```bash
 magnet:?xt=urn:btih:0AB29606D246D98C5B9828F1E8B4156C4414514B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:805B999A8E5975E98AC95CDE5E6735B3039A87E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Trickster - Back To Zero (1979) 2006, Strange Days Records [MP3|320 Kbps] <Class
 ```bash
 magnet:?xt=urn:btih:8742840E0383C777BDC444B31BDEAB56546A3C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B27489692EA7C31391CD339A73A7CD5860B166D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ BlogTouch является самым мощным Blogger / Blogspot дескт
 ```bash
 magnet:?xt=urn:btih:FAFB117D6DC2CA6A7076C07C6B643E950E0391CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67B6FB4AC069EF58B19C000747C143A44D3FBDFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:658A99BC01108159FDC9443AB0FDAC0D31B4ED42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ JustBroadcaster YTEd - создай трансляцию на YouTube в счи�
 ```bash
 magnet:?xt=urn:btih:6ED1469C9D2336CDB27285ADDFDDF09348CFEF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Pola & Bryson - Find Your Way (2017) EP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:5493976E20485729536ECFBEDDEC1E56D203C513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE30734F804F2D2FDF46182B4278546DAE7ED91F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Aaron Keylock - Cut Against The Grain (2017) [FLAC|Lossless|image + .cue] <Blues
 ```bash
 magnet:?xt=urn:btih:1ABF6EDCD4ACB4357AD176A544AC79286117172F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57500C0EA8DEEDA3BAC524CF6706D7B74219A793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ VA - Soviet Union Jazz Selections 1935-1945 (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:299E20B3F5CC960498D1B40A45CB737F08E69A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:440FE9B2B89B633FF8A210C77D28B3ED2F26BF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ VA - Invisible 026 (2017) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:AC3D243330FE016846974687492D711551CDB7EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Player [1] - Game Over (1980) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
 ```bash
 magnet:?xt=urn:btih:D2A72A5AC970EB838C95E9E2AF952607C2497A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D90473D599AE715CE8E5E09BDBFA210B8CAE8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ Banco De Gaia - The 9th Of Nine Hearts (2016) [MP3|320 Kbps] <Electronic, Downte
 ```bash
 magnet:?xt=urn:btih:42EE0FB5008B71D2688A92B81E9AB69F3EB6772B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ Quantum Fantay - Dancing in Limbo (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:AC6615CEE92D16A2D053F8187B56045EB594548A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ MezzoSangue - Musica Cicatrene (2012) Mixtape [MP3|192 Kbps] <Hip-Hop, Rap, Ital
 ```bash
 magnet:?xt=urn:btih:FEC5CEC8349DF1925CDC15F88B787F01D4CF418A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6FA5BA0B754B813751342653CAA29F7C0030B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A6C4C6A5B229AFF56323F77D30543D1FB4A8211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52FED9DAE773C733F7C8A091E02715D30FFA752F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

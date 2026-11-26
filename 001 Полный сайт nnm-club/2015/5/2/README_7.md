@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:39C670DA3E06B04317117B0A69316183EEA1B040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ No Fealty - They Love the Soil Which Makes Their Graves (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:BE21A542990FC703B30C08C253106251E59BA9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Lounge 01 Executive Lounge Selection (2015) [MP3|320 кб/с]<Downtempo, Ch
 ```bash
 magnet:?xt=urn:btih:AD7C03583AC3E66AAE955279908CEAA2D8BC5FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78E85EC4AFAD0B2CCD5F672998D3D5FCD06D34AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12F93E20E93E0C5E59DBE8EBFD80788BB13AFAEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43366ACC2BA45A1006DF4AFB4BA3C18A68D0C1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ DJ Nike Twist - TranceWave 113 Tech Edition @ GTI Radio (30.04.2015) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:2775FE9668BAB3B7A257131C5B6D5D5250850CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Blackstratblues - The Universe Has A Strange Sense Of Humour (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:106BD7BE6B6E668E87D993BC8E6DA4336B896B71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Androoval - Incomplete Trackz, Vol. I (2015) [FLAC|Lossless|WEB-DL] <Downtempo, 
 ```bash
 magnet:?xt=urn:btih:5AE90B2B53C7082CB526E5D83957E6D90C28A751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ EarlyRise - Colors (2015) [MP3|320 кб/с]<Alt. Rock, Alt. Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:535F93B9F175B17C14E8B3A8E1F6D0874E5C6B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D9FCECAC0FE1CC69C5E2C56C416529C6AE11544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Tidings - Death Leaves A Bright Trail (2015) [MP3|320 кб/с]<Post Metal, Post 
 ```bash
 magnet:?xt=urn:btih:BBDA2E35168D821869B407DE5D89947E073E402D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Reymer - Thrill My Soul (2015) [MP3|320 кб/с]<Pop, Folk, Indie>
 ```bash
 magnet:?xt=urn:btih:A6DDB3583B9ACC81CB535B082BC9FD6A92C17FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C57246F10022E118288D36B067F70BBBA3D75B87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Erik Ekholm - Titanium Angel (2015) [MP3|320 кб/с]<Epic Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:80C634EA00C8AAA1D80D306666B0BBE7AE86BC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ VA - Dance Paradise Compilation (2015) [MP3|320 кб/с]<Dance, Club, House, Ele
 ```bash
 magnet:?xt=urn:btih:E9A7D4EBB00370C5AE02A4BCDA18123C3CE26522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:783F94690F8533D983B5BDDC1F0AB8E0A654C996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ Risto - Gothica (2015) [FLAC|Lossless|WEB-DL] <Techno>
 ```bash
 magnet:?xt=urn:btih:F67F684067B8961E20BF2B56671405240DA24CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ Konntinent - The Empire Line (2015) [FLAC|Lossless] <Ambient, Drone, Experimenta
 ```bash
 magnet:?xt=urn:btih:AADFAF9305F9DC07FE967D1BCA3973E2C1D6CDAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC5472C4EC20E3B8B203B07AD69840451EE543D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ Wilderun - Sleep At The Edge Of The Earth (2015) [MP3|320 кб/с]<Symphonic Fol
 ```bash
 magnet:?xt=urn:btih:07FF8D32A168C38262952D6E3CB21B7A897A7084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ABD563C484F416EECF8E7209A5899D718AA0EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ Icarus'cry - 3 альбома (2010-2011) Touhou Instrumental /Doujin/ [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:C0A87C5180032D36EF484CC2426A25EAD227C204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ VSO ConvertXtoDVD - программа, предназначенная для п
 ```bash
 magnet:?xt=urn:btih:C536447B7DCC25D8FA400706213F509C4D62E9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E527F1D2815491D2F47B9DB604636C03A24DC90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

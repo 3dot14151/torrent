@@ -27,8 +27,7 @@ Laplandia - Театр Снов (2013) [MP3|320 kbps]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:93E6123C257E8917F15DA175947A353690BF2016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Natalie Cole - Still Unforgettable (2008) /16 tracks/ [FLAC|Lossless]<Vocal Jazz
 ```bash
 magnet:?xt=urn:btih:42F6EE6286653F551D9C2D42344D585263CC8E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - 100 Клубных Хитов 14 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:F776048352C43EB3CD5CA00F2F2EE09838C2600B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Ticon - Remixed (2013) [FLAC|Lossless|WEB-DL]<Рsytrance>
 ```bash
 magnet:?xt=urn:btih:23D8AF45FB3D16CC6C55BEA3C60ABD3FD395E46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:019D6DA38EA01B996B5BA0238B6CE87D0C148735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:993C76D2AD09D4ABC3D4F9D69A3BEC43B27A0624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:41A2F7F677B754F7CF965BE36832368266DA7BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ Discovery: Выжить вдвоем (Двойное Выживание) (Сез
 ```bash
 magnet:?xt=urn:btih:57E305F4B32813211799665B878A3C7F4E2D7AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ VA - 538 Hitzone Christmas (2013) [MP3|320 кб/с]<Pop, Rock, Disco, Christmas>
 ```bash
 magnet:?xt=urn:btih:3074DCF7FC887CA707514C03E7F943B929853890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ VA - Танцевальный Прикол на Record FM (2013) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:5E482DF9FBA4735FA42BA9C2B766A929BEBC0DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:217731698F39672DF75DB4A4782D652C9437AC78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ VA - The Best Jazz Guitar You've Never Heard (2013) [MP3|320 кб/с]<Jazz, Guit
 ```bash
 magnet:?xt=urn:btih:B15E75E503BF88CE215E1BBFC77EA6581CF95022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC78B6ECE3B88BC39DB1D26BF387DE5E89937C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ The Fog (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:BB6B5430DD8B2A911031E798F82150FA32B7AE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ Partita Iv, D-dur BWV 828
 ```bash
 magnet:?xt=urn:btih:AFEB9461EBB0EFBF2B12472ADBE323F660846111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6063DB01258FF7622C466E621E53A080C44B2A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B8CA32A1D9DD0F9942F5D92C233B35068F15168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A661D56A8ACC8C16DAA9F8D01D4EB43CCD36651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:057BB81266F01FC03B29730D590B1B32AA84C13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:357B120E94FC584DB43450BC4A99C95F267B7175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (26.11.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:B4F0AFBED193EBE443E4447E751412124D2104C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ Black Sabbath - Live… Gathered In Their Masses (2013) [MP3|320 кб/с]<Heavy 
 ```bash
 magnet:?xt=urn:btih:93ED6C413B469C4802886BF205C3729E6E0E9C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F60D8EBDC8E666EFDCD2645EB30CC9787DE5DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D9DD86478373E72A0EB299CA9A7997D4DACF4C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ VA - 100 Jazz Essential Masterpieces (2012) [MP3|256 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:97054B13EF515E3160E6E1C2FB4BFD57F85C7B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +744,7 @@ Pitbull - Meltdown EP (2013) [FLAC|Lossless]<Pop, Hip House, Hip-Hop, Pop Rap, E
 ```bash
 magnet:?xt=urn:btih:E356AFFA0FEA674926F8BCAC3468132DCEAC98B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

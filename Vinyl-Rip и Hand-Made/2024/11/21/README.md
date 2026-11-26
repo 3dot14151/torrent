@@ -22,8 +22,7 @@ As the Sun Falls - мелодик-дэт-метал группа, основан
 ```bash
 magnet:?xt=urn:btih:E9CAB9777C8B626EF70F75B8CD3000A359DE0CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

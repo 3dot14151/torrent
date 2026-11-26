@@ -27,8 +27,7 @@ B4. L.A. :: 04:41Жанр: Hard Rock, Heavy MetalФормат: Vinyl, LP, Album�
 ```bash
 magnet:?xt=urn:btih:978B97336E3DA736368B4D0ABBB42A5138A2B92C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ B5. The Leader :: 02:17(   Читать дальше...   )Жанр: Soft Rock, 
 ```bash
 magnet:?xt=urn:btih:D625589565361664359C7F4CC68161969FD69381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ B4. Why Don't You Do It ? :: 03:34(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:D62F826159E7BB0F9FAA4FB2002454B44BCC48A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Moscow Calling вышел 29 марта 1993 года. Во многих стр�
 ```bash
 magnet:?xt=urn:btih:2A0B810E2A98DE97ECBCD7FABF591DE51CEC72CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ B5. The Jet Set :: 04:57Жанр: Synth-popФормат: Vinyl, LP, AlbumПро�
 ```bash
 magnet:?xt=urn:btih:E30E60104889C983DF73D0491FA0C2449AC14143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

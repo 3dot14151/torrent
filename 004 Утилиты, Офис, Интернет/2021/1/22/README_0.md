@@ -19,8 +19,7 @@ WinNc - файловый менеджер, обладающий широкими
 ```bash
 magnet:?xt=urn:btih:3E9A1FEB6BE797DAFB68D8B672D523F54C1571B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Advanced SystemCare Ultimate включает в себя проверенные
 ```bash
 magnet:?xt=urn:btih:8D49E010F863A02FC5DFDD1D3098E0098AEA05FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

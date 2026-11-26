@@ -22,8 +22,7 @@ Labÿrinth — пауэр-метал-группа, образованная в 1
 ```bash
 magnet:?xt=urn:btih:DF68A638D73F5023D6CC459171A9D336B5A762CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

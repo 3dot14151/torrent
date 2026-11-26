@@ -19,8 +19,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:B0E801BC311C8C9D7449547A9ED550B19BFC5817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Knights of the Crusades (2025) [Ru/Multi] (1.11) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F0861409246D3296AB4C1588A29332884B44E6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Jokers Game - криминальное состязание в которо�
 ```bash
 magnet:?xt=urn:btih:FDE10D2FF8B94F0FC4BC466956979A59B22AFE42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SHE WAS 98 (2026) [Ru/Multi] (Build 21510625) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B5A4406EE29D5C80B4F95967948201255E8258F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dreamscaper - это бесконечно реиграбельный экшен-
 ```bash
 magnet:?xt=urn:btih:B55C38FDCA0E8555F7F2181063B38969A395BAD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Swordhaven - это фэнтезийная ролевая игра. Вы бер�
 ```bash
 magnet:?xt=urn:btih:0E462FF1DB164B14A236B19DD06A4FD9930F84E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ BrokenLore: UNFOLLOW – это сюрреалистический хоррор 
 ```bash
 magnet:?xt=urn:btih:BB029EDA30E4FAAD4A3EEBE81DF6B612A561358C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Barbie Horse Trails (2025) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FC3410B22B7FB0AD9F654B9EAB47435C7290A369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Noosphere (2025) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E45B6E3C1F9AA41EE6666ABB3083E0C23EC3F5AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Sacred 2 Remaster (2025) [Ru/Multi] (CL16601) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F30BA35746CFDF83B075DB6BF888AA356FF1ACD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ BrokenLore: UNFOLLOW – это сюрреалистический хоррор 
 ```bash
 magnet:?xt=urn:btih:4363FCAB5A8E893A80E29184F519E918F0BC4478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Persona 5 Royal (2022) [Ru/Multi] (1.03B) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:598324031459DD9D516695D755213E27F2822A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Office Simulator это реалистичный бизнес-симулятор
 ```bash
 magnet:?xt=urn:btih:E8F4E915A473A446302502E87D85037CA11F951C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Machick 2 (2025) [Ru/Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:1ECAFF804F1BB58A248AB88297B9E96CE6A213D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Halls of Torment – это игра на выживание среди полч
 ```bash
 magnet:?xt=urn:btih:605C7B4DDF927D298AA936D5E36DE2BA1C7986A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Quarantine Zone: The Last Check - симулятор сотрудника кар
 ```bash
 magnet:?xt=urn:btih:62183A8D38374ECFB92CD5858E70BBDFC12E29A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Deadly Premonition (2013) [Multi] (2.1.0.6) License GOG [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:04164A00636CF0746511919E3EB51BABCF1AA813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

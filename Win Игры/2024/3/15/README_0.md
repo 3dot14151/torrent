@@ -19,8 +19,7 @@ Zoria: Age of Shattering – тактическая групповая стра�
 ```bash
 magnet:?xt=urn:btih:4CF0888BEB49E5A7029E6F2FC25E524D8408F127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:5BE76C39E3A7FB289F6ECF3421A58280AE66D5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Somerville (2022) [Multi] (1.0) License Razor1911
 ```bash
 magnet:?xt=urn:btih:43FA6C448CA713BA8C5354579BA3B1CFE015BD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beneath the Mountain погружает пользователей в подзе
 ```bash
 magnet:?xt=urn:btih:FA636C8F2D65151F61372A815E70CFB9B8B2FECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Monuments Flipper – симулятор реставратора историч
 ```bash
 magnet:?xt=urn:btih:B38EB5F987AFBE08913ACA1BEAD2BF2375E19AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.21) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1CC05C371251799D40110533A27BEA1B5039EDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

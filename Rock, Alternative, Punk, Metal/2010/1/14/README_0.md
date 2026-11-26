@@ -19,8 +19,7 @@ Echoterra - The Law of One (2009) [MP3|~224 kbps]<Symphonic/Operatic Progressive
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

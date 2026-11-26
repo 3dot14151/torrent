@@ -26,8 +26,7 @@ Hej Ninja! - Hej Ninja! (2008) [MP3|320 кб/с]<Screamo, Neocrust, Post Rock>
 ```bash
 magnet:?xt=urn:btih:08B6EC027E2C240579AC9E03A0C1DFB71DEA030F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Solkyri - No House (2011) [MP3|320 кб/с]<Post Rock, Instrumental, Experimenta
 ```bash
 magnet:?xt=urn:btih:159977C5EE153C6047989AA2B92C69D3FC9E8C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Eastwood - Language Of Stars (2014) [MP3|320 кб/с]<Post-Metal>
 ```bash
 magnet:?xt=urn:btih:6FFD1B23B4E8BC38285B56782513E4051F699D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Zach Caruso - Might Be The Rain (2014) [MP3|320 кб/с]<Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:6E49CA43D84956EB14A02ED65E7A87C03472107E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ MaterDea - A Rose For Egeria (2014) [MP3|320 кб/с]<Progressive Metal, Gothic 
 ```bash
 magnet:?xt=urn:btih:F7DFA6422CFE3208C6571F2317A68F2A4CCE8DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Mesozoic - Sanguine (2014) [MP3|320 кб/с]<Atmospheric, Post Rock>
 ```bash
 magnet:?xt=urn:btih:E4FBEADCFFD6A4DA7B9B79D27242BB7CAB9D58B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ Eissturm - Winter (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
 ```bash
 magnet:?xt=urn:btih:39CA8B230CEDC644E54363D9C209A9B39E36D69D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Sky Flying By - 2 Альбома (2011) [MP3|320 кб/с]<Post Rock, Instrumenta
 ```bash
 magnet:?xt=urn:btih:04345815DECB9DFB7225DB205B43FD9E750D8095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ Pacifist поможет определить, каким инсталлятор�
 ```bash
 magnet:?xt=urn:btih:7B4F9EDB7832E7B70C3DC6D437B56D88BDED4698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Wisdom Teeth - Peacemaker (2014) [MP3|320 кб/с]<Screamo, Hardcore>
 ```bash
 magnet:?xt=urn:btih:B09617EA891861D4381D8C8256035802081F00E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ Administration Shock Him - 39:03 (2011) [MP3|320 кб/с]<Post Rock, Instrumenta
 ```bash
 magnet:?xt=urn:btih:6E7AA95C22A98D20CF9770F11E12F707C860C1D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ VA - Green Mono Stereo House (2014) [MP3|320 кб/с]<Funky, Club House, Deep Ho
 ```bash
 magnet:?xt=urn:btih:4571CDE85E022469182B1CCBE5D8180B688A9AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:665EF0C9D18288A1C52994C6F82FFD0D2275D79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ Kady Bow - Fool For You (2014) [MP3|320 кб/с]<Blues, Jazz>
 ```bash
 magnet:?xt=urn:btih:5E967D3BDC180E56DCFF84CE268C15B9F6178BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ BurnAware Professional - обновлённая версия универсал�
 ```bash
 magnet:?xt=urn:btih:9DD3F13AC02134644E98D932801345AAE14711A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ VA - Cocktail Latin Jazz (2014) [MP3|320 кб/с]<Bossa, Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:85082BF1A151D22F812F668E32A3BFCF33688F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ Cannabis Corpse - From Wisdom To Baked (2014) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:A4D78335A9445C5A7104761125D5B2E018ABAA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ Razzmattazz - Rock 'N' Roll Hero (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:20EB41021CE42FD53357623D2FE88DD16ADCC1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:448437AF760CB984D7AB88BF45C27A49826BF2EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +656,7 @@ VA - 99 Chillout Dreams (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:4AB86DAD40F6E3AB9724C5358552FC9F1BD2633D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FB986E585E2AE2B082327BDE4088E24DCDE9B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA5FCF8F06C0FA9BAC32AF29473E2C469F5709D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08946CCADAC8767DE2640BD48A4AD3FEE6A7BC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:39863838B3D7567B9E45DE88805BB21FBBFB2C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

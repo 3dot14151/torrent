@@ -20,8 +20,7 @@ Scrutiny проверит ваши изображения, ваши внутре
 ```bash
 magnet:?xt=urn:btih:E7FC2966623C45FE74780BF7F05FA1EA850AA905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Les Doigts De L'Homme - Gipsy Jazz Nucleaire (2004) Autoproduction [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:907754CDDC463D068AA95A608D63DDF15A39D067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Lordi - Monstereophonic (Theaterror Vs. Demonarchy) (2016) Japanese Edition [FLA
 ```bash
 magnet:?xt=urn:btih:86541817771DCB0716B5D4A8E6C288C496E68A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Lordi - Deadache (2008) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:5180CE6C2F5B32CEC06BA414C8F204AA60D212C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Lordi - Scare Force One (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:6E96A3F82FBF0F308A6B768020B96E855EB6CECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ VA - Uplifting Language Adaptation (2019) [MP3|320 Kbps] <Melodic, Emotional, Vo
 ```bash
 magnet:?xt=urn:btih:79631A645F1265399D613866713F59A0079C54E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ QLab - Мощный инструмент для создания и провед
 ```bash
 magnet:?xt=urn:btih:C6BC78CE204851D1B0F932ADE23E33E2705986DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - Uplifting Trance Sessions Vol.11 (2018) [MP3|320 Kbps] <Trance,Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:11B1A0284884B788A44EA19C042FFD0BD12F74E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC0CC1A8720FE6AB5F3A09A2D475379CC0DE3C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ TunesKit Audio Converter 3.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:498B956080CFEAA6826BB69CE250FB02D140E509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Tropical Fuck Storm - A Laughing Death In Meatspace (2018) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:428CC9342E34D8E7D6D53D9E9E4FA9CA6C5589B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Lordi - The Arockalypse (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:865434B8A29557B9ED54E1BF097020A73349B396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ VA - Billboard Hot 100 Singles Chart 19.01 2019 (2019) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:C1B6C831E2C25E234DE041C0615FA77C9E9F6E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Cloves - One Big Nothing (2018) [FLAC|Lossless|tracks + .cue] <Indie, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:EEC3E71028E1CE1632E329B0E4B37B88213B6854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Fogh Depot - Turmalinturm (Remixes) (2018) [FLAC|Lossless|Web-DL|tracks] <Experi
 ```bash
 magnet:?xt=urn:btih:41CB3E2816B18B1F5FACB3F4D79547D579EDA5DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ Moonspell - 1755 (2017) Limited Edition [FLAC|Lossless|image + .cue] <Dark Metal
 ```bash
 magnet:?xt=urn:btih:06DB899EA881B23851A59DFCDCE4F9368A2E2DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ TunesKit Audio Capture для Mac - это самое умное и просто
 ```bash
 magnet:?xt=urn:btih:43B8A9961482CC06A09AFEEFBB77B0BB57A96103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ TunesKit Video Cutter 2.0.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:FBF96DA5D0903BA6C36A5124E8C5FA14AC3237A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ VA - Street Hits 80s (2018) [MP3|320 Kbps] <Hip-House, Pop, Jazzdance, Disco>
 ```bash
 magnet:?xt=urn:btih:48A39593CC5C38DB2069E235BDD7E990BA88F196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ VA - 80's Groove Record Box (2018) [MP3|320 Kbps] <Funk, Soul, Disco, Soul>
 ```bash
 magnet:?xt=urn:btih:ABE8F05336ACFF9B91E00CD9E104516806DB3A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FC7BEC4CE478F1011DD4F927008654D5F6E7EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ Thomas Cappeau - Commando Ninja / Коммандос-ниндзя (Original Moti
 ```bash
 magnet:?xt=urn:btih:15F2EBE81066B1E702CA552AB119655F041F708D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D2C0A9C6A918B1B984E00619A04FAB953A4DA3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BE3A4306BEDB418EFA03ADE417AC3AF61D7B9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Arturia Pigments 1.1.1.503 [En]
 ```bash
 magnet:?xt=urn:btih:CE4F056B3259BDFCC9A1F01C5386F3D95B9E3C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ Arturia - Pigments 1.1.1.503 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by R2
 ```bash
 magnet:?xt=urn:btih:D56C1A48A7935A0DD541671FA89ED0A77DC0DD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

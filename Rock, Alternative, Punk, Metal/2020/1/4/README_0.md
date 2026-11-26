@@ -22,8 +22,7 @@ Krake - Conquering Death (2012) [FLAC|Lossless|image + .cue] <Sympho Black Metal
 ```bash
 magnet:?xt=urn:btih:A49C94E0D8B43706EB711A2D3021B998B0B15CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Subterranean Masquerade - Vagabond (2017) [FLAC|Lossless|image + .cue] <Folk Met
 ```bash
 magnet:?xt=urn:btih:2792CD569DDA128203DE6F233D58843879CF2940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Grabak - Bloodline Divine (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:777AE7F5228B6E13D6E4FEB87D21D1C9ADE2505A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Equipoise - Demiurgus (2019) [WavPack|Lossless|image + .cue] <Technical Progress
 ```bash
 magnet:?xt=urn:btih:0CDC421B6576F5B07050EFA8CEFDF4B47324BAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Kurgan - Yggdrasil Burns (2019) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:88771A8FFA2C37B2B4CB76A34DCBF8396D78C0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Destruction - Born To Perish (2019) Japan [WavPack|Lossless|image + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:9220ECF2DD9B15F6EF6C36325824A99A200D14E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Diablo Swing Orchestra - Pacifisticuffs (2017) [FLAC|Lossless|image + .cue] <Ava
 ```bash
 magnet:?xt=urn:btih:734C27FFD88F60D182D6E3933F821326AF054CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Monolord - шведская группа из Гётеборга, образов
 ```bash
 magnet:?xt=urn:btih:EE8EAE302085063EA593A832CA67BB01F97627A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

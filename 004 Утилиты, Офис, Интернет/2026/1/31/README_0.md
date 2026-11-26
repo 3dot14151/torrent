@@ -19,8 +19,7 @@ PrivaZer – полезная утилита, которая поможет ва
 ```bash
 magnet:?xt=urn:btih:05D3210A78DE7007E62E9D55DCC5F151E71C4605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MediaHuman YouTube Downloader 3.9.18 (3001) (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:074D6E5FA864458DDC0F878B8D5FCFC3ED500388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MediaHuman YouTube Downloader 3.9.18 (3001) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C91BB403FB4BDE5DBD7E291D8533F04D4195E63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:03FDE3462F469D3E904470C2374FB5318ECF17F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wise Program Uninstaller 3.2.8.272 RePack (& portable) by elchupacabra [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:9E14011FCC3A8C810922C974ED0A6F2E6C859180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:32F660F4B0AC777E1AC31B4DD1276FE23B3C96FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:B2E654BC07222FDB6BD3FDD0F221DF510B04E9D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Karing - Утилита прокси с простым и мощным инте�
 ```bash
 magnet:?xt=urn:btih:C33BEC90AB1464D38A2479B8D8023F00206EBCE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Microsoft Activation Scripts (MAS) 3.10 portable [En]
 ```bash
 magnet:?xt=urn:btih:12331693647E368CDB7E21C76203EC10931E6D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

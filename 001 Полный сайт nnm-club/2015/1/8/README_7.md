@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F55D5D737F86404CD44680DF041779E03139E072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windows 7 Ultimate SP1 x86 x64 StartSoft 1-2-01-2015 [Ru]
 ```bash
 magnet:?xt=urn:btih:DCB74CEAC44CAA03357727737CA5ABAF6C9F33A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

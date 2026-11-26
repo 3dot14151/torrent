@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8CB4516EEAE4F10511ED320A0C9CE08B3706CA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Giti VPN, безопасная платформа, дает вам настоя�
 ```bash
 magnet:?xt=urn:btih:8854CC3EAEFCA168AC8326F2FD0422DDE2FD749E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Malloc Privacy & Security VPN 2024.02.140 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2C79D5CBBAB030AF1A9BB6045DC32EB415A5F570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ tTorrent - удобный, функциональный и из-за прочи�
 ```bash
 magnet:?xt=urn:btih:91F4BC9ED9DB6AB295DC6578280F35761D41F2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

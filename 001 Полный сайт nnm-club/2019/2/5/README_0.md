@@ -21,8 +21,7 @@ Aeonian Sorrow - Into The Eternity A Moment We Are (2018) [FLAC|Lossless|Web-DL|
 ```bash
 magnet:?xt=urn:btih:DD9082D169A5AC294DFAD1E838C318DADC516ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ BetterZip – удобная работа с архивами
 ```bash
 magnet:?xt=urn:btih:981ADAE6AF379EBDB21033837755D48F1E39821A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Dark Romance 7: The Monster Within (2017) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:C4C8C3BB706E730C4E3C4CFA67669BA364043598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Antigen Shift - Discography 7 Releases (2002-2014) [FLAC|Lossless|tracks+.cue, t
 ```bash
 magnet:?xt=urn:btih:302BB773B60DEB93BD0E3954095475F823EB1D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:B6ED651E56737F368DF939A1E16EEC48035F8A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Icecream PDF Converter Pro 2.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D572B5966CFFA2107F8AAC4C1EFA4950DFA51118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ The Whistlers - Gold (2019) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:98FA1D29E8DB4F68C1AAF3643B532B0B97DC0A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Witchcraft: Pandora's Box (2017) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:62EAFB6096ADFA0EE82BB0C43CAA90515324972C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B6BB188390272B831089725E23126B8ABBE63F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ NGW: Львы на деревьях / Tree Climbing Lions (2018) HDTV [H.264/108
 ```bash
 magnet:?xt=urn:btih:93D85C0ABDDFF05118DDE1557903A27EB300E687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ NGW: Рождение прайда / Birth of a Pride (2018) HDTV [H.264/1080i-L
 ```bash
 magnet:?xt=urn:btih:23028D124601F91E1E6845891F3621644F3ADCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Alcatrazz - Parole Denied - Tokyo 2017 (2018) Blu-ray [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:815455FC6A19982DA0DCED114B3559B9D5C8C117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10B94A270302E65A7AB43E8BA3A951C9D1863256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:FC276183B639771CC79ACF88660EDF59AE4275BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8E68240BEEE1C5C8E9EF8D3C984FF10CA878D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84400B377C519F6676046178BAC08C12EEB16D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F8AAA9FB0AD44E716A9CF24EF2D2F75EF1A196C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86CEA3BB838869EEC6585649B057F57774EEA213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ Ashampoo Snap 10.0.8 RePack&(Portable) TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B00AA429B8D7092AFE1519A5C11FC7BBC5DB91FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40CD3E0652BEE4E7050A91DC8410F349D46FBF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ NGW: Смертельно опасные монстры Австралии / Aus
 ```bash
 magnet:?xt=urn:btih:BB06F52950AF0AAC63095B0C6A2ACC4195729C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:044FE74FB2E58BA6E33B6D46344F6DAC9ADEC15E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ BBC. Всё о мире обезьян / Monkeys Revealed (2014) HDTVRip (сер
 ```bash
 magnet:?xt=urn:btih:F09C9A39DCE1CA6A8F3FB8C20DFEF568ECCAEB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A5DB295DF29186938F908D7835C12300CED71CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1847A8A6A360E47FD43215C704DBFE914386150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ NGW: Смертоносная Африка. Пустыни / Africa's Deadly Kin
 ```bash
 magnet:?xt=urn:btih:3D11D1CFAE4A38A3915499F66CA4DB1C87800162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

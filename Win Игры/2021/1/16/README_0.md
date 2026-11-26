@@ -19,8 +19,7 @@ Living Legends Remastered 2: Frozen Beauty (2021) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:98494D71BC365FAE0900CA42C042A14A05C344B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Before We Leave - это градостроительная стратегия, 
 ```bash
 magnet:?xt=urn:btih:00BEAA8F68D45F38093D925406E9A44EB2232C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

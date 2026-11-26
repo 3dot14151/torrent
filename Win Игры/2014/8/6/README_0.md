@@ -21,8 +21,7 @@ Urban Trial Freestyle - игровая новинка, которая предс
 ```bash
 magnet:?xt=urn:btih:5512E4985D230B8E29514192E04143EAFDAB537A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ King Arthur 2: The Role-Playing Wargame / Король Артур 2 (2012) [Ru/E
 ```bash
 magnet:?xt=urn:btih:74F99C18F687A0FC715E111E82696BFB895E8708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

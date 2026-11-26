@@ -19,8 +19,7 @@ Transport Fever 3 - это экономический симулятор и тр
 ```bash
 magnet:?xt=urn:btih:BFA08628115D3309501E2823D46709575F427836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ High On Life (2022) [Multi] (134592) License GOG
 ```bash
 magnet:?xt=urn:btih:3301C31CABD701DA03D45B1A951497B946E5A22F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Static Dread: The Submarine (2026) [Ru/Multi] (1.0.6/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FE24150CC03EFB046A009DC292CC62E9EEABDDA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Syncthing - это программа непрерывной синхрониз�
 ```bash
 magnet:?xt=urn:btih:29EEE82103D1372A26599813E890651EA4250810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PassFab for PDF - простая в использовании программ�
 ```bash
 magnet:?xt=urn:btih:99A9C0AF0002D4D305064E297AE21A6DC5991A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Easy Duplicate Finder представляет собой мощный инст�
 ```bash
 magnet:?xt=urn:btih:5B5306541B0351E669760066A6B3C478B219BA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PassFab for Office — это комплексное решение «все-в-
 ```bash
 magnet:?xt=urn:btih:19AB8925CFC3A4FF1B32D8D812D3D5BA0150C8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ PassFab for ZIP - это программа для восстановления 
 ```bash
 magnet:?xt=urn:btih:78ABF2CE0CBAE4526AF8589D29ED817526FADC36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

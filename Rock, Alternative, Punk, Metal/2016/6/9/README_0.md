@@ -22,8 +22,7 @@ Bat - Wings Of Chains (2016) [MP3|320 кб/с] <Thrash Metal, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:2E460023D4AE4163E25FDAAC787044D6D2C5459D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stretch - You Can't Beat Your Brain For Entertainment (1976) [MP3|320 кб/с] <
 ```bash
 magnet:?xt=urn:btih:21AF1F9580C52B78823086B3F50B4C2088E8EF2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Monument - Hair Of The Dog (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BA54A1565C875DA4C8EA769040999B6800CC50CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Phantom 5 - Phantom 5 (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7260C020E43E8EB506319566EDE75EEDE6E95DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Shakra - High Noon (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:9CE48FC448387A5ECCC5E88CE7A847D13A0501B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:9B5555B1D6976057D35ED05E5A1A36D963611C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Margenta & Андрей Кустарёв - Дым. Крепости. Волк (2
 ```bash
 magnet:?xt=urn:btih:EC962C7595C90BB2A2466CBD52B09CD3FA6019DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Garbage - Strange Little Birds (2016) [MP3|320 кб/с] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:F2DA15B7843E230902B39276C8268FDEE264DF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Tarja Turunen - The Brightest Void (2016) [FLAC|Lossless|tracks + .cue] <Symphon
 ```bash
 magnet:?xt=urn:btih:7E7CDC1560395274573FB50DF85F0A94600CC798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

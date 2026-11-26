@@ -22,8 +22,7 @@ P.O.D. (сокращение от Payable on Death) — американская
 ```bash
 magnet:?xt=urn:btih:3674AFD02131E9454ACC28B6741FC99BBF13D2E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 - Many Suffer - The Trees Die Standing(   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:BD170013916B7E70821EA3EE61234EA8B7377925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eternal Tears of Sorrow — финская группа, исполняющая 
 ```bash
 magnet:?xt=urn:btih:481279DD7028C9857300A7DD62000F5BE49EB494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

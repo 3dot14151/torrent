@@ -19,8 +19,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
 ```bash
 magnet:?xt=urn:btih:ED12339976B40AC768123791AB562CBB447FA5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

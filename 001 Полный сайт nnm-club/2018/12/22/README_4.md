@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BA7CDF29E6B3CDC60A95C706E505406B6985E036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ RTM Build 17763.1.rs5_release.180914-1434 + Cumulative Update KB4471332 = OS Bui
 ```bash
 magnet:?xt=urn:btih:4464B17D9B69FBC0E28F08A8244807AECDA37E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE3C55F10E6D08D5EB4A2FB4F33CEEBBECA7780A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E505C08A0F7698C928288F7E75E8112EE54FEFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ TechSmith Snagit облегчает захват изображений с эк�
 ```bash
 magnet:?xt=urn:btih:001FE1335382DB7395E901792F49332614F1CDDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:412F594C49975CE263901332E73EBF23DE32F3A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ App Cleaner - Лучшее приложение для удаления файл
 ```bash
 magnet:?xt=urn:btih:71E55991F5071C20FD6B80A0ACB2248C9AB950EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76623CEF2E1550A70E150500FACE70D8525B6FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE88160BD21B0FD0E921D4A02577240E62A770C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D169DD2505B4AA477F29D0A3EA4D3C8FA187AD75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9143F99A390779A13723F74D8F03D5D2F8BB8726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ TV-1 (AniDub), (Anilibria), - внешними файламиЯзык субти
 ```bash
 magnet:?xt=urn:btih:3BE03195036C2D0E159D81C6D277AC1117B4FAAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/En] (3.6.31.2130
 ```bash
 magnet:?xt=urn:btih:A92B7D6D54ECF942532881DC1F5C32B4F5BB2D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Macrium Reflect обладает интуитивно понятным поль�
 ```bash
 magnet:?xt=urn:btih:61B2600E08AD5E2548947EB98751544D3BD7BC8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Civilization VI предлагает множество новых способ�
 ```bash
 magnet:?xt=urn:btih:91718169B42D1893A92396A73DAD4F499FDE27DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ ABBYY FineReader 14 – универсальное решение для раб�
 ```bash
 magnet:?xt=urn:btih:4535CF1DC2563E30E9C40673C223526DADB06B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ Microsoft® Windows® 10 Ent 1809 RS5 x86-x64 Ru-En-De-Uk by OVGorskiy® 12.2018
 ```bash
 magnet:?xt=urn:btih:1F3C20E54FB18F8F2773CC72BE1D7D6B3F8DB375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9132474EE9E938F7CBA5AC6B7FDD187ABD9DA263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ Udemy | Полный курс по кибербезопасности: Сете�
 ```bash
 magnet:?xt=urn:btih:E9F612B46BD3F7753EC2EF8141747F4047C8C87A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E3ED38A216F2369BDB0E8EF824D7CCB294FD9A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A301104E256FC88C49E9E496F3C6B61C94BC71C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FF5FE8DD368B8C00614BF66BC915A370C09FE25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ Microsoft Office for Mac Standard 2019 v.16.20.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:29140CA2ED0F966CE785CB19124C3B7819B3E9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

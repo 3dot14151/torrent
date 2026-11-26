@@ -19,8 +19,7 @@ Royal Detective 5: The Princess Returns / Королевский детекти�
 ```bash
 magnet:?xt=urn:btih:A324FF6257F865985864B422303C04A2CCE8329C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Owlboy – современная приключенческая игра, гд�
 ```bash
 magnet:?xt=urn:btih:9E7A8E5A7C77E0F369BF1C49F8068F87007F16FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru/En] (16.00.20.0275) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:DB9A0243FEF7A8583951AD0854D57743E123C3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rad Rodgers (2018) [Ru/Multi] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:DD06EE73F41E583312272A011F17FD5A752894C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

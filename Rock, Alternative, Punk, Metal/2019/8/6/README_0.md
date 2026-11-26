@@ -22,8 +22,7 @@ Chumbawamba - Tubthumper (1997) [MP3|320 Kbps] <Folk Rock, Pop Rock, Punk>
 ```bash
 magnet:?xt=urn:btih:B848C99DC9B97E43C314A1C4FF3B1D1B009531B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Workout Music Tv - 40 Ultimate High Octane Tracks to Motivate the Lazy (2018) [M
 ```bash
 magnet:?xt=urn:btih:52BF7F9CC1389FF8639DEAFD02BE2BCDD174E907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Slipknot - We Are Not Your Kind (2019) [MP3|320 Kbps] <Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:590A7FF07F7A4941C07AAB7065C0D9DD196A6F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

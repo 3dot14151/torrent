@@ -21,8 +21,7 @@ Dube 1.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:34A3E74D0BB66493F8F5531B5DBC22AEA29DB4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Slayer  — американская метал группа. Коллектив
 ```bash
 magnet:?xt=urn:btih:B376C4729165FA697E8B5322EE2C49EC2831A1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

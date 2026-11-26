@@ -18,8 +18,7 @@ Spyglass v3.9.9 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D4BF8893F62DAED39E27273A44C030EAA87FC5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7C742AB8A9A73CB338DEA7A22E4D250CCAB4ABE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ UFO - Lights Out (1977) 2CD, Remaster, 2024, Chrysalis Records [MP3|320 Kbps] <H
 ```bash
 magnet:?xt=urn:btih:06EEC64CFEE4FED312E6CACF41EB3A037E829D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CA20A93B42D05CFFCD432394072460159A0BB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Got
 ```bash
 magnet:?xt=urn:btih:1C3527333B9B6EFC6800DAB15D6A6ACC2278019F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Ventusky: Прогноз погоды v31.0 Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7BEEB02281AA556FA15BF4367B34EE111F9BDA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B26FC48D7AC833808946223206C7E582DCBE8417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D625AC58EB4D09872CC9B0E59C3FBC60855DA15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - Compilation Electronic part 52 (2024) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:9383D33F8523AE0D32CD2EA5876BD42FBD77E8A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B482AF1EFDD9458E6126F55F2FD0B6911AEDEB33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:B7F327652C1032796EE67E62CA76BAA23B31CF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Elle & The Pocket Belles - Compilation (2024) [MP3|320 Kbps] <Electro Jazz>
 ```bash
 magnet:?xt=urn:btih:FFB195FC0D2925847145AC00AD599ED729A51508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B55035C8C4B14BC28D92E9CDC3FC81BEB074211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Fatboy Slim - Fatboy Slim Loves Carnival (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 ```bash
 magnet:?xt=urn:btih:CE084AB6C4F6A4523B47DADF378D9E2E14837B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78C3C2AD6BD009698877B7E4F664E47D130E55C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D7E977DF9B40BC5DCB085F4AADF86DEBC244C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Burda Вязание – это специальный выпуск журнал
 ```bash
 magnet:?xt=urn:btih:744D701B24B2FBD9FD798A220DFCB419855210D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ Dalida - Parle-moi d'amour, mon amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 ```bash
 magnet:?xt=urn:btih:DBA40FF0DB0A5290C528491BA64CCDCA46F23B5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FA22F2777A4843F067DFD95C13F5FDAE496E9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Maze of Realities 4: Symphony of Invension (2024) [Multi] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:921E5BFE35C29D1ED2DAAA4277FEF54D03499386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ A2 З. Невская – Дни Проходят(   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:FBA01373695CCE41022568A170CF85B733F267CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ AirBrush: ИИ Фоторедактор v6.2.1 Mod by ImanAlien [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3AB976BD4509C83374433F1E6602ADF56AE37FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD7EB08189941B60280BDD1F7ECE5D4592DAC8F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ Coffee Lounge Collection, Restaurant Jazz Music Collection, Romantic Restaurant 
 ```bash
 magnet:?xt=urn:btih:9D2BDE65783C8FA757025A129FF3F16238420030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:3162338BDCDEBD4D15B868C0A59597D9000D7A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ Background Instrumental Music Collective, Romantic Music Center, Romantic Beats 
 ```bash
 magnet:?xt=urn:btih:86063DE8CC5BFECF6132AFA6BD1F27ED3B9A44C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

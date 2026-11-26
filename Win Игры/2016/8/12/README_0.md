@@ -19,8 +19,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:5406CF2713C424320DA2186CB70B6050AE8B8940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CASE: Animatronics (2016) [Ru/Multi] (1.0/u1) License PLAZA
 ```bash
 magnet:?xt=urn:btih:8F19B592FC47E866C632FFE1C7DFFD115D3C023E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Eisenhorn: XENOS – приключенческий экшен, основанн
 ```bash
 magnet:?xt=urn:btih:F49E3FF17FBE7330B274E1971B8105F4C1C1D61E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Meridian: Squad 22 является продолжением футуристи�
 ```bash
 magnet:?xt=urn:btih:47A68FAF8096014D3B05BE6FF4DACF575B1139BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B84CF20996789469982C8F6E4A48C1EDB1AE2AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

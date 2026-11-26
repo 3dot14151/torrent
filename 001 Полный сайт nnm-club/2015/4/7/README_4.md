@@ -18,8 +18,7 @@ Warsong / Langrisser. Langrisser 2. Антология (SEGA Genesis Game) [Ru/E
 ```bash
 magnet:?xt=urn:btih:30BE3913B88819361BAB2D3F50201F03621889A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pirate Legends TD 1-3-6 [Ru]
 ```bash
 magnet:?xt=urn:btih:D7576A2C7B2BA29AA97864F0981D5034DF50A196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18E7895E6A36073570FBF6B62207F37F2C8D6875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1BE9EB0380B24108CFB01771F076FD1D32044EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:63137B42FEB3F987E5DB0F40EACC4A171A08BD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ GL-to-SD — отличная программа для перемещение �
 ```bash
 magnet:?xt=urn:btih:1B415C173F258B08D9068A44F0C3089D76A02346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29F27A6FF37EDA65AA5EFBEAC4EBC8A950FBC344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ HEN | Strange Love | Странная любовь [1997, OVA, 2 эп.] DVDRip 4
 ```bash
 magnet:?xt=urn:btih:A756D9BF822F686C7D4E877D47516ACE6272AF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Room Arranger - программа специально предназначен
 ```bash
 magnet:?xt=urn:btih:29879E957AFCE1B18B3A40A5FC9C4FC3BDAD704A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:3FA199A0BAC02A800594ACB48074F77212266CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Riddles of the Past / Загадки Прошлого (2015) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:B79F7E35EA687E53FADEA64174CC42C4FD3D932D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Sungha Jung - Monologue (2014) [MP3|320 кб/с]<Instrumental, guitar>
 ```bash
 magnet:?xt=urn:btih:75A758856FCF7FC5FBE37F0D0272FFC1A01C85C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09FA6EC6A74B86B6D4F7AB4AC3E82134EEB579CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ iWatermark - отличный инструмент для каждого бло�
 ```bash
 magnet:?xt=urn:btih:91CA3878079641C26BF3918E281B9416E5D5DC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCF220DDF99B3387CD11315DC61DA603725DD3C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EFAB0A1BDF405BC847BD3AB42BA4620AEBD4657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Pinegrow позволяет работать с HTML файлами на ваш�
 ```bash
 magnet:?xt=urn:btih:F389AF5F8E13154B99EFBE0B437D46DBA23B53DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ AнтиГАИ (ГИБДД) 14.0.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:EDECC8CDF1F2147CC2AC2BF2A1FF81BD09C66A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ A5. The Gunner's Dream (5:04)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:ECC8E7F82F562EE02CE7A357829754BE6FD86221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:873B8EA368E3D0E86752C08CE9C02208E5BD452C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE14ADFFF6AAAA4E02467FCDE4398298F31F78DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C87B03738BB5B4E48043DC80DBDE9FD94532DDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ All-In-One Toolbox Pro (29 Tools) 5.1.6 + Plugins [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EA0D2F97DF0E20CDB8507E8A47C4801C7FD41903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFFC8C5499CF801441479251900216DE5BA4D237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ Aurora 3D Animation Maker — программа с помощью которо�
 ```bash
 magnet:?xt=urn:btih:861AB59D0DF54AC7EBB4BA6F0FD5863F9DB08F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ ESET AV Remover - инструмент для удаления антивиру�
 ```bash
 magnet:?xt=urn:btih:0E770E7C1E703F0BD39B5922268B9E25634C3D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

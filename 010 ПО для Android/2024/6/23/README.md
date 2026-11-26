@@ -19,8 +19,7 @@ ZEDGE - приложение в котором вы сможете найти н
 ```bash
 magnet:?xt=urn:btih:B16742568F4ADF6C76318629A3FBF3DE705FC138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MotionPortrait ™ можно преобразить любую фотограф
 ```bash
 magnet:?xt=urn:btih:97C2CEA526AAE145167B62FCFFD11C9F713D8990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

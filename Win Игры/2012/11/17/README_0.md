@@ -19,8 +19,7 @@ Lost Secrets 4: November 1963 [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:04199A892DEFA760FA7BD20BEFBB3D9FA8764291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Beast of Lycan Isle Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:63F0ABA54BF0B3752AB243917C0AE8A4FD2736F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Sims 3 Времена года (англ. Seasons) — восьмое доп
 ```bash
 magnet:?xt=urn:btih:FD7A6E2AF3D0677E67433E5D1DF4CBB75EB99AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Call Of Duty: Black Ops 2 [En/Ru] (CrackFix) 2012 | 3DM
 ```bash
 magnet:?xt=urn:btih:0355974EE06082F2D877973D2C42ACA21CFD7C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

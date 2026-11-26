@@ -18,8 +18,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:C997F4B66AD49E0A9406945577946409F19F2157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Adobe Audition - Программа для работы с аудио-данны
 ```bash
 magnet:?xt=urn:btih:4A8D1C2CA902F2BE6F5F1410B254F4C5129ED51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

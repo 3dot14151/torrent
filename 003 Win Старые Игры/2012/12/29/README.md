@@ -22,8 +22,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 ```bash
 magnet:?xt=urn:btih:59288289D62B2E5AFF57F45B2C0E23EC2AE1F2AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

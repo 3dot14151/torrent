@@ -19,8 +19,7 @@ Pixel Puzzles Ultimate — тематическая игра-головолом�
 ```bash
 magnet:?xt=urn:btih:19508B9DF83EDE5374DC5E0FDF897A56E874A24E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 ```bash
 magnet:?xt=urn:btih:60D20DB4056973BE88ED2818F7A1ACCE6883359B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Colin McRae Rally переносит захватывающую атмосфер
 ```bash
 magnet:?xt=urn:btih:D75411314F982AB7EB8AE494885E1D218CE9B912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Stronghold Crusader 2 - это долгожданный сиквел ориги�
 ```bash
 magnet:?xt=urn:btih:B6112312CAC3944D9E4E7DBDF9C6939B6953DB0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

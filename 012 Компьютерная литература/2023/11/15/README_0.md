@@ -19,8 +19,7 @@ Andres Colubri | Processing for Android, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:53425F49BCB6E828ED4745C43463AEFCC139AC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ David Both | Using and Administering Linux: Volume 3, 2nd Edition (2023) [PDF][E
 ```bash
 magnet:?xt=urn:btih:BBEFF8CB65702908BB0506661E8D01FAA6283FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война Миров
 ```bash
 magnet:?xt=urn:btih:9E861296EB6EAE113E813C57199255620ABDCE09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Blade Runner [Ru] (RePack) 1997 | Kirill Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

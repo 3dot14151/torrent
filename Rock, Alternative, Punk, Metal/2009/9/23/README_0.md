@@ -19,8 +19,7 @@ The Beatles - Unsurpassed Masters 7CD [bootleg] (1989-1991) [MP3|320Кбит/с]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

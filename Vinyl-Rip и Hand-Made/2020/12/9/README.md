@@ -22,8 +22,7 @@ A4 АВИА - Шла Машина Грузовая (The Passing Lorry)(   Чит
 ```bash
 magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

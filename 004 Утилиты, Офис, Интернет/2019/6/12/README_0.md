@@ -19,8 +19,7 @@ Apeaksoft Data Recovery это программное обеспечение д�
 ```bash
 magnet:?xt=urn:btih:A5E9DB13977D3C07D9EE01F0E5F02EE523234F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

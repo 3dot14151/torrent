@@ -19,8 +19,7 @@ Heavy Storm Shadow (2024) [Ru/Multi] (1.043) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B151519069EA4C06A14CFC1477ED481183B76199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Poltergeist Watcher вдохновленная классическими фил
 ```bash
 magnet:?xt=urn:btih:14F924F9782A773682F6C7274B341A740182B5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ City West Quartet - First Bite Live (1990) /Suisa/[FLAC|tracks+.cue]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:60C27CD1D29507A160EFE13BF1202A47DFEF279B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Chill Island (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:7A4FD582B4A3195751DE6678FDA1AFE680C6781A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - All the Lounge You Need (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:93C760E7B1D3EB2592C3FB9C015E638FEDD719FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Coleman Hawkins - Father Bean (1956/1960) /1990, Jazzlab/[FLAC|tracks+.cue]<Swin
 ```bash
 magnet:?xt=urn:btih:49B2109A4F76845C80C246E49F9245ECE3E6D5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CED4BFA20E93C63609E99FCC4105A3DAB55C203A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E320AFC4027ED320A5A245E40F50153C11D25419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Andre Tay - Место Встречи на HOROSHEE.FM с Валентином �
 ```bash
 magnet:?xt=urn:btih:724E6A5ED57B22C0AEB2CBB96487BD8ADAD20F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E5D0D67A0CC0CB9DF9218A53F34299ECD2E68CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A277A391BDAF1C920DA3E4678782CEAA5F59079B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ VA - Play Electro In My House Vol 1 (2015) [MP3|320 кб/с]<Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:AA8277CF0A5E7D809432724DED1C55A2CE1A7456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - Lounge Cafe Lounge Playlist (2015) [MP3|320 кб/с]<Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:B793599B0CFF9DC45A4F047A442A607D7D2A410A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ The New Regime - Exhibit B (2015) [OGG| 441-540 кб/с]<Alternative Rock, Moder
 ```bash
 magnet:?xt=urn:btih:F52FB8DB71D57C5C0816E07DA7657016394DC51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60E7D4A167E83BDF5BC92B79F2BD5482D21828C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ VA - Lounge and Chill Out The Best Of (2015) [MP3|320 кб/с]<Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:E56174098AA0D67398AA7B844C3AF559250705EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D59043B5ADA37B1C0349FBEABC4A8395652BED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ The New Regime - Exhibit A (2013) [OGG| 475-550 кб/с]<Alternative Rock, Moder
 ```bash
 magnet:?xt=urn:btih:A71B6BA7797808141DA9943C45D35E6B2E8FAAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:427F21F874F697612F60D8CD51D62DDF5ED71BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:326EF10CAD41EA7AE7FA11612586FC83CB4F7C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5CDF0B0F4FC516A096DEEF651FB8A193824AAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3C6C49E12DE30934AD51DC00DEB1191B1DC62A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6581D15D9BD9FD7D29AD00D365284A0BFD99245A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3F438E613D78998E0411AE069EF92C34867290A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Scattle - Visitors (2014) EP [OGG| 503-560 кб/с]<80's Electronic Dance, Synth
 ```bash
 magnet:?xt=urn:btih:30B91C6069495303B7501CC89208184C04CC218A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ Nosaj Thing - Fated (2015) [FLAC|tracks +.cue] <Experimental, Leftfield, Ambient
 ```bash
 magnet:?xt=urn:btih:04092E5203C522F603820BD66981DD3DBF574D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ VA - Best Of Vocal Trance 2015 Vol 2 (2015) [MP3|320 кб/с]<Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:DDA0A362ABFC862016A441B6BD3FE20763F9A132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5974D1FAADCE005CE218BD0314E55771B6F3ADFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

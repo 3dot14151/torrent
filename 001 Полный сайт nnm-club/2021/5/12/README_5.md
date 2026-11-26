@@ -21,8 +21,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:BC466456515D38361D1C55055F78050FFFED2132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:0ED82970E8D26C962DF8379A58E12D91C07820EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B02D7C6031BCC41D4094F7CBA308D308569C47E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Recordia 1.5.0 [En]
 ```bash
 magnet:?xt=urn:btih:93266CF19C830B5BBA454356F867F1D65E2FFB63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ ArchCommander 1.7 [Multi]
 ```bash
 magnet:?xt=urn:btih:63B51E60B8F88DB8D2DF95615446C990376059E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Goat’s Notes - Machine (2020) [FLAC|Lossless|image + .cue] <Free Jazz, Free Im
 ```bash
 magnet:?xt=urn:btih:D4044EBC379D227FF5A7328D98AADD1E23406F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A96408582D58A53B441E0199E5EF7B3C03A37FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ ImageRanger - программа позволит найти все нужные
 ```bash
 magnet:?xt=urn:btih:40AC2087C1216DEA4060AEF1FAF849B278E3CD32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ GoodNotes 5 v5.7.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A46E866C72DB2088642855CFD37500B0B318E7D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ iToolab FixGo 2.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:05E166260C14738137B935C8F12DB0BCD58EE357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ System-eye - это двухканальный анализатор звука �
 ```bash
 magnet:?xt=urn:btih:93C174C43D0C52385872B93C0A7F530DA85CA7D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Arthemis - The Damned Ship (2001) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:7C9E79836FDE16AAE48B4CC372B27E161B5EB7B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Los Males del Mundo - Descent Towards Death (2021) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:924B54FC59B571A229271AE535AE90EBD4BE8DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Djinn - Transmission (2021) [FLAC|Lossless|WEB-DL|tracks] <Free Jazz, Free Impro
 ```bash
 magnet:?xt=urn:btih:D6C0FFAE5EE9BFC798F346B30694B9E32AC42742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ CaptureGRID - это приложение для работы с цифровы�
 ```bash
 magnet:?xt=urn:btih:1CDD0E49ECAA84EAC4CE3C331A8EE38809491E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Downes Braide Association - Halcyon Hymns (2021) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:C018A4CD2A04829039F1428602802439EC4B0306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Backgrounds 9.1 [En]
 ```bash
 magnet:?xt=urn:btih:E2DECF5FD47A458ED2641D99A6F6BC8856CFB2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ Arthemis - We Fight (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:43AA1A72117EF99C2F8C4EE0E593C160F869EC19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ AweCleaner - это универсальное средство для очис�
 ```bash
 magnet:?xt=urn:btih:628999A4671B393BAAB021EB3ADE3598D3DC5E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ Negative Zero - Кости (2021) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:50E171443EDD6641AD0ECA1DC2C613DE3DEA1639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ CD1 - The High And Mighty Hawk & The Hawk Flies High:
 ```bash
 magnet:?xt=urn:btih:35EECCAE5CD0E5062516359F2AFFCE643E185F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ Arc Of Life - Arc Of Life (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:C08251884E545E3AC09C850E41236B224896FC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:DEC8276712D995A3B881E6578B9DC1D8FAF0285A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Immortal Synn - Force of Habit (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:179838F57021A9DAAAECC9868E2EB03F48B2830F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Eye 2 Eye - Nowhere Highway (2020) [FLAC|Lossless|tracks + .cue] <Progressive Ro
 ```bash
 magnet:?xt=urn:btih:3831190BDF2DFE0B3F9B4A4C070778FD87DCE5D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ Cult of Luna - The Raging River (2021) EP [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:023074C02B1E35904CE9A843B7436B181459FFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

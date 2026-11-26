@@ -19,8 +19,7 @@ Titus the Fox: To Marrakech and Back (1992) [En/Fr] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:08E1469A3413EAC3815ED14EFE622BF56155D0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MDK 2 (2000) [Ru/En] (1.003) License GOG
 ```bash
 magnet:?xt=urn:btih:C399C537B634D6D93F72984C9B5BCB4213795729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

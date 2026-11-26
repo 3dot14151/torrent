@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B510C7362EF514E40F6C5E0D8D7F52B4E451852C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ IrfanView - компактная и в то же время мощная про�
 ```bash
 magnet:?xt=urn:btih:852398018D1290F38D9573DD19E933567DEC800A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Junichiro Horikawa | VEX for Algorithmic Design Part 1-6 (2020-2021) PCRec [EN, 
 ```bash
 magnet:?xt=urn:btih:4AE015DED5499599C56293B28E275932A7734CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ CGMA, Ben Keeling | Advanced Substance for Environment Art (2020) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:0F5EA5F1BCB97939CB21422FC1C36539198E2894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DirEqual - это инструмент сравнения папок, котор
 ```bash
 magnet:?xt=urn:btih:2DDE61206C127650A3BB805864482CA45C834080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ FileAssistant 3.4 [En]
 ```bash
 magnet:?xt=urn:btih:4ACC067044E5567F636611C35A03CDC65FFA36BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ MesaExif — это простой в использовании и мощный
 ```bash
 magnet:?xt=urn:btih:FFFDBA75FA1481FFC2B79D407D8CE5B7A6EB771D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Wyvern - Radiations (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heav
 ```bash
 magnet:?xt=urn:btih:F03925B19541E764B274C99A1A853446CED178B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ VA - Chilling Collection (2022) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:372A89E2D00B67473B99E1A641B6296BE5AEA308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Firpo Chompeavy - Smoking 45 (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:986274408676585AF189FE7978EFEFA060CAB784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ VA - The Best of Maretimo Lounge Radio, Vol. 1 (2020) [AAC|~334 Kbps] <Lounge, C
 ```bash
 magnet:?xt=urn:btih:BE0D95B8788F5E5FD13D7ACC96B09AD96943F04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:F48A928A884A6EB35452A41172E46C495B05C032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Make Mama Proud - Make Mama Proud II (2022) [MP3|320 Kbps] <Stoner Rock, Heavy P
 ```bash
 magnet:?xt=urn:btih:4780421F802AD50BCB39F490C7B8BB602B7B65F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Antumbra - Split The Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psyc
 ```bash
 magnet:?xt=urn:btih:FAF9C637F6CAD2E8DD417E435B83E61CF22EBC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ VA - Vintage Landscape Chill Out, Vol. 2 (2021) [AAC|~318 Kbps] <Lounge, Chill O
 ```bash
 magnet:?xt=urn:btih:441136578E380E021AB94B4E3BF2C9358103CDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ Scherlokk является утилитой для быстрого поиска
 ```bash
 magnet:?xt=urn:btih:7949F2BFD3E2F087C8FE065D025478CC4273C29C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Junior Mance Trio - Junior's Blues (1963) 1998, Original Jazz Classics [WavPack|
 ```bash
 magnet:?xt=urn:btih:8553447E5DCAD83271CC9E15A8C733CB0291981A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Perblind - The Dead And The Living (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:800A048F18ACAA991D58FC5D9C607005521AAC09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F27EA3D2FD4A922195CF17CF7DB8117237A3A6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

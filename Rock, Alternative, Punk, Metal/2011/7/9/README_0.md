@@ -28,8 +28,7 @@ VA - US TOP25 Rock Songs Charts (09.07.2011) [MP3|~260 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:4F9454B65D52D0252A86C25D26B81BA7AAE63E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Icon In Me - Head Break Solution (2011) [MP3|320 kbps]<Modern metal>
 ```bash
 magnet:?xt=urn:btih:E3B16CAC3B571D7AFA393A6CC06FC241E17D4585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Battle Beast - Steel (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:56949AA245F84FE581C731102998F6837D8E1A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ AC/DC - Live At River Plate (2011) Аудио дорожка к DVD [MP3|320 kbp
 ```bash
 magnet:?xt=urn:btih:8199EEF2C7F9696147AECA9EF57154DA8543A6E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Mr.Big - 17 альбомов (1989-2011) [MP3|320 kbps]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Nirvana - The Ultimate Best Of (Remastered) (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:290C1DDD3FC5C911C9F7756FB151E2E1D79C79AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

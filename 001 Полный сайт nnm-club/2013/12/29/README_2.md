@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:697D5AC6E646A771AB21107E2598ED205B9C7256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:696A6BB41D893BE630972CB8ED9E6EF9CC72F779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F022B30E346AC1B3D46ADEB886DEBDF630EA4E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Partita for solo violin No. 1 in B minor, BWV 1002
 ```bash
 magnet:?xt=urn:btih:BA98CCFA7CA30C31609CE32C590C1F2308E5DB44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:8536DC5913EC4885BBC5E695FCC3C2EBD9FEF163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ VA - Снегопад хитов радиостанций (2013) [MP3|192 кб/�
 ```bash
 magnet:?xt=urn:btih:E1737B25817FB489589044D2445CC284C2C9D1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6444ED1BB2602ED042525CC295BB8925003CC12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ VA - Зимний mega хит-парад MTV (2013) [MP3|256 кб/с]<Поп>
 ```bash
 magnet:?xt=urn:btih:CEC82E3AE23569899EF60A6859F5E4D2EA59BBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9736E3921E5AE9D373899D3284E5D7563FC65160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Process Lasso Pro - позволяет вручную или автоматич�
 ```bash
 magnet:?xt=urn:btih:018255D085D604E4CF3EA25300C65BA41B1365AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Blu-ray Player – это лучший, всемирно известный Blu-
 ```bash
 magnet:?xt=urn:btih:CF3B97D0FBA5AAC1B25C80EEC48FDC501A6A0783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BD3071B5B8051C52E5CA54FE2EF10F32EE9E516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Erotic Desires 2013.15 (New Year's Eve Special) (2013) [MP3|320 кб/с]<Vo
 ```bash
 magnet:?xt=urn:btih:90ACB9C2AAEE18157E616392A5523FC85CB32DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ VA - Ministry Of Sound - House Party (2014) [MP3|320 кб/с]<Dance, Club, Pop, 
 ```bash
 magnet:?xt=urn:btih:5351FF6D7C54061E0FD7FAB6B75425BE0CEDFECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F78B80EA907E0BD36C66E94EA3B51580937B23C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A2CD22C8073C34D574416A176FB5627C8F369D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:620438DDF8F462B51C5F3BA2C98B7CCE76E94ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ Arthur Lyman - With a Christmas Vibe (1996) [FLAC|Lossless]<Easy Listening, Inst
 ```bash
 magnet:?xt=urn:btih:FAC91CCEDF32896E9BB7888C2BF567FDC7B2BF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:E9BC83CA37406F8AC007FBE0DF7E62A3A19EDAC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ Stand Up. Выпуск №15 (2013.12.29) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:E65C2C15182E087C7DD965F36F0AB4CFC697BF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +585,7 @@ Yahel - Architech (2013) [MP3|320 кб/с]<Psy - Trance , Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:D90EB6CDB6CD108207FBD7D2871877DC5D0FF0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6BB2D07EB4A1D7F79E535E8D1BE93BA11DDD00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06E7840981BB5B4E0D815AC635D066E2EFDCD614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A893733DD43385DC61F37EB65B5AF4170196EA01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +698,7 @@ David Arkenstone - Celtic Chillout (2010) [FLAC|Lossless]<New Age, Lounge, Celti
 ```bash
 magnet:?xt=urn:btih:7666DD192AA59DD5E14A9C95D60D76929009B9A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A37FE2F2CD6094B023856285833BCCF6E42C5C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

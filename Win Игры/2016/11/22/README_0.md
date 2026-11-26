@@ -19,8 +19,7 @@ MouseCraft (2014) [Ru/Multi] (1.20) License GOG
 ```bash
 magnet:?xt=urn:btih:BACAE38FC7FF88537502331E03DB4E31F9D1D6AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crimes and Punishments — это детективный квест, посвя�
 ```bash
 magnet:?xt=urn:btih:DFE6C9512F617CE7CE9DF4B8A4DE45A10F68C140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C5E8773E1E369684A2C17C36699F7DD9AB3903F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ WinAutomation 3.1.6.676 [En]
 ```bash
 magnet:?xt=urn:btih:D6E9F82E6A2B532DE9BB948082F63F1D566ECE68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

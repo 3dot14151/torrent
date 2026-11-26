@@ -19,8 +19,7 @@ Scanitto Pro - это легкое, быстрое и не перегружен�
 ```bash
 magnet:?xt=urn:btih:523F8B283FBBF242C908CCF57C88E8C59FB1930D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

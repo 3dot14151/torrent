@@ -22,8 +22,7 @@ Sep 27 18:07:16 2017
 ```bash
 magnet:?xt=urn:btih:C46ABA9FB3178F1CA7DF90B1B69F232609CCE94D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

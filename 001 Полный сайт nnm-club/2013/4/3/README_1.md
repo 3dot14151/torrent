@@ -20,8 +20,7 @@ Breach - Jack (01.04.2013) [MP3|320 кб/с]<Deep | Tech House>
 ```bash
 magnet:?xt=urn:btih:B5689D68F65CE77DDEDA03C8C87A0916D0AE27B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Ed Alleyne-Johnson - 3 альбома (1992-2006) [MP3|320 кб/с]<Neoclassical
 ```bash
 magnet:?xt=urn:btih:1F8A507A085503ACB503F9F68DA192B1AC42E74A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Incognito - Bluey's Essential Remixes (2009) [MP3|192 кб/с]<Acid-Jazz>
 ```bash
 magnet:?xt=urn:btih:27590164041D54040B7FB28E7548BB735C9B11EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Hardwell - On Air 109 (29.03.2013) [MP3|320 кб/с]<House / Electro House>
 ```bash
 magnet:?xt=urn:btih:9F297FDE58F81099D42ABC2DD3D388B1584AD499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30F13945DA06228861A03E66DCB52FDABFB34B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ VA - Gold Star Ballroom - Viennese Waltz (2005) [MP3|320 кб/с]<Instrumental, 
 ```bash
 magnet:?xt=urn:btih:6016743B3B1EE37D793DB58AA7178BB7F0E381C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ VA - Отдыхай вместе с хитами Europa Plus (2013) [MP3|256 к�
 ```bash
 magnet:?xt=urn:btih:B527630A7FDFC12A025579633E95231DFDDFA7E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Inxera Syndrome - Odd-Man Hypothesis (2013) [MP3|320 kbps] <Electro-Industrial /
 ```bash
 magnet:?xt=urn:btih:CC631715A32CA8D92540B3174452CC0CABA44D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Andy McKee - 4 Альбома (2004-2008) [FLAC|Lossless]<Jazz, Acoustic Guitar>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ Recuva - небольшая бесплатная утилита, которая 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E98A639B8B5D88814793A468F5B4B5A9A7BE8DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +371,7 @@ Trei - Satellites (29.03.2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2327DFA17163A50EDEDD7F01B81D74DCFAFD0E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51EE6943BD711845D5A914AD385E7BFEB6ADF327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D6FB4F5DCB8B71FAE804B94143E7C8A07123841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ Song Disc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ Media Player Classic HomeCinema - удобный во всех планах му
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ VA - The Morning Side Of Love [2CD] (2002) [FLAC|Lossless]<Jazz-Funk, Chill Out>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +577,7 @@ Buddy Guy - Living Proof (2010) [FLAC|Lossless]<Blues / Chicago Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ AntiDupl - программа для поиска похожих или полн
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA589DC703ECE8C6DC5ADF9777C8AAA60AC71A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ Total Doc Converter - решает проблему конвертировани
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B63BE48EB958CC546C637AA5DBE268AD3B75125C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +737,7 @@ VA - Рок Союз (2010) [MP3|224 кб/с]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +762,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

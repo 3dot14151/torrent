@@ -28,8 +28,7 @@ Pirana - Destructive Animal Revolution (2008) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D87E8EA172840CA947A4D43A2C69741B04ABEF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ ReinXeed - A New World (2013) Japanese Edition [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:32B563C812EECC26F8C2A4CAFB3C42E761DCE4EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Naglfar - Sheol (2003) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:07E7EFD80C2055488B9814718F095A96BA000FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Status Quo - Hello! (1973) SHM-CD, Remastered /2013, Universal Music/ [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:A5A03E74FC55AA9DC06CB781C488D6C691BE978D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Status Quo - Quo (1974) SHM-CD, Remastered /2013, Universal Music/ [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:01E9C367C2360A44116EE6A2678E732A9297A2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Status Quo - Blue For You (1976) SHM-CD, Remastered /2013, Universal Music/ [FLA
 ```bash
 magnet:?xt=urn:btih:1A3A12ACCF42111A36D6A54DD7F97C49971D1E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Status Quo - Piledriver (1972) SHM-CD, Remastered /2013, Universal Music/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:B1FABF54D75185BEE2C61BA9CCF281E917EDD7BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Def Leppard - X (2002) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4FD01E8177DFE738EDE5F069AA592B096567E58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2642FC714297E60D6A156EBD00A7CD1A12370E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ Status Quo - On The Level (1975) SHM-CD, Remastered /2013, Universal Music/ [FLA
 ```bash
 magnet:?xt=urn:btih:30C83AC13F8A4CF7F21AC02CD640F881B4CDB906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ Elton John - Greatest Hits (1974) Club Edition /1992, Polydor/ [FLAC|Lossless]<P
 ```bash
 magnet:?xt=urn:btih:30FBF5B48F09DFE45168AC2DF13703CE0CEBC6A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:563866F166F804243E21285FB234115E7B7CD7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ Annihilator — трэш-метал-группа, основанная в 1984 �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +452,7 @@ Dire Straits - Brothers in Arms (1985) remastered SACD Hybrid /2013, Mobile Fide
 ```bash
 magnet:?xt=urn:btih:EC8B949DEB0DBCDF14044E1FB42DD54C2DD3D49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

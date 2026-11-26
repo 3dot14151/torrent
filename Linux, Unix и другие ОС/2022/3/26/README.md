@@ -19,8 +19,7 @@ Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 ```bash
 magnet:?xt=urn:btih:39061023E6A63AB8F8AAABF991778463E54333B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

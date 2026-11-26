@@ -28,8 +28,7 @@ Written-By Jimmy Page, John Paul Jones, Robert Plant(   Читать дальш�
 ```bash
 magnet:?xt=urn:btih:936AD493271A2F045810DFDEEAD96004131695AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-R
 ```bash
 magnet:?xt=urn:btih:D891DA1AE4586B582B8C619B9581245841CD0075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

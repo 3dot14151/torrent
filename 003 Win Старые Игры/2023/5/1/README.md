@@ -19,8 +19,7 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:9CF692B5BD06856D30B20C6A27CFC202F09E6158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tropico 3 (2009) [Multi] (1.0/dlc) License GOG [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:B7DF6D922AD134164FEB207FADD20EAD2FA83734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ArcaniA: Fall of Setarrif (2011) [Multi] (1.1499.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EC988B8557F22ED3DF065F009BA70E0283D30E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

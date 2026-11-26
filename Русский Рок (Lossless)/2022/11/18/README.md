@@ -22,8 +22,7 @@ KRAIDOL - Время настало (2022) [FLAC|Lossless|WEB-DL|tracks] <Altern
 ```bash
 magnet:?xt=urn:btih:234C96DA5040D767BA15B649C05BF356E392F4C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vuara - 3 Releases (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Metalcor
 ```bash
 magnet:?xt=urn:btih:8D79845F08933C3CB2081B89DCD6A910487F81A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rock-сказка - Часы весны I - III (2020-2022) 3 EP [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:3DEE281A49F53271E20D7050D1A6182068816E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ LOUNA - Рубикон (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
 ```bash
 magnet:?xt=urn:btih:1B5428DADEABD167DBBDE515B97068107F8898AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E863A41BFB445EC6CE74D3FF389AF623A2795A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

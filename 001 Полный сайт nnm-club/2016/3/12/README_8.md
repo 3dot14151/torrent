@@ -18,8 +18,7 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:A9FC10226180E38278D5CC34C35AC652D1487308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5433C11128CEA5C35B6464004F0C71C08F72B491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41157D1DFE53437C962F83A566779E625FB23C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Koukaku Kidoutai Arise: PYROPHORIC CULT / Ghost in the Shell ARISE: PYROPHORIC C
 ```bash
 magnet:?xt=urn:btih:30B0C817FA4D90055D8586202B25D42FD977D036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fobia - St. Dinfna Hotel погружает игроков в мрачные у�
 ```bash
 magnet:?xt=urn:btih:382DFCB2538B0A5085FE1898934128D0C3C109B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

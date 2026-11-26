@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:686DAEB600777BAEF48F4E3D45391663D9B12378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ AlexSoft WPI USB 1.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:7F97024BE5176FBD106900A80748B06505127929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Payday 2 (2013) [Ru/En] (Upd 23/6dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F740233E31FEFED58AEB7423ECB2A6D714DF4907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Windows 8.1 & 7 SP1 x86 x64 StartSoft 06 [Ru]
 ```bash
 magnet:?xt=urn:btih:8A9FC6DDBC99D68B5171EAC5A148F6235581FDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Borderlands 2 [PS3] [Ru] [Repack / 1.10 / 14 DLC] (2012) | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:31D3503CBA0FFDAE50050923296483074DABA938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Winamp – популярный, проверенный временем мед�
 ```bash
 magnet:?xt=urn:btih:D6461C27A80003E5D81375588B13BCD1BCD4958D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36DE70F9C29BB7A3E989102567CC980CB2543D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Way of the Samurai 3 [PS3] [EUR] [En/Jp] [3.01] [Cobra ODE / E3 ODE PRO ISO] (20
 ```bash
 magnet:?xt=urn:btih:03F81D6DF5BE215F1CBD1AC696815D7783AD58D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ SamLab давно являясь членом команды Bashrat имеет 
 ```bash
 magnet:?xt=urn:btih:F387C995E59AEE18107F9D5ACC32845A7DD5111E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Recast - сборка модов, направленная на улучшени
 ```bash
 magnet:?xt=urn:btih:645961D06392CEBF271C9DE939B78DE1342F01C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671.iso.
 ```bash
 magnet:?xt=urn:btih:EFCA5D1318D8F914CD16DA54112DF68F8149BD1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Battlefield 4 – динамичный, жесткий, максимально �
 ```bash
 magnet:?xt=urn:btih:86C5E63D62890AF5F2DB985EACF445090CF7615F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ MultiBoot USB utility and Windows 2014-предназначена для уст�
 ```bash
 magnet:?xt=urn:btih:235448D717247342CA92DA74664E1EA1E5E6CA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F8B1FC53082887F66E0F5A4C45BCDA2A90FAA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28470A6DBBA9B8FAC6C0ECF1CE0666F054F19DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Recast - сборка модов, направленная на улучшени
 ```bash
 magnet:?xt=urn:btih:AEBBDBA8F4FF0BE2ED0C153A3C57A31A2DE65B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

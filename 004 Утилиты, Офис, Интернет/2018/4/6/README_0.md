@@ -19,8 +19,7 @@ SIW (System Info For Windows) - системная программа для о�
 ```bash
 magnet:?xt=urn:btih:284D92F4FD18642F5F21C7A4AB969A770A617F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ IDM UltraEdit Pro 25.00.0.58 Repack by Alex Zaguzin [Ru/En]
 ```bash
 magnet:?xt=urn:btih:22188DB35F051FB4D05C0AD089D8881D5D24D10B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

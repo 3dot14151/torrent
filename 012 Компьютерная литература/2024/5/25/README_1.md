@@ -22,8 +22,7 @@ In Clean Code, legendary software expert Robert C. Martin has teamed up with his
 ```bash
 magnet:?xt=urn:btih:F808F7F695047D98D3B72F0AEC027FBAAD717447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

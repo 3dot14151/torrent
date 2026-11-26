@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:EED4725C79F141BB6E8A03037B1D4382F0D7DF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4191FD4A753A544E71F7BA0DEC806B288B4ED78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ VA - Реальный музон с отличной музыкой (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:6A4BA7C7943A665A7FB2688D2C821C472BE5A55D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F88044B30C76565B20F70B66E3A1BC087A8CD886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Echoes of the Past 5: The Kingdom of Despair (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:504F358A04675F86BCBCB7B88303BD0E7CE9E4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ VA - Great Ladies of Jazz (2011) 5CD Box Set [FLAC|Lossless]<Jazz, Vocal Jazz, L
 ```bash
 magnet:?xt=urn:btih:A15E3554D473EA1ACDB4577914749C88DB86E7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ VA - Попсовое Лето 50+50 (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C99A195BB4B006A221FDBFE0B3447124D590C293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ Skid Row - 40 Seasons. The Best Of (1998) [APE|Lossless]<glam rock/heavy metal>
 ```bash
 magnet:?xt=urn:btih:5EB60F7ED3BFBF888B27AC20F28BABB6D9490ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E70077FF6AAA4CFE136545CCDE6BA500F8F4EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ Robin Beck - Underneath (2013) [MP3|320 кб/с]<Melodic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:35FA4BAAA8CEE531D18D08627119ECB8E9794322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ VA - PsyTrance Gold (2013) [MP3|320 кб/с]<Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:B10F07E428A587D9BD068F7657099C811CFB2044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Eric Burdon & Brian Auger Band - Ohne Filter Extra (1991) DVD5
 ```bash
 magnet:?xt=urn:btih:9297AD814667A00D83E8A3BB26E4A84FA1E8B849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7A3FEF27AFD385C7C439948DCA575B9FA1647C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +418,7 @@ Celtic Thunder / Voyage (2012) DVD5
 ```bash
 magnet:?xt=urn:btih:65C7E8CBB24D45060F1E993A097B612815E33FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D38BFD3F9453F97405D49205FD607306E602133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ Sirion - Move On (2013) [FLAC|Lossless]<Progressive Psytrance>
 ```bash
 magnet:?xt=urn:btih:4765A98A2B862DF5DC1A4F300A55A309139348B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ Hayley Westenra - Live From New Zealand (2004) DVD5
 ```bash
 magnet:?xt=urn:btih:AFFC6D93C69E29937732467FA95848F56A351381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED63FDE8DA29C476C1C55D5D2D104DAE22FEDDAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ PC Magazine является одним из известнейших и авт�
 ```bash
 magnet:?xt=urn:btih:9A54AF92E65B6ACBF5D03A2695FC5E34BD760A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:825A2D95B859AC64210541AA230F294DE8FC58AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ VA - Золотой Граммофон Русского Радио - 3 (2013) [M
 ```bash
 magnet:?xt=urn:btih:65FE35F5AEC0E488A35E703836486058DBFE9FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ VA - Русское радио. Чарт супер новинок (2013) [MP3|1
 ```bash
 magnet:?xt=urn:btih:B71A4B5FF1EE5FAA619D4008673C145F9D93A739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83EA010BB1AB856DB5A2379BE65629B0C9DF4B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ ConvertXtoDVD - программа, предназначенная для пре
 ```bash
 magnet:?xt=urn:btih:9332D152C346165C0BCB0B5A20E7FF51A4BA0DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ Ashampoo Movie Studio - cоздание и редактирование дома
 ```bash
 magnet:?xt=urn:btih:6C9AF4901C1E2E134AB9F078EC086F06E7940098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

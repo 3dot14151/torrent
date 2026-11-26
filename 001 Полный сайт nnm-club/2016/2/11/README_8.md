@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F3168B6549EE78FBE08E28E615302A01F020D66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40DD4EB430E42DB98FB185C66D3647EF4DDE32A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Windows 10 (x86/x64) + Office 2016 20in1 by SmokieBlahBlah 10.02.16 [Ru]
 ```bash
 magnet:?xt=urn:btih:CBE35C9AA17595BD82CC3B855F6A1D38E3820B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

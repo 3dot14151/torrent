@@ -19,8 +19,7 @@ Turbo Overkill 1.0 наконец-то здесь! Ноги, руки, вело�
 ```bash
 magnet:?xt=urn:btih:9271D506AECF8343A8FB2B5B4F4688499A7322E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Master's Pupil - видеоигра с ручной раскраской, п
 ```bash
 magnet:?xt=urn:btih:94475EED4DF2EA86602122709098D90DCF2E39E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ M.E.R.C. Genesis (2023) [En] (1.0.0.00) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DC1E26B8516DFAAB3FAA99AA9F142C0EA0BEB408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ RIDE 5 (2023) [Multi] (20240124/dlc) Scene Rune [Special Edition]
 ```bash
 magnet:?xt=urn:btih:0D8408CF6EC0D24D26B726FC7D5D1BF55BF83EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death of Marionette (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C7AB006F4C170792CB92DAB503323727B1F2C34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

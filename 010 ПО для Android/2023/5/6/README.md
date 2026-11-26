@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0FA560C4B44F4B09B79B90726A2F7CF83B911CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Polarr v6.7.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9DFAE4BBF82A0DB0907BED27C24DB4F456A9F789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

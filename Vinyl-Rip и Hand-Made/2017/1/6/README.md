@@ -22,8 +22,7 @@ A4. Stay by Me (6:26)(   Читать дальше...   )Производств�
 ```bash
 magnet:?xt=urn:btih:2F90EFB35DE2E7ADE63B7B4637B29FD79445BDAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

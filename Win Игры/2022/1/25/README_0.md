@@ -19,8 +19,7 @@ Birthdays the Beginning - это "песочница", в которой объ�
 ```bash
 magnet:?xt=urn:btih:4F0A3F26F775EC035826E7A16B17EA62D59D195C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

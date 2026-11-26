@@ -20,8 +20,7 @@ yEd Graph Editor – бесплатное программное обеспеч�
 ```bash
 magnet:?xt=urn:btih:2ABF5AE245E732CAF3B44ED3006D7A4712EB993A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

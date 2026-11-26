@@ -22,8 +22,7 @@ Cloudscape - Voice Of Reason (2016) [FLAC|Lossless|image + .cue] <Progressive, P
 ```bash
 magnet:?xt=urn:btih:0929F64B4B4AAA382604885E636937C868B77EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Artwoods - Art Gallery (1966) Remastered, 2014, RPM Records [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:BC7C832DC83EADC7DAC7E0FDFE2F9D98A3A87E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bliss - Bliss (1969) Reissue, 2007, Tone Arm [MP3|320 кб/с] <Psych Hard Rock>
 ```bash
 magnet:?xt=urn:btih:72525C52168696C36430C4459E9C02C9B5C515B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wet Willie - Wet Willie (1971) Remastered, 2015, Capricorn Records [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:18F799C2B0554C649A36AB5CAAEDF86ACBCCAFE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Wet Willie - Wet Willie (1971) Remaster, 2015, Capricorn Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:1E04BC267F03BD4121411437ECF36391947686EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ John Illsley - Long Shadows (2016) [MP3|320 кб/с] <Rock, Blues, Folk>
 ```bash
 magnet:?xt=urn:btih:86F2E97AC30F564363B778AEF3FAF0BBCA22E7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Aunt Mary - NewDawn (2016) [FLAC|Lossless|tracks] <Rock, Classical Rock, Progres
 ```bash
 magnet:?xt=urn:btih:84362BF9F7944F03DF7C46CA37FF3F957001674C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Radiohead - A Moon Shaped Pool (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:92932EAF589FA09E212133F27AE2F22A00684408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Radiohead - A Moon Shaped Pool (2016) [MP3|320 кб/с] <Alternative, Indie Rock
 ```bash
 magnet:?xt=urn:btih:E33DBC7C1594F3594A33CEE88CD63EFD68B7A113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

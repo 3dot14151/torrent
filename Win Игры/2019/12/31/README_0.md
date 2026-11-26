@@ -19,8 +19,7 @@ Memoirs of Murder 3: Behind the Scenes / Воспоминание об убий�
 ```bash
 magnet:?xt=urn:btih:659158D5A706469C8472E91D0B4277FD73266A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

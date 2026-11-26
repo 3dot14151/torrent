@@ -19,8 +19,7 @@ Rune Classic / Руна (2000) [Ru/Multi] (1.10/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C639E13977CBFEF1606EF5EB0D17C26DBDEAC73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

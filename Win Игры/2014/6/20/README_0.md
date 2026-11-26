@@ -22,8 +22,7 @@ Rise of Nations Extended Edition Русификатор (2014) [Ru] (1.0) [ui/su
 ```bash
 magnet:?xt=urn:btih:D2152471394BCE8CBE1A57273B05E552CDAF8696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

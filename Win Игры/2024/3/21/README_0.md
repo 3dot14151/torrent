@@ -19,8 +19,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E05C1A25B4795EA5E4C29140712ADEF6079B31EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ God of War – новый взгляд на популярную серию, г�
 ```bash
 magnet:?xt=urn:btih:96D7A85AC65BAA1D5BCFF15D4CEC6CD81C1632DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unbearable – это хоррор на выживание с видом от т
 ```bash
 magnet:?xt=urn:btih:F91D21615A0F2EDB95342487A32923916191E692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Highwater переносит игроков в недалекое и мрачн�
 ```bash
 magnet:?xt=urn:btih:85E8437B684A67773856773EFF31C6D2222D9DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Blade Prince Academy вливает свежую кровь в жанр такт
 ```bash
 magnet:?xt=urn:btih:C4F899E05694A5685AD91A5F2A0C826DAC9E8C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Cadet Files: Scene Unseen ставит вас на место агента-�
 ```bash
 magnet:?xt=urn:btih:896C3376A0195CA6DA5DBDFC063E3F48EBC3CEE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Password Generator 2026.11.1.1400 [x64] (deb, tar.gz) (авторский рел
 ```bash
 magnet:?xt=urn:btih:55447CC92CBD80C2FEA1E11449710102AECEED82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Tails (The Amnesic Incognito Live System - Забывчивая Анонимна
 ```bash
 magnet:?xt=urn:btih:5CAE4BCF247DAE11C99C3A4B2F8CA0EC22E04274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

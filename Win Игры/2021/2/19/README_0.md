@@ -19,8 +19,7 @@ The Signifier (2020) [Ru/Multi] (1.04) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CC6B471D303090BFE5027BE5BF9324305CBA4481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Planetbase – стратегия, в которой вы руководите �
 ```bash
 magnet:?xt=urn:btih:8D9BBB2D3B72D6DE675495B9AF80499A2B6D6669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Windbound – ролевая игра в открытом мире с элеме
 ```bash
 magnet:?xt=urn:btih:89DFFAD3C197B600F0A04DA37F262C5921054B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

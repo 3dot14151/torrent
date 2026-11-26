@@ -19,8 +19,7 @@ R-Studio Technician 9.1 Build 191029 Portable by JooSeng [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5D3BFD28A9F2973AC38AFC689ACE17F1EA0014DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ save2pc Ultimate - это простая в использовании прог�
 ```bash
 magnet:?xt=urn:btih:9FAA6714661B8E726AE50FDD8B06895504C995F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

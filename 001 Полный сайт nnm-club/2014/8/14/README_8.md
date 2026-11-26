@@ -22,8 +22,7 @@ Failgiver - Failgiver (2014) [MP3|320 кб/с]<Punk, Chaotic Hardcore, Crust>
 ```bash
 magnet:?xt=urn:btih:972229FD2F7C9F9035DBDDAC569EFEBE43C02B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ VA - Selection 01 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:DE7306168C197A4EFBD3219DF381F88BF80DBBBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ AMB - Get Loose (2014) EP [MP3|320 кб/с]<GlitchHop>
 ```bash
 magnet:?xt=urn:btih:26B42834E7B547CDF85D9E2600D4400DB9BDFDBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Reverend - 5 Альбомов. Дискография (1989 -2001) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:9DA0C89B49B89B687608B850B018658387A0A991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Punch - 4 альбома (2008-2014) [MP3|320 кб/с]<Hardcore Punk,  Powerviol
 ```bash
 magnet:?xt=urn:btih:A04C80A6E16ADBA69981F8FFCC0DE19A3B4A9146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ Odraza - Esperalem Tkane (2014) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:602D690E2124878AB5D1AA840CD1BF1E9A3346FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD6F7572F71B964F337F5365E6BAD31D068BCD4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD0E395152200EB2D9BAD480F0ABBCEDC66F7F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ Art Tatum - The Best Of The Complete Pablo Solo Masterpieces (2003) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:CC9F1D27F974BBA178DD592D4DEF2F3AFC40FC80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ VA - Hot Dance Summer Vol.10 (2014) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:1DBCDF64AB634261A803AE85A935423456D16F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ Stasis Device - Progress (2009) [FLAC|Lossless|WEB-DL]<IDM, Experimental, Indust
 ```bash
 magnet:?xt=urn:btih:C533D91793241F11C08577084F326989F3EBB591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ Michel Pagliaro - 3 альбома (1974-1978) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:3C7DAD93347B1B01D0B163A1B0B975056F3957D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ Aids Wolf - 3 альбома (2006-2010) [MP3|320 кб/с]<Punk, Noise Rock, Fem
 ```bash
 magnet:?xt=urn:btih:7EC8DD58308794443C619DFEF59664F57CBCAC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ Firefox отличается стабильностью и безопаснос�
 ```bash
 magnet:?xt=urn:btih:0A06A37FD5361A5A5FC1D28AF955576AB3CC0AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:998C7C3AFC1FB4D4155642E90F6F8142D8869896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:316668C2F451BD94CA5EFC47481215A4D43CBB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ SunStrike - Rock Your World (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E0859AD4F7A1E372B3B19E851DEABB30A59EE16C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD239088EA4F056A89E8AAE38984A615DB10E6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08489B49C18C464A83BD94DC9549253D57F00441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ Sidney Bechet - Blues In The Air (2002) [FLAC|Lossless]<Jazz, New Orleans Jazz, 
 ```bash
 magnet:?xt=urn:btih:96D17FBDC48E6D94CD344EDB319DC56403F2F34C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB069D3BBA867385FAACB3AEC8C654E5088275A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +682,7 @@ Freddie Red - On Fire (2014) [WavPack|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:843F1C2F87EE5BCDB99B4D671249C2C8E7E57463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ FileZilla - программа, предназначенная для загру
 ```bash
 magnet:?xt=urn:btih:C342CAC7633E78BCBDCFF7641E945AFC3F45600C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ Ninth Circle - Legions Of The Brave (2014) [MP3|320 кб/с]<Melodic Heavy Metal
 ```bash
 magnet:?xt=urn:btih:E11D2EC8ADA27514CB4BA87E250A896B2B266462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:078252E4373EFD18D3EC9BAF436A44338041EA35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

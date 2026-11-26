@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:06D8139C9E7B8F735BA4BC9CC0B8848E74AB91A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E09387735FF3FC63A72B5E021478FCACB5450164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ To-Do Calendar Planner / Задачи, Календарь, Органайзер 
 ```bash
 magnet:?xt=urn:btih:F643674D0131E1192388ECA32435CE5FC6FF3005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

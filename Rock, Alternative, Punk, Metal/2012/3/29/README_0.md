@@ -28,8 +28,7 @@ Winter Rose - Winter Rose (1997) [FLAC|Lossless]<Hard rock / Glam metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Rizon - Masquerade (2012) [WavPack|Lossless]<Heavy Metal/Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Silverlane - 3 Albums (2005-2010) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:935DC57AE4914C1ABC185DF665CE1B214ED71C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Tort - Tort (2012) [WavPack|Lossless]<Sludge Metal/Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ The Allman Brothers Band - [40 альбомов] Дискография (1969-20
 ```bash
 magnet:?xt=urn:btih:E1662BAA294D2D9C2995D5E4A3EB5B070133B55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ My Darkest Days — канадская рок-группа из Торонто. 
 ```bash
 magnet:?xt=urn:btih:05CF356F38B283369279A3788B501675E295B977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Tina Turner - Best Ballads (1996) [APE|Lossless]<Rock, Soul, R'n'B, >
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

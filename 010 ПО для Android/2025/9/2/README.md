@@ -19,8 +19,7 @@ Words – это лучшее приложение для изучения сл�
 ```bash
 magnet:?xt=urn:btih:53FC05A78A819E80D5F70D3AC4C879206288DB3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92F4BECE41AF964EFEA6DE5E979BE6CB082ED994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ElectroBox - Electronics v50 Mod by Viktor245 [Multi]
 ```bash
 magnet:?xt=urn:btih:E7A410A58747E12DD6B1CAD0200D63B9AFC6D8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mock Locations позволяет подделать данные о распо�
 ```bash
 magnet:?xt=urn:btih:3241405251CBB91F5C44CC85B36D7DB190104DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

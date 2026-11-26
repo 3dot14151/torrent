@@ -19,8 +19,7 @@ Wild Hearts - кооперативное приключение, в которо
 ```bash
 magnet:?xt=urn:btih:EC8A4D860B9F4AB6EB69D83A35E671482BD04F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Terra Nil – градостроительный симулятор-песочн
 ```bash
 magnet:?xt=urn:btih:8E4CFB70D034D1DC001FB20A14C2568BC53D2B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Universal TV Remote / Универсальный ТВ пульт v3.0.6 Mod by N
 ```bash
 magnet:?xt=urn:btih:F2EA9C09903118EFB7B6616D57802934E5FE1395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC29E562EEAC6EBA94A66AC4C316BEA463EA6F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Smart AudioBook Player Pro v11.6.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4A4EAC42B3057C52A39EC81361A17BC5FE347A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

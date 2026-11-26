@@ -21,8 +21,7 @@ WebsitePainter — это веб-редактор для создания ста
 ```bash
 magnet:?xt=urn:btih:DD766F8CC123CCDF05F026265B4020AE7935C1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:FAEAAC313747DCDA9332DE8DBC3D3211AB97ACB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ NoMachine – это средство доступа к удаленным ра�
 ```bash
 magnet:?xt=urn:btih:246B0F39E14FE7B78E13920C72193D97BAD25258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ CapyBro — это утилита, которая живёт в системно
 ```bash
 magnet:?xt=urn:btih:19C505F3F6E1891541B027B99B0657949E251E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:FC0B1338E3F2EA2A46E976DC4E2F8E068EED871E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ WinScript — это мощный, простой в использовании 
 ```bash
 magnet:?xt=urn:btih:FDD200E6A329741952D445E89D1C76C0F5CCDD33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ ET Optimizer (ранее ET All-in-One Optimization Script) предоставл
 ```bash
 magnet:?xt=urn:btih:609AE15CACC60EAB3A4F8688A6FF0F12DC26A95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Ashampoo WinOptimizer 29.0.1 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FE0414A9D697B4B100312FF073F97E7E9126CDE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:9219838FFEAED140D2B7E2B41287436274BDB2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:1265C6A396334C9F4CCE33289E36001695D311CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:83A0DC5FC50181E8269A7379DE8EB40B44803E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

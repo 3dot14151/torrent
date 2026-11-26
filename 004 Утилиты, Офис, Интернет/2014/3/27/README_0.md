@@ -25,8 +25,7 @@ CommFort позволяет обмениваться файлами и папк�
 ```bash
 magnet:?xt=urn:btih:1CC8761FF76C3CE570A4B45CAD8C3E43912A5259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

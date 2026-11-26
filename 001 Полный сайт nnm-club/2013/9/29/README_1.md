@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6E5C58D4F6C28C56F7C2D65ABCCFB85FE25854F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2967CAA18A04DE7828856900487321D2E80C9BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - Jazz Loves Marvin Gaye (2011) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, S
 ```bash
 magnet:?xt=urn:btih:36A21D5D0BF6B7AD5A4A93BB8E3AB0431B577B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C4D60FAD168C112517140C06C0B2167C4CC2E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Subsignal - Paraiso (2013) Deluxe Edition - 2CD [FLAC|Lossless]<Progressive Meta
 ```bash
 magnet:?xt=urn:btih:32CB5E81786FB3416FD9479FD45109FFAAF29007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7453AFB39F7A5E838E64486E2A6AA6E5432CC14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:886A73B17C6D56A8E8B989C22CC7A5704A39CA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA7257CE074D8680411687DB7E21C52A06151EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEF83DEB36C661B2E9D40C5B89DC22D98C33B8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0415CE7549CD9BB150D586C98AF3960EE12C1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - Disco In Desert (2013) [FLAC|Lossless]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:2D8ED5E78BE6FBA0D633ACE4F425C4A91D566210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7324B0D19382B6312DF0DEF7C72C0EDBB6BE7E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ B2.  Like A Gun  :: 03:15Жанр: New Wave, Synth-popФормат: Vinyl, 12", 
 ```bash
 magnet:?xt=urn:btih:5299EE66B2AFB659D5E9DD48793C68DBA9E1F3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:796AC272E80B5F2A4F3D54DFD65AEE48DCFD0067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ VA - Legends Of Guitar. Surf Vol. 1 (1991) [MP3|320 кб/с]<Instrumental, Surf>
 ```bash
 magnet:?xt=urn:btih:54DC233958154F114BFBAFAD2E7A36C308AD39D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ NG. Кумбха мела / World's Biggest Festival Kumbh Mela (2013) HDTVRip [
 ```bash
 magnet:?xt=urn:btih:0FC7E35E2A48A6EC02E65DB7CE0B4ECCEBCD21BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ jv16 PowerTools - одна из наилучших программ для ра�
 ```bash
 magnet:?xt=urn:btih:D02939F4D12CBA4D68467B3CE29DC3DEB72C9D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Brasil 690 - Cafe Bossa Brazil Vol 6 (2013) [MP3|320 кб/с]<Bossa Nova, Lounge
 ```bash
 magnet:?xt=urn:btih:CA9F8DE6D40C03C0C1FEA8641F3189867B1EE564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ NeoPaint - программа, предназначенная для работ�
 ```bash
 magnet:?xt=urn:btih:5849524B9CFA32F4894546B2280540D782DBFA12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E13418BA3552D55A89C9014C57813FC95F18F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Sacrilege - The Fifth Season (1997) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:D95EA0D09590F36FEB76CF1E8669878E4308CC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19A1CD02C3830A7D1783D2089102F86B2F8F49B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7CFD077C71AF8D960135C556BFAC99A1C4875E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ Sacrilege - Lost in the Beauty You Slay (1996) [ALAC|Lossless]<Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:EE30CFFD0E863CF3C699C283521F1E0AC5192275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ Witherscape - The Inheritance (2013) [ALAC|Lossless]<Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:BFC690B6C99BE09AF971FD2B7B9506BCDDAE1D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BEA06E96F3F883264F269FDFC399DAF11CA0CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

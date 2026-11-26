@@ -19,8 +19,7 @@ Hidden World / Тайный мир (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:C6FDF4548C4A32AF4E20B091701CB47AE95D83E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

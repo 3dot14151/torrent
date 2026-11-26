@@ -19,8 +19,7 @@ Need for Speed: Most Wanted – безумные гонки по огромно�
 ```bash
 magnet:?xt=urn:btih:3B4B4981646BCB648D755AFE97110F37950C1674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ PUH Edition v2(конструктор USB v2) - набор файлов для �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

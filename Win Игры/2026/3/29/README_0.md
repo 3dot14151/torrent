@@ -19,8 +19,7 @@ Eastern Era (2026) [Ru/Multi] (1.0.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:F9810472B5C0617B3619342E7884605762B8657C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eastern Era (2026) [Ru/Multi] (1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:0DB75DE6C1112C63FE7563C51B7D8FC9587A99D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Scourge / Tai Ương (2024) [Multi] (1.0.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:312487D2200023D16E4818A53B83A4D3B361216E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ tawarerumono: ZAN 2 (2026) [Multi] (22071867/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:04B349A5A0B40298A1FF192B317DF61D140534A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (4792145/dlc) Repack dixen
 ```bash
 magnet:?xt=urn:btih:996A9F46896CA8C164F34CA41FC2F523BA4B8917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Valor of Man (2026) [Multi] (1.0.0 Build 163) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AB201EE690CBFDEBD89BE00A70F18A20D26BB25E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tormented Souls II (2) (2025) [Ru/Multi] (1.4.3/dlc) License GOG [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:CA67D0C495D79159DC744A82AF5C969E4255A9A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ I Miss My Death - In Memories (2014) [MP3|320 кб/с]<Gothic Doom/Dark Metal>
 ```bash
 magnet:?xt=urn:btih:A939E7EBA41D359B4C0C044F3175A29702063AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BF8D4CE3552ADE5AA0C6776A748A3FD5BBBF24E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ The Upbeats, InsideInfo - Rituals (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:0B0AF4AA0BD6F3B8867B892038638C3237F8794D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Brother Firetribe - Diamond In The Firepit (2014) [FLAC|Lossless]<Rock, Melodic 
 ```bash
 magnet:?xt=urn:btih:1D4016E70B496F3FD8A38C71970931BDDE536DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5EDD8CDC7B5E4D0978384CCCECB93B3F4E6382C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Discovery: Реальные дальнобойщики / Outback Truckers. Се�
 ```bash
 magnet:?xt=urn:btih:DDFC85DDAB3EE8CBB5C589523363931D5C1F375F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5B1CD13077D613BA6F8422022B48E9E7852F269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:896A075FB928807DCE883FD6E775BA236465DC99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Slackjoint - That Moment (2014) [FLAC|Lossless|WEB-DL]<Psy-Trance; Progressive T
 ```bash
 magnet:?xt=urn:btih:1F6EC38E5ED54410AFE6A6838B6F09E39D64D7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Zero Cult - Aleph (2014) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:7C31B45DB6F49C0D62C489CC349ECFC834996D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ Grover Washington, Jr. - Soulful Sax (2013) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:0A492EE4642FDDA60209ABB0E16EE2EA64620321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ Current Value - Subs9.5 (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:7C9E8F097461DF5F5E7A6D296AE79721D4760734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ Loretta and The Bad Kings - Who's The Rocket Man? (2014) [MP3|320 кб/с]<Blues
 ```bash
 magnet:?xt=urn:btih:D64CC108AC64438F53EA911007FA76B47EF6676D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB36AF059AC217EBD0C126C25EEEF766756127E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BB91B4C286EB7852AF2BF8E2037CF7777A1E0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43FD6D56E9D51B43ECE8D917BCAA7331FD69C5D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ Chris Botti - Italia (2007) [FLAC|Lossless]<Jazz, Trumpet>
 ```bash
 magnet:?xt=urn:btih:200DA70E38BBBB92CE262FF710A9C7D5CACDF28D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ Spiderbait - Spiderbait (2013) [MP3|320 кб/с]<Alternative Rock, Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:155713E547B1DF6B2C1CBEDF3AE7A5FB02AEAB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:B75B83C0289792F98095C388CC413FC3A6F7E689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F7F3BE03183981F7349A71D96C002AA1199E42D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ Sticky Password – уникальная программа, которая ин
 ```bash
 magnet:?xt=urn:btih:9026E9B3490AC48176E8CB9B9862FF620C382F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D31587A0494FA14561A0B254C9770F8B045264DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +679,7 @@ VA - Goa 2014 Vol.1 (Compiled By DJ Bim)(2014) [FLAC|Lossless|WEB-DL]<Full-On; P
 ```bash
 magnet:?xt=urn:btih:7897D92EFA01BEBA5B0BC6D358D217905FAA2B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1436F9A714339EA43A9BA90A68BB45BC28F76AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +735,7 @@ Wise Program Uninstaller — это утилита для полного уда�
 ```bash
 magnet:?xt=urn:btih:DCC4DBBDD548E3A86D16B6987D66FF73A8950B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

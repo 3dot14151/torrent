@@ -19,8 +19,7 @@ FAR: Lone Sails v1.31 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A52479F7708F405F531FC29194F48137809DF1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pascal's Wager - это мрачная и стильная экшн RPG на м�
 ```bash
 magnet:?xt=urn:btih:5046D816EEC65B3452452A79020077207D173029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MudRunner — это непревзойденная гонка по бездор
 ```bash
 magnet:?xt=urn:btih:55081B8931B1D82F80F9266DB351BD11C431C9C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

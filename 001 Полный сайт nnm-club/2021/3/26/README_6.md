@@ -20,8 +20,7 @@ Dr. Stone: Stone Wars / Доктор Стоун [ТВ-2] [2021, TV, 11 ep] WEB-D
 ```bash
 magnet:?xt=urn:btih:6DEDA61AAC17B993EA6771ED31CBFB0348E4C482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season / Re: Жизнь в альте�
 ```bash
 magnet:?xt=urn:btih:F12B4FEA15BF59BB8301D2D1080E02A20B12DB27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C20FD440B0C08439EBB348F4955F119BA9A3784B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 21.03.20 [Ru]
 ```bash
 magnet:?xt=urn:btih:07D8B9ABD16EC455CD1F4CA9FCA339A199C4CD88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA4C17C834C5DF21AE660763633FCF3DD80831F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A10571E15A89AC2A17B7672519C84657E77672A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Jujutsu Kaisen | Магическая битва [2020, TV, 24 + SP] WEBRip 720p
 ```bash
 magnet:?xt=urn:btih:0264CF3BF1F60233B24CE71703E755A890F37FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Risen – это приключенческая ролевая игра от к�
 ```bash
 magnet:?xt=urn:btih:B87599FF2DD4E35F2589209DD7376781BA22214F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Love (2020) WEBRip [H.264/1080p-LQ] [PR]
 ```bash
 magnet:?xt=urn:btih:F70513E79BBD6DD7904B9AB9F1F5F01B053A8773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Office 2013-2021 C2R Install + Lite 7.1.8 Portable by Ratiborus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8658006EAAC03DBD7BF6901B4288C22C578A4836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:316FB57C2FB6EE327BA1F5C91A3661E0998E0B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 02.20
 ```bash
 magnet:?xt=urn:btih:29581840F21113646A3FB73D893164730EFF815E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF482B149CB510C030FEC169F189FED3EE9004C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ As Everything Unfolds - Within Each Lies the Other (2021) [MP3|320 Kbps] <Post-H
 ```bash
 magnet:?xt=urn:btih:36139B0208BFF0D1758D342F63C67609F207E70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Band of Spice - By the Corner of Tomorrow (2021) [MP3|320 Kbps] <Hard Rock, Ston
 ```bash
 magnet:?xt=urn:btih:8294A4DCC9DD0366D8E8DED93B5E997763979098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Wheel - Resident Human (2021) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:3C6E9CDF0D3795D1B45F5DF0825AF907562FF69C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Wythersake - Antiquity (2021) [MP3|320 Kbps] <Symphonic Black, Melodic Death>
 ```bash
 magnet:?xt=urn:btih:EB85A5D0B6A064972DDF48F9548FA9B35717F4A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ George Tsalikis - Return To Power (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:A3D2265B1970785FA318CF514D74F6EE193D86FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ XSTab - это инструмент, предназначенный для по�
 ```bash
 magnet:?xt=urn:btih:F320D08E7548A73D641D9DF6DCAE7CCF4FD05385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32ADC2460D4D216763638C708428BDEF7B339EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ Drakkar - Chaos Lord (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:6DCA5F7C2F58B7E2386162EAF981837D45EDD38E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Immerse - The Weight That Holds Me Here (2021) [MP3|320 Kbps] <Post-Hardcore, Me
 ```bash
 magnet:?xt=urn:btih:759CB4F06DC655C829915C3177EFFFD9E346192F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ TunesKit AceMovi Video Editor может отличаться от множес�
 ```bash
 magnet:?xt=urn:btih:7410F9733A55997203C5B1EB23CB83BB10432965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ Greenleaf - Echoes from a Mass (2021) [MP3|320 Kbps] <Stoner, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F66A7029D215A774037AFC9B51FEC34FF9C7CC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ Drakkar - Chaos Lord (2021) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:A2D2122429C7A8B70BC3FA8514833FAB35598EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48C85F4DF7A1B240E453049A3989AFB0DB8EEE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

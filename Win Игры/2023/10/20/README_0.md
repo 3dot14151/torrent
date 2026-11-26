@@ -19,8 +19,7 @@ Paranormal Files: Silent Willow 9 / Паранормальные явления 
 ```bash
 magnet:?xt=urn:btih:5C68AF0E348EF8597B603BB87EFEC4EED4C51CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Night Loops (2023) [En] (1.0) Scene Tenoke [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:68646221C96A131B2B74F91A2E651003F5208CD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bish Bash Bots - это уникальное сочетание жанров: з
 ```bash
 magnet:?xt=urn:btih:30A6FADAC0437B9E24757B9FE8CDCB7C4F691A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tribe: Primitive Builder (2023) [Ru/Multi] (1.0.17) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AC04E89A530727333A213C72F6A0561D1F16E30B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (7794846/dlc) Repack Decepticon [D
 ```bash
 magnet:?xt=urn:btih:713675CA577094D1927DCCC45228DABDAA01DEFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sniper Ghost Warrior Contracts 2 - самая сложная игра в про�
 ```bash
 magnet:?xt=urn:btih:2711F0A1DBC19F7B407904BE8B18093770ABB0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EB829315DCD4A947614D90CF3A9F457803FAE807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

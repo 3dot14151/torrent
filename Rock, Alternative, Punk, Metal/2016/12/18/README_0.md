@@ -22,8 +22,7 @@ King Crimson - Teatro Carlo Felice, Genova, Italy (2003) 2006 [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:CAF536149BE0DE273C42EEDD4C3BCCDD8921E938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Peter Crowley - Conquest of the Seven Seas (2016) [MP3|320 Kbps] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:425915B57DC22B15A705EF6A54A58EBADA7A3562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Amanda Palmer - Piano Is Evil (2016) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:2C0310B3211CCB9DDB6DF7651BA9348DE3F89B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - The Sound Hall of Fame (2016) [MP3|320 Kbps] <Glam Metal, Hard Rock, Rhythm
 ```bash
 magnet:?xt=urn:btih:2E0F71476ADA34DE3092033A64CE6393CCEFA49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3986DCC89C4F15099FB728F3656DB192FE56EF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Nautilus Pompilius (Наутилус Помпилиус) - Архив. Цифр�
 ```bash
 magnet:?xt=urn:btih:DF75C7BB770F5D4F7DFC8CF44FEA363A7D43B20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

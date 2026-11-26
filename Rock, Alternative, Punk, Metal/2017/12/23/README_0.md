@@ -22,8 +22,7 @@ ViceVersa - The Electric Flame (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1E34CCC0A760C706AAFE2E2B690E27EB23685944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chontaraz - Rondamauh (2017) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:5D5F1F15791C4ACB831E817B4C75BF899B5D3032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ AC/DC - The Razors Edge (1990) X-Cellent only for sale in CIS, 2003 [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:3F64CE9E71847E60932BFD936F0D7BB9EAE83CB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ AC/DC - Black Ice (2008) Digipack for sale in CIS 06573249 [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:5C0DB9E766060DE7589A50E0E6A1DA98DAA9EAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ AC/DC - Back In Black (1980) X-Cellent only for sale in CIS, 2003 [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:833336A16F472CC1E4159BF83F73E8717CC2FAA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

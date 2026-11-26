@@ -27,8 +27,7 @@ VA - Bossa n'Marley (2005) [FLAC|Lossless]<Jazz, Bossa nova>
 ```bash
 magnet:?xt=urn:btih:BC8F047E7F76ED40765CF36BD6617BBDBA92DDF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Cocoon 100 (2013) [FLAC|Lossless|WEB-DL|COR12100]<Tech House, Minimal Techn
 ```bash
 magnet:?xt=urn:btih:46AA5B72E4DB66F37CCA9FEFD4AA25E2CBE2249C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ DxO Optics Pro — один из лучших RAW конвертеров и ре
 ```bash
 magnet:?xt=urn:btih:AD16F39343E0F1118F5187BF7BBD1802D024C754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A57051162D067BE7936D8F428898CF9E5662C5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E365B771226566EB714B4ED2A0BCF8F082AACDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ VA - Эйфория (2013) [MP3|320 кб/с]<Chillout, Chillstep, Ambient, Downt
 ```bash
 magnet:?xt=urn:btih:FA8D08451CF4AA8D13693A3B7ED5FD5C1063618F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ Gregorian - Live in Krasnodar (13 мая 2006) 2xDVD5
 ```bash
 magnet:?xt=urn:btih:5F273F438D597B5F6C10D8D9E76E1BC4886949E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ Creedence Clearwater Revival - Bad Moon Rising: The Collection (2013) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:C63F6466E839BBD2DEB33C14A5429C60CFA5C5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ Wallpapers - HD обои для рабочего стола - Разное (12.0
 ```bash
 magnet:?xt=urn:btih:81B981A1194C3A002D8F4BD3F8F4ED2EE50E20FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1591E5C7CD2A3CB67AA0F33EA2CBE20E18603F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ VA - Clark - Feast / Beast (2013) [Warp Records] [FLAC|Lossless]<IDM, Experiment
 ```bash
 magnet:?xt=urn:btih:CF803853905E15CACA5186046B8F5193FB0C1D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +335,7 @@ Universal Document Converter – это наиболее полное решен
 ```bash
 magnet:?xt=urn:btih:2D862C8A516B52C7B1158CFCF3EC6A7F7F6BEF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A40C5D9D4309CA34B9524A2379CB9307F6514BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ Messa Da Requiem
 ```bash
 magnet:?xt=urn:btih:7D2DF2316471BC71C70A67692FAAFA9F349EA606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ Muddy Waters - Live On Tour 1971 (2007) DVD5
 ```bash
 magnet:?xt=urn:btih:7D3A3A3FD34EBE599D0D3142FA3A721765A4ECC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ Carcass - Surgical Steel (2013) Japanese Edition [FLAC|Lossless]<Melodic Death M
 ```bash
 magnet:?xt=urn:btih:FFC3F6054A559DA8C4355BEBDBDF7AA4099F2115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64D031661D9CE4B730BA0306D7EA3CF860E9A5F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ Mylene Farmer - Bleu Noir [Unofficial] (2010) [FLAC 2.0 24/96|tracks (WEB-DL)]<P
 ```bash
 magnet:?xt=urn:btih:B54EFE5325D9B59D21E0BE4EC26CFDD1C29A63F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AF02EB279187A5015079CFD2488A49FA8946510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3DB2895905D90281AB2AB6A21AE755DDA2B8824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F7B238E5F217AA1989BB821141DB13373F82AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:316679F8EFE182B508BDEFAB846F7B71AA77FB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ Emilia { Emilia Mitiku } - 2 альбома (1998-2013) [FLAC|Lossless]<Pop, Sou
 ```bash
 magnet:?xt=urn:btih:C48B4992B12E24C9CB19F3CBEA229DEC2B2CC6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08EE1A16728D8C255E14D7DF8DA87CAB3B14C0A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED124BBAF9D58F68165CDF5373CF418B420B4E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +729,7 @@ Adobe Shockwave Player 12.0.4.144 (Full | Slim) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2D2B2DA03F08F96C77C4BC9789F04E9F787D6440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

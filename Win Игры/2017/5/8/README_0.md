@@ -19,8 +19,7 @@ Ruin of the Reckless (2017) [En/Fr] (1.0.1b) License GOG [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:4EC56BD5D94A6D1395B12F7F1023A5B230057D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

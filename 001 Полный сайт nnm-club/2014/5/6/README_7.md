@@ -24,8 +24,7 @@ Kokomo - Matterhorn Bob And The Black Fair (2009) [MP3|320 кб/с]<Post Rock, P
 ```bash
 magnet:?xt=urn:btih:8E1B0E976A1B055D91015FE2EF936705DAD4C83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Crucis - Kronologia (1995) [MP3|320 кб/с]<Simphonic Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:18BE23057B65F2E4AA4241FF72ECBA6978CEE3C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E37676F86DD1F1FD836C17BEB767F3476C14D25D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Bloodhunter - Bloodhunter (2014) [MP3|320 кб/с]<Melodic Death/Black Metal>
 ```bash
 magnet:?xt=urn:btih:F116B75E3E427FEE28F7218E396F398BFFDA48BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Gustavo Montesano - Homenaje (1996) [MP3|320 кб/с]<Progressive Rock, Art-Rock
 ```bash
 magnet:?xt=urn:btih:5DD1F9F9D20A0BB1B534C370528F4B159C095AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ Mach 22 - Sweet Talk Intervention (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B704C9EE8D52FF0AB10DF723C7EB7BDB572080E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ A Better Finder Rename умеет извлекать EXIF-данные о вре
 ```bash
 magnet:?xt=urn:btih:4D18EBC61F65D4E837C85E4A8E41CB0E03BA8A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ aText — приложение для быстрого ввода текста �
 ```bash
 magnet:?xt=urn:btih:A31C76CFA74787C78EE0C03A1484F2C8382AC881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ McCoy Tyner - Giant Steps (1993) [FLAC|Lossless]<Mainstream Jazz, Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:30FAB48A5D9FCE41A28426B937DE14AEA3EC5A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D0F1C83D39F0D2DCDC59A9F1247373B838B77E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ A Better Finder Attributes — мощная и полезная утилита �
 ```bash
 magnet:?xt=urn:btih:BAEAB21C6B7325AD93AB5B2F9159E820C4C8958F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20BD7EA0DFF52285F7C3B44B5C0C94CA61FF5219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Hijos del Sol - La Oracion del Inka (1996) [MP3|128 кб/с]<Instrumental, Nativ
 ```bash
 magnet:?xt=urn:btih:625092841978A8C8A9DA3F87D59D0A165EA26A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ VA - Love Is Forever L'amour Est Toujors (2014) [MP3|320 кб/с]<Downtempo, Lou
 ```bash
 magnet:?xt=urn:btih:4C00E393F1F53F285C8023FBCB9F57CF7EF9B938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ Jenna & Her Cool Friends - I'm What You Get (2014) [MP3|320 кб/с]<Blues, Elec
 ```bash
 magnet:?xt=urn:btih:C87231DCC47E6FB6DCD64DEB1442650F9E9F57CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ VA - Музыкальный Заряд Энергии (2014) [MP3|224 - 320 кб
 ```bash
 magnet:?xt=urn:btih:455EC81A601FF08D3C80CFDDDA83A48CFCE0A883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ PicPick — это многофункциональная программа д�
 ```bash
 magnet:?xt=urn:btih:107E29952B660C56E113BFE05E72E933B8D08010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ Nevergreen - Vendetta (2014) [MP3|320 кб/с]<Gothic/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C5541941CF1471373B5B5BF76E14B0E62927A06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ VA - Music 13 50/50 (2014) [MP3|256 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:16CA077C53E774BD81A7A20293243104A2C2872E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CBA82F7F0342482CE06AC2DB74A8E5E82CB4A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +659,7 @@ Young P&H - Я гений (2014) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:D3025F78A487AD627B054D6BCBE907951AAB0E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ Wallpapers - Chevrolet (05.05.2014) [JPEG]
 ```bash
 magnet:?xt=urn:btih:E2DBEEA62F060DB8AE97AA88CA21BF94A7086CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48FDD7F17D4112E70DBFBB61924DED2CA88D7F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +743,7 @@ Grover Washington Jr. - Jazz Moods | Cool (2004) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:302BA6A53D2DE0089BF0B1DAE2D5B549DF48AB3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +777,7 @@ Elaiza - Gallery (2014) [FLAC|Lossless]<Neo Folk, Pop Folk, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:A6A433592E28CBCBF32E63BF6E6BF0C88E2E5D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

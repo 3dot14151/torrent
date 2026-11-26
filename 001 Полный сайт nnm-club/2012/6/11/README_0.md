@@ -25,8 +25,7 @@ VA - 50 Ibiza Trance Tunes (2012)
 ```bash
 magnet:?xt=urn:btih:F63B6135F44757B2BA2FCE744DA94DE7C74E27AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2F46FA6F4FBD96D4DFFE43F049FDFDF2E697C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Rick Erlien - The Music of Yosemite (1994) [FLAC|Lossless]<New Age, Solo Piano>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7CE093663D586B3305D9150991BD0ED25B2CBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149B4C4A604E37F516DCDF29A18EFEF21375D387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ VA - Country Blues Collector's Items Vol. 2 (1930 - 1941) (1996) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:C1F1B15B40D05F4192CEB107E94E1675A57DF49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Shellshock - Born from Decline (2012) [MP3|256 кб/с]<E-Metal (Industrial Meta
 ```bash
 magnet:?xt=urn:btih:9F45C4B33F734628BC6DFA81735A6DEF9684F999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF360B1FC70A596D1A22038307F28CC70DB9C415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CAC64499F089DA5E7AD9DD1B86C26BC7489428B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ VA - Deep Touched Vol.5: A Laid-Back Collection Of Electronic & Smooth Deep Hous
 ```bash
 magnet:?xt=urn:btih:5752CC69C870005BE132AE6C04C5125176ECC28F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:71C852C3BB7AB955806B18E51C02C4C01DA14981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ Mo - This Is (2011) [FLAC|Lossless]<Electronic, Downtempo, Ambient>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05BD1F77139DDF2C6CCE8DFDFD241AB236CCD07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ CD 1| Продолжительность: 01:03:26
 ```bash
 magnet:?xt=urn:btih:DC9E9A1A0FCA36087FFE4DCBDA73EBB0D3276796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ Redinger - Bound & Blazed (2012) [MP3|~245 кб/с ]<Hard Blues Rock>
 ```bash
 magnet:?xt=urn:btih:D5B4657D3AA8AF27B16A332080565FF6568B7CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE8E220AF353AEA003B25771D17F66C9248FBFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +511,7 @@ VA - Горячий клубный хит 50/50 (2012) [MP3|320 кб/с]<Club>
 ```bash
 magnet:?xt=urn:btih:707568D05F4AEF78ECA7C4306D4E98994B2DC0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CA1418DF9C2969EC044363E8E3450EDE32DACAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +579,7 @@ VA - Country Blues Collector's Items Vol. 1 (1924 - 1928) (1993) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:FD873A3D4FEE2EBDCFDF5B61053F914C9EA38CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +611,7 @@ VA - Sexy Trance #37 (11.06.2012)
 ```bash
 magnet:?xt=urn:btih:F6F82FA190FE9D4075EFF05C9497BB2C975F3922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +636,7 @@ Opera Core Update - это маленький набор обновления д
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C133E0B538AF5F4661B8ACFD867275187BB4DF39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +695,7 @@ Steve Tyrell - I'll Take Romance (2012) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +720,7 @@ Opera – один из самых быстрых, гибких в настро�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +754,7 @@ VA - Музыкальные новинки  (01.06.12 по 07.06.12) (2012) [MP3
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -813,8 +788,7 @@ VA - Bossa Chillout (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:2D1A23B7C14B9418A42D50439EF9B9792953C798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

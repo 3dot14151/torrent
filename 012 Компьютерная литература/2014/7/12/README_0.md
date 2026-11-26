@@ -19,8 +19,7 @@ Java Enterprise Edition (Java EE) остается одной из ведущи�
 ```bash
 magnet:?xt=urn:btih:F05F2BC81BE4FEC78CDE6A7280D48303A2F047A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

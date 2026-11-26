@@ -26,8 +26,7 @@ Cerna - Restoring Life (2013) [MP3|320 кб/с]<Post Black Metal, Post Rock, Ins
 ```bash
 magnet:?xt=urn:btih:0AF531F4ED570E8B8DB8A917AFAC9CC85B33C427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Mindless - Planet Of Pestilence (2014) [MP3|320 кб/с]<Powerviolence, Hardcore
 ```bash
 magnet:?xt=urn:btih:FB070F1F318F2F5D348C41E0FE4DE2B2697EE4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Downday - After All These Years (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:C8D8103C4968DC08391D642387F55B8F63C435E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Kestrel - Kestrel (1975) [MP3|320 кб/с]<Art Rock>
 ```bash
 magnet:?xt=urn:btih:661A5A8145AF11E583702ED4865B64D643C8A391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Deluge Grander - The Form Of The Good (2009) [FLAC|Lossless|image + .cue]<Sympho
 ```bash
 magnet:?xt=urn:btih:5520325730E8879A59DCB83962E2D589FD7960BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Deluge Grander - August In The Urals (1996) [FLAC|Lossless|image + .cue]<Symphon
 ```bash
 magnet:?xt=urn:btih:BDFA333BDDAB5534FA7B57E2B084C7751FB2C5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Kvelertak - Kvelertak (2010) [MP3|320 кб/с]<Hardcore Punk, Black Metal>
 ```bash
 magnet:?xt=urn:btih:93161D0DE0C6E12518CAC2803545D865E067D89E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ Al Atkins - Victim Of Changes (1998) [MP3|320 кб/с]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:D39E1E11ECCA24DB5083B3BEBEC6EDE7203C2D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ Geoff Whitehorn - Whitehorn (1974) [MP3|320 кб/с]<Progressive, Art, Blues, Ha
 ```bash
 magnet:?xt=urn:btih:12E9D50BD00FC4ABBB144C730ABE184CDC711D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ Beth Hart - 37 Days (2007) 2011, Smartfeller and David Wolff [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:7E0F5B1EF28F424167ABA8D28F26769A2BF16548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

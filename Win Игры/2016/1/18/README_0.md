@@ -19,8 +19,7 @@ The Quest - игра в лучших традициях Might & Magic. Стил�
 ```bash
 magnet:?xt=urn:btih:88B162FBC7485814D68640B9B9A6762D1F887B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Harry Potter and the Deathly Hallows Part II / Гарри Поттер и Дар
 ```bash
 magnet:?xt=urn:btih:294CE96155AE8BA48DC27BF6C3D37087F99162C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

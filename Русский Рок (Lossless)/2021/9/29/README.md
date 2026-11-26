@@ -23,8 +23,7 @@ VA - Maxidrom (1995-2005) 8CD [FLAC|Lossless|image + .cue, tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:FA8FC23E45D8E10853AABB8568E82B39E3B4BFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

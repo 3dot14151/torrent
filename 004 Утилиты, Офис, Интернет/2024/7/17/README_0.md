@@ -21,8 +21,7 @@ PDF Unlocker - небольшая программа для разблокиро
 ```bash
 magnet:?xt=urn:btih:CF2BC2701AE558B6278FA659228D6DEB69CF5A3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

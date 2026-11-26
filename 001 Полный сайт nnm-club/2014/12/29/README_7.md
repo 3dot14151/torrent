@@ -26,8 +26,7 @@ CD1 Preparty
 ```bash
 magnet:?xt=urn:btih:1D9261595C81DEB19808109D8E654F400BA6ECA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ The Old City: Leviathan (2014) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C368F69EA47E2D8A92C711A2D7EF63222B52EBA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ VA - Дискотека 80-90 годов по - новому (Зарубежны
 ```bash
 magnet:?xt=urn:btih:4C7D30338170E5F48A74F7D300CC04948C1B1787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D38705CEB4D80BA8CC29B0B1F087E5B3A5B9A0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ Windows 8.1 with Update - Оригинальные образы от Microsoft M
 ```bash
 magnet:?xt=urn:btih:6FA06BCECF51F4913680A10FB8E783EF06FD2911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAF608FB11B63DF124D8594B129F2C06E111D6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A18B9F27D14673070529AC8FC1CCC6C3F9794741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Adobe Illustrator CC 2014 входит в состав Creative Cloud. Поэт�
 ```bash
 magnet:?xt=urn:btih:E6E9E6D1224CA04228BFFFD67E2F32931B772711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ MGSV: GZ приглашает самых заядлых геймеров опр�
 ```bash
 magnet:?xt=urn:btih:569754FF9902412AFC63059CAE1A25313C4C4382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:83701E680E3AD10FA6F894D95FA336083F58740A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

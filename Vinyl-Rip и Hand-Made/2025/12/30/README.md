@@ -22,8 +22,7 @@ Kaunis Kuolematon - метал-группа из Финляндии, образ�
 ```bash
 magnet:?xt=urn:btih:9CDA80B9E86F4B9D53C56471ECB828D1554A44EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

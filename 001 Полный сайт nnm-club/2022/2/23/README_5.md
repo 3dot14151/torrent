@@ -22,8 +22,7 @@ VA - Notes from the Depth, Vol. 17 (2021) [AAC|~324 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:D2993729969CC3371FECC023E59F9C4BE942B407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Notes from the Depth, Vol. 18 (2021) [AAC|~338 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:362D6FDB193F94F4B9843D5682C4E7B37574F865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Notes from the Depth, Vol. 19 (2021) [AAC|~343 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:7E116031FBFC9B9E46A6CFB8A1AACF9D46932414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Evening Mood, Vol. 1 (2022) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0A4A8CBCA58A03D11D1A2BC37BA0C322F66DE219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Diamonds & Pearls Lounge, Vol. 3 (2009) [AAC|~315 Kbps] <Lounge, Chill Out,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Diamonds & Pearls Lounge, Vol. 4 (2010) [AAC|~336 Kbps] <Lounge, Chill Out,
 ```bash
 magnet:?xt=urn:btih:6C6021CE192B2CF043D44DB81CAA46B839023CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Diamonds & Pearls Lounge - 5th Anniversary (2013) [AAC|~336 Kbps] <Lounge, 
 ```bash
 magnet:?xt=urn:btih:E43665BB73E0B740500AD0C5C8532BBD12C7054F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD - 1 - Slow Death:
 ```bash
 magnet:?xt=urn:btih:6DC0F59B41AF17B4F58EAA7EE8AFA6C85BED9EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ James Byrd's Atlantis Rising - James Byrd's Atlantis Rising (1991) [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Diamonds & Pearls Lounge, Vol. 5 (2011) [AAC|~341 Kbps] <Lounge, Chill Out,
 ```bash
 magnet:?xt=urn:btih:96F883ED473D162112FC73C41DDAB36A6C8D76B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Diamonds & Pearls Lounge, Vol. 6 (2014) [AAC|~337 Kbps] <Lounge, Chill Out,
 ```bash
 magnet:?xt=urn:btih:DA94A3BDE61CE07A29D469D4C548D79D2DBD3343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - I Need You Tonight, Vol. 2 (50 Deep-House Babies) (2016) [AAC|~324 Kbps] <D
 ```bash
 magnet:?xt=urn:btih:6FE2F22BD910C2A932D5D5E69FE9F7924A2FD4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Deep House Rhythms, Vol. 1 (2018) [AAC|~320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:C425BF86A706BC3B7D46856450A33792CD8F5F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Sin Starlett - Solid Source Of Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Deep House Rhythms, Vol. 2 (2022) [AAC|~309 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:76536665CA8AC209494483A79E637D67801D47A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Diamonds & Pearls Lounge, Vol. 2 (2009) [AAC|~338 Kbps] <Lounge, Chill Out,
 ```bash
 magnet:?xt=urn:btih:CC7182CB23E5E903529D6A4437B7132DBCF21FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ VA - Notes from the Depth, Vol. 20 (2021) [AAC|~331 Kbps] <House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ VA - Diamonds & Pearls Lounge, Vol. 1 (2008) [AAC|~333 Kbps] <Lounge, Chill Out,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - Chill House Vibes Vol 3: Ultimate Chill House Collection (2022) [AAC|~323 K
 ```bash
 magnet:?xt=urn:btih:4F157899A25E2AE0962747D29AE8D9CF54EA4E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ VA - I Need You Tonight, Vol. 1 (50 Deep-House Babies) (2016) [AAC|~327 Kbps] <D
 ```bash
 magnet:?xt=urn:btih:752BDDA2BD2FE8E6337BCF00F5DFE67457CBACB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB4D590B07FA7E4EAD810202A3F17CB21B8EF4C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ VA - I Need You Tonight, Vol. 3 (50 Deep-House Babies) (2016) [AAC|~302 Kbps] <D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ The Korea - Vorratokon (2022) [MP3|320 Kbps] <Alternative Metal, Modern Metal, P
 ```bash
 magnet:?xt=urn:btih:D36DABCDFC97E996BE8F03DABF8D40EA19836DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ Kill The Pharaoh - Thrash Delivers (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 ```bash
 magnet:?xt=urn:btih:D4CD04B873F64D648437414075CF12D986314159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ VA - Sunset Relaxation, Vol. 1 (2022) [AAC|~305 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:C10721D61A1CEC59B5238F8380F11859AA26DB6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +722,7 @@ Emerald Night - Король эльфов (2011) [FLAC|Lossless|image + .cue] <S
 ```bash
 magnet:?xt=urn:btih:7E7001DC2AFEEAF5C10EC222A9F9207ECA32E3A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

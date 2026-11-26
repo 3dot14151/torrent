@@ -19,8 +19,7 @@ Ultimate Windows Tweaker 3.0.2.0 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:CC2B5DCBC5FAD4BA5B4AB20206D5403131AAF2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Adobe Photoshop CC - это комплексное решение для про�
 ```bash
 magnet:?xt=urn:btih:031CAD5285232B8534C9AC07BDB60959376A1934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Car Mechanic Simulator 2015 v. 1.0.4.7 (2015) [Multi/Ru] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:FC39CB9D18B7C379CD66ABBCAF97F7F53079BCFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Google Nik Collection — это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:56261AED4EE32505933277CE7E7D87A0839FBCC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dreamweaver CC. Совершенно новая версия 2015 года. Со
 ```bash
 magnet:?xt=urn:btih:FE1963E56A8182E184D9706CCF07B55547B77D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D5DEFB04C19461984470A878E7918CCB6BFB162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27C97CCCF16CF77A8A63F2F19E495E25DDDE7036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1874436DFC28BF21AE8C5E06C8967549EB29E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Hearthstone Heroes of Warcraft - настольная игра на андрои
 ```bash
 magnet:?xt=urn:btih:757FBC3FE0D90940C7C10D63770FED7083FE5409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Rolling Sun (2015) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:10CF8F4D9A25E4D979557794BD28FE687A85B2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Garmin: City Navigator Europe NT 2016.10 [En]
 ```bash
 magnet:?xt=urn:btih:33181FC2EFBFFA09B505CA561546E2629995209D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ System Shock 2 (1999) [Multi] (2.4) License GOG
 ```bash
 magnet:?xt=urn:btih:91618429E0C5EC281B0D924A0CAE02C139570DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ WPI by Lomalkin v.13.06.2015 (32bit+64bit) [Ru]
 ```bash
 magnet:?xt=urn:btih:F3D658A4BE17E63C493F7E40F2F615E88CA98734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ VA - Record Russian Mix (2015) [MP3|320 кб/с]<Club House, Dance, Pop, House>
 ```bash
 magnet:?xt=urn:btih:083425651BECE6792BBEB414CFC24B61B2432CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ VA - Дискотека Казанова Старые Песни По Новом
 ```bash
 magnet:?xt=urn:btih:ABF59A5811BEF1112F6C2F866B960AD1BE11DA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C866816C8B8D075636789257D86484896A32A620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ Pybursa.com | Профессиональные Python курсы online (2014) P
 ```bash
 magnet:?xt=urn:btih:0461CF11D75192B1F33B62A66507C06BEDBC1655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ Once Upon a Time — сериал в жанре фэнтези, действие
 ```bash
 magnet:?xt=urn:btih:479710FC9E6D56209333B69D057922A4E84CC6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C833F58058A3B3BDDD808020726E996C2F5C189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E0595D602AB3BD661E1B7CD73582CB8F6A5F6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ Hitesh Choudhary - международный спикер и консульта
 ```bash
 magnet:?xt=urn:btih:65A3277700C39232B3B65278B42983BC80A27CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6755EB25497C2D4268B6321791F6328DD9C6A75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FA94BCB311EA6CF76B87E8FFDFBEA7EABDF3C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ Adobe Photoshop CC 2015 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:486F4A31135DD7DEFEA4566CE338F9F7122081AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:413EC8D351FD87554FDDEE63BF728801FB7601C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +661,7 @@ Micrоsoft Windows XP Professional with Sеrvice Pack 3 VL Russian.
 ```bash
 magnet:?xt=urn:btih:22DB692D4F14B0A52CDE476CA676FFC36143B37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

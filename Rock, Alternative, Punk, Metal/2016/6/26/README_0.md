@@ -22,8 +22,7 @@ Elephant Plaza - Momentum (2016) [MP3|320 кб/с] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:4EDA487766BEABC662FFC0A6DF13EA4B9F2817E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Grand Slam - A New Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:89EFF8CF23AB60A3A46BEB9A3BCE45452F438889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rammstein - Liebe Ist Fur Alle Da (2009) [FLAC|Lossless|image + .cue] <Rock, Ind
 ```bash
 magnet:?xt=urn:btih:4933DF51909F6D750AA2961820D4F6BA9FE56712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

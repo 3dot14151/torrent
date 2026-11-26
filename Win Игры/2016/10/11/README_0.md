@@ -19,8 +19,7 @@ Dark Realm 3: Lord of the Winds / Темный мир 3: Властелин Ве
 ```bash
 magnet:?xt=urn:btih:AE25DA7E36580BCCD372FD597AD79A8FEF84ACCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tropico Anthology (2001-2014) [Ru/Multi] Repack/Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:71297483BECCDD8828732C2A1FC5030B9ECCAA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

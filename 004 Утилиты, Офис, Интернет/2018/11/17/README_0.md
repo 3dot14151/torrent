@@ -19,8 +19,7 @@ Air Live Drive монтирует облачные диски в качеств�
 ```bash
 magnet:?xt=urn:btih:C3A95EAAC8847D9FF97771FBD96936384F0C8E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SpeedCommander - файловый менеджер с многочисленны
 ```bash
 magnet:?xt=urn:btih:D305C5DBB62C0656532AF729186D06A27481F92C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Movavi Screen Capture Pro поможет быстро и легко делить
 ```bash
 magnet:?xt=urn:btih:9ADF0C6D444F57F7BAD7F18142DF2BD827E01B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

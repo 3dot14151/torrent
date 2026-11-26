@@ -28,8 +28,7 @@ ValSans - Sword (2011) [MP3|320 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:F4DC7D37EB7AEA15C2B674EAA73503457792CD79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Degradead - A World Destroyer (2011) [MP3|320 kbps]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:926E35D8404F8C7100ACBB988F94825F7F9C0020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Operatika -The Calling (2008) [APE|Lossless]<Symphonic Power Metal/Opera/Female 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC2584B5341287737A74FDBB5D2A09192BD94DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ CD1Жанр: Gothic MetalПродолжительность: 04:41:29
 ```bash
 magnet:?xt=urn:btih:06B67AD07BC5E2AC389396DC99A2E73001A4D860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ CD1 (Original Album):
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Carmin приложение, чтобы получить и показать д�
 ```bash
 magnet:?xt=urn:btih:9B1845191EA874E6CE75690DE2E2967D26C25AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Color By Number For Adults / Раскраски по номерам v4.5.5 [Ru/M
 ```bash
 magnet:?xt=urn:btih:17BA31BAB81BDAEB8793AE0AE9515FA441FD01F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:440965EB35F5BAA7C27CF9C5954BB79F9AC95A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

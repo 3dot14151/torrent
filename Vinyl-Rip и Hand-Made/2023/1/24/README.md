@@ -22,8 +22,7 @@ A4 Long And Lonesome Road(   Читать дальше...   )Жанр: Pop Rock,
 ```bash
 magnet:?xt=urn:btih:DE01C253D456D1B59789DCB8FEA0F866E12B44B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

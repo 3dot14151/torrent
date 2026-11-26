@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:35F3208F640BA60B33E9330EA9BBC338129F4F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B11150EF9B6B50AF2B741B8BDC55FD6DF998B456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ S.O.S. Женщины в море / S.O.S.: Mulheres ao Mar (2014) DVDRip [МVO]
 ```bash
 magnet:?xt=urn:btih:B271FE630682E785C4ED239664F8F070F7E7CF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

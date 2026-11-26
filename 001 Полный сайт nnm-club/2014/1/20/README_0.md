@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FE71F592E500A5D0FE1E9981AD27D0A34531CFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Revolverine - Samsara (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6B68E041BA495AEC22F7DC78F447F661CEE9FD57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Fenton Robinson - Blues In Progress (1998) [FLAC|Lossless]<Electric Chicago Blue
 ```bash
 magnet:?xt=urn:btih:944668DDD50270F1B972CFED7A55A7F52DD07C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:ACC4497B6F703F21C173480F16CA6BEE41CCB62D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Mohicans - Mohicans. Chapter 2 (2003) [MP3|320 кб/с]<Folk, Native american, N
 ```bash
 magnet:?xt=urn:btih:9C818D89344C7B534CE03313DA5A86FB7C17E79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Chris Botti - Slowing Down The World (1999) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:583E3948E2BEA541C0AA84B546FA8D162B37B7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Lee Konitz, Brad Mehldau, Charlie Haden, Paul Motian - Live at Birdland (2011) [
 ```bash
 magnet:?xt=urn:btih:5497879F5C1E05649568EEB623F7FF07AB8B22DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Bonus track:
 ```bash
 magnet:?xt=urn:btih:415CBA1ACAF1A3F09C8EF41E4730D9A3718EF2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00650CA8B92630FF1C48BB80E4B5CB403B7A75F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ Antonio Forcione & Sabina Sciubba - Meet Me In London (1997) [FLAC|Lossless]<Jaz
 ```bash
 magnet:?xt=urn:btih:8E019EEC460A8BCA07FA5FAC865D8CD005DFA400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D77BC3B59D809047966973D1B734522AC9DA772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ Huey And The New Yorkers - Say It To My Face (2012) [FLAC|Lossless]<Rock, Blues,
 ```bash
 magnet:?xt=urn:btih:A76D97EE460C1439266C169D5BFF9F8223889AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC40CEB33D8D02ED1A45022EB7CA3F218A66280B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3893CC2F73126C5FCC4563304780584FAA67938B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ Bill Evans - Big Fun (2002) [FLAC|Lossless]<Modern Jazz>
 ```bash
 magnet:?xt=urn:btih:76407041FDF11FF330707622C55B5781C64A6251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ The Jimmy Rogers All-Stars - Blues Blues Blues (1999) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:A0DD46C763D6643E329719F2EF77BC7A133BB8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A6F4FC06B66893BADBDB25025359E5086B302B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ Harmonica Hinds - I'd Give you Anything If I Could (2014) [FLAC|Lossless]<Harmon
 ```bash
 magnet:?xt=urn:btih:553B230AD235C4E48958071A6FE147CE52B482A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ VA - The Official UK Top 40 Singles Chart (19-01-2014) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:8EB208371828AAE09321F2321F91624099FAA33B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ Antonio Forcione - Tears Of Joy (2005) [FLAC|Lossless]<Jazz, Acoustic-Guitars>
 ```bash
 magnet:?xt=urn:btih:79FA0FB0AAF3205D242A27D0C2F9F96AC7E5B237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ b. Miracle(   Читать дальше...   )Жанр: Rock/Blues Rock/Prog Roc
 ```bash
 magnet:?xt=urn:btih:94E6C7B3A2539FCE3F09806F3D3C54E232747FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:B25DC51F0CD4F8E1C2181D337E7E61FD24F8C3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D3E6B6F30C9C6194B5123E9D400096B3EBBDAD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2EF916BBFE6235168C5C14891F0FA19071C82A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ VA - Top 100 Beatport - January (2014) [MP3|320 кб/с]<Electro House, Electro 
 ```bash
 magnet:?xt=urn:btih:E8C78B9A52A2E1F3AEAC8A33D814A3B2E410B46A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +784,7 @@ Benito Madonia & Antonio Forcione - Vento del sud (2000) [FLAC|Lossless]<Jazz, I
 ```bash
 magnet:?xt=urn:btih:FFA5DA1B9CC334FB2C9D4320B121AAE375F865AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ The Absence - A Gift for the Obsessed (2018) [MP3|320 Kbps] <Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:C7262224821DF9DDC2E1E43F57E67F96AF0F86FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Eldritch - Cracksleep (2018) [MP3|320 Kbps] <Progressive Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:086F148A97A0A049327BF3909E150C5350354CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADF1825D1725FE2B79056B0752EFF10633A7D0C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Deep House Spring Essentials 2018 [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:37EAD72C7DDFC2A7AE45BF3DF499A126CFAA842B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:692D32F4113ED6928C44DEE0BFAC105CF065F42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Fa Calor - A Chill Out Moment (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:68042CC59CFF3BD67677EA8F7020959C29F22AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD0C2B5D8B39D48D2580CF8F70995811D1E4FCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83B25A48DF5F5D96E9607F9E5DFFF28F1B81D467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Stormzone - Lucifer's Factory (2018) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:740596189381EB946AF8865F513DA284AA142CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - Hot Party NME (2018) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:9C3E05091E8D4DE87D76123EC80878F4F965B3F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Michael E - Cotton Blossom (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:818BC4A186CE1CEA69464EF662AFCC53EDDC857D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Arp-Life - Jumbo Jet (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:30F9AFF776188FC520CB425519D4AEAB3689458B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ VA - Havana Soca Quickhitter (2018) [MP3|320 Kbps] <Bachata, Mambo, Trap, Other>
 ```bash
 magnet:?xt=urn:btih:D9B49DAC35CADEB8D6E945E48EAE2670E5793CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ VA - Luxury Bossa Lounge (2018) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:C89C5B967F255C4378DB4BF280FFB77754FC6EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDD355F1D84B7B988A1E6649E7F52015925C3B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0DAF10367E43487222FFCEA518C5667D476FCA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5758A9BBA1AF9FBD81A3E5CA8803D4966A885F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Monster Magnet - Mindfucker (2018) [MP3|320 Kbps] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:93E2B059F51A65EA82F26909BB0A1C7811BD34DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E58DFA97AE75B1F49CD92583B96C20C9773B6725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Belial Pelegrim - Mara (2018) Arcanum Records [FLAC|Lossless|WEB-DL|tracks] <IDM
 ```bash
 magnet:?xt=urn:btih:6F136CADC4376965CE3F45803DD6E9BE4B45D7CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ Jóhann Jóhannsson (Johann Johannsson) - Englabörn & Variations (2018) Deutsch
 ```bash
 magnet:?xt=urn:btih:875FC221107FB2AD7AA3758E4C8D684E1C297E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBEF5ABE1EF8F0C0881283C5D76553B05CCDDD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A87C9264EFE916898FF3A9C5DFDDA2A1C45A52D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ Good Times - Просто Сложно Понять (2018) [MP3|320 Kbps] <Ska, 
 ```bash
 magnet:?xt=urn:btih:CBB9069EF483EDC5CE5B298BEA110B5BD9ED4AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFD56621A50329110C06326E617A897AC8FB7DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B07AACC4243E4EA5EA0A03E325310473CBD54522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

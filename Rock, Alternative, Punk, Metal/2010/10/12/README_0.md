@@ -28,8 +28,7 @@ The Beatles - Meet The Threetles![Bootleg] (1995) [MP3|128 kbps]<Rock and Roll>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

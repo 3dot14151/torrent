@@ -19,8 +19,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:531E08D46327CD936A5D2CCDDA817410EB0BFE4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eternal Strands - это дебютный фэнтезийный приключ�
 ```bash
 magnet:?xt=urn:btih:936939962AD840E861976393A3810CAFEF27A13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battle Realms: Zen Edition (2001) [Ru/Multi] (1.59.1 HF5) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EA2A1D133CD570C55145E5585281DFB3BC1C164F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:5031AE921A074E82BE7D025EC57E6D1302CB0022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mika and The Witch's Mountain (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BC6559F1362B0279273DB33DFC4AA43E7AB01B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Deliver Us Mars - продолжение получившей множество
 ```bash
 magnet:?xt=urn:btih:1D56A7FA97B864628256D8DDB9790585C8E8F455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Foundation: Новая эра в средневековых строительн
 ```bash
 magnet:?xt=urn:btih:D3B7C3C2B6FB7B0AB037CAECF3ED6D1B42BD7454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Code Alkonost: Awakening of Evil (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8DEA07D9D1674FCCAADFAD23664BF92845F2FD14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Metal Savior Black (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5A270E11654DD23DF265873F8E287F758057E81C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.130.1.0/dlc) Repack DjDI [Digital Del
 ```bash
 magnet:?xt=urn:btih:A202DED153F515DA75F75C92019F78607F598276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17162178/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:F00D3A654662909C965DE6F4A1BDDCE8F7884FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (Build 17103742/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:F0D125FAFCFCCE4C56F6BD16953FA61A20FFF487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ From The Past (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DCC192ACE82E78F5C5782071CB4F2F2B6D32E538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Retro City Rampage DX (2014) [Multi] (2.10) License GOG
 ```bash
 magnet:?xt=urn:btih:3CB6F6261BB3BE0FB688CC2C4BB3F3E32F097CDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

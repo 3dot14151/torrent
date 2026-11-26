@@ -19,8 +19,7 @@ Kenshi (2018) [Ru/Multi] (1.0.50) Repack xatab (обновляемая)
 ```bash
 magnet:?xt=urn:btih:605F039452219992D490C63AEA120C98D168BCC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

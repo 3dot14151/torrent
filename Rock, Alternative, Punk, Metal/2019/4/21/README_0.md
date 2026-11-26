@@ -22,8 +22,7 @@ Ripping Corpse - Dreaming With The Dead (1991) [FLAC|Lossless|image + .cue] <Dea
 ```bash
 magnet:?xt=urn:btih:A1108EEBD947D5DD1DFECC508EBF6D1D9ED74B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

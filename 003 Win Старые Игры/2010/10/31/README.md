@@ -19,8 +19,7 @@ The Legend Of Kyrandia: Book Three: Malcolm's Revenge / Легенда Кира�
 ```bash
 magnet:?xt=urn:btih:06B82640E559C0F4EC3044F0D81961AF41C82B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

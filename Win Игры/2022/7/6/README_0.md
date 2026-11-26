@@ -19,8 +19,7 @@ Iron Danger - игра, в основе которой лежат тактиче
 ```bash
 magnet:?xt=urn:btih:97143FAA93061D48EE9B8B88E43D620BCA2FEE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Furi (2016) [Ru/Multi] (1.7.224/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:ECAD5C3CFF93E91BEB2D52C5D51F376D0AE67A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

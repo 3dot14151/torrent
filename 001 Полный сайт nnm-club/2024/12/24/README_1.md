@@ -18,8 +18,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:9417AF70DAB99F860204352C538418EBF5B2727D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack seleZe
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAA9539E7192AD5DDABDA00A5191CB5F0994C88B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8FBC6A47E4357819911CA2D63E9796B1844A250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ ClipAngel 2.15 & portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:956E9A6EF5C85C7E51AEF38EE1B5A9F324C0FD60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:2A51A36F5C30E8835C827F531DE7F7E75123189C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:D64655BA8433798FC0349E5097AA891BE0DB5AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Madrona Labs - Studio Bundle 12.2024 VST, VSTi 3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:A946F35D2AAD414CFEC97A452709E4299145ED7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76E6B1A38AC77537BE6A8C42A59271AC530965DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ VA - Sensual Sexy Songs 2 (2024) [MP3|320 Kbps] <Pop, R&b, Other>
 ```bash
 magnet:?xt=urn:btih:4483E748E684D25A9F3FB47D28C7067451CD84ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Multi Commander - мощный многооконный менеджер фай�
 ```bash
 magnet:?xt=urn:btih:77CBB579FBB6D3F8CEC49446C8C72DD65C4555FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCA8F050B3AA2864C181BFDAAD9A6BB0F0641E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DF9AD9D02172337E61311756338364B9EB72659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1F24659F8BE090DE89F693B683BE174F6445862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ Mikhail Sakhniuk, Adam Boduch | React and React Native (5th Edition) (2024) [PDF
 ```bash
 magnet:?xt=urn:btih:8B1D53B96DAA6332FD80CE84EF0334C51E072A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ Love Live! Superstar!! 3 / Живая любовь! Суперзвёзды!! 3 [
 ```bash
 magnet:?xt=urn:btih:CD6AB464A4280F80EC51A6D5AC52560F40865271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Frances Buontempo | Learn C++ by Example (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:E7750797B30E502E59BDDFF8404A03BB4CD4E49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A16B9D35EF0DCACFE662FF4058C2B501FFEDB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ Opera One 115.0.5322.119 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C8D9A8D4A717AB4F3E67713579179014C1C3375C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ Natsume Yuujinchou Shichi | Natsume's Book of Friends Season 7 | Тетрадь 
 ```bash
 magnet:?xt=urn:btih:D065BF52E60F5FA7133EBF4FEE5949A6778DBB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ OpenShot Video Editor - видеоредактор, позволяющий ле�
 ```bash
 magnet:?xt=urn:btih:7A5106A2B070F5D663E9C7E3EF01BAD742D8A3CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59AA55FB88A22D7AE2E6216C191E6193FB0F722E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34F69574DCACACC67FCE02718A3F49275752F1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ Corr Database 2024 (2023) [En] (2024) License
 ```bash
 magnet:?xt=urn:btih:4B50A359E1F1B562DFEF23F80ED00A15D10DBA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D169DFEB04046AD058975D05F3390DF5B2B888A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

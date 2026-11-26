@@ -22,8 +22,7 @@ Frozen Crown - The Legend Of The Six Kings (2026) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:9D0DE03E164477440C639A9C63F9024AC48AC0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bon Jovi - New Jersey (1988) Japanese Edition [FLAC|Lossless|image + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:2AB2C10CB9DCA0B0188F4E2DFDE0307D06844AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Judas Priest - Sad Wings of Destiny (50th Anniversary Remixed & Remastered) (197
 ```bash
 magnet:?xt=urn:btih:7435BEE0DE57CF72968EC48123773038CA730C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

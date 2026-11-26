@@ -19,8 +19,7 @@ PlayerPro Music Player - аудиоплеер, что предоставляет
 ```bash
 magnet:?xt=urn:btih:4D7FD2AE299BF252C6C696925F2709F5655CB5B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Beelinguapp - образовательный проект для изучени�
 ```bash
 magnet:?xt=urn:btih:B9BCAD085880332D2F551C1E40110BA8E0FCAF9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

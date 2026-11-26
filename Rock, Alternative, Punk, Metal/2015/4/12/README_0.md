@@ -23,8 +23,7 @@ Impalers - God From The Machine (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:9037835DE15CA071478A71BECFF02BFA9E64A85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The Storyteller - Sacred Fire (2015) [FLAC|Lossless]<Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:0B0142DA1AC434760968F781B4CB9FB8B50817F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B595A2F7CBB8EFB51999C7A11235230A12F68585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

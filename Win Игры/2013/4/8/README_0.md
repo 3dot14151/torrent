@@ -23,8 +23,7 @@ Marvin's Mittens - несложный и красивый 2D-платформе�
 ```bash
 magnet:?xt=urn:btih:3837DF5345FD5936BC7FABC9D9E79BC812E5816D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Burglin' Gnomes (2026) [Ru/Multi] (HotFix 2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8E675BB23C2A40804C37DBD1FE60C02C9F802909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

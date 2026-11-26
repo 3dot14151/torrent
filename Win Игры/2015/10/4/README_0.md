@@ -19,8 +19,7 @@ Color Guardians (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:7766CD88573E184E5DA5D669D1A76F22AC495A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cross of the Dutchman - экшен рпг от "третьего" лица. В �
 ```bash
 magnet:?xt=urn:btih:ECCBFB1FFE573F62A6130007360888F365300D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Leo’s Fortune - это платформенная приключенческа
 ```bash
 magnet:?xt=urn:btih:25D623C12F56296174339B753F379C62843E77FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

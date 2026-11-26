@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D15E03EE97E8F05CE5CBAB1298937F3DEBE763B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Duran Duran - Future Past (2021) [AAC|~308 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2D0A43A11553BAFF97079CC85A2DE142B5B173EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Pink Floyd - The Piper at the Gates of Dawn (1967) Remastered 2011, Pink Floyd R
 ```bash
 magnet:?xt=urn:btih:757D9C246C7478D9AD854B611395A5127B561C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Duran Duran - Future Past (2021) [FLAC|Lossless|image + .cue] <Pop, Rock, Electr
 ```bash
 magnet:?xt=urn:btih:4392C167608D727413C6B19033CFD011352A73C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:63B9E0846FF6E380216E9E1576A174424F570A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF9FFB22790A301362C61663716477EE2780E875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Pink Floyd - Obscured by Clouds (1972) Remastered 2011, Pink Floyd Records [FLAC
 ```bash
 magnet:?xt=urn:btih:E4900EB1031912199A27E5ED836A6B8114FC7478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF6C47605FBDF13FBF3AAE5304BFF31559DEDD9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8E4519660390988EB415DDBE6F45B6F8BF917CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D4843BDB8A95E82B91445D96FD595EC02752E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ John Tesh - Tour De France-The Early Years (1990) [FLAC|Lossless|tracks + .cue]<
 ```bash
 magnet:?xt=urn:btih:AD16E0671300A20765FCA35792F6A6F006CBCE0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Sigil — программа представляет собой мощный р
 ```bash
 magnet:?xt=urn:btih:A7CD00892557D41E41608E4DD0327FDCE0F20E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F9324AF0C03A7671D1FFA63D06A05D950BDB67A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37EE43C5DA0AE15C186604F114663D68E6A6130C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87525C294945128538444E0808672ECE0590E3ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Pink Floyd - Meddle (1971) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|
 ```bash
 magnet:?xt=urn:btih:3CE4C4D058D6A3F2DEF92C10C073CA3C884325C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:3C34D6BAF4C221E52766A9AC839059ABFD90A5FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8FBEEA3B8EB9FB58B61906B6FC723BA5F4018EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Digital Art Live - это потрясающая демонстрация одн
 ```bash
 magnet:?xt=urn:btih:F2B90596552F9C1923A889CCF3FA527F758ABCE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ Ozzy Osbourne - Blizzard Of Ozz (1980) 40th Anniversary Expanded Edition, 2020, 
 ```bash
 magnet:?xt=urn:btih:F90D24F85D259AE50903E3BC784A02B5E61A141D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:2DFCFAC4FE46D025F901861BE479A56110CD434F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ VA - Piano Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumenta
 ```bash
 magnet:?xt=urn:btih:C3E4C85539ABD8DBE0BC5FAC79740065E882186E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Pixelmator Pro — это невероятно мощный, красивый и
 ```bash
 magnet:?xt=urn:btih:A5F688FC531BB1ADDCAC35E39E9BF7B54897D751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ Pink Floyd - The Final Cut (1983) Reissue 2016, Pink Floyd Records [FLAC 2.0|192
 ```bash
 magnet:?xt=urn:btih:EE73DF5E42C0C92DA83C0584BA9A6DA932A61453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ Pink Floyd - A Collection Of Great Dance Songs (1981) Remastered 2001, Pink Floy
 ```bash
 magnet:?xt=urn:btih:587E677566ACCCD04FE60F1A554ED95633AA298F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:962B9CE5CF98CB5A71DD5F62A290FB7DBADCD17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

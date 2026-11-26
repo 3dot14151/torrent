@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2E55F20851B4714640C214B11A19A1A2EB3A1E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Subnautica – это ролевая игра от создателей Natural 
 ```bash
 magnet:?xt=urn:btih:F85B8A702F5286330C274D199A23BF48FC034717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Dark Souls™ III продолжит испытывать игроков на п
 ```bash
 magnet:?xt=urn:btih:7E653AF35A88E179DA5BF61D259176B568A44A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

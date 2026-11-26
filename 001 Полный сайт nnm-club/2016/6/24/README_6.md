@@ -22,8 +22,7 @@ Joanne Brackeen & Ryo Kawasaki - Trinkets And Things (1978) Remaster, 2015, Soli
 ```bash
 magnet:?xt=urn:btih:88FE27285482E7D1498A310932647DB3A83F0DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DFB90D04ACDE2D61AB17DB4C174110C234877D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Stacy Sullivan - Stranger In A Dream (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 ```bash
 magnet:?xt=urn:btih:869ECF86058D72C27C2465E9ABAE5B612FCA9F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1806E49A15F938A0AD372DB8FA8FAA0DF46CF677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2B6912866B31CBD3387C7D653C9760E7C29CBA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Highlord - Hic Sunt Leones (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:F04D4B4C806F9D2C9C0DDCC6CAD117BEA1948584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:D7BFA48107D34A74F871B1775E3CEE8D907D6F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ VA - Space Trance Vol.2 (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:DB4890451BB2394D48A06D5EA77FDC9FB439A010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ VA - Ibiza Summer Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:1C9FBAAC0923AC4C3A859A43BA5083B29DE80BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:A797EE231A3E5C1EE024A9E22888928AEB3A9C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ VA - Club Dance Ambience Vol.70 (2016) [MP3|320 кб/с] <House, Electro House, 
 ```bash
 magnet:?xt=urn:btih:46C31EDB1CFFB5F7F1F3B14A488FC2C654E75C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ VA - Armada Ibiza (2016) [MP3|320 кб/с] <House, Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:1D94066854191D77E88E3ADEE068CA0696F47354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Mary Lattimore - At The Dam (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 ```bash
 magnet:?xt=urn:btih:468C2336C90704E4EB14C591BF8621103D5921F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FAAF61BB3A3F157D565B2321A224AFF948CFF36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ VA - Epic Trance Force Vol.4 (2016) VIP Edition [MP3|320 кб/с] <Trance, Hard 
 ```bash
 magnet:?xt=urn:btih:73EF6196F220EDF49CDE36B9DFBCD3E5E6E7D503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ mimoLive - программное обеспечение, которое пре�
 ```bash
 magnet:?xt=urn:btih:87B24F94B1E0125317DE78BAAA08CB15F9C757DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Thor - первый беспилотник, изготовленный при п
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ VA - Vocal Trance - Extended Remix Set (2016) [MP3|320 кб/с] <Trance, Vocal T
 ```bash
 magnet:?xt=urn:btih:EE7AC85631139F4B88858460B2E825C794F1D385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0460DEB1191F4682CCD613862FF68780EEE0939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40C640E5E6DCD4D3886B879D208CA18A918B967F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ VA - 40 Dance Summer Hits (2016) [MP3|320 кб/с] <House, Electro House, Vocal 
 ```bash
 magnet:?xt=urn:btih:649592A89003D24B13B74401EB4BD621686BBF9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Elevation - Days of Elijah (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instru
 ```bash
 magnet:?xt=urn:btih:E5DC46791D4C435EB5A9A8570194D7FA20FB7AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 magnet:?xt=urn:btih:D248806A43C0191BA848C3614295F1A81986584F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ iA Writer — фон, шрифт и курсор
 ```bash
 magnet:?xt=urn:btih:DA7E61867FDA3E8E38039E0E5F2367C6C9176937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BDEF218C4086FC6E2F6EFE8BC9EF596AE4443EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCA3CB6C189F2B80DDFAC753FA0473F5E65DF7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

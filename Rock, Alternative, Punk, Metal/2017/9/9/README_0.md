@@ -22,8 +22,7 @@ Obscenity - The 3rd Chapter (1996) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:57E74433D15C040D35A31FEF03D334276C99B20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Obscenity - Where Sinners Bleed (2006) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:219244DB63CF308F2AF53B3AF4BBAFA4F37CE0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Entrails - World Inferno (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:17566B65091EBB7832593E562DB4FC7C52E9B5C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Paradise Lost - Medusa (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Got
 ```bash
 magnet:?xt=urn:btih:228640AE4B2AD71128AC600932AF87F7490D5662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tori Amos - Native Invader (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:AAFA157DF9171D008B875C934374B73F5C850959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3D9008A9DF64C765BBF7233EC39BCA9AED49045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

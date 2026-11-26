@@ -20,8 +20,7 @@ Personal Vault - Удобный менеджер паролей предоста
 ```bash
 magnet:?xt=urn:btih:051691FF1E877B2DEACFE3339B0478415CC8B673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Bliss - Icon Pack - Отличное приложение, которое сод
 ```bash
 magnet:?xt=urn:btih:C4C1CF188FB62CF11C7ABCD273DD338CF319D723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Frequency generator / Генератор частоты 4.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:63FF70AA8C2B80881E71638B221FBE1F5DA87715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

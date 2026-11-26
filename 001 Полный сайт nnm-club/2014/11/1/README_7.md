@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DE005912CB78F3C85FE3D58D7FFC8AFBC6FD9159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Weekend (Уик-Энд) (2014) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:CEAE84D88ECB6CDDB5AA9C984C7DE34A1D64BDF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D07A1BDC64D64D35440E35372F2240838C0EAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:475AD408EB65B868F2F6B2EC51B86B5BFE3EFE91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69CD3A0218ACECF1B992D9A4C6309691CB1ADB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:7128E3154F25D76B5D8A5195AED645B8E06666E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Age of Wonders - красивая походовая стратегия в фэ�
 ```bash
 magnet:?xt=urn:btih:19BAB03064265CDBBE8D4DC8D77D4064E7EC8B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E5CC35667B3DE56BD439208B5AEF488F2C79ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Age of Empires II: HD Edition - переиздание стратегии 1999 �
 ```bash
 magnet:?xt=urn:btih:2737E42582725A4F442740E8589F9820C15227AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:995AD6CE52B3B82187747F95B899772256DE989B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:497FC4EA37688FC2248C5DFD27FCE2DC37A5F36A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ WWE 2K15 [PS3] [USA] [En] [4.65] [Cobra ODE / E3 ODE PRO ISO] (2014)
 ```bash
 magnet:?xt=urn:btih:C0C2B9E7454A773918D3DB5CCCE39E50E20012CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Paragon Hard Disk Manager - многофункциональное и удобн
 ```bash
 magnet:?xt=urn:btih:3AD534031D57EE0D32BCE414AF1EB9147DB65303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Adobe Muse СС – визуальный конструктор сайтов, ф
 ```bash
 magnet:?xt=urn:btih:38F4F5B97F0B2263438808AD4CE11D6AB5F81757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Alice - это необычный 3D-шутер от 3-го лица, основ
 ```bash
 magnet:?xt=urn:btih:A9E3CB5345CD00EC9E440FD459B31B17B4ABB0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ The Longest Journey Dilogy (2000) [Ru/En] Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:59C5C40AC03AD6E8EAB6EA933655612D4218A242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Clean Master v5.8.8 - чистильщик-оптимизатор смартфо
 ```bash
 magnet:?xt=urn:btih:83D9F4AE91B047D4868FCE64D708A83343D74966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Resident Evil 6 (2013) [Ru/En] (1.0.6.165/4dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:F9F3C24FBD5F4AF8FBF33E8D435E99FD335832AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:798D3EBADE2D1D660D69C6FA10D33C152DDE4643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ Batman Arkham Anthology (2009-2014) [Ru/En] Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:A0B564A7B6A63FB894DC550A2716D325A8E92275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ Payday 2 (2013) [Ru/Multi] (1.18.0.0/24dlc) SteamRip R.G. Origins [Career Crimin
 ```bash
 magnet:?xt=urn:btih:B3EE1B1C4DAAFD90ECB1CC99539257157F1A280A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2CBBF31813777FC96451698B475BB816D6AB0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ Clive Barker's Jericho (2007) [Ru/En] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:85FC33FB8696604D368E493CB64256726707B48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ The Sims 4 (2014) [Ru] (1.0.732.20/13dlc) Repack YelloSOFT [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A25A568CAF3E0327893AF402E22E4B7EF971C010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2DAF8F2DA035BF1CC23B47AA8FA5A5D59259901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ Sniper Elite III (2014) [Ru/En] (1.14/all dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:16CA0A3782EA6E87EF69C88DD5CC39BCAB319B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:67B54B2C991A026F75FCD07BFB352912495D78A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Wallpapers - Горы [JPEG]
 ```bash
 magnet:?xt=urn:btih:746A05987DD2418AC02A525F2DB9309B12C73FAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Vocal Dubstep - Dubstep Light#3 (2014) [MP3|320 кб/с]<Dubstep, UKG, Grim
 ```bash
 magnet:?xt=urn:btih:6D9EADD4A55B0E04B060B40DBE123CC5C440EF8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Радио DFM - D Чарт - Top-30 (01.05.2014) [MP3|~256 кб/с (V0)]<P
 ```bash
 magnet:?xt=urn:btih:3F21B6C9812BD30C1DC3CC82BCFAEEE131E2BECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Самые Забойные Хиты в Тачку (2014) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:5BD4E24AD7450B567CC31059E3FD438A3C7D6B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA1C6C743BB66FFFFA6DA418ABB5CB8B46FEFA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ Stackridge - 4 Albums Collection (1971-1976) Japan Mini-LP Reissue /2001-2008/ [
 ```bash
 magnet:?xt=urn:btih:DDC314E984A82C9AE1E8CE838F2C3A8FAC297CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Windows Hotfix Downloader - небольшая бесплатная утилит
 ```bash
 magnet:?xt=urn:btih:07351E6B612198980B420AB7E1D20BA02B742094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E33C0085A3432C0153AFEBD77D7B4EC2DE3AC8C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ LostFilm представляет вашему вниманию озвученн
 ```bash
 magnet:?xt=urn:btih:F4BD09CCA9EF221C50C0C3F2E5C07B50B6B2918C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A06086CC57E3305D6E4D1C356F8B921851828DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55524871877C1ECA2B736BE541C1FB24F6CA4826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ Richard Clayderman - When a Man Loves a Woman (2002) [WavPack|Lossless]<Easy Lis
 ```bash
 magnet:?xt=urn:btih:5F4D68D259D2B3C22ACACDF7130091F8FE4B4671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67F24FB03B52440920FB352E7F4286A3B27D153E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:584E380E649E67CE531A5484ACC7E8948021FC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:462727D6265415761115D748B707A3B48D6AF042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE259A57AAEE81B0156649584EFCA0DE14646B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ Out Of Focus - 6 Альбомов (1970-1974) Reissue, Remastered /2000-2010/ [F
 ```bash
 magnet:?xt=urn:btih:A801FF3C0C633092BBB883E5AA6034333B1BAC0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ Xandria - Sacrificium (2014) Limited Edition [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:7D57306241EEEA21DA1F8D2986E19DFE172887B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ VA - Kiss FM - Top-40 + Kiss FM - Top-10 (01.05.2014) [MP3|~256 кб/с (V0)]<Da
 ```bash
 magnet:?xt=urn:btih:23AF24889262A3D6D25A0018EB83BF20A5EF51E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +644,7 @@ Open Kids - Stop People! (2013) [H.264/1080p-LQ] WEBRip
 ```bash
 magnet:?xt=urn:btih:0D5F6A7AAD3313B2927271BD63B7E11F7E9E3EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +678,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F6873E90F48C0EAF5AF2069C5A2C3B3167E72060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12DE4286DC6B99267F4DB17994FB7D0C3E4F35C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +737,7 @@ VA - Радио Record Superchart Top-33 (01.05.2014) [MP3|~256 кб/с (V0)]<Po
 ```bash
 magnet:?xt=urn:btih:3F8335AF44EB7F82A7E916E1377B7D98F4329222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

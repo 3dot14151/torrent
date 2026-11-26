@@ -19,8 +19,7 @@ DailyArt - Daily Dose of Art v3.3.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F95218BCF63400171F9DD85D1271CBAFE56F9AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

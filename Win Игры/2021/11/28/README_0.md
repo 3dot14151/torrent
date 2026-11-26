@@ -19,8 +19,7 @@ Majesty 2 Collection (2011) [Multi] (1.5.356/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:316283A7E2E430B264599F687984E80C952637F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tunnel of Doom (2021) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BBE9D68FA1271ABDED7CBF46C67CD9B1E5FDDB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

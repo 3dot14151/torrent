@@ -22,8 +22,7 @@ RPWL - Crime Scene (2023) [MP3|320 Kbps] <Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:B2114D2E06C445CFEF69757DAFD52A9519EAFF50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ orion trip - В поисках ответа (2023) EP [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:CC971E453C15E04FC36D47D0EB05E5C015146F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4DB9F1DFB10B1BB0EF74EB81C51EF545428C526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Marco Luponero & The Loud Ones - The War On Science (2023) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:8778301496FF287611615A26DEE2C9BDE529A350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB1FF0BD90DB32EBAF4A86155864585E97342956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Kamelot - The Awakening (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Progressive Pow
 ```bash
 magnet:?xt=urn:btih:E9A29A3DE755A06FC5B4540A7AF02CC73C3447D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Kamelot - The Awakening (2023) [MP3|320 Kbps] <Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:3B5F4A5D872D9F6758C23E3B1E59748AA37F4DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57B6A9BCA1F017C78C23B98F3B3E1029A7D038E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BC09F5AB8286CA8B13F1AC7142DFCDCB18FBEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Martillo Austral - Requiem (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:C005D4267E1126922F664F842EB6D9F780CC25DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Rock Ballads (The Greatest Rock and Power Ballads of the 70s 80s 90s 00s 10
 ```bash
 magnet:?xt=urn:btih:43F2043F9009911B813C0B6E0B42F064C158715A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mysteries of Neverville: The Runestone of Light (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:ECA2E51406406C6337A999B191171EE1C9775A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forgotten Books: The Enchanted Crown / Забытые книги: Зачаров
 ```bash
 magnet:?xt=urn:btih:6B34EFD0E893439F44285CD15BDDCA497DA939A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Shadows: Price For Our Sins (2012) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:21DDEC4F7F41952CA02C5B981412786DEA526CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Orc Attack: Flatulent Rebellion переполнена зубодробител�
 ```bash
 magnet:?xt=urn:btih:EBE10BA973A09EBF04702A17EDE30C719447BAF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Hegemony Rome: The Rise of Caesar - стратегия в реальном вр�
 ```bash
 magnet:?xt=urn:btih:1EC1A6036E9EACA6FB197E504B6C3C3D791C087B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Men of War: Assault Squad 2 / В тылу врага: Штурм 2 (2014) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:6BB7426C7E2190094F0988ECBFCC47B19C6D202E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ A-Train 9 V3.0: Railway Simulator не является просто симул�
 ```bash
 magnet:?xt=urn:btih:9CC64A6B7D1CCB897BD0F96923510395D6852DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Way of the Samurai 4 (2015) [En] (1.06.2/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:130F6CB5CD9A97DD8E7A9DA67C2F9519703FD60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A-Train 9 V3.0: Railway Simulator является не просто симул�
 ```bash
 magnet:?xt=urn:btih:A7AF2810F865A3D12F69CBD97C81122FEEFCABE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Horizon 2 продолжит историю, начатую в предыд
 ```bash
 magnet:?xt=urn:btih:05D2571E96333364B5421BEF04EAE2DC28D4001E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

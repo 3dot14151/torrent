@@ -22,8 +22,7 @@ Dark Lunacy - итальянская мелодик-дэт-метал групп
 ```bash
 magnet:?xt=urn:btih:D0F1A42C588792ABC38E3E14E8875D21EF7B94E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

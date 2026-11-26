@@ -22,8 +22,7 @@ Depression - Die Dunkle Dimension (2015) [FLAC|Lossless|image + .cue] <Grindcore
 ```bash
 magnet:?xt=urn:btih:5E6227B46E2E950D498BCC00F2FCE1933BC79329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Old Season - Beyond the Black (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:ACEEFDE50C3A7DF6EB75A5F14798BF087C0BB796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Odroerir - Das Erbe Unserer Ahnen (Limited Edition) (2017) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:31E66AA0DCF2567410D6A40FD06EA91BE12AA166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Primal Fear - Angels Of Mercy: Live In Germany (2017) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:97789184288F916309C9A519C3BDCA1BBC05BE30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nitro - Nitro II: H.W.D.W.S. (Hot, Wet, Drippin' With Sweat) (1991) Reissue, 199
 ```bash
 magnet:?xt=urn:btih:9AA69EEE35407A9A555F12898FEF4413C5E9E594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rainbow (Ritchie Blackmore's Rainbow) - Since You Been Gone: The Essential Rainb
 ```bash
 magnet:?xt=urn:btih:76C4FE47FB9ADC66254EC3EC16CC3147E9DEED6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

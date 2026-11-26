@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EAF83E5CDCB2F83BDCF07E47BBFB4763C4025D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15B9B42E73E1C57B04D6F7FA7985BD40D69AA496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Rock n Roll and Not Only...vol.2 (2014) [MP3|174-320 кб/с VBR/CBR]<Rock 
 ```bash
 magnet:?xt=urn:btih:3BB45C9130E35E03ACC42747F69978267FB86AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Spartacus: Suite No. 2
 ```bash
 magnet:?xt=urn:btih:9DA967C6CBF681CCDD723FBB2878CCD45FDFB5DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63429427683CF82093F55A63C715340D0C836182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Wallpapers - Неон [JPEG]
 ```bash
 magnet:?xt=urn:btih:75CDAE2648152A9C9143047764EC406274187CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ VA - Лучшие Весенние хиты в Машину. Зарубежны�
 ```bash
 magnet:?xt=urn:btih:B195BFC12DCB5B277D0C6A21AF4098EFE7FD6EE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:491F9A2DB1DBC1CAF6E155A8632C2F38B964E9AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ Wallpapers - Мультфильмы [JPEG]
 ```bash
 magnet:?xt=urn:btih:3414A2E70C4491BAC6D4358320694B2A08708465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ VA - Dream Dance Vol. 71 (2014) [MP3|320 кб/с]<Trance , House>
 ```bash
 magnet:?xt=urn:btih:457E8258D6EEAB053BCF7B3AE531F9A3F5178FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ VA - Rock n Roll and Not Only...vol.1 (2014) [MP3|128-320 кб/с VBR/CBR]<Rock 
 ```bash
 magnet:?xt=urn:btih:DF1CF145256555F6C9AF0FC2A76EBAECF6284E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C4D18A8E562183036263F1DA48B4CB8B78E5D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24BE7AB5312C1EE7E55A0ED065DC92BD1AC0863F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E454FAE6E1FB846C3F5C71286EC40C31E4F768C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB2C146E41D60A3B3D4793304D26326F35B23260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAF49D76FDE84A763AC195C0871BA28309303247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +503,7 @@ Paolo Nutini - Caustic Love (2014) [MP3|320 кб/с]<Indie Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:728726BA327D6B47B6C30A69A5A41F2444B051E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD240E14FA445A1A9DF45928A1FD14395A220A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ AI Roboform - программа совмещает в себе менеджер
 ```bash
 magnet:?xt=urn:btih:30993AC8C8ADB1940E4141CD4314A960FD08F71F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +580,7 @@ Shaun White: Russia Calling (2014) WEB-DLRip [H.264/720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:34FB2AF4DEF8FFDF8A562A15AB80CF087A91FEE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:266908DCC9B6BDB1B0C62BED631F1FEBE7482D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ VA - Зарядись хорошей музыкой. Отдыхаем с Europa 
 ```bash
 magnet:?xt=urn:btih:B4E9B3446E62147A6E74977373879D447DA2F359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +672,7 @@ E-Mantra - Nemesis (2014) [FLAC|Lossless]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:0D00525C34CE1A19AA58CFF9B51242DEE2D99222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9ABDEBFFA72C3F120293637A45BB0A63B7481410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8E8E0B65E01844B348DD17BB6205AE4B89EC6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

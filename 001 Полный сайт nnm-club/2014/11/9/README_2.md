@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:671395F80AE9E1CB1E0573D9C36FC5BC52A52397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Digital Daggers - Mixed Emotions (2014) [MP3|320 кб/с]<Alternative/Electronic
 ```bash
 magnet:?xt=urn:btih:D01CD131138DCB40E13EE6C41D19B88A88BFF2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Age Sten Nilsen's Ammunition - Shanghaied (2014) Japanese Edition [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:E42F1F9E33260DEC103E85B6B791A68026B3D0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A178D3565F45DDD8F5AEAB3C44DC177A129A3C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABC336D88795D2DEBE758BEA0ACD00C16D6B4CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Rosewater - Discography 5 Releases (2000-2006) [MP3|320 кб/с]<Rhythmic Noise,
 ```bash
 magnet:?xt=urn:btih:079F45D85F1AB61162BE50A1A383D503EA300072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Armin Van Buuren - Armin Anthems (Ultimate Singles Collected) (2014) [MP3|~245 �
 ```bash
 magnet:?xt=urn:btih:86D869B2DCB932E7DD15B6E6FFF480B012D2E389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01A8130DD7C9399D740E9C67EE9B13C2BB28D6B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ Concerto for Violin, Cello and Piano in C Major, Op. 56, "Triple Concerto"
 ```bash
 magnet:?xt=urn:btih:616A13BE26A3988E63252720D16C6857FCD722B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B88E9BC1CBF57298A11507043F149E4F46A20AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEF09966DA6CD7A2CE017F286FE6C5983B8341C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ The Boo Radleys - The Best of the Boo Radleys (1992 - 1998) [MP3|320 кб/с]<Al
 ```bash
 magnet:?xt=urn:btih:EB5A8265457E86FE52EB3EC1A3547A63E8ABD14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21EE761802B4DCD0B80B34400D222E55F0C8BDF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ The Ghost Inside - Dear Youth (2014) [MP3|320 кб/с]<Metalcore / Hardcore>
 ```bash
 magnet:?xt=urn:btih:6B5B0EF57496A476BCAA96279049305F485E8DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:7C4CAC498A4054BA8C5E788736F776800E0DBAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:823F09A56F5878BEE75B45358BFD1DA532155307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ Nico Vega - Lead to Light (2014) [MP3|320 кб/с]<Alternative/ Indie/ Pop Rock>
 ```bash
 magnet:?xt=urn:btih:F7925DACD3A1CCED2CC71EE2A3DC27C36AE1CA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DEC6C206EFDE0211AAF40531CA1E3865F2EA5A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D78DC139DA8A44B065966F99568E7F4658BD1849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ Cheryl Cole - Only Human (2014) Deluxe Edition [FLAC|Lossless]<Pop, Dancepop>
 ```bash
 magnet:?xt=urn:btih:510548593EC0914D32328FAD7E1C19604885543D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E52249413E48E9FA4748715AD94D3B59634F0A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +660,7 @@ Einherjer - Av Oss, For Oss (2014) [FLAC|Lossless]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:EF9977B15B53EAD2EB9D46C0324A325DE1AEB1FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +686,7 @@ Chopin - 4 Impromptus, Scherzo, Polonaise, Nocturnes, Mazurkas (Kevin Kenner) (2
 ```bash
 magnet:?xt=urn:btih:2A7D42CFF6D2CAE04167E73B6DB574F1FE19B521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0961527C09BB1521E1954DED96509D16E76349CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FFCF23DE71775FE929DB41684C1326631B5FF74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

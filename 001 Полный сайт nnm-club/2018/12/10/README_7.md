@@ -22,8 +22,7 @@ Lea DeLaria - Play It Cool (2001) Warner [FLAC|Lossless|tracks + .cue] <Vocal Ja
 ```bash
 magnet:?xt=urn:btih:8C3D538DCBAF377C0E5D57BB5ACDF5CE0F291271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Clora Bryant - Gal With A Horn (1957) 1995, V.S.O.P. Records [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:8E32B3AE98ED32A0F1584D3FBF4346F3FD55A671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Helen Carr - The Complete Bethlehem Collection (1955) 1993, Bethlehem [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:8B8C31094F39DC1386C3CD3343049E09A1B1F014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Will Dutta - 2 Albums (2012-2017) Just Music [FLAC|Lossless|tracks+.cue, tracks]
 ```bash
 magnet:?xt=urn:btih:63C9248B915C364F6D7F43DC71F3FE86D9F1C2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Shirley Horn - Live At The 4 Queens (1988) 2016, Resonance Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:7758C5BF9B4D67DD6F5C15C4F5A694FBCDC1B35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Hank Crawford - From The Heart (1962) 2004, Collectables [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:B08902CF6C71FEC84866813F878E9022C093DB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - The Best Of House Ibiza 2018 (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:9E744258C9A7B6975B9323C9CB61B12971BFDD8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Valentino Mora - Transmagnetic (2018) Spazio Disponibile [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:F2069837F914BF2C81021D5AD7D318341BDD8736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Whore House Does Disco (2018) [MP3|320 Kbps] <House, Soulful, Funky>
 ```bash
 magnet:?xt=urn:btih:71D7AB464E9C7605EC0C21720CE69EFEB7FCA311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Redux Presents: The Finest Selection 2018 (Mixed By Rene Ablaze) (2018) [MP
 ```bash
 magnet:?xt=urn:btih:F1252E2660787CD3DAF7753D2D78BD646212C11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Slimjet 21.0.6.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5BE2601B99335C277DD90590FD4E3DB61212884A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ SwagArch - это легковесная операционная система
 ```bash
 magnet:?xt=urn:btih:EE318A8D1FB344A551024489601D03094CFEE805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Apollo Brown & Locksmith - No Question (2018) [FLAC|Lossless|tracks + .cue] <Hip
 ```bash
 magnet:?xt=urn:btih:6860EBCA2F38DE1D6A6EBDD97A13D55197D36D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ VA - Die Offiziellen Deutschen Party & Schlager Charts 10.12.2018 (2018) [MP3|32
 ```bash
 magnet:?xt=urn:btih:1D0DE81B1CDDD638136DB60DFC0CEA54FDE2300C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ VA - RLX 21: The Winter Collection (2018) [MP3|320 Kbps] <Downtempo, Relax, Bale
 ```bash
 magnet:?xt=urn:btih:FAB6602A9C43B803C6D980018D559905EFF615B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Larry Coryell - Coryell (1969) 2016, Real Gone Music [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:0B337278C6813F6A8E213CACB5C513429B841F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:A4BC84C25BEF7C3FAD8FA64F76A9B76937D8B9A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Apollo Brown & Planet Asia - Anchovies (2017) [FLAC|Lossless|Web-DL|tracks] <Hip
 ```bash
 magnet:?xt=urn:btih:395B9D49BC95E514829D1E60213A54206CD14B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ Teeny Tucker - Put On Your Red Dress Baby (2018) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:0866AC8B1228C10005B7EE672FAB412403AF2F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ The Ryszard Kramarski Project - Sounds From The Past (2018) [MP3|320 Kbps] <Prog
 ```bash
 magnet:?xt=urn:btih:542A7DC731DEC682AA1C9050080E6BF5A7811420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ Rob Papen - RAW-Kick 1.0.1 VSTi, AAX (x86/x64) Repack by VR [En]
 ```bash
 magnet:?xt=urn:btih:4011D617B3438E116C4D09EA94AE104812E431E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B8A19FB4D8219437BC302C5E0498BE20627FE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DF7656793D0CB0FD3CA6D1EC38E8BFB566C16C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B431A9B5C36A6DE3396BB164D69C642D7C8923E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ StrangeZero - Discography 9 Releases (2008-2016) Jamendo [FLAC|Lossless|tracks+.
 ```bash
 magnet:?xt=urn:btih:C6E00E3F8C0B11FEDE720990032C4854ABB3D76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40174A89CB8E8180E7E29E084DF3A1CB23D67248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

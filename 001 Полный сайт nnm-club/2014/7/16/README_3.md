@@ -20,8 +20,7 @@ CyberLink PowerDVD - один из самых мощных на данный м�
 ```bash
 magnet:?xt=urn:btih:0E3C6B92ED3FCAC4AA3C806B927BB03751E95F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Google Chrome – веб-браузер от Google с открытым исхо
 ```bash
 magnet:?xt=urn:btih:669A4CDB66BA883E7E63E5F0136AC0A5CA396AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6BD2D379C10D7658D1A9DE237CD84A7C9DD332B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:688EAAA40778DF06BA60FC72786B92ED2763237C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5798A846D45147954BE9511B1BD3AC09E0C6793D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F028863C89AB3D79BD4BD73F1B4D379B93C1DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ VA - Трэш Твою Мать! (1994 - 1999) Vol.1-8 [MP3|320 кб/с]<Metal, 
 ```bash
 magnet:?xt=urn:btih:80F7282DAFD737B4C2EEE3ACDBFFE9C09892893D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:15ED6F59360E0F0560496BE8BFD83126F302F990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E37F5FD78D84A214471261F47C3298ED8C7728F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8110E68C55E414FC6ABF254317C66E36AD431423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ PaperScan - универсальная программа для сканиро�
 ```bash
 magnet:?xt=urn:btih:7B40ED04E6CDDE086CC1C56CA06A24E45B3D31CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Jungle - Jungle (2014) [AAC|WEB-DL|256 кб/с]<Funk,Nu disco,Electronic>
 ```bash
 magnet:?xt=urn:btih:DB281933DAF335A64FC98C4111857AC5B557A26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ VideoHive - Your Website Pack - 2162517 [AEP]
 ```bash
 magnet:?xt=urn:btih:53A14929EDC106BAFC845C08628A6D18C0A1DD92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ AVG Internet Security 2014 - комплексный антивирус с улу
 ```bash
 magnet:?xt=urn:btih:8B83D20B0F0FC292C3F918AF0AB721D498D3A3AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ VA - Lyapis Crew Трубьют, Vol. 1 (Трибьют Ляпис Трубец�
 ```bash
 magnet:?xt=urn:btih:6E45760A571DC8220DB528A8A38A1067744DAD9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ SopCast - программа для просмотра видеотрансля�
 ```bash
 magnet:?xt=urn:btih:AB2576507185E67EC008957344FAFBFB206E66C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ Beowulf: The Game [PS3] [EUR] [En] [1.94] [Cobra ODE / E3 ODE PRO ISO] (2007)
 ```bash
 magnet:?xt=urn:btih:74A80260D07356CB134030B65DEAE034E854B59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0A519CFA4764955B1FEF5AB8B8BE09F3171BD8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ CyberLink PowerDVD - один из самых мощных на данный м�
 ```bash
 magnet:?xt=urn:btih:7C6B681D64438588C00293896A343B607C192D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5D6388509F0F920147AA5643DC3E2A578A5DBA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C66958B62ED66FC62797387606D5D0740FD705FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ VideoHive - Summer Weekend Photo Album [AEP]
 ```bash
 magnet:?xt=urn:btih:D10CAC659740C598DF83332E2F30649D2399BC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:E00EAD74AA2E2251BA22ADD000EB33DBF0D4AEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ Red Giant Color Suite - Основные инструменты для корр�
 ```bash
 magnet:?xt=urn:btih:A60437068E74015FD387C75F7A272B83E60B34A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BCBC74B8BCA5E971F379A812B24B80514F2B26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ VideoHive – Real Frames Photo Album [AEP]
 ```bash
 magnet:?xt=urn:btih:0F0223422791EC7B270AFF2001D1DAD67E7149D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

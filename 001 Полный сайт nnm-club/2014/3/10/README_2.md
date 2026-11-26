@@ -20,8 +20,7 @@ Paul McCartney - Fine Line (2005) 3-Tracks Maxi-Single [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:559C21790E72DAD4D6531B69950FE2BBDA5410D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SynWrite Editor - мощный текстовый редактор для про
 ```bash
 magnet:?xt=urn:btih:E51CF7897AE81090717AF75D764973CFD8A1C34F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BD91EF2562075F43D1836F73B6DEE3E1B5E0697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:900BCAC2F99FAFD6A2C00307F2A7B98FDE938A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84CF0EBA8AEB39B7C346C57F951079D8D744A2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:120B1E2E27BB92B9990D587C61E26C100B062CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Catherine Andrews & Denis Haines - Initiation (1991) [FLAC|Lossless]<Neoclassica
 ```bash
 magnet:?xt=urn:btih:34BDBE5747699DCA0FB5F5770D661BDB4D0A4A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Product Key Explorer - программа позволяет расшифров�
 ```bash
 magnet:?xt=urn:btih:2D6CB7F7A5A914EF440C4FB8417D42E56EA10122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E695C50F1DDFA5FB034DE49D6891B08B116BB2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ VA - Rattlesnake Guitar. The Music of Peter Green (1997) 2CD [FLAC|Lossless]<Blu
 ```bash
 magnet:?xt=urn:btih:752134E93391F378505FF7CD30E5885AD7D421D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ CDBurnerXP - программа для записи CD и DVD, включая Bl
 ```bash
 magnet:?xt=urn:btih:24D358C5CE85E06E335D23BA495F6822682929B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61D50867ED443638BFF1C12440CF23C08EC1CDC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Celtic Woman - Emerald: Musical Gems (2014) [FLAC|Lossless]<World, New Age, Celt
 ```bash
 magnet:?xt=urn:btih:B75A5648BA8213B967B3F4816F15A6C9A819F2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA59D790FD6E7DEC54EB636757BDBA052D0DA3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Ecuador Manta - 5 альбомов (1998-2008) [MP3|128-320 кб/с]<Native Amer
 ```bash
 magnet:?xt=urn:btih:E625E76B1636D0EBEACC5AB5DD7217C01A74A509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C18C15E5D7D2A72F9A5F49DD2299FBDFE524CA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Symphony No. 33 in В flat, KV. 319
 ```bash
 magnet:?xt=urn:btih:7BFFFC4CBE6CC726E9D7AFE3A120D44CFB78292D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ VA - A Crystal Christmas (1999) [MP3|320 кб/с]<Instrumental, Christmas>
 ```bash
 magnet:?xt=urn:btih:1D3DD7F94F8F3F6BE970FADDFAE2C9C5659C1E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +528,7 @@ Duffy - Endlessly (2010) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:EEDECF53AEC5442430FF793BA7FD85A808310223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:7183C0C3057E5F08FA6A5C9FEB8225732E2F17F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E1633D4226D579C7C71AF1D1B110AB3283C353B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6B1FC5AB54A138C3F9103A4AC36A7BA915C687E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A805F1DBC632AEDA1B117C9C5B943E777559938C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BCA921A272A7F182B1A4F151B39F9CC8934EC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ Discovery: Уличные гонки. Выпуск №4 / Street Outlaws (2014) 
 ```bash
 magnet:?xt=urn:btih:DF08ACA851FCEC5C569DA97685C81E3E920B50B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9131630BD347DB665BBA1D4EF8A4614FA2BD2153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

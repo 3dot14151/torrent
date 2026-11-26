@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:74E7F20DEA09CB688EEEC3461FDE27AD96A443DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1 - Original Mix Remastered:
 ```bash
 magnet:?xt=urn:btih:C0F2D7D8C9C15A406F48A3346B9DECB2359BFBB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Silver Wind - Legion Of The Exiled (2017) [FLAC|Lossless|image + .cue] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:E77E2D3E0C17ED5FDE6E749017957D4B10290AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F1291E8306BA685F73D0F33DCE1E32519A124E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Memory Garden - 1349 (2021) [FLAC|Lossless|image + .cue] <Power Metal, Doom Meta
 ```bash
 magnet:?xt=urn:btih:5B86BDF860BB4DCA020C214D868A2D8C8A233592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Kori - Húszra (Huszra lapot) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:89987AAE272D43F4CD51DF6C63B92203966DA0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

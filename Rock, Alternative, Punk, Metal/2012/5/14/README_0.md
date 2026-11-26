@@ -28,8 +28,7 @@ Garbage - Not Your Kind Of People (Deluxe Edition) (2012) [FLAC (tracks+cue)|Los
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Rick Miller - 7 альбомов (2004-2012) [MP3|192-320 кб/с]<Progressive R
 ```bash
 magnet:?xt=urn:btih:BFA5746EDA1C98FB071B9C28851BB1D5B254DF9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Kraanium - Post Mortal Coital Fixation (2012) [FLAC|Lossless]<Brutal Death Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

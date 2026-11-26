@@ -19,8 +19,7 @@ Anywhere Software | B4A Users Guide (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:281D8C49EB288B516939A186493B973E631D72F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76496E8802C373601A4B631D569E86DC9DABCD33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

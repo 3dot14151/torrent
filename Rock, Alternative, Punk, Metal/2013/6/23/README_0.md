@@ -28,8 +28,7 @@ Lunaris - ...The Infinite (2002) [APE|Lossless]<Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Obsession - Methods of Madness (1987) [APE|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Abnormality - Contaminating the Hive Mind (2012) [MP3|320 кб/с]<Technical/Bru
 ```bash
 magnet:?xt=urn:btih:5C5E7721F1B5CFC1FF07657C54ACE0128B032AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Deeds Of Flesh - Portals To Canaan (2013) [MP3|320 кб/с]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:480BEC9A0F921D95808B3B6708F7308D5499C827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Folkearth - Valhalla Ascendant (2012) [FLAC|Lossless]<Epic Folk/Viking Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8831DBC08A5242AB0DCBB51FE1DBB17DB735C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Oliva (Jon Oliva's Pain) - Raise The Curtain (2013) Limited Edition [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:EC2CCD829CFAFDDCECF790141382E5C9DB5BF493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +271,7 @@ Erik Lindmark (гитара, вокал) и Joey Heaslet (ударные).
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +305,7 @@ Skillet - Rise (Deluxe Edition) (2013) [MP3|320 кб/с]<Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:340AE510C5197FA6961357E384E829CB2E55FD16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +339,7 @@ ZZ Top - The Complete Studio Albums 1970-1990 (2013) Box Set, 10CD [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

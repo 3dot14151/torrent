@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F382B0086DAFF8CA2C1BF667D90F38218ED00A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Photo Grid - Collage Maker Premium v7.90 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FF44D1FD61742333AEA8A6D22FE9B84068DA5095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

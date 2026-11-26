@@ -19,8 +19,7 @@ GadgetPack (ex 8GadgetPack) 38.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BD2F089A9A1AA84578571553BCB13181E63E67C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

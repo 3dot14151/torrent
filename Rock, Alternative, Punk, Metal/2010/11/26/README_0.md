@@ -28,8 +28,7 @@ Nelson - Lightning Strikes Twice (2010) [MP3|320 kbps]<Rock, Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:AD3BC6B317430BBEE49A15DCEA8447CA4F8ECCC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ John Fogerty - Big Time At Tivoli 2CD (2010) [Bootleg] [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:31F6585FEAD04D7F36C9040C6D914652E694A317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Sting - Live in Berlin (2010) [MP3|192-320 kbps]<Rock | Pop | Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:67081CE9417546D796418A2E4AD0C38ABC08E319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ AlbumsЖанр: Symphonic Metal, Gothic MetalПродолжительность:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ W.A.S.P. - 14 альбомов + Live + Remastered (1984-2009) Дискогра�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

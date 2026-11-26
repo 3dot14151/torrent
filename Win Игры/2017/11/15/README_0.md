@@ -20,8 +20,7 @@ Invasion: Lost in Time / Вторжение: Затерянные во врем�
 ```bash
 magnet:?xt=urn:btih:77C62C1E4114506AF045DC0E542FF0E433210C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ATV Drift and Tricks (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:13D6B788BEAB3A05886197F80CF89FC23C7DAEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Polaris Sector (2016) [Ru/En/Spa] (1.06с/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:0E2CD42F2FBA644FC2C2D6DC9485173C0E774A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ LEGO Marvel Super Heroes 2 (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:6C1302C26C5A6C9E5EB1F1EF43E7C7DD8EE39C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Space Pirates and Zombies 2 (2017) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6696C85A9BFFD5055DA09FD5742E9C853C79860B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

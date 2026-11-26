@@ -28,8 +28,7 @@ VA - Hot Charts Russia from Sun7simbirsk (25.03.2013) [MP3|320 кб/с]<Pop, Dan
 ```bash
 magnet:?xt=urn:btih:645A28108EAC26DD5ADED4AD4234EFC238262FED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:128A14EAB4F5D1295EB7ED8D55BB75CC6DD141E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ RAЯ - Горизонт (2013) [MP3|~245 кб/с (V0)]<House, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:3126DA4B249A9F4B0931E602890BA9CE141379A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FF0BB822AA5A5EDDFD1F2DFF7804AA3FC94B77B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ ELLE Decoration - самый красивый и полезный журнал �
 ```bash
 magnet:?xt=urn:btih:B0467B85D746BB3A01918D258B26E2011978D146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADFE49B80340DCBDBAC0A314CEB10ECE2510601E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Not By Choice - 2 альбома (2002 - 2004) [MP3|192 кб/с]<Punk-rock, emo-
 ```bash
 magnet:?xt=urn:btih:791B2BE038ECE6923C28253431C6EC8B53D93105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Viky Red - Just for you (2013) WEB-DLRip [H.264/1080р]
 ```bash
 magnet:?xt=urn:btih:3EEA97462C9061C76C9FC47BC000E8373D918FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ VA - Позитивный заряд танцпола (2013) [MP3|256 кб/с]<C
 ```bash
 magnet:?xt=urn:btih:5F5CD44B72DF1AE5BE782D20FF14371B30D0A13F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ Hammerforce - Access Denied (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:3F9CF1D85F9DCC5CC1B1500337411FDD1D764FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11E43DD9C5BE1CCB12CD321D1845B54421C580F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ ELLE Decoration - самый красивый и полезный журнал �
 ```bash
 magnet:?xt=urn:btih:AF35EEBE8ADF68750FBFAD68B91BB6D80E91304D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F67B5E6D6F30C5C46C3285A63AABC1EC8C8ECC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F491D61AFABC020C9C5C6B559BB7563A3026881B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1F0AAD662DA2C68AE81E199D24D3A5200EE7B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ VA - Dance Club Spring vol. 2 (2013) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:F2A891781D37F80885F74A98C149FE9C450963E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ KIKI DOLL - Electric Girl (2013) WEB-DLRip [H.264/1080р]
 ```bash
 magnet:?xt=urn:btih:F70A9D2A738C98A2FA11EA77D44ED773385EB6ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9427D4DC9E3F5A03F521B0BE0E7839CACF0C3373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B75CB0375793DE963C12517272BCA0A0418DE7A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Diane Arkenstone - Union Road (2013) [MP3|320 кб/с]<New Age, Folk, World>
 ```bash
 magnet:?xt=urn:btih:F2A78EC1B7A4B37CC00C0DDDFCD03552F8B41789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ Process Lasso Pro - небольшая утилита, позволяющая в
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +613,7 @@ VA - Дискотека Клубная Волна (2013) [MP3|256 кб/с]<Dance
 ```bash
 magnet:?xt=urn:btih:592FF2FB1B6EE22C8913928D250F309EAC657F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB8CE4D6AE8222CD29854693CEF3B0BE8D51C1CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D00E1E269D5B71FADB539C3A692277E1B29DE97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +702,7 @@ New Kids On The Block - 10 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:51E1D223E308C3DB23171FE57EB76ECA51FCD940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +727,7 @@ PeaZip — свободный и бесплатный архиватор и гр
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

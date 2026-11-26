@@ -23,8 +23,7 @@ openSUSE 13.1 Live RC2 [i686, x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:31793585BA1FA927C603E0D76D4CA941557BAED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ openSUSE 13.1 RC2 [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:BF4A2617F2BB9F8C8CE23B19D2D1C9C16230F1EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

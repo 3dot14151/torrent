@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:F2EF41B9DEBD83241DA8D32E64885B332FE1AA13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Euphoric Emotions Vol.25 (2011) [MP3|320 kbps]<Vocal Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:B71034AAC88D3589F1603E01A9D8CAC9A9349455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Жажда Скорости - Без Тормозов (2011) [MP3|256 kbps]
 ```bash
 magnet:?xt=urn:btih:6AEB5B57D0E691008F216B0624BA0739DA4E2B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Шансон года. Gold. Часть 1-2 (2010) [MP3|320 kbps]<Шанс�
 ```bash
 magnet:?xt=urn:btih:0B7E3DEBDE2EF85EB2D282189A9984BD180A715C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ VA - Коронный Блатной (2011) [MP3|320 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:1A1C41011CC66E87FEBA25BB106C863446391106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ N/AЖанр: house electroПродолжительность: 01:48:24
 ```bash
 magnet:?xt=urn:btih:DFD81A00C7C51DFD25E4306108DC212F950ACFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02DBFDB43A12A0E4597F0F97FC292C401A5F7B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ Winterlight – Hope Dies Last (2011) [MP3|320 kbps]<Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:490A4503706B91628D50FB7ACDC1ACE9A26476DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ Al Shushtari, Omar Metioui - Ritual sufi-andalusi (2005) [MP3|256 kbps]<arabo-an
 ```bash
 magnet:?xt=urn:btih:423161DCB671C7CD723DAF2D76424D4652E0F244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E4EA2CA879FA9C010A68145774D494927048F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF9EC8F53E2343BFFCA95D1E77F7386D972598C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ VA - Гуляночка 6 (2009) [MP3|320 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:9674B442DABE25505BB02D780498D0347E49E61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ VA - Billboard Top 30 Country Songs (30.07.2011) [MP3|~250 kbps]<Country>
 ```bash
 magnet:?xt=urn:btih:FAC1CC4C3074372CD1A9DDC17D01A2730824860B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +469,7 @@ VA - Вибрация Танцпола-10 (2011) [MP3|320 kbps]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:8C30B803ABE4EDC45836AD294AAF2FF0FE5EE6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +503,7 @@ VA - Smart Lounge Vol. 1 (2011) [MP3|320 kbps]<Ambient, Chillout, Lounge, Ethnic
 ```bash
 magnet:?xt=urn:btih:D7D963ED2EB7683374FE9BF788828ACA03796AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +537,7 @@ VA - Высшая лига #30 (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:F7B73994657C92FAD0263F9469D6A4F366980869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +571,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:917F5607FF154B9BB86F9DC9E95803E27E6C8DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +596,7 @@ PicPick - бесплатное приложение, объединяющее в
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +621,7 @@ Armin van Buuren - A State of Trance 358-399 (2008-2009) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:D8A2DF4F0BB5ACD5DF8990B4D9B424FDFED6661D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +646,7 @@ Marcelo Nadruz - Reiki (2000) [MP3|112-320 kbps]<New age, Ambient, Meditative>
 ```bash
 magnet:?xt=urn:btih:A75E62C5B6A46CA93D184526491BA96105F62B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +680,7 @@ Dhikr y Sama - Musica Sufi Andalusi (1999) [MP3|128 kbps]<world ethnic music>
 ```bash
 magnet:?xt=urn:btih:90095AC8E47FBC0622DC79432D2E8A2A0E850318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +714,7 @@ VA - France: Accordeonistes en Aubrac (1999) [MP3|320 kbps]<Folk, France accorde
 ```bash
 magnet:?xt=urn:btih:3B03B6216B72B07E1FCE64DECD7B377960987EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +748,7 @@ VA - Автозвук Русских Диджеев (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:07505C31807280EFE52BAC6E791D048C6ECF4B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -806,8 +782,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC2F9D451008C6B04BAB0E8F507B572C949CE30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -841,8 +816,7 @@ VA - Едем На Моря!!! 2 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:888063159B32E7D0566CED6FB9DCB9DCD9A3D445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

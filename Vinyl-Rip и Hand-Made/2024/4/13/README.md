@@ -20,8 +20,7 @@ S-Tool (или Severing Tool) — финская хэви-метал групп�
 ```bash
 magnet:?xt=urn:btih:8980719678D04F84F44C138422433D0A65FC56F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

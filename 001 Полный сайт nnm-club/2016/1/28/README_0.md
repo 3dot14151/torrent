@@ -21,8 +21,7 @@ The Casualties - We Are All We Have (2009) [MP3|320 кб/с] <Rock, Punk, Punk R
 ```bash
 magnet:?xt=urn:btih:8592AB6840CE18AD5D75B9B6A189F347C7057EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Calendar 366 Plus - календарь событий и напоминаний 
 ```bash
 magnet:?xt=urn:btih:8905EB4521B16908A0BAC341F931CBFE51486E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ The Casualties -  For the Punx (1997) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:F2BE2AC5E8328DDEF981778C2A275FA0CFF6E27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BF8F02FEC14EBF24878C414665F32DEBEB0A95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Sexy Deep House Session (2016) [MP3|320 кб/с] <Deep House>
 ```bash
 magnet:?xt=urn:btih:6FB6D06F6E8E08B5CF344F5EC1D51E76AB68F42D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Atmosphere Bliss: Vocal And Uplifting Trance (2016) [MP3|320 кб/с] <Voca
 ```bash
 magnet:?xt=urn:btih:6943F56C88933278292C7A6FC9D5E7734B8CED82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF63EE8592A863832368F10AF128411A35967A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F9D2CCE89ED6DFCA815186CD2457F439125E632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Desk NT-  приложение для написания текстов и за�
 ```bash
 magnet:?xt=urn:btih:B63AB09FA62A78D9660E25EB88A4D78B3E439206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ The Casualties - Die Hards (2001) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:7745355CF6B019B9AD0FA54D167BF03DDCA26903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ VA - Liquidation, Vol. 3 (2016) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:65BC7A1E0A03064B4C4E4E9086A2681CA634B49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46CE0374D696178610C4B1042C97603BFCE92F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACD142C00D1DF0C00732FFF8ABF1F7FFF1860E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ C.O.P. UK - No Place For Heaven (2016) [MP3|320 кб/с] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:873E685E3B50DEEE347F0A70ECB352657A6C46E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ SnapMotion имеет два режима:
 ```bash
 magnet:?xt=urn:btih:41361DCDF020B38652D7C09252A01D14B715D5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ Northern Lite vs. The White Noize - Wooden Playground (2014) [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:CB77901035B1B98B27A3F3B3BD231D7EC72B09BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ TextSoap  для Mac OS - Поможет подчистить текстовые
 ```bash
 magnet:?xt=urn:btih:4679DE7D75F9D851D9B67F6EBEC3C0377BED17CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB7EA37EE6982BCBB76941AFCAA9EBCFCB156573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Desk MD первый настольный клиент ведения блога
 ```bash
 magnet:?xt=urn:btih:577BCBC108D7CE7E0B2B9CC1F049C51E20A72A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Forecast Bar - точный прогноз погоды  Forecast.io  прямо
 ```bash
 magnet:?xt=urn:btih:F729E3CC739EEE0124FCFEACB14E2A544F99C611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ WeChat — это бесплатное приложение для обмена 
 ```bash
 magnet:?xt=urn:btih:63F637431ACB3CFCDF9CE5BA592BE4EFE89D6238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B285855B90A69DC01D068034F4F3692238AF45E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ Slimjet 7.0.3.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0FBB85B9FB1E8E3EF4D4B3516ECBF743E511E83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Orangefall - Orangefall (2016) [MP3|320 кб/с] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BCC67AF028F281F8CC4821A3340B23142A1767EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E08F13448C0E3EFB7608A2DC08D5829014B174D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82480706DA4B1866A538C1E924A8D10DE8EB1A3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

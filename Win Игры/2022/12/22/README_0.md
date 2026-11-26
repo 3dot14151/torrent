@@ -19,8 +19,7 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:FD09215DDD7F2E119C7EB4D6B448CB33F0F3FBA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.06) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:15BE1085080FABF5603C5EEF995D4DFA16ED5F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```bash
 magnet:?xt=urn:btih:645F812A674867689329E60584232BBC5828C992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Writing asynchronous code can be challenging, with a variety of possible interfa
 ```bash
 magnet:?xt=urn:btih:DE1B2F79E328A08117B9209F4D229559A58DED7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

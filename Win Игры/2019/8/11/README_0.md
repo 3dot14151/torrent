@@ -19,8 +19,7 @@ Darkwood (2017) [Ru/Multi] (1.3) License PLAZA
 ```bash
 magnet:?xt=urn:btih:5CDF69E5525BA22C6E37FEA7C9AE0D96FCA92872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386/dlc) License PROPHET
 ```bash
 magnet:?xt=urn:btih:986E4C480FDB943537A06B24449D8DE12A8B04D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Apsulov: End of Gods (2019) [Ru/Multi] (1.0.4) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:7703AD67A730D2D8197B45894F94659AC3D015D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

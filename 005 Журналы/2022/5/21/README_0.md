@@ -19,8 +19,7 @@ Woodturning — высококачественный журнал по стол�
 ```bash
 magnet:?xt=urn:btih:168726C6613A7A55EA0D0EBB99E8A8D2C1AB0808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1AE6D158F9821CD1150C1CA659074C72C0B0473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

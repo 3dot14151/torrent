@@ -28,8 +28,7 @@ VA - Masterland.com - 10 Лет В Сети (2012) [FLAC|Lossless]<Heavy / Power
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

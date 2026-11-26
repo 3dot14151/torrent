@@ -22,8 +22,7 @@ Blackfoot Sue - 2 Albums (1973, 1974) Reissue CD, Repertoire Records, 1995 [MP3|
 ```bash
 magnet:?xt=urn:btih:642CC73A6A78B7CD8B8A93BDE55300657D681EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

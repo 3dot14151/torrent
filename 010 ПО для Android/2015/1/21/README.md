@@ -19,8 +19,7 @@ gReader является неофициальным Google Reader клиенто
 ```bash
 magnet:?xt=urn:btih:6BD22312E46CB3CFA7B6670ED2A8B1E64830E0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F56D210B6018AB248AD15A492F2013CD2C2DC1DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Tales from the Borderlands – эпизодическое приключение
 ```bash
 magnet:?xt=urn:btih:A3B8A340F4A041494E2358A16913BCAAB87267F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Profileschool | Пленочная фотография: за и против (2
 ```bash
 magnet:?xt=urn:btih:58989D89A2F16781CD1261B1835BA836E6919F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39C30B78AA83BF583CD3965DD4D07C455F497486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Crusader Kings II открывает перед игроками один из �
 ```bash
 magnet:?xt=urn:btih:56DC31D12AEA32A316F34E6B6D7AEDD0B729429F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Hola Free VPN 1.7.453 [Rus] - Интернет без цензуры
 ```bash
 magnet:?xt=urn:btih:D474B6A00F350A60999784735B293931F744FC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Grand Theft Auto: Episodes from Liberty City включает в себя доп
 ```bash
 magnet:?xt=urn:btih:E1BE5E9A72441F98FFC03563F1DAEFB784818E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0C148819149C3074021DC2BFFF8BD19C6896A23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E01AC8AE7E14B6E407A836A3829110532FD3CA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E09A4AAEB8EFF25D6B194939075223F1719CFA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Game of Thrones: A Telltale Games Series – эпизодическая игра
 ```bash
 magnet:?xt=urn:btih:3DE0C25AEB40CCF365B135A176580C11B13355CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Dark Souls II привносит традиционный для серии вы
 ```bash
 magnet:?xt=urn:btih:7B506DB46D4F31307C4913B0A11AF148E264CDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ MAGIX Video Pro X7 – это программа для работы с виде
 ```bash
 magnet:?xt=urn:btih:480A8E36D95CE5631F9093E8F8E4F5BD4616D316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ Grand Theft Auto III/3 (2002) [Multi] (1.1) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:7C6932E199CE2461EF538D2E28E32AD92235A915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ Grand Theft Auto: Vice City (2003) [Multi] (1.0) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:0B5D4FCE4D329BE26013E7CD16FE118431B5E9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B089A20803E81B69BC07BED7EEB76157167BBB98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66955E116BFE42DB77A843F35871B7E4B5BF75A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ Lifeless Planet – приключенческий инди-экшен от тр
 ```bash
 magnet:?xt=urn:btih:E31F27AE0F04853B8B91D12B4F97159A6310D9A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC571AE00BBB9DE47C4A1B9C49EAA176A2C19D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:769975B4EFD4438A5BCB6248ACB70F31DCDD9AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:BCD522885CC33329F83A293A6A56E17940568870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +634,7 @@ Elementary OS Freya — это дистрибутив позиционируем
 ```bash
 magnet:?xt=urn:btih:781B7ACABAC83193BFD854D140AB33EB4C552B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ Grand (   Читать дальше...   )Тип издания: Цифрова
 ```bash
 magnet:?xt=urn:btih:657CA2802779917D051255FD8B564B4DF8CFAE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

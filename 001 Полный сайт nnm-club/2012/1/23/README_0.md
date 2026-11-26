@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:300DD3CC03FE4666C7C96EAD4AE6FC74EB2B4567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:941B4A02452C55C3D9761569FABCFAE817A3DA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE0DA4BEC61B7BF5CE4D3E711924B61AA7004454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:696B544C2E616E1E560ECC83761B4E741E6AE56B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Us3 - Lie, Cheat & Steal (2011) [FLAC|Lossless]<Acid Jazz, Hip-Hop, Funk, Jazzy-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26AA2D72488213FDADD44446B02B1B0239F932AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Bobina - Russia Goes Clubbing 176 (18.01.2012) [MP3|320 kbps]<Progressive Trance
 ```bash
 magnet:?xt=urn:btih:4D37EDFAEAB80DFA73EC5097DA9E0D75E4AD0743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ VA - Moombahcore Vision vol.1 (2012) [MP3|128-320 kbps]<Moombahcore, Moombahton>
 ```bash
 magnet:?xt=urn:btih:E032141478F987967C6D16CE706C793C9003F501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2335D41360811A52C3BBAADB4E6CFAE6C170DD50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ Winifred Atwell - Double 7 (2005) [MP3|320 kbps]<Jazz, Ragtime, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:284D989D3CD9DB5AE01A2BB210A9C42CDB461A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +343,7 @@ VA - Звездная Метель (2012) [MP3|256 kbps]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:BF780E73B9A6B494D651C837D5F2032EC28DE623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FABCE3216CC4A1D2D7CB2A7C77EBE7F24C73687B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4F3C6D25AD962BF2AABDEBE07D6505F6E92509C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:557B5A87923227081FD3256088B310D80127293E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1354DB6CE6831E807B9EB10723274C651A13D017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +479,7 @@ Dark Lunacy - Weaver Of Forgotten (2010) [MP3|128-192 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:46B331DB6315E2C6B4C27B3A3A69A3EFA4EAA504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +513,7 @@ Camelia Jordana - Camelia Jordana (2010) [MP3|320 kbps]<Folk, World,  Country, P
 ```bash
 magnet:?xt=urn:btih:FB25F63DEEDA9AC49C8770EC5DC373ABD2C87227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ Baby Let Me Rock (2:51)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55845C0A01353C76AD55A0186460373593138B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ NordverG - Багровый Рассвет (2011) [FLAC|Lossless]<Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B6595D2BFB3011925AACDD6C71BB7BE8313FFA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ VA - Танцы До Упаду с DFM 50/50 (2012) [MP3|256 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:FA27C5A92070D5AA6EBD227A4637072CE938594E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ VA - Trance Eve Volume 22 (24.12.2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:7F7EAD39FB9CC138EB815D2C87561B3244757B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00B5DDA722A9B03D6DE4BE1F0934F8F1E64CAAA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ VA - K-Boom Hits 222 (2012) [MP3|192 kbps]<Dance, Рор>
 ```bash
 magnet:?xt=urn:btih:C5A073B4432F123E633AC066DB3EF729E62502DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

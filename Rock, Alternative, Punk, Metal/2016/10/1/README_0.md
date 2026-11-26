@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D3B508075462C086FB7640FDF1017E9D4DF8C88A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ New Years Day - Malevolence (2015) [FLAC|Lossless|tracks] <Alternative Rock, Fem
 ```bash
 magnet:?xt=urn:btih:A8C2CE46800171F7A0007C0B27D38AE8A8048D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Noctem - Haeresis (2016) [MP3|320 Kbps] <Black Metal, Death Metal>
 ```bash
 magnet:?xt=urn:btih:42124E473267CB1C33ED43ACDD12D071A69FF656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Iron Mask - Diabolica (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:16AF6F5AB12F22C36A6AB8B7317A8A1DB8A1C89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

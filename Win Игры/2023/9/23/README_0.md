@@ -19,8 +19,7 @@ Knight Cats 2: Waves on the Water (2023) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:94E248E1CB8FD3422BBFAD07AC1AA3248F354D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

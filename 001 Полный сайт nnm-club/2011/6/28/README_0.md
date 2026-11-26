@@ -18,8 +18,7 @@ Amenbo - необычное устройство ввода, позволяющ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Pacha Ibiza The Italian Collection (2010) [MP3|320 kbps]<Electro House>
 ```bash
 magnet:?xt=urn:btih:7177973EF9789C909D9755345FF385CD036E5FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74424D73A8F1CD1B48D1C396AC727176CA22105C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ VA - Золото блатного радио 200 хитов (2011) [MP3|128 kbp
 ```bash
 magnet:?xt=urn:btih:914D574DE618FE7ADFA1A509BC1D32C088D47D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Tales From The Dragon Mountain: The Strix (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:3BDE9D86F777CA618EB8CB4EED585B2AC6B255EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Revolution Renaissance - 3 альбома (2008-2010) [MP3|320 kbps]<Power Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ F.U.K.T - Falling (2011) [MP3|320 kbps]<Drum & Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:1E91B90F84769CAB14934B6DF3C8BB8EDCAB320A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ VA - Need For Drum And Bass: Save Edition 6 (2011) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:14F4599C2E40656B747C6313951F5D141F43CDD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - DFM Танцевальный (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:38791B3738BCA1BD355CD1662E668DB5215374DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Lovely Mood House (2011) [MP3|320 kbps]<Deep House>
 ```bash
 magnet:?xt=urn:btih:C8FDD72CE50E449AA980B7EA19F2E78F0A957BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F816F7C66B849C64B29FD68E57950C9DBD8133C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C475966352CD9D510A3FEAAD4B66911CBA9D8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Soul Stealer - Feel The Steal (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:556EFE7207A065ADAD5A282A8749DF30B46A6F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:542E1BD3A09BB069CCBEF3704DAA04D423D58326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ VA - Pacha The Anthems 3CD (Mixed by Adult Entertainment Feat. SYX & Rufus White
 ```bash
 magnet:?xt=urn:btih:3DC0D44EEB819BDCD31839AE39A9F9790BBE01CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Pierre Cardin - Pierre Cardin Remixes Vol.2 (2011) [mp3|320]<House, Euro Dance, 
 ```bash
 magnet:?xt=urn:btih:B483265C5E99A8456F2606E24D21221ED96DD376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B02897E1802091473C8EAD92BB1F991E956D5F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ Medwyn Goodall - Tears Of The Dragon (2011) [MP3|320 kbps]<New Age>
 ```bash
 magnet:?xt=urn:btih:61522121FA6F344772C2D2BA2EBAEE5B2678E6E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38DE0BAE70B3E5B2F2588EB9793BD6D91F8EE075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ Blufeld - On A Deeper Level / Through My Eyes (2009,2011) [MP3|320 Kbps]<Trance,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D88B08EB328FC28EB8D21940E2EA5E9B3994F10D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ U2 - This Show Will Last For Ever (2011) bootleg [MP3|192 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:9F8EB28D3724ABC30B62580097F7BE5823802D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Green Valley: Fun on the Farm / Ферма Зеленая Долина (2008) [R
 ```bash
 magnet:?xt=urn:btih:A2CEF8BCF8A7EF5235387CFCDF9B2D61185F3D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trine Anthology (2013-2015) [Ru/Multi] (2.12/2.01/1.11) Repack Seraph1
 ```bash
 magnet:?xt=urn:btih:39275ADC7E645A7EAEF46E5D0C75F50B972B8F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Butterfly Sign - детектив от первого лица, в кото�
 ```bash
 magnet:?xt=urn:btih:3A28FA11ED973C6087C345270ECEC62CC2B1E543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rocketbirds 2: Evolution (2017) [Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:BE582DF8AD8958FB4CB42AF3DD34F28DB887293D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

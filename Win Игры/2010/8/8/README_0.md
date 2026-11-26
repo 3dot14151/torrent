@@ -23,8 +23,7 @@ Sky Taxi 2. Storm 2012 / Небесное такси 2. Шторм 2012 (P) [Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

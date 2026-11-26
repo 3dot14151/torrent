@@ -19,8 +19,7 @@ S.W.I.N.E. / С.В.И.Н. [Ru] (Repack \ 1.4) 2002 | LandyNP2
 ```bash
 magnet:?xt=urn:btih:4D53D6351204B4CEB08AC04603741F89F94B5E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

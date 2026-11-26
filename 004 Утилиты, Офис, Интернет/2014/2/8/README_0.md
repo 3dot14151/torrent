@@ -19,8 +19,7 @@ PC Optimizer Pro - программа для очистки, восстанов�
 ```bash
 magnet:?xt=urn:btih:0F40CCADE00C3D75E94395991FD3B95E326767BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

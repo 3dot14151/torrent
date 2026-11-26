@@ -28,8 +28,7 @@ The Ventures - Venturized (2010) [MP3|320 kbps]<Instrumental-rock, Surf-rock>
 ```bash
 magnet:?xt=urn:btih:6F84F389095536AA797EF03A50F1999F358D3E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Shocking Blue - The Very Best Of (1989) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:562BDE84D51879867B0355BDE73D93E11BE30629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +98,7 @@ GUANO APES в течение нескольких лет стремительн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Children Of Bodom - Дискография (1994 - 2011) [MP3|192 kbps]<Melodic 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

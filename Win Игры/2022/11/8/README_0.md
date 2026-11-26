@@ -19,8 +19,7 @@ Ghostbusters: Spirits Unleashed — это увлекательная много
 ```bash
 magnet:?xt=urn:btih:FE19EBAF17C067347A25F1F43763A7A43B43F35F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

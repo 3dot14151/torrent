@@ -26,8 +26,7 @@ DJ Nike Twist - TranceWave 103 @ GTI Radio (04.12.2014) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:B80E683F632229D39A80EDA850AD2C77A320BED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Deviltears - The Keys (2014) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:17923D3073A89DF52D7335DEF289EB69C7F0D0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ VA - MiniMaliZm Vol. 2 (2014) [MP3|320 кб/с]<Minimal, Techno>
 ```bash
 magnet:?xt=urn:btih:5E0F71C4A942106C8E44B650FCB04486F0843A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6AACE2E7823C5BA313CD82B7484A28F88A3AF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CE3D393771C6472E1819CE8204DD293F10573ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Antonio Rey - Colores Del Fuego (2011) [MP3|192 кб/с]<Flamenco, Instrumental>
 ```bash
 magnet:?xt=urn:btih:135758D540EC678092A87DF1B24217AC8A81FA42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:185B30D097756999D1871637637E0CD57C9AA4E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Africa Unite - Un Sole Che Brucia (1995) [MP3|320 кб/с]<Reggae>
 ```bash
 magnet:?xt=urn:btih:40AF5918683FEEB381A6B5FA111A30D5EF13E82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BA4C48EE938CBD16C249931A20580EA3C2B07E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ VA - Аrmin Оnly - Intense Тhe Мusic (2014) [MP3|320 кб/с]<Progressive Tra
 ```bash
 magnet:?xt=urn:btih:F760ED19D1BCDD85566A2D67926F9C5F1A023571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ VA - Color Dance Project (2014) [MP3|320 кб/с]<Club, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:1B243FE46209F981954055022B3BEE553A59C36B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ Candyland - Suck It And See (1991) [FLAC|Lossless]<Indie, Synthpop, Alternative 
 ```bash
 magnet:?xt=urn:btih:C98B77B1883AFA292A2501D507A01A476DF2307C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ PostHaste Music - Best of Mark Petrie (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:F61562293F024596A6BFFB39B310D56EB67742CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ NOFX - Backstage Passport Soundtrack (2014) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:F53740DA1D36526ACE36A694D486A87077F96C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3BCBFB64139DC34306150D3DB2F1F10086303BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A308FABB5A97D0CBD0E259E68A292ED1EE8CA551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ Baidu Spark Security Browser - веб-браузер от известного �
 ```bash
 magnet:?xt=urn:btih:A39367CB28467BAC583445DF340CAF2662F86698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74DB58855F513F044CF33AB9E3C8453690585982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B615B8A3863BE1106B3B1433F550D6A3BBFE8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ ReallySlowMotion - Elevation (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:675016E8E5C87B2CD1DA6A50ADC457F386793929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ Luna Rossa(Ex-Panic Room) - Secrets & Lies (2014) [MP3|320 кб/с]<Art Rock, Pr
 ```bash
 magnet:?xt=urn:btih:279954C460D657770EB5D3C6813A9188F9FD4CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00B6C206109F9FF7837A06C4075D6DF017DB91EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E358C5F81DD0B4DF25B49C6B6B2D79347E202A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:247D2553365A5E62F336C6F994E663B0976BC00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ Giant - Time To Burn (1992) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5D2139856AD93552DD7B7D860197C1E54E5354D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ Eric Bibb - Jericho Road (2013) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:75F32237B33E2E30AD253A3ECB38343CC11556F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Canterra - метал-группа с женским вокалом из Лей�
 ```bash
 magnet:?xt=urn:btih:3CFEEF1BC4E01952022114C0AC77CCE5DC405945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Dreamland — группа из Швеции, играющая в стиле м�
 ```bash
 magnet:?xt=urn:btih:CEB62A4D72FF04AC9CFEBF47D5A2FBE15E9213F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

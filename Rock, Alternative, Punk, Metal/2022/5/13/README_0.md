@@ -22,8 +22,7 @@ Fátima (Fatima) - Fossil (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Met
 ```bash
 magnet:?xt=urn:btih:687E90859247B4FE330FDE0B48DEEEB3A1E3A00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cancerslug - Full Term Abortions (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock
 ```bash
 magnet:?xt=urn:btih:C173FDF6EA44493F07EE120E03363C1FDFCE4DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ecstatic Vision - Elusive Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Sto
 ```bash
 magnet:?xt=urn:btih:6FF7D06D3DEB44041A96A6D3950328B1C2C74759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Opeth - In Cauda Venenum (2019) 2CD, Extended Edition, 2022, Atomic Fire [FLAC|L
 ```bash
 magnet:?xt=urn:btih:F6CCA2C8EB3BFC5F704B82D994D0B660FD1A3C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, G
 ```bash
 magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Visions Of Atlantis - Pirates (2022) [MP3|320 Kbps] <Symphonic Metal, Female Voc
 ```bash
 magnet:?xt=urn:btih:9BB9D82D926549BAB595E1A33AD4706121AE92EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Florence + The Machine - Dance Fever (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 ```bash
 magnet:?xt=urn:btih:79023F262E02F069A4AC93DB2A7069189FB80280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Halestorm - Back from the Dead (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Heav
 ```bash
 magnet:?xt=urn:btih:C41B56853574A46B39448F27CF7F183D76E010F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

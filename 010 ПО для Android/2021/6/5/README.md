@@ -22,8 +22,7 @@ BirdNerd v1.0.9b [Ru/En] - Определение птицы по голосу (
 ```bash
 magnet:?xt=urn:btih:A9A905147B125898E6BDC24740379C28A3E0CA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55B14174C23047D32020C6D066233E96A426474B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

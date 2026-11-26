@@ -19,8 +19,7 @@ Witches Legacy 6: The Dark Throne (2015) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:745397F140683179E931ACA37697475CBFEB0B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death and Betrayal in Romania: A Dana Knightstone Novel 5 / Роман Даны 
 ```bash
 magnet:?xt=urn:btih:44331486030A16568FE3C4EB709188662E088836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hidden Expedition 8: Smithsonian Castle / Секретная экспедици�
 ```bash
 magnet:?xt=urn:btih:E2596DF0AE13D901F74AABD1A52085F47C7570DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grim Facade 6: Hidden Sins / За гранью жестокости 6: Тайн�
 ```bash
 magnet:?xt=urn:btih:DEC6C15C7F1162AB5697E84B212BA9685F4966E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

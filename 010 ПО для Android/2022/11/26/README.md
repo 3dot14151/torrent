@@ -19,8 +19,7 @@ QuickEdit Text Editor Pro - Полноценный и многофункцион
 ```bash
 magnet:?xt=urn:btih:A4334B354B1A99B8E83F8D3C78B03F8D9D1187A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Code Editor Pro - это оптимизированный текстовый р�
 ```bash
 magnet:?xt=urn:btih:396B2A1C1B64DF2956D7BEF13C966F6FEB59291A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Erudite - это приложение для изучения английско
 ```bash
 magnet:?xt=urn:btih:7ADDEEE678BEDA5F2D08ABCE8789FB265DE8F994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Colorize - Color to Old Photos v3.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D98FFC132E6A92F25FB9D533AF57C001B42B3B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

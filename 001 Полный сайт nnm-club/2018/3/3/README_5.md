@@ -21,8 +21,7 @@ VA - Top 100 Зайцев.Нет Февраль 2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:677E18A7D66B612C7613E60464CC9C24CF8BBAD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06B8BFE7B416FF2CE0D6F0D919E7092B57C62C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC868187A90C019F5B4C639FC2470F7A7576259D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ EDIUS Pro 8 поддерживает большое количество фор�
 ```bash
 magnet:?xt=urn:btih:CEA86098A6571DF33F2BB3E5393F1FF49C0D01C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Visual Studio Enterprise 2017 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:969173200224D0216C70D83A03A680154B1B4626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:027EC0C3AB0781E7074099AA4BDA12AB857BF522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

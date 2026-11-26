@@ -22,8 +22,7 @@ Tori Amos - In Times Of Dragons (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alte
 ```bash
 magnet:?xt=urn:btih:78FFBABDA19583A7E0E4F63EABE522F2D5AD8B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jane Wiedlin - Tangled (1990) [FLAC|Lossless|image + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:F72B3D862B695B3A5069AA8A22304482FB00365C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Return - Fourplay (1991) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:3C5F8FEE3607628912DDE10420CF8F599402AC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rush of Fools - We Once Were (2011) [FLAC|Lossless|tracks + .cue] <Alternative R
 ```bash
 magnet:?xt=urn:btih:EE01C4EF52A7D7FD640013AB09FFD5F9E37EAF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Draconian - In Somnolent Ruin (2026) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal
 ```bash
 magnet:?xt=urn:btih:9B3A4A3485C82CB1B5279779B42791F5E0FF23B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ State of Flux - Stasis (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:41B9B8D7FED2EAF4165CE99ECBF422EA27A6DC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Black Label Society - Engines Of Demolition (2026) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:AD2CE5D4A09F4339308F1DF6F6D5AE876E5BA674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Crimson Glory занимают особое место в моём личном 
 ```bash
 magnet:?xt=urn:btih:740002E5AC3510E046B827E13F4F4AB7CC785339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Carrion Vael - Slay Utterly (2026) [FLAC|Lossless|image + .cue] <Death Metal, De
 ```bash
 magnet:?xt=urn:btih:1FF1971AAD55EF79010EC147BBE238E5D4C7B394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

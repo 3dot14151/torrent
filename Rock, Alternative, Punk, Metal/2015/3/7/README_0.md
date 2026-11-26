@@ -23,8 +23,7 @@ Subversion - Animi (2015) [MP3|320 кб/с]<Technical, Progressive Metal, Djent>
 ```bash
 magnet:?xt=urn:btih:0D14014260CA59661498465ECD843FBC4F024FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Pupil - Zilch (2015) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:2B0AAD2FCA37C9930CB52BFB96F66CCB219DE7C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Third Day - Lead Us Back: Songs of Worship (2015) Deluxe Edition [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:26501DB0F406F085810EA751559A2DF5D261E15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Karyn Crisis' Gospel Of The Witches - Salem's Wounds (2015) Limited Edition [MP3
 ```bash
 magnet:?xt=urn:btih:71B57368F9B0F921A8830415795F479FEDEE2FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Todd Griffin - Mountain Man (2015) [FLAC|Lossless]<Classic Rock, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:4F2FC8F581F0B21FA05D3C9306EEDB10F31DDE33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ The Supernaturals - 360 (2015) [MP3|320 кб/с]<Rock/ Indie/ Britpop/ Power Pop
 ```bash
 magnet:?xt=urn:btih:113399F7D3CBEEC03EC18D02F78D8928EDF9333F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Onyria - Break the Silence (2015) [MP3|320 кб/с]<Symphonic Metal, Female Voca
 ```bash
 magnet:?xt=urn:btih:F23FF11814FCE5FC10DB919243679F2771DDA130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Vanilla Fudge - Spirit Of '67 (2015) [MP3|320 кб/с]<Psychedelic/ Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A9E1E16E3994DA379542876C16A67DB6B0E18D94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Moonspell - Extinct (2015) Deluxe Edition [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:8A8DC9622757D7333E128EC742F0ED36AD4E2083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Eskimo Callboy - Crystals (2015) [MP3|320 кб/с]<Post-Hardcore / Electronic>
 ```bash
 magnet:?xt=urn:btih:47A6F0CA92CF1D222BEC590EF3D26BA010C4D968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ Terror Universal - Reign of Terror (2015) EP [MP3|320 кб/с]<Groove Metal, Nu-
 ```bash
 magnet:?xt=urn:btih:7041E3442E2E5025EB9E9AC20F2DA446DF20C931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ VA - Metal Ballads 1 - 2 (2015) [MP3|319-320 кб/с]<Metal, Rock>
 ```bash
 magnet:?xt=urn:btih:6AB012F9822AF2325000B249AC9DE67769EEFA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ Helloween - World Ballads Collection (1999) Compilation [MP3|320 кб/с]<Power/
 ```bash
 magnet:?xt=urn:btih:9D7D2915D0301A2DC313B32A251121519938E9E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE2A564E46C49D00BFD36D2FC539C1E12F3C4078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

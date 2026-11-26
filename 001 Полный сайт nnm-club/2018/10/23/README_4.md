@@ -22,8 +22,7 @@ Aurora Borealis - Praise The Archaic Lights Embrace (1998) [APE|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:136B1399DF1D1AA83DB776D4EF1B5088C425F998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bodyrox Feat. Luciana - Yeah Yeah (2006) [FLAC|Lossless|tracks + .cue] <House, E
 ```bash
 magnet:?xt=urn:btih:8480E2B794D14AADDBD689203DB470B9DB39638A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ DJ Base - Энергия Жизни 1 (2001) [MP3|256 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:C5747CA4CC29D73FADE113704732533A0225DA7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ IconJar 1.12 [En]
 ```bash
 magnet:?xt=urn:btih:66DFDB6C657A714CBE12CCB9EAF1E3DE9F08F523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Brief Respite - Lullaby to the Moon (2005) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:7ED8E574DD6E5EE5D0FEF845C2DC3D145A86D92C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Dark Amsterdam (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2EC1A776FD6665BEE3A25F73FAC1B947D13E62EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ David Eugene Edwards & Alexander Hacke - Risha (2018) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:0699430F4950691F1FDEE338AD6619B211AAE042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Mirror for Sony TV 3.0 [En]
 ```bash
 magnet:?xt=urn:btih:CCB187A45BFB211A0B49E1FFDB8C9824334BE459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:6A94A120E250F4C4DD173FB6A628FD5D8E8B144D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC2CD645DE9C13FD4B8C2C0C7C5B3F7792F983C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C22AC1420CFF50D93DA3A6458E2BF621F152937C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Barney Kessel - Modern Jazz Performances From Bizet's Carmen (1958) 1986, Origin
 ```bash
 magnet:?xt=urn:btih:F0D86429667A46EBE92B88A05CA7B313D17236CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Artistry Photo Pro: Photo Edit 3.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:04077FC75EFC2C2E611D44C3295FAE7070D7A7A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E031573A9B19E54A8C28730BB0CECD34822E618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ QuickRes 4.6 [En]
 ```bash
 magnet:?xt=urn:btih:FDCE9E20A77FE97F0EC147AA1AD6FC2867B9DC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ Tweak Photos 2.1 [En]
 ```bash
 magnet:?xt=urn:btih:F8FA0DE127FF74CA5A343F4B7E75E7DBC157A72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ iVI способна конвертировать и импортировать 
 ```bash
 magnet:?xt=urn:btih:A4A3E285F785AFD1DA78112374446321E3E1F82E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ DJ Бинокль - Counter-Strike Attack (2002) [MP3|320 Kbps] <Club House>
 ```bash
 magnet:?xt=urn:btih:0A2FE5DD05D5C75CB92BF7DEA2A9CB50905A16CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ ProPresenter – это система для презентаций, котор
 ```bash
 magnet:?xt=urn:btih:CEB3AC29869AC969F275B9DC8532F96152E3F3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ Comodo Dragon 69.0.3497.81 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A0BBC6D999EA3E3E3693E8A17980FE19A98E4099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ VA - Autumn Mood: Ambient Serene Music (2018) [MP3|320 Kbps] <Ambient, Downtempo
 ```bash
 magnet:?xt=urn:btih:9AAF0F1C9701C0443A88E05804718C558DCBA487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ VA - Essencia Vol.2 (Compiled By Digital-X) (2018) [MP3|320 Kbps] <Psytrance>
 ```bash
 magnet:?xt=urn:btih:BE69DC170A266D4CEA3D854757009BF1B3DE6074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ VA - Blasted Note (2018) [MP3|320 Kbps] <Psytrance >
 ```bash
 magnet:?xt=urn:btih:6E7D09097C134C2D98D435115CA9FB6404BAA53F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ California Sunshine - Bicycle Tune (2018) [MP3|320 Kbps] <Psytrance, Progressive
 ```bash
 magnet:?xt=urn:btih:915C04AD585B0BFD759C233D32865F47F5340D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DB50E0A89CFF17D9F9D411CC269F517D8D7232C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ VA - Chill A Tropical Delight (2018) [MP3|320 Kbps] <Chillout, Downtempo, Ambien
 ```bash
 magnet:?xt=urn:btih:25A77121FCF34A2DCCC38A2D53E061936C0546E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Lordi - Monstereophonic (Theaterror Vs. Demonarchy) (2016) Japanese Edition [FLA
 ```bash
 magnet:?xt=urn:btih:86541817771DCB0716B5D4A8E6C288C496E68A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lordi - Deadache (2008) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:5180CE6C2F5B32CEC06BA414C8F204AA60D212C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lordi - Scare Force One (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:6E96A3F82FBF0F308A6B768020B96E855EB6CECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tropical Fuck Storm - A Laughing Death In Meatspace (2018) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:428CC9342E34D8E7D6D53D9E9E4FA9CA6C5589B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lordi - The Arockalypse (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:865434B8A29557B9ED54E1BF097020A73349B396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Cloves - One Big Nothing (2018) [FLAC|Lossless|tracks + .cue] <Indie, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:EEC3E71028E1CE1632E329B0E4B37B88213B6854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Moonspell - 1755 (2017) Limited Edition [FLAC|Lossless|image + .cue] <Dark Metal
 ```bash
 magnet:?xt=urn:btih:06DB899EA881B23851A59DFCDCE4F9368A2E2DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Arch Enemy - Covered In Blood (2019) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:D34F4B8109944FFAFFEF93AD6BEC36D21ABEDCB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ AC/DC - AC/DC (2006) 17CD Box Set - Limited Edition [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:475307C377CA129FB7E6EA5BEE40FBF07C9A3A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

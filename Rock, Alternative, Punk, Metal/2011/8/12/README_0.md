@@ -30,8 +30,7 @@ David Sylvian - 27 albums (1984-2011) [mp3|320 kbps] <Avant-garde, Progressive R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Neo Geo - Self-Titled (2011) [MP3|320 kbps]<Alternative, Electronic, Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ This Is a Standoff - Be Disappointed (2009) [MP3|320 kbps]<Punk Rock / Melodic H
 ```bash
 magnet:?xt=urn:btih:474870A5BD81A1FA9D5691D0E66632D4E8DFE0C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Timeless Miracle - Into The Enchanted Chamber (2005) [MP3|320 kbps]<Fantasy/Melo
 ```bash
 magnet:?xt=urn:btih:BE8AB3EF621AAE17ECF356622105436A273C785E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Blue Stahli - Antisleep Vol. 2 (2011) [MP3|192 kbps]<Alternative | Electronic Ro
 ```bash
 magnet:?xt=urn:btih:5A96698418B0B56F8154B23CCB44548F85BD9B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:7FD2D17FF6C0D10DA5EDD18D5664D9E0E8FFDE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Chevelle - Hats Off To The Bull (2011) [MP3|320 кб/с]<Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:51816C240C3ABF9696955E0569993196C9CC9ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Sting - 25 Years (2011) (3CD Box Set) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Fleetwood Mac - Rumours (1977) [FLAC 2.0 24/96|tracks (WEB-DL)]<Rock>
 ```bash
 magnet:?xt=urn:btih:3D570CE3CD672117DD6A6F2CCFB240861EFC55A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Infernal Majesty - No God (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C830C973A19AA278BB5D03AD4E003FC4A1FDBDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disturbed - The Sickness (2000) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alterna
 ```bash
 magnet:?xt=urn:btih:6AACD8DC8533A51772804B36C287B8754F03796D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Disturbed - Believe (2002) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative 
 ```bash
 magnet:?xt=urn:btih:B0D3CDB00F392092FDB9F92B6167A90E5B61EB81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Butcher - 666 Goats Carry My Chariot (2020) [FLAC|Lossless|WEB-DL|tracks] <Speed
 ```bash
 magnet:?xt=urn:btih:9B6A8401B35A8B28DEBD745E715BDB53DD8B3A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lionville - Magic Is Alive (2020) Jараnеsе Еditiоn [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:5577CA700C09E14FD8153B3380B633A3C03A93A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ One Desire - Midnight Empire (2020) Jараnеsе Еditiоn [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:DF76B5B78128EC06043F3977E0E1624390CFE34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lee Aaron - Almost Christmas (2020) [MP3|320 Kbps] <Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:689ED42C1B00DD6A58D439EEE71BAE43A336D229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6427CEF208B9BCF357D3362749D4BAD3D5DE33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Disturbed - The Sickness (2000) Remastered, 2010, Reprise Records [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:4C9FE15E7B0B7A36EDD71FDD54A177A714666039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

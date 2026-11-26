@@ -22,8 +22,7 @@ Royal Bliss - The Covers That Surround Me (2025) [MP3|320 Kbps] <Modern Rock, Po
 ```bash
 magnet:?xt=urn:btih:39CD8A64F3438AB80BF7F27353FE7F270771EECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cuervo - Abismo Y Ascensión (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F1B01B846FD2462D81139204C30B0511D2838668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:BAEEFB1261C88AAFECC3280AD56F7D4A28F10028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Royal Bliss - The Covers That Surround Me (2025) [FLAC 16,24/44.1,48,96|Lossless
 ```bash
 magnet:?xt=urn:btih:9728C0A1E5FFB5D66E1E53E02E3021A5E17A1374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

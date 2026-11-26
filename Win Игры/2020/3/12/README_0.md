@@ -19,8 +19,7 @@ Dark City 4: Dublin (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:0F50B7672FE658A3ADE16C9C6BE343B4A8EE56A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wasteland Remastered (2020) [Ru/Multi] (1.07) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0EE8B0C0C7699FF84C1513DCC28829FC35D9680D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

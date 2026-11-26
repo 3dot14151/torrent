@@ -19,8 +19,7 @@ R – безусловно лучшая среда для интерактивн
 ```bash
 magnet:?xt=urn:btih:1E87D4C6ED683746D35708ECB5C383DF14424A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ With Head First Python, you’ll quickly grasp Python’s fundamentals, working 
 ```bash
 magnet:?xt=urn:btih:D709CBC5FE019F9E9A49CF134C08740868A1CE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

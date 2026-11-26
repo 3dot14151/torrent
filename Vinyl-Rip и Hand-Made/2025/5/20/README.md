@@ -22,8 +22,7 @@ A4 Русская Рулетка • Russian Roulette(   Читать дальш
 ```bash
 magnet:?xt=urn:btih:25D23E69C54D65E0269803C37953A0DA104B129D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

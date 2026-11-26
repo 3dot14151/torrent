@@ -19,8 +19,7 @@ Desynced (2023) [Ru/Multi] (1.0.17871) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A819DB1DA6930DB8DE615E8659B57B2982CB1B4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Collector's Cove (2026) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:469F99EDA2063EBB9B43E050BF60DBD4A7374764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Soulstone Survivors - это динамичный action-roguelite, в кото�
 ```bash
 magnet:?xt=urn:btih:A177E700790E071F75573315BD04507D0BD3AEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ One Last Raid - это динамичная арена-игра на выжив�
 ```bash
 magnet:?xt=urn:btih:A075D3D3A2AC2098C7502B2A829616106F14A092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Slaverian Trucker - это симулятор выживания, дальн
 ```bash
 magnet:?xt=urn:btih:DB54DF400C13E5D09DF1BC9E775912A7A4FC87DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Repack FitGirl [Gold 
 ```bash
 magnet:?xt=urn:btih:9B8C301D86818F07ACCED1305AAD8C4308335B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Repack HardwareMining [Del
 ```bash
 magnet:?xt=urn:btih:A4A8D53ABE96AAD0119EBB660BB242D08958422A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Minos - это игра в жанре roguelite со строительство�
 ```bash
 magnet:?xt=urn:btih:888AF725D0549FD268E0EF3D360BA82A8293A3B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Dome Keeper (2022) [Ru/Multi] (5.0.0/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7B889DD1E04421FA0362363BAC109F429DC781E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ACB6DF92B72398F0066B1A1F258EB3C48E4A8DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3D52D627525390C659A12FD1F7468D0C7E24B865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Shattered Divinities - это атмосферная двухмерная при
 ```bash
 magnet:?xt=urn:btih:34788BB4325FE0872B54093186524022B5866BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ The Last Gas Station (2026) [Ru/Multi] (1.0.5.351) License GOG
 ```bash
 magnet:?xt=urn:btih:CCA81414372A44089DB8D307F72C38A82A4F031C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ AS SSD Benchmark — бесплатный инструмент для тести
 ```bash
 magnet:?xt=urn:btih:842AFF8213BC16073E328C98E170ED464D49ED16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

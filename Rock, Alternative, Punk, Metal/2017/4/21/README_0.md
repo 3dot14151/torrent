@@ -21,8 +21,7 @@ Nagelfar - Als die Tore sich öffnen... / Jagd (2017) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:FD6B1E80B68CC9502CE335315F917B8D36A31BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Chronosphere - Red N' Roll (2017) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:D7FDCE9003649C5CC4B1F99A7D582C3B4382A7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Emerald Edge - Surreal (2017) [FLAC|Lossless|image + .cue] <Progressive Metal, P
 ```bash
 magnet:?xt=urn:btih:00B2F6D54936F4C1F2C39D235009CF7497F58E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Hidden Lands - Halcyon (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:3E1586D35F9277B392E794FF90BF25712F072934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Nico Vega - Chooseyourwordspoorly (2006) EP [MP3|320 Kbps] <Alternative, Punk, I
 ```bash
 magnet:?xt=urn:btih:28201A8E76AD4A4417890DF5F044E2A3A2EF6D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Can't Swim - Fail You Again (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Em
 ```bash
 magnet:?xt=urn:btih:5BE89D4A23ECD5AB8D12D5EE1A6D24D961874C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Barock Project - Skyline (2015) 2CD [FLAC|Lossless|tracks + .cue] <Neo-Prog, Cla
 ```bash
 magnet:?xt=urn:btih:D7AE597FC9EE67728EDDD920A72B1F3370DB5172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Bonfire - Byte The Bullet (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:40FAB40E26FA07F2A78636CAFC995B931F51E7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Incubus - 8 (2017) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:479305223ACDDD60EBC9E26B8560CE7DA5E3F439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Hank Marvin - 7 Альбомов (1969 - 2013) [FLAC|Lossless|image + .cue] <Roc
 ```bash
 magnet:?xt=urn:btih:742F419C27F5D8DBF723DAE64741F779096FABC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ The HardKiss - Perfection Is a Lie (2017) [APE|Lossless|tracks + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:8F36FDBD24819CE8E871D8078B086E2ACF69BE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - 100 Hits Rock Jukebox (2016) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Cl
 ```bash
 magnet:?xt=urn:btih:2FDC85A7F91EB040F477E7BEB6B662AB88D98373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

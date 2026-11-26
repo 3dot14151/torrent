@@ -21,8 +21,7 @@ Valley - Original Soundtrack (2016) [FLAC|Lossless|tracks] <Score,  Orchestral>
 ```bash
 magnet:?xt=urn:btih:92488F0061A35C6DDF0CFCFB2B06B59A12F21334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Underground Nu-Disco Sessions Vol.6 (2016) [MP3|320 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:A7146578305A0A31F7E13104999495616A36C2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Плохая примета. Блатной суперсборник (2016)
 ```bash
 magnet:?xt=urn:btih:14DDECA6DCC1BA0495705A8F71F4A9BA1B12A1C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Larry Carlton - Sapphire Blue (2003) [FLAC|Lossless|image + .cue] <Jazz, Blues, 
 ```bash
 magnet:?xt=urn:btih:FE607495A562676FD176829B9230A53A51C094DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ PDF Combine - надежный инструмент и незаменимая п
 ```bash
 magnet:?xt=urn:btih:F6E3E6DEED458495054E959EF9EB4D8212867682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3A57B0349D3179738621263C357BC9CD20EB9D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Зажги Под Летние Хиты 9 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:02FA4FAD0BBBF684FF48774BE85AF61CA07872D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - Жаркие танцы. Сборник 6 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:57C20A64EB5507DD9BF44A7FC03EC8E72AF367AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:86946404D86AE3DFB0AAABD40F26DABE22E115F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - The Girl from Ipanema: The Antonio Carlos Jobim Songbook (1995) [WavPack|Lo
 ```bash
 magnet:?xt=urn:btih:CDB04CFB12E203CEF409663C223C1FB636F01053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Душевный сборник Шансона - 2 (2016) [MP3|256 Kbps] <�
 ```bash
 magnet:?xt=urn:btih:43AC9FB8F72977DD5E368822DF8CEC1F956BC8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Future Trance Vol.77 (2016) [MP3|320 Kbps] <Trance, House, Future Trance, P
 ```bash
 magnet:?xt=urn:btih:14F80B1DC7F4EAFB836D64326A7BCF94CA836AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Ingrid Michaelson - It Doesn't Have to Make Sense (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F304B92DE362D03175E73654142039E97B7D9289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:594C1B5ECEEC378033F1E4E38B51A0E79269B7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A00B1FA9499D6E80CA25B4A5B2CCAEFA8B942473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD15ADE733D3D41640235094D11271A5CAFCB76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Wise Care 365 Pro 4.24.409 Final + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1107DFC9E3AE96D7754F5D619212AF16D8DA549E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Thomas Lemmer - Pure (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Do
 ```bash
 magnet:?xt=urn:btih:21A53D910FE712A8A0DB10CC10D53E55DEA218B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ VA - Relax with Electro Jazz (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:8E6AB539377BDE70F72FC3A7689F6D27F213E600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A27504D57A56F67E8F8821CDB1AF37CA963E7F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBF6AE69AA39EE725BE13C7CF9871191CCA1C5EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ VA - Ballads - Let Your Heart Sing (2016) [MP3|320 Kbps] <Gospel, R&B, Pop Rock,
 ```bash
 magnet:?xt=urn:btih:DE52BBE826EDD31A61178F5C0D6B41043509CB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Ownglow - A Walk To Remember (2016) EP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:5F7E1EB38B6F2E1237CFB581244BA494C7E6EAB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ Sodom - Decision Day (2016)  Japanese Edition [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:EFE9AD8EC4E97CB4936752CC2C686B23FA3BFA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39E152E67FDF6D10F143B1DFE4D30AE09F35A1C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ VA - Хиты летние за рулем. Версия 8 (2016) [MP3|256 Kbps]
 ```bash
 magnet:?xt=urn:btih:66648C2E80C922F3F598D66037F0C07A093F2785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

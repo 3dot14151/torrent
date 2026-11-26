@@ -19,8 +19,7 @@ Sea of Lies 2: Nemesis (2014) [En] Unofficial [Collectors Edition / Коллек
 ```bash
 magnet:?xt=urn:btih:661AE893CED5D3E7741F5BEE41ECC9C4D678B330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Trine 2 (2011) [Ru/Multi] (2.0.0/2dlc) SteamRip R.G. Игроманы [Complete 
 ```bash
 magnet:?xt=urn:btih:6AFD6A7CFC00477997CF5C6C7297C10A5E390003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Conflict: Anthology / Конфликт: Антология (2002-2008) [Ru]  Rep
 ```bash
 magnet:?xt=urn:btih:4561D5119A1A1977132B5206E0B508B3B2C70492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

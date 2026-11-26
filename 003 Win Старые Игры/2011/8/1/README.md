@@ -19,8 +19,7 @@ Line of Sight: Vietnam [Ru/En] (P) 2003
 ```bash
 magnet:?xt=urn:btih:2390D70218A6A336629779362E242C3A45EC2D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

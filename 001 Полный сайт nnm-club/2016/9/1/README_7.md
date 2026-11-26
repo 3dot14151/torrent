@@ -18,8 +18,7 @@ Destroy Windows 10 Spying 1.6 Build 722 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:51A5223727E511C37D88AFCD4A50CE50EA4FE512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FF01328FF9F1E9C89B6AEAD2D289F041045AFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

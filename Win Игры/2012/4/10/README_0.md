@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1DD7D3EDFBB0B4CD7D1CCD53745C26ADD1240AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Hotel II: Believe the Lies / Проклятый отель 2. Паути
 ```bash
 magnet:?xt=urn:btih:6BAE181F95D1853A397B17132BD74433EA36A2F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Scary Girl [En] (RePack) 2012 | SEYTER
 ```bash
 magnet:?xt=urn:btih:F394D5697C4CD117D9A850273B4572591B110124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Megaplex Madness: Now Playing / Мегаплекс. Ни дня без прем�
 ```bash
 magnet:?xt=urn:btih:7F4B205B5E2ECA6D2574C125FA5885580EA62269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Tumble Jumble - отличный физический пазл от создат
 ```bash
 magnet:?xt=urn:btih:F9341741E03CC377DFAC545878CD1FFA66BA667C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

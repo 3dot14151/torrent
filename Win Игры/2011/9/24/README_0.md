@@ -19,8 +19,7 @@ Mahjongg Dimensions Deluxe: Tiles in Time (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:078B9F80EFC813E15A5573E2A4C6DF30D46D64ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ THEM: The Summoning (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:B7E9E0F3C024CC1F475E9A154ED4B027B606286D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Wings of Prey / Крылатые Хищники [Multi5/+] (RePack/1.0.4.1) 2009
 ```bash
 magnet:?xt=urn:btih:C12E3612055F85DEABE91E6213929740C6EF9B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ F.E.A.R. 2: Reborn [Ru] (Р) 2009
 ```bash
 magnet:?xt=urn:btih:3B59A9B2F89000795ED384F8C665C56CEE4AD1DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Dungeons: The Dark Lord [Ru] (RePack) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:513297FFCA85E90F416E1668944FE49FDA92D577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

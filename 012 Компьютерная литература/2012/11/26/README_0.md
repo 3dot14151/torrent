@@ -19,8 +19,7 @@ Jerry Honeycutt | Introducing Windows 8. An Overview for IT Professionals / Зн
 ```bash
 magnet:?xt=urn:btih:3FF8F17244D76E464E0DD8C6160DF69A020D4BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

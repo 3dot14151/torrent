@@ -19,8 +19,7 @@ Fallen: Flowers Of Evil / Падшие: Цветы Зла (2012) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:BFDB1498BBF9AFFB67E9F20B700A6540FB1198E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Rogue Legacy - Это игра, в которой каждый сможет ст
 ```bash
 magnet:?xt=urn:btih:108CED762568A1D20FD3A19B18065D74C9419A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

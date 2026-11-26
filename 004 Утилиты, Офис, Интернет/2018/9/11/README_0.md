@@ -21,8 +21,7 @@ BurnInTest Professional также может проводить тестиро�
 ```bash
 magnet:?xt=urn:btih:53FEB0315D97C7FCFCBF68008F9034B03F47B765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

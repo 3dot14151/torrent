@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:03290E3588AFD093603E5E3DF64890D3F4BF335D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B3785240DD1FDE03C2CF84C54F82C7F7E5A9FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90CB83D8DF71FE3CED9B7C77F4C37FCCB24BA3E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ David Crosby - Croz (2014) [ALAC|Tracks]<Rock / Pop Rock>
 ```bash
 magnet:?xt=urn:btih:8CAA6CC53728437B35AAFACEF7856B17948B0128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Jessica Molaskey - Sitting in Limbo (2007) [ALAC|Tracks]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:A0AB076FADFBBC5AB0EF44A452D3FB2E5B0FEAE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04E8D0CE87D6C4935986B8D6A7BB3F56E1E8C1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Solar Fake - Reasons To Kill (2013) [FLAC|Lossless]<Synth-pop>
 ```bash
 magnet:?xt=urn:btih:8808C5397E81820787D07F3DCF0313D48CA99AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Solar Fake - Frontiers (2011) [FLAC|Lossless]<Synth-pop>
 ```bash
 magnet:?xt=urn:btih:A838E7C926206A01E6320C153A2B4F62298B90B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ AutoPlay Menu Builder - одна из лучших программ для со�
 ```bash
 magnet:?xt=urn:btih:138EBA3406FCBDE2DA9E89A37607C1DF865FF568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B81B3845E8620AA5B46386545E8F6CF528DDB38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ VA - Русский Стерео Экспресс (2014) [MP3|256 кб/с]<Pop, 
 ```bash
 magnet:?xt=urn:btih:919F9C44335AC8CCBF7594D58EDDE5CD308D56BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ SnagIt предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:E9DB7CAA3E0EB3ED9FBB102C211CB80BEA444104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ Inspiration Set представляет собой коллекцию из 250 
 ```bash
 magnet:?xt=urn:btih:1001CD84D569BD23564450DB5DB1D502AC32ED1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ NETGATE Registry Cleaner - это свежая версия мощной про�
 ```bash
 magnet:?xt=urn:btih:6E2410C5F045BC0C21EE7EE8E8267E5DFEE88758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ XXII Зимние Олимпийские игры. Керлинг. Женщин�
 ```bash
 magnet:?xt=urn:btih:03EFD0FB0D209188AEA31CD061D6F306BF331ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:937535E4167670D73047D846766A89F92D6E9DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C40A244AB6C742E0C1DD7585949624BC102B989E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Defraggler - утилита, предназначенная для дефраг�
 ```bash
 magnet:?xt=urn:btih:070A7AC142DFCBD0804D72452CFC5D31826849BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Barbra Streisand - What Matters Most (2011) /2CD (Deluxe Edition)/ [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:07273547242B76A8C99207E4BC21BAA023B92E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ XXII Зимние Олимпийские игры. Фигурное катани
 ```bash
 magnet:?xt=urn:btih:B8C1B5C378C520EF552A23B8C5B5BBE6C30A7ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1EDB536B295BC147727DAC55B0B7DB72B8C5F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ Dropbox 2.6.10 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:958495362D670ADA3DF2FF2577A71819B36E30C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DD4E09F1FE44E09556CE97ECFDA57EDAF4B3284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10D0C49887CF195017E130A63C48F746EFB6F12C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ O&O DiskImage Premium – программа для создания резер�
 ```bash
 magnet:?xt=urn:btih:B651CF4B8DD543845DE515750E37A312089EFC31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

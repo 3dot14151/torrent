@@ -22,8 +22,7 @@ The Shadow Theory - самый последний на сегодняшний м
 ```bash
 magnet:?xt=urn:btih:1FEC8EE73E72064C5715F86D0A27291572033651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Martina Edoff - Martina Edoff (2014) [FLAC|Lossless|image + .cue] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:53D814EA577A1D7E53614275536D1547C5A26814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Destroyer - Have We Met (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 ```bash
 magnet:?xt=urn:btih:92C4F9E99CD390557E0234A9C3E6EA0EA721C024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Alina Orlova (Алина Орлова) - Mutabor (2010) переиздание, 
 ```bash
 magnet:?xt=urn:btih:D1FAD4067F678A754F709A46BF19231CCDF8E8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Serenity - The Last Knight (2020) [MP3|320 Kbps] <Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:06A6254B1E45A4EA088C49E7CE59550BA7A76493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC555334D74B7A836FE54ECECCBDFB26FA800EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Amberian Dawn - Looking for You (2020) [MP3|320 Kbps] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:A01F46529BEA982FB079D5842666F1B103B18FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Lordi - Killection (2020) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:718CE113577F449852F9194EF8C545CA5A9F5E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41A860F182E7339630F06349149BC040B22BEC30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A240FE3526B4A3F694F84D1FC4F12A36B36E3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Mulla - Mulla (2020) [MP3|320 Kbps] <Black metal>
 ```bash
 magnet:?xt=urn:btih:82F269B94659D13D328B63195C32F6FB208835F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F0C5C5FFD47BC82B3C2DADCB67A9F1B76D36B56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

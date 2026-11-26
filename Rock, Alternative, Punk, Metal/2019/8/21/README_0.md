@@ -22,8 +22,7 @@ Tale - Riverman (1994) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F6C40BACE5D39971560CBB90FF1FA74D8A6A8355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Killswitch Engage - Atonement (2019) [FLAC|Lossless|tracks + .cue] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:3CA3D181EDCDD6DF287BC5064CAD80FE105E5831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Andrew W.K. - I Get Wet (2001) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A7CC765D2DC77A7E5D13F70161A48D52D41B4FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Slipknot - We Are Not Your Kind (2019) Japan [FLAC|Lossless|tracks + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:E41D578B6357E606DE8323C6F11F8C44694F3362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

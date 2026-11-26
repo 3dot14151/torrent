@@ -28,8 +28,7 @@ Hatetrend - Violated (2011) [FLAC|Lossless]<Groove Metal / Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Bad Habit - Atmosphere (2011) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D2F87AD8EAB67246A2724F8C4EEB88D853B93CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ CD1 - Rock Around The Clock
 ```bash
 magnet:?xt=urn:btih:3B1E0B8C93143F2956E679CA7FEF7DD2293178B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

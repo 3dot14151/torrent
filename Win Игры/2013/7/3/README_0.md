@@ -21,8 +21,7 @@ SAS: Secure Tomorrow / SAS: На страже будущего (2008) [Ru/En] (1
 ```bash
 magnet:?xt=urn:btih:54E9838F11ACEA0C9253070BEB32C8BA0167B94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Hitman: Sniper Challenge - отдельная мини-игра демонстр
 ```bash
 magnet:?xt=urn:btih:6485F9318D85B358590B1962B9507AA50E1D737D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Halloween: The Pirate's Curse - очень оригинальная игра ж�
 ```bash
 magnet:?xt=urn:btih:CA1783E86F11760ACEA4A0CCB6BE614433121B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Of Orcs And Men [Ru/En] (Repack/1.0.0.2) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:761B347EFB54DF255E5240BDBE1FD0C34E9611D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Medal of Honor: Warfighter - Digital Deluxe Edition [En/Ru] (CrackFix/1.0.0.2) 2
 ```bash
 magnet:?xt=urn:btih:67F7BE15845F2DC85EE9C55A42145EEC44D477EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Rocksmith [Crack/1.0] 2012 | Steam006/Sam2k8
 ```bash
 magnet:?xt=urn:btih:1727A537F7008FAB7D1FCDDD14A4705FA4C3B6D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

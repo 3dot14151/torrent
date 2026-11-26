@@ -19,8 +19,7 @@ Bridge to Another World Remastered: Burnt Dreams (2025) [En] (1.0) Unofficial [C
 ```bash
 magnet:?xt=urn:btih:B6D43B15C3FBA9149837E7A63D655E0D296AD1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kardboard Kings - это симулятор управления магазин�
 ```bash
 magnet:?xt=urn:btih:5D5DC0E3AD6BA48892D5EDBDA164310B10E0308E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Flooded - стратегическая видеоигра в режиме реа
 ```bash
 magnet:?xt=urn:btih:11742DA7C2CD975FF18133B7F3577D9B6BB9C32D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Amazing Cultivation Simulator – игровой проект, разработ�
 ```bash
 magnet:?xt=urn:btih:606E616C91913A35B7DE2742421132DBCFBCD427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Garden Life: A Cozy Simulator - не просто песочница, а еще 
 ```bash
 magnet:?xt=urn:btih:7BFC57E6A439E019991B126606F27FDFC405000C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Noob - The Factionless (2023) [Multi] (20250124) License GOG
 ```bash
 magnet:?xt=urn:btih:82F498CAECA85A964941E96DC25CF8C08C3A7540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

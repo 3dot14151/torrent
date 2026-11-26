@@ -28,8 +28,7 @@ D.O.B.R.O. VS Z.L.O
 ```bash
 magnet:?xt=urn:btih:0CC4757111128209957407A27D61A97E6592ACA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3101335DB02C2BBD70F781164C3BEC949E8CA36A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Katzenjammer Kabarett - 3 альбома (2005-2009) + Katzenjammer 1 альбо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

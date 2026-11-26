@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EF9011D8359935A013FDB8E06116849DE200B139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Stick Men - Prog Noir (2016) [FLAC|Lossless|tracks + .cue] <Eclectic Prog>
 ```bash
 magnet:?xt=urn:btih:33BD38F543AA805920C7985ECC1153809886A6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:885EC9171B37847872EF4F35E943F6F4311CC99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Dead Days - Start Over Again (2016) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:803BEF0E7F6A92A47984B030DC147071C7DF7734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Through Fire - Breathe (2016) [MP3|320 Kbps] <Alternative Metal, Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:9F42901E1B5650D29D79DD9D97AC00A3CCB19717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Soft4Boost Secure Eraser 4.3.1.489 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1694EF1FCE02BAD273C2DD734A5422FF37354224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1526C51814F5ADBE423DBC9E8A5AE549DB385C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C608E3E5340BCB57BD08362FCA4299734FCE09D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Black Top - Cherry Picking (2016) [MP3|320 Kbps] <Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:1E75700FC0084A33B7D4591E1C858EFC814B0C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F15723B2977B462293755675238203478EDB0998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ WiFiSpoof - небольшая утилита, которая поможет в
 ```bash
 magnet:?xt=urn:btih:3C72BD0EDDA3CCD21862EB9C7848AD4567CF699D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D26D5210A1FEC5D9149927B72A578A230ED2EF50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Peaceful Piano - Soothe: Solo Piano (2016) [MP3|320 Kbps] <New Age, Solo Piano>
 ```bash
 magnet:?xt=urn:btih:3743044204EA00905E6127552546F66F9A64A6BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ VA - Best Of Hits Party State (2016) [MP3|128-320 Kbps] <Dancehall, Bachata, Reg
 ```bash
 magnet:?xt=urn:btih:8BE136F3568E3596EE33BF45CB9CC530A568A164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Amy Lynne Johnson - Piano Poetry, Vol. 2: Music to Calm the Mind and Lift the He
 ```bash
 magnet:?xt=urn:btih:0CC3278BB5A3E45B82288328B785694CBFD115B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:C7C5F22B51DCDC15977F0716AA617468CF918367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Plini - Handmade Cities (2016) [MP3|320 Kbps] <Prog Rock, Progressive Metal, Ins
 ```bash
 magnet:?xt=urn:btih:C254C9A4DEA86539D55E26D3DF22D52AE23C24EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D295089744C5F70884C4B76046CADF6BF8A0700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ The Silence Broken - The Pendulum Effect (2016) [MP3|320 Kbps] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:BB3E80FD8BF8A720AB81F76C2103A80DB707C803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ VA - Hot All Night Erotic Background Chill out Lounge Music for Lovers (2016) [M
 ```bash
 magnet:?xt=urn:btih:93F4C35A56C320047AFB0701A2BC0A55C82C32C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD57C06DEBE37297E46B6CB38C58FE0096DDBD5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4831226527245CD6D3C017FA7B7FD8D6A0DDA35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CC63C640A4104BF664AC2C1E07C20E37436694F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ Styx - Edge Of The Century (1990) Japan Mini LP SHM-CD, 2016 [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:3D17C65D8107C6A2735694DA73453E92690A93B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42BAEDD1FC578831D06965B9846693E5E4B756AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

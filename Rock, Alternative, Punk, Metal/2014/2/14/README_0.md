@@ -28,8 +28,7 @@ Mantus - Portrait Aus Wut Und Trauer (2014) [MP3|320 кб/с]<Gothic Metal, Dark
 ```bash
 magnet:?xt=urn:btih:4AB0D5155F123BDFB2636905783905FD16650C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADBDCBDD6BD814822A23AD8F5C57744CD2298F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Dead By April - Let The World Know (2014) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:E9F256C08D4C8BD74383A14FB718D960554FEF16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74407CA767ECEC795ABA2BA17DDE0B776DFEA2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Imagine Dragons - Continued Silence EP (2012) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:F110C09391E4CC3AAD8605E7655FB4B21F190DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

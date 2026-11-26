@@ -19,8 +19,7 @@ SuperАлиби 2 / Alibi.com 2 (2023) BDRip [H.264/1080p] [UKR звук с ТS]
 ```bash
 magnet:?xt=urn:btih:A1C057A237023DEE19FE1482380BCE359CA03175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SuperАлиби 2 / Alibi.com 2 (2023) BDRip [H.264] [UKR звук с ТS] [AD]
 ```bash
 magnet:?xt=urn:btih:5C741F80E4CB2E7AFF949F7502CAB62B6F073EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5154C3D60B526DB398BB8E22B7AEAD2E5A273348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DFE2661EDF4AE8BD891BB8BF1E958A3597007A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

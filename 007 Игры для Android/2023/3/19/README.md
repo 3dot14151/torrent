@@ -19,8 +19,7 @@ Bubble Shooter Royal Pop / Шарики Игры Королевские v2.3.2.2
 ```bash
 magnet:?xt=urn:btih:87A6E6BD9A4E69B8BEFD74289E32D351ABF7A695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B44C5FEADE9DF4E68D90212D9A40BBC8B1D5F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

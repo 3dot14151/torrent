@@ -19,8 +19,7 @@ PhotoPills v1.5 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E4829B5DAF91ED37E1220DBFC7C436C56AF3C616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SimpleRockets 2 – трехмерный космический симулято
 ```bash
 magnet:?xt=urn:btih:F54B9AB4FED2852743F15BF3CFBC59984423F605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DraStic DS Emulator – быстрый эмулятор на андроид, с 
 ```bash
 magnet:?xt=urn:btih:578C0168A46E140B4238F6775FC52D23F62F54D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AIDE Premium Key - это приложение, представляет соб�
 ```bash
 magnet:?xt=urn:btih:04ED0CE1FD275E443793088AF7EDD65C1B46243B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ App Cloner - Хотите играть сразу с нескольких акк
 ```bash
 magnet:?xt=urn:btih:8CD3E33523E35830BFD4E916D13CA3DB0109975E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7DB710244F65504B7FF24DACD6B750952B989DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Apex Launcher – быстрый, красивый с большим колич�
 ```bash
 magnet:?xt=urn:btih:B9257F03EF2209F2CB599A097FB95F99E93030D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Screen Stream Mirroring - Транслируйте ваш экран в реал
 ```bash
 magnet:?xt=urn:btih:00DA2F7B40A9949437EDAB554A2D76A8F130A0ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Sci-Fi Launcher Pro позволит вам почувствовать себя 
 ```bash
 magnet:?xt=urn:btih:496DA6108D9E8A5666CEE0A82A676B7324E4C9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ SHAREit - Connect & Transfer v5.3.52_ww [Ru/En]
 ```bash
 magnet:?xt=urn:btih:AC6198C619CE9AD5B4E7186195776D499A30B82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Hola Free VPN Proxy - Хотите посетить кучу зарубежны�
 ```bash
 magnet:?xt=urn:btih:F5736C9A230496D4837A7757C92DC82FB77DE466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Car Scanner - это отличный помощник для любого во�
 ```bash
 magnet:?xt=urn:btih:BF3A059414E8052A21650AE3E20753BC835D660C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

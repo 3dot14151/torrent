@@ -18,8 +18,7 @@ Highlander: The Search for Vengeance | Горец: В поисках мести 
 ```bash
 magnet:?xt=urn:btih:3AE59FB964F4954DEDA42AEA7C20DC23EEE4D1FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671.iso. (Original 12.05.2011)
 ```bash
 magnet:?xt=urn:btih:4A32438E746B4FEB02D3B7908D0515C86FF91A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65D332ADC8E13A6F17D22DFF5FC32E6BB8BEFC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:881E7AEA7F6E2D8AD88E9C0F188F7C71A35F30E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886
 ```bash
 magnet:?xt=urn:btih:71DF3E46B44C4D8E6413567383629C4610474699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0166412AAFCC84BBA2AE67E513A1BB0BAE4A67DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ GTA 5 / Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.1/upd4/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:0AE38AB5D04E7EAAE63466752375EA9FBFF1984F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

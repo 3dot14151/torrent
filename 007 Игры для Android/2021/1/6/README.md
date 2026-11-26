@@ -19,8 +19,7 @@ Grand War: European Conqueror - новая стратегия от извест�
 ```bash
 magnet:?xt=urn:btih:FC129C88AFDC2400DBC9CE0092654FA8DADE537C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CHUCHEL – комедийная игра в жанре приключения �
 ```bash
 magnet:?xt=urn:btih:7C43489CF79F294804BD1271775B1DA48EF8D263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28EF3EA1A8D8F341C023B1D71519A99C850C5243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

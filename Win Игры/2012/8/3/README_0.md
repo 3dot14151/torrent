@@ -19,8 +19,7 @@ Redemption Cemetery 3 - Grave Testimony. Collectors Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:0E20A54FA735FB349FA0985967296DD8CC07CA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Orcs Must Die! 2 [Ru/Multi8] (1.0.0.257) 2012 | Robot Entertainment
 ```bash
 magnet:?xt=urn:btih:7362F9B19B1E4EA6DD22288DEFD00A14E96BA7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Trepang2 (2023) [Ru/Multi] (72.00/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:71B51F24DAC66962714BBDA748D11C7373254E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Passpartout 2: The Lost Artist позволяет игроку взять под
 ```bash
 magnet:?xt=urn:btih:B83AE3775B8674C7CF1FA2C6654D7EEC665A0937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ POSTAL 4: No Regerts (2022) [En] (1.4.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3D67DACE3D2DE55FA8D88FF7FB2607CD84B51965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:FE592C76D0ED34467340D54449A1DD16EFF1DC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Lullaby of Life (2024) [Ru/Multi] (1.0.7.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5D2EA5140DBE5EE3B03EF6B3D4AF5E211C151DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Last Case of Benedict Fox - это захватывающее и мрачн�
 ```bash
 magnet:?xt=urn:btih:C988146E3B3509F8C7EA804234AD2DF0FBCD9064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ MoonFire: A Seeker's Saga (2024) [En] (1.3.2) License GOG
 ```bash
 magnet:?xt=urn:btih:101AF4A3F61AD8A36543F6BAD0EF35250F2B712A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Intravenous 2 погружает вас в мир жестоких интриг 
 ```bash
 magnet:?xt=urn:btih:FBD822C0E61D530BD87885CD46D20201A01DC606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Guayota (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2D93E62B8D2C4F218EB32CC38B06A35C655EFD23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Inversion - шутер от третьего лица, совмещающий д
 ```bash
 magnet:?xt=urn:btih:7F9C0D9157E7A468B6C24DF72CF51AB62B55068D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:D485C622EAAB11075F54F3A7D0DAA323FEDA9311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Welcome to Elk – это биографическое приключение, �
 ```bash
 magnet:?xt=urn:btih:31CA6A148F9315A793DB418117DD5B1DFBDF57F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

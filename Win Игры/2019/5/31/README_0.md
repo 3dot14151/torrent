@@ -19,8 +19,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:CE6CFFEEF03149A71CB50542F6E4D9E5C1568E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Constructor Plus – новейшая игра в знаменитой сери�
 ```bash
 magnet:?xt=urn:btih:CC3A7EFF14F77717E46F2A003CA4428E3AA19F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Forgotton Anne (2018) [Ru/Multi] (1.0) License PLAZA [The Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:9C07BCABA68A4A7F3A21C1FD8C602EAA20B6D74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deep Sky Derelicts даст возможность почувствовать с
 ```bash
 magnet:?xt=urn:btih:85EFD6F347EC69A7F508FFB6619F2B8186869A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

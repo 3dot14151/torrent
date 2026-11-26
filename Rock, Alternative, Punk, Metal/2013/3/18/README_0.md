@@ -27,8 +27,7 @@ Drnwyn - Gypsies in the Mist (2006) [MP3|320 kbps]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:9DABACCCBE37F134D31D85B26AABFE9A8214C3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Edwyn Collins - Understated (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:36E59231159286DD996B82DF240724415A3E7814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Gordon Giltrap and Oliver Wakeman - Ravens & Lullabies (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:67CE041A0D6513E217730EB01454D5A8C78B6A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CA6090467F450C87BCEA74FCC05666609D80455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Amaranthe - The Nexus (2013) Japan Deluxe Edition [FLAC|Lossless]<Melodic Modern
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

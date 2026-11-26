@@ -22,8 +22,7 @@ Metamorphosis - Then All Was Silent (2005)  [FLAC|Lossless|image + .cue]<Progres
 ```bash
 magnet:?xt=urn:btih:789C01077EE623969E0BAF87993079406163DC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Yogi Lang (ex.RPWL) - No Decoder (2010)  [FLAC|Lossless|image + .cue]<Progressiv
 ```bash
 magnet:?xt=urn:btih:F6DDE9F3B2F69561D5A2078028C8E4C540699A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Last Autumn's Dream - In Disguise (2016) Japanese Edition [MP3|320 Kbps] <Melodi
 ```bash
 magnet:?xt=urn:btih:4B6622ACA41592831BD5A74A5F1DB876E1A1FF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Korn - Follow The Leader (2016) 1998 [FLAC 2.0|192/24|tracks|WEB-DL] <Nu Metal, 
 ```bash
 magnet:?xt=urn:btih:0AB954E7196CD76EDB008D1C37D9BA4387B6F298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

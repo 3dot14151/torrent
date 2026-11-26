@@ -19,8 +19,7 @@ Rolling Sun (2015) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:10CF8F4D9A25E4D979557794BD28FE687A85B2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

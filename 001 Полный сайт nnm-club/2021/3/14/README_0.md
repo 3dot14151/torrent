@@ -21,8 +21,7 @@ VA - Synthwave Dreams, Vol. 12 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 ```bash
 magnet:?xt=urn:btih:CF2CB2A611F3805A1F2692462F5D885A5D9A9C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Radio Sun - Outside Looking In (2016) Japanese Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:8F9CC8094A5F5947754D7DCE1A4D7C45872DB260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:430E32AF982629F42A9198A0F12CDE1440086ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Adachi to Shimamura | Adachi and Shimamura | Адати и Симамура [202
 ```bash
 magnet:?xt=urn:btih:D6F38091EAA92207859B14D87CD6327A509ECA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D39432AD1129AFB2E0F73A84606139B1A1091154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Steely Dan - американская рок группа была образо�
 ```bash
 magnet:?xt=urn:btih:05E2D7D5388FCAD4080C26F62E648602358E7308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Synthwave Dreams, Vol. 10 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 ```bash
 magnet:?xt=urn:btih:CE9798A26CCC139011EB8A3E822B1C0EF31AD25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Paradox Obscur - Singles & Rarities (2021) [MP3|320 Kbps] <Darkwave, Alternative
 ```bash
 magnet:?xt=urn:btih:B646F47A0279AAD3CF44AB8C645F515A9EF4494E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Synthwave Dreams, Vol. 11 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 ```bash
 magnet:?xt=urn:btih:3C26E1BFC9179AA03751445F6F490DE709ED637D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Daemon Grey - Follow Your Nightmares (2021) [MP3|320 Kbps] <Modern Metal>
 ```bash
 magnet:?xt=urn:btih:675ACEBAD837F1494D535D28B40EEBF054F7D647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Eisbrecher - Liebe Macht Monster (2021) [FLAC|Lossless|image + .cue] <Industrial
 ```bash
 magnet:?xt=urn:btih:ABF9DC204A79A91F541BD2DC4AA4F73F4F1844D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3081E1917B7CAFB124701354478E818B8E5CED76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ RAR Extractor, распаковать и открыть любой файл. RAR
 ```bash
 magnet:?xt=urn:btih:0EC0FA76B217C839D96FE50C295BDA7220B7F9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Osovets - 2 Albums (2019-2021) [MP3|320 Kbps] <Industrial Metal, NDH, NRH>
 ```bash
 magnet:?xt=urn:btih:7FB36C56857E00E0422155D21B280380818AB834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DAD84C0E373441455345300518F358E879114C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Marvel83' - Genesis (2019) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Retrowave, 
 ```bash
 magnet:?xt=urn:btih:CA249B8D76C5E9FF2A073A6E6EBA19BC880CCF13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6F0BDDF358E33B1604955F99AE95D04C0A446A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ VA - Trans-Global Excess, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop,
 ```bash
 magnet:?xt=urn:btih:DD09962DF6EE560E7C501D32ACE23A3ABFB49DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Def Leppard - Let There Be Drums (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Hard R
 ```bash
 magnet:?xt=urn:btih:780964297154765FF849DE65D602A7B9158AB5D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Bus Gamer | Бизгеймер (Бизнес-игрок) [2008, OVA, 3 из 3] D
 ```bash
 magnet:?xt=urn:btih:D97E56C1BE763C0BAB376683BC845749E5F94D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42E54E788B3320D834D56937390095060C50194A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47045B95AFA90D37ADC08D6623FB29F13D4A736A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CAB2D19030587943E9B9AC820DACDCE963A47A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ VA - Miami Cyber Nights, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 ```bash
 magnet:?xt=urn:btih:D4B102EA6106673A27076BA403016AFD495E5B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ VA - Record Super Chart 13.03.2021 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:CAFCDEEC0277F6E0B64DB3A6408E5058A3132C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F99FCD8715EF08D59FA9885636D6C80B0A11BB3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

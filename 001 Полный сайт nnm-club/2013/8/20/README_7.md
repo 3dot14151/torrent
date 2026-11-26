@@ -27,8 +27,7 @@ The Pony Hellride Experience - Holy Water (2013) [MP3|320 кб/с]<Stoner/Groove
 ```bash
 magnet:?xt=urn:btih:084929D614C611411F289887B8762F135189EEAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Slowrun - Prologue (2013) [MP3|320 кб/с]<Atmospheric Post Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:457A5867BC1A39F8D1009D01F5C3AAC9F024563A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Beast In The Field - The Sacred Above The Sacred Below (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:368869A2E2897C3C03C5D9428D074A3E13330B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Skyed Pillars - Cloud Opus (2013) [MP3|320 кб/с]<Post Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:B40989ABDDA950CD2C479B092A10A858144BF2C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ N/AЖанр: Deep House, Progressive HouseПродолжительность: 01
 ```bash
 magnet:?xt=urn:btih:8DA2FE3490E5E696CD48B439288158A04C58B5A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:2BF2917A602613C3B9B5FE94209FEBCCBD82792D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ N/AЖанр: Deep House, Progressive HouseПродолжительность: 01
 ```bash
 magnet:?xt=urn:btih:543B23DCCF388CD8951F977A523FCFA36B0D3DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ Alex Cortiz - Moodfood (2000) [MP3|320 кб/с]<Downtempo, ChillOut>
 ```bash
 magnet:?xt=urn:btih:CBDE35E4FC88B33B875BBA68D0EDA93E267B9FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8DB75129F49C433520A34E87306F1B0DFA1022E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3539A6168705B8B1512AFA191894AF8AABEF0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ N/AЖанр: Deep House, Progressive HouseПродолжительность: 01
 ```bash
 magnet:?xt=urn:btih:E37B27013BB0E351D6C3CFFC6B2654C89D47D43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:374F79700A75F4282AC9F3DC288559113939EF7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ VA - Astrolabe Chill (2013) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:D141D6D097CD9DA7A60EC350E140B01B2C90AEB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ N/AЖанр: Deep House, Progressive HouseПродолжительность: 01
 ```bash
 magnet:?xt=urn:btih:C947620F0A85F81384613F47C6BA050A03429DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB9D4AA909D03BAA180EE3E5A492C32397869322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ The Modern Jazz Quartet - Blues At Carnegie Hall (1994) [WavPack|Lossless]<Post 
 ```bash
 magnet:?xt=urn:btih:1940F9746291EB8B0EEDA8B5F39CA7A2B82332ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ Magma Rise - The Man In The Maze (2013) [MP3|320 кб/с]<Stoner/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:516F97CCEC4FA7737F891B6C26A1ECA69D81C08A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ Vista Chino - Peace (2013) [MP3|320 кб/с]<Desert/Stoner Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:BA3BC47E9AA50E8031C90D3E1D876ABC84E322B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ Alchemix - Its A Story (2013) [MP3|320 кб/с]<Trance / Psychedelic / Progressi
 ```bash
 magnet:?xt=urn:btih:482E3E83C676E91746B88D170CBFD15B0F373ABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ VA - Sophisticated Beach Grooves (Marbella Beach) (2013) [MP3|320 кб/с]<House
 ```bash
 magnet:?xt=urn:btih:001CAD0A0D8165309874D07D0AAD5F20B8AD534C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E603B87467082B82F197B2DAE9935214AA5E4DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ VA - Vocal Trance Essentials Vol 9 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:BA4008C17A8917AEB45797A45562107C72AAA472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A56F7830EF46A08723E373791EF53C12CDFC478B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE83BAA83F42EA9BA5893CE54463DC58EB23AE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDBD588E2B80311A29451DCE298CD1692955CA20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:15B3EE51525FBE6A3EEE81CC5ACE94EC3CB62996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

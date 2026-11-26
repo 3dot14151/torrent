@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B0E78D284260F9686C76E9C0E46CAAC2FF792703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:52B38B6AA21D7A73E1BC90E099A39BA1858091F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ReLens - отличная находка для любого поклонник�
 ```bash
 magnet:?xt=urn:btih:DF956FA7A36C213BC94AE003BCBB8A3A6D2E3009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

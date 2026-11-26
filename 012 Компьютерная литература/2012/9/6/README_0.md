@@ -19,8 +19,7 @@ Steve Johnson | Adobe Illustrator CS6 on Demand [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:4ED2A198F63F31ACE29790293E5A4A03BE0EF135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:649AE14EC2A7A5DEF1F07D7C487969C6466BE5C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Steve Johnson | Adobe Photoshop CS6 on Demand [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:8B8529D57090D5A148A6AEFB02AEBF6DB526D420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Steve Johnson | Adobe InDesign CS6 On Demand [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:007D34D2CA42A00ECA6938E622DAE624CA066FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Steve Johnson | Adobe Dreamweaver CS6 On Demand [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:6EECD5679BD62181A7582C550E1065746041A05A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

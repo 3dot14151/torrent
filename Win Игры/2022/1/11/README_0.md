@@ -19,8 +19,7 @@ Royal Legends: Marshes Curse / Королевские легенды: Прокл
 ```bash
 magnet:?xt=urn:btih:792F36CE0F06559C34A5DB22B10376EC091FB9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ The Dixie Werewolves - Lucky Number Thirteen (2004) [MP3|320 кб/с]<Hard Rock,
 ```bash
 magnet:?xt=urn:btih:8E554CDCEAB781BB07ECAE2A18EA8C709B3B2900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Imaginara - The Legend Of Gingelur (2014) [MP3|320 кб/с]<Folk/Power/Symphonic
 ```bash
 magnet:?xt=urn:btih:8A5945C38786AD22C8395744D1843380C2CD099A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Slobberbone - Everything You Thought Was Right Was Wrong Today (2000) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:C1B1D36895DA709269CA9A09C671DFFDFB5EEE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ West, Bruce & Laing - Whatever Turns You On (1973) [MP3|320 кб/с]<Rock, Blues
 ```bash
 magnet:?xt=urn:btih:8A7FDDCF50A59E7B0426A0F4AF9C7E514D8B3512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Thunder and Roses - King of the Black Sunrise (1969) [MP3|320 кб/с]<Hard Psyc
 ```bash
 magnet:?xt=urn:btih:B4B2A796EEED9F10720B23FF32D013157DABFA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Open Fate - Fade Away (2014) [MP3|320 кб/с]<Hard Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:4673C915370B36543C9B5BCB898AD0B44D32F5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Blue Mountain Eagle - Blue Mountain Eagle (1970) [MP3|320 кб/с]<Psychedelic R
 ```bash
 magnet:?xt=urn:btih:FF8074CA132A7ACB99329976F6CEF43FE4EA71E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Tokyo Blade - Mr Ice (1998) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BF1D83D3454E6BBE4C83F94ED118E8E8168FDE20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Rockstars on Mars - Rockstars on Mars (2014) [MP3|320 кб/с]<Hard Rock, Heavy 
 ```bash
 magnet:?xt=urn:btih:6DD51D95B2B61761C54BBC691C8E552E82D1A340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Gun - Gun (1968) [MP3|320 кб/с]<Classic Rock, Hard Rock, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:DDDF6755E20F6A71B8D9CC55BBAA82F7FD1DDE6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ GILLAN - Gillan At The BBC (1997) 2 CD Live /1997, Nippon Crown Co. Japan/ [FLAC
 ```bash
 magnet:?xt=urn:btih:12D637A0D9FD3DB0F7E328D73262B0458B210F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ Deathstars - The Perfect Cult (2014) [FLAC|Lossless]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:2EF45D5A1E463EB33CA4424B5067B9019F4BB86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ Pete Brown - 6 Albums (1969-1977) Compilation, Reissue /1992-2000, BGO, Repertoi
 ```bash
 magnet:?xt=urn:btih:FE992F091790DE3DB32F0F440E55DF81456A88E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +457,7 @@ Deathstars - The Perfect Cult (2014) [MP3|320 кб/с]<Industrial Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:3943C9BD60B3A9DB6F4791BED99B7EDC65DA5E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

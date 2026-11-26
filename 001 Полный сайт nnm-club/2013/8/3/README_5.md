@@ -18,8 +18,7 @@ CastleStorm (2013) [Multi] License FANiSO
 ```bash
 magnet:?xt=urn:btih:3F1E33F11DCA3F8FC8AF1B0AC6C7EC7F7E9CE264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:E758F3C69E2278205346E7991FD2AE98679838C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Xenus Dilogy (2005-2008) [Ru/En] Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:603BCB28DB9DE2AEA793415E50A54F4F81269D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Realms of Arkania: Blade of Destiny (2013) [En/Gr] (1.05) License RELOADED
 ```bash
 magnet:?xt=urn:btih:DA9ECF9E113D610D48A827522F24D8365E995CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DD60179A7C4237F2DC774F5C6EAA798D4B01C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F44506D3A0D1C5DD0820E280F4AAA9C630B1616C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ The Sims 3 предоставит вам безграничную свободу
 ```bash
 magnet:?xt=urn:btih:08A90AAE83846254B2ED25F4CA2A760D480875F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Battlefield: Bad Company 2 Vietnam - это полномасштабное до�
 ```bash
 magnet:?xt=urn:btih:304E73CE7C7319C817DD206D605BD8B74AD11817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ ArchiCAD - это мощное приложение моделирования, 
 ```bash
 magnet:?xt=urn:btih:ACEAB2A7CD27345EC976CA4B657F287C787E908D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

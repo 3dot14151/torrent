@@ -19,8 +19,7 @@ Golden Axe. Golden Axe 2. Golden Axe 3. Антология (SEGA Genesis Game) [
 ```bash
 magnet:?xt=urn:btih:BCFDB5A73145C7891746AFAF2614635DF3015B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

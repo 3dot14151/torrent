@@ -22,8 +22,7 @@ A4 The Best Of Strangers(   Читать дальше...   )Жанр: Folk, Coun
 ```bash
 magnet:?xt=urn:btih:D5728B2DB8AE19E464FEBE1155BA0BB0E17D482A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

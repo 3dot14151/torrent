@@ -19,8 +19,7 @@ Doctor Who: The Eternity Clock – очередная игра в серии «D
 ```bash
 magnet:?xt=urn:btih:ADD8AB252FA1E7AE9EA5B0BEB115E48EDD5E15E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tropico 5 (2014) [Ru/En] (1.10/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:AC0BAE477F27C54FD4F366AFD7683172EF7F47B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nuclear Throne - новая игра в жанре roguelike-action от сту�
 ```bash
 magnet:?xt=urn:btih:51583ABEF93F32188CE9A03C125CC05413C87B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 ```bash
 magnet:?xt=urn:btih:00178D62819825AF17178D4D46311286596C9A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

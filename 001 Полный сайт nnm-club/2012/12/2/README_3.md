@@ -27,8 +27,7 @@ Various Artists - Blues Piano-Rama (2010) [APE|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Various Artists - Harmonica Blues - Blowing from Memphis to Chicago (2004) [WavP
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - The Engine Roars (2010) [MP3|320 кб/с]<Minimal, Techno>
 ```bash
 magnet:?xt=urn:btih:E4D503146BC9DF2DA85B8EE36F8395479645B266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Шансон - Это Наша Музыка (2012) [MP3|128 кб/с]<Шан
 ```bash
 magnet:?xt=urn:btih:981E8FE2C24BAB5A239DD4A9CE59B0CD95CDFC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D959BBA4290B4037B0CADB1CF6222F8F88336DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFEBB868538B0AE9CC72675BE06D5B0A97DED2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Computer Desktop Wallpapers Collection (01.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6CAF726C1C7388AA5D49A3E8BAACB447E328E6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7F763503857C21F164E1E2A0D93BEB20A138EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D26069864767B5EF8D07DC2AF99D75545BB43685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E3AE82815071679877A817E4775F09EBC550759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ VA - Звёздный Бум на MTV (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:7DF94749BCFB2647A4BF4CC42D3787BD5922E72E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ VA - 50 Best Trance & Progressive Tunes Of (2012)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ Sumatra PDF - легкий просмотрщик  PDF, DjVu, CHM, ePub, MOBI, X
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ VA - Радио DFM - D Чарт - Top-30 (01.12.2012) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:75360E02D63DCE331C2CB88A6944BEE2C41F320C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CFDEAF605F7245E1DC3E742E178A362ABD665A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1609742E692453FF19CCE04E24F48CB6F16F5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ VA - Новинки радио Record Зима (2012) [MP3|256 кб/с]<Club, Da
 ```bash
 magnet:?xt=urn:btih:F9184986EB5DD5E508BB652112D84B1A7F5A5725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A902D848906A0507118E3460E6880C22EA9E5ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ VA - Зимний заводной танцпол №2 (2012) [MP3|128 кб/с]<
 ```bash
 magnet:?xt=urn:btih:43BD8068CF25DB29D9BB736EB5590F2AB740083C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:273F783B5000476D69712C7CDCEBFFF5489AD40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +601,7 @@ Classic ROCK предлагает читателям глубокие анали
 ```bash
 magnet:?xt=urn:btih:98CB7E7A76B072419D9619EB8E486AEC061B2D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +635,7 @@ Ghostface Killah & Sheek Louch - Wu-Block (2012) [MP3|320 кб/с]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:83CC55D1C38613A9B25E95EC124AD16386BC9485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +669,7 @@ VA - Новогодний Шансон Года (2012) [MP3|256 кб/с]<Шан�
 ```bash
 magnet:?xt=urn:btih:88564389F682AD953923460764A154732FE262EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:618A3ED5F8906173D2DF6020310AF66364E28819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +719,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:044AC3504A62198C236E22C9AD260641F9057010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ VA - Золото Русского Шансона-2 (2012) [MP3|320 кб/с]<Ш�
 ```bash
 magnet:?xt=urn:btih:C7E09EB6938A4A3386679C16DC77F51A8B0915EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

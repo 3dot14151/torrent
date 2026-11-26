@@ -20,8 +20,7 @@ Microsoft Corp. | Групповая политика для начинающи�
 ```bash
 magnet:?xt=urn:btih:A32976CA154A804631BD5CBD1374745A5F2780A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Microsoft Corp. | Основные понятия Active Directory (2011) [DOCX]
 ```bash
 magnet:?xt=urn:btih:944CD7FF119C023431E12DBD8897B302242449F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA285B861C6B14B816C56A99995CA5C2AE86F528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EBF4B7A90DC36520617E6FA80BBBE4CF11808E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

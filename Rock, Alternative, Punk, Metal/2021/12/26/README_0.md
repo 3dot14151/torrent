@@ -22,8 +22,7 @@ Dan Lucas - The Long Road (2021) [FLAC|Lossless|image + .cue] <AOR>
 ```bash
 magnet:?xt=urn:btih:6F5B7BE2CAC081E525784D45608A493E19102728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Autumn's Child - Zenith (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:2D5945C08EF6A4B43C78A082EB96FEF7D848E3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

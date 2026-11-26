@@ -19,8 +19,7 @@ Debian GNU/Linux 7.8.0 [i386] 3xDVD, 2xUpdateDVD
 ```bash
 magnet:?xt=urn:btih:671F2DB8AC4DEF7DBCC1530BE3F513F71A6D1AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:3005A72E860FF90A57123E38DF480926E8919082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ DeadRisen - DeadRisen (2020) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:0437B8BBE87F373202D94832DD7041D1160E95C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vierzig Grad - Vierzig Grad (1981) LP [MP3|320 Kbps] <Krautrock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:42658B7350E87B8DB9D38ABFD816C96C63645627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 1 - State Of Deception:
 ```bash
 magnet:?xt=urn:btih:8556358B3315027E51B64EE8B675CE51749B1980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Children Of Bodom - Hate Crew Deathroll (2003) [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:BC908C9EA0DBF4844D60F33F3861F55D6B2CD6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ April Rain - Mirror of Ether (2021) [MP3|320 Kbps] <Progressive Rock, Post Rock,
 ```bash
 magnet:?xt=urn:btih:C9BA874FB49FF45D82B67416BF1130D9EA281BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Children Of Bodom - Hatebreeder (1999) [FLAC|Lossless|image + .cue] <Melodic Dea
 ```bash
 magnet:?xt=urn:btih:0FA3F6F71955CFF7974C8D7CCE7C86113C405178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Soen - Imperial (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E2F0053E09EBCF547E5397F3FB7146339887B021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Antti Martikainen - Sonic Savior (2020) [MP3|320 Kbps] <Instrumental Epic Metal>
 ```bash
 magnet:?xt=urn:btih:A6DC039D9FE1B89BC19691859D83438B00563F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ And Oceans - Cosmic World Mother (2020) [FLAC|Lossless|image + .cue] <Death Meta
 ```bash
 magnet:?xt=urn:btih:B29A2922072F3D5A5375E4D57B0A7AACE8A7947C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ CD - 1 - Future:
 ```bash
 magnet:?xt=urn:btih:56A60B4A506BFA7B0340AC2AD1495E745A06FD33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Therion - Leviathan (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:A10E5C1D0740302711D5A8FD851C3B708CBFD159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Children Of Bodom - Something Wild (1997) [FLAC|Lossless|image + .cue] <Melodic 
 ```bash
 magnet:?xt=urn:btih:E09A9CF7CF6EE9FF39F13745A96C96E478AC01C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Children of Bodom - Hexed (2019) Limited Edition [FLAC|lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:27D973A465DE1772A4FAA766DC9A17B2696596ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Weezer - OK Human (2021) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:3CD83D6758FE05E626A6944A685D3569089A24FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Accept - Too Mean To Die (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9ED9A5421367C2710CA01E2FF64FC7E3550790AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

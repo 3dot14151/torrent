@@ -19,8 +19,7 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.24L) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0D00C887AA30F2887A2B8DEC9D7E5079DE4DFD21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14932/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:47C917C46F930CB7BF83A4820EB1896BAB94E1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:A19562375A92C8A37DA2FFC87B4EB9B947FE7AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dead Age 2 – это продолжение успешной инди-игры 
 ```bash
 magnet:?xt=urn:btih:72E1D7A49F9D10E7825B7A8B9E93B828DB20E3DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.2f) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:39765D806F5423A30C22CA7969BBB99F67BC3D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tower of Time — удивительная игра со множеством п
 ```bash
 magnet:?xt=urn:btih:F5D4B998F129B5CDB5EC6956C89C5CC902DECD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

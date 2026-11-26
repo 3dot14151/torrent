@@ -25,8 +25,7 @@ VA - A Journey In Santorini Vol. 2 (2012) [MP3|320 кб/с]<Deep House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Interior Wallpapers (18.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:92D2837A8C409B8407DC931CA792E8F304977034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ VA - Winter Best Music Vol.4 (2012) [MP3|256 кб/с]<Vocal, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:F488651ACAA8A5921D640D23C35F5B7B0BF7ED96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ National Parks Wallpapers (19.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:A0BC29DCCACDF0C8C1C21BE1538C3442828D335B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D894B1A1707FF0B645553CF17B743FC34D5FB3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Sexy Girls Wallpapers (21.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:C767559943928D25E3FFF849877FC430D8257114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A597BA8DDBDF39C0CAB13B6B3D9C06F937DD50C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Graffiti Wallpapers (19.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:613BF2AE9D22A5BCE3D63EB7DA4755F2CBDACB16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Wise Disk Cleaner с его интуитивно понятным и удобн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Interior Wallpapers (19.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:C7A9EFB58A6E2AEBCD0E1BA72939AAD0955DC2EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Computer Desktop Wallpapers Collection (18.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:395F3960E85D7D1DFC780C3A2E830F44BAE76D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69678DEF8F342B0A589621A91835800A3D0250FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Nature Wallpapers (21.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:79AD0B89D4E7CD79FD58031E05840FB900A74281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DED66ED2D540495153685651B52EDC6CD8D287EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Aviation Wallpapers (18.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D2F7A91A6C84105EC499CC510C24BB43179A872C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Wise Disk Cleaner - быстрая и простая в использовани
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCEF0B1C99511A6705A40386EEEE70E86ABBB63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Various Artists - Gentle Blues (2004) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ Best HD Wallpapers Pack (19.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:9BB611333D53916C8EEC93BF97618A79D9632BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ Addex - Metamorphosis (2011) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:29B31F11DDF0DF66D1CBAFBC57741791F2931E20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBE66705EEEF8F842DB6716CBB5E953A8D7ECA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ Computer Desktop Wallpapers Collection (21.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:56F736D8625168AF121DE05FED081D640A8C43AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ Winter Wallpapers (19.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:B0D2A65891EECB18C797A158437F7C305A01A12F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ VA - Armada Stream 40: Best Of 2012 (2012)
 ```bash
 magnet:?xt=urn:btih:1B5D5173EC28CD88192F869557C43352341554E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ VA - Танцуй и не останавливайся (2012) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:45831482119BE213BD2FF223398CAE977E4F6E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 ```bash
 magnet:?xt=urn:btih:CB4CE6D378F67C2E2AB9B0BC1748D225B1A030E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Synergy – это градостроительный симулятор в су
 ```bash
 magnet:?xt=urn:btih:D98FE8FDA55CACD6584D1DC25AB67BA8E47776F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TFC: The Fertile Crescent показывает геймерам период з�
 ```bash
 magnet:?xt=urn:btih:CF11115BD1534C137C938BCCDA050B1982FB4D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.2f) License GOG
 ```bash
 magnet:?xt=urn:btih:13AC45DCEDC0DBF3CE061B5C4FBF31841B4861A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Echoes of Yi : Samsara - это мрачная игра в жанре боевы
 ```bash
 magnet:?xt=urn:btih:B0C458F581463460D1C0BB59EEA03913C7925A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ UBOAT – уникальный симулятор управления подв�
 ```bash
 magnet:?xt=urn:btih:49893DEB28612C374AAF6492FD9E69EA1057B1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack FitGirl [Ultimate 
 ```bash
 magnet:?xt=urn:btih:B510157F5992F84E1A362DDAFC4C67C2C11AC934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Vampire Hunters (2023) [Ru/Multi] (1.3.0.CL11455) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B4C28069FA4838F6C32FEEDA984F6450BA3BA7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Forever Skies – это нетипичное выживание, в мире п
 ```bash
 magnet:?xt=urn:btih:FFF0D8BA6B052D5C0A2B8689726D6CC1EDEB2BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D1E661CFC6DC8DF26AEC7551D4B7BB9895480A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 ```bash
 magnet:?xt=urn:btih:A8644AE8DDBC5F7110DEE39A9936F0A9C66FD7E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Age of Empires IV: набор 4K HDR Video Pack содержит видео из
 ```bash
 magnet:?xt=urn:btih:733B87D22EC5B60E5AE49A9F237CC766FB2C3AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.0.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:048E94C440EA9B0DCC6D9CAEDEDE49A311A670C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

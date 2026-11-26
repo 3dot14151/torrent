@@ -22,8 +22,7 @@ The Windmill - The Continuation (2013) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:8D9E14D99C967972E6A3DE19D81278B6FC56DDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gamma Ray - Heading For Tomorrow (1990) 25 Anniversary Edition 2CD /2015, earMUS
 ```bash
 magnet:?xt=urn:btih:283689467AD62BBEA74205442A5CD3B15041F29F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:61A71C1F8963106536F3B3B6364238F2D660F923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bring Me The Horizon - That’s the Spirit (2015) [FLAC|tracks+.cue]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:1FF3221BB4FC45A535A7876DA84651DB9D6CF49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

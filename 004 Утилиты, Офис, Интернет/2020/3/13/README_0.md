@@ -19,8 +19,7 @@ WSUS Offline Update - незаменимая программа для поль�
 ```bash
 magnet:?xt=urn:btih:E2C3D9369D32020D0931B824D062963349CE0E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:7938C3A160444AF5914C6FC1BE52407C025DC344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Windows 8.1 with Bing (SL, Core, Pro) Dallas_page 6.3.9600.17031.AMD64FRE.WINBLU
 ```bash
 magnet:?xt=urn:btih:717C8B589B775FD9C6A7E72ADA79AB206C9033A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ AdminPE - загрузочный диск/флешка системного ад
 ```bash
 magnet:?xt=urn:btih:19DED0CD85F85886D2C46237743431B2657142D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:341C02C07CA0C2F4F6E9DE42376D0F07D13912F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ COLINA: Legacy – ужастик с элементами головоломки
 ```bash
 magnet:?xt=urn:btih:FF5131F01C50AF3887D5481586DB8FCE2AA5FDD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Wasteland 2 является прямым продолжением игры 1988
 ```bash
 magnet:?xt=urn:btih:9A080D023A3A47E62D15E19052C38F2D04AE0E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ TV-1 (AniDub), (Anilibria), - внешними файламиЯзык субти
 ```bash
 magnet:?xt=urn:btih:EB74F6E025D7EB37D367EB5E82D275436C437362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA05456DA5ACFE898AEA96BFAE0BBC732768A743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Windows 7 PROFESSIONAL Rus SP1 x64 Game OS - это сборки, основан
 ```bash
 magnet:?xt=urn:btih:03FCED32F7B8B49CD501075A754226E9F0B01229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53820DB0EFE85228E704129A082FD7036B8EF875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ XCOM 2 – это продолжение полюбившейся игрокам
 ```bash
 magnet:?xt=urn:btih:8422A4093AD8535BE8D6E7A0BE7AE1FD7AA4A856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Stealth Bastard - это микс двухмерного платформера 
 ```bash
 magnet:?xt=urn:btih:A3788C24985DE4EEFD7C54562FCAC3541626C4C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:996E60B29A1D15E769846E9CD121104707F9F692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ WavePad Sound Editor - небольшой, но очень мощный, про�
 ```bash
 magnet:?xt=urn:btih:E8FFA43A78D34254BE955E19F719D4E798739354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Monster Garage базируется на телевизионном шоу ка�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Dragon's Lair (2013) [Multi] (1.0) Unofficial TiNYiSO [Remastered Edition]
 ```bash
 magnet:?xt=urn:btih:81F3EAAD22890F7217C2A997938CD7B6EE61C665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C891BDAA4891CF1B2BBD6B5514FCCEDCCCE1E6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E459D408E6BB360DBC4341662E18BC0BA760926E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Chief Architect Premier - мощная программа для дизайна 
 ```bash
 magnet:?xt=urn:btih:5DCEA3EEE5F560E1129D2BAA7C5CA73B5C43718E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Castlevania: Lords of Shadow рассказывает мрачную истор�
 ```bash
 magnet:?xt=urn:btih:F31B0B5F7EC1FA5E6F153A5F7BAA8E5F575A03E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 ```bash
 magnet:?xt=urn:btih:01EE5DE41613A82D94F581AC1055BBF438F939CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78FDA7B9CC232B01897DA8213AE64C68CDFB159A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Dead or Alive 5 Ultimate – расширенная версия Dead or Alive 5
 ```bash
 magnet:?xt=urn:btih:78D5907778D065B5AABB8C8C4DC8BB52BCD15C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Grand Ages Rome / Великие Эпохи: Рим - Правление Авг�
 ```bash
 magnet:?xt=urn:btih:D5E80E3A33FC0C4B860EACC803677732AA63C8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ Windows 8.1 — это еще большие возможности персон
 ```bash
 magnet:?xt=urn:btih:6527C0CDC3A2F1D8835D84CB49F40C710D046B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ Diablo III [XBOX360] [RUSSOUND] [PAL] [LT+2.0] [XGD3/16202] (2013) | R.G.X360CLU
 ```bash
 magnet:?xt=urn:btih:711A3D31C15E7028CA2EED5E052E024ECF28E37B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ Space Ace (2013) [Multi] (1.0) Unofficial TiNYiSO [Remastered Edition]
 ```bash
 magnet:?xt=urn:btih:447044C502E1AFF5DF9AD5149C4279F0D5ABC7E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62608CAFEEAA4BA3FA0FF3BC0A7ADACBBFEBEB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E0F0680E931A8FCB65EAD39983A5A3700E6EB6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31F0E08F79EE6E60CD813F1E1156D5B92C8B791B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ PayDay 2 – кооперативный шутер на четырех игро�
 ```bash
 magnet:?xt=urn:btih:16F7A4C9FD4DCE0EAB1F8E6EF106E69B7D0E2443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ Diablo III [XBOX360] [RUSSOUND] [PAL] [LT+3.0] [XGD3/16202] (2013) | R.G.X360CLU
 ```bash
 magnet:?xt=urn:btih:80A790AE4032CC1611EAC76C4BED9EEF0776C979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3892FF25E126EC0AF52654DC31BBD4D0001DB1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ Diablo III [PS3] [EUR] [RUSSOUND] [4.30+] (2013) | R.G. PS-Club
 ```bash
 magnet:?xt=urn:btih:0C868AAF1175BF226B14E74CF22F6623ECA40D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ Final Fantasy III [PSP] [Ru] (2013)
 ```bash
 magnet:?xt=urn:btih:FD211BB52FCB1CB74814FC6019F7F26726730D79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EF9BA161F56BB41989F94BAF65AAF0CEBFBF1955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Icecream Ebook Reader - программа для чтения электрон�
 ```bash
 magnet:?xt=urn:btih:B4C6704B3BEFAC0313907E59D7774DEF22F17873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D5E243A596D1B4B8339ECCDD5CB5723D5FEF655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02814698F06D5E9F23D178B7DCD29E071FCC04B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:434346141A85AFA9593758ACD4F3FADFD0054E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Gothminister - Empire Of Dark Salvation (2005) [FLAC|Lossless|image + .cue] <Ind
 ```bash
 magnet:?xt=urn:btih:8571E6F8371669CF1BA8CEC46B7C9C8D2BBDCB5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EDEA79956DF610319BEB5E7AA5B100C4DC7E825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 ```bash
 magnet:?xt=urn:btih:AA10474FACE30A82E274E6629942FB21A8594E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Rainbow - Osaka Live (1978) Broudcast, 2023, Leftfield media [MP3|320 Kbps] <Har
 ```bash
 magnet:?xt=urn:btih:6DF68D6C52EC844AA5AA014F7A151850BE133508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ RisohEditor позволяет добавлять, редактировать, �
 ```bash
 magnet:?xt=urn:btih:0C128E25155A3090E8016D8B2A9906B813D67B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ VA - Music News vol.304 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:79F145D15B67F706FD2BD2E696C6092F5BBD5416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:6136CEFD0DD0337B404D85F67D0D2C1EAD54732D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:9D3DDCC361D04029623683E8C29A17D6328B68C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8EB50ACF53E84B7BFC025698C2FCBE573B09B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ eM Client - мощный клиент электронной почты. Пом�
 ```bash
 magnet:?xt=urn:btih:0980CF6C710C3CBEC9D250023E6BA4192038A924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Mailbird - это простой, удобный и главное быстры�
 ```bash
 magnet:?xt=urn:btih:97B8DD830A81E73758DC57F2714F8E3F23167043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ System Ninja - быстрое и эффективное решение для о
 ```bash
 magnet:?xt=urn:btih:BE297FA438166E9E5787450ECAC16475C4D4BD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0DE2B88F3007AE2FE03DBB3B6FBA7E2E834AE30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ VA - The Orient Collective - Collection (2023) 8 Relise [MP3|320 Kbps] <Electron
 ```bash
 magnet:?xt=urn:btih:1F619A6313234779EABFD2EAF97D67A10F98998D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ App Builder позволяет создавать приложения для с
 ```bash
 magnet:?xt=urn:btih:B0E12F8897445FE6AAED58FB115A363A7FCFE2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ AMS ФотоМОНТАЖ – редактор фото с поддержкой �
 ```bash
 magnet:?xt=urn:btih:C4F296A7BC56A4DD63C28E585AD14BECFB72332F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Resource Hacker - программа для просмотра, извлечен
 ```bash
 magnet:?xt=urn:btih:44688B439FFB88421801E6316103F820735C5C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ PassMark RAMMon - удобная и полезная утилита для по�
 ```bash
 magnet:?xt=urn:btih:CF0FC2425ECA7E4A49BEE36F1BC633EEF3B26847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2838E8AF5DC5C7D82F90AAA35060A04549A2286F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ HopToDesk - это бесплатный инструмент для удален
 ```bash
 magnet:?xt=urn:btih:3297B06E22CFF35430D275C3E0FCEF99682ADFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ MailWasher Pro включает антивирусную защиту, обес�
 ```bash
 magnet:?xt=urn:btih:E686CC79EB66D393B5088ADA42B1E2B069E7C05E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Fear My Thoughts - немецкая метал-группа из Райнфел�
 ```bash
 magnet:?xt=urn:btih:7A3E9CC1880AC71F90764DDD82B41E5AA17CD40F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Proc Nezustane Slunce Stat(   Читать дальше...   )Жанр: Folk,
 ```bash
 magnet:?xt=urn:btih:01DBB8EB0789391BF6C6C8D91224077E3791C127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

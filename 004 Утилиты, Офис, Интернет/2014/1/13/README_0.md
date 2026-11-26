@@ -19,8 +19,7 @@ File Salvage 2.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:FD514C118E2673B2EAA1B8227C1FC41BF364A9B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

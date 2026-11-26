@@ -22,8 +22,7 @@ A4. Downstream (4:01)(   Читать дальше...   )Производств�
 ```bash
 magnet:?xt=urn:btih:949B5744F6B1DA7280E69124992821AD7D5DD7E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Dancing With Mephisto(   Читать дальше...   )Жанр: Downtempo,
 ```bash
 magnet:?xt=urn:btih:7BB584EFF790C75FB825833C2AB40830F3825BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 I Love You… I'll Kill You(   Читать дальше...   )Жанр: New 
 ```bash
 magnet:?xt=urn:btih:C019A4EE24A4758DD9E084ADE9997383BD6A4850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A2 B/ Find Love(   Читать дальше...   )Жанр: Medieval, Ambient, 
 ```bash
 magnet:?xt=urn:btih:88B4CC7EF5E3F424C401BA737C8ED6F77B1A0B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

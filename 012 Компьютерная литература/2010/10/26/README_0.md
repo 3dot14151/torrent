@@ -21,8 +21,7 @@ Essential C# 4.0 - это хорошо организованное, "без в�
 ```bash
 magnet:?xt=urn:btih:11D8BFE8BD719B61B3D31F4B4214A5772A8AFD8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

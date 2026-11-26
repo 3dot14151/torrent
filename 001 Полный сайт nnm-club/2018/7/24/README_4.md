@@ -22,8 +22,7 @@ VA - Suanda Summer Vol.5 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gerry Gibbs and the Thrasher Band - Faces Unknown (2006) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:8C8007D7ACFC0057850E49C6B01EF5C29C81812B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02481C276B85C6CD0FFDB099862A312E15EB8D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Suanda Ibiza (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:ADE282F73DD1E788D045A0A892B422C40E8717F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Domiziano Maselli - Ashes (2018) Opal Tapes [FLAC|Lossless|WEB-DL|tracks] <Ambie
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Chilling Summer Love (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Michael Des Barres - Somebody Up There Likes Me (1986) [FLAC|Lossless|image + .c
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Arkaine - X-Bone 004 (2011) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:97B9E3927674D017CAEF84679A1ABBE2EB78A911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Dtroy - Terra Incognita (2018) Detroit Underground [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:7120CD376E6AD1D9B6C3AA01C6EEE9147ECFB90E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Atmozfears - Scantraxx 102 (2012) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:8C8F600BFEB1095EA74BDDB8F8D25B0899A0BF59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ The Exaltics - Das Heise Experiment 2 (2018) Solar One Music [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:8EFB5372E61C5B3F133EE1CFB90AC82C15970E89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Atmozfears - Bella Nova (2013) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:B503C84D9BDD3D7FF2E50EDF79B199DC00FFB61D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Audiofreq & The Prophet feat. Teddy - Scantraxx085 (2012) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:6F515062FDA5077B0E009D7F8F227E033E757CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ ScrollNavigator 5.9.0 RePack by KpoJIuK [Ru/En]
 ```bash
 magnet:?xt=urn:btih:01DEB1E70A776F7EEF9D7307513C34ED41B2E712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ D BLOCK & S TE FAN feat MC VILLAIN - Evolutionz 017 (2011) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:1B6830106472B4DEC467ED3934408C330446FEAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:EE4C9F17251F0BDCFD377902C273647B5169D3EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Atmoswaves - Distant Horizons (2018) Mindspring Music [FLAC|Lossless|WEB-DL|trac
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Digilio Lounge Music - Relax Chillout Music Summer (2018) [MP3|320 Kbps] <Balear
 ```bash
 magnet:?xt=urn:btih:5D359715CAEFF28A6BBA245730373B563FC2C6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ CRYPSIS - Break Down Low (2013) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:6078904F5D9AD526681526772A18D3EFC0C738B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Code Black feat. Chris Madin - New World (2015) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1AEA0BD48D09ABC7440E60249B68D667410CBFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ Spiritual Evolution - Genesis (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dow
 ```bash
 magnet:?xt=urn:btih:4DDBDCFB8BDA4CD62BFE3DFF4F6B93C810E26709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ FileZilla — это свободный многоязычный FTP-клиен�
 ```bash
 magnet:?xt=urn:btih:7CF16936261702B4E262EABBB0B2F6B3C086B8A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61DB69544652EF065DA3E3F0435E99DAF9869D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

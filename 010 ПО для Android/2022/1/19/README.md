@@ -19,8 +19,7 @@ Numia: Астрология и Гороскопы v2.0.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:75520E3D16FAE1AD452E07D40934BCDFF15532B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

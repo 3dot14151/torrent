@@ -20,8 +20,7 @@ ZTM | Веб и мобильный дизайн в 2020 году: UI / UX, Figma
 ```bash
 magnet:?xt=urn:btih:CFD8EC413F9C6871E8874ACA54DC81341BE2B499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46AACA242E6CD6252A50213D1D51048A829134C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Marine Aquarium v3.3.21 PRO [Ru\En]
 ```bash
 magnet:?xt=urn:btih:3BED0D3FC5597C21830D8D17D8A13389A8B02FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Radiotehnika. История флагмана радиопромышленнос
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4107B006C1592B2BC251974BB7A64276919A0D1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F3F29811DE25C450C42F305FDAE9FE59B9135BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Skillbox | Тайм-менеджмент (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:D7EB1F8C9453FDD22021C8CBB12FA1B13AFAA9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:6FA73857A9367A7F7B406E38990AB37346D5B67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48E5235437685CE1802A628B7B132B51ACFE3AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Skillbox | Основы математики для Data Science (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:00788E2609A50B4A2EFBA4750B764355EF2C7C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
 ```bash
 magnet:?xt=urn:btih:02C8F8641FA3BEFD88243B0BF74E9A0E592D0826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ MultiBoot HDD 2020 04.10.2020 [Ru]
 ```bash
 magnet:?xt=urn:btih:0A77E2A81A77A60E3C56583E0E53BF7990ADE8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Ancestors Legacy (2018) [Ru/Multi] (64724/dlc) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:E68FE0EEB4963E63103D72205E89D4BED2E650A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A3E91EB35CF96CDDF4054AD3CEA78D47A351744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ VA - 100 Самых Красивых Песен (2018) [MP3|320 Kbps] <Pop, Soul
 ```bash
 magnet:?xt=urn:btih:6C42C42D2F7586DEF370BA3E5CD74B5CCB4CBB62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE22441EF52459846E6EA09626358BC4ABC0BC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EABC642BF969783AC1D221E716122F1302301953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CB982DCDD43845A4544850B1F752931449DC828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

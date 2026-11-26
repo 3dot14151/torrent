@@ -22,8 +22,7 @@ Curtis Fuller - The Opener (1957) 1996, Blue Note [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:EAA716DF225581DB5D77F16414976E75071CC27E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ismeros Arcok - Eberalom (2007) 2016, GR  - 070 [FLAC|Lossless|image + .cue] <Cl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA2935DFF3D80E0F6ACD75A5935C46978550A042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Gabor Szabo - In Budapest Again (1978, 1981) 2018, Moiras Records [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:050D1AAF37BE87A3CFFB9DE89271A291F1F37375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - S10 (2012) SEALT [FLAC|Lossless|tracks|Vinyl] <IDM, Ambient, Downtempo, Dro
 ```bash
 magnet:?xt=urn:btih:7647AA1DE414F5D9661399F5D6AE24C0DEDE9611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BF67D95CF615704B3D5682F1CBC24BB72D21E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ VA - We Love New Trance Vol.1 [Mixed by Dave Zee] (2018) [MP3|320 Kbps] <Trance,
 ```bash
 magnet:?xt=urn:btih:7ED2BB5996F9A127D45DD18E789FE5DC37645C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - Ultimate Workout & Fitness Selections Vol 02 (2018) [MP3|320 Kbps] <Progres
 ```bash
 magnet:?xt=urn:btih:D35503160007DE298F3C85E38DE76313F730C9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ VA - Hot Hits Ibiza (2018) [MP3|320 Kbps] <House, Dance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50D184E41E21F9A45E51CD0E2E3573CB29AB67D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CA92D0A5F8B64FE67D5503ED4C851BE22089295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Ryuichi Sakamoto - Async (2017) Milan [FLAC|Lossless|tracks+.cue] <Abstract, Amb
 ```bash
 magnet:?xt=urn:btih:B53D42632BFB3620FF62B1B4A7DA68423889598F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8817D9F7928B0602FEA9772C0D337993EE63EB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5202CB5F79392B9EAE6F64EAC7D8A8CDB384A555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DCA832E52A0D653D1DB853EAFE1FEC1C5A9DCD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Dee Snider - For the Love of Metal (2018) [FLAC|Lossless|image + .cue] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:E85A344C3A94C00739E470DD5D54FE91B7B26F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ MX5 развивает заложенную предшественником к�
 ```bash
 magnet:?xt=urn:btih:169FE92982C1606E783A3B3F6F318ED26BD39461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Northern Lite - 23 (Best of Northern Lite) (2016) Una Music [FLAC|Lossless|WEB-D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Nickolay Fedorenko - Magic Universe (2015) [FLAC|Lossless|image + .cue] <Synthwa
 ```bash
 magnet:?xt=urn:btih:4A7E69388DD46101D096997DD1A6947BDBF8C598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ VA - Kontor Top Of The Clubs 2018.03 (2018) [MP3|320 Kbps] <House, Tech House, C
 ```bash
 magnet:?xt=urn:btih:C63F1CCD10C7569073DA02231E1FF6153BB33BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ E-FORCE - Seven (2014) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:47D8018A48F624C66493063595F20FD188D0DDAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ VA - 50 Chillout Luxury (Deluxe Lounge Experience) (2018) [MP3|320 Kbps] <Balear
 ```bash
 magnet:?xt=urn:btih:7F9A3F2429553561DD12CB557161CA42EEA38C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ Time - Prime Time (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:7719C8F32311B5711BD1B9D03CFE0039B33BB29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ Tove Styrke - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Electronic, 
 ```bash
 magnet:?xt=urn:btih:7F6BC7E15844A3BF0946CC5E309CC10E71F98515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

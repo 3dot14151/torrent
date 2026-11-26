@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DF983FF1F6148D6549B33186C696B1863D5D924D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:F2510A61667AF32075FFF9CF37B16C44A10E3D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

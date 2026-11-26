@@ -24,8 +24,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0/dlc) SteamRip R.G. GameWorks [Nostromo E
 ```bash
 magnet:?xt=urn:btih:73BA7314962153B7BFD18B3776ADE94D78542965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

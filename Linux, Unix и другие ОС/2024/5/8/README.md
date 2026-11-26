@@ -21,8 +21,7 @@ Red Hat Enterprise Linux (RHEL) - популярная коммерческая 
 ```bash
 magnet:?xt=urn:btih:DC9C23DBED3D55EA23811E306682168DFED9F349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ N.O.V.A. 3: Freedom Edition / N.O.V.A. 3: Свобода v1.0.1d Mod [Ru]
 ```bash
 magnet:?xt=urn:btih:153FEF2E68F99CC53110643AC86F8B6EDA4022B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

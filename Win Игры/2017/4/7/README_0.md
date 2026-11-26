@@ -19,8 +19,7 @@ Scourge of War: Wavre (2015) [En/Fr/It] (1.0.0.0/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:A387CBB8A16593A5329C12295B5A5F5F2D6EBF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Johnny Graves—The Unchosen One (2017) [Ru/En/Ge] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:FF20ACDCDE7D9B51B403CEC51F8787BE638BA435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FlatOut 4: Total Insanity - это очередная часть знамени�
 ```bash
 magnet:?xt=urn:btih:9D3C5869B04BC1F975B5875C1B5B9B48A78CD2A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Roots of Insanity (2017) [Ru/Multi] (1.1.5) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7A4D51DF0E8F6DC0594B428C053CC9D6FDDF48B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

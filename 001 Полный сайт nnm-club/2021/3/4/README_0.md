@@ -21,8 +21,7 @@ Witherfall - Curse Of Autumn (2021) [MP3|320 Kbps] <Heavy Metal, Progressive Pow
 ```bash
 magnet:?xt=urn:btih:EE2B043C6F7E7A5D4232F27F2ADF5CA784E79831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBDFC9FC69B8AB2F78A80B44B5FB0C778C3F23D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Eclipse Of The Sun - Brave Never World (2020) [FLAC|Lossless|image + .cue] <Goth
 ```bash
 magnet:?xt=urn:btih:94853DDEF154CBD9F563945B4A33EE9ACBA60E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Zero People - The Best: Очевидное (2021) [MP3|320 Kbps] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:076F756326C52A2028E951F00585902D76A71B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAA6A9D4478E16C5765B0B68165D5BCA2EC74330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:E3E05A14E82D858BD5AA6E21DE89895DAE658757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 14 (2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:A64555FD15252A14ACD0D1A012392038D36931FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 5 (2015) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:472A1387A7F1C6ED1B3EE89E3AF4495F734C6560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:7F166084723A02986F5375C57AF435008C90897C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Visual Studio 2019 -  полнофункциональная и расширяе
 ```bash
 magnet:?xt=urn:btih:BC75366938AC0D2E4388DCAA2F8EC8095A2458E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:89D7C03F98D9E7FCB830269E46F0901069FF0651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ VA - The Perfect Sunset Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:11E523A7167ABA38F6720980608607A009D5D533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Opera 74.0.3911.203 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5F61AF729222F492C84D0F922045F37691E65C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9CDE60F50DBC22274F1375DA33EFC5ACB1F601D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 12 (2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:F78095574E562A09DC78B423F187BA38B7DCDBA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ VA - Point of Origin, Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:AEA6CFBD0F70E8172B02C798487C7B0FBB910383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F5188248F41D5BD693FECDB430D878328E65E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BA376C14EF964D4421D3722B321D4ECFE2DFEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6FA498E65467E77DDAF96CD3FC0FBFCB8FCEB66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 13 (2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:0695108EE9CE015B90F99C3C30E0BA2211752728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 15 (2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:DD41D1FD6E927414D00CEB4144FE9E8A691A8BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CE4776BA78D86B059FF5D56E24AD6E4E540F52A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ Opera 74.0.3911.203 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AE4576501F3BBB492F121BA66DFBE79E1A17808B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A17601C994DDC843DEDC426F639B5D93DEB1F4B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBBF35617BB7453416CF616B5D4AF7C257CEC0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:F6DA69DEE2AB0FC8A71084DC1AC29854664E09D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

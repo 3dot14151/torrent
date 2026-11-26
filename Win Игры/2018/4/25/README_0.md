@@ -19,8 +19,7 @@ PLAY WITH ME (2018) [Ru/Multi] (1.22.21) License PLAZA
 ```bash
 magnet:?xt=urn:btih:AD3F1427593E39EC05CC50CDCD6A261D95CF0DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Swords of Ditto — незамысловатая игра в жанре Action R
 ```bash
 magnet:?xt=urn:btih:DF11896F2F320CDD89A356455AD7F25A31CA7216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Demon's Rise - Lords of Chaos - пошаговая, тактическая RPG, 
 ```bash
 magnet:?xt=urn:btih:6C08FADCA14F875755FE44D06A1D889EA35902EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

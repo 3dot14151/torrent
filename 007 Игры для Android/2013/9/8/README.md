@@ -19,8 +19,7 @@ Classic Lines [Игра] (Android)
 ```bash
 magnet:?xt=urn:btih:6E687FC7E4865ED0048BFD421B147D63ED15DAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

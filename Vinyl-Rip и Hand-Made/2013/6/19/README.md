@@ -28,8 +28,7 @@ Largo, Allegro, Adagio, Vivace(   Читать дальше...   )Жанр: Clas
 ```bash
 magnet:?xt=urn:btih:980737C337E81027DA89198C13474067593A4546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Two Door Cinema Club - Beacon (2012) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Alternat
 ```bash
 magnet:?xt=urn:btih:0D75AFD41382BCB422A422F6AB897CF77B354365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

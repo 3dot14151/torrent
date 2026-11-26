@@ -22,8 +22,7 @@ Sunstorm - The Road To Hell (2018) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:0A2B4780A7701E53A0212D54410F52489C38A5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ UALinux | User And LINUX  №5 [январь 2011] [PDF]
 ```bash
 magnet:?xt=urn:btih:5ABEADB254241771A8EC5303C9727963843F079E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

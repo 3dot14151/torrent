@@ -28,8 +28,7 @@ A Plea For Purging - The Life And Death Of A Plea For Purging (2011) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:108EFE7ABB4AC1A6572E6CE569A44153FAF8E09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Huis - Despite Guardian Angels (2014) [FLAC|Lossless]<Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:861BE8416F29737F4BA3DFAF28368CFD6250ADDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Doom:VS - Earthless (2014) [FLAC|Lossless]<Melodic Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:57873F1ED22EE9A8CFC7189F13D914495102499B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ The Treatment - Running With The Dogs (2014) 2CD Deluxe Edition [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:CDEB0F21BC1A4B1CBBC2D96F7298AD11193E4E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Linkin Park - Until It's Gone (Single) (2014) [FLAC|Lossless|WEB-DL]<Alternative
 ```bash
 magnet:?xt=urn:btih:4D4A13866B0F0021AB400F109A4A07747ECF86B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

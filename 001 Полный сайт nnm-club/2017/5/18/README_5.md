@@ -22,8 +22,7 @@ Duke Ellington - Le Jazz de A a Z (1940 - 1945) 1994, BMG [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:4108641D584261706C9BD4C08BF6D7C428BE73A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Duke Ellington - Sophisticated Lady (1996) BMG [FLAC|Lossless|tracks + .cue] <Sw
 ```bash
 magnet:?xt=urn:btih:30C7D10C2B6555FCA771668B055504E13A42D9DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Duke Ellington - Swing 1930 to 1938 (1989) BBC [FLAC|Lossless|tracks + .cue] <Sw
 ```bash
 magnet:?xt=urn:btih:F4755EDC18A33FC4F6A0AA61ADE3117AAE206989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Duke Ellington - 20th Death Anniversary: Zurich, 1963 (1994) Sarabandas [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:E88A42A2BDBA3E6F59D36339C8EB6BC8CC00C324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Duke Ellington - At Basin Street East (1964) 1995, Music and Arts Programs of Am
 ```bash
 magnet:?xt=urn:btih:B15FDA050582175DAE00D7ED68ADFA814A3732D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Duke Ellington - A Portrait of Duke Ellington (1999) Columbia [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:ED0770AE4FE2D1A9F4440784F1157337E83B8344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Duke Ellington - Jazz Masters 1953-1955 (1997) EMI Jazz [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:E91EC9091DF0D27BF7D99D6727471952F914F2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Duke Ellington - Compact Jazz: Duke Ellington & Friends (1987) Verve [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:CBBBBED6A2270350012213322BDE90D5B195071A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:FA8E42D81955E56DF1C1898D16AD1E58CFFAE943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Steve Kuhn Trio - At This Time... (2017) Sunnyside [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:599DACBBEA1602BA9A14BE57AE001F089420C584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Summer Vibes Vol.2 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:AD02947412ABA2C301AE9E89F6C8673537DB07BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Electro Lounge Dinner Party (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:33FEB2BE4A00144247E912B4B669651E88E38353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Deep Diving In The Sea With Music (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:89E67ECC2591103B255112BD7221D8566FDA0C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C2E1FAA6DB49CACFBAC7D1B8B8B0DE138373CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Duke Ellington - The Best of Duke Ellington (1991) Pablo [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:DABE563DC666929257B19494C197C55B60BA4B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD4961004D81D67134CC9F80C4A21E1A2E9A9D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ The Bitzpan - More Than Cotton (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, 
 ```bash
 magnet:?xt=urn:btih:BC8B4493F666EEF9C7B966823B9E55DB1D3F64E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ VA - The House Meloman Collection (2017) [MP3|320 Kbps] <House, Progressive, Fut
 ```bash
 magnet:?xt=urn:btih:A786F46CD7D87F8B6FB9F7B17AB9A0F2B8FBB599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75EB226FBB8F6A2D3AC5A12A70DF5B17D69EDC3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EB90D764CD8147B3EC77971B591E16C87DB5A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ VA - Spiritual Alchemy (Compiled by Dubnotic and Mystical Voyager) (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:9FAF538E083542438998433739213B371ABBF320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ Vol.1:
 ```bash
 magnet:?xt=urn:btih:0071EB0CEC3F26AA20DDB294B0E76F44ECA7AA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D93ABC239F2CE9ACCECB264A69ED903921A47E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3E3185E0C6B45065E3F45380362D39F498CB958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B2A32CB259672C878634A6B0DACE75804928152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ Pom Poms - Turn You Out (2017) [FLAC|Lossless|tracks] <Alternative Rock, Female 
 ```bash
 magnet:?xt=urn:btih:80CB6EB6D8138AA6A3E6C31FCD3D39CEAD0B93D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

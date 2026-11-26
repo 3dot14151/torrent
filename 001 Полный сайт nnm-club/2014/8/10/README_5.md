@@ -26,8 +26,7 @@ Terraformer - 3 альбома (2010-2014) [MP3|320 кб/с]<Post Rock, Post Met
 ```bash
 magnet:?xt=urn:btih:0CB4F13641F7FEE30CB44D76660BDC1238F2CF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ As We Draw - 2 Альбома (2010-2014) [MP3|320 кб/с]<Post Hardcore, Post 
 ```bash
 magnet:?xt=urn:btih:3F1C4320C6963FACBD215F161749B2D0AE84422B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Amalthea - In The Woods (2014) [MP3|320 кб/с]<Screamo, Post Rock, Post Metal,
 ```bash
 magnet:?xt=urn:btih:ACDAD77147B89A4D3214D709D063F0492A0B0C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ What The Blood Revealed - Harbour Of Devils (2012) [MP3|320 кб/с]<Post Rock, 
 ```bash
 magnet:?xt=urn:btih:3712A8F0A548C9AB0C4EBCC46675FCB7A55E4D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Deft - Before Vol.2 (2014) [MP3|320 кб/с]<Electronic, Hip-hop, Bass, Dubstep,
 ```bash
 magnet:?xt=urn:btih:87FBAE3542EA2E9B309FF7877E50760188321CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:881AFF64C66A78550BDD50D8DE08107F0476AD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC20F2F2D3F433F3957463F270178F08D83CA67C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6EE8E0799BE2D5F7D824CFBDE2950B8F7A301D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ Jimmy Dawkins - Feel The Blues (1985) /Reissue 2014/ [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:59F593EE9934AC29EC485107B1CA2B23545EF6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +349,7 @@ The Pat Sheridan Band - The Love Remains (2014) [MP3|320 кб/с]<Blues Rock, Am
 ```bash
 magnet:?xt=urn:btih:A444A311BE8443457359836D77BE1D8202331ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFF9B9ABA024E39FD41CB46B123F14EB65D0E69D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ Benoit Jutras - Сон / Le Reve (2011) [AAC|WEB-DL|256 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:04AF04869B8B5CA3773776FA3518948560010433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DAD0E8E95413A95FC9EC3B04EB3B3865A804171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ Kerry Kearney - Got Slide Guitar? (2013) [MP3|320 кб/с]<Slide Guitar Blues>
 ```bash
 magnet:?xt=urn:btih:2A3BC8F0F944707ED8A522256CD84F41A195F54E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E41199524E6743313378BB85B47B8882718FC69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ CADintosh X - приложение из категории "Графика и д
 ```bash
 magnet:?xt=urn:btih:0485847DEF1C908039AA4EB64DE5726DFDC6A873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ Firefox отличается стабильностью и безопаснос�
 ```bash
 magnet:?xt=urn:btih:147C3AAEB126298E4BF312E3C6E55675B35C7FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ Detour City - Merlin (Everybody Knows) (2014) [H.264/1080p-LQ] WEBRip
 ```bash
 magnet:?xt=urn:btih:01C97AA4A6FDDBA6D84A3F2698CF67224A899D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4FCA5894DA2F3C77BB18C08491B53E9A302FAC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:648C64819503B893BA9D8EFAD06092A65F1194F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ Zucchero - Spirito Di Vino (1995) [FLAC|Lossless]<Pop-Rock-Blues>
 ```bash
 magnet:?xt=urn:btih:73DFE1E2FA30B84A72E1670DE6ED2AE485D983FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D6832B2773D16C388AEAAE5402BBBFDCB31C767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57B34D027D97F1BDC192770E6B58FB0F9512E899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +746,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C181443C4857F64E68649B848692D4D0C29C7EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

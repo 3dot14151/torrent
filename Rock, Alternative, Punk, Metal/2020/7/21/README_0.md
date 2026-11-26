@@ -22,8 +22,7 @@ Immorior - Herbstmar (2014) [FLAC|Lossless|image + .cue] <Post Metal>
 ```bash
 magnet:?xt=urn:btih:6F525508374227BFA805F61DEFCD34DFD61E18E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Misery Index - Rituals of Power (2019) Deluxe Edition [FLAC|Lossless|tracks] <De
 ```bash
 magnet:?xt=urn:btih:13F4E8C21645653278E76CEB0461AD1994CB118E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dream Child - Reaching The Golden Gates (1998) [FLAC|Lossless|image + .cue] <Pow
 ```bash
 magnet:?xt=urn:btih:484C79E02E547610C05121BC53EC708C7DA4C7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Datum X - Burn The Soul (2020) [MP3|320 Kbps] <Melodic Death Metal, Gothic Metal
 ```bash
 magnet:?xt=urn:btih:F4555C1F24B76DA97B036D9865DF21E182DF8BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Hardkiss - Акустика. Live (2020) [MP3|320 kbps] <Acoustic, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:E9B12A242C430C8B6FBB0DFC0FFDAACA7C941B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Hard & Heavy 100 (2020) [MP3|320 Kbps] <Hard Rock & Metal>
 ```bash
 magnet:?xt=urn:btih:8C7DBC6FA5660118D09DF2453DC7D6B26D0CC49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

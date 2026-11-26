@@ -19,8 +19,7 @@ Ninja Gaiden Σ (Sigma) (2021) [Multi] (1.0) License CODEX [Master Collection]
 ```bash
 magnet:?xt=urn:btih:346C76CD5C20D74CE735903F538C3B6EF7DF617F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ninja Gaiden Σ (Sigma) 2 (2021) [Multi] (1.0) License CODEX [Master Collection]
 ```bash
 magnet:?xt=urn:btih:D5817FA46FA12E56B30335CDA8C2176A85D01146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ninja Gaiden 3: Razor's Edge (2021) [Multi] (1.0) License CODEX [Master Collecti
 ```bash
 magnet:?xt=urn:btih:0C543B0DCAFB82658BBA5D369FC57804E5736A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

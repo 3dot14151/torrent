@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:C23947AECF09E326E0E12C2CF5A8DD61A43D05F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8821887E4B8569581B6E0315E4DC91C6EA76484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mayhem / Morbid - Tribute To The Black Emperors (2019) Split, Bootleg [APE|Lossl
 ```bash
 magnet:?xt=urn:btih:CBCF0E5884AFBCED1171971C2F40ED4E01EF8E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dream Theater - Lost Not Forgotten Archives: Live in Tokyo, 2010 (2010) Reissue,
 ```bash
 magnet:?xt=urn:btih:E2B7B3115799FFC3919F765F8D2256AAC142A4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MultiBootUSB - кросс платформенная утилита для со�
 ```bash
 magnet:?xt=urn:btih:42DD1CDF7EE1D5F70DC0FAD0699072091F25D76A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:C026C71F9198C6CF419DF996FC52D61E6D414069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

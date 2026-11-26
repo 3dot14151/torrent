@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D6C5F041AF3DC611247F66774C9471E7AF887D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C893328C6F06E22C6B4CE887156D421858BBEE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9DF58C3E746D14279D8C06AD3861B692CF16F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ I век до нашей эры, Римская империя. Бывший г�
 ```bash
 magnet:?xt=urn:btih:6ED4EA91B4C374058365284C4B8A1C2500BF4D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ I век до нашей эры, Римская империя. Бывший г�
 ```bash
 magnet:?xt=urn:btih:CA44CD4712BF1C2446EED6A99DC049852850EC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ I век до нашей эры, Римская империя. Бывший г�
 ```bash
 magnet:?xt=urn:btih:A691FB49EB1307FB56F15140B34D9D852051D659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ HELL OF FEAR Mind Breach (2025) [Ru/Multi] (165.5.1.f) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8CC1CFDEF381FD51FA046417A8BADD2AC050F699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

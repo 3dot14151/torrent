@@ -19,8 +19,7 @@ Lost Secrets: Caribbean Explorer Secrets of the Sea / Покорительниц
 ```bash
 magnet:?xt=urn:btih:547B0F9E81248ED5380E05FD5D6B1713A59882E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Agatha Christie: 4:50 from Paddington / Агата Кристи: В 16:50 от �
 ```bash
 magnet:?xt=urn:btih:FA1F9BA2364BACBEEC69D033ADC5B20BCB2116D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nightmare On The Pacific: The Ship / Невероятный круиз (P) [Ru] 
 ```bash
 magnet:?xt=urn:btih:FB1BCD32F511AC6FA1863C148484BD71512DA744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Unlikely Suspects / Необычные подозреваемые (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:CE93D5DF460284B13F968491B4EBD337B03005D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

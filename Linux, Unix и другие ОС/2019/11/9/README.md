@@ -21,8 +21,7 @@ Red Hat Enterprise Linux 7.7
 ```bash
 magnet:?xt=urn:btih:425F4F78DA953919F6A07C4FEF4A837FC2EDE870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

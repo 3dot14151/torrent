@@ -20,8 +20,7 @@ PicWish — фоторедактор с искусственным (   Чита
 ```bash
 magnet:?xt=urn:btih:A2E9BFBF965CECDA80F3E8D00867932BC9578441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 ```bash
 magnet:?xt=urn:btih:4F21688DA7C90B7A730C4885737879354250B14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ VPN.lat — это бесплатный VPN-сервис для Android с се�
 ```bash
 magnet:?xt=urn:btih:A4400BAF00246A617D3DEAD1371E0FD81E7B1472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ BBVpn VPN — это молниеносное приложение, предос
 ```bash
 magnet:?xt=urn:btih:0FE05ACA0619174886B1AF28DA7B9694189DBCE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ PictureThis - Plant Identification v3.82 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DDD2249542844D8EE5801F53E910EFD367093508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

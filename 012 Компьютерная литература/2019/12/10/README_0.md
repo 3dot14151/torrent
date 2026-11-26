@@ -19,8 +19,7 @@ Todd Lammle | Understanding Cisco Networking Technologies: Volume 1 Exam 200-301
 ```bash
 magnet:?xt=urn:btih:F7FC65795F7478D66971FD0874EFB2D71D3C8689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 2 / Официально
 ```bash
 magnet:?xt=urn:btih:4C06914AEA589D912F34DA2C367415FB1950FF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 1 / Официально
 ```bash
 magnet:?xt=urn:btih:D5E8E6F5BE6ECF3C2A63FEFDC647B970B6083E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

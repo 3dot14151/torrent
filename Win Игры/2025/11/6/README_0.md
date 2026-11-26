@@ -19,8 +19,7 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 ```bash
 magnet:?xt=urn:btih:0404DE8BBFDECCAC979230CE1AA95A03EB71C237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9D573A1637EB3897CCDEE3A477C2011F770388D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Sojourn (2020) [Ru/Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:FDF703D1CB8981087661C75E3E484E795824D6E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BALL x PIT — рогалик на выживание с разбиванием 
 ```bash
 magnet:?xt=urn:btih:82F506E5EB51A8A6A7117A74BCA581290EA0D3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cats & Cups (2025) [Ru/Multi] (1.0.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:944A66950EB8F8C4363C064F1B20893722A804D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Metal Garden - это короткий атмосферный шутер от п
 ```bash
 magnet:?xt=urn:btih:B6F66440F592B93C6424F8F805FC5460FD3D2FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Falconeer Revolution Remaster (2025) [Ru/Multi] (32096228) Scene Rune
 ```bash
 magnet:?xt=urn:btih:76A59826D889C5E6676D55DC6AC778444226FFE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Stormworks: Build and Rescue (2020) [Ru/En] (1.15.5/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:DEA5F01B530CD0B797788372C4D2A7BF198CF8FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Syberia - Remastered (2025) [Ru/Multi] (32111015) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:D2EE68CB3B7D253883668749E521BC2C5187FADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Shotgun Cop Man (2025) [Ru/Multi] (20251028_1119) Repack Necros
 ```bash
 magnet:?xt=urn:btih:FE426234169D233260B8462BADD1036C7B6B8B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ KIBORG (2025) [Ru/Multi] (2025.11.05:1:83) Repack Necros
 ```bash
 magnet:?xt=urn:btih:D3E41A192FD8345F8716A443761D2834A2ACAC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Trailmakers (2019) [Ru/Multi] (213.503.082.0/dlc) Repack Necros [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:1886809F63B75DF193367070A62F86E5E5E24522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 ```bash
 magnet:?xt=urn:btih:B4CEBBDC6F01EA67EE364BAF99C2F0C5A8E8DCB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:2EF369930146EDDBA0B2CCA4140799E0436967C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8FFB855A1C069CB3D87FC17E209E77FA8BFE86D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CF450D0F8C8C698C8756E6D12653FE12073C48A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Legendary Tales возвращаются с новой историей-прик
 ```bash
 magnet:?xt=urn:btih:57065886E5A3519DF9187D4EB1AB26C74DA4C2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A8CFF08C63CD6E6813692302487C9FED2280CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

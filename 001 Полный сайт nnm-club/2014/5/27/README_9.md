@@ -28,8 +28,7 @@ Stevie Agnew - Wreckin' Yard (2013) [MP3|192 кб/с]<Bluegrass, Сountry>
 ```bash
 magnet:?xt=urn:btih:B1EE963AC7135C126E8EF734AC0C4D4F8A388AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Friend Or Foe - Deviant Desires (2014) [MP3|320 кб/с]<Indie Rock, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:C7F37E055BDB0B2D10CD0E707CC985262795911A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ aText — приложение для быстрого ввода текста �
 ```bash
 magnet:?xt=urn:btih:4837616ED8DE6C712D6835D9FC1684AB7A48094F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Polymyth - Steliograph (2008) [MP3|320 кб/с]<Trip Hop, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0C3762A576D8A351364ACCF1CE175E4183202B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Anatoly Vapirov - To Miami And Back (1996) [FLAC|Lossless]<Jazz Fusion>
 ```bash
 magnet:?xt=urn:btih:DD5BB6BA1924227DA7B20A51ACCD2AD075DDDA6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ VA - Swinging Gentlemen (2007) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:0D39E3E2130167FA02C86165B4709C7752100486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Richie Arndt - At The End Of The Day (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:8748C7E20981D785997FF158796B12783DED7D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Polymyth - Steliograph (2008) [FLAC|Lossless]<Trip Hop, Downtempo>
 ```bash
 magnet:?xt=urn:btih:FA78A76B4567CC1303CFCCF132D60EC1397940AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5DDC79B209AD18C98B6467AE0734669817692B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ Dave Edwards - The Illusion Of Time (2014) [MP3|256 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:37A9EA851AD908DE63625D81783409AE3B52D754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4E863F99217F80E0066378A0187906AD27A9B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ HyperSnap - это инструмент для захвата изображен
 ```bash
 magnet:?xt=urn:btih:AB964E0970C04FABB84864B642ED1EFA1851011A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:246E4EF8F38DB811436837E8D59ACEBE458C7A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ Hannah Aldridge - Razor Wire (2014) [MP3|320 кб/с]<Rock, Country, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:9A704B04CE5A19A0401D954093090816734C8EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ Advanced Installer - это мощное и простое в использов
 ```bash
 magnet:?xt=urn:btih:36110D3CA8EA1E8E7C0A9DCD55EC982E528A76CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ Keyboard Maestro — приложение созданное как раз дл�
 ```bash
 magnet:?xt=urn:btih:238E1938B819BD861C62D07A4AFBCB88F395EE0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C92D7069C421372F77B7ED3EC9FCE486E7121464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ Night Ranger - High Road (2014) Japanese Edition [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:582B5242C432F468185A42CD5A2C10F8A3A48141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ Northcape - Detach (2007) [FLAC|Lossless]<IDM, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:9721BE5F15781F55F806EF05B7FDDA1C7B77984B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19B6FBF72F2A38F6CA504002DC2F23AD271FD208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +651,7 @@ Mainhorse - Mainhorse (1971) Reissue, Remastered /2006, Time Wave, UK/ [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:5CB5093D24E906A458D909095F7783E8FB4A2520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04ED4F961497D95844646C7CEE1357FDBEDAC9A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ Astrud Gilberto - Non-Stop To Brazil (2006) [FLAC|Lossless]<Vocal Jazz, Bossa No
 ```bash
 magnet:?xt=urn:btih:C56504FF918615E1B907B131CED223969C7686C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +737,7 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 ```bash
 magnet:?xt=urn:btih:A256A845D92EBC4F7A605C44C7E781CF82896509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9195269466DFAB83A8598033D79087E9B14C7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

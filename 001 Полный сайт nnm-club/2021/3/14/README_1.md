@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:87E1FEFD851EE45727D00D043FAFD28E7FCF5DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BC336EC380A8E3B2A78960CE3EB2E589C185CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Tricky - Fall to Pieces (Remixes) (2021) EP [MP3|320 Kbps] <Trip-Hop, E﻿lectro
 ```bash
 magnet:?xt=urn:btih:9F7F3F1A9098C3894C0ED8D5F0F8CF03BA6700B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Mobius Front '83 v39.83.1.0 (2020) [En] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:E79FC7F59E915E8C833555A23178E27E132BC218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Fredrika Stahl - Natten (2021) [MP3|320 Kbps] <Vocal Jazz, Jazz-Pop>
 ```bash
 magnet:?xt=urn:btih:A9FDFCFD4C4CD276631B8743E443DE919A4A39CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4B40884227A4A6A26A841D281600C66B8FA78B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B364CDD6E293494C2D12F60E05563BD5DF1A5C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:01151869B20CFFC5249230BDBF13CEFFF2BBDE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:461C5AAD515BFEB3FBCC70EE45B5FF682EBEA1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Ningyo no Kizu | Mermaid's Scar | Шрам русалки [1993, OVA] DVDRip 480
 ```bash
 magnet:?xt=urn:btih:C7DB7FF180004D6E4DEE5179B5516E12BAB2F2DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Ningyo no Mori | Mermaid Forest | Лес русалок OVA [1991, OVA] DVDRip 4
 ```bash
 magnet:?xt=urn:btih:266FC8A4738FFDDBF7A125CE01B68F8B1B2DCE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ ScAnDroid Experiment's - Pacification (2021) авторская раздача [
 ```bash
 magnet:?xt=urn:btih:31349EE500AEB860D82550C169BD33A134C82090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:246C202533E0CFE97076EE038B331FEF20FE5F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ Master Mosquiton 99 | Master of Mosquiton '99 | Хозяйка Москитон�
 ```bash
 magnet:?xt=urn:btih:F5370EEE18A3C64FB6FCB2721F226F38B104A75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2EA54E3C9DFF3229337F63BB83D46B15D985999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Asu no Yoichi! | Samurai Harem | Ёити завтрашнего дня [2009, T
 ```bash
 magnet:?xt=urn:btih:F63EAF9E9944E6DEF277C21EB416B969FE870A5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ DirPrintOK - это обозреватель печати папок, для с�
 ```bash
 magnet:?xt=urn:btih:8147307ABA86D165A32B491041AA839E4DB68CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03BF18EDCAD6DB92A61B214CCED3936C5C15703D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Keisatsu Sensha Tai TANK SWAT 01 | TANK S.W.A.T. 01 | Танковый спец�
 ```bash
 magnet:?xt=urn:btih:51C3F839FC6782299A8E171D8269CAEFF153126E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:674B461745A2287E8057F863B6AF20A7EC526913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5C87F3AD2166ECA6363390C21C19DC02161EAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ VA - Fresh Pop (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1B7A00CB6C0A398EF1D730D02268A7CDA5D1D8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B2B5F5862EED118ABDA2C586A051B65AC3EB879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Alan King Project - King of Flames (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 ```bash
 magnet:?xt=urn:btih:B95D01C25F8E5C12A1B9BE7210676667A0D29FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACDA21CDCAB9D5528FE4A484155D6FCCE89F4B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48F1D8544963700632F03F30807730648A0F7641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

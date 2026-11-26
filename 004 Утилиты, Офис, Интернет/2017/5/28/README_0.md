@@ -19,8 +19,7 @@ PromptPal — заменяет консоль командной строки г
 ```bash
 magnet:?xt=urn:btih:5921B8784F22335968906490A659FB20DE34C2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

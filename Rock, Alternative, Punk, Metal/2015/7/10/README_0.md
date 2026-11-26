@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3BED1C02CF6A24A0E71C58CFF5B40534E58607D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Kollision - The Stage Of Death (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B628225C1CF4853C68E0D2D9F460FDF1C6F2F989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Veruca Salt - Ghost Notes (2015) [MP3|320 кб/с]<Alternative Rock, Grunge>
 ```bash
 magnet:?xt=urn:btih:B97323B15B211E30BC62EFD4F1611BDCAA6C1136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Autograph - That's The Stuff (1985) Remastered /2009, Rock Candy/ [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:157BF74E439BECB8CCA7A65E49077F86B0222A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Devil You Know - The Beauty Of Destruction (2014) Japanese Edition [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:A41D4EE16BA4F68B2D262F8B43CA627ECC690308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Within Temptation - 32 альбома, 21 сингл (1997-2014) [FLAC|APE|Lossl
 ```bash
 magnet:?xt=urn:btih:B923B27BD14E7CE015A45C46B8313D64AF588C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

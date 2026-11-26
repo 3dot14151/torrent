@@ -19,8 +19,7 @@ AI RoboForm RoboForm2Go - портативная программа, устан�
 ```bash
 magnet:?xt=urn:btih:95EF51FF031EEB7DFF328321A2F13F5CCDE19398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

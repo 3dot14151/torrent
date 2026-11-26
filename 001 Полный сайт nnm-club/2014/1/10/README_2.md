@@ -27,8 +27,7 @@ Trance Lucid - Arise (1996) [ALAC|Tracks]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:769C85CEA3308F5667F57900C394DCCD022B63C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BFD96C07C7AD18E666C8DF4BD62DB7E8B5E90C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5537FD649B0CA019C94333FADCFA44D60C34A308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ MediaInfo позволяет получать техническую инфор�
 ```bash
 magnet:?xt=urn:btih:59E7469FBC23459B1DB7CF6328EC22149C6164A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Divertimento flat major K.563
 ```bash
 magnet:?xt=urn:btih:FDDFCBD7D76969A345D26F5D478AD0B514C11C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Renaud de Vergnette основал компанию Triangle в 1981 году. �
 ```bash
 magnet:?xt=urn:btih:11B1EA4162531D2DDAF38BA4453F722684C6810B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Discovery: Через червоточину с Морганом Фримено�
 ```bash
 magnet:?xt=urn:btih:7ABA5366716CECA9E0F86E2F36DF8D8919B288C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Michael Bublé - Michael Bublé (2003) [ALAC|Tracks]<blue-eyed soul>
 ```bash
 magnet:?xt=urn:btih:879046D922D796C31E0A7F6BEE7ACF70C08E260B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E74CE1092CCD89B1781F4AD7A2461714D5998C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ Liquid Soul - Revolution (2013) [FLAC|Lossless]<Psy-Progressive>
 ```bash
 magnet:?xt=urn:btih:87D61BEA6F4450EDEF063BD714F61743DEE3EF4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ VA - Galileo Dreams Recordings Best Of 2013 (2014) [MP3|320 кб/с]<ChillOut, L
 ```bash
 magnet:?xt=urn:btih:6C93A12C92EDE35E50B09C0F25E0930C61747C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ Naim - The Sampler 6 (2006) [FLAC|Lossless]<Audiofile, Test>
 ```bash
 magnet:?xt=urn:btih:F656350197FE3D8EC4B8D86E9B7003C0D9A6F62E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +425,7 @@ Audison - Music Expression Vol. 1 (2008) [FLAC|Lossless]<Audiofile, Test>
 ```bash
 magnet:?xt=urn:btih:EB0D3BF28F1E69F165D48A340D36FE82D65570A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9A73395952A55F49B42C5F8CFDCB51CF27B2D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ WebCamMax - продвинутая утилита для работы с веб-
 ```bash
 magnet:?xt=urn:btih:19F32E257F3534BAFCFA231B691C8C7CA7EFFDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ VA - Дискотека 2014 Dance Club Vol. 123 (2014) [MP3|320 кб/с]<Club, 
 ```bash
 magnet:?xt=urn:btih:53323463815D8A909C0616444D63C5EF7AE97EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07414B0508611DF2CE5B797AB98FD226C04DA49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ Wallpapers - Обои для рабочего стола Девушки [JPEG]
 ```bash
 magnet:?xt=urn:btih:C4D3CA1C4FCDA2A2E4E052ED05AB21B24F073497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ John Lennon - Plastic Ono Band (1970) MFSL /2000, Mobile Fidelity Sound Lab/ [FL
 ```bash
 magnet:?xt=urn:btih:11D3152B3E6187F80D558E39EFC15EF3A1908D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C44B944F07990E05A9811767C9CC1B35677E16B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ Keynote Template Design представляет собой прекрасный
 ```bash
 magnet:?xt=urn:btih:337E32A90DC537ABC595726C516D646BFB3BB44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ Wallpapers - Обои для рабочего стола Девушки [JPEG]
 ```bash
 magnet:?xt=urn:btih:9BFD6D70959C16AAE3341B69ED88FFAFC57A1125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ VA - All Woman - 18 Greatest Hits (1994) [FLAC|Lossless|tracks  + .cue]<Pop, Lov
 ```bash
 magnet:?xt=urn:btih:4BCE761637CF224D6A9FA1F7164BAEE67EBCA0E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ Wallpapers - Обои для рабочего стола Девушки [JPEG]
 ```bash
 magnet:?xt=urn:btih:22370AED64F0BF12F9BA3B71D651179D6C68EED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F3B39660D7888881BC521FE571AE1E83AE6A29A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

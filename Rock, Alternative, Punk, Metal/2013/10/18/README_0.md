@@ -26,8 +26,7 @@ Polska Radio One - Polska Radio One (2013) [MP3|320 кб/с]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:71FCD582468C5A9444B98B834F401638EC44FDF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Rocka Rollas - Metal Strikes Back (2013) [MP3|320 кб/с]<  Speed Metal, Heavy 
 ```bash
 magnet:?xt=urn:btih:FBD3A2941C8D5DC9F7867AC5BAAD5AFF317E1844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D72D9E33371ED08D7637B5FC63B99323153064B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Tim Kasher - Adult Film (2013) [FLAC|Lossless]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:E2A89A70D206EE7E93F07A2A3DDC72B2740A0A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Status Quo - Back2SQ1 - The Frantic Four Reunion (2013) [MP3|320 кб/с]<Classi
 ```bash
 magnet:?xt=urn:btih:26BF367F7CEDD2B2E5C19AF2A45BEC442D38B1E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Ken Hensley & Live Fire - Trouble (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:14E893D6F9260DBF1F25D8DCA37905EE54290F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:34FF2EFAD3DFB1D6E78E07BB5C784C21E9895DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Baroness - Yellow & Green (2012) 2CD [FLAC|Lossless]<Stoner / Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90ED502B071FBF6564979063398E96B7FBEFEDE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Elton John - The Essential (2013) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:34746B9775ADBEB6C3F2AFD3F50300DC8A115653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Billboard Magazine - еженедельный музыкальный журна�
 ```bash
 magnet:?xt=urn:btih:B5E778564F732AFDE921B2FB32443367BF97BEAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DF01ED83D0D87D8A3C48B9F45400AC05D1F43D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

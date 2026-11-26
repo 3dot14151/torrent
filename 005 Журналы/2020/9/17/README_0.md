@@ -19,8 +19,7 @@ Elle — французский еженедельный женский журн
 ```bash
 magnet:?xt=urn:btih:C0DD7EEE579CABD446A20758D563E28134FB5C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

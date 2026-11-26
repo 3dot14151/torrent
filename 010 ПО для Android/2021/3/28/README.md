@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ADC3D0758BE272324321E7D3779BB52221DFE70C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AutoResponder for WA / Автоответчик для WhatsApp v1.9.9 [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:D72A2B2CCA871D37152B1AA1A5874FBF8395EBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

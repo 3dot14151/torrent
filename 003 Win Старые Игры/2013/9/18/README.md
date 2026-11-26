@@ -19,8 +19,7 @@ Immortal Cities: Children of the Nile / Дети Нила (2004) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:A05331A04FC690D0B865E179F35204E9611331CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

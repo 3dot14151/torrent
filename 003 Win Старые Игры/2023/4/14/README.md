@@ -19,8 +19,7 @@ Star Wars: TIE Fighter – игра во вселенной Звездные В�
 ```bash
 magnet:?xt=urn:btih:84A3D66FEE07F2B059E534878EDCD8DBF4AD638F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

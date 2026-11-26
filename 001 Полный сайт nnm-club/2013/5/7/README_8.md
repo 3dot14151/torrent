@@ -28,8 +28,7 @@ VA - The Best Of Hollywood East (2CD) (2009) [MP3|~225 кб/с (V1)]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:7D39E05BF5A066AA735F924DD3C850048D5754B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D37539B112E8656DA3CC5A807B85120B033007A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Ruth Moody - These Wilder Things (2013) [MP3|320 кб/с]<Acoustic/Folk Rock/Fem
 ```bash
 magnet:?xt=urn:btih:F3C52C49D9DF2DFE06FB74694469F0A1994F5AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Comfy File Recovery 3.3 [Multi/Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ VA - Dreamwalk vol.4 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive 
 ```bash
 magnet:?xt=urn:btih:EDEE597993F1CFBF17530F2C1DF61E7A1C0D45EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ DJ Day - Land Of 1000 Chances (2013) [MP3|320 кб/с]<Broken Beat/Nu Jazz/Nu So
 ```bash
 magnet:?xt=urn:btih:2415ACC02495E6816FDAE26E1B509A2687F4F468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Brad Paisley - Mud On The Tires (2003) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:051733A0F2D244BB2A7782BCB60263434792983F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ VA - Музыкальный подарок. Весенний хит (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:89D80A4CF9F20259901D6A8EF849CA3C3124138A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +285,7 @@ The Red Chord - 4 альбома (2002 - 2009) [MP3|320 кб/с]<Technical Death
 ```bash
 magnet:?xt=urn:btih:53546DD70B655DC1E1C572B83314C55531BC6A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +319,7 @@ VA - Ladys Club Lounge (Finest Lounge Selection) (2013) [MP3|320 кб/с]<Downte
 ```bash
 magnet:?xt=urn:btih:D744B22318A3A1A030B910DCE72417E07D848D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +353,7 @@ Donald Brown - Born To Be Blue (2013) [FLAC|Lossless]<Post-Bop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:249B5061C790408CE816186EA0216D67D876A33F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +404,7 @@ Photo Collage Max Pro - создание коллажей, открыток, к�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +429,7 @@ Photo Collage Max – это удобная, из разряда развлек�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0E43F43977537B33F874CA9A03B48A3239529CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ Morephone - гибкий смартфон, привлекающий вниман
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E01555CC831117BE6ABCA954B17FDDEE654E7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:630D43381A7392962C488FF75E4EA9B8878A593F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2892DA0974A1F76B1C191FFB7ECB718FCDA0D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ Matisse & Sadko - Record Club 562 (30.04.2013) [MP3|320 кб/с]<House, Progress
 ```bash
 magnet:?xt=urn:btih:ADAB6BCCE63ED4CF28D602C220F8FBEAD163DFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ Lemonchill - Conversations With God (2010) [FLAC|Lossless]<Progressive Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ BBC: Замерзшая планета (Застывшая планета). Се
 ```bash
 magnet:?xt=urn:btih:FDE277757E1D0D2B2D7646EAE7E291E149D8D23B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ SlimBrowser - это быстрый и надежный веб-браузер с
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +740,7 @@ VA - Country - The Hits (2009) [MP3|224 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:E42809A7792F191F121377695F37D5D5445E603D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ Photo Collage Max – это удобная программа, которая �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

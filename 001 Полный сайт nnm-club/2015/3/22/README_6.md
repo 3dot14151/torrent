@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8F20E548407FCD4350AAE08E4B4D1ED795D5ACE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:982E772F89659C4F1C55FE4F0AD98B500D647AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ CorelDRAW Technical Suite X7 17.4.0.887 [Multi]
 ```bash
 magnet:?xt=urn:btih:72CDEC3D65AEA4A2008489977A38DB195FB8A0A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6099A6932AF0167383032E355127079C5F7457B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Far Cry 4: Valley of the Yetis DLC (2015) [PS3] [EUR] 4.53+ [Repack/1.06] [Ru]
 ```bash
 magnet:?xt=urn:btih:83EE67CBEE39184FE90D8196F2F251067FEE6266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:343CA852333FF3BF0363F7C2662A0892C3CB143E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9C4CABE117C2194C7B466D70093A22549EA2FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ PROMT Professional 10 – бизнес-решение с максимальны�
 ```bash
 magnet:?xt=urn:btih:FAF0446A2B435AAB08D91BB2325C1DEF7E983E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Microsoft Windows 10 Core Technical Preview 10.0.10041 (x86, x64) (esd) [Ru]
 ```bash
 magnet:?xt=urn:btih:23CE58D4EB667D1D741AB68E1021779DD4524BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:512079455504EA0BF202443A88022D2BEC91D9FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ EZdrummer 2 поднимает процесс создания партий уд
 ```bash
 magnet:?xt=urn:btih:780F5799FD30EB8633633B5BC8D6DD5F9D8D8A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A2406B29C1128737CC5495E4BD7981EE401FC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Worlds of Magic - это 4Х пошаговая стратегическая и�
 ```bash
 magnet:?xt=urn:btih:D54C9A87F035FD64D40853213DC41F915368692D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Microsoft® Windows® 8.1 Enterprise with Update3 x86-x64 Ru by OVGorskiy® 03.2
 ```bash
 magnet:?xt=urn:btih:C17633A3B29AEEF016734C32631F519DD11EE72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ VA - Heavy Instrumentals 01-45 (2012-2015) [MP3|177-320 кб/с]<Instrumental Me
 ```bash
 magnet:?xt=urn:btih:81DEF86D99EEB050EA493461BFCEAA4439BB8DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ AutoCAD 2016 – это больше, чем проектирование. Пр�
 ```bash
 magnet:?xt=urn:btih:0B2C8FD3F621116CCCCACB9A03499363FC38558F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

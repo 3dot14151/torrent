@@ -28,8 +28,7 @@ Nasaferus - Эпiдэмiя Барацьбы (2008) [MP3|320 кб/с]<Death metal
 ```bash
 magnet:?xt=urn:btih:4A8540F3539A914AC639C969B27A364D5EF93912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Grosad - Confession For The Devil (2012) [MP3|320 кб/с]<Death metal>
 ```bash
 magnet:?xt=urn:btih:7E70CCB53464F5F2E1A675A3890A6C8E83E04A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Sepultura - The Mediator Between The Head And Hands Must Be The Heart (2013) [MP
 ```bash
 magnet:?xt=urn:btih:07DDA981441781EAE985B6C425F6D95CCE186A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Peter Gabriel - And I'll Scratch Yours (2013) [FLAC|Lossless]<Vocal, Post Rock, 
 ```bash
 magnet:?xt=urn:btih:8E1F064F77E39E14D3F1BC006904891AE4B339E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FECA4218470D1F61E659F5FD2443E55A77328870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

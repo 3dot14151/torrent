@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:37E3C0F3F01345C0118958AD662AEB3337B3F971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ WhatsApp Desktop - программа предназначена для прям
 ```bash
 magnet:?xt=urn:btih:DC35782FBF4E341C2BDEC78DE6901D6B8DFA8C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

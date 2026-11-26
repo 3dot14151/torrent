@@ -27,8 +27,7 @@ VA - Песни, Спетые Сердцем! (2012) [MP3|256 кб/с]<Шанс�
 ```bash
 magnet:?xt=urn:btih:DA248FD68C8224C2E9FF79B013ECEC81F89A902E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

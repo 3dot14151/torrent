@@ -18,8 +18,7 @@ Kelly Rowland - Kisses Down Low (2013) HDTVRip [1080p]
 ```bash
 magnet:?xt=urn:btih:056E77AB30B82914170FE49DEC641F19A0EEFEB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8723BF05BACC4B68D16CFD78AEE39B2A6D34B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:9111126AEC72D835A5BCF3F86BE7C74C68FFB5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ UFS Explorer Professional Recovery разработан практикующим
 ```bash
 magnet:?xt=urn:btih:2EE678C733CF0550A2AA9AD10F391F2EEC27175C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EE6A00266CA1B5251F9E8A6E15CA2738B33C227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CAAECC0C6AA17C89A862795CFB539A719EB0F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D431BC061886616E36CB031E5B9ADD9FB75447DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Kaspersky TDSSKiller - это утилита для обнаружения и у
 ```bash
 magnet:?xt=urn:btih:99F55D1B734E463D105A5C68F53E04DB4319778B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Bryan Ferry - Bete Noire (1987)Japan [ALAC|Tracks]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:5EC58DF35CE6D9B76EF9D71F8C5CA2EB20504429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Aerosmith - Aerosmith (1973) BSCD2 /2013, Sony Music/ [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:90107CDABEBD3FDC12BC2BF7B1E8A952B49487C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B9988A5EA07001150FCD45D4BA7999941303279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EE297AE8F546406E59454E54BD97EBFAD5A2745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C6D6B4FAEEA8E346F521C2CC5148B4764203E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ M:O:T:U (Masters of the Universe) - Space Riders (2013) [FLAC|Lossless]<Synthpop
 ```bash
 magnet:?xt=urn:btih:9E5E2AA916F1A0AE9578F39B996736E11B949130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Database .NET - это инновационная, мощная и интуит�
 ```bash
 magnet:?xt=urn:btih:6E1F4A877CBD00AE7327CE4E2DC8C559E7E2CE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:978777CAE2C0D6B249E2C8FB2F76D71D20E55D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60FCFF2C5C9E957053C5581636B0CD0ACE3AA4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Disklens  - приложение, облегчающее поиск докуме
 ```bash
 magnet:?xt=urn:btih:63D794F307C1089F3093CB11801C9B274D50C235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ XXII Зимние Олимпийские Игры 2014. Горные лыжи. �
 ```bash
 magnet:?xt=urn:btih:4AD2C47F381555EFA3D51D2B74580D9D074D262F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53FEABA0E6DA3735CD48199EA3B5DD6CBC93C020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ Diary of Dreams - The Anatomy of Silence (2012) [FLAC|Lossless]<Darkwave>
 ```bash
 magnet:?xt=urn:btih:2CE00C7FDA1A5E76D3A0BEB02D687975A75006E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8ECBBF89AB8E350FFB2B8B7FCEC3CFCFE17E731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ LS · Касса 2.00 от 08.02.2014 [Ru]
 ```bash
 magnet:?xt=urn:btih:AB91140D022CC037281CEF720A32B10392E24229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ Raise Data Recovery for FAT / NTFS - две программы предназн�
 ```bash
 magnet:?xt=urn:btih:A7CCE775BC04B43A61ADC50BEF208F598447E076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05D8DD1B704E01F6B62B2082E5D27E39181AC9D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ VA - Sax & Sex 1 (1997) [FLAC|Lossless]<Jazz, Instrumental>
 ```bash
 magnet:?xt=urn:btih:31B4CBFF25D3FEC7FE86DB1E8467E6368F2E9760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

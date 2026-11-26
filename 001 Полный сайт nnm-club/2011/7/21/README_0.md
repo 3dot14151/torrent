@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:AE6BE7B64F9AA1EE03B66DCE2706D1560466A1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SugarSync - облачный сервис для хранения, резерв�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Dahab. In Dub Soundsystem vol.2 (2003) [FLAC|Lossless]<Dub, Reggae, Funk, J
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAFF13D4572E01C3ACD3F84A5B956561EBE2A13B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Давай Запомним Это Лето (2011) [MP3|256-320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:717D4B2C3776069D3C945CB4576F0F26498EE086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Cat.#: INM1CD049
 ```bash
 magnet:?xt=urn:btih:C839F40B289F7BD51EFC34967DBC071A0D379AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ Diane Schuur - The Gathering (2011) [APE|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ Mansour Nariman - Barbat Navazi (2009) [MP3|128 kbps]<persian traditional music>
 ```bash
 magnet:?xt=urn:btih:4230976B04CE2655FFD0AE238F1635A92D51B2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ Shogun feat Emma Lock - Save Me (Incl Stoneface & Terminal Mixes) (2010) [MP3|32
 ```bash
 magnet:?xt=urn:btih:93A98F38E4DB9B4219B0C6B65A1AC64CDE64EA98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ Big City Adventure: San Francisco (L) [En] 2007
 ```bash
 magnet:?xt=urn:btih:E270F9ECED580EA14C48D191CF26C242F0B9D8E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ Split Heaven - Street Law (2011) [WavPack|Lossless]<Heavy Metal / NWOTHM>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC64021B98894E3E61458D380030B1DE12E59133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B483B0492AC2BA3E819C3E6A630A208ADBB7E350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ VA - Ээхх, разгуляй! Часть 1 Лето (2011) [MP3|128 kbps]<Ш�
 ```bash
 magnet:?xt=urn:btih:D8AC397C9A3A49522A2351445956904A1D512B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ VA - Music from the Divine Matrix (2011)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ VA - A Long Hot Summer Mixed & Selected by Kiko Navarro (2011) [MP3|320 kbps]<Ho
 ```bash
 magnet:?xt=urn:btih:B5201940CED6378EBB08DDBC717D0509A1BD7FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ Nils Monkemeyer - Folia (2011) [MP3| ~219 kbps]<Classical>
 ```bash
 magnet:?xt=urn:btih:2D56AD7DD17D27164CABCEA506E668F76B0AF815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ NeraNature - Foresting Wounds (2011) [FLAC|Lossless]<Gothic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ VA - Пляжная Вечеринка. Beach Party (2011) [MP3|256 kbps]<Dance,
 ```bash
 magnet:?xt=urn:btih:AEB1541A50D0E026DBD8A610E83D2FF94C7DE53B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCA99D65CD61EF4F0EAF75BBEC7F4D2AB908426D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ Fit For An Autopsy - The Process Of Human Extermination (2011) [WavPack|Lossless
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ Mojca Erdmann - Mostly Mozart (2011) [MP3|~227 kbps]<Classical>
 ```bash
 magnet:?xt=urn:btih:6DFF5D0A5F9F1D9C424ACE680BAB1C131A32D9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +700,7 @@ Sister - Hated (2011) [FLAC|Lossless]<Glam Metal/Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D06045ECBCF663438BD15AE5F773B1FAAF56C3B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +751,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +784,7 @@ VA - Русский Шторм 26 (2011) [MP3|320 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:E53AAD672D908554F381FC8395E3084065E47EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

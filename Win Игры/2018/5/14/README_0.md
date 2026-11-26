@@ -19,8 +19,7 @@ Dark Fall 3: Lost Souls (2009) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:82733001A242169802837F48DBB4F1A37409D8E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ League of Light 6: The Game / Лига Света 6: Что наша жизнь?
 ```bash
 magnet:?xt=urn:btih:6AC2CD042172DB5CA11BC81E6DBF16521F7C17EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SYNTHETIK - это беспощадный шутер-рогалик в мире,
 ```bash
 magnet:?xt=urn:btih:09640F2E28F658CFCDAA0E69D6ADCB05BA191C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

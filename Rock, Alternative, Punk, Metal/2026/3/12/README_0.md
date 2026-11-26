@@ -22,8 +22,7 @@ The Black Crowes - A Pound of Feathers (2026) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:F3DEC78DDEC9502592D406C7E2B2C563419DFDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Monstrosity - Screams from Beneath the Surface (2026) [FLAC 24/96|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:A036F63C266EA3168574F56069E476A4399C0081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dirty Machine - Raytown Missouri (2026) [FLAC 16/44.1, 24/48|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:88EB467838DF5E81EC549A57E516F7A8BDC4CFE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Disc 1 - 2026 Remaster:
 ```bash
 magnet:?xt=urn:btih:C2E12082D90096B669A70A8E449148A30113912E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - This Is... 1973 (2008) [FLAC|Lossless|tracks + .cue] <Classic Rock, Soft Ro
 ```bash
 magnet:?xt=urn:btih:0F0C88E7D3F8D16712D462B13D9EF0ADE2599356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Machinae Supremacy - Machinae Supremacy (2026) [FLAC 24/96|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:13C4773B1E9C601E189671C1368F89958C6F092A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E915E3FA049F337916EF73C8B17B4179D9DC608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Dmitry Spirin (ex-Тараканы) - Чужие (2026) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:630E975B0CF6C817CD241CB6D9968DAEEB4F0B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Boy Hits Car - Waves of Sound Across Oceans of Time (2026) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:698069D168ECB4735405F26386152E4D08A87FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Lamb of God - Into Oblivion (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove M
 ```bash
 magnet:?xt=urn:btih:0762ED94E0E74848116567B79DC84E07F9792060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

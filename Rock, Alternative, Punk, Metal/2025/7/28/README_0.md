@@ -22,8 +22,7 @@ CD1 - Woodland Rites:
 ```bash
 magnet:?xt=urn:btih:52D8FEBEF013511C3EB8F30C2073933FFF3F28D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Robin Trower - Come And Find Me (2025) [FLAC|Lossless|tracks + .cue] <Rock, Blue
 ```bash
 magnet:?xt=urn:btih:81CFA03D2EFFFB47B5EDB35893BAD567C458027C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Baroness - Purple (2015) [FLAC|Lossless|image + .cue] <Stoner Rock, Progressive 
 ```bash
 magnet:?xt=urn:btih:3942F192A2F3A5803EF37F2B0CBEF70F4AFEF044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Queen - Ballads (2025) Remastered, 2011, UMG Recordings, Inc. [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:B8B509DF160523E5369C9C76F93220390F7AB2B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD1 - Red, Hot And Heavy:
 ```bash
 magnet:?xt=urn:btih:FF2DDBC63E1C4607F2E194C03F3D679B8518E367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

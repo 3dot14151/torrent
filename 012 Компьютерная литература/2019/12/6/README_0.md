@@ -19,8 +19,7 @@ MacOS Fundamentals - идеальный компаньон для вашего �
 ```bash
 magnet:?xt=urn:btih:75A78BFFE3805B96601EBDC7EBC08AFAC84F77CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

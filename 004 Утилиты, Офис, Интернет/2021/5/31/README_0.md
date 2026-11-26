@@ -19,8 +19,7 @@ IP-TV Player - это высококачественный проигрыват�
 ```bash
 magnet:?xt=urn:btih:BF91DF71FB9B36A496CE0E6D3C142647378F7C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

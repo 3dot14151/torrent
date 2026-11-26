@@ -21,8 +21,7 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 ```bash
 magnet:?xt=urn:btih:3CC70358C958D467096D9620493CC2E08D146BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 ```bash
 magnet:?xt=urn:btih:BC79F4C14E5FF5484E5B3B526AA3162D8EAF142E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

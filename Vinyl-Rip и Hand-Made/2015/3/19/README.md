@@ -22,8 +22,7 @@ Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio
 ```bash
 magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

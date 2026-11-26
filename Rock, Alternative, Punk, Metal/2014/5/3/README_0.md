@@ -28,8 +28,7 @@ Morning Parade - Pure Adulterated Joy (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:5407EFE0381F88012CEC2F7DDCE967195E401310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Brian May & Kerry Ellis - The Candlelight Concerts: Live In Montreux 2013 (2014)
 ```bash
 magnet:?xt=urn:btih:97797B7DEDA4A765AEF47985B9B42D753077BF04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A73D4A9739B43FA0440BB476B73473C9FE04FCDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

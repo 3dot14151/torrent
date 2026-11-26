@@ -18,8 +18,7 @@ Dynamic Parallax Slideshow - проект с эффектом параллакс
 ```bash
 magnet:?xt=urn:btih:9D7E995EB49F4E90914819F5FA764FBF4E542960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ ACDSee Ultimate 10 сочетает в себе поддержку слоев, �
 ```bash
 magnet:?xt=urn:btih:E64E4032E6D8C75FDA0D650C8428ACFBD9BEC055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ NetSpot - простой инструмент для построения, ан�
 ```bash
 magnet:?xt=urn:btih:90AD827ADD72D71AE2772EA35691F581B9D2A889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F68EE211E1C57AB3135FC62CF2AE8A184CC4C673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Max Payne (2001) [En/Ru] [macOS WineSkin]
 ```bash
 magnet:?xt=urn:btih:AA378E8FC2686EF764F5EBA6C45394003EAB625D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27A349D36FF3C2B1A606B6915E6AAF5D11F21892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA7116C019D1768C4CB01658892598118321F4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ jv16 PowerTools — набор утилит для оптимизации и у�
 ```bash
 magnet:?xt=urn:btih:4D29A59DBCC86D10F881D28DFF6F35C87C56F4EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Architect Logo Reveal - Проект подходит для создания л
 ```bash
 magnet:?xt=urn:btih:1D3405ABDBE3E1C9AFC914497AF7C0329138A99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F67F0BE7A212A052E31B5D1EF916EF94373A2308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:383FC7B616F2D7B1D127C78675547599134C4DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Hosts File Editor - функциональная программа для ре�
 ```bash
 magnet:?xt=urn:btih:A78BBE1C944467D93C8D4DBFD45623E5094A2435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music fr
 ```bash
 magnet:?xt=urn:btih:8F46EEA61C75649EE465435FE7F7C62335B07777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Ink Photos Slideshow - качественное слайд-шоу с приме�
 ```bash
 magnet:?xt=urn:btih:4F828BF4D4030665218A769C7CE13B849D67AAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Nobunaga’s Ambition: Creation - это пятнадцатая часть по�
 ```bash
 magnet:?xt=urn:btih:793168162568C0F902C274BD8AF6FF6F92D29988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.12.05 [En]
 ```bash
 magnet:?xt=urn:btih:F698E32F3AF51C07C5AFF6DAE5BC15EB5FA101F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Christmas Tale - представляет собой фото-видео-гал�
 ```bash
 magnet:?xt=urn:btih:C045CEE2840FE7875FD6925186328A70094F9510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ DashMaker превращает ваш Android телефон или планше
 ```bash
 magnet:?xt=urn:btih:A08200B78C93F41BD7BA730CCE2EF526B2B64EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ MPlayerX – бесплатный и довольно быстрый видео-
 ```bash
 magnet:?xt=urn:btih:93BA9B33CE1B2912A57DE9AF409C8537691D9C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Apk Extractor Premium 4.1.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:1A7A263D9FF332B2A700C67CC8B7F7AB0772602D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1583E3609B80A3C0E49FE5F7250B878142217B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ Walt Disney Studios Motion PicturesЖанр: Фантастика, Боевик�
 ```bash
 magnet:?xt=urn:btih:A73884456271331F487B1EF140278C03566C914A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ Elegant 3D Shatter Logo - Творческая анимация для мног�
 ```bash
 magnet:?xt=urn:btih:54FF683E2F1B9B13D526BBF03AFC1E44B6D3610B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5637345F3F405138B56334B820B83D2EE036179C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC83C06DDA1BFCB649329DA652A198935248227A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ Hitman: Sniper – великолепный тир с известным по с
 ```bash
 magnet:?xt=urn:btih:B06710EBD410DD3E025434135D6679C609880775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

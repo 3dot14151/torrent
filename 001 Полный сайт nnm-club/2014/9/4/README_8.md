@@ -24,8 +24,7 @@ Saudade - A Long Lifetime Of Dying Slowly (2014) [MP3|320 кб/с]<Screamo, Punk
 ```bash
 magnet:?xt=urn:btih:97588DC09239EDE6E8B4FE3513E650E4BAF98108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Adrenalized - 2 альбома (2010-2013) [MP3|320 кб/с]<Fast Melodic Hardco
 ```bash
 magnet:?xt=urn:btih:07583BE4BA3A7D27A0C758A2815282E3F2813100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Dead Market - For What It's Worth (2013) [MP3|320 кб/с]<Fast Melodic Hardcore
 ```bash
 magnet:?xt=urn:btih:387D8201B63CE8B91B1B2D94BEA8AA395128BAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Prymary - Prymary (2002) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E7759750A8C9494E0ADC1A6D16C7555F20C9CD5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Crossfire Collision - Panic Face (2013) [MP3|320 кб/с]<Melodic Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:80581C0B619F425CB7A8FBC5E0B3A2E40D83FD80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ Stevan Pasero - A New World Christmas (1995) [MP3|320 кб/с]<New age, Christma
 ```bash
 magnet:?xt=urn:btih:EC7EB323FD960FD38E57966D8017E620A027E949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:464FB24D9F46CC6AC673CE7C17D7F215953882A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ Chrystalia Ensemble - Angels Of Healing (2000) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:A22CEE58AF59839066B24A47D4FBEC36AA861D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B834D08F4B9E4AE299E39C387B1A88FB6B85500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ Chris Mulkey n' Deluxe - Better Together (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:3BF2B0B89A0B3CF17CF60EE90273075F9DC9AB9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E889F3ACA598F55ECE101AA35081DFC9E8974EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ In Aevum Agere - The Shadow Tower (2012) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:ED1C2F6CCA8A514F9FCFB13ACDA76862A6895A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ VA - The Best 55 Chill Out (2014) [MP3|320 kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:57E06F358620D9F2D7DF55C67B2EB1A8E30643D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ Colossus - The Road (2014) EP [MP3|320 кб/с]<Drum'n'Bass, Liquid>
 ```bash
 magnet:?xt=urn:btih:D35F5DAF032F1BE11D6D51034AD750A6BFE4EA60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8AC3D3EA4AC291F6C29A9C079B905C2FED1FBF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:840794A9802C0D1207A3EE9F87463CE8EEA8650F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +541,7 @@ Prymary - The Tragedy Of Innocence (2006) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:070CD0D56949140A905D42389F660D1B2D74C967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +568,7 @@ Resistance - More Power (2014) EP [MP3|320 кб/с]<ElectroHouse, Dubstep>
 ```bash
 magnet:?xt=urn:btih:EC82376B80F5526ADE43B069C58AFEE9C15FC16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DF73C43F2DC906A1C327C6B59C29C442A003865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +627,7 @@ Michael Damon - HazMat (Original Soundtrack) (2014) [MP3|320 кб/с]<Soundtrack
 ```bash
 magnet:?xt=urn:btih:5928A190A9C60DCA4941D80D6BB95AF7A01CFD3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ Witch Mountain - Mobile Of Angels (2014) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:E9A54AB162F549E6920F86491DA20C202CD69C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E44E2144AD20498E2E5D8318227A9CAE443F91F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:954BE492F5C01E9A960570C71D6AD31E4AADE818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +741,7 @@ DJ Nike Twist - TranceWave 097 @ GTI Radio (04.09.2014) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:A9B6072EECC3CF7DF24D34012765E21CFB8B1DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

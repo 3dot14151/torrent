@@ -19,8 +19,7 @@ Witches Legacy 3: Hunter and the Hunted (2014) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:644324339B97C44A059724436BC2001C38431EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legacy: Witch Island / Наследие. Остров ведьмы (2013) [Ru] U
 ```bash
 magnet:?xt=urn:btih:F7397EF6CF45D9EC36505EAA93AFF0A62B3B5758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Proteus (2013) [En] (1.2) License WaLMaRT
 ```bash
 magnet:?xt=urn:btih:BFAADD145E51C7CB9222648F3806C0EE43A2C9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

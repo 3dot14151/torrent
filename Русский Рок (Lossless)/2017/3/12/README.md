@@ -22,8 +22,7 @@ VA - Отражения (Tribute to Каталог) (2016) [FLAC|lossless|tracks
 ```bash
 magnet:?xt=urn:btih:B20BAB5670159215F094D5E6DEA4E62C5E5C3C7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:897868720CCB79A399F91C9B98AEF1A938662190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Navicat Premium совмещает в себе функции других пр�
 ```bash
 magnet:?xt=urn:btih:A968023F6B705E0A403ADD3A8B39F3F4C4CC6EFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Rameses B - Reborn (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass, Liquid Funk, Chill
 ```bash
 magnet:?xt=urn:btih:65B3374B1D483190A5731D567A070656EC067A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ SBMAV Disk Cleaner - мощный набор инструментов для о�
 ```bash
 magnet:?xt=urn:btih:2AC65D2567F3CC39664525AB9507F551D79BBBD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Memeo Backup Premium — это простое решение в области 
 ```bash
 magnet:?xt=urn:btih:4F8E76C01789DAF512B7842B181698AE6004E2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:599CE25673789991F011DBDFD491A62494F60A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8E73CA234ED53A7F1BB0DC3A40E55FDC471E66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32384468AC76D63988410AA827C2CAFDF3F5F6E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ My Visual DataBase 1.40 [Ru/En] [Авторская раздача]
 ```bash
 magnet:?xt=urn:btih:BC9325A8BD9EA4BE1EEDC24B5211FD9A44423243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Weekend Woodworking Projects - это журнал, выпускаемый ре�
 ```bash
 magnet:?xt=urn:btih:C272B1BE5FFF9D4A1A96D5BD9CEBB3F630D72B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Reflex — популярная российская поп-группа, обл
 ```bash
 magnet:?xt=urn:btih:215B5FDEA3ACD7092E34AF11F29965FB9F311694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A37BA3636FA22BE1A1461D60CC002DE87F53A2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6E2DD557D3D5B6EF757873BC38C2C0982C46DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ SiSoftware Sandra - системный анализатор для 32-х и 64-�
 ```bash
 magnet:?xt=urn:btih:9BFD666708D3F96A641E53117A7740EA2B862302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19242815A10786B8312AF8739C1175FFC24D7923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ VA - The All Time Greatest Songs (2001) 30 CD [MP3|320 кб/с]<R&B, Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:CB5ED59F515FBA419314E6C0BD2DEE0824CD7F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94114CBFE8F925CF4803FC1C41B8A1347826E6AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ VideoHive – Split Photo Slide [AEP]
 ```bash
 magnet:?xt=urn:btih:B4A555874C0E104E01263E6FBD2AD7D21FB41CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ VideoHive – Logistics Company Delivery Promo - 6372794 [AEP]
 ```bash
 magnet:?xt=urn:btih:F41B222349334A90EB5BA2DD0D1626DEBA9BB45A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:249493BA19B5E9A879A3E211D2F2923997185D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B3B09D6BAF264484AC159056B25B5149709024D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Avidemux позволяющий сделать монтаж, обрезку / в
 ```bash
 magnet:?xt=urn:btih:9243E979B67A96CEE83CF14D577E9355B3CCAA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ Tropico 5 (2014) [Ru/En] (1.1.0.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:4146AF1B258CC98DA6085C9D0ECDE616696E5274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

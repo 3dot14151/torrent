@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:B3D2ED7E392126831C16D57FF494B94D8616FEC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Side 1A1.Жанр: Rock, Classical CrossoverПродолжительность: 
 ```bash
 magnet:?xt=urn:btih:3C0E6F50AD5D2C963D3827305630B4FF73C53D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

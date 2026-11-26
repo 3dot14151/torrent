@@ -19,8 +19,7 @@ ClickTeam Install Creator Pro - очень простой и в то же вре
 ```bash
 magnet:?xt=urn:btih:6218366EE93C9DCB23ACCECEB2910AAFBCE5558B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ColorMania является подборщиком цвета для Windows. Э
 ```bash
 magnet:?xt=urn:btih:2C5C66F673E4D8E44C5BC13C5D52CE530D8F482B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

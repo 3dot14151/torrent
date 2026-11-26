@@ -28,8 +28,7 @@ VA - Made In Tribute (1997) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B6924F2CF301813A7FC4CFFBF090E843EE3557B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Daylight Dies - A Frail Becoming (2012) [MP3|320 кб/с]<Melodic Death/Doom Met
 ```bash
 magnet:?xt=urn:btih:B720B13FBF58504F0E03375A5EE9E7BC2003AA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

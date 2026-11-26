@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F624CC39CB1C2526CB940E05796CBA8106B5362A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4C222839A7655737BE9B0869910A8DFBAA43451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FD75366704622CAD42C272A12464E06DCE66505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEF2FF070BBE3A035F4FFAD8266734773E6D6151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D1E120CFF6449AE6851D65333864062E3692FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D7C6F20F5248A6AD63AA37AE9650F6EDDB2B838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86FB015CB22D0ED37865FF883077B2A3BB8D9013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Skullgirls – красочный рисованный 2D-файтинг, в к�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Adobe Audition CC 6.0 Build 732 Portable by Punsh [Ru]
 ```bash
 magnet:?xt=urn:btih:9E8B4332B91B332BCB8AB6D0089D188761F85C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:442FBBFBAB6154DC4E8D8164BD69AECE93016C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72C1E3302F3B800FFE5092D3EED251F4A19BA7B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Chromium Checker 0.11.0.0 Beta + Portable [Multi/Ru] [Авторская раз�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Mortal Kombat (2013) [Ru] (1.0) Repack R.G. REVOLUTiON [Komplete Edition]
 ```bash
 magnet:?xt=urn:btih:BC181F71519705B71E3497C00CC76C3AF10066A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Battlefield 3 Premium [PS3] [PAL] [Ru/En] [Repack / 1.09 / 14 DLC] (2011) | R.G.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ ABBYY FineReader – интеллектуальная система оптич�
 ```bash
 magnet:?xt=urn:btih:CD8FC61C4D701448B7861D4F663779C53F78F0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ Adobe Photoshop CC - программа для обработки растров
 ```bash
 magnet:?xt=urn:btih:E67EFFD88517E58DC13AADDC5BEB02FC3E2BC91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B61311E1B60DC0C1CCF745A53DD9E2D6181EB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru/Multi] (1.01) Repack R.G. Reven
 ```bash
 magnet:?xt=urn:btih:04AA7A56B3180BC6C2A95AC696BFBB2F8020B13B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.isoЯзык интерфейса
 ```bash
 magnet:?xt=urn:btih:424DDB0133A6609BB8F0CBA92148AE5B9721081F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ Assassin's Creed 3/III (2012) [Ru/Multi] (1.06 / 11 DLC) Rip R.G. Механик
 ```bash
 magnet:?xt=urn:btih:FB2260CAFACB3CA6C1FE715C6567200433E6F297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Windows XP Pro x64 Edition SP2 VL + Alkid live CD 19.08.13 [En]
 ```bash
 magnet:?xt=urn:btih:68A5263FD1FAC757A8B4A8557FB73184BF13F19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ Total Commander(   Читать дальше...   )Разработчик: Micro
 ```bash
 magnet:?xt=urn:btih:E8E5795285E0810B27CA1398395A16EA3674673B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

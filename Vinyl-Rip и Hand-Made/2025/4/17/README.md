@@ -22,8 +22,7 @@ Manowar - Fighting the World (1987) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:F52A4B11ABB53EDF7C9CAE2277412FA2AFFBFA27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 I Feel The Heat Of The Night • Я Чувствую Жар Ночи(   Чи�
 ```bash
 magnet:?xt=urn:btih:9D87B9C631605660766791C2BDC4A3E6F87046EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Powe
 ```bash
 magnet:?xt=urn:btih:13A9D05148E448F7B57F62B866C2D20A315C7588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy Met
 ```bash
 magnet:?xt=urn:btih:94EE362D7BB4F8975E2E84D7050B8705647A7EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Damnation Plan - метал-группа из Эспоо, Финляндия, о
 ```bash
 magnet:?xt=urn:btih:1683E08EECD22897B0BC9C3A35ACCEB85624A8BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ A4-Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПр
 ```bash
 magnet:?xt=urn:btih:4DCF9F0D8C0D076FDFEDBBC808DAA98297268B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ B1 - God Eater(   Читать дальше...   )Жанр: Death Metal, Groove,
 ```bash
 magnet:?xt=urn:btih:A54E354492DA761104DFEF7EF8216CCC5FE4127B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ A4 - Arena(   Читать дальше...   )Жанр: Heavy, Power MetalПро
 ```bash
 magnet:?xt=urn:btih:A5EC8D278E5F039D015C11E9DDE787796F3363A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ A4 Vineam Meam Non Custodivi	2:50(   Читать дальше...   )Жанр: C
 ```bash
 magnet:?xt=urn:btih:0DE0C8427675FD79E66C2AB4E67F0EBB79FA3CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

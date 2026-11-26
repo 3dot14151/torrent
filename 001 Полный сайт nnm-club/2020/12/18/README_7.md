@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BE7A602C60E97AEB19759638BFBEB7AA8ECDB881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Tropico 6 (2019) [Ru/En] (1.11/dlc) Repack xatab [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:38039ECD26EEA5D2B9030A8849142F5E299B79F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCD4CDFF4BF222696E68D192F2A84D68E26A3104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

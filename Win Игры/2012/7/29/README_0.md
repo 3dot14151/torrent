@@ -19,8 +19,7 @@ Pirates of New Horizons: Planet Buster (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:9D239EFB9D03A5A8B0713043E9BB9A2CAA58265D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Youda Jewel Shop / Youda. Ювелирный магазин (P) [Multi11/+] 2012
 ```bash
 magnet:?xt=urn:btih:CB1EAC4C8BF148B8470A00DA85B735E019F1DEDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Pro Cycling Manager Season / Tour de France 2012 (Patch/Crack/1.2.0.0) [En/It] |
 ```bash
 magnet:?xt=urn:btih:53A040049D5A5AE11398449386F2102DEAB9767C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Surface 2: The Noise She Couldn't Make Collector's Edition / Поверхнос�
 ```bash
 magnet:?xt=urn:btih:FB241D4964109199F3CF83E699E4639F6638CE3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Eternal Journey: New Atlantis. Collector's Edition / Путь в бесконе�
 ```bash
 magnet:?xt=urn:btih:D8377EC3E1663B82F69DD2BE33ED3AACEEA148E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Kung Fu Strike: The Warrior's Rise [En/Multi4] (Repack) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:CE3DE35AF9FAA459706E97D645DF0EA66A28E06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

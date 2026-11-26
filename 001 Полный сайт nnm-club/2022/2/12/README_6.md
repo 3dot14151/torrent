@@ -21,8 +21,7 @@ VA - Endless Sunset: Urban Chillout Music (2022) [AAC|~339 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:566BD33C9A0FA6EC5B22EAD30508A2984D9C3C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ BluePlum Home Inventory - наиболее полное приложение д�
 ```bash
 magnet:?xt=urn:btih:2F092B2C49C54356F632A868F427238D4B8C114A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Abdullah Ibrahim - Solotude (2021) Gearbox Records [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:39D371D16F9BEDEB46E7DF8FFE334E39264191F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BFBAFA0CE8AB5E126E984DEB01DAAE6ED8674BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAF5297A66E4352BE9305DEF3C82AB155A654C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:337D96185A5EF95DBEEBED91596028835DBE1323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ VA - Lounge Tribute, Vol. 1 (2010) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:2E167AE0FFC5F7EF91E9A6BDCA2B81895963F057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:A4163E9A83E2CF8E6A3AA5CFFB160810FDF547F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Among These Ashes - Dominion Enthroned (2022) [FLAC|Lossless|WEB-DL|tracks] <Pow
 ```bash
 magnet:?xt=urn:btih:6FE0D9C07B9247DB4DBAF899B25E6EC8C6051661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3505F8BCAC11BD2477A9377C6946B24A23558FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA410FEBCF468F66ADB9C991C3A4A36F197F882D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2547A17175DDB0BAB437525AF2B0011E73C6104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Devonthink Pro Office — программное обеспечение для �
 ```bash
 magnet:?xt=urn:btih:496881CA1C3B72F99576271A4FD6D0EA4E688AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ Money Pro сократит расходы и покажет полную кар�
 ```bash
 magnet:?xt=urn:btih:C7981F5B7E08EE1FF383B2D5C4EBAB0D6DA8E34C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ The Labels and Databases — это приложение для создания
 ```bash
 magnet:?xt=urn:btih:FF3D100F2B14F0EAF69FB8E391DB01E56923EEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ VA - Moon Light: Exotic Psy Trance Mystery (2022) [MP3|320 Kbps] <Psychedelic Tr
 ```bash
 magnet:?xt=urn:btih:E34FC7D9C00B7DCDA03E57B86E729C5C6F5A5F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ One Switch - это крошечное приложение, разработа�
 ```bash
 magnet:?xt=urn:btih:543B42B10069A13E1509A65F9414635A5B9EAFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ Disk PLUS - это комплексная многоцелевая дисков�
 ```bash
 magnet:?xt=urn:btih:9F334BC29C9D650D4021BEFB86D70A73D5AC332A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:3DB80FDEEB56126548B3881A060A570B9A3E646D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ Multitouch 1.26.1 [En]
 ```bash
 magnet:?xt=urn:btih:19CA3487AD38A9551ECB4604B419F63F4AD184B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ VA - Lounge Tribute, Vol. 5 (2010) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:D22794621F4EC510339F90FFD4464E3DE98A1E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ VA - Lounge Tribute, Vol. 2 (2010) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:9E936AC2A63B714481A59E7753C2DB7D018EA303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ VA - Lounge Tribute, Vol. 3 (2010) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:1D6C46A0C4AEE97B6B630D418D41F3542A02C6AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ VA - Lounge Tribute, Vol. 4 (2010) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:705A35A59FA1E4EF1AA0870F5FB24ABDCFAECD71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ VA - Lounge Tribute, Vol. 6 (2012) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:FF863D6967C321FDA020AAC89972D167410CFA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ VA - Distant Places Lounge, Vol. 1: Chillout Your Mind (2022) [AAC|~312 Kbps] <L
 ```bash
 magnet:?xt=urn:btih:7F0C429B3DDD0640B744287850E8E4E932BD2123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

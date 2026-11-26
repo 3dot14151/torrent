@@ -19,8 +19,7 @@ Bridge To Another World 5: Through The Looking Glass / Мост в другой 
 ```bash
 magnet:?xt=urn:btih:E3C6A9B5112A5F12F46306FAD714CDC29360C665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack xatab
 ```bash
 magnet:?xt=urn:btih:4AA227D4D867EEEC07466B72B2036032B8077777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

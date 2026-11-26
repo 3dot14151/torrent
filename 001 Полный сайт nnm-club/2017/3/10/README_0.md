@@ -21,8 +21,7 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 ```bash
 magnet:?xt=urn:btih:DA6E932CBD065E9948099B73C87A7491009C506B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EE8BB531B379C0279B360AE302018989905FD67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Markus Schulz (Recorded Live from Family in Brisbane - February 24th 2017)
 ```bash
 magnet:?xt=urn:btih:77169647BF8A5BB656932848AEA74431E725900C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Geoff Achison - Another Mile, Another Minute (2017) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:64680A78FDEC7E41F9CF1657DCB0DD1CC94D60A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:781CFB70D5C1CFA78822D7B06CA24DF3E92B1557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Danny Del Toro - Bad Beat (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic 
 ```bash
 magnet:?xt=urn:btih:057E64C2C16EAE4734D85D2E189C7F6F1E426802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A539CEE1288812194544B34D98AA305C5351A21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Graham Gouldman - Animalympics (1980) LP [MP3|320 Kbps] <Electronic, Pop-Rock, S
 ```bash
 magnet:?xt=urn:btih:7742FCAAF5B425B3264A3FA169CC691C999354A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Bloodbound - War Of Dragons (2017) 2CD, Limited Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:6B904EA1114641DDCE285BE3AEBEBCE1DA21A2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ VA - Весна пришла. Лучшие хиты. Версия № 11 (2017) 
 ```bash
 magnet:?xt=urn:btih:3727207B5ACC1BDB5335067B7E437ABEE5E19E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4ACDB2967D3EC9DE89FD62186C9FF8BC4595DEAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Marc Quee - Better Late Than Never (2017) [FLAC|Lossless|tracks + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:C3E5B2440B98CF64824D1A9D53D79F64C1C392F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D9E31185BFBC4758DB90CE8C151BA2B557DD254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ L Plus - Hideout (2017) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:3699D2D76C02A40D57C49F0E3D4EB4BAF3264BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Slick - Slick (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:934F6D5DA2AB68009B80DAFDA5681222E546CE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ VA - Hits Collection [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dance, House, T
 ```bash
 magnet:?xt=urn:btih:A8C7EF03D40C539A47FCBA485FAA6631D052A1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C88E61B6082870233A6A4D86E045863EF655CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ VA - Танцевальная вечеринка Хит FM. Сборник № 3
 ```bash
 magnet:?xt=urn:btih:00079912C875704B67FBAC4AD30F2EAE675C4830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:672D11A0860139DE52A382878EC6F8F1218CAFE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ VA - Amazing Vocal Future Bass 1 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
 ```bash
 magnet:?xt=urn:btih:4D183821B2E9D579E9DEC80A2F036B9E0DF79299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:915877534068771616354ECBA0C934A7D7D019CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ VA - Лучший русский шансон. Сборник № 4 (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:C60E2FE640888A6D587365A9F6A2E7B0609F93CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Mirror for Panasonic TV 1.4 [En]
 ```bash
 magnet:?xt=urn:btih:ADD5B8698A3F4B90EC7850354E6594DC4C52427E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ VA - Лучшие блатные хиты года. Часть № 10 (2017) [MP
 ```bash
 magnet:?xt=urn:btih:51FF5EC7212AD70E32DEE15C6B71DD53391DE095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C609FFEBD1C21CC38FA9C240DFE940B6A99BF36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ Current Value - Starfleet (2017) EP[MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B5E86B3FD7917C66E243EC5582098D123DFEDF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

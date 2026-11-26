@@ -28,8 +28,7 @@ Raccomandata Ricevuta Ritorno - Il Pittore Volante (2010) [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:5E5B93E6B7BE850D9E20C44BAC919B987853F3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ April Divine - 2 альбома (2007-2010) [MP3|320 кб/с]<Alt.Rock | Modern 
 ```bash
 magnet:?xt=urn:btih:22D9BD3BC52EC1E3CA9B1051C4DECCB43FBF4694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +97,7 @@ Berkut - 3 альбома (2005-2010) Дискография [MP3|320 кб/с]<F
 ```bash
 magnet:?xt=urn:btih:6BBD1946F60BAEB4D5BFA34C2C0EFB673ABC3FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ufomammut - Fenice (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Psychedelic Sludge, 
 ```bash
 magnet:?xt=urn:btih:FA854D67D824226520910872FF5EC8BD9C23E745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fátima (Fatima) - Fossil (2022) [MP3|320 Kbps] <Stoner, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:7CA8F139D865FA7C0E03F905BF622115F68582A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ufomammut - 8 (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Sludge, Stoner, 
 ```bash
 magnet:?xt=urn:btih:1834D1D056791766C54A82D8C90CC035757B91B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lilitu - The Delores Lesion (2004) [FLAC|Lossless|image + .cue] <Melodic Death M
 ```bash
 magnet:?xt=urn:btih:911B3ABA6531626BC6635E2F6057564313BE4425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Steel Trident - Los siete de Iscariote (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 ```bash
 magnet:?xt=urn:btih:6FB548B361CF2CBF04B3E5FF50B773E8380EE4BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Brian Harold May - 2 Albums (2021-2022) Deluxe Version, Remastered, Expanded and
 ```bash
 magnet:?xt=urn:btih:999A2FE0E8C3C27C39AA9FDA2FCA29605AB23464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

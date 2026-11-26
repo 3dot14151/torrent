@@ -22,8 +22,7 @@ Brainstorm - Plague Of Rats (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:E73F3132E3F4B38522E5263E1D13E2A070BBB2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

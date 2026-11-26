@@ -19,8 +19,7 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:D560DAD87DF86418A5B52119111A37BEF7EF50DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 ```bash
 magnet:?xt=urn:btih:BF9A54BD1A091E586B226BC0DD27F1C58BC9FE76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition
 ```bash
 magnet:?xt=urn:btih:8E03A15415E0391995A75CA45006F7B94802422C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Heretic HD PBR - масштабный мод, созданный разрабо�
 ```bash
 magnet:?xt=urn:btih:C0308B5F541EFE1358A7E2D995549379C9799C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Inquisitor - это сюжетная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:6F6823D379EC4FA3371EFFE781E39D253EBFCE1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Slot Shots Pinball (2024) [En] (1.0) Scene Skidrow [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:F09DB0F8CF662DCE9950A6F2462428489EAB58FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ocean's Heart - ролевая игра, выполненная в духе кл
 ```bash
 magnet:?xt=urn:btih:97DDC8DECE372E8419FE1849EFCF7DC2285FDA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Pixel Noir (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1B387A4817E90F5DA52D68AF5333953A1AE281AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7C742AB8A9A73CB338DEA7A22E4D250CCAB4ABE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Maze of Realities 4: Symphony of Invension (2024) [Multi] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:921E5BFE35C29D1ED2DAAA4277FEF54D03499386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

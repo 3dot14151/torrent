@@ -22,8 +22,7 @@ Nightwish - Endless Forms Most Beautiful (2015) [FLAC|24/192|image + .cue|Vinyl-
 ```bash
 magnet:?xt=urn:btih:8DE29F8B9BA0D9429AA0EF54717194E2D7AE47C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Manowar - Sign of the Hammer (1984)  [FLAC|24/192|tracks|Vinyl-Rip]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BB9A79AEC20990809E3B4ACD9FA7E0A21645188A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 - SecuritronЖанр: Industrial, Death MetalПродолжительност
 ```bash
 magnet:?xt=urn:btih:0477A67F198C6A30DC595C8C3F6DAC80051ACF0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fear Factory - Digimortal (2001) Reissue, 2007, Roadrunner Records [FLAC|24/192|
 ```bash
 magnet:?xt=urn:btih:2C61AD82AB41787CCC189D858E1922E8D80FBBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sunstorm — американский музыкальный проект AOR , 
 ```bash
 magnet:?xt=urn:btih:08EF47E75616750593AA285C5DC4B01C4B91E422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

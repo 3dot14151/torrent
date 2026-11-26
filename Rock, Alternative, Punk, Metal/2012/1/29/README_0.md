@@ -28,8 +28,7 @@ Lord 13 - 2013 (2011) [MP3|320 kbps]<Stoner Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8D55DD495D5CD967CEC5EDA1F28924FFB1B3EB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Deep Purple - Deepest Trilogy Box (1968-69) 3CD Box Set, Remastered /2000, HEC/ 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

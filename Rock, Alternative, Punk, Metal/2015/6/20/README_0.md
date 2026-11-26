@@ -22,8 +22,7 @@ Weird. - Desert Love For Lonely Graves. (2013) [OGG|404-434 кб/с]<Shoegaze, P
 ```bash
 magnet:?xt=urn:btih:99F20E429E9FC5D3F42F37FD792309CBF359D838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chris and Juno - Pastime (2015) EP [MP3|320 кб/с]<Alternative, Indie Pop, ELe
 ```bash
 magnet:?xt=urn:btih:2FC9A94C2CD93BF7D677D72732F91C03BF1178DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chappo - Future Former Self (2015) [OGG|493-552 кб/с]<Alternative, Indie Spac
 ```bash
 magnet:?xt=urn:btih:826246132E57F01C574D2A0BD50B80C96FBBEDBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bill Ward - Accountable Beasts (2015) [MP3|320 кб/с]<Hard Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F326F58F4CB91776F476D55190630BA97A982C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Weird. - A Long Period Of Blindness (2015) [OGG|453-477 кб/с]<Psychedelic Roc
 ```bash
 magnet:?xt=urn:btih:4E877D4A397AA1701DDA79BCCB7A83253F9ED005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tony Carey - The Boystown Tapes Reissued (2006) [FLAC|image+.cue]<Progressive Ro
 ```bash
 magnet:?xt=urn:btih:0E890DC3ADA5BB2E5B0C5FC21109FDDD47B3AAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Bill Wyman - Back To Basics (2015) [MP3|320 кб/с]<Classic Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:FEFEBE3C2CBE924AFEBC4001D81A930812582D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Unheilig - Gipfelkreuz (2015) [MP3|320 кб/с]<Gothic Rock, Metal, NDH>
 ```bash
 magnet:?xt=urn:btih:9F1FB57C75A28B2705C7153FEE3A7F795B93940B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Bill Wyman - Back To Basics (2015) [FLAC|Lossless]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:C1CE4A4CFA520522FD008F61AD9632B45990E1AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Wolf Alice - My Love Is Cool (2015) [FLAC|Lossless|WEB-DL]<Rock, Alternative, In
 ```bash
 magnet:?xt=urn:btih:9846F5CAD302EABBFDDB78779BBE1E91882EE542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Luca Turilli's Rhapsody - Prometheus, Symphonia Ignis Divinus (2015) Limited Edi
 ```bash
 magnet:?xt=urn:btih:6CE863003ED75D8D79EB1306598498DE716AE888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Smokie - Gold (1975-2015) Deluxe Edition (2015) 2CD [MP3|320 кб/с]<Pop rock>
 ```bash
 magnet:?xt=urn:btih:C3272A17666DE7A3E82FAC8188176A423976D0C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Lumen - Всегда 17, всегда война (2015) 2CD Live [FLAC|image+.cu
 ```bash
 magnet:?xt=urn:btih:A22F4DD0164278F9BD408903BA90A7AE5DB45219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ The Beatles - Abbey Road (1969) Remastered, Stereo /Parlophone, Toshiba EMI/ [FL
 ```bash
 magnet:?xt=urn:btih:AA49983CF7068A0DE4D07C10B7EF57D1B128E460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

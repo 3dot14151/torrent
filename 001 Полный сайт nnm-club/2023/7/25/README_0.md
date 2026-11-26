@@ -21,8 +21,7 @@ Dona Eis Requiem - Grant Them Rest (2007) Demo [FLAC|Lossless|image + .cue] <Exp
 ```bash
 magnet:?xt=urn:btih:B42961FD9F0F90673CB06907E8A0DFD67E1E3E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Desolator - Sermon of Apathy (2020) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:AB16459AB1B2E01769F73B012754DA58AEB75139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Dona Eis Requiem - The Litanies of the Quietus (2011) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:F7503F292DDE48CDE98BDE9BF0503F4912D21EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Desolator - Unearthly Monument (2013) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:4C174EEC204A8F512DDA3E0296E6A5706B3C9823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Dream Death - Dissemination (2016) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Doom M
 ```bash
 magnet:?xt=urn:btih:B720E1AC0AA512F8DD135404DD6846BC133D9831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Desolator - Spawn of Misanthropy (2016) EP [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:3AAD9B8F527ED8C1E4D38ED11FFCE239547C2A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Everyone Dies In Utah - Supra / Infra (2021) Deluxe Edition, 2023, Everyone Dies
 ```bash
 magnet:?xt=urn:btih:21D09CF38D07904FF360EB597DBBB9C935B54BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ PullTube 1.8.5.15 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1DE96B5C641127292219ACADFE3FAFE47BDC74AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Edu Falaschi - Vera Cruz (2021) Japan Edition [FLAC|Lossless|image + .cue] <Powe
 ```bash
 magnet:?xt=urn:btih:F56C72F60E463F39367243E29997668AF373ACE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Warfield Within - Beast Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:86C9759A6E5B13F7339E3C9E8668A5E67362CA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Pelican - The Fire In Our Throats Will Beckon The Thaw (2005) Deluxe, Remix & Re
 ```bash
 magnet:?xt=urn:btih:9DAF267EFC6120C4C137121A452226C2FC7A805D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Cisdem Video Converter является решением все в одном д
 ```bash
 magnet:?xt=urn:btih:CC947CE01797A7BBC2E2A68448056DC245E5C859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Voidfallen - The Atlas of Spiritual Apocalypse (2021) [MP3|320 Kbps] <Melodic De
 ```bash
 magnet:?xt=urn:btih:B05DD322BE019879B76875B77154DF91305A5331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Ankhagram - ReANKHarnation (2006) Reissue, 2014, Satanarsa Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:883D84D07069E70A5A8F0E27DCB753CAD232D037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ Edu Falaschi - The Glory Of The Sacred Truth (2018) EP, Japan Edition [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:E1C1F4D11A6A1E04E3E99D536CDC508409451C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D59FB50A6276569E25FBE6AD306ACEB981A4C2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Legba - Oscuro (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-rock, blues>
 ```bash
 magnet:?xt=urn:btih:AA766B65C3AB4B767B159579053D69B159B7FA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Cristallight iBarcoder - профессиональный генератор ш�
 ```bash
 magnet:?xt=urn:btih:B53C0B82B1EAA2BA0269AC75E5D224D4BA55D867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48197F8D4DF259691C0C2FF3CC680CBBD02D1529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D84E46A9CC4902B330FA35CC96E4B5C76441AE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Task Office 8.15 [Multi]
 ```bash
 magnet:?xt=urn:btih:137F0C6A6FFFE776278AFBF1A629D65D4FAA7EEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Inteam - Точёный пик (2023) [MP3|320 Kbps] <Comedy Metal>
 ```bash
 magnet:?xt=urn:btih:EE8D613C3380223664D8E1270605BE4985AF1EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8964373E6ACDBC87C405E6758DEEDB13BDF4D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69580BE9C63EABC0D2D5913622E419F7432940E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ VA - Silent Shore Trance - Summer (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:64AB6B6B527981AE3D3F31DAC3BC39FE685CDFA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4AE4F6FA3A8B833FC94CB6252368878DB550E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

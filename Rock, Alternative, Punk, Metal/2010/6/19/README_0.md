@@ -20,8 +20,7 @@ Stone Sour - 2 Альбома [Special Edition] (2003, 2007) [APE|Lossless]<Alt.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Judas Priest - The Best Of Judas Priest [Japanese K2HD remasterings] [2006] [FLA
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

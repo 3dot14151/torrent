@@ -24,8 +24,7 @@ Dying Out Flame - Shiva Rudrastakam (2014) [MP3|320 кб/с]<Technical Death Met
 ```bash
 magnet:?xt=urn:btih:6E0AA0D2FDEF42F4103666F1C66577B9987CA493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Matt Powell - Easy Love (2014) [MP3|320 кб/с]<Country Rock, Americana>
 ```bash
 magnet:?xt=urn:btih:E2C1F4B1033DF4CDF73F4DA451431FBA171E13BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Secret Band - Self-Titled (2014) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:BB1C7E31A29EAE035BA509DAF460020E26D55D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ VA - Glorious DUbstep Vol.1 (2014) [MP3|320 кб/с]<Dubstep, Drumstep, Chill>
 ```bash
 magnet:?xt=urn:btih:E2D1EA3E42C6C1742C5CC84BEE4B0CFE176180B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ VA - Point Point presente Filet Mignon Volume II (2014) [MP3|320 кб/с]<Techno
 ```bash
 magnet:?xt=urn:btih:49166945FC4E6BC8B439CBC4BD54A64B7BBA2043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Ray Vople - Lion (2014) EP [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:51CAB405950B433920E831DCBBD16E967F7B2511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ The DBC Band - The Edge Again (2006) [MP3|320 кб/с]<Rockin' Blues>
 ```bash
 magnet:?xt=urn:btih:6D65FC6D1890816E74448FAEED9FB0B1C7319AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Eosphorus - Winds Of Apep (2014) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:933AE3BCB0C8CCA76D6B70F5CC6F5407172836A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C5C82D6E52D89C693DE228BC92D0D6443483A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F174445CC20A8D816DEB5CD5A62B91C745AF0A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +341,7 @@ VA - Deep & Dark Dubstep Vol.4 (2014) [MP3|320 кб/с]<Deep Dubstep, Dark Dubst
 ```bash
 magnet:?xt=urn:btih:FA3183178F693A4386DE0ADCB84FC98C2443E012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +375,7 @@ Soulstack - Big Red (2012) [MP3|320 кб/с]<Rockin' Blues>
 ```bash
 magnet:?xt=urn:btih:3EE6B4EDF2A2DCE57842848F1BED079C08487970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE881C990255A860EE375C3DCA32AE418818EF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC6BA2975CB51B528F666A2EB2DC7F41AABC187D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA67FAEB8C6343D9FE9D7E71A2879EFBF302B236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7080B653A8201679F3C82A6A3043D078A04D70F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9910709AA371F65A40472E8ED454A41FDA763C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:B996F20E4ED6E5D0D6DF852AA5918FAC56736445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:844D675956089E9960A79DEC98D7A6AB21D44061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ Tim Ismag - Hunger Games / System Back (2014) EP [MP3|320 кб/с]<Dubstep, Glit
 ```bash
 magnet:?xt=urn:btih:555B84F1E5EECC3255C6FC98938174AD6992E7A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51CF5B551D74BD19A7F93084E6CBB382F48EB1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82C80CE7F5E3FA5E272A45F270C2B9A7DDC0040B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ Lena Horne - 2 альбома (1995 & 1998) [FLAC|Lossless]<Jazz, Vocal>
 ```bash
 magnet:?xt=urn:btih:B750DAE3AA5321C3B1905468B49DB1926ACCC3FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +698,7 @@ Riley Lee & Jeff Peterson - 2 альбома (2000, 2002) [MP3|320 кб/с]<New 
 ```bash
 magnet:?xt=urn:btih:E6F0FA2F2BC3CBEDEEDC3190647C3DAE59933F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ Red Samara Automobile Club - Навсегда (EP) (2014) [MP3|320 кб/с]<Indi
 ```bash
 magnet:?xt=urn:btih:51E433F22C7DEA4EBB21C2F4D9C7DE0DFDEC43EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ Dark Horses - Hail Lucid State (2014) [MP3|256 кб/с]<Indie Rock, Female Vocal
 ```bash
 magnet:?xt=urn:btih:C8BC6878BB0A7449ACA989235DAB5C4C9CAC8B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

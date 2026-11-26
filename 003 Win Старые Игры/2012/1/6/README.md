@@ -19,8 +19,7 @@ Rising Kingdoms / Королевства: Восхождение к власти
 ```bash
 magnet:?xt=urn:btih:4BF14C51356435C32E52AF29427C3775CBEE6E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

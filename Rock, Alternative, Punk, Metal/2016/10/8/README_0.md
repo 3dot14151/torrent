@@ -22,8 +22,7 @@ Norhod - The Blazing Lily (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:7CBABC2DCC83D7EE285411F318327073A37E3D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Markscheider Kunst - Хамелеон (2016) [MP3|320 Kbps] <Ska, Afro-cuban jaz
 ```bash
 magnet:?xt=urn:btih:D09FC2043ED41A852FD9BFF1EF8C7E324964B24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Lumen - Акустика (Концерт в центре им. Вс. Мейер�
 ```bash
 magnet:?xt=urn:btih:7564B93C016070908E28FC4790562BD5EA02A7DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B88ABDBE88D30F218F73AE02A2263D57108222A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Den Saakaldte - Kapittel II: Faen I Helvete (2014) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:E56172CE34308C8B10205E516C938A03F60B3490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Kayser - IV: Веуоnd Тhе Rееf Оf Sаnitу (2016) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:8DAE4AD00893F166BA1A4D209BACA9C78D326548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Roxxcalibur - Gems Of The NWOBHM (2015) [FLAC|Lossless|image + .cue] <NWoBHM>
 ```bash
 magnet:?xt=urn:btih:15B0E0306B83DBAD199972D323C3C2C2D25A58F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ High Spirits - Another Night (2011) [FLAC|Lossless|image + .cue] <NWoBHM>
 ```bash
 magnet:?xt=urn:btih:79278368024CFE7E7520907C6CFAA5C63940A3E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ Deathcode Society - Eschatonizer (2015) [FLAC|Lossless|image + .cue] <Symphonic 
 ```bash
 magnet:?xt=urn:btih:67B3B10A778EB3D16228611C5C84457797D653DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Sedmina - Melita & Veno Dolenc (1980) Reissue,  2014,  Mellotron Records [FLAC|L
 ```bash
 magnet:?xt=urn:btih:82204A80189259DA4480E4F1A28CF7109DF48AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ Manegarm - Manegarm (2015) [FLAC|Lossless|image + .cue] <Viking Metal, Black Met
 ```bash
 magnet:?xt=urn:btih:BD72C6107836FB35D44EF22079B558C6AE0D5F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Panopticon - Roads To The North (2014) [FLAC|Lossless|image + .cue] <Atmospheric
 ```bash
 magnet:?xt=urn:btih:442E3B2E8AFFF6F3B714A5D0AB2CA36862F780D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ Ninja - Invincible (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EB37900D8CE9A56D7342BCB756CC2B1AE2B61A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ Tribute - Breaking Barriers (1986) Reissue, 2013, Sireena Record [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:3659A1B1159DEF836114E613E9207301D9F0235A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

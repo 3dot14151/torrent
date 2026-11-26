@@ -19,8 +19,7 @@ Emberwing: Lost Legacy (2014) [En] Unofficial [Collector's Edition / Колле�
 ```bash
 magnet:?xt=urn:btih:4EEBB4E2CD79432F7586955D06B6C9AAB119CF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Space Legends: At the Edge of the Universe / Легенды космоса: На
 ```bash
 magnet:?xt=urn:btih:24124A2DF8591782F2D5BB6FD7CAFD0C5F549AD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shadow Warrior - ремейк шутера от первого лица от с�
 ```bash
 magnet:?xt=urn:btih:EEC1FDD7539C734B25F918D768CAB9B1A932BF57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

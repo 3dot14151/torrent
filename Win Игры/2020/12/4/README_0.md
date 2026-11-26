@@ -19,8 +19,7 @@ Living Legends 8: The Crystal Tear / Живые легенды 8: Хрустал
 ```bash
 magnet:?xt=urn:btih:4ED30EE5FF9F56D142CBED4C253BCFC914F3C062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Project Wingman — это экшен с боевыми полетами, в к�
 ```bash
 magnet:?xt=urn:btih:16C8B4D426F3EC3B575DB444A3415E918DC190E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

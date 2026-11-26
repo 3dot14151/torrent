@@ -21,8 +21,7 @@ Clonezilla – многофункциональная загрузочная п�
 ```bash
 magnet:?xt=urn:btih:57F4582977976603AA4630B7FF5016165709FBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Tails (The Amnesic Incognito Live System - Забывчивая Анонимна
 ```bash
 magnet:?xt=urn:btih:5DAFF10D421F9EEED2E7DA53E3577E0477FCEE5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Memento Mori - Songs For The Apocalypse Vol IV (1997) Reissue, 2019, Black Mark 
 ```bash
 magnet:?xt=urn:btih:8E03D39D94B20FF7810B1A617B4818105936D59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hostage - The Swarm (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:CF8BE7DB10FAE041E998FA5791B45468BF89827A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:516B076A7936410E815CBB14627B1D358C649D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Fae - 2 Albums (2020-2022) [MP3|320 Kbps] <Stoner, Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E3E8671EE95AE3AEAAF057554DCD4C7A64513969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E50AB2D78F70C12E894593834DF53BD4212A698C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D71FA25790D77B92D79E1760848C0F60C9F200D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Salvation For Me - Memories (2022) [MP3|320 Kbps] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:2421B090142ECC371CC89EA1C084609475A672E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Rammstein - Angst (2022) RMX by twocolors [FLAC 2.0|48/24|WEB-DL|tracks] <Indust
 ```bash
 magnet:?xt=urn:btih:25840D72C3C03931A159B540A84E6DFC2070F95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

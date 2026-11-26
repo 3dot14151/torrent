@@ -21,8 +21,7 @@ Kezia - The Dirty Affair (2015) [MP3|320 кб/с]<Progressive Metal, Rock>
 ```bash
 magnet:?xt=urn:btih:2D1717E6546C63DE43122E58621C2F313DD11B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

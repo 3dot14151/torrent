@@ -19,8 +19,7 @@ Dino Puzzle v2.7.3 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:EC9674512B81D5E67399018A5CDCBCE9581F4346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Om Nom Run / Ам Ням Погоня v1.07 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FF0521F7B5E27B6FE0CE7D258C11C506960C2A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

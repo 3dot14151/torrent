@@ -19,8 +19,7 @@ PowerDirector – Video Editor v12.7.0 Mod by 0x7d [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8EF0CDA5DA960B1ECB271D9A32340FFEF0AB1ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by Mixroot [En]
 ```bash
 magnet:?xt=urn:btih:BE69596206A430AB6BC0670E57587FDC17C88622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Colorfy - это раскраска, призванная помочь вам у
 ```bash
 magnet:?xt=urn:btih:8CF37BAF1E9FEC4190E1C9B642C1A480E7E37845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by maxi123444 [En]
 ```bash
 magnet:?xt=urn:btih:54CEE7A823476478953F0D226FA23BA4BE200224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Find my kids – это приложение для родителей, кото
 ```bash
 magnet:?xt=urn:btih:2A009AC6FEDDE9953C1AAE2EA54BABE03F90FD8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Filmix Android - каталог из ~ 100 000 фильмов и сериало�
 ```bash
 magnet:?xt=urn:btih:8E999CC48284951171199F115F7CB7262820AF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

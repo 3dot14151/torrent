@@ -19,8 +19,7 @@ Niagara Launcher - отличный проект по персонализаци
 ```bash
 magnet:?xt=urn:btih:AE7C7839B41AD9DA33C2892332BFB62B96D8C944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unit Converter - полезное приложение, инструмент, к
 ```bash
 magnet:?xt=urn:btih:22568942A6FBEAB6AE6F4773522C2F4B7D73D4C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SmartOffice Pro - это не просто сборник офисных при�
 ```bash
 magnet:?xt=urn:btih:A9473600F9BB94C93595EC854BFC69448703FB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Easy Voice Recorder - Pro / Простой диктофон - Про - Прос�
 ```bash
 magnet:?xt=urn:btih:EB5E4E95A341E0246FDBFFFF2FDB97852F2C7B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFF45CE4A4267BD205B43386383B48C4A4711FE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Call Recorder - SKVALEX - приложение предназначенное д
 ```bash
 magnet:?xt=urn:btih:8D137BB08832F8F5AEBBA8AE6635856EAAAE7874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

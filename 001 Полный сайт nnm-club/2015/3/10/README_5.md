@@ -18,8 +18,7 @@ Professional Lumberjack 2015 (2015) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:BA2EB9D55EC8DCFC5F8C17647022383DA711C888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Spotify — это мобильные и десктопные клиенты д�
 ```bash
 magnet:?xt=urn:btih:EE2AC754E2BD9FA6334FF30AACA2E778EC599DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2FBADBAA999F3BF41C6624AA99022B5F49856F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Acronis Backup Advanced (бывший Acronis Backup & Recovery) - програ�
 ```bash
 magnet:?xt=urn:btih:F0F85A59A16C39284E91B91687C8332E81DF1DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Profileschool | Введение в предметную съемку (2015) PCR
 ```bash
 magnet:?xt=urn:btih:B054DF758B273640380084F534C39B00F752B256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Hotline Miami 2: Wrong Number (2015) [Ru/Multi] (1.0/dlc) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:CF8C8D10D7149CE5661580C54B486C8C5ABB7E00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:546D3772738C549780735332C15CE4AB892AB128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Homeworld Remastered Collection (2015) [Ru/Multi] (1.22/dlc) SteamRip R.G. Origi
 ```bash
 magnet:?xt=urn:btih:CB25EB23AC2F577E2B3B35CDE4F45A9A69326F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CD8FFD00AB747A54E1A203E0FC032EA34F04B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ XCOM: Enemy Within - дополненная версия лучшей страт
 ```bash
 magnet:?xt=urn:btih:8823B6F06129692475B9F444CF68759556FCC91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09842E0E724223EBFB0B9DC000B0896A82A93900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:361F03692E6F15FA75010BB28AC472439FC48FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCBB060117CA31A5E0447C921937E2F299A832FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Endless Space — космическая пошаговая стратегия, 
 ```bash
 magnet:?xt=urn:btih:395FDD16D33EA8100329C449B434E0BC2A2442E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

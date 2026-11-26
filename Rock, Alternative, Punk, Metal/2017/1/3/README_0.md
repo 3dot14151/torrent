@@ -22,8 +22,7 @@ Meshiaak - Alliance of Thieves (2016) [FLAC|lossless|image + .cue] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:2233A00993AA54891EEA4438492D1A6F35F69C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ WaterColour Matchbox - Fragments, Artefacts & Ruins (2016) [MP3|320 Kbps] <Alter
 ```bash
 magnet:?xt=urn:btih:7372EB1DF922DE3D061260091C051C50F03D9F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gone Is Gone (Mastodon, Queens Of The Stone Age, At The Drive-In) - Echolocation
 ```bash
 magnet:?xt=urn:btih:1F38D71C629101666E477D2B4C8F433E873CA50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEF238ADD057003865FF1460A31596193F14D873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF6054D3AA214659F37F3F0E4AFAA02985038911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

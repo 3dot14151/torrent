@@ -19,8 +19,7 @@ FolderSync обеспечивает простую синхронизацию ф
 ```bash
 magnet:?xt=urn:btih:FDE90CF08B403FD2CE71DDB0CEE86457B919C4C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MIUI Hidden Settings Activity v1.6.6 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B118588C33145591EE36B856222EFF4641A7426C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BZ Напоминания и Дни Рождения PRO v3.6.3 Mod by vadj [Ru/
 ```bash
 magnet:?xt=urn:btih:16140BFDD15B1C6852C16541B3C16EB562ACFDA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:B0031553E5C76676DBBC871C03D8539267D48B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

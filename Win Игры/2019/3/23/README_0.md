@@ -19,8 +19,7 @@ Witches Legacy 12: Secret Enemy / Наследие Ведьм 12: Тайный �
 ```bash
 magnet:?xt=urn:btih:2650EA2DE59FED57ED20303585A979DB7D8B8DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Agent 9 — инди-игра с видом от первого лица. Вы �
 ```bash
 magnet:?xt=urn:btih:A302067712DA6F90C9142168E3ABD84D79CFE711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Monster Hunter: World (2018) [Ru/Multi] (1.0 build 166925/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:D0CAEC87F6DBDD140105BC8CB3B87F59191551CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RICO (2019) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B3E4B05E797E153AED08BC0F819009E3AC9BB086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

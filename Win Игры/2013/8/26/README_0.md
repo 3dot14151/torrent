@@ -19,8 +19,7 @@ Skullgirls – красочный рисованный 2D-файтинг, в к�
 ```bash
 magnet:?xt=urn:btih:B442687CD9C15736CEAE5D8154E8C54439762B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

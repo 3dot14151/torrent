@@ -19,8 +19,7 @@ Driver Easy - системный инструмент, который позво
 ```bash
 magnet:?xt=urn:btih:A6DD61FFEC3F91946E9474559D084F1831CE84D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sniper: Ghost warrior 2 - продолжение нашумевшего поль
 ```bash
 magnet:?xt=urn:btih:8A4C1A6D4A04D045E98A6A6137616ACC7B5ED233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 ```bash
 magnet:?xt=urn:btih:54EA9AA81242A0CC7C38DA4CA25A8B7A11859073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nine Sols (2024) [Multi] (b7ca1880) Scene Rune
 ```bash
 magnet:?xt=urn:btih:BCFB4E4471D173E8C276D49B7F162F9799261C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Longing можно сразу назвать игрой уникальной
 ```bash
 magnet:?xt=urn:btih:10595FD892B054EF7C3CFEFB4C62B356599ABD1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Riviera: The Promised Land - это не совсем обычная ролев�
 ```bash
 magnet:?xt=urn:btih:95DB03267416DF6F03731471653B893B54291702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Etera (2024) [En] (1.0.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:4128250015C3F9D687A5FC518B9DD265E1F7C1EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Moons of Ardan (2021) [Multi] (0.11.0.16) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:6D30D7B722BDDFFAFC50109AF69D86E5DFFBB83D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

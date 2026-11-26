@@ -22,8 +22,7 @@ Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progress
 ```bash
 magnet:?xt=urn:btih:B25316204F1BB05EB2891AF2A1F5C435EE38D063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Of Dust(   Читать дальше...   )Жанр: Progressive Rock, Metal�
 ```bash
 magnet:?xt=urn:btih:53375725C461C26074992730EDB370C5D40C3126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B1 Wait(   Читать дальше...   )Жанр: Progressive Rock, MetalПр
 ```bash
 magnet:?xt=urn:btih:DF8D8FA6344948FC164B95169AB8CB38BB42C3BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lost World Order - метал-группа из Билефельда, Север
 ```bash
 magnet:?xt=urn:btih:99183AA6CB3511A05835BBD7020EBAF0419F116A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

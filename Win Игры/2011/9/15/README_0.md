@@ -19,8 +19,7 @@ Love Chronicles 2: The Sword and the Rose Collector's Edition / История �
 ```bash
 magnet:?xt=urn:btih:08879F5C32F5D49F76AEED8E48393083945655BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFCC5ED3E83F96F83116FD923339D259638439F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Oddly Enough: Pied piper / Как ни странно. Крысолов (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:77264000AC8B1F61FDF1DFC68162506968731FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Red Orchestra 2: Heroes of Stalingrad [En] (L) 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

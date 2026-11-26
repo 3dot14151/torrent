@@ -28,8 +28,7 @@ LP
 ```bash
 magnet:?xt=urn:btih:D1478490FC36719C9BF8F81B3C02FBE2B06BF3E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

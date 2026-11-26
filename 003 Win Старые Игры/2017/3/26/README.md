@@ -19,8 +19,7 @@ Planescape: Torment - одна из величайших игр в истори�
 ```bash
 magnet:?xt=urn:btih:E41B9B68CECD054DBA9A11DC0F26CCDD3E8BA480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

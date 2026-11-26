@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:BB13D7C6DC06528758EC53037CBCD54B31EC7BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8D02E1484A4B6846BAD2E13217B5C82A389F289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kickrox - THE NOTE(s) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, N
 ```bash
 magnet:?xt=urn:btih:978CCD1AC4377F48DA73BB686F14F9991B105926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Radiance - Корабли (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 ```bash
 magnet:?xt=urn:btih:EFE77E841699BF4EAEFDFE7060DF34F4386B26DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

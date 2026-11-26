@@ -21,8 +21,7 @@ Regicide - Break the Silence (2006) [FLAC|Lossless|tracks + .cue] <Folk Rock, Go
 ```bash
 magnet:?xt=urn:btih:03C2952E695FA9C978286F5E3E6EC96D63C0C111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ WiFiSpoof - небольшая утилита, которая поможет в
 ```bash
 magnet:?xt=urn:btih:AD7EF64D58C454161C918634A3B1483BF8D296A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - 100-ка популярных весенних хитов выпуск № 
 ```bash
 magnet:?xt=urn:btih:7B97209A90460A1C8C06DF10E9BC0D71851DD3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA22D4F9011A937CAF96A794D7C1D45A6F8D93B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Вечеринка от радио Шансон выпуск № 7 (2017) [
 ```bash
 magnet:?xt=urn:btih:ADBF0B150ED1E13B52279DC85BDA17338234EB02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Peter Hammill – певец, композитор и основатель пр�
 ```bash
 magnet:?xt=urn:btih:251FA248AC20FE87BBA15184DC5B2D930A554CAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 4 - Phoenix. Гонка (2017) H
 ```bash
 magnet:?xt=urn:btih:50E2EBC9CCBAC972BEAC7411B4E42DD24687018E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Six Organs of Admittance - это псевдоним, под которым ча
 ```bash
 magnet:?xt=urn:btih:C8F49A6CA84D943CC3170512AAF04119DCBC06F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ VA - Ресторан Кураж для друзей выпуск № 9 (2017) [
 ```bash
 magnet:?xt=urn:btih:7918B81C36661F994983CBC5D5CF0574F5EAB257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Heron Oblivion - Heron Oblivion (2016) [FLAC|Lossless|tracks + .cue] <Rock, Grun
 ```bash
 magnet:?xt=urn:btih:DB0BD01F25BA423C5AD36F7DABB153E2A14C2941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ VA - Весенний хит русского шансона (2017) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:B6762309DAB2E0831B2DEC1639ACDC8E43F31A3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04469A2B232D32F86FD81C5FE0F37D52D6E56C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Macsome iTunes Music Converter позволяет (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:4B19EC075117D6476F2FE8C704F6B1271F17F874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ VA - Just Chilling Effects (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B7BA95A84192FC6BE8A8E1D3B07DDA4745C3B453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ VA - Отдыхаем душой на стильном радио Шансон. 
 ```bash
 magnet:?xt=urn:btih:3F404704AC3F2588D53C1740A1B53B8086C401FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ Shogan - Universe (2017) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:7B0670D3921AB0FA1F344082E60E43F164917074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ VA - Музыкальный презент хорошей музыки на Euro
 ```bash
 magnet:?xt=urn:btih:B775B22E9F32243D13202FCD0B846B1A1C47040E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ VA - Молодежный бум хитовый. Сборник № 8 (2017) [MP
 ```bash
 magnet:?xt=urn:btih:B70C5BF9DE42377DE456ACF8191082E9F61DF58D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ VA - WMC Bonzai Progressive (2017) [MP3|320 Kbps] <Dance, Club, Electro>
 ```bash
 magnet:?xt=urn:btih:01A61B07F54F6E608ECA2E20C58F576360EE99D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0500DA23AE8AC1DEF76B51A017BE45FD4FB7ECD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD3EE518509EA338B7371476176EEE12DF0A08F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Mirror for Sony TV 1.4.2 [En]
 ```bash
 magnet:?xt=urn:btih:5C8B45931C725EA231EDCD1037F64B23C82FBCF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ PhoneRescue - полезное приложение для восстановл�
 ```bash
 magnet:?xt=urn:btih:962C4E1ED31C0BE4B0DB04E137212C5F44FCEFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ VA - Psy Trance Festival Anthems Vol.9 (2017) [MP3|320 Kbps] <Trance, Psy-Trance
 ```bash
 magnet:?xt=urn:btih:DC2F9812ED06BBC0C922351C78B2833FA3B170E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ VA - Ibiza Deep House 2017 Opening (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:DA6C5936D9E557AD49218BCF666E774A569D75A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Komori-san wa Kotowarenai! / Komori-san Can't Decline / Безотказная �
 ```bash
 magnet:?xt=urn:btih:A5B82EACEF8DB4003DF3CA5FF19E898ADD38ACF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

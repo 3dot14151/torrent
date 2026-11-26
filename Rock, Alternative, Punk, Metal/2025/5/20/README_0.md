@@ -22,8 +22,7 @@ CD-1.3 Frost And Fire 3:55(   Читать дальше...   )Жанр: Hard Roc
 ```bash
 magnet:?xt=urn:btih:E53F952868F80531619152DDB67A3E7AF2E1AA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

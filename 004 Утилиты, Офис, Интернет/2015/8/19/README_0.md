@@ -19,8 +19,7 @@ System Explorer - диспетчер задач для Windows. Функцион
 ```bash
 magnet:?xt=urn:btih:8345AAD2A60B55C40FFD1FC89BAA198EDA51DA4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

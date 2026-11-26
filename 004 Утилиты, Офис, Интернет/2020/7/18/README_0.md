@@ -20,8 +20,7 @@ HashCheck Shell Extension - бесплатная программа с откр�
 ```bash
 magnet:?xt=urn:btih:4649967CD099A60AC619C933A37C0312DFAB0774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ FonePaw Android Data Recovery - эффективная программа для
 ```bash
 magnet:?xt=urn:btih:FAD06AC7597DCF59D29E16B7E9EF9AA452CB21A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

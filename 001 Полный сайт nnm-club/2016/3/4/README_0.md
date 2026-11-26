@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C54AFD1DC45A6BEF687F18DAF563D9071B372A3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Va - Top Eurodance Tunes (2016) MP3 (2016) [MP3|320 кб/с] <Pop, Dance, Euroda
 ```bash
 magnet:?xt=urn:btih:50A0F2EC528F3E14FE1190386E5540DCEBC25578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Anesthesia - Wake Up (2008) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Ambient>
 ```bash
 magnet:?xt=urn:btih:F9D6C2681F5E8FB592A31EB9BB235059E33B6535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Create - Space Time Continuum (2007) [FLAC|Lossless|image + .cue] <Ambient, Berl
 ```bash
 magnet:?xt=urn:btih:88FF670EC48366B99F61A7EFDE40D2C85BC41101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B689159476497A62520E81B115DE513C19A891D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD5AEE9FD980EEA4AA5AC701C80E242A92161FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAD83B986A443A382C1297C64CB15C1B8AF140D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ End.user & N.L.I.C. - Her Shadow EP (2016) [FLAC|Lossless|WEB-DL-24Bit|tracks] <
 ```bash
 magnet:?xt=urn:btih:6E4BE936C32858AACC7807C85C3FD1ECB8F9E7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52A90A4314124FE5AB8A5D9C64711271A6D2B9A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Unknown Artist - The Weekend (2016) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:06EB2B2974B07474E80FCC54487E96C1A79D16C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB84E83F9B59B0D2EFEC03D08D43A44132EBD205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D3684DF017BCBCB31D156F55DB86D2200FA51B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Joey Fehrenbach - Mellowdrama (2006) [FLAC|Lossless|tracks + .cue] <Ambient, Dow
 ```bash
 magnet:?xt=urn:btih:F6A3D49888C3563414D3FC60150DFD066E0FA360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E0FF58597676804597B2FA1B38D4EEE279F90FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ VA - United Goa (2016) [MP3|320 кб/с] <PsyTrance, Trance>
 ```bash
 magnet:?xt=urn:btih:02C4763197F959B75856030A724B6783B72D8C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ VA - Vocal Trance Seduction Vol 7 (2016) [MP3|320 кб/с] <Trance, Vocal Trance
 ```bash
 magnet:?xt=urn:btih:45A54777F19EE79114E48A1D8EB25DFDFC503894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCA358B8C5533B0491BD1D9569E206813F6BD7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ VA - Armada Miami (The Club Edition) (2016) [MP3|320 кб/с] <Trance, Progressi
 ```bash
 magnet:?xt=urn:btih:7735EEE8530F7EBBB3876646BD924C2892D05A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AB913EE115B2A8B795817B60D19B331467ED26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6585B4C18B68A6350D1ED0B4D55C78CC447C0A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ Fluid находится поверх открытых приложений и �
 ```bash
 magnet:?xt=urn:btih:82A26251317EDE9269EB76727D2AE1E28DDCDB26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ Anesthesia - La Paradinha (2012) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Ambie
 ```bash
 magnet:?xt=urn:btih:1F01F243898067EA00601BC00CD51B98E546090A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ FilePane - легкий, универсальный мультиинструме
 ```bash
 magnet:?xt=urn:btih:370F6FEDBC86C9A21CACE3B83E52879630A49961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:557D6EA66D4A615A2B77E7717CC2E24952B05C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC92A90476B969DCAAC4CFE0FB79A44D6B89A2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ Corey Dennison Band - Corey Dennison Band (2016) [MP3|320 кб/с] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:6770CFAE455B40ABD4463B583E2EBFA7171F60AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

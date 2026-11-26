@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:89D3C978A4EB5F6E4C9AA3B424BE3D40A5E64814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Drudkh - Eastern Frontier in Flames (2014) [FLAC|Lossless]<Atmospheric Black Met
 ```bash
 magnet:?xt=urn:btih:A2C47BB4FEF57C1D95A6F623F2CE0034058F7221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

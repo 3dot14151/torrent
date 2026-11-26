@@ -19,8 +19,7 @@ CaroO Pro – полезная программа для автомобилис�
 ```bash
 magnet:?xt=urn:btih:66B063BF1F7607595FFA7539CDC57870EDDFC214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

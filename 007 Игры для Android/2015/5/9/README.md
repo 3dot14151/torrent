@@ -20,8 +20,7 @@ GTA: Chinatown Wars 1.01 [En]
 ```bash
 magnet:?xt=urn:btih:9D498BE6457381119C2C865BEBA10CA9A8384E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

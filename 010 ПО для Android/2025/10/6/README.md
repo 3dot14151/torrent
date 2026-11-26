@@ -19,8 +19,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:480197FF1D5DF2E4C42ADCF2B7F55B053E3860FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:982BCA2C5B04234C36DF93CB72BDBB8A36A38993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.2 
 ```bash
 magnet:?xt=urn:btih:27216797968E8592EE4C026861981E8AB57F9DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Listen Audiobook Player v5.3.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1B3F46245ED7DBA2C696E3A5E590EEBB74C031AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FBReader Premium v3.8.19 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FE04741F4DCFB7F92D283904A9BEFBC56F6C50FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8C2B51579083FF798C8C8277DB67631C1A2EA213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (1.0.1038.3669/dlc) Scene Rune [Ma
 ```bash
 magnet:?xt=urn:btih:6CA61B66139E3C6DD43F04A70ABEE055D38C8404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FB43E351C1F33EDBCA46B2D0A882455E97B13E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Good Pizza, Great Pizza / Хорошая пицца, Отличная пицца
 ```bash
 magnet:?xt=urn:btih:CB25221D9E956C0373B140898A0223D998C9D6DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

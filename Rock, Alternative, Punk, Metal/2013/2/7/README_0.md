@@ -28,8 +28,7 @@ Sylosis - 3 Альбома (2008-2012) Дискография [FLAC|Lossless]<Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -64,8 +63,7 @@ Nightfall - 5 альбомов (1999 - 2013) [FLAC / APE|Lossless]<Symphonic Bla
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C02695F94AF16FBDC3325235FAA6B0D1E141975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +131,7 @@ Egypt Central - White Rabbit (2011) [MP3|320 кб/с]<Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:37728ABA08733DDE363E192E5A75B14DCF727259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +165,7 @@ Stratovarius - Nemesis (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:C274A5EB50FB9D02B4ADE822D74C36F416C44681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +199,7 @@ VA - Metallica A Tribute To Kill 'Em All (2013) [FLAC|lossless] <Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Tody поможет Вам более эффективно организова�
 ```bash
 magnet:?xt=urn:btih:0B797DF8D82CC019C083056A2E5BFE5637634D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F5EEB7F16FBB826B9ED9094061D4F26C32A7BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Weather XL PRO - погодное приложение, что по факту �
 ```bash
 magnet:?xt=urn:btih:D0D7F15BF42E0929DB945DFDD657D51F49746607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Ubuntu*Pack 22.04 Unity (сентябрь 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:C4AFFA74EAA424299124D1A2511AD73F2E8CF576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu*Pack 22.04 Budgie (сентябрь 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:93BF349C7654DE4EACF450E00608584B489E9C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

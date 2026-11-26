@@ -21,8 +21,7 @@ Babbba - Extended Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swin
 ```bash
 magnet:?xt=urn:btih:248601F5E9743AAB197F0560070A5B3FB1AE79D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Palace - Reckless Heart (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:A85536265BD46E2B41AB2BE1EB34BCF71AC9F51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Babbba - Groovy Things (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:47C04E9DE1C0EE36C0C003E835DDBC03E0528AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:C70CCF02593CA409129533A5E8EB3CF9EA7ACCDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Falcon Trails - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5794D622875E56C8E47D339B737763A4199FEDBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Al Di Meola - Twentyfour (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:32CBB8E781FE9A109122365F558B3E0D59CC81BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Land Of Talk - Applause Cheer Boo Hiss (3CD) (2007) The Definitive Edition, 2024
 ```bash
 magnet:?xt=urn:btih:3FCFEE659DC72A721147F4F597ABE8443F6CBD55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F99AE24D4BDA8A8B9722F1B7407D34BF690C0EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ U.F.O. - You Are Here (2004) Deluxe Edition, 2024, Cleopatra Records [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:39836FAF7F0153BF871639FEAE8A2EA69E6CD06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Al Di Meola - Twentyfour (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Rock, 
 ```bash
 magnet:?xt=urn:btih:121715311BC5C24BC701FC2ECA373FCC94030C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Plugin Boutique - Scaler EQ 1.1.2 Standalone, VST, VST 3, AAX (x86/x64) RePack b
 ```bash
 magnet:?xt=urn:btih:21B68DBB852649FABF85D76634201457DD1CF6CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:2C9EAA1FAACFEA87279418CEFBC0FB381865FA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28E10C02C531D8BD4AA378CAD821B6810F951DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ ApowerREC - это программа которая может записыва
 ```bash
 magnet:?xt=urn:btih:E2A59BFC4FD4E2CA3D287189FC0252100FD59BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC15A080E7C2B32E814B508D9B976488AAF76A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97325C7CE8E750097148F44B8E0D0FA4BCAA9A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Outersect Modeler представляет собой синтезатор дл�
 ```bash
 magnet:?xt=urn:btih:BC546223C24ED55E4A6DF30EF63F96E200386619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3F583791E42ECEAC7691486CD50DEC920120B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ WindowManager - программа от разработчиков EarthView и 
 ```bash
 magnet:?xt=urn:btih:324ECADE73B21F4C84833108576854F94961B901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ EssentialPIM - это отмеченное различными наградам
 ```bash
 magnet:?xt=urn:btih:AAE62D5746B57DF89A1684785E71B23D4B0F26B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ KeepStreams — это удобный и мощный инструмент дл�
 ```bash
 magnet:?xt=urn:btih:064C90A0320ED7F1662DA4283E4E1ADA0C95D89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

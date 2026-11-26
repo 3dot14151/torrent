@@ -23,8 +23,7 @@ Archetype - Dawning (2002) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:6ADEEE4D5E29C9952DB569438D0ACDEA9580209C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Tygers Of Pan Tang - Crazy Nights (1981) [APE|Lossless]<NWOBHM>
 ```bash
 magnet:?xt=urn:btih:91BB3D7471ADDC70A870EED390F4C52BEE37B8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Cowards - Rise To Infamy (2015) [MP3|320 кб/с]<Blackened Hardcore, Sludge, Bl
 ```bash
 magnet:?xt=urn:btih:BF5E0D32FAEB1655BC4F0F5BDB93C08FBC35B3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Stone Diamond - We Stole the Stars from the Black Night (2013) [MP3|192 кб/с]
 ```bash
 magnet:?xt=urn:btih:2A955D960A55A0B5736ACCD63DB5B9487DDA8639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Sylver Myst - Emotions Revealed (2006) [FLAC|Lossless]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:6890A6D23E3878A5B432BB79B05999E635AD6436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Souls Revival - Lost My Way (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9C41F3F96D8C2873F91CF0AA7C6AF4D6889A11DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21381DC298244D18BD37BF92DE4ACCB235A1E53A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Motley Crue - Saints Of Los Angeles (2008) Japan [FLAC|Lossless]<Hair/Glam Metal
 ```bash
 magnet:?xt=urn:btih:A9058B386C9E47CED7F7754FDD7D759C974FD8F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Motley Crue - Theatre Of Pain (1985) Japan [FLAC|Lossless]<Hair/Glam Metal>
 ```bash
 magnet:?xt=urn:btih:DD12B7FE0DB5400B46B5B9E93BB81C52F2D6A517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ Snake Eyes - The Journey Begins (1999) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C2978E84F60F147C94D26076F53D1D58B9EF79DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ Motley Crue - Girls, Girls, Girls (1987) Japan [FLAC|Lossless]<Hair/Glam Metal>
 ```bash
 magnet:?xt=urn:btih:96131EA96A34489EA23D44F76F66686BF4329DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Stone Diamond - Phoenix (2015) [MP3|320 кб/с]<Retro-Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:AB88687601D55C8990A1241AC7429F78DD0DCFB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ Apocalyptica - Shadowmaker (2015) Deluxe Edition [MP3|320 кб/с]<Symphonic Met
 ```bash
 magnet:?xt=urn:btih:DEE4362293CD2D0E89C52DCFABF9469A376CEE0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

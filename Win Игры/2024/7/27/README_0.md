@@ -18,8 +18,7 @@ A Day Out – станьте настоящим детективом и пост
 ```bash
 magnet:?xt=urn:btih:8878F44EB544E10F0A82F09CB30BF7F4BAFFC266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Port Royale 3: Pirates and Merchants [Ru/En] (RePack/1.1.2.24556) 2012 l R.G. Or
 ```bash
 magnet:?xt=urn:btih:30F6F71AA9AE9EBD87E9C79084787153535876C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Spirit Walkers - Curse of the Cypress Witch (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:E70DD59880AC8EC93AF27409334ACAF685BAAA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Tesla's Tower - The Wardenclyffe Mystery (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:A2DCB7963DC96DDB49722978142CF54C06897229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

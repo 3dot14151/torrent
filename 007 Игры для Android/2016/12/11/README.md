@@ -19,8 +19,7 @@ CatchaAll - игра сделанная по мотивам легендарно
 ```bash
 magnet:?xt=urn:btih:91BC053EB3993359D8E2789C99926F051933ECED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

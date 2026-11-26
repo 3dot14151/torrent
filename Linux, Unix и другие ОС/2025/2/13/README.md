@@ -21,8 +21,7 @@ Green Linux - это защищённая от санкций операцион
 ```bash
 magnet:?xt=urn:btih:7FD03D1A0D22B3C90B32B767074F5E021515ECF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

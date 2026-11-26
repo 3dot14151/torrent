@@ -19,8 +19,7 @@ Timber! The Logging Experts — симулятор лесозаготовок.Т
 ```bash
 magnet:?xt=urn:btih:F0EFA3CA32A9A2399B1E5DED9687469B680AB033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Disoriented (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8D2CAB9B8986B8094752C57B3CD619B15BAF507E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Walking Dead: Season Two - продолжение первого сезон�
 ```bash
 magnet:?xt=urn:btih:A915785EF5CD7797D81EC9968948F647F739C618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Walking Dead: Season One (2012) [Ru/En] (1.0.0.26/dlc) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:45F82E3217DE7CAF5E81545AB2E65192D74477A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ King's Quest является переосмысленным вариантом 
 ```bash
 magnet:?xt=urn:btih:DBD174F5BB2C60C7A1D90470A6C433EB7D8517D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Camtasia захватывает действия и звуки в любой ч�
 ```bash
 magnet:?xt=urn:btih:4D01DE9D0075FD1C2F2AFBA97FCC96F031E6A3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:A7D305A8B87BDE97B7E566B962FB4C6309BB918B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ RAM Saver Pro - инструмент для профессионального �
 ```bash
 magnet:?xt=urn:btih:1B08C0D82C2E2AE3134074007E9CABDF71FCA09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:3E560CDD48D5096C77CB3C6348A7B4152204B376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:F6D5EEB389015DB515A8902A59D4C58ED5ABFCCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ MITorrent Client — быстрый, удобный и компактный то
 ```bash
 magnet:?xt=urn:btih:330126B4EFC7AE3F6DBDBF64FA7E95E7A07DF124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:5FDCC9E720CA86F39D34F8280D8D8A18BF4CAD72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ AnyDesk 9.6.11 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AF24680BF55E5E3CD372F8670FBD72704D2F14F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ CPUID HWMonitor - утилита предназначена для монито�
 ```bash
 magnet:?xt=urn:btih:AA6FB82C73A63B40378BDE89092669B48C9F34AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Snagit предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:5DF997C7DC4583A789457EDA1E4BB76AB83D7F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:8314234924827817B71A8632E2861174649EA373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Zapret GUI 1.70b [Ru]
 ```bash
 magnet:?xt=urn:btih:BD3F6E909354607B42675D5C9F24B72E3A3ACA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

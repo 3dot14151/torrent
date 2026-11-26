@@ -19,8 +19,7 @@ Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | P
 ```bash
 magnet:?xt=urn:btih:2D66AD1E9A390DF53097F9AA35C708A145B1E161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

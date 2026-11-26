@@ -19,8 +19,7 @@ Runtastic PRO GPS Бег и фитнес v6.8.1 [Ru/Multi] - GPS трекер, �
 ```bash
 magnet:?xt=urn:btih:754D9926F7CA15ECAC15D40F2E4FFF3B3E02CA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Killers - Danger de vie (1986) Reissued, 1997 [APE|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:757B0B0CFB7399BA4C6DA55EEE32CFB95EF9E3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wreck-Defy - Fragments of Anger (2017) [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:76A80933DB47AB616DFD51B4AE8B966218BD466D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Testor - Animal Killstinct (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:1138B45800A1D9E0834AEC9C5904A286E9ACCB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Elessar - Dark Desires (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:85733DD73EE73C10EB8FEF6C8B78AAA62281A8AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Imagika - And So It Burns (2001) [APE|Lossless|image + .cue] <Power Metal, Thras
 ```bash
 magnet:?xt=urn:btih:5B7C63A09ECA2D3DB1D1BE682A0E4CCACF4ED1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Circles - The Last One (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:3CF0F3B8BD7A7246CF3B427F63E8E4F9EEBD4CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Phenomena - Innervision (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:DAB8704031CCBFF95800B612DFA8AED8007E0E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Outloud - Virtual Hero Society (2018) Japan [FLAC|Lossless|image + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:76C091F638E7E5919EC1C79E011C4C6BB4F4AA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Enemy Inside - Phoenix (2018) Japan [FLAC|Lossless|image + .cue] <Dark Modern Me
 ```bash
 magnet:?xt=urn:btih:D5D998D4A184128E674822B0CFE40363DE748B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Spider - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:EDBDC1B9F712F6CF2D6872426D8D194485E419BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Kruger - Созвездия фар (2019) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:10273BCE030EFB6E0888700EA0DFCEBF139C1296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Sweet - The Lost Singles (2017) [MP3|320 Kbps] <Classic Rock, Glam Rock, Hard Ro
 ```bash
 magnet:?xt=urn:btih:81AA99A27D093D2526996B7625B27F8C84A52465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

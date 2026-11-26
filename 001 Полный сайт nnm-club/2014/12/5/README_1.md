@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1CDEC032BC6F2201FBD91DC2C0606320AD3324E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Haerts - Haerts (2014) [FLAC|Lossless|WEB-DL]<Indie Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:BAD82F47DAAF7675F562C32C106F6B869D9EE78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:469C88128C2451DA60688C5093D2298437E537D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2FC5A413EA6EB55D37557A8BE170F1F211288A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:129B7409FAD78D122FAE8EE99E5836CA8EC2CC9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5A231B17375C48B74FFC7DB99385CBF6253F20B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ FolderSizes - программа для проверки жестких диск
 ```bash
 magnet:?xt=urn:btih:F1FA87C8CBC9A9C5582C479460680A1DDBFF90E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ A4. Золотые Львы (5:36)(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:29307B0741427A8159A49843F9278FBBEEE28385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ VA - Beatport Top 100 Deep House November (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:2C73A25214A22EFA3C3EDC7062C9D4DC254D231E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Comedy Баттл. Суперсезон. Выпуск №35  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:9221B0116D9D6C23B9313D62ED2E594E494E70DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8215925163D7F3508BD3FCBB9A4F70E9588ADD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ VA - Drum & Bass Arena 18 Years [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:184E4916A3E9145846AB50F1D6EBA3D17CE8E31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1586E64A60E50F68649A316333EE30837B243BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Vacuum Tube Valley является высококачественным еже�
 ```bash
 magnet:?xt=urn:btih:6068E9421D86CDF15AD88998AF4129DF7E56C52B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6037D539B0737BC65245F7BC8D9610A3BFBAAE15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:635F8DB1C3AD50427D14C6266D852637169592EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ Comedy Woman  (2014.12.05) SATRip
 ```bash
 magnet:?xt=urn:btih:F3A854DF62C794CA02E6A054C69E91211134B031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Symphony no.8 in F major, op.93
 ```bash
 magnet:?xt=urn:btih:D572D9A57CD4627AD7F7995FC91810E2C93FA42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ Christmas Stories 3: Hans Christian Andersen's Tin Soldier (2014) [En] Unofficia
 ```bash
 magnet:?xt=urn:btih:0AB47D2E9B5424CEF0FE204C1409E6A3CEB9F4E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ Guy Sweens - Legend Of Ganesha (2009) [FLAC|Lossless]<New Age, Spiritual, Ethnic
 ```bash
 magnet:?xt=urn:btih:891FAFB7439C9ADD07E9F4D68AFDAA9DC64AAC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D5FEFC0C0C90641B6FFA629B544C46B752B8816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:849E193CE029D24A48519D367E2BE6FE488E3093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ Ashampoo WinOptimizer 11 - новая линейка пакета програм
 ```bash
 magnet:?xt=urn:btih:DB33C21DD4B5085DA8FFDA7DDEF2ED52D06F004E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Superнянь / Babysitting (2014) AC3 5.1
 ```bash
 magnet:?xt=urn:btih:F55CF7EE038B7ECB9172EBF7BC93E03A3230A626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

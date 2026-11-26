@@ -27,8 +27,7 @@ Steven Halpern & Lama Surya Das - Chants to Awaken the Buddhist Heart (2000) [MP
 ```bash
 magnet:?xt=urn:btih:2011249AD6B0E846C9FF26F1DDF9FC434798977E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6172A629DDB6B851007B04A3C3CEF045086F04E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Discovery: Наука магии. Машина вуду / The Magic of Science. 
 ```bash
 magnet:?xt=urn:btih:1A698B120615F8CDBAFDEAA0A1522EB73BD16918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Marked предназначен для просмотра текстовых ф�
 ```bash
 magnet:?xt=urn:btih:9DE1B0C84589CD5019D417D28596B419334C83D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Triskell - The Celtic Harp (2008) [FLAC|lossless]<Instrumental, Celtic, Harp>
 ```bash
 magnet:?xt=urn:btih:C476FE28AC93D9CD40B6D7654E8DDF4D7190923A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FEA64EFAE16F63A7FC1CE797C3521DBA2E25C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02667A07D880D03A0671D57ABF74CBB56E6ED76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ MotoGP. Этап 4/18. Гран При Испания Херес. Гонка (20
 ```bash
 magnet:?xt=urn:btih:2683EFC43F92CAACC687CD17CE77CECF0E202903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC64D9297451184EE00B282F21AB1D5E1C9503A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:956947BF03CA53421857EC09B6E021B08FB4E588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ VA - Vocal Atmospheric Deep Dubstep (Vol.1) (2014) [MP3|320 кб/с]<Atmospheric
 ```bash
 magnet:?xt=urn:btih:5872BDB773F903B847C7A29C507011564F2AB73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26371047FB7D9BD312306A9F05D77C277BC98E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B8D1AE9B8003980974D72E8F09FDE5B508A1ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ VA - Alterportal HITS 14 Vol. 68  - April (2014) [MP3|128-320 кб/с] <Alternat
 ```bash
 magnet:?xt=urn:btih:FC102DE24102E57BEE9E52964EAE243ECD76DCBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Max Cooper - Human (2014) [FLAC|Lossless]<Techno, IDM, Experimental>
 ```bash
 magnet:?xt=urn:btih:DF3E59B6B09D1D4ED52062EC7B0E99AABBA8DAA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ Damon Albarn - Everyday Robots (2014) [FLAC|Lossless]<Brit Pop, Indie Pop, Alter
 ```bash
 magnet:?xt=urn:btih:E3B20FBCA34664023AD12A76230716CED82780E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B157389F36D19D2E1A000D39935BBC51B68B470E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9250A5ED6E17A5552D88B0FAC4F82EB849777F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ Tipper - Forward Escape (2014) [FLAC|Lossless|WEB-DL]<Glitch, IDM, Downtempo, Am
 ```bash
 magnet:?xt=urn:btih:BE46D3C90B422B4DB2A0221D0D2CE1ED055CBF92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ BBC. Мир природы. Кукушка / The Natural World. Cuckoo (2009) SA
 ```bash
 magnet:?xt=urn:btih:CB67F3E9D39BE75E7E70598968C9BE5FEA0E248D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6A09FEBB8367A3520460819A7948DBDBDF3314C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A298354F284A5DDB6FDDFC803B0BD1CCBD94FDE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ WinContig это простая в использовании автономна
 ```bash
 magnet:?xt=urn:btih:F8286C314576F99B56DC26FD9C6EB72CAE4BCD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +670,7 @@ Cris Cab - Where I Belong (2014) [FLAC|Lossless]<Pop, Reggae, Soul>
 ```bash
 magnet:?xt=urn:btih:EBB0A203B887AC324E29E111F35D15AFB47E0866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6300A1AF633532DCB06E0A3D0F8C18BF6800337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +726,7 @@ VA - Electro Swing VI by Bart & Baker (2013) [MP3|320 кб/с]<Electro Swing, Nu
 ```bash
 magnet:?xt=urn:btih:0C6D35BFCD33DDEDDCC03C4BCA79A075B15D0378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

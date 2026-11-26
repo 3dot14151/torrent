@@ -19,8 +19,7 @@ Whispered Secrets 7: Forgotten sins / Нашептанные секреты 7: �
 ```bash
 magnet:?xt=urn:btih:FE0830077173DBDE517195939CD68FF987DAFA37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ State of Decay: Year One (2015) [Ru/Multi] (1.0/dlc) Repack R.G Механики
 ```bash
 magnet:?xt=urn:btih:28AEF8739AD1459EBDCB747604CC4EAEA66670FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ THORNYWAY (2017) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:EDC3B4B6D9A1165CC2F36FF30F41E8791BB4E6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Murdered: Soul Suspect – увлекательное путешествие, г
 ```bash
 magnet:?xt=urn:btih:6291493127D1E03CD9475B416EA3524FD948D7D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Late Shift - это криминальный FMV-триллер, ставки в
 ```bash
 magnet:?xt=urn:btih:2E1AED34FBB62AA1190A71D46FE0212BC9AA5D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Corel Painter Mobile v2.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:C893D98359129BE5AFF6695F653903DBB4D00CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MeMeteo - ваш метео эксперт и повседневный помо�
 ```bash
 magnet:?xt=urn:btih:93C09F841F297E2835DE7777AB37B762EA541DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ aTorrent - торрент (битторрент)клиент. Качайте т�
 ```bash
 magnet:?xt=urn:btih:67AB606996C187B41ABAD2C99F0612983F393816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

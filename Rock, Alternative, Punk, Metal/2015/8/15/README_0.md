@@ -22,8 +22,7 @@ Hanna Turi - Tracks in the Water (2015) [MP3|320 кб/с]<Piano Rock, Alternativ
 ```bash
 magnet:?xt=urn:btih:D202DBB5325F94C3DA9306E8B4E8E2E40C4DA694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dead Letter Circus - Aesthesis (2015) [OGG| 490-512 кб/с]<Alternative Rock, P
 ```bash
 magnet:?xt=urn:btih:5FA0E3EA9F7DC8F2A1BE936017F4AA4B2687FA0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Linkin Park - Chiba City Japan Live (2009) [MP3|320 kb/s]<Alt.Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

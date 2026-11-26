@@ -19,8 +19,7 @@ Divinity Chronicles: Journey to the West - это захватывающий к�
 ```bash
 magnet:?xt=urn:btih:C80AA8FBA71A62710B6FD0225F87E5DA74DC8C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72C7741972E54271E36010659BAC627F134E9012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Europa Universalis IV – продолжение знаменитой серии
 ```bash
 magnet:?xt=urn:btih:544C64E6F9B159755D7F21476619A4D52F9A6E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gift (2024) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:FCC3233C25BD553AA6ABAE3495189EE10622F2A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Alan Parsons Project — рок-группа из Великобритани
 ```bash
 magnet:?xt=urn:btih:8C8FA323DC7C23C2EDFA43C9EF2A7C3FF27ABCC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disc
 ```bash
 magnet:?xt=urn:btih:58DF6D39AE8A45904FA395B0ABE78E0191C99F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

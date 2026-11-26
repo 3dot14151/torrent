@@ -19,8 +19,7 @@ HAAK (2022) [Ru/Multi] (1.3.1.17223) License GOG
 ```bash
 magnet:?xt=urn:btih:CCC0DB596D097DCAA99659E06AA466482A2E9EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ We. The Refugees: Ticket to Europe (2023) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:62818A234B38A48D669EB027F2D9555EF5E4C4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gone Rogue можно назвать иммерсивным симуляторо
 ```bash
 magnet:?xt=urn:btih:A8DE8A8A2195BEC16963C754B4838C51FD8B6C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

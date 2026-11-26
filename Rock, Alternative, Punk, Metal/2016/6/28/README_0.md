@@ -22,8 +22,7 @@ Widow - Carved In Stone (2016) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:C322BE181ED2853BD334CA8E7F22537598B67225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elephant Plaza - Momentum (2016) [FLAC|Lossless|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:A36B35E7E23860087810709945B7DBB4E3167022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Billy Joel - 2000 Years: The Millennium Concert (2000) 2xCD [APE|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:331AE317D9F59ADDFA8A22266143E4849238C120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Chicago - The Heart Of Chicago (1989) Unofficial Release [APE|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:15885126A24E822C9C25BD6CAE793A573020F794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Aura - Observations (2016) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D598694A4949F6AB0BA0A04928BEF4A40D29E6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Chris de Burgh - The Very Best 1977-1994 (1994) Unofficial Release [APE|Lossless
 ```bash
 magnet:?xt=urn:btih:0884909C5EBB13C3A844C9EB01840BC57E79985D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

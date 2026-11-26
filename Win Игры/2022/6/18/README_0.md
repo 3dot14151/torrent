@@ -19,8 +19,7 @@ Please Fix The Road - это красочная, минималистичная,
 ```bash
 magnet:?xt=urn:btih:C170B66DC698F58C42D819343BF423F2B002902A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

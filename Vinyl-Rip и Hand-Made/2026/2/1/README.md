@@ -22,8 +22,7 @@ A4 Carrie(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Ball
 ```bash
 magnet:?xt=urn:btih:A77A8D9A5B131DF7F5CA97E7FD12F303D9F055BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

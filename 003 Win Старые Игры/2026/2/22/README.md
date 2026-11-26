@@ -19,8 +19,7 @@ Need for Speed: Underground 2 - это аркадный гоночный сим�
 ```bash
 magnet:?xt=urn:btih:12E0D589CDB7287F007F2D37926EEEE8CB8A7893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

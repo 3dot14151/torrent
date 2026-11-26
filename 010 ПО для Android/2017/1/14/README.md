@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:212B1E9FE7DD3EC2809CC9313F9EDB8520CCFB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Olivia Drive Pro 2.7.8 - бортовой компьютер (OBD2/ELM327) [Ru/M
 ```bash
 magnet:?xt=urn:btih:2016C3252E865AF16F73B5F7FE5483C9691A9DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

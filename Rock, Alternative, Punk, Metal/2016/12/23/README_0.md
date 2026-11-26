@@ -22,8 +22,7 @@ O.N.A. - To Naprawde Juz Koniec 1995-2003 (2003) 2 CD, Compilation [APE|Lossless
 ```bash
 magnet:?xt=urn:btih:2671830BF84FA481E5EABE9E8FCFED3044B725B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Chocolate Watchband - The Inner Mystique (1968) Reissue, 1994, Sundazed Musi
 ```bash
 magnet:?xt=urn:btih:FDFAFD4D3AC7F80CAD768E17D9C25450BE303E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Madison - Best In Show (1986) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8ADB020BEB94A79F1DBF60290C6DAE037C2769FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nine Inch Nails - Not The Actual Events (2016) EP [MP3|320 Kbps] <Industrial Met
 ```bash
 magnet:?xt=urn:btih:0A87B09712EA613F6209F80D0B66D5B97C3D4CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D16592B3347F10E83302EEA75142DB18D3F2412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Dead Can Dance — австралийский музыкальный колле�
 ```bash
 magnet:?xt=urn:btih:9E0BE20B78A7E1E70ECDC876819C1F68F6ADB794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Blink-182 — американская панк-рок-группа, основ�
 ```bash
 magnet:?xt=urn:btih:1AA97C9936A5739F94DFF90A3F13A0B8036A13FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

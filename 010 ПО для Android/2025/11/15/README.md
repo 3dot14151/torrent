@@ -19,8 +19,7 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:70FA1FBE7D2A604996485DA80D16112F1060F3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22FAB7FD493DB226D875EE0263E789FD9E572B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:11D597E3068582F071D4331492373E5C9170650F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0692E961F4E4F374EA1D9D93D890D388317A26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53BE5164D3D85DBBEBC48E7C4C28427D95453AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Listen Audiobook Player v5.3.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A11BD1184F6DADA53447EF4293646289757D2ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Web Video Caster® позволяет смотреть на вашем ТВ ви
 ```bash
 magnet:?xt=urn:btih:3543F00913076CF6FF801E0817DC4AD6F75D7665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9444530487382F04115960509918C64FAE32D657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9274EC99FAB2F94EA43C1E346F63EF701F610C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Sense Flip Clock & Weather v8.99.8 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5368DD14456F7F27F39D9F195B07F341092BC0EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Sense V2 Flip Clock & Weather v8.91.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ED326CAD291725CF077439995DC5B10001060C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Smart Tools® это набор инструментов состоящий из
 ```bash
 magnet:?xt=urn:btih:F3080AE81416D8A6B20F4C6F5FA0AF32FA2D03AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ ProShot v8.32.1.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:85C92ED9DBC6612C2307580270722812D408BCFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ DRM-play — приложение для бесплатного просмотр
 ```bash
 magnet:?xt=urn:btih:7782036191B10CF65F0160274D0E559D5EEAF716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ PhotoDirector v20.7.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0B7F4D2CC43A03DF96E4D5EF791E1CE25F879077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ Bria Mobile: VoIP Softphone v6.21.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EE933F157DFE76C7D1625743396F61B7224708A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Mary’s recipes: рецепты, меню v6.7.0 Mod by Alex.Strannik [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:C127CF5B4B379B92DCB78E64F5A4A29FC21D623F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:872B2A2E6D3B0A18B92EABF9E01E3C4675FBB210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAC7A161709901BDF3F647919A9A44E7C76BFD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

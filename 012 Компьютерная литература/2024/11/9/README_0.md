@@ -19,8 +19,7 @@ Morten Barklund | React in Depth (2024) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:EDFD7686A79B207DDC154BF0009D10A0ADA5DD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

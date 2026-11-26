@@ -28,8 +28,7 @@ Black Diamond - Last Man Standing (2013) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:809A4ACD64E8649C583C92EEB830CC1B01060103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Equilibrium - Waldschrein (2013) EP [MP3|320 кб/с]<Epic Folk / Viking Metal>
 ```bash
 magnet:?xt=urn:btih:60A8CEF2398D655FC77BF09C6E141F00B6B507DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ James Christian (Ex. House Of Lords) - Lay It All On Me (2013) [FLAC|Lossless]<M
 ```bash
 magnet:?xt=urn:btih:4D1A143FDE538C1D7BA8013A8C9728299FBD9C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Roger Waters - The Wall - Live at Commerzbank Arena, Frankfurt am Main (2013)(bo
 ```bash
 magnet:?xt=urn:btih:07985D4A9885761674D2E41F86B1EA0D4CE864C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Equilibrium - Waldschrein (2013) EP [FLAC|Lossless]<Epic Folk / Viking Metal >
 ```bash
 magnet:?xt=urn:btih:EA44E16E4C2AA9B38738AEDAA946D0230670E632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Def Leppard - Vault Greatest Hits (1980-1995) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1AE395D5CDB1C096D8DAD14233293363CB20C867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Nirvana - Seattle Grunge Years (2019) Compilation [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:E7AB54B0830E2AFE151DB2A6A47229E35EA1DCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46174C2DCA3093EF4BBE5E7E6BCFF7348DCC472B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9218B3CC3A07B7430480BD906221B5DA4A03E033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F10F572ED1577613D517595A710A5B5ECD16A517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Nik Complete 2 Collection by DxO 2.0.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:496E7BA76498E3B31211615AEF6ACF05B9999607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Eric Joyner | Артбук Роботизированный Экзистенци
 ```bash
 magnet:?xt=urn:btih:91A986F3F55CA456CC19333A3A145AFA538167F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 ```bash
 magnet:?xt=urn:btih:2AE3A68A9B8DB1D88ACD8892FBF5965A90F3BD9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - Shine On You Crazy Diamond A Tribute To Pink Floyd's Greatest Hits (2018) [
 ```bash
 magnet:?xt=urn:btih:EFBE94238182D782289F7E1B2FC168B00E2FC083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:6443E9C97467D8739B5C0BB3C89B3333B20A6678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Halloween Chronicles 2: Evil Behind a Mask (2019) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:C0DD5D0C87B56A290ABE220D6140E9BD957362AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5D529941001E9A07094C60E76AE3E5E1CF62EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:B19DB65AAAFE4BD12C37E53CA6158269B09BE581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4F1A679D63347EE9E1368D0C0D7C16AC6845909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9C9ECC79BC53713BE22E4634D7B1FDE77CF8356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Helene (Hélène) Rolles - Ce train qui s'en va (1989) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:813F57C40C4C0DBF1C532E881FD775F97BC78C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64C7E4810CDE9C9AB37BA79D2DF3AD4A0BBAAE94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ Instasamka - Трипл Малыш (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap>
 ```bash
 magnet:?xt=urn:btih:3149DEA691B68669E527FD2DFB5BE51AA1818427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ NGW: Тайна Морского Дьявола / Manta Mystery (2011) HDTV [H.2
 ```bash
 magnet:?xt=urn:btih:62F771B20384A4195829F7482D56315B9F1663F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B71358540E47706C478FF18A8BFB3AC86FBCAB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83737B4BC17F0870936B7EF7F7E74F8AB72D0100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ DC Comics | Артбук по комиксам с Харли Квинн / Harley
 ```bash
 magnet:?xt=urn:btih:AE296E64912AF3B1EB09B89632479F40B18C0D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ Malzbie's Pinball Collection от Malzbie Games представляет пин�
 ```bash
 magnet:?xt=urn:btih:583DDC5CE6A0A115921C08270A35303985EC5ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ Elysion - наш большой ответ на большие вопросы! �
 ```bash
 magnet:?xt=urn:btih:FF28189470F2465B7B59C2362BE7542F2DAD8CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ Armin van Buuren - Balance (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:34BEE698F77F702C2D6E2E81F35A0BB79385F440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF0962DE1F73B3AECA5279866EED57F028B54CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

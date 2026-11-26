@@ -21,8 +21,7 @@ Destinity - In Continuum (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:2D4A1F13177BC3DC20C443881093D71CD7B4A95E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Hit Connection 2011.3 (2011) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:7D7FC47DFEB532C3FC296181331B483EF6D24A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D045644268FDFE56BACA7CF5DAB7D3C60504E19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ PDFelement Pro - профессиональный инструмент, кото
 ```bash
 magnet:?xt=urn:btih:91B8CDDB6E409622E43A47B5D3FEA3F332B64AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Sadao Watanabe - Naturally (2016) Red River [FLAC|Lossless|tracks + .cue] <Post-
 ```bash
 magnet:?xt=urn:btih:0F9F8F2B88533ED563D100D2206DAC3485E2C6B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AEFF3F145D3EFBCA0E0634D3B791966B0C52257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36F3B10FB96253C1470BA1B3BAF40E974FED5182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Manowar - Louder Than Hell (1996) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:17CD2E608FE455A7EDA035A8FB35192E61F4EB3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ VA - Melodic Ethnic House (2021) [MP3|320 Kbps] <House, Ethnic, Electro>
 ```bash
 magnet:?xt=urn:btih:86D73790BC5CF2B91EE0241CCBBE34185991E642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ LuLu - это бесплатный брандмауэр с открытым ис
 ```bash
 magnet:?xt=urn:btih:C4F86AAAF38F6783A9129C7761F3F9555ED97F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Capto (was Voila) - профессиональная утилита для за�
 ```bash
 magnet:?xt=urn:btih:9A88DBB5A27237DD27CE6E2283B453BC9CEFA987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Rosetta Stone - Retrospective Roller 1977-1979 (2004) 2 Albums + 1 Single [MP3|3
 ```bash
 magnet:?xt=urn:btih:805A77198A5773EC8692D2D8907377C7DAF0F12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ VA - Household Names: Indie Pop-Rock Collection (2021) [MP3|320 Kbps] <Indie, Po
 ```bash
 magnet:?xt=urn:btih:873E91BB7C2AE04DDF205082A1052E891452594A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74668012EDFDCADB18EDE6F7B1365B86E1CA0F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B62BEEC2E79EDEDBDA69EF485C0E17B1157EECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ X Lossless Decoder (XLD) - это инструмент для macOS, котор�
 ```bash
 magnet:?xt=urn:btih:627B731F7B8B37D04C6A209C564BE57097927EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6CAF4F7D43634EA7C43C8095886AEC8288272C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:1A0F91A664465205C31321633B6C0F3F578712E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:16FB26B064DDA31BBD170EE11BE5CF88368E24C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ VA - Calming Acoustic Covers: 14 Chilled and Relaxing Acoustic Songs (2021) [FLA
 ```bash
 magnet:?xt=urn:btih:144843692198F49B0A93F871D03C4AC0F3FE115C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ Overloud TH-U Slate Edition 1.4.5 STANDALONE, VST, VST3, AAX (x64) + Library ReP
 ```bash
 magnet:?xt=urn:btih:F54FE4D6DD0D2EAD13CCECB9811BED20F8B67112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:43E12E7B32096C7DE75B6FB302C30A368C9EBE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E3098E8E7687F157A1422880569A170A649BB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ Drake - Certified Lover Boy (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Conte
 ```bash
 magnet:?xt=urn:btih:0270A879EF25DE845FC80B1A0FAB3C073A7C8130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ VA - German Top 100 Single Charts 15.10.2021 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C8852E4405A167FF81F532845E49310CDCEE3031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ DrumComputer - это новый специалист по синтетичес�
 ```bash
 magnet:?xt=urn:btih:133A67E90377FC489560970034D3DDD7819E6E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

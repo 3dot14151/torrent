@@ -19,8 +19,7 @@ Murder Island: Secret of Tantalus / Остров Смерти: Тайна Тан
 ```bash
 magnet:?xt=urn:btih:8745BA06219428EE2340263D68EB40E4EE9B1902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ancient Secrets: Quest For The Golden Key / Тайны Древности: В П
 ```bash
 magnet:?xt=urn:btih:8052272A98EB3A73A9105ECD533DEBC31A32C684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bricks of Camelot (P) [En] 2007
 ```bash
 magnet:?xt=urn:btih:5BF3355848F5E78F401AE9CE746B6BD03D5BEF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hyperballoid  / Гиперболоид. Миражи (P) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:4A7190A8BAE6C4489F355C9B48BE592CE0CC6D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bricks of Egypt 2: Tears of the Pharaohs (P) [En] 2007
 ```bash
 magnet:?xt=urn:btih:BEB0575B6A360EF5790CECACCC89BF13562D8710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hyperballoid / Гиперболоид. Цветные причуды (P) [Ru] 20
 ```bash
 magnet:?xt=urn:btih:4C7D52BDF734FE860F1E4D7DC001C93CEFB897CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Build-a-lot 4: Power Source / Построй-ка 4. Город солнца (P)
 ```bash
 magnet:?xt=urn:btih:579FD25A2EA33E9E20A9096444AE32D51D726996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F48DF05D59F5E4D24073A615B67A5E0C32559F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

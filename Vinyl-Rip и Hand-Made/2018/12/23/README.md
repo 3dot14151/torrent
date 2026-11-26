@@ -22,8 +22,7 @@ Side One:
 ```bash
 magnet:?xt=urn:btih:CCFE9ED069FCB1E1E0D57B31D31D3D5680759410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side 1:
 ```bash
 magnet:?xt=urn:btih:2F9F73D39A02BFB74BDA20D934567DC5933EFDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Still Holdin' On(   Читать дальше...   )Жанр: Country RockП�
 ```bash
 magnet:?xt=urn:btih:809AAF5AEBE4B90562ECDD6AC81143FAEF8D6077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 You Two(   Читать дальше...   )Жанр: Rock & RollПродол�
 ```bash
 magnet:?xt=urn:btih:EE6966655A3FC70647D315931B2E0B51DBAA08E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Supertramp - Crime Of The Century (1974) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Roc
 ```bash
 magnet:?xt=urn:btih:022EDEE7353C7925A1A8419476F3C06B854D721C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

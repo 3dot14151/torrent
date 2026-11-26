@@ -19,8 +19,7 @@ Witches Legacy: 11 Rise of the Ancient / Наследие Ведьм: 11 Воз�
 ```bash
 magnet:?xt=urn:btih:AF128DD42A70B278E19879A8B4EB86D76FB1A884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.1.0) Repack =nemos= [Ultimate
 ```bash
 magnet:?xt=urn:btih:8076117C22A445F34901A0E1900877594E59861F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

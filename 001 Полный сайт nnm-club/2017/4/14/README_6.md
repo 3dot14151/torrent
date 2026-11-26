@@ -18,8 +18,7 @@ Bastion - ролевая игра с принципиально новым вз�
 ```bash
 magnet:?xt=urn:btih:42145A6D319DD1F8832C7D102A6E0ED7DE3205E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49430B104D3AD391B86EFD391F3696D21DDD09D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Ubuntu 17.04 станет последним выпуском, в котором
 ```bash
 magnet:?xt=urn:btih:0AEE45E391EA8374E57BBD998EE2C18A06734ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFC96B5C6EB9FC7344C53994D8C843A8D6302AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B173BC2786F8B5E82A1226143738A67D2CAADEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ SpellForce 2 - Anniversary Edition переизданная версия пос�
 ```bash
 magnet:?xt=urn:btih:99F6635FC7D07ADEA80D8BD8D7A8FD4AD3F2BEED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ AVG AntiVirus Pro 5.9.4.1
 ```bash
 magnet:?xt=urn:btih:9DAAE7504CB755A55AB13CEED1F41C686F9F3811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ FlexBox - новый способ разбивки контента на бло�
 ```bash
 magnet:?xt=urn:btih:E029443CAF9E6B3174198EFD2AC1FDA49275D435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Far Cry (2004) [En] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:E752C60B06C93642A6A26B2729D4431EEFD20139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:F1097B750C34F16E94A4ACF6516953033AC64733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Motion. Анимация для Final Cut
 ```bash
 magnet:?xt=urn:btih:2FF1AC01E67F6F9E5FB4C54DAA6A520864CEA5F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ VA - PromoDJ TOP 100 Club Tracks April 2017  [MP3|320 Kbps] <Club House, Dance, 
 ```bash
 magnet:?xt=urn:btih:B3346EF1BF0BCAF366F2C020BE0EF40F787F1B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FHM (For Him Magazine) - ведущий мировой журнал для му�
 ```bash
 magnet:?xt=urn:btih:1C7C0F28F0A04EC5D9D94C4C3D7BB7E0970A40C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD7A3FDF7ECA7A39223241992DDFF231C5B9F846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ World of Haiku (2022) [En] (1.0.0f5) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:28D6B5139DF3F2F2E27070CDB0340B4AA335491E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

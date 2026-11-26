@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:085EDA11D0D793C4F4816C437EED681FFDCD53DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ ProPro Group | bCAD 3.9 Руководство пользователя [2008] [
 ```bash
 magnet:?xt=urn:btih:3DDB5DB2E999D6D6C00B6B71191014855B9B5787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

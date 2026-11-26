@@ -22,8 +22,7 @@ Ancient Skin - Nobis Quoque Peccatoribus (2008) [FLAC|Lossless|image + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:0E02DFAD4394E41A810A24C47BAFA06E1F36FDE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eternal Suffering - Echo Of Lost Words (2010) [FLAC|Lossless|image + .cue] <Brut
 ```bash
 magnet:?xt=urn:btih:6C41DAD7B7BC1B34F2905EBE280963D67C4CB343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lоrd Оf Тhе Lоst - Еmруrеаn (2016) 2CD [FLAC|Lossless|image + .cue] <G
 ```bash
 magnet:?xt=urn:btih:F611F51611E72D1B3AE8B4460FF1525B35E8F079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stereoside - Hellbent (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Grun
 ```bash
 magnet:?xt=urn:btih:35D0E5578F79EB87E59EADCEFE012FB5AC964E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Quireboys - Twisted Love (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8E719F6ABECEECE23EE9C755C8EB890259B5C759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Shine 3 (1995) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:B7090C7178DB0DF6751050FCE0F0CA47D0BC4E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Rocking Rolling Living Loving Band - Thousand Percent Touch (2016) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:910A489D50CBC49F0532341949D8720EE64ED550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Epica - The Divine Conspiracy (2007) [FLAC|Lossless|image + .cue]<Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:B0A8FC8897D6217272DC4D4D339BDCF05E127A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Joe Cocker - The Album Recordings 1984-2007 (2016) 14CD Box Set [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:591EF87F71FE2BFB91F864FA62254493B6F464A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

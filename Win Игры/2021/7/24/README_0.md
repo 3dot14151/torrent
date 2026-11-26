@@ -19,8 +19,7 @@ Urban Trial Tricky — казуальная игра с гонками, плат
 ```bash
 magnet:?xt=urn:btih:79C26F8F726D3019F47499AE327133A553E32D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gods Will Fall (2021) [Ru/Multi] (35/dlc) License GOG [Valiant Edition]
 ```bash
 magnet:?xt=urn:btih:1B3E96A6BA91FA05F444EA37A2651D779840B995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Summer of '58 — это психологический триллер от пе
 ```bash
 magnet:?xt=urn:btih:8BDC640CCA76B8FC3CC2FCAC33DE0F2DEE5E25A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

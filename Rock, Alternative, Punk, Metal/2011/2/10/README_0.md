@@ -37,8 +37,7 @@ Sting - 3 альбома (1985-2010) [FLAC|Lossless]<Pop/Rock/Orchestral>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

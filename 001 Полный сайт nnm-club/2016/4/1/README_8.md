@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:F28037657C0B515EE89D73462B80AABB79339EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Debian 8 Xfce Custom v5 2016.04.01 [Авторский релиз] [x86] 1xDVD
 ```bash
 magnet:?xt=urn:btih:EF2CE68494002271F4F16B81FCC540C3FA81684A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B44B1E35F32576F4399769ECF9AE5568C5D3F921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C7970E1D91D5286ACBDB4DCEBA4BF0CF4E0B8DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Deadbolt, хардкорный стелс-экшен. Смерть перево�
 ```bash
 magnet:?xt=urn:btih:4D94A1F759C650D388C57AC78DE53C29A1F17DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83FB790F2E567D42DA2F7B66F22EE7E26C97FB56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Boku dake ga Inai Machi / Erased / Город, в котором меня нет
 ```bash
 magnet:?xt=urn:btih:7088B22E8929835D5BA3A1E1F9A02673A58223DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Resident Evil / Biohazard HD Remaster (2015) [Ru/Multi] (1.0) Repack R.G. Мех
 ```bash
 magnet:?xt=urn:btih:9293BD0A5FDE2FD4E6A5AB46F2485E70BB7F0C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Visual Studio 2015 — это интегрированная среда разр
 ```bash
 magnet:?xt=urn:btih:12B624815CF6B282B0F771EBCC5A7147EA76DAEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46B683FCDF09770AF5AAC0C0FCA246001ECCB2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Here Maps v1.1.10201 [Ru/Multi] - Навигационная программа
 ```bash
 magnet:?xt=urn:btih:28CE16CF34A279C149E8D67F22E4F5B26D790A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D374D5D2639A162C8F82AFF3857EE6539C12913F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

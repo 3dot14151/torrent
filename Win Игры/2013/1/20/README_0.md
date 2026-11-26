@@ -19,8 +19,7 @@ Death Pages: Ghost Library Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:B6435100142190C515B13F3AFA866AACE3E77E6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enola [En] (L/Demo/0.5) 2013
 ```bash
 magnet:?xt=urn:btih:58E52D209B6E3C7EB3BA833F2227FCC047996A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Luminesca [En] (RePack/Demo/0.1.2) 2013 | John2s
 ```bash
 magnet:?xt=urn:btih:F059BD3390D59BCEF5F63F9FC133801723DFDEEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Helldorado [En/Multi5] (L) 2009 | *PROPHET*
 ```bash
 magnet:?xt=urn:btih:AF9AB2B4F7217CAEC5BC67C9C53372C22D6A363E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Lineage 2 Interlude [En] (P/Client) 2007 l AceWorld
 ```bash
 magnet:?xt=urn:btih:8A7906F39B8A977E5B45C2A36AA5FD75208EB9B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Crayon Physics Deluxe (рус. Карандашная физика) — инди
 ```bash
 magnet:?xt=urn:btih:5E78207C8AB3D31C8F37A1BF6C95A6F65A1D1E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Gas Guzzlers: Combat Carnage / Gas Guzzlers: Убойные гонки [Ru/En] (
 ```bash
 magnet:?xt=urn:btih:40E8A32C0147013D6A4B4560940899CBE2E853AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Saints Row: The Third + 19 DLC [Ru] (RePack/1.0.0.1u4) 2012 l Naitro
 ```bash
 magnet:?xt=urn:btih:0B3566A3FF67C9C9A2E19FC5115711D96A2BFB51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Scartown - Легенды Большого Города (2006) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:868C6F78753D3F61B842D609C107A6EB918B70CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F12C591856C6E40A4187BE08634FFED3DCE7383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

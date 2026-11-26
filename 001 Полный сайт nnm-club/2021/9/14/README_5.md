@@ -22,8 +22,7 @@ Andreas Aarflot - Det rivna pianot (1978) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Ro
 ```bash
 magnet:?xt=urn:btih:514996D543EDAC010A12BD20A24D4F1F18A0C8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:755A3990397D538C7FA516FC948108A155465957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Syndone - Kama Sutra (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:29B600B054F3090BD9858FB95849BCFAFF88766E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84AA18A82E297ACBEC437BD1DE7D4AD2F14824B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Ancient Empire - Priest Of Stygia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:A8D75DC070ACD880207EDA8E15B00FA770D0429D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Eekkoo - The 4th Season (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech H
 ```bash
 magnet:?xt=urn:btih:8B450E415689C00941AC996D173768C7F07482D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Ancient Empire - Priest Of Stygia (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3777D9B2050AD76300C2D6126670B3FC679893A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Turboslash - Speed (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Darksynth>
 ```bash
 magnet:?xt=urn:btih:39A2135698760E51E0D48E5AAAF3E8FBCB5EFCC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16F43A72284BB04DF46C72130C65D617451FED4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Turboslash - Ions (2021) [MP3|320 Kbps] <Synthwave, Retrowave, Darksynth>
 ```bash
 magnet:?xt=urn:btih:809F20A0C44EC84A6D416CECD121CA468862179C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:50E872FB628DB9AC6B4D12C92BD5DEF9D6F4196F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ CD - 1 - Rise To Glory -8118- :
 ```bash
 magnet:?xt=urn:btih:9FCCEF78C86BE1A4765685CC983631A9C37C7079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B377B683C0BFA4C9C3A43079F90DA5A540D76E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B67BEFDCBB872B81AC409AF003EC5E53135C2CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:C40B1E0083A6D773A48A862CFA017F2C19A7A883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Various artists - Mulheres apaixonadas [Internacional] (2003) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:4C5F47818A4B62017C4038A9E73894B0637A446F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ Opera 78.0.4093.231 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AF04DF1CD4C329DA3F6000E8FBF327759EBFD9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ The English Garden - журнал для всех, кто любит краси�
 ```bash
 magnet:?xt=urn:btih:CA626FE8E9FF0A23B252C6B9E468985F0972B7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BF0104FF1CE1312DC9B63B022083C0E009A7336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:6BB64C00148D9CFE11BDD9893DE4E808CB32999D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Dirkschneider & The Old Gang - Arising (2021) EP [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1D1ACAD6CB22D04DB0F4FBB4380F78678073C087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ The Holiday Movies That Made Us – двухсерийный документа�
 ```bash
 magnet:?xt=urn:btih:87BD2B14BE2AE00083A70B35823DCA9E098A88D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ Dirkschneider & The Old Gang - Arising (2021) EP [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:07C6521A7C2DA137F666A206DCD75B67DFCF3B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:D44109DA36BA0EDD1EEAD3C7DD11F05C120DEEFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC141E43E4B5D0594A53709BF9154901EB239FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD2FC60AE4FAA73782EDB5F5B13F148D95F39E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

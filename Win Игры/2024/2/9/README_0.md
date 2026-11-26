@@ -19,8 +19,7 @@ Boxes: Lost Fragments бросает вас с головой в роскошн�
 ```bash
 magnet:?xt=urn:btih:5DBBC317FD3E3F6518D18C2886BE8F8C99520FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nexus PI (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2607A6DEA1DB6AEDFC3FD8E89AE4D02FAA7CC0E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CLeM (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9977BDF3BC0AAB7CCAEC61E5CF3661419E4F29A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Axiom of Maria переносит геймера в будущее. Соглас
 ```bash
 magnet:?xt=urn:btih:DEA552B08E96F0B0F5897D76A1C65D3AFE754B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cursed Fables 4: Before the Clock Strikes / Проклятые предания 
 ```bash
 magnet:?xt=urn:btih:5904AEE6BF2D3616D606CFB313600E179FD03BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ River Town Factory – а что вы скажете на то, чтобы от�
 ```bash
 magnet:?xt=urn:btih:0489AB7F4FA17BDB4FD2CADF99EB7E2FA1CC0CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Legendary Tales возвращаются с новой историей-прик
 ```bash
 magnet:?xt=urn:btih:E599E63CD0766C4A7C6914B8B9089C9E7D3954BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

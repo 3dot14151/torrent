@@ -19,8 +19,7 @@ Mystery Tales 13: Til Death (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:4E2151B1C3636415D0DA38D7A2A4DDEF6CFCFEA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spintires®: The Original Game — уникальный симулятор от 
 ```bash
 magnet:?xt=urn:btih:D4695DBE1A0C96A3D95CBFC63FDDD5BE59F0CE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

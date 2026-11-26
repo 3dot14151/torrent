@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F49B4984E0EFA6AADF6439593834C592C5FE2B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Textra SMS v4.70 Pro
 ```bash
 magnet:?xt=urn:btih:DBC2CAD723E8D924FC043FC266FBECE9D76D4B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

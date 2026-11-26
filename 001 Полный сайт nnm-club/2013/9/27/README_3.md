@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E3A199FE7A719BFCA2BFB990FBD24ED5FE541AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Ashampoo Music Studio 4 - всё-в-одном для создания, реда
 ```bash
 magnet:?xt=urn:btih:A64C85D45A669043838D307792C4EB4007030845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA49AA3538F6D072806414A716AA10296A383351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:380402BAEDD95867E8AD1DE300A590BB3823997C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:757562EF522A4AA053F2E7464BF471952DF2B978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Satyricon - Satyricon (2013) Japanese Edition [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:B3D287E18111A038FFA638A65C4BF4F74B760F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA4B94ED4F84681F4A24A67B9E09847593B40318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4ADC250A921FC33FD48D33712E2FD2EEDC8ABEE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Andrew Kinsella - Evolution (2008) [MP3|192 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:0B1FF75571153DBC3E2B23F45E24ADBCD546B44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ VA - The Hangover, Pt. III (2013) Original Motion Picture Soundtrack [AAC|WEB-DL
 ```bash
 magnet:?xt=urn:btih:15804D8E049C90835DCFEFA36A70C2C74B514D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
 ```bash
 magnet:?xt=urn:btih:EA435889FAD4151E93E3021B9E4469BAB16A2B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Comedy Баттл. Без границ. Выпуск №19  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:3FDF08AFD9477E4E14157698A9FF058ECB2A62FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Comodo Dragon - браузер, использующий последние те
 ```bash
 magnet:?xt=urn:btih:FAFB42CF9E2548BA58401DC9508EE49B5B42336E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBAAC567461F9F20F065639F32D908B6296FCFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E095C9A3DB89DC4694DC08394B42A810C0DA07C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF4924E0100A69E8466A477775F73B97F4CC073B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78AA1CA41F9F80CF174F1549E4B3F1DE8170670F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Wallpapers - Флаги [JPEG]
 ```bash
 magnet:?xt=urn:btih:7C661C41605E3F81CA4218BD1B4ECA79D4798DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25E714B8F2E74445805E6B4B41313BA4B536CA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEDB93108422207E77BEAF44784D4465E271708D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Soulfly - Savages (2013) [MP3|320 кб/с]<Groove Metal>
 ```bash
 magnet:?xt=urn:btih:4CBA14A880672CDC7A24344E2FA139BC57C5452E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Moby - Innocents (2013) [AAC|256 кб/с]<Ambient, Downtempo, Experimental>
 ```bash
 magnet:?xt=urn:btih:2562216A02170506BE256C21FD9E2B86425D2699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ VA - Джобс: Империя соблазна / jOBS (2013) Original Motion P
 ```bash
 magnet:?xt=urn:btih:5A2909A26FC17F3B415DACD6B5D3CE5715C72252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:226C0CE504129B9EB901E37A8AA8664F1B847898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D344034D698AE0B9C6F57042C5588B78999FCAEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ Handy Start Menu 1.90 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:16F7BE2E0783E2597D1ED4F738633D32FFE01060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

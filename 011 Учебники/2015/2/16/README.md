@@ -19,8 +19,7 @@ LLC Yamazaki Mazak | Базовый курс для обучения прогр�
 ```bash
 magnet:?xt=urn:btih:B6FF1B661EB32C71151B15EC13F9D2246A0B9688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C107EC4643C7FBC744FE499F74B5670FB9C41732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

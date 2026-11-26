@@ -19,8 +19,7 @@ HandWriter v1.4.7 [Ru/Multi] - Конвертер текста в рукопис
 ```bash
 magnet:?xt=urn:btih:932C9150A9907396E7E99EB32D342325B3B4479B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Battery Alert 40-80 Pro 1.48 [Ru/En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:F2B9FDCFD40478868C444A0122926C85ADE62A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

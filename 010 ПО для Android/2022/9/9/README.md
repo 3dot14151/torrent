@@ -19,8 +19,7 @@ Music Writer - Music Composer 1.2.275 [En]
 ```bash
 magnet:?xt=urn:btih:C8A3725704DFC8F9399325F2C01FC12E6ED373DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Universal AC Air conditioner Remote Control 8.8.7.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:17397A71D82E3B9F3D26A9DF74C6C011AD68A097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Deplike позволяет вам наслаждаться полной наст
 ```bash
 magnet:?xt=urn:btih:7F0326D1E1125806F862B244E58BA1CE5144D1AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Webcams 2.0.17 [En]
 ```bash
 magnet:?xt=urn:btih:B5BE4115E98123333E90F4B633BA460C054AA768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DEF47EDCFAB1BFC1CB5F69195E3556FC1A1CE947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ iSpy - программа, которая с помощью микрофона �
 ```bash
 magnet:?xt=urn:btih:639D7D7E8F922E4F3ADE161CA4E576E632350EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Football Manager 2015 Graphic Megapack (2014) [Multi] (6.3/3.0/5.3) Mod [Cut-Out
 ```bash
 magnet:?xt=urn:btih:68F60E5CAC9B5A887DF45C676AE2BCF4EBB7C84E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9520BA7A3D3090CC99B03D99779FEBCA13C2F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B82C6560A988B18CEF42EA5E36F838C1C82D34F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ PCRADIO 4.0.5 Premium [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B44B462A4FD7A55C57584A5FCC4588A34E421B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Evolve (2015) [Ru/En] (1.0) RePack =nemos=
 ```bash
 magnet:?xt=urn:btih:E09F1E50ECF887E2A45B7D6DEE9B94FE1568737D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ ESET Endpoint Security 6 — это комплексное решение для
 ```bash
 magnet:?xt=urn:btih:50EEB4180846389F1BE0FC7827A03E97595C5BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Microsoft Windows 10 Pro - Оригинальные образы от Microsoft 
 ```bash
 magnet:?xt=urn:btih:6855DA932AC1D8A61B71BB2276275698AE84A1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

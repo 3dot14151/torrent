@@ -19,8 +19,7 @@ Woodworker West - американский журнал, издаваемый р
 ```bash
 magnet:?xt=urn:btih:F26D7DCD4A41BC3EFA3BAE99008029D049619EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Woodworking Craft — журнал по столярному делу предс
 ```bash
 magnet:?xt=urn:btih:5AD869610DDD5592D35E665F35A7AA2532CB4A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5ABE425BB7FC770FD57AD2AA1FEB59708697237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEF2C5AD178D74C9F09E45E1D263347DB1621F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Silver Case (2016) [En/Jp] (1.01) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3E4DF16A9CAC1942D594D9FC2A742DF95B73210F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

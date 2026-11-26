@@ -22,8 +22,7 @@ Braid Skill - Prior (2015) [MP3|320 кб/с]<Groove Metal, Metalcore, Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:CD16F74BC3DE3052D41EA2A89276C10D83068D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Textures - Phenotype (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Math Meta
 ```bash
 magnet:?xt=urn:btih:7345CE8A35281E4F737EA16EED0A02F1CE2A9787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ BBC Sounds Of The Seventies 1972
 ```bash
 magnet:?xt=urn:btih:2A462A32E2B4C6705DAA3B8419F54107B3D298EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Status Quo - Hello! (1973) 2CD, remaster, 2016, Vertigo, Japan [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:AB000FF8A778D47A6C8A91085B4CE37378F7CED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Suede - Night Thoughts (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, A
 ```bash
 magnet:?xt=urn:btih:68D1BCCFBF08B7E5F6199D8AA147B2FEB892F200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Status Quo - Rockin' All Over The World (1977) 2CD, remaster, 2016, Mercury, Jap
 ```bash
 magnet:?xt=urn:btih:E642A79E2C865B91ECC1DCF9DD74E089A6B4D4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Striker - Stand in the Fire (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:74D539A7C614FD2550EE51D661ADE5E576603881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBF753BC47343E0CD7F17239F8644C3BD3706384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Gorillaz - Gorillaz (2001) Collector's Edition, 2016 [MP3|320 кб/с] <Alternat
 ```bash
 magnet:?xt=urn:btih:0B0100B0B2F1AC564A9339E54885AB907C09242E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Nautilus Pompilius - Крылья (1995) [FLAC|Lossless|image + .cue] <Rock , Ar
 ```bash
 magnet:?xt=urn:btih:4FD99DC2D8EB861C1EE15F9283EE82F7188F4955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Scorpions - Best Ballads (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:49DDB9D2DA345C9BDAD7F934381F82AC4D231AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

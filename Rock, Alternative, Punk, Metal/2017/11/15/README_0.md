@@ -22,8 +22,7 @@ Game Over - Claiming Supremacy (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7DD7AD3FDD6E6E3D3025F9746E472F00051A5394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:76EFDC6D48B03F20EE5DCD2AE3D71A064B455773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

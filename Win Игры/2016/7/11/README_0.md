@@ -19,8 +19,7 @@ Fossil Echo, сюжетный платформер, бросающий вызо�
 ```bash
 magnet:?xt=urn:btih:24FA65BEF94CBD7D78E865225CB56E0CAC0A5091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Effect 2 – научно-фантастический шутер, прод
 ```bash
 magnet:?xt=urn:btih:2CDBFE7E523754E05BAAEFFFDCFEE25132DDA4D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Survivalist (2015) [Ru/Multi] (57) SteamRIP ALiAS
 ```bash
 magnet:?xt=urn:btih:5D04E5DBF698C4493871352417D405A02CFD4848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

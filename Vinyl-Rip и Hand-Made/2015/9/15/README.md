@@ -22,8 +22,7 @@ A4. Inject The Venom (3:31)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:38BBE28B527E495331EE968026B352FA3785AAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

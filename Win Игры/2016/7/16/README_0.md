@@ -19,8 +19,7 @@ Ashes of the Singularity - многообещающая футуристичес
 ```bash
 magnet:?xt=urn:btih:9CD8275EF1E6763704951F95D495B0688D84D7C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VECTOR THRUST — полный действия стремительный си�
 ```bash
 magnet:?xt=urn:btih:E431E99CCEC36E42F47C163EFCA003D2AD8C51B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ MechRunner предлагает игрокам выступить в роли п
 ```bash
 magnet:?xt=urn:btih:3B5DB0626AB0FDC76C5AF3B9B7CE87846E4734BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

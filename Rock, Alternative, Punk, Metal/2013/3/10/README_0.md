@@ -28,8 +28,7 @@ Epicrenel - The Crystal Throne (2013) [MP3|320 кб/с]<Epic Power Metal>
 ```bash
 magnet:?xt=urn:btih:FBACC527EC3F31D5C51E63D9EDAE17C3ECE9B7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Love Is The Knife 4:41(   Читать дальше...   )Жанр: Pop, RockП�
 ```bash
 magnet:?xt=urn:btih:0B773BAECFAD0785217D14C02AF2E88F3951D91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

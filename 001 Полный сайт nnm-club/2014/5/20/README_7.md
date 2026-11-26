@@ -24,8 +24,7 @@ Northcape - Glasshouse (2014) [MP3|~227 кб/с (V0)]<IDM, Chillout, Ambient>
 ```bash
 magnet:?xt=urn:btih:209A957016D42E792AEA8A3EABB34FF9D9541280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ BeerBong - Murder Party (2006) [MP3|~256 кб/с]<Punk Rock, Melodic Hardcore>
 ```bash
 magnet:?xt=urn:btih:F44A82459B46E2EAA3969A7622D20C31CC845B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Deadpoets - Paper Crane (2014) [MP3|320 кб/с]<Atmospheric Post Hardcore, Scre
 ```bash
 magnet:?xt=urn:btih:A0AB7A865328FE0658CC9837E584198A8784C6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Repeat Customer - Slackers Unite EP (2009) [MP3|320 кб/с]<Progressive Techno>
 ```bash
 magnet:?xt=urn:btih:BDFB5EF84107373F8E6CA7662F8D607C41A35EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ VA - Clubland Lounge Vol.6 (2013) [MP3|320 кб/с]<Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:8262402D854ADA61CE2B4D17C2A8BE4521D825B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Charles Tyler And Brus Trio - Autumn In Paris (1988) [FLAC|Lossless]<Avant-Garde
 ```bash
 magnet:?xt=urn:btih:C58AD3C789AE84DA56F2C87825AA64F9A6D7736D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7889F25BB384554C086A20BF70B8667D74080514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ VA - Lounge Paradise Selection (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:FC3501D7C532E6A4B25F66F7C2E4600F415D2E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ Dana Gillespie - I Rest My Case (2010) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:A806D442307895BFF80AA8C9740BB417E418C68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ Juicy Bits - Honey Dolphins (2012) [MP3|320 кб/с]<Progressive Techno>
 ```bash
 magnet:?xt=urn:btih:04EC6478EA047B804B1288B4BFA590799E2401D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ Nozem - White Noise In C Major (2011) [MP3|320 кб/с]<Progressive Techno>
 ```bash
 magnet:?xt=urn:btih:7C10014C737EE1FD7E75FD7EEE1DF2F19954001B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ Kat Gang - Dream Your Troubles Away (2014) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:6CDF3AF2706DEDA8B4247F2E69BAF799490530DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ Soren Nordstrom - 2 релиза (2013-2014) [MP3|320 кб/с]<Minimal Techno, P
 ```bash
 magnet:?xt=urn:btih:51C68BD669D13976E7637F2E32D0DF304E9C090B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ SynWrite Editor - мощный текстовый редактор для про
 ```bash
 magnet:?xt=urn:btih:C5EC8FF0696BD9DE95268CC04CAA72EF6DC81074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ Dana Gillespie (урождённая Richenda Antoinette de Winterstein Gillespi
 ```bash
 magnet:?xt=urn:btih:01CB2C76DF8188C390803480EFFC236C8B8B3215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +488,7 @@ Charles Tyler - Eastern Man Alone (1993) [FLAC|Lossless]<Avant-Garde Jazz, Free 
 ```bash
 magnet:?xt=urn:btih:20B94FDAC216262F194BE4F696A7EE03F3FB9C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +522,7 @@ Adept - 2 Альбома (2011, 2013) [MP3|320 кб/с]<Emocore, Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:D8B00ABC90C648C3C521739611AEE0DC8B6D9C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FEB7DAF5F10FB4718BE1E417FFF12D5F8CE073B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09F4A6F7C3F397C8F4B44D7677BC7B4DF72EF40D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ Dave Moretti Blues Revue - That's Swing! (2014) [MP3|320 кб/с]<Jazz, Blues, S
 ```bash
 magnet:?xt=urn:btih:D507B192848B472F4942E45DC3E8AA3169C7BD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +640,7 @@ Paul Hazendonk - Adapt (2014) [MP3|CBR|320 кб/с] <Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:65289D357F1D7E8D348FBC08B0B2AEC7E4B3C87F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +669,7 @@ Hola Ghost - Chupacabra (2014) [MP3|256 кб/с]<Rockabilly, Surf, Punkabilly>
 ```bash
 magnet:?xt=urn:btih:92958503322D959BEAEDF66ABD34359016032C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +703,7 @@ Planet Full Of Blues - Hard Landing (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:CA1ACF58E854260FE81293461E20527D5DC00830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F95F4869B2CB917520FB8CF9F052691D7A5E065D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE23E906180BEE35DE1407CF557D0F01775FF82E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -803,8 +778,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:455A97B1A9CEC1F78543771E0437E5A142CCAD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

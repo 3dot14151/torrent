@@ -21,8 +21,7 @@ Alien Breed™ Impact — это взрывной научно-фантасти�
 ```bash
 magnet:?xt=urn:btih:D5A35CAA870083314A766994E1D96E2221B77A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

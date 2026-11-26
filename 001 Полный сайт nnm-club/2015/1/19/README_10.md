@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:BD541F0D1F0C6B9EB932239C6E6AADCC02866592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Dodsangel - Helgrind (2009) Demo [MP3|320 кб/с]<Black Metal, Crust Punk, Fema
 ```bash
 magnet:?xt=urn:btih:AA6329F55CDB59176ABE0966055049C2B5F64865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ VA - Sushi Volume 39 (2015) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:32E83DB8D74C87D56C9FDBAC9EB2273B0F8515C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Martin Nonstatic - Back On Earth (2014) [FLAC|Lossless|WEB-DL]<Ambient, Dub Tech
 ```bash
 magnet:?xt=urn:btih:4158050971A022EFB785D20D556CE1E3083B7C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Sayer - Random Access Melodies (2013) [MP3|320 кб/с]<Berlin School, Ambient, 
 ```bash
 magnet:?xt=urn:btih:85C66326EBEB31651CC68F4714B31BD4638A3197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ VA - Trance Maniacs Party: Trancefer Wave #146 (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:96E01A484B800710DD26F8277985D4BD8E94C18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ VA - Trance Travel Vol.50 (All Around the World) (2015) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:14EE7E8843A25034C0A151D1951CCDB1255331E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E81A6DF04E212EC6283A057E55C34025C464E1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A009E1E718CB5C70343AAD045134F77A1AF57CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ VA - Vendetta Compilation (2015) [MP3|320 кб/с]<Blackened Crust, Hardcore, Ne
 ```bash
 magnet:?xt=urn:btih:7E975157358BBAEF766EF76DA645DE30B5F71984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Lonnie Smith - Mama Wailer (2011) [FLAC|Lossless]<Jazz, Jazz Fusion, Soul Jazz, 
 ```bash
 magnet:?xt=urn:btih:CD4FA8A9BB833BCD9B0B03590DD877F959D9F500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ Romeo’s Daughter - Alive (2014) [MP3|320 кб/с]<Rock, Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:6C547A5B03162DB1A58C66F48F8889D957E1A6BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ VA - Big City Trance Volume 74 (2015) [MP3|320 кб/с]<Vocal Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:8075D55E8807E603A09537536019B9C88203E5EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +431,7 @@ VA - Next Generation Trance (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:0466A980DB260C1963BC72ACA254EF14CB7E865C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +465,7 @@ Bad Sector - Absolute (2015) [MP3|320 кб/с]<Dark Ambient, Experimental>
 ```bash
 magnet:?xt=urn:btih:CCD7E1EC86E236AA00C172B219C7AE7A1920B31B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ Luv Machine - Luv Machine (1971) [MP3|320 кб/с]<Prog-Psych Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BB224F840AC2B62931C15B46FF29A68F08A6A7AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5235BF914C2BC5DBD4750DBCB45DCDFD8A3ED94E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +557,7 @@ VA - Trance Eve Volume 73 (2015) [MP3|320 кб/с]<Vocal Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:9EA14F83D86ABE3EBBD255CDD780431FAAC75AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A79771D81DA842ED93C76FC10C978B4CC86B124B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +614,7 @@ Weedie - Tep Sava Galvos (2014) [MP3|320 кб/с]<IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:ECCAAB08EF23EFD96DFCE7A785F7CFC645DC496E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +648,7 @@ Tikkle Me - What Is Real (2014) [MP3|320 кб/с]<Electronic, Indie Pop, Synthpo
 ```bash
 magnet:?xt=urn:btih:0D156BC83D3B9486D35AC5D4BCFDD4B395FE97E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +681,7 @@ VA - Hits Cocktail Vol.1 (2015) [MP3|320 кб/с]<Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:8A100754F92CD46E35803CD5B313090350AF93A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +713,7 @@ VA - Electronica Masters Top 100 Hits 2015 (2015) [MP3|320 кб/с]<Psychedelic,
 ```bash
 magnet:?xt=urn:btih:358C43BDD889BAEF7970DB8740967539C262B3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2907EB057CEB7F8446C9CDAEC0DD781056D0202A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +767,7 @@ Albums, EPs:
 ```bash
 magnet:?xt=urn:btih:7BBDC94B3EA2AE1D0A49D709C5E70078CF5FBFAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -826,8 +801,7 @@ Ella Fitzgerald - Ella Abraca Jobim (1997) [FLAC|Lossless]<Jazz, Vocal Jazz, Bos
 ```bash
 magnet:?xt=urn:btih:6738BA9BA7BCC7493F4EAE21C79F27CF9FE96205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

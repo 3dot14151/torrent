@@ -19,8 +19,7 @@ Amax Interactive представляет новейшую главу в сер�
 ```bash
 magnet:?xt=urn:btih:E965F8F5BFCF936F5AA89395F31CC60F00847C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ghost Files 2: Memory of a Crime / Дело призрака 2: След пре�
 ```bash
 magnet:?xt=urn:btih:2474668A12D64DE0CB7EFF3748B325D7D90F3DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Call of Juarez: Bound in Blood (2009) [Multi] (1.1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CADADFA6B8ADAB4817B3F050EF26303F8A622C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Sting - Brand New Day (1999) [FLAC 2.0|48/24|tracks|DVD-Audio] <Pop, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:27E2CD874E0636EC9096A84BD77EAC022BEE7DCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

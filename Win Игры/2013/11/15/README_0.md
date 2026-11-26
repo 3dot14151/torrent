@@ -19,8 +19,7 @@ Whispered Secrets 2: Into the Beyond Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:336D6000BA5A57D77CB8A0602E1E14FF62C4BE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Blood Knights рассказывает историю Джереми, охотн
 ```bash
 magnet:?xt=urn:btih:8624D1DE72F94987EC9A4030743F165D4104D67A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Zigfrak - космический шутер с элементами RPG и во�
 ```bash
 magnet:?xt=urn:btih:04844EACEF5AD90E635016D6E02FB5EA52E2A10B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru] (1.09) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:EF3C03681C91FBA6C722991B42BB6F98D66FF2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Aliens: Colonial Marines (2013) [Ru] (1.4.0) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:E70CEFC7581F677C763C0689456F677F506BAD7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

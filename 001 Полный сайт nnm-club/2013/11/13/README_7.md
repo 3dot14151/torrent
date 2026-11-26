@@ -28,8 +28,7 @@ Hail of Bullets - III: The Rommel Chronicles (2013) Limited Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:92841ADBF1D9744517798E196CCD9600C4A1DBA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Always Synthopia Source - TRANCE (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F3D2795C94DE1B21A3F29AA2C53BA2E54954BD59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Trance Maniacs Party: Progressive Session #58 (2013) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:E18466F9D84ED4BD4F66D31FDAE72446C3582CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Sense of Vocal Trance Volume 24 (2013) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:077507FEB5FC4CCBB2750E62D1F7AC4C88304FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ DanyLove - Лучшее 2006-2013 (2013) [MP3|320 кб/с]<Downtempo, Ambient, R
 ```bash
 magnet:?xt=urn:btih:64DF4A1AA25F8A12E3CCAFEA5FAE52D814469C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:E7E260AA183936A948F32E6B1CCD7374C59B1636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ The Psychedelic Ensemble - The Tale Of The Golden King (2013) [FLAC|Lossless]<Pr
 ```bash
 magnet:?xt=urn:btih:7936FE5FF2CB6E5BAEF6261D36C0635D7EDE07E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Falkenbach - Asa (2013) 2CD [FLAC|Lossless]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:11043A5B2DCD72F0E5E452652EF99140AC91F513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:413D65785CEE8564C14CF7490B66E69BFE809A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDC05CFB3339C19201533285D8EBF464D05B2F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ DSLR — как много смысла заключено в этих четы�
 ```bash
 magnet:?xt=urn:btih:F25FA655950A5B169E7B9B3592EAD2CCA4D5B2D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0034F6F634A436560084EC6C6D81D20A939C8A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B27CC9AFC7410B4BD1C0C56769CF37B110E1D49E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ VA - Buddha Lounge Vol. 7: Essentials India (2013) [MP3|320 кб/с]<Chillout, L
 ```bash
 magnet:?xt=urn:btih:6F937E74683B6D5F623E227CD65361A85A39BA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ DVD2 1:53:03
 ```bash
 magnet:?xt=urn:btih:E74AD23D6F7604A291710AA42A7751BB615463AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1FEECDDF7B07ADBF7AE2A9319EED97837779AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ Muse - Live at Reading Festival (2011) (Origin Of Symmetry Full Lenght Gig) [Mul
 ```bash
 magnet:?xt=urn:btih:9D52947F9162A84E68F7D284B081B976AFF6EDF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECDE1093A045DAB0007D0EFD77BC2FB3CD389C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1401C5F3B9732B5D481BF4BEB30B0757B6B3D9F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:2435AA91C2777A417BEE4DB729656B5141D2A863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68CD879FE7996FC70A6EE92C4937AC093CE06654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +660,7 @@ Elements for iWork — это премиум набор изображений �
 ```bash
 magnet:?xt=urn:btih:FAEF965124C0E21D1FA68CABB8D1D4E0EE321029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BFB7D7CF453E6A42E3B2CF17E8B312659C4F42E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +719,7 @@ VA - DJ Mag Top 100 DJs: 20 Years - Ministry of Sound (2013) [MP3|320 кб/с]<T
 ```bash
 magnet:?xt=urn:btih:2A64A0C74AACD47F29545BAA26304B2ADCB5CF90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ Offline обновления для Microsoft Security Essentials (13.11.2013) [
 ```bash
 magnet:?xt=urn:btih:3839969D81A426C5F06EF5D879E85F212EC9F675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

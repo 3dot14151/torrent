@@ -19,8 +19,7 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (6877287) License Fairlight
 ```bash
 magnet:?xt=urn:btih:A08B4DD9DA35A4DF5016B092BBD6CE7E3EACE625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

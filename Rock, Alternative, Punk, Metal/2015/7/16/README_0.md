@@ -22,8 +22,7 @@ The Plott Hounds - Living Free (2014) [MP3|320 кб/с]<Southern Rock>
 ```bash
 magnet:?xt=urn:btih:435562FFE53223D2424199683DD082A8ED32470E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ God Is An Astronaut - Helios | Erebus (2015) [FLAC|Lossless|WEB-DL]<Post Rock>
 ```bash
 magnet:?xt=urn:btih:F3642DC798FB303CFC659EBB2C8C9339A8B9BA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Udo - Secrets In Paradise (2015) Сompilation[MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F1BF92ADB2B098C58A07F3E56DF3B12640E57A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

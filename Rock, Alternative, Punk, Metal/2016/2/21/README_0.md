@@ -22,8 +22,7 @@ Iconoclast - Hallucination (2016) [FLAC|tracks|WEB-DL]<Progressive Deathcore, Dj
 ```bash
 magnet:?xt=urn:btih:53031B10188BB55FEC31E0FB0D0A635408D39BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Iconoclast - Hallucination (2016) [MP3|320 кб/с]<Progressive Deathcore, Djent
 ```bash
 magnet:?xt=urn:btih:DBC3336433DC7D43C8FAAF9ED1E47F301DD43656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Walpurgis - Queen Of Saba (1972) [MP3|320 кб/с] <Krautrock, Psych-Prog Rock>
 ```bash
 magnet:?xt=urn:btih:116508E4ECC2CE5AB5DDADCD1941CF81CC27A04D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dark Circus - Lipstick Party Killer (2016) [MP3|320 кб/с] <Rockabilly>
 ```bash
 magnet:?xt=urn:btih:3D117E5D6495FF2194CAEA1037597DFA32BF6EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ John Ford - A Better Day (2015) [FLAC|Lossless|image + .cue] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:CD2A25F3D4098DCA270777FFB835D3DA5827EC92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDCF89619D6027158CD29F51742987D9DEEF5D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ John Ford - No Talkin' (2014) [FLAC|Lossless|image + .cue] <60's Guitar's Instru
 ```bash
 magnet:?xt=urn:btih:CD6D0C858A7066E366DB0870F769A1395847EDA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Judas Priest  - Collections (2008) Compilation [FLAC|Lossless|image + .cue] <Spe
 ```bash
 magnet:?xt=urn:btih:B41342ACADC2BF1DBE17C8C1623466B4018F1086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ DDT - Рожденный В СССР (1997) 2011 [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:F65E51EF28CAE94D33BF47045EA0C2F1CAA4EE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Elton John - Wonderful Crazy Night (2016) (Deluxe) [FLAC 2.0|96/24|tracks|WEB-DL
 ```bash
 magnet:?xt=urn:btih:4FC03995660BE538EA21F88DEAB0AE7219DAC197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ David Bowie - Blackstar (2016) [FLAC 2.0|96/24|tracks|WEB-DL] <Experimental Rock
 ```bash
 magnet:?xt=urn:btih:F8E2223D2E4A78E6486FA2548CF5D98BFEA1A174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Deep Purple - Fireball (1971) [FLAC 2.0|96/24|tracks|WEB-DL] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AD228C1264F6DCEC5A4466E3CDDE4E28CBCEDB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

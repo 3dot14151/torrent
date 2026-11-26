@@ -19,8 +19,7 @@ Shadowplay 3: The Forsaken Island (2018) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:563A4411F937C39E1266A2D4C8C436CC6E997E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wanderlust: What Lies Beneath / Жажда странствий: Что утаи
 ```bash
 magnet:?xt=urn:btih:497CF379BE109041444600EEF024DE42F72020FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PuppetShow 15: Porcelain Smile (2019) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:315A4B9724F83159990B80FC5A1D908B58E6906A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFFDADD4A7B48C39118EC6C016E338D88ED8D27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lumo, волшебный платформер повышенной степен�
 ```bash
 magnet:?xt=urn:btih:0CD69BD27FF346A685B40960C4E16A43D9BEC971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Headlander (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:6BDB777B05F60581630DF8CB28AD657382F46AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Solstice Chronicles: MIA это шутер с видом сверху, в кот
 ```bash
 magnet:?xt=urn:btih:EB71276C9BA6E9F457A23537B65261F8687036FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

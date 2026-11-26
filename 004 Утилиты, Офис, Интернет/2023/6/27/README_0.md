@@ -19,8 +19,7 @@ Files — файловый менеджер для Windows 10 и Windows 11, к�
 ```bash
 magnet:?xt=urn:btih:5E80B298F9E0F78DFE51E1414C137ECC7AB499C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

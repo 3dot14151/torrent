@@ -19,8 +19,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 17692767) Rep
 ```bash
 magnet:?xt=urn:btih:89F2DCC352FFCAD4350CD8DF4274995504F13720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tekken 8 - продолжение культового файтинга, нап�
 ```bash
 magnet:?xt=urn:btih:FF8844D47EFF6C0E5B6BA06F748F39A38B6BE90A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Somber Echoes - это мрачная фэнтезийная метроидва�
 ```bash
 magnet:?xt=urn:btih:957303DFC61E163A174AFA616EC2B0304CF8BA00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Battle Brothers — это пошаговая тактическая ролев�
 ```bash
 magnet:?xt=urn:btih:5D19A57C95FCB759DB5A94F182E965E619D14767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lurking Danger (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:288A0F75FFCDE4F200094D87B342A97F1671ED17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack Let'sРlay [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:E5FC987F099ED81CD52A8024AB2591AAFF24944B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Flintlock The Siege of Dawn (2024) [Ru/Multi] (1.1.72-268413/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:52FEF628585050A5810593CA64143A4BC4993BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Rosewater (2025) [Multi] (1.00.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3FE3CB5AB78F6D72F27C13D45FADB542234F91A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ House Party (2017) [Ru/Multi] (1.4.0.13093/dlc) Repack Other s [18+]
 ```bash
 magnet:?xt=urn:btih:876EDF6501609A3A8CB4D68CD7D4C96CD7D66D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Avowed - фэнтезийная ролевая игра с видом от пе�
 ```bash
 magnet:?xt=urn:btih:36A2EEFDB94E36325EF820FC6898D668B9797E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Bio Prototype (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AB9D8CA698FEBE3BE805403A7D2C38586DC5D500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Haste: Broken Worlds - игра от третьего лица, в которо�
 ```bash
 magnet:?xt=urn:btih:263FC489B8670F6458F4270DF97D897F2EF0ADA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

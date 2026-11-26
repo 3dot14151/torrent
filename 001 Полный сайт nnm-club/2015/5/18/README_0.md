@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:2642BF664A22701D9F658206B802C077D8B92414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B864CAB6B264BAC99FD83B4D3A90D30FB7EA2C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F27208691516D762DB8FF6760DB54B0BF492D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43505149BFF8369C2853F1B1C5F60D92D467F8C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Cat o Nine Tails - Under Captains Flag (2015) [MP3|320 кб/с]<Folk Metal, Powe
 ```bash
 magnet:?xt=urn:btih:1624B91496F1D70C2900C40CC9C94469D276E0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Iron Savior - Megatropolis 2.0 (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9F6099F19C903A81A7B742453F3ECC25BEE09AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7313E198225F7E10FBEBD5E3007FF8C5995D3283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:881F9A2C5715A2FB9CC9A73E465EFFD06F761DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9E61B0962329779B923595C9BFD4A2CED7A3E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Spectro Senses - Mystic Garden (2015) [MP3|320 кб/с]<Psychedelic>
 ```bash
 magnet:?xt=urn:btih:B9EF8369F2B208074432CE263776A3E978F5D326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3D08A6D91D6A1A8B415477F6D1393B4C28C94D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C8E7A5B69E7A49B6002F14C0B41E8684E3213E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:386A41F88A883C2E25C383A3819AF4665B9F22B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8628869A7C930F9D31BA74C51518F1F5829633DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ VA - Одна на всей земле Академия хитов шансон�
 ```bash
 magnet:?xt=urn:btih:68AEF9F4C550A1677D8FA35E76B4105D95E9E9C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ Dead Strike - одна из немногих игр, в которой прис�
 ```bash
 magnet:?xt=urn:btih:9C438365A3DE621AD17EF2CB5FDA966544C204F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Anaria - Seasons Of The Mind Vol. 1 Inception (2015) [MP3|320 кб/с]<Modern Sy
 ```bash
 magnet:?xt=urn:btih:C2601C0FFCA52B601EBB18A009B52AB3C5F03DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Tengger Cavalry - Blood Sacrifice Shaman (2015) [MP3|320 кб/с]<Melodic Folk M
 ```bash
 magnet:?xt=urn:btih:A6586992AE2601CF26AFDDF71249F03DB0584F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Yngwie J. Malmsteen's Rising Force - Marching Out (1985) [FLAC|Lossless]<Heavy M
 ```bash
 magnet:?xt=urn:btih:7488788ED5460C62E6D797AB6515CEF3DB41C272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16A181C0B404DE8D1D839D175873808CBBFE661D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF4CC031D234A4169C7383CFDB8C3138F69A9250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ Ace Ventura - Paradise Engineering (2015) [MP3|320 кб/с]<Progressive Psytranc
 ```bash
 magnet:?xt=urn:btih:7CDE00EC9DAF77D3016E74F32143F9BA05C4DF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ Dj Feel - TOP 30 OF APRIL (2015) [MP3|320 kbps]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:EB8AA6172D0296F70FD7179837708B38E809CC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6FD71C2FDC102A1B13C272E842B1756A6F53050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ Disarmonia Mundi - Cold Inferno (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2A66456E4BC28213F73F489F96D36783F7C7CFAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ VA - Облако из дыма Академия хитов шансона (2015
 ```bash
 magnet:?xt=urn:btih:DB228109285FA3C2A61FA0DAD0EC1C3F5EDC1D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sister's Secrecy: Arcanum Bloodlines / Секреты Белль: Культ Т�
 ```bash
 magnet:?xt=urn:btih:C1D7E35D0330E14FA0A6C6E8C72D911F4BA67FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Legends 15: The Scars of Lamia (2019) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:6479EFB0527350B548404ADC349A54E7044436A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DARQ — это игра про мальчика по имени Ллойд, к�
 ```bash
 magnet:?xt=urn:btih:4D7FF2FE15B44D2AB82FE38001D39C348A77BA99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

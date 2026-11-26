@@ -19,8 +19,7 @@ Royal Detective 5: The Princess Returns (2018) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:1436EF1DC2492576F35DBCE58269B94075655849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Hotel 16: Lost Dreams (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:E028620436C49F4C9AB3AFAB4EFFB3E13EB357D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vermillion Watch 4: In Blood (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:94B80232C5DF588983A44604592D1BF861EEDA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nevertales 7: Creators Spark (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:80204703C1B26B5D3D3F3DA1A9280D9DAAB49270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dark Tales 15: Edgar Allan Poe's. Speaking with the Dead (2019) [En] (1.0) Unoff
 ```bash
 magnet:?xt=urn:btih:75C127A18A19D28A6B8CD965CF0B2385860DB9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fear for Sale 5: The 13 Keys / Страх на продажу 5: 13 ключей
 ```bash
 magnet:?xt=urn:btih:F2BF81E17AB20C108BD617DDDEDC21879B60ABB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Telepath Tactics от независимых разработчиков Fire Emb
 ```bash
 magnet:?xt=urn:btih:176D5912E97A4EC4C9680BC68E8B7598E1B42161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sound of Drop - fall into poison (2015) [Ru/Multi] (1.0) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:35E002F82278626F121677B503D2888B32770DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Total War: Napoleon (2018) [Ru/Multi] (1.3.0) SteamRip R.G. Origins [Definitive 
 ```bash
 magnet:?xt=urn:btih:DA15DCE9556BA1EEDDE8E1219EDC5E470A76F2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Total War: Empire (2018) [Ru/Multi] (1.5.0) SteamRip R.G. Origins [Definitive Ed
 ```bash
 magnet:?xt=urn:btih:8C1A9A4F68C4744230BEBD05CABEE6448AC1FF9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Witcher 3 Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:F86AA19D0EA72B4D39E5A52BE1EE237A2C42DC4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

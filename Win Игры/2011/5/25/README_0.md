@@ -19,8 +19,7 @@ Dreamsdwell Stories 2: Undiscovered Islands / Долина мечты 2 (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:4A7281EDF984C61F75BB7930CEF846823C8E939F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Soul Journey / Приключения одной души (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:CF4AF3AC57144F4F9564D82C07302BD4C5415865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

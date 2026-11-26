@@ -28,8 +28,7 @@ Pikku-Orava - 3 Альбома (2006-2007) [MP3|320 kbps] <Comedy Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Sully Erna - Avalon (2010) [MP3|320 kbps]<Alternative Rock/Experimental/Grunge>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Amorphis - Magic & Mayhem - Tales From The Early Years (2010) [MP3|320 kbps]<Mel
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Therion - Sitra Ahra (2010) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

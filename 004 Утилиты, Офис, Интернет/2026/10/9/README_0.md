@@ -19,8 +19,7 @@ FileZilla Server представляет собой очень простой, 
 ```bash
 magnet:?xt=urn:btih:8777C3910685F8E092C0D4299C23C745FBEA78EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LibreWolf - открытый проект на основе Firefox, котор�
 ```bash
 magnet:?xt=urn:btih:551F86226D6A80AD88432435A55B61B2D862CE1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:B70E5A38B1A282DCB40A98143983ACF2BA4A1BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Floorp Browser — веб-браузер с открытым исходным к
 ```bash
 magnet:?xt=urn:btih:3F055D21F6798D1B85EA1CA4C2E85B6998A81AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:794ED94EFE0B4BF57671DF225D977751BFE82BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ HashCheck Shell Extension - бесплатная программа с откр�
 ```bash
 magnet:?xt=urn:btih:54AF4A8264EE38BD0BEFBBA771763F4CA23343FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ PDF24 Creator - бесплатная программа, которая позв
 ```bash
 magnet:?xt=urn:btih:4048A21EC9182A6F0042A3DAD0F0E7BB94CCF199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Mullvad Browser основан на движке Firefox ESR. Содержит �
 ```bash
 magnet:?xt=urn:btih:A97CBD5B27D38B1A91ED96AA5541E91A252D227C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:50693C81D3E2EB87901926B21F14D3188B3CDF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:314329DF220C38925D4720B5D1F35B15814FF631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:2DDC1FEC41C5A734C248D5DD9775CDD6997C6374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:F431CED51AAD742AD46451464B3C4A43DB2D9877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Google Chrome — быстрый и удобный браузер для раб�
 ```bash
 magnet:?xt=urn:btih:887481AB831092603DF08332B861CA8A511DF23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ World of Warcraft Fonts / Шрифты (2013) [Ru/En] (f6.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:61CB304FF926B0762EE4491A9FCF6B8C6BB5DDED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

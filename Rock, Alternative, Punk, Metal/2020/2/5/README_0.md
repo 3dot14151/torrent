@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:0C67988E40F2694CF5DB89125E5DD1575CF11C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nullum / Androgenic Blast - Covers / Butts of Death (Split) (2018-2020) 2 Аль
 ```bash
 magnet:?xt=urn:btih:1D04821DB6A42A8A0234C5D7BF82B0D15B37ECEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

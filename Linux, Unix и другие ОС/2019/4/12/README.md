@@ -19,8 +19,7 @@ OpenVPN Access Server (OpenVPN-AS) это набор инструментов д
 ```bash
 magnet:?xt=urn:btih:7E2B00F2A2710A0D5D7243C3D70340585B66B833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

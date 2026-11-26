@@ -19,8 +19,7 @@ Mystery Agency: Visions of Time (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B4420EE77580B43635B8567F2E6147694743166E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Risen [Ru] (Lossless RePack/1.1/1.2) 2009 | pe4enko
 ```bash
 magnet:?xt=urn:btih:F08F2F840700FC3BD1D3D457DF50A672B6AE0F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ambulance Simulator 2012 (L) [Ge/En] 2012 | TiNYiSO
 ```bash
 magnet:?xt=urn:btih:1FCB843CD73E6ABF328AFDDA5070822263EF98BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Dark Parables: Curse of Briar Rose / Темные притчи: Спящая к�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Rebel Raiders: Operation Nighthawk / Рыцари поднебесья: Опер
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Nightmare On The Pacific: The Ship. Collector`s Edition / Кошмар на Ти
 ```bash
 magnet:?xt=urn:btih:7E256BABBD1B49FD33FBA8324844C46B89C3AC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Brick of Consciousness: Dorian Gray Syndrome. Collector's Edition / Край с�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:0EA264B46F490E66E0B75778331B8FED281DAD11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mr. Big - Ten (2024) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4D526170BD806264A61DB36F37FEBD4CE149C67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:246C7051975FBAE649EAF64D911A1A8937902704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ DS Caw - Nothing To Fight For (2024) [MP3|320 Kbps] <Classic Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:10C03E0E32B36EC4EFA163D984A59BE51E7A11D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Evercloud - From Light To Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, D
 ```bash
 magnet:?xt=urn:btih:BF197C93335F1571A3A53D34BAAE8128F7B3E1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Slade - Live In London 1972 (Live) (2024) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:2C95A2CC202C1A140ED345F509987AE29C73012C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Black Hole Deity - Profane Geometry (2024) [FLAC|Lossless|WEB-DL|tracks] <Death 
 ```bash
 magnet:?xt=urn:btih:396A2B58494B556E28A106C30BCAD151244473BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Nocturnus AD - Unicursal (2024) [FLAC|Lossless|image + .cue] <Technical Death Me
 ```bash
 magnet:?xt=urn:btih:20C0A47FCB82605F076AE6FAEBEF089735E57867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Troyen - Unfinished Business (2024) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EB4F427548219FF34C8139A60C1F1C3424EC3200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Saint - The Calf (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0017BC28D7F835F46E55A8256BEB6A04BBCD91CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Corrosion Of Conformity - Nо Сrоss Nо Сrоwn (2018) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:7C778900607F93E7595F1F2F685C75CAEE8B63D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ City - Dreamland (серия "Другие восьмидесятые") (1980) C
 ```bash
 magnet:?xt=urn:btih:C7DE3E2896320391E7813ECA7B1C1775A7460889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Matthew Lee родился в Пезаро (Италия) 6 января 1982 г
 ```bash
 magnet:?xt=urn:btih:C7146C9EAE1A7682269373EF07C4E8B3BA71087A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ John Lennon - Rock 'N' Roll (1975) Reissue, Remastered, 2014, Universal Music [F
 ```bash
 magnet:?xt=urn:btih:22211E2E389D3A8D6142AB22B40BB901ADD3CAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Creeping Death - Wretched Illusions (2019) [FLAC|Lossless|WEB-DL|tracks] <Death 
 ```bash
 magnet:?xt=urn:btih:8588BBDEB15219AE58B652367E42D61A0CD8C3AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ John Lennon – 2 Hi-Res Ultimate Mix / Single (2020) UMC [FLAC 2.0|96/24|tracks
 ```bash
 magnet:?xt=urn:btih:8FE431C80D5E18D16D369E3F41B23AC52885F12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ CD1 - Who Am I?:
 ```bash
 magnet:?xt=urn:btih:7151E4667FE8D6E8767BCC4DD708C21BD044E24A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Pounder - Breaking The World (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B4944104C8EB17363D631DE2ADBF7200EFA0DF67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Black & Damned - Heavenly Creatures (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ```bash
 magnet:?xt=urn:btih:53E92CC988BBDFF2E201A7CD5AF878DD5D904F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Coronary - Sinbad (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C650B7A1F154C566CB745BD42BE09BF98156D366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Inner Prospekt - Canvas Two (2021) [MP3|320 Kbps] <Progressive Rock, Crossover P
 ```bash
 magnet:?xt=urn:btih:E5924D42D612AA5CB09B037B25FF2C2BA0ED561D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Excalion - Emotions (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:03E97CD2FE4EC9ED8C5CE154EB8A5108B551F8ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Smoke 'N' Flame - On Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9A9E1947861BCADE40E24166AE43775D9598D594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ What For? - Ганнибал У Ворот (2021) EP [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:E0409A5BA04319488F5C44F3A88B5076E325BEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Mindfar - Prophet Of The Astral Gods (2021) [MP3|320 Kbps] <Symphonic Power Meta
 ```bash
 magnet:?xt=urn:btih:58A837D9F099347BE13E5E31860046536D579276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Hostage - Black Sky Calling (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A2E2525020FEA0ADFC704C30F089F1EC32B2B81C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

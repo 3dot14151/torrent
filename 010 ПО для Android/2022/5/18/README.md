@@ -19,8 +19,7 @@ Lightricks Motionleap (Enlight Pixaloop) (Mod By Anik555) v1.3.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:799E2BE0478E28327133F873DCB429D5B7CBC0DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ GoArt — это удивительный инструмент для редак
 ```bash
 magnet:?xt=urn:btih:07F7C7F97CE6A1ABE6BAC541B69133EEBFD05BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ iScanner - Сканер Документов v3.68.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:D4D4C0664A29AFD1ED34434E0268E2297DEA4274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

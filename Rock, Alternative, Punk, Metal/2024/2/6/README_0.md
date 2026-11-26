@@ -22,8 +22,7 @@ Tesla - американская хард-рок-группа. Команда с
 ```bash
 magnet:?xt=urn:btih:1660F5A48B75164FF630CC478712C89D810857B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Severed Soul - In the Depths of Mourning (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 ```bash
 magnet:?xt=urn:btih:8D4F07ABF2AED05F3720B7F9C4819527F1594A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Skyscraper - Elevation (2014) [FLAC|Lossless|image + .cue] <AOR>
 ```bash
 magnet:?xt=urn:btih:0A10FE289AA35741F7DEEA088BA90D47ADC84021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Prediction of the Witch - Sworn into the Void (2024) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:A3B3635D5916635EDA529AD2C0A5F8974620C445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Shaytan - Chapter One (2023) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:62317D68A3368E5A12C90B409F3D3FACEEAA793A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Hammerhead - Lords Of The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heav
 ```bash
 magnet:?xt=urn:btih:7F8E582C282D0F128585D151D300087EB9B52912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sacrify Souls - The New Begin (2023) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4B9D3BC4606D439A24A34C28843FCD2D0F6B053E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Shaytan - Chapter One (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:3EE8AD7B416749EBF2AE6E16719DB7C06A7F7EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Siren - Financial Suicide (1989) Reissue, 2018, Blacksmith Productions [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:7277D47374CB59E0EDF0CEEAECCFF983F98D9660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

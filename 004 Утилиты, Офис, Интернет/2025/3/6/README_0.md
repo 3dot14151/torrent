@@ -19,8 +19,7 @@ Vovsoft Speech to Text Converter — это автоматическое про�
 ```bash
 magnet:?xt=urn:btih:193E90BF2571F8BA03EC10BF071E3862EA3256BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ USB Image Tool - бесплатная и очень простая в испол
 ```bash
 magnet:?xt=urn:btih:1B05B323B300CB5A0846AF6083F9DF8A591ED388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resource Hacker - программа для просмотра, извлечен
 ```bash
 magnet:?xt=urn:btih:8AED472AB54B09DB371E1A18FA3F645A6DC7213F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

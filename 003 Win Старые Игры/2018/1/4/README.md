@@ -19,8 +19,7 @@ Death Gate (Врата смерти) - компьютерная видеоигр
 ```bash
 magnet:?xt=urn:btih:94A302564B8195C1D0262C84591713793E26D62F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

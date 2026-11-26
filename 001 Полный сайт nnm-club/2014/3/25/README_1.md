@@ -24,8 +24,7 @@ VA - Electro Life 32 (by ZiP)(2014) [MP3|256-320 kbps]<Electro House, Dubstep>
 ```bash
 magnet:?xt=urn:btih:AF5601A87A53B3B55465A147B8E4D2F452E17A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Shingo Nakamura - Days (2014) [FLAC|Lossless|WEB-DL]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:E1ACF768491AE42512467BE771013CDE4227EF34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97F1569D3D30DC114158E12E77D6CD57303DC22B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ VA - Goa Culture vol.12 (Compiled by DJ Cubixx and DJ Bim) (2014) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:0B79B65DA2B9E2FDDF06A71F0A285B12589D3C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E3977A17F4A002EB6555C6CB7849EC0EB715714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Ashampoo Slideshow Studio - программа, которая упрощает 
 ```bash
 magnet:?xt=urn:btih:C1B3D2012D335C80C80BBF7454DF530123F1200C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Discovery: Магия Бена Эрла. Искусство / Ben Earl Trick Art
 ```bash
 magnet:?xt=urn:btih:43E12858FB7D258FAE06A2F4C7986CC74357571E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B223C1D4FF831245C3567E139D34B22FDA4A4465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ VA - Erotic Chill (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:70698C46548A4A64CC7DDF94183F55DED6A55FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ Wolfmother - New Crown (2014) [MP3|320 кб/с]<Hard Rock / Psychedelic Rock / S
 ```bash
 magnet:?xt=urn:btih:A242502E04926F16851FE6F9718075C59D93E1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ VA - Moodmusic WMC Surival Kit (2014) [FLAC|Lossless|WEB-DL]<Tech House, Deep Ho
 ```bash
 magnet:?xt=urn:btih:50563FB399A786B2A0F89D5244A30C90FA9D81C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE008234A4104E62D917EDA1E1589AAA8E7DD9A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ Flamingo - это красивый, нативный клиент обмена �
 ```bash
 magnet:?xt=urn:btih:92CCDB18767BF1F8C39D1922A0B95BD3F43245EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E804BA9AD7CD6F681F532CD0735477526194FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ National Geographic - уникальный научно-популярный г�
 ```bash
 magnet:?xt=urn:btih:B36045BEEBD80903349579699DC0152455BBAD6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A56734142A7394E1E7FCFEF66BC2106FBA7C3625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E45DD17C2E3E07057455ADF7C46D0E717FDE6622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86FBCCAF499BF90FEDE5869149D1CB4A99CC6368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ EximiousSoft Banner Maker – программа для создания рек�
 ```bash
 magnet:?xt=urn:btih:BD0D4094A794CD51E96C143CBA0C79D1A2395BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE88245346DD357A2F1AB2783412F608EF1E3F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ Wallpapers - Beyoncé Knowles / Beyonce / Бейонсе [JPEG]
 ```bash
 magnet:?xt=urn:btih:FAF38111168455B0A06129583B98718BD7DE0809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ VA - 10 Years Of Crosstown Rebels (2014) [FLAC|Lossless|WEB-DL]<Tech House, Deep
 ```bash
 magnet:?xt=urn:btih:FAB14D484AC38C56C000AE96FBB96265CE71A49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:861EC85CD357B16C831897E4AF8ADEB19E74A408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:580E932521CF3F0EF204D43388E09A7AE8F5AF51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +714,7 @@ SmartAlbums созданный фотографами и графическим�
 ```bash
 magnet:?xt=urn:btih:79CD4CD6987183BB3EE81AD2A1FCFE1833F7C15B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

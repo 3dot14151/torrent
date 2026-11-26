@@ -20,8 +20,7 @@ Help & Manual позволяет создавать файлы и докумен
 ```bash
 magnet:?xt=urn:btih:D3F508F280D73F91216AADF26E82E906FBBFF7B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ WinDirStat - небольшой бесплатная программа на р�
 ```bash
 magnet:?xt=urn:btih:9399A334B35B617572B76F5695FABB8D994FD9FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

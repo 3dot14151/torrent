@@ -22,8 +22,7 @@ Farhad Mahdavi - Icy Nights / Winter Rain (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5CABC7290B477D58E94DABA817FB1F1D928C139E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Closer EP (2012) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B684610B6D6B8BDAB5A2236D5114BC322F070F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ VA - VEGA vol.1 (2013) [MP3|~190 кб/с (V2)]<Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Ghosts of August - Ghosts of August (2011) [FLAC|Lossless]<Post-Grunge | Modern 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ VA - The Story So Far Vol.1 (2013) [MP3|320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:0669773FAF9A73FD9AD8312BCDEF28595319D4BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Blood-Stained  - Infected (2009) [MP3|320 kbps] <Melodic Death / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6D1026F2EF8185D3AC3F8F3D81A8DFDD999DD63C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C02AA251E7A75F7EFE867A83C78859F9723C7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ Vector & Macca - Autumn EP (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:AC08736E57B91B8501A3D2B0646403E2293F14C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ED33F744414A94EB7C3455428C690B2EE1BF8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ VA - Гуляй, братва. Зимние хиты - 4 (2013) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:EB4BABAE342F2A67212505152EE98F2D35492B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ Soilwork - The Living Infinite (2013) [MP3|192 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:FF771F6225E5ED9307B54EE87CD65EAACBB886CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ Heavatar - Opus I-All My Kingdoms (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:57C0D447F4CC4E51A2437075EAD07EFC987E2344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ GeoGebra — свободно распространяемая (GPL) динам�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:813B46C70AF5FE3766CA90CEA9217A89A8FF4093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DF6EAC54D7DCAB6571255C8AB36BFC3FD21E5EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A7D7C229B1056D4031783C40E3A18D54858ED92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +511,7 @@ Ancient VVisdom - Deathlike (2013) [MP3|320 кб/с]<Dark Folk, Occult Rock, Psy
 ```bash
 magnet:?xt=urn:btih:C46F832490F86856FFBAC2CDDF17A075A631EDFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ Top Montagne - Laika Bielka Strelka (2008) [MP3|128-320 кб/с]<folk/french/lo-
 ```bash
 magnet:?xt=urn:btih:1F139CD94E944B86D57D15E90FBA8A4F94FB4623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +578,7 @@ Darkened Nocturn Slaughtercult - Necrovision (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ The Thinker - Age Of Machines EP (2013) [MP3|320 кб/с]<Dark, Industrial Techn
 ```bash
 magnet:?xt=urn:btih:8266F1C7AE888D4B3A84C86A640D8D3F380F4362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +642,7 @@ VA - Гуляй, братва. Зимние хиты - 5 (2013) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:D678B7D3B567AA5427B340F3AA821FE82D51E9D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FA6190C2E69A267406E8F98150B2F149784357C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E74C97D4AE1D2B1534160C41121BE82326A1579E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:581997D601301D08BFCE0484F9FDF5CC32E4F830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66AB523E56931691D4A51F9E01DC42A86AB0A416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ Total Doc Converter - решает проблему конвертировани
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

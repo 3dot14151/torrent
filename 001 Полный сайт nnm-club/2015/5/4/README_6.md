@@ -19,8 +19,7 @@ Dungeons 2 (2015) [Ru/Multi] (1.1.4) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:EEEE04F5F210B958B70E195CB2D95397D85F3D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08A3F4E7EB2088267F9759D809FD9D31495E28C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBC49F006E306449918A99C81685B5DF6D5DC389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SUPERAntiSpyware - профессиональная программа для с
 ```bash
 magnet:?xt=urn:btih:ED23E6CBD67FCE693262F36A20FD6FC7D2453BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2060DAEAB4D369D62C0A2156991E9121166ACE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ SMM LIFE | Продажи Вконтакте (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:19CCD06C4FDA34D8D73ADDE6551CAC405E122663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ LIMBO 1.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:5A56117A3C456F49B8ABB6166C39216B3A8F1CB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0AFE350AE58D21DBD3E30897E5EC8B435FAAEB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B39DE619DC36F320EAE762EFA98F9286778C8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70296D824FE81CF8C47DF877CAD6B3D71774EAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (0.04) SteamRip R.G. Origins [
 ```bash
 magnet:?xt=urn:btih:DFE8DF6212E98E7BD03631957FA1C3827CAB80A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14959DCE9916FF71AF8DA161708BBDA958102816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED34BE0CF4D30F28D747FA89D49E8CF650145BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Dark Sector (2009) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:6CBFD2009A3061FD43CDCC176322AC1DE0CF4E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ To The Moon (2011) [Ru/Multi] (1.0.0.1) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:05B53814DD505E67F70ABFA52DFCA1C3BDBA0048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C44041A1F97D379901A7B9070AE50DA98D1FF6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ Hot Virtual Keyboard 8.3.2.0 RePack by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:037ACB54C2F2460AFD083308093CF608C00AE262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB2C470B115CB3AF19D9A7AAE8823C55DA06A7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ Assassin’s Creed Chronicles: China / Китай (2015) [Ru/Multi] (1.0.10897.0
 ```bash
 magnet:?xt=urn:btih:C7527B85322CBF893133872B5218B5C55580E647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ Age of Mythology (2014) [Ru/Multi] (1.11.3165) SteamRip Let'sРlay [Extended Edi
 ```bash
 magnet:?xt=urn:btih:E5210A958278E4D73A7E2FA3C4D8930F8EC84BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ State of Decay YOSE (2015) [Ru/En] (15.4.28.3802/2dlc) Repack R.G. Revenants [Da
 ```bash
 magnet:?xt=urn:btih:485B24157BBE1C5E2FFF3AE5C68A5E62B4322B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ Total War: Rome II/2 (2013) [Ru/En] (2.2.0/11dlc) Repack R.G. Catalyst [Emperor 
 ```bash
 magnet:?xt=urn:btih:00B4BB61F0D64B9DCDDD5893E5FD500A79A4DD9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C39A0B59C835AEE3536BE052D2A2F98D783FE5D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ Shingeki no Kyojin / Attack on Titan / Вторжение титанов [2013, 
 ```bash
 magnet:?xt=urn:btih:5A6FE7FCB9BC4CC01DF8A6DE87D11F5EE141C675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +638,7 @@ The Forest (2014) [En] (0.17) SteamRip R.G. Origins [Early Access]
 ```bash
 magnet:?xt=urn:btih:E7797480ACFB272925387E025E27C130A38DE451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +663,7 @@ Imagenomic Portraiture - плагин для Adobe Photoshop и Photoshop Elemen
 ```bash
 magnet:?xt=urn:btih:63E70DC4AC75A420B29B40014C7ECA266788B58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

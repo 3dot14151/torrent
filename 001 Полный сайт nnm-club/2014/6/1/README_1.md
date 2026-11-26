@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DAA2B46EBCF918226C178312D195E112E8D1687B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A3A7B879EFDAB8CC1F25CD832E1E5678C57596D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Mera Luna Festival 2013 (2013) [MP3|320 кб/с] <Dark Electro, EBM, Gothic
 ```bash
 magnet:?xt=urn:btih:20A1C0C11830677865606825EECF5389D9E54EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Powerman 5000 - Builders Of The Future (2014) Deluxe Edition [FLAC|Lossless]<Ind
 ```bash
 magnet:?xt=urn:btih:B005612AEF1E4C0236B4D82F27A7220065C79F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Trance Nation (Mixed by Lange) (2013) [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:B57C1F26904E1888F26B0FA7BB561F26F3FA0379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:409EFF618591931315E762C0381A79AD636F0DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Calvin Russel - A Man In Full (2004) [FLAC|Lossless]<Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:2A0E803A325CE545E07599025A931D79725D5D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Tief
 ```bash
 magnet:?xt=urn:btih:7834B240DB43A0FAB8C84CFF92D19EF20E45C1F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F30E28078B34C7404CC429941C1A99190671116B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3802AEBB30B68EC6CC2CB2C4878EB6F9F3EFF254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ Serial Box 06-2014 [En]
 ```bash
 magnet:?xt=urn:btih:6716E99A0728744F4D55F7AFEC7D8E9D223A5D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5C0B048AF4FD60D9F6A16842D39A0FEE393D850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ White Sea - In Cold Blood (2014) [MP3|320 кб/с]<Electronica>
 ```bash
 magnet:?xt=urn:btih:8DCF83D708C750FB08DA0DEA6997685AF31971D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ Al Di Meola - Di Meola plays Piazzolla (1996) [FLAC|Lossless]<Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:6D1B56BCAE0EF91F1FB5E2446438146D97565F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF031599E9522BA1016EE3ED79DFFBCD49B9B060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ P.S. Некоторые из этих видео могут оказаться �
 ```bash
 magnet:?xt=urn:btih:93936B548325DC9CC8B468D679C5D565081A56CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBECD5026B21528E88C0828FF3432EBD251395A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ EDN Magazine - журнал, расказывающий о новинках от
 ```bash
 magnet:?xt=urn:btih:78CEBB722A4D8E88C71D6D4F4016B41BCCEA32BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72E1E93B565C8211810B08C054C6636AD2151CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ VA - A State Of Trance 650 (Armin van Buuren - Warm Up Sets) (Moscow, Yekaterinb
 ```bash
 magnet:?xt=urn:btih:84C5CDF577103AB5D227314CB2F653817635833B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DAC9FEAB30EE096487A9CC9222414E1A1AAA870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9876D72C538C150A2011483EFC29B1C74B55AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90E9754BA69DF686A44580E1549389CDD70430A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +676,7 @@ Awakening 6: The Redleaf Forest (2014) [En] Unofficial [Collector’s Edition / 
 ```bash
 magnet:?xt=urn:btih:EA2EF8F568FA4211AC6A08321C58F00479F2F352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D254101551F20A5DA87A50BB768A4B3D6832A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B518442719CAAAFDBCDC7F7C72166BE68A930C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

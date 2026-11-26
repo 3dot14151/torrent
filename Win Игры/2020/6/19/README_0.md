@@ -19,8 +19,7 @@ Deja Vu (2020) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:43A86C194E4297C0B9871295153E217BBAED3D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

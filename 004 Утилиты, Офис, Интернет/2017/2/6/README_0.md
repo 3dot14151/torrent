@@ -19,8 +19,7 @@ Active@ UNDELETE - программа, которая поможет вам во
 ```bash
 magnet:?xt=urn:btih:FB33CB97C89D9657824D8EF3F5E405A97EC5D0D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

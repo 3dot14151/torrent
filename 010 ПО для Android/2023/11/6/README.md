@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:355D5448AEE461E7BEDE787A222145DC5757F434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:F230FA913188E5D23F09DF852CE77066537F0259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

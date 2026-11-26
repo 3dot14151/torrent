@@ -19,8 +19,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:1515CD6D9914C73E0A1B1A38F55947A192E8111F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Decepticon [Comp
 ```bash
 magnet:?xt=urn:btih:BCDC140D03522530BA15D3483DB90AA2EADA8638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E6B288BCB29E525C249E7177585FEAE5EF262D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAD0BE04335E46771BC893C8EEE110E4A1533F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:3B01A620C38801713D4BA1951D2D941EC4A13B4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62D2D7AB67007A186113ADD0186CB5E0CF1187A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Guns n Zombies (2014) [Ru/Multi] (1.7/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A5945DA06257C5FCAC78108D7D47753B8AC66BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:35D44BD874E80BA6015A3E3FACD267E79F56AB65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CA07E7CDD68E90EC3C5B63579DFCB29FA6B6279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Call of Duty: Black Ops (2010) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Li
 ```bash
 magnet:?xt=urn:btih:0EE7138E7AA0CEDE9ED3BEAB9C2876CAF35E6BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Whispering Willows – приключенческий логический ин�
 ```bash
 magnet:?xt=urn:btih:FF2E3C5858CBF19413928B946C0FB84ECCFFBF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13BC4BDABD3439B4278270848DC05F16A615D698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ FAR CRY 4 (2014) [PS3] [EUR] 4.65 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:999AC2AA1ED0219FB84FD39AC8137BCA5CFC665E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C571C2A0E8E570D90F269441CC9B85A55D0D5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:066C83E3D43FEBF5C37BE64C884549A647448A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Microsoft Office – самый популярный в мире пакет оф
 ```bash
 magnet:?xt=urn:btih:9589E6CF3603CC2BF4C2891A616611DE0B4C30DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.0.1158216) License CODEX
 ```bash
 magnet:?xt=urn:btih:DB5480D969465E6B2227B84255F0DB289145D805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Assetto Corsa (2014) [Ru/Multi] (1.4.3/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6C47F8CAB1ECD6250B1DF196CE13A69283CCAEBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Gochuumon wa Usagi Desuka? / Кролика заказывали? [TV-2] [2015, 
 ```bash
 magnet:?xt=urn:btih:0EBCA2BA23BBEE2DFB59100FD4220B31FC00DF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.0.1158216) Repack xatab
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Call of Duty: Black Ops 3 (2015) [PS3] [EUR] 4.76 [Cobra ODE / E3 ODE PRO ISO] [
 ```bash
 magnet:?xt=urn:btih:11F2681A83299675E9532B7254101C6B93DC23CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Adobe Photoshop - это комплексное решение для профе
 ```bash
 magnet:?xt=urn:btih:F528A34C1FE9659C16DD3E06FE19C000346C3C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3459445DEB7D4894C23EF2C090DB41159141EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ Project CARS (2015) [Ru/Multi] (8.0.0.0.1156/dlc) SteamRip Let'sРlay [Digital E
 ```bash
 magnet:?xt=urn:btih:45594CF478CCA8FD326FD4303AE87CE8408AAB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +569,7 @@ Adobe Photoshop CC 2015 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:F359C73BAF2824C94692B0A1AFF2CEB5CCE8EF13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5B2A9EDF4D6168A48545562A8C01ABAFE07D140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +619,7 @@ Divinity: Original Sin. Enhanced Edition – это новейшее и само
 ```bash
 magnet:?xt=urn:btih:268B34F12EE0F6C7480A45E368FA060477F3B24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

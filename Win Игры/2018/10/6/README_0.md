@@ -19,8 +19,7 @@ Train Sim World — это симулятор поезда с видом от п
 ```bash
 magnet:?xt=urn:btih:968271A4082C0DDA76391F266ED6064A7A615F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.41044.0/dlc) Repack R.G. Catalyst [Full Clip 
 ```bash
 magnet:?xt=urn:btih:5B8923E359105BEAC601C2A311615C9365AD0FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

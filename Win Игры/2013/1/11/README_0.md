@@ -19,8 +19,7 @@ Dark Tales 4: Edgar Allan Poe's The Gold Bug Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:F670921D3EF37F0765EADA029BC1D14B02A73090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Worms: Ultimate Mayhem [Ru/En/Multi9] (Steam-Rip/DLC) 2011 | R.G. Игроман
 ```bash
 magnet:?xt=urn:btih:FDDCCF0A7E5C7A49A9EA4E0774C19340A12F244F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

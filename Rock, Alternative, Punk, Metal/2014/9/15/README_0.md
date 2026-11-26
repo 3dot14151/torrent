@@ -28,8 +28,7 @@ Stella Blackrose - Death & Forever (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:FBFA4BA451C4A35454623B2303F29260DE3DF5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Age Of Artemis - Overcoming Limits (2012) Japan [FLAC|Lossless]<Progressive / Po
 ```bash
 magnet:?xt=urn:btih:DD864F61ABE0F8F03F0C173295ED6527029F241F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Foxtrot & The Get Down - Sold The Soul (2014) [MP3|320 кб/с]<Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:9590DE3C786D06964C6DC302A7B5BACE62AFE8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Tyler Jakes - On The Bones (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:D908955CBF872260CBF09B156E4F8C0A7866DBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Alberto Rionda's Alquimia - Alquimia (2014) [FLAC|Lossless]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:B5611C4F70DE1794526CC1B2BC03779D1FD28D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ X-Drive - Get Your Rock On (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0A970FEAD47A90DE04EF4D21EA1EDC2F0141E663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Myrkur - Myrkur (2014) EP [MP3|320 кб/с]<Atmospheric Black Metal, Ambient, Fe
 ```bash
 magnet:?xt=urn:btih:EBD22B51A99133C65526CF4495701249F51A73F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ CG Bros. - Жестокий Мир (2013) [MP3|320 кб/с]<Alternative, Pop-Pun
 ```bash
 magnet:?xt=urn:btih:D1937EC7A0B5E39D34FD40EACEA90DFFD2CB67D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Motorjesus - 4 Альбома + 1 EP (2004-2014) [MP3|320 кб/с]<Hard Rock, He
 ```bash
 magnet:?xt=urn:btih:BC7708BA4C8345640F62ADB7F8398CBBF417A7EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Ace Frehley - Space Invader (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DBFED4DBDC9D0F498B68689E063339D9A208A4E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ Epica - The Quantum Enigma (2014) 2CD Limited Edition [FLAC|Lossless]<Symphonic 
 ```bash
 magnet:?xt=urn:btih:CA3051260ABEB510E2CEED07F6E6E83A806E31FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:7DE757AB212953DBBF4AED0AF333B72BC5851EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Slade - And Now the Waltz(es) (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:61D0FB3B24DB206FB9F109A906533BE2C47821C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Within Temptation - Bleed Out (2023) [FLAC|Lossless|image + .cue] <Symphonic Met
 ```bash
 magnet:?xt=urn:btih:E9411E14E2E830D951A013E3407B6F41640D6814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:A0FE45D4DD80B852F1760CD0A0591EEF7B520BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C37F026EB48980C628DF4C34BFDB3E75897F7AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Thomas Valentine | Database-Driven Web Development, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:147946F1A48C3F2E73C0A957006E7B4FBF52A1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ PortableApps.com Platform - это функциональная платформ
 ```bash
 magnet:?xt=urn:btih:C9C43F89736FAFCDEECC8AAB62E63D55DD9849F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Mireille Mathieu - Mireille Mathieu chante Piaf (2023) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:452AEF1CF8B5979121B28945084DCE60DC54D8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Eisbrecher (с нем. — «Ледокол») — немецкий NDH-ко
 ```bash
 magnet:?xt=urn:btih:855092B9586BE6EA2ED96F65129B55B13C6449E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F423D03EFCD1B1729AD2B1B6E15E01907CA511D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:65765EED70F5394777C268F42DA4FE24DC92A7EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:B347E627EEA7140082399B28F15A50F52462789B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ DxO ViewPoint – это новое программное решение пос
 ```bash
 magnet:?xt=urn:btih:ED6CA9C040A9F8AAD01A861BB3CA5D442A49F1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 ```bash
 magnet:?xt=urn:btih:F7F36C272D3324365CFAA73F7E77335A6721FE39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3EF45E9AE90E4B6097EA5BA34BA3FAFF178418C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:263B9295A2134B98F96C686EDB84C19F6B038799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Udemy, Christ Raharja | The Future of App Development: Text to App AI Generation
 ```bash
 magnet:?xt=urn:btih:0A791D5E4FCC781D09A59265679E2A7D5263756E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ Redemption Cemetery 5: Bitter Frost / Кладбище Обреченных 5: �
 ```bash
 magnet:?xt=urn:btih:2FF27463FFEF095AA861CC53211CE4A27ACBB4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ Udemy, Vicki Lau | VFX Compositing with Nuke: Invisible Visual Effects (2022) WE
 ```bash
 magnet:?xt=urn:btih:DCB0AD46C8A2E6ED3C610F205333117947EDF858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B572C2A20D89AC5E78C77251736F80F3E9B83089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ VA - Horizon In Blue (Selected Chill Out & Lounge), Vol. 1 - 4 (2023) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:CD879016E368EEF9A333C4A607A5D6DA03FC197C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ VFX, что означает визуальные эффекты, — это т�
 ```bash
 magnet:?xt=urn:btih:42F355922CECDD996CFA2ED753B2E14C0925E8F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped]
 ```bash
 magnet:?xt=urn:btih:4CFE00208ECB83C0A81BD6E48D9A7608A1DE8267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA056243E238AECE2AECFEAE6235D8B27C6F4EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBD9D63BB844AB63DD09505160A4C72C26EA5195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E2D97CF9372051727A3BC283052032FDD545565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

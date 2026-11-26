@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8A2948C0B3F36815830C7E6606073F47B6996405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03BBDCCA6AB73A89A84821EE8A1CCBC5FB9B4712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Discovery: Создание хотродов: стань асом! «Это оч
 ```bash
 magnet:?xt=urn:btih:2498F3CB0BC56EB41ACBF353D451F6D2F6989E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Imaginaru range предлагает абсолютно новый вид раз
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Integral - The Past Is My Shadow (2011) [FLAC|Lossless]<IDM, Ambient, Industrial
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D12F9DB29C2A04E2280A18CCFBB7628E0E445D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ As I Lay Dying - Decas (2011) [MP3|192-320 kbps]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:FB7CBA627B01048AE120A06809EA97EB96406EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ VA - Золотые Рок Звёзды (2011) [MP3|256 kbps]<Рок>
 ```bash
 magnet:?xt=urn:btih:D2676FB887DE61FDC80BE7860831E87370E8FA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Discovery: Создание хотродов: стань асом! «Гоноч�
 ```bash
 magnet:?xt=urn:btih:CE9C8CF3E2D8A3BDD0A35B8932A62340615D9462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Editor's Toolkit Pro Single 139:  Rings and Arrows - сборник анимир
 ```bash
 magnet:?xt=urn:btih:78C937A309B86D634132A641EA06A7BD17C2E23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE52CE2FB6B3C15B0C90F067D5BA2EFEC0A45BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2F23FECD35E500D46306C80BF8E6A6D8BDE6E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ VA - Inca:Nations (2002) [FLAC|Lossless]<Psy-Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ LS · Книга доходов и расходов 2.00 от 20.09.2011 [Рус
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ Suduaya - Dreaming Sun + Bonus Track (2011) [MP3|320 kbps]<Psy-Trance, Progressi
 ```bash
 magnet:?xt=urn:btih:90913731EC101E38B4A2EE5900DBD9F8F3E04FAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ Editor's Toolkit Pro Single 133:  Vortex Blink - сборник анимиров
 ```bash
 magnet:?xt=urn:btih:AF0AB66B05AE8A7B4DA03715C69963D46348DC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A69494DB50C54946F20C0BE3A019C8735AB0A840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60C8C6BCF52C2E976F227E2EB72DE7A3059EC49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Editor's Toolkit Pro Single 131:  Serious Streak - сборник анимиро
 ```bash
 magnet:?xt=urn:btih:8543A4A64E2E441C07A97D987D7B689E3F2EA2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ Editor's Toolkit Pro Single 132:  Light Tunnel -  сборник анимиро�
 ```bash
 magnet:?xt=urn:btih:CB566938584134CCFA946ADDB96E85F012EBB47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ Discovery: Создание хотродов: стань асом! «С мест
 ```bash
 magnet:?xt=urn:btih:1A96E6F488B16BF9EE83C705F1378896F6FE526A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F303902206984F259894CCCEEC5C7EEC57B29FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ Bryan Adams - Rock im Park (1999) SATRip
 ```bash
 magnet:?xt=urn:btih:976899CB6FB473C911A8A00FCA098D54961CEAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E1789FA6116FFA34A07CA320BB48FC2DF2E4453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ Hypersnap - инструмент для захвата изображения, �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

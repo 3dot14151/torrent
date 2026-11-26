@@ -22,8 +22,7 @@ Chuck Schuldiner (Death; Control Denied; Voodoocult; Naphobia) - Studio Albums (
 ```bash
 magnet:?xt=urn:btih:9AF528BB3CC24792612A6287CD657FECFA3EF7E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ The Squirrels - The Not-So-Bright Side Of The Moon (2000) [MP3|320 кб/с] <Pro
 ```bash
 magnet:?xt=urn:btih:D302A022CA82FF9B96C28386D209DC74D7362A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Toolbox (   Читать дальше...   )Тип издания: OS X Softwar
 ```bash
 magnet:?xt=urn:btih:2E3EB75AA613B29E44A95D2FEBEAFB474EE7B9E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - Afternoon - Acid Jazz & Chill Out (2016) [FLAC|Lossless|tracks] <Lounge, Ch
 ```bash
 magnet:?xt=urn:btih:F15725434312FB8A044BD6B66AEE52B414AC2802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ CameraBag Cinema 1.0.102 [En]
 ```bash
 magnet:?xt=urn:btih:1B224AE6E00C265D9BE0D7875A1F529C1901766F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Smooth Jazz: Behind Closed Doors Vol.1 (2016) [MP3|320 кб/с] <Jazz, Loun
 ```bash
 magnet:?xt=urn:btih:F17420FBB1253D9AD7100FA17C1B94011F486BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Cosmic Replicant & Germind - Lost Dreams EP (2016) Altar Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:283EACBC04CEB83A645C49DA941AFA2E7A6C5E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Joe Cocker - Night Calls (1991) [FLAC|Lossless|image + .cue] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:229F820371C06418AD44EAB04971B6EF18AB73FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Argishty - Паломничество к себе (2013) [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:B9088E7D6FB9EE788C68F2D493B20BFD27DC72B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Status Quo - Aquostic Stripped Bare (2014) [FLAC|Lossless|tracks] <Classic Rock,
 ```bash
 magnet:?xt=urn:btih:B841F5827B160A967545CE5F04B3E64E10BDE740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA692A9479194EDEB7E23EB84A3BD5E1E6F1B632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - Правильная музыка радио Шансон (2016) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:0B24B9F10C1D9247BE80FA23FFDC230AD8F05F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40DE1D405D4CEC698A658DB8788187877A28FF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Thunderbird — 12 декабря 2004 года появилась беспла�
 ```bash
 magnet:?xt=urn:btih:225CE5B2BF21D4D6E35DDE413BF27BF9EFBAB914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Phantom 5 - Phantom 5 (2016) [MP3|320 кб/с] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6666D7366388EE36213542B6842065A0207BB3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Emperor - Dispositions (2016) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:6E2FD879CA8CD69E73D2F72F43F75EEE004CE934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:124EFB342441B1B1C4B06E0E534EFD45226F9C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ VA - Vocal Trance Hits 2016-02 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:6410BA8A89B685621025BAFB2A9BD4DE87224842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4BE0E0B283322CAC0E7A26D09C3D7FAA11BBC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B06D36CC1ACFFF7EE14728D061B766265EBCF10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ pdfFactory Pro - удобное приложение, представляюще
 ```bash
 magnet:?xt=urn:btih:46B91220D153E00E2CDA7DC9591AE3A4E5E1A12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D346FC4F15DE43846739C52BECAC31C369E2843D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Toolbox for Keynote предлагает многочисленные возмо
 ```bash
 magnet:?xt=urn:btih:7796F7D92DFA4F2F6FDF7792E85C2FA55172A891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7C7CD03B08EB5F4C9A81792CCC49B4A350DC93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E0C3E2C11304BAC3BC370C8A0DBFA585CA3DD6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7BB2056CB01C4F4E6E7D7377D3878D8BD9BC6C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8488A7A18ABEC543439648F116F5C4923F8FAF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:BE8626FF1C52E0BF8FE77730687C84041D807EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87E62D5297038B07E524A8F346840EF62C5CE295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Shorty Rogers - Martians Come Back (2013) [FLAC|Lossless]<Jazz, West Coast Jazz,
 ```bash
 magnet:?xt=urn:btih:7AFBB5CB4EFC184549D4E243CB2B9A559524817E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Unlеаshed - Dawn оf the Ninе (2015) Limited Edition [FLAC|Lossless]<Death Me
 ```bash
 magnet:?xt=urn:btih:8F4B4123CFC8E734339649D31BE80EF988752F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Bryce - Frontline (2015) [MP3|320 кб/с]<Future House, Club, Funky>
 ```bash
 magnet:?xt=urn:btih:81ACA8D71E795E7B107253DC296AE4CDD1080C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Rembrandt Frerichs - Self Portrait (2007) [FLAC|Lossless]<Jazz, Avant-Garde Jazz
 ```bash
 magnet:?xt=urn:btih:3FCE5643FD1B0200DBCF2393687AF67B6D1F0E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCFF789B75582ADA2730D11EF23B3F5FBA8BFC53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A82452D190C79A189CE89960AEE0500AFD91CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ David Friedman - Winter Love, April Joy (2015) [FLAC|Lossless]<Jazz, Post Bop, M
 ```bash
 magnet:?xt=urn:btih:D51C302F8E52A6DE968D9ED8DCA3C4CF2C97FD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Calvaire - On The Heights Of Despair (2015) EP  [MP3|320 кб/с]<Post Black Met
 ```bash
 magnet:?xt=urn:btih:6DBB461AE5DBF5CD53411FB768D3A5DA458E84E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Norot - Nathrach (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:E21008CEAC2B331892E5609C28DCB49563D2BC87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Things Fall Apart - Things Fall Apart (2015) [MP3|320 кб/с]<Screamo, Melodic 
 ```bash
 magnet:?xt=urn:btih:F90B26B5C86C227E6C557E90A566CB0D1DE67055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85CA0E7DDB2FFF86E0CC367FAB0F85DA3B30018D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Keith Jarrett - Byablue (2013) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:E90F61AAE67DBCD65BCBF0C495C1437CBCA192B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ Morning Mode - The Ocean (2015) EP [MP3|320 кб/с]<Post Rock, Progressive Rock
 ```bash
 magnet:?xt=urn:btih:EF076F532BA95268B08F2FE7781962BA43EF529A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ VA - Dark Sessions Radio 005 (Mixed by Oberon) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:BD57CBD7D708E974C648CF306AA031AC2CD74FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Qualm - Qualm (2015) [MP3|320 кб/с]<Raw Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:1BA38C63A4382EDB63C3D67991FA5C673D8E0BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ We Are Oceans - Woodsmoke (2015) EP [MP3|320 кб/с]<Post Metal, Post Rock, Ins
 ```bash
 magnet:?xt=urn:btih:AEA7FB7AB96F35157554FC97B03B090C5424FB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B04B9D5415106C49B15614D2BB8591C0C44BB157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF98F0C937DBB7DDA9A5FAC3A95EA6D1F4A06A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A220B5378D5DC2B27E25EF9C3530E7C262ABA5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ Roy Hargrove & The RH Factor - Distractions (2006) [FLAC|Lossless]<Jazz, Funk, S
 ```bash
 magnet:?xt=urn:btih:C737D5CA23B23320B37D4C84ED0694901EB10C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C56FFBE931490EC52DC098D7FB53E9E7AFF4CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04DD844254A7F77AA921F668373E5465442B8716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A05F28CAC94569CE74C1DCCAED1672CB82ED4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ Terran City - Disperse (2015) EP [MP3|320 кб/с]<Post Rock, Ambient, Instrumen
 ```bash
 magnet:?xt=urn:btih:068DB253422E17574288C5DD750F0C8830BA0CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

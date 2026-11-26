@@ -20,8 +20,7 @@ Ubuntu*Pack 24.04 Unity (июль 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:997ADC93DA5EC465CE919DCD7A42F3674F87C5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

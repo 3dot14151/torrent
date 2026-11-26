@@ -19,8 +19,7 @@ Mary le Chef: Cooking Passion (2017) [Ru/Mult] (1.0) Unofficial [Коллекц�
 ```bash
 magnet:?xt=urn:btih:A6C3B0CA707DAD9B98CB4F9DAF1E3AD0A8D80FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

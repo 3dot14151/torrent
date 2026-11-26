@@ -19,8 +19,7 @@ Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2B0E1F48E80093A335885EE1DC9A80294E19F839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:445F6ABD6170CDC106A860414C66F39F8A204054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Magenta Horizon от соло-разработчика Маддисона Бек
 ```bash
 magnet:?xt=urn:btih:39013E5F59916D2AB6224378B5F5E81307E21811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 ```bash
 magnet:?xt=urn:btih:48644AA0C069D02BD9876E4034E219EB6D9FDA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Coridden (2025) [Ru/Multi] (1.2.3/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7B1FA102009D81B9AE225D2DD82062187FA94A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tempest Rising (2025) [Ru/Multi] (1.0.0+43454/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7639CE8EC54D490C5A33DCA7A0BB1DE050FA2F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Slime Heroes (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5C884055847D1E80095B4E9614C14D642A8A61C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E39FBD9F21097722BDB831D8875B4CC7747D12B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:D100C0F2FA634B10AFA45F5CE4F6ED9DB155247E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ CAPTURED (2024) [Ru/Multi] (1.2.1.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7023B73345BF76FC4C8E6B500ECCFF2FA9F2DCF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Storage Guys - это казуальная кооперативная много
 ```bash
 magnet:?xt=urn:btih:2AA13C12E12DFC271B4737BE5F65CA36A235085C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Myst (2021) [Ru/Multi] (3.0.4) Repack Let'sРlay [VR]
 ```bash
 magnet:?xt=urn:btih:E4AB033738553BFEE67FD220E835D9B2123DE004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:20F97DB63ADBD63605CC13D4EFFC0F337C421F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Grim Tales 26: Prisoners of the Past (2025) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:8140F5137861C74A3FDC29B85807D2554B688CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:2719DE838948F139EB29359EB99CD0419EE814CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

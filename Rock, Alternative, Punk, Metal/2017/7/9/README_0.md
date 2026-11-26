@@ -22,8 +22,7 @@ Crypt of Kerberos - World of Myths (1993) (Reissued-2012) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:9CF40073910E205F860C8ACCF77B1D61ED477D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Ramble On (2017) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:5C62D7A88824DDF3DA8C8991FDE8E98D07D4E1C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Haim - Something to Tell You (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock,  
 ```bash
 magnet:?xt=urn:btih:1C7040A4B85046AB19F57CC356EEB31DDDDAF15E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Shade Empire - Poetry Of The Ill-Minded (2017) [MP3|320 Kbps] <Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:16831F90FFED52E34385074B1E035BA1D85E5DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Orden Ogan - Gunmen (2017) [MP3|320 Kbps] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:F0858B930C790F2C50219FF11FA74D5F6B1CF5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

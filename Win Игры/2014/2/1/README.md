@@ -19,8 +19,7 @@ Fatal Passion: Art Prison (2014) [En] Unofficial [Collector's Edition / Колл
 ```bash
 magnet:?xt=urn:btih:A99F4E49C23F7B6C86150AE50E6B64D647470B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Vessel (2012) [Multi] (1.15) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:1C019F28523EAE0800237B2EF52506D1EAE73F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ A-men это головоломка платформер с очень спец�
 ```bash
 magnet:?xt=urn:btih:DCF3229D59801FC64662D94AA03B8ACAA46C753F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

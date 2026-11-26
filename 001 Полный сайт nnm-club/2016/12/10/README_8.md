@@ -21,8 +21,7 @@ VA - Mega Dance Hits [Compiled by Zebyte] (2016) [MP3|320 Kbps] <Dance, House>
 ```bash
 magnet:?xt=urn:btih:FD3DA26551F20FB236B89F1C4249973B21008AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D48C5072767C63B736C44B9DBE23BD4BC40854F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD884F9574AAE26FA89B84B5F4F28FF00FC55115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Lightroom объединяет (   Читать дальше...   )Язык и�
 ```bash
 magnet:?xt=urn:btih:B12B8E72801EBEBA82D17C81E958F1C727E1CE20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Realtek High Definition Audio Drivers - драйверы для звуковых
 ```bash
 magnet:?xt=urn:btih:582CCDAB6DCFB9B42D660484549B6E58D1CCFD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

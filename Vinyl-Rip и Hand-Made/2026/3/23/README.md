@@ -22,8 +22,7 @@ A4 One Starry Night(   Читать дальше...   )Жанр: PopПродол
 ```bash
 magnet:?xt=urn:btih:921F9A4FFDDF1B10E39B00194DBC387663823425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Can't Smile Without You(   Читать дальше...   )Жанр: PopПр�
 ```bash
 magnet:?xt=urn:btih:FDC1A5FBA65CEA6FF5AB1F631F0F85DF9AC65F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:58E771F6B1294AE91FBE6A6713186BA91CB1072E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Revo Registry Cleaner Pro - это мощное и эффективное про
 ```bash
 magnet:?xt=urn:btih:B85049611BF5AB4123EFA713B0B85CD3E10C6655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ```bash
 magnet:?xt=urn:btih:04007E6629E984FE494DD3AE2AE55690E3F806D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beyond Compare — мощнейшая программа для сравнени
 ```bash
 magnet:?xt=urn:btih:E8C5AC927E86EC56910E0D1613D73DDCC818F52A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:508BB1110DF49B31128E0250F056D1A5322F9055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7DB4CD554C2DECF7DD8E147E9BB7F61A6FFB9B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:D317ACD4019639533A477B6B7CF37BC43421876B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Ekahau AI Pro 11.8.7 [Multi]
 ```bash
 magnet:?xt=urn:btih:0C00A7EA1F8C3326EEEA902B86BADCE95C023619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ WinDjView Extended — это быстрая и удобная свободно 
 ```bash
 magnet:?xt=urn:btih:1F754D4FC0E062BAEA7D2035C6638EA0E9B8361A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:E0D2031F3D97727E823374E7AB236EE5A6D48036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ AnyDesk 9.6.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:96BABA831EB073F44787111D117080D3B8F76CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2CA79DF67370BE6E699A8FED88D6F774DFB9CE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ MediaHuman YouTube Downloader 3.9.17 (3010) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:09A40172E2ACECAF77D783390181E49404237218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

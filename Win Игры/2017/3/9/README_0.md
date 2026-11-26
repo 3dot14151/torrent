@@ -19,8 +19,7 @@ Conga Master (2016) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E39FA193E45A2AA59448C0151442DC8AFED53293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World War Party: Balls of Duty (2017) [En] (0.1.9) Repack VseTop [Early Access]
 ```bash
 magnet:?xt=urn:btih:120839CC69E4CEA8A34D3DB48AA39738C225C032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ClusterTruck (2016) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:D4A6E422A9E57A16F08801A5098FAB6BC9ECA76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Aragami, игра в жанре "стелс", посвященная тайно�
 ```bash
 magnet:?xt=urn:btih:B2A03C9FF124FE25E15FD2FECA131A1F179C76E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lara Croft GO – пошаговая головоломка, главной ге
 ```bash
 magnet:?xt=urn:btih:00C267C8E45E9B9AD744319DAF4735EC69D3E347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Homefront: The Revolution - Beyond the Walls (2017) [Ru/Multi] (1.078.1055) Lice
 ```bash
 magnet:?xt=urn:btih:BEAB72E01B40EAA3F76FBF69AA35655DAEC4CA2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ One Sole Purpose - это приключенческий экшен, в кото
 ```bash
 magnet:?xt=urn:btih:CF8F73A6675967DFB16745607E52C6F86BC7D2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

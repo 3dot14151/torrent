@@ -22,8 +22,7 @@ Elvenking - Two Tragedy Poets and a Caravan of Weird Figures (2008) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:9DF9E0979B1F9EFDE9D1EA94072301A3A2CBB364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Departure Chandelier - Antichrist Rise To Power (2019) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:5015F2E150E8348B8D98DAC268EDDD75E2FD66FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Hawkmen - The Hawkmen (2019) [MP3|320 Kbps] <Rhythm & Blues, Rockabilly>
 ```bash
 magnet:?xt=urn:btih:0D732793FF3E283EACE467C2656FB682EC64F827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

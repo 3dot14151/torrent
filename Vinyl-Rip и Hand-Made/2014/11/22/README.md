@@ -28,8 +28,7 @@ James Last - With Compliments (1970) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Eas
 ```bash
 magnet:?xt=urn:btih:5DD2D5A6E1311620EAFA9775CF28329A2426C987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

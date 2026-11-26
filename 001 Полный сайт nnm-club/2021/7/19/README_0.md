@@ -21,8 +21,7 @@ Babe Ruth - Greatest Hits (2021) Japanese Edition, Compilation [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:2C6B14C0CC64A2F9036D3AE903F1630020CF251A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F1299230F4EF1931F14EF7E7BF3FC18C0D31D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C62AFAA97677CE22C2D39B5CBBCEA8F2766642F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Gumroad, Lu Dongjun | Orc Study (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:6FDA329F2B591455C6CA930AAC7BB50F48B65459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Sweaty Workout Hits (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B533F4BAAF8DCC5F2E6F49B4CC2D37241B46A57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Gumroad, Lu Dongjun | Bug Study (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:8578B9E016FF9B3D90750CDE259C31310B8FB04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A85EB23439ABBE44C1451418B22ACE9B789153DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Gorje Hewek - Collages (2021) [FLAC|Lossless|tracks] <Deep House, Organic House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Gumroad, Lu Dongjun | Wood Study (2016) PCRec [En, Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Gumroad, Lu Dongjun | Lava Study (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:EF69DDEF4EF76CD7318BFE67727C803F2543956F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1432E55A94A893B299CE5752A3ADA5A2E597D9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ File & Image Uploader - удобная и просто незаменимая п
 ```bash
 magnet:?xt=urn:btih:A08360EF29969E0A608992AA6D3592336101F700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Gumroad, Lu Dongjun | Witch Study (2016) PCRec [En, Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:344057A0B846B5E221FF959CF6A1B17EF0151262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ Gumroad, Lu Dongjun | Freezing study (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:A3FFF56E7CCE1FC59408E3743D72ED595284D028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ Codestars by Rob Percival, Atil Samancioglu
 ```bash
 magnet:?xt=urn:btih:E1FB2E65973887499FF9CAEBF1AA42EB291E3DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F6F1550D4935AF1100E61214F60D96801ADA86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ Gumroad, Lu Dongjun | Jurassic Study (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:B0347D90D146EBFBAD5C23AE237FC1EA021BC180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ OCCT 9.0.2 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F88660F830F657D28ECE8295A1828041B7225EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +582,7 @@ Rian - Twenty-Three (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:A15E3BEC3B1F909C10D7EF7C0E8A03F521D5EAB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ SVS, Will Terry | Choosing colors for storytelling (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:ED8F5BCC8CD3B62FB2AF998D49265C6A55FB3029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D722E9ED6318BE051EFCB57DBE792819E6BE1995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ Gumroad, Lu Dongjun | Desert Study (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:5D5F389665E6F797CAA93C24BD592E67A81051E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

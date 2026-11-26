@@ -19,8 +19,7 @@ Laika: Aged Through Blood – вдохновлённая вестернами р
 ```bash
 magnet:?xt=urn:btih:FEB7B5E799038C5185B5ADBF86539AA2A53A4879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (39734.9/dlc) Repack Other s [Brutal Edition]
 ```bash
 magnet:?xt=urn:btih:B4AE18A6EDF0D39655A3763803D78DBE527295C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

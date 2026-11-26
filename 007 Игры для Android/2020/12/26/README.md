@@ -19,8 +19,7 @@ Street Racing Grand Tour - отличный гоночный проект от H
 ```bash
 magnet:?xt=urn:btih:74CA9B43C26E87CA9EF85588C4D2B3C2291192A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ State of Survival - постапокалиптическая стратегия,
 ```bash
 magnet:?xt=urn:btih:BBB1E22871CE3C5486937F20DD4D8964B71AB8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

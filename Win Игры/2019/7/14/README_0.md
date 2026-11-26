@@ -19,8 +19,7 @@ Crime Secrets: Crimson Lily / Преступные тайны: Алая лили
 ```bash
 magnet:?xt=urn:btih:48C5222E95B3315E78267F2E9ACFA94DB19B82DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

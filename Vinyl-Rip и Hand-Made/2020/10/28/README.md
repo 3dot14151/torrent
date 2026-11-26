@@ -22,8 +22,7 @@ A4 Все Мы Верим(   Читать дальше...   )Жанр: Heavy Met
 ```bash
 magnet:?xt=urn:btih:3A8C96644EC00ECE51D19B47E1268D09DAF7D075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

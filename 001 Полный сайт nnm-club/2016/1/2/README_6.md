@@ -18,8 +18,7 @@ Microsoft Office 2003 Professional — исчерпывающий комплек
 ```bash
 magnet:?xt=urn:btih:0E7048C818F2C3ABFC27CD743C79BAD849FEEA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6D01EE6D8B67E1730CFEA9E61F3340FC0AC8887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2700023680BFB31A2E1980948E4FFC3F64D33D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3948D90733F3E66BF0B24A19203BA66227B9BEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Superнянь 2 / Babysitting 2 (2015) WEB-DL [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:6B64E895D340C734A30A679FE5448347EAE84E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Windows 7 Максимальная Ru x86-x64 Orig w. BootMenu by OVGorskiy® 12
 ```bash
 magnet:?xt=urn:btih:37E23C8A2634976FC34404C47ADAE654F6DFE1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

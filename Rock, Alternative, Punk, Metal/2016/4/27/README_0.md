@@ -22,8 +22,7 @@ Hammer Fight - Profound And Profane (2016) [MP3|320 кб/с] <Heavy Metal,Thrash
 ```bash
 magnet:?xt=urn:btih:C3F373D050B89DB4BEF3924D5AF6EA6A71582D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Skyforest - Unity (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Post-Black 
 ```bash
 magnet:?xt=urn:btih:F57422A561DB70D73F7486780C5CCF64977B1D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D9AD9B61DCB6FBB97148C20D48E9CF614CE0D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Placebo - Meds (2006) Limited Edition CD+DVD [FLAC|Lossless|image + .cue] <Alter
 ```bash
 magnet:?xt=urn:btih:87C52C2725365E6A4F207D4897B0120784686DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

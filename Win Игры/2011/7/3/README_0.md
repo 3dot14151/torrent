@@ -19,8 +19,7 @@ Puzzle Agent 2 (L) [En] 2011
 ```bash
 magnet:?xt=urn:btih:0BA3F2533B0D86313D0824880ABF23A55AECD60A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sparky vs. Glutters (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D9F44ABB179078B4556171799CC986A5093BB0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ad Astra - космический симулятор. Торгуйте, сраж
 ```bash
 magnet:?xt=urn:btih:9A440FD0076DA255E81A7A5A9A5B3691BF064940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

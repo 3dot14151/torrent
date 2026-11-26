@@ -20,8 +20,7 @@ Glary Disk Explorer - небольшая утилита, которая нагл
 ```bash
 magnet:?xt=urn:btih:E0709E0EC59381706EE1094AAAC9A6C7668368E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ MSI Kombustor поддерживает тестирование (   Читат�
 ```bash
 magnet:?xt=urn:btih:4040224E345E3A28D26E978A4C63E60F484DB9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ ASCOMP Cleaning Suite - программа для комплексной очи�
 ```bash
 magnet:?xt=urn:btih:C743CFB6098EB3E5D6318CCB2D862561562516D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

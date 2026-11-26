@@ -19,8 +19,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.4.0.4c/dlc) License GOG [Premium
 ```bash
 magnet:?xt=urn:btih:A45AC9E8824F65CFF343453E86F0EEF1E032AD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

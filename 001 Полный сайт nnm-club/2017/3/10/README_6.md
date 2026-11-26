@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8AF65CE390C43F33621D6AE9DC2054338BD72B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:901826FCBBC02A7DA3EE1930FE230303C3517197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2F80B7505938E89A943ECA9CD64FB87CC458FD48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C0D512A9B8448B8EA2936A8EA030D378C0BBE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86208F7063BE83934A78DAFBBF180AE5F8B06CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Hard Disk Sentinel Pro - утилита для мониторинга и кон�
 ```bash
 magnet:?xt=urn:btih:E58EAB3B880DABCAED551F59B0698FEAB4E87E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2343A4F31FCAA749BD52F8012BCC3F3ADB7C3E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A34A1C68750B9B80189E1C797414990AE2919599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ NetDrive позволяет подключить удаленные облачн
 ```bash
 magnet:?xt=urn:btih:C63D0622715C5CE9EBCA0782DEFE0F84045DF1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63597567B5A051AFC4D3E09B32FF77E514B58113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Hard Disk Sentinel Pro - утилита для мониторинга и кон�
 ```bash
 magnet:?xt=urn:btih:707708B2C2D10779D3534CE1DD9F0FCF1F7185A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Cinema 4D является профессиональным редактором
 ```bash
 magnet:?xt=urn:btih:CF5156A29163D8EEBC71838B0DF2A8B959C586B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ ITVDN | Angular2 Essential (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:1C6F335197C1BD42FA6BE84106400C59FC0DC06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Visual Studio Community 2017 - Бесплатная, полнофункцион�
 ```bash
 magnet:?xt=urn:btih:F02573C78BF73C679EDB930C206391D4A546DB7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7AC7060C372E0B6795C8EC81364CDE5FDA8655C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ Adobe Master Collection CC 2017 RUS/ENG Update 1
 ```bash
 magnet:?xt=urn:btih:28EA786BBE21325B4A18C1B93099A23AD7D0E174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ The Legend of Zelda: Breath of the Wild (2017) [WiiU] [EUR] 5.5.1 [Loadiine GX2]
 ```bash
 magnet:?xt=urn:btih:097F142EA708FE385C4C9B2B85D09E2712A77620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая охота (2015) [Ru/En
 ```bash
 magnet:?xt=urn:btih:CCB437A1459446B674BAF8250D601E02582C0330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

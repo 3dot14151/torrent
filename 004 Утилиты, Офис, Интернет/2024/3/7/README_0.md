@@ -20,8 +20,7 @@ Print.Test.Page.OK - это альтернативная портативная 
 ```bash
 magnet:?xt=urn:btih:0D0A82C7D07907E47A69A92427EF2B9D6244C6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

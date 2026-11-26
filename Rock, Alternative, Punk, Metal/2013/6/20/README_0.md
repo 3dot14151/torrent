@@ -28,8 +28,7 @@ Degradead - Til Death Do Us Apart (2008) [WavPack|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Santers - Racing Time (1982) Japanese Edition /1998, Avex Inc./ [FLAC|image + .c
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Septicflesh - Esoptron (1995) Remastered /2013, Season Of Mist/ [FLAC|image+.cue
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Tunng - Turbines (2013) [FLAC|Lossless]<Folktronica/Alternative/Indie/Rock/Folk/
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Edenbridge - The Bonding (2013) [MP3|320 кб/с]<Symphonic Power Metal, Female 
 ```bash
 magnet:?xt=urn:btih:54ECC707B3D4B7ED1A10EEE74FF5F3E1DB9972D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Red Line Chemistry - Tug of War (2013) [FLAC|tracks + .cue]<Hard rock, Post-grun
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Long Distance Calling - The Flood Inside (2013) Limited Edition [FLAC|tracks + .
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Status Quo - Bula Quo (2013) 2 CD [WavPack|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ Deep Purple - The Official (Overseas) Live Series. Copenhagen 1972 (2013) 2CD [F
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ The Alan Parsons Project - Original Albums Classics 5CD Box Set (2010) [FLAC|Los
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

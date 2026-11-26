@@ -19,8 +19,7 @@ Ashley Clark: Secret of the Ruby Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:278EFEB64342E67986B37E50E32714621A6F9EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fearful Tales: Hansel and Gretel Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:601038970897DD50854C0DD028D50982846BCC70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7339EB8906EA112E8FEB6FFEED99C0E13981D073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Dark Dimensions 2: Wax Beauty. Collector's Edition / Измерения тьмы
 ```bash
 magnet:?xt=urn:btih:95B559249BEE9521E71C5FA813DD15436C525E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Formula Truck Simulator 2013 (2013) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:1C0DC0FB7E9EC9DEE72B392CCE67FF76F3B98299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

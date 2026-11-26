@@ -18,8 +18,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 09.2019
 ```bash
 magnet:?xt=urn:btih:AEA3B2182C4AB54C13AB794B3E43F4320D977CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

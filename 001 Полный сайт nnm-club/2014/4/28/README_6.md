@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:971B6953D375F296743D5E6D563FA882CCFA732B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F62A6E4E7D0FFB6DD3165F38D7AEA3998DA8F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF42CFB5948E873CDFDDE2A1EF73B6F57041FCD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87E34B3802EA523448FA2B0CCC480108049D434D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Digital-Tutors | Видеокурсы по компьютерной график
 ```bash
 magnet:?xt=urn:btih:FEC55A9FB2A2C0D7AB6DE8AE2BAC10BBFA5DC8CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Trials Fusion — созданная по классическим канона�
 ```bash
 magnet:?xt=urn:btih:DE5BFE4FD42EBB9DAB4BD9B97C4EF70B527D618B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Razer Game Booster - незаменимый инструмент для заяд
 ```bash
 magnet:?xt=urn:btih:CBE04845AB5149BA5A4F446707E6C557F065BF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Movavi Video Converter - многофункциональный конверте
 ```bash
 magnet:?xt=urn:btih:218CD39B35F251A8D94A4B400A2B44F7CA7FECEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Grand Theft Auto: San Andreas v1.05 [Ru/Multi7]
 ```bash
 magnet:?xt=urn:btih:C4DB0665B3B81E00439C0700AD6D98986AF8F7B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7990BEF491DFF12FAF480F13C97A57AEED062CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Pro Evolution Soccer 2014, впервые в истории знаменитой
 ```bash
 magnet:?xt=urn:btih:C089BF5116D3BEE6A13D3F002FFDE666BDC7D2C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

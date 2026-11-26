@@ -27,8 +27,7 @@ VA - Eternity Trance Nova (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:0A6DEBEC72C9A460637C9C9E4A3C470C4ECBC24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB1A20B5E32747E042FF0639A5FE889497ED5BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B25B9CA15CCE0AF7518CED463B192683EE4CF5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EABFB8C0C1F6FF2A4BF3DE7D92F3672148B95401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Storm Dreaming Space (2013) [MP3|250-320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:E563FC7703B80715840258BFA223206ABFDA5C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E28D48D0E14FE6DE5B864ED2B1511B2475694C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F72F28094403CCAAD1DFDC44116917F7AF5CD6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Andrew Lu - Club Universe Radioshow 065 (11.04.2013) [MP3|320 кб/с]<Trance, U
 ```bash
 magnet:?xt=urn:btih:AAB4DA7B90D362EFBA4643ED15522880D64D86A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E676256077A418111FFF95D36BC560B09E53145F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C88BCB494B01C34FF652C88DF28AB7FF9F878A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96BF7C067EB18FB1F4AA3C37117E554D5EA565C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ Manovalanza - Anziani A Vent'anni (2011) [MP3|320 кб/с]<Ska-Core>
 ```bash
 magnet:?xt=urn:btih:8A8A7872AF283B01E0AEEEC4FC4DCE0204196BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ Mystic Prophecy - Best of Prophecy Years (2013) [MP3|320 кб/с]<Power/Speed/Th
 ```bash
 magnet:?xt=urn:btih:3B9CE0464086510B9AE6523B2FDD983581A2E147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ VA - Chillout Spring 2013 - Relaxing Lounge and Cocktail Sounds (2013) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:2A67CF752D554575282F79D683B6CBA3B402A998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +424,7 @@ Laurent Voulzy - C'etait deja toi (2012) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:99EAEA6116B6E31E5D56FC31BE7F9C9341454864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +449,7 @@ NG. C точки зрения науки. Кометы / Naked Science. Comets (
 ```bash
 magnet:?xt=urn:btih:A583DE5124F883B8332F2816957A2B70A9B433EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ Accuser - Diabolic (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F90DDC762293D5375981A38FA52585355480F1F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +517,7 @@ Lowell Fulson - The Complete Kent Recording (4CD) (1964-1968) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:0AB3FA0A7268E28AAFAE0ABFBE1CD80CB2389FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D74FFFE5A6D13442CC1D284B7BAF882A3E573672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +568,7 @@ NG: Побег. Серия №3 / Breakout (2012) IPTVRip
 ```bash
 magnet:?xt=urn:btih:DF5AE10AF2F9D3E794CE1F0A1A7721FE2D8DFE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +602,7 @@ Eri Yamamoto Trio - In Each Day, Something Good (2010) [FLAC|Lossless]<Jazz, Pia
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62E9DFE1392387CB48FC736EEF69A0CC7FDEB84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14A6A32F262AFE8E25320F2B6898B4676E76CCEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0C1C3820620D34F2EE8EF24CF2976490CFB7DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +712,7 @@ Suicidal Tendencies - 13 (2013) [FLAC|Lossless]<Crossover/Hardcore Punk/Thrash M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +740,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B4FD02084B36B94E84C85B17A50F34264FEF253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tales of Arise - японская ролевая игра, выступающа�
 ```bash
 magnet:?xt=urn:btih:DE92F0E8B040B0C34B872433FB419AAD79A9FE05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Remnant 2 - это атмосферная и брутальная комбина
 ```bash
 magnet:?xt=urn:btih:A5D604ECDC250A2572D8BD7189BC5E7F40345230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

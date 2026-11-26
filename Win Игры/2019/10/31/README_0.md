@@ -19,8 +19,7 @@ Lost Artifacts 5: Frozen Queen / Кладоискатели 5: Снежная к
 ```bash
 magnet:?xt=urn:btih:EC928D4FE614F20989A1EEE1864E80E2F5A64D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

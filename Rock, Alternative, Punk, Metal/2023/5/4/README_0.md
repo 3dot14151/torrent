@@ -22,8 +22,7 @@ Darkhold - Tales from Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove M
 ```bash
 magnet:?xt=urn:btih:42D4EB9EA89CEBFC0ED6E694357C755080DF43E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Daddy Cruel - Let's They Rot (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 'n' Rol
 ```bash
 magnet:?xt=urn:btih:103304B0D89E1A48942558E436BDA4E071A231A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Darkthrone - Goatlord (Original) (2023) [FLAC|Lossless|WEB-DL|tracks] <Death met
 ```bash
 magnet:?xt=urn:btih:03012E6D82A408B24F339F2464539E7E60001DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deathstars - Everything Destroys You (2023) [FLAC|Lossless|WEB-DL|tracks] <Indus
 ```bash
 magnet:?xt=urn:btih:C09B3A324F5A1035757CA0E29301F70CB4928004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Axel Rudi Pell - The Ballads VI (2023) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3ECF2C7C67C011720A24457E64D4A5E55140C399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

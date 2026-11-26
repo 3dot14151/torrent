@@ -19,8 +19,7 @@ Aзaмaт — идeaлиcт дo мoзгa кocтeй. Oн c дeтcтвa xoчeт c�
 ```bash
 magnet:?xt=urn:btih:F73DFB01BBCC0CE16424C073155CDB94541B370F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aзaмaт — идeaлиcт дo мoзгa кocтeй. Oн c дeтcтвa xoчeт c�
 ```bash
 magnet:?xt=urn:btih:332793AD08C15A13DA3A74CF4D7080B483BD7D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9416B2CBDD964069C6171CF286BB73CB974424F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87AC26F78AACD500AF86008C409A71C0D4EF62FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

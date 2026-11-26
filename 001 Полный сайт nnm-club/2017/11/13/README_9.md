@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:9B0F01C56B15688F3B61402638CF1831D1A3E914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFA8778807A19C5ECFE495344DDE2ADD9A38E4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:666016D1E738E006231AD0929E6F0FDFBE4A649B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:392F55215EB89220790361886B20BAA07F165EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Paul Webster and McAree and Clancy - Snake (Casey Rasch Remix) (2017) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:81F628ACAFF12551B70F05420E9811FEE8805B0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Dark Rest Vol. 3 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7EC9EB50C3489351A2F31C8A3A2D49E1B2214E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ KGproject - Cold Eyes (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:88A13FCEEB59EA16C820854AD5F5F6DE8C38E616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Dunkan - Dreamer (2017) [MP3|320 Kbps] <Trance,Progressive House>
 ```bash
 magnet:?xt=urn:btih:B0EAEC4995BF74B74792E13F0254A9F155F583BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Karim Farouk - Lost Soul (Original Mix) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7855562CA1243370FE60C30BA7795B6423C45408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - Dance Hits Vol 3 (2017) [MP3|320 Kbps] <Trance,Progressive House>
 ```bash
 magnet:?xt=urn:btih:838749A66E1D5B6133BEB8EF829C527AA2D9DE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ R.E.L.O.A.D. - Macumba (Original Mix) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:03EF1CCBEC1420FA7DBEABD59DED32743720ACF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - Ori Uplift & Nick Turner - Uplifting Only 248 (2017) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:8D1E59FC895C8852A291B8B32ABA9C95B7B80707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - House Variety: Deep Edition (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:CEC748BF16C1022532DFAEC6A0C12A975718140C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Threshold - Legends Of The Shires (2017) Limited 2CD Digipak [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:037AE1007DE8470A4014B1A83E79AA54857FA06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41881A3F9A5849F0404551654E4A1DBA39131DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Aeden - Once Upon A Time EP (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:1808ADEBC0B75144E104ED31DB1A840366F7E742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Basil Oglue - Depth Of Field (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progr
 ```bash
 magnet:?xt=urn:btih:451D828373E7591EC7B1B0BBC0C10525D06FE556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ WinPDFEditor — программа для редактирования PDF фа
 ```bash
 magnet:?xt=urn:btih:DCE613916A12AF57B63CB847A29745D239D55817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Jeff Smart - Super Moon (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:C6C60FE44C31E2E8B9D78F6AF7F770182B511E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D19D0D25F4CB95EEBE4F334D45BC7F76C9FF3493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ VA - Euphoria Water World Uplifting Trance Essentials (2017) [MP3|320 Kbps] <Upl
 ```bash
 magnet:?xt=urn:btih:EF2240B1F181F3FDFCB649D0CC529BE40C9475EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAA2195407B217B3798C55A5A2C476BC41CDB4AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Indigo Summer - Indigo Summer (2017) [FLAC|Lossless|tracks] <Country>
 ```bash
 magnet:?xt=urn:btih:C93C514996A2C4CCF37ABFCF9AC7F85BDD99FF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ VA - Grotesque Reworked & Remixed (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:5B72633E2A373B3699F601F0A16699C4D7CAD44C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70BCBBFF3D59D1C1E8362C574C46BABE762CE2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86E5D4A6448C7AEF13764847D94C05E929F593A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

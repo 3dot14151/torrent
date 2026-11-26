@@ -19,8 +19,7 @@ Smule v7.4.3.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:23E3FB07F93142F2AB1960FC5E52880C09DB1F1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

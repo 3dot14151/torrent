@@ -28,8 +28,7 @@ Modern Talking - The Final Album (2003) [AUDIO-TS|Upmix|PCM 2.0 24/44,  5.1 24/4
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

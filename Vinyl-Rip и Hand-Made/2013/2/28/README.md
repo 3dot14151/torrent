@@ -19,8 +19,7 @@ Helloween - Straight Out Of Hell (2013) [FLAC 2.0 24/96 | tracks (Vinyl-Rip)]<Po
 ```bash
 magnet:?xt=urn:btih:57345A83A43E05E54E31EAD9467B3F71363A11C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

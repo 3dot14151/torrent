@@ -19,8 +19,7 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:B2E99590431DF6A1F3B83855F8F66F89822016D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Builders of Egypt - это экономическая градостроител
 ```bash
 magnet:?xt=urn:btih:4EB34A5B60D892CED63A1D292AE7033CD896B013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:A01A8092E3AFD5DF7B2AE559CF8935B71503D687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
 ```bash
 magnet:?xt=urn:btih:DCB8ECED3F546EBE738B64DB81114DD9B326642A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Pegasus Expedition - это сюжетная глобальная страт
 ```bash
 magnet:?xt=urn:btih:484F06B9FA65A6B86A3ECEFFE369670A44F4CADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9388FF962F7B094AF605F3B5EA87F1D84A22E35B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.0.18525) Repack FitGirl [Collector'
 ```bash
 magnet:?xt=urn:btih:5169FF73A75685C20B3E8A29D12444EAA4F54C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EC74D5360D49A28B50B6E94DA9DDC334C6441ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:1E158A30F4AE99448B18B3DD5D2C0192C29DAEE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Kingdom Two Crowns является новым этапом развития э�
 ```bash
 magnet:?xt=urn:btih:D39A1E08EE9E597C5FEF580A28F8D4939BE2D27B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Complete Editi
 ```bash
 magnet:?xt=urn:btih:210439A2D7F2688B020EFC0C842C527CEEDB0003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Phoenix Springs (2024) [En] (1.1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:F679D3AFF6DCC34697738513C94A7599D0D847FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:4AC70D78CD7A606BC525B5F9130EE76C5DFDCA90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chimeras 3: Cursed and Forgotten / Химеры 3: Проклятые и заб�
 ```bash
 magnet:?xt=urn:btih:25C9A4CC8229ABF51054B724A7F93847B69FBF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Grimoires: Stolen Kingdom / Утерянные Гримуары: Краде
 ```bash
 magnet:?xt=urn:btih:FD29B5C05ED3E64C43F06A76C43091C7526D7B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Californium (2016) [Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:0FB07B2E44F9E87A2EE12525F840576753F49FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Elven Legacy / Кодекс войны: Высшая раса (2009) [En] (1.0.9
 ```bash
 magnet:?xt=urn:btih:B1744F3CA45C1052370AED98C6DAF29D0C6CEB50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Amnesia: The Dark Descent – приключенческая игра с вид�
 ```bash
 magnet:?xt=urn:btih:77D47375934E28A3BDFBCC83A4A67B27C1E1ECE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Livelock — многопользовательский аркадный шут�
 ```bash
 magnet:?xt=urn:btih:27B16EB63E9A9EED86D926628E45A32E32CADFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

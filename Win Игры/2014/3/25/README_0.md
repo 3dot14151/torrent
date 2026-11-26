@@ -20,8 +20,7 @@ Nikopol: Secrets of the Immortals (2008) [Ru/En] (1.0) SteamRip R.G. Игром�
 ```bash
 magnet:?xt=urn:btih:67C16735F831ED5BC0571729F0043B2A6E38EC72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Shadow Warrior - ремейк шутера от первого лица от с�
 ```bash
 magnet:?xt=urn:btih:58EBCB2330BEEE6632423B0E1348EFFF07939D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Monkey Island Dilogy (2009-2010) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:08FD2B046A2383897EABCEE19EFEB98B4585BAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Spore (2008) [Ru/Multi] (3.0.0.2818/3dlc) Repack z10yded [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:57904C367282CE342FB88CEC65830DAB61A84B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Betrayer - это экшен-приключение с видом от перв�
 ```bash
 magnet:?xt=urn:btih:25F55756E920BC5D8A925EEFE8E0BEF668320143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ O&O Defrag Professional – инструмент дефрагментации д
 ```bash
 magnet:?xt=urn:btih:01AC965254BD41976B701647FB7EE20423021640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ EasyCut Pro 5.123 [Multi]
 ```bash
 magnet:?xt=urn:btih:55D705056014712CFF049CAB80F14BB9AFDD9401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:AB4A0FAABA7C000D8895F757358A00497AE19A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

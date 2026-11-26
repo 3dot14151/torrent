@@ -22,8 +22,7 @@ Loosely Tight - Fightin' Society (1981) Reissue, Not On Label [MP3|320 Kbps] <Ha
 ```bash
 magnet:?xt=urn:btih:C99917E9306BCAD1569FAFFA910E910210CC9F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Rock Classics - The Collection: The Ultimate Rock Anthems (2017) 4CD [MP3|3
 ```bash
 magnet:?xt=urn:btih:B0066A5EFF02AC7B58E713B32F961315056C9408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

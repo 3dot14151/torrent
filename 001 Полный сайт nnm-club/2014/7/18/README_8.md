@@ -28,8 +28,7 @@ Martyrdod - 4 Альбома (2003-2012) [MP3|320 кб/с]<Crust, Hardcore, Blac
 ```bash
 magnet:?xt=urn:btih:060E3C52214BD772CB6B9313078A8EE5AC141F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Vibes - Liebe Tunina (2000) [FLAC|Lossless]<Jazz, Post-Bop, Modern Creative>
 ```bash
 magnet:?xt=urn:btih:86DA597B89376BF86357C17A0AC813938E906802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6CB77B31A8F9330BC318C1942A272CB76DA261C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FCD28101E10F901516326518916588DE778CF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ VA - Summer Clinique (2014) [MP3|320 кб/с]<House, Progressive House, Techno>
 ```bash
 magnet:?xt=urn:btih:2E6F3F6E519D6E57A014C7584A864DE9195B8E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ Falcon Funk - Pounce (2014) EP [MP3|320 кб/с]<GlitchHop>
 ```bash
 magnet:?xt=urn:btih:39BEA832BB014946BBE910DB04531ACF9074F584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ Monte Montgomery - Monte Montgomery (2008) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:8DE74874314AE59D3F6357C61098A89B07225691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ Vitali and his Lounge Orchestra - Chillout Lounge (2014) [MP3|320 кб/с]<Chill
 ```bash
 magnet:?xt=urn:btih:B67A7D9105DA8FF0EF55BCDDB8F0B02F2AD4D796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CEE1522BE4196956E687CF498E7243AE05C1914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C708A898842481A575A5E25E00BC991B381A6E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ DJ Nike Twist - TranceWave 094 @ GTI Radio (17.07.2014) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:6BBA655AEE3CFB05A90C47B010D62D1672688D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Bad Boyz Boogie - Bad Boyz Boogie (2009) [MP3|320 кб/с]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:EA4D59D3F0D955E237467C6AA22A6BEF25AAD6A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3A19EE3B7569464759F2777307197DCE8D4F930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4291A8F7115CED40CC47AA967ED8CDAD0DACF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ Flume - Intrumentals (2014) [MP3|320 кб/с]<FutureBass>
 ```bash
 magnet:?xt=urn:btih:3B7C77B7CF92533906F1F9D47AF37A92E911B076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAAC22C9B45DCDA5844D8DDF6429C513EEBFAD7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ VA - Deep Down In Berlin 14 (2014) [MP3|320 кб/с]<Minimal, Tech House, Deep H
 ```bash
 magnet:?xt=urn:btih:5893C253D1148C2128C5C967699BE15AA495B4A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ Sylvia Bennett - Best Love Songs (2014) [MP3|320 кб/с]<Vocal Jazz, Bossa Nova
 ```bash
 magnet:?xt=urn:btih:EC1A4A4724258F1BCF3F8AF6D8DF35CF9246517E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A805531061BEA107D7E09E5C47C3CC620C13B348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ Flinch & Infuze - Belly Of The Beast (Ft. Elan) (Trolley Snatcha Remix) (2014) [
 ```bash
 magnet:?xt=urn:btih:55624C926DC45620010F4AB4D2D9F38196CD5B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ Sinister Souls - Horns Up (2014) LP [MP3|320 кб/с]<Drumstep, Drum'n'Bass, Cro
 ```bash
 magnet:?xt=urn:btih:CDC9A03EBD60CFC9C565EF7B040FFAD31CB30F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:236CF41B68F6646E08C02CFF99AF024203875021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ iTranslate для Mac позволяет вам получить доступ к
 ```bash
 magnet:?xt=urn:btih:551D7733BF3175EFFA0B8DDD76522E5DAE575C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:928C11E28518DAB3B0F459600BB24C8EFF2FE514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8906CFE20535EDC223CBBBCEE5B9A72FD0740A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E48F0BE49FD6C9BFE345DB0FA5D7C40735642FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

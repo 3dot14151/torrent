@@ -18,8 +18,7 @@ MacX DVD Ripper Pro 6 был создан специально для польз
 ```bash
 magnet:?xt=urn:btih:98EDE1F52865256B33ED005AD521AC78449CD6AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Chill out Mood, Vol. 1 (2021) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:0302472B7DFE955456434DA4A65BC58E3498D18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ TextFridge позволяет хранить множество текстов, 
 ```bash
 magnet:?xt=urn:btih:2083E6570BA7D6A3B94C2B3851A51AEE110C8C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Texpad это редактор LaTeX предназначен для прост�
 ```bash
 magnet:?xt=urn:btih:315D6F3962DDD3745F958FFF8CE50A0D1887A301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Winter Lounge (Destination Aspen) (2021) [AAC|~325 Kbps] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:C606E0969A6F7EFDF54E3D24016D5B68DA444146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Chris de Burgh - The Legend of Robin Hood (2021) [AAC|~330 Kbps] <Classical, Ear
 ```bash
 magnet:?xt=urn:btih:FBD1E14876ABF7EF8DEEE74E5FA6461D7436F5EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - The History of Lounge Music (2021) [AAC|~289 Kbps] <Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:82D515258EABF82C16D3AEB47739A0837EE22AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - The Chill Side of Underground (2021) [AAC|~291 Kbps] <Lounge, Chill Out, Do
 ```bash
 magnet:?xt=urn:btih:CFEEF1C51EE45E6EB4FFDDE96F9128699F48BE39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Röyksopp - Melody A.M. (2003) [AAC|~300 Kbps] <Electronic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:EAA1040871D6EFFD8305B587E5D8920B2DC3F2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - 100% Relaxation (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:7369D8F175A80F3984565E2103D71ED1906BD71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ FigrCollage - программа для создания удивительны�
 ```bash
 magnet:?xt=urn:btih:261C7D76B43B6F2302A4A8553AFEFA4971AAB9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Café Deluxe Chillout - Nu Ibiza / Lounge (2016) [AAC|~314 Kbps] <Easy List
 ```bash
 magnet:?xt=urn:btih:67E7245C72E2C57385978D61667C7C1BA4543BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ OneRepublic - Human (2021) [AAC|~303 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:20C2A93BEFBEF061536788BE7DA7B62DE29CECDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ VA - Global Chill Out Masters, Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill Out,
 ```bash
 magnet:?xt=urn:btih:09758B7709B742DCA7B811686127EDE2C223B344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 1 (2021) [AAC|~306 Kbps] <
 ```bash
 magnet:?xt=urn:btih:1255173C35A83DDE30DF70CE0238C0D3091F13FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ VA - Relax Your Base, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:DEBBB7DB8695E601FD9382A7141007993A1BA793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:1F260E1C5E38A5AD41C24F9959D0CB38FD70F3C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Billy Esteban, Rialians on Earth, Cafe De Anatolia - Around the World (2020) [AA
 ```bash
 magnet:?xt=urn:btih:9C32D6D0BDB24B1205825C23D4C2BD8197076DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ MacX Video Converter Pro — приложение, которое автомат
 ```bash
 magnet:?xt=urn:btih:82143828D3E642B639EBC09A917D302A2A2843D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68DF45DDC22BBC1A945FCD473A10912C4BC60660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ PCDJ DEX 3 - профессиональное программное обесп�
 ```bash
 magnet:?xt=urn:btih:8E9FC07781A50E189A50F6F2B2107906FFFF1E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ VA - Carpe Diem Lounge (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:258A6D464EA937580656E10F9D35C5D7589732E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ Sexy Chillout Music Cafe - Erotic Seductive Chillout: Night Sensuality, Making L
 ```bash
 magnet:?xt=urn:btih:297185D428B7D3C987231B7DDF34FD5F5A646446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ VA - Vanilla Kiss (Beautiful Lounge Collection), Vol. 4 (2021) [AAC|~321 Kbps] <
 ```bash
 magnet:?xt=urn:btih:C70083B08B62F000D74F76463BB332BA2593368F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ VA - Lounge Philosophy, Vol. 3 (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:E792456AC9A5C6E3D9A60F503F46874CC36E66AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64AC4EC6A0AA66F6C453D890B226CCE5774182B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

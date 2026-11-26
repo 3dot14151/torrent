@@ -21,8 +21,7 @@ Twitterrific - Простой в использовании, Истинная п
 ```bash
 magnet:?xt=urn:btih:21B389B426786BBDF7CC20B9F3B95EFFF6A32BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Clifford Brown with Strings (1955) 2011, Universal [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:93A2C648D6FDF5B186853E1BB3630CA5F926CEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:96B331D608CF2186FC6294DBB0382FF88B007433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AACA8E629D7FB48BAE596FBD32C3DF6401C9C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Studies - это приложение, чтобы помочь вам освои
 ```bash
 magnet:?xt=urn:btih:F95911789491EC81FFE36CAA6282CCA7EB615518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ VA - Vocal Anthems Amsterdam (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D5B8AE4733439EA7EC6F5FA6EB1CC6973036E69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Simon Monitor проверяет серверы на изменения или �
 ```bash
 magnet:?xt=urn:btih:4F935C1CE20817BAC947B33527C7B6ECD84FE8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Vectoraster - программа для создания векторной гр
 ```bash
 magnet:?xt=urn:btih:ECA5315C0A48543988F31ADFE5B95AD32EE187D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Contacts Journal CRM представляет собой мощный инстр
 ```bash
 magnet:?xt=urn:btih:54C70393E63847EDB2B8AD531C1EAC1DE253777F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ VideoboxPro позволяет Вам быстро и легко закачив�
 ```bash
 magnet:?xt=urn:btih:27B119DE620879E6316BD55E617F96B29923D125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ beaTunes анализирует музыкальные композиции, о�
 ```bash
 magnet:?xt=urn:btih:7DAE4B0426BAEFF8ABA2E0F43EC7F851D116FE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Easy New File - это расширение для поиска, которое 
 ```bash
 magnet:?xt=urn:btih:36C876E7CAF676B17F133C1743CA6F05357BE22E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ MWeb оддерживает расширенный синтаксис Github: TO
 ```bash
 magnet:?xt=urn:btih:35854267BCCA7F4E1F4FD93ADFE3AF1287AA5067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:E89E652D4B3E2308D73C3E91157484D71953D4AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ JustBroadcaster for Facebook 2.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:F1370681FB1C94EF51171DC0F18AE74E5496C7CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ iNotepad специально разработан, чтобы позволит�
 ```bash
 magnet:?xt=urn:btih:70C523361F6804A509575F5AD542125D902190E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76AA8C90CC8B856EC9DC03F74741C407F497D35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E3C3C90F7F82485327D0A1CABE40CE74EBF86E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAB54F6EC0F8A2C19DC93E7A532C404BAFC787B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ Constance Demby - Sanctum Sanctuorum (2003) [FLAC|Lossless|tracks + .cue] <NewAg
 ```bash
 magnet:?xt=urn:btih:6F1BACB0D4DCE1F28F69510B93D1C652ABC09374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Constance Demby - Faces of the Christ (2000) [FLAC|Lossless|tracks + .cue] <NewA
 ```bash
 magnet:?xt=urn:btih:67BCD102FD0796A839FC42D11DD8C786684B5E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Watercolor Studio - удивительное приложение, способ�
 ```bash
 magnet:?xt=urn:btih:C550788FCA81EE6422BA4E57E33AB3D74ECC993A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ Constance Demby - Spirit Trance (2004) [FLAC|Lossless|tracks + .cue] <NewAge>
 ```bash
 magnet:?xt=urn:btih:7D5245C61519C01704976B7E658DB8EB00F2B9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ Constance Demby - Set Free (The Definitive Edition) (2006) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:0AF95A4C93DE08DC0EAC38EB49EF2418C64B73C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ ChatMate для Facebook - мощный клиент для Facebook Messenger.�
 ```bash
 magnet:?xt=urn:btih:A312A4DE24894355FE22F0BC231A14FE44F5F5DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ iGif Creator 4.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:B4A63DC0B3BBB9A3086E5FE670C333681CF17AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

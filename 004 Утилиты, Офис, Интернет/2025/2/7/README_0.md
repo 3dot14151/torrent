@@ -19,8 +19,7 @@ Min Browser — это легкий веб-браузер с открытым и
 ```bash
 magnet:?xt=urn:btih:B2B3DC2C20C58B4866EF5E091C617237BF7B3638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Epic Pen – настольная программа для Windows, позво�
 ```bash
 magnet:?xt=urn:btih:81C892C8EB2FD0C24F874663F729596031CC291C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Driver Store Explorer — это легкий инструмент, которы
 ```bash
 magnet:?xt=urn:btih:4A9F906061F9F52550D8C2FD2ACF485015F489DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Movavi Screen Recorder - программа для захвата видео с 
 ```bash
 magnet:?xt=urn:btih:0C5A71636E05D42678DFC9F345A000CCF80CAE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Movavi Screen Recorder - программа для захвата видео с 
 ```bash
 magnet:?xt=urn:btih:9D17422B07C56A2F53D52B6C6960E4184D00E2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

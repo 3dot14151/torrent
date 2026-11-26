@@ -21,8 +21,7 @@ Jotun – это рисованная вручную приключенческ�
 ```bash
 magnet:?xt=urn:btih:0627BD7A94C26DE29764F477F82A0A4F5FD1932F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ A Story About My Uncle - это приключенческий платформ�
 ```bash
 magnet:?xt=urn:btih:AAC47FF40B31A53792D8CCE00CDDEFCB6F577EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Seasons after Fall – двухмерный приключенческий пл�
 ```bash
 magnet:?xt=urn:btih:9C0D389F00620F121D31408932E1088D60B8BFDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

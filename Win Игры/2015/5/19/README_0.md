@@ -19,8 +19,7 @@ Grim Tales 8: The Final Suspect (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:D69B6ECBF381AA3E831AECE24048301648224367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

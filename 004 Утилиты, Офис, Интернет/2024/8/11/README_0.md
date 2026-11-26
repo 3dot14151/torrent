@@ -19,8 +19,7 @@ InControl контролирует систему автоматического
 ```bash
 magnet:?xt=urn:btih:3EB52BDDD36D9581C878A996A38D8F5834F2A3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

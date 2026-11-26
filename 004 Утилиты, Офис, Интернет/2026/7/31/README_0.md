@@ -19,8 +19,7 @@ OCCT 17.0.13 Portable [En]
 ```bash
 magnet:?xt=urn:btih:7EA38E2F8CFD3AB4113CED31E976CCC296ACD4E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AnyBurn Pro — это расширенная версия популярной 
 ```bash
 magnet:?xt=urn:btih:F21DE4AF94B1549541EBFB6C67D5385B6D735B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:0CDF6D1FFE5821400E567F57CD5C1D27D2B7A206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:D5BF2CFBFBBD63F79140AF63CAF79C22F9B7585C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:C5D455CCE984E6452E8E6BBC1412CB5D851FFBAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Profound - Deep And Sincere (2003) [FLAC|Lossless]<Progressive Metal / Heavy Met
 ```bash
 magnet:?xt=urn:btih:4248CFC1591CF861D2FB055882D592F7F5D901B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Profound - A World Of My Own Making (2006) [FLAC|Lossless]<Progressive Metal / H
 ```bash
 magnet:?xt=urn:btih:B93AD03020A3A9EBCCF5FB5248AE06427ADF1480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Balance Of Power - Heathen Machine (2003) [APE|Lossless]<Progressive Metal / Hea
 ```bash
 magnet:?xt=urn:btih:87C900574B4936D4B5269CE76CE1754CDC032CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Creation's End - Metaphysical (2014) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:6A85790F497B83712BB53971CC2EBBD91BF6DFD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Balance Of Power - Ten More Tales... Of Grand Illusion (1999) Japan [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:AED953AD87491918E81341DF579B65BE61D09331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Balance Of Power - Book of Secrets (1998) Japan [FLAC|Lossless]<Melodic Heavy Me
 ```bash
 magnet:?xt=urn:btih:C138095283B4100024234DDBA7CFD795CCB4D52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Siebenburgen - Darker Designs & Images (2005) [APE|Lossless]<Melodic Gothic / Bl
 ```bash
 magnet:?xt=urn:btih:563D3D5BEB931552C4B78AA215D4F7EAD3ED5088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Siebenburgen - Loreia (1997) [FLAC|Lossless]<Melodic Gothic / Black Metal>
 ```bash
 magnet:?xt=urn:btih:9868C15DA3331DC88BE8D2209E080990EB442439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Balance Of Power - Perfect Balance (2001) Japan [FLAC|Lossless]<Melodic Progress
 ```bash
 magnet:?xt=urn:btih:961C8D879A8A830CF83C651CE1595A0976680337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ Balance Of Power - When The World Falls Down (1997) Japan [FLAC|Lossless]<Melodi
 ```bash
 magnet:?xt=urn:btih:CAE9B8AF900BF667BED2AF99A5FAD3190E89FC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ Siebenburgen - Grimjaur (1998) [FLAC|Lossless]<Melodic Gothic / Black Metal>
 ```bash
 magnet:?xt=urn:btih:50742575C23484392538AEB77D872CBB9506BF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +398,7 @@ In Flames - Siren Charms (2014) Limited Edition [MP3|320 кб/с]<Modern Metal, 
 ```bash
 magnet:?xt=urn:btih:0DCEE970333EA89424DF39A3DE557C8AC890499D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

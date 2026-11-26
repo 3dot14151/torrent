@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A34F254F05042D0247212DB58650C22FF9CD4268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ N/A2012Жанр: HouseПродолжительность: 00:52:46
 ```bash
 magnet:?xt=urn:btih:AED5A59440DFBEFBA030B8A2947103DF3A0A671E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Joey DeFrancesco - Where Were You? (1990) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Win7codecs — набор аудио и видео кодеков от разр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ray Barretto - La Cuna (2003) [FLAC|Lossless]<Latin Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Mason Proffit - 5 albums (1969-1973) [MP3|160-320 kbps]<Country-rock, Folk-rock>
 ```bash
 magnet:?xt=urn:btih:0949C8173FE5818AA3518AB1C0B930C24854315C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ The Pistoleros - The Arrival of The Pistoleros (2001) [MP3|320 kbps]<Surf, Instr
 ```bash
 magnet:?xt=urn:btih:2EDD29FBEF8AB325AE52E6BCEC7A0FE11B6B9DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Iron Fire - Voyage Of The Damned (Digipack Edition) (2012) [MP3|320 kbps]<Tradit
 ```bash
 magnet:?xt=urn:btih:2A7F676A40777D8F0082BE39EA24635C317B891A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ VA - Топ-200 Муз-ТВ 50/50 (2012) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:1C22E8FA253FA34A318335A886546BC7841A56DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ Rosie Thomas - With Love (2012) [MP3|320 kbps]<Indie Pop, Acoustic, Singer-Songw
 ```bash
 magnet:?xt=urn:btih:2B4D69E2F91B4901F0B1F9F9BA7559DB3D166BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2092C9D2C8E0B1AA6021A65C52D3C728222455D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ Dark New Day - Twelve Year Silence (2005) [MP3|208-232 kbps] <Rock/Alternative M
 ```bash
 magnet:?xt=urn:btih:D27954592A0C307A8C8709557630C6F3A37762DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +400,7 @@ VA - РЭПчина #5 (2012) [MP3|320 kbps]<Rap, Hip-Hop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +432,7 @@ Claude Bolling - Suite For Violin (1993) [FLAC|Lossless]<Crossover Jazz, Violin>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92B393F2556E514AD6769AEF3952BD47122DD548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5925FA31EEEA1FC4101B8D3696217FD1C7DB8557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FC9BB6AE6CEC4461D88EAD827E0055E5BFFC3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3D61A714C6ADB734C0E09EB081C89C4B37C7934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F4BED26300F2FBB0BED3D7BC2908A955286DD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ Carsten Rosenlund - Distant Shores (celtic music made of dreams and longing) (20
 ```bash
 magnet:?xt=urn:btih:E89485F7E9F47181F6D6E709752610BA6322F278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ Anachronaeon - The Ethereal Throne (2012) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +673,7 @@ VA - Зимняя BestOfKa DFM 17 50/50 (2012) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:3122E07A70ECD9224B447AB74B822B93FD0C3360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +707,7 @@ VA - NeРусский Шторм –47 (2012) [MP3|128-320 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:14E07CE7040B3B5D124046A5B1F101BF00C3661B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +741,7 @@ Malefique - Flashlights  (Part 1) (2012) [MP3|320 kbps]< Abstract beats / Experi
 ```bash
 magnet:?xt=urn:btih:6EE1A970DF62381B79C67092AD6148366E089399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -799,8 +775,7 @@ VA - UK Hard Trance Anthems Vol.2 (2011) [MP3|320 kbps]<Trance, Hard Trance, Har
 ```bash
 magnet:?xt=urn:btih:FD9DD8248D24EE5582B5BAB72EACC6ED68942123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -834,8 +809,7 @@ VA - Зарубежные Новинки Vol.26 (2012) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:6453D38BD029BF6E0DA81F38F5C688587D795992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

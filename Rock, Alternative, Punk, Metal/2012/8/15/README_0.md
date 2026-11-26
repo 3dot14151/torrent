@@ -19,8 +19,7 @@ Stone Sour - Gone Sovereign / Absolute Zero (Single) (2012) [MP3|320 кб/с]<Al
 ```bash
 magnet:?xt=urn:btih:E865E92B3AF2FFDEE7516860002F2E032DC5046F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

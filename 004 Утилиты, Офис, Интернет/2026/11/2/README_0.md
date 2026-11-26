@@ -19,8 +19,7 @@ MetaProducts Offline Explorer Enterprise — мощнейшая программ
 ```bash
 magnet:?xt=urn:btih:E28764ACD57CB75504733B818CE9D0850EA39C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:069044F01577E68674371AA931290A58454C7BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HD Tune Pro - программа для планомерного детальн�
 ```bash
 magnet:?xt=urn:btih:D1E346D118D8787AA21A7E3AF6B8B033436E6D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ RustDesk Remote Desktop – программное обеспечение для
 ```bash
 magnet:?xt=urn:btih:5E53636FC0C41EC72D757AA61B3826D3711559A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:46F595922757986907F1F2F73612FAE47CAB84DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 ```bash
 magnet:?xt=urn:btih:4782CA6A42D1688336903DA8BF3F9B321E832C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:9EDCA4FBE500C324144C4B152FD1C58A05215EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

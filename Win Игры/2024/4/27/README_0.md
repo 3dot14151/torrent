@@ -19,8 +19,7 @@ Dark City 9: Amsterdam (2024) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:A01A1DBF86A97896A8012A249946526B11142A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A6EC2CFA6A0760CEF7FB8C43909662FC16F8E075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Strayed Lights (2023) [Ru/Multi] (1.4.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E02E59A6D024B562EDBE3C60475F97C09E1917F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4390C3EE2F9AD65F61C5C5D0144C24E2020E3C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Diluvian Winds - это оригинальный симулятор с элем�
 ```bash
 magnet:?xt=urn:btih:89ECFFD04C5FD3CD7F626495233AB0649BF78572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Rise of the Triad - это культовый шутер, созданный н�
 ```bash
 magnet:?xt=urn:btih:D331687EDFAAB78FBDE9E53DAFFC006A8EB7CC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) R
 ```bash
 magnet:?xt=urn:btih:A808C7C6EC7688ED03B4DB734DF01532C374F60A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Ready, Steady, Ship! - кооперативная игра для дивана, 
 ```bash
 magnet:?xt=urn:btih:CF0A496D58E9D901A3E194DD515C7CA2545B14EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tents and Trees (2024) [Ru/Multi] (2404041009) License GOG
 ```bash
 magnet:?xt=urn:btih:AE4FD1002B8A52A9DBC767618088A35C3FDA8AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:7851BC6B2794E72540E5B756B8EFDB639CEC4C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Paranormal Files 10: Counterpart / Паранормальные явления 1
 ```bash
 magnet:?xt=urn:btih:FCD46E5C17ADB239B0A524001A6937E184535F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

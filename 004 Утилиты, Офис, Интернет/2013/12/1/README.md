@@ -20,8 +20,7 @@ Nitro PDF Enterprise - мощный, предназначенный для пр�
 ```bash
 magnet:?xt=urn:btih:AF93C137DB16DA408A735852A7CDBABCAF32A832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

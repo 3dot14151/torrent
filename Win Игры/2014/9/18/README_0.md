@@ -19,8 +19,7 @@ Grim Facade 5: The Artist and The Pretender (2014) [En] Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:40547792AD4C32C8B5CB5768893C3966EAC22462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:287C2EF3ABEBD7A54E7A40BEEB60E6197F2C6752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Radium - это минималистическая логическая игра
 ```bash
 magnet:?xt=urn:btih:36FFAA79B4A0BBE7E2BF88A072047E99C04B16DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Project Root – классическая игра в жанре shoot 'em up, �
 ```bash
 magnet:?xt=urn:btih:BEB78947C051EFF0141E0A8535D83A5601E1EB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Aztaka / Ацтеки. Тропа богов (2009) [Multi] (1.53a) License FAS
 ```bash
 magnet:?xt=urn:btih:E8CA330BC760C4F3D1E5E1B901ED9AEE5EE547A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Residue: Final Cut (2014) [En] (1.9) License iNLAWS
 ```bash
 magnet:?xt=urn:btih:D5B6DBECB93B8D814EFE51C15EA00696580C1D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Fable Anniversary сделала большой технологический �
 ```bash
 magnet:?xt=urn:btih:7F7F239A59492615628623943D3D4DF547396888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

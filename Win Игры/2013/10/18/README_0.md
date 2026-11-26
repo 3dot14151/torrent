@@ -19,8 +19,7 @@ Otherworld 3: Shades of Fall Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:6C8F1B80FC322D300BA850B30D1AE38B05393D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nearwood Collector's Edition / Улесье. Коллекционное изда
 ```bash
 magnet:?xt=urn:btih:C12929348BA7A4C3EADB1F3B5EFFC20CD847E936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ F1 2012 - это самый реалистичный и максимально �
 ```bash
 magnet:?xt=urn:btih:BF6E8D7F1A7BC0690033ABF64B0B879B0A9B7277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Goodbye Deponia (2013) [Ru/Multi] (1.1.4.3284) Repack SmS
 ```bash
 magnet:?xt=urn:btih:D247CE9383330313803F89F82CEFADB9E2C85AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Dark Matter — это 2.5D survival horror проект. Действие бу�
 ```bash
 magnet:?xt=urn:btih:DCB6D4A8123CCE5735082336652BCB84FC94B7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Alien Rage: Unlimited (2013) [Ru/En] (1.0.9084.0 upd6) Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F8BD58CF237989840BB0F0F96F4E7A8CE07A41EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:CABDDC04D98450C7E44390147BD127FFCB83AB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Legends of Aethereus – фэнтезийная экшен MMORPG, предла�
 ```bash
 magnet:?xt=urn:btih:914FB9722A095DC891B2999B6C4DC9EB3FF6F5EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

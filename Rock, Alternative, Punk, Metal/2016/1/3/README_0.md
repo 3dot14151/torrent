@@ -22,8 +22,7 @@ P.L.J Band - Armageddon (1982) Remastered, 2006, Mason Records [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:CEFA4775C622DF45CE5DAA6B862A813B5FBDD449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Tupelo Honey - Brave New World (2014) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:87816A910055FAE1C6E4AF6EA1612BC6C79D109A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ In Extremo - 20 Wahre Jahre (2015) Rarities CD Compilation [MP3|320 кб/с]<Fol
 ```bash
 magnet:?xt=urn:btih:19C0B11FD559477493D3DC24B38EB0AF01E16CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Electric Light Orchestra - The Very Best of Electric Light Orchestra (2015) 2CD,
 ```bash
 magnet:?xt=urn:btih:1E9C9FE4A2DE4CD2A46D719CC774F71E11B77177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FD04309468872B7C7C6F1731CA1488186C3576B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

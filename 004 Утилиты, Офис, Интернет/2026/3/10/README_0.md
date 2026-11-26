@@ -19,8 +19,7 @@ NetOptimizer Portable 7.0.26.309 [Multi]
 ```bash
 magnet:?xt=urn:btih:304A81A91DB5AD7E9C2946E9BA78D45AB2AB5097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 ```bash
 magnet:?xt=urn:btih:59F2107A92B5AFDFFFCF1BDE9F3A1FCBEA625122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Terminal Services Manager подключается к одному или нес
 ```bash
 magnet:?xt=urn:btih:B5E88AFA085584BDF867C2209FE509CD5E701BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:128A9291A1416EBB00DE818325CEABB8C0463C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:C9EA4727082FDF64328A98F58812DBA4F31957B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:F3CDF66F8E81DBD80DAF5C78CCC85BB383D114CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ MediaHuman YouTube Downloader 3.9.18 (0703) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:D03CD9DC725C878E6EF6B19A16DDFFF1756691DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:8D1C8A3DAB5B69C638F0BB2307B17486DFD1747E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:C3DFF231BA2E5F1F903F65B537AF29B2E363ABA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:2A5DEAADF40C1ED28659B6B008328F740D1877E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:C5F5B4A44613062D439012053CE17C1189BCE6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47DFB0BACA606C35C1BC6DCB8177B39D80FF5D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:F33386A521492F7047F08FD88A04027466930FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Glary Utilities - комплексный набор инструментов д�
 ```bash
 magnet:?xt=urn:btih:66ADC8B14BC0B88B580F8E8B1508AC3F7FF26711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ MobaXterm - это комплекс утилит, в котором есть в�
 ```bash
 magnet:?xt=urn:btih:5B4F1437337F67188C81BFF4DA487EB91C0FCCF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

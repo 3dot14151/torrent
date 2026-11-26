@@ -19,8 +19,7 @@ ZArchiver - это файловый менеджер с широкими воз�
 ```bash
 magnet:?xt=urn:btih:4157A22F15D9BA8DB48AA70FE3C91E1094C64C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

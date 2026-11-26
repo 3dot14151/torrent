@@ -19,8 +19,7 @@ Rugby 20 (2020) [Multi] (1.0.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:577E50CB60172958A5193E1C1C8D4A36B717F9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

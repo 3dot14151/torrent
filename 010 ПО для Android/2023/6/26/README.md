@@ -19,8 +19,7 @@ Adobe Acrobat Reader - знаменитое приложение названи�
 ```bash
 magnet:?xt=urn:btih:491E70B057DE2B3932C3B41620AAD240C164852C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cx Проводник - это мощное приложение с интуит
 ```bash
 magnet:?xt=urn:btih:6352B7D5837F0F25D758270041D5513A620084DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kaspersky для Android (Free, Standard, Plus, Premium) – мобильный 
 ```bash
 magnet:?xt=urn:btih:C936A7380EE2AF012FB134F96957B530F71F14A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

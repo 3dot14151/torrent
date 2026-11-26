@@ -19,8 +19,7 @@ YouTube клиент для медиа-боксов и ТВ на базе Androi
 ```bash
 magnet:?xt=urn:btih:8A5AB7F7CDCC07D22EE68749DD3E0818C84C5471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

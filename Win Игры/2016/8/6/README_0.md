@@ -19,8 +19,7 @@ Little King’s Story (2016) [En/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3868FE66790D5238335916647139D330DA7BF90A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Little King’s Story (2016) [En/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B120082DC8273A73E48C34EC9D787ED5EA65BB3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

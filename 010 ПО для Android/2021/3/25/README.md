@@ -21,8 +21,7 @@ Car Radio v1.1.3 [En] - for Android Stereo Head Units
 ```bash
 magnet:?xt=urn:btih:28FAFE7901F3700F09413C389003D89281FA593F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C254A8962EFE5EF7392F8F5887D70313E356F57F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

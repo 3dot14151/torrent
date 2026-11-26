@@ -21,8 +21,7 @@ VA - Остров Сокровищ или В стиле Шансон часть 
 ```bash
 magnet:?xt=urn:btih:E9873571A3E50381456E70C77DF99649360238EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Crystal Shard Adventure Bundle - это не просто обычный сбо�
 ```bash
 magnet:?xt=urn:btih:A4348E326063DDC56E8D39F46CFE4C06D5FE3E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ WinMerge является весьма полезной для определе�
 ```bash
 magnet:?xt=urn:btih:DF50B58CA6D847FF247F84A368C1935FD0B196CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ darktable — фоторедактор, предназначенный для о
 ```bash
 magnet:?xt=urn:btih:7D9F5A0D8313249C86BE115071798C9CF6C12D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48619E795F0FB4496AE276A91116B5C06B387428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ VA - Now Yearbook Extra '90 3 x CD, Compilation, Collectors Edition (2024) [MP3|
 ```bash
 magnet:?xt=urn:btih:D307DC1E49AEC4BF58CF156653E719242D765941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:66DF62110645C6CCA0E0C139E245E9B7A98316D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ VA - Now Yearbook Extra '85 (60 More Essential Hits From 1985) (2023) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:0D6768FFB83515BBF7BCF73CB80D1F99A739CF22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ BenVista PhotoZoom Pro 9 — это программное решение ном
 ```bash
 magnet:?xt=urn:btih:AB4FBAB4DB3E873721FE1C8BB64890B22C81F0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:218E919D8D5C7CB5AA4375010A15C952289710CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:2767E114A49448906050D75BDB676533AA32E593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ DVDFab StreamFab — это удобный и мощный инструмент 
 ```bash
 magnet:?xt=urn:btih:44E1D7FB216B872F4D7C8C73EEC34A1CC911644F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ HY-Filter4 — это плагин эффектов полумодульного
 ```bash
 magnet:?xt=urn:btih:1B585A0927C7527B0D20B8546A657363E33361BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F88B6F0981645A680462B3702E92E2874E5C1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|image + .cue] <Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:40DAEFE5F167DEAA49809192F19913C6171AF76B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ Ares изображает альтернативный канон после с�
 ```bash
 magnet:?xt=urn:btih:F8CA2B2C74BB231A4C462B34DEA55436D0D3994C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ Gloria Gaynor - Never Can Say Goodbye (2005) [WavPack|Lossless|image + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:43BC8237747C126F6C80B22AE26FE657B9A453BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:86EA764B170880E52CA333CA298D3ACEE68C4E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:8AC15B595722C16248AC4780FB9C04F6A9546ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 ```bash
 magnet:?xt=urn:btih:8878C93953120FDD0A4921112B51791342CD6CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ Perfectly Clear — приложение, которое позволяет вс
 ```bash
 magnet:?xt=urn:btih:6BEED7AA496EDBBD5897951E37398A4F0E91BA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ Hooverphonic - Fake Is The New Dope (2024) [FLAC|Lossless|tracks + .cue] <Trip-h
 ```bash
 magnet:?xt=urn:btih:66695DCE4D04162DEC54BE36A9C67FB27FA363D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.94 (0726) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:65A2EE83129F3AF1BBC2930E47C72FCE0752C231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:94DCEEBDF2A40F1B649AD475582244664237C537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12F5C8C5A0E92B8717817F5C1990D409483FFFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19542A41107A4093AF6D8A07B580732E261C147D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

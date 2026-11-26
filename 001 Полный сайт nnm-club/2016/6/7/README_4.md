@@ -18,8 +18,7 @@ Form - проект для показа вашего логотипа. Прос�
 ```bash
 magnet:?xt=urn:btih:2E5823E97BA660A8A108FADA2D3EBB8611BFAD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TechSmith Snagit облегчает захват изображений с эк�
 ```bash
 magnet:?xt=urn:btih:77E79B5121E1BCE067E39AD993A4ADC136F5AB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Atticus Ross, Claudia Sarne, Leopold Ross - Три девятки / Triple 9 (Or
 ```bash
 magnet:?xt=urn:btih:4A25925662D5E3219F1BAABFCA8B18125C55DF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VA - A State Of Trance 2016 (Mixed by Armin van Buuren) (2016) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:B52BED4D00FBAE3BDB62BED43EAED398203DE507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Media Pro - программа для упорядочивания коллек�
 ```bash
 magnet:?xt=urn:btih:1EBBFF3219C82DD155C7E01FB9F8E47ADC8BA182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ BBC. Horizon. Жизнь без старости / Horizon. Don't Grow Old (2010
 ```bash
 magnet:?xt=urn:btih:330A5EF19CF6EEF879C0341F16FB7F6063FD70AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ The Playbook - Сделайте свой бизнес-презентаций б�
 ```bash
 magnet:?xt=urn:btih:85BEF99364388526F7D86F91DAEF90C3F4D9785F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ GridinSoft Anti-Malware (ранее Trojan Killer) - это антивирусн
 ```bash
 magnet:?xt=urn:btih:F5CC87D7EE91B039491655C8955CCEA6E50FE1AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Intel® Processor Identification Utility 5.50 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:933F8C1661361E812A21A61676F81CF8A261A9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ FastStone Image Viewer - вьювер, редактор и конвертер г
 ```bash
 magnet:?xt=urn:btih:ABC381AC84376277C0E21D2EEE82342BF5074385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Opera 38.0.2220.29 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6621B06A89D22E3EE686C2CD59E5AD02D46CA1B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:A847B329ABCE5D25D1B9D54236F2388E435B2DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:6DF2FCE912516309EBAFE557318F7380D3A9F809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ BBC. Horizon. Смертельно опасные ошибки / Horizon. How to
 ```bash
 magnet:?xt=urn:btih:94923F898F3A59B09F020DD76C8A56B8830658F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ JORN - Heavy Rock Radio (2016) [FLAC|Lossless|image + .cue] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:EC7ADFBDC4D118CB4DCAD2E4D6B58A8DEE11129F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:5DFDE0A829CFD518DECCDBA1FFF511A0DA3525C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ BBC. Horizon. Эволюционируем ли мы сейчас? / BBC. Horizo
 ```bash
 magnet:?xt=urn:btih:6DC3F65794E37EF73776164FDA047F958B2A46EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:592A136F03911C8C862A40908A492F6059DD4F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:391084D34336073A20B09429F3093809DEC7E622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:E0992B879D8A5774F1283A050A3E7BE5E687E3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ Sketchpad - является идеальным для показа логоти
 ```bash
 magnet:?xt=urn:btih:97FE0ABAD8359CCE5BADFCE6009CB07B060A1AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0A7DEF1332FAD5346A6D5A8B8E187ABE582C19E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ Freemake Audio Converter конвертирует музыку в формата
 ```bash
 magnet:?xt=urn:btih:7BC95BDCE178101A0424E89EAD4A8478E65EE198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +632,7 @@ Pink Floyd - Wall In Progress 1978-1979 (1979) [MP3|320 кб/с] <Progressive ro
 ```bash
 magnet:?xt=urn:btih:7760FC0C7D9C9691FDCB09CA9C1A60BFA0063DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D0FBC6DE67CA790BABE19E355A805D41E2CC7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

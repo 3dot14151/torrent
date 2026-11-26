@@ -28,8 +28,7 @@ Caleb Johnson - Testify (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5A13BF3AE815EC9825B2ED3109CFC47D70A5C9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Praying Mantis & Pau DiAnno, Dennis Stratton - Live In Last (1990) Japan [FLAC|L
 ```bash
 magnet:?xt=urn:btih:C9FCFA1C3EFB40C1BAA07D4AE202BD1BEC42747C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Mudcrutch - Mudcrutch (2008) [MP3|320 кб/с]<Classic Rock, Country Rock>
 ```bash
 magnet:?xt=urn:btih:F146B369DC689F8721BB5D99D641E1AE3EE99CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Maybeshewill - Fair Youth (2014) [MP3|320 кб/с]<Post Rock, Instrumental, Elec
 ```bash
 magnet:?xt=urn:btih:F35CE91BE9F1B13747897CB93DE49164CDDF8CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ X-Drive - Get Your Rock On (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E44C3D4A35857DC6400DFC85EFCFB8287EF5990C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9BE6342A356BCF861969065C19E9669963107D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Blue Stahli - The Devil: Chapter 02 (2014) EP [FLAC|Lossless]<Industrial Rock>
 ```bash
 magnet:?xt=urn:btih:67DEDA77D1C01C2F6EDB70645DB068884B7E3D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

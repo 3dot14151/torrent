@@ -18,8 +18,7 @@ Color Wheel 6.5 [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:F25FA30F12056F7A96DB0ECD56A0EC2AA78725CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Samtar - Cryptic Tales From A Vision Obscured (2021) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:CC371B22FB17388339E2E7D288DAF6F130118B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Rob Tyner - Blood Brothers (1990) [FLAC|Lossless|tracks] <Rock, Classic Rock, Ha
 ```bash
 magnet:?xt=urn:btih:1245DF6DE6770D7FFE397D8DABD1AAEB24D26930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ MacPilot 13 v13.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:75D9821757EB622F99DDFC3597E3861EEA6809EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Helgrind - Insurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 ```bash
 magnet:?xt=urn:btih:FF03266FDB5CEC9BB9B7CE3B71E37749D8BC5F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:E94681B6A5FA928B08D257D4BA9BAD132D784542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:1DB031FDDBF876F10A542D564DE33DB2A468B10B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

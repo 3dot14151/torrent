@@ -22,8 +22,7 @@ Venom - Into Oblivion (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal,
 ```bash
 magnet:?xt=urn:btih:7D5276BB4825402E447430C4A938E463D9EA8816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:CFB56D26D6CA2999A185F5DA887DFD4349E093E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cognizance - In Light, No Shape (2026) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 ```bash
 magnet:?xt=urn:btih:4BC2ECE2FCEF4C5838830383D31D746BAEB83797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Black Keys - Peaches! (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative & In
 ```bash
 magnet:?xt=urn:btih:9DE6DCD3D6596C451D1C3530F9C2C7F6CC683598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Crobot - Supermoon (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Stoner
 ```bash
 magnet:?xt=urn:btih:F846C93AC08DC1E5A8F30E492A8EE8FEA19B76F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Disc1:
 ```bash
 magnet:?xt=urn:btih:5D1980E60CC33B86ED857C5D0533EAB4DBEB5BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Prog-Box(5 Hours Of Progressive Music) (2014) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:3852E0CC958E3C35436716BDA0571DAACE7ABC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

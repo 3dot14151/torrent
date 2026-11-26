@@ -19,8 +19,7 @@ Alice 2: Behind the Mirror (2014) [Multi] Unofficial
 ```bash
 magnet:?xt=urn:btih:87D78E48DB5B0AE1F98D48A91707AC26197D21A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Agency of Anomalies 4: Mind Invasion / Агентство аномалий. 
 ```bash
 magnet:?xt=urn:btih:648018DF2AFAFFF9917D2F031F0E97E8E495F371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

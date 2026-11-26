@@ -19,8 +19,7 @@ House of 1000 Doors 4: Evil Inside / Дом 1000 дверей. Зло внутр
 ```bash
 magnet:?xt=urn:btih:1E553A2CD4B9A85DA254F447CFB2E293ACA9A4EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Weather Lord 4 - The Successors Path  / Повелитель погоды 4. П�
 ```bash
 magnet:?xt=urn:btih:A2D6C8924F72109A694AC62E89A6E3D8A1890D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Belladonna (2015) [En] (1.0) License FANiSO
 ```bash
 magnet:?xt=urn:btih:58CD841634E4C920F0A962558D92B915488DF37E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

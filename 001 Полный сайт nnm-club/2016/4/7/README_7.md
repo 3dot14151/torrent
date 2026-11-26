@@ -21,8 +21,7 @@ SkillBox | Мастер-класс «Интернет-маркетолог – �
 ```bash
 magnet:?xt=urn:btih:C92BAB2E5656DF213EA98213ECF9878BA18B077A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Dead Rising 3 Apocalypse Edition включает в себя лучшую иг�
 ```bash
 magnet:?xt=urn:btih:1E6B5CA12AFDE99DA59F1EBF51AA694C44E9C177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ AVG PC Tuneup - идеальное решение проблемы оптими�
 ```bash
 magnet:?xt=urn:btih:BDA75323580C16431940AB2450FEE340D8CA7C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Heavy Object / Тяжёлый объект [2015, TV, 24 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:1C72EB7342C5868F228DCB29347453F36E4468DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0F3147FFD506B771DC50024C43E75E63F401BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Windows 8.1 (ранее известная как «Windows Blue») являет
 ```bash
 magnet:?xt=urn:btih:5356D672026189DCAEEDB18B1ECB1DF2EF4738DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86E112E4B5330DEFFF1ADDF5171DEF95C80242F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBB23BACC37C19E117BA1C6D26CE0AAA5DB29B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47D667B94188F91F65991BDEDD2AB28C6BCE22FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ ArchiCAD - это мощное приложение моделирования, 
 ```bash
 magnet:?xt=urn:btih:05D55FCF31885B6757B8141DC7CBFEEE420300C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:684F02CC8ACCA47734C26088C18AD5AA7BC0205B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ HP Service Pack for ProLiant [с 2011 по 2016 гг.]
 ```bash
 magnet:?xt=urn:btih:E816E3C459522E24E80908563E1CCB09D8405A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ nnm-club .me опять доступен,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

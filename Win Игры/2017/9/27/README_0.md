@@ -19,8 +19,7 @@ The Wisbey Mystery / Тайна Визби (2016) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:B75111490C6DA7A218DBA0A25E6EEAA56F3D81B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Secret of Great Queens: Old Tower / Тайны Великих Королев: С
 ```bash
 magnet:?xt=urn:btih:73C31892A3D3FAE6D5331ECFBFF05AF7CCA63071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RAID: World War II — это захватывающий кооперативн�
 ```bash
 magnet:?xt=urn:btih:48464215ABFCB752E27F54A30537E0E642391DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:B90217655A719D99559C93F600E4DC11AA20D0B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lichdom: Battlemage – это игра от первого лица, основ
 ```bash
 magnet:?xt=urn:btih:BF922D780FF5362D5887E14B70F9A1CD1898AB99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Danganronpa V3: Killing Harmony — предстоящая визуальная 
 ```bash
 magnet:?xt=urn:btih:C7F18C611EE5A98309B54D7A0D10D7BA2765920A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

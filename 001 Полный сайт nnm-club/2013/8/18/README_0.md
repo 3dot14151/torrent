@@ -27,8 +27,7 @@ VA - 15 Top Trance Hits 2013.08 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:B43D3FA110A5A543A95BAE0B5D4FAD28038B5E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAA79EF58FA0EEACAE96FD70A950FEFB351E93E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Comedy Баттл. Без границ. Лучшее. Выпуск №5  / Ко�
 ```bash
 magnet:?xt=urn:btih:DB3BA65A5E0813366E9DC7BA85644F5AED929FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C852E4D516C412FB0363086BA94177F0080AC32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Corb Lund - 3 альбома (2006-2012) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:18491431FFEFC35F7A9E48E2E7A4D404F4F61B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B9A1B53B85AF24140DDB46AB0442315253AEB5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E60994D3DE7BB822A0E67C5D4E796A7E0C197CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAAEE45625A7A72DACDB5D308F85731ECD0636C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1804883F1D702A074C156682FD3B580FD1876E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:18763BE928E11F10A96FC2885F3B427CEF577078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C759AD7037CEBBCB976BA4D017D606DBC31DA9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Vip Dance and Club Hits 2013 (2013) [MP3|320 кб/с]<Progressive House, Ho
 ```bash
 magnet:?xt=urn:btih:F2A4803E065D383FD746E689E90289A7FBD7DB9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B06E14653B511188355D02E1B377563ABE4C99B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ Bigasoft Audio Converter - простая в использовании прог
 ```bash
 magnet:?xt=urn:btih:0EF4D926B89D9E1789219F53BE32DD6A1D3AD21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Blood Ceremony - The Eldritch Dark (2013) [MP3|320 кб/с]<Psychedelic/Doom Met
 ```bash
 magnet:?xt=urn:btih:277A6F016FCEFD7E391E7EDB77313AD5D2BE747C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:933C9A23E475EBE0134212E1CC37CF79A8C822D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ Borracho - Oculus (2013) [MP3|320 кб/с]<Stoner Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:0B035AF22A69AE69D7C01DCAC89C87D9DDE86D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ Find Me - Wings Of Love (2013) Japanese Edition [MP3|320 кб/с]<Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:FE8ECB6F331308A524A1DE1D77FE2B419F7E5185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:896E60D36BD57E1BD81F3AA8F48BE11A0823EF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ Blank & Jones - Nightclubbing (2001) [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:34D3080BB5671092EF205C8BF5874B0FA3DC1930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +583,7 @@ Bigasoft Audio Converter - простая в использовании прог
 ```bash
 magnet:?xt=urn:btih:36DBD5B8CD2224F46DCF87AE75EC92470DB8C902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ NirLauncher Package - это пакет из 172 небольших утилит
 ```bash
 magnet:?xt=urn:btih:B9B3AA37CC92D6D71726968F4E7CD33D819DA61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +644,7 @@ VA - This Is Dubstep Anthems (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:EBB68CA0168830F4F8BFEEB646E94F0817732476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ Glary Utilities Pro - функциональный набор системных
 ```bash
 magnet:?xt=urn:btih:427E02FBB07FE7D3790D99FFDE60C9B2AC27AAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2901DDC6D6FF089A0BFE776FDEC4E5D2D76F790F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9581D9B84F9512F7478A9CD51E339534D12A40D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

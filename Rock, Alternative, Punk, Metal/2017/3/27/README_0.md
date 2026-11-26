@@ -22,8 +22,7 @@ Regicide - Break the Silence (2006) [FLAC|Lossless|tracks + .cue] <Folk Rock, Go
 ```bash
 magnet:?xt=urn:btih:03C2952E695FA9C978286F5E3E6EC96D63C0C111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Peter Hammill – певец, композитор и основатель пр�
 ```bash
 magnet:?xt=urn:btih:251FA248AC20FE87BBA15184DC5B2D930A554CAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Six Organs of Admittance - это псевдоним, под которым ча
 ```bash
 magnet:?xt=urn:btih:C8F49A6CA84D943CC3170512AAF04119DCBC06F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Heron Oblivion - Heron Oblivion (2016) [FLAC|Lossless|tracks + .cue] <Rock, Grun
 ```bash
 magnet:?xt=urn:btih:DB0BD01F25BA423C5AD36F7DABB153E2A14C2941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Royal Nature - Arcane (2016) [MP3|320 Kbps] <Alternative Rock, Electronic Indie 
 ```bash
 magnet:?xt=urn:btih:2FEEE4534144B7DCF520D24847868BAE8AF49314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Night Ranger  - Don't Let Up (2017) Japanese Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:0733449DDF634019BE7E4EBE47FA4D05EB5F0CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ GjeldRune - Правду За Порог (2017) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:477E8F46109FF29C2664AD666395C94FDCBFB038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ The Orwells - Terrible Human Beings (2017) Japanese Edition [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:205AE72C6ED5E5515E626A8B40498977B68AD9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ The Alan Parsons Project - The Best Of The Alan Parsons Project - Vol. 2 (1987) 
 ```bash
 magnet:?xt=urn:btih:585BC2198614DE785993C3FAEDB97FF8A96C787D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ Steve Hackett - The Night Siren (2017) [FLAC|Lossless|image + .cue] <Progressive
 ```bash
 magnet:?xt=urn:btih:6885887BB9B9D40DDC853AB31E3697E69472509B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ Freddie Mercury and Montserrat Caballe - Barcelona (1988) Remaster, 1992, Polydo
 ```bash
 magnet:?xt=urn:btih:AD6053DDE6F0F351C210D5CDF9BC9CC3C33B3A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:440BDFE2455F64A3BC0D56AFFA1D5C621D8797C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

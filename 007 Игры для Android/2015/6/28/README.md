@@ -20,8 +20,7 @@ Sky Force 2014 1.38  [Ru]
 ```bash
 magnet:?xt=urn:btih:A7501DA8F1A482A0BA60EC8D688F732A5FC376D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

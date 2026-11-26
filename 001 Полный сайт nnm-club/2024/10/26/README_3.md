@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5AA72591C42783AB7B0C4B7397585A8E27106394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E34B1A2BFE73422398BCEAEA1B7C9AA116981717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:8AEC40EB96B88DF20AB0E5A623A56058837FBFBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Shinigami Bocchan to Kuro Maid 3 | The Duke of Death and His Maid 3 | Смерт
 ```bash
 magnet:?xt=urn:btih:62783FC923F3E9D79229462E6E5336EED001AAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Cities: Skylines предлагает по-новому взглянуть на 
 ```bash
 magnet:?xt=urn:btih:C29196DF67D2D9A1C793AE321173EDBDA08142F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Gazebo - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:6C99C0B99A028D39C0F1BA1B13EBEFEA924504F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Dance With The Dead - Dark Matter (2024) [FLAC|Lossless|WEB-DL|tracks] <DarkWave
 ```bash
 magnet:?xt=urn:btih:225EEA33BF83DA647987EDE6871B37D2F6DF54D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ PeaZip — бесплатный архиватор и графическая о�
 ```bash
 magnet:?xt=urn:btih:15E573A5F43EB55B48101207AEDB16026F28BED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CED346DAA72F566BD509E1447625FB3E3507819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Dead Can Dance — австралийский музыкальный колле�
 ```bash
 magnet:?xt=urn:btih:9E0BE20B78A7E1E70ECDC876819C1F68F6ADB794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:851F3A47B77F38117C7BB028CE74A1FBDB5201D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA1124A0EBC7088136D2A58E543F32372F64CB06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7748BC2EB04C9CDE43930089D6D5D2E97634D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Blink-182 — американская панк-рок-группа, основ�
 ```bash
 magnet:?xt=urn:btih:1AA97C9936A5739F94DFF90A3F13A0B8036A13FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

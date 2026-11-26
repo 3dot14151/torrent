@@ -19,8 +19,7 @@ PowerDirector – Video Editor v12.6.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1974F940B80FBA09EEE0A6B5D4B7D1BDF65C1318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AndroVid Pro представляет собой простой и удобны�
 ```bash
 magnet:?xt=urn:btih:ACBCBB6E02BBA32786C2E48EB741422197F0A444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D21AF31D202B86E19D7A0C04FCD2F4AEA8AE3DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

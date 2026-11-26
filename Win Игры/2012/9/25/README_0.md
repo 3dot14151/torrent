@@ -19,8 +19,7 @@ Brave: The Video Game [Ru/En] (Repack) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:F84588C875858469BEAC517849F4C3F223E52021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Devil May Cry 4 [Ru/En] (RePack) 2008 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:FD67FD792490763A3647F733C5C6E0433C2B064E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Garshasp: The Temple of the Dragon [En/Fr] (Steam-Rip/1.1) 2012 l R.G. Origins
 ```bash
 magnet:?xt=urn:btih:8FE756CA17C1E1BF79AE9A24B9A127FB8185553E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

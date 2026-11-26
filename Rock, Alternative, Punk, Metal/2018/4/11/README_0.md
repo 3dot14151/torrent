@@ -22,8 +22,7 @@ Hakenkreuz Nocturna - Eternal Introspective Winter (2006) [APE|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:5766B128A7C034A1E4968250EBD3ED6D6321AB28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Drowning The Light - 2 альбома (2007 - 2009) [APE|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:BB5755736D9C4295B3C87BAD68299BB050DA1953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Aeterna - Легенда Начинается (2018) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:230C0536F212B63AE284B35296E7B422A1086C59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Breaking Benjamin - Ember (2018) [MP3|320 Kbps] <Post-Grunge, Alt. Metal>
 ```bash
 magnet:?xt=urn:btih:50DDD8A87FAEABAE8CE180EA8C7E7D0C1F89231F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

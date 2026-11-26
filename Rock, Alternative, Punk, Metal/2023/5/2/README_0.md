@@ -22,8 +22,7 @@ Kenziner - Phoenix (2020) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:631DAB23044848A21A5A4F899303EB5C4A4DD75E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Roxanne - Radio Silence (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C5CDC70D6D64398C338CA25412B5DCC5061EF5B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cursebinder - Drifting (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:09E210AE9D44E47794F31DE5990CDE1C0ADE732E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Contrarian - Sage of Shekhinah (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:D4F9F3BB7C44F4F5CEE63C1332D81FD9C1B584DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Corpses Conductor - Corpse's Conductor (1997) 2022 Reissue, Huangquan Records [F
 ```bash
 magnet:?xt=urn:btih:E1B359065A5B67595D453B2C6812ED55F0053E55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Burning Leather - New World Order (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed, T
 ```bash
 magnet:?xt=urn:btih:363B4CBA6B7379B6593CD6FAE6B44297C3F50BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Catacomb - When the Stars Are Right (2023) [FLAC|Lossless|WEB-DL|tracks] <Death 
 ```bash
 magnet:?xt=urn:btih:B6ECBD9E02886680172958D8BD0AA70A2CD0F6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:1F122AF5D9426EC32ED0B05FC10478CE3E6701B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Whitesnake - Still Good To Be Bad (2008) Remix, Remastered, 2023, Rhino Entertai
 ```bash
 magnet:?xt=urn:btih:65ADCD10D0E492599F4948A9FA957A803F7BC2C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

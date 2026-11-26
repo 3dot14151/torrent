@@ -19,8 +19,7 @@ MadSpace [Ru] (Rip) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:049641F8F801BCE7EC199FC059382EE806CEE714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mass Destruction [En] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:2845AD0225C8B8B160F853CD84DFA0B2A9096FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

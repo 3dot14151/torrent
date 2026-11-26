@@ -19,8 +19,7 @@ Life after Death — это психологический триллер от �
 ```bash
 magnet:?xt=urn:btih:3166ABB4DE64D5D31716E5D35CD1113C471F6AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

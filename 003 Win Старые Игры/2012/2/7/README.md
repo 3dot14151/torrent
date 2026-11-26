@@ -26,8 +26,7 @@ ALFA: аntiterror / АЛЬФА: Антитеррор Золотая коллек
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Pacific Storm Gold / Стальные монстры Gold [Ru] (RePack/1.5.12511
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ System Shock Дилогия [Ru/En] (RePack) 1994-1999 | Sanctuary
 ```bash
 magnet:?xt=urn:btih:2BAE4B99144FF6D691330072774E9AF02588AD96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

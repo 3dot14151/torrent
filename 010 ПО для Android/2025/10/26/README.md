@@ -19,8 +19,7 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:D3652267B906FB747A3982554FF674B76D63D0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Picsart AI Photo Editor, Video v28.6.7 Gold Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5FC895E98823BD138DB2A5F6622032BC50DFF4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:A03F33A7D9F39C70F1A1522567DC22810770E9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Display Tester v5.35.6 Mod by Balatan, AnBo39  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7D8EE7A9FDA4752C80742C928FBE038961061E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:C4BAB17E804B459BB1D2C49424A601D22DB74E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:321B489B4D6670AEA8D975DF39946C655DEDA9C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ PicWish — фоторедактор с искусственным (   Чита
 ```bash
 magnet:?xt=urn:btih:A651F8B6B7E021D34257EE4552AE3A064EAE65EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

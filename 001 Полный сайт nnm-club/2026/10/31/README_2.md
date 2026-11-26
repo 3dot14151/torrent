@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:61278960A20490681A52D5010583FBCCF6F1844A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D199E1A9CE98A14C1EE740C33C8CAA1AFB1BF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Terri Clark - How I Feel (1998) [FLAC|Lossless|tracks + .cue] <Folk, World & Cou
 ```bash
 magnet:?xt=urn:btih:26263765B101BA057022094752264DE4DEF0CE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

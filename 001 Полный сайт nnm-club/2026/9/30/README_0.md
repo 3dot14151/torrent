@@ -21,8 +21,7 @@ Arlen Roth - Blues Grass (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Coun
 ```bash
 magnet:?xt=urn:btih:1E6638C9EE3C689FB9BAEF1F1FAFB42537166C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Blue Rider Trio, Ben Andrews, Mark Wenner & Jeff Sarli - Preachin' the Blues (Re
 ```bash
 magnet:?xt=urn:btih:9A12CB04D67C2FAF57F6BF2C9F69502E1DF92228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56030C76EF35386CE854B555EFC8718FCE9AFE28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Camilla Lindstrom Blues Band - Camilla Lindstrom Blues Band (2026) [FLAC 24/44.1
 ```bash
 magnet:?xt=urn:btih:22704B0F1330D53335912E6FE10CCFE77F9C3D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Crystal Shawanda - Homesick Indian Blues (2026) [FLAC 24/44.1|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:878E0504E927D0CF0EB17494B4C90BB3BB9C1899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Transport Fever 3 - это экономический симулятор и тр
 ```bash
 magnet:?xt=urn:btih:682C361336E47456DD03E9E638452B418667CA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Dustbowl Revival - Change Your Mind (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:AC5AC966CEB245656BAFEB7C022EF9DBA0372DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Hangsuk & Boogiemonster - Human Scramble (2026) [FLAC 24/96|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:2637831228621845D3ABC8A01DBBD3AE80B7BDD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB25B325BD07E18592469B803223E2E894F7DCF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Sojourner - Gateways (2026) [FLAC|Lossless|image + .cue] <Atmospheric Black Meta
 ```bash
 magnet:?xt=urn:btih:F8170EFD1E2E391AAD97195DF6CDC44E5A91625C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC2705BEB7D4603091B9F7CA6FA341276CA98FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDBE36D2662024B300D49113B8F85113EF47A968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAB0B29ECAAC058DBD0C4226BA04BAC9A60CAE0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78F0EACB2214DB5854B6A209DD9E4FA9149026B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ XIV век. Англия пережила чуму, но для простых �
 ```bash
 magnet:?xt=urn:btih:97A0CD2CEF6FE055EC0B15A168BCAC838CE428E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Honeybear, the Band - The Cure (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:7F3D568FC2581271955F97A5A1675A1D11E970DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Jake Soberlak - I'm In Trouble (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:CBE148227AF5BA9618C4E0E5FC7FA9275525AA73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Jinda Biant - Love on the Line (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:524B7378C19EADBFDA19E8634B17BDCA783AEC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0760A6AA1FF4C5C724F94C86A9829792E7B472B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAF4A95C51BCA6D19B61D38F9595F7C32634D585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6719E9B5C7DBCC2DB1E03915CA7FF83D52FDC19E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89BCEDEF0958CA2497D48AF60D9117E75956847A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B41BF3EA79270FE14E2DF7DFE17C6C3A10A63682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DC0601B0EDE78ADF4EC99A20978F9000288216F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E39F88B8BECDDF77708FFB6CC2779B5F41E0F780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ Escape from 8-Bit High (2026) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8D608934BEEFEC455D18BA7389655990264E2EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

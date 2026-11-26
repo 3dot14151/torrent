@@ -21,8 +21,7 @@ Bitcrush - From Sinking (2015) [FLAC|Lossless|WEB-DL|tracks]<Post Rock, Ambient,
 ```bash
 magnet:?xt=urn:btih:DA4ECA4184F5ED6482E35796618ED7DF20152313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Good Rats - Ratcity In Blue (1976) Remastered, 1998, Uncle Rat Music [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:7518ADB8E91D4B4F992EF246300B3C6ED64126FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Growl - Growl (1974) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:31660D29740DF8A2B82C6195672364DEBE2B1B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Sister Whiskey - Liquor & Poker (1993) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:68620E19936AB3B60BDEFAA275913F0B875C0031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

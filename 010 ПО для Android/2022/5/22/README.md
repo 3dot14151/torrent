@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0ED7AFA49B47E6F0FD8AF944B0EE6DA565F16B66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GeoZilla GPS трекер, который позволяет вам узнать
 ```bash
 magnet:?xt=urn:btih:95049A04318FEC2FBF08F3599A5DAA2647486897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

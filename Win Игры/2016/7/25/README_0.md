@@ -19,8 +19,7 @@ Enigmatis 3: The Shadow Of Karkhala (2016) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:C90A1ED65178CA45E0A19DB7A7BC5C105EB6833F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ McDROID - динамичный гибрид шутера от третьего �
 ```bash
 magnet:?xt=urn:btih:5538FB6708455D6493B963BC8008B9D0E1A93B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dropship Down — это аркадный кооперативный шутер 
 ```bash
 magnet:?xt=urn:btih:E071987A0988395D6CA247A0A1B6FB4805ED2C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Rogue Stormers (2016) [Ru/En] (1.0 build 34) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:64233194BC7AD8A22AEC0B9EF4BAE20811F08A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Envoy 2 (2016) [Ru/En] (Experimental version) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A7EE01F50C707EE0066CD91C161E45AEA9BF9660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ The Shadowland (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5365FA34F846C949CFAF571AD19FB646F653989A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

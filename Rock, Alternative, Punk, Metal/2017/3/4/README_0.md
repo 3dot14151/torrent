@@ -22,8 +22,7 @@ Xentrix - Scourge (1996) Reissued, 2016 [FLAC|Lossless|image + .cue] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:7924E049D9B7B452E3958B62B0EF0467BEFC3731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lumen - Хроника бешеных дней (2016) [MP3|320 Kbps] <Alternativ
 ```bash
 magnet:?xt=urn:btih:844EB0ACBE12A7639612D0EADCB3F18CE3EFCC8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

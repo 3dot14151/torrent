@@ -19,8 +19,7 @@ Roller Coaster Tycoon [Ru] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:912219579528F8055CB403F3B6FE645FE5E439FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Abomination: The Nemesis Project [Ru] (Rip) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:AF7868CFD163383B3ADD52DCB8D274ACF25CCF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A82BE4A6618102931B4988CC344A45DFBBC7FB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8700A10EE84021BDB32AAB545F4B8EB62102BA00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

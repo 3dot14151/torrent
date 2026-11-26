@@ -22,8 +22,7 @@ Disbelief — немецкая метал-группа, сформированн
 ```bash
 magnet:?xt=urn:btih:55F88913C67429689AEBEDAB936DFA841B94C7E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 My Hero(   Читать дальше...   )Жанр: Musical, ComedyПрод�
 ```bash
 magnet:?xt=urn:btih:8D09701D458CA3032E1D85D6D14DAA02FCCE713C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

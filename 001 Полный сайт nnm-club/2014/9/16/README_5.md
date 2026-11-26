@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7357AFC941620FD0BAFE1AC4BBCE309CD75072E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:E76D7C68987CF3C3246DAFBB18AFE4732602CC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD659E7D964E4A24375E56A537F29D025C2B7066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Robert Fox - 25 альбомов (1991 - 2014) [MP3|256-320 kbps]<Ambient, New A
 ```bash
 magnet:?xt=urn:btih:72E14A03405564C513D603287F21E4018A4256D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VideoHive - Complete Traditional Wedding Pack - 6806534 [AEP]
 ```bash
 magnet:?xt=urn:btih:B8BA9B84AF86593036B9B54F9240A03177F9006D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ NHL 15 [PS3] [USA] [En/Ru] [3.41 / 3.55 / 4.21+] (2014)
 ```bash
 magnet:?xt=urn:btih:7F8FDD93AA90577C528C61B9B3602DED1CF2E12E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Хиты 80-х. Зарубежный выпуск (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:37315C6630803987030CDC2B8F8377183350D96A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2816A8498DAF6A586AE9BDA332CC7D53B94339B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64F9D33D88829040A1C2EB56B7A56051A4CF072D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Adobe® Acrobat® XI Pro — это не просто популярный ко�
 ```bash
 magnet:?xt=urn:btih:AD6D1FF669C5B4E27AF3DE00F26EE45E0156BE03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - 101 Love Songs: The Greatest Love Songs of all Time (2003) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:71B028E75E0EF1FDFEFE3C8EE70B1574067DBE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB120C29479702DE3858BA558F4B42FDC034042B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Naruto Shippuden: Ultimate Ninja Storm Revolution PC – игра на комп�
 ```bash
 magnet:?xt=urn:btih:B1BCB07F807815DFD70690B528D8F7CD6E9E1023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:253CF410C5A020C3D292DA2CA38DC6F7883AD867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FC5D380CBEBC0160AC918CE106ED0510D7C6599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Kaspersky Anti-Virus 2015 15.0.1.415 (Technical Release) [Ru]
 ```bash
 magnet:?xt=urn:btih:1E4A3360A2BD94696EBAE1041C0DD992CF6118E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AAC9FFDC6324B4A30DD999AD512B65E7FA1A5AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ Android X86 - Это проект порт Android Open Source project для x8
 ```bash
 magnet:?xt=urn:btih:DBD4DAD008D489BEB34BFE31D5197C481CC80FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ NARUTO SHIPPUDEN Ultimate Ninja STORM Revolution (2014) [Ru/En] (1.0.0.0) Repack
 ```bash
 magnet:?xt=urn:btih:D5DA9939787497685CA4B9464FC23056842947BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9D14087751B9F1DDC123B7C09BEE0DDBA122213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:1F82AD53B7FBC58A9935E07986419941BFD2BDDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCD81C8BF8495459066F1CC8941CA7F34BF25D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ Naruto Shippuden: Ultimate Ninja Storm 3 — это новые приключе�
 ```bash
 magnet:?xt=urn:btih:A6E7BC4A1D78844A4E32F8C465EC1496C11F63B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ J.U.L.I.A.: Among the Stars (2014) [En] (1.0) Repack FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:2BB6786134309FC8BBB03060293AD7E207E32751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +706,7 @@ CorelDRAW Graphics Suite X7 - новый графический пакет, по
 ```bash
 magnet:?xt=urn:btih:D3A5519BB7188D821B040EBC5474EF4495BE7209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

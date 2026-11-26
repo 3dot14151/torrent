@@ -22,8 +22,7 @@ Exmagician - Scan The Blue (2016) [MP3|320 кб/с] <Psychedelic Rock, Psychedel
 ```bash
 magnet:?xt=urn:btih:8868B318828AAFC7AA98302B98AE27E8EDF9525F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hatebreed - The Concrete Confessional (2016) [FLAC|tracks|WEB-DL]<Hardcore, Thra
 ```bash
 magnet:?xt=urn:btih:32FA7DCAC31FA2ADC6BCEEFF342FA967957B9A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hatebreed - The Concrete Confessional (2016) [MP3|320 кб/с] <Thrash Metal, Ha
 ```bash
 magnet:?xt=urn:btih:943C49A185B59B2D54684E5A2720DE31D28A9F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ DevilDriver - Trust No One (2016) Special Edition [MP3|320 кб/с] <Groove, Mel
 ```bash
 magnet:?xt=urn:btih:5B02ABB0AA378B938B9B826E6837C4AD65C3AE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ DevilDriver - Trust No One (2016) Limited Edition [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:031710F55CC5B2CE80B15502DF155333BEB8C371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B18DD127836EB16A5FC4BBED2D6763C90AA9F514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F74E6AA332BA2F1D6D2AF26AFCB9C0F08E17A4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:530F9847E5A82251222520249D5209467CA5B4EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Led Zeppelin - Physical Rarities (2003) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:310A0FC1FD8F1E20E4810BDA4394196B969BC7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

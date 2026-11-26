@@ -27,8 +27,7 @@ Nightingale - Retribution (2014) Special Edition [FLAC|Lossless]<Melodic Progres
 ```bash
 magnet:?xt=urn:btih:140A3E55515103388C437920FED80C9943C003FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66FAFEC7B33966DC1F844A7BA8249B614F50FFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Radio Paradise - The Best (1981-2014) [MP3|160-320 кб/с]<Eclectic, Indie
 ```bash
 magnet:?xt=urn:btih:2A6B2341BF26492149B6D945F1A1952F18F629B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA6400AF30C3AE74AB62E81D3F862FE1338BB83D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Raskasta Joulua - Ragnarok Juletide (2014) [MP3|320 кб/с]<Hard Rock / Heavy M
 ```bash
 magnet:?xt=urn:btih:35F621D7A06422DEDD8CF9EDE63DAA3D537664AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Pepe Acevedo - Lagrimas De Otono (2007) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:4B8018917BE2B3FC9F4165DB50B974239A0F4346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ VA - Spring Top 20 (2013) /Slowmore/[MP3|320 кб/с] <Chillout, Ambient, Lounge
 ```bash
 magnet:?xt=urn:btih:000C355A80EDE2860F32F56A9654B9BCAB36F93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62385A087376F3CB7EC26DA4F9E1E78A47A68959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ VA - Grotesque Indoor Festival 2014 (Mixed by RAM) (2014) [FLAC|Lossless|WEB-DL]
 ```bash
 magnet:?xt=urn:btih:5E15F375B6B7061A6E3F262139BE43BD2343EE06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8DE691CFDD12C5A32553A13500EADA196511D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ John Anderson - Seminole Wind (1998) [FLAC|Lossless]<Country>
 ```bash
 magnet:?xt=urn:btih:2933B10981C197FD1EAE19C9883BCC2DE5C74175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E65C532FBC259BD3F198823654EA536F4277654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD2F1CC1BC319FB5DA291A5F1627F6A5A078CF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5A8397843DDC07115466DEBDABB8EA6F2010FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ Bruce Lipton & Russel Walder - Bruce Lipton's Music For A Shift In Consciousness
 ```bash
 magnet:?xt=urn:btih:FE88E2A4F9E5112636AA65B294AB910BDC5F0151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B1321F9294C5458F4A3D7113B074B1F54A8A394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ Chisu - Kun Valaistun (2011) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:83A16B98ECC2E5B883F7EB080115140D7BEC258D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BF6B1EC912F4813AF609246D8A3519C622FA07A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97BD67BB576192EC7C371FE5AF1E8F7E5EB9C473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C708080CD29E522E3272E52B9ABD5965000673EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ John Anderson - Seminole Wind (1992) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:A9FD9C872E50CEB659AB023CDEF212F4B1673438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ Keith Jarrett & Charlie Haden - Last Dance (2014) [FLAC|Lossless]<Jazz, Post-Bop
 ```bash
 magnet:?xt=urn:btih:0B8D4C82DAD1E0CFCBB137D95009A1B7ACA5CA02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ Jonne (Korpiklaani) - Jonne (2014) [FLAC|Lossless]<Acoustic Folk Rock>
 ```bash
 magnet:?xt=urn:btih:A2B1B62BC06DDEC8832A4083D23AFFC6CE3E18CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5F2918A1C1DD9C1BFF8CBE2099E64B5A933A5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB67A0387C7B16F40868FD50EE2CC0DFE89FFFCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:217C95BBD289C6C7C8521166A1102BA5F30780B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

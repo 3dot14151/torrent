@@ -21,8 +21,7 @@ As embedded Linux systems power countless devices in our daily lives, they’ve 
 ```bash
 magnet:?xt=urn:btih:278AA5E498FB0EB3C283020FC2BEB969AE560731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

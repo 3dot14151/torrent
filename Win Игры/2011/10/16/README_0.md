@@ -19,8 +19,7 @@ Treasures Akhra / Сокровища Ахры (P) [Ru] 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0F8C51540196B628B9B364E7AFFE97DC4C46673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Haunted Halls: Fears from Childhood Collectors Edition / Дома с приви�
 ```bash
 magnet:?xt=urn:btih:C13E2B595B3A637AD6E728A6C030CF91E684D796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Serious Sam Double D [En/Multi4] (L/1.0.2r10) 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:206233DDFC8C485C22064697CA72D0B516A33630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

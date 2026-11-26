@@ -19,8 +19,7 @@ Very Little Nightmares - Девочка проснулась в неизвест
 ```bash
 magnet:?xt=urn:btih:3E5A518C601D135EA37A562AE280612899E6CB97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

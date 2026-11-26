@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7CAD6C0D4CC98600A29EFECDA73932C4E19F49B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19651605AB02624487A660A404BA2ADE9CEAAB81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Erectile Dysfunction Cure Yoga v6.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5261956A68E510E109564014DD88E65DC4D4603C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

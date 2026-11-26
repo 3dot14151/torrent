@@ -19,8 +19,7 @@ Elasto Mania II (2017) [En] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:C68754FBFC98053E8D2C96BC963D3A8645665397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Starfield открывает новую главу в игровой вселе�
 ```bash
 magnet:?xt=urn:btih:A512ADF4E8AD69C9FA489373924C114A1E542445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Drova - Forsaken Kin - это пиксельное экшен-RPG, вдохно�
 ```bash
 magnet:?xt=urn:btih:AB16FC2E37F0CA1500C758F3F7AAF8D65CF95F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ HellO — это крупнейшая компания по поставкам �
 ```bash
 magnet:?xt=urn:btih:D609F99572FA30B48F5E8E1CA433CA1FC7F1AD30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Combat Mission Shock Force 2 – заключительная часть в пр
 ```bash
 magnet:?xt=urn:btih:9FA950EFAB205E3B875FFE80CF92CB067BA104DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Embrace of Ocean: Story of Hope (2017) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:58DA277883E07197B3E6002671721016204C4A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PuppetShow 15: Porcelain Smile / Шоу марионеток 15: Фарфоро�
 ```bash
 magnet:?xt=urn:btih:BBCD78637ABD1C06DD41CF981E3D1CAD620EAF23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Absolver — одиночные и сетевые многопользовате
 ```bash
 magnet:?xt=urn:btih:BC819817DE46D494EB3C53791AFC2633B12E4C53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

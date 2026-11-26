@@ -19,8 +19,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:90C2C971C5C720F1E3445749D8287009ACD0D7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Half-Life 2 официально исполнилось 20 лет, и по сл�
 ```bash
 magnet:?xt=urn:btih:D2E1BBD5FC20D10D42F7F4ADDD814A0F74959073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.2.0.5) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:C476C1F5DF8840155E5E0686D0D0925641B9E3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ HUMANKIND (2021) [Ru/Multi] (1.0.27.4539/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:AF6714A9D6ABAE17518063A13C088313BC6FEFAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.248.905/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E5B1E556915D0BF6080B75E30F996C4309BC3D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack dixen18 
 ```bash
 magnet:?xt=urn:btih:1CB8456FAB2A4136B97B9B97578B7ADDA2EF8D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Vaporum: Lockdown - это приквел знаменитой игры с пр�
 ```bash
 magnet:?xt=urn:btih:773FE33782EECDBFDAEC86031DE25898690D5213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Lorn's Lure - это атмосферный сюжетный платформе�
 ```bash
 magnet:?xt=urn:btih:675FAE91E17C1A64E367676AF56F17270C77CC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:FE06E1BD6C9EB23F020E65A60A97D093CF147C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 ```bash
 magnet:?xt=urn:btih:826AD87539077576A1F53CDE9B2A33A284BBF41E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

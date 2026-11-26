@@ -22,8 +22,7 @@ MyGrain - метал-группа из Хельсинки, Финляндия, �
 ```bash
 magnet:?xt=urn:btih:2A94E845991E07127F53E8273819703F9B491F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

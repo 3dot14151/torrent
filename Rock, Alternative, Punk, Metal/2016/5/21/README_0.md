@@ -22,8 +22,7 @@ Cross & Quinn - Cold Sky Blue (2016) [FLAC|Lossless|image + .cue] <Progressive R
 ```bash
 magnet:?xt=urn:btih:C0A6766976926D2F2A9A2E3E796EC573EDD2BDBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hypersonic - Existentia (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:EEBD101A41988319DDEC8A2CDB537C2FC2C91810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Brian Wilson And Friends - A Sound Stage Special Event (2016) [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:74D9B42BD67F863BC43312DA0F4C57B83CEFD8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Voodoo X - Vol. 1 The Awakening (1989) [APE|Lossless|image + .cue] <Melodic Hard
 ```bash
 magnet:?xt=urn:btih:F9A26E9D9A471E342AB8ADB7AB0058A6A9851D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Loverboy - Lovin' Every Minute Of It (1985) [APE|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:10BBBA51726817E60743CC07C8815D13FFBAA86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Shiraz Lane - For Crying Out Loud (2016) Japanese Edition [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:E8EF0B8E255EAF6BDF24C4E0C8B58D102967B551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Punky Meadows - Fallen Angel (2016) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0EE165A480EA312DCE4ABF6F94A23B065FF22A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Joe Cocker - Across From Midnight (1997) [APE|Lossless|image + .cue] <Rock, Blue
 ```bash
 magnet:?xt=urn:btih:24347C8B5485CD80FDEB646C5EF65DCB4C454129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Paradise Lost - Symphony For The Lost (2015) 2CD, Special Edition, Live [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:D08E2A72B7B00DD1425F1EAFE452649D8E8095E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B245B8B7EC092148D03962366B7B0DE0D4C4F124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Bob Dylan - Fallen Angels (2016) [FLAC|Lossless|image + .cue] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:D30DBB15301256FC4103E0A65F9221807A8169E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ R-Drive Image восстанавливает образ диска на ориг
 ```bash
 magnet:?xt=urn:btih:0B45108369219C9A4BE7D127B63DEAD71C419531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

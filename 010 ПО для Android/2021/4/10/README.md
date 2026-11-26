@@ -19,8 +19,7 @@ Dog Scanner v10.2.10-G [Ru] – Идентификация породы соба
 ```bash
 magnet:?xt=urn:btih:52A4CD0E2C9E68218732DD06311630A03304E7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cat Scanner v10.2.10-G [Ru] – Идентификация породы коше
 ```bash
 magnet:?xt=urn:btih:43E6CDE484527CE1DB1BF1512E5CE1FD0A798CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41D0C415BF9DF9B48944BBB405DB21C1337BB9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Talkao Translate - Перевести голос и словарь by Talkao - T
 ```bash
 magnet:?xt=urn:btih:7E5B007CA8AF55E27F28847B3ABFE460A144CEA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9832029E08B86DB710DF0F746E29837265F010DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Investing.com — универсальный источник информаци
 ```bash
 magnet:?xt=urn:btih:150942860FC6548C6AE2874549A51D62E072C239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Any Balance: баланс на экране v4.0.827 [Ru]
 ```bash
 magnet:?xt=urn:btih:7E26FDA7F1EDE209FC074E361CA44262A70058BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

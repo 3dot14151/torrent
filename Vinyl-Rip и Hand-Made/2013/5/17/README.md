@@ -25,8 +25,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ ZAZ - ZAZ (2011) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Nu Jazz, Chanson>
 ```bash
 magnet:?xt=urn:btih:A37D87A7726C37C5B0E46BA440992DDD8C9E52AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Arabesque - 6 Альбомов (1977-1982) [FLAC 2.0 24/192|image/tracks (Vinyl-
 ```bash
 magnet:?xt=urn:btih:F3328D90BB5DB388D197BF9E0CAEE213E88FB9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

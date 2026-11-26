@@ -28,8 +28,7 @@ Winterfylleth - The Threnody Of Triumph (2012) [FLAC|Lossless]<Atmospheric Black
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Metal Voices Featuring vol.1 (2009) [MP3|192-320 кб/с]<Symphonic / Gothi
 ```bash
 magnet:?xt=urn:btih:3CF002D84CBCEBC9EB106FF51B84D5B334020E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ VA - Piano Love Songs (2004) [FLAC|Lossless]<Soft Rock, Pop Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ CD 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ The 69 Eyes - X (2012) [FLAC|Lossless]<Gothic Rock/Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Kiss - Monster (2012) [FLAC|Lossless]<Hard Rock, Glam Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Kiss - Monster (2012) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:7CE19589664A8F5FE24AEE0808FB369044A00F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Blink-182 - 6albums + 5EPs + 18singles (1993-2011) [MP3|320kbps] <Pop Punk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

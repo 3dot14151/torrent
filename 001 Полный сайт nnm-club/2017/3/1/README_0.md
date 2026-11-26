@@ -21,8 +21,7 @@ VA - Trance Traveling 86 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance, Uplifting
 ```bash
 magnet:?xt=urn:btih:2A6C0CBA00C17B3FE5F485852E23FCC4A5463EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Voltage Voodoo - Significant (2017) EP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:E615F8DE64E5CADC8F9BF44B33FDFA4FDCC5CF01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - The Enemy VA 001 (2017) EP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B46BAF83E1FC82EA308358B84A0D4F3CE63DF4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Положительный заряд Hit FM (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:229CE1596617DEBD23FCB09369A55B6CF0CD6F1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Chaser - Neuronoir (2017) EP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:3FD768479737354AFB37004800FD83CFAD60D7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Deep In The Top - Blues In Different Colours (2016) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:CEA6EFFB93A494AC13A6C6B5CE0C13812BD06634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A115D3ABC78E54B2CEBD3342395C9D7DEFA376A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5DDD8F5C0455D5F062405E1B37E27BD1721E378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Macsome iTunes Music Converter позволяет (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:4CD8CE850B8F2FE67CF57771728B1F0B29A1C74F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Electric Samurai - The Blind Swordsman (2017) [MP3|320 Kbps] <Trance, Psy-Trance
 ```bash
 magnet:?xt=urn:btih:8A89E9419DB60F0F61DB56D829F87B1BE2DFB48C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96AC822FA272CA23C9BB20B067878E9742945A55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Alina Orlova - Laukinis Šuo Dingo (2008) [FLAC|Lossless|tracks + .cue] <Alterna
 ```bash
 magnet:?xt=urn:btih:2237D01B9CDADC6685B66E0A9302E6004D393C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - Автозвук. Отборный зимний хит. Часть 7 (2017)
 ```bash
 magnet:?xt=urn:btih:4602014C21EA040FDD78A4CF65A8B413517669F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Dana Gillespie (Дана Гиллеспи) - родилась 30 марта 1949
 ```bash
 magnet:?xt=urn:btih:364AEE754E656710C6095BED9E70C13A33DE5DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ VA - Лучший русский шансон. Часть № 3 (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:C6EDEA902C8E47800FFB2B3DCED50EB64F0658B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ Nickbee - Blizzard / Ice Crack (2017) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:FC34BB17BB6F01FE982722F8668CF7952E1B0810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ VA - Welcome EDM Vol.9 (2017) [MP3|320 Kbps] <House, Electro House>
 ```bash
 magnet:?xt=urn:btih:F194D83FD3436A1D9ABF495AB8268E7FF220BB98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Toad - B.U.F.O. (Blues United Fighting Organization) (1970) Akarma, 2003 [MP3|32
 ```bash
 magnet:?xt=urn:btih:B80918610DDB4D0DB79DA8CDAD91949A3AE60EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Slimjet 13.0.5.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:62C1F3947E2F5BC213BDB52E5BC8172D1AD8D411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ VA - Best Chillout Vol.26 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:03F81DBF749C4B25B88548AC9E59399398EFE2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7429FFE9D9F43AC2C1C73876DC8E7A0105A5E285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:696C0612F9A52CEF879DC2F8E40E4BC0CE0A3C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yog
 ```bash
 magnet:?xt=urn:btih:420224672BE80767F554C9E4B00C7CA8F86EB62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ VA - Aspiration For Awakening: New Age Compilation (2017) [MP3|256-320 Kbps] <Ne
 ```bash
 magnet:?xt=urn:btih:B5C87A49CBCC4EB62D15A584BF7BB5C705FCA30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E69E4B77FC33D6591C437C37959D115F616B0CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ Southern Avenue - Southern Avenue (2017) [MP3|320 Kbps] <Memphis Blues>
 ```bash
 magnet:?xt=urn:btih:1CB8134DB72A1D9E817C7DD32381044D862B8F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

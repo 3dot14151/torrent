@@ -22,8 +22,7 @@ Sundenrausch - Original Sin (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, 
 ```bash
 magnet:?xt=urn:btih:E25D097F8C2AF5F51A67D08B06782743638FD501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ UFO - Seven Deadly (2012) Deluxe edition, Reissue, 2024, Cleopatra Records [FLAC
 ```bash
 magnet:?xt=urn:btih:0CD94AF3036E81B26C087289AD99EB224E326312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Vhäldemar - Sanctuary Of Death (2024) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:30666BD9684770B4C39C3FF4F285024359BAC08F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Traveler - Echoes of Tomorrow (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1D7B50CC40AF218476FA59AD4E03E99603880648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bodyfarm - Ultimate Abomination (2023) [FLAC|Lossless|image + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:7EF209AEC1ED952624493AA8D57841D4FB91148E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ophthalamia - A Journey In Darkness (1994) Remastered, 2023, Peaceville [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:B87F175189A9FA27A9A2986DB67B8B59108E650C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AEC4AA1FB85ADC7CC277BB33BDCBBF9BB42E69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4078967B40A0813CFAA6FF334F2AC5C51DC8712F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

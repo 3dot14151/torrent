@@ -19,8 +19,7 @@ Infinitesimal Point  (2016) [Ru/En] (1.0) Repack R.G. Жук в Муравейн
 ```bash
 magnet:?xt=urn:btih:76CF61AC3EC010B86057F74BE889C947D28FA9E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

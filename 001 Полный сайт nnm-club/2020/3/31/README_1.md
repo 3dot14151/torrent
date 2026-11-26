@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9F958C0C2F9024998C398D9D87F2EA634F792F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Movavi Photo Editor – это простой фоторедактор для к
 ```bash
 magnet:?xt=urn:btih:624E46911976245259513A969E8A42B0300F4709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Thorbjorn Risager & The Black Tornado - Come On In (2020) [MP3|320 Kbps] <Blues 
 ```bash
 magnet:?xt=urn:btih:A7416479198F2B7AE8BF69C76C18B9D3FB8B1847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Bonfire - Fistful of Fire (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:53C9A63E487CC9BA21B3F96C00198E4125385EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - 5 Years of Kill Tomorrow, Pt. II (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:A74D220749879FBED6C516171D3F007F82B1AB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63A274A75118262565813ACF62436AC1823BB98D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0AD783AA313C79A888ABD426C472C214CC6BFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - Mystic (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:0570C89630EC2EAE2C41809EF8AA7CEC3FCC55AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1C9053AEC91401D75B1C0870B4AB28206D7AFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ VA - Alien Signals (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:C7D3D597B8A5493C88807144DEAB2948FAF7ABAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Culprate - Others Remixed (2020) Inspected [FLAC|Lossless|WEB-DL|tracks] <Dubste
 ```bash
 magnet:?xt=urn:btih:4A1F040AEC1F79EE7DB732F8D8B5BE4AC9FBB838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05C7B20026F7CE60C86EB49E903629882C23C781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF537FB019F845E537ED19AB16EA46989133573D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Robert Cray - That's What I Heard (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Blues>
 ```bash
 magnet:?xt=urn:btih:CC884FFA20E96DDE56604AA5C158700365E6D0A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ VA - Astral Existence, Vol. 01 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 ```bash
 magnet:?xt=urn:btih:7AAE17C707BF32DD46EDE860A415DD46F93D75BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ VA - Astral Existence, Vol. 02 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 ```bash
 magnet:?xt=urn:btih:286ADD7CF17D30FADE81A8FA0127EBCF7C7E9625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E9E306296007B43F0E96296216757C69FAF5CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8BA3AFBEF80131ABEB08F1A805090F5C0964F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:312964994074F9ED47E8AAF8366E526A5A15EC56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46E3B4079CDB951C5746B0E5C976382454584080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ VA - Drum & Bass Selections, Vol. 10 (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 ```bash
 magnet:?xt=urn:btih:2543939A268909DB1C6AD044149D301F84354105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAB5CE9D244D77893DF8AA9ECE4B3CA2271CB801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5467D201025D4B5C3B1E1686115CF3854916B9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EE407237EEDD28CFAE6748421710D2612F00933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C44E2C5FAC827E78CD42BD23C81355F1D69EB70A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ Malware Hunter - антивирусный сканер от Glarysoft для о�
 ```bash
 magnet:?xt=urn:btih:1FAA5BC922AD934C457F590FB26E2A51D3AAD4C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Photo Sherlock v1.130 Mod by Mixroot  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E4E7201DF2C247BB2C39250C7D62E2D01B8E8CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by vadj [Ru
 ```bash
 magnet:?xt=urn:btih:E59C94798D01A1E92E6A2E44FFDA47EA8F47BAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A23DD6E89A14EEA76B346DD65EF73BDCFEADA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

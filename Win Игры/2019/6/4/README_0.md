@@ -19,8 +19,7 @@ Forgotton Anne (2018) [Ru/Multi] (5.5.3) License GOG [Collector's Upgrade]
 ```bash
 magnet:?xt=urn:btih:AEB5513EC1E4D359FC9F78A19B251771D309A545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Iron Heart (2019) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:00B3996D2A3776337007E13BB4CF3ABEEE2514BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Katana ZERO представляет из себя ураганный неону
 ```bash
 magnet:?xt=urn:btih:AB591833E78FA8916B36D1AE1B0C750E78D72736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

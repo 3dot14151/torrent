@@ -27,8 +27,7 @@ VA - Dubstep 2012 vol.3 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:0C28C25A18DE7D70B4C779150740B77F7AA61E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ NuLix - Sons Of Daughters (2010) [MP3|320 кб/с]<Ambient>
 ```bash
 magnet:?xt=urn:btih:F40F22354C10F44015E0671FBF0372C923AA3A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ VA - Отогрей мне душу, любимая моя (2012) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:0BC55F6E306070089FE64B4B00B416C0BC375FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Guns Wallpaper (22.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:3629FAFF59BD05F84239570DB24035B8FB4D30F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2339A60088601EF4A80B2580387FEC6DB37B950D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ EugeneKha - Low Sky (2011) [MP3|320 кб/с]<Ambient, Electronic, Drone, Space M
 ```bash
 magnet:?xt=urn:btih:273858E395F19BFF47330FC4BEE19863CD866291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1475BEE15B45C0BFE2A31164227B364B8E3B5A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:091B3EFB67B6F9F3B7E183C2947C0055ECCBB2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F80FF171FEBC1F340E72D62697414252EB6B73E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA90122A279E425507C1E23845BF3C9CED3F77B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC87269A12EFD828B6ED58DA05AB156A52C2C6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Interior Wallpapers (22.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:1CF17DE19CACA48A79724B595EFCA9B8A7FB44B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ SMPlayer - кроссплатформенный мультимедиа прои�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Nature HD Wallpapers (22.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:AFD967E8925C103F230F11883A6065CA9F93ECB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20BDB9585B46F64ED7FB0AA3F1D3881709E1E0A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93B9F51112519DBD4941535D4304ECAE995DAB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ Best HD Wallpapers Pack (22.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:94409BEC7E0481B408D9A7EE3FE6708CF1A468FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Silvercord and Altus - Lullaby (2010) [MP3|320 кб/с]<Ambient, Electronic, New
 ```bash
 magnet:?xt=urn:btih:01E51DEEFEDCAC32B22E1CB34E7BCA81CCBB3136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Nature HD Wallpapers (21.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:63964E63EB7F0227313D2C41270A64A2BEADD86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ VA - 15 Top Trance Hits 2012 11 (2012)
 ```bash
 magnet:?xt=urn:btih:01CD47DBFE79831888E72D6363A241B609F88666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6CC03643798ED5CEAB460400D4B24C8DD530818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A6994502825D36A3A2882F020BF9FC5E4B8DF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ VA - Блатной Форсаж (2012) [MP3|128 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:A6104E9B8AEF870E8A78F7CEDB0DA01FB3A91903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ VA - Отборный хит от радио Шансон 3 (2012) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:D398FF063D58050D0C94D3BD0B239430A9EB0FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ Janne Hanhisuanto - Water Stories (2010) [MP3|320 кб/с]<Ambient, Electronic, 
 ```bash
 magnet:?xt=urn:btih:DDC9A93F7AE109088996389BF0062998684D2DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +722,7 @@ VA - Тяжелый 2012 год (2012) [MP3|320 кб/с]<Heavy Metal, Alternativ
 ```bash
 magnet:?xt=urn:btih:C53BE306BCEA180698511E8A4B84BFC5BB9CB308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Susanna S. Epp | Discrete Mathematics with Applications 4ed (+ Full Solution Man
 ```bash
 magnet:?xt=urn:btih:ED0FC76FF035EDD56B371A076242C38D83218A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

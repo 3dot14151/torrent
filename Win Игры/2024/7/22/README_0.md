@@ -19,8 +19,7 @@ Serpent in the Staglands (2015) [En] (19) License GOG
 ```bash
 magnet:?xt=urn:btih:3E7EE4E93DCF8D6F9E50C85A7667EBAAB9549CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SANABI – это пиксельный экшн с ретро стилистик
 ```bash
 magnet:?xt=urn:btih:673791D3A098D124B116FF887086A4DE101B5011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crow Country (2024) [Multi] (20240525) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:928290767C53543F650D5A1C306A6C0747D767C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Guns Demons отправляет вас в мир, где скоростные �
 ```bash
 magnet:?xt=urn:btih:179F467E45D9DE68541F2329D321F20929645D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

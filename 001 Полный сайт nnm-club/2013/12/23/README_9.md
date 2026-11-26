@@ -28,8 +28,7 @@ VA - Antillas A-List Top 10 - Best Of 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:DD096E6013B7C13906E39B8C135BA65D948A9DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Subliminal Meltwater Sunset (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A8A6D916A503E029CAF72612CBE7B2DA42F55176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3178A448856821C0CA645788F7AC6CA076A6E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ VA - Клубные Новинки Vol. 346 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:33242952D0C468700556B64E04D9C83092BFBFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A782543666380563642445A3368020E09E9AD68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Dirk Hamilton & The Bluesmen - Sweatshop Pinata (2013) [FLAC|Lossless]<Blues-Roc
 ```bash
 magnet:?xt=urn:btih:A4FD3203B5BDA5F050A1D0BA970BFDA26808FA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ VA - Клубные Новинки Vol. 348 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:50B988040639D525FD6A88AB82BC6D8D19C7A032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5252E66C09F1AC1DBB34A34630E3963719ABCF50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ VA - Perfecto Records - Best Of 2013 (2013) [MP3|320 кб/с]<Trance , Progressi
 ```bash
 magnet:?xt=urn:btih:7697C9EB91D7FACBCCB909380287D7882503E331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13A0E86150BA34A5508DE7A58EC5F9B002DAD93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED8120DAA0D2B2158658CA862331CBED7FD18D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ VA - House Clubhits 2014.1 (2013) [MP3|320 кб/с]<Funky, House, Progressive Ho
 ```bash
 magnet:?xt=urn:btih:BD57D5EBED3D7E2A491990E8127B38F1A2C9F1A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ Tropical Whiskey Band - Walking on a Thin Line (2013) [FLAC|Lossless]<Blues-Rock
 ```bash
 magnet:?xt=urn:btih:FD53007FC7C081427DCD0D1035A7AD9C66B29617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D170526AE38A928CB7CBC9B4675E7AA51DF152C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F31F9D6E9BCE2F034C07501E8AF32DB5D6ED2930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ DJ Цветкоff - Танцпол @ Record Club # 251 (13-12-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:1ACC9C7122CF74C6D01F439D43AD7A31B0C10F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ Evertale - Of Dragons And Elves (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9400633E906B1DFB6055EF0C1E637342EAC80564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +567,7 @@ Marco Polo Cecere - Home Collection (2006) [FLAC|Lossless]<Chillout, Lounge, Bos
 ```bash
 magnet:?xt=urn:btih:294D2A75A194298CF655ABC9B9EE3DA4C8B8725B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +601,7 @@ Jack Jezzro - Gershwin on Guitar (1998) /2011/ [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:C780D45CE8723D0B4DDFB6DB2C28F7D7BAA56590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ DJ Цветкоff - Танцпол @ Record Club # 253 (20-12-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:418EB42F51704F86E8E55AA1C9DE6412B46D1DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +669,7 @@ VA - Anjunabeats The Yearbook 2013 [135D] [FLAC|Lossless|WEB-DL]<Trance, Progres
 ```bash
 magnet:?xt=urn:btih:35AFD5301FDE40A8B1F19F8BC6868B989C19354A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +703,7 @@ Winter In Eden - Echoes Of Betrayal (2012) [FLAC|Lossless]<Symphonic Gothic Meta
 ```bash
 magnet:?xt=urn:btih:E0815400F998A03FFA5DC73E402B39714AC7D3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +737,7 @@ Boyce Avenue - New Acoustic Sessions, Vol. 4 (2012) [MP3|160-192 кб/с]<Acoust
 ```bash
 magnet:?xt=urn:btih:A9A12E9A32E83612C049DB82DBD4051ECE14B875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +771,7 @@ Eliza Gilkyson, John Gorka & Lucy Kaplansky - Red Horse (2010) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:05DAB4DF7C4DBEAFE857C8DFCF6C6F5CBF8C444F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -821,8 +796,7 @@ Manuel Le Saux - First Light (2013) [FLAC|Lossless]<Trance , Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:F9FD369AEBBE01EE7C8827A54C6FAC132EB9946A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

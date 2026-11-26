@@ -22,8 +22,7 @@ Inferni - Raízes do Imanifesto (2025) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:65C71D47465C32019423E2657B3C1CF1D7A4277D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Symmetry Was Never An Option - Scientist (2025) [MP3|320 Kbps] <Progressive-Meta
 ```bash
 magnet:?xt=urn:btih:E4BDB6E8A3368FD03989B79124B4DA00546F3F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chronosynthesis - Echoes Of Forlorn Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:093F6069B7739F02AFBA3E93F4558A1F0FF5954D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fates Warning - Disconnected (Expanded Edition) (2000) Reissue, 2023, Metal Blad
 ```bash
 magnet:?xt=urn:btih:5378A9B3101980CA1F1D81495E1BCE685AD1E9D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

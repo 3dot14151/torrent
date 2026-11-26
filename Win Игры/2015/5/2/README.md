@@ -19,8 +19,7 @@ Rite of Passage 4: The Lost Tides (2015) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:6F8FB24428C597FCE33503E6375FC9F42F8FBAE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reflections of Life: Tree of Dreams / Отражения жизни: Дерев�
 ```bash
 magnet:?xt=urn:btih:3CF7DA25755703E8874EE8C828265FE0891DF510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bridge to Another World 2: The Others / Мост в другой мир 2: Ин�
 ```bash
 magnet:?xt=urn:btih:BFFD8CF2979E48EEB4689DD2B5B6348727181A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

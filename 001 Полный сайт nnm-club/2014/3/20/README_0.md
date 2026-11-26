@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8E510B30811372019F49B751D94854606FE512AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Utah M.Paul: Pagoda Red (2014) [MP3|320 кб/с]<Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:F9A642BF157EBDBDA713BE9BC71E51081E6899DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Moonshine Trance Vol. 2 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:403457C3C197DB0E0B67BD37758136BF1188280C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Dorn - 4 альбома (2000 - 2007) [APE & FLAC|Lossless]<Black Metal / Doom M
 ```bash
 magnet:?xt=urn:btih:DE664AD782654E1561427FFFA13A44A9D01C9322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Toots Lorraine - Make It Easy (2014) [MP3|320 кб/с]<Blues, Blues-Jazz>
 ```bash
 magnet:?xt=urn:btih:3BE85880FE0451F722CF0F4DDEC4A6FE3D7DAFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E30B13A72FCAD30D73CB43ADCB871A18F5B64D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Trackermatte - Shadow Festival (2013) [FLAC|Lossless|WEB-DL]<IDM, Electro, Ambie
 ```bash
 magnet:?xt=urn:btih:086BD88527291925F0A851BDA406C8D200E0690F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D237A0F47EB401C742C4E4E896E2A1C1CF0A3F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:217AABADB14E31F948F6332A903D8D4B4AAAAB3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ HueShifter отлично справляется со своей задачей.
 ```bash
 magnet:?xt=urn:btih:4B08A3880C41DFEB4754E5DCEC3FAB3014CAE262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ Deerob - Jayus (2014) [FLAC|Lossless]<Full-On, Uplifting>
 ```bash
 magnet:?xt=urn:btih:7D1E561115C590CE015C494A71DC68030FC45ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5738625B1137EE59E6BC526DAD62B42F7A7C9D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E963BA28159EC46F07C17D62CDE680A62549545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93D59B9CC4FFAF220D7D8065E986E189DF32E246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ Fedaden - Broader (2009) [FLAC|Lossless]<Glitch, Abstract, Downtempo, Hip Hop>
 ```bash
 magnet:?xt=urn:btih:7241A8BC343BD710268899517FBB9138F564FADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1E5D8C7935ED2DA201E1AC573C401B53D5D5600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ Jim Byrnes - St. Louis Time (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:AC48F465683FF7742B1AF7633583BE155443A653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69BD88F7631A5839D7EED3B496FD8A63E2FFB5E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ Kick Bong - A Waking Dream (2014) [MP3|320 кб/с]<Psychill, Downtempo, Ambient
 ```bash
 magnet:?xt=urn:btih:207D6E4DC54EDBB651EFF876434A6592DF3B2577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDE796D7CC4586E6446F8B5D27467A67DC473B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFCAEBA6855288AC6D2B29A2ACCADA03753182B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EF6B2FA5215479F4EA28F594D1AA1C7F2C0CE26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1155C91700750CE14A54B304CFCE192D61A68B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAF769967CCB0A910D589C50CFF7814B04C23E40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ VA - Discover: Native American Music (2013) [MP3|320 кб/с]<Folk, Instrumental
 ```bash
 magnet:?xt=urn:btih:7D68481C5390B4A3D45A644ABEEF9E353573A576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

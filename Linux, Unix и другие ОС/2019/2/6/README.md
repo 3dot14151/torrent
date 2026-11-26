@@ -19,8 +19,7 @@ Phoenix OS - проект по портированию ОС Android на пер
 ```bash
 magnet:?xt=urn:btih:CC63E0E0EEFA2B46869E9D104C562ABF4E90C012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

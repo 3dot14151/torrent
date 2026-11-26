@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B31C0D28168E4A89DC6F66C3FF4A34B25A91637A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tim Peters | Practical Python Backend Programming [Build Flask and FastAPI appli
 ```bash
 magnet:?xt=urn:btih:544CE98240B3297C938A130EE3AE9ADA48053A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

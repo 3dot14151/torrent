@@ -19,8 +19,7 @@ Memtest86 - утилита предназначена для высокоэфф�
 ```bash
 magnet:?xt=urn:btih:C944295559377F7DF166848D6046E126A874C4AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

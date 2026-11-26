@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:B203C9C8C3C5B8FF679D1F2A18D8E798D3C1ED17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Varix - Morbid Tribute To Distortion (2016) [FLAC|Lossless|image + .cue] <Thrash
 ```bash
 magnet:?xt=urn:btih:D2E547525523B7E889EA0E775EB7938CA59D07CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Genesis - From Genesis To Revelation (2026 Mix - 5.1. Edition) (1969) Remaster, 
 ```bash
 magnet:?xt=urn:btih:4370A720543BF9AB1A8E8E10500C42F15E03DE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Ram - Against (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:546B37DDE5C44787E38184A0D5E8233C7FC31FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Grave Dance Company - Ruins (2026) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, 
 ```bash
 magnet:?xt=urn:btih:BE05FDC210B85126D9C260E8BE5E89808602605C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

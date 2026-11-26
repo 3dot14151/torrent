@@ -19,8 +19,7 @@ CherryTree - функциональная программа, которая п�
 ```bash
 magnet:?xt=urn:btih:A1DC88EDC6B859213673BC1AE6AEACF37F74589A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

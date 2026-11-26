@@ -26,8 +26,7 @@ Super Special - Crystal Forest (2011) [ALAC|Tracks]<Dub, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:C58E6FABFE58B593C759EFF536A5D82E4FCA32BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55E4C45FA08F6E282E21DBBD8474EAC7F84DF330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ EagleGet – удобный менеджер загрузок, позволяю�
 ```bash
 magnet:?xt=urn:btih:FF053493A6C816A3972BB8F2DA421295BBAA6212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B295B678C4FE27BD36E5AB04E71738D22947934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13325FDD9C68AB3282EE06C254720B330DB5B2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ VA - New Age Style - Space Relax (2011) [MP3|320 кб/с]<Space, Ambient Dub, Ne
 ```bash
 magnet:?xt=urn:btih:80D1158A5DE639811BBCB440369827C8A26A10DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ XXII Зимние Олимпийские игры. Керлинг. Мужчин�
 ```bash
 magnet:?xt=urn:btih:65A56BA3CBC44BF2856A1753D897FDC98E457267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F22B043C622C2F3A1512308E2935F89ADEA8B7F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ FileZilla 3.7.4 Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9236F05DC38250437625E62FA0AE12DF8AE8777C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7625B9EE18716515E6386936541F15E4A36F0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ Psyfactor - Discography 7 Releases (2000-2014) [MP3|320 кб/с]<Psybient, Downt
 ```bash
 magnet:?xt=urn:btih:80B48D5D66C0939AB773EB94E2777C4B1ABAB244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEBFD69F823D4A0521F64C0DE5D96F5F87AFD818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ Eddi Reader - Vagabond (2014) [FLAC|Lossless]<Jazz, Folk, World & Country>
 ```bash
 magnet:?xt=urn:btih:3F024A329E5695A60BB45EBE8E74ED2615FADF79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ VA - Лучшая 100ка фартовая №2 (2014) [MP3|256 кб/с]<Шан�
 ```bash
 magnet:?xt=urn:btih:8FD04ABD7B1288BEC6C7F5D906C136B151233F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ VA - 100X Liefde 2014 (5CD) [MP3|320 кб/с]<Рор>
 ```bash
 magnet:?xt=urn:btih:91E55D1322E6EA902658A8A1DF4DD8F156B00D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ Ektomorf - Retribution (2014) Digipak Edition [FLAC|Lossless]<Groove / Nu Metal>
 ```bash
 magnet:?xt=urn:btih:7FF57F3CFD30099A39B3AC7D3626F47095DEA794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ Bombers - Bombers (1978) [FLAC|Lossless]<Disco>
 ```bash
 magnet:?xt=urn:btih:02151FE28E9DE1276C50B34667B8352CD5A6D8F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E737E282C5E59C05A8208AC483AF2A82B447C826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1DD34BC795D4BA1479F820827501D0A0EBD0BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +574,7 @@ OmniPlan 2 разрабатывалось для менеджеров или р�
 ```bash
 magnet:?xt=urn:btih:304032CF250898AACAC6B272E0182D7039BD1BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ VA - Best of 2013 - Die Hits des Jahres (2013) [AAC|WEB-DL|256 кб/с]<Pop, Dan
 ```bash
 magnet:?xt=urn:btih:B8B624F309E3A295458D669110AD5E0E89AA9DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88485561BA29429EDAAD1B33DC58B13DA0155F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEFDB39B8A1E3F381B0C739E686707B65AA15AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61EC2C81C65755F2A6BAEE528534EA0D4D8C54DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4167B210C8E6F33603FAAE96F6E62DDC1F76CD06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +740,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5909BAC6DE5B76FEDDEF4E10FAD6427E6C164A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

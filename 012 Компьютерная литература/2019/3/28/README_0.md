@@ -19,8 +19,7 @@ Vue.js – это популярная библиотека для создан�
 ```bash
 magnet:?xt=urn:btih:1FF32A0212BEFD12A749D2F3E462D1089AA43F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08AC5865AD93921BEB76940140B81BE36E1FCCA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

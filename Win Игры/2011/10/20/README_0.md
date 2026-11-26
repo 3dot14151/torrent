@@ -19,8 +19,7 @@ Drawn: Trail of Shadows Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:EEF19E5CB32A06D97BF2CA9D5954CB7399296EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

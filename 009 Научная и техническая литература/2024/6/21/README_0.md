@@ -19,8 +19,7 @@ Twelve themed chapters are broken down into easy-to-follow 15-minute daily lesso
 ```bash
 magnet:?xt=urn:btih:67C988787514623B1C1B80DA029EC07E5924FAA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The first steps introduce you to the everyday expressions of the language, allow
 ```bash
 magnet:?xt=urn:btih:A95B7293DF9274C94F3E3707AE0E864BB1A7C1BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

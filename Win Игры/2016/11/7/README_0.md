@@ -20,8 +20,7 @@ Autumn Dream (2016) [Ru/En] (1.6.9.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9EF93350DD5EFE23E91A783A61E28C76CCBF7F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

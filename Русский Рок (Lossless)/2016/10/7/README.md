@@ -22,8 +22,7 @@ VA - Рок на костях. 25+25. Посвящается 25-летию не�
 ```bash
 magnet:?xt=urn:btih:BC5F4A2A6F19AD5D2224426E57ABF26C3A0A2D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

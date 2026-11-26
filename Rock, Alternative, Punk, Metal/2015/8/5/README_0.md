@@ -22,8 +22,7 @@ Zandelle - Perseverance (2015) [FLAC|image+.cue]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:03DE9C67F840C768F76DE81BF6B4F3FA6436EB3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Zandelle - Perseverance (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:337351981278CA3ED9E631D2BDE5DA5E4DD76CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:4FD8D53E3C0D4B25F63F77EE7D1E2454C6CDC521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Anzi - Black Dog Bias (2015) [MP3|192 кб/с]<Alternative, Industrial>
 ```bash
 magnet:?xt=urn:btih:9A1DDA7901C67B9414E57F8087E7D4534893D0E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Left In The Dark - Shadowglass (2015) [MP3|320 кб/с]<Alternative Metal, Progr
 ```bash
 magnet:?xt=urn:btih:9B4838E2298CEB5F5C2EECAD8AEA77245437F1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

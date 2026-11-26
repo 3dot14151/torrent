@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E2A06E8DC4A24052C83BEFE352469134BF80C731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:A78EDA9106698965611C0F172F6B0E5A68B45A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E9C3620181D187677228C94812A777B6607E19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:989483303946DE1937EA121DE0A65FDDFD9BBD73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Filmex — это программа для организации домашн�
 ```bash
 magnet:?xt=urn:btih:58AF315EA531CDE94D4528871714C11AE6B4B91D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ MAX Desktop 26.12.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:92806311F8A983C84383D26E5018C0C575918BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Kataloger это программа универсальный каталоги�
 ```bash
 magnet:?xt=urn:btih:2FDD4512072F48B4D72CB0622620E108F626F0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Fast Video Downloader - удобная и простая в настройке �
 ```bash
 magnet:?xt=urn:btih:6511E2B697F7780D267495C4305784856BB59E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Run-Command - небольшая программа, которая создан
 ```bash
 magnet:?xt=urn:btih:117567BC5D11747BFA1E69590DF74B5C835D7B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ MediaHuman YouTube Downloader 3.9.19 (1204) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:74176A8BB7CBEC0F9CC5B576DA0BBB8396F9B878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Fast Screen Recorder — это программное обеспечение д
 ```bash
 magnet:?xt=urn:btih:A6F9E4E7B54C332BD73368116F5043708B8FE0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:0A360C23C83C93DFD54C12CDB2083116736BA144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:C82D5E2D312EA1F5D2A6CAFF0FF41D5D28A5BAF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

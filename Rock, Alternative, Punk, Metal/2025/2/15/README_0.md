@@ -22,8 +22,7 @@ Lacuna Coil - Sleepless Empire (2025) [FLAC|Lossless|image + .cue] <Gothic, Alte
 ```bash
 magnet:?xt=urn:btih:1E1FDCC72A7CB0D04D3D32031029893E86EEC3AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Alex Beyrodt's Voodoo Circle - 8 альбомов (2008-2024) Discography [FLAC|
 ```bash
 magnet:?xt=urn:btih:455BF88D194E5FCE2259F512D1484B06D49B048A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Smokie & Chris Norman - The very best of Smokie & Chris Norman 50 years annivers
 ```bash
 magnet:?xt=urn:btih:CE3DB5766B0F9BCB25886C959FB906BF129DDC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hungry Shark VR - В этой игре вы сможете побывать на
 ```bash
 magnet:?xt=urn:btih:E680132C14917BE592E9F347AEC3D4B5F85DD2BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

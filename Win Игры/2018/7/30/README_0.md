@@ -19,8 +19,7 @@ Memoirs of Murder: Welcome to Hidden Pines / Воспоминание об уб�
 ```bash
 magnet:?xt=urn:btih:C73036C2775EC1F0EC8A3A8D9DDC8565B62F7C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -25,8 +25,7 @@ VA - Ibiza Sessions (24.07.2011)
 ```bash
 magnet:?xt=urn:btih:4B18BF7080E39CD9FFE5574866961DC74ABFC276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ VA - Europa Plus #20 50/50 (2011) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:8CF7AFBE0B73C41A7C61B4973D1B8707196F791C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ KoolMoves - программа для создания анимационных 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ VA - Music Rough Guide - Arabesque (2002) [MP3|~226 kbps]<ethnic music>
 ```bash
 magnet:?xt=urn:btih:FE86FBF253FE819264DF8E3333506932F26798BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Roger Shah - Openminded!? (2011) [FLAC|Lossless]<Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ Discovery: ВМФ США: охота за пиратами / US NAVY pirate hunt
 ```bash
 magnet:?xt=urn:btih:6F0123ACC7918B6C348A7892B0363B41211243B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D59294BED99397F74D60E45365E6DEEBA4A18824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ Nicolas Dri - Aqua Vitalite (2009)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ HD Suisse - Швейцария [часть 7] / HD Suisse: Swiss View (2007) HDT
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ Pozitiff
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A8F5C42B5E59FB09D8568D41B5AAB8791A04F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE3F1E469047ABA0AB81BDB672B3AF7F43CFEE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:604D6CB4C00E75A7B6EFABCC586AA20F9455646C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ VA - Red Station 13 (2011) [MP3|320 kbps]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:B2987A2F89D694766161C4EDD346C69999E48029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ VA - Collection of Metall Ballads - рр (2011) [MP3|320 kbps]<Metall, Rock>
 ```bash
 magnet:?xt=urn:btih:0FAD0BDF63BB26226857CB4EDC0F4DAFA24EFC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8188596EF95C08483BBC2B3496CB3C56AECF7FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F843F0913E610966A6B272DDA9881798448033BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ Horst Wende - Accordeon (1971) [MP3|320 kbps]<Instrumental, Schlager, Easy Liste
 ```bash
 magnet:?xt=urn:btih:08211972905AEC98B8EB9D790640DEE7E07DCB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ VA - Deep Train 7: Hide & Seek (Mixed By The Timewriter) - 2011 [MP3|320 kbps]<T
 ```bash
 magnet:?xt=urn:btih:7336DE0413B55D6082A7CBBE2DFEE91887881689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ HD Suisse - Швейцария [часть 6] / HD Suisse: Swiss View (2007) HDT
 ```bash
 magnet:?xt=urn:btih:6ADB1ADD1F191CEA538D06592E52CF079BFC979A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +614,7 @@ HD Suisse - Швейцария [часть 8] / HD Suisse: Swiss View (2007) HDT
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ VA - Music World Remixes Vol.7 (2011) [MP3|320 kbps]<Dance, Club, House, Electro
 ```bash
 magnet:?xt=urn:btih:94E599DA51497761AE72DC3459920AA129DFEC09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ HD Suisse - Швейцария [часть 4] / HD Suisse: Swiss View (2007) HDT
 ```bash
 magnet:?xt=urn:btih:8C749A799454E1D433D93D82B461F8274E24F445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ VA - Music World Remixes Vol.8 (2011) [MP3|320 kbps]<Dance, Club, House, Electro
 ```bash
 magnet:?xt=urn:btih:020E3E8E0D999ED98C3BE17DC455C00481A7A93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +740,7 @@ VA - Panta Deus (10 Years of Psytrance.pl) - (2011) [FLAC|Lossless] <Full On, Ps
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

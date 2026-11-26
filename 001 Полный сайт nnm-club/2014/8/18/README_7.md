@@ -18,8 +18,7 @@ Appleseed Alpha / Яблочное зёрнышко: Проект Альфа [20
 ```bash
 magnet:?xt=urn:btih:AC594ED6C1BFA61D14321B62D032FBF75C5EF995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Risen 3: Titan Lords (2014) [Ru/Multi] (1.0.90.0/3dlc) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:BA4FE87C8C6AF23D9813901A807CEF091DF0389D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E613E3DC4EEC18FBCDA76632A01FE8531CDAE5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Adobe After Effects CC 2014 предлагает великолепные фун
 ```bash
 magnet:?xt=urn:btih:2A0308F9CE6B0887B21C3AA168BDC64D69F7EC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Microsoft советует не устанавливать августовск�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 ```bash
 magnet:?xt=urn:btih:D0ED594E0C98947894D895A1964A7D3F28D6BE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Don't Starve (2013) [Ru/En] (104670/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:BF6A05E56EB762C494E361FB9CBAE00D3360E517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Plants vs Zombies: Garden Warfare [PS3] [USA] [En] [4.21+] (2014)
 ```bash
 magnet:?xt=urn:btih:6266B6744CDDE4F3E0926E8A1DBF7C91297F6812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ LEX LIVE STARTLEX имеет достаточное количество уст�
 ```bash
 magnet:?xt=urn:btih:A49C801224828F51114D2199D60818310A476C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Adobe  Photoshop CC 2014 входит (   Читать дальше...   )Яз�
 ```bash
 magnet:?xt=urn:btih:CADEF161D6E475C58712BDE9A41A93AEF485DE0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

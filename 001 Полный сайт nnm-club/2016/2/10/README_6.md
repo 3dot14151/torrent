@@ -18,8 +18,7 @@ Football Manager – на сегодняшний день самый реали�
 ```bash
 magnet:?xt=urn:btih:309B6995613F1105E6716C6456AE8DC2CBB7D7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Exposure X — автономная программа и плагин для Ph
 ```bash
 magnet:?xt=urn:btih:5151596C15C68A42FB720B41248051EABD86FC19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF9B8BED80A9F0B6D4021875A2C9FEF9932944FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7BA76DFCBE0DD0D7B5037120EA8070857746EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Stop SMS Uni Boot - Загрузочные образы CD & USB , основа�
 ```bash
 magnet:?xt=urn:btih:12E36C27AB42D22619F540E523CBBB92AD6612D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4D2F686BA316C1C06DDFDE51A017331CBD7EC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ VA - Classic Rock Magazine Collection (1998 - 2015) 116CD [MP3|320 кб/с]<Rock
 ```bash
 magnet:?xt=urn:btih:89EA1D919C1FD9A5096DA11621C6FDE138972351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Assassin's Creed Chronicles: Russia / Assassin's Creed Chronicles: Россия 
 ```bash
 magnet:?xt=urn:btih:412FC65881904A3BE48C3EA4BA7FEB56A7886D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:970F873BFB56FA57A070DB2E8E399CF8D21BF36D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Firewatch (2016) [Ru/En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A6B699683EB843C6B79843D8E46E61C0AD2147E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Windows 10 Enterprise LTSB с обновлениями по февраль 2016 
 ```bash
 magnet:?xt=urn:btih:8A0204B9482E1FFFCAE1956B8E15E38C431D6099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1ECC77394A0640F836EFECCDBF6522AA3EEC0EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61C35BAB2E3E8CF8A01239BFA168EF9FDA079B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ Windows 7 SP1 (x86/x64) + Office 2016 26in1 by SmokieBlahBlah 10.02.16 [Ru]
 ```bash
 magnet:?xt=urn:btih:88A46A6979A82D8ECE5BC10F625650F3EF2EB34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

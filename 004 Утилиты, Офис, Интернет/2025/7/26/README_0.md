@@ -19,8 +19,7 @@ MediaHuman YouTube Downloader 3.9.15 (2607) RePack (& Portable) by Dodakaedr [Mu
 ```bash
 magnet:?xt=urn:btih:BDD3113940237AE0C489CDA2B11E443C04FC38D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:FB13E5CBDA3A07D34FD6F3B2A86FC9681F488F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Auslogics File Recovery — простая и эффективная в испо
 ```bash
 magnet:?xt=urn:btih:F4E4B57FD27A03CA99D898D1B68BD70326C5C9EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

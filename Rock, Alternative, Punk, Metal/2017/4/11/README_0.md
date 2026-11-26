@@ -22,8 +22,7 @@ Taliandorogd - Neverplace (2002) [APE|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:9ABAF866A9883AC6687B0E00CAECFFC2D3480190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Craven Idol - The Shackles Of Mammon (2017) [MP3|320 Kbps] <Blackened Thrash Met
 ```bash
 magnet:?xt=urn:btih:D5D121ED1D124E22793B515E6321D4CD3AE14624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Broken Voices - Broken Voices (1997) [FLAC|Lossless|image + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:80FDDEF3DDC220123F6A60AAA6D8D3F001DEA26A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Showaddywaddy - Step Two (1975) Reissue, 2001,  7T's Records [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:0F7F9CE6A7A08216E8F9412FB823D42025874E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sinner - Tequila Suicide (2017) Limited Edition [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:C9C601135036DD0589AB3486E6CD8B6A05AAA085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Havok - Conformicide (2017) Limited Edition  [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B9717C658ABA56DB46EF4EB8561A335AC46FEA06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Cromonic - Time (2017) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:E0418995B19DB20E0F2C5EAAA52D2495C4ACE2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Junius - Eternal Rituals For The Accretion Of Light (2017) [MP3|320 Kbps] <post-
 ```bash
 magnet:?xt=urn:btih:86204E68A99EE9C3B1A08567359A05EAA2DE2736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

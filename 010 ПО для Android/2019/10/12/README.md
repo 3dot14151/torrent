@@ -20,8 +20,7 @@ Meditopia помогает снять стресс, улучшить сон и �
 ```bash
 magnet:?xt=urn:btih:C0E46BD9B3A59C0EE7E9AB5BB8016FC48CA00052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Zello рация v4.75 [Ru/Multi] - Интернет-рация
 ```bash
 magnet:?xt=urn:btih:E8665870713FF53F8300894A7CC2DBA9BF2F7330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:923A4F388ACF77883DBF45D3876C464925923CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:C61C5185AA1DBBC69FFD98AE8B04A18BB6643FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ ONLYOFFICE — это офисный пакет для работы с текс�
 ```bash
 magnet:?xt=urn:btih:447E46BB66CB88DC3A1ACBCEDB14478E7DBDE6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:0C1793D7900665E3E86A12AA49050165A29599C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:17397CAACEB6B00E005F9583A9E7458FB8D8089D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Hetman Partition Recovery - программа восстанавливает д
 ```bash
 magnet:?xt=urn:btih:6656360325233D5A7F9AAEE5012F463A56D52914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Hetman Uneraser Unlimited Edition 7.2 RePack (& Portable) by elchupacabra [Multi
 ```bash
 magnet:?xt=urn:btih:25DA5B88FA0F558D07A3B576FC81BA41CD44ED49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:DEEA0960D471AE2A114660A7CDFEB012C2665134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Hetman Internet Spy - эта программа собирает историю 
 ```bash
 magnet:?xt=urn:btih:91A035B9CFC8997A5183290250D38CBB275F4B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ HEU KMS Activator — это простая в использовании про
 ```bash
 magnet:?xt=urn:btih:0D2CF3E86689311F363E8E4A6329745759EE77AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Signal — это простой и безопасный мессенджер д
 ```bash
 magnet:?xt=urn:btih:AAEC175225E69E7AE087A5A4AB221B10226D685A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:0F2B1983C0126A2156D1425A9321E5BEE119042F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

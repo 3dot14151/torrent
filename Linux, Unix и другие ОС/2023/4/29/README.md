@@ -19,8 +19,7 @@ Kali Linux 2023.1 [amd64, i386, arm64] 8xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:3F66A9826F1E330EBB30FC8ADFA40DA20A86CBED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

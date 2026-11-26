@@ -19,8 +19,7 @@ Smurfs Kart (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B89DF256B3673B16DBD1AD2EA7E00EA9A2F95E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Flying Shark (2023) [En] (7) License GOG
 ```bash
 magnet:?xt=urn:btih:09DE2AA8B8822FEBAC615582F06262E5CB2F9657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Charrua Soccer - это аркадная игра, наполненная экш
 ```bash
 magnet:?xt=urn:btih:AC8C9ABFBACBDB177A42B839F7BC88EBEA826245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

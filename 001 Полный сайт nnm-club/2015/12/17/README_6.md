@@ -18,8 +18,7 @@ Final Fantasy VI, вышедшая в свет в 1994 году, стала ше
 ```bash
 magnet:?xt=urn:btih:DCE5D2FB148FF856EEA4076DC329FB771F826B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:557F4ED02AAD342616DFBB44662E189259056C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B49EA32EDB790255129D9633D0FD803B88ED3917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Mortal Kombat X – файтинг нового поколения и следу
 ```bash
 magnet:?xt=urn:btih:483C27AA159EF66D6DFFA7C94609F280D05467C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

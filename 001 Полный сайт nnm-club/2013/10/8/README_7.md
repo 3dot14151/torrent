@@ -18,8 +18,7 @@ Alien Rage: Unlimited (2013) [Ru/En] (1.0.9084.0/upd5) RiP Fenixx
 ```bash
 magnet:?xt=urn:btih:3DE5DC1F6E2EB75109D0D06066D141A37E2A7480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F53F0E195A629C85CDEDF1F00C5C0726060996F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Digital Photo Professional обеспечивает быстрое конвер�
 ```bash
 magnet:?xt=urn:btih:28FEA1011CEF6362145FD363BD333FDC8AAB04D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BE897BBB9EE7968A68EA3DCA1FD0501449C6EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7490F9FC31566565AB7AC741A483642E3857471E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Portraiture - популярный у профессионалов и нович
 ```bash
 magnet:?xt=urn:btih:485AF2D5601A897DC75772187879B7D344EB2F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ DuckTales: Remastered - это красочный, нарисованный вр
 ```bash
 magnet:?xt=urn:btih:54C58F286D37FD1587D9BAB32ECF1440D23C949B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Null DC [Sega Dreamcast] [Ru] (2011-2013)
 ```bash
 magnet:?xt=urn:btih:7A8724D6B78D9A709C704886D714590291D207C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ DriverPack Solution Plus 13.0 Revision 390 / Drivers Installer Assistant 5.10.4 
 ```bash
 magnet:?xt=urn:btih:EB402EB07B7560169E22826B68B0CB4428B403AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ TAKEDOWN — это шутер для тех, кто думает. Игрок, �
 ```bash
 magnet:?xt=urn:btih:9203B25696D3778ACA2D075567213D516451E3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F040E6296D82C6637BF02C90C74FE73486D906D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ Adobe Premiere Pro CS5.5 и CS6. Секреты Профессионалов - �
 ```bash
 magnet:?xt=urn:btih:CCAACDAD0C548427E44DEDADC7E594EDFA1F1704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

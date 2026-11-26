@@ -22,8 +22,7 @@ DGM - The Passage (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:D65AB3821556573BF439717DE4A909CE55216B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hellbringer - Awakened From The Abyss (2016) [MP3|320 Kbps] <Thrash Metal, Speed
 ```bash
 magnet:?xt=urn:btih:06B913D66A84393DBF8F9EDFA9D02C3C3FCF55FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ DGM - The Passage (2016) Japanese Edition  [MP3|320 Kbps] <Progressive Metal, Po
 ```bash
 magnet:?xt=urn:btih:72FDCF4A3BF3FD7EB80A75EF829A28E293DD5F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Detroit With Mitch Ryder - Detroit (1971) Reissue, 1987, MCA Records [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:58DE0901748B6F898CB55B7CF162E0F95F227A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sting - The Soul Cages (1991) [FLAC|Lossless|image + .cue] <Blues Rock, Jazz-Roc
 ```bash
 magnet:?xt=urn:btih:B87448F6029B9DD287019616D760A093EB0F1741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Queen - A Night At The Opera (1975) Remaster, 1993, Parlophone [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:36937B114F22C9DCCED7576152D1EB94047D8889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

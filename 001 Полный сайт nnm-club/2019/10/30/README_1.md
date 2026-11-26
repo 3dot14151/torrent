@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A8D245A3822735C34EC019E981FC1C20D1E4B5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ MotoGP. Этап 17/19. Гран-При Австралии. Гонка. (27.10.2
 ```bash
 magnet:?xt=urn:btih:1A720A7189ECE8D0C05BB0AF85F55A739E0D515F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E51664C54E0EF47934C988F82F060E9985A4D118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4D234B97929E5896C0192545E8A5F5E3E9462E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Beatformer имеет четыре ручки (Boom, Punch, Squash и Air), ко
 ```bash
 magnet:?xt=urn:btih:E4891703722D2A2645051708DCAC83ADDA4208EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ AnyMP4 Video Enhancement - Видеоредактор для повышения 
 ```bash
 magnet:?xt=urn:btih:4F2381EEFD5A6ACDA7D44B7C4A8ECD1D7BEDCD52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Vadim Brodsky ( Вадим Бродский ) - Beatles Symphony (1986) Reissue,
 ```bash
 magnet:?xt=urn:btih:D392D5CF1C21BDC33CAC533E087B4C9CE5EC8388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A02233A7BACDD1BC5D4AD2CF8A8D505DE043C151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:204AEFA15FC33DAA50EBE73FBC22C4914281868D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6D9D348E07D94DB7B1A8272D239B61E9BD24941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ The Real ABBA Gold - Janus (1998) Hey Presto! 1999 [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:4A502BF9C8A4A95A3D692EEEC2C07B4721F1C62C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Spirit Legends 2: Solar Eclipse / Легенды о духах 2. Солнечн
 ```bash
 magnet:?xt=urn:btih:AACE1A7D067E0D34F93E3C0DFC5505D47E816215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA65DFC74BE6D0312D6627E15D91CCD4FDC3146A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Macgo Mac Blu-ray Player - это один из лучших (если не ск
 ```bash
 magnet:?xt=urn:btih:3099E703DA8EF40D3308D83CBB0680E6249EF21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7229924EF876B0BCDC6235C0424492C009B5C762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A41333E801C28F7E2148D05D7AA491556CBE2063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Or
 ```bash
 magnet:?xt=urn:btih:9241BFFDC21DE125E1CB0C47238DFA0BF80D1124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F42D5E8B99A4C77C644617C3B73E6B1A632BD087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ Loaris Trojan Remover - средство удаления вредоносног
 ```bash
 magnet:?xt=urn:btih:DB2CACA594E8337BF2039CF1B3F9C67C34567A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ Rhythmiq анализирует и понимает ваши ритмы и мг�
 ```bash
 magnet:?xt=urn:btih:414467AB5F783D4F4C9ECEAA1424A1C055C20FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ Opera 64.0.3417.83 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DC0079E80E1F1389FB09E1CD6552C5EE2944F821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49DE62D8B3EE51F56B2A6269E696E262E63DF2AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ VA - Осень БЕГ (2019) [MP3|320 Kbps] <Dance, House, Other>
 ```bash
 magnet:?xt=urn:btih:3E98F5B8C717C8721FCA1FE5C887AF7603727E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ Anthony Baldino - Twelve Twenty Two (2019) MethLab Recordings [FLAC 2.0|48/24|tr
 ```bash
 magnet:?xt=urn:btih:E2DEBCB58D73BDD00B35ADDEBA84E631A8C9FBA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ Artistic Mix Art - Этот экшен фотошоп превратит ваш�
 ```bash
 magnet:?xt=urn:btih:4872077A085C09B78AF8C9EC6052C5A6768E4042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01DD2E141BF26B0489E3F15A774045AF9919DDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

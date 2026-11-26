@@ -22,8 +22,7 @@ Octohpera - Bons Amigos (2002) [FLAC|Lossless|tracks + .cue] <(GentleGiantish) E
 ```bash
 magnet:?xt=urn:btih:2C4902F9CF0644C8A45DB75C14632F2001C81E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Assassin - Bestia Immundis (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B5AD2639E2BF53FA82AD38830FA2E41BE0C24991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Aurum - Время (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A5C3101F330D0DFD99E3E2F59A49D6988BC57FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hatebreed - Weight Of The False Self (2020) [FLAC|Lossless|image + .cue] <Metalc
 ```bash
 magnet:?xt=urn:btih:20CA5781B5D490895B54EF6AC1E18C9CD061A673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Blacklite District - You're Welcome (2020) [FLAC|Lossless|WEB-DL|tracks] <Altern
 ```bash
 magnet:?xt=urn:btih:3C732014F497D37F97BF4D042B2D1D842D7A966B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tokyo Motor Fist - Lions (2020) Japanese Еdition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:EC3D6FCFF317BFA418338E5C2A19E06A12DB1824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Which One's Pink? - Pink Floyd Tribute Just the basic facts (2010) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:48660C7863F8782A3C2D5A3C9C09F07A99AF628B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Neal Schon - Universe (2020) [MP3|320 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:C59351A41F55D75244989FBF2769102C44216EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Alpha Souls - Carousel Of Emotions (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8F0D55EABBA997417DAB4BF649AFC0D396DB27CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

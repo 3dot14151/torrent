@@ -19,8 +19,7 @@ Awakening 5: The Sunhook Spire Collector's Edition / Пробуждение: Ш�
 ```bash
 magnet:?xt=urn:btih:BFF62C0B5ACFD658E6DD498F7F786C3FC04BBB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Princess Isabella 3: The Rise of an Heir Collector's Edition / Принцесс�
 ```bash
 magnet:?xt=urn:btih:66FDD575A002A5EB03493A446D036EA318F0C630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Castle of Illusion Starring Mickey Mouse (2013) [Ru/Multi] (1.0 Upd1) SteamRip L
 ```bash
 magnet:?xt=urn:btih:A9CFDBCC0536F2F44B5D64E6C55CEDBA2A891FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

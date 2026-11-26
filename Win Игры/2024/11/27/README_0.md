@@ -19,8 +19,7 @@ Rauniot - приключенческий квест, представленны�
 ```bash
 magnet:?xt=urn:btih:930593D59FB601A7C6A5B13312F10A4D0A17179B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Beyond The Edge Of Owlsgard (2022) [Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:D47AC1AC89730C44BEF83FF6BD065985102F9CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Be Your Cat (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A281A58A5633D822E8097A7279D50E0BC14EDEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beyond The Darkness - это мрачная история, которая ок�
 ```bash
 magnet:?xt=urn:btih:FE7B045C46185E602AE7C040710CE203CE0739D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ House Flipper – увлекательный и интересный в своё
 ```bash
 magnet:?xt=urn:btih:7465FD0EB8EA1E24EE7CBF7D32AD27428FD93591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Rebels: Prison Escape / Повстанцы [Ru] (L) 2003
 ```bash
 magnet:?xt=urn:btih:CFE40E9C2D1A832CDE51141E34397A452E3EE341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

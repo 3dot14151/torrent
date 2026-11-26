@@ -19,8 +19,7 @@ Mary’s recipes: рецепты, меню v7.2.0 Mod by Alex.Strannik [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:5A7FD8D9AF9CE8061BE84D1F4B92088B807DAFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MiX Camera вдохновлена ​​камерой Mi, но добавляе
 ```bash
 magnet:?xt=urn:btih:2B883E2237DA23CE435E5A3D5215DC9319E0664D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Eatr・Здоровые рецепты v2.49.0 Mod by vadj [Ru]
 ```bash
 magnet:?xt=urn:btih:32FFB991B536225AF7569C528CF09C395BD9197A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Audio Editor Pro / Аудио редактор: обрезка музыки v2.0
 ```bash
 magnet:?xt=urn:btih:03DB068F0E25C37F5C62380F5DC766231267E890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ AI Photo Editor Pro - Polish v1.721.248 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DAA74707739EDD909F4C278782D7C33673A846A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C272395434AD7C635964647D79AA390C4FE2072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFFB57E00C1D45FFA65784779CCE46F7F692ED72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Remini / Улучшение Фото v3.7.1263.202519097 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:161ACE5D072676B17E0B08787787A0B75DD249EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FB1284B859B1C74926455A8A56FD33A502438AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E2ACE03D498C309B2EE02AE57DB73A86D4C25A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2ECAEA244C6A5DD3024D525B443C7B427CF387FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E80D37F8F22D8393C1ADAE45EA68A4B7CFE19203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:8349969148F026E0729FF2457428FA68E114EBAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ NewPipe v0.28.3 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D51C80A0937ACFA7F985DEDA55B886028370B177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

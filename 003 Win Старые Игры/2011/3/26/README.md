@@ -23,8 +23,7 @@ Prey [Ru] (RePack) 2006 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:02841DFCEBF7150F744453C58EE9F8B720A382DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Running Wild (с англ. — «Ведущий беспутный обра�
 ```bash
 magnet:?xt=urn:btih:395195E3218167A7611320B7E0C7EA9E5DBF3C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

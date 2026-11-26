@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:CA63D0DE881B7B64DB45FD30B105E91A1745D3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F091C3FD2E4320C7D6541A4EF792989DE056B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Nazareth - Hair of the Dog (1975) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B4ED479653E586BAE21D6D4AD8D328600A10C5E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

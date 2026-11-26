@@ -21,8 +21,7 @@ Robocop / Робокоп [Ru] (L) 2003
 ```bash
 magnet:?xt=urn:btih:D48112C14550C3FBB0A7C194D539698E7FDDAB80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Immortal Cities: Children of the Nile / Вечные города: Дети Ни
 ```bash
 magnet:?xt=urn:btih:726111BE0A3D95BBF20BDB99D91F798C5ABC83DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Immortal Cities: Children of the Nile / Вечные города: Дети Ни
 ```bash
 magnet:?xt=urn:btih:DAB35E694108A6511F446436C6149B8396E6F5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Immortal Cities: Children of the Nile / Вечные города: Дети Ни
 ```bash
 magnet:?xt=urn:btih:84F2E36D967BC92776640698FB6E95AB708D0608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

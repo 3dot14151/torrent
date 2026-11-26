@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DF399F0DEE65EDB1CEC4A251C20B8D233AAA3A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Repack Necros
 ```bash
 magnet:?xt=urn:btih:A83C71272CF92D6012AAAEF9FCC24B5D9D9468F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Wanterlude [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:306BAFBDA15F54F7D8CF80137A5E03FC47557131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F41CD768BC56663791DB8C0EE2998FDF2B8C701A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AA7055131B70215DB9E66E4D5E07858F35531DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

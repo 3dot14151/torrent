@@ -19,8 +19,7 @@ Sonic Mobius Evolution 1.4 [En]
 ```bash
 magnet:?xt=urn:btih:C8B6C900C6730EA8B0A3EEC0CEC35275CC79F369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sonic Lost Worlds 1.4 [En]
 ```bash
 magnet:?xt=urn:btih:3EABD1F659F628A9E801AAF84993A8DA52208911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

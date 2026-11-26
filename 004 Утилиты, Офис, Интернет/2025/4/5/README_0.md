@@ -19,8 +19,7 @@ Hosts File Editor - небольшая бесплатная утилита, ко
 ```bash
 magnet:?xt=urn:btih:D950B87820183F35A4F14AD8C95D72B9E14D19AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

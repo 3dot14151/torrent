@@ -22,8 +22,7 @@ Del Shannon-The Complete UK Singles More 1961-1966 (2013) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:296424A06F680EB4712E65908CA1F55933949229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wolfheart - проект небезызвестного в музыкальны�
 ```bash
 magnet:?xt=urn:btih:E71912C12071BC4E7E357FB19EFB600E2D32C634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Empyray - Discography (2007-2009) [FLAC|Lossless] <Hard'n'Heavy, Oriental Rock>
 ```bash
 magnet:?xt=urn:btih:80F41EA3DA568EB5FA308CFB8DE9E8B984DCE349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

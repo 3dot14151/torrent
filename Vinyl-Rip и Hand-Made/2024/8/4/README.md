@@ -22,8 +22,7 @@ VA - Остров Сокровищ. По Другому! от Arhangel Music (20
 ```bash
 magnet:?xt=urn:btih:E8150643928E958009D3B75148F29D9509AA504D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

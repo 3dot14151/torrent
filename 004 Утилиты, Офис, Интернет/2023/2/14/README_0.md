@@ -20,8 +20,7 @@ WinExt - это набор бесплатных утилит для Windows. С 
 ```bash
 magnet:?xt=urn:btih:21A8AEEBD5D86D34D90BE23ADD8806900B88E260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:2FB9DBC97CCDE2E103651C47FA2F9F54BB2D6EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Night Train(   Читать дальше...   )Жанр: New Wave, Synth-pop�
 ```bash
 magnet:?xt=urn:btih:75C1ACC1E694F5BFBD2943833B8C5503D0B77769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Amanda Lear - Sweet Revenge (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ele
 ```bash
 magnet:?xt=urn:btih:46F15FCE05947CEDCDFFCB69B6DD35338D1DDD1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

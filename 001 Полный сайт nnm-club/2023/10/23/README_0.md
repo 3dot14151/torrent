@@ -20,8 +20,7 @@ Final Draft — профессиональное программное обес
 ```bash
 magnet:?xt=urn:btih:8CFC7151E83852AE1420635E888A9242A23B46E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Rozario - To the Gods We Swear (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:9860E11BCD99D2CA02294BB6C8D4C40286C9D24E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Master of Typing создан для тех, кто хочет научитьс�
 ```bash
 magnet:?xt=urn:btih:1F7222FDDB70025CFAB65D43B0305B2027B45BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01CF8F7ED9DCD190E5A3ABEDA4A0EDCC125E2303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ DxO FilmPack — это подключаемый модуль для Adobe Photo
 ```bash
 magnet:?xt=urn:btih:FB0A5B8B34B9366C20F5A4C2708A88912582466A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Progressive Downloader — теперь уже платный менеджер �
 ```bash
 magnet:?xt=urn:btih:5199AAD8EDEB882BE123B59F80CD33537CA07DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Get Backup Pro - Универсальная утилита для выполне
 ```bash
 magnet:?xt=urn:btih:70F6FF2261EEF4E939AA17C36496084DBCAF59EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:3F8946CAC82413F28E89F11212BC1833844D6483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Erik Norlander - Music Machine (2003) 2CD [FLAC|Lossless|image + .cue] <Symphoni
 ```bash
 magnet:?xt=urn:btih:9D302282D72A8432605D92D67897AE4B076ECCC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Softorino YouTube Converter — почти YouTube Red, только беспл�
 ```bash
 magnet:?xt=urn:btih:099DF569737ADF77356F7B35343D228D43EDDD73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Erik Norlander - Stars Rain Down (2004) [FLAC|Lossless|image + .cue] <Symphonic 
 ```bash
 magnet:?xt=urn:btih:7E54DCCCC94EF590B41E224F01C18B64CC3CE2E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ EditReady 23.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:DA1139832E32EEFC8050CCEF785C69761CACCB66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ WiFi Radar Pro позволяет контролировать ваши лока
 ```bash
 magnet:?xt=urn:btih:EAB655A6B31EE43D1DF995F0F23B166A1E7F1747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E3D6E2F13F31DE2F7B075BBFAA29D33CED2A04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Ruffyunz - Ruffyunz III (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:30931782417C0CC9BB239D2DB03DC4EAD99484FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Sketch - это инструмент для векторного дизайна 
 ```bash
 magnet:?xt=urn:btih:27E048DDA9C6391D0D48E109444804962BD5AF27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Elvin Jones - Dear John C. (1965) MCA [FLAC|Lossless|tracks + .cue] <Hard Bop, P
 ```bash
 magnet:?xt=urn:btih:B9C5B5E1F11B30A30ECB7583B7253B8975E0EF76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06159ABEBE02C5F8285846BE18B4BDF6BA2CFC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Renamer - это приложение для пакетного переимен
 ```bash
 magnet:?xt=urn:btih:2F990487A2D50E0421AA8BDA6E1847851A993FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:721844BD025A491BB567393D2869580A6240A26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:238AFD8F7055D2EBE9AD9BFA1CF28E8247949D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F3C3C66CC7E3C1D643E7E85AE0B15DCC2CC9729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ RuPaul - Essential Christmas (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, 
 ```bash
 magnet:?xt=urn:btih:6AE5BC3FFA3D1B6DF11AD95E910EF6A29CF9634E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:3CB686897F6DF324451AC533DDEED06DAE2F0C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:881D4486AF6A5E1EF1522FA858ABDC01F7D8ED81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87CAFF233F99985C76D73F6F7239BB65B0EE929D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

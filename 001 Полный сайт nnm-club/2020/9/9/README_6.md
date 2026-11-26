@@ -18,8 +18,7 @@ Babymetal - Legend – Metal Galaxy 2-CD: Day-1, Day-2 (2020) [FLAC|Lossless|WEB
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (cs:6544/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D5BFB8D9535798F7B3C94E07265C257AF41103EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Adobe Photoshop 2020 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:BB96067A21BA2A657DC1E4CFF69F3CC19E64668B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hellsing Ultimate / Хеллсинг OVA (2006, 10 эп.) DVDRip 480p raw
 ```bash
 magnet:?xt=urn:btih:B8C46867966D3BC9AD9978C99B912F0B88D3047A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

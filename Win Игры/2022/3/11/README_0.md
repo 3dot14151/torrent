@@ -19,8 +19,7 @@ Submerged: Hidden Depths — это мирное приключение-иссл
 ```bash
 magnet:?xt=urn:btih:E6860B8F229BB20168294A48D2BCEA3D7E772815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

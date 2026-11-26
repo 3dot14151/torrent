@@ -19,8 +19,7 @@ Apartment 666 — цикличный инди-хоррор по мотивам P
 ```bash
 magnet:?xt=urn:btih:A6D3C7072088E9A83C7F8AF011446B2A73B0C2F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

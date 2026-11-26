@@ -19,8 +19,7 @@ Deer Hunter: Reloaded — это симулятор охоты от первог
 ```bash
 magnet:?xt=urn:btih:CD1049529EA97CE6E688D7DFC35E7F22AA0BEEA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil 6 (2013) [Ru/En] (1.0.6.165/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E23BF3BAC40890B306F7837F789DB80DABB4C7EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

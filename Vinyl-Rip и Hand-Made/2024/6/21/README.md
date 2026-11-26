@@ -22,8 +22,7 @@ Anthrax — американская метал-группа, играющая �
 ```bash
 magnet:?xt=urn:btih:66C8D96A2A4136E21CFCA3EB687AF621513C0360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

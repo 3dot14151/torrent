@@ -22,8 +22,7 @@ Karelian Warcry - Veripellot (2026) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, 
 ```bash
 magnet:?xt=urn:btih:D22483187EFB096B10DF827A61402EB0D26054F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

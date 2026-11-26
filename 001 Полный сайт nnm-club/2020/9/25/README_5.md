@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B499064CE0E29D730B2F4A0D835C8853E9586DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Gekijouban Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the
 ```bash
 magnet:?xt=urn:btih:401061B940E80134B3435C3392A750904910A5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Serious Sam Double D - это аркадный платформер про пр�
 ```bash
 magnet:?xt=urn:btih:4ABA11668E56901C79F31549F410ABF3EEB215C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F9302610B597BDA97A3A020D1888EDBB05C5791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Sword Art Online: Alicization - War of Underworld / Мастера меча он
 ```bash
 magnet:?xt=urn:btih:E2C5086C27A7328331CA3BF38A16459AAD3D33DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Resident Evil 7 Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Scene Rune [Gold Editi
 ```bash
 magnet:?xt=urn:btih:E836AE834CD13B08D86642AD5705E48450B2D92A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil 7 Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Repack Let'sРlay [Gol
 ```bash
 magnet:?xt=urn:btih:8C453ADCBE84EEABFF1F38FE3B2D27EB751DED0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:87E19DDC1A3B3281C56DD8EBB4C9DC09D8E59680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Repack FitGirl [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:518A2BB39DF08BB00B8C1C354FBB227C4B6F3A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Repack Let'sРlay [Deluxe E
 ```bash
 magnet:?xt=urn:btih:FCB3B9E7E5B925A66880321C6FD2F72B4ACB9501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Scene Rune
 ```bash
 magnet:?xt=urn:btih:09AE8D9DD7677A1D39B8DC41EF5C59118F568BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Meltopia - это минималистичная игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:91E8121B0EF1AC553AF876579C6811B03953ADBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Duriano - это динамичный roguelite-экшен с видом све�
 ```bash
 magnet:?xt=urn:btih:6CDDEDCC174548D4EC30FE5E6F760467DAF44A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Need for Speed Hot Pursuit - это ваш пропуск в новый откр
 ```bash
 magnet:?xt=urn:btih:5461DBF408C4BDAA7879D5D22F366953EE19FE30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dead Rising 4 (2017) [Ru/En] (1.0 upd4/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D9632670CA82E0E7F7F82F9B50AD63D25191E555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Dead Rising 3 Apocalypse Edition включает в себя лучшую иг�
 ```bash
 magnet:?xt=urn:btih:F9201543F3F778623F32FD716585D98CCB683392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Gecko Gods (2026) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:24B5CECFE13027E84D54B844DF64B17AE96A0A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

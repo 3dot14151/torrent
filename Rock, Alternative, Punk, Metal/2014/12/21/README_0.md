@@ -25,8 +25,7 @@ Zero Hour - Specs Of Pictures Burnt Beyond (2006) [APE|Lossless]<Progressive Met
 ```bash
 magnet:?xt=urn:btih:2491F5A3239FB2869359791915E1E98F45E41872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Zero Hour - Dark Deceiver (2008) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:DD8BFABF0E7ADD29FE99150A92317B0A2185B72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Zero Hour - Metamorphosis (2003) [APE|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:05C2AA75FD91C4AA800CCA9E539651119F4EC8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Zillion - Zillion (2004) Japan [FLAC|Lossless]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:559E17F9E8A9E49EABFCE837BF863414E9BC53FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Zimmers Hole - Bound By Fire (1997) [FLAC|Lossless]<Parodic Metal / Speed Metal 
 ```bash
 magnet:?xt=urn:btih:068940D23358457D360B39299331C9FAE476CAE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87302FACE9149E2536ECEA629F8B01A5AE98EB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Evil Invaders - Evil Invaders (2013) EP [MP3|320 кб/с]<Thrash metal, Speed me
 ```bash
 magnet:?xt=urn:btih:A43FA4D19A18CF150F8434895B35FE32716483CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F8223E2A6C61DFA5D5EAFECD640E438701B0879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

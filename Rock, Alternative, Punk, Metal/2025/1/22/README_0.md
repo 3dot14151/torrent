@@ -22,8 +22,7 @@ Vessel - Another Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AAE684ABDB1B264225363B61CB303C4B061A6746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Riot V - Mean Streets (2024) 2xCD, Japanese Edition, Limited Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:1F65C0EE322979481FE06532F390C71111279094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

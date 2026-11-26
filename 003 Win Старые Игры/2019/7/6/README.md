@@ -19,8 +19,7 @@ I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:580C3C7C2C369AAD222C3C23937CE4887A7C274C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

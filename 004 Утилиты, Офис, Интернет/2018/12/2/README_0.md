@@ -19,8 +19,7 @@ Spybot Anti-Beacon for Windows 10 1.6 [En]
 ```bash
 magnet:?xt=urn:btih:FB29E6EE193DCD440AFAEDD6B3D5B8FCF73C3F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

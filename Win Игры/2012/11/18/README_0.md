@@ -19,8 +19,7 @@ Haunted Legends 3: The Undertaker Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:88C012AB6380C9FF1ED21EC9F750630B4B0221D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brink of Consciousness 2: The Lonely Hearts Murders Collector's Edition [En] (P)
 ```bash
 magnet:?xt=urn:btih:B003994E3B1FBDC56E05FCBE7E4A6284E2AB7DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Exorcist III: Inception of Darkness / Экзорцист 3: У истоков з
 ```bash
 magnet:?xt=urn:btih:872F2C3C8C162F971D4C54E18D5625912DF2D4E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Haunted Legends 3: The Undertaker Collector's Edition / Ожившие леге�
 ```bash
 magnet:?xt=urn:btih:0C2F25C8DE12B985079463129EB44D761A86931E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Charm Tale Quest / Зачарованная. Тайный Договор [Multi1
 ```bash
 magnet:?xt=urn:btih:F03C72665E170F182915778D557A6CCD500900B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ FLY’N — это яркий и красочный платформер, в к�
 ```bash
 magnet:?xt=urn:btih:7678683662C1132EEE22B3F28CDBD59CDE52FE4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Bionic Commando [Ru/En/Multi] (RePack) 1988 - 2009 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A3289C34F47834A9DFE6B16376FBA00A320535FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Men of War: Assault Squad. Game of the Year Edition / В тылу врага 2: 
 ```bash
 magnet:?xt=urn:btih:DE0338695A1D0BE6863D3EF87B97B2FE5B2C2ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Final Fantasy VII – это культовая jRPG, первая игра из
 ```bash
 magnet:?xt=urn:btih:8D7957208885C1ACE0EC59AB6D43FB149D5D0EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Rise of Legends, помимо всего прочего, содержит реж
 ```bash
 magnet:?xt=urn:btih:CD27A9CBA7F3FBF3D191296A1F2F59F927CE2E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Serious Sam 3: BFE — это великолепное возвращение в
 ```bash
 magnet:?xt=urn:btih:DC31A18E2143A6393340AD73AC595A15CC764937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

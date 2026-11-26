@@ -19,8 +19,7 @@ Hidden Expedition 18: Neptunes Gift (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:2D6277141BEAC90FA3084759FCB818A7CD1F79EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chimeras 7: New Rebellion / Химеры. Козни зла (2018) [Ru] (1.0) Un
 ```bash
 magnet:?xt=urn:btih:A916BDD2CFE2C144792436DDD69E0A037AE1888B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:E7BC3C888E7BF9F6F0A547904FA60FDB17DABBA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SOULCALIBUR VI / SOULCALIBUR 6 (2018) [Ru/Multi] (01.10.01/dlc) Repack Other s [
 ```bash
 magnet:?xt=urn:btih:7FAB89FD918BA06E85431621B8CE6765192F4C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lucius III (2018) [Ru/Multi] (1.190118112744.a) License CODEX
 ```bash
 magnet:?xt=urn:btih:F8BC7047648DF7DA1EA08C51F72C4B729FEA9804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

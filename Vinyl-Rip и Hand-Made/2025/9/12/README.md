@@ -22,8 +22,7 @@ Antimatter — группа, образованная в 1998 году бывш�
 ```bash
 magnet:?xt=urn:btih:753D371EC243A53626F0D8851ACDA89BAC6BB9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Hypermass - метал-группа из Норвегии, образована 
 ```bash
 magnet:?xt=urn:btih:329A08C375C03CEF7AA5D5BDB9528FC389639EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

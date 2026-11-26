@@ -19,8 +19,7 @@ Pro мозг (2010) [PDF]
 ```bash
 magnet:?xt=urn:btih:328C35CCF2DD097702AEBDC62E56D6E5085A6D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19643568214295CB7D347A6E1B276A6689089399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

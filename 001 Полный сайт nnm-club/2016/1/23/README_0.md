@@ -21,8 +21,7 @@ Anna Farrow - Days & Moods (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:E31AA0B1827275D129FF1CA37D73D5F1FE1AAD70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Kroda - Навiй Схрон (2015) [MP3|320 кб/с] <Ambient, Black Metal, Dar
 ```bash
 magnet:?xt=urn:btih:5D2AEB80231B7E61FA09EA525CFF3C95C6CDE01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Forecast Bar - точный прогноз погоды  Forecast.io  прямо
 ```bash
 magnet:?xt=urn:btih:182D5F81C9D53ACC1641F4FDFBEF80F08DA2B97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1974AF27F6DA47F75800A45400796F9C434FBDBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - I Grandi Successi Degli Anni 90 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:59B74C2E2FCC9B90B4C09F63589572B8AAAE11FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Magni Animi Viri - Heroes Temporis (2006) World Edition, 2016, Association Heroe
 ```bash
 magnet:?xt=urn:btih:434563C2908C0748F74B8D86D8C13DF724CD366C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:089D1937E30E036207A5338190449B462126B428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C9A74F5DB4232A6C9ECCE8B5A86843BD374DDCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Borknagar - Winter Thrice (2016) [FLAC|Lossless|WEB-DL] <Viking, Black, Folk Met
 ```bash
 magnet:?xt=urn:btih:5CF1119CBB5C98140CD6FCF3E6280E64C8A370E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DF6DA41C6A9A6D393C4892D067CB74AF04C90AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Galileo Dreams: Best Of 2015 (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:5102C993E8CED39E4FBBB5812693F54AFD3B7754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Necronomicon - Pathfinder... Between Heaven and Hell (2015) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:7F33FFEB1EBED549F5CDEDC3CFC4DD9B959802C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - LOVERS Dance Cocktail (2015) [MP3|320 кб/с] <Dance, Deep House, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:2F7CC3539112E6228F33DD1EB2DF868255DCD911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Al Jawala - Hypnophonic (2016) [FLAC|Lossless|WEB-DL|tracks] <World Fusion, Jazz
 ```bash
 magnet:?xt=urn:btih:5E2FF7524BA4530188BE4E1C068D04CBE63DE005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76669E2329F88E845D5FF95F068670CC6CAE0B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Konstantin Klashtorni - Groove Jazz N Chill #4 (2015) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:43EADE349BC501E2477C320744410584D90ED8ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Borknagar - Winter Thrice (2016) [MP3|320 кб/с] <Viking Metal, Progressive Bl
 ```bash
 magnet:?xt=urn:btih:F14AA674D7302FBC3D455BC2F7C965058BF8BBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78373E68C03C30E108CA2F2EDE692A1630D48A3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Watermarker - профессиональный инструмент для ус�
 ```bash
 magnet:?xt=urn:btih:6FA0E0EE557E3D035897082ECB879045308818F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E324B65A270609DF6009FF800E676899FCD6C34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C68DD5E652E0286C0446D86ACFF68CB1C80B1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B06D0C5DB8A144AC53DBDB6D8AE4929AE5E9CE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ OMI - Me 4 U (2015) [MP3|320 кб/с] <Dance, Pop, Reggae, R&B>
 ```bash
 magnet:?xt=urn:btih:F363C7974CC243BC58E87A7BE5EE9BB2C23FB9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ VA - Dance Max 2003/1 (2003) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hou
 ```bash
 magnet:?xt=urn:btih:EB3DF797FCB603FCB3BCF9D7595AEE86FFE1791B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5077FD4102F83B404F69479D4DD47D8AD65A14A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Gary Girouard - The Naked Piano: Transitions (2016) [MP3|320 кб/с] <New Age, 
 ```bash
 magnet:?xt=urn:btih:23270490FB963037BF46B430AA99AE411E953354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

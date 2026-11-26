@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7DCA3A292F5930E35633B19E3CEED38C10271508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Super Bob - Killer (2015) [FLAC|Lossless]<Alternative Rock | Rapcore | Crossover
 ```bash
 magnet:?xt=urn:btih:B104D71BCE54BFE017A4CA61DB3AF6A4D8D188FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD04BF9A5A0234D3662B4392C78FD51526C85ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Dropbox 3.6.5 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:734666FF23B2E4A096A3A4866B3499DC8D0FAF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ The Kentucky Headhunters with Johnnie Johnson - Meet Me In Bluesland (2015) [MP3
 ```bash
 magnet:?xt=urn:btih:6F8C7BDB17C38A8408E33EBF61B51F2E2F8038A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Off the Record 4: Liberty Stone (2015) [En] Unofficial [Collector’s Edition / 
 ```bash
 magnet:?xt=urn:btih:0247586340B3D333ABBC6EB7887FB349549268F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7860BADFC3176659646731EB0927E70C7201EDB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ No More Pain - The Post Human Condition (2014) [FLAC|image+.cue]<Progressive Roc
 ```bash
 magnet:?xt=urn:btih:F3DECF93261F1FDB910862FD85507B85F7B74596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04DC35361745A0A96CDA6ACA02CC8B0AEB8B135F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ POS.:2 - Now! (2015) [MP3|320 кб/с]<Electropop, Synthpop>
 ```bash
 magnet:?xt=urn:btih:91B95E67ACB58B8FDAB6E4D45888909BC3C8A1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E81532A9619F8B1E36D6B9E1FEDC1F15BEE5C091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AE3E0C1CEA8FEEF2B8982A3D90FB29068FCB52F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F004E2605AD20729234967E8FBC80C28F488E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Coal Chamber - Rivals (2015) [FLAC|Lossless|WEB-DL]<Nu Metal>
 ```bash
 magnet:?xt=urn:btih:BFE74CE20154EB44B5A84573EEED4F99AB886A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B973CF97A7BBA82CF27FFE6585535CE9B0605E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CE0FB3DEA769CBBF3BA1115693B1BC6289241D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66B9F9B68CD983492151CD2C51605B7EF08E4FDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ Jeff Beck - Performing This Week... Live At Ronnie Scott's (2015) Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:1A8FFFF970FA091FAC1B3ED62E10C38057C7335E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2B0AEFAD05D4A59A11EFF5E03884BA2A0F54271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ VA - Like You (Compiled by Alex Vilator) (2015) [FLAC|Lossless]<Modern Classical
 ```bash
 magnet:?xt=urn:btih:567F4E4E4E9AACE4D81058E26A3C2774E9C1064D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A64AE51EFECA824AB62420C88F58531745EFC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Cherry Poppin' Daddies - Please Return The Evening (2014) [FLAC|image+.cue]<Voca
 ```bash
 magnet:?xt=urn:btih:ACC908887F5FE6028E6CC97F931120FCB0274B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ TapinRadio — простой и достаточно надежный ради�
 ```bash
 magnet:?xt=urn:btih:70470D257F1C1AE6880B7A65F666A6AD624BC42D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ QQ Browser 9.0 версии - это современный и удобный б
 ```bash
 magnet:?xt=urn:btih:B54A0E7E9FC82EF71D1825923952D860B33CBCCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E8F6785A74C1BFEF99BF4DFC37911A70D5A148A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24D270F183EF79BB265F3E7AAA69042773826FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

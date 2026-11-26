@@ -20,8 +20,7 @@ Crusader Kings 2 [Ru/En] (RePack/1.05e) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D4004645071869987F625F503A2E11103EC42425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Bluecoats: North vs South - это пошаговая стратегия, к
 ```bash
 magnet:?xt=urn:btih:6DB1DC210E8FEB5DADAC457B9BB7004AFB78B8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Sandman / Истории шёпотом: Песочный человек (L) [Ru
 ```bash
 magnet:?xt=urn:btih:A664D245EE77B3CE0045970B863F8F9C5E9F30F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Shadows on the Vatican – Act 1: Greed (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:52882BE9B45663B2BA4C245A852C5CF5F2CAD573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

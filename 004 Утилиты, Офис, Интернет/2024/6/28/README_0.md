@@ -21,8 +21,7 @@ PortableApps.com Platform - это функциональная платформ
 ```bash
 magnet:?xt=urn:btih:C864A0A49E2F77B4A118E173367E821F66FFE19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Recuva - небольшая, но весьма эффективная утили
 ```bash
 magnet:?xt=urn:btih:1C352CADA5CC294FB621396F34AB47E8672C7A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 ```bash
 magnet:?xt=urn:btih:B2E94AD2B35BD5385665F77FFE693C9FA66068CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

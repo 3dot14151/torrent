@@ -19,8 +19,7 @@ James Reinders, Ben Ashbaugh | Data Parallel C++, 2nd Edition (2023) [PDF, EPUB]
 ```bash
 magnet:?xt=urn:btih:5800FE1F66D6348AD99868F0E0873B4B301CD02D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maximiliano Contieri | Clean Code Cookbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A8DD1B131F0E56C939FF51B984F21097962AE599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

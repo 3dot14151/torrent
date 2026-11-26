@@ -22,8 +22,7 @@ Hypertoad - God please destroy humanity (2016) ЕР [MP3|320 Kbps] <Instrumental
 ```bash
 magnet:?xt=urn:btih:8C89FCD7878B867967BF530EFA3312897DC3D417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ E1NS - Вечная мерзлота (2016) [MP3|320 Kbps] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:99AA6DF3D0948DDE62FEDD42B511891C3CC1BC09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chris Isaak - Christmas (2004) Target Exclusive Limited Edition [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:8299BFD59823390A300A2892C1CDEFA9341F8552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Elvis Presley - Ultimate Christmas (2015) Walmart Limited Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:A804A8718F31F106A4895916637CE12483CDCBF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Billy Idol - Happy Holidays (2006) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock
 ```bash
 magnet:?xt=urn:btih:4675A9ADE34A0BC315F5CE7EA35E46338FBFC94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6E806C236D5F9D82975F01687E33D0E61D1E6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ LP (Laura Pergolizzi) - Forever For Now (2014) [MP3|320 Kbps] <Indie Rock, Alter
 ```bash
 magnet:?xt=urn:btih:92043A44FA37E1323F3F956F27790BF815E8524E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1840B99ADF91409E9040D1ED32FD05C5C3319828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

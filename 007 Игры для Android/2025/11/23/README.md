@@ -19,8 +19,7 @@ WordHane сочетает в себе словесные игры в угада�
 ```bash
 magnet:?xt=urn:btih:C1371FEC6814AADB5E1531BBB33848E27D7FC4E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Exorcist III: Inception of Darkness / Экзорцист III: Пробужден
 ```bash
 magnet:?xt=urn:btih:C3C9A4EC49429A2858BC16900D40295E8225AB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ I Am Alive [Ru] (RePack/1.0) 2012 | R.G. Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

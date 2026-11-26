@@ -27,8 +27,7 @@ VA - Above & Beyond: Anjunabeats Volume 10 (Unmixed & DJ Ready) (2014) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:830D34B93065385310F40487ADA29B35295DEDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9541F0BF2BA06CCC3C599F79FB1E670CABF38D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - German TOP 100 Single Charts (06.01.2014) [MP3|256 кб/с]<Club, Dance, Po
 ```bash
 magnet:?xt=urn:btih:D53631DB5ED0DED176E1E366E37D75CCB652EB5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6872867833141E08E4BDA07A701A8BF0AFBD6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ SynWrite Editor - мощный текстовый редактор для про
 ```bash
 magnet:?xt=urn:btih:7921F0CB85114504FF72F8A2C7FBA30CC699FC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA7DD8EF7B14F55FB0BF2A8EF0803C7114BC77E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12772FBD41736F33784E800B88CB4820F0DE75E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:839AD190C52ADE180937E4C11B32323B954F7BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EFF5019588892DA4E172850EC1645829DE69698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:355C359FEA6FED94388EDB3D658F247F0A415142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Discovery: Выжить вдвоем (Двойное Выживание) (Сез
 ```bash
 magnet:?xt=urn:btih:67ABA67D760DCB70B4E2DE42693D37D2B8FEA70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Together для Mac OS - Программа для хранения и орга�
 ```bash
 magnet:?xt=urn:btih:64C1DED0A87A0FB966ED819E068E80884A7A11F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ David Arkenstone - Gentle Rain (2006) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:15582BCCF7B24D355FD766CC093E8179640EE89B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:419729C0284D0FA283065170C4BC08899C313ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:4774B4D03DD24E6A09BEA7CD602171759487C640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ The Beegie Adair Trio - The Nat King Cole Collection (1998) [FLAC|Lossless]<Pian
 ```bash
 magnet:?xt=urn:btih:C5B7E9CA3DD2C791FE34C21E004F4A9D631F9EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E949A2672A8EA2C53E28B0BAA6B8E0F04B9FB839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Seventh Key - I Will Survive (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:462F2EDBCD5FA150BEEBC8543401A1183ABA097B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ Tasteful House - You and I. (2011) HDTV [1080p]
 ```bash
 magnet:?xt=urn:btih:280260BF99CDDB69A8B18D4D5B717741D8EABED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ VA - Sensual Dreams (2013)bootleg [FLAC|Lossless|WEB-DL]<Chillout, Downtempo, Am
 ```bash
 magnet:?xt=urn:btih:32D2B8DBEE182E55AB9F0B0FBF231828F445A56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ VA - GOA X - volume 16 (2013) [FLAC|Lossless]<Psy-Prog /Psychedelic /Full On>
 ```bash
 magnet:?xt=urn:btih:2A0E0768F86CF0FE4F4AFC3083E8D5A0A317A510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ Haunted Train: Spirits of Charon (2014) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:C6D630754376702353198D640F3CEC3642DCFC9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5B4E000EB4730B80A2C49CBB16452DED9A67A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4760009F9BEDA52987866759A1BD803D7530C7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Nightrage — музыкальная группа, играющая мелоди
 ```bash
 magnet:?xt=urn:btih:63355DB2D842FCCB4CEED27C14C56504962D683D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Saint Asonia (стилизация в оригинале SΔINT ΔSONIΔ) — к
 ```bash
 magnet:?xt=urn:btih:1845FB9BDA6D0DC64134E27DA18CBDB1F1170EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Ozzy Osbourne - Studio Albums (14 releases) (1980-2022) hand made [restored, dec
 ```bash
 magnet:?xt=urn:btih:4E3479F1C0AA90019C6C2C0EAA0F7D384EDD9A3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

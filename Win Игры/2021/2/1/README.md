@@ -19,8 +19,7 @@ Spirit Legends 4: Finding Balance / Легенды Духов 4: Поиск га
 ```bash
 magnet:?xt=urn:btih:92E8ECA85BAD33B73B6C4DECE563A3ADBAF6045A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

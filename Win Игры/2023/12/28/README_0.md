@@ -19,8 +19,7 @@ Strayed Lights — это захватывающее экшен-приключе
 ```bash
 magnet:?xt=urn:btih:D1264D38A0BF128BAD81FB6F253B11911F3A64E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeons of Sundaria – ролевая кооперативная видеои�
 ```bash
 magnet:?xt=urn:btih:8B4FAF28F875D2A8AD6AE72ED17E73C5F353F53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Christmas Fables 2: The Magic Snowflake / Рождественские небы�
 ```bash
 magnet:?xt=urn:btih:01ECE1E23F89B7E06AC7030A4F58B9F1BFF66B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

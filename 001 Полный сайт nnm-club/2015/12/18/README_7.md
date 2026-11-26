@@ -19,8 +19,7 @@ Microsoft снова принуждает пользователей обнов�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SSDlife Pro - диагностическая утилита для твердо�
 ```bash
 magnet:?xt=urn:btih:B39790823A9D8CB49C8CBFAE8BC76BF0ED272283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:127FD7CEAAF1470877D081B4FD9B79E6657DFB20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dying Light - экшн-игра на выживание от первого ли
 ```bash
 magnet:?xt=urn:btih:73DF72F24346A495A3C74F136C1913E50FAD9C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Mac OS X El Capitan 10.11.2 VMware Image [AMD] [Multi]
 ```bash
 magnet:?xt=urn:btih:F55C7C8822A6156CAEFCABC27C5918E2623F5C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Lumion - программа по визуализации (рендеринга)
 ```bash
 magnet:?xt=urn:btih:4C2894EF559F2739A2BA0E66B0798D562AB3C8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F93E82EFF2B1DBE6E11CB5CFBD680C058B046493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D18D78BA9FB8036E9411FB3A9E5DC5E7241C178F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ The Sims 4 (2014) [Ru/En] (1.13.104.1010/dlc) Repack R.G. Механики [Delu
 ```bash
 magnet:?xt=urn:btih:853E82E311ADB65E09E24D1A927CC10BABB8BADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

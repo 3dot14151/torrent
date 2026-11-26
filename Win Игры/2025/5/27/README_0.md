@@ -19,8 +19,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8F398EAAAA473BAB1F4C4F2586024F84321E399A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:BB78C7AE876325664A7F4F0FD3474B3DE50EE493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ King Arthur: Legion IX - это пошаговая RPG-стратегия, де�
 ```bash
 magnet:?xt=urn:btih:B97BC737E17F2ADAE44BA121014AACA844414253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 ```bash
 magnet:?xt=urn:btih:08923B57E9E4337E79325C630228C9139DC7FF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C9FC39F40BED96BCC5AD9A2B11737B94C75FAF9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Into the Breach - компьютерная игра в жанре пошагов
 ```bash
 magnet:?xt=urn:btih:EC152EA6D2305DFE4453175711B17C66DF0D3DEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:3B851B4FEE4F628A8524A6B8B90A8511AFBAA9E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

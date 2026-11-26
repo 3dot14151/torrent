@@ -19,8 +19,7 @@ Mechajammer - ролевая игра с изометрическим видом
 ```bash
 magnet:?xt=urn:btih:6D11DE2359ADC58EFD7E498259F724C5BC4AE572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

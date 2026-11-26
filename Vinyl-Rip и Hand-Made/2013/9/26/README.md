@@ -28,8 +28,7 @@ B4.  Say You'll Be Mine  :: 03:46(   Читать дальше...   )Жанр: S
 ```bash
 magnet:?xt=urn:btih:0AAE4EE337668AF9C301EEC7484E610CFBD8C1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B5.  Queen Of Hearts (Remix)  :: 04:14Жанр: Synth-pop, EurodanceФормат
 ```bash
 magnet:?xt=urn:btih:1B2F744B98DD788789CB7E2ADEBEA497D0710362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

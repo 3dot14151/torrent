@@ -22,8 +22,7 @@ A4 Come Rain Or Come Shine(   Читать дальше...   )Жанр: Jazz, Po
 ```bash
 magnet:?xt=urn:btih:D20C9B04859688007F5FDAABF159410BB70C1B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 A Part Of Me(   Читать дальше...   )Жанр: Pop, Folk, Country�
 ```bash
 magnet:?xt=urn:btih:5FE9B7023C793FA598D6A26185EBFB45C57BFF84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

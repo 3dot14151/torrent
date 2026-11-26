@@ -21,8 +21,7 @@ Disney's 'Ultimate Ride' Roller Coaster [Ru] (P) 2001
 ```bash
 magnet:?xt=urn:btih:3F6037CD3EB5F29DE5BA5CC62A9B3B65D0953A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

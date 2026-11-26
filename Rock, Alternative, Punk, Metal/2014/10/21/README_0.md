@@ -25,8 +25,7 @@ Antreib - 2 Альбома (2013-2014) [MP3|320 кб/с]<Punk Rock, Melodic Hard
 ```bash
 magnet:?xt=urn:btih:441F6B979B759140305D4C464A4006699B10F48C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B2C17573CC564670C78EBF676D8EA323B264983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Johnny Hunkins - Down In Flames (2014) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F01585E6393E90A816BEA8EFDC5BE104156DA217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Bill Haley & The Comets - The Very Best Of (1999) [APE|Lossless]<Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:07B78D83255061A63F7A6A517B0DF601E1712D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ U.K. - U.K. (1978) remaster /2014, Universal Music/[FLAC|Lossless]<Progressive R
 ```bash
 magnet:?xt=urn:btih:33ED415CA4EFBCF7D53FEA932483809AA00D77A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Buddy Holly & The Crickets - The ''Chirping'' Crickets (2004) [FLAC|Lossless]<Ro
 ```bash
 magnet:?xt=urn:btih:A8316807A17FD567A0F7106889794968BC8CCF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Infornal Fuckъ - Манёвры Северной Алкодивизии (2014) 
 ```bash
 magnet:?xt=urn:btih:087EAD371590D3D05F778792178D4AC05EE4D968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ I Spell It Nature - 3 Альбома (2010-2014) [MP3|320 кб/с]<Post Rock, In
 ```bash
 magnet:?xt=urn:btih:95902EB2ECE8F437500FF55CFAAF3A60D0EE1B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E51552D431FCEF3186C4D55AFFA20F214A09B575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

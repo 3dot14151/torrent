@@ -18,8 +18,7 @@ ITVDN | SQL Практикум (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:9511D93FCBD3BCB27EFB10BFF9C5254C7EFBEEED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Windows Server - это проверенная масштабируемая пл
 ```bash
 magnet:?xt=urn:btih:CA17A793755C1F91C61E5D91B146CD94ABEA0023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1653A589D1DF9EDF03F6659733261147877B0AB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ VA - Дискотека 80-90 годов по-новому C.C.Catch ( Зару�
 ```bash
 magnet:?xt=urn:btih:BB46264350CDFCB2DD16B269F90C3ACE0AA3A23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Dolby Headphone – реалистичное, пространственное 
 ```bash
 magnet:?xt=urn:btih:D7BE2EF9BF1731BC99F41DF61ECD6C7C3BAE9015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:790B32F886060B78D07D781F7AE0549693CBDC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4552B771F1AA1F6ADFA9CB47F30469707F1A1335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ ITVDN | Основы использования Git (2016) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:764506F7DB6E31A1574EF6C2CDBF29CC3C70F68E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ DARK SOULS™ III продолжит испытывать игроков на п
 ```bash
 magnet:?xt=urn:btih:20F20A3F4621E74F531747821BAF8442DA99AB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Stardew Valley (2016) [En] (1.0.7) Repack NIK220V
 ```bash
 magnet:?xt=urn:btih:41616ED42C0F214A00E914DCCEF0122C844145C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Euro Truck Simulator 2 дарит вам опыт управления самы�
 ```bash
 magnet:?xt=urn:btih:E7F2E950DE0D8C03EEBD1FC99FD4DB45113235D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:902E4F4B162E113B158F49BA363F49D3310C750A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

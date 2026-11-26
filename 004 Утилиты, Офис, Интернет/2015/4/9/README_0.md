@@ -19,8 +19,7 @@ Aid4Mail это быстрый и очень точный программа п�
 ```bash
 magnet:?xt=urn:btih:3993600ACB78170278B0752425AF04DCFC80FB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

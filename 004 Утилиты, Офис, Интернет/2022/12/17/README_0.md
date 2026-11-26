@@ -19,8 +19,7 @@ ChromePass – небольшая программа, которая позво�
 ```bash
 magnet:?xt=urn:btih:3014F4E060E1AB5EF447C207CD21A1BC93736E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Alan Wake (2012) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:EFCA723A926C8DEEFF215E4F0F257641FED68220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Defender of the Crown: The Legend Returns (2026) [Ru/Multi] (1.0.6) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:1CB8A83969D7C05E127E67FD6DCB709F08C6E0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Edge of Destruction (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:407DEC7EEBF7C9EEF77765D6B78684BAC5A13033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Defender of the Crown: The Legend Returns (2026) [Ru/Multi] (1.0.6.1) License GO
 ```bash
 magnet:?xt=urn:btih:AF09AA2531426A4DEAFC936612CD569A706F396C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Mortillery - Shapeshifter (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E8FF1CDC3271ACE38F041E150DE1C939FDB5B76D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Them - Sweet Hollow (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7266AD173482E35950730DE52FDFF6D8CD4E44C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ All Them Witches - Sleeping Through the War (2017) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:D830C8694C473A46E4502045727961F3775C2C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Overkill - The Grinding Wheel (2017) Limited Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:49B6D087A56E883BC938FEE9952BAF55DDF4687A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Battle Beast - Bringer of Pain (2017) Limited Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:42472ADE15F64849960D729AE9CC3EFA5951C7F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F55656EC5AE65B3E3CC51D2A2D127BED6837A789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Battle Beast - Bringer of Pain (2017) Limited Edition [MP3|320 Kbps] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:F8177B31B0115DB68E21E559F82D05187409FE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

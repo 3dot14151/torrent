@@ -19,8 +19,7 @@ Don't Starve: Shipwrecked — вторая часть инди-игры Don't St
 ```bash
 magnet:?xt=urn:btih:2BDE68300C921BBB894E9202EF22DF4AC69057B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

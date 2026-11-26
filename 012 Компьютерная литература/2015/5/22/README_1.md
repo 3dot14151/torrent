@@ -21,8 +21,7 @@ John Torjo / Ехн Торе | Сетевое программирование B
 ```bash
 magnet:?xt=urn:btih:A9D66613A3FD9BA90AA6B474D5BA554E9CE618B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

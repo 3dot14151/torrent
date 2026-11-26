@@ -21,8 +21,7 @@ Reperfection - Volume 1 [En] (L/Demo) 2012
 ```bash
 magnet:?xt=urn:btih:AAF3E955934C85B19164F0618B11F294DDD9C943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Cat Lady [En] (L/1.1 Demo) 2012
 ```bash
 magnet:?xt=urn:btih:63044AF77E1EF7EF2F33DF866B361F8CB110099C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Fibrillation [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:6104A5F137E05E77E7A471E0DC8779F21A4104BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Rock of Ages [Ru/En/Multi7] (Steam-Rip/1.10c) 2011 | R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:AD1D6C513212BA0178BC87643EA6A28575B3B693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Galaxy on Fire 2 Full HD [Ru/En/Multi11] (Steam-Rip/1.0.3) 2012 | R.G. Игро�
 ```bash
 magnet:?xt=urn:btih:F656FB631DE2C18149F27FB77465FDA12548D820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Air Conflicts: Pacific Carriers / Асы Тихого океана [Ru/En/Multi6
 ```bash
 magnet:?xt=urn:btih:BA69C26A660484CA11798A623478B271A85E3997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ The Walking Dead: The Game 5 Эпизодов (Русификатор/1.41) [Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Oddworld: Stranger’s Wrath HD [Ru/Multi9] (RePack/1.5) 2012 | R.G ReCoding
 ```bash
 magnet:?xt=urn:btih:20F6B0FD74BDD2506CC97F1CB1FB4759575C4A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Waking Mars [En] (L) 2012 | -JAGUAR-
 ```bash
 magnet:?xt=urn:btih:E496CC8A4DFBF9D59DCBEA77147DE2BA34DCCFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

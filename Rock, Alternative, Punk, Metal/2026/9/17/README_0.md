@@ -22,8 +22,7 @@ Disk 1:
 ```bash
 magnet:?xt=urn:btih:86BB84686A2FE5CDD6F32DFFB8837C23038DC09F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Doro - Live (1993) Reissue, 2026, Rare Diamonds Productions, Special Edition [FL
 ```bash
 magnet:?xt=urn:btih:CC46C041886B9E16E106D41354B727C757F948B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mastodon - Marrow Deep (2026) [FLAC|Lossless|image + .cue] <Heavy Metal, Progres
 ```bash
 magnet:?xt=urn:btih:42F3CE82051FF5AB757FDD6B5A9A58FB7CBD00E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

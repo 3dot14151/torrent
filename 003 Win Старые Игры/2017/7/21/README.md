@@ -19,8 +19,7 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 ```bash
 magnet:?xt=urn:btih:AD57755F13E2FB83CBA068885201AEDE474C5C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

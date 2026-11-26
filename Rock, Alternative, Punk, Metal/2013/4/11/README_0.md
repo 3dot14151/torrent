@@ -24,8 +24,7 @@ Kokomo - Kokomo (2013) [MP3|320 кб/с]<Post-Metal, Instrumental, Shoegaze>
 ```bash
 magnet:?xt=urn:btih:2277555F7B32E58506237B43A344892BDF5A11BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Lavett - Find Your Purpose (2012) [MP3|320 кб/с]<Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:0F3612CFA3843604685B610AFA474A64DE9EC4AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Feared - Furor Incarnatus (2013) [MP3|320 кб/с]<Melodic Death / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5C0F6F2077B59F0FB2E62302CEF842BD7ADF7FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ For All Those Sleeping - Outspoken (2012) [MP3|320 кб/с]<Post-Hardcore, Elect
 ```bash
 magnet:?xt=urn:btih:EAD2437C4EBE1835A49D17657200A0FD3D9F69FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Deep Purple - All The Time In The World (2013) EP (iTunes Special Edition) [MP3|
 ```bash
 magnet:?xt=urn:btih:3375B2C127C20521B39EC0ABC587864C8704B37C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Discogs
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Amatory - 5 альбомов (2003-2010) Дискография [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ D3. Cabana Moon (6:12)Жанр: TranceПродолжительность: 00:59:
 ```bash
 magnet:?xt=urn:btih:39CD12CCF4B8F9D3E54EFBBCAC3B328A782B8E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

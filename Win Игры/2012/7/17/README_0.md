@@ -19,8 +19,7 @@ Grim Tales 3: The Wishes Collectors Edition / Страшные сказки 3: �
 ```bash
 magnet:?xt=urn:btih:14DE6D600137126A994B286A353EF137423EE13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Armageddon Riders (RePack) [Ru] 2009 | R.G. Games Warrior
 ```bash
 magnet:?xt=urn:btih:1D4381C49E500427D80E4E9F0B6707BF666A2B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

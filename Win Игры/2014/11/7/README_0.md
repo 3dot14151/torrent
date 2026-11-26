@@ -19,8 +19,7 @@ Myths of the World 5: Black Rose / Мифы народов мира 5: Черн�
 ```bash
 magnet:?xt=urn:btih:4AD5F3E45A183F012C69F455478C27776044C80D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Painkiller: Hell & Damnation (2012) [Ru/Multi] (build 20140415_3933/11dlc) Repac
 ```bash
 magnet:?xt=urn:btih:ACCEC46DAE873C97E69CBC97EF92EECCD3AFCC4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Violett - сказочный квест, который перенесет вс�
 ```bash
 magnet:?xt=urn:btih:64F5064EA919C9EDC79D7A0974E40199DF65B1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

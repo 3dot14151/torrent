@@ -19,8 +19,7 @@ Dark Romance 11: The Ethereal Gardens / Мрачная история 11: Воз
 ```bash
 magnet:?xt=urn:btih:52DDAB6526BD28E1FDB6D2DE2BB9EA848AA74BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

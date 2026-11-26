@@ -28,8 +28,7 @@ Paris - Paris (1975) [MP3|320 кб/с]<Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F98064C6D1267603B40C9CA7057FC6BAEBF61208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Morning Dew - Morning Dew (1971) [MP3|320 кб/с]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:0570C306211540D265DCC90E604349B6A32DD10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Silverhead - Silverhead (1972) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6B2421072C5155D1A322806A74DBEB8F569FF178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Rockpile - Seconds Of Pleasure (2004) [MP3|320 кб/с]<Classic Rock, Rock-n-Rol
 ```bash
 magnet:?xt=urn:btih:5E4F013760A74B8842E98A27BEE1925A7A91A445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Pink Fairies - Never Never Land (1971) [MP3|320 кб/с]<Hard Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:7E655F9CC87DA0CBFA7ADB40B09B402B0F13E5F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Riot - Rock City (1977) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D05013817D12EC836D5CFCAF326F6A987BB5F9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ JPT Scare Band - Sleeping Sickness (2001) [MP3|320 кб/с]<Hard Psychedelic Roc
 ```bash
 magnet:?xt=urn:btih:6790F00EE22EB4E7257012E2BA10B74D5E0CFFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Mud Rock (1974)
 ```bash
 magnet:?xt=urn:btih:70B7D2A6E0B6C726FAEC09FFB3DA1AC0A42F6327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Equilibrium - Erdentempel (2014) [MP3|320 кб/с]<Epic Metal, Folk Metal, Vikin
 ```bash
 magnet:?xt=urn:btih:627E2591FE7B5E91B81DA5B9C37C16486FF7AF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ Paul McCartney - Memory Almost Full (2007) Limited Deluxe Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:99BE2CD2CAC14245F1D95375EC75404F42A2C5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B130A2F9A2E6F2F8869F1E9F1C8C1CDE52FB1C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ Eric Clapton - Journeyman (1989) Remaster, Hybrid SACD /2014, Audio Fidelity/ [F
 ```bash
 magnet:?xt=urn:btih:3F87378236B317FFD54A7E57081F0AFB93F77AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +418,7 @@ Styx - Paradise Theater (1980) Remaster, Hybrid SACD /2014, Audio Fidelity/ [FLA
 ```bash
 magnet:?xt=urn:btih:3E7D99212EB39F118BA0A3E460F90F2B7C5CB799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +447,7 @@ Uriah Heep - Outsider (2014) [MP3|320 кб/с]<Classic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0182D095B41BF99C449A8F5533BB26AF295690A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +475,7 @@ Led Zeppelin - Led Zeppelin I - III (2014) 6CD, Super Deluxe Edition Box Set [FL
 ```bash
 magnet:?xt=urn:btih:B8F717A1053AEFA281D62E5CFE98202BF273A922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

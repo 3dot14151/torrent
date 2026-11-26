@@ -19,8 +19,7 @@ FIFA 12 - UEFA Euro 2012 (L) [Multi12/+] 2012
 ```bash
 magnet:?xt=urn:btih:0EF507F2E65606C16E1B4F81560901D59640D9A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Wreckage - финальная часть истории, которая бере
 ```bash
 magnet:?xt=urn:btih:4B99B2F6D7BEAD2EF4F4FF191AE46D492F45F049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Mr. Robot / Он - робот [Ru] (L) 2007
 ```bash
 magnet:?xt=urn:btih:44276AA56D3F24D4111B0DD58D19C12D509C8551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Orion: Dino Beatdown - кооперативный экшен от первого
 ```bash
 magnet:?xt=urn:btih:DB928B70EDC89A0D3902286E5630F88223963AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Cisco Aspire — это потрясающая обучающая игра, ос
 ```bash
 magnet:?xt=urn:btih:40604C31FDE23E800A1B15A1F6DCBDA0A5DF37D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E101F3A7170DFD098A1E29E738125BDCED5505C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Garden Defense / Огородные войны. Атака жуков (P) [Ru] 2
 ```bash
 magnet:?xt=urn:btih:369E714EAE0DE6DE5716E24086DDA1A1E96946EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88819692A604AD90D636AC201D539A46AF24994D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

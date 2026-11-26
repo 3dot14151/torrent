@@ -23,8 +23,7 @@ Warkvlt - Merdeka (2015) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:FDC4EE0477BBB13BECFF6E8071ECBC6FDCB87454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Grace Latecomer - 900 Million Light Years (2015) [MP3|320 кб/с]<Post Rock, In
 ```bash
 magnet:?xt=urn:btih:738524C1C3249795E9429E39997868A79F557BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ VA - Without Each Other, We Have Nothing! (2014) Vol. 1 [MP3|320 кб/с]<Punk R
 ```bash
 magnet:?xt=urn:btih:0A76E2EB6609D8F3502C57348A82F657AD74B9C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ The Fraidies - Try Again (2014) [MP3|320 кб/с]<Alternative/ Indie/ Power/ Pop
 ```bash
 magnet:?xt=urn:btih:90F77F8805B551A0478615F4A38A822797D07F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ The Traveling Suitcase - Nobody Wins (2015) [MP3|320 кб/с]<Rock, Funk, Indie,
 ```bash
 magnet:?xt=urn:btih:822D2943D3DE93650072BB991971F40A2F2FD7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ The Dreaming - Rise Again (2015) [FLAC|Lossless]<Alt. Rock | Industrial Rock>
 ```bash
 magnet:?xt=urn:btih:DE5669E4F1275459D0B066D2BF1316A1A5351B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Tear Out The Heart - Dead, Everywhere (2015) [FLAC|Lossless]<Metalcore | Post-Ha
 ```bash
 magnet:?xt=urn:btih:D31EFB75889B1AFB6C971E32FC742DD6DC214513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Beyond the Black - Songs of Love and Death (2015) [MP3|320 кб/с]<Symphonic / 
 ```bash
 magnet:?xt=urn:btih:DDF3068022793A0A43FEAE7F421D82155BC56EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Deep Purple - Come Hell Or High Water (1994) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:53932D0E8EFCF28ECD9793B6AA0264BD25C3BD14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4271BC1849DAF2052A26BB424DC67E3BF47FCA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:386569B067293391A5A56E65C149A360D435DAD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +343,7 @@ Accept - The Best (1994) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1237865C07980222C4D325B1CA3D6F89E9C36AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ Nightwish - Elan (Élan) (2015) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:E8735EFFCEE124C9AA709CFA5435CC222F298A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F92893CFAEC72AE8480A7476E17AAB812C243AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ Imagine Dragons - Smoke + Mirrors (2015) Super Deluxe Edition [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:F6B306FFF5DEFAFEDE20F9DB0D04691802F1F1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

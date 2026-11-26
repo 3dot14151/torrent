@@ -26,8 +26,7 @@ Elder Kindred - Kindred Spirits (1973) Reissue, Unofficial Release /2011, Dogtoi
 ```bash
 magnet:?xt=urn:btih:9421E6D89979A0DE1D93F8CD0EA00BECF93C938D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Bonus track(   Читать дальше...   )Жанр: Rock/Folk Rock/Psychede
 ```bash
 magnet:?xt=urn:btih:486C7E45F8521EE2D2F7EAEDEAA3DF1C50B0ADC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Thyrien - Hymns Of The Mortals - Songs From The North (2014) [FLAC|Lossless]<Mel
 ```bash
 magnet:?xt=urn:btih:11917E8F59CC73E1CC48FC4B94BDFCCA9DD0694A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Kowai - Dissonance (2014) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:5C2E92740C926AF4B9199A4A3F78B37A170DC702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Comus - First Utterance (1971) Reissue, Remastered, SHM-CD /2008, Arcangelo, Jap
 ```bash
 magnet:?xt=urn:btih:C698866DD3F2A4E7CEE3CF300CE5D02A56AA6E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Van Canto - Dawn of the Brave (2014) [MP3|320 кб/с]<A Capella Power Metal>
 ```bash
 magnet:?xt=urn:btih:9634B15FAAED4F4C807C6060E94745322042FDA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Van Canto - Dawn of the Brave (2014) [FLAC|Lossless]<Power A Cappella>
 ```bash
 magnet:?xt=urn:btih:DA6E83946160296A00DB2424F2330179F625F150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

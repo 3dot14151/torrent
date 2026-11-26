@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Spring Tube 100th Release Part 2 (2013) [MP3|320 кб/с]<Progressive House
 ```bash
 magnet:?xt=urn:btih:3DDAE89CDE2A5C62AED67134F08BD79FD03ADC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:662C0E3E5BF621F91E49F18E11602E2E2E17074F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:723A806AE6154A3A3CAD4AB737D8F173F190AD31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ De Van - Current End Of Days (2013) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:38B947DAAA36344F8E50BCA17703FBF149F5F60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2249D45BF004A48777FD99EE916CB2BF5B93AD52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ VA - Deluxe Beach Lounge Dinner (2013) [MP3|320 кб/с]<Chillout, Lounge, Downt
 ```bash
 magnet:?xt=urn:btih:F3BFC6E13A61C5CE65648D8063B4E2A3410F074E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D695C7759252DCBE57A200E20656C8969A16E789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ Meridian - Metallurgy (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EEEB6AC815F6EBB4407EAA6700AD4552DEA1BC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ Brenda Hunter - Catching the Mooncoin (2003) [MP3|320 кб/с]<Instrumental, Cel
 ```bash
 magnet:?xt=urn:btih:37DD80CC06C7003A356AE276FEC4023B30449140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ VA - Ocean Lounge Grooves (2013) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:3EA64767F1274FA371E3B2474A09E0C62CC94A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D177F72F0FCA477928BDFACA9C7F13F2BE0FC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC600884BAE1B8779E13F11528F4798A4EC56CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ Warbringer - IV: Empires Collapse (2013) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:00B4A2C46AA4BFE53F641F43DF9E600C4682CF91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ VA - Sensitive & Gorgeous Chill Out Dreams Ecstasy One (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:80DE0CABF78061C84612B5D1FDB105D9DC8550C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72E3057EC3B5579159836FC66B33F7ED0AA34FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ VA - In Da Club Vol.77 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:93FB7055EC9BBB089EA2BC73AD83D3A042FC9BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +541,7 @@ VA - Best Of Nueva: Year 3 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:CCEE4BF377AB9E81F38D92F04500E82EEAE56553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +575,7 @@ Daniel Lesden - Rave Podcast 043 (guest Reaky) (2013) [MP3|320 кб/с]<Progress
 ```bash
 magnet:?xt=urn:btih:BE96843E69EB7ECE265000BAFE689B076381753D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +609,7 @@ VA - Delmark 60 Years of Blues (2013) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:109066EC4627A6F7476E7CB857C4317A941F5C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +643,7 @@ Carta - The Faults Follow (2013) [FLAC|Lossless]<ambient, dreampop, indie, shoeg
 ```bash
 magnet:?xt=urn:btih:6344E553A46CC4F609C13455273676E94117C0CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +676,7 @@ Armory - Empyrean Realms (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:AB3A3A166B21A341ECFC2E046AA64895E0279192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +708,7 @@ VA - Latitud (2013) [FLAC|Lossless|WEB-DL]<Full-On; Psy-Trance; Progressive Tran
 ```bash
 magnet:?xt=urn:btih:016C9DC5548703463502A122F11A44BD13FDBAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +742,7 @@ Kenny - The Best Of Kenny (1994) [MP3|320 кб/с]<Classic Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:3CAA7BFCEE6A9AA765424AE136FAA1E1CD8AD4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +771,7 @@ Liquid sound - Away EP (2013) [FLAC|Lossless|WEB-DL]<Psy-Trance; Progressive Tra
 ```bash
 magnet:?xt=urn:btih:6564DB52CD471EE9951FA7EEEA0CAE735A0F61C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -822,8 +797,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79BE875385895A12115746961985E1583360B4A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

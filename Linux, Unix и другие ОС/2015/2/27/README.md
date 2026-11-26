@@ -19,8 +19,7 @@ Ubuntu 15.04 Vivid Vervet Beta I [i386, amd64] 12xDVD
 ```bash
 magnet:?xt=urn:btih:7722349AB503A45132D6CFB329ED37AEC17DF4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

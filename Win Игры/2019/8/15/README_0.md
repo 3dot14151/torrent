@@ -19,8 +19,7 @@ The Great Perhaps рассказывает историю космонавта, 
 ```bash
 magnet:?xt=urn:btih:D968C0BA13839AADB14E48D2EC705566E533A8EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Great Perhaps рассказывает историю космонавта, 
 ```bash
 magnet:?xt=urn:btih:27E4F9EDD921F14029BFD946FAEA4951C18E2372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

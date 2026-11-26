@@ -19,8 +19,7 @@ Obduction (2016) [Ru/Multi] (1.7.2) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:7DC88347500E2219974392DA1D392997B9F217F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DESPOILER (2018) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C762D09D94CBBE6524273C6CF569C2F29A8CE3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Signal From Tölva (2017) [En] (1.0.51) License HI2U
 ```bash
 magnet:?xt=urn:btih:E4F320AD759DB2B740D2AB28944E04F568B43DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Evil Cogs (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6865B9B2B6B6F4E43FDDE3F383EC19FFA78C2350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mafia II / Мафия 2 (2011)  [Ru/Multi] (1.0.0.1/upd5/dlc) License GOG [Direc
 ```bash
 magnet:?xt=urn:btih:DE1E4F495560561D12BE0B4871C99B9992DEA1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

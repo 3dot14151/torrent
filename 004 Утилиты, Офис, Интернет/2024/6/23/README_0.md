@@ -19,8 +19,7 @@ Speccy – компактная программа от разработчико
 ```bash
 magnet:?xt=urn:btih:70909BBDF4981AA02FAE335708FA50CF0602A86B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Windows Auto Dark Mode X 10.4.1 Maintenance Release [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EC093DE08521701761E4372AEA3644EDEA027A83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

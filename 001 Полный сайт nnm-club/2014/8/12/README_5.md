@@ -22,8 +22,7 @@ Rogue Legacy - игра, в которой каждый сможет стать 
 ```bash
 magnet:?xt=urn:btih:6F9D58879946D42871DE0B3EAB66094C733BB0A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C8A2CBDF37EF4D460B913CC754798FEAEF09670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6FD72D961E6E7DC1704035747D7625CDE175BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Risen 3: Titan Lords (2014) [Ru/Multi] (1.0/3dlc) License Fairlight
 ```bash
 magnet:?xt=urn:btih:FADB60C9114D7C9D43EF3498E9FEC96111E3B75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4711E1148198B6F51D75D24A7C69458411FE9C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Advanced PDF Password Recovery позволяет снимать парольн�
 ```bash
 magnet:?xt=urn:btih:534E640D89D7C19A0B44F1586969B1CB3BCEAFA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B60E9B0F21C9F97801F60112B203BA665605E4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Supreme Commander Trilogy (2007-2010) [Ru/En] (1.1.0/1.6.6/1.260) Rip/Repack R.G
 ```bash
 magnet:?xt=urn:btih:2EFDC8D70399F4C9C9F62B7D20E9A23285753A42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ NAVITEL® выпускает глобальное обновление карт 
 ```bash
 magnet:?xt=urn:btih:3FF395C691BB6D604A45DDF1DF3E653EA214DC60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Risen 3: Titan Lords (2014) [Ru/Multi] (1.0/3dlc) SteamRip R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:4082BDE6A72AD5C1821341CEBBE941F4CB4E58B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

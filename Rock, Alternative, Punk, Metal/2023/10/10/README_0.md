@@ -22,8 +22,7 @@ Graveyard of Souls - Pequeños Fragmentos de Tiempo Congelado (2017) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:CFD0C0CDB1F0537FBBA8C0C0E1E9BED56D961E3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hall of Misery - Reverence to Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 ```bash
 magnet:?xt=urn:btih:03FA8271F3C2D2341FD41DBA8BDD5DA4007BB7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ofyr - Disconnected (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Roc
 ```bash
 magnet:?xt=urn:btih:0E88A2228662AE53EF85B7D51680F9314B635DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Resistance - Skulls Of My Enemy (2022) [FLAC|Lossless|image + .cue] <Power, Thra
 ```bash
 magnet:?xt=urn:btih:7B756C8D88070206765803329BF7628414463EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rebel - The Wild Hunt (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5BB267805F3AB3FE78A30907C96A73A8AC5AD545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Chapter I: Of Ritualistic Demigods’ Unification
 ```bash
 magnet:?xt=urn:btih:4F35C558EF3682A9D4CBAAA13329DE74ACC64747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Eigenflame - Pathway to a New World (2023) [MP3|320 Kbps] <Symphonic Power Metal
 ```bash
 magnet:?xt=urn:btih:F83CF632C66C0F9B5D4340D3154F50F4A62C270F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Monastery - From Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:888DEFC2545431EDCFBB2890049E98BBC9B245F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Paramore - Re: This Is Why (2023) [MP3|320 Kbps] <Alt. Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:71F77A3D34345129B01C06E00960A00EFB5DA234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

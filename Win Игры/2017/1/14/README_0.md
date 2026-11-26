@@ -19,8 +19,7 @@ Season Match / Времена года (2007) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:C993CC0D94194AF8B4D1AE0D8618D5EF6F1AF2AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Transistor — научно-фантастическая игра в жанре 
 ```bash
 magnet:?xt=urn:btih:5720BCE7BD7BF1873EFB562DB83DA0003F80ADE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Magic: The Gathering - Duels of the Planeswalkers 2014 – новая часть
 ```bash
 magnet:?xt=urn:btih:FD1788835E6836CF48C6EF80A26B1287BFA80E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Worlds of Magic (2015) [Ru/Multi] (1.2.6/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:FA118BA2D3A955FFBCEAFF0E0E831C0F56ECE746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rise & Shine совмещает в себе аркадный шутер с ис�
 ```bash
 magnet:?xt=urn:btih:CB04B159209B82CE9CABBE31388A475DB1495D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

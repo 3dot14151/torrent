@@ -19,8 +19,7 @@ Painkiller / Painkiller: Крещёный кровью (2004) [Ru] (1.64) Licens
 ```bash
 magnet:?xt=urn:btih:27E342EFFAFC306F938537C590B8F461B5EBBF41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

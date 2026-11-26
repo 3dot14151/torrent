@@ -21,8 +21,7 @@ VA -  Drumsterdam (2016) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:AB8878F213AF894C01EAE8105C15550926F44C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Neutral Point - Oversiver (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
 ```bash
 magnet:?xt=urn:btih:B1C6C3A458CF849C1460ED1EE163C302EB5FCB99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Beautiful Now: Minimal Tech House NRJ (2016) [MP3|262-320 кб/с] <Minimal
 ```bash
 magnet:?xt=urn:btih:454770B33CE400696F118FBF061281D9C40A3C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ KCNcrew Pack  -  это огромнейший сборник серийнико
 ```bash
 magnet:?xt=urn:btih:F77E257D31474B00F133F484AD763D2D6501E67A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12774BB7D8AF12B7F1851056A579D8E943EAD9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Astropilot & Friends - Soul Surfers (2016) [MP3|320 кб/с] <Psybient, Downtemp
 ```bash
 magnet:?xt=urn:btih:D51AB74B018753C4A7C6B6F11BEF1809FEAD8202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ The Bob Lanza Blues Band - Things Ain't So Bad (2009) [MP3|320 кб/с] <Electri
 ```bash
 magnet:?xt=urn:btih:74DB9BF41C70E0FEEEEC9BFE3A5A0FE4AD10076B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0EC51498E7680E39B3DCC40A8990B5033948A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Mechina - Andromeda (2016) Single [FLAC|tracks|WEB-DL]<Industrial, Symphonic Dea
 ```bash
 magnet:?xt=urn:btih:3244731935D1D1E96985C4EBA402B6B0129F848B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D61134D351D81C8F03FA20B9A4E8B557EFD9BC1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Moderat - Live In Berlin XXVII II MMXIV (2016) [FLAC|Lossless|tracks + .cue] <Te
 ```bash
 magnet:?xt=urn:btih:F36C2210005C1D3B3EAC287C43AA71D557305A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ VA - Радио Шансон. Здравствуй, весна! (2016) [MP3|256-
 ```bash
 magnet:?xt=urn:btih:C86BFC6C387C649D9F94619727C45FF8438A746D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ VA - Anjunabeats In Miami (2016) [MP3|320 кб/с] <Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:CDE1DAE64FDF99E5C89EE62E4310D9C0178EE613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F88CBDA19A532EBE6751CA271ACE17555A417F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Freiheit - Fantasy (1988) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:17FA75E15E67B17B6373C90A4D7D8B31E91E033C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Lords Of Black - II (2016) Japanese Edition [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:A3467336BF709E99934846B2D9555EBEE91EB723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ VA - Advanced Modern Mood Music, Vol.2 (2016) [FLAC|Lossless|tracks] <Downtempo,
 ```bash
 magnet:?xt=urn:btih:82B2528CEE2C5B28F09581C02C16F3136CE80CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Adam Ellis - 10 Singles, 39 Remixes, 8 Tracks (2009 - 2016) [MP3|320 кб/с] <T
 ```bash
 magnet:?xt=urn:btih:28AFAFDD5F6080C203DF2BBDBD6A432BD6285D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64F73D4A095C332E76F6527EDE39182899C6CDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E64A5F09BD8F8DAAC1DCA0ED4C07BADBA44D9A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6AADBE3F7284C4090E9E1B979F5A960FD176725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F662BFEDDFBA46FF4A9FB23D690B83B0AEAD8DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB99A77A2F18FE578FAB75F99849B300BF0BC186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:973DA6131854184F9069CC6BC09C47D89C94F1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DAB938BE68F525E5F222B4FE61E6428D9C53B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73716D831888B51F0540A78EE16E8A4937D3B1E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

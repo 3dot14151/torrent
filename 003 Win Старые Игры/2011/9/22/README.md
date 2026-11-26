@@ -23,8 +23,7 @@ Zax: The Alien Hunter / Зак: охотник с чужой планеты [Ru]
 ```bash
 magnet:?xt=urn:btih:5DA3F5FA008F66128253B92CA601875BB0E3C047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

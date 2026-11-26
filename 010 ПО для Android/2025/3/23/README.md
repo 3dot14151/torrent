@@ -20,8 +20,7 @@ Unit Converter Pro / Конвертер Единиц Pro v2.6.3 Mod by Balatan [
 ```bash
 magnet:?xt=urn:btih:2700D9D29609913745E1AC5DFAF13D4E1A4DF558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:368B85F415EDEF3F551F405DBA0A56343EB9C797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ SafeInCloud — это не просто хранитель паролей, но
 ```bash
 magnet:?xt=urn:btih:A114C663AC19138FFFF146B6CCDF276FF01A8D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.7.60 Мод by Applicazioni
 ```bash
 magnet:?xt=urn:btih:635C01735E4415B8108D52D32BBE56A2A5B23062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

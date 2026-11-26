@@ -21,8 +21,7 @@ Woody & The Bluepackers - Porch (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:587EA6F3FD9F476BC38535E269C45C4750B0DCE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B911B5E252365F5BBFD24560F42BD39BF0B91261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ FxFactory Pro включает  фильтры, генераторы и пере
 ```bash
 magnet:?xt=urn:btih:C55C338F8990C724E99A628AF16AD2AAB34410B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Serial Box & SerialSeeker 01-2024 [En]
 ```bash
 magnet:?xt=urn:btih:3D689C6A6F59CE5B90838FE317AFE9CCFF151DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ iShowU Studio предоставляет эффективные инструме
 ```bash
 magnet:?xt=urn:btih:A17DDAE297C09E1D54639474B53A579594FAE63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ EasyGantt Classic  4.2.3 [En]
 ```bash
 magnet:?xt=urn:btih:D7FEA34F4B061B6351DCB8AE4CE3BF1FE82D0339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Dropshare - приложение строки меню для Drag & Drop заг
 ```bash
 magnet:?xt=urn:btih:F11926ABA2D7C63F7A1E67C93C993F54F693599C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Soulver предназначен для «быстрой математики» 
 ```bash
 magnet:?xt=urn:btih:B1F6E40F31BC2474A3808809275D6D9CDA01FC8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:0564B5D25B0B656DB9EB995055A4B313143C8160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Scavenger - Feral (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Prog, Doom>
 ```bash
 magnet:?xt=urn:btih:5D44E6800910EFEAF09F7B2A812B08200F547CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Varathron - The Crimson Temple (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 ```bash
 magnet:?xt=urn:btih:BD0611912538C771822DB710988DCCA12671634C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Travis Koester - Mister Travis (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:AF6C1703F80B14691CAEB9B37A5D4D5BDB78FADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ The Fixed Trio - Talladega (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 ```bash
 magnet:?xt=urn:btih:65BD213F1A46D85F87CD1173520284213C352B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ SpamSieve 3.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:2111311B5C035757972B288FA964AA12E8A193E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Mimestream сочетает в себе мощь macOS с расширенным
 ```bash
 magnet:?xt=urn:btih:D6235DC3C796F76F20F63A08EB30E76EDCA4B951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Eon Timer 2.9.11 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:82CA13B66ADA6B3D6136F84501C703BD1E16C5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Warmen - Here For None (2023) [FLAC|Lossless|image + .cue] <Melodic Death, Power
 ```bash
 magnet:?xt=urn:btih:02EF8606580DA15120137C460B14872FF115BFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Battle Suit Aces (2025) [Multi] (Build 20305022) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0AD258DDE0853A26F66CE00A0A9D427F8E086F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (Build 20347223) Scene 
 ```bash
 magnet:?xt=urn:btih:67BCD17A114B500812A73944E2E31DD321F12910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:DC47E322BEBDBB62886CF44CC5799B5AE5301995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Acres - это уход за посевами и забота о земле дл
 ```bash
 magnet:?xt=urn:btih:07C11652E91C125CDBF847D1AD1AD69F28408B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.1.1/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FCED184D787398C8BE3FB21C02513D941D2F52AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cat Town (2022) [Multi] (1.0) Scene DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:4AAD89597E5B2BBB568BC9DF8E2F619E3A5E4C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Atelier Resleriana: The Red Alchemist & (and) the White Guardian (2025) [Multi] 
 ```bash
 magnet:?xt=urn:btih:5C0713B7776FADB69550DBE09FD5C28192F205B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Star Crafter (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB2BA101318ADDEDFC9335D4FE081703771AE0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Sonic Racing: CrossWorlds (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:87DE6ED539B67ADF03F47061C34D324F18D46B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:51B3FDBB08EBAF04D388FE436681A9069E70A02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Once Twice Thrice - это головоломка в реальном време
 ```bash
 magnet:?xt=urn:btih:3D88102B3F23C5F7B07BCBD4CB7FC434D8E9AD79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Restaurats (2025) [Ru/Multi] (20727795) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:45C29F17F01FFC8C011D00BC14747A1F6BFB7023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Mortal Sin - хаотичная и кровавая игра в жанре rogue
 ```bash
 magnet:?xt=urn:btih:13947CDC682F7A6E6B30FC17457D80A206BA4B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ True Fear: Forsaken Souls Part 3 - заключительная глава тр�
 ```bash
 magnet:?xt=urn:btih:C60B567EBAAEBB102CED4850178D84BCEDFCD294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

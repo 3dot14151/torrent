@@ -22,8 +22,7 @@ A4 Moe Bandy And Joe Stampley - Honky Tonk Man(   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:7FD18D4D2A7DE0A56A0B8C7DAC7E635B9CCE4549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

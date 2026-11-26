@@ -19,8 +19,7 @@ GhostBSD 10.1 Ève (Xfce; MATE) [i386, amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:D0EBFAC7711BAC2FA003486FC94BA1DDC1C07A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FreeBSD - это современная операционная система 
 ```bash
 magnet:?xt=urn:btih:846B3359D189F175B1537B0C4F195C5463B9D090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

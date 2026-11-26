@@ -19,8 +19,7 @@ Insane Robots (2018) [En] (1.0.7/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:7409DCA09EAD02A33B48F398B60D97DC38346AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Uventa (2018) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2B0F9174CD7C6937A99B904593221AF3550536B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

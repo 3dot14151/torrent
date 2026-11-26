@@ -20,8 +20,7 @@ Super Comboman — двухмерный платформер с элемента
 ```bash
 magnet:?xt=urn:btih:B43B3FFF7885641B08E5DB56ECBAABAD1362EAB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Legend of Heroes: Trails in the Sky, известная в Японии, как 
 ```bash
 magnet:?xt=urn:btih:8346C3360D4548384AA9A338A87AD7BFDCC409BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Victory At Sea - это масштабная RTS про морские сраж�
 ```bash
 magnet:?xt=urn:btih:C25A181966ED320EEDC5C3B3A230ACF73F026FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

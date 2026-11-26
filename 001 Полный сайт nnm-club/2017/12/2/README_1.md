@@ -21,8 +21,7 @@ Crematory - Live Insurrection (2017) [FLAC|Lossless|image + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:8A8DB5FADAB4852DB6261E1CB290CE8C5144D382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE1A695147662A99C64987DB58C492B411EEDB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C57C4134DA92C203828A84D92EF1B0A1FCC11071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Supersonic Blues Machine - Californisoul (2017) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:70F7120238F595431368E3A793F7A1B9B50C6A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Graham Gouldman - Play Nicely And Share (2017) E.P. [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:3EF3D5F649E5412C84B33099A056FF50497948E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ The Unguided - And the Battle Royale (2017) [FLAC|Lossless|image + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:F3DF14E73344104D6BE72626D3CC9BBB8F091E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85622FE6692469E459FD8A384ABDFD9CA635DC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45525174C3770CDE57259C6E66FF10264260D24F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Septicflesh - Codex Omega (2017) [FLAC|Lossless|image + .cue] <Symphonic Death M
 ```bash
 magnet:?xt=urn:btih:BBFA1FD6974BF67FF8C63F4674F99510935DFF22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ McAuley Schenker Group - Save Yourself (1989) [FLAC|Lossless|image + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:FEC0A7D3A47FB8CCE4227D2118F7C86602D7A7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B7D54AF75CB10E52349EE8AA3373ABC1AC95589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C446013E7F9F3305FA54BC1845D4A4385345D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Privacy Eraser Free 4.31.0 Build 2421 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1E2564973B4FD0895DD65A2D68ADE64C4679B411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Thomas Lemmer & Setsuna - Juno (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 ```bash
 magnet:?xt=urn:btih:126099B65C1EC816251C6B463EC2255C96E6DAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Handyman - популярный журнал для мастеров на все
 ```bash
 magnet:?xt=urn:btih:47449F32AA0D4CAF36E091066D5E01F54F921733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Comedy Woman (2017.12.01) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:67DDDCE502F3CACE79283567C2AA5AC410551F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18CA2AE4211C959AEDCDD7F2C107309EDD882D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04461CE5D7BFC131DAB0676C1068E19C5E5FFA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Prurient - Rainbow Mirror (2017) Hospital Productions [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:85FF278BE6DDC21D6D677003487AB0636A1ED93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAEE230D0FEDDF6FD2083551F4D6E47FB858717C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ Eisfabrik - Null Kelvin (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
 ```bash
 magnet:?xt=urn:btih:37ACDB79111487A3377207D1A11E4B6002A95A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A8B11A9E842DF33D6632CD24FED4F2C56725F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ VA - Top DJ. Dance boom (2017) [MP3|320 Kbps] <Dance, Club>
 ```bash
 magnet:?xt=urn:btih:2EB1253DEA7805B5626E41541D6390FD2632C788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ AppLocker может защитить паролем отдельные прил
 ```bash
 magnet:?xt=urn:btih:E5617AE1915DE3CB016AE16613E306ECBD46FF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ Hell in the Club - See You on the Dark Side (2017) Japan[FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:E2F6E0C8DBFAA01EE121A292E1BBA8E2ED87B72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:184C8A9A59FA250864F023E5CF9F003168186074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

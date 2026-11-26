@@ -19,8 +19,7 @@ Abiotic Factor - это научный экшен с видом от перво�
 ```bash
 magnet:?xt=urn:btih:EFCA801CF6F63010881957FB2DD7D496C7175434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Abiotic Factor - это научный экшен с видом от перво�
 ```bash
 magnet:?xt=urn:btih:0A50BB69A02BF4FFFE6ACEEAD304342CF895E258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Abiotic Factor - это научный экшен с видом от перво�
 ```bash
 magnet:?xt=urn:btih:FBC9F8A2C657AA3054FA090FBD08E9E02A664AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Interstate'76 [Ru/En] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:37DA808CA3DED10F55A11F956678D40ABDA695B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ UberSoldier / Восточный фронт: Неизвестная война [
 ```bash
 magnet:?xt=urn:btih:191E01F3FEA822D7B038C7D054E1D993A385214C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

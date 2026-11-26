@@ -22,8 +22,7 @@ A4 Houses Of The Holy(   Читать дальше...   )Жанр: Hard RockПр
 ```bash
 magnet:?xt=urn:btih:B023AFBE1BDCF28A2386BD86C4C89199AAA0E246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Play The Game (The Game)(   Читать дальше...   )Жанр: Classic
 ```bash
 magnet:?xt=urn:btih:0219688D49CED240AA3B3BED93374284BBCE8F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

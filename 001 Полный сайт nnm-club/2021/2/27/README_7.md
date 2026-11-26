@@ -18,8 +18,7 @@ DockMate 0.8.2 [En]
 ```bash
 magnet:?xt=urn:btih:CFD215FF1206BFD5515D76EFF9A9EFF0D1FE6E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:96C7BDE7C5C7E559195C8B0A6F8543850832E095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

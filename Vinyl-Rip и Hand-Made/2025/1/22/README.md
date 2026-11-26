@@ -22,8 +22,7 @@ Grave Digger — хэви-метал группа из Гладбека, Сев�
 ```bash
 magnet:?xt=urn:btih:A9050D2AB784C5AB2A4B4DE6D620EE213694455F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Poor Old Tricks (Znam Tvuj Trik)(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:DD1D1DEE9A309A7FC723CEDD073740B72BBC576F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

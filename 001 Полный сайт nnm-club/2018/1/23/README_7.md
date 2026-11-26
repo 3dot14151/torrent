@@ -22,8 +22,7 @@ Docetism - Breast And Vulture (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Down
 ```bash
 magnet:?xt=urn:btih:FD0F315B427090B70EABBDFA5AEC9DCC95472416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Mysterious Station Dark The Best Of 2017 (Mixed by Dr Riddle) (2018) [MP3|3
 ```bash
 magnet:?xt=urn:btih:683D1E1B0AF47AAF9FA49553E5DB7EF81F4F712A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Urban Dance Vol.23 (2018) 3CD [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:D49E1745FA438B00E551733B1074BFF59D6DCD06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tape86 - Discography 2 Releases (2008-2010) 33 Recordings [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:8CAE8DD557E7F5C04B03BF3B5C06613D49E348D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Der W - IV (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:24DC1EABE66F3F1FF9897F79132EA22369560FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Eleven - 11 (2012) [MP3|320 Kbps] <Dance, Synthpop, Electro>
 ```bash
 magnet:?xt=urn:btih:FBBB2BB65963DFB35DEB1DC4568B4F00A38E46FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ BlueHarvest -  утилита, помогающая автоматизирова
 ```bash
 magnet:?xt=urn:btih:CB8C728EF1E54BE5F7AE9AF866E6653991E29BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.20 (2101) RePack (& Portable) by ZVSRu
 ```bash
 magnet:?xt=urn:btih:B9C582769E33A40A3910D85D450F110639DD9A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Takashi Wada - Discography 8 Releases (2004-2015) REALJO[K]E Recordings, Onitor,
 ```bash
 magnet:?xt=urn:btih:28919ABE5290949A8E1945079888688EF53B5F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Kreolis - Театр Вампиров (2018) [MP3|320 Kbps] <Metal Opera>
 ```bash
 magnet:?xt=urn:btih:3A31DA2D307FF2BD8B63EA320A09896B56104722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2CF73DE572363771774BBA8B1394A461FF69E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Jack Johnson - All the Light Above It Too (2017) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:2E917A8DD716F5D73376579C7A506F1DF85E14F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FB7E4B3D46A6BAB3E77830F0968622A1B268707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ PDF Expert - это один из лучших инструментов для �
 ```bash
 magnet:?xt=urn:btih:9A6BBDEA041460208FDC15B4D9DBAC07194B55FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Raw Power 1.4 [En]
 ```bash
 magnet:?xt=urn:btih:122B717999DA55B334D7FC168583220876460472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ AVRELA - Скоро рассвет (2018) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:AA50EEAD267CA19821307C370945E1609C4C9CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F55AE81A97FD1BAD8016EB310571A68B192CD2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C9F75D2DD67E2AE95DF831FCB990DC028D518C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:880C27A627910335E9817CABBEAF30AA6D8C652F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ OmniGraffle Pro - Отличный инструмент для создания 
 ```bash
 magnet:?xt=urn:btih:5DE565E1582BE74DC1A99E6EACE2A0A510E27405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89DDA65696D3D28F315675CA7DF69F7B66AB13E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ VA - The Best Of Active Meditation Music 2008-2018 (2018) [MP3|320 Kbps] <Psy-Tr
 ```bash
 magnet:?xt=urn:btih:7550DFE47D79F81A8C61250FB55ABCADD3F73464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0611639B5FF5FAB14FB16123A632BC8B79724718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C06462EA7D25F228324772A6321F8738E5EAFBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ MediaHuman YouTube Downloader 3.9.8.20 (2101) RePack (& Portable) by ZVSRus [Ru/
 ```bash
 magnet:?xt=urn:btih:4A7E5054ED89E3EE16F988C4A11E93CDCE2E69B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Modern Tales: Age of Invention / Сказки Нашего Времени: Эр�
 ```bash
 magnet:?xt=urn:btih:E6C158FAC137EED2C937FE51157EDF594B484B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadow Warrior - ремейк шутера от первого лица от с�
 ```bash
 magnet:?xt=urn:btih:F203DB530068C89C5FCD1F585F31420E4697717E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

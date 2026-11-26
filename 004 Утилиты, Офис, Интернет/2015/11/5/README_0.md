@@ -19,8 +19,7 @@ ORPALIS PDF Reducer Professional 2.0.4 + Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:1BD24E4ED33F12E87B78A26F108BED2A87BF988F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

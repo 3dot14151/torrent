@@ -19,8 +19,7 @@ VIP Notes - программа-блокнот, что несмотря на св
 ```bash
 magnet:?xt=urn:btih:0EDB0242A3B58626A999CB3B7F0295067A9771F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

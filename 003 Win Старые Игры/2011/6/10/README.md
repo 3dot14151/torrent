@@ -19,8 +19,7 @@ Spy Hunter / Spy Hunter: Некуда бежать [Ru] (RePack) 2003 | MOP030B
 ```bash
 magnet:?xt=urn:btih:004FC6AD9DD833118724CACA02D914E876854C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Toon Car / Большие Гонки! [Ru] (L) 2001
 ```bash
 magnet:?xt=urn:btih:EEB10C40C7802D224E394CC499AFC4DF792F1F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

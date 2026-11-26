@@ -22,8 +22,7 @@ VA - This Is... 1971 (2008) [FLAC|Lossless|tracks + .cue] <Rock, Funk / Soul, Po
 ```bash
 magnet:?xt=urn:btih:67147FE55FBFB7D08D1CF4E010ECDFC57587025F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Primaluce - Way Of Perfection (2026) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:0C2B8757A83AEFF7F0B4A7D1D6555A1FC57B6471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Greyhawk - Warriors Of Greyhawk (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:C272E3D37CE96F58C275D33CDDDDED63CD70133E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Edge of Madness - Creative Differences (2026) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:CE9849979C7340616A313D3B4629EBC6EC414873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Big Big Train - Woodcut (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive 
 ```bash
 magnet:?xt=urn:btih:B4703F81F7698F1AED8AE3C72DA35AFE24F1BD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Euphoria Again & Dogwood Tales - Destination Heaven (2026) [FLAC 24/48|Lossless|
 ```bash
 magnet:?xt=urn:btih:89041B67157EC4CC21E29E2FFE130FA0408814EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ J.B.O - Haus Of The Rising Fun (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 ```bash
 magnet:?xt=urn:btih:4227E927CC2F312860AC438350380B704440D1A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Mike Raymond - Hostiles / Seekers (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ha
 ```bash
 magnet:?xt=urn:btih:1FC175B32934D7182E0D634F0AFF1561A33FEE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Twentyfold - Before and After (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:65786E2118AA424F062D6ED9C710D4F86CCB0E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

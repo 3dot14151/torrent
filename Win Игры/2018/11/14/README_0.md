@@ -19,8 +19,7 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9B26F8DDD99DD35FAAAD1B981AA59BF842F49993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

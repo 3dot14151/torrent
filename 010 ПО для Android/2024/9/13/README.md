@@ -19,8 +19,7 @@ O Launcher - это альтернативный лаунчер для Android �
 ```bash
 magnet:?xt=urn:btih:602AEA5494CD8C200AEBEC7AA5802F6F1C439B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Super S10 Launcher - проект, что заслуживает внимани�
 ```bash
 magnet:?xt=urn:btih:AE1FC3316DB7EF5D12D39FD1EA92D2DE9782A852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Super 13 Launcher - это лаунчер для Android, имитирующий
 ```bash
 magnet:?xt=urn:btih:45E789BB9C2F8E515543657696F5E7C845E09916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Memento Database - это мощный и в то же время легкий �
 ```bash
 magnet:?xt=urn:btih:F53C0A5001CAB5FDA5A9082EFA4AEA876C813A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Memento Database - это мощный и в то же время легкий �
 ```bash
 magnet:?xt=urn:btih:A1EB045A44EFA75BBD2823E4169CB75DAE5533A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

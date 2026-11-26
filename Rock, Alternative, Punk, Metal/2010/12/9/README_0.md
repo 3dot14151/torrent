@@ -28,8 +28,7 @@ VA - The LoungeLegends play RockSymphonies (2010) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:9D1DE6E3E5BF6C38BFFFB42495A80FDDCBC81191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Cliff Richard - The Singles Collection 6 CD (2002) [MP3|192 kbps]<Rock/Rock'n'Ro
 ```bash
 magnet:?xt=urn:btih:DC79F816F8E9F7222CFEC5660071AEB2D6A72861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Linkin Park - A Decade Underground (2010) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:BAF047D59228FBC9991204E794C8BEBB22B28F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ PRETTY MAIDS - Дискография (1983-2010) [MP3|320 kbps]<Hard Rock,Heavy
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ INXS - Дискография (12 альбомов) (1980-2010) [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

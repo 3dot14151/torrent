@@ -22,8 +22,7 @@ Cкелетон. Кубок мира 2016-2017. 5-й Этап. Санкт-Мор
 ```bash
 magnet:?xt=urn:btih:196C5241213AACA5B3EAF4DD1BA646F3DFFD7C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A76726A180655B1A0C7E9B2BA4EBF85C9B817B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE269C4A64BF0FAC344C4791336A68C539573D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:080F53AD18F31CB349C6B2DF5E7726577ACE56FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Sun Emotions Vol.1 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:7BD76BA7E58381B0FD7498FE130C8088000578BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:4AC9B4F82CD74AB143BCCAD0822D4D393CED1AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Chill Party Chillout Fine Selection (2017) [MP3|320 Kbps] <Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:8EA862FC6F744BDB75918B355E120D72EEE681C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:DD6C52C1058B879D8927525A747A383710FE4BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Paradigm Shift - Becoming Aware (2016) [FLAC|Lossless|image + .cue] <Neo Progres
 ```bash
 magnet:?xt=urn:btih:E8242085E42269AEC062CA44154E0EA229DE4E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Internal Cold - 1 album, 1 EP (2013-2016) [MP3|192-320 Kbps] <Atmospheric Black 
 ```bash
 magnet:?xt=urn:btih:DC2E600F57AAA2F84377D0DB8476FEA746DC540A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Igor Butman, Eddie Gomez, Andrei Kondakov, Lenny White - Jazz 4х4 (1997) Сою
 ```bash
 magnet:?xt=urn:btih:DB29177045A02BE736B39D3424C84C53037F2E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Arktis - On The Rocks (1976) Reissue, 1997, Garden Of Delights [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:9B18375F67EAC85843411F6741CFEE5C0726623A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ VA - Redux Presents: The Finest Selection (2016) [MP3|320 Kbps] <Trance, Uplifti
 ```bash
 magnet:?xt=urn:btih:4154ABE052B72972E4BAE3B95151D701F2D2D6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Southbound Snake Charmers - Rhythm 'n' Rust (2017) [FLAC|Lossless|WEB-DL|tracks 
 ```bash
 magnet:?xt=urn:btih:6E3324DBB7DFB7ED377D46B977C7D39A16BB5B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ VA - Abora Recordings Best Of 2016 (Mixed by Ori Uplift, Receptive & Illitheas) 
 ```bash
 magnet:?xt=urn:btih:A3FDDFA6EE807EFC74EFA66B113569640D900FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92B1309C3ED3EEEFE289D886F1927B34F8DB25AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Lou Gazzara - Musical Love Affair (2017) [FLAC|Lossless|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:A363385AFC5FA867E558BBF1E1DA6C0844B5CE0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Svartby - Swamp, My Neighbour (2015) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:0293C63A64B82D978DC2B843712CCCF7E32C5B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Macsome iTunes Music Converter позволяет (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:E6796485141DD281F4EF1E6D1C542DF864899963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ VA - Christmas Swing (2014) [FLAC|Lossless|tracks + .cue] <Jazz, Retro>
 ```bash
 magnet:?xt=urn:btih:8229CA5428624E0BCFF2CB8E528C5CD9242E9096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DD1E97B22AA608AB212B0A1BB1853415C2163E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ City Streets - Temptation (2010) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock
 ```bash
 magnet:?xt=urn:btih:6396181E40BD279FF3FB0E868D403ADEA0C158B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ Sidify Apple Music Converter может удалить DRM от Apple Music и �
 ```bash
 magnet:?xt=urn:btih:41F41EAB8B7B464AFE8EA51D4E8F02C03DDBD8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FDCA4D32971BEA3B2FE9FF32F9632F696788132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:168D219AF3BFA13609AA1BBDDA6539B8C9592EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ Ygg - Ygg (2011) [MP3|320 Kbps] <Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:99ECDA6A4CBC63438BC335F8CBE580D1CB6CDD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

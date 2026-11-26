@@ -19,8 +19,7 @@ Warlords Under Siege - игра, объединяющая жанры страт�
 ```bash
 magnet:?xt=urn:btih:AB25C4D5ABEE6595314EFFE1969171CAF12F8567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sons of The Forest - многопользовательский хоррор о�
 ```bash
 magnet:?xt=urn:btih:A41BCBCDF4B593994902A6A12109A43EBF286119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7F35EDE141EFC7B8D291AB8A1820FC87DAEE28F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vampire Therapist - это не обычный симулятор психоте
 ```bash
 magnet:?xt=urn:btih:C4EDCFB88352D210B0E7F46CD846DF2ED7627CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bartlow's Dread Machine (2020) [Ru/Multi] (Build 5929982) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B8469FF14F5B5E0814341E2E67BC56613D72398C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:352F84CC32818ACB3CD68F11ABBE34F4FB9F94DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Claudius Ptolemaeus и др. | Geographia Universalis, Vetus Et Nova, Complecten
 ```bash
 magnet:?xt=urn:btih:91C5F511F55AC6929B6B4DFE74764F3D8CD58FAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2779D71173CD640DD84EA94D4B9E68E4F3ECAEA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

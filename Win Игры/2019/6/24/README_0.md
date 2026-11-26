@@ -19,8 +19,7 @@ Hitman 2 (2018) [Ru/Multi] (2.30.0/dlc) Repack R.G. Catalyst [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:890E190F3F165FEC096AB609254067B7B4167A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

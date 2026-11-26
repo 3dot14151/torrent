@@ -18,8 +18,7 @@ Satisfactory — это игра от первого лица в открыто�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ CD 4 - Complete Piano Music Vol.IV - Geir Henning Braaten, piano(   Читать
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:9C9CECA2E541A40C4F96B152FC62FB6BDD71FC4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Windows 7 SP1, включающая в себя 13 русских редакци
 ```bash
 magnet:?xt=urn:btih:64A2645AC9BF393BD1EA23C35CAD53C7246BC7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ mAbook Audiobook Player v1.0.9.6 [Ru/En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5D6CF5085C3765F411A02F0D26E182BC5C8460F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:1A62E5C4C607476170BD6AB87A1C5074E914A98A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD6A353B766DBCD9FB1AEE018F8DD07B8B81B5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Mass Effect 3 (2021) [Ru/En] (2.0.0.48602/dlc) Repack Other s [Legendary Edition
 ```bash
 magnet:?xt=urn:btih:34122719EDB897E914B2BB97985F35BD1D6FFF6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Peers.TV устанавливают даже те, кто говорит, что
 ```bash
 magnet:?xt=urn:btih:9CDF8DB5F5F8179D92C14E87FA2CB795D440802E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

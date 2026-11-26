@@ -19,8 +19,7 @@ Ironsight - это многопользовательский шутер, в к�
 ```bash
 magnet:?xt=urn:btih:FD5387562DD14F369A1472168541DDA577CA6B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

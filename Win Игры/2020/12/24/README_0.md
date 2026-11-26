@@ -19,8 +19,7 @@ Christmas Carol / Рождественская песнь (2018) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:E0377C8E1F08F89F501D3DF02627D3D250CA9F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Christmas Spirit 4: Journey Before Christmas / Дух Рождества 4: 
 ```bash
 magnet:?xt=urn:btih:FF0A15323D582500499C809AC24B277109DA88BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

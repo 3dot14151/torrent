@@ -19,8 +19,7 @@ BIOMUTANT - это игра сочетающая в себе постапока�
 ```bash
 magnet:?xt=urn:btih:F3A69C620CC0ED057AE57D1579F8A0DCA62DD8E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

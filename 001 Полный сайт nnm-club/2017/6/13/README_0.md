@@ -21,8 +21,7 @@ VA - Trance Hits Top 20: 2017-06 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:1474CFEF542B4DA0368C1D1218D481C5B4FD473B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Best Of Deep House Vol.04 (2017) [MP3|320 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:6D86AE0CF6EBE60ACBCB819F4F1D130797536406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ SoundSpirit - Love and Other Drugs (2017) [MP3|320 Kbps] <Electronic, Psy-Trance
 ```bash
 magnet:?xt=urn:btih:FF83B3238EA6087410D32F3191B2AEF63CFE8403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08D20E36A6408BEE59623C67BE8E5D135B8241C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Network Speed Monitor - очень простая утилита для отоб
 ```bash
 magnet:?xt=urn:btih:908A0E2BECF2B756819E1CD45E507763A55CE639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Eff Dst - Blackout (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Indu
 ```bash
 magnet:?xt=urn:btih:9216D1AB4CC3964E1ED048EF7E5D837C75191DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Crazy Lixx - Ruff Justice (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CBBDD4E6DDB77647FA84A62A8036EF5DBEF768AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Nemesis - The Day of Retribution (1984) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:1EF80D9081B320A8E79D4A4735E05FEE99B8938A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2720E16E0F88F5562B9C1AF4546CD41987E4815E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:A99775491FF5E1C47894A14BC60F82D5F34D0275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:555F30800CC00889252276E836DF4CC1E45CE2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F1889BFDAAB4AE1733712FE2208794518671F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ VA - Ulitimate Funky House (2017) [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Groo
 ```bash
 magnet:?xt=urn:btih:32490BDDC096F21E8B6F12D499830EEB9CA40D2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D39A8DBEA426B8306223A712D3B0E6D81BF8DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ Elton John - 17-11-70+ (1971) 2LP, Remastered, 2017, UMC [MP3|320 Kbps] <Country
 ```bash
 magnet:?xt=urn:btih:0A1A33AB03EA3B0E776E0DC812FD10075A49DD78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ VA - Best Jazz Session Ever: Excellent Essence (2017) [MP3|320 Kbps] <Jazz, Inst
 ```bash
 magnet:?xt=urn:btih:6CEC591950111C1C41D0D54E3A85D7833C5BA49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D19FFB2CCE7DA8F99CCCA8F78D990297914180E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Suzi Quatro - A's, B's & Rarities (2004) [MP3|320 Kbps] <Rock, Pop Rock, Hard Ro
 ```bash
 magnet:?xt=urn:btih:F74E878A32746AB22E535CA39F7975FB6671F786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:7760D6EA163A9C05A53644C1DF0430633867C8D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:FED0F11AC3E2F0EFDC28B0922EEDC2300D3D63E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:2C069580416D79333C23EE4CE1BE142D622949EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED57F7E0C681792B5CA3A1DAC1264D414B348B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ The Romantic Strings Orchestra - Thanks For The Memory (1995) [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:4F4636160286BC03F56C69C8AD8BCF7BE2E4EA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ Robin Schulz & David Guetta & Cheat Codes - Shed A Light: The Remixes Part 1 (20
 ```bash
 magnet:?xt=urn:btih:3E1ECB94EF390C29C740A360AAA8E1857205548A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Opera 45.0.2552.898 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:191BA29CBB50A9209D4AFDF5F9A6045036E85D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ BBC: Viasat History. Бразды правления. Балет на лошад
 ```bash
 magnet:?xt=urn:btih:75EEBF1642C2990F6BAB6902C56E7044A6EA4C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

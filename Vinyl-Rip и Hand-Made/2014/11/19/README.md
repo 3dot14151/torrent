@@ -28,8 +28,7 @@ Arcana - As Bright As A Thousand Suns (2012) [FLAC 2.0 24/44.1|tracks (DC-CD)]<E
 ```bash
 magnet:?xt=urn:btih:270DBDBF2F6DFCE9DD839AE30533149F4A9551F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

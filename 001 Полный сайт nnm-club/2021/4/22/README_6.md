@@ -19,8 +19,7 @@ Menuwhere 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:A9AE0E081DC67294475E33C2CF421ED48CFF4353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PhoneRescue - полезное приложение для восстановл�
 ```bash
 magnet:?xt=urn:btih:8A127E16A1C1A0493FBB014060C2D063E5291B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Iconographer Mini был разработан для macOS 11.0 Big Sur, что�
 ```bash
 magnet:?xt=urn:btih:DD19E6E974924856C64C92BB34B45B2FA4FDDF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Farrago предоставляет лучший способ быстрого в
 ```bash
 magnet:?xt=urn:btih:26E02DC32C776704236FF0F2F345804702121354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Lantlôs (Lantlos) - Melting Sun (2014) Limited Edition [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:D2DA18D10675A29000C795EFC865747A6C9E900A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Lantlôs (Lantlos) - .neon (2010) [FLAC|Lossless|tracks + .cue] <Depressive Blac
 ```bash
 magnet:?xt=urn:btih:33E7CE4DAB317DD98043E2C9769A8C71A3E61345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Repix Pro - универсальное решение для всех ваших
 ```bash
 magnet:?xt=urn:btih:11848CC2D6F288036477F353B2A3CBF92C1F4B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ PeakHour идеально подходит для мониторинга ваш�
 ```bash
 magnet:?xt=urn:btih:01B25A5803926EC936E8051412714DA5797A6804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Nova поддерживает отдельные задачи сборки, за
 ```bash
 magnet:?xt=urn:btih:ECE8D90AE473D95727AF5BEF6FD0DEDFF7AF8302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Lantlôs (Lantlos) - Agape (2011) 3CD BoxSet [FLAC|Lossless|tracks + .cue] <Depr
 ```bash
 magnet:?xt=urn:btih:F1F2D5A1859E594F551B9CA885FB569004097317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Rage - Speak Of The Dead (2006) [FLAC|Lossless|image + .cue] <Power Metal, Speed
 ```bash
 magnet:?xt=urn:btih:146754E4512EF3C6690792D1FE97CD8FC7D74233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Cloud Outliner позволяет с легкостью создавать ау�
 ```bash
 magnet:?xt=urn:btih:2588D44878409EA2EEBBA5C0DD2874D22D2DA43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Meade Lux Lewis - 1946 - 1954 (2005) Classics [FLAC|Lossless|image + .cue] <Boog
 ```bash
 magnet:?xt=urn:btih:695178B6212A156DF72D90F170B64A17DB5BB2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ GoodTask — это элегантная и мощная «напоминалк�
 ```bash
 magnet:?xt=urn:btih:40A1967196990CCFBDA8E5FBE985666D20EDAC68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Rumpus - простой в использовании, высокопроизв�
 ```bash
 magnet:?xt=urn:btih:3F41E94E56A8AC40540868B316943D67A4121A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Lantlôs (Lantlos) - Lantlôs (2008) [FLAC|Lossless|tracks + .cue] <Depressive B
 ```bash
 magnet:?xt=urn:btih:02903DA595C581B339EC8D1AAC43E93588BD7186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ VA - Beatport Electro House: Sound Pack #277 (2021) [MP3|320 Kbps] <Electro Hous
 ```bash
 magnet:?xt=urn:btih:C52F1607DE9E724569CE966C8A6450459833EEAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ FireWing - Resurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Me
 ```bash
 magnet:?xt=urn:btih:21BA068AB84FE4BEF1B8FA8A33F7FF18F73BC133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Dark Mode for Safari 3.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:26DA00AC57541A2383A863E55EABAF78FBEC9301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Live Home 3D, преемник Live Interior 3D, является мощным, 
 ```bash
 magnet:?xt=urn:btih:22C6657E50D18945BCFE3BBC5AC89EB5193FDDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ HitPaw Watermark Remover 1.1.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DC08F0BE296EADD77CF03B3F064A071FC8FBEB3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ Capture One Pro один из самых мощных профессиональ
 ```bash
 magnet:?xt=urn:btih:41A4F4807A78C5E48161808E7A5861B6265768C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ Maria Healy - Journey Through The Years 2007 (2021-04-17) [MP3|192 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:1FA0BF86CE7862911FDC063F6BEBB20834FBFB8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ Antony Kalugins Kinematics Orchestra ( Анатолий Кулагин ) - Akko 
 ```bash
 magnet:?xt=urn:btih:D1070AA7B46BDB57AEE438430208FA1E1BBAEBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ Hardbone - No Frills (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Hard Rock'n
 ```bash
 magnet:?xt=urn:btih:C87E6B194CC3574F55387C917B68F37303D3F71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C936C4C15620E990BCE1B3F43F8FE8D1A925D7DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

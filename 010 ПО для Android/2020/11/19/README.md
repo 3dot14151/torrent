@@ -19,8 +19,7 @@ The Meridian Inside это приложение, с помощью которо�
 ```bash
 magnet:?xt=urn:btih:DE4F4919D27F5F986881A24779A958E9E27F9FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Medativo является одним из лучших приложений по
 ```bash
 magnet:?xt=urn:btih:65867352034D884BAD499BDBC9899210AD09B362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

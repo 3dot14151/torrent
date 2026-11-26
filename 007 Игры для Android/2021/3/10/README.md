@@ -19,8 +19,7 @@ STAR WARS: KOTOR II - продолжение культовой ролевой �
 ```bash
 magnet:?xt=urn:btih:C0F0CAE735A7B0101A8AE1296F576EAD6C8352DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

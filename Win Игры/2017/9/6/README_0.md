@@ -19,8 +19,7 @@ Mystery Solitaire: The Black Raven / Мистический солитер: Че
 ```bash
 magnet:?xt=urn:btih:0057103045A5C2EF1D4C4608A13767936C7ED130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59D629F9FB67A107B9C0EDC06147EEA5AEE1EE19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Don't Knock Twice (Не стучи дважды) — игра-хоррор от 
 ```bash
 magnet:?xt=urn:btih:7BDC2FEFF10DE1F708CCDB9B88DA576EF173DF0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

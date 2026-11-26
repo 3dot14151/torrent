@@ -28,8 +28,7 @@ Kayser - Read Your Enemy (2014) [APE|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:CFE0FF6FFB4621F9A8BB050531FB1F906106C21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Nick Miller - My Memories (2013) [MP3|320 кб/с]<Classic rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:0FDEC57BC1597EBFE54FD9D5364065A0AA65E232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Ancient Grease - Women And Children First (1970) Remastered /2003, Expertise Rec
 ```bash
 magnet:?xt=urn:btih:79EE2424B7C901F189E6B08A41E91E43A1E3F28A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:1E49FBDA7354D8234AD421BBFDF2D8D7E4B469D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Manowar - The Triumph of Steel (1992) Released, 2011, Back On Black [FLAC|24/192
 ```bash
 magnet:?xt=urn:btih:47C87BE451132D4C81AC6EB64C87F99CBFDC7461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

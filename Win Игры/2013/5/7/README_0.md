@@ -19,8 +19,7 @@ Portal Of Evil: Stolen Runes Collector's Edition / Врата преисподн
 ```bash
 magnet:?xt=urn:btih:00F88D1AFD1F1BFD9A248EDDCB260F95A5FB2FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

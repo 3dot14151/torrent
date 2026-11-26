@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:53106AD9D2BE2ED6442BC22EBABDEB14936B559C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Black Books — небольшой книжный магазин в Лондон
 ```bash
 magnet:?xt=urn:btih:D8E396CB0F6E0102E2FED75B57315147FA72FA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Black Books — небольшой книжный магазин в Лондон
 ```bash
 magnet:?xt=urn:btih:AF709CCEF564F2A8D4DCBBCEC3A1B51F359746BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

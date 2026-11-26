@@ -22,8 +22,7 @@ Overland - Diamond Dealer (2009) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 ```bash
 magnet:?xt=urn:btih:6FEACC76D964D132FA3CA5A196B093B4AB539F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Quireboys - Halfpenny Dancer (2009) [FLAC|Lossless|image + .cue] <Hard rock,
 ```bash
 magnet:?xt=urn:btih:4940C7E015588EFEC2971EB5331043C2944DA53A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dark Lunacy - The Rain After The Snow (2016) [MP3|320 Kbps] <Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:4495B656BC7975257B0092295F5548C22DD6A4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF6811932FA6A4EFE465A039E4D8C4BE7FF1B496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sting - 57TH & 9TH (2016) Deluxe Edition [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:BCB2F4BA4CEE44BB29AA3F373DEBA43EEE35E516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D7C4B2D3B3292219295C0FF8AB0856271B3562C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Emerald Valley - это постепенное составление целос
 ```bash
 magnet:?xt=urn:btih:3E4F53EB3FF88ABE5A2A38493F35E8060BE0D5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94D00142D30FC471C447F5D7E16C1362CCBCD500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Poly Plaza ULTIMATE отправляет игрока в открытый гор
 ```bash
 magnet:?xt=urn:btih:C33BF383A70077671F263C79D268A9B079E5967A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.2.2/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A057B3ADF33B6D5E1D0CE6DA2E228A0FE55C677C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pathologic 3 (2026) [Ru/En] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B8FFE277C113493F76D6B48D95FD191FDCCBEC9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

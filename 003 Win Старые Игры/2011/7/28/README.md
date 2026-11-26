@@ -19,8 +19,7 @@ Gun [Ru] (RePack) 2005 | R.G.Spieler
 ```bash
 magnet:?xt=urn:btih:2280588865883C66CAA74FB44E6328A782966B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

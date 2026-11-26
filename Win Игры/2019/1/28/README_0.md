@@ -19,8 +19,7 @@ Haunted Manor 5: Halloween's Uninvited Guest (2018) [En] (1.0) Unofficial [Colle
 ```bash
 magnet:?xt=urn:btih:FBFF7B3EF6FDE972421D444AE573FA94BDA4DC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark City 2: Munich (2018) [En] (1.0) Unofficial [Collector's Edition / Колл
 ```bash
 magnet:?xt=urn:btih:66391E2A3C6A201798FBDEFF32B249789C48B1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Queen's Quest: Tower of Darkness / Королевский квест: Тёмна
 ```bash
 magnet:?xt=urn:btih:4E23575C8FBCF81A6D6145475A940F6FD217BC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) License PLAZA [Gold
 ```bash
 magnet:?xt=urn:btih:BB68E0DC9300A52D8DD4F8A34B41C401B7429B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

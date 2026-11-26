@@ -19,8 +19,7 @@ Last Hope Bunker: Zombie Survival бросает вас в постапокал�
 ```bash
 magnet:?xt=urn:btih:B260EB7FB8A36F2C3524B294583542A2CC13D856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ In Stars And Time - увлекательная РПГ, которая заста
 ```bash
 magnet:?xt=urn:btih:66F5A56DBDCF85AA6F133D5963E283607A6AEF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Monsters Domain - фэнтезийная игра, сочетающая в се�
 ```bash
 magnet:?xt=urn:btih:93119CBDD24933BA46059365FFC756C6834F4259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dishwashing Simulator – в этой игре поместилось сразу
 ```bash
 magnet:?xt=urn:btih:2A1D9AAB031D47E9A3AB874954B9C1D7FE5FF6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hydroneer – это симулятор добытчика золота и др�
 ```bash
 magnet:?xt=urn:btih:F24C0D3FF81A9B6D94300C2BEE70DD903C54BF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

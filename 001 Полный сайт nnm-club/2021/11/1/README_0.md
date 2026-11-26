@@ -19,8 +19,7 @@ IRC (англ. Internet Relay Chat) — протокол прикладного 
 ```bash
 magnet:?xt=urn:btih:D45F49C4B188288F0777273954D1E28DB957F864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Chillout Your Mind, Vol. 1 (Ultimate Chillout Collection) (2020) [AAC|~317 
 ```bash
 magnet:?xt=urn:btih:CD3737F703A5B4D8B482D1E1DFEDA1F92AA93271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFC9B1654851E4F562E2CF66C4B41289B6C49470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ ProFind 1.9.2 fix [En]
 ```bash
 magnet:?xt=urn:btih:22E3C92B55356409F46E66CBC8D691117E2EC1E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ PDF-компрессор предназначен для сокращения р
 ```bash
 magnet:?xt=urn:btih:7B968D38C08C509017879D2327A37B404FF26484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Sonus Orbis - Anthropoid Notion (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 ```bash
 magnet:?xt=urn:btih:EBA6AB30D0AECB64430D93D2BC88E5AE094676AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ PopClip появляется на экране при выделении мыш�
 ```bash
 magnet:?xt=urn:btih:C46F810E98DE585CDEBCDE8BA856800E453962BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
 ```bash
 magnet:?xt=urn:btih:7018D77EBA5BB74BDA1A4C9A9B4C4622EBBA3697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Inner Core - Dark Chronicles (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 ```bash
 magnet:?xt=urn:btih:FED4EFE605A470C3F251BA70F82135DC23842A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54A13836C8DDC885B8510CC7136620A220D90E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Jonathan - Jonathan (1978) Reissue CD, 1993, L+R Records [MP3|320 Kbps] <Electro
 ```bash
 magnet:?xt=urn:btih:1DEF2BCA534F41D06FE42E6201D5EF4FF9997C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:B4F3C6B79DA52855B0582698AFBA3761BEB49D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Milano 84 - Monochromatic (2021) [MP3|320 Kbps] <Italo-Disco, Italo-Pop, Nu-Ital
 ```bash
 magnet:?xt=urn:btih:B9277A62E809885BA287410E2A635B72FCDC29EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ OnyX 4.1.0 for macOS Monterey 12 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:17BB07FE75CA30AEFD19753A5A2C5598BB686084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10AF90751D0C513EBED0794A3A61A91CB2FD115F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:70FCB43D3F119428BFFEB4FFD7A87E9626B35E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Serial Box & SerialSeeker/iSerial Reader 2021- 11 [En]
 ```bash
 magnet:?xt=urn:btih:33E5C6910FB8156A5F993DD043BD4C2963390CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 ```bash
 magnet:?xt=urn:btih:314F04B3B762B48B7F83F7656B0D2FD1F55CE377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ QuickRes 4.9 [En]
 ```bash
 magnet:?xt=urn:btih:FD80BB866644D53EB45F4FC851C8864B9EE88EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ Milano 84 - Monochromatic (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Ita
 ```bash
 magnet:?xt=urn:btih:2D9C2926943DD1A5B1A512D2BB112DF2D06BCC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C928EF2C7CDA8E1657DFE56CB8C096781F0C46B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ Java SE Development Kit - программное обеспечение необ
 ```bash
 magnet:?xt=urn:btih:C46961A746C20414AAB7ACF2F12180B5FA031D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ VA - Retro Halloween 2021 (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
 ```bash
 magnet:?xt=urn:btih:4A3E9F3664C62DB37675B6551221EE9E02F8947B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
 ```bash
 magnet:?xt=urn:btih:A12B7720D3136EB19F7FCC92ACEEEFB4E5AD042B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13FBEA62515FD251917B10ED0CD11BB6C1BEBBAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A61E90221A7FB7AE5A94622C4346926EB199D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

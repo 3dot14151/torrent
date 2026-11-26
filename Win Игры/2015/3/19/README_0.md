@@ -19,8 +19,7 @@ The Price of Immortality - уже седьмая часть увлекатель
 ```bash
 magnet:?xt=urn:btih:2AC898463715AEA6E6E96D0A71E823536824E7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil Revelations 2 / Biohazard Revelations 2 (2015) [Ru/Multi] (1.3) Li
 ```bash
 magnet:?xt=urn:btih:8B49343D84CAA494111839F25FA95269E52ABEE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Cities XXL предлагает игрокам окунуться в строи�
 ```bash
 magnet:?xt=urn:btih:42A573C4633C246DE3FAC11D279E41DD51522054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Alien Rage: Unlimited (2013) [Ru/Multi] (1.0.9084.0) Rip R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:BED9E23C9C3A21D13F078A4F92677DC35B753657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Child of Light (2014) [Ru/Multi] (1.0.31711/7dlc) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:18F16BAECC576BD07B3EE5B89C36C6095DCE05FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

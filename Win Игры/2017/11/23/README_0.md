@@ -19,8 +19,7 @@ RollerCoaster Tycoon Classic (2017) [Multi] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0574027792CAFCE4832B1CDC42FA857356745732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Awe of Despair - игра жанра survival horror, которая стави�
 ```bash
 magnet:?xt=urn:btih:FA56AEE71D7350529AA23D7928070F8BC623ECA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PayDay: The Heist (2011) [Ru/En] (1.22.0/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:B324431E255D713C0ECD47F33BC0200A75A82E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Democracy 3 (2013) [Ru/Multi] (1.31/dlc) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:41E3C5B94A7D3AA85DD3532076661238B57734E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

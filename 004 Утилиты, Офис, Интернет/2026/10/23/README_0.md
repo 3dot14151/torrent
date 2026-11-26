@@ -19,8 +19,7 @@ AB Download Manager 1.11.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B57412FCE87438FB0623BC40003F2D375243BC5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ UsbTreeView - маленькая портативная утилита, реал
 ```bash
 magnet:?xt=urn:btih:7D9433A00D4873F96BE565F694AF9A0148A82AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ EaseUS PDF Editor Pro — многофункциональная програм�
 ```bash
 magnet:?xt=urn:btih:FB6D5125A77A319025A30E6C48F32D6B9CCEC567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Transmission, в отличие от многих других BitTorrent кли
 ```bash
 magnet:?xt=urn:btih:3538619B688372B3F7598FCA8B945F300B22A388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:0B2FD39BE938D2BA024155BFC97B068A56016677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Total Commander – самый популярный файловый менед�
 ```bash
 magnet:?xt=urn:btih:BBC6039627933F2739DDE42F3CA069121768E3A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Total Commander PowerPack by SamLab — это расширенная сборк
 ```bash
 magnet:?xt=urn:btih:5E6A3724D353FB775994B493363CA8D2DFD4D684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:25ED56C38E21FB2F73FACF86686FAEAC6C468AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:F3E736146E771DED78E606318E9524647A5ECD2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:A4DCB26AB7EEAEA334BF210537655CF6D4540D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ GS Auto Clicker — полезный инструмент для автомат�
 ```bash
 magnet:?xt=urn:btih:2630234C9604515B18CB35D93969BDFCB5AD1B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Rowel 1.0.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5969DEE343302C9879E5A7E0CCCE5A4D530D2A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

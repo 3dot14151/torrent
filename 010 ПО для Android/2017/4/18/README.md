@@ -20,8 +20,7 @@ Root Cleaner 7.1.0 [Ru] - Чистилка
 ```bash
 magnet:?xt=urn:btih:D8C98FB5DEBDACB70FE2FBB21B09FBE2AB0C887A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ BusyBox Pro 55 & BusyBox Free 50 [En-Ru]
 ```bash
 magnet:?xt=urn:btih:330567C867D6140D3C3802324CF15486DDF7E431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

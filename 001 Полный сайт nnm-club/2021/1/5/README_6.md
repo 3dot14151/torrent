@@ -18,8 +18,7 @@ Anno 1800 – возглавьте промышленную революцию! 
 ```bash
 magnet:?xt=urn:btih:D4B3FF9766A938EE413DD9D153DC02D04E96DB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:55D9C69AD116D3D5503B5923FE0AAD62DCD4EF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C21CE378EE0B5FF271DDF1B6F06F43213A22F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tenchi Muyou! The Night Before The Carnival | Omatsuri Zenjitsu no Yoru! | Тэ�
 ```bash
 magnet:?xt=urn:btih:5E339B35A60DACBB37C7595AE63A64DC3ADC1F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Master for Mi Band — Замечательное приложение для р
 ```bash
 magnet:?xt=urn:btih:5AD0139D856D01BEDEDF41130EEF9C8D558B1C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Pumpkin Jack — это дикая, но симпатичная 3D-игра, в 
 ```bash
 magnet:?xt=urn:btih:A32432323E73633C18E2ED36B27CACED77A430EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Tonikaku Kawaii: Fly Me to the Moon / Tonikawa: Over the Moon for You / Крас
 ```bash
 magnet:?xt=urn:btih:9EAB966D0750E3CB344503A2AF5A4CD7265E12A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Papers, Please (2013) [Ru/Multi] (1.2.72) License GOG
 ```bash
 magnet:?xt=urn:btih:E797EF809E65E768B66E54E955AAA8A50EA41B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 ```bash
 magnet:?xt=urn:btih:602494DE16EBF153B032D5020CB553D100ABE937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.5.113/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:56A537460F1AC36C4EE68F9E35032254719F629F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:475A4ED5EA8D42A1EBC46F7A384C9FEB0D83407B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2021.01.05 [En]
 ```bash
 magnet:?xt=urn:btih:9C2DE8365D4E5E0806CE3CE7E018AED8373105C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Parallels Desktop 16.1.2 (49151) для Mac
 ```bash
 magnet:?xt=urn:btih:6C01C6BF1CA870C290AA3F4221F63C86265C8098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB20545B5190E02938A21232773E294EA71D85E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.07/dlc) Repack xatab [Deluxe Edition] (обн
 ```bash
 magnet:?xt=urn:btih:84B6807C9621BB181D6720942D0E04928BF57320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEAD1BD1BB2D72DB6B524342994CA61CD0E89BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Star Conflict - компьютерная многопользовательск�
 ```bash
 magnet:?xt=urn:btih:E7C41772E88558439FC705C25E4FAC8337930E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:471D441A2E50C014DAD07C6ED274F51B983DDD28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Subtitle Studio - единственное решение для субтитр�
 ```bash
 magnet:?xt=urn:btih:9FA90118F1E5505D3C8FBCFA2EFA9E2F31932B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ CollageIt умеет (   Читать дальше...   )Тип издания:
 ```bash
 magnet:?xt=urn:btih:03B83E55AEDA155A2326D5B9465A6332E38E3C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:0D526705D8ACD012BE51699A4B2A8BEF17324D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ Oscar Peterson - Oscar Peterson (1951) 1995, Just A Memory Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:83C06B6B45A3421A927E8D32A40B3BFF9633EFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ Photo Size Changer Premium 1.1.1 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:58A06D720391B7E37372D2D60C8E350D5FEA0195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ Excelsis - Bluetmond (2020) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:C445EDEECC3BAE8B51C7039BCF01333A2A8E4609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

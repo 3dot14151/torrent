@@ -19,8 +19,7 @@ Linux Mint 21.3 Virginia (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Editio
 ```bash
 magnet:?xt=urn:btih:2E5567FC9D73EAFD66B8109E5C48C32D415D8E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

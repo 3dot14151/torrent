@@ -22,8 +22,7 @@ Beth Hart - My California (2010) /2014/ [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blue
 ```bash
 magnet:?xt=urn:btih:B33EB41B1872DB0A0154020F4522E08B47ED7D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

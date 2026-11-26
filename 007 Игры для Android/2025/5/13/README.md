@@ -19,8 +19,7 @@ Darts Club – это многопользовательская игра в д�
 ```bash
 magnet:?xt=urn:btih:169ADA6F524667F125D4817C90ECC03F39B6CEA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

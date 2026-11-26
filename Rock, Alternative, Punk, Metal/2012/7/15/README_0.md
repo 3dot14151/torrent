@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:69BDF23B75108E4637CB48F9F32F9FA9A0C5623E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ VA - Jim Beam Authentic Rock - 50 Pub Jukebox Anthems (2012) [MP3|320 кб/с]<R
 ```bash
 magnet:?xt=urn:btih:B559AC3CD2340735F37BB7FB26CE87B779104560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Kreator - Phantom Antichrist (2CD Ltd Deluxe Edition & 1CD Japanese Edition) [MP
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ ZZ Top - Forty Legendary Hits (2011) & Texicali EP (2012)[MP3|320 кб/с]<Blues
 ```bash
 magnet:?xt=urn:btih:AEAD2FF1886FCD39C824681025BA44B5ECBE287D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

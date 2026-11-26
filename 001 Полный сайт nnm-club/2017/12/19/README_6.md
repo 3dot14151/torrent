@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:546E65F9BF6ECC5A635E450C160A6977D5BE0D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ralph Moore - Furthermore (1990) Landmark Records [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:FBDA0F6D156620AE893444A051D16D549A0D4746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6A766D3C5E84C429150C4AE4E0D3FF2EAC87B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tim Warfield - Tim Warfield's Jazzy Christmas (2012) Self-Released [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:2AD188AA05703C82F494D309B977FC7BCAB45511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F754180650088F421220F7FE622E73FA377E5C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1BEC0392E4F0698B1D90DD4D5191CECD0F3230F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Coil - Windowpane & The Snow (1995) Threshold House [FLAC|Lossless|tracks+.cue] 
 ```bash
 magnet:?xt=urn:btih:CF7D4B16BD12BFFA7D2A5347B0F032284A090BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Amazing Vocal Future Bass 2 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
 ```bash
 magnet:?xt=urn:btih:ADAE1D5A5967C1DB9F909D9024037FE0B3188C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Robert Rich - Foothills: Live On KFJC, 28 May 2014 (2016) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:69DC8432716AE696F8C8434E6742FDB399F64DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Toots Thielemans - Collage (1980) 2017, Sony Music [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:F29FF4DE6297B30075D5E5EC87365A54021BCE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Destination Chill House (2017) [MP3|320 Kbps] <Deep House,  Lounge, Downtem
 ```bash
 magnet:?xt=urn:btih:0BDD0A1992EB387986D008B1889C9708AA350F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Ibiza Winter Lounge Session (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:236ACD02351DDF45AEB508619C82832B007A5354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:954B0A133749E3BCDEC69658E22D4469BF8DF8CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4FCE3241360D0C0E9D62BC21296B4A44635D531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.16 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:1AF6F1733D34DF29C0353023D3CE08C4FEFB2197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Lyn поддерживает все популярные графические 
 ```bash
 magnet:?xt=urn:btih:749562F580ABD0558E52CF184C8E21DD119800A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Herb Alpert with Symphony and Choir - The Christmas Wish (2017) Herb Alpert Pres
 ```bash
 magnet:?xt=urn:btih:B69470A0A06A48A207F63F8735235DCA49459C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ VA - Sunset Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:DE8E8754A591BF0F4FB24A603D51BED3C69A1D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ VA - Innovations Deep House (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:1F0F903FA864485BB1D40465DF618761121E761A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ VA - Deep House Collection vol.148 (2017) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:8EE4B9B05F978DDCFDAE82EFDFBD0B1046E9EF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BBF3D59FB92AD0D3509B96842AFD904AA9D242B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ VA - Bodybuilding: A Decision For Life (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:B72B274EB5ED29BB25C1408438298CB94637E78A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.18 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:EB8E8D4A3A12E7DBEA8E1DFE796E4BD6A5818D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ Steve Angello - Genesis:
 ```bash
 magnet:?xt=urn:btih:8630CB767EE29D84B004741315A3B97A4AD5BCDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ Epolets - Діти моря (2017) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:874721687782AF3E52C1C5F5B357F9C5BCC03A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ VA - Planeta Mix Hits 2018: Winter Edition (2017) [MP3|320 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:134476B228824CA0E92862529B1FE7545197BCEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

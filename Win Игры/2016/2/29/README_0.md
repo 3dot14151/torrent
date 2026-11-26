@@ -19,8 +19,7 @@ Mysteries of Horus / Загадки Египта (2015) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:1F2B9DF1C4839E13A88AF881F06D7004BBB377C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Taken Souls. Blood Ritual / Украденные души. Кровавый ри
 ```bash
 magnet:?xt=urn:btih:5549ADFC821AA6E120F57482C384F8C34088A555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ One Upon Light (2016) [Ru/Multi] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:C51CFFF8C55B7872D1ECE2E2E8ADDD1ADD165F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

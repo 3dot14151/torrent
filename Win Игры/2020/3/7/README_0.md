@@ -19,8 +19,7 @@ Cathedral (2019) [En] (1.2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C43EB5833B6810F1F236DB8BDBEA59BFC65A0EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LUNA The Shadow Dust – это великолепный прорисованн�
 ```bash
 magnet:?xt=urn:btih:AFABEF8DCB16D9ABD58512496AB6F4BA1CEA20DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battletech - это пошаговый ролевой экшен с робота
 ```bash
 magnet:?xt=urn:btih:D9D0B8DF17E128418CA9768D185E75382429A4B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sable Maze: Sullivan River. Collector's Edition / Сумрачный лабир�
 ```bash
 magnet:?xt=urn:btih:E1E884C20E6F6E7101E471E49E72A7B88854F3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sable Maze: Sullivan River. Collector's Edition / Темный Лабиринт:
 ```bash
 magnet:?xt=urn:btih:8AAA99D2A2D8428FBD7FCBE6C55B7DA936544D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Tony Hawk's Pro Skater HD [Ru] (Repack/1.0.u.1) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:9F4F7FD498061F8778113961005A98DF84F487B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Madden NFL 08 [En] (RePack/4.0) 2007 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:AC1CC10A4AFD926C94FC98A7610F981D1F04366C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Crash Time 5: Undercover продолжает гоночную серию Crash 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Yuletide Legends 3: Who Framed Santa Claus (2018) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:F6A9E2D67D1532AC33EFAEE8C1983FD1FE68C350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Christmas Wonderland 9 / Рождество 9. Страна чудес (2018) [R
 ```bash
 magnet:?xt=urn:btih:57DFC4A4D734927F96442EA30D84CF338D235E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sundered – ужасающая борьба за выживание и здра
 ```bash
 magnet:?xt=urn:btih:7508F7EDAAB26634F68826B1AF51D4B617EE0CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Iris.Fall – приключенческая головоломка, выпол�
 ```bash
 magnet:?xt=urn:btih:D496B5672699090DBAB294B803302881A2B0A332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Below – процедурно генерируемое приключение �
 ```bash
 magnet:?xt=urn:btih:DCCA03394AE8D691655A9C4CFAB08F72E8A705CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ VIKINGS WOLVES OF MIDGARD™: Рагнарек. Легенда гласит, ч�
 ```bash
 magnet:?xt=urn:btih:1C5247D6C40B6E26446CF8172D9C3A2112DA21A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Kreed: Battle for Savitar / Kreed: Битва за Савитар [Ru] (L) 2004
 ```bash
 magnet:?xt=urn:btih:11790C24CC1B9C75964D56F1D0125651F971D3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Matrix: Path of Neo / Матрица: Путь Нео [Ru] (RePack/1.2) 2005
 ```bash
 magnet:?xt=urn:btih:EF7990A868B5314DAD5A72305E6BA7E05EF7CD5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

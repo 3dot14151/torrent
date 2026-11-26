@@ -19,8 +19,7 @@ Nevertales 4: Legends (2015) [En] Unofficial [Collector's Edition / Коллек
 ```bash
 magnet:?xt=urn:btih:3E7BD5EDAD772F7DAB971D016C2F40C86EABC08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sinister City (2010) [Ru/Multi] License PROPHET
 ```bash
 magnet:?xt=urn:btih:F45A5D27822C71F761F9E2F635F26BAC04370F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

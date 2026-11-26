@@ -21,8 +21,7 @@ VA - Славные парни / The Nice Guys (Original Motion Picture Soundtra
 ```bash
 magnet:?xt=urn:btih:4DC7D47A3BB1DA7B2772A02ED119844D7069D528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Музыкальная энергия страсти. Популярный 
 ```bash
 magnet:?xt=urn:btih:16EAF57E9AAF43F1256843D621170BE9F7EFC730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B91D78FD8B88CBED67E193BE8FF8CDA7713E5208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A018E66FFE73B075FC73435931EDAF6FCAD70C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Chillhop Essentials Summer (2016) [FLAC|Lossless|Web-DL|tracks] <Hip Hop, J
 ```bash
 magnet:?xt=urn:btih:C8A5CAA8CC486A54F50FB21635E09EBC21A8C91D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Baidu Cloud 5.4.5 [Cn]
 ```bash
 magnet:?xt=urn:btih:6AB6A7E48607AED9150EA3D604408CDEE4024577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Symphony In G Minor
 ```bash
 magnet:?xt=urn:btih:492CCE400A10D9C210A8A77498844565837FB0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D214FA418E853214632FCDE76DB367C7F29408BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7D16800A69BF187DC826D7FA88F4025C56F4D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ LINE - это приложение, позволяющее делать бесп
 ```bash
 magnet:?xt=urn:btih:86E62FC8A81BD65A8FE8C139BD2DBDB816208366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Discovery. Техногеника. Реактор ВВЭР - 1200. Самый м
 ```bash
 magnet:?xt=urn:btih:BC29F49090D64F71C63C115FA7722A8122D542DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ VA - 80s Super Pop 100 hits (2016) [MP3|320 кб/с] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:D06B65991FB34297A15B97577335FD7B7A074782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Londonbeat - In The Blood (1990) [FLAC|Lossless|tracks + .cue] <Euro House, Synt
 ```bash
 magnet:?xt=urn:btih:C4CAD0173D829B4617E249884036B3E5B9D453F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ VA - Guitar Collection 5 (2016) [MP3|320 кб/с] <Instrumental, Acoustic, Blues
 ```bash
 magnet:?xt=urn:btih:0F40BFA95CC9D194F46037F519E54B5B7FC2B794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:482DE042D2FA76DCD8F14D9BED6391B4C6448753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Sonata for solo violin No. 1 in G minor, BWV 1001
 ```bash
 magnet:?xt=urn:btih:1FAA936D6884DD02E3064C3D61A1EC6085019015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1780BBECDBD81ECB795B65DCC699B73ECF65CFAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Sonata for violin & piano No. 1 in G major ("Regen"), Op. 78
 ```bash
 magnet:?xt=urn:btih:391F6DDCF7D58373D8C7659D58E36673C00AE999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ Stupid Zombies 3 - продолжение интересного проекта 
 ```bash
 magnet:?xt=urn:btih:34761E2EED398AE27631E55505C1B0F6623F368E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDC0FD7BB372E1DBB299298884DE82DF7C72E5F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E49C92E5FB7BD6021E9C73F98CC117C48AA6BDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A59731ECB4A657B360C33868DD19C5F11EC5C51D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Red Hot Chili Peppers - The Getaway (2016) [AAC|WEB-DL|256 Kbps]<Alternative Roc
 ```bash
 magnet:?xt=urn:btih:4BDD363498969F83BF909BF9264DC6B0AFAD40E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1824ED8DA20FB0DFB988B0D76F064C6DF425722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ FastStone Photo Resizer - программа для различных мани�
 ```bash
 magnet:?xt=urn:btih:068DAAD954BA5F15424C48908B0A1CC3BA71359F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BCE3769278647B41297271F9A87B63E6EAD6E40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

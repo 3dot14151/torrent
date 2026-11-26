@@ -28,8 +28,7 @@ John Hiatt - Collected (2012) Box Set, 3CD [MP3|320 кб/с]<Rock, Folk-rock, Co
 ```bash
 magnet:?xt=urn:btih:65DFB63D26304234098C1B836239C10F04972E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17F731083CE491DB3740AB30F89E990F2A8DA8C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ CD 1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Smash Into Pieces - Unbreakable (2013) [MP3|320 кб/с]<Alt. Rock, Alt. Metal, 
 ```bash
 magnet:?xt=urn:btih:34CC5815F4A249BDE57F28FB979573ABE2616D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Transplants (side-project Tim Armstrong (Rancid) и Travis Barker (Blink-182)) -
 ```bash
 magnet:?xt=urn:btih:2FA5516B520F6AD0699C65F6B09D6678D89D395F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Hollywood Rose & L.A. Guns - The Roots of Guns N'Roses (2007) [FLAC|Lossless]<Ha
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Sirenia - Perils Of The Deep Blue (2013) Limited Edition [MP3|320 кб/с]<Symph
 ```bash
 magnet:?xt=urn:btih:B59C3987D94B9AAD492385D5C7D0765E8A8ABD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Kiss - Monster (2012) International Tour Edition / 2013, Universal / [FLAC|Lossl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:73BE61230F2A1ED91F397C859FBB73F6D789F71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Mario Casciaro, Luciano Mammino | Node.js Design Patterns: Third Edition (2020) 
 ```bash
 magnet:?xt=urn:btih:0AB882F0C5C5712030A6BABECC3290D3DD192F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

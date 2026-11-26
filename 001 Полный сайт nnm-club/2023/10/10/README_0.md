@@ -18,8 +18,7 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:A69DE241D36AB44AF30F67EA4DF0509135FF5FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Hazel – это ваш личный уборщик, который органи
 ```bash
 magnet:?xt=urn:btih:4D375A4642AE6ED5B41340AB8BD8F485DAA0039B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ```bash
 magnet:?xt=urn:btih:F606A951EEC9FFCA6C0E66B355FF245D821A7F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Eigenflame - Pathway to a New World (2023) [MP3|320 Kbps] <Symphonic Power Metal
 ```bash
 magnet:?xt=urn:btih:F83CF632C66C0F9B5D4340D3154F50F4A62C270F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Vintage Culture - Live @ Thunder Machine Stage, VNTG Is A Festival Brasilia, Bra
 ```bash
 magnet:?xt=urn:btih:2D702B25EAB7433B6DD58682E1F241FE09A3FF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Audio Editor - Merge, Split And Edit - программа для редакти�
 ```bash
 magnet:?xt=urn:btih:9A041FA3E53A10E7971266D13E639678BAB5FF5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Typora дает вам безупречный опыт как читателя, 
 ```bash
 magnet:?xt=urn:btih:23845C78651A6F29B8C853D7F0C0FB2727885AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Trivium - Vengeance Falls (2013) Remaster, 2023, Road Runner Entertainment [FLAC
 ```bash
 magnet:?xt=urn:btih:2337DCE919CDF85B0F206F7599BA1F7B4A505481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:70EDB0432FCA02EF661E29BAAE8756C7E55DC98A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7437259EC924338ABEA0C4809C50595F911799E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Pro Microphone: Audio Recorder 1.5.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:BD7EFB34E565EB7EAEEE56D5E42BEEE6BA914E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:13E480DE34BB111DB8F5D0256451CC3D233DFB67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13DB0915C50FC327BBC4480FB935C2F462528095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:47A283D79E9F98D6E0B836528128F8BF10FF7B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08251B26167F56D35E2B4CE0E34BE2B17E144E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2253F5417C05EF4DDC2915228512D39FD14AE552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ MEDUZA - Live @ Our House, Hi Ibiza, Spain (2023-09-29) [MP3|320 Kbps] <Tech Hou
 ```bash
 magnet:?xt=urn:btih:A22D7745B119D88EBEEF56F9A6DE4BF1BFBCB814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ Tardigrade Inferno - Burn the Circus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:1340F88A08569D9138EB509C75138F9238CC1D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36D1E45E0FAB4C1187D1093671B4E9AA8EAF3BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ Monastery - From Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:888DEFC2545431EDCFBB2890049E98BBC9B245F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 ```bash
 magnet:?xt=urn:btih:5B8AFC76427C95EC33F41F0F65E611873FE363E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E3FB2F8DE2CE6AF598CD1C0A7F9D5FDB809BF69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8737D03C2D7BEE624DDAE8675A134556FACD2DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F977A88C0523A9FDAAB28F2DA849D49CD3F8E520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F4BE3788FD87C41E56FE8B80CA9805CF1026813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77E4FAFD45E67DE7B3479110118CE2481AA45BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

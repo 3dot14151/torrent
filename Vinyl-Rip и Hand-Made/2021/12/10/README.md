@@ -22,8 +22,7 @@ A2 Евгений Головин - Если Снится
 ```bash
 magnet:?xt=urn:btih:CA7D22189496E1CCE8E36D661D60FE6C3C44E893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

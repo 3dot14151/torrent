@@ -22,8 +22,7 @@ Mind Key - Pulse For A Graveheart (2009) [FLAC|Lossless|image + .cue] <Progressi
 ```bash
 magnet:?xt=urn:btih:EEEAFDC2B55CA89C435807BE03993C477931B4C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vane - Black Vengeance (2018) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:4D0D2A3D3F33B1E6F6CD584DBED74AE418A089AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0F1DA9DA7F58A297EBFD404B21C04831EDBFB20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Ben Moody - 4 Альбома + B-Sides (2005 - 2011) Дискография [MP3
 ```bash
 magnet:?xt=urn:btih:1B2208BAAFD70485CC072C8E573A747114101FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Undertow - 1993(   Читать дальше...   )Жанр: Alternative metal, 
 ```bash
 magnet:?xt=urn:btih:B96376868812E3EECA2D4403F478FE3314E54926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

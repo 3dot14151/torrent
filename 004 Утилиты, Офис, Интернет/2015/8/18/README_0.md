@@ -19,8 +19,7 @@ DoNotSpy10 — эта утилита предоставляет пользова
 ```bash
 magnet:?xt=urn:btih:C51166719F008DE49682568ADB691FAD376EA8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

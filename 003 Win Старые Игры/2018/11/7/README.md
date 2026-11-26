@@ -19,8 +19,7 @@ Painkiller (2004) [Ru/En/Fr] (1.64_lang_update/dlc) License GOG [Black Edition]
 ```bash
 magnet:?xt=urn:btih:19CE4E3EF38CC7B2DF4052F103B0E7E13A634F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

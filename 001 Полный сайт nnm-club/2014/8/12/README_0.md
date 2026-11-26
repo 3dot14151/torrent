@@ -20,8 +20,7 @@ Picasa 3.9.138 Build 150 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7732DDD91A40471EC2BAE02ACBF1A0FF5350E0F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Hatikvah - 6 Albums (2009 - 2013) [MP3|320 кб/с] <Tech House, Dub Techno, Dee
 ```bash
 magnet:?xt=urn:btih:6196DA380272A89E32C98EF2EA61795EC925713D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F01382221763E9EED6F4B18D0FCC0C5D44E4F186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Aiseesoft Video Converter Ultimate - мощная программа для ко
 ```bash
 magnet:?xt=urn:btih:1ACA6858A06C43739BEE4602E25DE91E97BDD496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Disclosure Melodic Energy (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:8B2267EDFFB6374A24310A90421A87A28E594078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Mike Shinoda & Joseph Trapanese - Рейд / The Raid: Redemption (Original Moti
 ```bash
 magnet:?xt=urn:btih:6C386E954BD65E1A2CA818BCA0440990DFBD3026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Exedore является нативным редактором для Python IDE
 ```bash
 magnet:?xt=urn:btih:4299668D626306515798F4BF926B5415413D2C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ Francesco Salvi - Megasalvi (1989) [APE|Lossless]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:C8E6369DA6B1B716CBBE9B3C62D839F3BEABC6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ David Arkenstone, Kostia with David Lanz - The Spirit of Olympia (1992) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:DBED37091D5D3014042C74F95DA33796AD9C5106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ Shakatak - 3 альбома (1982-1985) [FLAC|Lossless]<Jazz, Jazz-Funk, Disco>
 ```bash
 magnet:?xt=urn:btih:0367034E2A07FEC449159B644D0232E98360F98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 ```bash
 magnet:?xt=urn:btih:8C31A5EA92B13A27304536CDF00A2066EDD2D06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ AutoRuns - утилита для контроля автозагрузки пр�
 ```bash
 magnet:?xt=urn:btih:4460E796F89AF61C4F89172A960B8EA6E55B2DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ VA - Irie Irie (2014) [MP3|320 кб/с]<Reggae, World>
 ```bash
 magnet:?xt=urn:btih:357019323E995A98A8C40660B472E69DBC13B37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F795BC0B3AB73EEB6945F78E323AE3B9ED9AFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +434,7 @@ VA - Внеземное эхо / Earth to Echo (Music from the Motion Picture) (
 ```bash
 magnet:?xt=urn:btih:1F7E16316DA374C535E4283888D24774BDE5FA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ VA - Hot Dance Summer Vol.9 (2014) [MP3|320 кб/с]<Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:15ED94B76042AFD0110F0ACA0B3674F96AF8C474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ Luv - You're The Greatest Luver (1996) [FLAC|Lossless]<Disco>
 ```bash
 magnet:?xt=urn:btih:030DACAB1310465A1FDE149D667AC46A0059139C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ Henry Jackman & VA - Ральф / Wreck-It Ralph (Complete Motion Picture Score)
 ```bash
 magnet:?xt=urn:btih:EAFB2036B5D60E232E1D562009315EBB0A78E60F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ Luv' - Gold (1993) [FLAC|Lossless]<Disco>
 ```bash
 magnet:?xt=urn:btih:E2696D53E4D00840FFAADED150C5CE77B1C87F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CDB3875E166107E0FF3478904CA2DFD99741A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +629,7 @@ Luv' - Gold (1993) [MP3|320 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:C97A14B469B5B1AA0C901BA579BD65366966F34F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +663,7 @@ Symphony No. 8 in F major, Op. 93
 ```bash
 magnet:?xt=urn:btih:92D6A6938A21AE13EBC0690A2A405A08884EAC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +697,7 @@ Luv - You're The Greatest Luver (1996) [MP3|320 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:F1B390227AFD9A5C1905B9E24AF14714E2019760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +729,7 @@ Francesco Salvi - Megasalvi (1989) [MP3|320 кб/с]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:472ADE2B378C47C505A07543361D1288467C9E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +763,7 @@ Lisa Gerrard - Twilight Kingdom (2014) [FLAC|Lossless|WEB-DL]<Ambient, New Age, 
 ```bash
 magnet:?xt=urn:btih:F0756153FDC0EF4B199BD2EACDDF2F331AD3FAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -822,8 +797,7 @@ Tyler Bates - 300 спартанцев / 300 (2007) Collector's Edition [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:5481020EEADAEDD29011894FB7648E0B1BB249D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

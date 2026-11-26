@@ -19,8 +19,7 @@ IM-Magic Partition Resizer - надежное программное обесп�
 ```bash
 magnet:?xt=urn:btih:8FFC599ED140B7F7D0310815929EEA533C9E49F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:776E1809E0A325A859D39E681D20CD9BCF6ED2D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Opera One 127.0.5778.76 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BB492DD5564C19F308308A75AA99A8A4C902C238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ MAX Desktop 26.5.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:9C57D753FAC03A590E6073E51BCCA81CA5AE0102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:18F264D3A92557089C6EDAA75D5D3A7F038E3D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:37100954BB6AB68095E0F2D9561B1888B3BA4A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:739095DE3802D9E5AE7D1CB6DD9428314C173EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

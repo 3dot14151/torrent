@@ -19,8 +19,7 @@ Manic Mechanics - восхитительный кооперативный гей
 ```bash
 magnet:?xt=urn:btih:F3ABD52E51CA18ADD498964F2E02B0627E759207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ We Are Football 2024 (2024) [Multi] (3.00hf) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:72A8F378E196CD3211F29DC693AFBD06148BB5D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ United Penguin Kingdom приглашает вас отправиться в у�
 ```bash
 magnet:?xt=urn:btih:23175E9606B99E8269A4F7B9058D38B3318068A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3388EA28D7F0A7B5AED9620455C8FB6734E01F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:27AB00B72E518764253B404A57D075E3782DD45E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:681BB7A7A43FD523A0D33E1192E6C8B8B6477135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

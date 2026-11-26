@@ -28,8 +28,7 @@ Slash - Apocalyptic Love (Deluxe Edition) (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C62BFDA74E125325D37B94ED3DEBF1CE510684A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Doors - Strange Days (1967) Remastered, Limited Edition, 24 kt Gold CD /1993
 ```bash
 magnet:?xt=urn:btih:9301BFB8AC172E2DDF59FDD5CEE0F8CADCE9EFA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Gossip - A Joyful Noise (2012) [MP3|320 кб/с]<Indie Rock / Electronic>
 ```bash
 magnet:?xt=urn:btih:4E57C5865F131F720877C5F740F467D6836DD26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Cold Chisel - No Plans (2012) [FLAC|Lossless]<Classic Rock / Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

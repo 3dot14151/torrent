@@ -23,8 +23,7 @@ Galactic Civilizations является космической пошагово�
 ```bash
 magnet:?xt=urn:btih:53719C9DA5273E91D5837625CF4126CAC08865CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

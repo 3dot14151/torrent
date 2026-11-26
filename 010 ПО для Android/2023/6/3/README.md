@@ -19,8 +19,7 @@ Artista Impresso v1.3.58 [En]
 ```bash
 magnet:?xt=urn:btih:7ABDC19EF6C58B060403E4FE4D695E8B1F8C72D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Portrait Painter - является профессиональным инстр�
 ```bash
 magnet:?xt=urn:btih:AF72BD12A97313E10F41FB404E7880F3363E1F5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0076A44FCDE3DA994D33F4B2C16D9870D6F5C016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ SMD info v1.39 [Ru]
 ```bash
 magnet:?xt=urn:btih:85AC35914576E7BA282C639A4FC0E5FD0E42EBAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ TrackView - HomeSafe v3.8.12  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:29140D9E790C43FD41ABCFBB5B1BD63A0553260E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCACACB7B5709A14BD66CE18FF3B16C524693C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

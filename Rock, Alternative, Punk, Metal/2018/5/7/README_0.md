@@ -22,8 +22,7 @@ Arctic Monkeys - Tranquility Base Hotel & Casino (2018) Vinyl Rip [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:1A4040A487D8F4CCABF7761E5B39FA2EE958766D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

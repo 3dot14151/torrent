@@ -22,8 +22,7 @@ Disbeliever - Archetype (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Doom
 ```bash
 magnet:?xt=urn:btih:EC4E2686E998A2D5634D2EBF9F7D3EA6008CEDC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Armored Dawn - Power of Warrior (2016) [FLAC|Lossless|image + .cue] <Power Metal
 ```bash
 magnet:?xt=urn:btih:AF9BC22EE5670AD26BF91D8DA7347B020E6029CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Xiphea - Witchcraft (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Femal
 ```bash
 magnet:?xt=urn:btih:C26AE7EB60CEE4A8B93691ED4F41ED427DE57B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Amore Ad Lunam - White Wings Raven Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Me
 ```bash
 magnet:?xt=urn:btih:BC2F1CDF532450FB5B975AC18DA3EFC6A5B26236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rondinelli - Our Cross-Our Sins (2002) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FA1C5613501C4CD55C4E445D883B0CBD848D371C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Legacy Pilots - The Penrose Triangle (2021) [FLAC|Lossless|image + .cue] <Progre
 ```bash
 magnet:?xt=urn:btih:97D5E4EC807152E492CED08C665310523EB72AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Archspire - это Technical Death Metal коллектив из города В
 ```bash
 magnet:?xt=urn:btih:FB8F54B2760BC29D4FA302DFF1F6BD0A56A7C273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ John 5 aka John William Lowery + Side Projects (L.A. Rats, Red Square Black, Two
 ```bash
 magnet:?xt=urn:btih:0850B4F7751038714E5005D47E41FAA6A722ECFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

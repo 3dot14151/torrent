@@ -19,8 +19,7 @@ Maze 5: Sinister Play (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:5492EF4E898A33399FF05898611D3A8B38F92A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Britannic: Patroness of the Mediterranean (2020) [En] (1.0.85) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8E09652CFDE43D9D7733CAA4B6EE5671D56DD130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DAYMARE: 1998 – это хоррор-игра на выживание от тр
 ```bash
 magnet:?xt=urn:btih:7A3BBCAA436F6FC2CF86EC73ED5970B17BCC106A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Meredith Hunter - Proud to be Different (2023) [FLAC|Lossless|WEB-DL|tracks] <Al
 ```bash
 magnet:?xt=urn:btih:5247350B0B9AAE4258D965CE7601DBB65FDA21F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Saturna - The Reset (2023) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0268F3059B40A78451888C8A45E63390F4606E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dusk - Epoka (2018) [MP3|320 Kbps] <Industrial Black Metal>
 ```bash
 magnet:?xt=urn:btih:3B7DFF0B65212922135E87DDD8642532B78A6FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Demon - The Unexpected Guest (1982) Japanese Edition, Reissue, Remastered, 2020,
 ```bash
 magnet:?xt=urn:btih:549B625C5D19419E1967717AEB04A5055F7F37C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dusk - Dissolve into Ash (2023) [MP3|320 Kbps] <Doom Metal, Death Metal>
 ```bash
 magnet:?xt=urn:btih:2F160DCEA9EEF032D7574B9F42A8F1168A3E85B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Niovel - Never Strangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power M
 ```bash
 magnet:?xt=urn:btih:57023A56A6532511D6FAA0AF71EE7FDF7F5AC461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Warcrab - Warcrab (2012) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:7388344A92449292EBF394B3AFA089743F8044FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Warcrab - Scars of Aeons (2017) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Met
 ```bash
 magnet:?xt=urn:btih:7CBF72C475EEF19F73AD295EA6E24ABC6575B886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Warcrab - The Howling Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludg
 ```bash
 magnet:?xt=urn:btih:F1D34A267CB954BFD1B44167F342706219337F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Secret Of Darkness - Blacksun Rising (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 ```bash
 magnet:?xt=urn:btih:21A93A49718FE8766EF4D90D7CD7FD0D69523411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

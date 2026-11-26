@@ -19,8 +19,7 @@ Zombie Shooting Star - это шутер от третьего лица с эл�
 ```bash
 magnet:?xt=urn:btih:9CEBF37AF69858C73F3E25DADAAE9D83D3EF958E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:822C9CBF36C2C34FAA185C32BA561E63D25502D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:BB9A3AF1878A3BE4A292388DEF5B2F153019C14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PARANECRO (2022) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:BC7B0C4CF04E4E1D14752D87F1BA46AD038E91D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

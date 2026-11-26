@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0DC83FF24911F6357B6862877F924984B5C7FA7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:878FF2482ABF132FA2C68B17CC7BEDA82B0C2DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Baidu Antivirus 2013 - очень легкий, простой в использ
 ```bash
 magnet:?xt=urn:btih:0295203F6F49CECE035CCFA0BB2A524BF7A83E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34E3970BA8BFF086652E10F96F1929E520F29ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Vol.  01
 ```bash
 magnet:?xt=urn:btih:803168AEB95B5BA36C37A2B4CC5FEEFA0E71C19B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83ECC50AAB1A98B5C2B169F25326ABF0913CE441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Excision - Shambhala 2013 Mix (2013) [MP3|320 кб/с]<Dubstep, Drumstep, Drum &
 ```bash
 magnet:?xt=urn:btih:B7BB801B31BB6FE7886B581279F214FF451A9A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ VA - Bossa n'Roses (2006) [FLAC|Lossless]<Jazz, Bossa nova>
 ```bash
 magnet:?xt=urn:btih:270265AB0EFD7E4C283B8F645872270081F13B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1012D9B50EC50B1F17375FBA551C46636A977B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10DF96739FF1578607E0F6312B0A26177F603FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ Status Quo - Quo (1974) SHM-CD, Remastered /2013, Universal Music/ [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:01E9C367C2360A44116EE6A2678E732A9297A2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ Status Quo - Blue For You (1976) SHM-CD, Remastered /2013, Universal Music/ [FLA
 ```bash
 magnet:?xt=urn:btih:1A3A12ACCF42111A36D6A54DD7F97C49971D1E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ Wallpapers - Природа (часть 2) [JPEG]
 ```bash
 magnet:?xt=urn:btih:B54B51D1709BC316623A24BBFCCAAEE0EC2F203E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ Status Quo - Piledriver (1972) SHM-CD, Remastered /2013, Universal Music/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:B1FABF54D75185BEE2C61BA9CCF281E917EDD7BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ Def Leppard - X (2002) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4FD01E8177DFE738EDE5F069AA592B096567E58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A364B06F542639ABBD5B4043DA927F907697DC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ Start Menu X - усовершенствованный вариант меню "�
 ```bash
 magnet:?xt=urn:btih:4F68E0ADFC0272FF4B59600E3EF012978F4EF544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3BD4A2CAE67F70B1C7EC71869987302AC52CCD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC9F5A30534D039ACC44F43DD75DC6D87EBA3FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +572,7 @@ VA - Italo Dance Factory (From Jesolo To Riccione) (2013) [MP3|320 кб/с]<Danc
 ```bash
 magnet:?xt=urn:btih:25338BF1BB8C56D6DCFED196482E82BCDD4C68D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ Madonna - Best Of Dubtronic Remixes (2013) [MP3|320 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:80468A1CF248A3B13F5DE6822895249D242F180A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E2427235BECC11B28CDB83783BBAFB85554B245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DF2911C6010FB0F7926BB78B4AC5F09F2E83062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:DAE6B48F0FCB1C44E497570607CC662F46A2EB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +743,7 @@ VA - Something Sweet (2011) [FLAC|Lossless]<Pop, Vocal>
 ```bash
 magnet:?xt=urn:btih:AF05A8467287C11A9EC9A05AFDC757CC993F02C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

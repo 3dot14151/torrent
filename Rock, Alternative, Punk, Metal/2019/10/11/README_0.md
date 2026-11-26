@@ -22,8 +22,7 @@ Big Thief - Two Hands (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternat
 ```bash
 magnet:?xt=urn:btih:7DE7AC7751517AC070495CD188F23A93C2BEED53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lacuna Coil - Black Anima (Deluxe Edition) (2019) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:8ED1D6963322E33A09ED737CFF8B92A92A858479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Freddie Mercury - Never Boring (2019) (Special Edition) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:F3F979F626FE0FF010C5C9DD20F811804B82E4B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Freddie Mercury - Never Boring (2019) Deluxe [FLAC|24/48|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:54B29095D83BEBDA75A618582FE52C590B5C8A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

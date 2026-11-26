@@ -19,8 +19,7 @@ Homeseek перенесет вас в мир, где ценности уже н�
 ```bash
 magnet:?xt=urn:btih:EA12110FAD912360EF732FE6B157A803619C440C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kujlevka / Кужлевка (2023) [Ru/En] (20230620) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EBD12F8E5FC98C1C84ED334ADBE3BA254B895090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Valiant (2022) [Ru/Multi] (1.5c) License GOG
 ```bash
 magnet:?xt=urn:btih:E3AC56B805E6485C529650BB7FE61A4C622E77A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ape Out - динамичный и яркий smash ‘em up про велики�
 ```bash
 magnet:?xt=urn:btih:021B1B4D03D3FA16C6C06DB067624E5853264AAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

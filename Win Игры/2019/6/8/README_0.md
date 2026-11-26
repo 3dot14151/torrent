@@ -19,8 +19,7 @@ Elephant Games с гордостью представляет совершенн
 ```bash
 magnet:?xt=urn:btih:7FFAB0A6A705518B0AFC5E8007CEB0146B379C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

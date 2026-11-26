@@ -19,8 +19,7 @@ Moataz Nabil | Mobile DevOps Playbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:318C1689B72D6D34F501EEE647A11B5C67842080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ali Madani | Debugging Machine Learning Models with Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:8CE0CEFED6D7846CDB4ED3E718DB1D6DE4659326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98ED1C8CD46C92806A7ABB5A8DE91C6D59062CDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3865181AA90C19E6F5985E313062706FB66F85D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

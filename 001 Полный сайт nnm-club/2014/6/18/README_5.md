@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7A09F1C0DC0EC199AFD889BF96A91DE3947A0793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DE45D905BFEBE3046B9FA410C6765C3CBFBBDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D063184FA4814D259E22E5A617B2EFD3113B2C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Brutal Doom (2012) [En] (0.19) Repack Tolyak26
 ```bash
 magnet:?xt=urn:btih:8F7BC1692B0988DAC3100893DCFC4607C90B548A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Deponia Trilogy / Трилогия Deponia (2012-2013) [Ru/En] (2.0.4.1281/2.0.4
 ```bash
 magnet:?xt=urn:btih:C33C4D9EFF894763F8B5AABE48D2B0214254C627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Dance Cocktail Vol.5 (2014) [MP3|320 кб/с]<Pop, Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:592219A2BA231897B1EA34D13D8CBF5B7DA31B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Nero 2014 Platinum 15.0.09300 RePack by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E4374D533A82E9B20F0D3232540FCD2818F54B4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ CorelDRAW Graphics Suite X7 - новый графический пакет, по
 ```bash
 magnet:?xt=urn:btih:25D1A57A10C1D34D146ED441449B5CEBB6B54CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Murdered: Soul Suspect [PS3] [EUR] [Multi6] [4.55] [Cobra ODE / E3 ODE PRO ISO] 
 ```bash
 magnet:?xt=urn:btih:D32FCB30EF279CAA99736F46CA1E2337FB36ECF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/En] (1.0.6 Upd6) Repack R.G. Games [Ult
 ```bash
 magnet:?xt=urn:btih:B6ADE31BC23951929C7B79A8859568E8D5B8B053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Re: VA - Дискотека СССР Современной Обработки. 
 ```bash
 magnet:?xt=urn:btih:241F9619845651DAA2740C901F7302914F6F81F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1975A5488042049D0DCC2C57F73BACF3F05FC50F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5664DDD70635B0635288396F4F5C14DB0625B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30320660F39C05122A7CAEC38EFC036124B4E0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:437F4BCD61D4AEFCB4306E0EB2E586FC24D3C865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE3E02CE8329B15924A6B1357AB7F61C558A3C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Adobe Photoshop CC — программа для обработки растро
 ```bash
 magnet:?xt=urn:btih:CB937134EB36A9C1A2DF5428AB7A6E2D745C875A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

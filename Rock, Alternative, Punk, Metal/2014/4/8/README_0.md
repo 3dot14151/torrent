@@ -28,8 +28,7 @@ VA - Power Of Soul  A Tribute To Jimi Hendrix (2004) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:0CB65794912161B86E79124063C1FFB9D5274070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Voodoo Six - Songs To Invade Countries To (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:30F0713D60AAF77C55A796B82BD4D40D931FD3D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Frank Zappa - Roxy By Proxy (2014) [FLAC|Lossless]<Progressive Rock, Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:12DF7F1EA98E653BD57F7C9BF311A48C6A43D565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ The Alan Parsons Project - The Sicilian Defence (2014) [FLAC|Lossless]<Electroni
 ```bash
 magnet:?xt=urn:btih:152C04FB5BE398538085F89DF06B910A41D2D4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:414E6243092C49F63D5B51C91329EEB10C828D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C541B5F779A37C92474193D5370E5BDD5F9FA101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Metallica - Death Magnetic (2008) ремастер /2014 , KronStudioLab / [FLAC
 ```bash
 magnet:?xt=urn:btih:ADB025EC1F469DD5604DC2E57CEFBD899BBC180D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ CD1 - Часть 1.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

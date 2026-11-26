@@ -22,8 +22,7 @@ Montague's Mount - психологический триллер о сущест
 ```bash
 magnet:?xt=urn:btih:D4F0B879D1FBB2B4650CA59AE66304CFD75B8BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Take on Mars – оригинальный проект, основанный н�
 ```bash
 magnet:?xt=urn:btih:F20CC650D648494F87B3735027EBE216F8B7DF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ The Chris McDonald Jazz Orchestra - Romance by Candlelight (2009) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:0143DA6E3D1B538C045C3BC38EBC34337EB267DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - A State Of Trance 2014 Unmixed Extendeds Vol 2 (2014) [MP3|320 кб/с]<Tra
 ```bash
 magnet:?xt=urn:btih:ED3B6AC1D33CEC28EFB237FCF5E026062D02094F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D719BA827D786A92B4ED2CB66E6AB221F1C912D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Savage Messiah - The Fateful Dark (2014) Japanese Edition [FLAC|Lossless]<Power 
 ```bash
 magnet:?xt=urn:btih:27A00CEC999F89E7866C406BDE17C3FD283549A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4EFED2175BB0B70CD8D412172BEFDFE48D983E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C9F1E8476EB9F7E691E8D6415FA294BA3F7B128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B2D4C9A965872DCB206E4E26BDFD25C9599287D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55C56CF61D52EC029A0F79D16B7F0A9FD07844BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6F544E0002F753BE2206D25BAE051FECC03C1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ Keb' Mo' - BluesAmericana (2014) [AAC|263-340 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:9F389554E724B2F7EF7CE4C9D3703341ECAB9E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ Ruben de Ronde - From Sao Paulo To Sofia (Remixed) (2014) [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:929F53B0A5AECA60482F18E39FCAD9C5B7ECF202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ VA - Summer Jazz (2014) [MP3|320 кб/с]<Jazz, Smooth Jazz, Jazz Fusion>
 ```bash
 magnet:?xt=urn:btih:038E8614185670238FAEE1725A34698A6D8A8CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ Lou Rawls - The Legendary Lou Rawls (1991) [FLAC|Lossless]<Vocal Jazz, Soul>
 ```bash
 magnet:?xt=urn:btih:78F718A5E6EE998F36E372EE6EB6C817ADA55975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ Cooking With Jazz Quartet - Cooking With Jazz (2014) [MP3|320 кб/с]<Jazz, Smo
 ```bash
 magnet:?xt=urn:btih:41DE81BCAA921C34CE47A40D63AE0C7CA9E7EDD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:457D2C013AD7401E72A2F2E9410E839764AD0221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:255ED40C77D6D80C90DA1BFE174181A7BCCC6F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +546,7 @@ Rachmaninoff plays Chopin - Sonata No.2, Ballade No.3, Nocturnes, Waltzes (1994)
 ```bash
 magnet:?xt=urn:btih:589909E1CB7A22E353A8ABC74F28230F9F8C925E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ Ruben de Ronde - From Sao Paulo To Sofia (2014) Remixed [FLAC|Lossless|WEB-DL]<P
 ```bash
 magnet:?xt=urn:btih:CE89D5631E6662EA547533EA0BA53BDAD64BD29C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ VA - Absolute Dance Summer 2014 (2014) [MP3|246-276 кб/с]<Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:ED34DA4D85ECD22EC143B1B53ED9B73C703049D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CDA152AD6266C7D8CCC6B05A876EAB1124DB61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ Ashampoo Music Studio как глоток свежего воздуха для �
 ```bash
 magnet:?xt=urn:btih:1ED7037C60F9758E850E4D151CFEB04B742C352C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACD92D3276A283E852F24B287D4C3B5286E4A5FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ Bad Company - Rough Diamonds (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:FC2A661789B5C4A58D10283D083063A97D31409A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C331D7F910ACE9D78BFFD95D78C6B88776B98F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

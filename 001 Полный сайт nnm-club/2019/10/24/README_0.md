@@ -20,8 +20,7 @@ DxO PhotoLab 3 ELITE Edition 3.0.0 (build 21) [Multi]
 ```bash
 magnet:?xt=urn:btih:8D49D25F98D3F24E15F146EA8983208F174E72A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Stacks - это новый способ для создания страниц �
 ```bash
 magnet:?xt=urn:btih:AA171BC0367294E6F5F7B7647C3DE79DF0B83778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ VA - Warie Live: Club House Original Mix (2019) [MP3|320 Kbps] <Dance, Pop, Hous
 ```bash
 magnet:?xt=urn:btih:1566E31D40A5BF9A8BCEF361F7FA3035D7847A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - Future City Records Compilation Vol. VI (2014) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:961932B4D7F29EDFAA2D121B370B3BD6FF48EB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Future City Records Compilation Vol. IV (2013) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:B3F8A7B6B6551922D62F196C923EA78BA18276C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7C6D859170479254B9179B11C25E4434FE1E0E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ VA - Future City Records Compilation Vol. IX (2015) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:AAE39E6541122F5DA9475B60BD9FCED07B1525D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ VA - Future City Records Compilation Vol. X (2016) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:EB96422BC59839F193915AD93983067045742CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - EDM Heartbeat Extended Mix: Techno Electronic Step 03 (2019) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:EDF930019CFB0DA903A65D9EE68CC564656092CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Floating Points - Crush (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Breaks, I
 ```bash
 magnet:?xt=urn:btih:9FE0416371ACBFF79F3BB3C04B0B25DB43DF44D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Audio Hijack - отличное решение для аудио записи н
 ```bash
 magnet:?xt=urn:btih:83301313659B8E2221FAF8039E86D83A34E4A4A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Satellite & Atom Cristal - Satellite & Atom Cristal (1983) [MP3|320 Kbps] <Elect
 ```bash
 magnet:?xt=urn:btih:1CC6F02C767FF6A58E5E509B68C8E540905CAA06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Tayasui Sketches Pro 4.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:44B55E9F5A8E0BD24C4874E2A4C1375DDCCE4AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ VA - Just Do It: Hardstyle Sport Dance Music (2019) [MP3|320 Kbps] <Hardstyle, D
 ```bash
 magnet:?xt=urn:btih:F9978461CE2481B624197FFF5F19C0229CE8D1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14F2CA92C1383EA3A3402D45876BCB9DD5ABA42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E47061C427F002945D6A3A5BB2F40D53D0A8C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ Opera 64.0.3417.73 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E35B52C0F80B7E4C60E8CB8B1B91BCEF27AC90CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85813119067359FB3E724FD2D184420D8D193FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11C18940B1534C6C4DCEFF512279460B634A0D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ Metasequoia 4.7.1 [En]
 ```bash
 magnet:?xt=urn:btih:50540AA7D8BE907906302EB936C88773760FBB41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ Pixelmator представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:4518F21DD37A60D7FEA3A9FBE742356B469DDE23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ VA - Autumn Chill Electronic (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo,
 ```bash
 magnet:?xt=urn:btih:DAA1BEE50B7316AD1224604766556E72A73B6EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ Sander van Zanten - Deliver Us the Moon (Original Game Soundtrack) (2019) [MP3|3
 ```bash
 magnet:?xt=urn:btih:B299F023BDE4C5E79BF110645DB86ACA6C528D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Airbourne - Boneshaker (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8B5094D74C0924751730EC7AC89008396CAF1433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ Lindemann - Ich weiß es nicht (2019) Single [FLAC|Lossless|Web-DL|tracks] <Indu
 ```bash
 magnet:?xt=urn:btih:052C220C618331A2545D94D4539CD0E916B88D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F525486FE74F0BF35ADD070A6831783D410C528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

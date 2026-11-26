@@ -19,8 +19,7 @@ Lost Eden – пример классического квеста, которы
 ```bash
 magnet:?xt=urn:btih:6C0728B5E4A805BBD3AAC8560DE9EDB7CB933105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Arabian Nights / Арабские ночи [Ru/En] (RePack) 2001 | Pilotus
 ```bash
 magnet:?xt=urn:btih:6D2C55B75EC16633287E85BF834BD57779BFDCC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6895CD21261DE7F3026B522EAC31A1D2B9DA6F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E286513AB8465CEF5E19641AD6C202F8935D83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Operation Tiger Hunt [Ru/En] (RePack) 2002 | RG Games/Pilotus
 ```bash
 magnet:?xt=urn:btih:C7FB7B9B83B115D972D19C3E4C4E4FA2763D60DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

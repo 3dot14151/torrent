@@ -28,8 +28,7 @@ M-Pire Of Evil - Crucified (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:593DDDF7517E721034AD0716B7CCC9E3DC2117EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Pit Of Doom - Atonement (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:756B7A3948593EC8047BA1D7D8BECFE5E0620392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Romeo Must Die - Hardships In Season (2011) [MP3|320 кб/с]<Groove Metal/Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Vhaldemar (Vhäldemar) - Shadows Of Combat (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Freedom and Whiskey - Southern Rock (2012) [WavPack|Lossless]<Southern Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Cathedral - The Last Spire (2013) [FLAC|Lossless]<Doom/Stoner Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Ricky Nelson - The Ballads of Ricky Nelson (2013) [MP3|320 кб/с]<Oldies, Rock
 ```bash
 magnet:?xt=urn:btih:2CB36CB36300CFBF2AA04C8F28C1E174CC0C2C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Pyogenesis - 2 альбома (1994-1995) [FLAC|Lossless]<Gothic/Doom Metal, Alt
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D12198130A2F82B64F95F8DAAFD982D8B83C8665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +332,7 @@ Robert Palmer - Icon (2013) [MP3|320 кб/с]<Classic Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:133B248AD9047EC475ECE3B1A7CFC973A5CE0D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +366,7 @@ Rod Stewart - Time (2013) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:4F257A88D653C102915C7E8EAE6C9615BDC15D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Duke Pearson - Angel Eyes (2009) [APE|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:913600D8791907A289B777B4C3EDFD728D32C41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Marion Meadows - Whisper (2013) [MP3|320 кб/с]<Jazz, Smooth Jazz, Sax>
 ```bash
 magnet:?xt=urn:btih:06A12869F73562861742685ECFCF9CA83E78ED79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07E14F3A6992A97E43BB8EC504B29D74C7247988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18034DBBDEB42F049196CB4EACD088D9F9642564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Jimmi Accardi - Cry Of The Wild Guitar (2010) [MP3|320 кб/с]<Rockin' Blues>
 ```bash
 magnet:?xt=urn:btih:A2CF179188E7272C9E96FF1305A9D5EF90D0E38C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9581EFA14E7D82C7DC5941931FD91BF86E3CEB7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ VA - VA - Лучшие блатные песни в десяточку. Част
 ```bash
 magnet:?xt=urn:btih:46C47E6BBD3D344EC3CC1F9B08ADF42FC96E21B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +320,7 @@ Brett Ellis Band - Zero (2013) [FLAC|lossless] <Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ Madeleine Peyroux - The Blue Room (2013) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:2892AACB26BF54E783634C0235D2EB9A126DD081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +415,7 @@ VA - Весенняя дискотека. Только лучшее (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:EB2C0CE20CE0F8F75D4B1DB64A2B60FE88946A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +440,7 @@ Scarytales: All Hail King Mongo [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:6721BE8554DB0507C7457B62F25EE3507FC5C501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +474,7 @@ Doug MacLeod - You Can't Take My Blues (1996) [FLAC|Lossless]<Blues, Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A210B4265995575DD494156E7872C6FC19893876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +533,7 @@ Alice Russell - To Dust (2013) [FLAC|Lossless]<Neo-Soul, Soul, Funk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +565,7 @@ Synkro - Acceptance EP (2013) [MP3|320 кб/с]<Dubstep, Future Garage, Ambient>
 ```bash
 magnet:?xt=urn:btih:587EB7EAC05BC26CD7D1F02BA1624D0B0C66AD7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +599,7 @@ Ernestine Anderson - 3 альбома (1990 -2003) [FLAC|Lossless]<Jazz Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +632,7 @@ Shexna - Shexna (2013) [MP3|320 кб/с]<Doom Metal, Folk Metal, Industrial>
 ```bash
 magnet:?xt=urn:btih:2EC150D3D00B6339B390E4DCE352E31FE8554721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F438CA1010E86B8B8D2785F42EC17A96064ED2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +691,7 @@ VA - Самые блатные хиты. Выпуск 4 (2013) [MP3|128 кб/с]
 ```bash
 magnet:?xt=urn:btih:F6AAFFD4869748D93055332DE48CE025722A4F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +725,7 @@ VA - Звезды радио Шансон (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:962B53019CBE0100BDA165DD2B795FA59F62C9B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +750,7 @@ Wallpapers - Girls Wallpapers №4 [JPEG]
 ```bash
 magnet:?xt=urn:btih:0FAD31A5373F46F88F58F46881FB857A0E19D15E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -799,8 +775,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14EA56CA9171D863174E8F4F92F948191CC3C5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -825,8 +800,7 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

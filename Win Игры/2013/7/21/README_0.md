@@ -19,8 +19,7 @@ Dark Canvas: A Brush With Death Collector's Edition / Холст тьмы: Ка�
 ```bash
 magnet:?xt=urn:btih:F26072F1B0C806347276F3FE783EA7039A9D28EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

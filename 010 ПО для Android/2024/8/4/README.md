@@ -19,8 +19,7 @@ AirBrush: ИИ Фоторедактор v7.0.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AD1EB39C413398E4E3D3AFF9C09D9245AD5F372F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:609EA081223C725C3F9180A1083FB1E16805F783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

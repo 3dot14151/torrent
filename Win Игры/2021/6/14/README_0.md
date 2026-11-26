@@ -19,8 +19,7 @@ Minute of Islands (2021) [Multi] (6616315) License Skidrow
 ```bash
 magnet:?xt=urn:btih:735B4D4E9ADECFDB2E5CCE4A0C5C83141F3D4F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Icewind Dale: Enhanced Edition — это улучшенная версия ку
 ```bash
 magnet:?xt=urn:btih:A8BF3550D29C17B54BB4294A9341BAB203A1D578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

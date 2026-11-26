@@ -22,8 +22,7 @@ OSI — американская прогрессив-рок-группа, пе�
 ```bash
 magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 Y.M.C.A.(   Читать дальше...   )Жанр: Funk, SoulПродол�
 ```bash
 magnet:?xt=urn:btih:1DCC63DF0768043A9CFC2C9264393260FE0CED17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

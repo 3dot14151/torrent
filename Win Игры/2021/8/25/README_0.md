@@ -19,8 +19,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (1.1.0_02) License CODEX
 ```bash
 magnet:?xt=urn:btih:2804BC4C2AA519C5FF002AF8198FE00FD30E4B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

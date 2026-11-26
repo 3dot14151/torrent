@@ -28,8 +28,7 @@ VA - Road to Nowhere #2 (2014) [MP3|320 кб/с]<Psychedelic, Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:F4DA2E16C78305EDF4C3DF31570916F867F969C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Dj Parafich - PUMPING ROMANTICA VOL. 05 (2014) [MP3|320 кб/с]<Pumping house, 
 ```bash
 magnet:?xt=urn:btih:C18BFA7CB7BBECC5C9778AF1D2B27EF24543557D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Adestria - Gilded Hearts (2014) [MP3|320 кб/с]<Post-Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:76BD3A6D1CF7C607866F235C9859B404FF92246F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Ophelia's Breath - Новый Мир (2012) EP [MP3|320 кб/с]<Progressive Dea
 ```bash
 magnet:?xt=urn:btih:3B157B479AD84EFFD09BD5EF6530CEAB8D37A072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A34EA7B7DB1335806371F47843876FEF305D435D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Screenshot - Любовь (2008) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:2AD47A55662950DD4C65BA833BB55066198C2136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F376471677E438973A473C3BB06049A73372E08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ Team Sleep - Team Sleep (2005) [MP3|320 кб/с]<Experimental Rock, Alternative,
 ```bash
 magnet:?xt=urn:btih:2A6A021C085D199760BCED32B9E288EF8FFEBA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ Elvenking - The Pagan Manifesto (2014) Limited Edition [FLAC|Lossless]<Power/Fol
 ```bash
 magnet:?xt=urn:btih:AF616F3DED6A2471310D05512073B5DA75CF5C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ VA - The Best In Minimal Update 7.0 (2012) /3CD/ [MP3|320 кб/с]<Techno, Tech 
 ```bash
 magnet:?xt=urn:btih:2DB40EFDF29AF3380851503EE097732CA7FE505A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50585E4C30DB36AEDA995F41E93C1600268677D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ VA - ChillOut Versus ChillHouse: The Fifty Fifty Compilation (2014) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:016E6AEEF0C7BB95C2C968B0F7C205272866E9FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7721CF74C0E8FB98308E94F2E8C0747C8C34A0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F74D0E7C170BC98CDC66A27ED3409ADE9024E669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ Antonio Carlos Jobim - One Note Samba (2006) [FLAC|Lossless]<Jazz, Bossa Nova>
 ```bash
 magnet:?xt=urn:btih:46F7E56EF55FEBEC4A5DECE1A28C0BE4C05000B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ Archive Expert - это профессиональный, полнофункци
 ```bash
 magnet:?xt=urn:btih:CD89371FD7303A6FC534176E37FBD61C2BF51C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ Registry Life - это универсальная утилита для испр
 ```bash
 magnet:?xt=urn:btih:2C14A01F59791E8D1595F156BF8F65E51A788D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6B73A909B749B1493A13689EC72E2C701E92FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71D91F0115551B2A4DC92D85E37AA50905056DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:C5DFFF69A86D28BF86640E04EEFDA57C57CEB462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A27C6200B53E46FBA772DDFF64A73C43B1C1334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBFC2510D4A2FB4D7B27416B4C17B2553F3436F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +687,7 @@ VA - Битва DJ (2014) [MP3|256 кб/с]<Dance, Club, House, Trance>
 ```bash
 magnet:?xt=urn:btih:741436EBA2DCC5E7EE617FEC65613482AFE659B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F861949BFACA259A03A37AA003482B51D76F02D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12D9BA152F8621BECC8DF000466B16969F929775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

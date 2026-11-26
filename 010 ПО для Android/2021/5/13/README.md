@@ -19,8 +19,7 @@ GIF Maker Pro 1.7.66 [En]
 ```bash
 magnet:?xt=urn:btih:BC4CA9026D8853D8C1B093B444B4A404AED6868A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ nPlayer Pro 1.7.7.7_191219 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:16C910980879A9AC661476934079D4F5369D142F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

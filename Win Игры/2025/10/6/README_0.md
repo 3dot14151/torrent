@@ -19,8 +19,7 @@ Sker Ritual (2022) [Ru/Multi] (1.3.2.25602/dlc) Repack Let'sРlay [Anniversary E
 ```bash
 magnet:?xt=urn:btih:4E520F1DCAF1EB561122C85CF3D35638DD677249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tainted Grail: Conquest - мрачная ролевая игра с пошаго
 ```bash
 magnet:?xt=urn:btih:8DF4E760DDF0354F391B9F0A083C55AA6BD897AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Talisman: Волшебное приключение от Games Workshop - это
 ```bash
 magnet:?xt=urn:btih:BE309DBDF9D08B079245E7732FC524955DBBEBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Luck & Loot - динамичный рогалик с кубиками, где с
 ```bash
 magnet:?xt=urn:btih:5B22273539820C19CDBF1B01D2FA109E9D23A691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Into the Dead: Our Darkest Days представляет собой сайд-с�
 ```bash
 magnet:?xt=urn:btih:04F18744D930DA7CFD3204AE76588B9E97163D94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

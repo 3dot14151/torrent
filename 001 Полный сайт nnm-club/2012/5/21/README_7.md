@@ -27,8 +27,7 @@ CarVent - Откровение (2012)[Mp3|320 kbps]<Melodic Metalcore, Hardcore,
 ```bash
 magnet:?xt=urn:btih:F0E6E317F292BC641ED93B0CDD46A95819E82319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Zinx - Unclean (EP) (2012) [MP3|320 кб/с]<Psychedelic / Night Full On>
 ```bash
 magnet:?xt=urn:btih:B371BAA42634669FA46C69749A8AFECAC271FB81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Michelle - L'Amour (2012) [MP3|320 кб/с]<Pop-Schlager>
 ```bash
 magnet:?xt=urn:btih:E20F06DFC6C159A5A491D95FCF8454D0CC774DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ VA - Terminal 1 (2012) [MP3|~248 кб/с (V0)]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:0B7718E590FBDF1983CBAB8BFA8383D4F0B35D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Bernard Peiffer - La Vie En Rose (1952-1953) /2001/ [FLAC|Lossless]<Bop, Post-Bo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:552A7F5B18C0F58C3ECB84C176A1537D1723679C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ Danny Cowan Group - Drivin' Back To Texas (2005) [FLAC|Lossless]<Blues, Texas St
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ VA - Jazz Remixed (2006) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ VA - Танцевальная Dискотека from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:0AD1971A471BAB45B63A6F7D0BE8A782C41555EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CDB5A0B79620EBCFD44E3B2E20A1E39ADA2B185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ Peter Buffett - 500 Nations. A Musical Journey (1994) [MP3|320 кб/с]<New age,
 ```bash
 magnet:?xt=urn:btih:F68273179F3FEA4000B3D3ADA6068803730A781F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45500CB5B4BCAD534E2861F01775502DA4F979AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C09B5B19DE4A034DEE0500E83C7000208FAEC7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ Joy — развлекательный глянцевый женский жур�
 ```bash
 magnet:?xt=urn:btih:D6703F99F7988D3D33FF6A40EDDD9536CCCB3C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:93F84BF7D305A36F51B3A279F85CADDB1318B03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +474,7 @@ Kris Allen - Thank You Camellia (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:E927A8EBECD26ADBA45B95F8332FC1DDB3CD2B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ VA - Delicate Water (2 albums) (2010, 2011) [MP3|320 кб/с]<New age, Native am
 ```bash
 magnet:?xt=urn:btih:371BD8CB573385B130B4014A3B871BE5AE23A2AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AC424C310FEB4C85B5562A6D393ACA6FB62698B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +567,7 @@ VA - Русские Новинки Vol.54 from AGR (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:0B57D2BF0090167CD6116A63F51EA2E37F33C061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +601,7 @@ Berget Lewis - Finally (2007) [FLAC|Lossless]<Funk, Soul, Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ VA - Perception Vol. 4 (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 ```bash
 magnet:?xt=urn:btih:5DB25FD8295326AE3EF8580E6EF747502BC723A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +669,7 @@ Bernardo Sassetti Trio - Motion (2010) [FLAC|Lossless]<Contemporary Jazz, Chambe
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +703,7 @@ Octavia Sperati - 2 альбома (2005-2007) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:7AF74593F475F9D137181E640225A18706237D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CE9334013552FA2926B2BF86AC1EA07CAC4A4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +756,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85609F74BE817A4F9D771D4688CCB278619BD7F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -806,8 +781,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76E626DFD9DB13A6C0D08953B0415EAE4F9E815D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

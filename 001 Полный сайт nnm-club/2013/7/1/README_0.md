@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:9A981A8B1ADF6EF0F0FD283E250DC62663553B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3767C3A016775C69337D73BDA0FD7939A99481F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ VA - Pure.2 (2013) [MP3|320 кб/с]<Techno, Tech House>
 ```bash
 magnet:?xt=urn:btih:5B525A3B9DF3566C6BF5BF43B64142222F42E881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE816EAA42E351F0581456FAEA3B36B868C9BF37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Emma - Saro libera (San-Remo edition) (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:CF8B47188C3876D9EF79262F59E91CDBFB20CB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ VA - Soulful House (Nu Disco Breaks Summer 2013 Compiled by ReUnited) (2013) [MP
 ```bash
 magnet:?xt=urn:btih:1F811AC8B26AF172D194881DC32EABDA2AA2A6FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ NirLauncher Package - это пакет из 170 небольших утилит
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ VA - Claude Challe & Jean-Marc Challe - SpaceSex (2007) [APE|Lossless]<Chillout,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ VA - 100 Клубных Хитов 8 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:73712AC2B3B2049AB09DD3BF74096F25D60F3B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CB9463BD33D65444B4EE808286A957508FD86AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ VA - Toolroom Records Ibiza 2012 Vol. 1 (2012) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:564E7E9318697DFF62CE7F805F97DD085AFF7CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC21E1A409B837922CC88B22B08CEB864C936E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Erwin Sieche | Военно-морской Арсенал. Крейсера-ти
 ```bash
 magnet:?xt=urn:btih:FBBA49CEAE3885FBF12341848C73B440FB098042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ NG: Кладоискатели. Серия №5. Золотое дно Граж�
 ```bash
 magnet:?xt=urn:btih:CA21D14100B5EBBB3BF24CA22536363CE1223472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6C415390297E82C429B74AE9748E2F5561A3965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ Adacta - Files From A Darkside (2013) [MP3|320 кб/с]<Industrial, EBM, Dark El
 ```bash
 magnet:?xt=urn:btih:F4785ADC16C8BF4263A16CD6DE039B9389409BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:603AD6A5A3392EB7077C23BF0DF39CC613205799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED5E56A698226547A166224599EAE5477734BC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA9C56F728D6D7869B606C03EBA0946613B7B375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ Wallpapers - Обои для рабочего стола - Разное (1.07.20
 ```bash
 magnet:?xt=urn:btih:AE1C052F0760E467CBAFA07C26D85F71E2A2D1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDBCF8541F5D5D43FE3952CBCC28B7D6B7970CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ Elena Sheremet - Sax It Up! (2006) [MP3|320 кб/с]<Instrumental (Saxophone), E
 ```bash
 magnet:?xt=urn:btih:36C005C49D2D788A3D1D8D7807237D6995173D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +660,7 @@ VA - Toolroom Knights Mixed By UMEK 2.0 (2013) [MP3|320 кб/с]<Tech House, Tec
 ```bash
 magnet:?xt=urn:btih:B3FD6E91BA9BCEC6EEB8739BB6C7E281E4871D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ IObit SmartDefrag - программа для дефрагментации ин�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +719,7 @@ VA - 200-ти Пудовый Летний Хит Русский (2013) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:11C34A51BB8B93AE2DAC9A9B635D86EFBBB47589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

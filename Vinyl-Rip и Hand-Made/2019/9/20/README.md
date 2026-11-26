@@ -22,8 +22,7 @@ A1 Ai No Banka
 ```bash
 magnet:?xt=urn:btih:62046206D8BC624EE55326F6E99665A95C91B372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

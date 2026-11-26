@@ -18,8 +18,7 @@ BBC: Мир природы. Поющее дерево / The Natural World. Mping
 ```bash
 magnet:?xt=urn:btih:CB1293B4A3D760B71F6193805EC0689CDC651BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ VA - Музыка по заявкам: Хиты SMS чартов. Лето 50/50
 ```bash
 magnet:?xt=urn:btih:18BE4C733AA7FADCB2E85F4057306D572EA21213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ BBC: Жить на воле. Эверглейдс, болотные крокод
 ```bash
 magnet:?xt=urn:btih:7CCC594D46BE7A75EDE29A67265BA5EF74A3CD1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEAF3710046ABB0889FC13B406718B2E0D3E3F36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC0B073E5B34D98BC941C44BE575EEDB1B9F87E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Playboy — классический мужской life style журнал!2011
 ```bash
 magnet:?xt=urn:btih:B8F26DD4E94F5FFAA752DA7CA551D53316B11FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Electronic Architecture Vol.2 (Mixed And Compiled By Solarstone) - 2011 [FL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ fxphd | An Introduction to Maya 2011 - Введение в Maya 2011 [2011] [EN]
 ```bash
 magnet:?xt=urn:btih:F77D289248B4FD1917906F8A1B49A026464F8621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:907FC4D8C17A4C8720C2086C7096EFF31B51F547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Ella Fitzgerald & Louis Armstrong - Autumn in New York (2008) [FLAC|Lossless]<Ja
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:879A06C0A7B9082B6E6B195FF7249A7F11DA4BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ SpeedCommander - файловый менеджер с многочисленны
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21EB8B1647530F9DD66363110DE3B915539F6991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ BBC: Жить на воле. Южная Африка, гепарды в пуст
 ```bash
 magnet:?xt=urn:btih:0A40B022164FD4286A09B472786EC3A144DD76EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ VA - Русские новинки лета (2011) [MP3|320 kbps]<Pop / Dance>
 ```bash
 magnet:?xt=urn:btih:1988F558242A84FD120F91FA25C9B8BD3169CA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Sensual Physics - Boundary Of Set (2010) [MP3|320 kbps]<Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:EC25C94E197217E43B648B5809A0D8C9DFE79BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ FHM (For Him Magazine) – самый известный журнал для м�
 ```bash
 magnet:?xt=urn:btih:D7E305A4E11182FB00771FD43466344013326791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Proxmox Virtual Environment (Proxmox VE) — система виртуализа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ Vargo - Precious (2010) [FLAC|Lossless]<Tribal, Downtempo, Ambient>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ Simple Plan - Get Your Heart On (2011) [MP3|192-320 kbps]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:BDC2F91BAA3103284350EEED4A107EEA44CBAE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05727DB22E9AEE3BC2C963804CB2E2AC3AA7F3EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ NG: Чудеса XXI века: Уникальные вертолеты / Ultimat
 ```bash
 magnet:?xt=urn:btih:2E901E8A3107BB4035458D7BFB508250F0FD74B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ O статном псе Полкане и вредной Шавке, погна�
 ```bash
 magnet:?xt=urn:btih:EEC30FA015F47341CA24BBE0F6257C2F4BE64ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D10B73110ABD91DFF7057DC9A02268EB016E8CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ Fike & Jambazi - С горем пополам (EP) (2011) [MP3|192-320 kbps]<Rap
 ```bash
 magnet:?xt=urn:btih:FFFEDE68F3AC0B2A694DEFA77D4A797C836EF683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

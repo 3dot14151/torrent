@@ -28,8 +28,7 @@ Divided Multitude - Feed On Your Misery (2013) [FLAC|Lossless]<Progressive Metal
 ```bash
 magnet:?xt=urn:btih:293CC4E7A1283D74CB9C49E17315E7ECB0059358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Gorguts - Colored Sands (2013) [FLAC|Lossless]<Avant-garde Metal,Technical Death
 ```bash
 magnet:?xt=urn:btih:E84DED4E2EA17E8FD302A4295FBB069E32F136F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Lawless - Rock Savage (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EE0D9C2F422EB5C1C40FB0ACD7CF2AA2AB4D407B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ God Is An Astronaut - Origins (2013) [FLAC|Lossless|WEB-DL]<Post Rock>
 ```bash
 magnet:?xt=urn:btih:F0C87264A79D1AD7B276ED5EC737438A39577C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ White Lion - Anthology '83 - '89 (2006) 2CD [FLAC|Lossless]<Rock, Arena Rock, Cl
 ```bash
 magnet:?xt=urn:btih:9980A732B405112E08BCA49E32548767B5E5EFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Richard Marx - Richard Marx (1987) [FLAC|Lossless]<Rock, PopRock>
 ```bash
 magnet:?xt=urn:btih:1AE5F609C6E4BDB92A481EF19BEF9CC01A2E520B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Kiss - Revenge (1992) SHM-CD, Remaster /2013, Universal Music/ [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:CB602F51B41C8A0CBD6957691FFF669F82D9F1DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Kiss - Psycho Circus (1998) SHM-CD, Remaster /2013, Universal Music/ [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:BC7A097412DD816188E9D5C6BF5DED66C1C8FCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:604B764A9DAF395A5AF2F1C08A525703BF5E2E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

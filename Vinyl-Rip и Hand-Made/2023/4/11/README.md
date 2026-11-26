@@ -22,8 +22,7 @@ A4 One Way Love(   Читать дальше...   )Жанр: PopПродолжи
 ```bash
 magnet:?xt=urn:btih:E9FB27FB7B766CE67C7225563D6F90135AB16C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side 1
 ```bash
 magnet:?xt=urn:btih:AA4674BBA0A4F84D34D90A498E5DA0BD4B4B02F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4. Highway For Fools (3:14)(   Читать дальше...   )Жанр: RockП
 ```bash
 magnet:?xt=urn:btih:54D11ACF87861C2638EE19720840D93F40467BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Brutus — бельгийская рок-группа из провинции Ф
 ```bash
 magnet:?xt=urn:btih:B68979C160500C384C777A225E50F5DEED984C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

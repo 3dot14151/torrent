@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:11A9A4C245BC5C1B426DA72AEB05F6498B4C7AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Data Creator - утилита для создания структурирова
 ```bash
 magnet:?xt=urn:btih:2EA24D0FB21FB0E34A6EC5D87A752A5896829B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Mirror for TCL TV 3.6 [En]
 ```bash
 magnet:?xt=urn:btih:761462D0BBDA446FB0224FE26B7A54200BD2506E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ PatterNodes - хорошо продуманный и настраиваемый 
 ```bash
 magnet:?xt=urn:btih:A35B2773FF8153EC0F80CEB8880847BBEEACF82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ MacMagic может помочь очистить гигабайты диско�
 ```bash
 magnet:?xt=urn:btih:68BD912F48E2A26428293F6254ECD49F21B05CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Photo Effects Pro предлагает большое количество тв�
 ```bash
 magnet:?xt=urn:btih:987DF1E81124E8F52F1F3960088BE8891B5ECA6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Client Folder Maker - это простой и легкий в использо�
 ```bash
 magnet:?xt=urn:btih:D92138379D27E7EC35BF8DC69AA217C0259ED5F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ PDF Checkpoint автоматизирует рабочие процессы PDF 
 ```bash
 magnet:?xt=urn:btih:5C30BF1EA5156F75F920FE100FB64E0EBA7CB6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Qbserve дает мгновенные ответы на вопросы о том
 ```bash
 magnet:?xt=urn:btih:46C4E2E304424EAA0C93D10425C8BE54DE47C54E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:A998C83C4B6E42A1B97958FBFE67CFD7F7C90479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Network & Battery 12.2.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:21734AFD0C05184966195D1C21632BD48D337DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Live Performer - это новый хост аудиоустройства дл�
 ```bash
 magnet:?xt=urn:btih:E112DB9CD105964E22FF0D5575975A989B0F3F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Exposure X6 v6.0.5.196 ARM  [En]
 ```bash
 magnet:?xt=urn:btih:6E67AA1E7F6AEC8633863AC348BB7AF30880FF5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Battery Charging Alert 3.15 [En]
 ```bash
 magnet:?xt=urn:btih:0ECE660F2934492A4F43E38DF0086118C792582C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ SSH Config Editor Pro 2.2 [En]
 ```bash
 magnet:?xt=urn:btih:74667B91E99C159DD657F0250D61457D1745100F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ RapidWeaver отлично подойдет тем, кто ищет ПО для 
 ```bash
 magnet:?xt=urn:btih:1416C1F3BD4CA09DE83AFBE9FB3B2D9ACE830A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Image Enhance Pro – это инструмент для создания HDR-и
 ```bash
 magnet:?xt=urn:btih:8B525E9EDDAB3237EE159833CF33509B1C585FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:37A692EF8F780005EF9E56E771E83421606C7125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ BetterZip 5 v5.1.1 b2 [Multi]
 ```bash
 magnet:?xt=urn:btih:BE3FDC98AFE057BEACA33414DECACE8EE0C5C633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ Dena DeRose - Live at Jazz Standard, Vol. 1 (2007) MaxJazz [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:95EC39B2D19D12A1588BB8DFE58D69CA30A8F7C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ iReal Pro 2020.7.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:73B915F8F4A98EB8C8BB74D42FE62C42EF2A1F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDAF134252AD2136315D304E04DBB675271000B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2EA939FBE96999EEFF22BD1239D7A08302D0E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ Statistics Pro не просто дает вам правильный ответ
 ```bash
 magnet:?xt=urn:btih:2F950F2FFE01C1EB9B07264C6768AF5D0F10BC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

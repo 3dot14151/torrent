@@ -20,8 +20,7 @@ Stained [En] (L/1.0) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:A02CB6E963DB2C2060E12E02D2A22956EEE4323F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Imperium Romanum: Emperor Expansion / Imperium Romanum: Границы Импе�
 ```bash
 magnet:?xt=urn:btih:61F9F45BEAC1229215AD178F572F1225674B5C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ The Last Remnant — ролевая игра, в которой вас ждет 
 ```bash
 magnet:?xt=urn:btih:1B989176BD1E6AEDD6FC372919A28B71B8D508AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

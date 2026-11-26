@@ -22,8 +22,7 @@ Space Pinball – популярная, аркадная игра в котор�
 ```bash
 magnet:?xt=urn:btih:15DBC4255BF531C96F43AA1477078E35D2C6D381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

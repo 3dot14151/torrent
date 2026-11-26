@@ -19,8 +19,7 @@ Win10 SpyStop - еще одна программа для Windows 10, котор
 ```bash
 magnet:?xt=urn:btih:73C07EAA535FFDD0769FBE6701C5AD035122BF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

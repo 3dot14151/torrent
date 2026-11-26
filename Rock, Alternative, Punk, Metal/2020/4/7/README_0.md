@@ -22,8 +22,7 @@ Forglendus - Forglendus (2020) [MP3|320 Kbps] <Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:A3D64274CB1A61D1509B478480383608868E81EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lazy Riot - Каждый Момент (2020) [MP3|320 Kbps] <Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:C6051CECA8F42A68A94966AA0277713399D7FE12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Astra - Oathkeeper, Pt. I (2020) [MP3|320 Kbps] <Melodic Death Metal, Modern Met
 ```bash
 magnet:?xt=urn:btih:01C79492619B3FD4F276962747AC0A8872CFB31E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B92FA51262F3C0E9092747B30A5BBEE03BD7C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Escape - Чертова Дюжина (2020) [MP3|320 Kbps] <Heavy Metal, Thrash,
 ```bash
 magnet:?xt=urn:btih:23248C091C88D10DE23F8D7018467E4EA1F5FCB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Wild Horses (featuring Brian Robertson) - 4 albums (1980-2014) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:7B6CF337594C388EABB5912B7EA65E113DE0F629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C9FA67C8EDAC0E125FE6B1F06F664671C68845B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Conception - State of Deception (2020) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:91D7924B96AC18B8A6F78C4DEC5280073D958C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

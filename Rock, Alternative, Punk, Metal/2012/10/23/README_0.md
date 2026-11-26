@@ -28,8 +28,7 @@ South Of Georgia - S.O.G. (2005) [MP3|320 кб/с]<Alternative Country Rock, Sou
 ```bash
 magnet:?xt=urn:btih:F428A1214B0A1B3B7840D71CC2AC489210438A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ IsRain - Trees Never Sleep (2012) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:EEDA2B15779FC67577B59D68B72CC9C03F3CCD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Sister Sin - Now And Forever (2012) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4F27D5A4F9B3922D16350279D2E13A9CBCBB6F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Keyboards: Paul Taylor (Alice Cooper)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

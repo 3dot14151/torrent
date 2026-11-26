@@ -22,8 +22,7 @@ Smackbound - 20/20 (2020) hand made [restored, declipped] [FLAC 2.0|Lossless|44/
 ```bash
 magnet:?xt=urn:btih:6BA8EFB778CDD57152F673E677A3578F02086CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Ace Combat: Assault Horizon [PS3] [EUR] [Ru] [4.21] [Cobra ODE / E3 ODE PRO ISO]
 ```bash
 magnet:?xt=urn:btih:DB93DD24666287EA267199CC3AD5604DB4905487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Amiga Forever 2013 [Amiga] [En] (2013)
 ```bash
 magnet:?xt=urn:btih:B87CBA3A4CE19F664571D8199A6B605326108E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:261589842BCD48F4F26B4F4CF63B28D8163D635E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Nero 2014 позволяет по-новому создавать и предо�
 ```bash
 magnet:?xt=urn:btih:0CC2DB78BF059906D451D4B9904ED998D6CBFA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:591CA20745E1D84267B3BEDB6546135BCBE339C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Woodcarving Illustrated - журнал, посвященный декорати�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ JetBrains PhpStorm представляет coбoй легкий и удобны
 ```bash
 magnet:?xt=urn:btih:991AB3EDF83DFA5C68814141F8ED233F6944275E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DEAF30CE7A277EEE0D0317EADE2EE2009B77759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FF0EC2AF76C020026F3F2D3CCFB1BD3656E4128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Ubuntu BusinessPack 12.04 (ноябрь 2013) [i386] (1xDVD)
 ```bash
 magnet:?xt=urn:btih:3515CB019684509EE7FDC00E61DE35261AC6BF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34AE32D930486CD0C5B3362B3681234D566178BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ XCOM Enemy Unknown [PS3] [EUR] [RUSSOUND] [4.21] [Cobra ODE / E3 ODE PRO ISO] (2
 ```bash
 magnet:?xt=urn:btih:50E0A3744BB7F9F9BA3C16CDCCD76FDE0838747C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BD6486A746977C1D8D4158AFCEFDA9B1DE0A4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Sniper Elite Nazi Zombie Army 2 - сиквел спин-оффа в серии S
 ```bash
 magnet:?xt=urn:btih:93206AE3C0046C0A5326740A274F9FE260B49962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8594878AB578602C83B739D3E1DDB24029641937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Nero 14 предлагает целый набор полезных и прос�
 ```bash
 magnet:?xt=urn:btih:6C75E11F81226FE0C7CF4EF4D09F65D8DF102F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ Earth 2140 - это стратегия в реальном времени о в�
 ```bash
 magnet:?xt=urn:btih:BBFB59D7C9CBA834BBB268BB9656E8016E06A19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ XCOM®: Enemy Within - это дополнение для XCOM: Enemy Unknown, �
 ```bash
 magnet:?xt=urn:btih:54242C2DC20C001F1354E386FFAA1F81753C43B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ VC Redist Installer - пакет Microsoft Visual C++ Redistributable Package у
 ```bash
 magnet:?xt=urn:btih:17779699697DAE80BAB5A3B58ADF4E5543636587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEE2B8BD74AA970D3C2BC68EC6112BA191468D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ KMSAuto Easy - автоматический KMS-активатор для опе
 ```bash
 magnet:?xt=urn:btih:576D6B3F8F8F04D75C5CC4985354470A16E5A900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ How to Survive [PS3] [PAL] [Ru] [Repack / 3 DLC] (2013) | R.G. Inferno
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4D9C8CE606D2B1204D5D491312FC0BCC1408276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84205DCB243164511361EDE5BC9CCB4BFC8A6B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

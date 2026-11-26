@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Sound Of Miami: One A.M. Volume 24 (2013) [MP3|320 кб/с]<Trance, Uplifti
 ```bash
 magnet:?xt=urn:btih:76E2819EC8D98382835FB2155BBCF0485808FDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C7A5154E8CFBEF8A15C502606290954F457B163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B34F5A353D6F8B41A5D7BE009A407F03523A3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7655401BB181FB9D442813E8888EFD4336445236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ J. Curly Speegle - Soul-A My Rock-A (2012) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:BB0B5B28F7FDFE530134B6FA437DF05776197F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FEADF1C8DC909F0BEB3D6D00EA0BF8414D6AF2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCEC8DBAE2C95AFE7D27F6140839AA6B956730C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8E53FCE197E872AF824057A2F616515D21A7A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8A271EB576F40CC55B1F9CBDFFFAF520893C906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - Amsterdam Enhanced (Mixed by Ost & Meyer, Suncatcher & Johan Vilborg) (2013
 ```bash
 magnet:?xt=urn:btih:26CABC985BB13E6F4BAB101E0BF6CDD1FF93AAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Mat Zo - Damage Control (2013) [FLAC|Lossless|WEB-DL]<Hip-Hop, Progressive, Tran
 ```bash
 magnet:?xt=urn:btih:32A05967C73E5720E689AE2BAE80843FFE029365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ Sirgaus - Sofia’s Forgotten Violin (2013) [MP3|320 кб/с]<Symphonic Gothic M
 ```bash
 magnet:?xt=urn:btih:F0176D6A3F41B7B9BA709B0F21B0F1A9D50D9B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ Macromism - Superheroes (2013) [MP3|320 кб/с]<Deep House / Tech House / Techn
 ```bash
 magnet:?xt=urn:btih:F037824FDF6F19AEE6812E12721BB513ADB03B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ Nicolas Masson, Roberto Pianca, Emanuele Maniscalco - Third Reel (2013) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:FE9D16B4896D4040377231525115C78BA182B970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B311D4371F312A48CD1FD8B132E702847DD96A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ Reusmarkt - Эхо (Echo) (2006) [FLAC|Lossless]<Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:0C7C89AC337F6C64B906526663F80ACABC1EB976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ VA - Chill With Style - The Lounge & Chill Out Collection (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:2A65269699DAA08130C740C24B42E52707E11773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ VA - 10 Years of Crosstown Rebels (2013) [MP3|320 кб/с]<Deep/Tech House>
 ```bash
 magnet:?xt=urn:btih:0E5777EDC7CFF09268BEB7602DDCD090E76DF494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ VA - Dj Compressor - Best 2013 Part 2 (2013) [MP3|320 кб/с]<House, Trance, Te
 ```bash
 magnet:?xt=urn:btih:A1CEA19DB7F0FB91DBD59B26E0E990D88AA8EE60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ Johnny Meyer - The Swinging Accordeon (1993) [FLAC|Lossless]<Bop, Swing>
 ```bash
 magnet:?xt=urn:btih:2F8BFE96F7222DF56387579019A23B47AD516623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ Giulio Nightfall - Flying On The Sea (2013) [MP3|320 кб/с]<Guitar Instrumenta
 ```bash
 magnet:?xt=urn:btih:C98EAC478CA3816DDB50ADD09C2F496B0B9FDB26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +720,7 @@ Too Slim and the Taildraggers - Blue Heart (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:82B46F5EA472ECA6F675C378D1B08AFD237D6651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +754,7 @@ Microwave Dave & The Nukes - Last Time I Saw You (2011) [FLAC|Lossless]<Blues-Ro
 ```bash
 magnet:?xt=urn:btih:9CB5368F69EACFE946AD075E01EF485F4FB65123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +779,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0C44BA6FCD096A0FDB0DFF5F07B8BB58E8D65FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

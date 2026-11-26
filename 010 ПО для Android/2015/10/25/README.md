@@ -19,8 +19,7 @@ Helium - это уникальное решение для резервного 
 ```bash
 magnet:?xt=urn:btih:9A3C2D9952DB9EBAEACC4A9190845C03727D4931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

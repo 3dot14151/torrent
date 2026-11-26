@@ -22,8 +22,7 @@ Greta Van Fleet - хард-рок -группа из Франкенмута, М�
 ```bash
 magnet:?xt=urn:btih:CDE654F16C7372F156FBF78A93C82F53AAD4533F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Von Hertzen Brothers - финская рок-группа, сформирова�
 ```bash
 magnet:?xt=urn:btih:796CC5343902C10793666EE3898A6BE37C1AC58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

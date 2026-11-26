@@ -19,8 +19,7 @@ WinZip System Utilities Suite - пакет приложений для очис�
 ```bash
 magnet:?xt=urn:btih:355023BF01284178A55FBE10F9E7082FB47C4BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Microsoft Office 2003 Professional — исчерпывающий комплек
 ```bash
 magnet:?xt=urn:btih:4BAE902C80DD8529654DDFED7A63A0F18BB42790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

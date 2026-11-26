@@ -22,8 +22,7 @@ Graveworm - Collateral Defect (2007) [FLAC|Lossless|image + .cue] <Sympho Black 
 ```bash
 magnet:?xt=urn:btih:333A06E2EBCE3A9F3F6E60338CAEF90632EDD6B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Graveworm - (N)Utopia (2005) [FLAC|Lossless|image + .cue] <Sympho Black Metal>
 ```bash
 magnet:?xt=urn:btih:81F9525629E9330BC21425742D08BE96F2A84F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hatecraft - Lost Consolation (2005) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:F02E7AFAADA6CB46EA1C6E471D4233729A2D6F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Asgeir (Ásgeir) - Afterglow (2017) 2CD [FLAC|Lossless|tracks + .cue] <Indie Pop
 ```bash
 magnet:?xt=urn:btih:14CF2F275B1E8C7478954F0617DAE5C3E138F920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ GZR - Ohmwork (2005) [Geezer Butler, bass - Black Sabbath] [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:B52F7E4470CE971038C13C670D1235B4383066EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative R
 ```bash
 magnet:?xt=urn:btih:B1837C9DF366459EE42FD242A330DC0DBED63837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Falkenbach - Ok Nefna Tysvar Ty (2003) [FLAC|Lossless|image + .cue] <Epic Viking
 ```bash
 magnet:?xt=urn:btih:19EFA3E08A667954D754B6D9C5F4DA042D30CF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Our Mirage - Unseen Relations (2020) [MP3|320 Kbps] <Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:4FAACBE91ACCB7AC29CB8075C110F8A9729CCBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ KMFDM - Paradise (2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Aggro-I
 ```bash
 magnet:?xt=urn:btih:9FFB8BE266D6A0B9D004DAC2F6CD8A9EC73FCB9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Green Day - Father of All Motherfuckers (2020) [FLAC|Lossless|WEB-DL|tracks] <In
 ```bash
 magnet:?xt=urn:btih:BFF8DD668DCFFA493F76ADF49B04CFC8B83D199F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Hellion - Will Not Go Quietly (2003) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:77C465E8B262EA40D6B5FABA5618EE83D0EB3C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Hangar - The Reason Of Your Conviction (2007) [FLAC|Lossless]<Progressive Power 
 ```bash
 magnet:?xt=urn:btih:091A884CFE859E119D1A33C266AD6229A0037601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ King of Asgard - ...to North (2012) [WavPack|Lossless]<Viking / Black Metal>
 ```bash
 magnet:?xt=urn:btih:E71D3DD031F48E762EA1644AC7E28D05BAD0EA72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Hollenthon - Domus Mundi (1999) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:40DABF8768CAF373E9B0A50D057E19E7437E5B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

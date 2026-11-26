@@ -19,8 +19,7 @@ Star Wars: Starfighter (2002) [En/Sp/It] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D8B9240510D0C550288AAD0E6CDCF7641E68AE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

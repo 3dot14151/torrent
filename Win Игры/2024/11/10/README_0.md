@@ -19,8 +19,7 @@ Two Falls (Nishu Takuatshina) (2024) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:CB09AC80E04B70D89A843544288B9D904CEA86B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Easy Red 2 - шутер от первого лица с элементами с�
 ```bash
 magnet:?xt=urn:btih:0FD53D570C0A985C5A42EA6BF73E36834681A951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shadow Corridor 2 (2024) [Multi] (1.14.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3C63A5C0AADAB0A331F62083393E0EDF519D45C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Satisfactory - это игра от первого лица в открытом 
 ```bash
 magnet:?xt=urn:btih:E8D054FD2FE4ACA3F30CF0C3048C292085C7430C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Abyss School - это приключенческая игра с упором н
 ```bash
 magnet:?xt=urn:btih:93759C90A7DCCFA43F5226E19EA77EC0E7C96F6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Techtonica представляет собой симулятор строите
 ```bash
 magnet:?xt=urn:btih:E8A626500C470AC9D08FE01348D2A528AE01DB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bus Simulator 21 Next Stop (2021) [Ru/Multi] (2.34) License GOG
 ```bash
 magnet:?xt=urn:btih:1CE2EC5BA88739810441877AE5548130BB952467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dystopika, градостроитель, разработанный студие
 ```bash
 magnet:?xt=urn:btih:11AF1946F89E8720A791AEF38C4C3311E44BF57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Zombie Flick / 僵尸快打 (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:55C768163B32423AE0D4E2AF572D8F3D2FA884F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ MasterQuest Fantasy - это увлекательная ролевая игра,
 ```bash
 magnet:?xt=urn:btih:EF220DCDE6BC33D3E9328CD02E2DD973BD4E0E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ CATO: Buttered Cat — очаровательный платформер-гол�
 ```bash
 magnet:?xt=urn:btih:BA1BFE01052D51F4205F0385AE9ED4B1B4CBC90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Dungeon Defenders – интересная игра, которая сочета
 ```bash
 magnet:?xt=urn:btih:EAB40849807117F3AEA8622AA96AE96CC150DB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

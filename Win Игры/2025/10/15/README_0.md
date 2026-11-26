@@ -19,8 +19,7 @@ Anna’s Quest - это чудесная игра с нарисованной о
 ```bash
 magnet:?xt=urn:btih:5139D33A798859CDC47B3E4AD15DDAEB2F1E9715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chimeras 14: The Lost Film / Химеры 14: Потерянный фильм (2
 ```bash
 magnet:?xt=urn:btih:C6D70C8A2C76B46B060A34C5926D5240D3A2429E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Borderlands 2 (2012) [Ru/En] (Build 9218157/dlc) Repack Wanterlude [Game of the 
 ```bash
 magnet:?xt=urn:btih:38613B5884CA6DCBE237A71289130D6586BB4C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bye Sweet Carole - это уникальная хоррор-игра, сочет
 ```bash
 magnet:?xt=urn:btih:578E4826F574196CA6E59D6A2219235ACB84CAF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
 ```bash
 magnet:?xt=urn:btih:B82B739A5AE0FF458D4BFDBD1749A1D98C89245C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SPINDLE — это классический приключенческий бо�
 ```bash
 magnet:?xt=urn:btih:DE7759C66696F5B2166DD89495E2B8BA094E0A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

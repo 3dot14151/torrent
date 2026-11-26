@@ -19,8 +19,7 @@ Grim Legends 3: The Dark City (2016) [En] (1.0) Unofficial [Colleсtors's Editio
 ```bash
 magnet:?xt=urn:btih:8934412D2A62BA19B6F9D00D7D5C0DECEEC0561C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Tales 9 : Edgar Allan Poe's Metzengerstein (2016) [En] (1.0) Unofficial [Co
 ```bash
 magnet:?xt=urn:btih:21C1CD35A2D593F909527C382381E9BDAA23C228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Midnight Calling 2. Jeronimo / Полуночный зов 2: Джеронимо
 ```bash
 magnet:?xt=urn:btih:6DDC43123D56A87E81019F8ED44EE246761538D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Edge Of Reality: Ring Of Destiny / Край реальности: Кольцо �
 ```bash
 magnet:?xt=urn:btih:D7F95D0C1CF4F857A59E35981C943DC016821507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:47D196DAB4B43037AC584D76EA1784A0D35CA873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Bohemian Killing — это стимпанк-драма от студии Moonwa
 ```bash
 magnet:?xt=urn:btih:3D455FCE3D705F4322E7A7F8AB7AD73F43BF386C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Mahluk: Dark demon — увлекательный платформер в мра
 ```bash
 magnet:?xt=urn:btih:BB3E234B9BA8301B3A4C79AE71724C8EA96462A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Infinium Strike, игра в жанре тактической защиты ба
 ```bash
 magnet:?xt=urn:btih:BF3650E7ECDCA1CFD695D00638997E7E827AB8FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

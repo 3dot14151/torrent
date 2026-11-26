@@ -19,8 +19,7 @@ Velocity Stream - необычные гонки в мире будущего, г
 ```bash
 magnet:?xt=urn:btih:99FE32B5BDAD36815D85DC7146BA2B33D6CD09C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Final Fantasy IV (2014) - ремейк культовой игры 1991 года
 ```bash
 magnet:?xt=urn:btih:0A7ED3BA94D229EFA88A9D69FF0D32AF0059C3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

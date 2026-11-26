@@ -22,8 +22,7 @@ Sixgun Renegades - Sixgun Renegades (2018) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:67E4DF4CD781C3CCF507B293897AE8A6B55C0B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

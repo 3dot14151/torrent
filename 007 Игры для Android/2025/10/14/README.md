@@ -19,8 +19,7 @@ Words of Wonders: Игра в слова v5.3.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FE1F97FCF48820F636C9375049C9FF90EB620302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BabyBus Kids: Мир видео и игр v3.1.10.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E2B0C49AFCDD68837B9700B60626362498DAB73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

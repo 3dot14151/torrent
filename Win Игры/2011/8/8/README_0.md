@@ -19,8 +19,7 @@ Wendy's Wellness / Венди. Фитнес клуб (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:8D87E5A198A92AD54DBBEEC2EB6AF409C4EEC0E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales: The Bride Collector's Edition / Мрачные Истории: Не�
 ```bash
 magnet:?xt=urn:btih:1BF92D5C457D5BF742621B0F07A5E0856ACC4030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

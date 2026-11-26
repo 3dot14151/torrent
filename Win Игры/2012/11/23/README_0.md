@@ -19,8 +19,7 @@ Golden Trails 3: The Guardian's Creed Premium Edition [En] (P/1.0.5) 2012
 ```bash
 magnet:?xt=urn:btih:FAAC50D0DE0648830E5AC685404FA95D470A2E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Haunt: The Real Slender Game - новая, очень качественная �
 ```bash
 magnet:?xt=urn:btih:1EE6570CDAC59EEB1B0DCEA28BB482A357A63012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD1BB144A7B21C8EE74476193D1B82A134DD60F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Emergency 2013 – дополнение для игры Emergency 2012: The Ques
 ```bash
 magnet:?xt=urn:btih:C138174F64F31D898B7D9CD9B1B9B9CD6787F0DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

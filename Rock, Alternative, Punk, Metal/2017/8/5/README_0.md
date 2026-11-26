@@ -22,8 +22,7 @@ Vanden Plas - Far Off Grace (1999) Reissue, 2004, Inside Out Music [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:94D78D7528086738A9B42ED8FB1EC9F979F18C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Clawfinger неожиданно вышли из затишья и презент
 ```bash
 magnet:?xt=urn:btih:71147D967F0E5F03FB3A3B65FF9ECCAC7622D67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

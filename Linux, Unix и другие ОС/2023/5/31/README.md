@@ -21,8 +21,7 @@ TrueNAS CORE (ранее FreeNAS) — это бесплатная операци
 ```bash
 magnet:?xt=urn:btih:EE0AB44C5C49678D090871BE465AE6F90CFF4ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

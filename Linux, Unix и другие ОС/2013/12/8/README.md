@@ -23,8 +23,7 @@ Login: guest, pass: guest; login: root, pass: root.
 ```bash
 magnet:?xt=urn:btih:ECEE6F0DAF297B3318E61D64FF0C7309288E49F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Login: guest, pass: guest; login: root, pass: root.
 ```bash
 magnet:?xt=urn:btih:9912775A91F4266C168C5DAB045DB0EFC8C63B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ PCLinuxOS 2013.12 KDE FullMonty [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:81A2E5C7E4ECCC379BB0826DFD461822CF441D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Login: guest, pass: guest; login: root, pass: root.
 ```bash
 magnet:?xt=urn:btih:13C2E5740D85F5246E42114158F16C7AE2635A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

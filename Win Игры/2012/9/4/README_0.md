@@ -19,8 +19,7 @@ Mystic Legacy: The Great Ring / Мистическое наследие: Вла�
 ```bash
 magnet:?xt=urn:btih:0FE5587E3549AC7F73EAF11428DE5C3C250D4DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystika: Between Light and Shadow [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:C47F2CF1876C738C0BC665E3D173E74CE324AAA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Legends of Pegasus [Ru/En/Multi4] (Repack/1.0.0.4115) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:0E55B349F9400F54EE83B58B9C471432FE45F167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Ball / The Ball: Оружие мертвых [Ru] (RePack/1.0.6698.0) 2010 |
 ```bash
 magnet:?xt=urn:btih:D63689071ADA529C611BA3299332DBEF7604EC35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 ```bash
 magnet:?xt=urn:btih:6D0B66B0BA4615ACA516A0BC648CE7D521F9B92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

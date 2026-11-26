@@ -20,8 +20,7 @@ Warrior Kings + Warrior Kings: Battles / Лорды Войны + Лорды Во
 ```bash
 magnet:?xt=urn:btih:9B7F147F5D66E3618A227F628849455920C6E4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ DDD Pool / Мастера бильярда. Американка [Multi4-] (L/1.
 ```bash
 magnet:?xt=urn:btih:D8315F9BD1096B7F1E74ECDBD3E766111314CFD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Spartan / Спартанцы. Легион 3 (L) [Ru] 2004
 ```bash
 magnet:?xt=urn:btih:60FB99EBC58E886D97D165086402E0DEBB41EFE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

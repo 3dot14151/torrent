@@ -19,8 +19,7 @@ Mirillis Action! 4.1.0 [Multi/Ru] RePack (& Portable) by KpoJIuK
 ```bash
 magnet:?xt=urn:btih:23FD3261C17BE69ABC7C3573DB773BFE13B8B7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28F08D7919C01C29905160796D539699120A51E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8FE8D07978FA7CF827580087C753CF474237220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7C017165161EDD2BA9B2825E6E60F3409B640E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - 100 Greatest Modern Country Songs (2020) [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:C4179D6A10AD2C5D64426BD3A7976C995C6A1E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD3A076A0A94801A045FF1C0748A1A1E78FA1C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EB6502683C6A8220163BD3879DC073D2C9903EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Stone Temple Pilots - Perdida (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:8D0AC5A77D1C52D979CB9528D3AFB29B892661DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ VA - 100 Greatest Easy Listening Classics (2020) [MP3|320 Kbps] <Pop, Rock, Jazz
 ```bash
 magnet:?xt=urn:btih:84FE0F6D19741AE3A0FFEBBDD7AC2BC6701C1389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Basilisk - это веб-браузер с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:0BA24BEA17B20A480D747444E010F0B84CE1B3A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Bear McCreary - See / Видеть: Season 1 (2020) Apple TV, Original Series So
 ```bash
 magnet:?xt=urn:btih:531ABBCC0758372114243A3065F92B459F33DFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B5C8D0E2EA6678C1A13BBC04ABE27F8FAB3E6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Detectives United 3: Timeless Voyage (2020) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:6665BDEBCCC6C235AFFC908E15306F78691DD7E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ VA - Birds of Prey / Хищные птицы: Потрясающая истор�
 ```bash
 magnet:?xt=urn:btih:11081F2F8024B90F4C36DC10BCA6AE62639DDDF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ VA - Erotica, Vol. 5 (Most Erotic Chillout & Smooth Jazz Tunes) (2020) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:3443D3BF4EBC9904CA1D34B4CB3DFA6304AC9826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AD0970A092FCE88A6D30373C1DB4EE06B1FFCC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ VA - 100 Greatest Alt Rock Anthems (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:FDC934996A4E5579687F0C45DB3B7F5F78DD9F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Green Day - Father Of All Motherfuckers (2020) [FLAC|24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:D4453CFD099EA1EA10AFC508724C52F87FCF0051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ VA - Erotica, Vol. 4 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:1F5D11B8779A25CE4AFE110B651A62CE2D90882B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ Kovacs - Shades Of Black (2015) 2 CD Limited Dutch Edition [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:0BD7FD015D95045E6D5E90DFEA7E85825EE45401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ Babooshka (Александр Константинов) - 7 Music Videos (2019-2
 ```bash
 magnet:?xt=urn:btih:D10FE7B6CC230E368A7E5F89DDAD3D77097C0C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ CD1-Video Release (21 Music Videos) 01:20:37
 ```bash
 magnet:?xt=urn:btih:CDBC14981F32EC491D4D1CCA5D30E5CDBD5D2E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ VA - Birds of Prey / Хищные птицы (Потрясающая истор�
 ```bash
 magnet:?xt=urn:btih:74DAA493A30EB4F046789261BD6BF3130376FEDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74A52D4A92A0EC455483FF72F3B5EE323BD4E04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEF4A55BC958E35A680BC40A735EDE3AB746479B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72242E87BA14CD3F36581E3C15733844AD21C3D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Windows 7 SP1 (x86/x64) +/- Office 2016 26in1 by SmokieBlahBlah 11.03.16 [Ru]
 ```bash
 magnet:?xt=urn:btih:B03D74CCF33355933226C028A0445EC01EFD44E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB598ECC6AF3B57678D89976C2D13FE246505846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06600E5B1E0FDFE0597C80D329B6833C4D92E32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

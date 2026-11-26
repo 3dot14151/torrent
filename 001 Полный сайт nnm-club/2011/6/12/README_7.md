@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EC833A5953EACC0BD5E99AFFAC46CFC6B0B1705B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sonic Unleashed возвращает легендарного игрового �
 ```bash
 magnet:?xt=urn:btih:216F5DAE20C67F1E42351243CFC09B9C99C110EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ GZM 7 представляет собой модификацию к страте
 ```bash
 magnet:?xt=urn:btih:E7033A142FA8618260A2E44DC22586A4A91EAECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Windows Vista предоставляет все необходимые функ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

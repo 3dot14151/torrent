@@ -19,8 +19,7 @@ Devilated - это адреналиновый сплав жанров олдск
 ```bash
 magnet:?xt=urn:btih:BD44828B6856A008420EC0C41F7A0E7053BBBE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pure Rock Crawling - симулятор внедорожника, основна
 ```bash
 magnet:?xt=urn:btih:081045DAE2D420DE7DA87DF6ADA23FD695B42EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bendy and the Ink Machine – это игра-головоломка от пер
 ```bash
 magnet:?xt=urn:btih:2653B98C6CB406524E441916B604D34D701326A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Creatures of Ava - это не типичная адвенчура по ловл
 ```bash
 magnet:?xt=urn:btih:96B424FEFB86A4C8B37155021D4014A496627247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

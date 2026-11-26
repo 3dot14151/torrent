@@ -28,8 +28,7 @@ B4. I Know (I Know) 3:50(   Читать дальше...   )Жанр: Rock, Pop 
 ```bash
 magnet:?xt=urn:btih:E6E8E4BFA6530B2534E5639D7EC49B953E6FC0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Boney M - Oceans Of Fantasy (1979) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco>
 ```bash
 magnet:?xt=urn:btih:FA60C5C528EED0BC8A0AC2EB89E433F44BF180D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Chilly - 4 Альбома (1978-1981) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco,
 ```bash
 magnet:?xt=urn:btih:8A48AC03FCBD17199B64EFE346D7F01BA0DAF293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Bullet For My Valentine - 4 альбома (2006-2013) [FLAC 2.0 24/192 |tracks 
 ```bash
 magnet:?xt=urn:btih:F5265B53734E442FD3146839FFE3B0E22AF10AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Laid Back - ...Keep Smiling (1983) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, Synt
 ```bash
 magnet:?xt=urn:btih:C7F7B67EB90033D0BCDB902AC2FF40234147A324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

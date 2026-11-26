@@ -22,8 +22,7 @@ The Boyscout - My Route 66 (2015) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, M
 ```bash
 magnet:?xt=urn:btih:AD0600E0E42CD92C9F9276DA8F3813CAD3B80CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Downlouders - Arca (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psych
 ```bash
 magnet:?xt=urn:btih:6B2D0CC2308B061CFE95883BB3EED2759B4C18F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Defiants - The Defiants (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:88C6099DFBB3637065B0EE7B03D56A3AFC1C756D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Lou Gramm Band - The Lou Gramm Band (2009) [FLAC|Lossless|image + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:6ABD14964B33C9A56375B6924824C09037DC0264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mark Wood - Voodoo Violince (1991) [FLAC|Lossless|image + .cue] <Hard Rock, Inst
 ```bash
 magnet:?xt=urn:btih:D1E61840C673C1ED66392C91DEA496250436FEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Andy Timmons - Ear X-tacy 2 (1997) [FLAC|Lossless|tracks + .cue] <Hard Rock, Ins
 ```bash
 magnet:?xt=urn:btih:BEE876C19A314A694ADB7CD9B32632BF08729724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Naprimer (Например) - За горизонт событий (2016) [MP3|3
 ```bash
 magnet:?xt=urn:btih:3B61C1D30FCEECE8896284F78FF1B62F28CE7A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Nothing But Thieves - Nothing But Thieves (2015) Deluxe Edition [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:003E44FDA530183D4DB7A085B155E7FC61E35A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

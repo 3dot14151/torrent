@@ -19,8 +19,7 @@ Moonlighter (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:7FF80AC28DE83E95A12D5C5AAD43A4D0D036A9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Agony — хоррор с видом от первого лица, в котор
 ```bash
 magnet:?xt=urn:btih:171DB1E2299129761007AFB3561959C0D0AEC851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

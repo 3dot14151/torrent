@@ -20,8 +20,7 @@ Unisonic — немецкая метал-супергруппа, образов�
 ```bash
 magnet:?xt=urn:btih:49434313FE80F9B7F217FC3C7CF1110FFFBF39C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

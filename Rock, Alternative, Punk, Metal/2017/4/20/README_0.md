@@ -22,8 +22,7 @@ The Project Hate MCMXCIX - The Lustrate Process (2009) [WavPack|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:38A44F37505D69C2169870CB8ED13192FDFB664E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Racing The Sun - Killing Time (2017) [MP3|320 Kbps] <Hard Rock, Grunge, Punk Roc
 ```bash
 magnet:?xt=urn:btih:C594BE0D5A5AFBE63CE91159AD2E1A10D6802610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Axxis - Retrolution (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Heav
 ```bash
 magnet:?xt=urn:btih:331E40D41CF02F0BFC66E293ED39F17228C34FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Antares - Sea of Tranquility (1979) Reissue CD, 1994, Mellow Records [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:76123EA299F613B76BDFD33212895420CAA1E85E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Asia - Symfonia: Live In Bulgaria 2013 (2017) [FLAC|Lossless|image + .cue] <Prog
 ```bash
 magnet:?xt=urn:btih:F37BFC91782E7EEDAFBFAF83DB68837AFD0F99B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Poison - The Best Of Poison: 20 Years Of Rock (2006) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:2EF27B67A9D0C95E5F14C0AE149C92C4DF540BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Rhino Bucket - The Last Real Rock n’ Roll (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C745AF1F47104E13BC5A0CC5E0886722CF6369F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Crazy Lixx - Ruff Justice (2017) Japanese Edition [MP3|320 Kbps] <Hard Rock, Gla
 ```bash
 magnet:?xt=urn:btih:85F090903100EEA1CE21D6BD48E36A39BEEC9244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Sheryl Crow - Be Myself (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Country>
 ```bash
 magnet:?xt=urn:btih:A098FC99CF64EC752A47B98C49FEABD11EF413A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Slowdive - Slowdive (2017) [FLAC|Lossless|tracks] <Indie-Pop, Rock, Shoegaze>
 ```bash
 magnet:?xt=urn:btih:27DB2F8683392ED0EB55F0339F318D98F406DC52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Rainbow - Live in Japan (1984) 2015, Digital remaster [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:6A88EE7417C1621AD37E0CD4FD8349F5C9F657E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - 100 Hits: Total Rock (2014) 5CD, Box Set [FLAC|track+.cue]<Rock, Hard Rock,
 ```bash
 magnet:?xt=urn:btih:5A7FAD75EA1231363D2F0D8277553C380B15658F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

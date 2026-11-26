@@ -20,8 +20,7 @@ Shelley Powers / Шейли Пауерс | JavaScript Cookbook [2010] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:ABC5FE2144918990F89D5107CC4D3576E50CD68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6189FC1AC48085697CD963CA4120C16234135D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

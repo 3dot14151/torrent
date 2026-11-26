@@ -21,8 +21,7 @@ Sarcofago - Die... Hard!!! (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:2C8C14F2225B38C3B791E6C7F8087D32AEC6CA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Allegorist - Botanical Utopia (2016) [MP3|320 Kbps] <Electronic, Nu Disco, A
 ```bash
 magnet:?xt=urn:btih:6E6F7153C7BBD69F0CF53133EAE92C63FD9CF267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49D96046C13EFCCA3F6604DF456BC8B77115133C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA337DD73277A2568F736D22D0CD41318CCF976F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB1CE51CD63D144F56D4C79FDAE9FBDC96D9EB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:798995E3E87A31F797A63198F3F5A47068FBA0EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Зарубежная Дискотека ХХ Века - 26 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:51E7A9D10A7BCCEF2EECF9C1AE08E23B8EB829C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ VA - Hot Summer - Music On The Beach (2016) [MP3|320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:A9CF9B56BB30109C5413034CB9B74BB68096ABD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:441794F4AFC073F399D7BD7FB1A78B35EA6E08D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC79D33A570DC4229313F5B5949A2241299B0D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ VA - Goa 2016 Vol.3 (2016) [MP3|320 Kbps] <Trance, Goa Trance, Psy>
 ```bash
 magnet:?xt=urn:btih:BF7DDE529908A8B0F568BC2718005A48AE91612D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ VA - Ultimate Power Workout (2016) [MP3|256-320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:D98462091E69A6B712F056BB210235583BEF68A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F01BBC99DF55794B49BF9EBBD5F856D71B96D36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ FotoMagico – популярный пакет для создания слай�
 ```bash
 magnet:?xt=urn:btih:111B5EFE509118051A4646175D7BEFC8D6F6F4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Panda Free Antivirus - антивирусная программа, котора
 ```bash
 magnet:?xt=urn:btih:BEB6D091A93EC4C4F936E9A8C9D45BD5F9078028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Solid Stone - Introspection (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progress
 ```bash
 magnet:?xt=urn:btih:1F15E8B07DA4D36DD55326E4708745717C77E2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B420D2FD0742CA00EF4F2EC62D408D0A92C6A758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ Armin van Buuren - A State of Trance 769 (2016) [MP3|320 Kbps] <progressive tran
 ```bash
 magnet:?xt=urn:btih:B97E4C511B33AB677170DB94B550BCDB9BE4F11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ VA - Outburst Records pres. Prism Volume 1 (Mixed by Mark Sherry & Alex Di Stefa
 ```bash
 magnet:?xt=urn:btih:6C87F8EFDC252C3A2DE176BEB424D23EEF5F1896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Jeff Liberman - Songwriter / Musician (2016) [MP3|320 Kbps] <Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:CCB4BBF57FFC327EFC118DA10B8B092A3D222E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ VA - Зарубежная Дискотека ХХ Века - 27 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:4624AF3BDD64EB46B589410C60C7C25C72C64827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3296EABDB0D383DCEFD91A7D8DAB3286516CFE98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65E61976F48BBE1D7B846005D68AD51999DC5CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ Cozy Powell - The Best Of Cozy Powell (1997) Reissue [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:2735972A9F16631CD22DB20CDEE1F3BF1591A58A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C15C9A882B132E8967E296429E227F4EC16F5F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ECE06B36D0DFB4C210AE2C3E9CAA90813E9BF21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

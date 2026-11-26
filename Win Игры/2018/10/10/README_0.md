@@ -19,8 +19,7 @@ The Conjuring House – это приключенческая хоррор-иг�
 ```bash
 magnet:?xt=urn:btih:921B981963F512D1189CCF9FA692A87689C18867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:2C36A3467651912C512B80D03BEB77D5BFBFB6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Outbreak: The Nightmare Chronicles (2018) [En] (1.3/dlc) License PLAZA [Complete
 ```bash
 magnet:?xt=urn:btih:50220BBB19611A954A831EB8D5D5164E97A68EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:AC5D8026A965606844F57BF9D4C280BA354F3CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Amazing Spider Man 2 / Новый Человек-паук (2014) [Ru/Multi] 
 ```bash
 magnet:?xt=urn:btih:04305F544CB2AAF6FD167D46B401F62B243C0E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

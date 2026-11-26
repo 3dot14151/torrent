@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:BCFE5DE9378697247B3AF4985A707F57AD4E13E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:795494A472DD8FB217F9DAF70ED1A9EAB63A3A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Wordpress - гибкий, многогранный и легкий инстру�
 ```bash
 magnet:?xt=urn:btih:473C1F3437110132D3102E201F7036A0FFD7044F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

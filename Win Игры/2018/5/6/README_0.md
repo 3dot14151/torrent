@@ -19,8 +19,7 @@ Malzbie's Pinball Collection от Malzbie Games представляет пин�
 ```bash
 magnet:?xt=urn:btih:118FBAC26F3710E63F8B3072C1A33843B718D5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Super Mega Baseball 2 (2018) [En] (1.0.29017.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:E98624393CA028182C3A1284BC96A74B66062492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

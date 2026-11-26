@@ -19,8 +19,7 @@ Diggers 1 и Diggers 2: Extractors [En] (RePack) 1993-1995
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Timeline [Ru] (RePack) 2000 | RG games (Pilotus)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Counter Action / Противостояние [Ru] (L) 1997
 ```bash
 magnet:?xt=urn:btih:539B4B983557E81F44295B5B97A56B430C07FF98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Counter Action: Fired Snow / Противостояние: Опаленный с
 ```bash
 magnet:?xt=urn:btih:E55A504E776E6BF870CD07A07580A13A79BA0FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ X-COM: Apocalypse [En] (L) 1997
 ```bash
 magnet:?xt=urn:btih:8A914DAF647F8BA5B9C6C3BB34A4B1E382BEECCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

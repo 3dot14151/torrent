@@ -20,8 +20,7 @@ WinPDFEditor — программа для редактирования PDF фа
 ```bash
 magnet:?xt=urn:btih:EA022E6C7BD1DA8199E5F6EFF5D1D55EABE462AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

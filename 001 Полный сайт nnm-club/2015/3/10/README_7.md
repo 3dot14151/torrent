@@ -23,8 +23,7 @@ Nothing But Swing Trio - NBS Trio Plays Komeda (2010) [FLAC|Lossless]<Post-Bop, 
 ```bash
 magnet:?xt=urn:btih:6D795DA44BB89988D0E32CD78DFE1492C5900FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Randi Tytingvag - Three (2015) [MP3|320 кб/с]<Folk, Country>
 ```bash
 magnet:?xt=urn:btih:BA47D707FD6FE4137E6CDC55C9B1D4500CE58B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Data Rebel - Expansion EP (2013) [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:F89474A2482C3A5587AA28D525E6EAB59428E9AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Data Rebel - Reborn (2015) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Downtempo>
 ```bash
 magnet:?xt=urn:btih:5BDFDB4913838334CE16CB82F53A609216D16512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Sam Jones - Seven Minds (2015) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:5A8A375E241C5E81373982797671BBA37F2F388C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Cannonball Adderley - Sophisticated Swing (2013) [FLAC|Lossless]<Jazz, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:4125787970B58C4773FB215102E1D0B0CF8A5B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Worhol - The Awakening (2015) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:2637164ED2451AB1D0C50923F95BE311362EAC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Amentia - Caliope (2013) [FLAC|Lossless|WEB-DL] <Downtempo, Glitch, Idm>
 ```bash
 magnet:?xt=urn:btih:A015F953F1779B0EBD2AD91F49C6B1A27851507B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E006DFFAE40016AC712B8CE73825299311EAE41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Stan Getz & Lionel Hampton - Hamp And Getz (2000) [FLAC|Lossless]<Jazz, Cool, Ma
 ```bash
 magnet:?xt=urn:btih:480EAD25F46E53F39B03B9FA4B83A19F8578A0C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Zirone - Zirone (2015) [FLAC|Lossless|WEB-DL] <Downtempo, Instrumental Trip-Hop,
 ```bash
 magnet:?xt=urn:btih:84555ECCB8ED4B21AE03474636E8B066A7980EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ Frosttide - Blood Oath (2015) Limited Edition [FLAC|Lossless]<Melodic Death/Folk
 ```bash
 magnet:?xt=urn:btih:09CF543B564C3C3ECE8324F0609271B75E0D7FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ Biosphere & Deathprod - Stator (2015) [MP3|320 кб/с]<Ambient, Experimental, N
 ```bash
 magnet:?xt=urn:btih:EDC46672F7DAB6780D78ABE3446F32C907F85DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ The Black Codex - Episodes 1 - 39 (2014 - 2015) 6CD [MP3|320 кб/с]<Progressiv
 ```bash
 magnet:?xt=urn:btih:B9509FCE1B3CEBE9CA90D98A33AC81CA6E1AF359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF1F2EE6ED8C260773E41BE0BF40C00495A72257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DACEF0E43CB7255E673BF8A98696219A11379D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9CBD75C2D3C1FBFC295566CF490A6CFFEF0D99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Enforcer - From Beyond (2015) [FLAC|Lossless]<Heavy / Speed Metal>
 ```bash
 magnet:?xt=urn:btih:EBF34F5DA7A440794B262AD002F4EA0B10B670C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0151FC60767FDDCDCA029917921E6B7CE37F2008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ Novello - B3 Soul (2009) [WavPack|Lossless]<Jazz-Funk, Hammond B3 Organ, Smooth 
 ```bash
 magnet:?xt=urn:btih:17DED54B5907B7EB196F7FCE7B43EE6B60B7AC07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E2BBC6A08B2014A77F44270AC9303DE6CAFD544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ Bryan Rice - Hear Me As I Am (2015) [AAC|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:B14545993C547B9B66C5AF52EA631F88B7E6D107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ Marduk - Frontschwein (2015) Limited Edition [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:6B8C355215A5DB9A2B39F64B48CC4C9E6C6BA0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ Mat Kearney - Just Kids (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:CAA97E20356610A9A8EDB329657249776D5FF63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2859A58DCE72084F80F15BD43590607CD9F0192D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

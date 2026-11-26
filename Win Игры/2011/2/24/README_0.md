@@ -19,8 +19,7 @@ Atlantic Quest 2 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:51CB015682FE7C80C04A9F422576A54C19CD707C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mortal Kombat Special Edition (P) [Ru/En] 2010
 ```bash
 magnet:?xt=urn:btih:182F728CB0EABF4FFD6582ED32B2F4E9655F09CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

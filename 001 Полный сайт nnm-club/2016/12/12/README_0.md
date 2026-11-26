@@ -21,8 +21,7 @@ VA - Высшая лига хитов шансона. Часть 9 (2016) [MP3|2
 ```bash
 magnet:?xt=urn:btih:4E7DC5B704335E5CF4E8979408D71404E361E34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Танцевальная пурга от хит fm. Выпуск 50/50 (201
 ```bash
 magnet:?xt=urn:btih:79B778C86DF17FEE11EFF3180CF1769B56E8E805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A0D313E0D24D67D68FBF2D46C93A7EF87C9047E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Y.S.E. In The Box Vol.9 (2016) [MP3|320 Kbps] <Trance, Goa Trance, Psychede
 ```bash
 magnet:?xt=urn:btih:5C96AE13F5B75179CBCCF3B60B64D9C689E0C337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D88237B1CBBDF90BFAEA6B9E9D0924C05FBE40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Death In Vegas - Best275z (1997 - 2016) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:8E0272755D23FFBD66208F09258423CC2EED5644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Русская зима. С Новым годом (2016) [MP3|256-320 Kbps]
 ```bash
 magnet:?xt=urn:btih:14CBF8A4B8098726100A2330E1BE37AF4EB0DA02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Machine - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:8C43438798BEA615EDA1F7C870945F68CECD57BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:D22F9AFEB2AA571AD73866FF8B68330DB2FA6B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Jumpshare предлагает удобный и быстрый способ о�
 ```bash
 magnet:?xt=urn:btih:6FDE72E00A726615A30C412F0ED579DA769EB826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ VA - Get Up Pops Hits Fresher (2016) [MP3|320 Kbps] <Indie, Electro, Bass Music,
 ```bash
 magnet:?xt=urn:btih:2B355F93224EC021566A099FFFF2E6DF8087DC8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ VA - Автодискотека. Зимний драйв. Зарубежный �
 ```bash
 magnet:?xt=urn:btih:894E3694913079FB78DF22DE0E2B852B58E1DFE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ VA - Deutsche dance Hits №9 (2016) [MP3|256 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:EC393B00A5F7D5B28176FB37990197AAD7BADDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Destroid - Future Prophecies (2004) [FLAC|Lossless|image + .cue] <EBM, Industria
 ```bash
 magnet:?xt=urn:btih:0E39D030136356EB1BA15348CC87D2FFDDF70A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Neil H - Syllabus Of Magic - Merlins Quest (2010) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:4B8F5EBBE4AD889F85CC34459B816249E8998E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Slimjet 12.0.12.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9B42F08DFE9B5948372A48BBD8A1DBBDF60566EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9593DBF20E0BEA41D76487BCDBCAA7E1C02DBABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3541B59719C420B117380935FB3D291B0EF516C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ VueScan — программа для работы со сканерами HP, M
 ```bash
 magnet:?xt=urn:btih:F0B2C2D87C51FB2028800033B31A12D08D80CE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Ruud Cooty - Aftermath (2002) [MP3|320 Kbps] <Hard Rock, Heavy Blues>
 ```bash
 magnet:?xt=urn:btih:0C51F3C6E533E675E25142CB6394B15433C3A27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:46797161186564F9173806BF369D578B19F861E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ Epica - Consign To Oblivion (2005) 2CD, Expanded Edition, 2015, Transmission Rec
 ```bash
 magnet:?xt=urn:btih:1ED582AA625C8B0559D3404D05F95F140572BB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ Audio Switcher пригодится меломанам и другим цени�
 ```bash
 magnet:?xt=urn:btih:ACAA898D18D3468F7E7EBAFDFC7028E216205644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ VA - Pop Rock Nu Disco: Favorite Collection Of Music (2016) [MP3|192-320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:9FC43C0A7779B249E1FA13EDBAECD0E7E939BB4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89C43AD17B07420E01AA02E8EE9935277A7DEE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

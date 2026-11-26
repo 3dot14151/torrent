@@ -19,8 +19,7 @@ Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BA5E2041FFA6DBB6AB99B651833EEC15EEA396B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
 ```bash
 magnet:?xt=urn:btih:29D1D9DFDB484734851009AE0F009EF0509C5475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Red Line - это сюжетная хоррор-игра с умеренными
 ```bash
 magnet:?xt=urn:btih:C7B429FA45A778B188A0EC7F56F0FC94606A076A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

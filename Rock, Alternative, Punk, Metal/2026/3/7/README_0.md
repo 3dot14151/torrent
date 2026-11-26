@@ -22,8 +22,7 @@ Triumpher (2026) Piercing The Heart Of The World (FLAC)Жанр: Epic heavy meta
 ```bash
 magnet:?xt=urn:btih:126AF1FD1D8F3445164A649353318E426EE41D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sanctity - американская thrash metal группа из Asheville, No
 ```bash
 magnet:?xt=urn:btih:8318C92AC2B7117F698C78AAAD0ABE965776AEE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Coldplay - X&Y (2005) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop
 ```bash
 magnet:?xt=urn:btih:6877564A8E37BC00452360CD09C8105979E7592A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lost Society - Hell Is A State Of Mind (2026) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:4E2216F9AA3358A68EB0985AC6146D1613B2975F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Zed Yago - At The Edge Of The World (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ```bash
 magnet:?xt=urn:btih:02EB8D098E210EACDE71E7CCE04A970FCD4C9933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

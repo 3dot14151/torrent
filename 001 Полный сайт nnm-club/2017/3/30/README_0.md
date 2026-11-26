@@ -21,8 +21,7 @@ Simone Cozzetto - Wide Eyes (2016) [FLAC|Lossless|image + .cue] <Neo Progressive
 ```bash
 magnet:?xt=urn:btih:A25D05FB7660FDB1CF36EB794CC3C7136F3801DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC8B8D75A62361036A17AEA981973AD04F4C83F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB591F85DC38E63D459587B79E19165166CB0597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - These Dreams - Rock Classics (1997) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:AA0787954051183EB5638B12C5DB061806E0430E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Бомба Hits. Весенний (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A45C02B60F5D1AA94D2185A735B590DAA07B7F1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Chronosphere - Red n' Roll (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7F03AE1449B85C11B4B74C13392D169139677E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:DC0CD159950652FBCD0FC9102D8059CB2DCA8C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Nightrage - The Venomous (2017) Japanese Ed. [FLAC|Lossless|image + .cue] <Melod
 ```bash
 magnet:?xt=urn:btih:B519E6ED8C2C6806CD43064CBC384B4A2D0A453D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Devonthink Pro Office — программное обеспечение для �
 ```bash
 magnet:?xt=urn:btih:030A7F9EF7816BFD361F2B594910795FA5A6CECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Plastic Angel - Hardwired (2001) [FLAC|Lossless|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:5BF745FECF67F2AB0C369CA84FFD4AE8998A59A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Ancestral Dawn - Souldance (2017) Japanese Ed. [FLAC|Lossless|image + .cue] <Pow
 ```bash
 magnet:?xt=urn:btih:062EA8C9FBEB4195FD4103CDE4437DEBFE43DFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ SmartBackup 4 - приложение для быстрого клонирова�
 ```bash
 magnet:?xt=urn:btih:CD6F407B8CB5DFA6BCA5C7FA1519AF747B979F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1CD02C70FC30536E00873054BEFF54FC2C1C9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Brother Firetribe - Sunbound (2017) Japanese Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:E95990A727BABA27061B20784C465A29AB5F205E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ VA - Latin House Music Summer 2017 (2017) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:677109D83B316EDDA0A7AE30FFEDD51D58D61A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Warbringer - Woe to the Vanquished (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:BD6993EC991544B24E4FA94C80159BAFCE52EB4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ VA - Музыка солнца (2014) [MP3|192-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:8F66CDC384CF229E0CA10BD00A507524F16D0964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Sergio Ferraresi - Horizons Vol. 7 Galaxi (1979) LP, Reissue 2013, Private Recor
 ```bash
 magnet:?xt=urn:btih:529EED1C84ACC3A2390AD4FEBEC836462CA53D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Lyn поддерживает все популярные графические 
 ```bash
 magnet:?xt=urn:btih:67E4BA2F2A181CC9404E336B0780BADA13FCE354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E7DF3A2ADA5402DA3E9F5D9E0FA83B9846389BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41BE5CE3F091FFED54B1C91B579D720C310F2010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Edguy - Space Police - Defenders Of The Crown (2014) 2CD, Limited Edition [FLAC|
 ```bash
 magnet:?xt=urn:btih:41C723C185ABFFD607A5FEBEF1AE93F3FA10F084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD9AC80906D26C3BB5F8BC6B19483864B5081938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ Jamiroquai - Automaton (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Fu
 ```bash
 magnet:?xt=urn:btih:DCBD1C07440A3F18BD657F8425DC1E79DAE376D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74DEE8B3A9F720DF0443C46CFD7062B64E5D3E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ VA - Dинамик. Весна (2017) [MP3|256-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B9E9074D223B20EC7FDFAB29BE8E6BCA365198CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

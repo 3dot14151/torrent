@@ -19,8 +19,7 @@ BEAST: False Prophet (2023) [Multi] (1.1.24118) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:6F11C5BB2BEA292CF544C01A6E1464EDA21A7872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stellar Warfare совмещает в себе сразу несколько п�
 ```bash
 magnet:?xt=urn:btih:35C3B9635B21B016A2E9DCE2C9B69C2D9D4E1BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Oriental Dynasty - Silk Road defense war – это возможность от�
 ```bash
 magnet:?xt=urn:btih:692E43E5983FEC126A7B6652548321AE27F1B876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bluey: The Videogame предлагает погрузиться в душевн
 ```bash
 magnet:?xt=urn:btih:2DD66C66D781156EB5267E8A4E50CD13F606ADB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

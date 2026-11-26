@@ -19,8 +19,7 @@ Angela Young 3: Lucid Dreams: Messages From Beyond / Анжела Янг 3: Ве
 ```bash
 magnet:?xt=urn:btih:5C7EC2BC212FF8E96066E26DFDB6D7947BDF94A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fierce Tales 2: Marcus' Memory Collector's Edition / Жестокие истор
 ```bash
 magnet:?xt=urn:btih:ABE6C5A2E5E922B8A0635C74BE32610BDA584514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Torchlight 2/II (2012) [Ru/Multi] (1.25.5.2) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:7EF2C09AA557705F37772D86F69BD59EABD3EB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

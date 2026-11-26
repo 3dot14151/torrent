@@ -22,8 +22,7 @@ DDT - Метель Августа (2000) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:38FFD73C535E1F3C611CC0C115F16BFA43B9AF01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

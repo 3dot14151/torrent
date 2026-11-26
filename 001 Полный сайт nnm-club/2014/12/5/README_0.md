@@ -27,8 +27,7 @@ Cruachan - Blood For The Blood God (2014) [MP3|320 кб/с]<Folk Black Metal, Ce
 ```bash
 magnet:?xt=urn:btih:365B420188200E16FD45B808965BFC445FC423F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4835445E565A99ADB6391DCCD369D17D7F6C4AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68012CDAF403DB928254258457240C819B53BB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Autour De Minuit - Les plus belles voix du jazz (2011) [MP3|128-320 кб/с
 ```bash
 magnet:?xt=urn:btih:1FC4DA39A883D9A89BA14442ED3963E7119F7C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAF4E38105D14CD9098F33B303CCF66AFF592266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Comedy Баттл. Суперсезон. Выпуск №35  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:8389439CE223575F8CADFDD335C64D83A9A3F5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:343BAA5ACA1151D0F0B3A19FF58BD7AF13392D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F549E7217D5408FB87EAB6FB446F2902CAF92129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Aerospace - Everything Is Music (2014) [MP3|~245 кб/с (V0)]<Psychedelic>
 ```bash
 magnet:?xt=urn:btih:5583893FA1260E23911F18F91A04DC5AF3C29C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20013CDB9DA1DF58156F70E07111764D3E20CB70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Hide Folders 2012 - это удобный инструмент для сокры
 ```bash
 magnet:?xt=urn:btih:A3EC7A2C70816E497485281DA35C7F6273F40C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ Arn Andersson - The First Era (2014) [MP3|128 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:5A36188607E9DED699DA221009CBBD1138C02336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Qoobar использует библиотеки Qt и Taglib и может ра
 ```bash
 magnet:?xt=urn:btih:31AB544577871C49E44B40600A46A70D7D2E7EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ VA - Resident Advisor Top 50 For November (2014) [MP3|320 кб/с]<Tech House, D
 ```bash
 magnet:?xt=urn:btih:00EA6B400ECCEE0AD7DE1D0F1F05DED75900CF5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ VA - Best Of Club Playlist (2014) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:25DF054D31C813AE93F499B3FEFED2AB8A5D3ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E95928775E4874BF1657576CA52ACFC26E401587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:658FD12F1539F41A6BFAA66E4120BC0D4FC771A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +502,7 @@ Media Маг – это площадка, где публикуются самы
 ```bash
 magnet:?xt=urn:btih:84E2AC6C4AF68BB3607B4E2CD51F8A239AAB01D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ Audio: Русский, Оригинал, MP2, 2.0, 192 кбит/сек;
 ```bash
 magnet:?xt=urn:btih:15FC2F3AD4F5A005D08D22973933F8A6C3F6AF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6568542A9DBF2268DA7E6EAD536DC561457F9E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ Sub Pub Music - Rise (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:1E811F762536653A9DA51CEFE6A5E3C5E6653AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ Trudy Lynn - Royal Oaks Blues Cafe (2013) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:8E5EC51D4A3E2C3370FA838C58A12637A41EA0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2397ABBE47CF074042DB73E86AFA2CE67BCE2564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BC65B868655CF8757EE7ED36540283574A3C4E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A69C67388D2E1388CB37E17E43951D32E220BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D074068E50184A41E776C574EAFB08D914533CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

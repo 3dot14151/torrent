@@ -23,8 +23,7 @@ Rocka Rollas - The Road To Destruction (2014) [WavPack|Lossless]<Speed Metal>
 ```bash
 magnet:?xt=urn:btih:79C5CB2991DE7617FDBA8BDD28AE36E538CEDFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

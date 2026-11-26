@@ -19,8 +19,7 @@ InstaSave - приложение для загрузки фото и видео 
 ```bash
 magnet:?xt=urn:btih:7B60B263AD4997901A81FCBCB507108768FD320C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

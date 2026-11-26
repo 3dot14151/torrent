@@ -22,8 +22,7 @@ A3 Ballade(   Читать дальше...   )Жанр: Classical, RomanticПр�
 ```bash
 magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Mortemia — готик-метал сайд-проект Мортена Вела
 ```bash
 magnet:?xt=urn:btih:3D0CD45A1431C2E03A5ADEBD2348E1D64C41CE36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ A4 I Know That My Redeemer Liveth (From 'The Messiah')(   Читать даль�
 ```bash
 magnet:?xt=urn:btih:D6908EE3E570286E9AF5439E59B75EFDA1B4603D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Sirenia — норвежский готик-метал-проект, основ�
 ```bash
 magnet:?xt=urn:btih:3CFFCE365B756EE82FACC92DDF929812D27B4FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

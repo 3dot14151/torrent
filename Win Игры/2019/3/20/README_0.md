@@ -19,8 +19,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.002r) License CODEX
 ```bash
 magnet:?xt=urn:btih:14EEC747D52784AC3358020E9D65E1FC88109671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fate/Extella Link является продолжением игры Fate/Extell
 ```bash
 magnet:?xt=urn:btih:63F833D585E1506E39BAD6EF9870D1BB9D4A683A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pizza Connection 3 (2018) [Ru/Multi] (10100111001) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3D1288DD321D0A0EEE46E072D48EF047CCAF7FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Antihero (2017) [Multi] (1.0.24/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4F8AE611E1BE1CCAEFBE5F7D3CECC951B8894C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

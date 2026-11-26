@@ -22,8 +22,7 @@ Burial Vault - Unity in Pluralism (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2FD241FB47642EB5D47772511DBD1E06177389E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Raccoonies - Raccoonies (2015) [MP3|320 кб/с]<Folk Rock, Blues, Country, Fema
 ```bash
 magnet:?xt=urn:btih:446006430054A7B4C0493EEA954EE1EDFF2FC796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Unleash The Archers - Time Stands Still (2015) [MP3|320 кб/с]<Melodic Power/D
 ```bash
 magnet:?xt=urn:btih:12791B4799236DE9214AF037C69306172C658B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Doors - The Best Of The Doors (1973)/2015/Audio Fidelity [FLAC|image + .cue]
 ```bash
 magnet:?xt=urn:btih:D157D84E5FFE2A1F1CD613B27324D8E839F3F120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

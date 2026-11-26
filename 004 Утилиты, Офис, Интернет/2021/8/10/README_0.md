@@ -19,8 +19,7 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:07DDAA71945558A3F9FDFF429D62E9D2B9160E00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AnVir Task Manager предоставляет подробную информа�
 ```bash
 magnet:?xt=urn:btih:5EE9EED2DB9918BAFDF0D2994191CA9546B57E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Malwarebytes Антивирус: Антивирус, защита от шпио�
 ```bash
 magnet:?xt=urn:btih:7BC4E6BF2CC4F766D4D6373EC58DC9BBDC6EEA25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ InstAddr 2022.10.07.1 (1091001) [Ru]
 ```bash
 magnet:?xt=urn:btih:24830131D37ABFD48EEEFE82F1F7C5C659B32342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

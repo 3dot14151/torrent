@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EE8DE6EC956A95789D59F6153CC277A88FB3081C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A28F8D56A6A588431A41F48CD44C583EECE02499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nvidia PhysX System Software - Это новые драйвера для апп�
 ```bash
 magnet:?xt=urn:btih:4999CBBF6842BF66D9774599D3FC5DABF1137249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B921BB22609AF5A2FE14EEA8D5F5D0E2C86280D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Ubuntu 14.10 Utopic Unicorn Beta II [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:23E2C97FB64B8A7AE43976A0AE96D99FFC9C9FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:468252438E1BDDA62C6F78E4E0204AC2868E421F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ VideoHive - Christmas Bobby - 3509834 [AEP]
 ```bash
 magnet:?xt=urn:btih:9101CD638BFB5C080E7389996B718D8840CB5E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ VideoHive - Light Bulb Explosion Logo Reveal [AEP]
 ```bash
 magnet:?xt=urn:btih:13DE650DF8C6D6F972BC1FD9EE2D72774961EDED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA0AF6F100358AD9C4F4BE3E938E967C44FCED12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:B0F14C58B3F075C93F3905A0C9856420C9C08899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3207AB4F57F57456736E5870C6CE8D0308308D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9FF5665D3B13F2CDC68174D081A9DD7E278C4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:824381276095E78E9970D323A04BF592F4156CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ VideoHive - Christmas Bobby 2 - 6190167 [AEP]
 ```bash
 magnet:?xt=urn:btih:1888D0CDE72965CB6E1A61E326E972BF2C81DB65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Naruto Shippuden: Ultimate Ninja Storm Revolution [PS3] [EUR] [En/Ru] [3.41/3.55
 ```bash
 magnet:?xt=urn:btih:4F2C8A0E85A642D4FA8993249CDE086D3B2BF9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ RiDoc - программа, которая сканирует документы
 ```bash
 magnet:?xt=urn:btih:1003FF37DF7B2A0AAD4618FFE698C497C5234905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E1710057694AE8EEF71C09A82C72D1A9AE606E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ VideoHive - Christmas & New Year Greeting Card Design проект в продо
 ```bash
 magnet:?xt=urn:btih:BB0369B4BB0A50925B5E1D81D72862F6D6968033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ Nero 15 предлагает целый набор полезных и прос�
 ```bash
 magnet:?xt=urn:btih:C229C3596E6C20BDC15041B0A18F4B9F9DD69280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AA5D6BE75169969A1A1C16434ABB4CE6786CBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ VideoHive - Epic Action Trailer трейлер к фильмамФормат: AE
 ```bash
 magnet:?xt=urn:btih:F15592D92916FA27C0474C466FB80DD0DE7DD04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +575,7 @@ FIFA 15 [PS3] [USA] [En] [3.41 / 3.55 / 4.21+] (2014)
 ```bash
 magnet:?xt=urn:btih:850DA455DCBFF9B46914F6C63190521EFFA5684F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0E589CBAB802B6391862401D3C1A7AD0A67BC18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66B38509CDD15C08835D9DB0100352C579EABBEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +650,7 @@ FIFA 15 [PS3] [EUR] [RU] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2014)
 ```bash
 magnet:?xt=urn:btih:86D90D4989FDAE2F3856DC1E374018AE98BF4151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

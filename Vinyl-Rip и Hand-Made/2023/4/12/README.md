@@ -22,8 +22,7 @@ A4 Where The Ending Starts 3:48(   Читать дальше...   )Жанр: Ele
 ```bash
 magnet:?xt=urn:btih:720C605DE80BE1B08DFCEC547486DF8D45F147DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

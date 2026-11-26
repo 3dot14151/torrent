@@ -19,8 +19,7 @@ Through Andrea's Eyes (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:0539300BC1B1759F1CB3B54FDC58F22C17485BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Puzzle Agent Dilogy / Дилогия Puzzle Agent (2010, 2011) [Ru/En] RePack Au
 ```bash
 magnet:?xt=urn:btih:735C146F3B9B4E8BC2AE31320F8B22CEC87857A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ A New Beginning - Final Cut (2012) [Ru/En] (2.0.4.0395) SteamRip R.G. Игром
 ```bash
 magnet:?xt=urn:btih:DB741FF8B38907A07055181C232C9BE41D3C781E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Viking Saga / Сага о викинге (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:258E6DAA5C0B880DE97104D903DF0A12728A8C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Stranded Dreamscapes: The Prisoner / Тюрьма сновидений: Плен
 ```bash
 magnet:?xt=urn:btih:9FBB8AD61F85DA9E8C24343EBA816882921B475F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Rock of Ages (2011) [Ru/En] (1.11) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:81115862551B3E862F860D00F75A1B02899255FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Mirror's Edge предлагает вам роль уникальной геро
 ```bash
 magnet:?xt=urn:btih:55DB847F2C71DD51EB502F1B3BB7020FB6D4140E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Broken Age – нестареющая история о взрослении, т
 ```bash
 magnet:?xt=urn:btih:438F6A02BBD75ADE48A25D43D8DC78082221CE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Alien Rage: Unlimited (2013) [Ru/Multi] (1.0.9084.0) SteamRip R.G. Игрома�
 ```bash
 magnet:?xt=urn:btih:617C86AE60151E098D4A0BE7BDF3D27A4C664310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

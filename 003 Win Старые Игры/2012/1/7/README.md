@@ -23,8 +23,7 @@ Atlantis Evolution / Атлантида: Эволюция [Ru/En] (RePack) 2004 
 ```bash
 magnet:?xt=urn:btih:2A971B54CBF12209FE11E707794111A1ED338419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

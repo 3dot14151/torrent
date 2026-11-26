@@ -23,8 +23,7 @@ Subway Surfers 3D - Worl Tour ROME v.1.8.1 + Шопинг [Игра] (Android)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

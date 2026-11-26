@@ -23,8 +23,7 @@ Mortalium - Obligate Loneliness (2015) [MP3|320 кб/с]<Doom Metal, Gothic Meta
 ```bash
 magnet:?xt=urn:btih:70604AAB87129E94E83ABCA63AE7A76CB6114461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Copeland - Ixora (2014) Twin Edition [MP3|320 кб/с]<Indie Rock, Alternative, 
 ```bash
 magnet:?xt=urn:btih:48F992D17B9020C067A1AAB7C11CA594E29E97F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Copeland - Ixora (2014) [FLAC|Lossless]<Indie Rock, Alternative, Indie Folk>
 ```bash
 magnet:?xt=urn:btih:E80A81CF1ADDFAB66096B76FB5AD494F7B0F1C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Fjord - On Icy Shores (2015) [MP3|320 кб/с]<Post Rock, Post Metal, Shoegaze, 
 ```bash
 magnet:?xt=urn:btih:CAC1D15702104A583F27DA78D07CA53EAE08FD38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ VA - Manchester Punk Festival vol 1 (2015) [MP3|320 кб/с]<Punk Rock, Hardcore
 ```bash
 magnet:?xt=urn:btih:1599C057F7AE76378729D10465B7DAECFF092D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Sleater - Kinney - No Cities To Love (2015) [FLAC|Lossless]<Alternative Rock, Ga
 ```bash
 magnet:?xt=urn:btih:94E3F03344979DB283508347E91D6C57CE1276F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Pack Of Wolves - Echo Of Love (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:FAEFAC362BFF68233B1E353FF9365E0CDEED9C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Homemade Wine - The Road To House Mountain (2015) [MP3|320 кб/с]<Southern Roc
 ```bash
 magnet:?xt=urn:btih:27BF36DD352647D0BD7BFAD06BAF6EC95FD09D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Risenstar - Unspoken (2014) [MP3|320 кб/с]<Industrial, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:700530ED1A22BEC061B58AACF92F112E88221911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ Izah - Sistere (2015) [MP3|320 кб/с]<Post Hardcore, Post Metal, Atmospheric S
 ```bash
 magnet:?xt=urn:btih:FD12FFBBF121D737D3133C46CB0045B1A8B2EA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ Endlesshade - Wolf Will Swallow The Sun (2015) [MP3|320 кб/с]<Doom/Death Meta
 ```bash
 magnet:?xt=urn:btih:1A07AAE466B8CB0308948B4374B9F670E4A1B21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ Dodsferd - 2 Demo, 8 Album, 4 Split, 2 Compilation, 1 Live, 1 EP (2004-2013) [MP
 ```bash
 magnet:?xt=urn:btih:0D5ADBFC7C829B453E342B974FEA41581078397C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ Albums, EP:
 ```bash
 magnet:?xt=urn:btih:017F8C4825F94F26F4157A38975350D907C6D8FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0A52898F968EC2E3873021645FAB3C7100894DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:065D6DCA2B27EFCAD9229D67D32AC585C10A60CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ The Alan Parsons Project - Platinum & Gold Collection (2003) [FLAC|Lossless]<Sof
 ```bash
 magnet:?xt=urn:btih:DDC1E976A210C2A991882B971CE74273AE4C6E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ Scorpions - Return To Forever (2015) Limited Deluxe Edition [WavPack|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:06587FC0EB27C8F927E39B37A50FBBEFA051A918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ Skillet - 9 Albums, 2 Compilations, 1 Live, 1 EP, 2 Promo (1996-2013) Диско
 ```bash
 magnet:?xt=urn:btih:9F1A93B53BF4BE4D59354C15A343E54E2FB5E8A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

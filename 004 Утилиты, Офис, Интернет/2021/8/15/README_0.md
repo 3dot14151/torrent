@@ -19,8 +19,7 @@ HTTP Debugger - полномасштабное средство для пере�
 ```bash
 magnet:?xt=urn:btih:37922DA52FE235FA2D35691BA90AC462A252297B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

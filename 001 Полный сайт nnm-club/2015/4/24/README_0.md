@@ -18,8 +18,7 @@ Junkware Removal Tool 6.6.2 [En]
 ```bash
 magnet:?xt=urn:btih:8BA2EB476BDDE9E3ED52AC029E12630DF9C77C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Maduro - Call to Arms (2015) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Techno, Experi
 ```bash
 magnet:?xt=urn:btih:97D53FA27C8F828ABE4EAAC3DBCB91F737C8A3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40956651ABDEBDD24F5755EF7F540DE40C3A0732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - Best Dance Party Illuminate (2015) [MP3|255-320 кб/с]<Club, Dance, Euro,
 ```bash
 magnet:?xt=urn:btih:D04E399689775910E3F2A6125788EF40B6661148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:E0BA7AF50310CC65FAC2919FB6A41619CB7FBD38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Baker Phonk - Nuttin but Phonk (2014) [MP3|320 кб/с]<Hip-Hop, Rap, Phonk, Und
 ```bash
 magnet:?xt=urn:btih:93D5371D7E54FB41DD2A6B1826B878A6038C8E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Baker Phonk - Baker x Evil (2014) [MP3|320 кб/с]<Hip-Hop, Rap, Phonk, Undergr
 ```bash
 magnet:?xt=urn:btih:F0AF330BD0CE099256547583EF4254045C92B9EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A81DF4FE34CB37E8410BEDE653CE5C6DAEC326F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99C1BF42EEE6EB8725DD997B2788D0281B9DF088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Baker Phonk - Some Stuff (2014) [MP3|~245 кб/с (V0)]<Hip-Hop, Rap, Phonk, Und
 ```bash
 magnet:?xt=urn:btih:3850C48C7015E51A4DBFD323545C3CB4348B792A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ XMedia Recode - бесплатный видеоконвертер с функц�
 ```bash
 magnet:?xt=urn:btih:006B4060E29C43D78081A32B54FA73CBBF1AF225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Blur - The Magic Whip (2015) [FLAC|Lossless]<Alternative, Britpop>
 ```bash
 magnet:?xt=urn:btih:7765B9F8E99F6E2110248D615E2CCBC9EFC6AB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Sonic Jam 6 (часто Sonic 6) - хак на Super Mario 2 1998, нелице�
 ```bash
 magnet:?xt=urn:btih:CB7FDCD1BE6CD761AC014C94F3666E194CBCE12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D654821232116A691B9AFBBE491458EEDECCC300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Piano Concerto No. 2 in F minor, Op. 21, CT. 48(   Читать дальше... 
 ```bash
 magnet:?xt=urn:btih:D4985B50B679E22775498958D34FB350D6390698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Thorleifs - 2 альбома (2011, 2014) [MP3|256 кб/с]<Saxophone, Instrumen
 ```bash
 magnet:?xt=urn:btih:3A9EBC652F259B9DCFEB46ED77F6E299E90F668A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ SynWrite - бесплатный мощный текстовый редактор
 ```bash
 magnet:?xt=urn:btih:B6BFF5E009829CB9CFBE1A42F49B040A58CC1653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Vivaldi 1.0.161.2 Technical Preview [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0CC80A6BD93EF8C2F60D5E338853801817902BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBA0CB60636DA30EDFD016DB63903191E37CE1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDB1715F0675FA55B47551CFFD78CDEF6E5694D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ A5. Seventeen (4:34)(   Читать дальше...   )Производство
 ```bash
 magnet:?xt=urn:btih:3E37A27E7A3794ACE239B0470EEB48A4BCB19FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Calibre - простая, удобная и универсальная прог�
 ```bash
 magnet:?xt=urn:btih:E03DC3C66E998561A8EAE8DA927BACC1DC7A61C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Orbis (Formerly MenuWeather) – программа которая в строк
 ```bash
 magnet:?xt=urn:btih:14A26DEAE16DE7056D2111A02588C5098B8CEF1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F33635B6A9D411806C456B474AF326346B229435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6EF0B8AFFC074F05099E6872398BDB5FC044C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90648932CEA27C8984911F163FBF286D3E031631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

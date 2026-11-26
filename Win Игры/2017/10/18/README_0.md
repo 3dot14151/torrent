@@ -19,8 +19,7 @@ B A S E M E N T (2017) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:73EBFF6C3D3BF7EF846996E58CA10C20614D4CD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rogue Trooper Redux (2017) [Multi] (5560) License CODEX
 ```bash
 magnet:?xt=urn:btih:109BC399ABC5907A0047CB1239A81C4417A7B263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Train / Поезд (2013) [Ru/En] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8F5896455347024D270D59B680BE5AEDD591FC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

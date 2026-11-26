@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:1C42613396763CD43BB6260165252F40816A9E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Collections of the books in English on Electronics, published by(   Читать
 ```bash
 magnet:?xt=urn:btih:B8C179C3592C1A617E8CB7191D403F6CFED8CB9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

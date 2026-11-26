@@ -18,8 +18,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:547EF3522FD8798BAD5E6C9EE258D6798A212D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Resident Evil 4 (2014) [Ru] (1.0.6) Portable PortGamPC [Ultimate HD Edition]
 ```bash
 magnet:?xt=urn:btih:2797B1BAEB4757E93F5638414C77A97466B23158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Daemon Tools - маленький по размеру, но мощный по в
 ```bash
 magnet:?xt=urn:btih:A34E0F1908BC167702BD6B3DDCCE12D8FB1ABB29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Daemon Tools - маленький по размеру, но мощный по в
 ```bash
 magnet:?xt=urn:btih:6688656CF91BD903CE8790683BDC65612739E44F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C60DF016ACE47D06827D7E8B2472C5782339A4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1B53C8A5D5EB19170117438A0A1B31C1BC3A8F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Tuxera NTFS 2015.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C41536051CB7EA809E5407E11676BCFAAE6E554A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4685C5B21A14FED5DF09554232CA3A56E96A07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92C0F7E29FEE989E9F46933C454F19FED600C877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Windows 7 SP1 RUS-ENG x86-x64 -8in1- KMS-activation v2 (AIO)
 ```bash
 magnet:?xt=urn:btih:26B9923322BCAD3BFBDA54A0638D1B10FB079F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Dying Light - экшн-игра на выживание от первого ли
 ```bash
 magnet:?xt=urn:btih:03CC1885CA0BB85AAFA4DBF4DBDCF1BB07AA1398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Tales 14: Master of Puppets (2021) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:5E359DFAB4A428C946EB81CD2430C04F4213A466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Breathedge – это ироничная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:67271663EE5653BD5EE298C6AF11465C0BD1031D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

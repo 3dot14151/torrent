@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7005818AD6A36606DA29FE397F7A4C0DB791608E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ SRWare Iron 42.0.2250.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:393962E23DD5E41BE7AAB8DDA28C138FE7F659D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58CF31C556882267C60B10E60B46E39F228273B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Paul Van Dyk - The Politics Of Dancing 3 (2015) [MP3|320 кб/с]<Trance , Progr
 ```bash
 magnet:?xt=urn:btih:A1ADC340608C8B040DE2DEF57B10BDD48766297C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Sports Megamix 2015.2 [Box Set] 3CD (2015) [MP3|252 - 256 кб/с]<House, P
 ```bash
 magnet:?xt=urn:btih:DEA95051374E3CC02878F2BC5A26E92F4A8A2072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Russian Winter Party (2015) [MP3|320 кб/с]<Поп, Диско>
 ```bash
 magnet:?xt=urn:btih:7F92B43E15D6B0F6316AD004E075B57AECAEDDCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VSO ConvertXtoDVD - программа, предназначенная для п
 ```bash
 magnet:?xt=urn:btih:F6EDB31C11CA0B15486B9C6E5A037E7B7028F076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Mini racing adventures 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:03E05DBDDED86CA9D514E962A0CA08728B5574DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ SynWrite — бесплатный мощный текстовый редакто
 ```bash
 magnet:?xt=urn:btih:EC45C65F39420F3A42C8EA6F233F1B48A7BC6168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:796357D4385222C9B529EDB07CFB72C83E3979FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C71D1967A90D9D19257D16D2A97E704748D383B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - Vocal Trance Seduction Vol 1 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:EE547BE45255A3CDAAC13AD6709122F3F98C2D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72AB002AF0ECEDDC419D257DF4F1EBCDCD116E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Angry Birds устраивают торжества по поводу разли
 ```bash
 magnet:?xt=urn:btih:5E2CF001D2C6D3D2AD34528810FEB4207F6DFCF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ SyMenu это средство позволяющее обьединить вс�
 ```bash
 magnet:?xt=urn:btih:064A94D73902CD88BE56089F4F8DEE1E7DA9BB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7D2B13574F34C84187FC73B8A4F8AF15682CAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40862E19483721DD06357B75422E982CB6D007DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7134F7C83930169B8D72B53E9B13C2CD83EFF79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ Star Horizon 2.0.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:9EC82216B6A1D262C3C48BDBB9A2D9E91D620020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:244ADEDF5D05F2EE9AD0F1C4F655021A46BB7B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ VA - The Official UK Top 40 Singles Chart (03-05-2015) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:6895A73912B02191C44347AABC18530867BCE337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80B2DC4B481398DD2820AA18CCE686C65E28A8BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC4F2D94B28B91F2BD324D4BA11DD07A34144837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ Coda понимает 23 языка программирования, среди
 ```bash
 magnet:?xt=urn:btih:7E76AA3C27FCC248EE0B3A1BC45CE9F5DD6116AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ Call Recorder - лучшая программа для записи audio/video 
 ```bash
 magnet:?xt=urn:btih:FED9DABA4C085A07B365B0B7E19108CD19F4AF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

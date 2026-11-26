@@ -19,8 +19,7 @@ Deadly Dozen Reloaded - это полный ремейк оригинала. Н�
 ```bash
 magnet:?xt=urn:btih:4AF1DC42A9DCD5903D678E1A0BE08EE6D720E8DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Glover (2022) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5E6596A66C800141BD4EE10CF9180D0A4218D1BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

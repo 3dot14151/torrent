@@ -22,8 +22,7 @@ The Matrixx - Резня в Асбесте (2015) [FLAC|Lossless]<Neo-Post-Gothi
 ```bash
 magnet:?xt=urn:btih:4CC0FE668C7A7C77955C859F267607155B74E624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

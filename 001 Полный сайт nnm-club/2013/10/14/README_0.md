@@ -27,8 +27,7 @@ Robin McKelle & The Flytones - Soul Flower (2013) [MP3|320 кб/с]<Vocal Jazz, 
 ```bash
 magnet:?xt=urn:btih:16D44C148FD3444146678CB7B3384011F4D35E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98EDABBF221FEB61F56BD3D2279C59A368AEA927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8851425E96F3B7F5364FF91095136063C6CFDEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E13195608F96375B822D88667730A32D331350B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C328CBB0A793F36BE741262FECAA433F9758F04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ York feat. Tanja Vesterdahl - If Only I (Remixes) (2013) [FLAC|Lossless|WEB-DL]<
 ```bash
 magnet:?xt=urn:btih:7278F70D2470137BEA1AF8A14E26DF9C74FA2051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB39886193FFA6487FF048CC04855554AE7DE775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Andy Moor - Breaking The Silence Vol. 2 (2011) [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:2338997519BE9D1434A97C9FC897ACB9BC639AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ Peter Hammill - Fool's Mate (1971) Remastered/ 2005,Toshiba-EMI/ [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:6F8E3AFA1AC18A16DA057FC5F8D35915AFDD1D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ VA - The Official UK Top 40 Singles Chart (13-10-2013) (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:531CF920F85D0372B226EB0D22E2E5614FFBE3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ Motorhead - Aftershock (2013) [MP3|192 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9CBF7D92045D1F410A594C507BEC738FECA31F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ VA - NRJ Hit Music Only 2013 Vol. 2  [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:919E932AE3FC1AD443778ACF7EE6483F9F9A2D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75676B0503DF7DD7A641C151A9ED90765C60CB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ Royal Crown Revue - Greetings From Hollywood [Enhanced CD] (2004) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:04C4B41A02824582E7F6F0F178180762E62E1A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ VA - Mega Hits Sommer 2013 [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F59E02EA6363926E63ACF3AB491370B13133210B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD5B00DBD5AF451E65049C3C609C0A8526517A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ Brown Jenkins - Angel Eyes (2008) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:ED0D78B06D00D36510676BE483C7D58D3B1CC664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:994173C3B32D0F4BE6E6683FBCAFDDD6A9F3FE5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ Anders Jormin - 2 альбома (2001 & 2012) [FLAC|Lossless]<Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:1666230933B341EB670D41D80A7E115DB276A2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E145DFE2630462D2B4072B9190390609EA1781D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ VA - Trance Maniacs Party - Melody Of Heartbeat #109-115 (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:73C93E616A60083C9D724C9C6C6A4E1D87D1D636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ Mr Peculiar - REMIXES (2013) [FLAC|Lossless|WEB-DL]<Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:5DE365D1709A2E148AA235F984EFAD30F89BCE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3826E97FA0CAA516D38E933DC2A40C5C47A142CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +704,7 @@ NirLauncher Package - это пакет из 175 небольших утилит
 ```bash
 magnet:?xt=urn:btih:2B77AD4FBFFFE08C6235D2D89EC707516CC19E2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ Wallpapers - Обои разное 17. [JPEG]
 ```bash
 magnet:?xt=urn:btih:0C809DA06941B8D8384C9DD6F88B9A90B4DD74F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ Nargaroth - 2CD (2001 - 2007) [APE|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:ED74601B7A28D107D7434B058D722F0D39245DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

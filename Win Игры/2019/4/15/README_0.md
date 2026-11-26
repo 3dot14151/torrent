@@ -19,8 +19,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) License PLAZA
 ```bash
 magnet:?xt=urn:btih:691C79CAF4EDFF49D5A54744DDEAAFC8F5C23C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2F5468E02A3FE48D4E43D4AFAF05185535513870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Book of Demons — это гибрид Hack & slash и карточной игр
 ```bash
 magnet:?xt=urn:btih:B83EB58620349608821EA9D0C2D533680B4C2495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ WAR PARTY (2019) [Ru/Multi] (1.0.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:708F516F8C41C68E49F894D3B9CBF24611B15C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Holy Potatoes! A Spy Story?! — это оригинальный симулят�
 ```bash
 magnet:?xt=urn:btih:2E4CCBD67041176D37E2339A4046E4C61044FBB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Victory at Sea Pacific - игра про морские сражения в се
 ```bash
 magnet:?xt=urn:btih:3598FF6327BFDF2103B8F6140D347F6E21867A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Kerbal Space Program (2015) [Ru/Multi] (1.7.0.2483/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C08E0478A9F254526C4A3A7C9ABC6EF6C3242E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/Multi] (2.4.0.19728/dlc) Steam
 ```bash
 magnet:?xt=urn:btih:074C0D98A5E903CC229F6EB739347EFB27B3129D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

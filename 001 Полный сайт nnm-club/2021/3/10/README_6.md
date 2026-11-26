@@ -20,8 +20,7 @@ Downcast – программа для загрузки и прослушива�
 ```bash
 magnet:?xt=urn:btih:3CF1BBF6C2DC6BEA42BE7831DD424E8978A9BE8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Cisdem Duplicate Finder - поиск дубликатов и их удалени
 ```bash
 magnet:?xt=urn:btih:3B4E91F4CA151129D6F14A3227BC2C4CAD581F73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ BookMacster - приложение синхронизирует закладки
 ```bash
 magnet:?xt=urn:btih:C85CA4AECD43F2D85FA650144044B3861BF4EEDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Synkmark - это приложение для синхронизации зак�
 ```bash
 magnet:?xt=urn:btih:848817C602685F6454CF553C6D3437E0F6CAA193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Thorium - Thorium (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:845FEB014D48E22D75FC7417B8A0BBBA912FEA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Willie ''The Lion'' Smith - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:FD71F219C2891B7887F4295D26CF7ED6E77227F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Bud Powell - How High The Moon (1992) Pigeon [FLAC|Lossless|tracks + .cue] <Bop,
 ```bash
 magnet:?xt=urn:btih:A972E8C39EC3A6ACCDDBD3786F4996CD2E589277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ GoodTask — это элегантная и мощная «напоминалк�
 ```bash
 magnet:?xt=urn:btih:E8EA8FD13B8769DCFA278D8D7F404EE3B603B310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Blow Up работает с Photoshop, Elements, (   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:451202ADB53B62A121164A09F32388367EDD0951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ GarageSale 8 v8.3.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:EA72261C3B6E1F818AD1765BEB363299A4ED6FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ TunesKit AceMovi Video Editor может отличаться от множес�
 ```bash
 magnet:?xt=urn:btih:917445FF87D967D34A74B8B20016378DF926B29B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Beyond The Border - Voyces (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:E4C046F866E85660039126114DFC56C0F494513B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Arc Angel - Arc Angel (1983) Reissue, 1990, Portrait [MP3|320 Kbps] <AOR, Melodi
 ```bash
 magnet:?xt=urn:btih:E39E46C2A742DDA58D58CE4D3DBD32C3527DC3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Exposure X6 v6.0.4.178  [En]
 ```bash
 magnet:?xt=urn:btih:754F8B8CC5091EBD101E1725327D59427EC1E766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Timeless Haunt - Dark For Life (2021) [MP3|320 Kbps] <Heavy Metal, Progressive M
 ```bash
 magnet:?xt=urn:btih:10C7C22D9D400AEDC548DEAD6061D090661F50CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:7970CDD5DF7E37CD3B2F9AC226ED3948224E683E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Snap Art 4 - этот плагин предназначен для превра�
 ```bash
 magnet:?xt=urn:btih:62C65AA963554A0314F432F9B22034B82B88F38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ Tane Cain - Tane Cain (1982) Reissue, 2015, Rock Candy [MP3|320 Kbps] <AOR, Melo
 ```bash
 magnet:?xt=urn:btih:2169063D1C9B8690B09FBD2DE087A4190DADA6EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Rhinoceros 7 v7.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:24B824A3EF7DAFFC4D32612C85D92386384D197C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ VA - soulmates (2021) Explicit [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:EDB62E7FFFED87582F46E3BC52FC546285B347E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45C860E5AB50974DFAF5A963A9BCD233C3B8E14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ Circus Maximus — норвежская прогрессив-метал-груп
 ```bash
 magnet:?xt=urn:btih:887820A724C3DE8E96DAA2150C946DEB28520A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Monster Jam - это серия автоспортивных соревнова�
 ```bash
 magnet:?xt=urn:btih:283CE1E5B0E91DCF396BCA72E950BB97BD582AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ Exposure X6 Bundle v6.0.4.148  [EN]
 ```bash
 magnet:?xt=urn:btih:0EDFB52478DE909C31B10FA8B1F91D21A6DB0AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC9D2AB43748A1A1E2DC76E774C75B08F3A4988E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEC07C5A2792A5BF9F7A94AB656CDED91AEE7575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

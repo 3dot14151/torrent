@@ -21,8 +21,7 @@ Q4OS — дистрибутив операционной системы Linux, �
 ```bash
 magnet:?xt=urn:btih:2B7DA361ACCB06CB8175EBEB365F678BE7D02E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

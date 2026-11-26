@@ -19,8 +19,7 @@ Devuan — форк дистрибутива Debian, появившийся в 2
 ```bash
 magnet:?xt=urn:btih:F31AE7C852835EFB017862EA6C13C1BB07874BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

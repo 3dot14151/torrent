@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2FB1A17CA9BADF603CF5232CAA8D0A14CB6B7A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B3B8E2AD797CBA31011A83E3B99C248460C6AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CB17803ECB092239DF4DC4FC93531B783B53179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA422A6C9B8C2563A00511984805D5CB66712830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2471897E432D05267003D1A8132D37949422D622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Vini Vici - Future Classics (2015) [MP3|320 кб/с]<Progressive Psytrance>
 ```bash
 magnet:?xt=urn:btih:A0D79A6F6267523AFB25551BCA103F1AA7313401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Le nozze di Figaro, opera, K. 492
 ```bash
 magnet:?xt=urn:btih:BA5D385AF5384FD3AC291143AF0BE5FB3026D3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF98A7FCDAF69475CB2B592DCC3BD4EA431C3DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A119132E9012A87E705F00666C25B00903266FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4E15AE928AEFCA64958400C305709A47BAA7320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Yulduz Usmanova - Alma Alma (1993) [APE|Lossless]<Ethnic Pop>
 ```bash
 magnet:?xt=urn:btih:3274D2EBA1C2AC6AB5E83C3D38FDD7E62A668B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ SAS: Zombie Assault 4 1.3.1 [En]
 ```bash
 magnet:?xt=urn:btih:A3AE36FD44C5E48F6FC2B6B0BFF6E137220B1371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A95FC60A17AEF158726A09ABAF77444C9CA1E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Manu Delago - Silver Kobalt (2015) [MP3|320 кб/с]<Electronica, Experimental P
 ```bash
 magnet:?xt=urn:btih:E462806229637CF579D8914C92C7E09212F3CC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Irdorath Folk Band - Dreamcatcher (2015) [MP3|320 кб/с]<Fantasy Folk, Neo Fol
 ```bash
 magnet:?xt=urn:btih:6C262F5AF0DC03FE0231E250442FBFAE75DFD391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B4FEA3C29ACD651C4932EE6E78BBD722DC4AEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Discovery. В поисках суперкометы / Hunt For A Super Comet (20
 ```bash
 magnet:?xt=urn:btih:82166A646CD20931E21A2A503272551E5F9125C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Vivaldi 1.0.178.2 Technical Preview [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5188DECD5D9E76AA70CAA02E66E3E67673B7395B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ Manu Delago - Bigger Than Home (2013) [MP3|320 кб/с]<Electronica, Experimenta
 ```bash
 magnet:?xt=urn:btih:AC932841CBC44FFD8FEA0F67C16D3024AA9D4817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ Suzi Quatro - The Wild One - The Greatest Hits (1990) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:C1FB58FE803EC643EA883A13126BD7D6A5F84894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B45F4A643EC070FFD04BF0F969863B33B24F1B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ Pidgin - это клиент обмена сообщениями, который
 ```bash
 magnet:?xt=urn:btih:2DF90B6342B5B2CEA793A7A96430428001920A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52977CC5AB0BFB9DDF7CDE05A3558F77047EC663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ Fishing for kids / Рыбалка для детей 1.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:D26A2EE85D30A3F010DF796556783DD9367DCA34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:700E048648672FBFFE54E9E2521B2B4DD6B2EBBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ Daniel Waples & Hang In Balance - Lisn (2013) [MP3|320 кб/с]<Hang Drum, Acous
 ```bash
 magnet:?xt=urn:btih:49265CE6E5D285D2861679B8FB3A0D0073CC475B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

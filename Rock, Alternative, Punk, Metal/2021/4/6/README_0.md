@@ -20,8 +20,7 @@ Baest - 2 Studio Albums (2018-2019) 2xCD [FLAC|Lossless|image + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:ABE3868D07CC40C6555A0F08B8CE55D079204178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Svartsyn - Requiem (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:D6CB65A69D1E6551A259264F115465AEBC53225B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Noumena - Anima (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:F583D9609B6699AEFC72F4AFE70F651D26072A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Guano Apes - Don't Give Me Names (2000) [FLAC|Lossless|tracks + .cue] <Alternati
 ```bash
 magnet:?xt=urn:btih:8EB48179F4E94F8E253142A3FB5D9D99D7EE177F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Guano Apes - Big In Japan (2000) Maxi-Single, Limited Edition [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:BE04D12061B2D910A06A47438E1CD4CE75FFB129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Tom Petty - Full Moon Fever (1989) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:663C15BE906BBFDA2880C5157CD62CD5D10EA66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Heart Healer - The Metal Opera By Magnus Karlsson (2021) Japanese Edition [FLAC|
 ```bash
 magnet:?xt=urn:btih:2FF40EDEFA5AAA7DF51E1680EEEE9D2340BA573D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Black Bonzo - шведсксая ретро-рок группа образова
 ```bash
 magnet:?xt=urn:btih:29926C429E7B9F61E665962726527045CD81FE4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Bloodshed Walhalla - Second Chapter (2021) [FLAC|Lossless|WEB-DL|tracks] <Viking
 ```bash
 magnet:?xt=urn:btih:26541DFA165F31CF59B2447A6D24FF8722EECFF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6C7E286D6B086F2120FCCAD99553C6B0C1AE473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

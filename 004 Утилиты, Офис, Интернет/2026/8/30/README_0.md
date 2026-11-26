@@ -21,8 +21,7 @@ OBS Студия - бесплатное программное обеспече�
 ```bash
 magnet:?xt=urn:btih:9151834A579C627E39D8B9D22DF618720DA1FF7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Bluebeam — это профессиональное программное ре
 ```bash
 magnet:?xt=urn:btih:0EAE255729ECEBE7B703F4A9CB359371391B19CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Tkabber — это бесплатный клиент с открытым исх�
 ```bash
 magnet:?xt=urn:btih:3BFFC566C68113A4A3B28EAF976E018DA9B6F04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

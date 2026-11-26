@@ -22,8 +22,7 @@ Johnny Crash - Unfinished Business (2008) [FLAC|Lossless|image + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:26D92F1D5CC5B6E972BCEFF9C3E5DB3654270DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Volbeat - The Strength / The Sound / The Songs (2005) [APE|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:B36B14B8399A9817B28BA6ED7A61C1D7D566BE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Red Dawn - Never Say Surrender (1993) [APE|Lossless|image + .cue] <Hard Rock, Me
 ```bash
 magnet:?xt=urn:btih:E3DFF709540326D6764964B198BD38E9C7000EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Neal Morse - Morsefest! 2015 -? And Sola Scriptura Live (2017) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:A983E14EC8E775FC24A97F267F8B776845A91512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Speed Queen - King of the Road (2017) EP [MP3|320 Kbps] <Speed Metal>
 ```bash
 magnet:?xt=urn:btih:5969215F65E2A097C49B1B8F719C57F942C64FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41347FAA5B7ECFA22DA364ADB86A126CA83A4149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Infected Rain - 86 (2017) [MP3|320 Kbps] <Nu-Metal, Metalcore, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:3077FA22615D118DCA42AA3061E2A255111A9D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:886F92D87AEE1EE1716E3B75E4044D3F133FACD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Cranberries - Something Else (2017) [MP3|320 Kbps] <Alternative, Acoustic>
 ```bash
 magnet:?xt=urn:btih:3AE1AD8ED221B7157C63A8FF7FC35C45CACA594E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E65722650D0156CEC38356BEEB47392D77B1C97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

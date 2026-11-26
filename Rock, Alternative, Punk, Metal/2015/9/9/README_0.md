@@ -22,8 +22,7 @@ VA - New Psychedelic Sound - Les Genies Du Rock - LSD (1993) [MP3|320 кб/с]<G
 ```bash
 magnet:?xt=urn:btih:FC83E6AA7D88516943B9010296DBE58B3409542F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Rock in Australia - Les Genies du Rock - Rock In Australia (1993) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:267C4A1D68EDB08F95DBC1669DD3307C88BC98DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Stooges - Les Genies du Rock - Kill City (1994) [MP3|320 кб/с]<Garage Roc
 ```bash
 magnet:?xt=urn:btih:8A67F6CB28DB7D182F0BD186561EE04795D238F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cold Showers - Matter of Choice (2015) [OGG| 462-555 кб/с]<Alternative, Indie
 ```bash
 magnet:?xt=urn:btih:DA24DF8254892CF781E850A222A15F8833B5D2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Ultimate Rock Anthems Vol.1-2 (2005) [APE|image + .cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:D0EFF992B0F26795B58CB6A8CF717C5D0B09FD10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Circa Waves - Young Chasers (2015) [FLAC|Lossless|WEB-DL]<Alternetive Rock, Indi
 ```bash
 magnet:?xt=urn:btih:CE3F97B5B5F26A6D822E702072C8BA6C7718B864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Rock'n'Roll Collection (2003) [APE|image + .cue]<Rock/Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:B63799BDC29DC27392E8AF99828B37194F2422E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Legends Of Rock (2005) [APE|image+.cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:6ECDF6CA369A2CB762F14FB7C90ACFD473C0EE8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Легенды Мирового Рока - Time (2001) [FLAC|image + .cue]<
 ```bash
 magnet:?xt=urn:btih:17A9879830DA9D343D26507D173BFE092F68D0D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22963FB3332BA78C7A74C9A8E8105CF9E0988395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Breath of Fire IV (2003) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9E78594089D6C3341E421976410FDE986F2DA21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Microsoft Office – самый популярный в мире пакет оф
 ```bash
 magnet:?xt=urn:btih:B23EE2199742D745A60B2D758EB582D6125B1FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

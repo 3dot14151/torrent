@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:4AA7E45BBCAB5D58ED37C0F38BE88CD168AC7CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Polarr – это продвинутый, интуитивный и многос
 ```bash
 magnet:?xt=urn:btih:FA610FDEAC6789BCDD75B7E81D2A2731F5C5874C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18E7B6E1823E8C353F4E85FFA6ECB956650E8241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Sverre Knut Johansen - Antarctica (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:5AAA9ABF77AC30AF596BF9F10412A39E691D3E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Cashmere - Cashmere (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop-
 ```bash
 magnet:?xt=urn:btih:77A61EE0A42198C7EC82856B8C5302B5715C2BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ QuickRes 4.4 [En]
 ```bash
 magnet:?xt=urn:btih:30AB475A42437F58CD1852C510F0656E021AF2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Slimjet 12.0.10.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:63525BDCEA46E021CB8E57C09D71713E04D76A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Deadmau5 - W:/2016ALBUM/ (2016) [MP3|320 Kbps] <Downtempo, Electro House, Progre
 ```bash
 magnet:?xt=urn:btih:5721228A4651C0B760B60C61FD3B1CB376598EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4798C3C5A44BA72ACBFCCE076CEF439E0E6598A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Blank & Jones feat Marcus Loeber: Silent Piano (Songs for Sleeping) (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:B5A9F12CF766AF09D13EEF92ED67909F6EF89366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A525B98DB76682D1AF12F5FF4C77038D7B9C5910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:147174DFF3CD751C4FE0C71D961C7C5609A808DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Electro Swing: Disco of the Alps (2016) [MP3|320 Kbps] <Broken Beat, Nu Jaz
 ```bash
 magnet:?xt=urn:btih:AA9B8F7B8B05D026EADC9D53EB8E1340523BE0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B0DB2916CA079AFDFC14BCEF6DEAC0E832CA4C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Hardware Monitor позволяет считывать данные со все�
 ```bash
 magnet:?xt=urn:btih:FB4F180B627395C043E5E3061D2D041D5D704D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E10949E5FD048816A471591D366FC6A8A4214D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ VA - Jazz Tunes Vol 2 (2016) [MP3|192-320 Kbps] <Smooth Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:C9E5AFCEB0F0F8BD89FFA4E8383A42687E101612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Deadmau5 - W:/2016ALBUM/ (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Pr
 ```bash
 magnet:?xt=urn:btih:00B07E080D4A2A2A2F7230F7821C3893BD21609A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D14416832454D837189BCE4BD5FCD771C5311F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Ella Fitzgerald & Louis Armstrong - The Wonderful World Of Ella Fitzgerald & Lou
 ```bash
 magnet:?xt=urn:btih:152B9F491800762C576CFAEE10479255281FA124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:508CA7C2CF41EF0392843654BAD233C7E244D466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D870C41BBE859E784A289E1B97D4479A7F508F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3939D6A95D135C7E1475F81F31E7EF5DB2B91AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ VA - Отрывайся С Лучшими Хитами. Выпуск #3 (2016) [
 ```bash
 magnet:?xt=urn:btih:2E6753E1EBD3071257B98841B5CDD6B0EA82AE3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Wise Disk Cleaner 9.33.653 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:768F9F0BA55CC10507834DA51C55F664DEF691B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B3E9D41D178CA6CE2589CBF223507C3017E40A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

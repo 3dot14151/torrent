@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:306C8DAB280C1B1DAAF61101E3B69BBC47271944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFF4C83B339D868D0FF1FC28CCBDE6E2C7C31E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Incredible Mixed Wallpapers (31.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:28D685E9EB99FAC18ED7BD4D5793A9322E0FFE4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ PGWare PcBoost — это продвинутое программное сред
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Jakkal: Flesh + Bones [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:18A1951A7FC1C02DB5CF404418FA637418F7B652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - ДискотЭка В Ритме DFm (2012) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:1EC44E2C8973921E20A9A201BFA206B64FD0F9A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Classic Rock Magazine #170 : The New Avengers (2012) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:80EC54576175CCEA44ACC6EBA1980A5EA2800911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Jools Holland & His Rhythm & Blues Orchestra -  3 Albums (2010-2012)  [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:7BBDC7412BA576DA562E1B855516FD0B9F97FD93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ David Hidalgo, Mato Nanji, Luther Dickinson - 3 Skulls And The Truth (2012) [FLA
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F088357AB7745C9839B7408765C3F17EE5B0829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30E098CB5666C52B541D62B989363CF63A2CFF0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ VA - Respect Your Roots Worldwide (2012) [MP3|320 kbps]<Punk Rock, Hardcore Punk
 ```bash
 magnet:?xt=urn:btih:0206D0A3D00E9DA9BAED3C9C936625B4F28CF28E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ New year wallpapers 2013 (31.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:F99E6B9F0AE2D446A165E7382BA1AE31FDFAD879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B85CF9AD24CB04A2B8E7A42ACBB0B296C5B3F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Santa Claus&Santa Girls. Super Collection Wallpapers (30.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:5BC8CAC52F0A0AE0283D483036F73027D8EC2245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FC7699EA4D067F89B8D7EB03BC5FE5D76747B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ VA - Hard n' Heavy 80's (2012) [MP3|320 kbps]<Hard Rock, Heavy, Hair, Glam Metal
 ```bash
 magnet:?xt=urn:btih:510E0B2493534B94BE0F8F6AC53BD3FD495AD328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - Союз Зимний (2012) [MP3|256 кб/с]<Рор>
 ```bash
 magnet:?xt=urn:btih:78951DB74AE1B9309128417F54281637F3232E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +560,7 @@ VA - Новогоднее Движжение на Radio Record (2012) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:63CF418F7A3F0115F591AF427C50FAEBBBC687A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ VA - Melodic Death Metal (2012) [MP3|320 kbps]<Metal>
 ```bash
 magnet:?xt=urn:btih:027D10190E9BC6C67D09F6BE719CD6A278971EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ Mozart - Symphonies 39, 40 & 41, A Little Night Music, Divertismento 17, Serenad
 ```bash
 magnet:?xt=urn:btih:48BE1B38F92398F65B15E8EB7DECE42CAA2B450C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ VA - Отдыхай на все 100% (2012) [MP3|192 кб/с]<Pop, Dance, кав
 ```bash
 magnet:?xt=urn:btih:CD7B9FAD7A4CC92648165A16F34F5609115B695F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +680,7 @@ Eureka Seven Psalms / Koukyou Shihen Eureka Seven / Эврика 7: Псалмы
 ```bash
 magnet:?xt=urn:btih:CDB148FC3F8A9D0B821268D55963C03C9D701851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +741,7 @@ VA - RDS 100% Grandi Successi: Senza Tempo (2012) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:A8CEAA03DAA7FEE680049C62CDD4811D727F3A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

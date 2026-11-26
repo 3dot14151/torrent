@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:4ACFA5F1507BE047FB5642AE3F2AFBD5800D0DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Norah Jones - Come Away With Me (2002) [FLAC|Lossless|tracks + .cue] <Contempora
 ```bash
 magnet:?xt=urn:btih:5096AE79046541D2DC837708D92BD5E317E0B644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Running To The Ocean (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 ```bash
 magnet:?xt=urn:btih:0E91D15131F3A750D9ED50A0DF0D126E4A1A280B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCE20E0EF9EA50736C848572E7E75CFC72045C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF437B1EDE4EBFB5D8AE1BC9A09691CEC43416B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AF7AC5F93A415C1288707CDDB195568BACD3A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ VA - Beach Mode ON! (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 ```bash
 magnet:?xt=urn:btih:D040296E29A3DD7B504A9B0D9D64BA0BB3420421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A615EE5E9F7FFC69607D97AB0D263FD37D56DFD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Eric Clapton - Me and Mr Johnson (2004) [FLAC|Lossless|tracks + .cue] <Rock, Blu
 ```bash
 magnet:?xt=urn:btih:8F7C0189EED70F3DA1ECEC847DDD6C4516081E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE6A591713659A28667E35B002047ADA54633AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8 build 18474892/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D1ED429E81CE794B6688325C0BEB3A446051801D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ The British Bluescasting Corporation - Saints & Sinners (2025) [FLAC 24/44.1|Los
 ```bash
 magnet:?xt=urn:btih:8C6554640F770F11AD073E1C889B832AA99B5E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66199EA6A27A1599E1A11763A20564A0E0E5EBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

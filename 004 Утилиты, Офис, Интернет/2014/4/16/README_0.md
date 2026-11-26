@@ -19,8 +19,7 @@ Wondershare PDF Editor - PDF редактор и конвертер. PDF Editor 
 ```bash
 magnet:?xt=urn:btih:8DE09FDDD5B33A66D464FEFB0125217FC86E2AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

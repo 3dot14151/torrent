@@ -28,8 +28,7 @@ Ilium - Genetic Memory (2011) [MP3|320 kbps]<Melodic Power Metal / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:2A23B475876B52F5ABAD2F7BB7D070C42E9EA9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Skull Fist - Head of the Pack (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F9AC4831098E0A838FCE91C95AB5C0A7C81A5D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Gorgasm - Orgy of Murder (2011) [FLAC|Lossless]<Brutal Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Suzi Quatro - In The Spotlight (2011) [FLAC|Lossless]<Classic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Alice Cooper - Greatest Hits (2010) [MP3|320 kbps]<Hard Rock / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F43D20A2D6FAC4BA7D54B05FA6A68415CE2FE3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ AC/DC - Platinum Collection (2003) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:ED8671633B6918865B8DBF422CD29AD30B43810E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

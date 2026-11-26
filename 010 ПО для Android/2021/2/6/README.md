@@ -22,8 +22,7 @@ Sun Locator предсказывает положение Солнца и Лун
 ```bash
 magnet:?xt=urn:btih:AE2719FD3C04F4EBDED87C5AC6B3E0ED63AD4E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Olympia Pro v21.2.1 [En] - Gym Workout & Fitness Trainer
 ```bash
 magnet:?xt=urn:btih:1D8C321991AEE2004035F75151CEF896B4094839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Avito автопоиск с оповещениями v1.15.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:25F412F68AFFA6AD25BA59D0EE54EDE2B7492E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15C9AC7320BE2CA8929510FDEA92EE0E49EA8D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

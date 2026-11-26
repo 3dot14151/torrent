@@ -19,8 +19,7 @@ Daniel Ilett | Building Quality Shaders for Unity: Using Shader Graphs and HLSL 
 ```bash
 magnet:?xt=urn:btih:1AC71EEC1FE390A8E229D2EB5062A7A9B902EC35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D987C281556C8EF25ABE15C3A13022167156C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77CD123DB91CE020898D2F1388E5EE43D83A2E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Daniel Afonso | State Management with React Query (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:4EF6E5450BAEDFA9BFAC5AF9313ECC545E81CAED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Alexander Benedikt Kuttig | Professional React Native (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:EBBF7B0D0B3EF73FB1AE6F579C216438562A76C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

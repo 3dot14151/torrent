@@ -19,8 +19,7 @@ Hi-Fi.ru — крупнейший в стране журнал о технике
 ```bash
 magnet:?xt=urn:btih:5CCC39B8405A6E392139D43E8290E12E91DF7FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hi-Fi.ru — крупнейший в стране журнал о технике
 ```bash
 magnet:?xt=urn:btih:239B5B6ED00604CD46BE1677051EEFC3EBC64D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Digital Photo&Video Camera значительно упрощает читате�
 ```bash
 magnet:?xt=urn:btih:714C3134B4A29B2BE7F5162EB298BAC9ACEBB345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

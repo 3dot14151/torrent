@@ -22,8 +22,7 @@ Works of the Flesh - Works of the Flesh (2020) [FLAC|Lossless|tracks + .cue] <Ol
 ```bash
 magnet:?xt=urn:btih:4C6EBCDBBC08C4330C1827E3E65B9D5AFFADD0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vjuga - Aeternum (2021) [FLAC|Lossless|tracks + .cue] <Post-Black Metal, Shoegaz
 ```bash
 magnet:?xt=urn:btih:DA8CDB94C0886D0A4202AC8986C10470663D3EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Strange to Believe - Asylum (2021) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:ADBF70C65A9118C4C7C4E28445EF47F2B4BC2E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Exodus to Infinity - Archetype Asylum (2021) [MP3|320 Kbps] <Progressive Rock, P
 ```bash
 magnet:?xt=urn:btih:E1915362BF61BE5A76F6EA2477548E7A0D0287BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fallen Arise - Enigma (2020) [FLAC|Lossless|image + .cue] <Symphonic Gothic Meta
 ```bash
 magnet:?xt=urn:btih:B0F71D5B695DF52ED137035BB784EEA62C3206FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mirror Morionis - Mirror Morionis (-The Afterdeath Connection) (2020) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:B37CAB5D5AC154DC2445CD0BA99E3D6E5AAC65AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Hearts & Hand Grenades - Turning To Ashes (2021) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:427C66796F16697E5DEB9F17553337F9FEDC78A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sinister Downfall - А Dаrk Shining Light (2020) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:20F1F7A6635D20747527755702236F3BD5598950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Crushing Ground - Digital Vultures (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7275B8B92C2607B7FC48879859CDFED49721E5DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Wight Lighters - Rose Colored Glasses (2021) [FLAC|Lossless|tracks + .cue] <Sout
 ```bash
 magnet:?xt=urn:btih:8495749ED7BF2D79CB4833F2A0AADF75CC646EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:457C3C2784109FE46ECA2B4397D40E96E43E503C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Aletsch - 2 Albums (2019, 2021) [FLAC|Lossless|tracks + .cue] <Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:66CF1DA615B51DE85609995A37369A6DC323DDBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

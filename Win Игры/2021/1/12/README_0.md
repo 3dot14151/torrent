@@ -19,8 +19,7 @@ Cobra Kai: The Karate Kid Saga Continues (2021) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:7DA43EA50F9CC30D7FBF1AB2B4987A572827DE54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

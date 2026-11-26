@@ -19,8 +19,7 @@ Red Alert 3 - Uprising представляет собой глобальное 
 ```bash
 magnet:?xt=urn:btih:51F22865475845F2ED46B2F040B88AF99305DAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

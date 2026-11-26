@@ -22,8 +22,7 @@ Xoth - Exogalactic (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death, Black,
 ```bash
 magnet:?xt=urn:btih:CA7C9F73B4F86071A9934B123B116D768122775E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Skiltron - Into The Battleground (2013) [WavPack|Lossless|image + .cue] <Power F
 ```bash
 magnet:?xt=urn:btih:55FEBBC27FCB09F81956F28F3B279B9F930353F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Wizard - Magic Circle (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:9E6CBF6E985090A863E3769733676347A100253A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wizard - Bound By Metal (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:C1D73637829F9FF57C2D3E6FDE7E0C87D492F7F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Enchant - A Blueprint Of The World (1994) Special Edition, 2CD [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:613406B4AD43A8AADC87FD3E6BFFDBC428CD0759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Wizard - Goochan (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:63AF54606AB247ACBC7C0FCE389AACC6637EE333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Father Of Serpents - Age Of Damnation (2017) [FLAC|Lossless|image + .cue] <G
 ```bash
 magnet:?xt=urn:btih:482F5F1FE4CE548BAA06EA26AC60CA49219A3967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Trivax - Eloah Burns Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Bl
 ```bash
 magnet:?xt=urn:btih:5F83F884C376687819D8864D2C47544C81BDBEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Arsenic - Seeds of Darkness (2006) Compilation, Metalhit [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:73498B1FE1B9073E1243DCA400D03A593174C212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Wizard - Odin (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:6E4186D349F5C4D482D539521F45FBC6E432D5B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Asmodean - By a Thread (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, 
 ```bash
 magnet:?xt=urn:btih:3AA8D3E254084612900C5FA87C8D4A0C1FD565D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Warseid - A New Land to Find (2017) [FLAC|Lossless|image + .cue] <Symphonic Folk
 ```bash
 magnet:?xt=urn:btih:F4211DEE70D2DC46461916E54266C74D8C404EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Endstille - DetoNation (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:0129B2A703B57C2BF9584ACE542E69E33E907697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Voivod - Warriors Of Ice (2011) Japan, Reissue, 2014, Avalon [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:CB171455E1ACB20B4B5E8F2EC8438C36CB161536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Station - And Time Goes On (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 ```bash
 magnet:?xt=urn:btih:B7AFC429F918F440A232871CD58BAC119E0A98C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Brian Bart - Future Vision (1987) Reissue, Remastered, 2023, MelodicRock Classic
 ```bash
 magnet:?xt=urn:btih:07C3EA9FC991C91C81A9E6EECD4CDB912A5CF850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ The Lust - Black Dahlia Poem (2017) [FLAC|Lossless|image + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:DC714C14F710888CC847446195BF1E37BF249212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Big Mouthers - Wishes (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AO
 ```bash
 magnet:?xt=urn:btih:FF3DD78130C27AC9C82AFED6F0AC2D2A775CB632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Rising Wings - Reach (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:413192BE4DE6FB37742D62C4E5C039C74801CB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Unheilig - MTV Unplugged - Unter Dampf - Ohne Strom (2015) Deluxe Edition Box [F
 ```bash
 magnet:?xt=urn:btih:917AC4F6E04B86E2C3A3D0C27C97136FCBB3A21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +580,7 @@ Light? - Standard of Ridiculous Accident (2022) [FLAC|Lossless|image + .cue] <In
 ```bash
 magnet:?xt=urn:btih:CFA68D5CB4D1B4E3ED243CD527D979A6B177A71D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

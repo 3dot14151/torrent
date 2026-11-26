@@ -21,8 +21,7 @@ Chris de Burgh - Best Of Romantic (1994) Unofficial Release [APE|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:678CEB926FEE66E7565B279041775DB977AEA215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8B1E053081AFD00C56E779CD0C2ECD3ED6C41DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Chris Norman - Golden Hits (1993) Series Golden Stars [APE|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:751B43E134212CF4EE5E25AE17B7EEF221796808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Joe Blessett - 6 7 8 A O 11 (2016) [MP3|320 Kbps] <Jazz, R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:4B92FE32DC50FD9A1F25E0D0493515E26BD24088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC53DA41A3A9D9829D1C4F09F9F3A73E714847D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FA3AB4DA101A077E0444F1F69CEEA3B7FA1E50D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Kiss - Best Of (2002) Unofficial Release [APE|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:421A972FFE49EAD5F482B7EF66C7CCFE05BE7D5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Navicat Premium совмещает в себе функции других пр�
 ```bash
 magnet:?xt=urn:btih:0C1CE3A7F60F080304523C892648D682B42BAD26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ ShareX - мощная многофункциональная утилита дл
 ```bash
 magnet:?xt=urn:btih:9F35AB391F32B719B094ACD1FB92D9888D9DBA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Ganja White Night - Mr. Wobble (2016) [MP3|320 Kbps] <Dubstep, Electronic>
 ```bash
 magnet:?xt=urn:btih:1AF5570AB24D6BEDDB9FFB181B3073A2C2C2669C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DC1EA3AD6A0289E8A8803420C7BE093804B32D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Hurricane - экшен для Вашего творчества.Формат: AT
 ```bash
 magnet:?xt=urn:btih:3C58BB6F76FF2AD938612ACD1003EF3E834C28F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Fast - экшен для Вашего творчества.Формат: ATN
 ```bash
 magnet:?xt=urn:btih:78162A0899E194016827350D0B485961E484B536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ Hugh Hardie - City Soul (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Li
 ```bash
 magnet:?xt=urn:btih:FA382FA8DFFD087763494B288BC331DD911529FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Bananarama - The Greatest Hits Collection (1999) [MP3|320 Kbps] <Europop, Euro H
 ```bash
 magnet:?xt=urn:btih:BE075337903DE1252871C6837D986DEB52EEDE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C48888D3EE010BC19B155E048DAA2772672C5803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACD7AE2A53B834114242E17150E2E562B7F5D15A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B1AC664D404C3BD522D133F0E1A35C1823B513F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ Blossoms - экшен для Вашего творчества. Многие о�
 ```bash
 magnet:?xt=urn:btih:362EEFF5AF9E3A6C4B1BB3A5A786007AE457707C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ TagScanner - мощная программа для организации и у
 ```bash
 magnet:?xt=urn:btih:3847722F13AA4E616C28631EEA8F49258CF71B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:11980758B201A12EA27FB430B27961C95C26C97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ Splash Art - экшен для Вашего творчества. Многие �
 ```bash
 magnet:?xt=urn:btih:65F208876BCEC066777C68FE2232C810F20B82E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ Freemake Audio Converter конвертирует музыку в формата
 ```bash
 magnet:?xt=urn:btih:6D9AD26B7CD567748B4FB1741222C83D966993FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:77FB21B8BB0CE3BC4FBFCB23A12B18B4803D279C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

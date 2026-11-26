@@ -22,8 +22,7 @@ Deathstars — шведская индастриал-метал-группа, о
 ```bash
 magnet:?xt=urn:btih:CE3035BDF9F7357190C37FA16E67DD32509DC92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

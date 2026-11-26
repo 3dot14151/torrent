@@ -19,8 +19,7 @@ Ubuntu 16.10 Yakkety Yak Beta II [i386, amd64] 2xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:217866263798FD76360D65B3EA5659CCBF13985A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

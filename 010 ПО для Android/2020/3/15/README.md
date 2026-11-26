@@ -19,8 +19,7 @@ HD Camera Pro превратит ваш телефон в профессиона
 ```bash
 magnet:?xt=urn:btih:B0A61C6CFDEE4370A78E59694122D899EA33F567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Riddles of the Past / Загадки Прошлого (2015) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:B79F7E35EA687E53FADEA64174CC42C4FD3D932D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Great Fusion – веселый квест, события которого 
 ```bash
 magnet:?xt=urn:btih:50B3CD417147D576B6FC8D6326BA966BE96F33C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dungeon Defenders - смесь ролевой игры и стратегии. И
 ```bash
 magnet:?xt=urn:btih:6B7BA5089E6E68E1F9CC6540D6A7EFE39D0680AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Dragon Age II (2011) [Ru/En] (1.0.4.0/dlc) Repack R.G. Catalyst [BIOWARE SIGNATU
 ```bash
 magnet:?xt=urn:btih:792739BD5C20599E2B5E6D66DB21AE0EF60B8578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

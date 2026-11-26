@@ -19,8 +19,7 @@ VPN Russia - VPN сервера в России 1.183 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:ACB0ED89F2F0B2E63B7BD456BA944EC64D084475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

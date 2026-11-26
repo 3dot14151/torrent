@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AE27CEDAAC28C11FED7D797E47369856F7AC31FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ This book equips readers with the knowledge to effectively design, test, and ref
 ```bash
 magnet:?xt=urn:btih:9D188114C74F90670C06A2C9CC99119AD9EEE59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C679102908B638D00B56161D0F13912C29588CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

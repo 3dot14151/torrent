@@ -28,8 +28,7 @@ Buckethead - 3 альбома (1998/2007/2009) [MP3|256-320]<Instrumental Rock/E
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Breaking Benjamin - Dear Agony (2009) [MP3|320 kbps]<Alternative>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

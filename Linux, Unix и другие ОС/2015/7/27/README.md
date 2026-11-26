@@ -19,8 +19,7 @@ Image Uploader - бесплатная программа для Windows c отк
 ```bash
 magnet:?xt=urn:btih:65C9076948F59B95DBCFBA95BDF98C4393460E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

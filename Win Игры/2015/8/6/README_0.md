@@ -19,8 +19,7 @@ Kronville: Stolen Dreams (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:D1BBCCE294B3F9468AC37EF3F876DEB78623F0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:87B5A9103255783CCEE15379B1B62B0C63F11781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

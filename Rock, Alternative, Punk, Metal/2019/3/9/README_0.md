@@ -22,8 +22,7 @@ Obscura - Illegimitation (2012) [WavPack|Lossless|image + .cue] <Technical Death
 ```bash
 magnet:?xt=urn:btih:95BB90FD769464BEE776BC94F4CAC0FB017C99D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nifelheim - Devil's Force (1998) [FLAC|Lossless|image + .cue] <Black Metal, Thra
 ```bash
 magnet:?xt=urn:btih:E34E303C842099AF87197CFE777A775C947418C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Obscura - Omnivium (2011) [WavPack|Lossless|image + .cue] <Technical Death Metal
 ```bash
 magnet:?xt=urn:btih:604376BEDE9FA33E9E5B84E03470E9F1A38F828C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Obscura - Diluvium (2018) [WavPack|Lossless|image + .cue] <Technical Death Metal
 ```bash
 magnet:?xt=urn:btih:D208AA253672343727A2DDAC8C5C99B7CF445B05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD I
 ```bash
 magnet:?xt=urn:btih:CB44B34588B79F5E60B424FE2631C101E7560B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Downcross - Mysteries Of Left Path (2019) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:7C2ACB5C3F41CA05C9E736C0ECF009E84B63A00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD I
 ```bash
 magnet:?xt=urn:btih:88856E31ECA43BC201FD39F4F230C6ECE36286D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Tyr - Hel (2019) Limited Edition [FLAC|lossless|image + .cue] <Progressive, Folk
 ```bash
 magnet:?xt=urn:btih:C987F59EB3DE31E56C6191B141A9B8DB27F74F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Rhapsody Of Fire - The Eight Mountain (2019) Japanese Edition [FLAC|lossless|ima
 ```bash
 magnet:?xt=urn:btih:1861BE9E57D1D33A79AC230E56D0A89F5D23F5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Doro - Backstage To Heaven (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CC149B3F7F99E6DBBFB371107DF9AD1564CB6B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCA2E73BD5A40B7873C597E0C2943E0198FD324B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ State of Euphoria (с англ. — «Состояние эйфории») -
 ```bash
 magnet:?xt=urn:btih:7177CD95E9535B6F62C8903B318EBE2E7E331D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Pathology - Throne of Reign (2014) [WavPack|Lossless|image + .cue] <Brutal Death
 ```bash
 magnet:?xt=urn:btih:84AA82518E3E7E139FEA8F7140F52A125DD29A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ Radio Tapok - Просто я сегодня... (2019) Single [MP3|320 Kbps] <Pu
 ```bash
 magnet:?xt=urn:btih:09F9FDDFC3A6445AB5BEB1CED4C9936A8944B9E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Whitesnake - Unzipped (2018) 5CD, Super Deluxe Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:AD7B32214E5C6ADE65C4B4EA4C08DC83D3F799E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Resist - седьмой альбом Нидерландской симфоник
 ```bash
 magnet:?xt=urn:btih:2FB9B2E0851A131463C72E4CDC11840769DF17BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

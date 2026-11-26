@@ -22,8 +22,7 @@ Piano Ear Training Pro - тренажер для слуха.
 ```bash
 magnet:?xt=urn:btih:8D837D44839402EC391ED6B3A04665152A6B43AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ PREQUEL — это фоторедактор с огромным количест
 ```bash
 magnet:?xt=urn:btih:13E76E3FA1A54D75600C4C1D7ED5986661B92491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Bass Guitar Tutor Pro - приложение, с помощью которого
 ```bash
 magnet:?xt=urn:btih:C8A2238738CF6F6462ADA25E0B6ED12386255A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.5.32 Paid [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E47344FC4E299B088A55C84E3815716A633F2076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Phases of the Moon Pro / Фазы Луны v7.2.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3060BDFB14D6A4ED3EC145A7FDD01048E14DC11A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADE704D497975898CF61C40BC7171717635222BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ PDF Extra PDF Editor & Scanner v10.13.2479 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BBA4B28FC5AE2D00AB60528F2537E74C6677875C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:758C0696D72A8C5A8BDB1403C128387454AED85C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

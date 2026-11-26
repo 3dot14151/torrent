@@ -19,8 +19,7 @@ Hydroneer — это песочница про добычу золота и др
 ```bash
 magnet:?xt=urn:btih:734B8912B3B5A30FB933DA535291B7B3499B91FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Transport Fever 2 - новый золотой стандарт в жанре т�
 ```bash
 magnet:?xt=urn:btih:B50E1100187B7A6EA4775CBA8E73F788A62E84FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

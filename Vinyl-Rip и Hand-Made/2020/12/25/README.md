@@ -22,8 +22,7 @@ White Christmas
 ```bash
 magnet:?xt=urn:btih:18222DBA370B7760BEA224CAFAA0BA9818724C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

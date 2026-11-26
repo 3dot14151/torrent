@@ -22,8 +22,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BF97D83B8458FFCC6F925E23D6B48468F32BF76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31FD8BCC5DD8B8B9BABFB20C433F687626CBAC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cj Stereogun - Top & New (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:1114AD0FB4323D9B491D034B6EF0814CD9C6B793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A519DCF2105F4A332EEC475FD9044C69D25451EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mind Odyssey - Time To Change It (2009) Japan 1st Press, 2009, Avalon [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:15ECB9AE0D4A74FF6BC2EA2F1A7FF8651991BAC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Wolverine - Machina Viva (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:FE59F1472E2D7ADD24DE944B6EB419D298C48D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Wolverine - Communication Lost (2011) [FLAC|Lossless|image + .cue] <Progressive 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Mind Odyssey - Nailed To The Shade (1998) Japan 1st Press, 1999, Victor [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:7CFBABF94C2F6D83288BE7933C387E8704CD2C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Mind Odyssey - Signs (1999) Japan 1st Press [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:9992D95FFB712D6A3658E0734FE2AAE6E20E9D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Monster Energy NASCAR Cup Series 2017 является 69-м сезоном пр
 ```bash
 magnet:?xt=urn:btih:A8796D36F331CEF2FCBECE5BA95954621C9B1FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Ambient Chill Playlist: 14 Chilled Ambient and Downtempo Tracks (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:574021B5E8F117EDB1FABCCA1BB19C1245E3A7C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Rooftop Dinner, Vol. 1 (Finest Lounge and Nu Jazz Tunes) (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:263D56237C57DAAE7050A6EEA4FB6045C3B0EDAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Darkwater - Calling The Earth To Witness (2007) [APE|Lossless|image + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:A874329D163657851B11DF067F9CD424946660DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Uplifting Trance Sessions Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:85CDA62E00C78089BCFB0F290AFC2E3650FEF64E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Mind Odyssey - Schizophenia (1995) Japan 1st Press, 1995, Victor [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F4D6FEE895AD51319E9994ED66155257A32C9AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Mind Odyssey - Best Of - 15 Years (2008) Compilation [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:3D9DFE82A3EBD57401999A2253C221BB5FB48FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Darkwater - Where Stories End (2010) [FLAC|Lossless|image + .cue] <Progressive M
 ```bash
 magnet:?xt=urn:btih:205B3FA95E2511CD2B60439B23169D070D2178B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - Chillout Summer Essentials (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Mind Odyssey - Keep It All Turning (1993) Japan 1st Press, 1994,  Noise Internat
 ```bash
 magnet:?xt=urn:btih:F0B6B46CDAA2C2AF86CC7F0DC44670C6F0871BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Der Bote - Morgenwelt (2013) [FLAC|Lossless|tracks + .cue] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:6B50EFD4A89B08D8C0B20D0B936829356615540D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ Monster Energy Nascar Cup Series-2017, Этап 21 - Pocono Raceway (2017) WEB-D
 ```bash
 magnet:?xt=urn:btih:FD09C298365C3D3FDB8281CD0F39C6D8BC8A75B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ Wolverine - The Windows Purpose (2001) Remaster, 2006, Earache Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:13A7DCFEBB83D415F6FBA4FAB364641643E4FC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ VA - Essential Guide: Progressive Trance Vol.14 (2017) [MP3|320 Kbps] <Progressi
 ```bash
 magnet:?xt=urn:btih:E1432E054BEF215DDD702179E6253BC801EDCB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

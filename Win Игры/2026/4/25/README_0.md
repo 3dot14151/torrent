@@ -19,8 +19,7 @@ Trench Lord Eastern Front (2026) [Ru/Multi] (1.03.002.4) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BD665660A9BA1DCCE364C917C23E624AB3FF0D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Colin McRae: DiRT 2 (2009) [Ru/En] (1.1) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:9DF0E71F3072F28F7637D30C6C4E46E37EAAF38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

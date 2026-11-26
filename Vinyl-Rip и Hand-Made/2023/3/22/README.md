@@ -22,8 +22,7 @@ A4. Do You Want Me • Нужен ли я тебе(   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

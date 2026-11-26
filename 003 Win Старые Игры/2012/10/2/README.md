@@ -19,8 +19,7 @@ Destruction Derby [En] (RePack) 1995 | RG Games\Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Colony [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:8B49EF106BEC7F7FE3553F17863E51260203EF5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

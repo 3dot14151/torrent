@@ -19,8 +19,7 @@ Calculate Linux - удобный, быстрый и функциональный
 ```bash
 magnet:?xt=urn:btih:CE91C50067330CCD46DF2E66A9D05B136B37B65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

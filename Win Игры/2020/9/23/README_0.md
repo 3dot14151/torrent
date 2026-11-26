@@ -19,8 +19,7 @@ Indivisible - игра в жанре экшн-RPG / платформер с ве
 ```bash
 magnet:?xt=urn:btih:509B7D7AA27591287653128A790D8AE598368325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hades (2020) [Ru/En] (1.36032) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B947368CF9F0CBD79962639D5471C90A1CDA9E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

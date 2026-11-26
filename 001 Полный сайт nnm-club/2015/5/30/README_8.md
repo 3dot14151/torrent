@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B0A58A622BD64209BFECA0C9571FCD80A7A69B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Lars Leonhard - Discography 23 Releases (2010-2015) [MP3|320 кб/с]<Dub Techno
 ```bash
 magnet:?xt=urn:btih:24777C2BD17B41BA63164AF82BA0C1A8B31F64C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA4068D1D24BBAF49585EB9704451C5AC192520E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Recovery USB-Flash for Lenovo Z5070 / Windows 8.1 (х64) [Ru]
 ```bash
 magnet:?xt=urn:btih:89CC6A3CBE3D393367E106A14F3B723BEEC90FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D161EC3A177E6B45CCBF28C230E2F3BB04490055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Incognito - 25 Альбомов, 1 Макси сингл (1981-2014) [MP3|128-32
 ```bash
 magnet:?xt=urn:btih:F555658B1819A14C10557C8CDD118F3FC9034951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ The Stanley Parable v. 1.0 (2013) [Multi/Ru] [OS X Native port]
 ```bash
 magnet:?xt=urn:btih:556B0F122BACEE76C9FB8252E4C1D79DC91C9638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0609B5528932B809D57013FBA837A82A64A0EED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:645D8D39E3137A0C58A6FF8F8F9697B7C2DD551D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:758D3BA5B9FBC1593A3EBF00846AF94B4057FD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Twenty One Pilots - Blurryface (2015) [MP3|320 кб/с]<Indie-Rock / Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:3065D4D9485046B3572FEF96DDEB23F54C727AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Tor Browser Bundle 4.5.1 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:EB9B6A57A87246971DE7B3843527F81131229722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21B256F2A4336447C1DD59B56F751243968A905A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F579B69FD9DADDD0837ECFABFF33655BF92A3C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Week 2 – Value Studies (Изучение ЧБ оттенков)(   Читат�
 ```bash
 magnet:?xt=urn:btih:0E9F4321817641EC256DEB9262C9B3FF801495A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D3635366A19178F2E51BEF73D3221E1300C76BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ CCCalc / Блокнот-калькулятор 2.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EA74DABD1089C56F20A571EA3C20BF8178CD01EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82E6FC0BBF3704C096CD0EE49FB3E524FBAC8E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ Magic Bullet Suite 12 - Пакет плагинов, состоящий из с�
 ```bash
 magnet:?xt=urn:btih:0C65B76BEF64E74B6F60A0AA47A43BC945778B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ Civilization 4: Beyond the Sword v. 3.19 (2007) [Multi/Ru] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:A66BD1F354C3E00B5FCBF52CD5C07AC243494DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ Rembrandt Harmensz van Rijn (1606-1669)(   Читать дальше...   )Фо�
 ```bash
 magnet:?xt=urn:btih:F8B67ECFC44E33DE5FB8CA1E5958615CB6289EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B0B64D6E09B3E678C828187AF22D8E38A5B4794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DCC68F19966B6B11E99A25646DD0D13B07F3C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03DDB32AFDB2F628F32AC79E8D0BFD74B7BC03D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ CrazyTalk — новая обновленная и улучшенная верс
 ```bash
 magnet:?xt=urn:btih:F16F15F7FC016D544BCB644EA169C280A780FC72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

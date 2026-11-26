@@ -21,8 +21,7 @@ Javabegin | Тотальная безопасность со Spring Security (20
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Javabegin | Онлайн библиотека на Spring Boot (2019) [unpacked]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Spring Framework - библиотека или набор инструменто
 ```bash
 magnet:?xt=urn:btih:84D698B14141F22F51B615B1C9A11424915B5FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Django стабильно входит в мировые рейтинги ТОП
 ```bash
 magnet:?xt=urn:btih:2AA11A5E7DC1C486BFF30309B8D3442EC771CA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ BELOFF 2020.08.1 (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:A6F9D012DCE8D54C16F7A1A989C1BE6D7BD4800E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

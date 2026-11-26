@@ -19,8 +19,7 @@ Red Hat Enterprise Linux 9.2 [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:C8FF2491D84C1D68781B754F3EEDA1474F1DFB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Case Files 18: The Countess (2018) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:39B0F4AE984F556F83A37E364EE8FC436FEFE63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pro Basketball Manager 2019 (2018) [Multi] (1.10) License CODEX
 ```bash
 magnet:?xt=urn:btih:896C05CA900CA7F3E64A6A0F18EF8D53B5CD921A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

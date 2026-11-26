@@ -28,8 +28,7 @@ Destrage - Are You Kidding Me? No. (2014) [FLAC|Lossless]<Thrash/Death Metal>
 ```bash
 magnet:?xt=urn:btih:27FCA704F4A848077FF82C3AF4B5FB9A66B8EA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Ray Wilson & Stiltskin - Unfulfillment (2011) [MP3|320 кб/с]<Melodic Hard Roc
 ```bash
 magnet:?xt=urn:btih:11093E7927CB292E28D7AE0B3D38E23C78B99E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Don Airey - Keyed Up (2014)[FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:337E546C3FB005D8D950CA6F333CFB2807FA69F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ KXM - KXM (2014) [MP3|320 кб/с]<Hard Rock/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:13612321860F0FBE337560D848B275CCA881B6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - Butchering The Beatles (2006) [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:D2E2D2D5EB1436ACFD34A537FA16679995683969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Node.js – популярная программная платформа, по
 ```bash
 magnet:?xt=urn:btih:D23E6D24C9DF709F6A76DF0701B1345C7AA23DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

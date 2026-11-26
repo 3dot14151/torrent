@@ -19,8 +19,7 @@ DiRT Rally 2.0 (2019) [Multi] (1.17.0/dlc) Repack  xatab [Super Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:961383B5FD5448BE619250856A0BBBC38C69A8D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Find Yourself (2021) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:93E0B24BFDE1916B0A2138DF2D637A783EBF6293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FlashBoot - утилита для создания загрузочного USB 
 ```bash
 magnet:?xt=urn:btih:B0C184FD34FFD8BD6105AEDA8DF8EB6ED4832CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

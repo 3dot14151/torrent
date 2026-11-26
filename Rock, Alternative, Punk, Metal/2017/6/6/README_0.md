@@ -22,8 +22,7 @@ Phoenician - Last Orders (2017) [MP3|320 Kbps] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:B26B44D07F77FFF24F6095F4975BE036F9885DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Jorn - Life on Death Road (2017) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:9008E6F0E0827F0C8CA5E9949DA1DA46F3816832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Kiss - Kissworld: The Best of Kiss (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:25612C740356996E77123AC1F51645B76753B30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

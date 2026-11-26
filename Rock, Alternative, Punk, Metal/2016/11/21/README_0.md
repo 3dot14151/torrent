@@ -22,8 +22,7 @@ John Mellencamp - The Best That I Could Do 1978-1988 (1997)[FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:6C98D7CFEA84EF1E5DDE9384D0F048D9766C9363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bobby Kimball - We're Not In Kansas Anymore (2016) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:B492DC61061F4333E4C0EE4DE1070A52808FDE60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ligabue - Made in Italy (2016) [FLAC|Lossless|tracks + .cue] <Pop rock, Soft roc
 ```bash
 magnet:?xt=urn:btih:F251BFDC1E9712FF55DAA49386749576B9F812EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Kinks - Live at Kelvin Hall (1967) Reissue, 2001, Sanctuary Records [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:4427D599E27F8E3F04739B1BC1C08834D5763092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Motley Crue - The End (Live In Los Angeles) (2016) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:9A9F69A29480163805FEBF4C90AE534EDEE0C79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

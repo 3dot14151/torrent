@@ -19,8 +19,7 @@ TimeShift (2007) [Ru/Multi] (1.02) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:A83F403B2FDBF5F6F6BF2247B88606DC8A0D684E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

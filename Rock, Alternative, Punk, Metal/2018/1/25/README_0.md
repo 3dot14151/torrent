@@ -22,8 +22,7 @@ Lione/Conti - Lione/Conti (2018) Japanese Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:1410F7A175CC4D04857A0A9913DBB789B48F2EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anvil - Pounding The Pavement (2018) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5D4A5F317A083B1012B771BC40216B8156E2E094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Coal (Надя Гордиенко) - Фиванский алфавит (2018) [M
 ```bash
 magnet:?xt=urn:btih:D2FFC37739095658611847BD39C3E3F8C38C27D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Who - Maximum As & Bs: The Complete Singles (2017) 5CD Box Set [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:ED38B578C53FDE6B97267A4BA721F596E8EF8A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - 80s Arena Rock Essentials (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:BF6E4C9668B0E27D15EA074B2997560284F80869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

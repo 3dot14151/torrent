@@ -19,8 +19,7 @@ The Uncertain: Last Quiet Day (2016) [Ru/Multi] (1.0.1.004) License GOG
 ```bash
 magnet:?xt=urn:btih:498FEDA0E8CF28591514FAE391CBEF38397FD7C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Empire of Sin — новая стратегическая игра от Romero G
 ```bash
 magnet:?xt=urn:btih:790E001AC161250436CA3C018CDB8CFD67F043FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Call of the Sea — это мистическая история о велико
 ```bash
 magnet:?xt=urn:btih:CAF725A64E160CBB349446CEDB7A88F4DA3A11C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

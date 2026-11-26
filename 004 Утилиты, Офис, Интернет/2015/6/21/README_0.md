@@ -19,8 +19,7 @@ BatteryCare - утилита, способная продлить время а�
 ```bash
 magnet:?xt=urn:btih:B499A51CD6078D611477E19FC495FA1F160AEE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

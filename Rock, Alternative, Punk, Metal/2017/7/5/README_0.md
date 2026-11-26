@@ -22,8 +22,7 @@ Cromonic  - Time (2017) [FLAC|lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:E4B9E22539AEA1FCF5B941E12D2D465C2CA3666D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cheap Trick - We're All Alright! (2017) Deluxe Edition [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:093597FCB76D11B4C05825CD7F9A3DBB924BD704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B79FE333AEBD984DED8E7165D186CC2F0FD99015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

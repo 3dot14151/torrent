@@ -19,8 +19,7 @@ Stardocks Fences - программа, которая помогает Вам с
 ```bash
 magnet:?xt=urn:btih:B90934C74A0C66B6F883C9A470B76AC8A06FF6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DU Meter - программа для подсчета реального вхо�
 ```bash
 magnet:?xt=urn:btih:E07E74F7ABF21D8F34521735C675CBFCF33B70C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

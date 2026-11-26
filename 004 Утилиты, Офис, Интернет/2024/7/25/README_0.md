@@ -19,8 +19,7 @@ AutoSettingsPS - это портативный инструмент, основ�
 ```bash
 magnet:?xt=urn:btih:AA5D968C8E344BDB7966FF75267EF96342977165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

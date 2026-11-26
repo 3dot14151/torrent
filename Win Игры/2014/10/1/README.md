@@ -19,8 +19,7 @@ Grim Legends 2: Song of the Dark Swan (2014) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:498FB4878DF9F042FF44C889C8CEAC3E9349C74F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Danse Macabre 2: Moulin Rouge / Танец смерти 2: Мулен Руж (20
 ```bash
 magnet:?xt=urn:btih:F9A2E284C5A2DC0562CAE78526D71C748717755A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

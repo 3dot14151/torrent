@@ -22,8 +22,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:C6391CE6757575917CBADF71819611E26C854594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Smooze одушевляет ваш скролл и добавляет функц
 ```bash
 magnet:?xt=urn:btih:501989824F4C73DBD66FDE9132A77044A94DB9EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFCFBC450CFEDD1F932DF454435FE5B63EEDCF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Elle, женский журнал о моде и моде в мире. Его с
 ```bash
 magnet:?xt=urn:btih:A12BE7DA188A219C753107C6F209C18596251732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Elle — французскийЖанр: Женский журналФормат
 ```bash
 magnet:?xt=urn:btih:1CAA5C7650CE24976E80406A7066D7B589A664B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Elle, женский журнал о моде и моде в мире. Его с
 ```bash
 magnet:?xt=urn:btih:125AAA2E000C291F76F67D9ADF4D6087334690C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Elle — французский женский журнал о моде, кра�
 ```bash
 magnet:?xt=urn:btih:312D3727A477BDF49D572FE326B06F777F27D2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00735F1FBE56976FF9CCE56F00F75DD2FB60FEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D4EB2F0A3D6AF97CCF3320E881074D7D5694B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Elle — французский женский журнал о моде, кра�
 ```bash
 magnet:?xt=urn:btih:D1E2D3F3C922707724B6ABEA6EC4AD50491EBFD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Elle, женский журнал о моде и моде в мире. Его с
 ```bash
 magnet:?xt=urn:btih:87A024E36A2CC96971A3631D0FFBDC7A02D11301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Elle, женский журнал о моде и моде в мире. Его с
 ```bash
 magnet:?xt=urn:btih:9631F96FE7F5F9DBD47F7D76EFB5D5F1BC579715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Elle — французскийЖанр: Женский журналФормат
 ```bash
 magnet:?xt=urn:btih:8DC42C670082489A1FC7E4BBD18AD78AE471477F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Frost Orb - Dead Bits Soundtrack (2013) [MP3|320 Kbps] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:103043D77A608655F1B5EFAFFCA6904BA84E4235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ```bash
 magnet:?xt=urn:btih:37AB505185D06ADCFB37D83C61E9F38F20A8484B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ AMA Supercross Championship — американская гоночная сер
 ```bash
 magnet:?xt=urn:btih:6341F315124690A2E578CC18B3652E4F3CB13132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E3A7F8CE246ED1AADFD19E79A254C8AE91FDCBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE9B68E52FE13E54E666C289C1FE7440950AED5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Syntec - Collection 2 Releases (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:93F1D1C7C42C27883FBB1D29CE6C9735C6F97176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ Auslogics File Recovery - легкая и эффективная в исполь
 ```bash
 magnet:?xt=urn:btih:C6B7D5B27EDC314D489A135EF1A818607F192301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ Soft4Boost Easy Disc Burner 6.5.5.341 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B3EAF05E430112C8AF27B417F268EDEE91FF79B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ Elle — французскийЖанр: Женский журналФормат
 ```bash
 magnet:?xt=urn:btih:27BA4004A9B215289D2E8F7FEDB4DF341B23C5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A7D895F3F1234201DF074F2B873CDE1A2C7ADB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ WOLFPAKK - Амбициозный звездный Европейский про
 ```bash
 magnet:?xt=urn:btih:0A4ACC9D5E4B6951C1B6335E9F5972C0A1A24869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5190C29A36F7E72B5E5798F702F561F18EB24EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D60F341BB27E9017F4CCB2D259ADA6B74D4C7E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

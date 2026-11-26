@@ -19,8 +19,7 @@ Woodcraft - издание, целиком посвященное столярн
 ```bash
 magnet:?xt=urn:btih:998FD0F1E4310427632BF31D87E63674169922B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42CE867F7CDF684D9B5F1DB410CB4EA6B8E5DC4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Muscular Development -  американский журнал о фитнесе 
 ```bash
 magnet:?xt=urn:btih:C9BA6AFED0BAAAF90BDDD23C78F5F28262D5ACA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Men’s Fitness – журнал для стильных, амбициозных
 ```bash
 magnet:?xt=urn:btih:9CE45426DE07D7429168089B575710F4635627CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

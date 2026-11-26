@@ -19,8 +19,7 @@ Cradle Of Egypt Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D01CC46CB6BE698714C7A2F8A7E800E90F96D5F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The ancient prophecy of the Incas / Древнее пророчество инк
 ```bash
 magnet:?xt=urn:btih:1DD4DD8B970C1728A0CC4821B814D7DEA019B9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wimmelbild Die 3 Musketiere Constance's Mission / Три мушкетера. Т�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:781194B8842415CAAFFF0B80DFA400671175E8F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

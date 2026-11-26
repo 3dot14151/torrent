@@ -21,8 +21,7 @@ Dark Parables: Rise of the Snow Queen Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:884EBF08BDB42BE6C3B6F505D66332F340855B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Shattered Minds: Masquerade Collectors Edition (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:476A2A9654923454CEE24CE92B639B0E6770FC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Real Warfare 2: Northern Crusades / Тевтонский орден [Ru] (L) 201
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

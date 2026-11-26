@@ -19,8 +19,7 @@ Podcast Republic - одна из самых мощных платформ под
 ```bash
 magnet:?xt=urn:btih:BA949214DB079D5C940DC4F37B3C85668F3C1C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Electrohelper - это приложение, идеально подходяще
 ```bash
 magnet:?xt=urn:btih:BE17DE31E0D56E75527AB266B8D82239F30D718E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Electronic toolbox Pro v5.1.15 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BA63432A2374CC4C553B137516361360B2AE3FED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Footej Camera 2 v2021.5.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B777F8A6EAE0B038FB85254CB9ECDB57555850DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ radio.net PRIME — радиоплеер без рекламных видеор�
 ```bash
 magnet:?xt=urn:btih:8DF6C7CF3D7FE51A0BB2C4CD8547A2BFE35C7549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ myTuner Radio Pro v8.0.27 [Ru]
 ```bash
 magnet:?xt=urn:btih:DC7E893D7572C2A9FB066073B2D9C09E4A7DE075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2E15615C9D4DCFE53B178A54E5957E45DB5BAE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ XiiaLive™ Pro - Internet Radio v3.3.3.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:259EA9F1743ECD385BAA632E255D6954BEC6E7A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Cloud Radio Pro - это онлайн радио для устройств по�
 ```bash
 magnet:?xt=urn:btih:774636D3C448AF65390C1C5511FF59DB282189C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Audials твой радио плеер с более чем 63 000 потоко�
 ```bash
 magnet:?xt=urn:btih:581F384B6A8A9AC2D1D87388ED73F02BD3D48CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

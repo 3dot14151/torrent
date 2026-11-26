@@ -19,8 +19,7 @@ Witches' Legacy 4: The Ties That Bind / Наследие ведьм 4: Связ�
 ```bash
 magnet:?xt=urn:btih:4477E284C03D92F61B20B08EE74C3CFFC5EC9C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Renoir — это сюжетный платформер-головоломка, 
 ```bash
 magnet:?xt=urn:btih:A02539CA58C4FBF8622943D24ABCE70A03B17AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BANNERMEN (2019) [Ru/Multi] (1.1) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:A3D9AFD030EB5AE210D3BBCC6D612D04198BCF4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Supraland — игра-головоломка от первого лица в ж
 ```bash
 magnet:?xt=urn:btih:2EBF46AD814A12C3A68D507A412F1A5C5CB7AE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ECHO - научно-фантастическая приключенческая 
 ```bash
 magnet:?xt=urn:btih:C32D5379A0DBDD1C5FE9463EAEC1A988E8637DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ghost of a Tale рассказывает историю отважного мы�
 ```bash
 magnet:?xt=urn:btih:298A3AD619D872BE02CCD1908EA3B834FE0A1442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ KMFDM - WTF?! (2011) [MP3|320 kbps]<Industrial Metal/EBM>
 ```bash
 magnet:?xt=urn:btih:3655AAB07D543F31F08CD384421CD6AF4001E4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:636631F9172CD1127BDC0E7BC46C8ABCB0A7D329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Guano Apes - The Best (2004) [MP3|320 kbps]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:67DBCDA67FEA52733F425903D0BEE5C2B58535C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

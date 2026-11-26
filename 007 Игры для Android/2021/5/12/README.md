@@ -19,8 +19,7 @@ Geometry Dash Meltdown – динамичная игра на андроид, с
 ```bash
 magnet:?xt=urn:btih:329CE9AC4B2877F3C769FFEC01325B86098EC0C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

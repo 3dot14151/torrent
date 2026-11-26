@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:03413FA6CC85869E8C1F3AFCD5268BAEF7F56CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Blender - это бесплатная графическая программа 
 ```bash
 magnet:?xt=urn:btih:F11A0902ED3F3BEB1905F58D7A4489D7FF08C4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CE7E56F820581F8B245042298C79212B203F04D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

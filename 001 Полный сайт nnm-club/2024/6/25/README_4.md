@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:48567F9F37ED770F203B08E47561EFE2F876BD7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - The Great Romantic Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classica
 ```bash
 magnet:?xt=urn:btih:E4A27317C18E043FDD6A0E0E4B899E5AC0236265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

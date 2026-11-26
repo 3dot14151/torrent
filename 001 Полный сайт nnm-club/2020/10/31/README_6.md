@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A24645EB93460D420A6BC7B85713C70A385E7566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03E0880EA097D2489F15FAF4CCE5035B20571B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Windows Post-Install Wizard by StartSoft Cowboy Style Full 06-2020 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:07C88731DDF8B5862B67A07BE218C47F6D317B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:368D2CB87AC03325DDDCFAFBA0E0A489EDAC9D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:05C194937BBE6EB7145BA86DA00F4786220B3069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C2F6C9267589309C269C4140083633F48DAD7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Windows 7 (13in2) Sergei Strelec x86/x64 6.1 (build 7601.24561) [Ru]
 ```bash
 magnet:?xt=urn:btih:1655CAA22D22F6B96CDAF048A21759F8D4C4C4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Cетевые сражения на просторах онлайна от со�
 ```bash
 magnet:?xt=urn:btih:D4F75BBAE400A82E99B6D6C0DE9A6D2721A73866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF6312D66D6DCEB54D123AAD4617F8F7E0EE3627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:531E06A3D5E9337B8EBE51D5DC51F35F389FAFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Windows 10 v20H2 (2009) 19042.572, включающая в себя 4 русск
 ```bash
 magnet:?xt=urn:btih:8D816DDD323284CA1CC19F6091A32BA9540AE100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Microsoft® Windows® 10 x86-x64 Ru 20H2 8in2 Orig-Upd 10.2020 by OVGorskiy 2DVD
 ```bash
 magnet:?xt=urn:btih:F978945B1066FED763092C5A8ADCCE22AE24EC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

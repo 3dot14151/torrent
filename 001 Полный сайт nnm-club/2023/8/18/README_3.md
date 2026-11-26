@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:688AA37C7A28236BB67C978AB3C341E21B2605FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Sixting Music - Rendering Pink Floyds (1974) [MP3|320 Kbps] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:DB28449C6AEBE6CC9FB38A834368EC352A7DC496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ MyRadar - симпатичное погодное приложение, что �
 ```bash
 magnet:?xt=urn:btih:2863004A0295827B7992EB9B5930C4089B8E3FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:467EB6CFCA689DDD3074E3FC1BE9EC43521F71AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AA02B24FD62BD565C80C4FB6666E02D513BCC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:DD4C6459838BF366313A9220C1A987AADF167F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:20BBA400F2BD645D9C9662CFA6FD82D4BDE73E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4321DAEB78AE5E8E6F3C80111ED3BE89CBD2B825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 magnet:?xt=urn:btih:79DA295AAA6EDB024A770A29C77A3504B350F87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFED190D1FA5463BC39600AB011A8FA1877950EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ MEmu позволит играть в любимые игры на персон�
 ```bash
 magnet:?xt=urn:btih:418AE6737CBA631ACBDA3DA1B8E0A953F11B4C7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ VA - Abbey Road Reimagined – A Tribute To The Beatles (2023) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:326F1CA6FDEAD337AB515D9B2831D137628FBF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Sam Goku - The Things We See When We Look Closer (2023) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:53830F21F462891DC405151E7BE582B78C518077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9FF70A1F7C55D15AC50C75E9FE774CF05FE2496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C7AA263112F1B9AD1F4D04E21FA611037803D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Realtek Ethernet Driver 10.66 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:12DCBF2A198AE30F351AFD81D2765ED463DFE225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D479B94E177F3C8BB30166F5229BFC41CBCC924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:0D7663186658BFC8A69E9C5D1CC870062FCE3ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ Xara Designer Pro — это мощный графический инструм�
 ```bash
 magnet:?xt=urn:btih:D8A0DD1AA390EADFA2F8C48E303F3DF783BC1339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA68B434709876095D1340FBDEDDD9E3D81399F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ Casse-o-player 3.2.3 Jubilee Update Mod by alax1972 + Cassette Pack (Unpacked) [
 ```bash
 magnet:?xt=urn:btih:AC277160EC6DCB5682A18D80634F91AF46CF3EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ MATLAB – это высокоуровневый язык технических
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D8BFFEB723FD9FCA668D3576A746886E3D6C506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +606,7 @@ Xara Web Designer+ 23.3.0.67471 [Multi]
 ```bash
 magnet:?xt=urn:btih:E4C527ADF9CEA30D6B24BB4E60CC63193370F510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +633,7 @@ Blender - бесплатный редактор трехмерной графи�
 ```bash
 magnet:?xt=urn:btih:8432840FFECF5A39938A260E40749A33B948738D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +660,7 @@ Poser - программа трехмерной компьютерной гра�
 ```bash
 magnet:?xt=urn:btih:CF0A58F052425488550EE176B06C0CB458ADCB04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

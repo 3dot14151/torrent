@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EDE54A36E081A28AD98D4A8C198085421A016AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trevor Benz - Detroit Connection (2011) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:26B917BFD0D3B592D4C9F830B5909F45229F4E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5FD518F7EE3014D5C929C477D07BF924ACE6E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ VA - Большая туса на Русском Радио (2011) [MP3|192 kbps
 ```bash
 magnet:?xt=urn:btih:1DBBC9F2D6A281D3574C0E49BC668C156303B655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ NickBee, Nonuk - Mission / Ice Kingdom (2010) [MP3|320 kbps]<Drum And Bass>
 ```bash
 magnet:?xt=urn:btih:1E5A69EFB319D02F9B2FD0A9C19BC71CFE904C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ DPAD – продвинутый текстовый редактор ориент
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97CB35511F8DCA67BF6A8928F6C6B549399B02F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ N/A2011Жанр: Electro House / Electro ProgressiveПродолжительно
 ```bash
 magnet:?xt=urn:btih:2D8799506B3BE217B6F7412711B30287B2E4DB4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ VA - Christmas In New York: Chilled Tunes For Relaxed Days (2010) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:E066DA1EE1C508B803B5851988B6A70C1D1DC729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ VA - Радио Шансон Масть крестовая Зима (2011) [MP3|
 ```bash
 magnet:?xt=urn:btih:51B9E8C272D98D5F13F9350332CC196D81659907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ A1. - All the way from Memphis[05:00]
 ```bash
 magnet:?xt=urn:btih:05F6BC517F2E8FF1C5ED46DF53139109FE34C7E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ VA - Whisper of Consciousness Volume 10 (2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:EC813332EA39827F98AD57AAA45169B661074F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3EFF63864C9FCD430B7BCCC8F3D9ED425DA4A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ VA - Танцевальный экстаз 50/50 (2011) [MP3|128 kbps]<Pop, Danc
 ```bash
 magnet:?xt=urn:btih:8B3CDBACF3DE28ACDC8181AF52CD148A87CE35C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ VA - BIG Trance (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:1CA978B9A67FFBF059AE5B3A5276EE044712A5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ VA - TOP 100 Зайцев.нет (23.12.2011) (2011) [MP3|128-320 kbps]<Pop, Cha
 ```bash
 magnet:?xt=urn:btih:A5C517C4A9CD068B827B9E68798028C1AD9389E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B266A9864934F7D80D46723C0B0AC61C69ECDE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74BAE559A8DCE7C6C4DDB4999F6FABF5A0EDA6A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ Yesterday Live - это наш шутливый ответ америкнско�
 ```bash
 magnet:?xt=urn:btih:904D16AA0AE7FD361E56A4330EFC3542B8A05AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ VA - Trance Cocktail 2011.10 (2011) [MP3|320 kbps]<Vocal Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:DF4F16A80784F8D8A3EE533753A0914B4B641A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D78FFB76ECA7FEB1189E379E94D15272C0D4D8D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +650,7 @@ VA - US TOP40 Single Charts (24-12-2011) [MP3|~242 kbps]<Pop, Rock, R&B>
 ```bash
 magnet:?xt=urn:btih:ED5BAC92E685C2640F2085196D721DD6A32F1137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A2DCE4624BDEDB5A72615FBE1333B9B17055BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03EC3A8F7F870E80E603C77A5A5E707F5C4F7E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32128998F29CA309DF2A17DABACB6749DF4E3BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B3F6BB7D1435825B50E74AE4670DB30905CADF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

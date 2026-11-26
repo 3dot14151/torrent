@@ -22,8 +22,7 @@ Soijl - Endless Elysian Fields (2015) [FLAC|Lossless|image + .cue] <Doom Metal, 
 ```bash
 magnet:?xt=urn:btih:7D8ABBA6E5E94585824BA53EA65B4B21A4E37B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Soijl - As The Sun Sets On Life (2017) Limited Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:73B5E2764AFE8F7E223A9E0D75CC9C528ECA04FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Clouds - Dor (2018) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral Doom
 ```bash
 magnet:?xt=urn:btih:A222EACD975D6E278C25F492920E0A727412A04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kadavar - Studio Live Session Vol. I (2020) [MP3|320 Kbps] <Psychedelic Rock, St
 ```bash
 magnet:?xt=urn:btih:AA29C4E64353378AF13AB5640A986173043532FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Kentish Spires ‎– Sprezzatura (2019) [FLAC|Lossless|image + .cue] <Rock,
 ```bash
 magnet:?xt=urn:btih:CF1C009429CFF1E487B023F90BF67D819D0788F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Megaton Sword - Blood Hails Steel - Steel Hails Fire (2020) [MP3|320 Kbps] <Epic
 ```bash
 magnet:?xt=urn:btih:7907D0DAB85559404D82CEF777723FAC2E7D99DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Clouds - Durere (2020) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral D
 ```bash
 magnet:?xt=urn:btih:E5C8C853F22F06FE47E3B373D112ED5A1BBF958E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Death Dealer - Conquered Lands (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:AA4DBAF6D3020FB9389BDF77EFD853E9CBB77338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:B9F19641526FA54C54777291E8784763E057B7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Final Conflict - The Rise Of The Artisan (2020) [MP3|320 Kbps] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:00AD25E103EE61301940FEAEB5DCC223F9632A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Blue Stahli - Copper (2020) [MP3|320 Kbps] <Industrial Rock>
 ```bash
 magnet:?xt=urn:btih:0A07687E62F1FB8DEAB9A397B56B89D39F7150ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ CD - 1 - Best Of Rock:
 ```bash
 magnet:?xt=urn:btih:0ECE0EFE47C30FC4F2D5961C972CA89026364842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Bring Me The Horizon - POST HUMAN: SURVIVAL HORROR (2020) EP [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:A2396EEFC6465029AEDBCAE1489212346E1A594B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

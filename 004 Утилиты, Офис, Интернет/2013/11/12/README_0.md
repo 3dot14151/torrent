@@ -21,8 +21,7 @@ PDFCool Studio - это очень удобная программа, котор
 ```bash
 magnet:?xt=urn:btih:BA1927F0C04DB772A5AD4DB7EEB950E07E534C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ FB2ePub GUI converter 1.1.5.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:55B72CD6497D2888EB59065849D96A8D7CC419FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

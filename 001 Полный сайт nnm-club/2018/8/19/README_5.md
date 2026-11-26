@@ -21,8 +21,7 @@ VA - Top50: Tracks Deep House Ver.2 (2018) [MP3|320 Kbps] <Deep House, Club Hous
 ```bash
 magnet:?xt=urn:btih:4845922404A8FBE35247CF73E64ECAC3503ABA50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Club Dance Ambience (2018) [MP3|320 Kbps] <Deep House, Club House, Tech Hou
 ```bash
 magnet:?xt=urn:btih:E12397C927CF0302875AA57162EDF25EDE5955A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Victoria 4.68b SSD Portable [En]
 ```bash
 magnet:?xt=urn:btih:FA7FB9AD8895145EA3C9BA5F7C249A41E2DF6237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Windows 10 Enterprise VL (x86/x64) Elgujakviso Edition (v.18.08.18) [Ru]
 ```bash
 magnet:?xt=urn:btih:BEC0DC9C7117099C507094F89190A9B3389CB951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ The Forest — это необычный survival horror с открытым м�
 ```bash
 magnet:?xt=urn:btih:56EDB4F55B727B6B1A9960B4CD1D09278609BA09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CFCB032A5AD5051ABDD4D80EC8F2D27BD6A4720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:590364D46AE6CF69C46CBF906425546C6A1982BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Adobe Photoshop CC — многофункциональный графическ
 ```bash
 magnet:?xt=urn:btih:B748A4499734E64636C1518237E1DDAA3732A620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ ITVDN | Видео курс C++ Starter (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:BA9F5361F2BCFD477296210D3134B3BEC458EC9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8675DB56D03BCC875A47AB79BBD675B96EE1F496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

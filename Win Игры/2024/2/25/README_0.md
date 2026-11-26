@@ -19,8 +19,7 @@ Heretic's Fork представляет собой не вполне станд�
 ```bash
 magnet:?xt=urn:btih:49267F0FE52E7BE39B8BE24A6395B193C772488E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Besiege - это основанная на физике игра, в котор�
 ```bash
 magnet:?xt=urn:btih:AD857C408F1CE143DEE409F27341E35ACC2BCEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Exanima (2015) [En] (0.9.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:42D308B4E48BAF872BC67006110C9F168879E8A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ruff Ghanor предлагает игрокам стать на место од�
 ```bash
 magnet:?xt=urn:btih:439CE2B7EAC7FF9DD31969E58B38A36BF7D6A0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Maze of Realities 4: Symphony of Invension / Лабиринт реальност
 ```bash
 magnet:?xt=urn:btih:6B24DE04ED0AC2D291524B5F9C268CC0D35C9FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

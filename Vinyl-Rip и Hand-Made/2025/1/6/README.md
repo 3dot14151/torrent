@@ -22,8 +22,7 @@ Umbra et Imago (лат. «Тень и образ») — немецкая гот�
 ```bash
 magnet:?xt=urn:btih:0D332B390E9FE188060DFE9CF740266275C6BB10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

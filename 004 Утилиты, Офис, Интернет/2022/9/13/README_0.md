@@ -20,8 +20,7 @@ SyncBackFree - мощный многофункциональный инстру�
 ```bash
 magnet:?xt=urn:btih:1DDCCEB664791885E3A02EB4678791D306874E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

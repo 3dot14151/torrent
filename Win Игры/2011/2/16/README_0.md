@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C5E37434BA831263787F4E3A07E40210BF94BD5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jewel Match 3 / Джевел Матч 3 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:4627CA1980B1205F6B647FC2CE0B833F11E5A6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Awakening: The Dreamless Castle / Пробуждение. Зачарованны
 ```bash
 magnet:?xt=urn:btih:C99D1F7CDFDEE4D77ECA241D7C6A7A63157F265D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

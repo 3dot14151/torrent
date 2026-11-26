@@ -22,8 +22,7 @@ Moray Eel - Psycho:Delusion (2005) [WavPack|Lossless|image + .cue] <Death Metal,
 ```bash
 magnet:?xt=urn:btih:DBD91E867ED1661FD0AE7A366E022FF69DEDD43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Moray Eel - Priest Hunter (2006) [WavPack|Lossless|image + .cue] <Death Metal, T
 ```bash
 magnet:?xt=urn:btih:54642E51879B631216E2DEB7B4B4B3D42642B2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

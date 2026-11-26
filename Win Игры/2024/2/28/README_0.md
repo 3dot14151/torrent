@@ -19,8 +19,7 @@ Myth of Empires (2024) [Ru/Multi] (1.7.6/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FBC477084BAEFCE44F6649B08447A18FD4A50D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.09) License GOG [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:DF01E218AA3F16E86BFF873C82C50C111E5E707E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Lost Legends of Redwall: The Scout Anthology (2024) [Multi] (1.0) Repack Fit
 ```bash
 magnet:?xt=urn:btih:6C7E59FEF515ED8D100FEAE2F493E0CA120F36EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fossilfuel 2 забрасывает игроков в затопленный и�
 ```bash
 magnet:?xt=urn:btih:FE097DAFCD65F3D3B3DE7C42F2F390F34AF659F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Repack FitGirl [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:2AA20F1E412742E06AF865111B45B9FAC0BF3A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

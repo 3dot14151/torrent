@@ -19,8 +19,7 @@ Tales from the Borderlands (2014-2015) [En] (1.0) License GOG [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:C51634AD3C047F6B692D00FE64457E70C27FF405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

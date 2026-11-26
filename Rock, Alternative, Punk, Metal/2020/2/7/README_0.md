@@ -22,8 +22,7 @@ Godsticks - Inescapable (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E360B8449DE1D62F22BA4EBB156E771BC1BDAEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rage - Wings of Rage (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:D3C486C32BE3141F7AD3644DC569577DA83CD320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sepultura - Quadra (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Thrash Me
 ```bash
 magnet:?xt=urn:btih:A7FF48815C3A957175A220382546D6C1667F7195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stone Temple Pilots - Perdida (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:8D0AC5A77D1C52D979CB9528D3AFB29B892661DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - 100 Greatest Alt Rock Anthems (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:FDC934996A4E5579687F0C45DB3B7F5F78DD9F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Green Day - Father Of All Motherfuckers (2020) [FLAC|24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:D4453CFD099EA1EA10AFC508724C52F87FCF0051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

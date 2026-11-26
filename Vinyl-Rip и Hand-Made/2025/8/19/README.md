@@ -20,8 +20,7 @@ Rain Of Acid - метал-группа из Финляндии, основана
 ```bash
 magnet:?xt=urn:btih:B76AB46AF03FC0BC1CC7E8051F7E26B0FFCADDE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ AmongRuins — греческая мелодик-дэт-метал группа,
 ```bash
 magnet:?xt=urn:btih:41D2C27212EAF0CA0660DF775DCD36E62E3FAC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

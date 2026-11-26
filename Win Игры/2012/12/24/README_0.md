@@ -19,8 +19,7 @@ Rock Of Ages [Ru] (Repack/1.11) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:79B742F4444E18AAD53228BFCDF764C619C62FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru/En/Multi9] (Stea
 ```bash
 magnet:?xt=urn:btih:FDB26200383A0A6310139C3C69B824C7BD53FA76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

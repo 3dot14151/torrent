@@ -22,8 +22,7 @@ BackBox Linux 4.5 [Анализ безопасности, хакинг] [i386, a
 ```bash
 magnet:?xt=urn:btih:A73038DB847A4B6EFB9A98E5FBDB07C5D95C6FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

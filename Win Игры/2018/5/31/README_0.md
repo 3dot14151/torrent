@@ -20,8 +20,7 @@ Downward Spiral: Horus Station - это таинственный и атмосф
 ```bash
 magnet:?xt=urn:btih:CAAC05D144919CEE954B616FF8683028A20D9BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Unworthy (2018) [En] (1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:023B0151869B5F703A195A0BBE7234EBEF9C66DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E0309E5E1302DFBBC58FAAB0FAB90873F156758A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

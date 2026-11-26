@@ -18,8 +18,7 @@ Praetorians - HD Remaster (2020) [Ru/Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:CC09DBD4E3FBE409C1CF1DD532BDF2392AA93970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Android Hidden Settings (Professional) v1.7.3 [En]
 ```bash
 magnet:?xt=urn:btih:6A8BF84DD89644A23D95E0B7D21F8E0807F30A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Observation - это научно-фантастический триллер, �
 ```bash
 magnet:?xt=urn:btih:57C8B1D05F24557BC9FD04FC23D4BBF2033CEBA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:479176E81E4EF03E897D37B8F5E94F3E72CA438F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fugou Keiji Balance: Unlimited | The Millionaire Detective - Balance: Unlimited 
 ```bash
 magnet:?xt=urn:btih:0786032B8DB03C05E72C4E50FB5BD628959B1B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Ash of Gods: Redemption - тактическая пошаговая ролева
 ```bash
 magnet:?xt=urn:btih:3273710B3DDADA957D14EF78D597586A0B4D2C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Dokyuu Hentai HxEros | Super HxEros | Горячий отряд Super HxEROS | �
 ```bash
 magnet:?xt=urn:btih:D848AFAE9E38F7B8D83750C136FCECC3A455D5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B76E2CCD7A74825FF4384622468C9CB00331D9A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A50F3BA4E56DFA06D4D3D0777E2643807ABD21CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Ahiru no Sora | Команда мечты [2019, TV, 50 эп.] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:C7E7B8A67CFCECFE553C595306D0EDEBD85149B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0903F28AD62462D39ACB7B920CAEECCA50F840A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E259A3B7B980418224189C56C87DA7BF7689E040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8189594938CF9FF47FE4801569EE775B3E48A374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Revival Productions с гордостью вам представляет нов
 ```bash
 magnet:?xt=urn:btih:107998B3E1338B22867C5001ECA7A175FF9D9FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ RX уже давно является популярным пакетом для
 ```bash
 magnet:?xt=urn:btih:6CC4C049468B655BE20E16F3CB9F83B49886B965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ Control (2020) [Ru/Multi] (1.13/upd2) License GOG [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:6075954BC07BEBECEC998D4A316BCF56D86E7720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ VA - Лучшие песни из передачи "Радионяня" (2006) [
 ```bash
 magnet:?xt=urn:btih:7CAE3B23FFD66B9EC18E38632130C0022FEEE21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ OTUS | Мониторинг и логирование: Zabbix, Prometheus, ELK [
 ```bash
 magnet:?xt=urn:btih:029C5D358065FFBB0C0F4E9CD9B2894A3A72F3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C3A15B0ECACFAF33C174AB4DCA9684ABB6827D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

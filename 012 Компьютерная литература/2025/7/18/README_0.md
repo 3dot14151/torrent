@@ -22,8 +22,7 @@ RM0090 Справочное руководство по STM32F4(05,07,17,42,43)x
 ```bash
 magnet:?xt=urn:btih:0F99B94D6499A593340ADB4A575CB309491B8C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

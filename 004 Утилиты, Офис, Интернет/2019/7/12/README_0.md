@@ -21,8 +21,7 @@ O&O MediaRecovery Professional 14.0 Build 17 [En]
 ```bash
 magnet:?xt=urn:btih:5D45743FF067D50BD85F5AE53023DBD2C0967339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

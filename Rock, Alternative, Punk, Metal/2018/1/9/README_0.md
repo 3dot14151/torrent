@@ -22,8 +22,7 @@ Guerra Total - Mas Alla De La Tumba (2011) [FLAC|Lossless|image + .cue] <Black M
 ```bash
 magnet:?xt=urn:btih:1D1FC9EAF12A55800388733821DB972266718CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Once and Future Band - Once and Future Band (2017) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:194F6CDB798C42984C69C4F47FE7290C66A42295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Prefab Sprout - Jordan: The Comeback (1990) [FLAC|Lossless|tracks + .cue] <Pop R
 ```bash
 magnet:?xt=urn:btih:83718061825BADE8F3CE26F6AA1EAA59BCD982CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Snapped Ankles - Come Play the Trees (2017) [FLAC|Lossless|tracks + .cue] <Indie
 ```bash
 magnet:?xt=urn:btih:982FC64B474490E7E3B273D8DBB722338DF4F3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jay Ray - Self​-​Resonance (2017) Deluxe Edition [MP3|320 Kbps] <Modern Meta
 ```bash
 magnet:?xt=urn:btih:A972BEFAA2802699D437F47E98C9AFB7C226B4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

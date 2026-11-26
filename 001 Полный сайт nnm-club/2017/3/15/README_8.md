@@ -18,8 +18,7 @@ Label Pack - Pure Trance Recordings - 66 Releases (2014 - 2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:1F8CC01BC5CBDD51D315C0F86ED5402913E3719D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E4A5E0472AB56E7C2DF32037E199CEC38A9C8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Shadowrun: Dragonfall (2014) [Ru/En] (2.1.1.8) License GOG [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:004DB6A928B98A34D216D80A9960A3A197EA93FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84956C3BE70DCEFC86746515AE9EB5BE98DF3BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E58F9F014D7F708254444ED39AF838D6AF083421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44104F9A9DBAB8E669A6BA9E671367323BE16AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6644692113697658815405B71228DA3AF308429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91F58FF9AEC04DE060F0E49608C94422ABE9E2EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF294E3E13C7301A4F2EBACFC6A60D163406856A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21D798762F5F5EE97B4C7BDE3441512B6CBBB332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Mondocane - Project One (1990) Remastered, 2013 [FLAC|Lossless|image + .cue] <Th
 ```bash
 magnet:?xt=urn:btih:B7DF2194B5DA05CAC6E3A8B9D3A333A1F67383F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ VA - TFB Records Best of 2016 Part 2 (Mixed by J-Host) (2017) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:3D16A739218FB913B4868A6AC8A5C8A51FE2DC0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ VA - Coldharbour Miami 2017 Exclusive Sampler (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B34BCCC2E126AD59962C6E4A99BC1745141909F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ VA - Cafe Tropicana Vol.2 (30 Well Selected Lounge Tracks) (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:DD9B0477D21C46DD977B91156CDACD379A09E57E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ VA - Makes Sense To Me Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:C4C894CF809B73B0CCE41597A2454A2CB2BD5F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ VA - WMC Miami 2017: Deep & Chill Beats (2017) [MP3|320 Kbps] <Deep House, Chill
 ```bash
 magnet:?xt=urn:btih:13ECC772EE9E53C8F409C2DDF9B305B83DAF1496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ QR-код является незаменимым и универсальным 
 ```bash
 magnet:?xt=urn:btih:BB63B83FDBFFF8CA3D8576976E5CCEC42BD2FE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Nicholas Payton - Dear Louis (2001) Verve Music Group [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:1400507DFC3CCAFC44BE8E0FBF13C9D2CDC592E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ VA - There Is Nothing Like A Power Woman (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:B6E8300EAE8046F3B3E2323A91D6354430943DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Dangermuffin - Heritage (2017) [FLAC|Lossless|tracks + .cue] <Folk Rock, America
 ```bash
 magnet:?xt=urn:btih:A1F649FA0B45DB00987EA20FDE701B8ECB0D03C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:154F23B7717CC678DE89E71CC47F3BFABE284ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ VA - Uplifting Only Top: 15 March (2017) [FLAC|Lossless|WEB|tracks] <Uplifting T
 ```bash
 magnet:?xt=urn:btih:64158EF2A697F360DCFF108CF824A11FFEA5F451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ KCNcrew Pack  -  это огромнейший сборник серийнико
 ```bash
 magnet:?xt=urn:btih:2FADB1917228D03D955B0E04D4883BD23C15A9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:E7B072C523F8B2328B48F6A836F04EB72C9F5D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Paste хранит всё, что вы когда-либо копировали 
 ```bash
 magnet:?xt=urn:btih:45C33F29DA15AC08EDB746DBD04FF52934CB9968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ VA - IBIZA Vol.1 (Chill Out and Lounge) (2017) [MP3|320 Kbps] <Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:7478301950C4DE94B90DCB4C132F532261990267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Hasleo Backup Suite — это программное обеспечение д�
 ```bash
 magnet:?xt=urn:btih:07F4E82C7D49645878A74F160051B0B1B7CE672D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:EA61C34676F727A9219C1D947EED9246DBBEF2B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:3F3AA1468B6CF21465DA32323E9F26185C1BC74A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:B87E245809EB6F55090EE76583BA2844C1E514E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9BF33AFC76A17E740990C47D9D0C80B53147E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

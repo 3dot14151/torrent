@@ -19,8 +19,7 @@ Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих стол�
 ```bash
 magnet:?xt=urn:btih:F2C866234EC9CDA06C9615890D6B8A8A2714ED26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих стол�
 ```bash
 magnet:?xt=urn:btih:2611B7CB6316176C1EABE6E55D8DB37E92006384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

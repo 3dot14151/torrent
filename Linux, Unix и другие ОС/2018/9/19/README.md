@@ -19,8 +19,7 @@ ArcoLinux ранее - ArchMerge дистрибутив, сочетающий в
 ```bash
 magnet:?xt=urn:btih:0D2EFE01B75FBDC70AC2EB9922F535B2E483A6EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

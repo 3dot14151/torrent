@@ -19,8 +19,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7.404.504czj3/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:8AFCA002B73497858FD45A45178E70FD43E78677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Other s [Collectors Ed
 ```bash
 magnet:?xt=urn:btih:BA50B82118703685F47DFCB2A9D7184AACF9DD65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack FitGirl [Collectors Ed
 ```bash
 magnet:?xt=urn:btih:7AB4810EB3F6B27F52FCD618FD46696B141D3F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack Other s [Anniversary Edition]
 ```bash
 magnet:?xt=urn:btih:FAD8613FF9A5A0F5A41B3CE42C9F84D340B27C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Death Howl (2025) [Ru/Multi] (1.0.0.5.4) License GOG
 ```bash
 magnet:?xt=urn:btih:F73E8C166B120105E3B67946826C3A48FD57077D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Solargene (2022) [Ru/Multi] (1.0.43) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9E7096072F39FA928E0A5AB65A34EAA41D179716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Solargene (2022) [Ru/Multi] (1.0.43) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:DE9B273302B390B6A9BFEFDC975D343D4FC780EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Days Gone рассказывает историю Дикона Сент-Джон
 ```bash
 magnet:?xt=urn:btih:521D73281DE1937A7D1566C5746FD8BBDBE6580F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Anno 1800 – возглавьте промышленную революцию! 
 ```bash
 magnet:?xt=urn:btih:039502CA4AE718F3DE3E7E314044CBE8E32763A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack seleZen [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:2056999C1025F51D7272092A738C98028C4DEFE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ MIO: Memories in Orbit (2026) [Ru/Multi] (r21606) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F6F5F18166ED3F0402C89A49AF4740EB9DE8E50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Strange Lights (2026) [Ru/Multi] (Build 21829961) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2A98CC58DDF223ABAF8D12E6043E18479AAF30C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ The Strange Lights (2026) [Ru/Multi] (Build 21829961) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5A883CEF5CE7A34A925839C5D81E3B611AC49A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:BD6F4E9C9C17A2C2C95AD99CCC0F11C9A68DC311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Happy Holidays 6: Season of Love / Счастливые праздники 6: С
 ```bash
 magnet:?xt=urn:btih:FEB97F8E5AB6C19977E4D836FEF251054B1F84D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Crimson Capes (2026) [En] (Rev.22) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AB09F2F377146D7A3E9343C26D25925BB742E979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Soda Crisis - это динамичный шутер с боковой прок�
 ```bash
 magnet:?xt=urn:btih:D7F60C6AFE608074D0716FDECC16DCBBCFDA66D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ High On Life 2 (2026) [Multi] (Build 21897943) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:90894B746F32C4078F551386C0A2361FC07D4903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Occupy Mars это высокотехничный, открытый мир, пе
 ```bash
 magnet:?xt=urn:btih:EE0FD22731E94DB4FF8558099E8F7F37AA250796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

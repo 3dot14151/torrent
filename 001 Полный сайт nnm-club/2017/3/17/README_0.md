@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1716B319A8154836391A03BDBD1A7A02CC543E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8E64E81F18BE2F159CB9E4DF589D61CCE6BB0AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Stan Webb's Chicken Shack - Stan's Blues (2012) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:20DDA3803543E0DA9149E1AA594D752A6EEE6DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC1035476B9F3E4CCCB4D2192A5AB2CF7D679AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Hazmat Modine - Extra-Deluxe-Supreme (2015) [MP3|320 Kbps] <SKA, Fusion, World>
 ```bash
 magnet:?xt=urn:btih:E63E14F4FE895AE7F37B0366FFE8FC9F06463374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96B083579E52D2F50E3D675A2141E015CCEDA780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00EDB6B9C5C8CD66F22A35FC9CAA81DE9C90A7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Troy Redfern - Dirt Blues Ritual (2017) [FLAC|Lossless|tracks + .cue] <Blues Roc
 ```bash
 magnet:?xt=urn:btih:FFB3B3AF451F41E3D721DA9A80444E6F0F8EAF6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D40B28A382A90D75D8F627707E640CDF43F2748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBAFDEF0E8EC0B4A298F55234119119C236B8B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84291B4D41EE9B15B76018608D84E01989D35500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:017B6F87E05B6A017997D0504FAE50692EAC5C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Zara Larsson - So Good (2017) [MP3|320 Kbps] <Pop, R'n'B>
 ```bash
 magnet:?xt=urn:btih:1C6BC725ADDCA12D86966DCAB27A030768258EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ The Chantoozies - Chantoozies (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthp
 ```bash
 magnet:?xt=urn:btih:B88C3BE1234A6F981FEBFEDD1F97441191FC8C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC18D046ED9C7CB602FBCF0200FE99AB4FD548D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Overkill / Kreator - Man In Black / Warrior Heart (2017) Split [MP3|320 Kbps] <T
 ```bash
 magnet:?xt=urn:btih:4B5E481814BDCDA1CDB875ED7B2C3D5AEC723CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A47378F1B8A712EBBFCF6225E849E45F64479CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ VA - Ego in Miami Wmc 2017 Selected by Addal  [MP3|320 Kbps] <Electronic, Electr
 ```bash
 magnet:?xt=urn:btih:445A3E02443CAB60EC96F197EF0EF9F789A8F9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8741C005009F19A9CF27E7938E99F64A3D0CB38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Brian May + Friends - Star Fleet Project (2011) [MP3|320 Kbps] <Rock, Hard Rock,
 ```bash
 magnet:?xt=urn:btih:D046021FF2BAE7FBAD9620C68825782CBFCFA6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0A512E752326DB5162A93FF5D1CE05F50226308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ Wise Disk Cleaner 9.44.660 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AFB04E9EA418445384A821FA2A762EA87536E47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ Brooklyn Bounce - Best Of The 90s (2017) [MP3|320 Kbps] <House, Eurohouse, Hard 
 ```bash
 magnet:?xt=urn:btih:50B63EF4A181BC013958D9559A2945C82A56DB6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ Icecream Screen Recorder Pro 4.71 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:77D7837114C4070B6A7D0AB347E56987C4687ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

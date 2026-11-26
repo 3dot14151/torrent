@@ -18,8 +18,7 @@ Just Manager — это многофункциональный, универса
 ```bash
 magnet:?xt=urn:btih:6BC80555D5B15F338C25A4E31F6423A9783AB45E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38451037A1319FE15E901234602883865541F015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Snagit предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:14F9F9015BAACE9F1EEBA3D5F0B3943849601635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Hozy (2026) [Ru/Multi] (Build 22569174) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0D300AEE7200D581132CBC8912C00ED067D71CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

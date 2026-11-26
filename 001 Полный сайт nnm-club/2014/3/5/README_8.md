@@ -22,8 +22,7 @@ Recovery USB-flash for Asus F552 CL (X552CL)/ Windows 8 (х64) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9F2F187F573EAA4D528EDD116F5443735122E122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Smith Micro Poser Pro 2014 — мощный и в тоже время прост
 ```bash
 magnet:?xt=urn:btih:86C25D22FC29442A1A8D0BCC73B3C303CC69ACD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B562BF9E5A7D45B9FCCC76CDBD36B626ACFEE6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51402D6F97329A4719F2B42A1326C39618FB0CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10A28DF706BCB9873BB39D88C17007FA2B57D95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29D7565C9F92C7F37DDF73DE915C7ED4B10472CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Hellsing Ultimate / Хеллсинг [2006-2012, OVA, 10 из 10 + SP] BDRemux 1
 ```bash
 magnet:?xt=urn:btih:97A9CFD9D576BF50193FD80CECB1F51670B78E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C69E3145CF09137293BAE7E46BF594C42D0F388C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ South Park: The Stick of Truth / South Park: Палка Истины (2014) [Ru/
 ```bash
 magnet:?xt=urn:btih:D355349D31E9E96956C8310EC991192643331C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ VA - Советская музыка (Песни народов СССР, зар
 ```bash
 magnet:?xt=urn:btih:EA1E0DE263D27945AF14EEB09B56C43DC3230FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3958D3982E805FD6EAFC6D68527A0ECB2AE77E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Windows XP уходит в историю. Microsoft отказывается п
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Kaspersky Internet Security обеспечивает комплексную за
 ```bash
 magnet:?xt=urn:btih:108EC89F486DF0FEADDF500F477AB0FC22E612E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Adobe Dreamweaver CC входит в состав Creative Cloud. Поэтому
 ```bash
 magnet:?xt=urn:btih:FCC82FF938CF4717321E69A788EF3B69AB937599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:041E16E433E2B12B53B8AD3379FC1869D72E9090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17258DDED397E9C8A330D4CE2269FF0B88E1A90A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2C45A07E64E06C367D02500C3A75FFE0B7F6324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/En/Multi] (1.0.0.1/2dlc) Repack R.G. G
 ```bash
 magnet:?xt=urn:btih:75DDA0847652F2C78847C81C8315765180ED8977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1B6030BE2D01C41B5693379711EC301C27F2A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ Windows 7 & 8.1 Pro VL x86 x64 StartSoft 12 [Ru]
 ```bash
 magnet:?xt=urn:btih:DB439E4D49B6635CF56BF2C4AA59D2DC1D320737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21D1C746B20FE19B4C023ADE93D82A66A50A7BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Tomb Raider (2013) [Ru/En] (1.1.748.0/DLC) Repack R.G. Games [Game of the Year E
 ```bash
 magnet:?xt=urn:btih:00859EDA7AEEE97FED3E05F76F9B649A88E6E2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

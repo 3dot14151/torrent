@@ -19,8 +19,7 @@ Antergos - современная, привлекательная и мощна�
 ```bash
 magnet:?xt=urn:btih:DD650B887DB2BB3065B74FE32906A59A669C0DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

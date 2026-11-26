@@ -19,8 +19,7 @@ Slavania - двумерная метроидвания, включающая в 
 ```bash
 magnet:?xt=urn:btih:57555E0AE0DBF25064907267795FB42B1C98B906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.3.10430.406/dlc) Repack Decepticon 
 ```bash
 magnet:?xt=urn:btih:7D01B0D8BA60F787876B67F7467F243018C9188D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Womanizer (2024) [Ru/Multi] (1.32/dlc) Repack Other s [18+]
 ```bash
 magnet:?xt=urn:btih:62305DDA9D2900600FA16315A692EAB17856C2CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (143421/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:5A5E09B2631B9E63F1679D86C016ACA07FE2220D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pacific Drive - это атмосферное автомобильное при�
 ```bash
 magnet:?xt=urn:btih:25677E6CEC19747FF1EDA235F74B3FF40E8AC1AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Reignbreaker - динамичный roguelike, действие которого
 ```bash
 magnet:?xt=urn:btih:2088372B7459DA54532CE45DEC0ABE3B51E5243D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Another Crab's Treasure - это увлекательное подводное �
 ```bash
 magnet:?xt=urn:btih:C55E9051801C8A5CDD171F92CB1A39885B9DA916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Aquarist - иммерсивный симулятор, позволяющий п�
 ```bash
 magnet:?xt=urn:btih:430C3FCC8E50C63901C242058ADF7E11AD9365F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:37AD2AAABE6FE8563C5F1616A867EF38596845E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ```bash
 magnet:?xt=urn:btih:6ED9DAC14856BEA0EC75BC034A534534ADFA8FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Drop Duchy - это легендарная геометрическая голо
 ```bash
 magnet:?xt=urn:btih:884D4D9E37BA110BFBF05E6F52CFBD317E21DB4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Slavania - двумерная метроидвания, включающая в 
 ```bash
 magnet:?xt=urn:btih:EEB7336139B1896415DB4E1FCBD1E0A0040A164C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Food Park Manager предлагает заняться строительств
 ```bash
 magnet:?xt=urn:btih:3F583BD9B24589BB29F6B18940D2BA56FE6188A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ ShoppingMall: Manager Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:278AC837BC79F3021AF9F5F7943309A222AFC9E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:12C3F67A8EE4F2B9B74951735D1FE2346B91B49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Natural Threat: Ominous Shores (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:5F71FC5FF0C243EC5CE933F8BCBF55F884C34E55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 ```bash
 magnet:?xt=urn:btih:E15D1FE38AECFE3B1ED193642DB9C53C71227232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D7724AAFFCE7025A3D0569D7CD6FE25EA84731C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D025F15AE81B1606378E0A45D64927950A359B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Time Dreamer / Путешествия во снах (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:450C65D10AD254A2688921204F4E6EC48371BC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fantastic Creations: House of Brass Collectors Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:894B1EF30FAD884AAE5CEADEF9242F895295A181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

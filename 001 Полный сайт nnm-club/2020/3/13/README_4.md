@@ -19,8 +19,7 @@ Windows 7 SP1 6.1 (Build 7601.24549) (13in2) x86/x64 by Sergei Strelec [Ru]
 ```bash
 magnet:?xt=urn:btih:29442CF91BC79DF8A3C96684984A6811EF77881B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7DECA4EC10A350DDBC79EC07390C6D2A172A6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E52EAE4039BFD387703369E4EDCA0ECFFF325577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0/upd4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2E144722AD5B13287AB9745B9D9CBFE095FB3EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58D161F92A45020941FAC6100B304CB89872A367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ RusLive - это мультизагрузочный диск системног�
 ```bash
 magnet:?xt=urn:btih:4D19767B644E4FBA5FF222CCC78405571FFF50C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DA7E0FA91D2EAD75C823A5E1127520FAC99C21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F316630418734233F148BFA5062C89D219B3E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Sniper Elite V2 Remastered (2019) [Ru/En] (SVN2797PF85690) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E69E9A26B05DF9EA670A826085C55D942F6D5019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ NieR: Automata – это свежий взгляд на жанр Action/RPG, г
 ```bash
 magnet:?xt=urn:btih:EDEDBFD1C2FEF2F2C44A5D88710EE3EB679D8653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Ctlos Linux — базируется на Arch Linux, iso образ собра�
 ```bash
 magnet:?xt=urn:btih:A4E46B262606FD49AEFC3007AA95C867F6CF59A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.02) EGS-Rip InsaneRamZes
 ```bash
 magnet:?xt=urn:btih:D311B6318E2438ECFC212AB3D12DB36A135D3B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Dororo | Дороро [2019, TV, 24 ep] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:CD94BC5409492C93433AB0C3ED73EDCBF31EAF66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:685099DB227D090E3CB5E8FE50BFFDEB75985700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ Tate no Yuusha no Nariagari | The Rising of the Shield Hero | Восхожден
 ```bash
 magnet:?xt=urn:btih:FD24EE79884B94DDF5D292D31157578B19D110F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CAA0EFE5824F9365D5F3105C4DF0094A88674E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91A690C4DEB09AED58572CEE704264129E84034B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A63C59DAC627349F12EC52620BD92E0098714788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 20.03.12 [Ru]
 ```bash
 magnet:?xt=urn:btih:865FDCDFE73E39207AFA7E6E802E5D1937FA15A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.03.12 [Ru]
 ```bash
 magnet:?xt=urn:btih:CA94B74FCE717C70508CA1E994D502F7989170A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

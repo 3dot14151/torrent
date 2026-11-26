@@ -21,8 +21,7 @@ M.U.D. TV / МУТь-ТВ: МегаУбойное Трэш-Телевидени�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Hour of Victory / Час победы [Ru] (Lossless Repack) 2008 | R.G. Catalys
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Colin McRae: DiRT 2 сохранила все лучшее, что так пол
 ```bash
 magnet:?xt=urn:btih:B8AD36FD0260035B8254B481194268F874FBD714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Bloody Terror - Diaboli Celeritate (2014) [MP3|320 кб/с]<Melodic Black/Death 
 ```bash
 magnet:?xt=urn:btih:914A650D5E01D7FB4491F2DAAB85712FD38CC654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Job For A Cowboy - Sun Eater (2014) [FLAC|Lossless]<Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:9FC4E20E8931CB8E973CEDA1A0220F1AA52A8553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Haspyd - Буревій (2014) [MP3|320 кб/с]<Folk Metal, Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:1E33805613150FE0C60F3BE82C407A771D50C3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Duskmourn - Legends (2014) [MP3|320 кб/с]<Melodic Death Metal, Epic Metal>
 ```bash
 magnet:?xt=urn:btih:F7CD905569749CA05BD2DED3691BBA49D4FDB4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Ideя Fix - Война (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:2438A63687CFBEC5149F94763C93F864F64DB736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Ghost Brigade - 4 Альбома (2007-2014) [FLAC|Lossless]<Doom / Progressive 
 ```bash
 magnet:?xt=urn:btih:9F2BD85CC38CC81C607CA3906BB02AE641F7CD21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Sting - ...Nothing Like the Sun (1987) [FLAC|Lossless]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:952583503C2DD1863383322987CE2E15628D147A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Angels & Airwaves - The Dream Walker (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:CDB8EDF190E6D7E0A1A8031630672D2E7625C74F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Yuhkinen - Far Beyond the Seven Seas (2011) [FLAC|Lossless]<Progressive Metal / 
 ```bash
 magnet:?xt=urn:btih:E76FEB3652D7D216637BE4CD779FEC674556BC7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

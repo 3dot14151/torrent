@@ -19,8 +19,7 @@ MEGATON MUSASHI W: WIRED бросает вас в кабину гигантск�
 ```bash
 magnet:?xt=urn:btih:E06025633F0BAA990FF849EDEFF7AF9EDC04BB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gone Home (2013) [Ru/Multi] (2020-01-28) License GOG
 ```bash
 magnet:?xt=urn:btih:7A72EE7523EB3D247E903AF4001F28C85ADDB86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ira (2023) [Multi] (1.0.10) License GOG
 ```bash
 magnet:?xt=urn:btih:EA0EE169B8EB5C72B799D0A6D1F2AE3D5F9F3E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:83D19EF4470A6BCF0B1F1E65A2E0F2F510A4CDF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Bridge Curse 2: The Extrication - продолжение одноименн�
 ```bash
 magnet:?xt=urn:btih:9935FD2DE7F428BC6C2F033DB993B8F6D506208B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Battle vs Chess (2011) [Ru/Multi] (1.2/dlc) License GOG [Grandmaster Premium Edi
 ```bash
 magnet:?xt=urn:btih:2A4A895A924FBA4A500C1AE3FA048C6DEE32C5AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ City Legends 4: The Witness in the Rye (2024) [Multi] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:222B263E23A920BD246DE4BF6C4386002EF5AFB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Hand In Hand - 2D платформер-головоломка с разделе�
 ```bash
 magnet:?xt=urn:btih:A2E1A6B64DC501300CF547B15FC5411BBF9299C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
 ```bash
 magnet:?xt=urn:btih:011C415B8F7D0CD64479FFA3A4AD3E973E7D859B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

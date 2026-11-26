@@ -19,8 +19,7 @@ Wise Game Booster 1.5.3.77 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5C43CB72EA04104C70B5FE7CC92DBC6319466BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ R-Studio Emergency запускается с набора дискет, CD / DVD
 ```bash
 magnet:?xt=urn:btih:8289067BCCB597FF16E496111DDE59C30ED3010D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

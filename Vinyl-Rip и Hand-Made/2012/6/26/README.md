@@ -28,8 +28,7 @@ B3 - Limehouse Blues – Philipp Braham [02:53](   Читать дальше... 
 ```bash
 magnet:?xt=urn:btih:B03E31F139E916812BC34C9BC3A4E56AAE5AECC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

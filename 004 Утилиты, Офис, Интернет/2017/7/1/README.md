@@ -19,8 +19,7 @@ OneDrive (ранее SkyDrive) - облачное хранилище, предн
 ```bash
 magnet:?xt=urn:btih:E9DB38A776A3A95C0FB8A366188779F328D51206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

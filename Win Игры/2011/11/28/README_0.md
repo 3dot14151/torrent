@@ -19,8 +19,7 @@ Paradise Pet Salon (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:84C6D0CAAAB14B69B0A7D2734FD1299A4971DEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Missing A Search and Rescue Mystery Collector's Edition / Без вести 
 ```bash
 magnet:?xt=urn:btih:1B725B39F48A6C9DE87C339486F13FDBD46A7A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69026513A7A7740BA0EE5D89DEE61335BD1474B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

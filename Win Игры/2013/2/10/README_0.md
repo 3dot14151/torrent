@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7FAD1B7E0588F0CB53878CFBADA6375BB1943516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chimeras: Tune of Revenge Collectors Edition / Химеры: Мелодия Ме
 ```bash
 magnet:?xt=urn:btih:F72F68ED3782D6ADD232E8C48238A2A31DC53A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Lucius [Ru/En] (RePack/1.02.3866) 2012 | Audioslave
 ```bash
 magnet:?xt=urn:btih:B6E0DCB09DCB0AC4B721CE09AE5AAEA46B81A15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Cities XL Platinum позволяет проектировать, строить
 ```bash
 magnet:?xt=urn:btih:2565F9C1DADD9D3C838B19DFC64D6B661DDC9E40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Antology Gothic / Антология Gothic [Ru/En/De] (L) 2001 - 2011
 ```bash
 magnet:?xt=urn:btih:17159C84C1D49A99A4DC961932BE1102712FCD2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

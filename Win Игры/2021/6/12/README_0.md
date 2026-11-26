@@ -19,8 +19,7 @@ Secret City 5: Mysterious Collection / Тайный город 5: Загадоч
 ```bash
 magnet:?xt=urn:btih:347F158CB0C5C0F646AADBE8DCE615549D827D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pacify (2019) [Ru/Multi] (4.24) Repack Other s
 ```bash
 magnet:?xt=urn:btih:79C748F0C03DCFA0B0A337AB3EE3B20AC32882B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Guilty Gear -Strive- (2021) [Multi] (Build 6841150/dlc) License Fairlight
 ```bash
 magnet:?xt=urn:btih:D842D6CBD7A1C8B0FCFC46FB97CCCB2319196073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

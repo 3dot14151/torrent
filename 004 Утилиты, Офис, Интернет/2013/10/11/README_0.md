@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:58BFB7439E136B2274F60581822BF0D773CE65C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nokia Suite - набор программ для работы с мобильн�
 ```bash
 magnet:?xt=urn:btih:572BC034A60CB2154CB6C1747E885C447E1617F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:734F31305E5D5B34E239B0BF2092B34058C31113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

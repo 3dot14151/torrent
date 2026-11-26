@@ -19,8 +19,7 @@ Star Ruler 2 (2015) [En] (2.0.0/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:EC8839B4BF621A498FE6E8D4CFF0FF6609994DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Lost Souls (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A814F360B3671E0A620D599FE3451017CFA20EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ The Howler – интересная аркада в которой вы попа
 ```bash
 magnet:?xt=urn:btih:3BCD5C3A66D96018985EAD3A2FB26055FD1D7CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ The Banner Saga (2014) [Ru/Multi] (2.18.08/dlc) License PROPHET [Gold Edition / 
 ```bash
 magnet:?xt=urn:btih:26D27D74F08A4748493A4C1DFB884618AA48EB44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Pirate Storm (2012) [RU] (12.04.2016) License
 ```bash
 magnet:?xt=urn:btih:26272E1731537D67C1ECDBD44DC2122BAC42541F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ CTU: Counter Terrorism Unit (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:373B797A760CF7FD44D2402B434269AD2070FA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Last Hope - Heroes Zombie – стратегия, в которой вам пр�
 ```bash
 magnet:?xt=urn:btih:27978EEADB33C3EB3CE1B813AAD104FACF4F2BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

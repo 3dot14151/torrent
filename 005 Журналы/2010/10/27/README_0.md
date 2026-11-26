@@ -19,8 +19,7 @@ Penthouse - американский эротический развлекате
 ```bash
 magnet:?xt=urn:btih:2A2AD39F867937CCAB1B2840CE3B4F49A335C457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

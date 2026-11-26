@@ -19,8 +19,7 @@ Roadkil's Unstoppable Copier 5.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:07501E24E189A8EF75CBF0B149C06DB0CCBDB2DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

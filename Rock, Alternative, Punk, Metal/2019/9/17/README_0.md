@@ -22,8 +22,7 @@ Art Nation - Liberation (2017) Sony Music [FLAC|Lossless|image + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:DEA4A2251042CA1F4BDDBFF2F0DDCB4D9EC8DFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tarja - In The Raw (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Symphon
 ```bash
 magnet:?xt=urn:btih:1BF23D007548261B5941B5710DAB58D338DCBCFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

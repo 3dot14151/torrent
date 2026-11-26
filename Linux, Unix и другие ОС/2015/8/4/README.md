@@ -19,8 +19,7 @@ Oracle Linux 6.7 Server [i386, x86-64] 2xDVD,2xCD
 ```bash
 magnet:?xt=urn:btih:E74EF1D14636A36F95A90F93EE1D8BCDB27368D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

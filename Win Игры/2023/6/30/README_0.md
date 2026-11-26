@@ -19,8 +19,7 @@ The Bookwalker - увлекательное приключение, где вы 
 ```bash
 magnet:?xt=urn:btih:E3068FFC1868BEF2DCB9F28A99EFC25AAD414441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RICE Repetitive Indie Combat Experience (2023) [En] (24) License GOG [Early Acce
 ```bash
 magnet:?xt=urn:btih:CE599B0DE02FB8B8C72FA4396BBAB5A7B372F988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4B90539EEF6F59DBF676D3AE195625141CFF639F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

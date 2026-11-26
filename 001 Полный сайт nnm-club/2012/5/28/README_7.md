@@ -27,8 +27,7 @@ Marcel Loeffler - Images (2012) [FLAC|Lossless]<Swing, Jazz Manouche, Accordion>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ The Loop Loft Indie Rock Drums Vol 2 следуя за успехом нашег
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:330D72EFE790DE15FB686E02AE936896AB94BB86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Santamaria - Let’s Dance (2012) [MP3|320 кб/с]<Pop, Eurodance>
 ```bash
 magnet:?xt=urn:btih:BEE9829D7695BED2C40E8C833C2CE335FADCE43F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ VA - MAXI. Летний танцевальный Fresh (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:2D3D194DF069309BF1777244108779DC46BBACF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB1FC2436AF538868014B9BFF67DA1AC7F9BC763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D2913A665B61A56837C054CF263E877DCA35939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04209EE21554C817DD83C52787C34F6B755787AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23B2CD4099DFCE26478CFC6B40C3F9CBBC8ADF79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ VA - Dubstep - Vision vol.7  (2012) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:99BC8330795F9FE68A39DDEEE574BF1635AE7713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4789B1C1D164ECCBB05A21E39BFF4595B058825B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF781C00B277A00A7F298DC08AFA930AFC95284F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A19DCB8968B8FA287741EE70E6EC37D14723E1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ VA - Море, Солнце, Пляж! Кайфуй и получай кураж
 ```bash
 magnet:?xt=urn:btih:1CF189FBB9E847ABBF78C8DB8D403974A29CAA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ Rumer - Boys Don't Cry (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:6ACDD32A5B60D799315F8801D56CC1E7C2D2E91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FAFB48EDD016B0A7D31F13048202082FA602520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ Ferry Corsten - Corsten's Countdown 250 (Official Bundle) (2012-05-28) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:3FAFA92E97D0C8B1CB890F8329BA6C21B7542871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0030E00AF14AB7A6FA1731FA5E7743B201BB908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:252BA770E4DE539837B825F7CE90575C132CF412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C47D8F888FD5A49D3B4E8164DF257BDD54FA75A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ DJ FEEL - TranceMission Top 25 Of May 2012 (24.05.2012) [MP3|320 кб/с]<Progre
 ```bash
 magnet:?xt=urn:btih:AC1E4873A086D3B5B155CCA2F3E2E9C098EFF3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ Vogelfrey - 2 альбома (2010-2012) Дискография [MP3|320 kbps]<F
 ```bash
 magnet:?xt=urn:btih:BABE51A807E4F3DA73540C4649158ED5CE4A6703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ VA - Vocal Trance Volume 32 (28.05.2012) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:A59BF5E54539A7F2A3C6D289F6DD38A5D00F49CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ Jimmy Barnes - Flesh and Wood (1993) [MP3|320 кб/с]<Acoustic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C501D9D89E2A9221BF74230897859E3ADEFB9234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

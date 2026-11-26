@@ -25,8 +25,7 @@ The 11th Hour - голандско-шведская дум\дэт-метал-г�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -69,8 +68,7 @@ Doro - Under My Skin (A Fine Selection Of Doro Classics) (2012) compilation  [MP
 ```bash
 magnet:?xt=urn:btih:046F8BA77A887B65A772F6B5FEC30DB800C88573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

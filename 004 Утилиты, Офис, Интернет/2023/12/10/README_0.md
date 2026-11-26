@@ -19,8 +19,7 @@ Universal Media Creation Tool – мощный, но простой инстру
 ```bash
 magnet:?xt=urn:btih:58ED64B21A9460E5109A3638B6AAFFBCBA3F015A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

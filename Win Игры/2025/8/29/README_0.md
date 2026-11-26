@@ -19,8 +19,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.12/dlc) Repack Let'sРlay [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:87C4273C0A767BEBEAAF4BEC7F730F3994D5EDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tactical Warfare (2025) [Ru/Multi] (Build 18683670) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3E90B80363B04DB2F9D4FF4B9CBD1C0280D24021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Survive the Fall (2025) [Ru/Multi] (1.2.0.2534/dlc) Repack Let'sРlay [Ultimate 
 ```bash
 magnet:?xt=urn:btih:DA04A584F45FFD7FD90DA162E6440ED219B20111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Enshrouded - увлекательная игра, действие которо�
 ```bash
 magnet:?xt=urn:btih:562CE3F2C0A27ECFADEDEE0013444467CAFBF266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ZEPHON (2024) [Ru/Multi] (1.1.15/dlc) Repack Let'sРlay [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:ED9A001BCC34F628632D0AF71BAC318550908660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Primal Planet - это метроидвания от единственного 
 ```bash
 magnet:?xt=urn:btih:7F13022EA3B075BF4F4AB7BD1B2DEEF24AF06E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Broken Arrow - это масштабная военная тактическая
 ```bash
 magnet:?xt=urn:btih:ABB0921E5B24D3ED9479490C92E8D69C33A3A5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Rogue Loops — это roguelite-экшн, где семья, оказавшая
 ```bash
 magnet:?xt=urn:btih:E7015FBB2D569676F0DD5A6993D6F1236EB01123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:933246ED7A6408B08FC5B0387A5ADE4E5B4C5F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Haste: Broken Worlds — игра от третьего лица, в котор�
 ```bash
 magnet:?xt=urn:btih:5D2E024F13FA7C4F09B1AFAF549EC6D81D4B2E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4566/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BCE208C7DC110CEEA9C7D6E5218DEF0D283AA92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Wanterlude [Comp
 ```bash
 magnet:?xt=urn:btih:CC30DA458A1F0E282548B5F15DD685808535984F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Shantae Advance Risky Revolution (2025) [Multi] (1.0.2/dlc) Repack Let'sРlay [D
 ```bash
 magnet:?xt=urn:btih:A733CC6613DE2AE186C76CE3911FB86B31B76B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Lords of the Fallen представляет совершенно новое э�
 ```bash
 magnet:?xt=urn:btih:56600C0966FD6640EE7791713533E76847FECDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.07a/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3ED36EE98197ECCEEAC8F59716E13491575CAE25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack Wanterlude [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:AA0C285C77B2F41809A35FBBDBC15E30F2313CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Countryballs: Power Protocol (2025) [Ru/Multi] (build 19413235) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A0DD4CC46D6F6320D751BD669B201B4135513B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0971983D78BE3556FABAA8873DD97D378A09370F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Fly Corp (2021) [Ru/Multi] (1.8.6/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:404EF2D2970A8F634F92E0640085723F6B6BC4F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:61F6D87A750BD1DF171FB8F5B8DA6C1FC1A25F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Mystery Trackers 21: The Shrouded Village (2025) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:76DA7BDC3EB76BDA00329C92CF69B80732D8F274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

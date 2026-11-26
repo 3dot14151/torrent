@@ -19,8 +19,7 @@ RepliGo Reader – удобная и быстрая PDF читалка для а
 ```bash
 magnet:?xt=urn:btih:7B6A5E4EFA2A34C252382BDACED206A7B186CDF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

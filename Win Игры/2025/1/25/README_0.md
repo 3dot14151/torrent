@@ -19,8 +19,7 @@ Noreya: The Gold Project - 2D-метроидвания в стиле пиксе�
 ```bash
 magnet:?xt=urn:btih:0B2A798B79857BDBB20C7B3AEA72525E6544F684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.099) License GOG
 ```bash
 magnet:?xt=urn:btih:E8912B218298A6532EC5354301147477EF0D2F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.113.49697469) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:5EBCD8862B8A9A982DFC7627FE63DC9CA58108C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Outer Worlds: издание «Просто космос» дарит игр
 ```bash
 magnet:?xt=urn:btih:13DDD19E56538E646E6AA2E99ECA989461DE8698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Persona 4 Golden - ролевая игра, рассказывающая про 
 ```bash
 magnet:?xt=urn:btih:B4C9F41D9012FD18483F6B5193170DCA414C2048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cyber Manhunt 2: New World - The Hacking Simulator (2024) [Multi] (1.0.7) Repack
 ```bash
 magnet:?xt=urn:btih:8213FE8C25164DDB2AACFC6CD82E468DA53D99EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Blacksmith Simulator (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:440F957D76D6F38CA6749A278770C4E58DCAB00D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:7FFE6836C3D96681D7FC2FEA946FA08EE8B416DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B10F0DB819512E287B83788EB0B8B759D87842C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Magenta Horizon от соло-разработчика Маддисона Бек
 ```bash
 magnet:?xt=urn:btih:4176D63EDF64DC1CF25E49BE2ED9E15167306959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ None Shall Intrude (2025) [Ru/Multi] (1.0.01) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3C880B76587B7853EC1888F951D7B4E7EBBCCD2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.0.2.21654) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5FE71AE363C61C9C3F3165B8BF130CEDF698006B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Fragrance Point (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A4D2716FA3932A8FE08F261D9978B6D6F22AED1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

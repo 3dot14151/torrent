@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:691C41767BC52920C3EBEFA92AF6CA1598922BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Tom 'The Blowfish' Hird | Blowfish's Oceanopedia: 291 Extraordinary Things You D
 ```bash
 magnet:?xt=urn:btih:0A926317FB3EFBB1CDFA7F4BC1E6FEC34CCD26DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EB9C9CBF293E912CF447F5F78D19C3375860BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ VA - Дискотека: В контакте №200 50/50 (2011) [MP3|128 kbps]<
 ```bash
 magnet:?xt=urn:btih:222D09CADAF15D2C46CBEA64A63CDD92B478EF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ VA - Рулевые Шансона (2011) [MP3|320 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:F24A6B635A8D0168DE00709B7ADD22873B7DBEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Image Resize Guide - программа для изменения размеро
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ VA - Танцуй Студент (2011) [MP3|256-320 kbps]<Pop / Dance >
 ```bash
 magnet:?xt=urn:btih:654D68FCDF41AECEB066CDCACFB69808B6BDB234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Tank 86 - Rise (2011) [MP3|320 kbps]<Instrumental metal, Stoner metal>
 ```bash
 magnet:?xt=urn:btih:8492913F53F50519C79D53DDC45E57089449F0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - Jazz Rock (2008) [FLAC|Lossless]<Jazz Rock, Fusion>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ VA - Лирика. Часть 1 (2011) [MP3|320 kbps]<Pop / Dance >
 ```bash
 magnet:?xt=urn:btih:860BF6A2ABF5DBB3D88BE3935D18B728B48EC462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - Songs for the Soul (2011) [FLAC|Lossless]<Vocal Jazz, Blues, Soul>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Tolga Trio - Point Of View (2011) [MP3|320 kbps] <Gypsy Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:1D53625F20AE65AACD3405396A2367B83243C2F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ Various Artists - Ten pianists, Ten colors (2007) [FLAC|Lossless]<Post-Bop, Pian
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ VA - Electro Summer Party Vol. 2 (2011) [MP3|320 kbps]<House, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:B199660C0C28069682A4DE4BC7EC4516D38A1255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ VA - Best-Of-Ka NRJ Лето 50/50 (2011) [MP3|256 kbps]<Pop, Club>
 ```bash
 magnet:?xt=urn:btih:D0A7100D79202EFC3618F1DA370F1162B0BDEC65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE56A211AC9F6DFD817E6B5B4D4E40F3DD3C2A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Disk 1
 ```bash
 magnet:?xt=urn:btih:74C72A6080D89EDA9D150D7C76233ADE4ADB1758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ VA - Dance Energy 4 (2011)
 ```bash
 magnet:?xt=urn:btih:0C919597B91605CF5178DCE245CDF4892A111327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:870D12571650B92229B064E5942B1E0967BBE39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ VA - Lounge Boutique (2011) [MP3|320 kbps]<Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:5C94525A7EBBFDD64AE2D5FC689280E9D4EC8E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +529,7 @@ BBC: Мир природы: Мегаполис / Natural World. Metropolis (1998
 ```bash
 magnet:?xt=urn:btih:E388232A5CD96546390F6316897610515FC363D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +563,7 @@ VA - Ibiza Summer Night (2011) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:92BBEA5E2014D21C82B74FC5C7B03BAE71DEEFB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +597,7 @@ Yellowjackets - Timeline (2011) [MP3|320 kbps]<Fusion, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:36851EAF81AB10AF5E994EF74576D6EDC1CE077E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +630,7 @@ VA - Jazz For Meditation (2007) [FLAC|Lossless]<Jazz, Smooth Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ Tomorrow (Silverchair)(   Читать дальше...   )Жанр: Обучаю
 ```bash
 magnet:?xt=urn:btih:797FE64BD079BE69DB974D03930A92437A8B0F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B98696D2C9535727802E2697A8595754149DE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41124CC6FF472490C4C42A1574B82DCBF18750D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA623417C1AE9046E93644E1FB1B0A62DECE578B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

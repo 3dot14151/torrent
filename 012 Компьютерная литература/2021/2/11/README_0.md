@@ -21,8 +21,7 @@ javascript — это язык программирования для веб-с
 ```bash
 magnet:?xt=urn:btih:86D153E663E9341D359FC3FDB62E95A1CF269413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

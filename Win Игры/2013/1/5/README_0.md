@@ -19,8 +19,7 @@ Grim Tales 4: The Stone Queen Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:7F3BE142DDD3E92846C19BFA9ADDD8DC9F1E830B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cursed Fates: The Headless Horseman Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:EC6EED81A418D7C172BFDFD7E8F647210142CC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Quantum Conundrum [Ru/En] (Repack/1.0.8623.0/2 DLC) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:8F9E2E011C8B966DB965EBD834F304FA6EDE7AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25F6C4755C1A5EFB00AA22116F5C202360BF9418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Warlock: Master of the Arcane - стратегическая игра в фан�
 ```bash
 magnet:?xt=urn:btih:840A017014F3261A4955F2DF2E64A8C1AF5567B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Doom 3 BFG Edition - это обновленная версия культово
 ```bash
 magnet:?xt=urn:btih:61F6281A73DCB47377A8AFB6CD240880F12D8E20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Pure [Ru/En] (RePack) 2008 l R.G. Games
 ```bash
 magnet:?xt=urn:btih:C27A33DD3EB75034C9EF68ADA0DF3B7BE2F9AA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ I Am Alive [Ru/En] (Lossless Repack/1.01) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:241D0F50F151ED9E73FA12DBBA71D5AFE08BE532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ I Am Alive [Ru/En] (RePack/1.01) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:BF13E17D621C276FB9B19044C9ACD5CB62DE1B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Worms Revolution – продолжение знаменитой серии ар
 ```bash
 magnet:?xt=urn:btih:120F015D4AFE4327C7AE7238FE72F715316C7BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Doom 3 BFG Edition [Ru] (RePack/1.0.0.1u1) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:34E1A870DAE2B0FDE6C4D5DD1786BB46FEDFAE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

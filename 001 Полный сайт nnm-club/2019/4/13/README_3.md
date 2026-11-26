@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B0E4B3493840DAD35BBA210EBCA65FBBE6B764F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A05025BFB5F98D488E5F5A3E4BBF9C4E9718F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:895A8BCF0C82538DF337EF0DE48E8C5B17B56208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:1DC475781322EB38293B5FAA9E44754FD76C9B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Gegege no Kitarou (2018) | Китаро из леса Гегеге [ТВ-6] [201
 ```bash
 magnet:?xt=urn:btih:003D4ABAF36BCECA8AA01EA246FEF3BE3B415EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F17D8161E7A7D819615540EDCCCB142D68CCD9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Kimi no Suizou wo Tabetai | Kimi no Suizou o Tabetai | I Want to Eat Your Pancre
 ```bash
 magnet:?xt=urn:btih:16E7E3BBCAC5822161053069DFA5046CB12E6B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1EAA026A6DBF40AEABCF84227DC3D6DE7A6D4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C2679976021A08CB3BCE5B3CD5182649AF02F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Test Drive Unlimited 2 перенесет вас на два курортных 
 ```bash
 magnet:?xt=urn:btih:AFD20E44B7A16B2B317E60F0B73D73040CFDB93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Microsoft Office 2007 предоставляет удобные и просты�
 ```bash
 magnet:?xt=urn:btih:AF308E2B8917E7C91EC4270DF772A134C3297D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Adobe Photoshop CC — многофункциональный графическ
 ```bash
 magnet:?xt=urn:btih:2F0AA4DD86DBFDCD03FE48D0F0A7E6F5683473F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Warcraft II (1999) [Multi] (2.02v4) License GOG [Battle.net Edition]
 ```bash
 magnet:?xt=urn:btih:E5749B6FA5437D3C97C97546F377D9A82A6DD579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Sword Art Online: Alicization | Sword Art Online: Alicization | Мастера �
 ```bash
 magnet:?xt=urn:btih:90498B25801E420E4EA90630C535564564B1E959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Armello сочетает три стиля игры: карточную такт
 ```bash
 magnet:?xt=urn:btih:4F46E629D793FB94C499CB60AE3BB01559402569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9459C17429917B5A0DAD42B02825FAD4CB6ADBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Subnautica - это ролевая игра от создателей Natural Se
 ```bash
 magnet:?xt=urn:btih:1400008738BEB45BF774B436FEDDC7CD86F0028C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ Seven: The Days Long Gone - изометрическая ролевая игра
 ```bash
 magnet:?xt=urn:btih:397AF4015CEC14DBF671117A31E7E7DDE4939835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23F55474D80EFAEE54EDD4688F0B9009844A3001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:439F80B2675C6FE07D669EE8295A1D805DA8067D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +520,7 @@ Civilization VI предлагает множество новых способ�
 ```bash
 magnet:?xt=urn:btih:4538A750BB380061E9EBE6250181B0C23F3C07C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +546,7 @@ NAVITEL® выпускает новую версию Навител Навига
 ```bash
 magnet:?xt=urn:btih:59409628AFCADC865153AFDE786DA0F31B816F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

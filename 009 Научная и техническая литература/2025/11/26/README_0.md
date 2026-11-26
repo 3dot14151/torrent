@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A518D53F9E32D3D0546553EFF06CC2B8D89FFD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D675E006A5240F4B900DB2EC25A175761DA32B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ J.E. Goodman, J. O’Rourke, C.D. Tóth | Handbook of Discrete and Computational
 ```bash
 magnet:?xt=urn:btih:09BD0A56C6B3DC094BC776B03662D2B1A39715A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64DA2183BBA7CB89689E9206C4EF8545CD449784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B282AC1915128B5EDBCC860F4A9A3EF0383F46E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Trance Top 239 (2014) [MP3|320 кб/с]<Progressive, Trance, House>
 ```bash
 magnet:?xt=urn:btih:383A1CE8B283FF24C56F0A6E1C4406623E3DE0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ulterior Motive – The Fourth Wall (2014) (Album Sampler) [MP3|320 кб/с]<Dru
 ```bash
 magnet:?xt=urn:btih:3ABF6BA0E82734E171C1F363738B0C960079A03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Metrik - Human Again (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1927A2A3B43D90888AABFAA3B02FB352943446A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Light Alloy – мультимедийный плеер для ОС Windows. П�
 ```bash
 magnet:?xt=urn:btih:8FCD9BCCB58D71C62F848242886D4276F9F101BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Machine Code - Velocity (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1A9BAEB1596F9C8681695563004B7D58A4308A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Calvertron & Downlink - Immortal (2014) EP [MP3|320 кб/с]<Drumstep, Dubstep, 
 ```bash
 magnet:?xt=urn:btih:984336ED0C2A2FD7B0D7FCDF2ACF54BB08E5A9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ Hank Jones & The Great Jazz Trio - Last Recording (2010) [FLAC|Lossless]<Cool, P
 ```bash
 magnet:?xt=urn:btih:F6B201B4FEE9F6A78D4477D454DE7C205A5BA494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A2A0149A8BFAEA6406E5211EB6B8F25BA22A6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ Fantastical for Mac 1.3.16 [Multi]
 ```bash
 magnet:?xt=urn:btih:926E3F9ACEEC8FA4CAD2E8F90793DE8CAA57CBCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A045503A48C5E477358E71190F5B6AC7F8BAB646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ Various Artists - SHOGUN AUDIO #BEATPORTDECADE DRUM & BASS (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:D0AE945A56734CC8A8AB6B1EC337D6466767C22B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D9FAA5A93E636EE51DAFA543EFEF581DDC73B5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ Alberto Rionda's Alquimia - Alquimia (2014) [FLAC|Lossless]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:B5611C4F70DE1794526CC1B2BC03779D1FD28D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9F015619FAB1EE9E8EF46AD9062785DC905240C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ VA - Drum and Bass Massive (2012-2014) [MP3|256-320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:4D68385CD83F7ED288F4E258AFE668F1B2BCFA38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ VA - A State of Trance #BeatportDecade Trance (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:61705CAC174126095AB79D71330445D29DADFD6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ X-Drive - Get Your Rock On (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0A970FEAD47A90DE04EF4D21EA1EDC2F0141E663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64C53B3BF9A8DA80108617B2C5B40F0F88C6DEED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93B6A47D4F0223C7B9A0A99B7C77C04C0ECE19B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D815E8D9527576DB011049EA930826B70CF712C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ The Beegie Adair Trio Live - The Real Thing (2012) [FLAC|Lossless]<Piano Jazz, L
 ```bash
 magnet:?xt=urn:btih:8EB6315C8D9C5CC5D0CC68453CEAC800D80C9A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6344446E19E9B8BF629F03D0959DAD084A6DA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +691,7 @@ VA - Lounge Exotica Vol 1 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Jazz>
 ```bash
 magnet:?xt=urn:btih:B61FF621C1F698512EFA82246E5993C33306936F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ Myrkur - Myrkur (2014) EP [MP3|320 кб/с]<Atmospheric Black Metal, Ambient, Fe
 ```bash
 magnet:?xt=urn:btih:EBD22B51A99133C65526CF4495701249F51A73F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ CG Bros. - Жестокий Мир (2013) [MP3|320 кб/с]<Alternative, Pop-Pun
 ```bash
 magnet:?xt=urn:btih:D1937EC7A0B5E39D34FD40EACEA90DFFD2CB67D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

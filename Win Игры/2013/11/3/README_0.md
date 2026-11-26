@@ -19,8 +19,7 @@ The Mirror Mysteries 2: Forgotten Kingdoms / Тайны зеркала. Забы
 ```bash
 magnet:?xt=urn:btih:79D538EA8E028E4B20072705C7BE6F58C014C493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Queens Tales: The Beast and the Nightingale Collector's Edition / Сказки �
 ```bash
 magnet:?xt=urn:btih:048DA00DAA349291717F4E124A145F1DF25F6455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nevertales: The Beauty Within Collector's Edition / Несказки: Красо
 ```bash
 magnet:?xt=urn:btih:4C59EFE513503CF927F414A9E57A17F68633D8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Monster Truck Destruction - гоняй,  разрушай и уничтожай!
 ```bash
 magnet:?xt=urn:btih:8BE398077B328602DFA7E8D29777198759D47ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0CDB53151E6C1BCD07254CD215DD72D9CA99732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ James Cameron's Avatar: The Game (2009) [Ru/En] (1.02.00) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0F6495043FCD5E69185921DCE577F047B1D8143F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

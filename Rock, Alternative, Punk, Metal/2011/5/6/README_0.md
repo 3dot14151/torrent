@@ -27,8 +27,7 @@ Night Mistress - The Back Of Beyond (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:558F44E1D11E1706AF57248AD2F08EC9CB05E3E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Roger Waters - Madrid Experimento (LIVE) (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:684E79A7B103850CB0703A4F97521FFAFE29E0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Bon Jovi - Collection of the Best Hits Bon Jovi [4CD]  (2011) [MP3|320 kbps]<Roc
 ```bash
 magnet:?xt=urn:btih:5ADCCBCBA8FA728B72C23631F29A8DFA9690CBE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ CD1: (01:10:03)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ A5. The Damage Is Done (4:19)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:C2C7F2F79224EF97D0AB0E6A2E4AB75FBE621D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

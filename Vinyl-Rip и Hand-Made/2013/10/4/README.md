@@ -20,8 +20,7 @@ The Knack – My Sharona (1979) [APE 2.0 24/96|tracks (Vinyl-Rip)]<New Wave>
 ```bash
 magnet:?xt=urn:btih:D7DC408A8EB9F521C11C5A7629F4DCFA27BA83F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ B5.  Don't Break My Heart (The Age Of Love)  :: 04:18Жанр: Eurodance, Synth-
 ```bash
 magnet:?xt=urn:btih:6048634B6B87D3E744AF0F3723F898DC58C2A8AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

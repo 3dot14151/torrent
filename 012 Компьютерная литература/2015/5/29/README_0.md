@@ -19,8 +19,7 @@ ABBYY FineReader является одной из лучших программ 
 ```bash
 magnet:?xt=urn:btih:A7B6556F6FCC2B585999281993732FFDE6B5EB1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Scardust - Souls (2025) [FLAC|Lossless|image + .cue] <Progressive Metal, Symphon
 ```bash
 magnet:?xt=urn:btih:A0B1666EFE69F2F552C0349742E12CAB287F0643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ascold Flow | Божественность вызывает привыкание
 ```bash
 magnet:?xt=urn:btih:47641EDC1F57942710722DFA984674EA09228BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ascold Flow | Божественность вызывает привыкание
 ```bash
 magnet:?xt=urn:btih:7087FD4803EC4F0033987A2EFDC3AAFE72E3F254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69C619F8BFB0C66A150580C0EAAFD76E5DE2B266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Nothing But... Trancetopia, Vol. 29 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7F69739E468404F8D8FDABC54BB0922BA1CDFD65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - Ori Uplift - Uplifting Only Episode 652 (2025) [MP3|320 Kbps] <Trance, Upli
 ```bash
 magnet:?xt=urn:btih:04C0E65EFEE4F75EFA20892EDE9E1BD9225D3309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Armin van Buuren - A State Of Trance 1237 (2025) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:CC4998A2110303CB51A4E20C0A2119E62B9EC16B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Rimini Summer Party, Vol. 2 (2025) [MP3|320 Kbps] <Progressive House, Melod
 ```bash
 magnet:?xt=urn:btih:968E3E6BC254531B9A6D3BB9C1E4C917A99B047B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDC0014E6BE0B1EA7E57F522BA01FDE4E0D1E844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Liv Sin - Close Your Eyes (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 ```bash
 magnet:?xt=urn:btih:91FE318D173B649604338D22ABB6644EBA678DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FF74A9906BAC551D95DF42CFDA45C166B9FB7E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Ascold Flow | Божественность вызывает привыкание
 ```bash
 magnet:?xt=urn:btih:632378190F3B3C743146E5FF1E1AD9A55BE545F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Ascold Flow | Божественность вызывает привыкание
 ```bash
 magnet:?xt=urn:btih:3EB22980ED1C8B3E79BA0AEAC10BF3F1F14DEBDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 4)
 ```bash
 magnet:?xt=urn:btih:CDBA2A505D62AAB86092A0E2CCC3BE14F7865D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 5)
 ```bash
 magnet:?xt=urn:btih:A61C3FADECB1ADA178101D474D8382CA18DCBC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 6)
 ```bash
 magnet:?xt=urn:btih:5F504A6DC9CF0F0386CE03ECCFFE9A71E0F1620B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 7)
 ```bash
 magnet:?xt=urn:btih:0F11F75193C6D7C7121849A62CC82C0CCA087BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 8)
 ```bash
 magnet:?xt=urn:btih:B4CB936709086BA5E02B24CDD642FB5C4171E925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 9)
 ```bash
 magnet:?xt=urn:btih:D9CC13F08B98245049291268A15004D9A95D7A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 10
 ```bash
 magnet:?xt=urn:btih:D1F4C78CEAADC72E452D7CC5A2BD03E5A43199A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ Ascold Flow | Мертвецкий круиз (Книга 4). Бастион (20
 ```bash
 magnet:?xt=urn:btih:DAA495A81FF3EB68F1D2AFFCA771F81091E4AB41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ Ascold Flow | Мертвецкий круиз (Книга 5). Маршируя �
 ```bash
 magnet:?xt=urn:btih:45185AB2B7CEA4301E24915DDCB8167906E9D5C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ Ascold Flow | Вторжение (Книга 5). Академия магоуби
 ```bash
 magnet:?xt=urn:btih:3AEF83E6046F3F7E22B0FFDD1D3836FB214A2283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ Ascold Flow | Релокант в другой мир (Книга 3). #RealRPG. 
 ```bash
 magnet:?xt=urn:btih:290BAB634A3287B97E34E97F8563C3446BDD4D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ Ascold Flow | Релокант в другой мир (Книга 4). #RealRPG. 
 ```bash
 magnet:?xt=urn:btih:2662F2126756C35E84BC2F074C66B6775213CECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ Ascold Flow | Релокант в другой мир (Книга 5). #RealRPG. 
 ```bash
 magnet:?xt=urn:btih:55878A70177E13B0FC4774D94E5CAD0D861790A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

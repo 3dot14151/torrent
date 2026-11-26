@@ -28,8 +28,7 @@ Esqarial - Inheritance (2003) [APE|Lossless]<Technical Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:3EB09613CEFD3A139F86B6DF5521260FDD5180B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25D3723FA14A54FEA282F6847F46E8A3E3EFA6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ A Shattered Dream - 4-D Society & Other Nocturnal Emissions (2009) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:3454B0C78D5E19CD0C6B64874D2366D5EAD1DF11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Esqarial - Discoveries (2001) [FLAC|Lossless]<Technical Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:56B1E11DC36EFA80FB17C79BB2871C5C55BDD60F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - Progressive In Motion - Vol.175 (2014) [MP3|320 кб/с]<Progressive Trance
 ```bash
 magnet:?xt=urn:btih:5D8BC228D0886D3C30C1F2384C80FC40B40680CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Rino Da Silva - 1965 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:579B526E2987F108EDC41529294E6898D7D11A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA44245EEB3EE857C1B6041ED41214F310B153C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ SiYuDer - Open Your Eyes (2014) [MP3|320 кб/с]<Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:5A8AA36C650C3E85AF60BE6ED5FA83A9C501976D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Jed Sparks - It Is What It Is (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:DE7B2E61CCDF7019D19C3C2E5C5F94D4AA45514B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Vitaly Otto - Exclusive mix for the magazine ‘7MiNUTES’ (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:4223F5C4A61B653728993A6D18ECF4F917C21354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45D70F26C81381F16E3E8880B0316B87B24FF117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +411,7 @@ VA - Progressive In Motion - Vol.176 (2014) [MP3|320 кб/с]<Progressive Trance
 ```bash
 magnet:?xt=urn:btih:718024E0EED0809DFEFA0B588F960A595178FF79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +444,7 @@ A Perpetual Dying Mirror - Towards A Constellation View (2000) [FLAC|Lossless]<D
 ```bash
 magnet:?xt=urn:btih:CAF88D45AFF283EF6A44E8CBDF79190B0CC4BEC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +478,7 @@ Ronnie Laas - Lowdown (2007) [MP3|320 кб/с]<Chicago Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:E7AE7FAAD8DACEA0E12DA14B52E1AAB703C0EA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +505,7 @@ Dr. Ozi - Spectra (2014) EP [MP3|320 кб/с]<Dubstep, Drumstep, Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:BCC9106BE5DF2B5B36FA18288C2EAAF6C497696C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8532833EC25445B93107C3CCE0CCD314D880208F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEE75E147BCAA2F263E33C60CC6F2529C0788DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +595,7 @@ Chris Standring - Blue Bolero (2010) [FLAC|Lossless]<Crossover Jazz, Smooth Jazz
 ```bash
 magnet:?xt=urn:btih:C3B2E996530612DAB504247A997D35716A81F492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +654,7 @@ Al Cohn - Standards Of Excellence & Nonpareil (1998) [FLAC|Lossless]<Jazz, Bop, 
 ```bash
 magnet:?xt=urn:btih:D1D797D8FFBB198FA297ED8B62F7B73442E32AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA6147ACF3DFDE473669CD14436B40BAA2207D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +713,7 @@ The Glorious Sons - The Union (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:78CEEA8B86DFD564255E35D8F346A9B912EA385A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +738,7 @@ Bigasoft Total Video Converter - мощный видеоконвертер, по
 ```bash
 magnet:?xt=urn:btih:2B1A73E0F2FE93069E722F67B893EB214B5228E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +771,7 @@ VA - Deep & Dark Dubstep Vol.7 (2014) [MP3|320 кб/с]<Deep Dubstep, Dark Dubst
 ```bash
 magnet:?xt=urn:btih:A4511CAFD8646CF467AE83BE5B473CACC35FAF69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -830,8 +805,7 @@ Exotype - Exotype (2014) [MP3|320 кб/с]<Post-Hardcore, Metalcore, Electronic>
 ```bash
 magnet:?xt=urn:btih:BD8C410FEAFD32F50BA591F947D7EE5D1FC74851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

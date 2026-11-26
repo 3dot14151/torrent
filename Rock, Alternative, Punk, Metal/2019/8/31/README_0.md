@@ -22,8 +22,7 @@ Nirvana - Live and Loud (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:E88524CFD505A4FBFEAF5AD8FFC7B5D5D38A291A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

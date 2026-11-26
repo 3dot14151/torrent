@@ -19,8 +19,7 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 ```bash
 magnet:?xt=urn:btih:BC630C31221ACA0556A9A9B95349BFA6EDB6D4DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

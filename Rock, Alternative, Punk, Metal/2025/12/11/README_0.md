@@ -22,8 +22,7 @@ Stay Away - Нездоровый образ мыслей (2025) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:891514F3B4D53EC741DC75586A03C0F483D33A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50462B4633D2642CD875059ABAB09ACDC425F108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AE3A2269DB44C5BC030E9AAEB42E47A71E30707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Demotional - New Horizons (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic De
 ```bash
 magnet:?xt=urn:btih:B0C978DF742DC8494D72510C688C973262ACED8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Stormsorrow - The Blood Red Horizon (2025) [MP3|320 Kbps] <MDM>
 ```bash
 magnet:?xt=urn:btih:9B815A53E45794E83DF90538AB2DE3BDEED9DC0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sakis Tolis - Everything Comes To An End (2025) [MP3|320 Kbps] <Gothic Metal, Da
 ```bash
 magnet:?xt=urn:btih:C4416347C230D86A831320000DBC2DE9BDE4C4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E91A41E8923E2BC926ADA62C40223AB86C3CD2EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

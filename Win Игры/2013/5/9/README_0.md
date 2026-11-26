@@ -21,8 +21,7 @@ Forbidden Secrets: Alien Town / Запретные тайны: Чужой гор
 ```bash
 magnet:?xt=urn:btih:4AE70783C32210EA6EB6EC962FF94D13871DCDC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Timeless: The Forgotten Town. Collector's Edition / Вне времени. За�
 ```bash
 magnet:?xt=urn:btih:DAF6F6E6ED33B205EEE87AB11F89C9760DA0958D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Fierce Tales: The Dog's Heart. Collector's Edition / Жестокие истор
 ```bash
 magnet:?xt=urn:btih:8B8012EFFAEC9FDD72E09448DCED1B0CB13B0689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Margrave: The Curse of the Severed Heart / Тайны семьи Маргрей�
 ```bash
 magnet:?xt=urn:btih:D6BA97DC68A9B4DE580106A8222293FCF836A408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Haunted Legends 3: The Undertaker Collector's Edition / Легенды о при
 ```bash
 magnet:?xt=urn:btih:831D5F4F52D14D71FD645663EB6903B589E24CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Enigma Agency: The Case of Shadows Collector's Edition / Тайное Агент
 ```bash
 magnet:?xt=urn:btih:D1F61B559372BB7B2554B64B7E234D8C3318D5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Project Moonwalk - игра для любителей космических п�
 ```bash
 magnet:?xt=urn:btih:9AA7E5FFE25257D25E799F0304BE5ED0CBBA3678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Hallowed Legends: Samhain Collector’s Edition / Священные леген�
 ```bash
 magnet:?xt=urn:btih:AE567A05CE0719094F52CDF6C90478A219832C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Mini Motor Racing – великолепные гонки на очень кра
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Ancient Rome 2 / Древний Рим 2 (2013) [Ru] RePack adguard
 ```bash
 magnet:?xt=urn:btih:E74D213D035F1DDECE16F1BCADC3D685AE7C85B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Viking Brothers / Братья Викинги (2013) [Ru] RePack adguard
 ```bash
 magnet:?xt=urn:btih:2C26BD661632D47C70C3B8039BB19A923D5F15B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Little Racers STREET - увлекательные аркадные гонки с
 ```bash
 magnet:?xt=urn:btih:78630EC3C5F9F4BC90D65AD8D08699335E596691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Brink (2011) [Ru/En] (Update 12/3 DLC) RePack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:4E10680D6101FA0434889618E58B15FAD2253505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

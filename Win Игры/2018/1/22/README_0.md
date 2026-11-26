@@ -19,8 +19,7 @@ Queen's Quest 2: Stories of Forgotten Past / Королевский квест 2
 ```bash
 magnet:?xt=urn:btih:0B20AC67DF7D9D47664C1788DF1F8B8CB7296A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ghost Files: The Face of Guilt /  Дело призрака: Лики вины (
 ```bash
 magnet:?xt=urn:btih:398473299C0DABE57A6E398BE770B3B2C6B8999C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Queen's Quest 3: The End of Dawn /  Королевский квест 3: Кон�
 ```bash
 magnet:?xt=urn:btih:084363495245F87EB4BBAF6C5068BD7556542474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Panacea: Last Will - игра в жанре Survival Horror, выдержанн�
 ```bash
 magnet:?xt=urn:btih:2103843B24590E33539018261891FF342BA699AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Fall of Lazarus (2017) [En/Es] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:652315754A91104AB03B0EEE285B6C82CD879F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hidden Dragon - 2.5D платформенный экшн в духе Ninja Gaide
 ```bash
 magnet:?xt=urn:btih:5CAB6C1D82F9D8BD63787DFE69859628D844B8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79.d2f5cadd/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:7A8B7B953A18903BDDE5CCFD35758B88F324D032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Panacea: Last Will - игра в жанре Survival Horror, выдержанн�
 ```bash
 magnet:?xt=urn:btih:8DCD6A78B54FD72A1121749D53BA4D828A8E6AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ PLAY WITH ME (2018) [En/Pl] (1.20.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:13AC229B56061C48818BEB92CC134964E217F121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Rusty Lake Paradise (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8368822E07725EF5091F120AF5769964845DF630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

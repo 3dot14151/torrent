@@ -19,8 +19,7 @@ Lingvist: эффективное изучение языков v2.75.9 [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:27E9B9C5E691D5B6DDC35F0DE0DFC2FE730F1C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Lowborn - Collection One (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:80F3548B27E0E78657BA71F72D51C4524CF98CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blazej Malinowski - Entity (2019) Semantica Records [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:FC320DD13E0E28F4332BA32F3318F81306D598D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Charles McPherson Group - Follow The Bouncing Ball (1989) Discovery Records 
 ```bash
 magnet:?xt=urn:btih:393F290082BAC04EAB42F699904B8C1D454B50D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Eluize - Confide (2019) Craigie Knowes [FLAC|Lossless|WEB-DL|tracks] <House, Lef
 ```bash
 magnet:?xt=urn:btih:F152AACD41EA1222311BB6ED5ACDF0EF989495F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A Caustic Fate - Chromatic (2019) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:BD11F8B28948FF910647CFC2113719DB3364E646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ American Bombshell - Tattood ‘N Bruised (2019) [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:CCE3C6849F8E75303352E6045D3FEE73E0D43D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ A4 One For Sorrow(   Читать дальше...   )Жанр: Europop, Euro Hou
 ```bash
 magnet:?xt=urn:btih:23CA163EA6D6E4DDC4AD2742BFB805C6D61DD4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Polly Gibbons - All I Can Do (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:D4DBEE651018628E2222EA6EC93E67947CE82153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80C6B88D939E2A73C615A06CC2DC5FF207972D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ ValhallaDelay - классическая и современная систем�
 ```bash
 magnet:?xt=urn:btih:F32BE074504ADE5CA3D5CFDF76101D77F87744B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A025C7098020AEA6CF34613304CF890887EA8172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Hardline - Life (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EDF8EB8E36B25A715500079720BA92321B8BD9A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Not Drowning, Waving - Claim (серия "Другие восьмидесяты�
 ```bash
 magnet:?xt=urn:btih:E25C842DC017E64F6B2C590D27CA08B0C82EA5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78084A14852A325F0C26A34565B5537F49BFDBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:5D53B2BE80E5F132F4BD4D97F982D408DEE3F48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Bananarama - In Stereo (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:0B755F23979392C13570B9F8D9F5E470D276BD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ VA - Planet Dance Radio: More Music (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:1B30BB97584C11C0769B935E524B485EBC94C8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Ludovico Einaudi - Elements (The Remixes) (2016) Decca Records [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:19EDA66E286B4B1632ACA5207360FED726B82A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D979DF521EA354E77E978539913EE3D5DF4C9B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Bananarama - In Stereo (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:8E5D83D24F1B78F3055479694B906B8AA53287E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A01CA928B8D5900BDABC6422D08EDBE1277E89D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ Jean-Michel Blais - Dans ma main (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:E5552A0DF7331E918E10502349FC18811A18AD6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02B3BDC6AE3487E27BBC31FE1A83E818F5F3E657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ The Skys - Automatic Minds (2019) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:AC98051F3F938D97DE48B471F384B2D85C87819D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:ABA754DAF4E5E88A32CBE857972CE1AEB5C27F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ VA - Вечеринка у t.A.T.u. 2 (Unofficial) (2002) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:9E5ACB09D5B10FCFBACBD80ED5F62AAACF4FE447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

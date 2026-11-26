@@ -19,8 +19,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E40937409B66DC856175213C641F0E7FB9F049C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

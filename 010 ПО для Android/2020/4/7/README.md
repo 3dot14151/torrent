@@ -19,8 +19,7 @@ Snipback - Lifehacker smart voice recorder PRO HD 1.00 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0BFAEF93F5A5FFC1087F94AC86A3671639976348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Password Depot For Android 14.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:4DAE66EA8E131A9AFAE5D80975B13EA65AFD74C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

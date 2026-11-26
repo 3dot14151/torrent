@@ -21,8 +21,7 @@ Astra Linux Special Edition 1.7.7 UU1 [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:303C759DB0AA27A5484C9F29BBC134C0A6A390D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Astra Linux Special Edition 1.7.7 [amd64] 5xDVD
 ```bash
 magnet:?xt=urn:btih:EAA72E2FA7C0360786850F270C4EA5F8C2E52557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

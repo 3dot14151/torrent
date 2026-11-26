@@ -19,8 +19,7 @@ Final Cut 3: Homage / Последний дубль: Дань уважения (
 ```bash
 magnet:?xt=urn:btih:24A51E8BE759ADF84881647872A9495848B0E936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lords of Football — это совершенно новый спортивны�
 ```bash
 magnet:?xt=urn:btih:5AC482A36B471FF0F831B5567BFA5E850E722AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Scourge: Outbreak (2014) [Ru/En] (1.103/2dlc) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:E5F00D26126C0002D7AB8F98075A75990E122EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sanctum 2 (2013) [Ru/Multi] (1.1.25536/5dlc) SteamRip R.G. Origins [Complete Pac
 ```bash
 magnet:?xt=urn:btih:9BA6867F42A972FD79000CE43635244E4BCED4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ San Andreas Multiplayer (SA-MP) — бесплатная многопользо�
 ```bash
 magnet:?xt=urn:btih:925AD912E49381BEC3FC3105B7B43D0B7D146198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

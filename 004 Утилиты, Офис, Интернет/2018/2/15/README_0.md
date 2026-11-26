@@ -19,8 +19,7 @@ PIDKey 2.1.2  build 1017 Final Portable  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:06B41E9F1CB41582F4C2D229E05DF4ECE3D7D207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

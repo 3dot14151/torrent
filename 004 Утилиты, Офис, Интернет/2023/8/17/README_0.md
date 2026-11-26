@@ -19,8 +19,7 @@ MiniTool Partition Wizard Technician - мощный менеджер для ра
 ```bash
 magnet:?xt=urn:btih:1DB75D66E0836D1228961BAE26C265F5C5055D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blue Iris представляет собой профессиональное �
 ```bash
 magnet:?xt=urn:btih:B6DA5E909F6023126D1186DFB1A6A808E274DE89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EFB08E102A82210C0DAE11323AD4C260B1E4430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

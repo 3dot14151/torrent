@@ -22,8 +22,7 @@ Gorguts - Colored Sands (2013) [FLAC|Lossless|image + .cue] <Death Metal, Experi
 ```bash
 magnet:?xt=urn:btih:F2B151619573ED8DCFD087D190EF394C7AAD255A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ HELLRIPPER Джеймса МакБейна — одна из работ, кот�
 ```bash
 magnet:?xt=urn:btih:4BE2CEF7C2C483AD4D1DE58CF20AA461DDD250EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69EB494BBBA74E02B339865695C7D9CA73C4BD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tailgunner - Midnight Blitz (2026) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:60AAA9D7FEB1BA1D20272B2C538C04B4C1301656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Throwing Muses - Red Heaven (1992) [FLAC|Lossless|tracks + .cue] <Rock, Alternat
 ```bash
 magnet:?xt=urn:btih:142E97DB59ABABE20E0ACC4E2E1E3292EEDD6A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ross Wilson - Dark Side of the Man (1989) [FLAC|Lossless|image + .cue] <Pop Rock
 ```bash
 magnet:?xt=urn:btih:949836FAD407CA4626C139729A07D1FD914D2F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Flickerstick - Welcoming Home The Astronauts (2001) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:DFEE3E37483D0CB9F8E20C8796744FC8ABD347D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Flickerstick - Tarantula (2004) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:C1F53F838CA67E6014ACEC004CECFC941DF2BF23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - The Texas Chainsaw Massacre - The Album (2003) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:82B582B17F20B8603EFAD597382665410A654AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

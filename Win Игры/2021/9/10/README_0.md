@@ -19,8 +19,7 @@ The Rewinder (2021) [Multi] (1.26.5) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:79726AC04BCD455B379F37F28C12F91B59D35E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (7310529) License CODEX
 ```bash
 magnet:?xt=urn:btih:D058DB50879D90117674DDAA1995C4C1AD32D64B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dice Legacy (2021) [Ru/Multi] (7195733) License CODEX
 ```bash
 magnet:?xt=urn:btih:A362508DC22AA99C627B0381C250EE84DA2B0267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Artful Escape (2021) [Ru/Multi] (7272069) License CODEX
 ```bash
 magnet:?xt=urn:btih:3E6DED215DEC50265490940F2F4FEE1F1736D612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

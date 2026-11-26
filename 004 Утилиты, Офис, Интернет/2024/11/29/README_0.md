@@ -19,8 +19,7 @@ YT Saver Video Downloader & Converter 9.2.2 Portable by zeka.k [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CE9BE1128DDB5B5CF5BC28E3160736EF07365059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

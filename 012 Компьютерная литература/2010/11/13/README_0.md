@@ -23,8 +23,7 @@ Matt Perdeck/Мэтт Пердэк | ASP.NET Site Performance Secrets/ASP.NET С
 ```bash
 magnet:?xt=urn:btih:4243EFCD3163F56308E83E97C828EAE2798B4437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ WordPress является идеальной платформой для пуб
 ```bash
 magnet:?xt=urn:btih:DF5AA7ED09C53F6DA31B443703555A3B1A57C755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

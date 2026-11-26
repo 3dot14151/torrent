@@ -19,8 +19,7 @@ Grim Facade 11: Broken Sacrament / За гранью жестокости 11: Р
 ```bash
 magnet:?xt=urn:btih:9240CF172ED41899533E79D61DA446D0EB04305E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/dlc) License RELOADED [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:BA496CAF3B11B07247D0F59EE41CB8488F44DEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ G. Harvey | Excel 2013 All-in-One For Dummies / Excel 2013 для чайнико
 ```bash
 magnet:?xt=urn:btih:C24EB2BAF8D93895BACE7C7E51D36F3A2CC792BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

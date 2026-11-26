@@ -21,8 +21,7 @@ WinAudit Freeware 3.4.3 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6BC4308E0F66245262DA8D0C6B14F0C55308D879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Webcam Surveyor 3.9.2 Build 1212 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D8231560A38E4DCD1D16659C7940D9BF6DBA7F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

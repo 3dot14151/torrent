@@ -23,8 +23,7 @@ Street Racing Syndicate [Ru] (RePack) 2005 | tukash
 ```bash
 magnet:?xt=urn:btih:A95FBF1B98C216047D8AC3769B90A8BE8E509EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

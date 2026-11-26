@@ -28,8 +28,7 @@ Neil Young & Crazy Horse - Americana (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:42B1CB91928B78F2ABB0D6D93DF540FB14998F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Nasty Savage - 6 albums (1985 - 2004) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4F49BC1B9CBB30DCEC003915617D58E8C87E6151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

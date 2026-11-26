@@ -19,8 +19,7 @@ Ys: Memories of Celceta (2018) [Ru/Multi] (1.0.0.15) License GOG
 ```bash
 magnet:?xt=urn:btih:B081DC43E883200D589333DD62ACD397EC959E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death's Gambit: Afterlife — это новое и расширенное изд
 ```bash
 magnet:?xt=urn:btih:DC5249970571999BD5C4C0EB15D63282C520E4DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

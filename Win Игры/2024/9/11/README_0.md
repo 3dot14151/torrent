@@ -19,8 +19,7 @@ Son and Bone (2024) [En] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A997824330E1C3A94055CF29159E6DD460892244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Satisfactory - это игра от первого лица в открытом 
 ```bash
 magnet:?xt=urn:btih:6606D6E76B16778EF7707958B2E1DACB906E574B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ I Am Your Beast - это FPS в обертке триллера о мести, �
 ```bash
 magnet:?xt=urn:btih:F1592C527F6DCD206E139C15609CB14FB893D4AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

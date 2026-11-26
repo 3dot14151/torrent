@@ -19,8 +19,7 @@ Fall of the New Age / Закат новой эпохи (2013) [Ru] (1.1) Unoffic
 ```bash
 magnet:?xt=urn:btih:4E91B62CCBE28FD23F312A16DCC17C3734E2C73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Nation Red / Зомбилэнд (2009) [Ru/Multi] (1.00.1000) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4492F670510D5DEC90E0A82C8117FF03FC547B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Poöf vs The Cursed Kitty – сочетание жанров платформе
 ```bash
 magnet:?xt=urn:btih:A9CE61D84DED0E78BA814EBD676F0F18C43A13A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Enslaved: Odyssey to the West (2013) [Ru/En] (1.0 Upd1/4dlc) Repack z10yded [Pre
 ```bash
 magnet:?xt=urn:btih:69BD9A087A32E78227020B479ECF1E566DCDED14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

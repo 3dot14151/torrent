@@ -19,8 +19,7 @@ Debian Live GNU/Linux 9.1.0 + nonfree Stretch [amd64] 12xDVD
 ```bash
 magnet:?xt=urn:btih:1DD1A65ABD76F889C5B70ED815449E04EB133F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

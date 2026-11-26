@@ -19,8 +19,7 @@ Leonard Lobel, Andrew Brust | Programming Microsoft SQL Server 2012 [2012] [PDF]
 ```bash
 magnet:?xt=urn:btih:927AC0CE3DBC10B7066EC8ADDD387A17D059BFFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC98928E89CE02C110C060C952238B8A485A1A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

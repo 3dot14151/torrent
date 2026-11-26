@@ -19,8 +19,7 @@ Millidor - это стратегия с пошаговыми тактическ�
 ```bash
 magnet:?xt=urn:btih:06F7F9DE381A6C9498EF3149D691E135B33A9BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Remain (2016) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:583D39DDBCCE6610EB4C66925E493A42170A5F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

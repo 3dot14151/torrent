@@ -19,8 +19,7 @@ Red Dead Redemption - компьютерная игра в жанре action-adv
 ```bash
 magnet:?xt=urn:btih:FF4BA228BF124C48A9E1C65D3A21BE942B9BF36F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ House Builder (2021) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8551A0A10DA9AA601DCFF77452A657F8849E1383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C13FFDDE0DA7201F98F6F59171EF2AA76088527D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Scene Tenoke [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:E867D091DD076CBCE9D355531ADD7A4535B7CF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Call to Arms - Gates of Hell: Ostfront – стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:4E1AB26E5ACDA27ADF9D28A8C620D67E1238216E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (build 16275683) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:045562CC6D7878D54A59F696A5CF26CA04365F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Barbie Project Friendship (2024) [Multi] (1.16) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:578E1F97B9E3CFFB0FE640F0D6C2F0C0AB4E30AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack FitGirl [Complet
 ```bash
 magnet:?xt=urn:btih:19524C549F28BDF22EEE7189698D11EF0AC544C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Monster High Skulltimate Secrets (2024) [Multi] (1.12) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C96E3FD1F140892316C3ACD0756499CFA9139379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Totally Spies! - Cyber Mission (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8466F177F35B2134CC0A9D9F8EFD66D1B1C45230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ CRUELTY – что может быть лучше ужаса от японски
 ```bash
 magnet:?xt=urn:btih:3563A188765744BC41414B50F6D46B45FD9340FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:8514A3255D0DF1552C1E0D09A00EE81C17FDE4E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Alchemist: The Potion Monger – это смесь причудливой гол
 ```bash
 magnet:?xt=urn:btih:77CE9A3ED05C76311D2FB6F3E6CA718A9FA06DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2073C0E5ED61170903AAF71D74F37CCE432C6952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:16568D813DBFD22062B152BB0D8287FE0272325C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:67BC9814DD6CB2A0B0A1116DFAC7AB70F5037354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:206FC2CFB506505FE729714CBB55C7EE66BDF9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

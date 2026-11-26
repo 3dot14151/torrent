@@ -28,8 +28,7 @@ Lado 2:
 ```bash
 magnet:?xt=urn:btih:5470A30CE76D64AAE62431DF8D66E288A8C80E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ C4. Электрический пес (3:12)(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:1BCC212C7B6C9CD38316EABF13A0C0A990F34F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ VPN Thailand: VPN в Тайланде 1.85 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:553A6E39A34E471889079364D3A5064AACD07655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

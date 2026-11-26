@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:14CD331DE02F0A34D31F91870CF37E4F182C6CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Topaz ReStyle расширяет простор для творческих во
 ```bash
 magnet:?xt=urn:btih:7694AFA487144B1A7275C936E887462C9B18C8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Costume Quest — это приключение на тему Хеллоуина
 ```bash
 magnet:?xt=urn:btih:3A860E292779C527BCE07C6D1A2E342B374ABA57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Rouxbe | Cooking School / Кулинарная школа Rouxbe (2014) WEBRip [
 ```bash
 magnet:?xt=urn:btih:6CB156C688FF41B9292C61893846EC85F6C19ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Adobe Muse СС – визуальный конструктор сайтов, ф
 ```bash
 magnet:?xt=urn:btih:1F3363F9BFE090327051359EBD6A87934CA05443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Comfy Partition Recovery - предназначена для восстанов�
 ```bash
 magnet:?xt=urn:btih:BB34C99974D6DE5C9EBB95921CCB80FE3015E797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69D8693B662842AED660CE8A4A22D7A23CF7567B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ THE ROCK LOCKER.(   Читать дальше...   )Формат: OBW, Midi
 ```bash
 magnet:?xt=urn:btih:E7F0893882EBF657D491818FDA9D9F17FD5BDE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C623A9FF2D9B3C406DBECD1F1090356BD973272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:505E956807EDA1E6C6BEDA27F2E684A454A4EE0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:615FAC8915BA78C1D5AA2ECB944A8630ED746B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Rail Wars! | Железнодорожные войны! [2014, TV, 12 эп.] BDr
 ```bash
 magnet:?xt=urn:btih:BF0381471A1C045622FAD49C79B2B99F3DADC137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F2B6433E355928FB4FAF817D1110C6D69F8263C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ AC/DC - 16 Albums (1976-1995) Remasters /2003,  Epic, Columbia/ [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D15A1E75E3049FFCE71C937B17CB0F4D2DF89626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16CC82CBE8FF500E1672F924E0A575901EBD8F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ AirServer является самым передовым AirPlay/AirTunes при
 ```bash
 magnet:?xt=urn:btih:4EBF45556991D57A95A88C863F9462355E37932C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ Starbound (2013) [Ru] (beta 668) Repack Dia team
 ```bash
 magnet:?xt=urn:btih:75DAE02309C34F14434ED5BE0FA9B8DB48E72561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2ED65AB18B6CF507D0A1E421B67E1C6A0E01DE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84BCAC2EA2C19FDB05C384AD280DD16637B4E7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ Starpoint Gemini 2 (2014) [Ru/Multi] (1.3002/dlc) License PROPHET [Secrets of Ae
 ```bash
 magnet:?xt=urn:btih:24EC1B0C0B0EA3777D7F369A867E35B9D7968FAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7219E2189024CAA788FBE5A738E69A196A6CC159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Pneuma: Breath of Life – игра для настоящих любителей
 ```bash
 magnet:?xt=urn:btih:431A698527FA7A9F7E87A95F012E672DFFE5F80C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2EE276AA0560EC48C33A2DEA58A77465FC23D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ Crysis 2 (2011) [Ru/En] (1.9) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:315E09B83C33ECAA0BBAF8E424F97470E937A17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

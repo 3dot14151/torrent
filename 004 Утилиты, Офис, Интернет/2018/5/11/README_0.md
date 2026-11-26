@@ -19,8 +19,7 @@ Insofta 3D Text Commander - самая удобная программа для 
 ```bash
 magnet:?xt=urn:btih:F5D128F91B10498803DD3C70841FDDDEC3DA892F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ xStarter Web Pilot 1.9.3.84 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:ACFDD36F56308D848A929144E7EF0231F41F7BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

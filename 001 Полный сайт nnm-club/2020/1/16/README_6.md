@@ -22,8 +22,7 @@ Aspid - Musa (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8BAC94469D5203C87C0C04AEDE6997E0A28C3582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Affinity Publisher Beta 1.8.0.531 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E3A2FA6E874A9F034F454295E09604EDD4BD83AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Envenomed - Evil Unseen (2014) [FLAC|Lossless|image + .cue] <Melodic Thrash Meta
 ```bash
 magnet:?xt=urn:btih:B99D3954FA1798352080F8E3FEC2BF9F90256AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Understand - это инструмент статического анализа
 ```bash
 magnet:?xt=urn:btih:E4693177E82B5ED552AECCBB276B3172A6E50B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ beaTunes анализирует музыкальные композиции, о�
 ```bash
 magnet:?xt=urn:btih:4C8C1AC7EAD76AFBE16D8A90A26AFADA5BBAF63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2A3F680377E201ABA2A20FE1ED053F51F51E5DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:61613BFBFC90E8F0636B27014ABC4C9E9F146807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Artboard – инструмент создания векторных иллюс
 ```bash
 magnet:?xt=urn:btih:4982F895D6FC04B4249469BD21D13776DC7752B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E7CDBA844AF1D178D790F155AF09332D5BEE696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Master of Typing - Состязание 2 v8.4.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:41F6B425B50A9B3E589328F2ADFE2DC3DD709F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ JixiPix Premium Pack — пакет из всех последних выпущ�
 ```bash
 magnet:?xt=urn:btih:0B714DD2137E21B8AF03A884D2ABE18AE97F22BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Ortelius - полнофункциональное векторное прило�
 ```bash
 magnet:?xt=urn:btih:46509973059F29DA882CB7E4058AFBE20B09875A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EA3CF819B2B6AFEA0E7F966667DD064EEF27D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ ClearDisk - простая и эффективная утилита, котор�
 ```bash
 magnet:?xt=urn:btih:F7F55CF7F4DA0E3D2C0D171016DE3DB98E424992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Veronique Jannot - Le Meilleur De Veronique Jannot (2002) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:5D3EAC496B1E5A0FFEE4EB24DCEB4673A957414E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Logicly 1.11.4 [En]
 ```bash
 magnet:?xt=urn:btih:28901A169B4FB44D253A4DDF2C0C0D2F1D53E2FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1216EF5CCEB44CF2A7280BA1B74E1EDF4C5B40F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Nada Surf - Never Not Together (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 ```bash
 magnet:?xt=urn:btih:8AF4682CB5E4D39BB6C4775B8A7B09DD8C5ADA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36E250FD71722031B103E52074661D6A79A66BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ iClock - это отличная замена часов в строке мен�
 ```bash
 magnet:?xt=urn:btih:82E612378CE683D8ECC4779623A33E988854A94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A90F54DB231C184137A4D9EC459FE107B22D9D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ iCash - приложение, которое позволяет вести пе�
 ```bash
 magnet:?xt=urn:btih:414E707C2D8964CE7DFF4C984B98F0B372965198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:742E00AC978FA816E7EA35B129C0DB8804E68A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA2E710C727C8685B58E2A770567C111C6131978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15FC4FB45157AF740841663E4D60F1FC54FCB9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ Halsey - Manic (2020) [MP3|320 Kbps] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:A04E214F29FBC5E74ADED42E534D9300E9DC00FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

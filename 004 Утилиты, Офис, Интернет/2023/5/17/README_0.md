@@ -20,8 +20,7 @@ FileOptimizer — бесплатная утилита с открытым исх
 ```bash
 magnet:?xt=urn:btih:18BF5C052E448E1EFD9EBF4E5D3BC7A534B8CB97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

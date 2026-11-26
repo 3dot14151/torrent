@@ -23,8 +23,7 @@ Lacuna Coil — итальянская готик-метал группа, со�
 ```bash
 magnet:?xt=urn:btih:85CE70BD4AD99DD7547712F306AE51904C456134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

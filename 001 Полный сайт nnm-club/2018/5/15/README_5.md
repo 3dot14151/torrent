@@ -22,8 +22,7 @@ Eric Seva - Body And Blues (2017) Les Z'arts de garonne [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:2BE8E2BF54584D2A7C5A9542DC267CFA99B5D68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ocralab - Sonitum Nubium (2018) Space Of Variants [FLAC|Lossless|tracks+.cue] <A
 ```bash
 magnet:?xt=urn:btih:D804C130603B5676FDBDBFE4DB0105BACC1B7E9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lonnie Liston Smith - Loveland (1978) 2016, Sony Music [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:A3A7C8BA435076038F044895DBD607E9BBF51EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Markus Schulz:
 ```bash
 magnet:?xt=urn:btih:39220FCBB083B365D15CB894ADD04F8772141BC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ KCNcrew Pack  -  это огромнейший сборник серийнико
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 magnet:?xt=urn:btih:84A4BB4046688A3346BC0B10C8D7D38D15DADAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:283A5531C3353900DD12FA733B186B088AD98481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Valance Drakes & Ivan Shopov - Unearthing Buried Chapters (2018) Amek [FLAC|Loss
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Marian Hill - Unusual (2018) [MP3|320 Kbps] <Alternative Pop, Electronic, Minima
 ```bash
 magnet:?xt=urn:btih:FA44713CA9140FD7C664B05CDF69293382CD5481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48E7F12688D71AAB40584186869EAFEE09C1A10B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Syreeta - The Essential (2001) Compilation [FLAC|Lossless|image + .cue] <Soul, D
 ```bash
 magnet:?xt=urn:btih:BCC0C0C612AE0771C1521E0FC67C8443D918608C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Pra(Killa'Gramm) - Самовывоз (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Magic Carpet - Love On the Magic Carpet (1978) LP [MP3|320 Kbps] <Electronic, Di
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ ST1M - Мёртвые розы (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Infidels (with Molly Johnson) - Infidels (1991) [MP3|320 Kbps] <Hard Rock, Funk 
 ```bash
 magnet:?xt=urn:btih:FBE51863E0BC53F60FBF634243A4E5B80922633E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ ST1M - Салют (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 ```bash
 magnet:?xt=urn:btih:26EEB89E50949EF3FCA49BB97F0F88DCAAD285F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Curio – визуальный редактор для OS X с большими 
 ```bash
 magnet:?xt=urn:btih:87C61B53B0025AED7E5C1298583A4E9082CE49FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ KeyKey — учимся слепому набору
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ Hypnosis - Lost In Space (1992) [FLAC|Lossless|image + .cue] <Italo-Disco, Space
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ PicturesToExe Deluxe 9.0.17 RePack by вовава [Ru/En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ Dolly Parton and Friends - Gold (1993) Compilation [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:9DD68D1552D47FD0B0FE804C73C58B816BCB69D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ Molly Johnson - Meaning To Tell Ya (2018) [MP3|320 Kbps] <Contemporary Jazz, Roc
 ```bash
 magnet:?xt=urn:btih:369C2AFE6B200CB80C01544FF5F39DC7A05E5B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:921F1A1FC2AC8DAE416423A95E189C264D52C3C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

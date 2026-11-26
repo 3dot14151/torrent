@@ -19,8 +19,7 @@ Adobe InDesign обеспечивает точный контроль над т�
 ```bash
 magnet:?xt=urn:btih:FDC2067E951FB06A5A6CE272F9C37896376F9876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E8A6E15AF6FE09C8833AB5FA1C2549426D57664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

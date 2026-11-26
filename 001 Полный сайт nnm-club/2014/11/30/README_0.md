@@ -27,8 +27,7 @@ Metropolitan Jazz Affair - MJA (2003) [APE|Lossless]<Jazz, Electronic, Future Ja
 ```bash
 magnet:?xt=urn:btih:90A0808844B513E6FD182C17969DC382BBD7383C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:989E96C21FF84AAAED71101E6EF75DC22F7DBD74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Mezzoforte - Islands (2012) [FLAC|Lossless]<Fusion, Funk>
 ```bash
 magnet:?xt=urn:btih:C8525AB3F0F9E81845C3344A1C950BB2499830E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Deep House V.39 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:FB431EB12FD1FC249DC127CA6F461A4384004EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ VA - Lounge At The Seashore 20 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:12F6DE7B2864A0B9C41C6F1D0C55D0ACD47DCDA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ Paint.NET - простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:3DD4EB3C326408C2ED95263A3AB25B36F89DECAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ The Meters - Good Old Funky Music (1990) [FLAC|Lossless]<Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:1DDC1C781FDD3DDA7DAD4CFE988A9837468D9572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Joey DeFrancesco - Singin' And Swingin' (2001) [FLAC|Lossless]<Jazz, Mainstream 
 ```bash
 magnet:?xt=urn:btih:7BD295F24F6D377E1A144C0EB7DD047CF586E2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ VA - Heavyweight breaks 3 - mixed by skool of thought (2005) [MP3|192 кб/с]<B
 ```bash
 magnet:?xt=urn:btih:C11A500057C0E96C3DAE362CEFB64BC8B8AC4029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ Melt Yourself Down - Melt Yourself Down (2013) [FLAC|Lossless]<Future Jazz, Elec
 ```bash
 magnet:?xt=urn:btih:DBA099A5C860DAF721680390435209DB5507CE11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ VA - Deep House V.41 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:D6FB27BFF71C6841D0FC0CE44D2C66EEF1035EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ Metropolitan Jazz Affair - Bird of Spring (2007) [FLAC|Lossless]<Jazz, Fusion, N
 ```bash
 magnet:?xt=urn:btih:06058F082F3140E66C94D3EE5CAD888021D2C9E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB52CAC1B3BCF2F2DE3EBBF7090BAE1F7D3D5E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +436,7 @@ VA - Drum & Bass, DubStep, Trap #12 (2014) [MP3|320 кб/с]<Drum & Bass, DubSte
 ```bash
 magnet:?xt=urn:btih:A6F0308FBA47B4FB640EFA1365D6C6E325DE1D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +467,7 @@ VA - Run Tingz Best Of (2013) [MP3|320 кб/с]<Ragga Jungle, Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:CD0BEB342B323506C9BE65036E046D05A8C8B65D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E9C5446642E9941E6C439B83A00E1CE3D21A431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3158A24A292F200700ED841BB967C18AAD3B0FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B01992C91271BD5147565DC3E8D4A10EC585D402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:A8D5C5F0FE90F535B65119DCABABE03E5DDF249D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59B8396A99518ABD3F2749A08692142B2AB4157C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +629,7 @@ Mezzoforte - Catching Up With Mezzoforte (1983) [FLAC|Lossless]<Fusion, Funk>
 ```bash
 magnet:?xt=urn:btih:FED5F10FECCBFC4BA6C75E3188C5453FB1A3CFFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +663,7 @@ Exlibris - Exlibris (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:2B86A4B028787DC1CF3B9683C2936A66A5450CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:620C717928DAB40D42370FA2C9E326353963B132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:930BBF61276DC6BE112C5AA4EA82D44962303340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ VA - Клубные Новинки Vol.551 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:A0A0A81FD7FAD9C52CFB5E21F466CAB28C1B6B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -807,8 +782,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6963025E81EF36558458C07FFEF60C688A691EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

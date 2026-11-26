@@ -22,8 +22,7 @@ My Journey to the Void - Невозможность (2024) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:1F1971CAB0C7523CA4B7568B4FCA88E27F65E277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

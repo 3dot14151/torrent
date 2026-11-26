@@ -19,8 +19,7 @@ DuneCrawl - это игра в жанре экшен-приключение с �
 ```bash
 magnet:?xt=urn:btih:33BC4B9431544500C019B65F018548B590F1BFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RuneQuest: Warlords - это пошаговая боевая стратегия,
 ```bash
 magnet:?xt=urn:btih:59FB9BFDEF08ACAC15AC2AD0B8D6BD8404512BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ They Are Billions (2019) [Ru/Multi] (1.0.14) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FB1E0A68DF88E43B66A55BDDEDD306BC803D8217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 ```bash
 magnet:?xt=urn:btih:8B70C774EBAF17A9724EF7B266AA03F5F57CB72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ I Sell Lemonade (2025) [Ru/Multi] (.05) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0D7732111ADBC28CBFD41CE04772C68CAF107FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ My Winter Car (2025) [Ru/Multi] (build 21360632) Repack seleZen [Early Access]
 ```bash
 magnet:?xt=urn:btih:4DD55BC1E2A4F48EEF4BE11CA94A9B2DE85814D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Leaf Blower Co - медитативный симулятор, предлагаю
 ```bash
 magnet:?xt=urn:btih:6874511EADAC7EC854C1F45432A7DCB0A1CB4662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Perpetuo (2025) [Ru/Multi] (2.0e) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:972D954BBBBE4427BEB89C18C53A68FF40985FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Horses (2025) [Multi] (1.0.16497) License GOG
 ```bash
 magnet:?xt=urn:btih:648BCECFEB463C7692EF0953177D5C544284D3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Solargene (2022) [Ru/Multi] (1.0.43) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:48CFC58F70D2F31813BB4369F8B275CCD25625C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Anno 1800 – возглавьте промышленную революцию! 
 ```bash
 magnet:?xt=urn:btih:67B376B9540DF84A2E2C6E48D1B8063FE0851900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

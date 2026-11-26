@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4C3329A3DD4E5F28C8F0F3C0F3285C895868EE19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83A6B7B39E2D1A488A1388C96D977500B8675E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Guitar Tuna v3.5.4 [Ru/Multi] - универсальный тюнер для н�
 ```bash
 magnet:?xt=urn:btih:DDB19DE78D5C170BC6F3DA91825FE314D290FFD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ APK Permission Remover - это замечательный инструмент,
 ```bash
 magnet:?xt=urn:btih:09AAEA776E0F0FF5FBAC6BB860B24869596E1423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ QuickPic 4.7.2.2404 [Ru] - Просмотрщик изображений с му
 ```bash
 magnet:?xt=urn:btih:C1CBB9C7938324A0B8B3DDE859FEA47C985C2107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

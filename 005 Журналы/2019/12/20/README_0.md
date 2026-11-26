@@ -19,8 +19,7 @@ Outdoor Photographer - чрезвычайно необходимый журна�
 ```bash
 magnet:?xt=urn:btih:4AA7DE502ACB1F981DCC850976E2112FE23B7833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Outdoor Photographer - чрезвычайно необходимый журна�
 ```bash
 magnet:?xt=urn:btih:45D8C4B90A684FAB10BA3E69A8ADB6CE155FBD34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A51524D7BD6CA43E83098F88C25626FE3E850041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

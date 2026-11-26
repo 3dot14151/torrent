@@ -19,8 +19,7 @@ Debian GNU/Linux 7.5.0 [i386] 3xDVD, 2xUpdateDVD
 ```bash
 magnet:?xt=urn:btih:4AEE254E344E10BA71321766C027E5CF05147669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debian GNU/Linux 7.5.0 [amd64] 3xDVD, 2xUpdateDVD
 ```bash
 magnet:?xt=urn:btih:9A39855325B910D59127FDA401A951DF7BDEDA81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ OpenMandriva Lx 2014.0 [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:98DAF54F78B8406D58748AC0532D932DF400B530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

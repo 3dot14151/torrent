@@ -19,8 +19,7 @@ Office Password Recovery Magic 6.1.1.290 [2011][ENG]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

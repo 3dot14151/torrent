@@ -19,8 +19,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (0.9.221.3829) Repack xatab
 ```bash
 magnet:?xt=urn:btih:81C3866F01762D65AF0001C5231636252173FC22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

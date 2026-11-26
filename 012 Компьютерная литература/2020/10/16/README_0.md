@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:433EA630E3DABF87C45786851BC12F87C6D9ABD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Real World Python делает упор на проектную практику
 ```bash
 magnet:?xt=urn:btih:EEBAF235ADD9DC77C027F58E935C57E71442BBC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

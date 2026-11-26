@@ -22,8 +22,7 @@ Nevermore — американская метал-группа из Сиэтла
 ```bash
 magnet:?xt=urn:btih:CAE1A42BD7D81B818E2D436A1386A53649BBE001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

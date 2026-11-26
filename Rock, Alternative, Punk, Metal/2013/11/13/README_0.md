@@ -28,8 +28,7 @@ The Psychedelic Ensemble - The Tale Of The Golden King (2013) [FLAC|Lossless]<Pr
 ```bash
 magnet:?xt=urn:btih:7936FE5FF2CB6E5BAEF6261D36C0635D7EDE07E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Shameless - Beautiful Disaster (2013) [FLAC|Lossless]<Glam / Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BD3795A59B3B3D101C392F59DE17C7B5DB7472AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Neil Young - Greatest Hits (2004) [APE|Lossless]<Rock, Folk Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:A97AFE089D678D3785D18FC00B192F5373834198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

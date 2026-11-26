@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ NeoPaint - программа, предназначенная для работ�
 ```bash
 magnet:?xt=urn:btih:508E856E18B06618A2B5A2B7ECCFEC77D7118361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ HWMonitor - программа предназначена для монитор�
 ```bash
 magnet:?xt=urn:btih:B0D22A79ED529EF4651A834882150255D5594976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ AdwCleaner - программа, которая ищет и удаляет ре�
 ```bash
 magnet:?xt=urn:btih:F1AFF16D7FA072449FF2E743A6CFA1FCFD21938C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Baths - Ocean Death EP (2014) [MP3|320 кб/с]<Electronic / Glitch / Experiment
 ```bash
 magnet:?xt=urn:btih:FB170B52B3E4CE9BCE30D5BA6022A63DA5F25232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01D6DFDE56837E5B731096A661F9FE669BF3BC52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35CE530BA9CA6635ED44BED6DB4ED8AB4814306D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9444ADD328F05E43D78DEE2F046C2D4D33C272D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Smokie - Bright Lights & Back Alleys (1983) [FLAC 2.0 24/192|traks(Vinil-Rip)]<S
 ```bash
 magnet:?xt=urn:btih:D39004684FABB1D38A53FA725583A6D51B7139A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Discovery: Разрушители легенд. Попробуйте повто�
 ```bash
 magnet:?xt=urn:btih:04DF59618C3973BDAFA85321C88FF5298E35BC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Lily Allen - Sheezus (Special Edition) (2014) [FLAC|Lossless]<Pop, Indie Pop, Da
 ```bash
 magnet:?xt=urn:btih:3FD64761D0D96E5C9A75A77F37BC98FE4775ABF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ BBC: Суперстая / SuperSwarm: Nature’s Incredible Invasions / Megaschw
 ```bash
 magnet:?xt=urn:btih:6E7C7179A24AB2B2A9C4CDF4C0F70C0CD0CB2F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Digital ArtРазрешение файлов: 512х900-3975х2342Формат: J
 ```bash
 magnet:?xt=urn:btih:532FAF6540EFFCE9E9E041B1327C80763F45C027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79232C1DB093DAD8BA7F725A14CEE8417190107C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Freddie Mercury - Romantic Ballads (1998) [MP3|320 кб/с]<Classic Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:D3F0E1A6A28DA95E05CCABD410C72FCF66B5B1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ BBC: Мир природы: Смертельный укус / The Natural World.
 ```bash
 magnet:?xt=urn:btih:697E3D9EA4160EAB950F0937ECD50D18D253E4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ Piano Concerto No.5 in E flat major "Emperor", Op.73
 ```bash
 magnet:?xt=urn:btih:A3EF1392C82F87916B8A95D1EB983A68EDFAE5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 ```bash
 magnet:?xt=urn:btih:2C4B1E7DA49E190995BD137448E2BF33611D4AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Unchecky - небольшая бесплатная утилита, котора�
 ```bash
 magnet:?xt=urn:btih:407D4FCE751C7AC880F4934E076E597CD16E4E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ Santana - Corazon (2014) Deluxe Edition [FLAC|Lossless]<Rock, Classic Rock, Lati
 ```bash
 magnet:?xt=urn:btih:BB5480CA2CC55D6E2C95B8F2852844DE3C047878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0A3DAAF7201800990771700271344054C5CBD2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62197D34F2A48D0C0A751D1D754BDB42FB873AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 ```bash
 magnet:?xt=urn:btih:46F9A8F8B05EB81EADB7BA70C258E3FB3E913540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02B8CDB7AF3C245E409A3BAE93095CD9A4261732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:800E53F59351AD2D37A8690F7463E2DDC7333D7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Ze Smetana - Skabuster. (2012)[Mp3|320 kbps]<Ska-Punk>
 ```bash
 magnet:?xt=urn:btih:C9D0A0C5F27FA7B4A64A830FABE46A66A2150880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Adamantine - Chaos Genesis (2012) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F54E4D3131551C30AA76516CDD0EE8016B3CB2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:AC044790F29906F4AFA53B98F72C76D0E7099AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Fleet Foxes - Fleet Foxes (Special Edition) 2 CD (2008) [MP3|320 кб/с]<Indi-R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ DragonForce - The Power Within (2012) [FLAC|Lossless]<Speed / Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Disc: 1
 ```bash
 magnet:?xt=urn:btih:B5EA84405C8D9D5C290869981E45BC89F333E5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ The Rolling Stones - LA Friday 75 (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:E846CACAFAF27356E9C480512034523406AABE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Abyss Odyssey (2014) [Ru/En] (1.14) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:B4F5EF140BA940B5E20813E9406C4968A66F77DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04/dlc) License CPY
 ```bash
 magnet:?xt=urn:btih:541A35EF64D5D5A4D3BA4133BCBE4684063C9D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gorogoa – изящное развитие жанра головоломок, �
 ```bash
 magnet:?xt=urn:btih:D1F5D402FC364A8006A42CFDB2E7E51D622F07BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

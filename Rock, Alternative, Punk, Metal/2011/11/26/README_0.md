@@ -28,8 +28,7 @@ Speedwolf - Ride With Death (2011) [MP3|256 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A0E2AF71F39CD579082853701384A781549BA836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Homo Homini - 3 (1978) [MP3|320 kbps]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:EBBCF3E535634777D7A3F4FC54C9E6E7DA410459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Dope Stars Inc. - Ultrawired (2011) [FLAC|Lossless]<industrial>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Rush - 19 Albums|9 Live|B-Side - (1974-2011) [MP3|320 kbps]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Black Sabbath - The CD Collection (1988) Limited Edition 6CD Box Set [FLAC|Lossl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Gossip - Music for Men (2009) [MP3|320 kbps]<Indie Rock/Dance Punk/Pop/Female Vo
 ```bash
 magnet:?xt=urn:btih:84D04E6D624EEC223D8515C20A89648814A028A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2ACAAC8FA9BBDC550B19071B2A0D056C5F27422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

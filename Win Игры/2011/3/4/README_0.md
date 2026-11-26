@@ -22,8 +22,7 @@ Emergency 2012 - это стратегия в реальном времени, �
 ```bash
 magnet:?xt=urn:btih:F1CA0FAB0BE9C62CC41DBCCCD98EF4AFB6300680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Order Of War / Order Of War: Освобождение [Ru/En] (Lossless RePack) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Silverfall [Ru] (Repack) 2007 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:22795FB67416614B2A71207AABC5C4B1DF67EBE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

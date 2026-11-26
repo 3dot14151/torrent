@@ -22,8 +22,7 @@ Fallen Empire - Сожаление (2025) [MP3|320 Kbps] <Gothic Metal, Industri
 ```bash
 magnet:?xt=urn:btih:AB3DC6CA1180604E23E10746640B0DAA64BE2C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1-3 Quintessence 5:27(   Читать дальше...   )Жанр: Progressive
 ```bash
 magnet:?xt=urn:btih:06EFD92F4639BCA73108AB399E19A3BD7F60F8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ In Theory - Retribution (2025) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8555F49B76B4260054800E969B82474F769CD3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ In Theory - Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9464F0BA57984C70D91F754EB865833B387F3FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

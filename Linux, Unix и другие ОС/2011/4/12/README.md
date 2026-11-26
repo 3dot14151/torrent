@@ -28,8 +28,7 @@ uTorrent server for linux 3.0 build 25053 [x86] (tar.gz)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

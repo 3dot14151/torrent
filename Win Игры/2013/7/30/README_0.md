@@ -19,8 +19,7 @@ Angry Birds Star Wars (2012) [En] (1.3.1) WinStore-Rip ValerBOSS
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Book of Unwritten Tales — это великолепный, наполне�
 ```bash
 magnet:?xt=urn:btih:42BF4A64C4665E3AA5BB35206ABB6A7410B7C913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ The Darkness II/2 (2012) [Ru/En] (1.1 / 4 DLC) Steam-Rip R.G. Origins [Limited E
 ```bash
 magnet:?xt=urn:btih:C4930B129126F7D1F2CB61739E8EEA774A2F81DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Skulls of the Shogun (2013) [Ru/Multi] License FANiSO
 ```bash
 magnet:?xt=urn:btih:D3842E687499C7DE9117EEB738F1A3ACF1892A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

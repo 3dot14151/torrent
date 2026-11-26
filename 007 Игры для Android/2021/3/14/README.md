@@ -19,8 +19,7 @@ Into The Badlands: Champions — этот мир построен на кров�
 ```bash
 magnet:?xt=urn:btih:077B4D0C1BF59425CB5160CD1BC137679186CA44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legend of Solgard v2.17.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FD8EBECA4D95FEF67DEFC5F041A7E693E8F3E082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

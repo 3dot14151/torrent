@@ -19,8 +19,7 @@ Eldest Souls (2021) [Ru/Multi] (Build 7099613) License CODEX
 ```bash
 magnet:?xt=urn:btih:AD6655B71385F9F4C2A630F8C3E3B45DE3DF07FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vesper (2021) [Multi] (1.0.i0b) License PLAZA
 ```bash
 magnet:?xt=urn:btih:20897826C6B4CE41D585626D9422D4BC64132EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unbound: Worlds Apart – захватывающий атмосферный пл
 ```bash
 magnet:?xt=urn:btih:BE97114888002B0599F43888B9C96985D37BECD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Phoenotopia: Awakening (2021) [Ru/Multi] (1.2.9) License GOG
 ```bash
 magnet:?xt=urn:btih:0BD9BDBFF599E18B54EA7CD3D7C21A6393807DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.0.3) License PLAZA
 ```bash
 magnet:?xt=urn:btih:00C3D5BEFB211D33628148E880DE7C9EF89AC4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Omno (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:74BB596BCE315FF5EBBB91FA1AF09996363C5AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Eastern Exorcist (2021) [Multi] (Build 6990221) License PLAZA
 ```bash
 magnet:?xt=urn:btih:D05456AAB4DA6F43F51B2AB543F79B9045593818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

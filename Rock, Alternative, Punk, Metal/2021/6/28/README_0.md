@@ -22,8 +22,7 @@ Bobby Shock - Street Angels (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Ro
 ```bash
 magnet:?xt=urn:btih:56F06995E493FF61A6B798369A2D6CC578E0AB4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dream Theater - Images and Words: Live In Japan 2017 (2021) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:B7B9956FAD279A1BF703378DF40908CE278F44BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ J Lee and The Hoodoo Skulls - 3 Albums (2018-2021) [MP3|320 Kbps] <Blues Rock, H
 ```bash
 magnet:?xt=urn:btih:3CD87B4FFE80BF5A909D8B064B601B9C7C2DFC12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Inluzt - Echoes Of Revolution (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:38D0D2DA6A36A9226527293F05EFFCB728F0E2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Resistor - The 5th Season (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:15EC8CB1AE490E2E36048946CEC402FEB402816E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Pertness - From The Beginning To The End (2010) [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:DED884C00900854788CC69D9378249D5EFF75719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Morgarten - Cry Of The Lost (2021) [FLAC|Lossless|image + .cue] <Folk Metal, Bla
 ```bash
 magnet:?xt=urn:btih:A8A4556AB1E7C8A56C10FFA32777BAA6F4F6E324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Pertness - Metamorphosis (2018) [FLAC|Lossless|image + .cue] <Melodic Power Meta
 ```bash
 magnet:?xt=urn:btih:CE02F7B0D91F328D8DB1B95774DEE16022C32DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Pertness - Frozen Time (2012) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:82B9035D0489D066CEDAFC29E2899B242B3479F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Windows 7 - это, без сомнения, операционная систе
 ```bash
 magnet:?xt=urn:btih:1303E8FA495F00C59DCB24D888A5769D9085A027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF113ED7F246745FF5810000C3BF6A1BA7802A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Thomas H. Cormen и др. | Introduction to Algorithms, third edition [2009] [PD
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

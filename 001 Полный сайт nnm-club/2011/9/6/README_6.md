@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B8B97277D20713E7C286F673FC01F742BE5DADC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Command & Conquer: Red Alert 3 - Uprising представляет собой г
 ```bash
 magnet:?xt=urn:btih:A63B9B1DE307DB15A3A8173E28DAFAF6B50E8799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TeachVideo | 1С. Битрикс. Обучающий видеокурс [2010] [
 ```bash
 magnet:?xt=urn:btih:B2F55521740A344CE06467CC9D01EA212CB01C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DCS: A-10C Битва за Кавказ (DCS: A-10C Warthog) – это симу
 ```bash
 magnet:?xt=urn:btih:6C62605CCBA30C4C5918B44009DDAE1059FADA43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Paragon Drive Copy 11 Professional - это оптимальное решени�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4A460698000D2FDBF5A9FAAF3F304EA8D3F5C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ ArtMoney PRO 7.37.2 [Мульти, есть русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

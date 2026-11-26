@@ -22,8 +22,7 @@ Skul — это динамичный экшен с элементами rogue-li
 ```bash
 magnet:?xt=urn:btih:AB2960341B6393FA82221166AAA6B071CAC467EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Tiny Room Stories Town Mystery v2.6.26 [Ru]
 ```bash
 magnet:?xt=urn:btih:E560D21B3664B03DCA7D100712D03913812C2FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Stardew Valley 1.6.14.11 [Ru]
 ```bash
 magnet:?xt=urn:btih:F1ECEBFD2361BBB48BBA3897A6E5F8E91DA2D5B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ After Inc. v1.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:C3D2A550A3A57618FB1BC4ECD3A3C07D3D278396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

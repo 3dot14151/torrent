@@ -19,8 +19,7 @@ Registry Clean Expert - программа для сканирования ре�
 ```bash
 magnet:?xt=urn:btih:4497510CB21CAC9A748556EC6F59EBDCD95D7BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

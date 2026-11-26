@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:3685C17EB6F26D3E5751745987CB493AAEDDB442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Monster Truck - канадская хард-рок банда из Hamilton, Ont
 ```bash
 magnet:?xt=urn:btih:AC78635DA391642F9BDC2C71427544E0BA4E27BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7CD324DC20B1BA59074BCD094B23899F6FB2429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

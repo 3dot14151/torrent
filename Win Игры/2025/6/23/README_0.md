@@ -19,8 +19,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2DF293F65823287A6E3D5F9A0BDADC00E7934DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Svarog's Dream выделяется как увлекательная РПГ, п
 ```bash
 magnet:?xt=urn:btih:649061F0C31A4D244EFD4C3AC767B4D08440521E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E0E78FC7B2E388715AD1E01EA36974494D821161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fallout 3 - это сочетание шутера от первого лица,
 ```bash
 magnet:?xt=urn:btih:F23881582348D54682E5AAB3DEDAF9EA12E95B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Len's Island (2021) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:21851684A33D1467F231F5D57A04E2739CF20DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Farm Manager World (2024) [Ru/Multi] (1.0.20250421.417) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D3F895FF348C7E276185690B99D9ECB06DA21F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Post Trauma (2025) [Multi] (1.04) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F718F74EF79594F27777BE005CF23ABF5B0503D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (2506161915) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B4738C79C5CD0E1B94244606B2B0DC46070C4986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

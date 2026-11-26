@@ -19,8 +19,7 @@ REVER - Motorcycle GPS, Route Planner & Discover v5.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:DAC2E31E066B1206D947AF40E925F65070F42334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Perfectly Clear позволяет создать идеальную фотог�
 ```bash
 magnet:?xt=urn:btih:AEECEA41C8D5FCF721F4B6AB6341FB4436772940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F41CC4479883CD59F42763459946D2159ED6A755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Lapse It • Time Lapse • Pro v4.70 [Ru]
 ```bash
 magnet:?xt=urn:btih:0EC83B96E9E4613F9042CA6354D0258E3E1E3EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Scan & Translate+ Text Grabber v4.3.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:F8B298CEB921B428179EF6B5474B29AE328744A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3458F8B201AF82560A0A45DBD84D5B8E1CB525F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

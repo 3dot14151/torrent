@@ -28,8 +28,7 @@ Dead End - Stain Of Disgrace (2011) [WavPack|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Euphoreon - Euphoreon (2011) [FLAC|Lossless]<Melodic Death Metal/Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ VA - Rock Eclipse (2011) [MP3|128 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:4DE59067EEE9E998505922922E6AB8E239080F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

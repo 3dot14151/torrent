@@ -20,8 +20,7 @@ Call of Duty: Black Ops Zombies - консольная версия игры т�
 ```bash
 magnet:?xt=urn:btih:4D72226FB16DA13BE77580EB7EA2C3CA27F1FD91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

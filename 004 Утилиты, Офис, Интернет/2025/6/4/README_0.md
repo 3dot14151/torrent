@@ -19,8 +19,7 @@ Ashampoo Driver Updater обеспечивает обновления для ш�
 ```bash
 magnet:?xt=urn:btih:24510098769EFB72B886A05CF356335D20376DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0A53D5D436C10D258F58BF7AFB1A347731FDA049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

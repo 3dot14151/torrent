@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7A2D2853D61DC888DF6510C01BFD1F21728884E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ BBC: Планета Земля / Planet Earth (2006) HD-DVDRip [H.264/720p] (с�
 ```bash
 magnet:?xt=urn:btih:1A81CF38C6AE8BE0C78B969C8FD7541A19EF570C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Rosetta Stone это удостоенный наград языковой пом
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ VA - Edelweiss: Alpine Chill to Unwind (2022) [AAC|~316 Kbps] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:7363D61498A3C4053A62172E6FA1D3D7ECD1ADCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

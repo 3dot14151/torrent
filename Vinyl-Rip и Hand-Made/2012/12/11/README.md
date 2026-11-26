@@ -26,8 +26,7 @@ Sandra - Paintings in Yellow - 1990 [APE 2.0 24/96|image (Vinyl-Rip)]<Poр>
 ```bash
 magnet:?xt=urn:btih:C12BF55A965AD68E0AA33D3D23EF36A76CC8FD7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Who Ha - Synthwave Belongs In A Museum (2016) EP [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:EAF9FA573B8C8F29A588C1B5F3C23D4416DDEBA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49B8527EB68F54B45480C03CFAE88173DB4DF67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4FEB61847E5909A5CABF73ABF0AD16B3D850C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Live-результаты, таблицы и турнирные сетки, ст
 ```bash
 magnet:?xt=urn:btih:22547883EAB29FBFF944201C285C88C2E8E2C5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Pet Shop Boys - The Pop Kids (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:133D09C4277A7376E519EBFEF0AD33992EE55934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Blocs избавляет от необходимости написания ко
 ```bash
 magnet:?xt=urn:btih:D07C89F7F60449B376845665BD29E420E45C8337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ CocCoc Browser - браузер, который является продукт�
 ```bash
 magnet:?xt=urn:btih:E1564C17A3271B91384B8EE82E03AA15B6CE1BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7967898CE26CDFD484541D54DF601FBCAB9F9BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:158F668F86AEF98DF3623492F4675FA8DEDBCF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ iMazing: отличная альтернатива iTunes
 ```bash
 magnet:?xt=urn:btih:D13B1952A018A917E72B59B4DB3457D1B3F0FDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Almanac - Tsar (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:46EB6577913588561246761FBEC3E427CB218CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1EB4EA28E1072B4EFA4D52692BCB1EF0D555375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ Mp3tag 2.75 Final RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:22FC797BA3E7C0C7FBA6E9A4B08B5C5B1B70B9F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BB85E3736E91E970F5C259726DB24FA7AA1CCDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3B41BF03E77A5A6069B3B5E10404EB659B65DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Bonfire - Pearls (2016) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:06488371B30C19A60EF7731EA85C930999471493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Aiseesoft Total Media Converter- это лучшее программное об
 ```bash
 magnet:?xt=urn:btih:90108202AD3CEA3815D45470F3B13DBFCAEE36DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ Tommy Lee - TommyLand: The Ride (2005) [FLAC|Lossless|image + .cue] <Alternative
 ```bash
 magnet:?xt=urn:btih:EFA8F16AD81842EC06A25CDE91BE2D728B0BB0D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F715657547C5C26A18575C1E78D1C5D94F4D2B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ NG. Ядовитый остров / Venom Islands (2012) HDTVRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:A0449E3C653BD7182D249E635DE964CB55CAADCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ VA - Deep Meditation 50 Tracks - Healing Sounds of Nature (2016) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:A60F6EED5AEA299E7AFBB2CE58F623EFD697CB59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ Iggy Pop - Post Pop Depression (2016) [FLAC|Lossless|tracks + .cue] <Alternative
 ```bash
 magnet:?xt=urn:btih:ACC74EC7ED37560DD555728C61ADA62F7082F042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ Omnium Gatherum - 7 Albums, 4 Singles, 4 Demo, 3 Reissue & Remaster (1999-2016) 
 ```bash
 magnet:?xt=urn:btih:BF1EB5F107F6B2A50F3FEEF7743C07F293BAA475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9FF98317E994EF869613FB7D123F5AD5153AA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ VueScan — программа для работы со сканерами HP, M
 ```bash
 magnet:?xt=urn:btih:D56017C5378F4988D702768BD2B3E52B2ACCEE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ Mystica - Best Of Gregorian Voices (2016) [MP3|320 кб/с] <New Age>
 ```bash
 magnet:?xt=urn:btih:9EA4E4652D200F07245EE82CAFCB363319D6267B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

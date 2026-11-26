@@ -19,8 +19,7 @@ Dollhouse (2019) [Multi] (1.1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:48E7893148A7E58BF5C6277E3230DE0B3C8B864A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

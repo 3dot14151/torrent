@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:FC2C102B01B1B4396206F7B2F3EAA3C59C0A5E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wu-Tang: Американская сага / Wu-Tang: An American Saga (2021) WE
 ```bash
 magnet:?xt=urn:btih:A8D8D3A504B9EDF57B6EE4275215C563A4EEE1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15876128790F33C5E3FA7EB8BFBFD37C1ADBA1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8107E04BABDDF27890605C6B108160C996FEE16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tocode | Курс по Vue.js 3 Практическое руководство 
 ```bash
 magnet:?xt=urn:btih:E15A2B6E5F40D65C6EE8441DEEFD3CE1DED7781A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED097F6378F79B6F4B465ACBBBBD635D07A2FB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Udemy, Роман Панёв | Kotlin с нуля + разработка при�
 ```bash
 magnet:?xt=urn:btih:5A9C9CE798EBEF681FA71084FAA8A477A2158D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10B92B85C60963A200E8374FB20F2EDF97E6F0C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ SQL Server – универсальная платформа для управл
 ```bash
 magnet:?xt=urn:btih:30671B374841175900A4C0B4FD6B289CB52581DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DACD075C6048F3D3EE6691AEA19D89F934447DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (4041) License GOG [Collect
 ```bash
 magnet:?xt=urn:btih:4F2C00629436E8F1F1EBA750CD85473F79A9D06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Tom Clancy's Splinter Cell: Double Agent (2006) [En] (1.02) License
 ```bash
 magnet:?xt=urn:btih:0423A423AA0135F005E4CB24AC09C8128E2F1442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04BEFDB447E6BEB64D567EBF7E78C2E0F14B0C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Slime Rancher – это история Беатрис Лебо, молодой 
 ```bash
 magnet:?xt=urn:btih:C832788D7C4D54CFE9209B23CCA330A1EC1B401D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

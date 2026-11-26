@@ -19,8 +19,7 @@ Image Dupe 1.2.2.0 RePack by вовава [Ru]
 ```bash
 magnet:?xt=urn:btih:93E82B538E685252C9D6C1D30655F26E35FAD96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

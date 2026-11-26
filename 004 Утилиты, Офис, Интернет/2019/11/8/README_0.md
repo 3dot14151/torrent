@@ -21,8 +21,7 @@ Prog Finder – бесплатная, утилита от производите
 ```bash
 magnet:?xt=urn:btih:B37E043C14AB74E9451E99633E656A9C5C37D1E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Change MAC Address - весьма необычная утилита, с помо
 ```bash
 magnet:?xt=urn:btih:001EEB7B763EE0C4F407D9EB77AC1186121D2C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

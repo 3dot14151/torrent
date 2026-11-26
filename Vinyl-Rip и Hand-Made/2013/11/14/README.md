@@ -28,8 +28,7 @@ C2. Время [4:12](   Читать дальше...   )Жанр: RockФорм�
 ```bash
 magnet:?xt=urn:btih:5703D6E34200E145CFB70D1C174BBE5E5952B68B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B5. Шанхай-Блюз [3:39]Жанр: RockФормат: Vinyl, LP, AlbumПр
 ```bash
 magnet:?xt=urn:btih:F75C311906721F1610F6B2C8A85E3403F16E773C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

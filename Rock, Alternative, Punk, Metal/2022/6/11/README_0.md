@@ -22,8 +22,7 @@ Seventh Wonder - The Testament (2022) [Mp3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:AFDADFAF57B39DC18D3E44245D19F4A2B3C8C1D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lowhill - Concept of Grief (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post
 ```bash
 magnet:?xt=urn:btih:08EE8AB67BE91F94453368F9CBDFC2833DCBB5DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:8DA8298B261CDAA17DCD25390200D3A6F82CC6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sun of the Endless Night - Life... a Tragedy Tainted by Malevolence (2021) [FLAC
 ```bash
 magnet:?xt=urn:btih:E523E28B6BB3EA5E188A9D6577342716AAF8B08B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Moodring - Stargazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Altern
 ```bash
 magnet:?xt=urn:btih:25642705554B1A9415A9A01DFEBAF9E63C4738EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Irdorath - Gotterdammerung MMXXII (2022) [FLAC|Lossless|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:44EB5CC23B1933A54347DC460D8ED49499B75C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Kardashev - Liminal Rite (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:53B3C830AAE81D8FA2BFBA6471EED26788FC32F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Amethyst - Time Of Slaughters (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B246F699A27FAD09593E364F27DB53C4625EB901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ NateWantsToBattle - The Critical Hits (2022) Compilation [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:0D5F6E084D71ABCFAED2165A11977F67E3D5EC7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The Silverblack - Judgment (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Meta
 ```bash
 magnet:?xt=urn:btih:21FA57BD7913065C00BFF1FDD1EC79F1418F52DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ To/Die/For — финская готик-метал-группа. Основан
 ```bash
 magnet:?xt=urn:btih:B8D6D3A7E2493CC64A997DF34C503EC765C1709B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Future Palace - Run (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alterna
 ```bash
 magnet:?xt=urn:btih:C745A3A03124C8F7EBAFDF862A01CA1A4C7EBB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Downset - Maintain (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Hardcore, Rap 
 ```bash
 magnet:?xt=urn:btih:537DFD509948406FF8E371AB2AE8E59FE2484A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Deep Sun - Dreamland - Behind The Shades (2022) [FLAC|Lossless|WEB-DL|tracks] <S
 ```bash
 magnet:?xt=urn:btih:636F667715888EF42EDA31F8C0076325A3E3729B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Kreator - Hate Über Alles (2022) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:11AA17C361AA208217476CD13B6E7659F3BA8A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ CoreLeoni - III (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:71BF5C261694273432200620A5DFCCA99016D286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Intus Mortem - Exiled From Light (2022) [FLAC|Lossless|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:98472E5E49BE5FA2C1D2F1FB9120BF98B171CB2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Ignea (ex-Parallax) - 7 Relises (2013-2020) [MP3|320 Kbps] <Oriental Progressive
 ```bash
 magnet:?xt=urn:btih:569FBB1549C487245E321A5DDB8C0C10D38F461C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - Рок Легенди України (2002-2006) Рок Легенды Ук
 ```bash
 magnet:?xt=urn:btih:F1F0815319AEB12328D9AB6BFAE7D8CD46917669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

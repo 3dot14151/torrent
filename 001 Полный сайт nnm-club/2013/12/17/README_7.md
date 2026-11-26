@@ -18,8 +18,7 @@ Animal Planet: Русалки. Новые доказательства / Mermaid
 ```bash
 magnet:?xt=urn:btih:31AF98D743D5E3C53051CA919352F7C57B7C8970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Debian GNU/Linux 7.3.0 [amd64] 3xDVD+update DVD
 ```bash
 magnet:?xt=urn:btih:D3F16A2F01EC8AF5E86AC20B6C6E1FE1F91B4AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ NBA 2K14 [USA] [ENG] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2013)
 ```bash
 magnet:?xt=urn:btih:2FDFA01965EB882F881956E8082C808D5C7009E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F40058E62C83F4C2FEF412A9A753E7E831EB1CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Hot Wheels: World's Best Driver продолжает серию аркадных
 ```bash
 magnet:?xt=urn:btih:9B0FC82A022E628D451AB63C33B12B9011B10E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:980587F594B46A858C2C98064E467CEC1BEA605E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Vertus Fluid Mask - мощная программа, предназначенн�
 ```bash
 magnet:?xt=urn:btih:46288305920514CEC737E0C17CA0785CC7E535B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ DIRT 3 [PS3] [EUR] [En] [4.21] [Cobra ODE / E3 ODE PRO ISO] (2011)
 ```bash
 magnet:?xt=urn:btih:A243DC1E7A58DBB5A9CC923DEEADFFB08C82EC92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ DoudouLinux (для детей от 2-х лет) 2.1 Гиперборея [i386]
 ```bash
 magnet:?xt=urn:btih:2A37986141F435A2E99F0F008851737183D28ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2DBFAFB978D85B64711A72BF1CB4B4F707FA576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D79D3448E231D1A58662EFD63051468FEFCEADB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CFBE9F9501F646E4EE3D41504B11035D6CCB679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ AdFender — бесплатный и простой в использовани�
 ```bash
 magnet:?xt=urn:btih:A47C8D45A2969C839E943BF8173387FDE55F6679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Zoner Photo Studio 16 является мощной программой для 
 ```bash
 magnet:?xt=urn:btih:C425D0ADFFF538A27200AAAB74CE5C5FCCB6A486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B29A84CBBBD9F604BD19BAD81DC4D4E1DEDFC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D38BCEB6E42AF9551A58961629B4DA094E30B7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AE2B11DD2191A027FE6A5EAA7C0997C6B53D354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7FF699E74992A73FF56213F6598FF41C3514177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ Revo Uninstaller Pro 3.0.8 Final RePack by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3F074156A1CC944C66D949E2AE79D64FE8A99ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C607AC64C4F7C682CF8808C868500E7F8D8D0BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5263BE6E4FCF345AA1221F7E71993D15CF36553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ Recovery Toshiba A110-293 / Диск-реаниматор Windows XP Home Editio
 ```bash
 magnet:?xt=urn:btih:4D70DDBFA9DF36B4C2F2AADF27E460600FF40B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ Ambra – Honour & Glory (2003) [DSD 5.1, 2.0 1bit/2822,4kHz | SACD-R] <new age,
 ```bash
 magnet:?xt=urn:btih:EEBB06702ACE48BDCCF51BDD582536ACC8104760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDF3AEC5243217CC4DB1E399C6A525077A1D6EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ Wasteland 2 (2013) [En] (Beta upd1) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:0A80D25F0E883484AE132590737915A0981F84A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42EC07CD9DC16400F50DFB07DEB39E078EB8F4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

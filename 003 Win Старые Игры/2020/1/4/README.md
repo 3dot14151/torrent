@@ -19,8 +19,7 @@ Jade Empire (2005) [Ru] (1.00) Repack xatab [Special Edition]
 ```bash
 magnet:?xt=urn:btih:0F5AF4AD6A1A6E30865A96774A93AA76BF25F54E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

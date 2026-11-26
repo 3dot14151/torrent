@@ -19,8 +19,7 @@ ObsCure Антология [Ru] (RePack) 2005-2007 | R.G ReCoding
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

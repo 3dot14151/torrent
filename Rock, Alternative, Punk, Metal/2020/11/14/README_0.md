@@ -22,8 +22,7 @@ Dwarrowdelf - Evenstar (2020) [FLAC|Lossless|image + .cue] <Epic Black Metal>
 ```bash
 magnet:?xt=urn:btih:C90E4F8130BDD7FE190B01A90052EF830699B757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rodrigo San Martin - Arcana (Act 1) (2020) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:E68D24504EE97133DD7D4DDCF86F3094108540DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Phog - This World (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphon
 ```bash
 magnet:?xt=urn:btih:2FDDEAFC937671764AF13E87BE891982F564CFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Wet Fish - Ready To Blow (2020) [MP3|320 Kbps] <Rock & Roll>
 ```bash
 magnet:?xt=urn:btih:ED13D87A078B17A1FCF38BFA07B7F47CA9508F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Light Field Reverie - Another World (2020) [MP3|320 Kbps] <Progressive Metal, Do
 ```bash
 magnet:?xt=urn:btih:006A7DE2BCB01FFBC52487F0C9DD7C795A18F2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:877B8C5FDFEE43E62F8428CF7CDA092694913897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75348591CD394CF2F1B314213488090EB7237CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Cure - Pornography (1982) Elektra 60785-2 [FLAC|Lossless|image + .cue]<Goth 
 ```bash
 magnet:?xt=urn:btih:964515D95C66BF9AE7A71CDAD2CB282D5224D194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1F72E04661511BF858AEA4F1617C1EAD965FD96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

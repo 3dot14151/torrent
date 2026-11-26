@@ -19,8 +19,7 @@ Fahrenheit / Indigo Prophecy / Фаренгейт [Ru/En] (RePack) 2006 | R.G. �
 ```bash
 magnet:?xt=urn:btih:67B45339ECF821DE63624884AE640E85DCD21BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Yume или Повелитель снов – это увлекательная 
 ```bash
 magnet:?xt=urn:btih:57DF0782BE60BC7B74844CE02F88FAAD35CD3F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

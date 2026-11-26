@@ -28,8 +28,7 @@ Mungo Jerry - Cool Jesus (2011) [MP3|320 кб/с]<Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:89037AB40DC77916A35D09CCEC1726B7B5D84FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Zonaria - Arrival Of The Red Sun (2012) [FLAC|Lossless]<Melodic Death Metal/Symp
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Grave - Endless Procession of Souls (2012) [FLAC|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Ensiferum - Unsung Heroes (Limited Edition) (2012) [MP3|320 кб/с]<Folk Metal,
 ```bash
 magnet:?xt=urn:btih:BEF0E3192B9B128F6ACB78AA91AD790C2D5E9A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ V.A. - A Tribute to Чёрный Обелиск XXV (2012) [FLAC|Lossless]<Heavy
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Led Zeppelin - Studio Discography (1969-1982) 10 Remastered CD /2012, KronStudio
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

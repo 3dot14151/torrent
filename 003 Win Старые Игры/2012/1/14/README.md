@@ -20,8 +20,7 @@ Eradicator [En] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:9563251D9A02D059F269CE10A22FCC6C25DEC38F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Eye of the Beholder Антология [Ru/En] (RePack) 1990-1992 | Pilotus
 ```bash
 magnet:?xt=urn:btih:731A3856F5CB2F0AD321DDBE6AE0BABB654DD414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

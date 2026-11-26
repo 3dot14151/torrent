@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6B851F71A7CF79DBA276CF553BA0B92187EE6B43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XVIII век, Белое море. Рыбаки уходят на промысе
 ```bash
 magnet:?xt=urn:btih:4A1CD4A6DF71A96C84B6F1F802F86B21BA205FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

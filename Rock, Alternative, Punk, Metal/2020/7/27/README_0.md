@@ -22,8 +22,7 @@ Manegarm - Vargaresa: The Beginning (2004) [FLAC|Lossless|image + .cue] <Black M
 ```bash
 magnet:?xt=urn:btih:9244BB1AC59FDF65438B1031DA5146BF2641F901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Karate - 595 (2007) Live [FLAC|Lossless|tracks + .cue] <Post Rock, Fusion>
 ```bash
 magnet:?xt=urn:btih:402EB8C4E751BB814258A58419E5347E91BD2231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mare Infinitum - Alien Monolith God (2015) [FLAC|Lossless|image + .cue] <Doom Me
 ```bash
 magnet:?xt=urn:btih:1F5FAEB059C9350E1F56977F3D7DC9680C5F930C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ John Demarkis - Finding The Akashic Record (2020) [FLAC|Lossless|WEB-DL|tracks +
 ```bash
 magnet:?xt=urn:btih:99404EB19306EAFAFEBCA569074E74A556C4D12B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Zip Tang - Cold Coming (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:611F618043BFFE736FBE35DAFF7FD6DDE9B4CE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

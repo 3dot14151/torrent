@@ -19,8 +19,7 @@ Hidden Mysteries: Vampire Secrets / Hidden Mysteries: Секреты вампи�
 ```bash
 magnet:?xt=urn:btih:6A38236F2C6AF4F5E5EBDCB20F52AB3F620D868C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Midnight Mysteries: Salem Witch Trials / Тайны прошлого: Гонен
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

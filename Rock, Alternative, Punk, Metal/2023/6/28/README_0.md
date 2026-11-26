@@ -22,8 +22,7 @@ Soul Grinder - Filth Encrusted (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thras
 ```bash
 magnet:?xt=urn:btih:7FBA79ABC18E00E37330599BC84FA085C276EADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ignis Noctem - Desecrated Darkness (2021) [FLAC|Lossless|image + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:9BA0800458DD046F69E91A602E6123F3E018683A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chris Angels - Chaos - The War of the Worlds (2023) [MP3|320 Kbps] <Progressive 
 ```bash
 magnet:?xt=urn:btih:1EC70F414BB950BEC14DFB7C821C2B69E95B67DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

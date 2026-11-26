@@ -24,8 +24,7 @@ Kriegsmaschine - Enemy of Man (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:58EE710F035E65DF420077A80AC0D46EAA05E9B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Shark Island - Law of the Order (1989) [APE|Lossless]<Hard Rock / Glam>
 ```bash
 magnet:?xt=urn:btih:76181E5C04D623F9615B56DE7E60B97E6410B127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Noctem - Exilium (2014) [MP3|320 кб/с]<Black/Death Metal>
 ```bash
 magnet:?xt=urn:btih:479F9E97239CDCC0B248951E196A064442C58293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Switchfoot - Fading West (2014) [FLAC|Lossless]<Alternative Rock, Christian Rock
 ```bash
 magnet:?xt=urn:btih:A253CC7159BFC5F24096C9C2F161D12A1762C58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Shylmagoghnar - Emergence (2014) [MP3|320 кб/с]<Progressive Black Metal, Atmo
 ```bash
 magnet:?xt=urn:btih:E419F12EACE870AF7C1E3BA29727CA35DC8B81C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Therion - Theli (1996) 2014 Reissue [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:35FF81CC9B5095212974D26E48A2571C459F2671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Pink Floyd - From Abbey Road to Britannia Row The Extraction Tapes (2014) [MP3|3
 ```bash
 magnet:?xt=urn:btih:B352CCBA4886FBBCD0C9480E1C0B7247E9402C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Prime Circle - 4 альбома (2005 — 2012) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:FCF158727FBE925393EFCC837C0A0FC4823A102F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

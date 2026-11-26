@@ -19,8 +19,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/Multi] (16167732/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:80224402D8A8EFE34A8BFA2F220D1E963F6E9DBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ASTRONEER (2016) [Ru/Multi] (1.36.31.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3BD29796140F7DD6E4F1D86971266A0B92C55CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fran Bow — приключенческая игра, рассказывающа
 ```bash
 magnet:?xt=urn:btih:4421AF89DEF6A7CABAA671AC603F769F3F14F32F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Riven (2024) [Ru/Multi] (1.7.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:FCF6F27711EBF52D90847CEE5A10626D8FE03D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E21B5CA85201BFDB4163180ED06EF980301CDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bridge Constructor Studio (2025) [Ru/Multi] (1.0r11-fix) License GOG
 ```bash
 magnet:?xt=urn:btih:F2F6E6D9F7682A4700193E19C6E33D70490DE289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Construction Simulator 4 (2025) [Ru/Multi] (1.0) License GOG [Pocket Edition]
 ```bash
 magnet:?xt=urn:btih:52A88D0D8C7E455B65A05117F8BD269625C00C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Shadows of Doubt (2024) [Ru/Multi] (41.04) Repack Necros
 ```bash
 magnet:?xt=urn:btih:F46CF6B929D81870208762778C1D60B2DAEC0FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Kentum (2025) [Ru/Multi] (1.0.b114.cl75908) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:65356A2B46E2680AB0E882815B8076B705DA0FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Street Fighter V (2016) [Ru/Multi] (07.011/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:31D41B192395426A9767B3B28378FDD5A4F149CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ A.I.L.A - хоррор от первого лица в сеттинге неда
 ```bash
 magnet:?xt=urn:btih:6BAC25D0DFBBA27827882841A97AC88709209231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ A.I.L.A - хоррор от первого лица в сеттинге неда
 ```bash
 magnet:?xt=urn:btih:397C457C5605F656F8056F5015763C3F834F03A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

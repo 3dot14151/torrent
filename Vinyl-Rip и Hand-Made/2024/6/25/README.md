@@ -22,8 +22,7 @@ Lutharo - канадская метал-группа основанная в 201
 ```bash
 magnet:?xt=urn:btih:87C879AE85426435E987E46CF9E32F120D6CE2E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

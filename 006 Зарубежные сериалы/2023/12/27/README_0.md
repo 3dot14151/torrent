@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0110C44A10BCF71C3EDEA6444B59CC48FB1E954A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cамолёт терпит катастрофу, и выживших в нём �
 ```bash
 magnet:?xt=urn:btih:0739F94563E1444E9647D43602F91B4049CF0732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cамолёт терпит катастрофу, и выживших в нём �
 ```bash
 magnet:?xt=urn:btih:3837157B4044AAB9793F9B0A534CAD9B40AD9FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

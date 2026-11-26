@@ -22,8 +22,7 @@ Sananda Maitreya - The Sphinx (2011) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul, 
 ```bash
 magnet:?xt=urn:btih:6D7B73580EE6E60FEC15849C4B43145929317696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 ```bash
 magnet:?xt=urn:btih:9AA6B108F30C688158E240256C741207E3E88DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:08264CF9AFAD7613B1F695B4A3FF91717FB20E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ RogueKiller Anti-Malware можно использовать бесплатно 
 ```bash
 magnet:?xt=urn:btih:1379A92AC7C44F3D149246855A2C7311CAEE809A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA7F727F45675358BFD0C33F6BF4DF77B607F22F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Got no ego - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 ```bash
 magnet:?xt=urn:btih:17B5FD0A6A170ED626B6F1618ED9330BD0CE1446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Mythologyca - Corner Of Hell's Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ```bash
 magnet:?xt=urn:btih:FFBE48BAA7FEBBD205E77AE1D2007028A7E83576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ BLNDR - Callopsis (2021) Kizen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, T
 ```bash
 magnet:?xt=urn:btih:86141BD6EDC4445C58EF46D23C97F0A36FD266EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Sincere Trade - Between You And Me (2007) Sublight Records [FLAC|Lossless|tracks
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ VA - Best New Hype Techno (2021) [MP3|320 Kbps] <Techno, Minimal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ VA - Guido's Lounge Cafe, Vol. 4 (2020) [AAC|~325 Kbps] <Chillout, Lounge, Downt
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Potlatch - On The Cloud (2021) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ VA - Guido's Lounge Cafe, Vol. 5 (2020) [AAC|~330 Kbps] <Chillout, Lounge, Downt
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:F15575E00776F7C701B1013DD65AF3A8D40B4CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ VA - Guido's Lounge Cafe, Vol. 3 (2019) [AAC|~338 Kbps] <Chillout, Lounge, Downt
 ```bash
 magnet:?xt=urn:btih:C529261DA3619FBBCD05FA6521E656B102E90579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ VA - Guido's Lounge Cafe, Vol. 7 (2020) [AAC|~327 Kbps] <Chillout, Lounge, Downt
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ VA - Guido's Lounge Cafe, Vol. 6 (2020) [AAC|~326 Kbps] <Chillout, Lounge, Downt
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ Blochemy - Aithem (2021) whitelabrecs [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ VA - Guido's Lounge Cafe, Vol. 2 (2019) [AAC|~325 Kbps] <Chillout, Lounge, Downt
 ```bash
 magnet:?xt=urn:btih:86BE3D545334FCBACC805E36F46E4A0CF477DD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
 ```bash
 magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ VA - Guido's Lounge Cafe, Vol. 1 (2019) [AAC|~348 Kbps] <Chillout, Lounge, Downt
 ```bash
 magnet:?xt=urn:btih:75041E6DD28FC5BAB2090BA839FB0068D8006652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

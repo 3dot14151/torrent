@@ -19,8 +19,7 @@ Debian GNU/Linux 7.4.0 [i386] 1xDLBD
 ```bash
 magnet:?xt=urn:btih:06496B7E7AF630E9742D1DB857A86C906AAEEF78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debian GNU/Linux 7.4.0 [amd64] 1xDLBD
 ```bash
 magnet:?xt=urn:btih:FE3DB3920DF4BB970606BC7A454782275D710776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

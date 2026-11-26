@@ -20,8 +20,7 @@ AOMEI Backupper позволит смонтировать выбранный о�
 ```bash
 magnet:?xt=urn:btih:06668CE16CF279731D1F10B397D24DAA9E14DFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Might & Magic® X Legacy - это приключение для одного и�
 ```bash
 magnet:?xt=urn:btih:C747427F87923C92E667CAFF0718557188CB9FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FECF2F7E6F4CE611767DC43E1AF56087AAD7C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:538A96391E391FED8565C9CA1F314EC24477E305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Nicon Capture NX2 - мощная программа созданная комп�
 ```bash
 magnet:?xt=urn:btih:ED897A51FE50B5220C514C53FD63C3414C3CA2C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Dendy (128 best games) [PS3] [En] [4.53] [Cobra ODE / E3 ODE PRO] (2014)
 ```bash
 magnet:?xt=urn:btih:AC731505D86EF38E499BF6263BBFCE1A446899A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Microsoft Windows XP Professional SP3 Russian VL (-I-D- Edition) с интегр
 ```bash
 magnet:?xt=urn:btih:BABA351EE2E9A29704F1AD145EA04CEE1582CEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

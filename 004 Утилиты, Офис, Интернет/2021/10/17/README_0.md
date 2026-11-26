@@ -20,8 +20,7 @@ Net Disabler - небольшая и простая в использовани�
 ```bash
 magnet:?xt=urn:btih:FD9875DA86C884FEEC3F0865C9018390B6F16819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

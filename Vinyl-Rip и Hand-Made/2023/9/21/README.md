@@ -22,8 +22,7 @@ A2 (b) Rondeau(   Читать дальше...   )Жанр: Classical, BaroqueП
 ```bash
 magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

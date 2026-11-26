@@ -19,8 +19,7 @@ PostgreSQL (произносится "Пост-Грес-Кью-Эль") — св
 ```bash
 magnet:?xt=urn:btih:1033B07C447AA656671D03A7EDDF768838415E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

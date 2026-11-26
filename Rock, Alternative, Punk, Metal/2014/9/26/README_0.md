@@ -28,8 +28,7 @@ Eyehategod - Eyehategod (2014) [FLAC|Lossless]<Sludge Metal/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:62A27EA3AEDFF894E5A7EB133496501C02A7C8F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Martin Green - Crows' Bones (2014) [MP3|320 кб/с]<Folk Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:5892E42E5D3E788D9E582600AF2B5219974F54FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Ex Hex - Rips (2014) [MP3|320 кб/с]<Punk Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:38E636682EE8F9070F42BFDAB15DDFB899C511FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33090A6072D640725130C135DA420969C8FB49D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:66400D3C02F23A5816F1EA407ECC76D8322C1B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Sick Of It All - Last Act of Defiance (2014) [MP3|320 кб/с]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:04BB1DDE4C6B738837F966FA67F0070FEFB6BA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE46AD1499FBEABFA67BF1593864EC0EAA05A2DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5F9417D2CB48E93450261E27C53EFEBDF25AD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

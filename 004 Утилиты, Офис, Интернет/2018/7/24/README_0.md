@@ -20,8 +20,7 @@ Print Maestro - новое элегантное решение для печат
 ```bash
 magnet:?xt=urn:btih:3ED46687C88AF19AAD1790D1774378836FAAC947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Immortal Love 5: Kiss of the Night (2018) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:31256756E76C06DDF52604F19B423EA43CE8A315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bonfire Stories 2: Heartless (2018) [En] (1.0) Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:78DA63DA728CA51759020912D1E5CA2A0E37F64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CHAOS;CHILD (2019) [En/Jp] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:BB5FDA6C8C50DFC8F9155D8DB2F9A2B8292402F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Block'hood – это симулятор строительства городс
 ```bash
 magnet:?xt=urn:btih:1A8FE66F6999FF626A00E2069839240BE44900F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:9BFEE97C5A7BA357C2045C1F32412E3644EB0408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Genghis Rex - Behold The Strange Land (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard
 ```bash
 magnet:?xt=urn:btih:949009432D8ABC61FD23ABB69BCCA66F434FCC90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Unto Others - Strength (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Post-P
 ```bash
 magnet:?xt=urn:btih:026481824F223C3BF701ED4346C70C31D8486CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

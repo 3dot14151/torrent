@@ -22,8 +22,7 @@ Palace Of Black - Palace Of Black (2002) 2003 CD-Maximum [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:B7FB04D131840A8D61DF83DE65561D4966C56E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tubby Hayes - Three Classic Albums Plus (1955 - 1960) 2CD, 2010, Avid Jazz [FLAC
 ```bash
 magnet:?xt=urn:btih:8E51FEB89F5B41BF0F9EE574A34338FBC0619017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Aortha - Monolit (2023) [FLAC|Lossless|WEB-DL|tracks] <power-metal, thrash-metal
 ```bash
 magnet:?xt=urn:btih:7BF71007AF15F8D1FAF82CAB89C450B277D44003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Vision Master - Sceptre (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7262A1C32B75F8D1846909C386147F0D2EA142C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Gravestone - Creating A Monster (1986) 2005 Reissue, Remastered [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:026F406A35759D7A7ACB1F7AD09F7E79CB60F3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F11C29C6E28124944C11AF9CA1039083B0D1EEAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Death Dealer Union - Initiation (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Met
 ```bash
 magnet:?xt=urn:btih:D47067C27005F6E7EEF8074294F06FC44BDD54EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CCE9CEC786E8452FA9571E24C31DB758E0B4B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ The Promise Of Plague - Let Those Unjust Creatures Be Burnt (2023) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:82A205F4E68602C67E0D92BF3D5561A408BEBC8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Sekta Core - Sinfonia del Caos (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, g
 ```bash
 magnet:?xt=urn:btih:00541D126A4633B4F1080D8D392D9EA2F798809C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Xiphos - New World (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:E76994D4A70A1B9D615E234DF6EC8AFFA4EEE86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Neonfly - The Future, Tonight (2021) [FLAC|Lossless|image + .cue] <Melodic Power
 ```bash
 magnet:?xt=urn:btih:C666A84558D2D5FA31918DBF44C61209057D4DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Mitski - The Land Is Inhospitable And So Are We (2023) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:6C59D209373C74F32087212D597A1CD864DDE48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Bruce Soord - Luminescence (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive roc
 ```bash
 magnet:?xt=urn:btih:AE1E0EC309A7834375B23CA023E918A77899008D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ Mercenary - Soundtrack For The End Times (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 ```bash
 magnet:?xt=urn:btih:74BE361EC54C1409D9CF35C1AE75BB4D16367116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Soen - Memorial (2023) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Progres
 ```bash
 magnet:?xt=urn:btih:A8467E8CD4587B790CB2912E9685A0EEA07DAA21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Nergard - Eternal White (2021) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:A88B0258C9C1397E970422F6A3D305233BED5AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAC03D0F324FD238803A1F0432301DABC747975B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ Corinne Bailey Rae - Black Rainbows (2023) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:DFD5C66CFB53E1622DCA1C87A86FAE6E2C84A969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C7176C7626B6D393228F5717A14E92C98F69F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Marco Ragni - Psychedelic Trips & Artificial Dreams (2023) [MP3|320 Kbps] <Psych
 ```bash
 magnet:?xt=urn:btih:B83F3E717ACA78AF0F6BFDF33562E81D36C563BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Automat - Modul (2020) 3CD, Compost Records [FLAC|Lossless|WEB-DL|tracks] <Trip-
 ```bash
 magnet:?xt=urn:btih:C02121656F929CC0F865D88CE4ED9B600740BDEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ Automat - 3 Albums (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Trip-hop, Industri
 ```bash
 magnet:?xt=urn:btih:6616355F3BB312D0AEFDD6D3FAD66B8250BF3AAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ Subsignal - A Poetry of Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 ```bash
 magnet:?xt=urn:btih:EE91F6C31020F037E78EDED8BB66FF3CDE7563BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4EE0700717A802620B2391902102FC6B331CF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67C665610E821527BA603A81C155E3824477E0ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

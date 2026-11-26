@@ -18,8 +18,7 @@ SoulCalibur IV (2008) [PS3] [EUR] 2.35 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 ```bash
 magnet:?xt=urn:btih:983D73D24D44F3205DBB877894A469E5CB72D73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ LightWave 3D сочетает в себе продвинутую визуали�
 ```bash
 magnet:?xt=urn:btih:2B4B65FAD93EF56DD81C1B18F11A9C2B3A9F6A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EC3BA20FEB8B1621A7908465AF386C3DBBF4D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Windows 10 Manager - программа-оптимизатор все в одн�
 ```bash
 magnet:?xt=urn:btih:97890061C9EF36CB69025A90ED774DA63FFB7202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77F806AE9AEA46F7E3DB1F2FF44217B91BB5784D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ EA и Ghost Games отважились на перезапуск серии Need
 ```bash
 magnet:?xt=urn:btih:8E6328C86434F133836276F80F9CE9205235B4AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:758A45D62283233FF320E04A3F194B0BE28AD973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Substance Designer — мощная программа, которая пред�
 ```bash
 magnet:?xt=urn:btih:206C2ECF8BFD586B4756984AC446FC34033FF5FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0AC9B79EA06EAE2F0497AC5C5FABD495839CDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ TL;DR: DNS-резолвер в Windows 10 отправляет запросы н
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ POSIX-совместимая операционная система реаль�
 ```bash
 magnet:?xt=urn:btih:7B9F102C45182B30C68CF3526BA09C10B40105FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:381B774A953FCA75A3983ADED09FC8D68E34F9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ LEGO: Jurassic World (2015) [Xbox360] [Region Free] [FreeBoot] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:18C32CAE0125104376CA03EAF2A9F8D463A9456A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Lego Harry Potter: Years 1–4 (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO I
 ```bash
 magnet:?xt=urn:btih:EEEF3F91076C2496967BF33BD7DAE06E1B3EBB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80A2D66EAEBE45F7B4FBEF0D075F3D258E6809CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8C7978E0C76C93DB8450A28A2456CA9DB649E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:884DA0C5773AD550AFBF295D4D3CE093906096CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +446,7 @@ Darksiders: Wrath of War (2010) [Ru/Multi] (1.1) License PROPHET
 ```bash
 magnet:?xt=urn:btih:DCAE6DA3ABA419E69C677EA4661FD6AC7A08A598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ Rhinoceros может создавать, редактировать, анали
 ```bash
 magnet:?xt=urn:btih:31944D28E02B82972E87D18290F15CF162B44391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +497,7 @@ Darksiders 2 является продолжением Darksiders: Wrath of War,
 ```bash
 magnet:?xt=urn:btih:B348DF378860D1EAA72C5636994F5278C3233569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +522,7 @@ Highlights School | Портретная обработка (2015) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:C43F5F0A1C5F65D72AA73C2F85EE6BDD70CDB676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +547,7 @@ POSIX-совместимая операционная система реаль�
 ```bash
 magnet:?xt=urn:btih:3BCD7F32FC07F5FF5086785E49E75A55DBFDDC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +572,7 @@ AMI DuOS — это гипервизор виртуального режима, 
 ```bash
 magnet:?xt=urn:btih:7CA533C4CC4256E556604B42F531955B4527B78A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +597,7 @@ ZOMBI (2015) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:4DE6DBFA49A7A5996C83A217C34815F1E1E272BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B0D7EAB8FC04F1EC4248952ED77480AFA15EE8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +648,7 @@ Tekken Tag Tournament 2 - продолжение спин-оффа знамен�
 ```bash
 magnet:?xt=urn:btih:F0F8231D3D4AAF7ADAC038A945E7E97D5813393B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

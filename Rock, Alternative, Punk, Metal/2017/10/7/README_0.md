@@ -22,8 +22,7 @@ Thunderhead - Thunderhead (1975) Reissue, 2009, Crossroad Productions [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:E65D4AF84F409A9EA9E9665836712817303AB241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Raventale - Planetarium (2017) [MP3|320 Kbps] <Atmospheric Black Metal, Black Me
 ```bash
 magnet:?xt=urn:btih:2D9B7FCB2A3DCEF7B76517F6A00CC4406E3068B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

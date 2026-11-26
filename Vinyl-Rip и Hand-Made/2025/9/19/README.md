@@ -22,8 +22,7 @@ Paradise Lost  — метал-группа из Великобритании, о
 ```bash
 magnet:?xt=urn:btih:0BA298A1C235004C788CBF26E74AC348E715FC56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ I Prevail — американская метал-группа, созданна
 ```bash
 magnet:?xt=urn:btih:6DB6C047AEBE1A3FEA74794078084A9B767B0ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Novembers Doom - американская дум/дэт-метал группа 
 ```bash
 magnet:?xt=urn:btih:95159EB1D1E266E841D465BC78BFE2EAF3565E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Ravager - метал-группа из Германии, г. Вальсроде,
 ```bash
 magnet:?xt=urn:btih:7A1C5C4D5782ED6180D0FEFF0B2DA2B289BFC3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Sins Of Omission - рок-группа из Стокгольма, Швеция. 
 ```bash
 magnet:?xt=urn:btih:47D73380091BA6939F041E1BE8C65A1D1BA970BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

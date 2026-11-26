@@ -19,8 +19,7 @@ BlueTooth Driver Installer - небольшая бесплатная утили�
 ```bash
 magnet:?xt=urn:btih:40AB35F9F0C10B7651EAAA5347906009567F1EC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

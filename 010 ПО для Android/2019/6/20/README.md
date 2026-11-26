@@ -19,8 +19,7 @@ Screen Translator Plus v3.2.1 [Ru/Multi] - Переводчик буфера о�
 ```bash
 magnet:?xt=urn:btih:11535DB5AF08E6D00A3BAC2CD066438412A0E6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

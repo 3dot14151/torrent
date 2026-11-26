@@ -19,8 +19,7 @@ XML Blueprint 22.20260704 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:36E245D791BA9C261A8B8A84633A624E6C578B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SoftPerfect RAM Disk - программа для создания виртуал
 ```bash
 magnet:?xt=urn:btih:990B5A19E122544201662279FA71D63504E7BD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ HEU KMS Activator — это простая в использовании про
 ```bash
 magnet:?xt=urn:btih:1D62A85D0C0713FBFB7B582B08CC02203EC6A519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ AnyDesk 9.7.9 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:76161C1C6018229422F0227EE71FB2DDC0A4A262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:4FA66CAB4B396896A4C38852133F12C1248421B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79AABF025B9CF00EC873A200141952726D065D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:497D152D13E4F64C308E34B6526036C300E30508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 ```bash
 magnet:?xt=urn:btih:DD4B5A0F3443830E52DFEEB8D87502F0E070D1C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ FTPie — это современный, безопасный FTP-клиент �
 ```bash
 magnet:?xt=urn:btih:01A54CCEC831C8815966B4C324257ADBDE56862C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:193454E2BBB5D13251A0151D47CE397FA672590C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Kalmuri не имеет встроенного редактора изображ
 ```bash
 magnet:?xt=urn:btih:5DC32FC5225A1CA630E1192C671EB9CB194A35F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ RustDesk Remote Desktop – программное обеспечение для
 ```bash
 magnet:?xt=urn:btih:43738D30B5C3BF65DB674E78545273355A14654A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Microsoft Activation Scripts (MAS) 3.12 portable [En]
 ```bash
 magnet:?xt=urn:btih:8296A9163B071AC7D3277269BCB0E2C6FD83F87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

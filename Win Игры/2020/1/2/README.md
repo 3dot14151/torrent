@@ -19,8 +19,7 @@ Labyrinths of the World 11: The Wild Side (2020) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:28B5E260CA638DEA37917378F4045DE8986FFF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/Multi] (1.32) License GOG
 ```bash
 magnet:?xt=urn:btih:F9D16E5848D6021EE295AAA73EB73F4D9DDE4F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/En] (1.32) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3012737D2628D02273360EC150AA2DFB1273BC05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 ```bash
 magnet:?xt=urn:btih:764019BCDEA5D404B6A225883E95E36FBD5AA49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MiniTool Partition Wizard - мощный менеджер для работы с
 ```bash
 magnet:?xt=urn:btih:56E5408DD3343D3E26F8ED54F809881DFF47AE1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

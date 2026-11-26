@@ -22,8 +22,7 @@ Andre Previn - Plays Songs By Harold Arlen 1960 (1994) Original Jazz Classics [F
 ```bash
 magnet:?xt=urn:btih:194A9BF809C9927C0DEA8480CB11CC9E4CA98B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Autopista является журналом декана автомобильн�
 ```bash
 magnet:?xt=urn:btih:0751208EC88B7DA910E5BB538EB1F6F02C374629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Autopista является журналом декана автомобильн�
 ```bash
 magnet:?xt=urn:btih:563B568CC19ACCDD9DE292F48FA3A8944ED312C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Autopista является журналом декана автомобильн�
 ```bash
 magnet:?xt=urn:btih:DDA01E5505DDBE1899191DE6B7BAAAE8912670A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Yank Lawson-Bob Haggart Jazz Band - Jelly Roll's Jazz & Louis' Hot 5's And 7's 1
 ```bash
 magnet:?xt=urn:btih:EE166F82169066515206D02F8111FBB79275EF06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Autopista является журналом декана автомобильн�
 ```bash
 magnet:?xt=urn:btih:04D0CA4524C80762CB82F2040552FAF7FABDE511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ J.T. Wilde - Enjoy the Show (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
 ```bash
 magnet:?xt=urn:btih:DFF0A518B602CE73E870E50DC6F32B0A03CE44AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACFB19002E57863D7DF1F9826A3BCED9DCF2246E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Megatherium - GOD (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:D1CF002614196A0AC48A7D882ADB0E79D0D1238C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Ella Fitzgerald & Andre Previn - Nice Work If You Can Get It (1983) Pablo [FLAC|
 ```bash
 magnet:?xt=urn:btih:5A6D98369B512A9337FB9B0EA03D411445403613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Car Plus - Основанный с 1993 года, Car Plus является са
 ```bash
 magnet:?xt=urn:btih:1401E7686A82C3C5B0A56EB70121718F9CE751FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8D12788AAFB0ACF3040E3E0DABEB00127527841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Fire Tiger - All The Time (2020) [MP3|320 Kbps] <Rock, Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:09A2DE7C966DBE4E4B5770AAFBF0F2618B1D4BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:097C9AA3D2DF7B83F16360CAFB055F469A3751C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ The Last Renegades - Valley of the Kings (2020) [MP3|320 Kbps] <Heavy Metal, Har
 ```bash
 magnet:?xt=urn:btih:A35BF227D348E9624E14D8274550ECB38B2F0496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ Operus - Score Of Nightmares (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal
 ```bash
 magnet:?xt=urn:btih:7B5D11F7EF5061E408247BA3B4D12AB017CF9AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Ergus - Insomnium (2020) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:0D980AA030F2FC4194389CF9D01E6330DA50C8C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B24D9930FC3473B5C5BE67DE74ACAF08737B9340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Neru Thee Fourth Fugee - The Almanac (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-H
 ```bash
 magnet:?xt=urn:btih:C36A7AB0A710BB57A3C62FA55355808C77EEDBF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Heraw - You Won't Play (Ultra Mood Kick Edit) (2020) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:07545D97D69AD7250FF7B9D893F8C73CF5307FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Black Light Animals - Playboys Of The Western World (2020) [MP3|320 Kbps] <Rock,
 ```bash
 magnet:?xt=urn:btih:89A8C9FBCE7F71DD4C19B169B2875EF3291444D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ VA - Twelve (2001) TIP.World [FLAC|Lossless|tracks+.cue] <Ambient, Psychill>
 ```bash
 magnet:?xt=urn:btih:BDE4CBFAA1F06D711BD52CAD448EE05FCF91F93D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ Elle, женский журнал о моде и моде в мире. Его с
 ```bash
 magnet:?xt=urn:btih:274488BC9A7A458F78C0ED4E4F2A3C09938A92ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ Moses Boyd - Dark Matter (2020) [FLAC|Lossless|Web-DL|tracks] <Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:03EC23D774278C6A9EC274F5B9E401CFE08E91D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

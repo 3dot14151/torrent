@@ -22,8 +22,7 @@ Seance - Fornever Laid To Rest (1992) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:B1FF691E632FD3C9F26A573C50EFB872774F7327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rosicrucian - Silence (1992) [FLAC|Lossless|image + .cue] <Thrash-Death Metal>
 ```bash
 magnet:?xt=urn:btih:C4881660C10212DF3DABF1A3EA12AED5ECF8E4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5044E7C9C22B814488CC53F27FDB4CE8404B5416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CEC97D51B397D1078DCBF6AD1C3EB3740CF77A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Dance Solution Summer Compilation 2018 [MP3|320 Kbps] <Hard House, Hands Up
 ```bash
 magnet:?xt=urn:btih:11FA229970A41E7108CAD07DD092232B7804AF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Kataklysm - Meditations (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:F5BCD883C5FB97684857B95808025C4CDF8895C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - Pure Salinas Vol.9 [Compiled by DJ Zappi] (2018) [MP3|320 Kbps] <House, Dee
 ```bash
 magnet:?xt=urn:btih:4F27C6BB7D8468619184C7C67D8E15AB1889C7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Modd - Phangan Dreams (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill
 ```bash
 magnet:?xt=urn:btih:B5B63D4B7E807A5C848929D02491787E736F0811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Hoon & Ryuichi Sakamoto - CBL [Cd Baby Love] (2003) WEA Japan [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:5E57AFEC14C58B8D09F77F6478F8F06E35D7A08F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41EF5AFACA5F59F04886B2C20EB843BF9C127E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBBC7E85B806801B720F3769F5F0AE9A43E8F453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Abstract Elements - Join Us EP (2018) Invisible Recordings [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:284DFE53359A44FA3F06481DC90E6C359BD475D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Beach Grooves Maretimo Vol.1 (2018) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:E5233BA897086968DEB09E773446AC60858A5597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Modd - Baroha (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Ryuichi Sakamoto - Henkaku No Seiki — Century Of Reform (2002) WEA Japan [FLAC
 ```bash
 magnet:?xt=urn:btih:8266F1A353985BAA171AA17BD5CD158FBBA8EA8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F323E581DF8629CCF0BFE13A28CA5200212AF7B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ DILLYTEK feat ELLIE - See Me Now (2015) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC8B1B4D582A017A7D9BB5B5621E521DBF6D7E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Masayoshi Fujita - Book Of Life (2018) Erased Tapes Records [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:CDFA57DCB6293DD53725B956761AC1BE9F755D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ The Love Unlimited Orchestra - Welcome Aboard (1981) LP [MP3|320 Kbps] <Funk-Sou
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Zeus - Europium (1979) LP [MP3|320 Kbps] <Rock, Prog Rock, Kraut Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Sachiko M + Ryuichi Sakamoto - Snow, Silence, Partially Sunny (2012) Commmons [F
 ```bash
 magnet:?xt=urn:btih:0111DF531AB67F76F9082FF86718EA282A4E8070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Vril - Haus (2018) Giegling [FLAC|Lossless|tracks|Vinyl] <Deep Techno, Techno, A
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

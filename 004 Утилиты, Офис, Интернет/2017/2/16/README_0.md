@@ -19,8 +19,7 @@ Font Renamer 2.1.6 Portable [En]
 ```bash
 magnet:?xt=urn:btih:49049DB2E6AC4436F9B57024D3DA5B194659DD58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ninja Download Manager - удобный менеджер загрузок, ко�
 ```bash
 magnet:?xt=urn:btih:BD078B7DABFE8429AD1DBAB74BE9573D51C50FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

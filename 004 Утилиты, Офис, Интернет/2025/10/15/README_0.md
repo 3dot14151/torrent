@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0ED0F3CEA3302417092DF58DAD7C1C37175D3DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:B5E7492FA799DBEC3E06879C241D553F8D0264F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SIW (System Info For Windows) - системная программа для о�
 ```bash
 magnet:?xt=urn:btih:C3AD3C75AFA3EE824639FE9AE35F3E3878F358E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Universal Maps Downloader - программное решение для ска�
 ```bash
 magnet:?xt=urn:btih:315213673CAC2C8416AFF5FECE189C4DF17AD541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:CA717517D7434C327B87876D608748FC4DFADD74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ imyPass Windows Password Reset Standart / Platinum / Ultimate 1.0.16 [En]
 ```bash
 magnet:?xt=urn:btih:030F4145A14EF486A40FFCC648CDD61DBE3E4A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Office LTSC 2024 предоставляет привычный набор при
 ```bash
 magnet:?xt=urn:btih:BC394BDD36B6E964FE42BEC941FFEA1538905BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:73919660E8B173E6B806BAF5F115F9E6B1331C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ O&O ShutUp10 позволяет получить полный контроль �
 ```bash
 magnet:?xt=urn:btih:03CC84D3B2FE9EDDC22161C8D7ACB813E61A8BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:C12C75AAC296F690F52E4ACE505407911A7C0D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:8D67E2835EB1EBE58D6E642F45C44D795E0D2618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

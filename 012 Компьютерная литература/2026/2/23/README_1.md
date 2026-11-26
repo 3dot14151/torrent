@@ -21,8 +21,7 @@ The book is organized into three main parts. Part I: Foundations lays the ground
 ```bash
 magnet:?xt=urn:btih:C9032761B239137FA11FBB9484270417288A50D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Inside Starting (   Читать дальше...   )Жанр: Software Design T
 ```bash
 magnet:?xt=urn:btih:7B52F3D04F66FE582AEE0F51E9EC36D76A1AA826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E6909F761846B57ED03ACCF1F4B8D9357B9A9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pyre - ролевая игра, в которой вы становитесь п
 ```bash
 magnet:?xt=urn:btih:AB99676EA79225E3E5501C5CF020CF76AC9BB1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Repentant - это драматический приключенческий к�
 ```bash
 magnet:?xt=urn:btih:E9BD04FFF5851A509261233FBBF56A2902E07689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

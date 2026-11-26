@@ -21,8 +21,7 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ```bash
 magnet:?xt=urn:btih:CF211A68E647470037DC4217CD7E0F150E69F897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ```bash
 magnet:?xt=urn:btih:1CA023E26A2BB48F5A9DB22C4A2F9874D814B823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ```bash
 magnet:?xt=urn:btih:B1FC30B4904839C5487FC7F0223E0EC93373B7F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:FF008E1584F6F934FDDB4CC11A0465193E150859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:2F5D14236CA7359DC272C913AF27FE3641F83DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:6899AE9F5EEEAFE97DEF1A652C4B9E67D4CA07C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:6CE55DD767A326A596000234B2BBA6E8058E5B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:D726E2FECB5AE7B021BEFEF56F22D015A1DC653B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:321A0AD7348A873B440D620160035AD620AC375E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:A646E0F33E379D1A80941E88F29A85C5F38713DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:57F97EB170161D7E2072002B240A482124B589DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:839C9FEAB2FCB05A4954D4ED23F55225133AFB20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:A61C03C220B55115308446F4000D9BBFD1A61FAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

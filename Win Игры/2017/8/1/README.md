@@ -19,8 +19,7 @@ Shadowplay 2. Whispers of the Past Collectors Edition (2017) [En] (1.0) Unoffici
 ```bash
 magnet:?xt=urn:btih:6F49A0BF31AC8CC26EFB9057877D5A9D2EB46205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Myths of the World 11: The Black Sun (2017) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:8D5D674C2158867BC702E0E34829E7CA2D02E1E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kingdom Of Aurelia: Mystery Of The Poisoned Dagger / Королевство Ау
 ```bash
 magnet:?xt=urn:btih:952D99A137CDF0E418A807B04B6B3561BC69F09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark Realm 4: Guardian Of Flames (2017) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:D0E5445027A0A41650A9F666787276F0C67B2DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Green Moon 2. Children of the Moon / Зеленая Луна 2. Дети Лун�
 ```bash
 magnet:?xt=urn:btih:12C6ACC245E97E0B3EAC7F1451C447955903852D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

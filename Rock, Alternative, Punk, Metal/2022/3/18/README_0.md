@@ -22,8 +22,7 @@ TSAR - Acte I (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Stoner Roc
 ```bash
 magnet:?xt=urn:btih:ACE410B7BCE08ED844F619DB72E9E33D4D4586FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eels - Extreme Witchcraft (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:8522EF4693166726D7AB930F41A9A09E82CAB2D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ten - Here Be Monsters (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, A
 ```bash
 magnet:?xt=urn:btih:B2756960EB3091793ADF37909E60FD001E9A4B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Shewolf - SheWolf (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:74E9F5FC2106A679A86EEBEE95C66BA3125BC9EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ghost Iris - 6 Albums (2015-2022) [FLAC 2.0|44.1/16|WEB-DL|tracks] <Metalcore, P
 ```bash
 magnet:?xt=urn:btih:C04518D633F49B765C9FF3BCDEBDF115F0B823AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Neverlove - Токсичный альбом (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:2064B3CB46F6DA7EC83AE2297384D6411D0F0FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Skillet - Dominion (2022) [FLAC|Lossless|image + .cue] <Alternative Metal, Alter
 ```bash
 magnet:?xt=urn:btih:5DA4CCF9B6E0882624B3D69B2A70E8867E59D766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E087FDE5CD77BCF13B5AE9C08096A9FCEBBCCE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Hell Militia - Hollow Void (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:987AC3A4741319F53750B9652A56192A15B4CE78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ B1 Famous Last Words(   Читать дальше...   )Жанр: Disco, Funk, S
 ```bash
 magnet:?xt=urn:btih:B4D775DAD19BCFE67295A9254C1554AFDBC690AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Kutse Tantsule • Популярный танец(   Читать дальш
 ```bash
 magnet:?xt=urn:btih:2A0BE810D56ADA08238F37E9107503F8EC4F6CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

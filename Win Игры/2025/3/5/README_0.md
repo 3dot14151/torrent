@@ -19,8 +19,7 @@ RRogue Samurai — это интенсивная roguelite игра в жанр�
 ```bash
 magnet:?xt=urn:btih:34D9BED74DC2B66D3C8B32189C6E97C19EDF287B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 ```bash
 magnet:?xt=urn:btih:937EA348C460F73E2FD0523F7FA032449E2A4A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:6C31974B0DC6EDD6AE8326CA7408E32B4FEB0788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E1318A5A06FD78C52B9C670664F9C587ADA4BD06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pacific Drive - это атмосферное автомобильное при�
 ```bash
 magnet:?xt=urn:btih:71B92B8CE4D705BD2D1A7B1BC8CDD93F86E1BF91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 ```bash
 magnet:?xt=urn:btih:BE84124FB6D201A0712942BB2F1236C55A91FEB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:BA67A6A699B1A1C1416109070D3D7229448B8FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Jсновное внимание уделяется управлению раз�
 ```bash
 magnet:?xt=urn:btih:0A749A788CA6D1D0EB2B7E350B62A61DED7A5B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:098E164F79D81AC2518C7B3C8EF4F66CE5F3BAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Steve Johnson | Adobe Dreamweaver CS5 On Demand [2010] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:BB538B6F15ADF7D14107EA070FA44E7C0371E1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ David Sawyer McFarland | Dreamweaver CS6: The Missing Manual [июль 2012] [PD
 ```bash
 magnet:?xt=urn:btih:951CAABCC40BE913CCBCB8E436B8F3926C077986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBEDE93CCED1E8AAD6BC7B8499A55F69CE2A6386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6925FD769EE902D16BD1239DEC64875C8264555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

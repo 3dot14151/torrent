@@ -28,8 +28,7 @@ Astra - Broken Balance (2014) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:3E8C7E978817472C1E5A01B9E83769980C57B378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Human Project - Origins (2013) [MP3|320 кб/с]<Melodic Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:55D03A97B8A39E6606941B4F5A4F38D535FA16FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Merging Flare - Reverence (2011) Japan [FLAC|Lossless]<Heavy Metal / Power Metal
 ```bash
 magnet:?xt=urn:btih:3CE607329BBAC8A12875C0F9BC8A0CF7586E1529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Kill Devil Hill - Revolution Rise (2013) [FLAC|Lossless]<Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1CEFFF6915A21CD973D9F6A97DEE0C1F207BC15A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Entombed A.D. - Back To The Front (2014) Limited Edition [FLAC|Lossless]<Death M
 ```bash
 magnet:?xt=urn:btih:D7FB1A20F7F65F70AB5242D2235E9A461479BE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Outloud - Let's Get Serious (2014) Japan [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:DCF5CC5F10AD1443D812A4509369F4EA899A75D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Wolf - Devil Seed (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7FD4640C5EF64ABEA029C1851E6A94134A6BA887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66F31F7D344570280C7B27A2035D5A40FA67313F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Gauntlet - Birthplace of Emperor (2014) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:364476DF6DA30C4B93CAF2D41F41FBFA9D25E74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ Trubetskoy - Ласточка (2014) Сингл [MP3|320 кб/с]<Punk>
 ```bash
 magnet:?xt=urn:btih:1E062840BC250789DFCA4819A36A63245A228683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09C4096F3E9661AAA972E0C67306AA6004EC8466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +382,7 @@ Phil Rudd (AC/DC) - Head Job (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EB337377DBB42E61C7F47D41954469C2247DE7ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA91F95B1DAF806458E196BB603CE413D465B1F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

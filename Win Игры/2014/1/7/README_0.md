@@ -19,8 +19,7 @@ Shtriga: Summer Camp (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F85AA0FCB8CE9201E22AA090113F2D10DEFA893A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legacy Tales: Mercy Of The Gallows / Легенды прошлого. Милос
 ```bash
 magnet:?xt=urn:btih:DB89EB700988F7B98D3C302C11C0E612B73A1350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Brutal Legend — это нестандартный, совершенно без
 ```bash
 magnet:?xt=urn:btih:AE107A428C43E865B5BEC8FD0FB998ABC92E1467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Real World Racing - сумасшедшие аркадные гонки с нео
 ```bash
 magnet:?xt=urn:btih:76FC8A68594D3F6841E44EEF8A70CB5295029B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Brothers: A Tale of Two Sons – это эмоциональное, очень �
 ```bash
 magnet:?xt=urn:btih:539847F9FBE332B861DBFD5B38A4930E7A3396BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Grimm (2014) [En] (1.0) License FANiSO
 ```bash
 magnet:?xt=urn:btih:DA069915094D5DB7204C312195A3B10031E5BBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Unearthed: Trail of Ibn Battuta это экшен приключение от т
 ```bash
 magnet:?xt=urn:btih:825BBC5ED65F4198718FF661961B6B084847FC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

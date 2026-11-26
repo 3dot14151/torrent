@@ -19,8 +19,7 @@ The Keeper of Antiques 3. The Last Will (2017) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:D6F5AB6F6318CCC0D82B7FFB4E236738D203CD1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Secret Order 6: Bloodline / Тайный Орден 6: Кровные узы
 ```bash
 magnet:?xt=urn:btih:17023ED668F76C0A01DC337B0E75158C2FB2CE0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 2 - это все самое яркое, 
 ```bash
 magnet:?xt=urn:btih:59DEF85610C55A23AB4C2AF8F7D11AD040210442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Death Point – это классический стэлс-экшн, котор�
 ```bash
 magnet:?xt=urn:btih:05E426F57FD8CF2A7C86F42514E860A237F5EC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

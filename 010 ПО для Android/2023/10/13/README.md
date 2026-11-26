@@ -19,8 +19,7 @@ Photo Retouch v2.3.4 Mod by Alex.Strannik [En]
 ```bash
 magnet:?xt=urn:btih:CECEC2E8F0785A22268B875C3F0AFC83A0B5D386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SD Maid v5.6.2 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F7F54F1AFD2063952597BEF5FE26808B670C148B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

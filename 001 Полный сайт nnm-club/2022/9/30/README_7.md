@@ -18,8 +18,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 ```bash
 magnet:?xt=urn:btih:BD7BC9ACD76AE0B2E0E62A65733BFF05892173F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88055ED4A1E48858A05CBC8EA42A7E36C8208D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

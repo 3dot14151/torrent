@@ -22,8 +22,7 @@ Battle Beast — финская хэви-метал-группа из Хельс
 ```bash
 magnet:?xt=urn:btih:D54000534ACA8DF8939623144159B2EB51A68A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 You And I(   Читать дальше...   )Жанр: Smooth Jazz, Soul, Fun
 ```bash
 magnet:?xt=urn:btih:D762DE48E3BE4104DB6252EB6CCE61BFD52ABD26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

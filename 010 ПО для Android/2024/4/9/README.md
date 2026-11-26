@@ -19,8 +19,7 @@ Photo Studio PRO - фоторедактор, что понравится все�
 ```bash
 magnet:?xt=urn:btih:3DC156E6887A087643E6413C23563349143A138A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Keyman 16.0.141 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:37314FFAF68E2833828E995A1C91416CA034662D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DirLister v2 beta 4 Portable [En]
 ```bash
 magnet:?xt=urn:btih:15F5260B2C92346CDDBFB9FA64D08458A843A280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

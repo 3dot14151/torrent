@@ -22,8 +22,7 @@ A4. Слепой (1:57)(   Читать дальше...   )Жанр: Рок / А
 ```bash
 magnet:?xt=urn:btih:506E6A04F5BB2BBB92AFF19BB721F51E5BE209C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

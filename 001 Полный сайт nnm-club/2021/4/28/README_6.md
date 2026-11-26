@@ -18,8 +18,7 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:94BA9E75F49541CFEB0571DCBFDA9FA35D5E9195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Book Track - это приложение для каталогизации и о
 ```bash
 magnet:?xt=urn:btih:883AFB5EF361273746E803F9106A18AF3095CC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ EtreCheck Pro 6.4.4 [En]
 ```bash
 magnet:?xt=urn:btih:FAC10966043718E2FBFEA03AE462AF9F84C6A7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Name Mangler — переименовываем файлы пачками. Ин�
 ```bash
 magnet:?xt=urn:btih:4665F5B5F425F5CCD69FE410825494DAD694469B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pixelmator представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:73DC542A39813AEF6EF8C9E36A281D7959BF8EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Calca - текстовый редактор, который любит мат�
 ```bash
 magnet:?xt=urn:btih:9177ACAD64468388CE09801E01D2ECA59498A876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ iReal Pro 2020.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:CCD59D6BB0062BA7844C0211C8FF1C7285FE9A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ TinkerTool System - утилита для управления скрытыми 
 ```bash
 magnet:?xt=urn:btih:4C11A0DE8A1E2AD36B2B86803D5162C9720DBC34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Serpentine - Living аnd Dуing In Нigh Dеfinitiоn (2011) Japanese Edition [F
 ```bash
 magnet:?xt=urn:btih:11F6366E4F875177D773D20E0F0D5CA4028269CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ RazorSQL – программа для управления основными �
 ```bash
 magnet:?xt=urn:btih:A7F722FC8362562185918FF3B487F77F8D4C7C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ACB2CCC1EBB91021D7262D1F292F0EC891B62B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:0BC21FC0F0E054FCD790F298590CED1E6F911E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:1F0F58F76CDF903FAD1B09FFB3D0BAC8BC5BB2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5F8477F9EB8F1C28016F22A6BD591C7AE6E4450A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEFACFC3B52DB05E32EAC42D1B2388E97E7AE3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dropbox раскрыла информацию о запросах от влас�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:366E18DCCC35659D91781A30006640C6B89548CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EFCE25130FC209C9042C025CAFE609926317E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ CCleaner - программа, которая предназначена для 
 ```bash
 magnet:?xt=urn:btih:ED9B621A05A81CCC733223AD67307B422B7B8A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Skype - программа, с помощью которой вы можете �
 ```bash
 magnet:?xt=urn:btih:EDA22254C8FDE9EF275993E49F17074A494F8291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Residue: Final Cut (2014) [En] (1.9) License iNLAWS
 ```bash
 magnet:?xt=urn:btih:D5B6DBECB93B8D814EFE51C15EA00696580C1D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Comodo Internet Security - бесплатное комплексное реше�
 ```bash
 magnet:?xt=urn:btih:28B5740EC76C0A6C0F5A5C7CE8D40AB7482E4571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEEA4123BC8A995656F3F542BCAD9B3FDFDA4188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D49B129B5014BA0514D8184589EE69AC0266525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ O&O Defrag - одна из самых известных и лучших про�
 ```bash
 magnet:?xt=urn:btih:A21250E543F5D6F27876E247186FFBFE309323E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:198221F7C5BE286A7BD1737DEE754ABCDC2EF73A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Fable Anniversary сделала большой технологический �
 ```bash
 magnet:?xt=urn:btih:7F7F239A59492615628623943D3D4DF547396888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of
 ```bash
 magnet:?xt=urn:btih:F37B94B2B2530BF4E7DA52AB4B94ADDA66C98DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ ISBN10: 0-321-96870-0 (далее книга).
 ```bash
 magnet:?xt=urn:btih:7D6D94F71AC9CBFF187D5211EFA47F6A82F6406E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ SILKYPIX Developer Studio Pro - программа которая предназ
 ```bash
 magnet:?xt=urn:btih:FC0B323F9EFE65374E80714E722714CAAEEDF599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ O&O Defrag Professional 18.0 Build 39 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:581D991896138C408A69013C917F4DC1123E75BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ Skydive: Proximity Flight позволит вам насладиться (   Ч
 ```bash
 magnet:?xt=urn:btih:7CF238F1DEBBFB9167BC260D861823559581F31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8B77D51FC74966BA6BD90AEFCCD0F173197D4B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB2BAE360D70218E9E8E3DF7DCD6F12320848C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ Pixel Piracy - зачетный пиксельный RPG-рогалик, где 
 ```bash
 magnet:?xt=urn:btih:934E6ED8D7802C7D19E7CE3AB7ABFE784A94FA84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ Xcode IDE предоставляет вам все, что нужно: от пр
 ```bash
 magnet:?xt=urn:btih:004B45BD30E467FAA90335525CE17CF6CB21EDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ Cars 2 / Тачки 2 [PS3] [EUR] [Ru] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2011
 ```bash
 magnet:?xt=urn:btih:A67913BABD8E39D4F6D31C7135DB275250C3E3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ Acronis BootDVD - загрузочный диск, который вмещает
 ```bash
 magnet:?xt=urn:btih:170D72BD30F45ADFBAC7C6A2E25C82C967015202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

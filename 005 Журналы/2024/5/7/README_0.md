@@ -19,8 +19,7 @@ FOTOHITS - популярный немецкий журнал о фотогра�
 ```bash
 magnet:?xt=urn:btih:A429CB289C0D82EC78604535D429B1EBEE98955E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

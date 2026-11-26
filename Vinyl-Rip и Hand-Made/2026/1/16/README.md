@@ -22,8 +22,7 @@ A4 Jerry Reed & Seidina - You Know What(   Читать дальше...   )Жа�
 ```bash
 magnet:?xt=urn:btih:D6349FB45704E0290FB1A3A68B2143FFE5623752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Wrap Your Troubles In Dreams(   Читать дальше...   )Жанр: Jaz
 ```bash
 magnet:?xt=urn:btih:BBBB73BA74D4BA55089CBD86B0BA6D53CD03A3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Awesome Mix Vol. 1
 ```bash
 magnet:?xt=urn:btih:671C7A96701D9AFFBDA1B76DD8C36C2BF1A1A4B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Like Someone In Love(   Читать дальше...   )Жанр: Jazz, Big B
 ```bash
 magnet:?xt=urn:btih:89CB6632FFC71BFB3AF7A3DEB9847F62D32766F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A4 From Here To Eternity(   Читать дальше...   )Жанр: Jazz, Big 
 ```bash
 magnet:?xt=urn:btih:43C1A143686C134759EE47E8E8DAEF9513D778E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ A4 Close To You(   Читать дальше...   )Жанр: JazzПродолж�
 ```bash
 magnet:?xt=urn:btih:64E33C86D8602B02C22B53B6A53C593245AFB5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

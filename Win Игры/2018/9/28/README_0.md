@@ -19,8 +19,7 @@ Secret City: London Calling / Тайный город: Лондон вызыва
 ```bash
 magnet:?xt=urn:btih:52C9C1F20AD5B0501F2B5975A54583E52B4FAC6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Path to Mnemosyne предлагает вам отправиться в гипн
 ```bash
 magnet:?xt=urn:btih:7E2B1B0166722A75A4BB4979B7CDAA1800B26C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

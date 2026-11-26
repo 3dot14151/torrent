@@ -20,8 +20,7 @@ Auto Recycle Bin 1.13 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:98497DB05E89E08DD69E040BD647C0C0548823BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

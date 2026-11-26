@@ -19,8 +19,7 @@ Fatal Evidence 4: In A Lamb's Skin / Роковые улики 4: В шкуре 
 ```bash
 magnet:?xt=urn:btih:524AF6F9228488B2B9FB63EA4D35D51CE5771BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Little Misfortune - это интерактивная история, основ
 ```bash
 magnet:?xt=urn:btih:BE4A7E0FAD30DBC3626233D98A949A2B8FE75023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Chrono Trigger - бессмертная классика ролевых игр �
 ```bash
 magnet:?xt=urn:btih:C1B9225533656DCFC65992B1775658D10098CAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mistover (2019) [Multi] (1.0.9a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F4A4F0A7FC6C470EB1C5AE468C936BCD9CFD97E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Creepy Tale (2020) [Ru/Multi] (1.0.2b) License GOG
 ```bash
 magnet:?xt=urn:btih:1D6A7B1CC241D741EDFE7512B68855DB0497D98C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mayhem in Single Valley (2021) [Ru/Multi] (4.0.00) License GOG
 ```bash
 magnet:?xt=urn:btih:822D4B7F89D985BAEE7C53EF66F96EF58BBD9293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Retro Machina (2021) [Ru/Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:547167F36463A51C23F295C84A33F19DD9266F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tasomachi: Behind the Twilight (2021) [Multi] (20210422/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:92E525F7F9304E62A3282142C182CAC481AB775A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Yakuza: Like a Dragon — приключенческий экшен с видо�
 ```bash
 magnet:?xt=urn:btih:5C67CDB49E18AAEF0C529ABE04694823831C058A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Hitman: Blood Money — Reprisal 1.2RC13 [Ru]
 ```bash
 magnet:?xt=urn:btih:E7224C65FEF4E2517BB4391A3BA8AF51B7A04138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Beholder 2.6.269 [Ru]
 ```bash
 magnet:?xt=urn:btih:DE2F41B48396B4F6B5A6A99EF12074A8601A392B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Concordia: Digital Edition - это точная адаптация страте
 ```bash
 magnet:?xt=urn:btih:9C30011E75C0C455126E8E246ADBE17D74538230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ LUNA The Shadow Dust — это полностью вручную анимиро
 ```bash
 magnet:?xt=urn:btih:647483E98E7A129176F35EF169AA304DDB33A3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Alawar и Warm Lamp Games представляют квест Beholder. Стил
 ```bash
 magnet:?xt=urn:btih:CB312F384FB193A1F3A335B9165B5E0F7130C2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Stone Age: Digital Edition 1.2.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:D29CCB129F7C415E7B8E35018DF219C471CDE8FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

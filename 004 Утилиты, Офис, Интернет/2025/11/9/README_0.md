@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:BA3A83EE6D9DE201EA77788C1997934387F683C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE9502A8FD11819E989C5A2C9FB6C63EC63AFCCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:BF77D9E6AED0C743A997FAF17696C067C4CC3A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:72982A9A544482FDCD8D7C294899C38E92DBF14A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ PDF Combine Pro — это настоящая находка для тех, ко
 ```bash
 magnet:?xt=urn:btih:F8416533074A49D0004C4DB650FA9891CD18BB25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:EBD6142A649D6398638F11472A63552C547321D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Sanctorium - The Depths Inside (2014) [FLAC|Lossless]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:FD61639414D35E3CE32F170BF0A5D02025E3BD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Hammer King - Poseidon Will Carry Us Home (2018) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:D0080109B3A1F2AE130DA20C42D27A2AA92AD9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD - 1 - En Delirium:
 ```bash
 magnet:?xt=urn:btih:8B30BFFB8779CD6AB43BBA9E06B187C3B3CEEDC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Flotsam And Jetsam - Blood In The Water (2021) [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:A0C2E9E6B5554E1F158A101CAF5362BDEA816F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hammer King - King Is Rising (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, P
 ```bash
 magnet:?xt=urn:btih:16DA3211D38014F5EE8B685A20705F266EFFD0FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Skarlett Riot - Invicta (2021) [FLAC|Lossless|image + .cue] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:9E3CE7595A40F5788A5734EE6AB4CF3006375CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Infinite & Divine - Silver Lining (2021) [FLAC|Lossless|image + .cue] <Melodic H
 ```bash
 magnet:?xt=urn:btih:D2714E28E46B256492F60981FF1C320D24EFCC67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Soft Rock Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:C1E21507242074DB4EDA2B33F7A6E6E267A66C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21BAB6C16CEB2818E6B40353C300EDB6CBB81C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Foreigner (рус. «иностранец») — американская рок
 ```bash
 magnet:?xt=urn:btih:C1C0C83290DE05E6CD753A31AF0D4A8E42137FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

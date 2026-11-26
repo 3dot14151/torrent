@@ -20,8 +20,7 @@ GNOME - стильное и оригинальное окружение рабо
 ```bash
 magnet:?xt=urn:btih:495F1F83FD3B7C1E247C3360DA9005FA36521578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

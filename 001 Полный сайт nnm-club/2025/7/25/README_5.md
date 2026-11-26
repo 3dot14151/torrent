@@ -18,8 +18,7 @@ MAGIC – ALCHEMY — это профессиональная библиотек
 ```bash
 magnet:?xt=urn:btih:F753E319DE93D87DB140ABFA202755FAE07799D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Detectives United 8: Vengeance from the Past (2025) [En] (1.0) Unofficial [Colle
 ```bash
 magnet:?xt=urn:btih:7EC40F58EF2E08979BC4F824DB7C2B6C7B280372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B95A7D1217A97A48BCA6EDFC831447D79B36D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:3D2DA901E92908F87E5CF366D93AC974F604CFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Compilation Part 177 Electronic (2025) [MP3|320 Kbps] <Electronic, Easy lis
 ```bash
 magnet:?xt=urn:btih:16406855CA226C088A53CA9460F83F5FC70351F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0908CDB0FED8F4D5CFC5B1DAD1E0189CD410DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57B69C730B8E22A3D5AAE57229F8C46C8993B4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B5EBCD2821EE3297382CE481CE24C95D93C8FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - Music News For Forum vol.118 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:5370250C4093867B2BC0D8950C89D407EAAD4D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

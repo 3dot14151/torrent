@@ -22,8 +22,7 @@ Telekinesis - Effluxion (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:8CC414339519D0A9D3AAC9E4F1B946FD91B8CBF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anemone - Beat My Distance (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:3082657EB89E7F0DD4C551AF10DF15D031CA15A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Julia Jacklin - Crushing (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:88DDC61E5409EB51BAEB0219CF43AB535718405B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Strand of Oaks - Eraserland (2019) [FLAC|Lossless|tracks + .cue] <Rock, Folk Roc
 ```bash
 magnet:?xt=urn:btih:DFF00619BBC570849B3DEE34104F43399EFC70AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Emerald Sabbath - Ninth Star (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C6CE03D5633FC47138296BE03594C2B2C861E9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ The Claypool Lennon Delirium - South of Reality (2019) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:4AB3596B30F2BDE3B3EE206B4098273EB2D6289A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Rod Stewart - Atlantic Crossing (1975) Remastered [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:635E81A9C385861F4B3FB04A387D4B9D152875B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Pink Floyd - Shine On (1992) 9CD BoxSet, Compilation, Remastered [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:A86A71AC882B1E53EB2172649AFDDC140C6F5F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

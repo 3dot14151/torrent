@@ -21,8 +21,7 @@ VA - Дискотека Русский Хит 90х (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:EA0E573FE88360F91748319D357DD20A1D5913EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru] (1.09/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:B9638E332FF0C1AF32A4890D69F5B4D086A5DDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Proteus Professional — пакет программ для автоматизи
 ```bash
 magnet:?xt=urn:btih:8CBE300BB2CA6291A08D94B5A4BA0E96384AFF0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

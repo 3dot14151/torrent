@@ -22,8 +22,7 @@ Killswitch Engage - 13 Releases (2000-2020) [MP3|320 кб/с] <Metalcore, New Wa
 ```bash
 magnet:?xt=urn:btih:BCEC423A22194E19A0E703741B1C209C7FC49386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

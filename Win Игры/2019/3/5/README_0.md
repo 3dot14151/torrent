@@ -19,8 +19,7 @@ Secret Investigations 4: Themis / Загадочные расследовани�
 ```bash
 magnet:?xt=urn:btih:CCDFAD429EE8FFDD87EF0566FC7F9C1B2555E005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFDD307A1A6A639C0FA28076B94D51F8CC5CA392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KURSK — первая документальная приключенческа
 ```bash
 magnet:?xt=urn:btih:58FFFF51A4905E575683F3531A4058D1890E8F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ KURSK — первая документальная приключенческа
 ```bash
 magnet:?xt=urn:btih:836A6860FC3EE5755B381182E237D90E5F23F6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

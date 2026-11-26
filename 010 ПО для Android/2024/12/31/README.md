@@ -19,8 +19,7 @@ Panels – набор панелей на краю экрана, которые 
 ```bash
 magnet:?xt=urn:btih:A1D8EAA41D943A3D432E9C262888381DAD817485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

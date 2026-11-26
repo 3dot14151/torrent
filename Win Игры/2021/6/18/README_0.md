@@ -19,8 +19,7 @@ Hidden Expedition: A King's Line (2021) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:E2EF8196B271E985BB80D614E38EA628B926C7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World of One (2017) [Ru/Multi] (1.5.0 B22) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D097AF468291B0DAEFE8824583D3234F548F3EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

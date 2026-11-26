@@ -19,8 +19,7 @@ Night Mysteries: The Amphora Prisoner / Во власти тьмы. Узник �
 ```bash
 magnet:?xt=urn:btih:879D8078AD9431996D1307A766A5044C8791D415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Echoes of the Past 5: The Kingdom of Despair Collector's Edition / Эхо Про
 ```bash
 magnet:?xt=urn:btih:353BF8D033270C790F52A00C00C75D5860A6C42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dead Island: Riptide (2013) [Ru/Multi] (1.4.1.1.13 / 2 DLC) Steam-Rip R.G. Origi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Dead Island: Riptide (2013) [Ru/Multi] (1.4.1.1.13 / 2 DLC) Repack R.G. Revenant
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

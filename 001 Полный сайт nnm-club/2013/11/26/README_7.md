@@ -22,8 +22,7 @@ Nero Express – это одно из самых распространенны�
 ```bash
 magnet:?xt=urn:btih:3001E8AC4B6923DE5321825A38567C68E6B58F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Top Spin 4 [PS3] [+MOVE] [NTSC] [En] [4.21] [Cobra ODE / E3 ODE PRO ISO] (2011)
 ```bash
 magnet:?xt=urn:btih:81D0AE3DD77A8F0EA9398965DC2854A7CFCD8D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D02307062B02A877A31C99E2E278BE5196C04A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DF3FD127B06F16EC3CF32AA153A99A295C8B339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:986126C11180DEB1B14A0E366BB573F830354EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1241353407A42A88E028ADFFF3E3C9055A1191F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Acronis WinPE 8 Sergei Strelec (25.11.2013) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3E74D4F44C7D42F4F0573F3A4C965692E2593D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Parted Magic 2013_11_11 [х86,х64] 1xCD
 ```bash
 magnet:?xt=urn:btih:E55EE635B6BE3816D5C4967899CA576EA1316AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Chief Architect Premier Х5 15.2.1.3  с дополнениями  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BBC521FB031BE053A5832D122AF8B157CD5B5C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Shadowrun Returns (2013) [Ru/En] (1.1.0.0) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:2C770430B6B0BF73A208B94C7543932EF2BAB60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Comodo Internet Security Premium предлагает всестороннюю, 
 ```bash
 magnet:?xt=urn:btih:E7213F81E46184FDE509667146CD05472F4F8137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Mindjet Pro позволит преобразовывать ваши идеи, �
 ```bash
 magnet:?xt=urn:btih:96BE7D80F9E51C60244025FE2E6A15D2876D5380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B1B9087385BE58AA0C9419EA015DF761234CD72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:ACC4B8B111216A958F535401931887ADD860BE82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Micrоsoft Windows XP Professional with Sеrvice Pack 3 VL Russian.
 ```bash
 magnet:?xt=urn:btih:32E4474751674B6F29B026AC5D31AC918634EF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / Тень Чернобыля История
 ```bash
 magnet:?xt=urn:btih:EC2413751BD5EAD0716F197EED29C18E359FC4FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ BioShock Infinite [PS3] [RUS] [Repack / 1.05 / 7 DLC] (2013) | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:44281982EDB3C56F021BC2FDECBDC49EA56973B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ Mafia II: Расширенное издание [PS3] [PAL] [RUSSOUND] [4.21] [C
 ```bash
 magnet:?xt=urn:btih:739B188FA32B20C8EF115130E7764D99612A8656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.2.1/dlc) SteamRip 
 ```bash
 magnet:?xt=urn:btih:EEFB608DD1460CC633AF47811C13B24F095E356F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ DAEMON Tools Ultra - новый продукт линейки DAEMON Tools, уд
 ```bash
 magnet:?xt=urn:btih:2AE584890FBE3FD4796966C3089B68F7D2B3A5EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5B6A1059AB86A28311B2380FFE51A1E4FE90CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:379655DBEC5F9C8FBD0D4F4C87790E6A73E7D012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ Need for Speed: Rivals (2013) [Ru/En] (1.2.0.0) RePack WestMore
 ```bash
 magnet:?xt=urn:btih:471BF0662D3DC507AD3401ADF64FA62673445B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

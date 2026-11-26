@@ -22,8 +22,7 @@ Brodequin - Methods of Execution (2004) [FLAC|Lossless|tracks + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:70C2D382843393CA848007EDC53466841B4648CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brodequin - Festival of Death (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:C72962AE86AB15128ADF362645B33E66DDF971BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cease of Breeding - Sounds of Disembowelment (2010) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:C5F3C95F583A04A6E8B6F09EF4B3DE72DC45F8D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Охота 85 (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:506AAC972586BBDC36B324590D2912F664C1EA01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Полигон Records ИТОГИ 2018 (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8928FA74B0270C25DF89923E8F5E47D1A8523E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59FE66902E3CFC5F8DF7C2A404894739C73D833F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97A2E6A5A7A0A2B31CC0939D8843E4D5D0B83BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B461D0DF98AE66601BD1EFF289DC1A1D27537EFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

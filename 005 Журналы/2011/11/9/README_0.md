@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:B187438012CC19C9EFE90E543AA5C325B7FA2992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ GEO— научно-популярный журнал с уклоном в те�
 ```bash
 magnet:?xt=urn:btih:58A4CC5E5A46DDEF6310BAC914DA15CFBA6FA1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

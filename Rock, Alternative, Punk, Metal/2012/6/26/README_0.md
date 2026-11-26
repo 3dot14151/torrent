@@ -28,8 +28,7 @@ Edenian - Winter Shades (2012) [FLAC|Lossless]<Gothic Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Well -  Нове життя (2012) [MP3|320 kbps] <Alternative Romantic Rock>
 ```bash
 magnet:?xt=urn:btih:51A8BB1731192A2F61B5BDD0FCE83C04661B6162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ I Hear Sirens - 2 albums (2007-2009) [FLAC|Lossless] <Post-Rock, Atmospheric, Am
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Mordor - Glamour, Glamour (2008) [MP3|320 kbps] <Heavy Metal / Industrial>
 ```bash
 magnet:?xt=urn:btih:22182EE950AC6829ED46021658731C9D3657CF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Unreal - Discography 9 альбомов (2006-2012) [MP3|128-320 кб/с]<Gothic
 ```bash
 magnet:?xt=urn:btih:29283765477227E27CB7E34695F383017060FB9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ The Seven Mile Journey - 4 albums (2001-2011) [FLAC|Lossless] <Instrumental Post
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Exxasens - 3 albums (2008-2011) [FLAC|Lossless] <Post-Rock, Space Rock, Instrume
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ VA - Rock'N'Roll Classics (1998) 3CD Set [FLAC|Lossless]<Rock 'n' Roll>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DA746AE8543A492D22F07DF6BCB344EA5D05DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +312,7 @@ If These Trees Could Talk - Red Forest (2012) [FLAC|Lossless|tracks + .cue] <Pos
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ Hidria Spacefolk - 7 albums (2001-2007) [FLAC|Lossless] <Space, Progressive, Psy
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ The Offspring - Days Go By (2012) [FLAC|Lossless]<Alternative Rock, Punk Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

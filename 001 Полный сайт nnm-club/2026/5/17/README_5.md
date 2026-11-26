@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B0B5C2B502B15EBFBE35C5D45055A230A4B6D216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0552DE23D5C76A7F85B4C1DA00CE3F1471420405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Confess - Metalmorphosis (2026) [FLAC|Lossless|WEB-DL|tracks] <Sleaze, Glam Meta
 ```bash
 magnet:?xt=urn:btih:11D861E902EA6F71DD10D6507D91AC71DB04B1AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Shattered Divinities - это атмосферная двухмерная при
 ```bash
 magnet:?xt=urn:btih:34788BB4325FE0872B54093186524022B5866BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9685C4C0FC7463C0DBF9FA4A4985DE3CE07A71D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - Beat, Bass, Melody vol.5 (mixed by Dj V) (2026) [MP3|320 Kbps] <Euro Trance
 ```bash
 magnet:?xt=urn:btih:81ADDECEE7F1AD3054FF4C0F418F89CC85C5F69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Ai - Russian Poets Covers Compilation  Part 14 (2026) [MP3|320 Kbps] <Cover, Oth
 ```bash
 magnet:?xt=urn:btih:55AFA68871C6AD628CF88F8D71EADE1C0CA0431C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Ai - Russian Poets Covers Compilation  Part 13 (2026) [MP3|320 Kbps] <Cover, Oth
 ```bash
 magnet:?xt=urn:btih:1E8ACE8C54DDAD04E4D3D902E391C850E9BFD689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Dave Sandler - Favorites Collection (2026) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1D04B3EAD6873FB99D3BC877CD3E954D9E341067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Lady Gaga - Apple Music Live: MAYHEM Requiem (2026) ℗ 2026 Interscope Records 
 ```bash
 magnet:?xt=urn:btih:F20E457B3E6B9BFCB3F0003CDEF68FB63A70F4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB1186BE3EB68D2A911C54B21C3A06920089C10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ The Last Gas Station (2026) [Ru/Multi] (1.0.5.351) License GOG
 ```bash
 magnet:?xt=urn:btih:CCA81414372A44089DB8D307F72C38A82A4F031C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

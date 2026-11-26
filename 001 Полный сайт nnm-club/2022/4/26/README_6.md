@@ -19,8 +19,7 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:F3D2CAF25C0AAB8A3D6F7E2F2B9968C9891232F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Merciless Death - Realm Of Terror (2008) [FLAC|Lossless|image + .cue] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:FB5AC5123B7B9FE26CA99D6C198250E94118CAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Part One:
 ```bash
 magnet:?xt=urn:btih:093AC44EA8550D104AF336E6DC637D2E76FBA89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Imperia - Queen Of Light (2007) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:19CF1CBE9C2992F31C6E0BA5ADE869A47F7C7702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Lindsey Buckingham (ex-Fleetwood Mac) - Lindsey Buckingham (2021) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:B5BC075EB182AE1B5813D0844FDCA4A0596F7837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ VA - Women In Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:1DFDC2317081F2C5D5053FB64AD4B99B9B324A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Mr. Bungle выпустили специальный хэллоуинский в
 ```bash
 magnet:?xt=urn:btih:7DD7BC5B187947F2DD1C38456A5735A4854FD547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

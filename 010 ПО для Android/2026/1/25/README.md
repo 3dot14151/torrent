@@ -19,8 +19,7 @@ AirBrush: ИИ Фоторедактор v8.0.1 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BC968BE278D7CAB9D6E4C00390C9DEB2FFEC7AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:A946BED0519890F98626D9C2B03C37EFF981C938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MIUI Hidden Settings Activity v1.6.14 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F1D643A4A53E5C1AE47E7746D68E9692917281D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Win 11 Launcher Pro v4.9 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FF9A6BB73E62ECC7EA3D729A0A453C6EDB91708E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Solid Explorer - это приложение для управления фай�
 ```bash
 magnet:?xt=urn:btih:9DE7069765DCABEE6EBB4CA928BBE264534A7CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Remini / Улучшение Фото v3.7.1260.202518969 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:66F710D764360B8CE17ED0551DAB47B25E2BD5DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ TV+: Бесплатное Онлайн Телевидение
 ```bash
 magnet:?xt=urn:btih:81B94FA697F94B6149D1F1D1F89E997C27DF6370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Win 11 Launcher v9.38 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:22A339E1518F3EC3E3114FF75CE4F614C8CA947C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:ED11F43EAC7F68053E0DE9FB7D8EF51654E30150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Auto Reply: автоответчик v6.5 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FCD20C955626114A3922640A6ADA8B08ED92FC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Taskito - это приложение для управления задачам
 ```bash
 magnet:?xt=urn:btih:2D2C6378B3A156EDCC8DD125D337D67C0E69B1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Internet Explorer 10 — это очередная версия наиболее
 ```bash
 magnet:?xt=urn:btih:E347CD73DBA9EFC33975B7433CB253EC758F4ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

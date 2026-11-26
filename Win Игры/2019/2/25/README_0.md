@@ -19,8 +19,7 @@ Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack Other s [Episode 1-2]
 ```bash
 magnet:?xt=urn:btih:742B91771810CAC7BC61B7AD2B8E3C0F97CAF690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

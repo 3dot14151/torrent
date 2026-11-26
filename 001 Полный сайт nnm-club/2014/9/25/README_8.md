@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:AE4BE58F5DEB6F9E54470FA1A4B2871DB29A1F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8061D9B5B88C85E2507E98336D58E5715BD9C196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:AA9B5018E9133BC31A8560D8AAE55290C24F5B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Adobe Premiere Pro CC 2014 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:5E51E438C4E3FB9859BB8CD853F345A4D45D8273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:0676AC7545C14D37CDD2473D3BFDD460E25C66E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ FIFA 15 поднимает реалистичность виртуального
 ```bash
 magnet:?xt=urn:btih:B69219B020C517FC6748941A919A111514970BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79E4765F75AD6C1E5F3A213E699B39F54F6B687E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ ABBYY FineReader 12 – программа для распознавания т�
 ```bash
 magnet:?xt=urn:btih:B3F07662BC36C7B02410F9F81AB9B4636D203040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Windows 8.1 SevenMod RUS-ENG x86 -10in1- Activated (AIO)
 ```bash
 magnet:?xt=urn:btih:D51F5ABEF92AEFD02D071A174A8C5E23E90A6D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

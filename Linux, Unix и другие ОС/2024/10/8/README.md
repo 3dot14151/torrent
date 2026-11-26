@@ -19,8 +19,7 @@ R-Studio for Linux это еще одна надежная и эффективн
 ```bash
 magnet:?xt=urn:btih:A9EF1241C2327F37B148EE8694283BA872075BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

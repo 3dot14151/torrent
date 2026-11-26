@@ -26,8 +26,7 @@ Twisted Tower Dire - Make It Dark (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:5828F4F8C512FD37667C38E868C1F2DF1C4E4054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Tyr - The Lay Of Thrym (2011) [MP3|320 kbps]<Progressive Viking Metal>
 ```bash
 magnet:?xt=urn:btih:3D457D7596338BD9BE9296A999C674CA5C155086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Bonus tracks(   Читать дальше...)Жанр: blues rock, psychedelic r
 ```bash
 magnet:?xt=urn:btih:4BC27AAD25CD3FC93A50E33CF05FEC7E0776134A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Skansis - Leaving You (2011) [MP3|320 kbps]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:87025C83844BDB6272A93CE29640BD2BAF6FA16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Fink - Perfect Darkness (2011) [MP3|320 kbps]<Folk Rock/Acoustic/Blues Rock/Indi
 ```bash
 magnet:?xt=urn:btih:2F8C6B35AC1F361F70EDCA3EBF9A52D33853936F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ MIRROR BALL концертный альбом британской рок-гру
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Bruce Dickinson - The Secret Anthology (3 CD) (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E52B2CEEFA1022F1577B750D4C013DB12BB1BF01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

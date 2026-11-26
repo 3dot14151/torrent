@@ -19,8 +19,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:7BF1E81469A03DD917FE358C96FF19898FAE5668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

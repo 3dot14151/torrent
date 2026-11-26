@@ -19,8 +19,7 @@ Christmas Wonderland 12 / Рождество. Страна Чудес 12 (2021) 
 ```bash
 magnet:?xt=urn:btih:65AB61AAAAF95515966F9134D5A56610D0A0604D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

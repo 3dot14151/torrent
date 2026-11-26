@@ -19,8 +19,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (1.0/dlc) License FLT
 ```bash
 magnet:?xt=urn:btih:7289FE71C1AB491261B705221B883478A7BE13A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:AF34AC32C50805A993F0131D0C88127C015AC1B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ World Championship Boxing Manager 2 является продолжением в
 ```bash
 magnet:?xt=urn:btih:9333A2063620729E925EEE185EB560E1F7362C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

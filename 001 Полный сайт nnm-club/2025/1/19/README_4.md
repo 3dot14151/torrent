@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:928732237A960324B8CCC5EC8ED0F352944BA266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EEF53B3966E8E2BBEF2778924D52D2EADA467E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C22873B887BB9060F85BFDCB43A5A7E2397C898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ R-Wipe & Clean - программа для невосстановимого уд
 ```bash
 magnet:?xt=urn:btih:CBFAD0FE3BE734E15D9A6F780CF009CE0F4DE493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Lumii - Фоторедактор, Фильтры v1.700.167 Mod by PieMods [Ru/M
 ```bash
 magnet:?xt=urn:btih:B44C3EFEA420B570A86AF5B99CB4BB6D8027E268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Def Leppard's One Night Only: Live at The Leadmill Sheffield captures the energy
 ```bash
 magnet:?xt=urn:btih:76D8393557D4297BD05130AAC194AAAD40772DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:32F2AC3B30142BAE7F399F11A264782972BCE84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Free Download Manager - кроссплатформенный менеджер з
 ```bash
 magnet:?xt=urn:btih:42DC0D6E18257709FEBC83669B82CBED484195FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

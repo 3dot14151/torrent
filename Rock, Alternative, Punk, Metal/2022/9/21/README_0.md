@@ -21,8 +21,7 @@ AcoD - Fourth Reign Over Opacities And Beyond (2022) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:2975E4C33B6E6FC65E213D17DDE76798BD37B4AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Grace From Gadgets - Grace From Gadgets (2022) [MP3|320 Kbps] <Progressive Rock,
 ```bash
 magnet:?xt=urn:btih:50C680002E247A58F961DC73107C73EF6FECF7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Millenium - Tales from Imaginary Movies (2022) [MP3|320 Kbps] <Progressive Rock,
 ```bash
 magnet:?xt=urn:btih:1AA5935EB3171CEAB6CA4F0D42684D736EEA30B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ The Rasmus - Rise (2022) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:665354C67B3DA10A2DEE6E59841BE0AF7A6EB228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

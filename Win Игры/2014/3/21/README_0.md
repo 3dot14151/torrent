@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0FE99540F6D7F1B07E44ACAB8B5CB83727A4E0BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Typing of the Dead: Overkill перенесет вас в Байу, в са�
 ```bash
 magnet:?xt=urn:btih:C4ED5D93B4DF7DE79419A16A7A98A8E9305E2EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

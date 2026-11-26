@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2D3268E01FC1F78FC40C68CF52160876DA8B15DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Anjunabeats In Ibiza (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:3B21B1B3FD5A5AF746845E1E911B3FD78F7ECA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - The Worlds Best Beach Clubs: Edition Ibiza (2011) [MP3|320 kbps]<House, Pro
 ```bash
 magnet:?xt=urn:btih:842EC818C3F1FA263B454B2AED4A572DDE30CAAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87D37EEFF7BE85D002EB770E63661A2F0D7399FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Nathan Fake - 2 Albums, 1 Single, 1 Miscellaneous (2004-2009) [FLAC|tracks+.cue|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ VA - Europa plus top 200 50/50 (2011) [MP3|128 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:62403BBDC08F539841B0DC604509F2D65BD378B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ VA - Andes Pan Pipes - The Cherokee Spirit - Meditation (2011) [FLAC|Lossless] <
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ VA - Летняя Дискотека Радио Record (2011) [MP3|128 kbps]<Pop
 ```bash
 magnet:?xt=urn:btih:1D120F88221BC1085C2641AA1C32374B1BA47AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ VA - Andes Pan Pipes Plays - CHAVEneeZ - Great Spirit (2011) [FLAC|Lossless] <ne
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ Jaimee Paul - Melancholy Baby (2011) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ VA - Mixmag Presents: Above & Beyond - Cream Ibiza Sunrise (26.07.2011)
 ```bash
 magnet:?xt=urn:btih:21C9723B1ECDD7CEEF8255421671FDC17EF3C0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ VA - Radio 538 presents:Turn Up The Beach (2011) [MP3|320 kbps]<House, Dance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ VA - The Magical Sound of the Pan Pipes (3CD, 2004) [FLAC|Lossless] <new age, pa
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ VA - Звездный поп-коктейль (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:183A6126BD75D122256E8D1CD55FF6DD7484906B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +490,7 @@ VA - Взрывной хит-парад 5 Зарубежный (2011) [MP3|128-3
 ```bash
 magnet:?xt=urn:btih:FBA44486C1C306354918AABDC81DD0D04F54C4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +520,7 @@ N/A1997-2003Жанр: Deep HouseПродолжительность: 02:15:19
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +554,7 @@ Various Artists - Into The Vortex Vol.2 (2010) [MP3|320 kbps]<Dubstep / Grime / 
 ```bash
 magnet:?xt=urn:btih:2AC3FB87663D9F236FC96DE71F922BF8F265B1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +579,7 @@ Microsoft SysInternals выпустила новую версию системн
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC4A30BD0663C4CBA2D65FCC046FF8853D4AE2AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +638,7 @@ VA - Exotic Wafture #17 (2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dr
 ```bash
 magnet:?xt=urn:btih:4E24060316D65F8DFCC44A30E99A9035CE379903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:525DC022BD759A21FAD68FBBC35176D57A0F492F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +697,7 @@ Cat.#: INRE047
 ```bash
 magnet:?xt=urn:btih:5E9E725CF780A6BB594C6674CFC586183B696CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +725,7 @@ RightClick Replace This Tool – небольшая утилита, котора
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ VA - Nature One 2011: Go Wild - Freak Out (2011) [MP3|192-320 kbps]<Tech House, 
 ```bash
 magnet:?xt=urn:btih:08B2C39C9FF5AD3E49628C53E37882331DAE1DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ MPAA боится раскрывать «секретную» стратегию
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

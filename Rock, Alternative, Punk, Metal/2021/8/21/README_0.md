@@ -22,8 +22,7 @@ Morning Dwell - The Power Will Go On (2021) [FLAC|Lossless|WEB-DL|tracks] <Power
 ```bash
 magnet:?xt=urn:btih:E30312B2C1A8048C115B47AAD3B1251D9D6691FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vlad - Me Devoré A Sus Hijos (2021) [MP3|320 Kbps] <Stoner, Sludge, Doom-Metal>
 ```bash
 magnet:?xt=urn:btih:FE912FDD82CF9214E9941E17317A011A17872D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Orange Goblin - Healing Through Fire (2021) Deluxe Edition [MP3|320 Kbps] <Stone
 ```bash
 magnet:?xt=urn:btih:C740BDA8B065416F976F7F76F0F125E0D237232E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Seventh Crystal - Delirium (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D905221521649B8CAD5CD97D577B8763008FA997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dangerous Curves - Summertime Highs (2021) [MP3|320 Kbps] <Hard-Rock, Glam-Metal
 ```bash
 magnet:?xt=urn:btih:77153204C513B95225DFB4931A194F51EEDC3CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Saga - 6 Albums (1978-1985) Remastered 2021, earMUSIC [MP3|320 Kbps] <Progressiv
 ```bash
 magnet:?xt=urn:btih:E9687BFADE1B8334F3D669A22FCFAA96888CA2DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ David Crosby - For Free (2021) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:40DFFFDA99D379643D929F21408DA6682749DF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sweet Crisis - Tricks On My Mind (2021) [MP3|320 Kbps] <Hard Rock, Blues Rock, C
 ```bash
 magnet:?xt=urn:btih:B49D97A1D1FE98273DDB95D8CBF76F8B6B1F9D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

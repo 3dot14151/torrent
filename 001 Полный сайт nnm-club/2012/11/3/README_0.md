@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:0E817032675B8777200BA52796DBB4C7E362878F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ VA - Взрывной хит-парад Осенний выпуск 5 (2012) [MP
 ```bash
 magnet:?xt=urn:btih:44C5AFBC36F80F71B7009077F9B24ADA030BD869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ VA - Hermetic Principles part 7: The Principle Of Gender (2011) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:A721D7A2EEF6117A84711BAAC39C3EF17FFB1286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Stoneburner - Sickness Will Pass (2012) [MP3|320 кб/с]<Sludge Doom>
 ```bash
 magnet:?xt=urn:btih:35A7402395D4A9D899E68D7A4FA948E4E084A3E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ VA - Улетный Хит Осени (2012) [MP3|256 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:7075DAE8EE5AFDDE32042F7BBDA04279320F92B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30ECBAF44CE5ABA58245E7F75F23FE1F8EAE7619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDE3EDFC884F58B9755590B7EA3C8C1CFB33CF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ VA - Новинки Эфира Радиостанций (2012) [MP3|128 кб/с]
 ```bash
 magnet:?xt=urn:btih:787128807D6D0A14D82C86576DC3E285936BE409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ VA - Armada Top 15 November (2012)
 ```bash
 magnet:?xt=urn:btih:576A7FF310A519C3D276F48CB14257020A96DC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DB112834FC9C5132334264DAB24908E4463D9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ N/AЖанр: TranceПродолжительность: 00:53:37
 ```bash
 magnet:?xt=urn:btih:48AD7309BD0DC0CA3A2D6D61E27FF4CF8C6A3D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ N/AЖанр: Electro, HouseПродолжительность: 00:59:30
 ```bash
 magnet:?xt=urn:btih:BFDE3EE15315446F5FDB073B6861E7C9F333A141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ VA - Viva o Baile Dance (2012) [MP3|~234 - 320 кб/с]<Dance, Club, Pop>
 ```bash
 magnet:?xt=urn:btih:768E721BC04729CF5431A43B8BEEB426C38B4698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:360DA8D809CAA5D0DD603D3F0DC75C8B0DB2A2FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ VA - Пираты Финского Залива Радио DFm (2012) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:858B29D1CFCAB5B281951A2CF8D8FBF1851751D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52C17206F8F043D4ABDF2883AF08BDA66BE2C31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA98D01A50B31F1AC3F8755F6857A291822BAD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ VA - Dream & Chill (2012)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ VA - Танцевальный Рай 3 (2012) [MP3|128 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:9E5C195CDC245C04D14B2E74920842A18CBB93B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ Hanging Garden - 2 Albums (2007-2009) [MP3|320]<Melodic Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:A0D2FB06CF3705539EA9C3C90211E3C0B07D4B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FF42581DB68DC4B832AFA2E874116251B241F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ VA - Hermetic Principles part 5: The Principle Of Rhythm (2010) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:A7519C84BDABDE2CBBE649B08E41AA9BECFD25FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF2B65B5794F0DA96E5D9B4DBAB81B3071B43BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +724,7 @@ VA - Радио Шторм - Русский Шторм - 78 (2012) [MP3|128 кб
 ```bash
 magnet:?xt=urn:btih:3E53C574E8E4856C91A5F89A2A4C8BD1895ABFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -782,8 +758,7 @@ West Of Hell - Spiral Empire (2012) [MP3|320 кб/с]<Heavy Metal, Power Metal, 
 ```bash
 magnet:?xt=urn:btih:46478557DDDEA7927BD2CC3CF35D365D9E36F051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -817,8 +792,7 @@ VA - Осенний Dинамит MTV № 3 50/50 (2012) [MP3|128 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:205A0AEFDD75CF2A654277F70EDFC0E558CD92D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

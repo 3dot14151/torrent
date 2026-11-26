@@ -19,8 +19,7 @@ Rooms: The Unsolvable Puzzle / Rooms. Неразрешимая загадка (2
 ```bash
 magnet:?xt=urn:btih:7D4402DC72C34B7AD32B792CDBBDF0C2F2D1CB88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Terrarium Land (2016) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:7B0AD1D161E8F668467BA952C4EC62E13872FA0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Atlantic Fleet - масштабная морская стратегия с по�
 ```bash
 magnet:?xt=urn:btih:A0DA360483F256CF53C6D379CB1D8BD094A204F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Panzer Corps: Soviet Corps (2016) [Ru/Multi] (1.25/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:E61B0D784A522CF546383E7DDD971060D727032C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Warshift (2015) [Ru/En] (1.3.7) SteamRip
 ```bash
 magnet:?xt=urn:btih:518873AFF3D94CB427A0ECA7555BD29B344792BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

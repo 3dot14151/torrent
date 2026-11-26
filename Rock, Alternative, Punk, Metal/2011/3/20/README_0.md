@@ -28,8 +28,7 @@ Crucified Mortals - Crucified Mortals (2011) [MP3|320 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:0165F13445F92B099B3F5D6E242136C948E4ADDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Kill The Romance - For Rome And The Throne (2011) [MP3|320 kbps]<Melodic death m
 ```bash
 magnet:?xt=urn:btih:07427967F837C0DD07BEAFDC8561ED54002F3188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Artillery - My Blood (2011) [MP3|224 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:1FC380565173A63A53517D6893564732AA120E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Queen - Deep Cuts 1973-1976 Vol. 1 [Original Recording Remastered] (2011) [MP3|3
 ```bash
 magnet:?xt=urn:btih:782205EC6705389906A932BF97167C7B561577A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Mick Jagger - The Best Of [2CD] (2011) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Funeral For A Friend - Дискография (2003 - 2011) [MP3|320 kbps]<Post-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:443F3B4D68101AE6F44C2F0784E232DB09F1D707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:649EC2CD394C9D1B3669A469D17EFA9EFC11F0B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

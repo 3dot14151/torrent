@@ -21,8 +21,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.6) License PROPHET
 ```bash
 magnet:?xt=urn:btih:2DFD94A43D77AE985EED130C4E5358AA54B1E012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

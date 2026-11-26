@@ -22,8 +22,7 @@ Stars On 45, Long Tall Ernie and The Shakers - Звёзды дискотек (19
 ```bash
 magnet:?xt=urn:btih:7239A1C95CA436D48A23D9736AA748D775898614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

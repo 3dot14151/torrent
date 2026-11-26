@@ -22,8 +22,7 @@ Negative — финская глэм-рок-группа, основанная �
 ```bash
 magnet:?xt=urn:btih:948BD338B140A8C9D9C3640F2E188864C84A6699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Aviations — прогрессив-рок-группа из Бостона, Ма
 ```bash
 magnet:?xt=urn:btih:C1469A94D0F518DF11C67F9E79D2143A691C9610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

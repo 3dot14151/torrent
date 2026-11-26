@@ -22,8 +22,7 @@ Light? - Преждевременно и Навсегда (2022) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:57D3EA8C12CADCE10586B6A9DE5836AC7747F73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mysterious Narrators - EPISODE I (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 ```bash
 magnet:?xt=urn:btih:A8590D2267212D55352BBCE5E4849A3050C565CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

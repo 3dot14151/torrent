@@ -19,8 +19,7 @@ Dune 2000: Long Live the Fighters! - видеоигра, стратегия в �
 ```bash
 magnet:?xt=urn:btih:927D116AB1043860B7CF4C8B021DDE61EE076B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Test Drive Unlimited (2007) [Ru] (1.45a) License
 ```bash
 magnet:?xt=urn:btih:647E9B2B52E0C827BCE6BBB5E063365951A7F15C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Test Drive Unlimited (2007) [Multi] (1.66a) License
 ```bash
 magnet:?xt=urn:btih:0E9EAEACADFA4A07EB4AC9EE3B4B6B5C22FA89AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

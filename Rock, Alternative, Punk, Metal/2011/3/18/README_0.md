@@ -28,8 +28,7 @@ Freygolo - We All Have A Voice (2011) [MP3|320 kbps]<Punk Rock/Ska>
 ```bash
 magnet:?xt=urn:btih:1A98581E9C6DACEE2645774A203977E4118FA449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Screeching Weasel - First World Manifesto (2011) [MP3|320 kbps]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:41E2B01035BAA133DCF7E1D83CFAB21659A80D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Simply Red - 25 The Greatest Hits (2008) [APE|Lossless]<Rock, Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Morphine (+ side projects) - 24 albums (1988-2009) [mp3|160-320 kbps] <Jazz Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:BEE0CA3E9DF728D989424A351639C5DB9A6D1E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Green Day - Awesome As Fuck (2011) [MP3|320 kbps]<Rock, Punk>
 ```bash
 magnet:?xt=urn:btih:D1650DCEC4BE0ADB1ACFB664B2C30C8BDE0F1036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2AAD9C199943CE3A7631486DDF98BAAFD5F07C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Disc №1
 ```bash
 magnet:?xt=urn:btih:24C0454152833A783F986608C912E296D56DDF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

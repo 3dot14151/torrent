@@ -19,8 +19,7 @@ Faircroft's Antiques 5: The Mountaineer's Legacy (2022) [Multi] (0.20) Unofficia
 ```bash
 magnet:?xt=urn:btih:583A1E72A7017924477C5FB6692E067FFB7E4C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ITORAH (2022) [Ru/Multi] (1.1.0.0) License GOG [Save the World Edition]
 ```bash
 magnet:?xt=urn:btih:5C2D1EDA3BEA4133C40671C191F58BE1E374A353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

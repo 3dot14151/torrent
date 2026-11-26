@@ -22,8 +22,7 @@ Armageddon - метал-группа из Хальмстада, Швеция, о
 ```bash
 magnet:?xt=urn:btih:1CEEE6C5B712DE28428F2ABA8FA25119F7596EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Abhorrent Decimation - британская дэт-метал группа, об
 ```bash
 magnet:?xt=urn:btih:38855E0591F0AE81AA33E613C15BACB8475260C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ A4 Send In the Clowns(   Читать дальше...   )Жанр: Pop, JazzПр
 ```bash
 magnet:?xt=urn:btih:D405EB789EFB1F05A914AA6FD33EF0750D8D9D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ A4 Glenn Yarbrough - Mr Bojangles(   Читать дальше...   )Жанр: F
 ```bash
 magnet:?xt=urn:btih:343CFF270D75009285B4481245320AD46DE0584C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

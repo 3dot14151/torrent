@@ -22,8 +22,7 @@ Death - Scream Bloody Gore (1987) Reissue, 2001, Century Media [FLAC|24/96|track
 ```bash
 magnet:?xt=urn:btih:41B402F6EDBEF9690352F641D849EA0611D83AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

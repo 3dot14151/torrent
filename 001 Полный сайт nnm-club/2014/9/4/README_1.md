@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A60CE6C1DE779D060BF7650E46511F1F56A6C2E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:2F8A7660222FF0B7B70651D5A8255481CF3A99D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Pure Bliss Vocals - Best Of 2014 [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:4FF182027233A748838E05A1BF79D6729C0641F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC58ED8FD38D61114005F152A2C034DF518BCD1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DF90C303CAF961D03F717E2FA3444D123709C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3529EE04C5DCD607CE1CCD67F6B575D1B016B6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17213C1ACC2F82B6D6C034AF91B0ADA7B81DDC97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:642572A9C804DCFD8C6F437A457C3808CC99EB86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:D552E5DA267DB785BAE8C7A6D36FD80A2119E9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:35FC65D9F6E97D52CE52949A38E90E600412E1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ MediaInfo позволяет получать техническую инфор�
 ```bash
 magnet:?xt=urn:btih:AC38C9B9340627D5C6E01A7B5CD110659D0BADD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ Tyler Bates - 300 Спартанцев / 300 (Complete Motion Picture Score) (20
 ```bash
 magnet:?xt=urn:btih:444429B0D08A3D5F3BB892F947AFC5D501A59FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BC709335EEA0C515809AE4447BC472BC65252E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Flux является передовым программным обеспече
 ```bash
 magnet:?xt=urn:btih:5A015F75AD4A4C05E5137557E86025D6484E91A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2CDE83DDA22C46FBC542DB0E1211B5F1358DEB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ Prolix - Transcendent (2014) EP [MP3|320 кб/с]<Drum'n'Bass, Neurofunk>
 ```bash
 magnet:?xt=urn:btih:AB29E20FC2C2D80D4EF3A1785A061518307F4447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ Tom Petty & The Heartbreakers - Hypnotic Eye (2014) [FLAC|Lossless|WEB-DL]<Class
 ```bash
 magnet:?xt=urn:btih:E842D0D368545D74299B13E1C9E856C179CDF221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +502,7 @@ Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:45ACA999CED0157B17C1D13A94344CACC2A4800E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +536,7 @@ Musicmatters Videomix - Spring 2014 (2014) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:B4DC09858ACA4FFAFBE6158D2C586C0AC4AABE20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ Sinkane - Mean Love (2014) [MP3|320 кб/с]<R&B, Pop/Rock, Alternative/Indie Ro
 ```bash
 magnet:?xt=urn:btih:6E9D98EC0F34B1FCA044DD39BDE775768D75C9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F94A6C0DD475F45B0EEF4DAA0E0934FACA28D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ IT Expert - журнал для профессионалов в области I
 ```bash
 magnet:?xt=urn:btih:B09F84D336401646A45D09DDC372095B7CB0174F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4D0DC5FBEB54D358D6B138DEF7C7F5760B01A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +676,7 @@ Liszt - Operatic Paraphrases & Transcriptions (Alan Marks) (1992) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:6F1B94EEEE42A09E38771EBF1AE6337140AD93EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +701,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:659257A4ABC70FD3B0E88F79291FB3D399D5E0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABE1AD31BACEC543C9BFCB9CBA7586942B26EDBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

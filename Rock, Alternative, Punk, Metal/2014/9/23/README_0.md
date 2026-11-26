@@ -28,8 +28,7 @@ Calliope - Steamed (1969) [MP3|320 кб/с]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:222AC7738D3C9B2925FE17EB47CA4AA2AD8AFCC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ BONUS TRACKS:(   Читать дальше...   )Жанр: Hard Rock, Progressiv
 ```bash
 magnet:?xt=urn:btih:EF138A47AEADC63D74ECD42C883F2764E438B7F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C40D617E90A2C9F5582658B953D32BEB2C574C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

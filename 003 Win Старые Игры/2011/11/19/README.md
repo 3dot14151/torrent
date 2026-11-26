@@ -22,8 +22,7 @@ Street Wars - уникальная смесь стратегии в реальн
 ```bash
 magnet:?xt=urn:btih:A32FC3F25A743D6B015827E9631A4E15BE4B3279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

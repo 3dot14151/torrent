@@ -19,8 +19,7 @@ CpuFrequenz - небольшой инструмент для точного оп
 ```bash
 magnet:?xt=urn:btih:28C24F7FD5B7FAECB20599165AE518EF8A01739C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

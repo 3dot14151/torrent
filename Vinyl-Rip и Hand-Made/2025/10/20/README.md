@@ -22,8 +22,7 @@ Seal - (Henry Olusegun Adeola Samuel) - британский певец и ав�
 ```bash
 magnet:?xt=urn:btih:77414652581AC4BA03506BA37F740B9E191C9BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

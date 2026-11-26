@@ -28,8 +28,7 @@ Brainstorm - Memorial Roots (2009) [MP3|320 kbps]<Power Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:CC0A3BC78F221DA145B38F7BE92D9AADF8A25571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Klaxons - Surfing the Void  (2011)(Deluxe Edition) [MP3|320 kbps]<Indie Rock >
 ```bash
 magnet:?xt=urn:btih:8BE39FD72279325691032C8425E9E8A1BA8246A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AD3AD64B929A03B2AEC99B6B7C5E0B8F59E6FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ U2 - Duals (2011) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ The Byrds - Younger Than Yesterday (1967) /2011, Audio Fidelity/ [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

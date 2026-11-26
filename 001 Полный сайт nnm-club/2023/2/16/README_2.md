@@ -18,8 +18,7 @@ Windows 11 Pro x64 Build 22621.1105 Version 22H2 [Updated 31.01.2023] ESD by Igo
 ```bash
 magnet:?xt=urn:btih:AAE1117E8A780CC0A7D34B428C6B797679582196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EA4A9A249910E14B4060AB7C53C9FF0B6416402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504czj3/dlc) License GOG 
 ```bash
 magnet:?xt=urn:btih:E71F2F6D4C045CA0CD25BAC8DFCC8429955069B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B515531BD59066AC2872B95A16E2761D80550FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ ViWizard Audio Converter 3.9.0.59 [Multi]
 ```bash
 magnet:?xt=urn:btih:1F481BB773194BF75075E410CC473F724011DB5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB693194812827CA1CCA1BDEB61D4719D7C28051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:84EBB64681A7728E81212770D8BDF023BF6036E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Nakitai Watashi wa Neko o Kaburu | Nakineko | A Whisker Away | Сквозь сл
 ```bash
 magnet:?xt=urn:btih:D7B6C9B0D32177A1A45BEBCE715355701ADCE1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A20254E048F9A835C859AE85030A8BFE7A1C983E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ ImgDrive - простой и надежный эмулятор дисков, п�
 ```bash
 magnet:?xt=urn:btih:11D995AAD4925F5E4AF000C8A1CBF82BDA0F451A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C71AB1FCDBF7CBE353B1DD7F5D4130B144D0CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Genesys - программное обеспечение для проектир�
 ```bash
 magnet:?xt=urn:btih:B84CCE1A0A10E6D57FCDD73125021A4FA9D442C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:687D36E94335F65874914D201B172DD2186E7310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Radiorama - The Best Of (1989) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth
 ```bash
 magnet:?xt=urn:btih:64DC0DE168B8785C603D55E7AABD536C21D2BF8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4394613581DC80703FAB640427CD67F20B59A015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6693BAEDA10493317572BEF7FA07FC709B6EB660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ AWR Design Environment 10.04 [En]
 ```bash
 magnet:?xt=urn:btih:39198D4F96C1B03C24424AB6673E586AFC0D244A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ ADS (Advanced Design System)- система автоматизированно�
 ```bash
 magnet:?xt=urn:btih:0FBB893F747E950EB62AB0FFA612AC8C5AA5FB54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ Savoy Brown - Blues All Around (2023) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:A94C9590D9533495755039B5B14A822AE09331BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5031F2EC1DE50812211B6472D3BF5102E4B65E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57345E6223E9BE08989E1EB3F2841DEEC0CB9ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D39DA837EF0B2A6C074B37B5A5F7A0D9C4039DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3E5B5FE88C3E0A2F1914FF5CAE30F52778E6ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ Total Commander 10.52 (14.02.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:220424CD90ED7D61DC72321A96018308CAC6D756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6202E1F5235D7039553D7D68188B1E2C47630409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +663,7 @@ Joe Louis Walker - Weight of the World (2023) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:D524CA2732E88EDDBB916D10F476AC0B463B6D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

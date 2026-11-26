@@ -18,8 +18,7 @@ Body Painting - экшен для Вашего творчества.Формат
 ```bash
 magnet:?xt=urn:btih:5443D79625883BAB21FD7E85C630827F9C8C8E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Mashk - Melodies (2015) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Deep 
 ```bash
 magnet:?xt=urn:btih:6E35BFE10B57C17D70C48EA49419F1024C13A65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Roadmap Planner - это средство планирования выпуск�
 ```bash
 magnet:?xt=urn:btih:55DF94B4931BEE227CF00EBD154D70DA2E8C0BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Cloud 2 - экшен для Вашего творчества.Формат: ATN,
 ```bash
 magnet:?xt=urn:btih:6EA1AE52CBFFD7E97043A101F8AD8EDBCB84B5E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F8DCDC84638F937A80243CFB62BB8D25EDC448E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBB4997515245DABB2505A886EB024961DC52FE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Liquid Flood - экшен для Вашего творчества. Многие
 ```bash
 magnet:?xt=urn:btih:93E2D3E7FEB13606D622A20F18F9ACB058CD8469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ PeaZip 6.1.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:33F7833387EAB854F2E4EB26C6758240047A26D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Hamatora The Animation | Хаматора [2014, TV, 12] BDrip 1080p HEVC Hi10p 
 ```bash
 magnet:?xt=urn:btih:9E64A60FF075E6DDE37ED327CEA7FFBF1E4C5FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:3BAF8237034993E1E521DF4D061C778B98C49761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Caricature Drawing and Painting Image - экшен для Вашего твор�
 ```bash
 magnet:?xt=urn:btih:E6329D09F464DD0BE8379C2AF73B47FAB6741E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C0FD17693A75B9B4CBB23BC7FED5BB9FC0AC726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Reply Hamatora | Re: Hamatora | Re: Хаматора [2014, TV, 12] BDrip 1080p 
 ```bash
 magnet:?xt=urn:btih:E1FD10E258B3BD995C7274984637822A6A06771A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Banner Saga 2 позволит продолжить путешествие по�
 ```bash
 magnet:?xt=urn:btih:271C1D7ABD435EBF27B5F3C4DA21E9251194364B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Parallax Reel  - хорошо сконструированный шаблон в
 ```bash
 magnet:?xt=urn:btih:D58F4F426994BA2218B8245F0C16C947861CB20D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ Summer Opener - энергичное, летнее видео-слайд-шоу.
 ```bash
 magnet:?xt=urn:btih:7F0B9F182FC8F3118D013BC403290DBA2602815F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:103CC9640E1F92AA3114F3434CDA42BAA765ACEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ Prisma Effect - экшен для Вашего творчества.Формат
 ```bash
 magnet:?xt=urn:btih:57261D18F7827D7433E6A9A79EF7D3550BC4D3E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:932CFE1D89098428C185895BC3F5AD5EDE6BD8DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ Samayou Shinki no Duelist / Дуэлянт странствующей богин
 ```bash
 magnet:?xt=urn:btih:E88395F3504534E86BDFBDA20158048FCF1907B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF574C6B80E6A5791365DCBA339BC4C9799B6638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ Mirage - слайд-шоу, включающее в себя 20 заполнит
 ```bash
 magnet:?xt=urn:btih:5D262078627745FE282674D1EF315FFC47877590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DF2096AD8FA1DB7C493387884E897D8EA3920C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D554280472C46D2FC9024852B2876F9614FED71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +632,7 @@ SMS Парсер 3 - это программа для обработки USSD з
 ```bash
 magnet:?xt=urn:btih:CDE7B0A6405AF0E600E7A1BC4A6BD0F160C9C3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACABCA74CBD5292CBDE0FA11905D12FA7D6F72B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

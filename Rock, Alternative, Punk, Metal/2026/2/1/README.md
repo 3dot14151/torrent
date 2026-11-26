@@ -22,8 +22,7 @@ Cast - Yeah Yeah Yeah (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:ED147D90B402D8E43BA5198245B0611A89D036AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lady Moscow - Barrel Dance (2008) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:3843E670AE8858794C991E8BA9BA14BC660089A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kula Shaker - Wormslayer (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:D6012621E7589116E5C9E9052DE0CC00D7E214BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nirvana - In Utero (1993) [FLAC|Lossless|tracks + .cue] <Grunge, Alternative Roc
 ```bash
 magnet:?xt=urn:btih:7E255603F3DF52852A9FC9DEFB92490FA1679A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

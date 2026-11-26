@@ -19,8 +19,7 @@ Witches' Legacy 10: Covered By The Night / Наследие Ведьм 10: По�
 ```bash
 magnet:?xt=urn:btih:52A3E060A0A1458D79912A7C4470877E421AB699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Persian Nights 2: The Moonlight Veil / Персидские Ночи 2: Лунн
 ```bash
 magnet:?xt=urn:btih:85DDD3B666FF3C9BB5C3E699E6F03ACDF0591F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Light Remake (2020) [Ru/En] (1.01) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A23D2722ADACA2FEA2AB586950F277CE3F0FCF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5606C690263CD7ADE39D38F23F64F9506E250022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Trials of Mana (2020) [Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:27A5890C6ECD4196C42AFA77B39E109E4F28929F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Deck of Ashes — это приключенческая игра с тактич
 ```bash
 magnet:?xt=urn:btih:92112CC64DE469A7EB091E307015AE94B2986F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Beyond Blue (2020) [Ru/Multi] (1.3.15659) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:A16BB7A519C9581CAF06031E9783CE0B8A30AC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

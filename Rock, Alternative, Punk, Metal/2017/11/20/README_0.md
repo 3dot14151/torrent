@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5DEBA9966489FDDD9504B2574B36067653A1095C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lunatic Soul (Mariusz Duda, ex.Riverside) - 3 Albums (2008 - 2017) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:0F97CA7533B59B20638DD40969274A92B5DC441D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

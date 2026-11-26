@@ -27,8 +27,7 @@ VA - Munich Disco Tech – Final Chapter – The Gold Edition (2011) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:62BE4475A29749E94E46BA5977F2851FDFF5E69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Constantine - Divine Design (2011) [MP3|320 kbps]<Epic Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:BD59F520EFDC94E153FA6D7BECEF87A907198DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00FD8ED3C252F7C607446DD58E3F5AC6C28BA223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Marcus Koch - Behind The Rhodes (2011) [MP3|320 kbps]<Chillout, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:5D127AB159990AE01A990CBA03626E274EB6043E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ VA - Время Снежинок - Сборник Зимних Хитов 50/50 
 ```bash
 magnet:?xt=urn:btih:6758D7CF9903946C722D75351F4901BFAA36E705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ MPC Home Cinema производится, непосредственно, для
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ VA - Trance Top 40: Best Of 2011 (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:31A0B2CF71FD8009ED05CA312B640422A28F763B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70D9D313B03468894FEC58B306AEC55A79BFAE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ VA - Brain Suicide 2 (2011) [MP3|320 kbps]<Heavy Electro/DubStep>
 ```bash
 magnet:?xt=urn:btih:6912F65F43D3765904AC3DACB44256FB3C739C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1002CA68D4C5A372159ABD82889CDC23D007AA45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat (2011) [MP3|320 kbps]<Vocal Tranc
 ```bash
 magnet:?xt=urn:btih:A154C1578EB28A01BE1960DCA5B9EE4832E8E782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ Cosmopolitan – женский глянцевый журнал №1 в мире
 ```bash
 magnet:?xt=urn:btih:954B092F039A4ADFF20A22846D3929C18B0E9265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +390,7 @@ VA - Зарубежный Хит В Дорогу (2011) [MP3|192 kbps]<Dance, Po
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:665F9844509494341BFE0E96DEBDBF33019DBE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5542A928C8F3469215666442F0A0145C6B33C2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69C9909990DD40DC1CADF49F8BE9F77CA9C649BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ VA - Planet Funk Farm Vol 1: London (2011) [MP3|320 kbps]<Progressive House, Tec
 ```bash
 magnet:?xt=urn:btih:0EC82039CAFA46E0F3F5BD447B33823D7149CF94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ BurnAware предназначена для записи файлов и муз�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48F3F6B4CB0F1F71DE673E27D1B48235B8BA8154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6345FF162E9E02D5040A29BFE4E20E098D098962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ Ray Conniff - Christmas Caroling (1985) [MP3|~190 kbps]<Instrumental, Pop, Easy 
 ```bash
 magnet:?xt=urn:btih:5D0448CD45AA173C1356FB9EFFCB687277063E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ CD12009Жанр: Pop, RockПродолжительность: 01:03:17
 ```bash
 magnet:?xt=urn:btih:F626A2E789D21D4656AC90548CB2B40FAC424246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:599AD31C221FE7220A9660351104DA07DC191183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ Bumbledore - Бросайте огненные шары, вызывайте мо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B498A4C2CE25159DF2D12521A506DB65EEF7402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42E398C944D6684CFCD2374E1A682C658423F749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

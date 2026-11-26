@@ -21,8 +21,7 @@ WakeupOnStandBy – многофункциональный «рубильник�
 ```bash
 magnet:?xt=urn:btih:1B3ECF045F677C7EC448E26738E03B7A9F41BC0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

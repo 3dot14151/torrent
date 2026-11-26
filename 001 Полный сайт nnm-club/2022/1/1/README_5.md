@@ -22,8 +22,7 @@ VA - Odd Echoes, Vol. 2 (2019) [AAC|~322 Kbps] <Melodic House & Techno>
 ```bash
 magnet:?xt=urn:btih:0E0FBD88B397D3AF052343276407E499B48A19E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Best of 2021 Ecoul Snd (2021) [AAC|~285 Kbps] <Deep House, Dub Techno>
 ```bash
 magnet:?xt=urn:btih:F5C286330128EB10C3CB0A68B07D1D2FAAE35E28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Peter Pearson - Soft Embrace (2021) [AAC|~348 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:ECE4D8492CDD34A0D05FFC2B2813A2F7352FC3A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Odd Echoes, Vol. 4 (2021) [AAC|~347 Kbps] <Melodic House & Techno>
 ```bash
 magnet:?xt=urn:btih:54BCF4B0F5F7817A4D003E87E6F8D99C24587494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Perspectives Best of 2021 (2021) [AAC|~332 Kbps] <Progressive House, Deep H
 ```bash
 magnet:?xt=urn:btih:B9C157D62AF26922E207E021ACAD9FDC697BF207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rob Parton's Jazztech Big Band - The Count Is In! (1993) Sea Breeze Jazz [FLAC|L
 ```bash
 magnet:?xt=urn:btih:1835A772F54BF7DD9F51FDEDF827DB59B1EAE7E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:565B5534629695ADCE2A11004E52B8547EEE3101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9308F760866809012D23C1823EFAD9E89A164259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FBFB3D1E47388BBBECFA03EA19E463E34F5EEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ VA - Odd Echoes, Vol. 1 (2019) [AAC|~322 Kbps] <Melodic House & Techno>
 ```bash
 magnet:?xt=urn:btih:78A8130ACCBC352E459C10B0BEB01951D94A82A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Scott Bradlee's Postmodern Jukebox - The Essentials II (2018) [AAC|~326 Kbps] <V
 ```bash
 magnet:?xt=urn:btih:707B71DA2CB5885B239160902705E0ABC47C0D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Scott Bradlee's Postmodern Jukebox - The Essentials (2016) [AAC|~321 Kbps] <Voca
 ```bash
 magnet:?xt=urn:btih:3C0932996DAAD630ECE40A744F59DBA69E97C9AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96D6C3CD96FC9F928F9FF170C4E83DF8895E51E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ Iron Fate - Crimson Messiah (2021) [FLAC|Lossless|image + .cue] <Power Metal, Th
 ```bash
 magnet:?xt=urn:btih:44D048C36A1779EF7A37CABE5C9629FD6FACEE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ John Coltrane - My Favorite Things (1960) 1987, Atlantic [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:C4E4648046B126ABA0102D9949DA6AF72DC8CF01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ Scott Bradlee's Postmodern Jukebox - The Essentials III (2021) [AAC|~316 Kbps] <
 ```bash
 magnet:?xt=urn:btih:A0A221D018B4DC9052E5288483217AF9616174B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ VA - Vocal Trance Classics 2021 (2021) [AAC|~337 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:2B6E775A1C15219D23984FEA2A2AE7E6AD72FE83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CFB9DB8D7E7F9040BB5C28C5A8D9063DF258E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ VA - Odd Echoes, Vol. 3 (2020) [AAC|~339 Kbps] <Melodic House & Techno>
 ```bash
 magnet:?xt=urn:btih:F673777102F47EA77ECA88052F063949DCCD3CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F6F8D77F8AE5A8817607E56FF726465F9292EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ VA - Space Holidays Vol. 11 (2019) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 ```bash
 magnet:?xt=urn:btih:79D4953BAF726044955E05F2A2597CE52A9171F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:838C69D993C9CF7E80D04CDDE120298F3B34A994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4564A7485C7E249220F60BA605C4EBA37550CD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69DDE98E0158F5BEDB2F6338F1E729134D6AB79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68190E958665BA9241ACFD470E2258502237FF57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05D11E5B3ED65809BC201E18FB8B674635B68BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

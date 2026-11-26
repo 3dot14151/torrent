@@ -22,8 +22,7 @@ VA - Deep Booty House Vol.1 (2018) [MP3|320 Kbps] <Future House>
 ```bash
 magnet:?xt=urn:btih:6D7F99141E76FD498D6D94F908B07C41D7071AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - A Taste Of Kandi Winter (2010) [FLAC|Lossless|tracks] <House, Disco, Electr
 ```bash
 magnet:?xt=urn:btih:7C4F7169F015BB80AAD231B042EB3E1CA9E53A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Hed Kandi (A Taste Of Kandi Summer 2009) (2009) [FLAC|Lossless|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:B1FC94836FD04633B0C66997E25B353F6EF304C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Bigroom Miami Smasher Vol.3 (2018) [MP3|320 Kbps] <House, Big Room, Club>
 ```bash
 magnet:?xt=urn:btih:4570314F2788782296FBBF87E557E232ED5A30DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sherri Roberts - Anybody's Spring (2017) Pacific Coast Jazz [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:817A538AFD3BDD52221CB3C039B736A143C2241E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:DFEB14638EB72EF78E1218BA02F47AD4EF86FD10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:0FE78C5F617CC6B0252FF70D668B2109B8566FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - 2003 Hands (2003) Hands Productions [FLAC|Lossless|tracks+.cue] <Noise, Exp
 ```bash
 magnet:?xt=urn:btih:301922C6A2C966E876CED8A2070A82078EED20F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:A3D83117B7AC57A4BD250C8C96DEC23EFCBCB364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3E0C17D272AB2A3F7132E7B37E3B637DC633EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:6BBF72AA01E42AC17C3AE51CE9D545E5E9A4AF56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:14432A9722A47018B0FD5152C2FE0FC2BF5FCD00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2638DD40BCDE89AC9A18C15F15E2FF6FBFC7B214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ VA - Underside 5 LP (2018) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:BE6BD393483C0A372165BEA13BD06F3746759A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49F1F6DC27C2F884BFDFE86916C1BE3EEE901E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:BD05AB89CF4C688673369EC462CA68760C710531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:71C573FB638E3288D37FF742FB35D37A20A092B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ VA - MonsterJam Eurodance (2018) [MP3|320 Kbps] <Eurodance, Club, House>
 ```bash
 magnet:?xt=urn:btih:4DE9822ED986178FC9B8A7E97CD0496B8721718E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:346D95BDD28914F9DCC0BBDBECE6B1DC9FA4CB7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:6D7FA8D06E66C23F9923B7321A8DF44F5256674D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:8734177D6A104727FCCC134D86AAF293D33051B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D86512881B21E3DA65E9547DBC18369B25F56431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ VA - Nujazzvides (2018) [MP3|320 Kbps] <Lounge, Chillout, Nu-Jazz>
 ```bash
 magnet:?xt=urn:btih:5A363C50834A9FDDE54D09A37E6F91086FA36FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ Shake - Shake (1977) LP [MP3|320 Kbps] <Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:5CA6FBD961187F98130BC6143164E6E3D1C105C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ Jose Calvario - The Best Disco In Sound (1977) LP [MP3|320 Kbps] <Instrumental, 
 ```bash
 magnet:?xt=urn:btih:7C4C187F02C92A9574CAEB64E6A33959B5115552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3D1248B915D0CFE74ED9931A2ADA684D6D570DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

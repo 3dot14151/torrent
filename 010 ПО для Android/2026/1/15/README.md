@@ -19,8 +19,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.4 
 ```bash
 magnet:?xt=urn:btih:072BC1BEB3772F0B87E750ACC3C98C08CB83525B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8D700E74C3052A6759449434D012A3E7538DA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBF10793BB7B53FCA0EEE824EAF2D805D18C8B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.1 Mod by baalajimaestro  [
 ```bash
 magnet:?xt=urn:btih:5C54D79964CB4D4A7D4147391D8ABD8AE41BD551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ NewPipe v0.28.1 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ACC1664F2ACAC900809AADFC478DAA4C5ADE480F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:4B0BB378874AC46CC91EF595B0DA716170527192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

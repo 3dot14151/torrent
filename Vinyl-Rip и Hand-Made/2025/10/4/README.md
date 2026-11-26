@@ -22,8 +22,7 @@ Hypocrisy — шведская дэт-метал-группа, образова�
 ```bash
 magnet:?xt=urn:btih:45EDD972967DE30B65919EC0674281E68F29E04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Skid Row — американская хэви-метал группа, обра
 ```bash
 magnet:?xt=urn:btih:2DF1F77A7E347935055C712EC66FA2B6F573DD8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD88E2D6CDCB2E81D07BA297F2699EB2AE22415D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

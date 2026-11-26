@@ -21,8 +21,7 @@ Silverlight 4 - новая технология от Microsoft, предназн
 ```bash
 magnet:?xt=urn:btih:E70F208E69174F579F0D6B28208F1225A68CD0D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Joomla! представляет собой эффективную систем�
 ```bash
 magnet:?xt=urn:btih:94BE207E0769DF5A1003ABA8CCFA23D310D127B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

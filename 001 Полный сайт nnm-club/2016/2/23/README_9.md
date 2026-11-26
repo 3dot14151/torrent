@@ -18,8 +18,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:6EC0B08BE24B504D1A1FBF375F311BB0FE4B0175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ OS X 10.10.3 Installer USB for Win [BDU]
 ```bash
 magnet:?xt=urn:btih:3C9B465E25CC32A6D165DCA3E6ABD414F9A6B5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель (2011) [Ru/En] (1.1.
 ```bash
 magnet:?xt=urn:btih:977BB088322A1D37A0145967A41501C4A11CD92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:C42274C1369DB97CE070535144161166A1B7D1D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B122550B41E444E48D97750BEBD2483C2DEE7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Windows 8.1 (x86/x64) +/- Office 2016 32in1 by SmokieBlahBlah 21.02.16 [Ru]
 ```bash
 magnet:?xt=urn:btih:514EDCE51D380421703313315278638C1F35DD7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1048D101D892005C88B7B8FC659AC66847D90754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Scrap Mechanic – креативный симулятор выживания, �
 ```bash
 magnet:?xt=urn:btih:A9801CEDF0CC651A64335DA9B566DA0A4DB53241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62060B0273FB672C5DCFEC9FF524D086937447C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

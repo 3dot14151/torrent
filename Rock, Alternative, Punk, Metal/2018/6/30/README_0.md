@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D7764C7778E6BA1CE6D769CA4F9BF841EADDA067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA3DE033BA16942768BD0CB3F2F3345DBEB3512F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Guns N’ Roses - Appetite For Destruction (1987) Remastered, 2018, Geffen Recor
 ```bash
 magnet:?xt=urn:btih:586BB56BE0958B0F3C646C46754FD95AFE47BEF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

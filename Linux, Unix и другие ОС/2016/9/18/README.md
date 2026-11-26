@@ -21,8 +21,7 @@ Slackel Openbox 6.0.7 Live (Легкий дистрибутив) [x86, x86-64] 2
 ```bash
 magnet:?xt=urn:btih:93609EB44411B1D684CB19D4B93AF992FE471124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

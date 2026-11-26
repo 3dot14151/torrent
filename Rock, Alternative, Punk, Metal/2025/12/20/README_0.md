@@ -22,8 +22,7 @@ CD4 - Dream Evil(   Читать дальше...   )Жанр: Heavy Metal, Hard 
 ```bash
 magnet:?xt=urn:btih:277DB93251CB8160DB3BD698946DEF3E817B8DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fleurs du Mal - Spacetime Mystery (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 ```bash
 magnet:?xt=urn:btih:41B0B6A1FD20F2A0D6C4EE67B9688983BE6B331B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

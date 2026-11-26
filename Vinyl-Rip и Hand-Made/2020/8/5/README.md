@@ -22,8 +22,7 @@ A4 Per Amare Cosa Vuoi? = За Да Ме Обичаш, Какво Искаш?(  
 ```bash
 magnet:?xt=urn:btih:8B2D2AA65E2A06C6A9ABBEBD33EA5841AB65538A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

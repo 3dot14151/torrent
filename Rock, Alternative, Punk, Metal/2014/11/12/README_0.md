@@ -26,8 +26,7 @@ Morodh - The World Of Retribution (2014) [MP3|320 кб/с]<Depressive Black Meta
 ```bash
 magnet:?xt=urn:btih:7878490110481031FFF900A733A8AC25BA4322F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Neon Trees - Habits (2010) [MP3|320 кб/с]<Alternative/ Indie/ Pop Rock/ New W
 ```bash
 magnet:?xt=urn:btih:74B4CABB44FBEBCA3FBCADB1A1DB028A6F037E20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Neon Trees - Picture Show (2012) [MP3|320 кб/с]<Alternative/ Indie/ Pop Rock/
 ```bash
 magnet:?xt=urn:btih:0F92E7E988844B2FE2C82BCFDA3DD4F1F47266B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Dirty Thrills - Dirty Thrills (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:121961B3FE985E6D8C2330D426610B92634B1B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ VA - A Tribute to The Rolling Stones (2007) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:DAB269503133A2370657E5C0EDAB1D58035A04C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Martina Edoff - Martina Edoff (2014) [MP3|320 кб/с]<Melodic Hard Rock / Melod
 ```bash
 magnet:?xt=urn:btih:066FAD991FDE125C139F5267FA402B5CD7120ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

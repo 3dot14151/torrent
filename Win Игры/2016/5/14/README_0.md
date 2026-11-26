@@ -19,8 +19,7 @@ Dark Romance 4: Kingdom Of Death (2016) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:68A0FB721BB4E54A5730C25BC09C870C1987CE00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kronville: Stolen Dreams / Кронвилль: Украденные Сны (2015
 ```bash
 magnet:?xt=urn:btih:C52B24E0EA0A0E1FCDEC87EEE39D0AD3B9D6827C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:D5C2722909D1596AEF84F6FC88922683367C71A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Haunted Hotel 11: The Axiom Butcher / Проклятый отель 11: Мань
 ```bash
 magnet:?xt=urn:btih:B00BC412C320A882A9574D0EC03082495DC6800C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Ad Exitum (2016) [En] (1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:86D49E064272169081BDAF1EA275B91CB44E50ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

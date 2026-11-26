@@ -19,8 +19,7 @@ Beneath - это шутер на выживание от первого лиц
 ```bash
 magnet:?xt=urn:btih:129ECC82F0BD96D8D33DC10C687805324AFD55B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Black Ice (2025) [Ru/Multi] (1.0) Repack Other s [Early Access]
 ```bash
 magnet:?xt=urn:btih:55C6D8473A1B0E204DD818098CFFEEB236DAFB9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C38DD1272ACEF647D018CBD99DC955D30D072B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

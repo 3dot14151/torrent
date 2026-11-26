@@ -18,8 +18,7 @@ XXII Зимние Олимпийские игры. Бобслей. Двойки.
 ```bash
 magnet:?xt=urn:btih:A2932C3E5F787593C45DE6FBB19707C1D6F55C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Format Factory - многофункциональный конвертер ра�
 ```bash
 magnet:?xt=urn:btih:BC5F493168A2BB667D0675C76EE1AFC2587EAE93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - 100 For the Day off - The Great Choice (2014) [MP3|256-320 кб/с]<Bigroom
 ```bash
 magnet:?xt=urn:btih:2CFE202C8C0F1185E371EC730A42871D90C8BFED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Ah Nee Mah (Diane & David Arkenstone) - The Grand Circle (2002) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:206B1BB5D0E93E125A156A61D44AECC94143B74F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Sound Clinic - Special Edition (2014) [MP3|128-320 кб/с]<House, Drum & B
 ```bash
 magnet:?xt=urn:btih:01941E26114B1E5448FCA38ECDA899B603D5AD89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - Gamayun Tale (2014) [MP3|320 кб/с]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:772487F9D68E3926C216F0F4AF80829D8BC13170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Suzi Quatro - Suzi...And Other Four Letter Words (1979) Remaster /2014, 7T's Rec
 ```bash
 magnet:?xt=urn:btih:CDB7CA3D81AE51221B8D89C39589C2B5FA89990D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E483A114BD741AA371F754282F5EFF183FA4B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ Format Factory - многофункциональный конвертер ра�
 ```bash
 magnet:?xt=urn:btih:9D907C57B495A349A7E43B75834124E4D56AFABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B417CD0C3A42672805BDA2DE33AA0255E6BA9EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C329A1974DB3B7D8DCFE29629F21BBF6D3FF655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Tony B - Singin' And Swingin' With Tony B (2005)3CD [ALAC|Lossless|WEB-DL]<Vocal
 ```bash
 magnet:?xt=urn:btih:6402CEC19C860F15E0394A24EFD5C4C96EED20E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ Suzi Quatro - Live And Kickin' (1977) Remaster /2014, 7T's Records/ [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:C6EFE07F1BAA5B643AC2855E80C10327F80EB9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12B408D9DD7ACDF0E24313B48EAEFB4FAF51BEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51831BDD10FA9F997310474D541B31345082F8D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D145F53E81EF8B3E4A19ECB2E872C63253D2DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ Midori - A Promise Of Angels (2007) [ALAC|Tracks]<New Age>
 ```bash
 magnet:?xt=urn:btih:37C0AB2007ED440BD4C9EEC0B0C31A31EE120F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ VA - Goa Winter 2013 (2013) [ALAC|Tracks|WEB-DL]<Psy-Trance, Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:5D9F0911FD72D6E8C5FF09836C844D0A542E9416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:F556557FC171EAFE93B63FC9A78885BE84F67373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ Armin van Buuren Presents Perpetuous Dreamer - Future FunLand (Remastering 2014)
 ```bash
 magnet:?xt=urn:btih:47D4E9ACDE3890579EAE36516AAE316D0F43911D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A552603F06DD1C301D60F3E7BD615D13A90E12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ Format Factory - многофункциональный конвертер ра�
 ```bash
 magnet:?xt=urn:btih:6C7422D80447158D05370F331373EA9B38698D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0541DF95F9FA1DDFBF730FFBB6A77C7F1A253AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47E35F703E35AB5455465B1B6E60C3A876BC9003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFF5BF6C2472F47AE31D19B0B087120D1EF117E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D042B8FC82E3A25367224C3DBC4F140AA64CB48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

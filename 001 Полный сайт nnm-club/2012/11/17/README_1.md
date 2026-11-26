@@ -27,8 +27,7 @@ VA - Танцы До Упаду (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:CB3C2D04398DF94E86FAFE22F4D854C8D8D70515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89E9D0BDED0EEDF9F164E0B4D3583849EA4EFB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88A3BC9856B32A77E250AD29E1F64EF0E4D8534B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3B832CBF50A84B5639F425D3DC8F3751CBE24D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:559FD09EC210C26C4CCFD3C3C1BCFE29AFD2EBD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5C076BBFDB06D0DEBFE66B9A43EE5C6A6AC6D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ VA - Trance In Motion: Sensual Breath 018 (2012) [MP3|320 кб/с]<Trance, Vocal
 ```bash
 magnet:?xt=urn:btih:6A8EA569B26D06B50E8020DBC2945C433CCBF04B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:393D1BBF08D0290DBC7B8D044C7786984C546629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25BDDE5728E820D4D5623EDE86F8AEDFE153B428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:266D54418A90AB43B3A1AE3741D2F46D6C921C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Affiance - The Campaign (2012) [MP3|320 кб/с]<Alternative, Metal>
 ```bash
 magnet:?xt=urn:btih:92A01901E4C71DE005FE6BBF8D65516B63D33102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ VA - Новогодняя Дискотека (2006) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:7226AB0E0E880393A6A5782443096DEBE29D530D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ VA - До 19 и старше 27 Русский (2012) [MP3|128 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:D2B20DAA01074E62335B13B916AF47E27A2A89EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ Woe, Is Me - Genesi[s] (2012) [MP3|320 кб/с]<Post-Hardcore / Electronic>
 ```bash
 magnet:?xt=urn:btih:B551B5788CAC5ECE1D242607542F02023B476999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BD18DD609C63FC85ACDD4F6224D838BAD903EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E187A6B475002598F46EA6303EF10DD92968DA26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ Antidote - No Peace In Our Time (2012) [MP3|320 кб/с]<Old School Hardcore, NY
 ```bash
 magnet:?xt=urn:btih:0D2F13418F8890062EC9D07713781533F60985EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +541,7 @@ Artworks by Piero di Cosimo
 ```bash
 magnet:?xt=urn:btih:0E0D2BEEA2E9BD60B40A630684D63FC0F3F0CA4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:811C822D4DEF8263FADE5F99271AA147BF71C91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F95E13E2592AC141956A620AF3056E18846039B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ MitiS - Influential Past (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:B9B608D6D7B5518A8B7E8034DCC1967B20517EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ VA - Двигай Попой 5 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:1A32F798448E957A0794217BC21DC5F886022609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ Lost Secrets 4: November 1963 [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:04199A892DEFA760FA7BD20BEFBB3D9FA8764291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ VA - Формат Хитов Осени (2012) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:2F02FF2B2A0A4BEAB6B593DB9289C610F3A8A804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +747,7 @@ Excelent Landscapes HD Wallpapers (16.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:7C699F9DD7EF84AA6BF5A89B982BED3247AFE481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

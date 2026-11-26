@@ -19,8 +19,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 ```bash
 magnet:?xt=urn:btih:AFEE26716A4C7A644420699F0BE10802FD51C5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 ```bash
 magnet:?xt=urn:btih:D31A69975F6017F3A6DED927AD2468A0CF01BD38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BIOMORPH - это научно-фантастическая приключенч
 ```bash
 magnet:?xt=urn:btih:6514549E8C12F78C5165E9EB580D0496C12E0CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ready or Not (2023) [Multi] (66884/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:495E5AB643F0245520B2231101FD1C966E4F2D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sifu – стильная, но суровая игра в жанре «избе
 ```bash
 magnet:?xt=urn:btih:BF6F79391A9F6B5DF170D8786530F5EC074949CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 ```bash
 magnet:?xt=urn:btih:36ECAE5945C55EA8FD90949A7809EEAF801FFA12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 ```bash
 magnet:?xt=urn:btih:11A2F5E521B3FFE54A12F7482953EFD435E247CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:6F9446C0CB712E16FF0FFACE3B3B49DD24E3BAC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

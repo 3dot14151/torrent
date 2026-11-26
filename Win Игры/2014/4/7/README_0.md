@@ -21,8 +21,7 @@ Armageddon Riders – кровавый автомобильный экшен д�
 ```bash
 magnet:?xt=urn:btih:AEFDF55AEBE290B86C56E19A0F39AA186A6186CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Strider – сайд-скроллинговый платформер, дейст
 ```bash
 magnet:?xt=urn:btih:523E42122DCB3473D353B447CDED4B695D1DF91E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

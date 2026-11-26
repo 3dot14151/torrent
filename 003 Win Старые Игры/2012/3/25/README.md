@@ -19,8 +19,7 @@ Star Command: Revolution [Ru] (RePack) 1996 | pilotus
 ```bash
 magnet:?xt=urn:btih:483AF034109DA6807C9230C411B7A6AAD014E73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Future Wars: Time Travellers [En] (RePack) 1990 | Pilotus
 ```bash
 magnet:?xt=urn:btih:C9C81D51E56604E71C0C431BC2B349262124F3C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Gordon Thomas, Max Morgan-Witts | Enola Gay: Mission to Hiroshima / Энола �
 ```bash
 magnet:?xt=urn:btih:9FBDAA7C78106019ADB93D35598789710E9317A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AA55B7B84AD46DB3DF2FDC2783E065364604EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

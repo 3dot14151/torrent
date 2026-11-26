@@ -27,8 +27,7 @@ Smaxxide - Smaxxide (2012) [MP3|320 кб/с]<Nu-Metal | Rapcore>
 ```bash
 magnet:?xt=urn:btih:FE3106EA3102536C61FF712AED89CD4E12999E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Bouncing Souls - Comet (2012) [MP3|320 кб/с]<Punk rock>
 ```bash
 magnet:?xt=urn:btih:39C43197E8EE3EEFF5EFB33F1E28486E008EEE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Woe, Is Me - Genesi[s] (2012) [MP3|320 кб/с]<Post-Hardcore / Electronic>
 ```bash
 magnet:?xt=urn:btih:B551B5788CAC5ECE1D242607542F02023B476999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Antidote - No Peace In Our Time (2012) [MP3|320 кб/с]<Old School Hardcore, NY
 ```bash
 magnet:?xt=urn:btih:0D2F13418F8890062EC9D07713781533F60985EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Mystery - The World Is A Game (2012) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:A89EF4681432D48F53AA26320A69587D78FD7444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Mano Negra - Best Of (1998) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Various Artists - punks goes pop 5 (2012) [MP3|320 кб/с]<Post-hardcore / alte
 ```bash
 magnet:?xt=urn:btih:E08BFB7841FD58240AF6F240EA850C7D6A677008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ HIM - XX - Two Decades Of Love Metal (2012) [MP3|320 кб/с]<Gothic Rock / Love
 ```bash
 magnet:?xt=urn:btih:55DCF6AA5C19FBCF9CB7E8AC7D88AF7F5863ACB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ Mystery - The World Is A Game (2012) [FLAC|Lossless]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ Chicago - The Chicago Story: Complete Greatest Hits (Japan WPCR-13059) (2002) [F
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

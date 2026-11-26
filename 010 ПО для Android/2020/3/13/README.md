@@ -19,8 +19,7 @@ Color by Number – New Coloring Book - это увлекательная мул
 ```bash
 magnet:?xt=urn:btih:747689F7526C4015C9F43F053AD87C669C009602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WiFi Analyzer Premium - премиум версия многофункциона
 ```bash
 magnet:?xt=urn:btih:C07BF16DF529FFE85F69497B9A4EF0EF713C1BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pro QR & Barcode Scanner PDF417 Scanner, Reader v2.1.0.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:90F9E73A7ECD27EEB06C2F8BD06DAD13E8966CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ XRecorder Pro 1.2.2.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:AF56D8C03076E5C3FC1D79FBD26822F07C7D7061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

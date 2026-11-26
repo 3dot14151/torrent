@@ -19,8 +19,7 @@ AyuGram - это клиент телеграмма, основанный на ex
 ```bash
 magnet:?xt=urn:btih:0DEB9379451D355C41AF93EC5BBC2C90CA338172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

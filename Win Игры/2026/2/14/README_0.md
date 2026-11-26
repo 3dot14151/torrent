@@ -19,8 +19,7 @@ Reanimal (2026) [Ru/Multi] (1.0a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F29B1BBAA18531C7636F36EA8603B23902BD3B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BlazBlue Entropy Effect - двухмерная приключенческая и
 ```bash
 magnet:?xt=urn:btih:6660D569889526DB7C01BF350BE1F81C2C1AD83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reanimal (2026) [Ru/Multi] (354342/dlc) Repack Other s [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:E864B8BA8CD81D017CFFEC14F2A855400EDDED5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ High On Life 2 (2026) [Ru/Multi] (Build 21897943) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D861808692807F0FFDC0B4E81EB7A29D0778121A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Disciples: Domination (2026) [Ru/Multi] (1.2.0.3271/dlc) Repack FitGirl [Deluxe 
 ```bash
 magnet:?xt=urn:btih:0A7EEBC55DD2CA9EA531ADBFE2EB7D496E0F924A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Enderal: Forgotten Stories - тотальная конверсия The Elder Scr
 ```bash
 magnet:?xt=urn:btih:DA58911E38E233731603174C375AB0008A64285E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Reanimal (2026) [Ru/Multi] (354342/dlc) Repack seleZen [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A81F4539E6C58D08F0B4CAA98A0258943D0E1E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Heart of the Forest (2026) [Ru/Multi] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A328D5DB4CB44B0A02906C6A85D2AFD2A33FC5E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Vagrus: The Riven Realms – ролевая игра с элементами с�
 ```bash
 magnet:?xt=urn:btih:ACB2E2140658A34ECBAEEDDD1EB3D034CDE3D3B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Disciples Domination (2026) [Ru/Multi] (1.3.1.3350/dlc) Repack Let'sРlay [Delux
 ```bash
 magnet:?xt=urn:btih:F788D4945D462E43252FA1896CE778A3A63F1F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Unfinished Business - это новое самостоятельное прик�
 ```bash
 magnet:?xt=urn:btih:40402F56A284609722C6656201CC9227BB36693E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Reanimal (2026) [Ru/Multi] (354342.5/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DF601F63DFE8394EC809BF0A1DD70D1B7144A6A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Hordes of Hunger (2025) [Ru/Multi] (Build: MS19.5738_5640f4d4e9) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:91A1F18CE844E0DB3084093BBB7DAD8F23BEE2FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Hordes of Hunger (2025) [Ru/Multi] (Build MS19.5738) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B5410D687C2A7987C840BE201FBD38F0B78178FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Jackal (2026) [Ru/Multi] (0.9.10) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FED16AD7989E2B81D037A202CD6F8E08482BF456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ R.I.P. органично сочетает град пуль из Vampire Surviv
 ```bash
 magnet:?xt=urn:btih:D29B0A7C1A70D1E9E2BA7920290CF13A991AD0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

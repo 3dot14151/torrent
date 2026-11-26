@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8482CC30F3BF4E576D218094301F37B22A9C4254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Rendezvous - Rock And Roll Disco Boogie (1979) LP [MP3|320 Kbps] <Electronic, Fu
 ```bash
 magnet:?xt=urn:btih:D72F65A72D5CAC2BEE1A7AAC97D4442C38003E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ IP Scanner - приложение сканирует локальную сеть
 ```bash
 magnet:?xt=urn:btih:B1C9D3912518E7775584A4F984503AE37169ACA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VA - Drive Radio Selection Vol. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 ```bash
 magnet:?xt=urn:btih:C02409A96D80B0DF703A984602E747F1C85798DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Infinity Dashboard позволяет вам отслеживать что уг�
 ```bash
 magnet:?xt=urn:btih:0D171CC45B4B570DD764CC4E8D120EB89CF25654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Tipard Mac Video Enhancer - видеоредактор для пост обра�
 ```bash
 magnet:?xt=urn:btih:3EC24D7691C79FE500BADA035E30A923791BAD80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Alien Skin Eye Candy 7 — новая версия набора из 30 филь
 ```bash
 magnet:?xt=urn:btih:C1690C135DF57898C012495CCF7574CCDF30A800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Va - Cafe Del Mar XVII-Volumen Diecisiete (2011) (2CD) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:809A87AAFEE79EFE4003820D9C7A3FB2FB899822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E793BA913731CB12FC6636702C6B89F6A4BAFCFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ VA - Чёрный тюльпан 5 (2004) [FLAC|Lossless|tracks + .cue]<Шанс
 ```bash
 magnet:?xt=urn:btih:50A3CFC2259D597B3857FB115ED7EAD19D0E9384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE2B20B17A1BEB3514C4401E739D74A2600FFD9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - Record Super Chart 612 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:6AC6A0F5933CB929F943FB5939F6AE83B702C9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E97A218623317E21EACB28781D2E76A3E52C5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ New London Chorale - Het Mooiste Van (2006) [FLAC|Lossless|image + .cue] <Classi
 ```bash
 magnet:?xt=urn:btih:369254B890D730D49606F75C1F75671FD9403C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ VA - ЕвроХит Топ 40 Europa Plus 08.11.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Wifi Signal Strength - отображение состояния уровня Wi
 ```bash
 magnet:?xt=urn:btih:8FAB9EE929CE4F343B069AEFB4422034233CE6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:952481BD3BAEF4EF5F0CEB4AB8C3A706DB51C541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13F1EB24A34D6777DB45FFED080ABE80A61BD4AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Registry Life 5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:823B3CD71538064DF0DEFBA8BC78A2AB8DA56B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ VA - Happy Nation: Reggae Collection (2019) [MP3|320 Kbps] <Reggae, Dancehall, R
 ```bash
 magnet:?xt=urn:btih:517505DA402D982E39C4D958D6A22DC8AF78000F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B534DE66C690670C68C2EAB9475B407F3B911B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ VA - Hot Dance Pool Party (2019) [MP3|320 Kbps] <Dance, House, Pop>
 ```bash
 magnet:?xt=urn:btih:9706F087E4C44322E8B65A99ED802AC50F680743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ New London Chorale - The Collection  Vol.1 (2000) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:30E486382F949713B45E1F571B2568431BD1466B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F2668FC1BDD79A722C52AFAE27E2A16042AEA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Pretty Maids - Undress Your Madness (2019) [MP3|320 Kbps] <Melodic Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:29AC0954E71BFBE639E168F7BF0633DB6E629F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B163914AE685B1FBB69DFF54F5658C88A2B07B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

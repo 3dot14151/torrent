@@ -19,8 +19,7 @@ Rift (2011) [Ru/En] (4.0/hf9) License
 ```bash
 magnet:?xt=urn:btih:9F10311F6534D113ADD314E4954984CDDAC73D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sid Meier's Civilization V (2011) [Ru/En] (1.0.3.279/dlc) Repack R.G. Механ
 ```bash
 magnet:?xt=urn:btih:0B6D457AC55507CF1B1B348D4EF0D48F89EF18F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Beitthemeans - Crude Alabama Storytellers (2008) [APE|Lossless]<Hard/Rock/Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - День рождения Виктора Цоя (2002) [MP3|320 kbps]<Ро�
 ```bash
 magnet:?xt=urn:btih:C5966D37596FC12E4E1B5DC98F2CA5DE6C05CA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Митьки - ЗеБест (1996) [WV|Lossless]<Рок, Кавер вер�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

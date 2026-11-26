@@ -22,8 +22,7 @@ Sectioned - Purulent Reality (2010) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:6374F8A68EEA704E2CAF28938EE212921ABE0581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chano Dominguez - Chano (1993) Nuba Records [FLAC|Lossless|tracks + .cue] <World
 ```bash
 magnet:?xt=urn:btih:30B16044A53D74382E732A804B29C8CF3C6D92B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Relaxing Beach Chillout Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:30045D7CE016CEC65EA44AD087B53AF8E2CC599D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Trance Spring Essentials (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:B277A1D774C38BC7DE6785E70353EA0F6916E57E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Ori Uplift - Uplifting Only, Episode 216 (2017) [MP3|192 Kbps] <Trance, Upliftin
 ```bash
 magnet:?xt=urn:btih:5F987B205180139D5236B20D4367336921956FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Leaf проще как по функциям, так и по внешнему в
 ```bash
 magnet:?xt=urn:btih:11ED8034EA863C6C8FCAA622E94D46D5D8EE21CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Beatport Trance  Pack (04.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Upli
 ```bash
 magnet:?xt=urn:btih:3C9D75446FF95B484B81E84F327AD12B4A31674B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Tempel - The Moon Lit Our Path (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 ```bash
 magnet:?xt=urn:btih:88AD109E4485737641F75844E1A9034E9BC2B4C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Ike Quebec - It Might As Well Be Spring (1961) 1998, Ars Nova [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:D98F74EBD8D5F55C04A78087F247933FC7624280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:6F764E9B0E5F92E7A9E30836E68DBC032453B60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ VA - Chillout Summer Session Ibiza Lounge (2017) [MP3|320 Kbps] <Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:A7A590DAC7F9BC88FC0D8CB2E349AEF70547AB27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ VA - Sexy Deep House (2017) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:2BB10F8E7228D4D849326609EE0500700D4F6435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Tempel - On The Steps Of The Temple (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-M
 ```bash
 magnet:?xt=urn:btih:E2DC76ED874C7BA9F4B410EB1B86AC28C5187381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Lingon позволяет визуально создавать файлы ав�
 ```bash
 magnet:?xt=urn:btih:B3AA194DAE4567A1841C7920645D3F31201C37F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ VA - Chillout April 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Dow
 ```bash
 magnet:?xt=urn:btih:FABB0B2A5BD9A232B1525F78EAA4385F2D28E788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Elian West - Uplifting Trance Collection Vol 6 (2017) [MP3|320 Kbps] <Uplifting 
 ```bash
 magnet:?xt=urn:btih:D0E1AA2905EC45A959086489413DECE6D9E84419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ SteerMouse — продвинутый драйвер для USB и Bluetooth м�
 ```bash
 magnet:?xt=urn:btih:7B69ED334C0F0169ECD447BC3A663E98EC8E46D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ VA - Chill Pilates Music: 15 Cool Chill Out Tracks for Pilates and Yoga (2017) [
 ```bash
 magnet:?xt=urn:btih:5B320E197F34A5CF8B6AE7EB3CE0125EF0571449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Aldaria - Land Of Light (2017) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:0259AE5F4BDC3385FE350F34D27B6D0A3D83F66F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ Dirty Dave Osti - Voodoo Guitar (2010) [APE|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4EFFA0E5FA01E54E6E2F547FEE1AF1CDD14C76ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ VA - Submission Recordings Presents Miami 2017 (Mixed by INDI & Atragun) (2017) 
 ```bash
 magnet:?xt=urn:btih:B70E4D3FC69D6C7CD96BA897C1A8429D03A9E8CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ PhotoStack - это новый инструмент, чтобы помочь в�
 ```bash
 magnet:?xt=urn:btih:C592CD379DDBF6BEA6CB606AE0CDFD213420F230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:3584FE5155E734538D9F74647F7824FE0742B72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ VA - Chillout April 2017  (Top 10 Spring Relaxing Chill Out and Lounge Music) [M
 ```bash
 magnet:?xt=urn:btih:E1057E982EF52F42FA43249354A2F083C2F95A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ Fugu Quartet - Sisyphus (2016) Demo EP [MP3|320 Kbps] <post-metal, sludge, darkj
 ```bash
 magnet:?xt=urn:btih:FE101789B66529D640589D8CE633E18866852261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ VA - Level Lounge (The Best Selection Of Vip Chill Music) (2017) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:9A28AA3CC54BAE08F5BF78385E63101530157B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

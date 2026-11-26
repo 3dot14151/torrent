@@ -28,8 +28,7 @@ VA - Trance. Vocal Fascination 58 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifti
 ```bash
 magnet:?xt=urn:btih:36C528A4FF8C0AE4E1C2A4C806E4D4E188E81583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Trance Maniacs Party: Uplifting Breeze 2013 [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:32BF369062B15C716333F668DB16BBC9E1D36D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Bastian Basic - Chapter One (The Album) (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A0ED917A9BACC862BC116F25625FE28B139C658D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Клубные Новинки Vol. 343 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:FC55B4537603A4A94D28611337B9315A0C0DA282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - Клубные Новинки Vol. 342 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:D5585232F0DAA76C7F95656DFFBD6DDD9D804F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Point - Deepending (2012) [FLAC|Lossless|WEB-DL]<Downtempo, Techno, Techtrance>
 ```bash
 magnet:?xt=urn:btih:F1A0C808526E738434DFC57F4EE024255FC0684F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3747E8AAD903D813F10741324FDC0FE8DEE921C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Synthetic Epiphany - Renovatio (2013) [FLAC|Lossless|WEB-DL]<Dubstep, House, Chi
 ```bash
 magnet:?xt=urn:btih:874A406DEAED59DBF19CCF7769F740B4336C6858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ VA - Deep House Set 1:Eye's Wide Shut Grooves (2013) [MP3|320 кб/с]<Deep Hous
 ```bash
 magnet:?xt=urn:btih:5DC16585B4C8A72B6F2732BB7079C4E34544D2DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +344,7 @@ VA - Снежный Драйв Хитов. Зарубежный (2013) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:02ED566105BC9900C3C919D028E3D0F9685C1BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +378,7 @@ House of Dues - Cross That Line (2013) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:D15FC8BB183636A02BE1450AEB372F174C6777D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +412,7 @@ VA - There Where We Will Not Be (2013) [MP3|320 кб/с]<Chillout, Longe, Ambien
 ```bash
 magnet:?xt=urn:btih:C1DE6B77AC0DC4A60051BE5A8F5E95214D6A8CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +441,7 @@ Supersillyus - Interabang (2013) [FLAC|Lossless|WEB-DL]<Downtempo, Psy Dub>
 ```bash
 magnet:?xt=urn:btih:E9C8EF88AB9EBBA592BDC6F7426F25528CFF8757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +470,7 @@ Soren Nordstrom - Protogenesis (2013) [FLAC|Lossless|WEB-DL]<Minimal, Progressiv
 ```bash
 magnet:?xt=urn:btih:410192DC85EB1CE942573E120B67516AB0C9E19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +504,7 @@ VA - Trance Top 100 2013.11 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:3193D6355150ED3B2879477E139E1BB553DE0E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +538,7 @@ VA - Clubland Beach: Tao Island Chill (2013) [MP3|320 кб/с]<Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:718C636D68F3D801882A2DCE10DC8D0EDAB168CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71F02422279D7E87E331D0171102A2A00DA0FB3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +597,7 @@ Trauma - Scratch and Scream (1984) 2013 Reissue [FLAC|Lossless]<Speed Metal/Heav
 ```bash
 magnet:?xt=urn:btih:FF377C93B1F63BF544F8D35724AA32072F305BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +631,7 @@ Silent Force - Rising from Ashes (Limited Edition) (2013) [FLAC (image+.cue)|Los
 ```bash
 magnet:?xt=urn:btih:7E62796E7627B79B8D9FEED85C6BE909D21142B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8604C04A677F223641553DDE1BEB67EA4C35315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +696,7 @@ OuD!n13 - Lost In This World (2013) [FLAC|Lossless|WEB-DL]<Downtempo, Techno>
 ```bash
 magnet:?xt=urn:btih:B47C74F4C09A9D5C4EAF5B68B3D89027BFFC05D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +721,7 @@ Comedy Баттл. Без границ. Выпуск №31 / Комеди Кла
 ```bash
 magnet:?xt=urn:btih:47D202286EFC21A5E365CEDE7BFAA3C48C0DA153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +746,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F00F96EA4B17FD8706F20D2962DC3437D0F5447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +771,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CB2FEF0FC2094784ACF23F9C2E87F25E300D239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -827,8 +802,7 @@ Andre Visior feat. Cathy Burton - Daylight [Single] (2013) [MP3|320 кб/с]<Tra
 ```bash
 magnet:?xt=urn:btih:D5A3A96587B29027DA6C6CA04FBD3E353B8F56CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

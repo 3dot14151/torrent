@@ -18,8 +18,7 @@ QTranslate - программа, которая переводит текст н
 ```bash
 magnet:?xt=urn:btih:C24A0C55EA71BC594744E2C213BF8CCC1C3840A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E446A316421977E9DB57AEDC5E8E30AACEED431D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Mairimashita! Iruma-kun (2022) | Добро пожаловать в ад, Иру
 ```bash
 magnet:?xt=urn:btih:01CEA8DEA69828598F40B06F4A97C4EA64235EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3450EDCCA1280B20DFA77267F3576624A3499ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

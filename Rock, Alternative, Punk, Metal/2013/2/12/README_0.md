@@ -27,8 +27,7 @@ Leviathan - The Aeons Torn (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:35F3CC28D14C2B16C8B73964EBE4D4D59B2222FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Raven Lord - Descent To The Underworld (2013) [MP3|320 кб/с]<Heavy Metal/Powe
 ```bash
 magnet:?xt=urn:btih:8F878F3ECCAD0731DFA22C311C2D4CA260198C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Optical Faze - The Pendulum Burns (2013) [MP3|320 kbps] <Modern Metal>
 ```bash
 magnet:?xt=urn:btih:26C21E0AE8D76B8B0B6AE92D071BFE18A285031C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Yngwie J. Malmsteen's Rising Force - Spellbound (2012) /SHM-CD, Japan/ [FLAC|Los
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B8028F4C2500BF02C12703D8DADB44ED132C4C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

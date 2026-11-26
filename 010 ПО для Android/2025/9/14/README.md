@@ -19,8 +19,7 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:56EDDC31EAAB75E44D5D96C9B95D431F56FAD2BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BZ Напоминания и Дни Рождения PRO v3.9.3 Mod by Viktor245
 ```bash
 magnet:?xt=urn:btih:72FF9648A6ED2795CD7A74C6B1C85A2431CF9975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

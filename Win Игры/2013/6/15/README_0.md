@@ -19,8 +19,7 @@ Untold History: Descendant of the Sun Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:DCD4D3D428E5F3EB9AC0BF282172BB2D622A57FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trine 2 — игра с видом сбоку с элементами экшен
 ```bash
 magnet:?xt=urn:btih:544FF7735FE6EC8D57B6475D5AEC457DD2E2DC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

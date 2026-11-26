@@ -19,8 +19,7 @@ Maze 2: The Broken Tower / Лабиринт 2: Сломанная башня (20
 ```bash
 magnet:?xt=urn:btih:09D09E14D8DA44379171D6BE48FDFF0AF7C73F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dex - стильная 2D RPG с элементами стелса и экшен
 ```bash
 magnet:?xt=urn:btih:79D8501F4B9BA59A0BA443AEEFA85B0572C9A210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

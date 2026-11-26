@@ -22,8 +22,7 @@ MuseScore v2.8.46 [Ru] - view and play sheet music
 ```bash
 magnet:?xt=urn:btih:B64DD436EC07239E4415792989A0244B736CF465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Eon Music Player Pro - это мощный и удобный аудиоплее�
 ```bash
 magnet:?xt=urn:btih:33D6D7163B1094AEBADB89EF064DDDDD139E3962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A255B818FD8273548CE8778D1F073FEFE97F1745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

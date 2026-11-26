@@ -19,8 +19,7 @@ Pac-Man and the Ghostly Adventures (2013) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:6401544311A52A5280C62E757C31FF9162E95B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legends of Aethereus – фэнтезийная экшен MMORPG, предла�
 ```bash
 magnet:?xt=urn:btih:9FC6A3E8FED82AA5F3217AC3AE05931B93BA4B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sniper Elite Nazi Zombie Army 2 - сиквел спин-оффа в серии S
 ```bash
 magnet:?xt=urn:btih:CD4AF0503A8CA6A27A1E01A7F4FE6E52134C4848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ WRC 4: FIA World Rally Championship (2013) [En] (1.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:4E62C66F72D10DCE65336E73D6A0FEF55B5AA9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

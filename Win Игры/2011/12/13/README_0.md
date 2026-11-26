@@ -19,8 +19,7 @@ The Exorcist II (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:02C64CB90D3BC0A265C2EBF1E99F78C397742F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EF065FE6214AEF757A7E4EC99499F1CCDD1691C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Christmas Wonderland 2 / Рождество. Страна чудес 2 (P) [Ru] 
 ```bash
 magnet:?xt=urn:btih:E11B02817A9F1F7A24B0AA1653FEA66669409E69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9C8953EB2D801174BA1AB993B982942E1F62993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Midnight Mysteries: Devil on the Mississippi / Тайны прошлого. Дь
 ```bash
 magnet:?xt=urn:btih:65DC26A2975176220B3E3F83A835454045FB04C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76DFEE6DBE913699EB1B2721F1EAB0C938E07F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ The Exorcist II / Экзорцист 2 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:8C2B2340F5A8951FFE59C06D78492D5BE6F1630F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ A Stroke of Fate: Operation Valkyrie / Архивы НКВД: Охота на ф
 ```bash
 magnet:?xt=urn:btih:FD0BEA85926BDDAAB174473690888BF02E3DDD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Postal 3 [Ru] (RePack/1.11) 2011 l R.G. Repacker's
 ```bash
 magnet:?xt=urn:btih:511E2643BC4FB2DFA67C66E12BE32BBC7FF3C7C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

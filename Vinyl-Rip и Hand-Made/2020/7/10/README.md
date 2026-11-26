@@ -22,8 +22,7 @@ B1 Something In The Air (Album Mix)
 ```bash
 magnet:?xt=urn:btih:7F438428D44C3DCE881E4A56F966E3AA90ABFDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

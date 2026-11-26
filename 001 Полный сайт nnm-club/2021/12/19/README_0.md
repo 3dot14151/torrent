@@ -21,8 +21,7 @@ Death Angel - The Bastard Tracks (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:E4DB865713FF381480A5665D9FC2B1BA9787AA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50BFE3A420C5EECCBADEF571D942D85AA3FEF9C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Planeta Mix Hits 2022: Winter Edition (2021) [AAC|~324 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:5840BB998B392C3945CDCE11383CE867437ECB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Act of Denial - Negative (2021) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:C503F826DC478DCAC49766F764D197AE0D4DD681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - The Sound of Emotional Content Recordings 2021 (2021) [AAC|~339 Kbps] <Prog
 ```bash
 magnet:?xt=urn:btih:BA3D4841D3D2E51727D15A778FD67DA7550537AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Folder scanner - визуально анализирует диск / папку
 ```bash
 magnet:?xt=urn:btih:A9AF2CC585AD1645818839F5C27B173948C165D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Loopback 2.2.7 [En]
 ```bash
 magnet:?xt=urn:btih:8FEB08D478A25BC2564139D609D8BAAAAE61CF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Kryder - Kryteria Radio 321 (Kryder Yearmix) (2021-12-15) [MP3|192 Kbps] <Progre
 ```bash
 magnet:?xt=urn:btih:021A12698E398516B9DDD26109E61C9AF7A08EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FC487EBEE7CD3ADEA2C6446476EB734D1323E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Deflection является наиболее интерактивным, быс�
 ```bash
 magnet:?xt=urn:btih:28B309D7800BE40B967DC60A9BE037B1E0D01074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Fission 2.8.0 [En]
 ```bash
 magnet:?xt=urn:btih:3CEE6D456A8A42FD3A4B63EAC6543CD9AD2BCADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ The Clock - The Best World Clock 4.6.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:65FF565C876F1C2CA128DF8BE3F1244A69A7D47D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87AC82A9AEDD482B6F18E2C79F069B143E2054C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ FxFactory Pro включает  фильтры, генераторы и пере
 ```bash
 magnet:?xt=urn:btih:95B24B458AF838D87FC66EC5AAEF4B72EB867213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ VA - Saturday Feel Good (2021) Explicit [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2DCD5191DEF23EA1E7E49C099BEAAE67F52D82DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ The Grandmaster - Skywards (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:B5AEF2F19BF580954DCBBAFE2209D960B1D5ED56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F85F574B756DDB039AACE4A8C2A057BE32C493FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:D08F1B440845DAB4896AAA120706C9A7D462C9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9379655E01D45828EB54D857185A1EAB741A52D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [MP3|320
 ```bash
 magnet:?xt=urn:btih:F89F1C8AD8A5BE526D08D30716AE96C5BFFFF141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7089746AC11AB2F8C8FE4AF1ED71FFB7231B90D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Armada Music - Trance Year Mix (2021-12-18) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2AEE58F3B2C03AABB3C7D5C53D2ACA84DF9BBD0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EC062C1DC7C99EEEE01810E542A5939EEB68912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 ```bash
 magnet:?xt=urn:btih:69833E435BAA6BE231BC78C62792BD526F3CDCC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ Kid3 — бесплатный инструмент, позволяющий ре�
 ```bash
 magnet:?xt=urn:btih:3FCCF748AFC6F5EF8421EB51A272EAE46CAB9D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ Audio Hijack - отличное решение для аудио записи н
 ```bash
 magnet:?xt=urn:btih:695D5AA00E3DA2DAAF21C2F963EBB937BE8E7304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

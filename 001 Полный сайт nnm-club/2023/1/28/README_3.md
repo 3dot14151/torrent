@@ -19,8 +19,7 @@ QuickTime Converter Mac также поддерживает преобразов
 ```bash
 magnet:?xt=urn:btih:30A0A1374D88351A95050DC80E65AEEFCA45E886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:F917116230457A1E54A6A2DAD26580E36B927DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ iA Writer 6.0.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F794FE194B224259FEEDA7123CAA8F2212EC0D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Luminar Neo 1.6.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:A9D6B2BE63A6BD3CDA3769C3BDB3D15A63050B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MediaHuman Video Converter разработан, чтобы сделать ва�
 ```bash
 magnet:?xt=urn:btih:D9F3E845A5C7DC37CF5D14EFCA79553EDD5A34E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:629B951F8E93CC50C7D5FDB55B51DF8ABFD2C793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Affinity Publisher 2 v.2.0.4 [Multi]
 ```bash
 magnet:?xt=urn:btih:89476FE5A78AC6D34108CA2ED968390887FD12BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Project Office X — это полнофункциональное прилож�
 ```bash
 magnet:?xt=urn:btih:DCD6455A69B3F2C1300B11667B0236399D513D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49C428A99CCF3E1CBC69A71B9E625CBEE8FE6AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Bootstrap Studio обладает (   Читать дальше...   )Тип и
 ```bash
 magnet:?xt=urn:btih:3B9420C06052D7DB094CE337F4B0010CBD9A1150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ VA - World Of Trance (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:28504E4024424269FFF1A519D6EB15D654C7645E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ facebook
 ```bash
 magnet:?xt=urn:btih:2D110123C0A22BAFB09FE1AE1A55451873763F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Convocation - Ashes Coalesce (2020) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom M
 ```bash
 magnet:?xt=urn:btih:28B8BDED4495195590E0516B1D501BB8B9734838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Exhibeo 2 - Создайте великолепные HTML5 презентаци
 ```bash
 magnet:?xt=urn:btih:1B0FD0E150D1A43DBB99588EB2D027B44AB2167C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ System Dashboard показывает использование процесс�
 ```bash
 magnet:?xt=urn:btih:EECF7161FFA719836AF11D503EC6DC81BA0487E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ Bigasoft WTV Converter for Mac конвертирует файлы WTV, файл
 ```bash
 magnet:?xt=urn:btih:EDCCE9F0F4F6708428D3BD40D52A101803158D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Coldworld - Isolation (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Depressive 
 ```bash
 magnet:?xt=urn:btih:F699DB86B2CD8A534C83F90138D54EB676A27B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ```bash
 magnet:?xt=urn:btih:C34DFA2D29E9629E4EB02B8F3A64E90E95479A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ Tronos - Celestial Mechanics (2019) [FLAC|Lossless|image + .cue] <Groove Metal, 
 ```bash
 magnet:?xt=urn:btih:AFE2B8DC0C304D202EDCFEEA8E51C97B25F1DA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ beaTunes анализирует музыкальные композиции, о�
 ```bash
 magnet:?xt=urn:btih:38259E1040326F81E7C3ED4394958B1BC3DA8ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ Sorrowful Land - Faded Anchors of the Past (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:99DB3626A8A3FC43039C1F0D8D4D4ACDC924FEDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ Liquid Steel - Mountains Of Madness (2021) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:178AC384C5D0C03C9CA33BC0EAC0E5CDF851EA7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ VA - The Best of Luminol Records 2022 - Cantata (2022) [MP3|320 Kbps] <Alternati
 ```bash
 magnet:?xt=urn:btih:46B0D73D82046ED4C294BEAB5BEB7F67976340E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:A693F025EFF5047BA2078BE937DCC30C68C0F558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ iRightMouse — самый мощный инструмент контекстн�
 ```bash
 magnet:?xt=urn:btih:829FAF13FA71536CA0D86439D79F39D77C959D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D12802EE19242273F39A3B7F905A32D7DDB6D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

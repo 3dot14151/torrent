@@ -23,8 +23,7 @@ Maiak - A Very Pleasant Way To Die (2015) [MP3|320 кб/с]<Post Rock, Post Meta
 ```bash
 magnet:?xt=urn:btih:9F2079D9F3475C1873D1A9D93B67BE9CD6BC9F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Moonspell - Extinct (2015) Deluxe Edition [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:1CA49A5A3A3935DBA7D893C5C96DE7A948FDB30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ VA - The Many Faces of Pink Floyd (2013) 3CD [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:320A4229B44A47A53AEDFA9032071891B2DBE35F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ VA - The Many Faces Of Led Zeppelin (2007) 3CD [FLAC|Lossless]<Classic Rock, Har
 ```bash
 magnet:?xt=urn:btih:B563E23FDF6D7F5647C6F3BC88481C722E1D58A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

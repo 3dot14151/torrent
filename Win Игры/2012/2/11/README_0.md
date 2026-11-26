@@ -19,8 +19,7 @@ Ghost Towns: The Cats Of Ulthar Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:8C3123AF2A4F4A4A8BECAB670039AC4AA461BBD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Between the Worlds 2: The Pyramid (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:027DC05A9B027A296D5B349C034535AC39BCADE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead Island + 3 DLC [Ru/En] (Lossless RePack/1.3)2011 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8043F529688528C31E847E2B59C7ACC08C69F804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Front Mission Evolved [Ru] (RePack) 2010 | R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:47AABDD42DA1E6A616D99CE86CBBFD7820E079AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Orcs Must Die [Ru/En] (RePack/1.0r14) 2011 l R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B9DE1D7390411EFC06DE15D6549727DDC18E4382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ The Darkness II: Limited Edition [Ru/En] (RePack) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:EA9F4604026AA13FD5E872FC64DC0D3B7FB79408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

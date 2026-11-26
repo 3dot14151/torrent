@@ -21,8 +21,7 @@ Marcos Mateu-Mestre | Framed Ink (2010-2021) [PDF] [2 части] [EN]
 ```bash
 magnet:?xt=urn:btih:5D695F5798F27C6B5F8C1270AE3A24469F068260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

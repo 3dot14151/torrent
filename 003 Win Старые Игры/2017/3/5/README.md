@@ -19,8 +19,7 @@ Ultima 9: Ascension (1999) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:D584E9D1C80FEAECA039682813D082DBEE052514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
 ```bash
 magnet:?xt=urn:btih:63400F18A4A42F1E8056B2446867E1708FCD13E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

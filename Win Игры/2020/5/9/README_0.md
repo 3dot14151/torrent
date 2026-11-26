@@ -19,8 +19,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) Repack West4it [Director's
 ```bash
 magnet:?xt=urn:btih:8C78E943054115D3AE1E5764CBDE2FF9C8E4F1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

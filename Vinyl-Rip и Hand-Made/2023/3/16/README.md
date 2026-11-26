@@ -22,8 +22,7 @@ MaYaN — нидерландская симфоник-дэт-метал-груп
 ```bash
 magnet:?xt=urn:btih:118C5DB1E4923A9775AE82F07134C253BDD4BADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

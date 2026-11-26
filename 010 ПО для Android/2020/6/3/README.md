@@ -19,8 +19,7 @@ AndFTP — полноценный FTP/SFTP/FTPS клиент для Android с �
 ```bash
 magnet:?xt=urn:btih:2B838C18D4667BC166171CD2D0F99849FB45D197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Math Wiki предоставляет многочисленные упражне
 ```bash
 magnet:?xt=urn:btih:129C3BD0C2CD6400DB2F1480EA423D619EA48F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

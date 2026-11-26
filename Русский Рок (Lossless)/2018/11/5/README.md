@@ -22,8 +22,7 @@ Beer Bear - Мёд (Honey) (2010) [FLAC|Lossless|image + .cue] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:05763BF281FA5C6341F141073B152A23F2039112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

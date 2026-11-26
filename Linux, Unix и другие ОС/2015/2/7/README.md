@@ -21,8 +21,7 @@ OpenMandriva 2015.0 Pre-Alpha [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:C2079AEC0AB562379CC74B7838B21B5C0A6C9191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Lost April(   Читать дальше...   )Жанр: Jazz, Pop, SwingПр�
 ```bash
 magnet:?xt=urn:btih:528696673B5CF98837E429AA4BD6FA4D1022C147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Orden Ogan - рок-группа из Арнсберга, Северный Ре�
 ```bash
 magnet:?xt=urn:btih:4A82F311334FC9F43921B50C061CA010EE5B7612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

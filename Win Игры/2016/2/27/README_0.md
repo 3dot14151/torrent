@@ -19,8 +19,7 @@ Assassin's Creed Syndicate [patch] (2015) (1.40)
 ```bash
 magnet:?xt=urn:btih:21FA46271024836F493313A5223FE8C726BC6391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Town of Light (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:EEBECC91B6EAA9AD2E1722C1D508FA32825E697F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

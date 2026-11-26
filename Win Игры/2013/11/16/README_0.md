@@ -19,8 +19,7 @@ Plagiarii (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:C7F0D41B384D54B8631AAD50E57ADB8D7D85B1EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grimville: The Gift of Darkness (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:C166782D24FC17D5E29746530B9BA4CEFBD0A04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Punished Talents: Seven Muses Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2520E298E6455A8D4EE6A4CA05A1FB6B9154EDFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Outlast (2013) [Ru/Multi] (1.0.11795.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:B40496D168B4DFF0CFA781764A4D7829F3A54976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Eador: Genesis / Эадор: Сотворение (2013) [Ru/En] (1.05.2) Licens
 ```bash
 magnet:?xt=urn:btih:F3F9B85828E8A4EB65D0934BA4FDB472023FF8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:004329A9BD82786D7640626535336D79890DCF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

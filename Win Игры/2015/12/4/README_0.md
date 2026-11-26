@@ -19,8 +19,7 @@ Hyperdimension Neptunia Re-Birth 2: Sisters Generation - Продолжение 
 ```bash
 magnet:?xt=urn:btih:FD28996F35A7CE4B72C450CDB57E603A55B887EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

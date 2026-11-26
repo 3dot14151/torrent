@@ -19,8 +19,7 @@ Magic City Detective: Wings of Revenge (2022) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:723C7A8AF6ABD5875E35D43C57E55827649B7C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

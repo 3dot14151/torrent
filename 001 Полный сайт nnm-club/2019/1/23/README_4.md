@@ -22,8 +22,7 @@ Ari Brown - Ultimate Frontier (1996) Delmark [FLAC|Lossless|tracks + .cue] <Post
 ```bash
 magnet:?xt=urn:btih:D767C89CC862763FAE20F1B3D2D5DC34C57BBC20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Dash - удобное приложение, включающее в себя б�
 ```bash
 magnet:?xt=urn:btih:28B01B715386F279B5FF57CBAC41AA69DCA91DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Suanda Winter Vol. 6 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Boulevard des Airs - Je Me Dis Que Toi Aussi (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:E82C9DF210B594CFCA3A7662DC34172C125F9C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ De Staat - Bubble Gum (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, El
 ```bash
 magnet:?xt=urn:btih:3F1B2C4387EDD74CF2F8385504A3A1D516BD1014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Ness - Moving Through Illusions (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno
 ```bash
 magnet:?xt=urn:btih:D40791219EF4A8E0EF82D85D0B4F1A43CF1388B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Turbonegro - RockNRoll Machine (2018) [FLAC|Lossless|tracks + .cue] <Deathrock, 
 ```bash
 magnet:?xt=urn:btih:D69CA7950CD546E06E0D363902AF2CE71DCE62B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5402163498E5A75E49550BE89EBCB4EC903D0B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Meta поможет Вам управлять постоянно растуще�
 ```bash
 magnet:?xt=urn:btih:40804088C15668AC5957C58CC5354870C88E3489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ VA - Tea Leaves (2019) Compiled by DJ V ++ [FLAC|Lossless|WEB-DL|tracks] <Downte
 ```bash
 magnet:?xt=urn:btih:510067ABFA62D1878CAB7BB5140775A2C0D75ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - Symptom Of Nature (2019) [MP3|320 Kbps] <Goa Trance, Psychedelic>
 ```bash
 magnet:?xt=urn:btih:D871E4A640D98D20C5C1ACF898C7738AB422F764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ French Revolution - Fantasia (1988) Virgin Scandinavia AB [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:8A7E6BCCC3A7284AA36C955F8B92CB577D4DD0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - Vocal Dance Vol. 5 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:C32EC58DB1E6E21D696F68E8B3D011E9A73400C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ VA - Ibiza Winter Island 2019 (2018) The Deep-House Edition [MP3|320 Kbps] <Deep
 ```bash
 magnet:?xt=urn:btih:D414E6E94A7DCCFD4DA4F4AF8BDD43CF60EE2075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ VA - Space Oddities (2016) Studio Ganaro (1972-1982) [MP3|320 Kbps] <Electronic,
 ```bash
 magnet:?xt=urn:btih:616F253B6D87E50FD3696D0F5BBA33BC01723BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ Roger Molls - Melography (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrume
 ```bash
 magnet:?xt=urn:btih:A1D39260FC9BBC8394B91CEE6AFB5DBF612570C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ AKB - Rhythmic Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
 ```bash
 magnet:?xt=urn:btih:0667FAC545A17658C4496E8F48660D9DBAB38DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ Photo Supreme - вспомогательная программа для вла�
 ```bash
 magnet:?xt=urn:btih:DB09805D03241B28A423B53FB92ED9C16C1F4018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ Road of Kicks - Before the Stone (2019) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:CFC3E36916A6FFA82DEEC2299C93E7F72C005BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EDEEE5B8AF1A54E6A27B233ED5D4008A853AE47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ The 69 Eyes - Devils (2004) [FLAC|Lossless|tracks + .cue] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:780A090C343289371BE43B98370B74FEE23444F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Miles Davis - Bitches Brew Live (1969, 1970) 2011, Legacy Recordings [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:855995F1D73E28CAF573097667DD6F9BD6E64803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F23BECF5F39AC83AEFB005303B56DE040FE7DF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ Lowering - Brooklyn (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Amb
 ```bash
 magnet:?xt=urn:btih:A3A05E0392AF741A52647F33A193639F739415CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:BB5FD1157A72A85272612D1208C9252C58935659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ Immortal Love 5: Kiss of the Night (2018) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:31256756E76C06DDF52604F19B423EA43CE8A315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

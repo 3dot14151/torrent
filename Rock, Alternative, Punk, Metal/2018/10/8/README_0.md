@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:50AAF32C206432B383397D7A1A9D4A67108BCF50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Starsailor - Love is Here (2001) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:47556A07BD76BA7483F16A3B53BC3A9EF0FF5A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Behemoth - I Loved You at Your Darkest (2018) Limited Edition [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:0B8B807947788A5B09245D5A2BB6562600D04566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Roger Waters - Pros & Cons Of New York - The Classic 1985 Broadcast (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:296AD4ADC99FF1D0DBD8340CA24D4F868819E338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) Super Deluxe Edition,
 ```bash
 magnet:?xt=urn:btih:BD6F7246A6535A460881A973298198A09F1137EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Pink Floyd - Meddle: The High Resolution Remasters (1971) Remastered, 2018, The 
 ```bash
 magnet:?xt=urn:btih:41B6A35642FC5B7AE6128D6090A41476D4582EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

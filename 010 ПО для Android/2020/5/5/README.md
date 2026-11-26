@@ -19,8 +19,7 @@ AppMgr Pro III v5.01 (Lite Mod) [Ru/En] - Перенос приложения н
 ```bash
 magnet:?xt=urn:btih:81DBE3C79ADED8BF1F192E4FB880AEE9AE06C375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

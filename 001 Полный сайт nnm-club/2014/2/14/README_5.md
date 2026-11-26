@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D1B0262EF07518BA210F06236FA005DC51B22C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Wallpapers - Обои для рабочего стола - Full HD [JPG]
 ```bash
 magnet:?xt=urn:btih:853E0EA45E6D03A10FBA025807B6D988F8DE85B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B484FBE27D0412E928EC4036C3AA1142BBC44895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:9102079B9D747E0D8D51612DCDE2E6770A7114E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Linux Format - первый в России ежемесячный журнал 
 ```bash
 magnet:?xt=urn:btih:0FFED755DCADCCB1AE99D117C6454B6142834289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ uTorrent 3.3.2.30586 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:94578AB2135056FBCCF55D992EDEA123D24831C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ JetBrains RubyMine представляет собой полнофункцио�
 ```bash
 magnet:?xt=urn:btih:539FD2CDE4416174947CF013DCEA509C5E41B748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Ekiga — это полнофункциональное SIP и H.323-совме�
 ```bash
 magnet:?xt=urn:btih:67CF903A2E388E28FD6EB15D969552FFF68CF2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97AF33796542FE47CF4C9282E4AFC7E3244E6416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Knytt Underground - аркадный платформер от Green Hill Studio
 ```bash
 magnet:?xt=urn:btih:CF639DD505A98E89FC67CA826E3E88DF74C73C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F7EB77CF849BBDF758526AB5C2877D88CCB53D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Microsoft может перенести Android-приложения в Windows
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74407CA767ECEC795ABA2BA17DDE0B776DFEA2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18FFE5E1504B6131B5567BC26ADC4D57487247B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51307F7B4A75611458B1B47673FCC31497A7A3AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:E1AA0CA24998637546438ECBDDB6F6779FE4EA89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C957F0A3270A55FF8DCE8A8E56B5085B27C0A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Enigmatis: The Mists of Ravenwood / Энигматис. Туман Рэйвен�
 ```bash
 magnet:?xt=urn:btih:36C7537DD9D698ACBCB4951390F70E506611E42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Fuel Overdose [PS3] [PSN] [EUR] [En] [4.10] [Repack / 1.05 / 2 DLC] [Cobra ODE /
 ```bash
 magnet:?xt=urn:btih:2CA7B77CD0FC494ABFF2AD668F6B194CF945AE14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:109435DBB09E1775B7B86D301F95043C109D1EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Rush - Hemispheres (1978) Hybrid SACD /Released 2013, US/ [DSD 2.0 1bit/2822,4kH
 ```bash
 magnet:?xt=urn:btih:B3A4239260A4B8C4450996236A5D3D37E6F0360D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ Advanced SystemCare - программный пакет, содержащий м
 ```bash
 magnet:?xt=urn:btih:79A9BE3F6B8E6EEC6F5139305783F821EBCB54BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ Imagine Dragons - Continued Silence EP (2012) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:F110C09391E4CC3AAD8605E7655FB4B21F190DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51CC9E9C83998E6AA46E04A4BF6A8FA44E01AD18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Ion Assault HD - космическая аркада главное действ
 ```bash
 magnet:?xt=urn:btih:723E41623D70F5407632FEDE704D26A5C685B35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ ICO [PS3] [PSN] [USA] [En] [3.40] [Cobra ODE / E3 ODE PRO ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:B4F94BC37A0222311127F9D3653D148D09B9DC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

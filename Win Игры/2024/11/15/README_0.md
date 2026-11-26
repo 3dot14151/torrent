@@ -19,8 +19,7 @@ Millennia - пошаговая стратегическая игра, охват
 ```bash
 magnet:?xt=urn:btih:1737E74368D90E375814B2A13DD825C01B741935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ art of rally - раллийная игра от создателя игры Abso
 ```bash
 magnet:?xt=urn:btih:A7A7D5B3064CF05A1FAAC0665B9BABC3629D085D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sker Ritual – фантастический боевик, который мож
 ```bash
 magnet:?xt=urn:btih:6AB717BC8EF36A9134CE538A8103807377B6BA36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Black Book / Черная Книга (2021) [Ru/Multi] (build 12000953) Repack d
 ```bash
 magnet:?xt=urn:btih:0FF7D5DDF79435AB4DE543A59317D1885A2C554D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tavern Talk бросает вас в самое сердце фэнтезийн�
 ```bash
 magnet:?xt=urn:btih:768D6A8F65BC12F29CCC821A91A2C8301689B6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tetris Forever посвящён сорокалетию не имеющей се�
 ```bash
 magnet:?xt=urn:btih:420867558D58BEB2728F1741CDF0BB4276AB365F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

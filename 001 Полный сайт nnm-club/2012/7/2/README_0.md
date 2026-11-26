@@ -27,8 +27,7 @@ VA - Горячая Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:CBBE79549129E34B3BBE6AA98EE6A7F7D7322493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:456709E59F224B97EAF73936C56C99A068778596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3B21425A90596E7486F3C0DEBEF56A849505410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - 25 лет клубу песни Восток [Bootleg] (unknown) [MP3|236-2
 ```bash
 magnet:?xt=urn:btih:3D04650324E39765006A2EA7DE897A930F3A6841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06E130919077042A976F55A689DBC8B337557F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Заводной летний музон (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:08389ACE3FB46EAC190B887B9970245290DA2CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Being - Arrival [EP] (2011) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:F85EFB775ABB83A31D446E4CDB571FD60C9427DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ VA - Avto Club Июль (2012) [MP3|320 kbps]<Club>
 ```bash
 magnet:?xt=urn:btih:46AF1A1489786BFBA945B04CC8FEFBC9CFC4887E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ Mission Ibiza - Including 50 ibiza House Anthems (2012) [MP3|320 кб/с]<Club H
 ```bash
 magnet:?xt=urn:btih:799AEB70BF961AD53FFDD12E25111D3CCC4B0B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ iSpy - программное обеспечение для наблюдения
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ Nightrhino (John Connell)
 ```bash
 magnet:?xt=urn:btih:81EF6326AF6F64ACC14C23B084092CB09E637485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ Yes! – авторитетный советчик, чье мнение очен
 ```bash
 magnet:?xt=urn:btih:74D0796DC5B97CB795DD61EC08AA7B259780AFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6BE62F74DAA7CC6F951CD75F071347974FD7588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ VA - Танцевальный Хит Стандарт (2012) [MP3|256 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:C565E7D55C3E5ACE53BCD5255FA10B9ABE935205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04108843505E83DFCC0D67CA195F8F55E12C7DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA2F1C3D748312DA5C7A413AAF689D437CFA7166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ Cпециализированныое издание для тех, кто ст�
 ```bash
 magnet:?xt=urn:btih:446AAE9D3663837BD818F8BFF6466A8A370DF526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ VA - Midnight Club - Летний Драйв (2012) [MP3|256 kbps]<Club|Dance>
 ```bash
 magnet:?xt=urn:btih:B4F3692A0CD93F7E035FCD41BDD6A7A5D65A3C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ InfoCity - Ежемесячный журнал о технике и технол
 ```bash
 magnet:?xt=urn:btih:075B30AEE3249A0E43EB749082C6C0856DC39CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +571,7 @@ VA - German TOP 100 Single Charts (01.07.2012) [MP3|186-283 кб/с]<Dance, Club
 ```bash
 magnet:?xt=urn:btih:6558E1BFFF65A4D0AF6D8C5913777D8685C69162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ Windows, по умолчанию, позволяет программам пол
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93A210FF080CD095BD305FD083A907928F790CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA44C138DCC92AB40B3FE80BC3231D84B0C04FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ VA - Убойный Русский Club В Машину (2012) [MP3|192 kbps]<Cl
 ```bash
 magnet:?xt=urn:btih:C2C73E0DEFA06FECC1D994B0E5C875D361856014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +741,7 @@ A1.  - Sixty Years On [05:40]
 ```bash
 magnet:?xt=urn:btih:26D3FE0E4F7BA6883C23C1A6471D2FEC4D52B72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

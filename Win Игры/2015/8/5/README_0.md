@@ -19,8 +19,7 @@ Absolute Drift - гоночная инди аркада, в которой ва�
 ```bash
 magnet:?xt=urn:btih:50BD5EAD104CE1964818C5F36C185DDB643A844A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Game of Thrones - A Telltale Games Series (2014) [Ru/En] (1.0.0.1) Repack R.G. C
 ```bash
 magnet:?xt=urn:btih:734A3FBCD8DBF13162799F8DEE0A625348926DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

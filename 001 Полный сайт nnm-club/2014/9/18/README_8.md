@@ -28,8 +28,7 @@ Ritual Mess - Vile Art (2014) [MP3|320 кб/с]<Screamo, Emoviolence, Hardcore>
 ```bash
 magnet:?xt=urn:btih:42ACDE6860EF6C8865352BBC712305960CDD34C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5225E5A1212AD1AEDBC3B6A40E5CBB20963023B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C067A70D9E7E1DCC0591891F1F3ACA94DC5718EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Клубные Новинки Vol.498 (2014) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:746300D9155D09C07624E42D59AD7F0C7BC89F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Skyweep - Contradictions (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:745BDFF02B721C78465E46B3732113032FBB7274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:756FA80929CAAD64E852973E251425C8DE1CEF13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ VA - About Hyperbolic Psy Trance Session (2014) [MP3|320 кб/с]<Psy Trance>
 ```bash
 magnet:?xt=urn:btih:02BE872720CAAF09AC0191856CF3A44561F4EF0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2775644E863631CDD952C86BB22BBF2AE6592A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ VA - New York Club Music Part I (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:CD612B99011611AC3AF34D5486F2FE49DD9BCF50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52F8EBFF4AEFDA5E045937789BEF2FDA33467B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69ED9843351F0785B41666B098A44E2A143D6CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A00964C03BA3C0D4556AF9DF86EA306906FEC8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ Pulse One - Origins (2014) [FLAC|Lossless] <Techno>
 ```bash
 magnet:?xt=urn:btih:FE0E59E375237EDC79B553746648938BDD5100BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ Natalia M.King - Soulblazz (2014) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:94BA2140B32F04F62BF753ED7B5E191E5BBF2D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F9E8384BD69FBD235BCDAFB7325A60BCDA1C351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A816D07286F000E1A424BA8A5A8AA398F6477624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ Abigoba Quintet -  Scattered Legacy (2014) [MP3|320 кб/с]<Electronic, Nu Jazz
 ```bash
 magnet:?xt=urn:btih:1AA1194C3E34CEF7F26A63052B5A7061566A38FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE2052C6952CE9CC69F5B8C927692D01696FFC14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ VA - Monstercat #BeatportDecade Dubstep (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:0112B4A48822379FD2D64B23A591FBD3CF31F469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D036C6B1917049651514F9CD92620514C7CE4912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ VA - Total EDM Vol 2 (2014) [MP3|320 кб/с]<Dubstep, Electro House>
 ```bash
 magnet:?xt=urn:btih:9631EEBCBC61553E293155D8E58694F6C3CABDF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ William Purvis & The Seventh Sons - When Tequila Does The Talking (2014) [MP3|32
 ```bash
 magnet:?xt=urn:btih:A0E9935415C04E833CA912C4A418B2415C3E0F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ Krizz Kaliko - Son of Sam (2013) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0081366752C975F539C02F04EBEBC5D7E33F7FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ VA - Total EDM Vol 1 (2014) [MP3|320 кб/с]<Dubstep, Electro House>
 ```bash
 magnet:?xt=urn:btih:025B5A1E7CEEE75503E4A6FF6453EC1384E20B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

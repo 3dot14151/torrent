@@ -19,8 +19,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Premium E
 ```bash
 magnet:?xt=urn:btih:BEB2D59848EBBA0D1D7126DE3A0E97242CEA241D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MOTORSLICE - это динамичный экшен-платформер, вдо
 ```bash
 magnet:?xt=urn:btih:B72D1958A6C2883059B257308FDB5AC268D7AAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ inKONBINI: One Store. Many Stories (2026) [Ru/Multi] (1.0.203.9/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:601EEEEA245B8461E6B1EC0E7DF3A1C02E2B7620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Trench Lord: Eastern Front (2026) [Ru/Multi] (1.02.001.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9EEBC831FE10BC01828DBDE4F32CCFE17C8C9B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bylina / Былина (2026) [Ru/Multi] (Build 23075629/dlc) Repack Other s [Dig
 ```bash
 magnet:?xt=urn:btih:C40384E3E028F96F035C66C560DF222002C84B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Conan Exiles Enhanced - это игра на выживание в открыт�
 ```bash
 magnet:?xt=urn:btih:62A3127DDD1ED9924BE8FC053DF62B94ACF19184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ VA - Trance Reloaded Hits (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:E5004536B8F6C2593154C6AC9553F8245D1DD927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Cowers - Pity Park (2001) [FLAC|Lossless]<Heavy/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:AEA68698DD6F89F039B1923EAE3B0A21CA035535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ VA - Best of Chillout & Lounge 2013 (2013) [MP3|320 кб/с]<Downtempo>
 ```bash
 magnet:?xt=urn:btih:9F122EC667808E2B610F8BF76DF675CE96893CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Malsain - The Disease (2007) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:E2E9B18B757F5DB78CECD6D7558F8F782CCA9F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ bvdub - Born In Tokyo (2013) [n5MD] [FLAC|Lossless|WEB-DL]<Ambient>
 ```bash
 magnet:?xt=urn:btih:94004976A01E851382B4DC72A70892408C322BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ MyGrain - Planetary Breathing (2013) [MP3|320 кб/с]<Melodic Death Metal, Mode
 ```bash
 magnet:?xt=urn:btih:318D66254D9BC0A280DB4612B425DD76FBEAEB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Andreas Florin - Total Departure (2013) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:95B41272CED4F1AD24E912BB2F7E5C48C8411719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ VA - End of Summer Chill Out (2013) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:73AFE6EB89BB426659580B03473624FA39CF648E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ VA - Sensual Lounge (Cool Lounge Sound) (2013) [MP3|320 кб/с]<Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:6671A0A22EECA8C1156E0158DAAB758F3102E224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ David Meiser - Uncompromising Sound EP (2013) [MP3|320 кб/с]<Dark, Industrial
 ```bash
 magnet:?xt=urn:btih:E5ECEE634C2F2DCE822D447AFDABCD92979AC996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +381,7 @@ Shrapnel - Hellbound (2010) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7A00E578838CF8DEB28B461E3538BFA1E22D170A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +413,7 @@ Victim Path - Surrounded by Pain (2012) [MP3|320 кб/с]<DSBM / Depressive Dark
 ```bash
 magnet:?xt=urn:btih:2DCED3AFE9A8D517C6498EC02EFE4363342C830E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +447,7 @@ VA - 50 Electro House Bomb Dirty (2013) [MP3|320 кб/с]<Electro, Electro House
 ```bash
 magnet:?xt=urn:btih:38B8A4AA39B8669A401F42CE67FF80421F325718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BF73AD68651C0D31A1F4B82A10A2917B04D3B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +506,7 @@ Dark Age - Minus Exitus (2008) Japanese Edition [APE|Lossless]<Melodic Death, Mo
 ```bash
 magnet:?xt=urn:btih:ADD6396EB162FED433444C47A92E0352A07B0373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +540,7 @@ VA - Bobina presents Russia Goes Clubbing Radio Top 10 August (2013) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:A8BF9CABA47AD50BE52000A6E452E3A75AC9B59B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A169338459085C2E10AEB5F5222829B64694383A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +592,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:E3CBA0B65102E3559FD93E4F14CED93917FA81CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +617,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:41FCBCB5B2407B26400CEF8220E188E4AB5BE9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +644,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:1542B8CA6BBAE979AA58C4CA8266C1D84AA6E429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3D9BA31A24165089725CCA9BA14335BAE889AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57A2DA713F63DFB7FE4BA862EB726B1BCED7A73A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +731,7 @@ VA - Sexy Trance #54 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:1E28B0023B7D073C160A497EE7CF6D72E5D5CE13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +765,7 @@ Stok:Holm - City Lights (2013) [MP3|320 кб/с]<Synthpop, Futurepop>
 ```bash
 magnet:?xt=urn:btih:35F9A1414CBF85906F1433C1D90E7AB7AF81AC2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -824,8 +799,7 @@ Samantha James - Subconscious (2010) 2CD [FLAC|Lossless]<Downtempo, House, Deep 
 ```bash
 magnet:?xt=urn:btih:D18361330C8ACA955E3DA2702F38053D7CC2431C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

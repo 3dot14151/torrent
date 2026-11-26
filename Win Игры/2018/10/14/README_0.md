@@ -19,8 +19,7 @@ Halloween Stories 2: Black Book / Хэллоуин 2. Проклятие чер�
 ```bash
 magnet:?xt=urn:btih:D543F274B9DB0D5399E531E957E9288FA73B9234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Farm Together — от создателей Avatar Farm. Начните с ну�
 ```bash
 magnet:?xt=urn:btih:FF02B2B740F04EE6282F3954B33F0CC01781183C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Endless Legend (2014) [Ru/Multi] (1.6.10 S3/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:71A34F6E2099FF89ACFF7F87613E42C497DEA89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Iron Ladies 2048 (2018) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A80DAAC31051FD8C523158581462CC435BC18EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B75AC2DF234EE6A424B31BCEB31CFA27E6B3C1F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:6A66F6A0885F69FD2692B7EEABF8AD5E8CC5C21A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ TapScanner — сканер документов, это простой скан
 ```bash
 magnet:?xt=urn:btih:8393BDA8274BA56F9A563DF11E48483219C2E913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Opera Proxy для Android 3.0.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:0377779276940319D110147E7F620F5B0643123B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ WiFi Analyzer Pro (ex. WiFi network Analyzer) v7.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F7FE6F6EF12C80603FD5D132E1C45FCE96B184C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Mirror Lab стремится быть самым веселым, простым
 ```bash
 magnet:?xt=urn:btih:7ADE719F4459B766DB901EA7899557E5B73DCB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

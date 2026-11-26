@@ -18,8 +18,7 @@ Mononoke Hime / Princess Mononoke / Принцесса Мононоке [1997, M
 ```bash
 magnet:?xt=urn:btih:21801E0D56CBBB8AD189C3A47D2952439C39CBDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ ENSLAVED Odyssey to the West (2013) [Ru/Multi] (1.0 upd1/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:201448A9AC2DD66B3B539BC764FDF8E7FA5F2E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83E7AEE9DBD24B6D3EB5B24827F6782DC38F57A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Plague Inc. настолько реалистична, что CDC даже по�
 ```bash
 magnet:?xt=urn:btih:6A780283E7A2772BCA5243DC43DE09AEBA9F1113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17938666864E7631FE82E999CA6E2DD60301C09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

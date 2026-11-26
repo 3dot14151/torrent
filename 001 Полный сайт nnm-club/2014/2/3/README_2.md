@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E897FA032DA00A2896ADAE70D45B12F72D5FA56C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Groundhogs - Scratching The Surface (1968) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:A9A135587E570B79FAFBEA424CA2F90A3647E603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Ashampoo Burning Studio 14 - это новая версия универсаль
 ```bash
 magnet:?xt=urn:btih:6C91AC3E9893AB5C5A4945A74D5CB64D5ECB5EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B441EE98270952375CD451C60230357E3369D5FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ QuiteRSS - удобное, простое и бесплатное приложе
 ```bash
 magnet:?xt=urn:btih:6F58A9E95765CEFF4A55C8BA4497446B198052FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ DJ Bobo - Circus (2014) [ALAC|Tracks]<Eurodance, Europop>
 ```bash
 magnet:?xt=urn:btih:155BAAFF450C3F747192E7E5646BA4A7EF2902E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D610FD3472A1145CF06A48922335789DBCE43CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:460D6AAA6643BF627D895A6631A17D6C5C4C08C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA -Armin van Buuren - A State Of Trance 650 - Exhibition Center, Yekaterinburg 
 ```bash
 magnet:?xt=urn:btih:9C7B77768E73332EF53733A4A245D0D32B76ADF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ Ring of Fire - Battle of Leningrad (2014) [ALAC|Tracks]<Progressive/Power Metal>
 ```bash
 magnet:?xt=urn:btih:EECE44C8B706ED93B74E57DCD0A8AAAF2292FD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9472EA740EA97E31B923B80DAB12CC7385569740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A51AFC3B78D3690CDC2FE3194D1DE6CA634A82E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5114B9FF807E5D82047E623A9B5D246DB68EEBAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4DA57610D975853C7CBC2A3694F43B807EC93C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ VA - Клубные новинки специально для авто в Ре�
 ```bash
 magnet:?xt=urn:btih:7E9F66B4984907BD793F8C957275BB0805B39484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Knife Party - Clever Title Like Deadmau5 Would Use Mix (2012) [FLAC|Lossless]<El
 ```bash
 magnet:?xt=urn:btih:0C764EF8232A1B54DA034072172AD8407F82339B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Sunn O))) & Ulver - Terrestrials (2014) [FLAC|Lossless]<Dark Ambient, Drone>
 ```bash
 magnet:?xt=urn:btih:890454322DAD9468F5204A0724039FE4217DB389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ AI Roboform - программа совмещает в себе менеджер
 ```bash
 magnet:?xt=urn:btih:AEE3777985B23398B4629ACE0F9D10573E384BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:261AC1F6A87632C5D82207BB299EC9E746BB7EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B60E8D6F5EA2A91E339E741B295094A21BBA83FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ Blue Stahli - Blue Stahli (2011) [FLAC|Lossless]<Electronic Rock, Industrial>
 ```bash
 magnet:?xt=urn:btih:AA6101E0B71AA6CAA2C2BA0E2EC846C1CE7213FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ Loverush UK feat. Bryan Adams - Tonight In Babylon 2013 (Remixes) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:5E9B7B5F8FB8B3E182E5BA60D8059269625BD49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE8DC0050DBEBC047550E0F8CEC0AB5DA4377548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6485500A26890BD616980C3A964EE55F5AD24588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

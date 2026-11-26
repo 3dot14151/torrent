@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:77B8352544F9587688C695CC071B2D225368C45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Windows 8 Professional VL x86 Optim [Русский]
 ```bash
 magnet:?xt=urn:btih:93E0A2AD24108565BBD772D637827ACA4F7C5EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ UltraISO Premium Edition - одна из лучших программ для р
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

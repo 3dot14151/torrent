@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:4D7F637611BE3E0FFB00A816E27B719E2230B142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Offline Translator - это автономный переводчик
 ```bash
 magnet:?xt=urn:btih:C390466945D06EC505A9EA4AD1CEACF51C281F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:DBF23D5E88F3EDD70934876ABDE726047D7607CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Tone Generator PRO v3.84 Mod by NURIK [Ru]
 ```bash
 magnet:?xt=urn:btih:CA6BAF92196C6E8A6E725042C1977EC88A7358FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A99F871704FE50E40E57CF248144090967DE1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Alice Cooper - Studio Albums (11 releases) (2000-2025) hand made [restored, decl
 ```bash
 magnet:?xt=urn:btih:337B9A6467C9EA3D2E96A4BE3B173C5DC96C91DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

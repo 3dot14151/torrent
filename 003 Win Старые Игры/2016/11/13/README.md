@@ -19,8 +19,7 @@ Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.
 ```bash
 magnet:?xt=urn:btih:73221EECE9F65B5A59718BBB8D366303FF9153C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

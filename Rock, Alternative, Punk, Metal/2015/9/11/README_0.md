@@ -22,8 +22,7 @@ Symphonika - Symphonika (2012) [FLAC|Lossless]<Symphonic rock, Alternative rock,
 ```bash
 magnet:?xt=urn:btih:8172D62C3A6B551CF20064E9E57433C702EC17A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Final Conflict - Return Of The Artisan (2012) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:2FE641326A93088A3390D44DFEB168E0ABE587FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Slayer - Repentless (2015) [FLAC|Lossless|WEB-DL]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:55F5E315B8FCC1FC6B3DB94C49704B32A7F67175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Slayer - Repentless (2015) Limited Edition [FLAC|image+.cue]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6D02145CB6FD1444149CE3EC828E814D574DB5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hollywood Vampires - Hollywood Vampires (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5794DAACEA1F405370E771B5E02832D4A4525A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Stratovarius - Eternal (2015) [FLAC|image+.cue]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:B0B6258D5608C8FBAB7476F47B0374C72CDB62E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Rolling Stones - Foxes In The Boxes Vol. 1-3 (2015) 3CDs [FLAC|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:2699C7D8B86F8EB3B7BB0200F687BE65F6451581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Lez Zeppelin - Lez Zeppelin (2007) [FLAC|Lossless]<Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:76DDFDCF03B2CE54632CDD2ABF6137C61761467A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Tarja Turunen - Ave Maria - En Plein Air (2015) [MP3|320 кб/с]<Neo-Classical,
 ```bash
 magnet:?xt=urn:btih:AA8E3DEEA839A9DE7EBD2ABB09B495B2CF56A08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Ultimate  Rock / 4CDs Of Great Rock Music (2015) Box Set, 4CD[FLAC|tracks +
 ```bash
 magnet:?xt=urn:btih:440AA7950918EF37D5807A4D0A07224D70F8F418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Muse - Showbiz (1999) [FLAC 2.0 24/96|tracks (WEB-DL)] <Rock>
 ```bash
 magnet:?xt=urn:btih:B1E214ACC5E7469B458E997E9C49D2B7894F19ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Muse - Black Holes And Revelations (2006) [FLAC 2.0 24/96|tracks (WEB-DL)] <Rock
 ```bash
 magnet:?xt=urn:btih:989861A66E21FEEC1731A97CF01104690B266631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Bring Me The Horizon - That’s the Spirit (2015) [MP3|320 кб/с]<Alt. Rock, M
 ```bash
 magnet:?xt=urn:btih:B1F017D4692276894FC36A96280F464B4B6060DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

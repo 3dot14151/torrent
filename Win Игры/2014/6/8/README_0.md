@@ -24,8 +24,7 @@ King's Bounty: Принцесса в доспехах* - Новая приклю
 ```bash
 magnet:?xt=urn:btih:738E6DA8CC77432B9BF2710D32EE3835911D69F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

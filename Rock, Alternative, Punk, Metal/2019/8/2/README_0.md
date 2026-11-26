@@ -22,8 +22,7 @@ Yes - Yes 50 Live (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:67E4B3D956477474C3860ACE42A081C5B6B447B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Creedence Clearwater Revival - Live at Woodstock (2019) [MP3|320 Kbps] <Rock, Co
 ```bash
 magnet:?xt=urn:btih:5EC2469FEB5BD7B4C6D0BFD84B55CB5953AEFD9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

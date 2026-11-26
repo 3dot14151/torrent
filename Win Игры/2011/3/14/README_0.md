@@ -19,8 +19,7 @@ Guardians of Magic: Amanda's Awakening (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:B98A7A76A692D51F19B4200950A0E08DA9E271CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ A New Beginning – это кинематографический интерак
 ```bash
 magnet:?xt=urn:btih:B7A1169B2BBEB604E8B932E9C701A916D6F2A30D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

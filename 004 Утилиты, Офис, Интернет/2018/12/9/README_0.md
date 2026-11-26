@@ -21,8 +21,7 @@ ScanMyReg - это самая удобная и простая в использ
 ```bash
 magnet:?xt=urn:btih:5708A2CDED8BE6296598EBB8B5C14A2D58F02812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Active@ Boot Disk - полнофункциональная операционн�
 ```bash
 magnet:?xt=urn:btih:CCA2F7F256C402E8E060F34030561B5E86E385F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -25,8 +25,7 @@ Torrens Conscientium - All Alone With The Thoughts (2014) [MP3|320 кб/с]<Doom
 ```bash
 magnet:?xt=urn:btih:4E38849C0544E120AA3EC1728FCCC3D2DA4E6C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Pomegranate Tiger - Entities (2013) [MP3|320 кб/с]<Instrumental / Progressive
 ```bash
 magnet:?xt=urn:btih:338EF376C851A15B0F14CE66CEA8D5B70F744484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Naraka - Эволюция злых сердец (2010) [MP3|~225 кб/с (V1)]<A
 ```bash
 magnet:?xt=urn:btih:7EC3E785C0078A7626C26CA38BCA56F0C3632690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Unzucht - Venus Luzifer (2014) [MP3|320 кб/с]<Gothic / Industrial / NDH>
 ```bash
 magnet:?xt=urn:btih:2DDEF910BE6774D2B5B351EABB517E16ABFC9C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Local H - Hallelujah! I'm a Bum (2012) [MP3|320 кб/с]<Alternative/ Indie Rock
 ```bash
 magnet:?xt=urn:btih:D020CBEB55FC517535E7AED19FBA1EAC9FB4210A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Devin Townsend - 9albums + 1EP + 2live (1996-2014) [MP3|320kbps] <Progressive Me
 ```bash
 magnet:?xt=urn:btih:19C5BC1DD544DC2D7DABC5BB199FA31E3D0FDA6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Roger Taylor (Ex. Queen) - Best (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:7512A6443A44AB9D6D1E0CEF3B8ED29B0AA4203B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6538807527E4C5C528F54B4211FF92A3C554965E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

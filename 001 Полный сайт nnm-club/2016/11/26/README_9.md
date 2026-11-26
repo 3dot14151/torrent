@@ -18,8 +18,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:D0FC8A038E097C16F321DF43BDB6BF59D433795C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Горячий хитовый драйв. Выпуск 8 (2016) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:38E690DC5930E6D6BC22B27541DE3F16D940A54D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Midnight Lounge Vol.13: Lounge Lunatic (2016) [MP3|320 Kbps] <Downtempo, Ch
 ```bash
 magnet:?xt=urn:btih:204612F3BA95813581B4C6EEDD3714DABD724496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC051B6779017A93888D5F1196066B7B9053961B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Nu Deep Gold Series:01 (2015) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:A8A0FFDB56B955D0F1FCA68976E6D952DD77B8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Осенняя дискотека по-русски. Выпуск 5 (2016) 
 ```bash
 magnet:?xt=urn:btih:858F5914DD1A7370CCC90F0F921834BAD7FA5123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:248DA015D93CBFF2688BF4E9C6A0A2E965490173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6B4AB27D077A52DAF5056E805F6C252B861D92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Pasadena Roof Orchestra - Roots Of Swing (2008) [FLAC|Lossless|tracks + .cue] <B
 ```bash
 magnet:?xt=urn:btih:DC68262FC629D70A30EAC47A91E83F562A05D239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Patti Austin - End Of A Rainbow (1976) [FLAC|Lossless|image + .cue] <Vocal Jazz,
 ```bash
 magnet:?xt=urn:btih:3E59B618C191C39493BD27EBF5D56976E90EE02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Aenaon - Hypnosophy (2016) [MP3|320 Kbps] <Avant-Garde, Experimental, Progressiv
 ```bash
 magnet:?xt=urn:btih:9BE6BACE919DA0D458643A4D5186877242161997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Patti Austin - Havana Candy (1977) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, R&
 ```bash
 magnet:?xt=urn:btih:39DB9B7E6E0906E3B3F1304B048480C88D203D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ VA - Armada Deep House Selection Vol.15 (The Finest Deep House Tunes) (2016) [MP
 ```bash
 magnet:?xt=urn:btih:132E069B67700532DA4B87709C235682BD63C988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ VA - This Is My Church Vol.2: The Lounge Edition (2016) [MP3|320 Kbps] <Downtemp
 ```bash
 magnet:?xt=urn:btih:990D4489C6BBCD8D919A125E6A48AA9C7E5F5285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Brutai - Born (2016) [MP3|256 Kbps] <Progressive Metal, Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:22A053966AB403ABD7CEF6941AB25ABB9D086B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Grover Washington, Jr. - Next Exit (1992) [FLAC|Lossless|image + .cue] <Smooth J
 ```bash
 magnet:?xt=urn:btih:F4500CE4EB266256A80BF69FA657E770492A07A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ VA - Звездная вечеринка. Зарядись хитами 50/50 (2
 ```bash
 magnet:?xt=urn:btih:A9BAD560AE5137A5D12FEF87AEA5EB5DB63798AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ VA - Сотка модных хитов. Выпуск 6 (2016) [MP3|256 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:B2E69342642DE1D6DC8F644FC173DB09696BD4B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2016) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:AD962B83D3E9B46CD2823836EAA9BF0C9558DE36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ The Pasadena Roof Orchestra - Lullaby Of Broadway, The Best Of The Pasadena Roof
 ```bash
 magnet:?xt=urn:btih:87D296AC215341B6B00BDA66AEEAD3E6AB658DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ VA - Sunshine Live Vol.59 (2016) [MP3|320 Kbps] <Future House, Trance, Nu Disco,
 ```bash
 magnet:?xt=urn:btih:F0C2A3B98979E34203D56328092DE7C9848E97D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ IP Scanner - приложение сканирует локальную сеть
 ```bash
 magnet:?xt=urn:btih:3AF19740B1F811FBBE26E19827AD91E699C35C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ Subheim - Trails (2016) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Experime
 ```bash
 magnet:?xt=urn:btih:1C59BC94A0988819B821E6D155FB536287B9E47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07828BA1C5F3C8D4F60A4F7D7A675CC2194C65A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ VA - Europa Plus №7 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:8866D18875D1B7FB556EA349E361A2966412EE85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

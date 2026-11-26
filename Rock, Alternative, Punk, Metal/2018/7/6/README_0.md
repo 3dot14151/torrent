@@ -22,8 +22,7 @@ Piper - Piper (1977) Reissue, 1990, A&M Records [MP3|320 Kbps] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8FC60EE3372F37273D996830F992D46CE349BDEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

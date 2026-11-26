@@ -22,8 +22,7 @@ Hibria - On The Shortness Of Life (2026) [FLAC|Lossless|WEB-DL|tracks] <Power, S
 ```bash
 magnet:?xt=urn:btih:8AA5E17BC6EEA6EF9ADA3F68DF4F030614680F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Morrowinter - The Endless Dream (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:7D43BC47E4DEC0EF0D41CE41F4E8A014B2AA83B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

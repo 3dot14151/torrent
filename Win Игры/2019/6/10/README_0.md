@@ -19,8 +19,7 @@ Immortal Love 6: Bitter Awakening / Бессмертная любовь 6: Го�
 ```bash
 magnet:?xt=urn:btih:E9228863A2E4706D355072D266DC46FC83C14BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 ```bash
 magnet:?xt=urn:btih:6041AFC55717DC60A1F4574902AEF9F567C6CBB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

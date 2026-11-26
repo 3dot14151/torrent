@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:EDB34CB0D47BCDD35D424A4A4201AA6B75BFAD71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED8EE9A578DF459359858F0B4803AE52FEC53DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ PaperColor - превосходное приложение для рисован
 ```bash
 magnet:?xt=urn:btih:8DDFB705C3CCECA92C611B8FF4B65BBE9EC6A727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Adobe Photoshop Express - ещё одно крайне нужное и поле�
 ```bash
 magnet:?xt=urn:btih:7AA658924F65209838B4E3588453C1BFB32FA629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Smart AudioBook Player - необходимое приложение для вс
 ```bash
 magnet:?xt=urn:btih:9A4AB2DB2199660593C424966F204E65A13F7CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

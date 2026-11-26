@@ -19,8 +19,7 @@ Secrets of the Past: Mothers Diary / Тайны прошлого. Дневник
 ```bash
 magnet:?xt=urn:btih:E57692E986C4EDF520C15896B254CAB97D813BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Elementary My Dear Majesty / Королевский детектив (P) [Ru] 20
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

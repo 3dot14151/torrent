@@ -18,8 +18,7 @@ VA - Союз #2 Русский (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:F05F917B7CCA033438623429CBF6A371C89745A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Mylanviewer - это простой LAN сканнер для вашей лок�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ VA - Союз Танцевальный (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:67D8390F339E95D14CE3D919B8F750D8C2A9AF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #40 (07.03.2011) [MP3|320 kbps]<T
 ```bash
 magnet:?xt=urn:btih:56C2BBE6CA9A6B9A037877F6CAB4253E139FDB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Turmion Katilot - Perstechnique (2011) [FLAC|Lossless]<Industrial Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Весенний музон from AGR (2011) [MP3|256 kbps]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:C703114FC692B35E17E741B01F543E8F19611EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Joe Beck - Brazilian Dreamin' (2006) [FLAC|Lossless]<Fusion, Post-Bop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D6A987646A2568EFEBDFA4AA34DE4C531C09801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Vocal Bar Volume 6 (06.03.2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:59C157A4A87DF57369BF4523F68B7C34CF42140C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Above and Beyond - Trance Around The World 362 [Kyau and Albert Guestmix] (04-03
 ```bash
 magnet:?xt=urn:btih:23C17F03B92392226EE892C3CE40F0AC5D7E7468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D247B40BF6E9193E7B4F071816C2DDE774747133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36AFC162415114B55941D51DAD903AE402C4F940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8DC836960FB74D785C6D2D379B9071F9591A963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ VA - Nordic Lounge (Vol1-5) (2003) [MP3|320 kbps]<Downtempo, Future Jazz, Deep H
 ```bash
 magnet:?xt=urn:btih:58A10EED650A561195C382C10B0DD528D8CDD396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ Eric Tessmer Band - Green Diamond (2010) [FLAC|Lossless]<Blues-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BB994C769D8583FD9260FB80D3006ED85A7D69D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B9423F310A1447074FDB85A2EEFAC52E1565198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Roger Miret & The Disasters - Gotta Get Up Now (2011) [MP3|256 kbps]<Street Punk
 ```bash
 magnet:?xt=urn:btih:086F95B80C5ADC982D65F11495B8AE5AB5AFD750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:395D924E180BFE9CA6E2CB53F73DDEA0C0CC6CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ HDScape: Великий Юго-Запад / HDScape: HDWindow - The Great Southw
 ```bash
 magnet:?xt=urn:btih:F4E77CBE84BDA18BB7F8A5747C71214DDE110D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ Total Lighting - журнал об освещении. Здесь Вы найд�
 ```bash
 magnet:?xt=urn:btih:A2A29E11D326280B6D0C10FAB3F5FE15C9E53F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ Miles Davis Quintet - Cote Blues (1991) [FLAC|Lossless]<Jazz, Post Bop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +661,7 @@ VA - Radio Record Club House (2011) [MP3|256 kbps]<Club>
 ```bash
 magnet:?xt=urn:btih:698AA8E3DE70FB14EA8192E2D7658A0FC9FD1E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ NG. В поисках акул. Мёртвая зона (7 серия) / Shark m
 ```bash
 magnet:?xt=urn:btih:3710BC43D5F108B09BB7F4D1584A8FD1CF2D5F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ VA - Trancemission Trance We Love (06.03.2011) [MP3|192 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:F10AD10C2C5FECFBF62F1823CAB7563B31D1F636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

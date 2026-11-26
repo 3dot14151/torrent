@@ -18,8 +18,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:49A6ADC49CD1F3FD3C09F0D0FCAC21883ECB1063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Mega Дискотека (2015) [MP3|320 кб/с]<Disco, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:E066B84E27DB1601EB29CDA2019EBFF976E34AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - 100 Hits Of Techno (2015) [MP3|320 кб/с]<Minimal, Tech, Deep, House>
 ```bash
 magnet:?xt=urn:btih:B8A39C299549DB3C02E79AD2903098C92FE81BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11C5269BCC6AEA0989723AA760227F7465AB7292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82C81EAA9541BBDE8A8C20606624DE246572E12C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Dicter 3.62 [Ru]
 ```bash
 magnet:?xt=urn:btih:87ECF2668E3BC06D7FEC5885E8D335C24C8AFF05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B127AF98EC8484F2EB8C1DCF8A5FA425B1002F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Al Bano & Romina Power - Super Hits Collection (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:701AD269854A51A4508966EBD5EEB2E9CB44EAFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - 100 Hits Of Minimal (2015) [MP3|320 кб/с]<Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:EC38C5A92C4C83A6CFDFF917141DBB0EE4C7A110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ ArtIcons – удобная утилита, предназначенная дл�
 ```bash
 magnet:?xt=urn:btih:2C80E7ED353CCA7DEB8A6D0F13FBB7CAB2ED02D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7003FD426B1779A6A9950C5BD26ACFFB5787B246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD6741527685256C13F5A1555AB26EB468B668F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:532A0211804DF6E7CA0ED3E965883F73C64963C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ Fierce Tales 3: Feline Sight / Жестокие истории 3. Кошачий
 ```bash
 magnet:?xt=urn:btih:EAFB05283AB13BF52D3267D8201B4D918A4A33AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46F5CAB55518320FDDAB93A946A67A4393C9C079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Corel PaintShop Pro X7 17.2.0.17e RePack by MKN (16-05-2015) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:47306F83D6ADFE5885F13AB48580D552176E8FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C647A1AF44C6DF1213DFD68E8D0B54D683261D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ VA - 100 Greatest World Cinema Themes (2015) The City Of Prague Philharmonic Orc
 ```bash
 magnet:?xt=urn:btih:2F0EB7F8F7C98A13B16BE85D18FA5F4AC4FA521B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80AAA25E08E7597AAE071DC4C74AB03F1B39A9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EB600496CC6D376E067E64CDF4D4E1B5B5409A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Driver Updater - продукт для обнаружения, резервир�
 ```bash
 magnet:?xt=urn:btih:E7F91E368ED48B4F52FC799327D3EB843743B84A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:BA2B71EC17E5F34D8AAB5BB28C89970DD0764FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ Psycho-Pass 2 / Психопаспорт [ТВ-2] [2014, TV, 11 ep] BDRip Hi10p 
 ```bash
 magnet:?xt=urn:btih:24B2F1488685B562DFDF219EFF16D8698A23E377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ Adriano Celentano - Super Hits Collection (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:8704DBC79DD45C6323249BE3FB4D780E387D198B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

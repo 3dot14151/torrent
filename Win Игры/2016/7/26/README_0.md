@@ -19,8 +19,7 @@ League Of Light 4: The Gatherer (2016) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:AD7F9A54B8D0866110B171DBC7A498C0898C2C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Expedition 9: Dawn of Prosperity / Секретная экспедици�
 ```bash
 magnet:?xt=urn:btih:D86DC30C42D76597FCE1EDD575DB8F686A2EC08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ League Of Light 4: The Gatherer / Лига Света 4: Стяжатель (201
 ```bash
 magnet:?xt=urn:btih:B741CEA68ABDD66EAE512F2F39A4D6E5BD37DDF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Headlander (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F1F639400A58B6A1874389659845E923E7770129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Headlander (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A144A958B7981361E00303A50568A2752062D9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

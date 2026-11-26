@@ -19,8 +19,7 @@ Love Alchemy: A Heart In Winter / Алхимия Любви: Сердечные 
 ```bash
 magnet:?xt=urn:btih:01B2B72669954B98AD9F4E285984E3E44B76EACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ DLC предложит три одиночные миссии, каждая из
 ```bash
 magnet:?xt=urn:btih:886953D9C00FFAAD8B2154D5AD2D946F33D88109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

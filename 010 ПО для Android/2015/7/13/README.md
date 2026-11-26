@@ -20,8 +20,7 @@ XSCANPET = штрих-коды + Складской учет + Инвентар�
 ```bash
 magnet:?xt=urn:btih:3565A741BC7E09C07E5071C0CCBEF7B154D7F6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Torrent Stream Controller v1.5.22 [Ru]
 ```bash
 magnet:?xt=urn:btih:16BC03C69DB9A4EC22C041C81ED4A8C92DCF4566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

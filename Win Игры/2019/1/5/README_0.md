@@ -19,8 +19,7 @@ Hidden Expedition 16: The Golden Secrets / Секретная экспедици
 ```bash
 magnet:?xt=urn:btih:480304905AE810AAB5DF67E0EC6D0F001796CBA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Case Files 17: Rewind / За семью печатями 17: Вспят�
 ```bash
 magnet:?xt=urn:btih:DE28AAAF8F66C4CEA98BE594FE7F5C830E61EE7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Parables 15: The Match Girl's Lost Paradise (2018) [En] (1.0) Unofficial [C
 ```bash
 magnet:?xt=urn:btih:CA5BE17537BDDAD67B8F37AC49997D6D070FDDF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dreadful Tales: The Space Between (2019) [En] (1.0) [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:14848AEF5C84F882942A222F5F4629B950A767F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ LEGO Pirates of the Caribbean / LEGO Пираты Карибского моря 
 ```bash
 magnet:?xt=urn:btih:EF344D6D4EAC69110EBAC4B7F602C649BE17D45A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mutant Football League — современная интерпретация н�
 ```bash
 magnet:?xt=urn:btih:BDB68B295B627884DB57B3DF9B1C0F861C9CC056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Shadows: Awakening — это продолжение знаменитой сер
 ```bash
 magnet:?xt=urn:btih:82B5EE4873FA363E55F82D2E3B13645303B6216F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

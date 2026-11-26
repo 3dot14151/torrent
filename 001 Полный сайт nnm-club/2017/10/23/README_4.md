@@ -18,8 +18,7 @@ Naked / Голышом (2017) WEBRip [MVO] [AD]
 ```bash
 magnet:?xt=urn:btih:BC60E2D902EEC950CCC2D81841A3097EF9FF77B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5BEC2DAA04BF2A4B66AED26719F5E7FB28A1E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44462FB97C6885F870EB6D67A51B6E1791BBB8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ War Front: Turning Point / War Front: Другая мировая (2007) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:297C41775BD7FA26BBD00544A8BC4F09FC227217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B8FE19123907FA4556DD3B7D0DDD94FC5D5B408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAD8D064EDB70C473DDAE4EAB99F677FAA40602C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Fernbus Coach Simulator — первый симулятор, позволяющ�
 ```bash
 magnet:?xt=urn:btih:F6CBB47A0F9E9D58A34C09E7154A7839D1677D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Real Farm (2017) [Ru/Multi] (1.0.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:8E007C58CFDDCAC07A65098FF7BB0198BA93ECEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Sly Cooper: Thieves in Time / Sly Cooper: Прыжок во времени (2013
 ```bash
 magnet:?xt=urn:btih:FA5571CC08672D9BBA69CB54A1AB713246C878EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:DEA2174A053AE73F135C7883BE1D7F01FB06AB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ NBA 2K18 – новая версия самого успешного баске�
 ```bash
 magnet:?xt=urn:btih:76ED446F6237BCB6C33E8188FB7D621D92C4AA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Welcome to Hanwell - хоррор с открытым миром. В нем це
 ```bash
 magnet:?xt=urn:btih:88C2A3A31A9DE3213209CC401DE3E3F34E41CF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98BBB42D552C7402A68943ED7F6B88855BEE8BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ The FilmMaker VFX Suite дает возможность добавлять к с
 ```bash
 magnet:?xt=urn:btih:7B76965853F8726E8CCB791F75E0E5D8334157B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Windows 10 Pro 1709 x86x64 By Vladios13 v.22.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:8250C94C726924E8A861CA68ECAC32991E98D72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:BFEBFAE193CBEF31A0E69F75B8BBF075ED20D15F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3446778020AC072718F64E7B490C969D860F1114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463(   Читать дальше... 
 ```bash
 magnet:?xt=urn:btih:4138FA223539505C296CC7A33AFC38D45B43F4C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ Microsoft® Windows 10 x86-x64 Ru 1709 RS3 8in2 Orig-Upd 10.2017 by OVGorskiy® 
 ```bash
 magnet:?xt=urn:btih:831E0775AE7060DB0C2C60E7F6340E54ABD0DCBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ Adobe Photoshop - это комплексное решение для профе
 ```bash
 magnet:?xt=urn:btih:557550AB1B8EB6240518AAE6E6FA2FA859712A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.25) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7C93605D518CAB4E81D463C5250F1F2DC7FF3E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

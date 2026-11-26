@@ -19,8 +19,7 @@ Mysteries of Undead: The Cursed Island / Тайны живых мертвецо�
 ```bash
 magnet:?xt=urn:btih:CBEFA38B035EBDF447C161584EA728B04A1FF7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Namariel Legends: Iron Lord Collector's Edition (2013) [En] RePack Dizzery
 ```bash
 magnet:?xt=urn:btih:A29FC9F0D1736CCAF29B0A2A8DF46242CA5A0577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rite of Passage 2: Child of the Forest Collector's Edition  (2013) [En] RePack D
 ```bash
 magnet:?xt=urn:btih:F4000D4EED05980F4C2C7F8BF93F10E1483D1B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ King Arthur: The Roleplaying Wargame Collection / Король Артур (2009)
 ```bash
 magnet:?xt=urn:btih:EDB76D6C95F6330FD31675A470EB2D9621CFFB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Lionheart: Kings Crusade Collection / Kings Crusade: Львиное Сердце
 ```bash
 magnet:?xt=urn:btih:9D2A2D9E59DC188A19B4286B4CAFE5FA214928BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Rayman Origins (2012) [Ru/Multi] (1.0.32504) License PROPHET
 ```bash
 magnet:?xt=urn:btih:DFC344C6DCCB48B12B8B75F479146B96328CF369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Wargame: European Escalation / Wargame: Европа в огне (2012) [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:5B1986FA3B9FFAEFE801DDDA083CC303EBBBA488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Dead Island: Riptide (2013) [Ru/En] (1.4.0/2 DLC) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:E1163AC1BC2C8319CF33A615891B106F571DAAF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Anomaly 2 продолжает историю об инопланетном вт
 ```bash
 magnet:?xt=urn:btih:5D335035A36A76334D3E270A4971615ABA734702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Anomaly 2 продолжает историю об инопланетном вт
 ```bash
 magnet:?xt=urn:btih:443736BCC71D354C2587AEFC56D0A2C7CC4E5B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

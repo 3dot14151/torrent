@@ -19,8 +19,7 @@ Project 2013 поможет вам планировать проекты и со
 ```bash
 magnet:?xt=urn:btih:A139DE9EB6E24AD0EB6FFAA8486453736A6C99F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

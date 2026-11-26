@@ -19,8 +19,7 @@ MSI Afterburner - утилита для разгона видеокарт люб
 ```bash
 magnet:?xt=urn:btih:5E9723660031F6E483556259160020AF820B715E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Macrium Reflect Free обладает интуитивно понятным по
 ```bash
 magnet:?xt=urn:btih:7EE24B4FDAEA8D720D6B4183964DB72BC6E52121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:ADAA650CFBD901B36746AF45C74D7A35F21919DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Comfort Keys улучшает общее удобство Windows и помог�
 ```bash
 magnet:?xt=urn:btih:5842B42604D52AABB5A74A0C197F944E964353EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

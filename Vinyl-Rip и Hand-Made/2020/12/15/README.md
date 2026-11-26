@@ -22,8 +22,7 @@ A4 Free N' Easy = Свободно И Легко(   Читать дальше...
 ```bash
 magnet:?xt=urn:btih:B332C759FFC0F1C225F42B8BC2FC01E6B3C80480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

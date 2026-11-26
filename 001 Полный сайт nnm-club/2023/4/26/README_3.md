@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3FAADFD8D54F7ADDA004F9DA722E907D2F9B1755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Foxford (Фоксфорд), Анна Емельянова | Мастерство
 ```bash
 magnet:?xt=urn:btih:02EA25D53E104C955629C8EA17716CD5089ACE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Part 1 (Discoteka):
 ```bash
 magnet:?xt=urn:btih:F0A9E347E586A06D2DA19B0E39B7023AACC12C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C957C9F646E88BC8F8C0CCD0FFF72135AB907AAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ VMware Fusion - это удобная и мощная виртуальная м�
 ```bash
 magnet:?xt=urn:btih:6114970D9332D3F3B31CF879797364234B4EAA92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Rendezvous - это уникальная адвенчура, действие к
 ```bash
 magnet:?xt=urn:btih:C393684315B19C7FD66FAD39EA9944A7042886DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D06FC0D1E0385C55745387F00670CC597233E3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ VMware Workstation Player (ранее VMware Player) - виртуальная с
 ```bash
 magnet:?xt=urn:btih:060CEBBEB0B66135A22DBA385BAA713BEA39EA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC96C44B75E7A03E22B07E137F9DB54EF6519E69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Adobe Photoshop 2023 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:39CA1987B63C327F984F3485ACBA1EF5B1125280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

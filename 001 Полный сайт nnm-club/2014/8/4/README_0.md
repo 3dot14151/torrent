@@ -18,8 +18,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:5F9F242671240BA33BAD4700FBC495E6795031A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F417034F5B243EFC2D666492A677B4D9E2FB8A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Entombed A.D. - Back To The Front (2014) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:40646F57BD1360E27FDB779F72B245660E9BB024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D98537F0537248A4B1302405C116C9603B96644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ David Arkenstone - Another Star in the Sky (1994) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:E09A58002F004541AE95173C0C5660D737BDB32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Mandoki - Strangers In A Paradise (1988) [MP3|320 кб/с]<Synth-pop>
 ```bash
 magnet:?xt=urn:btih:D29891C34002AB0E58023C05C19D99E763E53625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2303EF083F7B088432177A6AEB390D1AB574D8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E06AA05C3659586D2B67B24FD7A661274C5D74A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ Steve Jablonsky & VA - Трансформеры / Transformers (Full Soundtrack)
 ```bash
 magnet:?xt=urn:btih:2E9DBDE01F69F6B71F620D8C12CADD60E9BCEE1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5893BCEFBB6BCAEE72507B716CA4921C762036E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69CF4E1366FA451FE901B543F460D114AFA25A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +337,7 @@ Bonus Tracks:
 ```bash
 magnet:?xt=urn:btih:9933D002D0E90D7D9696110E52F8A846E8E83AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ Bigasoft Total Video Converter - мощный видеоконвертер, по
 ```bash
 magnet:?xt=urn:btih:94C1386DEE2FBF9D627035D41F702F5B5DAA8E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D26A6247E169B04B0313C87BE6E0B1548276C04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +421,7 @@ Bobby Caldwell - Timeline (1998) [FLAC|Lossless|WEB-DL]<Smooth Jazz, R&B, Vocal>
 ```bash
 magnet:?xt=urn:btih:EDCBAFC1EC0214F7C82AD88C3A301BD2D772FF76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:5A9C345E58C663647C8B8F969811851F44923F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ Ashampoo Photo Commander 12.0.2 RePack by FanIT [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E7D4874EECC0A7F59E1EA42AE5528E77BAF7B6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ ENV(itre) - Discography 14 Releases (2003-2014) [MP3|128-320 кб/с]<IDM, Downt
 ```bash
 magnet:?xt=urn:btih:78F39ECA011D7A15497B0F994CBAD453C300F160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ Prelude and 'Fiddle' Fugue in D minor, BWV 539
 ```bash
 magnet:?xt=urn:btih:3C3234C2181E92DD08C0DE55647F6B421ACD30F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A85C2DD1311643A9664F492277692ABBEA7564E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ Alan Silvestri - Ван Хельсинг / Van Helsing (Complete Motion Picture 
 ```bash
 magnet:?xt=urn:btih:CFDB2AB2CC1D54B00F553505A3CFB172CAC4E327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ Sara Sant'Ambrogio - Dreaming (2004) [FLAC|Lossless]<Classical Cello>
 ```bash
 magnet:?xt=urn:btih:E34CD1FA05ECB682A6E3C08E7EF928E34EEB7A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ Symphony no.6 in F major "Pastoral"
 ```bash
 magnet:?xt=urn:btih:3764F6E0966BD7960FA330D9B28FDA8381F5ADC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ MacX Video Converter Pro — видео конвертер все в одном,
 ```bash
 magnet:?xt=urn:btih:F5AF70A3787D40A8C66659029951830A1A75E872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA670F1E3736110C0DE3E72ED76636B353C3264A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C02B49ED5AF6600FBEE840B563E7192B678F6EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

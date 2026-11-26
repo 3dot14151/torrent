@@ -19,8 +19,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:4878DDEDDD13EB3CC09DECC075205B6FA9A97C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Coolutils Total PDF Converter 6.5.0.183 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:79016D1E0309A630E5785D37897AB4DCCF699110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WinCam – это программа для захвата видео с экр�
 ```bash
 magnet:?xt=urn:btih:EB68E64E9680F2806770DE81DE7C632AC5C3AF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ OCCT 17.0.9 Portable [En]
 ```bash
 magnet:?xt=urn:btih:0708235D61A0E3245C44650AF7DD310E94DACFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ W10 Digital License Activation - инструмент от Ratiborus для ак
 ```bash
 magnet:?xt=urn:btih:6225E9BACBF475E5EA429873D98D3214A888798A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Teleport Portable 1.5 [Ru/En] (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:7E5F10E4089B7B849CBF60BEC90DF4FB8F99625C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

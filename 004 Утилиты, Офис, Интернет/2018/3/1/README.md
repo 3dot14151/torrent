@@ -19,8 +19,7 @@ Coolutils Total Excel Converter 5.1.0.254 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:83DDE51766196B5D139A3A141EE99E8E73D6DF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

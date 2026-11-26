@@ -19,8 +19,7 @@ Rune Classic / Руна (2001) [Ru/Multi] (1.11/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:F846F618DC792373BF1D1D044D00204A2A02263B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ QuickMemoryTestOK - небольшая, но эффективная утилит
 ```bash
 magnet:?xt=urn:btih:09A864961FBCDAAF9946EE496FB685FF893E26D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ WinBin2Iso 6.36 Build 001 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A525972F40EB97CB293898769E4F03942B8591E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

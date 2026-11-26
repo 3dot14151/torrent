@@ -19,8 +19,7 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:13E2E7C57DE603763E69D68660F02099AF552B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E49FF2F8B48F7B5984E91B33F8CB6E89C4D3A188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:CA31A7C96C053CA446C0BB97B51F8D01E7690042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:600FD16BA4983279E744A84837E08BA8D26404A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ```bash
 magnet:?xt=urn:btih:EDD899F7DFDD8DA6A3E1F4B71D64A3F0F4761426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Smart AudioBook Player Pro v11.5.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:64B38EA269FB20DB380A34B1B55361C97B8F48ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ OTT Navigator IPTV v1.7.3.3 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E32926F23A417B37A6A4CB60E661866255AEB695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Smart Tools® 2 - это расширенный набор инструмент�
 ```bash
 magnet:?xt=urn:btih:3FEEB0A0D415709185466115215F860B3EF9A5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Kitchen Timer / Кухонный мульти-таймер v5.2.2 GP Mod by Alex
 ```bash
 magnet:?xt=urn:btih:C2C1FAA4E602417854075C43EE87A1756FCA2A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:DCDADCAE49549C43E8D6C24E0F8DC8C4F7BBBD89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDFF922BFADEAD46DA593844E56434BDF6839A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78698E61434587E1AD8E6DB4CDE8250F3697E1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Lighting calculations / Расчеты освещения v6.1.8 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:6B9BDAD881F211D12FF30231FB6F88A613C80F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ AI Photo Editor Pro - Polish v1.674.229 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C16F71BA849639D676AF900F0AAD5B284787744A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

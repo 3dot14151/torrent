@@ -19,8 +19,7 @@ Homefront: The Revolution – это шутер от первого лица, в
 ```bash
 magnet:?xt=urn:btih:4F6D3F94F87F6CD6AC7FD6C4202D997E96638A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

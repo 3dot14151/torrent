@@ -28,8 +28,7 @@ Symphony X - Iconoclast 2LP (2011) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Progressi
 ```bash
 magnet:?xt=urn:btih:9F2B43B7589F416CDF513111F3DCB31FA77D01D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

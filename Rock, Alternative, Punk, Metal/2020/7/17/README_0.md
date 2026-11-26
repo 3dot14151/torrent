@@ -22,8 +22,7 @@ Magenta - The Lost Reel (2020) Tigermoth Records [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:E5B6D36E466DDA6BB8A1A9503321861128D13632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

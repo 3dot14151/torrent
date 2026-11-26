@@ -21,8 +21,7 @@ Hypnotizer - Sparkling Forest / 1​-​Digitalis (2012) [FLAC|Lossless|WEB-DL]<
 ```bash
 magnet:?xt=urn:btih:999C474BA9F4FBB169403FCB3C99437A86A1D619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A511F930AF87AF1ABCEE51E79519C6244DEC27BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Mental Asylum pres. 5ive Zero (Mixed by Matt Bowdidge, James Dymond & Eddie
 ```bash
 magnet:?xt=urn:btih:149C87E245DB0CCDDD0E88D4AA9F6DAA25010FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Father Ray Kelly - Where I Belong (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:86A58EEB60DF516B74D2C88204465C5831DDD976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Marc Marzenit - To Love Until We Say Goodbye (2014) [FLAC|Lossless]<Electronic, 
 ```bash
 magnet:?xt=urn:btih:03BF37811A0682DEFBF70CD28F493F6D8DA7CBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Amy Lynn & The Gunshow - Don't Trip On the Glitter (2014) [FLAC|Lossless]<Vocal 
 ```bash
 magnet:?xt=urn:btih:A9379A116D4AF549B2AF82E9AE862AC41F3215B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ VA - Chiller Vol. 1 (2007) [FLAC|Lossless]<Psychill, Ambient, Psydub, Downtempo>
 ```bash
 magnet:?xt=urn:btih:4CDF56D97D12111CD820DE6622D0DCED0F29B4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4DBBB00572FF021E1F77683B018B3FAC72CA893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61FD619A972763161ABB9C4C3AA071D0FD9D8DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4B6EE442AF56BEF339AE679924AF61934E1F424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ Felix Chenier - Shameless Robots One (2015) [FLAC|Lossless|WEB-DL] <Indie, Post 
 ```bash
 magnet:?xt=urn:btih:6161306F2BE76F3526321D921749766F7DE535BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Unknown Artist - Kernowek EP (2015) [FLAC|Lossless|WEB-DL] <IDM, Ambient, Techno
 ```bash
 magnet:?xt=urn:btih:B55DA50A1FC3BCE5A8A44B8738C39160783BCE93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C7C17DCDCF61A2E7820DA99DD3720E524D19D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D35F05AF49532293636613C72B173CFF91EB4CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C28C96EA92A31A0FC4577C9926E89664137E1C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ VA - Winter Retro Music (2015) [MP3|320 кб/с]<Oldies, Retro, Pop, Disco, Othe
 ```bash
 magnet:?xt=urn:btih:9F74B7494A4BB940C28D12DB4F1265A3B5AB51E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7400E0A0756E50EAA7A9209E53B6619496AB73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Queen of Hearts - Cocoon (2014) [MP3|320 кб/с]<Electropop, Pop>
 ```bash
 magnet:?xt=urn:btih:AD599D47DBEEA43AF8D246B0BCE3548F9E2C3ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8E04A35D21D625ED401C7C9DEF80EEAD30EB9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Memories Off | Забыть прошлое [2001, OVA, 3 эп.] DVDRip 480p raw
 ```bash
 magnet:?xt=urn:btih:C003572F4D19F43F7AC520AB0BA2FF1AB2E92181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ Hardwell - United We Are (2015) [FLAC|Lossless]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:CCCB2CD0C4E8AF2C409070D7AFF09CFBECF3F410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ DJ Цветкоff - Танцпол @ Record Club # 360 (31.01.2015) (2015 [MP3|3
 ```bash
 magnet:?xt=urn:btih:C59CDA464C9290FA22BD87D140B8A45A654E14ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ Acme CAD Converter — новая версия популярной и дост�
 ```bash
 magnet:?xt=urn:btih:5BF81FEF0B89E498FAC948B80E1771C7FE186FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA53A4EF92B4CE22A0E5AB916CF239247FBDB4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

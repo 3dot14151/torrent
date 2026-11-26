@@ -19,8 +19,7 @@ BB FlashBack Pro - программа для записи экрана для с
 ```bash
 magnet:?xt=urn:btih:BB15911C2091C62B91692E520DAE1F4042A79733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

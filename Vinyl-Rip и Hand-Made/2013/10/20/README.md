@@ -28,8 +28,7 @@ B5. The Lady Lies :: 06:07(   Читать дальше...   )Жанр: Pop Rock
 ```bash
 magnet:?xt=urn:btih:01F08833D64C7C26FE16F1AADB5AB660754E04FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ D1. Cinema Show :: 10:59(   Читать дальше...   )Жанр: Art Rock, 
 ```bash
 magnet:?xt=urn:btih:6682FC31EDB306286CB03B4B6362A2605F333A0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ B5. Ты помнишь Москву? (Д.Тухманов - В.Харитоно
 ```bash
 magnet:?xt=urn:btih:1BF6182B57FBDAB6B568EF0D161A92A9AE380718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ B4. Темная лошадка (Д.Тухманов - Л.Рубальская) 
 ```bash
 magnet:?xt=urn:btih:0A7E298A66D9E1188BABD63D5E5FD8779579402D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Dire Straits - Brothers In Arms (1985 / 2013) [FLAC 2.0 24/88.2|Tracks(SACD)]<Ro
 ```bash
 magnet:?xt=urn:btih:C0B7B191983A87F7409E60F32D6D476AC42109A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

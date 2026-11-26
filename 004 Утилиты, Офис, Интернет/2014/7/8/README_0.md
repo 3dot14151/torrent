@@ -19,8 +19,7 @@ Battery Optimizer это утилита для оптимизации работ
 ```bash
 magnet:?xt=urn:btih:240D420888957515C424AF4CB571593E92755571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

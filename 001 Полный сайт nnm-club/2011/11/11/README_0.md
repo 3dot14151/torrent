@@ -22,8 +22,7 @@ Desktop Wallpapers 3 (10.11.2011)
 ```bash
 magnet:?xt=urn:btih:E9D91A88C9F6C6B16C71D97C3F481612B7C9016B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ VA - 205 Hits от Хит FM 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:2C02C16D8F51F1886C04068495BCFC3EA963059B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Riot - Immortal Soul (2011) [MP3|320 kbps]<Heavy Metal/Power Metal>
 ```bash
 magnet:?xt=urn:btih:FD1689CAC212E434794178BA0219156985D89C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ N/A09.11.2011Жанр: Dubstep, Fidget HouseПродолжительность: 
 ```bash
 magnet:?xt=urn:btih:A682EBBE17E48F8C315B94DFB11CA5DD5E61A128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ Ensemble Al Kindi - Musique Classique Arabe (1989) [APE|Lossless] <arabian class
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ Astral Doors - Jerusalem (2011) [MP3|320 kbps]<Heavy Metal/Power Metal>
 ```bash
 magnet:?xt=urn:btih:770CA49FC72AF34E4C98BE94E235A86AE6AE26C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ VA - XXXXXL Блатные Звезды (2011) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:0A884BC13700527C66910DE74CBDD94FBDDFFDF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ VA - Sun And Bass: Selection 2011 (2011) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:BB44EBFCEDB28ACE1474A2F0A856296C45EB7080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ VA - Разведенные Мосты (2011) [MP3|320 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:DF580482612345EBEC4D597D3273919EB484F793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +339,7 @@ VA - Улетная Мега Вечеринка (2011) [MP3|256 kbps]<Pop | Danc
 ```bash
 magnet:?xt=urn:btih:3D7CDF09D05A35195FC3C75D2B61F139C3CC1F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ Desktop Wallpapers 2 (10.11.2011)
 ```bash
 magnet:?xt=urn:btih:0A04ADB99526C230AD71FE6FD664D13A50AA8C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +425,7 @@ Comoros - Yoga Moods (2005) [MP3|320 kbps]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:5ADAA396F484FEBAFC0274F32A22C82E1D7B1AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8FF063C07E246E22EC2106A01D1312882079CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02000455EEE0EFA06A10552B564AF57CB8BC9ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +515,7 @@ VA - Everybody Dance Now! От Dfm (2011) [MP3|192-256 kbps]<Club | Dance>
 ```bash
 magnet:?xt=urn:btih:31CA1460A35F36822B987D592CA3EFDB29565097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +549,7 @@ VA - Лучшая 100ка Европы плюс 8 50/50 (2011) [MP3|256 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:86F222874C7F49C9F6E2EDC3725246BA5F11F72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +583,7 @@ Luna Mortis - The Absence (2009) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0B2CD5CC9B9AC6A93A4756F4CA710AD8130B7FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +617,7 @@ Anna Maria Jopek - Lustra [3CD] (2011) [MP3|320 kbps]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:C10B5DA014CAD749539CCC7C9EF51D14BDDE3063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5337E119BBF46CC531D1DC051F027C84B32C1790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +678,7 @@ VA - Собор Без Крестов (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:7B54C57DD38AD754632483EBDA37495615A0DB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C411E741A76796CD6E67E9D12A632E30422CBE7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +737,7 @@ VA - Kontor Top Of The Clubs - Vol.51 (2011) [FLAC|Lossless]<House, Trance, Tech
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +771,7 @@ VA - Best Club на радио Record (2011) [MP3|320 kbps]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:C291814E7B1AB49C4581F25F27297E494B782024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -821,8 +796,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2B224F17FE2B0B314A69C2A1389E9047E2BEF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

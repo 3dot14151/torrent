@@ -23,8 +23,7 @@ B1. Flesh For Fantasy (4:39)(   Читать дальше...   )Жанр: Hard R
 ```bash
 magnet:?xt=urn:btih:27A6F7A7B2FBAFD9DB84739634B3FFD399F52545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

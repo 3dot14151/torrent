@@ -19,8 +19,7 @@ CleanMyMac 2 позволяет легко и непринужденно изб�
 ```bash
 magnet:?xt=urn:btih:5F00D68A6E48B45EDFB267BF4C36070BA29C9D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip  [1080
 ```bash
 magnet:?xt=urn:btih:6648B9E39B967F82221A76A58049582AC74DA91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [1080p
 ```bash
 magnet:?xt=urn:btih:FAAED447129E03E04EAAECB7439C4D8BA18CD755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9174DAF698C917F018A8EE2C819A57CCC97CD69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Core-редакция Zorin OS предлагает пользователю р�
 ```bash
 magnet:?xt=urn:btih:6C2AA5281730D39FDE602AB57C90073AA8858F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Microsoft Toolkit - это набор инструментов для управ
 ```bash
 magnet:?xt=urn:btih:D1E06D0F22BB8F81D61FDA28A32F18F2045100DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) HDRip [H.264
 ```bash
 magnet:?xt=urn:btih:771450960E032D16FAAA14F85FFB88432DE572BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Space Pirate Captain Harlock / Космический пират Харлок [2
 ```bash
 magnet:?xt=urn:btih:F05EFF1BBF20FB651622C372BED336DE85A2B934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Mortal Kombat (2013) [Ru/En] (1.0) Repack a1chem1st [Komplete Edition]
 ```bash
 magnet:?xt=urn:btih:F98CC8C856A9F092F9EC911970DAEECDA6944806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Sony Vegas PRO — профессиональная программа для м
 ```bash
 magnet:?xt=urn:btih:5EFB77462AD59466D3576A05C473C8E6CC681BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ ADVANsCEne Playstation Portable (0001-2000) [PSP] [En/Jp] (2005 - 2014)
 ```bash
 magnet:?xt=urn:btih:B69374F9275183F1470B35156C78AFE34BE9893A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C17481456F064E63B5DC1DB08627BC0F77486683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

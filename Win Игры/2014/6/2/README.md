@@ -23,8 +23,7 @@ The Tiny Tale 2 (2014) [En] (1.0) Unofficial ZEKE
 ```bash
 magnet:?xt=urn:btih:B5DC5A4A4B969DA6A4437EBB90A827199F7E547A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Night of the Rabbit – это еще один красивый рисова
 ```bash
 magnet:?xt=urn:btih:7AAD952E5A816A44C1BA4E472BD2C4A37D8A1CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:3B9B401EBEB0714AAC757FAE00CE4D2B1D52BCF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ LEGO Digital Designer - программа представляет собой �
 ```bash
 magnet:?xt=urn:btih:E1862425237F6D5E81325E9D968CA1F144C60C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Outlast (2013) [Ru/Multi] (1.0 build 253650/dlc) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:F1978983782E2398302C4C7608EE2C9D90B9D37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

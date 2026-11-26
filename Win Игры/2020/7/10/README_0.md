@@ -19,8 +19,7 @@ Family Mysteries 3: Criminal Mindset (2020) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:3EB9CFC2414843F363C2A3C1849C23B26FAC2BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D272BBC3B8FD7EEBB1B956472FA9B8F1F977E80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

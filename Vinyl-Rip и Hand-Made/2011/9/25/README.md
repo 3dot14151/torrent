@@ -19,8 +19,7 @@ Amanda Lear - 1 альбом,1 сингл (1978,1986)  [FLAC 2.0 24/96|tracks/im
 ```bash
 magnet:?xt=urn:btih:90A07A1F65610B678E221EBE3D750C6BF54A3E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

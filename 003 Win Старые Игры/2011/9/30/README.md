@@ -20,8 +20,7 @@ Shattered Steel [Ru/En] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:7FE47DC2437A54CBB4FBC490C6B1708DF29DF175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Ground Control [En/Ru] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:36F9374587CCB907D8B26A8365FA92F70D025A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

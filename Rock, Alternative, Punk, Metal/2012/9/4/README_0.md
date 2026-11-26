@@ -28,8 +28,7 @@ CD1  Продолжительность: 01:13:48
 ```bash
 magnet:?xt=urn:btih:58774BDBC19ACEDFF1E3FC9E9DEA4F865FEDE7A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Rise Against - Endgame (2011) [MP3|320 кб/с]<Punk/HardCore>
 ```bash
 magnet:?xt=urn:btih:8AF637D6FD95593B93984A3A4D4FFFDA163225A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

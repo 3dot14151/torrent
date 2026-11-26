@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:63E3DD3123A3ADD389EC60030A374DF14156E399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ GraphicConverter — полнофункциональный графически
 ```bash
 magnet:?xt=urn:btih:8667DD876BA687B8F7656225867D4B5A46CA9DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Kenziner - The Last Horizon (2014) [MP3|320 кб/с]<Power / Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:A13F3F1A9864FD4131DF690B8D8613ED01B621ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB66ACCD7DCA8F6A20AD4A333077164D033F283A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC886F3A9387711C2140CDEA7B2C0D1404E0E892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15EB2394038BBD620FB4DD6EF3B98D6D6383CD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Dudley Taft - Screaming In The Wind (2014) [MP3|320 кб/с]<Blues Rock, Hard Bl
 ```bash
 magnet:?xt=urn:btih:39FBC40F45A064C923A515C34A0B39182C18B15C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ VA - Cafe Paris - Rouge - Bar (Deluxe Chillout and Lounge Music) (2014) [MP3|320
 ```bash
 magnet:?xt=urn:btih:7FFA9D5F3789CD1493660DD7DD1F3CA5255FC5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6448B17DFFDE4D185A7D3B1D022FC913ED49D4DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ Black Robot - Woman (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:704D1EAE36C21FE2AC48F4BA5BA5E0AA31ED3E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ NG: Авто. S.O.S. Серия №6 / Car. S.O.S (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:1D3BACD9717A6A79EDFFC733A874EB1CFC92D31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8FA559B62DA4FDE4EAD7A855A44FF5A9BF4340C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ Young and In the Way - When Life Comes To Death (2014) [MP3|320 кб/с]<Neocrus
 ```bash
 magnet:?xt=urn:btih:0D2B08A328961627B8737AD535E5D0BF4C12B4D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ Sweet Pain - Sweet Pain (1970) Remastered /2008, Retro Disc International/ [APE|
 ```bash
 magnet:?xt=urn:btih:8535C5ECE54DACF8784EA99D62515CAA43267312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ Elektrikall - My Soul Is Dark (2012) [MP3|320 кб/с]<Techno, Dark, Industrial>
 ```bash
 magnet:?xt=urn:btih:85C8DE853B0592BA1BD6A86BE64836E79EB211B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +459,7 @@ JBC Arkadii - Sounds From Tomorrow (2013) [MP3|320 кб/с]<Goa Trance, Nitzhono
 ```bash
 magnet:?xt=urn:btih:1446AABDF49CB87CBFEC07A83262950B410DDFAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +493,7 @@ VA - Best Of Trance 2014  [MP3|320 кб/с] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:BA30D0473A4422393CD008403B322C1AE8B0435A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ Zach Williams And The Reformation - A Southern Offering (2011) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:4289FC1188CD8D7999DA8C96F6011D1946AC1C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3486EC7CC0403D17B38709C1497644AC6B35679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F3BDF08E4AB36C999EC0C66121BA7CDA282EB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FA2AE6BB4D41B7EEBB99EE9524D636CC06FAE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97A8D50D88723658F7B01F0CCC3FB1782DC050AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF8C1317C387DD7D801073057AD37470BD67747A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +690,7 @@ Second Hand - 3 Альбома (1968-1971) Reissue, Remastered /1991-2010, UFO R
 ```bash
 magnet:?xt=urn:btih:7E443A019E31C3B6B655BF347F4BB542167F8489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ Credits:(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Pr
 ```bash
 magnet:?xt=urn:btih:07C69CE7A2493890A65E84ED863BB279DEBEE1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

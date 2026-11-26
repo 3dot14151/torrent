@@ -19,8 +19,7 @@ b2edit — свободная (бесплатная и открытая) про�
 ```bash
 magnet:?xt=urn:btih:725A9C7BA6BA578B3591BCD67AD19E2A6E448831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

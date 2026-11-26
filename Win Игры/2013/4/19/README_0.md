@@ -19,8 +19,7 @@ Redemption Cemetery 4: Salvation of the Lost Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:925E3F619C204751EEDD5507F68A765890A8771F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

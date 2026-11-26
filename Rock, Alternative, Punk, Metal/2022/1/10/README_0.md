@@ -22,8 +22,7 @@ Pantheist - Closer To God (2021) [FLAC|Lossless|image + .cue] <Funeral Doom Meta
 ```bash
 magnet:?xt=urn:btih:F35D55AFD46B24828F9F1D84B5125A40165EACFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kryptos - Force Of Danger (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F5C8F60F49517C1DFC69758EB739C61077E89552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Johansson & Speckmann - Sulphur Skies (2013) [FLAC|Lossless|image + .cue] <Death
 ```bash
 magnet:?xt=urn:btih:D3EDD7C009043B956D6013B04CDFD6A19E1DC730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dead Echoes - Twin Flames (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alter
 ```bash
 magnet:?xt=urn:btih:EE5CF0B7B8264511FD9087FC5FD712F17EDFD86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Illnath - Cast Into Fields Of Evil Pleasure (2003) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:8B9625566DAD27C91C1E952516FBC46A2C9DB0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

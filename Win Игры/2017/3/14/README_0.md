@@ -19,8 +19,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License CPY
 ```bash
 magnet:?xt=urn:btih:3EEF424CA21291E2C822B4C089C47507B4F59D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Save Our Souls (2017) [En] (1.0) License CODEX [Episode 1]
 ```bash
 magnet:?xt=urn:btih:AEBE5CFCAA96AC43CD61BAC6C3B71B1BA6CC3A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

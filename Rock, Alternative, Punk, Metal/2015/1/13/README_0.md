@@ -25,8 +25,7 @@
 ```bash
 magnet:?xt=urn:btih:8E1DC9F2D8501F7488FAB784C4F0995272E3DF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Melody Fall - The shape of Pop Punk to come (2014) [MP3|320 кб/с]<Pop Punk>
 ```bash
 magnet:?xt=urn:btih:2BCE0ACC00EC941185F928662B0F5A73D421723A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Grand Design - Thrill Of The Night (Japan bonus tracks) (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:86DA96140CFB43CD213E1B800EC1C4268F7F90B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15294D7368FD7668D3B3449D033FA4EA78875195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

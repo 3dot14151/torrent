@@ -18,8 +18,7 @@ Movavi Video Suite – это пакет программ на русском я
 ```bash
 magnet:?xt=urn:btih:4689A1CC669032DE1EE07C3A31B5883A6C775E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ray Conniff - Музыка хорошего настроения (2005) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:997C36A8B8094EA3441BC69822879D65A9DC704B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:197A403FC1711716EF124C643B96F328C52D671E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37A561331D58444587339F854425B45ED61B2861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E20FAE7D8A44A529994F7B7EA6E3A3905AD82866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AFADEB84F6704F991BC29D52544817E6C310579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ RTL Winter Sports 2009: The Next Challenge / RTL Зимние игры 2009: Н�
 ```bash
 magnet:?xt=urn:btih:E27F5B72E778E20A37F566DFD646C24657FFB5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club (
 ```bash
 magnet:?xt=urn:btih:F95964BBB3E6E841E7EBF622EFEB56346F24B99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB45971D0709C5B53F1670E565F7149EE0B850C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ TreeSize Free - бесплатный вариант более продвину�
 ```bash
 magnet:?xt=urn:btih:79FA2B5059575105BE7623793D73C2B86B666494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11828FFE88F64646A2BF3C5A8D4C8A1C4407C66F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F06C9F0DA173BC169E7774169C1B5CFAA4A41CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ RTL Biathlon 2007 / RTL Биатлон 2007 (2006) [Ru] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:E7E2046B327E7EB351A6388A64882593B4A84E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD45731B80D804FBE24BC06D0675BD48C7E8AD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Trypogen 1.1 For Cinema 4D [En]
 ```bash
 magnet:?xt=urn:btih:6BD38E7F197E5276FDAB1C7CB22A9335E834555C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Curling 2006 (2006) [Ru] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:5BA74441C186E0338E0D545D838F563B24941EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ RTL Winter Games 2007 / RTL Зимние игры 2007 (2006) [Ru] (1.0) Repack 
 ```bash
 magnet:?xt=urn:btih:0E338991CB1ECBA02C871D7F1EDC97E37CBC17AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ RTL Ski Jumping 2005 (2004) [En/Ge] (1.47) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:6A9E999B8E276761B289080C921B73C24F964A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E1AD40102D41CF7470204180F77F3221093B123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ RTL Ski Jumping 2007 / RTL Лыжный трамплин 2007 (2006) [Ru] (1.0) 
 ```bash
 magnet:?xt=urn:btih:E378604FD4C247920EB3A674E9D7C7D4B2BFBFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ Alpine Ski Racing 2007 / Горные лыжи: Альпийский сезон 
 ```bash
 magnet:?xt=urn:btih:0F1011FC2A8BF0E1725688AFC45077668C52C25A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ Hi-Fi - Лучшее (2015) LP [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:BF6CC4DD0094C7307B426D8075C9D1FA791CFDE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ Aurora HDR, идеально подходит для фотографов все
 ```bash
 magnet:?xt=urn:btih:1CAD2EE64A0684A7EE7543FFBC69F1839B58D5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEEA85B77F612066CBFABEB911ECC1B71009A21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +634,7 @@ Judas Priest - Painkiller (1990) Reissue, 2017, Columbia [FLAC 2.0|192/24|image 
 ```bash
 magnet:?xt=urn:btih:43D981169D9A7F41E9D75B517ABBBB48591C13EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 ```bash
 magnet:?xt=urn:btih:202BB3BD6FCA84A5CBD083948CC6F4003C9949CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

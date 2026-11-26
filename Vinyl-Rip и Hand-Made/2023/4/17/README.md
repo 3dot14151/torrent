@@ -22,8 +22,7 @@ A4 Kilimanjaro (Kilimanžáro)(   Читать дальше...   )Жанр: Folk
 ```bash
 magnet:?xt=urn:btih:4A421E812EBF042767196AF5C4BAD1D13E7767FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Woodkid - The Golden Age (2013) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Alterna
 ```bash
 magnet:?xt=urn:btih:88BCBDF1BDCA787069819A2385B14439366D9C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Thunder — английская рок-группа из Лондона. Осн
 ```bash
 magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

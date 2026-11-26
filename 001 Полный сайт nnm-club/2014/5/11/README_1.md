@@ -26,8 +26,7 @@ VA - Christiania Selection (Compiled by Flexus) (2012) [FLAC|Lossless|WEB-DL]<Ps
 ```bash
 magnet:?xt=urn:btih:1A3C02D27C181AF07C92055AD091ECEC34E9880C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ XviD4PSP - лучший по функциональности видео-кон�
 ```bash
 magnet:?xt=urn:btih:ECFB8D57E1A62123E4A016EC8AADB626470536E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2EB00980CB2D2E32F376AC578FE20B7DF5508B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Auslogics File Recovery® - легкая и эффективная в испол
 ```bash
 magnet:?xt=urn:btih:AC335018DAB22C422AE8114289FCB0E5114FB8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ VA - We Love Ibiza 2014 - 100 Tracks (2014) [MP3|320 кб/с]<Tech House, Deep H
 ```bash
 magnet:?xt=urn:btih:39943B86251F1AEFA12D9F9E68F8C574B12CED43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Unibox - это почтовая программа, которая группи
 ```bash
 magnet:?xt=urn:btih:F85B6DA2014983E78F39C44B18CA42FD8C6134DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ Being As An Ocean - How We Both Wondrously Perish (2014) [FLAC|Lossless]<Melodic
 ```bash
 magnet:?xt=urn:btih:9D6CC72667B270F923A652A54ADA8352BF40AFAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ VA - Trance Summer Weekend Vol.2 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:E35E9098D5FFB1898C9C1448EAB0A652349E4A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ Kenny Wayne Shepherd Band - Goin’ Home (2014) Deluxe Edition [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:C40BD50AFE204F450BC8B43034B1DAF2289DCC4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C87745AD74BFC2EFA6B84F4DF8EC90AFFC2817D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C9BC22FA0CD473CC6BA49AFE1FD229584805EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE92FFED6F076A97C1EF6A86AE148A6F437E0135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ Witchcraft: The Lotus Elixir (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:ADC2BF446AAD449F1AA2D0B0A26D255F70584CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C7FBD31EC8F1BD0BF0AE32DD023B5E1A04FD1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +421,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:AF64AC4A04472CFAB9E7EABABCD244243EF422BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ NG. Реальность или фантастика? Жизнь на Марсе
 ```bash
 magnet:?xt=urn:btih:02A9C745FA9A3B8017D9A4A8BDD272FDB414B782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB281DB43199922FE66C98CA8FB808CC4B2C1C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5F056C6C30F6DC8F5341B6975F6BEC970117210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ Unrepentant Geraldines - четырнадцатый студийный альб�
 ```bash
 magnet:?xt=urn:btih:8CBC5126EBE0D511C761933B0E9367732EF0B626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CF1C56B0E4B68B9A6C1E88181F96D1C3637DA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +591,7 @@ VA - ISRAliens Vol 7 - Origin Earth (2014) [FLAC|Lossless|WEB-DL]<Psy-Trance; Pr
 ```bash
 magnet:?xt=urn:btih:6EDD9F163D649AC30017336395061690C822B0FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0116A0F5AB58D9AC258BB7D8336B9B336002077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +644,7 @@ The Clash - Hits Back (2013) 2 СD [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:3E9B23CCF585C3DD089E146E9E19C8D3128490A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1626B9A7115941A719F212E19B320B94BBD4C035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +704,7 @@ Johnnie Lovesin - Ready To Rumble (2014) [MP3|320 кб/с]<Modern Electric Blues
 ```bash
 magnet:?xt=urn:btih:69608005F71C6E9DA0270F3A77750C86E4F1C2D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00E26E7E0BA191A4C56B6C3088FD08E4D4D6C7A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Orymus - Miracles (2015) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D9B04C03F6F78C4BF574E053B715139185545C7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Frame - Frame Of Mind (1972) [MP3|320 кб/с] <Rock, Prog Rock>
 ```bash
 magnet:?xt=urn:btih:7CA1374BD696FDB71B47398D433995666B38B05D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Case Mayfield - I Wish This Was About You (2016) [MP3|320 кб/с] <Indie Pop Ro
 ```bash
 magnet:?xt=urn:btih:1CF0777BE6B73EED311B5E896261DFC0CA204324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Leecher - Slightless (2016) [MP3|320 кб/с] <Gothic Metal, Symphonic>
 ```bash
 magnet:?xt=urn:btih:2B2D3D4A2611C0A2CD5751B2BBB8FF6A4FA2669C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Temper Trap - Thick As Thieves (2016) Deluxe Edition [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:ABD169F770826EDFA958391E4C122C4C6CB5965B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Saliva - Love, Lies & Therapy (2016) [FLAC|Lossless|tracks] <Alternative Rock, A
 ```bash
 magnet:?xt=urn:btih:BBA627676F0E5ACA8C51E4A045BD7FD421A55FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Soul Doctor (ex-Fair Warning, Bonfire) - 6 альбомов (2001 - 2009) Japan 
 ```bash
 magnet:?xt=urn:btih:AFE886E692F137093C8E679050D60D1139219B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Avatar - Feathers & Flesh (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <M
 ```bash
 magnet:?xt=urn:btih:E058D17BD6375BFF48A4FE552BE78EA7CD4EA9E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Knockin' Lost John - Got A Spell (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock
 ```bash
 magnet:?xt=urn:btih:41AE184022A2C12919253DB8588181144368D52A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

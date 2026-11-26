@@ -22,8 +22,7 @@ A4 Точка Отсчета(   Читать дальше...   )Жанр: Hard R
 ```bash
 magnet:?xt=urn:btih:EC495827F156A441266CC297CEF0F26BC359F5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Hea
 ```bash
 magnet:?xt=urn:btih:F49ECB2007F2D0C9E059AD1DD6E4C9A45044A0A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

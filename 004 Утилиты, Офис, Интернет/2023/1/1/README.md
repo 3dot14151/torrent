@@ -20,8 +20,7 @@ FontForge -- это редактор шрифтов. Программа прос
 ```bash
 magnet:?xt=urn:btih:69FA6A661A596B9A231647094726052ED0720C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

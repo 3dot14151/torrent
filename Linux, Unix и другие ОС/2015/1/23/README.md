@@ -21,8 +21,7 @@ Calculate Linux 14.12.1 [i686] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:883B11B7611ED38F592C21068EB20A750AEED191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ```bash
 magnet:?xt=urn:btih:90E97BD697E1EC7A1E37E322013F4EE53DFBA59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Kubuntu 15.04 Vivid Vervet Alpha II [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:DE884AB14BB0DE43A83BF316BE331BC051A299CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Ubuntu 15.04  Vivid Vervet Alpha II [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:F00EFD42A4AE8E7B0C7F3C9E3C2F151D073F3132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Xubuntu — это разрабатываемая Canonical, основанна�
 ```bash
 magnet:?xt=urn:btih:EFCF9C56499EBFCF98E30CF09EC8A0E58BE16F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:8A032D7B67E43AD63919D45C362816F5D0158917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

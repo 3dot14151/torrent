@@ -18,8 +18,7 @@ T-ara - Why Are You Being Like That? (2010) IPTVRip
 ```bash
 magnet:?xt=urn:btih:34C80B4DE080F065F479B368B4DFD45C205F2DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Dictionary .NET - универсальный переводчик текстов
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ T-ara - Lies (Movie Version)(2009) SATRip
 ```bash
 magnet:?xt=urn:btih:A604405D9B413913BA3C5E369AE8A134C61983F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ SUMo - программа, позволяющая отслеживать поя�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ We Are The One - цифровой сингл, выпущенный группо�
 ```bash
 magnet:?xt=urn:btih:624CE2A6F51045F316BBAAA0DE5D44A371DA9984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - XXXL 26. Максимальный (2011) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:72A82C569D3FC2AE1F581E6665F740329E07DE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ TapinRadio - бесплатный прекрасный приемник пото
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ UltraDefrag это мощная программа для дефрагмента
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ NG: Шестижаберная акула. Погружение в бездну 
 ```bash
 magnet:?xt=urn:btih:FDAB8317E7F317CE2853E0F537D56C2829C38E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ T-ara - Roly-Poly (Story version)(2011) HDTVRip [1080p]
 ```bash
 magnet:?xt=urn:btih:FB6CEA88C8B4CDA0B50B1295FB4D409A136C5E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - XXXL 26. Танцевальный-Продвинутый (2011) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:AFAB8082AE8D0ABB05A5DF24C62AD20811942715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:450134E9150342A964CF7C45E5E79204CD043D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Various Artists - Covering 20 Years Of Extremes (2CD) (2008) [FLAC|Lossless]<Bru
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Sothink Logo Maker - простой в использовании инструм
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ VA - 100 Minutes Of 2011 (Mixed And Compiled by Markus Schulz, Dabruck & Klein, 
 ```bash
 magnet:?xt=urn:btih:31C419EB38A45A4511FC38CB3E3007E25542B593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ T-ara - Bo Peep Bo Peep (2011) (Japance Version) HDTVRip
 ```bash
 magnet:?xt=urn:btih:1ED615416BBBE1476AB03D07A80EB4B8C0FABBC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ VA - Танцевальная Ночь На DFM (2011) [MP3|256 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:3A7AC81DE82C0CDDE6298A9438C659FFF2D51CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA18E91C712E6929E1CEC394F36B925311AA39E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E2977321AFFA1FBDA49BE0720B265301BE80B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ Sumatra PDF - это программа для просмотра файлов �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ Image Tools - маленькая, простая, но мощная програ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4E97564C564ACE8759EEB23459409A1A01AA6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ Brown Eyed Girls - Sixth Sense (2011) HDTVRip [1080p]
 ```bash
 magnet:?xt=urn:btih:CEDEA7C56C5CFE636C21A6EB50D7C83AEC4B5FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53C5B24D28E549521978C781E21839F28BC3E708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87701C82C8C0A83EDFE98566AF73938921D7B079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

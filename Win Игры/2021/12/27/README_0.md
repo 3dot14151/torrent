@@ -19,8 +19,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (0.43) License GOG
 ```bash
 magnet:?xt=urn:btih:53EDDA158A8AC3BB2431B7435B827CE7020F62F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nerved – игровой проект, представленный в стил
 ```bash
 magnet:?xt=urn:btih:22EA8B1F30CA6F12722E91B032597E14A657BC4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

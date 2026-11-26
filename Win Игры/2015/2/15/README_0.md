@@ -20,8 +20,7 @@ Cities XXL [Patch] (2015) (1.3) Official RELOADED
 ```bash
 magnet:?xt=urn:btih:0F0477960953B4235F5DC330C0E28AE0F2CC6AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Shining Gate Software (разработчик Decay) — это небольша
 ```bash
 magnet:?xt=urn:btih:34FF9D7259075DE730F60B40E2F1D0329DDF80DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4. Азбука Морзе (4:20)(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:8C17B31487749AA733E92EA929CC704A65804826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

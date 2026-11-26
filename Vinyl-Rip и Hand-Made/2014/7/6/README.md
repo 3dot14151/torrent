@@ -22,8 +22,7 @@ A4. Sister Disco (4:24)(   Читать дальше...   )Жанр: Hard RockП
 ```bash
 magnet:?xt=urn:btih:72ECC808B1421C20474771099EF76DE3A25E3751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

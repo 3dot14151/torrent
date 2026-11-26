@@ -19,8 +19,7 @@ Waves Lab | Руководство для пакета плагинов Waves 7 
 ```bash
 magnet:?xt=urn:btih:A467739772057270B25E7139AB1D0B75EA35D963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

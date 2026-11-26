@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:57763BBA4356A6E725384E8CAC3C8812267D94CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC3062261164638BB2CAD6FCC1CE7D7EBD42D8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Pepakura Designer 6.0.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:28B63AFA2EBDD738898256AD0F9393D8A7251C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABB6A47D3AC88B8B3FFBE9C03CF9348DE414A169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Sumerians (2020) [Multi] (1.0.7/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:889ABDC35F0E4AA3BBBCBB8540944F01766C3AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

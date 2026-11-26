@@ -18,8 +18,7 @@ L. A. Noire The Complete Edition [Ru/En] (Repack/v1.3.2613) 2011 | R.G. Меха
 ```bash
 magnet:?xt=urn:btih:D53F3857EC4235825373023EC9D39EA3744AB4BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

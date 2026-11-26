@@ -22,8 +22,7 @@ A3 Freddie "Fingers" Lee - Down On The Farm(   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:6EB95A32E2486E3A6FA6DFC163170B0380014B35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

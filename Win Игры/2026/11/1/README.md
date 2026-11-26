@@ -19,8 +19,7 @@ DIVE or DIE - Children of Rain (2026) [Ru/Multi] (1.0.5.893) License GOG
 ```bash
 magnet:?xt=urn:btih:3A58DA5191D659CB49C4079DB773970F1D73FA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Game Keeper: Somebody Messed Up My Shop! (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2CEE0054FB7E7290CD6EB1BAB21B097BF9814717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Labyrinthine - это кооперативный хоррор от первог�
 ```bash
 magnet:?xt=urn:btih:A859D0CB1DAF691FC396EF2684F8E318F4AF99C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Metro: Last Light Redux - это шутер от первого лица с эл
 ```bash
 magnet:?xt=urn:btih:ADE8795B19F49480FC05C2C6DE38147E367A3D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hunting Simulator 3 - симулятор охоты с открытым миро
 ```bash
 magnet:?xt=urn:btih:8A3BB11EDCCAEF4F180C62B41BFF08F6DA63DE49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Onimusha: Way of the Sword (2026) [Ru/Multi] (01.000.001/dlc) Repack FitGirl [Pr
 ```bash
 magnet:?xt=urn:btih:47D35CFF3997BD950411FC6E9ED7757D3DA3D297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Shift Happens - игра о двух милых существах из желе
 ```bash
 magnet:?xt=urn:btih:86882AC0DD128E0CE5C2C3E2F4A608D8569F4DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Onimusha: Way of the Sword (2026) [Ru/Multi] (01.000.001/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F971AE794ACB9E051F810593F55DE718BAD680D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Remothered: Red Nun's Legacy (2026) [Ru/Multi] (Build 26220520/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:15D41A21C41F7D6323D48123055C410F4BD5010D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

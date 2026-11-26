@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:AD5F63B9A69B0481E4DEB03C31A2A74D2D52D728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:480522B7AD1461C3003D80985CBE8CE22C0B727C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C81F013A6BC098406D5F0FC51800AA5E076047CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9150218A21F79C1B93169CC1A3D543B440A7E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE8FC65C54C17DFE968C44D18C602F197A9E54BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB7D791E2509C963C7FB9AEEB6969122E05797A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DB9107953998FF4D4B1E126087F60FF808958C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:355B2CA5FB426582AB4DA1BB0C448B38934F2A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Andy Narell - Fire In The Engine Room (2000) Heads Up [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:FA14C7D20E84CE7434090262C879AD45B98D31C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - На волне позитива. Сборник № 4 (2017) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:475E69F7500C9288292167844C77F728F99662D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:231FD01394AAD041527FC370F61AE2D12B36DFA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Положительный заряд от Хит FM выпуск № 2 (20
 ```bash
 magnet:?xt=urn:btih:1BD5C068D48EF4FBBCC06E7B9B1BBDCB711C8F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Kaira - Kaira (2017) [FLAC|Lossless|WEB-DL|tracks] <Cool Jazz>
 ```bash
 magnet:?xt=urn:btih:2D68C869AAA7ECD47318994B1BB919A27D342FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ PaintCode является отличным приложением для соз
 ```bash
 magnet:?xt=urn:btih:E53050C2FB7182F13FC12FFB3FAD321CF9C00316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ VA - Отдыхаем душой на Шансоне. Часть № 5 (2017) [M
 ```bash
 magnet:?xt=urn:btih:4897463BDFE66E88D1CEAA99718C364CDFBBB68E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:7DFD55BBE152B7A4333E08165C65AFA9A1C15462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ Lunch Ladies - Down on Sunset Strip (2017) [MP3|320 Kbps] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:716B333B690A15C5277D15052D6A4697B7E6A021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ Merge – это обязательная программа для разраб
 ```bash
 magnet:?xt=urn:btih:2379AAC539BAEA97CB28476DE1409370AF847579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ VA - Natural Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:C4EA4CDB614754D9776E5EB0FF837C0458CECEED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ VA - Вечеринка в стиле радио Шансон. Часть № 4 
 ```bash
 magnet:?xt=urn:btih:6A46894C9FEE56376766FB88159A134AF98C70B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ VA - Лучшая дискотека от Европы Плюс выпуск №
 ```bash
 magnet:?xt=urn:btih:251C2AE11438C0C09DE1DEEFA181D2639410C165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ KharmaGuess - Burn Your Own Church (2015) [MP3|320 Kbps] <Electronic, Metalcore,
 ```bash
 magnet:?xt=urn:btih:BA48F58B66E65EC4517ED5C3ED7C1C06892F94F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ Monster Energy NASCAR Cup Series 2017 / Этап 2 - Atlanta / Гонка / (201
 ```bash
 magnet:?xt=urn:btih:285CC2A4FBB89DD45AAAE8B96AF309E3A7D8B90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ VA - Ресторан Кураж для друзей. Выпуск № 7 (2017) 
 ```bash
 magnet:?xt=urn:btih:FF7CD767111F6AB4C91A16699B929489A9E6DEBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ VA - Любимые песни шансона (2017) [MP3|256 Kbps] <Шансо�
 ```bash
 magnet:?xt=urn:btih:976A47F146ABE948CD54B6ABBF66D6A47284DDCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E17B370591CECCD6991015F57BDE0EB4D68CC5B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

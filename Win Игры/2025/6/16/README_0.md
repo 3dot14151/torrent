@@ -19,8 +19,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.3.1/dlc) Scene Rune [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:8E7FE3986C37A7BF792AF2A89CE224A84669F368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Heading Out - A Narrative Road Movie Racing Game представляет соб
 ```bash
 magnet:?xt=urn:btih:42B10020269B57303B9FF0D9761E294320D6CFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Suzerain (2020) [En] (3.1.0.1.137/dlc) License GOG [Expanded Edition]
 ```bash
 magnet:?xt=urn:btih:0015FC3DAE9089EA98E2824CEF35AE8D88F19508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Caribbean Legend - пиратская РПГ с открытым миром по
 ```bash
 magnet:?xt=urn:btih:953EF09CDF5EA1AC73E46E14B0961FDDD215CB9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ An Amazing Wizard - это 2D-рогалик с быстрым темпом иг
 ```bash
 magnet:?xt=urn:btih:1ACAB41628DF07BEC7BA181D1A87897785FB5ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ BallisticNG – динамичный гоночный симулятор в се
 ```bash
 magnet:?xt=urn:btih:24E0E93CA678DFA4275779FD347A8798C210143C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3A592098B91E51F1EAEA0FCE702C601225AE275C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Crow Country (2024) [Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:67A3F887ACD03DF9C62EAB87699FCEB52077F3E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

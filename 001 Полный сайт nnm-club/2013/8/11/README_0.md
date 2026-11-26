@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1FC7D0D4A41DDA6EB3849A633FE2415555B883D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97D624246869D90B5FEB68F8A6D57E9F5157C496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16CB70172E257F41DE7FD644B4D0A3EE33616648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25E4D7A31F3BF0910D15670276869B05A11F4EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Sandelan - Silence (1999) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:34E1B877B279DF22F12B5D69572B2729D6486075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Picture Me Broken  - 1 Альбом + EP (2009-2010) [FLAC|Lossless]<Post-Hardco
 ```bash
 magnet:?xt=urn:btih:99C8C0707B91A57104F8F64D058FA72724310F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Marek Hemmann - Bittersweet (2013) [MP3|320 кб/с]<Tech House, Electronic>
 ```bash
 magnet:?xt=urn:btih:D8BB0907F22C78FC9375D7D21587D6984D62A0E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ Pristine - No Regret (2013) [MP3|320 кб/с]<Electric Blues Rock>
 ```bash
 magnet:?xt=urn:btih:58737C0F494FE8DB92087C1AFE51BE331802CE3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B274F50082EE9DD09C3806FCE8AA901ED6D7A67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Morpheo - In The Garden Of Peace (2008) [MP3|320 кб/с]<New age, Meditative, H
 ```bash
 magnet:?xt=urn:btih:64180125B174605A4538C3ECCF3EAE864D174362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ VA - Best Chillstep Collection (January 2012)  [MP3|320 кб/с]<Chillstep>
 ```bash
 magnet:?xt=urn:btih:5D13C96EE9162B791C8116044F0E9A741A4E00A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +337,7 @@ NirLauncher Package - это пакет из 173 небольших утилит
 ```bash
 magnet:?xt=urn:btih:6E5207A7668CACD4CC65D28F8344A3EB66778516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ VA - Клубная атмосфера Energy (2013) [MP3|256 кб/с]<Pop, Danc
 ```bash
 magnet:?xt=urn:btih:95FD155BA313466B08F2C873A22EA71D503B6096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ VA - Ibiza 2013 (The Best Selection) (2013) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:B29086732F8F4C0B912F504902945E8E370864EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:978797795CCA91933CF31057221B85E15539B9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D9A8FA51B38B573D5E44E8F84B35B21B0F22BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ VA - Хиты для хорошего настроения (2013) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:10BC799BF9FA6725556A15D498E55D644CE972ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:029310B39AC73B141347018598F54E5951ABCABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ VA - Июльская 100-КА Хитов 2 (2013) [MP3|256 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:0993796A5F2D3157DF374DEF2F7083EC0AE137F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ Bigasoft AVI Converter - поможет вам легко конвертиров
 ```bash
 magnet:?xt=urn:btih:C118B99DEA2A027A522BBD86001F542F8156BA98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ VA - Рекорды хит-парадов радио Шансон (2013) [MP3|25
 ```bash
 magnet:?xt=urn:btih:E92ED70A11746C332F48C19F6CC4576CA9F13248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:879CAFE9B74F0ED16288670232B5A1013DCDFC15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75C05E1797C42ED9A9F3B4F3E0BE49166189EEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ Chris de Burgh - Spanish Train And Other Storiess (1975) Reissue /1985, A&M Reco
 ```bash
 magnet:?xt=urn:btih:11BC359BA1C1C32F8FB34477A9B57B6EF709F6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D438CD29F53A42CF80F7D350C9AE22993D33C97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1299A0B9EEA9CCAD97540BEBDDD404AAD70E939A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

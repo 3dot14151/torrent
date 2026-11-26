@@ -19,8 +19,7 @@ Double Tap v1.8.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3F3537C3031812F00E0152ADC828A2465983C5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 ```bash
 magnet:?xt=urn:btih:09F9E5CF6EF2781E0AFB4175904554A6262306FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ tvQuickActions позволяет назначить до 5 действий н�
 ```bash
 magnet:?xt=urn:btih:761D19E446A79CD4E54675185842E9B4F6AB5878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Moovit - универсальное приложение для всех ваш�
 ```bash
 magnet:?xt=urn:btih:5D70A30BE923D1C635785753C4E98392CED7759B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

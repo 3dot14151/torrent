@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7BA954AECFD99D9467E68C31FEE3E2706508C13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blue October - Happy Birthday (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 ```bash
 magnet:?xt=urn:btih:733FA65AC83D38FE35E9862B2776617DDB35F83F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

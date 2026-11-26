@@ -27,8 +27,7 @@ Meadow Quartet - The Erstwhile Heroes (2013) [FLAC|Lossless|WEB-DL]<Ethnic Jazz>
 ```bash
 magnet:?xt=urn:btih:0450381471DF683CC2F695B7D74C096692F6824B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Mederic Collignon - A La Recherche Du Roi Frippe (2012) [FLAC|Lossless|WEB-DL]<F
 ```bash
 magnet:?xt=urn:btih:A28C47B2476D0368DBC5F4C28DDDB6AF67995146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Meadow - Blissful Ignorance (2011) [FLAC|Lossless|WEB-DL]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:D6AB0E9EBF4D20E4302C8BAD6AAAC4E047729497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Zandelle - Vengeance Rising (2006) [APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:31A2A0B5FF6E5D8AE6AC1B842D84EB53A486F7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Hess - Hagalaz (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D239646FEB83D77DECCDA135C5AB8FF0718D07BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ VA - Vocal Trance Volume 80 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:1645EED06737691EC01C904612296135B97A85FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4A7B72E2CACF497BB1E7DBA6C5DE3E2AC221E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ VA - Streams Of Lounge & Chillout (2014) [MP3|320 кб/с]<Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:32282FEEC24EBF8314AC0346B84C0E2B8BCE8A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8298B8A9F6EFB76CB8B0F53E15539745456F01DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ Jah Wobble & Evan Parker - Passage To Hades (2000) [FLAC|Lossless]<Jazz,  Avant-
 ```bash
 magnet:?xt=urn:btih:A3A4FDF303E7B2983D482A5ECF00BE8353723297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ Medeski Martin & Wood - Bubblehouse (1997) [FLAC|Lossless]<Ethnic Fusion, Post-P
 ```bash
 magnet:?xt=urn:btih:D8D4126637149D726E4FA301D0F7A60DF25B48A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +418,7 @@ World Saxophone Quartet - Requiem For Julius (2000) [FLAC|Lossless]<Jazz, Avant-
 ```bash
 magnet:?xt=urn:btih:477366FCCE6281EDF9730256648B4991B6E76442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E11DD0D2A832B0B3ECAE8C9E084EDF2012A4B142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ VA - Vocal Trance Temptation Volume 37 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:EED53EFD83FFC548049A7663D25F96CF5D83D2B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ Cripper - Hyëna (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:34631EC47A2B2A52B68220EC01502D56DC5A751F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ VA - Deep House Winter Deluxe (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:A0BCFF14441DAF0150F21AAC5A187BA399883351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +576,7 @@ VA - Drum & Bass, DubStep, Trap #11 (2014) [MP3|320 кб/с]<Drum & Bass, DubSte
 ```bash
 magnet:?xt=urn:btih:42138E4A46E00193E9FB79926E0C0B91AF9C3EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +610,7 @@ VA - Aurora of Ambient & Lounge (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:D7C59995AB4BAAE9F2C2CE495B58639CE3F1F0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A487A3174DDAF4A29D5E398EDF98D142667046EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +660,7 @@ FolderSizes - программа для проверки жестких диск
 ```bash
 magnet:?xt=urn:btih:8502F828261DFFB232F0FA544848A8A2CACDF87D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CF5B41414D735B7E0366D7D3C01BFC2D7FFEBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F6CD7FBD72A62E47D9E92C8CB4A52BD3582C43A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A776145EDB93B5C7F4AA584ACED46AE5E2EF59E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B469556DD7E4925D12E0D4543538BA36E5D5AD05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

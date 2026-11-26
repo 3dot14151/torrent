@@ -19,8 +19,7 @@ DisplayFusion - программа для управления обоями ра
 ```bash
 magnet:?xt=urn:btih:5AAD168018334ACFD6A975DDA5F19ACCB0CBD15C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CPUID HWMonitor - утилита предназначена для монито�
 ```bash
 magnet:?xt=urn:btih:DECF05011AC2B2ECBE9C27E713C6DF558096A6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ventoy - это инструмент с открытым исходным код
 ```bash
 magnet:?xt=urn:btih:671F76CA37DB9DEE037F18F3B652C2AB99E9597D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:B58F58A3249FAF865ACC1B7C6D1E2EBD2D91735D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Thunderbird ESR (Extended Support Release) — это версия почтов�
 ```bash
 magnet:?xt=urn:btih:A9631C9ECF581ADC4A8C85435BD3D79A86A9A79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Thunderbird — бесплатный почтовый клиент с откры
 ```bash
 magnet:?xt=urn:btih:21DE61014BE7D15DE29145E6C6E0552427653661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

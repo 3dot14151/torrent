@@ -19,8 +19,7 @@ Smart AudioBook Player Pro v11.6.6 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:68525028B3513D83989E5CF32FE28A0BECB9C837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smart AudioBook Player Pro v11.6.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C2F5D22CE7156BD6A53B5A27CD4C278AEBB8DAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ NokoPrint v5.26.2 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DD5D57D342AA1FC53E347BA6E9EA81EDFFB0BCAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:1FA38C00CFAB67BAF9D6DD705FBEE477A81EBBD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ KineMaster - Video Editor & Maker v8.0.14.36002.GP Mod by youarefinished [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:9986C6988018DF40712A7B8A0A07AD317E3401A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

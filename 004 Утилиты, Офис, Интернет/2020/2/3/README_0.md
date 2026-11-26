@@ -19,8 +19,7 @@ Lim Screenshot 1.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E33C4F6A5E05E5A7DD0A470A8EF9CC7E183C20C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

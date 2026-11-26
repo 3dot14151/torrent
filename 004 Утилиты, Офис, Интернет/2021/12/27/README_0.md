@@ -19,8 +19,7 @@ Microsoft Office 2016 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:4D5D294CE9C950282E9F8FC8481C7175B4FBBE23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

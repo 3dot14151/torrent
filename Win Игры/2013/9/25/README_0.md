@@ -19,8 +19,7 @@ Pac-Man Championship Edition DX+ является расширенной вер�
 ```bash
 magnet:?xt=urn:btih:66C633F748910AE2760C115052E0216ED8F674FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TimeLines: Assault On America - это стратегия в реальном в
 ```bash
 magnet:?xt=urn:btih:65262B8D306EA1E1F4099B13688E0A5E26C3AEDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

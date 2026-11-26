@@ -28,8 +28,7 @@ Mogwai - Hardcore Will Never Die, But You Will (2011) [MP3|320 kbps]<Post-Rock>
 ```bash
 magnet:?xt=urn:btih:EF994E481E717634EA86E212E2B9B16FEF8B0665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Stratovarius - Elysium (2011) [APE|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Swedish Erotica - 3 альбома (1989-2005) [APE|Lossless]<Hard Rock, Glam Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Deep Purple - Greatest Hits  2CD (2007) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:7FABBF93B3D97CE7E8669267F8029FA158F24438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

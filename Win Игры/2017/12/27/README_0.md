@@ -19,8 +19,7 @@ Harrowed Halls 2: Hells Thistle / Обитель страданий 2: Адск�
 ```bash
 magnet:?xt=urn:btih:D6BD74B461E426719C3517F55A951B631547DA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ American Truck Simulator - это симулятор вождения амери
 ```bash
 magnet:?xt=urn:btih:31CDD222CD6A3BA0367E2C29790453AA9892B6FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dungetris - классический пошаговый rogue-like, с нест�
 ```bash
 magnet:?xt=urn:btih:841BF16D7544ABED17B68EBECEEEA382A0930340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:33117C2ADCEBC42FB487D3846D902024D4FD9742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

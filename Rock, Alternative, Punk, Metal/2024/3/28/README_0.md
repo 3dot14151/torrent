@@ -22,8 +22,7 @@ Deep Purple - Montreux '71 (Live At The Casino, Montreux / 1971) (2024) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:F015BC75B312606CF895C56C15E412BC9DCBB0D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Skiltron - The Highland Way (2010) [FLAC|Lossless|image + .cue] <Celtic Folk, Po
 ```bash
 magnet:?xt=urn:btih:02EF73103D13849202AE7B3ED362E8D36187FD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Smorrah - Welcome to Your Nightmare (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 ```bash
 magnet:?xt=urn:btih:C908643DE0C7BBB097CF875ECD3BCC61F5786CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Skiltron - Bruadarach (2023) [FLAC|Lossless|image + .cue] <Celtic Folk, Power Me
 ```bash
 magnet:?xt=urn:btih:62FD6782F2C800B396E604F3F8F90067D3206BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ne Obliviscaris - Exul (Deluxe) (2023) 2024, Season of Mist [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:BFDA2E5E74CB4CB0C65D55A38887D18C42DE0782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Fatal Fire - Arson (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 ```bash
 magnet:?xt=urn:btih:C78F278F6E4CCEB2BCDC35AD4056ED6BB533A0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Eisenwut - Die Herrschaft der Leere (2017) [FLAC|Lossless|WEB-DL|tracks] <Indust
 ```bash
 magnet:?xt=urn:btih:25052429A0C51EB7FFA270645905881F945013E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Disc1 - Flash:
 ```bash
 magnet:?xt=urn:btih:6F30534F2D4CC635E13E418D571E3B5012E8696E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Deep Purple - Machine Head (Remix 2024, Remaster 2024) (1972) Remix, Remaster, 2
 ```bash
 magnet:?xt=urn:btih:20DBF197FF82FB55288BC899BB5BB9F23F156C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

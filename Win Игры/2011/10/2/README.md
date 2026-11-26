@@ -19,8 +19,7 @@ Simon the Sorcerer 4: Chaos Happens / Simon the Sorcerer: Заколдованн
 ```bash
 magnet:?xt=urn:btih:2E8373A8A7FC7C09725467A6F06606D795371FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2A4395D68EBFF32327FAB0973A1B432EC4B9AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

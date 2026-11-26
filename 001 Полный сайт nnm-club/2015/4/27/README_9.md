@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:DF111189C74E2BD6ADA1BCF9B338CD28B756081D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDA71E007E80F65A8234ECEF4A1A5CE731A61E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ STDU Viewer – программа для просмотра DjVu, PDF и TIFF �
 ```bash
 magnet:?xt=urn:btih:DF743BF02E117FD389AA93C4A59D46D0428B36B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 ```bash
 magnet:?xt=urn:btih:01EEBD7AB322C7837E960BC375314A0FD37C963A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Erotic Desires Volume 001-400 / VA - Erotic Desires 2012.1-10 - 2013.1-15  
 ```bash
 magnet:?xt=urn:btih:0EA799DCF7F71CB9090BECF15E08B9B8D21E5194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ DmC: Devil May Cry (2013) [En/Ru] (1.0.u3/4dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:08C32A2FED7AFF1F4350A13904C0E01ABC8BD463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

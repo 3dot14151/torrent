@@ -19,8 +19,7 @@ Outpost: Infinity Siege - это увлекательный научно-фан�
 ```bash
 magnet:?xt=urn:btih:CF4EF9287F6EEEF61815589F08B1DAFF8B957F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ```bash
 magnet:?xt=urn:btih:0BBAFA29586E6C589202197475488CC62729731F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Excavation of Hob's Barrow (2022) [En] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:B017E40DD10C6F0DEAF449BD64F41DA065C4CE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B76310912F7E57A94BF4FD84CB31BF6E71D81DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack Other s [AD]
 ```bash
 magnet:?xt=urn:btih:F64FF790207A15456C2C24645FC967F0FEBB2B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Barn Finders – это симулятор поиска "сокровищ" в г
 ```bash
 magnet:?xt=urn:btih:6E5EDA9501FD758E9506EAFB4E7124B81F7AB850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mystical Riddles 4: Ghostly Park (2024) [Multi] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:CEB36BDE129345DCAD4CC43F0067ABA8252CCBEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

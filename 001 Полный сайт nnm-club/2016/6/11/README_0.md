@@ -21,8 +21,7 @@ Big Mike Griffin - Sittin' Here With Nothing (1995) [FLAC|Lossless|tracks] <Blue
 ```bash
 magnet:?xt=urn:btih:4F7A8757CDA2203ACF15B199279BCE5062FD3AF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Real Retro House Party (2016) [MP3|320 кб/с] <Jumpstyle, Techno, Hard Tr
 ```bash
 magnet:?xt=urn:btih:CC7DC0C0CD5A4C5025EAB588AFB0627B3DF9A4B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Kees Dusink - Forever Blue (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric
 ```bash
 magnet:?xt=urn:btih:F932F88958245CEBD036680132D013979555819A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Ed Deane - Wireless Set (2016) [MP3|320 кб/с] <Electric Blues>
 ```bash
 magnet:?xt=urn:btih:1C38639FE5D0E9F8616A963B43F786C682C50482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Albany Down - The Outer Reach (2016) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:2360BCF51CE453995E7F81A9490FD7F8FCA05918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9696F563A79C9F203BEBE22D6FE0953AC2C84895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:306927CBAC85D3E6D6E98929CD40C9B801E5E5B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Adrian Galysh - Into The Blue (2016) [FLAC|Lossless|image + .cue] <Blues-rock, I
 ```bash
 magnet:?xt=urn:btih:4076D591770CDFFB1D66BB5BA8CE3A3616A5EA15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Femme Schmidt - Raw (2016) [FLAC|Lossless|tracks] <Pop, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:BA907CA9E3B5DEE51F66887C03A8AFF54988F85D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E639D47EA29DE81AD478091BAD63DB8DD5F3557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Pussy Lounge (2016) [MP3|320 кб/с] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:98C70CC95FAD581F9279D633DDF013B5A93816F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Ibiza Calling: Deluxe Cafe Bar and Sexy Lounge Sunset Summer Music (2016) [
 ```bash
 magnet:?xt=urn:btih:070172B23E009D54986B08ED4B2897CEB74DE86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - Chill Odyssey (Day 1) (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downt
 ```bash
 magnet:?xt=urn:btih:C7B21D4B9A06D5700D9ABDC5DF8B6DEE8DB0B942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94AED8AF8733FDAE3E5B6485AA5D4843511F8947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:195933A4691607B9B7502E6016A4B0CCF5188825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Johnny Winter with Dr. John - Live in Sweden 1987 (2016) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:917F81AEA3F449F94803366DCDABA5C03CDBFB19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80445A9345674AC9B634B83444FE5F474DF68153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E952AC211E3D388DB557BCAD669E3AC4184B84FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ Carbon Copy Cloner - утилита для клонирования дисков
 ```bash
 magnet:?xt=urn:btih:BC3B605E37286EBC9BFFE69CF1918872FE6815CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ VA - Pacific Magic Sound Music For Relaxation (2016) [MP3|320 кб/с] <Downtemp
 ```bash
 magnet:?xt=urn:btih:754779D8B9C25D88AC88E967F2F6FC39F4583455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ VA - Billboard 1986 - 1989 vol.5 (unknown year) Unofficial Release [APE|Lossless
 ```bash
 magnet:?xt=urn:btih:C52FF7511BDC41CF6BC945C38107DCD5EE2DA2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Thundercats - The Covenant (2016) [MP3|320 кб/с]<Progressive Deathcore>
 ```bash
 magnet:?xt=urn:btih:932ABE8FF17FD346986288BA831767C5735F2696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Band Of Horses - Why Are You OK (2016) [FLAC|Lossless|image + .cue] <Alternative
 ```bash
 magnet:?xt=urn:btih:86B5275B158EB16ED686FE5DB1BBA7EF87329E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03616313834156DD8DDBDED581E7294EF9828EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1551D6210668B6B497F83FA23E6BF1D397FDD345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E95DF680B3158C170075E56B886A21E4FC27232C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

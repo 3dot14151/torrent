@@ -22,8 +22,7 @@ Bubu - El Eco del Sol (2018) (2018) [FLAC|Lossless|image + .cue] <Progressive ro
 ```bash
 magnet:?xt=urn:btih:4A86CFD181E78FDEAF7E32222F7A12ED110D96A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Deform - Мрачное Видение (2018) Maxi-Single [MP3|320 Kbps] <Altern
 ```bash
 magnet:?xt=urn:btih:F25B63A82AB09F7F4D13503AB4E0844B9AAFFC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FA8C5576859BF2D5B9DBEC33619CBF374869BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Billy Idol - Vital Idol: Revitalized (2018) Remixes [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:363D6A875F89607B122FC4A6AD4C6732D027F772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

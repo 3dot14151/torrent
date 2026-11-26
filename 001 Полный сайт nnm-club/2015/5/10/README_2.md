@@ -18,8 +18,7 @@ Bike Sniper – увлекательная снайперская игра, в �
 ```bash
 magnet:?xt=urn:btih:5DD35FE0A4F85C2ABB3ABB295F0727F381C8848F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ EPS:
 ```bash
 magnet:?xt=urn:btih:6C53A9C5A8D1E4303BA1565163F30E48E4B431AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Marilyn Manson - Vandalism Aesthetics (2001) [FLAC|Lossless]<Alternative Rock, H
 ```bash
 magnet:?xt=urn:btih:A11BD08E8F3BEDD5CE2A1323DAAC4D4307631AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Лучшие Треки Клубных Танцполов Vol.2 (2015) [MP3
 ```bash
 magnet:?xt=urn:btih:CF65760DB23F735C94836BDE28FC462AACDDE33B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Aiseesoft DVD Creator — программа для создания DVD дис�
 ```bash
 magnet:?xt=urn:btih:5878A0A974EF16F1C9B1EAC3421C8804953B3CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Slimjet 4.0.2.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:33F777C79B1C8FF75A0094B9C1655AB6B72C0B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Status Quo - Aquostic! Live At The Roundhouse (2014) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:3CBBEA872F829397C3FC44F06A73C8325D982974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ IconoMaker - это программа, которая позволяет зан
 ```bash
 magnet:?xt=urn:btih:AA4B9123505351F20F94A48B544C5B228C900921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Koan - Legends: Exhale & Inhale (2010) [FLAC|Lossless|WEB-DL|24/44.1] <Ethno-Lou
 ```bash
 magnet:?xt=urn:btih:3E5226B2A6CC3CA3DA941E933EC702C159DD3666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69B5552793E895E4C79D39BA34E93D7CE9E65A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B44A334350A16387A59E7C69859E26D41754FE13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Virtual DJ - профессиональная версия программы д
 ```bash
 magnet:?xt=urn:btih:B55C1A8BAF6843095CB9DE912669DE4CC1ABF858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.20 (2015) [
 ```bash
 magnet:?xt=urn:btih:282C5582EB7AEF80ECCE76E3E44C767C281B7F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10061D2AF54E74B9D998EB7BFB1BC583F3E830D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B57C71FA4F28A4BE4CD0DB15846E0A14BF009380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E8B1BFB79B7215DDB4B9B8F3986CFD81242030A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ Dio - Holy Diver Live (2006) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:16DD867B70670806FCDFE26765B13D438C01246B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D376A52F32A144009BA7E3A74889FA91164D8A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EE88FA75006E188C6F336684863B2554E7671EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:290B4B7B0FBCA163B9BF66246E3E5D3D5D5AE1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ Tipard Total Media Converter — лучший универсальный DVD-г�
 ```bash
 magnet:?xt=urn:btih:6B771A2883F92ACCB8F9EEE1D0E13358B71CCD38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ F1 2015. Этап 5, Автодром Каталунья-Барселона (И�
 ```bash
 magnet:?xt=urn:btih:42404CBB536D1B380D8A4CE2AC1783B58E183B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:774FD2A13F4EF3EF2CEAF8BBBEE008365134E346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82C56EBA66CBF5E8089074C9A01341AF950E59CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1970EDA0C51F4879BE93D89432E5A064F5DD3B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

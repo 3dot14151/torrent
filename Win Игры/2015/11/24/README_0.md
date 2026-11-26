@@ -19,8 +19,7 @@ Dark Asylum: Mystery Adventure (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:3E20C499B0A726CF5E0E0B7702B7D3BF80DAFF6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Link me / Собери меня (2015) [Ru] Repack Armeniac
 ```bash
 magnet:?xt=urn:btih:7687D02C1224072FAE29A5AB33F2E6EEC62A17AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

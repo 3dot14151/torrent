@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:0383F7FD58CCC770D1CC546B2FED50E7745ABD84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crystal Eyes - In Silence They March (2000) [FLAC|Lossless|image + .cue] <Power 
 ```bash
 magnet:?xt=urn:btih:6C6E2E69A6291E975A8175BF32CF74BDBE1788CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:BA45165C41755BD578E082B3B3CA43883375158B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Aftermath - Eyes Of Tomorrow (1994) [FLAC|Lossless|image + .cue] <Technical Prog
 ```bash
 magnet:?xt=urn:btih:D8D5E827D0ED2DC1C63BD47EA480C694E8234CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ As I Lay Dying - Shaped by Fire (2019) [FLAC|Lossless|tracks + .cue] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:AFD961D81B916E9F476B5BE18ABA461D098119B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Lita Ford - Dangerous Curves (1991) Japanese Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:57D2FAFF325CBA741119FE761788B545883F0808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Shanghai - Shanghai (1982) LP [MP3|320 Kbps] <Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:05D72C6C2C6AB8310061DFC24D811965F7024374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

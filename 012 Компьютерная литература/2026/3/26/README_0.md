@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F8CCBF83358B6BDB7FDCD3FEF4E82D05E74A6C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AA1D429917BC7FB8987D4EC5C4BC8E17B508AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Intended for undergraduate and graduate students in computer science and mathema
 ```bash
 magnet:?xt=urn:btih:9D19EAF09CF55E45BF3A56ABFE2E8D787244FAC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:C7D0017FC13C45EF62497A1A852BE6655FB916A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ STAR WARS: Battlefront Classic Collection возвращает любимые о
 ```bash
 magnet:?xt=urn:btih:DBED1D75BB54DC62DA16740CA81B552FC4206F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Strange Horticulture (2022) [Ru/Multi] (1.1.26) License GOG
 ```bash
 magnet:?xt=urn:btih:A4EFF5E0E6B032B63528830D25561CD93F41660F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Star Wars: Dark Forces Remaster был воплощен в жизнь коман
 ```bash
 magnet:?xt=urn:btih:6E88F434781506699B739EE93CE27D41D251AC90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack DjDI [Digital Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:ED86AC60DE2A1170DFCD06ECEC5B50BDEE9D6C6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9EE3FEE2F89DEE0D75C67C80383F9E21A29CD88D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ CD 2: Trap Master - инновационный геймплей, в которо
 ```bash
 magnet:?xt=urn:btih:BC65165111B791199C564E1CC9F8FF17B9333E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Gridrunner. Revenge of the Mutant Camels. Tempest 2000. Llamatron. В брита
 ```bash
 magnet:?xt=urn:btih:039A3CDF410462B4BE6B5B2C98D165295D99128C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4407ADD60C78095157E0AAD90DDFE79ED81208A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.13.03/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:5AF2904735BFC03A989AA28DB8DC41DB75E79768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Chef Life: A Restaurant Simulator - это увлекательный и реа�
 ```bash
 magnet:?xt=urn:btih:D5935997537691C2EAF71EDAC96D7405D30F57D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Magical Mixture Mill - это увлекательный симулятор,
 ```bash
 magnet:?xt=urn:btih:A854CFFA11D4B66B87F668B5B7810BD2EB8345EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Out of the Park Baseball 25 празднует четверть века сов�
 ```bash
 magnet:?xt=urn:btih:17665912CCA5CF26E8953E2A658F6ED52935A65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ PJ Masks Power Heroes: Mighty Alliance призывает вас объедин�
 ```bash
 magnet:?xt=urn:btih:D2A3FEC8F75BE678636403446CA0D8376AB4A060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Registry Trash Keys Finder - особый инструмент для очист
 ```bash
 magnet:?xt=urn:btih:AD9FA1FFE08D939D5B4E1E7FB3CA6B79F45B133A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KeePassX — свободная программа для хранения па�
 ```bash
 magnet:?xt=urn:btih:ED1D395D58B8C082D7869E4F388E4E47D975087C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Technitium MAC Address Changer 6.0.7 [En]
 ```bash
 magnet:?xt=urn:btih:0D411087C3E95F1C529F4B8835812574AFF6224E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Registry Trash Keys Finder - особый инструмент для очист
 ```bash
 magnet:?xt=urn:btih:6215988975332FCBA26435B5603714A965C5E833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

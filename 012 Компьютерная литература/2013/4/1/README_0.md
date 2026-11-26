@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:A9F4C5138A037C57F8CE53AF1938C6E5DEA09D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Efilm это приложение используется для просмот
 ```bash
 magnet:?xt=urn:btih:10DC7BC53F29A73B8AEC52EE0214149C9CA73ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

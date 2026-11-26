@@ -19,8 +19,7 @@ B-17 Flying Fortress : The Mighty 8th Redux (2024) [En] (1.0.15) License GOG [Ea
 ```bash
 magnet:?xt=urn:btih:133EF985F12DB2237CC34411785F98EB211D5097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Thing: Remastered (2024) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:BFC4C7E74F36007882AA738CA8EB14409DBE724A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lords of the Fallen приглашает игроков в мрачный мир
 ```bash
 magnet:?xt=urn:btih:A3AB41DC374977A08FE3CA60F2935EADA7F82BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Disney Epic Mickey: Rebrushed оживляет магию мира Disney в к�
 ```bash
 magnet:?xt=urn:btih:4EA5E6EF2B855418528C62418A50AD0FB0996A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ World War Z: Aftermath - кроссплатформенный зомби-шут�
 ```bash
 magnet:?xt=urn:btih:45794A2926F9597AEB6E2525A3DF09F3932E5253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 ```bash
 magnet:?xt=urn:btih:597ECBFB18CEF9770038EE203076F5EE90A75660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.09/dlc) Repack Wanterlude [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4BB3B463847349963B6FB3726E68A651333527E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.0.0/dlc) Scene Rune [P
 ```bash
 magnet:?xt=urn:btih:3DABF5E74A8D398EFF54C4042B055DAD80CC4E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Alder's Blood - это мрачная и темная тактическая с�
 ```bash
 magnet:?xt=urn:btih:ADBAD9B72716254BD68AC7D69BFD73402FB0D982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ World War Z - это напряженный командный шутер на �
 ```bash
 magnet:?xt=urn:btih:15B836C6D81CF16DA93626CE66AF35F32ADE941A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Fatal Midnight (2024) [Ru/Multi] (Build 16185793) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AC8B47C801776D948B969CB610FC6E77EBE021FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Ticket to Ride (2023) [Multi] (1.6.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6F06A885E3E44FB8A37075C12F6D07AB68571E3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Alder's Blood: Prologue (2020) [En] (1.0.20a) License GOG
 ```bash
 magnet:?xt=urn:btih:A5D1223428E6DA579E82498677A556634E477E0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

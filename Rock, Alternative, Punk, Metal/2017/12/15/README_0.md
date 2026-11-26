@@ -22,8 +22,7 @@ VA - С Новым годом, землячки! (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A0E2F8404769AF3071260A038DDC62057A5FB2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Infornal FuckЪ - Край родной (2017) [MP3|320 Kbps] <Parody Metal>
 ```bash
 magnet:?xt=urn:btih:8DB4BEAE2B8DA4DE6522A3F871A90101000C7974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F945655F287F158E4AAAC5B874D6F66D44CF2F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F288D3316DFAFFFFD7C2AE3E0BE45301BA333CC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

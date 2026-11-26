@@ -18,8 +18,7 @@ Adobe Master Collection For Android - Сборник всех программ �
 ```bash
 magnet:?xt=urn:btih:93461482F0A148F825434E0C9CFD646A68AD1047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Skillbox, Дмитрий Крутов и др. | Продюсер онлайн-�
 ```bash
 magnet:?xt=urn:btih:96D0B4A9FEF8CAE2F4B8AD366EC4171D4DA381B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A06CD4089A335FF06329890E74F846EE562E2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:242EA8D1D9FB3EE54AEAD5C95D18E3EDB8032B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9407DFECACAC99A385246F8902B2856109BC0945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57A17576EBAC56065DDF9EEDA1FB481B7B803A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ ePSXe для Android - это эмулятор консоли Sony PlayStation (
 ```bash
 magnet:?xt=urn:btih:0160798B1DDD48431EAA17CE8059CD899844A7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F47B609B94ADAEC81CF2A9F94186E85164A3C48C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ PPSSPP Gold - PSP emulator v1.10.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:769AFCFD99C8025B8011448C749E189943432445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ XYZ School, Сергей Мингулин | Руки всему голова (20
 ```bash
 magnet:?xt=urn:btih:04CB59301F573746D5FFDE339B271EC10B3E3E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ NBA 2K21 - новая часть всемирно известной серии 
 ```bash
 magnet:?xt=urn:btih:D917CC00823E4AD82B2DCFD3D09E265F855362D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ ASTRONEER (2019) [Ru/En] (1.18.67.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F7FD457DBB82217E79A59E9D5FB4C51AAEF06C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Microsoft Windows 10.0.19042.746 Version 20H2 (Updated January 2021) - Ориг�
 ```bash
 magnet:?xt=urn:btih:967D6EB1B946C65D1D20A91FC6B2FE2124598DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B78A1F3CD22014768A5F7F7A303D2CEBD6B43B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F861DE0E5BD6E8CFC3E63F6F81D9AABD85FD3A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ AllWinUSB Constructor by SmokieBlahBlah 2021.01.22 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:022697A0E16CAD4076A06DFAF6DB50F2327613A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A55FC2E47383D6832C6820C823C1DD765162AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ Author 6.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:6A8D123203DFCA9679FEF91AF781D57E96817396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ Display Maid позволяет сохранять и восстанавлива
 ```bash
 magnet:?xt=urn:btih:B791ABABD68852CF31980D46DF991145ACED157B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ ImageRanger - программа позволит найти все нужные
 ```bash
 magnet:?xt=urn:btih:E185D6FAEED98BA52EA3B62A4122EA71C8009119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ PowerPhotos - позволяет разбить ваши изображения 
 ```bash
 magnet:?xt=urn:btih:0C03C3FF5ABAD852E4BB356F477236D04749F1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +582,7 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:89B3993AA2F73E8FBB2CACF96EE645485BE3CC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:36C1F82BB28361F366BACA043755AA46B9DB35B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ Henry Busse - The Uncollected Henry Busse and His Orchestra (1935) 2011, Hindsig
 ```bash
 magnet:?xt=urn:btih:9061AB9E54A2814348970920E230EF1E26371545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

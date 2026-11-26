@@ -28,8 +28,7 @@ VA - Club Nights Trance Vol 4 (2014) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:8A51599FC810EB8A494EFE8F36991C79A86BA710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Slowfrog - Quaquaversum (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:EBC9BA27F3A5B27CD1F7450C92643D62F0424F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ From Hell - Ascent From Hell (2014) [FLAC|Lossless]<Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5676FC3F85E90D031BA11C1FD0D9EF97FA3E4065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Massimo Salvagnini Quartet - Felix (2004) [FLAC|Lossless]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:14BB247FEF6E2EC1BFC31007008EE71F4C8BAF64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Swansona - Flat Bock (2014) EP  [MP3|320 кб/с]<Post Metal, Post Rock, Instrum
 ```bash
 magnet:?xt=urn:btih:9D315A3FAAA442EE205D76A866620C914D716573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Paragliders - Share Of Bitterness (Remastered) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5E570992A7BA0DBD718143E42C71B190FD5F0242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ VA - Modern Vibez Vol.1 (2014) [MP3|320 кб/с]<Dance, Club, House, Electro>
 ```bash
 magnet:?xt=urn:btih:1B271AD309AC03C31B8CBB4BB070A1E8EB4339B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ AleX Tune - Ultimate Style (2014) [MP3|320 кб/с]<Hardcore, Happy Hardcore, Ra
 ```bash
 magnet:?xt=urn:btih:E416AD19EE9B415A2400B94BF77E73A9207369C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Cato - The Unknown (2014) [MP3|320 кб/с]<Electronic, Deep, Dubstep>
 ```bash
 magnet:?xt=urn:btih:6AEB11FC4EDC776F378CB2230B5A602AD232D4E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Sawmail - Autumn (2014) [MP3|320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:C4A7F3262CD4C773A5075AE2D1EB4D938E8F93FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B6545A179DE78F64248D72D0A4182F2174D2F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F108FEC9E0F3B9AFA176E494CAEFEEB538AA848B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ Material - Seven Souls (1997) [FLAC|Lossless]<Free Funk, Ethno-Fusion, Dub>
 ```bash
 magnet:?xt=urn:btih:32109DF6DC24728655A41F681E64A7693C9B5C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AB6CA5D325BFD74822BF37B2AA3F32A9BD05412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63B60712C6A0B721AA6C4A4D6191724285ADD413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ Bill Crow Quartet - From Birdland To Broadway (1996) [FLAC|Lossless]<Jazz, Mains
 ```bash
 magnet:?xt=urn:btih:F1B25EA9F01FF429097CAD6082FCBAF3D74B8993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +516,7 @@ Mason Embry Trio - Swingin' on a Star (2014) [FLAC|Lossless]<Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:7A960F1CE42E2A5C2131F9971BCD5C7F79FC9B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4B83FAE819C4691FC0C93A1EB4D334B3FDF2BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36C32E84EBE59FA080C06BCC8F9FD4982B201777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ VA - Home Sweet Home Chillout and Lounge (2014) [MP3|320 кб/с]<Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:CD5078FAF8AB33AF362D25D0C32FD52D8CA11E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BA84482B5D77B87DCE09144C413AC321C49EC1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDFF91EE4966AFC9B01A9EB7A5EA9C34A8CAF13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8024FB5DBD3E10126D765FB943E8D6C02ABED9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9368930AC7ACC03F2E5740C47FD8C10669E88C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75EDA7227F54F65C4E777F492A854FA3793DD583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ Ritmo - Package (2014) [MP3|320 кб/с]< Progressive Psytrance>
 ```bash
 magnet:?xt=urn:btih:76AC87A22E643BE90A6FA1F843B74AD6282B745C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

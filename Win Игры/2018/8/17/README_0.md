@@ -19,8 +19,7 @@ Jardinains 2! — это экшен с примесью платформера �
 ```bash
 magnet:?xt=urn:btih:16917764DC4C259FEC86B8C9927D6966161FC0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ State of Mind (2018) [Ru/Multi] (1.1.24167.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3859AFB90CC67CB5C7D2E00DBA11DFF080078456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Bureau: XCOM Declassified (2013) [Ru/Multi] (1.0.0.2177831/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:1AEC39B51433B01362520D535C39E4F8783DBCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Super Cloudbuilt (2017) [Ru/Multi] (1.0/upd4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:BE26367416C0354CEADC25CF5951CA65438FF7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

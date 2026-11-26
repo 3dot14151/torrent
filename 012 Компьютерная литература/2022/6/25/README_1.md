@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5A30001FA9A4BEF48521822D1E4890AAB4685CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spring Boot, который скачивают более 75 миллионов 
 ```bash
 magnet:?xt=urn:btih:B6C5C1BC582C9A943565E71DA80D4DD1C69C1D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BB02F460E4804C383A62BEC4DDD046F63853B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

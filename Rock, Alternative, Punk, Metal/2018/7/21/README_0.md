@@ -22,8 +22,7 @@ LayerZ - Memory Towers (2013) [FLAC|Lossless|tracks + .cue] <Progressive Rock, E
 ```bash
 magnet:?xt=urn:btih:97F3BB927E4D1C1C8D89E8211C6CD66049692292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ B1 - When Thousand Moon Have Circled(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:5DAEC1A599786F0C45FBF7F2C9F154790CDC5E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ B - HamartiaЖанр: Black MetalПродолжительность: 00:11:48
 ```bash
 magnet:?xt=urn:btih:B1C9D194A745C8DEC837854B8951547E5E852457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ A4 - (..............)(   Читать дальше...   )Жанр: Black MetalП
 ```bash
 magnet:?xt=urn:btih:49F9D088B770907E2FB7B1472FD02776E87CE433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

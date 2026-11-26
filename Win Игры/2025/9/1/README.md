@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D908ADE4E2562C5FA22F787E0D5E5B78A7D60156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DISORDER (2025) [Ru/Multi] (Build 19621037) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6D9F300EEF2F16B1BC8A9EE958E7C93FC6FE2520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dustwind: Resistance - это тактическая одиночная игра
 ```bash
 magnet:?xt=urn:btih:32D606F15472EE915B17A0B14C0406B3A58FE278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Let'sРlay [D
 ```bash
 magnet:?xt=urn:btih:DD67FE848764A8543D2789F0E41D7BF1439BCFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mechabellum - это увлекательная тактическая воен�
 ```bash
 magnet:?xt=urn:btih:C81846511D61020F98096C844B3FD8FD4D64C0F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cat Quest III (2024) [Ru/Multi] (1.4.7) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:65E0A28E12788B13875272AE7D8E1E6198C93EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ INCISION (2022) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:65AB1A11AF971A61BFEE2625950E53689D653A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Risk of Rain Returns - это культовый roguelike-экшен, кото�
 ```bash
 magnet:?xt=urn:btih:25303F7D37A5E075879CD6D6BD31CB70D22509EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:01D951086D1D1483B51FDFC5811FB2D59C60833D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Project NT - Имена и Тени (2015) [FLAC|image + .cue]<Experimental, Psy
 ```bash
 magnet:?xt=urn:btih:D0204B91C85A00B2298F86E5612E226FCA991449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Excerpt From Piano Concert No. 1 In B-Flat Monor, Op. 23: First Movement--And
 ```bash
 magnet:?xt=urn:btih:D97A298D51A98603CDDA17E089184B54F615A1C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

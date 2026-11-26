@@ -19,8 +19,7 @@ Dungeon Hack [En] (RePack) 1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:AF4F4A24AC4F344BD24E15D2CCF648090676D3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lure of the Temptress [En] (RePack) 1992 | Pilotus
 ```bash
 magnet:?xt=urn:btih:D58AF6A9226F28D5BA754A024DBDD73A967B5E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

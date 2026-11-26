@@ -19,8 +19,7 @@ The Initiate – мистическая головоломка с элемент
 ```bash
 magnet:?xt=urn:btih:90337A9EA64C29DE6E31E2D653BDC62A327DE86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Prevent The Fall - это ролевая игра в которой вам пр�
 ```bash
 magnet:?xt=urn:btih:241296D4AA280789ACDFBC195A1C19DA0C4D3775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tacoma (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1792E8995AE1C2ACEED5B5E67A911F673E7CCAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:992342CC7A3FCFF11C0985188FDA5D2C8F6111FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Slime Rancher – это история Беатрис Лебо, молодой 
 ```bash
 magnet:?xt=urn:btih:DFD4CE5DFE785FAAFA97D77665814CB08B38B55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ AlterPDF Pro - программа может стать лёгким прогр�
 ```bash
 magnet:?xt=urn:btih:37BF7E9D0BF249FBE7EB6827203AC42EB241A6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CPUBalance – небольшая, но шустрая утилита позво
 ```bash
 magnet:?xt=urn:btih:D77CFB21FB4C0BF49C578838713C10A2662BA626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

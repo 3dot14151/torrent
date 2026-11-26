@@ -18,8 +18,7 @@ Adobe Premiere Pro CC 2020 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:26EF9A32BAF3BA2FD155D970B682545C9BB7A7AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1272AEE916B2BEEB0BAD266333870A3AF5AB7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A190C895E0CA955E1DC0654D91ECC37DC020EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Wink VOD Mobile: мобильный мод популярного приложе
 ```bash
 magnet:?xt=urn:btih:389EDDB0C05389F09C282B59A560FC2A45D1B575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Mortal Kombat 11 – продолжение культовой серии фай
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Adobe Photoshop 2021 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:8163E728884C0629DE18129E4311EF213EA9CF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

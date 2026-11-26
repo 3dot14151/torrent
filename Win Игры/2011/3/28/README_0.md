@@ -19,8 +19,7 @@ The Club [Ru/En] (Р)  2008
 ```bash
 magnet:?xt=urn:btih:A1B1AF8C921456A9393C26E84C3D0E3C6EBF7A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

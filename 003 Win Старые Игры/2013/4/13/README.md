@@ -20,8 +20,7 @@ Laura Bow Anthology [En] (RePack) 1989-1992 | RG games {The Colonel's Bequest + 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Laura Bow in "The Dagger of Amon Ra" [En] (RePack) 1992 | RG Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Disney's Buzz Lightyear of Star Command [Ru] (P) 2000 | RG Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Space Clash: The Last Frontier / Космические войны: Послед
 ```bash
 magnet:?xt=urn:btih:6EA77060C8DFCC5ABB2A36173FC1A172DF1B74EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

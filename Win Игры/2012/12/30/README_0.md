@@ -22,8 +22,7 @@ The Chronicles of Veltron [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:CE0CBD0DCA0517E6BA1BE17AFDE3E5FBC2FD1854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Indie Collection [Ru/En] (RePack) 2008 - 2011 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:9DCF2B68B1CB0C3A975209168EE6C104542B5AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru]
 ```bash
 magnet:?xt=urn:btih:66A31F38E8F5216FC55CD34CC96FDD389632D4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011
 ```bash
 magnet:?xt=urn:btih:0DDC70A41CADF281DFEAF05472EC8735562BC632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dungeons of Dredmor Complete Edition [En] (RePack/1.1.2) 2012 | ALiAS
 ```bash
 magnet:?xt=urn:btih:CB6D3032C7D0F1C98A911410B912D145E3934644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Oddworld: Stranger's Wrath HD [Ru/En] (Repack) 2012 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:686DC7EBC15FE715B887BA62712C50160E756399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

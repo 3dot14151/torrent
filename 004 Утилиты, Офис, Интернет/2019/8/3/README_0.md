@@ -19,8 +19,7 @@ Xinorbis - простая, но достаточно мощная програм
 ```bash
 magnet:?xt=urn:btih:B2AADA895E8B4DCB4CC0B0122859A1EB685669E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ummy Video Downloader (   Читать дальше...   )Язык интерф
 ```bash
 magnet:?xt=urn:btih:57A4E1B86C82A38399626DA2C22AB57FCB1507C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Online Radio Player 3.5.0.93 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9B9C1F22F44A238D1F2889C4CD8F8523E7B3A2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:4FD70095CE24BCCF678EF4289E8001910ADC4BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Python является наиболее популярным языком пр�
 ```bash
 magnet:?xt=urn:btih:00451CFD578726FA2203B86A9865204C13CD4E9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

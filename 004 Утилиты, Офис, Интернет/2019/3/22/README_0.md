@@ -19,8 +19,7 @@ MiniTool ShadowMaker - это универсальное решение для �
 ```bash
 magnet:?xt=urn:btih:67F3FEFBAD4F4C51360A2100E299FAE6114D4C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

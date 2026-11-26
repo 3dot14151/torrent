@@ -27,8 +27,7 @@ Tantara - Based On Evil (Limited Edition) (2012) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:995B9E82486D2F4F99429EF951954EABD0A11E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Lacrimosa - Revolution (2012) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:81B811C1FA222B1503E180A601A84A773D59FAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ ZZ Top - La Futura (2012) [MP3|320 кб/с]<Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:29C1F3E3A19C2C682ACDA7E5F5EC9E54A9E1F1CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

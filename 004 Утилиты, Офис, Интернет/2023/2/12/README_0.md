@@ -19,8 +19,7 @@ MJ Prompt 0.3.0.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:276D07EB6E77F480E9107F8650B1D85BAB021F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

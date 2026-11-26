@@ -19,8 +19,7 @@ Travel Channel: Чудеса планеты / Earth Wonders (2010) HDTVRip (Се
 ```bash
 magnet:?xt=urn:btih:C7B519362D34BC87D379C5815D3BEFE6B8FEFFB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FF09A370C070C0D1797E719E3260B02D9977FB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13348C786376C69CEA9F84D2817E65500737D3F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E15B08A43534170D33E6B7C39EF386972FA9F203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Germind - Antimatter (2014) [FLAC|Lossless|WEB-DL] <Ambient, Downtempo, Psychill
 ```bash
 magnet:?xt=urn:btih:3CC9871786216BA4CD5F2161B123B9D964B6435A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ VA - Vacation Playlist Series Vol 2 (2014) [MP3|320 кб/с]<Lounge, Pop>
 ```bash
 magnet:?xt=urn:btih:B9376A3DB8B4772743EDB3E41FBAD811CD5FCA09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ Three Quarter Stone - Round III (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:53862D9D2740657DE16A897823DCCB04B052B106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31BA708CAA6C72B1DB4A7AABBF0DAB78442CEC14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ VA - Apres Ski Chill Loungers (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:5D7191734F597A45898DBACC9EA2F2E2D5A27F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ VA - Fashion Music Vol. 1 (2014) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:3BA151CB769F222F6774E5DE77D2D2DFA818D1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ Fallout - Bone as Dust Shall Be (2009) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:07CF91A87CEFF381C26F719C335A71FCA02BDFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7FC00CC514792BD6900DA0B6B0AED40D81D02A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ Unlogic Thing & r.roo - Void (2014) [FLAC|Lossless|WEB-DL]<Dark Ambient, IDM, Tr
 ```bash
 magnet:?xt=urn:btih:68F0A4049EAFB40D69B35DF7EDEF43AF2B4A4B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC07082EBCF732D10746A06E5B823FA248273EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F29DE2FB03122CC4A3A34234E95831ED802E9E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ Soen - Tellurian (2014) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:F55A3C6ED67005C62F964380338307618C74157D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F6AD1D17216BA697DB844F8AAAEFC16B9CB6F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ Fahrenheit - Uncharted Dreams (2005) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:EADB5D74AC95B75764D455EC1FCF8D54F1A5158B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD0B5BB7A7DD6AD3F9F64AC416155028FB42C3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBC636A67BF5E8F5AA8C743B0779E234B33B685B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +603,7 @@ Public Enemy - Fight The Power (1989) Single [FLAC|Lossless] <Hip Hop, Conscious
 ```bash
 magnet:?xt=urn:btih:62FA00DDA0DF5585B3F4A0339DA01700C974BEE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7057C7BC3769748D70EA1484011BAD0A02947F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E63C0DB3A8E93340CC91126469B781A1BDC7E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDEAE2A390164E789A1638FD151A7317727E28F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13AC8BF73AB6B50FD658197E82B04A6B6679CC4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +740,7 @@ Beyond Creation - Earthborn Evolution (2014) [FLAC|Lossless]<Technical Death/Pro
 ```bash
 magnet:?xt=urn:btih:B7A65C403CE6D4002C03FA061B68CB5FBA6289DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

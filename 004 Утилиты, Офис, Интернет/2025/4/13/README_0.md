@@ -19,8 +19,7 @@ Rainmeter - утилита для мониторинга ресурсов ком
 ```bash
 magnet:?xt=urn:btih:1FBA28F91C0B8818EEAF783342EDED96D7403917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Timer by WolfEywa – таймер-часы.
 ```bash
 magnet:?xt=urn:btih:ABBD5060F676C4A56C5759A0A4735B150C283FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Telestream Wirecast является единственным в индустр�
 ```bash
 magnet:?xt=urn:btih:13576DC2F4960C2D1F83F3338EB8133DAD78B4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

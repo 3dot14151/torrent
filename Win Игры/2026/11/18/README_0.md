@@ -19,8 +19,7 @@ Black Mesa: Definitive Edition - это полноценный ремейк к
 ```bash
 magnet:?xt=urn:btih:41F5702867CC852D238D6424D13AA2B3585DAE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Saloon Simulator (2025) [Ru/Multi] (1.0-17904) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:53E74B16CD890DEA8FD105F167CD94DFB6791879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gold Mining Simulator - Definitive Edition - это максимально п�
 ```bash
 magnet:?xt=urn:btih:A34A8B8CC71D5C60E18A4FED6B009C379E673188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Black Mesa - современное переосмысление культов�
 ```bash
 magnet:?xt=urn:btih:C362E353DD4E05F00B7860B8B664330FB84533FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ranger’s Path: National Park Simulator - симулятор работы ре�
 ```bash
 magnet:?xt=urn:btih:EE6FDAB06E054063538DF49BA08AA873AE45C5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Gold Mining Simulator: Definitive Edition - расширенное издани�
 ```bash
 magnet:?xt=urn:btih:23EB79EDC0D834F502ECC57FE8D2B7CEEF5853A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ancient Warfare: The Han Dynasty - историческая военная ст�
 ```bash
 magnet:?xt=urn:btih:AA6982CDFFCA5A0E7D65BB8B32AEBD30A1905957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Black Mesa: Definitive Edition - это полноценный ремейк к
 ```bash
 magnet:?xt=urn:btih:9A536E6DDFFD26208668A39430F242B6648B93D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Nocturnal 2 - это атмосферная двухмерная метроид�
 ```bash
 magnet:?xt=urn:btih:6A4E2F0B1F12633FBCE613278FABC22309D8C159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

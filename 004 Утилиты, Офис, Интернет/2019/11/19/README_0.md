@@ -19,8 +19,7 @@ Icecream PDF Editor 1.39 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9DC9493D54099D59B27BD546F656192C91A6D57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

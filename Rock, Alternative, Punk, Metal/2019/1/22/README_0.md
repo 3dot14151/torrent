@@ -22,8 +22,7 @@ Pillorian - Obsidian Arc (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:87612653CF798475D4FFD38B0A0023C69860A648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Panikos - Eclipse I (1998) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:BAB9861278E966B440F4386BF1EDFDD484604E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Watch Them Die - Bastard Son (2005) [APE|Lossless|image + .cue] <Thrash Death Me
 ```bash
 magnet:?xt=urn:btih:55FE8D91E02672A32F2DCCEB16FFD89239CD8078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Enchained Souls - In Memoriam (2010) [FLAC|Lossless|image + .cue] <Symphonic Met
 ```bash
 magnet:?xt=urn:btih:3F5BCFE0160C0710F99DABFC330E778616D75EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Zaphyria - Hate and War (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:553F6DDC39418249FC156576DBF5D4E2AE1F5A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Obscura - Akroasis (2016) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:D2AE1D8EE65ACD7DB0A04A8FD011D792D2A266BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Helevorn - Aamamata (2019) [MP3|320 Kbps] <Gothic Metal, Doom>
 ```bash
 magnet:?xt=urn:btih:91E0CFDC221B01192055767B484162AEBE958B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Shrezzers - Relationships (2019) [MP3|320 Kbps] <Progressive Metal, Experimental
 ```bash
 magnet:?xt=urn:btih:88F072E36D5AF6AFC554F4E7C6062B984DE89AF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E2500186102185CADF0F7C20EA56C57CBEF3845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ TattooIN (Татуин) - Татуин (2017) [MP3|320 Kbps] <Alternative Rock, 
 ```bash
 magnet:?xt=urn:btih:5ECAC0A10A1497A5489687D8C43FB11FD5D2A46B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ TattooIN (Татуин) - Маленький фрагмент вселенной
 ```bash
 magnet:?xt=urn:btih:31DA7B1CCEC8268335F0E3A8B769CC751BF89AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Yo5 и Андрей Макаревич - Yo5 (2018) [WavPack|Lossless|wv.iso] <J
 ```bash
 magnet:?xt=urn:btih:8CF91F5CA1A73B33A19A424513DF59AA9C0E6631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

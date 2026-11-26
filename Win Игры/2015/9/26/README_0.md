@@ -19,8 +19,7 @@ Anomaly Defenders - это очередная часть серии Anomaly, в 
 ```bash
 magnet:?xt=urn:btih:6E20090EA1EAE9A8BA02B764D655EF330A6D7300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assault Android Cactus - это футуристический аркадный 
 ```bash
 magnet:?xt=urn:btih:7C91AA89031A46F2EB36FD955E7BDFE4134A6006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Hammer: The Vanguard Prophecy (2015) [En] (1.0.9) Repack leve1ord
 ```bash
 magnet:?xt=urn:btih:42F5FE1C4BFD21BF2748F132ED9FFA1BFD02F662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

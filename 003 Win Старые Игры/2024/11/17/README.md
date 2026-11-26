@@ -19,8 +19,7 @@ Populous™: The Beginning (1998) [En] (1.02/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:1E2913B68188D5D9DA076BB45DB4CCD5A5B43F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sid Meier's Alpha Centauri™ (1999) [En] (1.1/dlc) License GOG [Planetary Pack]
 ```bash
 magnet:?xt=urn:btih:4689B481A9B9F009AA1FFC44EAFEDE2F82936B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парус�
 ```bash
 magnet:?xt=urn:btih:A9A04E52F6EF7B28962AAD24036305EBBAE3D791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tyrian 2000 (1999) [En] (3.01) License GOG
 ```bash
 magnet:?xt=urn:btih:F983A9B486D7BD71A495A5ACE57C49DF4C29DCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ SouthGang - Tainted Angel (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3DFDCA78E796105632D4E724D86EF5830706AEB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Desert Sin - Edge Of Horizon (2009) [FLAC|Lossless|image + .cue] <Melodic Heavy 
 ```bash
 magnet:?xt=urn:btih:20C63390B8B07F057E2F03AA5C7C08E4B7E15B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

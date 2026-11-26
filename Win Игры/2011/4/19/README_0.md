@@ -19,8 +19,7 @@ Antique Road Trip 2: Homecoming (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:C2A5CCCB5371D2D0E2180FA20ECE7631D4B5E95E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Garden Dash (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:A0E5DE0FA69D5A95EF5707281B5E64455E88C348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deepica (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:ADE0E3840A01170DA593D2DA91498A9B09FCA251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mystery Novel / Журналистские истории. Смерть у во�
 ```bash
 magnet:?xt=urn:btih:97B2EC5948E92CB4DFCADBA986CDF05F6530A38E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ STCC The Game 2 – шведский туринговый чемпионат, о
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

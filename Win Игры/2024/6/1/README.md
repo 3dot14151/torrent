@@ -19,8 +19,7 @@ Aliens vs. Predator (2010) [Ru] (2.27/dlc) Rip xatab
 ```bash
 magnet:?xt=urn:btih:4D85593F9C6D4AE62BA6C83FE3A58162D70A99C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Night of the Dead - выживастик от третьего лица в от�
 ```bash
 magnet:?xt=urn:btih:84CBB966995B5BF3F1D00D821487BB2D08AC1579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Capes (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [King City Edition]
 ```bash
 magnet:?xt=urn:btih:9367A0AA280030460A5BAABEB0E01E99C43724A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ KARM (2024) [Multi] (1.0.1) Repack FitGirl [Headbang Edition]
 ```bash
 magnet:?xt=urn:btih:AE53C60F97ACFB2A20EF8050AED5494BBE935CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Astor: Blade of the Monolith вставьте себя на место Асто�
 ```bash
 magnet:?xt=urn:btih:15E98CF7575988F476DE94F213CA490672ED8F5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Astor: Blade of the Monolith вставьте себя на место Асто�
 ```bash
 magnet:?xt=urn:btih:11A941594FB4B81535508D33726FCD921F0E139C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tennis Manager 2024 – как насчет того, чтобы покорит�
 ```bash
 magnet:?xt=urn:btih:07A0B5FC5CC024EFD0CB560D6EE1991E0AF613E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

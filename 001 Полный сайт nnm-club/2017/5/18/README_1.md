@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B632C19F9ECFA869E11A86901D3420C75C86C197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Discovery: Техногеника. Рекордные локомотивы (2017
 ```bash
 magnet:?xt=urn:btih:A6701768ADD7D6E376F847D876A1800EC100B74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Discovery: Техногеника. Луноходы и марсоходы (2017)
 ```bash
 magnet:?xt=urn:btih:6D63D87212E05DA4F0C40EFFD5AEFDA89469E4DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E23FF75BFECE4AD31E8B9E951F391098D9C8C131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BE5BF39E93F8FAD9501F0B6293D568F00CF2664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FF523023A4D8EDAA0756569CBE889F2112AE0C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Adobe Prelude CC 2017 - программа для профессионально
 ```bash
 magnet:?xt=urn:btih:B716E1B6CE4CA29D26B815B3EDD6134C253D64E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ VA - Союз Летний (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:7FC8D7E8EA870C12440C208A8AADCFCB12B54FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92C99BE5BAA125CED45CA3834E986C9ECD254768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Fabio Cimo | The Best Web Programming Languages to Learn (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:13341AD4F8958E08C28BA04D79AE3067B37E6C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2105C80D987FE05B4884FA71574F6A8A315F1DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ FileRestorePlus — программа для восстановления уд�
 ```bash
 magnet:?xt=urn:btih:8A0D3D5F340BEDE798578FC4A4073EF7A75B7137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Raman Jhajj | Apache Hadoop Cookbook (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:08E4E943A20B14C614B4988479BF49FB2DF4C64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Zoom Player 13 - наиболее мощный, гибкий и настраив
 ```bash
 magnet:?xt=urn:btih:684EB3EE500A2BFB24F398E4A5BFF41B06EE35A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Fabio Cimo | Web Developer Interview Questions (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:A117437A74EC5785D92685EFDA756AB925CC9E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F30FBB71C4AEE1333F2321020759D84F9849A8B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ JQuery - это кроссплатформенная JavaScript-библиоте
 ```bash
 magnet:?xt=urn:btih:1F451D473056F1653EBA9EB06D224A14BF34A7D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ Andriy Redko | Advanced Java (2015) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:01C1C1129FF9201014A585D4050366F8EB9070AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17300CD0ECA1E3580A028CCEB434F1416129B0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ Francesco Gabbani - Magellan (2017) [FLAC|Lossless|tracks] <Pop Rock, Europop>
 ```bash
 magnet:?xt=urn:btih:D62710C2B6A429658E436A5741A251B6EEEA5DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3463594E7AC54110FAAE6E7A49FA04DA0881FD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F2F5C6B1327D74F6D942A2FD86CA86A069AB190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ HTML5 - это основной язык разметки технологий �
 ```bash
 magnet:?xt=urn:btih:7F573AD5E325C1653AD095268E192BCD2FBB5CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F147C3FE138B4646C2C7A50C35D8FC0A860A8BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +628,7 @@ UPgrade – журнал о компьютерах и компьютерных �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +653,7 @@ Chryssa Aliferi | Android Programming Cookbook (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:6A150BFBB5D61E53513C5E0AB895473C2E9358A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

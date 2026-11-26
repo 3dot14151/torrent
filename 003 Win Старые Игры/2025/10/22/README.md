@@ -19,8 +19,7 @@ Manhunt 2 (2009) [Ru/Multi] (1.0) Repack Necros
 ```bash
 magnet:?xt=urn:btih:FB368D1155050C86F533730E05B1ACF8D1759C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 ```bash
 magnet:?xt=urn:btih:1DA12B81B7121AB769B8E5E74E32953C3DA14A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

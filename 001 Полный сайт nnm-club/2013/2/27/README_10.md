@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ VA - Trance Essentials (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:97E78333F8F9B21951DB7F4218DE4F99F895E176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ VA - Trance Pro V.18 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A57081018351C5E46FC4B6CDF4987A08CDD93DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ VA - Trance Trends 4: The Finest Trance Tunes (2013)
 ```bash
 magnet:?xt=urn:btih:876078FB7FE5A15A4095E84EE6F5A46D89820E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8454DC8F64CF33E787FC77ACC31F158D0D7DA1A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ VA - Максимум Удовольствия Vol.2 from Kulemina (2013) [MP3|2
 ```bash
 magnet:?xt=urn:btih:21C58D33797A09801410F41FE935522DC13810D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ VA - Dance 2013 Make (2013) [MP3|192-320 кб/с]<Dance, Vocal, Disco>
 ```bash
 magnet:?xt=urn:btih:6495338AEB18624DA32657307BE80AC7049F7753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ VA - Top 50 Club Winter Hits (2013) [MP3|231-320 кб/с]<Club, Dance, House, Pr
 ```bash
 magnet:?xt=urn:btih:7627B26463BE6E0C24172A3B4DB62F829CED4E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E541485164C3822AD0B1209B43C0E51852EF1BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ Butterfly - Organic Synthesis Episode 008 (24.02.2013) [MP3|320 кб/с]<IDM, Am
 ```bash
 magnet:?xt=urn:btih:5BF7F7C21E49B1A2A13E115DCD16A4D2A1D5D388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ Advent Of Bedlam - Flesh Over God (2012) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:DDD6A2E78BAAE365625B88490818FE3162C775B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ Handyman - универсальный журнал для домашних ум�
 ```bash
 magnet:?xt=urn:btih:44218A8A1988E687408670E71C99B02CF4C924C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28A99EF486BC972239E4CCBD9458500B0B64A0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B93117FD5812E67674C9B24349855DBD3A4E1E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ VA - Клубные Новинки Vol.245 from AGR (2013) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:6B0451BD7F991B0C7ACAEFA41866CFBCD00AFCE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE126C1809A75474D181F225963AC12BEE20D75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ Handyman - универсальный журнал для домашних ум�
 ```bash
 magnet:?xt=urn:btih:8F878E1D9E92917277D2992AEC82DA2658477B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F047C9F5F97135BF52AF0BD02224E0F7C3CF5E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ Butterfly - Trance Life Radio Podcast 008 (February 2013) (26.02.2013) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:E9E6F1BB7458BFCCC874B1BE6124FCA3A4D22B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +588,7 @@ The Hamster Alliance - Full Collection (1998-2012) [MP3|128-256 кб/с]<Electro
 ```bash
 magnet:?xt=urn:btih:5FA2335663D9AC6FAC4AEBF72D6BBBD3A2C09D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FCBB9EC893BD876DAE72B266B7D74C7EB879368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ Eisenherz - Fluch der Zeit (2013) [MP3|256 кб/с]<Gothic Metal, Industrial, ND
 ```bash
 magnet:?xt=urn:btih:9F0F78D4FFFEEA0A1F5DFBD79C553610E26C9E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09F906F496386B8E9ABDE8A390FEB6EF8202A273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AC4654A07B41A244F1C2BDE613B0090D1203D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95812DD5E0C9B4D621DF16BA1BD434C7085152AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D9CC61691FB5FD6D90C7292276AB675885D6406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

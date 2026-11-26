@@ -22,8 +22,7 @@ VA - The Unquiet Grave 2020 (2020) [MP3|320 Kbps] <Darkwave, Gothic Rock, Coldwa
 ```bash
 magnet:?xt=urn:btih:60BAFA7E68A8F85D102713AD08EFD46B2E1A4175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crippled Black Phoenix - Ellenaest (2020) [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:4413219ED9F8F39710BAED4FDA355CD54A3EF2B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Champlin, Williams, Friestedt - CWF 2 (2020) Jараnеsе Еditiоn [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:B633EDB61C830276032D8CCCFB64F554E48AF934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cats In Space - Аtlаntis (2020) [FLAC|Lossless|image + .cue] <Rock, Classic Ro
 ```bash
 magnet:?xt=urn:btih:5666B65BD34559E1CE1863205119CD8D45CD0BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Autumn's Child - Angel's Gate (2020) Jараnеsе Еditiоn [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:100C9D152F962D78058A9B08A5063A3B3D1FE21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:EE5E3AB18FC6AA44E02E7AF9581B9901798FA801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Solstafir - Еndlеss Тwilight Оf Соdереndеnt Lоvе (2020) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:B4ED9F7CFA26B3DEA8D1ABAFFC6FD16AF49FF997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Billboard Top Hits 1990-1994 (2000) Rhino Records, 5CD [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:0558B6B31E0712AF64B16B3B1AA836B4CD0AB054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

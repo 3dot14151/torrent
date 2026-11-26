@@ -19,8 +19,7 @@ AOMEI OneKey Recovery - простое в использование прило�
 ```bash
 magnet:?xt=urn:btih:7D85998F183BA175671DD46E79F000D234B9A2BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

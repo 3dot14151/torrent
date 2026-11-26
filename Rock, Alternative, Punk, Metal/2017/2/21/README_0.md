@@ -22,8 +22,7 @@ Mason - Harbour (1971) Reissue, 1999 [FLAC|Lossless|tracks + .cue] <Heavy Psych 
 ```bash
 magnet:?xt=urn:btih:3E39506CF775889324D79D74601B83DEF9D89D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Distant Cry - Distant Cry (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:21C27EA5EA46AF0EB84E0916487DB69F83736974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Angel House - The Gun, The Love & The Cross (2009) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:35EA7368CC8828C166126EBA9E5DACDEB015730C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Brother Wilson - Utopia (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock, Singe
 ```bash
 magnet:?xt=urn:btih:1D5374CC5116AD74FDC88714D777BF32CF1BF590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Grace Slick - Manhole (1973) Reissue, 2011, Retroworld [MP3 |320 Kbps] <Psychede
 ```bash
 magnet:?xt=urn:btih:13EF34211315C1A96867A69321437385E246D6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Quartz - Fear No Evil (2016) [FLAC|Lossless|image + .cue] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:C6A6A4BD52282656E09D293E9F3ACCF01804FD3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Wild Adriatic - Feel (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Blu
 ```bash
 magnet:?xt=urn:btih:5CE5B83DCAABE005E1D8EBB22BB6DBEA64675865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Lori! Lori! - 3 Albums + 1 EP (2011-2017) [MP3|320 kbps] <Alternative Rock, Fema
 ```bash
 magnet:?xt=urn:btih:2FBAE185DF952ED2CD02908F736BBD2291E7EECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

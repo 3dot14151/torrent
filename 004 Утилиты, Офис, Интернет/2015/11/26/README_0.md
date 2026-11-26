@@ -21,8 +21,7 @@ iReboot 2.0.1.42 [En]
 ```bash
 magnet:?xt=urn:btih:3F537657FD8D974D6E2381B8B5394BEF2177A1C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

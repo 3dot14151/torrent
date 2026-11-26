@@ -19,8 +19,7 @@ Alex Nuijten,  Patrick Barel | Modern Oracle Database Programming (2023) [PDF] [
 ```bash
 magnet:?xt=urn:btih:58E2711E565C162B2249761D62B60EA42BDCE20B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

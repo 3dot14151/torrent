@@ -19,8 +19,7 @@ AVS Document Converter - предназначена для просмотра и
 ```bash
 magnet:?xt=urn:btih:5B2E56F18D35F1A15772CAE7515063424B9DB576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

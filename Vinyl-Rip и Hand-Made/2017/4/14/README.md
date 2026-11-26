@@ -22,8 +22,7 @@ A4. Tear It Up (2:29)(   Читать дальше...   )Производств�
 ```bash
 magnet:?xt=urn:btih:278675164DBCBB51AD4772275427EE1D5F4651B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Texas Hippie Coalition - High In The Saddle (2019) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:0E51F10060E2C7B29EDBD1323E95230F4BA586CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Magnus Karlsson’s Free Fall - We Are The Night (2020) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:D3C8B27747CB3DF2BAC904EBEB76FBC6A29C3E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eisbrecher - Schicksalsmelodien (2020) [FLAC|Lossless|image + .cue] <Industrial 
 ```bash
 magnet:?xt=urn:btih:8FF9A2181470157594F89A01D3C04400CA49627B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kozak System - 2 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue]<Folk
 ```bash
 magnet:?xt=urn:btih:C667C87C9C4967632E5884F46A4438B583367D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:F23F7EF00A73311C84D86E1DABBFDFA03C6E6B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

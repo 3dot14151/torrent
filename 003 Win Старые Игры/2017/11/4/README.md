@@ -19,8 +19,7 @@ Evolva / Evolva. Риск заражения (2000) [En] (1.2.944) License GOG
 ```bash
 magnet:?xt=urn:btih:3CB5B69A2C7268BBC6ED8B83453EC657C9E618D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

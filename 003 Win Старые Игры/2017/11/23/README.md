@@ -19,8 +19,7 @@ The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:8D9EF729C912CF1F9EAC6FC6003CD400C2A08911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
 ```bash
 magnet:?xt=urn:btih:354CAA27A955DADEE51AD8A7D4BEAC92B55E9640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

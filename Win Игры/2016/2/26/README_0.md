@@ -19,8 +19,7 @@ X Rebirth - это возрождение серии космических си
 ```bash
 magnet:?xt=urn:btih:A64979AB1DCBA90F727508DBB4E4393F356BAAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ X Rebirth: The Teladi Outpost предлагает новый захватыва
 ```bash
 magnet:?xt=urn:btih:EBA3093D851C4ED085AC738BA52AAE01105D0440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ We Are The Dwarves (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1BAA2789C3B749FDAAE03C776D9B46C928CD2822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

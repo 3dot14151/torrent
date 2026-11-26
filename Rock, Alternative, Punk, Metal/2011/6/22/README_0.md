@@ -28,8 +28,7 @@ Tersivel - For One Pagan Brotherhood (2011) [MP3|320 kbps]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:7938C6B7FDC6122ED0331026077E96CEC1AE6795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Amaranthe - Rain (Single) (2011) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:777621A7A6DB4C3291B6644F8CF57CE17C3057F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Petter Carlsen - Clocks Don't Count (2011) [MP3|192-320 kbps]<Pop-Rock, Soft Roc
 ```bash
 magnet:?xt=urn:btih:3A2924C3F4F5B59302362F4E466A80FAC7CBD02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Heavenwood - 4 альбома (1996-2011) [APE/FLAC|Lossless]<Doom Metal, Gothic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ The Dogma - 3 альбома (2006-2010) [MP3|320 kbps]<Symphonic Gothic Power M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Simple Plan - Get Your Heart On (2011) [MP3|192-320 kbps]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:BDC2F91BAA3103284350EEED4A107EEA44CBAE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

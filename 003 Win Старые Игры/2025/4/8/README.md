@@ -19,8 +19,7 @@ Jagged Alliance 2/1 Metavira (2013) [Ru] (1.0.8) Repack/Mod dark_elf2
 ```bash
 magnet:?xt=urn:btih:91BDD6A34699C7588755DC0DB8E87BC4CE6D71C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

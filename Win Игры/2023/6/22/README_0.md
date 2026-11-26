@@ -19,8 +19,7 @@ Tales of Vogar - Lost Descendants - это созданная на базе RPG 
 ```bash
 magnet:?xt=urn:btih:1BC1B15D837DE8EBFA698C2E4B26EA600B80F069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Case Files 25: The Dalimar Legacy / За семью печатями 25:
 ```bash
 magnet:?xt=urn:btih:CBA36AFA3FA152EBBBFF422C5F63173C436540EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Trepang2 (2023) [Ru/Multi] (2168) Repack DjDI [Banger Edition]
 ```bash
 magnet:?xt=urn:btih:F703E21FDEB002476329D36EC0A3CD36BBDB9D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tasty Planet: Back for Seconds / Съедобная планета (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:B9A6AA99ACA6FAF628B900D43D4E7A6384831620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

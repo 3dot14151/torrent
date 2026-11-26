@@ -19,8 +19,7 @@ PhotoRoom v5.2.1 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:971009F0B3AB44A0E3B47A1A7FD5FED79D1ED5D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phrasebook - Learn Languages / Разговорник v19.0.1 Mod by Balatan [Ru
 ```bash
 magnet:?xt=urn:btih:564620931172B56B7CE779CED18E12BD2A6B9A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:F323BE1BB5E7B3321CFFCE1F799A4670DD0A3167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

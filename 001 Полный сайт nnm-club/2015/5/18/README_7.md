@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:554C1789F73C23EDCC21DFF23A2DACF962D366A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1788B2CC85D79FA153FFE6BAB20985E6D6B3CC52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:CA9A09E8550E90013D0114EF4C0B213C48FE53CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Happy Hope | Paзбepиxa. 3-х месячный тренинг (2014-2015) CamR
 ```bash
 magnet:?xt=urn:btih:4C130F744940245B7A76747D81D18A905E29B737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ AutoCAD Electrical — это AutoCAD для проектирования эле
 ```bash
 magnet:?xt=urn:btih:DBCD08E4691722806FC5252A9BC78D9B7ACC9F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA6DEA4507CE3F01F42F5F274EF50EB71CA9D5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Microsoft разместит «водяной знак» на пиратских
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ ESET File Security для Microsoft Windows Server эффективно защи
 ```bash
 magnet:?xt=urn:btih:597CB238CBF0484D1D6B10E65D15345AFB3B29CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB4350704B416B6DC672246551ED3B8148E79D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ HTML Academy | Месячный онлайн-интенсив «Создание
 ```bash
 magnet:?xt=urn:btih:2124A413B48664B487D5B2FBF3DBA24CDE30B32A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ The Elder Scrolls V Skyrim (2011) [Ru/En] (1.9.32.0.8/dlc) SteamRip Let'sPlay [L
 ```bash
 magnet:?xt=urn:btih:1D9C15F4488C3FF307A79EDF64D4F2A2872491AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Windows 8.1 with Update RUS-ENG x86-x64 -12in1- Activated (AIO)
 ```bash
 magnet:?xt=urn:btih:0B7A0DE416B91952990412856488423F46448305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

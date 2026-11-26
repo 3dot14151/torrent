@@ -28,8 +28,7 @@ Slade - Nobody's Fools (1976) Remastered Japanese Release /2006, Daiki Sound/ [F
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Start Menu X - усовершенствованный вариант меню "�
 ```bash
 magnet:?xt=urn:btih:6D4E7C78664E609823E5DC7D5664379FD36C3AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F798C370AA92E0CAF7F5713E3D1D30F3C1681F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD2160DA5378CA6A586C292E5443E169B2FEE332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Puzzle Cube - Презентация средств массовой инф�
 ```bash
 magnet:?xt=urn:btih:EF508437E434A5B150FD76135C9C4383F38819C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94E6D5D6191925349DF9FB47BFC1DDEBEFB48024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Brightness Guide - программа для выравнивания яркос
 ```bash
 magnet:?xt=urn:btih:0889D26DA4801932131C23F277530ED79965681F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5453D23FBA5A3EE5B1020309E5834A70CD61E315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ World of Tanks Mods (2015) [Ru] (18.4) Mod Jove [Сборка модов от Jo
 ```bash
 magnet:?xt=urn:btih:93BBDC9C3003C34F65707022F4AF4336BCC012B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Korpiklaani - Noita (2015) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:9CF5BD2D6BFD1F18EFE2F039FCF61A24E3FFCBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Beauty Guide - ретушь лица, изменение цвета глаз, м
 ```bash
 magnet:?xt=urn:btih:BC7BD8B14B2E90033E12AE61B2301EAF5BE64609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ VA - Gazgolder - К тебе (2015) 2CD [FLAC|Lossless]<Rap>
 ```bash
 magnet:?xt=urn:btih:63CA17916579A70554BA2378E9C7C0EB3A9C078A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4489937332B15DCD317EC38D31FC0D1265BF277D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Freedom Flight - After Effects CS4 - CC 2014 проект. Full HD разреш�
 ```bash
 magnet:?xt=urn:btih:AD34B73D688F7849707DE7EE38ACE155F013595B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ USB Safely Remove это надежная и удобная замена 'Без
 ```bash
 magnet:?xt=urn:btih:0CFD91193D433162306A0883C75B33BA9A773866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Google Chrome – веб-браузер от Google с открытым исхо
 ```bash
 magnet:?xt=urn:btih:E3ADC7429348174BC71E20D5396F8404104FB9D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:A07E1048581C7365745ECCB35E8666A137517B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99C66E586CFBD3F7AC11C3E95619379091E04D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ Trap 2015 - v2 (2015) [MP3|320 кб/с]<Trap>
 ```bash
 magnet:?xt=urn:btih:F14204F12D5B6BC3D5A2483BBB6E800301BCD86B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ Google Chrome 42.0.2311.135 Enterprise (x86/x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:40A5B8815301A60979D40D173D8B2505ADD3B5DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A80F08FA4C4DDDF278DAEEF5321CC7F652215A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:183412BB9C386765D135E12FD4445B7E1DAD1E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +563,7 @@ Telegram — бесплатная программа-мессенджер от �
 ```bash
 magnet:?xt=urn:btih:A0084220D895E05CE44986B75EA1F7C978454C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ VA - 100 Hits 2015 (2015) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:42F87EBE111A733A90EAD5D26E75C3DFC2F13CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ VA - The Best Russian Ballads-2 (2014) [MP3|256-320 кб/с]<Поп, Рок, Р�
 ```bash
 magnet:?xt=urn:btih:4E18EB61870BB0FCECF706E5C58DB8204A9A0381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D6B2B8031197AC08A0397A0D32A2078D2EDE527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4636752CC3BC9333213BF02B2C1EACFC1C84906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

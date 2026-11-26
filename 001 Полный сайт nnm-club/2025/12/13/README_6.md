@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EC653CB2B76600FD45AD84C0CAA1B5838B634992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06A4F4C510EB9867F1B1770AE5AFB15DB70A58A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:065329E6BCABD55AEC04D3E01DBB1F45BAEE70DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack seleZen [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:A0F5EC3E060A66B608944A94D43322F571098084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Golden Gate 2: Goddess Heart / Золотые Ворота 2: Сердце Бо�
 ```bash
 magnet:?xt=urn:btih:4B4FEB0A6BE00DF072D16E76C42A11CC2D0B6B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sleep Awake - завораживающий психоделический хор
 ```bash
 magnet:?xt=urn:btih:03E977473791751806B8D257628DB583A92137AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ SoftMaker FlexiPDF Pro 2025.416.1204 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:478A7730286083E26AF06B104122FF5B4078C3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sleep Awake - завораживающий психоделический хор
 ```bash
 magnet:?xt=urn:btih:67E441E817B04359CE3468693793678FDBB3772E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:F424DABB6A17A6A4237EED903C7F68B20A28EFD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:CD3A89CF435186E54AD32CD29E3D16F31D18B00D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:DE9433B0BBA88C664D0A9C3C9CB12BF8A190AD13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Adobe Illustrator — это принятое в качестве отрасле
 ```bash
 magnet:?xt=urn:btih:835A5C54488DF380C1502B326D0E9AA8F550F7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:34CFCB707DE698017C0C58045FCAF18E03249CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ Windows 7 SP1 7601.28064 x64 3in1 by OneSmiLe [12.12.2025] [Ru]
 ```bash
 magnet:?xt=urn:btih:BABE2152F0641CA47460C97092F887BEC3C87C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B29AB852DEDB69FFB7199C2217707EFE800C0EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ MSAct++ 2.11 Portable by Ratiborus [Ru]
 ```bash
 magnet:?xt=urn:btih:B357033AAABA35EC43D98BE6677E29AA9C864EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C05B1301131AC349A547957FEE0B44961E5B7525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:2C41A2A10BCC8FB8EF63597C8125DDD9DF8DC61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ Office LTSC 2024 предоставляет привычный набор при
 ```bash
 magnet:?xt=urn:btih:F8177A58F6F72C1272ED430CDDCFEBB7A3ADCF59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D7BE529DA7F39090B94304A63B8EF462A6205B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:BBA71BBDF8E89B3180B71DD115EB7EF54EA17D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21077857) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0B7BA8B7DFD7DEF0AEEE90BABA37C4F1A17B5B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

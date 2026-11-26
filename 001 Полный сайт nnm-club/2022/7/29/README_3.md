@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:164182869EF7C4CD6E944EF43CCF1EB61AF23335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95046ECD537B05BD784D74FE0A63094E23CF16D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:389DAAA641C1C12091CA441F53CBB66541313746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ DxO PureRAW 2.1.0 build 2 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:BA76913F79CA17066348D1BEFE1244808CB0E230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

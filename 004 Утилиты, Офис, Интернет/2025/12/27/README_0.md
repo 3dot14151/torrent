@@ -19,8 +19,7 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:E7F4382F8ABBA27A005FB9D10A4B67960EF91D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MediaHuman YouTube Downloader 3.9.18 (2512) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:D669F28901BE85079F068790F32E9907B294D49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

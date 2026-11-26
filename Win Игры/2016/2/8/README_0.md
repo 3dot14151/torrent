@@ -19,8 +19,7 @@ FIRE — это приключение-исследование с множес�
 ```bash
 magnet:?xt=urn:btih:88C1D456F4C374B6A9D937D988B47BCAC57986B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tropico 5 - игра в жанре экономического/градостр
 ```bash
 magnet:?xt=urn:btih:0AC90A70BC00E1590934E8BB1697C52AAAEB5004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

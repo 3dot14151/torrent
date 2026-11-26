@@ -19,8 +19,7 @@ Real Crimes: The Unicorn Killer / ФБР. Дело Единорога (P) [Ru] 2
 ```bash
 magnet:?xt=urn:btih:BBE0BEDC86A60D6AD451F780E627FEDB2A31C16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Hospital Haste / Переполох в клинике (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:36BA7C2C40C32B215CBFD2E11EE723A85A29BFB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B24A55AAEFF3E5203293C88B4FE71F7E8F98EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DC50E56C6C18E769E572B89FD9B749B7002D061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Patrician 4: Conquest By Trade / Патриций 4 [Ru] (RePack) 2011 | R.G. Or
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

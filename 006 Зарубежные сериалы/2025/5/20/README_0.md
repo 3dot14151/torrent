@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F555B408D1CCB9616E348428F8F513D06492791F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5EF650F6D9FFEDE08F401367366661ADAB92E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ V: Последняя битва / V: The Final Battle (1984) BDRip [H.265/1080p
 ```bash
 magnet:?xt=urn:btih:5864E520DD98FBBFFAF4DD85082340FE4F4A9EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

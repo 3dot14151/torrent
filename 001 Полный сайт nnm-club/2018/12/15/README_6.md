@@ -22,8 +22,7 @@ Woody Herman & His Thundering Herd - Ready-Get Set-Jump (1953 - 1958) 1992, Lase
 ```bash
 magnet:?xt=urn:btih:031658711DB8039BF442BFA8685E4C9C49BBF17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ P.J. Perry - Worth Waiting For (1991) The Jazz Alliance [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:83366AA048F0400FCBAEABC9075B9DA28D67359F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jimmy Forrest - Out Of The Forrest (1961) 1994, Original Jazz Classics [APE|Loss
 ```bash
 magnet:?xt=urn:btih:CE56BE59341AAD6A59EC66928BA57F785B08E915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3E0B6B49086AC3E87A75E5B538B404FB006E3C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ P.J. Perry - My Ideal (1989) Unity Records [FLAC|Lossless|tracks + .cue] <Hard B
 ```bash
 magnet:?xt=urn:btih:3288C0F2EAB8FB1B347859529E6D82935C82F211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Black Art Jazz Collective - Armor Of Pride (2018) HighNote [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:118CB2DFDEC0D8E7B47C7730AFF7543B12C8EE3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:9D09C2EB5E1709D5A843B4CBB692E75E36679D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75D3F5C03FA05645E27F87AB6FB0C456E57273CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DEDF8FC7791CE625DED7046B86070E17E39EE06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6EA4475EF3517965EF8801C30AF09613E60D148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Astrud Gilberto - The Silver Collection (1965 - 1970) 1991, Verve [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:5E22625E0118964D677A63789B9D098F464CD07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Wirecast предлагает доступное программное обес
 ```bash
 magnet:?xt=urn:btih:61709E776D4E5EA807B01BA62F1DFEEF73994E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Beacon Street Union - The Eyes Of The Beacon Street Union (1968) Reissue, 2010, 
 ```bash
 magnet:?xt=urn:btih:099C2E36A7845E6A75D221616F2D5F95807AF911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8216DE73DA81028B4DCEA2C9E9F8268BB644D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Cкелетон. Кубок мира 2018-2019. 1-й Этап. Сигулда (�
 ```bash
 magnet:?xt=urn:btih:2EADD84C3DD80528ABC4CAD390AA793F1CE0B668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D996F771C87719298A818D37C2466C9707AAD6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5EC6EF31DE663AD75272A84269EEF538E870F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47983D8CC90F182483F1E67528ACC9BA32836D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:681F1F19782D16B59C58EBD84D673B993E975B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:342B26CFCB1FF132D166070167286F49F5AB50C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Outlaw Blood - Outlaw Blood (1991) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A4B8CC5A38D259E50E750BCFB55F07713DFB7B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Sound
 ```bash
 magnet:?xt=urn:btih:47619DFC3AEE548A6EF1EA4B617180FAAA8ACFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:575AA735DC3B7527349CFE8E4DF3B8C9B4B27B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2A2CB95DBDD34A869532E957C9F1AC7568C2580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Sound
 ```bash
 magnet:?xt=urn:btih:FFB2CD312B9DE8C95BFC8B9A4CC010853457D98D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28B1E83539C8325A8A8C177727AD1255EAC056E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

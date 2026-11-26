@@ -20,8 +20,7 @@ Daff Moon Phase (Фазы Луны) v3.48 Mod by shv7net [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6A6938198C8FD052B8A24B6B5DC5234634688AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53E4EF6CD01242CD7BD1507215B2ED9AC5A338E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ NewPipe v0.28.0 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:00911223E329E1814D863B4BCE595CA695F53B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A2423E2FC2337E1D13803C2FE8B776ED2F06FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ PPlayer v1.32 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1B3A43646409E1F14EA8B48054AE136641AF9B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:4EE14D7C629AC54A08F8BAEED03CA9F9FC8D62A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Blur Text App - Преобразуйте свои скриншоты с помо
 ```bash
 magnet:?xt=urn:btih:599D2CD97DC01EDB508641759AA4D6BBD25CD85E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1663D5FBC8AE73D2FD53B15F8020DA9C8AA59C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:82FD460DD761AA652F22EAAE6B4E7A5A4CC245F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

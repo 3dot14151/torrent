@@ -22,8 +22,7 @@ Blut Aus Nord - Hallucinogen (2019) [FLAC|Lossless|image + .cue] <Atmospheric Bl
 ```bash
 magnet:?xt=urn:btih:F451CBD5F8A1021F649524A900D75C271155A870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Aenimus - Dreamcatcher (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:906B99F6DF1DEB7CDA706266456D81B1924C725A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Archspire - Bleed the Future (2021) [WavPack|Lossless|image + .cue] <Technical D
 ```bash
 magnet:?xt=urn:btih:98027B16BEFBBB6AF411AB096DBCBF5F0F44B3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Maverick - Natural Born Steel (2012) Japan [WavPack|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:59E06C87CAB0CDDD104C0478481B9C82703710A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Maverick - Maverick (2005) Japan [WavPack|Lossless|image + .cue] <Heavy Metal, P
 ```bash
 magnet:?xt=urn:btih:A48AB457441926A87D845E018521FCFC6269D895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Decapitated - Nihility (2002) German Special Edition [WavPack|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:1EA0BB8DCBFCE813CBAC22E0F99C79B346FE3D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Cat Stevens - Teaser And Firecat (1971) Reissue, 1987 [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:BCC4CC4F1B4E9F5EA99AB42FCF58B11F07AFB154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Eclipse - Wired (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Ro
 ```bash
 magnet:?xt=urn:btih:CCFA2BC0A9C823448D48D588F88F90ACE016FC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Byrds - The Very Best Of The Byrds (1988) [FLAC|Lossless|tracks + .cue]<Clas
 ```bash
 magnet:?xt=urn:btih:1C9D7235ECAAAC375563428CB00BAC5A0C7384B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Bullet for My Valentine - Bullet for My Valentine (2021) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:30D93351431C2D84CA2A8DA5DE665A684A8F4ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

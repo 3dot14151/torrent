@@ -19,8 +19,7 @@ A-PDF To Black/White позволяет конвертировать цветн�
 ```bash
 magnet:?xt=urn:btih:14927467CCBC51C6436F10555EDC9615828505A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

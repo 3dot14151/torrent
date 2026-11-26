@@ -19,8 +19,7 @@ Plants vs Zombies v1.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:5F25B09223F1374CA462007BF86D7A1D6036E1CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

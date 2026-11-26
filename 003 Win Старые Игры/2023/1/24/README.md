@@ -19,8 +19,7 @@ Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
 ```bash
 magnet:?xt=urn:btih:2D96A43195C51ED679CD899C31EE29F88CC2AEF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

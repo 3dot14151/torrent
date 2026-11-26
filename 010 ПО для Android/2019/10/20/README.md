@@ -19,8 +19,7 @@ Mandala ColoringBook v1.2 [Ru/Multi] - раскраска
 ```bash
 magnet:?xt=urn:btih:4F806EC9832196C5BA7CEA92534F707F709A1E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

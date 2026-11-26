@@ -19,8 +19,7 @@ Travelogue 360: Paris / Приключения в Париже (P) [En] 2006
 ```bash
 magnet:?xt=urn:btih:6DB8A80E5ED08F97861BE850C622F9D7829660F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blood and Ruby / Кровь и Руби (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D9B5BFAB835CD8A359326D53A6C4D36256967176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reincarnations: Awakening / Перевоплощения: Пробуждение
 ```bash
 magnet:?xt=urn:btih:826606B614B4FC732D622C63E613E3E2E617AC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Update для Portal 2
 ```bash
 magnet:?xt=urn:btih:093C61329FEEC351319F80263AFBD78DE22EA31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Pure [Ru/En] (Lossless RePack) 2008 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:328FA1E0E0CBA6E8D31E1608A8E20B2C100DCB81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

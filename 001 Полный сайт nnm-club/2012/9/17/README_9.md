@@ -18,8 +18,7 @@ Kaspersky Small Office Security 2 build 9.1.0.59 RePack V3.2 by SPecialiST [2012
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Black Mesa (ранее известная как Black Mesa: Source) — рем�
 ```bash
 magnet:?xt=urn:btih:063EDF58F7E375197AFB094C8C322F47A9FD37CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Microsoft Office используется более чем на 1 млрд. П�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ WINDOWS 7 ULTIMATE x64 REACTOR FULL 9.12 [русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

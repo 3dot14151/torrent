@@ -19,8 +19,7 @@ Sacred Citadel (2013) [Ru/Multi] (1.0 upd1/dlc) License PROPHET
 ```bash
 magnet:?xt=urn:btih:221EE9A1623FBA8236EA777116BA035F5C494674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Marc Eckō's Getting Up Contents Under Pressure (2006) [Ru/En] (1.0.0.1) SteamRi
 ```bash
 magnet:?xt=urn:btih:F78A1B9DA596A4EBA32C3AC52382DC175AD1B707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Metro Dilogy (2010-2013) [Ru/Multi] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:53A19859B268F0DB437363DBFF9BF384428FB2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

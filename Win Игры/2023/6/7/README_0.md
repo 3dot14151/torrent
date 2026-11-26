@@ -19,8 +19,7 @@ Tin Hearts – это адвенчура и по совместительств�
 ```bash
 magnet:?xt=urn:btih:2E893CF552F8FE0B49D4E6B0D01CC9255B0B48F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bread & Fred - это сложный кооперативный платформ
 ```bash
 magnet:?xt=urn:btih:70C9F9C405DCE7C75C53EF7C685DE2F69337D6BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Amnesia: The Bunker - хоррор от первого лица от созда�
 ```bash
 magnet:?xt=urn:btih:10BEBFED201B7CCB420FD7925E6806D0EBD0ADCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Legend of Radiance - это хардкорный ролевой экшен, гд
 ```bash
 magnet:?xt=urn:btih:6DCB97A238F3AA51823152E390757150F2EFEB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bastard Bonds - это тактическая ролевая игра с пер�
 ```bash
 magnet:?xt=urn:btih:ADD1C47E1CB4ABD7DFAF3AE5F323FF0913739783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ We Love Katamari REROLL+ Royal Reverie - это обновленная верс�
 ```bash
 magnet:?xt=urn:btih:BD1FC9C434A3CC312B2EA914E77742D0C58A2CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

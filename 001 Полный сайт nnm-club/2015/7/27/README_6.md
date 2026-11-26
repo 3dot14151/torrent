@@ -19,8 +19,7 @@ Sasameki Koto / Whispered Words / Я тихо прошепчу [2009, TV, 13 ep]
 ```bash
 magnet:?xt=urn:btih:F28B44EDC1EDDEBEC2B0216F2AF1411A445B832E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D93072AE7BA48D350E1771876CDBF5E26FEDAA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ BBC: Освенцим (Аушвиц). Окончательное решение 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEE9C08FFC211A06B7A3585940002DB4AC51C245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44FF8D244292640B057F7B71560573550D20D497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.6/dlc) SteamRip Let'sРlay [Digital Del
 ```bash
 magnet:?xt=urn:btih:056F45BF2254B6B98A273DEEA4FD371631414BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33C7E5A48F190673706F69755B82EB90318DDA6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Microsoft Windows 8.1 Enterprise with Update3 x86-x64 Ru by OVGorskiy® 07.2015 
 ```bash
 magnet:?xt=urn:btih:07EEFA65189D2B1E3913FF98A57770D23BA1C491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57603C54A3D7160B8A62B387D75301AAD978E6C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ FINAL FANTASY XIII/13 (2014) [Ru/Multi] (1.0/u3) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:6D6D52E20B2D17EA85563F49E6380E67CB0258F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Windows Server 2012 R2 - это проверенная масштабируем�
 ```bash
 magnet:?xt=urn:btih:03D5FF2A137DC9C935CFF045BAF82921AA7B24C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

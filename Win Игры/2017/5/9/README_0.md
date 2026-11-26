@@ -19,8 +19,7 @@ Bayonetta (2017) [Ru/Multi] (1.0) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:DE2DDBDC028E1C5C298BB27243CB67836B696381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

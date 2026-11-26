@@ -22,8 +22,7 @@ Amelie:
 ```bash
 magnet:?xt=urn:btih:BAB010A5C34D01B806474B0667DA8D70640B3E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Act One: Sailing For Parts Unknown!
 ```bash
 magnet:?xt=urn:btih:F524626913A5C28A9CDFFF6378E8E0480E34E0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Avast - Mother Culture (2018) [FLAC|Lossless|tracks + .cue] <Black Metal, Blackg
 ```bash
 magnet:?xt=urn:btih:86E98C3C9B7B9D5502E0D4F82EB1917F16A3C7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Phil Campbell and The Bastard Sons - We're The Bastards (2020) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:1BC18AF797DC5418D418AC1E7E5972C89CFA4E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

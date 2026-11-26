@@ -18,8 +18,7 @@ Opera - один из самых быстрых и гибких в настро�
 ```bash
 magnet:?xt=urn:btih:2DF1A9CDAE3C3499148888AD7436BA0A9FC3CBA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ AutoCAD MEP помогает проектировать инженерные с�
 ```bash
 magnet:?xt=urn:btih:1528336175178A8F674A2EC2FC9B56507DB4BBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Jaws for Windows - самая популярная в мире программ�
 ```bash
 magnet:?xt=urn:btih:A2B32CE8C7623E3F8FF034237BAF2AE4751B3336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ EaseUS Partition Master — удобная программа для разби�
 ```bash
 magnet:?xt=urn:btih:B72C5D81960D465DD4CBC78BF604CC0A7B096C53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Battlepillars – ожесточенная аркада, в которой ва�
 ```bash
 magnet:?xt=urn:btih:9175311881F9134CF353514AD89ED435991ECFEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:904EFF335E69814B6538C544CC66633A9EBF0A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE18977DA8879B7BE332AFB3B280B6B22EEBF8CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DE5662B045F71310287D1D161859BD8422F5744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D89B1B5C02F26E4DC43E61564AB63D71E0C9994A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ WPI DVD v.03.05.2014 By Andreyonohov & Leha342 [Ru] (Авторская разд
 ```bash
 magnet:?xt=urn:btih:207EE3D6F4500DB31DE1D43A7E41E3C94FA6DBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ The Quake Collection - это собрание всех игр из серии T
 ```bash
 magnet:?xt=urn:btih:535795D499C262198B28944160CA37891D097A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Medal of Honor Airborne(   Читать дальше...   )Тип издания
 ```bash
 magnet:?xt=urn:btih:961F152B775A1707B771D0D893832426FBB0AAE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Dune Anthology - это собрание всех игр из серии Dune. D
 ```bash
 magnet:?xt=urn:btih:09B89F93C043C11D92CFEF0D8132B009E9C4EFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ Tom Clancy's Splinter Cell: Blacklist [PS3] [EUR] [En/Ru] [4.46] [Cobra ODE / E3
 ```bash
 magnet:?xt=urn:btih:6EC50092A7244FC97A37245D9C0A4AFEF8360782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B54482B4364B0E8E28031A1043A1C4635BFF0065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ iSpy - программа, которая с помощью микрофона �
 ```bash
 magnet:?xt=urn:btih:9750D331678027F5AEFE7C01FDA53A325CBF633D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ Microsoft .NET Framework — программная платформа, выпу
 ```bash
 magnet:?xt=urn:btih:16FA1826BBEEBFDBEAA252200891464345A0E7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ Wise Folder Hider поможет вам спрятать важные файлы
 ```bash
 magnet:?xt=urn:btih:BEC421D8C6E9552E41CA085C4F5EC5E3C6FD2EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ Mafia 2/II (2010) [Ru/En] (1.3/8dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:4499C765A309B33E83D388EB5309E568FB45BC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ KeyCheck - утилита для проверки лицензионных кл�
 ```bash
 magnet:?xt=urn:btih:43F07CD6BF537CC1299D347897CE31D8F7F3E82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

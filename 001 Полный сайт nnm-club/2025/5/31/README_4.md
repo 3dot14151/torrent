@@ -18,8 +18,7 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:809B2669604F787AF9430AFB9528224252F00A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Music News For Forum vol.095 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:8CD9E2C37408D481187F54341ADD5C8E0D965E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Golf With Your Friends (2020) [Ru/Multi] (19.981700/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:586EAB9C84732B7EBE4AB96809DDFD3C0AC32FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Rivers of Nihil — американская дэт-метал-группа из
 ```bash
 magnet:?xt=urn:btih:E5B4C9724DA3096A891A411BFBF15D99581A6AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

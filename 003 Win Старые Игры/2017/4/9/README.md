@@ -19,8 +19,7 @@ Baldur's Gate II: Shadows of Amn / Baldur's Gate 2: Тени Амна (2000) [Ru
 ```bash
 magnet:?xt=urn:btih:95DCA453A7F716C8F74CEFB999FBD7FDE845B6B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

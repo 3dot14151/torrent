@@ -19,8 +19,7 @@ BloodLust Shadowhunter - это ролевой dungeon crawler, в которо�
 ```bash
 magnet:?xt=urn:btih:CD30A4DB6785E32A04E4116CCD995935C625748C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alien Breed 3: Descent - шутер от третьего лица, в кото�
 ```bash
 magnet:?xt=urn:btih:E3E9AA3B2F77ED101C475AB95FBC61533008BB9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

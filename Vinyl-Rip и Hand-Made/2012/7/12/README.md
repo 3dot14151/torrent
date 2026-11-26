@@ -28,8 +28,7 @@ Gamma Ray - Land Of The Free II 2 LP (2007) [FLAC 2.0 24/96|image (Vinyl-Rip)]<H
 ```bash
 magnet:?xt=urn:btih:5DDACD28EECE00B62B692568C8FFCE7644694D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

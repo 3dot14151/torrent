@@ -19,8 +19,7 @@ Do It Now: RPG список дел, ежедневник, планировщик
 ```bash
 magnet:?xt=urn:btih:B43A543377E60114C1C0C5183A55D112B76C90A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B9D3BC66A3D8D1EAD0186DD0A1A427D43DF45A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

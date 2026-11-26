@@ -19,8 +19,7 @@ Labyrinths of the World 2: Forbidden Muse / Лабиринты Мира 2: За�
 ```bash
 magnet:?xt=urn:btih:159B9DDF6750D394796BBF1E20E75ABC86F25F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

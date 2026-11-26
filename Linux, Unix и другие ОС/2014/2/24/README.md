@@ -23,8 +23,7 @@ Jondo Live-CD / DVD предлагает безопасные, предвари�
 ```bash
 magnet:?xt=urn:btih:B5ADA39F128A4D002E7BAD1DA08713F85F3354F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Scientific Linux 6.5 Cyrillic Edition [x86-64] 2xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:BD8C7F4B146BC8A16BA948CC394E313E1B54252C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Scientific Linux 6.5 Cyrillic Edition [i386] 2xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:21BE54C38D4DA2631BD7A26BAD2A92C3D5975C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

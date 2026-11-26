@@ -27,8 +27,7 @@ Viikate - Kymijoen Lautturit (2013) [MP3|320 кб/с]<Melodic Heavy Metal, Folk 
 ```bash
 magnet:?xt=urn:btih:BCA10170C2080D6B8A3514F066D6820F13C6C2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A1D536C0A7A3D13A51A03D4DC995FFD89D37E01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18FB4B2CEF3A71AD10EEB0592D74E87EC5262C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30E048EF49F2AD3FA52BC87670332953AF587E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BAB3EBC8302540E99EB130A7C8ABAADFB0F692C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Enrico Pieranunzi - 3 альбома (2008-2013) [FLAC|Lossless]<Contemporary Ja
 ```bash
 magnet:?xt=urn:btih:766BF6C50AD54C017E73EAC58CC6D76F0B8AABE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22C03A9833B8B5943A678784154B72819E323B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Dubstep Floor Fillers 2013 Vol 2 (06.08.2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:4B131A1325751EC3848346B1A6B2283FD7B33261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64E58AE7F2B6AB81447D2D6927598BB2CAF75708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ VA - Chilling Emotions. Vocal Dreams (2013) [MP3|320 кб/с]<Chillout, Downtemp
 ```bash
 magnet:?xt=urn:btih:527D34B6DFBA7C2FB9D792DC7D5F0064D7ECE868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ Giles Corey - Giles Corey (2011) [FLAC|Lossless]<Acoustic, Folk, Slowcore>
 ```bash
 magnet:?xt=urn:btih:F107EF59615E13DBCE0EF2263128F3A7E521DB5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ Katatonia - Dethroned and Uncrowned (2013) [FLAC|Lossless]< Depressive Rock / Me
 ```bash
 magnet:?xt=urn:btih:BD39CE17CBC5C50C29434182EEC55C84337CCA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ MediaCoder является универсальным программным м
 ```bash
 magnet:?xt=urn:btih:EB69181C87077EFC0CD58E59CA0339146AF5AB78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ VA - The Guitar Album (1997) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:3C0A9777CE9FCB47E4DEF2931024AC00C820329E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF6111FDBF00B736631F8A29E9007C106AD4B3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ VA - NRJ Party Hits (2013) 2CD [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:463DD0F116ECD6F75E019B8FE905C739FEAE2DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ VA - В Моей Машине 50/50 (2013) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:4BC20EB5B8422E68BFBC6081405CABBC2FC70CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EB292776A74B7D315D88111967CA795F4A115A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F974642762C5C956DB8A7AC9ED0A2DA01C11ED8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ Junior Wells - Hoodoo Man Blues (1965) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:DBF4CB3D6E8B578ED99467AAA2176F3211B7069C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +616,7 @@ Aventura Loca - Erotica Vol 1 - The Erotic Moments Of Life (2013) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:D389B3AC5A7950CBBC6E71EF56912BD079D9696F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ VA - Хит-парад Осенняя Top 100-ка (2013) [MP3|256 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:B764EC3E183BD07DB507D579358755CB521E17DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CDF34BE58F81D499B6FBBB05617D702AC6E64E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ Photo Collage Max – это удобная программа, которая �
 ```bash
 magnet:?xt=urn:btih:54325893475C6F41083BB001AA8A328D05365B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA1C84F65EB965215A3F866FD29F6FFDD738A9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:796E7E8FAE54C291567464FAE39C7B1F03367408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

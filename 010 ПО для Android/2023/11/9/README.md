@@ -19,8 +19,7 @@ VK X 6.6.2_pub [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5CA91D3A70BDB98D396E14A2925849871FCAAD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CapCut — бесплатный универсальный инструмент 
 ```bash
 magnet:?xt=urn:btih:622645D813BEA63006EC884AF6CECB369D2438FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

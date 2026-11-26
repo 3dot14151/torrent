@@ -19,8 +19,7 @@ Starri - это ритм-игра, управляемая телом, в кот�
 ```bash
 magnet:?xt=urn:btih:33E30AEB4262C99E7BD13DAE65D7F7F12E1D524C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:04BD140EFB59FE636958D3608740F778C2A6EA93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Silent Hope (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:1101079059577FC0C581BA1C43447583028FB116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

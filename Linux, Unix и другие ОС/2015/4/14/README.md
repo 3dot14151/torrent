@@ -19,8 +19,7 @@ Scientific Linux 7.1 (w. LiveDVD) [x86-64] 3xDVD, 1xDL DVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:AF04870AE19C64257A57760E31E05CEA411A5E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

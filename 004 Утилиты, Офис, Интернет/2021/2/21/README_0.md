@@ -19,8 +19,7 @@ PDF Candy Desktop — универсальный инструмент, кото�
 ```bash
 magnet:?xt=urn:btih:7608FDFCF4C2DDDFC5BFBFA6F9239688EAC177DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ R-Drive Image - отличный инструмент для создания ф
 ```bash
 magnet:?xt=urn:btih:7BD337F302774812AFBA0ED306E93774C6C75CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

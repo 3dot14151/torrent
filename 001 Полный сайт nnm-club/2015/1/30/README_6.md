@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0DB6332C5C35BE8ADDF770A390777D30C72D1C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C716D6D8E1BA38B9AF844D0E1B97C2FEB215576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:215D495B69F96AA1607BE7D02F38850F924EDA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Voice Changer Diamond Edition - это настоящий прорыв техн�
 ```bash
 magnet:?xt=urn:btih:B4784BB2B9B91F5CAD5D5DBA1D2754140DACD314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Heroes of Might & Magic III – HD Edition/Герои Меча и Магии III
 ```bash
 magnet:?xt=urn:btih:29620D7916F87FE1B339F4100944D821324B3B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

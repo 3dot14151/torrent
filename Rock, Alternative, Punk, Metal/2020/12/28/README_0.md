@@ -22,8 +22,7 @@ Clouds - Clouds Acoustic (2020) [MP3|320 Kbps] <Atmospheric Doom Metal, Acoustic
 ```bash
 magnet:?xt=urn:btih:B2DC5C5234B24CA855DF394B211849B676BF8EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Vazeline - 2 Albums (2019-2020) [MP3|320 Kbps] <Punk Rock, Post Grunge>
 ```bash
 magnet:?xt=urn:btih:3B4268C7FD3428BAF0A6932B4F1837319CD909D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Trishula - Time Waits For No Man (2020) [FLAC|Lossless|image + .cue] <Melodic Ro
 ```bash
 magnet:?xt=urn:btih:93E5B8232965E78C55ABE63DECEA6EB95E5302CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:8FDD19B0BB48524F8D306E9A25ABD4B8A2C10EC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ SvaDaRa - Pilgrim / Зареница (2020) [MP3|320 Kbps] <Progressive Folk Roc
 ```bash
 magnet:?xt=urn:btih:AF89E93336E3A20FF17A5AAB09AFCDA145F2E78E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA9550E45F69F7DA8C4AC240116002CA25D842EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Ghostbusters - Семь (2020) EP [MP3|320 Kbps] <Ghost-Punk>
 ```bash
 magnet:?xt=urn:btih:D704F5548D33F40D9AD89C1704282D070DEADC31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

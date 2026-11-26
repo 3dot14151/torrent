@@ -22,8 +22,7 @@ Vetur - Nætur, Vist (2018-2020) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:3EBDCAAA3546B452F74BD61878250BA19F0FD8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:BCE294042E5CE57065E3604E8D6CBF5B39702E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mo
 ```bash
 magnet:?xt=urn:btih:06954EF68D296C0D7D3A4B50BEF9A3FF773C81D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ The Last One - Discography 3 Releases (2019) iM Electronica, opn g8s [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:3FEC4D4553C6F122FC23A3EE3FFA3C4069BA219F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:0AA2632913106621E581D375E23A07B21D3AF681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Paul Pearson - Live @ Subteran, Joshua Brooks Manchester, United Kingdom 2020-02
 ```bash
 magnet:?xt=urn:btih:0C31F0C455C7E26275B5BCF7CA433E16B1154F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Kryder - Kryteria Radio 228 (Rusty Trombone Edition) 2020-03-04 [MP3|192 Kbps] <
 ```bash
 magnet:?xt=urn:btih:7A96B06BA27160A1221885192F33E2C8F3E1CCD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Juelz Santana - #FREESANTANA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:1A0A860B516D8EC4CB36840A90EA18FC73C7553B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:174304F6ABB80AC6AACB93498EEF5856624BEACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35498DAC031D3D5500642520EF30AC848BD5266D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Sixsense - Energy Source (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progr
 ```bash
 magnet:?xt=urn:btih:5E99A7BD476D24F86E250FA8C572725DB08C33FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ VA - Ingenious Pleasure, Vol. 4 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Instrumenta
 ```bash
 magnet:?xt=urn:btih:8383305770704041AB0A7F67911FFB21F2EF09E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Sergey Golovin - Sense Of Reality (2012) [FLAC|Lossless|Web-DL|tracks] <Instrume
 ```bash
 magnet:?xt=urn:btih:D9084E1806CD9511B0203E5706E21B9577EAB935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Numi - необычный калькулятор, который "общаетс
 ```bash
 magnet:?xt=urn:btih:776ABE39C761B02C6F3093C9609E658325A60CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2541B05CDB11C0F2650ECA6ED75A57C99A01F42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00A61FC2988595F9173860716CE50035F39CC90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Evanton - Colors - The Best Of Evanton (2016) [FLAC|Lossless|WEB-DL|tracks] <Syn
 ```bash
 magnet:?xt=urn:btih:6C4F15D5239E7516CA06068AA59A5E96F1C70DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ BONES - BRACE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:95A24E3D60B7C1CF78ECA8E96F3C29CB59667268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ Antivirus Zap - небольшая утилита, которая проскан
 ```bash
 magnet:?xt=urn:btih:7D5BFB9CD1EF0BAFAA29DC6CE120A6FD7936BBA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9077220E195C18DC953D49F8121AD86820B0722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A1C70072DE602C4EBE8CA0629A0B870D1B027EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Atongmu - Voice of the Sky (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Pro
 ```bash
 magnet:?xt=urn:btih:36C4A770FB81D81DF24893A51C23F7BDB0A3D813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ MacBooster поможет настроить и ускорить работу ma
 ```bash
 magnet:?xt=urn:btih:1A4E09DFE5F50A94D615CD8EA5CD6C4417C034ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ Almanac - Rush of Death (2020) [MP3|320 kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:4220DD8445D53D7A7F84AB14E50C1CE0C3608391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ Evanton - Stretch It (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, 
 ```bash
 magnet:?xt=urn:btih:2AE30A2987067CB7F344AA8CF82A1A29B3EEB68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Evanton - Flavors - The Best Of Evanton Vol.2 (2017) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:EE4690A23E652CB887929691D8B35B9B9000C46F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

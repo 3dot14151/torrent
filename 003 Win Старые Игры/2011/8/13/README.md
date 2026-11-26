@@ -19,8 +19,7 @@ Anachronox — трёхмерная компьютерная ролевая иг
 ```bash
 magnet:?xt=urn:btih:8529EC8995E83070E57203CD1477366880EBDD8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

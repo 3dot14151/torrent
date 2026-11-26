@@ -25,8 +25,7 @@ Cпустя неделю после выпуска первого кандида
 ```bash
 magnet:?xt=urn:btih:AD9EBA079F89D1DFF5643591F08B73368BC26B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

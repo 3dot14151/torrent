@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Don't Ever Say Riotous Outburst Records Never Gave You Anything Part 7(2014
 ```bash
 magnet:?xt=urn:btih:7B3CB6C59330B3F03FD2A0123BAB63C1CFAA4E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Entrails - Resurrected from the Grave (2014) Demo Collection [FLAC|Lossless]<Dea
 ```bash
 magnet:?xt=urn:btih:96C0E2FDB85FDFB1CB79D3B35EA45BD06E81F68E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Evil United - Honored By Fire (2014) [MP3|320 кб/с]<Heavy Metal, Thrash Metal
 ```bash
 magnet:?xt=urn:btih:FD4F7AD4D3CC6B4FA578EC7F45F33DB6DAB3E5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Cymbals Eat Guitars - LOSE (2014) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:ECB26B6ED8BDCD2431A8595BC5DEBA4092A39DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ VA - Hot Music Selection Vol 1 (2014) [MP3|320 кб/с]<House, Progressive House
 ```bash
 magnet:?xt=urn:btih:DCFEC88250E576493F03BE7A0C4EA0701E26B9FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF59E812A4BED234AB699BFC3C0EE996B27D5DA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1670EDDE25173060A16C8EB7533352826F950AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ Synthetic Epiphany - Aeternum (2014) [FLAC|Lossless|WEB-DL]<Chillstep, House, D'
 ```bash
 magnet:?xt=urn:btih:5BBC555840C833ACC5BA15D4750244D6273015E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ Eddie South & His Orchestra, 1931/33
 ```bash
 magnet:?xt=urn:btih:68EC888B11C9B037C3F909CF589F1BF027853638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ Age Of Artemis - The Waking Hour (2014) [MP3|320 кб/с]<Progressive Metal, Pow
 ```bash
 magnet:?xt=urn:btih:AC3F4B37A7248D5DF786E1793426FEAA20547D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13EDBC61749024FF46D5B4A291486E7482D2F53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:029FA3BF058E0A30A7B0E62A3134D182C94BA52C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ Undoxone - TITANS Inside Earthman (2014) [MP3|320 кб/с]<Drum&Bass, Neurofunk,
 ```bash
 magnet:?xt=urn:btih:A099DE3178D9B062DDF09E9D2BA466127414D812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D3BCD9DF09947B861E93F0F550BD7D2D3604858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ Together для Mac OS - Программа для хранения и орга�
 ```bash
 magnet:?xt=urn:btih:400995673C450C8BEC7558B697AC68F05703E19A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ VA - Music For Everyone - Electro house & Progressive Vol.2 (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:C41F93587B08E6289342669FEE6249E8DA984B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +565,7 @@ Sidney Bechet - At The Jazzband Ball (2001) [FLAC|Lossless]<Jazz, New Orleans Ja
 ```bash
 magnet:?xt=urn:btih:703C453E7E32FEE4E2F320E5D3C680AE50060270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0FCF0710E8B2E6374760BAFB788DC3761148C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ Rome - A Passage To Rhodesia (2014) [MP3|320 кб/с]<Neofolk>
 ```bash
 magnet:?xt=urn:btih:C507AAB1A259B1B5363FFF7FA72A14359F83C9F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +667,7 @@ Globalix - Кинороман (2013) [MP3|320 кб/с]<Electronic, Downtempo, Am
 ```bash
 magnet:?xt=urn:btih:D4D1B56246CC9C1C2296EB32DFCEA3E6E141FD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EEC15DADFA99B56570673FB7621871E99DEDCA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +726,7 @@ Deus X Machina - X (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:F5A7876F77B58CDBEB9D2778D76187A3CAEF5EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +760,7 @@ Ella Fitzgerald - The Young Ella (1993) [FLAC|Lossless] <Vocal Jazz, Swing, Earl
 ```bash
 magnet:?xt=urn:btih:DCB2716E93F50D060F0507A60B198D80105CB236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -819,8 +794,7 @@ Crepuscle - Draconian Winter (2014) [MP3|320 кб/с]<Symphonic MDM>
 ```bash
 magnet:?xt=urn:btih:944BBB46B369C7B79CD44BD0A23F47E20388C813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

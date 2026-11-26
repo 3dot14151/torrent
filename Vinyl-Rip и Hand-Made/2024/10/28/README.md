@@ -21,8 +21,7 @@ Witchgrinder - метал-группа из Мельбурна, Австрали
 ```bash
 magnet:?xt=urn:btih:14C7D58782549F7E12560B20F8A0771D54FDAC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

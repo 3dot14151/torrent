@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:0D7270DA6D30CB881A12FB48D5F37622CC6603F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Bomg - Polynseeds (2013) [MP3|320 кб/с]<Psychedelic/Stoner/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:0713B563CE550F15AFDAC792D81A827334ABD0F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Exilia - My Own Army (2009) [FLAC|Lossless]<Alt.Metal | Nu Metal | Female Vocal>
 ```bash
 magnet:?xt=urn:btih:B3336C5D9E4F60426CBD70D7E8D56CC5EB6A044B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Eldest 11 - Message to U (2011) [FLAC|Lossless]<Alt.Metal | Modern Rock>
 ```bash
 magnet:?xt=urn:btih:5E23FCDA70760BE4B0FE0C3DBC9BEDF7D7D69708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ HighKicks - HighKicks (2013) [MP3|320 кб/с]<Stoner/Fuzz Rock>
 ```bash
 magnet:?xt=urn:btih:DA9EB65C38D5125B54236C11C57BBDB135AE56E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Causa Sui - Europie Tide (2013) [MP3|320 кб/с]<Psychedelic/Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:5EA3F21F537D585BEBE5CCA16B51043B1E7F0144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Find Me - Wings Of Love (2013) Japanese Edition [FLAC|Lossless]<Melodic Hard Roc
 ```bash
 magnet:?xt=urn:btih:FB5A9FC9029282F5C02F0CC2A13242A240EDC90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Watain - The Wild Hunt (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:5090A81432DE62EE81187117E166A3C68CB916A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ One Ok Rock - Jinsei x Boku= (2013) [MP3|320 кб/с]<Alternative Rock, J-Rock>
 ```bash
 magnet:?xt=urn:btih:4BCF15644577038DA5263CC1BE5327DC31814866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Dead Letter Circus - 3 Альбома + 2 EP (2007-2013) [FLAC|Lossless]<Alt.Roc
 ```bash
 magnet:?xt=urn:btih:2CC1012F1733488A0FC9411C8BB6B16C46716BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

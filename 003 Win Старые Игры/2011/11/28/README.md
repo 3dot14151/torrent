@@ -20,8 +20,7 @@ Big Time Software сделала самолетные бои с малыми э�
 ```bash
 magnet:?xt=urn:btih:1602A5EDB833997018CBAFB425F13916410BB4FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Quest for Glory Антология [En/Ru]  (RePack) 1989-1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:BBD27E6D82CEA99535CA1D445CA590E08974AA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Mafia: The City of Lost Heaven / Мафия [Ru] (RePack) 2002 | R.G. Element Ar
 ```bash
 magnet:?xt=urn:btih:7B32D7907D57C5F008C6A6795C586F2ECC1D1326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

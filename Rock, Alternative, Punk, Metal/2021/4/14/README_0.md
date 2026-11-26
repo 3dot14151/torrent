@@ -22,8 +22,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:CE9BA23CF135ED1EC12FD6FB9C10DBE34622EFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Rasmus - Black Roses (2008) Japanese Edition [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:087197F0C881C5B7CA8FA6CEB036692B358D09C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 1 - Pansarfolk (Svitjod Edition):
 ```bash
 magnet:?xt=urn:btih:50BF3254F7FDAEDD39A229F193B1AF7F28693CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dominoe - The Lost Radio Show (2018) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:106A70B3F61B98126CA442144FF2F6C0B416B7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

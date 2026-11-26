@@ -22,8 +22,7 @@ VA - Мамина Пластинка (1991) Compilation [FLAC 2.0|96/24|image +.
 ```bash
 magnet:?xt=urn:btih:F4AD04C121AD55CCD779A5F7B3426D392DF983E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:0FF97FD297DB38981A34383235C5A90909FA6EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tooth and Tail построена вокруг экономической мод
 ```bash
 magnet:?xt=urn:btih:5A66E0389E24540B49176381C78B6D69E675EE5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

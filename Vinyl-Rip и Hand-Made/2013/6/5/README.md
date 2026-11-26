@@ -19,8 +19,7 @@ Muse - 4 Альбома (2001-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Alternat
 ```bash
 magnet:?xt=urn:btih:11B96F35161B6272AF4CDBE00057B47C5CDCCEF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

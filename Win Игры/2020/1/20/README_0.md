@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EDF855CA823695170335B338266DD49A81A0C2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Trackers 17: The Secret of Watch Hill / Охотники за тайна
 ```bash
 magnet:?xt=urn:btih:DFC76DA202C1B0B4A2929E01FB3CEF9B5B55431D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TORMENTUM — это полная мрака приключенческая иг
 ```bash
 magnet:?xt=urn:btih:8666EF4ACB3E64B37C06B4CF9A3523059AD7BEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cooking Simulator (2019) [Ru/Multi] (2.5.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:9603A0EB31B29469C3829A3CE08C6C587956AACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Last Day of June (2017) [Ru/Multi] (5.6.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DDC8A9C31A694395E6F30D0E4690A7EEDBA9DD98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

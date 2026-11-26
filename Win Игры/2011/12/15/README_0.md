@@ -19,8 +19,7 @@ Fear for Sale 2: Sunnyvale Story Collectors Edition / Страх на прода
 ```bash
 magnet:?xt=urn:btih:88E16A898F200EDE031880BFF4419BDA9611E229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fear for Sale 2: Sunnyvale Story Collectors Edition / Страх на прода
 ```bash
 magnet:?xt=urn:btih:195BE9A18456317BDC2FFC96377B8664A3F2E359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Golden Years: Way Out West / Золотоискатели. Путь на Д�
 ```bash
 magnet:?xt=urn:btih:8933B84550604FF7B12796E15FD0BCE6283F0EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

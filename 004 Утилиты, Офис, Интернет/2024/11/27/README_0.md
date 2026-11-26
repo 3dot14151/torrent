@@ -19,8 +19,7 @@ RJ TextEd - мощный текстовый редактор с большим �
 ```bash
 magnet:?xt=urn:btih:E5E7227949D070D078BC153842BD4B6E5229601F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

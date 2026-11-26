@@ -20,8 +20,7 @@ Firefox и Thunderbird возвращаются в Debian с выпуском St
 ```bash
 magnet:?xt=urn:btih:FBD1538FAC8C87A91529DEF63DF1FEB4A7670E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ PCLinuxOS - один из самых популярных на Западе ва
 ```bash
 magnet:?xt=urn:btih:24083F4DAD26D0E158FA073BFF77708FCB892A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

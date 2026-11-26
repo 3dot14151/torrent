@@ -19,8 +19,7 @@ Abyss: The Wraiths of Eden / Бездна. Призраки Эдема. Колл
 ```bash
 magnet:?xt=urn:btih:98F0A63984084CAC8E567F8C7936D13C3639A433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Ultimate GZDoom [En] (P) 1995-2013
 ```bash
 magnet:?xt=urn:btih:D1D40BA77A5DAD40C25C1598AE859020F0C64F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Cities XL Platinum позволяет проектировать, строить
 ```bash
 magnet:?xt=urn:btih:52FCD5546B9C8AB4F77CCE6F4919A3327344C9EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

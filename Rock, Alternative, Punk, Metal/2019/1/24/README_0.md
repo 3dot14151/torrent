@@ -22,8 +22,7 @@ Bazooka - Bazooka (2012) [FLAC|Lossless|tracks + .cue] <Garage Rock, Psychedelic
 ```bash
 magnet:?xt=urn:btih:2787C8792ED5576B76DFAB54201BE9B1F0F44176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ottone Pesante - Apocalips (2018) [FLAC|Lossless|tracks + .cue] <Black Metal, He
 ```bash
 magnet:?xt=urn:btih:EC570845F24A5FE0EAD7C94D3EAD97DA2BA9544C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Mastodon - Radio Sampler (2006) Promo, Sampler [FLAC|Lossless|tracks + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:960FDB34918524529F049F4F4204C22E8D475298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Clandestine Blaze - Tranquility of Death (2018) [FLAC|Lossless|tracks + .cue] <B
 ```bash
 magnet:?xt=urn:btih:5051C5057AFE1C4EBC9BBC898BDBFA81347A2F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Lorelle Meets The Obsolete - De Facto (2019) [FLAC|Lossless|tracks + .cue] <Drea
 ```bash
 magnet:?xt=urn:btih:11F3D2D3510276B943FE367765A04BF3817BCB06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Missy Higgins - 18 Releases (2003-2018) Коллекция [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:96F8C6FC5B7B2F70DF2D42404311FB0B6AFE2A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Weezer - Weezer (Teal Album) (2019) [FLAC|Lossless|tracks] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:A4A40D5679B0F848DEB1192A9A6986712EA62AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Shadows Fall - 13 Releases (1997-2012) [MP3|~245-320 кб/с]<MDM (early), Metal
 ```bash
 magnet:?xt=urn:btih:74B3B7B02AACCEC4EC34F3FC42AF00076029ECEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Bring Me The Horizon - amo (2019) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Alt
 ```bash
 magnet:?xt=urn:btih:9AC5DD49A2C52BBFB5DCBCBFAD23F3888EFC5E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Rival Sons - 6 Albums, 1 EP, 1 Compilation, 1 Live (2009-2019) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:6399B36A7FF75264AB7359FD7D651F4B9E097DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

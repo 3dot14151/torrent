@@ -22,8 +22,7 @@ Eric Clapton - Reptile (2001) [FLAC 2.0|88.2/24|tracks|DVD-Audio] <Blues, Rock, 
 ```bash
 magnet:?xt=urn:btih:3FBD2F24170CB5AADDB4B7E01B27D115C6C1DA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

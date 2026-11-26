@@ -20,8 +20,7 @@ Uncom OS — операционная система для компьютеро
 ```bash
 magnet:?xt=urn:btih:98480C85897EB96820784EADD31AE61917F5104B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

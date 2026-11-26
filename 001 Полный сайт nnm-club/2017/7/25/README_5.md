@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E9F68194A8A2C817400BEEEEAD28A6946A5F86B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Sunset Session (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:EE063D04B78812768F9802CD09AD15F5E8DFEA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Thiago Brey - Ablantis (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D5C0C3D155B106A9D5F8493363272DAE0BB7F0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD1 - Movin' & Groovin' and Us Three:
 ```bash
 magnet:?xt=urn:btih:23C38702F3166A1B410F59F7BE1B5834B4D29AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Hush Digital Summer 2017 [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:B9DED7B8C03B77E55F787E9DFCE03936DE8D279D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Precious Lounge Vol.05 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:9F5AE2BFA011A652C34D5F0BC0884CE681E3CA8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Progressive House Summer Essentials (2017) [MP3|320 Kbps] <Progressive Hous
 ```bash
 magnet:?xt=urn:btih:541506E385DD98EC44335607274CE416ECD4FD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Hedge 1.8.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C7437475CAE50912CC8B2B9010DEF96F11128F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - House Fiesta Ibiza 2017 [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:C164411EE487CE325D30506DE740368B856CD994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Paolo Fresu & Omar Sosa - Alma (2011) Bonsai Music [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:524F25614448A3ABCDED869F058C9BCADC171568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBC042D47EA1595CB6881D2E31899255ADB23973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Heavy Load - Metal Conquest (1981) 2017, Heavy Sounds [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:A4BE23302FBFFF793CF8FE3A557E419E5E5AC3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ VA - Terminal Trancer Vol. 1 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:AA0FBC340CBF6389ACFF843190AE2FC74701F8A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ VA - Chill In The Morning: 20 Chillout Tunes To Wake Up (2017) [MP3|320 Kbps] <B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D344FEA29A3547CC82B41D9E301681E426E3EF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ VA - Deep Chill Night: Relaxing Lounge Moods Selection (2017) [MP3|320 Kbps] <Do
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Alka - Principles Of Suffocation (2007) [FLAC|Lossless|tracks+.cue] <IDM, Downte
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ VA - Workout Music Vol.1 (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:9DA96F354B8246FD822FA643CB447CF36E34FB63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ VA - Dream Trance Essentials Vol.5 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:4812F2A2FAF2F4CD1C2F2782BE7C72C3E2E3FE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA6F80A5B77C3FE6771CE1970E5B74CCE9BF3495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F9D08EFB54041AD437F0988C21724ECE92C0B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ Alex Cima - Cosmic Connection (1979) LP [MP3|320 Kbps] <Electronic, Disco, Synth
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ RecFrag - Discography 5 Releases (2011-2016) Solanic, Aliens Production [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:D7FE944AE122A85C9780088EBA62ACC2AF1F7275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ Eve - Ruff Ryders' First Lady (1999) [FLAC|Lossless|tracks + .cue] <Rap, Hip-Hop
 ```bash
 magnet:?xt=urn:btih:DA3822AB191FBB629AA12A87075C2E5020AAA094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack seleZen [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:3145D01D22061120A2989E31E8A6E00199990C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:D0DF3524772D4EB32445B80BD814A9EBEE452500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Watch Dogs (2014) [Ru/Multi] (1.06.329/dlc) Repack Wanterlude [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:F40EA06B852218F57581ADCE546964729C62F49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Spell Brigade - это кооперативная онлайн-игра, в 
 ```bash
 magnet:?xt=urn:btih:9F3D96F45EB228441BE0EC3A6FA25F01C780564C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lay of the Land - это песочница с физическим миром, 
 ```bash
 magnet:?xt=urn:btih:C80BE2B5C711D863B76E29E68D0121BF65FB937F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Starship Troopers: Ultimate Bug War! (2026) [Ru/Multi] (1.2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:038BA23044057C4E78B9DA69BBF9A815D912C00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Starship Troopers: Ultimate Bug War! (2026) [Ru/Multi] (1.2.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F07388FEA2668EC231CCA0C69D3BAB63F316053B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:0E6B712E5C51EE9F043714910FD4E7090E4EC382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Wardrum (2026) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:81A7FD9105EE95154F39AAD4EBA54031521C1165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ HELLBREAK - это хардкорный шутер от первого лица 
 ```bash
 magnet:?xt=urn:btih:B028D36E42B3DC9607280853D3C813BFBBD82362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Tempest Rising - это классическая стратегия в реал�
 ```bash
 magnet:?xt=urn:btih:539A5B66332D48B9BDF63E7570DD87A42FDEF11B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

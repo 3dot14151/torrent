@@ -21,8 +21,7 @@ HD-ремастеринг легендарной Resident Evil 4 с график
 ```bash
 magnet:?xt=urn:btih:0A8E3EEF6A6457E66F4F4A2317DA1A91C6CFB612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Microsoft ровно через сутки откроет доступ для п
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Sid Meier's Civilization V: Gold Edition (2010) [Ru/En] (1.0.3.142/15dlc) RePack
 ```bash
 magnet:?xt=urn:btih:992324842428D8A097D7094924EBE277449F2A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Windows 8.1 (ранее известная как "Windows Blue") являетс
 ```bash
 magnet:?xt=urn:btih:1E9A04CF733C389082CCFC157EBBC6CB2EF6E5AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ EDIUS Pro 7 поддерживает новый формат работы с и�
 ```bash
 magnet:?xt=urn:btih:C28A68CEEAD0D4C826DF136A993FB2F44DF35104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

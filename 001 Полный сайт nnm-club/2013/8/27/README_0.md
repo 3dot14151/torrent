@@ -27,8 +27,7 @@ VA - Tokyo 24/7 (Compiled by John Phantasm) (2004) [FLAC|Lossless]<Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:BD38D44B9E9257E750BB5C5F8BE1335920F867DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ B5. Take Me Home [3:48]Жанр: Pop Rock, Classic RockПродолжитель�
 ```bash
 magnet:?xt=urn:btih:9F04022231B333EBF2B39DB5FEEEE81EB4027336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DCF454532B946400E2170B00998F7A47C79D61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEA2421C9B0B42241C41CF9DF44A65CE189563D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A969D2EF89846504FC4AEDF7DF10890AF340EB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:181BFE488E1C1A9D65CB62777F6A6272132490DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E621E9CF0748F3BE53043EF654CF384FDA7738AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Gorguts - Colored Sands (2013) [FLAC|Lossless]<Avant-garde Metal,Technical Death
 ```bash
 magnet:?xt=urn:btih:E84DED4E2EA17E8FD302A4295FBB069E32F136F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Maximum PC - журнал для тех, кто занимается апгре�
 ```bash
 magnet:?xt=urn:btih:51AFB3CC5F68C06DD54BF5BE76C494C1A53099DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:432C0EFC638D71562BD46466C0EC09B3DD4EE178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ VA - Dark El Kante - Uncontacted Awa (2013) [FLAC|Lossless|WEB-DL]<Psychill, Amb
 ```bash
 magnet:?xt=urn:btih:A65AE72A319AAC127B0B886741EB3FBD699DAF06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Freemake Video Converter - бесплатная программа для быс
 ```bash
 magnet:?xt=urn:btih:C3C63625D99340026ED3472211AF6EE583D73D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE19939E9378F3D3562BF7B78EAAFE454F9CF4C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ VSO Downloader - менеджер для многопоточной загруз
 ```bash
 magnet:?xt=urn:btih:2A417540B60FFF781D4DEE50E4701B0B75433A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Robert Randolph & the Family Band - Lickety Split (2013) [FLAC|Lossless]<Blues-R
 ```bash
 magnet:?xt=urn:btih:BBAA3B5F802C79F8D5B22481302EE76111915377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBD80F3CDB504948F4C747F6B8366294A73CC885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A83170BB1B0C12D85D46D7987CECEFDFEFB6727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ History Channel: Древние пришельцы (Сезон 5, серия 5) 
 ```bash
 magnet:?xt=urn:btih:FA7F956C53A5FA1EDD2E1317FAC884EC68503FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01AC71DBB146371A5DC969C8250A09B061561FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Lawless - Rock Savage (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EE0D9C2F422EB5C1C40FB0ACD7CF2AA2AB4D407B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E6B09F9DE34A48F313E4A3E6304DF37C2DDB14E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ B5. Count Me In [3:46]Жанр: Pop Rock, Classic RockПродолжительн
 ```bash
 magnet:?xt=urn:btih:1A197E22F3173E77841BBB66845A9EBA5DA1B3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ VA - The Official UK Top 40 Singles Chart (25-08-2013) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:75907E54E1B9E8635C3D9BB59322813C874F4063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ Dr. L. Subramaniam with Stephane Grappelli - Conversations (1984) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:3C25B05E492D282B77B3C70E5456E5D8673D3B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF8988095D12056DCFAF6948616AB72083A836F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +728,7 @@ B5. The Net [4:38]Жанр: Pop Rock, Classic RockПродолжительнос
 ```bash
 magnet:?xt=urn:btih:D17AEB58D2EC429B370DFF3D63414B23459CE697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

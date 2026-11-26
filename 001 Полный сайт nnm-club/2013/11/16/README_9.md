@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:28A725EE8F3682A8516147A93348F9C6CC2AAAA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:723616A2126E87281ED282AC702BCCB9A2985560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Evangelion Shin Gekijoban: Ha / Evangelion 2.0 You Can (Not) Advance / Еван�
 ```bash
 magnet:?xt=urn:btih:BE862060D3277D3B335592FF9866E4FCE9CA2E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:004329A9BD82786D7640626535336D79890DCF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:638A098AED0BA2296E47DF10493A3203C9FAD6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4F4D2ADBFBC4EA8DE21B928E367E814D66DF6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Baldur's Gate II/2: Enhanced Edition (2013) [En] (1.0) SteamRip R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:B99CECF2BE651C01FBEAEFE952FD82330B820F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Need for Speed: Rivals [XBOX360] [Region Free] [RUSSOUND] [LT+3.0] [XGD3/16537] 
 ```bash
 magnet:?xt=urn:btih:1F10ED2F6A6FDB8104B7867CDEE544D9CB87A050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C986337F4CA90A82584386592C75207DEC6E7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ FTL: Faster Than Light (2012) [Ru/En] (1.03.3) Repack R.G. ILITA
 ```bash
 magnet:?xt=urn:btih:430EC1550BCC0B1FC0656A29120F90EDC029E564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Baldur's Gate (2012) [En] (1.2.0) SteamRip R.G. GameWorks [Enhanced Edition]
 ```bash
 magnet:?xt=urn:btih:1C48B16467EBCD6FF9AA5BB0D7E0A2438806BED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Li Kong-Yuan - 3 диска (1998-2012) [OGG|394~506 кб/с]<Guqin & Xiao>
 ```bash
 magnet:?xt=urn:btih:584D9950101CBE4A4B3106E7A33750B9864459B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Android 4.0.4 ICS (CyanogenMod 9 от HumberOS) для Samsung Galaxy Tab P1000 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ Need for Speed: Rivals [XBOX360] [GOD] [RUSSOUND] [Freeboot] (2013)
 ```bash
 magnet:?xt=urn:btih:4757D2E75897F6805977695705EEEE7072ADE854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F17BFE78B29B865B81F16700FB3998ABAC3BBCEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ XCOM: Enemy Unknown привносит в мир XCOM новую историю,
 ```bash
 magnet:?xt=urn:btih:8E58C332F32E64C736E89F1399C276A75498B72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C5F757CCD0B2AEC2559DFDB0E0379938711A21A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F761F754F04C5623910E9778FF73A36B1709437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ X Rebirth — новая веха в истории развития серии 
 ```bash
 magnet:?xt=urn:btih:7D7C86B2488788F6016284D67E440474DC985E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C13D262267765CD5EB80F28695D796B30D99905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

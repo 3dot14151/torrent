@@ -18,8 +18,7 @@ Glitter Particles Backgrounds Pack - 5 гламурных и блестящих 
 ```bash
 magnet:?xt=urn:btih:D6A4ED762BA64342E694AF7284EC629684FBF136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C050941918F051B6EBB544BAA3FE1D705CE013F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Minecraft: Super Mario Edition (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack 
 ```bash
 magnet:?xt=urn:btih:4CD5203D1D948B84501F6E518F5FCA0D8BB946B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CF3B4D1366CB92E9E09B324AD804CBD0C789C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Brigador - это изометрический экшен, в котором и�
 ```bash
 magnet:?xt=urn:btih:1DD3BD7F618FF427737F7A906D5E41ED12553AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91FF0E5BF4A54113384890342063395FEEC276CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ C# Express – курс третьей стадии обучения – пос�
 ```bash
 magnet:?xt=urn:btih:386FA9B9E84C27DC840B44A73FF96D842D219D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ ProfIT | PHP (1-3 уровень): Введение в профессию/Про
 ```bash
 magnet:?xt=urn:btih:0FD539DB02DF7BE7035F27AC8D0B81B8FA1ECD0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ VA - Space Synth Disco 80s (2016) [MP3|320 кб/с] <Space Disco, Synth Disco>
 ```bash
 magnet:?xt=urn:btih:599770FACF4DC3032BEB0DF2333C04A8E20AC782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ VLC Media Player - представляет собой мощный медиац
 ```bash
 magnet:?xt=urn:btih:C8109A57A01D4C0D9E32CC7A228BF30434137447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Megami Magazine это ежемесячный аниме журнал с пос�
 ```bash
 magnet:?xt=urn:btih:2C0723447A6F6B5415146B6D3A4396CDC54307C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Nyantype Magazine это ежемесячный аниме журнал с по�
 ```bash
 magnet:?xt=urn:btih:08BBA0E1958827AC9A33C83F3D4CD594D6170E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A85D3D173C43D9044DC7C2ED804257ADAA7B955A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68FFD60523754BA700BA71E9905CAA8F9A1A0DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ Movie Studio – видеоредактор, включающий в себя в
 ```bash
 magnet:?xt=urn:btih:F2B38ACD257A5BBA314F107ED487DA3D952C55C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

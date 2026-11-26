@@ -19,8 +19,7 @@ Tipard PDF Converter Platinum - удобная и простая в исполь
 ```bash
 magnet:?xt=urn:btih:A6133AC3B1C654F78A6D607C62D0D2AAE4ECA83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KeepSolid VPN Unlimited – кроссплатформенный VPN серви�
 ```bash
 magnet:?xt=urn:btih:2DB7D3A680B1454934261887918D4040968D8916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Adobe Flash Player v11.1.111.54 для android 2.x and 3.x (файл install_fla
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

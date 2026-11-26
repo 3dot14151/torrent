@@ -19,8 +19,7 @@ Shadow Wolf Mysteries 5: Tracks of Terror / Призрачная тень вол
 ```bash
 magnet:?xt=urn:btih:44BEF7A64F7B7E6A082E257D08CFFDC1A98CE5E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Icy - сюжетная survival-RPG, где Вы возьмете на себя 
 ```bash
 magnet:?xt=urn:btih:DAFF723C25E58F11DBF3278450786B4A9B8F191D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

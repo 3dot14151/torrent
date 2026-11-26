@@ -22,8 +22,7 @@ Linkin Park - Papercuts (Singles Collection 2000-2023) (2024) Brazil, 0936248460
 ```bash
 magnet:?xt=urn:btih:60EB406A31B9BCD3B5EADF9426C2463BD60267EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Linkin Park - A Thousand Suns + (2010) Brazil, 9362495889, AB0002000 Pressing, 2
 ```bash
 magnet:?xt=urn:btih:ABE85330BEEE4682DB56C7CEF3628E5BCA2AEDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Linkin Park - Living Things + (2012) E.U., 9362-49450-0, 2013 [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:B2E735FA20728FC4228FB6F1DF0A8542CB396D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

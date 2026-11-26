@@ -19,8 +19,7 @@ Halo Wars 2 - это стратегия в реальном времени во 
 ```bash
 magnet:?xt=urn:btih:28A3B2D204F40B195F70EA90442DD1124B097057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total War: SHOGUN 2 Complete Edition - это расширенное изда
 ```bash
 magnet:?xt=urn:btih:A70CA6ADF760BC82A244E9BBFC9B3190E17683D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Forza Motorsport 7 - это реалистичный автосимулято
 ```bash
 magnet:?xt=urn:btih:2125795A3ADC99D8B7A722CF750B588A82F048CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:6EB92B9667106307EE2F871BDC51589BEC08D1F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Valor Mortis - экшен от первого лица в жанре Souls-like 
 ```bash
 magnet:?xt=urn:btih:43EF4810D5B3ACF45EA6AF1AEBB8CD8D140D501C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

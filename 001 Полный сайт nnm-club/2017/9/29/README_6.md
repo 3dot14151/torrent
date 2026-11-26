@@ -20,8 +20,7 @@ FIFA 18 Legacy Edition (2017) [PS3] [EUR] 4.75 [OFW] [Repack] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BB30D0571012EE9FFB57403798E4A5743DE7250B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Autodesk Inventor – это всеобъемлющий комплект реш�
 ```bash
 magnet:?xt=urn:btih:40CE7CF051720B4E9F7B81AFA64993E65A194CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ New Game!! / Новая игра! [ТВ-2] [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Centaur no Nayami / A Centaur's Life / Тревоги кентавра [2017, TV
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Far Cry по-русски-2 это шутер от первого лица. Пр
 ```bash
 magnet:?xt=urn:btih:EEB8AB8CC7491DD6AC0238BCA71C062A74CBE000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Kakegurui / Маньяки ставок [2017, TV, 12 ep] HDTV 720p Raw+Rus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Knight's & Magic / Рыцари и Магия [2017, TV, 13 ep] WEB-DL 720p Raw+
 ```bash
 magnet:?xt=urn:btih:C31817B6496743E78EFD18624EEB945F42F8C420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

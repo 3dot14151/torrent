@@ -19,8 +19,7 @@ Microsoft Activation Scripts (MAS) 3.7 portable [En]
 ```bash
 magnet:?xt=urn:btih:823B14FD517A1E0819179F3E5A272A5008532D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MobiKin Backup Manager for Android 2.0.24 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D52B980DE26BF5D2F245F28161A68E19219C7513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:598F48EDC669E9E19BD0AB3FF7AE0C8F019B7265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Total Commander Extended - это x86 и x64 версии Total Commander в о�
 ```bash
 magnet:?xt=urn:btih:4D5C0F65C941767D7EEAC4CB7D56E7DA3F488282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Ashampoo WinOptimizer 28.00.14 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7CCEC835F7DC6E20A835D4AE61D2BF8166D40AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:AA15AE93EF5F30D217FCAC796F26AAA7720FCF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:04680C5344269C2F73DD67210F9F510B99B33DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Ashampoo UnInstaller 16.00.02 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A6EE48B74AF15D20580C6A2C0BDD89F23E20934A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

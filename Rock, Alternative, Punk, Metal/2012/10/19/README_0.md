@@ -23,8 +23,7 @@ After The Darkness - Бродить во тьме (2012) EP [MP3|320 кб/с]<Go
 ```bash
 magnet:?xt=urn:btih:DC3E2050A7D46B356173BB2ABAD8448EB1F4F7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

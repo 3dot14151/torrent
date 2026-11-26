@@ -27,8 +27,7 @@ Ferrit - Album Of Super Star (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:D14356C38EB076252EB66397A182A58367D43CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Digital-Art Desktop Wallpapers (20.11.2011)
 ```bash
 magnet:?xt=urn:btih:D28E15C842D0B00116EBE30EF94A7CA6FC2A06C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wallpapers - Фото экскурсия - Кисловодск (22.11.11)
 ```bash
 magnet:?xt=urn:btih:8568947403787CFED97C63FC502AF29C0437B279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7843E802CE12A47C55516AF477048B2E412AE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ VA - Зеленая волна радио шансон (2011) [MP3|256 kbps]<Ш�
 ```bash
 magnet:?xt=urn:btih:53E79418BE9B6E844AB50EE779DC62E14E051764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #73 (19.11.2011) [MP3|320 kbps]<V
 ```bash
 magnet:?xt=urn:btih:82CCD4C6B096D4143F4ABB81D7E32D2825A126D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBB8902E72BEE522E7BAE8D55F4B7DCF5CB6F715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #74 (22.11.2011) [MP3|320 kbps]<V
 ```bash
 magnet:?xt=urn:btih:6CBE619F4272F26FC52A67638FCF93100665D714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ Theocracy - As The World Bleeds (2011) [MP3|320 kbps]<Symphonic Progressive Meta
 ```bash
 magnet:?xt=urn:btih:CCBBF284FA26828EC8590FDAC09BF5F2550D02CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C16A8910395BDA5529F68C1AF3A9C7801B0BBF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ VA - Турбомодный Evro Хит (2011) [MP3|256 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:3D8DC3B4AD19A6C3802E5FC05C3F11C33C4D4C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3725731C1BB276EFAB4A7B91C20381A6C53FB3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ VA - По Ту Сторону Забора... (2011) [MP3|256 kbps]<Шансон
 ```bash
 magnet:?xt=urn:btih:C52BAA98BE08CEE827E37F9B66C98EDE45DD5CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:467E74582F3C5D86E6BC9A4E1079E34B532F6426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80750750202650A7A8B60CE2849B2D6506C082D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ Girls Wallpapers 25
 ```bash
 magnet:?xt=urn:btih:0BBB449DE194562C06279016956C30FBBB032F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9031DED353BABD8C9CBF469B5381EE3F9FDCDBD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ Girls Wallpapers 24
 ```bash
 magnet:?xt=urn:btih:FE46FCE3CA3F98F8E4165F592EFCD3FBE3D23DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ VA - Euphoric Emotions Vol.29 (2011) [MP3|320 kbps]<Vocal Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:610A2DBAC0999E00732FF75507BDC836DA11BD9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D45F4233ABACE6F23635BEEE0A5A5C6EFBF40066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D71BABD074CE4AB48B6D90A70F093742CEE4FD76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ VA - Whisper of Consciousness Volume 8 (2011) [MP3|320 kbps]<Vokal Trance>
 ```bash
 magnet:?xt=urn:btih:E7E41EAFEC2B2BF1C2E69DC7D669A4101C6737C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +725,7 @@ Girls Wallpapers 27
 ```bash
 magnet:?xt=urn:btih:687369AF81A788E5EAA46DB2462F9A4C4C888E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ VA - Trance Eve Volume 19 (2011) [MP3|320 kbps]<Uplifting Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:4A260828D8BA131A9FA07D7D9DC48232152D7FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

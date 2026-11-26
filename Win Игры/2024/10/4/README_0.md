@@ -19,8 +19,7 @@ REYNATIS - это ролевая адвенчура в жанре городск
 ```bash
 magnet:?xt=urn:btih:A31A35676D3A71B89646D0C863A54A39600052B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AMEDAMA - это приключенческая адвенчура в жанре
 ```bash
 magnet:?xt=urn:btih:2BA2DA0BD4CFD98896765B5CE781F9FE046996DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Surreal Farm - это адвенчура, которая приглашает г
 ```bash
 magnet:?xt=urn:btih:F1BAE0B2588665736226CBD7D2920FAC0A7A5D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

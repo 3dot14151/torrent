@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:7DAF77A6FB7B88587D7624F11F8130D9B1A7C4EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD24F35C0A93BC7FF4FFAD43FB5F3C975F2D263C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ MailTags как и следует из название, позволяет от
 ```bash
 magnet:?xt=urn:btih:12D8C465BC43C0C723940F77B3560659EFE4A608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

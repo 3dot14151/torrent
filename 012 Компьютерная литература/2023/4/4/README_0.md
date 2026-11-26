@@ -20,8 +20,7 @@ Blender 3D Incredible Models - это обширное руководство д
 ```bash
 magnet:?xt=urn:btih:506AC296D1F6723DE5B0E1F81160F68877784F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Nabendu Biswas | Beginning React and Firebase (2021) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:313B09DC5D2CB7282307E1B0BC340FE96658B6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ FalStep - Минуты Счастья (2020) [MP3|320 Kbps] <Alternative Progres
 ```bash
 magnet:?xt=urn:btih:10ED0E04C96275191D40CDDA57D2A5A5B472FFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ FalStep - Плавучий Остров (2021) [MP3|320 Kbps] <Alternative Metal
 ```bash
 magnet:?xt=urn:btih:21360849656C5A3EF7466493A7F4F5EEEE399C79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Haxmastaren - Sol i Exil (2021) [MP3|320 Kbps] <Stoner Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:3DF2C87A85F940C75419200D8BD383B0210E9DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0CB91258FB648160647E7F5C085625A42F8F16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E317F41A9EEC971A626104EB6856372BB7E9E8BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:7DC9E74D816A4C70A3B3782560E9F26BD8AB9D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ com.pass - Полюса (2021) [MP3|320 Kbps] <Russian Metalcore>
 ```bash
 magnet:?xt=urn:btih:8BABD698753D23C5DD3BA5149098E3B9CFBC5755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:530725B76AC4F1D899102F4927915BC491C15622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Issa - Run With The Pack (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:60F8BC3F56FFB15C41B4F54E88117347BC578D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Issa - Crossfire (2015) Japan Edition [FLAC|Lossless|image + .cue] <Melodic Hard
 ```bash
 magnet:?xt=urn:btih:174C073DF50FC855F1ECC7C9BDDFCA8E5A09BDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Creed Fisher - How Country Music Sounded Before It All Went to Shit, Vol. 1 (202
 ```bash
 magnet:?xt=urn:btih:9C8C9F19C04C184727CCDAB746564077617755E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:820FF4A1552F981175A366B4F22C7A3884BB50AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Batushka - Carju Niebiesnyj (2021) EP [MP3|320 Kbps] <Black Metal, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:6B86EB3F364A4A0DAD3311D81668F65625EB13CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Papa Roach - Greatest Hits, Vol. 2: The Better Noise Years 2010-2020 (2021) [MP3
 ```bash
 magnet:?xt=urn:btih:848F09B060A1BB6E150EBEAE2C965CAB92DF2973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

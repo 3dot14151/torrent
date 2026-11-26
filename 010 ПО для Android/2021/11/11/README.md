@@ -19,8 +19,7 @@ Android 12 Clock Widgets v7.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E97147FDE81EBD5CCF4A14A40E22610CC26B3771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

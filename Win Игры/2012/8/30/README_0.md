@@ -19,8 +19,7 @@ Gothic Fiction: Dark Saga. Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:C434F8387CE2100AE82D85D44ED78AFD0A6EA38C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Awesomenauts — это MOBA, сделанная в виде доступног�
 ```bash
 magnet:?xt=urn:btih:E8A9421AEFEA6DF8A31F0D44CAA3AC51DBEB669D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

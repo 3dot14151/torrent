@@ -19,8 +19,7 @@ Gothic 2: Golden Gate / Готика 2: Золотые Ворота (2014) [Ru/E
 ```bash
 magnet:?xt=urn:btih:667268AEBDE416B285789E4937815CA6F2B7EF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Golden Gate 2: Goddess Heart / Золотые Ворота 2: Сердце Бо�
 ```bash
 magnet:?xt=urn:btih:4B4FEB0A6BE00DF072D16E76C42A11CC2D0B6B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

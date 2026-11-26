@@ -21,8 +21,7 @@ Fancy - Voices From Heaven (2004) [FLAC|tracks+.cue]<Synth-pop>
 ```bash
 magnet:?xt=urn:btih:F24E20B04289E0B80565152A850F1AB38ECC9968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0475BF82F71086BA5E0F87BB6DA6EE43DCD1939D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABAC277BAF05FB1F116E414C83C6C75B90451416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CAA96C02ABCD7D0C4DA3ED61DCEB796D4DBBAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21D50563ABBF77DCA57D77B4EE637D1F47231D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Mix - Mom, mommy, mother (2015) [MP3|320 кб/с]<Pop, rock, metal, jazz, rap>
 ```bash
 magnet:?xt=urn:btih:C59D2C7B3050C18A35B1F5BDAAD11190B30A13D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:2E266B69FF151EC4273BB8556AFFEBC71B5E36D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:678BFB235B4191F0CD63EB0A67FB1A52C5D4D4E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Symphony No. 2 in F Minor
 ```bash
 magnet:?xt=urn:btih:D9672723CBF96365989C5D195DF8D70C7F9029E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D1F5FA6E81ACCD2FF0C5D36D373B92680B93B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A10072AB797FDA73F392D67190CA500294450448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ NBA 2k14 Soundtrack  (2013) [MP3|320 кб/с]<OST/Soundtrack>
 ```bash
 magnet:?xt=urn:btih:B3ED142D136EB85677967C6F6FB1455CB144C2E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Inner Sync (aKa Cymatics) - Old Skool Trance Anthems (2015) [MP3|320 кб/с]<Tr
 ```bash
 magnet:?xt=urn:btih:974866C86A9CE7C9BB09BC3A0081BDAE209231B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ NBA 2K15 Soundtrack (2014) [MP3|320 кб/с]<OST/Soundtrack>
 ```bash
 magnet:?xt=urn:btih:5429035FE3B87DFB646268582B77FDC052F58395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ KAEDE - 9 альбомов (2008-2013) /Doujin/ [FLAC|tracks] <J-Pop>
 ```bash
 magnet:?xt=urn:btih:25DCABBAA2D9383F3DC78400CC15B84D1680B6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FBCF58F3AC4A166E05F3BF873501BE06C8A14BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B77525AC0D631F1C1D257E238F3D6645507B905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Gloria Estefan - Greatest Hits Vol. II (2001) [FLAC|tracks+.cue]<Latin, Pop>
 ```bash
 magnet:?xt=urn:btih:A7B8C57B071A5BEEC485BB7C62AA0A2EF4709E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ VA - My Jazz Lounge (2015) [MP3|320 кб/с]<Jazz,Lounge>
 ```bash
 magnet:?xt=urn:btih:B82B3C27A700D200661F513BD7818EEAA677FA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B534CFB98669C61E2866955BE1ED4F852F2B6DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ VA - Мрачные тени / Dark Shadows (2012) [AAC|WEB-DL|256 кб/с]<Soun
 ```bash
 magnet:?xt=urn:btih:E8851B62A50DD0E8F31EDF82EDB0DD19FC8A0F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Tom Jones - The Best Of... Tom Jones (1997) [FLAC|tracks+.cue]<Vocal>
 ```bash
 magnet:?xt=urn:btih:38A3F6F9EF8C121C7B3777F568EAE3141634D24A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CF77F2F2986E6D39D1AAD27BB6EC62F83656523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD250148FE4E6E6757D9E8A328A46FD3ABFB8F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ programYMG - 2 альбома (2009-2010) /Doujin/ [FLAC|tracks] <J-Pop, Electro
 ```bash
 magnet:?xt=urn:btih:229C75EFE83F489C691DD8F5D18517C77DA06061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:342487461421276DFADDB9E699081271AAB81F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

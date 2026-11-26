@@ -22,8 +22,7 @@ LISTEN (1970)
 ```bash
 magnet:?xt=urn:btih:99405F610930A59C38354F55E48D3D55D97CE10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5919078F25AD02FCED4BD36A8E4C35A67817C3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Accept - Symphonic Terror (Live at Wacken 2017) (2018) [MP3|320 Kbps] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:2E07F833FD7F811520C5683602E140E4D36935B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Alice In Chains - 1994 - Jar Of Flies & SapЖанр: GrungeПродолжите�
 ```bash
 magnet:?xt=urn:btih:DB2BB17150A82ED678FEF4A0065B43468456106A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

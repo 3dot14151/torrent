@@ -22,8 +22,7 @@ A4 Land Of 1000 Dances(   Читать дальше...   )Жанр: Jazz, Funk, 
 ```bash
 magnet:?xt=urn:btih:F901F4E26586C0E9AA9BDB3AA95AC0BAEC1D2340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

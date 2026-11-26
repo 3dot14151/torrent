@@ -21,8 +21,7 @@ OS4 OpenLinux 13.7 KDE  [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:A722F21049578C3D21F5B927BCB0D97DB5998430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ NAS4Free — свободная операционная система для �
 ```bash
 magnet:?xt=urn:btih:221E5E54D6B65075F861AC9C53C79F2C63151F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

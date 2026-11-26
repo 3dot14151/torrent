@@ -19,8 +19,7 @@ UNDERWARD - это кооперативная игра в жанре хорро�
 ```bash
 magnet:?xt=urn:btih:C04328C39156CC62FFA6A020D2C116E092977473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.2.64310/dlc) Repack Let'sРlay [Deluxe E
 ```bash
 magnet:?xt=urn:btih:BF01DFD646BEC8EC42CADE74152D82489F8452F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Borderlands (2009) [Ru/En] (1.5.0/dlc) Repack FitGirl [Game of the Year Edition]
 ```bash
 magnet:?xt=urn:btih:5A1C88C99E30CC1496A0B3482548F93136BE0992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ASTRONEER (2016) [Ru/En] (1.34.47.0) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:9258DF428DB8270D5152045DCB3A02F4087A4C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Redneck Kentucky and the Next Generation Chickens / Куриное побоищ�
 ```bash
 magnet:?xt=urn:btih:ED388EF06AD9CD06C84DEFED9DEEEDB2C814CDBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 ```bash
 magnet:?xt=urn:btih:6084F698C6C351D5EC1F9E22CA09061D6E18EBFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Potion Craft: Alchemist Simulator – проработанный симулят�
 ```bash
 magnet:?xt=urn:btih:38994F757A338A456BB3FE9CF81A614DCFDCDA01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Call of Duty: Modern Warfare (2019) [Ru/Multi] (8.67) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DEE09EB5CE0DE074A2F8FD4EAD1A7B5ECF3F01E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ ASTRONEER (2016) [Ru/Multi] (1.34.47.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B2B3965186D8D5FDFBF8A46EA901C03768A0FAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Borderlands 2 (2012) [Ru] (1.8.4/dlc) Repack EXROW [Game of the Year Edition]
 ```bash
 magnet:?xt=urn:btih:1C637A29D185BCDC5D5186C900BCFE878D101940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Girls Made Pudding повествует о двух героинях, котор
 ```bash
 magnet:?xt=urn:btih:AD6384CED16FE690F020A2C008FA87C0631B5E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ UNDERWARD - это кооперативная игра в жанре хорро�
 ```bash
 magnet:?xt=urn:btih:D656143589B0F5B4CECC638B835517249DE4B488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ UNDERWARD - это кооперативная игра в жанре хорро�
 ```bash
 magnet:?xt=urn:btih:B2D77E261211C3E0FEF41A2BFE878EEA38B82052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Haley & Alexis - All In (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:2B5343310B47F2F7BE557C87C4D9DE45F87E7ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

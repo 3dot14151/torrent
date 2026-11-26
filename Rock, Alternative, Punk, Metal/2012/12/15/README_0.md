@@ -28,8 +28,7 @@ Adler - Back From The Dead (2012) [MP3|320 кб/с]<Hard Rock / Glam>
 ```bash
 magnet:?xt=urn:btih:C4973FD644B4FB0CA6D81F4B1CC7820F48683A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ The Police - Message In A Box: The Complete Recordings (1993) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:8E1978030B3FFB66D5389AA001213AF8A269856A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Sticky Fingers - Like A Rolling Stone (2012) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:71E3387E213D7BD8A4948C640066AA58FD10B245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Shakra - Power Ride (2001) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4C8A110926EAE18F88C18722BAB1ACAB28CF15BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Vocals, Guitar – Bernie MarsdenЖанр: Rock, Classic RockПродолжит�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Jethro Tull - All The Best (2012) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:1B08BF68095B6606F93F1207355CF7DF8BCF0726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Vixen - 4 Albums (1988-2006) [MP3|320 kbps]<Hard Rock / Glam Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Fausto Papetti - Raccolta 35. My One And Only Love (1982) [FLAC 2.0 24/192|image
 ```bash
 magnet:?xt=urn:btih:4E7EFC91B9BECF1C1441C64AF48A6439C8DBF5D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

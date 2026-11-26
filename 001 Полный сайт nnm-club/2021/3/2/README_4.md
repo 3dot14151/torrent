@@ -18,8 +18,7 @@ macOS Big Sur 11.2.1 (20D75) [образ для BDU]
 ```bash
 magnet:?xt=urn:btih:255C6A28E59D2B0CBDC51C8F2D52BA8A7DA03D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Grounded — игра на выживание, в вымышленном мир�
 ```bash
 magnet:?xt=urn:btih:1F768A4C4A9651E543A93FD6113B3AEA388F83D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Skillbox, Михаил Овчинников и др. | Профессия Раз
 ```bash
 magnet:?xt=urn:btih:615963F928F3623E844099958CF5B29C6756D55C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D11FFD0D480048D5B167D1D5F01601F8B1196684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C704D27402D6F8B57718E5725BE144468D992A4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

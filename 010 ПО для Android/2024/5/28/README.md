@@ -19,8 +19,7 @@ Windy.app - очень и очень востребованное погодно
 ```bash
 magnet:?xt=urn:btih:E8756D4080895C1EBF3B30DF45FEF522508AABAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C4787BA0C2E94FC240A01AA69C6B7DA65F00937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Windy.app - очень и очень востребованное погодно
 ```bash
 magnet:?xt=urn:btih:3A6C98F56C6B8818171A1A43431A7BF0BC6BBBF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

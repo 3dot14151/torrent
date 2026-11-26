@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:0383F7FD58CCC770D1CC546B2FED50E7745ABD84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ James Dymond - Live @ Tranception, Taipei, Taiwan 2019-09-28 [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:8DE154B5A17D0684C22133AF821CD6D1BF9C5735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crystal Eyes - In Silence They March (2000) [FLAC|Lossless|image + .cue] <Power 
 ```bash
 magnet:?xt=urn:btih:6C6E2E69A6291E975A8175BF32CF74BDBE1788CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ed Lynam - Live @ Taster Live, The Loft Galway, Ireland 2019-09-28 [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:21335E465DEF2524CA5F524A7D2D8FE800B4D232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:BA45165C41755BD578E082B3B3CA43883375158B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Aftermath - Eyes Of Tomorrow (1994) [FLAC|Lossless|image + .cue] <Technical Prog
 ```bash
 magnet:?xt=urn:btih:D8D5E827D0ED2DC1C63BD47EA480C694E8234CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:6BAE84CD36D856042F98D4CB928D4B6FBF2B28E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Tooth Fairy поможет вам перейти от одного выбран�
 ```bash
 magnet:?xt=urn:btih:5B7049A828DD1D8D78F5E53CAAB61314800F5EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ MacCleanse 8 v8.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:5FB0D103255C27960F36C10AE4A5F3B408F32B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A88479F3ACD681D0AB6DED47AA583F2AF00B1335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ DMG Canvas создает образы дисков (.dmg). Процедура �
 ```bash
 magnet:?xt=urn:btih:2001DBE817D9D7690F90131D078F0BE84C7EA0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ AirRadar - приложение для сканирования WiFi сетей 
 ```bash
 magnet:?xt=urn:btih:8D5429D407E1B9628C646ED933DEE9FF00241C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Jurgen Vries feat. Andrea Britton ‎ - Take My Hand (2014) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:9884998E451D37CCA9438BA846829CA1016412EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Jurgen Vries feat. Andrea Britton ‎ - Take My Hand (2014) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:D91743D124E5012465EE3068309320CC8BC3A2DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Farrago предоставляет лучший способ быстрого в
 ```bash
 magnet:?xt=urn:btih:C8F50FB502F03A980B3FD248FEAA6B9D9248EACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Papers — персональный каталогизатор научных с
 ```bash
 magnet:?xt=urn:btih:5C4132BB488166472411552552E32387B8DBB2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D6FA02C9D98C6201C879B54D33422FABF18E523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ MarginNote 3 Pro v3.4.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:F07C564EBCA4B5F3AFFDAC428C87C7D316BA310D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F48EB2E4D354A8E485A8D2318E82ABCA23ABC732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ As I Lay Dying - Shaped by Fire (2019) [FLAC|Lossless|tracks + .cue] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:AFD961D81B916E9F476B5BE18ABA461D098119B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ VA - Record Super Chart 607 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:F0FA4702D1A096BEB462B053A9FA53A759EDD184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5E6C156AE19DB13B2EB82D7D5FF474DCC975D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ Lita Ford - Dangerous Curves (1991) Japanese Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:57D2FAFF325CBA741119FE761788B545883F0808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADDF048A80AF0B5F418F620A94FC80DE36D3AFD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:AB4B72D6CFFCB0143C896C4BEA463D76350D11ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ VA - Bossa n' Britney (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:D5261B75309808D04E4E60092FFBAE49882A46F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

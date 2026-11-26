@@ -26,8 +26,7 @@ B4. Пасынок звезд (8:06)Жанр: RockПродолжительнос
 ```bash
 magnet:?xt=urn:btih:21AC8283063FED7575AB0127A61047109F0B30D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

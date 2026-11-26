@@ -22,8 +22,7 @@ Helslave - From The Sulphur Depths (2021) [FLAC|Lossless|WEB-DL|tracks] <Death M
 ```bash
 magnet:?xt=urn:btih:C354BBA06FFA94B2B07453C7E7FEED790DECBB85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Endseeker - The Harvest (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:1A3007E1AFE0DFEBE6CE19DC42E9C184F2066657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nightfyre - Shattered Lands (EP) (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:3381A8BB76E142932117FA490164F1DEE9B70C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Blackbriar - The Cause of Shipwreck (2021) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 ```bash
 magnet:?xt=urn:btih:3605CA82A2E29AA71035FBCED75D6A708F37C1D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lilith Czar (ex- Juliet Simms) - Created From Filth And Dust (2021) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:2A317642FD4E9493DF4133CC108DDD3AA7BB85AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

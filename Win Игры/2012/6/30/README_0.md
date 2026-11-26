@@ -19,8 +19,7 @@ Vesuvia / Везувий (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:0172ACB6E3E13A6B97D1D55D4F8ADC2C64A6D9C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wings Over Israel / Небо Израиля [Ru] (L) 2008
 ```bash
 magnet:?xt=urn:btih:0782E2D5AD7A01A4D6D179839AFEE2E8B5219559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Top Spin 2 [Ru] (RePack/v.1.0.4.2) 2007 | zzzombie1989
 ```bash
 magnet:?xt=urn:btih:6123968FAA03D1F2602D88BF304A8369923B59C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Trapped Dead — тактическая стратегия в реальном �
 ```bash
 magnet:?xt=urn:btih:50BA9C804A90B988F02372DAC3071F8CC3BE5802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ London 2012: The Official Video Game of the Olympic Games (L) [En/Multi5] 2012 l
 ```bash
 magnet:?xt=urn:btih:A64BA0F22A6D5A7A480CA4F440B55282C49CCB6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

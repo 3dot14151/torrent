@@ -18,8 +18,7 @@ The Dark Eye: Demonicon (2013) [En/Ru] (1.1 Upd2/6dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:43DB9E9D6CCAD88FEFA996BCBA9233984B8A4D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBA37FF04369A2A7D6C49FD2537D27CCBDA8404D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Saints Row IV/4 (2013) [Ru/En] (upd7/24 DLC) RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:56E09F1B82F2498C566FDFE2F484C6CB1A6F73AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Call of Duty: Ghosts – новая часть в серии Call of Duty. На�
 ```bash
 magnet:?xt=urn:btih:A4F401FDF1AF128FC2DF9BDA974A4E308804ACEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Рингтоны хитов 80х-90х (2013) [MP3|224 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:3FD2C723E973AC2DF301DEF3102383FBE6FCAEC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BC6E44FFF9B839632AC7E16422FFFFE2F3F7C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B5CD36B21F2E8C67B0A0E9C6EC8DDF1F5B7C4E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

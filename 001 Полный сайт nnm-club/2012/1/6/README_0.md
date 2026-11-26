@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E576C91FA80BF3C3E8B46DDF6D5AC8CDFA605CBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Танцевальное Конфетти (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E054A98580B2DB8E7EF7EEBD7F66F704DC98EDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Зимний Crazy Dance (2012) [MP3|163-216 kbps]<Pop, Dance, Club,>
 ```bash
 magnet:?xt=urn:btih:878D87301D1DFFF4ABABF8792D59EE416D6F36C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FAFEC0C9100950EABF1E802E8677D5A5C323729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ VA - Все звезды радио Шансон Выпуск 2 (2011) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:0ABF4E469A7063DA6B843603D7DEA233AD03C3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20C4C6740E7F7E13F1515DE4AB5AEDA26F7CC05A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ VA - Зажигательный Хит. Зарубежный (2012) [MP3|192 kbp
 ```bash
 magnet:?xt=urn:btih:0AB3BD4528F5806FB5F5ED2F2B98658E619C3664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E880FEFFEDDF2811BA43CCD3EE92BB633C94776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Notepad++ - это бесплатный редактор текстовых фа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ Armin van Buuren - A State of Trance Episode 542 (2012-01-05) [MP3|256 kbps]<Tra
 ```bash
 magnet:?xt=urn:btih:FCEFA81D9E1322E9541CB98B14E2B419AC5DD3D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Smooth Stab feat. Aelyn - These Words Between Us (Remixes) (2011) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:960E7CFD1ED75670FBEF1874236684C1D313C19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ VA - Праздничная тусовка молодежная (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:A5A981D177AEC202CCCC02C9A1A3AEBE51661A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ VA - Новогодний форсаж (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:09638EE6730AD1DDBF05EC675ABDB73532DFCC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ VA - Зона За решеткой небо синее 3 (2011) [MP3|128 kbps]<
 ```bash
 magnet:?xt=urn:btih:C75053CF2E418DD65CCD944253B51B4916E873CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ VA - Клубный Автозвук (2012) [MP3|192 kbps]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:BED48F511B91BD8AEB38566D1C903BAF859DA98E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +491,7 @@ VA - Рождественский хит-парад 10 50/50 (2011) [MP3|256 kbp
 ```bash
 magnet:?xt=urn:btih:23233455611C1004EABB2C2EF4A820C70FF1E1CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E80F2D322C8BB446357BC457D1D3F056C67D26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +557,7 @@ The Modern Jazz Quartet - Django (2008) [FLAC|Lossless]<Cool, Post-Bop, Third St
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01907C2DA9994F46D8C107AE5C90D5CEA550A915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +616,7 @@ VA - Снежная 200-ка От Танцующей Молодежи (2012) [MP
 ```bash
 magnet:?xt=urn:btih:AAB682FF65EA633F57123EDBCC0B1E521F2DA5FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +650,7 @@ Tina May - More Than You Know (2004) [FLAC|Lossless]<Jazz, Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +684,7 @@ VA - Cult Classic Records Presents: Friends & Family (2011) [MP3|320 kbps]<Downt
 ```bash
 magnet:?xt=urn:btih:FD1D2C05FE575CD6B2C374A7825B23BAADA29A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBDB5F4095FCC18E8D985C441938E30E5EDEF66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +734,7 @@ PLASTICZOOMS - KMKZ (2011) WEBRip [720p]
 ```bash
 magnet:?xt=urn:btih:7E0411976229DD7334838A0FD8C7D5C66D46B741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A713C75C80EFA0514464B3A95CE0A702539DBB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +784,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:055BA8E2CB607746C205A1A3CDEECAEF57477B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

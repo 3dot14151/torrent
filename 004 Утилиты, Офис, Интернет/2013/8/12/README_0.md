@@ -19,8 +19,7 @@ Moo0 YouTube Downloader - позволяет легко скачивать ва�
 ```bash
 magnet:?xt=urn:btih:BF2DDEEEA201E4FB270BEF045BA5735B980E157A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

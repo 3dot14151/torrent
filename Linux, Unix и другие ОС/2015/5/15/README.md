@@ -21,8 +21,7 @@ Cisco Access Secure Control Server (ACS) является ведущей мас�
 ```bash
 magnet:?xt=urn:btih:967E4AD50B119A5DEC1497351F1E527DEDD0E1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

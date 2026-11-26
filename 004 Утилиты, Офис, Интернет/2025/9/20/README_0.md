@@ -19,8 +19,7 @@ Tor Browser Bundle 14.5.7 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1472065F921F8C8A5EE1DFDD53ED5F6F89C65A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:E6BEFDFD7D6BDE817F69269F9C7B17BC2E1990F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:B9B5EFE6DB545F3EDFB7870D9EC47DAE26F681B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.3 Mod by 
 ```bash
 magnet:?xt=urn:btih:2B1B496B7EEF19C0420A11F322F973353634A149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

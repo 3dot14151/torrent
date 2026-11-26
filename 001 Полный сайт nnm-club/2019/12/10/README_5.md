@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3B65C809482C1AD3033AB63F25965C97A91D7506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Animal Planet. Секреты природы / Nature's Strangest Mysteries: Sol
 ```bash
 magnet:?xt=urn:btih:581480A02E8485197F64FF3D7FA03243D96EC6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:637ACC8A2BE17B163490FE9E03833BA6FFFEBE30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61D1189EC3965833BCC8571543BE5039BDAB5082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Revo Uninstaller Pro 4.2.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:42CA3FACCAA61D219B85B9FC1D7B888E7CD5217B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08)
 ```bash
 magnet:?xt=urn:btih:6EC0AB0655B929EB23D6B67789BC48B6994AE619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 2 / Официально
 ```bash
 magnet:?xt=urn:btih:4C06914AEA589D912F34DA2C367415FB1950FF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC7783E309BDC36E34F4C1011B10D6BFDCF591E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 1 / Официально
 ```bash
 magnet:?xt=urn:btih:D5E8E6F5BE6ECF3C2A63FEFDC647B970B6083E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1547121890B2C9A0BEA55C58110CEB1D94A4FC01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Totenmond - TonbergUrtod (2005) [FLAC|Lossless]<Progressive Death Metal with Pun
 ```bash
 magnet:?xt=urn:btih:3CA4A8A5B7F2E3F442A217C340D877D17918F7D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Totenmond - Auf dem Mond ein Feuer (2001) [FLAC|Lossless]<Progressive Death Meta
 ```bash
 magnet:?xt=urn:btih:0B19DF187C1BD05577245C0A8099B461DC32DE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Eisenwinter - Armee der arischen Untoten (2012) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:1032EFD782AE6E954ADC817F2CF8DFE012A7C1AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Conan - Blood Eagle (2014) [FLAC|Lossless]<Doom Metal/Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:8126C21F56CCCB1106551E386FE86B706AD7654B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Mount Salem - Endless (2014) [FLAC|Lossless]<Stoner/Doom/Psychedelic>
 ```bash
 magnet:?xt=urn:btih:55F4C2631CE4217AA5FD516264D2D987B41F25F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Anneke van Giersbergen & Danny Cavanagh - In Parallel (2009) [FLAC|Lossless]<Alt
 ```bash
 magnet:?xt=urn:btih:112CA0772BEE2D9673843B3D0AB5F0F3076CD6F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Jeff Healey - As The Years Go Passing By (2013) 3CD, Deluxe Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:7AA9F9E448E4C5BB4F0A82BC28D1BD17CD9B4C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Paul McCartney - Fine Line (2005) 3-Tracks Maxi-Single [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:559C21790E72DAD4D6531B69950FE2BBDA5410D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ VA - Rattlesnake Guitar. The Music of Peter Green (1997) 2CD [FLAC|Lossless]<Blu
 ```bash
 magnet:?xt=urn:btih:752134E93391F378505FF7CD30E5885AD7D421D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C1612F827FF2C9C1F9A4FE3294CDD9C423E257A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

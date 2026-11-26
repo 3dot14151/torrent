@@ -24,8 +24,7 @@ Far Cry / Rambo 2 - Vietnam [Ru] (P/Mod) 2004/2007
 ```bash
 magnet:?xt=urn:btih:FF0AB6D4B74DF80536349D5D1C8FDE35AE1E0E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

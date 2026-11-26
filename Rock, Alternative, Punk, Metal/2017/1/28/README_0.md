@@ -22,8 +22,7 @@ Skyliner - Condition Black (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Pro
 ```bash
 magnet:?xt=urn:btih:E8DBE952515712F4CDD809A1F9F4E65B9204ED94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cholane - Caution! (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0F076FD90C3A3C2F683D36E1435EE9A5BAEAE784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ House of Spirits - 2 Albums (1994,1999) [FLAC|Lossless|image + .cue] <Progressiv
 ```bash
 magnet:?xt=urn:btih:7D87E0302DCF9DB78E5D324329CA663827142AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Nox Doloris - 1 album, 2 EP, 1 single, 2 demos (2008-2016) [MP3|320 Kbps] <Symph
 ```bash
 magnet:?xt=urn:btih:DD9283C5962EB09FD5B68BA96460A51660537045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ The Murder of My Sweet - Echoes of the Aftermath (2017) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:5C6C079714EBDE571A5DE2CE6ABB603A20EB0E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Laufderzeit - Zeitapokalypse (2016) [MP3|320 Kbps] <Industrial Metal, Gothic Met
 ```bash
 magnet:?xt=urn:btih:14140D8B8BA073A4E40524F56E86AF07BFEA413F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Jack Russell's Great White - He Saw It Comin' (2017) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:E5E43BA8BC395D8951844D3E576AA1AF02887B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Gods Of Violence
 ```bash
 magnet:?xt=urn:btih:98DA107D1044FCDE410936A166A0119A55BCFF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

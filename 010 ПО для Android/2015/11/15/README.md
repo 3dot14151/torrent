@@ -19,8 +19,7 @@ AirRadio Pro v5.0.0 [Ru/Multi] - Радиосканер переговоров �
 ```bash
 magnet:?xt=urn:btih:3C214955F6D492C1DAAC3CD7EB018215BB42B216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Solo Лаунчер занимает 3 место в Топ категории �
 ```bash
 magnet:?xt=urn:btih:101BBBE765E0EB515F70CFFB8F326B24B1604313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

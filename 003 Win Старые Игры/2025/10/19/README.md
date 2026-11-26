@@ -19,8 +19,7 @@ Warcraft Adventures: Lord of the Clans — отменённая компьюте
 ```bash
 magnet:?xt=urn:btih:6191B91FD343355D5F64493AD9700AC244DA8F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

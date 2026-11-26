@@ -18,8 +18,7 @@ Santa’s Christmas Newsletter - захватите праздничные мо�
 ```bash
 magnet:?xt=urn:btih:295891993008F72EA5D1C270BE4945BF8C180520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sniper Elite (2005) [Ru] [macOS WineSkin]
 ```bash
 magnet:?xt=urn:btih:D3CC2F436E8A043CCB5C3D2126C3E9C71328C374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D3D02C966DB881B2CCB3D879883331098D5B0C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F57CEEF60A21C5D6C111BC53C16C81FE62250A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Infinite Air with Mark McMorris (2016) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:32987BCCB64B77D30C2CCC4607B69271B7BDCC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Tor Browser Bundle 6.0.8 Final [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B18A6981166BA770F56B516024BEB938F8FEB000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C672AECD39F4BB8822C1926B59F626A565DC26D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:288DD335D67332AF2B00EB3BD0A7A00F13904837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:08A61A4CA3896F1B5642C47588829FF9D4B6CB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ SoftMaker Office Professional 2016 rev 763.1207 RePack (& portable) by KpoJIuK [
 ```bash
 magnet:?xt=urn:btih:238D26AB871C923D736947AD3E617004CE8A6900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ War For The Overworld (2015) [Ru/Multi] (1.5.0f3/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:2C8FD9390FEE25859A0197E8E9A889C03DB45DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License CODEX [Episode 1-5]
 ```bash
 magnet:?xt=urn:btih:330544C832E89E89097ECEC173D5C35C91FAFDA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC4CA705290AF1AAB5C20D3B39F925F46FB14044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:780519E2A5A3C1150952DDC352AAFCF30EF40B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ Drift Into Eternity (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:6808D7943EF2A2ABAE47B9AED2C2F27D40EF0FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D73AFA5F78235B335C52C82C04D0F64FF3CCBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
 ```bash
 magnet:?xt=urn:btih:79E910DD5DDF4F4C020D5BDFCCB53B793B8F5AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:57C0AAC7CF14CA2B077964C75B13163C0917D159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EB95D34A1901B3233F3E45DC26637C6AE94483A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ Warhammer 40,000: Dawn of War II - Retribution - второе отдельное
 ```bash
 magnet:?xt=urn:btih:3D89C2130B92B4954CDF9834D3EC67EB1B1B20F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ American Truck Simulator — это симулятор вождения амер
 ```bash
 magnet:?xt=urn:btih:7F3A3A3840CC0941F8D077B2A27CAB21410F8578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +599,7 @@ Uniblue DriverScanner - утилита производит поиск и заг
 ```bash
 magnet:?xt=urn:btih:CF50EF5CADEDBAA25FD79BAA5D96FC315FB0805D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CEC92D8E4194EA089A61E11E0789209233DF79B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +649,7 @@ Snowflake Christmas Event Sparkling Background - Рождественские с
 ```bash
 magnet:?xt=urn:btih:AEFE24A904E22AD3ACEAD80DF5A695563DA1A902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

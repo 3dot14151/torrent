@@ -19,8 +19,7 @@ Margrave 4: The Blacksmiths Daughter. Collectors Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:947CE1610C7B1C31D4FD3FC46097EC2192BFB556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystic Diary 3: Missing Pages / Таинственный дневник 3. Пр�
 ```bash
 magnet:?xt=urn:btih:985161637498978B8F3B34DB18678E66096E2302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Paradise Quest [Ru] (P) 2009
 ```bash
 magnet:?xt=urn:btih:95FAA004EF1DA1ABAF398FCD5682941D9276BC00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Ru/En] (RePack) 20
 ```bash
 magnet:?xt=urn:btih:798657DCF3E85EB4E7856875C562BAD7EB561A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

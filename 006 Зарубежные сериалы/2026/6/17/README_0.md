@@ -19,8 +19,7 @@ Now and Again (Время от времени) - американский нау
 ```bash
 magnet:?xt=urn:btih:06F6DADA37473385B08646F387E29AF0E6917694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

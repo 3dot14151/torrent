@@ -20,8 +20,7 @@ Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
 ```bash
 magnet:?xt=urn:btih:EDDC9B3E59E0EF1DF5E3F537D1D7E8C224A39387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Dotma - Sleep Paralyses (2011) [MP3|320 кб/с]<Power Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:73A977D28EC2933D51BB5FCCF2E9F7FE5C977960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Adavant - Tale Untold (2011) [MP3|224 кб/с]<Epic Folk Metal>
 ```bash
 magnet:?xt=urn:btih:BA52C4D7502B83D5CF7DE1AC1D62B367A76CD6FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Neurosis - Live at Roadburn (2010) [MP3|320 кб/с]<Sludge / Post-Metal / Exper
 ```bash
 magnet:?xt=urn:btih:9BCC277261720F5B8BE0CDAADE31C82FCD4B3BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Emergency Gate - The Nemesis Construct (2010) [MP3|320 кб/с]<Power Metal / Me
 ```bash
 magnet:?xt=urn:btih:FD8AC82921A60352C1F64E81957FB83BC35E5792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Monoлиза - 2 Альбома (2009-2011)[MP3|320 kbps]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:E27332F65478E29EDB6A4EF1F325892B5385284F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Bathory - 16 albums + Quorthon (1984 - 2006) [MP3|320 кб/с]<Viking Metal, Thr
 ```bash
 magnet:?xt=urn:btih:14500BC9ABF89C43E3BFB7AF56BD707908BD4469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

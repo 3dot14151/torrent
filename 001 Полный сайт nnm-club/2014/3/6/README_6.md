@@ -20,8 +20,7 @@ True Launch Bar программа для создания собственны�
 ```bash
 magnet:?xt=urn:btih:72CDA97372C96EA99B6875ABE12DC2E90B3D6EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Zeno Clash 2 продолжает приключение Гата, которы�
 ```bash
 magnet:?xt=urn:btih:6BFA948E8D83B0ABD2AC86951A65126161B82932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C999F7A98E48344C960614E005E972D19AE122F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Beginning 3D Game Development with Unity превосходно подойдет
 ```bash
 magnet:?xt=urn:btih:8CD70E61A1EB826EEA4CD8BC0050164FD94FB810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Master Retouching — прекрасный обучающий материал, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Unreal Tournament III – третья часть самой популярно�
 ```bash
 magnet:?xt=urn:btih:9B14F7FBBC1B8C3D2FF61162F29FA1DBFD94537C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C5E8583CA2ACA760DEFC771D46498372563ED2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Castlevania Lords Of Shadow 2 [PS3] [EUR] [Ru/En] [4.50] [Cobra ODE / E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:67E16E197BB99C25F19743B232EB9162B684ADC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ South Park: The Stick of Truth / South Park: Палка Истины (2014) [En]
 ```bash
 magnet:?xt=urn:btih:876B1445AE3A0AAD6AE5C18EF3C4B07501B6739B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:619F774954995326BB798A7DF27915BCBB3E9F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Dark Souls II [XBOX360] [RUS] [Freeboot] (2014) | R.G.X360-Club
 ```bash
 magnet:?xt=urn:btih:B4D923B24FD084A853AAA381419B7A3313C35D2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C7E55F3195BD84E22611B7B0D76D44BAAC45CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F19798375A6F992B2E530A3236921F099F1486E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Ultimate Windows Tweaker 3.0.2.0 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:CC2B5DCBC5FAD4BA5B4AB20206D5403131AAF2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ South Park: The Stick of Truth / South Park: Палка Истины [PS3] (2014
 ```bash
 magnet:?xt=urn:btih:B828BF6F389A6C7C46486F5CDF8B87EB06D41035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AD2498329C2DF4E515DCBBAC9F2E3C217453897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE171EC96212A8608405F63AA72A06511FDA7294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E30990DE1A1EC864ECD3AA8F310FE211FEF5116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Avid Sibelius 7 - последнее поколение бестселлера �
 ```bash
 magnet:?xt=urn:btih:A7565BA32D45A559BDBD1194AFBADC45AF5A6109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ en_win_xp_pro_x64_with_sp2_vl_x13-41611.iso (MSDN)
 ```bash
 magnet:?xt=urn:btih:F58AC05BD585E82A30EBD4831CA846611B3421B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ Dark Souls II [XBOX360] [RUS] [LT 1.9+/XGD2] (2014) | R.G.X360-Club
 ```bash
 magnet:?xt=urn:btih:F05A1431B9EC6CF9793CF1C0B96A5F8C50A48BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ Metal Gear Solid 4: Guns of the Patriots — это грандиозный фи�
 ```bash
 magnet:?xt=urn:btih:0E1D601DC45C8D004BBBB2626BC430BE19F5E5F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ Corel VideoStudio Pro X7 17.0.0.249 [En]
 ```bash
 magnet:?xt=urn:btih:24B64B08A9B2CED1D41FA17218F9FBED98F1D8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBC6AFAB927EFA6F0B3D1CAF222A032C7CB5EE70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

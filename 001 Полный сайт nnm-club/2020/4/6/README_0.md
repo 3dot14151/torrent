@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:07D2AF6548B17BDB481EABCBEE5BC60C3401A06F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06D3FAE923D5ADBBA64383F34C0B8F71B140F751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1817BF72B9E307EB8271E2977AEE4C9E1C13E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Benny Benassi - Axtone House Party 2020-03-09 (01:00:00):
 ```bash
 magnet:?xt=urn:btih:0059AEE77B296DE718B793425942D4D115DCAA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2FC0961AD2BC943177B6C4BA01BAB4B753EA374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05D3CACCD621A0ACAF60D11CB49CDCF1FCC10F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Sam Bailey - The Power Of Love (2014) Величайшие хиты XX века 
 ```bash
 magnet:?xt=urn:btih:6D8254B5C1C3892FE12159259E8862AEEBD752A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8212FA36C73A159BA3DBDEE24457D6AF56B4FF2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:019C504E1D0AF15B2020A2A59C942C59D313F7B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ DOM & podium – яркий, уникальный глянцевый журна�
 ```bash
 magnet:?xt=urn:btih:DB3143945530D7118EB6AB2985601AA68507DB22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Squash работает точно так же, как магия.Тип изд�
 ```bash
 magnet:?xt=urn:btih:4CDB7E341480AB3171957F269BE9A0632D5DA070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8688DBBD4D6C46F625133680FBA24CB0FA66DD59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ The Now - Bobby Orlando Presents Now (2013) [FLAC|Lossless|image + .cue] <New Wa
 ```bash
 magnet:?xt=urn:btih:EDAEAF9AAA7E0E47493CE729EF73FCD9B12B9C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0252442755B80E2C6408386A8080302D5EFD6ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, мон�
 ```bash
 magnet:?xt=urn:btih:89FD59FD8CD82918498B5E176E21562DA1F1D6AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, мон�
 ```bash
 magnet:?xt=urn:btih:034E887C1A28AFC231416F79C57A752BD0C5413B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:9F881D9811D9B65F295BDE744ED90350AA1DCB63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ DxO PhotoLab 3 ELITE Edition 3.2.1 (build 51) [Multi]
 ```bash
 magnet:?xt=urn:btih:25C8771A76DB805B566B943233E68ADD0186EB8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ iSkysoft iTube Studio — «качалка» и конвертер видео ф
 ```bash
 magnet:?xt=urn:btih:D5F099A992266A5ECCBF7EBD2D5339B9386D81E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87EFE6D6E62749BA5C2B97B4B87C0A2B9C189A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ Eternal Delyria - 6 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:08168D14B7521033F4C4DC139360E59CCF382AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ VA - Great Duets (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:DF252757D6F9088529234B77168DB68122D642B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ Jack Action - Рикошет (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:03C6D2D5E6A6D654E5ED3F99535CB3262206C039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ XMedia Recode - отличная утилита, цель которой - по�
 ```bash
 magnet:?xt=urn:btih:8A49FF6CEE597902BB45D7A5B61EABEF3D2B5067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75D17F991EFC7BFE2868AB01BE5FE329ED6F310D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F61E03B03D510D0B0DADA0451DFB264C8477A653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

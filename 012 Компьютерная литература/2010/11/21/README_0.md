@@ -23,8 +23,7 @@ Silverlight 4 Unleashed охватывает весь процесс разра�
 ```bash
 magnet:?xt=urn:btih:495427A18C772E2DD7559B63A7A0162BC2D645C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

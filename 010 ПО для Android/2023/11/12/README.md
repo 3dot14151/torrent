@@ -19,8 +19,7 @@ Photo Map - это ваша новая персональная интеракт
 ```bash
 magnet:?xt=urn:btih:55A39ABFE565F76C2599B2553FC212F9BFF4DBE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

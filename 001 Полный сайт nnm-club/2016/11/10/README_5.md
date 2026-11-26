@@ -18,8 +18,7 @@ Microsoft Word 16.0.7426.1015 [Ru]
 ```bash
 magnet:?xt=urn:btih:F3710E9FCDAE0FC2E4E23B5F5A53F26E9D6AFB20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Windows 7 SP1 AIO x86 x64 DVD StartSoft 28-30 2016 [Ru]
 ```bash
 magnet:?xt=urn:btih:6B957D5BC74C927D2C14B177BD687FB62233687C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE50843CCDDAFF1740C9FE174D879E9F91125CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

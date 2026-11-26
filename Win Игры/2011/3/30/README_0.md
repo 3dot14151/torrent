@@ -19,8 +19,7 @@ Haunted Mansion: Mirrors / Особняк с призраками: Зеркал�
 ```bash
 magnet:?xt=urn:btih:10CCE753813B83D7B78ABB4397A3DFF69DC5A7C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Crysis 2 Advanced Graphics Options Application позволяет соверши
 ```bash
 magnet:?xt=urn:btih:44768C44D6A73D36743B54B7201B4E98ABCA67D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Armed Assault 2 / ArmA 2: Reinforcements / ArmA 2: Второй фронт [Ru] 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

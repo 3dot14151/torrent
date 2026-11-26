@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9190E4B52719A29BA4E29E5363945E1E437C631B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFFF6BC49BF431E46003BE155707DB3152CAA9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ```bash
 magnet:?xt=urn:btih:24C461C10D1B5F5CC225D39289ACA30C7E3B6C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

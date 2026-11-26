@@ -22,8 +22,7 @@ Blood Youth - Beyond Repair (2017) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:51FEC0F975BA03568BDF56439B18D15C23827AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Rock Classics - The Collection: The Ultimate Rock Anthems (2017) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:DA17FDCF1055187A07ABC99E4C50759F02F3C1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

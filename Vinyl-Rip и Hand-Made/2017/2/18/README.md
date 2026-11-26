@@ -22,8 +22,7 @@ A4	A Matter Of Feeling(   Читать дальше...   )Жанр: Synth-popП�
 ```bash
 magnet:?xt=urn:btih:AC6D710DCECA83540E6D5487CFA041AD805349FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

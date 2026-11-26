@@ -19,8 +19,7 @@ XIII (2003) [Ru] (1.01) Repack anton210896
 ```bash
 magnet:?xt=urn:btih:C458DD7686D7F8A04398BAFCC34CCD08F8F22BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

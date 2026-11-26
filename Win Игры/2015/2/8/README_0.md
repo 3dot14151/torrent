@@ -23,8 +23,7 @@ Front Office Football Seven - менеджер американского фут
 ```bash
 magnet:?xt=urn:btih:5857A1E51F6CA33A90D213C4CBA78D595D8F6A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Island Flight Simulator (2015) [Multi] (1.0) License 0×0815
 ```bash
 magnet:?xt=urn:btih:6C9492443E0FC060EA71D35CBE04C8F970CBA3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

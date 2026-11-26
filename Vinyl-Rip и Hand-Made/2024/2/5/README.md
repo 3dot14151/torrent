@@ -21,8 +21,7 @@ Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped]
 ```bash
 magnet:?xt=urn:btih:6227DBFF2E1CD0143806A6224B37846455483A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ B1 Latvian Fegurð(   Читать дальше...   )Жанр: Atmospheric Blac
 ```bash
 magnet:?xt=urn:btih:EE6C74709662552E4386128EF8CA6785B40D02CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ URNE - британская рок-группа. Сложно определит
 ```bash
 magnet:?xt=urn:btih:8D3D90B3739BF06799A27D9662E946428322A2AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

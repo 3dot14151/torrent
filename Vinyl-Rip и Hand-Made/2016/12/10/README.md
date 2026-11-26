@@ -22,8 +22,7 @@ Toccata In C Major, B. 564
 ```bash
 magnet:?xt=urn:btih:BD12A25ED340DB6E47FBCCF0FF80D700A77E692E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

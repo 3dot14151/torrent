@@ -21,8 +21,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + Mod
 ```bash
 magnet:?xt=urn:btih:2A045C7A485FBE29D5A46D0E1D93B5878A4BF6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

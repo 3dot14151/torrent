@@ -20,8 +20,7 @@ Windows 8.1 (ранее известная как "Windows Blue") являетс
 ```bash
 magnet:?xt=urn:btih:1FA27B0CC3928D3777065ED29D336A90A7B1CBFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E05E57DEA84BD8BC7DA3C4551976F4784D981FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Heroes 3 1/2: in the Wake of Gods - это неофициальный add-on, р
 ```bash
 magnet:?xt=urn:btih:37F10902810542350F8FDB7BD53A941E514BD55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Rosetta Stone — лучшая программа для изучения язы
 ```bash
 magnet:?xt=urn:btih:CF1918C12CE365F794D6E7A44D88889158573760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ S.T.A.L.K.E.R. кто то ценит за непревзойденную атм
 ```bash
 magnet:?xt=urn:btih:8EB5E9E63B2834174D4C82369261EADEC37094E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

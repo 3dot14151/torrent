@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8771080EB9FBC604DDCA7D2E1E001F16A8F583D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ In My Hands - Крепче (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:7208C1C74BA34B048EFE8A050A8352731FED09CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA63C9F243FAF98AF04CD34F34BB6B7BAB5046FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

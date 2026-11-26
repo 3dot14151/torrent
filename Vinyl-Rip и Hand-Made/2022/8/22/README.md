@@ -22,8 +22,7 @@ Mustasch — шведская рок-группа. Сформирована ос
 ```bash
 magnet:?xt=urn:btih:F2A572D12A122F07EDC0FB74286296C4D97E3F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Incubus — американская альтернативная рок-гру�
 ```bash
 magnet:?xt=urn:btih:498D7C5238B757291021C5700507A34100F0873D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

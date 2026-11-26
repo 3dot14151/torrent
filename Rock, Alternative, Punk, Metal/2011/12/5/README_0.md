@@ -28,8 +28,7 @@ Ryan Adams - 11 albums (2000-2011) [MP3|320 kbps]<Rock, Alternative country>
 ```bash
 magnet:?xt=urn:btih:E90EE930467559864721DA804757A08BDA14BF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Музыка Твоих Крыльев. Настоящие русские �
 ```bash
 magnet:?xt=urn:btih:15EA6D4EECFCBD85C15F5C1BFC584ACE7AAF8323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

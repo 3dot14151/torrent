@@ -26,8 +26,7 @@ Unity - для тех, кто не боится попробовать что т
 ```bash
 magnet:?xt=urn:btih:25EF5EFCBEF9F41288B95D790D9B474B9D716451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Simplexity 4 for Sony Vegas - Четвёртая коллекция мощных
 ```bash
 magnet:?xt=urn:btih:28EB3CF7C5C20C27DF0E10CFD62EE01CF7205530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Assassin's Creed: Liberation HD (2014) [Ru/Multi] (1.0) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:6B6695569858EF64CAF7D7692202FEF3F603EAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EC4044902215FB9C7963006B8117C569E9EAC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Simplexity 6 for Sony Vegas - Шестая уникальная коллекци
 ```bash
 magnet:?xt=urn:btih:D6BF251705C7342D07DE0939C2BBE1DFB01FDDD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:534519574F8C5EDAAA5054AC7ECB28AF53EDE5DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69A3FEA0A1A71119ED7C273648DE94551C2CB3CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Assassin’s Creed Liberation HD (2014) [Ru/Multi] (1.0/dlc) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:163CDA07A0BE5E43F74F0449BF621D1D21AC6E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0186CA053A7384BEE132B038DAAC85C14C55D56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Assassin’s Creed Liberation HD (2014) [Ru/Multi] (1.0/dlc) Repack R.G. Revenan
 ```bash
 magnet:?xt=urn:btih:699E914BE8A7FFA35F69C1C9CCAF7282E103CD44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62A26125BB7E175D6D30DA6F53C75472FD3C1376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Office Tab Enterprise Edition новая версия небольшой, но �
 ```bash
 magnet:?xt=urn:btih:4C2E53E469EEBFD3DC3B7878E805AD4F280C9F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55B63EFBC7DE1E5F06C5373BC9AEFD240A431752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ CleanMyMac 2 позволяет легко и непринужденно изб�
 ```bash
 magnet:?xt=urn:btih:83A16FF55B081F19D04321C7FDBD4DFEFCED15DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ BBC: Загадки истории. Мифы и герои / BBC: In Search Of M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC627B9D233515E41C6A48B0E12A3B2ABCCC934C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A736E5976D92529A6079053B1A2BAB6C0391CA3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94BFF826819EB3CE6F33DF5E9E817B0A900ABE82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Filter Forge – это отдельное приложение и высоко�
 ```bash
 magnet:?xt=urn:btih:2292D1EFC9A4A8D2A44FA3396F210B1278888BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Starперцы / Last Vegas (2013) BDRip [720p]
 ```bash
 magnet:?xt=urn:btih:BCEEF48A6E8CC2C10F4AFB595A6CBA6852B56CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Simplexity 7 for Sony Vegas - Седьмая коллекция мощных и,
 ```bash
 magnet:?xt=urn:btih:8DFCC4A3E3F4ADDD733B0000AF2FA06C27C5808F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ City Navigator Europe NT(Unicode) 2014.40 [Карта] (Garmin)
 ```bash
 magnet:?xt=urn:btih:0666ED78B76D69F65CCDB60B0D9E1B0D2F19314E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA488D88F9A66D38B97A29A3F2A84A1D1AE427B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Crysis 3  [PS3] [EUR] [Ru/En] [4.31] [3k3y ODE ISO / Cobra ODE / E3 ODE PRO] (20
 ```bash
 magnet:?xt=urn:btih:87372633518FA9CD233903C6F6C6F39EB74834FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ SpellForce 2: Demons Of The Past – третий и последний офиц
 ```bash
 magnet:?xt=urn:btih:394F5859B5CDE3EA7341BDFBA905EAFBA6660C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

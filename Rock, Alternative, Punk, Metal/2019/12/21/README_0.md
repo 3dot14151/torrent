@@ -22,8 +22,7 @@ The Dark Element - The Dark Element (2017) Japanese Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:D5474F64A9837C32605D6DCD63337D59190E9632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Dark Element - Songs The Night Sings (2019) Japanese Edition [WavPack|Lossle
 ```bash
 magnet:?xt=urn:btih:58630A0D92C2DD1481B2B3307792561ECF126BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ozzy Osbourne - Ozzmosis Part Two (2019) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7F500B42225E833357344F07E17B570B0DB9AB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

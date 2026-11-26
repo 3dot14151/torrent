@@ -20,8 +20,7 @@ PHP, в настоящее время, – один из наиболее поп
 ```bash
 magnet:?xt=urn:btih:5CACEE84E829DD089BDA9DB99F5F94808660C28A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

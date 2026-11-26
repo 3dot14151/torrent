@@ -19,8 +19,7 @@ Liberation Day [Ru] (Rip) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:26A6282728D77D75073B3B00AC48B98EB06ACAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Descent 3 [En] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:399ACE226209029C7A796DB59CA585FD17486A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Gangsters: Organized Crime [En] (Rip) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:235CA1C69AD38ED90FED5417EB34CECE72EFFBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Fallen Lords: Condemnation [Ru/En] (P) 2006
 ```bash
 magnet:?xt=urn:btih:CEA1C18AC69CFB599BB532EFAAD69FEB5F689A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Astray [Patch] (2015) (upd1) Official RELOADED
 ```bash
 magnet:?xt=urn:btih:01C80C9B0B380F174078EB6F857E45E0C8991CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Incredible Adventures of Van Helsing Dilogy (2013-2014) [Ru/Multi] Repack R.
 ```bash
 magnet:?xt=urn:btih:15404EE06CBCB3140621ABD24A994D7CD54531C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Astray - это мистический паззл-хоррор от первог
 ```bash
 magnet:?xt=urn:btih:517C7BDA98EC50ED25A717A6AD1B8B15319913F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ One Piece. Большой куш / One Piece (2023) WEB-DL [H.264/1080p] (сез
 ```bash
 magnet:?xt=urn:btih:DAB4E6AAE1611B9B3A0008CBA899268509E5A2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

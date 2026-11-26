@@ -18,8 +18,7 @@ Windows 7 Профессиональная VL SP1 Build 7601.24519 (x86-x64) [2i
 ```bash
 magnet:?xt=urn:btih:A9C758A4EC355B88AD4525C7307E610543693635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB5E0A383A9E1C47A31026F9710B154649E932ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF1340BDC65D488F1A6EC37BF7157CC28B1E82C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Men of War: Assault Squad 2 - Cold War (2019) [En] (1.004.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:681CDAF49333A3C8C9A8C0ED7D597E6AE284D5E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ VMware Fusion: удобная и мощная виртуальная машин�
 ```bash
 magnet:?xt=urn:btih:2179DADE37E51EBC3DE8B4A4AD205A5691AC700A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Fruits Basket 2019 | Корзинка фруктов 2019 [2019, TV, 25 из 25]
 ```bash
 magnet:?xt=urn:btih:462AD2950CAED31EAAD153F50BCCC785EAF03BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Homefront®: The Revolution — После 4-х лет оккупации Аме
 ```bash
 magnet:?xt=urn:btih:6B97F1B36161A69FF62CF90F9E0D294EEC8F6E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:476DA74CE9FD5EE424720CB5BB748B71B70BC8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Dolby Atmos обеспечивает потрясающую детализаци
 ```bash
 magnet:?xt=urn:btih:77560C395BDD6E7A168BF85EF0C48D398DC1CD67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95E519FE753ACC23537EDDEF27383D004E79C12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C85208B6C37C23D0FA032F0A92AE2BE7C2A35ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

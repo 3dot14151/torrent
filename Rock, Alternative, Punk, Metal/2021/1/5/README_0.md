@@ -22,8 +22,7 @@ Southern Brutality - Watch Them Burn (2020) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:241FFF5FD2F1150592C367E819D3D41070B70A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Adam Nitti - The World Is Loud (2021) [MP3|320 Kbps] <Progressive Rock, Fusion>
 ```bash
 magnet:?xt=urn:btih:8B9EF4CAF004B63D5051B08F740188115079ED76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dorian Wilde - I Am Ready For Love (2020) [MP3|320 Kbps] <Progressive Rock, Inst
 ```bash
 magnet:?xt=urn:btih:6591E6A979C96632074FC4C1225A8E72BFEBBFA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Anaria - Exile (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal, Female Vocal
 ```bash
 magnet:?xt=urn:btih:B64F7BCAFB93C6B39AA7FD6551BB42938992CA46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Supersuckers - Play That Rock 'n' Roll (2020) [FLAC|Lossless|image + .cue] <Sout
 ```bash
 magnet:?xt=urn:btih:E3041B951B7C7DCD43AF01DCB20C2F9131A08FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mission Control - Mission Control (2021) [MP3|320 Kbps] <Jam Rock, Fusion>
 ```bash
 magnet:?xt=urn:btih:10573416B41453A1187A8DCF8D63ED9FFFB25F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Trna - Earthcult (2018) Reissue, 2019 [FLAC|Lossless|tracks + .cue] <Atmospheric
 ```bash
 magnet:?xt=urn:btih:AFE9CDB5C395923817A92CC579FB5CF5F70FFB26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33B882C42430D43134A27CD7847B8E0ED79B8D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Illyria - The Carpathian Summit (2019) [FLAC|Lossless|tracks + .cue] <Blackgaze,
 ```bash
 magnet:?xt=urn:btih:055A6F38F70AE3E4D535440380D2841EF31E1D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Slow Burning Car - Projection (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F3ACAAEA8C3888395B0DBD47E07BD614CA6097A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Steve Miller Band - Greatest Hits (1998) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:FCAA620DC7D5702D5B714C8409F6B5E33062EFF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Larkin Poe - Self Made Man (2020) [MP3|320 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:A5DE1531FB1FF6F0D7AA5944E35FB0B3BB03EE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Excelsis - Bluetmond (2020) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:C445EDEECC3BAE8B51C7039BCF01333A2A8E4609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

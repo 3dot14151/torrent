@@ -18,8 +18,7 @@ MouseBoost pro for Mac 3.3.5 [En]
 ```bash
 magnet:?xt=urn:btih:171E06CF2A52E723CDA813F8205E9F86E01EC4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 ```bash
 magnet:?xt=urn:btih:FE8E4813B874FD10556D8E33F35B7D8EEC87C9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Hannah Wicklund - The Prize (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 ```bash
 magnet:?xt=urn:btih:2E3AF2DAA8C2BE8D6E64950D3A4973C0D51D1CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

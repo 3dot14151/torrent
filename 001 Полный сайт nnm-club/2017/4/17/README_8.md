@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:11DDB63B7233865429B97B428E3C601DD5884A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABA123F147D881E9862FDBB57EDC6ABFE289B1EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B0397363AF6850D8C8715B81312E7CD2181622F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jimmy Forrest - Black Forrest (1959) 1999, Delmark Records [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:EB6B5793D6DA2A43497F4EFDF4D011FEB88FD19B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Uhrilehto - Vitutus Millenium (2003) [APE|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:440B85E21B3789EBADAC6273E2A3C28AC4338D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Uhrilehto - Viha ja ikuinen vitutus (2001) [APE|Lossless|image + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:4AA92DB3BAFDCF11CD98EFE7BF798AF542DB0B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ BookMacster - синхронизирует закладки между брау�
 ```bash
 magnet:?xt=urn:btih:48A83CCCB0B7D052A79A62045B7FA247325650F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D18CD6E895651EA2FD0BCBE987A3759690A76E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Depeseblo - Nightmare Desolation (2017) [FLAC|Lossless|image + .cue] <Melodic De
 ```bash
 magnet:?xt=urn:btih:00EF4A758378AE4C37F950918C09AE7449A35359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ File Cabinet Pro  - менеджер документов из строки ме
 ```bash
 magnet:?xt=urn:btih:21353EF397ADF0CE6E1EA9B588F74171B0D3D434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ App Pier представляет собой клавиатурный пуско
 ```bash
 magnet:?xt=urn:btih:7E11FD44E7441A93A20DC7225DD165E9859F3B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ CD1 - Soultrane:
 ```bash
 magnet:?xt=urn:btih:27B4E27C4B356749E8D12445D3BDA14BCB033289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Doo - Get Things Done 2.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:9CC4C75B338DD30FC72A72B88CCEF2D52C329EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ VA - Transmission Express Vol.2 - Electro House (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:E52F298DA4CA4BE5600F0CA9EBE4C99221DCC1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF3154C0C593C2C6AF1019BAF6723302C3637A3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Hurricane Ruth - 2 Album (2015 - 2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:A6BF263D803AC53F7CAF33ECAAD2E9D00FE0BC75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:649C78AA5936038A0A5A21FABE24C6784188D8E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ VA - The Best Of Trance Vol.54 (2017) [MP3|320 Kbps] <Trance, Uplifting, Tech Tr
 ```bash
 magnet:?xt=urn:btih:FB2295AA83414577A41A858DAEF566177750400D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ VA - The Best Of Trance Vol.53 (2017) [MP3|320 Kbps] <Trance,  Uplifting, Tech T
 ```bash
 magnet:?xt=urn:btih:8225ED8D1DE3A7FE492DE829C8E79EF09E8916CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDA8C0707154760955874F6D757761C070094A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ Memphis Slim - World's Foremost Blues Singer (1961) LP, Remastered, 2016 [FLAC|L
 ```bash
 magnet:?xt=urn:btih:B85A6B66DC68146A2999EE287DA5B2439EE3EF59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ iLock очень проста в использовании. Выберите л
 ```bash
 magnet:?xt=urn:btih:D68D5D0F181B6E58D222F4C1AD446677686B297A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ VA - Ambient Chill. Alternative Relaxing Background (2017) [MP3|320 Kbps] <Downt
 ```bash
 magnet:?xt=urn:btih:2ABD69FEEF509A393A79F24C0517A1B23034F6AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ VA - Vocal House Maniacs, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:EDD22F335462A39A5E18921EF1BDF20B0CBC49FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2295937CD33CF2864BE1A3E7DB49FF55C07BD36F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +710,7 @@ Fantastical - приложение представляет собой кале
 ```bash
 magnet:?xt=urn:btih:6A482765516C72AA77F44DFE141A4E2AA779AB6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

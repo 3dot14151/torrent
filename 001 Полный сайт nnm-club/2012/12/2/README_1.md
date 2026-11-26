@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6D750A8D9077DF6A33F2387606B0BBA053DB9CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Hits 2013 (2012) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:FA6631FB7209BC672E2111FC3C3F55E59A2A8143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Первый Cнег хитов на Русском Радио (2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:30F9AAFAB8D270C48E0B95A57E99C7CF024C729A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Nettless - From Beyond (2010) [MP3|320 кб/с]<Ambient, Electronic, Space Music
 ```bash
 magnet:?xt=urn:btih:82321709E9B27139CA58F3F18234C636F41D4E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Afrojack - DJ Mag Top 100 (2012) [MP3|320 кб/с]<house / electro house / progr
 ```bash
 magnet:?xt=urn:btih:B75004E882445CF1BB74228C0F95DD652D29A6EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Seal Bient - Terminal EP (2011) [MP3|320 кб/с]<Deep Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:EAF3087CDE083046CFD4C50CCEBED47C0F2FEA20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ PC Week - Журнал информирует о передовых технол
 ```bash
 magnet:?xt=urn:btih:FFEB84A5015DCC1C780D7208AC1D6111A5300F42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ VA - Радио Шторм - Русский Шторм - 81 (2012) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:1A90BA5F196A3D8D4B63651D1D110B07B7C9F34C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16D1B3ADE2DF6A8DA5E296B42CC6932ACF12E484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ VA - DJ Stevo - Multiverse (2012) [MP3|320 кб/с]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:452BF50F7BE14D29717CD943585F079F7AF0D247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Butterfly - Favorite Colors Episode 060: Classics Edition (01.12.2012) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:060157F02662A4D8579FEA801B34319C52B48E72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ VA - Сотка Русских Поп Треков (2012) [MP3|256 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:2FB9954745A0CE3C6BDB40A36E97494E0896083B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0666D92D07ECA9E07A4529E40846CDCF71F1136B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:181908951D3C037D8865492C0380367FF0B0B305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ VA - 100 Club Dance Hits (2012) [MP3|320 кб/с]<Dance, House, Club, Euro>
 ```bash
 magnet:?xt=urn:btih:BC72A23D2100C2C5CBD12B94C919FDD29DD0B7AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:304F86C273D74879C3437FEFE18038DF5A88492A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ N\AЖанр: house / club house / vocal house / electro house / progressiveПр�
 ```bash
 magnet:?xt=urn:btih:2B1654A26906667A2B1460161741F13F8D4BB395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB6AA7E7C63C1D7D70F4DC75E9036C957C7F5BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ Fox Wallpapers (01.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:300E93C912A6D6F35213A9255CE1CF067EECCD72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ VA - DeepEmotions - Car Dubstep Vol.10 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:70F212A3F6428CBEAFA242A7E9318969BC5B48D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ VA - Главная дорога: 100 лучших хитов 1 (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:6BCE622CF1462A65D09407901D0904CD31C36B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ VA - Зимние новинки Русского радио: русский (20
 ```bash
 magnet:?xt=urn:btih:7CCBA6E6A538E4676A3C18F167F74D7EA86826DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ Various Artists - Thriller LP: Crime Scene (2012) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:068EF2C279AEDFD36F552FE9BEAE5844F6E0C2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6D91E1E465F1022EBDF89AA61FA65B28268EA3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

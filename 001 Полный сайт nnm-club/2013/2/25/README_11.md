@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DE3AE76329A97E45FC5F3F4231160D5509FECD5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6086187BA59723CDBD83D7B2CC8EC791DD63D54B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F87899FE14076A51CDCE75B77DF6EE36E3F5C109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E19E9CAB63A6F3608A23EEB78CFE34DECC75F2D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Butterfly - Favorite Colors Episode 072 (23.02.2013) [MP3|320 кб/с]<Progressi
 ```bash
 magnet:?xt=urn:btih:3D4FC8D6C43536E004C64CEE23F589161A0792B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ VA - Беспокойная душа. Выпуск 4 (2013) [MP3|256 кб/с]<Ш
 ```bash
 magnet:?xt=urn:btih:7EAF35B0F22C451EA1E52DCF6B79C737A81C41D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ LazPaint - бесплатный графический редактор с от�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:440ABB7B3CF600CBEE396E53229F0254ECDCFE85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ VA - Anjunabeats: Deeper Shades 01 (22.01.2013) [MP3|320 кб/с]<Progressive Ho
 ```bash
 magnet:?xt=urn:btih:AF6EAA1A99C7DB5269C523333C5B14516FAA5211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ Butterfly - Favorite Colors Episode 071 (16.02.2013) [MP3|320 кб/с]<Progressi
 ```bash
 magnet:?xt=urn:btih:334F98E96B5CAD7AA620E213B0B5B1060B362F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ Va - In Da Club Vol.70 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:C61E2BD31747EF62D71C1146F7BAD629645631B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ Brightness Guide - выравнивает яркость фото, осветл�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ VA - Русские Новинки Vol.98 from AGR (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:B356E972F5793D9EB2D30B2BA4276997926BB620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ VA - Tropical Treasures Vol.1 (2013) [MP3|320 кб/с]<Deep House, Indie Dance, 
 ```bash
 magnet:?xt=urn:btih:EA879930303328C98A9FEC7FF282DC5EB8EAA734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6428B3EEB6472300F9ABEAF096213833BDAFC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED41DEE682AB0931D4DC25D13CB135FFFF36423D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ NETGATE Registry Cleaner - утилита, предназначенная для
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +546,7 @@ Yesterday Live - это наш шутливый ответ америкнско�
 ```bash
 magnet:?xt=urn:btih:3CD8D28A5C6A7809EE3615D155F1ACC07242EE0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ VA - Acoustic Wave (2013) [MP3|320 кб/с]<Acoustic, Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:E4631FED0D15BF75BDE59834224FFB9ED6CB2027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ WinISO Standard - программа для работы с образами CD 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +639,7 @@ VA - The Best Chillout And Lounge Music (2013) [MP3|320 кб/с]<Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:5EAEBA77101F3B2C07DF46C71C90F3FA74D86ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:542B24A42B34CE62917536999AFF5026D23F2773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AB7E08F3095B001D835598B9545E977148B8811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ Armin Van Buuren - A State of Trance Episode 601 (21.02.2013) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:1F62CAB0DB39776D231E7CB36B71A1357B82F0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ Va - Acoustic Relaxation. Woman's Voice  [MP3|320 кб/с]<Acoustic, Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:256F9A5C1E6153EA0F012014757A8E218A3150F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Tarja - My Winter Storm 2 LP (2007) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Opera/S
 ```bash
 magnet:?xt=urn:btih:A4F03456CD61EFCEE8480164E6AE4C64CB2BD221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

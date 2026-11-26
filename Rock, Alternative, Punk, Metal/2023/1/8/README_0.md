@@ -22,8 +22,7 @@ Carnal Forge - Firedemon (2000) [APE|Lossless|image + .cue] <Thrash Metal, Death
 ```bash
 magnet:?xt=urn:btih:D9CE74C18E7971AECD07D072BAA5AB0ECBDD6D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Carnal Forge - The More You Suffer (2003) [APE|Lossless|image + .cue] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:9ED9A3F0A498E1A2261B1FA5AF98C6934DDCB619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Therein - The Void Affinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death,
 ```bash
 magnet:?xt=urn:btih:79124026C5F9C8549DCB54722A009F1A46C70EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Brimstone - Carving A Crimson Career (1999) Promo CD [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:4ACD9DC151660EAFA389A9E310429B30CAA1B568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Where's My Bible - Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore, De
 ```bash
 magnet:?xt=urn:btih:0C5B28DB1FD65048E6B5A791499EA8F7CAA283D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Cryptopsy - Whisper Supremacy (1998) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:D98B08A3043EA7F25A91F8015B7AEEA9488F90DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Nails - Unsilent Death (2010) 10 Year Anniversary Edition, Remaster 2020 [APE|Lo
 ```bash
 magnet:?xt=urn:btih:6C4C789FB4067BC00D41B4E41D7C5AA1AE7C6E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Tryckvag - Legacy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E6EDFEFA00EA443F0E178B7CBA9662A40D8CB532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Temple - Of Solitude Triumphant (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 ```bash
 magnet:?xt=urn:btih:0E85D048A3D3E180C2E43F629C3EA615498D454A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Allison - One (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:C7F200988F2CC4AF35EB189E4F1E026C2E18CDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Weeping Kin - Gnawing (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:19588A08D3C0FD57E5CE9A805C8BE629595B30A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Epica - Consign To Oblivion (2005) [OGG Vorbis|480 Kbps] <Rock, Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:E34D65A98CD9502AA4F1495EDF9AE187888A1266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Frost - Out In The Cold (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EC55A81AC50643E4C52540CF6EEA39C2F157EDD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Number Nine - Guilty (1997) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F31EFC11E8758582A9223D927699318297B69673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Heartscore - The Edge Of Times (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:FE69740A4EA191A7F27C6C696C071902CE69F445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ White Skies - Black Tide (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:42773E25EA155A125BE999EC820660FAFA0E0106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Foreigner - 4 (1981) Reissue, 2011, Atlantic [OGG Vorbis|480 Kbps] <Rock, Classi
 ```bash
 magnet:?xt=urn:btih:D29440213B071B153392DC8B6A4FF9C08268811C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Grand - Grand (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock
 ```bash
 magnet:?xt=urn:btih:41A7909EBB11BAF2FEE16B17124E435C29C17864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Amberian Dawn - финская симфо-метал-группа, основа�
 ```bash
 magnet:?xt=urn:btih:D74431DA2B98D2840319C9707A30D3BDBD828A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ Crawling Chaos - Goatsuckers (2008) CD-R DEMO [APE|Lossless|image + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:8C01DE7BE9729AD2319E892DD3560393A27EF1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ Nightwish - From Wishes To Eternity - Live (2001) [OGG Vorbis|550 Kbps] <Rock, S
 ```bash
 magnet:?xt=urn:btih:6C0AFA5951C808CFC4FCDC39ADC971400A3B2ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ Cyborg - The Last Thing You'll See (2009) [APE|Lossless|image + .cue] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:7A6851B0C2FF6A826EBCDFEB676A1F6328157D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ VA - Полигон Records. Лучшее 2022 [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6A61035F63B3F6229804125167F4A30DA8E7190E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

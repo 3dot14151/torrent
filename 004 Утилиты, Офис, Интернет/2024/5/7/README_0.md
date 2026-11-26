@@ -21,8 +21,7 @@ Windows EducationPack - все для образования и организа
 ```bash
 magnet:?xt=urn:btih:266069F848FA5B9AD8B279784508645B47377B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ TreeSize Free 4.7.3.550 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B9592DC34A0D95DFC2DA6C68FE69BDEDFDA9FB43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ ScrollNavigator - программа, которая поможет вам пр�
 ```bash
 magnet:?xt=urn:btih:B70FA90EEEE9E7A8C2DF0F383DE16EB1E361552D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:75BE610F72CEF460644939E8AFC8F09110F29757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

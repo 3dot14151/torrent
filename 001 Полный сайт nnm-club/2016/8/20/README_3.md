@@ -18,8 +18,7 @@ Alphabet Logo Reveal  - анимированный алфавит для ваш�
 ```bash
 magnet:?xt=urn:btih:7726546A4A29728A83A2AC36F601F3799736F1E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Black Bullet / Черная пуля (2011) [1 том] [Ранобэ] [Русс�
 ```bash
 magnet:?xt=urn:btih:CBC5B0825F2C59DFEF04D6C1FBDA3158A43E759F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F0DA32D57689DA5D4B473812879727EEE0E4005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Piratum - Map Art - превосходный экшен для Вашего тв
 ```bash
 magnet:?xt=urn:btih:A5EDD3003844F37DAB9F5B55B88911BD542C1848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:653BDD8198D8DFF0358A8618990BEA95D191DC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AEBE7144856EF35B791DF5E5D2BF5F96C214F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ You Deserve - игра в приключенческом жанре. Вы ник
 ```bash
 magnet:?xt=urn:btih:F45F9B29743C38FA4597FF3D48CEFEF62B19C9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Kamisama no Goyounin / Servant of Gods / Лакей Богов (2013) [1 том]
 ```bash
 magnet:?xt=urn:btih:F76F9ED10EC074271473CBD5016BF424BE9C41C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Modern Glitchy Opener - Современный шаблон, который ид
 ```bash
 magnet:?xt=urn:btih:421E01F7CCA7C66D2BB9452FEF47679EE7681A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Fate/Apocryphe / Судьба/Апокрифа (2012) [1 том] [Ранобэ] 
 ```bash
 magnet:?xt=urn:btih:BEAE5939F635F5ABB445729AB93A3E0EDC767662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ John Barry - John Barry - Somewhere In Time (1998) [MP3|320 Kbps] <Score>
 ```bash
 magnet:?xt=urn:btih:FE7ECBCFD31FBFE6842CD609D24BD6E26D839AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:341575B9BCBBB7FE11EAB9C8A32DB673E42BC6E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81E4B00B301848AFC0E5DF2FF4BCEF70AD98232C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:883064B409F51D4E67CBB9C7E2306DBC3E1F82D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ FAUN - Midgard (2016) Deluxe Edition [MP3|320 Kbps] <Folk, Pop>
 ```bash
 magnet:?xt=urn:btih:8237C27FA9D84FA5188450C287AE16BADAE9064D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEAD1AA447FD9964DBD11C6A9ED09D32B49824BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Lindsey Stirling - Brave Enough (2016) Limited Deluxe Edition [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:EDE26942494E63A5C90D9F83A3D7C060614D688B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Ore no Kanojo to Osananajimi ga Shuraba Sugiru / Моя девушка и под
 ```bash
 magnet:?xt=urn:btih:C31BAD8B3AF4F9517D33DBE4471119D77DF1F84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE33DA75C875AC3D2707E95F1ECA101C93F993A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ Glitch Lower Thirds & Titles - набор текстовых подложек с
 ```bash
 magnet:?xt=urn:btih:C04B8528B497D0C50032379F15200864AC8A213E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:352BC55DC1DD2A3FBC07993AD4BB34AAA2EAD5A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ Wet Glass - экшен для Вашего творчества.Формат: AT
 ```bash
 magnet:?xt=urn:btih:2C322C4DD27C55EA54E44EF4F46E1A18A915692B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ Panda Free Antivirus - антивирусная программа, котора
 ```bash
 magnet:?xt=urn:btih:9F4ED4E44E700D702DB87A0AF109A124786C73EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ The Muse (Муза) - является инструментом для подн�
 ```bash
 magnet:?xt=urn:btih:2DE4647DAC4C226DAF172481E0BD0D7C0236B202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7239E2621D8218BD880DC941018262B2D3AD049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

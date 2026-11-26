@@ -20,8 +20,7 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:9CBD638898CCF3483D72B22C2599B55D551AF218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C75F23FE233CC9EE9CBE094483BC17C001E96C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Microsoft Windows 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 11.2014 [Ru]
 ```bash
 magnet:?xt=urn:btih:9D8F5DD9018DDA677251CFCBC747BD3BB5EA841C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ BioShock Infinite (2013) [Ru/En] (1.1.25.5165/7dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:83FD63B4DAA54200AF3B46453EDA3186F93CC934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

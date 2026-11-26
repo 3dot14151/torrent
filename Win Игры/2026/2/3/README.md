@@ -19,8 +19,7 @@ Being & Becoming — это атмосферная метроидвания об
 ```bash
 magnet:?xt=urn:btih:B053DD711D8933CE53EC7D5577C4263A06516EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lords of Ravage - это тактическая ролевая с элемент
 ```bash
 magnet:?xt=urn:btih:A49AB8DF6A30D4B842B46658F8477AC52FD5ABF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Car For Sale Simulator 23 - это в основном игра по покуп�
 ```bash
 magnet:?xt=urn:btih:2E686ABA1FFAB6DC07B64FE7CFF3406E132FC1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack HardwareMining [
 ```bash
 magnet:?xt=urn:btih:6B22FBC2EF2ACC12A7A5CDE939A7E0A068FF39D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89D9EDED4E18C75E3C439E380E3FC501C835B116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ```bash
 magnet:?xt=urn:btih:E208691CADEB3873A5CBC514E28A94627C96E6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ City Tales – симулятор строительства средневек�
 ```bash
 magnet:?xt=urn:btih:D6D8EA36F663050B6EB7998CF62CF10FF47D8087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Archimedes II: Some Like It Hot / Архимед II: Некоторые любя
 ```bash
 magnet:?xt=urn:btih:B27968801089134B47BCA7CF5DDBCB7F58D1EB26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Children of the Sun (2024) [Ru/Multi] (16524106) Repack Necros
 ```bash
 magnet:?xt=urn:btih:BB98AF78F367367C8CE80DB708BC854E1ED62B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:DB3B9D32B15CB134BEE284ABFC92573AC593C067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Winnie's Hole (2026) [Ru/Multi] (0.7.79) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:BCBAC617A89475511EAD935CC6BE181270F1AF31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

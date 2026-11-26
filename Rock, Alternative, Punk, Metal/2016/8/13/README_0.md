@@ -22,8 +22,7 @@ Amadeu Casas - The King Is Gone (2016) [FLAC|Lossless|tracks + .cue] <Blues, Blu
 ```bash
 magnet:?xt=urn:btih:5E5D6B7A2613AFF8B227E49D0EC37EDB839452E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dustin Douglas & The Electric Gentlemen - Dustin Douglas & The Electric Gentleme
 ```bash
 magnet:?xt=urn:btih:F199F8D78E48A38D78FCF661875F8A700B2C4897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Terry Brock - Back To Eden (2001) [FLAC|Lossless|image + .cue] <Melodic Rock, AO
 ```bash
 magnet:?xt=urn:btih:788E0D76785E3CAAF880E5F70E2D53FA2BE167F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ RеinХееd - Swеdish Нitz Gоеs Меtаl Vol II (2013) Japanese Edition [FL
 ```bash
 magnet:?xt=urn:btih:79443913246FE9BE579C8AF125B2AEAD340B84AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82E85353ED15DCBC4F2C5E62013CE337F65CE980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ RеinХееd - Swеdish Нitz Gоеs Меtаl Vol I (2011) Japan Edition [FLAC|L
 ```bash
 magnet:?xt=urn:btih:FEE53A62943166154D880B3B3E2D783AC6D9B19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Young the Giant - Home of the Strange (2016) [FLAC|Lossless|tracks + .cue] <Indi
 ```bash
 magnet:?xt=urn:btih:1ECC61D5AF887EC6D0B44AEBE0F626F4D851BDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Slade Remade - A Tribute to Slade (2001) [APE|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:D6B757797EA5BD4E553624123129EEA471C973F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Pineapple Thief - Your Wilderness (2016) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:3D113A0C9A371E06CEF9B1F1DC6DF3398FB179C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Sophia (Robin Proper-Sheppard) - As We Make Our Way (Unknown Harbours) (2016) [M
 ```bash
 magnet:?xt=urn:btih:703AE47EA66195694483E1BB78CAE8ABBB2509C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Wild Beasts - Boy King (2016) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternati
 ```bash
 magnet:?xt=urn:btih:88721D0B208E14ACDB279E5C0CE4A240A7003D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Chase Walker Band - Not Quite Legal (2016) [FLAC|Lossless|tracks + .cue] <Blues 
 ```bash
 magnet:?xt=urn:btih:05214606544B6ABAA225476A98CB3B589741A6AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Powerwolf - The Metal Mass Live (2016) 2CD [FLAC|Lossless|image + .cue] <Power M
 ```bash
 magnet:?xt=urn:btih:D52014E18EB2E87CCABD2933125E7954C960158E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77B35099C803790A969D95F18A39486E55764507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Rush - Roll The Bones (1991) remaster, 2011, Audio Fidelity [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:6D1F2E89B9B8BD7C20AA676617AB2A7A18CDC30C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Bryan Adams - Cuts Like a Knife (1983) remaster, 2012, Audio Fidelity [WavPack|L
 ```bash
 magnet:?xt=urn:btih:E4B81733611445BE9E2355B2436769867B0763C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Joe Walsh - The Smoker You Drink, The Player You Get (1973) remaster, 2009, Audi
 ```bash
 magnet:?xt=urn:btih:831975DF396596694F46102002338D507666ACD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

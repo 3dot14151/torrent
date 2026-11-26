@@ -20,8 +20,7 @@ Adguard предназначен для блокировки абсолютно 
 ```bash
 magnet:?xt=urn:btih:749D6960474FE7F67199BCF631A9F1BB5E1C70EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

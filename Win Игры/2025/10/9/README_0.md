@@ -19,8 +19,7 @@ Yooka-Replaylee - это усовершенствованная версия и�
 ```bash
 magnet:?xt=urn:btih:CAFCB7B514E6E70B4BEFA80F5E6AE75D6D7B1349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Absolum создана с любовью командой мечты, котор
 ```bash
 magnet:?xt=urn:btih:D4544BAFE3CB28DA9816CE9B554B677686D12A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Savara (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:583550309582E1FB87DE5257337CC7408D287BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SWORN - это кооперативный roguelike-экшен для 1–4 иг
 ```bash
 magnet:?xt=urn:btih:161ADCD743BE10884385E22EA16CEEA39FF9C58A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_114) License GOG
 ```bash
 magnet:?xt=urn:btih:AE6722AA161AA3FA655B818A216CD01EFBE1AB5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Blood of Mehran переносит легендарного воина Мехр�
 ```bash
 magnet:?xt=urn:btih:3EFA3EC97690E3F463D5BAD87E4350634A3B682A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Blood of Mehran переносит легендарного воина Мехр�
 ```bash
 magnet:?xt=urn:btih:3F6B7AB53DC828CF6F699563A6696CB84651342E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Blood of Mehran переносит легендарного воина Мехр�
 ```bash
 magnet:?xt=urn:btih:EF2AB516B5043D354F708A9B7CB4D3EED994508F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Blood of Mehran переносит легендарного воина Мехр�
 ```bash
 magnet:?xt=urn:btih:19A5949982E6DDD91BB398A6C5382D3251E648EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Cat Quest II рассказывает историю двух королей, к
 ```bash
 magnet:?xt=urn:btih:6BF0494702743CCA157158BDDBA28D6B58EB9D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Cat Quest - замуррчательная РПГ, чье действие пр�
 ```bash
 magnet:?xt=urn:btih:77D535959E85820509652B7A0FCF3FF1F68270F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.380186.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6352989CC44FEC76A7243A9EF3CE74EFBEA2C907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Deadlink – научно-фантастический шутер с видом 
 ```bash
 magnet:?xt=urn:btih:AA2744E75EF707DBFF643096E41FB932D146016D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F8E44E48EE54CF2E302EC18DA5E1C4EEDC4A3F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Halloween Secrets: The Blood Vow / Секреты Хэллоуина: Клятв
 ```bash
 magnet:?xt=urn:btih:BF2FDA5C21414F71303A6F33302BE27AEDAAF37A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ CheckBook Pro - это не просто базовый инструмент р�
 ```bash
 magnet:?xt=urn:btih:BA8E657A9075244F7FE666655D2BB2FB0E8DFD96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Sonny Thompson - Swings In Paris (1972) 2019, Solid Records [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:B83926C1428C111A1DDC916644368C36B204F3D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Terje Rypdal - Conspiracy (2020) [AAC|~293 Kbps]<Jazz>
 ```bash
 magnet:?xt=urn:btih:A0E65C57E201EDB60DABB858E9E49074FB57BD70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Betty Carter - Priceless Jazz Collection (1999) GRP Records [FLAC|Lossless|track
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Outside - это погодное приложение, которое отоб�
 ```bash
 magnet:?xt=urn:btih:ED0564461351ECD4D9B356DA32D7528DDBC45869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A633311879444EEF8D65209ED617B472262DCF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Posterino – программа, ориентированная на созда
 ```bash
 magnet:?xt=urn:btih:E5D77BA04FA2866F25B79E238191473B7A920C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Chick Corea - Plays (2020) [AAC|~292 Kbps]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Dice - Crazy Little Dreams & Maps For Ramona (2020) [FLAC|Lossless|image + .cue]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Hounds - The Dead Town Nothing Tapes (2020) [MP3|~245 Kbps (V0)] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:167339440F169967404D468BF0B9396969A87B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Translatium - мощное приложение для перевода для m
 ```bash
 magnet:?xt=urn:btih:69DFDFA10BF400F31D74E95D90D159F29A324501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Iron Angel - Emerald Eyes (2020) [MP3|~245 Kbps (V0)] <Power, Speed, Thrash Meta
 ```bash
 magnet:?xt=urn:btih:028F4220F820005E34297C7F7EC396F6386A9A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:83FE20931F8768293F7DBA7FE104FEE476ED082D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4284A88838C74A5523151ADF793ACB6271ABCABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ Manu Beats - Manila (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental 
 ```bash
 magnet:?xt=urn:btih:C9D413AE4444D2321060F37AA44BFD8AE258D81C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Hurts - Faith (2020) [AAC|~296 Kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:FC8989AD487145AF45E0E452F06CFCF244565AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ Conan & Deadsmoke - DOOM SESSIONS VOL​.​1 (2020) Split Album [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:E94225D69C3729BEF20F5D4BBB8D8352E06FB87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Downer Inc. (Kellin Quinn ft. Sleeping With Sirens) - Whatever This Is (2020) EP
 ```bash
 magnet:?xt=urn:btih:A4DC55CB1BB5DD61689354808322004B1894D6D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Natural Spirit - Під серпом часу (2020) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:5173684630304DFCEB5B319DC007FDE47AA0DC07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Swift Publisher - это пакет графических утилит для m
 ```bash
 magnet:?xt=urn:btih:801515609C2D93F41B0C650090F7E3E725B98028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ VA - Nicholson - Reverent (2020) [FLAC|Lossless|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:F14FA24B9BD0EFFCC20DC2A06FC88C5F449643D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ BLIND IDOL - Town & City (2020) [FLAC|Lossless|WEB-DL|24 bits|tracks] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:8FD3782FD6A4548F2A92383EE6A02F778307F8EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B865AE3C0E079E275B794B317152EDEFB648E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ ActivePresenter — программа для создания презента�
 ```bash
 magnet:?xt=urn:btih:275A10B16A914A2CFECF9A9EC1958C27373BC851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F60D12EB3C94C821DD618915DCF766055A3FD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

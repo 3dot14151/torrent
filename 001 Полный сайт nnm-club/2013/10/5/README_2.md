@@ -27,8 +27,7 @@ Everlast - The Life Acoustic (2013) [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:BDCD84327BE3AFDE0F27149842B57FB8E2990688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Возьми В Дорогу Осенний Суперхит (2013) [MP3|25
 ```bash
 magnet:?xt=urn:btih:A08A53A57AF42607E3597B974CBBD68593F6586F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Хит за хитом от Европы плюс. Русский (2013) [M
 ```bash
 magnet:?xt=urn:btih:6C0DE99E0331441195ED7901DC1B43B547658BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E3199CA04145971E8C9255646B500EECBCDA0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44D1B62319910BF67BC6C34F5E631D5CD63AEEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - Piano Works 5CD BoxSet (2005) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:D5B44FABEA0277EFB0E004FDF42E9317FF7FB7C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BC9A4390BD7E9DE06DB58284C0C3805060B1D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ B5.  It's Getting Dangerous  :: 05:46Жанр: Rock, Hard RockФормат: Viny
 ```bash
 magnet:?xt=urn:btih:77FA85CE6BD4BDC5A3E627FDB149A8A91AC3869A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ MediaCoder является универсальным программным м
 ```bash
 magnet:?xt=urn:btih:18BC0DF6D1B606849D507D5AAD79C3A19CE75900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ NG: Международный аэропорт Дубай. Серия 3 / Ultim
 ```bash
 magnet:?xt=urn:btih:72EEC9E39F455069B49F843FEF80ED7850BB8DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ Roxy Music - 10 Albums (2013) Mini LP SHM-CD /2013, EMI Music Japan/[FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:EC581E7EE2C43140357BF096E2E0EC10F8F147F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20D482538D3D64D113EAE25FB440A6B8A30123F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ Q-Dir — файловый менеджер с очень малыми сист�
 ```bash
 magnet:?xt=urn:btih:E2C3711670083AEEA7725076196BC40B9CDE6A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:187AA1AAF8167BE8D9FB25B52247DF03A8A6D50B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +434,7 @@ Rasa - 5 альбомов (2000-2007) [OGG|429~537kbps]<NewAge, Mantras>
 ```bash
 magnet:?xt=urn:btih:AB7A2A3BD6BAD258EB3174A5A8FA0D91D6013B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9782326507D834D28FCB014E58614A166016F2B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A63E107CDA231400F2053FB2AB62188698810ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:496BD97FB8E0138F51DAB844D3C97EE04B277D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA312F36ADA6081702D6D78EC3CF91797D6AC7BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ Opera работает на новом веб-движке Blink и JavaScript-�
 ```bash
 magnet:?xt=urn:btih:721D6068CD775D9D5DDCAD75A43F973393D7F280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:408EFD377FCE39E674584B0E979095F6C734A1E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ SoundFrost – уникальное приложение на рынке раз�
 ```bash
 magnet:?xt=urn:btih:C10BFB48FB372F679F5E7F1CF1C5DFBE4377BDAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3E0C8167CBF472166EA57F8DBE85CA59C910188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:F2423C626DF0607A14E5BFD3FAC1EC189DB07A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3C69E29CDDF8DA604062F30E305FAF48CD3DED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ VA - 100 Hits - 90s Classics (2013) 5CD [Box set][MP3|320 кб/с]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:707419E917B6B21ED236BD7011C2BD9D92529E00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

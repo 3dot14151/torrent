@@ -19,8 +19,7 @@ Fishing: North Atlantic (продолжение Fishing: Barents Sea) — отк
 ```bash
 magnet:?xt=urn:btih:448F04CC64297FC2339AECC671C8FD171FB47B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Summer in Mara (2020) [Ru/Multi] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:D05F70DE1D6D8070471A743AC9EC6A1D36728B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

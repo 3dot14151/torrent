@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A75D2A5A14B5B93760FC27FB04738FD57904F5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Geekbrains | Swift (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:6CF0E0E8106B32DCA3908C17778CCA4904F551AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2B16B7D7B70142F731D5C25462DD29EF3073FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:5CE6EBF59FF413B12DF6D35ECF75966FA6B6BACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Microsoft SQL Server — система управления реляционн�
 ```bash
 magnet:?xt=urn:btih:B205ED28AE1315A2118C11B6837CB924D08F3CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D07E7AA3CC934CFF32D83393AA85CDEAB8B8A6EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Windows 7 Home Premium x64 SP1 с автоустановкой, для незр�
 ```bash
 magnet:?xt=urn:btih:575ECF7566D8741DDB90F44FE89077EE4DAA9BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Metland – Академия по ускоренному изучению Анг
 ```bash
 magnet:?xt=urn:btih:ECB0C6A44B5A616B5D47C706FE15393F222A5BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:3487003D7FFFC9BE1DB3065EECDD9C3C4EA93DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46341DE3BBC63F02C8F3B206899FAA9BD5E10AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:3B81700E23C850EBDBF2F0F642EC2D7EDBD6F8F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9EA1014FB22085AE67DEB567CD0DA95A2A43169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ BELOFF 2015.11 [DVD версия] [Ru]
 ```bash
 magnet:?xt=urn:btih:9B1E9C7346456890A797DEF6B1AA3D550980DDFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ StarDrive 2 — это захватывающее и увлекательное 
 ```bash
 magnet:?xt=urn:btih:C0EC4AEE7BAE25A3A13435BE6381EA8B9695E683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Neverwinter: Underdark – игра в жанре фэнтези, созданн
 ```bash
 magnet:?xt=urn:btih:056342BE44A28AC7776C7611FCF8536FEF4F3E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Vendetta: Curse of Raven's Cry представляет собой экшн-пр
 ```bash
 magnet:?xt=urn:btih:5B3EB93542FF137497091618FD54D79D0F954302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Windows 10 (v1511) RUS-ENG x64 -18in1- (AIO)
 ```bash
 magnet:?xt=urn:btih:8DE9C6BB979D48D792FDB6CC2BC572266D06F80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

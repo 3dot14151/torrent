@@ -19,8 +19,7 @@ Defender's Quest: Valley of the Forgotten (2012) [Ru/Multi] (2.2.6) License GOG
 ```bash
 magnet:?xt=urn:btih:CBA6D891E281D2E0D528CBAC26BE3297A825C8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

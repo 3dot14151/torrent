@@ -28,8 +28,7 @@ Lalu - Atomic Ark (2013) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:69502B73FDF01D68AA9DFFA317E6FCD96E07D7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Jonathan Wilson - Fanfare (2013) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:B39303449A679F91BEA366FE1795F734AA7EF118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Electric Six - Zodiac (2010) [MP3|320 кб/с]<Alternative Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4687681C128211B0D7F556AB0B9E77F1C09C2B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Andy Scott (Sweet) - The Solo Singles (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2E9FA3A14295BC90AB708FF247CFBC6E7326EB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Svartediket - Svartediket (2008) [MP3|320 кб/с]<Avant-garde/Black/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:B4883F6FDB37E2776E2CFCDA27C733C98E8D40EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Steve Howe (Yes) - Homebrew 5 (2013) [FLAC|Lossless]<Progressive Rock, Art Rock>
 ```bash
 magnet:?xt=urn:btih:27550AF376C513FC944F8C7A1C9A2B4B6AEA9683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Starship (Jefferson Airplane) - Loveless Fascination (2013) [FLAC|Lossless]<Rock
 ```bash
 magnet:?xt=urn:btih:B42E5D046A711AEA308D8B595F0372DE772A00B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Cage The Elephant - Melophobia (2013) [MP3|320 кб/с]<Alternative Rock / Indie
 ```bash
 magnet:?xt=urn:btih:3C7A592F465B73755E451A5EAF33E423813D5106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ VA - Pure... Rock 'n' Roll (2013) Box Set, 4 CD [FLAC|Lossless]<Rock 'n' Roll, O
 ```bash
 magnet:?xt=urn:btih:A9A7CFE853B9C2378CB4F5A257941812F1C7490C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ RasPi - это журнал о различных поделках и экспе
 ```bash
 magnet:?xt=urn:btih:0A2BD5EEA07AFC5AEE6A7D8B4C93363646415014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

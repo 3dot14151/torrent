@@ -19,8 +19,7 @@ Far Cry 3: Blood Dragon – это крутейший кибер-шутер, д�
 ```bash
 magnet:?xt=urn:btih:9DFF46C506681EE1337F9CADFE14413A2D543D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E4632B52417CA9803258F17F01EEFE1CC2CC3A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ACD87D8C47D0B1366C0BDA17B034FD4AA74E6E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 ```bash
 magnet:?xt=urn:btih:7EE67F1C338BD3DD073322AE365EF1BAD5EBE6EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kingdom Rush Vengeance – это стратегия в реальном вре�
 ```bash
 magnet:?xt=urn:btih:95B14FDCE63766C419A76A2231B42D7E953C7E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dawn of the Monsters (2022) [Multi] (1.03/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A93345BA4520ACF86E80BCA95DD7DB2F522935A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 ```bash
 magnet:?xt=urn:btih:C83529A12474F7D9DF867014E1D9AEBC7BAB5BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

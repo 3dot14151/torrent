@@ -21,8 +21,7 @@ Virtual Network Computing (VNC) — система удалённого дост
 ```bash
 magnet:?xt=urn:btih:A3D23612933434FAFF37BDEC227B9F7CFA3E42BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

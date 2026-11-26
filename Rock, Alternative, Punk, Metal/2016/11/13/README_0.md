@@ -22,8 +22,7 @@ Malevolent Creation - Doomsday X (2007) [WavPack|Lossless|image + .cue] <Floridi
 ```bash
 magnet:?xt=urn:btih:F758E881D07E89F37F8EA200FD2BB0E2A02FC6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Raven's Gate - Blackstar Machinery (2016) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:548D70B8ADAC4C79EAB510AB1D85F49A8651804F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Freedom Call - Master Of Light (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:8D2D14C7C7D95C58986DF0F7BF1304236B1174DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lenny Kravitz - Another Life (2004) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:8E4FECD92770E74F8AB07AA57F884885AA189FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dog 'N' Style - Pub's Calling (2016) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:C678DC46D58D6428E05D17FB1A7EFEE2805612CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Stryper - The Covering (2011) [APE|Lossless|image + .cue] <Hard Rock, Heavy Meta
 ```bash
 magnet:?xt=urn:btih:FBD42E07926000EAAF7F03971903250448CC8574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ ESP (Eric Singer Project) - ESP (1999) [APE|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:144A638F3B08385D4C2F814B9E68F3C845313CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Biopsyhoz (Биопсихоз) - Касание (2016) [MP3|320 Kbps] <Alternati
 ```bash
 magnet:?xt=urn:btih:8975A4099442FBFF7CA0F973C875A63FC0231369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Dirkschneider - Live - Back To The Roots (2016) 2CD [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:4D2827EB42F3EF6DFDC7D5C2E107AF7E3DB63576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Tarja & Alissa White-Gluz - Demons In You (2016) Single [MP3|320 Kbps] <Symphoni
 ```bash
 magnet:?xt=urn:btih:B08ED30B33D5735AE1F2D1CF49F5A11BAF374DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ LaScala - Repeat (2016) EP [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:9AC0D3B7D0999252D8456666C9724423608FB244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

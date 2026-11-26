@@ -19,8 +19,7 @@ THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6310172414A82BBA0595B4D7043401B6DF12BE0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Supernormal (2024) [En] (1.3.3) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5A8250FFA679D1A2809E95483B2DC9E97426F38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Remnant 2 - это атмосферная и брутальная комбина
 ```bash
 magnet:?xt=urn:btih:5F0349D2CD652AC9671DF0010ED199627CF7AB74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beer Factory - это увлекательный симулятор, в кото
 ```bash
 magnet:?xt=urn:btih:E0FFCF2379B8B2C780BCE24BA7D0DCCCADC63D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MotoGP 22 (2022) [Multi] (1.0.8.0/dlc) Scene DINOByTES
 ```bash
 magnet:?xt=urn:btih:BB4F8583313915218055AE717B06F0046DB60AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pinguy OS 14.04.4-1 - это дистрибутив на базе Ubuntu 14.04.3
 ```bash
 magnet:?xt=urn:btih:E0DC16FF3133F6A6D6488DBA6FE45280FE1D9543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

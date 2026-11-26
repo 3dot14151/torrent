@@ -19,8 +19,7 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:2F74A6FE00C0611FAE217076001513D2DA2227EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:985083A7AF746E0D3ED8CB4B4D374C78EC1F2FE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Black Out позволяет быстро скрыть деликатные ча
 ```bash
 magnet:?xt=urn:btih:21D2B3AB357FF9D5568151C9842A47545079A243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ One Switch - это крошечное приложение, разработа�
 ```bash
 magnet:?xt=urn:btih:8DAE31E73EC46379142C29F340448AB67F2A7994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Timemator 2 v2.8.4 [En]
 ```bash
 magnet:?xt=urn:btih:2FE5B4AF0A3D5B2B862F010FD588D777F3869218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Middle  просто добавляет возможность сделать «
 ```bash
 magnet:?xt=urn:btih:A42C91346DB97CA5C3CC28FDD031B1930DF4093F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ DMG Canvas создает образы дисков (.dmg). Процедура �
 ```bash
 magnet:?xt=urn:btih:BC3AED3C36F6B547DE7AE06D71A44876ABAAAA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Trickster – удобный доступ к недавним файлам.
 ```bash
 magnet:?xt=urn:btih:ED3E502F33A1B54BB4ABAEA2CA23C94665130F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Recordia 2.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:4F8FF5EBF7F1EB26063B229FC51A3B29B0373062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Backgrounds 10.0 [En]
 ```bash
 magnet:?xt=urn:btih:2BDA6427EA924D86B08174E9E1558F137DB0AB7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:ACE570BE996F4FCF712CBF21FE2B30ADD30FD8DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Export for iTunes -  экспортируйте свои плейлисты и �
 ```bash
 magnet:?xt=urn:btih:E69BD8248B3FC031D52A6C53345EE34040B3F428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Scherlokk является утилитой для быстрого поиска
 ```bash
 magnet:?xt=urn:btih:0A26E21A03DB4FD4F74970F20BE7D6A800401F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ David Newman - Heads Up (1987) Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop,
 ```bash
 magnet:?xt=urn:btih:0B2A5F298BF9BFCC66B0F6B3833E23609075E436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

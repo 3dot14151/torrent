@@ -22,8 +22,7 @@ Billy Sherwood - Citizen: In the Next Life (2019) Yes, Circa, The Prog Collectiv
 ```bash
 magnet:?xt=urn:btih:D08084553DDB923966EAFFED1B6860AB07E9C100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

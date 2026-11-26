@@ -21,8 +21,7 @@ Singles 2019-2024Жанр: Thrash MetalПродолжительность: 01:34
 ```bash
 magnet:?xt=urn:btih:F30109ED85B73AE47526EE157021C49442C30BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

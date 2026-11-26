@@ -19,8 +19,7 @@ M.U.L.E. / MULE (1983) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:FD38A25E955507A99B096C49AC76A7FC2A9E0D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

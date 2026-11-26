@@ -18,8 +18,7 @@ RICO (2019) [Multi] (1.0.5/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3CE6F9DA9AD27C657D2930A3D3A9EF6C5E259369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Shenmue III (3) (2019) [Multi] (1.05.03) License CODEX (обновляемая)
 ```bash
 magnet:?xt=urn:btih:4353AC8A77E42314B7AD5342D4E868D145F0FB86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Adobe Acrobat Reader DC — совершенно новое приложение
 ```bash
 magnet:?xt=urn:btih:F77FFFFBDE8D08BBAC383531E8A767C1A4A3D550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:0D47B26146C395C1CD2E3820299A633B70C5AAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Legend of Lemnear: Kyokuguro no Tsubasa Valkisas | Legend of Lemnear | Леге�
 ```bash
 magnet:?xt=urn:btih:6ADC53AFE4DC58632E1DB329F7F544E8E9D779C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:E9CD6F55DB1A6DF9D2192946690C5FA69CFE756D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Windows 7 Ultimate SP1 x64 3in1 OEM March 2020 by Generation2 (Multi-7/Ru)
 ```bash
 magnet:?xt=urn:btih:CF43D4F819AD06D8020088868FC4320B09D27053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Windows 10 Enterprise LTSC 8in1 (x86/x64) +/- Office 2019 by Eagle123 (03.2020) 
 ```bash
 magnet:?xt=urn:btih:A36E443F0AC7A7207EF32C90B2E7679D1889C5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B126F5580EF217E15D7D31DDCC69E353083642B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ TERA Online: The Next - массовая ролевая онлайн-игра н
 ```bash
 magnet:?xt=urn:btih:E8A2BB96C9E8D8D9FFFD79984D268E5C2FD83FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ TeamViewer - удобная в использовании программа д�
 ```bash
 magnet:?xt=urn:btih:FE9486E1CFBC68060BB5EF14F5F86872A7FA05E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87F209C2CFC63D36EB4CE01A1C9B8642AD1F4332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Forza Horizon 4 (2018) [Ru/Multi] (1.401.912.2/dlc) Repack ElAmigos [Ultimate Ed
 ```bash
 magnet:?xt=urn:btih:79E9A676C1127F7666064307D0A7C4784B91F307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

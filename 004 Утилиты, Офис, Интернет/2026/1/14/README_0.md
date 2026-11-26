@@ -19,8 +19,7 @@ SoftPerfect NetWorx - утилита для учета интернет-траф
 ```bash
 magnet:?xt=urn:btih:92AB79C49B936F8CC4CAC767A5F6DBF629B074D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DU Meter - программа для подсчета реального вхо�
 ```bash
 magnet:?xt=urn:btih:1DA017B3F3E359120D55EF1CB82F3BE9C53B20E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:518960F2D8F7674AD505E7356FF5DDC2EB441C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Kalmuri не имеет встроенного редактора изображ
 ```bash
 magnet:?xt=urn:btih:7E7685984DBEEE582A4F7B6AF4944BF6142DE592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ RustDesk Remote Desktop – программное обеспечение для
 ```bash
 magnet:?xt=urn:btih:1530448743D6791ECF460C28E659B240530193CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:9140001A85FE7E6DB73DCC74731B77161275F0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Terraria 1.3.0.7.7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F24615A1B1822D463C84C71243C407C25AFEAFCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

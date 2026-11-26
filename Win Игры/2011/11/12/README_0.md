@@ -19,8 +19,7 @@ Travelogue 360: Mystery in London / Секреты Лондона (P) [Ru] 2007
 ```bash
 magnet:?xt=urn:btih:04B92ADE4AD3182A7545DE60B6E04F06BDABF763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79B764C30F8E4F477E028347F75093105AEFFB25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

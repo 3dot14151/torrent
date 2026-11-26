@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D46B248ECD5C8D487BD652DA7EE8CFEED87DB0EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D0994BFA19E669D79EF0F158B3F07E6C6DE8A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Daemon Tools - маленький по размеру, но мощный по в
 ```bash
 magnet:?xt=urn:btih:9BB3B3FB4AB0C030DD66F3DEFF6C7E094AA43FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Shovel Knight - это классическая приключенческая �
 ```bash
 magnet:?xt=urn:btih:ABEC90519BC59B738BD8CD9F38F0EB77F9D662C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAA107C2F3FEF111C5DFDEEE1396CAFF0849AB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3E5FF5188C2ED4E0F35A6D39936887C273A0F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Watch Dogs (2014) [Ru] (1.06.329/dlc) Repack xatab [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:5C963B5CB50EC866FE90DAC51FE3E4D320D8C91F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:576DF53806C050F318C7DDB1572B3075B6058654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ uTorrent Pro 3.4.5 build 41372 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D8221E5DE6A0CF36985D6E11F5B138E7FEC8A0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ City Maps 2Go Pro Offline Maps - Это интерактивные карты и
 ```bash
 magnet:?xt=urn:btih:E0835D723F3422D92D5AE24E6BEE908B532AB4BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:075E33E84B5126C05A1FCE8941FD0C2826C98F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki / Knights of Sidonia: Battle for Planet
 ```bash
 magnet:?xt=urn:btih:7B94ED39FD80997E425A8C1ECA2EB3EB0337085B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Windows 10 (v1511) RUS-ENG x86 -22in1- (AIO)
 ```bash
 magnet:?xt=urn:btih:A93D277C35A3A5B371F87F96C30E6BEECCCB3FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DA38BF33CA72831217F89D6FB666044623E18FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Microsoft Windows 10 Professional,Enterprise 10586 TH2, Release 1511 - Ориг�
 ```bash
 magnet:?xt=urn:btih:7D034B970917772FB2B1C541616A9395476EEAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F58B64BA7BB316D0B2E4C8459E59E70F8B553BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Exeloume - Fairytale Of Perversion (2011) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:40D93E5ED1396167FEFE58C090CE1BC4FB0FF694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Degradead - A World Destroyer (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Paul Warren Project - Round Trip (2011) [MP3|320 kbps]<Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:C280152FBC23A8DC7BCA6B820401BDB02E70DCAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ The Black Dahlia Murder - Ritual (2011) [WavPack|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +166,7 @@ Those Poor Bastards – это два человека: Lonesome Wyatt (гита
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +200,7 @@ Communic - The Bottom Deep (2011) [FLAC|Lossless]<Progressive Heavy / Power Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +234,7 @@ Yogi Lang - No Decoder (2010) [FLAC|Lossless]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +268,7 @@ Wolf Hoffmann (Accept) - Classical (1997) [MP3|320 kbps]<Instrumental Heavy Meta
 ```bash
 magnet:?xt=urn:btih:B29FAB5B6050FB8AEA36E5D374071AAE5F9CF2B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

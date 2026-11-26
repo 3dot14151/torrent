@@ -19,8 +19,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.04) Repack Necros
 ```bash
 magnet:?xt=urn:btih:735C0D5D0F4C30E2E3F3C3C981985871DA6993BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hades II (2025) [Ru/Multi] (1.133066) Repack Necros
 ```bash
 magnet:?xt=urn:btih:A25ECD2309C90B9F358DEB4A0B6A6963D244411B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.2.0.2_457676/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:4C8D1240EDD7DF8DFC526FC14CF8487AD5A74008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:C39FD203B49100C3B3E65A3A08B2065E3CA4A0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Green Hell (2019) [Ru/Multi] (2.9.4) Repack Necros
 ```bash
 magnet:?xt=urn:btih:68E083A201F7E405602E624DA4D23A79A57F49AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Winter Survival сочетает классические игровые мех�
 ```bash
 magnet:?xt=urn:btih:9F70EED26DA82A22D1B2D8F111BB1375D32F077F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Of Ash and Steel - ролевая игра от третьего лица с о�
 ```bash
 magnet:?xt=urn:btih:C8658FE6481603430FF261C2094F1D6979C8511A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:192665FE4547DAD0E7ADE9B2A2AB12ACF35404D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mystery Case Files 28: House That Love Built (2025) [En] (1.0) Unofficial [Colle
 ```bash
 magnet:?xt=urn:btih:204928AE833FDC394B8BC744998D37B4538F3355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Total Chaos (2025) [En] (1.035) Repack Necros
 ```bash
 magnet:?xt=urn:btih:3AB77DC5557878EC029CFE070A9037B1B9FA4B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ DGT Chess Trainer (2013) [Ru/Multi] (1.1.1.7/dlc) License
 ```bash
 magnet:?xt=urn:btih:1E7132CB0CF453FDC103651B498388752E8C4C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Incredible Machine Mega Pack (1993-2001) [En] (2.1.0.24/2.1.0.22/2.1.0.21/2.
 ```bash
 magnet:?xt=urn:btih:AC15E6C6D612A4BE03F77D1A8F7139335A6A0A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

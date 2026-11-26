@@ -19,8 +19,7 @@ Inherit Earth – игра, в которой сюжет играет перво
 ```bash
 magnet:?xt=urn:btih:FC6903A13BAAF39078E4C94F3448ED4B4EF59A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

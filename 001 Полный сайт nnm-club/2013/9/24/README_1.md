@@ -27,8 +27,7 @@ ZZ Top - Tres Hombres (1973) SHM-CD /2013, Warner Music/ [FLAC|Lossless]<Blues R
 ```bash
 magnet:?xt=urn:btih:A9B139E20E3AF6FDBA7558C5F68361EF8846AC03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:385019D44833FC0155073C583FDEEA2081183A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:755C059FA7D9EBE65C6DC5F62FAE779D42C8D235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40F33B39510B5685B18E01DD1C73DF238079D609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ ZZ Top - Deguello (1979) SHM-CD /2013, Warner Music/ [FLAC|Lossless]<Blues Rock,
 ```bash
 magnet:?xt=urn:btih:02EAC03B675FFB3E78FB10D9288916179206CEDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ VA - Давай поговорим. Песни для души радио Шан
 ```bash
 magnet:?xt=urn:btih:49E8653FE2B773C845DBCDCCAC0E21E2DAC1758B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93A84824394F02BE25E90CD785FD88579B7BF2CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ Current Value - Stay On This Planet (2013) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:37B4BC0A71FDC17ED2326381401B3A514A0326E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Alter Bridge - Fortress (2013) [MP3|320 кб/с]<Post Grunge / Alt. Metal>
 ```bash
 magnet:?xt=urn:btih:BF058EE87E34758B6DAEB5D39878619EA93FE2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:E0E368516AB6C179B245BBA8F6892098253B6750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ Voila является совершенным средством для кажд
 ```bash
 magnet:?xt=urn:btih:03C7DE1D5648B40CB790778513EEF686E0A7DC68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ D2.  Magic Flight (Medley: Connecting Flight Magic Fly)  :: 06:31Жанр: Elect
 ```bash
 magnet:?xt=urn:btih:B3FF1CEA8374ACF6CBA2928A022525EFF14CE0D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ Discovery: Воздушные дальнобойщики. Серия №8 / Dang
 ```bash
 magnet:?xt=urn:btih:26EC85A5762DFAD66698A37D38F674C831165337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ Men’s Health — самый узнаваемый мужской журналь
 ```bash
 magnet:?xt=urn:btih:92ECF2F24B3195AFFA48B9CB7E4A480F246F3542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ London Grammar - If You Wait (2013) Deluxe Version [AAC|WEB-DL|256 кб/с]<Alte
 ```bash
 magnet:?xt=urn:btih:FAA73C8BC891E16D814844612005D4523EEAE87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42FA9932AAC03CACF1843CB41831CE00BBF4C3D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ NG. Молния. Перезарядка / Lightning reloaded (2010) HDTVRip [H.
 ```bash
 magnet:?xt=urn:btih:88FD1F210DC0F74E4FE19061D87C58DC29815E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8BA555383B61836F72BDFDF716690BE886C2EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF5FE7290810A7E80D6C3C68AFCEA1D0439F5D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +560,7 @@ Baidu Antivirus 2013 - очень легкий, простой в использ
 ```bash
 magnet:?xt=urn:btih:B855B6DEEF729DDAC3EB1C74380FFA380D7597F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ B3.  B-Project  :: 04:51Жанр: Electronic, Italo-DiscoФормат: Vinyl, LP
 ```bash
 magnet:?xt=urn:btih:B9448DE675546C450C9DA63D8C35EAC504D9641B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5C5FB756D4C5E37470F381F03B566FEE0AFF330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ VA - Euphoric Clubland (2013) (3CD) [FLAC|Lossless]<Trance, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:A230BEFF11A520BA027B7318F55C9BC796BF2056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +676,7 @@ Ontrack EasyRecovery Enterprise 11.0.1.0 Portable by Valx [Ru]
 ```bash
 magnet:?xt=urn:btih:782208282BFC1A2CCF384E422A71AA66AAA2798F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF4D681BA2C8F701666703D573903E4F11C6AA36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ B5.  House Of Silence (Haunted House Mix)  :: 04:13Жанр: Synth-pop, Eurodanc
 ```bash
 magnet:?xt=urn:btih:EBD667399AB68077A4D01FC759CAADD5B8074F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Crematory - Destination (2025) [MP3|320 Kbps] <Industrial Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4FF7347B3E4A8C196AD3C08F3DC003F9D91C06D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1 - Electric:
 ```bash
 magnet:?xt=urn:btih:6CC7DB0CDA346EC239753AD5D9BA36BA9EA82FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Three Dog Night - Joy To The World - Their Greatest Hits (1974) MCA Records -199
 ```bash
 magnet:?xt=urn:btih:DD9044040CDA1A687B6CEA00906BFF612EF1E272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Pyogenesis — немецкая рок-группа, жанрово охваты
 ```bash
 magnet:?xt=urn:btih:BAC0301664862F63EC6B82B28B89EC6293212CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

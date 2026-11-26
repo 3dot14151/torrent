@@ -19,8 +19,7 @@ MediEvil: Resurrection является переосмыслением перв�
 ```bash
 magnet:?xt=urn:btih:5D82D6D28D6FC50DB13865E1261178B4A73DD2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

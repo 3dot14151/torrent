@@ -19,8 +19,7 @@ AR Plan 3D – инновационное приложение, использу
 ```bash
 magnet:?xt=urn:btih:F30024E480B5E7DC611A504F14A4E3BDDE320025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

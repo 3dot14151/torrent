@@ -21,8 +21,7 @@ Cities XL Platinum позволяет проектировать, строить
 ```bash
 magnet:?xt=urn:btih:4D206F65A22D08A6594EC6CB179090C3D9701F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Just Dance 4Разработчик: UbisoftЖанр: ТанцыЯзык инте
 ```bash
 magnet:?xt=urn:btih:A635FC80194C4BFEEE1AB70D9EF05A1F9EBFC273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:73DDDAFDF1BCB729EB3EE33E1AFB1EEBFE64EFDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Recovery USB-flash for Samsung NP-350 E7C / Windows 8 (х64) [Русский / �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Evasi0n: непривязанный джэйлбрейк для устройст
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Adobe® Acrobat® XI Pro — это не просто популярный ко�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ CATIA V5-6R2013 P2 - платформа предоставляет пользо�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Naruto: Shippuuden / Наруто: Ураганные хроники (2007, 001-
 ```bash
 magnet:?xt=urn:btih:2716AD0D55EF4CD607A966D7E6724802C6579F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Windows XP Pro SP3 VLK Rus simplix edition (x86) 20.02.2013
 ```bash
 magnet:?xt=urn:btih:C9E7F8C3ABF8DFC22B08EECF7D56CC618C509688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

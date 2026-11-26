@@ -23,8 +23,7 @@ Gun  (L) [Ru] 2006
 ```bash
 magnet:?xt=urn:btih:2C257CB4747543B377495E15D2440CF1615358A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Nuclear Assault — американская трэш-метал/кроссов�
 ```bash
 magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Joe Lynn Turner - Studio Albums (11 releases) (1985 - 2022) hand made [restored,
 ```bash
 magnet:?xt=urn:btih:60BC13BAD60394CF97C74DB61C0E45A6083DCB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

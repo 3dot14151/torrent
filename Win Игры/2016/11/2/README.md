@@ -19,8 +19,7 @@ Dungeon of the Endless - это приключенческий "рогалик" 
 ```bash
 magnet:?xt=urn:btih:9772C7A60E68F2139DCF549AFB0F109611F40BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

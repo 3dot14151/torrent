@@ -22,8 +22,7 @@ Uriah Heep - Innocent Victim (1977) Japanese Edition, SHM-CD, Reissue, Remastere
 ```bash
 magnet:?xt=urn:btih:3ABD932C462F6D6C62B645E1065C7EED229CDFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dream Theater - ...And Beyond - Live In Japan, 2017 (2022) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:347326E71656F5F72179EB42C8F1DC414EA57FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

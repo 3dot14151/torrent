@@ -20,8 +20,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] Lic
 ```bash
 magnet:?xt=urn:btih:D750C5B335393650A224DE0AA2C1C5041D7458CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

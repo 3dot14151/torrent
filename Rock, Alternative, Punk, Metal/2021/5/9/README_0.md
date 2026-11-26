@@ -22,8 +22,7 @@ Secutor - Executor (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E1430988FA0AB38C7519F3090B84C6D0A6AF75E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Satan - Atom By Atom (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:001588158A313937844D066E560421DC5EE1DA26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jordsjo - Pastoralia (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Sym
 ```bash
 magnet:?xt=urn:btih:A41556C82AD23E61FF944D4CE24DCC9B1D90A066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stone Whiskey - Rebels of the Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:D9640802E5B5A7EE8BD042D23BF127A06A51D444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Chase - In Pursuit (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B04FE0A0E25F3B4ABC858F13AEBF3473D420C44B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Work Force - Work Force (1989) Japanese Edition [FLAC|Lossless|image + .cue] <AO
 ```bash
 magnet:?xt=urn:btih:887F2DFC6C63F4425808ECFB79B0FA06205F16AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ A Rising Force - Undertow (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0C68FDC066503EB8062D912A78F5D494BCBCABD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ It Bites - Map Of The Past (2012) Bonus Tracks Edition, Remastered, 2021, Inside
 ```bash
 magnet:?xt=urn:btih:FBBD73BBB96B9343F3BCCA5564DB59DAEEE4C145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Elvis Presley - Las Vegas International Presents Elvis (2021) The First Engageme
 ```bash
 magnet:?xt=urn:btih:70185D2D7B95C7B7BCD278213E7CC7B30D90A30C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA70A7538CCF7E7D45A0033CF175CFADE142787D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Classic Old Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:B094FA9F3B5B63EFB8C66545555C5991E37C9EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Brian Johnson - Brian Johnson & Geordie & AC DC (2007) Compilation, Unofficial R
 ```bash
 magnet:?xt=urn:btih:F08559D502FEEA1828AF62E78D46D107DB035317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ Pink Floyd — британская рок-группа, знаменитая с
 ```bash
 magnet:?xt=urn:btih:484AD57205B1E149659451D163772DAB216E2219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

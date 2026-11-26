@@ -19,8 +19,7 @@ Carrie the Caregiver (P) [En] 2006
 ```bash
 magnet:?xt=urn:btih:CD3CBDE3880106E19739BC7DE76D276C8F840173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rainforest Cascade (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:BD75B38D7E382A2D4B1AB9AE65273D150AA7BB07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A Day In The Woods / Однажды в лесу (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:7CDC48169FA698274E63BF117A57DDB4A738F478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fashion Tycoon / Модные штучки (P) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:D2A8843147400664BCE84DD53E854BDB1E18DAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bedtime Stories: The Lost Dreams / Сказки на ночь. Утраченн�
 ```bash
 magnet:?xt=urn:btih:9162048BDDF29A82DA02B1D38DA67DB066B99E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dracula: Love Kills. Collector's Edition / Дракула. Любовь убив
 ```bash
 magnet:?xt=urn:btih:0C756CE7F8F37E8C3D24FAD40D50DB0E89645C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

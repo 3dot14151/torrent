@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:BDD78614DCC569B3F560ADDEFDDDEE11F92E47C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Mark Moeykens | Combine Mastery in SwiftUI (2021) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:3BF4B18166460D5AA26F4317A3843AE75706079D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Greg Sidelnikov | CSS Visual Dictionary (2018) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:2A2000AF155C6EA065E349937CF6A22F1F0F95E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Vincent Ngo и др. | Data Structures & Algorithms in Dart (2022) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:804EA48DFEC93018AB8A78AE0724155A7D3B0449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Greg Sidelnikov | JavaScript Grammar (2019) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:04140549ABB95234FC61F725666F95DC961E98C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Let's Go Further поможет вам расширить и углубить с
 ```bash
 magnet:?xt=urn:btih:A5BE5B4D015053258F80FF1619C8425004AF82BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Shruti Balasa | Complete Guide to CSS Flex and Grid [2 книги] (2021) [Pure 
 ```bash
 magnet:?xt=urn:btih:6898C14043E34CFF74B47116A756C1E53AA601AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

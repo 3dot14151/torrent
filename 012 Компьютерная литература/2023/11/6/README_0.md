@@ -19,8 +19,7 @@ Raghav Kandarpa, Shivangi Saxena | Data Wrangling with SQL (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:3F598B222537DC0679586677E942AD65347150A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dr. Gabriel N. Schenker | The Ultimate Docker Container Book, 3rd Edition (2023)
 ```bash
 magnet:?xt=urn:btih:CA823C77CF68D2BE444DF37E0C4A01D8CBA2089B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E1C059E30AD35502F3D5BCF0786E9F3452D9666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

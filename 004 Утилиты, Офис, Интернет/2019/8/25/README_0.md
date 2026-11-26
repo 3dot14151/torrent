@@ -19,8 +19,7 @@ AnyMP4 Screen Recorder - программа предназначена для з
 ```bash
 magnet:?xt=urn:btih:79FD6FEEB76F0C526B9BF3770BF150B065E1CDBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

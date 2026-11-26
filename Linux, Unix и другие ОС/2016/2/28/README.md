@@ -19,8 +19,7 @@ Sabayon 16.03 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 ```bash
 magnet:?xt=urn:btih:6F7583C9738A9EA142C3C79B6EEDD524DF54A35C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wowza Streaming Engine надежное, индивидуально настра
 ```bash
 magnet:?xt=urn:btih:8657B7568D4CB4E181F64E874CF1C4B60B684B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

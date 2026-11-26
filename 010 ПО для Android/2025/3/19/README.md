@@ -19,8 +19,7 @@ IPTV Pro v9.0.9 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:562F99ADFF10C5835DAF5D0CAEA1216838BD1E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D9331682C6C38D0AA01D5EDF772A22EC319D621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

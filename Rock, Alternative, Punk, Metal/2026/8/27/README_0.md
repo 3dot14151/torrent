@@ -22,8 +22,7 @@ Samson - Survivors (1979) Japanese Edition, SHM-CD, Reissue, Remastered, 2026, B
 ```bash
 magnet:?xt=urn:btih:7CA23C115819E8BD5D56F86373FA8C250329208A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kamelot - Dark Asylum (2026) [MP3|320 Kbps] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:85D41446B9C9DB353E7E622F46EC366ABFA5B681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Issa - Fire And Ice (2026) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E61C74195F9CDE3342D3B39360A131FFB997B169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Flotsam And Jetsam - Rats In The Temple (2026) [MP3|320 Kbps] <Power Metal, Thra
 ```bash
 magnet:?xt=urn:btih:ABC8F344531D8AED907A2EA48AC90F221B45B782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Triosphere - Oceans Above, Stars Below (2026) [MP3|320 Kbps] <Progressive Power 
 ```bash
 magnet:?xt=urn:btih:D7E02DAD242DB10A43D8C9EF23626EF9B821751C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Steve Hackett & Steve Rothery - The Roaring Waves (2026) [FLAC 24/48|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:34C683F99B80AF2490141C91A568BFDD9EAC71E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Kamelot - Dark Asylum (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Po
 ```bash
 magnet:?xt=urn:btih:08E14E2559E042B1839BC03B664AAFB8C6B189D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Triosphere - Oceans Above, Stars Below (2026) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:87B0FE5EAA8D0D916FBE792BE1727F3A811203A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Flotsam And Jetsam - Rats in the Temple (2026) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:D6ACC6FD03D63F247A07DE58CB3D38C08A1DF90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Russian Circles - Nine (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post Rock, Po
 ```bash
 magnet:?xt=urn:btih:A3A7EDD5A2D5E962A3A157197A55046A4F1C0851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Mastodon - Marrow Deep (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive M
 ```bash
 magnet:?xt=urn:btih:3135BD8FE7C78A66A0401541D467A7B239FF227F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Gorod - The Ember Gone (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, 
 ```bash
 magnet:?xt=urn:btih:BF6D1A748076A36A399BFB318591ACFFF4920603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Exumer - Death Mask Messiah (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:0DEA6C1125981FA6938A6F132A3FDB6BABAE9D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

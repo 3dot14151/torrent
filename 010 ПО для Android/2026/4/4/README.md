@@ -21,8 +21,7 @@ CYBERPORTAL // X  — PORTAL WG ⚙️ + CONNECT ⚡️ + DPI 🕶
 ```bash
 magnet:?xt=urn:btih:FF0142C84A905871E72161B97A66F53F4706EC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

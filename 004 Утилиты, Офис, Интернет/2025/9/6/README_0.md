@@ -19,8 +19,7 @@ Futuremark 3DMark 2.32.8426 for Enterprise RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B6196F2ABD2B9FD440773F585CA79EEEA7E3A842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 ```bash
 magnet:?xt=urn:btih:EBB54E6701745B506B01FA12B20B5AE768C888FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 ```bash
 magnet:?xt=urn:btih:0E983F7203CEDBFEAF3F349793681A2E1EB1A514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:6C52DC3AEEE7785C0077412927957B8B0C9E24A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Apowersoft Video Download Capture 6.6.0.0 RePack by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2C917D8BCA46D3225E0B57AA389FABB218C32A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Auslogics File Recovery — простая и эффективная в испо
 ```bash
 magnet:?xt=urn:btih:E10588BD1C55D88801049BEDF0F572AFD18C95CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

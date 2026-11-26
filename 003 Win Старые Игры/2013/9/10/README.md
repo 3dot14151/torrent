@@ -20,8 +20,7 @@ Scotland Yard (1998) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:21815E3A40F5C34CD52B5FE1AF0C399CA60A6EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Evidence: The Last Report (1996) [Ru] R.G. Kirill Games
 ```bash
 magnet:?xt=urn:btih:32D22A80000B693FAE33582F8A7E731833714A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

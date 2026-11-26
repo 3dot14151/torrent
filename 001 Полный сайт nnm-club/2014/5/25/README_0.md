@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E13F015CA718F1508C899B87A1D1C7271B282651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Blue Sky Black Death & Hell Razah - Razah's Ladder (2007) [FLAC|Lossless]<Rap, H
 ```bash
 magnet:?xt=urn:btih:B52C37DC3EB35BF379F95F3FF3E1679576C98E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A82DC25C0A46EFE678B6F2330D70F3D6455235B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ VA - Tales Of Dub And Techno Vol.2 (2013) [MP3|320 кб/с] <Techno, Dub Techno,
 ```bash
 magnet:?xt=urn:btih:B524D0A0B4C419F06C804F2B278A8B9B79E5859A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ The Floacist - Rise of the Phoenix Mermaid (2014) [MP3|320 кб/с]<R&B, Hip-Hop
 ```bash
 magnet:?xt=urn:btih:CCAD66C1520808B2866F440FA9C2F1AAB00D1EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Unisonic - For The Kingdom (2014) [MP3|320 кб/с]<Melodic Heavy Metal, Power M
 ```bash
 magnet:?xt=urn:btih:769653C86D591E52679C6EF9BC2B15685A0D35B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B53B7B87E7A1064D547039922E537F9CFB90B704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Blue Sky Black Death - дуэт из Сан-Франциско, в состав 
 ```bash
 magnet:?xt=urn:btih:58B09A4ED8099002CCD885133DB90B19D9531A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7B1903AB6B38C1A9A3A7E65D2258708741832E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ Melodium - Compilation 15 Years (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Glit
 ```bash
 magnet:?xt=urn:btih:AC706CE0ED628A65907ADADBB51E94615C905987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A92FCF8A1D02424043465AA2D7217C92565CBE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Patrik Jansson Band - Here We Are (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:3A3057FA6D3BB99E50A1A1406B8DDCD4E9021E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B720969236599B08553ADE6CE5E6330AF098295F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ Miryam Granatmann - My Gold Record (2013) [MP3|320 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:908FE3EF63536E1503D121F03524C4A8C5BE10BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ Blue Sky Black Death & Warcloud - The Holocaust (2006) [FLAC|Lossless]<Rap, Hip-
 ```bash
 magnet:?xt=urn:btih:F52BA5D5C6CB2240A6C8D023A9BC584EBFB34FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:533F33C2519066ED95B19D9E0D54FEF971C8B081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5776A62A3841693990590A3C5023295E723817D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ Ben Rama – Live In Montreal (2014) [FLAC|Lossless]<Progressive Techno, Neotran
 ```bash
 magnet:?xt=urn:btih:DD401B9F0AD106A269D0930747F7CB5A3AF2333F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ Cafe Del Chillia - Best Of 2014 (Gold Collection) (2014) [MP3|320 кб/с]<Loung
 ```bash
 magnet:?xt=urn:btih:FB5E1BFB3AABFCC130D2151A0B8CF3752EB48114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E51D7BC478ACECCD82A51F336524FE3BAFFDC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DCDC9DE88B3D4516C87DB6EC0255468B8CF87FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0603E1074E3910E43FCAD80DC4E2DB64CD858AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +681,7 @@ Johnny Indovina - Trials Of The Writer (2014) [MP3|320 кб/с]<Alternative Rock
 ```bash
 magnet:?xt=urn:btih:9982E467CE09186CAB7AE11ED9F2E996D646ABFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ Chris Liebing - Evolution (2003) [FLAC|Lossless]<Techno>
 ```bash
 magnet:?xt=urn:btih:7BE50BD15C95E312B26BC3A2383606536E478C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +740,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F797A0BDF6E0EB1AFD9D19E10C339C85AAFA3260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:087F6D8B366E117BBF6FADDA720D24E84ED5DE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

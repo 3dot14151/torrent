@@ -22,8 +22,7 @@ Don Patrol - A Wire, a Deal & the Devil (1992) Japan [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:3C39C4883E32CAED979A60867C76A2D72301D18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Strangers - Mirrorland (2017) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
 ```bash
 magnet:?xt=urn:btih:34999B19DEEB6CA2F926D5B207573195F6F25122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Slaughter To Prevail - 1 альбом + 1 EP (2016-2017) [MP3|320 кб/с]<Death
 ```bash
 magnet:?xt=urn:btih:0A126F1DB09F56025ED91770DBD8B9EA81AEF003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kasabian - For Crying Out Loud (2017) Deluxe Edition [MP3|320 Kbps] <Alternative
 ```bash
 magnet:?xt=urn:btih:14309C418C776BE5B15E4C126C2D42753298043D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

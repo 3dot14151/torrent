@@ -19,8 +19,7 @@ Season Match 2 / Времена года 2 (2008) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:02E8416039138433A9CE76CF22FEC0E451B2219B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Endless Fables: The Minotaur's Curse / Сказки без конца: Прок�
 ```bash
 magnet:?xt=urn:btih:B6495A4FC5EF1C9DE7D665DFBA62DA2F5EECB157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Agent Walker: Secret Journey / Агент Уолкер: Таинственное
 ```bash
 magnet:?xt=urn:btih:78195FDD66618EEC262CC7E266CB69F7239FF9A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Skyhill – игра на выживание, главным героем кот
 ```bash
 magnet:?xt=urn:btih:9266BCB40DE290D65E4946595488CF8213A744D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Toricky (2017) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:349075E39C9355618B7D474C8F68B4EABDAC34FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Admin - совсем не динамичный шутер от третье�
 ```bash
 magnet:?xt=urn:btih:9DCC568BE85AA5821A65460E23F375DEE3F73FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Disney Infinity 3.0 Edition - это аркадная песочница, пос
 ```bash
 magnet:?xt=urn:btih:D1754D51C467F14D9B4CBBB9B81BC7B04EE81F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Rise & Shine совмещает в себе аркадный шутер с ис�
 ```bash
 magnet:?xt=urn:btih:E69823D24BC049416EE442C67ED4FA7D6FA9043B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

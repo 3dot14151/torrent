@@ -19,8 +19,7 @@ Justin Seitz, Tim Arnold | Black Hat Python: Программирование Py
 ```bash
 magnet:?xt=urn:btih:BF8174DC99DA322CBBECCAAFD90BB8D4B1009A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

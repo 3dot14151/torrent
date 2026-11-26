@@ -22,8 +22,7 @@ Strange Names - Use Your Time Wisely (2015) [MP3|320 кб/с]<Alternative, Indie
 ```bash
 magnet:?xt=urn:btih:1E00186D514421A04F38501EA9DBB5F834C0123D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Melodius Deite - Episode II : Voyage Through The World Of Fantasy (2014) [MP3|32
 ```bash
 magnet:?xt=urn:btih:0F134A8A2B5B4A0EF272C0B9CB3F700EA32B6E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Boztown - Integral (2014) [MP3|320 кб/с]<Alternative, Electronic, Trip-hop, C
 ```bash
 magnet:?xt=urn:btih:529DC00EBCCA8C2AFA1B64276120A11D38E9256F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jim Peterik & Marc Scherer - Risk Everything (2015) Japanese Edition[FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:68891433130D409DB878ECDB40C13FD16C79CF2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mark Knopfler - Last Exit To Brooklyn (1989) Japan SHM-CD /2012, Remastered/ [Wa
 ```bash
 magnet:?xt=urn:btih:CCEF4B567741F47709864ED2CBF28439020C6AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3FBA935BA5740715729C426781757A6941679D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Detail – криминальный интерактивный приклю�
 ```bash
 magnet:?xt=urn:btih:B52F5D726A651AD64687CE63DCB12562EFBA3CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Grizzly Valley - реалистичный симулятор выживания 
 ```bash
 magnet:?xt=urn:btih:C68731357633D718F4F386AF76FAE79A12646CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

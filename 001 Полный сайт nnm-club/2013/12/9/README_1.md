@@ -19,8 +19,7 @@ Jethro Tull - A Passion Play (1973) /2003 Remastered, Chrysalis/[FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:7D0D62DB8BA3183C823E0456CE137A6897E44757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Solar Spectrum - Droplets From The Matrix (2013) [FLAC|Lossless|WEB-DL]<Psy-Tran
 ```bash
 magnet:?xt=urn:btih:62A305FC7FF00C713A83151F265E9C1CB4A4F4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - A State Of Trance - Future Favorite Best Of 2013 (2013) [MP3|320 кб/с]<T
 ```bash
 magnet:?xt=urn:btih:0C377629F432C40B5ABECE4D3E49CFB18BC93CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ VA - The Official UK Top 40 Singles Chart (08-12-2013) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:8213CE3C42654B0A995FDE1D8CF21F6D6A82DC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46F86A9C5A2F768DE0667CF581992453A6BE6281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64520285C50929C237DD72A2197A84BFF1482893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ VA - Erotic Chill Out Moods, Vol. 1 (The Winter Lounge Edition) (2013) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:583BA312680571748FF7CC6766C866893071E562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ VA - Top 50 World Music Treasures (2013) [MP3|320 кб/с]<Lounge, Easy Listenin
 ```bash
 magnet:?xt=urn:btih:0A0F8E2C41D134BED95B1BF98CD4AEEBAF6A863C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ Stanton Lanier - Open Spaces (2013) [MP3|320 кб/с]<Piano>
 ```bash
 magnet:?xt=urn:btih:F33EED5ED3DF3E2154DF50C2AAC7FF184C33A380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F957749C4AF6AF8BA4AA406069D59B063E80673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ Bonus Track(   Читать дальше...   )Жанр: RockПродолжит�
 ```bash
 magnet:?xt=urn:btih:913D01984EABB95A9E4A2DE711D5409DDFA66459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ Intensify 1.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:40A2F7AD1C527BA06269DD0E36E16E7A23C077BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ VA - Estee Lauder. Pleasures (1995) [MP3|320 кб/с]<New age, Chillout, Instrum
 ```bash
 magnet:?xt=urn:btih:AE8296DF2FE05551A39AEFFEAB3C5F8D50FACB7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC3751E435176624836293F2A56948E5E8175489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:753E424B849E1A759D1997EA1B93D3C53197099C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B29D3AA08A4EF03ABAB1722561CCE88C52CA82E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ Earl Klugh - 3 альбома (1982-2006) [FLAC, APE|Lossless]<Smooth Jazz, Jazz
 ```bash
 magnet:?xt=urn:btih:041EC4FD31A037BC7BD73E3D722FF2D3D815B304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1724CA0A45FA2AAC8D5373CFCEE484696D28A86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F559BA4C6254F3A19D0C6A18D5C3DDD6AD64450C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D27837060D94308600BEFDB4C0028B4C0E8C2A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ Gary Clark Jr. - Blak and Blu (2012) [FLAC|Lossless]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:888F9A7BBFA1B111696B5661FD15EB8B1521D7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FDF0C4AB4E007912A5A0BE92FE5852910365289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +671,7 @@ Heo So Young - That's All. Standard Jazz Album  (2013) [FLAC|Lossless|WEB-DL]<Vo
 ```bash
 magnet:?xt=urn:btih:0E8AC0AC2450D80994ECF63759DFEECDE0147E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A497D5D8E3267BBE5AC0ED96AC7FF8C248EC1B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05FAE432E8D273A0D623C30E5AF276FB801D3643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +747,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6858C17FF144D499C636C426852286C3B250D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

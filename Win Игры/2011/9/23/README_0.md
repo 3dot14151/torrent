@@ -19,8 +19,7 @@ Cursed Memories: The Secret of Agony Creek Collector's Edition / Проклят�
 ```bash
 magnet:?xt=urn:btih:FC1B4350BF04008BAD0C19C4B7DCE1010AEC62D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Velvet Assassin [Ru/En] (RePack) 2009 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2CF6E1369D7635E78BE04F56A3A5DE074983CF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

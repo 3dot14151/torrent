@@ -20,8 +20,7 @@ Johnny Trigger v1.11.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:7F86B62F62C150A440276E079A41C1F1CBEEE1BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Cookies Must Die v1.1.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:14055B557DF7439D0FB02C7E8F7141DC5FC40C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Age of Civilizations II - интересная и захватывающая с�
 ```bash
 magnet:?xt=urn:btih:816CA530708F6C9609077061E9038EF3DD9B69C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Plants vs. Zombies™ Heroes v1.36.42 [Ru]
 ```bash
 magnet:?xt=urn:btih:B5D2301C05E4F8CD445EEFED989AC36BE00DB05F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

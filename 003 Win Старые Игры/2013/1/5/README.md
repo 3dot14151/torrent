@@ -19,8 +19,7 @@ RollerCoaster Tycoon 3 / Roller Coaster Tycoon 3: Магнат индустри�
 ```bash
 magnet:?xt=urn:btih:B0A70058B9D7981DC8D79355F8F9FDDA646529F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal
 ```bash
 magnet:?xt=urn:btih:36728EE6E92CB9444221B4731F58A1793CA2FDB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Total Metal(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal
 ```bash
 magnet:?xt=urn:btih:1CD00F1A33906F55731AC18AD1B41DE8844088FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

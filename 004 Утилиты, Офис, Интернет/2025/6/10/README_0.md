@@ -19,8 +19,7 @@ PDF Shaper Premium / Ultimate 15.2 RePack (& Portable) by Dodakaedr [Ru/En]
 ```bash
 magnet:?xt=urn:btih:207B303B3C9BD82483EF811E0AF31BCF1D08DB95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

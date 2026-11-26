@@ -19,8 +19,7 @@ High Definition – компас в мире Hi-Fi и High End техники и
 ```bash
 magnet:?xt=urn:btih:F5F159C2E4BFC408AA103CFC79CE57196C1EB13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Maatkit. Программное окружение MySQL
 ```bash
 magnet:?xt=urn:btih:0B3CB96240268CA79166717271CADA2EF00C820D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Paul Daniel «Ace» Frehley — американский гитарист и в�
 ```bash
 magnet:?xt=urn:btih:E03466C1E95DF200BFDD0039E14AB20021553F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cynic - The Portal Tapes (2012) Compilation)[FLAC|24/96|image + .cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:EE30D40886420988FA9700B27B3A81CB1F1237A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dark Fortress — немецкая блэк-метал группа из Лан�
 ```bash
 magnet:?xt=urn:btih:9DC6FED9E0C0017D71079E72D05B507781E0DE4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 - Lifeless Irony (Demo 1990)(   Читать дальше...   )Жанр: Thr
 ```bash
 magnet:?xt=urn:btih:30F0149CFF692D5C6EBBAE46EE101C42F615E2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

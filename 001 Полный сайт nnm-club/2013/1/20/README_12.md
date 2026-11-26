@@ -18,8 +18,7 @@ Counter-Strike: Source (CS: Source, CS:S) — многопользователь
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crysis 2 Multiplayer Edition [Ru] (Rip/1.9.0.0/Dedicated Server) 2011 | TRIADA
 ```bash
 magnet:?xt=urn:btih:CA32C2D0A7101F421A003371BB606AEE48FEC96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D92212B45841179F7ED905119AF8792D7B21134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BACFE187AB5AAFCBE23A9A93EDEE8745AD7E857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Borderlands 2 [Ru/En] (RePack/1.3.1/DLC) 2012 l R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B804B93BFD32CD61BEC44D8DBE1C7F38E063CBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Best Anime OP&ED (Сборник треков) [1973-2009][FLAC|Lossless]<OST+OP
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ ru_windows_8_pro_vl_x64_dvd_917810.isoЯзык интерфейса: Русск�
 ```bash
 magnet:?xt=urn:btih:A51EE5E5AE486B65E90F1D9E07A78320C8B04353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

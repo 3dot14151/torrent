@@ -27,8 +27,7 @@ Ian Paice and Forever Deep - Made in Verona (2010) [MP3|320 кб/с]<Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:EE324BB866E38966426494C26060FB24EB8AA8A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58F1F8174A1FAE729262F86E1E92979DF00B6F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ The Mahavishnu Orchestra - 6 CD (1971 - 1976) [FLAC|Lossless]<Jazz Rock Fusion>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Yngwie Malmsteen - Spellbound (2012) [MP3|320 кб/с]<Neoclassical Power Metal>
 ```bash
 magnet:?xt=urn:btih:082752E5F762113DA36E4B1E0799BDDCE8601D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:716474AF0E2B1270A13603CB530A10640C1AF9B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Green Day - ¡TRE! (2012) [MP3|320 кб/с]<Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:89DD2AD944CBA57C245F08EFD195D70503CBD6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ System Of A Down - Fucking Rare (2010) [MP3|192 кб/с]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:781FC09C943532C7424258D723D746645D463D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Bonus:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

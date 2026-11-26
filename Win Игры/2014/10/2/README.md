@@ -20,8 +20,7 @@ Oknytt – это point-and-click игра от третьего лица, гд�
 ```bash
 magnet:?xt=urn:btih:A87668863937C2A82792ED36A395C176B47EF294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

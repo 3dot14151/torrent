@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:EA11D615E1577B7C6971DA4FC409FC98C1E0813B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Aufklarung - Zeit Der Aufklarung (2013) [FLAC|Lossless|WEB-DL]<Modern Classical,
 ```bash
 magnet:?xt=urn:btih:9A99C2C8284E0FD5183B7ED5FA3457D8CFCEEF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E69E5FC0EB93FEB9EA7E21B9A6FFBC1C0DF0E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mark Sherry - LIVE @ Trance Mission (Four Runners, Germany) (2013-09-27) [MP3|32
 ```bash
 magnet:?xt=urn:btih:2684E4579FDB5B92AEA4509784BC40AD36DFB67C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ N/AЖанр: House, Electro House, BassПродолжительность: 01:59
 ```bash
 magnet:?xt=urn:btih:1EEC11D153FFE2C7E21B600C71CB9D3B489A7221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ VA - Electric Bossa (2007) [FLAC|Lossless]<Jazz, Funk, Bossanova>
 ```bash
 magnet:?xt=urn:btih:09A6F544D81D38D5F87BD893559BF0E11DD7B78C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ VA - Trance. Vocal Fascination 52 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:46F231DA65C900506833D1255AB33F60788AB888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ Devariem - Planet Earth: Ground Zero (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6C284305A0C2CB029C02BDDA114EC0BC3671CE59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:644714A6617F4EEA1EB554445BE53558CD07D83E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56564857E1E17A518E8A59EF6A3C72F7D73B4249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ Breed 77 - Cultura (2004) [MP3|320 кб/с]<Hard Rock, Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:FE450B71C0AE1F96EA48E332A1068DA885072DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36F4F482625E37553382D094FB7292258AC6A1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B290710379BB65C31F0D6054BC266AB516912705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +452,7 @@ Roxy Music - Roxy Music (1972) SHM-CD /2013, Universal Music/ [FLAC|Lossless]<Ar
 ```bash
 magnet:?xt=urn:btih:E27F1850A6F89923BEB2AAD2EAA3381F65F84BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBB3D7DBC1D09A3AC0EEAC73A82EC8CA037AB74A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6070165E570A1FB0EE7565B436A5BC64DD59F32A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:2498C667BE58F0633FF4BB6611C5E1540A0683D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +556,7 @@ Photo Collage Max – это удобная программа, которая �
 ```bash
 magnet:?xt=urn:btih:484C0A9D59B6C409F4D1E16A821DF3BCEEF77CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FC750CFECCA5282BA6BC98E0A69B61428D9124F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +608,7 @@ Glary Utilities – это функциональный набор систем�
 ```bash
 magnet:?xt=urn:btih:4B92995218B02E2C4F36E4A78C2FD49CE9C145A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ Discovery. Туристические жемчужины. Диск 2 / Discovery
 ```bash
 magnet:?xt=urn:btih:AE080F69419818EBC3D1233792BABF417AFE06DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +667,7 @@ VA - Made In Italy vol.1 (Raccolta e Mixato il DjRicco) (2013) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:2E486E0D04B2709EA6FDD245D9A777763C80729B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFD543853F49A73AEC25CDAC7E7BE9BE666A81A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1E08798551AD1FC9B5730D236A62AC0C42E930C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

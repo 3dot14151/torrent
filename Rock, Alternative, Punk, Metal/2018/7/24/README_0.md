@@ -22,8 +22,7 @@ Mars Argo - Discography (2009 - 2017) [MP3|128-320 Kbps] <Alternative, Indie, Po
 ```bash
 magnet:?xt=urn:btih:8D878B9B5D22443E9C2306DB05DA4B2099C1BD5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

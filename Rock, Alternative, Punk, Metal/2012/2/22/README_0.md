@@ -28,8 +28,7 @@ A New Dawn - Fallen From Grace (2008) [MP3|192 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:E2B7CA7C63BF27DEB1C39FF653DFBA6F16F3DC95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ DISK 1 - 00:47:11
 ```bash
 magnet:?xt=urn:btih:6314EC852F4C784DC01F2CD4F4FA472A3B310E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Sting - B-Sides & Rarities (2008) [WavPack|Lossless]<Rock, Jazz Rock, Blues Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

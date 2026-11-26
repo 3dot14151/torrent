@@ -28,8 +28,7 @@ Sam Cooke - Good Times (1992) [FLAC 96/24|Lossless|Vinyl-Rip]<Rock-N-Roll/Blues>
 ```bash
 magnet:?xt=urn:btih:10C759B5CA7EF2A274991B8B9F1F5CE7C6E18FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

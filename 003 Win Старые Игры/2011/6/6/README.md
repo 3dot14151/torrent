@@ -19,8 +19,7 @@ Guilty Gear Gold [En/Ja] (RePack) 2001-2006 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:A0CAAE70BC8C7A80D84BABAB36C311CF6EECE90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

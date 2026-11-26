@@ -23,8 +23,7 @@ Blood Bowl: Legendary Edition – дополнение к Blood Bowl, котор
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Fear for Sale: The Mystery of McInroy Manor Collector's Edition / Страх н�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Gods vs. Humans (P) [Multi5] (2010)
 ```bash
 magnet:?xt=urn:btih:031190BC697AB0D5ADCD530E7D040309034608DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

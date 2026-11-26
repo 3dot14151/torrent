@@ -19,8 +19,7 @@ StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
 ```bash
 magnet:?xt=urn:btih:A9AE378988E74107FDA2DD5C98FA70231845547E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

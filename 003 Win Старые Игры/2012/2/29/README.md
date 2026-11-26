@@ -21,8 +21,7 @@ Nancy Drew: Ghost Dogs of Moon Lake / Нэнси Дрю: Псы-призраки
 ```bash
 magnet:?xt=urn:btih:3A88AC2F2196DE8B6CA197BFCB48C4B872257520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

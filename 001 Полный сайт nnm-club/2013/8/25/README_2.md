@@ -27,8 +27,7 @@ The Who - My Generation- The Very Best Of The Who (1996) [FLAC|Lossless]<Rock, h
 ```bash
 magnet:?xt=urn:btih:BAAB1544EA31692E62FFE3E3859904A069E4459E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Motorhead - The Very Best Of... (2002) [APE|Lossless]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9596DABDC063D396D473FB8C637921901FEAF44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Manfred Mann - The Very Best Of Manfred Mann (1993) [FLAC|Lossless]<Classic rock
 ```bash
 magnet:?xt=urn:btih:DAE2C89D9A38E5AB3B0194612D855B4AF905138C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ XVI век. В Европе бесчинствуют четыре всадник
 ```bash
 magnet:?xt=urn:btih:27CB4157CF10BB345A023EA3F210F0613F5C4729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:843972983F71AC6A5105A3AFAAC5C466E5B118F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ VA - Лучшие песни любимых исполнителей (2013) [MP3
 ```bash
 magnet:?xt=urn:btih:FDEF70686662B59F5871F6BC40B461F8ACB89044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9036957AF3EBFB730EACFC7CBEE9AB990B698217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Colonia - Tvrđava (Tvrdjava) (2013) [MP3|320 кб/с]<Eurodance, Europop>
 ```bash
 magnet:?xt=urn:btih:0A20FD6835AEFA08D9F119B43F82EB9AA9F298B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:6F425FEC0BD7A744842C987B97126097825612B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ Suzanne Vega - Solitude Standing - Live at the Barbican (2 CD) (2012) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:B969EE395B265D6F524E4E3C99087EFB70AEC032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +341,7 @@ Carlos Santana & John McLaughlin - Invitation to Illumination-Live At Montreux 2
 ```bash
 magnet:?xt=urn:btih:1EE67D0762B48731E68DEBDD732DA6A937713CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27A0125041128D0D084AC993E9B7CA3E2F30DCD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D81AAB655452293D98DCE51131AE898986BA8BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E818CF0EAC4361F441F3C28DA2B63ECB776F5B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2628B2218E7E868C98579D59FA9F267EE6C5907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:27313350B8F689590D51227F88258A3FA1F8D4A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A469394BF531D2D1FC008D130C552829FFE1104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ VA - Beatport Top 100 Download December (2012) [MP3|128-320 кб/с]<House, Tech
 ```bash
 magnet:?xt=urn:btih:E24EAA87FCC23D7A9E5A5A19C90E278EADE63E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ECC3E5315E37912C02D5AFFF81ED1F199F5A11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F310DD4594C5371DF203F576A689915F3F8323E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EDD8905C08A919152B4BA4FFBEBCD76EEA0AF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ Paul Mauriat - Let The Sunshine In/Midnight Cowboy/And Other Goodies (1970) [FLA
 ```bash
 magnet:?xt=urn:btih:55A1FF6082367168E58FAA5EF6602204909B0458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03A8FE6B5B1D6EA9E6926A94F46F25F5E54E82C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ Martynas Levickis - Martynas (2013) [MP3|320 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:57C81A3CC9ED517CB71E8C8463EA4DB33B554554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D03AE4CDB89493C1C3332C690DF97CA7A2B41A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8FD757EAA2CE454538A06F7D7ED594B3940FB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

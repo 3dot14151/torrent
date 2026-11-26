@@ -19,8 +19,7 @@ Startup Sound Changer - Программа для смены звука при �
 ```bash
 magnet:?xt=urn:btih:465C7E6B7CA6D423733EEBEB19C2D0298A3339D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ImageDupeless 1.6.3.3 [En]
 ```bash
 magnet:?xt=urn:btih:F59CBC2AC79C5D4742243BF3EBCB2A9B75CEA50C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

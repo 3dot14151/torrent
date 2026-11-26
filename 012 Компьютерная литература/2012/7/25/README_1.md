@@ -25,8 +25,7 @@ Addictive Drums объединяет все это в удобном плаги�
 ```bash
 magnet:?xt=urn:btih:F408912C8322BB61E0DB8938955EBB1C4EA0661C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6D4790CB8097BC2BE8B0658482C648DDBDFC3AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

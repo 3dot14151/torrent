@@ -19,8 +19,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:275F1D88072E51B3D574FC99465A6137F16A4D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Terror of Hemasaurus (2022) [Multi] (1.0b) License GOG
 ```bash
 magnet:?xt=urn:btih:7CA44550EEB57B7A89D32EA7FF240A88FA57DC9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Last Oricru (2022) [Ru/Multi] (9708472) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:F81EAE4CFB9C1ED473B9BF2788B867D202B4E717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:BBBFA80943A5A0C0D3FB0003D6E1051D22E3124A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

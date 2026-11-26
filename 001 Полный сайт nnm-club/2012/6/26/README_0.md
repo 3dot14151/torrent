@@ -27,8 +27,7 @@ VA - Airport Lounge: London - LHR Session (2011) [MP3|320 кб/с]<Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:6893E49632191C2C0151503C3A63102CFE5FEB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Premier League House Vol.7 (2012) [MP3|320 кб/с]<House, Electro House>
 ```bash
 magnet:?xt=urn:btih:297D8A00FF166AC3886BBEAF21B47BE583C6B0EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDE4650FFE863313A798B6DC61A4ECF4ED216CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Airport Lounge: Los Angeles - LAX Session (2011) [MP3|320 кб/с]<Chillout
 ```bash
 magnet:?xt=urn:btih:05D9877B0D7B38E4E949DAA2B7DDE90AF72A494C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ VA - US Hot Top 40 Singles Charts (2012) [MP3|~320 кб/с (V0)]<Dance>
 ```bash
 magnet:?xt=urn:btih:0EC01268BA760E71ECC7EA1E3C99699CF46A1759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ BurnAware Free - относительно небольшая, бесплатна
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:094AF7D2FE3446B1B492F87421FE74D5E9260B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ VA - Airport Lounge: Paris - CDG Session (2011) [MP3|320 кб/с]<Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:4B8D205465B535451B5B56ACD3E8A99F50F23B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ SeaOrbiter, проект научно-исследовательского су�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7182AC76A98016B534D2F5CAB271906B2311ECC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ Primal Scream («Праймэл Скрим») - шотландская рок-г
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ VA - Airport Lounge: New York - JFK Session (2011) [MP3|320 кб/с]<Chillout, L
 ```bash
 magnet:?xt=urn:btih:A58F85E69EA95A95F6CC0FE958CF0EAED7EC275F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ VA - Lo-Fi light (2012) [MP3|320 kbps]<Lo-Fi|Downtempo>
 ```bash
 magnet:?xt=urn:btih:FA0644B662B0B9379AC9976244A32170141DAD9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36F44412F8AE1127615BC8E80013B65422EDAAEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ VA - Airport Lounge: Miami - MIA Session (2012) [MP3|320 кб/с]<Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:EE6A20752224A6EA35680FFDA1F7AA5BC668DDE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ VA - Музыкальный сюжет лета (2012) [MP3|192 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:D802D39C6082C6AA9F471BEE0FE8550BC0CD2E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16CB6E374F3F3EC2BF28037FE87026719FFDBA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ Rolling Stone - американский журнал, посвящённый м
 ```bash
 magnet:?xt=urn:btih:82557FFB7776EB9A803117A1D8EFF73D6BD6E51D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19E6B67BC963A9FA7AFB36F7B18BC80EC0D47780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:405D8CAD5473F167C329589A489C8C0E8C904EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ VA - Airport Lounge: Rio De Janeiro - GIG Session (2012) [MP3|320 кб/с]<Chill
 ```bash
 magnet:?xt=urn:btih:4B377BA47C100C988E15EDC77C6495A143062E00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ VA - Dance Club Party (2012) [MP3|256 kbps]<Club|Dance>
 ```bash
 magnet:?xt=urn:btih:F2CE5CCD51C644FCE15DD78BAAFE6F1AC8BAAC50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92DDBAA3F61FDF4B6A86723D5C843E366E28483C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3BEC9348A67E55E0E8AE521E0835D5C3DFFA8A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E63D3BE3CBA9DB11BA4918425C18C680E021EFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +739,7 @@ Arnej - Unreleased (2012)
 ```bash
 magnet:?xt=urn:btih:2613DFF6B5FCCD35C7321672A25C012CE725CB30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Storm Rider(   Читать дальше...   )Жанр: Symphonic Metal/Gothic 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

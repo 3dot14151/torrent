@@ -19,8 +19,7 @@ English Galaxy - уникальное приложение для тех, кто
 ```bash
 magnet:?xt=urn:btih:395FE8BE625B5A69AB2EAA6A964667E3955CBB6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pencil Photo Sketch - профессиональное приложение дл
 ```bash
 magnet:?xt=urn:btih:3E999785A42FC587EC60A379AA82015BDCA7BC1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MP3 Cutter and Ringtone Maker / Обрезка музыки, редактор м
 ```bash
 magnet:?xt=urn:btih:5E9E32FEC2398D7EFDA6C58EA0ABDEDD3B5380EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

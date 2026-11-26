@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C66ECEBD4772B5ECD41D90DE861D2F3F876B2B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44A18AD709551C9993D78E65B86B40E76A91AE12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Metasploit - это платформа тестирования проникно
 ```bash
 magnet:?xt=urn:btih:20EFE57F4ED6C67671482EB00CC07EBCFD1A8512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

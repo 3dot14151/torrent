@@ -19,8 +19,7 @@ Bio Menace (1993) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:BD9A4066C8A3A242258F33369177D96700C1D87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

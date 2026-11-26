@@ -19,8 +19,7 @@ Ashampoo Driver Updater обеспечивает обновления для ш�
 ```bash
 magnet:?xt=urn:btih:5C98FB5D9CC6EA368790329A8D3BB4BF5B490D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы (2003) [En
 ```bash
 magnet:?xt=urn:btih:B9FC72ED31098CC2DA532ECA258D1DD510C77C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deathtrap Dungeon (1998) [En] (1.0 it fix) License GOG
 ```bash
 magnet:?xt=urn:btih:AD121AF9EEA2F679A51EA1E89FCA5041EEBF1C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

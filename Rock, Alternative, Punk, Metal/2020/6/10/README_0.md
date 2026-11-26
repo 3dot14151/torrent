@@ -22,8 +22,7 @@ BPMD - American Made (2020) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:ECC1F38578D7306A2FDC2517BEF238ED4FB3AEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Dears - Lovers Rock (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Altern
 ```bash
 magnet:?xt=urn:btih:26154DE220634DF3BA8B40059A41CB3BD005217C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Think Floyd - 2 альбома (1997-2013) [MP3|320 Kbps] <Progressive rock, Art
 ```bash
 magnet:?xt=urn:btih:0144440A12825379A9D4B3201B2F8E550239FFE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mary Magdelena and the Crimes of Passion - Set the Controls - A Unique Tribute t
 ```bash
 magnet:?xt=urn:btih:8BD5D4CEFC1FEC49252EE9AFEA7FF5410C38156D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

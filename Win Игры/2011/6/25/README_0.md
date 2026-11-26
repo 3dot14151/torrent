@@ -19,8 +19,7 @@ The Fall Trilogy: Chapter 3 - Revelation (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D93ABCBB866F25745ACC4F399704CDB313BF4D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Valley: Extended Edition / Тайна долины: Расширенно
 ```bash
 magnet:?xt=urn:btih:3F9797FC43EE57099F3D5F16D7DBCB9B5A1D6F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Real Crimes: Jack the Ripper / Тайны Джека Потрошителя (P) 
 ```bash
 magnet:?xt=urn:btih:D973497B3ACE132AC479AA8D5F55925B37EA26FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gray Matter / Gray Matter: Призраки подсознания [Ru] (RePack)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Air Conflicts: Secret Wars – аркадный симулятор полето�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

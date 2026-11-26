@@ -19,8 +19,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:BEE4367F06B7EF301F376E361CB88609A8EF7C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ iDownerGo – это приложение для загрузки мультим
 ```bash
 magnet:?xt=urn:btih:3B8A5722550315BE190FEAAB6FA583FC0FA83FEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:289AD974DE0B97FB1B11781FB8A12C3779F3AD72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ DesktopOK - это небольшое, но эффективное решени�
 ```bash
 magnet:?xt=urn:btih:73DEC646AD46F18734CC21A21EAA21F8C93C0D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ ShareX - программа для снятия снимков и видеоза
 ```bash
 magnet:?xt=urn:btih:DB29ADCF03BE551B68456D5B5E6C7858890E7817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ MassTube Ultra — очень простая в использовании пр�
 ```bash
 magnet:?xt=urn:btih:4DFB14892B38A58BA4C97EF6F4E9EEF5C29C434D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ UltraSearch Professional находит файлы и папки на локал
 ```bash
 magnet:?xt=urn:btih:A4A8CA9F8591E569585053B4144C4E59DD2DA379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Nitro Pro – программа, которая является альтерн
 ```bash
 magnet:?xt=urn:btih:A51F0848EB5AE4D67957684BED437A96B16E930F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:E264D01E925ABA8E49BCD335836D8ADB719B8EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:79D7DB23DCC47CF17EAE2532F9E33FEB2532CF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:6CE7CCDE9B1BCDA8E07050FBA452188D40779BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:19E7D959FB2B0164922F96565C5CF97C0AD617E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:514229B22C47E5FE0B5CCF24AE2F392815EE032E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:432741ADCBF9478934038FE5F0E1720670382BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:83B6FF1B8FE9D0E7A0C5D64FDD07EF064A9B0E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ Vivaldi 7.9.3970.39 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B9ED3DA35CC38BCF61A2B2C71D57D1C5DA546657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ CoolUtils Total PDF Converter 6.5.0.356 RePack (& Portable) by elchupacabra [Mul
 ```bash
 magnet:?xt=urn:btih:5E4D6D42C809135A939114B568B4F4B6847CC489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:6AF1BB35B1620DE31B36973907DB71C5A5D5C68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:EC727E948D8BD308529B07E0DDC3D7841917F7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +497,7 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:E2B65CF9BE3D182A8CA3D838A2C9201E8AEC746A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +522,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:AB650045C422177EF07F5DF3DC8C2EBC52A9E33F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ DBF редактор динамически создает визуальные 
 ```bash
 magnet:?xt=urn:btih:A17066FC7BE8F7A0691DDE9418EE6C30027402F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

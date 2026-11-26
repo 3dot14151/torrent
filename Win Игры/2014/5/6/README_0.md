@@ -19,8 +19,7 @@ The Quake Collection - это собрание всех игр из серии T
 ```bash
 magnet:?xt=urn:btih:535795D499C262198B28944160CA37891D097A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

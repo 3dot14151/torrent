@@ -28,8 +28,7 @@ VA - Motion Zone vol 2 (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:405154EB9768559A69CEBCF40C47A8713236B78D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Underground Theatre - Zeme patri vsem! (2014) [MP3|320 кб/с]<Screamo, Post Ha
 ```bash
 magnet:?xt=urn:btih:5B189DBD5EA5F1D80070844D772002696D0559C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Mark Whitfield - 7th Ave. Stroll (1995) [FLAC|Lossless]<Post Bop, Contemporary J
 ```bash
 magnet:?xt=urn:btih:55F95C82B03C90DD63354D16BF24736C81BCE356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Coliseum - Coliseum (2014) [MP3|320 кб/с] Deluxe Edition <Hardcore Punk, Slud
 ```bash
 magnet:?xt=urn:btih:C3060D5A3AC848D65E0BB9AF8D8F0591BD17DC14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Mark Rivett + Emma Pask with the John Morrision Big Band - Accentuate the Positi
 ```bash
 magnet:?xt=urn:btih:C412C236362DFAD5E61079B57B957C05B313FB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7B5A708AAAC67018433479CDE8EE911F2C9F730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ VA - Palmera Blanca Vol. 1: Antares (2014) [MP3|320 кб/с]<IDM>
 ```bash
 magnet:?xt=urn:btih:FD64781534C3826928E654F40D8911EE1B25120C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ Vaer - For So Many Reasons (2014) [MP3|320 кб/с]<Post Black Metal, Depressive
 ```bash
 magnet:?xt=urn:btih:05AAEF6EBE80955579B452DBE5AA3B470A9B2D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ Flares - 3 Альбома (2008-2014) [MP3|320 кб/с]<Progressive Rock, Post R
 ```bash
 magnet:?xt=urn:btih:E87A03360865ECAF2E1B25641E3C3FD44D00857D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +341,7 @@ Martin Taylor - Last Train To Hauteville (2010) [APE|Lossless]<Jazz, Gypsy Swing
 ```bash
 magnet:?xt=urn:btih:E12A1B22F11A1FCD06070386E6FF0E39DF84C639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6EFB44E4B260F5D5B7632A576D9A415ECBE27C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ Moanaa - Descent (2014) [MP3|320 кб/с]<Post Metal, Post Rock, Sludge>
 ```bash
 magnet:?xt=urn:btih:E16AA9EAFB5593E1093AA5D5F0ED861F7C26E3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +432,7 @@ Mark E - Product Of Industry (2014) [FLAC|Lossless] <Techno, House, Deep House>
 ```bash
 magnet:?xt=urn:btih:EF83B7B2F1931EFDA9082BAFC1498B936C30095E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56C7F23672E246430C624DABD400F5204271E741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +489,7 @@ Tom Principato - Robert Johnson Told Me So (2013) [MP3|320 кб/с]<Blues, Rhyth
 ```bash
 magnet:?xt=urn:btih:48C9D0A367E029A105029BBCCF0B78CB9F17B7FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +523,7 @@ Tosca - Tlapa - The Odeon Remixes (2013) [FLAC|Lossless|WEB-DL]<Downtempo, Leftf
 ```bash
 magnet:?xt=urn:btih:B5255F6CFB01189EB5AB8854B68C76AD48DFB451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +557,7 @@ VA - Fashion Collection - The Colors of Lounge (2014) [MP3|320 кб/с]<Chillout
 ```bash
 magnet:?xt=urn:btih:3DE0860FE74AA625BC5622D5B16A1A27E95ACD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +591,7 @@ White Lung - Deep Fantasy (2014) [MP3|320 кб/с]<Punk Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:FCD5D0C8C82274064F77080C0D43C642D40934DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CE1F72A0E33BD532EA17AE979C3B3C9CE892A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +651,7 @@ VA - Global Trance Russia (Compiled & Mixed By Ex-Driver) (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:A445B073045A58A2270F049DB4B2FAFEE5ABA396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF712D2EC501B70C363C4EB22910E5DDCFAEF325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +710,7 @@ VA - Best of Chill Lounge and Easy Listening (2014) [MP3|320 кб/с]<Chillout, 
 ```bash
 magnet:?xt=urn:btih:7223820B3632C26C855D1A51B66E0FE482D69089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +744,7 @@ VA - In Da Club Vol.80 (2014) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:99C46549DF3DF9C02939D62DF5E66D6AE20294C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +771,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1D676FF710E6E39E11B943A8DAA605F27BBCB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -821,8 +796,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

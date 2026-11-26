@@ -22,8 +22,7 @@ A4 - Assassin's Blade - The Demented Force(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:54EAA49E2DEC69DC522740842889ACEFE8A3DC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 - Confessor - The Secret(   Читать дальше...   )Жанр: Thrash,
 ```bash
 magnet:?xt=urn:btih:A2ADBDBDC9F1DCF71A974BD381AB5116B6D18BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dark Sarah — финская симфо-метал группа, созданн
 ```bash
 magnet:?xt=urn:btih:C204351EE67680F5559F4D08EAF1CAA0F4B32D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

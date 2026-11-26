@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:C1509443E89DA6414F6FD58159C5247425BDF285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88EBDAC0D44ED396BA77E7DA8E49A68ED10C82CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Elaiya Iswera Lallan | Этическое хакерство и обеспече
 ```bash
 magnet:?xt=urn:btih:2A6C29F674BA809008EE112014332B64AD420505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

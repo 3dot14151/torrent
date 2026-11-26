@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1F7529B9550B270474F9A4998D6CFC9C7F0448F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Metagalaxy 17 (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:FDE787B772B9798F814F7CAF408AEC2138EA37D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ N/AЖанр: NeoTranceПродолжительность: 01:35:08
 ```bash
 magnet:?xt=urn:btih:811E35A52F2285EBDD00575FA7217204F516C371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Zero Absolu - Automn (2012) [MP3|320 кб/с]<post-rock>
 ```bash
 magnet:?xt=urn:btih:5C1231E5852E1D8DB37C6E04722BD9858407AB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Soul of Ibiza Volume 51 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:B3074BEDBA2CEAF52AA81FD49D9A01BB5B49B951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ VA - Adventure Trance Vol 1 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F39BC265A95EF8F2AC72EB6051FE81F9722F9CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Armin Van Buuren - A State Of Trance 631 (2013) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:99D102B594D6C5C859420382B72DA09F7E3667D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8F0F9F3A53528304F6445435D983EA11B2C341F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ Tsima - Juniper (2013) [MP3|320 кб/с]<Post Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:EBB506B276FEFC4BF5515AC091AEC57D04B5286E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DEA1DC1D824D6055ACE5A414C81DDCB3B932B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ Sombres Forets - La Mort du Soleil (2013) [MP3|320 кб/с]<Atmospheric Black Me
 ```bash
 magnet:?xt=urn:btih:105026DA098DFDF7D2FAE54943BDC62AFDC6106A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ Abitare  популярный, итальянский журнал о совре
 ```bash
 magnet:?xt=urn:btih:28F40C15D027077C0EE67934723ECF897C67ADEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BCA15EACC0AD2C8F0096D3E35FFE9FD48B875F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ Lost In Kiev - Zero Absolu - Split EP (2013) [MP3|320 кб/с]<post-rock>
 ```bash
 magnet:?xt=urn:btih:8EF1DFE18CEB37D3C87D9C1FCA6548C4BAA9F3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ VA - 15 Top Trance Hits 2013.09 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:FC571E758C0EF540B637B65BAC536D6DA21A1F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C89F15AC9A8FC54B81EBA1C486B6A7748FA28A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ Total Science – See Your Face EP (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:98608BB5EDA32E8F6E2CB30F806352BECC1B1975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ VA - 10 Years Armada: 2011 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:B52E48A86DD90A3F4231447B81577B82897A7DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F060D77949706FEF6BAADCEDAB8ED317914F65AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11F2B87D54C25DC4757D5434947BBBE8906C4E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AFF24CFE97CE43CBD6F1CF052996B7EEED2BAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7F22E5839F75E73A63FB5F22BB1D5250B2E66BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +661,7 @@ bvdub & Loscil - Erebus (2013) [MP3|320 кб/с]<Ambient, Drone, Experimental>
 ```bash
 magnet:?xt=urn:btih:4B681309E37336DE688C72D7A22B783FC9A03DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ VA - USA Top 40 Singles Chart (21-09-2013) (2013) [MP3|~245 кб/с (V0)]<Pop, D
 ```bash
 magnet:?xt=urn:btih:5A597496C3948A0CB204D4FAD6359C89986FA18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6665EFCB455D409E597CED034B5A62A0397C97FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ VA - Vocal Trance Collection Vol. 104 (2013) [MP3|320 кб/с]<Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:218210AA5BB538B2085B40AC35EB48ADCA687F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

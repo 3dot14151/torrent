@@ -22,8 +22,7 @@ Al Barton - Precious (1991) [FLAC|Lossless|image + .cue] <Pop-Rock ,  Soft Rock>
 ```bash
 magnet:?xt=urn:btih:DC18FB7EE4567407D7D9274A69615F7F38C9E205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Rolling Stones - Honk (2019) Deluxe Edition, Compilation [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:760038194EB3393E1554E647D168CC543F3C51E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Rolling Stones - Honk (2019) Deluxe [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:011FBB0DB218A37252125F11016057942F7EBA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

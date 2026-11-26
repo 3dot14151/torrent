@@ -19,8 +19,7 @@ Bendy and the Dark Revival - это хоррор-игра на выживани�
 ```bash
 magnet:?xt=urn:btih:83971873B0FF027D5C18491B8264842CF33D6877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

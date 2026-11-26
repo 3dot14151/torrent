@@ -23,8 +23,7 @@ Jaki Byard - Out Front! (1994) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:59DE6B7888076A66A8182696AC4A3273AB2D9ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AFDF386CA7E2A1254F93A994E3A35AFBD114070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ The Pryner - Yestercade (2015) [FLAC|Lossless|WEB-DL]<Idm, Ambient, Synth techno
 ```bash
 magnet:?xt=urn:btih:6857A54E04EB70075CB81E0C1AFE740CD84EAE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F05B5EA0547CBDF785A41236588D02B37C5CE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8F742333A070D99724F23A517831A3F5DF4014A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A6E3BFA6EB985ADED43EE88F69C4E55AEFC1715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C06B91515E7DFF203BDAE25C2A57D0C68B793DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F0AC4E21AF001BD9F5070B650B6799F7745AA36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ DJ Nike Twist - TranceWave 107 @ GTI Radio (05.02.2015) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:8477DD93BBF67E23B6A43EFA497702F93AE39FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D953BB09780C4F6114AF9C28E8725B048591D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Min-Y-Llan - The Aquarian (2013) EP [FLAC|Lossless|WEB-DL]<Ambient, Breakbeat, I
 ```bash
 magnet:?xt=urn:btih:CFF04F48624EEE829579EA7AF56C9AADA62A6C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Kazumi Watanabe - Resonance Vox (1993) [APE|Lossless]<Jazz, Jazz Fusion>
 ```bash
 magnet:?xt=urn:btih:59D767731D077F0A8DD1DAC4A65FCABC20A6B256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C23D9120C4AED498A436A2F023D5941FCD041404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF197D56BA642B102335453F5A134A991A351C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Coph`antae Tryr - Ahtan/Khadan (2015) [FLAC|Lossless|WEB-DL]<Ambient, Dark Ambie
 ```bash
 magnet:?xt=urn:btih:80F7B0A0B5DEBAED1E6534BA59BE240C767FC0D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Najee - The Morning After: A Musical Love Journey (2013) [FLAC|Lossless]<Smooth 
 ```bash
 magnet:?xt=urn:btih:08ADBC032107EAA70E9210619170F06A92C1933B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Masada - Alef (1994) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
 ```bash
 magnet:?xt=urn:btih:D3CBC2683B960FF5E7BA21DEADEB4FC874D5CE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F67BB29BEC0D58944947336F9F90DE90588F6E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Charlie Parker - Bird On 52Nd Street (1994) [FLAC|Lossless]<Jazz, Bop>
 ```bash
 magnet:?xt=urn:btih:9959FD2C89A2F634D5BB0B737B79246225495611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ This Ain't Bristol - Selections (2015) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:15F20A25756B0581A284B83CFC2E6EA2617BF574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95DF2384B32CBEABEC6D33C39B96C0056959422F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:067AC5D7C22E5A56541A2EE9568113659DAEDDDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ VA - Extra Lounge (episode 4) (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:5B343F7743A5D8B1301076F26E347CA42D99D421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C7C77B081CDB5355E32B965890FD38CA6BC97FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

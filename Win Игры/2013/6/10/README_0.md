@@ -19,8 +19,7 @@ House of 1000 Doors 3: Serpent Flame Collector's Edition / 1000 дверей д�
 ```bash
 magnet:?xt=urn:btih:1EF58B9C9FA9EE36424E0587E513F30ACEFF5514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Angry Birds Seasons (2011) [En] (3.3.0) License
 ```bash
 magnet:?xt=urn:btih:EA5E35BEDC42DD6D5FFC8B99B9425E29C71F2314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

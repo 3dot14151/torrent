@@ -22,8 +22,7 @@ Lynyrd Skynyrd - Last of a Dyin' Breed (2012) [FLAC 2.0 24/192|image|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:FF22B9BEB60AFD89E76E5C081B92F42347F835D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

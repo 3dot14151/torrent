@@ -20,8 +20,7 @@ Jeff Carlson | The OS X Mountain Lion Pocket Guide [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:ACE655B1A15F5964EAB51DD76260E306FCA0E869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ V.Jokk | Обработка текста и использование MS Office
 ```bash
 magnet:?xt=urn:btih:B1687561E1B5E51EBBA3DC3948A536C40128F1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA8575B4577E3EF9F96000FA008F30D781A94AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

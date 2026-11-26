@@ -19,8 +19,7 @@ Assassin’s Creed Black Flag Resynced - это ремейк культовой 
 ```bash
 magnet:?xt=urn:btih:8813C9CCA1FEC1F6E430961E86FBFCEEABDAB0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assassin’s Creed Black Flag Resynced - это ремейк культовой 
 ```bash
 magnet:?xt=urn:btih:FA1571FDAF7D6A0D1A4ACC2D81E08F752E3F39B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:065026C75C6E9A13B9678D27BDC97AC27817D10D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

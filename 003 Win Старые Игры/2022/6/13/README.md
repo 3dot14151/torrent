@@ -19,8 +19,7 @@ Machiavelli the Prince (1995) [En] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:CA3FFCFDEF46C046FE374ED818B471DFF8F3971E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

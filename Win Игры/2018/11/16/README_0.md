@@ -19,8 +19,7 @@ Enchanted Kingdom 4: Fiend of Darkness / Зачарованное королев
 ```bash
 magnet:?xt=urn:btih:3E185A80E91F80FB7306D064CED6CA2F9667CEF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

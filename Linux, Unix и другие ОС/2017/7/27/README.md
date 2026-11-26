@@ -21,8 +21,7 @@ openSUSE-Tumbleweed 20170725 [x86-64] 3xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:B0E89B12FDD0B2A400521A3C73CE3CA709FD3400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

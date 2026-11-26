@@ -19,8 +19,7 @@ SRWare Iron 147.0.7750.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E6AF19FA5362A41361A146E54C2959E44AB2A25E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ GetWindowText - маленькая и портативная программа,
 ```bash
 magnet:?xt=urn:btih:B613B656E865B79F83EE106CE78867CCAFD841F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Layout Indicator 3.3.0.24424 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:24EF56452F8EA36AD59A7BA25A17D2E49B7CACFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ AnyDesk 9.7.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:074901153207C9F149A5F8BFC5ED147794FCE734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7B99D07E6223F45B04403F9B214CFA06DC55562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:7C242393E4CC0219A69A2E9089CDD0E93340B9DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ FileZilla Pro управляет всеми вашими передачами, �
 ```bash
 magnet:?xt=urn:btih:3682FB95247C0AE45F3BA6470B0733D78D42D0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Syncovery Premium 11.15.2.202 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7DBFD882212B923D543839CFB72340FA67E42D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ RAM Saver Pro выполнит следующие действия:
 ```bash
 magnet:?xt=urn:btih:1406AAC2BA1AD0AF4298E87AF7291C8AB2FB9506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ WinArchiver — это мощная утилита для работы с арх
 ```bash
 magnet:?xt=urn:btih:49A9788A8EDDAB755ACA9938C099810BAA7F321E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ SoftPerfect WiFi Guard - необходимый инструмент для вс
 ```bash
 magnet:?xt=urn:btih:D145B2C20BDC33505C249CD6DD30BE2EC6374C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ QILING Disk Master — это комплексный набор инструме
 ```bash
 magnet:?xt=urn:btih:0A797FF622778068AA8D36980D8B79C5E835E9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Mullvad Browser основан на движке Firefox ESR. Содержит �
 ```bash
 magnet:?xt=urn:btih:BFA2933BF5C655C941FD1F8FF1B9602E79676BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

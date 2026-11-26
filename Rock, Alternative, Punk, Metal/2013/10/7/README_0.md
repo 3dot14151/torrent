@@ -28,8 +28,7 @@ Escapist - Hidden Memories (2013) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:2FBDDE763A0D59A44984CA81408439837E2E8AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Wintercult - The Last Winter (2013) [MP3|~240 кб/с]<Atmospheric Black Metal, 
 ```bash
 magnet:?xt=urn:btih:AC6D5955F3A95BFE5A54B2AC2E9A6567629E169D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Andrew Belle - Black Bear (2013) [MP3|320 кб/с]<Indie Rock / Pop>
 ```bash
 magnet:?xt=urn:btih:E08367AEA4B0ABD87148ECDB2F6DD8DAF36A9D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ MGMT - MGMT (2013) [MP3|320 кб/с]<Indie Rock / Electronic / Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:54EAFBCB1F98FDCAF6F3237A4FD164D08B2489F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Panic! At The Disco - Too Weird To Live, Too Rare To Die! (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:1E7FE9635C65EBF7758CA029A243FFD90E559A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C2F540718522C6713A8885917C41A8D0C37154D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

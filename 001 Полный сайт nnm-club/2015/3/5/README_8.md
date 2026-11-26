@@ -23,8 +23,7 @@ Noam Elron - Fluctuation (2011) [FLAC|Lossless]<Fusion>
 ```bash
 magnet:?xt=urn:btih:01F49413FEB00B4DA664E0D1E0D646D9A3EF8ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Nomo - Invisible Cities (2009) [FLAC|Lossless]<Funk, Afro-Beat, Experimental>
 ```bash
 magnet:?xt=urn:btih:6B759BDD27C5851BC4C0321E25841A7FEB71E11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Nosaj Thing - Cold Stares (Single) (2015) [FLAC|Lossless|WEB-DL]<Abstract, Downt
 ```bash
 magnet:?xt=urn:btih:2723C7F317939F2FC4583E3543C783E3F9146A20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Krakota – Ice Hands / Ghosts (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:6929B81104A6DC7AFF2A366BCC2A368901F2C2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Tim Tetlow - Beauty Walks A Razor's Edge (2001) [FLAC|Lossless]<Leftfield, IDM, 
 ```bash
 magnet:?xt=urn:btih:500CE34AC88106FD83FF49172106A6FFAD95D7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ DRS – The View / Count To Ten (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:28633E2DD760835F076274C262569B413985D57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Furia - Nocel (2014) [MP3|320 кб/с]<Post Black Metal, Experimental Black Meta
 ```bash
 magnet:?xt=urn:btih:E455DCBC1D9E673DCB0310561FAAE151775201BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Lee Morgan - Sonic Boom (2012) [FLAC|Lossless]<Jazz, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:835A6AC24910331D18934F60D2DA434A9CB5336D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Professor Kazkaz - Algorhythms (2007) [FLAC|Lossless]<IDM, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:69D99C0C918371AF50C655ECF8E64D16FF0C6F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Dag Rosenqvist - Fall Into Fire (2014) [FLAC|Lossless|WEB-DL]<Experimental, Abst
 ```bash
 magnet:?xt=urn:btih:129E4D5087D1B8F02651B2A02FA855F7B68BD939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Geskia! - Alias (2015) [FLAC|Lossless|WEB-DL]<IDM, Glitch, Experimental>
 ```bash
 magnet:?xt=urn:btih:289F5ECA133AA4418435F2F820D4828BDD05C471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ VA - Glamorous Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:74A127AB1CFE8CD309770937221216AA0A444669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Mind Technologies Vol. 4 (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:C220F5062CEF12C9B3F16C6209E29237B8BFCEEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ Dimitriy Pavlovskiy's PowerSquad - Shrine Of The Wanderer (2015) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:F31391205C98ADBD141028BBCCEA5295CD2BF347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ Dakotafish - Many Moons (2011) [MP3|320 кб/с]<Аlternative/ Blues/ Funk/ Indi
 ```bash
 magnet:?xt=urn:btih:2F64774A06A06CF508BA6A6B6CE8D2577371EDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ VA - Less Stress Chill Out (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:0BE561D0FF88C7F27FDF4E94DE7D382D8C43BA42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +502,7 @@ VA - Poitiers Wine Bar (Smooth Jazz Moods and Atmospheres) (2015) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:14DC16CDAF88017AB8ACD9466EBE5C5533E4BD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0B422C314D0CD86ACA398DD02865AB0C18340A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +556,7 @@ Rixton - Let The Road (2015) Deluxe Edition [MP3|320 кб/с]<Pop, R&B>
 ```bash
 magnet:?xt=urn:btih:85CC35E85703DB7682348DD904840846FFF76549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E07E4F8C4020EF6AC8419C0AB5DA30A2B6C92D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5C0F34FE7FA726658DB0F4A42F2AF8456AA5664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:580BC890508046DAAC53116E4A6D93F26AF8E7FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0082AABF697817C255738358406B5B538E0BA152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7215B102A5A2F8043291A0A6ED02C036D0D61D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ Joni James - Dream A Little Dream Of Me (2015) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:0F63417C7DF3A11431A23B6EAA7D6BED88B06999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

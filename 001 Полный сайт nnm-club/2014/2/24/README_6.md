@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0521F0D77C335F66DD36E0F431839D2F39A73601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Microsoft Office 2007 12.0.6554.5001 3in1 Portable (v.1.20) [Ru]
 ```bash
 magnet:?xt=urn:btih:2E85BE9255E9F473D2B9A24C1C7D290E824F498A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Portal Dilogy / Дилогия Portal (2007-2011) [Ru/En] Repack R.G. Механ
 ```bash
 magnet:?xt=urn:btih:DDD9A70DF4EA64CF0DB7423050134B49954488C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Need For Speed: Rivals (2013) [Ru] (1.4.0.0) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:72AA6A7A74BB7CBDBF54094D6282F89C35B33CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Adobe Photoshop CC (v14.2.1) RUS/ENG Update 4
 ```bash
 magnet:?xt=urn:btih:4BE6960F067ED40A9FC45B7017491C07736B3545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Microsoft Windows 7 SP1-u with IE11 (2 x 3in1) - DG Win&Soft 2014.02 (en-US, ru-
 ```bash
 magnet:?xt=urn:btih:6B59BC2939D4FEAF3217FD03BE16A58BC11B63DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

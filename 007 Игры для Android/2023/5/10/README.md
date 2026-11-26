@@ -19,8 +19,7 @@ Infinity Loop - это увлекательный способ повысить 
 ```bash
 magnet:?xt=urn:btih:2B2832BB75AC21B79BF5A83FE92C2935196CD702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

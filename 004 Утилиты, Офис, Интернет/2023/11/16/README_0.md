@@ -19,8 +19,7 @@ Secure-PDF поможет зашифровать свои собственные
 ```bash
 magnet:?xt=urn:btih:5EB1804C860994E8808F2E0989D7231E7C0C88EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PDF Imager Pro (Repack & Portable) -  простая и быстрая прог�
 ```bash
 magnet:?xt=urn:btih:DD8F3464B35CB9E7F8A23789B67DB0EC0B06825A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Synchredible - синхронизирует, копирует и сохраня�
 ```bash
 magnet:?xt=urn:btih:7CC62166059305F69CA4D98C1276F7556117E4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ PDF Conversa - легкий и быстрый в использовании оф
 ```bash
 magnet:?xt=urn:btih:CC22FB14CFE580DFE8027F9115EA7481C565D87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ ASCOMP Text-R Professional - компактная и быстрая програ
 ```bash
 magnet:?xt=urn:btih:B30A6548EE8F5B3A9FB58253D0421546B1411373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ F-Rename – программа для быстрого и простого пе
 ```bash
 magnet:?xt=urn:btih:6FDA455826984C22D8B5E21997448CB76C7A6EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ ASCOMP Secure Eraser — программа для полного удалени
 ```bash
 magnet:?xt=urn:btih:0E924D9DD0D3F8E4EEF87B3F1177CC1AD7FDE3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ BackUp Maker может создать резервную копию любой 
 ```bash
 magnet:?xt=urn:btih:50541E92904EF464EB8B166BF8FB7E165D1DCF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

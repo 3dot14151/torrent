@@ -25,8 +25,7 @@ No Witness - 7 song (2014) [MP3|320 кб/с]<Powerviolence, Hardcore>
 ```bash
 magnet:?xt=urn:btih:749C5A032E2A51FAC527E317D068D4916EA0BB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Dark Circles - MMXIV (2014) [MP3|320 кб/с]<Hardcore, Сrust>
 ```bash
 magnet:?xt=urn:btih:CF61209D938F7C447827830C4F97106681025521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Diices - Nine Hours (2014) [MP3|320 кб/с] EP <Post Rock, Post Metal, Instrume
 ```bash
 magnet:?xt=urn:btih:91384ECD6ED1CF352E527FAA61E8A67F0E9576AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Death Mercedes - Sans Eclat (2014) [MP3|320 кб/с]<Screamo, Hardcore, Crust>
 ```bash
 magnet:?xt=urn:btih:B10436324E8B989E13DFBC8C89C57EC8C2EA258B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ VA - Black Hole Radio June (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:78DA9E773FADF14CD00A3DE1A6CD229F5D449C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B055124AA3298698766B3421F494F3D96BA01AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Claus Sivert Thomsen - A Man & His Blues (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:FF8E0E797B999F38CDB2490C3E621470AB743D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ Squazoid - Wash Your Brain (2012) [FLAC|Lossless|WEB-DL]<Psychill, Downtempo, Ps
 ```bash
 magnet:?xt=urn:btih:6F8BB16BC92384A14F4FF3F726775ADB52084274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ Side Liner & Kerensa Stephens - Dreamer (The Remixes) (2014) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:67E48F32C25C701A5FF6B602EB09500F36202D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ Triptone - Hope (2014) [FLAC|Lossless|WEB-DL]<Downtempo, Indie, Trip-Hop, Lounge
 ```bash
 magnet:?xt=urn:btih:3215831A90BDEBFD7E6CE8EA5B55F8E25AF68F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ Sectu - Nefarious (2014) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:591642E7BE960C95B912668663CF9F5F75AAD133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ Ace Diamond - Baddest Gunslingin' Man (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4D62010CF1C73AA547EE455B077018F2D4579D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4318DE4FA01F9A2E8A7D0E387856CC1795FE4EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DEE9824AF30E74117C15577150F31F23CE3FCC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A06912DABDB96900DFB131E635630E87228111A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ Stella Bass - Too Darn Hot (2014) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:AAF70B523478C68DEE32D30B5231E6392707B224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +544,7 @@ VA - Poolside Lounge (Funky Chill Breaks) (2014) [MP3|320 кб/с]<Chill Out, Br
 ```bash
 magnet:?xt=urn:btih:ACC0BB4AF9F9FBF3AF788E3E095B051D4FBC5FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +578,7 @@ Gary Maguire - INside (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8490C8E0E98ADF04ED8DE06A0E40C84C3DF69ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0365360BA963F092BE6BA1E0A2CE39EA2B6016B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +637,7 @@ Illdisposed - With the Lost Souls on Our Side (2014) Limited Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:DFF13254E1C8E635B1EA39E445C58086BCB47D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +671,7 @@ VA - Ibiza Beats Chillhouse Edition 2 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:88EF9B5B3EBD9DEC7894C7E64CB7C74CD7781C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +696,7 @@ HyperSnap - это инструмент для захвата изображен
 ```bash
 magnet:?xt=urn:btih:F31A5E1275A0ECE45794DAB99E1024E7DC3EF656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:601F9A826D05278DD49D3415C39E8106CB6EE60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +749,7 @@ Erissoma - Organic And Synthetic (2010) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, G
 ```bash
 magnet:?xt=urn:btih:4BB87A5C5124BFF9C9C3B56910430F75934D3279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -808,8 +783,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C74D290194BDE72C7C48F3FB52FBD42D41997FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

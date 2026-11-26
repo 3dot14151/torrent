@@ -18,8 +18,7 @@ Far Cry 4 Patch (2014) (1.6.0) Repack
 ```bash
 magnet:?xt=urn:btih:02BDC069427694D70F3021525C40792DA2859A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Windows 7 SP1 RUS-ENG x86-x64 -18in1- Activated v3 (AIO)
 ```bash
 magnet:?xt=urn:btih:D0BA980C52CFD42123EF9DEA627C5FDE08ACE88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

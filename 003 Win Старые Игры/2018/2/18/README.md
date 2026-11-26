@@ -19,8 +19,7 @@ Athens 2004 - официальная игра XXVIII летних Олимпий
 ```bash
 magnet:?xt=urn:btih:BEE42EBAE58AF659077CEAFC5A872C912036547D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RTL Biathlon 2008 / Биатлон 2008 (2007) [Ru] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:C925408C64157FC3D1327C9E6C8611DC6C6943E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Screamer 4x4 (2000) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1D7F03E7E5B06CA72360B86783C748A5FD8E9F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

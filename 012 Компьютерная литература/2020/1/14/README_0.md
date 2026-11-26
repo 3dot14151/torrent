@@ -20,8 +20,7 @@ Apress | Книги по Blender [4 книги] (2009-2020) [PDF, EPUB] [En]
 ```bash
 magnet:?xt=urn:btih:D8BB82C6C1B46784C4F0287A74220F9767AEEA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1635DC63E3BD8BCCFC23A29E23781F1DBB41F349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

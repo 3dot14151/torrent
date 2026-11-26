@@ -22,8 +22,7 @@ Faith No More - Angel Dust (1992) London [FLAC|Lossless|image + .cue] <Alt.Rock,
 ```bash
 magnet:?xt=urn:btih:943CDEE949197DE2B7658FFD3BA2C5F352955EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Lightbringer of Sweden - Rise of the Beast (2020) [MP3|320 Kbps] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:5F494DBE90889CD589FAB7DC62DA51EAE94825DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ U.D.O. and Das Musikkorps Der Bundeswehr - We Are One (2020) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:F891B4567FCCF9D4DD81761E071F2A2431F0EDBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ U.D.O. and Das Musikkorps Der Bundeswehr - We Are One (2020) [MP3|320 Kbps] <Hea
 ```bash
 magnet:?xt=urn:btih:FF7EF88DBBE64A5FA3B937FF1700E9F9F06EDB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

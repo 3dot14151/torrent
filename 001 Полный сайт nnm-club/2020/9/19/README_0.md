@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:796A1240D119D53728B68C9941182FB3345CEC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FA4BB8D466D169F00F47DFB9DAD895CC2700357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:705DD9E00A314F725655E65C7681420985D97C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ TwistedWave 24 [En]
 ```bash
 magnet:?xt=urn:btih:E15D2C2120B391C2B3346A0DD619061D2D5C037F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ TablePlus 3.9.1 [En]
 ```bash
 magnet:?xt=urn:btih:7C51FD5440F4A9219D6C1BE10790AFF4F619BA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8F1A62B53989FDAC8C6390459C9B1940F4F8111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Mildlife - Automatic (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Ro
 ```bash
 magnet:?xt=urn:btih:C919C0904060A5CCA2D288F593701651C915FB10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:EA3750A47A3A0900B1467C7A17C9EFB17A294516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ LaunchBar - функциональная замена Spotlight на Mac. Пос
 ```bash
 magnet:?xt=urn:btih:1EAC182345FCC66DCA4D4B07118821D63B30A7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ BlueHarvest - утилита, помогающая автоматизирова�
 ```bash
 magnet:?xt=urn:btih:87308150FA6D30E57FDF207B3C09786713267F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:5E62A44E59E4F974979C9AF146192F66C4A1EBE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ VA - German Top 100 Single Charts 18.09.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D3B1E26B9BA36C325828E64B020691DBFFE11448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Epica - The Quantum Enigma (B-Sides) (2020) [AAC|~337 Kbps]<Rock, Symphonic Rock
 ```bash
 magnet:?xt=urn:btih:5E5765907CC70DA434BBEA554B14AE883CA4F5D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:327D01869B77C7CBAC4CC6AF912238F1507DE04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ VA - Mixed Feelings: Love Rnb (2020) [MP3|320 Kbps] <R&B, Soul, Trip, Hop Soul>
 ```bash
 magnet:?xt=urn:btih:DD6DEEE7404F9829707A4760DA25D136DA6C0B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ VA - Black Hole Trance Music 09-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:73150825869B6543EF9371F85812221CD1F0A751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ VA - The Official UK Top 40 Singles Chart 18.09.2020 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:7F5FE175A4E7C06A6643DF08D170187D4EE7915E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ VA - Another Side Of Fancy, Megamix (2020) [AAC|~350 Kbps]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:886DB709EBC7D80860437C0F6E21E9BE075F72E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Earth Wind & Fire - September (2020) The Eric Kupper Remixes [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:D9B1E7C7DD93FA8C86FFA51883DAA1F739D62314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B35A6550E5A38F67502BBBAC891C2486ED602C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FBCFEB4DB3E5DFF5ABA3A84E666F705CF7C2152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Super Vintage - Shining Light (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:3EAD76BD4D62CF13971BD287548ABF353DFBB1BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53C93B905D08869CB8BA89DE865B166657875B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ Armor for Sleep - What to Do When You Are Dead (2005) 15th Anniversary, 2020, Eq
 ```bash
 magnet:?xt=urn:btih:2945CE2870565AF69ADA4FDDEFDC0DDF7CB573D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Theine 3.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BA94CE7FA81BDF8CF387E8D20FD4CBCB97EFB876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:E925D65A515CFD48277AC4DC90D3E08077680336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

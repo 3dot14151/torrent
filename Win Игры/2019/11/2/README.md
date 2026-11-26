@@ -19,8 +19,7 @@ Strategic Mind: The Pacific - пошаговая стратегия, событ�
 ```bash
 magnet:?xt=urn:btih:39A85FB63D2C4CF6FF1CBB238A9295843740AA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

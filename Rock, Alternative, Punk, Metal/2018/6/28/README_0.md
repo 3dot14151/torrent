@@ -22,8 +22,7 @@ Gipsy Love - Gipsy Love (1971) Reissue, 2011, Genschman Soundroom [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:FE5DD4D8477D5EA287368FA9CA94A230C4702AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mono Inc. - Symphonies Of Pain: Hits And Rarities (2017) [MP3|320 Kbps] <Gothic 
 ```bash
 magnet:?xt=urn:btih:00C07DBB3496BB35997FEC78B4AEB0D0B9115DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bullet for My Valentine - Gravity (2018) [MP3|320 Kbps] <Melodic Metalcore, Alte
 ```bash
 magnet:?xt=urn:btih:F4252D3BC5839FB760D11A2CB685C789DA48EA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Gorillaz - The Now Now (2018) [MP3|320 Kbps] <Alternative Rock, Hip-Hop, Electro
 ```bash
 magnet:?xt=urn:btih:7A82E9D1ACA9BB078B97C31B821959112182EB25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

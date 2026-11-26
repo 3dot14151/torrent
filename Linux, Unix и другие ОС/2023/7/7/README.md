@@ -20,8 +20,7 @@ Ubuntu*Pack 20.04 MATE (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:4D4740446D3A15490C24EF93638999F8C13BF071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu*Pack 20.04 (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:4D7A5C7C629EDE6FF5253A5E10B9417203ECCF78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:88B12F04F91AB64BD712D1B67D022713BD3DA0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1562D6956EF3AE0A78D21AF1EC76A11A0154EC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Ubuntu*Pack 20.04 Unity (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:13C8A43F39B82031978C40166A716E3CF1EE400B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:BBF0D02C96E820BCDF8675ED824B9535B3EAA8AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Ubuntu*Pack 20.04 LikeWin (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:D0B61A7C6B027DB6F46B8BE9F63E1D40D5B585FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Ubuntu*Pack 20.04 GNOME (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:9B5D53AE5EBD66D4BFEAA5FB42CE1FAB84B1F964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

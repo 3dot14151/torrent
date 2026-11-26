@@ -19,8 +19,7 @@ Delta Force: Task Force Dagger / Отряд Дельта: Операция "Ки
 ```bash
 magnet:?xt=urn:btih:C806AE28024C1907883187A83DB5C726207E071B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

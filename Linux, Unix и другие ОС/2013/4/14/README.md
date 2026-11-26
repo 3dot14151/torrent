@@ -21,8 +21,7 @@ PCLinuxOS 2013.04 KDE FullMonty [i586] (1xDVD)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

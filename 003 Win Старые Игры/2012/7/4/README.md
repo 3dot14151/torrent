@@ -19,8 +19,7 @@ Moto Racer 2 [En] (RePack) 1998 | WinterKiss
 ```bash
 magnet:?xt=urn:btih:8D38E365752F525BB11E2EE26F8F284679AC7292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

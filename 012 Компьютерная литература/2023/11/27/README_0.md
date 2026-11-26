@@ -19,8 +19,7 @@ Mickael Maison, Kate Stanley | Kafka Connect (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:724F450A881E9CAFD984BDC49EFE81926C01BEF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brij Kishore Pandey, Emily Ro Schoof | Building ETL Pipelines with Python (2023)
 ```bash
 magnet:?xt=urn:btih:DF2B5B69AEFC653CBEE311F6BAB9692B2CEAE357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

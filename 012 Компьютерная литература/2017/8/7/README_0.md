@@ -20,8 +20,7 @@ Wiley | Humble Book Bundle: Cybersecurity [14 книг + доп. материа�
 ```bash
 magnet:?xt=urn:btih:56812AD13C8FD9E9BEE992B983BFC61A6B3F973D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

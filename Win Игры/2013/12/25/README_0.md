@@ -21,8 +21,7 @@ Urban Trial Freestyle - игровая новинка, которая предс
 ```bash
 magnet:?xt=urn:btih:125DE80CDAA3DE8586C195C24185E57A458066DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Rise of the Triad является римейком шутера от перво
 ```bash
 magnet:?xt=urn:btih:86764CD824427A5019EAA4448A409F94FC750254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

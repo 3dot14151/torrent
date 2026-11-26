@@ -21,8 +21,7 @@ VA - Шансон На Выходной (2016) [MP3|256 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:B4E9F8B2256A6893E7F5FBF73AA1504E9300B8BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A67E59A85CE005D2D0071368FED1B1C9A3AEBAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Блатной шансон на любимой волне. Версия 3 
 ```bash
 magnet:?xt=urn:btih:2C5480E425E3E6FD1DBD3AA76216E130B316864F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Осенняя дискотека по-русски. Сборник 6 (2016
 ```bash
 magnet:?xt=urn:btih:86D8E68149A33487584B242D06D5C9C4D1CB143F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Come On And Touch Me: Smooth Chill Out Lounge For Lovers (2016) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:641695032C6A16ACAAAB98DBD4D7EA1DCF60025A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AF86279B1AC82F465A5FFEDA3F781E62B8151A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C86D7366C18A6ED2F07AD0BB75E772BC3BDC6963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Blind Stare - Symphony of Delusions (2005) [WavPack|Lossless|image + .cue] <Melo
 ```bash
 magnet:?xt=urn:btih:57AC5825C34729B6DE03BC2EB3673034521A9C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92603039F2B6D31E0BFA3B1ACFE869D2CBCF02DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64DDB94B540B30BBCE0D67D029053272045B0F42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ VA - Гуляночка блатного радио Шансон. Версия 6
 ```bash
 magnet:?xt=urn:btih:674816819BE44B03FA34BDACA36A6D6B6D804044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - Шансон 69 (2016) [MP3|256-320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:C1008531D545F64D20C687C8983B1DB2BBE5768E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ VA - Душевная Музыка Шансона. Давай поговорим
 ```bash
 magnet:?xt=urn:btih:8FCDDBE3B687C39A14EC57FB9ED816991B2D2098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Business Templates представляет собой прекрасный ко
 ```bash
 magnet:?xt=urn:btih:709D026186A34FA9C62E2EDBEC2AA13A11570240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ VA - Зимний снегопад хитов (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6F8E4B9336F7A64F1E5BDE965A9C69DA9E4A3F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E10981D57BD4592740CD835E3068C1C804A99B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Ann Joy - Love Dance (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:5D609D887BE8F5BCAC407CC587516A0811098751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA284A3BB2FDB6E417EB2BD1CBE41E53A030AA30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:745635A2CB25690B23856DD2384A677A08AD0805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ Eschaton - Universe 2 (2016) [MP3|320 Kbps] <Electronic, Drum & Bass, Deep Techn
 ```bash
 magnet:?xt=urn:btih:A103247971629A81980E5EE77815D9A1C7CA5DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF383A74A2F55CA4E30E74A937A57B0F7929B7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ Luminar является первым в мире редактором фото�
 ```bash
 magnet:?xt=urn:btih:D01034C731960BAB87CE0A98B9B6F55A3D565FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ World’s End Girlfriend - Last Waltz (2016) [FLAC|Lossless|WEB-DL|tracks] <Elec
 ```bash
 magnet:?xt=urn:btih:D8E1292EF6C1638052E70BCAC4292AA9C259D682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:008834566317329A71A8EDE9B4451DE1F9B6FF43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Espresso соединяет в себе текстовый редактор с �
 ```bash
 magnet:?xt=urn:btih:1EA83FA7D71E90381A00442624DD28A84F7C8749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35BB6B0851F353E791C8A5A147F0256F763CDA34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

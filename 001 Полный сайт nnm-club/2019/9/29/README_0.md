@@ -21,8 +21,7 @@ Geekbench 5 предлагает обновленный интерфейс и р
 ```bash
 magnet:?xt=urn:btih:48F72A4D436A13876666DAA154F41580CAA2BC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Leaf проще как по функциям, так и по внешнему в
 ```bash
 magnet:?xt=urn:btih:F4AD79A91736D388EB3DEB39DF5FF514108B4348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Elasty - панель инструментов для того, чтобы на�
 ```bash
 magnet:?xt=urn:btih:84A7919C269D6C48EDFC08A0987342D3E29A2FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Rodriguez Jr. - Totally Mobilee - Rodriguez Jr. Collection, Vol. 1-2 (2013-2015)
 ```bash
 magnet:?xt=urn:btih:225EA0866DE4BA756A02B5E8D95A583D455CD8C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4913594A3CFBCB757D0D9AC2720D5D1ED4913A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Alfred Powerpack - Лаунчер приложений для Mac OS X.
 ```bash
 magnet:?xt=urn:btih:43C3E2579BB0BEE8FDF6BC64FE3584443B7CD16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ DrawPad - это простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:82471BBFF7143D4631C237E238D43AA26FFB8996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Sharpen AI - это первое программное обеспечение �
 ```bash
 magnet:?xt=urn:btih:D77193830CE6F61FAF7B170B83ED44A64E29ECD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F613F1D548C514CB991356574ADCEE3DE9ABEA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Becky Hill - Get To Know (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, 
 ```bash
 magnet:?xt=urn:btih:2C60945EEE0123F1618C180D1D6CA761F3314FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Solarstone - ..--- (2018) [FLAC|Lossless|tracks + .cue] <Trance>
 ```bash
 magnet:?xt=urn:btih:74A8B69FD215DC4D5505EED953A3C4F396599832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ VA - Hedkandi: Summer House Set (2019) [MP3|320 Kbps] <House, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:F6A8FF5C6087F92DAFBCAE649922D4BAC9B9E6CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ VA - VII Vol. I (Mixed by Simon Patterson, Sean Tyas, John Askew & Will Atkinson
 ```bash
 magnet:?xt=urn:btih:C19711A404EDCFCE0561DDC1372B4CE859BE4D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61FBC2E58E4E3CD32A420A93C3584472E9CF9130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:240062CB413086ACDBBCD9717ACABCDC29E87CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Giuseppe Ottaviani - Evolver (The Extended Mixes) (2019) [MP3|320 Kbps] <Trance,
 ```bash
 magnet:?xt=urn:btih:380A6127C358FD6579C477AB0AF99681D332E907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ MacPilot 11 v11.0 [En]
 ```bash
 magnet:?xt=urn:btih:2BAA138180D45773B56F31386BD1CE24B0829290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ iNet показывает устройства, подключенные к ва
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ VA - Hypnotic Of Peace: CHillout Empire (2019) [MP3|320 Kbps] <Chillout, Ambient
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69CB9F79249DEC633999DFB74A96BC886E27CBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Schiller - Die Einlassmusik 15 (2019) [FLAC|Lossless|image + .cue] <Ambient>
 ```bash
 magnet:?xt=urn:btih:4C4BD7ECBD7F4EBC8E0296441C6424C9CB397831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D35C29D7012614A3F1DFA86887D70D29AAC7C8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63988B78293CD28405AB29FDC88F55F7CD27C5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29C1FF6EC204989AD9F86458A848F8E946AF6314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ VA - Sunshine People (2019) [MP3|320 Kbps] <Dancehall, Reggae, Latin>
 ```bash
 magnet:?xt=urn:btih:2449F9FA5374F9F4FCC8A80C78B48F848153C33B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ Jump Desktop (RDP & VNC) - программа, которая делает до�
 ```bash
 magnet:?xt=urn:btih:E8D69DA241D9B373EB2610A93480B32D2AE3C8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

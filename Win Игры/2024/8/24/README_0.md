@@ -19,8 +19,7 @@ Lunar Glow Stellar Dance (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:87C3646F1ACC54C6C39C9B7D35065DDAAEF42985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Outlanders - градостроительный симулятор, в кото�
 ```bash
 magnet:?xt=urn:btih:72ADC32E3B089859A9C622B71C83A2A467D69C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Homeless – в этом настоящем психологическом уж�
 ```bash
 magnet:?xt=urn:btih:999DD55E1BAEE8E024E61F6E6104874BF286A6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Combat Mission: Battle for Normandy достоверно воссоздает о
 ```bash
 magnet:?xt=urn:btih:02444BBC2CAC04149FBBEBB1BF53F379B2BF1FBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dicefolk представляет собой тактическую игру в 
 ```bash
 magnet:?xt=urn:btih:0CEBE69359ACA1EDD109F54C916CE9C8635BE37B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Frontiers Reach – это аркадный и космический авиас
 ```bash
 magnet:?xt=urn:btih:E07E2ED805070D78E459E931EDD18A84A92779F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Super Antonio – что может быть лучше инновационно
 ```bash
 magnet:?xt=urn:btih:B2EAED190CD425366ABF3079C4D913AB92FE17AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chess King Обучение (https://learn.chessking.com/) - уникальны�
 ```bash
 magnet:?xt=urn:btih:514AE892EC74375C6A113178A55449E97B0E05E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

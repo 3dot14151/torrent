@@ -19,8 +19,7 @@ Amaranthine Voyage: The Tree of Life Collectors Edition / В поисках бе
 ```bash
 magnet:?xt=urn:btih:745C3E16C2F81429A6384B80493C41C1E8914C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Cargo! The Quest For Gravity / Эврика! [Ru/En/Multi9] (L) 2011 | PROPHET
 ```bash
 magnet:?xt=urn:btih:11F0194F83B37B43860D23264EEF6B70B392184A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Shoot Many Robots [Ru/En] (RePack/1.1.1.30747) 2012 | Audioslave
 ```bash
 magnet:?xt=urn:btih:9F879E239E8F0BD797158BA7CE3FA3DC44F7DE22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Poker Night at The Inventory [En] (P/1.0.0.1) 2010
 ```bash
 magnet:?xt=urn:btih:009720EC866FDE4520679AD78B99A5D6E25BC8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Ghostbusters: The Video Game [Ru/En] (RePack) 2009 l R.G. Games
 ```bash
 magnet:?xt=urn:btih:C5D0415390015F750F2084A3E57B89A757484EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Louisiana Adventure / Однажды в Луизиане [Ru] (RePack) 2013 | Se
 ```bash
 magnet:?xt=urn:btih:39A7061EBE0C3E0129C481B6309A6C644F75AF5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Gas Guzzlers — динамичные захватывающие гонки на
 ```bash
 magnet:?xt=urn:btih:B7711926F5413DD4124C74838F4AA8EDA38C5727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Dishonored: Death of the Outsider (2017) [Ru] (1.145.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3E9BBD15A9FAFF00F535C5B30AD0D0DB076852F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Windows 10 24in1 (x86/x64) + LTSC +/- LTSB by Eagle123 v12.2018 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8C864C0C112821DB1447386D93EBD13D2A0ED2E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA8FAAF3F65C548023F90574E5A00714843E763A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kириллица и латиница в разных папках.Формат:
 ```bash
 magnet:?xt=urn:btih:599A423B257A30DC035CB7B90311035BE2C44877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 10.2018 by OVGorskiy® 1DVD
 ```bash
 magnet:?xt=urn:btih:86AD5BC788174986E417E100445DB165E796ACAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dishonored 2 (2016) [Ru/En] (1.77.9/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:B1B2C7C9903606D41CDB8713B3651E6E973C54B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

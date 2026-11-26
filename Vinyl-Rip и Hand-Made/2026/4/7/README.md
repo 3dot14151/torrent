@@ -22,8 +22,7 @@ Doomed - немецкая метал-группа из Цвиккау, Сакс�
 ```bash
 magnet:?xt=urn:btih:075395DEA3D5AFFEEA30D3E4FA8455A180D433E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

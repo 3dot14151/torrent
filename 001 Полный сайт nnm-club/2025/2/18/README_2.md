@@ -18,8 +18,7 @@ Doom: Аннигиляция / Doom: Annihilation (2019) BDRip [H.264/1080p] [MV
 ```bash
 magnet:?xt=urn:btih:8DD3F5D70CDBA5CAC48072AC9034F9C04C014D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Diablo Антология (1996-2001) [Ru/En] (1.9b/1.0.1/1.11b) Unofficial
 ```bash
 magnet:?xt=urn:btih:1D372B0F0E93B1C7E0FC3D9C83F6730D4E3933FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C012FFE26CB9B6087C919386FC434A2835A5322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 ```bash
 magnet:?xt=urn:btih:EC1869F70E164715565733CF5F60A620708F5319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A329DC2624C2C011A31C952E9903344054CDFD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:725A194EA6CE4F5DDCE800AFBC3A54A2CC6FA69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Dr Livesey Rom And Death Edition - Доктор Ливси, вместе со с
 ```bash
 magnet:?xt=urn:btih:7A8A3B96CAD6DA2605259E674C14667A8BACED59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ PurpleSchool, Антон Ларичев | Neovim - практика и наст�
 ```bash
 magnet:?xt=urn:btih:7FEA0447825C14E506E678795270407C1E7D16A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Asio4all представляет собой универсальный ауди
 ```bash
 magnet:?xt=urn:btih:8AB5BA38C77F97048135759C1444EB0E0C98E957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Ailuri (2025) [En] (Build 17384128) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4E1F949E48BCA672B309B174B1C118EBE277CCC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Mini Airways (2024) [Ru/Multi] (0.11.3f1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:128FD0E5877C32E83C90FE8E7C4E64499C68BB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Puzzle Quest 3 (2023) [Ru/Multi] (3.5.0.41964/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DB70673E3C62CDCB7F146A96CB38CD8FF29360D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:862B366E53AEA6EDB00BCA6C43F6FAF4D180C31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 9473356/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A69F35CC966D0B1009F6AAEEBAA0FC31AFA130A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ```bash
 magnet:?xt=urn:btih:A6680B99FFC2C7ABB2756DF0BF8C16180BF4BACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2A61D1BD83EF19588364DFA83F982BA1F68503F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75CF491C0D38B461BF76D14265F27F0CE5DAF592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Microsoft Windows Server 2025 поможет вам справиться с вы
 ```bash
 magnet:?xt=urn:btih:A403A359C7B9AB52F57976681531021F8BB7148C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] (1.
 ```bash
 magnet:?xt=urn:btih:A516A0A0F36BD81B6090DFDC8BEBEC11853C75C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:198BC461282E4A9592159FB6B74AD0C3035A4445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:506FB7FCDEB245A88CB5EFEDE798184EA0E814EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94E686355B84B0D754384CD17900A8F6500D6A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9E0644A897F6310CC6581E731DF09FC1746B37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +652,7 @@ Commando Hero 2: First Blood (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E3E42BEB6C4C2DE7A36408D6C067CAF13379F11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

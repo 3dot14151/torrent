@@ -22,8 +22,7 @@ Conflagration - Destructive Generation (2011) Re-recorded Version 2022 [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:FD74290CDD55892CFA30C8546291153C36377A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71AA6BCF1421B28130796F29BC7518B3A4586CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ ACEtone - Я всё равно останусь здесь (2022) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:F9805470C34FD9D41F76703155F7C60108EB4DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

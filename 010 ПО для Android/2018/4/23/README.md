@@ -19,8 +19,7 @@ Parom TV - программа для бесплатного онлайн про�
 ```bash
 magnet:?xt=urn:btih:3891EE783C19E8447C768C9792672F9CB1A76C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

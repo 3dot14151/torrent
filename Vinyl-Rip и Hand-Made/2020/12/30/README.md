@@ -22,8 +22,7 @@ A3 The Song Is You(   Читать дальше...   )Жанр: Pop, Instrumenta
 ```bash
 magnet:?xt=urn:btih:09B3AA6E7A62379B1211A40C3788E8C030AB90C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ultimate Christmas, Vol. 1
 ```bash
 magnet:?xt=urn:btih:7FE42AAD15DE06B40A307BB5F86301B14A7F2561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

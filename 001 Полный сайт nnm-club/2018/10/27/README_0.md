@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:A8D9B61EC99CA096E1E55CE31601EBB79AB6D1D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Pupipoo! | Пупипо! [2013, TV, 15 эп.] BDrip 1080p raw
 ```bash
 magnet:?xt=urn:btih:0618EEE3C45765C0BF0D6C1C8B8371A087A0053B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Fumikiri Jikan | Crossing Time | Железнодорожный переезд [
 ```bash
 magnet:?xt=urn:btih:597AB7604DD3157BD1A9755391FF4BFF96A851D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA9ACFBDE344DABB6C494E72D7717FB536971F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D926A9F48182FAFB61ABED9FA66431FBECB92EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Lunatic Soul (Mariusz Duda, ex.Riverside) - Under The Fragmented Sky (2018) EP [
 ```bash
 magnet:?xt=urn:btih:D1FCC66517AB02EA06FEA2209CFE4DCAC84CF9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Ametsub - Discography 7 Releases (2006-2017) [FLAC|Lossless|tracks+.cue, tracks]
 ```bash
 magnet:?xt=urn:btih:E6E997E98D7E765D9E70824C34C81811C352A34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:845CFAEBBEF40106E30CD3E3DADBA56012CD21EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Cent Browser - является усовершенствованной верс�
 ```bash
 magnet:?xt=urn:btih:A5BCF95137F4D7FB481FD12579B19C231E4E86F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Chantereau, Dahan & Pezin - Disco & Co  (vol. 1-3) (1979) 3 LP [MP3|320 Kbps] <E
 ```bash
 magnet:?xt=urn:btih:BBF58A18D74CDBE434A38ECC9029C9C25D0B4885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Marie Davidson - Working Class Woman (2018) [FLAC|Lossless|tracks + .cue] <Elect
 ```bash
 magnet:?xt=urn:btih:CDFC5B5E3A158EECAC117771647F79D2B2162355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBA138D217F8FA38444773A2327B788AC5FE4136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Enolsoft PDF конвертер с OCR - это эффективный инст�
 ```bash
 magnet:?xt=urn:btih:1EFF487F891028BA0DAB9811F204529A5D59367F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ VA - German Top 100 Single Charts 29.10.2018 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:BACEFF5231A8053D71D29A6B55D92D5EA91970CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Trobar De Morte - The Silver Wheel (2012) 2015, Limited Edition, Numbered, Reiss
 ```bash
 magnet:?xt=urn:btih:83DA66E5F97456CDD9E018C708C188F3DD70EB4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ S:cage - Discography 2 Albums (2004-2006) Ant-Zen [FLAC|Lossless|tracks+.cue] <R
 ```bash
 magnet:?xt=urn:btih:D212C8BCF4DAF060BBB5D2AF80339B6704804908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Folx- бесплатный менеджер загрузок с удобным �
 ```bash
 magnet:?xt=urn:btih:AF2AFF52CB3075F0BCB2BCCD4C879F0116125741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:435BA7585E6D3F3FA0E102A27140FD877A5AD96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ Trobar De Morte - Beyond The Woods - The Acoustic Songs (2011) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:7F3469EA1C1724036C595A55FE8A040E015A97A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22F1693C40480AEA3BFB76473F88FFD6FEF1D94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA6A25D5C123E567D95ECCD9A6D9F942C35FB2E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ end.user - Resurface (2018) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Dru
 ```bash
 magnet:?xt=urn:btih:916F958E5C1324EB65E80B37278E51D85A98706C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ Screenium 3 v3.2.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:38E76A5E58BFB488AE8B6121AA2BFA8D5394642E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ File Juicer может быть использован (   Читать дал�
 ```bash
 magnet:?xt=urn:btih:3B2CB052B09E1B025BE3F566D9D54ADD58606A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:F4554AC3E94E5053F2BE17B44FF9AD6927B398A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48E38AF492A29B3AB877650751BA3DA72E5EAD74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

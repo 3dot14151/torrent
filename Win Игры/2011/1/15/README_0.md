@@ -19,8 +19,7 @@ Airport Mania 2: Wild Trips (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:CF1EDE234422434454627388835DCE804271591C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Treasure Hunters / Охотники за сокровищами (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:B1CC91967986D4AFC94CFF9FAE13CB0ADB06FD35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Supermarket Mania 2 / Супермаркет мания 2 (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:E87F6CF288E0DEF0D7813E61428B5CCBFA025B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Crash Time 4: The Syndicate [Ru] (RePack) 2010 | Fenixx
 ```bash
 magnet:?xt=urn:btih:F033EA48755C1A1239257E3FE7A8A49670E9E7D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

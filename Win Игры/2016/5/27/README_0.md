@@ -19,8 +19,7 @@ Pharaonic - это беспощадный сайд-скроллинговый р
 ```bash
 magnet:?xt=urn:btih:1E34BBA2ED321D4884AE1C135480BB16CDD84E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Excubitor (2016) [En/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7666582D8F40724AA86AF721189F1C5C53D686B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Goat Simulator: Waste of Space (2016) [Ru/Multi] (1.3.58280/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:17CAF07A719E5C256C9A874B3A235341A21F1F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Panzer Corps вернулся! Да не просто так, а с тремя �
 ```bash
 magnet:?xt=urn:btih:4A758095FA8D1FC0AC3BB9D8B5ED2189B9BDD4AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

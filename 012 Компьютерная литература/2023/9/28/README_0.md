@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2BFD08992C9797E3521EFA9C0BA4E2CEA2AFF250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ruby - относительно новый объектно-ориентиров
 ```bash
 magnet:?xt=urn:btih:FDC3E0BB2DAE4E5C64D5E73AA507E173927414C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sherlock Holmes versus Jack the Ripper / Шерлок Холмс против Д
 ```bash
 magnet:?xt=urn:btih:8A74F6E72F8FB2F4D0C9B6F8F1966A4D2F58A7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 ```bash
 magnet:?xt=urn:btih:97491B6FB67C6E211711DAF3A9580701E7552667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Double Dragon: Neon (2014) [Ru/En] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:F8120D0DF055B07B673DA4E27E3070164A54AB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hello Neighbor — игра в жанре хоррор, в которой игр
 ```bash
 magnet:?xt=urn:btih:6EF476B0D2882D7FACA1D83F6016B943ADB6BABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Resident Evil  рассказывает всю правду о происшес�
 ```bash
 magnet:?xt=urn:btih:7732563CA243D798E1A205E1CE44DE085775FF97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

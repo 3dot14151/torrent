@@ -21,8 +21,7 @@ VA - Euro Disco - The Lost Legends Vol. 3 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 ```bash
 magnet:?xt=urn:btih:266243AE2F6C0A04197AFFD6CACCB098AEE6ECC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:A32D0050DB0B43CFF3716DEE16E352CB0540101F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Anson Funderburgh & The Rockets - Blast Off: The Best Of Anson Funderburgh & The
 ```bash
 magnet:?xt=urn:btih:B33D353D6F44DFD779C521907BB5C51B13AA9F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:688C25ACDF9A727C2AC61A2DD1EE4D641C8DF672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Italo Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:81EB32E2CC724313D6FAB7245068AF0D2F4060EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46A91F4455D93BE79FE8B4CD576ED7D28B34EF80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Euro Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 ```bash
 magnet:?xt=urn:btih:B490F9AF53D014881030C8521433567474F8B585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F29C7834034E29D4467701DD4CC997608E5AD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - The Official UK Top 40 Singles Chart 22.12.2017 [MP3|192-320 Kbps] <Alterna
 ```bash
 magnet:?xt=urn:btih:7BD29143272D3BD971146608C9C48C7BA725DD8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:7117753AFC579D5D39A3150890FA000F21FB5C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ VA - Euro Disco: The Lost Legends Vol.7 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 ```bash
 magnet:?xt=urn:btih:C0E59EF46014199B3F35BA633370448FB027BC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8034EEAABE0E4333ECA3F952311AEED78950E786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Faydee - Patterns (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
 ```bash
 magnet:?xt=urn:btih:E33E5C4B145A30DD995E3D0574AFEDC9227669A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDAFDCB268171A1901CCA9513C1149FE1DD48350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ VA - Italo Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:AD3A03AEA876B14764B099DF42AD1B9A01155CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ VA - Club Night Vol.4 (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:DD6DE6E06925EC303943526DE2892BCF105AF5A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C2FB355847CF962AF6A937DD031D8232D3AC1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ VA - Disco Italo: Emotional Party (2017) [MP3|192-320 Kbps] <Italo Disco, Remix>
 ```bash
 magnet:?xt=urn:btih:BAA5736BCE489D7F47E0DBD04ECF956528D3ECF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ VA - Euro Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 ```bash
 magnet:?xt=urn:btih:4BCBFDD3ABB55168446A20BF54EC33573EFB449F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ VA - Record Super Chart #517 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:521E4BC259EA93B3C704CAE3C83875895C75AD8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB8D730D10161F5801020D09878FACF20134B40C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Critical Event - Fifth Move (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass
 ```bash
 magnet:?xt=urn:btih:45615D1C976157EB43B6846E0D97C01ED0462199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ VA - Euro Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Euro-Disco, Synt
 ```bash
 magnet:?xt=urn:btih:6EF0A09168543DD34FD9E325EAE7D70F967288F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:0279908A35900E11DEAFA800A62447A75E7065BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ VA - Alternative Range: New Age Relaxing Groove (2017) [MP3|256-320 Kbps] <New A
 ```bash
 magnet:?xt=urn:btih:A5A48CA131380F42FDA6A3CBB94905C5B4BECEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ Comedy Woman (2017.12.22) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:4EDF97DAB302EF68CB46E0AA71613CC4FFA24213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

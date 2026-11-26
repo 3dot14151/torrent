@@ -22,8 +22,7 @@ Epicardiectomy - Grotesque Monument of Paraperversive Transfixion (2018) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:47F9EA0B142C61B2E3B47EAA0D1732415CD2870E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Meathook - Crypts, Coffins, Corpses (2019) [FLAC|Lossless|tracks + .cue] <Death 
 ```bash
 magnet:?xt=urn:btih:E4BAFF0A9B98389D9448B7893E1107DEA351F79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:205222D4E60EF4CB66F526B104B2D8521B448D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Blackmore's Night - Secret Voyage (2008) [FLAC|Lossless|tracks + .cue] <Folk Roc
 ```bash
 magnet:?xt=urn:btih:D46C3154DE422B03CF894BFE1F5CCB2857C0CBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

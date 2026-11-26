@@ -28,8 +28,7 @@ Full Trunk - Full Trunk (2014) [FLAC|Lossless]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:18D709699F4F4838316A3BDDEE99516057A5F045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93130290422B67D2F4FF91C3C4B8E5513B48A24F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:3CA490EF02FE105C9745E73ADF1E6D854BFBD5C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

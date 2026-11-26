@@ -22,8 +22,7 @@ Stoned Void - Throbbing Rhythm of the Doldrums (2022) [MP3|320 Kbps] <Heavy Psyc
 ```bash
 magnet:?xt=urn:btih:A81AA2450EC91D8B265916DDFB1D58B0DAF4E5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crystal Fate - Euphoria (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 ```bash
 magnet:?xt=urn:btih:C0CD2DA72E41E2CD0AE2988E2397202E9A75D76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rasp - Питомник имени И.В. Мичурина (2022) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:6880730E354231BC9AFEEC4F9B2C971CDF96EF5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kajsa - Они (Дай огня) (2022) [MP3|320 Kbps] <Alternative, Social Rock
 ```bash
 magnet:?xt=urn:btih:ECB4C02978152A03A9C0D6B13D6D2B803BBADC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Empresses - The Beginning (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock
 ```bash
 magnet:?xt=urn:btih:CD15A4D782A40F577373FC9F66C8955FACD10A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B05D0D78B0581F4CA38DE0C071FC6BF1F069B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Hammer King - Kingdemonium (2022)  [FLAC 2.0|44/24|tracks|WEB-DL] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:F04329CDEA1AE09369801AB300F58BBA1AD7B0D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Nagart - Vol. 3 (2022) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:916D73D8CF33F749B3490C8CE7DA1E40EF2E9DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Thundermother - Black And Gold (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:122DC9E903715FF344C79100336E4722BF9DBF7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Deep Purple - Bombay Calling (Live in 95) (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:18514208FD94E3774B77C3DBC1FAA8D2262F2A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Reign Of Glory - All Will Bow (2022) [MP3|320 Kbps] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:B02DAA3535C29DE78D772FD954BBA87D80724A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

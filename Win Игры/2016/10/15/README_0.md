@@ -19,8 +19,7 @@ Endless Legend (2014) [Ru/Multi] (1.5.1.s3/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:188F8D735BCA7DECA5F500A438B47821479F2314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stay Close (2016) [En] (1.04) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0013E9FE259A5EE1CE4FBD1934233760EB7CC82E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clockwork (2016) [En] (1.0.0.3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:6FA8BA732248DF6CF555FB725CED6A2D29759745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Help (2016) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:28E8E96549D65740EC0929291E957265A70694E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

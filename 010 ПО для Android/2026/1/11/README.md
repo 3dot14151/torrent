@@ -19,8 +19,7 @@ Win 11 Launcher v9.33 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AF8CCDD7DF7C3E94004D0B46D94C3802560334EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99E1838088568B253578563DF84F72AE2C1A6678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ USB Camera Pro v11.9.0 Mod by ApplicazioniCR [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:31F0DCD86CE8265B9B807F8EFF7CC030C97AD2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Shadows of Kurgansk — игра, в которой вам предстоит в
 ```bash
 magnet:?xt=urn:btih:A8678B53699EED2C20CEF08C32CB285D6B2F3828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8994E0F0103A92EF362A15CE84C2039E3A8F5DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

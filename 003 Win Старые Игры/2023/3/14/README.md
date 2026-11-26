@@ -19,8 +19,7 @@ Urban Chaos (1999) [En] (2.69) License GOG
 ```bash
 magnet:?xt=urn:btih:D5C2E103A6D2DAD902BF021358985C1C451E49D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

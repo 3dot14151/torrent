@@ -19,8 +19,7 @@ Praetorians - HD Remaster (2020) [Ru/Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:CC09DBD4E3FBE409C1CF1DD532BDF2392AA93970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Observation - это научно-фантастический триллер, �
 ```bash
 magnet:?xt=urn:btih:57C8B1D05F24557BC9FD04FC23D4BBF2033CEBA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Revival Productions с гордостью вам представляет нов
 ```bash
 magnet:?xt=urn:btih:107998B3E1338B22867C5001ECA7A175FF9D9FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

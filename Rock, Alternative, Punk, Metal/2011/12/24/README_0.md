@@ -28,8 +28,7 @@ Chicago - XXXIII - O Christmas Three (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:91FB14CE0A29276BE902E72703B8407B17A94FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ EarlyRise - What if (2011) [MP3|320 kbps]<Alt.Metal, Alt.Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:7749A6491786EEC4A1124BE6E8D699ED7B02A89F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Slade - Merry Xmas Everybody: Party Hits (2009) [MP3|320 kbps]<Glam/Hard Rock>
 ```bash
 magnet:?xt=urn:btih:532261C23D6F82E8FDFEAF6505A7E42D2D905A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Underbiz - Искусственный интеллект (2011) [MP3|320 kbps]<A
 ```bash
 magnet:?xt=urn:btih:74FA69AF19CFBFADF9E4BD21DA96F1C96BA3562F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Switchfoot - Vice Verses (2011) [MP3|192 kbps]<Alt. Rock, Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:17714BBE684F1F8D6827E1D33F3A63B696284F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Memory of a Melody - Things That Make You Scream (2011) [MP3|320 kbps]<Alt.Metal
 ```bash
 magnet:?xt=urn:btih:86C3BAC764DC8058ADF967B46F5642417EEF7A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ AC/DC - Live At River Plate (2011) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:01F05D47547A6FDAF4D28687B0C7539B37730552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Whitesnake - Box 'O' Snakes: The Sunburst Years (1978-1982) Remastered /2011, Su
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

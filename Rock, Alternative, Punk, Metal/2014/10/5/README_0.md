@@ -27,8 +27,7 @@ Vanmakt - Ad Luciferi Regnum (2009) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:E98F78A5EC5E75320C85A91E40E2FF7A24E28191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Wyrd - Wrath and Revenge (2003) [FLAC|Lossless]<Pagan Metal / Black Metal>
 ```bash
 magnet:?xt=urn:btih:F25DFA9C9651256B94344156632009B6C42431EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Redemption - Redemption (2003) [APE|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:74672C81C9D86CE9B9975DE0747520FFF1F7F3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Writhen - Condemned (2014) [MP3|320 кб/с]<Technical Death Metal / Deathcore>
 ```bash
 magnet:?xt=urn:btih:DB54A554DA33A9284188F37E4B0A7B01C7AEEF02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Rise To Addiction - A New Shade of Black for the Soul (2007) [APE|Lossless]<Heav
 ```bash
 magnet:?xt=urn:btih:D7CE9395561303AD06DBFD2D82FCF1A04FF2391E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Blame Zeus - Identity (2014) [MP3|320 кб/с]<Alt. Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:46923590C6252C0BBFB11E6CA0902F0BF4EA2E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Justin Furstenfeld - Songs From An Open Book (2014) [MP3|320 кб/с]<Alternativ
 ```bash
 magnet:?xt=urn:btih:786164C304CF2A7576B33F3297E2B2223000EE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Ship Of Fools - Sea Of Rocks (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5B48FFC4DA7492066552114A5549CF63BEEFBEC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ A Tortured Soul - Kiss Of The Thorn (2007) [WavPack|Lossless]<Heavy Metal / Dark
 ```bash
 magnet:?xt=urn:btih:EE94A48FCBA251CB1FC99CB927AF87331A55DDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Rigor Mortis - Slaves To The Grave (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8E8C9C8B12BC8DCC5A692877685455B781423B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:5B1918587A99B6D5278D3CACF65003F48C551D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +393,7 @@ Khold - 6 альбомов (2001-2014) [FLAC, APE|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:F718504EDD045FD1B3C7FFF6691C2B2C851A2800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C67932A22B69383A0C3031E40AA433D61EB1871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

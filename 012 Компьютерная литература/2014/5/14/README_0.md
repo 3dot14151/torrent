@@ -21,8 +21,7 @@ Red Hat Enterprise Linux 6 Administration является полноценны�
 ```bash
 magnet:?xt=urn:btih:7A98908D6A75071BB263DC4B6F3C1D2A1A158155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

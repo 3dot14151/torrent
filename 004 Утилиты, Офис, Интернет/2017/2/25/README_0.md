@@ -19,8 +19,7 @@ HDD Guardian — бесплатная утилита, которая предн�
 ```bash
 magnet:?xt=urn:btih:5DE6FC58EE0E23116494DE06F179740C1165E357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ VA - Music For Everyone - Vocal Trance & Progressive Vol.2 (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:CD08A5B3FF274BFBAC3A7F292B700B071299DA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22ECE7E00C54BDEEDFB429B8497D4B45436A3937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E3574D60E2B375B1C5EC0D5E2BA89A8129C7EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C0BDCDD77E3EE699CEFD8F3EB8A6F2EC2E3493A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1AD3214FA4852F04A8F4184B304C9A04E4F64DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Jeff Lang - I Live In My Head A Lot These Days (2014) [FLAC|Lossless]<Blues, Blu
 ```bash
 magnet:?xt=urn:btih:EDA6FC4113025B14FC3BCF14BCCF6A60AA43FE21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:7BED4C288E7FB445ADCC6EC487833FC7E9D029E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ Omar Kent Dykes - Big Town Playboy (2009) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:30DB27DDAA86BFC3A3BBBB911B936B17C979D689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0F759CD77531D28B21F22ADF7AEF2745A0F22A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ VA - Fun Summer Dance (2014) [MP3|320 кб/с]<Dance, Club, Electro, House>
 ```bash
 magnet:?xt=urn:btih:948C1861B8F7D9DF9BB9D5A762119D60E8255ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ Tomas Doncker Band - Moanin' At Midnight: The Howlin' Wolf Project (2014) [MP3|3
 ```bash
 magnet:?xt=urn:btih:1A1DB5356E76E06C8339929F1052B3F32B70F595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Cyrille Aimee - It's A Good Day (2014) [MP3|320 кб/с]<Vocal Jazz, Gypsy>
 ```bash
 magnet:?xt=urn:btih:F427B3327C140608C98E48E0B0BCD3A520AA536A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98178ABF73058053C139157EC221361B94DE6B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ Levon Helm - Dirt Farmer (2007) [FLAC|Lossless]<Folk Rock, Country Rock>
 ```bash
 magnet:?xt=urn:btih:6FA67887725EF62E644CDFE69E214B464D950F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21EC19B96B6845009DC68AA8BCB5D01F76C04B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ VA - Dancefloor Hits #1 (2014) [MP3|320 кб/с]<Dance, Pop, Club, Trance, House
 ```bash
 magnet:?xt=urn:btih:1B628A9B1BF45E9B40FA45C424D9D931D381565A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ Capo – это музыкальный плейер, но предназначе
 ```bash
 magnet:?xt=urn:btih:7D7E4B7C070A97C7E24B40905C7D44A70E83A435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB642F9C2A42E4FF159F332144C6C2238D0CB36F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EEB6789D7C78E5222AD7C2B859453F0834CBEEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CED05B9B4721963D9E617B0214FB8778C08D5618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +622,7 @@ VA - Smooth Jazzy Chillout Summer (2014) [MP3|320 кб/с]<Smooth Jazz, Jazz, Ch
 ```bash
 magnet:?xt=urn:btih:8FCD2E40CBA415FC807DADC19D3D56C9B024EE68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD26CA439A20053780E5C11AE2CFD00059B5F146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE78BE59192EC0643760AE8A45A6512D3A22A9D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27F4546AA713D7CD2D6C193DDFCAD4619F48AB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ Troika (David Arkenstone) - Goddess (1996) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:D13AAA31791AEEFE374AB853627C2525CFE031B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

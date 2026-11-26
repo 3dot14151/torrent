@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:D3C4F29FC4AFC017F50078D250678AA8B2B01A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Perfect for cybersecurity professionals, IT managers, developers and (   Чит
 ```bash
 magnet:?xt=urn:btih:A2DFBB8E944E269FBDFA377587BDEE560467F30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

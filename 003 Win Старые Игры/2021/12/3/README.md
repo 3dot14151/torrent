@@ -19,8 +19,7 @@ FlatOut (2005) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:51D38E5DEA9D68187C85693EE472C2299F31300C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ship Simulator 2008 (2008) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:70B943408CF0BA6DEF4B7A831CEAB7C4993DB01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

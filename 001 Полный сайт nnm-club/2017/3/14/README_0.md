@@ -21,8 +21,7 @@ VA - Trance Collection Vol.58 (2017) [MP3|320 Kbps] <Trance, Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:0CA31E325B59585AC1D07C6D627F383BBB7DD6A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - True Trance Vol. 2 (Mixed by Luke Terry) (2017) [FLAC|Lossless|WEB|tracks|i
 ```bash
 magnet:?xt=urn:btih:3B41FE5E21AC9C9EAD64296D140AF08CA8235CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F210543DBD958E29037ECB1D4D11666AD89F5B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42061366C7093BEE5DBB1C6578EB2018209004EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Together - Программа для хранения и организации 
 ```bash
 magnet:?xt=urn:btih:DA6142BDB77750BE7FBB6CDA3ECC6A541953E9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Big Mama Montse Band - Seed Of Love (2017) [FLAC|Lossless|WEB-DL|tracks] <Electr
 ```bash
 magnet:?xt=urn:btih:FA6DD9679AF0A34AAE9EFA681DBC549372075526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Steyoyoke Black Onyx Vol.2 (2017) [FLAC|Lossless||tracks] <Techno, Tech Hou
 ```bash
 magnet:?xt=urn:btih:C25347AF12FEF2B1770B44CBB5F6CC15098B5ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Steve McManus - First Kiss (2017) [MP3|320 Kbps] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:4E30F681536066296579B436FD97B36319594313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ VA - Вечеринка на радио Шансон выпуск № 5 (2017) [
 ```bash
 magnet:?xt=urn:btih:C6030E4B1C16FC9E5C592A3EE6A7B63F1A1629ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F6BD1C829AA76A9DC86178E83635AAE7DE271B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Koan - Serenity: Side A. (2017) [MP3|320 Kbps] <Psychill, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:DF4E16061C77473CCC8F5FC25AC7364B16EDFD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Mark Ward - Universal (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 ```bash
 magnet:?xt=urn:btih:F280715D26E4902C05320E36558C8E91B2CB79B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Claude Bolling - Jazzgang Amadeus Mozart (1965) 2007, Philips [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:2178C5A9F874D75D30383CD8DCA1E5779B4E7F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Lisa Ekdahl - Nar alla vagar leder hem (2017) [FLAC|Lossless|WEB-DL|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:8BCB783ABEF739AA17C516B936FD6605691E8108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ VA - Myths & Legends (Mixed By SoundLift) (2012) [FLAC|Lossless|WEB|tracks|image
 ```bash
 magnet:?xt=urn:btih:CB8D3304A7FC3662ACB797B023330F04FA619FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ VA - The Place Dance (2017) [MP3|320 Kbps] <Dance, Club, Electro>
 ```bash
 magnet:?xt=urn:btih:91B4AD9C2CD4B859BF19158B17E46786DF970F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Blush - Out Of This World (1978) Reissue, Private Records, 2013 [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:42072F597F737508D6E0198CC1E5F15142FF356C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ Beborn Beton - A Worthy Compensation (Bonus CD) (2015) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:B44AEB0B16781CC019B69E3A724FD398CB0D091D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ VA - Лучшая дискотека на Europa Plus выпуск № 3 (2017) 
 ```bash
 magnet:?xt=urn:btih:FA7001F7088239DF026826550FB18B22063A9F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Backgrounds предназначен для пользователей Mac, ко
 ```bash
 magnet:?xt=urn:btih:3B69D4C3B1C37BCDE5B7F0906E9C180AEC03EA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:044D776557A54FB2EA2DE0E41B5878640F3CB43F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ VA - Klubbheads - Live_Mix @ Dance Planet Volume 9 (1) Friends Only Edition (200
 ```bash
 magnet:?xt=urn:btih:60FE6E04C84796245D65DE383AB2B7582DAEB7E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ Elmedia Player PRO (   Читать дальше...   )Тип издания: m
 ```bash
 magnet:?xt=urn:btih:9CBDA1D857F9BAA73F25359AAFC42A5270221CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ VA - Psytrance 2017 Volume 1 (2017) [MP3|320 Kbps] <Trance, Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:7E5FBE6440C496F6015B103D5CD481636D1B3CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9FF23B1F33B7F3899E681A0397251F50478B57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:747960CE4996611D6F2A928D724F7AABE5C2B820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

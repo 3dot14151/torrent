@@ -19,8 +19,7 @@ Tail Gun Charlie v1.3.36 Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8AA6B5C76F28BD39D8B82DDBEF115884BDF2DD95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

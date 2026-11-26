@@ -28,8 +28,7 @@ Little Wings - Last (2013) [MP3|320 кб/с]<Indie, Folk, Acoustic>
 ```bash
 magnet:?xt=urn:btih:5C267112BAB763CEACEE5DF4D1EFAB6045817289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ The Bilibis - DEMO (2013) [MP3|320 кб/с]<Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:D1CAA075AA084D6AAEB67CA0D1DEDEAD59A25613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ One Morning Left - Our Sceneration (2013) [MP3|320 кб/с]<Post-Hardcore, Elect
 ```bash
 magnet:?xt=urn:btih:8DD695C6B1ABD3B231E9EC23FF845D0472580A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ A Faylene Sky - Hell Is Where The Heart Is (2013) [MP3|320 кб/с]<Post-Hardcor
 ```bash
 magnet:?xt=urn:btih:CE3FBF62CF6646B04D3EB88429A2A4741183BED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Funeral For A Friend - Conduit (2013) [MP3|320 кб/с]<Alternative Rock, Mall E
 ```bash
 magnet:?xt=urn:btih:17E1C8EE088B680162AB69330AA0EC79DE0ADCDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Hello Ocho - Hello Ocho (2013) [MP3|320 кб/с]<Psychedelic Rock, Experimental,
 ```bash
 magnet:?xt=urn:btih:ED5776BA64DE8B1DB9624A40EFF5D716E030DA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:FDA2825F290DB1E328F072406629D4D8E09F9533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Queen + Paul Rodgers - Return To The Champions (2005) 2CD [APE|Lossless]<Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ VA - Cadillac Cuties And Hot Rod Heroes (2012) 2CD[FLAC|Lossless]<Rock’n'Roll 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ CD1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ Vivienne Mort - Teatr PipinO (2013) [FLAC|lossless] <Alternative Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

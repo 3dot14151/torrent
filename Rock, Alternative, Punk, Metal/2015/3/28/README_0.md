@@ -23,8 +23,7 @@ Pat Travers - Retro Rocket (2015) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:26D966668F93D3E9CE861B52A14DF622510BE1E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A698A87D8330A5DA435F4F2AC2D0F5596C51817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Santana - Masterpieces (2014) 2CD [FLAC|Lossless]<Classic Rock, Latin Rock, Blue
 ```bash
 magnet:?xt=urn:btih:5BF15E818B98D54712C50C534DE4DB63F4258127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ The Rolling Stones - More Hot Rocks (Big Hits & Fazed Cookies) 1, 2 (1972) Compi
 ```bash
 magnet:?xt=urn:btih:86B8D0FFE21EA13F08873C93A78F5F1272C85335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Paul McCartney - NEW (2014) 2CD Collectors Edition[FLAC|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:4224804BA944295B94F09361EF11C8E16D6E220F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:018F9E4913974F8433F95D0A1BC05C48FA903DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Nightwish - Endless Forms Most Beautiful (2015) Limited Edition 2CD [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:A34E10C6D9CBE93EDF97EACF30F09C15A202FC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

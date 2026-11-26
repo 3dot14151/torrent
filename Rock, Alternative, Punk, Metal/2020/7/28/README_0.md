@@ -22,8 +22,7 @@ Borknagar - Universal (2010) [FLAC|Lossless|image + .cue] <Black Metal, Avantgar
 ```bash
 magnet:?xt=urn:btih:5119233D1C909C153636A957E91C063DB1EA1C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Borknagar - Origin (2006) [FLAC|Lossless|image + .cue] <Avantgarde, Folk Metal, 
 ```bash
 magnet:?xt=urn:btih:89693F047403E54040664AB9EDE27A99642874E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eluveitie - Helvetios (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal, 
 ```bash
 magnet:?xt=urn:btih:CCC24AD642798CD35F81DAEB8A2D22FD67CECF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ AYOKI - Дети Света (2019) [MP3|320 kbps] <Alternative Metal, Female Voc
 ```bash
 magnet:?xt=urn:btih:F5C1E24049278967BD8DB65D84FD840AA99E0E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3C8B92D897D51AEDDFC940B41662B951CDC1353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

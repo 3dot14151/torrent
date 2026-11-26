@@ -21,8 +21,7 @@ DOPE D.O.D. - Do Not Enter (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:929C883C60F9C3CCDF9831E40CFF53217DF3D8EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Token - Between Somewhere (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:8CAC1DE64AB1A87FAEB575FAA38886E863214614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Muppy - Burn This Place (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:EBA09B4E512131A324F02FE7FFF51CA8FCC9DB74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Arturo Sandoval, Chick Corea, Poncho Sanchez, Pete Escovedo - Jam Miami: A Celeb
 ```bash
 magnet:?xt=urn:btih:5882B4C6D55C5EA14334ECF750FAA20A663075C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Logic - I Am King (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:58AF2F1A13D48A2B1E16D534FD9574191089B18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Key Glock - Yellow Tape (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:375A21B53736550C6F98D649EE2B7E00A5D7FC9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ WastedSky - Мы все нули и единицы (2020) EP [MP3|320 Kbps] <Nu 
 ```bash
 magnet:?xt=urn:btih:D6905441882723A75D7320F15F4B8BA453464BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Espresso - программа для веб-разработчиков и веб
 ```bash
 magnet:?xt=urn:btih:104EEC406F1B87B800885B3A9E6DCEA2AF7E8CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Royce Da 5'9" - The Allegory (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:403E91B22ED544610C37C42275D0543E174391CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ VA - Record Super Chart 629 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:076E0391860EF5E8EAD2DBDF5112E19A31E289BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Lord Infamous x T-Rock x C-Rock - Scarecrow & Da Roc-a-Fellaz (2020) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:1D9E4E2197C884CC0AB076209B5D3A1BC3C1BDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38691C9BA4C4AA3763809254102DEFF913D8D4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Nervenbeisser - Collection (2 Albums: Geschlechterschlacht, Zeitwandel) (2015 - 
 ```bash
 magnet:?xt=urn:btih:E81B958FDDC680B928564D71475C1A246B8531A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:CD816024E2DF5A180411AF242FAD8DAE3346E9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Millumin - создание аудиовизуальных и интеракти
 ```bash
 magnet:?xt=urn:btih:50C17B6F06D1229F5212EEC5843E4AF5F44CBBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Aiseesoft Mac (   Читать дальше...   )Тип издания: macOS 
 ```bash
 magnet:?xt=urn:btih:1747831044FCF357A864C25452F1E59268E0D618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ Flyingdick - Китайский квартал (2020) WEB-DL [V9/2160p-LQ]
 ```bash
 magnet:?xt=urn:btih:2FCDDB046CFF314058802FD4BB6B65BD605C58A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Gardens Illustrated - международный журнал, издающий 
 ```bash
 magnet:?xt=urn:btih:19B37A82EE333EA580DAB5FD83C83B091ADA0787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E4C89A36D5F30DAA8783AD72DF1783BB1625E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:C59D2C12CA9E7BB64E885A1104EFAA808487E85D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFC0106172468A275F46235BF96939E8CF235F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CC19EAF396EE4BA53DC87A0E3EC4D3033AF1FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ GSPD - Музло (2019) [MP3|320 Kbps] <Rave, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:60D1D4425ACD411F882EBC38258C047E602762BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Ghostemane - N / O / I / S / E (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:A6DF4960A7B3D08D14CEBFDFFB40C7B0E04C372D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Be Focused Pro: Сосредоточьтесь на производительн
 ```bash
 magnet:?xt=urn:btih:70D7B2A85B7BBBFC0F522CE5BD1CD2558E41FE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ Tatler журнал о светской жизни и моде, это брит�
 ```bash
 magnet:?xt=urn:btih:8A464FA962330B23BE54D781988715C203E1882E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

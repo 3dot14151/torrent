@@ -28,8 +28,7 @@ F5 - A Drug for All Seasons (2005) [APE|Lossless]<Power Metal/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:833978549AB5B53AFA250E44C215BA229EF97EFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Nacht - Memories (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
 ```bash
 magnet:?xt=urn:btih:51EFE357FD3C4C1CF1BB79B292A6B17D1B899AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Gunfire - Age Of Supremacy (2014) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E065C7188E3FFBFA8BFA4E6989A745093A2A0CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Johnny Touch - Inner City Wolves (2014) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C05108A773AE51B4C98CEB547F77EC7870C168AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Fatima Hill - Aion (2002) [APE|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:06D61B58949E0D0524BED2973D3700CFB773A804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Reaper - An Atheist Monument (2014) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:12DFE7862CB936E7740123AFE8BE64885C952906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Ancient Empire - When Empires Fall (2014) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:82C087354DFDEF84766032D722BE6DB0D1D2D641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ Bryan Adams - Tracks Of My Years [Deluxe edition] (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:5A9CD106E04E255468DB306BAD84AB7D13265540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E7255E308A66F00597FADF3A03600D7584EF3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EB56476044F2BA9B335F0C76AD9380D91B346AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ Alice Cooper - Killer (1971) Limited Edition /2009, Audio Fidelity/[WV|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

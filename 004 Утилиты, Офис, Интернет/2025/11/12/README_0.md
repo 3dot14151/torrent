@@ -19,8 +19,7 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:9ABC6770AA6A4E77FED01C83094B773FC97FDE30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:D91E4AA5B367BC56A13F3859C8006B90A8FD5DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:CD069DC699F41D7726B8A04D8B4395C4734182BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:D11A5462D33212F93B644388AFB11ACD1CC011C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MediaHuman YouTube Downloader 3.9.18 (1111) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:89D47FFC676A194CCDF9BCA988A977A743FC7386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ PIDKey Lite предназначена для просмотра, обновле
 ```bash
 magnet:?xt=urn:btih:FB447E667629B29ED4A60673D10D0A4E03030703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:698234BA23C1D2ADA95846E4E25EC56F0DEBAEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:A5F4D07961D044F59D875F0302A6AC996DB1ABFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ O&O Defrag – инструмент дефрагментации дисков, �
 ```bash
 magnet:?xt=urn:btih:531665B0EFC23337526333862C2F77236F63219E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Office LTSC 2024 предоставляет привычный набор при
 ```bash
 magnet:?xt=urn:btih:BB487310A5FF39307010550ABEA5E21C3236DBA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ MediaHuman YouTube Downloader 3.9.18 (1111) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6FA62605AB2F3416C677CD41C0503B6F7C0DAB4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:67DF7819E373F1D9BA11527E1B91E54B35EFEE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Office Tool Plus - функциональная программа для раб
 ```bash
 magnet:?xt=urn:btih:EE24AEF59EC38E0B58281C988490060C91269F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ UltraSearch Professional находит файлы и папки на локал
 ```bash
 magnet:?xt=urn:btih:AAFFB3266374FA7501EF305C705181181E8CA29F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ MSAct++ 2.10 Portable by Ratiborus [Ru]
 ```bash
 magnet:?xt=urn:btih:A9900CEF54BD2E4B1033FA8A5D88656A1D4526A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

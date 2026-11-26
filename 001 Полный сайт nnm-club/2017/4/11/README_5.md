@@ -18,8 +18,7 @@ Chernobyl Terrorist Attack (2017) [En] (1.15) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2C88D9745803D6D0FC026FAE0401E5AF1F11C96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Sprint-Layout 6.0 - это легендарная (быстрая и прост�
 ```bash
 magnet:?xt=urn:btih:ED335E53759357334AC3486857A3D1C72B1C5456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3F23ED332A28CD7E5B5DEF7D2769B567B4472A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C25E1AB11CC55F3E89F264DFCED284E0B50F892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:5A517551DDF214A3E54AECA1A25EEAC38BB10986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ History Channel: Жизнь после людей / ife After People  (10 сер
 ```bash
 magnet:?xt=urn:btih:BD41F0373AD501B744A940208D4DDFA6A44FECAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:8AB67E7AFB046B47F88D71E8CD3054AF2E7BE2F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:329E23858C63EA5436FF1C9259A16C41AD421BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Youjo Senki / Saga of Tanya the Evil / Военная хроника мален�
 ```bash
 magnet:?xt=urn:btih:3A62A7288A584ECC7165EA617AFBF7D4BCFE22F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ KMSAuto Net — автоматический KMS-активатор для оп�
 ```bash
 magnet:?xt=urn:btih:FE4E4ACC839A9CF485E990766330F84864EB2126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

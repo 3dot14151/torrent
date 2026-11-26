@@ -22,8 +22,7 @@ Albums, EP:
 ```bash
 magnet:?xt=urn:btih:2193A79300E1568B3DCD79BB9F6B153F45E06E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Autumn Of Communion - Autumn Of Communion 4 (2014) [FLAC|Lossless|WEB-DL]<Ambien
 ```bash
 magnet:?xt=urn:btih:166A32373C5388A9B35282B251370D271ECAD99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ V-Charge - проект по созданию автомобилей-робот�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:956CEDBCA398A169B0E1201B40658AEF1A637FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Zions Abyss - T.A.L.E.S. (1991) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:681D5160121BA0FF860A3E7E9E4D03F0AE21FB54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ A Tribute to Orchid - Invasion USSR (2014) [MP3|320 кб/с]<Screamo, Emotional 
 ```bash
 magnet:?xt=urn:btih:EB652528D175215C1A9E472B11636BDDB85C60AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ VA - Dance Gate, Vol. 1 (2014) [MP3|320 кб/с]<Club, Hands Up, Vocal, Dancecor
 ```bash
 magnet:?xt=urn:btih:CB7E2E821EC274353BBCD09C057D9C12F8E2DA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ Zombie Holocaust - Strike Force (2009) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:47E4A54B400014098B59FB835B767A3748D62447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D77DA24E9E3DA33D964254BCFB3C4DDEFD354C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ Outrun The Sunlight - Terrapin (2014) [MP3|320 кб/с]<Progressive Metal, Instr
 ```bash
 magnet:?xt=urn:btih:B458488A8260FA236F45CF6CF65BF54B3412182F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ Ishqamatics - Waterbound (2014) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Dub Techno,
 ```bash
 magnet:?xt=urn:btih:A8686DE02933E2BF8F5890BA9F72773027AC2794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ Dimension - Love To Me / Move Faster (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:4E0FFCB357587BF4C01747EC22E7D43AFD378744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EF1F4FD33CE68FCD465F7F08CF9DEE76CB9CDD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ Laura Narhi - Tuhlari (2012) [MP3|192 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:F7A760C684C0D8BC47B0DC5046CB9ADAC74BFE6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ Abando & eSonic - Valentine's: Love Lounge Vol 1 (2014) [MP3|320 кб/с]<Lounge
 ```bash
 magnet:?xt=urn:btih:12698E5E4B7AA61F2557C3DB4B8097A21DA02CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:43A07DACE1A4F68C244D6CE478A2F8A4C6D9C2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ Worthy - Disbehave (2014) [FLAC|Lossless|WEB-DL] <Bass, House, Downtempo>
 ```bash
 magnet:?xt=urn:btih:9DEA58DC9E11826E01966533096DF7EAFD3F6855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +546,7 @@ VA - Best Chillout December (2014) [MP3|320 кб/с]<Lounge, Chillоut, Electron
 ```bash
 magnet:?xt=urn:btih:FF8CE19FF45A333DEA36A515532A57211744F73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C17AE4AF671CCF0471BAB0FB22027B39FE43C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +599,7 @@ Weval - Easier (2014) [FLAC|Lossless|WEB-DL]<Ambient, Techno, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:3EA6F0A52F8D9C00690C27495D468D8D10A2832F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ Pallas - Wearewhoweare (2014) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:26163BBF77201D8F8205D09667E07AB5E8A1C517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +660,7 @@ Forrest Fang - Animism (2012) Projekt [FLAC|Lossless]<Ambient, Tribal>
 ```bash
 magnet:?xt=urn:btih:ABB699CCD514352681B37913BF1428BEF364652B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +694,7 @@ VA - Sturmer IV (2010) [FLAC|Lossless|WEB-DL]<Dark Ambient, Industrial, EBM, Min
 ```bash
 magnet:?xt=urn:btih:3E6433308021CAC9B76492E72DDC5075E0E4503F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +726,7 @@ Software - Ocean (1990) [FLAC|Lossless]<Electronic, Berlin School>
 ```bash
 magnet:?xt=urn:btih:3D5F5693453BB807B4F99338A80A2B45F0EE7D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +760,7 @@ Kix - Blow My Fuse (1988) [MP3|320 кб/с]<Hard Rock / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8CF234B7CA20ABD02E12BCAC57BF29D377C0C5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ VA - Скоростной Драйв (2014) [MP3|320 кб/с]<Club, Dance, House
 ```bash
 magnet:?xt=urn:btih:24C9BC270647AA83E398E59698C74909859FF82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

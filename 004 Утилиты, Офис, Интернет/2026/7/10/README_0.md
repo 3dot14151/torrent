@@ -19,8 +19,7 @@ OCCT 17.0.7 Portable [En]
 ```bash
 magnet:?xt=urn:btih:6F4F936C97D653EF502A499A0767C4DCC8353963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Easy Duplicate Finder использует интеллектуальные те
 ```bash
 magnet:?xt=urn:btih:85D9221B93ABD998018D10687F31EA406531B35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:A0F9C6E5A063E56A891CB9B8ED8654D111FF3574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:10498E5AD325D8B561C891A31B8EFBE5453EA090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:81D9E2DA212D8D46BFD3B94ECC4B5C31A2BADCE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ WinSnap - отличный многофункциональный инструм
 ```bash
 magnet:?xt=urn:btih:DA1D90F524DA95EB4D809C5DAF291F02BCCDA974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ OCCT 17.0.6 Portable [En]
 ```bash
 magnet:?xt=urn:btih:EFF023E372A1307B98959DD29260226D3CE3B47F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

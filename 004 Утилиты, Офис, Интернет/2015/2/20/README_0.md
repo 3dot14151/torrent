@@ -19,8 +19,7 @@ PhoneClean Pro – персональный уборщик мусора для �
 ```bash
 magnet:?xt=urn:btih:1EE5D8B7EEDD2D4BC9FE7CD1AD34964997C1D879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

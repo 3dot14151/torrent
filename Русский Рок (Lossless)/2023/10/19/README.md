@@ -22,8 +22,7 @@ Crow'near - Full Moon Fever. Anniversary Edition (1992) Compilation, Reissue, Re
 ```bash
 magnet:?xt=urn:btih:A05B4059B04B13A8DC4661402BC0180192D90D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Durnev - В Мир Иной (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:AE4AC4559D47BE9F26432F0F162F57E30ACE79E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

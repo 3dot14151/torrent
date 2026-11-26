@@ -22,8 +22,7 @@ Filter - The Sun Comes Out Tonight (2013) [FLAC|Lossless]<Industrial, Post-Grung
 ```bash
 magnet:?xt=urn:btih:05A7EE84AB7CB181F455A4482EAFDEA986449BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ VA - Rainy Days Music Vol 1 (Electronic Jazz & Chill Out Music) (2015) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:BEB2C4B1A0494EBDDB35862EE23EC43D16111177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D94A0D40188558F16071864D75DF5C5BBE2CB608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Madlib - Medicine Show No. 4: 420 Chalice All-Stars (2010) [FLAC|Lossless] <Rap,
 ```bash
 magnet:?xt=urn:btih:81C5B736C8AFAAE5EDD4C3B382C81DB256926BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Motley Crue - Too Fast For Love (1981) Leathur Records [MP3|320 кб/с]<Glam Me
 ```bash
 magnet:?xt=urn:btih:E4DD8573580CA5C2684C4BFC3911143F953F8B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CD705AD2A7E4D8E550E9905195920BF0942544B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68663B43A349FCE45F3B8513F61D92520A10ACAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Moth Equals - 3 Albums (2011 - 2013) [FLAC|Lossless|WEB-DL] <Downtempo, Dubstep,
 ```bash
 magnet:?xt=urn:btih:94A279F09312B54A8FF3770EC13AE53C83A4C83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:4BDD62F435D7953EBED1314F9E29B8E76F683C6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ EPS:(   Читать дальше...   )Жанр: Psydub, Downtempo, PsychillП�
 ```bash
 magnet:?xt=urn:btih:2F5485ADBB33BF60E01BAE39CE9365A41D51EE66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7A2A02B9B16CEAC618A5B94D1725AF918A9410E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB9D18F8F2BBE4CDA43B7F45C1E0FBB40220BF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ The Travels of Marco Polo (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2FCC678149126318C7E9AA095D3A23788CB5451C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Joker - Mainframe (2015) [FLAC|Lossless|WEB-DL]<Dubstep, Bass>
 ```bash
 magnet:?xt=urn:btih:6EEFE55AC6F1B4AA818A89219ED1C7E1396A0053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ VA - Silk Royal Presents Anniversary Essentials (2015) [FLAC|Lossless|WEB-DL]<Pr
 ```bash
 magnet:?xt=urn:btih:707D79D4EF40FD55FD16AFD5DC3B610221C3D3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ Madlib - Medicine Show No. 1: Before The Verdict With Guilty Simpson (2010) [FLA
 ```bash
 magnet:?xt=urn:btih:50518C23020E9E3D9AFFF72C9E61862C7EBB5834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Armin Van Buuren pres. Rising Star feat. Betsie Larkin - Safe Inside You (2015) 
 ```bash
 magnet:?xt=urn:btih:ABBBCE3F84B1D116EC89D4E3B7F1B357814CA34F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7008E4DE49B022C898DB48CE2EDAE467CD0374CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:950A921D14330D546226D25B1CCA3775D3E5057B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ EZ CD Audio Converter 2.8.0.1 Ultimate RePack (& Portable) by elchupacabra [Ru/E
 ```bash
 magnet:?xt=urn:btih:7A4A28664A43E93D93257E03215C3F91476DC8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Restore Point Creator бесплатная программа для упрощ�
 ```bash
 magnet:?xt=urn:btih:57C7D11364B5C071281681D570EBCC033E5539B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB0F1B455FA8CF9C1473E83747C584AB0AADD759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C519D448AF399ABFDEDB2FEA13B62B9839B6CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAB495127FC41B3B04B04B8B8627D0BA4B8B2E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6ED925673989BA94A4035C0173E4538652C29FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

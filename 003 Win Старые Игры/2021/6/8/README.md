@@ -19,8 +19,7 @@ Olympus 2207 (2014) [Ru] (1.2) Mod NebesaGames
 ```bash
 magnet:?xt=urn:btih:0584719AAD6EE2E56CADD0A5BF4392A29C45A9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

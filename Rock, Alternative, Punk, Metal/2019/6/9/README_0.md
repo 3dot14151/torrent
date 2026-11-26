@@ -22,8 +22,7 @@ Dope - The Early Years - 1997/1998 (2017) Compilation, Remastered [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:0A5911A2ED946C6BE937DC74AAA25483D6466F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Darkthrone - Old Star (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:A2B79D6D9A7A4C4D834E730DEC40A73CDCF59AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Phil Collins - Remixed Sides (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:CD04F41B1A66AE09B37CF45CF75023B3CD3166ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Kryuhm - Demoni (2025) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:85EA96B5C7C05021DDF7686E211108EA17DFD0C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Citadel - Descension (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Met
 ```bash
 magnet:?xt=urn:btih:B4987827D8CD0853F044DED8B33DD13ABFADB23C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ mclusky - the world is still here and so are we (2025) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:394A3EE5994ECF7BB060A2BE6397F1EF81D0EEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Monolith - Magnum Opus (2025) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:559BF17FF42F0BC67ADDA97EFF3AC10CCC0C4E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Eric Clapton - Me and Mr Johnson (2004) [FLAC|Lossless|tracks + .cue] <Rock, Blu
 ```bash
 magnet:?xt=urn:btih:8F7C0189EED70F3DA1ECEC847DDD6C4516081E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

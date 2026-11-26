@@ -19,8 +19,7 @@ Alcohol 120% Free Edition - специальная бесплатная верс
 ```bash
 magnet:?xt=urn:btih:1B21A6E46FD35723A79554069084E28F604FB9D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windows 11 Debloater – небольшая утилита для тонкой �
 ```bash
 magnet:?xt=urn:btih:AC919236770CA6FEC5EE97D56297B7BD1E2FD8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NetTraffic - небольшая полезная утилита для мони�
 ```bash
 magnet:?xt=urn:btih:AEFED2E6EEB277B3357D215DC0FAEAA67C0FABDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Трибьют Сергей "Чиж" Чиграков (2021) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:0F4055244B433AD400DB7123088FE69664628F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C477106805260B89C499EBEB0AFAF3EC48B96B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

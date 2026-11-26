@@ -19,8 +19,7 @@ MechWarrior 2 Трилогия / MechWarrior 2: 31st Century Combat + MechWarrio
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Outcast – не игра. Это одно гигантское приключе
 ```bash
 magnet:?xt=urn:btih:155B9DB109FF88EF5FC45F61845C1C1888809463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

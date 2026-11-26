@@ -19,8 +19,7 @@ Slipways берёт жанр космической грандиозной ст�
 ```bash
 magnet:?xt=urn:btih:CE2F8F32ACAD0D768C05E2D744C7E9ED63D25759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

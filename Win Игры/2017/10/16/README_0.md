@@ -19,8 +19,7 @@ Halloween Stories: Invitation / Хэллоуин: Приглашение на в
 ```bash
 magnet:?xt=urn:btih:F5C0A8C7D8A68945B379F18E3C4B18646D2A9D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chroma Squad – тактическая ролевая игра о пяти тр
 ```bash
 magnet:?xt=urn:btih:FDA1C259B6555B0A75A541C79D3EE1065C77F4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Car Mechanic Simulator 2018 - All Cumulative Patches (2017) [Ru/Multi] (1.0.0-1.
 ```bash
 magnet:?xt=urn:btih:3F8426DF8C8AAB4E2C715464435E9965752F659D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

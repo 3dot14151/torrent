@@ -19,8 +19,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack dix
 ```bash
 magnet:?xt=urn:btih:C320B794CB0D1CBF12B786BC836737BB09D19D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dig For Riches (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:70D33FE09B7AD9F85478E0D82DE5482E2E00333F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mineral Mining Simulator - симулятор про добычу и перер�
 ```bash
 magnet:?xt=urn:btih:7654A58A0E5ED8E66E6F97A3F39E36D931BF9919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RetroSpace (2026) [Ru/Multi] (Build 6499) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:9CF68DAAD31354BE09FE5BAF2D483B3A9E75AC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Gah! (2024) [Ru/Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:8885D1A15222D5E8B26FC599CE95A1EB75856801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Police Chief Simulator - симулятор начальника полиции,
 ```bash
 magnet:?xt=urn:btih:8121A9972FD10916180DDA9C44130F1AC090C848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

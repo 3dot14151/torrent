@@ -19,8 +19,7 @@ PointerStick 6.35 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9418C9D4C9E3F3A969543E23F6B672EE0EDE2BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

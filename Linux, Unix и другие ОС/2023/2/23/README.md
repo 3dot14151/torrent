@@ -22,8 +22,7 @@ MxUntu 20.04 [x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:90094B191672B3677B929A0CDF1F04C654C58FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

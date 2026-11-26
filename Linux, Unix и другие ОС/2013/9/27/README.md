@@ -21,8 +21,7 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ```bash
 magnet:?xt=urn:btih:FC4BE86B3D38A99CE9C0A856FA7765E295BFD5DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

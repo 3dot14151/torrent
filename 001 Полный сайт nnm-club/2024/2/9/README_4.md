@@ -18,8 +18,7 @@ Sticky Notes: Easy Note Taking 2.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:BECCA839D5EB3D3B0AD4220A58221ACBA9DC0473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Abdullah Ibrahim - Voice Of Africa (1988) 1998, Camden [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:7D2B8FC624FE4785FD2DA2B4EBE3D3A13E75B9D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Middle  просто добавляет возможность сделать «
 ```bash
 magnet:?xt=urn:btih:DFEED28118349335ABE952C142C212DB4AA365ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Iko - Album Three the Music in Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:773725AB7E364E7B25E2F906DD287F4C24E833FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E3B7434E3E4551E390FCDCAC642CED08C27732E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:A979CFFE033B110D38401FEF04135C406F244D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75CAAA14A5773DEBDA694A1FD8B62D41A63A109F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ TextSoap для Mac OS - Поможет подчистить текстовые 
 ```bash
 magnet:?xt=urn:btih:A4BE43F475D653E44BB27E6E5DF65F06789278BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Mimestream сочетает в себе мощь macOS с расширенным
 ```bash
 magnet:?xt=urn:btih:E3A810B7AC9E25232D6B4816927DC2F89CD9CDA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2981A66D6651402E41EBB552EDDD783DA998E8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Clipboard Manager 2.5.2 [En]
 ```bash
 magnet:?xt=urn:btih:E2B5AAF03D3B91DE22DF7CF2FEDFF080E4C992C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:68910A566027D02CA075D5C8FCA90522101FE209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ A4 Within Me(   Читать дальше...   )Жанр: Gothic Metal, Rock, Al
 ```bash
 magnet:?xt=urn:btih:EFF61C18CE046F4AF6EC1951C909EA2384DB6A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2298405372BEA8B3605CF570A43B8AB88B55DCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

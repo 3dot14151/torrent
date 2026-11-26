@@ -19,8 +19,7 @@ Wise Disk Cleaner 11.2.3.843 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:134B46AA4B03AB4040D73D094957170115E32214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tixati — это полноценный и бесплатный клиент с
 ```bash
 magnet:?xt=urn:btih:7F30899CC7007D00D4036CE4C3E69DB78C1DC2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:27448AD9D92653775B78A346287ED0FA1140D83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Etcher – простое и надежное приложение для зап
 ```bash
 magnet:?xt=urn:btih:C9FAD64E117621C35DAC7E2E2CB7565C5138C2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:C0B337C0052F160B15F8F08DC6C0A6B1A8728048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ pdfFactory Pro - удобное приложение, представляюще
 ```bash
 magnet:?xt=urn:btih:D28556AE96C0A415B428ACE9B014E6751AB62CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Draw.io 27.0.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:755EB2547327B01447F00C7AFA1DD674F2ED7AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

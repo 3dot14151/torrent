@@ -19,8 +19,7 @@ NewPipe v0.27.3 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B937B69AA78DA873216C4C1366FBFEDF2950B793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:5DE9D51B582ED1BB25D6A6C29EED710280CB4D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3C44B92921850CB1D7C7C1C8C9FE3F5BFD4849C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4E8FF8EF613C16A4F58F446F071DFAE198F1DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

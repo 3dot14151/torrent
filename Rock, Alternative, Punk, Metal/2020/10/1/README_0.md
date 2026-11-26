@@ -22,8 +22,7 @@ TesseracT - Polaris / Errai (2016) 2CD [FLAC|Lossless|image + .cue] <Progressive
 ```bash
 magnet:?xt=urn:btih:30D18966B941D48E214DBFBA907EA36E68F02A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Celestial Bloodshed - Cursed, Scarred And Forever Possessed (2008) [APE|Lossless
 ```bash
 magnet:?xt=urn:btih:212B519115CABC7BBCBCDA618DD00A25E7EFA272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Taxxi - Collection (2020) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:45168E028DC85D49241D20D25FA2CC2BF435E48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wolfs Moon - Elysium Dreams (1999) [APE|Lossless|image + .cue] <Power Metal, Hea
 ```bash
 magnet:?xt=urn:btih:F5023B1E92794207ED251B48ECED85FC6AB3F0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Intense - Songs Of A Broken Future (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:04F1C0DF53D6E593103A0BEBEDE6FA0068411317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Carach Angren - Franckensteina Strataemontanus (2020) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:84550F56538FCC0B1D5BD68B5F651676E1F7C2ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dawnlight - Until The Dark Sun Rises (2019) [FLAC|Lossless|image + .cue] <Power 
 ```bash
 magnet:?xt=urn:btih:607E02169E68ED2F5642818A1553ACAB44FBA427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Legion Of The Damned - Malevolent Rapture (2006) [FLAC|Lossless|image + .cue] <D
 ```bash
 magnet:?xt=urn:btih:4270D32EEA8537091D14E037E518C2C74DF1E5E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Fairyland - Osyrhianta (2020) [FLAC|Lossless|tracks + .cue] <Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:D7562F2480BD4B1BF22DD97BBAE75B5F7C4C4DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ DevilDriver - Dealing with Demons I (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove
 ```bash
 magnet:?xt=urn:btih:FA39571871ECF713D2B5E9866027A6B9DF876920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Heathen - Empire Of The Blind (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5737C534077AB8E0FB23900BF3BFDFD6BAADD20D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Cyanide Grenade - 2 CD: Quintessence of Death / Kind Of Virus (2017-2020) [FLAC|
 ```bash
 magnet:?xt=urn:btih:9F069EE49BFD2E81C4083B32E80AD8773B7AB810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Corey Taylor - CMFT (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:7C4AC8D39BCDF3473BCFEEC185628C1B5D1F8EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:1E720A8A509AF4D841EAA88E47F33E87F778FDF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Amaranthe - Manifest (2020) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Melodic 
 ```bash
 magnet:?xt=urn:btih:ED4C970407BE60523BF4F964C7E720ED7EAE63AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Amaranthe - Manifest (2020) [MP3|320 Kbps] <Melodic Modern Metal>
 ```bash
 magnet:?xt=urn:btih:D464641A63F84AF1720D4A80422B75FD7838403F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9F78F1DEEB9731FF0C934C4C139C664768CDDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Bon Jovi - 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 ```bash
 magnet:?xt=urn:btih:0F706E2905394B438067C2F0A4B4A366089A1393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Robert Plant - Digging Deep: Subterranea (2020) [FLAC|Lossless|WEB-DL|tracks] <C
 ```bash
 magnet:?xt=urn:btih:8F77778412064557994A80815FC8D5E659FE9EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Louna - Начало нового круга (2020) [MP3|320 Kbps] <Alternative 
 ```bash
 magnet:?xt=urn:btih:9B57F4F1824997116D60FBA7946A2323FADAF7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Bon Jovi - 2020 (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:184373691902F30B2DC5BB98CADC1B08E08901ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

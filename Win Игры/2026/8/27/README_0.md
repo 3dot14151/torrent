@@ -19,8 +19,7 @@ Risk of Rain Returns - это культовый roguelike-экшен, кото�
 ```bash
 magnet:?xt=urn:btih:C7D539B70A4C930A02C6CA32254CAE54FA7B0D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tennis Manager 26 (2026) [Ru/Multi] (6.0.483) License GOG
 ```bash
 magnet:?xt=urn:btih:18D155515CC95546607ED1075DF5D8E2B250CEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (2.0.4071) License GOG [P
 ```bash
 magnet:?xt=urn:btih:55790CE2C78D5607FB33E9A247E2A8B96CF32641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

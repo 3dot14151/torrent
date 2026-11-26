@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:ED43448F2D4B22CA8FF918FFAAF64E4CEA51CD34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Microsoft Office 2003 Professional — исчерпывающий комплек
 ```bash
 magnet:?xt=urn:btih:1F9B0E0EDED06F74BF9CA2D3BFBB0262B779BCB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ TeamViewer 13.0.6447 RePack (& Portable) by elchupacabra (7.01.2018) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:26FF00B0E4E1000FED23A0512BD48F14347E9079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:746915EE0A264C6DC318B95672C9D35E7C29EC92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB862DF62D0D1F9D9017A095CA0A24E40E6E0CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Wolfenstein®: The Old Blood – предыстория игры Wolfenstein®: 
 ```bash
 magnet:?xt=urn:btih:86D8343E2E19AB7CAFC5B7E0248C6B2A61806290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Acronis Disk Director Advanced 11.0.12077 (RU)(   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:DC4C668228A0F19A03EB85FCF1C244C466A8ED9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ BELOFF 2018.1 Lite [Ru]
 ```bash
 magnet:?xt=urn:btih:851B3FBB12987096162EB966D299655BCDF5D9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:C73D94BC8F9B65DD49E290C22E81C8B2C4129E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4CC14679B14B4495441D5ECCC5D30C2C345CA00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Life is Strange – эпизодическое приключение, собы�
 ```bash
 magnet:?xt=urn:btih:9A24814F42A9FC006E3B6D3542394FBE6492C928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

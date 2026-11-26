@@ -19,8 +19,7 @@ ElevenClock — это бесплатное программное обеспе�
 ```bash
 magnet:?xt=urn:btih:CE7E473283C9E639AD79D0A39FA3390420B30E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

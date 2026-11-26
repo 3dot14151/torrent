@@ -27,8 +27,7 @@ Lyn Stanley - Lost in Romance (2013) [MP3|320 кб/с]<Vocal jazz>
 ```bash
 magnet:?xt=urn:btih:22EE9C0FCCC98A3958697BDA48E7F26898CDE584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3764395B26E116D2D262F2820B43B39002AECEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Mat Zo - Damage Control (2013) [MP3|320 кб/с]<Trance , House , IDM>
 ```bash
 magnet:?xt=urn:btih:D2ECA83F605EE812B56204FC09F068DDEF2AD07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB3A3500F7F1D24CF88D87307A34D80F5C3801AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Hypocrisy - A Taste Of Extreme Divinity (2009) Limited Mailorder Special Edition
 ```bash
 magnet:?xt=urn:btih:38364948422ED0462BB49F80F9A8FC6DDBC160BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ FreeFileSync 5.22 (& Portable) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:59719897803B3F570CAB5E69E490E011FD263F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Symphony X - Paradise Lost (2007) [APE|Lossless]<Progressive Metal, Metal, Symph
 ```bash
 magnet:?xt=urn:btih:C9E96025DAA3B15733E65775757B7A5263EAB649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:4F988EBF43B2F5FC55409BC3EEE4D030FC984F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00A28C4444594BE72BBCB809EF64B6F798ED75CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:042AB23314E09CD8F3DABA39E8D470638869AFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B57CEAA524CA986BC9D0A6055F7CB04F8E493EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:8C3C94584B0B5721F6D7FA3C9D404B326D6B19DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ Jessy J - Second Chances (2013) [MP3|320 кб/с]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:1D00B426A33BDBBCE2AF49DC9FF67CBC744EDA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ Coney Hatch - Four (2013) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:607C421EC3314B22C2EF8F1A32A26155BDCEAA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F49ECA334EEDCCE5E2288DBA13BD6804E01F1B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ ViewFD — компактный, простой в использовании и
 ```bash
 magnet:?xt=urn:btih:1DFBB9A29669E4308BE423827E9FD5E3858BC99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DE4A4D75658394E609DE4797A4621470C084755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28A8C2CC5C112527C6C6FE70C5F69EFC6A61E128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB6066CED14755C5B3BE9165099BA9890749832F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ Light Image Resizer - многофункциональная программа 
 ```bash
 magnet:?xt=urn:btih:9C9EF858869CEBB7344BE93157B68727F24211C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ VA - The Best Of Italo Disco vol. 2 ( Mix and Compillation by DjRicco) (2013) [M
 ```bash
 magnet:?xt=urn:btih:AC5DB201AA7B032711CC07644D1CE68294312F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +650,7 @@ History Channel: Ледовый путь дальнобойщиков (Сезо�
 ```bash
 magnet:?xt=urn:btih:B64380C9E86641B4B1BF7B268D9DD1F3F2A3FB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ Arc Angel - Harlequins Of Light (2013) Japanese Edition[FLAC|Lossless]<Rock, Mel
 ```bash
 magnet:?xt=urn:btih:BD080E3EBE954DDFE0B7A41CE1D1D34E1C096EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70ED8C532FF1A3BD51B1EF2499CB8169D65B2FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F9518D47023671AD460D0E7C9EB873FDC53E5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

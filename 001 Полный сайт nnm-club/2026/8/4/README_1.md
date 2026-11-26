@@ -21,8 +21,7 @@ Charli xcx - Music, Fashion, Film (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hy
 ```bash
 magnet:?xt=urn:btih:6926C7AEF7A6781AF5865E2340066343C6069ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Charli xcx - Wuthering Heights (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, 
 ```bash
 magnet:?xt=urn:btih:59651F35FA46A7A479D469366980F375D36B2BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Stive Morgan - Uran (2026) [MP3|320 Kbps] <New Age, Ambient, Electronic>
 ```bash
 magnet:?xt=urn:btih:58415E0AFAFE5E5E895005DAD70320F0C06FD21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Chiron - The Best Of (2015) [MP3|320 Kbps] <Alternative, Avant-Garde, Darkwave, 
 ```bash
 magnet:?xt=urn:btih:4FCB0B2028E834E43FF5BE46012B43B1DB3C3AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ CD2 - Bleed (2004)Жанр: Alternative-Rock, Coldwave, Goth-Rock, New-Wave, Pos
 ```bash
 magnet:?xt=urn:btih:B1B492144EA3E475C0853128B24A856541E31391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ AI - No Name Compilation Simply Listen Music SoulBlues Part 96 (2026) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:093909D194B135087D4EA8D2F4CC5532DD7223F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ HIARCS Opening Book (2023) [En] (15j) License
 ```bash
 magnet:?xt=urn:btih:96343534EF75429D8234614EDF67551606641342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29B43F149F506E8A2104684C40AF8E145A4FE9C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - Live @ Tomorrowland Winter, France (2026) [MP3|320 Kbps] <Tech House, Melod
 ```bash
 magnet:?xt=urn:btih:7F3953FD5C4B1C0B35A9C14B28AEE99F2A255F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ OCCT 17.0.14 Portable [En]
 ```bash
 magnet:?xt=urn:btih:455F1A400A3EB56027A140F6E607BBCCD4A53022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1FC36BC461B5EC4834E493CBB3D37E9085166E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ OTUS, Илья Сикорский и др. | Unreal Engine Game Developer C++. B
 ```bash
 magnet:?xt=urn:btih:882202CE056A4D384E55E95ED416C957705E9281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Adobe DNG Converter - удобный в использовании инстру�
 ```bash
 magnet:?xt=urn:btih:B260DAC6A321BA8BBFEEE17B36CF573C330A33D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

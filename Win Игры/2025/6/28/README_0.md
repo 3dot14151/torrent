@@ -19,8 +19,7 @@ Liminal Shift - это уникальная атмосферная игра в �
 ```bash
 magnet:?xt=urn:btih:79B6C74D328EC96AFE934379CF17623D9806ABB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.3/dlc) Repack FitGirl [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:17B2361DEB763177EA846059E32A231843198A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Boxville (2022) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:ED78109628AA034AB6B02893C21CED62F85A8CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Crown Gambit - сюжетная тактическая игра, в которо
 ```bash
 magnet:?xt=urn:btih:2F4BFA7ED7AB5F9226A72BE7CFB8F1F894315AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Nanomon Virtual Pet - это возможность завести неболь�
 ```bash
 magnet:?xt=urn:btih:CCCFA23008D2A4ED1D2314FEA12D8894EF97B010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ PC Tycoon 2 (2024) [Ru/Multi] (1.2.8) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:D23EBDD7D1CB7789F71927AAB9DA66E26EBB06AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Boxville 2 от Triomatica Games - это следующая часть прик
 ```bash
 magnet:?xt=urn:btih:EC422683A9FEEADBE75566C0B0829BA86513CA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124610) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:561B2EC17EE96F2E1AB0B13E9B82D0C470F824F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ THEMIS (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:18CC08E43E7EC392EBD3A1FE81DF498360F12D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ B4. Radio Station  [5:28]Жанр: Space Rock, New WaveПродолжитель�
 ```bash
 magnet:?xt=urn:btih:A236AFD3BAA0C34C9CD532858BCD7B550EFCECBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ B4. Freedom [5:01]Жанр: Space Rock, New WaveПродолжительност
 ```bash
 magnet:?xt=urn:btih:2F7ECFAD5ECC9798AB581906B0EF9E1246875165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

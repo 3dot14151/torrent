@@ -22,8 +22,7 @@ Disperse - Foreword (2017) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:390745132F7CBBE4E73E8F3EB2813920719020D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E86633A537644D09F62FFA5F7CE9BA44C10EF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bush - The Best Of 94 - 99 (1999) Compilation, 2CD [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:2C065517DE0C483498829982BFB11A6026E14E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Harry Nilsson - The RCA Albums Collection (2013) 17xCD Box Set [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:3E1895F56A3E6DC6BBF12CCBA3A35A2661AA3FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

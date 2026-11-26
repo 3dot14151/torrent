@@ -22,8 +22,7 @@ Mnstrgry - Way Out (2020) [MP3|320 Kbps] <Metalcore, Female Vocal, Prog.Metal>
 ```bash
 magnet:?xt=urn:btih:8304A1EBD59010205D7CF5FA89D60D44B140708A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mansions - Big Bad (2020) [MP3|320 Kbps] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:A8BF189B43253D2ACF76D394BB56FF1F2F226DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Everase - Go For Broke (2020) [MP3|320 Kbps] <Metalcore, Alternative, Post-Hardc
 ```bash
 magnet:?xt=urn:btih:7CBC4DC1C767BEF00044901DA7CA123A71EC2ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

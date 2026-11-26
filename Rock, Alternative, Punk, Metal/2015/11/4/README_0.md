@@ -22,8 +22,7 @@ Morly Grey - The Only Truth (1972) / 2000, Akarma / [MP3|320 кб/с]<Psychedeli
 ```bash
 magnet:?xt=urn:btih:4A4C9D507EAFB51278A3A82D9B0CC624AE4EF6A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jana Kramer - Thirty One (2015) [FLAC|tracks + .cue]<Rock, Country Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:BA3FAEFF1C4DC621126B97D60F28EA291C119BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E793C0D001D675B5B87FEA8D4960A48FADB208C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Coheed and Cambria - The Color Before The Sun (2015) Best Buy Exclusive [OGG| 43
 ```bash
 magnet:?xt=urn:btih:F76FCF781BBEA2866DBF965A8F64EC5B233DC260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Moody Blues - Every Good Boy Deserves Favour (1971) Remastered /2007, Thresh
 ```bash
 magnet:?xt=urn:btih:168A5E0E38C3B35F825D93C57C8B54B0E8B09998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD70440A998B9C5238F0B5C22C9006CEB5F0547F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6920FBBC5E6D20FD7CA1E4F04DF1B5BC77618C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

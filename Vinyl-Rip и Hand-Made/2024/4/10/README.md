@@ -22,8 +22,7 @@ A4 Hold On(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalП
 ```bash
 magnet:?xt=urn:btih:06A1ADDB93E540F98C41D3907E4604ADB9190AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Villemann(   Читать дальше...   )Жанр: Viking, Folk MetalПр
 ```bash
 magnet:?xt=urn:btih:803909040C1D0BD7241CE5C5CCE490680BBB9E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

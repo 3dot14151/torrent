@@ -19,8 +19,7 @@ Tronic – это незамысловатая аркадная и очень и
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jim Power in "Mutant Planet" [En] (RePack) 1993
 ```bash
 magnet:?xt=urn:btih:6AD43DC920FC5E6AD4EBA970BEB0018565593FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Jones in the Fast Lane [En] (RePack) 1992 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Wild West World [En] (RePack) 1992 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Dominant Species [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:E991898B4E395C0A11BC1DA86DAACB3C30E7A467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Jane's Longbow 2 создан в 1997 и по-прежнему остается 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Star Wars: X-Wing Alliance [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:014B975A2FD41E3EA239E69DE63A1EAED51D2356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ System Mechanic Pro 18.5.1.208 [Multi]
 ```bash
 magnet:?xt=urn:btih:1C8A6DC78EEF3612327D943CABCB71C779D898B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

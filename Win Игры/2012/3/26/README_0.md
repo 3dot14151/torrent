@@ -19,8 +19,7 @@ Coloropus (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:598D1A0769599CE96CE069BD3553E673FF5E98D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ PhysXFix для Batman Arkham CityТребуемая версия игры:  1.0
 ```bash
 magnet:?xt=urn:btih:AAF6A798B4634EB4135C318F521777811611D518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Gatling Gears [Ru] (RePack) 2011 | Naitro
 ```bash
 magnet:?xt=urn:btih:381477D0AC66BFA5C84162EC25DE993D3B118FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition / Тайны др�
 ```bash
 magnet:?xt=urn:btih:98E38698530DAC851304D872D6A9CF132601B978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

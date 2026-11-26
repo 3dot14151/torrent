@@ -19,8 +19,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.13.2.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:0EFDF287E13CCA52C352A8E26E72BBE3393470D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.15) Repack R.G. Freedom
 ```bash
 magnet:?xt=urn:btih:89A9444282DC5A64E0C395CFC70806263A957D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:ABA9CCA534E8A5D323530383CD629FCE4814C79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Montezuma's Revenge: 40th Anniversary (2025) [Multi] (1.0/dlc) Repack FitGirl [D
 ```bash
 magnet:?xt=urn:btih:75BD34719E5215255D12D3CC405E9FE58DD007A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

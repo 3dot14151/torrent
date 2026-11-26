@@ -19,8 +19,7 @@ Adobe Premiere Pro - это мощный, настраиваемый редак�
 ```bash
 magnet:?xt=urn:btih:D5DF7DF75F5C77C4EBE8B8DB1809689143D90468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC4623D68D348706221BE560845675089BFEB0CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

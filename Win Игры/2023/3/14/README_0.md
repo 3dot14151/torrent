@@ -19,8 +19,7 @@ Barotrauma — многопользовательский (с поддержко
 ```bash
 magnet:?xt=urn:btih:A716516564FCC1149563F2529541CF4B8ADBA60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

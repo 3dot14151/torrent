@@ -19,8 +19,7 @@ Colossal Cave - это классическая текстовая приклю�
 ```bash
 magnet:?xt=urn:btih:2453EC3618A19AFC83919B1157A2033A8F5863A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Islanders (2019) [Ru/Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:3ACAB0E0C015408F0B1BCB71A472AE03FD1CAEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

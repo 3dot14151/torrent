@@ -19,8 +19,7 @@ Showgunners (2023) [Ru/Multi] (1.1.2_58602/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:03E1ECB0FC4C78783C4AF796268EBBF2FE5B6A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6411/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:E0EF508844ED30521FCEB167AE8F33022801A802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Peaks of Yore - захватывающая экшен-адвенчура, пог
 ```bash
 magnet:?xt=urn:btih:3FBC1C67B91675E44CF9D7ACA1C8ED327DA52239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ghost Trick: Phantom Detective приглашает игроков в мир з�
 ```bash
 magnet:?xt=urn:btih:AB34258CB7A22D02A798756BA3493285C6AA56A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

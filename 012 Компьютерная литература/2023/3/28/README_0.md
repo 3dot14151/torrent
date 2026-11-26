@@ -19,8 +19,7 @@ Joseph Hocking | Unity in Action, 3rd Edition (2022) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:412296D86E8BA0C96E6CE37156D9DC3A1E65D5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ BioShock (2007) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:95996735210C35ABDA944F1E6E55B00278FE52B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ CoinSnap - Value Guide v1.2.9 [En]
 ```bash
 magnet:?xt=urn:btih:17B9C0A51B43B97AB32E8845A8FC6D80EC8DF7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ HD VideoBox Plus — это самый крупный онлайн киноте�
 ```bash
 magnet:?xt=urn:btih:62B2E04453A20023247ADC1B4DD0EE603DCC71A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

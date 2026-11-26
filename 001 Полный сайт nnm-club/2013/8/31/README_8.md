@@ -18,8 +18,7 @@ Radmin - одна из лучших программ удаленного адм
 ```bash
 magnet:?xt=urn:btih:5C512A7599BD2C99E2E3376893AE1E03276D17C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04E63F6A16C0B1826D1B2620B31978A5DAA95DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDB8200AA5D24E29F1E86F9E7A26F68FBFEC0080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ SketchUp Pro является профессиональной версией п
 ```bash
 magnet:?xt=urn:btih:BB7A14F82BE6E354B1695CB2D6C0A383CC76047B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Cinematic Mod — прекрасный способ вспомнить заме�
 ```bash
 magnet:?xt=urn:btih:61525B1D7F3362ACC16284747291E375DE29A68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B12312B7A87D10E67744C0F2AEED63367E6F99A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Windows 8.1 x64 x86 Lang Packs by WZOR [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:630526A01E337BEDF5429696204799D9FEA4F59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ CorelDRAW Technical Suite X6 включает ключевой инструме�
 ```bash
 magnet:?xt=urn:btih:E2F508966BC0D7E852481FEDC98CF423D63DB79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Windows 8.1 (ранее известная как "Windows Blue") являетс
 ```bash
 magnet:?xt=urn:btih:BBF3EEBB8038587160EB5CC25A9B01B20D59455A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Microsoft Office 2010 предоставляет удобные и просты�
 ```bash
 magnet:?xt=urn:btih:B2A0D45496B57BCC2B1367DAEDD922425AEDCFC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

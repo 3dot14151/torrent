@@ -23,8 +23,7 @@ git используется во многих крупных проектах: 
 ```bash
 magnet:?xt=urn:btih:3474614B96694D53F98E5D5973F3B5638D6AAC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ DesignArts | Большой сборник уроков (34 урока) [2012] [
 ```bash
 magnet:?xt=urn:btih:F22E0390C0DF89C8CB64E2909F6942A35F08818C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

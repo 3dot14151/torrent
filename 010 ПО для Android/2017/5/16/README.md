@@ -19,8 +19,7 @@ MyPhoneExplorer Client 1.0.43 + 1.8.8 PC [Ru] - Синхронизация с П
 ```bash
 magnet:?xt=urn:btih:506CB8488B833F7984925FFDDAA9DAC86D44B87F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

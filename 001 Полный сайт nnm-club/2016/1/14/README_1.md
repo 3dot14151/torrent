@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:69984153A25E49184404C92C43D82FAE6ACD77B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC447BCCD986606646095AAA152A2808F37788A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F45049CDA90F623C77B317CF1EE8CEA38CD459EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Thunderbird — это бесплатная почтовая программа,
 ```bash
 magnet:?xt=urn:btih:F68F3AB017FC6BA9EA4A7558EA201C23D3AFE721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Tungsten - это браузер который разработан, чтобы
 ```bash
 magnet:?xt=urn:btih:8D9D98B5B2D2D7FF8B740CA0689D8E92909703C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BF98743F99D379CE85F22BBD89FBD9458066AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Fantastical - приложение представляет собой кале
 ```bash
 magnet:?xt=urn:btih:726B7985594A0E277DD580B6D9D1A6D512B48ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Julio Iglesias - La Carretera (1995) [FLAC|Lossless|tracks + .cue] <Ballad>
 ```bash
 magnet:?xt=urn:btih:D909E52CBEF9BEA951870F33B5B1288D99D2AC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Ray Brown, John Clayton, Christian McBride - SuperBass 2 (2001) SACD [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:22C45B99A4A78419866CD1E975DA2FB243505FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A12BF1A5E8345DC0AC4A33EC16DDEF849D5D4830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:199CC18536F99CAE712BFE56714CFABA40AB60CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:377206100D07FDC6F81EE82482D1CAF454DF72A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CDDF5EF93E6A3AD8C38CF1E82E9762E5A8C0200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Julio Iglesias - Crazy (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, Chanson,
 ```bash
 magnet:?xt=urn:btih:A035800CB88232DDBAA1B603AF6462CC6DB2F22D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ Axel Rudi Pell - Game Of Sins (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CFD4D87EA81667150B8181624B921BE02550DE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62D599B5E5AC7B8E308739CC80D60F99CAD1A1BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Garmin: City Navigator South America NT 2016.30 [En]
 ```bash
 magnet:?xt=urn:btih:96E760CFB84A9DF688BF0BBA30EBBC9A9BE44EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Vox - небольшой и очень простой в использован�
 ```bash
 magnet:?xt=urn:btih:7AAEEC6B70D034C0DF3993AAFAC81E24406026D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77912F3F6E4DB7F80EFAB7A12C45BC459E27E8F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ Garmin: City Navigator Southern Africa NT 2016.30 [En]
 ```bash
 magnet:?xt=urn:btih:69A0C190FE911C421717F9B5BFA3A7C7687874F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ VA - Зимний Горячий Best-Hits (2016) [MP3|256 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:95F6B957A24821BE85F7FA2CC0417EF87F9AACA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFD2804564CEDFFD3C4819D384F1A872756D39E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ Julio Iglesias - Tango (1996) [FLAC|Lossless|tracks + .cue] <Ballad, Vocal, Tang
 ```bash
 magnet:?xt=urn:btih:D5F4BD3A11BFD6348A0390CCB88271C1B36057DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ Etotama / Eto Tamashii / История одной кошечки [2015, TV, 12]
 ```bash
 magnet:?xt=urn:btih:D8EEE695C548A8327AB366A35D7F9A9ED40F9170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

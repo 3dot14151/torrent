@@ -20,8 +20,7 @@ Octave — атмосферный поинт-энд-клик хорор от н�
 ```bash
 magnet:?xt=urn:btih:D784A1EB29BD9812F8F6ED25155590D07F8F90C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

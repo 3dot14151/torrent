@@ -19,8 +19,7 @@ INDIKA - игра от третьего лица с историей о стра
 ```bash
 magnet:?xt=urn:btih:5FBD419F8957BBCF71D5F479AFBBC04E082DB499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Undead Inc. бросает вас в жестокий мир медицинск�
 ```bash
 magnet:?xt=urn:btih:09DCD09364C8C1283869362BC769E699FB899CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ruindog переносит вас в причудливое будущее, гд
 ```bash
 magnet:?xt=urn:btih:00B026490656F6F6BA4B6B50202C4168885C5C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Braid (2024) [Multi] (0.444) Repack FitGirl [Anniversary Edition]
 ```bash
 magnet:?xt=urn:btih:58ADB898CB057FEACA0721889ED4B7068845CA6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Little Kitty, Big City позволит узнать обо всех трудн�
 ```bash
 magnet:?xt=urn:btih:409BA173D05F250B791C16CE66E257BE5B54D23C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Class of Heroes 2G: Remaster Edition (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0BA8581FDAD30BC320FEDC34167FEC7DD685D8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Astro Pig – в этом незабываемом лоу-файновом пр�
 ```bash
 magnet:?xt=urn:btih:52C625306E525C7A1D3C7CF48EA494FE591B4572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

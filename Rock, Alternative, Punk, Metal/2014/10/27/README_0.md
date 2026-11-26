@@ -28,8 +28,7 @@ Jimmy Buffett - Christmas Island (1996) [MP3|128-320 кб/с]<Christmas Rock>
 ```bash
 magnet:?xt=urn:btih:1839E1E2A6B1B8DD13EEC6AF9821B565DE7072F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Guadana - Deryaz (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal >
 ```bash
 magnet:?xt=urn:btih:FDFA2CDE490BC89386128D00EE19C4ECF39609E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Deformity - When Tomorrow Comes (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1972D87DCA8E42DEACF5C430803C14016DC62F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:9E55A06909AA85A70C0ADEF8A1FEF35E62ABD0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Everything In Slow Motion - Phoenix (2013) [FLAC|Lossless]<Post-Metal / Post-Har
 ```bash
 magnet:?xt=urn:btih:F94CB0C91D2C3F09F959CD063BAA08800E4C37BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Sister Sin - Black Lotus (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8DAE56A58B9EC94CDA3B4A638CC44F944987C554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Grand Funk Railroad - The Millennium Collection (20th Century Masters) (2014) [F
 ```bash
 magnet:?xt=urn:btih:0228FED6BF8C4E8E2FB69D9AA84F7936C1740D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Pink Floyd - Cosmic Music (1997) Bootleg [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5037263C6183E8DCDFD0C28049985929E9A87ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

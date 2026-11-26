@@ -22,8 +22,7 @@ Celebrity Sex Scandal - The Fundamental (2020) [MP3|320 Kbps] <Avant-Garde, Prog
 ```bash
 magnet:?xt=urn:btih:04A789C32D9C00536A64C557BF6C80162E7F03E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eternal Champion - Ravening Iron (2020) [MP3|320 Kbps] <Epic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7EE5E1495F78897029CF8E32AF2C73CD420EA404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ADE7846177EEE71E24083A53527DD134FF472C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D75C876F37D4B7116B390CB10EB73301FCA325E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Lords Of Black - Alchemy Of Souls (Part I) (2020) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:7E0B824D15F05E1F1376E523E71921280E278D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2086A7F1E4A2E039706D4E36C69873F902B31561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:995F21E35652CE78048459CFB59691FE1B49961C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Tony Carey's Planet P Project - G.O.D.B.O.X. 4CD (2014) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:487F9EDEFA0AA07C500D5FCC89C03E96914F057B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ AC/DC - Johnson City 1988 (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6B4B5115142AD3D9AA7298A09A50893313BB76FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ ReVamp - ReVamp (2010) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic M
 ```bash
 magnet:?xt=urn:btih:856E7EA4655C45279C5A2F28A06888163735090C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Great Wide Nothing - Hymns for Hungry Spirits, Vol. I (2020) [MP3|320 Kbps] <Pro
 ```bash
 magnet:?xt=urn:btih:F0ECCD17A1177269EF88CADFA71771655C93DCE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ VA - The Devil's Blues Christmas (2015) [MP3|320 Kbps] <Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B5D7B88A7264006065B4E699500FBF6159848BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ ReVamp - Wild Card (2013) Limited Edition [FLAC|Lossless|image + .cue] <Symphoni
 ```bash
 magnet:?xt=urn:btih:673C3731B47E370ED02A12CDD71483BFA9A6F560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

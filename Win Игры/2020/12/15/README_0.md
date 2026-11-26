@@ -19,8 +19,7 @@ INMOST от литовской инди-студии Hidden Layer Games – эт
 ```bash
 magnet:?xt=urn:btih:98D5E1C69335A52C4ED145CD10140542D20F68C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

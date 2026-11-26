@@ -19,8 +19,7 @@ DjVu Shell Extension Pack x32/x64 7.0 (r24267) [Английский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

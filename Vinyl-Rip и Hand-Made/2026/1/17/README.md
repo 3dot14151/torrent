@@ -22,8 +22,7 @@ A4 No One Gets The Prize(   Читать дальше...   )Жанр: Soul, Disc
 ```bash
 magnet:?xt=urn:btih:721615A9274E06B1F61E1083D7F2C054BB7526E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

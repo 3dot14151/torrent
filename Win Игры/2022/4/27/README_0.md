@@ -19,8 +19,7 @@ orbit.industries (2022) [Ru/Multi] (1.1.9537.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4DC6ABFF6BBB5A3C3540D120761CB868BE1BD147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ X4: Foundations - это космический симулятор, продол
 ```bash
 magnet:?xt=urn:btih:3959276566D0B87535EF220785D29AA0CCFBAA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

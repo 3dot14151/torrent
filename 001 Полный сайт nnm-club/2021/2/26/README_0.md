@@ -21,8 +21,7 @@ Katana Cartel - The Sacred Oath (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:31EDE1BBC6E963D198B7B5408FE754164E3C1752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Mystical Waves: Future House Music (2021) [MP3|320 Kbps] <Future House>
 ```bash
 magnet:?xt=urn:btih:86474F5C990AC11C07BDE2B850A1AAA11A407A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:B978E6ED6B0013D1B92B323F008C6B5EA500ABEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Arabia - 1001 Nights (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9B515510038DEE1E9E3616AF9FA3CF66FF3B20E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Beatport Progressive Trance: Electro Sound Pack #246 (2021) [MP3|264-320 Kb
 ```bash
 magnet:?xt=urn:btih:6392FEEF976014BFA9CA8518CB07B31A6007B814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:CB370C8C2850A75DB39EDFADFF134679B1BF3B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Aeonblack - The Time Will Come (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 ```bash
 magnet:?xt=urn:btih:995370847D35021C4888AE77B679A6F01953CFAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - The Sound Of Illusion (2021) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:85F1D57A52CE51E8E73C6DA1943A440A7C1666E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Septabeat & Sofi Mari - Sundance EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum &
 ```bash
 magnet:?xt=urn:btih:C4ABFCEF8AAA6ABC163664C6E17F0461D22FF021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Kas - Like Sunlit Threads (2021) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Ambie
 ```bash
 magnet:?xt=urn:btih:2BA6EA28AE9A424F1C8101C5C7B13453A58EC424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Ricky Warwick - When Life Was Hard & Fast (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:3F4EE9AC3068E327C00061BBACD0F79189FB06DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Damirat - Pixcurve (2020) dingn\dents [FLAC|Lossless|WEB-DL|tracks] <IDM, Experi
 ```bash
 magnet:?xt=urn:btih:18E5766D222509267FD6CD098CAD438A94037C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Aunt Mary - 4 albums, 5 CD (1970-2020) [FLAC|Lossless|image + .cue | tracks + .c
 ```bash
 magnet:?xt=urn:btih:1A71FB6DE2F0BBC4D07E52CD649F775801928A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Affinity Photo переопределяет границы профессион�
 ```bash
 magnet:?xt=urn:btih:2E2344FCF632EAC22F15BA6715A983DCF0B90079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Microsoft Visual Studio Professional 2019 - полный набор инстру
 ```bash
 magnet:?xt=urn:btih:5730FCE02B6FF35079A6F0576F714059DE268635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2698AEA09331A76F13BA096F7DB61F85FBE7711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 ```bash
 magnet:?xt=urn:btih:B76825C02E4E83BF59C860CCEE982B9E46001F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Nu:Tone - Little Spaces (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B259CFFC480035912F3024386D1BFB46EDE8573E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Capture One Pro один из самых мощных профессиональ
 ```bash
 magnet:?xt=urn:btih:AD85BFCC8432F08515B6D998AC5C9460CA059CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Thundermother - рок-группа, основанная гитаристкой
 ```bash
 magnet:?xt=urn:btih:B0F41EC6D0BE96B734B60009B1F576CDEEE74F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Deflexity - 5 Albums (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Glit
 ```bash
 magnet:?xt=urn:btih:964337DCD1B3ABADF4D3BFC668016142D405B9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Free! Dive to the Future | Вольный стиль! [ТВ-3] [2018, TV, 12 + S
 ```bash
 magnet:?xt=urn:btih:71D8490348C22FF41E4CA92A4210289BBFDADBF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ Architects (UK) - For Those That Wish To Exist (2021) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:E1DBB809115B942647F1B02AB2D8C680C1ECF8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B68C84EE057D68C6B65DECDBEACAE40991E5C108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Visual Studio Community 2019 - Бесплатная, полнофункцион�
 ```bash
 magnet:?xt=urn:btih:0353397CB70CCD8A63FB7C3ABB2199EF5BA73CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:2CC91D4447A4693BEC3F2817790702BF8F242823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

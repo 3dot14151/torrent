@@ -19,8 +19,7 @@ GetFoldersize - программа для анализа использован�
 ```bash
 magnet:?xt=urn:btih:AF602883DD40552E9D292AF81F4A8319D6DDCC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smarty Uninstaller - обновленная версия приложения д
 ```bash
 magnet:?xt=urn:btih:6429D627FB851DA2312339C4271FCA6869ED74BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Scene Rune
 ```bash
 magnet:?xt=urn:btih:04B824EB7EF018B21B8BEDF56C04626DC0811484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NieR Replicant ver.1.22474487139... – обновленная версия NieR
 ```bash
 magnet:?xt=urn:btih:C9CDD12F99A10CCCD2C99DAD346EFDD1E184E055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gravity Circuit (2023) [Multi] (1.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:6522C2C1532227AD0887EA20A425844BEC04896E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Steredenn: отмеченная наградами, представляющая
 ```bash
 magnet:?xt=urn:btih:EB40DD94B1E5C07C119416FBB850236BBB59ACC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

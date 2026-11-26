@@ -28,8 +28,7 @@ Billy Joel - The Hits (2010) [MP3|192 kbps]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:0229B61C2B9513DFFEF4C8783A82708871C0F103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

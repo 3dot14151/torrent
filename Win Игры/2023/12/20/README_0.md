@@ -19,8 +19,7 @@ Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6ED9C24D26E84D94F631F4F66CA0BF1A3CCE6713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:0472126D717BA6F900307CA542F02325701CF8DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:AFEE6827D4C0B7A2B20B21C84826B4DAF69F12A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D6C93BBBFBCBB3587FFA76405B43DA8784EB5132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Divine Journey: The Life of Jesus (2023) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:16AF494B38C19873E705A5A0540022E6D68AA9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Design Buy Build содержит последние новости о прод�
 ```bash
 magnet:?xt=urn:btih:D493E4BF653A58F1BA65D2F1B62094B2AF30C3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The English Garden - журнал для всех, кто любит краси�
 ```bash
 magnet:?xt=urn:btih:35001E2D587DA3CC6622A3E504C5FC127F378391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

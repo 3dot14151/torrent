@@ -21,8 +21,7 @@ Speedtest by Ookla 1.13.194.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6C9C439E899BE0E4350DDA22D4B810A62CBC0DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

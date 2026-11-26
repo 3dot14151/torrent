@@ -19,8 +19,7 @@ Coffee Noir - Business Detective Game (2021) [Multi] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:A2192E1E3994F80DC4844B89435E071E7493BED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ In Sound Mind (2021) [Ru/Multi] (1.01.0916) Repack Other s
 ```bash
 magnet:?xt=urn:btih:60977E824796647679A03CCF2DBF41DE6486AA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

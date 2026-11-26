@@ -22,8 +22,7 @@ D1 Gdansk (Tina)(   Читать дальше...   )Жанр: Electronic, Berlin
 ```bash
 magnet:?xt=urn:btih:5FF1C9A94ADE865987476D01A3875C882A18B7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

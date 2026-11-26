@@ -19,8 +19,7 @@ Mythic Ocean (2020) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1635C79193710E177EFFBD211F5E870F2788E38F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

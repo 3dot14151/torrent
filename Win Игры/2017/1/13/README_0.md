@@ -19,8 +19,7 @@ RoboMatch (2017) [Ru/Multi] (GreenLight Demo) License
 ```bash
 magnet:?xt=urn:btih:B35743E5589A183F8B242A7107BF1FC8609F9467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Dr. Langeskov, The Tiger, and The Terribly Cursed Emerald: A Whirlwind Heist (20
 ```bash
 magnet:?xt=urn:btih:7E22AB1C6F02EB2CD0EFBB3EF4627A1F1D3739A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Don't Chat With Strangers (2017) [En] (1.0) Repack MaggotFreddy
 ```bash
 magnet:?xt=urn:btih:8DEBD5B880183695B78FE5B006FFD7B2B127232C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Poly Bridge (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:29110A034DCF91D6D3450D370BAE7504CA5B7020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Planar Conquest — это глобальная пошаговая страте�
 ```bash
 magnet:?xt=urn:btih:52D5DB6503CD00C48F17D6A6C35771C30194022A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Meridian: New World - это стратегия в реальном времен
 ```bash
 magnet:?xt=urn:btih:E3E90D66FD63CE255329A2D34CCE7F003BA3761F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Stronghold Crusader 2 - это долгожданный сиквел ориги�
 ```bash
 magnet:?xt=urn:btih:A78FEC4DEF21DAC4A285C64F22994D81AAD15939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

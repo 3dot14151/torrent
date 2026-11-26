@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C78E3680DC61A385FC9A77798EF4F4036536B31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5817F80827FD7ECBB5F84C0FAD2034EBBF43A4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Colormania является очень удобным инструментом, 
 ```bash
 magnet:?xt=urn:btih:63E78D093B0E1B9D3FFF2C3D7DCD4CC25EFC995C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ XnView Full 2.13 Portable by PortableAppZ [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0D8825170E9D687AEFB5CE4DC8DE1EA2049765CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (13.12.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:C0DD3A666B46EB91CF11EE518832E92F1CA540BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Meat Loaf: Guilty Pleasure Tour – Live from Sydney, Australia (2012) Blu-Ray [
 ```bash
 magnet:?xt=urn:btih:A0E289EFDE4D7ACD387206A1D6B68D98B3F44F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ ScreenFlow 4.5 (20896) AppStore [Multi]
 ```bash
 magnet:?xt=urn:btih:FA6B634ED466C2D743B83183788194277D8A41A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Any Video Converter Ultimate  - предоставляет пользовате�
 ```bash
 magnet:?xt=urn:btih:C4063EFCF1A9E04F8CB61711904EEE8915C63A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Any Video Converter Ultimate  - предоставляет пользовате�
 ```bash
 magnet:?xt=urn:btih:B5DC316A885AAE44254D72802DF1ACA980B47440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F33A7586E4847F058835906C8E208477CAB28BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:251F6B4A33D85E8BBBCAC12042D15BB55CBF9B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Green Day - Bullet in a Bible (2005) [720p] BDRip
 ```bash
 magnet:?xt=urn:btih:80E76490B3E8932FDB221E4C7CD5D41A8D41B14F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Tint Guide Collection - сборник из 8 графических прогр�
 ```bash
 magnet:?xt=urn:btih:6175D499AC860B5DE10C535A6B8CF62663ABFA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ WebCamMax - продвинутая утилита для работы с веб-
 ```bash
 magnet:?xt=urn:btih:7987D0A4BAC7CBB4C0EB6DE9A37A256D1F330C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24C8DED8F6660334C4ECFD0A6D478E1DA8AF2636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CE40C1F3EA0C470812E9D6EB540E7725CBD1F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84A56B8ADCAFECA64B751B174921BD4DCE81B27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ WinX iPhone Ringtone Maker является профессиональным и 
 ```bash
 magnet:?xt=urn:btih:EA53A3891447FE4DD4EAC517EC1A304C23E656DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16E1C91805D5C9BD926AA93566183548B8A18A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ Dream Hills: Captured Magic / Холмы Грёз: Пленённая Магия
 ```bash
 magnet:?xt=urn:btih:E84E6FF9844C28263C4AA0A02809433C34D74C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72699185AF3CC223B83553053271A90E14AD0AA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F35E119B900F18D18DF8BBA7985D3E4F843AB56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ EaseUS Partition Master — удобная программа для разби�
 ```bash
 magnet:?xt=urn:btih:35941FB85F0A422BA7A940EF79144F6557D7A336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02D962CEC4CC17C0CD430ABA7DCE8C755A6272B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ Oberhausen, Germany. After 45 dates, German thrash titans KREATOR conclude their
 ```bash
 magnet:?xt=urn:btih:13C50F220BC7DC5B837068F2D934B7F48762BD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ avast! Free Antivirus 9 - бесплатный антивирус, работа 
 ```bash
 magnet:?xt=urn:btih:A5065EA7BA8E704333C191B4A56456AF1B7FDE89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

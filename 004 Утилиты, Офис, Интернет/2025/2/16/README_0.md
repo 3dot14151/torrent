@@ -19,8 +19,7 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:0723F88A7A9BC8E2E23D9578C98C302EA25F479F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Change MAC Address – программа, с помощью которой мо
 ```bash
 magnet:?xt=urn:btih:7A9F373BA3C11E71ADC6873C2F630750098AB541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

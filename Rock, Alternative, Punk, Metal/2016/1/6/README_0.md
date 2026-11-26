@@ -22,8 +22,7 @@ Burning in Hell - 2 альбома (2004 - 2006) Discography Japan [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:5F1E5F82AB8B8A368C78BD99D843B4BB955E0F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rocka Rollas - Pagan Ritual (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:48A3ADC58608806CE05C7538F58791414DE04F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kuni - Rock (2011) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3A1CED86DE91F394995ABD2B6F3B734C8A779416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Casket - 3 альбома (1997 - 1998) Discography [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:56D5D2B2B22766C4BEF17BFF2C3D922A72C7E837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Nostradamus - Testament (2008) [FLAC|Lossless|image + .cue]<Progressive rock>
 ```bash
 magnet:?xt=urn:btih:DED78566FED9420FCB66F59E8B8214A9E918E032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Blues Doctors - Electric Gentlemen (2014) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 ```bash
 magnet:?xt=urn:btih:96959A3282A3939F63DCDAE802899568872D485B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ H.E.A.T - Live In London (2015) Japanese Edition [MP3|320 кб/с] <Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:C8209E449F9FCEE83C2CCFB3E9BDDAE33BB92CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Thousand Foot Krutch - Oxygen: Inhale (2014) [MP3|320 кб/с] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:B60924A2C1E896157F9FD26F1A90934EEF638CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Silent Knight - Conquer & Command (2015) [FLAC|Lossless|image + .cue] <Power Met
 ```bash
 magnet:?xt=urn:btih:361E847E8E9610DD3E3CC58263D550F288DEEB51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5355AA65E028F9B9F18C79FDA1FD0932D630D683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Black Rainbow / Тайна черной радуги (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:050D78B6D77AE90D013AD1B61AB30602FCCF8F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Expedition 8: Smithsonian Castle (2014) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:8AD8AF332813F481FBECB23343298125BDE44B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dreamscapes 2: Nightmare's Heir (2014) [En] Unofficial [Collector's Edition  / �
 ```bash
 magnet:?xt=urn:btih:F0F7FC313AE48E2DC13024E265EE8529740A84F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Black Rainbow / Тайна черной радуги (2014) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:B4659B05D768B59D220234092694D65D05EFA04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Manor Memoirs / История Скарлетт (2014) [Ru] Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:660282D7D8838C535A1CD19E9AFD7CF7D3D6ED73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Christmas Stories 3: Hans Christian Andersen's Tin Soldier / Рождестве�
 ```bash
 magnet:?xt=urn:btih:6915D6E705535D5D4361F8A2A0178EDB91547982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Wasteland 2 — это прямое продолжение Wasteland – игр�
 ```bash
 magnet:?xt=urn:btih:5FF4A24071AE2D1D884A513E3C062008D0464512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

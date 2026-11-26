@@ -19,8 +19,7 @@ Doorways: Holy Mountains of Flesh - это приключенческий хор
 ```bash
 magnet:?xt=urn:btih:F71DCE8323CA9C2AB858195216BF68CB2E0142AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Doorways: Holy Mountains of Flesh - это приключенческий хор
 ```bash
 magnet:?xt=urn:btih:768713A7B3C1CD81EF7F7F322F52B9DC36178344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

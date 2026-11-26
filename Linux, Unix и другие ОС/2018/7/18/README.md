@@ -19,8 +19,7 @@ MorphOS — проприетарная многозадачная операци
 ```bash
 magnet:?xt=urn:btih:8FE95160DB83A7D9C9535FE8C87316E7B32853B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

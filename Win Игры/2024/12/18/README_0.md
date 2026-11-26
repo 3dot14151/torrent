@@ -19,8 +19,7 @@ Harold Halibut - созданная вручную нарративная игр
 ```bash
 magnet:?xt=urn:btih:2C85735318385417153D29C2C0772DE406903356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FCBE417CBE4B9FF21318273F580BC71674270800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ No More Snow (2023) [Multi] (1.2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:0AF73EABBAA947C7C5AF37DFBCA197BC2798425D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Cabin Factory приглашает геймеров в мир, где за �
 ```bash
 magnet:?xt=urn:btih:B03F036327E1361255EEBC70D778A2AD2B584838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

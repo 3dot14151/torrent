@@ -19,8 +19,7 @@ FAR: Lone Sails – это приключенческая игра про пут
 ```bash
 magnet:?xt=urn:btih:4D1B959B5FBF7CAD04B1E9ABC2B2974BA2B1B01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Phantasmat 10: Curse of the Mist / Фантазмат 10: Проклятие т�
 ```bash
 magnet:?xt=urn:btih:C65878536056F0FD33B1584FC7618200831B6081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery of the Ancients 7: Black Dagger / Тайны древних 7: Черн�
 ```bash
 magnet:?xt=urn:btih:1D8F773C0D6DB46BBCC4928697DAB3116E755D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beijing 2008: The Official Video Game of the Olympic Games (2008) [Ru] (1.0) Rep
 ```bash
 magnet:?xt=urn:btih:9BBB26863BB08D7D5A653CEE958985CE7E329A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Codex of Victory (2017) [Ru/Multi] (1.0.2mx) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B4BA019BACF7FE4186F5F4283F0DDF6A20F0F036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tropical Escape (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:E4BC8ABAC65CFA6DDD691F2E7524B586C1AD520C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

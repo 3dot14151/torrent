@@ -18,8 +18,7 @@ Amnesia: Rebirth (2020) [Ru/Multi] (1.23) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F2EB2175BC0CC264F64B454689BCF3794ADC1967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5B614786EE7F1EF3643E71034679396BF5E783AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8EDB1B3CCFDA76D2F938B9AC9FD4347BE6C9B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24072952A19FD1B9EE0BAB1BC8A0C4ACA9C3201A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.5.7.259658) Repack xatab [Earl
 ```bash
 magnet:?xt=urn:btih:5117A807D58669986A5067DC7C54B8396ECD8445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

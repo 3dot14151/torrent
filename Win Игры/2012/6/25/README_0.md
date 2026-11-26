@@ -19,8 +19,7 @@ Arizona Rose and the Pirates Riddles (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:FC0B8C386566FB48584339A0234D9797CDA6A5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shaban / Чабан (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:3E0EFA62861DFCE933001EA1E12C46A1248683C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Manor: Lord of Mirrors Collectors Edition / Призрачная уса�
 ```bash
 magnet:?xt=urn:btih:BFC9B845EC6F2BDD82D7CD072C5A4642A2553B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

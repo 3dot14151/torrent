@@ -20,8 +20,7 @@ Screenshoter Mail.Ru 20.10.1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:16E753C5B567AD3AB2AC6129522BF2288ED44313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

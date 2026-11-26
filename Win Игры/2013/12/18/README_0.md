@@ -19,8 +19,7 @@ Mystery of Sargasso Sea (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:A7267AD6024705A3A8D25CCFE04284F87D35B4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mysterium: Lake Bliss Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2197368CE9FBC2B4297637DB9A89FF0513595B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Esoterica: Hollow Earth (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F1C005917EC74958BEBF0262C90650AB2AD07509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Pac-Man Championship Edition DX+ является расширенной вер�
 ```bash
 magnet:?xt=urn:btih:7208F0767F137698D38981FB747ECE5429AD37BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Nihilumbra (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:CC17939B4330B8834FC0D669B1D9F41DFA6B4E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Trine 2 (2011) [Ru/Multi] (1.0.0.4) License GOG [Complete Story]
 ```bash
 magnet:?xt=urn:btih:2F280EFDEF4918F5B1DC63820458B456E3785C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Volgarr the Viking (2013) [En] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:899C7BD421E7C121EB171E20219196B964E842A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Rogue Legacy - Это игра, в которой каждый сможет ст
 ```bash
 magnet:?xt=urn:btih:F64138B6B6EE7374121E6EA0223D944042EEE67B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Dementium 2 - экшен с элементами хоррора от студи�
 ```bash
 magnet:?xt=urn:btih:4EA2C35301BDF8F205D5D6EE72F6E6459F8119D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Rail Nation подойдет пользователям любого стажа:
 ```bash
 magnet:?xt=urn:btih:30D35342F0E1C5F851016BA7E2C57F4059C4F01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ StarDrive – космическая 4X стратегия, в которой в
 ```bash
 magnet:?xt=urn:btih:C5EDEDF5D2845DE44A7DD65D5FC4695970C6DC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ LEGO Marvel Super Heroes – это совершенно новая истори
 ```bash
 magnet:?xt=urn:btih:CDA545F307557B3F1DFCFBE14622460C7463ED82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

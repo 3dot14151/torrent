@@ -18,8 +18,7 @@ Need for Speed, одна из ведущих игровых серий возв�
 ```bash
 magnet:?xt=urn:btih:84F768510BA55C205938D99DC926125422E7D33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Dance Hot Mixes Popular Radio Mixes (2018) [MP3|320 Kbps] <Dance, Club, Pop
 ```bash
 magnet:?xt=urn:btih:81DB6F4EE58638D329F62F42CBD05011D5820049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B5C36C4909D33AB3C1D9BC695634144EA370A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ TV-1 (AniDub), (Anilibria), (Animedia), (AniPlay), (AniStar), (JWA Project), (SH
 ```bash
 magnet:?xt=urn:btih:38A92609456A22DBA90DE91E07D6531054518D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72D36172EDE945A13E70C33AEE0B64612F1E87B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28826DE60FC18B0537EAF86A9E7EE8207ADF8407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ CHUCHEL (2018) [Ru/Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:43E90AA9A0C036D10E5073A105473E82A9E55F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CE30C2D1DD2EC5BDF72C21919D9F21A2B17FF0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ ACDSee Photo Studio - функциональная программа, расс�
 ```bash
 magnet:?xt=urn:btih:B30E476E8C17EDB08B447BCEE489958D85113F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05C808C1CA7124F0B9FED654E77832643BAB1208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Need for Speed, одна из ведущих игровых серий возв�
 ```bash
 magnet:?xt=urn:btih:A0D7E641A423D565EBAC184C31AB3E114C5F1EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

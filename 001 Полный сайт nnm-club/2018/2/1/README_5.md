@@ -21,8 +21,7 @@ VA - Новинки С Разных Популярных MP3 Сайтов Vol.69
 ```bash
 magnet:?xt=urn:btih:891A7DD3839026A76A07BFBB19CA0DB5164720CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30D9BB4D27C461C6C8D2B71152A7D20A88F0E97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DA8F7BBA412CC7BE5EFCF7F2B616C6A2918D1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru] (1.9.461/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:043F47BAF55A6204E56CD6329649FCE753DBE03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 13.01.2018 [
 ```bash
 magnet:?xt=urn:btih:521FDD6AE34223127B9A2A972681B8591C50756A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ AllWinUSB Constructor by SmokieBlahBlah 20.12.17 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E535A96151E26239367ED0B83A10A15227702256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

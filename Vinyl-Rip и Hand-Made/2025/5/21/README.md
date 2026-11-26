@@ -22,8 +22,7 @@ Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|
 ```bash
 magnet:?xt=urn:btih:AE2468F6BBB35BE34D3D4BE5A749CDE8902495FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

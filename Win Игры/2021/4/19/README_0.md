@@ -19,8 +19,7 @@ Twin Mind. Murderous Jealousy / Двуединое сознание. Убийс�
 ```bash
 magnet:?xt=urn:btih:7DCFEB52F05196A985DD1F034E9AC2829447D708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Don't Be Afraid (2020) [Ru/Multi] (1.002) Repack Other s
 ```bash
 magnet:?xt=urn:btih:10297881FACC2D15B9CD4DA1A75663CD8D0E7677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

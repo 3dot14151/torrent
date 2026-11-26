@@ -19,8 +19,7 @@ Bridge to Another World: Burnt Dreams (2014) [En] Unofficial [Collector’s Edit
 ```bash
 magnet:?xt=urn:btih:7BC3C39A253152FCF290A536D9FA19F571662198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vacation Adventures: Park Ranger 2 (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2FEA0EAFA3A32604083748014054D5CA44476DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/Multi] (1.0.0.1 upd1/4dlc) Repack R.G.
 ```bash
 magnet:?xt=urn:btih:7423E33499FD57D4C5D3C588921BD4E20126146B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Handball Challenge - спортивный симулятор гандбола. �
 ```bash
 magnet:?xt=urn:btih:6A62044D0A3E898CA04488851D1D69E679406AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/Multi] (1.0.0.1 update1/dlc) SteamRip 
 ```bash
 magnet:?xt=urn:btih:88B00EF62990097EE6AADB10700FCA12472C2988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Sniper Elite Nazi Zombie Army - это спин-офф в серии Sniper Elit
 ```bash
 magnet:?xt=urn:btih:D0ED6473ECC90FC394C35E404BF9B22339FEC008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ MXGP - The Official Motocross Videogame – официальная игра ми
 ```bash
 magnet:?xt=urn:btih:6A25F7015D98DB367ADD9D571EF268CB5AFF646C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

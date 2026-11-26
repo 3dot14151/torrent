@@ -19,8 +19,7 @@ Albion (1995) [Ru/En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E717A72C93AA988B0CE6D7DD42F1C467D319DD75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

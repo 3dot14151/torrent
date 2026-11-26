@@ -19,8 +19,7 @@ James Bond 007: Nightfire / Джеймс Бонд 007: Ночной огонь (
 ```bash
 magnet:?xt=urn:btih:3D4ACA7ECF7A2192ECF013DD426E92461FA4FE85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

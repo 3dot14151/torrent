@@ -19,8 +19,7 @@ Efofex FX Graph позволяет строить геометрические �
 ```bash
 magnet:?xt=urn:btih:58075860AAD21FBEAE91E55113B14A7259AC6153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Cyberlink YouCam – простая программа для создания �
 ```bash
 magnet:?xt=urn:btih:5CF59A4FE7FB94EFD12ADE0A015FBC1B9CF7DF03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ HTTP Analyzer - это сниффер перехватывающий в реал
 ```bash
 magnet:?xt=urn:btih:7F17D65E5A084A6E0A0F448D4A029E0D6187BA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

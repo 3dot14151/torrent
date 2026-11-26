@@ -19,8 +19,7 @@ VideoHive - The Day Of Happiness - 4856932 [AEP]
 ```bash
 magnet:?xt=urn:btih:45EE942BB3DD07C4CCCA143C75070B40C8D0AF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:807979C201EEAF6F5CE299FF15F8A1BBB0E785B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Va-банк / Runner Runner (2013) CamRip [PROPER]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:029E179525AFA7C4264A27CFF889BBBA7EE482A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:061CAB03886A6DDC71ABEAA3F508D3D0DFEA515E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Assassin's Creed IV: Black Flag [XBOX360] [RUSSOUND] [Freeboot] (2013) | R.G.X36
 ```bash
 magnet:?xt=urn:btih:41A8A4154B7A57D27E030ABB196B7067C43674E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Call Of Duty: Modern Warfare 3 – продолжение широко изве�
 ```bash
 magnet:?xt=urn:btih:FFFBEC4D3D7C6E41EDA922A95FB9742430AC49F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5174523FB6790E3A8C8EC7875B95681952FC4B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9799C993F82C60F3E18D70EEDADE5B479D7EF7D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Autodesk Maya 2014 - больше креатива в творческом пр�
 ```bash
 magnet:?xt=urn:btih:432BE70C68D319859E8099E81C7712C2C5B52C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Monogatari Series: Second Season / Цикл Историй: Второй сез�
 ```bash
 magnet:?xt=urn:btih:34FD126B1D380B365477BB475CAA0C0284D9E6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A3ECA528B0B152814456CF0F6CD12A232A0F95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48CF8520589EB2E7926ED115371146A2E98307B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ eWeather HD 5.0.4 ([Программа] Android 1,6+)
 ```bash
 magnet:?xt=urn:btih:B6F3131B7E2C0C1C536FFFDF24B0CAEBFCDD7AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35ADADA0940FB1362AE1D3C4B2851B1A46185F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ Defense Technica – игра популярного жанра «tower defense�
 ```bash
 magnet:?xt=urn:btih:E33BC3B886C413D94BA0E8DDD96B265C436BEB65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Windows 7 Enterprise SP1 x86 x64 StartSoft 46 47 [Ru]
 ```bash
 magnet:?xt=urn:btih:708F428DD7B370B66E959057D421B66C7BF49D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BF30EDA605B41C73241C444F503BA8283842694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ Tom Clancy's Splinter Cell: Blacklist [PS3] [RUS] [Repack / 1.03 / 5 DLC] (2013)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ Hotarubi no Mori e / Into the Forest of Fireflies' Light / В лесу мерц�
 ```bash
 magnet:?xt=urn:btih:F45D8171941B3374209BAC7205867E05787501D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ Call of Duty: Modern Warfare 2 (2009) [En] (3.0-142/Multiplayer Only) Rip Straic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ The Walking Dead: The Game (2012-2013) [Ru/En] (1.0.0.23 (2013.4.4.20609)) Repac
 ```bash
 magnet:?xt=urn:btih:6748A64683A4896A28918A7FA177793A82CCAF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDE97079F35202A87288A2341F4217E196F0248F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ Call of Duty Modern Warfare 3 (2011) [Ru] (Multiplayer Only/All DLC] Rip Straick
 ```bash
 magnet:?xt=urn:btih:7C1EF884E02167CD3EE91B28986AD78617E8CA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ VMware Workstation — известная программа для виртуа
 ```bash
 magnet:?xt=urn:btih:DA7A463D3C9D0313925771F21D9389E742B54E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

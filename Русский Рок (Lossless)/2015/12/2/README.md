@@ -20,8 +20,7 @@ CD2 (live)Жанр: RockПродолжительность: 01:35:25
 ```bash
 magnet:?xt=urn:btih:BD367AC3965A1894537181BB916C1868DA2256C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

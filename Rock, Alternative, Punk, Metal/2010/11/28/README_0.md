@@ -28,8 +28,7 @@ Delorentos - You Can Make Sound (2009) [MP3|320 kbps]<Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:740CC040C5E9E1261525966AB012A35372C12262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Metal Forge Volume Three: A Tribute to Black Sabbath (2010) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:F4E4851E5FDF930C8E45FDC299EDA30DA765D47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ marianne faithfull - Broken English/Strange Weather (1979+1987) [MP3|320 kbps]<R
 ```bash
 magnet:?xt=urn:btih:C7022BF8306D85B5411EDFD8DC032D265B588509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ CD1 - Olympia:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Paul Gilbert - Дискография [1991-2010] [FLAC|Lossless] <Heavy Metal, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ V/A - Концерт "20 лет без КИНО" (8 октября 2010 года
 ```bash
 magnet:?xt=urn:btih:3394C80ABA7B2F4F0A03014C61C4BF79CBC56C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56B0CF6EEA5EABD97F2FE27333E41CDA73C599D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

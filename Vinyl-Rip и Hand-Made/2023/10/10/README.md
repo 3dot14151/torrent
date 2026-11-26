@@ -21,8 +21,7 @@ Behind the Scenery - Melodic Death Metal группа из Германии.1997
 ```bash
 magnet:?xt=urn:btih:34AAA72DB8E8085B95AF966E6733A610E517CBDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

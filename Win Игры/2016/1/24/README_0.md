@@ -19,8 +19,7 @@ The bug butcher - 2D сайд скроллер, плотно упакованн�
 ```bash
 magnet:?xt=urn:btih:880BBDB6860A9779B6B58D29ED4FD2BDED4772B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Grim Tales 6: The Vengeance (2014) [En] Unofficial [Collector's Edition / Кол
 ```bash
 magnet:?xt=urn:btih:899E8D6A76F9DC631B86A772664E413F7DA102A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ New York Mysteries: Secrets of the Mafia / Нью-Йоркские Тайны: �
 ```bash
 magnet:?xt=urn:btih:1BD7A298BB030AF10DE1579C83B119CB20AB7C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Death Pages: Ghost Library / Бессмертные страницы. Таинс
 ```bash
 magnet:?xt=urn:btih:781B8DA997208A3056767510E0D94F726AA9BD67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Metal Gear Solid: The Twin Snakes Русификатор (2014) [Sub] (0.01) Uno
 ```bash
 magnet:?xt=urn:btih:8B8DF1C3F26F65F5FACCB83AAFEE36A05BAA5B35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Terraria (2011) [Ru/En] (1.2.3.1) Repack Lonely One (R.G. Games)
 ```bash
 magnet:?xt=urn:btih:3C4A8F0026786C76A1D01C72B455E84AB58BFC18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Steven Campodonico - Schwarze Grapefrucht LP (2012) [MP3|320 кб/с]<Dark Techn
 ```bash
 magnet:?xt=urn:btih:55C1926E83396A9BB63EACB8A02E4E47CB0D004F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Dotma - Sleep Paralyses (2011) [FLAC|Lossless]<Power/Symphonic/Gothic Metal, Fem
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Thunderbird - простая и удобная бесплатная програ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Ludicra - The Tenant (2010) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:268A1D4308A57A10549D534001733A3103D3DD52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ Velocidad Absurda - Reborn For The Extermination (2011) [MP3|320 кб/с]<Brutal
 ```bash
 magnet:?xt=urn:btih:339C61E2D44FAD9BEBC8F9DAB4CBD654149324C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F4B2AD254594D5E27BA05AFB49399F72200BFD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Rotten Sound - Cursed (2011) [MP3|320 кб/с]<Death / Grindcore>
 ```bash
 magnet:?xt=urn:btih:E35D17C79AA2B16FC19DFB9F852D9D818831C0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93D0CBAABAF0FD95102E204DD4678DDC0A880C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ The Unborn Dead - Primitive Origins (2011) [MP3|~245 кб/с (V0)]<Brutal Death>
 ```bash
 magnet:?xt=urn:btih:FB72F5DC9823A7D7AB6CC59712AE9B9992554008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Wallpaper Sexy Girls 0.10
 ```bash
 magnet:?xt=urn:btih:6D5009E45361FD294AA97C0254CB981AB69334F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:853A1DF8760ADCFE458798608F74E332C349EB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Elegy - Optics EP (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:6A7CCB706C969FE65F28448E1BFA15D95CC293B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Tenka - White Lines EP (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:C8A580D07D16FA6C678C64A30A77A476B534AC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:869C93B480FE04785061F84461D2C72057EB0111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Animalis - Russhen Kolbashen EP (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 ```bash
 magnet:?xt=urn:btih:C2004A1FA7C921BEF27E7894B52A7EA2CB49BEB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Silana - Мы стали ветром (2012) [H.264/720р] WEBRip
 ```bash
 magnet:?xt=urn:btih:C650446F42EBE1E6B8BAD53CC56CF04C999EF71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80AA11576F83789CA58305AA3B1199ECD4BDB61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Bongripper - Satan Worshipping Doom (2010) [FLAC|Lossless]<Instrumental Doom Slu
 ```bash
 magnet:?xt=urn:btih:E8D7019053C1D49BA374300BCA8789C61C254479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40EFEBA6AABA9E20378C0844F78FB0EE75637179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Various Artists - Megahit Звёздный (2011) [MP3|320 кб/с]<Pop/Шанс
 ```bash
 magnet:?xt=urn:btih:4CCCCA750CABC52051AB9177859B7BD00546777F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97183A7D07C2163A31319AA0B5D823690FC6FD69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Tom Clancy's Rainbow Six 3: Raven Shield и Athena Sword [Ru] (RePack) 2003 | Pi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3F1AE25695879D36E481042D8346D76D595629F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ Counter-Strike — популярная многопользовательска
 ```bash
 magnet:?xt=urn:btih:79B895168B6DCB409804710E868A2726AE9D4771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.isoНазвание програ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

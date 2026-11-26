@@ -19,8 +19,7 @@ The Lord of the Rings: War of the Ring предлагает полностью �
 ```bash
 magnet:?xt=urn:btih:4BD436694871A024AE71BFEBA43CB1CC850AB641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

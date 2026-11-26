@@ -20,8 +20,7 @@ Adobe Media Encoder CC 2014 - это программа кодирования, 
 ```bash
 magnet:?xt=urn:btih:821EAFA4CDBEE2303A90901A60C64C37FA9C22A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ HashTab - программа для определения контрольны�
 ```bash
 magnet:?xt=urn:btih:F4AC41CD65E7FD621A2FA97EC2253AF51B2626CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Final Fantasy III (2014) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4EE9FBFAA04400040D614C18CFEE04C3A8E1D6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Pro Evolution Soccer 2014 создан на движке Fox Engine от Kojima 
 ```bash
 magnet:?xt=urn:btih:419B3C0B09221C2C3293CE22248291CB6643A1A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7FA9E07D2D4FEFCE62E01387CD8AC746AA5CAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:940A9032E86282EA67B56E0168DFB7EA464F9ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Adobe Audition CC 2014 (7.0.0.118) [Multi]
 ```bash
 magnet:?xt=urn:btih:3C40B58E8F58466E44BD6FC0432A8533304A71B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.99.2995) License Reloaded
 ```bash
 magnet:?xt=urn:btih:D56DE32F59580036A343557EA8EEE4271946900D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1B541F564CB20BB16A441A96078D4891FDDF194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:784402CF6734F52EF7DF27D43DBB7D8A8F73FC30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Valiant Hearts: The Great War (2014) [Ru/Multi] (1.0.140373) Repack R.G. Мех�
 ```bash
 magnet:?xt=urn:btih:F0B7B3F1BBDCC563CC422EF901E1CCD9AA0AB1E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Adobe Premiere Pro CC 2014 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:D4C0298C4A66CC6A9444E23863E2E3F6DEE950F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F04BDDF32B2DF8D2EB56D820BB53A8661D893BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3631DCE48A0BAE5228173FD7BCFEDCFE7AA82201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Wanpiisu / One Piece / Ван-Пис [1999, 416-650 из ???] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:31C2385A1155F5970A64597D01BED8BE7E43C247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Windows 8.1 with Update - Оригинальные образы от Microsoft M
 ```bash
 magnet:?xt=urn:btih:42B5141F43D97A4164AE672260C6B98EC0549F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ Windows 8.1 — это еще большие возможности персон
 ```bash
 magnet:?xt=urn:btih:B82A066337500BEB97236293EEC94A8D6BD0C6E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ViewBox - приложение для Android устройств (в том чи
 ```bash
 magnet:?xt=urn:btih:303F66081CB52B90C6BC401905AD4B4ACB68AACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:80909196830C10794157F4CF0C678408391B85C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ AVG антивирус & Безопасность 23.15.0 Mod by DEXUNPACKER [Ru
 ```bash
 magnet:?xt=urn:btih:0A7F326C48DFF4E13277C31664D40008B725EEA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

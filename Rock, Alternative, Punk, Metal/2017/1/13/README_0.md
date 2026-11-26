@@ -22,8 +22,7 @@ Tyrant of Death - Ion Legacy (2015) [OGG|~600kbps] <Industrial Metal, Math Metal
 ```bash
 magnet:?xt=urn:btih:28037B31068FBEB6479512B3CA072D784C6DBDEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD4 - Stereo Mixes (Bonus Tracks)(   Читать дальше...   )Жанр: R
 ```bash
 magnet:?xt=urn:btih:C012D33211B8D56183AA6C49F825F111063D1D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Accept - Restless And Live (2017) [FLAC|Lossless|WEB|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B627D0A97FC10D135144915F5863D5EC7ECE4D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ jv16 PowerTools X - новое поколения программного об�
 ```bash
 magnet:?xt=urn:btih:9A0CC7E06C2E0E96661BE45E1CA6AB6925F6FEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:60575DF8233AB2EBDD4342E31E9B55F254735458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Nero Express – это одно из самых распространенны�
 ```bash
 magnet:?xt=urn:btih:4075A26835647F18446399115B3ADFD5C9EF0A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Discovery: Стальные мышцы / American Muscle (2014) HDTVRip (Вып�
 ```bash
 magnet:?xt=urn:btih:BEE5196F4536B136E16731FF31DF2B75EB6D6AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3F984FFC4CAFD2C785FEEEACEE6A12738AC710F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ BBC. Восхождение животных. Триумф позвоночны�
 ```bash
 magnet:?xt=urn:btih:F6500D518FD4547F1CD8E0D36C7BDDC816A4DF1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ openSUSE 13.2.1 Education Li-f-e [i686, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:24B4DAC44309961E3EA291A2362DFD884C5F7D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CDA13E24C636DFACC3D094EF60A0FD3D644553F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86FD81D4FF260B1BAEEC3518C7C0E6629CEC7DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ MInstAll v.13.12.2014 By Andreyonohov & Leha342 [Ru] (Авторская раз�
 ```bash
 magnet:?xt=urn:btih:D0BAA238FD3CBC3AFA67B0ABDCCBF23181790E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Adobe Premiere Pro CC 2014 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:3D1F872130F8CF88593172F2FB24EA76EA78A666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:050345BF6C7E2ACB0917DB3818EAF93CE065A3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F6C1C3D092214D72B47DCB9971A9BF354D53C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Adobe Audition CC 2014.2 7.2.0.52 RePack by D!akov [Ru/En]
 ```bash
 magnet:?xt=urn:btih:576CCC75065BB20C6859E0BCBC8BF9371BE9EBF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Halo: Сумерки / Halo: Nightfall (2014) WEBRip [H.264/720p] (Сезон 1,
 ```bash
 magnet:?xt=urn:btih:5522FDB9906380CE7649ED5D4815C71EC250B2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ SerialDetector 4.2.1.0 [Ru] (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:43915979F0DA86394CDE499E2CE1F4BD05AB3E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

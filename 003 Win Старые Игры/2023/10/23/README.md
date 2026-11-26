@@ -19,8 +19,7 @@ Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
 ```bash
 magnet:?xt=urn:btih:470995DB595CA23E9FC921DAA2EDA8B744C026AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

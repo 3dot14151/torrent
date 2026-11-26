@@ -22,8 +22,7 @@ VA - Белый Теплоход - Золотые шлягеры 70-х (2000) Co
 ```bash
 magnet:?xt=urn:btih:F522A15013992F2B2A0DA733DB978CFAFA2D4E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

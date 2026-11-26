@@ -18,8 +18,7 @@ SETI (Search for Extraterrestrial Intelligence) — общее название 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ MathType - это мощный интерактивный инструмент, 
 ```bash
 magnet:?xt=urn:btih:921FFA23E20348CC70A58C77D8847E3090409DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ LUNA The Shadow Dust – это великолепный прорисованн�
 ```bash
 magnet:?xt=urn:btih:AFABEF8DCB16D9ABD58512496AB6F4BA1CEA20DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Xcast.tv v1.4.0.4 [Ru/Multi] - трансляция на телевизор
 ```bash
 magnet:?xt=urn:btih:C365EC23389B9F6F3EC7954C13515279A7F3F499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:468C51A78CB663D8D71F622146F12D3FC50CB785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Kappa no Coo to Natsuyasumi | Summer Days with Coo | Волшебное лето
 ```bash
 magnet:?xt=urn:btih:0CD208C6FAEDB33CE7D95CE3FC8643CF6F31019C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Battletech - это пошаговый ролевой экшен с робота
 ```bash
 magnet:?xt=urn:btih:D9D0B8DF17E128418CA9768D185E75382429A4B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Mairimashita! Iruma-kun | Welcome to Demon School! Iruma-kun | Добро пож
 ```bash
 magnet:?xt=urn:btih:A6422ABD8E38B13A80DBCA723BD8C2F26E85344E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ The Elder Scrolls IV: Oblivion® Game of the Year Edition является од�
 ```bash
 magnet:?xt=urn:btih:80407ED051F7C3E4EDDE352BA82C95B0350FA28C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92FBED10EC90D87CB25648377D14414A822A03B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5C633C092185F2A45849BDA7D9E6099AE1B30AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ Active@ Boot Disk - включает в себя набор мощных инс�
 ```bash
 magnet:?xt=urn:btih:72998D40AC138CBE5A7A29D3CAD4DE6FE31B8893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ Hiren's BootCD - незаменимый инструмент, используе
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

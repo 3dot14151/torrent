@@ -28,8 +28,7 @@ B4 Skyrider (Written-By – T. Acardi*) 3:13Жанр: Italo-Disco, Electro, Synt
 ```bash
 magnet:?xt=urn:btih:7E0D44825C29CCD5E29397E2A83656034B8E5500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Coconut Queen / Кокосовая Королева (P) [En] 2009
 ```bash
 magnet:?xt=urn:btih:05243FEB88D2523175AA376AF17BC423B1A4B47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Amazonia / Амазония (P) [Ru] 2009
 ```bash
 magnet:?xt=urn:btih:D236623381E1E5104588B395961CD87E3E11DF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sparky vs. Glutters / Спарки и Обжорки (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:6A826BCE5069FEEFAAF78F71A79972962BF6034F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alpha Ball  / Альфа Шар (P) [Ru] 2009
 ```bash
 magnet:?xt=urn:btih:28CDC3117C97146093DA6DBE10449514B0C5141C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dead Reckoning 7: Sleight of Murder / Точный расчет 7: Ловкос�
 ```bash
 magnet:?xt=urn:btih:16D1057B833A53C8FDC96E2CB1FB86AAF7E59DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Infinite Mini Golf (2017) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CC1B2E53AE8445505F03D2CC915E2BAA4EB76108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dreamfall Chapters – профинансированное через Kickstart
 ```bash
 magnet:?xt=urn:btih:81B4BB0E05255CA92B49A8D939DFBF1F354AA5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Yonder: The Cloud Catcher Chronicles (2017) [En] (1.0) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:4FF2F11C0617B3D2B38D458B80960A08355BBE6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pressure Overdrive (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:90DF970276BCC5CA335B692176E5924A3EF30212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Halcyon 6: Starbase Commander – это космическая RPG страте
 ```bash
 magnet:?xt=urn:btih:417FED0F6C22485250531AE02007F774F124D8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

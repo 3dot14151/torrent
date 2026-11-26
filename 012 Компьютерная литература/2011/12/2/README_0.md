@@ -21,8 +21,7 @@ Delphi в примерах, играх и программах: Oт просты
 ```bash
 magnet:?xt=urn:btih:468500B1AC02D667E1B64484B41CEB43606CCD35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ API представляют собой контракты, которые оп�
 ```bash
 magnet:?xt=urn:btih:92D676C501D301075E688CE87B6ACF6869F3BFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

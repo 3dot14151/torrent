@@ -19,8 +19,7 @@ Mivo - лучший инструмент для создания музыкал�
 ```bash
 magnet:?xt=urn:btih:8F80CDF22671F9D068E6A0D0355802180098DFBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7A45B0FAD4EA75FCAA14BF66E553A842EEB9F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Projectivy Launcher - приложение, что пригодится всем
 ```bash
 magnet:?xt=urn:btih:7351B84943397F3F528BAE9E9BA41EA9FBD5077B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Imagine : AI Art Generator v2.9.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FBC5F0FF58269B8F4946F6FA1863FDD65BCEF0EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

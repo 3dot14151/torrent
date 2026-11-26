@@ -28,8 +28,7 @@ Eternal Grave - Somnium Obmutum (1999) [APE|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:0C25E8863FC44400F426FFAD4CEF234510207728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Plateau Sigma - The True Shape Of Eskatos (2014) [MP3|320 кб/с]<Doom/Death Me
 ```bash
 magnet:?xt=urn:btih:E6C80BFE388BE1805F49A068EB6AD1F2BE1EC962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Winterhawk - Revival (1982) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CF9DE10552D8E38F2E41FDAB3C15893D8B3B28C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Terratomorf - Я - легенда (2014) EP [MP3|320 кб/с]<Heavy / Power Meta
 ```bash
 magnet:?xt=urn:btih:B595143DCFF22EF062DB7A0570783C50A05E9DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ CD. 1
 ```bash
 magnet:?xt=urn:btih:C1E9F082A40E58E23FB64C171573514807A03927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Secret Diary - 3 альбома, 1 переиздание и 2 сингла (200
 ```bash
 magnet:?xt=urn:btih:2320E804FAB751813D44C5C00499B8DB1C608B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Queen - Live at the Rainbow '74 (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:90014211C6783479CC387A5C193D36A3A580AF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ King Crimson - The Elements of King Crimson (2014) 2CD Tour Box [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:A942A64D532FB2EDB5F907CE569F462CBD365FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0CDB875BFB2C913B57F4093A1B61E8C3A50D99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

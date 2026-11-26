@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:70461048873985398E1CDD8A2B94762313B32F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888.1721314771/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A9FF34D90847B36F04B6D899A2401A58A2AE5A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Depeche Mode - Live In Berlin (2014) 2хDVD9
 ```bash
 magnet:?xt=urn:btih:EEB5FE6ABA16B53B60D6B505C4FFB982F843B9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Michael Jackson's Vision (2010) 2xDVD9 + DVD5
 ```bash
 magnet:?xt=urn:btih:EB55B859249695AA1656486258B3A4D05D05B43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:314408D0D32415418EF8924FE98315573DEE041E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ MultiBoot USB by Gamida 2024 (11.08.2024) [Ru/En] (авторская обнов
 ```bash
 magnet:?xt=urn:btih:F817D8E0A62A4F88E3C16ED3444EFDC858F150CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A68DB2363DD5CB0AC6EF28EA0FF11CDD82C3D33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEB173801F17CC893B98E7FB24E002CFD72A502A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CC2308F99400A3F73D3E7BD74771BF83E36223A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBA66EA8FB7241E1C7BFCB1F7DF3EE2A1F67B75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA0835419B417411CD252BBD356F688E91C1483F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90283A1FACA90D44C2122C4C11B13D980310130D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0382F022AC6A26A4411350806B6F264C6754664B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Zoo Simulator (2024) [Ru/Multi] (1.00.23) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:579B45B85105FF6AB5FC3444874E5B0E59C81959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Wine Hunt: Aim Fidelity (2024) [En] (2.0.1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:57DEF607E9F873D1CF145022E79EC41177E37CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF6697B345FCB773C0E4B879C61825FA795EBF31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ Mato Seihei no Slave | Chained Soldier | Раб спецотряда [ТВ-1] [2
 ```bash
 magnet:?xt=urn:btih:79F5BBA285DCF522BB31943852ECED3BC5A42AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D7741CBB62098AF1549641203A7002A998BEB9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9122C83BABF20597771AA861E0AE4268A1EC0761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21D87A60749DC8CFA419E457FC3DBC15B8A585B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ Bo: Path of the Teal Lotus - яркий платформер, предлагаю
 ```bash
 magnet:?xt=urn:btih:83931E2BB1AE0A1C13E4FE89874F48872B79C166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ Deathbound - действие игры разворачивается в сре�
 ```bash
 magnet:?xt=urn:btih:B21EB2D092118BB5248EACFFFAD7DDB141924CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DD7411E6E87CBA69C3C887C96D8E1714879A434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) DVD9
 ```bash
 magnet:?xt=urn:btih:3334F48AE5DB75963C9C35C6161DA5908D635DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +633,7 @@ Hot Lap Racing (2024) [Multi] (1.0.3-0cfd3d1de) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FACA0D0DBEC68155D4BE300E4F4F7E5207EA1527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8F952725AA9E932A9A271A19952C3C53FA6CF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

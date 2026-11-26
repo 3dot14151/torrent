@@ -22,8 +22,7 @@ In Aeternum - The Blasphemy Returns (2016) [FLAC|Lossless|image + .cue] <Back, D
 ```bash
 magnet:?xt=urn:btih:45122E3E251B341AA8C4433987C7ED45F59ACF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stonelight - Into the Unknown (2016) [FLAC|Lossless|image + .cue] <Symphonic Hea
 ```bash
 magnet:?xt=urn:btih:438612D224265A72DA5D19356765A76D96E24C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hevidence - Nobody's Fault (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:AE9148AED73B13104A2D23A55967B7DD2EA30032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Planet Alliance - Planet Alliance (2006) Japanese Edition, 2007 [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:42964A0775DE62556687A823B1714E62087747FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Gribanal - Рефлексия для чайников (2017) Авторская 
 ```bash
 magnet:?xt=urn:btih:51342A94708AA44F0E5FD8CD69B8C1E090970F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Cliff Richard - Always Guaranteed (1987) [FLAC|Lossless|tracks + .cue] <Pop/Rock
 ```bash
 magnet:?xt=urn:btih:BA3B2D79A9201116E5D6D82A548D13A7F057512E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54C254B7A9BD5B27E1161A5EAE41B4461FCF20BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Witchery - In His Infernal Majesty's Service (2016) Japanese Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:D48B718513607770C63947766CCACBB1A2B6C074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Once Human - Evolution (2017) [MP3|320 Kbps] <Melodic Death Metal, Groove Metal>
 ```bash
 magnet:?xt=urn:btih:3D92637E704ADD50696ABC7877A3926C30193BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

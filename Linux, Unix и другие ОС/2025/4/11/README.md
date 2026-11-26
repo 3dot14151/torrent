@@ -20,8 +20,7 @@ CentOS Stream - новая версия бесплатной операцион�
 ```bash
 magnet:?xt=urn:btih:9C2959549CA9A85F51013598F5CF23FAE0F6FCC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

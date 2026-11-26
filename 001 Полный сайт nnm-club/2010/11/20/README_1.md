@@ -27,8 +27,7 @@ Madlib Medicine Show No. 8 - Advanced Jazz (2010) [MP3|320 kbps]<Jazz, Fusion, F
 ```bash
 magnet:?xt=urn:btih:D49CF68BEDA88C9D5557F0A7C9E88E329DFDA38C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Melody Gardot - My One And Only Thrill (2009) [MP3|160 kbps]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:2B7649B683EBBAC9033E9683085275D424F1BBB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Herbie Hancock - Sextant -1973 /Japanese Remastered 1992/ [FLAC|Lossless]<Jazz-F
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Herbie Hancock - Speak Like a Child - 1968 (RVG Edition - 2005) [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A091315E8A687B78F95542BBB2F17934F8CCF1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Armin van Buuren - A State of Trance 483 (18.11.2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:1400E2E87D3FE061952525B32459FD1EA74AABD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Herbie Hancock - Crossings (2001 Warner Bros. Remaster) (1972) [FLAC|Lossless]<A
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Herbie Hancock - The Prisoner - (1969) /2000, RVG Edition/ [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2261649DFDA64F9C1D19E70DC139FE30A480D311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28CDF7378A8BF8E14C962B9DB662DD803627474D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Herbie Hancock - Mwandishi (1971) Remaster /2001 Warner Bros./[FLAC|Lossless]<Ja
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Herbie Hancock - Secrets (1976) (Remaster 1990)  [FLAC|Lossless]<Jazz-Funk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3A02B64E417B2762CA9587DDF2F08CCA83DC268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Discovery: Гонка на миллион / World's Most Expensive Rides (2010) 
 ```bash
 magnet:?xt=urn:btih:281C0A73E0F273742D65631643F3A2335A02C876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ Andy J. Forest - Notown Story: The Triumph of Turmoil (2010) [MP3|320 kbps]<Blue
 ```bash
 magnet:?xt=urn:btih:AE8E0D1E18EC8C20A5A78DFDFB4EE374FB30A141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3058F1894D8A0C8E7F4666BB6CBFB12B16AAFB36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ BBC: Безумство Охоты на Ведьм / BBC: Witchcraze (2003) SATR
 ```bash
 magnet:?xt=urn:btih:64B08F70701B576C721A302646061A56BE674C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ VA - iRelax series (2006 - 2007) [MP3|320 кб/с]<New Age, Relax>
 ```bash
 magnet:?xt=urn:btih:4C76603E61A1A223F7D9D391E5006281709DD9E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D28C999E3F4E1992D1B356D8F92DDD9ED273B2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80226629197E391E11528C967A1E6F3D6A8BAA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +580,7 @@ Jay-Roc - The B-Boy Hustle Album (2006) [MP3|320 kbps]<Hip-Hop, Breaks>
 ```bash
 magnet:?xt=urn:btih:D7AE67C070B71CA7F0A4232DDFC7298DD5B3BC26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ Mick Stover's Gentlemen's Blues Club - The Sky's on Fire (2009) [APE|Lossless]<B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ Robin Hood: The Secrets of Sherwood Forest (P) [En] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ ForeverLive - Accident (2010) [FLAC|Lossless] (New age, Instrumental, Ambient)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03EE67062EC9E7C44C2FBEDAF38B6E57DBBF104C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ Ra - To Sirius (2001) (Reissue) [MP3|320 kbps] <Goa Trance>
 ```bash
 magnet:?xt=urn:btih:59F8771BCA8E2B23019AD250BBAD1213299A9D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

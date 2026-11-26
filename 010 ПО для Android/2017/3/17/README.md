@@ -19,8 +19,7 @@ Maths Formulas 9.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E1F42795EFBE4BC4CDB6BCCAE4FFABB23BD86D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

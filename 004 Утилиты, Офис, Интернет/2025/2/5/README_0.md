@@ -21,8 +21,7 @@ DNS Changer - это интуитивно понятное и удобное п�
 ```bash
 magnet:?xt=urn:btih:B81A9F5FB83CECC30B5BAC55E4B48A755BF375FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:596C1A955B7CF311B7C1718C91D275ADD4246FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

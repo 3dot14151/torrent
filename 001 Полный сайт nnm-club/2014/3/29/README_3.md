@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A8E9778229E4147A571C9F84E8ABCE2FAB490983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:454FA9E152BABA7BF162146CE995AA3F3E0E3D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8ED22A24F1D569FD1D0783FA6C4E214E519788E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Anette Olzon - Shine (2014) [FLAC|Lossless]<Symphonic Rock>
 ```bash
 magnet:?xt=urn:btih:A2819844692AB7F176A7E1B4B38C54E2DD66944E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E6EFAD407BB66D4B978E1A5CA5188786EB4DE15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BE6D9000E9791947B0BCACEA203F07927C4D289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2C1347868C91F5F9A752F9BB3D25870510871AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Need For Speed - Весенний Драйв (2014) [MP3|167-320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:8308475B5FC51C07439B68AEC2FE719A6B579F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Brainstorm - Firesoul (2014) Limited Edition [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:A1F9131D20AD52AE506CA693750C3055316C2C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ XX столетие стало не только эпохой авиации, р
 ```bash
 magnet:?xt=urn:btih:8BAB04F42F7247BA94B76447AE526E3B407663BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Wallpapers - Best Mixed Wallpapers Pack (29.03.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:AFB411EAA0DF7798DBAF9BA32A3CBFAA6FFFD0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Ronnie James Dio - This Is Your Life (2014) [MP3|320 кб/с]<Hard Rock, He
 ```bash
 magnet:?xt=urn:btih:3796FDB660002B764CCDDA05A1A83E365F7A4184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10C1E73C93D9BCB2BA0406FCF2A33D692ACC1D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ Sonata Arctica - Pariah's Child (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:128AAD9455D68491678EECFE0E96DAE564AC6F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ Silent Circle - The Original Maxi-Singles Collection (2014) [FLAC|Lossless]<Pop,
 ```bash
 magnet:?xt=urn:btih:3AF9E5CA46CAC812FBBA9DB4AABC2CB3CC7257C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ Mezzoforte - Forward Motion (2004) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <jazz/f
 ```bash
 magnet:?xt=urn:btih:64385E8F3E5772BB9C6AB5C83BFA921BDF156ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE4251633E2E2B1478DEEB6686CDE92D60420604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:33DD24A5E96AF87AF322678CF71557CBD42A4589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5668C4C3F1A7DB98B9D2A04E128B7639865C802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ Tina Turner - Love Songs (2014) [FLAC|Lossless]<Pop, Soul>
 ```bash
 magnet:?xt=urn:btih:37EF0821F89FEE0A87B8721CBC68EC3A676D48D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5DDFDC4295DC0722F89DDDAF4E4279CFA17494D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E825F5243A2F925478934653E6886AE2E0F13A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:412A019B10F41AAC09B3E58B8F0CCA15052142D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36A0619026665CE97301F6D35861C5F8EB4261F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +727,7 @@ The original audio was extracted to LPCM and left untouched to avoid further com
 ```bash
 magnet:?xt=urn:btih:E345EA46F9D27AA7A77CBA0F8DA1DA5329DBB8AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

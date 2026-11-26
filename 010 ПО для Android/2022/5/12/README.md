@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:110EB368760CC4DEC8A53B75B678C3575383AC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B16A1FCA002DECC48FE63C9B53B7A6839B8BF05B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VTC Radio - настоящее виртуальное дорожное ради�
 ```bash
 magnet:?xt=urn:btih:A23446DBC3EDE31FED0717032C3EE3DC3D0C086B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

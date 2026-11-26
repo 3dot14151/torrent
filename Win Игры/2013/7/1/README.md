@@ -21,8 +21,7 @@ Turning Point: Fall of Liberty (2008) [Ru] (1.0) 2008 | Rip Audioslave
 ```bash
 magnet:?xt=urn:btih:42948FA56D61CA56032AFBC406EC4A53FBC70C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

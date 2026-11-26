@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BE8F02F4ABCF99B40654E1FB39C3DCC80698EE72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:425EA16D0D2FD9C962B5B462A08456CDB36B29CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:391FF0283FDF26D69652120B4F4D83C4698565F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Microsoft® Windows 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy® 01.20
 ```bash
 magnet:?xt=urn:btih:9E431F1908B3D35ED55C177399A2217E0ED99548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A7D8B72B463E741CCE91CEFA4E2D5629697A0427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C017EE968E472B77A1E9693EF295896E8C504A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ VideoHive – Corporate Hands - 5699522 [AEP]
 ```bash
 magnet:?xt=urn:btih:5F7FD5A88B6C2932E900E743C9FA014AB0983E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:518A572BB4074076249A78C09E2A5E1FC752ECE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEEE06D7FE15CF40EB97C3EE9F466A91B4F77BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ O&O Defrag Professional 17.5 Build 559 RePack by Zhmak [Ru]
 ```bash
 magnet:?xt=urn:btih:8930285A366C89977B232AB56C7DC234ACA16755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ KMPlayer – один из самых универсальных плееров,
 ```bash
 magnet:?xt=urn:btih:AAA963F07F1FBB19D02364604B17058EA6FF23C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ KMPlayer – один из самых универсальных плееров,
 ```bash
 magnet:?xt=urn:btih:9C7E2F2FD59EF785BA55BA16221D3255EE840AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0BBAF5963BD58DA3A52E6A567C666D19D4DA933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:004C7BF18C336666B750275AD1668F1940A790CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:800EA1F4983140117A63D063ADFC9E95B19AF4DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ UFS Explorer Professional Recovery разработан практикующим
 ```bash
 magnet:?xt=urn:btih:EBE5D9F6D7617B5DE299F1B43D8BD3FFB5694850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Bound By Flame (2014) [Ru/En] (1.0.0.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:4DE91CC8F1B634244CF52D8AA8ECF3F9A8F3FEC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ KMPlayer - один из самых универсальных плееров, �
 ```bash
 magnet:?xt=urn:btih:58B317226F34BFA4690772510595E988C12F2900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ Hatsune Miku (初音ミク) -Project DIVA- F 2nd является шестой �
 ```bash
 magnet:?xt=urn:btih:981ED0EA5B41A9E08A8CD4D60875A11665F2F8FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ Total Doc Converter - решает проблему конвертировани
 ```bash
 magnet:?xt=urn:btih:EA2E65464A0B21C3402D227AD81BBA27DCDB7E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43BE18389F396B8C34C60811C6F623559E43F48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ Uniblue PowerSuite - комплект программ для ускорения
 ```bash
 magnet:?xt=urn:btih:E4A496031471201B6E0C3EAA5FAB513A14356200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88505368AA944632DB5FC92E0E780E25CBD3668F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ Inquisitor / Инквизитор (2012) [En] (1.10.16) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:AF2127B1AD0BDFFA336B75556FD96A8AD9B85B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +557,7 @@ Anomaly 2 продолжает историю об инопланетном вт
 ```bash
 magnet:?xt=urn:btih:BEADE1B4776791CC627FE59EF91548C6060A2DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ Adobe® Acrobat® XI Pro — это не просто популярный ко�
 ```bash
 magnet:?xt=urn:btih:48CFE058BB5D6EE3F8C9AE206EB8A4D154C3D9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ Boom Library Magic Bundle Прислушайтеськ чудесам  белы�
 ```bash
 magnet:?xt=urn:btih:007015A7FED8F2C53E2F398FB9232155F5D56CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ Prince of Persia [PS3] [EUR] [Ru] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2008)
 ```bash
 magnet:?xt=urn:btih:EC48FA3FE796E2286E087693250A80B2175F3E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +667,7 @@ Need for Speed: Undercover [PS3] [EUR] [Multi14] [2.42] [Cobra ODE / E3 ODE PRO 
 ```bash
 magnet:?xt=urn:btih:769FF18C855C78356915657EA831863BDA33258C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

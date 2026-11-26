@@ -19,8 +19,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0.0.20) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9C69B734C1BC968D274499FBE4F3318D85594403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:01904A2F1F02C6D8E6590913472A3DB7262EE271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Planternauts (2024) [Ru/Multi] (1.0) Repack FitGirl [Early Access]
 ```bash
 magnet:?xt=urn:btih:8A3864D1B22D1F134F15B26A52E75CD69F79448A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rogue Waters - это тактическая пошаговая игра в ду
 ```bash
 magnet:?xt=urn:btih:CDA3D45733BCD226A8EE142E3BC6D19C3F3B4071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rogue Waters - это тактическая пошаговая игра в ду
 ```bash
 magnet:?xt=urn:btih:07EA433FEBC3427713D53DF24D38658FAAB9E96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Invincible представляет собой приключенческу�
 ```bash
 magnet:?xt=urn:btih:E06287E658DDE9E373B090691E1C0D3E0F54A4B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

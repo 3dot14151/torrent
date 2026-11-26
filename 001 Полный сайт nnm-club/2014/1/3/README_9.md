@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EDD3F1C43B6FEF1AE5CACC47C9725AC91CC9F400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3442A7B9A0AC96696B5CFCB8CD716E6449A3BA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ WPI Сборник для Android'a by ProGmerVS© v.2.0.13 от 15.09.2013 [201
 ```bash
 magnet:?xt=urn:btih:9E689A561AEA138565D345C3438A0C09CB26605B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ KSL Multiboot USB 4.0 [x86/x64] [2014.1] [Multi/Ru] [Авторская разд
 ```bash
 magnet:?xt=urn:btih:70B112C4848FB2D71F11EDAA249C557DB0F646A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Black Mesa («Чёрная Меза», ранее известная как Blac
 ```bash
 magnet:?xt=urn:btih:614A1EF48F6378F4534B49FCF7EFEA78DAAE1DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ BELOFF [wpi] 2014 [Ru]
 ```bash
 magnet:?xt=urn:btih:ED30CA1A1E69E614A297E158ABA8F850B31C92CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

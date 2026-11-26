@@ -19,8 +19,7 @@ ImagineFX — это международный журнал о цифровом
 ```bash
 magnet:?xt=urn:btih:DEA7A5F158F10DDC6CADF1A9978AA12D6AAFEE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

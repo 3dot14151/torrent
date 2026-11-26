@@ -22,8 +22,7 @@ Shards Of A Lost World - Eclipsis (2025) [FLAC|Lossless|image + .cue] <Black Met
 ```bash
 magnet:?xt=urn:btih:2A8FF1A3030FEC5E8A0AF585D2C3146DA65E431E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Radio Rock (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:FB559B9EABE5DC7469129C9DB3EF4676ED6BD5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ We All Rise - The Beginning Of The End (2026) [FLAC|Lossless|WEB-DL|tracks] <Gro
 ```bash
 magnet:?xt=urn:btih:0FD6C68C2978BA482786E9462FF344C39AB25B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - 30 legend rocka (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:02EDB47F846B4850FE590406EB3482E098F0F587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Just In - Rock (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:9B0EF395D4CF690A38CFF88A036998C520A5928F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

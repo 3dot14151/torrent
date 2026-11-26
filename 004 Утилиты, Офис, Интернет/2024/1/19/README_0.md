@@ -19,8 +19,7 @@ Whale Browser -  южнокорейский быстрый интернет-бр
 ```bash
 magnet:?xt=urn:btih:1CE3D19369409F965F2EE17F545D47AAE394F96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SeaMonkey 2.53.18.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:7DF28CC692E8B83342288C08F3B2F4E48B425B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HiBit System Information - программа для получения инфо
 ```bash
 magnet:?xt=urn:btih:FF4FAC9402B5E5807D700744D23709485C26D623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Wise Duplicate Finder Pro 2.1.1.61 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:70BBDF0AFE8BEFE143DE594345E7F6CC6D8F6586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

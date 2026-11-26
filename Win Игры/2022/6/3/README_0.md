@@ -19,8 +19,7 @@ Silt погрузит вас в сюрреалистичные глубины о
 ```bash
 magnet:?xt=urn:btih:41B2D7C176D5FAA2655D3A66BA2B4EB2E54A93A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Silt погрузит вас в сюрреалистичные глубины о
 ```bash
 magnet:?xt=urn:btih:C34C5849798102D982D1DF59EB106BE32E666482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

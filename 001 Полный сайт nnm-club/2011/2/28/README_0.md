@@ -18,8 +18,7 @@ VA - Создай Движение (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:29E5909DDB7828835CDED0E6802724D14614CB99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Laidback Luke - Essential Mix BBC Radio 1 (2011) [MP3|~168 kbps]<House, Tech-Hou
 ```bash
 magnet:?xt=urn:btih:FE9498CEA45639B469D2E282571AB7CB735956C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Mercenary - Metamorphosis (2011) [MP3|224 kbps]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:A202EE90DF9DFB9B46990FA4AEB6A73BC7E0CDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Essence - Lost In Violence (2011) [MP3|256 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:CF4A58B5C342332D4022ACB0D290513A10B18A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ DJ Feel - TranceMission Best (27.02.2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:A6D29D657546F0E3AAF85E8B2696D51324F34B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Danger Zone - Line Of Fire (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:2E879D34B5D21B2B35E7C431767F75942516727E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ VA - Музыкальная энергия страсти 2 (2011) [MP3|256 kbps
 ```bash
 magnet:?xt=urn:btih:2833D50EB5EDB89C62BB6E094F314BB6F8A306AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Animals As Leaders - Animals As Leaders (2009) [MP3|192-320 kbps]<Progressive-Me
 ```bash
 magnet:?xt=urn:btih:F629B5ABFCF429F30161AA283D3D02B53994CDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ Nasty Tendency - Hello Suckers (2011) [MP3|192 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:17A366279ABD274D7365D6A8CC54B06571A53572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09F935D312B4469D7F0D0597C4698617FCAAEC44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ VA - 100-ка Лучших Русский (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:B064DA26C556AB86BFD112A54C896E94D45B085C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Destruction - Day Of Reckoning (2011) [MP3|320 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:57D7D74B536119576BE55713AA999B68B329160F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ BBC: Борьба за выживание (Испытания Жизни). Ра�
 ```bash
 magnet:?xt=urn:btih:62DC00068EB4736E535B6E6160DCBFB3F3850485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ Inner State - Terraforma (2011) [FLAC|Lossless]<Psy-Trance . Psy-Prog>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ Gideon - Costs (2011) [MP3|320 kbps]<Melodic Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:05D768BE0A68F1718A9102A72E3C7457020CD3FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ Artas - Riotology (2011) [MP3|320 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:DA2C3EF978CC042DFA08F729ACC69C8996E37201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ Coldspell - Out From The Cold (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:8CD3205E7E25CA9683F35DFB5F5A802E14ADCFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ Assassin - Breaking the Silence (2011) [MP3|224 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:23F2E77422CCAC5B04BF0D8F71059C49D212F8BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +574,7 @@ Zap Mama - Supermoon (2007) [FLAC|Lossless]<Jazz, World>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +599,7 @@ AkelPad - небольшой, но удобный и быстрый тексто
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ Gugun Power Trio - Far East Blues Experience (2011) [APE|Lossless]<Blues, Blues-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +658,7 @@ VA - In Trance We Trust Volume 017 (Mixed by Bobina)  (27.02.2011) [MP3|320 kbps
 ```bash
 magnet:?xt=urn:btih:1D942A2A732464247927E1C059C416A0A10F0546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +689,7 @@ System Information Viewer 4.16 [Eng]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +723,7 @@ Lionel Richie - Just Go (2009) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:D7FF020F14A938C3C2616DFF189C09A52BFCED7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E9210AF1A84CD5AF960FB9F06223D77CC5F61B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -798,8 +773,7 @@ Artizen HDR - первое функционально законченное р�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

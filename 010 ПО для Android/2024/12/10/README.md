@@ -19,8 +19,7 @@ PicLab - Photo Editor v2.10.0 Mod by Balatan [En]
 ```bash
 magnet:?xt=urn:btih:A305E451587923FE5925564329698EC3AE8A1719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

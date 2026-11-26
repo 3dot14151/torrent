@@ -19,8 +19,7 @@ Duke Nukem Forever - продолжение приключений знамен�
 ```bash
 magnet:?xt=urn:btih:E7B7D2AB97F72463E6BB0F54F79BE41AA770A151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

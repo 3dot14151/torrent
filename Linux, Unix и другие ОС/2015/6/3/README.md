@@ -19,8 +19,7 @@ Sabayon 15.06 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 ```bash
 magnet:?xt=urn:btih:451C175DC71ABF89C40C08A6C35E45D22FA52980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

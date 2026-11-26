@@ -20,8 +20,7 @@ NAM (1998) [Ru] Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:31BC7A5DA91CD94765985DF3D63A5CA46B505268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Harvester (1996) [Ru] RePack R. G. Games
 ```bash
 magnet:?xt=urn:btih:8E2B2BA614A689D9A62A0DD9EAD0348EB159EF49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MiniOS — это лёгкий и быстрый модульный дистри
 ```bash
 magnet:?xt=urn:btih:789E2FA2D2946D2121C0AA75FB7FB5DB482735F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Astra Linux Special Edition 1.8.1.UU2 [amd64] 5xDVD
 ```bash
 magnet:?xt=urn:btih:04071F47D34A3329C7C194B197F195DA01BDE790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Computer Desktop Wallpapers Collection (20.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:55BD6AE5714D594B25213B2E06669FCA3FC9A3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5054230FBC17E846F981DCC65F26757C21322DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Winter Wallpapers (18.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:CD7F5BDC28CADE8947623CD8179019B9DB13DC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19E0F09FDFE0C75DFD49E2BF48EE95A91994A044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ New year wallpapers 2013 (19.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:97FAB6741C06C14CF454EEB7B00E0DC3AD1B6B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Winter Wallpapers (21.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:2EAD183AED52C60059D771F24A1F5CD1A5C25AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC0BB14B88817F19DBF0A14595192432EA2DC760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Apparel Music B-Day (2011) [MP3|320 kbps]<Deep House, Jazzy House>
 ```bash
 magnet:?xt=urn:btih:7DA33A838939F0D272F4DE5532E683B77FAF8D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ VA - 15 Top Trance Hits 12 Best Of 2012 (2012)
 ```bash
 magnet:?xt=urn:btih:4820F8964CA0851C6AB8D872D2E24B6BADBA0065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C9F4C93A391DEB65FD92A2BF9BE4F77B172A7E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ VA - Enhanced Best Of 2012 (mixed by Will Holland) (2012)
 ```bash
 magnet:?xt=urn:btih:5840591DB32812FFCB19C3E33B3912D9B0E2B189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Best HD Wallpapers Pack (21.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:F76E98F8FC21B0E062BC0B4C8D39DE96E4F340BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45F0DB053348814755E0DA43548F9182F4455012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Dragon Wallpapers (20.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:47C8AECED05B09F51CEC5DFFBEC091CA152B6AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D1F30CE1095520A68AB5E67419F887548407C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ HQ Wallpapers for a desktop (21.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:0071452D3427653ECF5585CC0CAE98194E186DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Desktop Wallpapers (21.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:0CA3415C514C5EE0B7BA7C93BACC3393C1B54A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E78CD4A91606D199B016B2B2B843149127C8B959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Daily Bread - Iterum (2012) [MP3|320 кб/с] <Indie Rock, Electronic, Dance>
 ```bash
 magnet:?xt=urn:btih:4949CC521BD0EB1BBCF233056FCFC15D8D665E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ New year wallpapers 2013 (20.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E6B935035E6378A555CBB4AC415F1B6E3EBDE37A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E0ECFAC737841B9A4CF31A683021B60BB248339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2C75057B2A655C641181B5C2FE16B08364CD70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A67F8A6A650A022AFAD868C6C3FE2D20B567613E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ VA - Global DJ Broadcast Top 40 Best Of 2012 (2012)
 ```bash
 magnet:?xt=urn:btih:935F9C38A62FA7C91CAF6D0E2EBD6AF1F0748291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ VA - Клубная ночь на радио Record (2012) [MP3|320 кб/с]<Dan
 ```bash
 magnet:?xt=urn:btih:F1EB46BEE1111CD811CCC0526F4F2B0D240BFB56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Simple VHD Manager 1.3 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F943EF477F72A847E511C69AAFA96C2B647E7F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

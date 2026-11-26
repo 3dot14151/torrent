@@ -19,8 +19,7 @@ Northgard (2018) [Ru/Multi] (3.5.15.38668/dlc) Scene Tenoke [The Viking Age Edit
 ```bash
 magnet:?xt=urn:btih:B131D51C04EEC9E8E2669DBB05F2BF1B7EE18529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Snufkin: Melody of Moominvalley - это приключенческая игра
 ```bash
 magnet:?xt=urn:btih:A9B40EB55053F79290B89A95C72B87517ECF9CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Old School RPG – встречайте нашу увлекательную фэ
 ```bash
 magnet:?xt=urn:btih:A132C67E4D2AE89678734086D3156C2FC9F69B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Double Dragon Gaiden: Rise Of The Dragons отправляет в захваты
 ```bash
 magnet:?xt=urn:btih:E9EC986AF3B47A0BA5EBE4E8852DF892A48AA699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tale of Immortal, песочница с открытым миром, глубо�
 ```bash
 magnet:?xt=urn:btih:09466F81F005565EC0435D9CDE7F040F6084AFD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Strange Investigations 4: Truth Will Out (2024) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:40BF14E7A62EC7D66A1A852E6C5A4808F8330286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

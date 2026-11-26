@@ -19,8 +19,7 @@ Runaway 3: A Twist of Fate (2011) [En] (2.0.0.9) License GOG
 ```bash
 magnet:?xt=urn:btih:40AE7269B78B823E87F9A80E7E78CC144086B22A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:6FA73857A9367A7F7B406E38990AB37346D5B67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ancestors Legacy (2018) [Ru/Multi] (64724/dlc) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:E68FE0EEB4963E63103D72205E89D4BED2E650A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

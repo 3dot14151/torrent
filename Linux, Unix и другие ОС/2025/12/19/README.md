@@ -19,8 +19,7 @@ CML 2.9 — это мощный инструмент для сетевой си�
 ```bash
 magnet:?xt=urn:btih:3EC62D7AFAC49206466B9FD6FFB6B5EB5B15F9B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RouterOS v7 — это операционная система на базе я�
 ```bash
 magnet:?xt=urn:btih:2A1EC8A73E3CAA65A2C1E6FA7853B3275C052B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

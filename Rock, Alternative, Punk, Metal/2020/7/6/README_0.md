@@ -22,8 +22,7 @@ Cloud Nothings - The Black Hole Understands (2020) [MP3|320 Kbps] <Indie Rock, L
 ```bash
 magnet:?xt=urn:btih:B17B0C286AC3C3322C6141D5951EAD63D4916951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ravenlight - Project Genesis (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal
 ```bash
 magnet:?xt=urn:btih:B80324B89A4B305FF6E0C13F3A403E8B0DF8F764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Skyfall - Sleeping Forest (2020) [MP3|320 Kbps] <Symphonic Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:8B7E682C42251876270F7AEF9146995E95FF464B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

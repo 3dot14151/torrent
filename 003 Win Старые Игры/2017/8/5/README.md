@@ -19,8 +19,7 @@ Deadlock: Planetary Conquest (1996) [En/Ge] (1.20) License GOG
 ```bash
 magnet:?xt=urn:btih:9AB4EB0C016B3911F81343D14743D301CD3FFD44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 ```bash
 magnet:?xt=urn:btih:EE973FBA73F231E6038309EAD777269755F91C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Inscryption (2021) [Ru/Multi] (1.10) License GOG
 ```bash
 magnet:?xt=urn:btih:E01007A1DF54E5038A282A378C2C3FC608990400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

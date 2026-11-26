@@ -19,8 +19,7 @@ ScanPapyrus 17.00.0 RePack by вовава [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F8A5A03C1D394A398FF96AD81ABB110AA8A8EDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

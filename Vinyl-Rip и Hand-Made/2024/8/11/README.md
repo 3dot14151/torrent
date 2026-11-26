@@ -19,8 +19,7 @@ Various Artists - A Tribute To Helloween - The Keepers Of Jericho, Parts 1 & 2Ж
 ```bash
 magnet:?xt=urn:btih:E27A16C6CC0FF66CC8B07FBB419466C82DECA389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Celesty — пауэр-метал-группа, основанная в 1998 г.
 ```bash
 magnet:?xt=urn:btih:B2B42D8032B468B4AB14C950CE8CD9E5766CFAD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Sinergy — финская супергруппа, исполнявшая муз
 ```bash
 magnet:?xt=urn:btih:9746D5ED176D51B297AA801ABC6F9A14BA47A0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

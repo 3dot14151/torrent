@@ -21,8 +21,7 @@ VA - Rock (93 Original Hits) (2009) 6 x CD, Compilation [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:BC949E7420372957FBE2081278F6F89140A81D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ ADEPT — шведская пост-хардкор/металкор группа
 ```bash
 magnet:?xt=urn:btih:BFA91A15BD816EBCCE29F94DAFD112B269DFE417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

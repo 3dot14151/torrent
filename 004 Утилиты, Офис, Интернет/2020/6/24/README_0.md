@@ -20,8 +20,7 @@ ESET SysInspector 1.4.2.0 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:B42FE0D8D4CDB8B5A4C3A55F3711199A6510F1E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:2962A29C6575ED3564DD4DDEE4DCB7BFCBA9C33B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Auslogics Windows Slimmer - удобный в использовании инс�
 ```bash
 magnet:?xt=urn:btih:1AFDCED1F86805C5B9EE8A1C494DB135F83F6395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

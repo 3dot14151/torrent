@@ -20,8 +20,7 @@ Varios - Колокольные звоны Псково-Печорского м�
 ```bash
 magnet:?xt=urn:btih:63222FEAC29B7C19564568D5B9A987D0FCB65856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

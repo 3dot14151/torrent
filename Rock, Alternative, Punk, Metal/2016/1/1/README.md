@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:74F49A9F9213E844DB819965EB51864F353DC66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Rolling Stones - Bridges To Babylon (1997) Remaster, 2009, Polydor [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:E9BE578322DDF381E752B2EC2DFFB37DA0A10198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pink Floyd - The Dark Side Of The Moon (1973) SACD, Remastered, 2003 EMI [FLAC|L
 ```bash
 magnet:?xt=urn:btih:4A59F96E359C84266AB98D1ACF22B70F46AC9341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

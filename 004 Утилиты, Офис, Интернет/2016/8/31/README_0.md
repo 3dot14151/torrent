@@ -19,8 +19,7 @@ Office Tab 11.00 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FAB3F5C973A047593A8189AA1F7AB1913EF05F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

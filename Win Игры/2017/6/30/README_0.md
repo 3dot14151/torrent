@@ -19,8 +19,7 @@ Dark Parables 12: The Thief And The Tinderbox / Темные Притчи 12: В
 ```bash
 magnet:?xt=urn:btih:19F74A4308902E7EF433A2E007336E9C081A2F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (1.0.0.1) SteamRip Let'sPla
 ```bash
 magnet:?xt=urn:btih:99FD8BF8FB20A6CF50B339D81A9FF1F10A03BA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

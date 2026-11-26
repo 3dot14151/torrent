@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:9E5A5DF48FFD98AC5B525499F9E8CB61CA8C6DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DECAE6DA182469A873E62C030145EDB014AF82C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Roland Guerin Sextet - Live At The Blue Note (1999) Half Note [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:291F52C274DBFE03A6D08CEDFA43E54117B206B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0B1D838B56D1378B03F0D5E6031EE5B6E206D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ File Cabinet Pro  - менеджер документов из строки ме
 ```bash
 magnet:?xt=urn:btih:9FEACB9510992DFABF1FB87993D5D2E8BEBD8AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ram - Rod (2017) Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B8545557BED84D059E8076F17B39950723D37E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Craig Connelly - One Second Closer - Deluxe (2017)  [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D373D2F727C2DE6062E2C28F67FE04AE7BF0A8D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Club Beats 2017 (Compilation) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:5EDBB695122932A0D4BA6E1AE86D4462BCF8B0CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Deep Attraction (Deep House Grooves Selection) (2017) [MP3|320 Kbps] <Deep 
 ```bash
 magnet:?xt=urn:btih:4FD992B08AA934F9DFA72DE67607E284BB8436A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Digital Rush - Evacuation Centre (Original Mix) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:0277EA75CFFD80DBD2CA8A63753C28CE63C51BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - Chilling Process Vol.02 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:9EC32BCE8EAEC66C72FA7F769D330F73D9832673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:748CE1BE2E0C56DC8367BD5CB4BDCA6BE678C316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Tom Harrell - Upswing (1993) Chesky Records [WavPack|Lossless|image + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:4EF60478BE99A4B5D15C45FB9AD4C4BF92866062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Chuck Mangione - Save Tonight For Me (1986) CBS [FLAC|Lossless|image + .cue] <Sm
 ```bash
 magnet:?xt=urn:btih:9F33C730877B88BE9F37A6D2A7EB00EB172645BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Monster Energy Nascar Cup Series-2017, Этап 35 - Can-Am 500, Phoenix Raceway
 ```bash
 magnet:?xt=urn:btih:EB4EECCB8C1B37C99E0C5F32395D444D88824E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFC65C0794EFF8F7374C71E286FE89CBE7C56CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Roxi Drive - Girl on the TV (2017) [MP3|320 Kbps] <Synthpop>
 ```bash
 magnet:?xt=urn:btih:D92C3338437A0055B51CAD188E57862AC4717A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Soulful-Cafe - Deep & Chill (2017) [MP3|320 Kbps] <Deep House, Downtempo>
 ```bash
 magnet:?xt=urn:btih:71321E407008E5EA6F645F57DB42096024B40D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Dig Into History - журнал, в котором история и архео�
 ```bash
 magnet:?xt=urn:btih:47F5DAE206F4C9FE2A187621749D86FF88A7CDF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:221BFC5FA854070AC1FE317144675440B8665F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Cyberfox 52.5.0 for AMD + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A63C0802DDFBD2F10E1E3F5A578E89A8F59FAE09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24801E6B991F3D387DB5F48FDFD16005F4EFBB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E1D205F8F2DC134C341CCF20EDF31552859CB54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Dig Into History - журнал, в котором история и архео�
 ```bash
 magnet:?xt=urn:btih:31C94283C9857BC21B23C51457F488D99833A1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ VA - EDM 2018 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:6E8BC521128DB4CDE831F26FC488A909836D10A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:634D7C59431F80A29CE7250B7DF319442DB9F2A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54A58E315E9C361F54C77006D469CBC4DA3ABD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ CD1 - Remaster 2024:
 ```bash
 magnet:?xt=urn:btih:863F6C815AB131E35F5BD727D2B8DB14994AFD34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Deep Reflections: Summer Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Or
 ```bash
 magnet:?xt=urn:btih:7CC02BDA1880B8F8289C59CFE44517876442B13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C4083AF1950F9FC126DFBDDA91C33B5278A9174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Right Said Fred - Up (1992) 1st US Press [APE|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:A4EBEDBB799D35E6967541C8E2677EE6FE819420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ UNDERWARD - это кооперативная игра в жанре хорро�
 ```bash
 magnet:?xt=urn:btih:C04328C39156CC62FFA6A020D2C116E092977473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.2.64310/dlc) Repack Let'sРlay [Deluxe E
 ```bash
 magnet:?xt=urn:btih:BF01DFD646BEC8EC42CADE74152D82489F8452F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Borderlands (2009) [Ru/En] (1.5.0/dlc) Repack FitGirl [Game of the Year Edition]
 ```bash
 magnet:?xt=urn:btih:5A1C88C99E30CC1496A0B3482548F93136BE0992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:840F6AC69B7A4C976131330E4C5F5B618247FC53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ ASTRONEER (2016) [Ru/En] (1.34.47.0) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:9258DF428DB8270D5152045DCB3A02F4087A4C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:8EA1A52BAFE80AA2979304EC10E48F9F9FD66859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:083C8A0C2DB9126FF7D8E4D9DB67A1F12ADC8995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ Redneck Kentucky and the Next Generation Chickens / Куриное побоищ�
 ```bash
 magnet:?xt=urn:btih:ED388EF06AD9CD06C84DEFED9DEEEDB2C814CDBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 ```bash
 magnet:?xt=urn:btih:6084F698C6C351D5EC1F9E22CA09061D6E18EBFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98A10C67F1A7017DF4BBDC384A6E88CC939C3A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Ubuntu GamePack 22.04 (июль 2025) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:E9035C84AB1B304A56F51A34969612C0B3E60CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5936D2552EB5943794D345AF895D40E02926F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7019EBAF837F2ECA15F345A8485678E061AF6F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CDD72F5B5892F2AB2B7ED8EE9315C439A02B2603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ Potion Craft: Alchemist Simulator – проработанный симулят�
 ```bash
 magnet:?xt=urn:btih:38994F757A338A456BB3FE9CF81A614DCFDCDA01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

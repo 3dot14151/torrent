@@ -22,8 +22,7 @@ BONGTOWER - Oscillator (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Psyched
 ```bash
 magnet:?xt=urn:btih:83D33EA4E2467D357F2987BEA2F70CCF44C148D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

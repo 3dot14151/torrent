@@ -18,8 +18,7 @@ Sound Normalizer - звуковой нормализатор звука, пре�
 ```bash
 magnet:?xt=urn:btih:0B888A608E3BF67119F493E4F02C15122F3AB4D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ FIFA Street на Xbox 360 – это самый настоящий уличны�
 ```bash
 magnet:?xt=urn:btih:B01F4A0B857A12169E44FC88A15B04DD8071A778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A868071E92A7AC3DE7DEEF764E4C9E1353C06CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Call of Duty 3 (2006) [Xbox360] [Region Free] [Freeboot] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3975A60B93E6887F36157E738AF30B8B92CF9CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EB46B37467981F9815368470E93D8F904E9214A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ BlueScreenView сканирует все minidump файлы, созданные
 ```bash
 magnet:?xt=urn:btih:006842387E99129417E3ACE9150E5750B73EFE6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ The Beginner's Guide, новая игра от создателя The Stanley Pa
 ```bash
 magnet:?xt=urn:btih:5D2FEC0F7857128D11FD14F51ACA2FE8EA773948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Atrise Lutcurve 1.5.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7C357D508BE10A72ED00C873A983D38F54640A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E03B03962CD639AC7FF3CA855DE1F218777B39E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Raven's Cry (2015) [Ru/En] (1.0.0.3/upd5/dlc) Repack =nemos= [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:E06158C63C404E30F5A9C2C63870C8A9BB1CB8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Atrise Lutcurve 1.5.3. Portable by BALISTA [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:204B6689754667F13B579C5F59072F679CCB7325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59D66DD1C2B3B9BAEC6561F1C4E24315DE9BA5D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ NG: Жизнь до рождения. В утробе матери. Челове
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Shokugeki no Souma / Food Wars! Shokugeki no Soma / Кулинарные пое�
 ```bash
 magnet:?xt=urn:btih:50AF87C309C53E84F07F42BE5885064379B9304E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E33A0FF98DBF698506B44EB5B0616F6DD5D48E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5CE26D87539DF47EA83F8760976C4705EBBA6E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:DCE1A83484FDE3B94B948077F6167730253F1219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ Mahouka Koukou no Rettousei / The Irregular at Magic High School / Бездар�
 ```bash
 magnet:?xt=urn:btih:8DA965D1EC4D451B28C938BEC903AD8D9DFF3D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ Koukaku Kidoutai Stand Alone Complex | Ghost in the Shell: Stand Alone Complex |
 ```bash
 magnet:?xt=urn:btih:4A43D082CE800F52F5DF8B2780C0C47732950B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ Koukaku Kidoutai S.A.C. 2nd GIG | Ghost in the Shell: Stand Alone Complex 2nd GI
 ```bash
 magnet:?xt=urn:btih:229EFB50DD31B9F6B7DA34E56DEFC6CA9FFB4682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A60BD2CFC50A907040401E5E038C4A208D2EAE2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ Mortal Kombat X – файтинг нового поколения и следу
 ```bash
 magnet:?xt=urn:btih:8EB8B50BCB08C47C1F2E8DAA26D702795537BFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ Mad Max (2015) [Ru/Multi] (1.0.1.1/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:34BF6718E46E169E356217B376CBF5FBFA7A5E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

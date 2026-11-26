@@ -19,8 +19,7 @@ Disk Drill - простая и эффективная программа для 
 ```bash
 magnet:?xt=urn:btih:B51C36A979AF74B2EC4C01EA67440F507B9B4E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eassos PartitionGuru Pro – утилита для управления жест
 ```bash
 magnet:?xt=urn:btih:154F470D93773B776E0DAD0A4CBBC8237E47F40F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

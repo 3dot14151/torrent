@@ -22,8 +22,7 @@ Midnite City - Bite The Bullet (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:F4E81DE38536DA1942D2B82B836B6A25A0BA257A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:351C18110105A8C1A7E6E4672D37370629F5F4A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Beatles - Anthology Collection (2025) 8CD Boxset [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:49D0FA3144560C63EBF90CF4C8853314E2218720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Garrison - The Final Chapter (2025) [FLAC|Lossless|tracks] <AOR, Arena Rock>
 ```bash
 magnet:?xt=urn:btih:A9B953906BF51526E7184105CCCF42018D6F4B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Black Sabbitch - Unrest In The West (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-R
 ```bash
 magnet:?xt=urn:btih:65D5E1D3114F8E37A7912C08C6B45A6F00AC3DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Pretty Wild - zero.point.genesis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:63BE37E98A4830DC09F3FBFD2593030839CC54DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Cristiano Filippini's Flames Of Heaven - Symphony Of The Universe (2025) [FLAC 2
 ```bash
 magnet:?xt=urn:btih:51C6B535E1EED70B8423C6C1180F42FE6A109B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Hell in the Club - Joker In the Pack (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:178B9A905FCA2140A565B11CEDFCCCC06A7DFCA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD1 - Tempo Of The Damned:
 ```bash
 magnet:?xt=urn:btih:3B9C6DBEE74A2472F07EDF567683639D106AC03D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Garrison - The Final Chapter (2025) [MP3|320 Kbps] <AOR, Arena-Rock>
 ```bash
 magnet:?xt=urn:btih:0B96AAEBAD6D62B17C9F4EB2D5DCB4E9D0E63258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Sterbhaus - Next Akin to Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Dea
 ```bash
 magnet:?xt=urn:btih:9EB485055D35A7F581933E38918425890F892690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC7A649E92C9957A997B263B3C55B7F34AD31D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A3AEC52BA64A1F020062654FFEFE1FFEA3A36BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

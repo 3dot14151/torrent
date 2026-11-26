@@ -19,8 +19,7 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:ED44E3C07601E31432A6849C64BD0E6CEF7CF6B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners Substance Painter Course (2020) PCR
 ```bash
 magnet:?xt=urn:btih:775DCDE7C37E81543B96E885A38B379E0FD14A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0F69FE25C30E316DE7C562324B6FF2F4218584C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DFA851C59BFB0048D2621A7C2248E80CE2182A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B24EF7D7999E06D55E045E01B73D02FE48FFE7A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Resident Evil 4 (2023) [Ru/Multi] (1.0/dlc) Repack Decepticon [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6C0D26602954F130A48855C02D86042293A4488D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Timesavervfx, Александр Ежов | Анимация фотографи�
 ```bash
 magnet:?xt=urn:btih:F4B47B307E4E7F819725C556F87E138735E448A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9551C5B744AC1CA6F0E00FE0BFFA11E039BB00BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Sveta Smirnova, Alkin Tezuysal | MySQL Cookbook, 4th Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:C2FF589E9D0F31B2924992D8731DF4FFC7A647F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Udemy, Nikolay Naydenov | 3D Character Sculpting in Blender - Viking Edition (20
 ```bash
 magnet:?xt=urn:btih:C9ECBD5CD01148868C441A786DED4367C23479D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ V-Ray — система рендеринга, разработанная ком
 ```bash
 magnet:?xt=urn:btih:F7DD35A37C27F2D61BC3B729A87E9B5B69F54D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88E8B9A768F1D68F7018C4B1E829995AB5BAD76B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ CrossOver создаётся компанией CodeWeavers на основе и
 ```bash
 magnet:?xt=urn:btih:35B3D6A99FE3B65C80973CB1A8A79C6F4E3361EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ QA Studio | Ручное тестирование ПО (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:D8EB8D8FA88AA113A7B0B03C602A0A0D5CA7A508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:699682CB8C465F108C14253DED8A686CE17092D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ Red Group, htmllessons, Максим Шушвал | Все интенсивы (2
 ```bash
 magnet:?xt=urn:btih:09CBD0D4D3918510896444AF1C49E4267EB4E51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 ```bash
 magnet:?xt=urn:btih:EFC81D90089F1CC4F99E338E4A3DCCE47FC2AE86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:BA7A3574AEFC7C866160BACE45148985EB9A94D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ The United States Army Field Band Jazz Ambassadors - The Legacy Of Hank Levy (19
 ```bash
 magnet:?xt=urn:btih:F91E56F139548F6744035FCBA5159F7B74F0479C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Grausig - Anomi (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
 ```bash
 magnet:?xt=urn:btih:9B9FD001CA001333FFF12DA9E851CB98ACF0150E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ Andrea Pozza - Plays Ellington, Monk & Himself (2006) Go4 Records [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:ABD8077B0E1D539E7F529F2D74EF013888A45169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ Andrea Pozza Trio - Blue Daniel (2010) Dejavu [FLAC|Lossless|tracks + .cue] <Pos
 ```bash
 magnet:?xt=urn:btih:04D8495800A23C3992693431298C67960AC56584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07292002736B4B62D3E74CC72ACEA8ED2A2B08C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (1605) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:D49213CC066B5F0260074B11981E260575D8A082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

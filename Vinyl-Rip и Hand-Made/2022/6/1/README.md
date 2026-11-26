@@ -22,8 +22,7 @@ VA - Честно говоря-2 - Советская Эстрада 70-80 гг.
 ```bash
 magnet:?xt=urn:btih:99DEDAF61DEDDF2E9CA07D49D81ED5C191CA1719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

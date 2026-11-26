@@ -19,8 +19,7 @@ Legacy of Kain: Blood Omen 2 (2002) [Multi] (1.0.2hf) License GOG
 ```bash
 magnet:?xt=urn:btih:DB908066AA61BCA24FA61E99EF0E3029D67224FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 ```bash
 magnet:?xt=urn:btih:FF4728F8D18D52629D6B7FD95DC05E3727EEB2F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

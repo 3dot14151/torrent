@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B7D53B637D50DB7088F833E98F3D7C0E160DD79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Process Hacker — бесплатная утилита с открытым ис�
 ```bash
 magnet:?xt=urn:btih:6AE6B2D9EEB9EDB7864A4CBFDF3BF59E17FB2B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ The Emptiness / Пустота (2015) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:E2D668B5AFA6A5A908F239FEE67D149124037A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:652F46A1CB1E28BD11007F8B64AC957C6CF4FA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Life in Bunker - разноплановая песочница-стратеги�
 ```bash
 magnet:?xt=urn:btih:1A1E8CFF957AD8A14487374832167F540472DDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ AnyDesk 2.2.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:99CBAB986284E77E7E21B7C877E698D5331D4305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73166FEE5BCA785F21E967EBD76329CAA98ADC88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FCE767B2D54973188C2613388C12576B6946732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F59D334875C46267FC879B5FF5CD8761A08B2B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Amira Willighagen - Merry Christmas (2015) [MP3|192 кб/с] <Classical, Opera>
 ```bash
 magnet:?xt=urn:btih:C82A4C749C918622B805B1CCD016B0A4DF36F24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D16712E27A6B0EECF986A6362F3E8768725AC8AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ ObjectRescue Pro - универсальное решение для восста
 ```bash
 magnet:?xt=urn:btih:FACB33327AFDE0177FC45F5503BA4C73EE5A1398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DD8A49E9C6D46366B9F509EB978C32E86AC2277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Adguard - одно из известных приложений разработ
 ```bash
 magnet:?xt=urn:btih:8BB5EC2195DF4F7AA791919589C35E77E31F9CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8542CFBE36481527B790840F3E0262377A9B44B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ London Philharmonic Orchestra - The Symphonic Music of Pink Floyd (1995) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:E05A98E5C24A18B346CB911C0DA0E846BCE131C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Deponia Doomsday (2016) [Multi/Ru] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:CC09C9A7E5E1A59504C348C66B58E4FCE9C3D6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Dialogys включает в себя абсолютно все руководс
 ```bash
 magnet:?xt=urn:btih:FC4D546FAB4615C73B6B2FE806F597065C0DD78D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EECB0A9FF9066E2FB05AD2403571D3FF535967DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Neverending Nightmares - это психологический хоррор, с�
 ```bash
 magnet:?xt=urn:btih:99367FD62903833A592C0653EBC48D543BB13C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F1CC32311ED735AFF949E2647C2F454867C12D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B392FF22517061ECADD2E1B4C951681DB11E23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ XIX век. Англия. Два антрополога Джэйми Дод и �
 ```bash
 magnet:?xt=urn:btih:DEF1B96CC65323AEA99A5B5F6813FCC3AEF9CA38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +606,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:7820886CDF280C35B0244FC6BC59187506B6034F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF49A0BF21C1527375932897E1B9C089C6E35D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +656,7 @@ Discovery: Почему? Вопросы мироздания. Можем ли м
 ```bash
 magnet:?xt=urn:btih:3C2CF2AF6A30931714066D6703924D5A3786BB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Netrunner 16.0 Ozymandias (Plasma 5.3)  [64bit] DVD
 ```bash
 magnet:?xt=urn:btih:7D86B94FF813C2905CD57C8605EF48B4475A1C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:5D5DE865E499DF4C165AD7D287B975BC5FFB635C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

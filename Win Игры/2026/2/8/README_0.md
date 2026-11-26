@@ -19,8 +19,7 @@ Carmageddon: Rogue Shift - это жестокое состязание, где 
 ```bash
 magnet:?xt=urn:btih:D19C243DB64AE1F2950EEFC4E1AF676E72799355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Carmageddon: Rogue Shift - это жестокое состязание, где 
 ```bash
 magnet:?xt=urn:btih:742AA84FF8FE7EB9EBC92A1FBD2740E52B54EC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resident Evil Village продолжает приключения Итана и�
 ```bash
 magnet:?xt=urn:btih:1BBB27EEEFEF7E05CCA92BEB1925EACB3C09066A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nioh 3 - мрачный ролевой экшен, сюжет которого �
 ```bash
 magnet:?xt=urn:btih:92B001298F565AF51076E26B6870DE6C929BFA44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Nioh 3 - мрачный ролевой экшен, сюжет которого �
 ```bash
 magnet:?xt=urn:btih:E41DEC4826F679D721B768A5A07FE7B20BCFBD69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Donna: The Canine Quest (2025) [En] (1.0.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:2D323629EB445D20FE4AE54706E8CDC71BDFF000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Rising Front - это однопользовательский масштабн�
 ```bash
 magnet:?xt=urn:btih:6611A7D83B23C8C0AAF6A1D0F26299E7CD6C1BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sky Force Reloaded – это воплощение классической ар
 ```bash
 magnet:?xt=urn:btih:1A3E1AEAFD6615EDEDA95BB3FF96EE0C94345EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Nioh (2017) [Ru/Multi] (1.24.8/dlc) Repack Let'sРlay [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:F3AB44D9086AFA0718230055D090AE31106762D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Nioh 2 (2021) [Ru/Multi] (1.28.8/dlc) Repack Let'sРlay [The Complete Edition]
 ```bash
 magnet:?xt=urn:btih:C142BB702AB1B07F17F5AD69941B5A8EAF95865A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Carmageddon возвращается! Встречай жестокие безу
 ```bash
 magnet:?xt=urn:btih:121DE4BB772A44147995B9629D5AEFC5532B086A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

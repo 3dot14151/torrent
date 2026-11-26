@@ -21,8 +21,7 @@ Angry Birds Space отправляется в космос! После того,
 ```bash
 magnet:?xt=urn:btih:70053B44A69470FAA01F5DF1F4B7AE2CD186328D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Angry Birds (2011) [En] (3.3.3) Repack Xabib
 ```bash
 magnet:?xt=urn:btih:D4F4F1CAB28340C4818E619E27C771DBEDE318FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Angry Birds Rio – продукт партнерства Rovio и 20th Century 
 ```bash
 magnet:?xt=urn:btih:A46693A0C9D4B1F91DF626732BA42B76AF005A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:998BFD69A3F746B5A06B019119937F63E98F8097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Angry Birds Seasons (2011) [En] (3.3.0) Repack Xabib
 ```bash
 magnet:?xt=urn:btih:636DBD4B0290AE6586E352AD327A7C4C5AA9802C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Angry Birds Star Wars (2012) [En] (1.4.0) Repack Xabib
 ```bash
 magnet:?xt=urn:btih:67569C73D8E8E0682C65063023053C16909E68FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Evoland Русификатор (2013) [Ru] (1.0) Unofficial Бaton
 ```bash
 magnet:?xt=urn:btih:E8829D8F2A99FA55F48F8375DEAC27B4930C24C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Bad Piggies (2012) [En] (1.5.0) Repack Xabib
 ```bash
 magnet:?xt=urn:btih:21500A6CF5E06410901F203258A260C08F3BA032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Purge (2013) [En] Repack ATTACUE
 ```bash
 magnet:?xt=urn:btih:637DAF79200A9A3DF1DCE24198E1366642CD61DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Angry Birds Star Wars 2/II (2013) [En] (1.0.1) Repack Xabib
 ```bash
 magnet:?xt=urn:btih:6DCD61965B769AA04F541B2C16F4E138D92AADCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

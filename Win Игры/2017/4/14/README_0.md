@@ -19,8 +19,7 @@ Cosmic Star Heroine (2017) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:9C6A3EF0B7BFFAE5EF9D43E3E4941F57CF63EA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ready for Take off A320 Simulator (2017) [Multi] (1.0.1) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:D28B1AA264A301CF2CFD4565CB00808FB43B7089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bastion - ролевая игра с принципиально новым вз�
 ```bash
 magnet:?xt=urn:btih:42145A6D319DD1F8832C7D102A6E0ED7DE3205E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

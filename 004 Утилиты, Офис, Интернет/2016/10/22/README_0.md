@@ -19,8 +19,7 @@ Chromodo Browser 52.15.25.665 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0BB9CC1DDDADC76B3049548AF1351BF21A979533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

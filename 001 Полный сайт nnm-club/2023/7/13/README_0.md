@@ -21,8 +21,7 @@ Edge of Paradise - Hologram (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:76EE848E3817D6DBCAABEE2CE779300513D70FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Neal Morse Band - An Evening of Innocence & Danger: Live In Hamburg (2023) [
 ```bash
 magnet:?xt=urn:btih:0ADE2DF77B4A09D8EBAADDD5654401F3ECE9E717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:679ABADAE76165D11E77364050D2F1F75933C649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ The Infamists - Live Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 ```bash
 magnet:?xt=urn:btih:6EA21BF96AD9885280D4DA8EC706FC4970A7C75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36FAB65C4C92C6C84F5C9028329E5989ED29C92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Extreme - Six (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, H
 ```bash
 magnet:?xt=urn:btih:6415E14767419B0AD2ADC06C00F6895FB0D287D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:226D1CB8069178667275AADEB55032D02D9215CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:910D7F1BF8D212DBDCBFB38D5B474B74381A4401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3285E939577F81F72B15390773B0D67ABC2959A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFC1A5F565A55ED5D64FC58F174990D50B06A284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35C9731E53CE5E6669315A5EB72C4F661174AD3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Zone Out - Турбоглэм (2023) [MP3|320 Kbps] <Glam Metal>
 ```bash
 magnet:?xt=urn:btih:C18E8265D65C616013C8CB7C1C2EF1136A86B141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ The Fall of Mother Earth - Another Kind of Consciousness (2022) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:B165A532588B7594461674F8F9A358979A1079BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ The Company - The Company (1995) Japan Edition, Teichiku Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:8AB45E4B659BB1B47C69847A0DCDFBD45E817F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ End of the Dream - Until You Break (2017) [MP3|320 Kbps] <Melodic Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:8C9551558A2EAD8CD883777BE721653FA4766060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23A47C7CB1A6EDA437E2C1EE56A0E4E817141306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ Hanlon's Razor - Stockholm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:97F0065D6D96525C49A942648258AD5FB7977AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ End of the Dream - All I Am (2015) [MP3|320 Kbps] <Melodic Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:68B4B389CAB445973069C7930B2D77F17F2A8457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ The Ocean - Holocene (2023) [FLAC|Lossless|tracks + .cue] <Prog-Rock Related, Po
 ```bash
 magnet:?xt=urn:btih:01759EDF1F68AC6F83D8DCA46AA051C6C2042491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Mare Salutis - Symphony of Thunderstorm (2023) [MP3|320 Kbps] <Instrumental, Sym
 ```bash
 magnet:?xt=urn:btih:811177BDEF5672BF16AB40F4F953866AF88D6FE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ The Wealthy Hobos - Ticking Twelve (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy R
 ```bash
 magnet:?xt=urn:btih:ECBDBCE193CEF908218E738119D5233BFC13407F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Auslogics Registry Cleaner - поможет вам избавиться от о�
 ```bash
 magnet:?xt=urn:btih:30B4C59E908C10582FBE9FF9584C797289092B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:013F0DC26B7A7BD1BB978E55364A28AF109477F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ Microsoft .NET 6.0.20 Runtime [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7EA71210B2EE71769F7DA8823C094C315FAD5C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ Slimjet 40.0.2.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0B05C19AF6ABE86DE91721D205CF6610610CCE6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ MuseScore — великолепное приложение для создан�
 ```bash
 magnet:?xt=urn:btih:852569E01351AE6E584E2165547755C6F91364A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

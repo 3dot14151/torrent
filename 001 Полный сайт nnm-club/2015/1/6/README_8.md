@@ -20,8 +20,7 @@ Eryn Vorn - Avalanche (2014) EP [MP3|320 кб/с]<Epic Black Metal>
 ```bash
 magnet:?xt=urn:btih:94D96BD9FBC74C1C29FB5AC7E58EF55515F680C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Cry Excess - Ambition Is The Shit (2015) [MP3|320 кб/с]<Post-Hardcore/Metalco
 ```bash
 magnet:?xt=urn:btih:38F5A0E323296F59BAB00A4A24476BE61B2A5444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Herb Ellis & Freddie Green - Rhythm Willie (1999) [FLAC|Lossless]<Jazz, Mainstre
 ```bash
 magnet:?xt=urn:btih:D87C27629EE2AAAA3D1AF18F3DBB7F674068427B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ MSG - Now Or Never (2010) [APE|Lossless]<Jazz-Rock, Fusion>
 ```bash
 magnet:?xt=urn:btih:1615685A5C5A105BEF9203CED53F20A731DBB462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Candese (FSOL) - You Took My Love (1991) [FLAC|24/48|Lossless|Vinyl|Tracks]<Hous
 ```bash
 magnet:?xt=urn:btih:C49A8A70071EF41FEA72378F6AE7BA87DA5FC0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Even If It Kills Me - Hope On the Horizon (2015) [MP3|320 кб/с]<Post-Hardcore
 ```bash
 magnet:?xt=urn:btih:C3076231708B0C171C365B5265E2D81889B1FEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Cylob - The Quantum Loonyverse (2015) [FLAC|Lossless|WEB-DL]<IDM, Electro, Acid>
 ```bash
 magnet:?xt=urn:btih:6142E69390A337BDF3937D48B83C42E9C6B4277E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:699FDD72D2EC5241B05962F77C03A20B54718A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3D720CD9C39898E6FAFD7CFEE52DE28B899DAEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:307B79BD564E04DBAC6A6A834E1454D25395E598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ Zentimo xStorage Manager - (аналог USB Safely Remove) это менедж�
 ```bash
 magnet:?xt=urn:btih:A4C04865BEA85F099425B6708716A36E8EB3FAA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ Mulatu Astatke - Mulatu Steps Ahead (2010) [FLAC|Lossless]<Ethnic Jazz>
 ```bash
 magnet:?xt=urn:btih:AC5BBEFCA798E93CEDDA58C584CC86B00022AACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E65CC4AA75F591C11D4703F599C8FCE68CBE978B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ Sasha & Krister Linder - Cut Me Down (Beatport and Burn Studios Remix Winners) (
 ```bash
 magnet:?xt=urn:btih:A32BB3C2A3EB983C083BBC9CD5AC9D04A3EC6910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ Caribou - Our Love (2014) [FLAC|Lossless]<Experimental, Techno, Leftfield, Indie
 ```bash
 magnet:?xt=urn:btih:6A1D5E6E8CA15FAC8C68FD389E42DFA143C70A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7AD3F0E74508E642270566A67DF55DDDFCC7480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA83DFAFE99648A849856494FCAA53E8A9C716B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ John Zorn - Naked City (1990) [FLAC|Lossless]<Jazz,  Avant-Garde Jazz, Free Impr
 ```bash
 magnet:?xt=urn:btih:6A2F217CD5F13738C4C57524F82D25CA3332F274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +564,7 @@ Harnam - All Roads (2014) [MP3|320 кб/с]<New Age, World>
 ```bash
 magnet:?xt=urn:btih:F27BE52E129E4DB87509C72A411221829CA365A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAEAE31EA7CA7A76D2BBF3D49AB22543AE6D34A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:482E5E78DA579A510A70D9505595EA4177CBD724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C8C9A9543DAD9E2473470A0DC742B68096AC8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ Dionis - 3 Альбома (2006-2014) [MP3|320 кб/с]<Heavy Metal, Power Metal
 ```bash
 magnet:?xt=urn:btih:3929AF2523ACA6B2E0D6597230F6BAD84C9A0EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0CAEA7DB3C7046F393807CE44954431683ED52B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C9D0B185AA9EB0555BE88DF1F0DFE67F618DC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ VA - Italo & Euro Disco in Maxi Singles Edition (2014) [MP3|320 кб/с]<Italo D
 ```bash
 magnet:?xt=urn:btih:E914C71B242F99D80047D49396A28C832514FD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Warbringer - Weapons Of Tomorrow (2020) [FLAC|Lossless|image + .cue] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:EEA83F0DA3DDBA2AB10564173F1387150A00C01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Outland - Different Worlds (2003) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 ```bash
 magnet:?xt=urn:btih:D4F9B115EC1D84A954024BEBE11E10E0173F7A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Grand Design - V (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:30252D0E461344B7FB463DD5B21B7D8E124FC6C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Biffy Clyro - A Celebration of Endings (2020) [FLAC|Lossless|WEB-DL|tracks] <Ind
 ```bash
 magnet:?xt=urn:btih:71DDCD762EAC962497EE69AC60A8C5F00075B06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ In This Moment - Mother (2020) [FLAC|Lossless|image + .cue] <Melodic Metalcore, 
 ```bash
 magnet:?xt=urn:btih:6BB498623DD06A5ECE02A78D1C7489A44F2BC85F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

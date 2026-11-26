@@ -19,8 +19,7 @@ Dark Sisterhood: The Initiation (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2FE3E67BC2F9453966A87C3E9D37457DB9A75445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Midnight Mysteries 5: Witches of Abraham. Collector's Edition (2013) [En] Unoffi
 ```bash
 magnet:?xt=urn:btih:AB0D2ACBBD187AAF4ADD0D987337B87EC9030876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ FootLOL 2013: Epic Fail League - необычный футбольный сим�
 ```bash
 magnet:?xt=urn:btih:826391B9433EFCE73D2F8E44A48019F27860C858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Collapse (2008) [Ru] RePack Fenixx
 ```bash
 magnet:?xt=urn:btih:BDADCF4309B5ADE7F92B6869061361827693B3BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Collapse: The Rage / Collapse: Ярость (2010) [Ru] RePack Fenixx
 ```bash
 magnet:?xt=urn:btih:BC3EAF472D9C510839818992CF1DE449629AED27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Rayman Dilogy (2012-2013) [Ru/Multi] (1.0.32504/1.2.103716) Repack R.G. Revenant
 ```bash
 magnet:?xt=urn:btih:8DFA7B593F99F24CB34E59BA73BC1A3BDC5FFA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Marlow Briggs and The Mask of Death (2013) [Multi] (1.0 upd3) Repack R.G. Revena
 ```bash
 magnet:?xt=urn:btih:5FBF91C68D96252CF30B41C25730C729392BE296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Tom Clancy’s H.A.W.X. тесно связан с одним из самых у
 ```bash
 magnet:?xt=urn:btih:9E680702BCE6AE9349C2FD70FB1D8C5AE982E827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Legends of Dawn - фэнтезийный симулятор бога в жанр
 ```bash
 magnet:?xt=urn:btih:2D5EDFF9FD8EA6290C03225D3114A23877CF564F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

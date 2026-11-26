@@ -28,8 +28,7 @@ VA - Русская Звуковая Волна (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:B67D97DDD26DD75722A0CAEA9E630C3E9A1807E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Sharon Redd - Beat the Street: The Best of... (1989) [FLAC|Lossless]<Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Stephen Wyatt-Gold - Tranquility (2012) [MP3|224 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:C548C09FF9AB979E5454FD2C18B32ED9D5AFD9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ M-Pire Of Evil - Crucified (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:593DDDF7517E721034AD0716B7CCC9E3DC2117EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ VA - Best-of-ka 200. Тусим все вместе (2013) [MP3|128-320 кб/с]
 ```bash
 magnet:?xt=urn:btih:D294776E8705FB3BF27A25E81827ACF088FC72CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Wolfsheart feat. MayRa - Wings Of Love And Peace (clip) (2013) DVDRip [H.264]
 ```bash
 magnet:?xt=urn:btih:E02DD5627B08C3A093ECB1F18728BFCFBE80F4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Pit Of Doom - Atonement (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:756B7A3948593EC8047BA1D7D8BECFE5E0620392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ VA - Звездная тусовочка. Отдыхаем с лучшими х�
 ```bash
 magnet:?xt=urn:btih:29CD6EA3F9CA8D1DB0097928E52BAD0F47AB7B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ David Murray Infinity Quartet - Be My Monster Love (2013) [MP3|320 кб/с]<Jazz
 ```bash
 magnet:?xt=urn:btih:D4EA32B77E970ED432A94051B276FC43AE49E1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ Fred Katz - Fred Katz & His Music (1959) (2CD) /2012 Fresh Sound Records/ [MP3|3
 ```bash
 magnet:?xt=urn:btih:3D4419C102B921E781A6BCD0FF0DF0318F9EC91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ GeoGebra - это бесплатная, кроссплатформенная д�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5493049A254A59A00E5FDD0373C0101ED73D2EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +434,7 @@ VA - Лучшая Майская Вечеринка. Отдыхаем и нас�
 ```bash
 magnet:?xt=urn:btih:FB96245F334EAE29563AC2C39D78C3456CB5560F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +468,7 @@ Romeo Must Die - Hardships In Season (2011) [MP3|320 кб/с]<Groove Metal/Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +495,7 @@ StylePix работает с основными форматами файлов:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +529,7 @@ Vhaldemar (Vhäldemar) - Shadows Of Combat (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +563,7 @@ Freedom and Whiskey - Southern Rock (2012) [WavPack|Lossless]<Southern Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92E8B5AC2D606CF7E90AC9E33AFDDE52D2F8E072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66132DBAF5ACF1FC1B8094EF3FB97A8150433912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +646,7 @@ VA - Gathering Of The Clans (3CD) (2006) [MP3|320 кб/с]<Scottish folk>
 ```bash
 magnet:?xt=urn:btih:753F1880FB7A3D7D7FB58CF55667A88509E46E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +678,7 @@ Dendera - The Killing Floor (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +710,7 @@ Cathedral - The Last Spire (2013) [FLAC|Lossless]<Doom/Stoner Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +737,7 @@ FileRecovery производит сканирование и поиск пот�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +762,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41856F4F1980EE31F012173447A9C0321F569220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -814,8 +789,7 @@ Hornil StylePix 1.12.3.0 RePack by nikollo2013 [Ru/En/Ukr]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Polite Force - Canterbury Knights (1996) [WavPack|Lossless|image + .cue] <Canter
 ```bash
 magnet:?xt=urn:btih:A8A92556CFCEB5B86B476131D79E3AF185DBFB2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blue Coupe - Million Miles More (2013) [FLAC|Lossless|tracks + .cue] <Rock, Clas
 ```bash
 magnet:?xt=urn:btih:2AED2F1E4D13556238CE79E2F0BCFE4F0FB72EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Wilde Flowers - британская группа, названная в ч�
 ```bash
 magnet:?xt=urn:btih:562EF3F01F742575733A16990686AFF4BD21FBEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Luther Wright & The Wrongs - Rebuild The Wall (2001) [MP3|320 Kbps] <Rock, Folk,
 ```bash
 magnet:?xt=urn:btih:20D5EA28FEF014E9A32E656C585EE45C6A167B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - The Crown Jewels. A Tribute to Queen (2006) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:50E0CC589A1469B8F7AA2D46824D10AFE6447218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tempo Bay - Tempo Bay (2016) EP [MP3|320 Kbps] <Indie Rock, Alternative Rock, Da
 ```bash
 magnet:?xt=urn:btih:45FCD601AA072D589B0238A94DAA4B95A3839102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mark Wood - Turbow (2016) [MP3|320 Kbps] <Symphonic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0122BC18446D752FE63EDA00EB8848C0C3B204E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ S.P.O.R.T. - The Best (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:F196A4D5FE57368D424D068422F36F0AA67D3B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

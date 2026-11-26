@@ -23,8 +23,7 @@ Albums, EPs:
 ```bash
 magnet:?xt=urn:btih:45D68D1FE6D466E11477AE98CEAB7C2561288493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Captain Ivory - Captain Ivory (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:8B88BAFCEEEB5E96D5BFCCEDD63A735F7683494C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Sons Of Angels - Slumber With The Lion (2001) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A173893797AE9BF28F1404B23C132255AA8E362E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Grzegorz Kupczyk & Kruk - Memories (2006) [MP3|~245 кб/с (V0)]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1DA07576F0F49FE6F03D1467DF09D9F2C763DAC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Svartsot - Veldet (2015) [MP3|320 кб/с]<Folk Metal, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:958D36DD74465B86A2DCF3C8A3CA9FB2B1E68129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Annot Rhul - Lost In The Woods (2007) [MP3|320 кб/с]<Psychedelic/Space Rock>
 ```bash
 magnet:?xt=urn:btih:34472D1E812D28DA0AEEB056BA6943CE4231EE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Tanzwut - Freitag Der 13. (2015) [FLAC|Lossless]<Folk Metal / NDH>
 ```bash
 magnet:?xt=urn:btih:E8716B1B0634A5C21B6CAACE3325C7F15982CD48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ VA - Great Metal Hits (2015) [MP3|319-320 кб/с]<Heavy Metal, Power Metal, Gla
 ```bash
 magnet:?xt=urn:btih:32ACC9C5BE72B3A75EA0CBCF12F49458E33FA3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ The Ventures - In The Vaults Vol. 1 - 4 (1997 - 2007) [FLAC|Lossless]<Surf Rock,
 ```bash
 magnet:?xt=urn:btih:27BA7A1A1DA26BFC90E737D8987078D239606693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8222C594BE5792F3F8FE35B49D11815EA436EB36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

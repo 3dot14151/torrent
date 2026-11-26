@@ -22,8 +22,7 @@ Desolator - Sermon of Apathy (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:A492C84CA91A19E48400C9C70F610DD361E107E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Desolator - Unearthly Monument (2013) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 ```bash
 magnet:?xt=urn:btih:91134EAD6FBF97277F7CD65D748764EDECACB37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:7ECB9A78D1BB811767DC6F93171FBF114C0AAA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dona Eis Requiem - Grant Them Rest (2007) Demo [FLAC|Lossless|image + .cue] <Exp
 ```bash
 magnet:?xt=urn:btih:B42961FD9F0F90673CB06907E8A0DFD67E1E3E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Desolator - Sermon of Apathy (2020) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:AB16459AB1B2E01769F73B012754DA58AEB75139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dona Eis Requiem - The Litanies of the Quietus (2011) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:F7503F292DDE48CDE98BDE9BF0503F4912D21EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Desolator - Unearthly Monument (2013) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:4C174EEC204A8F512DDA3E0296E6A5706B3C9823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Dream Death - Dissemination (2016) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Doom M
 ```bash
 magnet:?xt=urn:btih:B720E1AC0AA512F8DD135404DD6846BC133D9831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Desolator - Spawn of Misanthropy (2016) EP [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:3AAD9B8F527ED8C1E4D38ED11FFCE239547C2A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Everyone Dies In Utah - Supra / Infra (2021) Deluxe Edition, 2023, Everyone Dies
 ```bash
 magnet:?xt=urn:btih:21D09CF38D07904FF360EB597DBBB9C935B54BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Edu Falaschi - Vera Cruz (2021) Japan Edition [FLAC|Lossless|image + .cue] <Powe
 ```bash
 magnet:?xt=urn:btih:F56C72F60E463F39367243E29997668AF373ACE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Warfield Within - Beast Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:86C9759A6E5B13F7339E3C9E8668A5E67362CA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Pelican - The Fire In Our Throats Will Beckon The Thaw (2005) Deluxe, Remix & Re
 ```bash
 magnet:?xt=urn:btih:9DAF267EFC6120C4C137121A452226C2FC7A805D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Voidfallen - The Atlas of Spiritual Apocalypse (2021) [MP3|320 Kbps] <Melodic De
 ```bash
 magnet:?xt=urn:btih:B05DD322BE019879B76875B77154DF91305A5331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Ankhagram - ReANKHarnation (2006) Reissue, 2014, Satanarsa Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:883D84D07069E70A5A8F0E27DCB753CAD232D037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Edu Falaschi - The Glory Of The Sacred Truth (2018) EP, Japan Edition [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:E1C1F4D11A6A1E04E3E99D536CDC508409451C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Legba - Oscuro (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-rock, blues>
 ```bash
 magnet:?xt=urn:btih:AA766B65C3AB4B767B159579053D69B159B7FA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Inteam - Точёный пик (2023) [MP3|320 Kbps] <Comedy Metal>
 ```bash
 magnet:?xt=urn:btih:EE8D613C3380223664D8E1270605BE4985AF1EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ Greg Lake - The Anthology - A Musical Journey (2020) 2xCD [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:4ADC69F1B2B4C24942EE5F93F1FB8314BA269D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15889BA78C62F7A363B1B3B26767E981ED4769F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

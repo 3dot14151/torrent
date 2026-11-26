@@ -25,8 +25,7 @@ Syrgdr Skogr - Karg (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:7B76058E9FD5ACC3BD5DD157D60BADF80B9437F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Nesseria - Fractures (2014) [MP3|320 кб/с]<Chaotic Hardcore, Sludge Metal, Cr
 ```bash
 magnet:?xt=urn:btih:48C78D9A12567F5B47819ED6A6DC4C792B434867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97DE5CA7FA1E6D5535404C62A5498346FF2870E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Domo Genesis - Under The Influence 2 (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0A5F77F1474690E0D139AD45D585D4FF0B920131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Carnivora - Judas (2004) [FLAC|Lossless]<Heavy Metal / Power Metal>
 ```bash
 magnet:?xt=urn:btih:6EE22236B23F893A7153E9841AA26A59CEAB220B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Mr Joseph - Floating Island EP (2013) [MP3|320 кб/с]<Drum and Bass, Liquid>
 ```bash
 magnet:?xt=urn:btih:9699D037BE146387B9A5C8F490F2A3247C140306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Shapeshifter - The System Is A Remix (2010) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:070D35238C13EB80E76DC016B4492A8CD8A36A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ Max Cooper - Kindred EP (2014) [FLAC|Lossless|WEB-DL]<Techno, Tech House>
 ```bash
 magnet:?xt=urn:btih:1E9E5D458D7BD52EB3CE2C1882F2780D951588C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ Rafael Frost - Go! (The Compilation) (2014) [MP3|320 кб/с]<Progressive Trance
 ```bash
 magnet:?xt=urn:btih:DC3510CED4377F5DD233B4CAE1B21E506D43E8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +315,7 @@ Poordream - Ninetynine (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:DBE0F74A03E7395FEFA79ED0E4B5709727CB9032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ Delta Riders - Trouble (2000) [MP3|320 кб/с]<Southern Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:9F2412E13321889BAA69AC84C9A76C8D87FEEFEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +382,7 @@ Harpdog Brown - What It Is... (2014) [MP3|320 кб/с]<Blues, Harmonica>
 ```bash
 magnet:?xt=urn:btih:0FA9D6B972EFDB0CA016BC5ABD3A4B079D87739F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE1F950B890542517E0C42469DDE647AE6272A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CDC5EBFE271EE6CDF42F9E365F6E615438FC8AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +472,7 @@ Hope - Da Best Of (2014) [MP3|192 кб/с]<Nu-Metal, Rapcore>
 ```bash
 magnet:?xt=urn:btih:D20CA077739796EB6A708CB19870A9527667C2DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54856231A48EFEB340448500DCC0C21F9A2A891F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +526,7 @@ Lonewolf - Cult of Steel (2014) Limited Edition [FLAC|Lossless]<Speed/Heavy Meta
 ```bash
 magnet:?xt=urn:btih:38A37DF0E5F299755415B6FADA1E371EC5D54A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +560,7 @@ Sleeping Pulse - Under The Same Sky (2014) [MP3|320 кб/с]<Alternative Rock/At
 ```bash
 magnet:?xt=urn:btih:6D908195BA1B8C73A2017C3B5627B4C6E4B9FD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDE47328B37C80A2A39612493FD1055A13C6133A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +619,7 @@ VA - Easy Listening Lounge Affair (2014) [MP3|320 кб/с]<Lounge, Chill Out, Ea
 ```bash
 magnet:?xt=urn:btih:8C1AE5FFE2208F6E82227EE857685E7E710B3379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96B5D350A4C2D9EC53500849C7F35672E66DD294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A55FC7B2BE5E884D1D0DBF6F608818F6FEEDAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +702,7 @@ Banda Magda - Yerakina (2014) [FLAC|Lossless|WEB-DL]<Vocal Jazz, World Fusion, J
 ```bash
 magnet:?xt=urn:btih:8391E4F156250BDB4DD0CA084E5F3DAF9214D787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2AB18DE357B8E3E5FB6B2BD853FAC8E39573647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +752,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1190B9F8FCC958D31472DBE0601AE587596B4527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +777,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6602469135E8D7D286439ADD29FC8E2242DDBB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

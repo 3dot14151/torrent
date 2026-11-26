@@ -22,8 +22,7 @@ Catatonic Society - Baptistina (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5A21B4FEBCAAD99DFD7F2DF4EAA7BF70CE848670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Annulation - Human Creatures (2004) [FLAC|Lossless]<Thrash Metal / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E3A0F2AD6B37136B1C650D203BAFC945DD4CEED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Adastra - Deadlock (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1CE3090D8C61FD9C5AC00058717B11CA579D3A4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ragor - Миг рождения бури (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:AC2714BF95CA9A563C8E7E8C9FA9A753717FF4D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ DSG (David Shankle Group) - Still a Warrior (2015) [FLAC|Lossless]<Heavy Metal /
 ```bash
 magnet:?xt=urn:btih:5F0D6735A64226D1E82385B7AC1EA750CB97F5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Psychonaut 4 - Dipsomania (2015) [MP3|320 кб/с]<Depressive Black Metal>
 ```bash
 magnet:?xt=urn:btih:541DE5B799BCE70D4D4FE47877FE8270E30A581C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Cat o Nine Tails - Under Captains Flag (2015) [MP3|320 кб/с]<Folk Metal, Powe
 ```bash
 magnet:?xt=urn:btih:1624B91496F1D70C2900C40CC9C94469D276E0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Iron Savior - Megatropolis 2.0 (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9F6099F19C903A81A7B742453F3ECC25BEE09AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Anaria - Seasons Of The Mind Vol. 1 Inception (2015) [MP3|320 кб/с]<Modern Sy
 ```bash
 magnet:?xt=urn:btih:C2601C0FFCA52B601EBB18A009B52AB3C5F03DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Tengger Cavalry - Blood Sacrifice Shaman (2015) [MP3|320 кб/с]<Melodic Folk M
 ```bash
 magnet:?xt=urn:btih:A6586992AE2601CF26AFDDF71249F03DB0584F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Yngwie J. Malmsteen's Rising Force - Marching Out (1985) [FLAC|Lossless]<Heavy M
 ```bash
 magnet:?xt=urn:btih:7488788ED5460C62E6D797AB6515CEF3DB41C272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Disarmonia Mundi - Cold Inferno (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2A66456E4BC28213F73F489F96D36783F7C7CFAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Disc: 1
 ```bash
 magnet:?xt=urn:btih:19C22AAA9C593989D6C60C43A302B9B88A69979B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15BF75DA6D0B0441553FF1EE7BAB1455CE66C821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Coal Chamber - Rivals (2015) [MP3|320 кб/с]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:F9ACDA6603C016EBA87B74BF297D88A9BC42A70C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A119132E9012A87E705F00666C25B00903266FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Suzi Quatro - The Wild One - The Greatest Hits (1990) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:C1FB58FE803EC643EA883A13126BD7D6A5F84894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PaperColor - превосходное приложение для рисован
 ```bash
 magnet:?xt=urn:btih:5CDAD4F4CC934E59B50889B8938C94FDE8B07B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ eWeather HDF - это точный прогноз погоды от двух м�
 ```bash
 magnet:?xt=urn:btih:4B6F020230DCA32D5FB705A6B47E78DDDE72D80C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Transformers: Devastation предлагает игрокам выступить
 ```bash
 magnet:?xt=urn:btih:08AC3B595272312E2D9991C60446C00A22F4A11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Transformers: Devastation предлагает игрокам выступить
 ```bash
 magnet:?xt=urn:btih:6AF1B1F5BA279FEBE0FCE18CC4592EB66BA4489B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (2.3.17.1/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:2BC8324FAE0392D2D9B3B106400858A1C3C61178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ NECROPOLIS, безжалостный и динамичный боевик, в к
 ```bash
 magnet:?xt=urn:btih:6641D44E4D224E4B1CA8BA118BC3B04363D56C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

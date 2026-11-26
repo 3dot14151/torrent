@@ -19,8 +19,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:9BA9CC3E84BAB8963F0D4C7AB35830AA32F70623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ExperienceIndexOK - небольшая утилита от разработчи�
 ```bash
 magnet:?xt=urn:btih:BA8CBD0B1EFD37C92830FC05EAC5B4AE800A3066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:E61456C181F3C00E47E2F942CD7A2A3655CC379F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Treesize professional 9.5.1.2105 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D674324FB8402C96BF2DB0FE3AB5A50717E48D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:058A982291D56B46AB4DA36701ED9C93E36D3DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:41E8FDEABA75E57EC763E10DD0AAB7EBE8A116CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:41C8A82E56E80E4ED414995D9672B6288C23BB29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hotel Giant 2 (2008) [Ru/Multi] (1.0.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:85A6311DD9C1B9382CFC2485F180C9BD88CF1AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

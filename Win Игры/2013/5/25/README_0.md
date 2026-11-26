@@ -19,8 +19,7 @@ Chronicles of Albian 2. The Wizbury School of Magic (2013) [En] RePack Dizzery
 ```bash
 magnet:?xt=urn:btih:B82561300194E3866D3805893ABDD9A5038461C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Love Chronicles 3: Salvation Collector's Edition (2013) [En] RePack Dizzery
 ```bash
 magnet:?xt=urn:btih:59EEEA06E69EF13DA6F5C706D0E8706FF79CE932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Surface: The Noise She Couldn't Make. Collector's Edition / За гранью. �
 ```bash
 magnet:?xt=urn:btih:6368E4A48EFE4A675FA0D8C2F7B439949D39DC8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

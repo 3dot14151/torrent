@@ -27,8 +27,7 @@ Gomer Edwin Evans - 46 альбомов (1989-2014) [MP3|192-320 kbps]<New age, 
 ```bash
 magnet:?xt=urn:btih:1E0BAF20D08E2EFE71A03FF2D73BB4F610176746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43F44D85036D2BC4E800BE983089140BB194CAB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD108FECB88562EDC320811463A4CF645B4BC53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ The Stanley Parable - профессиональный ремейк необыч
 ```bash
 magnet:?xt=urn:btih:1578DB4451524D86567B0573E973015113169359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB802672078DB803A225A94BD14A9194246A9D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Mining Industry Simulator (2014) [Multi] License
 ```bash
 magnet:?xt=urn:btih:52FFEF25BEB12153743A2640FA34FB519F7861EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B355BEFB23AFB508CE90D979CFDE78B61D7A26CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:974D908711E05542B11E90B6152E0F0945D987BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6B4EB184B1DAA77BDA9C6EED50B2C13D57DC5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Fireworks Simulator (2014) [Multi] (1.0.0) Repack ALiAS
 ```bash
 magnet:?xt=urn:btih:CE24932992D794A7B4A122355027E5866B854E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Depeche Mode - Alive In Berlin (2014) WEB-DL 1080p
 ```bash
 magnet:?xt=urn:btih:B85AC5159329A61F384C6E7E1EC2408821A68295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Ottmar Liebert - 24 альбома (1990 - 2014) [MP3|320 kbps]<Instrumental, Fl
 ```bash
 magnet:?xt=urn:btih:10B793829A295C9943D6CA06C880254873213125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Linux Mint — дистрибутив операционной системы Li
 ```bash
 magnet:?xt=urn:btih:B20CCB7D31975D74ECC9F55A6998DAC92D9F9D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Brave Story / Отважное сердце / История о храброст
 ```bash
 magnet:?xt=urn:btih:81FD1E52941195416484002BB0663E5DD87FD03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Assassin's Creed: Unity Patch (2014) (1.3.0) Official [ALI/RLD Crack]
 ```bash
 magnet:?xt=urn:btih:9A8056F4D9EE08DFA13ABD25DE6D9A69FB8A94CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ VA - Клубные Новинки Vol.560 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:D66F9BA5883837BEFB0271218069B3CDBD929DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6563ED5DEDB70D98F4888C1852373558DCFF0AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7717FC19A426BF12B8C3BAE239E947A7ABEB2A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ South Park: The Stick of Truth / South Park: Палка Истины (2014) [Ru/
 ```bash
 magnet:?xt=urn:btih:54985EFACE9C82E1B30141B6D7C15EF8B3842A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF8DE2175C36DDF40DD577C26C0C3D365F492F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ VA - Hard Pro v.1-60 (2012-2014) [MP3|320 кб/с]<Hardstyle, Hardcore, Hands Up
 ```bash
 magnet:?xt=urn:btih:0075B2EE5D3DD89D05B68E35D91E29A076CF3CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Chicago - The Very Best Of- Only The Beginning [2CD] (2002) [FLAC|Lossless]<Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Sum 41 - Screaming Bloody Murder (2011) [FLAC|Lossless]<Pop Punk/Alt.Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

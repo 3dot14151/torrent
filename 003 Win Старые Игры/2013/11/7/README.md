@@ -22,8 +22,7 @@ Clive Barker's Undying / Клайв Баркер: Проклятые (2001) [Ru/
 ```bash
 magnet:?xt=urn:btih:8AF2DCC644D79144B5695D3EF91179EF9BC2B126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

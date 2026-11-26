@@ -20,8 +20,7 @@ Feeder - это полнофункциональное приложение дл
 ```bash
 magnet:?xt=urn:btih:BDF19D99C998F16D5F96D9C7C03254F6BA861228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ FontBook - это универсальная утилита для шрифто�
 ```bash
 magnet:?xt=urn:btih:84BB1679794D7A896BF9F4790876DBF2E835E360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ SnapNDrag поддерживает PNG, JPEG и TIFF форматы, если н
 ```bash
 magnet:?xt=urn:btih:3E96A35DAD50B9E6A5937153CDA8B78B4BDB9A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Keep It 1.10 [Multi]
 ```bash
 magnet:?xt=urn:btih:D780D1F1665F255EBE01FBE0AE8B308C75AB7C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Affinity Publisher 1.9.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1F12E122C2BFDF0E49AF0B6CBF98A8FA4E91E283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ TextMate для Mac OS - Отличный редактор программно�
 ```bash
 magnet:?xt=urn:btih:C84DD21AAA9287B57A6F02293210599619ADE964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:3707F732A9C186A820155849F5618A4D71A94603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ VideoDuke 1.15 [En]
 ```bash
 magnet:?xt=urn:btih:418C06177D04FFD48A517AB6B3DB4C2CFADB4FAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Hidden Intent - Dead End Destiny (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:5B0354742C501FC4E7DFB7B7CB8CA9000A5FF53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Coleman Hawkins - 1929 - 1934 (1991) Classics [FLAC|Lossless|tracks + .cue] <Ear
 ```bash
 magnet:?xt=urn:btih:DFC39648E0919F45F1BC517A03CFE52755FF78E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:7DA0B122EE8ED909DA964FE5C7FA0A658FC9EF8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ File Juicer может быть использован (   Читать дал�
 ```bash
 magnet:?xt=urn:btih:BBDCD831B2127ACE931F97CE8BE0B67DC8A81C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Wrise - это текстовый процессор, который делае�
 ```bash
 magnet:?xt=urn:btih:DC52FB3DB494D2DE191140A1C2535661EE6F611A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Bad Dreams - Frоzеn Неаrt (2019) Reissue, 2020, Independent Label [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:FEC89D065F487D74995E55E6F98D2898EA52737F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Noizio - это приложение, которое заглушит уличн
 ```bash
 magnet:?xt=urn:btih:43AE4C1C9BC46DF5809C92FBF468E5FFE7D202EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ GhostReader - это простое в использовании, полнос�
 ```bash
 magnet:?xt=urn:btih:47C7CCAA9443C95C841EBC32AB6C26D81133C74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ AnyGo 2.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:668919B2B02C71FBDC569DBD5CC8363CC1AD6A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Redd Barron - Sands Of Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5BAB341DACADD597A32263B815D1D015DBA8C237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ The Scarlet Letter - Friss Oder Stirb (1990) [FLAC|Lossless|image + .cue] <Gothi
 ```bash
 magnet:?xt=urn:btih:ACE43CB78185ED5B06956FD7FB379CB7213C6537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ beaTunes анализирует музыкальные композиции, о�
 ```bash
 magnet:?xt=urn:btih:07AE28B3E6EF2F1586DA36DA6416E288C68062CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ Micromat Drive Scope 1.2.11 [En]
 ```bash
 magnet:?xt=urn:btih:D466C3B8E1678F054DF0DF78747833BBC9BA05D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ DSLR Assistant 3.8.1 [En]
 ```bash
 magnet:?xt=urn:btih:EE88DF4D8A16F577BBBB6B4D4D6E994080DC1881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4952C7EF6C1DCF72FAF2B08EFCBC4E709F3573D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ Walk The Walk - Walk The Walk (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 ```bash
 magnet:?xt=urn:btih:B06FC43B354A8F5B4C5DE57A23D5E45A6FBD9D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ Allison - They Never Come Back (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DE0FAC76B289F223CA0B96198D813648B434762C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ Cocktail - комплекс утилит по всестороннему обс�
 ```bash
 magnet:?xt=urn:btih:74343FCD5997269E84A3A433F37E6C31FAFE1654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

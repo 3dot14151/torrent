@@ -22,8 +22,7 @@ Nickelback - Everything Under the Sun (2026) [FLAC 24/96|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:DA05F9961992A8071D3C4ABC0CBC205ED98F6D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Michael Schinkel's Eternal Flame - Man Or God (2026) [MP3|320 Kbps] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:80CEAAE19AC1DF3F0C9E4AD3D18DC81F689FBA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Moist - Creature (1997) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:CE7F03D3167CA5CC1C688F58DDF017AC7026A8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dawn Of Destiny - Ashes over Tomorrow (2026) [FLAC 24/44.1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:89AE1FA7DE6060F4B94786C820069E534ABE8BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Foreigner - Head Games (1979) Remixed, 2026, Rhino Atlantic, Deluxe Edition [FLA
 ```bash
 magnet:?xt=urn:btih:25F2841173E025BFFA1C97AB331F6B663CD14170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ministry - Hate To Go - Take Out Or Delivery (2026) [FLAC 24/44.1|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:9FD9111D30A6E50711C2A5B12C196ED079D9A655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Xentrix - Allied with the Enemy (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:B4C9E7244B7AB6B7F79A342BAB4A43174C1DE1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

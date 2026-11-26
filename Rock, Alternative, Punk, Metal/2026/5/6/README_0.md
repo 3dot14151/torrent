@@ -22,8 +22,7 @@ Zerre - Rotting On A Golden Throne (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 ```bash
 magnet:?xt=urn:btih:8E821796E1CFC5D68024EBDC8A97C99E3C9FBB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

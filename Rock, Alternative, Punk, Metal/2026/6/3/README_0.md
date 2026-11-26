@@ -22,8 +22,7 @@ Jayler - Voices Unheard (2026) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Ro
 ```bash
 magnet:?xt=urn:btih:84E5901EE61B6BD24E0B0BA311AEF91AC5CDC2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Doomed - In My Own Abyss (2012) [FLAC|Lossless|image + .cue] <Death Metal, Doom 
 ```bash
 magnet:?xt=urn:btih:2C3211382B55EDC598C84650C466EFEFBFEB4BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

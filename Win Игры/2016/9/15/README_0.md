@@ -19,8 +19,7 @@ Outbreak — выживание на красивой открытой карт�
 ```bash
 magnet:?xt=urn:btih:06457FE8C9C7B01DB418D193B2438488F5B510CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kyn (2015) [En/De] (4.6.6.11209528/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6A8437120DAD4B5ADC3D394D6BD43D0B870AED64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cosmonautica: A Space Trading Adventure (2014) [Ru/Multi] (2.6.0.7 GOG) License 
 ```bash
 magnet:?xt=urn:btih:2CE6002DDAA0C24655BD2F2C780EED2F1597C1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

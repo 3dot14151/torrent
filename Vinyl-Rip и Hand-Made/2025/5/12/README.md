@@ -22,8 +22,7 @@ Raise Hell - шведская метал-группа. Основана в 1996 
 ```bash
 magnet:?xt=urn:btih:1110789C343DC51441031D57FDA04564AF33794E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:C0C9E3277B2B9519DBE5241478D0191B94CACDDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Maya 2013 - один из лучших на сегодняшний день па
 ```bash
 magnet:?xt=urn:btih:A36285EF1BA96C9D35CB74B2AEB854DC5F6B04E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Adobe| Adobe Illustrator CS5. Официальный учебный курс (+ 
 ```bash
 magnet:?xt=urn:btih:43ACD423DAB070E017571C8121A21263DED64893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

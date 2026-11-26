@@ -22,8 +22,7 @@ VA - RETROспектива, часть XVI. Мелодии и песни из к
 ```bash
 magnet:?xt=urn:btih:8E160C5FD11760312B9D7BAE929ED5F724B63B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. The Force(   Читать дальше...   )Жанр: Synth-pop, DiscoПр�
 ```bash
 magnet:?xt=urn:btih:A72D1100049543FDE2A1DA4F56221D5C8D4243F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

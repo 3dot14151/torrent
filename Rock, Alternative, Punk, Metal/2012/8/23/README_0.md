@@ -28,8 +28,7 @@ VA - Tribute to Lake Of Tears - Twenty Years In Tears (2012) 2CD [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:44447F31E277D5EF39C9C038976D860D278F3958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Tribute to Lake Of Tears - Twenty Years In Tears (2012) 2CD [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Axel Rudi Pell - 13 Albums, 5 Compilations, 1 Live (1989-2012) [FLAC / APE / Wav
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

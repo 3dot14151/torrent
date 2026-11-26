@@ -22,8 +22,7 @@ Blood of Indigo - Dawn of the Shaded World (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:2944CF4260F17A19FF171F8173FDC66D50F82A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Parallels (project by Tim Morse) - Awaken (2022) Yes tribute [MP3|320 Kbps] <Pro
 ```bash
 magnet:?xt=urn:btih:AD2A386B340C1EEAFE53E7FD6EA90F74C9F23A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Silver Birds - Under My Wing (2022) [MP3|320 Kbps] <Hard Blues Rock, Classic
 ```bash
 magnet:?xt=urn:btih:3C3081A3E5803E83FE5920D22530722D1E111625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Defacing God - The Resurrection Of Lilith (2022) [MP3|320 Kbps] <Symphonic Melod
 ```bash
 magnet:?xt=urn:btih:F32DEDF5D5B7F6520848778FFC95C69A7C3A9B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Miss May I - Curse Of Existence (2022) [MP3|320 Kbps] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:E678044F35E57B6365FC78230A05CEB7FF2B938E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Oceans Ate Alaska - Disparity (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 ```bash
 magnet:?xt=urn:btih:56BDE59F6BB3387A1A070B56ABDEE27D6EE9B6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Scamp - Man meets ape (2022) [MP3|320 Kbps] <Groove Metal, Math Metal>
 ```bash
 magnet:?xt=urn:btih:9FDEDABDB52235D10EA88D8AA27EBC95C638170D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Trial (swe) - Feed the Fire (2022) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:2D846F061541B785BDD430D4D2E1C9A8AAFCC9C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Novelists FR - Déjà Vu (2022) [MP3|320 Kbps] <Post-Hardcore, Alt. Metal, Elect
 ```bash
 magnet:?xt=urn:btih:FAC67270936D4CBD5247507FDD9E46897EDEAA14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Tony Carey - Room With A View (1988) [OGG Vorbis|485 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C71F03B9D58513DC9F4FE66C78B7698C6D9622AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Soft Machine - Bundles (1975) Remastered And Expanded Edition, 2022, 2CD [FLAC|L
 ```bash
 magnet:?xt=urn:btih:2B04B30268AA6EAE001EEC703023F3846768E332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Aeternam - Heir of the Rising Sun (2022) [MP3|320 Kbps] <Symphonic Melodic Death
 ```bash
 magnet:?xt=urn:btih:4253BAEBA14ABC1F3FDC5683165A1DE64CE99010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Machine Head - ØF KINGDØM AND CRØWN & Bonus Tracks (2022) [FLAC 2.0|48/24|WEB
 ```bash
 magnet:?xt=urn:btih:B9B7C3125FC26D9098C17F51DDD2181A17AA4155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ Teen Suicide - honeybee table at the butterfly feast (2022) [FLAC 2.0|48/24|WEB-
 ```bash
 magnet:?xt=urn:btih:F5A5B36E06763CC7093FC9106AA00FB26327ECF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Nightwish - Oceanborn (1998) Remaster, 2015, Spinefarm Records [OGG Vorbis|485 K
 ```bash
 magnet:?xt=urn:btih:72F5CAC289D269312830A67D4BA1F71D027544C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Ghost Wish - Dimension (2022) [MP3|320 Kbps] <Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:E9C7D783A33AFD3D9F5EF48930E38031380A7432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ Mad Max - Wings Of Time (2022) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F23294E2910B9AB2E42F554E5C912C1786725A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Megadeth - The Sick, the Dying... and the Dead! (2022) [FLAC 2.0|48/24|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:6116B06B205AAA553D2C893989A536F7F564DE75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ Astro Throne - Tales of the Astro Throne (2022) EP [MP3|320 Kbps] <Heavy Psych, 
 ```bash
 magnet:?xt=urn:btih:ECAD48CAD46038B0699271B2BDB443409DC3C518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ Mortician - Shout for Heavy Metal (2014) [FLAC|Lossless|image + .cue] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:5212A29469A02FDA4228B9D5D9C4951C0727DE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ The Laser's Edge - PROG presents- The Laser's Edge Group (2022) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:5B627E7B5AEE6943BD90809969A6D95D14E9617A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FD97EF06D56D854340090E86DE69AFAF4A7C095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ The Rolling Stones - Voodoo Lounge (1994) [FLAC|Lossless]<Hard rock, blues rock>
 ```bash
 magnet:?xt=urn:btih:0F0DB2AD7207CD1CE42B392733A9557342353AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44EBA573C88261FF73D65AFE4ED398A08A1F02FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ HFS — это веб-сервер файлов для вашего компью
 ```bash
 magnet:?xt=urn:btih:740C2A937DE1235742EEC8F70F799CFFFB17D266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ BUtil 2026.05.28 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3811611C23DE5DA8667FD86433E95CF01D44A017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ MAX Desktop 26.17.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:05186D8F834996BC7B1EE1D0A9A2033F54A66C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Remotera — это быстрое, безопасное и простое в и
 ```bash
 magnet:?xt=urn:btih:44512FE34F3168B20FD01BCAC96ADE2C0F240EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ DNS Hop поможет вам выбрать быстрый и надежный 
 ```bash
 magnet:?xt=urn:btih:54AB3DF8D76C21779E2486A08CDBB6C5C9F8E17D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:EE97601FEED5EB89246F88B450E96059A1CA688C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:9BE1AEC061E6436F87EFC7BA0E5222E63AAB2819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Mark Text — это простой кроссплатформенный ред�
 ```bash
 magnet:?xt=urn:btih:912693857C13B7F8756B611DEB1C676C306748E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:A2AF0E2ADDD4DAED9DAC28E5AC5184B3261E9C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:951882801D721C2312EBFFDACD3EC10E258D2CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:B633FD4E3F8F3B375E4F698A0A6BD0D4BF830FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7982ABE0F257B43A5ADE10B2CB6C42E763756322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Ashampoo WinOptimizer 29.0.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F340C403AF4E93BC0828C90056837EB368843CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFA9A5CC242C6193BE5239FD8390BBF3211A5DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Nitro — это мощная программа для работы с PDF-до
 ```bash
 magnet:?xt=urn:btih:8C3AFC5716F05BA2F611C0A6ABB988E99CDE984A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:C369E87B77AB7581913DBAEFD0120D9FDC4177BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ optimizerDuck — это бесплатный инструмент для опт
 ```bash
 magnet:?xt=urn:btih:9D0F80E83D7BAB7F66E522615F5D946DC7BC3F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ No Starch Press | Humble Bundle - Hacking by No Starch Press [13 книг] (2003
 ```bash
 magnet:?xt=urn:btih:7AD4CC49616D0A2C193F0BD66912A027F14F3DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Seed of the Dead: Sweet Home переносит геймеров в сеттин
 ```bash
 magnet:?xt=urn:btih:2905BDA3BBF0E5983E149444F954C4CF660D3CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dying Light 2: Stay Human (2022) [Ru] (1.15.1/dlc) Repack Other s [Reloaded Edit
 ```bash
 magnet:?xt=urn:btih:0DD356019D3D6F3E4804509467DDFC0DFACB39EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ My Lovely Daughter - симулятор алхимика, исследующий
 ```bash
 magnet:?xt=urn:btih:7E4691FB6A3AC7367E83D704043A9DC3BF38AE6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Book Travelers 2: A Royal Story / Книжные странники 2: Коро�
 ```bash
 magnet:?xt=urn:btih:E29CE84C6A10FACC750935C040884854A457F92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Pink Floyd - The Endless River (2014) [FLAC 5.1 24/96|image+.cue]<Progressive Ro
 ```bash
 magnet:?xt=urn:btih:B862165C5CDDEE00855869930282056AD33E3211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

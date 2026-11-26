@@ -19,8 +19,7 @@ DailyArt - Daily Dose of Art v2.9.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9933FC393240613CD76AF66D93794D67429373BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

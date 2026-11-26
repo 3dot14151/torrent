@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2C44472883F1EC5742DFEC6E3F31A14CECA25060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56C9E00807A4CE288F7600F65FF09659189A91A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ ru_windows_10_business_editions_version_1909_x64_dvd_675b5388
 ```bash
 magnet:?xt=urn:btih:A94D17C83CB287F0DCBF2271AF6FA5D87B6915E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ HTML Academy | Интенсивный онлайн‑курс  Професси�
 ```bash
 magnet:?xt=urn:btih:91E746401F9BC8768370A2EA1F279CD28D3F6709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FAB0360856FED9E1F7AE1D7AB2B97756C378FEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

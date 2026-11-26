@@ -19,8 +19,7 @@ Beyond 2: Star Descendant / Извне 2: Звездный потомок (2016)
 ```bash
 magnet:?xt=urn:btih:3865BCDB17823038BC7488B8CDF8A47459A84E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sundered – ужасающая борьба за выживание и здра
 ```bash
 magnet:?xt=urn:btih:4A90A2A2272B8AC682F4FE6F35376E2DEE453905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sundered – ужасающая борьба за выживание и здра
 ```bash
 magnet:?xt=urn:btih:DA3FABFE9EFDDB85D401D619630FA91C135C01E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2009) [En] (1
 ```bash
 magnet:?xt=urn:btih:6EDD5D3FB9C5410A03C2D90BC094383B7123752F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

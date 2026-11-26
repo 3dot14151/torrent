@@ -19,8 +19,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 ```bash
 magnet:?xt=urn:btih:579D2558D258786E5C5F7E667BF62E8667ABCF49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

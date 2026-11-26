@@ -22,8 +22,7 @@ A-Z - A-Z (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic, Progressive Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A6C4F2E57671BDD74391F1A39F8952031BAE523A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sweet - The Answer (1995) Remastered, 2022, Aviator-Entertainment [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:690E9893FD05C6BEC446E5381CD2409C7123AF2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cream - Wheels Of Fire (1968) Originally released 2CD /1986, Polydor/[FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:1147CAF646588D73F0A1C1A5A15F910C87989140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

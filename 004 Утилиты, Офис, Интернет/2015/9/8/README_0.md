@@ -19,8 +19,7 @@ PCMark 8 — это простой и удобный в использовани
 ```bash
 magnet:?xt=urn:btih:0DB4B3FC1AAC6BFE81DC7293A350136B6DE08B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

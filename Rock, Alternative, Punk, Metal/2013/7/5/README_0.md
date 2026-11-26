@@ -28,8 +28,7 @@ Battlecross - War Of Will (2013) [MP3|320 кб/с]<Melodic Death Metal/Thrash Me
 ```bash
 magnet:?xt=urn:btih:CABFBBA73553D9C1C8DADA5D20989E320FBAD34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Darkestrah - Manas (2013) [MP3|320 кб/с]<Black Metal, Epic Metal>
 ```bash
 magnet:?xt=urn:btih:39C72F4F357EBCE6B66225CCE4944BC493CFC5D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Pushking - To all the losers (2000) [WavPack|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Austin Young & No Difference - Blue as Can Be (2012) [FLAC|Lossless]<Blues, Blue
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +168,7 @@ VA - Metal Queens - Women In Rock, In Love Vol.2 (1990) [FLAC|Lossless]<Hard Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +202,7 @@ Brian May & Kerry Ellis - Acoustic By Candlelight (2013) Live In the UK [FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

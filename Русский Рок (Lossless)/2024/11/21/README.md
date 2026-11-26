@@ -22,8 +22,7 @@ TRUST X - На краю вечности (2011) [FLAC|Lossless|image + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:4A3200B251D88709B68F44E4316291F6F47AF040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ BeamNG.drive – автосимулятор, моделирующий повед
 ```bash
 magnet:?xt=urn:btih:3A089DC14C876056BB43CDFA67FD21594C95E941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:75158107F16DB95827147CFD2F097364335F0BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3781977) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:D04E20940CB788A5B40677E91538E2AF5989FA13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fate: Reawakened - это сборник из четырёх экшен-РПГ, 
 ```bash
 magnet:?xt=urn:btih:FD0E8CDBD8DB8165345DF9706CACA014A1718FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Echoes of the End - кинематографичный приключенчес�
 ```bash
 magnet:?xt=urn:btih:067CAADA4F84C431E36FD63C6ADC93EE2FFDD8F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

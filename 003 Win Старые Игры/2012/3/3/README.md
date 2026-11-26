@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:2550C8B3932828FFB707365905E830C3833D520B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dragon Throne Battle of Red Cliffs - стратегия от китайског�
 ```bash
 magnet:?xt=urn:btih:FC98215FF286032FE15F6027B322B46510389E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

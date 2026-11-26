@@ -28,8 +28,7 @@ Shatter Silence - Opening Of The End (2010) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:9A86B31A245D6ADC012A74616B49E30919B001B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Sons Of Seasons - Magnisphyricon (2011) [MP3|320 kbps]<Symphonic Progressive Met
 ```bash
 magnet:?xt=urn:btih:EF31F900B9BD38943780895ACC5184D80C8A10A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:405A12A19B0571F0C3863DA931C7C01452899D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B42FC0D0F9CAF47211DB63EA0C5FAD5B5108B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Hollywood Undead - American tragedy (Deluxe edition) (2011) [MP3|192-320 kbps]<A
 ```bash
 magnet:?xt=urn:btih:F2CF6D888DFE271051B99AA621B66DCBFFE47569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Lumen - Лабиринт (2011) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:557D5C6CABAD8CDB3A0D7E9FBCCBC6DB481E1CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Guano Apes - Bel Air (2011) [MP3|320 kbps]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:9F2427E0C179B1BD305F3D80EDD68793DE2182D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

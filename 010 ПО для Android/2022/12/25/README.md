@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D1D67082A328AA93BD4ED57FC3C5C062DD6AFF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ My TTS: Text-to-Speech v1.1.6 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:5A8BF15D0B83A58B0FE5E9AE1F681C4204E3D012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Eassos PartitionGuru Pro – утилита для управления разд
 ```bash
 magnet:?xt=urn:btih:7F61705C18ED1AF94A01ECFA7600C25BA45F2B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eassos Recovery – это мощный инструмент, с помощью 
 ```bash
 magnet:?xt=urn:btih:59ADCEAC994B05A3138B6C60A17E753F4E910839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

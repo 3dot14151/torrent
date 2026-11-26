@@ -28,8 +28,7 @@ B5. After Midnite :: 03:34Жанр: Hi NRG, Synth-pop, DiscoФормат: Vinyl,
 ```bash
 magnet:?xt=urn:btih:3C0D8EEE8A61228B37765B04C0B147A7ED88E969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ The Flirts - Blondes, Brunettes & Redheads (1985) US [FLAC 2.0|24/192|image|Viny
 ```bash
 magnet:?xt=urn:btih:F5D7177BBC3582D38A31AF8DD0A25CD038A2DA89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ B4. Physical Attraction :: 03:44Жанр: Hi NRG, Synth-pop, DiscoФормат: 
 ```bash
 magnet:?xt=urn:btih:0726F833AD5AB91BFEF8722AA4D67929F0C4703D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

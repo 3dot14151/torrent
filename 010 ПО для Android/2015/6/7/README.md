@@ -19,8 +19,7 @@ MyPhoneExplorer 1.0.35 - Explorer для Android  [Ru]
 ```bash
 magnet:?xt=urn:btih:F7DAA00314403B9CF1FE0DC25220EB8C03E55130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Star Walk показывает именно тот участок неба, на
 ```bash
 magnet:?xt=urn:btih:628B5506B71A6BE3461C6B5ADB24B31D4F0531D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

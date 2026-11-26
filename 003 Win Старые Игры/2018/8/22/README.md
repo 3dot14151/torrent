@@ -19,8 +19,7 @@ Inherit the Earth (1994) [En/Ge] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:EEC415D56DD261B087CF25593002633F7AFDBBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

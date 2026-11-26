@@ -21,8 +21,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:0652A9F9E3305D46E02A497E0A5D33CC591C1222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ VA - The Sound Syndicate - Psychedelik Vibes Association (Compiled by Christof D
 ```bash
 magnet:?xt=urn:btih:5D8CD6DE9133FBB81DF69A84E0368F0F015997C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Paramount – Count On Me (2013) [FLAC|Lossless]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:C5D2A8C92EC0DC9C530B0598C1F7512EE3C55E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Calvin Russel - Crossroad (Live) (2000) [APE|Lossless]<Blues rock Texas blues>
 ```bash
 magnet:?xt=urn:btih:D10FD7278DCCA142E3D1FBCF551BCB897C597A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA03EB5A343F897508F170636A05039E89E57324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ Moonbeam - Moon Magic 058 (August 2013) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:3F057864F8E5385CF87188456A8AC38043E8CCAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Hecq - Horror Vacui (2013) [Hymen Records] [FLAC|Lossless|WEB-DL]<IDM, Ambient, 
 ```bash
 magnet:?xt=urn:btih:1C3402AA685F0A63368185379E563E4DB26E6D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F865B37B583425AF3EEA7642EA8DDCC19DE90D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Registry Reviver профессиональная программа для оп
 ```bash
 magnet:?xt=urn:btih:BF6DA909B8F7138F59E50B74DDB4D8DB06209A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:B56D4C98D2800D10177E827168FCD2B91CDD2AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67D69DF6F5A9C7415962D1DC124EFD0564EB6CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3035C49554CDB6C189D07A7B8B6D6BFA530C2459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:1CD9D199E0C1FECC7F417ED5B1E6A7349A3D6247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:530860002A9A0D54C97405FD72B9D792D8227637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E88D428E4F0975FFD9FA212ABB3E58F9D0C5EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ Comedy Woman. Новый формат. Выпуск №109 (2013.09.06) WEB-DLRi
 ```bash
 magnet:?xt=urn:btih:A07724FDC6AD3D268F1A94D5F7611E727C0D2389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A726C7AD4AA06970FEB3F0929951BC753600EE26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FC8A1BD1CD9E1289CD7B97AF921BE901D2B4AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EC93803FC65E766BD4AC1A89D1C748E082A6C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ Dead Or Alive - Sophisticated Boom Boom (1984)/ Japan, Sony [FLAC|Lossless]<Hi-N
 ```bash
 magnet:?xt=urn:btih:324525A56B8D687B331B6E8BCC29C73ABC0DB4AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A316C2F0D42A7D2B33456B2946CFA36540838371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ Comedy Баттл. Без границ. Выпуск №16  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:F05B01E67D6D472116C39973CC75465944953EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5C560F0CFADC9488FDAE05D3294DC53974463AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +677,7 @@ Status Quo - Hello! (1973) SHM-CD, Remastered /2013, Universal Music/ [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:A5A03E74FC55AA9DC06CB781C488D6C691BE978D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +711,7 @@ VA - Legend Rock (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:3BC28282934AD48516596F1AA0C885BAB41C02D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:778A5F6618933747A650B71161A091BA2C386903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

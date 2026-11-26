@@ -19,8 +19,7 @@ Aomei Partition Assistant – программа для работы с жёст
 ```bash
 magnet:?xt=urn:btih:B6F086C56B211B5DA66BD4668BC4933B94E39C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:B47A7FA3B7E538969545565891C694BC368F25CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Bandicam поможет вам сделать запись игры с высо�
 ```bash
 magnet:?xt=urn:btih:2F9FBBCF6B3B0FECC37F9CA730655446CEBC9F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Ashampoo Burning Studio 27.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F9FFA8FFA69375323144F4D5B96BE234E4995A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Typora — это лёгкий и удобный редактор для соз�
 ```bash
 magnet:?xt=urn:btih:38D48FA3CC8294BD3DB53AAF82C8FBFF238C2A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

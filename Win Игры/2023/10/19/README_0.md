@@ -19,8 +19,7 @@ Windy Meadow - A Roadwarden Tale приглашает вас окунуться 
 ```bash
 magnet:?xt=urn:btih:DC5DF374F1C92B60B34809D5C7238C54F6903999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1C47FFEB3D84F4096B6AF79C49617034F119DE92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Growth (2023) [Ru/Multi] (1.0rc2) License GOG
 ```bash
 magnet:?xt=urn:btih:C934E2CF4F2DD05E6DFA0D8DF573E710F06F0C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A91911C59204E54B304CFF957B5DF076DD6254A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lost Eidolons (2022) [Ru/Multi] (3_29/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3262E34105C19106DF1F83CB938E9C2B42EC842F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

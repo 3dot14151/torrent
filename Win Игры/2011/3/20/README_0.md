@@ -23,8 +23,7 @@ Ancient Secrets. Mystery of the Vanishing Bride / Секреты Древнос�
 ```bash
 magnet:?xt=urn:btih:2394177DCC734B8BB0C50D3326924F88AA482875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB1FDBCE9BD331933C4BA831962ACE984FE22305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

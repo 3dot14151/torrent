@@ -18,8 +18,7 @@ DAEMON Tools Ultra — это самая мощная, функциональн�
 ```bash
 magnet:?xt=urn:btih:CD50C23699FAF65493A3BB5B0D1C940995F36845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Prey (2017) [Ru/En] (1.05/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:509E32ED842A4ABB5B7326DEF69F6B5CF439A91D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

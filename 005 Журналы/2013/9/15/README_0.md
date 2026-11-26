@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C6918B9931C493068BCD1C3EBB7C7B799D4D783F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C0552628515E4051E23B64853D54477E6739E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:5C49F9881E8B6F4B127C96D4838DC44729897EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:251D726F02A9D5F16792F2C0316391533C320EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:AA1EA880D1ED3A261B235A9A47D56FD0A8AC1DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:19B1FCB7D3A7A3292A3870651633846DF3E9D109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E1CF1A0E5EA3D6EB06513D76C8A3DE4DE2DBF4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:6AA06CBE43156B55D211D1E304AFA498B40CCF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F1BDDF32C94000EF0A68081B58CF3B39372D8F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09262783527F7E2A118DC370224C9DA1164F223D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

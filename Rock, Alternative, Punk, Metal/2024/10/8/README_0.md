@@ -21,8 +21,7 @@ Chicago - Chicago At The John F. Kennedy Center For The Performing Arts, Washing
 ```bash
 magnet:?xt=urn:btih:C227AFAF01DF4D14441B3CB982EF5EAC49581A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ CD-1:
 ```bash
 magnet:?xt=urn:btih:8D0C6D8060B5C80E1DF963D5D84AEB005381A178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tales of Terror 2: House on the Hill (2014) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:0B2FFBB796CAE831F484728730EBAE4E3A184A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eternity / Тайны вечности (2010) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:5526436A45AAB714DDDCE6380F0C633FD5EA7CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Surface 5: Reel Life / Над водой 5: Жизнь в кадре (2014) [Ru]
 ```bash
 magnet:?xt=urn:btih:BF1E0A1CF9AF61CC6543A84A839CCECE5BD27620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Space Legends: At the Edge of the Universe / Легенды космоса. На
 ```bash
 magnet:?xt=urn:btih:26B86C38EDF0609ACA4524F3FE6B191617AE27DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Teleglitch: Die More Edition (2013) [En] (9.3/1dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:89107EA4F70D98F6A2B65FBABFB9CDFBB35B6EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Transistor — научно-фантастическая игра в жанре 
 ```bash
 magnet:?xt=urn:btih:16EAE5741ED7B0C7474FAFD931226F81344C6A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ The Typing Of The Dead: Overkill (2013) [Ru/En] (1.0u1) Repack Audioslave
 ```bash
 magnet:?xt=urn:btih:71B4E89C7BFB9E8F46557DD6F0143C6E53EB353E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Men of War: Assault Squad 2 / В тылу врага: Штурм 2 (2014) [Ru/En
 ```bash
 magnet:?xt=urn:btih:6A798A1BA7742C1649789488B394FC447FFF4704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Clarc (2014) [Ru/Multi] (2.0.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:D41300C209BDB7BE9D63B0164D713AEF564A1616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

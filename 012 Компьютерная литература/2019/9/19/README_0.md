@@ -19,8 +19,7 @@ Python - это мощный язык программирования, на к�
 ```bash
 magnet:?xt=urn:btih:7DD33754598CC420DAD46F970A8F511C90044ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F352BE498552F1AF775173685F10B6A16BFE329E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fable: The Lost Chapters (2005) [Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:AE3A974F1C241752F916F8810FE081047ED471C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

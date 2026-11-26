@@ -22,8 +22,7 @@ Tiny & Big: Grandpa's Leftovers (2012) [Multi] (1.0) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:1391F76F9112F8FC44AE3C1ADE0458EDF042BEAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Scribblenauts Unmasked: A DC Comics Adventure перенесет главног�
 ```bash
 magnet:?xt=urn:btih:1860008DB76BC8E55C8BBAA3C6A65DC9142E025B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Steel Storm: Burning Retribution — это стрелялка с видом с�
 ```bash
 magnet:?xt=urn:btih:599C931B4D55A31B22173931BC5B6DF00952B408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Men of War: Assault Squad 2 / В тылу врага: Штурм 2 (2014) [Ru/En
 ```bash
 magnet:?xt=urn:btih:09AB8778B6F81DBF21258E17B44449AB2784FE01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Scribblenauts Unlimited продолжает оригинальную серию
 ```bash
 magnet:?xt=urn:btih:3072A2414157DD24C52D4188DD922FCF03646704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ The LEGO Movie Videogame (2014) [Ru/En] (1.0.0.56077) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:D71B411CC8571EAC99D24E4271BEC5EE85843690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

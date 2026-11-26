@@ -22,8 +22,7 @@ Show Me A Dinosaur - Plantgazer (2020) Limited Edition [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:04AEE2499AA726EDD4AD877A4943000A8122233F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

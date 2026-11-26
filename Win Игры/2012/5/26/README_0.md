@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:3CB364F459D4E82EDF8C700352030B0FCE74D732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD8A58E8B5F7E07F25947AA9062DEB6FEFBAD032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Patrician Антология [En/Ru] (RePack) 1993-2010 | R.G. Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Dead City / Город мертвых (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:C9C8FFB3D434571AE6A6543AF437823B3D5DCC7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Kingdom Chronicles Collectors Edition / Как Джон Непоседа спа�
 ```bash
 magnet:?xt=urn:btih:A349A2A6184D658D4B4BB36DFBCBFB7287E827C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Strange Cases. The Secrets of Grey Mist Lake Collector's Edition / Тайные 
 ```bash
 magnet:?xt=urn:btih:D19A62F91689B01605B2C1F5FA65AFB83715655C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Hide and Secret 4: The Lost World / Анна и Уилл. Затерянный �
 ```bash
 magnet:?xt=urn:btih:C2B2A530080BCD452CED4B0F8DACCDC3662F45BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Flux Family Secrets: The Rabbit Hole / Секреты семьи Флакс 2. �
 ```bash
 magnet:?xt=urn:btih:5629717C7F903056D8B05D2D6CAC08CC9E964A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Final Cut: Death on the Silver Screen. Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:E1148E7169B4F5E334ADDAC4B64B69D3A5647A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

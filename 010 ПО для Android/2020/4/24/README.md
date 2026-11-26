@@ -19,8 +19,7 @@ AdClear 9.14.2.798 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BB88F45F588DC9305FD508A3EC7E84F6039ED483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ QR Code Pro 1.15 [En]
 ```bash
 magnet:?xt=urn:btih:FE409CC2855C4B2CCA2FFAA922D036A7C46ED12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AZ Screen Recorder позволяет Вам записывать FullHD и QHD 
 ```bash
 magnet:?xt=urn:btih:E86CC0CE65480219BFBF33E9E28D3510B9470560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

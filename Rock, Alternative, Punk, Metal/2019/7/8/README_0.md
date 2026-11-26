@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:20760FD167C1AA8176C4AA4C450E34825E44F075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ David Bowie - The "Mercury" Demos (with John 'Hutch' Hutchinson) (2019) Mono [FL
 ```bash
 magnet:?xt=urn:btih:010C6262DC7B4A73408F78387F443FC77EB9EF11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

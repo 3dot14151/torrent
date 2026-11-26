@@ -19,8 +19,7 @@ Earth 2160 / Земля 2160 (2005) [Ru/En] (1.3.8) License GOG
 ```bash
 magnet:?xt=urn:btih:CF510175DE3C65F8A54B0505AC734FD5CEFF493F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

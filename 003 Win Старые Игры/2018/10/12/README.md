@@ -19,8 +19,7 @@ Darkstone (1999) [En/Ge/Fr] (1.0.5b) License GOG
 ```bash
 magnet:?xt=urn:btih:7ED7C79A13BB9675DC96A0C03B7AE71136CEDA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Master of Orion 3 / Master of Orion 3: Престол Галактики (2003) 
 ```bash
 magnet:?xt=urn:btih:E498028156CF8DCD5550E8BBB286B6CB638B5620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

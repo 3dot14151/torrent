@@ -18,8 +18,7 @@ ABBYY Lingvo x6 Professional 16.2.2.64 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:392BEC2E09EA054F6D8727A2A813021DD21FB18A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wasteland 2 является прямым продолжением игры 1988
 ```bash
 magnet:?xt=urn:btih:07CEB52EBAEA4573253927B55CAE40B1A1B4F55E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Wasteland 2 — это прямое продолжение Wasteland – игр�
 ```bash
 magnet:?xt=urn:btih:EBFBC1B567BBD5A808EAAF8C19869BA509069935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Vampire Legends 3: The Count of New Orleans / Легенды о вампирах
 ```bash
 magnet:?xt=urn:btih:D1E74AA9411B6E3FB17B817CAAA44E0C76FDCB50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mother Russia Bleeds – брутальный beat em' up, действия ко
 ```bash
 magnet:?xt=urn:btih:1D5DAFDD060A8134E06644B11BB165DE32E16714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

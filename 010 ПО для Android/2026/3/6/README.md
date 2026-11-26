@@ -19,8 +19,7 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:8CA65755B4B1FD01E272F83583C37EAE9C68DB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Battery Guru предоставляет продвинутые инструме�
 ```bash
 magnet:?xt=urn:btih:52A5D5B3AAF99D5B160BEB4ECB5BC2A32FEE7285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Out of Season - это альтернативный клиент для сайт
 ```bash
 magnet:?xt=urn:btih:3DDC5021D3D05E517642A8988AC66376A8AB5141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MultiTimer - это простое и универсальное таймер-п
 ```bash
 magnet:?xt=urn:btih:A752A775638C5802A871FBF6DA8555783E28BF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ eWeather HDF - это точный прогноз погоды от двух м�
 ```bash
 magnet:?xt=urn:btih:A8DB8F2EC64311FAFD6F417F48FA3C9824F1D3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ FreeZona v3.0.46 Mod by vadj [Ru]
 ```bash
 magnet:?xt=urn:btih:8B8436FBEA21C0F4BA7675FB5413D4C3217974C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Exo Player - Видеоплеер и IPTV v3.2.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D95846F7ED4FAF86589AEF402B3EAAF35E5BB651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

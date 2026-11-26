@@ -23,8 +23,7 @@ Rollings Magic (L) [En] 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ The Missing: A Search and Rescue Mystery Collector's Edition (L) [En] 2011
 ```bash
 magnet:?xt=urn:btih:12488DA4B5AC34330C95D8620D1A9492A05D0984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Perimeter 2: New Earth / Периметр 2: Новая Земля [Ru] (L/1.0.1
 ```bash
 magnet:?xt=urn:btih:FE5B2F1C968C83C74805F74CD260BCCA7FA324D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

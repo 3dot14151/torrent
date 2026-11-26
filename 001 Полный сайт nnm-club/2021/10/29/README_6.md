@@ -21,8 +21,7 @@ Dead Wolvs - What Doesn't Kill You (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 ```bash
 magnet:?xt=urn:btih:C9BA548CCAA6BDB16DB0B6F5D33BFD2A0B45C03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ GlueMotion был создан, чтобы сэкономить время и п
 ```bash
 magnet:?xt=urn:btih:5D095493CF9BE2F00CDB672D3DE82B7707AB80DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:8DE1DB644E9626E38AA25CD9D2AE9C0FA90E4D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:E4A3C5B75F52AC383450177787A08112E1DE2EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:5C78438017CA5436B7E6226C55FD6A38B98A26B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:ACD668D8D7FD9C5D6C4F16782B30298EFC90C781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Hazell Dean - The Dean & Ware Collection, Vol. 2 (2021) [AAC|~313 Kbps] <Pop, Di
 ```bash
 magnet:?xt=urn:btih:035A590B2F1DBB00BC31F8031B3CA2A49A923B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ VA - Chillout Orange, Vol. 3: Relaxing Chillout Vibes (2020) [AAC|~307 Kbps] <Lo
 ```bash
 magnet:?xt=urn:btih:19BF0342B901A98D8C0EF4EFD24404D7E293868A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Acoustica Premium — многофункциональный аудиореда�
 ```bash
 magnet:?xt=urn:btih:870DF7D320C282794C1C0723D3EA9AB4A4615B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

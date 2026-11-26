@@ -20,8 +20,7 @@ Real Comedy / Комеди Клаб / Comedy Club / Выпуск №22 (2011) SA
 ```bash
 magnet:?xt=urn:btih:09F9AEE177AE3718BD07A6632BBCBCEC344E13D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Joe Zawinul and The Zawinul Syndicate - 75th (2CD) (2008) [FLAC|Lossless]<Jazz, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ James Thompson - vocal, sax, flute(   Читать дальше...)Жанр: Blu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Real Comedy / Комеди Клаб / Comedy Club / Выпуск №24 (2011) SA
 ```bash
 magnet:?xt=urn:btih:AFCAE66F73D83B26E271D53432FDDE9282EC91C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Freygolo - We All Have A Voice (2011) [MP3|320 kbps]<Punk Rock/Ska>
 ```bash
 magnet:?xt=urn:btih:1A98581E9C6DACEE2645774A203977E4118FA449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Sisulizer Enterprise v 2010.311 — это новый мощный высоко�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ VA - Командировочка (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:CDF62513BC000A43C33C95493CFC89FCAD2EEA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ VA - Новый Хит Русского Радио (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:BD7170288993AA77FFA68563374BF832AE379C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Elton John - Live in Australia With The Melbourne Symphony Orchestra (1987) [APE
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ Buster Williams - Griot Liberte (2004) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ Tom Principato - guitar, vocal(   Читать дальше...)Жанр: Blues, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ VA - Молодо-Зелено Самые свежие хиты (2011) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:80339068D1B9D6B9800A7554BE10A2B6E7C96F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ Screeching Weasel - First World Manifesto (2011) [MP3|320 kbps]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:41E2B01035BAA133DCF7E1D83CFAB21659A80D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ Dour Speak - Фальшивая Жизнь (2010) [MP3|320 kbps]<Альтерн�
 ```bash
 magnet:?xt=urn:btih:3240E2B77F53126413AA34192D6C84F0BA402C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ VA - Generation Dubstep 2CD (2010) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:BC099B2354CD2C6E52B4A8AAE2A1E55851745331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ VA - Лучшая молодежная 100ка DFM Русская (2011) [MP3|25
 ```bash
 magnet:?xt=urn:btih:193E1F34B1CF44D161DDDF17260ABB37DD70238D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ SaveGameBackup Version:1.0.3.0 [Eng]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ VA - Car Audio Vol.20 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:9105403BBCEF980618D498AB4C8ADCAB40AEC958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +568,7 @@ The Gil Evans Orchestra - Out Of The Cool (2007) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ VA - Лучшая 200ка самая модная Русского радио (2
 ```bash
 magnet:?xt=urn:btih:0FEE12D54403B5EBD7620C900FFF889008E48A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B008DB09A32CFFD269AA70115EE5E98AFE5BB579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B38741750D12A60F6E2C6DCF99573488260291CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8984608930DCB8F3A5BD05540E2B80216E1A752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ DVDFab - программа для копирования DVD и Blu-Ray дис�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +727,7 @@ Frank Sinatra With Quincy Jones And Orchestra - L.A. Is My Lady (1984) [APE|Loss
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

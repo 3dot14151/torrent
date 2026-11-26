@@ -28,8 +28,7 @@ B5 The EmigrantЖанр: Experimental Electronic, AmbientПродолжител�
 ```bash
 magnet:?xt=urn:btih:366A3FB3D9D75EDD468F77BC3C427DBB8D1A6149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Prymary - Prymary (2002) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E7759750A8C9494E0ADC1A6D16C7555F20C9CD5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Crossfire Collision - Panic Face (2013) [MP3|320 кб/с]<Melodic Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:80581C0B619F425CB7A8FBC5E0B3A2E40D83FD80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Prymary - The Tragedy Of Innocence (2006) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:070CD0D56949140A905D42389F660D1B2D74C967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Witch Mountain - Mobile Of Angels (2014) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:E9A54AB162F549E6920F86491DA20C202CD69C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Isidris - Fire, Stone & Blood (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:5BB98C248C4B60B8DD67DB7A6B1361F0D352379A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD5719B970A1E8CB435A5C25C9F06B75428FDC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Aeon Zen - Enigma (2012) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:0801722212F1DE79C362CB8CA965C459BA2DA3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC58ED8FD38D61114005F152A2C034DF518BCD1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:642572A9C804DCFD8C6F437A457C3808CC99EB86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Tom Petty & The Heartbreakers - Hypnotic Eye (2014) [FLAC|Lossless|WEB-DL]<Class
 ```bash
 magnet:?xt=urn:btih:E842D0D368545D74299B13E1C9E856C179CDF221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Sinkane - Mean Love (2014) [MP3|320 кб/с]<R&B, Pop/Rock, Alternative/Indie Ro
 ```bash
 magnet:?xt=urn:btih:6E9D98EC0F34B1FCA044DD39BDE775768D75C9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ In Flames - Siren Charms (2014) [MP3|320 кб/с]<Modern Metal / Alt.Metal>
 ```bash
 magnet:?xt=urn:btih:3531DF83942E77DE2F3F47E035083DEF017ED6AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ Lumen - Акустика (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:6AC40A8C10A656031ACBC6021E8FC0F3A1C3EF22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

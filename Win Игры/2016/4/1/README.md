@@ -19,8 +19,7 @@ Blue Sheep (2016) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1F68C409E581CBE71CA65F21317EA819C9F42CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Layers of Fear - жуткий психологический триллер, с�
 ```bash
 magnet:?xt=urn:btih:CF0016BB37C870596FFAC0B68727450BB104CED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Forest — это необычный survival horror с открытым м�
 ```bash
 magnet:?xt=urn:btih:BC5A5D8973CC19AACCE20E07C50358FEA652F5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

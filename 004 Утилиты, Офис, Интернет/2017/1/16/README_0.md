@@ -19,8 +19,7 @@ Hardware Sensors Monitor (Hmonitor) - утилита, служащая для м
 ```bash
 magnet:?xt=urn:btih:C66F00C4637531205C59A24BBD19395CDB1D983C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

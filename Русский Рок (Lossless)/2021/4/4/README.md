@@ -22,8 +22,7 @@ VA - НАШЕствие (01-19 шаги) 19CD (1999-2007) [ APE, FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:228C6B9F16864A4BA19C6362305E3E4DA10E836C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

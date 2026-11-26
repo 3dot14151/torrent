@@ -19,8 +19,7 @@ Still Life (2005) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:60B85BB90555D888AF8D5B55D56203889611E838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

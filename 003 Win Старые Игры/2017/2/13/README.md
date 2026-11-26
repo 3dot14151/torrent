@@ -19,8 +19,7 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:367671AF8F8B22960F5B18B5FF1DF519CEAAD4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EB7A076A093F731166A160E4F870509A0A58A802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

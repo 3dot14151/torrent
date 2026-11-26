@@ -20,8 +20,7 @@ Virtue Concept - 2 Альбома (2012-2014) [MP3|~277-320 кб/с]<Metalcore /
 ```bash
 magnet:?xt=urn:btih:D6E9B58DCECF8A655310B8C2AA21DAAC909FFE0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ H.O.S. - The Beginning (2011) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F3FAB08D316A6C2478A7FB08376D6D02338F2F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:575FE93ACFAAAAA0F18F2CF6B575AB429EB7B49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Sacro Sanctus - Deus Volt (2014) [MP3|320 кб/с]<Blackened Heavy/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:FD90384A516D7DF45F0FFB8FA31ED8AF2CBA2020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ VA - Клубные Новинки Vol.549 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:3DE59668B4DC7F1D22365BD8CB6CBAE0E116E928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ VA - Клубные Новинки Vol.548 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:6FF0B0DA64C26F9788C24BEEB4217C2BA04545F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC06DA46FE8DBF4DA75806A758C3C5896B9DCE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ VA - Клубные Новинки Vol.546 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:30A3D003036B6EC41964ABD9447445D1A5F186EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Freebird - The Ride EP (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2412B0F3F41A70F1B60ABCD5BF1B7B489D364757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ VA - Клубные Новинки Vol.547 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:8270A6E9779DA6B33F0E6D254FDA521D3D1AF97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +333,7 @@ Studebaker John And The Hawks - Time Will Tell (1997) [MP3|320 кб/с]<Blues Ro
 ```bash
 magnet:?xt=urn:btih:DC0FBA6448D343618122C0C114C4D9412FFBFD1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0ACFCAA1CAAACC6248E36300637BE773A5EF7A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3F97948752661B0167F010A1F88DDD27946A47D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ VA - Sense of Vocal Trance Volume 37 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:ADC4C2FC00B97251C6F8064B208C8A02E58F66FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ Side Liner - Human Recycle (2010) /Cosmicleaf Records/ [FLAC|Lossless|WEB-DL] <P
 ```bash
 magnet:?xt=urn:btih:BD49343C273CAA82B6691E0CD789CA407B506EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ Ost+Front - Freundschaft (2014) EP [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:CF2AE1FE95B85A9A22B9EDF8E255685A1F6F97D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE0964F3BB72F90B2C20430A668585F050580E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA20F722D19DB08B7F7A284D3D66DAFE049A264C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E592E89D7C9AAEF1D375D1FF66A5C9871BBE1A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF6D6542B724B9249D68B85440212876BB209A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86A85F879AB614D3C429DAEFCAF1D83D36A5D88D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ Soundcritters - Colonization (2012) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:B68B1EFA813D6ACE28F60EF54E5BEEC94E081FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAE4AAB6FAE1A96B03077E5DB28B3879A336BA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +694,7 @@ Miles Davis - Nefertiti (1988) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:A661B93BC295110C3A51D71AD38207F7ED7CBEA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +725,7 @@ VA - Electro Club Dance Pilot (2014) [MP3|320 кб/с]<Dance, Club, Electro>
 ```bash
 magnet:?xt=urn:btih:D1D9CA4895A30DEC8C293487C6ED3102935B9180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69CFEFBD209DB67608780AAE0061FBA34FDDBBFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

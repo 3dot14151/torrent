@@ -28,8 +28,7 @@ Freddie McLennan - Nascent (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:0245C97AC2EC0D2BE53C54E1849ACEB5BB09EEFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Gordon Lightfoot - Dream Street Rose (1980) [MP3|320 кб/с]<Rock, Folk Rock>
 ```bash
 magnet:?xt=urn:btih:C6065C22A6B671B08E1DA84225828C32B459DBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Job For A Cowboy - Sun Eater (2014) [MP3|320 кб/с]<Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:2CC673FDB3E70A2CF02D0545B931548E0BBFBE64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Smokie - Live (1997) [FLAC|Lossless]<Pop-Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:0476FD9EC12BA2E37D41483E5DD590D07F6DD7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Shaka Ponk - The Black Pixel Ape (Drinking Cigarettes To Take A Break) (2014) [F
 ```bash
 magnet:?xt=urn:btih:6229AC30615D916418F2ACE1FB5FF7C472E1E838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ The Animals - The Complete Animals (1990) 2CD [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:289E9EBBA56F12EC1F05D573BB29B7A00E9C0CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Crazy Lixx - Crazy Lixx (2014) [MP3|320 кб/с]<Hard Rock, Glam>
 ```bash
 magnet:?xt=urn:btih:C8B97EF54BC7EFCFBF2A905AA1E702CACE345185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ U2 - World Ballad Collection (1999) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:07E6223EF580AB9F06F3DA04C6FA43155EC00C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Billy Talent - Hits (2014) [FLAC|Lossless|WEB-DL]<Rock, Alternative Rock, Punk R
 ```bash
 magnet:?xt=urn:btih:942DFAC6151B9C91AB3A69873F29AF277FAFEAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ Cutting Crew - The Best Of (2003) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:8C5E90D65DAE790CE6CE02E728360C9D5BC4B7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ Trubetskoy - Ёлки (Макси-Сингл) (2014) [MP3|320 кб/с]<Rock, Pun
 ```bash
 magnet:?xt=urn:btih:D490FE3EBBE09E4DEC13E976D74BD923C752584F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +396,7 @@ Nightingale - Retribution (2014) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:47ADC3F6212DFDEBF6647089C27A2E6FE5CC20C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +430,7 @@ U2 - All The Best (2000) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:F25D5C3347313E60E96393BDDCFAB0E323A9E5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43FC8BAB7771B82E5B2EC8A46C83AB79C7529BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +492,7 @@ Queen - Forever (2014) 2 CD, Deluxe Edition [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:251294C80CEB4C31A926A77082E9ECE0466B26D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

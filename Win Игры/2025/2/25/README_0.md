@@ -19,8 +19,7 @@ Megaloot (2024) [Ru/Multi] (1.17.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:026FD0DE9EB2C5567ECA8D465B3B30ECF3D73C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Axis Unseen — это игра в жанре хэви-метал хорро
 ```bash
 magnet:?xt=urn:btih:8399E632A52BF896B6161B23E829345D590E0B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Quake - Квадрология (1996-2021) [Ru/Multi] (1.0/5971/1.32/1.4.3/dlc) 
 ```bash
 magnet:?xt=urn:btih:A08E3D742B1C01F1FCF7D50A11F24684E5BF7C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hands of Necromancy – это шутер с видом от первого ли
 ```bash
 magnet:?xt=urn:btih:F8F6FEB59E7C7E80C0F969706ED9EED52BB65CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Stellar Settlers — это строитель космической базы/�
 ```bash
 magnet:?xt=urn:btih:EBC5B5646C3B3408187F8F9C32DBA2B6EEA2FD78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hands of Necromancy II (2) (2024) [Ru/Multi] (18.2.25) License GOG
 ```bash
 magnet:?xt=urn:btih:307CE52329596124907CA10AD76D50A1AD5F4454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Generation Zero - это шутер с элементами скрытности
 ```bash
 magnet:?xt=urn:btih:4770583EF36B7F91CEAA53B0730E531DFF524FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Zoochosis (2024) [Ru/Multi] (1.6.3) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:653E7259D14B18B8555AFDF6B3EEB76023AB9B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

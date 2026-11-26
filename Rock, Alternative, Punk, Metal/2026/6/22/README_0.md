@@ -22,8 +22,7 @@ Vayper - Песни на стихи Branikald (Часть 01) (2026) AI-generate
 ```bash
 magnet:?xt=urn:btih:1CC338C1C0A647F49D43A576D3605AF67E00037B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pussy Riot - Cyka (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Rock, Alter
 ```bash
 magnet:?xt=urn:btih:A4397D954A6DCFA43FD693E8A6EFD3CFC8310440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Steelballs - Rebels (2026) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:F46091EF4538665913AAA63C1071B61557DD0D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Ode: Favourite Ballads 1967-1995 (1995) Compilation, Unofficial [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:04D77DB68F0B6A8855AC9C3151CBE81650C32C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Xciter - Xciter (1977-79) Reissue 2006 [APE|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6934EE4C3A4AB7F39D5C02BF1B1DFEFF06350E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ KXM - 3 Albums (2014-2019) [FLAC|Lossless|image + .cue] <Modern Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5AF3E96CF4D3077287E896B2C48278D56FE10C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Hear N' Aid - Hear N' Aid (1986) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B5249318432F164D39AAD6D57D2B509F86B3A7BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Silverlane - 4 Albums (2005-2022) [FLAC|Lossless|image + .cue] <Melodic Power Me
 ```bash
 magnet:?xt=urn:btih:DC7E4E4443A7ADE991C0D037E23CB7A2BC3901F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Saboter - 3 Albums (2015-2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F6FE12F39937C154F8C7E9C870D8A55900FDFB36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Mattador - III (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:187B08BE69434FEFA0BA1A6474B406674C358743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Claudettes - Garage Glamour (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alte
 ```bash
 magnet:?xt=urn:btih:8F63E0CE74BF21CBFF347641E1A94F4EFD61E408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

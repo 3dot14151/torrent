@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:58806AD178F7E257C63689E44E60FB5960CA5D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:2389EA39BBEFA8B72521771FF0159ABD8BDA0C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:29968C505EC1EBD1DC577FA0C14A0E0585AFEED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Kerry Brooks | Яркие портреты цветными карандашам
 ```bash
 magnet:?xt=urn:btih:F4387BD4125DB62F2E7148B391D81C15471E8CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E76BABD357EE3088B34A5954249D8574C040F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

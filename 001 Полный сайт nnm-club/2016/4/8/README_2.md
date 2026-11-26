@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3BC1C5BF71809E070F8A78DDA891D4B044C84AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ iMazing: отличная альтернатива iTunes
 ```bash
 magnet:?xt=urn:btih:A047BA0FB016839FF454588A00FA79FA5E7D76F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - 45 Jahre ZDF Disco - Nr.1 Hits Der 70er (2016) [MP3|256 кб/с] <Pop, Rock
 ```bash
 magnet:?xt=urn:btih:9C6FD64F3600BC7520CC63A394B27A129615892C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BD1C721BED3FA2909BFA502A0BDD33958C29662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Brick Bazuka - Я и Мой Демон (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:209E53711A2D9978F752E505DD76E82B318303DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F987FD94075E72841874F6A22EC71E7DC7D1E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2B6E8F497F5CC83007D0CCD5EB04BA1407901F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F53E37A4C98214625A30EC4BE7EE5E7789603A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ MindNode  элегантный и простой в использовании, 
 ```bash
 magnet:?xt=urn:btih:CD809BBDD36E95A574DB26F2EE4A7B749EA814C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AAF603DA1A60DDC6C412D0EE7548337F072B652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ BrowsingHistoryView - бесплатная утилита, которая пос
 ```bash
 magnet:?xt=urn:btih:E1448ABE09B418CB0EBFFAF28870BFDF12C03F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Sabrina Carpenter - Eyes Wide Open (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Po
 ```bash
 magnet:?xt=urn:btih:E2A6CFA40982484828D3DEDBFF9C4F1B01DB63D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ PicPick - приложение, объединяющее в себе возмо�
 ```bash
 magnet:?xt=urn:btih:DA62F595E63F40D0C9E61EB278772004D83A4026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Url Extractor легко извлекает информацию, такую к�
 ```bash
 magnet:?xt=urn:btih:B22BF5C0ED0EF106C20504BE07A84BCD37C049A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08BF2DC76D587005BC97EC745896EF4C9F7343EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ VA - Nu Jazz Instrumentals (2016) [MP3|320 кб/с] <Nu Jazz, Lounge Jazz, Jazz 
 ```bash
 magnet:?xt=urn:btih:4D0CF3BFAF2C80F04FD073B53BC689A36B2C57B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ Day One 2: новый журнал-дневник
 ```bash
 magnet:?xt=urn:btih:A38F365108C7F21C588BA367E323299C3F9810BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ ForstWolfin (ForstWölfin) - Wald (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Du
 ```bash
 magnet:?xt=urn:btih:DDC98A5AD60763F01BF21DB5A5F73CBC92933F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Pixelmator представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:A095CA68F9FA999B2878CE802C9C7A52C419F3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ Bruce Brubaker - Glass Piano (2016) Extended Version [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:726DA86CE3A9FDFAF95854BEE115F31BA5C80DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C06BDCCE9F3F9E9C7D92AC1DB2B4B04ED7564C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ Slimjet 9.0.3.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:843889D1E70C9A252FA9C80CBAF4022C96D1189D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6F4CBA2A72D695C932B94128DD473363E3321EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A48F3968627BEE46098C9EBCC1C8E54B13E05E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8611A47FE1C0222C8AA640F4B5989AD54E94D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ Katzenjammer - A Kiss Before You Go (2011) [FLAC|Lossless|tracks] <Pop, Folk, Vo
 ```bash
 magnet:?xt=urn:btih:8FCE9563B7547CF03CC8AC8D7B3325BC2E2A38DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

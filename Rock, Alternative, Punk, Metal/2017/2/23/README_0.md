@@ -22,8 +22,7 @@ Skydog - Just Want To Make You Happy (1974/2001) [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:853122E17CFC30545978793BDA2DD9CFB23D356D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Please - Seeing Stars (1969) Remastered, 2001, Acme Deluxe Series [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:FAAC40BE34C1922A37B64D03829BFCEF5BE10E20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Orango - The Mules of Nana (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock, Bl
 ```bash
 magnet:?xt=urn:btih:1CF567FD82573CC8E1B421D65158DF46B986C1CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Temperance - The Earth Embraces Us All (2016) Japanese Edition [MP3|320 Kbps] <M
 ```bash
 magnet:?xt=urn:btih:DE496A49C405FF4FF18B0CE3014B695EF17BD694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Thunder - Rip It Up (2017) [FLAC|lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6D19B43B44F7BCDD98F121D2768624847B92F268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Иллюминатор (Песни на стихи Ильи Кормиль�
 ```bash
 magnet:?xt=urn:btih:790809F07BF275A629556BEAF03BA9673ABB2285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7457CCE3D18F4ADE2466132DB08802ADDDB82533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94BBCAC59C92398F0D48394B8E28F188F37DD06C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

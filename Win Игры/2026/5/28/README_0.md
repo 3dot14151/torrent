@@ -19,8 +19,7 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.3.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:BA83F067C78B41D114BCECE794419E13C0DFC1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SaGa Frontier Remastered (2021) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:ACF0A8C008C0206B2E8A056FE269A008AAF9FC9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Meltopia - это минималистичная игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:602ACC0E8AE9DFCAC5ED671F155390A55C974FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Echo Generation 2 - это пошаговая научно-фантастиче�
 ```bash
 magnet:?xt=urn:btih:576737CCA2271C626C96DF09A0C38932BF5768D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

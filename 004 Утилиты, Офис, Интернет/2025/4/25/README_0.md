@@ -19,8 +19,7 @@ FreeCommander XE - это довольно-таки удобный в работ
 ```bash
 magnet:?xt=urn:btih:00E1F6FD2B9811F281301F34E33202064954F97F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:612FB375D0C87925FAF55EC7F2F7C5C0F4052D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

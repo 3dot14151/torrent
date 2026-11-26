@@ -18,8 +18,7 @@ Call of Duty: Ghosts – новая часть в серии Call of Duty. На�
 ```bash
 magnet:?xt=urn:btih:8203DEDC5FD7BBBA4B8696A934AD957320B9C905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

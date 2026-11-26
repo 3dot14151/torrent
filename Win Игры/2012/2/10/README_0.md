@@ -19,8 +19,7 @@ Worlds Greatest Places Mahjong / Величайшие сооружения. Ма
 ```bash
 magnet:?xt=urn:btih:CF131EF01B94944997BF0B4FA06466F2E4C83161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

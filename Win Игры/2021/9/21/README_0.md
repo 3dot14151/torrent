@@ -19,8 +19,7 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) License GOG
 ```bash
 magnet:?xt=urn:btih:089D4B9E143E8E6802F16C700E244C387DDD3CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Don't Forget Me (2021) [Ru/Multi] (1.1.3) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:1A2D54D805B6CB1F78437F5ECE845BD2E4B9AD70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sheltered 2 расширяет и углубляет идеи оригиналь
 ```bash
 magnet:?xt=urn:btih:D6ACF33EAFD41433F20AFA33C937776C225D0319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ World War Z: Aftermath — это сногсшибательный коопер�
 ```bash
 magnet:?xt=urn:btih:494C3F580621285EF9CFFDE423C78BD2FFFF2B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

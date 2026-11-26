@@ -19,8 +19,7 @@ Pro Pool 2024 v1.54 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4E3DFF3CD3EA4ABFE69E700ADF718DB91330413E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

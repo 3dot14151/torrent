@@ -19,8 +19,7 @@ BDSM: Big Drunk Satanic Massacre (2019) [Ru/Multi] (1.0.33) Repack Mr_Weegley [1
 ```bash
 magnet:?xt=urn:btih:B2511E5C32BC6A72E1027E4CE886C0BA97F5D368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ REFUGE (2020) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:88DBEF40D243FD74DEE3F42756142DB539A1A464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

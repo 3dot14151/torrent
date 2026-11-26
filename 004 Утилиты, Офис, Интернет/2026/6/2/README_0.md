@@ -19,8 +19,7 @@ FontCreator — единственный редактор шрифтов, кот
 ```bash
 magnet:?xt=urn:btih:3CB5D2623C49950697A69F0FFCD11558527BC9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Video Downloader Ultimate — это программа для Windows, пред
 ```bash
 magnet:?xt=urn:btih:7E4C0C13D36044D077D91E76D52AFD2C701B122C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Executor — это настольное приложение для управ�
 ```bash
 magnet:?xt=urn:btih:A6F91214A57E90557CA7981CDF15D90C3075F465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Opera One 132.0.5905.19 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1D5373EBE4D540CA9185E52BE690BF89CDF5669C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ InCopy позволяет авторам напрямую набирать те�
 ```bash
 magnet:?xt=urn:btih:1385E3E5E41C62330912B124E62C53C400004A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Super God Mode - это скрипт PowerShell создает ярлыки дл
 ```bash
 magnet:?xt=urn:btih:353118E37B0463952D96741E7231A1B35F45B861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ PMAS - PowerShell Multi Activation System 12 [En]
 ```bash
 magnet:?xt=urn:btih:05F43F29CF418043A30D8FE6CE29BF2EFE734B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ NWinfo — это программа для Win32, позволяющая пол
 ```bash
 magnet:?xt=urn:btih:5E3E285AFD3D56D69F3A5371A0BF5C2B431917E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Unlocker 1.2.1 Portable by Eject [Ru]
 ```bash
 magnet:?xt=urn:btih:92F08DDE99C58CE452B5E67EB27FCCC0F1C1BD3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

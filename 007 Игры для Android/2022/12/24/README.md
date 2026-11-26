@@ -19,8 +19,7 @@ Pro Pool 2023 v1.52 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:73D41AF84DCD4A6007B7D331A009A3A262813BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Heads for the Dead - Serpent's Curse (2018) [FLAC|Lossless|tracks + .cue] <Death
 ```bash
 magnet:?xt=urn:btih:835406307FADCC9EB6A11D938DFE1209B93CFB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:7F94C680AD883354A28D3C7930E7E9DCD577355F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bride - Scarecrow Messiah (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:109AB6DBB5E5F55CE2E1EB96A44B102CE5493641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Harem Scarem - Mood Swings (1993) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D891DD4FD8A0CC0CFF2075FDAD7B58D4D392AD09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lake Of Tears - Ominous (2021) [FLAC|Lossless|image + .cue] <Doom Metal, Gothic 
 ```bash
 magnet:?xt=urn:btih:4B21E0C8E0359A865F9D2B4814D4A5865459C247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dominoe - одна из лучших немецких мелодик-рок гр
 ```bash
 magnet:?xt=urn:btih:B89888B0723B117100D09D9C20A28377D227C465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sons Of Angels - Sons Of Angels (1990) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:C2D15C560E9FDD55EA6E0B24974913BA79908E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Def Leppard - Leppard on the Loose (2021) EP [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FAC8E9D7B7DDC893904E539FB21FAFC0F7CC99A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

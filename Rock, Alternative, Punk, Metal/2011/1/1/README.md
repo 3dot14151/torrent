@@ -28,8 +28,7 @@ Survivor - Greatest Hits (1990) [MP3|192 kbps]<рок, хард-рок>
 ```bash
 magnet:?xt=urn:btih:D859D96F491B87FD46A49608BEC8909AAEB96548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Def Leppard - Retromania (2010) 2CD [APE|Lossless]<Glam Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Windows 8.1 — это еще большие возможности персон
 ```bash
 magnet:?xt=urn:btih:7A175A8B1F10F72F46FC9CC67B95CDB00B7022C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Microsoft Windows 8.1 RUS-ENG x86 -8in1- (AIO)
 ```bash
 magnet:?xt=urn:btih:C2129AD3E68CDDA2677A12C67C70F30CF3D91430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Windows (   Читать дальше...   )Язык интерфейса: Ру
 ```bash
 magnet:?xt=urn:btih:C98CE2B63A53810FFB2D6BA036B044FB15F9A339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

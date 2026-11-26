@@ -22,8 +22,7 @@ Of Rituals - Trauma (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore
 ```bash
 magnet:?xt=urn:btih:D07805E6B332039388DE530F083E8EDAE917FB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fatal - Karmageddon (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Russian B
 ```bash
 magnet:?xt=urn:btih:3245C12693751A6255EF1CD3912FB430B205E1F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fatal - Karmageddon (2022) [MP3|320 Kbps] <Russian Beatdown Hardcore>
 ```bash
 magnet:?xt=urn:btih:35553C13F46F9C4C93E441FD52918434E7197A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Death Note Silence - Collide & Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Al
 ```bash
 magnet:?xt=urn:btih:8587467177DEA2ECD1ED02FC247ED0D69E75FAAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Gengis Khan - Possessed by the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Classi
 ```bash
 magnet:?xt=urn:btih:B91835B042CDCC83E8240A27BF3E6AB062D29BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Griswalds - Better Late Than Never! (2012) [FLAC|Lossless|tracks + .cue] <Ro
 ```bash
 magnet:?xt=urn:btih:043F38D2609CB854AA4491BE012012A3C73A64FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:13D8361DBE7C1CFAC726193C7BA1EDAE2EA99FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Amsterdam Red Light District - Trapped (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:BDCDC789D81E5E7FC263D44F8D66E4D76C05CED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Circle Of Silence - Walk Through Hell (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:5FA930CC0C9F65909EF6C7CDF00B87464B93B2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Hollow Front - The Price Of Dreaming (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Al
 ```bash
 magnet:?xt=urn:btih:B47B03CBA862D1E527A70935507E1DEB2C4E9C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Electrified - My World On Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:0B6938567F1079E9D8FAF033765D9EE987673381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Michael Schenker Group - Universal (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard
 ```bash
 magnet:?xt=urn:btih:4EE4EE17E6DCECF6EEA6FA12E4D4F148D4F44DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46AEF314BDF23AC6957607B8500761AFA19C5A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Sever - This Should Have Been a Better Place (2022) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:5682CA81082294BFF16118A7328B1AB3FB4279FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A8B9D92C68699BB6F15EF3AA6F2A2A0FF2101E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Def Leppard - Diamond Star Halos (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:881AF14A20DAA7A3935DAE097D8EA611D7F04F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

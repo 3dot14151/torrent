@@ -19,8 +19,7 @@ The Cub — захватывающий платформер о паркуре, �
 ```bash
 magnet:?xt=urn:btih:4BAB9907533F01CEC6277DFD49E89E7F4CCBE413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cris Tales - прекрасная инди-игра, сделанная с бо�
 ```bash
 magnet:?xt=urn:btih:5092A9A676B3B3C0321BA13FEC2223D802DEBDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Cub (2024) [Ru] (19.01.2024) Unofficial Team RIG [Русификатор]
 ```bash
 magnet:?xt=urn:btih:29E75903EBB877A953D6F96DA5EC55C1E32988C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hidden Object Chronicles: Poisoned Truth (2024) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:9FD4B562F908F4F2E131A8A27983C14048363E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

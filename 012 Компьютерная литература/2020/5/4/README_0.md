@@ -19,8 +19,7 @@ Android для начинающих проведет вас через проц�
 ```bash
 magnet:?xt=urn:btih:2214D901B94186829782C8A7DD34F1ED14C97220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Black Dog Media Ltd. | Photoshop for Beginners / Photoshop для начинаю
 ```bash
 magnet:?xt=urn:btih:3C411942F8E383A1093C2DAFD0CE33AF62710369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Go упрощает построение простых, надежных и э�
 ```bash
 magnet:?xt=urn:btih:838AF6BA74BCE81BF736FF9D1E0C43671CA06DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```bash
 magnet:?xt=urn:btih:4E0CFC76D7D76404D3ABAB93DE4094147F6BECEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ VivaCut - видеоредактор для Android. Создавайте вид
 ```bash
 magnet:?xt=urn:btih:8B0F1A2B75AE552F7B7F0C8D8CF8619376B9917F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

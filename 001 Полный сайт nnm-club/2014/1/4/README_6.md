@@ -18,8 +18,7 @@ AIDA64 (бывший Everest) - утилита является мощным с�
 ```bash
 magnet:?xt=urn:btih:7C783935D799FF4AE3A9FA0B509645965525D30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Toxic Toolkit Singles - Night To Remember - Новое поколение нас
 ```bash
 magnet:?xt=urn:btih:CB23A93E2A33F0C340F1A06C540D1F95FEE02A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Toxic Toolkit Singles - Sliding Styles - Новое поколение наст�
 ```bash
 magnet:?xt=urn:btih:7154C846E05ACA45BA8AD2A3C82799B78058A421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Masters Of Hardcore Radio Top 100 Of 2013 (Unmixed) (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:3AD077D7D5E9CEEC56DB124CFF20F3D2789EE56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Emsisoft Emergency Kit содержит набор бесплатных прог
 ```bash
 magnet:?xt=urn:btih:6344C3EBE4CC78C49CA987E271ACB5D5182A1EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49CA67D3D036E0B817A3D2D7B9B7D0DAAEB393E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ Paul McCartney - Band on the Run, McCartney & McCartney II (1970-1980) Hi-Res Di
 ```bash
 magnet:?xt=urn:btih:650734D0A027CB39D1E3467ECB272328E5D3392E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FD1672075B750F810C58BDF86E7E0F9667DF548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF9C779215BA84230B0D21B8F6DB53A96262C8E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:054BD94F0A9F9FA9E103908D6C6D875682409152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Toxic Toolkit Singles - Star Studded - Новое поколение настр�
 ```bash
 magnet:?xt=urn:btih:99CCED05AA3ADE59248046344F6777E49F5E83D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FEF55FEE62B31168F95417A858A9C0584B6DA1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF47AC8AC5E916F448C294C981310055BBE5C84E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43FDD8ED5A8640AA1C1A6F5924215BED932F4D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AABAD843CA2C44CA938BD224FEEB24F380D834EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ J.River Media Center - комфортный по функционалу муль
 ```bash
 magnet:?xt=urn:btih:0D48BB54BD9EF0748AB0F31BF5511D6FC6DD0CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63BD4D7119E9610EDEF628BD4D2D200F823B6D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB36BC97FD63313523B721FC480AAA9CCA4EC998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ Reflector 1.6.2 [En]
 ```bash
 magnet:?xt=urn:btih:22CAB94AF37A1B442DEC274B1567FC355E9E3ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Platinum Hide IP - программа, предназначенная для с�
 ```bash
 magnet:?xt=urn:btih:F50AC2DCE3C5697A58E4D49E10DD92483F5E32BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ Palm Heroes 2 - олдскульная пошаговая стратегия с 
 ```bash
 magnet:?xt=urn:btih:976AE62DE43B5E04A25775A4322F635C80386220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ Gunpoint (2013) [En] (Upd3/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:673F929ADDC43CCEB0B49B0973508668CCD070CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - EPILOGUE (2013) [Ru] (1.0) Mod/RePack Kpla
 ```bash
 magnet:?xt=urn:btih:9192A016FBA459573F3F3CF0A8BF6DE1BEA562F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCE84FC100BECC61F6832A5F34C5D663A6EDC06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

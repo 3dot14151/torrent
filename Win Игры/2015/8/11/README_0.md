@@ -19,8 +19,7 @@ Mystery Trackers 9 : Winterpoint Tragedy (2015) [En] Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:C3BA19A8734A450B8A970DFFA475E479F6B85207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Project CARS - это потрясающее гоночное путешеств
 ```bash
 magnet:?xt=urn:btih:BB2D8413BD8C0D20BDDB5F4D3D41D44526A8768E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

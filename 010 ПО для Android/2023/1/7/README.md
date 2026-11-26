@@ -19,8 +19,7 @@ Nomad Sculpt v1.70 [En]
 ```bash
 magnet:?xt=urn:btih:F04C036D3863135FC82E29F36B0B26653AE47A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

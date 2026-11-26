@@ -22,8 +22,7 @@ Kassad - London Orbital (2020) [FLAC|Lossless|Web-DL|tracks] <Post Black Metal, 
 ```bash
 magnet:?xt=urn:btih:E98B9C9A7943C4B04D540EFBFF0FFB934798FE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Arborist - Home Burial (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alterna
 ```bash
 magnet:?xt=urn:btih:DE6BAECC863F2318B56156A8C45EAE638E10888F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kassad - Faces Turn Away (2017) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black
 ```bash
 magnet:?xt=urn:btih:BC019C4DFFA278540B6A017C4D32BED9266AB17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FF33F25A1A3D6D26BEA5A30BDDEA329218E4786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ David Grissom - Way Down Deep (2011) [MP3|320 kbps]<Rock, Blues-rock>
 ```bash
 magnet:?xt=urn:btih:098F96650DEBAA5D60DC67C0853163BC5412FB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Jelonek - 2 Albums (2007-2011) [MP3|320 kbps]<Instrumental Progressive Metal / N
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ J. R. Blackmore & Friends - Voices, Part I (2011) [APE|Lossless]<Hard Rock / Har
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

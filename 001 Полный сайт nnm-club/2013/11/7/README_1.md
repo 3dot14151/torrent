@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:713D1034E48DE4AC75FD225710996137DD17BD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Cпектакль посвящен 80-летию революции 1905-1907 г
 ```bash
 magnet:?xt=urn:btih:0CCB0B7F5FEB8AE4DB737ADFC1E961FD057F3310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AB8F185A6D9A1791E0462FB86F404331A0243D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ VA - Самые Горячие Осенние Хиты (2013) [MP3|256-320 кб/
 ```bash
 magnet:?xt=urn:btih:113E975208655E1CDB3A5CE602CB8258ECBC370F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Soul Jazz Unit - Old School Recipes (2013) [MP3|320 кб/с]<Broken Beat, Nu Jaz
 ```bash
 magnet:?xt=urn:btih:0B0284A5357786D60BA60190B536348114C8965D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:95DB0E1AF831B2E4F501B77E6057AB9CF1FF3C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Myths of the World 2: Stolen Spring Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:6F7B4E0493AAE3FBD02810B0CB5CCC153CF2CA0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2110833B015C91BD9CE91AF46DEB8B70638DF36D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44F548D85020DCCF351459EEB576E911713874C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:529EC5951B7142E49150466B5D590C0E47976636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ VA - Concert For George (2003) [FLAC|Lossless]<Rock, Folk, World, & Country>
 ```bash
 magnet:?xt=urn:btih:0EE8731781169BBBBDCD51E8A4AB45BFA13C8DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ VA - Блатные песни в стиле радио Шансон (2013) [MP3
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ Wallpapers - Обои разное 31. [JPEG]
 ```bash
 magnet:?xt=urn:btih:19816753125DFD2D0265BD865D2892DB25DCA652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ AX64 Time Machine является удобным и надежным прило
 ```bash
 magnet:?xt=urn:btih:9DF6824F7B1FB6D35986035601C74D1BF839C5FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D116E32C08DCC23F894C019F72D7E1989AE0AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:470F07460B07FC07407DD2496A5328762CAE3C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Wallpapers - Обои разное 32. [JPEG]
 ```bash
 magnet:?xt=urn:btih:D1B623BBB89DF36FF2E9E5DEFCE6DB06C30483F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ Wallpapers - Обои разное 30. [JPEG]
 ```bash
 magnet:?xt=urn:btih:0E641A8AEC9702D0BC1F635FA2D13D7F2C41A650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:995CDD88F5F43D582C617A98B2A5CB7B49C15C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ VA - NRJ Party Hits 2013 (2013) [FLAC|Lossless|WEB-DL]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:0CB8B2974EA81F696FC7010AC4B4BD13300DC199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E11E985256298CCBF77521AC91ABD26130937584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ History Channel: Ледовый путь дальнобойщиков  / Ice Roa
 ```bash
 magnet:?xt=urn:btih:46FAD013D40454FC7A920FD6ABA80C04DCBC409F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ VA - George Martin: In My Life (1998) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:8D96227BA92A9887AC6E952730DD01E8F3DDA77B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +723,7 @@ Elan - Kamikadze Lover & Nightshift (1982, 1984) 2CD Limited Edition /2006, Musi
 ```bash
 magnet:?xt=urn:btih:08C3114588E096641CC718E5FBE6906538ABE850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

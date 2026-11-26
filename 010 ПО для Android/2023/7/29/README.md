@@ -19,8 +19,7 @@ FamilyGo — это GPS локатор, который позволит найт
 ```bash
 magnet:?xt=urn:btih:09ACF1FB6149597F0983A30EAD2061F55B0C7547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ izi.TRAVEL v7.2.1.510 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B8C5D5F1E264360A0B152407E229E65D70C8D65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Persona - твоя новая селфи-камера на каждый день
 ```bash
 magnet:?xt=urn:btih:EAE0683A5C6419BE9FC6D3B7CE51A164F8CEB78E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SnapTube - YouTube Downloader HD Video v7.05.1.7051601 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FAB7091F863422F6D229862C0F854879BA3CE7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

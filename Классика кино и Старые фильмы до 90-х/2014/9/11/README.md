@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7A781BE41E03874B4C0131BBFC62B8311E8BBC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ DVD rip сделан с диска, предоставленного самим 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

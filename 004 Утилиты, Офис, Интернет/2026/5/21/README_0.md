@@ -21,8 +21,7 @@ UPDF — это современный PDF-редактор с поддержк�
 ```bash
 magnet:?xt=urn:btih:D8AE3F942B3288E55F9600430A5E65544F7211ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AnyDesk 9.7.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5941349288E78808238C6674E5D2FE1EEEE31BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:B08E18273CC6E643A2BD199CA31E9F91D0285BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ DNS Changer 2.3.6 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:814CDDC5F3F9EC3C034F7EF2E11584D4565F1C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ YogaDNS автоматически перехватывает DNS-запросы
 ```bash
 magnet:?xt=urn:btih:5646E1D052D409D03CF29477CB3D37B5157EB35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Unicodia — это энциклопедия символов Unicode с отк�
 ```bash
 magnet:?xt=urn:btih:49791DB67DA02C98CCE012D0EA28E04B52CD329C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ AntiPlagiarism.NET - инструмент, позволяющий исследо
 ```bash
 magnet:?xt=urn:btih:F9CA9EACD190BA950075506F56ED1D8950D642A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Microsoft Office 2016-2024 хорошо демонстрирует, как се�
 ```bash
 magnet:?xt=urn:btih:7DC17E753AB40A765B3B40D8451C6687FB3702CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Vivaldi 8.0.4033.26 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:15F8F9D8578EBC06B7AF2AB5307AE8BB10891775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:018D9D87D9800A46DA7F190DDBB1A8E5DD8D3E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ BUtil 2026.05.21 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3126C097E25E66BCEBD6E834A1F6A9998A4D1DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:9D6E89A7D49A4306DC01540D68BB3D8DEAEA0012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ FolderSizes Enterprise 10.1.54 [En]
 ```bash
 magnet:?xt=urn:btih:D4962323108762B5CC2AEAFE2B82BE1B8B7713FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ USB Safely Remove 7.4.1.1336 RePack (& Portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F5D556B8867B5ADA9DD4EF59EB528364BE0FE239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:3A5DC04D3DBC4649F91B79CCBF10037293429DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:48B23D47D01FFF38F6D1ED7F7A289F70E8865C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:15B8DD267C5638BC80E0996038E6C3202A88403F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:2BA5AF45BD002CBEB0D7FF533866AE32653D8D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:374F75E16C2D4A8C8C24965AFEF38F2EF8B2CEE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ Screenpresso - легкий в использовании инструмент �
 ```bash
 magnet:?xt=urn:btih:4469B783FE2D4A18DACAC16AA89CF4D201CF666D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ SmartGit одинаково хорошо подходит как новичка�
 ```bash
 magnet:?xt=urn:btih:CFDD8250A7BA6617B8D18AF0734F63C81D81511B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ Rainmeter — это программное обеспечение с откры
 ```bash
 magnet:?xt=urn:btih:AF9918246FED25A08AD90C35C41032BEDDC3A56B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

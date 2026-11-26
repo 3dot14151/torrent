@@ -19,8 +19,7 @@ Any Balance v3.9.808 [Ru/En] - баланс телефона на экране
 ```bash
 magnet:?xt=urn:btih:4003E5C02ECF505A3AAA89DEC2FBC30552A9F019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

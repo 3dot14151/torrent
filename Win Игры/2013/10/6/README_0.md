@@ -19,8 +19,7 @@ Total War: Rome II/2 (2013) (1.3.0 upd3) Patch RELOADED
 ```bash
 magnet:?xt=urn:btih:3FF5C498D8C6CD7550A1F8B152F11574182417B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ironclad Tactics - это динамичная тактическая карто
 ```bash
 magnet:?xt=urn:btih:96A6CA371BD8B10C34E48E0FB4A945E1E10A275F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

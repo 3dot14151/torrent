@@ -19,8 +19,7 @@ Bass Guitar Tutor Pro - приложение, с помощью которого
 ```bash
 magnet:?xt=urn:btih:998691CE5FC0F2F6EC4E9AC1AB745AB538DF972E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

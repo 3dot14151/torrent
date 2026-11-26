@@ -19,8 +19,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.6a/dlc) License GOG [Dress
 ```bash
 magnet:?xt=urn:btih:F5ED5B6E6EA123D0197EE29797F0DB42006E4C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Google | Интернет: возможности, компетенции, бе�
 ```bash
 magnet:?xt=urn:btih:7DF8A276BA10497C033670724B4840320332A7B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Beginning 3D Game Development with Unity превосходно подойдет
 ```bash
 magnet:?xt=urn:btih:8CD70E61A1EB826EEA4CD8BC0050164FD94FB810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

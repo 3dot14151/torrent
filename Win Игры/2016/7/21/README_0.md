@@ -19,8 +19,7 @@ Grow Home - экспериментальная аркада, где вы сыг�
 ```bash
 magnet:?xt=urn:btih:92C940972135F54EE7D0B2289C6198E6A799C589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

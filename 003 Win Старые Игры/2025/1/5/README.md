@@ -19,8 +19,7 @@ Garry's Mod - физическая песочница. В отличие от о
 ```bash
 magnet:?xt=urn:btih:7424F5ABEE071EEB21484241C16CE5A641471532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

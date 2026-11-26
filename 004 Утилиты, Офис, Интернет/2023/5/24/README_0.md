@@ -19,8 +19,7 @@ ShowKeyPlus – утилита, отображающая активационн�
 ```bash
 magnet:?xt=urn:btih:3993A7C0BBD9F880EEB770410EA71154EB8D052A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

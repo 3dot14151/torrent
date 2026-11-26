@@ -19,8 +19,7 @@ Stellar Phoenix Windows Data Recovery Professional - обеспечивает н
 ```bash
 magnet:?xt=urn:btih:0AB0D17E00EFC136B2FA1B4901EE3E5428D3024E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ DomainHostingView 1.82 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:26B7059653F3F9E60578364E3FD0889110C46516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blank And Secure 5.31 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2AD97D70B6B09B514BD656A71617747F92947BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

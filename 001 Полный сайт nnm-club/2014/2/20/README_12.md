@@ -28,8 +28,7 @@ Monte Pittman - The Power of Three (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:098D11ABCDD09A3527A7C0BA7718212F217BD981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Luktpion – сольный downtempo проект из Архангельска
 ```bash
 magnet:?xt=urn:btih:A99001BF74AE38FD53FD7174EFF9704F48C283BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ DJ Nike Twist - TranceWave 083 @ GTI Radio (20.02.2014) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:2523FEFE6BD528BA24CC489FA3C1D5FF4C523B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6559F30F742988895788AAA021E92676459883D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Angelo Krizashi & Aktiverant - Unknown Mission EP (2013) [MP3|320 кб/с]<Dark,
 ```bash
 magnet:?xt=urn:btih:F9E795F04193F60733EB54F88BB75859EDC3909B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ VA - Pleasant House (2014) [MP3|320 кб/с]<House, Tech House, Deep House>
 ```bash
 magnet:?xt=urn:btih:D5FC8808172970BF6CC47FF425A0001B12447D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AF80094EE8187AF5DF1302C3351603D5F87B769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Eldritch - Tasting The Tears (2014) [FLAC|Lossless]<Progressive Metal/Power Meta
 ```bash
 magnet:?xt=urn:btih:DD0BE7229B96CFD2C0F7F1E9AC984CC3EC3380D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Rise Of Avernus - L'appel Du Vide (2013) [FLAC|Lossless]<Progressive/Gothic/Doom
 ```bash
 magnet:?xt=urn:btih:649FF60BF77646EA367A17D5A2BB8A693E37E633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ VA - Big Room Classics Vol. 2 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8D82799EE6A0F5B79CB657EA62E829B685EB4599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF897C025ABC806C0BAB748BC13F39530249DFA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82BDCE3417E2199D1DCE3F3894A7AD997FE77ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ Aetolia - Greed (EP) (2014) [MP3|320 кб/с]<Symphonic Deathcore>
 ```bash
 magnet:?xt=urn:btih:20A825D3116A8CCB6E54B79AA93C90BA18030A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ VA - Island Treasures (Fantastic Lounge & Chill Out Experience) (2014) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:B376BCDE50E2806797D403BEE0ED9900BAF5AE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ Keel Her - Keel Her (2014) [FLAC|Lossless]<Indie Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:55EE85384D7014D2BC0884617C304595796B2460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ VA - Lounge At The Seashore 5 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:CB940620AD924644087ACECCF15A48BAEAC61F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +517,7 @@ VA - Drum and Bass Pro V.29 (2014) [MP3|320 кб/с]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:6EE6411935A7C1FC919414D0FDA65BB5D3031B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +551,7 @@ VA - Drum and Bass Pro V.28 (2014) [MP3|320 кб/с]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:7EC8D30819E0F711983C788DFF1B0357B1C37399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB3C570211033332E9CB26AC4B9CEAE887AA0A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C95B6B196533AC04386330E432D841D798B87905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ DJ Amanda Blaze - Pop That R&B Jams vol 9 (2014) [MP3|192 кб/с]<RnB, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:9952DDA185684AAEF88F65088EBD6897F3790DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1D0B07DC2254D69572679845B5915E44E531F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D622214ABED624F77B542AFDCD916AB3D782F6E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +719,7 @@ VA - Dubai Chillout Music (2014) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:BF4196DF81542AB05B5D97133A1460660DD29E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149C645206E19EAF2E4B65ADBB5B66AC505ED7BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -803,8 +778,7 @@ VA - Human Trance Vol. 7 - Best In Vocal Trance (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5C6934BB5F747A0DA7F7A636198F48B48F342F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

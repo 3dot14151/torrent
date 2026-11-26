@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FFF947F7150675F7FBF70CE860BCD8B1AC28DF0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - VIP Night Dance Зарубежный (2013) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:5234FBF760D281E25649D5C28C128F43DFEDAA78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Drum & Bass On Demand 2 (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:C7E318A10EB291C40C0822E9A06AFBC908705F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Strangeletter - Borrowed Time (2013) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:ED213D85BB0081D8B48E76BAAEBB8D8C0F89920B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58BD98DFE2C8A996687692BE5595C8DACEA93E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D98B0F4464BDE0331799EC96148CF3162B3902D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ VA - Armada Stream 40 - Best Of (2013) [MP3|320 кб/с]<Trance, Progressive Hou
 ```bash
 magnet:?xt=urn:btih:4652558853D3963DAC239251307A3BA48561C0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:722800EE6B69B41ACBD155D1AB6504BA629B3D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ Confide - All Is Calm (2013) [FLAC|Lossless]<Post-Hardcore | Electronic>
 ```bash
 magnet:?xt=urn:btih:313C48027D22EEF149E38ECDDA101F615AD593DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ VA - Vocal Trance - Love Collection (2012) [MP3|320 кб/с]<Trance, Vocal Tranc
 ```bash
 magnet:?xt=urn:btih:BE2DD4EAF1E18249D83D1494A5F325CA81C85CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB082209DC849DE7B9B8FFA55BF3507975F4FF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Gary B - Step Into The Sunshine (2008) [MP3|320 кб/с]<Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:82EBED6A9754035B80907F2A7134FAB82743954F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:CAF7129EEC06CCFD2291A91E84C382D8D0AABC4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:E5C73A35DD759A5CEE82374EB5CDD596A06843CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ Nicolas Dri - 100 Minutes Zen (2013) [MP3|~231-249 кб/с]<New age, Relax, Heal
 ```bash
 magnet:?xt=urn:btih:9FB2BDB320956EB89788B8AFA1CCBA8F03FE9660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AC6E2FD98A1425D76CA5B6F750AC6503A3AFDEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ Erasure - Gaudete (single) (2013) [MP3|320 кб/с]<Synth Pop>
 ```bash
 magnet:?xt=urn:btih:75544EBB74C14321235FD26111F8D32EE2C5F452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E81AC52978931BF34F7B5FCC36E0C927CB3D852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F32C8F752E4D5062734B9002002CE769F2B28160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +576,7 @@ Screenium позволяет сделать съемку экрана на Ма�
 ```bash
 magnet:?xt=urn:btih:0215B29F711325C54DD35205C3A591DA12F54579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ Schubert In Rock - Schubert In Rock (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D0AF71EEB6F88AF081B9C19FC30CF88310D811CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ VA - Andy C: Nightlife 6 (2013) [MP3|320 кб/с]<Drum & Bass | Dubstep>
 ```bash
 magnet:?xt=urn:btih:615C1347E34CF148DB0FA9E20361AB048BEB484C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26E4D844D514AAEB255233D54614DB0BC5ABD5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ Chaise Lounge - 6 Альбомов (1999-2013) [FLAC|Lossless]<Swing, Lounge, Vo
 ```bash
 magnet:?xt=urn:btih:49835E269EE56F3825B0CB7EFB59D6FFDDF28CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54547E3E3AD147599138A8C3390BF6E6590862F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F7469F32D8187AE867DE1320C2C09F1EC4E7B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

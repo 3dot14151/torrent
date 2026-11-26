@@ -27,8 +27,7 @@ Al-Namrood - Kitab Al Awthan (2012) [WavPack|Lossless]<Oriental Black Metal>
 ```bash
 magnet:?xt=urn:btih:1AD4C7081D5873F14ADDC7BC07DFEC58FF1ACB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Tenebris and Ordalium - In War We Trust (2005) Split [FLAC|Lossless]<Melodic Dea
 ```bash
 magnet:?xt=urn:btih:772C7F964673090F52ED941D86A72F262F0BE9B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Riccardo Scaramelli - Thunderproject Vol.I (2013) [MP3|320 кб/с]<Melodic Heav
 ```bash
 magnet:?xt=urn:btih:BB8E47937E3A0B4054EA378ADA65050D2F210E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Andi Deris & Bad Bankers - Million Dollar Haircuts On Ten Cent Heads (2013) [FLA
 ```bash
 magnet:?xt=urn:btih:74B1732A31EF60815574791F8E81942437079377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Barque Of Dante - Lasting Forever (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:0E90049C1EC2B47438AA07BE849C7AFE6B4257E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Darryl Way's Wolf - 3 Albums (1973-1974) Japanese SHM-CD /2008 Remaster [APE|Los
 ```bash
 magnet:?xt=urn:btih:2E2C02E0D32E7AF5A84A3D2631B5B7A32D0FFB16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ In Flames - Whoracle (1997) Japan [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C74BCBA8FE186BCA6EC08285681BDD8885214308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ VA - Classic Rock #180: Ones to Watch (2013) [FLAC|Lossless]<Alternative Rock, H
 ```bash
 magnet:?xt=urn:btih:5F90DC5EB52BDEBA59601BA6CC32162060638127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Majesty - Banners High (2013) Limited Edition [MP3|320 кб/с]<Heavy Metal, Pow
 ```bash
 magnet:?xt=urn:btih:1309E6B466B1154001D058F84A7B483E176EB5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Celldweller - Blackstar Act One: Purified (2013) [MP3|320 кб/с]<Industrial Ro
 ```bash
 magnet:?xt=urn:btih:E85D8087A84C9899DCB914F5CFC19F88786C405D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ VA - Classic Rock Presents: Bag of Bones (2013) [FLAC|Lossless]<Rock, Blues Rock
 ```bash
 magnet:?xt=urn:btih:7ABBC2898A1E73A5CB1196D7162F446598E1DD4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Turmion Katilot - 5 albums + 1 EP + 6 Singles (2003-2013) [MP3|320 кб/с]<Indu
 ```bash
 magnet:?xt=urn:btih:DCEA63C95A22A5F166E316B9351FD5F792C8FC4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99E771D24AB77EAF0D1B1D9BB9FF0942457099E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

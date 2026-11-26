@@ -19,8 +19,7 @@ Busy Bea's Halftime Hustle / Хлопотунья Беатрис {1.08} (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:F2CEB64AF03CC8BFA87CA4906C6C800F642731A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

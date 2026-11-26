@@ -22,8 +22,7 @@ Fates Warning — американская прогрессив-метал-гр�
 ```bash
 magnet:?xt=urn:btih:EE360B4F650911EF05278DCDC972AF6B61C6C93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Be'lakor — австралийская рок-группа, основанна�
 ```bash
 magnet:?xt=urn:btih:0B48558B6935761FFE842C991B28B8A621026BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B2 Поезд (Памяти С. Михоэлса)(   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:4D3BD655533158CC43053476B7C066D12CF2E3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Patephone / Патефон v14.8.2 Mod by OsitKP [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EB71746087A31948252A177389DE8F31E2CB6913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Revo Uninstaller Mobile всегда старается предоставить
 ```bash
 magnet:?xt=urn:btih:41FF1240B133A178A23421457744A93FA0E82E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1660EC5692D6DEDC91BB4583FFB8F023C3C337D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Karing - Утилита прокси с простым и мощным инте�
 ```bash
 magnet:?xt=urn:btih:3E96C2860F1BEC592547B381D866D191935F1495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:89B5FDDEFA50E4CFE7641389279FF03CC89EB318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

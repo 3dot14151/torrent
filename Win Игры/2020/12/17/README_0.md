@@ -19,8 +19,7 @@ DEATH STRANDING (2020) [Ru/Multi] (1.05) License CODEX
 ```bash
 magnet:?xt=urn:btih:CE14E1C837B74FE4A4DAF30F0AB77743FD08042E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
 ```bash
 magnet:?xt=urn:btih:278CAD3BDBCC01208957A69CAB5E418C117D24F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BioShock Infinite (2013) [Ru] (1.0) Unofficial [Русификатор]
 ```bash
 magnet:?xt=urn:btih:497457ACAD67A5355CC7CC313CE0793F6D26E580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.0.1643565/dlc) License GOG [The Complete 
 ```bash
 magnet:?xt=urn:btih:79370CE7EECD7D827200356D64B90FB0178086FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

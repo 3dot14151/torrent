@@ -19,8 +19,7 @@ Cisco Modeling Labs (CML) 2.10 — это флагманская официал�
 ```bash
 magnet:?xt=urn:btih:F1DFC3FA4C0DDCA1062F8145DD2F8E0D00212A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

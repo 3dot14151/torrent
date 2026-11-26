@@ -18,8 +18,7 @@ Nox App Player - мощный эмулятор операционной сист
 ```bash
 magnet:?xt=urn:btih:A0B79A729BCDA5E3C96AB4AD2DA52D1BC072D82B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84FAB2CBED2CF666265742AF428C7A0D6AD13832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EB8A2852C32D2F9108A69463AC6CAF5020F36EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ BBC: Жизнь на земле / Life on Earth (1979) BDRip [H.264/720p-LQ] (Э
 ```bash
 magnet:?xt=urn:btih:2D6848D639A6177B0F4B3F85B2D9B9A6BA8DA112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:722D7B2D6DE9B5A6182788BAD962FCA5AAA16D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Hetman Word Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2607BA6A19DBEB8C30CB72E647517964899BA311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Ramen Daisuki Koizumi-san | Ms. Koizumi Loves Ramen Noodles | Коизуми-с�
 ```bash
 magnet:?xt=urn:btih:C3D35E3AE2EBC8B8F02CD5D050D3BEBDC7716EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61C8EDF566D7ADB57ED3DCBFE887F752B0B7FD13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58824326658DC61C8E7793D7F50D5FCA38CAF853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76F50BB0616E5642C6D568A483ACCB8941731E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ VeraCrypt - бесплатный инструмент для шифровани�
 ```bash
 magnet:?xt=urn:btih:D88FE47DBBF853EBA1CFD2CD525ADFED92ACB2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CC76DDE18BABD964380C54814E493D995739498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44F036C44EFC99731A8291BFE93F88880A4B27C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Krita - является графическим приложением, кото
 ```bash
 magnet:?xt=urn:btih:C1AF896D2622B30543680EDD0EB20EDDEF3C4F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Praetorians (2003) [En] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:C433055671E6515BE3B8AC18F2A1590DCFA6F53F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:05911A90CE8950C2515740E48362F6E8DA509050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Obduction (2016) [Ru/Multi] (1.7.2) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:7DC88347500E2219974392DA1D392997B9F217F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ Total Overdose: A Gunslinger's Tale in Mexico (2005) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:0ADAD0AF984CF00CA73215250EB19F60FE8E05A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ DESPOILER (2018) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C762D09D94CBBE6524273C6CF569C2F29A8CE3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:526FEDF93FF27E6B01F09C1C245E4F3BA9BA7EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ Hakata Tonkotsu Ramens | Тонкоцу рамен из Хакаты [2018, TV, 
 ```bash
 magnet:?xt=urn:btih:0376B45C3A947CEC082CF03B2BA274CA6A682478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +575,7 @@ The Signal From Tölva (2017) [En] (1.0.51) License HI2U
 ```bash
 magnet:?xt=urn:btih:E4F320AD759DB2B740D2AB28944E04F568B43DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ PhotoSpLoad - это мощная программа для захвата из�
 ```bash
 magnet:?xt=urn:btih:6EDEBBD158208D2CD9064C185A74B3A3D9A9C64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +625,7 @@ Debut Video Capture - программа для захвата видео с э�
 ```bash
 magnet:?xt=urn:btih:F23E0F797E6AA4AFBCCC98543EADB15946329A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D54886EDFBA794D1C7DE1A4F109478FEFDA4112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack
 ```bash
 magnet:?xt=urn:btih:7BCA7E98B5923F764497D7E2B7EC6CCABA3A1F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:1C3921455DAD445F75163250473248D2E3372E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70F6097FF1EFF935DEA4E5A66EA3300B8D3E4BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E684EC67203552F4E3912BF2FA7C42A64C5825A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:BD5BFF3A76DE977D09D0299F89C31275BA1A6CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ WSJ прежде всего освещает события в США и меж�
 ```bash
 magnet:?xt=urn:btih:B82676953957604C8D7B55F241D55D39FD5282A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

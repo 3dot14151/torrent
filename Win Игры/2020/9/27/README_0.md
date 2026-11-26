@@ -19,8 +19,7 @@ Grim Tales 19: Heritage (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:401ED0F2360B770B0D720ADFD75F0BFA73EF8096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Tales 18: Edgar Allan Poe's The Devil in the Belfry / Тёмные исто
 ```bash
 magnet:?xt=urn:btih:8BB317B17252802729013661D785DFC6C7CF9F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BPM: Bullets Per Minute (2020) [En] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:CCCFB060122139A4F1C96245F5EA8A6F3AE9D507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ CastleStorm II продолжает tower defense игру CastleStorm, пред
 ```bash
 magnet:?xt=urn:btih:AFEBAF352073F69733B9FFB1A61086C568A094DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ WWE 2K Battlegrounds — новая ошеломительная аркада, �
 ```bash
 magnet:?xt=urn:btih:D016403F90F20A8C096EA72ADF85D1C7E4C2042F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

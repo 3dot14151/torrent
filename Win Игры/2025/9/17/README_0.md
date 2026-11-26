@@ -19,8 +19,7 @@ Cat Quest II – это двухмерный ролевой экшн с откр
 ```bash
 magnet:?xt=urn:btih:1E691E6E6E0DA92DCD83672C07A51256769EE0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0D3442D2FA5CD405119457D482DB9AC7006E7BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:FFF26D05B9A09AD57B26687542C0653A53B1C4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:635AE943BA99E4C080A2CD9A6E58949679FD8396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:645D5042CDBF4E57FFEF8814DD7635FA08A3073B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.9_15:1:60) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2E8D0259196017FDD32B2C0D3FFF171E927854EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Five Nights at Freddy's: Secret of the Mimic - это игра в жанре sur
 ```bash
 magnet:?xt=urn:btih:3DE010C6911D8E44167B10A5EFBD85178D7D01AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Monster Energy Supercross 25 - The Official Video Game представляет 
 ```bash
 magnet:?xt=urn:btih:B255813F609CB391FCD1C8C574D722869B8DA15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ JETRUNNER (2025) [Ru/Multi] (1.0.4/dlc) Repack Let'sРlay [Founders Edition]
 ```bash
 magnet:?xt=urn:btih:637CFDCFA657EA446E3CBE7643D2168342EA6116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:1ABA0B86C5EEA37384E7F30513BF389468327746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:6C13C9ADC50015E41983227235D2A7BBFEAF8ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Hordes of Hel - захватывающая игра-рогалик на выжи
 ```bash
 magnet:?xt=urn:btih:A9AC4E01564E85BEA69BC94494A01C720C3BAE5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack FitGirl [Total Conflict E
 ```bash
 magnet:?xt=urn:btih:A8D28CB7C6D48828840262318743A7CCAE5BB1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ X4: Foundations - долгожданное продолжение успешно
 ```bash
 magnet:?xt=urn:btih:F6EA63B84CE8FED2A2766C3E32677E42D05F0F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Cat Quest - замуррчательная РПГ, чье действие пр�
 ```bash
 magnet:?xt=urn:btih:A9350F22F508A0177B6ABBF2FFA05120243ECD95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ RoadCraft (2025) [Ru/Multi] (4.0/dlc) Repack seleZen [Rebuild Edition]
 ```bash
 magnet:?xt=urn:btih:01FAEACB0C5FF97765523C3958138702702F4948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

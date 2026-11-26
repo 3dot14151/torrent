@@ -22,8 +22,7 @@ CD1 - Original Mix:
 ```bash
 magnet:?xt=urn:btih:4755DF641BBF27CE2C044BDA9FC4C338F6137F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24F8BAC352A0CD436B0C8176B3A8809FDCA5B8A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stanley Simmons - Dancing While The World Is Ending (2026) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:0D5A27FDBE08D586A374F2CF8D6E0DAC5E3DC088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

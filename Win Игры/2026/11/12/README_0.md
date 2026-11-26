@@ -19,8 +19,7 @@ The Rusted - атмосферный 2D экшен-платформер, дейс
 ```bash
 magnet:?xt=urn:btih:B3010BFE79E292475D636871BA30353B86F39BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hazard Levels - кооперативный survivаl horror для одного�
 ```bash
 magnet:?xt=urn:btih:2175AFE47D2AA7548E0B1022D1325D4A0ABA0D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wall World Strategy - это захватывающий симулятор ко�
 ```bash
 magnet:?xt=urn:btih:2A06131B69BBC9952F560E9330FE364ACD380095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Icebound Secrets 4: House of Memories / Тайны ледяного мира 4: 
 ```bash
 magnet:?xt=urn:btih:9C4E286B9E59FFD25B67DA028E8B82CA34A59DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Void Reaver - это захватывающий научно-фантастич�
 ```bash
 magnet:?xt=urn:btih:205C1F16DE97EB7D4CE9BA04C0E08372512B4470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Knights of Honor 2: Sovereign – стратегия в реальном вре�
 ```bash
 magnet:?xt=urn:btih:ED21353DC0521BB4FC1843DCB76CB2F994A931FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Revenge of the Mage (2026) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8503A426B11BDD759B21441281A1FA90DC71610D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Warhammer Survivors - динамичный рогалик-экшен в духе
 ```bash
 magnet:?xt=urn:btih:62FB8A1DE8BC1A496D4520EE544EA162E3A792AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Gears of War: E‑Day - это приквел культовой серии, �
 ```bash
 magnet:?xt=urn:btih:D3E750C5BC611170DE4A6359D4B044AF2DE97B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ EA SPORTS FC 27 дарит ещё больше свободы в каждом р
 ```bash
 magnet:?xt=urn:btih:6CA3C9CAE58D0BA9F32BB3EB2DCACE50C934E5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ DreamWorks Shrek 2 Remastered - обновлённая версия культо
 ```bash
 magnet:?xt=urn:btih:6563D3732C0EFB9075F1D8E1BAB167D720A61B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Ashes of the Singularity II - масштабная стратегия в реа�
 ```bash
 magnet:?xt=urn:btih:B0D998C280FD2E7DE9EE3D9823346515ADEA464A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ HYPNOS - это сюрреалистическое приключение от �
 ```bash
 magnet:?xt=urn:btih:ABC194CC58EA7709530C4CD25008046E1086A240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ DreamWorks Shrek 2 Remastered - обновлённая версия культо
 ```bash
 magnet:?xt=urn:btih:D6094F9C6FE6AD56858DE05DA093AF54D0A57C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Beyond These Stars - это градостроительный симулят�
 ```bash
 magnet:?xt=urn:btih:709028C51644C3C1CE11BDB717E3EBBC7CA51B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

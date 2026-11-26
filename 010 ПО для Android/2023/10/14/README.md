@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4122EE57CD8C7C27B47F56A422A717A5650E9151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:1B09A038F29DB420B6255FF3C7985B90FB00CF98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

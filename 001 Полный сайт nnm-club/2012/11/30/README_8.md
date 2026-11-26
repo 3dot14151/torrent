@@ -22,8 +22,7 @@ Imprecation - Unexpected Fate (2012) Demo [FLAC|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Nature Wallpapers (28.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:F7B401BE6C2F8458EE09DFD081CD415B07431CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Desktop Wallpapers (28.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:BE5F074179AC74E9832568EE767D17D926F35E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Nature Wallpapers (29.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:22A6E807C9C7E83DEF942F16FA330E22334F29EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Best HD Wallpapers Pack (28.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:BE702655AF9FBD330CFFC28FF9434B83593FFEC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Squirrel Wallpapers (28.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:36407FF59F98E95D49CCE74377E8DB18F9329A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51E62141D7261E1FC93FF6514393961AC608409A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Heike Becker - Drive On EP (2011) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:33D3DF6CF3F4582C8B2E4313BC8AFE6CDCDCB32A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67586E7BF377CA273E92A2038F3D422B45516DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:454D74BEFBCACD73E01F921A1A36046C78E6A1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Best HD Wallpapers Pack (30.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:EA919B85AC593CB98CF67670598C222A7864C8A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Nature Wallpapers (30.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E2E47628455493865C4A1DEFF48AFBDD7F22854E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Cityscapes Wallpapers (28.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:91D2004255E590F53C17291B6ABF25B15DFEEAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87C1501005452BAC0631C11032285C7F2A490DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84FF17D305DDE1BEEF107D4B6BC58F5A7B312BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Dog Wallpapers (28.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:0A94BFC0ED4C7017623CEC9C7ED5F7E012484AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Interior Wallpapers (28.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D151480558C8BA2F0F55652545EA6401F4068B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ Best Resorts Wallpapers (28.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:5329121B63CF1D89D91A8A2D5D66555B2702E8DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ DestroyER - Spirits of Tribes and Machines EP (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:EE38CDFED90C27F661477B738E7BE0E16FBB4EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Best HD Wallpapers Pack (29.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E44B35603DEDC40B660F65B631B7269CD384E780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC6B97777C069506C4E1DE352FB807ECA94E3A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDDE461C6662704711D6FC25A4415E875AD901FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ Dubai Wallpapers (28.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:32D042BFAB317ADBE82AC91CFFB5577B02BEABE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E838F756D9E22E32B393C487F714FE233CC77D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ Illocanblo - Timedat (2012) [MP3|320 кб/с]<Deep House, Dub Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:6AA12C51D625D36008706F0BF9B74D61DA62E869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ CCSWE App Manager - был разработан для пользователе�
 ```bash
 magnet:?xt=urn:btih:18DAD742B78CE97C28F2702293061223DD22D4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DEB52DC283E935ED9A8233DB9FF09255ADCC177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Multi Parallel - приложение, которое позволит вам и
 ```bash
 magnet:?xt=urn:btih:5A181DB037EFE02C55B249930120C0498C27E192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Photomyne — самый быстрый и простой способ оциф�
 ```bash
 magnet:?xt=urn:btih:835DDDC7CB889336298FB1E545500546AF0B5B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Zoetropic - движущееся изображение - утилита для 
 ```bash
 magnet:?xt=urn:btih:9A733B22A22E80FA8B22E6490450524928EAD07A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Litchi for DJI Drones - программное обеспечение для в�
 ```bash
 magnet:?xt=urn:btih:938F04C08DF79D474CF3C83BD2192EA4FDF60C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0847BA6689BD1557947EA33A1003DA63483C257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

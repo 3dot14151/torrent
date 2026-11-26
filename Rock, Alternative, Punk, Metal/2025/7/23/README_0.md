@@ -22,8 +22,7 @@ Mustend - Люболь. Часть первая (2025) [MP3|320 Kbps] <Alternati
 ```bash
 magnet:?xt=urn:btih:CB59DF4BEE35755456498CAC99999616E7B59E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Immortals Fenyx Rising (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.1.0 / DLC
 ```bash
 magnet:?xt=urn:btih:CBC4F9E78B0E37819CD5F28D71619EE355FB1E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Metro Exodus / Метро: Исход (2019) [PS4] [EUR] 5.05 [HEN] [License / 1
 ```bash
 magnet:?xt=urn:btih:92A3D83C40AB9183FE3CF9118339BC0964D83789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C52BB410D9CAA562921DB849B7A33A56C05E764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63D6BBD082C6AED33BC677B44371DC6AB629CF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ OTUS, Наталья Науменко | Супер-интенсив "CI/CD ил�
 ```bash
 magnet:?xt=urn:btih:64F9F1DE6A71010E0A8E212801A6EE30040E8227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6FF261BCB4CD6D400B44D97FA5A5558E7FA803A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ ru_windows_10_enterprise_ltsc_2019_x64_dvd_78e7853a
 ```bash
 magnet:?xt=urn:btih:43BD281A25BC8C18033DD81A33DA6DAB45ABD926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABCDD04536427A3581FC4260918C090E282F7CFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:587F17BE12DD785B78186FC9B85C7268B8F46738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD1CEB994D6B3DA2D0E0D2E733356FEFCB9A8B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Outward – приключенческая РПГ, события которой
 ```bash
 magnet:?xt=urn:btih:EC64485564124A3CB293BF55EE74CBDFCECEC596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Microsoft Toolkit - это набор инструментов для управ
 ```bash
 magnet:?xt=urn:btih:1D1079F124FAB2D27C20019E1235A11FBD461496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Xenonauts: Xenophobia (X-Files) (2014) [Ru] (1.09/2.3.0/1.5) Repack/Mod firstlas
 ```bash
 magnet:?xt=urn:btih:4A4894407907F95FF77E8232B4272365DA27F429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ HITMAN 3 / HITMAN III (2021) [Multi] (3.10.0upd2) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:611331D9FEF24103E4B2FB4CC86234BF9BEEEF5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

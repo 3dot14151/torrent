@@ -19,8 +19,7 @@ Stairs - это атмосферный психологический хорро
 ```bash
 magnet:?xt=urn:btih:8C7F04955B96A0F3C3667FD1CBA41AEC34B5D5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

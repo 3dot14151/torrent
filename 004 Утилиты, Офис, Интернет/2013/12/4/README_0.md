@@ -28,8 +28,7 @@ PDF to DJVU Converter Portable — программа для конвертац�
 ```bash
 magnet:?xt=urn:btih:F6527CAA5E77AE5937756D419F8369B097F185D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

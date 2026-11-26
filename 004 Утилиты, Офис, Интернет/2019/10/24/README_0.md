@@ -20,8 +20,7 @@ Android Data Recovery  совместима с Android 2.3 и другими б�
 ```bash
 magnet:?xt=urn:btih:BA60ED586FEE60FBC5B0DA736C07B8D475FD35BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:EC74F2865B6B63A5200868626A269E7C96E8DE41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

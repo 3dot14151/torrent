@@ -19,8 +19,7 @@ Dead Rising 4 (2017) [Ru/Multi] (1.0/upd4/dlc) R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:E1520C9306AEF975B431C72552C510F0237FCD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ VA - Все Сразу №36 50/50 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:F9FF258594AB13BF31C1009BE5C480616DF4F206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ RC Concepcion дает рекомендации фотографам, котор
 ```bash
 magnet:?xt=urn:btih:2C02A349DC74556C96EB8340DCFCE675589A3919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA845CEDBAFEAE507297B663D0F8A0B9B71D6DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ VA - Sexy Body Dance. Vol.1 (3CD) (2011) [MP3|320 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:5B1FCD60531BAEBA235E5BF4A74530EAB243B382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ STANMARSH / Stan Marsh - Кто-то Должен Сказать (2011)
 ```bash
 magnet:?xt=urn:btih:DEA1B5FFADF4019F40EE5263E2824E9C03D53F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Arman Melies - Casino (2008) [MP3|~187 kbps] <Chanson, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:9D3BAA0716BD750CE9A81994B843B9BBA810FD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ VA - Весенний бум от "Русского радио" (2011) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:72E2C5B03B9DA383FBEC5354829AAA6823C7A86D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Cern - Terminus (2011) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D39433A977DF77AA4F0534EE4660A7475CFCE587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ ND - 10 лет истории (2009) [MP3|256 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:C02CF91D29D9FF2D4AA2C59D738E167D80A59729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ VA - Digital Visions vol.1 (2011)
 ```bash
 magnet:?xt=urn:btih:F069CB757ADE17DE9359153C609EE403E6E2BACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ Satyros - Riven (2011) [MP3|320 kbps]<Black metal>
 ```bash
 magnet:?xt=urn:btih:19DD3DB161F30B20D4C6416D888D2F8A8671EE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ VA - Хитовая весна 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:89E05B062A5373C1A17EAE183B2D926CAAB9F9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +421,7 @@ Eden's Curse - Trinity (2011) [MP3|320 kbps]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:575F94D6E694D2BA238F56C74977A235E4B0C63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ VA - Trance Maniacs Party: Progressive Session #25 (18.03.2011) [MP3|320 kbps]<T
 ```bash
 magnet:?xt=urn:btih:5C6A5B433321D261DB77443116F404BF23C5EEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ RonyaSoft Poster Designer - легкая в использовании прог�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ VA - Лавина хитов Русский (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:70DA8C7A404F48C8ABE5F59848D3FAEACB0C1D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:159A84F5BD9F3F88BA019A58E040B8AF0005C9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ Saliva - Under Your Skin (2011) [MP3|192-320 kbps]<Hard Alt. Metal>
 ```bash
 magnet:?xt=urn:btih:C1ACE93118B85D8E72069A88A13C229C83DCE930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +615,7 @@ Armin van Buuren, Jorn van Deynhoven, Lange - A State of Trance 500 (Live PRE-PA
 ```bash
 magnet:?xt=urn:btih:E1A1F90153FC6B71FDAA5E65DE4C78128496CE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7A51CA995B01B2EE7CF875BC45A1D2158E990C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2B4AE893685ADB443AC4B1A710EC8E8F72468A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ VA - Hardtrance & Dancecore Top 100 (2011) [MP3|320 kbps]<Dance / Hardtrance>
 ```bash
 magnet:?xt=urn:btih:47C2F503F55DFE60D27F236D7F4D2ACA8382403D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

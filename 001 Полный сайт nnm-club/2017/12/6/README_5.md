@@ -18,8 +18,7 @@ Far Cry 3 (2012) [Ru/En] (1.05/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:89BC87FDF00A55799BB48F1A0668C213A209E51F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Adobe Illustrator CC 2018 – это принятое в качестве отр
 ```bash
 magnet:?xt=urn:btih:AC4226BA49FA19F1BC806765C1E446291F4D4244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Guitar Pro - лучший редактор табулатур с реалист�
 ```bash
 magnet:?xt=urn:btih:BC700ECF6575B623F4F3BF2AE033047564CA5DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CC6002C1C3F5F4AA3D5E92E95781971F90E7314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

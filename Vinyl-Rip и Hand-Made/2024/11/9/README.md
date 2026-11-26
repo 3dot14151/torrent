@@ -22,8 +22,7 @@ Charlotte Wessels (ex-Delain) - Studio Albums (3 releases) (2021-2024) hand made
 ```bash
 magnet:?xt=urn:btih:A4FBC966A24D92838D548AB9ED4C5824E8971222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Delain — нидерландская группа, исполняющая му�
 ```bash
 magnet:?xt=urn:btih:1FBC5BC3AC9D0E497883D3A3F4BE7C621DB8C686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Depressive Witches - Studio Albums (3 releases) (2021-2024) hand made [restored,
 ```bash
 magnet:?xt=urn:btih:18795B0E9A75DA019FE904BCA4104F41352A33F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Paragon — немецкая метал-группа из Гамбурга, иг
 ```bash
 magnet:?xt=urn:btih:290C6BEDC1568C3E6DF61492DB572AFBEFA44F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

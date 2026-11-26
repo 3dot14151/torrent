@@ -22,8 +22,7 @@ Joe Satriani - Original Album Classic (1986 - 1998) 5CD Box set, 2008, Epic [FLA
 ```bash
 magnet:?xt=urn:btih:A1604A9717B7EACEF918DF96B62F7F8A44909548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) 1990, Polydor [F
 ```bash
 magnet:?xt=urn:btih:30278A4A5C4EA9C1C73628131A55989A13E14F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

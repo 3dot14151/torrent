@@ -28,8 +28,7 @@ The Souldiers - These Times (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:0E5A114702E0A7A643753FECE586A27A163F9503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Random Hand - Seething is Believing (2011) [MP3|320 kbps]<Ska-core>
 ```bash
 magnet:?xt=urn:btih:E089C74602E6D42AEF733435AFC607BE026BBD79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Battle Beast - Steel (2011) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ VA - Yesterdays Gold - Golden Oldies (1987) 5x5CD Box Set [MP3|320 kbps]<Rock �
 ```bash
 magnet:?xt=urn:btih:CB4E4BFD15B87035ADB1CB54FF1B3BE903C2E0A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

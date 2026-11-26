@@ -19,8 +19,7 @@ Giants: Citizen Kabuto (2000) [Multi] (1.400) License GOG
 ```bash
 magnet:?xt=urn:btih:ECB0885DE18EA52B651B17AED951671DE9FC7B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

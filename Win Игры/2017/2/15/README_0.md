@@ -20,8 +20,7 @@ Dear Esther — это удивительный мир Внешних Гебри
 ```bash
 magnet:?xt=urn:btih:31E8CB3B244746577FDE8E94A77BBAF42894736B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ClusterTruck (2016) [En] (1.1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A7849A8727DFB2F19586E0069E958BE6F1898DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Holy Potatoes! A Weapon Shop?! (2015) [En/Jp] (1.0.8.9828/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:88266F756133BCF33321386B0D5336BA0F074125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Halfway — это пошаговая RPG стратегия, события к�
 ```bash
 magnet:?xt=urn:btih:7976920D58344534D99FC18B8233A4A654D17B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Dear Esther: Landmark Edition - улучшенная версии популяр
 ```bash
 magnet:?xt=urn:btih:BC20C9DF4DDB6EE9707829A533B8BACFADFFF706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8F9F86344359CEFC54CFCCFAC3F84A987C4377D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ MX Nitro (2017) [Ru/Multi] (5.4.4.14695) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:9226CB01989E3880888021565ADEDE179FF6BD23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

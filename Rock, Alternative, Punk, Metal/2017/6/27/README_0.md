@@ -22,8 +22,7 @@ Zingale - Peace (1977) 2015, Belle Antique [FLAC|Lossless|image + .cue] <Progres
 ```bash
 magnet:?xt=urn:btih:B7502B97F12AFE2491E2D64794CE81CD27BE4E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Guy Clark - My Favorite Picture Of You (2013) [MP3|320 кб/с]<Folk, Country>
 ```bash
 magnet:?xt=urn:btih:832892C83319B2A994AAFEE0A0CC7487B3747FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Ad Brown - Something For The Pain (2013) [MP3|256 кб/с]<Trance, Progressive H
 ```bash
 magnet:?xt=urn:btih:C7011A6DBA835733A40BA85B6E8F364876CB41C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Doxa - Delenda Est Carthago (2013) [MP3|320 кб/с]<Power Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:31C39E58845AFA51072D69FF27A7CD2AF7917C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Montany - Biogenetic (2013) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:B53A5F65FB1E9A4346BB7778E011FD60EF80351A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Zoltar Speaks - Save As I Save (2013) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6C55F64ED731CD816C7A4BF61CB550B2352522B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Mellow Candle - Swaddling Songs (1972) Remaster 2004[MP3|320 кб/с]<Folk-rock>
 ```bash
 magnet:?xt=urn:btih:2FC8A0CCDCE5B423ABC8EE783F1B49028323A498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9F5A65A9405D1A880B17D3E783FE885A526485E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4CB52A8F064215C89241A19223CDA526FA4EC9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ Roxster - Influence (2013) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:3E4F16C889509D1AE54C5277FECBFB5057A8AFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +314,7 @@ Andersen, Laine, Readman - Three (2006) [MP3|320 кб/с]<Hard Rock/Progressive 
 ```bash
 magnet:?xt=urn:btih:7F03243AC56BA46F2663EDA3DA9F9E3331F7F11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85BADD567E64123E3220BB8023D0BD297A8BD313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ PelleK - Christmas With PelleK (2013) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:42239FA7AC2137433BB47BD18EF582510D5BE099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +406,7 @@ Sergeant Steel - Men On A Mission (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D8AE970C67CC9DF971A58BADCA158DD491122235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +440,7 @@ Clive Nolan - Alchemy (2013) [MP3|320 кб/с]<Progressive Rock, Musical, Rock O
 ```bash
 magnet:?xt=urn:btih:84134F444302309348AF4A99FB991FC6135AB7C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +474,7 @@ VA - Suanda History (Mixed By Roman Messer) (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F37B6695649C9D3D4E136295130D0A984DE73709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +505,7 @@ Nü Tao - Gaialaxia (2011) [FLAC|Lossless|WEB-DL]<Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:A0A66ED96FF968DEEC43D3E4D4DCEAFB44DCF3B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +538,7 @@ Bionic Cavemen - Predator (2013) [MP3|320 кб/с]<Hard Rock | Heavy Psych | Blu
 ```bash
 magnet:?xt=urn:btih:474F5838F872A5FAD5F75422C3C29A3866F93EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +572,7 @@ The Sunny Cowgirls - What We Do (2013) [FLAC|Lossless]<Country>
 ```bash
 magnet:?xt=urn:btih:8D218FB1BFE0C476B39C8E00CB7B73F455103119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:512F069048B39D419C12DD53B50A8D774AE61EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:816F9C4131519718C68516D625147888ADD12FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +655,7 @@ Robert Pehrsson’s Humbucker - Humbucker (2013) [MP3|320 кб/с]<Classic Rock,
 ```bash
 magnet:?xt=urn:btih:DE11B3BCC3D181576F605AC9E1149E205D11D014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21600DB091F713AB73A1F76CD53B8FBC4E2115CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:152FC7F545164F8B1D2807B544D726AC316ABC14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65B7D4746696ACB487B4A9899354BD5E68F1805C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +757,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7691053D4F463F7239E5C11DCA0B932D4A219C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -816,8 +791,7 @@ Almah - Unfold (2013) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:6DE29B794A9E082768A3E63131C9F312893B3135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

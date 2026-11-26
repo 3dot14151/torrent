@@ -22,8 +22,7 @@ Kreator - Endorama (1999) 2CD, Ultimate Edition, Remastered, 2021, AFM Records [
 ```bash
 magnet:?xt=urn:btih:D2C9CEB8B2364B11FAA1BE8DE257786C1FA1E154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Monuments - In Stasis (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Djent, Math Metal, 
 ```bash
 magnet:?xt=urn:btih:46DB3391AE6EC071CC5C4BD001A45D0285F922F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Saints 'n' Sinners - Rise Of the Alchemist (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:39DB78D5F8E4E4CB2399BD6DD3890736FBFA528B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Chronomaster Project - The Android Messiah (2022) [MP3|320 Kbps] <Melodic Pr
 ```bash
 magnet:?xt=urn:btih:BA04C56C330ACE368054B76C4E48EDC839E75480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Circle Of Friends - The Garden (2022) [FLAC|Lossless|image + .cue] <Melodic Hard
 ```bash
 magnet:?xt=urn:btih:A3344E34969399F2AE5B5B989A9BE8881F2D2B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Shaman - Rescue (2022) [MP3|320 Kbps] <Progressive, Power Metal>
 ```bash
 magnet:?xt=urn:btih:D822FB518E74412B62549F0F9EE9126AC78DF449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sellout - Панк-рок! Да погромче! (2022) EP [MP3|320 Kbps] <Punk
 ```bash
 magnet:?xt=urn:btih:C5B8EA5965C8559BFA92CA4C633C5D753D45EED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Michael Lee Aday (27.09.1947 - 20.01.2022), более известный как
 ```bash
 magnet:?xt=urn:btih:A14E036D67A653E90B645CF324CF3432A76EDFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Suzi Quatro - The Rock Box 1973 - 1979 (2022) 7CD [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:9E14FB829DDACE9F8C34318DA1D7AA6729C16B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

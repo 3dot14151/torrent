@@ -22,8 +22,7 @@ The Wake Woods - Get Outta My Way (2015) [FLAC|Lossless|image + .cue] <Blues Roc
 ```bash
 magnet:?xt=urn:btih:0EE6918ADB11CBA501CA34CFA45DBB7238E4B35B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Spartan / Спартанцы. Легион 3 (2004) [Ru] (1.017) License
 ```bash
 magnet:?xt=urn:btih:E6139E2A7AAC6AB5A42030720C19EFEA9317EABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

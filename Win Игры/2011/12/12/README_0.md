@@ -19,8 +19,7 @@ Worms Crazy Golf – новая игра в серии Worms. На этот ра
 ```bash
 magnet:?xt=urn:btih:B16DF5CE9D1C1686FFE9483ACBBFCA807587C2E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Island: Castaway 2 / Остров. Затерянные в океане 2 (P
 ```bash
 magnet:?xt=urn:btih:C004278B63B46A2551EC9C2205D03422C2C85FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

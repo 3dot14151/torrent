@@ -19,8 +19,7 @@ Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:5229224C856971504507DB44B3B63871D46C71DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

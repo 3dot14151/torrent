@@ -20,8 +20,7 @@ Rise of Venice (2013) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:856700DCCFDF117E2D974D12850168AD0EB80EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Power Data Recovery - отличное средство для восстано�
 ```bash
 magnet:?xt=urn:btih:760DA173431EF08E4551A4985D27F881C2B424AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C343D4E9ADBCC47D15D93B6FD6BEB3C809543BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D481F1E29CBD2250EDD17E7F7AC736A7904C896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Dune Anthology (1992-2001) [Ru/En] Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:E27F8CCAB6C5885C332E715ADA426DEE2374F9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27BF7AA4538E95A512C06A92CB90A18DC2D80BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Street Fighter X Tekken (2012) [Ru/Multi] (1.08/DLC) RePack a1chem1st
 ```bash
 magnet:?xt=urn:btih:06FF08E495CEB17A8680461BCFE9E54FC7E5C632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ The Elder Scrolls V: Skyrim (2011) [Ru/En] (1.9.32.0.8 / 3 DLC) Repack a1chem1st
 ```bash
 magnet:?xt=urn:btih:DEA8F6F238688220DDD56AE6CFFCA41FF2B7A526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ The Elder Scrolls V: Skyrim (2011) [Ru] (1.9.32.0.8 / 3 DLC) Repack a1chem1st [L
 ```bash
 magnet:?xt=urn:btih:0BD3B0BCD29AD00AFA104499C9B724E0B565DFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Adobe Photoshop CC - программа для обработки растров
 ```bash
 magnet:?xt=urn:btih:8152817ABE2D82C896DDCF6C07B9E6D262695AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Kingdoms of Amalur: Reckoning — это динамичные сражения �
 ```bash
 magnet:?xt=urn:btih:ED5DF85759F10C32F8FC21336DC2A8B8C99C75F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AE5F7128C0375720A312EFC12715F8EEB3377CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Adobe Photoshop CC (v14.1.2) RUS/ENG Update 2
 ```bash
 magnet:?xt=urn:btih:3900685D1E5B2928BC56C64EB262C5F33DE38FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Might & Magic: Heroes VI/6 / Меч и магия: Герои 6 (2011) [Ru/En] (
 ```bash
 magnet:?xt=urn:btih:6EF658021361F0C6957B655AEAC2E6E928FAB1F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

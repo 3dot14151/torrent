@@ -19,8 +19,7 @@ Myths of the World 16: Under the Surface (2019) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:27070B4B96B7697E441DF9D654E9DD8D2E61975B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bastion – ролевой боевик, в котором рассказчик 
 ```bash
 magnet:?xt=urn:btih:DF8C990D73DA2E13F8C97815A4E48D8A4FE71389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Re-Legion (2019) [Ru/Multi] (1.3.1.314) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:AF3D737C34DCE9F3D4895B413A8BFBB037A1E373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

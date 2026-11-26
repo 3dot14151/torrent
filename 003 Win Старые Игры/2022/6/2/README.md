@@ -19,8 +19,7 @@ Freedom Fighters (2003) [Ru/En] (1.0.0.4490481) License GOG
 ```bash
 magnet:?xt=urn:btih:E42B1E9443F0791EBC79B180053F8D452BD143E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Tales 7: The House of Others (2017) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:B4F6FC0B3F32CDE6396D088775C23D7642357DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Love Chronicles 6: Deaths Embrace (2017) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:0775219F4952539C0127972B13287561A0D442DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Witches' Legacy 10: Covered By The Night (2017) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:C82EF63B2CDC54487D8C6B073893B16160E8469D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

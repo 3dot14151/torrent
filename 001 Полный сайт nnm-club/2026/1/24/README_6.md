@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7729D3AB735E0E9F0CAE0265F8DABE9D94B1B521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:909EFF4E4A0DF52BB174CD460AED4FF5F1ED2BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:6D087DEE31D0758344D3FEA406CBA9F29E8754A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Zapret GUI 1.60 [Ru]
 ```bash
 magnet:?xt=urn:btih:3107B5FC9C93C81E7DAD6A3F2EEA2EB5554D84AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.13) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F6E5FFA585FB8E101815D05447852A5E6950D011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7290199F1B682D71CE11E10B9F0F8867325D000B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFBA8DD9E370EB63FBC35F80C6D2C830204C1EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:524A1DD889F0118B12E9E6374FDDE01DCF23ECD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:544F79960F3E599B4EA52C8C7A6D6986B8F027F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0960FA41DA12C28960554257397FA636D9242E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56C8EE5B844C5E2B848E3F94465B167E90FC5AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:034AABD4A544F3BB0FDA3EC745A8ED4F136DBDAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ DeadCore Redux (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:306B5BCAB1CD3D2C6486644363F044AEF2B81CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Trigun Stargaze | Триган: Наблюдая за звёздами [2026, TV
 ```bash
 magnet:?xt=urn:btih:93FDE8104B687F62B7C03AFB8590BAB78B6EC2C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Mato Seihei no Slave 2 | Chained Soldier 2 | Раб спецотряда дем�
 ```bash
 magnet:?xt=urn:btih:DB0783A56342089FDE26CE0FDBFB182FB9EA5BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ Omae Gotoki ga Maou ni Kateru to Omou na | Roll Over and Die | Неужели т
 ```bash
 magnet:?xt=urn:btih:6B5B4175A32D82210A56D431F745A315BE79CA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ Dead Account | Мёртвый аккаунт [2026, TV, 1 из 12 эп.] WEBRip 
 ```bash
 magnet:?xt=urn:btih:49F3ABD6CC3D4666896417C604579EF3F356EC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ Animal Shelter 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A9054E3A036CAA91695069AAEFD434766865EFEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ Maou no Musume wa Yasashi Sugiru!! | The Demon King`s Daughter Is Too Kind! | Ma
 ```bash
 magnet:?xt=urn:btih:ED30AE2A1F9697DD55D741141AC103A83EE31887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99B50DA184AFA661AA1ED4BD3C5A4DB59BDCE639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ Tiesto - Prismatic 001 (2026-01-02) [MP3|320 Kbps] <Dance, Electro Pop, Trance>
 ```bash
 magnet:?xt=urn:btih:EAD9FC73130037799B33118DE1657F57ABAD7AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ Shibou Yuugi de Meshi o Kuu. | Playing Death Games to Put Food on the Table | С
 ```bash
 magnet:?xt=urn:btih:07DAF065DBD7E7468CE98529700777F62BE2F804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7F07E30547E4466EC1BDA8802126C3BD05649A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ VA - Tomorrowland Brasil (2025) [MP3|320 Kbps] <Techno, House, Trance>
 ```bash
 magnet:?xt=urn:btih:CB848891D5BCC2889E46C1646635480C1FB085D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

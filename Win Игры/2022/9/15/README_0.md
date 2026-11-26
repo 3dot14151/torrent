@@ -19,8 +19,7 @@ Batman: Летопись Аркхема: Блэкгейт - Эксклюзивн
 ```bash
 magnet:?xt=urn:btih:6A870CB225D96589965240587F5A85E5948721D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (3.0.219.5) License GOG [Legendary Edition]
 ```bash
 magnet:?xt=urn:btih:AE979C6CEFC2B122D1A7B86ABDB015DE2791B707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Caramba Switcher - это новый, понятный автоматическ�
 ```bash
 magnet:?xt=urn:btih:F33E20A5789B37AC159ED5980FA7EFDA8E02A99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mixed In Key 8 v8.5.3 [En]
 ```bash
 magnet:?xt=urn:btih:0CC171A947B2125E7F25E1DFE6F99985E81B8539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Sublime Text не является свободным или открытым п
 ```bash
 magnet:?xt=urn:btih:58B096C7974D3495F7C8489C4B7A46C0CC55A8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43897E30AED7329AC193ECF54B4A721272A6B285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 ```bash
 magnet:?xt=urn:btih:CE58D3F16E57ED84EA526690DB3FC80DB83BC803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D38EEFD87A5F370198B33C0F6264221D4A90390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ VideoHive - Infinity Tool - The Biggest Pack for Video Creators - 23736432 [AEP,
 ```bash
 magnet:?xt=urn:btih:223822E29471CBE85332CDB0DCC45473A351A7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ VideoHive, GraphicRiver, AudioJungle - Envato Bundle 2012 - 50 Premium Items Col
 ```bash
 magnet:?xt=urn:btih:02E3A65E65CA6AC9B54725E8027305E3EBBEF4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E12C5511203D491F6F4159B1D8C917A81488632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Parrot Security OS 4.7 [Хакинг, аудит, безопасность] [amd
 ```bash
 magnet:?xt=urn:btih:1EBCF686EB6F73B9BE6BA6CC83DD1CCAD8F3C450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3560C9136A01B508A4480C407D311118EFEE62B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ VideoHive - Traveler's Sketchbook - Instagram Stories Pack -  24352947 [AEP]
 ```bash
 magnet:?xt=urn:btih:0A3B80E6EA611F122B892D8D796077068A42934D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ PhotoDirector Premium 8.4.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EB71225AF3A8EF3B31F04665C79F1E1F31909113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Illustrator CC – это принятое в качестве отраслев�
 ```bash
 magnet:?xt=urn:btih:4E9B87A947120819937138A26ED076F7ACE58E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4385A75417A4824908275E5926CCB0F6FBC862EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ Foxford | Английский - Стань сильнее. Pre-Intermediate (A2
 ```bash
 magnet:?xt=urn:btih:72AC47441E0A7B2C76F1CB49ECFDE4E4FD3156A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AB0509EBA2B1511FFF74E7B326B2FE5DBB66086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ IT Education Center | Linux для новичков (2018) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:54BBEF7128D313FE0C5DFEE3FDB3CC5ED0CEC996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ Windows 10 Enterprise LTSC 4in1 (x86/x64) by Eagle123 (09.2019) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A2A1CB3C66CE736D06D912F5644BFFFB08A98F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 09.2019
 ```bash
 magnet:?xt=urn:btih:6F7734AD3813FA444EC22E105D64390AA2AB4E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ Adobe Photoshop Lightroom Classic CC 2019 v8.4.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:AF4591471943BE141A12E9E6C0306B25652F267A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +553,7 @@ Acronis True Image — это интегрированный пакет прог
 ```bash
 magnet:?xt=urn:btih:4721EE30E4E3BD1293EAD4F95744494B9A41920F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9B520F1894B9D374E5937AF2CF832F36CEB7E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ Windows 10 Enterprise LTSC 8in1 (x86/x64) +/- Office 2019 by Eagle123 (09.2019) 
 ```bash
 magnet:?xt=urn:btih:F13D26702C93E5D4264B5775E0F0D0D845D3BF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48AF346B27C013000F91E5C73DB831E3DCBBE6A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ PrimoCache - это программное решение для кэширов�
 ```bash
 magnet:?xt=urn:btih:B120F7D97E1E3724B5BA3A2A7C40988FA512101E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

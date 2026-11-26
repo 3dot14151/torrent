@@ -22,8 +22,7 @@ Halestorm - Hello, It's Mz. Hyde [EP] (2012) [MP3|192-320 kbps]<Hard Rock, Post-
 ```bash
 magnet:?xt=urn:btih:9B57FC2901E20C217CC2761175C823005D22E951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Folkearth - Minstrels by the River (2012) [MP3|320 kbps]<Epic Folk, Viking Metal
 ```bash
 magnet:?xt=urn:btih:FABEE105972BF25A14EA4DD7804ABAD3CCC03467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Ecliptica - Journey Saturnine (2012) [FLAC|Lossless]< Melodic Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ The Essential Electric Light Orchestra был первоначально изд�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

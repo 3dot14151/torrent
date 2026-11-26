@@ -21,8 +21,7 @@ Leecher - Slightless (2016) [MP3|320 кб/с] <Gothic Metal, Symphonic>
 ```bash
 magnet:?xt=urn:btih:2B2D3D4A2611C0A2CD5751B2BBB8FF6A4FA2669C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - X-Pollination: Tech House Dance Project (2016) [MP3|320 кб/с] <Techno, T
 ```bash
 magnet:?xt=urn:btih:09E8674B0893947E1D485B64EF7DC728BFB0FD0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Red Lips House: Soulful Female Vocal House Trax from Deep 2 Progressive (20
 ```bash
 magnet:?xt=urn:btih:FD3C68EF50099E148599E2C0351346C34F0596B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ CameraBag Cinema 1.0.500 [En]
 ```bash
 magnet:?xt=urn:btih:FF99345195BD146365627747D9C48BB6B08C9355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Electric for Life - Ibiza (Mixed by Gareth Emery) (2016) [MP3|320 кб/с] 
 ```bash
 magnet:?xt=urn:btih:1B5984BFB249939890011517C4B213B0FB57566B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Martha High - Singing for the Good Times (2016) [MP3|320 кб/с] <Soul, Funk, R
 ```bash
 magnet:?xt=urn:btih:AA08E98E845F086681A8498825DFE2C9DDB9071C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Daybreak Sessions 2016 By Tomorrowland (2016) [MP3|320 кб/с] <House, Tec
 ```bash
 magnet:?xt=urn:btih:4E55517FFE07CC5A0AD94BC294EB6EC2B3896AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Vale Of Pnath - Vale Of Pnath II (2016) [MP3|320 кб/с] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:1B3B7F5078B9DD24E4A13114C2F30337CDD3E14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1E73BC9B587C56929F0078AAC5DB3B8A0A1ECFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ VA - Clubfete 2016.02 - Summer Club & Party Hits (2016) [MP3|256 кб/с] <House
 ```bash
 magnet:?xt=urn:btih:2E89FD3B039511F4DFDC08F552034B0C1E39BDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ ZD Soft Screen Recorder - программа для создания снимк�
 ```bash
 magnet:?xt=urn:btih:8F93D8FEFFCF2BD0E6FBD01877C3549A121BED21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CEA75A8F18F627B3BA246A10D745F4001436A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Nouvelle Phenomene - Glory of Romance (2013) [FLAC|Lossless|tracks] <Electronic,
 ```bash
 magnet:?xt=urn:btih:F350E3D8570405786D8EE6EF70A59BB4A61C4D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03EBD666E51F8319F1DD0358536F6773EFC294C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA0105EB76DA6A648ED52A83E4216A07DF506155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Paris Hilton - Paris (2006) [APE|Lossless|image + .cue] <Pop, R'n'B>
 ```bash
 magnet:?xt=urn:btih:D1708C0BD6D4DF5A8622D365D3CC24266C91E16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Ex_Tension - Le Seuil De Tolerance (2012) M-Tronic [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:2DD1907A2198221E62211AC770EA94EF6EE52599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ TinkerTool System 4 -  утилита для управления скрытым
 ```bash
 magnet:?xt=urn:btih:17868AC3E5F1C8671BB0E6F4E772C3A5EEC1AF41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8CC185CA0F161775BEAEFD7D3098D4211699578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ Spirit Nation - Spirit Nation (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Elect
 ```bash
 magnet:?xt=urn:btih:1CFF7A380E435B36C5D54008BC8E2BFAEFB79097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Nina Simone - I Got Life And Many Others 1959 - 1971 (2000) Star Series, Unoffic
 ```bash
 magnet:?xt=urn:btih:8120BAE3C9235F902EAA429F7C2CEA144C184A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ The Temper Trap - Thick As Thieves (2016) Deluxe Edition [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:ABD169F770826EDFA958391E4C122C4C6CB5965B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8A21C7C409A48B69A9908AD826260F60E9F2987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:341250DC9BB587A94474DA4ED3B505D306C987CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79F0377609A6D5CD8FC8BC925C8A0171EE8EB5A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

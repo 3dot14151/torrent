@@ -19,8 +19,7 @@ Dark Parables 16: Portrait of the Stained Princess / Темные притчи 1
 ```bash
 magnet:?xt=urn:btih:36D1376D0E4D436E60D355BE4D18E4C2DB16D600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Walking Dead: The Telltale Definitive Series содержит все чет�
 ```bash
 magnet:?xt=urn:btih:E4A4E1D19F58FAF26D60D9F7040168420044BA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Transistor - научно-фантастическая игра в жанре Ac
 ```bash
 magnet:?xt=urn:btih:EB5FAB59BA7BB728023A4673223889942F864D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Killsquad (2019) [Ru/En] (0.7.3) Repack Mizantrop1337 [Early Access]
 ```bash
 magnet:?xt=urn:btih:BECDAD023F6F8732807759DADB971678B5E81A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

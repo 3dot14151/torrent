@@ -19,8 +19,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/Multi] (1.5.20/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:2A5A7C5B3BAD151DE2A2D508EF5D7C80A9D8F2AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

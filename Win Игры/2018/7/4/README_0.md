@@ -19,8 +19,7 @@ Milanoir – приключенческий экшен, выполненный �
 ```bash
 magnet:?xt=urn:btih:46CB1970FD24CE9071A5349D24F6E14FF2761F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Millennia - пошаговая стратегическая игра, охват
 ```bash
 magnet:?xt=urn:btih:5C9AF489A555FA0CBAACEA4BD1A8B672D17301AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TankHead - это боевик на выживание в мире разруш�
 ```bash
 magnet:?xt=urn:btih:CDC4CC46BE0243C66660A8BC84FAB8163D0EF7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Endzone 2 бросает вас в самую гущу постапокалип�
 ```bash
 magnet:?xt=urn:btih:C86A5DE4E9319E07FA4CB334D783A25892E99478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:17FA3EEA85D902E9043790E1744BE7A584E1BAD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack R.G. Freedom
 ```bash
 magnet:?xt=urn:btih:A407D6260720C56DB341476D386870EDF8E5F02D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Rise of the Golden Idol (2024) [Ru/Multi] (1.2.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8FE1121A3B4748C7AE6AC0E1CA1EBE8E66FBE63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F177F079281DBD0C85D2422D4B4E98BB1A06CBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0EE127D9740EE4A9EFE767DD97BE36684857665E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.92/dlc) Repack FitGirl [Super
 ```bash
 magnet:?xt=urn:btih:9D3E9F56B2006AD844F2C17A455F6C4D2995B010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 ```bash
 magnet:?xt=urn:btih:DEF8FE633DE36FC6537B9E6736E0690EEA997D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Guardian's Guide (2025) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:348304ED9C9CE1FA3E7DC0A483A65F7E5BF09005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ HELLSEED - это хоррор игра-приключение от первог
 ```bash
 magnet:?xt=urn:btih:4B9A9CF309F9C1E411920F97D68C802F54A147EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.5.55.748x) Repack Let'
 ```bash
 magnet:?xt=urn:btih:15EAF6DB61BF038532D8F60C75639CFA4AFA9B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A185A458EBE0675C89FB057EAA49D112717299DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ The Case of the Golden Idol (2022) [Ru/En] (2.0.5/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DFE11B908F53F75F7697A619D64DC108A3CCF4C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:68CEC7E5F1F939170587AB30809CF5E43150D592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

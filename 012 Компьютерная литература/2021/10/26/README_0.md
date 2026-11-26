@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:C9B7D26873310AD1EA5DF248A316874B3971A1B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F1C674ED5BC2DE440BD96B1C9964F2DF6B62640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Git в настоящее время нужен практически всем 
 ```bash
 magnet:?xt=urn:btih:06BA359EAC24765F5F16800CA10D646E4F127267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

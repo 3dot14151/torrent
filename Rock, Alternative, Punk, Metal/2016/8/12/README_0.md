@@ -19,8 +19,7 @@ Kevin Ayers - The Harvest Years 1969-1974 (2012) 5CD Box Set [WavPack|Lossless|i
 ```bash
 magnet:?xt=urn:btih:5EAA5F5DA3F395BE6EB0E9F3656CC07D132405E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Parish Hall - Skid Row Runner (1970) Reissue, 1996, Audio Archives [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:EF5270C44254DD0F526CB447A0927D9B3453B8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Dave Stewart & Barbara Gaskin - Up From the Dark (1986) [WavPack|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:777BFDF99AF640D69B3E24F589619EF1E2A511C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Sonata Arctica - Closer to an Animal (2016) Single [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:57CAC12AF70464A0B9F63A272E099A910EC4224B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Ocean Jet - The Word Never Dropped (2016) EP [MP3|320 Kbps] <Indie Rock, Electro
 ```bash
 magnet:?xt=urn:btih:AFFD3C4D2EF355D2EC4A0E11534FDEF4860B1711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

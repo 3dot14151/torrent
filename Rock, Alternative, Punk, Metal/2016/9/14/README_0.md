@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E5ADD8E0F8A5BA86B01D7A1412EF1D4D349356F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Zаrра - Disрuеstоs Раrа Аtасаr (2016) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:8ED14C660DC9766395542F27BA3E0A39B8EF9088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Serious Black - Mirrorworld (2016) Limited Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:3D5D63452000544E87724DA9D553ACF85C4ED7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Gloryful - End Of The Night (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Po
 ```bash
 magnet:?xt=urn:btih:A875CBD052C05F76F857763F4BF7823F0315C1C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ines - The Flow (1999) [FLAC|Lossless|image + .cue]<Neo-Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:CE7C19D7942AFC2512FB6543BAB2F5F300B3E660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Lanfear - The Code Inherited (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:A9F99248EA26AA0AEB7DBCEC18F404B347D2D1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Tainted Nation - On The Outside (2016) [FLAC|Lossless|image + .cue] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:AC50ED1A4BB04464CF9E2D5395CAB4B9F95157B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD4 - Dangerous Games (1986)(   Читать дальше...   )Жанр: Hard R
 ```bash
 magnet:?xt=urn:btih:AB03FE49C585F3B8B6B8D59A28682D0A880B1351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Wolf Hoffmann (ex.Accept) - 2 Albums (1997 - 2016) [FLAC|Lossless|image + .cue]<
 ```bash
 magnet:?xt=urn:btih:FF995BE7D9134CF93374467FF4F603DE4C17BD5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

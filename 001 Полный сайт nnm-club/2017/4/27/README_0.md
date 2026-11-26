@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:ECD12143BA81DE052853EE0A42B1E32F976C21C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Музыкальный подарок на Europa Plus. Сборник № 
 ```bash
 magnet:?xt=urn:btih:D6E5BCD7921F6DB3C32322C42A7B56CF1582F760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:0A137881D5B0E6DA752F5DD5F26B07CF06925536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF0D67BA20E464EB7E2BCEEBBA887BC9F2775A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1376B516A262F54897B080FABEBB593BD72D7C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Chick Corea Elektric Band - To The Stars (2004) Par Media Music [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:2D5768A437110CB05089FC67CF0DDF00585E68D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Angelo Debarre & Marius Apostol - Complicite (2013) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:336E1111639D75A095C6B96F881465CCC29210F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - Лучшая дискотека на Europa Plus. Часть № 9 (2017) [
 ```bash
 magnet:?xt=urn:btih:E945C6970CACF095DABDE1579ACE92A07D030E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Audio Record Pro 3.3.6 [En]
 ```bash
 magnet:?xt=urn:btih:E2B8B19EE24EC64A7539BA9B824CCB68A753865F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Red Dawn - Never Say Surrender (1993) [APE|Lossless|image + .cue] <Hard Rock, Me
 ```bash
 magnet:?xt=urn:btih:E3DFF709540326D6764964B198BD38E9C7000EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BA6CCE72825AD60E1771B23C5CFB9BE785877C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ VA - Весенний хит-парад на радио Шансон. Выпус
 ```bash
 magnet:?xt=urn:btih:488805B71BB1832EB006640B035091916DB86695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69A3E5ABA31B50A0FD3F341B7B153D1F3E9501F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Babette - Gypsy (1979) LP [MP3|320 Kbps] <Electronic, Pop, Chanson, Disco>
 ```bash
 magnet:?xt=urn:btih:46F42E489671894D11DC429699D316169B34F8F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68EA7B5EBFE9C7BCD01A99A55E0490A8799894E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Roy Rieck & The Medley Band - Never Trust The Holy Gracious Medley Band (2009) [
 ```bash
 magnet:?xt=urn:btih:AE4CE1B3D9C6F26EE8258FE692D8FBD69438B91F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Sari - The Sweetest Sounds (2017) [FLAC|Lossless|tracks] <Jazz Vocal>
 ```bash
 magnet:?xt=urn:btih:C3DDDEB3EA1CDF170450580DA40C599F04A38CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ VA - Весенний хит русского шансона. Сборник №
 ```bash
 magnet:?xt=urn:btih:59B421C7033DA385DE7A624F015B18CE54803569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Slimjet 14.0.3.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1DF2D9671469E168BBEB947790293FF46E0E2600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ VA - Best-of-ka от радио Шансон выпуск № 2 (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:8410E7A46A7595718A8F0CF9EE27ACCAA759B8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ VA - Club Dance Ambience Vol.106 (2017) [MP3|320 Kbps] <Dance, Club, Club House,
 ```bash
 magnet:?xt=urn:btih:601A2370C877EC17EEFEBB8D90F811E2DE156636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ VA - Fitness Mania: Electro Tech House (2017) [MP3|320 Kbps] <Electro, Tech Hous
 ```bash
 magnet:?xt=urn:btih:C54D3677E43646F18418A4AC10F42ABD512169ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27C1B9B4E601D602A3A47ACECADC5DE27F90F0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Dash - удобное приложение, включающее в себя б�
 ```bash
 magnet:?xt=urn:btih:1A056C5B024EE7B5E3872E45D094A06A97CE5843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE3ADCA119B2DF6EDB921316947074A58C1BACB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ Inboard обеспечивает интуитивный пользователь
 ```bash
 magnet:?xt=urn:btih:6E998A3599F84BFA556C7EA002416834314851E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Quo Vadis - канадская дэт-метал-группа из Монреа�
 ```bash
 magnet:?xt=urn:btih:C12743AAABEAF35762E2EAC29235D96F9FF08C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

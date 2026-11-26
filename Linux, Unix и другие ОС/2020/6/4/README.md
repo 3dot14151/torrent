@@ -19,8 +19,7 @@ BackBox Linux 7 [Аудит безопасности, хакинг] 1xDVD [amd64
 ```bash
 magnet:?xt=urn:btih:240B2F1DE80E3478CA01DEB18DBA7721AE4C5030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

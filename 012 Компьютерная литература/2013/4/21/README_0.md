@@ -19,8 +19,7 @@ Real Retouching A Professional Step-by-Step Guide - От безукоризне�
 ```bash
 magnet:?xt=urn:btih:09982B553A8FDAEF01620C32BF86D4150C85FBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA71A0CB979CBA859C3AE3F7CABAD7ECF1C4045B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

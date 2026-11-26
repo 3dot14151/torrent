@@ -25,8 +25,7 @@ GNU окружение, портированное под Windows и состо�
 ```bash
 magnet:?xt=urn:btih:64D8853D24CCE1ECA83A9811B57C02D3E1139335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

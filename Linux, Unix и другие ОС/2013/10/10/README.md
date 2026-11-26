@@ -23,8 +23,7 @@ Bugtraq II - дистрибутив с широким спектром прим�
 ```bash
 magnet:?xt=urn:btih:D5016044D75D989A57900150474FC84B1A789665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Bugtraq II - дистрибутив с широким спектром прим�
 ```bash
 magnet:?xt=urn:btih:49F9BE3739CB07A3FF72002DB556BCACDC655443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

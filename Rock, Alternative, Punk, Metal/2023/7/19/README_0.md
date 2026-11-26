@@ -22,8 +22,7 @@ Wake - Thought Form Descent (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death M
 ```bash
 magnet:?xt=urn:btih:5EC32E6685D12F6C1EBEAE80E4F4931A311347D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vortesvin - The Beauty of Extinction (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 ```bash
 magnet:?xt=urn:btih:557C7C2DA40754888FDAD63FBDFE57FCA469CA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Wasteland Clan - The End of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic T
 ```bash
 magnet:?xt=urn:btih:9DF0F6A5C55629385D2D7377927A57F2C48FF862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Purtenance - ...to Spread the Flame of Ancients (2015) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:C48405B960C0BA10D08FA4D55200C135E89C7A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Purtenance - The Rot Within Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 ```bash
 magnet:?xt=urn:btih:AA5700127CE8606FCA870295A63E00842B878CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Volcandra - Into the Azure (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black M
 ```bash
 magnet:?xt=urn:btih:6F2179191479EF59B42A9AF9E8E302311A72D1DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Warfare - Respiro Venganza (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:85FC2D880B3F98A7CE15D095B9B10C889496B150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Collapsed Minds - Abyss (2023) [FLAC|Lossless|WEB-DL|tracks] <MDM (Melodic Death
 ```bash
 magnet:?xt=urn:btih:F5503F0E79EC1712D7DC8BB74110384695E9282A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ King Crimson — британская рок-группа, созданная г
 ```bash
 magnet:?xt=urn:btih:0834F46B9DC73EFB380316F52DD5CF63DC802FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Haken - является английской прогрессивной мет�
 ```bash
 magnet:?xt=urn:btih:B15BC4F587F1C50EF116B410C8650E34F3339B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

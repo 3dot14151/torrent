@@ -24,8 +24,7 @@ Broken Sword 3: The Sleeping Dragon / Сломанный меч 3: Спящий 
 ```bash
 magnet:?xt=urn:btih:75DFFB813500031D700BBD7ED6034A57B11FD899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Earthworm Jim 3D [En] (P) 1999
 ```bash
 magnet:?xt=urn:btih:5048065ECCDC89C2BEA78C0AFF28DAE102B2C72E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Mysterious Journey: Schizm / Щизм: Мистическое Путешеств
 ```bash
 magnet:?xt=urn:btih:6BADB7397F2A76DA6C38F6DCFA56C5917FF72C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Tonka Construction это строительный симулятор для д�
 ```bash
 magnet:?xt=urn:btih:A52B1CB3CA42C6528A138A818C0F6ABDD8A1D9E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

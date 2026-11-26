@@ -28,8 +28,7 @@ Driving Force - Death Win Money Sin (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:2E749781626F735F99764A665AC47E0A3C4C6FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -65,8 +64,7 @@ HUMANWINE - 3 альбома (2000-2009) [MP3|320 kbps]<Punk cabaret>
 ```bash
 magnet:?xt=urn:btih:4C744464FAECE0236D713B62474B903BF211744B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Deep Purple - Phoenix Rising (2011) Live [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

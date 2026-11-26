@@ -19,8 +19,7 @@ Photo Sherlock v1.131 Mod by Mixroot  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BB8D937888AB9B1740A1DD06DB006F302AA35336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

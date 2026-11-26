@@ -19,8 +19,7 @@ Relax Night ~ Nature Sounds v5.13.3 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:81B61DC01531CC9F279A00F6A3E01AC3A37495D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 ```bash
 magnet:?xt=urn:btih:B6979B5AFF1EC6BDC22327AFF9A045425A37446C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Listen Audiobook Player v5.1.0 (955) Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:21DCB449B6EBDDBD6FEE232902AD100A2E8BA468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A91CC57EBDF331FCC61627016BAE53E41AE9E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ TrackView - HomeSafe v3.8.27 Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1CF7ED8E20A9FB0040BF223DC5225B58E2617535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

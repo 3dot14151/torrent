@@ -19,8 +19,7 @@ Bluebeard's Castle / Замок Синей Бороды (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:B488496A2319BF27A9710CF2BFFD8BFAE6E75480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Professor Heinz Wolff's Gravity / Профессор Вольф. Ловушки 
 ```bash
 magnet:?xt=urn:btih:CE9BB9F2D8AD03990FCE9BD1689D8C09FE00D730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Princess Isabella 2: Return of the Curse. Collector's Edition / Принцесс
 ```bash
 magnet:?xt=urn:btih:20C8CCAF6BAE6454E1F49A1AD2AF20F38B190C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

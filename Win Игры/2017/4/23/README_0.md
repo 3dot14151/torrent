@@ -19,8 +19,7 @@ Hidden Expedition 12: The Eternal Emperor / Секретная экспедиц�
 ```bash
 magnet:?xt=urn:btih:C3F547690E161C111A4EF3B583EFB28CF3B26A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Quest of the Sorceress / Квест Чародейки (2014) [Ru] (1.0) Unoffic
 ```bash
 magnet:?xt=urn:btih:8CA5E2117B4AB29056E2A12DE191FAAAE95DB4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Saints Row: The Third (2011) [Ru/Multi] (1.0.0.1/dlc) License GOG [The Full Pack
 ```bash
 magnet:?xt=urn:btih:EBB0EB662DA805C2774DD70522EE42CE1FE08D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Halo Wars (2017) [Ru/En] (1.12033.2.0hf) Repack R.G. Revenants [Definitive Editi
 ```bash
 magnet:?xt=urn:btih:AEDB54B86CC891C4F9DD71AC9A6BA4E4E0CF4042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wolfenstein®: The Old Blood – предыстория игры Wolfenstein®: 
 ```bash
 magnet:?xt=urn:btih:ABB018D8A1EEB33B132BDA821A71332FC7A2EFB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

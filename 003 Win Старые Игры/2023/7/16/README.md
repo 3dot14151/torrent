@@ -19,8 +19,7 @@ Comanche 4 представляет собой вертолетный симул
 ```bash
 magnet:?xt=urn:btih:C8CDA0F6E75434BE64342F616717AC69A92E8E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fleet Defender: F-14 Tomcat Simulation, замечательный симуля�
 ```bash
 magnet:?xt=urn:btih:D4D43092AE6CE575DFF98F76836A9FA69B040914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2
 ```bash
 magnet:?xt=urn:btih:199C43CEEAD3427728DFC7A0693A8458B01F4883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

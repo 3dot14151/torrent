@@ -19,8 +19,7 @@ Xenonauts Soviet Edition (2015) [Ru/En] (0.35.1) Repack/Mod AndyFox
 ```bash
 magnet:?xt=urn:btih:8925B6AC3080519C0E3B1F1EC6F018BAC4893AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

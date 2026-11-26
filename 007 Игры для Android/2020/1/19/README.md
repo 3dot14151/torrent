@@ -19,8 +19,7 @@ Game Dev Tycoon - экономический симулятор в которо�
 ```bash
 magnet:?xt=urn:btih:8A493412D5387A806617F76949F3D2A584C16BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

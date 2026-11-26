@@ -28,8 +28,7 @@ Siiilk - Way To Lhassa (2013) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:17C59EEF45BD58EA2436EBF81F9DE1EBC3616323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Bruce Soord With Jonas Renkse - Wisdom Of Crowds (2013) [FLAC|Lossless]<Progress
 ```bash
 magnet:?xt=urn:btih:9BB4B6FDDC21C003576A3CCCA2EA4452D0EF37E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Wheatus - The Valentine LP (2013) [MP3|320 кб/с]<Alternative Rock, Female Voc
 ```bash
 magnet:?xt=urn:btih:A8CA50D76BB3229A8EB3B2D62A05D8079803FD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ The Vision Bleak - Witching Hour (2013) [MP3|320 кб/с]<Gothic Metal / Doom Me
 ```bash
 magnet:?xt=urn:btih:901C280F1146D1C5745AAB0E8F1E3B9346AF8E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Megadeth - Countdown to Extinction: Live (2013) Live [MP3|320 кб/с]<Speed / T
 ```bash
 magnet:?xt=urn:btih:4AB009A1A615A0471FF3BEFA2C850C9C29B2FA12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ In Extremo - Kunstraub (2013) [FLAC|Lossless]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:F5F5C3F065D95D502CF258F7932C739D3ACDB3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ In Extremo - Kunstraub (2013) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:E44DC765A43A0512872F50CB07097697C76179F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Satyricon - Satyricon (2013) Japanese Edition [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:B3D287E18111A038FFA638A65C4BF4F74B760F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Nirvana - In Utero (1993) 20th Anniversary Edition 2013 [FLAC|Lossless]<Rock, Al
 ```bash
 magnet:?xt=urn:btih:A678AFAB91A4F1F7E47C705AC994F282A9C51C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ Nirvana - In Utero (20th Anniversary Super Deluxe Edition) (2013) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:B040B621A86BD28C52951483A4DB200A6F07D9D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

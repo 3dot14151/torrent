@@ -28,8 +28,7 @@ Subtonix - Tarantism (2002) [MP3|128-320 кб/с]<deathrock/batcave>
 ```bash
 magnet:?xt=urn:btih:0E1E5B572580D045B22D3333EFB114087908B319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Rogue Male - Animal Man (1986) Remastered 2007 [MP3|206-241 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D955A931A902D561F6011BCA02192472C4ED26BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Triosphere - The Road Less Travelled (2010) Japan Edition [WavPack|Lossless]<Pow
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Alex Sigmer - Холодильники Морга (2012) [MP3|320 кб/с]<Metal
 ```bash
 magnet:?xt=urn:btih:EAE11545026B34BEA09CC7987B376EF387652941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Blackbird Raum - Under The Starling Host (2009) [MP3|128-320 кб/с]<folk-punk/
 ```bash
 magnet:?xt=urn:btih:4EAF1A9CA760F4584A9A127FC9BF1EE5EEAB92A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ The Faceless - Autotheism (2012) [FLAC|Lossless]<Progressive / Technical Death M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ New Order - Lost Sirens (2013) [MP3|~201 кб/с (V1)]<New Wave / Post-Punk>
 ```bash
 magnet:?xt=urn:btih:07FD4543565DDD9C533F98622A105770FFD70B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCF70413FD1737B3FB71BCD6A5A37FE3A7A8EE86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ Dead By April - 2 Albums + 1 Compilations + 8 Singles + 7 Other (2006-2012) [MP3
 ```bash
 magnet:?xt=urn:btih:5C1D44AA964AA25E8DA96ED734D24D0F1787C36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ Billy Joel - Piano Man (1973) Hybrid SACD /2010, MFSL/ [FLAC|Lossless]<Soft-Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +359,7 @@ Dropkick Murphys - Signed And Sealed in Blood (2013) [FLAC|Lossless]<Celtic Punk
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +393,7 @@ The Beatles - 109 albums (1962-2006) Discography [MP3|320 kbps]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:EB108953C61DB079CFADA7DFBDD19C13731F5D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

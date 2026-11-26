@@ -19,8 +19,7 @@ Divinity: Dragon Commander (2013) [Ru/En] (1.0.124hf/dlc) License GOG [Imperial 
 ```bash
 magnet:?xt=urn:btih:479E4F8AB10DC055FA3D58BB79D1063569AAC1B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

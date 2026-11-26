@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:5ADECA0D78E1776545D1C240A202E59C8DC1ACDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ gTasks Pro - for Google Tasks 1.3.24 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DDD7F3C51B70FEF80089A61EF50B8982F280A717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Serenity - Sexy Lounge & Chill out Pearls, Vol. 2 (2016) [AAC|~310 Kbps] <L
 ```bash
 magnet:?xt=urn:btih:584FAE96921171A7808A4B66DC1D5FA80791064E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Serenity - Sexy Lounge & Chill out Pearls, Vol. 1 (2015) [AAC|~325 Kbps] <L
 ```bash
 magnet:?xt=urn:btih:BBADA29D8A6053661EA1FD9F2ED5E08BAE398E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Serenity - Sexy Lounge & Chill out Pearls, Vol. 5 (2016) [AAC|~312 Kbps] <L
 ```bash
 magnet:?xt=urn:btih:4F5C26977AC5442519347A65C1B9893492DB445D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Serenity - Sexy Lounge & Chill out Pearls, Vol. 3 (2016) [AAC|~321 Kbps] <L
 ```bash
 magnet:?xt=urn:btih:B0198D170C6246F8F6BB206F27D68C0D1064D892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Moussa - Premier (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, French H
 ```bash
 magnet:?xt=urn:btih:ADFA2E17F47FD82D03C26FBDD8BCD5A1948B090D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Pink Floyd in Jazz (A Jazz Tribute to Pink Floyd) (2021) [AAC|~301 Kbps] <J
 ```bash
 magnet:?xt=urn:btih:92A2E9DBDF16FC322C4C0841F958DAB47893369D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Exposure X7 v7.0.1.101 [En]
 ```bash
 magnet:?xt=urn:btih:E4513A312D0FF3D2D161D07DE439C770B8084930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ TextMate для Mac OS - Отличный редактор программно�
 ```bash
 magnet:?xt=urn:btih:5E3487B9A2CA061420CAB5711391B1314F438962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Koan - Macbeth (Stainless Steel Edition) (2021) [AAC|~329 Kbps] <Downtempo, Ambi
 ```bash
 magnet:?xt=urn:btih:C8CE9811192BEF9D76D06C10FCBE8AF51C15F3E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Atlas - Atlas (1977) Reissue CD, 2008, Sonorama [MP3|320 Kbps] <Jazz-Rock, Soul,
 ```bash
 magnet:?xt=urn:btih:169705C834554921F410673413CFE9AA1D284BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53DF3B3B023F9489125613085359138127BC4A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Digital Clock 3D 2.1.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8040483D2C1A8E52A63A3161FD0858AB7EEE6151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Goombay Dance Band - 30th Anniversary Collection (2009) [MP3|320 Kbps] <Electron
 ```bash
 magnet:?xt=urn:btih:1701996253A851147B6EB4D989E75AA83CAC230D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F50F1ED4A851D5F63B20BE14712564D9885E8F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2D51079E7976AAC6421C436471358456D62E99A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FB440446C84F369061285A4B81EB0A738718EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Ozzy Osbourne - No More Tears (30th Anniversary Expanded Edition) (2021) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:14E807E256A84DCA5025BEA734BDFA14F4ACC2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB3288EE93765ADD8B8783DF0EC1C401A2B6C9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Depeche Mode - Ultra | The 12" Singles (2021) [AAC|~323 Kbps] <Synthpop>
 ```bash
 magnet:?xt=urn:btih:4D9AC0B71EC824D160A7AE008BB6BAA73F5D39C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Sodom - Bombenhagel (2021) EP [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:FBF6F304E906C501A1012784017DCE041D173A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:965ABE2E8D75CF297F1ACA2A0A038D9232800FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ED89121004483E1D1EE6B897D98E3F7B4BD0F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ VA - Chillout Beats 1: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:3DB7204632443DA541CA6162F1DB5A538DD7C996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:088139C06E689FC81FECDC2084D390BB263BA510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

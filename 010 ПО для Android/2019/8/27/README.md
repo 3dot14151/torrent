@@ -22,8 +22,7 @@ Simpler Premium v2.18.210 [Ru]
 ```bash
 magnet:?xt=urn:btih:93FE0FC7704E768805B754CB5CC52C71EE86BB62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

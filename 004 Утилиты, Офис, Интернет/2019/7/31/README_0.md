@@ -19,8 +19,7 @@ Password Safe 3.49.01 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F518CFD49876673A167425BCDD5C90162F2BB7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PassMark OSForensics - мощный пакет утилит для компью�
 ```bash
 magnet:?xt=urn:btih:18634163B64285D66B9050F99022E3C9973509CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

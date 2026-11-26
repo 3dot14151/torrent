@@ -22,8 +22,7 @@ Steven R. Smith (Стивен Р. Смит) - Gehenna Belvedere (1996) Autopia [
 ```bash
 magnet:?xt=urn:btih:2DF41F945FDD233E0390231594055585407960FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pop Evil образовался в далеком 2001 году на облом�
 ```bash
 magnet:?xt=urn:btih:21A6F605D26C5D1949635D5860FC710912A8037D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pop Evil образовался в далеком 2001 году на облом�
 ```bash
 magnet:?xt=urn:btih:DE3AFE8D0E8D389328A6A7F34EAC63F631A3D35B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pop Evil образовался в далеком 2001 году на облом�
 ```bash
 magnet:?xt=urn:btih:B4EE834CED6E5F5D8F95A7C0DE3BAAD05CCBEF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pop Evil образовался в далеком 2001 году на облом�
 ```bash
 magnet:?xt=urn:btih:DC193DBAE428838F9C8B24E39370B2C355279D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Pop Evil образовался в далеком 2001 году на облом�
 ```bash
 magnet:?xt=urn:btih:BC943B55C8CE70999B9A0CBC18CFA7E0FFD0A61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Pop Evil образовался в далеком 2001 году на облом�
 ```bash
 magnet:?xt=urn:btih:504EBE8226B05C60B50AC611E2FA2D1AEB2F2234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

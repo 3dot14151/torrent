@@ -28,8 +28,7 @@ VI. Springtheme
 ```bash
 magnet:?xt=urn:btih:8458AEB98A4816965D5F6B735F427D12293F0436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Sound Storm - Immortalia (2012) [WavPack|Lossless]<Symphonic Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:256ACA813E7FDDA50F6C4316EC84F125E18CB2D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Dokken - Broken Bones (2012) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:170274C95E416EDB81BFCE019C99002DECF186EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ No Doubt - Push and Shove (2012) [FLAC|Lossless]<Alternative Rock/ Pop Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Green Day - iUno! (2012) [FLAC|Lossless] <Punk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:BD39AEFBAD7001BD8FE08D86594E1F945C53423B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

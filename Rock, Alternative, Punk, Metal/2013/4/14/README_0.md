@@ -26,8 +26,7 @@ Eternal Storm - From The Ashes (2013) EP [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:A8A17A1A0A47D1C1256CAFD2267C71D4C3DDFDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Azylya - Sweet Cerebral Destruction (2013) [MP3|320 кб/с]<Gothic Metal, Femal
 ```bash
 magnet:?xt=urn:btih:16FA3D95CEA40552C4385AC3B054EF9B23592D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ David Bowie - Low (1977) [MP3|128 кб/с]<Art rock, experimental rock, krautroc
 ```bash
 magnet:?xt=urn:btih:9FE8C31BA23AED43AB76FCBB6BCEEA1A741BF61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Neverstar - I'll Be Waiting  (2013) [MP3|320 кб/с]<Gothic Metal, Symphonic Me
 ```bash
 magnet:?xt=urn:btih:5ED82EA0A1A0E267A71FCABCB7CBC434FB61EFBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Ravenscode - District Of Broken Hope (2013) [MP3|320 кб/с]<Alternative Rock /
 ```bash
 magnet:?xt=urn:btih:413C64F0EF4429F300668A5893882B82E95B5108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ VA - Rockabilly Nationals (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:C8A3E112A3EF9615874DDA83E56B2140D25AB818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Fleetwood Mac - 25 Years - The Chain (1992) [MP3|320 кб/с]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:31E7A5F3E1D678822A4FEB969D7F0BA40D1AFF13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Elvis Presley - The King of Rock'n'Roll: The Complete 50's Masters (1992) 5xCD [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Motorhead - 11 альбомов (1979 - 2004) Japan Edition [FLAC|Lossless]<Heav
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Angel Snow - Angel Snow (2012) [MP3|320 кб/с]<Folk,Pop,Singer Songwriter>
 ```bash
 magnet:?xt=urn:btih:DA5A9B0BCE5EEAA709C7EDDD9E87A462C694F0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ PelleK - Ocean Of Opportunity (2013) [FLAC|Lossless]<Power/Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ The Shadows - Greatest Hits Vol 2 (1990) [FLAC|Lossless]<Instrumental Rock / Sof
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ New Years Day - 4 Альбома (2007-2013) [FLAC|Lossless]<Alternative Rock | 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Coldplay - Castles (2006) [MP3|320 кб/с]<AlternRock>
 ```bash
 magnet:?xt=urn:btih:789603530D4B1F7D12F25EE8B183FBABBA730734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:860323B8DADA0E11D51E61D365398FAC873D7845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

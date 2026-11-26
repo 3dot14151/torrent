@@ -19,8 +19,7 @@ InternetOff - бесплатная утилита, которая позволи
 ```bash
 magnet:?xt=urn:btih:776353E4A1941D1AC22A4F1590B2D6E97B482D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

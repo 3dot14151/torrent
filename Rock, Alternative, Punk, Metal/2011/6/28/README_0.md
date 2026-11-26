@@ -26,8 +26,7 @@ Soul Stealer - Feel The Steal (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:556EFE7207A065ADAD5A282A8749DF30B46A6F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ U2 - This Show Will Last For Ever (2011) bootleg [MP3|192 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:9F8EB28D3724ABC30B62580097F7BE5823802D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Axxis - 11 альбомов (1989-2009) [MP3|320 kbps]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ CD 1 1982-1988
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Led Zeppelin - Haven't We Met Somewhere Before (LIVE) (2011) [MP3|320 kbps]<Hard
 ```bash
 magnet:?xt=urn:btih:82A2D563FAF0583A6E4AA1271E7227C46D980F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Jimi Hendrix - Electric Ladyland (1968 (2010)Vinyl-Rip) [MP3|320 kbps]<Blues>
 ```bash
 magnet:?xt=urn:btih:8B1941FD5F9E39C6E15B116A8070B5FC86FA5E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3619E73121239C76B94FCDB79376B8B88619F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Tony Carey - Коллекция (15CD) (1984-2009) [APE / FLAC|Lossless]<Art Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

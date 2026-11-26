@@ -18,8 +18,7 @@ Comedy Баттл (22.01.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 ```bash
 magnet:?xt=urn:btih:0A0730954833B6EE053B74F40F24D685C619174A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ PDF-XChange Pro - универсальная программа для рабо�
 ```bash
 magnet:?xt=urn:btih:3AD292DBF2112F70831A6E97FCAA9402FBC7E250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Labyrinths of the World 13: Eternal Winter (2021) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:FBCB9A9CDC1F1A56F8B28810921777C9C15A552C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:D8DE3A2EF8E0B7A0F72E98517424BBCAE54117D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E48CB037230A2CB5715009BFCED36D6FB9B4916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F063F2526C3D6FCDD0D2A599D95761F3CB783F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Udemy, Imtiaz Ahmad | The Complete Oracle SQL Certification Course (2020) PCRec 
 ```bash
 magnet:?xt=urn:btih:42B526DDC5499821D5169ECA85E70F0CFD783CB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Udemy, Henry Olsen | Ultimate Beginner Guitar Masterclass (2020 Update) CamRip [
 ```bash
 magnet:?xt=urn:btih:5DBC2252D88B11508CD551062A601421A0451BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ ihatetomatoes, Petr Tichy | GreenSock - Bella (2020) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:E0C9CB518166AC0B28CB483859F451DC14D1FA35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Udemy, Lazy Programmer Inc. | Deep Learning Prerequisites: The Numpy Stack in Py
 ```bash
 magnet:?xt=urn:btih:081B6452AA3AA2678CCEC6158FDF7A1716E64CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF8F48A72DFDCE636E57021CB73DB60BBB23503B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C7B1B34207C2A2DB71B7501A89C00DF5E019C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Mark Knopfler - Down The Road Wherever (2018) 2LP [DSD128 2.0|5,6MHz/1bit|tracks
 ```bash
 magnet:?xt=urn:btih:58592041013DB29AC5E67E57DE0393A99BF0E287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ VA - Ladies Sing & Play The Blues Vol.2 (2020) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:D4B5C64457DB5C99FEF3EAD29EA4109839C3D2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Udemy, Frank Kane | Taming Big Data with Apache Spark and Python - Hands On! (20
 ```bash
 magnet:?xt=urn:btih:8D5A9EDD7E297F58ECFDE1978B51A98D5383D544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:36A8E2A571806A7330AA1295864A5E7200633534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D4A0FF6B5C6426A0A7DF17F5AA6F089DCDD67A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5B395AD45C7757423B0EFE133B97D065E657B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ USB Guardian специальное программное обеспечени�
 ```bash
 magnet:?xt=urn:btih:A242204EB31DAF042B5A05BEAC6AA58656556245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38897BBB56BDD5F8F69590AB8F5864EC55F0F27F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:D9DDA05F99A7619DFAB3800F462ABEBFECD37437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ WinToHDD - программа 3-в-1, которая позволяет выпо
 ```bash
 magnet:?xt=urn:btih:540AE1A9289F71A4B157AA46C7623595BB3EDA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BE19648E276837DB76A3F721249033212ABCF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:B96860568C6D0033490624D53D549251B0413401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D221B49B60A06C6EF786CCC77EF23EA334D709E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ Udemy, Kirill Eremenko | Python A-Z™: Python For Data Science With Real Exerci
 ```bash
 magnet:?xt=urn:btih:A24D5CBF19B021CF240E9B712D6EDCA2D35D00DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Love Chronicles 4: A Winter's Spell (2015) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:8FA164010F395E793CD269396AD3611D9E04E0A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Banzai Pecan - улетный приключенческий файтинг о �
 ```bash
 magnet:?xt=urn:btih:373C871996A9221FF436055D9236F8A1CB48C3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

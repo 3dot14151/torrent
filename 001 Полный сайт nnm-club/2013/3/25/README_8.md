@@ -24,8 +24,7 @@ Starcraft 2: Heart of the Swarm – масштабное дополнение к
 ```bash
 magnet:?xt=urn:btih:53DA306D8C2AD5574CF5C9DE9E8BF40F1F578EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ ru_windows_8_pro_vl_x64_dvd_917810.isoЯзык интерфейса: Русск�
 ```bash
 magnet:?xt=urn:btih:9A82C6BBFA562DF7114AD5BCF3D0FF2194CD275C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

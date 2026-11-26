@@ -19,8 +19,7 @@ Chess Ultra (2017) [Ru/Multi] (4.15.1) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B832C44FD24A61D604D3CC7D2CECEE5A9E9AAC0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

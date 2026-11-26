@@ -22,8 +22,7 @@ Pansophic - The 2023 Massacre (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:1F71024D76EF50DD8F35BD061AE702889D318F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Roadwolf - Midnight Lightning (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:A740F44CBAD657048F92A583D26A9DB6DFF59928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:89A2780F76ECED0173DAB205480E7643F4AE863F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Brujeria - Esto Es Brujeria (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Groove 
 ```bash
 magnet:?xt=urn:btih:C08108A69B9748DD96E97994EE5A0AFC2F315385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Burner - Hittin' The Target (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:75B7E1BA1D385D4F4A8750C1463E4283A3BF29DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Tomb Mold - The Enduring Spirit (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 ```bash
 magnet:?xt=urn:btih:FC0079797A54EFF51DD64DCFAC4B38C6DAE684D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Manntra - Venera (2015) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:8B50EDA78AA5725B8E62D3C33938E384C9178903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Manntra - Horizont (2012) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:46B0773286DF841BE11AB8D4A4898EAA3A41076B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Manntra - Meridian (2017) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:5787AE1409044BBC2A62469070D86A367CB9B32A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Manntra - Oyka! (2019) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:1B981C28EC2405420112C5BFB7C36D5D311C9711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Sullvation - The Beginning of the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 ```bash
 magnet:?xt=urn:btih:63002D3DB79132AE6432BB37F55FB52A9A00AFCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Bonnie Tyler - Free Spirit (1995) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft 
 ```bash
 magnet:?xt=urn:btih:D53CA3E9F80C99A051AC7ED4B376333A60934937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Guitar Instrumentals - Deepest Guitar Blues & Stories (2023) [MP3|320 Kbps] <Ins
 ```bash
 magnet:?xt=urn:btih:D17FFFF1341F25BEE11A9C5005957E37325A215E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

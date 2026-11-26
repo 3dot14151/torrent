@@ -19,8 +19,7 @@ WebStorm - Легкий, но мощный IDE, прекрасно оборуд�
 ```bash
 magnet:?xt=urn:btih:C2359CA5E47D858515900D0E67C6FB78CEFF4DCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CLion — умная IDE, предназначенная для разработ
 ```bash
 magnet:?xt=urn:btih:FC1335E544F6F08F30EAD8DA5990F36D869251E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

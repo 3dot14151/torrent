@@ -19,8 +19,7 @@ The Inevitability (2017) [En] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:984A86C9DAD1CC2389BD92954325D61D3FEE528D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ VOA Learning English - специальная программа Voice of Americ
 ```bash
 magnet:?xt=urn:btih:EDAEDF5D9F8D849D01FBBE9887CCB816AF6EB3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Atlas Напоминания v1.8.1 Pro [Ru]
 ```bash
 magnet:?xt=urn:btih:6758E5D7186ACFD8D67B98FA4F1069A75966B9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

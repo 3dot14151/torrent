@@ -19,8 +19,7 @@ FRACTER - оригинальная логическая игра для Андр
 ```bash
 magnet:?xt=urn:btih:222A287517AA3D62DE4BC9167BFC0330C179AABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Galaxy Genome - нападения с космоса на Землю начал�
 ```bash
 magnet:?xt=urn:btih:2F668196F93D939F9559D7D9BA19C693099203DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mindustry – захватывающая игра на андроид, где в
 ```bash
 magnet:?xt=urn:btih:661A2AE7621519890E3B47864AEE9FD110DD3229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

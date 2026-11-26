@@ -19,8 +19,7 @@ Driver: San Francisco (2011) [Ru/En] (1.04) Rip xatab
 ```bash
 magnet:?xt=urn:btih:A4346D6B45667AB0ECD74D89B85437B440232CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VODKA (2017) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:71773AD97A742366D72C6CAAEBB199485B5B7B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

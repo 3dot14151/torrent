@@ -28,8 +28,7 @@ Pat Capocci - Delinquent Beat (2009) [MP3|320 kbps]<Rockabilly/Psychobilly/Rock'
 ```bash
 magnet:?xt=urn:btih:400C1DFE3707BD07E05BE0168A2C91FA46DA50DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Sinner - 17 альбомов (1982-2011) [MP3|320 kbps]<Heavy|Traditional Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Michael Schenker Group - By Invitation Only (2011) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Diesel - Under The Influence (2011) [MP3|320 kbps]<Guitar, Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:48C656BC30546EED060ECD5C3BB9741FF1CF17DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Krypteria - All Beauty Must Die (2011) [FLAC|Lossless]<Symphonic Metal/Gothic Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

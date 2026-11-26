@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1D790A9D8F2326B227B28C68985D918A92927D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lesa Snider | Photoshop CS6: The missing manual /Руководство Adobe Ph
 ```bash
 magnet:?xt=urn:btih:D857538FCABDFD17E28D49228C16B13444D21584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

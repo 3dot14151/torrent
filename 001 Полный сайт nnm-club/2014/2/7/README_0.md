@@ -27,8 +27,7 @@ David Last - Early (2014) [FLAC|Lossless|WEB-DL]<Deep House, Minimal Techno>
 ```bash
 magnet:?xt=urn:btih:FFA91401516F6DD00F58746C33C441FB55A5A58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Foreign: Illusion Reflections (2014) [MP3|320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:A03D99CB4E41FD8B6011EA9D4F03AA0AC88F9217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F4B091F53F5ED73E6A9D53B166FFEEB1E53AB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Thyrien - Hymns Of The Mortals - Songs From The North (2014) [FLAC|Lossless]<Mel
 ```bash
 magnet:?xt=urn:btih:11917E8F59CC73E1CC48FC4B94BDFCCA9DD0694A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Kowai - Dissonance (2014) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:5C2E92740C926AF4B9199A4A3F78B37A170DC702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Stumbleine Feat. Violet Skies - Chasing Honeybees (EP) (2014) [FLAC|Lossless]<Sh
 ```bash
 magnet:?xt=urn:btih:360710A0FC27EAF34F2D64617F9847567ED432FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ VA - Sexy Trance #65 (2014) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:18A323E0B2AC1FDF59CC5F0417B969CAA11CCE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBEE6097F1992FE5776B5E2365C0E6B06438DEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6314E2AB978553D4643EF4EDD91A9EC32121FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ Comus - First Utterance (1971) Reissue, Remastered, SHM-CD /2008, Arcangelo, Jap
 ```bash
 magnet:?xt=urn:btih:C698866DD3F2A4E7CEE3CF300CE5D02A56AA6E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FD813DA8BF96D9FEFC6E79557E2298818A81FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Doris Day - Complete Recordings with Les Brown (2001) 2CD [FLAC|Lossless]<Vocal 
 ```bash
 magnet:?xt=urn:btih:8DF748D9F084D9FB102B2183DF1716FD54895319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:439695CCBE1E7D035928CD4542CC7C4E08B829C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +417,7 @@ Herbie Hancock - The Best Of Herbie Hancock The Blue Note Years (1995) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:17BB861CAC05C9C83E2903F7A33ECAB152E903A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC5651394FDD138495FC740CB8455571811FE3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F542F8E4D231EE725B4AEFF57588316BA6526740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ Roman Voronov - Synthem EP (2013) [MP3|320 кб/с]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:2927455255496E1ADA08841C11450D73E1A66DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63B9E574BEB289FAB37B72BCE8FAE002BC03CB43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ Brock Van Wey - Home (2014) [MP3|320 кб/с]<Ambient, Dub Techno>
 ```bash
 magnet:?xt=urn:btih:EABE30E570C4CEA38A7DE6CCBA6D54648610C4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ The Oscar Peterson Trio - A Jazz Portrait of Frank Sinatra (1959) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:1C7A89A8F69CD3AE33F342B4855A91CA1047C69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F0BF20D872152C8FA9E2596879C858D3C5E329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35292D6CAECA3A4FF66C9809AE4BCE538203D719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ TagScanner – функциональная утилита для организ
 ```bash
 magnet:?xt=urn:btih:B263CB20F19170A134442A52E71E408690DEF989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FDDE0F5DCC9F2166BC95FECB07200F7FC958636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1D0BB816375E4BF1F318E14B3E05330F21F062E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ Anita Baker - Compositions (1990) [FLAC|Lossless]<Smooth Jazz, Soul, R&B>
 ```bash
 magnet:?xt=urn:btih:28231CF733B1C0CE54F6BE96FCE4FEC8BD9C071E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

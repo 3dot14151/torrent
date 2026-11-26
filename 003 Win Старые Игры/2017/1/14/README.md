@@ -19,8 +19,7 @@ Tachyon: The Fringe / Жестокие звезды (2000) [Ru/En] (1.00.00.36r)
 ```bash
 magnet:?xt=urn:btih:242451A9C2C9B630789446C4098CC3155E27EF5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wolfenstein 3D: Spear of Destiny (1993) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8FBB8CFF3DE5C4973C67CDA7A96CC65FDE4AC602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

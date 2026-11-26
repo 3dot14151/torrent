@@ -19,8 +19,7 @@ Curse of the Sea Rats - двумерная метроидвания, расск�
 ```bash
 magnet:?xt=urn:btih:8DB01B57E3A4BEB8BC3E67946F286AFCF9CC9E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Operator - это не типичная стрелялка или прикл
 ```bash
 magnet:?xt=urn:btih:C6BF81902B69850B72098E6545E6A167BD420BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Girl Genius: Adventures In Castle Heterodyne, созданная по мотив
 ```bash
 magnet:?xt=urn:btih:D0D6649FC66D02E3A041C028660A2073840AAC68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:828523D309DE2BD938397AAE94D0751423F41387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:34E620FDBD8FE5F911EA645D4BC4BA61D14DCEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5E9C71676D95389F3D288AA693EFE688EE181E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Kaiserpunk (2025) [Ru/Multi] (build 17798436) RePack seleZen
 ```bash
 magnet:?xt=urn:btih:933633A58C4897062A7D4C526CCE60B03B04B990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Mansion of The Macabre (2024) [Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:54C28C08B9C91A5065EC5E37B2605B7BAE490698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Cities: Skylines II - это живая экономическая систем�
 ```bash
 magnet:?xt=urn:btih:3670E337587751EB7440B9FE8B92DCFF6974C27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Lost Lands X / Затерянные земли Х (2025) [Ru] (1.0) Unofficial [
 ```bash
 magnet:?xt=urn:btih:852A33141259EBA76062BEAA04241B4C65ABF4F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1f) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:641EF82DDCEE00D21E81B8CB6F58658791CE239F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Avium (2023) [Ru/Multi] (Build 17756139) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:71765E9B5B540DF7C78E5EA539F824115D456FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Bass Defense - игра, где музыка становится оружием
 ```bash
 magnet:?xt=urn:btih:D52442167AC5995F8B2F77E4FE07A1C9F3813B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Cataclismo вводит игроков в роль лидера, ответст�
 ```bash
 magnet:?xt=urn:btih:F587BC521EF204E421CD54B8350DB3159CB67576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack seleZen [VR]
 ```bash
 magnet:?xt=urn:btih:6A7C510F9ED14D3DB97A140CBA49B45E08B824FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

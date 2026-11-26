@@ -19,8 +19,7 @@ Phantasmat 2: Crucible Peak Collectors Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:8D4E81B48551BE75889F187FF81917C3C86B40B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Darksiders: Wrath of War [Ru/En/Multi9) (Steam-Rip/1.1) 2010 | R.G. Origins
 ```bash
 magnet:?xt=urn:btih:485814A367BC7F83A9019613621CCA02B8AD4200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Darksiders Dilogy / Дилогия Darksiders [Ru] (RePack/1.1/1.5) 2010-2012 | 
 ```bash
 magnet:?xt=urn:btih:96B09518D401535D81C1FE6E80A63A055882D7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Homefront – сюжетно-ориентированный кинематогр
 ```bash
 magnet:?xt=urn:btih:A889442516289C812C6E181E0D14380E834056CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

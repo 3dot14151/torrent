@@ -22,8 +22,7 @@ The Sorrow - Misery Escape (2012) [FLAC|Lossless|image + .cue] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:D0454868E3692E6EF20FDC9549CA4615ABA4C409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mantar - Pain is Forever and This is the End (2022) [MP3|320 Kbps] <Black Metal,
 ```bash
 magnet:?xt=urn:btih:04CF49EC1BEA170352059C78A238466AC71E8158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Quiet Confusion - Magella (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:71FBE3481476A86F8269BC3B20F47E77D25A958D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Volt Ritual - Volt Ritual (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:78527C4A5D122A9897920CE51237E679B4973129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Quiet Confusion - Magella (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Ston
 ```bash
 magnet:?xt=urn:btih:E889E19EE3C55DC7D8F1F642E6032115565B3B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Palace - One 4 The Road (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:FEED8ED1F26C67A43AC17AD6E6363647D33B6297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Paralyzed - Heavy Road (2022) [MP3|263-290 kbps VBR] <Heavy Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:863ABF2AD2DFE803AA2D4CBB21965B6A9A109A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Silent Monolith - Empty Kingdom (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:988B1733A84A4081FD6D5959CC637042FC99E17B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Graveshadow - The Uncertain Hour (2022) [MP3|320 Kbps] <Symphonic Metal, Female 
 ```bash
 magnet:?xt=urn:btih:4F555ACFAC4057000D37249CDC12289A97976F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Sons of Arrakis - Volume I (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:AC06E040A46A177C0DA123D3D64D4DFC4BCB907F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Fellowship - The Saberlight Chronicles (2022) [MP3|320 Kbps] <Symphonic Power Me
 ```bash
 magnet:?xt=urn:btih:880C82ED5C34509593D23DF0763D411C78949151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Alestorm — фолк/пауэр-метал-группа из города Пе�
 ```bash
 magnet:?xt=urn:btih:60734E813FA423FBCF9AAAEC9FF51D8489A55E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Fallen Sanctuary - Terranova (2022) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:05B51173DE49A0A4FA08A881971B3FFA06182100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Midnight Road - Ready For The Fight (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:163599ECC3AFB5073CD517A719BB06AEAB852124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADDCED33CA3FEAE2F60ABFAAC7F986FDBB654A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Big Story - Beast (2022) [MP3|320 Kbps] <Alternative-Rock>
 ```bash
 magnet:?xt=urn:btih:95B39519616D656B14C67FD1131FE618BDD7D95C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7541A4EFB715E578A4BF95472F7368A262338CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

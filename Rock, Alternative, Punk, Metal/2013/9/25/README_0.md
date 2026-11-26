@@ -27,8 +27,7 @@ Joey Summer - Even The Saints Are Sinners (2013) [FLAC|Lossless]<AOR>
 ```bash
 magnet:?xt=urn:btih:DC0D3D822CF9DD5E82C32EAB8221DB6F5FC6344B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Sonus Umbra - Winter Soulstice (2013) [MP3|320 кб/с]<Symphonic Progressive Ro
 ```bash
 magnet:?xt=urn:btih:45AFDDB11FA6DB1BECC902CAC40628AF07EB94A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Fuzz Manta - The Stonewolf (2013) [MP3|320 кб/с]<Psychedelic Rock, Hard Rock,
 ```bash
 magnet:?xt=urn:btih:993855FCF9E6F2853F4C3472427F8693562ECAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDC5777AC3346B7BC8636044471389532D9C2CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Within Temptation - Paradise (What About Us?) (2013) EP [MP3|320 кб/с]<Sympho
 ```bash
 magnet:?xt=urn:btih:6480C83DEE48B569F639A669EE0B60B8EAF2D3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ The Bacon Brothers - 6 Albums (1999-2011) Discography [MP3|320 кб/с]<Country 
 ```bash
 magnet:?xt=urn:btih:1AB85AED2A62C8572ADEF7449BC7264901B4D856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

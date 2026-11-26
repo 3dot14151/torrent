@@ -22,8 +22,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:184D5BAD5BBC351AE1DB4E388CC042FFDDAD7A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Deliver Express - это автоматическое решение для бы
 ```bash
 magnet:?xt=urn:btih:F91E8396B8F78F20103C4E5E42388A71F309E475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Deliver - это комплексное решение для отправки �
 ```bash
 magnet:?xt=urn:btih:820D11C4A26AD00D47EE6DE69E69C4E36A489FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ SnippetsLab — это простой в использовании менедж
 ```bash
 magnet:?xt=urn:btih:AA0AAFD11161388C0080E9683EB9A93C02145CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Ink2Go - интересное приложение, которое позвол�
 ```bash
 magnet:?xt=urn:btih:0D96429E87BA3DBB9E55488FF1D17F3166B3725E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ AweEraser - это безопасный «ластик» данных Mac. Он 
 ```bash
 magnet:?xt=urn:btih:DA9F6B021330DA41411A7C280A792CD59E3C1127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Notebooks является единственным блокнотом, кото
 ```bash
 magnet:?xt=urn:btih:0AB21FE6BF6C2EF24C1FB019C2453C5CDDE64320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Leama & Moor - Distance Between Us (2006) Single [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:CE4FA3C58809532FBDE26F492D96EB0A79A015AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:5D28CA56BDC4869B7FBCFDE21A5F169048658E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ SiteSucker умеет загружать сайт (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:084AB2427647E40B3797812A531E0A3652C5EA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Resize Sense приложение, которое поможет вам изме
 ```bash
 magnet:?xt=urn:btih:55BA6507784BDB0127C88230A954FFF2DB3A4FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ FigrCollage - программа для создания удивительны�
 ```bash
 magnet:?xt=urn:btih:865F960696B4CB927223EEA45C250A8735AF72BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ EdgeView 2 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:0FCE1DA493CFBDCAC14644F1F795BA3B2821F46F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:1ED183841850C5664391C64AD9E66776296DC29F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98FB118073D2E703F7BE1213DBE1EAF969BC1C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ Loudblast - Manifesto (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:58368FF8BF3C7D73A3503155D678C5BDD8F3880A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ Watermark Sense - инструмент с минимальными настро�
 ```bash
 magnet:?xt=urn:btih:F107D7C1ABB6C574C04D36FFAEC7C1CAF876F12E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ Art Text - красивое текстовое приложение под Mac O
 ```bash
 magnet:?xt=urn:btih:44A5C338C05AA27E99C168D7E6F60E721324370C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E61E0CF5F628E97CB64890906092857633664B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ Continent Number 6 - Afromerica (1978) LP [MP3|320 Kbps] <Electronic, Disco, Fun
 ```bash
 magnet:?xt=urn:btih:D12DAA98AF3999FA0B7A19F11695C4DA2F1E9D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97938974EF141ECBE8E278202FFE996BA213EDDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ Leama & Moor - Distance Between Us (2006) Single [MP3|320 Kbps] <Progressive Hou
 ```bash
 magnet:?xt=urn:btih:610DF7148388FEB36BCD69C05A690F0AC61620C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34DDF67C3BEB2108155887CD0D5507D85979183F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54FA0935AD311ED8472BE7A35430CA93340953AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0F712911F8A83C6E81EECC612C89E650628DAB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

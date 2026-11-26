@@ -19,8 +19,7 @@ Through Andrea's Eyes / Шаг в мир грез Андреа (2014) [Ru] Unoff
 ```bash
 magnet:?xt=urn:btih:582D2B2F98405E67E5C0423F6FB0AD07439D8F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Mars: War Logs (2013) [Ru/En] (1.0.1736) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:5313E20A21D394FB0BC74CBF59BA1C2A5628F017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

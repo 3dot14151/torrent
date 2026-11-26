@@ -28,8 +28,7 @@ Pink Floyd - Delicate Sound of Thunder (1988) [MLP 2.0 192/24 |DVD-Audio (Vinyl-
 ```bash
 magnet:?xt=urn:btih:CF6B607FC5A3EC51DDB515C6B5AB1C808EF15875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

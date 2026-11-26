@@ -19,8 +19,7 @@ WeNote - Заметки, задачи, напоминания и календа�
 ```bash
 magnet:?xt=urn:btih:9E4A7E7DFB33FCE432447941C82DAC18821F4273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bike Tracker v2.3.05 [Ru/Multi] - Велокомпьютер (обновляем
 ```bash
 magnet:?xt=urn:btih:D5531DE00CB3C181992BF144CF283E50519DCC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

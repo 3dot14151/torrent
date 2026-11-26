@@ -19,8 +19,7 @@ Fatal Evidence 2: The Missing (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:7C8AD5B4CE27A83693CDB581300068C03BE0C678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Viking Heroes / Герои викинги (2020) [Ru] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:3E3AEB7039842DB8A349B0BFB0847E96FDD43BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

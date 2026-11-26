@@ -27,8 +27,7 @@ VA - XXXL Зарубежный Топ Сезона (2012) [MP3|320 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:F1748D5CB20B73291D363E9A6088ABD26BF18EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Blues Busters Volume 2 (1994) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:AC320A44751BF14C8190892E47D64AF759FF4B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C490517D418CFCD35CE849F5EFF0DAE2C1CDF8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Blues Busters Volume 1 (1993) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:1359D4921750A89097E86839671110847B036B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Molly Hatchet - Regrinding The Axes (2012) [MP3|224 кб/с]<Hard Rock/Southern 
 ```bash
 magnet:?xt=urn:btih:B499315F2C2A85F0A56A1E9682FA485873E0C468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D937696458EE8A17A70D5B00254C6BD55CCC16A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ The story of John Goodnight continues.
 ```bash
 magnet:?xt=urn:btih:4D75E6FBFEF06CAC67DE450B36EB6D3B40C6A766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ VA - Диджей качает ритм (2012) [MP3|256 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:100CD2B03DED85D45EC9A15C41E2F57DCDE154ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ Google Chrome – браузер с открытым исходным кодом
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ Interpreta a Manuel de Falla (1978)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B7AD9D45A7E61B25A574C1A399011FA63DFB6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7027748BC7765FDED7A5A8DF03439C5EA7AB850A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ VA - 6 Blues Giants Live! - vol.1 (2007) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:385FFDCC94EACD5EAA03935134BCBFE61A722AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94E528F5124DE95B3B4757F0C944394E42A03A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:886D1BD5CBDA75046DB9F925FDBE0773DB42DB22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:805F132A89391C8DCE3BB015723749BE800D07E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ VA - Trance Energy May (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:EB5AA9D117423B4FBA66E2BC1AA83ADE1402C731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DB5C3845D4E10498B9817605A6573B302338F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1410C8EA110B60A95A9FB1E7AEF26608BC75FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:418E6517D3308E8F9D57E2E76F02ED7890A7CB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F5F443CC3806D00BF6AAB2B0C62F24021EDB070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ BCee feat. Robert Owens - Keep The Faith (Spearhead SPEAR042DG, 2012) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:09B13A9874B6AB3B8E7D0592092E40E9E3FCBCC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ VA - High Contrast Presents: Miami 2012 (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:CA6E5E6F980FBE63180573C1F6248BCB46BA6012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ VA - Avto Club Май Vol.4 (2012) [MP3|320 кб/с]<Club>
 ```bash
 magnet:?xt=urn:btih:CA6E2B66688993FB7626870DF428E9CA67E032EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ Midnight Serenaders - Hot Lovin' (2011) [FLAC|Lossless]<Swing, Retro Swing, Big 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -803,8 +778,7 @@ Disc 01
 ```bash
 magnet:?xt=urn:btih:3EDC8F2AB585C9835533B216047C00B9006ECC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

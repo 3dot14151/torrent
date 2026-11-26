@@ -20,8 +20,7 @@ Crosti — программа, которая создаёт схемы для �
 ```bash
 magnet:?xt=urn:btih:C8A9BFE77A66B772268172F914C5E8815099CA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

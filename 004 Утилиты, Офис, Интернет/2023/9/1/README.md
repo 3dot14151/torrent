@@ -19,8 +19,7 @@ Textify — это крошечная утилита, позволяющая с�
 ```bash
 magnet:?xt=urn:btih:643BC3976B1786D52B9DCA1471F0D5DD53A47951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

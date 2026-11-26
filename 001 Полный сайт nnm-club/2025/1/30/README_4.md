@@ -19,8 +19,7 @@ SupRemo 4.11.4.2825 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C53A802F08B63026962DE2DC6BD3B12D20F30869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ mp3DirectCut 2.38 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A83683F2E8F0238E8695AAD5751B4511D7DDCA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:523A4C3DDF41FE6A1B7565A6E7DC0D4D78FA99B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AFDC13E7700548BF38CF26D11768F88AE872B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:6323964A4D448900D039EF2BF3F77A36E47F639E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E851E4EE4F5C356E1712EB3FFF97E62CDBBFB82B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF193ACE9AE6CF299F337F268E93ADE650607284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1306846B186D9F81ED6E5A102211EAE8624F9334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA6A64A3729D12B5B97FD1B56B0806693EB507BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 ```bash
 magnet:?xt=urn:btih:5FDE50F9088416183F23556BC952866818DC0AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCAAADC4EFD38B59E4958CBB205D2B85A8F5260F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.97 (2701) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:0D0D2B28D57A5A7DFE91CED484C88252B6FACF83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:159328AF649E8EB59D55C826B63F895DD091ED87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D185998C1F5A072A7F7D27C773CE162C6669C865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Win Movie Maker 2025 9.9.9.16 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EE35A40BD5DB319239116C8EB996308BFE420CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Scooter - Video collection - Chapter 6 (2019 - 2022) WEBRip [H.265/2160p] [hand 
 ```bash
 magnet:?xt=urn:btih:FF622833D6B6A6ECCAF41EA1AE8A025E3EC135BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Scooter - Video collection - Chapter 5 (2014 - 2017) WEBRip [H.265/2160p] [hand 
 ```bash
 magnet:?xt=urn:btih:0620321A7B16EA5AE6957E0A5CA738F7811C1E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ VA - Car Music Mix 6 (2025) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 ```bash
 magnet:?xt=urn:btih:3A74FBF94C938DE9E7AA42D4328736FBBE943AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6535CBB5082E15FE5B2B6AFB7BD71C5A34CEA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +548,7 @@ Active@ Disk Editor - это бесплатный расширенный инс�
 ```bash
 magnet:?xt=urn:btih:9A347BB0236260BDE93E1D2843F13EEF6577C82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

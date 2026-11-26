@@ -19,8 +19,7 @@ Phantasmat Collectors Edition / Фантазмат. Коллекционное �
 ```bash
 magnet:?xt=urn:btih:5CC903BD66AEE760FE8C9D97538512154B50EE23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Glowfish / Неон и его команда (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:B1E1E08C31D7B8C2BA048FCED860C758694DC198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Legends: The Bronze Horseman CE / Байки Старого Пса: Бр
 ```bash
 magnet:?xt=urn:btih:D1E0B7CEC224B42F196E40262F2FC97391D12EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Empire: Immortals / Звёздные нации [Ru] (L) 2008
 ```bash
 magnet:?xt=urn:btih:ADEBC60FB7945EA823963CC1ACE323DF16F6797D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

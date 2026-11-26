@@ -19,8 +19,7 @@ PDF-XChange Pro - универсальная программа для рабо�
 ```bash
 magnet:?xt=urn:btih:231597AE0C48596C57E6544AB6D89D4BFE8A0612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

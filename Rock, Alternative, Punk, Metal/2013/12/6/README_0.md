@@ -28,8 +28,7 @@ Mean Streak - Trial by Fire (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:67DAA4D0C179918145B1AF76AD13CA999DD69FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Bajm - The Very Best Of Vol. I-II (1992-1993) [FLAC|Lossless]<Rock, East Rock, P
 ```bash
 magnet:?xt=urn:btih:7EDCBB857B5F66101AA7F033BBCC87655D5CF29C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77BD0BE7214408B5FF8B8EE8D1E9ABEA147E2A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Puhdys - es war schon (2012) [FLAC|Lossless]<Rock, East Rock, Pop-Rock, Hard Roc
 ```bash
 magnet:?xt=urn:btih:89377ED30AC39FAB39D390950AF929DAEC67C97E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Znaki - Добро Пожаловать в Мой Мир (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:EA52996F3ABED70FD7E3C5544232FF8AC512D151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

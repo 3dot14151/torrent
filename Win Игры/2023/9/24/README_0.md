@@ -19,8 +19,7 @@ InfraSpace дает возможность юзерам стать мэрами 
 ```bash
 magnet:?xt=urn:btih:1B1051A77FB9D8B50B162614E03E1A5D2F65AC04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Airship: Kingdoms Adrift - это симулятор торговли и бое�
 ```bash
 magnet:?xt=urn:btih:E52ED9D5BC6937C73DAD07B74ACF5877008789CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Avatar: The Last Airbender - Quest for Balance (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A979952660BCC711C0095A5274C23CF981F8B823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ CrossCode (2015) [Multi] (1.4.2-3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F972A52EF33C8B1B02CC0EC5A319A99889FDA04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

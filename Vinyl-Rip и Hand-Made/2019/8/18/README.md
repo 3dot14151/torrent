@@ -22,8 +22,7 @@ Walter Trout - Survivor Blues (2019) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Blues R
 ```bash
 magnet:?xt=urn:btih:3CE2E97977248B4A73A38A5F2ED7A72A00288B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Linkin Park - From Zero (Expanded Deluxe Edition) (2024) U.S., 093624833468, 202
 ```bash
 magnet:?xt=urn:btih:C444DE8BE922D8D46DD3B9D3EA2CDE35E7D4F243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Queen - Rock N Roll (2025) Remastered, 2011, UME - Global Clearing House [MP3|32
 ```bash
 magnet:?xt=urn:btih:FBC61A73FB2F3ADCC78DC2507183365CFA10A53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Insania - The Great Apocalypse (2025) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:4F753F025B48CE526A266A620D25CC332B54C5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Linkin Park - The Hunting Party (2014) Australia, 9362493698 [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:F290F8465F828F83377EACA2301A70C0F374255C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED464750DE968AAF37BAE684182FA44C0D622D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

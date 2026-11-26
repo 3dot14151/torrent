@@ -18,8 +18,7 @@ Jinn'sLiveUSB - конструктор мультизагрузочной фле
 ```bash
 magnet:?xt=urn:btih:8EF9ABEF64C69637190EED6EED68DD177927D49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windows 11 25h2 24in1 (incl. LTSC 24H2) +/- Office 2024 by SmokieBlahBlah 2025.1
 ```bash
 magnet:?xt=urn:btih:D9AEA92B1B0302686C98D8F9CBAAE955F1959AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

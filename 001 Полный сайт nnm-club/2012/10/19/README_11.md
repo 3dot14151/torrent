@@ -20,8 +20,7 @@ Uchusen Sagittarius / Spaceship Sagittarius / Искатели приключе�
 ```bash
 magnet:?xt=urn:btih:B18B8C372C7C81CF14B85BA64FCDED2148F7AEA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E78E2FBC1B7A5720715E18B18440D6F8162AB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Ubuntu — это разрабатываемая сообществом, осн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

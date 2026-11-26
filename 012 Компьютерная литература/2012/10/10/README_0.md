@@ -19,8 +19,7 @@ Ciprian Rusen, Joli Ballew | Windows 8. Step by Step [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:9F5CC46E19A50A6E62A01D07F1F4A32A2B7B1038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Barbara Brundage | Photoshop Elements 11: The Missing Manual [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:F99D5F93F64039A06BDE80DD761E3FA8FB8CB05A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nancy Muir | Windows 8 Plain & Simple [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:52E54A07B5E730CD3959F469300B614C4F273EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ William R. Stanek | Windows 8. Administration Pocket Consultant [2012] [PDF] [En
 ```bash
 magnet:?xt=urn:btih:525F99D9F409215EE1B0F5E613B15EA4AB3930F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Star Trek: Hidden Evil (1999) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8449A61C4EB5E517774915D9E57C312A9662CD3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Trek: Elite Force II (2003) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:2FB7723E44F10FCEDCA93454520DEBF09B608DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Trek: Voyager Elite Force (2000) [Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:BF7E27DCE095D537AA89796215C98F79F82D2D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ METAL GEAR SOLID 2 SUBSTANCE (2003) [Multi] (1.0cu) License GOG
 ```bash
 magnet:?xt=urn:btih:09B32A45EA9F6E73F9941BCBA9F86EAFAD13D0E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ EN-OS — это современный, удобный и производит�
 ```bash
 magnet:?xt=urn:btih:9A80D514F53859986C0EFF2CCB74DC1947DCF749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

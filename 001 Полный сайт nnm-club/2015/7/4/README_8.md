@@ -19,8 +19,7 @@ Discovery: Золотая лихорадка / Gold Rush: 5 season (2014-2015) H
 ```bash
 magnet:?xt=urn:btih:5AE05D37F8F9D3402FA9170BAD3B7696BDDA352E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30A0EBBDAD83FD9226864841029FF7B4F5E8B38F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29027B76C0D30170AB8719E07DD166BF78AF1CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:089104437F2B8DEEB64C0C9E90CA1F096039C791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FC08D1FDC36B6E609760419288ACF0295E668BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B83CD7C978D32EFF93B66DA5747165ED800CDB1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBC31BF4A1C3F7B3D2A6FD4AE16E402353C663C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Cool Reader - это удобная программа для чтения эл�
 ```bash
 magnet:?xt=urn:btih:8896BFCA26ADB05CB62E8B081869D8ABDF1245AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Ultimate Adobe Photoshop Plug-ins Bundle 2015 — Пакет включает в
 ```bash
 magnet:?xt=urn:btih:B95114D6481D09DA19A8D1A110F26C6349EF3F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Microsoft Windows 10 Pro/Home Insider Preview 10.0.10162 [Ru]
 ```bash
 magnet:?xt=urn:btih:5FB005B41AD83C5BBE8A0558A76EC36B74ADB0F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ HTML Academy | Продвинутый онлайн-интенсив «Созда
 ```bash
 magnet:?xt=urn:btih:8470A7B96DD795F1D007667642972692ED69B931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Craft The World - увлекательная песочница с элемен�
 ```bash
 magnet:?xt=urn:btih:F8421285424614444A307E263B476AEED059CE74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

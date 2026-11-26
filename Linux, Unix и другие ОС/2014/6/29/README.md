@@ -23,8 +23,7 @@ Jondo Live-DVD предлагает безопасные, предварител
 ```bash
 magnet:?xt=urn:btih:69D1F4DF0794D255A4DFD1FC7F6A5763B5653FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Peppermint OS 5 [i386, x86-64] 2xCD
 ```bash
 magnet:?xt=urn:btih:8C6F207BAA91F1C50EE48BC0D1230D9C7A1907E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

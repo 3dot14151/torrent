@@ -22,8 +22,7 @@ Diabulus In Musica - Euphonic Entropy (2020) [FLAC|Lossless|image + .cue] <Symph
 ```bash
 magnet:?xt=urn:btih:DA18AE6A37021B45DC21FD95A25134195798EE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Canary - Cage Company (1981) LP [MP3|320 Kbps] <Krautrock, Prog Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:03641D89B5EA6D4FE729564F4AAA368270B123B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:7C3A533A63D61252985BF7B624AC11FCDF719B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Crystal Viper - The Cult (2020) [MP3|320 Kbps] <Heavy Metal, Female Vocals>
 ```bash
 magnet:?xt=urn:btih:94FE2FC7D9AE83FED04C97438B5287379A3768C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0003057D1B4F289C2D0968B301C77B933A87BEFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

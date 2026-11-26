@@ -19,8 +19,7 @@ VENARI - Escape Room Adventure (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DED74BCBDDFD1443CE88F0CE3B2307DE6757D341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Don't Shout Together (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:31C516E8BEDCC730693732B89601C92AE414DB1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ El Dorado: The Golden City Builder – это увлекательная стр�
 ```bash
 magnet:?xt=urn:btih:9133ADDFCF149A1DE96AF7953DCD18DD1F1E2BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

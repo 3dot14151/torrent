@@ -19,8 +19,7 @@ Police Simulator: Patrol Duty (2019) [Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9DA83CF3FC236C7DE07D21A8208B211FE8132DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Monster Jam Steel Titans 2 – это продолжение популярно�
 ```bash
 magnet:?xt=urn:btih:AAF291A654C4D27F48D7198D8DBAD866D9D1DAD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Persona 5 Strikers является компьютерной ролевой иг
 ```bash
 magnet:?xt=urn:btih:29F27E0205D86A67FC6F168044BC24196DFF7ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Batman: Arkham City / Бэтмен: Аркхем Сити (2012) [Ru/En] (1.1/dl
 ```bash
 magnet:?xt=urn:btih:70E7993F3DF3CA9F036A679634298B29FF356275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ The Outer Worlds - однопользовательская научно-фан�
 ```bash
 magnet:?xt=urn:btih:DFEC32B68DFE0C574FC5ADD30D911F9460DFEC5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Joyce Manor - Of All Things I Will Soon Grow Tired (2012) [MP3|320 кб/с]<Alte
 ```bash
 magnet:?xt=urn:btih:09355ECEAE3E07B98B45737AAAF77C6CDB6B6551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Joyce Manor - Never Hungover Again (2014) [MP3|320 кб/с]<Alternative/ Indie/ 
 ```bash
 magnet:?xt=urn:btih:D90058E2EFDFE2A02F410F2F157269D0381CF97E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Joyce Manor - Joyce Manor (2011) [MP3|320 кб/с]<Alternative/ Indie/ Punk Rock
 ```bash
 magnet:?xt=urn:btih:3E740D8C31A02999138144CD40196831B474E98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Anglo Jackson - Anglo Jackson (2008) [MP3|320 кб/с]<Hard Rock, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:E35594ABE79103951BCC7A760C08BC5D2AE4D533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Renegade - Thunder Knows No Mercy (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CE9F6AFD3FEC8D7EED193737CB3CFBA05C2955F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Omut - Дзесяць Шляхоу Праз Дрыгву (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:2F040EC0A4B8E3F9544CEBDD04200FA087986F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Colaars - Native EP (2014) [MP3|320 Kbps]<Indie Rock, Math Rock, Electronic>
 ```bash
 magnet:?xt=urn:btih:EE57024FC069C507AB8C1E10D17D235B99D16215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Temples - Sun Structures (2014) [MP3|320 кб/с]<Alternative/ Indie/ Neo - Psyc
 ```bash
 magnet:?xt=urn:btih:466CD99F0C9557E7AC55F9F17EE7F908F0986D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Arranged By, Conductor – Tom Baker (3)
 ```bash
 magnet:?xt=urn:btih:10C3CD64A5FD37154284C1894C2EC556916D5CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ The Rolling Stones - Through The Past, Darkly (Big Hits Vol.2) (1969) remastered
 ```bash
 magnet:?xt=urn:btih:EAF5ECCEC44513D37D56742B3DEE94411014C540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ Scorpions - Blackout (1982) Remastered/2014, Audio Fidelity [MP3|320 кб/с]<Ha
 ```bash
 magnet:?xt=urn:btih:5DAD21B7D0EED79973A5B2F1CF2128E1F092C508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +391,7 @@ Beatles - Abbey Road (1969) remastered /1987, EMI Records/ [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:E00C7CA13C2A75747DC0BE80E496EBC3504F5ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +422,7 @@ Deep Purple - Machine Head (1972) /1987, Warner Bros. Records/ [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:EECFB95CE6751C370E791B9AE9040FA2BC6991AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +452,7 @@ Pink Floyd - Meddle (1971) [FLAC|Lossless]<Rock, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:EFDA91B27F5B7A33544E35F79E5C2463C5DD0434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Lich King - Toxic Zombie Onslaught (2008) [WavPack|Lossless|image + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:29657C058A21DF4BB2A201165631A5E087C34F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lich King - World Gone Dead (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C25CC890D40E7308B038067DEE0B56F89F228898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lich King - Born of the Bomb (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:2A427F3B700F90D9997F37BDDB2DDC3D2291E012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lich King - Necromantic Maelstrom (2007) [WavPack|Lossless|image + .cue] <Thrash
 ```bash
 magnet:?xt=urn:btih:68FD3A15CB96887AB3F16FE933515B53F6BE81B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Slugdge - Esoteric Malacology (2018) [WavPack|Lossless|image + .cue] <Technical 
 ```bash
 magnet:?xt=urn:btih:28C19DBC00454B036B251BCE2D756FC50AB79253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Memoria Avenue - Memoria Avenue (2021) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:E7BF75162D94AAC7F7404E17D3406FC883EEB1EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Groundbreaker - Soul To Soul (2021) Japan [FLAC|Lossless|image + .cue] <AOR>
 ```bash
 magnet:?xt=urn:btih:C0B545D8D6CD66036C78E3D0136C1E6BE6580C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Hypocrisy - Worship (2021) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2C4D60F3EA7250EBF14EA504723C156D77816AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AE34113813152CC467A2B28EDDFC15ADFB16CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|image + .cue] <Symp
 ```bash
 magnet:?xt=urn:btih:E90FC4BFCB5401D63AA99685BE246DE4236B6CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

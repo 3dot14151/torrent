@@ -19,8 +19,7 @@ Kiwi VPN Proxy от Macdep - это лучший быстрый и лучший 
 ```bash
 magnet:?xt=urn:btih:DCF06172ADF6031AC815652B1375150780DB394B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

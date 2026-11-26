@@ -19,8 +19,7 @@ Trailblazers (2018) [Multi] (5.6.5.11926743) License GOG
 ```bash
 magnet:?xt=urn:btih:0FD3EDA6F4815AE5EE7DD3A03782B38A464053AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Edge of Reality 7: Call of the Hills / Край реальности 7: Зов �
 ```bash
 magnet:?xt=urn:btih:E3DF77223AAA09E1C5B512424596C7B569CE90A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Book of Unwritten Tales (2012) [Multi] (2.0.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:6390A38CB33529E8BB907F900D44A28031AFA139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

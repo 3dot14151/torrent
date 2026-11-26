@@ -19,8 +19,7 @@ Mexicana Deadly Holiday (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:838ADCF05920746D147BC6E1722AEA61B6216638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Expedition 6: Smithsonian The Hope Diamond Collector's Edition (2013) [En
 ```bash
 magnet:?xt=urn:btih:D78D8D9ADF3E5A8F8D702C06309EEECA43F5FCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Canvas 2: Blood and Stone Collector's Edition / Холcт Тьмы: Кро�
 ```bash
 magnet:?xt=urn:btih:76E6C0186F8E6A1CF2A9249D6DBA9FCFE4427471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ AMBER: Journeys Beyond (1996) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:7F650B769332447B63E785910A31DAAF2240626D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Defender's Quest - тактическая RPG. Чтобы победить по�
 ```bash
 magnet:?xt=urn:btih:65D8E3C9BF0D420DD8A7704B1A72B866B15C7984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Adelantado Trilogy: Book Three / Аделантадо: Книга третья (
 ```bash
 magnet:?xt=urn:btih:0BE9FB7587DC331B678FD6FDBB7123B365FC2F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Hacker Evolution Duality (2011) [En] (2.05/3DLC) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:321210DFBC074AFADEB2C1DC6227DB3BDBB6747E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Viscera Cleanup Detail: Santa's Rampage (2013) [En] (1.0) License iNLAWS
 ```bash
 magnet:?xt=urn:btih:0DA5A2A8B915121D71A8A83CC607E879B61360BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ LEGO Marvel Super Heroes – это совершенно новая истори
 ```bash
 magnet:?xt=urn:btih:45A30FDADEFF6D453B7FCA30FFD1C9104C50FD18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

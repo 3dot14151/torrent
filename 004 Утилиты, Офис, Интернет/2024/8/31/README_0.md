@@ -19,8 +19,7 @@ KeepBeats (Repack & Portable) — это инновационное и прос�
 ```bash
 magnet:?xt=urn:btih:406EFB429362B1C52D6AB4621BDF96B632C05C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PasteBar 0.6.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0FE896321A10ACDF6D78B01AD2C9F77BCB734DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KeepStreams — это удобный и мощный инструмент дл�
 ```bash
 magnet:?xt=urn:btih:A5DE96BE2AF25A76BB2BE01DA3FB2A7CD137CC3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rename Expert - программа предназначена для быстр�
 ```bash
 magnet:?xt=urn:btih:89675352F3DE415AD7C3B2F0BDD99B5EDFB716F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

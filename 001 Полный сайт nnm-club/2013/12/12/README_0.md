@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D0A09B3E9870459C42282B21081DF7CD6DA906D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Nina Savary - Tales Of Fire (2013) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:8C8A3B8E87AFDE5EC1ACDD292B5A8A021244B88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Hysteria - Cerebral Tales (2010) [FLAC|Lossless|WEB-DL]<Full-On, Twilight>
 ```bash
 magnet:?xt=urn:btih:8157B4DC09134ADF9D3EE33AE218E79C38A77B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Dead And Divine - 4 Альбома (2005-2011) [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:E143CEEDB846FA76CEB85763837626A8314CF5B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4045D29E738BF7A42F66F71FF3C5021328A01EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F69B90D259BC61B2CA386CFD9F7EFBA33F822DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8E44828F32702D962921915328D65E0C0CA7D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DDCC991E82C59B3FB7917559A563629D33D965E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ Almah - Unfold (2013) [FLAC|Lossless]<Progressive Metal/Power Metal>
 ```bash
 magnet:?xt=urn:btih:368A484991A5760DD50ADFF2FF1473AA184069D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ Sunrise Auranaut - Way Of The King (2013) [FLAC|Lossless]<Progressive Rock, Inst
 ```bash
 magnet:?xt=urn:btih:0F1DCA52418DF1830E4A13BFCF1A9914F1E36388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EFA26763630B1CDF3916C890F18476647AA026E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ VA - Зарубежные Новинки Vol.153 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:11F0601DCB0311C63E54E2BD0DA64A7D57D1F410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ VA - UKF Drum & Bass 2013 (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:5FD361660B9DA043EE93EA23FBFA14512E1768FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC587ECC8EC658743C65BB06AE35ABF2D07FF06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ Juan Pablo Torres - Together Again (2002) [FLAC|Lossless]<Latin Jazz, Cuban Jazz
 ```bash
 magnet:?xt=urn:btih:CB6136DB9936F1A9FE8C46A29BC87AA35810AFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31CCB261D118BB103304EB33A119FAF54ABF9F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:033FA329B38DBB14FEFE5AA5E4AAE6F0913EA7E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:394BCFB5FCD1FF8B0F36D849A112A6319A7A54FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ Dream Hills: Captured Magic (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E022B79C68539DDD5702B11F2A6C36727BDE61CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A2E8F0A2D7BFEDC98BC236A46F758AB24A8D22D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0FAE1340915E934D30F73AB262732E316EA74B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D72E3A497186F06C3F79A98FB6042BD7B89CAF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ Beyond the Dawn, Muldeponie - A New Day (Split with Muldeponie) (2013) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:D619AAB4CB9AB3F78D73ACE4070B62DD6FAA89CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ VA - Мир Сновидений. Сборник Dance Музыки (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:1053222807C4FD657BE8D4145D6675336B4EC620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ Joyce Cooling - Third Wish (2001) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:52ED8B7C12DE9E14E73142F11D70BEECEA10DCAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09E20D60618514CA2F1A903DEA0923F5B3C21140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

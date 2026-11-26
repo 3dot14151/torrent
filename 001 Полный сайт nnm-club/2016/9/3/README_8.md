@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F07AD9255D365C93D808E0C18B50A521D678CCCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Bаttlеfіеld 4™ – это определяющий для жанра, по
 ```bash
 magnet:?xt=urn:btih:8AFC93A5BCDA752E9CC4C8A120FB0EECF4BB8263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A647BE6D0F276CE980229CBA15F909BD2C3BDFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

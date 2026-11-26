@@ -22,8 +22,7 @@ Sergey Golovin - Sculpture (2018) [FLAC|Lossless|Web-DL|tracks] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:FDAB6BA698566575557B9830973E9524290E097F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

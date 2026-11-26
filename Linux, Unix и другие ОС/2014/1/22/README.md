@@ -23,8 +23,7 @@ Bridge Linux основан на Arch Linux, и включает в себя г�
 ```bash
 magnet:?xt=urn:btih:14624C092CFB76E5B651EF02B835C7962F4D8658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Zentyal — это пакет серверного программного об
 ```bash
 magnet:?xt=urn:btih:D5C3CCDA97F6AAE4B5B77A4A4F0267B945FC7BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

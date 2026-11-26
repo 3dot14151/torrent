@@ -22,8 +22,7 @@ Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, Ne
 ```bash
 magnet:?xt=urn:btih:EA3824C5253A25DA16BF5F765E988682004A1948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

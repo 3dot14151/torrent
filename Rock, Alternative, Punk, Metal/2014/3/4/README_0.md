@@ -27,8 +27,7 @@ Axenstar - Perpetual Twilight (2002) [APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:7D8B39326F6FF7BD6B07493C5A679C09D1FF49E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Little Caesar - Influence (1992) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:05E1978BFC32669414CF1611F4BE6B00C991E3E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ The Fray - Helios (2014) [FLAC|Lossless]<Alternative, Pop-Rock, Piano-Rock>
 ```bash
 magnet:?xt=urn:btih:06F887D063C7BBBED4BD4DE64181A884E32E5CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Pink Floyd - From Abbey Road to Britannia Row - The Extraction Tapes [unreleased
 ```bash
 magnet:?xt=urn:btih:C900088F9A2D4045D4EC86FC716E9C0DF8217D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

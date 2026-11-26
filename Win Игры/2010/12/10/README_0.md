@@ -21,8 +21,7 @@ The Scourge Project: Episodes 1 and 2 / The  Scourge Project: Проект БИ�
 ```bash
 magnet:?xt=urn:btih:4D03477AF117E2B9B87369E6D9A0D3454FC8B67F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Roads of Rome 2 / Дороги Рима 2 (P) [Ru] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Mystery of Mortlake Mansion / Тайна усадьбы Мортлейк (P) [Ru
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

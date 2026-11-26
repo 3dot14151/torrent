@@ -22,8 +22,7 @@ Angellore - La Litanie Des Cendres (2015) [FLAC|Lossless|image + .cue] <Doom Met
 ```bash
 magnet:?xt=urn:btih:0A9C150ECE251D29BEB4851DF9E4704E657A6A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Grin - Translucent Blades (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Shoe
 ```bash
 magnet:?xt=urn:btih:3E6ECEEA9C368BBE0F206ECDF427B06B8E38FFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Scandal - Warrior (1984) [FLAC|Lossless|image + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:9D3F28374F4F66F88E2AA957E0B53A7221B0446F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jack Green - The Party At The End Of The World (2020) [MP3|320 Kbps] <Blues Rock
 ```bash
 magnet:?xt=urn:btih:48A47C3443721BE8E1BFDFE987BAA45CCDFC6F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3AABB84230557A6F2D1A4FC3B996748EBA31FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Algiers - There Is No Year (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:89336DCD76CEB5C86C3D8C3598ADB175AB2F3DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ KUZMIN Absolute Band - Я – твой рокенрол (2020) Single [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:5ADC0278871CE96DC10CC7D3BEAD113E0781C34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - 70s Forever: The Ultimate Rock & Pop Classics (2019) 3CD [MP3|320 Kbps] <Ro
 ```bash
 magnet:?xt=urn:btih:3D136731603686D178DF8413C8092B0741DA2978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Angellore - Premieres Liturgies - Soupirs D'Aurore (2012) Compilation, Limited E
 ```bash
 magnet:?xt=urn:btih:513E6DC22BF33B5411E9599F76FA07AA6514268A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Angellore - Errances (2013) [FLAC|Lossless|image + .cue] <Doom Metal, Death Meta
 ```bash
 magnet:?xt=urn:btih:2F3CD3E0ED6321FBC285B35CF9ABF41BC4CF13DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

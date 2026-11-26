@@ -19,8 +19,7 @@ MarsEdit 4 v4.5.1 [En]
 ```bash
 magnet:?xt=urn:btih:A912173DFD3AEB1F7B40257117E84153B2B2E464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Downtown Association - Urban Legends (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:178C5CDBAB576443D9195B73354E62E05E75E44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Crunkz - Never Stop Ep.3 (Live From Reichsburg Cochem) (2021-08-22) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:C9EB46D9156CB662B941A389EB8F6974F854B647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Sound Bar C
 ```bash
 magnet:?xt=urn:btih:AD3769142D923094B8AB3963ADBED119C72FB189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Crooked Colours - Langata (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Orga
 ```bash
 magnet:?xt=urn:btih:BEF4F0D500027EA82535CCF35CFA1E20CA90624C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Music Tag Editor - редактор музыкальных тегов помож
 ```bash
 magnet:?xt=urn:btih:DFAAD7A02C862DCAE8F2F7585FE1E08EC6005481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8DF7411EB77D9B71AC9FCF0A04A536AFFEDBF11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Cisdem Duplicate Finder - поиск дубликатов и их удалени
 ```bash
 magnet:?xt=urn:btih:92230EC7FB5939C33A961C01340809302CEE1F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ ImageRanger - программа позволит найти все нужные
 ```bash
 magnet:?xt=urn:btih:28D4EBC9FB4FE03C2229DDAFB15A6FDD59A120E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Valentina Studio - это идеальный инструмент управле
 ```bash
 magnet:?xt=urn:btih:55EDF44B87CCCB8A3F315448FD55625CD768C5AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Portrait - At One with None (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:89F00013BB5C4ADC5C1446BA9F5EABFDC8F0C8D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Justus - Exclusive Mix (LIVE From Dutch Waters) (2021-08-09) [MP3|320 Kbps] <Pro
 ```bash
 magnet:?xt=urn:btih:3D1BC0B493EBFAC37843222819C20219E74B0071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ EtreCheckPro 6.5.2 [En]
 ```bash
 magnet:?xt=urn:btih:BEE221890797F34FF97A2E9937F54CB71F4D1067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Twitterrific - Простой в использовании, Истинная п
 ```bash
 magnet:?xt=urn:btih:66055006EBB70D1E74AC7D01076F6CB6664340B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ VA - Best New DnB Hype (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
 ```bash
 magnet:?xt=urn:btih:835C803523E8BABE5AE8CDC1F07C438BFB8CE9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ The Mission - A Garden Of Earthly Delights: The Mercury Years (2021) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:CF6C025D98441B821F9CBD6B6D4810BD00710A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ UltraCompare — это текстовый редактор, оптимизир�
 ```bash
 magnet:?xt=urn:btih:AA1F9F904DFCEC06A4AEC5EC08F18C70F8845745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:571A43E13A9B84DB1F4A21C770B66958B630F0BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ Fission 2.7.1 [En]
 ```bash
 magnet:?xt=urn:btih:840B8B4D119FA68A30AB307D769F6E1CCE6B1468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ VA - NRW: Clubbing Future House (2021) [MP3|320 Kbps] <House, Electro>
 ```bash
 magnet:?xt=urn:btih:EFD26C64F2AA092C6AAB1C53CDF43A9F1004E654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3486F49D7A83349C8D8992CE0DD6A1C8244A8591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ VA - Beatport Synth Electronic: Sound Pack #341 (2021) [MP3|320 Kbps] <Synthwave
 ```bash
 magnet:?xt=urn:btih:9DBBC2BA20A8BCA29C2563B44D56D636D36360D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ n-Track Studio Suite 9.1.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:59942897297A2002C25570BCBA3DE5E2D79FCB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B439BFDAC1050B630D3E4695CE852861D32875C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ UltraEdit является многофункциональным многоок
 ```bash
 magnet:?xt=urn:btih:DC896493085B43EB86D3D1AAFA9CD5B6D6F42401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C544AAE20C4ABD0725BEE73068B19A060F8198C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

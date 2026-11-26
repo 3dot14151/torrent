@@ -19,8 +19,7 @@ Hunting Unlimited 2010 (2009) [Ru] (1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:E2BAB63135F719DD59BB2ECB2C5E438528E9EDCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RYAN BLACK (2017) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C10CABB72DB0631F1D48AEB45411A9E1172DE449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

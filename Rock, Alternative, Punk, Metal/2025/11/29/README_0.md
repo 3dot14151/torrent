@@ -22,8 +22,7 @@ Deform - Antidote (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal
 ```bash
 magnet:?xt=urn:btih:3B1AB389E8491992913C83565C6D93255D0D0239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Iron Brigade - Ill Fated Voyage (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 ```bash
 magnet:?xt=urn:btih:703ABABABFEF9CDC1F3DBE064CB37C179A3FBEED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ https://www.discogs.com/ru/artist/260935-Dream-TheaterПродолжительн
 ```bash
 magnet:?xt=urn:btih:8F0DDE3C380072E591C671672FE19D5FB27F0619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Queen - A Night At The Odeon (2015) SHM-CD, Japanese Edition, Reissue, 2024, EMI
 ```bash
 magnet:?xt=urn:btih:8DDCC6A11A0535243B5654AABD6226F08AA8D695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Dream Theater - Quarantième: Live À Paris (2025) [MP3|320 Kbps] <Progressive M
 ```bash
 magnet:?xt=urn:btih:C9B27C6B8D099823BD5652D4CF29450D2E816C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Lynch Mob - Dancing With The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:AF0C28F82ADF2C656D18E8ABC2122B18C58719D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Factoria - All Synthetic (2025) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:AAB373AF15FF7AF9CB333ECD7996A33E019D35A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ EXCIDE - Bastard Hymns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardco
 ```bash
 magnet:?xt=urn:btih:CE630BFD28B9E4924CFCA65310F21D29F9503218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Leah Martin-Brown - Love & Other Crimes (2025) [FLAC 24/48|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:86A2430091CE2E21282DD70D7E58C750FD4BF335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ Buckcherry - Black Butterfly (2008) Deluxe, 2025, Endurance Music Group [FLAC 16
 ```bash
 magnet:?xt=urn:btih:8D180CF4FBA91F48C78B3F09A2F809315FC166B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B09B825E0579367092C704A41DFD5FDFCFD117F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

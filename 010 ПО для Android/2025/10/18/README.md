@@ -20,8 +20,7 @@ TV+: Бесплатное Онлайн Телевидение
 ```bash
 magnet:?xt=urn:btih:BE2556F2DD61D7E0D5019F7E30C73225FA2DDCC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2425CE09A9776DF8B9C6D77B3C90091C1585C488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E222E9633DBE36E93AB40E405A7B584AB694990E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Genius Art: Image AI Generator v1.5.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9E9E2B45DCD225BF1AE0583D41CB6974CD72490C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VK Музыка: песни и подкасты v8.0 b11466 Mod by VK Equals [Ru
 ```bash
 magnet:?xt=urn:btih:8D877F1CCE9C86EF489E7244EBDEAA7879FE2A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5C4220550DCCDEE9ADE68A9780AF39EFDDD4A83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81099464AF92D521F8DC835CE72858303878EE75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Auto Reply: автоответчик v5.8 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AE16048BB56EB240B2BD94B1A9F35D1A27F24E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Purvpn 10.1+ [En/Farsi]
 ```bash
 magnet:?xt=urn:btih:F70A007E87EA9E2C67FCBE5DAF32A4DDF6D3B21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ openSUSE 13.1 Milestone 4 [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:84F7A6C23C69F6624A1912A90581890131A99C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Mageia 4 Alpha I [i586, x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:B9A408AB672D528E814B91B5E08BE908601E2B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ openSUSE 13.1 Live Milestone 4 [i586, x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:78EAFBDCFCBC2992529EF8D0E723AA843B2EAD80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

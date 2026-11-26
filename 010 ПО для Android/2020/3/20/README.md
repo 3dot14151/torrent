@@ -19,8 +19,7 @@ Kitchen Book / Кухонная книга v26.0.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:75317E2F90618950EB45EC65BCD2DB09F89021FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

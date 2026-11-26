@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:B49A2F7AF171AFE7120A147C4D8C866744E0150B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4AF4EAF9A9A2EA1C75B42ED4EE2871438C89DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Leaf проще как по функциям, так и по внешнему в
 ```bash
 magnet:?xt=urn:btih:7F1A252F1302F88F07C77DBAF242579C262D4A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Tuneskit конвертирует MP4 видео файлы ,поможет лю
 ```bash
 magnet:?xt=urn:btih:8BEF8A9C812B4D4C1385CAEEFF32D48BA8F603F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Sophisticated Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:747F8C517E52916381E84996FB18996B3A24D50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - Trance Top Spring (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:4F314815BF80FDBF78D33C94397D0589B5D8D454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Sidney Bechet - The Fabulous Sidney Bechet (1951, 1953) 1999, Blue Note [APE|Los
 ```bash
 magnet:?xt=urn:btih:1462576D0652333068972D2A8DA1594B75AB35D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - Always Alive 2017 Part One (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:719F720215C074459ABC5DC0ABA17773B370DB6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24647E09F05A723026658C1CC651D633C064E3DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - Redux Miami Selection (Mixed By Guy Alexander) (2017) [MP3|320 Kbps] <Tranc
 ```bash
 magnet:?xt=urn:btih:27CDB7F602092BF9CC1A088426F9ADB02E35F0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Another Messiah - Dark Dreams, My Child (2007) [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:F00C39A6DD4619E2A88DAA1CF6A4CD24CC7E7EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Frailty - Ways of the Dead (2017) [MP3|320 Kbps] <Doom, Death Metal>
 ```bash
 magnet:?xt=urn:btih:E1CBD392C458F549F2012930AE857891EAF398E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Somehow (03:50)(   Читать дальше...   )Жанр: RockПродолж�
 ```bash
 magnet:?xt=urn:btih:833194C1F6606CBE539942908C8A9A62A3515BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ VA - Beatport Trance  Pack (31.03.) (2017) [MP3|320 Kbps] <Trance, Energy, Uplif
 ```bash
 magnet:?xt=urn:btih:8EA7A9619C3FAEFF6959FBA037A46E71B866AB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Cosmic Gate - Earth Mover (Platinum Edition) (2009) [MP3|320 Kbps] <Trance, Prog
 ```bash
 magnet:?xt=urn:btih:2FA32171490DECD16191FC3C8FCBA37653435FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ Orpheus Blade - Wolf's Cry (2015) [MP3|320 Kbps] <Progressive Metal, Avant-Garde
 ```bash
 magnet:?xt=urn:btih:B77CA3933274AC5C7BE7A62D0ABE39C059A203E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:1AAFEF14BA5F9F8E210196C42264F153C59A0CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Quiver — это записная книжка, специально созда
 ```bash
 magnet:?xt=urn:btih:6DF9FDEDC733B4D2A3399EE54689681CDD85DF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D307C11E2065C181BBB113D4D26778AE1ACBF6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ Markus Schulz
 ```bash
 magnet:?xt=urn:btih:2018FF0AE32B04FDBBF732248340644F527C9125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ VA - 100 House Matrix (2017) [MP3|320 Kbps] <House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:CE45929A0EE9414336DBA2534FBB99AA471FE286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ Come To Dolly - Desire (2017) [MP3|320 Kbps] <Alternative Metal, Progressive Met
 ```bash
 magnet:?xt=urn:btih:76572CC064D53C31F3295A5C459CEE9D9F94E297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2705A6EA49DD4BFC0CE85ACAC38CE506B645C286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BF6BDFBE7F0210F62EE70FCD7B248D38B53E473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ Call The Mothership - 2 Альбома (2014-2017) [MP3|320 кб/с]<Progressive
 ```bash
 magnet:?xt=urn:btih:ECA7274B55A1AB742362B6C48E8E1CF22663289B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

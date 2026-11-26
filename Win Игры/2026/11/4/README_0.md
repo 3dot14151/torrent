@@ -19,8 +19,7 @@ The Darkness II (2) (2012) [Ru/En] (1.1/dlc) Repack Mizantrop1337 [Limited Editi
 ```bash
 magnet:?xt=urn:btih:C8DDBB9F2ED948D0E03A8C4797AA956CE4BBAF1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Neyyah - это атмосферное приключение от первог�
 ```bash
 magnet:?xt=urn:btih:C28A2F7CEA8439FDA52A98F2D211FEF37BB7B446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cop Bastard - это агрессивный ретро‑шутер от пер�
 ```bash
 magnet:?xt=urn:btih:DE9502922AE918704691592AC7AEA6B6AAE5404F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Boss Gangster: Criminal Empire - это симулятор криминал�
 ```bash
 magnet:?xt=urn:btih:06CD453C0AD85943B5B4FE65E9C59E512F38A333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sword of the Sea (2025) [Ru/Multi] (101869) License GOG
 ```bash
 magnet:?xt=urn:btih:4C4BF55D4B02FB78F53AC32C2D40442973AF686A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Probably Stolen: Cyberpunk Shopkeeper Sim - это жёсткий симулят
 ```bash
 magnet:?xt=urn:btih:318E115259F2694A76BDC313C895DC3784066FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Silica объединяет шутер от первого лица и стра�
 ```bash
 magnet:?xt=urn:btih:99F02E00C4E6ADCAD515022782920C7EAB722DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Godzilla: Destroy All Monsters Melee Remastered возвращает трёхм�
 ```bash
 magnet:?xt=urn:btih:301409CE157AF94360BC9F2B1945CF40438E16AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Worship - мрачная приключенческая игра с элемен
 ```bash
 magnet:?xt=urn:btih:F9A3741A7E302572964FC68891AD63B66452EE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

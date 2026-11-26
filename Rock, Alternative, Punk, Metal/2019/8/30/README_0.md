@@ -22,8 +22,7 @@ Fly Pan Am - C'est ca (2019) [FLAC|Lossless|tracks + .cue] <Post-rock, Experimen
 ```bash
 magnet:?xt=urn:btih:FEB243BF940CC36E078143E9E5D632762D6DF42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Saor - Forgotten Paths (2019) [FLAC|Lossless|tracks + .cue] <Black Metal, Caledo
 ```bash
 magnet:?xt=urn:btih:979B1CCE93661FB5971CDE0E425E5C4DBDD9816C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

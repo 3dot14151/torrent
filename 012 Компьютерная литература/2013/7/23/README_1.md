@@ -19,8 +19,7 @@ Macromedia Flash MX- это возможность импортировать ц
 ```bash
 magnet:?xt=urn:btih:563AC1A6F1CEC6A753CFF2771E3D7F58888175ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B63C3B50DD3C7EEB3522C90A6750F830AE58AAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

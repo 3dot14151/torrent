@@ -19,8 +19,7 @@ LEGO The Hobbit / LEGO Хоббит (2014) [Ru/En] (1.0.0.21750) RePack Audiosla
 ```bash
 magnet:?xt=urn:btih:F88F7B1E66CA3135B6E68647F7875E368DD51B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sine Mora — горизонтальный экшен, который броса
 ```bash
 magnet:?xt=urn:btih:269E7F83BACCC9B940D35EFE54A38F7DC122802B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ LEGO The Hobbit / LEGO Хоббит (2014) [Ru/Multi] (1.0.0.21750) Repack z10yd
 ```bash
 magnet:?xt=urn:btih:24EA29961536842B8804E5A326037274B2657E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

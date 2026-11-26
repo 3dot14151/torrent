@@ -22,8 +22,7 @@ Led Zeppelin - IV (1971) [FLAC 2.0 24/96 | tracks (Reel-to-Reel Rip)]<Rock>
 ```bash
 magnet:?xt=urn:btih:201D0336BABEE1528F539A4F45741B61C5376482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

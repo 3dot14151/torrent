@@ -22,8 +22,7 @@ Still Remains - The Serpent (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalco
 ```bash
 magnet:?xt=urn:btih:418ACE6BF65EEF9BB925C1254AAFAB010D346F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

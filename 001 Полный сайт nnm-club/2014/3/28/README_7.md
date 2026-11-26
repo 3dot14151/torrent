@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:812E5FF3DD081AE9283E56412C65D8A6A7D08752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32D76E52292C77C9FBEBF0E9D1E13077DD206773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Toolroom Knights: Mixed By Prok & Fitch (2013) [MP3|320 кб/с]<House, Tec
 ```bash
 magnet:?xt=urn:btih:F9C68332A6653FD8B92CACAAC920C225F0878BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14C08480D3CC816CDF8FF8C2168B29D78A36F046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CB8888369341779CD6A417722892F2D05075071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ The Afghan Whigs - Do To The Beast (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:E32CF0136C12179371DEBAE375C69A2048F5A393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ The Honey Trees - Bright Fire (2014) [MP3|320 кб/с]<Indie Rock, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:EFBBA9CAC4616D0F6978127963DEDCD6788B549E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Trollfest - Kaptein Kaos (2014) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:D6F745F16C29D64F8750D447F234809A40C82300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Acker Bilk - At His Best (1998) [FLAC|Lossless]<Easy Listening, Traditional Jazz
 ```bash
 magnet:?xt=urn:btih:AF2A8A8CB3170C6FD35468316551B0085E5C6D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39DD6FBD47DB69F4EEAA0D75FC64D7B7C1CF7F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ VA - Mixmag Presents Timo Maas: Dirty Trancing (2014) [MP3|320 кб/с]<Progress
 ```bash
 magnet:?xt=urn:btih:E6A511500096E422A0E71F957222E5DE64358451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ VA - Top Club Music World Hits 21314 (2014) [MP3|320 кб/с]<House, Progressive
 ```bash
 magnet:?xt=urn:btih:3AD559402EF985ECC872C3A36FD0F6ED9C4FDD00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D42CAB523654A1DBBE24D9A4CEFAD52131FADDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +425,7 @@ Beegie Adair - Cheek to Cheek (2006) [FLAC|Lossless]<Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:06769412F9EFF28C7EA8FF02F30FBD9BCA17465B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +453,7 @@ Final Cut Library Manager запоминает библиотеки, котор�
 ```bash
 magnet:?xt=urn:btih:4EED9B8725461867EA07BE0501DCB69D525820FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:645954D9165B7CDA58685B5A109FCECB1FE03CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:035C90F399EE7CB8D1CF0B9E585AAF6E420352F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DD4DDD5B3526C0C0B62F0301237F2185F06C802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ Encores:
 ```bash
 magnet:?xt=urn:btih:DD22A5BD4EA223070F9A432D1E5B31019B9B219B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ Jay-Tee feat. Mike Stern, Alain Caron, Martijn van Iterson - Don't Jay Walk (201
 ```bash
 magnet:?xt=urn:btih:235A7E5AA4050485868EDF9BD4A1868265E026D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01A463CBD641307A82145062A1353A10823C2E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +650,7 @@ Fuel for Pages - это удивительное дополнение для п�
 ```bash
 magnet:?xt=urn:btih:3F68B00E66F6C879A13F4B813431CB0A56B70207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98E6DBC0A3AC144794EF478171BE639DCD13DF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:473785E6199E263E9D74D9BCB5BA49017A3519C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ Manchester Orchestra - Cope (2014) [MP3|192 кб/с]<Alternative Rock, Stoner Ro
 ```bash
 magnet:?xt=urn:btih:FB1EC7980A61C1343BA669D9FB4255E224974FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +762,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70CDB17332543AA51ADD3967D1AFD15E00D9FF73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

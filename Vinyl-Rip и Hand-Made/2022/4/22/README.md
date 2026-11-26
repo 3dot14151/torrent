@@ -22,8 +22,7 @@ A4 How Can You Expect To Be Taken Seriously?(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:C3D48E4BEBFC353927225F77ADD54A0E6D98EE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

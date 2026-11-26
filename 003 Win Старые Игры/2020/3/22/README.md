@@ -19,8 +19,7 @@ Slave Zero (1999) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D0EE1E221F30BAFAB3E4D1B29A5EE6D1180D8704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

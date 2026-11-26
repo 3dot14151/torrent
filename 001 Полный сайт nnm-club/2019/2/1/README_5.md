@@ -22,8 +22,7 @@ Carl Saunders - Be Bop Big Band (2002) Sea Breeze Jazz [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:E6CA28CC5A9D3813C7B3B90EAD9193AF558A598E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dick Haymes - My Heart Tells Me (1950-e - 1960-e) 1997, Memoir [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:BE6E309C8A4BE07C28F694B87DD6317C70C2B00E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 magnet:?xt=urn:btih:1E48D6AAAB7543BE6E9B83A4B0465B8EFF8163B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Carl Saunders - Out Of The Blue (1996) SNL Records [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:350CC353D6142D2AF70E111F937821405D6B3024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Eduardo Briganty - Microgramas (2018) El Muelle Records [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:13E92325C0ADEFAAB968E34382710289ADD93D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Dick Haymes with Harry James & Benny Goodman - Serenading with The Big Bands (19
 ```bash
 magnet:?xt=urn:btih:6BD0FA5A11BAAC6D9FBBFE227C3F4359C0CD30E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Swervedriver - Future Ruins (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Al
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ The Boswell Sisters - Shout, Sister, Shout! (1930-e) 2003, Asv Living Era [FLAC|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA192E46DD9ABE8541659F46A8010D6C581D8B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Menace - Impact Velocity (2014) Limited Edition [FLAC|Lossless|image + .cue] <Pr
 ```bash
 magnet:?xt=urn:btih:C013C5EF01D7B7439574AAF2801BCB67141D3E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C93A046B90E5E7DA071565737FB67E1ED42AA671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ RapidWeaver отлично подойдет тем, кто ищет ПО для 
 ```bash
 magnet:?xt=urn:btih:8F1E084C3FC9448645585A28302A59D5A8FDA3E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Girlpool - What Chaos Is Imaginary (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie P
 ```bash
 magnet:?xt=urn:btih:317A99F6798FAA8DF2A06A1119C2D716ABF7FD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ VA - #WeAreTrance #008-18-08 (Mixed by XiJaro & Pitch) (2018) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:749E6E60C733B257D540DA00A446167F5C80063B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ Markus Schulz:
 ```bash
 magnet:?xt=urn:btih:5A64D19E61B6585194697DE71A7934BD37BBE724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD33D4056B99F9A2CFDA85E90400580449BA8DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ PatterNodes - хорошо продуманный и настраиваемый 
 ```bash
 magnet:?xt=urn:btih:1E98E7BF7E9F9D0957636810EE8D4FE9F86145CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ VA - The Disco Mind: Funky Edition (2019) [MP3|320 Kbps] <Funky, Disco House>
 ```bash
 magnet:?xt=urn:btih:7CB370FE56BDE0B3CCFD5C83D201A499F68A3A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77C2F7515706AEF34C6F48C983FAAD8627C512F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Clouds - Destin (2017) EP [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funera
 ```bash
 magnet:?xt=urn:btih:E4C8365C11B21A4C29ADE1334054C4356F45FFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:671AFBC93A75086285F586D6FF405C9086043B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:673CF8E57B3C5588DC610743E3CC128D5353707F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:234477FF13092AACA6291D32BEDC99AC254F94B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:44182B95FC47A11CCE6CDD74BF5A47E97ED9C54C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Desktop Curtain - это простой инструмент, чтобы скр�
 ```bash
 magnet:?xt=urn:btih:BA11EF5AAE1AA2DFFC44B4A2B33E7844BD35F93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ VA - Absolute Dance Winter 2019 [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:836D1D0445EE56B9E5D2F0DAB507F846CC55052F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

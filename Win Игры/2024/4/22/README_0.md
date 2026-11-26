@@ -19,8 +19,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231222-20582
 ```bash
 magnet:?xt=urn:btih:ABFE3E271D949215F4C2212551C0DD8EF52346BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Legend of Heroes: Trails of Cold Steel III (2020) [Multi] (1.06/dlc) License
 ```bash
 magnet:?xt=urn:btih:325792F2A96FD0BCF9C014DA28C80EFB9E566F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C0FB1E1842EAED19A90F4CA672ECD09986B695B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Knights and Guns - аркадное приключение, выполненно
 ```bash
 magnet:?xt=urn:btih:CAADC894DFD58C5E45C4A458B42BE93326C870B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Repair House: Restoration Sim - это умиротворяющая и за�
 ```bash
 magnet:?xt=urn:btih:9A493992B01F72B96B2EC12C0244BBDF7626B9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ World Turtles - это увлекательная средневековая г�
 ```bash
 magnet:?xt=urn:btih:8F8CCA07EFFF045C8900D54B89AB6210B2ED022F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Scars Above использует научно-фантастический се�
 ```bash
 magnet:?xt=urn:btih:EB5B4505E83A9C55CAFEB098E7B2B3FD7014C2DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Agatha Christie Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0.7) Licens
 ```bash
 magnet:?xt=urn:btih:EE7DA14EF29B29F2170746FE02FA4590CC2FA5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Astria Ascending (2021) [Multi] (1.0.154/dlc) License GOG [Digital Collector's E
 ```bash
 magnet:?xt=urn:btih:0E5F8EA2BE35497EF7AACCCCAF6A625120C86CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Aron's Adventure – ролевое приключение, разворачив
 ```bash
 magnet:?xt=urn:btih:5DE30E1932D64B6E7323B9AF444CD64EC0168A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Ready, Steady, Ship! - кооперативная игра для дивана, 
 ```bash
 magnet:?xt=urn:btih:2E55814CFACDDB32C84A11077AB582DB32218BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Eiyuden Chronicle: Hundred Heroes – это увлекательный фент
 ```bash
 magnet:?xt=urn:btih:4110159439AC7FB25C117909632797265C21A992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Galactic Ruler Enlightenment – окунитесь с головой в нев�
 ```bash
 magnet:?xt=urn:btih:1B537750E493DDB701671013CC81A542CA467F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ The Witch's Cauldron - это мрачная история, в которой �
 ```bash
 magnet:?xt=urn:btih:6216B5E682AE097FB9A11AAD5BEC67EF10AD2308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Battle Planet - Judgement Day - топ-даун шутер, однако его 
 ```bash
 magnet:?xt=urn:btih:207041623F678EF7B8003A0D79F778014BD5685D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Sophia the Traveler позволяет пользователям очутить
 ```bash
 magnet:?xt=urn:btih:E359CB6EE6FB7D14FADC0722922A6BDC355F90C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Mato Anomalies - это пошаговая RPG, которая отправля�
 ```bash
 magnet:?xt=urn:btih:12B72E33D69DE78A9AE8D41FDCEC4450CAC96704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Omega Mouse Zero – настало время отправиться в уди�
 ```bash
 magnet:?xt=urn:btih:420B4492D02CBB6620C617F224E7A0A39290999C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Aron's Adventure – ролевое приключение, разворачив
 ```bash
 magnet:?xt=urn:btih:E43EACD63A7D2A0E6340FEC69504E9B4A0958F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Cursed Island: Mask of Baragus / Проклятый Остров: Маска
 ```bash
 magnet:?xt=urn:btih:34971B6D93BA89B8AE7E719B9D441FF8169FB4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Evil Genome (2017) [En/Ch] (1.2.022) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B03AE4EFE942943F656A4BE5BBB77E728105DAAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

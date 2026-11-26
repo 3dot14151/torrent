@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BD171761FB01C6AC2DAF770F61621CEB3B4D653D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0F43B8B201A702460D8C17F5D1EFA61D81CEEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Piano Concerto No. 20 in D minor, K. 466 (1785 г.)
 ```bash
 magnet:?xt=urn:btih:E04778A6A6D0B07D3BC8D057AA9289D0C6AA8496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ XXII зимние Олимпийские игры в Сочи. Лыжные го
 ```bash
 magnet:?xt=urn:btih:5BF5B08FB180F92C5CE902214FE144CE89896F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E86776EF98D71CE963767941DE1E77C0234D00E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1132B8846D1D1D135D4C2065078D55F94EA61D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - Fabric 74: Move D (2014) [FLAC|Lossless]<Deep House, Tech House, Techno>
 ```bash
 magnet:?xt=urn:btih:FD5DB3138F582853F91BF2590A01AB40DACE1952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sean Chambers - The Rock House Sessions (2013) [ALAC|Tracks]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:3DB212B7FE3A823EA24280A659625310D149D8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ VA - Популярные Мега Хиты (2014) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:A032DB20EA784157E532111360B30E12711DFD18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ Katy B - Little Red (2014) /Deluxe Edition/ [FLAC|Lossless|WEB-DL]<Pop, Electron
 ```bash
 magnet:?xt=urn:btih:3000B23C26478CB544204BEFF82F5EC1160DB2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8509FEA8AAC135EFB93CC0043FEE7D5A895AE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E919ACC21D8A3667A1917F3270513E93FE3EEA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:002CD599E9A9A20DEBCF16957A0D7398C6EB0BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ VA - Goa 2014 Vol.1 (2014) [MP3|320 кб/с]<Psy Trance / Goa Trance>
 ```bash
 magnet:?xt=urn:btih:F8B3A503EDA0D8791121F7298C736D7D2D8CE7A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Kansas - Kansas (1974) Blu-spec CD / 2011, Sony Music Japan / [ALAC|Tracks]<Art 
 ```bash
 magnet:?xt=urn:btih:CF3B3C7C58966D14CF04A2F8582EB379767198AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87607D9C7F4A63774C9E44D943DCF5B5317F21B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ PC Magazine является одним из известнейших и авт�
 ```bash
 magnet:?xt=urn:btih:6FED2C1500BFB65A346E949A2E35DA449CDB4A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +517,7 @@ JaFU - Add To Cart (2012) [ALAC|Tracks]<Ambient Dub, Downtempo>
 ```bash
 magnet:?xt=urn:btih:4433AB36BE8F26C85C27ECC2A61BFAA8854686D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB9F07C5A37058AF97EA62C8AEDB7378383B61F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (15.02.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:CDD361FCA0B239824C49AD6AEF61E63A75BE98AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +601,7 @@ Therion - Vovin (1998) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:889EDC08521AAAD9E5649FCDC1FF87D2E2FA042C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ Debian GNU/Linux 7.4.0 [amd64] 3xDVD, 2xUpdateDVD
 ```bash
 magnet:?xt=urn:btih:F48F9C5E831C7230D1689FD8B943F48E97717056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ VA - Cahaya Dari Jiva (2012) [ALAC|Tracks|WEB-DL]<Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B241B1EBC2BF00F49B15E12E63FD18EBBF82E850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8411484C0FACBF338BECABBBD7ADDFA6125DA9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2685A67010BAF04EAE391CF684BD81557FB07DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34518511EA63207AAC5DE1A9610F57C97FBDB3D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

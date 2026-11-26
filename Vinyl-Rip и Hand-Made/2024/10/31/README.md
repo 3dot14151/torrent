@@ -22,8 +22,7 @@ Hatchet - американская трэш-метал группа из Сан-
 ```bash
 magnet:?xt=urn:btih:04849D7AB5F2F88D04DA5A989A28919EFFD10AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

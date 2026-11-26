@@ -19,8 +19,7 @@ Pencil Photo Sketch - профессиональное приложение дл
 ```bash
 magnet:?xt=urn:btih:93D64E9FFFBB0700562C9E4B221209C4419F692F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MX Player 1.85.1 Mod by AjeethK [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3BC17C44ED1947E8A22513274CE41EF9A0D1AFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Before Launcher - крайне минималистичный лаунчер, ч
 ```bash
 magnet:?xt=urn:btih:7E1D4A2D0738700AD3C5E2AA1FEC9B75123AE927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49811D9B7D1717DAACBCA9F25FE09D1AB7172A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

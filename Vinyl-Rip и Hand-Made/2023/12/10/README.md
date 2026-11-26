@@ -22,8 +22,7 @@ Ancient Ceremony — немецкая симфо блэк-метал-групп�
 ```bash
 magnet:?xt=urn:btih:B7F6C776EE1B96B68C075E188564D25862C5161E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|im
 ```bash
 magnet:?xt=urn:btih:EDA58600C7A0A869A21F41F7C0F800DCD50D342F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

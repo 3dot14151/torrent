@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:62C0B8C7E281BD07FDAAFD1573C2200EB335D159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Living Legends 11: The Red Trace (2024) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:DD0FF5F26451D1CC90EDF3C88D9CECBCB507C785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C2426D6D3F802F44D6C0F4FA3C54F261487DA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 ```bash
 magnet:?xt=urn:btih:1440E1DD9798D8BAFF50D3F00625021D5093F01F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Easy Voice Recorder Pro ваш ежедневный компаньон для з
 ```bash
 magnet:?xt=urn:btih:49ACB896D0D36D3DC76088B231E49C1F9EE834BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11E7B48657CE0FCA6DFC72112AA62883E09C0909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ OCCT 12.1.17 Final Portable [En]
 ```bash
 magnet:?xt=urn:btih:54349398AE87C911396A345C6092D6A9EC925439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

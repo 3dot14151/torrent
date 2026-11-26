@@ -19,8 +19,7 @@ Winter Magic: Factory / Зимняя магия: Фабрика (2017) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:0AB0EAC7C7211D419EB3DBF114C6DB8AE5FE49B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rogue Warrior (2009) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:E799057CD029924D6A2165C78CFCF607B0B32600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

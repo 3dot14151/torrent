@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:13598C2586D5AA602BCF9076F976CD8F940A7290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mercenary Kings - убойный 2D экшен-платформер в стил�
 ```bash
 magnet:?xt=urn:btih:15C8C29D73A87E0183C6C8ED16DE41415F27250C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Back to Bed - это трехмерный изометрический сюрр�
 ```bash
 magnet:?xt=urn:btih:85B29DAF5E1B3871A8A4EE2711D978E6CC8F9D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

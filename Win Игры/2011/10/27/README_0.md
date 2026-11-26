@@ -19,8 +19,7 @@ Recyclomania (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:B130EBFDD6561464F147B6BF6D5AF6E4E68862E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ravensburger Puzzle Selection (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:82107A21EFB69C346728DB8207E9920F0E968987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mahjong: Legacy of Toltecs (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:CF566EC7BEAA40D8DE48C147FCBD796597FC742C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark Tales: Edgar Allan Poe`s Murders in the Rue Morgue / Темные исто�
 ```bash
 magnet:?xt=urn:btih:91BDF2414EF646CEC042ED35CB0B2DF8CD709A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

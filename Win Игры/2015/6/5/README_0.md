@@ -19,8 +19,7 @@ Lemma (2015) [Multi] (1.0.7.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C57F0237B894975FFED68C3C6CE04543EEDA9614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) License CPY
 ```bash
 magnet:?xt=urn:btih:C610F6857A504544C293C0FF6F5D4C1591851D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

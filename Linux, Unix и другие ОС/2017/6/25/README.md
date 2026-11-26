@@ -19,8 +19,7 @@ Sabayon 17.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ```bash
 magnet:?xt=urn:btih:AB8EC769781DD786E31D823E08986A10B59394BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BricsCAD – единственная в мире САПР, которая ис�
 ```bash
 magnet:?xt=urn:btih:01AF0F6A306D47318AD82073DFD3E8FFA4EE72AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Walk Like An Egyptian(   Читать дальше...   )Жанр: Pop RockП
 ```bash
 magnet:?xt=urn:btih:BF45F2685B4E84CE299C188819A9317B1595CA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side-A
 ```bash
 magnet:?xt=urn:btih:71250EB162EEF4B4B01EC1FB5B23A5CCE28C9F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Heartstrings 4:12(   Читать дальше...   )Жанр: Pop RockПро
 ```bash
 magnet:?xt=urn:btih:7AC8B698DFA02D4A202F04037009F6B22199B0F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:FA844F0F87A5271B2A70BF0F697A865BDC188928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A2 Love Cannot Be Wrong 2:53(   Читать дальше...   )Жанр: Electr
 ```bash
 magnet:?xt=urn:btih:A0AEE7B7496BEBF2E16E72A476987597A1982B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Alan Parsons Project - I Robot (1977) (2022) [DSD 128|image+.cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:540B7805436D59B21B712C6A8EF19504A106173B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

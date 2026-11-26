@@ -22,8 +22,7 @@ Aqueous - Best in Show (2016) [FLAC|Lossless|tracks + .cue|WEB-DL] <Crossover Pr
 ```bash
 magnet:?xt=urn:btih:A1C6325317D20A7430B424B2C6F4AC0D193741E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crypt Of Silence - Awareness Ephemera (2016) [MP3|320 Kbps] <Doom-Death Metal>
 ```bash
 magnet:?xt=urn:btih:8803A230C32EAF84BB5E982D34D9C516FD147CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ White Widdow - Silhouette (2016) [FLAC|Lossless|tracks + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:AC4DD940D2A4AAF9D8B5AD528B830C65D7FC0C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0813670377401C8C0A5521759E9C8DFFE7E0F969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dropkick Murphys - 11 Short Stories Of Pain & Glory (2017) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:E856F61F4E81F49F622D19135F8500C74F667141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Grave Digger - Healed By Metal (2017) Deluxe Edition [MP3|320 Kbps] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:14B8415DA3AC272D5B5912DB2A9F561016B7DEB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mono Inc. - Together Till The End (2017) [MP3|320 Kbps] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:4BDCAE9CBC346850FA046C4235B45478F574423F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sepultura - Machine Messiah (2017) Limited Edition [FLAC|Lossless|tracks]<Thrash
 ```bash
 magnet:?xt=urn:btih:51AF890D759F19E15E5919FD89200798A0462E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:1C6769424DD57FAB7A4738FCC8EC4C81BE34777D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

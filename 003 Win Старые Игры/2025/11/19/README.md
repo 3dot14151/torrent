@@ -19,8 +19,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack Necros
 ```bash
 magnet:?xt=urn:btih:AAF6282BAAF39FC2771C168EEEA5794E907E8B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

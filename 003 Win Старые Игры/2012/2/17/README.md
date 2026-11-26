@@ -19,8 +19,7 @@ Embodiment of Scarlet Devil / Воплощение Алой Дьяволицы [
 ```bash
 magnet:?xt=urn:btih:7F4FDEFF840E9AB4868EEF93C2CF458F8AFE66E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AmerZone: The Explorer's Legacy [Ru] (RePack) 1999 | Kirill Games
 ```bash
 magnet:?xt=urn:btih:733AD7C0CE3DEE484C09013D2948AF6AD80C6C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

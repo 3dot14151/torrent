@@ -19,8 +19,7 @@ Power Shortcuts - весьма полезное приложение для по
 ```bash
 magnet:?xt=urn:btih:D4D27FCB80F7E2FEE287E20D74F1064769AF6250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lockscreen Widgets - приложение тире инструмент благ
 ```bash
 magnet:?xt=urn:btih:E963874DCCF2FC8E4B5B01B13F58FF3EBD290723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ NashStore - это альтернативный, независимый, сан�
 ```bash
 magnet:?xt=urn:btih:4F76790C1B61854DC6CCBF3C51FE3DB123AD780A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

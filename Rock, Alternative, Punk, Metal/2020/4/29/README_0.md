@@ -22,8 +22,7 @@ The Last Days - When The Tomorrow Is A Grey Day (2010) [FLAC|Lossless]<Shoegaze,
 ```bash
 magnet:?xt=urn:btih:ACEA0CCF10FF6D3A13B417F622FC3253CFD33F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

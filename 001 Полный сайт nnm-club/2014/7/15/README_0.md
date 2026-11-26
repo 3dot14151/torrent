@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:91D1A2275DEF1F70D5E8129A2EF202A2E40EC67F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B20745E9A4D5E40BDF32162BA9B0C22AB1DB20D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:838D2320FEC613715887D76DE3A378E8F34F2180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02663BE06B6A4D44D975570F049023223E661504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F441D2BBEBE180A8BE3E79295A8D26FBFC417F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Beegie Adair - Moments to Remember (2009) [FLAC|Lossless]<Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:555E3A180C02D3051F5F10961FB89F269E3598E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ The Dream - IV Play (2013) (Deluxe Edition) [MP3|320 кб/с]<R&B>
 ```bash
 magnet:?xt=urn:btih:E072F1B17230A558CBCB00DA85B2F37198BCE86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91A1275975F1E9BDBAFDE9BFF6C06238E4AF195E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:CB38683BF8E1D8DFD7B56B905F2CE98C5FC57D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:CF519141EC7A04E01A56F0287F527512BCB48378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ VA - Goodgreef Future Trance (Mixed By Jordan Suckley, Craig Connelly & Photogra
 ```bash
 magnet:?xt=urn:btih:AABCEAF323261E1B1F99AA691B4A28DABDEFB1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ Ferry Tayle - Carnet De Vol (2008) [FLAC|Lossless|WEB-DL]<Trance,Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:A432B90BFFC6BC058A5D393CA590974F1E6C0A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:840E4D8D1F710C97553AD0707677FF0DB70E1950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ Mungo’s Hi-Fi - Serious Time (2014) [MP3|320 кб/с]<Reggae, Dub>
 ```bash
 magnet:?xt=urn:btih:8EDF350DBC4D88C4BB59B1EAF2050249B22AA298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ Gillan - Magic (1982) Remaster /1988, Virgin Records/ [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CF73B08FCC7FF7620282A0B9CDD5A5415F5E0542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ Troels Brun Folmann  - Transformers: Fall of Cybertron (Original Game Soundtrack
 ```bash
 magnet:?xt=urn:btih:BB626A7065E1092C40DFEF2194B15E07D7479961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ Control Center 2.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:CA26DEE85D3F333765561DECCADC302069A27EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ VA - Последняя песня / The Last Song (2010) [AAC|WEB-DL|256 кб/�
 ```bash
 magnet:?xt=urn:btih:8CD420A52B83B4A2700224A77A7D12AE6333666C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ Akshin Alizadeh - Street Bangerz Vol. 8 (2014) [MP3|320 кб/с]<Broken Beats / 
 ```bash
 magnet:?xt=urn:btih:699A73E58C9EDD6F0C2002844B85709F079BBE4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ VA - Тонкая грань между любовью и ненавистью /
 ```bash
 magnet:?xt=urn:btih:C8F75A974E80C0BB2F98EBF3C49CF810EF19C858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F36E79AD61AA8FBE026CAEFAC5258A0F822C038C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ O&O DiskImage Professional 8.5 Build 31 RePack by D!akov [Ru/En]
 ```bash
 magnet:?xt=urn:btih:291C077262FB5F2E7A08256A9F7B5EB71C58876D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ Tyler Bates - Transformers: War For Cybertron (Original Game Soundtrack) (2010) 
 ```bash
 magnet:?xt=urn:btih:71955F1CF353C49B3D30DB9F358BAF39202B7514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6822B29CB167BA7FD029DB92A2BBB3947E96B7D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ Black Spaghetti - Hallelujah! (1997) [MP3|320 кб/с]<Eurodance, Euro House, Ra
 ```bash
 magnet:?xt=urn:btih:9DC518EC355E9D7354CAC394C830DBE163054A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

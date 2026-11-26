@@ -19,8 +19,7 @@ Tortuga: Pirates of the New World / Тортуга: Пираты Нового С
 ```bash
 magnet:?xt=urn:btih:53A94D2179797853D531266BA94F3D95CD62023A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

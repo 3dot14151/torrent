@@ -27,8 +27,7 @@ VA - Best Of Uplifting Trance 2014 Vol.2 (2014) [MP3|320 кб/с]<Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:F55D9BEB5E2D79D5FB4B8FC9D023EFFDD7515746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ YellowClaw - Amsterdam Trap Music, Vol. 2 EP (2014) [MP3|320 кб/с]<Trap, Hard
 ```bash
 magnet:?xt=urn:btih:6287AAF0816977F872CF546A4D2CD1E6D23E04A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Macaw позволяет очень быстро собирать дизайн, 
 ```bash
 magnet:?xt=urn:btih:3ADCB2905E9DF2E8B7F9D91EA6E5F6FB920F1D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:82F41E9C5115F8E967538E9E0289C3E9E51AF65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Darkest Hour - Darkest Hour (2014) [FLAC|Lossless]<Metalcore | Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:F12DB97A35AF49E37F0C447D6D539BBF2A39AC65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Tower - мощный и элегантный Git клиент для Mac
 ```bash
 magnet:?xt=urn:btih:B5CD53C22A7A34369544E28C18C9E9EC7073D62D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ Kito & Reija Lee - II (2014) EP [MP3|320 кб/с]<FutureBass>
 ```bash
 magnet:?xt=urn:btih:F4B93B8B7D2ED059B5A98D36C062FDEFE56FE818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ VA - Клубные Новинки Vol.457 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:6CC5209697BDDEB37F36F27C57D068F18D8CAD7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ iSkysoft iMedia Converter Deluxe – мощный комбайн: медиа к�
 ```bash
 magnet:?xt=urn:btih:5F712D493092A832351D046278749EB28327EBD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ iTranslate для Mac позволяет вам получить доступ к
 ```bash
 magnet:?xt=urn:btih:B9B9BCD29B9D0F2912EA938A6AC2948E49447ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:2F66DCBD138F0894DB442BA9825E8D5F19807481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ Orchestre National De Jazz: Daniel Yvinec - Around Robert Wyatt (2009) 2CD [FLAC
 ```bash
 magnet:?xt=urn:btih:29E4DE886FB3BE20044F55FA9229F187E385E69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ Danny Elfman - Мрачные тени / Dark Shadows (2012) [AAC|WEB-DL|256 к�
 ```bash
 magnet:?xt=urn:btih:E57C9511ED3E4C84C4E25EFA11CA5E2156100959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ iExplorer - утилита для просмотра и работы с файл
 ```bash
 magnet:?xt=urn:btih:12436161FE4C1F31E2357BC4514D5D8646169FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ Lords Of Black - Lords Of Black (2014) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BCF62FD9B4D8F212A4FCA1D50BEB0F06F37FC593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ VA - Mikee Maine - Another Drum'n'Bass #4 (2014) [MP3|320 кб/с]<Atmospheric D
 ```bash
 magnet:?xt=urn:btih:A062688DE2CAC9D1C969AC38CE347DEBF5EEC57A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ I The Breather - 3 Альбома (2010-2014) [FLAC|Lossless]<Progressive Metalc
 ```bash
 magnet:?xt=urn:btih:F5FAF7CD54BA3A35254545257E2D3302735CC503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +569,7 @@ Harry Gregson-Williams - Вспомнить всё / Total Recall (2012) [AAC|WE
 ```bash
 magnet:?xt=urn:btih:76FFD9621E7A667EBF5024D3220FAA41097D460B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A13924E1682C2962FB30392DB0990594C0D8D301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F54A7B3256B0AC53DF867AD173355195A381944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +655,7 @@ Walter Murphy and VA - Третий лишний / Ted (2012) [AAC|WEB-DL|256 к
 ```bash
 magnet:?xt=urn:btih:E3A2FEDEA66549733509D77EFA0DD6BD7DDB67E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1449A9E355C9B70170C1459FEF3347EA1E494FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +738,7 @@ Nancy Martinez - Not Just The Girl Next Door (1987) [MP3|320 кб/с]<Electro, S
 ```bash
 magnet:?xt=urn:btih:315C326AB3FA851F78C2B6F08477AB4622598B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ uTorrent Plus 3.4.2 Build 32506 Portable by PortableAppZ [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8AF11EBDC064D8873D0E2E3EF09CA4E16A8C413D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

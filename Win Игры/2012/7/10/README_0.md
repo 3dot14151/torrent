@@ -22,8 +22,7 @@ Hoard [Multi5\-] (RePack/1.0) 2011 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:795CDD00978B6748E9BF59506992CA26F44E57A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Pro Cycling Manager Season / Tour de France 2012 [En/Multi7] (L/1.1.0.1) 2012
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Ys Origin [En] (L) 2012 | Reloaded
 ```bash
 magnet:?xt=urn:btih:6C13E4F335A63362DBCCB5D45C019E3EFFB2B9BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Ice Age: Continental Drift - Arctic Games / Ледниковый период 4:
 ```bash
 magnet:?xt=urn:btih:10577DEFDC5BCD5CE8CCB59EEC4CAD7BFC3A7974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

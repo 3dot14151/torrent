@@ -22,8 +22,7 @@ Think - We'll Give You a Buzz (1976) Remastered /2008, SouthSide/ [FLAC|image+.c
 ```bash
 magnet:?xt=urn:btih:F8855A7A121893B416C259295E4F66693D7CB3ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Betty Brothers - Hey Kid... (2015) [MP3|320 кб/с]<Progressive, Psychedeli
 ```bash
 magnet:?xt=urn:btih:D2BA3C50318049AFAF89FF460C0EF89A39CBC196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A Silent Film - A Silent Film (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, In
 ```bash
 magnet:?xt=urn:btih:B3D2A7D37FECF0718C8E3884A8CF3A9E89EDBC70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Draconian - Sovran (2015) Limited Edition [FLAC|Lossless]<Gothic/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F82F5A9EC9A4B3A21BD61ED39663C41267CEC117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Electric Light Orchestra - On the Third Day (1973) Special Edition /2006, Epic/ 
 ```bash
 magnet:?xt=urn:btih:FC10875670CC47D4303D6F66FD38E1029E8BE0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Elvis Presley with The Royal Philharmonic Orchestra - If I Can Dream (2015) [MP3
 ```bash
 magnet:?xt=urn:btih:4B561A462EFEA946BCC8B84789D352FD889F53C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Mojo Presents • David Gilmour & Friends (2015) [FLAC|tracks + .cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:5CF74D77C413ADD6D9FA89F1CA52AEECB6F748CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BD72F7DF40E1ED746D769E7F472F76E55C1E3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86915DB5BC84A54119C7AFF7FEE4E6042E8D48D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

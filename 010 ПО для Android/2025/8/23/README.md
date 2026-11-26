@@ -19,8 +19,7 @@ Twinme - это бесплатный безопасный мессенджер �
 ```bash
 magnet:?xt=urn:btih:3CE63487F2240CA2E9685F6C6D2E0293FEBAD40A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A1D64454879908AAF3C0ABFF354A79FC5E40F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ DNS Changer - IPv4 & IPv6 v2.8.2 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CCADD310F85E171414DDD1B8BC4FD2F2B90AD9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 ```bash
 magnet:?xt=urn:btih:65034A886B2C67CF7AE3ED0AE69BCB3D4D9E85B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

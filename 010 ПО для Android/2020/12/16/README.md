@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:4BCF2743F976701333382BCA99AFC31A791DB8F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Kaspersky Internet Security для Android – мобильный антивир
 ```bash
 magnet:?xt=urn:btih:DA22305338E2F5F42FF844514F2BC0F00B9D9FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9037986BA997F28F0C24DA862BE8D2E048DC8813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

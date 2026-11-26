@@ -27,8 +27,7 @@ Tracy Chapman - Collection (2001) [MP3|320 кб/с]<Soul, Blues>
 ```bash
 magnet:?xt=urn:btih:DF3D89B603BB8F074D0040588C637D65CCF175FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4D933E8B91FFA0725A9D886EBDF3924BCDAD950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAAAA3B9E41DD3518DEA51568D8929C69ACC6DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C1FAAAB98FC390A7D57BA6C498316E3FD9724E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Paul Anka - All Gold Of The World (2004) [APE|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:48C32062EFCA25E5AF49F99491C62B3481613407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ TV on the Radio - Seeds (2014) [MP3|320 кб/с]<Alternative/ Indie/ Pop Rock/ A
 ```bash
 magnet:?xt=urn:btih:AE77B0D41E12F6E7205BBA78961B2E5F168F4227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Harmonicana - Mississippi Saxophone (2010) [FLAC|Lossless]<Blues, Jazz'n'blues, 
 ```bash
 magnet:?xt=urn:btih:ABFAA746B7FCEA4CD7B889729BB38967BB00AA26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:613B690C7493B8B8373C5F99605DAFC67BBE326D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC1C8101FA3117DA3D006EDD168C7685353C15AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ VA - Ethneomystica Vol. 1 (Compiled By Maiia) (2014) [FLAC|Lossless|WEB-DL] <Dow
 ```bash
 magnet:?xt=urn:btih:B9B107BEF7BC6B7A757AFE55C06EEBF29A1559EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ National Geographic. Экстремальная Аляска / Extreme Alaska (1
 ```bash
 magnet:?xt=urn:btih:989711E232B6E684DFC5272928488A11AA27E5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ The Brian Setzer Orchestra - Christmas Rocks! (2008) The Best Of Collection [MP3
 ```bash
 magnet:?xt=urn:btih:80E5DC02F174D7551DD62405E28284EF48F14C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ Sayaf (iZReaL) - Многогранник (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:5EF76210195F09668DB4E60A141784EF4FDD6B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5E1DD9715B2941B46489BAF792D56D4D15739AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ Discovery: Скованные / Tethered (2014) HDTVRip (Серия 3)
 ```bash
 magnet:?xt=urn:btih:BE60D9B50D3F0B30F8E197D5C8E235F3166C764A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA3DA0DE9E71CBE1FCEABDE0EE441790454FC2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:564DBEB0D2BFA3A8A2E0CE8C10345B36736EBC49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72EA12CB2C64D957EB0DD81243DF6172B52884C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ Graven: The Purple Moon Prophecy (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:5273B18F91CDF0B844FFB7FB10B5BC8B8F6084CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +568,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:34FA4F3322D3E5A7C53434E08A896BEFDB5B016E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +601,7 @@ VA - Lucid Sounds, Vol. 13 (A Fine And Deep Sonic Flow Of Club House, Electro, M
 ```bash
 magnet:?xt=urn:btih:2C0A993B2BC225F5B66ECD3A0153CA77E1ECABF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:9B41E8D49DE92C5451B6F5E8B1BE4F93A815B8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ Joanna Connor - 9 альбомов (1989-2011) [MP3|320 кб/с]<Blues, Blues-ro
 ```bash
 magnet:?xt=urn:btih:DFE6A417F913A4DD19E6340EE2DB76C588CF6AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44086236CCE6EF676BC8153A416B0D3B9FD049B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA0586AB0C260D55C20C4CD26B760E090343EAE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +741,7 @@ VA - Клубный Автозвук. Зимние Новинки (2014) [MP3|32
 ```bash
 magnet:?xt=urn:btih:E6A431E95BB3CDCFA02C04CF1DB401C98AA9B1E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

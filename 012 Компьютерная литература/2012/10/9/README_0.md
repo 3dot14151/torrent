@@ -19,8 +19,7 @@ J. F. DiMarzio | Practical Android 4 Games Development [2011] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:110EF8B32BD0F3D791CFB325EB7267E762FC4D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

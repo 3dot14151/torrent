@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D820B636183B8F8B20E57B3C84335E11727E0A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BitTorrent – программа-клиент пиринговой сети. П
 ```bash
 magnet:?xt=urn:btih:7751D96DF156C1592D676474D90716D9656D845F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAE846AB3196C94B80E2ADBD59BDDF1E2B62F144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BIG Launcher - хорошо проработанный и очень полез�
 ```bash
 magnet:?xt=urn:btih:FB6D18D423A70270B27F04537AB031255B5F6383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C91BC44982EC49EAADDA2BC5BEAC19A5693EFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Pro PDF Reader - это удобное и мощное приложение дл
 ```bash
 magnet:?xt=urn:btih:3B87554F7B0BBE10D912A9BF24F129269267848D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Overlays - Floating Launcher - очень полезное приложение 
 ```bash
 magnet:?xt=urn:btih:8B449395290F5B09D8F96635515C14C9D6C27722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ BitTorrent – программа-клиент пиринговой сети. П
 ```bash
 magnet:?xt=urn:btih:C0F6444A1AF2AD3A338CD503742A506560A90947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Overlays - Floating Launcher - очень полезное приложение 
 ```bash
 magnet:?xt=urn:btih:7FDA3BA68DD6B921A6EA7111AFCCFFC4B94C0B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

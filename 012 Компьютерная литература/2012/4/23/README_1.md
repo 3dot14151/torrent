@@ -19,8 +19,7 @@ Microsoft Access — реляционная СУБД корпорации Micros
 ```bash
 magnet:?xt=urn:btih:ED20EEFDD44AF5BAB596AA7CAD488D0165308B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49734D207ADA4F1C39B172BFBA3EC30A96AC9117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

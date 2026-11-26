@@ -28,8 +28,7 @@ Accept - Balls To The Wall (1983) [APE 2.0 24/96|image (Vinyl-Rip)]<<Heavy Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

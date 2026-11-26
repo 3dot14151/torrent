@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F5DF52C79FDED676749EED866A4C51CA263BBCEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ______________________________Жанр: боевик, триллер, драма
 ```bash
 magnet:?xt=urn:btih:EA96E4E18B2C41E69F059E6846E777F37F696550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

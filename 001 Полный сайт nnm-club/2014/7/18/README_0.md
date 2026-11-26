@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6FFF4CD4C268FC6D2F963A6D8620698CE3C900B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Nahtaivel - Epicus Doomicus Electronicus (2014) [MP3|320 kbps] <Electronic / Dar
 ```bash
 magnet:?xt=urn:btih:A2F467F17D022C5B9EC475671B6EDFBF1D9910F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Телекинез / Carrie (2013) [AAC|WEB-DL|256 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:6895AD6E8126EC478A61A12A275D97EDEB3C9A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C2AE97D86F2CBDCD010BFD3705C17D248D4B4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:335CAE94BA124A1741B8C741A80ABF91B5FBA450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Borgore - Ratchet (2014) WEBRip [H.264/2K-LQ]
 ```bash
 magnet:?xt=urn:btih:E9C2BE157B547C60744FC9A2F35D864B8D5164BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Suzi Quatro - Back To The Drive (2006) Japanese Edition [AAC|284-357 кб/с]<Ha
 ```bash
 magnet:?xt=urn:btih:E4D3E35CA0B7EB27E2AB8843CA88878281A98D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ Armin van Buuren - A State of Trance 672 (2014) [MP3|320 кб/с]<Trance, Progre
 ```bash
 magnet:?xt=urn:btih:A74747F22408F62BCEB7ED25A11EC1543548C5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ E-Clip - Into the Void (2014) [FLAC|Lossless|WEB-DL]<Psytrance,Progressive Tranc
 ```bash
 magnet:?xt=urn:btih:0722C037FE7EB24EF758FC0AED87F4ADC7D6D6B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF2EA6389B347E6B169EDF4E5020F1748FEBBC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ Virtual Windscreen - концепт автомобильной системы д
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ VA - The World Of DJ Hits Vol.1 (1996) [MP3|320 кб/с]<Euro-Dance>
 ```bash
 magnet:?xt=urn:btih:09B3785CBCC275AB1EF32E0E681D4A26485F7774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6859B0D5EE32D85835ACDA1BA4BB51FFEC7666D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ VA - Lyapis Crew Трубьют Vol. 1 (2014) [AAC|WEB-DL|256 кб/с]<Punk, Alt
 ```bash
 magnet:?xt=urn:btih:5BC4AB8F07EB5BD41F4FCEA957F4E589905B2C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ VA - Мистер и миссис Смит / Mr. & Mrs. Smith (2005) [AAC|WEB-DL
 ```bash
 magnet:?xt=urn:btih:78EA69FBB92BBC7B227C5BBCBA4450961C5FA3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ VA - Реальная любовь / Love Actually (2003) [AAC|WEB-DL|256 кб/�
 ```bash
 magnet:?xt=urn:btih:0537D2CA70565B7ACD0EF88153356F1F215394D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ Dead Reckoning: Silvermoon Isle (2014) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:909488608575B7FA94B30ACB1946C0DD655CED65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ Suicide Silence - You Can't Stop Me (2014) Special Edition [FLAC|Lossless]<Death
 ```bash
 magnet:?xt=urn:btih:7CD5D7CE0E791EAB23556801240D8252F5062D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEE4CE77B9E770030816BD402105944DCB520F73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ Ominous Objects: Family Portrait (2014) [En] Unoficial [Collector’s Edition / 
 ```bash
 magnet:?xt=urn:btih:97B8AAD48B2FA63813C190971D53C58BBEAE5757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ VA - Аладдин / Aladdin (1992/2004) Special Edition [AAC|WEB-DL|256 кб/�
 ```bash
 magnet:?xt=urn:btih:F6EC1751A638320ACDCBD4B0BCABB0B31ABC4734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ DVDVideoSoft является независимым разработчиком 
 ```bash
 magnet:?xt=urn:btih:085EF08F88919208A9ADB8A85BB969DA0A7E698D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ DxO Optics Pro — один из лучших RAW конвертеров и ре
 ```bash
 magnet:?xt=urn:btih:8176A70B37713B21BE7F8A1F16ADF229E66034AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ Multi Commander - бесплатный, удобный, мощный, функц
 ```bash
 magnet:?xt=urn:btih:94A99C72AFB0D280F65AA3C82709C493A86DC6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Calculate Linux 14.16.2 [x86-64] 1xCD, 5xDVD
 ```bash
 magnet:?xt=urn:btih:ED5A803BC7B0D39821C1D387746FAB45CF69A189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 18.05.2015) [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:205A9F3E345BB78C6160BA6FB857FEBE8E949EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 18.05.2015) [i386] 3xDVD
 ```bash
 magnet:?xt=urn:btih:8872C829EA0F8C43CE654AEBFC75442572D8CD0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

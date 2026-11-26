@@ -19,8 +19,7 @@ Defenders of Ardania – игра в стиле «tower defense», действ�
 ```bash
 magnet:?xt=urn:btih:AD2210F03F94C12E60EE303B168CC25401225E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alice: Cheshire Cat's Dreams Edition [Ru/En] (RePack) 2000-2011 | R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:564FD4C67324A11638C545B0737A114B754E5405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SBK Generations [En\Multi5] (L) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:CD95F46420F47042A4BA17221699B8E04B6EAA5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Inspector Magnusson: Murder on the Titanic / Инспектор Магнуссо
 ```bash
 magnet:?xt=urn:btih:D041947B2BC21F48BD8914C8FB9B9032ED58EB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

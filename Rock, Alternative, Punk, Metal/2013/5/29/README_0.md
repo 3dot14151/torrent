@@ -28,8 +28,7 @@ Fred - Collection (2CD) (1971-1974) [FLAC|Lossless]<Progressive rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Percewood's Onagram - Collection (4CD) (1969-1974) [FLAC|Lossless]<Psychedelic R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ VA - Get The Led Out! Led Zeppelin Salute (2007) [MP3|320 кб/с]<Hard Rock, In
 ```bash
 magnet:?xt=urn:btih:AF5A708463AD73A9BB4F08441410368D06D5D13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Arida VorteX - Аве, Рок! (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:675C97D84C4B128E3C349ACD0B95B6DD0A8695A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Magnus Karlsson - Free Fall (Japanese Edition) (2013) [MP3|320 кб/с]<Melodic 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Rotting Christ — греческая дарк/блэк/готик-метал-г
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ The Cat Empire — группа музыкантов из Австралии, М
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Paul Simon - 9 Albums (1972-2011) Blu-Spec CD/2011, Sony Music Japan/ [FLAC|Loss
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:3772EB3B8636E30FE15B73C75A6B4A0F5925DCD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +339,7 @@ Bob Dylan - The Best Of Bob Dylan (2012) [FLAC|Lossless]<Rock,  Folk Rock, Acous
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ Savoy Brown - 30 CDs (1967..2011) Discography [MP3|320 kbps]<Blues / Psychedelic
 ```bash
 magnet:?xt=urn:btih:490760A597AF3510355251CDC2AB89F9ABDD8836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +398,7 @@ The Offspring - Greatest Hits (Malasia Edit) (2011) [MP3|320 кб/с]<Punk>
 ```bash
 magnet:?xt=urn:btih:75A54EF436CD5DD02D38DB75D1A81BE171A79E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +425,7 @@ Gorillaz известен как совместный проект лидера 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

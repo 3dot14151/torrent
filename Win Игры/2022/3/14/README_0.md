@@ -19,8 +19,7 @@ HordeCore - крутой сайд-скроллер с элементами бо�
 ```bash
 magnet:?xt=urn:btih:65E74AE1E9FE895433EEFA1E84908E42AE032C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

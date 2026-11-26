@@ -26,8 +26,7 @@ Project NT / NEVOD - DetSad (2014) [FLAC|Lossless]<experimental, dark ambient, e
 ```bash
 magnet:?xt=urn:btih:4DB4D15091FF605DD2A4678D38FDD37CFA52E9EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

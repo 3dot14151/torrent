@@ -19,8 +19,7 @@ Smart AudioBook Player Pro v10.8.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:87D365C3254084909D0EDE690746D43A0E8F84AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Spotify 8.9.38.494 Mod by LITEAPKS [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5B24B1B3739A4E16BD0FD08235AEB348F4E255E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ GPS АнтиРадар v44.1 Mod by 0x7d [Ru]
 ```bash
 magnet:?xt=urn:btih:A96C211C0BA347F1875A978CE9518B1B24123806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Mirror Plus: Mirror with Light / Зеркало Плюс v4.3.12 Mod by srajawwa
 ```bash
 magnet:?xt=urn:btih:7E1FECC1824D4FDD91AF1423E6AFB0F91D4B8E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

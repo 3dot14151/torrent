@@ -22,8 +22,7 @@ U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [F
 ```bash
 magnet:?xt=urn:btih:A39A55D62CA8AC5044E4A2B73413159B02A1B037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Art of Anarchy — американская хард-рок супергрупп
 ```bash
 magnet:?xt=urn:btih:87A7F4451CF54FB2D3DB77C7A603D88919FB4430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Scott Stapp — (урожденный Энтони Скотт Флиппен; 8 
 ```bash
 magnet:?xt=urn:btih:E6E40C39139F5B3CD9B537D75BB206FC49AC94BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

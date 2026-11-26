@@ -23,8 +23,7 @@ VA - Navigator Records 15 (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:CD221623FE1EA8A1FCBF05F7C0667101908237BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Single Celled Organism - Percipio Ergo Sum (2021) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:B53FEA4ACF0F9F6BA20935F23E8E23BCB7F424E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Requiem - Collapse Into Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:C58D99A1231BF9EEF160598E03D6D58273A8B292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Tragedy & Triumph - Where Mountains Rise and Hearts Fall (2021) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:555693C7CAC3B816BD13BC3EFAA80FBAB1041DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Jethro Tull - Hard Times of Old England (1982) Reissue, 2021 [MP3|320 Kbps] <Pro
 ```bash
 magnet:?xt=urn:btih:74279CDC1E766E723CB360BC68410C5DB1373FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3366DD36FF3C54EF240025BB9F5FA40922F9FB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

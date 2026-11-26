@@ -18,8 +18,7 @@ FileZilla Server представляет собой очень простой, 
 ```bash
 magnet:?xt=urn:btih:AB5050A4418F393B7DE93F5F904C9A1A04DA2D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TunePat Spotify Converter - 100% чистая утилита, не требую�
 ```bash
 magnet:?xt=urn:btih:9AE5535798CB28AB0D81A080942C8AAA834CBDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98927D3C4DB0FF38F06C959E61F76B606C876E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ TunePat Netflix Video Downloader 1.7.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5A2082BC3D93EE875B50455CEB1A12EAE38C5903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Michael B. Tretow - шведский музыкальный продюсер, з
 ```bash
 magnet:?xt=urn:btih:B8A025759A93C0370D39706DF470188F3B8774D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ PDFelement Pro - профессиональный инструмент, кото
 ```bash
 magnet:?xt=urn:btih:15820C01FE01461ED704E34956183E4BACA76B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Opera 79.0.4143.50 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:88D335B50A5E68390090CCE14F65A747FB94F900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Spotify 1.1.68.632 Portable by JolyAnderson [En/Ru]
 ```bash
 magnet:?xt=urn:btih:384D0838310E4C7EBE9C67E91007E20C5A1953AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCAC0DC9C284962CA05ED97F13D29D42991E10C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Nazareth - Close Enough For Rock 'n' Roll (1976) [FLAC 2.0|96/24|tracks|WEB-DL] 
 ```bash
 magnet:?xt=urn:btih:29F36D224F7E33ACE89A30170910A52E679DD072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Microsoft Windows 10.0.19041.1237, Version 2004 (Updated September 2021) - Ор�
 ```bash
 magnet:?xt=urn:btih:2730915A193A4A66889679DB0912B585A01C733E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ WinZip предоставляет пользователям лучшие хар
 ```bash
 magnet:?xt=urn:btih:B8955A16DB5F7ECC975FAC923B98D988D6165F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ MultiNotes v2.10 [Ru/Multi] - удобные Заметки с напомина�
 ```bash
 magnet:?xt=urn:btih:03E221BC79C7CAB14F9B99538EB355A5B4C9BE47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Microsoft Windows 10.0.19042.1237, Version 20H2 (Updated September 2021) - Ор�
 ```bash
 magnet:?xt=urn:btih:642F559CAB2613F780FFAA661686DD9B3F2704B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8E9008118D87F7F2F6BAE929312C723C84E64AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BE8417177EA3381B9A4EFC066116AE76C4F4E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07EBD96D84761486D96DB2045DD3F3350FFEFCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D436A1C894106B952F351E2434B49A4D76F6809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CADBD448CA484FFC60B66D571959137ABA00B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67B17CABBDC39F0316646A3B9E68453D3E6DDEFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ AMD Radeon Software Adrenalin 2020 Edition представляет собой �
 ```bash
 magnet:?xt=urn:btih:295432308E7CED7587703FB7200E6A0BAFB40E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ Storm At Sunrise - Discography: 2 albums (1999-2001) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:D94D50778328F2C91949C74F56CBC75BBAC94DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +585,7 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:0699557B7279DD56E4223866BEAC0F487323D3B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:FDB741B49F6C435473E6961C9DDA28070D7BC7F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE6927F388933A2692C425571E3C2BBA1F642358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ ForkLift – это альтернативный файловый менедже
 ```bash
 magnet:?xt=urn:btih:0F0F48F564ECCCC1E9693E33E6A3BDA05A0B9603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

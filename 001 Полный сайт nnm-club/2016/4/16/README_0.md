@@ -18,8 +18,7 @@ DJ Micro - Tech-Mix Live (2001) [FLAC|Lossless|WEB-DL|tracks] <Trance, Hard Hous
 ```bash
 magnet:?xt=urn:btih:2423C73E236F3D5E0A3C5BF57A1D21D8EE1C1275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Miller, Petrucciani, Lagrene, White, Garrett - Dreyfus Night In Paris (recorded 
 ```bash
 magnet:?xt=urn:btih:801F3DE0D7531EE897E210A2DF45370AB6F52E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ VA - Super Bomb Electro: Classic 2 (2016) [MP3|320 кб/с] <Electro House, Elec
 ```bash
 magnet:?xt=urn:btih:EEFB45C685D265F2E92F170C5541F355D1C97442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - Uplifting Only Top 15 - April (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:15D6F1C0B34A7D5AB2948ED4B15FA6398B0C9956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9232A4C665E060A64397A025E3F8F95D24DE76BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Femme - Debutante (2016) [MP3|320 кб/с] <Synth-pop>
 ```bash
 magnet:?xt=urn:btih:34432FD0BD64CCF0ECB393862BC2E6983DCF24F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ CARROT Weather всегда активно в фоне и проверяет п�
 ```bash
 magnet:?xt=urn:btih:3EC614EEFE95B1C0036140CF289D0A444B5740C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Rapoon - Song From The End Of The World (2016) [FLAC|Lossless|WEB-DL|tracks] <Am
 ```bash
 magnet:?xt=urn:btih:50DA86B4D98FC61A4A4EB57499B973FB47939DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44E4D5AE404A106369E1A5EC147EBC5DB60F3D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Kove - Nightfires, Vol. 1 (2016) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:E6E79E96A5C0AAABA3A86B6D7013F9230D08E2A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Roy Rogers & Norton Buffalo - Travellin' Tracks (1992) [MP3|320 кб/с] <Harmon
 ```bash
 magnet:?xt=urn:btih:A121631F155569B578F35443FEDA5F7B90913D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Fantastical - приложение представляет собой кале
 ```bash
 magnet:?xt=urn:btih:16B8F560355FDFCE3F9A5F95B9FD2E37550DCB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ goPanel - наиболее интуитивное приложение для у
 ```bash
 magnet:?xt=urn:btih:70E0F07D8A9BA6D999EDEC90F2A6B06D0989124E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ WALTR для OS X: подружит iOS с MKV и FLAC
 ```bash
 magnet:?xt=urn:btih:72B3C126654EBF46066C3834A3331F5407E4DA5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFCABF4F3C008DBE03727DFB26BC8983C1794AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Bluebone - Devil Keep Chewin' (2009) [MP3|320 кб/с] <Modern Electric Blues>
 ```bash
 magnet:?xt=urn:btih:99307AC841740D879FC3AED6B32D7CC0907F2EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E304F9048CD3139FA23D59299782909BF55A89B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:665F02ADB87817BCD1A1E1723F202C51B2EEBCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ The Clock - The Best World Clock 3.0.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:DF532E5962286F7C5B5EEE0F4514BB830E9CDA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:601791CC0634CCCD256B8EF31F4FF001A7BD3D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73D18DF15EB6E0966AC31CB4419B6F0FF3A16AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF14841066FA8ECFFCC057FC9B32183900AF9C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ Uplet: bulk instagram uploader 1.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:FFA392C779E84485B57F39C49F723DB7C7FDD476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Boxy предоставляет возможности Входящие от Gma
 ```bash
 magnet:?xt=urn:btih:6A806D1DD2FEE163064C31021DC9D0543C90AF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF3E92DEA7E828F4CCEA56867965F4E014A6E223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A3C5B5228C018866C72BF5F8011BA11AB16C741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

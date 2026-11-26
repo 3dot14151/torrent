@@ -19,8 +19,7 @@ Mystical Riddles: Snowy Peak Hotel / Мистические загадки: От
 ```bash
 magnet:?xt=urn:btih:2452BD697E992EC519F7E5FC53EC53C5940CC81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tropico 4 (2011) [Multi] (1.6.345/dlc) License GOG [Complete Collection]
 ```bash
 magnet:?xt=urn:btih:5C2431D9EADCB383C2B92498AB3350E8198DC1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Boulder Dash Deluxe (2022) [Ru/Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:2743267F169D771829DC47CAD9702670C1A300CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

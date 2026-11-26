@@ -19,8 +19,7 @@ NAPS2 позволяет быстро и легко сканировать бу�
 ```bash
 magnet:?xt=urn:btih:5D3D9FBFF06CD8EE127D35CE71993E6EA52CBB51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alternate QR Code Generator 1.760 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:22C7DF1918656E8BA2ACD7D4C6102E91C40BD097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

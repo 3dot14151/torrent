@@ -19,8 +19,7 @@ VALKYRIE DRIVE -BHIKKHUNI- (2017) [En/Jp] (1.0) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:1F19035B7ECB0BBF76C28CB65D03AA4F81D4F872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ History2048 - 3D puzzle number game — это знакомая логическ
 ```bash
 magnet:?xt=urn:btih:7B8D19AD95EA05D8216E49A854FE8DC0130C11E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Labyrinth Escape — это игра от первого лица, в котор
 ```bash
 magnet:?xt=urn:btih:8AF289736A22877ADDBEABA6AF4E730476697A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

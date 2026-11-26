@@ -20,8 +20,7 @@ Ubuntu*Pack 20.04 Budgie (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:D7312847B66281CAEC4A6D562CE5BA0427F26C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:8921AB60A3EE7D1351C7AA4AC0F8F7B7EEA38EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ubuntu*Pack 20.04 DDE (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:EB18D8E4F926A75DC4C7C8B9C284A82D09AA188A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Ubuntu*Pack 20.04 Unity (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:ED3771A4D97131FB05B4FE0CC928D25742603647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Ubuntu*Pack 20.04 MATE (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:E8EC6AAB2C70951506F423A864BD17A0BA5E2A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:CA04A132DC024C0A817086238B063B1F2C4823BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Whonix — это дистрибутив Linux на основе Debian, кот�
 ```bash
 magnet:?xt=urn:btih:FB83A82FC9ECFAC723246EFDE6CC91BD6C997429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Ubuntu*Pack 20.04 LikeWin (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:657BA7F1172AE8EEA47C2BEE0F45CBA15603EFEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Ubuntu*Pack 20.04 Cinnamon (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:7672A312011EEBD0ECA78354CE162B79C03656F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Ubuntu*Pack 20.04 GNOME (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:02FA2B5E33D566BD4A2CA02B5A341D08A2891151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:365863E24F200EBAC73CCFDD4A18F25CDF4F75DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ Ubuntu*Pack 20.04 (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:158B7DE0FF5B6A5284136033240158486918DB8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

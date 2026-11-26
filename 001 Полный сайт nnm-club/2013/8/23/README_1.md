@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:639F6FE74F2A98F4019CF0BDC90EB518FCB89FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ N/AЖанр: Deep House, Progressive HouseПродолжительность: 01
 ```bash
 magnet:?xt=urn:btih:558B65E090348E2B4024B0E6A158FA37AA9A06EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7A9B577B83B4C53E3561E51CAAF6C5D9C3851F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Becky! Internet Mail 2.65.04 [En]
 ```bash
 magnet:?xt=urn:btih:80533681E13F75A3AFBEDE1319EEA6D745F18DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - На100ящие топовые летние хиты (2013) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:9525F2801CCA85D9BFD90C05F3DCFBEF10B21559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ VA - Sensual Spa Lounge: Chill Out & Lounge Collection (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:A5DDF5798C556B1D4F45158FD745B74A156EEA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ VA - Best Lounge Music Collection (2013) [MP3|320 кб/с]<Lounge, Jazz, Easy Li
 ```bash
 magnet:?xt=urn:btih:3A04B916E3167C3399F4F8AE42BB6E5BA0AE478F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Twilight Phenomena 2: Strange Menagerie Collector's Edition (2013) [En] Unoffici
 ```bash
 magnet:?xt=urn:btih:4EA6B9CE8692AE13E502183C572E54A04F1414AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:808BB0533C6720AB98B9EE324C240CFD021169AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BF80C1466731AA6A7AAAFFBB4390C9208297DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Mojosoft Photo Frame Studio 2.9 RePack by AlekseyPopovv [Ru]
 ```bash
 magnet:?xt=urn:btih:2B470D1DA92DC5CE4868E45ACFA6475CEE165959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B89EAACE545629C699963F424DB18EDD4404DF66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ Sixpence None The Richer - The Best Of (2004) [APE|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:45727FE63F94C66ECD178AAF7B639421DB1A27EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ Mechanical Animals - We Hear You (2013) [MP3|320 кб/с]<Breakbeat, Drum'n'Bass
 ```bash
 magnet:?xt=urn:btih:0BA943E89C39ADF92FFF020D6A7AB03886207DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B0C9ECD8B370ACDE7DAEB865D44403C9B9B4848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ VA - KABZDEC vol.9 Загробный (2013) [MP3|192 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:3276DACB13C9A869BD09B7B653E05572CD26088E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC8FC24447A2F83290450E214DE39AEF1E8B824D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62A7E82F0DFA44BE9B6DB46E6C635A67FEAADDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +542,7 @@ VA - Native American music (the Best...) (2013) [MP3|320 кб/с]<Native America
 ```bash
 magnet:?xt=urn:btih:8115839F3F7A63E8DA3CB130E09157EED0430F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A94EB88695F31519D501114931E16D4FB01301EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AED5ED3391E3150FB08CCD7B8573343B8C75FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +619,7 @@ FolderSizes 6.1.76 [En]
 ```bash
 magnet:?xt=urn:btih:B75B4EB74E84FC243458B9733F12A3F0E207C74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +653,7 @@ Badfinger - The Best (1995) [APE|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:D8103A56AA285CF87405E08B6254123888925B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +682,7 @@ VA - Juicy Harmonica Vol. 1-3 (2009-2011) [MP3|320 кб/с]<Blues, Harmonica Blu
 ```bash
 magnet:?xt=urn:btih:CA52F1ACCDF0AD46911EBAE9247E133822E057E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +716,7 @@ ReVamp - Wild Card (2013) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:7A804CD37D54221E9EA4B8C0E5C2DA0F00224334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:579D53391034019EA1D4AC9DEC9E0E3D54D25FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

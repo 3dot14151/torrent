@@ -22,8 +22,7 @@ MacIntyre - Live At The Moontower (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4B895DBA65DCFC6D806F520A574405B4FD25BAE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jimmy LaFave - The Night Tribe (2015) [MP3|320 кб/с]<Rock, Folk, Americana>
 ```bash
 magnet:?xt=urn:btih:DFF818641818E4D59E587841702A6869CB9B7690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ In Virgo - In Virgo (2015) [FLAC|Lossless|WEB-DL]<Alt. Metal | Electronic>
 ```bash
 magnet:?xt=urn:btih:D75F06D0077EC4100E8550D1AB137BEFCC4D3F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Super Bob - Killer (2015) [FLAC|Lossless]<Alternative Rock | Rapcore | Crossover
 ```bash
 magnet:?xt=urn:btih:B104D71BCE54BFE017A4CA61DB3AF6A4D8D188FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ No More Pain - The Post Human Condition (2014) [FLAC|image+.cue]<Progressive Roc
 ```bash
 magnet:?xt=urn:btih:F3DECF93261F1FDB910862FD85507B85F7B74596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CE0FB3DEA769CBBF3BA1115693B1BC6289241D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Jeff Beck - Performing This Week... Live At Ronnie Scott's (2015) Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:1A8FFFF970FA091FAC1B3ED62E10C38057C7335E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

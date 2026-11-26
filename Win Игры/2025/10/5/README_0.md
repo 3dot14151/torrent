@@ -19,8 +19,7 @@ GNOG - тактильная игра с трехмерными паззлами,
 ```bash
 magnet:?xt=urn:btih:A28A89F6B5F8F1CC7A4371509B5D91D2D2D387C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ M.A.S.S. Builder - это ролевая игра, в которой игрок�
 ```bash
 magnet:?xt=urn:btih:76A1BD887B5BBAD352D7701FEE0102D2F407F7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Titan Quest (2016) [Ru/Multi] (2.10.21415/dlc) Repack Let'sРlay [Anniversary Ed
 ```bash
 magnet:?xt=urn:btih:83AD9FE68823BE055E5BED82C07B91BF64E23154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Titan Quest II (2025) [Ru/En] (0.2.0-public.102611+win.1879) Repack Let'sРlay [
 ```bash
 magnet:?xt=urn:btih:A122EC0E948DBE7E344320BEADE8A59F2B7EC870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ No, I'm not a Human (2025) [Ru/Multi] (1.1.3) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:86E8A183AA83D403E9A34C90C8E53E74258B3ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:FDF292AE9ECA0534D1BF773DED0D9196857FE32C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:305E319EEC04CDC9064AC971E56978A9DD549C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Derailed ставит перед героем задачу раскрыть 
 ```bash
 magnet:?xt=urn:btih:06E29EDB05D5670E74EC25120D825222A4B4E600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ System Shock - это полноценный ремейк хита 1994 год�
 ```bash
 magnet:?xt=urn:btih:9DB1DC9625B70C24139636974454590D38C73D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:6058DC110DE9044132D7C4FEB67F8E836F3DE1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Lost in Random: The Eternal Die объединила динамичный экш
 ```bash
 magnet:?xt=urn:btih:BF8685BB903CE21B84C68B968E70B2857E1D9E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

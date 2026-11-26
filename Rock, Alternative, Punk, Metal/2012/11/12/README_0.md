@@ -28,8 +28,7 @@ The Graviators - Evil Deeds (2012) [FLAC|Lossless]<Stoner Metal/Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Red Moon Architect - Concealed Silence (2012) [MP3|320]<Melodic Doom/Death Metal
 ```bash
 magnet:?xt=urn:btih:B43FD207D000E95ABA3A2270309B3BBCCB6C8E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Lethian Dreams - Season Of Raven Words (2012) [FLAC|Lossless]<Doom Metal, Gothic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Jimmy Barnes - The Rhythm And The Blues (2009) [MP3|320 кб/с]<Rock | Soul | B
 ```bash
 magnet:?xt=urn:btih:4B398B677BEBB365E6AA4FDEFEA9B182A308ABE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AECEB101A4A5EF9B81865AC2AC50362F0C66BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Helloween - Burning Sun (CD Single) (2012) [FLAC|Lossless]<Power Metal, Speed Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Tiamat - The Scarred People (Limited Edition) (2012) Scene [FLAC|Lossless]<Gothi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Clan of Xymox - Kindred Spirits (2012) [FLAC|Lossless]<Darkwave, Gothic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ Nightwish - Imaginaerum (The Score) (2012) [MP3|320 kbps] <Symphonic Power Metal
 ```bash
 magnet:?xt=urn:btih:5D614E3F5DB418AC6871CFF6C59E9779B843CD92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

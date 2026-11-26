@@ -22,8 +22,7 @@ Slipknot — американская ню-метал-группа, образо
 ```bash
 magnet:?xt=urn:btih:1050291E06C2252D8BA123877438EB18260F506E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

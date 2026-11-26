@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:B3674FF7EF643A1FC7ED303A2B6196396A28CB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC6D49917ADB6D10E87C3A2980864CB588251FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26F346B43C267569801A01CF6365E78A5AF5628F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Hurts - Desire (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Electronic, Synt
 ```bash
 magnet:?xt=urn:btih:52F29A277473486BE923F4E2081A6A8D0D7086AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Trackspacer создает пространство в миксе, решая п
 ```bash
 magnet:?xt=urn:btih:71509FC0218F0BDFEFAA24E70E8BCD7A23274EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBC78C0D0E421CC443D3B9F5381124AE10D3DBB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Stand Up - это взгляд на наши жизненные повседне
 ```bash
 magnet:?xt=urn:btih:E1A2377D67BACBEE462196432F407F3B50A82E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ VA - Buddha Gold Vol.2: The Finest In Mystic Bar Sounds (2018) [MP3|320 Kbps] <D
 ```bash
 magnet:?xt=urn:btih:6D514A880CB085DD71114D6BFB333B36FEBB3AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F9EF8644B8459258336F0B933CD6BFC8D4253AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ NG: Человек против youtube / Man v. Viral (2015) HDTVRip [H.264/108
 ```bash
 magnet:?xt=urn:btih:CBBACA2458FFB33FE7DC3C2B24400668166356F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ WALTR 2 — революционный способ передачи файло�
 ```bash
 magnet:?xt=urn:btih:976F5E384AE1113155B3EDBDA55CFFAEC68D48A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Kirnu Cream - мощный миди арпеджиатор, с которым о
 ```bash
 magnet:?xt=urn:btih:B546724434C90601394D54D96B7D19609EFEA08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A4241583E2D0063418CEF779885A032C6F68037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ NG. Экстремальный Китай. Хайнань / Extreme China. Haina
 ```bash
 magnet:?xt=urn:btih:FFF3990FFF9D8ABBC80988364A46AF76C3B222A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в последне�
 ```bash
 magnet:?xt=urn:btih:9DF76F1159266F4C7F7F10ECF752C79DAC449CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Smooth Jazz All Stars - Tribute To Pink Floyd (2011) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:7BB7B4A9743A2269046615849CD7CC4B6C819F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8D982388ED48BAA2464131F430E9965791AB3BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ Fullmetal Panic! Invisible Victory | Full Metal Panic! Invisible Victory | Ст�
 ```bash
 magnet:?xt=urn:btih:06B8EC70AAB3B2A3D4E5E87FA3FCBFD3EE950BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ Discovery: Смертоносные эпидемии / Killer outbreaks (2011) H
 ```bash
 magnet:?xt=urn:btih:27C6071F46767B59D4E05DC7C3D4FF32B48E80A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E334851045E18ADDB703D7571339384B71587966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ Basilisk - веб-браузер с открытым исходным кодом
 ```bash
 magnet:?xt=urn:btih:B43498DFF11D40A48F057BF3ACF775C516F879D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5A2BE55A5CE0231776A07B9D2BB7BD8D0C6B8FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:197AF69431B257ABA12773AAC62E73B134A38BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F83424B52982278D70D832CAC2D9C87766DB4162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68BD419E36F6E271249FA6DFEE65E24A5F42E2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +661,7 @@ Discovery: Вот это странно / Williams Shatner's Weird or What (2012
 ```bash
 magnet:?xt=urn:btih:33CE39FC7AB57C1968B7BAFEC6516C513A1AB296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

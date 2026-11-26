@@ -22,8 +22,7 @@ PARALINE - Demonstration record Vol.1 (2021) [FLAC|Lossless|Web-DL|tracks] <Alte
 ```bash
 magnet:?xt=urn:btih:787DA0BD39679D9B7CC72933FFAF134F54185484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

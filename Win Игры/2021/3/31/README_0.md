@@ -19,8 +19,7 @@ Kingdom Hearts: Melody of Memory – ритм-игра, являющаяся с�
 ```bash
 magnet:?xt=urn:btih:C481CBC3CE3E5155ABCCF01FB1B4F93B11B78542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KINGDOM HEARTS HD 1.5 + 2.5 ReMIX — это потрясающий HD-рема�
 ```bash
 magnet:?xt=urn:btih:5944CA6239B74518EEC4E4669364D48F766036C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kingdom Hearts HD 2.8 – сборник из трех игр: HD-переизд
 ```bash
 magnet:?xt=urn:btih:2DDD6FAB5C686DA910A28868A90CCF3444F2CBBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ From the Darkness — это хоррор-игра от первого лица,
 ```bash
 magnet:?xt=urn:btih:ABB99096D1C3FF5E4393EB002D7E2B8A57B60AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

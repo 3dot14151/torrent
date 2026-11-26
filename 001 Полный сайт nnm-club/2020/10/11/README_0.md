@@ -21,8 +21,7 @@ Bootblacks - Thin Skies (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
 ```bash
 magnet:?xt=urn:btih:E3BF1DF9599DAACC48BF0831EFE19D9632D256BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Vuara - Свобода шума (2020) [FLAC|Lossless|WEB-DL]<Doom, Sludge, Deat
 ```bash
 magnet:?xt=urn:btih:8AC4C78187703ACF1DB75A2985D80DBB88BCFD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ DeadRise - DeadRise (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, 
 ```bash
 magnet:?xt=urn:btih:175CD4D4B5FABF4D2884D7ABA0E3A7049CFBFCBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Empress - Premonition (2020) [MP3|320 Kbps] <Doom Metal, Sludge Metal, Post Meta
 ```bash
 magnet:?xt=urn:btih:78044D990D04EA829A5F8315A17E3400EF9CFB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Seasonality Core - превращает ваш Mac в домашнюю мете�
 ```bash
 magnet:?xt=urn:btih:6CE3B00C5BE610998474FDDC07969E8EBE83B119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Zao - Preface: Early Recordings (1995-1996), Compilation, Remastered, 2020, Stea
 ```bash
 magnet:?xt=urn:btih:3CC2E5037C6FC542F0B0C3E640A64E1F30C9D213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Robert Tepper - No Easy Way Out (1986) [APE|Lossless|image + .cue] <New Wave, Po
 ```bash
 magnet:?xt=urn:btih:8B33C43D34FB955F57E10EA0098FE858A261E1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:CEB733323DB9B1E93769D4079AE5F3B86602D95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ A Vicious End - The Hills Will Burn (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 ```bash
 magnet:?xt=urn:btih:0E4DA768881609031D0606325C4499B77F9A17AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BECFC8FE8C8AB2F64D0ACC39310D7C56F5ECC2C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ unTIL BEN - Binaries Traveller (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, 
 ```bash
 magnet:?xt=urn:btih:5D7B4D5CFDC904AE167762754441AA73A9DB3996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Inner Odyssey - The Void (2020) [MP3|320 Kbps] <Progressive Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:DF17641D17A05CD21B3E9672CC8100A2409540DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ The Paz Band - Down The Rabbit Hole (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:A7F76498BECC63BAA1F93D4C27AEA2C49E279434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15151FA6EEC1ED49147A4EF395A282329EFF0B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ Fresh 4 v4.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:EF8C39CA028F55680784D8F9BCA7D98CC4E5A9C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Bongiovi DPS - запатентованный алгоритм, который �
 ```bash
 magnet:?xt=urn:btih:49FD7F8EC957326859E012572DEC95601DF5176C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEA079E9C3834A5D696505F9FF7273A239C3C98E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ TinkerTool System - утилита для управления скрытыми 
 ```bash
 magnet:?xt=urn:btih:357795DB6EE3E6D028EDFADB1516FAD1B58413E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Records восхитительный и простой в использован
 ```bash
 magnet:?xt=urn:btih:F2497909A5EEA78D256C2D06AD0472AF6A0CCA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Flare (ケン イシイ) - Reference To Difference (1995) Sublime Records [FLAC|
 ```bash
 magnet:?xt=urn:btih:7AF39BF786EE3265FFF7EC83755396DBE22934EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5448A64507D60418B2D39BFE3504DAA74E3412FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Bongiovi DPS - запатентованный алгоритм, который �
 ```bash
 magnet:?xt=urn:btih:B6D1D06FED2EE3926E609839ECDE33AEE4E9678B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ Caelestium - Caelestium (1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
 ```bash
 magnet:?xt=urn:btih:52AA266DFE881A65E25568F2DFA9D8813939F7C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:156C5B7819134F0D2E652BE6FFAEB792FD29D476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Robert Plant - Gigging Deep: Subterranea (2020) [AAC|~336 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:07EFC36EAD12497F8D9B30A4D7501F657BC5705D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC1933AF10F886C506E716930F7E74F7065E2ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

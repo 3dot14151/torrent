@@ -22,8 +22,7 @@ Aires - Останусь собой (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk R
 ```bash
 magnet:?xt=urn:btih:2F0E18E87BE5F03063B4AAECB8BC473850840993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF5DFCDE232F470A377DD4B2375FF8C2A9C3BCE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

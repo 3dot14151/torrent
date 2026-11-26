@@ -19,8 +19,7 @@ Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:29B1435AA311C6AAA0774EBB713D113BCF5DF026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Insanely Twisted Shadow Planet [Ru] (RePack/1.0r9) 2012 l Fenixx
 ```bash
 magnet:?xt=urn:btih:B61DDA272B1843F26CCB1F06B8BB7C812ADCCDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Malice: Two Sisters / Злоба: Две сестры (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:FAD252A0C220074CEC560528AF2E46D590BB0B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fear for Sale 2: Sunnyvale Story Collectors Edition / Страх на прода
 ```bash
 magnet:?xt=urn:btih:61AB73BA16E33C22DBAA6695CDAB25D4C638DEC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Falco RTXonix (L) [En] (2010)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Cafe Lounge Iced Shiny Gold Tea (2008) [MP3|128-192 kbps]<Easy Listening / 
 ```bash
 magnet:?xt=urn:btih:1B9912C1BAEF53167C52FCC24D45FD4557C29B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ VA - Cafe Lounge Rose Hip Tea (2005) [MP3|128-192 kbps] <Nu Jazz, Bossa, Lounge>
 ```bash
 magnet:?xt=urn:btih:010D00E6E97657090E6F41F409341AB503DC08C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Fraction Records Presents... Ibiza 2010 - Part 5 (2010) [MP3|320 kbps]<Tran
 ```bash
 magnet:?xt=urn:btih:3B2F77BD88BB981C4123187A63C68E4F01A5F6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ VA - Cafe Lounge Dolce Snowy Castagna (2008) [MP3|128-192 kbps]<Lo-Fi, Nu-Jazz, 
 ```bash
 magnet:?xt=urn:btih:F5845900F23F19DD588245B7FF237D9A456178FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ VA - Cafe Lounge Iced Lemon Tea (2006) [MP3|128-192 kbps]<Lounge / Easy Listenin
 ```bash
 magnet:?xt=urn:btih:ED9223088809A0A57D84CCFF5705E6FD511570F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ VelvetSeal - Lend Me Your Wings (2009) [MP3|320 kbps]<Sympho Gothic,Dark Metal>
 ```bash
 magnet:?xt=urn:btih:325E54546EB0423E2467FCA067B04541FFA9FFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ VA - Cafe Lounge Caramel Tea (2006) [MP3|128-192 kbps]<Lounge / Easy Listening /
 ```bash
 magnet:?xt=urn:btih:3A7EA70F5DA8FA8CBF841C2E784AD31EA9B15CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ VA - Рашен Дэнс DFM 4 (2010) [MP3|128 kbps]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:F279AE7691F7339E2BC00773323358C6EA8E1A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ Count Basie And His Orchestra - April In Paris (1956) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6718EB9A267C54DC5AD920D5E8FC14AAA20444E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +349,7 @@ WinPatrol отслеживает и уничтожает в операционн
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ VA - Cafe Lounge Dolce Fondant Chocolat (2008) [MP3|128-192 kbps] <Nu Jazz, Boss
 ```bash
 magnet:?xt=urn:btih:D8B911BE93267811C34E1FB5F8B58FFFFF83A8F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ VA - Cafe Lounge Dolce Berry Roll (2008) [MP3|128-192 kbps]<Nu jazz, bossa, loun
 ```bash
 magnet:?xt=urn:btih:D9FB7BB63CF31E3BF85ACA33857B195A18652D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ VA - Самые модные хиты Русского радио - Осень (
 ```bash
 magnet:?xt=urn:btih:B7F79015D71CD3C645238F66A2AA8F5D947EE666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ VA - Cafe Lounge Almond Tea (2006) [MP3|192-320 kbps]<Lo-Fi, Lounge, Latin, Boss
 ```bash
 magnet:?xt=urn:btih:34AD7E23FFA5AA151785028361CEAB0BB5765BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ VA - BBC Jazz Awards (2007) 2CD [MP3|128-192 kbps]<Jazz / Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:1A4979AD9C3694B47D99ECD0167FCA406731FB3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ Vanessa Rubin - Vanessa Rubin (2001) [FLAC|Lossless]<Vocal, Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ VA - Дискотека Зимняя За Рулем 50-50 №3 (2010) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:8463571240EE9957D68BC530529C788905F5D9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ VA - Cafe Lounge Iced Raspberry Tea (2006) [MP3|128-192 kbps]<Lo-Fi, Lounge, Lat
 ```bash
 magnet:?xt=urn:btih:60327EBE068CA2862153DED82A27ED789EDEB5A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ Flying Lotus - Pattern + Grid World (2010) [FLAC|Lossless]<IDM, Downtempo>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +635,7 @@ VA - Звезды Авторадио 80-х Русская версия (2010) [M
 ```bash
 magnet:?xt=urn:btih:E99D0A686FEE4A476D1EEF5137CC73C68BC3B62D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75EF7D442E54AABCF0E9B152D140056933DF17D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ The James Taylor Quartet - New World (2009) [MP3|320 kbps]<Acid Jazz, Nu Jazz, F
 ```bash
 magnet:?xt=urn:btih:FD62DE6764A7307AEDBA125C1562D7C35758EC64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1C64F6CBD456F09E0FBB8E3F57B7136B884759D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

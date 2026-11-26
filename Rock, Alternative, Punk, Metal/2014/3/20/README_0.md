@@ -28,8 +28,7 @@ Dorn - 4 альбома (2000 - 2007) [APE & FLAC|Lossless]<Black Metal / Doom M
 ```bash
 magnet:?xt=urn:btih:DE664AD782654E1561427FFFA13A44A9D01C9322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDE796D7CC4586E6446F8B5D27467A67DC473B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDC854A98F9F6CB239F54004F79D95BA64984D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Pretty Maids - Louder Than Ever (2014) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C256531B864C9940AD4CFA95C84A37EB5AE1415C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Svaskalver - Чёрные Сказки (2014) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:50C36303BF84E216B32B9DD3955A8F58C3050956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E63BE29DF22E4D222C78FAD52AD9108F76B5A6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ VA - Rock Ballads (The Collection) 3CD (2014) [FLAC|Lossless]<Rock, Soft-Rock, P
 ```bash
 magnet:?xt=urn:btih:4014330C21CD1C250DFB92395DAA4D0AA6160B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

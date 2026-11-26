@@ -19,8 +19,7 @@ The Vanishing of Ethan Carter (2014) [Multi] (1.04) License GOG [Redux]
 ```bash
 magnet:?xt=urn:btih:8B8BBBBB4BF5A23806EBEB1980C01D29B7813349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Panzer Dragoon: Remake (2020) [Ru/Multi] (0.8.1) License GOG
 ```bash
 magnet:?xt=urn:btih:92515A532D25C4212AED3C80AD9EFD1D82ABAEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Trollhunters: Defenders of Arcadia / Охотники на троллей: За�
 ```bash
 magnet:?xt=urn:btih:E83CC96F109AC995F0069D8FA6D7AEBB64741FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Settlers®: Rise of an Empire (2008) [Multi] (1.71.4289/dlc) License GOG [Go
 ```bash
 magnet:?xt=urn:btih:07F7FD74C4BF4D80DA305FE403FED6DAABBCCE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

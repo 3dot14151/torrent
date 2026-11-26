@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D53CEBC7E95F3D67E56BD0C6266D19518D976784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Battlefield 4 – продолжение знаменитой серии шут�
 ```bash
 magnet:?xt=urn:btih:B8CE590D74A0240F4F65AB90260D04340561DC55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Call of Duty: Ghosts – новая часть в серии Call of Duty. На�
 ```bash
 magnet:?xt=urn:btih:F39AC731373E825967C8A10E1F8B01F2EEC68FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Total Commander 8.01 Extended 7 + Portable by BurSoft [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F527F710475E167E7F297234D93745303C3B3AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ ANSYS Maxwell 16 является главным программным обес
 ```bash
 magnet:?xt=urn:btih:37E7BA8C019A9A688C99FD078C3C23D9955A8BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Corel Paintshop Pro X6 16.1.0.48 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6768123FA499D65F0D7041684B02C343884D5494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ KeyCheck - утилита для проверки лицензионных кл�
 ```bash
 magnet:?xt=urn:btih:C69D134B257654F040CDD20B9780C746379A0139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15CD55AF35B8103F600BD8F578F8A851E0D2D99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ The Last of Us — приключенческая игра в жанре surviva
 ```bash
 magnet:?xt=urn:btih:23F40824ED658F699B1ECC8A6B5BE3A0539E0145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Microsoft Office – самый популярный в мире пакет оф
 ```bash
 magnet:?xt=urn:btih:7A4A845C1A975035A6E8A1BC0ECC1FBF272B56E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Injustice: Gods Among Us – файтинг с глубокой сюжетной
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Linux, наряду с Microsoft Windows и Apple OS X, является одн�
 ```bash
 magnet:?xt=urn:btih:BE7755A0AFA51D2575717E140706352314A219E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ LEX LIVE STARTLEX имеет достаточное количество уст�
 ```bash
 magnet:?xt=urn:btih:6473EBEFEC5F16A5AB5C65B8DAFFB65619A55089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

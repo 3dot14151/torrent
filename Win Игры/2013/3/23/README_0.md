@@ -19,8 +19,7 @@ Phenomenon 2: Meteorite Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:CD97D57478D5CD81DA3FF43F470AD8C43BF07A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Saint: Abyss of Despair / Святой: Бездна Отчаяния [Ru] (
 ```bash
 magnet:?xt=urn:btih:86C467E2028E8C08F0E820C13A9BA931F3F672F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ The Elder Scrolls V: Skyrim (Patch/1.9.32.0/Update13) [En] 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:944F2EE2FCFE6C4ED19A3A6F6E32D751ED7D36CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

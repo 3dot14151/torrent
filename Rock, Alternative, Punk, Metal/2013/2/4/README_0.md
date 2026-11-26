@@ -24,8 +24,7 @@ Magic Circle - Magic Circle (2013) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:67199A0598FA092F8DC8FFAD43E6BD0032EEEF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ VA - Панорама-86 (1986) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:B8DFB9E6ED8865E904A5E947C841986A7889A760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ SLADE - Greatest Hits: Feel The Noize (1997) /2002, Universal Music/[WavPack|Los
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Nautica, самый распространенный и авторитетный
 ```bash
 magnet:?xt=urn:btih:6CE1AFF9876733988D74F5F1760E98461103F81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF8FCDDF023AA0B530E6810C4E8CEF76AC55BC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32DCDB2A21865CD62CEC4A43B0BC1D2D9B9981AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Combat Aircraft - это журнал военной авиации, котор�
 ```bash
 magnet:?xt=urn:btih:2BC28B5A076F707B5370DF48ED5431D74733ED99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

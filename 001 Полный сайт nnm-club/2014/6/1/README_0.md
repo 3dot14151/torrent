@@ -27,8 +27,7 @@ Joan Red - Side Effects Of You (2009) [FLAC|Lossless]<Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:B3CEC0A6C66DB12496C9CEC4FD8CC07E38526D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Structures  - 3 Альбома (2010-2014) [FLAC|Lossless]<Progressive Metalcore
 ```bash
 magnet:?xt=urn:btih:68549D809C15CE732F5FBD255D6C69A847FB651C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Sarah Jarosz - 3 альбома (2009-2013) [MP3|320 кб/с]<Folk, Americana, C
 ```bash
 magnet:?xt=urn:btih:9963494ABE393F9CF2F0E41965EF7FA225767B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48DE98441FD7ECDFD99E05FFBD9DC9BC12B2952B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Breach The Void - The Monochromatic Era (2010) [FLAC|Lossless]<Modern Metal | In
 ```bash
 magnet:?xt=urn:btih:BC7749BDAAE31FBB38C69246E0F6D65F4549C644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Endast - 3 Альбома (2006-2014) [MP3|320 кб/с]<Melodic Death Metal, Met
 ```bash
 magnet:?xt=urn:btih:0EDE5C2B3DB4DC9661C665EF355383E4DDC85A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ VA - Paul Oakenfold DJ Box: June 2014 [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:3D11C5CF3C7CB3BA806886BC69E73441C5A9E9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ WinContig - это простая в использовании автономн
 ```bash
 magnet:?xt=urn:btih:F2B6923899DFFDEE54670743D868F925F9630D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FFA69F850DE362DA88040D05C0014FE73C68F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ Miles Davis - Sketches Of Spain (1960) ремастер /1997, Columbia, Legacy/
 ```bash
 magnet:?xt=urn:btih:43B26F6B16EFD2A36AADD63559DFCF451D13EAA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AF6DE54CDC8E3D761E933667BC9B0F0D63ACB10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ Hollow - Mordrake (2014) [MP3|320 кб/с]<Melodic/Sympho/Black/Metal>
 ```bash
 magnet:?xt=urn:btih:CB1D4227EA80F9B2ACD84839368E38F4761B1533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:3458DA616B8CE436F1233C0C76B8C8753024FCA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ Shpongle & Gunslinger - Dreamcatcher (Single) (2014) [FLAC|Lossless|WEB-DL]<Psyc
 ```bash
 magnet:?xt=urn:btih:FC851923F8D048462D823CAF42E9B63151076061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4FA4C5ED8942247417CE8F91311B19B2E93393A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90E4998FC30C5276BA2A64419F68C4A407D8B27A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ Panopticon: Path of Reflections (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:FC720C1C0CCB84AF9D0291AD33149FD03034030D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52E42594EFFF9B39A2C4682A29CAE851FD3A3816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ FreeFileSync 6.6 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:894CF28A4116082950F339DD5AB802AAADE51247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ WAMI - Kill the King (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:83A782B141A103452D113EE4EB53A6101843F560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1B46ECD911FB1FD1B829FCA2929EE2D0C91AAFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ VA - Дама Сердца. Душевный Шансон (2014) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:F111422E4C31D71F3FE68567C5BFB905C9479E89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ The Surfaris - Play (1963) [MP3|320 кб/с]<Instrumental, Surf>
 ```bash
 magnet:?xt=urn:btih:232629048C038E79F42BAC54346F8946BC350B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CBE6C46AA764472E84140078E37209703BDA37A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +736,7 @@ arr. Anton von Webern (1883-1945)(   Читать дальше...   )Жанр: C
 ```bash
 magnet:?xt=urn:btih:66D1EE4BFD81957327196F907083AA9BDFF0D6BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +770,7 @@ VA - Жаркий Клубняк в Жаркие Страны (2014) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:BF3D00C9770F61034EB03A176B0BD38506F99674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

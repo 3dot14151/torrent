@@ -19,8 +19,7 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:4599599B9420ED55FEE2AE6735BED3B3E0B405E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

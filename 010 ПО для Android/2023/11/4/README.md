@@ -19,8 +19,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:39702FBD2E0070C5874C9E79816A20E48E2AEA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tone Generator PRO v3.50 Mod by Alex.Strannik, papasha55 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:1C3F0F29B222F447E82A69F51F9562C43E598C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

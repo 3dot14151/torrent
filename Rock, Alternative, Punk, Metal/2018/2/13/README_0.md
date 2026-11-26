@@ -22,8 +22,7 @@ Royal Hunt - Cast In Stone (2018) [MP3|320 Kbps] <Melodic Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:1FF5EAB4628E9038B65AE050B116A54E828F12B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

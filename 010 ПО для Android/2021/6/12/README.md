@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7AD82D605218850848CB8B5E1089840B60F7FAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MIUI Калькулятор v12.3.12 + v12.2.0 (Mods) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0C12145048A1CE9577745C21A1C4CFCFF9E6E852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SoloLearn - это крупнейшая библиотека материало�
 ```bash
 magnet:?xt=urn:btih:654854D0A0363A379F3FB20F487AC68869538D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

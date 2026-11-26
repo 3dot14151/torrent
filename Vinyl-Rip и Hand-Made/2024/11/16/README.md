@@ -22,8 +22,7 @@ As I Lay Dying — американская металкор-группа из �
 ```bash
 magnet:?xt=urn:btih:300CA2D433807EF21D219752DB65180554EBA25B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Genus Ordinis Dei - итальянская симфоническая дэт-м�
 ```bash
 magnet:?xt=urn:btih:97FAFC9EB2C8406B25F1CFA99366BD41D4BF3383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Times Of Grace - сайд-проект Адама Дуткевича из Killsw
 ```bash
 magnet:?xt=urn:btih:85C939975E79CECAEAEA0F2576B171B65512C58F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

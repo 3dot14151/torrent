@@ -19,8 +19,7 @@ Rise of the Dragon (1990) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4A49FD5CFC61D44ED76B4CF257AA6F48D120F4C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

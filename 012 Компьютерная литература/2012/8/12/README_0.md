@@ -19,8 +19,7 @@ R. Huddleston | Teach Yourself Visually. Web Design [2011] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:564E64B2F284FE977A3B74EED661DFC1AD8CE8ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DECE7192DF1E719B31ED616CCA7FFA60C685245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

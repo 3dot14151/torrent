@@ -19,8 +19,7 @@ Exif Editor - ваше предпочтительное приложение д�
 ```bash
 magnet:?xt=urn:btih:8AB763D32253B9BB6840872036524692424EA013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MarsEdit 4 v4.4.11 [En]
 ```bash
 magnet:?xt=urn:btih:72DC7994D2C0411835172D324A98F2E97083DB5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Export for iTunes -  экспортируйте свои плейлисты и �
 ```bash
 magnet:?xt=urn:btih:130E20CE9E530B7130003483C0ABF0844602FA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Color Code Copy 1.3.2 [En]
 ```bash
 magnet:?xt=urn:btih:F2505A96E1F2ED98E9E6A606ADB10A212268C8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F44AFBC3E99A12848F977CF10CCA309D09F28392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ DropSync - это быстрый, гибкий и удобный инструм�
 ```bash
 magnet:?xt=urn:btih:B75A277CD98001CD8A32A4505D1FB53D28CF943C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Smooze одушевляет ваш скролл и добавляет функц
 ```bash
 magnet:?xt=urn:btih:D3A005DB87147B395669D14ED8A3A51256D0EE2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Maria Pia De Vito & Burnoguala Large Vocal Ensemble - Moresche e altre invenzion
 ```bash
 magnet:?xt=urn:btih:159BCFF9CEC8F9DFCDC900A28F793F7FF81EC88B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Sound Grinder Pro предоставляет мощный набор функц�
 ```bash
 magnet:?xt=urn:btih:2C6EC0B1994E1242EF037D41996D857BA7C5B71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CB009311AC6CA0DA622D361A0B45D081773D817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ USBclean 3.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:8B7B35863E966A2461AAB49E53C060DF1C902E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Folder scanner - визуально анализирует диск / папку
 ```bash
 magnet:?xt=urn:btih:A915730202A55282196963F7651E003464831FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F011ED4857011F8A85958991D672AB87DC5BB1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31F41E17119EDD8E9BD3452F7B02A2F5E0A54DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ YouTube Downloader - удобная программа-загрузчик для
 ```bash
 magnet:?xt=urn:btih:F8BC59BDE614B812960F3B0C5CBECFF9E31C142E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A1EC705B4DEB6A5BF8E150DD8F06A81AD5F0F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Adult Cinema - Hot and Cold (2020) [FLAC|Lossless|image + .cue] <Classic Rock, P
 ```bash
 magnet:?xt=urn:btih:4CCF3D51A071B66B145CBFC7651E6B65F6AFA42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Louis Armstrong - Mack the Knife (2001) [FLAC|Lossless|tracks + .cue] <Dixieland
 ```bash
 magnet:?xt=urn:btih:D762145E27A3EF0C3B7E49C0FA5A365F311AA033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Fee Waybill - Fee Waybill Rides Again (2020) [MP3|320 Kbps] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:AA71699BB5D95ADECF7E72FCCD11FB6FCCBB1097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ House Of Lords - Nеw Wоrld - Nеw Еуеs (2020) Jараnеsе Еditiоn [FLAC
 ```bash
 magnet:?xt=urn:btih:7C392C864AE785A615E1448863C5913860F8BDD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:713ACB52D9ECB70CCB31E1EA2469FA59316E2EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:833CD2499ECC42A24CE57018968207D1EDE0D5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ H.E.A.T - II (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:08DCCD2E562F06E91AB1B7B95A632F2259DCC681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0CC14B03BC8DA212C572A4C2C7FF23F6822D2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ VA - Soft, Deep & Dark #1-5 (2017-2020) Seven Villas Music [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:0ED90AED385A1DF3FBB369E78EA81ECBDC9C123D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ Dark Tranquillity - Moment (2020) Jараnеsе Еditiоn [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:12CA2859EB33AE9775317681AF5F56CBE1CED6B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

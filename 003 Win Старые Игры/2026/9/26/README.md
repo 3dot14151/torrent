@@ -19,8 +19,7 @@ Hitman 2: Silent Assassin / Hitman 2: Бесшумный убийца  (2002) [R
 ```bash
 magnet:?xt=urn:btih:75D834A7D9DF145C7F03AA4A17D05510E69F53B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Worms 3D (2003) [Ru] (1.0) Unofficial Фаргус
 ```bash
 magnet:?xt=urn:btih:8DA94A3A94CB4ADCE44CE1FCBD66A8555ACE08E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

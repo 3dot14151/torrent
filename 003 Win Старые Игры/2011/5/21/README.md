@@ -19,8 +19,7 @@ Tell: Das Spiel zum Film / Вильгельм Телль: Голый арбал�
 ```bash
 magnet:?xt=urn:btih:CFC2A6921509B6D7A64EC0CA39932E6577B22CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Supreme League of Patriots (2015) [En] (1.0) Repack FLT [Season Pass]
 ```bash
 magnet:?xt=urn:btih:96F429A074C2A1CDD87558378558CB2CCD898018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

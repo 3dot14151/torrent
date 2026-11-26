@@ -28,8 +28,7 @@ Zyklon - Disintegrate (2006) [APE|Lossless]<Blackened Death Metal>
 ```bash
 magnet:?xt=urn:btih:C21E6493AAFEC79DE8AE68F56319E6963F820AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Next Page - Свои (EP) (2011) [MP3|320 кб/с]<Trancecore>
 ```bash
 magnet:?xt=urn:btih:3DB2D64E6D58278B41CDEBD4B5E22079A96B0C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Nebraska - Look At Me (2014) EP [MP3|320 кб/с]<Post Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:E60524F051A66BCE08D6CF438157551687E73D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ The Wild Horses - Americana (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:E68432D5C5F60EA8D4DAF9A198061DB224774BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Lanie Lane - To the Horses (2011) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:809F248D8F3BA40BF7C083243A2D8E711B2B6A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Moist - Glory Under Dangerous Skies (2014) [MP3|320 кб/с]<Alternative/ Pop Ro
 ```bash
 magnet:?xt=urn:btih:A85601113FB3EA666091C3BDCB4919118267C1D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Ben Granfelt Band - Handmade (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:EDDCCB48466CCE983EBD28124A90622E6290E801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Splav - Сверхновая (2011) [MP3|320 кб/с]<Modern Gothic Metal | Fema
 ```bash
 magnet:?xt=urn:btih:FEC49007DC46AAD377314D2DB707A2B0C415098F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Scarlet White - The Inbetween (2014) [MP3|320 кб/с]<Modern Hard Rock/Alt.Meta
 ```bash
 magnet:?xt=urn:btih:F500CFD74BD1EF72F8ED964869952C90C21425FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Bleeped *Recorded Live In Ireland(   Читать дальше...   )Жанр: S
 ```bash
 magnet:?xt=urn:btih:3BA268C27565490FCB183B7ED3519E04F1258B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Lordi - Scare Force One (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DF3889DEA013F75483F102C6F6264EA87C7804E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Tear Out The Heart - Dead, Everywhere (2015) [MP3|320 кб/с]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:A05D030F2BDCFB4ED5227E8A92CFF6E67CED4057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +420,7 @@ Digital Daggers - Mixed Emotions (2014) [MP3|320 кб/с]<Alternative/Electronic
 ```bash
 magnet:?xt=urn:btih:D01CD131138DCB40E13EE6C41D19B88A88BFF2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +454,7 @@ Age Sten Nilsen's Ammunition - Shanghaied (2014) Japanese Edition [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:E42F1F9E33260DEC103E85B6B791A68026B3D0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +488,7 @@ The Ghost Inside - Dear Youth (2014) [MP3|320 кб/с]<Metalcore / Hardcore>
 ```bash
 magnet:?xt=urn:btih:6B5B0EF57496A476BCAA96279049305F485E8DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +522,7 @@ Nico Vega - Lead to Light (2014) [MP3|320 кб/с]<Alternative/ Indie/ Pop Rock>
 ```bash
 magnet:?xt=urn:btih:F7925DACD3A1CCED2CC71EE2A3DC27C36AE1CA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +555,7 @@ Einherjer - Av Oss, For Oss (2014) [FLAC|Lossless]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:EF9977B15B53EAD2EB9D46C0324A325DE1AEB1FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +589,7 @@ The Birthday Massacre - Superstition (2014) [MP3|320 кб/с]<Gothic / Synth-Roc
 ```bash
 magnet:?xt=urn:btih:7F0515CB10B35C5199DE732EC86CA1382E9AF16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +617,7 @@ Jeff LaBar (Cinderella) - One For The Road (2014) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9083FC3B61B2960EEBC69D679A32E7F0E74E0F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +651,7 @@ The Birthday Massacre - Superstition (2014) [FLAC|Lossless]<Industrial Rock | Sy
 ```bash
 magnet:?xt=urn:btih:893EB35152DFD3F12E632779BB1F815C7E918A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +685,7 @@ Elvis Presley - Love, Elvis (2013) [FLAC|Lossless]<Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:53F901DD1AF54D7609EE7F62637AAC0B05F53AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +719,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:525FB0B8FE20287AA258CE61402E6CBBCAC7B1ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +747,7 @@ Scorpions - Acoustica (2001) [FLAC|Lossless]<Hard Rock, Acoustic Rock>
 ```bash
 magnet:?xt=urn:btih:253E6BB1B70398F76B0B6B456B40A68E6DFDFDEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

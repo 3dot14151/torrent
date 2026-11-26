@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:B595108F2057C7A41CCA79CF4962C4EC03E08F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Graham Bonnet Band - Lost In Hollywood Again (2025) Japanese Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:E6C89A1AF833D7B562B07B6288DF240A6E38968F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E11FDC8EA1AFBD8536DA85370E2ED052F06ADFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Queen + Paul Rodgers - The Cosmos Rocks (2008) SHM-CD, Japanese Edition, Reissue
 ```bash
 magnet:?xt=urn:btih:C36B471067616F0BB7DCE2865B96FCC5F29A74ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Freddie Mercury - Mr. Bad Guy (1985) SHM-CD, Japanese Edition, Reissue, 2025, Me
 ```bash
 magnet:?xt=urn:btih:C3010D43E6470D007E69895CFC98ADF169479963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

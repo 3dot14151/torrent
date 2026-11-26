@@ -19,8 +19,7 @@ Darkest Hour - самостоятельное дополнение для игр
 ```bash
 magnet:?xt=urn:btih:F4003095AC7369DCD82A6BFAAF68BECCF6D11B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Timespinner (2018) [Ru/Multi] (1.033) License GOG
 ```bash
 magnet:?xt=urn:btih:4AFC37A80684532CE60568FEE0632C70BB6B3D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Olija (2021) [Ru/Multi] (2-1-2021) License GOG
 ```bash
 magnet:?xt=urn:btih:1DC6DBC18E3E3EB4F5F9C0E433A9840E81F9979B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nowhere Prophet (2019) [Multi] (1.07.013) License GOG
 ```bash
 magnet:?xt=urn:btih:FFD8F722130B50B1F5CD762C28A3C0B12B0DED02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Forgotten City (2021) [Ru/Multi] (1.2.1) License GOG [Digital Collector's Ed
 ```bash
 magnet:?xt=urn:btih:E00A65185BB8EAC63C61F2A2F72010764F8E8754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

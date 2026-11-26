@@ -19,8 +19,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0.20230706_1126/dlc) Repack Dece
 ```bash
 magnet:?xt=urn:btih:AF662D9092A69656AB71DE0EE2888B0FB5E73627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D7B5AFE109B8F6FA907273242259B889CFDF5312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Killer Instinct возвращается, и готова привлечь ка�
 ```bash
 magnet:?xt=urn:btih:C0DFCF504C2C00387CA9F55E4840DE9E40435343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Forgiveness – отправьтесь навстречу типичному п�
 ```bash
 magnet:?xt=urn:btih:A11E9AEEF908A432BEE071C3C882D180A6071238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Plane Mechanic Simulator (2019) [Ru/Multi] (15.02.2024) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:65A02207FC739694161E5966D03FEBA9084F60F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bandle Tale: A League of Legends Story погружает игроков в не
 ```bash
 magnet:?xt=urn:btih:316BB60C28397C67C5ADD132CF32000DB9BCC18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bandle Tale: A League of Legends Story погружает игроков в не
 ```bash
 magnet:?xt=urn:btih:1CF28CAE1AF562E5360EB51FF4742082B6FB6AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ kumi Wars рассказывает об эпических приключени�
 ```bash
 magnet:?xt=urn:btih:1EE04E7E2593BCF4BF06EDB51447159916DCA760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Bandle Tale: A League of Legends Story погружает игроков в не
 ```bash
 magnet:?xt=urn:btih:0BA16FC4908FA827F6BA1777F34222EA1523A316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Unseen Fears 6: Fortune's Consequence (2024) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:22C48D9B8FC63A34734982CCCCF0841A98566904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

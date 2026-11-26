@@ -19,8 +19,7 @@ Emergency-игра, представляющая собой RTS, где вы б�
 ```bash
 magnet:?xt=urn:btih:572D4A68458F254768D5EA0C91D65CDC34EB5704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

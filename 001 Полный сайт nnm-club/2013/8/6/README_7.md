@@ -21,8 +21,7 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 ```bash
 magnet:?xt=urn:btih:1B2189357EA76B13DF350284AE7643B788056297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ DLL-files Fixer - программа для чистки и оптимизаци
 ```bash
 magnet:?xt=urn:btih:2D9C87655FEAD47832196AE9317A54A92BC7C467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Call of Duty: Black Ops II (Multiplayer) (2012) [Еn] (Pre-alpha/1.1.0.2100) Rep
 ```bash
 magnet:?xt=urn:btih:D2FC9AFA1A08FAA9A134F55721DBCF3D8BA29D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Age of Conan: Hyborian Adventures – MMORPG, действие которой р
 ```bash
 magnet:?xt=urn:btih:9ACF8A3AE521A99007D80718E1DD4153E0097170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Plugin Alliance - Complete 2013 R3 by R2R [En]
 ```bash
 magnet:?xt=urn:btih:082F77BE089F2096C6C96670B8BEF546627D9D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ BCC содержат новый плагин подавления мерцани
 ```bash
 magnet:?xt=urn:btih:FC62BC45D80B3DCC2DFA2E442768DBF1E9F89BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBB48E7AE5F82AE68312800003AE1983359372B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Need for Speed: ProStreet [Ru] (L) 2007
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ The Incredible Adventures of Van Helsing / Ван Хельсинг: Новая �
 ```bash
 magnet:?xt=urn:btih:791428C122952EF50BC14C9128FADCD3C5B67D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ SimCity (2013) [Ru/Multi] (4.0) License {Обновляемая}
 ```bash
 magnet:?xt=urn:btih:FC6BF6B23D8F3C6227560CD02DB59AC923A25E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

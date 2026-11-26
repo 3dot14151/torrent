@@ -19,8 +19,7 @@ Alpine Skiing 2005 (2004) [En/Ge] (1.88) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:D4833679EB15C10A788F8DA6ABE8F8D559EAF241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Salt Lake 2002 является официальной игрой XIX зимни
 ```bash
 magnet:?xt=urn:btih:9BBF6B78A2280A50065C13BB28B554279FBD7FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alpine Skiing 2006 / Лучшие из лучших. Горный слалом 2
 ```bash
 magnet:?xt=urn:btih:137B6715E5D7C15DE5D31D3DCF3E4711E0097CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Torino 2006 (2006) [Multi] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:39AB580A01F4AE6797661D0EC628DE90EE5140A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

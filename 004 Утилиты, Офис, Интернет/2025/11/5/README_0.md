@@ -19,8 +19,7 @@ Opera One 123.0.5669.47 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4DD1E993D37E0FEF09D1147D6F6EAE9318F0AC05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:178745947D03AFC3BB848D50F885FDC55C2D96E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:6A5E951E2953CFAB7C32D3EBD7CB9DDB443DCF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DBECC0F90ED767104AF1BB5985A80A7F536F06E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E67B633B7A587FACFB64B57EAD7C9F2550F6B2E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ O&O Defrag Professional – инструмент дефрагментации д
 ```bash
 magnet:?xt=urn:btih:55EBACFAB61DAF5A68588614B67EBB7A3C73BA39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

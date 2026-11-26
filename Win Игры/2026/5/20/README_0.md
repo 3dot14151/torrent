@@ -19,8 +19,7 @@ Rabbit and Steel - это кооперативный roguelike, в которо�
 ```bash
 magnet:?xt=urn:btih:7DF5FB923E37414479BEA6C01D2584859F1ACE6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forza Horizon 6 переносит гоночный фестиваль на те
 ```bash
 magnet:?xt=urn:btih:6EB4B00633942B0741E0838CC8A06607AA354163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Corsairs - Battle of the Caribbean - это приключенческая и с
 ```bash
 magnet:?xt=urn:btih:BC3F940B0CD5ABACAE577F936CA8367E048A37AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Outworld Station (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:79B42992B6553F128D57173CA82AB5811302DFC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B28AC6ABFD52B20783D1A0CB31E8523351734650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tower Escape - это оригинальная стратегия, котора�
 ```bash
 magnet:?xt=urn:btih:3ED69D4BB14CB592B1B51CB95AA147F503A273F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Kumitantei: Old-School Slaughter (2026) [Multi] (1.0.0 HotFix 8) License GOG
 ```bash
 magnet:?xt=urn:btih:9AEB724B846EF8E746BBB14ED3E76943E182B06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sudden Strike 5 - это тактическая игра в реальном в�
 ```bash
 magnet:?xt=urn:btih:54E3A70E4CCF68818D52FB048F44185495361588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Little Nemo and the Guardians of Slumberland (2026) [Ru/En] (1.0.3) Repack Let's
 ```bash
 magnet:?xt=urn:btih:CDA0788E1779B5AA4447F8271E6EB1DDAD0BE773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

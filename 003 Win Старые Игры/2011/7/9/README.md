@@ -21,8 +21,7 @@ Bermuda Syndrome / Бермудский синдром [Ru] (Rip) 1995
 ```bash
 magnet:?xt=urn:btih:68F71C3F883A16733CC8119383E9F854D585AF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

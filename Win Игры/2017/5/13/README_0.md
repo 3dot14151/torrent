@@ -19,8 +19,7 @@ Grim Facade 8: The Red Cat / За гранью жестокости 8: Крас�
 ```bash
 magnet:?xt=urn:btih:B51D90D308730011A2180DAF967C2D653BBE9BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World to the West (2017) [Multi] (1.0.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:E187FB7CFC7E3928CF6AA8D1EF87387EF14B452C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

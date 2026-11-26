@@ -22,8 +22,7 @@ Moonsorrow — финская фолк/викинг/блэк-метал-груп
 ```bash
 magnet:?xt=urn:btih:4943BF7775ED7E8BBE971F7A3D7A92CA996D19FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy M
 ```bash
 magnet:?xt=urn:btih:177683999F4E23A3BBA4A2F864FB76812DEAF171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

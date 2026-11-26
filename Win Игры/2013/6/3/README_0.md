@@ -19,8 +19,7 @@ Newshawk: Bags A Bootlegger / Репортер. В погоне за банда�
 ```bash
 magnet:?xt=urn:btih:7BB5653C224DBB05E042D981C3681D1676B21BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Pro Evolution Soccer 2013 PESEdit Patch (2013) [En] (3.8) Mod PESEdit
 ```bash
 magnet:?xt=urn:btih:F616CCCCC129591E1E49EA1682AEF3D08A288441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ The Testament of Sherlock Holmes (2012) [Ru] (1.0.0.4) RePack Fenixx
 ```bash
 magnet:?xt=urn:btih:4B0FB40B25179841EB334CEF95187D4CFDD01F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

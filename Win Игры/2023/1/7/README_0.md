@@ -19,8 +19,7 @@ FixFox - это научно-фантастическая приключенче
 ```bash
 magnet:?xt=urn:btih:155D23C5BAD7C907CF531F94B7F6498CFB599787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

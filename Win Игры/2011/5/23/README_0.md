@@ -19,8 +19,7 @@ Frozen Kingdom (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:FB0883EDFD39809E5753BC71F9BB4D74CC14FC9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stand O'Food 3 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:6DAD5C3D62D942FE45D2523559859344AEB382FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ancients of Ooga – это платформенная аркада, «духо�
 ```bash
 magnet:?xt=urn:btih:4ADCE02DB2032E5FC673F0483F1BE9055EF7DE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Black Sails: Das Geisterschiff (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:4EB461FCE0DD99A48964E0ADD41F1B51E332272A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

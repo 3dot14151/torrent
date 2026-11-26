@@ -19,8 +19,7 @@ Recuva - программа для восстановления удаленны
 ```bash
 magnet:?xt=urn:btih:43793DA6333E339AE5071C84BF7AC6091CC7DF0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Auslogics Disk Defrag Ultimate - это профессиональная вер�
 ```bash
 magnet:?xt=urn:btih:D20F7E71795C70C7C844A9A7543EFDEE34669EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MainType — это мощный, но простой в использован�
 ```bash
 magnet:?xt=urn:btih:C44029AEC15D9D21417EF4EA3A8FAF91C15F9C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

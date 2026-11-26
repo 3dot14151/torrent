@@ -21,8 +21,7 @@ Waterfox - бесплатный высокопроизводительный б�
 ```bash
 magnet:?xt=urn:btih:2505B4C02C89E97968B31704B86D94E018C3D323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Numpad Launcher Pro назначает действия на клавиши ци
 ```bash
 magnet:?xt=urn:btih:6E295EC5402F392160C822B89BB388140FFAD526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:5C6573F3BB844F2B5D1672BDD656A9202BAC8051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:B41B5174C8989C8AD72F634EB2CA50425ED73956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:3EF2E2F89650FACB7208CCA7C3C41DCC478737FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:0F2607C67DB5F579E56D2731936B80604D1D68C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C45A60C66AFA71936C6C1EE6CE9BF46960B99E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

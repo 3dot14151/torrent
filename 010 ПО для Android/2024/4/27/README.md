@@ -19,8 +19,7 @@ Gradient - это передовое приложение с лучшими AI-�
 ```bash
 magnet:?xt=urn:btih:A7D5D177F32BF2188DF53EB6CE7CC7DA9A315D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AirBrush: ИИ Фоторедактор v6.5.0 Mod by ImanAlien [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9161CC1088F4870CAAEE7D4FB50616293C682924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KineMaster - Video Editor & Maker v7.4.9.32405.GP Mod by youarefinished [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:CBADF9721EB3CBD468885BE39F53FD22F4365AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Carista — мобильное приложение, с помощью кото�
 ```bash
 magnet:?xt=urn:btih:9AE3A751F38541095901354EB0E72A99230D4209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FBReader Premium v3.6.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E0167622F99E122C9B98EC904B5D3B58DBDC99E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PDF Combine - надежный инструмент и незаменимая п
 ```bash
 magnet:?xt=urn:btih:6423A31FC07EA4E8BD815510CF78B34B369E6D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

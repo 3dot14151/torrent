@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8F03BE36D0E755EC657312A80EB501E406A87437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 ```bash
 magnet:?xt=urn:btih:553F207F486FD82084054713C5CDD1E5D0F9C320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ MacroDroid - удобное приложение, которое позволя�
 ```bash
 magnet:?xt=urn:btih:0902B5DE1865AD68C2FE99E19C85C3953302A33B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Carista — мобильное приложение, с помощью кото�
 ```bash
 magnet:?xt=urn:btih:7BA31EA5370B591F0415E5851B200D2738ACB990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:3205B93F1B1FB114244D158F94C33DFAD99F918E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

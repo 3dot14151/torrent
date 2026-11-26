@@ -18,8 +18,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.12.28 [Ru]
 ```bash
 magnet:?xt=urn:btih:932C4CAEA2EAFA01F531747ABDC412EB758F13E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

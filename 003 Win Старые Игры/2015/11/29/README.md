@@ -19,8 +19,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 ```bash
 magnet:?xt=urn:btih:37B63239DF79948E3D0E2DF1EBF9676D7C220955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 ```bash
 magnet:?xt=urn:btih:4F703D74B6D8FDF2A870986D34191C817229F6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

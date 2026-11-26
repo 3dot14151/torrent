@@ -22,8 +22,7 @@ AC&DC - From Down Under (1980) 1990, Unofficial Release [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:537FE744A4F8D9CCD59233EED2E9F597FD13CCC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dream Theater - Quarantième: Live à Paris (2025) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:36FA660E655ADDDD72B5CB15725F7FBF827D8E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ My Ticket Home - Pure To A Fault (2025) [MP3|320 Kbps] <Nu-Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:3BE4660B0B182F87521259ACCFD21AB67AC66CBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Marytale - Тёмное царство (2025) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:FE08AD173135FF761CF7BE8FE06D132E0C2A1B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

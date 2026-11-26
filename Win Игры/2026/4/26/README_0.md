@@ -19,8 +19,7 @@ Dome Keeper (2022) [Ru/Multi] (5.0.2/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C029EBF07B9DA8B07C7950CCD2ECEDA5FB7F35D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tower Dominion (2026) [Ru/Multi] (1.6) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E23B123B670096DEA5AB22D4A3A690A66444D603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Above the Snow - это сюжетная игра-менеджмент о раз
 ```bash
 magnet:?xt=urn:btih:CD2377BFF84EA51FA0EB0F54D1899DA73D6B4F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ REPLACED (2026) [Ru/Multi] (1.0.1102) Repack Other s [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:0D6A9777BD3B7715783F76A7053B378D8650C33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Causal Loop - нарративная головоломка с научно-фа
 ```bash
 magnet:?xt=urn:btih:11230DF02DBF2652F9152869E5B893BD8892DF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Alaska Gold Fever (2026) [Ru/Multi] (2026.04.25.01) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:ABFF9A4445653A7824F80CBF1BF72B29901C8A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Shapez 2 - Factory (2024) [Ru/Multi] (1.0.3-rc3/dlc) Repack Let'sРlay [Supporte
 ```bash
 magnet:?xt=urn:btih:484DD5E9DDCE3FAD64991B86FA3F4B40B7271C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dead Space (2008) [Ru/En] (1.0.0.222) Repack xatab
 ```bash
 magnet:?xt=urn:btih:CFF02E7BEB48D53FC4DECAAEF9EBF732D66E9BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Shapez 2 - Factory (2024) [Ru/Multi] (1.0.2-rc1/dlc) Repack Other s [Supporter E
 ```bash
 magnet:?xt=urn:btih:7427615511930623F80C9AC5DF091BD7019B8EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Dungeon of Naheulbeuk - это ролевая игра, основанная
 ```bash
 magnet:?xt=urn:btih:BC50CDFE8A7ECCBFD617060E4F93F2698EE6544D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:CE88318F858ED4FC20DE5170B8E55F17EFE51C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

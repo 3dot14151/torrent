@@ -19,8 +19,7 @@ Surface 3: The Soaring City Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:4342227843DEBFBA1B79ABC21625266B816D868B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death Pages: Ghost Library Collector's Edition / Бессмертные стра
 ```bash
 magnet:?xt=urn:btih:161C02FAAEAAF0A7C52161D07B11206754B5A8BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lunar Flight [En] (RePack/1.671) 2012 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:E7E51BC9047F8C3C4B75A93311F04615CA2C64B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Max Payne 3 (Patch/NoDVD/1.0.0.113) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:5A03F64A39A709BE7A2EDDB7B84677210E310D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ DmC: Devil May Cry [En/Ru] [Crack] 2013 | Reloaded
 ```bash
 magnet:?xt=urn:btih:4B26C1F9286AB03C6323B073BDBBAB3978478952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Ace Combat: Assault Horizon - Enhanced Edition [Ru/En] (RePack/1.0.117.128) 2013
 ```bash
 magnet:?xt=urn:btih:DA2B7FE84037603AAC9DB490EF0CBAC79CAB14B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Ace Combat: Assault Horizon Enhanced Edition [Ru/En] (L) 2013 | *FLT*
 ```bash
 magnet:?xt=urn:btih:08F58C1547E2E0FA11E16638C073BD3355069C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Miner Wars 2081 [En] (P) 2012 | *FLT*
 ```bash
 magnet:?xt=urn:btih:97F1008C491BFB3A2C612ECB8C05061FFCBC2D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Ace Combat: Assault Horizon. Enhanced Edition [Ru/En/Multi9] (Steam-Rip/1.0.117.
 ```bash
 magnet:?xt=urn:btih:18DC1DAF1B9B1139A7239CC3EF996C3A170A48AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

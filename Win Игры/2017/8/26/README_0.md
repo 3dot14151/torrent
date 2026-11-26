@@ -19,8 +19,7 @@ Vermillion Watch 3: Order Zero / Алый дозор 3: Орден Зеро (201
 ```bash
 magnet:?xt=urn:btih:73075C5D0F4AC32F01D04C0181E0F394BF237D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rescue Team 7 / Отважные спасатели 7 (2017) [Ru] (1.0) Unoffici
 ```bash
 magnet:?xt=urn:btih:9C310E0C9B3E4C3EAFFC0CB68F6897C1E015B9B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Matter - это 2.5D платформер с элементами хорр�
 ```bash
 magnet:?xt=urn:btih:8C8775B9CEA84232339C6575EE6ECCD6F73B5CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.953.7721/dlc) Repack Other s [Gold Edi
 ```bash
 magnet:?xt=urn:btih:D819D2089D4631A90862117EDD5C320C1CF0DC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Max Payne 3 (2012) [Ru/En] (1.0.0.196) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:77520D068D3DBC08CBEB9FC29DA1F78C0BBF7A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hero Siege – это пиксельный рогалик, в котором в�
 ```bash
 magnet:?xt=urn:btih:2AC8BDEE84F995FF736AB9CA0ABA58A9DA4BBF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

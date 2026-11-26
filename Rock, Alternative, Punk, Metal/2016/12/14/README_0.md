@@ -22,8 +22,7 @@ Aracner - Nación Tierra (2016) [MP3|320 Kbps] <Progressive, Thrash Metal, Melod
 ```bash
 magnet:?xt=urn:btih:881B32A1339835807AEFD28999DBF9582F30688A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Niva - Atmospherical (2016) Japanese Edition [MP3|320 Kbps] <Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:D01A3B68DBD1B69CBFB10293182E425F0344D790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Trey Gunn(King Crimson) - Raw Power (1999) [FLAC|Lossless|image + .cue] <Avant-G
 ```bash
 magnet:?xt=urn:btih:45301564B7DBA89007A6AFC45C6F2937A9C76A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Snakes in Paradise - 6 альбомов (1994-2002) [MP3|320 кб/с]<Melodic Ha
 ```bash
 magnet:?xt=urn:btih:5A9FBD86F3C58B7DFD895EFF0A011AE5B25AA56E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

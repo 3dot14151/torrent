@@ -26,8 +26,7 @@ Freddie McLennan - Time Will Tell (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5FE388CF11A6BF9CC623C26250B74BADF91C955F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Pixies — американская альтернативная рок-груп
 ```bash
 magnet:?xt=urn:btih:3D795A98A32451CA873A4F6543388E1CBBB369C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Giant Sleep - Selftitled (2014) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:327465B799F580A2C139F9CF590C6BAE22D29AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ The Legend - The Legend (1969) [FLAC|Lossless]<Progressive rock>
 ```bash
 magnet:?xt=urn:btih:2EEDEBCAB2A2113FFFF6A939F662F800263C523F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Gino and The Lone Gunmen - Idle Hands (2013) [MP3|320 кб/с]<Rock & Roll, Rock
 ```bash
 magnet:?xt=urn:btih:3564CAF44134C174604B07A145FCC7506D53252A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Impaled Nazarene - Vigorous And Liberating Death (2014) [FLAC|Lossless]<Black Me
 ```bash
 magnet:?xt=urn:btih:5E7B63DE2798C7523FF83E83A80F0E2BAF93EE42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Social Distortion (иногда обозначается как Social D или 
 ```bash
 magnet:?xt=urn:btih:E67067C426DC0FE1436CD33D11D2447F2001BE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Winger - Better Days Comin' (2014) Japan Edition [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:49CDAEE0F046E9B6602074A169595D3D48ECEBB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Ray LaMontagne - Supernova (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:37D8BEFDB6C07138823AAD8B4A21DA63C7031935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ tAKiDA - All Turns Red (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:70E185DDBC41619B83067EA0C69D629FCE7A1A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ Pixies - Indie Cindy (2014) [MP3|320 кб/с]<Indie Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:FFB1188780DE1C1A41DDD8739403AE28F1F94D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +396,7 @@ Damon Albarn - Everyday Robots (2014) Special Edition Bonus Tracks [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:3B322900F46C73FAE51470D11BCB2123DC137EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +426,7 @@ Crystal Antlers собрались в январе 2006-го года, где-т
 ```bash
 magnet:?xt=urn:btih:5F279C1B8D02D92CAF9894217BAE84F371C1F97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +460,7 @@ Neil Young - A Letter Home (2014) [FLAC|Lossless]<Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:D7E6A2EEEC44AD00F6C9054200DBA3F864123272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E497D00973DC388B32E8D383D5B1D1528FDF422D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +523,7 @@ Tame Impala - Live Versions (2014) [FLAC|Lossless]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:1641CCF47F87CD70A73E1B820031F9EBA1F9DE76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +557,7 @@ Imelda May - Tribal (2014) [MP3|320 кб/с]<Rockabilly, Blues>
 ```bash
 magnet:?xt=urn:btih:2996813A6E134BF9E8F0C0B347DE45D72F08BB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +591,7 @@ Porn Queen - Porn Queen (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A7CAE1B0F2301160D2158634AA56EB5E1C38132F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +620,7 @@ VA - Billboard Top Rock'n'Roll Hits (1955-1959) 5CD /1988-1989 Rhino Records/ [F
 ```bash
 magnet:?xt=urn:btih:AA11AE036D3387CBF38BDC43257B67C37105FEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +649,7 @@ VA - Billboard Top Rock'n'Roll Hits (1965-1969)  5CD /1988 Rhino Records/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:958C2F8521F423440901E417DE23C5C857DFB36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +678,7 @@ VA - Billboard Top Rock'n'Roll Hits (1960-1964) 5CD  /1993 Rhino Records/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:A2DDF2813562C0765BD495942C69F0340B4B1209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +707,7 @@ VA - Billboard Top Rock'n'Roll Hits (1970-1972, 1974) 4CD /1989 Rhino Records/ [
 ```bash
 magnet:?xt=urn:btih:FF58D61E8F9A7CB7D5B615DB79E77E46FD0197EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +741,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59A70FC7AB1FF0C4DFB23F224D13064BC7CFA8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

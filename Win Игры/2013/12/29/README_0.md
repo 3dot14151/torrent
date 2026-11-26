@@ -21,8 +21,7 @@ Renegade Ops (2011) [Ru/En] (13/2dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:9E5A4AADF395BFC0638519857B20E5F467A23D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

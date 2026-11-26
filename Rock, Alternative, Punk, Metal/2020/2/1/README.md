@@ -22,8 +22,7 @@ Dark Matter - Nebula to Black Hole (2020) [MP3|320 Kbps] <Atmospheric Doom Metal
 ```bash
 magnet:?xt=urn:btih:0F493FC139FF45E0168BC2096CBC77F136824B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chris Rea - The Best of Chris Rea (1994) Compilation, Japanese Edition [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:1C25B4993B224B57A1D227A1E6BC1ADFE9EA6B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39F3E5CB1E4DA1F2C5CD80C1271FC385F229E1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chris Rea - 5 альбомов (1981-1988) [FLAC 2.0 24/48 | tracks (Vinyl-Rip)]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

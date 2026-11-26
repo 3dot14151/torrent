@@ -24,8 +24,7 @@
 ```bash
 magnet:?xt=urn:btih:2A32B01709EDCDD0348AD3476C083E2AD70F9A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ CD1 - Made in Japan (Steven Wilson Stereo Remix):
 ```bash
 magnet:?xt=urn:btih:9001FF93F99C1F07ACFE5EB00FD9F22C9A0B0E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ David Bowie - I Can't Give Everything Away (2002 - 2016) (2025) Reissue, Remaste
 ```bash
 magnet:?xt=urn:btih:ABCBC33A06C45AE140462F3B2A35DBF5F234822B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Dead End Tragedy - Electrical Impulses Of Hate (2025) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:A074A9CCDFE14B1361546D30C0E66EE879B0091A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

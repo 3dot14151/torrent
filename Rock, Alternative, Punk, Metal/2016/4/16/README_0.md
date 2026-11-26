@@ -22,8 +22,7 @@ VA - It’s A Rockabilly Riot! Vol. 1 (2016) [MP3|320 кб/с] <Neo Rockabilly, 
 ```bash
 magnet:?xt=urn:btih:B8D9FB331260873C7778EA00D5C1C499F2D28EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Larkin Poe - Reskinned (2016) [MP3|320 кб/с] <Indie Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:50D8D430B0321B68811BC4F8ACC9DB1CAF3C9145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6335CE0F949B593F290B27E206D94AEFAF27890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

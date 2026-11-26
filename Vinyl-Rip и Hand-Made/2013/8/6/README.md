@@ -22,8 +22,7 @@ Melody Gardot - 3 Альбома (2008-2012)[FLAC 2.0 24/96|image (Vinyl-Rip)]<J
 ```bash
 magnet:?xt=urn:btih:842F7247551AACCB6C88176ABB74324705A3A885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

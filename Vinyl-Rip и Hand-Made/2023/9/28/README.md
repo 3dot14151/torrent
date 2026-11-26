@@ -20,8 +20,7 @@ Lost Horizon - пауэр-метал группа из Гетеборга, Шв�
 ```bash
 magnet:?xt=urn:btih:31C6AE0A14B08B4DD6B01EE17E315418169EB977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Secret Service — легендарная (   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:B94AAAF91AE0B9CD6A49947356A02621D92AA1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

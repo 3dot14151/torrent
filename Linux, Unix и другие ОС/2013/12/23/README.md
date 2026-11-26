@@ -23,8 +23,7 @@ Linux Mint 16 XFCE [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:ADDDA50FF9FEF433585684030F2FAEDE9FE79DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Linux Mint 16 KDE [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:4D06A9F8260FAD00E478BB6ACC850831B1A6ACDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

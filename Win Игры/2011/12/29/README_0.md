@@ -19,8 +19,7 @@ Shadow Wolf Mysteries: Bane of the Family Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:75DBE70A918A61260C8E5E48850DCBA29CA5ED6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14A681892035152C31C6E436D2B05CF38BA6E9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C996C293E12FFE055A0B0095A040E88BFCDC3DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ House of 1000 Doors: Family Secret Collector’s Edition / Дом 1000 двер�
 ```bash
 magnet:?xt=urn:btih:884784ADE7E8F8E41512E02253F8CF7D06CFA298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

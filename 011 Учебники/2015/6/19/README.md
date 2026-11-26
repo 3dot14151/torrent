@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4DC66C15194EF521AA7C758CE8A7336C3501B4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E127471287A221BEEE21246718E4A766FA3AEE4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Tektronix | Генераторы сигналов от А до Я (2008) [PDF]
 ```bash
 magnet:?xt=urn:btih:E6BA743B64279B65FE855500805B62F43B5EF88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Tektronix | Пробники от А до Я (2013) [PDF]
 ```bash
 magnet:?xt=urn:btih:B158F512EA53AC85DE9A388419E6E121A7965562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Tektronix | Осциллографы. Основные принципы изме
 ```bash
 magnet:?xt=urn:btih:D8F34A7332CF1EA73B0FD0F4AE23960815626A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1124284CB5AC83101BB3C144760E1F770D343797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

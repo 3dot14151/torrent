@@ -28,8 +28,7 @@ Cervello - Cervello (2011) [MP3|320 кб/с]<Modern Rock | Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:CEAEC792AF3FC16C503C5E167BE8C40549FF0D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Dimension Act - Manifestation Of Progress (2012) [MP3|320 кб/с]<Progressive M
 ```bash
 magnet:?xt=urn:btih:90844E4F3428FE5462F9BA6B28B8557DBA886263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Down Below - Zeichen (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Solitude - Tied To The Anchor (2012) [MP3|256 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:E47C968E2E651ED8D2CEE31A0EB87485C0EA6237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Hopelezz - Black Souls Arrive (2012) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:BFD8A330E4235FA53FBA4677DFA3A6EEFA5BDF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Dylath-Leen - Cabale (2011) [FLAC|Lossless]<Death Metal/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:2084EFDEC0F4AF8CA8B14CFCC2469A8D37E702D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Vena Valley - Playground (2009) [MP3|256 кб/с]<Gothic Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:A41F8B3D672D13A6AC0E4CED30AB9B9E38014568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Pink Floyd - Sampler (2011) & Boredom And Pain (Live In Boston -1977)(Bootleg) [
 ```bash
 magnet:?xt=urn:btih:B5FC95717BF3A925F2E283101BB69577E734AC07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Powerwolf - Alive In The Night (Live) (2012) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:88B65D915D8BD9B5C7AEE6D8B58F7E799C345E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

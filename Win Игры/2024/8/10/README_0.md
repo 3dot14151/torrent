@@ -19,8 +19,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Scene Doge
 ```bash
 magnet:?xt=urn:btih:3E24EFB450634641934A2A671B5FDAC24D61268D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MARS 2120 - это приключенческая игра в жанре мет�
 ```bash
 magnet:?xt=urn:btih:5029FF60451D91F9AD1EAB1EA6D47B12C29C4D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Scene Rune
 ```bash
 magnet:?xt=urn:btih:09A7BE76E0815B4F3EB78FE5EC7C368D2283198D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Universe For Sale (2023) [Multi] (1.3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A4CB6A2EE09EB0851923ADCCF04C6CD05F3E891D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:27C5B715A0BB33589C40DB60EE587F3BFCE38E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:767E3C9B9B54EC870CC430E48A7F1579654A1774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Aerial_Knight's We Never Yield - насыщенная напряженным д�
 ```bash
 magnet:?xt=urn:btih:45B3972175751B6F00DBD24CBF75060D12AF6DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Scene Tenoke [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:713D87CEB94B5C53AD34CC47DC1BCA6F71DD2B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Deathbound - действие игры разворачивается в сре�
 ```bash
 magnet:?xt=urn:btih:3E3C34756C83D6D11A15969387563A19D65407B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Moonless Moon (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3FAD495A0FE47B2EC898D88EFD06F1E43C5627C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01) 
 ```bash
 magnet:?xt=urn:btih:198A87EB17BFD522D9888E392F832D3378EEF93C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

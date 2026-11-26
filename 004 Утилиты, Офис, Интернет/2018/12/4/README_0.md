@@ -19,8 +19,7 @@ All PDF Converter - быстрый и надежный PDF-конвертер п
 ```bash
 magnet:?xt=urn:btih:09FC70BCB989A14AA76FA379F7DDD74CD0FF7FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Document Express 8 Enterprise 8.0.36300.0 [En]
 ```bash
 magnet:?xt=urn:btih:262D19FD9F7F682A58D501A79E206E42667DB134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

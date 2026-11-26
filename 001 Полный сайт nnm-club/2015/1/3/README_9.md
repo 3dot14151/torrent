@@ -28,8 +28,7 @@ Council Of Rats - Ill Weathers (2014) [MP3|320 кб/с]<Hardcore Punk, Neocrust,
 ```bash
 magnet:?xt=urn:btih:7AD41761654BB6B576533FC31E332C2B3D29FBA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Eltharia - Innocent (2014) [MP3|320 кб/с]<Power Metal/Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:03525E18C77F3D3B62611B3DC0609D569568AC00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Offence - R.A.W. (2014) [MP3|320 кб/с]<Old School Death Metal>
 ```bash
 magnet:?xt=urn:btih:385D61B4C1CAE75016944F1F59354C8F8A894ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Facility - The First Four (2015) [MP3|320 кб/с]<Screamo, Hardcore>
 ```bash
 magnet:?xt=urn:btih:BAFD9E0C17B144F25ABE54944813928FC1C63712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Albums, Split:
 ```bash
 magnet:?xt=urn:btih:F49969906C79AA0C4C7AE6C78D2745B1B1E68CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Social Enemies - Social Enemies (2014) [MP3|320 кб/с]<Punk Rock, Female Vocal
 ```bash
 magnet:?xt=urn:btih:2E555CEE287F2C6F28E38F276398F93906818CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Confession - Life and Death (2014) [MP3|320 кб/с]<Metalcore/Hardcore>
 ```bash
 magnet:?xt=urn:btih:252A92215EE2787E86FCC360FA471D8EE935186C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Steel Attack - Carpe DiEnd (2008) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9CE28F73D11DFAB6ECAA67EE356283DAC2239867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ Wings In Motion - Cyclicity (2014) [MP3|320 кб/с]<Progressive/Melodic Death M
 ```bash
 magnet:?xt=urn:btih:993BA82446019FFAE554AA9318F8D171E4023350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +320,7 @@ VA - Super Music Group Twilight (2014) [MP3|320 кб/с]<House, Electro, Club, E
 ```bash
 magnet:?xt=urn:btih:09428B669A155F705C91A77849A72CD23CB42C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Witheria - Devastating Return (2014) [MP3|320 кб/с]<Melodic Death/Thrash Meta
 ```bash
 magnet:?xt=urn:btih:67CC8712FFF3B6C46A49502D09EFDE0C09CE8913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Mongo Santamaria - Live At Jazz Alley (1990) [FLAC|Lossless]<Jazz, Latin>
 ```bash
 magnet:?xt=urn:btih:315758DAF1863E6E772D3165A0593085DF9755EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +420,7 @@ Modern Jazz All Stars - Modern Jazz in Tokyo (2009) [FLAC|Lossless]<Hard Bop, So
 ```bash
 magnet:?xt=urn:btih:7FEEE6F12B0FA729163F88AC335A177F9BF4DA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +449,7 @@ My Fallen Breath - Боли net (2014) EP [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:F6555E7CA1905576327A86FF089E151283C3890D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BBA9D0D8DABA477FD3966E44BA9753E0E7D0772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +509,7 @@ Moe Koffman Quintet feat. Dizzy Gillespie - OOP POP A DA (1988) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:129F3AB061D5A826771EEE05215F0BC6554FF8DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A61622AF5BD6BAD533A26A752041E9BBEFDF9BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:243483E9211AE92A687C8C4F5AA180431ABD2FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +597,7 @@ Hate Inc. - Art Of Suffering (2011) [MP3|192 кб/с]<Industrial/Industrial Meta
 ```bash
 magnet:?xt=urn:btih:A91813D1FD3C48689A03691096F265541C113F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF734870F5E8D4105523899E3838823FAA61D943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +658,7 @@ Mongo Santamaria - Mongo Santamaria Y Su Orquesta (1995) [FLAC|Lossless]<Jazz, L
 ```bash
 magnet:?xt=urn:btih:856C0D69D10397CCA2965F9A84DD0B8CFA3579DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +692,7 @@ VA - Music For Everyone - Progressive house Vol.3 (2014) [MP3|320 кб/с]<Progr
 ```bash
 magnet:?xt=urn:btih:FB75C9006F57BA5C06D6DB29038EC13E003F1127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +722,7 @@ The Project Hate MCMXCIX - There Is No Earth I Will Leave Unscorched (2014) [MP3
 ```bash
 magnet:?xt=urn:btih:F9E582797C0CE39DF7D5989816DAE64C8DF54547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +755,7 @@ James Carter - Chasin' The Gypsy (2000) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:2269086A35490518FD5BAE629658C067B537BA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -813,8 +789,7 @@ Molly Johnson - Because Of Billie (2014) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:5AC19C2CBEF7299376460B2408F7ACE380D0841F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -848,8 +823,7 @@ Decoy - Call Of The Wild (2007) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EB7445183AEA617DECC47465867B37C25882E5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

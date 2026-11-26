@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:05AF2B111D36F2D45A00EBE66EE3F91DCA4A9D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D87430DCAA06A8805058196F9181B1603415AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F3FCBC00FBAD5F117C0999278D6606B047600F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F33B0E580CB3DCE8265D669D3D482056B2FE168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D35E9E816D4CCD257E0DEBBD93FA1CB1A01DF197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Page, Jones, Plant
 ```bash
 magnet:?xt=urn:btih:E82598481F2D05AF0DEDEBC92E05FBFC09AB29A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:FA02D4E5BE601DC5FD0CC9CBF095CFF888014CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23DECC65ECA97561F287CB7D6EC0B01E85A5F5AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Discovery: История мира. Серия №5 / History of the World (2012
 ```bash
 magnet:?xt=urn:btih:307F89119CAB1BA2AC61AD3BD87B8DA18CB8E96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BB57C22117F1916DF1E69DDF92E52E70B1744D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Ontrack EasyRecovery Proffesional 11.0.1.0 Portable by PortableAppZ [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B524B6CC8E7076059054815D4FD7574B6E785829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ VA - German Top 100 Single Charts (23.09.2013) [MP3|177-269 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:E93B821A007C39E5860FC52332DFE975B9AFEB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Redlight King - Something For The Pain (2011) [FLAC|tracks + .cue]<Alternative R
 ```bash
 magnet:?xt=urn:btih:8C37E94FE57ECF392BCE51CB5BD6BEB2B2FDAB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB1D590FD1F4F42BE200174F5FA1DC7C98B8DAFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ VA - Absolute Music 71 [2CD] (Eva Records) (2012) [FLAC|Lossless]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:18444EEEEF405B8FC1D15C9999EE18315B476118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EBB365374C7A5982880621ECAF120B903404E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E7898A9517C65E2C8455C8ABFB51A439500B6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Comedy Woman. Новый формат. Выпуск №111 (2013.09.20) WEBDLRip
 ```bash
 magnet:?xt=urn:btih:18BD7F43B61F819C8A5AA5E137A885428EFE11A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Discovery: История мира. Серия №6 / History of the World (2012
 ```bash
 magnet:?xt=urn:btih:FA11583C730CB4A322638018752F0E03515BC9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Ben-Tou / Жрач-ка [2011, TV, 12] BDrip 720p Hi10bit raw
 ```bash
 magnet:?xt=urn:btih:D1E221F34397B2B22567EF11B50AC27F6A8BDAE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ LOWRIDERZ (RU/EST) guestmix:
 ```bash
 magnet:?xt=urn:btih:1C290A7FB067AE2A0A7606AE50912218C052D819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ADA9DC92A7911BC612F470ED319C8C9D962600D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ Discovery: Северная Америка. Серия №6 / North America (201
 ```bash
 magnet:?xt=urn:btih:B70EB53E5D0A2C8834F2C1CD899AD88C0FD83E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6803BBAFE8854D27C03F2D5EFB5D80331D968395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CFF7CCAC9B232327400607634204EE1D45E0037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ MotoGP. Гран При Испания Каталония. Этап 6/18. Гон
 ```bash
 magnet:?xt=urn:btih:977EEB5A35A2B868BD641F76F193A618ED3ED140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

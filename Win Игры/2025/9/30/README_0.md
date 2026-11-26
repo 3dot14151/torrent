@@ -19,8 +19,7 @@ Dark Town Secrets: Lost Lulu / Секреты Темного города: В п
 ```bash
 magnet:?xt=urn:btih:258BA2EDEA473B91E2086E83253569B1C82755E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ System Shock — это полноценный ремейк хита 1994 го�
 ```bash
 magnet:?xt=urn:btih:B6B76F017DA530855BEF16F678A4FA338A3AE5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack sele
 ```bash
 magnet:?xt=urn:btih:34B9EF75062B24D0E8FED0DE76947D24A22CB52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.23477) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:09314050D2321E7A468C944ACF782D6F461232D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Luma Island (2024) [Ru/Multi] (1.1.4.25451) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2D4F659E34A3662F04E4D199182CD9BE12665ED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Phantom Squad погружает вас в хаос тактического б�
 ```bash
 magnet:?xt=urn:btih:B02A053A5E3E839D8674B701490238830EABD9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Crossfire: Legion - тактическая стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:3EC346A0418EE5EFFE0496024C6F848453BB8005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Choo Choo Survivor 2 (2025) [Multi] (Build 20180986) Repack Let'sРlay [Playtest
 ```bash
 magnet:?xt=urn:btih:63D18BDA003201840CA53AB025B11B3717384D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Choo Choo Survivor (2023) [Ru/Multi] (Build 18689660) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F7E0061E6988A478333426C0237AF3F5B8AFD096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

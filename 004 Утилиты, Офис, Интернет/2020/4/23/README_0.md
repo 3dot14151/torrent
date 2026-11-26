@@ -20,8 +20,7 @@ CLIQZ является современным веб-браузером на б�
 ```bash
 magnet:?xt=urn:btih:FC2E614B6ED5F12D984141C79C16F50BFEB554DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SysTweak Regclean Pro - универсальная программа для и�
 ```bash
 magnet:?xt=urn:btih:05CA4665164A5BC76A50454641A6F65414D7B48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Rex Nebular and the Cosmic Gender-Bender [En] (RePack) 1992 | Pilotus
 ```bash
 magnet:?xt=urn:btih:AE5904D74B062A4CF5615A09C77E3FC713C872DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Lost Files of Sherlock Holmes Дилогия [Ru/En] (RePack) 1992-1996 | Pi
 ```bash
 magnet:?xt=urn:btih:F5BA7DC9DA967EE1AB3857E324A8701FF3E4878B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Caesar III - градостроительная стратегия, собрав
 ```bash
 magnet:?xt=urn:btih:5228FF79BAF326AEFE07190C09828CC6FB84722E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ EuroCops / Полиция Европы: Спецподразделения [Ru] 
 ```bash
 magnet:?xt=urn:btih:7C54E9D2EE6CE25C457F0582885D935B8F7CDD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

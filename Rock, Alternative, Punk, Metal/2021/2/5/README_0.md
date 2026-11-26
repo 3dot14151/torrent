@@ -22,8 +22,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:84D40080ECC033559EAB2114C0B790BA9BFA999C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kald Kriger - A Season of Pagan Sorrow (2017) [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:CD0823951914E554F57E92C9823F905A795D08BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ploho - Фантомные чувства (2021) [MP3|320 Kbps] <Post Punk, New 
 ```bash
 magnet:?xt=urn:btih:F9FD652F3F513D68F254ACD63E7FA5FE413CE423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:60A95D8684D16A0E7B53EB8770835DAE28BBF799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D6D139C6364BEC077EEA2CE04E467B75AC2C957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43B0925DEB79471C5A7181EC19BCB74D05F0FE51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:425DB66064D170329E6CDF12807EB211EF3A9014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

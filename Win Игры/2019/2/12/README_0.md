@@ -19,8 +19,7 @@ The Forgotten Fairytales: The Spectra World (2017) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:C57392B617C3A065AADE6229AFFC89EC051AC98A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Hotel 14: Personal Nightmare (2017) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:25D759A29C78B4233C316D277D803EFECB3F6792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ League of Light 5: Edge of Justice (2017) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:B0F45A31923215D9F216A854B76A6812B4971C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bridge To Another World 4: Escape From Oz (2017) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:01F2B09F4637E5D743A93B406CA9D3BC219B113D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Jump Force (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:9538FD94A25A9FACE8B11CF44DB7B46A26CF8393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crashday (2017) [Ru/Multi] (1.5.30.911) Repack ivandubskoj [Redline Edition]
 ```bash
 magnet:?xt=urn:btih:07A496505178E9E2EC049399417356871389A20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Battletech - это пошаговый ролевой экшен с робота
 ```bash
 magnet:?xt=urn:btih:2382EAE2C0BF4ECF7EEA64C2A01E13916D63F07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

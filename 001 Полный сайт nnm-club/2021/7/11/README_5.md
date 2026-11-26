@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:356A055561D8E26522E716B67C0B31B3F6F8A443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ GTA / Grand Theft Auto: Malinovka RP (2019) [Ru] (23.06.21) License (обнов�
 ```bash
 magnet:?xt=urn:btih:E91AB5BA7F4F37EB9155BFF7E312C79EE5F68803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Resident Evil Village (2021) [Ru/Multi] (6587890/dlc) License EMPRESS [Deluxe Ed
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Mass Effect 2 (2021) [Ru/En] (2.0.0.48602/dlc) Repack Other s [Legendary Edition
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

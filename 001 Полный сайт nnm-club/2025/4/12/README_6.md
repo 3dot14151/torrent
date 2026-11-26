@@ -18,8 +18,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.7.6 Gold 
 ```bash
 magnet:?xt=urn:btih:BE25937F3E300915FCFA8BD618564C9380644C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

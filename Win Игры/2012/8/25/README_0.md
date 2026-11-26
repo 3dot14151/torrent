@@ -20,8 +20,7 @@ X-Men Origins: Wolverine / Люди Икс: Начало: Росомаха [RuEn
 ```bash
 magnet:?xt=urn:btih:E81053C9A25949077744431BF0110DE34F8DA7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

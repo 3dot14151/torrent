@@ -19,8 +19,7 @@ Ecstatica Антология [En] (RePack) 1994-1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:DA18FE3AB28F296B466F4A64561B81D9F6A62BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4CF61C4BEB6FDE0915C24BA549F9E6147FCDC18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

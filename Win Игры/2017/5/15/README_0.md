@@ -19,8 +19,7 @@ Sanctuary RPG (2015) [En] (2.3.1) License GOG [Black Edition]
 ```bash
 magnet:?xt=urn:btih:ADBD0835A328E3DE697A087C58AED96FD363C71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

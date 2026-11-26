@@ -22,8 +22,7 @@ Red Faction: Armageddon [Ru] (RePack/1.01) 2011 l Fenixx
 ```bash
 magnet:?xt=urn:btih:9F3B282C7132254B18760C791BD7712321A26230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Nemo's Secret: Vulcania / Тайна Немо. Вулкания (L) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:E56DCF533842923EB50433BAE4DAD2249564C87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

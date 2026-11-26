@@ -20,8 +20,7 @@ C# — универсальный язык, который может практ
 ```bash
 magnet:?xt=urn:btih:490652A7AE61CFE3AFDEB32A044915389D814F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

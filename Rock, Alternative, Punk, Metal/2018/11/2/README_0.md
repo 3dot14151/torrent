@@ -22,8 +22,7 @@ Sundrifter - Visitations (2018) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Psyc
 ```bash
 magnet:?xt=urn:btih:BD48373BC882ED5A818983FDA38D3A8854700CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ CD2 - 01:02:28
 ```bash
 magnet:?xt=urn:btih:11D9600C5C7D41932E9033C738EDCC3654B72874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ The Ocean - Phanerozoic I: Palaeozoic (2018) [FLAC|Lossless|WEB-DL|tracks] <Prog
 ```bash
 magnet:?xt=urn:btih:42BE1310569982EE78131945BBE9920DBA3C32DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ The Kooks - Let's Go Sunshine (2018) [FLAC|Lossless|tracks + .cue] <Pop Rock, Br
 ```bash
 magnet:?xt=urn:btih:4FBF5E22464ECA9A6D04C96B03A9698DCD12FF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Joe Satriani - Flying in a Blue Dream (1989) [FLAC|Lossless|tracks + .cue] <Alte
 ```bash
 magnet:?xt=urn:btih:5DAB7AD954117F305B6582391FA010B776E20DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Birth of Joy - Hyper Focus (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic Roc
 ```bash
 magnet:?xt=urn:btih:7F4318ECBC0228E93F1488D618D23CD9ED0C0A3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35163C7FB643D2A64F60F08A76A0D3FDA230ACBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:455061B96DF16B7AE44C17DDC5E3325FEA76F5FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Marianne Faithfull - Negative Capability (2018) [FLAC|Lossless|WEB-DL|tracks] <F
 ```bash
 magnet:?xt=urn:btih:698B3DED8A41D2D47D3172E62651843A6638B8E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) [MP3|3
 ```bash
 magnet:?xt=urn:btih:2DB72C975854705A13EA4BA27AAF70D65EFD4F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Dead Can Dance - Dionysus (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical
 ```bash
 magnet:?xt=urn:btih:FA0CCB81ABE7369BC52D4A0B44E5D3BE8D295910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Metallica - Kill 'em All (1983) 1988, Reissue [FLAC|Lossless|tracks + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:218FCC220ABDB3CBE7994A10B0801BD7C856A5C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Metallica - ... And Justice For All (1988) [FLAC|Lossless|tracks + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:7B71CC0DE7EA23052032F695870F320312FFF00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

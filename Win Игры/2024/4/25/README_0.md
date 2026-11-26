@@ -19,8 +19,7 @@ Arcade Tycoon: Simulation Game (2021) [Ru/Multi] (2.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:DF6BE43B61A5E2CEF506C0463F02A007AD81606E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eclipse: Echo of Dimension – отправьтесь навстречу нев�
 ```bash
 magnet:?xt=urn:btih:E62BBCCDB82AE7EABF03D3F2A4A1BB52F2D0EB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nexus 5X (2024) [Multi] (1.0.6717) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F51344A7A240B59036F6A886B22504DC1B9598C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 ```bash
 magnet:?xt=urn:btih:29594A5BF75A4D85585E70FC851ECA7A92FA0D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Life Eater - это симулятор культиста, сочетающий 
 ```bash
 magnet:?xt=urn:btih:4D8468084D3E2D60D31F59C495A3BB876DD774E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sweet Transit – это градостроение, где все во мног
 ```bash
 magnet:?xt=urn:btih:7015EA57C33DB5E6EAD65164543F2A757FC939B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Crimson Tactics: The Rise of The White Banner - пошаговая тактич�
 ```bash
 magnet:?xt=urn:btih:F570AD3779FDCC39604C4CDAACEB19AB2C029720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Rise of the Triad: Ludicrous Edition – эпическая реинкарнац
 ```bash
 magnet:?xt=urn:btih:830154EA4F7DDEC8CFECA53B1A646285E9B4D154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Jawbreaker (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5BE314DF37DD97624794F4710EFB146114E89560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ MADievals - The rise of Rusty Steelknee (2023) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CCADF74E61AB27784958AD173AE3F43D1004EF0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Once a Tale - приключенческая игра с кинематогра�
 ```bash
 magnet:?xt=urn:btih:9BBC6A5649CAB913553A98EC0A51315ABAC0040E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

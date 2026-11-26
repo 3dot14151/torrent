@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:03CD721BFE3911FF2FFB2D1A0EB34F733B81EBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFAC3CDA43EDDF1A5B4F708629EC05DA2F22255C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Leah - The Quest (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal, Medieval 
 ```bash
 magnet:?xt=urn:btih:DC320473C01C2C20F11CBD121AE51A103FE5361B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Those Poor Bastards - Inhuman Nature (2018) [MP3|320 Kbps] <Gothic, Alternative 
 ```bash
 magnet:?xt=urn:btih:76BA5E95BC2B40BF86536C24B50397056AA00596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

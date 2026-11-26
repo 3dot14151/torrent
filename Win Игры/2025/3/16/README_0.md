@@ -19,8 +19,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:513F69A1AB1838A06286B976A66F3D982CF9953E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5EA9B6C7DBC2E32180EC41E326A0CE7695D9CE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:732644725CAC1A946053F78083681AD339AAD56B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Montezuma's Revenge (2025) [Multi] (1.15.0) License GOG [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:666AB2D303CB518FCC145C727C028BA1585906AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:DBA0BA14834753CF2A0949FC1058FCDFF538B2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FC9593AC88C6A86E9F55B23B051407979A82A2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ My Life: Zoo Vet / Моя жизнь: Ветеринар зоопарка (2025)
 ```bash
 magnet:?xt=urn:btih:EFF3A1B4F8046ACE494F73BAC62C33A972778567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E3090BA32262EF07C764E78B0B2A581BED644169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:D68979524B660DB789DD841101032297DE991F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Auto Sale Life (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3CD062E2707E60E293903B02A47BD4293F4EB0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Wanterlude [Ultimate Editi
 ```bash
 magnet:?xt=urn:btih:BF35A8D4E0906B05B41AD8EE10518878E01A893D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack FitGirl [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:814C07282184C0C7DD913268DAA20FADABF4FC9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ The Test: Reality Check - это одна из нескольких частей
 ```bash
 magnet:?xt=urn:btih:1448865AA54F4A63464CDB2E0F4DEA013FF47143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Decepticon [Ultimate Editi
 ```bash
 magnet:?xt=urn:btih:44654DA8030F0809E7610382D37C210AE217039C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F186A54A7BEC3A5D452BD2CD8CE29E7EF22C7E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

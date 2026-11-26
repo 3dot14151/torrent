@@ -27,8 +27,7 @@ In Flames - Siren Charms (2014) [MP3|128 кб/с]<Modern Metal, Alt.Metal>
 ```bash
 magnet:?xt=urn:btih:333CB4453B584FBE66EB8B3629FE500954FD1547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Discovery: Разрушители легенд. Мифы о домашних к�
 ```bash
 magnet:?xt=urn:btih:A5A15E67980643115162D52333946C878D919349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80017C59CDBAD5F227D5C97657DC8C5ABFCA4944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ GPU Caps Viewer - бесплатная утилита, показывает по
 ```bash
 magnet:?xt=urn:btih:3ED1E75BEAA4ABA69EC7609E5338ACFD8B550C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Boney M - Love For Sale + Eye Dance (2000) [AAC|338-378 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:EE477B31527B46368806036739959875042443F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E7DA9CE3D4EBA267129A49568B2D1F6ADF8BA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Ingate | 3 шага в ТОП: оптимизация без ошибок (2014)
 ```bash
 magnet:?xt=urn:btih:8703405A622D27053F2ABFB4C605DEFD3C6F6D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Xubuntu — это разрабатываемая Canonical, основанна�
 ```bash
 magnet:?xt=urn:btih:41BD83FBBEE55391C5099CF3525DCD760E37CE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Wallpapers - Mix Full HD 12 [JPEG]
 ```bash
 magnet:?xt=urn:btih:C2D480D423762418B9B2CE2FCFE2656E3DC350A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22857581B98FDCD70E5047772350572F8206867F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8939825600C7B33926316E13F317EBD4C7573F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Driver Magician - программа для создания резервных 
 ```bash
 magnet:?xt=urn:btih:6F4E5F704C3C581628AE2B250F8661FD501B5273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ uTorrent Free | Plus 3.4.2 build 33394 Stable RePack (& Portable) by D!akov [Mul
 ```bash
 magnet:?xt=urn:btih:8A2F80629480B9812B61F5F39A94D2E40B275AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Discovery: Разрушители легенд. Мифы о домашних к�
 ```bash
 magnet:?xt=urn:btih:C9EA59392BA08019F519894AB8BFC5AC26E18324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C08B96D118F5E674B9240A1B1620A01D72ED5F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5858FFF6EBC0EF21D645376578A4C55C090FC7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ NoisyCell - Your Hands (2014) [MP3|320kbps]<J-Rock>
 ```bash
 magnet:?xt=urn:btih:4A6EB0BA707587B5985201495712DECC6A887543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99E21E3798E885180EA586516BC2625F3CEEFB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ Alcohol 120% - эмулятор CD/DVD-дисков. Программа созд
 ```bash
 magnet:?xt=urn:btih:7A647B2E81D26888318FB4C176C42DBEEC442EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ ProgDVB 7.06.06 Professional Edition [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:946B27EEFAD8B9ABD93BE5D44AC13B7009559E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Fortis - экзоскелет от компании Lockheed Martin, не име
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Google Chrome 37.0.2062.102 Enterprise (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8E57CA0289752B4235CB7CF3BC1FA058E3AB07CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BA29B300ABB47091B94B9A7654CF62EAC6B6BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ uTorrent Plus 3.4.2 Build 33394 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7FF57750DCF846F31E75B8408B1BBD5A670EA427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D47CD002099527E4D22495D0652F8D75FF97DD64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 10337 (август 2014) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8C447E57EDFED75407DDFA8FC7DEC78E68EF2EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Adobe Illustrator CC 2015 – это принятое в качестве отр
 ```bash
 magnet:?xt=urn:btih:F98C1A0BB4569563A776C140DB2DE804FD930AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ BBC: По странам и континентам: Южная Америка, �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Adobe Flash Professional CC 2015 - это мощная среда для соз�
 ```bash
 magnet:?xt=urn:btih:CF2B47092CAA87340CB4662D185C29D30A1BDDF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.isoЯзык интерфейса
 ```bash
 magnet:?xt=urn:btih:4F488E5504F4323450DEABC09DF3B1E644069BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

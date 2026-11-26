@@ -19,8 +19,7 @@ Armed Assault - это стопроцентное продолжение Operati
 ```bash
 magnet:?xt=urn:btih:F4BB750EC6423048E27FE0F4893C363D385E4FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

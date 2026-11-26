@@ -19,8 +19,7 @@ Visio 2013 включает в себя набор новых функций, к
 ```bash
 magnet:?xt=urn:btih:3598CBCFB0221C1E46A03CD0DF37A4C4A535DDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Project 2013 поможет вам планировать проекты и со
 ```bash
 magnet:?xt=urn:btih:59F3A005356EDBAA532F76610EB1CAE1188FB72E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:FE8C990FC58760E087A94437F057E339687B7219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:6485CEC53AC4535601B89C40532DCFD4E9452D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

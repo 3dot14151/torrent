@@ -19,8 +19,7 @@ Cisdem DocumentReader позволяет читать, печатать, сох�
 ```bash
 magnet:?xt=urn:btih:C4B571109F3F424BF35352408B371A12D8D8DD64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 ```bash
 magnet:?xt=urn:btih:500A469CAAB9B8E5C472A5CBE0526C92540F5B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ iNotepad специально разработан, чтобы позволит�
 ```bash
 magnet:?xt=urn:btih:B645C71B67494E331B90B209742BB99CFE6F1FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Timemator 2.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:888D1A0FB4E86A075129594AF26E39C9E5089CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ iA Writer 5.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D1E7BFF1875A9A977F98A4D7304D10CFFE29FFA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DA76F1208E3333D21452F4904ED41F1E6D18A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC26AB33134000E2E5500F94D388ACF9CA455262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ InstaCal - это доступное и в то же время мощное п�
 ```bash
 magnet:?xt=urn:btih:AEC3894C1C0552C2201D43F5D11AEC30884E066A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C9F01ED85F7C36E5C315AFDBF77F248AECE39683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62C89002A0BCD2E1924B44055E1A91A80CDAD4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Rencontre Nocturne - Recap 2019 [MP3|320 Kbps] <Electro House, Progressive House
 ```bash
 magnet:?xt=urn:btih:AE9C62FA1FF843341ADDDB87D44510719BFCB89E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ AnyMP4 PDF Converter - программа, которая поможет вам 
 ```bash
 magnet:?xt=urn:btih:F877BA428AD3B43F7D54200DD817D9AB50D5941F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C44826491EC0C0A13BF6AFFA2E1E430DCA5B59BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ WindowSwitcher - позволяет Вам быстро находить и пе
 ```bash
 magnet:?xt=urn:btih:CF7252B0938413DC345DB97578F09F5C20D862B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:675A44B0DFF54041503E058CAE8AD7ABF9FBFA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ Cradle Of Filth - Cruelty And The Beast (Re-Mistressed) (1998) Reissue, Remaster
 ```bash
 magnet:?xt=urn:btih:E8C4B7C6E34F8C019C32E8929729AE5B46800713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6476CF25C0D08C7DC95BC5EDFA2982F007F42C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ YouTube Downloader - Удобная программа-загрузчик для
 ```bash
 magnet:?xt=urn:btih:844A5ACE677A8BC9EB25F24465D7EDB922914481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Fortune - 3 альбома Discography (1993-1995) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:73A67BAA158A2108E414C3459DA9D871FA0A55F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ Drezden - Эдельвейс (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electron
 ```bash
 magnet:?xt=urn:btih:E89F5721B6E3B1046F8AD6486128EBC9B42128E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ Tinderbox может автоматически собирать информа�
 ```bash
 magnet:?xt=urn:btih:3FB279308677B877B5A2B9BA432B752BC94574EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ AnyMP4 MP4 Converter, самое популярное и универсальн�
 ```bash
 magnet:?xt=urn:btih:98A70EC1FFD95265D3FCFE6777A3890BB87485CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74D26C6B254842F62CDF1C2EA754DCAFA13B2ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21D91A12D8A17668651B71DB0720C2C739AF653F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.30 (2612) RePack (& Portable) by TryRo
 ```bash
 magnet:?xt=urn:btih:485FA4997B269E6F36141B2CA4F45E59A80D4601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ Fortune - 3 альбома Discography (1993-1995) [MP3|320 Kbps] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:2D1669C66007B1268AD27598646F1988A2B5B5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

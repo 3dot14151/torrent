@@ -22,8 +22,7 @@ Radio Moscow - 7 Albums (2007 - 2017) [FLAC|Lossless|tracks + .cue]<Garage Rock,
 ```bash
 magnet:?xt=urn:btih:61712588D00B04E029F47922B235A6E87A0E791F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Evergrey - From Dark Discoveries to Heartless Portraits (2023) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:797A8E79018B87EBA3F7D552D6D7F87937A76145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF9729E745A6C58F115DB12706F07026795F7D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stam1na - X (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Thrash, Heavy Met
 ```bash
 magnet:?xt=urn:btih:A7BA724ACA07CC9BED0DBA5A77813FAF0A6D0369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 ```bash
 magnet:?xt=urn:btih:8B2295323DC0A9F7AEB498886A73828EE8AF14EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Super Bomberman R (2018) [Ru/Multi] (1.1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:70BABA594DBB1AB2CB7D425F55B2CD4F048B741F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mega Man X возвращается! Вы Мегамен Икс, преемни�
 ```bash
 magnet:?xt=urn:btih:3EDB3118821C51205770EA2F7727DFF217166024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rogue Legacy – это игра платформер в жанре экшн и 
 ```bash
 magnet:?xt=urn:btih:03A57CB7DAD8BBBB7E975615ECA1C8A38AF7A01B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.6.26515) License GOG
 ```bash
 magnet:?xt=urn:btih:573E4FB02E5E64A550A4B85E86A499F44C1DDE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

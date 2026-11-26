@@ -19,8 +19,7 @@ Grab Photos From Videos / Фото из видео v11.1.5 Mod by Mixroot [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:D259CE8685F714C2B61F6A86D3C967DE192412D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

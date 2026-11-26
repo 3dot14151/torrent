@@ -19,8 +19,7 @@ WOT — защита вашего устройства – Будущее без
 ```bash
 magnet:?xt=urn:btih:FD55BE46039FAD1F3439228EF657BE7760EEA5F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

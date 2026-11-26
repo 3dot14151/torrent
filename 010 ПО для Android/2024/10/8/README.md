@@ -19,8 +19,7 @@ VRadio - Online Radio App v2.7.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:908045A6B8C3BCC0A6274D66F67743D48AF61189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PhotoRoom v5.3.8 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9FD6287CBD9C56951C5A5DE4C8F36B4880AD019E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

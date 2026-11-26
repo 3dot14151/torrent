@@ -22,8 +22,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:ACD7DBB2E41222ECF1A0C998ED13E963DAF5F94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:8F4027E6BB857B884D4841EF392F16EA65D6AA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Deep Purple — британская рок-группа, образованна
 ```bash
 magnet:?xt=urn:btih:3439B28045E7A250E0610961A1789E8999961474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Phlebotomized - метал-группа из Нидерландов, Розен�
 ```bash
 magnet:?xt=urn:btih:CDA5FE06C063E578DA1B9B41E30EF13C5A331D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

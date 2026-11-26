@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E55B49E30F4C59BE70844FEF388E1F262EC63A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ F1 2013 предлагает вниманию поклонников вирту�
 ```bash
 magnet:?xt=urn:btih:43F382AE2AE014F1D34FE30694B8A887E884092A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92D3DE6C7374C693132DDBF897A96553DA738833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:090A0EBADD1BDD5D054413BEA81F0BF7C51B0068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Killzone 3 [PS3] [+MOVE] [EUR] [RUSSOUND] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2
 ```bash
 magnet:?xt=urn:btih:AD7F9EFE21C8F5963787A312435E28B6A4D910A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FFECA55BCD96F73B1F5894CDB69BD712992D4C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ XCOM®: Enemy Within - это дополнение для XCOM: Enemy Unknown, �
 ```bash
 magnet:?xt=urn:btih:AD74EDDED1EBE2B9E9FDBE12A8BB7EB865D27BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Game of Thrones / Игра престолов (2013) [En/Ru] (1.5.0.0/3dlc) Repa
 ```bash
 magnet:?xt=urn:btih:19FDD5AE76D29EAC779104708DFD6B63D22275B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC6C393D1F9E8B481DE486181CFBBDCF0E4FD27E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94E5710EED60E6C9994FBF02FE10319D42F60866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:418B5E411C9544A0FE05D7A2BAB5610CD6DE5276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ BioShock Infinite: Burial at Sea - Episode 1 (2013) [Ru/Multi] (1.1.23.631123) D
 ```bash
 magnet:?xt=urn:btih:BD1F7BBB7D48AEFA87B74FB40890307FA5B78024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Microsoft Office – самый популярный в мире пакет оф
 ```bash
 magnet:?xt=urn:btih:C3C82DBBA36C4F37830AE8E5F3248C5F52497E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

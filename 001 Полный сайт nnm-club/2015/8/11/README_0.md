@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3E9EAF5F0500192C105C8D2982182B125B66C591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Sin City Lounge (Smooth Erotic Chill Music For Intimate Moments And Sensual
 ```bash
 magnet:?xt=urn:btih:26777A84E9C3DDC70540E1AF30627C576EB6631E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Virtual DJ - профессиональная версия программы д
 ```bash
 magnet:?xt=urn:btih:38A69268A091D8FFC303CB0154D5C07F1CC5DFFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Om Yoga Vol. 1, 2: Modern Music for Vinyasa/Flow  (2011-2013) 2CD [MP3|320 
 ```bash
 magnet:?xt=urn:btih:15572B960A42992C5BCA1D5090973378793C35B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Belinda Carlisle - Voila (2007) Remastered /2014, Edsel Records [FLAC|tracks + .
 ```bash
 magnet:?xt=urn:btih:A088C121FC1B185416E33DC83BC4D38F66F64C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Tales From The Mental Asylum Chapter III (Mixed by Indecent Noise) (2015) [
 ```bash
 magnet:?xt=urn:btih:2CE26BC61D6102BE375E975975475251EF50CC41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Karen Marie Orsted (MØ) - No Mythologies to Follow (2014) [MP3|320 кб/с]<Ind
 ```bash
 magnet:?xt=urn:btih:32EB2A1977DED805CE70229039105FBD4A3DD28D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1A88FE389CAC17D113C0ED3BDD35A98EF5FD0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ VA - Chemical Playground (2006) [FLAC|image+cue]<Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:341BDA13F4A1BCED77B38645F5C56F67508D90A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ MKTO - Bad Girls EP (2015) [AAC|256 кб/с]<Pop, Teen Pop, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:928DA287E5FCA0D72E5EB89821D570F2BC69F392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30012932297B9C0914F621CF1499BCE79C6E6099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A11F8CB3D9D7B8CFB1A0A7BBCE894BBEC7B2EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EA32100D1ED9654847D652C6CEAAC4D1E459C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42393A8143D1EBF812CEB97EF939881FABED2ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ XviD4PSP 7.0.158 [Ru]
 ```bash
 magnet:?xt=urn:btih:200A2643A06CBCCB06E5EEAAF247E1716C267D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:356A886DE6804BBBDF1ECBEDB4F7CB9BCF9290B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Adobe AIR включает в себя возможность создания �
 ```bash
 magnet:?xt=urn:btih:C3F816EBBBC212A5B3BB20D9B68AF872D990CE82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3F9F5A842837103121CC410776D62E4A536203D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ VA - 40 Top Chart Summer (2015) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:FDC279FA52C95179B2B2A62F40E9B0011E8CEB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ Mystery Trackers 9 : Winterpoint Tragedy (2015) [En] Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:C3BA19A8734A450B8A970DFFA475E479F6B85207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FB2F27C9739DDA6DD34E81B17ECB7CA0D3EAC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ Linux User & Developer - ежемесячный британский журна�
 ```bash
 magnet:?xt=urn:btih:FC4B61AEF05CC7BFC766DD1449738F56F9C0037A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDB0814FEF23EC5E33E347409CF44C50C378E6BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A0435DB29CFAF2B9790E11618C76D2FA7223CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:887A336F10CA413E8FCF33063FA52194AF242780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

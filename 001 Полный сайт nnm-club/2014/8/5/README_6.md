@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F92575603213DC1C2DAB2750BDC56D2449560F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rocksmith - ритм-игра, в которой игрок может игра�
 ```bash
 magnet:?xt=urn:btih:06F3402AA112F0D580A0E799DF7AB6CDF1AE8C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

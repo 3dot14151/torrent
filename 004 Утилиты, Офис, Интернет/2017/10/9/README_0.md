@@ -19,8 +19,7 @@ MInstAll 16GB Portable-Soft 08.10.2017 by Bombokot [Ru]
 ```bash
 magnet:?xt=urn:btih:FDA6C4CDF5CAAB0590B808C6CE919DD7D26A1448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

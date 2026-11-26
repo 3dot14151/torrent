@@ -22,8 +22,7 @@ Mysteria Noctis - Vulnera (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:1A3C12E346F93980762452771CC0C1EEF5459BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ron Keel Band - South X South Dakota (2020) [FLAC|Lossless|tracks + .cue] <South
 ```bash
 magnet:?xt=urn:btih:95AB698BE9EC91F136132875FA1238337B955D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jonah Whale - VI (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:29F32D11E09A45AC584F5E2495764A284448308B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:CB8682A077DC5BAFF80F7F30231D2BF470501A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:F85F87C9D3BC7356F3049BA1335CFB05B5CEE775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Blue Oyster Cult (Blue Öyster Cult) - 2 Album (1994-2020) [FLAC 2.0|44/24|track
 ```bash
 magnet:?xt=urn:btih:AAA39BE03CA4AA73D7CE44645156ED8677C2D7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

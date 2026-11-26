@@ -22,8 +22,7 @@ Barney Bentall - Gin Palace (1995) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock
 ```bash
 magnet:?xt=urn:btih:AEA3168DF66404C2BB2C9B716F3084B3E7EEF74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Symphony no. 4 op. 98 in e minor
 ```bash
 magnet:?xt=urn:btih:87A126B5EFE970C2572269AFBAA711BF3A398608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A037B6ED1AE674958F463913ADD1BEA84C32512F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA4E4359A3D49B7D1BD0B23DEDF6F43DD9173B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5F8C0611A22E3308B19A98659540B541026FE19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ VA - Летний марафон № 118 / Видеоклипы (Зарубеж�
 ```bash
 magnet:?xt=urn:btih:D7E0EDA22E2279B8141785FD1F58FABD9BDA3DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ No Game No Life / Нет игры - нет жизни (2014, TV, 2 из 12) BDRi
 ```bash
 magnet:?xt=urn:btih:51771B01180219003BF3670A0D6CD55552474FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:431927EAB47F645FBEE698680F0F49F43207F584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ Uriah Heep - Very 'eavy Very 'umble (1970) Remaster /1996, Castle Comm./ [FLAC|L
 ```bash
 magnet:?xt=urn:btih:89EEC66CD0A1CED3BE9566B8AE475CCA442EC67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ Garmin: Routable map of Japan (OSM based) (июнь 2014) <En>
 ```bash
 magnet:?xt=urn:btih:20CE484E5F9529C9200ACC67FFF90ED4BC00CFCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ The Fabulous Lounge Quartet - Queen Cafe (2014) [MP3|320 кб/с]<Lounge, Easy L
 ```bash
 magnet:?xt=urn:btih:57608B55BE55ACF990C72E2E4E238169DB390E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E8E5FB6969EC18094A43CD8A87AC25A1299D95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Emi Fujita - Eating The Heart (2008) [FLAC|Lossless]<Pop Rock, Jazz Vocal>
 ```bash
 magnet:?xt=urn:btih:1186B384BCD2C0D8BC20C9991A9E24C014BF52D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27B0809610549DE2C9B4867AF102C0B1C729E16B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ VA - 100 Minimal Techno (2014) [MP3|320 кб/с] <Techno, Tech House, Minimal, D
 ```bash
 magnet:?xt=urn:btih:95604616434175635D8054F790F6D99730CFC22F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ Pink Floyd - Ummagumma (1969) 2 CD Box Set, Remaster /1994, EMI Records/ [FLAC|L
 ```bash
 magnet:?xt=urn:btih:D9F9589D9E837052EBFA89B9C38C874B37A2CBF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F55B7EE67DAB6BA70C1C58FF22144831871F38D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ Small Alarm Clock - маленький, бесплатный будильник.
 ```bash
 magnet:?xt=urn:btih:4B70251C99540D200BCA38495735328F62014177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +572,7 @@ Concerto No. 1 en si bemol majeur/in B fiat major/B-dur, KV.207 1964
 ```bash
 magnet:?xt=urn:btih:EB527F9908C4A0676AEEDB68DAC2C41B231AB285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C31E5DFBCD94768D0039E91D19DBD394142A69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ Rise Against - The Black Market (2014) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:D86967ADA6AA6DEEDBD5AC409C4627E5F52C596A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ BAE Systems демонстрирует свои идеи, которые пре�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ BBC at Glastonbury:Robert Plant at Glastonbury 2014 on Pyramid Stage on 28 Jun 2
 ```bash
 magnet:?xt=urn:btih:FFBB06E07E3F620966B315EF0A9623B209587461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF8C653D4E44A266B2D2BCF43D2BC7E369D4A2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8BD435C2488C786DEB0C2378C5230043BA631D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

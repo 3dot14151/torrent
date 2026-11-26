@@ -22,8 +22,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:6CEC17168878F475A4985406039D53D33562C620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disembodiment - Spiral Crypts (2025) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:2DC9BF797A2C0536BB816027670493748A1690EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Deliberalize - The Allure of Deceit (2025) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:E0498FFAB6AE3B181D31016ECEE68BFCA1DF7538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Elysia - Numinous (2022) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:75E9E1004AEA83F3AFF021C784758BAC1BAECB3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Olive - The Awaking (2005) [MP3|320 Kbps] <Atmospheric Doom Metal>
 ```bash
 magnet:?xt=urn:btih:0E19895665AD73C2D88791BCF1B59605AFCBF899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Lude - Eternal Womb of Celestial Decay (2025) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:448381CD30FA132D9614656E04B5AFDA72DBA8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Grave Intentions - Call of the Void (2025) [MP3|320 Kbps] <Melodic Death, Thrash
 ```bash
 magnet:?xt=urn:btih:3C300BBF5055063F90997ABAD6463E49624A5FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCAB8AAD282410C9DAA9EB2B6D50A9544B1C9C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Alan Parsons Project - Limelight - The Best Of Vol. 2 (1987) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:012E6F0792DF7BD20B1D06266933F0C96164BDB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F2CAA8EC515FD1C885B551A1FF0761D001FE1324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Heavy Rock - Heavy Guitars (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:AE74BD34680D4D85138E094EE978A7898744ABEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:B69109374AC872D0035387CF514111EF1F2061A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

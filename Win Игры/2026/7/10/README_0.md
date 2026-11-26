@@ -19,8 +19,7 @@ Besiege - это основанная на физике игра, в котор�
 ```bash
 magnet:?xt=urn:btih:E38A2D33C928F922B5737F135DC66658168DC8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Red Dead Redemption 2 – приключенческий шутер от тре�
 ```bash
 magnet:?xt=urn:btih:BB2CE825176A3C0EBAD38F038C83865866CE2599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tennis Manager 26 (2026) [Ru/Multi] (6.0.376) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0BEFA8B1730BF1D6465B61403A04594C3A4473E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 ```bash
 magnet:?xt=urn:btih:BFB33C2099F2F9CDD573CB115B91BEA0851B8560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cities: Skylines II - это живая экономическая систем�
 ```bash
 magnet:?xt=urn:btih:299F9B5AFB756AAAC19062EF596432CB0422D0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

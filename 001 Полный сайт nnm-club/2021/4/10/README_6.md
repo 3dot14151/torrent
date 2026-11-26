@@ -21,8 +21,7 @@ Marianas Rest - Horror Vacui (2016) [FLAC|Lossless|image + .cue] <Melodic Death 
 ```bash
 magnet:?xt=urn:btih:2CD6EBC70C5BE921C6ACC54C1BDE3DD0D053D46F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Helslave - An Endless Path (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:0F6D0144A3C1DA633D54046D1DB73FDAEAE77860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Syd.31 - Machine Ready (2021) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:2E69ADD77189231F0344270BE3650904560D4BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

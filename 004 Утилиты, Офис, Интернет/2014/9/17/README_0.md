@@ -20,8 +20,7 @@ AX64 Time Machine является удобным и надежным прило
 ```bash
 magnet:?xt=urn:btih:2D49E0217B74F895C83E0EB6A7AB74F01179F0CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Avant Browser Ultimate 2020 build 3 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:553E2173879BE0BEB22C81CAD33B23C0B636B13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Hetman Photo Recovery 4.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E7947C1DF2854FF6BE27982D34ED9D24E424C5D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ WinZip Pro – это многофункциональный архиватор 
 ```bash
 magnet:?xt=urn:btih:CC4D22D579E8D8DE4A9A16CC00CE2111AA8DF143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

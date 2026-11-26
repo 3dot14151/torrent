@@ -19,8 +19,7 @@ Pillars of Eternity (2015) [Ru/En] (3.7.0.1280/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A52910E6C3D6B3B4967520B78BA553689E268D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:E9D23DCB716328A6D5AFAD9BCA8C43209472FCF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Tales from the Borderlands – эпизодическое приключение
 ```bash
 magnet:?xt=urn:btih:B4D3686255E79707F60803027BE0A3265E073D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:089ABB9AC75F3992447E36629CAA130253671AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

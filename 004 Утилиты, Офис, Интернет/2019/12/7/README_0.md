@@ -19,8 +19,7 @@ Password Rescuer - универсальное средство для восст
 ```bash
 magnet:?xt=urn:btih:AC009D577A273A4445515628922E057AF507232F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

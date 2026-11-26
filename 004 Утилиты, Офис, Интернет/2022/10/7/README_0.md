@@ -20,8 +20,7 @@ Betterbird лучше Thunderbird по трем причинам: он соде�
 ```bash
 magnet:?xt=urn:btih:AAAD541B7A51AA3EDA6749170818C88EA5C85E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

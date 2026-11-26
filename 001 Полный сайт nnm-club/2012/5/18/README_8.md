@@ -27,8 +27,7 @@ VA - Trance Central 003 (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F61299A396B9867C750D113F349D15A2FC63117D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C700503202DCDFB5BC7D6F32687A4B3B82E02DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E58A7FE1824223EB5828CF1D2EC89ADAF9371C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75EF42220CD11CF43A6CB5FC35C09E6316A6F91F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ Ministry Of Sound - The Annual Spring (3 CD) (16.05.2012)
 ```bash
 magnet:?xt=urn:btih:C6CE6834A7B9E9E257466E952164165A8ED0157B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ Dee_Waste - Discography (2003 - 2010) [MP3|320 кб/с]<Alternative; Metalcore; 
 ```bash
 magnet:?xt=urn:btih:EFEDBC4F481794322767CCB0E38A5D7F0C9EC059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ VA - Trance Maniacs Party: Uplifting Breeze #38 (17.04.2012) [MP3|320 кб/с]<T
 ```bash
 magnet:?xt=urn:btih:CEA1BE8F4FD511FFD314601D9A9C8C7C5FF9B945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ DJ Nike Twist - TranceWave 034 @ GTI Radio (17.05.2012) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:51F64831715F0B873EF2153D4F7229D3FACE4AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA71C18D0C1B5FF1E10DB711EF965D84E054C784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46108F4CD4A8BC5584C2CF2CBB16A23211073EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FC86D896BC9CB84B395F77D27B8BA1A666C92E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45940554EABDB4419F0AC1193EF1A0E7E0960573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D32122BBE7DB147BD0D8424912FFAAC6605B5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F48DC44FC4C769E9B9A80DA8D4809627E9DA175A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ Double Click - Limited Edition (2012) [MP3|~252 кб/с (V0)]<Psychedelic / Prog
 ```bash
 magnet:?xt=urn:btih:16D9368CB98C6DD1CC135921A1A30F0E6920D0E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ VA - Энергия Мега Dance (2012) [MP3|256 кб/с]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:F486A592AFCD5D9525B823392DD5F71AA0E4411B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ VA - Trance Maniacs Party: Uplifting Breeze #39 (28.04.2012) [MP3|320 кб/с]<T
 ```bash
 magnet:?xt=urn:btih:DEF1E2B4FC063A2F5420D7DDC14EBBC03D51256D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49786C36BE17F9E52F8E54223DAD8E5657173191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62AE8A0AEC305F84C90531D8BEEDE24D5E634E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ VA - Trance Tattoe #12 (15.05.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:489104C1E1770E497A4BAAFDFD56AE26B1E0584D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3E338E83BCEB9DFF43BE3496262DCCC267370E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40DEAFB25A0AA9DC1E542277000524671A019A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ VA - Avto Club Май Vol.5 (2012) [MP3|320 кб/с]<Club>
 ```bash
 magnet:?xt=urn:btih:18FD07E25C7B05FFC9816B290367D272AB614D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +721,7 @@ Synthphonia Suprema - 2 Альбома (2006-2010) [MP3|320 кб/с]<Power Metal
 ```bash
 magnet:?xt=urn:btih:B757AA4BB09465311C48D5BDB03FDC2D8E90A479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +747,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6896892E2FCE91FD07B852158C88786A11519DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +780,7 @@ Shiva Chandra - The Beauty of Noise (2012) [MP3|320 кб/с]<Psychedelic / Progr
 ```bash
 magnet:?xt=urn:btih:835B15A24E85FAE0D58CBA98647420C9D4DAAB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

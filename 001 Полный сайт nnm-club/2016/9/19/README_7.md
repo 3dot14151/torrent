@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7407088A0DF539BBE72D1CEDE28B6D59A6D6D9E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Song of the Deep – экшен приключение в metroidvania-стил�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Train Simulator 2017 (2016) [Ru/Multi] (58.3a/dlc) Repack Other s [Pioneers Edit
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.7.0/HotFix) Repack =nemos=
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Microsoft Office for Mac 2016 15.26 (160910) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2AFCD65E6A0C7E99CB7B85FF6498BEF625240A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Windows 10 Ver.1607 + LTSB (x86/x64) +/- Office 2016 24in1 by SmokieBlahBlah 15.
 ```bash
 magnet:?xt=urn:btih:1133D1DC46C5514C7419F603E9AF4ACAE987619F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

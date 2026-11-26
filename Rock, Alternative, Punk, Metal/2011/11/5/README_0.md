@@ -28,8 +28,7 @@ In Legend - Ballads 'n' Bullets (2011) [MP3|320 kbps]<Piano Metal>
 ```bash
 magnet:?xt=urn:btih:A29B4D8F89DC8DF0A25ACE22E1A9814C3165D50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ U2 - Achtung Baby (Super Deluxe Edition) 6CDBoxSet (2011) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Aerosmith - The Very Best Of (2010) [MP3|320 kbps]<глэм-рок, рок-н-р
 ```bash
 magnet:?xt=urn:btih:5E0866070EEC77334E22A3577B6D2A13F9026EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

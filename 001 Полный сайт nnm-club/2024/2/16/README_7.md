@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D8557D743C793FD7F65CDB6B6A3E336E1261B552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Lost World Order - метал-группа из Билефельда, Север
 ```bash
 magnet:?xt=urn:btih:99183AA6CB3511A05835BBD7020EBAF0419F116A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Svend Asmussen - Spotlight (1991) Sonet [FLAC|Lossless|tracks + .cue] <Swing, Vi
 ```bash
 magnet:?xt=urn:btih:EDC91E5CD1E24ABA8FB65E6AAC70A058366E84DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Fork 2.40 [En]
 ```bash
 magnet:?xt=urn:btih:6FADF13BEA44A053CBAE544F4EA286D679D95858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0662D5F549D2460E00A4F159B36BD637A982555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ WeatherCat — это программное обеспечение метеос
 ```bash
 magnet:?xt=urn:btih:1444F8681EA7F7F40DEAD2CE0480C2D93E94ACFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Idles - Tangk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:790DFFA04D29CA2ADACCFC36335CE05CC76C939D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

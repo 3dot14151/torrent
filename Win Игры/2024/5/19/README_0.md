@@ -19,8 +19,7 @@ Super Catboy – занимательный и максимально динам
 ```bash
 magnet:?xt=urn:btih:588A52A9603B634F4C340ED052DB48D31A253BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Last Faith рассказывает о герое, который решил
 ```bash
 magnet:?xt=urn:btih:6DF60D08DE0B50F8A8FF0EDA7635C8DF0CF4CF94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AEW: Fight Forever разработана компанией YUKE's Co, Ltd., с
 ```bash
 magnet:?xt=urn:btih:CFF18845F62A353B2778407DA7BD4C725EB1EC4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF9D405E6F53461E0038B44D469EADCB069C7F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (14380324/dlc) Scene Rune [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:21AEC18812DE9BBB797F3936D7B46485C560ED86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ StarCraft Remastered - это обновленная версия знамени
 ```bash
 magnet:?xt=urn:btih:75FCC71AD4BAD1E9957AF36DC9CE7BE0220F7788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Lorelei and the Laser Eyes – посетите невероятное стар�
 ```bash
 magnet:?xt=urn:btih:68884573ACBED3DE959C2A30C14F0B19B5B0592B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Maid of the Dead представляет собой сценарий, в кот
 ```bash
 magnet:?xt=urn:btih:BDE5F7541FABEADB0187A3797671A690911DEBA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tchia сама по себе воспринимается как легкая п
 ```bash
 magnet:?xt=urn:btih:3FEC8A703D72BAC140B6D76E25E8358D72E325FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

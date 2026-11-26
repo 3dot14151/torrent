@@ -19,8 +19,7 @@ Connected Hearts 2: Fortune Play / Связанные Любовью 2: Игры
 ```bash
 magnet:?xt=urn:btih:571DB212901A5C71CC85E619C935ACD082E48D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Tale of Paper: Refolded — это платформер-головоломка
 ```bash
 magnet:?xt=urn:btih:3F479521C464B17DB21258BDA21D8E3D3A004DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SolSuite Solitaire 2022 – высококачественная игра, ко�
 ```bash
 magnet:?xt=urn:btih:FC4441803E7426C888F97EB4EB02BC1200A1F99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

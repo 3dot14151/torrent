@@ -19,8 +19,7 @@ Syndrome является научно-фантастической игрой �
 ```bash
 magnet:?xt=urn:btih:34FE2F938FA789FD4914CD3F9439D43CDA8C7919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

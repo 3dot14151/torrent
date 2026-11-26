@@ -19,8 +19,7 @@ Corpse of Discovery - это приключенческий проект, рас
 ```bash
 magnet:?xt=urn:btih:BCAB5909B5D6315616091B40BE9AB9CC830B0D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

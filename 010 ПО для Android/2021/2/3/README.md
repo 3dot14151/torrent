@@ -21,8 +21,7 @@ Engineering Tools : Mechanical v206 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:84FE0419DA9D2AD0D913CC1DC961177BEFDD4128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Monect PC Remote - это бесплатное приложение, котор�
 ```bash
 magnet:?xt=urn:btih:EA839F0A89E711A8EB047C5320310234FBCA4131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1C256FDEA965FD7CB8B9252F7AC106F3E1332D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ AudioBooks. Аудиокниги бесплатно v4.0.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:A53A5015AD4C666B8F3984FD1A989EB38364BD50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Gears of War 4 (2016) [Ru/Multi] (14.4.0.2) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3C871097FC2220F3E79935F66D0EFCF54D13541F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Crackdown 3 (2019) [Multi] (1.0.3162.2) Scene Rune
 ```bash
 magnet:?xt=urn:btih:83072C3BB02238B7E89E5B9B8CF8D06FE02971F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:358734EABA15FF7B5CEBAE75C7F686CDDD622F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79FE8FADAC86735C9E7654FA388233F4C1A5562D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:407DC5AFAF752BAE4B394D67A65633AA049E4E40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:398A9607B136A7B2D673E5B16B4842D59203127A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Dark Summoner to Dekite Iru | I'm Dating a Dark Summoner | Я встречаюс
 ```bash
 magnet:?xt=urn:btih:333BC1C17F3D554496FE47ADF0BC410DA818F45F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ MAX Desktop 26.35.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E5F62228BEC4BFD6CBC3D7A07B83E1844E83E72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Chou Jun! Choujou-senpai | Super Psychic Policeman Chojo | Полицейски�
 ```bash
 magnet:?xt=urn:btih:FB4A15E219C332FDDA2E0A36ACB7EEAB447D6A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Chii Fuyo | Уволенный маг, раздающий читы, получа
 ```bash
 magnet:?xt=urn:btih:F7E26D87338F4FFBA9AF8C52863F8C285EA0495D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

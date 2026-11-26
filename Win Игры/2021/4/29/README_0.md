@@ -19,8 +19,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.11/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:1213600AD5767361DD5DE93AE91641A5BD3CAE88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Falconeer — это игра с открытым миром и полёта
 ```bash
 magnet:?xt=urn:btih:EEA7A2B70511D205E4CAC1D5BB0CDA431FA7AB2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

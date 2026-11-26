@@ -21,8 +21,7 @@ Wolfram Mathematica 13.3.1 [x64] (.sh)
 ```bash
 magnet:?xt=urn:btih:00BBCDE7B9B85F6DC46B7067ED0CDC398EA39770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

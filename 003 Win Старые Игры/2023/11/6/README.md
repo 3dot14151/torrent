@@ -19,8 +19,7 @@ Quake 2 Enhanced - это новая версия классического ш�
 ```bash
 magnet:?xt=urn:btih:7CD818F28B1375798F5B016C3407F73A86A41E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

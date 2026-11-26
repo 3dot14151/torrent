@@ -20,8 +20,7 @@ SD Card Test Pro v2.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D4C6D9F173A5A7921A5DEC3E08281A353E3DD0A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Happy Color — самая популярная и излюбленная бес
 ```bash
 magnet:?xt=urn:btih:F7605D49243A974EB5A304818C3CD81535A127EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

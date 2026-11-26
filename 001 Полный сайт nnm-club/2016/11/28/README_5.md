@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0E38AFB1D1B0A63CAD5000CB6A554FCCA4F0125C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FabFilter Pro-R - v1.00 / FabFilter Pro-Q 2 - 2.05 / FabFilter Pro-C 2 - 2.02 / 
 ```bash
 magnet:?xt=urn:btih:3E623066F761671EBB8F732F49A86009D2BBC245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Microsoft Office 2010 Professional Plus SP2 14.0.7015.1000 VL [x86, amd64] (wine
 ```bash
 magnet:?xt=urn:btih:A60E2BDEF4C26295CAA2AFC30FFB1308C5271021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Camtasia Studio - мощная утилита для записи изображ
 ```bash
 magnet:?xt=urn:btih:3B3B2134E0E1435DFA2CE60119676CEE49761EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94D7E17818AF9813DA172AF71B52E7DD6410BF38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Pencil Sketch Art - добро пожаловать в новый и весел�
 ```bash
 magnet:?xt=urn:btih:CDE343092C95CA06E34175630F15859089C25743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Voicemeeter – это виртуальный аудио микшер, кото�
 ```bash
 magnet:?xt=urn:btih:796E3EA5EC31D7EE89210EF0DBAED281CA47FA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D528BF1EA78F5585E81B40EA5466254E68EA311C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC42105255F82B1F1AFFC457BBBB889ABA29AA8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 ```bash
 magnet:?xt=urn:btih:B8238D832721CE5F3FF3E9DF858BF55D9AE1697E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ MultiScatter - это плагин для Autodesk 3ds max, основанный
 ```bash
 magnet:?xt=urn:btih:87DA55AA47DE1BB145DD4E1FBCD066AC81B7CF4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC521DE591096565DA059A9CD905ACEE283511EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F31ED7F5ECD32BAF346969E88182760C97E8C6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Microsoft Product Keys позволит вам получить ключи дл�
 ```bash
 magnet:?xt=urn:btih:231AF1D92926747DFFE4D4229B9021B6EA4638B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A89320EC412CB50914A4AF60621839AE5125411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

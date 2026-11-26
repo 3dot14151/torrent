@@ -20,8 +20,7 @@ Universal Extractor 2 - неофициальная модификация (   �
 ```bash
 magnet:?xt=urn:btih:99A48EFA58DBC8AEEB1981548B927C029020DD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

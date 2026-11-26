@@ -19,8 +19,7 @@ Paranormal Files 4: Hook Man's Legend (2019) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:8E3DFDC71B27E44256511AAA510981498888291B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Need to Know (2018) [En] (1.30.2) License GOG
 ```bash
 magnet:?xt=urn:btih:E53D2FD8D73B8829784A127C9F3A3D9CAEED689A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

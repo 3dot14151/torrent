@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A5D80FF61BF0AEE56F848928C1CE9327B51AFE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4741811F8C1AF0303DE98DE2079FF22E0B587D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Microsoft Windows 10 Enterprise Technical Preview (x86, x64) [En]
 ```bash
 magnet:?xt=urn:btih:0BD8446BE688085D7580B34AAD9B4A5CFD4829F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

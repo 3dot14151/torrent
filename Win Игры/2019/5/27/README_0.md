@@ -19,8 +19,7 @@ X4: Foundations – новая часть в популярной серии к�
 ```bash
 magnet:?xt=urn:btih:CE2AD18A71CE0FC4D7780871CAC991EE1A25EF1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wanderlust 2: The City Of Mists / Жажда странствий 2: Город 
 ```bash
 magnet:?xt=urn:btih:431908D73534061520F1C2B4660663EBE2E9980D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Constructor Plus – новейшая игра в знаменитой сери�
 ```bash
 magnet:?xt=urn:btih:EFFB2A10E86B568126245975F89527E9548B53D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Spec Ops: The Line (2012) [Ru] (1.0.6890.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:54B9192F89E80857A85ABF6D45CD26327F74353C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.2.5/dlc) Repack R
 ```bash
 magnet:?xt=urn:btih:33CC85A35BD8EFFDEC20CDC40E0C7734DC909E3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

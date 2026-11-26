@@ -19,8 +19,7 @@ Two Point Hospital - симулятор работы медицинского у
 ```bash
 magnet:?xt=urn:btih:1BA3CE1F8AFBE63873A048067504109AF563E319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

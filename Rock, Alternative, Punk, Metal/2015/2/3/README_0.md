@@ -23,8 +23,7 @@ Royal Bliss - Chasing the Sun (2014) [MP3|320 кб/с]<Alternative, Modern, Hard
 ```bash
 magnet:?xt=urn:btih:04584D913D7697A14BA464EA639DBA87A826D6A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ One-Way Mirror - Capture (2015) [FLAC|Lossless|WEB-DL]<Modern Metal | Nu Metal |
 ```bash
 magnet:?xt=urn:btih:B25E95E8D2AA65936EA611FD5BD7F7755698F441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ The Carbonfools - Poisoned Goulash (2004) [MP3|192 кб/с]<Alternative, Electro
 ```bash
 magnet:?xt=urn:btih:0D31F54692F9996E3470811EC456FA8A96617EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Adrenaline Mob - Dearly Departed (2015) EP [FLAC|Lossless|WEB-DL]<Heavy Metal  /
 ```bash
 magnet:?xt=urn:btih:DBEF7C2C322518C8357C42868139F9D35B6D158E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Chris De Burgh - Flying Colours (1988) [FLAC|Lossless]<Soft Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:77854E63AAB0C0C18D3F22082BC3EABD91159009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Leah - Kings & Queens (2015) [MP3|320 кб/с]<Symphonic/Celtic Metal>
 ```bash
 magnet:?xt=urn:btih:4D6B451B5692E2450295A86BF13BD0A71EC695AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:638B74E5633EDA7301D0E1788CB197F52EE8EA41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

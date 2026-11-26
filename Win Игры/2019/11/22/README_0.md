@@ -19,8 +19,7 @@ Fairy Godmother Stories: Cinderella (2019) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:96398D990FFACCA62ADF535F761DBF53C4FA4419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brukel (2019) [Ru/Multi] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4964430258A36757A98474DB7CB65DD0B0DCBC44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ We Happy Few - экшен-приключение, сценой которому 
 ```bash
 magnet:?xt=urn:btih:77B6A83F1B85CDEA8C95F4CF403FAF68820CCF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

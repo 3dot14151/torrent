@@ -21,8 +21,7 @@ Q4OS - дистрибутив операционной системы Linux, с�
 ```bash
 magnet:?xt=urn:btih:BBA58488F5C077A6CB5EF2A76346944EA78661DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ ArchBang Linux 2015.12.03 (Легкий дистрибутив) [i686, x86-64] 2
 ```bash
 magnet:?xt=urn:btih:65B82A24FFF273FCB74B4FDD9657727FAEAC81A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

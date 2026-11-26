@@ -22,8 +22,7 @@ Ghosts of Jupiter - американская рок-группа из г. Бос
 ```bash
 magnet:?xt=urn:btih:AC4FD603AFAE51818144FBC1893654D5E4F358E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

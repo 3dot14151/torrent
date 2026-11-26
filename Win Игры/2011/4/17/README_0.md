@@ -19,8 +19,7 @@ Spring Bonus (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D68BB0B9AB335A95567FEF200836BC008CA1C7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wild West Story: The Beginning (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:9F23D9C9BAFE9E8F8AAB152DF347958FED7B3D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Diamon Jones: Devil's Contract (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:60788C670D80CE1D5707505D839128B0DE09D90C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Patrician 4: Conquest By Trade / Патриций 4 [Ru] (RePack/1.3) | Fenixx
 ```bash
 magnet:?xt=urn:btih:DCD3464BFCEAFF2E32CD4FA3CE810871E14224DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ X-Men Origins: Wolverine / Люди Икс: Начало: Росомаха [Ru/E
 ```bash
 magnet:?xt=urn:btih:778E086435B278EC538AB3F75760675E2FAB7C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Patrician 4: Conquest By Trade / Patrician 4 [Ru] (Lossless Repack) 2011 | R.G. 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

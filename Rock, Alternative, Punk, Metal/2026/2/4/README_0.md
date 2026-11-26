@@ -22,8 +22,7 @@ VA - This Is... 1970 (2008) [FLAC|Lossless|tracks + .cue] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:3AA94289A66018E85B5A233466E346D28118B7A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

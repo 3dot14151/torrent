@@ -19,8 +19,7 @@ Reflections of Life 8: Dream Box (2019) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:A862F7318BEAAE2C0E8ED1953BBFB45B06FF66D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

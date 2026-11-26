@@ -22,8 +22,7 @@ Criminal - Cancer (2001) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8E5CF68B9AE1075335E0E24040F241BDA0ED8782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Leo Sayer - Thunder In My Heart (1977) Remastered, 2002, RPM Records [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:62F74396C1290B7F15C7FB2395F70DFD9A745E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pentakill - II: Grasp of the Undying (2017) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:F7362987DD95BDF56D5322ABE2868143AE546F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Pink Floyd - The Dark Side of the Moon (1973) 2CD Unofficial Release, 2011, EMI 
 ```bash
 magnet:?xt=urn:btih:DA167F24565FD2F1A0000908AFB00FF2F7B0C145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

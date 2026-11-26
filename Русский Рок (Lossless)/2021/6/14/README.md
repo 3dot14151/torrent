@@ -22,8 +22,7 @@ Dig Me No Grave - Cosmic Cult (2014) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:A4AA07FF45171AD1A27A3AA956288E40F9F22B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dig Me No Grave - Immemorial Curse (2017) [FLAC|Lossless|image + .cue] <Death Me
 ```bash
 magnet:?xt=urn:btih:FB4D7FD8F189C06F379F5B7650A0A365ACCF9655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dig Me No Grave - From Past Aeons (2011) Limited Edition, Reissue, 2016, Symbol 
 ```bash
 magnet:?xt=urn:btih:485FB04261D26236E42CEDEDE0A8CA4027EAB045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

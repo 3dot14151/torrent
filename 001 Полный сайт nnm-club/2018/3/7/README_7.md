@@ -22,8 +22,7 @@ Howard McGhee - Dusty Blue (1960) 1999, Bethlehem [APE|Lossless|image + .cue] <B
 ```bash
 magnet:?xt=urn:btih:8736DC32BBBC0543586E11872E780D8765C58F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jimmy Rosenberg - Portrait of Jimmy Rosenberg (1999) Hot Club Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:2E1AD5FEADB673FFAFBB3CBA2A45735D9997F818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jimmy Rosenberg & Stian Carstensen - Rose Room (2005) Hot Club Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:ABC33ADB66C63CAF022D53CA424BD709EE03E5A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Dark Miami (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:ECC1DC003BA179083316B4BE0DCC3F98EA27FBB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jerry Gonzalez - Rumba Para Monk (1989) 2001, Sunnyside Communications [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:394413A7FCDDD155925518A4F7952C5B6C5E6396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7E9F048F868DC436E0CFDDEC09D04261B8E9277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5649E807F2AA23858D6C6408E67E59FDB5B58715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Techno Sound [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Techno, Tech House
 ```bash
 magnet:?xt=urn:btih:6987FFAF3E58A07458FFCD28323F1B10420DB1C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6161D03388F400FC001AA3F6A69C9AF1329CFCF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AD6FE5FD8A1A1336EC52B4A0C3EEBABC79ED76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Kállay Saunders - Grind (2018) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:FD28C25C0A64B50A37DB1F00EA646403D883F3BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Maximus & Felix - 2 Albums (1993, 1996) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:FD0C657E6F476B99086ED6B1F42B5373F34A3A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ VA - Winter Chill 2018 (Relaxed Nu-Disco & Deep House Sounds) (2018) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:5E9E527B0E592E9A1F843F9477E3702F4AD3CFAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ KeyKey — учимся слепому набору
 ```bash
 magnet:?xt=urn:btih:7934C68F66C5BC7AB2E9CA134954CA732027BDF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Maximus & Felix - 2 Albums (1993, 1996) [FLAC|Lossless|tracks + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:E9784BC796258A449E547D0CCBD587322980357D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ VA - Recuerdos Latinos Locas (2018) [MP3|320 Kbps] <Dembow, Salsa, Reggaeton>
 ```bash
 magnet:?xt=urn:btih:49C01FBC13CEB16B008A7DBBA7A6D87F8CDED3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDC73A9011BF8E9491F5F6C99A1D751E2B4B2C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Michael Brant DeMaria - Ama (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:F8526D5239AD6A4AD1C94C8AFD69CDA121E40B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Lilly Martin - Right Now (2015) [MP3|320 Kbps] <Blues, Soul>
 ```bash
 magnet:?xt=urn:btih:24C4E80B5C708E7E712F74562F16AB1FB9B8CE1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ AMD Radeon Software Adrenalin Edition 18.3.1 Beta [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E5867ACA379DEA7B49A18DEDAD7B40B7F7842D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A5F9F855E1F344C6B25877D1439639621CA9554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ Movavi Photo Editor 5 v5.2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C78E0FFB20832B3A90ABB67B4D0C97D6210EE7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:316E85491928B12AC7FF1F07986AE6E57AFBB909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ Kronos Quartet & Laurie Anderson - Landfall (2018) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:48D158416F568E6DC1F6C87E8D9C90BBE9556101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD4C6C32056011A5FF2ED1DD3A6B00C66E93D1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ VA - De Top 100 Aller Tijden 1983 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ```bash
 magnet:?xt=urn:btih:2344D2176DE72FABFA3CE5A61FAD1A5536053C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

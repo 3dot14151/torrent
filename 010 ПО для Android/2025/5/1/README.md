@@ -19,8 +19,7 @@ KineMaster - Video Editor & Maker v7.6.16.34690.GP Mod by Shadow_Patcher [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:BE9775DA84966DA1A8115510479ADFA68064C4BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Translator / Мгновенный перевод речи v11.3.0 Mod by Alex.St
 ```bash
 magnet:?xt=urn:btih:1FABCF2E69C04DE1750FAC7B3A1C98416668F346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Stellarium Plus - Star Map — это приложение-планетарий,
 ```bash
 magnet:?xt=urn:btih:8B4B82960E99F20CDE838A6E8B3C010F4BB0E280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

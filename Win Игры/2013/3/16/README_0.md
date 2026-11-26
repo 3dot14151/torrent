@@ -19,8 +19,7 @@ Vampires: Todd and Jessicas Story [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:A779DB45DEB906C1BC418F9D487079757C13B9DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sherlock Holmes: The Mystery of the Persian Carpet [Ru/En/Multi6] (L) 2008 | PRO
 ```bash
 magnet:?xt=urn:btih:0DE18A78DC5F809FE9588580AD20C4FF1AE73B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Assassin's Creed 3 (Patch/Crack/1.04) 2013 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:21C744F836F7308686E4DB8DBBE1CAF62DB1620D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Assassin's Creed 3 (Patch/Crack/1.04) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:C1CE16148D471B16F8631C76A83F3CD7B703A7E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Go Home Dinosaurs! [En] (Repack) 2013 | FANiSO
 ```bash
 magnet:?xt=urn:btih:E3D5BCADB5874CFECC91090F3C74B0DC320016BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Assassin's Creed 3 — The Betrayal - второй из трех заплани�
 ```bash
 magnet:?xt=urn:btih:8757D1EBE28CBF437FB19B8A082737498211B7AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

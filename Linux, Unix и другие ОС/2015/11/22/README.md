@@ -19,8 +19,7 @@ Red Hat Enterprise Linux (Server) 7.2 [x86-64] 1xDVD + 1xCD
 ```bash
 magnet:?xt=urn:btih:D597607F28F3E9BD3D16F657EE572CA5EDA84025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

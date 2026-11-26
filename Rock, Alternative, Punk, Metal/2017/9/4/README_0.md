@@ -22,8 +22,7 @@ Steely Dan - Les Genies du Rock - The Caves Of Altamira (1993) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:D138F954F5028A8FFEC77E87844EA61114C6B7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dirty White Boyz - Down And Dirty (2017) [FLAC|Lossless|tracks + .cue] < Melodic
 ```bash
 magnet:?xt=urn:btih:48BFC6F0F96AD66034038CE1A48395F17B8CA95E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Steely Dan - Everything Must Go (2003) [MP3|320 кб/с]<Rock, Jazz Rock>
 ```bash
 magnet:?xt=urn:btih:24285FFBCDD91FB686B360116098CED568A05164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Greatest Ever Soft Rock (2017) [MP3|320 Kbps] <Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:9368A87C678A92245A8D7FC3B14367BFFD3EEF7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

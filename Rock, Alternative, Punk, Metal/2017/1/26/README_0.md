@@ -20,8 +20,7 @@ Disc 2: The Early Years - Outtakes and DemosЖанр: Eclectic ProgПродол�
 ```bash
 magnet:?xt=urn:btih:117E4A20A7FE7338065AF14673B338121669E3BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ National Suicide - Anotheround (2016) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:97A8329DCE06C16D88AC42A6D95732A1C13E1306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Kreator - Live Antichrist (2017) Metal Hammer Promo CD [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:9DE91CB5D911821C8B2B6C39E063624CA80198E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Tomcat - Something’s Coming On Wrong (2017) [FLAC|Lossless|WEB-DL|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:FD5568A857F8ADD4CAEABEC61ED01D51DC7264BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Anti-Flag - American Spring (2015) [FLAC|Lossless|tracks + .cue] <Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:C179BF16A2AE9C3AA570E5A9862EECDDF947510C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ The Pineapple Thief - Your Wilderness (2016) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:3BBA89D91DA6AA1F3977B585A94173A0B3F828D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Arabs In Aspic, норвежцы из города Трондхейма, зву�
 ```bash
 magnet:?xt=urn:btih:E1447F4ADF0EEF053128683B4F6C6BABF63801DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Pride of Lions - Fearless (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5B00300390082D8DB58C9B7E6A5118DBAFB0A3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Laos - We Want It (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:03F367A90F07E2292F652037D71055FF63F208A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Kreator - Gods of Violence (2017) Deluxe Edition, Scene [FLAC|Lossless|tracks] <
 ```bash
 magnet:?xt=urn:btih:473148022B2A18A36DE95FBADCCF590719962E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Xandria - Theater Of Dimensions (2017) Deluxe Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:1F19F84A202C03208472FEC3EB7DD18CCAA75AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Mono Inc. - 12 Альбомов (2007 - 2017) [MP3|320 кб/с]<Gothic Rock, Dar
 ```bash
 magnet:?xt=urn:btih:A940B32D2589BAB779DFD0209989DCCF04625734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Xandria - Theater Of Dimensions (2017) Deluxe Edition [MP3|320 Kbps] <Symphonic 
 ```bash
 magnet:?xt=urn:btih:40684DD22B8FF3196E01BF7EE282A10543B61B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Toyland Racing / Игрушечные гонки [Ru] (L) 1998
 ```bash
 magnet:?xt=urn:btih:F57236DEAD08F00D3D7A023CE28C7BCA88250941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

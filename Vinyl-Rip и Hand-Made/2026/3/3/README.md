@@ -21,8 +21,7 @@ Mason - Studio Albums (3 releases) (2013-2025) hand made [restored, declipped] [
 ```bash
 magnet:?xt=urn:btih:16F9D454A1C255E3BC48F5A45AF44740BE15F56B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ B3 Litolff: Scherzo From Concerto Symphonique No.4 Op. 102(   Читать да�
 ```bash
 magnet:?xt=urn:btih:F9C378C4801D717419525AD05AEFA5D9CAC5CC0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

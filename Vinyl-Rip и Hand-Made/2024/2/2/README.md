@@ -22,8 +22,7 @@ A4 Дорогая, Сядем Рядом(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:491E5A9CCAA242B7769F10759F6F74B452BBE99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <H
 ```bash
 magnet:?xt=urn:btih:1334DD2E772241781EFDBD0E1FFA3171C44763B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-R
 ```bash
 magnet:?xt=urn:btih:C4233611F0A677A5E154E5D4A830CC020585F706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:6A95BC5A40D544C64309FE56CC02056CE09A8752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Guns N' Roses - Use Your Illusion II (1991)[FLAC|24/192|image + .cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:31BB76F9211DE5B98D4792B7E949E952FD25CD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

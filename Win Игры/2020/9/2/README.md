@@ -19,8 +19,7 @@ Desolate (2018) [Ru/En] (1.3) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8102070C84C79F448BF893F107D2B63A92FCC41C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

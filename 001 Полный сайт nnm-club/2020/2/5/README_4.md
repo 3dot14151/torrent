@@ -20,8 +20,7 @@ Xara Xtreme Pro 5 - портативная версия пакета для ве
 ```bash
 magnet:?xt=urn:btih:9890E1B877A7C9E073A67CD7093D5430BBB7ED46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Windows 10 Home/Pro x64 v.1909.18363.628 6in1 OEM/ESD Jan 2020 by Generation2 [M
 ```bash
 magnet:?xt=urn:btih:EBD2B0F318D749FA8C2492EDC14CDF28F705A1AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C61C081E251479EABD63092874B87D5611230F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Navitel / Навител Навигатор 9.12.58 Full для карт рел�
 ```bash
 magnet:?xt=urn:btih:38083A977BFDB2CE6517A659321A822C3676EF88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF01C61DB12C524F9C7AAF51145BF593FB8180E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56326B70DCD572F5DFA7DBFA8155ABFE5D4B8857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F394A8D72A0EE55AEA8AF720FF3AB53A45E59740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

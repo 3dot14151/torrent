@@ -19,8 +19,7 @@ Zoo Tycoon [Ru/En] (P) 2001 | 7Wolf
 ```bash
 magnet:?xt=urn:btih:7782EA1E4FE7F2A11B74A3385D0149C7584D2A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ MediEvil 2 навсегда стала одной из тех игр, котор
 ```bash
 magnet:?xt=urn:btih:48B2E7E85AAD8E1716F44D5280C0531EA94321E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

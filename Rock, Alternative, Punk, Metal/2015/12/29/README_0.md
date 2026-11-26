@@ -22,8 +22,7 @@ Warnerbeast - Rewrite History (2015) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:289DD05AADD5620EAD36E205AD1F8CC98DD5D432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Polydeluxe - Behind The Backdoor (2015) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:AB40ECBAF09FE4F58A7405BA0DB90B2962FCCFC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eyes Of Gaia - The Power Of Existence (2015) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B2D49672778D18B4254BBBC58CC85AEE11AF06F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Child - Child (1969) [MP3|320 кб/с] <Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:92B7F8C97A92D1A0CF85AB8E649D6BA362B2E0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Everfrost - Blue Eyed Emotion (2015) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:FFEF940C4451477809F8E203B47A998C486E6B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Pretenders - Pretenders II (1981) SACD, Reissue 2010, Mobile Fidelity Sound Lab 
 ```bash
 magnet:?xt=urn:btih:AB934FF0257045777F689040B820F064393170E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lost Society - Braindead (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:66BCE07611EFFC0458AF9C8D536510643171158E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Billy Joel - Turnstiles (1976) SACD, Remastered 2012, Mobile Fidelity Sound Lab 
 ```bash
 magnet:?xt=urn:btih:B9299B3395FB6355A50C6047369E3BA4BD86BD9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Jessica Wolff - Grounded (2015) Japanese Edition [FLAC|Lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:42485072C2A3495FF5AD8EF3FC1C351952F5A1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ R.E.M. - Out Of Time (1991) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:F52757400664E04CDEB340F1BA8F3268F7CE9769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ nobody.one - 4 Альбома (2010-2015) [MP3|128-320 кб/с] <Instrumental Ro
 ```bash
 magnet:?xt=urn:btih:E6EA1D2B1888558AF4AFDC92F2658A3B4022DF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Deep Purple - Machine Head (1972) SACD, 2003 EMI [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:CB19FF5ED5A2363325919737D9409CD930A0A275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:F9D0CD55C1D135195E34448BB59A0D611EBD1176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E74FFB15C3DDA5F423E173C8F36A236C96925A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Vivaldi 3.6.2165.34 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0C304E1A96409C15B8C9ED574C93C118120EDAA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Mp3tag предоставляет пользователям мощный и п�
 ```bash
 magnet:?xt=urn:btih:D423743BB81B3A5FFA6DCAF71CE05DF443EFA889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор 
 ```bash
 magnet:?xt=urn:btih:DAF70EC4C9508777F4AD0E2428A8E95EB5A924CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Michael Schenker Group - Immortal (2021) [FLAC|Lossless|tracks + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:CFA9BD8313B3C595998F9A1DD166C1003033B7B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Sangatsu no Lion | March Comes in like a Lion | Мартовский лев [Т�
 ```bash
 magnet:?xt=urn:btih:527476EE0B69E61F0EACE5C4253DF7BC4C002D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3E17610ACBD2E5982A96B177876EAE95343DC12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A04191DC8D42A6EE1E150398F258774683B10485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:BB18530CAAC5613055CD2CE056727340121E44E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Easy Data Transform 1.11.2 [En]
 ```bash
 magnet:?xt=urn:btih:08776622A4ECF06519FB3FE26847BB459DE67969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B3D090C0C1F9CA861FA262F2FBFCAFBF0543912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Accept - Too Mean To Die (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EA01C484EF2EF5C90FA6ADDE694910F8F4974B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54D8C5C09CFF2B40CB96BC3AB3E6EE2C6650496F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ Syd Mead | Airship Arrival (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:49C2BA3D68DCD0F7D2597BDB2A8DCE6616889C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E68E9E463961389B8869215183408CE6AA9A043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2AA89958F16BCCB5EA988ADC24BC45EE06302F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70BB82708ACEE38DC31111C3A57875F372A6C90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ SEMPRO 2017 — это специализированная конференци
 ```bash
 magnet:?xt=urn:btih:DD58C73DE8CC5AFE72ED762FB740C33827255D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ Toni Braxton - Toni Braxton (1993) [FLAC|Lossless|image + .cue] <R&B, Funk, Soul
 ```bash
 magnet:?xt=urn:btih:08C6366062AB8FE4C090018660029255CB2785EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ NoteBurner Audio Converter - утилита для конвертировани�
 ```bash
 magnet:?xt=urn:btih:9B1A6D6F66B534858289DE768929E44793828304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45CD5350058B77066DF0CD276937EB4A2FAF8EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ Feng Zhu | The Techniques of Feng Zhu Vol 1-3 (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:400BD68EA111A46475A00BD1EC4E179F27F9FB57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ Corel® AfterShot™ Pro 3 - это фоторедактор для обрабо
 ```bash
 magnet:?xt=urn:btih:62BEC30F4D8D58BD8D9323FE890792804C1E82B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ Best PDF Tools - это универсальное программное обе
 ```bash
 magnet:?xt=urn:btih:41C6FFC4A6BC0E77EF06467880753D9EA2280502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ Shane Hurlbut | Experience Lighting Masterclass (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:71F9B5ED9A6FCBCF1E4D64CA2D78362F2F309724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

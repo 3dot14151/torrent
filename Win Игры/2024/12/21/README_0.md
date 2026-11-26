@@ -19,8 +19,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.8) License GOG
 ```bash
 magnet:?xt=urn:btih:BEF7D83A2613A534B123C7BF44C0B4F078C6FB3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Line's Guarder (2023) [Ru/Multi] (Update 10) Repack Other s
 ```bash
 magnet:?xt=urn:btih:694FD1D5C9E6283163F8F219831CF88EFC72B41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Cabin Factory приглашает геймеров в мир, где за �
 ```bash
 magnet:?xt=urn:btih:FA45A54C004BC1682EFA024E977C1EE50073108B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ South of the Circle — эмоциональная игра с глубоким 
 ```bash
 magnet:?xt=urn:btih:0B84C662B27754FB068D79D0732A38C1BE67E84A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mystery Case Files 27: The Riddle of Mrs. Bishop / За семью печатя�
 ```bash
 magnet:?xt=urn:btih:6B935F3A1D36233F123E9FF3BD400FE914E913AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

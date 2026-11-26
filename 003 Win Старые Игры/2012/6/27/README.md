@@ -19,8 +19,7 @@ Sid Meier's SimGolf / Магнат Гольфа [Ru/En] (P) 2002
 ```bash
 magnet:?xt=urn:btih:D098FB91C48F3C4AFD30F8213A6243DD1118154E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GX UltraMoria [Ru] (L/0.9.9c) 1985
 ```bash
 magnet:?xt=urn:btih:F8940ED63C2F80486E1A8A41034F72F7BE9A8012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

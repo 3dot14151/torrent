@@ -22,8 +22,7 @@ Birdays – Дни рождения 1.5.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DF70074CCA857495F8BB7B6B6C2F550D6D2F86D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0858ED28784C5332D9F755270ADC1CF478D268B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

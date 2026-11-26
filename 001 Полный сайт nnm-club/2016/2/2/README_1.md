@@ -21,8 +21,7 @@ Desireless - Franсois (2001) [MP3|320 кб/с] <Electronic, Pop, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:FEB744ECC70C559D0D0BBB67A38F7608A319DFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55C28267A97EACBF4C0A4DE3EA1AA9184392AE2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1D5FACAA452D98970B7CCF56945732DF995136D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7F81FD98BFD73748A5AAC8AAB629C04765C796B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0CC458DE7B498F626F09CF6B0AF54BE45074900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ VA – Fetenhits: The Real Classics (2002) DVDRip
 ```bash
 magnet:?xt=urn:btih:E8E6BCF894E8589E430A8D7CB7BA4F4808A35C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Aziz Aouane & Jeitam Osheen - Age Of Pharaohs (2016) Single [MP3|320 кб/с] <T
 ```bash
 magnet:?xt=urn:btih:535167CC2CFB4674B3362645FF9AB31DB8E8F146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:A8E06FFD72C97426D2581989FB27B9A2C266B594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBA8AAB9C017D5CF237EB5394916A0649ECC2EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0698BFAFD615E67DDA45D2EB2375F13CB8D5370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1410FEDF1D422AC2E1B8FE0EFB7870E7F39AB0F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:259CAB91961A4047B0EDDD9515A624352AFE87FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Germind - Elusive Shadows (2016) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:10B253FBE002E49484B779E4DEA354D90A030B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ VA - OWSLA Worldwide Broadcast (2016) [MP3|320 кб/с] <Dubstep, Future Bass, T
 ```bash
 magnet:?xt=urn:btih:F9263634202E5FB9FE86D7A76F688E08FDBDC32C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47106A92FA506420E27A7C50096A81F319B80B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A12FA041A638DD812BE6C7C723A768E583A6F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Bloc Party - Hymns (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:A8935C9BC1D6B5383D7D4C2702A6A112FB315E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ A Tribe Called Quest - The Low End Theory (1991) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:F6AB0723C4997F2DFBD73824533C5B281F42492B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ XMedia Recode - видеоконвертер с функциями редакт�
 ```bash
 magnet:?xt=urn:btih:EE41D87F49C93C2F642F46A77DC9C630B2762F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D232769EE0B3D44D76E90D16DAA7EB4E2CAFFE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:692CE195DACF0C3B1F34CF5CF857E2648A37A2E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Black Sun - Brandus (1997) [MP3|320 кб/с] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:11404AF486A278C2F773B0D2B25C5298FE0CB78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B8E6C36E8D7A629C319354DEB184B4483655FAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ Radiohead – 27 5 94 The Astoria London Live (1995, remastered 2005) DVD9
 ```bash
 magnet:?xt=urn:btih:AD8C91560ED61C57586AEC59B833C6E37B924FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ beaTunes анализирует музыкальные композиции, о�
 ```bash
 magnet:?xt=urn:btih:63C1606D6A95B5C4F1CBFB4BDCC145888CA0605D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ Francesca Belmonte - Anima (2015) Deluxe Edition [MP3|320 кб/с] <Alternative 
 ```bash
 magnet:?xt=urn:btih:6207F1988EDF51FEACA2410D902830F45DC8057B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

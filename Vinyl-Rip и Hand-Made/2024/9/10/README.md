@@ -23,8 +23,7 @@ Edge of Sanity — шведская дэт-метал группа, котора
 ```bash
 magnet:?xt=urn:btih:AEA51837582D69D011DD82B2499482A76BE7DFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

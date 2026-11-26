@@ -18,8 +18,7 @@ Herald: An Interactive Period Drama – приключение в альтерн
 ```bash
 magnet:?xt=urn:btih:D3F95C0926C3FE8DB2D20B2D310634E0C04BEF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Hatsukoi Monster / First Love Monster / Монстр первой любви [20
 ```bash
 magnet:?xt=urn:btih:C68E40446895B01261ECCF6D6510F36E293465DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ AMD представила программное обеспечение Radeon 
 ```bash
 magnet:?xt=urn:btih:BC487F161AC37D45AF0222F20A1E653E459EC33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ AV Uninstall Tools Pack - это бесплатный пакет утилит, �
 ```bash
 magnet:?xt=urn:btih:1C7AD4BDFBFCFA72E2738FC9DFB7CC35D55F2824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C4B8EEE00AA9DB2BCEB497519C410FE8C7FDCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ X-COM – это сверхсекретное боевое подразделе�
 ```bash
 magnet:?xt=urn:btih:6D7C6F056E1AD9A6BDFFB9919B6AAF1CCC9AD438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Long Riders! | Марафонцы [2016, TV, 12 эп.] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:33835A464ADE95D57E4828B60EB11500649099D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Minimal Laser - Hi-Tech Logo Reveal - выжгите свой логотип п�
 ```bash
 magnet:?xt=urn:btih:EA12FB67EC010AB6C45CB04DF89B924BE76BCD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Hidden & Dangerous Anthology (2002-2005) [Ru/En] (1.51/1.12/1.50) License
 ```bash
 magnet:?xt=urn:btih:78A790FCF611DA61BD6354165D30B70B182BBBE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87930FEACF52AB6E7EB9EFCB53EB56237771E295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C394B8B6C59D7CF1EB83E44871DF0901248EF07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:CD4520D69B2AB5CA4AC21F1BF80DAAA8A8D59607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF201FB73CE810EB780893322A475120319FE25D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01EE571245B3529DD2479AF9D6BA5F5B2FFD1815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E0F6094BAF321210B292F970BDA763CDBA1068A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A5501E1A475ED1026D63E78B63E0ED7C49EC2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +418,7 @@ uTorrent 3.4.9 Build 43295 Stable Portable by A1eksandr1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:070B2DFE9BF9D6F751F95C8594B18669B606D0E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +443,7 @@ Punch Club (2016) [Ru/Multi] (1.31/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:82633A2A6B681CD2742851BB9A02F3B83C7D9D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EAAA4261A840E15ED7DF19B904EED7891EC0A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +493,7 @@ Gravity Rush (2012) [PSVita] [USA] 3.60 [HENkaku] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:3D4429A7D56DF07E0FE7D5214EEA85E78761E0F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +518,7 @@ Hidden & Dangerous 2: Sabre Squadron (2003-2004) [Multi] (1.12) License GOG
 ```bash
 magnet:?xt=urn:btih:941D6976B1F8B6BE7D06D694154C25FA032A0347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9ACA1C0978EF17019ED4CEE6612665C30134D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46B330C1DF15ADF0AAE06CD1BE0C4EFEB8279D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA87A127DF1C82795D78B1E8B4DCA9808B233629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +618,7 @@ Shift Happens игра о двух милых существах из желе, 
 ```bash
 magnet:?xt=urn:btih:789C45772718514F2685819B6C8DB0D2661E57B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C181996242C101F4E6778A7E7871F98B608F6B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

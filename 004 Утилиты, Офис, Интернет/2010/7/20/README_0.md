@@ -19,8 +19,7 @@ Paragon Easy CD/DVD Recorder 9.0 - небольшая, но многофункц
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

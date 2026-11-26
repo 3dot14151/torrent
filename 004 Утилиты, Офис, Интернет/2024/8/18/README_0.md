@@ -21,8 +21,7 @@ Optimizer рекомендуется использовать после све�
 ```bash
 magnet:?xt=urn:btih:53E4CEF78A0ACFC1EE1AAF2DF678DDF9E62669AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ MediaInfoXP - это проект с открытым исходным кодо�
 ```bash
 magnet:?xt=urn:btih:BE112E0CEEF26AEEB194B88F16FF23D5A7220878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

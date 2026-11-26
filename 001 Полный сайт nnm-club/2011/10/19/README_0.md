@@ -27,8 +27,7 @@ VA - Europa Plus 200 лучших. Выпуск 5. 50/50 (2011)[MP3|128 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:96943D45D1EBDE81D363E2D3CDF50D8024B5F210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Chillout Viza v.8 (19.10.2011) [MP3|320 kbps]<Chillout>
 ```bash
 magnet:?xt=urn:btih:D54556AA6E968D9493CC745A6036C82B1D0F1125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:559E82A4D1A7D7E423F4B97ABD97162015CD4F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Осенний кураж шансона (2011) [MP3|256 kbps]<Шансон
 ```bash
 magnet:?xt=urn:btih:7DE8DFC090FC159D839C057593EB22C687BEF182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Harper's Bazaar - это журнал, который уже 140 лет нахо
 ```bash
 magnet:?xt=urn:btih:8ABC521E152B0931D135602C0DEBC03974BC313C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37A40C83CA814E8629A0D5FF04128B987AB9EC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD2BC5DFF50E748A5FB6771CB5850066CB03CE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ VA - Европа Плюс Включи Весь Мир Часть 8 (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:CAD75737AA443D0E21AC1B443A9C5AA8C04A1037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ Journey - Through The Mirror (2011) [MP3|VBRv0 kbps] <Psytrance>
 ```bash
 magnet:?xt=urn:btih:9C70446484D9EE9F926EFC94BA049DF2A70254AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ Synkro - Tribe (2011) [MP3|320 kbps]<Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:7F3D2588AB33AF29C67C6BEAD60D45FBD43FE414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2CE4A2D851A4859D337A0A29DFF64174819971A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:518EC6B2FBCD8882CA3FBBCD21B6218AEC09DFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ VA - Хиты Осени За Рулем.№6 50/50 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:F935D84E1CFE1612A8D63A0499F7280F23A643B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ VA - Музыкальный привет из Израиля (2011) [MP3|256-320
 ```bash
 magnet:?xt=urn:btih:A0783CDD34C5CFB8AA5D89201AF4A42317628FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6556C3F3281CA8E93FDC71C4FE3B514069799CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F20D18AFEC95D130EAF53F28A400E69906CC007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF73E32B65CB432C0D2FFE870853B183D3EBC0F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ Godfather Pt 3 (Of Infamous Mobb) - Medicine Man (2011) [MP3|320 kbps]<Rap / Hip
 ```bash
 magnet:?xt=urn:btih:DE67D19EF63946FB648EF8F6AA36293F3450CD96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ VA - Музыкальная шкатулка. Новые хиты (2011) [MP3|25
 ```bash
 magnet:?xt=urn:btih:76AA4059D5BFF34715F6D66B3306A417C32E4363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ Krusseldorf - From Soil To Space (2011) [MP3|320 kbps]<IDM, Psybient, Glitch, Do
 ```bash
 magnet:?xt=urn:btih:5FC3A4BCD368C203E16B71AD2FA5529B43112F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:498AB0BF812292A70234C042AC5AB7F79C411B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ VA - I Love Disco - Dancefloor Gems 80's Vol.1 (2008)
 ```bash
 magnet:?xt=urn:btih:7F3771CC7AEB0DEC85CA06F8DCFF96C482FEAD52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D25787EA4733D3DAEE5004B52674D40BFA5B1341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +739,7 @@ Headshot - Synchronicity (2011) [FLAC|Lossless]<Thrash Metal/Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -798,8 +773,7 @@ VA - Дискотека Новые Звезды. Часть 3 (2011) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:8EA9103A3A6358419CBCD9920F21677E8409D640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

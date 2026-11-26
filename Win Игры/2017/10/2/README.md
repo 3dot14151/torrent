@@ -19,8 +19,7 @@ PuppetShow 8: The Face of Humanity / Шоу марионеток 8: Быть ч�
 ```bash
 magnet:?xt=urn:btih:63D1EE016DDC9AAA5C802C9753A8077FD478D888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:32BC039D58F2E1320E4D4AFE42C17223282FB9B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RiME (2017) [Ru/Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:E302CDAFE6F98D47061ABAE6C380731754C97B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

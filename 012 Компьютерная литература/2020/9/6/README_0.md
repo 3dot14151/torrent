@@ -19,8 +19,7 @@ Benoît Blanchon | The Ultimate Guide to Master ArduinoJson / Руководст
 ```bash
 magnet:?xt=urn:btih:8B31333D1F281F9520CB9B814924CBDCC1559456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ C++ — универсальный язык программирования, п
 ```bash
 magnet:?xt=urn:btih:992EB0D095113E8716CA7DE41D95AFB509AD37C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

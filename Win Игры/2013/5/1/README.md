@@ -19,8 +19,7 @@ Island of Death: Demons and Despair (2013) [En] RePack
 ```bash
 magnet:?xt=urn:btih:3F35F7CCDCA25C0B431C2B3A789831B598FEEABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zeno Clash II продолжает приключение Гата, которы
 ```bash
 magnet:?xt=urn:btih:6CE182E418C687CFFF8D1D860F09CAAB54F1720D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sacred Citadel (2013) [Ru/Multi) (1.0/DLC) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:A6B1301346AA7333ABF9FEA7E3213736808AE6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Strike Suit Infinity (2013) [En] License COGENT
 ```bash
 magnet:?xt=urn:btih:F654B19693C0333EFA7B00A2B46ED088C597C10B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Far Cry 3: Blood Dragon (2013) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:1061540F50CB518261C75C869ACE69582F546D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

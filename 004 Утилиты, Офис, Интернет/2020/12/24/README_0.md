@@ -19,8 +19,7 @@ Discord  — бесплатное VoIP приложение, изначальн�
 ```bash
 magnet:?xt=urn:btih:40A59CF50082FFA4688C8255E91A1D6048B6D837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

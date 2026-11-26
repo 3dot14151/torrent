@@ -19,8 +19,7 @@ An Evil Existence (2020) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2DCA886C73FF093A6840EBE4C4ACE3CDAD1D9895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Adeptus Titanicus: Dominus — адаптация трехмерной поша�
 ```bash
 magnet:?xt=urn:btih:2C4096D8572A0CBAC6EA951AEE6A5CC49C756D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

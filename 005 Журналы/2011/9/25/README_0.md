@@ -19,8 +19,7 @@ Treats! Magazine - журнал о современной эротической
 ```bash
 magnet:?xt=urn:btih:0842F9BC6F771DC67969EFD587F3969CEF30FD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Treats! Magazine - журнал о современной эротической
 ```bash
 magnet:?xt=urn:btih:2F35710B49AC3519D3181D71BE37FE5878509A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

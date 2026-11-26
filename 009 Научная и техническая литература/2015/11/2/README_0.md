@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:38A185861218AB5B01143D94BEC74FCAC3B3AA1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60FFE9F179CEC041F1D9BDA6F571B853E0691393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC40DD92F57A7E2CE04C6BE9A0B6A7944A6FFB98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Urban Dictionary (www.urbandictionary.com) — давно и широко изв
 ```bash
 magnet:?xt=urn:btih:A43BB1E01BF56A19095D8A64BDF1ED49D5C132DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

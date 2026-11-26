@@ -21,8 +21,7 @@ Xliff Editor- предоставляет простой способ редак�
 ```bash
 magnet:?xt=urn:btih:39553922D8EB134818FA9941AE35B5290C2D33BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ CheckBook Pro - это не просто базовый инструмент р�
 ```bash
 magnet:?xt=urn:btih:4F213B02F89208D6F783081D3F756795701DAC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Scrutiny проверит ваши изображения, ваши внутре
 ```bash
 magnet:?xt=urn:btih:528328EB5DF5B199D26AFEADCA2F19C4B2E74623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Ed Neumeister Quartet - New Standards (2005) MeisteroMusic [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:763B5EB4E45027F0D83D98D362AE5AF4F0408E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Phil Hey Quartet - Subduction: Live at the Artists' Quarter (2005) Self-Released
 ```bash
 magnet:?xt=urn:btih:362AE94E82271BD07F0DF24DAD3C68AFB03A5F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ PDF to Numbers Converter 6.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CEDC09B3CC0BFF352C08C7DB31E1EB3EF00E37EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Brother Ali - Secrets & Escapes (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, R
 ```bash
 magnet:?xt=urn:btih:CAFE99ADD4815A22A5E9E0B129D08050CF7B6744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Smultron - простой и элегантный текстовый редак�
 ```bash
 magnet:?xt=urn:btih:3B7017AF5D7F9C010578D3C033DE7D4C141CAAB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ VA - Fresh Family. Fresh Animal'z Bassball (1998) Resort Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:3DFCF5AD9C9CA02ACAF6485B59063089E071CC72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Affinity Publisher Beta 1.8.0.523 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:69E62B2D97ED64EDEDD5836E6BCD202604E6103D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Magnétophone - I Guess Sometimes I Need To Be Reminded Of How Much You Love Me 
 ```bash
 magnet:?xt=urn:btih:39C3252BFF2308E232E0BD5D4664C4C8B794FAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:AEED1F3BCD1F9208147DBA195926B9BE82BAE7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ PDF to Pages Converter 6.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8B122D33D2292A4A14E5827A35E7518CE943E7E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Tap Forms Organizer простое в использовании, абсолют
 ```bash
 magnet:?xt=urn:btih:B7DD4D4BE537BFDD11D688382E366C80C9EB124B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Patti Austin - Body Language (2003) [FLAC|Lossless|image + .cue] <Soul, Rhythm &
 ```bash
 magnet:?xt=urn:btih:63BFC2E476219F6959C49BF1CAC5760F775AF0A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Calibre - Planet Hearth (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techn
 ```bash
 magnet:?xt=urn:btih:B6624FED2E228A35E155016AA6E4E14B55CB91AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:171CFA6F38DA328666B2E2A3560A9CCB81D834F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Agathodaimon - Serpent's Embrace (2004) + обои, фото, фото гале�
 ```bash
 magnet:?xt=urn:btih:B45C0DD90D91ABEB36C46710B2469072F36ADC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53F9D9E3AF4CA2EE93027E796869F70BE5338D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Oceans of Slumber - The Banished Heart (2018) [FLAC|Lossless|image + .cue] <Prog
 ```bash
 magnet:?xt=urn:btih:09341121145558E6DE86920B4A79D71401C02DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ Zulu - профессиональное программное обеспече�
 ```bash
 magnet:?xt=urn:btih:8CF87423AAC4EC255205D7F5F73777A209F18D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ FontLab 7, это новая программа, для профессионал
 ```bash
 magnet:?xt=urn:btih:BA2641826F86CEDA32077FE8BDDC2D7A724B38E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ Softorino YouTube Converter 2 2.1.11 [En]
 ```bash
 magnet:?xt=urn:btih:8F3431BB9C1497499250F659FA60FA1E4965A935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ iWork Converter 2.3 [En]
 ```bash
 magnet:?xt=urn:btih:386FD066A706147904DC31016243D1D634D4E5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Scarlean - Soulmates (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Nu
 ```bash
 magnet:?xt=urn:btih:478EF09EDF86F423285CA68C71929EB76A01BCF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ RazorSQL – программа для управления основными �
 ```bash
 magnet:?xt=urn:btih:CEFD92ADF787610BEE286D6FCB39A8A9FE0EBF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

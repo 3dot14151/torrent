@@ -22,8 +22,7 @@ A4 Беседа (Conversation)(   Читать дальше...   )Жанр: Jazz
 ```bash
 magnet:?xt=urn:btih:CDD595CA78BD9E44EC0A62DE449957E455688A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

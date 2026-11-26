@@ -22,8 +22,7 @@ Axenstar - The Final Requiem (2006) [FLAC|Lossless|image + .cue] <Melodic Power 
 ```bash
 magnet:?xt=urn:btih:1510F37CC7422D391C2647224FD83B5121D8BE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Protest The Hero - Palimpsest (2020) [FLAC|Lossless|image + .cue] <Progressive M
 ```bash
 magnet:?xt=urn:btih:445372DDDBA6C5CC5EA5BD8BAF1414292EB678A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Illdisposed - Reveal Your Soul For The Dead (2019) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:C54CBB763462614859E598C464ECAF68BF9C7056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mastodon - Medium Rarities (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:AF60074BABBFF55A1C9F959D20F7D91668ACBB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Winter's Verge - The Ballad of James Tig (2020) [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:A726A1FEB53E6057A08D3175FB66C2B70C971FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Toehider - I LIKE IT! (2020) [MP3|320 Kbps] <Progressive Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:BB0CFEFCECA64F7DC54FCBEB25667EB11F41CE17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Mastodon - Medium Rarities (2020) [MP3|320 Kbps] <Groove Metal, Progressive Meta
 ```bash
 magnet:?xt=urn:btih:F3878F97F07178915CAEF91FD9B6B0923E924774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Messiah - Fracmont (2020) [MP3|320 Kbps] <Death Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:61401F0060D7D4685C624F2395C5DAA328E0933F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ Skeletal Remains - The Entombment Of Chaos (2020) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:5EEE02843E9A21213644780EBB7AF4CA2DEB7E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ The Beauty of Gemina - Skeleton Dreams (2020) [FLAC|Lossless|tracks + .cue] <Got
 ```bash
 magnet:?xt=urn:btih:D42B7671F97E46FE006E8A9C7E0E2E207C9884BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ The Flaming Lips - American Head (2020) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:875A7A4CC3AA9EC3FB4BB9D712AD100D73513724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Eskimo Callboy - MMXX (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:DAC8F048D2FBB907DC27DF93029D5970B7D02F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:C2235108A5770A1B45905375507BD418E50D02BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D9C278E10661F0C2C07B47AE36086258D62A8E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E16096B6F4C2FBD41FF681E9E26C87E1A13DA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ The Human Menagerie / Человеческий зверинец, дебютны�
 ```bash
 magnet:?xt=urn:btih:EDDCC3911EFF8E359FA37A96232E9040A9B5EDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ Epica - The Quantum Enigma (B-Sides) (2020) [MP3|320 Kbps] <Symphonic Power Meta
 ```bash
 magnet:?xt=urn:btih:2E8374479BE17386F92579C0F829D2A96B34B34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +500,7 @@ Skillet - Victorious: The Aftermath (2019) Deluxe Edition, 2020 [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:2F3B7EEE4732AD63825757A793580D0654F509FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

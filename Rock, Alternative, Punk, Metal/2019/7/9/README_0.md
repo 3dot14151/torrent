@@ -22,8 +22,7 @@ Sanguis - Ascension (2008) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:E3320537980BCFEBDA557D8143C09B22C62B2A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Silent Stream Of Godless Elegy - Behind The Shadows (1998) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:AEF3BE6A3BE20ED9C975450D95980BF577250A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Moonrise - Travel Withi (2019) [FLAC|Lossless|image + .cue] <Neo Progressive, Po
 ```bash
 magnet:?xt=urn:btih:AD7F098CAA21CFA7F992EA43F31444AF6F87D92A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Abbath - Outstrider (2019) Deluxe Edition [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:FB6F562B99089C0F78E497E4E9A000CD8C0C5A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Power Tale - Семь Подземных Королей (2018) [MP3|320 Kbps] <�
 ```bash
 magnet:?xt=urn:btih:AB204AFB7AC5E778D959DA6C1FDC411891A10BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Santana - Africa Speaks (2019) [FLAC|Lossless|tracks + .cue] <Rock, Blues-rock>
 ```bash
 magnet:?xt=urn:btih:CA90D6D1B7E990C9220690872F6CC93B3A5AF91E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Power Tale - Огненный бог марранов (2019) [MP3|320 Kbps] <М�
 ```bash
 magnet:?xt=urn:btih:275D793EFB856A85E5BA76617DB0012579A566B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE8C637D13F607EA0FFA1A2BCD51A3D63302FC7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

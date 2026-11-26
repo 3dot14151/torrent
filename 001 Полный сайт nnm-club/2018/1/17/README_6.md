@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:A36440F3514FA8DFFD56DC96A93A20CD933258A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cкелетон. Женщины 1-я попытка
 ```bash
 magnet:?xt=urn:btih:BA243A00185FF284A6EBF2C9E66E71870F8115E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cкелетон. Мужчины 1-я и 2-я попытка
 ```bash
 magnet:?xt=urn:btih:BD99F4CF746801712608A399A73D6FCD50B394D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cкелетон. Женщины 2-я попытка
 ```bash
 magnet:?xt=urn:btih:934BB9095794ACCAD9B455A063346EB41A928737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:260A7FCC22CD3E71B2AA75590E504C8C675BD1DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCF484BA658BE3747825E167BF8477631A7E8FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AA8526315A5BC25C32567658F0B42B2A6119F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Earl Hines - 1953-1954 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 ```bash
 magnet:?xt=urn:btih:BF8C6BD20E2820CF68A6C0134CE1D9E9094DE060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Antoine Clamaran - Lafayette V.O. La Compil' (2006) [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:5258CC2A99A5E4FF1CB4BDA396DE5D4E749112B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - A Decade Ilian Tape (2017) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Breakb
 ```bash
 magnet:?xt=urn:btih:7468F248DB771134338FBC4EAB801910028AB31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Alpine Lifestyle Lounge Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:D374804BF164DCF07666E420717D1B4065181F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Keeper Of The Deep: Zone Drum And Bass (2018) [MP3|224-320 Kbps] <Drum & Ba
 ```bash
 magnet:?xt=urn:btih:4AA753A6170163CA83ADEBBA17D9A4A9C9144F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Hed Kandi - Twisted Disco (2009) [FLAC|Lossless|tracks] <Progressive House,
 ```bash
 magnet:?xt=urn:btih:CBBD014A08AA0605029241CFF7F5517F58BCE771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Stone The Crows - Ode To John Law (1970) Reissue, 1996, Repertoire Records [MP3|
 ```bash
 magnet:?xt=urn:btih:7C001A563F5986565DBEDD4958F87D54D33E8127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Morning Coffee Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:6980AD2AF5564E57FE9B8159D5F06AED5479BDEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A3EA31C9E0634D58F9BCA5765F6D62EE23B9A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Night - 2 Albums (1979, 1980) Reissue CD, 2012,Gonzo Multimedia [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:0D4CD1D3C6CB7A03868D8A17AE528925C2C53435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B475BF3211013D634F67A2D8FD220DF4E27EBC9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Bosson - Best Of 11-Twelwe (2013) [MP3|320 Kbps] <Europop>
 ```bash
 magnet:?xt=urn:btih:616AEF769D041371C0F80AAF3C5A1170053C56CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43CFBF776246AF2100856BCB769725D73111E86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ Patrick Bernard - Divine Grace Divine (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:BB25F0851011E207D0BD932E24691CAB9E816769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ VA - Electronic Bliss (25 Beautiful Relaxed Anthems) Vol.4 (2018) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:7A11C74328DE2F54FE05813458062407F459D8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0B2A65946757245A78E3181912CBB4C4C325421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ VA - Hed Kandi - The Mix: Summer (2009) [FLAC|Lossless|tracks] <Progressive Hous
 ```bash
 magnet:?xt=urn:btih:A11742E6A185B59CD3828D906495381D13B3967B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8026E7EF57162E5DA820EBF2EA0726430BAB444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ VA - Hed Kandi - Beach House (2009) [FLAC|Lossless|tracks] <House, Deep House, D
 ```bash
 magnet:?xt=urn:btih:C08A397D29FFA540682C368E5F420BA0C5894F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

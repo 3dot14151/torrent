@@ -19,8 +19,7 @@ Age of Wonders - красивая походовая стратегия в фэ�
 ```bash
 magnet:?xt=urn:btih:33B60ED24DC1736E06C2789E08F7988B60DBEF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

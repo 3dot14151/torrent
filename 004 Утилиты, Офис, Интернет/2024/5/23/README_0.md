@@ -19,8 +19,7 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 ```bash
 magnet:?xt=urn:btih:B7CDC904744E49D35F3D2D0687DCBE3157BC7EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Universal USB Installer – портативная программа для с�
 ```bash
 magnet:?xt=urn:btih:C3C37273096653CF5CE45E2FEA1457C6A1EFACF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

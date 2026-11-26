@@ -20,8 +20,7 @@ World Truck Racing (2014) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:1090257E62E9AFA6D254024DA71D50E05C9FAF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

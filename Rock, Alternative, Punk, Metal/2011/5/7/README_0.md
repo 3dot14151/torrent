@@ -22,8 +22,7 @@ Caliban - Coverfield EP (2011) [MP3|320 kbps]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:543CCBBCBB7399A271DFCD9B42BFBC705F27A042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Maybeshewill - I Was Here For a Moment, Then I Was Gone (2011) [MP3|320 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:1641D642B6BDB426CD744066308AAE9AF6A480A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Norther - 6 Albums+EP (2002-2011) [FLAC/APE|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Coldplay - Greatest Hits (2009) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:CAB0BF3DC3AB3DA3992F418287F6F66E3AD9D4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

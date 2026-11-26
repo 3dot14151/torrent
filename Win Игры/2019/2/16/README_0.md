@@ -19,8 +19,7 @@ Fright Chasers 3: Directors Cut (2019) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:B405D7788F42F872197DBB66C0FCA380663037C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fatal Evidence: Cursed Island (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:905265C67AB9205225B325119204167EEA1C3576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) License CODEX
 ```bash
 magnet:?xt=urn:btih:7DCA4EBB811C720FBEB0F006A101D416B63BB256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

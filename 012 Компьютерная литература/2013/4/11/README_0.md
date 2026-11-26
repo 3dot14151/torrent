@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:04F5C8425703B1379E90B37DD38139DF482CAE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DC87F1A8A02B38DF7BAAC230B3407398631617C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ E. Weinmann, P. Lourekas | Visual QuickStart Guide Photoshop CS6 / Самоуч�
 ```bash
 magnet:?xt=urn:btih:71191D84F4ADF7757B2BCD329D5047CE64E128F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED4C05531999FC88098C4DD397D6FAF2432F5B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

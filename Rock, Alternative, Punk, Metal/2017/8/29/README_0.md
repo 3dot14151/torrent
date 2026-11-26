@@ -22,8 +22,7 @@ Running Wild - Death Or Glory (1989) 2CD, Deluxe Expanded Edition, 2017, Noise [
 ```bash
 magnet:?xt=urn:btih:5FF6159A949DC800FBB968A27E15EACEE06B3C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DF2974A2B47ED6A2A73137350ED001B85CA148E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

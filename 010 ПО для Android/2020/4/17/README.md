@@ -19,8 +19,7 @@ Manual FX Camera 1.0.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:71418585012259AEAB0932F827BC054DB9B8F127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

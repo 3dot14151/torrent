@@ -22,8 +22,7 @@ Beefeaters - Secret Tapes (1968) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock
 ```bash
 magnet:?xt=urn:btih:96B65CE0209BFCEEA564B6BAE191DD247DD1B841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Tarja (Tarja Turunen) - Dead Promises (2019) Single [MP3|320 Kbps] <Symphonic Po
 ```bash
 magnet:?xt=urn:btih:5B73760B37E5EADE14782271A57EFFBF0D756E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ereb Altor - By Honour (2008) [FLAC|Lossless|image + .cue] <Black Metal, Doom Me
 ```bash
 magnet:?xt=urn:btih:720D4E13A61C4B795EB6DC639612ECFFF9C843BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Forever Free - Metal is Back (2016) EP [MP3|320 Kbps] <Heavy Metal, Thrash Metal
 ```bash
 magnet:?xt=urn:btih:FC81009EFCB37E6C7727180F4A9FF04C78EFB851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5678D38769868D944CA3F51A0832DBAB7488288A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62E59AB7EE22DEA63ACE8A843F063AF8CC33C4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Tremonti - Dust (2016) [MP3|320 Kbps] <Alternative Metal, Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:47AF7A364799AA0AADB19378922AED6CF4D2B1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ The Letter Black - Pain (2017) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:700738881B534AF48276124EDB9BF99E835486F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ H.E.R.O - H.E.R.O (2016) EP [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:A8EA1B4061A5F311B20F654F728A72090AF30A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ CyHra - Letters To Myself (2017) Japanese Edition [MP3|320 Kbps] <Melodic Modern
 ```bash
 magnet:?xt=urn:btih:818743671BC9B4D567A5898F925FDC16A3BEC79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Compact Disc Club - The Rock Party [4CD Box Set] (1996) [FLAC|Lossless]<Roc
 ```bash
 magnet:?xt=urn:btih:07C9A966D450467D1362956A3E0CFDFA96164262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

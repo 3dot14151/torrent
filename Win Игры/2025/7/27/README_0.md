@@ -19,8 +19,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4184/dlc) Repack Let'
 ```bash
 magnet:?xt=urn:btih:A482FA1381466D38673B13BD7A51F68337EF6C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.398) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:14D8BA0C07F7B9624CB3CB5C7BB5C80B3F320542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HD ремастер первой и второй частей любимой в�
 ```bash
 magnet:?xt=urn:btih:0DFD65257E339E571E3C0D0DD6FF3543880800D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Endzone 2 бросает вас в самую гущу постапокалип�
 ```bash
 magnet:?xt=urn:btih:18190D1655257DE191E4250046B3D594B07F5530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rekindled Trails (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BAF69FC9C662D55DAD670F79F837CB2B97243861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kick'n Hell помещает игрока в вид от первого лица
 ```bash
 magnet:?xt=urn:btih:A590BC3A95B719718B71925FE7461CB7EE09779A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tintin Reporter Cigars of the Pharaoh (2023) [Ru/Multi] (1.0.39277) Repack Let's
 ```bash
 magnet:?xt=urn:btih:C71BC5FFED41DA7A49FC8E3962C1397AD56552FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ StarMetal Crusaders ставит игрока во главе отряда на�
 ```bash
 magnet:?xt=urn:btih:99F71CA449AB2170E14E66B9B3CA20159408666B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Kunitsu-Gami: Path of the Goddess (2024) [Ru/Multi] (Build 19024694/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:2AC7CFB64B4337775D5119D6E481B8A2BA034D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Abiotic Factor - это научный экшен с видом от перво�
 ```bash
 magnet:?xt=urn:btih:EAAB88F76419FF72049001DE29034BFAC164D261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Laser Tag Massacre – это хоррор-игра с сюжетом, вдох�
 ```bash
 magnet:?xt=urn:btih:8D7A13895E2E1F43A3CD1E8DAB04A21121C8E3FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13486/dlc) Repack Other s [Wreckma
 ```bash
 magnet:?xt=urn:btih:9E90CF4F015A43259C10F4D01A013B2C6DE6CF30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Dark Resolve (2025) [Ru/En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C35B9A3D3ED0F379E5BD69AE95FAA51B2461FA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Steep (2016) [Ru/Multi] (1.23.7640008/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F51AAAEE2090816844F6CACDA47F94CF01A04B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

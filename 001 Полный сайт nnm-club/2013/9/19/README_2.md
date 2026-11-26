@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A4EE001AD228C38360533888DA2E15D768181B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8709488636FD6455DE36E6B552B18A87EE8FBBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 8818 (сентябрь 2013) [Ru]
 ```bash
 magnet:?xt=urn:btih:61621E41935FF12E72315D88C8FC683B3B62F3D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ AutoFree Weather - погодный гаджет для рабочего сто�
 ```bash
 magnet:?xt=urn:btih:282AA8798D13B2A2E84DECD2054CA1196661C0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Eliane Elias - 4 альбома (1995-2013) [FLAC|Lossless]<Jazz Piano, Vocal>
 ```bash
 magnet:?xt=urn:btih:AE364EE0A605D079F92A9379428B82140AB540CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1976) [FLAC 2.0 24/192|trak
 ```bash
 magnet:?xt=urn:btih:54A645BD0824C75595A94E58715151E1783A1824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ VA - Decibel (2013) [FLAC|Lossless]<Hardstyle, Hardcore, Hard Techno>
 ```bash
 magnet:?xt=urn:btih:B9BDA924E2F764FE1F90409517BAC31A1F79911A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55EAD9A635FF64568849CEF4201E695317D4FBF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A988D3AE8D166E163D3A61E3EEDC5ADCE342005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ Yogventures! - масштабная песочница с открытым ми�
 ```bash
 magnet:?xt=urn:btih:D258818DD2A8B772A4EC890C3B1885606858BF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ Gregorian - Masters Of Chant Chapter II (2001)Japan [FLAC|Lossless]<Ambientpop>
 ```bash
 magnet:?xt=urn:btih:9AA5F269ABC33D4A7564B33127E9C19C7363B147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +337,7 @@ Nestor Marinero ArtworkРазрешение файлов: 413х638-1238х646Фо
 ```bash
 magnet:?xt=urn:btih:27E5AACEEA7E27693BD09B40ACAF535BF45D6009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ Jean Michel Jarre - Equinoxe (1978) Remaster, 1983, Polydor [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:82163399DE3FD901D9F41769D0CC1E1518636DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ Fez — инди-игра разработанная независимой ст
 ```bash
 magnet:?xt=urn:btih:51586AFD43F1DEF4D166F216FD566F5137171FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:993CD513446D6F05C686B910A421938443D7FD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69A7E1ED614DF6E27FED8E7B5EBBA15D3351B4A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FC89C5F6494099540FA2154F556C705C3048F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D02A808AC5975534C74E8AF5D3FB7E8CAF703BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90E28C33C5026BE302DC57B8FB1A6C5265CC4EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4008FCDCBF1403EFDCE561F31350E1CAD02C966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3C0462F10540E6D6C7D88821F5DB2717FB1831D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ VA - Ээхх, Разгуляй! Осенний (2013) [MP3|256 кб/с]<Шан�
 ```bash
 magnet:?xt=urn:btih:56C0714CBB75A89A367613E7780F851536169883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ iTunes — медиаплеер для организации и воспрои�
 ```bash
 magnet:?xt=urn:btih:EEEE78DC60464279BB8C9D55A0B6101B48DC6132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ Urban Trial Freestyle - игровая новинка, которая предс
 ```bash
 magnet:?xt=urn:btih:1F47B7486382BA224516FA6D1C181CDC818527FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ Lana Del Rey - Paradise (2012) [AAC|WEB-DL|256 кб/с]<Alternative, Pop>
 ```bash
 magnet:?xt=urn:btih:2934EC48FA416E1AEBEBA0E9BE109359C610BD9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5888D9E0D0B30EB498B97803E174114D33B860E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

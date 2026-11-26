@@ -19,8 +19,7 @@ Reflections of Life 2: Equilibrium (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:77C3D170F4FEC3C83424370B2A58B14C6CE1FDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Woolfe - The Red Hood Diaries (2015) [Ru/Multi] (2.1.2) Repack R.G. Catalyst [Vo
 ```bash
 magnet:?xt=urn:btih:D57C253DCE51B75ACDD1C35B2E4F13B40F6E9A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

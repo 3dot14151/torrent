@@ -19,8 +19,7 @@ Devotion — это атмосферная игра ужасов от перво
 ```bash
 magnet:?xt=urn:btih:399E76B344EE2D12115AB03C851471122F7F3120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

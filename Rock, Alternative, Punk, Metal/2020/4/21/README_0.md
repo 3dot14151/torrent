@@ -23,8 +23,7 @@ I Am Abomination - Passion of the Heist II (2020) [MP3|320 Kbps] <Post-Hardcore,
 ```bash
 magnet:?xt=urn:btih:39C8DB15CB64EDF0709BE8D2331CDFA311865344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Glass Hammer - Dreaming City (2020) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:6025C5884D00F6BC6D19617A60798FEE6276C9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ James Taylor - American Standard (2020) Target Exclusive [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:F79EE5D6100AAD4F236A15597434088B4BD2D4A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2478740BEE72614BEC4689643E5752E07000AA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

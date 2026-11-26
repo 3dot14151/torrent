@@ -18,8 +18,7 @@ CRIMSON METAL – это хардкорный, брутальный, динам�
 ```bash
 magnet:?xt=urn:btih:92C5DCC5E67F83F03430A0336DDAA0C20A52BE12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Total Commander VIM (TC VIM)
 ```bash
 magnet:?xt=urn:btih:FFDC0EA296D4F372D1F0D3BF6DBCB6CE4292D146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6C2E8B8C89BC1A92522345AEE763C8D37108484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ CPU X: System & Hardware Info 1.93 (AdFree) [En] - Информация о си�
 ```bash
 magnet:?xt=urn:btih:0DB37BB7002FC83917CE5A40A31D0DDD00969D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Shadow Defender – программа, аналогичная программ�
 ```bash
 magnet:?xt=urn:btih:5A2E8CB829BBB1110312CA2666545078C063B479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Stanza - это пакет из более чем 200 переходов для 
 ```bash
 magnet:?xt=urn:btih:5F96F8198CBEAC461E7155E62166E12D1A47D303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Empathy – приключенческая игра от первого лица
 ```bash
 magnet:?xt=urn:btih:32A452DA8AF6143410C7AB9450D029D00A1482B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Linkin Park - One More Light (2017) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:C77D4F46C0819362DB53E0E7FEAAFB20CAA98A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:9E6FC8482442907EAB92F270CF28396120883BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Grand Theft Auto: San Andreas (2015) [PS3] [EUR] 4.76 [Cobra ODE / E3 ODE PRO IS
 ```bash
 magnet:?xt=urn:btih:FC32EE3F23D1515414755E153C3341B5C1C09893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:418656A2CF380FEE2446530C695A798D25BA9279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Torment: Tides of Numenera - Servant of the Tides Сontent (2017) [Ru/Multi] (1.
 ```bash
 magnet:?xt=urn:btih:9E355C33C334A68F716F28DF45B687EA34BC70B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ WhatsApp Messenger 2.17.192 (Beta) + PC 0.2.4240 [Ru]
 ```bash
 magnet:?xt=urn:btih:DD5B2C51595FF6737C24891D07130AD59D920083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

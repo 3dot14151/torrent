@@ -19,8 +19,7 @@ Chromosome Evil - атмосферная стратегия, вдохновле�
 ```bash
 magnet:?xt=urn:btih:86CC3C157C968E5360A19F1F12466E612B6650DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PixARK - это огромный мир дикой природы, злобны�
 ```bash
 magnet:?xt=urn:btih:1E24752BF193D9EACFB257AAAF761A03CDCF6759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clone Drone in the Danger Zone – увлекательная аркада, в �
 ```bash
 magnet:?xt=urn:btih:F0ABBCBF39EB079A80BC87F4E9B12202407523B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

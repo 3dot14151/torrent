@@ -19,8 +19,7 @@ Zen Life: игры с плитками v3.258 Mod by Viktorovich31 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1CF4D0AC2E560B45827A2AB7545DF8347466F495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

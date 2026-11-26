@@ -19,8 +19,7 @@ UltraSearch ищет файлы и папки на локальных диска
 ```bash
 magnet:?xt=urn:btih:32A8DEC69A04272DE978B9D6968D70754AA6E3E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

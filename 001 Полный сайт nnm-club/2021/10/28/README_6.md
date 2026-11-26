@@ -19,8 +19,7 @@ Posterino – программа, ориентированная на созда
 ```bash
 magnet:?xt=urn:btih:0DA1606694CA3DF012DBE86CA8805C9DA956CFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Fredrick John Pugsley - Live with Your Fear (2021) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:5C9ADBE5DB524F85BCDD9EB64F616FC3913A67FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ start - это уникальный лаунчер для macOS, позволя�
 ```bash
 magnet:?xt=urn:btih:BBE03DCC69BDD34236B5EBD37DA9E4F2EDB17A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ MenuBar Stats - системный монитор, очистка памяти �
 ```bash
 magnet:?xt=urn:btih:6173D962A24625F9A4BFD622D3AE2A8381CDEE1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Mystic Chill, vol. 2 (2020) [AAC|~323 Kbps] <Psychill, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:FF66F5A0A03313DB9A4259CB5743A71347CE714F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Fun Factory - ABC of Music (2006) [AAC|~332 Kbps] <Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:F33A7AA3D57C3187886C4D5DDDF1C1F055C74824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 2 (2021) [AAC|~334 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:739AF8FF599E7FD94F58A8A0D05991868110E3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Fun Factory - Back to the Factory (2016) [AAC|~333 Kbps] <Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:F9C55D984FD24C8280F5090ADABB9BE330B2A8FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 3 (2021) [AAC|~321 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:28C19CB7F406231CB2DBECC5EA453B477DB32E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 1 (2020) [AAC|~326 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:57494F3FF0D9C4E21635F9D3ED9A66FB24AD85D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 4 (2021) [AAC|~330 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:F53E07499FDD458EDAD4110B2BE886F79F444F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ VA - Mystic Chill, vol. 1 (2014) [AAC|~331 Kbps] <Psychill, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:6C6A08C321F6EB9BC59B789DC872E31E3BF63CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ QLPro Studio инструмент управления базами данных
 ```bash
 magnet:?xt=urn:btih:454483DE0B682BD091CF8F2A29F63FC6EF328C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Soulver предназначен для «быстрой математики» 
 ```bash
 magnet:?xt=urn:btih:B96745D5887784F469DF69D16E478A2399AF14C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Burnt Belief - Emergent (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:4EDE25F00B0B1BCA90598D80B38F5A18B25BE31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

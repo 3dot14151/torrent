@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:49DE4945DB211847099EF99ABC3BC1BA88BDEFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C280E7356C12B08006BAC2DBEF752F87C7B3C1B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ J. Stewart, L. Redlin, S. Watson | Algebra and Trigonometry, 4th edition (2016) 
 ```bash
 magnet:?xt=urn:btih:113BF2278034796D3C7FA09CB13018BFC39C4923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A0DD08B7968FBF72810A0F68A1C9411DCDDF954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ A.H. Robbins, W.C. Miller | Circuit Analysis: Theory and Practice (2012) [PDF] [
 ```bash
 magnet:?xt=urn:btih:43069B4A4E55EB7A6BCF93382107E63A43EC795B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ J. Stewart | Calculus, 8th edition (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:33E2A372D9BDFBBDCE90287B31F40DA2E4F65D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

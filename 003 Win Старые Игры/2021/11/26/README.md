@@ -19,8 +19,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
 ```bash
 magnet:?xt=urn:btih:A21D157716CB3FC716761DB427B81587F422BE60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

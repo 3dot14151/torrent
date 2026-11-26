@@ -22,8 +22,7 @@ Mindwarp - A Cold Black Day (2016) [MP3|320 кб/с] <MDM>
 ```bash
 magnet:?xt=urn:btih:BF596A50F5F8A534A4EF1AA3A0C48A2C48891642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Joe Cocker - Civilized Man (1984) [FLAC|Lossless|image + .cue] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:1992253158365C41564DD10923C669F84682A315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Joe Cocker - Unchain My Heart (1987) [APE|Lossless|image + .cue] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:2882BBE137EEDE7806C2BBE707C562AAA07936C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Joe Cocker - Cocker (1986) [FLAC|Lossless|image + .cue] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:01E94BA782CD23F5C1A288760E6CC7D98B81C5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Joe Cocker - One Night Of Sin (1989) [FLAC|Lossless|image + .cue] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:D32B767778A83A0AC68A83AB3574FAA5F815F8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jane Air - Unreleased'n'Live (2016) [MP3|320 кб/с] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:D626344B57369EBB061DBBBC5F76F119F0208D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Squirrels - The Not-So-Bright Side Of The Moon (2000) [MP3|320 кб/с] <Pro
 ```bash
 magnet:?xt=urn:btih:D302A022CA82FF9B96C28386D209DC74D7362A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Joe Cocker - Night Calls (1991) [FLAC|Lossless|image + .cue] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:229F820371C06418AD44EAB04971B6EF18AB73FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Status Quo - Aquostic Stripped Bare (2014) [FLAC|Lossless|tracks] <Classic Rock,
 ```bash
 magnet:?xt=urn:btih:B841F5827B160A967545CE5F04B3E64E10BDE740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40DE1D405D4CEC698A658DB8788187877A28FF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Phantom 5 - Phantom 5 (2016) [MP3|320 кб/с] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6666D7366388EE36213542B6842065A0207BB3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

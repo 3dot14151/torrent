@@ -19,8 +19,7 @@ Hello Neighbor - это интерактивный ужастик, в котор
 ```bash
 magnet:?xt=urn:btih:9F4CC5079004B8EB86BF9D56721F04D929E0F137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.3/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:A595EB552E48A635B1DFC093FE6035C997E13DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MinecraftEdu (2011) [Ru/Multi] (1.7.10 Build 22) License [Minecraft Classroom Ed
 ```bash
 magnet:?xt=urn:btih:688B4E969746683FF42CEE3FA20EE00124D0ED3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Alpha Wolf (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F4260AA39FFE47646EB651248E82DF578424B8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZe
 ```bash
 magnet:?xt=urn:btih:C6DF9E24E7408AE467C0F466C917BE276902DECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Into the Dead: Our Darkest Days представляет собой сайд-с�
 ```bash
 magnet:?xt=urn:btih:2FD86AB8DA3E0DFCBACA61AB74304A9DB09B3938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (729654) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DAD8102BD0274A74EA758A67BD6DB384CC1D36CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

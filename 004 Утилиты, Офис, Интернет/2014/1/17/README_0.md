@@ -19,8 +19,7 @@ QIP 2012 является прямым преемником QIP Infium и QIP 20
 ```bash
 magnet:?xt=urn:btih:7CFAEA5624B88D4C962561364E5C4A17049158C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

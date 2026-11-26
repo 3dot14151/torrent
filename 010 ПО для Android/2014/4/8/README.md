@@ -19,8 +19,7 @@ Smart Distance Pro это расширенная версия измерител
 ```bash
 magnet:?xt=urn:btih:F2B2C9EDE8D93B97F02118E1340033BF69F2E0A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ In-Defilade - Rulers Of Famine (2015) [MP3|320 кб/с]<Blackened Death Metal>
 ```bash
 magnet:?xt=urn:btih:4B297AA9A7923D4F0DBD77401505B7E71703666A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Bitterness - Resurrexodus (2015) [MP3|320 кб/с]<Melodic Death, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7A53C06775EBB659D47FA4AB582B1BAECBC61ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Milt Jackson - Statements & Jazz 'n' Samba (2011) [FLAC|Lossless]<Jazz, Hard Bop
 ```bash
 magnet:?xt=urn:btih:169A3976E5E5ECBEFBDC537B85B7F1C5D7AE3D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57B3785F2869570DB5CF753754F85A11D45BF232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Robin George - Dangerous Music II (1986) [FLAC|Lossless]<Soft Rock>
 ```bash
 magnet:?xt=urn:btih:8EC33891B61486922AB5DD5FA3875276E18716D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56243F2C954C18E39F0CE8A267877ECDC10CF2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BCD756DB76775D9E8FFBD012814DEE5FB71521C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ VA - Es Codolar Ibiza 2015: 80 Finest Lounge and Chillout Tracks (2015) [MP3|320
 ```bash
 magnet:?xt=urn:btih:2543B677A35EE6F380A9FA6B87CC8EAB2381DD38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Software - Software-Visions (1992) [FLAC|Lossless]<Traditional Electronic, Berli
 ```bash
 magnet:?xt=urn:btih:5C53B264085DFD23D254F5CFFA86408A6412044F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ G. James Daichendt | Шепард Фейри корп. Художник, про�
 ```bash
 magnet:?xt=urn:btih:A252D05F235D9B0838E193A70DF8B9F19FFCF2D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEFADD65AB3B8B1A4543F58D66ECFD22CBA3C687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D55EF9EFAE30CC9154A3313DB47F72C82BAF491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CEB739BB18AE2019216A81A5D78A0BF748108A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ VA - Moka Beach (Chill Out & Breaks) (2015) [MP3|320 кб/с]<Lounge, Chill Out,
 ```bash
 magnet:?xt=urn:btih:F8C0C5D52A40324EDBD70327B5F6CE36D55E0A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Fourth Dimension - Harmonia (2015) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, A
 ```bash
 magnet:?xt=urn:btih:72D8878027DA65117B3E306487ED9CBDCDCF2D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Ted Nugent - Shutup & Jam! (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BE641550CD4908CDC513FF33849E49152DA4D884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D66DAC7F9F1FC8106A51DB9759EE1AC115E0F7FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E5DBA9BA93CE49B6034F3C93041FF78C965E8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ EVO - Невесомость (2015) [MP3|320 кб/с]<Trancecore, Nintendocore, 
 ```bash
 magnet:?xt=urn:btih:4947BEE6A99CC0B3474D0A4A88728C2C0FEF7ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C35ECA778B3E3F1203F5D37DA0C483A2447B0BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76A98E95AC9CAEA198303B45DA5673B2EB5E1021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ VA - Hipster Lounge (Deluxe Lounge and Del Mar Music Only) (2015) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:021DD2B33BE067D6433C49573720F1F30F212473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ InstaStack это новый инструмент, чтобы помочь ва�
 ```bash
 magnet:?xt=urn:btih:AC1F707C001C90C4EEAF54151D6A8EE050F6CB38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ Judas Priest - Angel Of Retribution (2005) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:887EAA43BC1DBF62523D6BAA6CAD7512A95F39D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

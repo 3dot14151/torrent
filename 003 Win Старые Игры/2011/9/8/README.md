@@ -19,8 +19,7 @@ Aliens vs Predator 2 [En] (RePack) 2001 | Pilotus
 ```bash
 magnet:?xt=urn:btih:CC5AEEB2B6C407FEA3E51B1667E1D2F378350D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

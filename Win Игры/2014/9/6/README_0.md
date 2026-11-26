@@ -19,8 +19,7 @@ Labyrinths of the World: Shattered Soul (2014) [En] Unofficial [Collectors Editi
 ```bash
 magnet:?xt=urn:btih:A856D99688D03E59439625B9A0C8C68C8BCFC727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ South Park: The Stick of Truth / South Park: Палка Истины (2014) [Ru/
 ```bash
 magnet:?xt=urn:btih:70C214E72C92E80720846357E4F44479EA2516B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

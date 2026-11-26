@@ -20,8 +20,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 25.12.18 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:162984960BA791E3C428D15F5CB9DD482F4EB078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA458CC8C8EA2B89B3B79F8451E7623957F1419C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

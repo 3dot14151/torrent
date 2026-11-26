@@ -27,8 +27,7 @@ VA - SZ Fresh Volume 3 (2013) [MP3|320 кб/с]<Dubstep, Glitch Hop, Electro Hou
 ```bash
 magnet:?xt=urn:btih:7830D0794006821FA012FA6DB0CC982C6A322C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BEE3D5D7D806B4F97F59F6DEBFB506E4113ABC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E99CE3F10BF031C994FFBBB801CA74ED328BDBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4AA6A563E832F635D86FDE4AEDF43A6ABE09BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Gerry Rafferty & Stealers Wheel - Collected (2011) [WavPack|Lossless]<Rock, Pop 
 ```bash
 magnet:?xt=urn:btih:83D9B91ECDDA6D7F966E9041BA36F44947DBFA55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Bryan Ferry & Roxy Music - Street Life :20 Great Hits (1986) [FLAC|Lossless]<Gla
 ```bash
 magnet:?xt=urn:btih:A17F20AF350966A96213E7C5000F941DC267CBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9AF8F7FDF9CF04BDE6262DB905ED8A64B35F29B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CB201FF9ACEB86AD33E13CED03F1B95916B020E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ VA - Осенний Позитив от Kulemina (2013) [MP3|256 кб/с]<Pop, D
 ```bash
 magnet:?xt=urn:btih:B668B9A82E5FE496EDA776EA9E8310C5093C549A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ VA - Осенний марафон № 66 / Видеоклипы (Зарубеж
 ```bash
 magnet:?xt=urn:btih:6B5D5F78B3E052FA38A62E53F420D2CAEDCC7282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ mininome - Hear Hight |Hear Night  (2012) EP [ALAC|Lossless|WEB-DL]<Deep & Melod
 ```bash
 magnet:?xt=urn:btih:0A83ABF372A3FBB682C0807EC4C51B011BD10636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ Maxim является абсолютно уникальным журналом 
 ```bash
 magnet:?xt=urn:btih:F8B056E1F79F63D8D40F11FF891AF3DA4A8F6358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D359DF02C548D04B161DB141B0F76C5D96EBB5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFB6BB6E4E453A6606303E4CF1B28893FDF3F27A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ VA - Drum and Bass Pro V.25 from AGR (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:61BEE12A5E40C88499C581552A795370F942C35F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ Guru Ganesha Singh - Kundalini Surjhee (2011) [MP3|256 кб/с]<Folk, World, Man
 ```bash
 magnet:?xt=urn:btih:00592DCBDD0A758D2B385B0CDA84E60B194CD460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:8F2DC9354BBC43CE4CE8FCD655EB994A1FF18562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69F6C5998508CE6B5B10C202C010AE4316C9877A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ Jay-Jay Johanson - Cockroach (2013) [MP3|320 кб/с]<Trip-Hop>
 ```bash
 magnet:?xt=urn:btih:101677940E321EC574EF328DAB0905F16E4E49C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ Tales of Lagoona 2: Peril at Poseidon Park (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:9311DDAABFEE5EDB6AB93885A9868421FD910849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ mininome - Nine Realities (2012) LP [ALAC|Lossless|WEB-DL]<Deep & Melodic Techno
 ```bash
 magnet:?xt=urn:btih:D57BF1F8A12BCE79051D9A7FDDE698D65FDD0841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +704,7 @@ VA - Centeotl (2013) [FLAC|Lossless|WEB-DL]<Downtempo, Dub, Dubstep, Glitch, Amb
 ```bash
 magnet:?xt=urn:btih:EA4EF08E4F0A461D87B585368A6CDCC8EE93A5B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FF44760E05195CFA68898EEF187D1D7C67055BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6021581AFA228F3ED7987DD78086A4279C2C4C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Calling You(   Читать дальше...   )Жанр: Soft Rock, Pop Rock�
 ```bash
 magnet:?xt=urn:btih:A7B8781127FD652CFA383F36639CBF0CA6FB1AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Unleash the Archers — канадская метал-группа, основа
 ```bash
 magnet:?xt=urn:btih:30A5A8B3549B600F63F023156505C7EFB228EF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

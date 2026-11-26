@@ -21,8 +21,7 @@ Atrophy - американская трэш-метал группа, образ�
 ```bash
 magnet:?xt=urn:btih:06D3BF7C0E4AE31CD33B18046936EB14BF7D67B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Toxic Holocaust — американская трэш-метал-группа, �
 ```bash
 magnet:?xt=urn:btih:78627459D5244934FE0EA2284DBF475A522B020C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

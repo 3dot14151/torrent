@@ -19,8 +19,7 @@ Red Faction (2001) [En/Ge] (1.21) License GOG
 ```bash
 magnet:?xt=urn:btih:7A9FA8137B4295CB6D13C654C83BC3B1B2B1B68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

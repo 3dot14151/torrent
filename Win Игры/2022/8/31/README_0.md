@@ -19,8 +19,7 @@ The Bridge Curse Road to Salvation (2022) [Multi] (1.5.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FC860DAAB58D6346A7F0384151BE607341E691FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

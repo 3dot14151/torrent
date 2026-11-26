@@ -21,8 +21,7 @@ Astra Linux Special Edition 1.8.2.UU1 [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:FD9C8484219B756B07BDF287A97704D6CC3DC01F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

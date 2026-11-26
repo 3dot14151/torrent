@@ -20,8 +20,7 @@ Simon the Sorcerer 2 [Ru] (RePack) 1995 | Kirill Гамес
 ```bash
 magnet:?xt=urn:btih:55A4CFC013F1456164CEBA3D2FF53B2D1BD3B99C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Woodruff and the Schnibble of Azimuth [Ru] (RePack) 1994 | Kirill Games
 ```bash
 magnet:?xt=urn:btih:520A39C8F53445CF01BE99CFFFDC2C63410B1053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Battle Isle 2 - походовая стратегия (она же варгей�
 ```bash
 magnet:?xt=urn:btih:811B9F0F9B586F31ACDC3A9FC4C44DC169F668A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Pharaoh - градостроительная стратегия в антура�
 ```bash
 magnet:?xt=urn:btih:DF01321CBD8960DE12EB08AA8D94F96073880CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

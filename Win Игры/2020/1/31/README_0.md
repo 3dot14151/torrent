@@ -19,8 +19,7 @@ Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2
 ```bash
 magnet:?xt=urn:btih:FFD4F96BA1DBF8510922D01168E8074249B4B2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Terra Incognita (2020) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:482B1A84BF75BAE33169F7E0162B8E13AF387523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:045B8700D6A0CBECFAEAF551AE9FFEC37C9AE416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Effie - это трехмерная приключенческая игра, к�
 ```bash
 magnet:?xt=urn:btih:2331A19C79248D8F27460A175E957A2EEB33DED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Catherine Classic (2019) [Ru] (1.04) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F8997E87D5CA7F3FF9F46A4ABF2749C12CCDBA8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Astra Exodus (2020) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:2334CD4572337A778AE34BF2791A92E422797B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

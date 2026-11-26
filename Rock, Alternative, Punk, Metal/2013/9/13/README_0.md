@@ -27,8 +27,7 @@ Echoes of Eon - Immensity (2013) [MP3|128 кб/с]<Progressive/Post Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:752B9EB0E3712A04A6FEB55589AD6C06128FB96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Sonata Arctica - Alone in Heaven (2013) Single [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:BCB75202E6180A6F4E2A0A5DD7ED1C409198D350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Crossfaith - Apocalyze (2013) [FLAC|Lossless]<Metalcore | Electronic>
 ```bash
 magnet:?xt=urn:btih:380D8F09012F89BC6AF43331ABCC783723100E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Ashes of Ares - Ashes of Ares (2013) [FLAC|Lossless]<Power/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:53E4DC43EA1B3F94531978D9321DD2CEC8B02BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Niva - Magnitude (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CA39B14A587BC95C1AE3A697EC5DD1CC40C50DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Tonight Alive - 2 Альбома+3 EP (2010-2013) [FLAC|Lossless]<Alternative Ro
 ```bash
 magnet:?xt=urn:btih:46CAAB75EE8B18F8CFC1F47A09DCD6011D227BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Rod Stewart - The Best Of Rod Stewart (1989) [FLAC|Lossless]<Pop / Rock>
 ```bash
 magnet:?xt=urn:btih:F5FBA8DE9A042FDE4B397D57CE35C3B071609F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ Eklipse - A Night in Strings (2012) [FLAC|Lossless]<Instrumental Symphonic Rock>
 ```bash
 magnet:?xt=urn:btih:36E3F4A614A182A429E85512ADAAC822AF08C9A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Black Sabbath - The Complete 70's Replica CD Collection (1970-1978) 8CD Box Set/
 ```bash
 magnet:?xt=urn:btih:9FDC4A107BB5A35C0FD342FD242221455B89EA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

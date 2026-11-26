@@ -24,8 +24,7 @@ Cold War Everyday - B​.​L​.​A​.​M​.​E (2014) EP [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:9B45314D1E95A7DECAA68A1CC623FA8988C3E0BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Trigger The Bloodshed - The Great Depression (2009) [FLAC|Lossless]<Technical De
 ```bash
 magnet:?xt=urn:btih:9A4D380D6FECEE12278CADB23E4A8218D0928656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Burning Black - Remission Of Sin (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7B22A16F12EF49CDA8F2E1D74E1BCF3174A41A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Mare Cognitum - Phobos Monolith (2014) [MP3|320 кб/с]<Atmospheric Black Metal
 ```bash
 magnet:?xt=urn:btih:DA18DEF3156F5578D4DA6784383C5FAE2927F484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Machine Head - Now We Die (2014) Single [MP3|320 кб/с]<Groove Metal>
 ```bash
 magnet:?xt=urn:btih:1E58D25A6ACCA35586F6FD10E040EAFFA09F82A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ April Rain - One Is Glad To Be Of Service (2014) [MP3|320 кб/с]<Post Rock, In
 ```bash
 magnet:?xt=urn:btih:C965CB954C12F581A81BB8C5AAACDA8634AF60A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ CD1.
 ```bash
 magnet:?xt=urn:btih:AB3E53860A6D0FCEDDF87F5E4F1B64E49849C886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Exodus - Blood in Blood Out (2014) Deluxe Edition [MP3|320 кб/с]<Thrash Metal
 ```bash
 magnet:?xt=urn:btih:3433F76D8854ED5F40E742D89E7A6FF7F1E78C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ Whitechapel - This is Exile (2008) [FLAC|Lossless]<Deathcore>
 ```bash
 magnet:?xt=urn:btih:A76E412FA007161F87B338816FD500BB108A8F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Hypnogaja - Below Sunset (2005) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:B1B38D6C71437C11B695EFA9D75D075F0FC1D58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +343,7 @@ Marmozets - The Weird And Wonderful Marmozets (2014) [FLAC|Lossless|WEB-DL]<Alt.
 ```bash
 magnet:?xt=urn:btih:C47CCF70AFB3BDCC7724A22F87A9431781C8B6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ U2 - Songs of Innocence (2014) Deluxe Edition 2CD [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:0469DC56BA8D6DE5F075425E5DACA1C8516C5F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

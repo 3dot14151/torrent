@@ -22,8 +22,7 @@ Lover Under Cover - 2 альбома Collection (2012-2014) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:766C6F5E3E0F6AF1768F8E0CE9BAD8DC3AA248D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mikael Erlandsson - 5 альбомов Collection (1995-2002) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:611AEA84E81A9D7F20DF792C4833F66F02880C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6DB98DEE746D2D96B5B992F279EA003275570A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

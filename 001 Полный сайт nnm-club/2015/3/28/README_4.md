@@ -22,8 +22,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:018F9E4913974F8433F95D0A1BC05C48FA903DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ cFosSpeed - это сетевой драйвер, который привязы�
 ```bash
 magnet:?xt=urn:btih:086AC4152AD39E3F927D3E449DD0D6E197F9DE4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70BE10B4EC3B3801F909148DB3561845B8EF3068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:E5B8B48C529F455EC60B794CE427701A832A788E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Broken Sword 5: The Serpent's Curse 1-2 v.1.10 (2014) [Multi/Ru] [OS X Native ga
 ```bash
 magnet:?xt=urn:btih:A28196A21DBF917564462B9D9141E9D52FEA0FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ iSpring Suite 7 является дополнением к PowerPoint, поэт�
 ```bash
 magnet:?xt=urn:btih:80C87841505D164A309825E62F71F268B9605A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ MIUI Expres– программа представляет из себя луч�
 ```bash
 magnet:?xt=urn:btih:754D50B2D10CFFD5BD05E262C30DEE3547DE305D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Mentor Graphics Expedition Enterprise- это набор средств, ори�
 ```bash
 magnet:?xt=urn:btih:F6ED4CF561A7B40E467C70CC0C43121577D2A8FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FCCA65E1A3753AA3C7852BD1075AA803E84DCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ uTorrent Pro 3.4.2 Build 39744 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:79BB60570B6BF2639B9F3F745FE5F0965E2BB539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72AD070CDEBD27E23524D5A013266D84AC9F99B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74328DFA87684B45CB88369F4D3CE4BF4A965AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA663578C9FDF89C721209F0E2F3890767B93D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ uTorrent Pro 3.4.2 Build 39744 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E980FA29A6B0FB1D36DB5F75353DB176BBD0FF1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ YoWindow - погодная программа номер 1 для WindowsЯзы
 ```bash
 magnet:?xt=urn:btih:9DB79E28F6A285D069675BD016AC193DCF77291A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Nightwish - Endless Forms Most Beautiful (2015) Limited Edition 2CD [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:A34E10C6D9CBE93EDF97EACF30F09C15A202FC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Easy Uninstaller Pro 2.3.6 [Rus/Multi]
 ```bash
 magnet:?xt=urn:btih:816282C08B8EEE3ADF4AC44F093EE91723140410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C74FA3DD9B657A99CF8177EE60E5BC5A3CBB44B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9937F8055A3BC2809C306036CBD3DAF75E4E6244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ Notepad+ 2.4 - Блокнот [Rus]
 ```bash
 magnet:?xt=urn:btih:6BC8CDC4331EB88969656857007848AE30BF677C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ Battery Saver Pro - Продление Жизни Батареи на Android. �
 ```bash
 magnet:?xt=urn:btih:45B13799F228865021C52DA674EEC91EE14E590C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ World Trigger / Импульс мира [2014, TV, 20 из 50] WEBRip 720p Raw+R
 ```bash
 magnet:?xt=urn:btih:A27CA48E96BC6304DCF4BC09DF15EDDB057C4FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ Viscosity может подключаться к любому серверу VPN
 ```bash
 magnet:?xt=urn:btih:8C3A0C41FBD7CF44B9084412917E88F4185C2275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC83BB4444D477C4845F9C4E1E09AE597AF5A3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9500FAF7E2733538B63A9E0109E3A6335085EE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3454CBC247813913637E2E996F98B2B62F59D24E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

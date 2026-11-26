@@ -19,8 +19,7 @@ Unit Converter Plus v1.4.5.19.2 [Ru/Multi] - многофункциональн
 ```bash
 magnet:?xt=urn:btih:2C781A9EC12EE12150DD153CCA0E0842790DFF7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

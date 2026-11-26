@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B90B2B025204590D3BDD6417065F1C9EA34C8D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BB3F18B80746DAE12AE9BE56241422A3E8948F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Larceny - Into Darkness (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2372AFA5F7F3AE1249DB7DCBDEF754916DD62F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Osie Johnson - The Happy Jazz Of Osie Johnson (2014) [FLAC|Lossless]<Jazz, Mains
 ```bash
 magnet:?xt=urn:btih:AAB11E225E5CAB651B04B537C57E2B1905D1FA93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Andrew Hill - Hommage (2015) [FLAC|Lossless]<Jazz, Post-Bop, Modern Creative>
 ```bash
 magnet:?xt=urn:btih:CF34FE99F4AA3B34F4D2FD5764927342DE6E348A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Prong - Songs From The Black Hole (2015) [FLAC|Lossless]<Thrash / Groove Metal>
 ```bash
 magnet:?xt=urn:btih:F2FDB762FF607DAB25251E53010E7C3CF9B3C9C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Sadao Watanabe - Jazz Samba (2007) [FLAC|Lossless]<Jazz, Post-Bop, Soul Jazz>
 ```bash
 magnet:?xt=urn:btih:C681C4843E40D7502ACEA9F01E9DA0D10BC01829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Joe Henderson - In 'N Out (2000) [FLAC|Lossless]<Jazz, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:2B900637C78A59766980C69AE98F496FC55F9821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F221900FE0659C93BDE23329AF01766B837BF393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Nicole Henry - Teach Me Tonight (2005) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:5842F0FE4705656285CF9863D5D82B02CB91983A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ The Detroit Escalator Company - Excerpts (2000) [FLAC|Lossless]<IDM, Techno, Amb
 ```bash
 magnet:?xt=urn:btih:FD94C295402E387091162AB7703264859DDD0BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Morton - Come Read the Words Forbidden (2011) Japan [FLAC|Lossless]<Heavy Metal 
 ```bash
 magnet:?xt=urn:btih:7666E47485C0F2EA3239EA2150042241DD910C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ VA - Nassau Beach Dreams - Chillout Relax Music (2015) [MP3|320 кб/с]<Downtem
 ```bash
 magnet:?xt=urn:btih:AC84F69381912F42E6FDB26F711655B0FA695DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ VA - Resonate 7 (Mixed By Technikal & NG Rezonance) (2015) [MP3|320 кб/с]<Tra
 ```bash
 magnet:?xt=urn:btih:6AA9A490CB6A78C7D50BB652889CD66AC00BF6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ Tristana - Virtual Crime (2015) [FLAC|Lossless]<Power metal>
 ```bash
 magnet:?xt=urn:btih:326DE85DF2EA03C7F586F27E4E9800B1A96A4D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +446,7 @@ Polaroid Kiss - Youth (2015) [MP3|320 кб/с]<Alternative, Electronic Rock, Syn
 ```bash
 magnet:?xt=urn:btih:F4C3C1A073571102A064FD8CEC3329914069552B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F7461E37C1C857D042A969235C8EB8763A6C4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +500,7 @@ Micky Wolf - Guitarjunkie (2015) [MP3|320 кб/с]<Guitar Instrumental, Surf>
 ```bash
 magnet:?xt=urn:btih:AE7AF3266F7B7E4FAD75B0FA2C149039D82F3AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:576B8AACD09963335A736A6D45587B115CE07E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6229BE80A42F78791FCB73222127BBFECF42601F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ Mizantropia - Забвение (Oblivion) (2015) [MP3|320 кб/с]<Gothic Metal,
 ```bash
 magnet:?xt=urn:btih:65DBF0C8D823C4DCCDA03D22DC6EEF6EEA39FD58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ VA - Essential Rockabilly. The Columbia Story (2012) 2CD [MP3|320 кб/с]<Rocka
 ```bash
 magnet:?xt=urn:btih:2A635B1C5E9534A32277B08B02EC5940E5A7EFD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ Van Wolfen - Wolfsmusik (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:529BB91C91D62F1A5924899A61D45B134909697E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ The Manhattan Transfer - The Offbeat Of Avenues (1991) [FLAC|Lossless]<Smooth Ja
 ```bash
 magnet:?xt=urn:btih:011FFF40DE7C1D445CD016EA434DC400036AC7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +697,7 @@ Little Bee - Moonlit Night (2009) [MP3|320 кб/с]<60’s Guitar Instrumental, 
 ```bash
 magnet:?xt=urn:btih:CAFD3A3B7D7345F5FDD019B794C6F23D3ED48FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +726,7 @@ Styx - Edge Of The Century (1990) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:BD4CD2FE87CCA9A5E7A3FB02C9F36AAD1F306DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

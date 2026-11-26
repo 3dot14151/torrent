@@ -27,8 +27,7 @@ VA - Best Beats Top 100 Vol.2 (20.12.2011) [MP3|320 kbps]<Club, House, Vocal>
 ```bash
 magnet:?xt=urn:btih:2A1879715086CB3BBFA55D97484DE03956195A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Pedro del Mar - Mellomania 21 (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:8E7D6CDA2BA8D1F3788070689B8B7D582DF08AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Новогодний Калейдоскоп Русского Радио (20
 ```bash
 magnet:?xt=urn:btih:74F223A0B9B9C244D1138E8A3D861E1336D3A13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2772412A28876BE0251ED47321E602108387ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Billy Cox - Old School Blue Blues (2011) [APE|Lossless]<Blues-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B95D5C7802CEDAA264D5E2DFA99C7D2B96161162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ VA - TMP Vanilla Dreams 2011 2-2 (22.11.2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:634056AE88216A18A8AF1613321D5185238ED359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ VA - Музыкальный Сюрприз от Снегурочки (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:8C7568568622EEC7D9101F7ED99B48FE5B7AFFF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ VA - Хиты Для Любимого Мужчины (2011) [MP3|256 kbps]<Pop, 
 ```bash
 magnet:?xt=urn:btih:084692E11674DEF7629E92D5A4FA2E41363D4EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A4D57C3D6C33F89B5671C90141C4F21E8C673AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ VA - License To Lounge Vol 5 (2011) [MP3|320 kbps]<Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:6D7DA05D7D15625682B675AAE780A76311CD5D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0FF640C8154FBFB43E1682F8972AF2D36E93F73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03D8EA66CBA6CD3D3923F15555802A70A56B7412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E3E2256A929C273AB9C5AD3A017CE12E1F2E420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ VA - Private Room: The Winter Lounge Session 2011/2012 (2011) [MP3|320 kbps]<Lou
 ```bash
 magnet:?xt=urn:btih:34A416DF0D530E4456EFB0F25D5471659B4EB326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6066010133D99AD39DB638BCC905CF39EBE95CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ Ubiquitous Player - универсальный файловый менеджер
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBD449D066A15B2C67BFD1554827EB07F979F666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ Sumatra PDF - это программа для просмотра файлов �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03A9C2CC61A2756157DBBB88E521590844597E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +648,7 @@ VA - Популярный Top 200 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:DA0A9F68AA95024686CF0AAA9370AEDDB7EA3ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ N/AWinter 2011Жанр: Electro House / Electro ProgressiveПродолжите�
 ```bash
 magnet:?xt=urn:btih:6BB9D024F93429973374376816D09A49E7CE87DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ Audio Dealers - Pump Up Drum N Bass 2011 (2011, December) [MP3|320 kbps]<Breakbe
 ```bash
 magnet:?xt=urn:btih:02AFEB0C4A94F7DC6A4127AD76667B95880B2A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ VA - Voodoo Blues: The Devil Within (2CD) (2010) [MP3|320 kbps]<Blues>
 ```bash
 magnet:?xt=urn:btih:A6C53B2308AA615D671B506AE7D4B98F394318F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

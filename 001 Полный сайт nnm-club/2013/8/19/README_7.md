@@ -21,8 +21,7 @@ The Elder Scrolls IV: Oblivion (2007) [En] (1.2.0416 / 2DLC) License WaLMaRT [Ga
 ```bash
 magnet:?xt=urn:btih:9C57CDEC64C21199B220D17DB14EB9010487BC88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Windows XP SP 3 2010 WinStyle eXPanded Seven Edition Final by Omega Elf [Ru]
 ```bash
 magnet:?xt=urn:btih:B6A0CDA4CFEF030BC11B556A5CEF732E131E41AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:4E00C33360787885C8DD0E110C716CB2A2F64224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

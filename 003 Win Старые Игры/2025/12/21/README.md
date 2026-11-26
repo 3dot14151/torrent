@@ -19,8 +19,7 @@ Realmz - это фэнтезийная приключенческая ролев
 ```bash
 magnet:?xt=urn:btih:32BF2F93A11D50E7356E4CE72A7D3A84538A3F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

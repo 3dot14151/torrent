@@ -22,8 +22,7 @@ Terry Brooks & Strange - No Exit (1984) Reissue, 2011, Austria Record Finder [MP
 ```bash
 magnet:?xt=urn:btih:EDD5AC79B7480274504EEB5102D29CD35D3FD443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Field Music - Open Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:476710516EAACEB44ECD96490954E20209149FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Shakin' Stevens And The Sunsets - Rockin' And Shakin' (1972) Fontana, 6426 040, 
 ```bash
 magnet:?xt=urn:btih:9D5D60CE960C6C27F0522F2F7CE00A09B1B41A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

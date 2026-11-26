@@ -19,8 +19,7 @@ Vaya Con Dios - Night Owls (1990) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, Pop-J
 ```bash
 magnet:?xt=urn:btih:DA3F0249265CBB61A1FF2B0A8C30AB9302B5DC7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Ricchi E Poveri - 2 Альбома (1983,1985) [FLAC 2.0 24/192|image (Vinyl-Rip
 ```bash
 magnet:?xt=urn:btih:40016EF33FC134702DFCA2EF96466166F49B3EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

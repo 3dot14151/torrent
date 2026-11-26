@@ -19,8 +19,7 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:879686469AE4EE6083769EEDB90FF4A28E312617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:BED1B32723A8564E6D7A0746F393604D47F72F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Erannorth Renaissance - это RPG, в которой каждое решени�
 ```bash
 magnet:?xt=urn:btih:5BA9B73ADB757F5B306037EF3CD6306129CEF3B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lessaria - это наследник Majesty. Мы возвращаем на с�
 ```bash
 magnet:?xt=urn:btih:9C437E5743F385ECD7D9717E5C89DE113F75ED4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Thief's Shelter - это 3D Point and Click Psychological Adventure, где ми
 ```bash
 magnet:?xt=urn:btih:BEBF70C10E2B2110D8CB3F98E75B35D239CC0A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Let'sРlay [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:4F16DF6C46614E8A5C86B4D9A0ADA93E93313419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

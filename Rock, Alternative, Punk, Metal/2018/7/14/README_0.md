@@ -22,8 +22,7 @@ Ossian - Kuldetes (2008) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F68B03532AF5A39126AD1946584C41BBEE66FEAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hothouse Flowers - People (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock, Folk R
 ```bash
 magnet:?xt=urn:btih:6447D03DC4201F54CA5E7C5D7E0FB45043C558AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Axcraft - Dancing Madly Backwards (1974) Reissue, 1999, Akarma [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:69AAA34FD2D7FB9643E1B872B00F62BD34D74FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Running Man - The Running Man (1972) Reissue, 2000, Akarma [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:83D2A1DF2A506DA6407D41440DE914A832FA15AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Graham Bonnet Band - Live… Here Comes The Night (Japanese Edition) (2017) [Wav
 ```bash
 magnet:?xt=urn:btih:B91CCF9B9C87FB6C9039C97E5769461C8F1E244B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

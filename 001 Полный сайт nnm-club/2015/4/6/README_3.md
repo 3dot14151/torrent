@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:FC36095E7AC5A91F8987BDD7F1285CB494354247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Denis Stelmakh - New Beginning (2014) [MP3|320 кб/с]<Neoclassical>
 ```bash
 magnet:?xt=urn:btih:7841A6210C639437FF02504C5899CEA03A86C425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Pet Shop Boys - Introspective (1988) [FLAC|Lossless]<Electronic, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:B01AFC01AE9EE173786B690CB058C1277C07061A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:060AA1C1E60A1623197EB9675484AAC836BE9A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Monosnap поможет вам снимать скриншоты, делитьс
 ```bash
 magnet:?xt=urn:btih:966251E14B1ED5EBA67919D6D82D44938CCA40DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Picture Collage Maker — простой в использовании гене�
 ```bash
 magnet:?xt=urn:btih:37D013A55701B2EEA7A5B4280F15033E3FE2B117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Simple Run Blocker – компактная утилита, которая ра�
 ```bash
 magnet:?xt=urn:btih:965F4D494AFA5D801EDD2B778698DB848D6769A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B1B8B7B20E010C9BFBBB3EF2A6D7A731125206E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A0FBC54CB6E60A825149925C706FCD99A5634E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A24896E32684D274F52B8899877E95465F064B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ VA - New Old Disco Hits (4CD) (2015) [MP3|320 кб/с]<Disco, Synth Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:D1642B61B3919C0E3C1661612D3C2C5F5B258C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFE92E1FE403B43BBC2C8E40C72AC77E88C8268B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Momo Kyun Sword / Меч малышки Момо [2014, TV, 12] BDrip 1080p Hi10
 ```bash
 magnet:?xt=urn:btih:E92EB0CA9B5C280C22CC1FE30A969F076565BB90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3B13BA4C47006E27FC487481F7302F76890A7D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ GraphicConverter — полнофункциональный графически
 ```bash
 magnet:?xt=urn:btih:E251E00C63565AD6FC1C20AD92D6567A63474E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ WifiChannelMonitor - системный инструмент для захват
 ```bash
 magnet:?xt=urn:btih:D3CE91A677025B287B0E32281C55F85A7D523542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ BrunuhVille - Aurora (2014) [MP3|320 кб/с]<neo-classical, instrumental, new a
 ```bash
 magnet:?xt=urn:btih:4ED5B0B6A59981FD70B2AFA359225B32220513EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EB6A0CE799FDAB495E9F69C38856904056B74BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ David Palmer And The Royal Philharmonic Orchestra - Music Of Pink Floyd - Orches
 ```bash
 magnet:?xt=urn:btih:EB1387D6CC7D7B8034A3B19753130C828DE0125A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ Transmission, в отличие от многих других BitTorrent кли
 ```bash
 magnet:?xt=urn:btih:4FF07B25CD507AFE72087139B6CC5A08D200AF57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ OziBox - Позиционирует себя как альтернатива Dro
 ```bash
 magnet:?xt=urn:btih:39AD07D3CE3293C396D2F522DE5CF8416FAD66DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F713D72B45C036DA1D4ED5CC50F463F4BD9A6CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:098A2CBDF8644B56130794EECC1EF324F1AA84BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ DeltaGraph - является системой профессиональног�
 ```bash
 magnet:?xt=urn:btih:1814A392C3FABCC0AEC5ACC8BB63425415AF70DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC2688F17149A484073F12B69CBC7EF19A5A096F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58328443D02537D740AC029A1F942D3DCA54E3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

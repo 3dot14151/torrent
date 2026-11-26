@@ -22,8 +22,7 @@ Sun 'N' Steel - Wheel Of Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heav
 ```bash
 magnet:?xt=urn:btih:B54820D526BF4589FA3C8266F19AACA9C91F65EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bewitcher - Cursed Be Thy Kingdom (2021) [FLAC|Lossless|WEB-DL|tracks] <Blackene
 ```bash
 magnet:?xt=urn:btih:33759BB09D6C104069FB6BC2CECCB0F155488260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:AB8BBD2B56CCF73D5932CA50B460AB6A56838EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Al Stewart - 2 Albums, 3 Box Set, 14 CD (1967 - 1993) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:BF604D24B7EBF6FB367FFDC1BD99C04AE00574CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Greta Van Fleet - Anthem Of The Peaceful Army (2018) Japanese Edition [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:257F7082AEF3CC1C452944AA16C325EC266B3932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Rasmus - Into (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:B850AAD2C77EFB15B8B0A2CD4B5A1DE35549AD48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Greta Van Fleet - The Battle At Garden's Gate (2021) [FLAC 2.0|44.1/24|tracks|WE
 ```bash
 magnet:?xt=urn:btih:9EC272CA400158E0E62B7040DAE9489669D1B486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Night Flight Orchestra - Aeromantic (2020) Japanese Edition [WavPack|Lossles
 ```bash
 magnet:?xt=urn:btih:4CF9BA20450FC94EA2322F3593DCDEC097BE7ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - The Best Rock From Russia (Moroz Records Promo) (1994) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:05F8EA3B432FA4DCA9F1AC2706F6CFF9C45AB5E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82D896A4EEAF0EF5B6DAF9D39985F92E172C21DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Offspring - Let the Bad Times Roll (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Po
 ```bash
 magnet:?xt=urn:btih:3A04A29B46E3F84918200EB95888C6FD146AB9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Yes - From A Page (2021) [FLAC 2.0|44.1/16, 24|tracks|WEB-DL] <Prog Rock>
 ```bash
 magnet:?xt=urn:btih:7AA2984E682F1841F1E9AFAF4E16E4B18173E64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Blanc Faces - Blanc Faces (2005) [FLAC|Lossless|image + .cue] <AOR, Melodic Rock
 ```bash
 magnet:?xt=urn:btih:E6355F3C5DC0342CD34F902BBC38A810AD9F0CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

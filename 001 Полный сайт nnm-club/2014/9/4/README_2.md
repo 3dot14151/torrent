@@ -25,8 +25,7 @@ Tomas Walker - T'ai Chi. Music for Relaxation (2003) [MP3|320 кб/с]<New age, 
 ```bash
 magnet:?xt=urn:btih:0DE5CA315B7B85A6EA2074B91E2EA3480E7C4492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Pachelbel Canon (original version) and other 17th century music for three violin
 ```bash
 magnet:?xt=urn:btih:8D24791591C960CC403135E6AD51C2C999C23A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Divertimento en si bemol majeur KV 186 (1773)
 ```bash
 magnet:?xt=urn:btih:9F8BC5FA77D698F0D9EDA3556FE011F5EFE24FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Gevorg Emin - Yergaran (2005) [FLAC|Lossless]<Folk, Ethnic>
 ```bash
 magnet:?xt=urn:btih:69BD15D3E8FECE33C369D650B284B1868FA3224B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C99A2AB2B6ABE6CE0D483B0C0C0621E9E9DF35D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Brandenburg Concerto No. 1 in F major, BWV 1046
 ```bash
 magnet:?xt=urn:btih:8CDDE4108C8F6B327F7017D1948296F31C5083EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Le Quatro Stagioni op. 8, no 1-4
 ```bash
 magnet:?xt=urn:btih:4FF91C3BBA2F35CB8157EEB86EACF6A2718C84C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ VA - Sound Clinic (2014) Special Edition [MP3|320 кб/с]<Deep, House, Breaks, 
 ```bash
 magnet:?xt=urn:btih:B42C471487F1A3064935EC9E173A51740423918A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D67A10EC577E137ED4E73B27D34553F909FD993D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE072053D2961339B04845530EF220C3EDCE0A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92F7944566AA20959A0740720A13ED228544A692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15E0DF8A2FF286147BC3C43A9E67C2B3E57D28D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D8BBF383B48EC80FDC7755C49761C265BBFA888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ Chris Martin Trio - Young Blood (2014) [MP3|320 кб/с]<Rockabilly Blues>
 ```bash
 magnet:?xt=urn:btih:4FED84994A2ACD74ED884CF6A6E65115F0F7EEB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ C4. Lonesome Lullaby (4:04)Жанр: Progressive RockПродолжительн�
 ```bash
 magnet:?xt=urn:btih:8F19D02D023E97C2EA64943DC103E289DEFD80C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ Garmin: AnaDigit Map v.6.29 (Greek Anavasi TopoNavigator) (сентябрь 2014
 ```bash
 magnet:?xt=urn:btih:1867FA633C13F5BAD5E8588CEF85190C711E901D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E6D09874B5C86251B319C65B33E7CB64C7541C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +518,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:662F388968AD7407CC517EA46B2C595D7D01B085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +546,7 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:9884D4A7B409D73492141502F61A4B2604771911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ Pachelbel: Canon, Handel, Vivaldi, Gluck - Academy of Ancient Music: Christopher
 ```bash
 magnet:?xt=urn:btih:B6D0C44A0832CBE1BC0013C6DC1138896A9A62AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91B39B0A1AB8A608BD1EA370D008C47701D1B710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +628,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:F728D2178A3FABC9AF5F5BA48A476E6D456418AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +653,7 @@ Freemake Video Converter - бесплатный видео конвертер, �
 ```bash
 magnet:?xt=urn:btih:AAC22A72B8A63802BAF2753F18C19A54BFA34FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ Zakir Hussain - Making Music (1987) [MP3|320kBit/s]<Ethno-Jazz>
 ```bash
 magnet:?xt=urn:btih:299386466E2B260AE811EBF85B599E82F2E28149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82D64F478D35C294C6172736E209F443A549FE26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E55D24B5F6613F722F778AE1CB9F6EE0510A29E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

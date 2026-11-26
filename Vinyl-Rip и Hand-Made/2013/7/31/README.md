@@ -28,8 +28,7 @@ B3-C I'm A Marionette 4:06Жанр: Disco/PopПродолжительность:
 ```bash
 magnet:?xt=urn:btih:246AAEF6CB0445576B5C65EB46759510F44A4FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B5 The Way Old Friends Do [3:24]Жанр: Disco/PopПродолжительно�
 ```bash
 magnet:?xt=urn:btih:3E5185B505EE7C1AA31EAE5A0A5F7C184C901B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ B5 Kisses Of Fire [3:19]Жанр: Disco/PopПродолжительность: 0
 ```bash
 magnet:?xt=urn:btih:44648A52BDA7A5C6BC8F7FDA07DEA50C03605BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ B4. Days Of Wine And Roses(   Читать дальше...   )Жанр: Instrume
 ```bash
 magnet:?xt=urn:btih:940A1D28994A6481F2D033F3871684705B5822B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

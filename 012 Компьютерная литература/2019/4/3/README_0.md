@@ -20,8 +20,7 @@ R является самым популярным в мире языком ст
 ```bash
 magnet:?xt=urn:btih:1A641BF6970720BA673875DF09CCBABD200114AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A207D4F6E21C80128847CCFA5C9BEA5BD8C596B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

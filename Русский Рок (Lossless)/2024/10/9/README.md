@@ -22,8 +22,7 @@ Hardy - Мир Криминала (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & H
 ```bash
 magnet:?xt=urn:btih:D40519EF13CE5CFD7AD63690EA07EA4CD0ED574E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

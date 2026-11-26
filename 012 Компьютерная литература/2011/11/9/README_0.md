@@ -22,8 +22,7 @@ Artificial Intelligence: A Modern Approach, 3e предлагает наибол
 ```bash
 magnet:?xt=urn:btih:FB42608A723280A4C7B09528A4A33332B81A9E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

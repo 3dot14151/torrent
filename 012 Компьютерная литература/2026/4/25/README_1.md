@@ -19,8 +19,7 @@ In A Tour of C++, Second Edition, Bjarne Stroustrup, the creator of C++, describ
 ```bash
 magnet:?xt=urn:btih:4129B3A795EAA138D76071020CAE0873933F86B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DF49F5F7554A6F3E473D456CE0E3AC1717DAE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Linear Algebra for Data Science with Python provides an introduction to vectors 
 ```bash
 magnet:?xt=urn:btih:1D223C6313D6D795BC6F28833EAF662306BA7E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The fifth edition of this core textbook in advanced remote sensing continues to 
 ```bash
 magnet:?xt=urn:btih:98A75724812BC1D229B495B248892F2DDBA015CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Highlighting the benefits and challenges of LLMs in financial contexts, the book
 ```bash
 magnet:?xt=urn:btih:048FCD11345FB2DCC1FEEB73026762E00C678BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Many organizations today orchestrate and maintain apps that rely on other people
 ```bash
 magnet:?xt=urn:btih:BC5677159F95A3C682AD80964FF68350D2056844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

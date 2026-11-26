@@ -22,8 +22,7 @@ Chris Rea - Stony Road (2002) 2CD [FLAC|Lossless|tracks + .cue]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9452D86AA3C4369C4E15781999C59F4691284EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Free Download Manager - кроссплатформенный менеджер з
 ```bash
 magnet:?xt=urn:btih:CF15537A5B132FAC1B131FE0000B88968362AD3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Opera One 131.0.5877.55 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AB348919681F2B815B2B26405CB3D59719AF352D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Opera GX — это специализированная версия брауз
 ```bash
 magnet:?xt=urn:btih:E77146D687A75B8C9DF293497F0D29F848352CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Macro Commander — это универсальное программное о�
 ```bash
 magnet:?xt=urn:btih:FDA0FDDA1C1A02BBF6D2AEDFADB7209111013C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:4B500B938C4EB1FE92C4C49A343845B3855C2BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ QR-Code Creator 7.6.2.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:D538742CC1533257E6E9C48DB82C155BF366171B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Joplin - это бесплатное приложение с открытым и
 ```bash
 magnet:?xt=urn:btih:3F33C88C407240C3C6F670BA097302259BA2F7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Brave построен на том же движке (   Читать даль�
 ```bash
 magnet:?xt=urn:btih:3BD0403465CD1E656FB73B15A38D189CEFE8054B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Screenpresso - легкий в использовании инструмент �
 ```bash
 magnet:?xt=urn:btih:871BDC0508E3308B371A84A0325454ED71C02C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Tower 12.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:A368976A50322C95722F99F0E2F9794BA1AE0DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Total Commander BurSoft Portable — это не просто файловый �
 ```bash
 magnet:?xt=urn:btih:78E982B13933FDB4CC1E72D851AB353D11557F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ PrivaZer – полезная утилита, которая поможет ва
 ```bash
 magnet:?xt=urn:btih:7CB84F61442A91B7BCC724E72744800F7A1990A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Quick ’n Easy Web Builder — это мощный визуальный кон�
 ```bash
 magnet:?xt=urn:btih:C7686B69BC2D683F595FCF7558B3B4D78B599CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:9EC0514CE12AE52ACAD3869E2472B6A3A192B3E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:CAC56DDF99F7B66B252E3CA18C4E8511C86C98D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ VK Мессенджер – это отличный способ всегда б
 ```bash
 magnet:?xt=urn:btih:692AF8171255B814D843ABE8D60D13DF1B4E8CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:11D68E192D9D8458AB912E5FB8B7EB6A7C556413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ Ashampoo WinOptimizer 29.0.0 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D96BCD6A2393462790B2AADB68A2F1C8AA8EA568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ Syncovery Premium 11.15.6.206 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BBF9C43EB0C8C2C5CE8CC9CE6260F0BE0ADCB510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ Wise Disk Cleaner 11.3.5.855 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BE84AEBD8A4387D84F77AF34D58BFC2178DF61DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:BCD2C093E9B392010EB5D8CBB8566BDDCAA3A3CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

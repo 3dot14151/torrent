@@ -19,8 +19,7 @@ Danse Macabre 2: Moulin Rouge (2014) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:C77C07206C9D28403D641D5EE21E9F4D188BC736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Crimes and Punishments — это детективный квест, посвя�
 ```bash
 magnet:?xt=urn:btih:14D28FC98F50845FEEF0E79CD71390E21475C8CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Tony Hawk's Pro Skater HD (2012) [Ru/En] (1.0.8788.0) Repack Audioslave
 ```bash
 magnet:?xt=urn:btih:17E1A3CDBDF3C4197397C444CEB26DA86D8A96D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Crimes and Punishments — это детективный квест, посвя�
 ```bash
 magnet:?xt=urn:btih:738BB81C183050DA838DB092272196313306D8FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

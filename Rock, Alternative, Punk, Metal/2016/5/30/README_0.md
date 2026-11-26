@@ -22,8 +22,7 @@ The Corrs - Unplugged (1999) [APE|Lossless|image + .cue] <Folk Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:CFC6BC9AFFEEAEF934C1A9E09B72B619D9956297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Grand Funk Railroad – We're An American Band
 ```bash
 magnet:?xt=urn:btih:7CBD7D398C66432D6D73BCD3787881E5D1A11F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rod Stewart - Ballads (UY) Unofficial Release [APE|Lossless|image + .cue] <Pop R
 ```bash
 magnet:?xt=urn:btih:83A7741EA5E6FA997823528E9BD9621A26B2E542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Greatest Oldies 70's (unknown year) Unofficial Release [APE|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:FA359A15387001FA23929DD8A6D2F9C542635B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bonnie Tyler - The Very Best Of (1993) [APE|Lossless|image + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:83347A7524439208AB1CB98170DF47A36FE45C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Garbage - The Absolute Collection (2012) [FLAC|Lossless|image + .cue] <Alternati
 ```bash
 magnet:?xt=urn:btih:FB647B1988E97D06D7A409D05B71A95E3005E259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8785770AEF615F2B623D8DD1E43B919972BC991E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

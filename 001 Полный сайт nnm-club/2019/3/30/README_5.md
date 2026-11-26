@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:20B8D1D223842BF2377267DEFDDD42ADD3A4DA25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Tropico 6 (2019) [Ru/Multi] (1.0/dlc) License PLAZA [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:E3736D7237CB89EC4AB1523506B5D8680757C653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Operencia: The Stolen Sun – РПГ от первого лица с пошаг�
 ```bash
 magnet:?xt=urn:btih:0A3F334266B825CC190E08FA8A34A4CD8708857B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8F1D8B6ACC169D401A17EF2AF421A85F07E80E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ DiRT 4 (2019) [Multi] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:721BB84E56CE476375BB7644F86F18690D5F9A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:11AC892AE97AE5C1A58C7E128A7BE28411D1D87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A09A33A53680609054EB135BF60E806549C6C96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Boogiepop wa Warawanai | Boogiepop and Others | Бугипоп никогда н
 ```bash
 magnet:?xt=urn:btih:4A729C69BAB2F2EBAF2B3CBADA9D5AB8956A2990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ TV-1 (AniDub), (KANSAI), (SovetRomantica), - внешними файламиЯз
 ```bash
 magnet:?xt=urn:btih:8C11B8241A8FD41C7CCEE9C34A19305F5CC4B346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Redstone_5 ex-RTM Build: 17763.1.rs5_release.180914-1434 + March 12, 2019 Cumula
 ```bash
 magnet:?xt=urn:btih:4018C62ECC454BC862D0D0168A337FD533F9B8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Mahou Shoujo Tokushusen Asuka | Аска: Волшебница специаль�
 ```bash
 magnet:?xt=urn:btih:3946C5B721768A0F0E4D55D49BA973715CD43C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:03F446AB1EFFF1AC3BDBA62AA2EF1041C488B5A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Radio Tapok - 7 Альбомов, 7 Синглов (2016-2019) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:27929E6CA916371E723B2F91CEC836743CF42216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:00AFEDD366C6D195CB0A8CE2106EBBD203C61BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7514754C5330C834F1CA72D96270C69AA5ED05F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Boogiepop wa Warawanai | Boogiepop and Others | Бугипоп никогда н
 ```bash
 magnet:?xt=urn:btih:E08A184AEBAB05FC4274FC5021028BDC3FB0ADC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ DigiSender XDS LiveOS - альтернативный лончер для мед�
 ```bash
 magnet:?xt=urn:btih:0A448087EA3B83C0482CA1765A0D07445C5C9B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF5D4CB9672512027A50F5D3E9373FE816FC3AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ TEKKEN 7 (2017) [Ru/En] (2.21/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:36853602F1BB2875689E59834A182C249C1C3B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

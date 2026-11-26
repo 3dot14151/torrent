@@ -22,8 +22,7 @@ VA - Soundport Recordings. The Best Of 2016 (Mixed by Dr Riddle) (2018) [MP3|320
 ```bash
 magnet:?xt=urn:btih:AE2D1758A18CB665774A908266991FA9DE0BB2AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Dance Empire 11 (2018) [MP3|320 Kbps] <House, Progressive House, Vocal>
 ```bash
 magnet:?xt=urn:btih:210083E6A6C6F84DA51E2233239B3806A9622CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Neostatics Sounds Best Of 2017 (2018) [MP3|320 Kbps] <Trance ,House>
 ```bash
 magnet:?xt=urn:btih:63C60CD3CEB8B967B169FFB4C2BE77235EBD4352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ AeTopus - TotemTotum (2018) [MP3|320 Kbps] <Ambient, New Age>
 ```bash
 magnet:?xt=urn:btih:1FB15E37ED6CB3485FE2D7F40D3367587C802C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - FG Top 10: January (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:3EF8C76A06A2214B5597FC9FD12B829ED2BD48DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Klubb Classics Chapter 1 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:AC3F8643FB1C1FE746EDECD5F117D7F69EC97886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Base Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:02EE680D7D4C24478776D13F91EBEE5064B148CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Illuvia - Illuvia (2017) Eternell [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downte
 ```bash
 magnet:?xt=urn:btih:37D52568ABDCD48EFB10D58B003332B446D2F632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ omrr - Devils For My Darling (2017) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Amb
 ```bash
 magnet:?xt=urn:btih:0E476ED5B5930EDA65612F1F8BD410F3CC1B06B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Karsten Pflum - Sleep Concert (2017) Hymen Records [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:69F33AB86397906008D1708493DDA45978015DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Endurance Antivirus - Adware & Malware антивирус.
 ```bash
 magnet:?xt=urn:btih:F6F07017AEFCE636BBF9B2ECBB8FF1E31715966B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Faru - Through Darkness Comes Light (2017) Silent Season [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:BE5F7634D562F17CA93A73DCCAE9A65B978A3DF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ VA - Deep House Winter Essentials (2018) [MP3|320 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:8A05128323A8EBAB826573F091A3A1E896D15573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6838B614FB7E0547E7B3B95176A1C0137C18FB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Robert Rich - Inner Landscapes (1999) Hypnos / Soundscape [FLAC|Lossless|tracks+
 ```bash
 magnet:?xt=urn:btih:95E5E1EF18E97E77F5FD324C28AB70B098430E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ Spacecraft - Spacecraft (1997) Lektronic Soundscapes [FLAC|Lossless|tracks+.cue]
 ```bash
 magnet:?xt=urn:btih:7D5E8F33E31C8B135CE08DFA665796DBD68BA532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Robert Logan - Sculptor Galaxy (2017) [FLAC|Lossless|tracks + .cue] <Ambient, Do
 ```bash
 magnet:?xt=urn:btih:934528DA782AB79A1E638A83B5B1DDE93C79E7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ VA - Chillout Therapy Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:5D341BD308B67CC22F7518F28CC1F395385C6A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ VA - Deep Disco (2018) [MP3|320 Kbps] <Deep House, Nu Disco, Electro>
 ```bash
 magnet:?xt=urn:btih:DBF0BA06A03F7B7218AE495BAC3B91AFA7D22E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ PDF Expert - это один из лучших инструментов для �
 ```bash
 magnet:?xt=urn:btih:B520DA0A7ED11FD9EAC2252066D8E46BEDB970EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ VA - Game Of Tones (Compiled By Megapixel) (2018) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:FCB8ED9D686283E1E288361C8E61027DB0637255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ Jerry Goodman - Violin Fantasy (2016) [FLAC|Lossless|tracks + .cue] <Instrumenta
 ```bash
 magnet:?xt=urn:btih:DCCAF63F9BE556012CC785077C1DFC5EEE000CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4B862135D7FBF31C7BAB6D0B6E06EB8ACDD5248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:903AFA3326EC277A1F71124DAE137447CD1AC303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39CF75BE696E8A44A953069911750B3838DDF19E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

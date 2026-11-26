@@ -19,8 +19,7 @@ Ys VI: The Ark of Napishtim (2015) [En] (13.04.2018) License GOG
 ```bash
 magnet:?xt=urn:btih:D2F74A4C81616184F32FE6DC34EADD4FA37CB10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ For The King (2017) [Ru/Multi] (1.0.7724) License CODEX
 ```bash
 magnet:?xt=urn:btih:882D7075277FADA432D3247CDA16BC8E259C4CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ For The King — это стратегическая RPG, которая соч�
 ```bash
 magnet:?xt=urn:btih:60598E6B258DE4E8D14BE5083F1A052E6AE97B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mike was Сursed (2018) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:274343CB348EC0563EAA5EC9471DDB88C1A5B4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ys VIII: Lacrimosa of DANA — это игра в жанре экшен с ро�
 ```bash
 magnet:?xt=urn:btih:C59654778CF983B8D76E82B1FAB6F60378F916BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ City Bus Simulator 2018 (2018) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:5EF8881C93084082EAC0BE20F3FC97057A7D0E6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hearts of Iron IV позволяет игрокам встать во главе
 ```bash
 magnet:?xt=urn:btih:BCEDEE575B4FDCE3A8F37B6C3403DCB9F48E383F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

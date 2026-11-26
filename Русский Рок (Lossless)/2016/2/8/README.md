@@ -22,8 +22,7 @@ Nautilus Pompilius - Крылья (1995) [FLAC|Lossless|image + .cue] <Rock , Ar
 ```bash
 magnet:?xt=urn:btih:4FD99DC2D8EB861C1EE15F9283EE82F7188F4955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

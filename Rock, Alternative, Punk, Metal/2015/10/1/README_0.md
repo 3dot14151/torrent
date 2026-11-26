@@ -22,8 +22,7 @@ Soijl - Endless Elysian Fields (2015) [MP3|320 кб/с]<Doom Metal, Death Metal>
 ```bash
 magnet:?xt=urn:btih:1AAFD4540307FEFAC324085E6A2EBAA03A5820AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bryan Adams - Get Up (2015) [MP3|320 кб/с]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:133D3D19F9258158858E690C354579F194A577CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blue Stahli - The Devil (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Industrial R
 ```bash
 magnet:?xt=urn:btih:B7D2784EA7D2B17C6FF79C14C9C55FAD87B1F5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Trivium - Silence In The Snow (2015) Special Edition [MP3|320 кб/с]<Metalcore
 ```bash
 magnet:?xt=urn:btih:3D64B731FD706E579DA240E4BFF6783BB392F2F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

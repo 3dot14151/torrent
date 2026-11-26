@@ -19,8 +19,7 @@ Town To City (2025) [Ru/Multi] (1.0 (10230)/dlc) Repack Let'sРlay [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:F691C6F1C57CDD411345E8AEAF31DB33C680F301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Life Below - это свежий взгляд на жанр градострои
 ```bash
 magnet:?xt=urn:btih:1CEC3E94CE2AE5878E261BFADF1DC7890ABAE41C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nature & Life: Drunk On Nectar (2016) [En] (1.0.6) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:58EFB98AFE688209F2F0911B89227C18796DF6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Space Haven (2020) [Ru/Multi] (1.0.0 Steam Build 5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:19F3C56FCF56274A2AA7F8EDD02F86D071EE77DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Containment Initiative - это локальный кооперативный в
 ```bash
 magnet:?xt=urn:btih:2A00627EF99A5763A27F9AFE67AC6B00314B28FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Euro Fishing позволит Вам полностью погрузиться �
 ```bash
 magnet:?xt=urn:btih:B73F0C7D3DFB6A6235AD4BCAF36725FE629F0069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

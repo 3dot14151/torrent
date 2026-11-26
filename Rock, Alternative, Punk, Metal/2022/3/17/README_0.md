@@ -22,8 +22,7 @@ The Delines - The Sea Drift (2022) Deluxe Edition [MP3|320 Kbps] <Blues Rock, Co
 ```bash
 magnet:?xt=urn:btih:DB90AE7C264CC490914A0EB635B67996F6EB3CD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Agathodaimon - The Seven (2022) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Gothic Black M
 ```bash
 magnet:?xt=urn:btih:29ECD5FB42FB05D0BF4522A055BC2B1264DF928E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dream Master - A World Without People (2022) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:5816351EC1EF32C7D04839122F5921148E7C48EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ FM - Thirteen (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:07DADFF687E61A976928E00DA594A1F9E9F20670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dark Funeral - We Are The Apocalypse (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Blac
 ```bash
 magnet:?xt=urn:btih:660FDC6E57024B2DE2B9B43615D51A8058E61BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ronnie Atkins - Make It Count (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:BE14C32C1B50CBD4F33773C316B5422AD7FAF374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Stabbing Westward - Chasing Ghosts (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Indu
 ```bash
 magnet:?xt=urn:btih:510FCAEC0B4B2751499B34C27BF6063B7A929161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Classic Rock Hits 2022 [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:AFB83E228C10DB529EE1ECCDCE219B59A357FA57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Radio Tapok - Наследие (2022) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0727AD0C1244FDA2AB2C50246D04C45CD2DB8BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Tankard — немецкая трэш-метал-группа из Франкф�
 ```bash
 magnet:?xt=urn:btih:A9EFD565F40230DE56F8740557B5F0D513260820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

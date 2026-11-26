@@ -19,8 +19,7 @@ Space Engineers - это фантастическая песочница, где
 ```bash
 magnet:?xt=urn:btih:EECB8AF7406302F8743D0969698BCE24D840E51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trials Rising — продолжение популярной мотоаркад
 ```bash
 magnet:?xt=urn:btih:C8F492BA1851B493E569E1CDEF570F34159D81EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

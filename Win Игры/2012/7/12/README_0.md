@@ -19,8 +19,7 @@ Build-a-lot: Fairy Tales (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:E2540EDCD673476B34FC0583862836EEB34FEB40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Gnome's Home: The Great Crystal Crusade (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:A74BBC4F36504F1B1C0AA16DFAD5E08DC821E8FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tales of Lagoona: Orphans of the Ocean / Сказочная Лагуна: Сир
 ```bash
 magnet:?xt=urn:btih:5D5C902381D0E375DA2F5A9337DD7E4A0FA58CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

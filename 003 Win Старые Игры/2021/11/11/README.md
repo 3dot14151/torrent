@@ -19,8 +19,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 ```bash
 magnet:?xt=urn:btih:FB81A68CA1E73611B287D5CB6C58D6912E4EA392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

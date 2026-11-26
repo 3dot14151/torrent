@@ -19,8 +19,7 @@ Redneck Deer Huntin’ / Deer Stalker: A Realistic Hunting Game (1998) [En] (1.0
 ```bash
 magnet:?xt=urn:btih:44AFBF2B7F73016540E733098BC27EEDF53E71D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

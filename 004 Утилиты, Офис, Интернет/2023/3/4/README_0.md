@@ -19,8 +19,7 @@ WorldWide Telescope - уникальная программа от корпор�
 ```bash
 magnet:?xt=urn:btih:B08EB25ABC11C7B32A4CB3389C86F8ADBF1492D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

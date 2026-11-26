@@ -19,8 +19,7 @@ Red Faction: Armageddon (2011) [Ru/Multi] (1.01/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DA296902FC0BD4E7D471803C025242336471C904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Planet Nomads — научно-фантастическая игра с откр
 ```bash
 magnet:?xt=urn:btih:1746E27F51E2331D972043015945F4AC05844A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

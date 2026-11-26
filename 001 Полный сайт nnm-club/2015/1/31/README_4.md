@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:85725BF3F3DA369D154BE83FEE6FB44D1FAA17C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Xilisoft Video Converter это простая, удобная и быстрая
 ```bash
 magnet:?xt=urn:btih:E92D7549D8FE378F83DC95FC61C319546C88ABCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A9BECF27C615931E61620A101A385C310CC3A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF7D2EFB2F77642DCC79539FECD43E492E118588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14782EC535E683F4F54B9E29BC14F1F3FCDE91F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ DxO Optics Pro - профессиональное приложение, спос
 ```bash
 magnet:?xt=urn:btih:A065E7797E07155ACE968BA31F34895BC17488DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B524AECE462165E43B592F5F06A7828D011A301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ DxO Optics Pro - профессиональное приложение, спос
 ```bash
 magnet:?xt=urn:btih:E6DC89BF5967B3D993C5D35F6123D109CF3C85D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Google Chrome – веб-браузер от Google с открытым исхо
 ```bash
 magnet:?xt=urn:btih:70EF0AAF6EC055EA17CD2E61DDA9F63C08D7D03F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF3D67E2B80E13008F92975D5F1028370850B9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D044A0803BE501B5069E8ED9833622D81B098415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ TeamViewer – разработка для обеспечения доступа
 ```bash
 magnet:?xt=urn:btih:64A93F10C6D6F3A323845C6B2530E2DD87C6ABFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CACE02ECF62D709C7AE4A6F970F117F9725A54DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Trap 2015 - v1 (2015) [MP3|320 кб/с]<Trap>
 ```bash
 magnet:?xt=urn:btih:F2093C0370AB43719BC385743FB337811B418AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Secure VPN & WiFi является лучшим решением для конф
 ```bash
 magnet:?xt=urn:btih:751528331F617F4B7D8ADBEC7E81CD8A565F01D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:527A43C18582C39F773D73A857E547EF06AD29F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ BackBox Linux 4.1 (Анализ безопасности, хакинг) [i386, a
 ```bash
 magnet:?xt=urn:btih:15CB92A59CB8B59617EB844EBD72018682CD00B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ Clean Slideshow - проект для создания слайд шоу.Фор�
 ```bash
 magnet:?xt=urn:btih:F5191A7CB9A445FF569BA6263DC41594642ABAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ Vertus Fluid Mask - мощная и удобная в использовании
 ```bash
 magnet:?xt=urn:btih:521DEB72651A074B79EDC6F4C31483217C17656F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ Chameleon Frames Photo Galleries - проект для создания слай
 ```bash
 magnet:?xt=urn:btih:63D4B314218B68ABA2BB7D228FDEAE0BD2553FD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ PCRADIO 4.0.4 Premium RePack by rockmetall666 [Ru]
 ```bash
 magnet:?xt=urn:btih:6DF44F95B61F196B546FDF9A1FBC7F01CC00C849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ Navicat Premium представляет собой очень мощный ин
 ```bash
 magnet:?xt=urn:btih:E7E32332E25F7949551806A4987CDE9F6F79935B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ Blackguards (2014) [Ru/En] (1.5.34047s/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B17C54F155EEFF86E9881720A754F90F028A4439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ uTorrent Pro 3.4.2 Build 38429 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:80A7C2326983585A22BA5386E0858624321AFC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

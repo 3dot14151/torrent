@@ -19,8 +19,7 @@ Head Soccer LaLiga 2021 - Best Soccer Games - крутой спортивный 
 ```bash
 magnet:?xt=urn:btih:250FAFEA7E4862F192D9EB5094C2111713095A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

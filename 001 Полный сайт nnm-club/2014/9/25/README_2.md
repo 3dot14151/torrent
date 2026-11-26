@@ -27,8 +27,7 @@ SOBO Blues Band - Catfish Boogie (2013) [MP3|320 кб/с]<Rock ’n’ Blues>
 ```bash
 magnet:?xt=urn:btih:92F3A55CC075551D94E359BD42D0AC800B4C6C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:00EAAAE71B2DFB51459771DC10B3F32FBA419284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ James Newton Howard - Голодные игры / The Hunger Games (Complete Mot
 ```bash
 magnet:?xt=urn:btih:6A3B6DC5780798263C10CBF7FADBA303031ED51B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Decapitated - Blood Mantra (2014) [MP3|320 кб/с]<Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:5E44D0C50A3B72C0C7CDEFDA2336FE3DC78E8A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Angst [A Spectre Compilation] (2004) [MP3|320 кб/с]<IDM, Electro, Indust
 ```bash
 magnet:?xt=urn:btih:CB27995F9224BA58C6A0920B178E313A6508B711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:361F6CC6E20F86C60E872D8B741305CB312BA01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Alan Silvestri - Мстители / The Avengers (Complete Motion Picture Score)
 ```bash
 magnet:?xt=urn:btih:DC24C8413C8F3D51F2BD695D9F316D1B1A936C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Lenny Kravitz - Strut [Japan Edition] (2014) [FLAC|Lossless]<Rock, Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:5E64CA91C98B89631FF13BD39FC6240410109DF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:762D47C746ACE3D57D892601A5DC83FEB829C688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0ADE9525EC6F57F8F2E350563E184899DD7C707A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ Floex - Hub (1999) [MP3|192 кб/с]<IDM, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:E3ED99796DBCD9304CE9B438AA767F8303538700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:0EB152AA11EAEA723A5C778D0B1B4871128F3BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49AD7D30C27B333F29BE7D605C1178B20681AB89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:4C35D0DFD902A8FF7C02AE76696CCA329881E564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ VA - Новая рождественская сказка / Scrooged (2001 (1988
 ```bash
 magnet:?xt=urn:btih:423D3F4B3094D1D112F9C8CF60903114AC15B75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9F4C17E530D16BB6EC14D2FB0867FC2E4F8E598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +511,7 @@ VA - Relax Intim Sound (2014) [MP3|320 кб/с]<Chillout, Longe, Downtempo>
 ```bash
 magnet:?xt=urn:btih:9EE8140E70950B2BA12CA0C0E66D9C031247587A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C4F530D66E051A56E146F0F506C1E5BA3872F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ Marc Streitenfeld and Harry Gregson-Williams - Прометей / Prometheus (Ex
 ```bash
 magnet:?xt=urn:btih:D2685A872CBC0694EB2F4E68C52BAAA4FA9DE9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ Tembo умеет искать файлы, папки, письма, заклад
 ```bash
 magnet:?xt=urn:btih:4A8A044CF819243B401BD6AF37ABAB065D371DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ Lorie Line - 7 альбомов (1991-2005) [MP3|320 кб/с]<New age, Instrumen
 ```bash
 magnet:?xt=urn:btih:0515C8CE608A54F4C5F761F43DFA2EFB04449B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +660,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:AD821E063B833FB7641EDC9FF0B3F884FBFFD550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CE240AB0D03BAC24EA9198F6E24D870D5040D6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C64DCE1CEC8791D6C37523E38040E05D8C38E43F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +748,7 @@ David Arkenstone - 2 альбома (2011-2014) [MP3|320 кб/с]<Celtic, Native
 ```bash
 magnet:?xt=urn:btih:406215F78F903119F99E41E1FDE52525318C199E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +780,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAA2DA4041B0009B154F6508D9C3A341310397CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

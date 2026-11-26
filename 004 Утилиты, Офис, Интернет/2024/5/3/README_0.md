@@ -19,8 +19,7 @@ MathType - это мощный интерактивный инструмент, 
 ```bash
 magnet:?xt=urn:btih:46CC3D9138E6C3196BB59D15ED5212338D0D9FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MiniTool ShadowMaker Pro – программа, которая позволяе
 ```bash
 magnet:?xt=urn:btih:683801DC24172CC61FEB989A7A66A8556C5077E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ IceCream Ebook Reader Pro 6.49 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:299CC20D7D59EB3E3DD635908CB6C3115C0CE7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Icecream Ebook Reader 6.49 Pro Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5D616DB524DD8879A773B29BBBCA6E5773E283CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

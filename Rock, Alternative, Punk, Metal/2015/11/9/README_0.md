@@ -22,8 +22,7 @@ Bullet-Proof - De-Generation (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:452F5FDD84B2090860CC8D48FD54D355CA5A0B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Unleashed - Sworn Allegiance (2004) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:D57821DC11D891061ACBA417203F4F0D7609ACDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ghost Town - Evolution (2015) [FLAC|tracks|WEB-DL]<Post-Hardcore, Electronic, Al
 ```bash
 magnet:?xt=urn:btih:5609A327E4862A255289B6425E1AFC32A0996302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ektomorf - Aggressor (2015) [FLAC|image+.cue]<Groove / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5B015AB114BB04C745EECB3F63A01D64FEDFFBB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC67EF53E89E8AADA4257636FDF3CC05635D413C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ we.own.the.sky - Earths Collide (2015) [OGG| 429-502 кб/с]<Experimental Instr
 ```bash
 magnet:?xt=urn:btih:BF7A271877FC477564394BE55ADA1629222674D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Southern Rock Christmas (2015) [MP3|320 кб/с]<Christmas, Southern Rock, 
 ```bash
 magnet:?xt=urn:btih:FEEAE6E6CFC35411E36C7423E94EC9FE3C781E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Oh Hiroshima - In Silence We Yearn (2015) [OGG| 469-499 кб/с]<Alternative, Ex
 ```bash
 magnet:?xt=urn:btih:5D3DFCE28879D08AB43FEB037F47DD33BC5114C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Keep Calm and Salute Queen (2015) [MP3|320 кб/с]<Rock, Hard Rock, Metal,
 ```bash
 magnet:?xt=urn:btih:9A031BAD2C707DC1D17A81A87AD61D1A5600C2E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Scorpions - Taken By Force (1977) 50th Anniversary Deluxe Edition /2015, BMG/ [M
 ```bash
 magnet:?xt=urn:btih:4021B39450B90EE442C15AB46461E3FDB690020F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - 20 лет Питерскому Рок-клубу (2001) [MP3|320 кб/с]<R
 ```bash
 magnet:?xt=urn:btih:A9F5890D46C0F161721AAA204BCB4BE0A07D414F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Scorpions - World Wide Live (1985) 50th Anniversary Deluxe Edition /2015, BMG/ [
 ```bash
 magnet:?xt=urn:btih:BE3CA2F1E291E1E4C3E72A7EB67C268388816DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1698A7DA0C500F2417B5C3A396D03FD10CABC8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:662830B1CBD30BB727C876E06B4BBE8112949827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

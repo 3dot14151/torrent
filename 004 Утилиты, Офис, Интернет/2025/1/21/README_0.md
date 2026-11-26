@@ -19,8 +19,7 @@ TrafficMonitor - портативная утилита с минималисти
 ```bash
 magnet:?xt=urn:btih:383A90C02F4A13442DAEC262633392D2A1589E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ iTubeGo 9.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:08A8E0E522C494C9FBBAD56A1F8E87B3A07F9214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Hum - Inlet (2020) [FLAC|Lossless|tracks + .cue] <Space Rock, Post Rock, Shoegaz
 ```bash
 magnet:?xt=urn:btih:3E1AEE5D12813F4B6D75D63B17A8B1CF6B5B0A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Texel - Metropolitan (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Sym
 ```bash
 magnet:?xt=urn:btih:69DAC4F953E6EDA00F79CEDB7EAD5648D79EE290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ White Lion - Wait (1988) CDS, Single, Japan [FLAC|Lossless|image + .cue] <Hard R
 ```bash
 magnet:?xt=urn:btih:147B49FAD49806405DD4966E55E1BC48DFDF99BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Guardian - Miracle Mile (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:638DB731CCB9172B5F431DB5DFCA8D713A6AE898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Light Field Reverie - Another World (2020) [FLAC|Lossless|image + .cue] <Atmosph
 ```bash
 magnet:?xt=urn:btih:39AE8535FAB98FD55FF61565AF889EC674CD2C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Gino Vannelli - Crazy Life (1973) Limited Edition, Reissue, 2020, Japan Edition,
 ```bash
 magnet:?xt=urn:btih:7C520C7B0C9541C0D0530A9FF84A647497F698CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Warrior Path - Warrior Path (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Po
 ```bash
 magnet:?xt=urn:btih:8E04675C8DECBC6A6DB208253D2F39FAB38ED4F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Wishbone Ash - Coat Of Arms (2020) [FLAC|Lossless|image + .cue] <Classic Rock, P
 ```bash
 magnet:?xt=urn:btih:5FA76061ED96212CDBDB94D0EB4A915BAAD7580D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ David Coverdale - Whitesnake (1976) Reissue, Remastered, 2011, Victor Entertainm
 ```bash
 magnet:?xt=urn:btih:036AC6518395B51034135689EAF74CED71B4AA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Warrior Path - The Mad King (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 ```bash
 magnet:?xt=urn:btih:699FA3345112C929F044DC8DDCAA7F6579A729E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Marillion - With Friends At St.David's (2021) [MP3|320 Kbps] <Neo-Progressive Ro
 ```bash
 magnet:?xt=urn:btih:0D40A526180922A1C43611F30F3A23EBC04BFF5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1ADAF65A2FD8F2480D4E6C79094C76361A9DB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Noora Louhimo Experience - Eternal Wheel Of Time And Space (2021) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:795C5713330A85F789063B7B928CCE87FC9C6FBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Rod Stewart - 9 Albums (1977 - 2013) 10 CD [FLAC|Lossless|tracks + .cue]<Pop Roc
 ```bash
 magnet:?xt=urn:btih:509312774F5A71DD489E08F938493F2DBC6E0A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Gravecarver - Spectral Carnage (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 ```bash
 magnet:?xt=urn:btih:8A162303D1ACEAFCF9DA83E69FE143F090BCF965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Baest - Necro Sapiens (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:83F64F56207C7D435D9997B004715DD3F33ABFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Lord Belial - Kiss the Goat (1994) [WavPack|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:7B0C996AAE8592B5BECB80F9B03AA3440960B804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Jon Oliva's Pain - 'Tage Mahal (2004) Japan [FLAC|Lossless|image + .cue] <Progre
 ```bash
 magnet:?xt=urn:btih:ABC3944865D64067D33AA574B636F5BFA0B71F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

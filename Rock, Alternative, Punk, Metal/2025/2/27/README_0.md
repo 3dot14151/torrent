@@ -22,8 +22,7 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:71996DA87E396F47A60934BE03858C75F2DFEA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Virgin Steele - Virgin Steele I (The Anniversary Edition) (1982) Remixed, Reissu
 ```bash
 magnet:?xt=urn:btih:069B91B4486C1ACB28928AA2EB7C992629AAAADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D14029F2A87765EC73A8BB728B811C4694940DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

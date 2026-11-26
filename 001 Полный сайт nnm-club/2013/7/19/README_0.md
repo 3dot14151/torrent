@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1B893E1B5B6E2A2CCAE0129C4AE726A1582ED9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Anna Von Hausswolff - Ceremony (2012) [MP3|256 кб/с]<Progressive Rock, Indie 
 ```bash
 magnet:?xt=urn:btih:2F0B06DE7D9A123AC65B523F85F5971A99ED5BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Drumsound & Bassline Smith - Wall Of Sound (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:36031B35779BAA2E498130E3599AE12AA6B12507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Creative Music Box 16 (2013) [MP3|320 кб/с]<Dub Step, Drumstep>
 ```bash
 magnet:?xt=urn:btih:5D6E4E505E0696CFEA40BE2D7331C954D123562D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Ritisoyo - 2 альбома (2007-2008) [MP3|128-320 кб/с]<Instrumental, Nati
 ```bash
 magnet:?xt=urn:btih:28D3785E605487AF0BF6A9FFEAB37268D83C0719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Side B
 ```bash
 magnet:?xt=urn:btih:3833757B8657F4C8A986A0D4819C941C88350FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4A73D9358C7277A19720849B3ABF2ADD223557B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ LibreOffice бесплатен и имеет открытый исходный �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ Phillip Doc Martin - Good Day At Work (2013) [MP3|320 кб/с]<Jazz, Smooth Jazz
 ```bash
 magnet:?xt=urn:btih:CC74DF68D058B63CE64B17D8FA6665EF4B174206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9BEC98E0DB1120728FE5B49BA7F122A2AC7077B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ VA - EuroDance Attack vol.18 (2013) [MP3|320 кб/с]<Eurodance>
 ```bash
 magnet:?xt=urn:btih:ED3C10DA55BE7228FBB41DE1F33AF5418C607822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4DD549F475809138A2D4B578B64EFEDEE2C433C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ Cat's Disco Lab - The Album (2003) [MP3|256 кб/с]<Spacesynth>
 ```bash
 magnet:?xt=urn:btih:6998CF6A9B148D26BADDFB46632DB2F3A4CC4861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B878E3A8466020A2CE8FFB863433CCCF4941917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8A0E6A4DC6758D6FE7DFB42204D3B8239D96E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ VA - Lounge Voices, Vol. 1-3 (Ambient, Chill Out and Downbeat Pearls) (2011-2013
 ```bash
 magnet:?xt=urn:btih:3B63509B383F08AFF4625A21947D115701F5A038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +492,7 @@ Wise Care 365 - это комплекс системных утилит с пр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B10F48F2673544F914BD87FAABFBE18533178215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +546,7 @@ Timewarp inc - Ghetto Drunk Remixed Vol.1 (2013) [MP3|320 кб/с]<Funk / Breakb
 ```bash
 magnet:?xt=urn:btih:A1170AFBE22303367C9803A5DDDB304D75DE3C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ VA - Music for Massage (2013) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:3020C7E1C76031287CC5734B524700DFEB625A42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1A44F25F86C8E0D5C86099B01E7AF36E8051550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ Bonus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ VA - ItalianAfro Volume 1 (2010) Dos [MP3|192 кб/с]<Italodisco, Italodance>
 ```bash
 magnet:?xt=urn:btih:3B5E186C9F736993A8995D2FE26F4CD0284E90CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDFF0F603B05232F718DFFE18145820F82351302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ NetTraffic - программа для детального мониторинг
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88AB9BF809DE9F9300F8020514B56105388B1E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Sаbаtоn - Тhе Lаst Stаnd (2016) Limitеd Еditiоn [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:AADEF0B0D1AFAA5E678DF2939133AAC708392F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

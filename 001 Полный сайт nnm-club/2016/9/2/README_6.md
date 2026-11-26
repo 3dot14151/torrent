@@ -20,8 +20,7 @@ Kali включает одну из самых полных подборок и�
 ```bash
 magnet:?xt=urn:btih:9717AF89FCD230B0A0EA63639A1E180FAA70C44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9960B0A4D5464DAA0E4407FB54382AE02EC37452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6E9C0B7C9DD0A72EACEF75DD5F1DF0BB67B4209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ One Piece Burning Blood (2016) [Ru/Multi] (1.06) License CODEX
 ```bash
 magnet:?xt=urn:btih:B4789CE9B1074C0A0923A86F66B3A8780D10FEC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B27D4E11106B1802A2773EE902B7DD8124CD8DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота [patch] (1.24
 ```bash
 magnet:?xt=urn:btih:7D721F2BFC76E7E289240B2FE39F13967DDFEA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:320B0219CC268E5D85C76EF558E15793B91CD419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ The Underground Man - дебютная инди-адвенчура от Ильи
 ```bash
 magnet:?xt=urn:btih:480455EF573BA6326F074BC5A988796ACD5048D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:634576642D9AD5AC7BE26F551E99DE2BB6ACD2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Windows 7 Pro SP1 x64 Jaws-17.0.2211-rus для незрячих. 2016.09.01 [Ru
 ```bash
 magnet:?xt=urn:btih:396E7B3F4DD2A7C8EEE1DE7DDD0FA42278EDC7F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6849BE8400C9DAC5262E3F6CA0C11897C39803BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:6B2AEF2A50D1110C2D5871A259574BB0728BA07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F1224889383A1C7E0B8900299894AB3373220B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ VA - Sunshine Live Vol.58 (2016) [MP3|320 Kbps] <House, Electro House, Vocal Hou
 ```bash
 magnet:?xt=urn:btih:E86BA41CD833B8F8140EA0892E83AAB4D7BE510D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ VA - Clubbing Magnetic Love (2016) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:42DA2E0585A429D9160D6D6A7E1CFF6A0BF71E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ VA - Global Player Ibiza Vol 2 (2016) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:DBF799757461DC907478AEFC898A811F8DD60097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ VA - Professional DJ More Ultraversion (2016) [MP3|320 Kbps] <House, Club, Dance
 ```bash
 magnet:?xt=urn:btih:3E0CA7358C40522A3FCD70EC825E3902D881FC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ VA - Club Hits In Bossa Nova (2016) [MP3|320 Kbps] <Bossa Nova, Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:3E1A845DC3069BDF5D4B2F00FC8B8D38E69FBB96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ VA - The Last Moment Summer Compilation (2016) [MP3|320 Kbps] <Techno, Minimal, 
 ```bash
 magnet:?xt=urn:btih:8CFBA9A88487A892BF21462A40969A980DFC312A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C25DB797441F7414D7D325A4B8078D6CA886FC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17FE40479E153E358720802EC2BF5D5DA6C1BFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:3D07B41DD2F0BF6DD39D345A3CB5FE3CD33B0F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

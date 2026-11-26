@@ -19,8 +19,7 @@ Lucid Dream — история о маленькой Люси и её путеш
 ```bash
 magnet:?xt=urn:btih:BFB1E59D4AD12CAFED1F2AAF5F96D450F0895BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

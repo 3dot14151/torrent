@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D8415DD19EB69DE223178CEB29FC166DBDDEC09A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Woodturning — высококачественный журнал по стол�
 ```bash
 magnet:?xt=urn:btih:1DC7F97513BE51526F7CF95A700E67658814C438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96A0A5B75A36023E48D5183BEB72CDAE40907EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Woodcraft - издание, целиком посвященное столярн
 ```bash
 magnet:?xt=urn:btih:14F4D642BD0411EFA84CAB6285C18AFEAB3EA353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5511A5381B192B2FDD16FD10F30D2FA1E7EB3713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

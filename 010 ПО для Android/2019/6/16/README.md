@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:83C326322BCAB79F32F7E3BBD04A1D0EA3E73E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VidTrim Pro является редактором видео. Она включ�
 ```bash
 magnet:?xt=urn:btih:B84E76270F2829DF57B7E6432CBDA606B7A73DF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

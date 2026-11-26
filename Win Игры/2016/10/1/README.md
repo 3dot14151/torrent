@@ -19,8 +19,7 @@ Masquerada: Songs and Shadows - это тактическая ролевая и�
 ```bash
 magnet:?xt=urn:btih:6CF500AA292B2A8C65C771CDAE412C29FC22C4F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unaided 1939 - хардкорный шутер с видом сверху и э�
 ```bash
 magnet:?xt=urn:btih:131E339D0A231EBB897DC73D60EACC055BD9A3D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Firewatch — игра о взрослых людях, ведущих взрос
 ```bash
 magnet:?xt=urn:btih:BD6C6772E71BE5E63A395EDC39857400615AAFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

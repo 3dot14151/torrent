@@ -19,8 +19,7 @@ IPTV Pro v7.1.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:657497FBC4D2A092068D823AE11AED0B5C28850D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Strava: бег, велоезда, хайкинг v347.5 Mod by ReVanced Team [Ru
 ```bash
 magnet:?xt=urn:btih:4301A746DAC9D7E3AEAE284B9288AF2403294B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:FA366D006A0F55BEE06CE24593533FB37790388A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

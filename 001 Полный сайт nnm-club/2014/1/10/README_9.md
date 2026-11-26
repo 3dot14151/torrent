@@ -28,8 +28,7 @@ Farmington Hill - Bridge To Nowhere (2013) [MP3|320 кб/с]<Alternative Сountr
 ```bash
 magnet:?xt=urn:btih:1BC3C4C2BBAE885C8D0A88FC26C9B6D65BA528A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Alcest - Shelter (2014) [MP3|192 кб/с]<Shoegaze, Dream-Pop, Post-Rock>
 ```bash
 magnet:?xt=urn:btih:526670B5F8E82B7C81ADE8F918A8ACE880856EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ VA - First Choice Trance (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:BFEF59F25EB09EED7BCAE55179C8368D5F959D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Burden Of Grief - On Darker Trails (2001) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:CDECBAEED595B6322AB32B977EC0D7B04012CC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Pushing The Sun - House Of Lights (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A130614BCDFFFCE06A3FE2541782B6B9CA9834D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ While The Heart Becomes - The Sinking (2013) [FLAC|Lossless]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:03B01061481FF79B43C14A3C07B9296656A8F575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0D3A17CF2D06C20E7B1B6FF56B5F0CE0BEE0877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Enrico Rava Quintet - Tribe (2011) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:3285EABBEE8C734C2D58AB2A4AD74C087CF66490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:022AB7826E2732FF0347D2766C30C035E21304C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ VA - Trance Eve Volume 62 (2014) [MP3|320 кб/с]<Vocal Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:ED9DB3A3440A2BCED7C3DE7CF2AD0E25E5EE6956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +371,7 @@ VA - Sacred Spa Music Series. Touching Beauty (1999) [APE|Lossless]<New age>
 ```bash
 magnet:?xt=urn:btih:77C43E70301FBE31478C001FC5893FD29317A82E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +404,7 @@ VA - Bridging The Gap (Compiled By Dynamic Range) (2013) [MP3|320 кб/с]<Full 
 ```bash
 magnet:?xt=urn:btih:323EED363935AEFA8188140A05B1144AC28D401D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED7DCF13F1426C1E3C266096C42567E84D681191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +463,7 @@ The Polyphonic Spree - Yes, It's True (2013) [MP3|192 кб/с]<Indie Pop>
 ```bash
 magnet:?xt=urn:btih:AD0534E9764CB6523FEB29123DA5E2C5822F3013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +497,7 @@ Glen Campbell - Ghost On The Canvas (2011) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:D66E7808C40B05FC8D3753D758E1BCF83E35DBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +531,7 @@ Chris Botti - Midnight Without You (1997) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:AEE96DBDD883BE1E8ADD414A5BB5685730DC9153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +565,7 @@ Denis Solee - Sax and Romance (1998) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:7F400085BAFC94A836DCF2EAD26EAAA95D6464DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +595,7 @@ Sebastian Hardie - Four Moments (1975) Remastered /2004, Polydor/ [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:F86616EAEC5818A6BB53243134D2B366C0274EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D053B154D8FB3B22EE92F922867FE24A607859DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +656,7 @@ Oliver Scheffner - Summer Lounge (2012) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:0CA5604CCD0073CFBF82423BDC19CFD7CF489EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +690,7 @@ Robin Meloy Goldsby - Magnolia (2013) [MP3|320 кб/с]<New Age, Instrumental, R
 ```bash
 magnet:?xt=urn:btih:F0BE53629B4523D04CA063C08325014AB9F810EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +724,7 @@ Written-By – Gowen, Clyne
 ```bash
 magnet:?xt=urn:btih:D102BCD5FFB602E11A7F073D1EBCBE3CA27B0C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +757,7 @@ Vergeltung - Exploration Of Space (2012) [FLAC|WEB-DL|Lossless]<Industrial Metal
 ```bash
 magnet:?xt=urn:btih:9FA13C9C54CCB1D2C4AF91B669EC4A43AF61828D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +786,7 @@ Akasha Experience - Lostwithiel (2014) [MP3|320 кб/с]<PsyChill, Ambient, Dub,
 ```bash
 magnet:?xt=urn:btih:D66A990BE84E8ACF3898B84E7FBAE1336E547623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -838,8 +813,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC5A59C851FB8272B6B4F80591BE75F8C0433157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

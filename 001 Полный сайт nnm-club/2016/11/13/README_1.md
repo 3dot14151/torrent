@@ -19,8 +19,7 @@ Mocks поставляется с встроенной коллекции гра
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - New Years Eve: Dance Party Package (2016) [MP3|320 Kbps] <House, Disco, Dan
 ```bash
 magnet:?xt=urn:btih:2278914262219A946551632FF7333BE1AA684C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Subset - Dub Forms (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:F2472FA47042E9402DADEE04AB13A6DACA347C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62B6FB84DBFCB4EEF697E02D5A9873BAF6AC9ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ The Mike Theodore Orchestra - 2 Albums (1977,1979) Reissue, 1998, Westbound Reco
 ```bash
 magnet:?xt=urn:btih:E3C0BC82623862A8F764B6344588D034ED4E6329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54EE3DA532584F141F1AF417E8D18654FA193014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Dog 'N' Style - Pub's Calling (2016) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:C678DC46D58D6428E05D17FB1A7EFEE2805612CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Stryper - The Covering (2011) [APE|Lossless|image + .cue] <Hard Rock, Heavy Meta
 ```bash
 magnet:?xt=urn:btih:FBD42E07926000EAAF7F03971903250448CC8574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ The Blues Vision - School Blues 195 BPM (2010) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:B1DCFB3D06722F811EED1BE224DB77FC3C450116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ ESP (Eric Singer Project) - ESP (1999) [APE|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:144A638F3B08385D4C2F814B9E68F3C845313CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E5F067A9CF9A4F204E2A2B89EB1412BAB09E61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Biopsyhoz (Биопсихоз) - Касание (2016) [MP3|320 Kbps] <Alternati
 ```bash
 magnet:?xt=urn:btih:8975A4099442FBFF7CA0F973C875A63FC0231369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Rupert Gregson-Williams - The Legend Of Tarzan (2016) [FLAC|Lossless|tracks + .c
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ WISIWYG-редактор - “что видишь, то и получишь”. 
 ```bash
 magnet:?xt=urn:btih:D9FB52B52DD8F234259CDAE29218803F807E4827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Urbandawn - Gothenburg Cluster (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:758D14681BD55A19F6A3401D9E1A832329F82BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5997220AF752442380480B72FE2CA3FE5F666052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Paolo Conte - Gong-Oh (Best Of) (2011) [FLAC|Lossless|image + .cue] <Jazz-Pop, V
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Papik - Music Inside (2012) [FLAC|Lossless|image + .cue] <Vocal Jazz, Nu Jazz>
 ```bash
 magnet:?xt=urn:btih:D58C2898E56053406EDD85EA94767ACE8BABE1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Markus Schulz
 ```bash
 magnet:?xt=urn:btih:FD319DFF4946800876B368C54D7F564F30551488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Claudia Bettinaglio - Saving All My Love - A Tribute to Tom Waits (2001) [FLAC|L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ Paolo Conte - Paris Milonga (2000) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Voca
 ```bash
 magnet:?xt=urn:btih:B08F52174DB237A9031F72A6DF639941EC785180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Vectoraster  - программа для создания векторной г�
 ```bash
 magnet:?xt=urn:btih:A8B4DF5879B0EBDDD8B589BE530D360A965A90A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ Paolo Conte - Psiche (2008) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Vocal>
 ```bash
 magnet:?xt=urn:btih:BD2295AF55F6999040D2BCEB1872347857DCFD71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ NetNewsWire - один из старейших и самых популярны
 ```bash
 magnet:?xt=urn:btih:0B18DCFD2D2178055D466C4A221CBE492B24C4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ Papik - Papik Presents: Cocktail Martino (2013) [FLAC|Lossless|image + .cue] <Vo
 ```bash
 magnet:?xt=urn:btih:51F9EFB69238690CF44DF9B81E70492A6C029BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

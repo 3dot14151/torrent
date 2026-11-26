@@ -19,8 +19,7 @@ Midnight Club 2 [Ru/En] (RePack) 2003 | VANSIK
 ```bash
 magnet:?xt=urn:btih:1157A28236A207257BDACFBEFFAB8C2F715E3579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5C5D73295EACFB90311E6F7C160193003174D434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E7AED933D12FBD2600C22D9372C3B36937C73BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ella Eyre - Feline (2015) Deluxe Edition [MP3|320 кб/с]<Drum & Bass, Pop, R&B
 ```bash
 magnet:?xt=urn:btih:883B64B49EBA2DBCC8CE8225CF0017B9A349B54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A5E15A87C1055EDA5429CD6937CDC8089FECFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ FileZilla - программа, предназначенная для загру
 ```bash
 magnet:?xt=urn:btih:A64508FA76BAD9DB511E0C655535CBE74E4807A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42538E2D3A51771C0D1EB74AF81C604BF677A9FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Mendelssohn - Квартет № 4 для двух скрипок, альта и
 ```bash
 magnet:?xt=urn:btih:6F9112F1269A76803B232570FD2B795A0E1B2C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA8EB4A98326D103D34768D610D5CCABEFFBAE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D01204945CDF555822BF74B21B14CA16A9C69C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ VA - Progressive Essentials 02 (2015) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:921D9D42811714E4933CD449F3D1CCC1B70D2BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ DJ Feel - TranceMission (2015) [MP3|320 кб/с|tracks+.cue]<Trance, Progressive
 ```bash
 magnet:?xt=urn:btih:60528F733580C4E28C1145B37D7AE2F6E01F3759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Phildel - Qi (2015) [MP3|320 кб/с]<Piano, New Age>
 ```bash
 magnet:?xt=urn:btih:62D594D4419E9FB05B193C5D1A6692B5D3746BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ VA - Vocal Trance Anthems Extended Vol. 1 (2015) [MP3|320 кб/с]<Trance, Vocal
 ```bash
 magnet:?xt=urn:btih:D149C177A5646B26A94039562C3A1509F49A52CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4C8D5ABC08945A471576D0DBA9DE09553F55CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Chris - Days Of Summer Gone (2013) [MP3|320 кб/с]<Art Rock, Prog Rock, Sympho
 ```bash
 magnet:?xt=urn:btih:A61A7381CDC9E1E813FBE1C9D69798CBD2979B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06F731C0FD4FF55F6428C4CBA384EADB7AD20BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ FileZilla - программа, предназначенная для загру
 ```bash
 magnet:?xt=urn:btih:64FA1ECABB8E36BD1C9BD89F65A744F453FD04E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ VA - 15 Years Of Technique: Summer Selection (2015) [MP3|320 кб/с]<Drum & Bas
 ```bash
 magnet:?xt=urn:btih:A44924ED2570B6340AA982031169CAAABDADCB7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ Global Metro позволяет пользователям получить до
 ```bash
 magnet:?xt=urn:btih:350BF80B24E667F88EC3C58FA4FC0D71F9A3D3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ VA - Pop Dance Maniac (2015) [MP3|320 кб/с]<Vocal, Dance, Club, Euro>
 ```bash
 magnet:?xt=urn:btih:782E4631DE0276920FEA311DB334DAD4127DE6C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:150503EEBD40BC362B72433FEF0ACD9D190F85E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:573B3970623AEBA189DCD7AFA2991E97FD4717B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ Shooglenifty - The Untied Knot (2015) [OGG| 462-531 кб/с]<World, Folk Rock, C
 ```bash
 magnet:?xt=urn:btih:AD935525C7E75128C7BC60AF541AD5CB1AA44F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ Black Light Burns - Cruel Melody (2008) Limited Edition [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:EBEFFEC15F5EFED138058D241A1F9E29B590C6EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFB2F8C5798DD4203A93ABBC2F1D1948CB9FC44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

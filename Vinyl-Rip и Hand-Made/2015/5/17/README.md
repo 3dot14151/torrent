@@ -22,8 +22,7 @@ Rush - Power Windows (1985) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5D85B81C1A8478E7E3968C461B8E0433B3052FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

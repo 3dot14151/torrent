@@ -19,8 +19,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (2018-02-22/dl
 ```bash
 magnet:?xt=urn:btih:C3CB72E65EB632E7A4E147150773328BD1F7D9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Booze Masters: Freezing Moonshine (2023) [Ru/Multi] (5150) License GOG
 ```bash
 magnet:?xt=urn:btih:C79B27E7DB927003C1CF9E0E550BD0206E81ECE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Faraway Land – симулятор выживания с красивой �
 ```bash
 magnet:?xt=urn:btih:C9211E4A6C6F1102A4F4BCC00C6BF6C7F1EAE417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ About a Boy – приключенческий квест с набором го
 ```bash
 magnet:?xt=urn:btih:75F35C8FAA8BD3607397FE602F4AB752B6229376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Ditzy Demons Are in Love With Me – двухмерная визуальна
 ```bash
 magnet:?xt=urn:btih:7BA709C3BCB389A5080FA665C62B9F4B6FCC63C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

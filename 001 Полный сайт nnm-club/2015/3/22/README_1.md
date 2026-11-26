@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3332D88296F9CDB80F238A1456ABE9AFBC686482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Korn - The Paradigm Shift (2013) Japan Deluxe Edition [FLAC|Lossless]<Alternativ
 ```bash
 magnet:?xt=urn:btih:B68EEAF8D515E002BEAF9FAA76A959DC1F5125C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ WinMend Registry Cleaner - мощная утилита для очистки р�
 ```bash
 magnet:?xt=urn:btih:D1C89074EB18A8AE1E5F6BA853738B27FC70A182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:97195FAC1BC01EF926358330A049B8CB0A0FC728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Deep Purple - Live In Long Beach 1971 (2015) The Official Deep Purple (Overseas)
 ```bash
 magnet:?xt=urn:btih:552A6673D740B0DD722C05E4F99AB8B2D2A81CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ VA - Hits Hiver (2015) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C09CDEA13C129E76F78E71E36D10190DD2FDE499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Bladeslinger 1.4.0 [En]
 ```bash
 magnet:?xt=urn:btih:4D1F8CB400DE942E088A20C6A3B20828D1E02765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61413C0A3AF3D94A63CD01075FFCE01E4EAF118C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64A6E078714A71B484EC9E2DBD4149034F4244CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Enej - Paparanoja (2015) Special Edition [FLAC|Lossless]<Alternative Rock, Folk 
 ```bash
 magnet:?xt=urn:btih:24C6FE0D77AD643D83F30BC59DACB94E11BC1ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ iSkysoft TunesOver является одним из лучших решений 
 ```bash
 magnet:?xt=urn:btih:C2738A4A2CEE6AA50A2401919AF5C66CD4825349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7498627BD04752A1B152DB2073B1034080593477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ The Secret Order 4 : Beyond Time (2015) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:5A8925D63ECA84BE626A840B09CB44AABC516568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:834EF875CE6CE0C818A31F53AE7133EDD61605D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Yowamushi Pedal: Special Ride / Трусливый велосипедист: О�
 ```bash
 magnet:?xt=urn:btih:16EE9A221E4ED12228BBABD6F6D494123F39E7E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7648C1FDE31FB6C1F9E0B3E90FAB9E2AA377D254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:589A451C90A6A68ABEADDCD11401716B99970170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ VA - Hits Hiver (2015) [FLAC|Lossless]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:180404E853376F1E97826A5350DE981D2FAD7F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A93E247A6CACD21DE7FEE02AAB680D6BCFE2D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:045A2E37CCD201421DACAFA38DCB438A33479C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3421B33B32462ABBC11121FEFCD9C6C14833935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ Korn - The Paradigm Shift (World Tour Edition) (2014) 2CD Japan Edition [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:9DA8697F5AA8ECE76F3EC751D1875DFE569C71F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7F6127737E32FF06C4FC785DAB85FE30370D9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ VA - Kerrang! Presents Metallica The Black Album Covered (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:622AFBA2633616F1963B533B6E7AD5828978EDB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ Cyberfox 36.0.4 for AMD + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:228BC07600CCD27CF45055BAB05D640FB012AB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ UC Browser - мировой лидер среди мобильных брауз�
 ```bash
 magnet:?xt=urn:btih:2B856C462F3D5313F7D307A0F35F04A13DFBFAEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

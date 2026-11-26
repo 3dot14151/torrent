@@ -19,8 +19,7 @@ Hetman Office Recovery поможет восстановить важные до
 ```bash
 magnet:?xt=urn:btih:AD0B069868E92EEA88F63E8E5D884D4A124D8207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Hetman Word Recovery 2.9 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1324CC71B9A465D954BF3F9A2654995DC81A2808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Hetman Excel Recovery восстановит файлы электронных �
 ```bash
 magnet:?xt=urn:btih:1DDE7A602DBF6A97ED37E374125E8D1EDF6A8A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

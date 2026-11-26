@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:2FA6DA46B829EAEB9490927E15DB5675E6549121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Linkin Park - One More Light Live (2017) Brazil, 0093624907923, AB0001000 Pressi
 ```bash
 magnet:?xt=urn:btih:DB6A94243FCC6591B1BE86BA880F5A5E8FC33F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Linkin Park - One More Light (2017) Argentina, 559687-2 [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:A2DF792B10CECCA23D7090E116B13329621DF2E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Linkin Park - Living Things (2012) Brazil, 9362495048, AD0001000 Pressing [FLAC|
 ```bash
 magnet:?xt=urn:btih:37D61E13DE04DFB9B0DABA2C7205DC2E85EFBA72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Linkin Park - Minutes To Midnight (2007) Brazil, 9362444772, AA0031000 Pressing 
 ```bash
 magnet:?xt=urn:btih:A08791A884C1206242A1437888F061A74E357B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:BAEF9532E153F30DA0BDA2272A267A3F2E471ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

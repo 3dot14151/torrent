@@ -22,8 +22,7 @@ Iron Savior - Live at the Final Frontier (2015) (2CD) [FLAC|Lossless]<Speed / Po
 ```bash
 magnet:?xt=urn:btih:C70E9C5D7E41CED215D06ECEC65AE6AFE16BCF21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Leprous - The Congregation (2015) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:C7678EB2C9BD7940630FE42CE9E98C180A1E55FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

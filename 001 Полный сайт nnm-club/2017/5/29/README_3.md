@@ -21,8 +21,7 @@ E-Clip - Biointegrated Design (2017) [FLAC|Lossless|WEB|tracks] <Progressive Psy
 ```bash
 magnet:?xt=urn:btih:370E851C09E2CDA76A9EB90631E84E2246B1AEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Any DVD Ripper - простой в использовании программн
 ```bash
 magnet:?xt=urn:btih:850594B07714F7529CC76B3227FD5C4F5AC75286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Ferry Corsten - Blueprint (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:F764740DCFD2BF87B78120C44D44DA14247BA1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:251A0C8F0F3D55706994FF6EE3FB31AB3FB72AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F0587D21D9D973C7720132671AE5C05F2B45ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instr
 ```bash
 magnet:?xt=urn:btih:196DFF8DCC450A07A96E6450F9EA7C0E24191D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Barrows - Obsidion (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:8E7991C6805D1D6E1A863AD5719C0F896C303431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB1FA447658587EE4EF6282F1A11E655DBD9FBB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ VA - Techno Club Vol. 52 (Mixed by Talla 2XLC & ReOrder) (2017) [FLAC|Lossless|C
 ```bash
 magnet:?xt=urn:btih:926794AD2B4AE62C9F1473224E0C7025FBB82D1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ George Frideric Handel - La Maga Abbandonata (Simone Kermes & Maite Beaumont / I
 ```bash
 magnet:?xt=urn:btih:7A9B4AC34D5B30F07CF89F698B45D9BD2BBB7AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ VA - Dance Hits Platinium Colection (2017) [MP3|320 Kbps] <Pop, Disco, Dance>
 ```bash
 magnet:?xt=urn:btih:ECD1DBF1FA830AC3EC1A9CC0C65312933243FA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Solstafir (Sólstafir) - Berdreyminn (2017) Deluxe Edition [MP3|320 Kbps] <Post-
 ```bash
 magnet:?xt=urn:btih:8FE075BA98EBD9199A5B40D75EF256FA5F207310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Русский отрыв Русского радио выпуск № 9 (2
 ```bash
 magnet:?xt=urn:btih:8841A22464CDE731EB150A75D5416AFEFA0DFCF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA2C53F9C090F1FEFEFB8C8A77A0811A52082646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F91DAF9F41E0E9376DEE56C4B01B040B4FB74CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Path Guide v1.0.0 [Ru/En] - создание маршрутов внутри п�
 ```bash
 magnet:?xt=urn:btih:DC1F111980703E414FB9DB5413EF22B7B4E8A4B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:855A7FB25AC1750B3620F02692C797BDA1C959D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2217B1BC5BCEB7643BAEBA371E5F86F67D02F31B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC656B4BD6B578C52BDD72B68E97736C13C19FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:19C83788FA3C821A54896CC4D8D852C8304BE0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B64CB91CBEA423826385DC15F6DCC9FBAB4CA48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A685EED1B3C158548AF2BE32381D925B34A71455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ Ovnimoon - Voyage (2017) [FLAC|Lossless|WEB|tracks] <Psy-Trance, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:0D607A3836B7C78FBD0E8B2C3C256E1DFE70A19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED80F3ABE49A46C28D40F173BFFA71E306208287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ Any FLAC Converter - простой в использовании аудио FLA
 ```bash
 magnet:?xt=urn:btih:55F79C2CC07C0FC9382CD4CF43B557FF458A3A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

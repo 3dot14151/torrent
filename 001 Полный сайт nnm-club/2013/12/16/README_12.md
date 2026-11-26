@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ CARDO - Row EP (2013) [MP3|320 кб/с]<Drumstep , Bass , Glitch>
 ```bash
 magnet:?xt=urn:btih:22402BCA45883FEC2998DF994E9DDE572C6FEF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ VA - Trance Maniacs Party: Progressive Session 2013 (2013) [MP3|320 кб/с]<Tra
 ```bash
 magnet:?xt=urn:btih:3C42C47E1005058EE1447865990733DB2DD7B106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ VA - MyLikes. Volume 1 (2012-2013) [MP3|128-320 кб/с]<Pop / Club / Dance / El
 ```bash
 magnet:?xt=urn:btih:CCFE6B5D20356E2C3B8AEC7A44AF5556B61BDC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ The Gone Jackals - Out And About With The Gone Jackals (1990) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:F958FFD706C19B81EC6564631AC070C3DE86748C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E9193F0CAF27C2EA7E3A736190A5764D40B39A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9066678E90C0795DE4627CF403AE1D0F06E0862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ VA - Trancern 2013: 3LIME Official Compilation (Best of 2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:D877FFA5D363D60CFC5988D2F48677D33C115FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Protox - Creation [EP] (2013) [FLAC|Lossless|WEB-DL]<Progressive, Techtrance>
 ```bash
 magnet:?xt=urn:btih:49C37E150AC902FCE3E3FF83C93589804835C414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C028E43922432392CE6D98753AED6CB11FD086D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D182898CC2D2D8AF7D61EA11D49A14E48D29F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ Tim Janis - American Horizons (2005) [MP3|320 кб/с]<New age, Instrumental>
 ```bash
 magnet:?xt=urn:btih:5E16041BBA27E2A932ED9D53E1647C420CCC9641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ Yahel - Architech (2013) [MP3|~245 кб/с (V0)]<Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:0B27796003FCC9BA95F4C025571ECFA761A0C8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +453,7 @@ Seven Lions - 1 Albums + Bonus (2012-2013) [MP3|320 кб/с]<Dubstep, Drum & Bas
 ```bash
 magnet:?xt=urn:btih:A6A8EFC97D42D7068E0B69444A3B113C603A9560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +487,7 @@ VA - Perfect Timing (2013) [FLAC|Lossless|WEB-DL]<Darkpsy, Hi-tech, Psycore>
 ```bash
 magnet:?xt=urn:btih:C86854E651CE6C0F567B18F1E960CBAD0D6A53E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +521,7 @@ VA - Raja Ram's Pipedreams Vol.2 (2013) [MP3|320 кб/с]<Psychill, Psytrance, A
 ```bash
 magnet:?xt=urn:btih:874E288D08B9D09936FCBAC7620BE1FB97439991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +555,7 @@ VA - Macarize Presents: Hazem Beltagui 01 (2013) [MP3|320 кб/с]<Progressive H
 ```bash
 magnet:?xt=urn:btih:0AE3D91061FB9B8DDC5B91293E455443C038F06E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +588,7 @@ PharaOm - Under The Sun Of Goa (2013) [FLAC|Lossless|WEB-DL]<Goa>
 ```bash
 magnet:?xt=urn:btih:0C2D4A1C5E5F6642E1BF7A6ABB108D5C7CCC2751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1374E2BB52C944D7DC2198A5015D701C98FFC45F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +647,7 @@ VA - Country Club Lounge (2013) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:3460641728E554D0231C040A0F0C125F3ED42312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +681,7 @@ Bonus Tracks
 ```bash
 magnet:?xt=urn:btih:28B61EADB3C16D57F0B72346E685C8CB2AD42E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +710,7 @@ Offline обновления для Microsoft Security Essentials (16.12.2013) [
 ```bash
 magnet:?xt=urn:btih:1D828A58B47799F714AFD6169B3FFE96FF0BF7E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56AA108F910B50C2356B241A57C5324BD0C48BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +769,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF6FC4175A7180CCC7BD6B0C7D11FB4DA45C8916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -828,8 +803,7 @@ VA - Best Chillstep Collection (November 2013) (2013) [MP3|320 кб/с]<Chillste
 ```bash
 magnet:?xt=urn:btih:512C08B6F9028816DFAFABF0BCF8A386C418EA54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

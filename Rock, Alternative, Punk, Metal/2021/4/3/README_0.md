@@ -22,8 +22,7 @@ Manntra - Monster Mind Consuming (2021) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Folk M
 ```bash
 magnet:?xt=urn:btih:AF02CAB8201BE67FC320F0AC4C3B010D6D6C2BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Junk - Drop City Souvenirs (серия "Другие восьмидесятые"
 ```bash
 magnet:?xt=urn:btih:D397CD98601C86949354FBA9F5EEA48E2CA02BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Witherfall - Curse Of Autumn (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 ```bash
 magnet:?xt=urn:btih:A555B3FCBED4826936ACD531AA67AD67E943CE5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Harry Chapin - Cats In the Cradle (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock Fol
 ```bash
 magnet:?xt=urn:btih:BC82A84022679EBF8BB0145397E6B1F544E54D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Maverick - Ethereality (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:A666A107C5AAD9D618331B64D6782B1826EE9CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Written-by – Kerslake, Jacobson(   Читать дальше...   )Жанр: C
 ```bash
 magnet:?xt=urn:btih:1D299F0C5E3301A518454C55CEC43950E736DE8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Il Paradiso Degli Orchi - Samir (2020) [FLAC|Lossless|image + .cue] <Progressive
 ```bash
 magnet:?xt=urn:btih:2593C6B46FA6D7B017015983265AD37DD1E16ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

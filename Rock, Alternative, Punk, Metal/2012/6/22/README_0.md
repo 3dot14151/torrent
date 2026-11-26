@@ -28,8 +28,7 @@ The Arusha Accord - The Echo Verses (2009) [MP3|320 кб/с]<Progressive / Melod
 ```bash
 magnet:?xt=urn:btih:3786548E5CC151254CDB813EB10148A24169A8DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Fenrir - Echoes Of The Wolf (2012) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:992A1E0845A43D8B3B44DFE262AA6217F43A327D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ CD1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Luca Turilli's Rhapsody - Ascending To Infinity (2012) [MP3|320 кб/с]<Symphon
 ```bash
 magnet:?xt=urn:btih:D5B6E55F5EDA74B8E58816AC9A7071D3103C3178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ EyeHateGod - 7 albums (1992-2006) [FLAC|Lossless] <Sludge Metal, Doom Metal, Slu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Black Sabbath - Dehumanizer & Paranoid (Deluxe Expanded Edition) (1970&1992) [MP
 ```bash
 magnet:?xt=urn:btih:48AE3A4E841DBC55A4E09317D3345B7D4D0B7E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ Bongripper - 5 albums (2005-2010) [FLAC|Lossless] <Sludge Doom Metal, Stoner, Po
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:9A6E0526F71AAAA0B5F17DD75865E236953DA284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Anti-Flag - PUNK-PRAYER “Virgin Mary, Redeem Us Of Putin” (Pussy Riot Cover)
 ```bash
 magnet:?xt=urn:btih:577B2707F7E23A60DB0E92FB0ABE569F09EF42B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ Linkin Park - Living Things (2012) [FLAC (tracks+cue)|Lossless]<Alternative Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

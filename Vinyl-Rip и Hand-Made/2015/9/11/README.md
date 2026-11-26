@@ -22,8 +22,7 @@ A4	Блус За Залива Сан Франциско (A Blues For The San Fra
 ```bash
 magnet:?xt=urn:btih:5FFEF3FB9080A47E408374A3E2A816C4A9DBF525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

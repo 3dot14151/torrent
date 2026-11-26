@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C3F429E6A860E05B1C6DF27AE810AEAD3AFC58E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8299597F7F100496CAB9D268A74952D4DEB4078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9850B7469C63C66B2F0678FA17E617ED07C3687D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Comedy Баттл. Суперсезон. Лучшее. Выпуск №1  / Ко
 ```bash
 magnet:?xt=urn:btih:9FE8C5814720B644CE727618BB25A5A6A115AB7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Darkest Hour - Darkest Hour (2014) [MP3|320 кб/с]<Melodic Death Metal, Metalc
 ```bash
 magnet:?xt=urn:btih:39700FB417715C91EB39484C3056F577BE65A300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Atli Orvarsson - Охотники на ведьм / Hansel & Gretel: Witch Hunte
 ```bash
 magnet:?xt=urn:btih:8C21FEBA61FD717886D0B3C96943CF6C18080F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ Neopera - Destined Ways (2014) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:16E361DAB8CBC60018D995E255F571AE88C7A3B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1642A70ABC2D875FEBE23D34A60A24FDD92086C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18AEA965BFA0B52C8E7B422953CB3AC8511846C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ Jon Allen - Deep River (2014) [MP3|320 кб/с]<Classic Rock, Acoustic>
 ```bash
 magnet:?xt=urn:btih:601970A03CD862B67172AC9EAE56CAC247761D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ Louis Armstrong - Blueberry Hill (2000) [FLAC|Lossless]<Jazz, Vocal Jazz, Dixiel
 ```bash
 magnet:?xt=urn:btih:F3E21EA21D5EA3D961399E88345BBFF3E9E4479D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Point Blank - Volume 9 (2014) [MP3|320 кб/с]<Southern-Rock, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:12F9497E501963850C94832EAF98A4A2EC3CE692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ Benny Benassi feat. Gary Go - Let This Last Forever (Remixes) (2014) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:ABE30D68C771763737992CE7CAF8655BDCA35A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ In Hearts Wake - Earthwalker (2014) [MP3|320 кб/с]<Metalcore, Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:981840528DF8A0CB9241EA1846E2AFC7E054FD43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FC01A9CDD472B19ABD0E09A16A353FD46F831CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ The Extras(   Читать дальше...   )Жанр: ScoreПродолжит�
 ```bash
 magnet:?xt=urn:btih:D03A503CFD7A19F453178294CBA2BE478F6D320E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4908B3DE8A72AF0CB3757E34480B74CA33473E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ Puss N Boots - No Fools, No Fun (2014) [MP3|320 кб/с]<Americana, Alt Country,
 ```bash
 magnet:?xt=urn:btih:1166F6C11F2BE1D9C6FC05BE648D0D0F068F7EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ Charlie Clouser - Мёртвая тишина / Dead Silence (Original Motion Pi
 ```bash
 magnet:?xt=urn:btih:82F8FA3E40A4B35F979A5EA01B9CEFF87FB7BEF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ Prometheus - Dj set from Ozora Festival 2011 (2011) [MP3|128 кб/с]<Psy Prog>
 ```bash
 magnet:?xt=urn:btih:2992BACCF2DCFBDA1F88F6800B87E87AD9748C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBFEBF0DF59A0BCCB9C274C494686E8563C1FBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EF6D3EDFC3450104A421E582EDC250A91A6DA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAFA2BCA88C62963F8C90B2E826C7127330C2300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DAF81F1DC9A2066996A5C88B7359D5534093702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ Comedy Баттл. Суперсезон. Лучшее. Выпуск №1  / Ко
 ```bash
 magnet:?xt=urn:btih:5DE3D5625E405AB5E7FA615A588A2E9FEBAC95D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FIFA 07 (2006) [Ru/Multi] (1.00) Scene iMMXpC
 ```bash
 magnet:?xt=urn:btih:DA175059B9FC5D3C3B46DD5026DE7CD67ACEB1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

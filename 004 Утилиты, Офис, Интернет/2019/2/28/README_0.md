@@ -19,8 +19,7 @@ Eltima Recover PDF Password позволяет подбирать пароли �
 ```bash
 magnet:?xt=urn:btih:CCFCB322E5D529C204C4976F73AC35BF5CE7956A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Movavi Screen Recorder (ex. Capture) Studio - программа для захв
 ```bash
 magnet:?xt=urn:btih:BF7DCA37B4C31EAE6D449EF2DB702E60FC189F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

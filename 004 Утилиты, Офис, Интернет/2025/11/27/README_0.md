@@ -19,8 +19,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:30CA18D6AD9CB811C604C9175A71566540EE207C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Screaming Frog SEO Spider 23.1 — индустриальный стандарт
 ```bash
 magnet:?xt=urn:btih:4D56643142E412C4170B0862FD2B898D35C0315B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Opera One 124.0.5705.65 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:19412E0C6AEF93029AE7443423216DE3E832B1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:7B3F7A4543E694BE985CCD60DF8DBAF5EF7EEF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ OCCT 15.0.8 Portable [En]
 ```bash
 magnet:?xt=urn:btih:62E67148FDF44DA7BFB324FC5077544ACF112698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ MediaHuman YouTube Downloader 3.9.18 (2411) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C9FD85DA30539FA4F768439FF5918A8537539318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:E706A856A601A0C3B4AB9590F176820D84DF8946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:B2D369EB24930A776E91359072EA6961CB7B19FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ R-Studio Network 9.5 Build 191645 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:60AECACE98E4235274893EB63090DBF39667C3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

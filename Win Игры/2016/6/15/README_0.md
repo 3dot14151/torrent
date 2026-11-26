@@ -19,8 +19,7 @@ Flying Tigers: Shadows Over China — авиационная аркада, по�
 ```bash
 magnet:?xt=urn:btih:4CF91CB5875C07ED261763996B054523DCEB8717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

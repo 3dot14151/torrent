@@ -19,8 +19,7 @@ Nyan Cat: Lost In Space (2015) [En] (1.0.1) Unofficial ALiAS
 ```bash
 magnet:?xt=urn:btih:AF06744A12FA72AD1825BA1A825F6BB099B7C4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DARIUSBURST Chronicles Saviours - новая игра в серии аркадн
 ```bash
 magnet:?xt=urn:btih:1364966DEB0B109F6A54F9021C35B95F6D85C6AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Inversion (2012) [Ru] (1.0.1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:F212498F3D871819AF4E38DF5EA6619762EB8703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

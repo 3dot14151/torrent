@@ -22,8 +22,7 @@ Plen - Состояние ночи (2025) [MP3|320 Kbps] <Emo, Shoegaze, Grunge>
 ```bash
 magnet:?xt=urn:btih:05249E9F71965596C0756A0F8E17C75DAA97FE23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Telepathy - Transmissions (2025) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:CABF13FE95BA4B807610A9C6241D2A119D1EEA3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ NightKill - Survive The Night (2025) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B6B74538E4237F518E7D57075AB01A717F39D898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ CD5, CD6 - Dying To Live Forever Summerfest Broadcast Milwaukee 1993Жанр: Pr
 ```bash
 magnet:?xt=urn:btih:F3C56068E5B599190D6B3EAA6BBEF86F9FB391C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E026ECAB678E139E8B8D2A4465560B4639B3A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Aborted - Vault Of Horrors (2024) [APE|Lossless|image + .cue] <Death Metal, Deat
 ```bash
 magnet:?xt=urn:btih:1EE1565F050C714BF7380C6A8F78C557BBA89A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Mark Morton - Without The Pain (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Count
 ```bash
 magnet:?xt=urn:btih:2ED588A1150CD2842D2A19CE5FBD7BA536D50146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C0C5014EA7408EBBDD1A42CB939CF0867D9F032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:666165AE967B885A9634424C567F731CA270AF4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ polnalyubvi - Прощай и люби меня (2025) [MP3|320 Kbps] <Alternati
 ```bash
 magnet:?xt=urn:btih:CC88AF58F8C1979B0DB8C860664B781148555BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

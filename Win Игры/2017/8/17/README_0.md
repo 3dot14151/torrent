@@ -19,8 +19,7 @@ Fear For Sale 10: Hidden in the Darkness / Страх на продажу 10: С
 ```bash
 magnet:?xt=urn:btih:C1966FFD9CD1268F6A0726B9D5C2CC0BDA070D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hunting Simulator — симулятор настоящей охоты, в ко�
 ```bash
 magnet:?xt=urn:btih:4745B915F9D8271DB8366846137E65AB0994BB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hunting Simulator - симулятор настоящей охоты, в кот�
 ```bash
 magnet:?xt=urn:btih:B379A397FAE703F52E61AAA2279C13B3D7FB144E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.0.536) Repack Covfef
 ```bash
 magnet:?xt=urn:btih:EF7A9BAAFDEB097E12BF902BBB54F78ECD011FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Long Dark - хардкорный симулятор выживания в б
 ```bash
 magnet:?xt=urn:btih:604560B359E767160494D0B2F1AE212ED8EF16F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

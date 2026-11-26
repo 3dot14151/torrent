@@ -21,8 +21,7 @@ OpenMandriva 2013.0 Beta [i586, x86-64]
 ```bash
 magnet:?xt=urn:btih:86E5A5DEF3D351BFB45809E424E192EDBA1F47DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Manjaro Linux 0.8.7.2 (Arch + KDE) [i686, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:47F3DF7DCF981A2DE0E92DB14AD4A775900886A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

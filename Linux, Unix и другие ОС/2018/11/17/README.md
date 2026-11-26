@@ -19,8 +19,7 @@ Arco Linux - это дистрибутив, сочетающий в себе м�
 ```bash
 magnet:?xt=urn:btih:D23B590375CE92F3350D40CBAD8C4E26FC620170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

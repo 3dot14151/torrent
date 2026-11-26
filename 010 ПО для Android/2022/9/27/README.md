@@ -21,8 +21,7 @@ Forvo Pronunciation Guide 4.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:9F211E117C0CB5965142956BCC279AD107686ACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Spelling Master: Spell & Vocab 2.21 [En]
 ```bash
 magnet:?xt=urn:btih:D0467790BE49A0C0A2A5BA498C6010C18EC33690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Cambridge English Pronouncing Dictionary (CEPD) представляет соб�
 ```bash
 magnet:?xt=urn:btih:C1C97F74F98EEB1280E1076294CB115C76BFE94D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

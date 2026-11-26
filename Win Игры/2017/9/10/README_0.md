@@ -19,8 +19,7 @@ Dark Realm 2: Princess of Ice /Темный мир 2: Владычица льд�
 ```bash
 magnet:?xt=urn:btih:2683428FDEB2760560741C6253365DF2D01AF71C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Brotato: Premium 1.3.193 [Ru]
 ```bash
 magnet:?xt=urn:btih:F89BA58CEB608E50753CFE37BBF4BCEC181A77E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

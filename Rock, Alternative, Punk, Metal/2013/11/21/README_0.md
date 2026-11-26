@@ -28,8 +28,7 @@ Hateful - Epilogue Of Masquerade (2013) [FLAC|Lossless]<Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:838AE3FFBB2DA8D094B3801D5E8CF1D6F75CBE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Scorpions - Taken By Force (1977) BSCD2 /2013, Sony Music/ [MP3|320 кб/с]<Har
 ```bash
 magnet:?xt=urn:btih:37E8AAC06B47961B434E0CA6E3301447D0405493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Lunarsea - Hundred Light Years (2013) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:A73DBD75D7C044FEC575BF22D7F1DCB2FCF0EDA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Scorpions - Virgin Killer (1976) BSCD2 /2013, Sony Music/ [MP3|320 кб/с]<Hard
 ```bash
 magnet:?xt=urn:btih:3105EEF9F47D606DCC541B2AA28F5D1C89C6C6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Causa Sui - Euporie Tide (2013) [FLAC|Lossless]<Psychedelic Rock/Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:40E52AADD328B915ACCA2894C1D4A7E9EFC29D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Iyi - Kötü (Dans Pisti) — «Добро — Зло» (Танцевальна�
 ```bash
 magnet:?xt=urn:btih:BB984CC9F2EE51B714C0ADF1FBCEEE080F0F7310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A3F3F6B04906CF6786F3CDB32898D0012ACBA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3617D0095C2CC21509D5A115092C18EAC178BBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:547D65BFD0849551E6AAFC98DE182239CB121531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B6CB9F30FE59A8DF6ADC0D77654B633A52E5F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

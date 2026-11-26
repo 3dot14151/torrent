@@ -21,8 +21,7 @@ VA - Prophet Collection Vol.6 by Manuel Defi (2019) [MP3|320 Kbps] <Downtempo, C
 ```bash
 magnet:?xt=urn:btih:E70EBE0B66CBBC75CAE6B4E666DAEBD2B7D73B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Vanderson - Return to Consciousness (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillo
 ```bash
 magnet:?xt=urn:btih:CA0EF5ED940F549D577EA2270374894B5373B881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Barbra Streisand - I Can Get It for You Wholesale (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:702F4558046930B09A295544D214EFFD74B86656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Ioon Cosmic Downtempo - Brave New Breath (2019) [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:08AC53D2FDDC8135BAC99E5221793B849581842C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Koan - Briar Rose Side B (2019) [MP3|320 Kbps] <Electronic, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:7C5F15972F4136FF09D184AC698C6A6B7861ABFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Colorful Downbeats Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Pr
 ```bash
 magnet:?xt=urn:btih:D5243A5DA9BB4B33B4B369F5344DC7842A92DFF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Long Distance Calling - Немецкая пост-рок-группа, обра�
 ```bash
 magnet:?xt=urn:btih:25493081158FA5862E4752EDDCAF69BA94C2DD91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Claire Hastings - Those Who Roam (2019) [FLAC|Lossless|tracks + .cue] <Folk, Cel
 ```bash
 magnet:?xt=urn:btih:6C193470160CB672D17538CD63F671716DA69271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Bella Technika - Section (2019) PDV Records [FLAC|Lossless|WEB-DL|tracks] <Elect
 ```bash
 magnet:?xt=urn:btih:ED91AE044E3D3BFA27388AECCCB1E84D088EAB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71A15570D5165BC1186216B6DC899BC89C88B0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:505F8EEEFD3AC301FAC2624992F5DDA1A9590D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Dr. Wu' and Friends - Hangin' With Dr. Wu' Texas Blues Project, Vol. 4 (2013) [M
 ```bash
 magnet:?xt=urn:btih:5EDFB0C0144E1185204608FBB19BEF8F3529E6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Nostromosis - My Way (The Next Step) (2018) [FLAC|Lossless|WEB-DL|tracks] <Goa T
 ```bash
 magnet:?xt=urn:btih:A7DD0D1FAF07286B8B7199F95E26ACBF5B427891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Current 93 - Invocations Of Almost (2019) [FLAC|Lossless|tracks + .cue] <Folk, C
 ```bash
 magnet:?xt=urn:btih:DF54BCC2D5296B199E6C6ACBA7EB29B8C2C0A499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ Her - Her (2018) [MP3|320 Kbps] <House, Alternative Rock, Indie>
 ```bash
 magnet:?xt=urn:btih:926A949EF5560E8F78069D1F965E3FC471FCBB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C13B5CF08EFC049AB1C7B56CE09E4EF0903D32BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 ```bash
 magnet:?xt=urn:btih:2B071675DE12060935658DECE090F89686AF780B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AE0D87C4C46D3339B91D43CBCDDBFE09C59A0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C42A931306A1BC3CACB62B6A207B2B26EC53158D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ Yngwie J. Malmsteen - Blue Lightning (2019) [WavPack|Lossless|image + .cue] <Neo
 ```bash
 magnet:?xt=urn:btih:B0164AC1E85B7A3424C75877F70F1BCE863D7B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ VA - 100 Greatest Sad Songs (2019) [MP3|320 Kbps] <Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:87EC59F48E4344851A07201FD6B2D2E079B73F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3657AE6F5D1E6B47C3F25AB7138D88F4F8F3B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ Current Value - Far Layer EP (2019) Othercide Records [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:3C9A0BB5AE7EBCC21EBAA52F98978C2D87C1BDF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ VA - The Ultimate Country Love Songs Anthology (2019) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:2A38DD330EB6A5964627440585F6450F8E1579D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ Product Key Explorer - программа позволяет расшифров�
 ```bash
 magnet:?xt=urn:btih:79A4C447FD26FBF0F04FBF980C80B00021D77C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ The Palladium Singers - 100 Hits from the Musicals (2007) Box Set, 5CD, Compilat
 ```bash
 magnet:?xt=urn:btih:50B5814B873FC469B8181553C458393A2F97C43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

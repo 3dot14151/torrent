@@ -19,8 +19,7 @@ SCP Operations (2024) [En] (1.0.0:73) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FDF2ADB4047B7572F083B57F95E760CF56989C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cryptmaster – здесь вы сможете говорить что угод�
 ```bash
 magnet:?xt=urn:btih:20629DED352634B04ED9AFC0B38A27B6EB2CFBB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sisters: The Last Day of Summer рассказывает историю моло
 ```bash
 magnet:?xt=urn:btih:E17618169AC52E242E958666F0282AD14E24914F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 ```bash
 magnet:?xt=urn:btih:2D827850BA4705F9D7DC3268E988641537F79B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:65062100257BA8B3AEC486981688626E5C5E53BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Zet Zillions – перед вами классический одно-поль�
 ```bash
 magnet:?xt=urn:btih:C3F65E6C2504722839ED01F18A0821E40BA9EE96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Rolling Hills: Make Sushi, Make Friends – это погружение в бы�
 ```bash
 magnet:?xt=urn:btih:0CF4497314F95335D40DBC256CAA366C5324F699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Magic City Detective 5: The Carnival Begins / Волшебный город 5: �
 ```bash
 magnet:?xt=urn:btih:909A3FB8C317BC9EE1ACDB36C12F513456FA9F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

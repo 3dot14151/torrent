@@ -22,8 +22,7 @@ Mechina - Progenitor (2016) [MP3|320 кб/с]<Industrial, Symphonic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0F02D55A94CE3B4A6E09C0E55BAF477EBFDBDC95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dario Mollo закончил работу над новым альбомом VOO
 ```bash
 magnet:?xt=urn:btih:9C1AF875CA1D9E5145319D8EBB14ED77FC03A47C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Status Quo - Accept No Substitute: The Definitive Hits (2015) 3CD [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:23E54292DA9DFA4DC6AF9573B180F975F0900596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E86231A3F2BA1759E5D34DD313E451A83D05CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Avril Lavigne - Under My Skin (2004) [FLAC|Lossless|image + .cue] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:E1EAE926235A79C16FEC78F41E4B07BEDB5367DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

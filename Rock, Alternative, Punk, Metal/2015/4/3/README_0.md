@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:984024E54AD9DF004F3CE0AD5EDC3EBFA7ADCF76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Steve Howe With Bodast - The Early Years (1968) Compilation, Reissue /1990, C5 R
 ```bash
 magnet:?xt=urn:btih:773D0EA2BF04F2E7E0D906C2D0D2691112A6549F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Big Sleep - Bluebell Wood (1971) Reissue, Remastered /2007, Esoteric/ [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:719BCF24F009FA45265929641DDDDA4C1FEDACEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Fields - Contrasts: Urban Roar To Country Peace (2015) 1972 unreleased album [FL
 ```bash
 magnet:?xt=urn:btih:8B74EB8A672128232F6D9EBA4B3D341793ACF83D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Agnostic Front - The American Dream Died (2015) [MP3|320 кб/с]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:1855C1DB0E40F66CCB65A64DA582CF674C0D7CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F21D59EF278A8F85E59563C010799097D875E042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Mourning Heart - Interlude(   Читать дальше...   )Жанр: Epic 
 ```bash
 magnet:?xt=urn:btih:7454BBFA23C158F5DA11FF22A25A741672747478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 - Последнее Лето Детства(   Читать дальше... 
 ```bash
 magnet:?xt=urn:btih:92E7E2FE5A7C240A4962C3D616519224A4BE9F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Guardians Of Fate(   Читать дальше...   )Жанр: Epic Folk Meta
 ```bash
 magnet:?xt=urn:btih:8E5761AB89AA1D4CC1021616C5413B4464536BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

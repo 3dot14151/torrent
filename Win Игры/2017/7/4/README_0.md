@@ -19,8 +19,7 @@ Black The Fall (2017) [En] (0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A2DFB8E91480377B8C0DB4A8CBC241509CCB5EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Xanadu – это ещё одна древняя серия Action RPG от Falc
 ```bash
 magnet:?xt=urn:btih:A21A2C7117B444D167AE830E2AEDE81CD8BA497A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

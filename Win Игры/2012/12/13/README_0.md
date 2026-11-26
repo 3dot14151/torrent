@@ -19,8 +19,7 @@ Gunz: The Duel - стартовала в Корее еще в начале 2005-
 ```bash
 magnet:?xt=urn:btih:E11C8C038F1EAC29E3E306A14ED00CB462B1D97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sonny [En/Ge] (L/4.1) 2008
 ```bash
 magnet:?xt=urn:btih:D5C4BE7917C3CC0EB2E9EA223CD29A89D55175A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Sine Mora [En/Multi6] (Steam-Rip/1.0.0.1) 2012 | R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:0477132487C116DC5E6041DBDA85C8F4824C5A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Weird Park 2: Scary Tales / Таинственный парк 2: Страшны�
 ```bash
 magnet:?xt=urn:btih:BABDD3132559F77973711D3B2CE4DEC1435CA29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Test Drive: Ferrari Racing Legends [En] (Lossless Repack) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:B4007435DAA09DE5B7FD9165F9B85A7F63AB62C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

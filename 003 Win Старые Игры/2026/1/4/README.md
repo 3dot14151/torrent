@@ -19,8 +19,7 @@ Medieval: Total War (2002) [En] (v1/dlc) License GOG [Collection]
 ```bash
 magnet:?xt=urn:btih:668369CDE4446D449DEF5D8B03C63A8441B3288A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rome: Total War (2004) [En] (v1/dlc) License GOG [Collection]
 ```bash
 magnet:?xt=urn:btih:70B395F219A69CF2DE4BAF3E5665C897990FCAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rome: Total War - Alexander - второе официальное дополне
 ```bash
 magnet:?xt=urn:btih:2C6294D8B3C28EAED037DF269808C40EECED0D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Total War: MEDIEVAL 2 – Definitive Edition - это конечная верс�
 ```bash
 magnet:?xt=urn:btih:2DC9CEF23180B713162C2AB39CA4290DBBF36504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Total War: MEDIEVAL 2 – Definitive Edition - это конечная верс�
 ```bash
 magnet:?xt=urn:btih:275F1D8378471F376030342EF64DB011E39DDEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

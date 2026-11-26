@@ -22,8 +22,7 @@ Abney Park - AEther Shanties (2009) [FLAC|Lossless|tracks + .cue] <Industrial, F
 ```bash
 magnet:?xt=urn:btih:DF5672355C2DEB022642F38C6CC26EE57DAF5CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Seven Thorns - Symphony Of Shadows (2018) Japanese Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:8FE8EB963112D2ADD9CF5DD8720A1F9A224C2672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Abney Park - Nonfiction (2016) [FLAC|Lossless|tracks + .cue] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:B84F6A36CB8D02E9CFD32240DB5C793773A989A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

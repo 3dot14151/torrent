@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E5E4824079CE7FBCF444821059C1D696F30B1BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7D90C96189A9626D53A689FA70917ED191D3395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Kylie Minogue - Kiss Me Once (Live At The SSE Hydro) (2015) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:973CF2A39394E1F31C5CEB900ED37CF9FC58619E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F41FA263AEC2873F1766C34502BCE9383152D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Yumi Zouma - 2014:
 ```bash
 magnet:?xt=urn:btih:73585528FB12362D612E9ECEC76AFC8C5611BBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - Gazgolder - К Тебе (2015) [AAC|WEB-DL|256 кб/с]<Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:9F7555A8D5AA5A0B50BBA1A3BA239079F5F4ACFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Zero Cult - Inside Out (2015) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Ambien
 ```bash
 magnet:?xt=urn:btih:6F12BDA5513F1AA62BF1481B682ED657BD73398D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Katzenjammer - Rockland (Deluxe Edition) (2015) [FLAC|Lossless]<Indie Pop, Folk 
 ```bash
 magnet:?xt=urn:btih:B0672B26B7D173BAC80DF9C923A377B8C61B3151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Eguana - Life Flows (2015) [FLAC|Lossless|WEB-DL]<Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:2A839B3A3905F4A63B103C47A0CC43C5672B1DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Toto - XIV (2015) Japanese Edition [MP3|320 кб/с]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:D6E01BE4DEE0801447746DF011A34C3153E88740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFCCC97845AEB6902CE10D592DAAAEEF2FF93EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Vivaldi 1.0.123.10 Technical Preview [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6658E568A9DF834E803A68010AF02436DD2A60EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Hopper Disassembler - бинарный дизасемблер и декомпи�
 ```bash
 magnet:?xt=urn:btih:DAE1633D49A26B84804C87CAA82747621B533794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C397346056A94E357ADDD5E8656E0A2C477E587D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ The Black Marble Selection - Under Her Spell (2015) [MP3|320 кб/с]<Rock, Blue
 ```bash
 magnet:?xt=urn:btih:268C458B8E73C509DBE5B064EEC376F813561615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ A5. Droned (2:50)(   Читать дальше...   )Жанр: Pop RockПрод�
 ```bash
 magnet:?xt=urn:btih:3027D8F30F800EA3F36B11453B547D0E9181967E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ Vivaldi 1.0.124.2 Technical Preview [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:654F407C393C51CAC9B4BDA58DB71A767B02474F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:42B7A8E22A9E9F9331C46618B0AAC1358A01B150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ PicturesToExe Deluxe 8.0.12 portable by Sitego [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EC5B89D680F007D8F5479A944455D70E37C55C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60AA3E659DBF462204242CCEBEDF14CB16AAA7B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8D2F8733527D493251958B927AB351DEC34EA7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59BEC5862A6ECB04ED4E9595B46A504E713F6ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33194A267677302D4788C8553124DE56052038E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1152CA191B98E8478752F649C8ACA653B75678B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Sony Music в очередном своем сборнике собрала тр
 ```bash
 magnet:?xt=urn:btih:FF25B4E6929A19D40692FEF8C5BF26523A58E39D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E09F61CB47066BB989A8CD6E7BF7684BDEC6F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

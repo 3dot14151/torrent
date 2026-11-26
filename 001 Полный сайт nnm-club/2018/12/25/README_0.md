@@ -21,8 +21,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20: December (2018) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:5F72476E98EE0E35BC43B6B3AF4C0AE8392B57D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Katica Illenyi - Tango Classic (2018) IKP Music [FLAC|Lossless|tracks + .cue] <S
 ```bash
 magnet:?xt=urn:btih:CAD43E73469A40AFA22D4D1FB336D8117798A638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7CF31593E2A588D2F8A2B22F268BA74BE85BCC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Uplifting Only: Fan Favorites 2017-2018 (Mixed by Ori Uplift) (2018) [MP3|3
 ```bash
 magnet:?xt=urn:btih:CC0AEE7B7190549A8D7CE299927AC4291F699208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCB6068D52893C7AD60FF54D5A7665F71B15A130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Marlowe (L'Orange & Solemn Brigham) - Marlowe (2018) [FLAC|Lossless|Web-DL|track
 ```bash
 magnet:?xt=urn:btih:E1F484925FFEB14C44E0BF4F219BAA1B40618076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Deep House Top 1000, Vol.1-Armada Music (2018) [MP3|320 Kbps] <House, DeepH
 ```bash
 magnet:?xt=urn:btih:A04A72A4F5DA3F4F1E7CA227D121C70D56EF4656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30EA3A18793BCD0F7D0B5D4A2050633FEDDA2F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ SYNTHEVER - 3 Releases (2018) [MP3|320 Kbps] <Spacesynth, Synthpop>
 ```bash
 magnet:?xt=urn:btih:B5D7BCD05128E87BC835AA610A1DFDEA6136CC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF544511391974C88FF6223A5C370108BD1FA0E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C35359D9D7EDEB82A3D2A4953C5088B67494730C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ MacFamilyTree 8 предлагает множество вариантов за�
 ```bash
 magnet:?xt=urn:btih:F1480AA8C4BF4C60B51BDF19E00256AD388C602B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Concrescence - Obscured By The Dark Years (2006) [FLAC|Lossless|image + .cue] <N
 ```bash
 magnet:?xt=urn:btih:2AED1F9054504420FD7387055E04458A5C0CB227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ VA - Black Hole Best Of (2018) [MP3|320 Kbps] <Trance,House>
 ```bash
 magnet:?xt=urn:btih:68398FD067DAC75BE6E16750A964ED7625282E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ VA - Female Pop Ballads (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D7E23AEDFA3E17BE1F41F85BF180422740B846BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:7DCD645A12636334D40B976C387CE075E66A9181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Pixelmator представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:31A53313F16B27CAF15916B49FE8F49B0698B772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ AnyTrans for Android - предназначен для быстрой и удо�
 ```bash
 magnet:?xt=urn:btih:D690144AF94BFE7CBF9101D4075480E15B4D434A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Cliff Richard - Rise Up (2018) [MP3|320 Kbps] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:79B4F73D0FC3C6845AB76B7ACDF5D32A620E58F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93A7FD25F984C3C1A4F4B98ED419E7610F36F093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ VA - A State Of Trance Top 20: January (Selected by Armin Van Buuren) (Extended 
 ```bash
 magnet:?xt=urn:btih:5680D94C4CB7BA05D58E80DD7FD5BD44DBAD033D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC6F6CF94CB4364D88A3AA839D5E295AF0906523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:B88B666813EA91FC658F0E45BC33A4EB7F7B0B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C894DF8B61C95A549ABFAF0A7610348C2AC667E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ Barbra Lica - Christmas Present (2015) [MP3|320 Kbps] <Vocal-Jazz>
 ```bash
 magnet:?xt=urn:btih:B44FD395F036C1FD7E3872276B302715E93B5B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CB3E283C93A6974575D8CA505CE85FBCA3DAD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

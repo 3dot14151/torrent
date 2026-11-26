@@ -19,8 +19,7 @@ Earth 2150: Lost Souls / Земля 2150: Воды Стикса (2002) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:85B7B9A40CA8A66DA13D19A054AB5FB75A1AB7B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война миров
 ```bash
 magnet:?xt=urn:btih:81CB997404208C3A17D53BE3D1F021162A6B8D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Earth 2150: Moon Project / Земля 2150: Дети Селены (2000) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:C0779862D112A93B833FA704D3E968E719049E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

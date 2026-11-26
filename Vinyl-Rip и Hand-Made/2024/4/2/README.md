@@ -22,8 +22,7 @@ Adelitas Way — рок-группа из Лас Вегаса, штат Нева
 ```bash
 magnet:?xt=urn:btih:5040298C5C13147CDA78E6223D0ED795EAFCC872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rapture - Silent Stage (2005) Limited Edition, Reissue, 2018, Alone Records [FLA
 ```bash
 magnet:?xt=urn:btih:477A03AB06B5008A1DD9F54608805A778F67D4C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

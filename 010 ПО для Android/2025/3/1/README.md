@@ -19,8 +19,7 @@ VideoShow предлагает отличные функции редактир�
 ```bash
 magnet:?xt=urn:btih:EFE91B05FC762BC9C460D80A7EF1A50257A92F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VideoShow предлагает отличные функции редактир�
 ```bash
 magnet:?xt=urn:btih:D6097D1E6B0E8820D5CD373F0231047C9CE78D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F57A9BB2A9A69701D5640514C40A5BCF6E774359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Photomath v8.43.0 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9FF5D2A7855D064D0ECA2CFE999732BD9133FCF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:096B66544C173C4FE3D725470F4229E78F151254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

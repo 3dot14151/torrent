@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1F59000B7F674C7DD794AF49E18AB99A76025CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64C7C0291FE022C6AD90B9D33FDBA50967EF3628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Nero 14 предлагает целый набор полезных и прос�
 ```bash
 magnet:?xt=urn:btih:05D2709878F6F151B914FA319C0CB7E8DF79ED09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BDB02953B4A2A60995CAA8E17E52BDA0A96AC57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Fable стала самой продаваемой ролевой игрой д�
 ```bash
 magnet:?xt=urn:btih:8988EC648333CE658C03951CE6EEB36911E0E9CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Total War: Rome II/2 (2013) [Ru] (1.9.0/6dlc) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:8000C64A2083F89C707C7589F3AB859C77160AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Battlefield: Bad Company 2 [PS3] [EUR/RUS] [3.55] [Cobra ODE / E3 ODE PRO ISO] (
 ```bash
 magnet:?xt=urn:btih:3A0ABC758AC05E854060B5D57F8AE92343875895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Visual MP3 Splitter & Joiner - небольшая и удобная програ
 ```bash
 magnet:?xt=urn:btih:134D53F671D103CD7527EFC0FC34064B3028AAD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ WRC Powerslide (2014) [Multi] (1.0.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7506CA5A4463BE3A3981F00ECF75ABA2C94FEF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Echochrome II, как и первая часть, переносит игрок�
 ```bash
 magnet:?xt=urn:btih:1028D7F6E6CF57D23AB6519F5F638DD41D949CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Asus K54HR (оригинальный диск с драйверами и про�
 ```bash
 magnet:?xt=urn:btih:C10570D5D06398387AFE0FC1D0C963CE11DB5F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ The LEGO Movie Videogame (2014) [Ru/En] (1.0) License FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:513EB436CD61CED5AF48B028763AC8DBC6A6B8EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Medal of Honor Warfighter продолжает традиции вышедшей
 ```bash
 magnet:?xt=urn:btih:7D0B082EB6AD217D5CFC4984078613971BFB4796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4756C41484ABDF63167D7D1A10D2181145AE4594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Mirror's Edge предлагает вам роль уникальной геро
 ```bash
 magnet:?xt=urn:btih:7D7C0E77CA5588077273B7F6F97D71FA734B73F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DEF29C69CCD7603367DB8091ED6C3C299F13FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ Portable Soft 2014/v.01.02 by DDGroup & vladios13 - это сборник про
 ```bash
 magnet:?xt=urn:btih:A35EA94636A6C6781AD5FC7FFDD57BAA5F12846D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Wikisound.org | Полное изучение синтезатора Sylenth1 (2
 ```bash
 magnet:?xt=urn:btih:7CC7ACEB4162A7C4C9FD09E28DC3906ECE0656F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE559225D692C26734A0129D4DEAE9DC2B136F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ The LEGO Movie Videogame - это игра в серии LEGO, в основе �
 ```bash
 magnet:?xt=urn:btih:6702121628CAACAC4C2A49276CE210A01F021949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 ```bash
 magnet:?xt=urn:btih:2F0EB602C77545B5DB2A0BD94AAA8CA4E9997706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D5614F0CCDFE725D61AF06DB7846DB10528DE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ sysAdmin Tool 1.0 [Ru] [Авторская раздача]
 ```bash
 magnet:?xt=urn:btih:CB94C5DF4A24718BC767D5718B1AA43292CBA4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:098EF598368D3C4C5D4D7BADC7F747E5064788A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ Nero 2014 Platinum — это уникальный пакет приложени
 ```bash
 magnet:?xt=urn:btih:7A1D74BCD7DE9A53B287E63360A0C2506F5A9B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E087A964423A268DF58D86A8141E906D1EB3F51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

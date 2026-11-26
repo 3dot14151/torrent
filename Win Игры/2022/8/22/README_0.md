@@ -19,8 +19,7 @@ A Tale of Paper - это платформер-головоломка, расск
 ```bash
 magnet:?xt=urn:btih:59C80A2390CF2494302AE20EF58B574062629578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

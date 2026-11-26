@@ -19,8 +19,7 @@ Oktoberfest Manager [En/Ge] (P) 2012
 ```bash
 magnet:?xt=urn:btih:D3E7F79BDD3B654886788CA5E828F1E28D44CD00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cruel Games: Red Riding Hood / Жестокие игры. Красная шап�
 ```bash
 magnet:?xt=urn:btih:D470A50939060D285A12BEC79CA7F1DEBFB539CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jewel Quest Mysteries 3: The Seventh Gate Collector's Edition / Тайны др�
 ```bash
 magnet:?xt=urn:btih:B499323B85E802149CEC177964E9792439FF491F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Far Cry 3: Трейнер (Trainer/+18) 2012 | FLiNG
 ```bash
 magnet:?xt=urn:btih:E7F1FDE6A0F3E5AE98F9B24E2B630CA826646BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Darksiders 2 является продолжением Darksiders: Wrath of War,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

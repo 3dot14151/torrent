@@ -28,8 +28,7 @@ VA - Митьки - ЗеБест (1996) [WV|Lossless]<Рок, Кавер вер�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

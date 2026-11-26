@@ -19,8 +19,7 @@ RoughAnimator - Одна из мощнейших программ для 2D ан
 ```bash
 magnet:?xt=urn:btih:7975F5558687287B62E7B540C7C3E6F8D6200D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:401A67297FA4F6FD492D2421560B6A25F88AEDE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

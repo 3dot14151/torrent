@@ -21,8 +21,7 @@ IAMX - Echo Echo (2020) [MP3|320 Kbps] <Synthpop, Acoustic>
 ```bash
 magnet:?xt=urn:btih:E8D1332A0369FC4BC7054A2EB542FC366AF27471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Cuticon Drop - Icon Pack v1.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7986238C8ED8F289B7B798EC7EA618E15A6C3BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Klayton - The Dunes (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Sou
 ```bash
 magnet:?xt=urn:btih:8F8AF7B93E0B3068DEE213359954180C07288B56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Fox Stevenson @ Pirate Station, Russia 2020-03-08(00:59:14):
 ```bash
 magnet:?xt=urn:btih:B767EF7691FBAFF05DEF994A2C3D64CF8B12A553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Beatport Techno: Electro Sound Pack #23 (2020) [MP3|320 Kbps] <Techno, Mini
 ```bash
 magnet:?xt=urn:btih:E784FE20C35E59173F076E1884075FC953C33AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Gett – инновационная компания, предоставляющ
 ```bash
 magnet:?xt=urn:btih:52708E4DA56897276295E9A88AC53A08807899BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:208FDD37FA777C5F3C1C6E9F60C655E4C9D392D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Cosmopolitan — международный женский журнал. Сод�
 ```bash
 magnet:?xt=urn:btih:8CF4BF3C52A19CB81F623C927CBE50DD1F40B0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67F76174CB773ED79E75A0F606DCFF667A762F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Regex Finder - Весьма занятное приложение которое
 ```bash
 magnet:?xt=urn:btih:D478598572DF3B05E8F86C848A6C6EB091BF6F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ VA - Psychill Blossom, Vol. 1 (Compiled by Dense) (2020) Cosmicleaf Records [FLA
 ```bash
 magnet:?xt=urn:btih:9CC6BC2A764F43FEAB432FF8557D01D9F60087C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ VA - Beatport Tech House: Electro Sound Pack #24 (2020) [MP3|320 Kbps] <Tech, De
 ```bash
 magnet:?xt=urn:btih:116EB57E4D5CC382DDABC223A6632D4DF13191DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:EA961D8F362303379F7920B79183513EEB71E952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:AC614628B773B2F9BB29B407A82CB6765D5E082A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ Acoustica Premium Edition - профессиональная программа,
 ```bash
 magnet:?xt=urn:btih:A510ED9B3F742E45FC8B641AE8D41DEA58961B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Native Instruments Reaktor 6 v6.3.2 [En]
 ```bash
 magnet:?xt=urn:btih:B3EFCE20BD1EDC1C041BF4F12218BA389CC6A3CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Klayton - The Dunes (Original Motion Picture Score) (2020) (2020) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:C56B34299D8931881686E8E7B7CF398673608C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ HD Wallpapers Pro v3.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:53FC19B117F3F588038ED54DCE18A432E504EFFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Gotthard - #13 (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:33E6724066E96A462DD910BF7966B1465ECFF114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CCE6E4E01AD33EE75D1D8BFB1043B41BB011C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:427443371ED02205029465AE6DEA64865C3DB36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ Calculator 2 превратить ваше устройство в интера�
 ```bash
 magnet:?xt=urn:btih:A04FB38FC6E24C0B6086D59D66253FDD2B5290F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B790C8CD204E53CBE5DE85F3E86D7F686F05AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ Gealdýr (Gealdyr) - Valravn (2020) [MP3|320 Kbps] <Folk & Viking Metal>
 ```bash
 magnet:?xt=urn:btih:43AFB1288CA93D952895BCD268853F764EF6D8AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ Despotism 3k – стратегия с элементами рогалика д�
 ```bash
 magnet:?xt=urn:btih:2D15E00A0CF9320780405DA039C66A111488C1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ DosBox - высоко оптимизированный и быстрый эму�
 ```bash
 magnet:?xt=urn:btih:8EE3C8E7E28464AD88D3726C427347070B15D5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Deathtale - Whole World Burns (2016) [MP3|320 кб/с] <Thrash Metal,Death Metal
 ```bash
 magnet:?xt=urn:btih:9752AE9253825F9032432F09D2A02D2053951AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crossing Rubicon - No Less Than Everything (2016) [MP3|320 кб/с] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:EF7BB8D536B49C88B1989AADDC37B1C49EC4F37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blues Dimension - 2 Original Albums (2014) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:23FF7D19A06C96F064341FB9CA3424D149ECDBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Colin Hay - Company Of Strangers (2002) [FLAC|Lossless|tracks + .cue] <Rock, pop
 ```bash
 magnet:?xt=urn:btih:8879543E11419AAFE3CAA15A7033FE44B61E6380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE2FBD9497FCA871A6262966E4E8385359AFA64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Persona - Elusive Reflections (2016) [MP3|320 кб/с] <Progressive Metal, Alter
 ```bash
 magnet:?xt=urn:btih:A2C46873DD6D33C210D99F1EE8C91A84984C9C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dead Can Dance - The Serpent's Egg (1988) remaster 2008, Vinyl Replica, 4AD, Jap
 ```bash
 magnet:?xt=urn:btih:B4AADCB2CB4E0A002328D20BA492D34828B12233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Dead Can Dance - Within The Realm Of A Dying Sun (1987) remaster 2008, 4AD, Japa
 ```bash
 magnet:?xt=urn:btih:427E406BD083ECF7AACBC6E5CF9F681DB37C9F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Beyond the Black - Lost in Forever (2016) [MP3|320 кб/с] <Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:01EF6AD33F7E5121236B4BF3D1E91B4BD140A489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Lacey Sturm (ex Flyleaf) - Life Screams (2016) [MP3|320 кб/с] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:BFCB8DBCDF61F1C4C22F6DB5856C4B0AA2B2918C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Scorpions - Deadly Sting (1995) Compilation [FLAC|Lossless|image + .cue] <Rock ,
 ```bash
 magnet:?xt=urn:btih:9E0EB8058CD82011C9D1EE6FFE3642946F78056B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BD64C5DDA7E77699179027B807C8C3B1907A94D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ U2 - U218 Singles (2007) Compilation [FLAC|Lossless|image + .cue] <Rock,Pop Rock
 ```bash
 magnet:?xt=urn:btih:D02446F9063016B1BFF0EAD37613C15426125F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Scorpions - Pure Instinct (1996) [FLAC|Lossless|image + .cue] <Rock , Hard Rock>
 ```bash
 magnet:?xt=urn:btih:05A8D5641148047E3C7EEC9DE03C1A1FC587E5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

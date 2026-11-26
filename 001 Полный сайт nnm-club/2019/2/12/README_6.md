@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:64D3443FFA2AE11C261C27AD7AF133B6B9A8F1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7C6ADC792B1864E9A6A315F8D489A145BDD421A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Dead Space Anthology (2008-2013) [Ru/En] Repack/Rip R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:997545FA8F1AE844389529FB6453DFC5FC22E118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E136C1B1268A09BACA9132CC55E74A83AC822C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) Repack R.G. Мех�
 ```bash
 magnet:?xt=urn:btih:3280145CF4B8F76148B431CE2532D2B4DC0E959F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

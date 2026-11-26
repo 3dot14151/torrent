@@ -20,8 +20,7 @@ Kнига посвящена всем аспектам использовани�
 ```bash
 magnet:?xt=urn:btih:F2627BF494E63CA60F672432313F6D282B98C414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

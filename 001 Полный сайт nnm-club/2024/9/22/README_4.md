@@ -21,8 +21,7 @@ Bob Dylan & The Band - The 1974 Live Recordings Sampler (2024) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:177FC265B0C664D102EC8882BFE5DEAECD3E522B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Purple Disco Machine - Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <El
 ```bash
 magnet:?xt=urn:btih:A9E710B64C1881E978A0E30BA410215236CE14F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Classical Piano Masters (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:7DFEB8DC50EF5182C643B6D1871507A7A0ECA9E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34F10EB42C22033E9ABA606CAB897F87E9E252FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:1E0E2E9A6D74A785B692FF59703E2E50B1078431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Purple Disco Machine - Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, Nu-Dis
 ```bash
 magnet:?xt=urn:btih:97E683C2CC44A6B76BCB741888443E7BA23CCF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ PhotoRoom v5.3.5 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B6DA2B0FBE898CEBC0A459C5E1D6424918F423D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:044D0EEB67D93A1A50CE3E671818AFFB8FD4C491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Cher - Forever Fan (2024) [MP3|320 Kbps] <Pop-Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:C59CF1D2F4E7C6EB51F3D4FF32A4B70290B4738E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Inazuma Eleven: Orion no Kokuin | Одиннадцать молний: Печа�
 ```bash
 magnet:?xt=urn:btih:81358B730998472D486AE677CA935C5E649863B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ VA - Compilation part 124 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:E027CF1C525B79C655291F93707357EBC2C29551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Picture Bird позволяет легко распознать птиц вок�
 ```bash
 magnet:?xt=urn:btih:9A3C445F6DD3BFF2139C6C7E151D55B87A710448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Rock Identifier - Stone ID v2.3.40 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0DE1E815CC2C12F3BFF89896DCD41DDF54F3C5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Kid3 — бесплатный инструмент, позволяющий ре�
 ```bash
 magnet:?xt=urn:btih:A2BDD244DC05C4559F68020CD52DE540D4FEA385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ Picturize it v1.2.0 Mod by srajawwal09 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3755E462F317AB0315555BAE39ADAA2AB6908599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ VA - 90s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Danc
 ```bash
 magnet:?xt=urn:btih:568A68681B84F335610EB3B605894563C73B2DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20C06A2FCFEC9D62ED487A19D8E53ED245340015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0CEA9E6E2BC5DB51674F3EA281A7D60C7B9BDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD999AC0FDF04DFAFB537158BFDB2E0182143C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E2234420EE4F6BF7F5861EB28D76CD2AF1EA483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBE99A4164B68075DC28FDC5D5ED2D1B7F70E24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEE1854C361102C0A7763EF41AB4719684365544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

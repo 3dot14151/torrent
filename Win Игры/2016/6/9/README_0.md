@@ -20,8 +20,7 @@ Minecraft: Story Mode предлагает отправиться в попул�
 ```bash
 magnet:?xt=urn:btih:940BA5A90F6D0DE6213590D83D70D3046CFD6FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ DUCATI - 90th Anniversary (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:8F7BC301E356C9CA2DC4C2A300E536F0FEA9E2DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

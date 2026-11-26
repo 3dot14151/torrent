@@ -19,8 +19,7 @@ Sludge Life (2021) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:EECEBF3D165441A75219A6A81BE5DBC825227C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

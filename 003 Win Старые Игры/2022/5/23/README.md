@@ -19,8 +19,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 ```bash
 magnet:?xt=urn:btih:D96A151A24C218B9162C80F9F7C083DAF6FC1EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

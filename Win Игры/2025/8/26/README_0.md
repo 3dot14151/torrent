@@ -19,8 +19,7 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 ```bash
 magnet:?xt=urn:btih:C405A0D1CE2F3A45E6FE81E7BEAA617DC4A52E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Black Geyser - изометрическая партийная РПГ, вдох�
 ```bash
 magnet:?xt=urn:btih:5D74C249137F6A8AE42B07EC201E5525E850B8F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E6F292012A4430FE81DBCE8BEF0B4A8D45840B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Days Gone рассказывает историю Дикона Сент-Джон
 ```bash
 magnet:?xt=urn:btih:986CCCF5959B86ED8C91CE182F9991E46E83AE5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

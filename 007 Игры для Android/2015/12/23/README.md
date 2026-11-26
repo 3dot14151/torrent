@@ -20,8 +20,7 @@ Toy Defense 2 / Солдатики-2 v2.7.0.1 + Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B89D987C45F3D6DED1C464DD4066CD49167892AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

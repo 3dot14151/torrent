@@ -19,8 +19,7 @@ Grim Tales 15: The Hunger (2018) [En] (1.0) Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:1BF6B633BD0285A2152F47F7B48F01D306CCC005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Path of Sin: Greed (2018) [En] (1.0) Unofficial [Collector's Edition / Колл�
 ```bash
 magnet:?xt=urn:btih:960107F86AFF6F0F6CE86AF5CA3039C5525EDC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vermillion Watch 5: London Howling / Алый Дозор 5: Волки в Лон
 ```bash
 magnet:?xt=urn:btih:D1E4F826AC47F8C9AB9D9C0E7E4244345B3AAE55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fantasy Mosaics 31: First Date (2018) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:347DB470D0D865D6AAEEFED5690D935F8B40D65D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ZAMB! Endless Extermination - это смесь жанров twin stick shooter 
 ```bash
 magnet:?xt=urn:btih:0782B256A4F45E71B2FFF61D76FB550237316B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5BADEE5B1621F6C124C279B17859F11D0342B841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Slay the Spire (2019) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:6924A72E57EDC14246062E3720632BA8A9997D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:57911B6906D1E768D21DE821FC9C2BE74D541A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Space Tycoon (2019) [En/Ch] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:78A7D1F0B1F78F19F062D91EE039258F71A69C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ No Man's Sky (2016) [Ru/Multi] (1.77/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8D1BBE464A7EB4DF5A11359095195B96417A4928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

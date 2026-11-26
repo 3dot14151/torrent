@@ -19,8 +19,7 @@ Arve Rezzle: Kikaijikake no Yousei-tachi  [2013, ONA, 1 из 1] WEBrip raw
 ```bash
 magnet:?xt=urn:btih:D92F183DB7FA7E2586744D633CCB7A4E3F3A38BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RocketDial Pro 3.3.6 [Программа] (Android 2.0+) - Звонилка /о�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

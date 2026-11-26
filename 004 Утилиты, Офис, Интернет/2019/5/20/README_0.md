@@ -19,8 +19,7 @@ VK Messenger 4.3.0 (606) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:72ABE034F7A50A17F5DC8C5C57D271C2FE410F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

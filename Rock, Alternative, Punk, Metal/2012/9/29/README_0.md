@@ -28,8 +28,7 @@ Enchantya - Dark Rising (2012) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:7B50531E577029B9B2179489E0B9CC54270302F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Big & Rich - Hillbilly Jedi (2012) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:1DDF3AD6045072EB3013F988223045990899003F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ R.E.M. - Document (1987) 2012 (25th Anniversary Edition) Deluxe Edition, 2 CD [M
 ```bash
 magnet:?xt=urn:btih:F9B01EFBCEBD2B4369AF9EF9238340946F890024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Alvin Lee - Still On The Road To Freedom (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:DDED31788E81E7AFB1B74E453277E761F059D4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Tori Amos - Gold Dust (2012) [MP3|320 кб/с]<Alternative Rock, Piano Rock, Bar
 ```bash
 magnet:?xt=urn:btih:077F3D59DB7120062498F3B89FB805D005DF6025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Golden Earring (Золотая серьга)—  Голландская рок-�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Therion - Les Fleurs Du Mal (2012) [MP3|320 кб/с]<Gothic Metal, Symphonic Ope
 ```bash
 magnet:?xt=urn:btih:E5BE24F94104EBEFE7F552E5EEFF29D9684A822F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Therion - Les Fleurs Du Mal (2012) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

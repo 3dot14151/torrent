@@ -22,8 +22,7 @@ V.A. - Abbey Road Reimagined - A Tribute To The Beatles (2023) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:8072B170B231FD1246A2975F9D6EE983FCE5077F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C34899ED3CF1BDE4E521160C7D983AAE977599C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cruel Force - Dawn Of The Axe (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
 ```bash
 magnet:?xt=urn:btih:63BDC89C196884675F39896AEB75B9E4D77FF49A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Underoath - Underoath Voyeurist | Digital Ghost (Live From Digital Ghost) (2023)
 ```bash
 magnet:?xt=urn:btih:1050DB53BE94D951A222015EC8C14C831AB2F0F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Biker Songs That Rock (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:0ECB36B229D217547B26DA4F86233B2DB7BA2839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Gueppardo - Power Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal, Hard-
 ```bash
 magnet:?xt=urn:btih:6E4063DA550B7270A4D71380C73ECF9E8E109B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF8580F90482AF61F497DB8222A0D259499D1B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD1 - The Album:
 ```bash
 magnet:?xt=urn:btih:08706B16F3C4D7FC75BDF01827E24EF3AF6F0B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Mitch Malloy - The Last Song (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 ```bash
 magnet:?xt=urn:btih:35DA1F2ED7240C9F4A1368148C02DFE4101DB390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:6DD367B32C551F4BE16C376FB116302C13634D73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Percival - The Seventh Seal (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Met
 ```bash
 magnet:?xt=urn:btih:8A55CDA5D7C3ABF314E1B3E77DB531703E5D641D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ The Defiants - Drive (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 ```bash
 magnet:?xt=urn:btih:5D565BFB9BB02FADCB04E8B6A32CA7BD702201C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Jag Panzer - Shadow Thief (1986) Reissue, 1992, Reborn Classics [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:986CE943047516B8BDB95898AF806B2C591575D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Jamie West-Oram - Skeleton Key (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:85F7C75086CE186EB343513D3DAC973DF31F90D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Jamie West-Oram - Skeleton Key (2023) [FLAC|24/44.1|tracks|WEB-DL] <Progressive 
 ```bash
 magnet:?xt=urn:btih:09268229687E990B08B3E89188EC6556A0D7BBDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Within Temptation - Bleed Out (2023) [MP3|320 Kbps] <Symphonic-Rock, Symphonic-M
 ```bash
 magnet:?xt=urn:btih:05547A28B07B3CF44F44954832DC0223410E1268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Aerosmith - Greatest Hits (2023) [FLAC|24/96|tracks|WEB-DL] <Classic Rock, Blues
 ```bash
 magnet:?xt=urn:btih:B5AF66CBD376D65EEF36F268CF206D9A22D67818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Depeche Mode - Classics. Rarities. Revelations. (2023) Compilation [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:2CD8B52F10C852FA9B78161144D6B438E70B8268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ B4.  Biko  :: 07:24Жанр: Progressive Rock, Pop RockФормат: Vinyl, LP, 
 ```bash
 magnet:?xt=urn:btih:AE16E1A4002D0ABD09EBF47A0CA193B736A49285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

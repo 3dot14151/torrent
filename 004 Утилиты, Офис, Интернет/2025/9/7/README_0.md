@@ -19,8 +19,7 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:65D0243F588E45DE55EE2CD7A0FE0801B102AE36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ RustDesk Remote Desktop – программное обеспечение для
 ```bash
 magnet:?xt=urn:btih:80548A26B94E76AFA14E92C1C41E98AA6FA39D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:6AF1270795E9B6AE6D4AD9E89701E5595F3220E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

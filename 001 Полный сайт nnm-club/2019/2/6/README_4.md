@@ -22,8 +22,7 @@ The Vanguard Jazz Orchestra - Overtime: Music Of Bob Brookmeyer (2014) Planet Ar
 ```bash
 magnet:?xt=urn:btih:BE9CAF4D15582118F914567740A5D98AA4AC9BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Count Basie and His Orchestra - Warm Breeze (1981) 1998, Original Jazz Classics 
 ```bash
 magnet:?xt=urn:btih:8CEE0C8BFAECF658EA2008F98AA701E36F52BE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Shigeharu Mukai & Astrud Gilberto - So & So: Mukai Meets Gilberto (1982) 1985, D
 ```bash
 magnet:?xt=urn:btih:41515E434E429FEBB762DED0362AAAC7DD595ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Laura Ellis - Femme Fatale (2011) Vintage Voice Records [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:A565F19973BE385636C3EBF902DA9FD40C3F9F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Boris Budarin - Moda Chillout 1-2 (2005-2006) [MP3|320 Kbps] <Lounge, Chillout, 
 ```bash
 magnet:?xt=urn:btih:C57FB48F66EB55B723D655FB487F0A49AA16F985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Shiver - Under Skin (2002) Remastered Deluxe Edition, 2019, Shiver [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:454DAC01021ADC1079E4AB2A8C485646F1811717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Groove Affair - Easy Listening Lounge (2019) [MP3|320 Kbps] <Balearic, Downtempo
 ```bash
 magnet:?xt=urn:btih:A787D66456C346A11BACED246D0F971DAB7453B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Inboard 1.1.4 [Multi]
 ```bash
 magnet:?xt=urn:btih:A16E2107D536253A32F7BF9374E4CA2D9D9AB270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Chimeras 5: Mark of Death (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:00AD903BD9D1EC61C5BF1FBE6D8140BF8CBBC5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Newsletters Templates NG содержит более 130 больших шабл
 ```bash
 magnet:?xt=urn:btih:5EC1821341325DE3AD8E7EFEE099F8DE9C7AA436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B91731879F0390053521AE9ABEDB0B79AF440389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Tyrant Eyes - Book Of Souls (2000) B.O. Records [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:BA6F1A4C43FD56FE7C173146B1BE85142261610C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D1A12A997E1198D5C05DAF60BD02F91FE93AA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ VA - Pure Bass: Deluxe Session (2019) [MP3|320 Kbps] <DnB, Dubstep, Jungle>
 ```bash
 magnet:?xt=urn:btih:961D1282ECAF801E2AA5051D6D4C0CD70E33202F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ VA - Top Of The Lounge Music on Ciacofon Records (2018) [MP3|320 Kbps] <Downtemp
 ```bash
 magnet:?xt=urn:btih:B028BF391ED236CE257C8BAC9EBCCA73FF8C10E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ Spacehawk - Laser Squad (2018) [MP3|320 Kbps] <Spacesynth, Spacedisco>
 ```bash
 magnet:?xt=urn:btih:9B219817E9050D21DB2AC5D591AA2C7E74C8DB9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ Vivaldi 2.3.1440.41 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EDFA2B9903F25FB234540A1C9BD0951DCBE5B4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Blocs - простой способ создания красивых сайто
 ```bash
 magnet:?xt=urn:btih:5E0833AC1AF32DF2C1BE8C128C0E168A5A8A7A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ E.R.P. - Afterimage (2018) Forgotten Future [FLAC|Lossless|Vinyl|tracks] <Electr
 ```bash
 magnet:?xt=urn:btih:259B2F6F5028A590FC5B9C36F7D14ECA8F06FA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:ADA5DEDD9BA285D395FD559A2134079A6A5D6C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ VA - Smooth Jazz Morning Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Bale
 ```bash
 magnet:?xt=urn:btih:1B0BDC6EC71EB2A55CC4656E720737C32423246C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1A4BE9F14B60B2B50DE2AF86067972C0CD20F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Kumasi - I Know You Feel It - Anthology (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <D
 ```bash
 magnet:?xt=urn:btih:F7BCBAA13CE09C64EFB308DFF76B391ECEB9F335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ CoolUtils PDF Splitter - программа, с помощью которой м
 ```bash
 magnet:?xt=urn:btih:442B3EB03BA80C95B667E0A82686CEED99A147E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE14DF186932136B30E900C57B6610DAD8BD789A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:A25F4A7CEDACBEE966559B4D4E25E48148935DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

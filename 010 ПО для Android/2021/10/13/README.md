@@ -21,8 +21,7 @@ Glitch Lab прост в использовании, но в то же врем�
 ```bash
 magnet:?xt=urn:btih:112998384CEC29C014874044D63B86887F06C07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

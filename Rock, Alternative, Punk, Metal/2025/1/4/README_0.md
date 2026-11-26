@@ -22,8 +22,7 @@ Dorgmooth - Бездна (2009) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:4850BAF40C77F6A0F16D2B3C51DF66E588851A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vismut - 13 (2012) [FLAC|Lossless|image + .cue] <Metal, Progressive hardcore>
 ```bash
 magnet:?xt=urn:btih:33CE0A8D6776CC9F651A9FAD5092777119B2E9C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9C3BF05BD779336CE88B1864F188D0D1051655F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kaizen - Любим делать красиво (2011) [FLAC|Lossless|tracks] <A
 ```bash
 magnet:?xt=urn:btih:7D3BF12FBF843376996847EFC23373F9CAB329B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

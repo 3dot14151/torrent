@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:46A554FD9FAFE9422644E539E018F4449EA11845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCEC7499EEE5453F0BCC5D0C20029982A5EE60FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Unavowed (2018) [En] (2.5) License GOG
 ```bash
 magnet:?xt=urn:btih:AE3EDF3490471F8A1F18F571E2F98867671253DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F42630CEEC2C72CE184E589F6BFE41F9721166C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе (2011) [Multi] (
 ```bash
 magnet:?xt=urn:btih:4CAE8CC6E2D6D6F39DBB168BC0C79ACBC92D64FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B27E785F3EFDE7A1CA0E53204421FDD7EF4FECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:ED6340B3DFF9E2F5E60772BB497C145B4D86D587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Doom 3: BFG Edition - это переиздание Doom 3. Жанр и смыс
 ```bash
 magnet:?xt=urn:btih:E611C7D5DE36C4DAA3177B276D3E8B0546CEA116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Huawei провела конференцию HarmonyOS Computer Technology and E
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7388FAF59789E265A6AD9CCEB5C546929742985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:913DE929054B835CCE78711E0F9DF2EB0202C252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:498EDA998478DB2B90280D9819CBA88925B48B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2928DADAB00DCB1B7720D5031AF938A940A7607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5A33A6C683200B6A5FE323EA20BD8BB12DE1661D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ Hotel Owner Simulator (2025) [Ru/Multi] (1.0.5.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D4D87102E37AFDCAAA7C9B3E7102A797FC386017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C271550D6AC189B74B42D94AFF1BD930C3A7C89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +446,7 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:A47A27FDDA94C7C804E69B560B4FB3916ADB4913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +471,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:19A7D6B59C6335FE22DF5ADFDF9FCBC3CDDAB1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +496,7 @@ Oil Refinery - The Simulation (2025) [Ru/Multi] (1.1.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:35ED2DF2F9BDDB3799A5FEB511CA49B0BE03BB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FCADD7EFA85CC85D4C314BE10394FDAF0F0B957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBEA6007CE2258D8DE85418E0B8A7FB17B8E164E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +573,7 @@ Blaze - Виртуальный Камин 4K v1.8.0 Mod by SurvivalHorror [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:979D59AF02D4422EE5C241C5FCC60103C0EBE220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +625,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:E6C6D72F2BA2D91646165D280B4487DE8E1EB907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FB9D01F8D5F606164408DAE99B2146E90CE0195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

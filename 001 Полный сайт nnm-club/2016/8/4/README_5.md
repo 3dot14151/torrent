@@ -18,8 +18,7 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:B1153F627470F0F7902100D1F5ECA17951DA3866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Adobe Acrobat Professional DC — это полностью обновленна
 ```bash
 magnet:?xt=urn:btih:50F6E41C19A72C481B869095CCA7A8FA4D2FEEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E3364B65864BBF21819AEC8CD59143E19FA8D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ GTA Province - глобальный русский мод (проект), раз
 ```bash
 magnet:?xt=urn:btih:96858439B7B90968F111122EBD110DB7A5320BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ VA - 90s Club Mix XXL Vol.1 (2016) [MP3|256 Kbps] <Eurodance, House, Techno>
 ```bash
 magnet:?xt=urn:btih:87825C5E25C9B3BABE91EC21B6735DA2A7CC6655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ VA - Танцевальный Рай - Disco Remix (2016) [MP3|320 Kbps] <Disco,
 ```bash
 magnet:?xt=urn:btih:6A83C94D158DCC14E8942B2C5D61980C88CBABD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ VA - Хитовые Летние Песни 7 (2016) [MP3|256 Kbps] <Поп, Dan
 ```bash
 magnet:?xt=urn:btih:CE35B3F6F64BFBE611338A31D32665F6071D149B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ VA - Дискотека 80-90 х По-Новому Зарубежный выпу
 ```bash
 magnet:?xt=urn:btih:A0B04C2AF16E42376E41EF3A399C125FADC00DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Microsoft .NET Framework 1.1 - 4.6.2 Final RePack by D!akov [En]
 ```bash
 magnet:?xt=urn:btih:0B1D7C4557DCBA3CC1D3A96F496414CFEB03CBDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:D03A464F4E548CA0AC8B41D8204414A9103E4078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ VA - Options Remake 150 Tracks - JULY (2016) [MP3|320 Kbps] <House, Progressive,
 ```bash
 magnet:?xt=urn:btih:6E3100E8A1EB9DD1024492F384E257A8E2427480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Shouwa Genroku Rakugo Shinjuu / Сквозь эпохи: Узы рокуго / �
 ```bash
 magnet:?xt=urn:btih:FD24C1DF21479AAD17B919B4C341160434D53253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F32EC379D675C0466790DA185A08A51307D88DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2185D5B18F775E6350DE1FFF7E55DE7CF638A35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

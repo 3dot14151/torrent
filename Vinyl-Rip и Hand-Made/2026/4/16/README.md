@@ -22,8 +22,7 @@ A4 Chantez Les Bas(   Читать дальше...   )Жанр: Jazz, BluesПр�
 ```bash
 magnet:?xt=urn:btih:7A3505966AB41C4E8E4EFC811CA2FF50F620083F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Autumn Leaves - метал-группа из города Рибе, Дания, 
 ```bash
 magnet:?xt=urn:btih:0FE8C8D7F4020B5A3115E738A0C6CAEED42DD949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Decadence (a.k.a. Decadence Sweden) - независимая хэви-метал
 ```bash
 magnet:?xt=urn:btih:B95CCF0D911B68927C5AABFEC4298E211BB7D3D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

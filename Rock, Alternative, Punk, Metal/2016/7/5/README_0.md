@@ -22,8 +22,7 @@ Blasted To Static - Blasted To Static (2016) [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:885341387BE84764E76912DCD49D888053E17635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eternal Breath - The Joker (2016) [MP3|320 Kbps] <Thrash Metal, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:9454DAC5B79AFD545F65E408D1DB538DAAD43C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Frozen Infinity - Phoenix (2016) [MP3|320 Kbps] <MDM>
 ```bash
 magnet:?xt=urn:btih:898BBFFAFB96A919FBEC6ACE4423A9D42DAB6FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kevin Max - Broken Temples (2015) Deluxe Edition [MP3|320 Kbps] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:065C9C275B11EB29B9C571629220174A7C131EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Orianthi - Fire (2011) EP [MP3|320 Kbps] <Alt. Rock, Pop Rock, Guitar>
 ```bash
 magnet:?xt=urn:btih:0E978B0364F891C257C54D4AE360B4A465E8C2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Kevin Max - Playing Games With the Shadow (2016) [MP3|320 Kbps] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:F6B2CE4B7D2EDF5A807DD92BEC27E689A29FC8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Be'lakor - Vessels (2016) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:F848E24C1BC9C5303594EA53A1033441EE57C8FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ SOTO - Divak (2016) Jeff Scott Soto's Band [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:912D892AAAE2EF411FC90E117596F1A8E6D4F398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Thousand Foot Krutch - Exhale (2016) [MP3|320 Kbps] <Alternative Rock, Christian
 ```bash
 magnet:?xt=urn:btih:5F304FC2A3DF4DA09CAD328634C2EFA9C745BAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:389084E3D0DD0AA1FCCD82180016D406DEC3E28E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Beach Boys - Pet Sounds (1966) Remaster, 2009, Audio Fidelity [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:D098EAE66A5065D5CA42D5E220EAA9B0DD570C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

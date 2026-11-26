@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:23E7FD4F7E6AAEDB244C9B01CF0A9F38A9D46D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C51384DC742C494EF848DAFD04E6090DDCE20C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Ontrack EasyRecovery Enterprise 11.0.1.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3195A6DFE368C5E25484266F864049A7DF52FE5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7D52256F2546B27B9DC5E4EFB925968A54247D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Concerto for Two Violins in D minor BWV1043
 ```bash
 magnet:?xt=urn:btih:95BFD708D54DC4FFAC7C96C594DC51D027FE5B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ In Flames - Colony (1999) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:26CBE3A048B6A536F7CB25F6B2F8059AC9438F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ B2.My Secret Garden :: 03:21Жанр: Pop, Synth-popФормат: Vinyl, 12", Ma
 ```bash
 magnet:?xt=urn:btih:5C670A5BCA5C976BD6313BFBBD106DB446A34A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C696088974028ABA91C1FF1A9A05B8F6ADD4A9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06DE8AA44E8F8EAE890CE73A008F9956DD654392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9E84820440C6F3EC4161C5F1443429DBDF144A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - Greatest Ever! Electric Eighties The Definitive Collection (2013) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:D80375DE0D1687C5FA8458D607BD00DF5ED65FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ In Flames - Clayman (2000) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:74D0354F08630891506A4C842D0C8D225C5307E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B56557058A35AE60B7FF9B327F3823A98C31A3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B891ACB75C31BBBDCF2CA1B9A562B1B3212C0D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48D7685A5673F06F67320955E71306B9BEFDFA74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:709A5A1D5FDCDB2E2F3C9C5008875AA115CC6965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Atomic Alarm Clock - данная программа преобразит ваш
 ```bash
 magnet:?xt=urn:btih:1A1DA0D9035C8B69B04A61396C6930EEB1DD0D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ Peter Gabriel - And I'll Scratch Yours (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:9A50EB1347B8F6A530DADC50B2E58CBC3E5E9943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F905755F60D64C0CA73BEA95B901FB2D52342814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ Arch Enemy - Burning Bridges (1999) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:B72121393AC78DD8D0FDCCAC8B4D8121605FA3A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ Mashiro-iro Symphony: The Color of Lovers / Белоснежная симфон�
 ```bash
 magnet:?xt=urn:btih:AABDC2770F35CEE679C30EF2370DC5D2917B5E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BB64F5E6FB1C1AD84149CFFC356C9F89F0CB01B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBAF86BCD58A13CE977ABE51ED797F8E7A08134B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ B4.Tomorrow :: 04:43Жанр: Electronic, Synth-popФормат: Vinyl, LP, Albu
 ```bash
 magnet:?xt=urn:btih:74477AF49BEDBC8511EA98A27CABF1C50733088C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +697,7 @@ Diana Vickers - Music To Make Boys Cry (2013) Deluxe Edition [AAC|WEB-DL|256 к�
 ```bash
 magnet:?xt=urn:btih:A80050A4A84ED0AAAD2C302C39B651C517A4F361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

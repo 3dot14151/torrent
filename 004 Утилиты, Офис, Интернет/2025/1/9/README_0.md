@@ -19,8 +19,7 @@ WinContig - простая в использовании автономная п
 ```bash
 magnet:?xt=urn:btih:2659F1B6C17B58399BC6E258E879FD518E7632BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:0D90A292BE0B921D9FAD73026C71284B0D79F390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clipboard Master — удобный и всеобъемлющий инструм
 ```bash
 magnet:?xt=urn:btih:12A662226DFA468F84D6EA152EE0CAA7E301819A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

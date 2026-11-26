@@ -22,8 +22,7 @@ Elvenking — метал-группа, основанная в 1997 году в 
 ```bash
 magnet:?xt=urn:btih:8094F33705392B5E05BE0E93B3BD5234BFA2FD93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

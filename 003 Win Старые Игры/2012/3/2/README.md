@@ -19,8 +19,7 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 ```bash
 magnet:?xt=urn:btih:4DB5DBBCB0756152282E40798598C445F7B380C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Evil Days of Luckless John / Сорвать куш [Ru] (L) 2006
 ```bash
 magnet:?xt=urn:btih:DE3E8F49538EA7E6F0A7265B8BCD11E92C8407A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

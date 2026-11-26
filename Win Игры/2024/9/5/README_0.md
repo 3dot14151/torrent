@@ -19,8 +19,7 @@ Sentinel Girls2: Snezhinka - это пиксель-арт игра, где юз�
 ```bash
 magnet:?xt=urn:btih:8DBE5C87D2AC99BED77A2549247C9567784604AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Repack DjDI [D
 ```bash
 magnet:?xt=urn:btih:96F89F2716D9EB79BE0143BB9FC8AA56A30A2EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:125D673FAC58A9AC4614E1C3387EEECFF37C598F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0CC944BB3CC6AF06CEBB609D61E4F97098E8AA26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kamikaze Lassplanes - это визуальная новелла, в котор�
 ```bash
 magnet:?xt=urn:btih:F3C1821E8EC558E3AAF2B595CADE170A073DEEAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kamikaze Lassplanes - это визуальная новелла, в котор�
 ```bash
 magnet:?xt=urn:btih:8CD2C5767A77A63F7CC3A0004417F49D8CD72FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Lone Fungus переносит пользователей в фэнтезийн�
 ```bash
 magnet:?xt=urn:btih:9D3900CEA4D36D033A8BEA0082C80EC0B947F641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

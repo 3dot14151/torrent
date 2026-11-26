@@ -20,8 +20,7 @@ Alfred Powerpack 3.1 [En]
 ```bash
 magnet:?xt=urn:btih:073702D2CE9EB7C73C1C3C0FAFD81136ECF25C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70779E9BC9C5BE490FF01DFCF7DD4D7A9D3A1A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ The Dead Daisies - Make Some Noise (2016) [FLAC|Lossless|image+.cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:82FF5F1459C4CC58CDBA9551AD997FC73989CA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6B1FAF6CED1F3E5D7FCD5A641C62AB3E9039BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:939C49BB9EB0E714C5577384340DB03B4BB35154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Aiseesoft PDF Converte for Mac - Конвертер PDF в Text, Word, Excel, EP
 ```bash
 magnet:?xt=urn:btih:6D75C3FAE69D760BD739CD962AAB34ADF73C4C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Camtasia for Mac - эффективное приложение для созда
 ```bash
 magnet:?xt=urn:btih:C8F7A923D2E8A549E96F3AED1F4AB9A797FA7A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Chicago - Chicago 18 (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz Rock, Po
 ```bash
 magnet:?xt=urn:btih:59427E2D6D8AFAD4414B3CC395EF1BEDED7202D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34AFCF196DB9692A6681B09C9E5D22B43A82801B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D2C4E2926284BCAFACDC13E465744FDC06D2911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Smokie - Whose Are These Boots? (1990) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:94F2D81055168B4F0B7B1C7C3675270037EF5CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ MediaInfo — кросс-платформенная программа с отк
 ```bash
 magnet:?xt=urn:btih:4E3ACA2A1405C11952F613108C9DAA9983625C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ leandra - Metamorphine (2008) [MP3|320 Kbps] <Darkwave, Industrial, Gothic>
 ```bash
 magnet:?xt=urn:btih:09B3118DB5131046C3836C4794402ADB167429C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Burst Lighting - экшен для Вашего творчества.Форма�
 ```bash
 magnet:?xt=urn:btih:612C999F6D3CFEC5DFB45A07583DF068C492C33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6EB86A0AAA6A86FF2335B0848BAA80614E18DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ VA - Bar Lounge Classics: Late Night Edition (2009) Box Set, 3CD [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:25593141899675F631ED43C01596F9C9AFC1C7D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ Flip PDF Corporate - профессиональная версия нашей м
 ```bash
 magnet:?xt=urn:btih:17668DC8639309C86E07053275C6983CDA2850C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6180DFDE26ACB1E488A7CC3EAC9FC9C46C3D70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ VA - 40 Ultimate & Different Techno Multibundle (2016) [MP3|320 Kbps] <Minimal, 
 ```bash
 magnet:?xt=urn:btih:049CC97BB3DB17D2CD592A229BC485BB20926E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ Tarja - The Shadow Self (2016) [FLAC|Lossless|image + .cue] <Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:F4FAC60591F06E599F7690E3D9E2659C50AE28E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Kiss - Kiss Rock Vegas (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5C0FAD8898B8341962F15FCC73DA314BB36B2484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ Twinkle - экшен для Вашего творчества.Формат: ATN,
 ```bash
 magnet:?xt=urn:btih:32D3DE26F75C83F611B5EEF2109EE99D80EC818B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFCDDAD19A3EB98B99C4602CC78AEDA4DAC56D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7111452C47C872552B59B4292BF5B0733931867F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

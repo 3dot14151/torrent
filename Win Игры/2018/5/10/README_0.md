@@ -19,8 +19,7 @@ Subaeria - это сложная игра-головоломка с roguelike-э
 ```bash
 magnet:?xt=urn:btih:96FD0D9DA9826866B2A999B5754B4F3774C2E0F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Contrast (2013) [Ru/En] (11736) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:45A18E3B4DF13D269B2CBEF3B7F2448D74F710DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ City of Brass (2018) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:31B4AD4AFA35E5C3E3E80BE68954E54478352F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Getting Over It with Bennett Foddy - это карательная игра в �
 ```bash
 magnet:?xt=urn:btih:53FE5AF6221D58A71566DF6B1E5623A889CB64B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Subaeria - это сложная игра-головоломка с roguelike-э
 ```bash
 magnet:?xt=urn:btih:0765A295F89CB7324524E9CC972B74CA26CC21D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Aragami — это стелс игра от третьего лица, расс�
 ```bash
 magnet:?xt=urn:btih:4854553C0A0058BF87AD6AF9481DA353C4B62371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

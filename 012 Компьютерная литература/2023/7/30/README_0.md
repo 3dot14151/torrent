@@ -19,8 +19,7 @@ The Game Console 2.0 — это великолепный подарок для �
 ```bash
 magnet:?xt=urn:btih:F358DFB87A93CAE67E237C782F00497B81B172B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:700768D1D6FBC48EE2DFEE71B874D2D19A0ED0E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

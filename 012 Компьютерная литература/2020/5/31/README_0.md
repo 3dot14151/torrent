@@ -19,8 +19,7 @@ Cay S. Horstmann | Modern JavaScript for the Impatient / Современный 
 ```bash
 magnet:?xt=urn:btih:12E9B422C5817FCF288C96DC366FE89A0323A9DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

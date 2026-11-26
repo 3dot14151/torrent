@@ -22,8 +22,7 @@ Infiltration - Extinct (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:E2DACB2A9052FB6FD1532922D33FE942D234ED96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

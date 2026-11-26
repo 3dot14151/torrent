@@ -19,8 +19,7 @@ Halloween Chronicles 3: Cursed Family (2020) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:D6540B09126858B7CC3A61EDBECC47CA776502BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) SteamRip =nemos=
 ```bash
 magnet:?xt=urn:btih:CA0AAF6B2CC0EAE88328C95E1E6FB422F7A69C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Monster Truck Championship (2020) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:4A30D9AAD9A7577C175F4473F9FA325ACCE3EDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gears Tactics - динамичная пошаговая стратегия, со
 ```bash
 magnet:?xt=urn:btih:E12C6706BE0C1D44E1067CF6219F6DB9D2EDB43B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

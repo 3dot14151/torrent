@@ -21,8 +21,7 @@ Myles Kennedy - Solo Studio Albums (3 releases) (2018-2024) hand made [restored,
 ```bash
 magnet:?xt=urn:btih:9699B02E6B0275518FF1DD8DC5B48FBA30F2C19A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

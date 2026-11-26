@@ -22,8 +22,7 @@ A4 God Bless The Child(   Читать дальше...   )Жанр: Jazz, Blues�
 ```bash
 magnet:?xt=urn:btih:313CBB8C30B09244837A7887109597C4D942DA18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Jeden Abend(   Читать дальше...   )Жанр: Art Rock, Krautrock�
 ```bash
 magnet:?xt=urn:btih:95D3BCDADD3CAACA5CA9B3EB783667458A8E77B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

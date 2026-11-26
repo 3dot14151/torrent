@@ -19,8 +19,7 @@ Awakening: Moonfell Wood / Пробуждение. Лунный Лес (P) [En] 
 ```bash
 magnet:?xt=urn:btih:72770346AB9093446E6F20F4451D164EC12A5072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B163940CA706B838DEF2825F47017326E1A79DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Stray Souls: Dollhouse Story / Заблудшие души. Игрушка (P) [
 ```bash
 magnet:?xt=urn:btih:D66F2E6865AF6F515AD9BE4890AA10A375EF22E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Farm Mania: Hot Vacation / Ферма Мания: Веселые Каникул�
 ```bash
 magnet:?xt=urn:btih:3C2E6678E0CCA3696567F51A9F3F1AD2CAC021B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

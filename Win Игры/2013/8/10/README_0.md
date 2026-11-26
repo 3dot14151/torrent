@@ -20,8 +20,7 @@ The First Templar помимо одиночной игры включает со
 ```bash
 magnet:?xt=urn:btih:DC60FFDB776CFC3CE53104B89926CC43157C6AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

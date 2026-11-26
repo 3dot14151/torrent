@@ -22,8 +22,7 @@ Töxik Waltz (Toxik Waltz) - Declassified (2016) [FLAC|Lossless|image + .cue] <T
 ```bash
 magnet:?xt=urn:btih:4FC18BD4C887C7CF491A65F62623A7E6EF40BD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Goodbye Mr Mackenzie - Five (1993) [FLAC|Lossless|image + .cue] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:9313C42729B2C9FF8EEE5E8A0265484305C8A4BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Europe - Walk The Earth (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:583E202B2BB6E9C9DE04D4739DB3E17E42311E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Girls (Christopher Owens) - 5 альбомов, 1 EP (2009 - 2015) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:69E50625E5A2BC26F5333ABA434DF4175B93D5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Horrors (по русскому аналог «ужас», «кошмар») 
 ```bash
 magnet:?xt=urn:btih:4036F9A99A080EB19991C6D5ED2B723A8CF55B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

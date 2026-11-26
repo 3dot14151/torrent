@@ -18,8 +18,7 @@ Bloodivores | Кровопийцы [2016, TV, 12] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:723C036CC4AE02B8B9170DFD4052010721002DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EC210F327117B3E41DC3268FA553570F20C3556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ ARAYA (2016) [En/Th] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EBD3C47F4EF3D8371482A846E1E9BBA6BAE4F0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ SketchUP Pro - является профессиональной версией 
 ```bash
 magnet:?xt=urn:btih:7C3C3AF830DD5C7AFB7F7036CC2C16B2158DB89E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A199BA5F142EFA2855BE43912E61877F296B164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (Demo) License Steam
 ```bash
 magnet:?xt=urn:btih:9EB654672DC2AA44E44D37E1470F90204F0AC9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Stardock DeskScapes — расширение технологии Windows DreamS
 ```bash
 magnet:?xt=urn:btih:DFCCAF70F8E84BD0066D6D7CC0642B9AC38FD71C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A7A957B4A5F46F7CE2BBF052A88F22A2B3EA13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Microsoft Windows 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 12.2016 [Ru]
 ```bash
 magnet:?xt=urn:btih:53CA78F41354FC62DC810E91F412F25A4E9F9874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Windows 10 (x86/x64) 12in1 + LTSB +/- Office 2016 by SmokieBlahBlah 14.12.16 [Ru
 ```bash
 magnet:?xt=urn:btih:C9FEEC24577C31C29E6622A597594F2D8B87CF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

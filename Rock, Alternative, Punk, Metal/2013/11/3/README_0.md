@@ -28,8 +28,7 @@ Garth Arum - The Dawn Of A New Creation (2013) [MP3|320 кб/с]<Symphonic Metal
 ```bash
 magnet:?xt=urn:btih:10E399DA883541398CD590ABA4BD2644DD62DABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Kaledon - 5 альбомов (2002 - 2008) [WavPack|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9BC4E322D257ABC8B7B7CC3A268ED5FC79573C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Sparklands - Tomocyclus (2013) [FLAC|Lossless]<Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:221AA3166943D596B68A90649E2B7759B4B97E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Voodoo Hill - Wild Seed Of Mother Earth (2004) [FLAC|Lossless]<Progressive Metal
 ```bash
 magnet:?xt=urn:btih:800CD062F7B4D783921996B36083382DDA5D3EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Lion's Share - 4 альбома (1994 - 2009) [FLAC|APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:7D7BB074691CD0648E42D44D178DF4DB6C5A2FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Dawn Of Tears - Descent (2007) [OGG|~500 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:703CC6891BEB784A6B8F799F82A64BB2E6B29E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Eisregen - Todestage (2013) [MP3|320 кб/с]<Dark Metal>
 ```bash
 magnet:?xt=urn:btih:AAD135C13362F608E590DD49DAB1A261C771B64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD0FE5BB104E349D4656ECCEF16B03FDAFEDB8DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ VA - Thriller - A Metal Tribute to Michael Jackson (2013) [MP3|~272 кб/с (V0)
 ```bash
 magnet:?xt=urn:btih:C9ACB9BC067D28A30203358BDBCF94EDDBA8285C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ Fleetwood Mac - 7 Albums (1969-1974) Mini LP SHM-CD /2013, Warner Music Japan/ [
 ```bash
 magnet:?xt=urn:btih:E6A20F42825D05B07CA598C832EC23780D8AAD63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

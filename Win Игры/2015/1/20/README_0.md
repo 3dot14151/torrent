@@ -21,8 +21,7 @@ Rush for Glory – стратегическая игра в жанре tower def
 ```bash
 magnet:?xt=urn:btih:73745A0A5EB88D700B5DB00FFE1557A288E851B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ McDROID представляет собой смесь «башенок», ст�
 ```bash
 magnet:?xt=urn:btih:300B13AEEF05C2E24CD9A7B129E3F12B8CEBD5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Anoxemia — это хоррор-адвенчура, действие котор
 ```bash
 magnet:?xt=urn:btih:3DFA3820DB874000A7CB81BF98455E814031D6F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

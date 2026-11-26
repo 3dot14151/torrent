@@ -22,8 +22,7 @@ A4 Gordon MacRae & Sheila Macrae - Love Is A Simple Thing(   Читать дал
 ```bash
 magnet:?xt=urn:btih:D46AA3809C8B418BDAFC6287AC06F9F71A273F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ All That Remains - американская металкор-группа из �
 ```bash
 magnet:?xt=urn:btih:1DA11BD9E2041FA85C3E1AE2D117D1A1C4CE9546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

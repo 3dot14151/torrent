@@ -26,8 +26,7 @@ B4. People Of The Night :: 04:55Жанр: Disco, Pop, EuropopФормат: Vinyl
 ```bash
 magnet:?xt=urn:btih:E8EF65AC35F8BD2A4CA17DAE43A8E7A554F1A1FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

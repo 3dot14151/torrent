@@ -19,8 +19,7 @@ Truck Mechanic: Dangerous Paths – это проработанный до ме�
 ```bash
 magnet:?xt=urn:btih:082C63BD7A50165296E9AEF2B782BCC1E98F6B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hordes of Hel - захватывающая игра-рогалик на выжи
 ```bash
 magnet:?xt=urn:btih:CB6888B61429569620F6DA7B98B8040474323B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Soulmask - это песочница c приоритетом на реализ�
 ```bash
 magnet:?xt=urn:btih:868826326D180DAC5A224ED0A3A0BEB30FB2876B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

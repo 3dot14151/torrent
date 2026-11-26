@@ -28,8 +28,7 @@ B5. Бурлак 4:09(   Читать дальше...   )Жанр: RockПрод�
 ```bash
 magnet:?xt=urn:btih:AB9234807F15B44A4C3BBE0736860F9F71F35496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B5. Поколение дворников 5:20Жанр: RockПродолжите
 ```bash
 magnet:?xt=urn:btih:104337D6EF716672631DB2BEDF31C96305492E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ LP1:
 ```bash
 magnet:?xt=urn:btih:2960B93CD33EDA0DBCA02FE275A2050B0A0FD75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C2A7317D47CDAE2A85CB0157AA5A33176DD2B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ B4. Forgotten 3:13(   Читать дальше...   )Жанр: Alternative Rock
 ```bash
 magnet:?xt=urn:btih:9E747D6D4A323544ABAFEAE884BCC79E1448A55F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ B4. In Between 3:17(   Читать дальше...   )Жанр: Alternative Roc
 ```bash
 magnet:?xt=urn:btih:780F15C460AF0F800E2E8982F6503C4BB177CCBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ B5. Игра 5:01(   Читать дальше...   )Жанр: RockПродол�
 ```bash
 magnet:?xt=urn:btih:57D2EC97B2A2EB19087117CA650C5C8B9183965C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB102A62C4041A392FCCDD6360768FBC5D1F4E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

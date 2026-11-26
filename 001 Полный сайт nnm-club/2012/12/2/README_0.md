@@ -27,8 +27,7 @@ VA - Клубные Новинки Vol.193 from AGR (2012) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:FCE93AC29232482C4B81836B8EBDFE63A1A43C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Зарубежные Новинки Vol.96 from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:2CD77080A6CC560259BF1FFA03392BE77A7736BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Snow Dance 2013 (2012) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:4CE8BEAC309F03FEF1470E7490863E8ECFDFAE57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Хиты Шансона: 4 часть (2012) [MP3|256 кб/с]<Шансон
 ```bash
 magnet:?xt=urn:btih:589E515A7550CEC4EE7FC2FF270E7BC70E6B41E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ UnoRace - The Album + 6 EP (2010-2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:FFD33DD548481DEECBB5E40F1E29CD47BF959AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ VA - Зарубежные Новинки Vol.97 from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:0F6E78FBE8B4084F06AD1F08405B92B3FE4C0A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ VA - Cotillon y Musica de Fiesta 2013 (2012) [MP3|320 кб/с]<Pop, Dance, House
 ```bash
 magnet:?xt=urn:btih:2A8A0CED73945227089991E325648E37498F6973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Den Wave - Polaria EP (2008) [MP3|320 кб/с]<Techno, Deep Techno>
 ```bash
 magnet:?xt=urn:btih:76C940F7F10AA38CDC7F548128D2FBAADC92EA25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Death Techno (Podcast Mix Series) - DTMIX035 - Mixed by Joe Demateis aka Dirty S
 ```bash
 magnet:?xt=urn:btih:59939FDC3A3870017E8F51E94BEA41682D0C25D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ Lucette Bourdin - Silver Moon (2009) [MP3|320 кб/с]<Ambient, Electronic, Dron
 ```bash
 magnet:?xt=urn:btih:7953F8BD526A7B634FB542F16289D0C381E77CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B4F6F38258736D3A5865638E6FFC1482E18895D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ VA - Шансон с Огоньком (2012) [MP3|128 кб/с]<Шансон, Pop
 ```bash
 magnet:?xt=urn:btih:DBF181C73AFA31AE96A13D7674DB621A488AF214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +440,7 @@ Bound Of Reflection - When Love Comes To The End (2012) [MP3|320 кб/с]<Downte
 ```bash
 magnet:?xt=urn:btih:AB9521B240A8A89A80DEE3CB0F83541B9E7FD54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +474,7 @@ VA - Дорожный роман по русски. Выпуск 4 (2012) [MP3|2
 ```bash
 magnet:?xt=urn:btih:CD3592EBAE624E6C387D16AF664CC0F8D42F96C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +529,7 @@ Death Techno (Podcast Mix Series) - DTMIX043 - Mixed by Positive Merge (2012) [M
 ```bash
 magnet:?xt=urn:btih:688B6F3CDDC0686642F71FFE0553C4E43E1A1DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +563,7 @@ Dmitry KO - Konnekted Radio Podcast #1 (2012) [MP3|320 кб/с]<Progressive Hous
 ```bash
 magnet:?xt=urn:btih:DF3E1F416B9B536E9E365A8E0CE016C5C4048057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +597,7 @@ CD 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +631,7 @@ mindSpiral - Curiosa Positronica (2009) [MP3|320 кб/с]<Ambient, Electronic, D
 ```bash
 magnet:?xt=urn:btih:B3E4E616026E02E0418EFC7DEDE0F0121A2F1495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +665,7 @@ Death Techno (Podcast Mix Series) - DTMIX034 - Mixed by Doctor Space (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:CDCFBD2E38E4D9A56F6DB0EB41980B1ECE590D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +696,7 @@ Hinkstep - Downtempo, Psy Dub (2011) [MP3|320 кб/с]<Downtempo, Experimental, 
 ```bash
 magnet:?xt=urn:btih:B253B61525C9D6D0C2F1A1ED54DA95629EDA69DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +730,7 @@ VA - New Club-15 (2012) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:EA1265F6AA607D6548820F004257720B54081E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +764,7 @@ VA - Top 20 Hit List Italia - Misterorange Novembre (2012) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:B6C7F729DA9E1693A2EE7646B61CF8B097160E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -813,8 +789,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:344C04AFF0107FCE278F6F0AF0190E23733D8F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -839,8 +814,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A0DAB2CB71DD5282D792D305CDF1841F5153B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

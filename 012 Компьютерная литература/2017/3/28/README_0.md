@@ -19,8 +19,7 @@ Stoyan Stefanov | React: Up & Running: Building Web Applications (2016) [PDF] [E
 ```bash
 magnet:?xt=urn:btih:28041FE3C0E1AABA8D0AC3CD221AC71185C1557D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hungry Shark Evolution на Андроид - новая страница в иг
 ```bash
 magnet:?xt=urn:btih:516138937FC7D8E39CDC58FB97A67B53A772D881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

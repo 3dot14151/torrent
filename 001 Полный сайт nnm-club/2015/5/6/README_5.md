@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:86EDADFB86F8807342FD80A2CF1E1EA36B69CCD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Whyzdom - Symphony For A Hopeless God (2015) Japanese Edition [FLAC|Lossless]<Sy
 ```bash
 magnet:?xt=urn:btih:DA7B75E6C8CC37DCF3E318301F5EE1D09A1259B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:909AF0FC91BA4EAB67954B118DF488B4F24CB231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B966BBEC878CE1EBC66F800A7E377E8CD5C1CB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Soft and Pure Chill Out (Lounge & Chill Out) (2015) [MP3|320 кб/с]<Downt
 ```bash
 magnet:?xt=urn:btih:A2D0F45B1429D46ED9527EF6147740E0628C292D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Headdreamer - Human Frequencies (2014) [FLAC|Lossless|CD]<IDM, Downtempo, Ambien
 ```bash
 magnet:?xt=urn:btih:36D91130951F0F6F6E9101973407C0AB30527A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE167EF140297D3E4923CC16944971310661E50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Wild Hymns - The Wild Hymns (2014) [MP3|320 кб/с]<Modern Folk, Chamber Po
 ```bash
 magnet:?xt=urn:btih:18F4AB501C45B86C0F958E801DBE3D6A1F5EE702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ DSAC - новые атомные часы, которые снабдят точ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Edan - Beauty And The Beat (2005) [FLAC|Lossless] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:7876A9E20CD38FD5601025700964FF8CE4DD4006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Junkware Removal Tool 6.6.8 [En]
 ```bash
 magnet:?xt=urn:btih:EAA6D56CEE101F9AC9645910EAA6C68424B37FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:344AEFC85997D3218F0E90E4B995DF0A45FA74DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ VA - Pure Gold Lounge (Best of Sexy Easy Listening Deluxe Cafe Moments for Relax
 ```bash
 magnet:?xt=urn:btih:9F85E30AA5532E87CF90927974A05821A63191BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Carbon Copy Cloner – хорошая утилита для резервного
 ```bash
 magnet:?xt=urn:btih:4F14965B0C12924AD71375C48186650AB62D1F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50EE6FAC0C852C057C4914AFFCD05133307AFD14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38C2D98C4E00C9903C198F57FA17A838E66E0F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C20609A51973F80B837800AB778B059CB7C7A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Kate Havnevik - &i (2015) [MP3|320 кб/с]<Electronic, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:8979B653984E6EF87440E994E8DBBFFF5465CCCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:206B0CC515EEEE4636D2AB6B046D7F192DFC4162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D7A3683F3217C712762CD11D4C281CC12A73120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F821DFBF43F3BE5DF0AEC2D6F23705D21CEA867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ Cain's Offering - Stormcrow (2015) Japanese Edition [FLAC|Lossless]<Melodic Powe
 ```bash
 magnet:?xt=urn:btih:AAF008F3C16FB6CCD6283DF973357BB4D6CEC003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A50EF7BC0230F1A619C3EE040F91B7BA203C593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBBD33F4F09897FAE0FAAF292DD3D2F5C19DE6BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C64EDBC291083541F5A3FA7F4734EA9BDBD2A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Molok - The Time Of Light (2015) [MP3|320 кб/с]<Progressive, Psy Trance>
 ```bash
 magnet:?xt=urn:btih:3671866835AB6E13468A4F5FB058CAF59A9A6D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

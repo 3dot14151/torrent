@@ -28,8 +28,7 @@ Eruption - Leave A Light (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Disco>
 ```bash
 magnet:?xt=urn:btih:1B35E73D61900F5B929186546421C39096AB1F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Illustrator CC – это принятое в качестве отраслев�
 ```bash
 magnet:?xt=urn:btih:DEF8BC583AD7BEB6B8D50E3C15C2CEBA345B6AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E0FB2507AE834C8F0504B77F6CF95163B331637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Attack on Titan / A.O.T. Wings of Freedom (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:981BD0E3A96BD3EDC845AAA679CAC9649FD0E964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:E116CA207BEAF518DB00A9876877869720617A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Marvel: Ultimate Alliance (2016) [En] (1.0/upd20160804) License CODEX
 ```bash
 magnet:?xt=urn:btih:75C3BD7B8A541B227EDE39FC979EB8E065A50D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Attack on Titan / A.O.T. Wings of Freedom (2016) [En/Multi] (1.0/dlc) Repack Oth
 ```bash
 magnet:?xt=urn:btih:4E34F10809F2CC71CE374960E1B2F251EB26780E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Marvel Ultimate Alliance 2 - это сиквел Marvel Ultimate Alliance. В н
 ```bash
 magnet:?xt=urn:btih:1037C3091703EB4587D5292B6223697A19C45220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Sabaton - The Last Stand (2016) Japanese Limited Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:B97F3CD1312144316364008D68B4D1D0E523327F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Adobe Premiere Pro CC - это мощный, настраиваемый реда
 ```bash
 magnet:?xt=urn:btih:CBD1D5C0B4A46EDBA0011DA0E1DC5C3F9AC7880A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ sZone Online (2014) [Ru] (25.08.16) License
 ```bash
 magnet:?xt=urn:btih:4ED810311BE1AC834E2B133DCFFE60FB0B42F361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ VA - Дискотека 2016 Dance Club Vol. 155 от NNNB (2016) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:FD67A6BF4E2AAA165F3677175E0987267D5760F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C594BA3CCF5AD92FB492CC4F7741A6300F44D932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Devil May Cry 4 (2015) [En/Multi] (12.12.2015/dlc) Repack R.G. Механики 
 ```bash
 magnet:?xt=urn:btih:BB40B05F56EFA1DD7E26725AC6E0952F1A0A5FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F082EEA2C652D16D3F2E88ED1EF81077864BF5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ Phantomers - онлайн-шутер с современной графикой,
 ```bash
 magnet:?xt=urn:btih:B2EBBB5F729E19DE3CC6E3012C52CECEE1C30C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ LoftSchool | Web-разработка для начинающих (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:1B316CA655675A61530A56ED09348969734AC7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ ITVDN & CBS | JavaScript Advanced + JavaScript Шаблоны + JQuery + Angular
 ```bash
 magnet:?xt=urn:btih:362532C4DB57A7D7A1E8193A057CCCA3605EA21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

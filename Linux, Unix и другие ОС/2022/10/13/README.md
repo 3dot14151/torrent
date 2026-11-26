@@ -19,8 +19,7 @@ Network Security Toolkit (NST 36 SVN:13232) 36-13232 [x86 x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:FE41A7A8667CBCAF76D801958A7D728A8C378687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

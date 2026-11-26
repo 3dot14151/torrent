@@ -19,8 +19,7 @@ WindowBlinds - самая популярная программа для изм�
 ```bash
 magnet:?xt=urn:btih:86AD3E3F630639EF8A2F00EC3A8047DE52C787BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

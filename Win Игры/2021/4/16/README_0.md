@@ -19,8 +19,7 @@ Secret City 6: Sacred Fire (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:F47AB69E313DC92ACCC0141949FEBBAD0758BC9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Arcana: Sands of Destiny / Аркана: Пески Судьбы (2020) [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:E80E0198358182557422C87E3039778F1B8DE0D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

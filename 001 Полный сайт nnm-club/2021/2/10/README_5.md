@@ -18,8 +18,7 @@ Broadcast Design School, Юрий Довганюк | Broadcast Design School + P
 ```bash
 magnet:?xt=urn:btih:BFC1ABD8C9F7CB920918F90B941C3752C527E2C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:902B2AC72A3847E8A822C5D314F6657C38776373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9443B629B12360630AD28626A2533BCC5000B4A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Adobe Illustrator 2021 25.2.0.220 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:20FD02E775CA77229CFEE13C64BD846A5A754350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Frontend-разработка - одна из самых популярных и
 ```bash
 magnet:?xt=urn:btih:DFB86FC54B6AF2429770D75EF84EAB282AF523A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Late Shift - это криминальный FMV-триллер, ставки в
 ```bash
 magnet:?xt=urn:btih:444B9656D6D791E17F1880982E802A6008443B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Adobe Media Encoder 2020 - это программа кодирования, к�
 ```bash
 magnet:?xt=urn:btih:AE2A66CC7A98256DE988DBB18D97DB11BF514699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5D41A2CC548878DAB804DAC92563F50034936B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Senya Ichiya Monogatari | A Thousand and One Nights | Сказки 1001 ночи
 ```bash
 magnet:?xt=urn:btih:AB12CA8E143EDC5F5AAC897429458FC3787B7EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ After Effects — это ведущая в отрасли программа д�
 ```bash
 magnet:?xt=urn:btih:CAE496CACA1D7FFD5F90498EE6301B3A8D2DD061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Cleopatra | Cleopatra: Queen of Sex | Клеопатра, королева се�
 ```bash
 magnet:?xt=urn:btih:F05BCADE0C0CAD5F7EE6CEFE0BE999AAFD926720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Adobe Photoshop — лучшее в мире ПО для графическог�
 ```bash
 magnet:?xt=urn:btih:65A4F579B0061CBFDA1002816A1DD48FD942F1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99DF24A03930C454E2A4D18A459192817D856C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Adobe Premiere Pro CC 2020 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:DC2A3DDA5A3A66C0A0B6F2C730EB4344B348F53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

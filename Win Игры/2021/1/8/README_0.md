@@ -19,8 +19,7 @@ Ebola 2 (2021) [Ru/Multi] (1.1.8) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9DE3CFCBAE81EA421F4F31B7F40C704AAA39207B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

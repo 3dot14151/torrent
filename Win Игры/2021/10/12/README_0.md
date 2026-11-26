@@ -19,8 +19,7 @@ Monster Crown (2021) [Ru/Multi] (1.0.2) License PLAZA
 ```bash
 magnet:?xt=urn:btih:7A3E5DE74A6A5E55FF76D4254934C4A838D602A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

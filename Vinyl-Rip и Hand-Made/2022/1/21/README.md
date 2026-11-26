@@ -23,8 +23,7 @@ Suburban Tribe — рок-группа из Финляндии. Группа п�
 ```bash
 magnet:?xt=urn:btih:5176F3BFD3765BAFF54447851939BF157DE39BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Acronis Backup (бывший Acronis Backup & Recovery) - программа д�
 ```bash
 magnet:?xt=urn:btih:7BDCB5FC7989A4AE4537E72E86B072C383E68553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Dry River - Enochian (2014) [MP3|320 кб/с]<Post Rock, Instrumental, Ambient,>
 ```bash
 magnet:?xt=urn:btih:B50C56EA91B96C88DC771ECF4DF2AB0F8386BA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ High Five Drive - 2 альбома (2006-2009) [MP3|320 кб/с]<Hardcore, Fast 
 ```bash
 magnet:?xt=urn:btih:BDA8E8815CCFC183E1EB35C0E95A947F115B3C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Son de la Frontera - Cal (2006) [MP3|320 кб/с]<Folk, Instrumental, Flamenco>
 ```bash
 magnet:?xt=urn:btih:5B9716F58B3A2C2C291F614E09D9284E8C69F45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Pour Habit - 2 альбома (2009-2011) [MP3|320 кб/с]<Melodic Hardcore, Sk
 ```bash
 magnet:?xt=urn:btih:8D2A7F9CC3BB5B21AB91A12B6A8FA52D7140FAF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Flinch - Too Much (2014) EP [MP3|320 кб/с]<Trap, Breaks>
 ```bash
 magnet:?xt=urn:btih:9E3AD5BA921513B26788BC6BEC2AA676C9B7D0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F835975DCFB47E2B07345B6BFA8316D08EE3F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Metropole Orkest - Fast City (2010) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:5B4B728F1BCA9273EA9926EDC962FED2E2DD0D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ Makiko Hirabayashi, Klavs Hovman, Marilyn Mazur - Surely (2013) [WavPack|Lossles
 ```bash
 magnet:?xt=urn:btih:509C341D558078FA99F8A286936C789C61BFF478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ Barren Womb - The Sun's Not Yellow, It's Chicken (2014) [MP3|320 кб/с]<Hardco
 ```bash
 magnet:?xt=urn:btih:A05F5C3C4D104D1C5C5DDBEC8F811B49BC5135A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ Astronomar - Leather Gloves / Peyote Secrets (2014) [MP3|320 кб/с]<ElectroHou
 ```bash
 magnet:?xt=urn:btih:791B1A49C72789B12EF0E6F2521F531324903EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Submatik - Gelassenheit (2014) EP [MP3|320 кб/с]<Drum'n'Bass, Liquid>
 ```bash
 magnet:?xt=urn:btih:C3A608F92487EF588ABB3C43007C0EE33826D0D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ VA - Dub-Now! Weekly Dubstep 130 (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:30E9D57E037CD7AE0AE19959398D2CE073DA6DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ Ear Danger - Warrior Soul (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:189BEFA11D14FF5C376D42264E6246B4B902E817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +461,7 @@ Chronosphere - Embracing Oblivion (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A5AE1E25552E194C3C8805CEC278304E8B7C6D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +495,7 @@ Counterpunch - Bruises (2014) [MP3|320 кб/с]<Melodic Hardcore, Skate Punk>
 ```bash
 magnet:?xt=urn:btih:09AAC2AC635FCAC47452206C15823BB72064A63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5652B3C603F3F9A34F6ECFF2907D670030F4CA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ Caked Up - Bang Your Head (2014) [MP3|320 кб/с]<DutchHouse>
 ```bash
 magnet:?xt=urn:btih:C78D58FF3E961D3A8695B2BCF6264E3A6FE59560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +574,7 @@ Deckset поставляется с девятью удивительно выг
 ```bash
 magnet:?xt=urn:btih:4C83316762A56860CBF5AFE272A462D39D750BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ VA - Dub-Now! Weekly Dubstep 131 (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:AF68DDA0A2B1EDCE0AB96EA3ED6EF748009F6675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ LeKtriQue & Seek N Destroy - Atomic Remixes (2014) EP [MP3|320 кб/с]<ElectroH
 ```bash
 magnet:?xt=urn:btih:D14CEAE55746F075A6F0B04D583A73412F484BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +669,7 @@ VA - Best of Chill Out (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:D9FE90E1A13CBC088F083437973056596031E26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +694,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:EFE5B41C5464E34A3593267359D10941B2A2E4C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +728,7 @@ VA - Psycana Rama Vol.1 (2014) [MP3|227-259 кб/с]<Psytrance, Full On>
 ```bash
 magnet:?xt=urn:btih:9D82DD790F9C3327B2DD26E31B3ADAF06C4A6C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B4E9088B1B69C57A15BDE8151813691393FB70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -812,8 +787,7 @@ Dagor Dagorath - Dissident (2014) [FLAC|Lossless]<Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:BFA90F045E19F6F40F3D954781370F2D652E9333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

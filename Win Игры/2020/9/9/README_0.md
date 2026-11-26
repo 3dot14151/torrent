@@ -19,8 +19,7 @@ Metel - Horror Escape — это 3D-игра от первого лица в ж�
 ```bash
 magnet:?xt=urn:btih:62DFC2DA68257B10E1D1436166116F6E711B16C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

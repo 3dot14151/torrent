@@ -22,8 +22,7 @@ Mando Diao - Aelita (2014) [LPCM 2.0 96/24|DTS 5.1 96/24|Audio-DVD5|BD-Audio] <E
 ```bash
 magnet:?xt=urn:btih:AE1C38E4E59F242F14A156FC0D194763CD734471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

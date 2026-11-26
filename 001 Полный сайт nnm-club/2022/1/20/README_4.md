@@ -21,8 +21,7 @@ Meteora - Gradients (2015) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic
 ```bash
 magnet:?xt=urn:btih:3D1983B42DBFE8EE8BD5A854897A42F7670B6A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ AnyMP4 DVD Creator – профессиональная утилита, кото
 ```bash
 magnet:?xt=urn:btih:374F3104C2638C4D59D7A1A41E9F9CA9B465B0E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ The Alive - Turned up to Destroy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:0FD0778254664D270DB90EAF8D26F807A4C1E5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Bootstrap Studio обладает (   Читать дальше...   )Тип и
 ```bash
 magnet:?xt=urn:btih:C763D0353B7DE812D45D43F574DE52BCCB88EC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Bonde Do Role - With Lasers (2007) [FLAC|Lossless|image + .cue] <Breakbeat, Hip 
 ```bash
 magnet:?xt=urn:btih:877527F1255F6E96CA8442BD991DEC1D0B0C0A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:659A096C86D1A9DA9EC225C8778B6FB160C158C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01EFE88139FB550400A1BA3BFAF758014E07C24E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:336C793A7FFC80C192578D7012E109B75FB5F2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ MacCleaner 2 PRO 2.7 [En]
 ```bash
 magnet:?xt=urn:btih:561A853780D80574B69D22F3C0E91693CD94AB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ VA - Ambiental Journey: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:EE5DE18DE6D207C026639A359C019018E82661D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ UctoX - это мощное приложение для выставления �
 ```bash
 magnet:?xt=urn:btih:2BE6F53048A47499B68CBA9A927A6CD1B9F67FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ VA - Reggaeton World, Vol. 5 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
 ```bash
 magnet:?xt=urn:btih:7EF027416B997F619D7F8BD735F575C90F0E76E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Guenter Haas - Famous People (2020) [AAC|~335 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:EC41D1ED0BA2D440A4E49202258C122ED02A4F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ VA - Reggaeton World, Vol. 4 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 ```bash
 magnet:?xt=urn:btih:6D928D1F9D6E0E22215B82293F9762DDE2AAE91E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ VA - Reggaeton Nocturno, Vol. 2 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
 ```bash
 magnet:?xt=urn:btih:95F3CE03BF61D8324182B5695467C728C2D21AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ File List Export (бывший File list to Excel) - простое в испо�
 ```bash
 magnet:?xt=urn:btih:B6F796E13EBD82FE47399EE7B5591CD683671C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ VA - My Electronic Kitchen, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Do
 ```bash
 magnet:?xt=urn:btih:84C13C2B3284BAEC06BF6C2A96E6ED2FC527ADA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ VA - Ibiza Chillout (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:ADC67F0DB42F69DE2FC87FF77DD19AEBE06AE070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ App Tamer 2 v2.6.5 [En]
 ```bash
 magnet:?xt=urn:btih:50AC83CC5A4551CB5E9E2E299ED53F8E0360EC49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Cisdem AppCrypt  - несложная  утилита, которая дает �
 ```bash
 magnet:?xt=urn:btih:BE196BFF935D4721ACFD5133FBC220AD40E41C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 ```bash
 magnet:?xt=urn:btih:683490EC962817E8A2DF6113C6B589076CBAEBF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ Mirror for TCL TV 3.7.3 [En]
 ```bash
 magnet:?xt=urn:btih:AD005A561979A6590748EB7E8046154A0D564EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ VA - Reggaeton Nocturno, Vol. 3 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 ```bash
 magnet:?xt=urn:btih:84C1C1EF1E02CBBD036FA8FB2BB79F26B7F87BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ VA - Stil vor Talent 300, Pt. 3 (2021) [AAC|~326 Kbps] <Melodic House, Progressi
 ```bash
 magnet:?xt=urn:btih:F6BBA06C1AC8A5EA13F001B58AFD8E46B176D314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Mirror for Beko TV 3.5.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:5C2259226E1921ED94A9F00AF5765F57CCDBF34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ VA - Colours of Lounge, Vol. 2 (2022) [AAC|~324 Kbps] <Chill Out, Lounge, Downte
 ```bash
 magnet:?xt=urn:btih:939B62E9A5771CDCB676D1D717041019DA760AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

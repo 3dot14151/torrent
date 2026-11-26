@@ -19,8 +19,7 @@ GParted - мощный и бесплатный инструмент, котор�
 ```bash
 magnet:?xt=urn:btih:DDEA0B96C4C01A62E129A5BBED648F1734513476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

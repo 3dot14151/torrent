@@ -19,8 +19,7 @@ BIT.TRIP RUNNER – это самый быстрый и веселый музы�
 ```bash
 magnet:?xt=urn:btih:0B96B1EDC8662242E2AB38EF5D74FB03DB9EC2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blue Fire (2021) [Ru/Multi] (3.0.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2367FBDAEEDB873AABA0CBB79A0013D2F35633C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

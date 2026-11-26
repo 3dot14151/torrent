@@ -22,8 +22,7 @@ A4 Tiger Rag(   Читать дальше...   )Жанр: Jazz, Dixieland, Ragti
 ```bash
 magnet:?xt=urn:btih:0B79CB17B87EE2E098614337C012A622E3AB7C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tool — американская рок-группа из Лос-Анджеле
 ```bash
 magnet:?xt=urn:btih:A9AEA0772875582E601096C7754DB272CF1C7E01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Seven Impale — это звучание прошлого и будущего. �
 ```bash
 magnet:?xt=urn:btih:FDF8E362DDC281DCAFBB36FD25E1FB646B00C75E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:F5F217E593D25FFF2FB0050A3CC41C7B4624B609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ TurnOn (2016) [Ru/Multi] (1.0.0.7) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AB53BCB33CAE556C035798D21590305A9515F32A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Stranger of Sword City (2016) [En/Ja] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:961D4F9A6B972CFDB5D089493C2701EFD5C6B4D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

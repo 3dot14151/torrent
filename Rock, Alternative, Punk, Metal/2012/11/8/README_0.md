@@ -28,8 +28,7 @@ Dominion - Born God And Aware (2006) [FLAC|Lossless]<Brutal Death, Technical Dea
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Becoming The Archetype - I Am (2012) [FLAC|Lossless]<Deathcore, Progressive Deat
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Simon & Garfunkel - The Concert In Central Park (Japan SICP 1540) (1982) [FLAC|L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

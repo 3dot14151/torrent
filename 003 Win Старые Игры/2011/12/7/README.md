@@ -19,8 +19,7 @@ Scrapland / Scrapland: Хроники Химеры [Ru] (RePack) 2004 | Fenixx
 ```bash
 magnet:?xt=urn:btih:9080652167AB16E2ED2505874253257C1A90722D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

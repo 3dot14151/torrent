@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C57CF527699B75BBE49B3EA18C8CDCBE1351A8D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Acer | Service Guide Acer Aspire V3-571/571G [2012] [pdf] [En]
 ```bash
 magnet:?xt=urn:btih:5849AE757DB43D6DFE3D3E15C9E2B4378C92C917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7987EEAC3995E52FAC5177CC80A9BFEAE602165F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

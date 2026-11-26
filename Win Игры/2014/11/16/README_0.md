@@ -23,8 +23,7 @@ Knock-knock (2013) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8C4FE7288F7EEF7E06DC93C5C9A08C20132D29FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

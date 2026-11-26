@@ -21,8 +21,7 @@ Telegram стал любимым мессенджером миллионов л�
 ```bash
 magnet:?xt=urn:btih:F513497DB0E69B5C7E36B2B7B17F405D11832F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

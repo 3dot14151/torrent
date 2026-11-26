@@ -19,8 +19,7 @@ Lion King Anthology (Disney) / Lion King Антология (Disney) [Ru] (L) 20
 ```bash
 magnet:?xt=urn:btih:5DE38901E4D36D9403E868BA4E84102651FD0F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

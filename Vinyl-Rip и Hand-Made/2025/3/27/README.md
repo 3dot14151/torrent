@@ -22,8 +22,7 @@ A4 Stare Into The Sun(   Читать дальше...   )Жанр: Heavy, Power 
 ```bash
 magnet:?xt=urn:btih:012233B976E2A9AB6A96E12318C15A43C8D46876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nightwish - Over the Hills and Far Away (2001) EP, Released, 2014, Music On Viny
 ```bash
 magnet:?xt=urn:btih:4CA8A0410D5CA6AB68FACF5C5FA72E0C4F61AB24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B1 Human Genocide(   Читать дальше...   )Жанр: Death MetalПро
 ```bash
 magnet:?xt=urn:btih:B4C42351CC132EC48D8684BF6FEE7708ED4650FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 - Odin Owns Ye All(   Читать дальше...   )Жанр: Viking Metal�
 ```bash
 magnet:?xt=urn:btih:DBC5B3B682582B7E87E18E645C86925DC3F39649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

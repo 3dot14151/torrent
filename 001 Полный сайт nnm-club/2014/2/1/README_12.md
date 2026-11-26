@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E7E2468DCB11B34B676E0C87C63338A0BDBBBB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Crystal Theory - Mingle: Chillout Versions of Classic Standards (2006) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:98D50505B16B839A96C08CFF893430801355AC4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Elements Sphere Imperial (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:C9B5CBC20B99301734322D66792CF951F455CEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Stone Age - Stone Age (1994) [MP3|320 кб/с]<World, Celtic, New age>
 ```bash
 magnet:?xt=urn:btih:E08FB118445689423154AD47482114C33CF6356B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - The Winter Living Lounge (2014) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:2F5E4D929757DCE7E11B32B3D5E1409E6217C145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A63D53E20F185CAF1C24FE0B68000670E3367D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Nullgrad - Seeds (2013) [FLAC|Lossless]<Dub Techno, Techno>
 ```bash
 magnet:?xt=urn:btih:AA03523679FB8433FDF68F862614FD7C36E74B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ Acuna - Hoff - Mathisen - Barxeta (2012) [FLAC|Lossless]<Jazz-Rock, Fusion>
 ```bash
 magnet:?xt=urn:btih:6E0C7A945423AC598CEA3770BAF366EF1D43FF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Savvas Ysatis - Archiv #08 (2013) [FLAC|Lossless]<Detroit Techno, Dub Techno, Te
 ```bash
 magnet:?xt=urn:btih:26CBCFC8432C72880124992CA595E6AD74D5C0EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:098D654BB450DB21D8AEF98577AB81148325B6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ VA - Tribal Voices. Songs from Native Americans (1996) [MP3|320 кб/с]<Folk, N
 ```bash
 magnet:?xt=urn:btih:7AEE9994774904C54B2A884502637FA6320A3A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ John Taylor - Giulia's Thursdays (2012) [FLAC|Lossless]<Hard Bop, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:E6D848250D4DCFB900A46FB6F6260B3EB7ECF317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +404,7 @@ VA - Deluxe Lounge Music (2014) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B431CA6946796572795EF9C8E90836B89A568E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B83860A3702D312770D97214ACFF080528A8AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ Flembaz - Wild Horse (2014) [FLAC|Lossless]<Progressive Techno>
 ```bash
 magnet:?xt=urn:btih:0A6B8403F19F33D25C1C87EF4032F6F5C41F68B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +490,7 @@ Asian Dinner vol.1 (2012)
 ```bash
 magnet:?xt=urn:btih:D0D4059045DEE6C4B492F81B3213EA47375F70A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +524,7 @@ Bester Quartet - Metamorphoses (2012) [FLAC|Lossless]<Jazz, Klezmer, Ethnic>
 ```bash
 magnet:?xt=urn:btih:0E4744B5DEB9910D2DB8EC60CF4E57F2B9C6B1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19C4094A084AADA2E622E58A9EB95C0A9E6578E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +583,7 @@ Acoustic Ladyland - Last Chance Disco (2005) [APE|Lossless]<Jazz-Funk>
 ```bash
 magnet:?xt=urn:btih:CDD80FB2512E1C377FD1C5399F1072448403A2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +617,7 @@ VA - VIBE - Powered by Armada Music (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A4A4BCB4C694DDB6B760AC5259A7F9E6B02FE605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +651,7 @@ Adam Baldych & The Baltic Gang - Imaginary Room (2012) [FLAC|Lossless|WEB-DL]<Co
 ```bash
 magnet:?xt=urn:btih:0436F1ADD8A4ACEB1D6166506751F86FBF8DF5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10EB69ABEB832687685B0479CA681195DC1030D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +701,7 @@ Multi Commander - бесплатный, удобный, мощный, функц
 ```bash
 magnet:?xt=urn:btih:6AEE5245F02129462BB13C894818BCB32C2A153B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +735,7 @@ VA - Pearl Room Lounge (2014) [MP3|320 кб/с]<Lounge, Chillout, Deep House>
 ```bash
 magnet:?xt=urn:btih:3D28D5587A811766DC61B88B0A296132E704B44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +762,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CD0F4947D7B9B6DB3DA926E216DBDC3D493CE8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -813,8 +788,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A0C49E5A8BEB1F38ECB12AFE7F5D10B81237CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Speedollama (2024) [Ru/Multi] (1.3.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:05E983F7F7C209EFA1A6BE0113F2717294CBB60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Combat Mission: Red Thunder переносит в жестокие сражен�
 ```bash
 magnet:?xt=urn:btih:F32145C16B3FACBB4AE8579CF63C1E1A8FD3B2AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Old World - это историческая стратегия, в которо�
 ```bash
 magnet:?xt=urn:btih:F819F47CFAE810C0A9087DA7DFDE9315080F9020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Whispered Secrets 16: In the Cards (2025) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:4A633B1C4E97057BC5799B5CD91FA6DC81F79622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.334) License GOG
 ```bash
 magnet:?xt=urn:btih:B6E5D1A7FA2EB068273B61C8E5CE41B01153B23B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7321B0300D024AF26153FE0D0A66A2B1556A1455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Martha Is Dead - это мрачный психологический трилл
 ```bash
 magnet:?xt=urn:btih:3D34914DB9FC639B2A75D735A7A4099DF8D77169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ ORDER 13 (2025) [Ru/Multi] (1.02) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B36C8B517C57C8DB1FA3356F58740166E8AF82FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Assassin’s Creed Единство - приключенческий экшн, �
 ```bash
 magnet:?xt=urn:btih:8913F61284736A9804A52A1387DE4C4B1CFAA5FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Robin Hood: Sherwood Defenders (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B2315865A5BA4C69E8F04BD2747ABF8270DBEB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Combat Mission: Final Blitzkrieg погружает вас в заключите
 ```bash
 magnet:?xt=urn:btih:A3648A7BF0BEBDEF02FD4D661E842C621C638574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Taxi Life: A City Driving Simulator - симулятор такси, в кото
 ```bash
 magnet:?xt=urn:btih:04689335A9734A7E3D0174FEEEAD665A787839B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Asylum (2025) [Ru/Multi] (build 17707886) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:51C4A680A790C9E0213C67C2043ABA8C3026D4CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Combat Mission Cold War - пошаговая стратегия, действи�
 ```bash
 magnet:?xt=urn:btih:8FA3CA63AACB4ECC9BB0469818989A528418A54D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Combat Mission: Fortress Italy предлагает детальный и зах
 ```bash
 magnet:?xt=urn:btih:659C84A5DFF650BB34D9F5303F421CE67357FE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Gone Rogue можно назвать иммерсивным симуляторо
 ```bash
 magnet:?xt=urn:btih:2CE311D0EC179E0DAD771CED9874E3B251252C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ METRO QUESTER: OSAKA (2024) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:474F71B903B55344687B5F04B0F15F24D754F641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

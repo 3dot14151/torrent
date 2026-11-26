@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:54FC4C86258D85271F3D65C74FA4F350FA784D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08B5603F54E4DCF0C1D5D1699A629258EE658002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45BAB3BB47C8485C887D03EFB43ED5BE1DBF4F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2D4362A240DF498F09C7C3B14CBAC50263A3B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Project Zero 2: Wii Edition [Wii] [PAL] [Multi 5] (2012)
 ```bash
 magnet:?xt=urn:btih:289EFD44247BA685E8779FC3D728804E04C77EE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF3F047AD648C7DC313AC31C2DE0811C6729CFAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Kuroshitsuji / Темный Дворецкий (2006) [70][Манга][Русс�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Risen Collector's edition / Risen Коллекционное Издание [Ru/
 ```bash
 magnet:?xt=urn:btih:485D4607CA6CC77BE687DE266A8497D073096F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Tom Clancy's Ghost Recon: Future Soldier Deluxe Edition [Ru] (L) 2012
 ```bash
 magnet:?xt=urn:btih:8F8FA6D009E03F96ED2CADF966D8264CA3FFADE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Ghost Recon: Future Soldier обещает выйти за рамки серии
 ```bash
 magnet:?xt=urn:btih:CBE1D4403129F8DDD6FA5BC76F3220BA16E6AECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ StarCraft II – продолжение эпической саги о трех 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Max Payne 3 (Repack/1.0.0.28) [Ru/En/Multi6] 2012 l R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:A14E376F598651ECB81F2DBCE15106D7740691CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

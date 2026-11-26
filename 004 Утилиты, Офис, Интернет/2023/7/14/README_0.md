@@ -19,8 +19,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:A87367B32F9C1642C7C9DD3F062689D022055CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ NVCleanstall - портативная утилита от интернет-по�
 ```bash
 magnet:?xt=urn:btih:0A364A30AB854D77840ACBE34E26EBB36D34FD64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Task Manager DeLuxe - утилита для предоставления пол�
 ```bash
 magnet:?xt=urn:btih:5728D84D7CBBC27DF730F7B8704C61F955DA3B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:A7018D0592D8CC5B7207E5B91F1093D49F9B8790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

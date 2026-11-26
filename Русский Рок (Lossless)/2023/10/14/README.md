@@ -22,8 +22,7 @@ Entrenchment - Silence After Us (2023) [FLAC|Lossless|image + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:CA8AF98F7909153D81BC42D48C59B71E38C1FA50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

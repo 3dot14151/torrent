@@ -19,8 +19,7 @@ FiveNotes (ранее известный как Quick) — это небольш
 ```bash
 magnet:?xt=urn:btih:BC8D4FB7483E969653DA70FCA27D282D3458B392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Volume - The Volume (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Prog, Psych,
 ```bash
 magnet:?xt=urn:btih:ACF03051D6F3ED37265F8DD14C9822E1AA186CBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ DirEqual - это инструмент сравнения папок, котор
 ```bash
 magnet:?xt=urn:btih:12F5F6A07946427D8DE96B45AD6AC62B9133CD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Winterfylleth - The Hallowing of Heirdom (2018) Deluxe edition, 2CD [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:E33A727DCD41145FB470D7F93EFC0BFDEAF9B9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Winterfylleth - The Reckoning Dawn (2020) Special edition, 2CD [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:A597DAC4BA7425F19C42C013D7A9ABB9400429D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:D67F37CF4D766FD5B4BDCAF989B80FC6007EA9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ GlueMotion был создан, чтобы сэкономить время и п
 ```bash
 magnet:?xt=urn:btih:51C79F05A5E8A1F33BC66F6D8CF305A4A0DB815A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Roy Eldridge - Swingin' On The Town (1960) 1999, Verve [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:F779000C4942EF57602395B019DB1CFEC129D450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ The Jones Brothers - Keepin' Up With The Joneses (1958) 1999, Verve [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:63EE85474EBCCB3D20A1304448E86ED3F5E90F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:9E3BA8819A826C53516C7801ABC8AA188E6886FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ QuickLinks - это приложение для создания пользов�
 ```bash
 magnet:?xt=urn:btih:F325D928AD64F0E41DEF88E895CB4527C89173C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Ayoki - 8 Relises (2018-2022) [MP3|320 Kbps] <Alt. Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:CF6B585ACA77D85EAFE9F925C4C7DFB23A8F27F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Stone Nomads - Fields of Doom (2022) [MP3|320 Kbps] <Stoner, Doom, Sludge>
 ```bash
 magnet:?xt=urn:btih:B6FA346919C32323CE03E5D5C64B4BCA5CF31B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Nonoise - Beetah Duh'Dhul' (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Psych Doom, 
 ```bash
 magnet:?xt=urn:btih:C4165AD92399DA63EDF8811C813BCF804FBE2D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Dark Mode Switch - это приложение, которое позволяе�
 ```bash
 magnet:?xt=urn:btih:F5F1C0ED6FB7A1C2230DC79AD70435F57199BA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Nonoise - Beetah Duh'Dhul' (2022) [MP3|320 Kbps] <Psych Doom, Sludge, Stoner, Sp
 ```bash
 magnet:?xt=urn:btih:A028C83A063A72C0B5F243ABBD2EBE2BAB53F2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ Texifier — это редактор LaTeX, предназначенный дл�
 ```bash
 magnet:?xt=urn:btih:7BB166AD66DB0D1537853B28A0AE21FFB9BA0C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Freight Train Rabbit Killer - Hammer Of Judgment (2022) [MP3|320 Kbps] <Psych Do
 ```bash
 magnet:?xt=urn:btih:15AC1A542D10DF368BD410274B60D5EC1EC0319E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ FileMaker Pro - это платформа для разработки и для 
 ```bash
 magnet:?xt=urn:btih:96321CE729EAEC3235BC7E4BCA5B8BE4BC0367C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C65E802947C5291FAA8B499A735C951E6D48D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ In Flames - Clayman (2000) Reissue, Remastered, 2020, Nuclear Blast [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:9639B28510ECA9FB91EA362361EC2CAAED753B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0166A86DB471DC7F22E904F4691452AE60C14245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9012A0B1782938E9DC054703044B67D532D82644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ PowerPhotos - позволяет разбить ваши изображения 
 ```bash
 magnet:?xt=urn:btih:CEE7796CF3204F2FBC9A9694160C3C4195DD05F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ The Volume - The Volume (2022) [MP3|320 Kbps] <Heavy Prog, Psych, Stoner>
 ```bash
 magnet:?xt=urn:btih:E36004A23842D33D0080D29EB6FFB6AD30BA0BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ TextMan 1.7.1 [En]
 ```bash
 magnet:?xt=urn:btih:499638E75222EFD37603315054CD1FA52FA2B6F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Alvin Lee and Ten Years After (1967-2008) - Discography (53 albums) [MP3|320 kbp
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

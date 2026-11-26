@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C4DB16CBE840FFD2ADAEEE6317137F9447048286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:39DC90141437C2BCD9EFC1243FBA30AA0D52873C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:382A13D324E0499B670B95746543D3B1D4C8E737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Nat Geo Wild: Дикая Иберия / Wild Iberia [сезон 1 серии 1-4
 ```bash
 magnet:?xt=urn:btih:9B1E505511AAACAF642F60CEE216239BD1DF9274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Comedy Баттл. Последний сезон. Выпуск №13  / Коме
 ```bash
 magnet:?xt=urn:btih:B92997A6DE59C6C34C4D144E8AAE68BA48A0BA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ VA - Car Audio. Русский, Душевный (Sound Clinic - Special Edition
 ```bash
 magnet:?xt=urn:btih:C2E9C711B47B27F879732870F918CE2577AA1C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ VA - Летние хиты за рулем. Русский выпуск (2015) [
 ```bash
 magnet:?xt=urn:btih:4ED9AC1E6AF75DA7E042E3093EF1E6DF00C0F5DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Looney Tunes Dash! 1.54.41 [Ru]
 ```bash
 magnet:?xt=urn:btih:CD7E18FE84EE366E1DA8393F785460E7982580FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B64B7DDA26E3EE89BECD5108F02A4B9E30A0751E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:430B4AA45CCC7389909270948339EF6796CA0C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6845C7DE4EDD09EDBC80052CF7448AC8C8BC2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:65CFBCCF0CDDB277F06C0F5573386607D7A918D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ System Ninja - это бесплатная утилита для быстрог�
 ```bash
 magnet:?xt=urn:btih:2BBF93C94889C157A6A966F6F6F11CBE65CEE058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Dance With The Dead - Near Dark (2014) [MP3|320 кб/с]<Electronic, Retro Wave,
 ```bash
 magnet:?xt=urn:btih:8558DDAB95132B39F4932D7ED3F8BF6507BA43AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C7F20CCC72D8A49116FBBB4A446571E4F0709D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0A0BF778F0BA9903A4C9AD754331A34E46C8651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ CM Locker (Security, Booster) 3.0.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:8EFC5F8080C730ACA991328A760D8D3AF6A8A996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ Shadowrun: Dragonfall Director's Cut v. 1.0 (2014) [Ru] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:43C635D400548C3F8A5F0B332CED39C11A795E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ Lorne Balfe - Terminator Genisys (2015) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:352A50B777CB64B5CF21765E73AB44EEB08B10FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:043C99207A292AA4B5F10B605C492E40BF814318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B88B3CE09CD3F11500655AE3BD97272E72080B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ PC Reviver является многоцелевой утилитой, кото�
 ```bash
 magnet:?xt=urn:btih:853F87C46D27008BC742E30348123197309CD2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ Tales from the Borderlands: Episode 1-2-3 v.1.0 (2015) [En] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:62003DF3E15FACB1C39EAE4918349215858361A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ Bad Boys Blue - 30 (2015) [MP3|320 кб/с]<Disco, Pop, Eurodance>
 ```bash
 magnet:?xt=urn:btih:EAF842D0C3E4EBF6D38D1B7A56ECE30B40200AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ FarStone TotalRecovery Pro 10.5.3 Build 20150508 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0300AF03F0CAC584399373E3AA40B63E30F38264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ScanPapyrus - программа для автоматического скан�
 ```bash
 magnet:?xt=urn:btih:CAC16BD101D2CF147EE85DD5084611E719D052D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

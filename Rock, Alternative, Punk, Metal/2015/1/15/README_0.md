@@ -23,8 +23,7 @@ Arcana Coelestia - Nomas (2014) [MP3|320 кб/с]<Black Metal, Funeral Doom Meta
 ```bash
 magnet:?xt=urn:btih:DEF4989385A9799A8919B5CAFEA63A6923EC2F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Kruor - Nightmares (2014) [MP3|320 кб/с]<Old School Death Metal>
 ```bash
 magnet:?xt=urn:btih:16F6DE89F33C017331B5861D35245B8700FC4BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ That's No Moon - Hyperion (2014) [MP3|320 кб/с]<Alternative/ Indie/ Pop Rock>
 ```bash
 magnet:?xt=urn:btih:3A3B24E58644E08AE263E286F8CA3F9284D65BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ V.A. - Resistance: ANTI​-​NSBM Volume 1 (2015) [MP3|320 кб/с]<Hardcore Pu
 ```bash
 magnet:?xt=urn:btih:D36CCB77A82F21FCF72726B95355431396A8F078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Diskelion - Remember Sorrow (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:7C0850BFD9082AF9B10D8989B007FDB1644608D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ VAST - 2 альбома (2007, 2009) [MP3|320 кб/с]<Alternative, Acoustic Roc
 ```bash
 magnet:?xt=urn:btih:3E3301E0AE8482FC225AC2143379A0B34E4AAA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Orden Ogan - Ravenhead (2015) [MP3|320 кб/с]<Power Metal, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:876128F56BB3E5173C26411473CD01D9C539E98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Gillan and Glover - Accidentally On Purpose (1988) [MP3|320 кб/с]<Rock, Class
 ```bash
 magnet:?xt=urn:btih:4423A6D650FA7B1F28C1246F9578A759675E7907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ VA - Rock 'n' Roll Love Songs - Unchained Melody (1997) [MP3|320 кб/с]<Retro,
 ```bash
 magnet:?xt=urn:btih:8CFFEF0C7ECE2F67AB4B96B761A1FAE9DE0DDA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Enter Shikari - The Mindsweep (2015) [MP3|320 кб/с]<Post-Hardcore / Electroni
 ```bash
 magnet:?xt=urn:btih:3887AC2FA7BDB6C59A654EB864BF87D130584B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Robert Plant - Greatest Hits (2011) Double Disc [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:9841DDCBB6A7460D323E853D368165C2FF4ABA92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Fall Out Boy - American Beauty / American Psycho (2015) [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:A212F07FD99FB89675871EAAAE6F14109FDE79A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +420,7 @@ Marduk - 14 альбомов, 9 синглов, 4 концертных запи�
 ```bash
 magnet:?xt=urn:btih:6A1554BF117622A25AB4BFF62400E8CBABADC37A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

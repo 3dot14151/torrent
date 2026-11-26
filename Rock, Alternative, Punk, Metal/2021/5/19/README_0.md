@@ -22,8 +22,7 @@ Mustasch - Powerhouse (2005) [FLAC|Lossless|image + .cue] <Stoner Metal, Heavy M
 ```bash
 magnet:?xt=urn:btih:2A0572CDCEE13444534B70E1F4BAF9DA879AAFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mustasch - Killing It For Life (2020) [FLAC|Lossless|image + .cue] <Stoner Metal
 ```bash
 magnet:?xt=urn:btih:A0552C35BDDDC088C3281B6276ED4195A7035E5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Angel Witch - Angel Of Light (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:57088BB5DD1607E68875A18F39E10928B395E777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Angel Witch - As Above, So Below (2012) Japanese Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:712F3674F7DCEB070EA109BE963C4754920FD020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

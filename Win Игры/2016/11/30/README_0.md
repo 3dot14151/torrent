@@ -19,8 +19,7 @@ Blade & Bones (2016) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:1BD00AF8A7DE5798787DBF4374E1E1B0D534AA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Plague Inc: Evolved - сверхпопулярная игрушка, хорош�
 ```bash
 magnet:?xt=urn:btih:962C17E67389ABE94DD861AB0721277485010A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Breach & Clear: Deadline Rebirth (2015) [Ru/Multi] (1.23) License GOG
 ```bash
 magnet:?xt=urn:btih:4B83A53C80B73AC04D5A3529170F222484428CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

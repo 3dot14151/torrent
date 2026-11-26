@@ -20,8 +20,7 @@ Holy Void - Demo (2015) [MP3|320 кб/с]<Blackened Hardcore, Crust>
 ```bash
 magnet:?xt=urn:btih:7B0603F9055B3B9F5D9DBEBACBD180FA706BE13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ New Stories - Circled By Hounds (1995) [APE|Lossless]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:095C7931A7E5C2179D0352A23814BFE10624F1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Album, EP:
 ```bash
 magnet:?xt=urn:btih:A213903AE3D728A9BE0ABA86B7B7184DEF4F7590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:DB2F2AAD2E10EA6D0CE7E76E3D721D125842BF95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Mesmur - Mesmur (2014) [MP3|320 кб/с]<Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F5B5C93D92F60464CF8016DF37DABACC52EF5CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BC5F178FC652CFB9D914881CC372DDFB62F4E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Hercules Rockefeller - Hercules Rockefeller (2015) EP [MP3|320 кб/с]<Post Har
 ```bash
 magnet:?xt=urn:btih:EA961E4FAF05F022CB14D8A692758CB7ED2098D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Nader Sadek - The Malefic: Chapter III (2014) Legacy Edition EP [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:026C7DB2960A0F1A5C853D89057B9DD0D301E149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Neil Swainson Quintet - 49th Parallel (1989) [APE|Lossless]<Bop, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:8880F20B855E84C710FBD778A0DFEEFB73FB16EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Nelson Rangell - Tuning Night Into Day (1997) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:9D276DE14D9330AAF4FEE5CFD94684BE68DE81A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A98D78D7502B143DCBFBAE5825E6F0687A86467F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Nelson Rangell - Far Away Day (2000) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:E16FEE35DF142075AC4A31300A9CA0C6F7871FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Nelson Rangell - Soul To Souls (2006) [APE|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:12C02A3C9DB14F950B35A22686D772D6329C967C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Leather And Beer - The Smell Of... (2006) [MP3|192 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:D31694DB70C124A9A02321CF5EE09BE117C121CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Nenad Vasilic - Seven (2013) [FLAC|Lossless|WEB-DL]<Ethnic Jazz, Balkan, Contemp
 ```bash
 magnet:?xt=urn:btih:47FEAB254D032001C0A1A10087008A337C1A5A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ Away - Music For Rainy Days (2014) [MP3|320 кб/с]<Post Black Metal, Shoegaze,
 ```bash
 magnet:?xt=urn:btih:12F6F842B3CC663361D9700E07CC1382ABFD9705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Albums, EPs:
 ```bash
 magnet:?xt=urn:btih:24EE6B68C44FF2E6E5DAAF2B4E0156A25DFD1FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8745F304927C896DE01CA84454B28F69B2D22816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95D32DEF71A06259A325365A95D54E60095BEC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BAEA085B6439723D89196DBF9FE0F6C0F396CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ Finntroll - Natten Med De Levande Finntroll (2014) Live At Melkweg, Amsterdam [F
 ```bash
 magnet:?xt=urn:btih:E02CC4754E26AEB3496B677C52F32A4AE0E9C63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ Tales of Evening - Szilankok (2015) [MP3|320 кб/с]<Symphonic Power/Gothic Met
 ```bash
 magnet:?xt=urn:btih:A6EFCFA9E76D54613B3FC2143E81A05F2CFA8ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ Eden Weint Im Grab - 5 альбомов, 1 EP (2004 - 2014) [MP3|192 - 320 кб/
 ```bash
 magnet:?xt=urn:btih:2BE83A936006D9C26704FCFC9986D6710CE95377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ VA - Дискотека С Размахом (Vol.6) (2015) [MP3|~248 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:6BB7EDED7F0B5A568793E357443FE1805766823E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94680E1851F78407D0C0D4D731FD46D7C1B15E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Reflections of Life 4: Call Of The Ancestors / Отражения жизни 4: 
 ```bash
 magnet:?xt=urn:btih:450EFE9DFA3D2CA8BD7065E05EE3949F7D652478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Depth (2014) [Ru/Multi] (25657) Repack Other s
 ```bash
 magnet:?xt=urn:btih:836B2E77AF9694D3688A3C6C09B8EC4928F524C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reflecting Fate (2017) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B3CB4F2B664235B150A3A3119E30279DE54760EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

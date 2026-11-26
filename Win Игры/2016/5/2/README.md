@@ -19,8 +19,7 @@ Phantasmat 6: Town of Lost Hope (2016) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:F1E67DABC4BC011423E77DC94187D2954AAE020C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Edge Of Reality: Ring Of Destiny (2016) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:6057A7FDE4CE7DEBD20E516B3BC8B2C178FE4B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Hotel 11: The Axiom Butcher (2016) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:707633D6F6FF8F25D3934A263CC747306201DD89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Phantasmat 6: Town of Lost Hope / Фантазмат 6: Город послед�
 ```bash
 magnet:?xt=urn:btih:C670A234DAA89DD250FC3E836380C943555DC130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Sylvio – приключенческий инди-хоррор от перво�
 ```bash
 magnet:?xt=urn:btih:7605F8882F19E601AA93CCEE80DFFCEFCF92F97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Bell Ringer – аренный платформер, в котором четы�
 ```bash
 magnet:?xt=urn:btih:22E9E988E1F434C5CCF69C14265226A84918052C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Republique разработана ветеранами игровой индус
 ```bash
 magnet:?xt=urn:btih:DE4FA7A43B3408AD974AD0E763E0C47B43532DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Decisive Campaigns: Barbarossa (2015) [En] (1.00) Repack Other s
 ```bash
 magnet:?xt=urn:btih:127947212C9E71D1392CABAE8B48D6DD028C82A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Codename: Panzers Phase Two - стратегия в реальном време�
 ```bash
 magnet:?xt=urn:btih:6B9A026113803E3B04E54B3D64AE34C9554CEAB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

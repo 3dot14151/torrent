@@ -19,8 +19,7 @@ PIDKey Lite предназначена для просмотра, обновле
 ```bash
 magnet:?xt=urn:btih:F91D8BC93AC59DE420C67D7408FFDC1EDE517164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:97881198D3F698CD4033C846CF19714C81EFEDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ KMS Tools — облегченный вариант сборника прогр�
 ```bash
 magnet:?xt=urn:btih:13970137539B4D593CE7941A7918496A86F22DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:D44D29C7642ECCD747AC0A692C251D87764FEAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Any Burn - небольшая бесплатная утилита для раб�
 ```bash
 magnet:?xt=urn:btih:859DE6717AB2449A30B7AEEBFC1A2A12C1FC72E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ FocusWriter 1.8.13 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:973794487373C2DAC06985FA51AF5E4064A33CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Opera One 127.0.5778.14 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0C11993178D742D742793305A0079C8EE9BF6F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

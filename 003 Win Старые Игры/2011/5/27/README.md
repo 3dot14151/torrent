@@ -19,8 +19,7 @@ Billy Blade and the Temple of Time / Принц Блэйд и Храм Врем�
 ```bash
 magnet:?xt=urn:btih:3A162F3C38B4196EC271825EB55849E001C3EB82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

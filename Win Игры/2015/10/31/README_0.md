@@ -19,8 +19,7 @@ Dark Dimensions 6: Shadow Pirouette (2015) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:E8BA171F364A876AC45879B6AD1497ED5D9D59A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Red Riding Hood: Star Crossed Lovers - красочная "я ищу" от ст�
 ```bash
 magnet:?xt=urn:btih:4D1F70E7574432253822A5B20D693EEFD794801D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

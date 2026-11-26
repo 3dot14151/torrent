@@ -19,8 +19,7 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.0.3965) License SK
 ```bash
 magnet:?xt=urn:btih:1B4E7BFBD015F5721D0597C5CA035E9826D4BC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Starship Corporation — симулятор космического кораб�
 ```bash
 magnet:?xt=urn:btih:E3C2882AA9BB149B9FB0D4DB768BA318A173459B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

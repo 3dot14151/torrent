@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:153B21A3FDAE6D905EBD221D91178A23DCAA5E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Free YouTube Download на сегодняшний день самое попул
 ```bash
 magnet:?xt=urn:btih:2CBB878601C28AB7873583BD692EACC4D3D31265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

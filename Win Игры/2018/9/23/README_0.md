@@ -19,8 +19,7 @@ Monkey King: Master of the Clouds (2018) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5CEE10D369F38728C67C7324528A9AC4F3CAE34C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aggressors: Ancient Rome (2018) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:80FDFFB6C6F985DA17F50EF495853F842D0DA083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Doll of Resurrection - это игра в жанре экшен и rpg, разр
 ```bash
 magnet:?xt=urn:btih:E53098D169EFEF39B4D57D835D6AB023ECFA5904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BLACKHOLE («Черная дыра») – суровый сюжетный пла
 ```bash
 magnet:?xt=urn:btih:049A197A2A2D6E5C38277117666E4C248953BFA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tekken 8 - продолжение культового файтинга, нап�
 ```bash
 magnet:?xt=urn:btih:34C891649802945251E92451FFB946B1B62CE853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DED39A80B92B33E58AC47F4A91305007DF57B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (Build 16501847/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:32B01560D888E5B0E15C5E58B49FC875AC2DDAE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alaskan Truck Simulator – уникальная игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:E2378C6CB90B83EE275165A16B4C144666D880B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Monster Jam Steel Titans 2 – это продолжение популярно�
 ```bash
 magnet:?xt=urn:btih:C7B34FC06E2CA90C0560FB1723DB478460AE8EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ebenezer and the Invisible World (2023) [Ru/Multi] (1.2.0.1) Repack Let'sРlay [
 ```bash
 magnet:?xt=urn:btih:AA8B7199E92E9EE9A351E1B9ABB50E9B08C1AAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Connected Hearts 5: Hour of the Witch / Связанные сердца 5: Ча�
 ```bash
 magnet:?xt=urn:btih:0E226AA5220F4F4D9646C0407CF74B4032A73E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Unsolved Case 6: Ash and Secrets / Нераскрытое дело 6: Пепел
 ```bash
 magnet:?xt=urn:btih:D01EE947F615FFB380DFEDA20A683CCD2D82A573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Alaskan Truck Simulator – уникальная игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:901CAA006BAB3FF2657F989DEAFAE9679F75FF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Jixo: The Season of Joy / Jixo: Сезон веселья (2024) [Ru] (1.0) Unof
 ```bash
 magnet:?xt=urn:btih:C46697B8CE00CA7C12C41B24716520774C3F8B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

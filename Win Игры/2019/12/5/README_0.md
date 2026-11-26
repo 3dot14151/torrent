@@ -19,8 +19,7 @@ Elephant Games представляет новейшее увлекательн�
 ```bash
 magnet:?xt=urn:btih:AA5BAC53F4AFCAC69C0D80A3136BBA2B0130F46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paranoia — это игра в жанре CRPG, действие которой
 ```bash
 magnet:?xt=urn:btih:923162BFAAE281493AF4EDFA195327FF88E33E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

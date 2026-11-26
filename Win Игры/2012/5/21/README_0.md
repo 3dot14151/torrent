@@ -24,8 +24,7 @@ Gratuitous Tank Battles [En] (Rip/1.008) 2012 | Unleashed
 ```bash
 magnet:?xt=urn:btih:BA12C912A12D9348980677CBA453E2852470CFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

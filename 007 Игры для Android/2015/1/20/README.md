@@ -19,8 +19,7 @@ GT Racing 2: The Real Car Experience - отличные гонки от GameLoft
 ```bash
 magnet:?xt=urn:btih:C8910F9D304952700D41FA8823BE7054114E1B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

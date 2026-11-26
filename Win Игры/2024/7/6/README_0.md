@@ -19,8 +19,7 @@ Frozen Synapse 2 предлагает классический для страт
 ```bash
 magnet:?xt=urn:btih:269687001B92C5CD0B97298E2AE652F537185AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nancy Drew: Mystery of the Seven Keys (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7A98005446125591C4DF5E2F9A1D23B1805C09B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Circuit Superstars - гоночный симулятор, представлен
 ```bash
 magnet:?xt=urn:btih:558EDCEB55157B94C5C47E93891FA3BA70618A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Scars of Mars (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4CF1148C3AD87BF188EF824B45A3D37689C3F751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MotoGP 24 возвращается, чтобы взреветь моторами
 ```bash
 magnet:?xt=urn:btih:500BD21E9C08AE4B9ECCAA8F5B17B981FC235ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Metal Gear Rising: Revengeance – сюжетное ответвление от 
 ```bash
 magnet:?xt=urn:btih:193D91A3B45FA5C0C873E0A176A5AD39F525C3F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Chocolate Factory - это не обычный симулятор магната
 ```bash
 magnet:?xt=urn:btih:98C9BF3FAC66851B75B1A5D7038116C7CC9D604C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ KoroNeko – откройте двери для нашей предельно р
 ```bash
 magnet:?xt=urn:btih:9DBEBE77D1BDE8195C039B2CB1006F8FA601457C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Flashback 2 отправляет геймеров в умопомрачител�
 ```bash
 magnet:?xt=urn:btih:EF67C46595E247A72E361F0EBE0F1A5BF5A09174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F74A7C9D2C08F2FD586FF3D633F74493811257A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Star Leaping Story – помогите девушке в белом халат�
 ```bash
 magnet:?xt=urn:btih:3A7EEDBD834E12C22B96DBC9169D395E1CA917B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ TOEM - приключенческая головоломка, выполненн
 ```bash
 magnet:?xt=urn:btih:FEC2AB4F1B04FAB9C6E7EF0E938EADBAC98A7EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:F7FA3502B8D6EAB58704EFF4B8A1015F2D92D2F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Frozen Synapse - пошаговая стратегия, основанная н�
 ```bash
 magnet:?xt=urn:btih:FB2C626FCC3B8AC71C60BBDDB956694D877D295A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ The Oregon Trail - это увлекательная адвенчура в ст�
 ```bash
 magnet:?xt=urn:btih:7DE6FDA621A97AA1052D85D4D4DD59647FA43497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

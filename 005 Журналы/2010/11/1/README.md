@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DFF1DD0205C966D7600097540203B84FBD10A32D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mint Linux - новый журнал от русскоязычного сооб�
 ```bash
 magnet:?xt=urn:btih:7EFF5BEFD1CB01E768A8DA44DD28A59398E6CB95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1E8C632D8D6EE37C436987BB117B61B4B863283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

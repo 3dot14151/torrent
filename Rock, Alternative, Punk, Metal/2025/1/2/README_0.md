@@ -22,8 +22,7 @@ Venom - Canadian Assault (2024) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Met
 ```bash
 magnet:?xt=urn:btih:560F8AEFFD9525E242E02E4CD5377293F846A802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Aillion - Война Миров (2015) [FLAC|Lossless|tracks] <Melodic Heavy Met
 ```bash
 magnet:?xt=urn:btih:7EC642B9C0AFF7D41551C52E5E1A918022769448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

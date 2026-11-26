@@ -22,8 +22,7 @@ Star Trek (2013) [Ru/En] (1.0/DLC) RePack Fenixx
 ```bash
 magnet:?xt=urn:btih:05BA94CF136677876A41B339E4CDF419BFFEBF2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

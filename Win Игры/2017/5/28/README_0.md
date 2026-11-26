@@ -19,8 +19,7 @@ Saints Row: Gat Out of Hell – самостоятельное дополнен�
 ```bash
 magnet:?xt=urn:btih:9781214DA8A41897A2D76A909A91A16105E0429B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Rising (2016) [Ru/En] (1.0.0.1/u3) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:3FC674F0EA8746B90EF55337123B4CB3C7E5097E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DmC: Devil May Cry (2013) [Ru] (1.0r3/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:E887AD102B2C074ED269AD5B7D195FAAF6927301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

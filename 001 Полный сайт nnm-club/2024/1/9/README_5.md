@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:88A13DF0A26BCCB306B88C7DE51459BEA2E43C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Fog - The Fog (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:3AB6AC29FF686387485BE2E8486D37027F6EE61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Hurricane on Saturn - Фnx (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Metal,
 ```bash
 magnet:?xt=urn:btih:DB75FCCC7C19B0C19CFBAA86011FE8D3679902D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

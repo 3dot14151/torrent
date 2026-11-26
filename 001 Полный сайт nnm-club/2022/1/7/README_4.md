@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:62EC418B90A3D0F118A2BB4B33682B71654D7DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:201D8FB9F8271DA68150ABD34323EAD89EF1F5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Linux Mint 20.3 Una (XFCE, Mate, Cinnamon) [64bit] 3xDVD
 ```bash
 magnet:?xt=urn:btih:25999E197027CDAEC7A666AA5C400D01B3FA98B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D69159DF9D0376ECCF02B4F8F77D3D209400791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA1E4A93BE537AE2DD883746BC33BB753F62609C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ The Story of Henry Bishop (2019) [Ru/Multi] (2.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:24DFED3632C4EEFF59FB7255B8EBA38AE67F74F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2021122301) License GOG [Digital De
 ```bash
 magnet:?xt=urn:btih:DE7B0CA5CF1CF60720706DE5B1914A9CF97FBA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:653EFF145B4E6AB82C3D0CBA556C09E03D75B8DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Stronghold: Warlords – продолжение серии стратегий в
 ```bash
 magnet:?xt=urn:btih:3AB27B71C2536ECCF38AF33AD616E081DBB93A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

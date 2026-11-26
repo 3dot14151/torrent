@@ -27,8 +27,7 @@ Cliff Richard - The Fabulous Rock 'n' Roll Songbook (2013) [MP3|320 кб/с]<Roc
 ```bash
 magnet:?xt=urn:btih:3A6DA7E4575FC36F7CA1FF1C3764F2A92B6636CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Magenta - The Twenty Seven Club (2013) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:B634F860DAD66E9FA7551223BF962D64841F14A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A05B255306B1A72EB9CEBE61BEF509CC8F50B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Freakangel - The Ones To Fall (2013) [MP3|320 кб/с]<Alternative Industrial Co
 ```bash
 magnet:?xt=urn:btih:16DE69296FE05D62AB124EE12D891D7E0B89DAA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75FE5BFF39A84216C9DDFAAB3672AC16999B31C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Paul Hardcastle - The Chill Lounge  volume 2 (2013) [FLAC|Lossless]<Chillout / L
 ```bash
 magnet:?xt=urn:btih:82921A4D37919D42405B9E12B0F5643FB3C55D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Rhapsody Of Fire - Dark Wings of Steel (2013) [MP3|320 кб/с]<Symphonic Power 
 ```bash
 magnet:?xt=urn:btih:83D46AD3D9309DAAF8B66B7303281614704C9ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BF72E09F3EADF027119A7C710B1410F0A292A5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ Punished Talents: Seven Muses Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2520E298E6455A8D4EE6A4CA05A1FB6B9154EDFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ Database .NET - это инновационная, мощная и интуит�
 ```bash
 magnet:?xt=urn:btih:75D33CEDB4F3B18BD89225EE3028136C833C2194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ VA - Best Chillstep Collection [October 2013] (2013) [MP3|320 кб/с]<Chillstep
 ```bash
 magnet:?xt=urn:btih:43F759276FE2FA583E7D6AC2AEAB6F4BC2A74506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ Corvus Corax - Gimlie (2013) [MP3|320 кб/с]<Medieval Folk>
 ```bash
 magnet:?xt=urn:btih:3BD24873BD8607F663E9B06297F396BBD2FC0F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67E4320E9F63274F7C201D52EC3DD0C51B1B01D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C8557A7E925B3A4F3098CBD449AA3524466757E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:C8643CAB9011CC8C904B322315B0C7741CA44D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAF7BBD9E36DE28DF8D9D9D14F7E2328DFE5FD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C0F865F5F6BD0317B7EC4825C1F9163CD5A3B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCE402995F98C1A9D23B40C54426DE9EFCD87B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ Cliff Richard - Still Reelin' and A-Rockin' (Live at Sydney Opera House) (2013) 
 ```bash
 magnet:?xt=urn:btih:AF88815CC8E943590C470B198EC13E37BC4D8F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18200B9422E0596912E4CD8E6E352FCDA1D6417B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ Jerry Lee Lewis - Southern Roots (2013)2CD [FLAC|Lossless]<Rockabilly, Rock'n'Ro
 ```bash
 magnet:?xt=urn:btih:D48788BF715C2DEF3C002590DDDE265352DE0B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66E25E21A41B98BEBE88B236C55DE28DAB56477C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ Passenger - Passenger (2003) voice Anders Friden [WavPack|Lossless|.iso.wv]<Alte
 ```bash
 magnet:?xt=urn:btih:D06168D471C9B10BB63E61521F1FE95B67D7D2E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD03F09B79DD1221A169E5FD65A54E29364DD8B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F16DF7D2990316DCCC62A7C6151AAE353B14A106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D13F373B88B5F290D2B90C6065F33B513C3AD486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

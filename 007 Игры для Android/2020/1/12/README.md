@@ -19,8 +19,7 @@ Shadow Fight 2 Special Edition – продолжение одного из са
 ```bash
 magnet:?xt=urn:btih:ABCB35818B2BAC6DB36AA447A9932D3D05031770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Terraria (Террария) – это знаменитая игра из жан
 ```bash
 magnet:?xt=urn:btih:E1D012998CA421A89E442614EDB4B21079763915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

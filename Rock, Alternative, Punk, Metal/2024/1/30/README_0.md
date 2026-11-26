@@ -22,8 +22,7 @@ Wolves Reign - Human Nature (2024) [MP3|320 Kbps] <Progressive Metal, Rock>
 ```bash
 magnet:?xt=urn:btih:E1C5101FF1DCE81918CD729F25C43A4590BA9A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lynch Mob - Babylon (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard R
 ```bash
 magnet:?xt=urn:btih:32A0EC406CED8FAC5F2682132A5E9589C4E22694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Inertia - The Human Element (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Deat
 ```bash
 magnet:?xt=urn:btih:01CCCFD53EB2C7B374D949EC307166C0599644EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Project Arcadia - Of Sins And Other Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:CFF85E66B7DA0C743F694BC74F47EEE0F1F41D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Imagress - Sentient (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4FC0E2B7B45345E301660A4ECC33C5C09F972084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Suspect Down - Living Life Fast (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:9308A587A15BDC277798F9D0DE943583256EA723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Gama Bomb - Bats (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:3A86ADBA40C50440FD38520564A2E24507CAB137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ D.A.F Band - Socialovism (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9256ECEEABA243FC42D7C670D77711560DEDA4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

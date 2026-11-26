@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9F2742CC3C460B1A56576AB4F75C705D4BB3A0B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yoot Tower / Башня Ют (P) [Ru] 1999
 ```bash
 magnet:?xt=urn:btih:1571FB256A8D588CF09BCBD25A0C2EC6D3A71E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dizzy Fantasy World [En] (RePack) 1991 | Pilotus
 ```bash
 magnet:?xt=urn:btih:259417BAD1DA56120CEF9FC05608601F41BD3E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fury of the Furries [En] (RePack) 1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:3F3319FF6EBB9D81529BAEAF229054D6934D5D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Crusader: No Remorse [En] (L) 1995
 ```bash
 magnet:?xt=urn:btih:0ECDD8811A6F6A25FD7A67499558D6CF1C60118A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crusader: No Regret [En] (L) 1996
 ```bash
 magnet:?xt=urn:btih:7F0D819D0BF837983A243E58D3838939192F8B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Star Wars StarFighter - аркадный симулятор космически
 ```bash
 magnet:?xt=urn:btih:6787FE1E8C7646D3647A6A1CC94C60216855B6A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Disney's Aladdin [En] (RePack)  1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:B1F8C26E7A8E111038150365E166854A5660D48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Uplink / Сеть [En] (L/1.55) 2001
 ```bash
 magnet:?xt=urn:btih:B75C702E9CDEAAE9EA979AA7FFA5F1266A7BE44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Civilization: Call to Power II/ Цивилизация: Воззвание к с
 ```bash
 magnet:?xt=urn:btih:02C08976B16823A0C39F0D8863798F6509ECF537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

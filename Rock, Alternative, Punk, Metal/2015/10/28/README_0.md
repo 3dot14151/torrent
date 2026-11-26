@@ -22,8 +22,7 @@ Born Of Osiris - Soul Sphere (2015) [FLAC|Lossless]<Progressive Metalcore,Electr
 ```bash
 magnet:?xt=urn:btih:EFB900BD1D3588E9BD706E48B0F8D395075F0C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Coldrain - Vena (2015) [FLAC|tracks+.cue]<Alternative Rock,Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:716C44625BEE9ACF0110B95DA9AF384132CA275E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tito & Tarantula - Tarantism (1997) Remastered /2015, It Sounds/ [FLAC|tracks+.c
 ```bash
 magnet:?xt=urn:btih:CED35BC96286190A4182D7652E8C7BFB487788F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bryan Adams - Get Up (2015) Japanese Edition [FLAC|image+.cue]<Classic Rock, Pop
 ```bash
 magnet:?xt=urn:btih:E5D4EE575D4B6271229194E52C9DEFC18149391C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

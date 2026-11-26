@@ -28,8 +28,7 @@ Deathwalking - Infectados (2013) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:60387270CD7E4F86596713CD7B2D4CBB43B5DB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Wallachia - Shunya (2012) [MP3|320 кб/с]<Atmospheric Black, Sympho Black>
 ```bash
 magnet:?xt=urn:btih:26528C22273E2205BAC45E57FEF52AC54EE698E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Awaken Solace - In Nightfall's Embrace (2012) [MP3|320 кб/с]<Symphonic Power 
 ```bash
 magnet:?xt=urn:btih:F7B6D93ED9A1EDDD7516C913DDECDC8E35AB713A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Atreyu - 9 albums+1EP (1998-2009) Discography [MP3|128-320 кб/с]<Post-hardcor
 ```bash
 magnet:?xt=urn:btih:A22D137D8BE7C572CD82F47BD7035E8BC6EA38A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7E11E63025319824DF97710899D92FB2500D9CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

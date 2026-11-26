@@ -19,8 +19,7 @@ LEGO The Lord of the Rings (2012) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:B837212F1E56F909E871CDD4D54203F5FBB288BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Foxy Shazam - Gonzo (2014) [MP3|~245 кб/с (V0)]<Indie Rock/Experimental>
 ```bash
 magnet:?xt=urn:btih:00F09D391CCEDA3CF8877C3BED0E6816E20F0118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:756F65DE30C51887BE202E572FA0959F06F99806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Emmure - Eternal Enemies (2014) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:28FD4B358EAA04AEB646CCCF9BADF4B3152E932D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Native Flute Ensemble - 6 альбомов (1991-2008) [MP3|320 кб/с]<Instrum
 ```bash
 magnet:?xt=urn:btih:1D1A331C7FBDC5C2A45C323E916221B4DFA5376E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Gianna Nannini - Inno (2013) [FLAC|Lossless]<Italian Pop Rock>
 ```bash
 magnet:?xt=urn:btih:7A2BDF6920B94F0677BA5407B9CE5EC25A7EA02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D2C5067BE0A20AB28B93C33403D58D6EDBC6277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ The Spectre - Starman (2005) [MP3|320 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:3D7683BBED791C0F7462B7E52450FD4E9A7F35BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ Architects - Lost Forever / Lost Together (2014) [MP3|320 кб/с]<Post-Hardcore
 ```bash
 magnet:?xt=urn:btih:BFD75F41FF04BC904CBE2180DE162D40A1B0ABBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ Al Bano - Fratelli d'Italia (Covers Album) (2012) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:112235A3025119224DF21ECF84251E3A6AC55D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ Restore Point Creator - полезный инструмент для созда�
 ```bash
 magnet:?xt=urn:btih:40B0CD4E89A3D56709EF221364FEE5091454E1FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +339,7 @@ Lords Of Black - Lords Of Black (2014) [MP3|320 кб/с]<Heavy / Power Metal>
 ```bash
 magnet:?xt=urn:btih:BB72AC34234ADB1AF0C3EED33AE430B5F92BA71C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1658DA44641788AA838EEE2B5F0E0591E37BB0AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B0DEAFBF78F5D2586B3F91C699F902CB5ACA395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8339774AB02E245EDB665B8C23AF0FB411DC6F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ Symphony No. 40 in G minor, K. 550
 ```bash
 magnet:?xt=urn:btih:429ECD82DA9D5981E7099346DCE059EFC0EAAC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ The Flashbulb - Nothing Is Real (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Post
 ```bash
 magnet:?xt=urn:btih:B2860C2A8FE64DAE4E7F301D8BF8BAB11CAB0830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ ImBatch - отличный многофункциональный редакто
 ```bash
 magnet:?xt=urn:btih:1389472D57A32B4EC9F2CF8A72630196AC5FDB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ System Explorer - диспетчер задач для Windows. Функцион
 ```bash
 magnet:?xt=urn:btih:94FADB958A4B2FE1F5F22370FEB15817AB0530E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ VA - Miami Uplifting Trance Essentials 2014 [MP3|320 кб/с]<Uplifting Trance, 
 ```bash
 magnet:?xt=urn:btih:EC3E49B1CB1477983D0C4FE38EB83EE3DF802248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +591,7 @@ O&O Defrag - одна из самых лучших программ для де�
 ```bash
 magnet:?xt=urn:btih:703F67120F988A0C0CE5A069E900C2F1400A5770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEBAD0DD79B5620A90060FA77F05B8BD89C53FAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E37F29E33E51D94D087F6A91480317D47D0A6071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BD910B317CECCED6C28D1AE2F8C77445F83F03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ Adaline - Modern Romantics (2011) [FLAC|Lossless]<Pop Rock, Indie Rock, Electron
 ```bash
 magnet:?xt=urn:btih:D704BBB26C9AA80B1C503FF71C0EC3DD4A0D0775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ Mix обои для рабочего столаРазрешение файлов
 ```bash
 magnet:?xt=urn:btih:A32E32B700C6514BBE9933F76E0EC52788029859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +768,7 @@ Johann Strauss Jr
 ```bash
 magnet:?xt=urn:btih:9FCFF2ED241F1A9D42089FAF543AFC5249488EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

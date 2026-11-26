@@ -19,8 +19,7 @@ Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F5559A6CAEEB9A5E126061540954298B4FC366CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

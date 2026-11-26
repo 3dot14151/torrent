@@ -22,8 +22,7 @@ Envy - Atheist's Cornea (2015) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:AAD9E16501593589ADB11FE8D96B3E22791D0DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tacocat - This Mess Is a Place (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 ```bash
 magnet:?xt=urn:btih:06C2878171C05774C4FB9EE72E9F7FAFED100B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ North by North - Get Weird (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 ```bash
 magnet:?xt=urn:btih:3FB5748115C64D51C911B41972185A2F29EB1935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Skrin - Синтетика (2020) [MP3|320 Kbps] <Modern Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:E4533F22AC839CBFC4DBCA914EFE5A99338A5350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Gorky Park - The Best (2013) VG Music, 2017 [FLAC|Lossless|WEB-DL|tracks] <Hard 
 ```bash
 magnet:?xt=urn:btih:5755B78E37A0FAF4C0DE6C94476569E2BF9C96DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

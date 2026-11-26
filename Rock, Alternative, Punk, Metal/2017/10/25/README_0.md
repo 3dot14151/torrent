@@ -22,8 +22,7 @@ VA - Dreamboats and Petticoats: 10th Anniversary Collection (2016) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:161E7545E84F3390C78CD8619B319CA3FB1EEF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sweet & Lynch - Unified (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0B6D62E161C2DC22F9B94A1FBD32739CE686231B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6502B0F4BED0E78D1169BCE9BCB49FAC732931F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hollywood Undead - Five (2017) [FLAC|Lossless|tracks] <Rapcore>
 ```bash
 magnet:?xt=urn:btih:DDC1D0C30763AA3F690E01935519D37A752F2578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

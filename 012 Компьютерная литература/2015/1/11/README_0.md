@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:842B912F3FEAB231C2DBD58C1293B809C79DF32F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mark Murphy | Beginning Android 3 (2011) [PDF, FB2, DJVU, TXT, EPUB]
 ```bash
 magnet:?xt=urn:btih:3700F12AC039DE7388B2852E6EE2A8E3C5339E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42033C4A628B2B4DDBB746FB121B5BACBDEC210A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0424DDED39E3E2B0640E704EEEF50A5621043DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

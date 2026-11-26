@@ -19,8 +19,7 @@ Haunted Legends 6: The Dark Wishes (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:8CDDE5F84A29C060D5DF69468FDE4D154AA6A865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Dimensions 5: Homecoming / Темные измерения 5: Возвра�
 ```bash
 magnet:?xt=urn:btih:079F2E72A6D76A1C8CFF0C00B0BB058F4289CBD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Mylene Farmer - Ainsi Soit Je... (1988) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Ch
 ```bash
 magnet:?xt=urn:btih:24758B183EFF0B593A91D0803CAEEF5C3675EBDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

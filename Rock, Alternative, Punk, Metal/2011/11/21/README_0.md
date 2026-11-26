@@ -28,8 +28,7 @@ Dragonland - Under The Grey Banner (2011) [MP3|320 kbps]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:C9C13ED489EEDC6CFCEDCC711B56F53B94B94251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Foreigner - Acoustique (2011) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Scorpions - 13 альбомов (1974 - 2010) Vinyl-rip [MP3|320 kbps]<Hard rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

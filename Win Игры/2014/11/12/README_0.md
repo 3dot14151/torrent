@@ -20,8 +20,7 @@ Magnetic By Nature - стильный и хардкорный платформе
 ```bash
 magnet:?xt=urn:btih:310DA217799059C801EC9D4A40001E8DDE277E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Deadlings (2014) [Ru/Multi] (1.0.0.51) License HI2U [Rotten Edition]
 ```bash
 magnet:?xt=urn:btih:92C929433DBC13F44A1B46DFF8DA03D5C4A02A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ World Gone Sour (2011) [Ru/En] (1.0) Repack Let'sPlay
 ```bash
 magnet:?xt=urn:btih:844BB0CC4976EF867AB462A83547105B6E4BEE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Bad Dream хоррор-приключение в стиле point&click, дей�
 ```bash
 magnet:?xt=urn:btih:18A25B9D70BB66C8BB84ED6C65A9268032861ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ World of Warplanes — массовая многопользовательска
 ```bash
 magnet:?xt=urn:btih:907224438D11B0ECB9FAAD15AA51A1EE62DE8A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Merchants of Kaidan – довольно сложная стратегия, то
 ```bash
 magnet:?xt=urn:btih:3109DBF45D758DA261120763DEA5F42765B499D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DA9CCF1611B0E8CD74C3BC1F1F5E89780D8B602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

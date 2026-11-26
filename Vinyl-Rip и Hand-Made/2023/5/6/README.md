@@ -22,8 +22,7 @@ A4 Ты ушла из моей жизни(   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:6922EF5C5E57799B1CF2C132CE43015CD11E02AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Civil War — хеви-пауэр-метал-группа из Швеции, о�
 ```bash
 magnet:?xt=urn:btih:3014CBC3A138A5D2C9798A678555C9E42C30EA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

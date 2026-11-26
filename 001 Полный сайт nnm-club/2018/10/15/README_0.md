@@ -18,8 +18,7 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:CE715CED679F85326105EE121DD2F44B4A58C230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - After Time: Electronics Music (2018) [MP3|320 Kbps] <Electronic, Techno, Ex
 ```bash
 magnet:?xt=urn:btih:BE27E0CB1D1B7F141D59E723D7953BEAB90D66F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB02706043F0D2F6E1C0A49B445D41C1EA4833D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54F88FCF5F60278DF2A0B1EBEE32D04EDFD8F8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Alarm Clock Pro представляет собой многофункциона
 ```bash
 magnet:?xt=urn:btih:E235B4C254C97F7DCCA84AFA460EE1B05BD646B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ MacPilot 10 v10.13 [En]
 ```bash
 magnet:?xt=urn:btih:A8D5A44C4E3F4249E1C1444E25CCC1FFB370EC01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:A962CD2BEBC6159E43AEB1CBD1CC118E62CECD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:131E927D3AAD3BFDEE87A1DB7E799F90D454DCB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ AirRadar - приложение для сканирования WiFi сетей 
 ```bash
 magnet:?xt=urn:btih:3D57A3C38CCCF69547F477FAE85F699BA254CEAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Vivaldi 2.0.1309.40 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:05E44F88A6A0DFC50ECE99242E11877C1FF3E2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ VA - Music Exclusive And Supreme Urban (2018) [MP3|320 Kbps] <Pop, Dance, RnB, R
 ```bash
 magnet:?xt=urn:btih:7AAA7BB3C94C2A2632E0814AC27578B1452DBDE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:59EEB988FE153F7B7DBCF73FEA2A2737F33E5537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:A75C1C7B1F931A71207983AAD2CFE23E6B716BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Movist 2 является простым в использовании и мощ
 ```bash
 magnet:?xt=urn:btih:49B318389690264773A0BBA15BA3E79F322A7DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ VA - Vocal Trance Top 50 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:D2377F402A878FF5D41F5D25EE70726884110034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Mirror for Samsung TV 3.2 [En]
 ```bash
 magnet:?xt=urn:btih:87CBECCD48144975AE383030BC55527782D0828F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E29D060B5C0D4E808DFD63FFFDA32C0C091A769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ VA - Nonstop Night Live Party: Progressive House (2018) [MP3|320 Kbps] <Progress
 ```bash
 magnet:?xt=urn:btih:0E9C3DC3B9BB6429136DE6920B0445C9ED062D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:4FAEB7EF4D575AFBE1E6F2384EB5454D4DF33F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Arturia Oberheim SEM V – это программная эмуляция одн
 ```bash
 magnet:?xt=urn:btih:BC8185694284DF21ADD641B60EE96DB5B6DEFC7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:FE3DC6C36AA6EA38BC423DE7109224F38252CEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) WEB-DLRip [576p] iPad
 ```bash
 magnet:?xt=urn:btih:CCCC567DF9CEFF9D7C8C287DAA21DC4A2BAC748D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ Arturia, в партнерстве с Dr. Bob Moog, представляет с�
 ```bash
 magnet:?xt=urn:btih:61566162B4D37B42F8B9082D5DC176AFA6C2897E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) WEB-DLRip [480p] iPod
 ```bash
 magnet:?xt=urn:btih:B535C6D34CFBD03C75E7A1C8D70A2778FB37CA14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FB2EB402A1A81A37E262D5CF0E62D511D1176F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:D15C2FCBFD21118433A8B78818F8BAB356F3D1C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

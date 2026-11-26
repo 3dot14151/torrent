@@ -19,8 +19,7 @@ Debian GNU/Linux 7.6.0 [i386] 3xDVD, 2xUpdateDVD
 ```bash
 magnet:?xt=urn:btih:B0179AFFF5F5C2A272601963450D7D0E38E20BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

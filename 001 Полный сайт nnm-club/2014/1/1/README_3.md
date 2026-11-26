@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:587C67DEC4C77C55B47D63C981F47B5438CF795C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ The Amazing Spider-Man [PS3] [+MOVE] [EUR] [Ru] [4.30] [3k3y ODE ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:F9435F5CFB99B4CA00D13190982165758576AE00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ LEGO Indiana Jones Dilogy (2008-2009) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F751FBB98CA81F356CB5CA318A0C062E09557F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6389388A5EDC2005666CF7934D2A7D6A8337552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Catherine [PS3] [EUR] [Ru] (CFW 3.41 / 3.55 / 4.21+) (2011)
 ```bash
 magnet:?xt=urn:btih:F6DCC96DA10964511CFBD1169B7AA6E0805BB49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:761243309E71BC281F66B78F35A7B5DB0081D9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ VA - MuviSpace vol.1-12 (2009-2013) [FLAC|Lossless]<Spacesynth / Electronic>
 ```bash
 magnet:?xt=urn:btih:06357AC29591E73C3B60F8B6CBAC6EBCAC96C3EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Castlevania: Lords of Shadow Mirror of Fate HD [PS3] [PSN] [EUR] [Ru] [4.46] (20
 ```bash
 magnet:?xt=urn:btih:CF44F48DE3122F165D2A622D65EC07AB20199006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Recovery USB-flash for Samsung NP-270 E5E / Windows 8 (х64) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BE40BEEB65B93EA18E7094C740832E670A3ADC4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ LEGO Pirates of the Caribbean (2011) [Ru/En] (1.0 Upd1) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:470FD235921F84564EC03712379722389486F1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Black Mesa Русификатор звука (2013) [Ru] (1.00) Unofficial GameS
 ```bash
 magnet:?xt=urn:btih:DBAA46822189188905019E6FD82C54F36A0D4D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:430F33EE8A98E35DE1554E70CD1B2BF5119D172D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Recovery USB-flash for Microsoft Surface RT (Touch Cover) / Windows 8 RT (х86) 
 ```bash
 magnet:?xt=urn:btih:FAE085DB51CEE9116D1EE719DC885D66D7755194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8CAD415B2F0BF56FD1D9401DBEB04F832EFCFCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Zend Framework 2 – библиотека классов с открытым и�
 ```bash
 magnet:?xt=urn:btih:9F556D9B82CE350D6FB0795FF95667064ED1E962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7834F6B14A64DDF67A050E6440652E9581869944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F18FE2428B7CBCA8FB5A35EC6867045D9578EAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CBE22EEE44EEA039270951670DF35A2FBD437F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ StartIsBack Plus возвращает в Windows 8.1 полнофункцион�
 ```bash
 magnet:?xt=urn:btih:0B07FCBF440F21C8423CE308322CAAFB98E1CED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:552000E68232F0EDA3D5E3BB6F01E6D030E40B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ Prototype (2009) [Ru/En] (1.0) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:416DB19466FBA9F92F9F0319DCBA2AEFCAB6CF9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ ArchiCAD 17 b3013 (HOTFIX2 b4005 & HOTFIX3 b4008) [Ru]
 ```bash
 magnet:?xt=urn:btih:C8D733D964F3AB3617FBDCCFAB6BBFF013729F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ Resident Evil 6 сочетает в себе динамичный экшен и 
 ```bash
 magnet:?xt=urn:btih:643650828122F95EB80F008498B23AF23718FF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Connectify - программа, которая превращает любой 
 ```bash
 magnet:?xt=urn:btih:6BA0CC839C60B8B51038EB1B2E3B497BCE5C538C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

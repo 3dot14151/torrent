@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:786B494EF53F6EC0B8E4ABC20C4D1D56F667198F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shogun 2: Total War (2011) [Ru/En] (1.1.0/15dlc) SteamRip R.G. Игроманы 
 ```bash
 magnet:?xt=urn:btih:0C037D73C9954369FB2DA310FB4BC744856BB4E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Grand Theft Auto IV: Полное издание/Grand Theft Auto IV: Complete E
 ```bash
 magnet:?xt=urn:btih:FBBF3A5D892054913B975EC2611115BEB1595509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:084AAF6D1192984C9F90BB04FE67906FA32B2E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C73E6CAF41AB4238441172F6336572E1388520B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

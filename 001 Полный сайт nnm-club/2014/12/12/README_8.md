@@ -27,8 +27,7 @@ Bhleg - Draumr Ast (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
 ```bash
 magnet:?xt=urn:btih:FE71762EDD42DFF5B5C913350D60DE71F0E92EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Zrec - Zertva (2008) [FLAC|Lossless]<Pagan Metal / Folk Metal>
 ```bash
 magnet:?xt=urn:btih:DEA1261601C73B80A68D3A886C897D3B1DBBD086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Voodoma - Secret Circle (2014) [MP3|320 кб/с]<Melodic Heavy Metal, Gothic Met
 ```bash
 magnet:?xt=urn:btih:94BA31DD91106ED52BF881B8A36F40E429D91B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76372BF612F790B8BAF6E302CE861C3D70206900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ VA - Just For Me Lounge & Ambient (2014) [MP3|320 кб/с]<Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:C834338D7E773C16B970F3F97AE4FCA0A94AF937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:856739E70FD4BBBE7740B31F8EF97B384981DC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39B53ACB07F3FC63A31D1ABE6F5B5DCA9BD9DDBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E62FEBE3C5A523CB54FD4B66D282B08D94EA9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A053608B5194611F09DD3F6D47DF338B4CC0A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ VA - Space Bar Cafe Vol 1 - Downbeat, Electronica (2014) [MP3|320 кб/с]<Elect
 ```bash
 magnet:?xt=urn:btih:2755665A3BA9828FDFCE9C55F3020CFD50B59A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ Ira Tenax - Portrait Of The Fallen (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:843CC78709BCC4AD144FF4C262B99A290BB1A8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Comedy Баттл. Суперсезон. Выпуск №36  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:A7DC432F5A292152961995B9C927D4141D4C4602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DE97D0FDDD1C11B7AC68E74E34BD76C4207828B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF10872BEFFF5ED816445B1EA09180C4177AAED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ David Wright - Deeper (2005) [FLAC|Lossless]<Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:FDCA222AAA78336243ADDB8892A608405864FB6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ VA - Winter Break (Finest Chillout & Lounge Music to Relax) (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:014A71075DA053342EE11550D240E3F09CDC15F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A955E68CBF092191BFC19C25891BBC835EECF31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ Cavendish Trailers - Action/Thriller 5 (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:98DDAAB06DEB1B768480837A334D7FF6264DF070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ Ivan Lins - Inventario Incontra (2012) [FLAC|Lossless]<Jazz, Vocal Jazz, Brazill
 ```bash
 magnet:?xt=urn:btih:83A5151F64CBEDFA8F2873353825F4DC914CC1E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ Ulf Wakenius - Vagabond (2012) [FLAC|Lossless]<Jazz, World Fusion, Contemporary 
 ```bash
 magnet:?xt=urn:btih:F6E44E2BD418947766A4446B9BCB3DE4E542988B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D17C17254DFFFFAE918D458FE541A91E78E9CDEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A06FD31458B0A2859621F9B16BF7FFDF1558707A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10FDB65F1039F70D47BD2C84E6B5063BD487EEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EF1CAEA4DE9F72E48FF209A95F112AE6FE14E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ Microsoft начнет принимать биткоины к оплате
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +747,7 @@ VA - Jungle Joint (2014) [MP3|320 кб/с]<Jungle, Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:A3AE68F0090CB7EFEE940E1778B0A85AA2ED9D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

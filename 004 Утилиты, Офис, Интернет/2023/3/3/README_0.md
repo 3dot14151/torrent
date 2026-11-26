@@ -19,8 +19,7 @@ Registry Life 5.31 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:19E0C4F173A76AFA0883D8AE6F5BD7E67B87D2AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 ```bash
 magnet:?xt=urn:btih:3B90561EEFEEBC40F23CA95A8D043536B9D74C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

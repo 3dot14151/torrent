@@ -18,8 +18,7 @@ Nightfall: Escape (2016) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:DCAF96669B1AA09B05FCE4387ADF5917B4C5AFB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Sonic Boom: Rise of Lyric (2014) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
 ```bash
 magnet:?xt=urn:btih:E5285064191F4A49E7AF4CFDB60475F9914EADAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Microsoft Windows 10 Insider Preview Version 1607 build 10.0.14376 (esd) [Ru]
 ```bash
 magnet:?xt=urn:btih:145BD1453FA9D23CCC65BA74F3D2BA0610920C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Action Legion - это аркадный шутер с видом сверху, �
 ```bash
 magnet:?xt=urn:btih:06240BDD925961374923449F2D6683FBA61DA63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ LEGO Star Wars: The Force Awakens (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:CD834FE2C85178D1060B4004DD814F16CCDA4840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16099F40C57446C3AE00ADAAE0B97CA0488781DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Parkan: Хроника Империи (1997) [Ru] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BBD1651C6E5E44F696FA761C5116ED99BB427F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ ACDSee Pro - профессиональная программа для рабо
 ```bash
 magnet:?xt=urn:btih:1086FC2D8576F2A49A52FEE58B196E49CCE950B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Banner Saga 2 позволит продолжить путешествие по�
 ```bash
 magnet:?xt=urn:btih:2BB4E3E58E6D1FB5931BCFBBAC363CF420CAEBA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Quantum HUD Infographic V.2 - после выпуска самого попул�
 ```bash
 magnet:?xt=urn:btih:0E01FBD5F8ED93BABDD4D6F9045B0C050FF8EF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ SolSuite 2016 – крупнейшая, постоянно дополняема�
 ```bash
 magnet:?xt=urn:btih:1911A98C733B709C79ECC4B0BDEB9C4C5F3FB065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Crookz - The Big Heist (2015) [Ru/Multi] (24360) License GOG
 ```bash
 magnet:?xt=urn:btih:48F1275B20D4542F8E44B2EFB6DF6E1404325306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FC1F38A364F24461788EA96838275AD8A98335C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ MechoEcho, интерактивный конструктор-головолом�
 ```bash
 magnet:?xt=urn:btih:FC9A5BD337CB32770A21E43355D358BDD2B2A34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F9219494938DCE2711F77451506ED61D209A227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5862506805FD1CE7195CFC7E60C0CBE10474FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ Schiller - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Electronic, Do
 ```bash
 magnet:?xt=urn:btih:072DA284967976EDDFB386AC92F5A37DC20E9E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66178F90402B18A8D262A84203F1B666F9A58991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ Resident Evil 0 рассказывает всю правду о происшес
 ```bash
 magnet:?xt=urn:btih:86F0388B4A770B9BB8A687F4B99F3D48DCEBD307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ Microsoft Office Standard 2016 VL v15.23 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D9EAD0E9C3045E288E65D5F7BB18CDB02E8044C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F4FC65C40EB4D550857874F287B22A744776874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A46C9FF058FB0809459C08ED7CE0DBE7AC52D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ Microsoft Office Standard 2016 VL v15.23 (individual installers) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3EB29EC7EB46A65776CB8D71128A88B8A3F45A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +602,7 @@ VA - Record Russian Mix Top 100 June 2016 (28.06.2016) (2016) [MP3|318-320 Kbps]
 ```bash
 magnet:?xt=urn:btih:DFB11AD18A26440921EA1F3B0CFB61645F7FF018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ Linux Mint — дистрибутив операционной системы Li
 ```bash
 magnet:?xt=urn:btih:851C9269F225E07D49F7952CD29E7B61EAF14B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ VA - Слушаем и Танцуем (2016) [MP3|224-320 Kbps] <Eurodance, Danc
 ```bash
 magnet:?xt=urn:btih:BD5CA09D4BDE7690E0A4BE2E219281B2594491A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

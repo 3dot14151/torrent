@@ -19,8 +19,7 @@ For The King II (2023) [Ru/Multi] (1.2.15/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:8063B752341A5CA2F37FFAD0620DC4C991440680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:A786671FE11758BB1EB48360BB20BBA16E9F2EA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Yog-Sothoth's Yard - это ролевой симулятор строитель
 ```bash
 magnet:?xt=urn:btih:881EB5AB424F358F9CE5ABD2B580425309316AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Who is Abby (2023) [En] (1.0.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FFE3912B6EC9D2CA335944C44AD4F014F9CE51D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Trinity Trigger предлагает геймерам потрясающее п�
 ```bash
 magnet:?xt=urn:btih:F2D860B7D4D60F8DCCC918F139B318F1EEE186DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Escape From Warehouse / Побег со склада (2024) [En] (1.0) Scene Ten
 ```bash
 magnet:?xt=urn:btih:79ED443C2FEA212CF45DA4EEA0F8972363BF7A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Warriors of the Nile - пошаговая стратегия, где вы буд
 ```bash
 magnet:?xt=urn:btih:2AC9FE1E08AB7468CDFE021A138B801A62E89950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Twin Mind 5: The Deathly Trick (2024) [Multi] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:CD305D481C7F207DA1A48330E3C55F9C96935A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ My Lovely Empress - симулятор имперского управления
 ```bash
 magnet:?xt=urn:btih:356CB315436CABEFF55B228DCF54B6A41D154F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Warriors of the Nile 2 – это продолжение увлекательн�
 ```bash
 magnet:?xt=urn:btih:99E4558998BBAAEE5B6C2CE674912B3A3AEE37FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

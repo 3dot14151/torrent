@@ -22,8 +22,7 @@ Darkology - Altered Reflections (2009) [FLAC|Lossless|image + .cue] <Power Metal
 ```bash
 magnet:?xt=urn:btih:8F622C80F274DCD67DBBC399A1E6728D411C6ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Field Music - Making a New World (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 ```bash
 magnet:?xt=urn:btih:E06D73EB1DC8530F7423AD077EA548ECA1F7B71F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Beach Slang - The Deadbeat Bang of Heartbreak City (2020) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:8A97E9DC40C61D52740E294C517A960BA2ECB593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mystic Prophecy - Metal Division (2020) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:061F50F007C31775D1AE98E9FCC3B76BA9061AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rage - Wings of Rage (2020) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:10C1728A7F6CED264296A8F13F729CA0EC387213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bobina - Targets (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hardcor
 ```bash
 magnet:?xt=urn:btih:8091760E74A41776AD694D82961DC53C82A1E391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Brothers of Metal - Emblas Saga (2020) [MP3|320 Kbps] <Folk Metal, Viking Metal,
 ```bash
 magnet:?xt=urn:btih:89113AADF7A1E74E862EF0A416D5E02396FCE887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

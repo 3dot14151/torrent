@@ -28,8 +28,7 @@ Brad Dayley, DaNae Dayley | Photoshop CS6 Bible / Photoshop CS6. Библия п
 ```bash
 magnet:?xt=urn:btih:25D0A7B488075DBEF5533D193BB7A45FC9FAD4BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

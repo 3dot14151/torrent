@@ -19,8 +19,7 @@ New File Menu - это просто самый крутой способ соз�
 ```bash
 magnet:?xt=urn:btih:B772F30E39A8EE404D968730FFA9D28C6B1E1453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Choosey & Exile - Black Beans (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Und
 ```bash
 magnet:?xt=urn:btih:E59BD36D4B41B70D232F7D55CEDD3CA829B78087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ ExpanDrive 7 v7.4.6 [En]
 ```bash
 magnet:?xt=urn:btih:DCD5544E7701FF704CF52D726A4D630BC57235DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ A Better Finder Attributes позволить изменить дату созд
 ```bash
 magnet:?xt=urn:btih:1EA30E6B140F3C5B26A528E2138F4EF5AC2D813B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Films - A Forbidden Garden (2013) (Ricco) [FLAC|Lossless|tracks] <Instrumental, 
 ```bash
 magnet:?xt=urn:btih:321CB13B889FA98FA1FEC909CBAED234311470DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Slimjet 25.0.4.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:13EC45E1926195F948CD2B183E2FAB6F0297E97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Enolsoft PDF конвертер с OCR - это эффективный инст�
 ```bash
 magnet:?xt=urn:btih:C572B09B131B5D6FD5945DF8D302949269AABD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ iSkysoft Converter  для Mac. Сделайте все это - конверт�
 ```bash
 magnet:?xt=urn:btih:89AD83BFEB090C60C03B3B5215650E23DF96BB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.1 (build 31) [Multi]
 ```bash
 magnet:?xt=urn:btih:F96F92E2554EDE1B204E0CAC278805A0AB34C162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Numi - необычный калькулятор, который "общаетс
 ```bash
 magnet:?xt=urn:btih:E1E90586106A679EB3026FA3F26C2EBC131E30E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Films - Messenger (2010) (Midi Creative) [FLAC|Lossless|tracks + .cue] <Instrume
 ```bash
 magnet:?xt=urn:btih:4FA9655EE8C36B78C127E198B390D67CEB2B52BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6EECA39E47C8C540777F85A28364E995650EFBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ SlimBrowser – браузер, построенный на базе Mozilla Fir
 ```bash
 magnet:?xt=urn:btih:AC147B1654ED317ADE49D7D08410FBDB8602102F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ Enolsoft PDF to Word с OCR (оптическое распознавание с�
 ```bash
 magnet:?xt=urn:btih:122232790C710AD1D1F74AC14786A4683A384F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ MediaTrans фокусируется на одном простом деле, и 
 ```bash
 magnet:?xt=urn:btih:25E08186EEDCE1C70F3AF6EDD0A0FDAEE1F68952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ The Twins-  Love Is Blind (1993) [FLAC|Lossless|image + .cue] <Synth-pop>
 ```bash
 magnet:?xt=urn:btih:158F72B9A6F14FD040E76959C9CBAA0C6B517873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Optimage - это продвинутый инструмент оптимизац
 ```bash
 magnet:?xt=urn:btih:7D4F3A5D2FE89F41D0D99C1E6D69CC53A5656278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ Enolsoft PDF Password Remover 3.4.0 утилита для разблокиров
 ```bash
 magnet:?xt=urn:btih:0C9BB77C3024B62497D4AF6B66DE64DC1A1743C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ VA - The Sound Of Now (2020) [MP3|320 Kbps] <Tech House, Electro, EDM>
 ```bash
 magnet:?xt=urn:btih:A872164F93F9D9C8CFF31887C092F230EA5947AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F359B991FCA5539DCE02A40AEDF9F263F9171200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ VA - Neon Night: Electro House (2020) [MP3|320 Kbps] <Club, Dance, Electro House
 ```bash
 magnet:?xt=urn:btih:F0FF183455B8D98FC8D906EC5E2746EB49D1D231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ VA - Beatport Trance Pack: #03 (2020) [MP3|320 Kbps] <Trance, Progressive, Elect
 ```bash
 magnet:?xt=urn:btih:96ACAF2686EEB7456CC3A3FF9ACC497C065A1851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:565F1F7C725A8C20A8106DE4EE842F239D576FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ Bigasoft FLAC Converter для Mac - это специально разрабо�
 ```bash
 magnet:?xt=urn:btih:337FE812B3280E1C9895CC9AFAF737EED402A028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ Enolsoft PDF Creator помогает создавать PDF-файлы в те�
 ```bash
 magnet:?xt=urn:btih:FAB7AD5DB6A366F6F4CCA572E067566FC69EF21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 ```bash
 magnet:?xt=urn:btih:A1C90946518108DCC31B2CB5E2DFECD1E1658FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

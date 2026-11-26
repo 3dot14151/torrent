@@ -19,8 +19,7 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 ```bash
 magnet:?xt=urn:btih:BDF7FEA2D71450C951094585840C248F8937D7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:14F32F52B40F1EC53AA65C27F62C8DBA762EF6C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Victory and Glory: Napoleon игра в стиле Grand strategy где вам 
 ```bash
 magnet:?xt=urn:btih:98383B5E247E6FC6A029F1FF74960BD7708D46AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Assassin's Creed Chronicles: Russia / Assassin's Creed Chronicles: Россия 
 ```bash
 magnet:?xt=urn:btih:24DE94A16C471AF19118AA34CF28352953B661F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ RSS Guard предоставляет строгий и лаконичный по
 ```bash
 magnet:?xt=urn:btih:9DC41C867E36854522FF71835CA3877619157226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ F-Rename – программа для быстрого и простого пе
 ```bash
 magnet:?xt=urn:btih:F30C26C77623C35B9733A5C09E8D2132F607C681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:987AB63FF28FCF0CC530F204BE513E6DF240F681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ RAM Saver Pro выполнит следующие действия:
 ```bash
 magnet:?xt=urn:btih:2674687B373150F4865868BB4D294C61A3358587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Beyond Compare — мощнейшая программа для сравнени
 ```bash
 magnet:?xt=urn:btih:F120B480945E7A71C1ED22626A10DF14B5503BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:F6E716C4DC738C03608532B2E8EA59F2C901743E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Driver Reviver – это приложение, которое проскани�
 ```bash
 magnet:?xt=urn:btih:8CC8A83102C65F07968EC3DE47B625F90327B469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Lazesoft Windows Recovery предлагает домашним пользова
 ```bash
 magnet:?xt=urn:btih:DCF55294E2584CFACA53150DEE3A8CEC0C6F4D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:077DD733A11CC046FC5FD5B09F8702275DD37122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ```bash
 magnet:?xt=urn:btih:23E82B2D7B30A81EFB9ECC3ABF968FE876359DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:5D58F91F808C647638D793DB83BDDE56D9AA4C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:555EB3AE1D17AC6CD02AA01BCE919B56C64FC36C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Microsoft Activation Scripts (MAS) 3.11 portable [En]
 ```bash
 magnet:?xt=urn:btih:0A2ABCF31EC2EE2831612440A495BF849E75DD5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ R-Wipe & Clean - программа для невосстановимого уд
 ```bash
 magnet:?xt=urn:btih:DA78BC741A556683A35A1FF9FFDCE2B6368BE6BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Camtasia захватывает действия и звуки в любой ч�
 ```bash
 magnet:?xt=urn:btih:03F883C00521C8D08C9B818C719EFEB55AED335E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Snagit предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:753A49E9D4E04DE7C14EA0FFEC54D91B18C361A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 ```bash
 magnet:?xt=urn:btih:3CCA68410918B07E172B5A24184E4C55CE6D1997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ MITorrent Client — быстрый, удобный и компактный то
 ```bash
 magnet:?xt=urn:btih:010462FF3D911F13C43476DD0AE36086CEE35670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:60ECEC0301F0D6818C63892BEB073CFC0CE026E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 ```bash
 magnet:?xt=urn:btih:2CBA7339F8F7598FD781C7FF27595FD6B2C9A7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ Auslogics Registry Cleaner - поможет вам избавиться от о�
 ```bash
 magnet:?xt=urn:btih:1C6EA1CF70687C330095C81E35A572B247ABA339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ Auslogics File Recovery — простая и эффективная в испо
 ```bash
 magnet:?xt=urn:btih:BDC257256A4516DCC08CDACC84285A0AB860F41E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ Auslogics Disk Defrag - это профессиональная версия к�
 ```bash
 magnet:?xt=urn:btih:D824DD2F6584F41EF70611A52E4F38B8CAB77968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ PdfSAM - бесплатная и простая в использовании у
 ```bash
 magnet:?xt=urn:btih:0E6C8474EFAE66A8341E3D2A23500E5D773047F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:3A75546C79F99F7F631FBBC3E6A8A836BFD74E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 ```bash
 magnet:?xt=urn:btih:F20768FDF94092543D202D0C3A3B0618E3AF6F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

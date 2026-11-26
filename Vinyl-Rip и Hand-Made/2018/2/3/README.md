@@ -22,8 +22,7 @@ Judas Priest - Painkiller (1990) Reissue, 2017, Columbia [FLAC 2.0|192/24|image 
 ```bash
 magnet:?xt=urn:btih:43D981169D9A7F41E9D75B517ABBBB48591C13EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

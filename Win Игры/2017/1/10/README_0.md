@@ -19,8 +19,7 @@ Terminator Salvation: The Videogame / Терминатор: Да придёт с
 ```bash
 magnet:?xt=urn:btih:B11F68DDB5D8D5C6C7E2A91D7E6212486DD3F7F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bequest (2017) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:717F4DE051411DB807B8A67ED8B3D76F6CA81AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

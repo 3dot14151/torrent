@@ -19,8 +19,7 @@ Infectonator 3: Apocalypse (2018) [Multi] (1.3.2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:F65C49B37F63D8E0D7321EA91D3458419563535F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Men of War / В тылу врага 2: Лис пустыни (2009) [Ru/En/Fr] (
 ```bash
 magnet:?xt=urn:btih:1BD9D7C2B78C806D83A379720E6C3255E960B602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

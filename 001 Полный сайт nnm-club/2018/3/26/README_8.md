@@ -22,8 +22,7 @@ Bud Freeman - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 ```bash
 magnet:?xt=urn:btih:A4F760C8373E84AC4A5B8DC1286C30DD53B547B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pony Poindexter - Pony's Express (1962) 2016, Sony Music [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:CC515F684AEDDA970E7F44E8ADCD7878807ECA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Paste хранит всё, что вы когда-либо копировали 
 ```bash
 magnet:?xt=urn:btih:17E8B6FFE0EB85577A57D81A59E46A0887409411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Onsy - FREQ255 (2017) Schematic [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:F27370E6E45953B4BB276B4FFC52F415C6AD1CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ S.A.M. - Retrospect One (2018) Delaphine [FLAC|Lossless|WEB-DL|tracks] <Dub Tech
 ```bash
 magnet:?xt=urn:btih:E5E33282E0BA474694A2833DBD6836E267E010BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ KVLT - KLVLT (2013) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 ```bash
 magnet:?xt=urn:btih:352F5ADB495C9FDEE04969515C1BA22FC75F7BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Autism - ((Vibro)) (2002) Segment [FLAC|Lossless|tracks+.cue] <IDM, Abstract, Mi
 ```bash
 magnet:?xt=urn:btih:CBDACF6CFF64FD7D412B162E76FE27647B3107A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ VA - Levitated Miami (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:3C3976DC865EA9AF06826448296569176541F824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Hermann & Kleine - Our Noise (2002) Morr Music [FLAC|Lossless|tracks+.cue] <IDM>
 ```bash
 magnet:?xt=urn:btih:D4F2C4BD8F621B66F1564DEF36291F23EB658CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Autism - Empty Kingdoms (1995 - 2007) (2007) Segment [FLAC|Lossless|tracks+.cue]
 ```bash
 magnet:?xt=urn:btih:12156BE2AC9D367834225D4FF38E3929DC6AEB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ VA - Silent Shore Miami (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:03094EDC3E64F635718833689A1FA361CEB1984D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Yan Tregger - Christopher Ried - Ducks & Drakes (1979) LP [MP3|320 Kbps] <Electr
 ```bash
 magnet:?xt=urn:btih:75B6887D884049DA258FA0684119D7D35D26698A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Steve Parker - Interplanetary Dust LP (2018) Planet Rhythm [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:B37D8F178564F50F51CE49F1D08052B598093A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Coil performed by VA - …It Just Is (In Memoriam: Jhonn Balance) (2005) Fulldoz
 ```bash
 magnet:?xt=urn:btih:F886625B99E41615C2E7B63C65DA14C30317ECF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ Thorium - Ocean Of Blasphemy (1999) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:5AD762FCC93A304AD1F6D91FD85540A62277AD81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ VA - Back To Love 03.03 (2003) [FLAC|Lossless|tracks] < House, Disco, Hip-Hop, A
 ```bash
 magnet:?xt=urn:btih:527A98B681BD910C56788CFF5FFE7BD334B16CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ VA - Existence (2018) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:E28676292D6129715628936FAC0233B454A99E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ Fungus Hill - Cosmic Construction on Proxima B (2018) [MP3|320 Kbps] <Psychedeli
 ```bash
 magnet:?xt=urn:btih:61DC2ECD04E0ED34D50D874E2AB0A64777113C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ Certain Creatures - Nasadiya Sukta (2018) Mysteries Of The Deep [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:7F35D84E40D4A6273797E6178F3D7D39D7C004FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ Vulva - Birdwatch (1996) Rephlex [FLAC|Lossless|tracks+.cue] <Techno, IDM, Acid>
 ```bash
 magnet:?xt=urn:btih:83C3F577ED5BDAEF383F0B59FE27F141EC8820D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +580,7 @@ VA - Markus Schulz - Global DJ Broadcast (Miami Music Week Edition) (2018) [MP3|
 ```bash
 magnet:?xt=urn:btih:530E04E1B1B66566FB033D7BC8EC9D3776CC36F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +608,7 @@ Luke Vibert - Arcadia (2018) De:tuned [FLAC|Lossless|WEB-DL|tracks] <Electro, Ac
 ```bash
 magnet:?xt=urn:btih:A2259CCC457C4E31BEE5C12ACB58D48160CB1F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ John Tejada - The Matrix Of Us (2000) deFocus [FLAC|Lossless|tracks+.cue] <Leftf
 ```bash
 magnet:?xt=urn:btih:0C961C8846E7AD86814DA726C0E0D6B67B48286B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ Certain Creatures - Interpretations Vol I - Nasadiya Sukta (2018) Mysteries Of T
 ```bash
 magnet:?xt=urn:btih:F27DE83B04294F2DE98525A84DC8AB1AF4C6BF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +692,7 @@ VA - Ori Uplift & Baco - Uplifting Only 267 (2018) [MP3|320 Kbps] <Trance,Uplift
 ```bash
 magnet:?xt=urn:btih:B64153098A3480FBE46F970F4C826D3E323C28B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +720,7 @@ Michael E - Cotton Blossom (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:8EC38DD603B0160DC1C3F2B2CD3CB9DFE5387A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Labyrinths of the World 12: Hearts of the Planet / Лабиринты мира 1
 ```bash
 magnet:?xt=urn:btih:D1693EBC84B75BA239D255B7FAB0C9CB2581973C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FastAPI — относительно новый, но надежный фрей�
 ```bash
 magnet:?xt=urn:btih:ED43AAEF70E8770D7A347A3310C140F5D384886E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

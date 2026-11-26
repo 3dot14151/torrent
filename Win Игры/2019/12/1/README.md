@@ -19,8 +19,7 @@ Witches' Legacy 8: Dark Days to Come / Наследие ведьм 8: Гряду
 ```bash
 magnet:?xt=urn:btih:DA5F1DE399C33EBB1464ADB9A550D2427639CBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FARMER’S DYNASTY — это совершенно новый игровой о�
 ```bash
 magnet:?xt=urn:btih:405B224FB8B2097ABF3A705E5355C312A2830F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.02u1/dlc) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:86A34230AA3290B1A86FF834129E235EC39EB2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

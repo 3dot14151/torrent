@@ -20,8 +20,7 @@ Nanatsu no Taizai: The Seven Deadly Sins / Семь смертных грехо�
 ```bash
 magnet:?xt=urn:btih:584201B011E90147F8698F72C295C481298A2ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ PCRadio – это радио плеер для OS Android, позволяющи
 ```bash
 magnet:?xt=urn:btih:F162E08BB12E3C18C81AED2EDD61AD7C590B4395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Autodesk Entertainment Creation Suite Ultimate 2016 (x64) [Multi]
 ```bash
 magnet:?xt=urn:btih:29FA4B3FCD9F891CCF752455091DC939A424D759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55B0AD98C964E59A72DC795289FA99FCFDD28467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10049 (x86, x64) (esd) [Ru]
 ```bash
 magnet:?xt=urn:btih:503A655D602F8ACD8A446A7D85F9BB7A2B2C1BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Hide ALL IP - программа для подмены IP-адреса и ано
 ```bash
 magnet:?xt=urn:btih:8374E7943060DCAFC20A7D9FCBC05535D9CBDF59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Shinmai Maou no Testament / The Testament of Sister New Devil / Завет Дь�
 ```bash
 magnet:?xt=urn:btih:A6C6DAD8F05400FD0C9F737FBC0CC9C70C67A397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A675E1EB57058BBD202FBEEBC9406DBA0CD019C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Microsoft Windows 10 Core Technical Preview 10.0.10049 (x86, x64) (esd) [Ru]
 ```bash
 magnet:?xt=urn:btih:073FBBFEEEC1CC2165BD767459E5B86304C86884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Star Ruler 2 (2015) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:7BC1FCCBACA8CCD86F8297F5EF067C28189FA702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A40A02C10DD238BCDAB27156FC638CFA2EFA21C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ AdmidWPI v.15.0327 [Ru]
 ```bash
 magnet:?xt=urn:btih:23F85B6C37B41752CC72295725F4FCF93327693F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Cross Ange: Tenshi to Ryuu no Rondo / Перепутье Анж [2014, TV, 25] H
 ```bash
 magnet:?xt=urn:btih:DB1AEA3AA4F0E309406A87AB528AAA7F7E62FB47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ UltraMon - программа для повышения удобства раб�
 ```bash
 magnet:?xt=urn:btih:2005F45ECF17B7219C5A0DB2E071CB6318FC2CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.10049 (x86, x64) (esd) [R
 ```bash
 magnet:?xt=urn:btih:24B6C5934D4A70BF82EA4ECD1B30C7F4AA9FE817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD616C1E10A9F6C4BBA7F1513E28F93E1F0DDAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38477B88786E170E0BF72C030B8A29CC54A82106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:485D01D5E1A81E8C99627522588A67829C65E610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCFF5EBEB680211F20C5FAF77148FB8B20F48754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88F4305681383BDF752C15D92FC834D6B2AF6CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ DEAD OR ALIVE 5 Last Round является кульминацией серии 
 ```bash
 magnet:?xt=urn:btih:F705E995B6C6088C437322C86687C7C8C9358780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ Autodesk Inventor Professional - 3D-САПР для машиностроител
 ```bash
 magnet:?xt=urn:btih:D635DEE0D816FB3A5CCCB6D591FD56C8A09990AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ CFW Darknet 4.70 (Standart + Cobra 7.05) [PS3] [EUR] [4.70] [Unofficial] [Multi]
 ```bash
 magnet:?xt=urn:btih:B48DEFAB138B652B6AF5EC9F9787D5D4DE47C784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71D6C2703A8B183AE736420511ADF36ECD18F152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A1AFB636178E147B291EAF9566D87FD2393DDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

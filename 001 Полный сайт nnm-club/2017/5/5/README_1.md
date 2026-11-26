@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6ECCE2FE1A5B89CCD3231D260D4A8107A3DA417B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Notebooks  является единственной записной книжк
 ```bash
 magnet:?xt=urn:btih:299AECDCBBD80FAEC1C7F6CFA782E8C80FFB5C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - Sunny Day Simply Jazz (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:599FF306DC88597BFCC5CC661D3BA326395D030A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VA - Workout Mix vol.8 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electr
 ```bash
 magnet:?xt=urn:btih:998CC83D8408BA9C10D391FCAB293150680AD19B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC8394BF5CB50A0524B53CA772D48ED317944135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Synthetic (2017) [MP3|320 Kbps] <Synth Pop, Dark Electro, EBM>
 ```bash
 magnet:?xt=urn:btih:7F5E8BAB39A0380809A66F7774454BD0EC747524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Громче чем Бомба. Жаркий Уикенд. (Sound Clinic - 
 ```bash
 magnet:?xt=urn:btih:003D35897CC4BA5673BEAB8A90A3C00E39523E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8BCFFF56DBACAD52458E745580AD9A2420618B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7D781534E072206A76975F03DC8FEDA08CC20B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Replay Video Capture - это приложение, которое позвол�
 ```bash
 magnet:?xt=urn:btih:1CF6FD9987AE3EA8178CA793ABE15D7791604D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Coolmuster PDF Converter Pro — программа поможет пользо�
 ```bash
 magnet:?xt=urn:btih:CB0230B4348F761A2154B3F8B5C2D48C6472CC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ AnyMP4 Video Converter Ultimate - универсальная программа 
 ```bash
 magnet:?xt=urn:btih:4065B712F112409036B029AC9AD543ED514C88AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ VA - Hits Cocktail Vol.6 (2017) [MP3|320 Kbps] <Dance , Club House , Electro>
 ```bash
 magnet:?xt=urn:btih:FE962AE9D1FC3B3ECBE5159027ECC60ED2C822F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ VA - Любимая музыка. Дискотека Хит FM выпуск № 
 ```bash
 magnet:?xt=urn:btih:6273A0538A8EC993F1861E2B6EA8ED795F50769E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Retouch - Light Years (2017) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic Ro
 ```bash
 magnet:?xt=urn:btih:BB0928DD6896F1EB03EA3E8CA9F5E7B435FB76EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4C45EAC3C077DBD7F1241113BC2F1077BEA14F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Travel: Музейные тайны / Mysteries at the Museum (2016) HDTVRip [H.
 ```bash
 magnet:?xt=urn:btih:1DFDDD32FA485D3DCAD141B9285309C5FA0AF18B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ MyBrushes (   Читать дальше...   )Тип издания: macOS Soft
 ```bash
 magnet:?xt=urn:btih:67F74C4C6FF33611B98FAEE3829F34B84A2A48E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:B4EEA8D9A5512971E3A4B9F0A10E7BB5A9EFAF00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B11F57EBCDAE778A99F895FC53A54AE4A5AD11A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ Magic DVD Copier 9.0.1 RePack by вовава [En]
 ```bash
 magnet:?xt=urn:btih:07E2DBE4772808FA5D424B89DBD96DEFC18141ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Icecream Image Resizer 1.48 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C35F4DFEA8BB4C1899497B824384C0919A0354A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:4F19F22250039C60A9CC544D9F4B3AABD932FA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ Battery Health предоставляет подробные сведения о
 ```bash
 magnet:?xt=urn:btih:8AA44615672CB13418CB89DE01FFC0B6138DB99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECFFC49E3DCC95A82AE56448596D6A09520C1E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Tipard Video Downloader - это профессиональный загрузч
 ```bash
 magnet:?xt=urn:btih:AB3E0F649F79DCAD005E477E84A591165378DDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

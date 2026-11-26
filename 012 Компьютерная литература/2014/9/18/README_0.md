@@ -22,8 +22,7 @@ ISBN10: 0-321-96870-0 (далее книга).
 ```bash
 magnet:?xt=urn:btih:7D6D94F71AC9CBFF187D5211EFA47F6A82F6406E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8B77D51FC74966BA6BD90AEFCCD0F173197D4B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

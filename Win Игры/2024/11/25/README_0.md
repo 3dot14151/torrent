@@ -19,8 +19,7 @@ Sam and Max Save the World – первый сезон в серии игр, а 
 ```bash
 magnet:?xt=urn:btih:1E6CBE5F0C88C7F69243EDEE62E82326248018E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Detroit: Become Human (2019) [Ru/Multi] (Build 12158144) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A46813C37357D3599A2B32A0A8E363FA981B647C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Journey of AutUmn – перед вами традиционное прик�
 ```bash
 magnet:?xt=urn:btih:DB7CCB6E7B9A9C2D603BE3A068C5142484B505C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Heavy Rain (2019) [Ru/Multi] (Build 5236766) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9B32CDE80571BA7811ACF699EF84DF096E14D66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:186C970A5A5AAD2A7A727772E15C64E20A8F090E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Wyvia (2023) [Multi] (1.0.8) License GOG
 ```bash
 magnet:?xt=urn:btih:3E9ECD219B19D99761EA431BF9DB338D652A63CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.126.0307) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E461CFABE18378E63F2925E14FF249CFB6D6402A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Albatroz - это приключенческая адвенчура на выж�
 ```bash
 magnet:?xt=urn:btih:A5EA272072692BA17BD548D1205203C06DBFEC19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Sam & Max: Beyond Time and Space – это обновленная часть с
 ```bash
 magnet:?xt=urn:btih:EDF9D91DAAE8E5714A356CC54B681B0E6F47E00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.02.001) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:032FD1565C320C9653252EF736D0F4E6E3AA7699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Wilmot's Warehouse – довольно сложная игра-головоло
 ```bash
 magnet:?xt=urn:btih:FD4CE7EC35ECC1E18363570FA8087C6D9F6B3D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ It's Only Money окунет геймеров в реалистичную ист
 ```bash
 magnet:?xt=urn:btih:0682C784F44639EF45085C1EB2BED3C97F31DAB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Bug Fables: The Everlasting Sapling – это юмористическая ро
 ```bash
 magnet:?xt=urn:btih:6BA8E999DE8DE5381C701ADAC6E20B7B05576C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Drunken Fist: Totally Accurate Beat 'em up (2019) [En] (1.0) Scene DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:548822985F34D254AFF186820C4DEA311122C10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

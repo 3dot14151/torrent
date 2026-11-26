@@ -22,8 +22,7 @@ LOUNA - Обратная сторона. Часть 2 (2023) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:5553F26624E7CDB76FC9689EB26C5BEB9DA8654E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ LOUNA - Обратная сторона. Часть 2 (2023) [MP3|320 Kbps] <Alt
 ```bash
 magnet:?xt=urn:btih:AD68A74834B8CD6997B090AE763015760A629814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Peyton Parrish - Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Al
 ```bash
 magnet:?xt=urn:btih:59EAC9BE7FC17338CDF4959CFDB3E80BE285A9AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD5260C1650D0E9E2309395A62D7F310142E66D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Spirit Adrift - Ghost At The Gallows (2023) [FLAC|Lossless|image + .cue] <Doom M
 ```bash
 magnet:?xt=urn:btih:321FAA9FC038522A351FE360DDC045B87BC5993F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ DGM - Life (2023) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:66FE8EAD0E8CA6F25479A05B6E34E83D7CC930D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

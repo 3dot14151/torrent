@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DA6BE95EA3B6F329398511E04C6240A00EEE110F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F54C3F13ECD79A95EF7708C0E0604369D26EF1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:049235D58B79B6DD91BEBB64D54606131E1551EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDA94B0FFBADFCA1C11416B1AABB22F81485E4EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ FL Studio 11 - последняя версия виртуальной студи
 ```bash
 magnet:?xt=urn:btih:CC03821513512CFBEC9DCED1C483CAD9CB777F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Arise: Ghost in the Shell / Koukaku Kidoutai Arise: Ghost in the Shell / При�
 ```bash
 magnet:?xt=urn:btih:D3AC41B35420A5C42F57494B31D3798D6D7D6A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10341E4FECC2AC56FAC2EED1B55DE7E3A5CF7B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ The Forest (2014) [En] (0.04) SteamRip R.G. Игроманы [Early Access]
 ```bash
 magnet:?xt=urn:btih:2FF8FE85B7F6941421CEF1A91F2C30F6F0883F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Art Nude, Collage, Beauty, Oil, UNIQ, Vintage, Wedding, Art Wedding.Жанр: О
 ```bash
 magnet:?xt=urn:btih:5E671FB2688FA4D3A3E2842305B9D0E06036E065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E78700866DE78638306E7F0AFFAA3DB6C98B12C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E210DCC1799F3E68C8A823871928BEA8ED2E9091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Sleeping Dogs: Limited Edition (2012) [Ru/En] (2.1/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:832CD69CD04FDC7ABC198568692C070A64C9044C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Watch Dogs (2014) [Ru/En] (1.03.471/11dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:90BA09064F25C6EFEAAD5C90668A43F31666958E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Antropomorphia - Evangelivm Nekromantia (2012) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:363A4CDA1FFE456E73BAE16B132D2F4BF97D21CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Cephalic Carnage - Xenosapien (2007) [WavPack|Lossless]<Brutal Death Metal / Gri
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Heat - Heat (2012) [MP3|320 кб/с]<Old School Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:028D5D64CAB606F37E050E7A17C39BB071C81399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Kompendium - Beneath The Waves (2012) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:239530B1BF77EBE26734505268D9A44D14B3770D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Kompendium - Beneath The Waves (2012) [FLAC|Lossless]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11748F131847D2196A2C131FF0B1327F3ABE9513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

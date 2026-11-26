@@ -19,8 +19,7 @@ Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:D2AEA7CC6B5FC1FBBB3F5441D6FB980707DC7B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe
 ```bash
 magnet:?xt=urn:btih:EF710840FFB2BBB1183077EF961D513E2DFE080E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Menace from the Deep - захватывающая карточная игра в
 ```bash
 magnet:?xt=urn:btih:E78DB7D40C176208A719FA5A53894F617D553B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Stone of Madness – тактическая стелс-игра в реал�
 ```bash
 magnet:?xt=urn:btih:603E8854244588CD7D374FA1ED96039D6ABEEC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sker Ritual – фантастический боевик, который мож
 ```bash
 magnet:?xt=urn:btih:4613408D41636F2D4DFF2149CB6004D1DCA48FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mega City Police / Mega City Force (2023) [Ru/Multi] (1.092) License GOG [Digita
 ```bash
 magnet:?xt=urn:btih:5E9E9D42C08B027FDCDB6289BA56F12A8455C9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ CyberCorp - топ-даун шутер, выполненный в сеттинг
 ```bash
 magnet:?xt=urn:btih:58D71A526598421F740FC521A93A1ACD605CDB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:19C88EE88387217E6B609352B5647C9A5573D85B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Firmament - новая игра-приключение с загадками о�
 ```bash
 magnet:?xt=urn:btih:9C900DDEA1036A1B8288B77AF59097645E59E093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack FitGirl [Remastered]
 ```bash
 magnet:?xt=urn:btih:43D6CAB71411DA543A628AAFEBA14A3FB0F869A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ World of Goo 2 (2024) [Ru/Multi] (13112W) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D9AE1B4139FB4127EB16897009A3F303D8E541CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Fabled Lands (2022) [Ru/En] (2.1.3а/dlc) Repack Let'sРlay [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:1102943BAF2D4FBA06C531A97FB6C5F3A5BCAD51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

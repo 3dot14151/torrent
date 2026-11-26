@@ -21,8 +21,7 @@ Jeremiah Johnson - Unemployed Highly Annoyed (2020) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:D0E4379AB7092B74B102E80EAA1DACE795CF2A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Summoning - Stronghold (1999) [FLAC|Lossless|tracks + .cue] <Black Metal, Sympho
 ```bash
 magnet:?xt=urn:btih:DD1CF6F8F36E6648398C49F77385367A2D8B57F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Exposure X6 v6.0.1.100 [En]
 ```bash
 magnet:?xt=urn:btih:BD554744702E528968A7B3B7DF5AF6D126BE23AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Airy — YouTube загрузчик
 ```bash
 magnet:?xt=urn:btih:726D82A505FBD9C2D90DFDCDE1F5CD1488D0C620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE232E50EC8D941CFA886DC61D127F029D1F7145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Interface - Plastic Age (2020) Unofficial [FLAC|Lossless|tracks + .cue] <Synthpo
 ```bash
 magnet:?xt=urn:btih:BD3D52F15A6ED092F678DC03F33128AF7FD29752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B598EDAA408E2E8C0F2A0F122EAB35B0B887FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Il Quadro di Troisi - Il Quadro di Troisi (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:BF4E880B25D90300F7625CAC5CA1596A58842267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:432DE8141946F9EC84C6467D4250146795971040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ VA - Halloween Hits 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:92C2AFCCFEFB848DF3196C895851568EEA872710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Magnet 2.4.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:97AC2F21BFF68C2E535EA2880FBA25CF6F3B4790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ VA - не Громкие новинки недели 85 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:5778B977BBEDFDDC83F082951706EE278C66E02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Indecent Noise - Everything Is Connected (2020) Black Hole Recordings [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:79E9C242DF887699CE0AAF5716E67398606142F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Brave - защищенный веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:946B30E062DAECCE8001626EB7B417C31600A11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:7C894DB16E0FFE79205364693123F55931EBE995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Karen Souza - Velvet Vault (2017) Jараnеsе Еditiоn [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:0F2DA8F8F5C029A1FC8E74246568BA518B2C7ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ R°A - Space Melody (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synthp
 ```bash
 magnet:?xt=urn:btih:0098ACE257E4703621A905BBE1FB1CD8EC62F1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:A6B4A87E0B523A0DA3B934A90226F462A2DDEF1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ VA - Beat, Bass, Melody (mixed by Dj V) (2020) [MP3|320 Kbps] <Bass House, Club 
 ```bash
 magnet:?xt=urn:btih:6C55EE1CF69BDD32146928C6ABC2F9418BE6F73C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Summoning - Oath Bound (2006) [FLAC|Lossless|tracks + .cue] <Atmospheric Black M
 ```bash
 magnet:?xt=urn:btih:82A3D44764215A15FD3D68071AC6FF0229DFF045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:E564BD987680A47384A620B4B8CAC8DFE20BF125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE6782E2169B3BD5058352348F7B80724757DD32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:813457976002C4B420DE8C3B4A6174D007818487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ A4 Все Мы Верим(   Читать дальше...   )Жанр: Heavy Met
 ```bash
 magnet:?xt=urn:btih:3A8C96644EC00ECE51D19B47E1268D09DAF7D075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7CEF0B869F2275EED791FAC265E200F87FDF285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ Laidbackers | Расслабонщицы [2019, Movie] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:3DFF0BBA5E9B6784B7B9DBE333D170F99D70180B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

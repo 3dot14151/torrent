@@ -22,8 +22,7 @@ Lumen - Lumen & Orchestra (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
 ```bash
 magnet:?xt=urn:btih:667986E46A21ECB16DDE23DC01AD98625DE1F341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

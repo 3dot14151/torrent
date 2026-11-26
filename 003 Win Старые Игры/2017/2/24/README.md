@@ -19,8 +19,7 @@ X-COM – это сверхсекретное боевое подразделе�
 ```bash
 magnet:?xt=urn:btih:6D7C6F056E1AD9A6BDFFB9919B6AAF1CCC9AD438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden & Dangerous Anthology (2002-2005) [Ru/En] (1.51/1.12/1.50) License
 ```bash
 magnet:?xt=urn:btih:78A790FCF611DA61BD6354165D30B70B182BBBE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hidden & Dangerous 2: Sabre Squadron (2003-2004) [Multi] (1.12) License GOG
 ```bash
 magnet:?xt=urn:btih:941D6976B1F8B6BE7D06D694154C25FA032A0347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

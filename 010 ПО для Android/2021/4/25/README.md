@@ -19,8 +19,7 @@ Mokoroom v1.1.2 [En] - Мультяшный фоторедактор (обнов
 ```bash
 magnet:?xt=urn:btih:BD25E327B4C08E89B4D354DFC967466FED47A4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68DB88A0B2C969A13463C87D5FD5104640C7D23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C6C0C6231984B0A12C98380B90EE82714963C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ mcpro24fps v035b [Ru] - для профессиональной записи в�
 ```bash
 magnet:?xt=urn:btih:D2BD948BD39900263663D0799D02A1023BE73DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FlatOut 2 - это аркадный автосимулятор с акценто
 ```bash
 magnet:?xt=urn:btih:BF58FC13BA2339CB364262B353349ED375F31391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bad Boys: Miami Takedown / Bad Boys II / Плохие Парни 2 (2004) [Ru] (
 ```bash
 magnet:?xt=urn:btih:41EC9233947DC633B757CEA763BCF29D0722A731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

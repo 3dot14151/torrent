@@ -19,8 +19,7 @@ Europa Universalis III / Европа 3 (2007) [En] (5.2/dlc) License GOG [Compl
 ```bash
 magnet:?xt=urn:btih:F87AB96F532FB90F290B3CDA3611EAC4DD1F2390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Age of Wonders: Shadow Magic – это продолжение знаменит�
 ```bash
 magnet:?xt=urn:btih:4380A29856AB52B66B1BE8C6E11391214757ABA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Outcast 1.1 - переиздание приключенческого экшен
 ```bash
 magnet:?xt=urn:btih:F0815DFD92FEF4C2918DB59F327432E72F638D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

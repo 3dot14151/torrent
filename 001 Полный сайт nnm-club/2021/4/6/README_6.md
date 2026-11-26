@@ -19,8 +19,7 @@ Recordia 1.4.1 [En]
 ```bash
 magnet:?xt=urn:btih:4C5B82818C7E8B2B2D76C969FB0D4C6209FA1774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ myTracks — замечательное приложение, которое б�
 ```bash
 magnet:?xt=urn:btih:399CCC3194EEA12C878076C8661AF3908191D670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:D615EE8D089C2189AB987DCD62E43A678A44D656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Baest - 2 Studio Albums (2018-2019) 2xCD [FLAC|Lossless|image + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:ABE3868D07CC40C6555A0F08B8CE55D079204178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ PowerPhotos - позволяет разбить ваши изображения 
 ```bash
 magnet:?xt=urn:btih:814DCA7E154167BA9A0C210EB350E395AF288D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Svartsyn - Requiem (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:D6CB65A69D1E6551A259264F115465AEBC53225B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Filmage Screen Recorder - это универсальное программно
 ```bash
 magnet:?xt=urn:btih:6E04AB8EDD8DAAF8546F870EA4320F97F48B370F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Martine - Martine (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock, Progressive Ro
 ```bash
 magnet:?xt=urn:btih:AF1AB4B894C3684DED0DF56B4FB7ED15E4B3473A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CD6C5895F9AB1B9772AE20DE8AE190F4D2986C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ App Tamer 2 v2.6.2 [En]
 ```bash
 magnet:?xt=urn:btih:0DC2AA44C0277E327080D7B7901B8DEA030B234D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Photo Ninja - это RAW конвертер, который обеспечива
 ```bash
 magnet:?xt=urn:btih:AB9A2E3059072437BB568543D68C91E79A146441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ ltfll - Deflect Trial (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitc
 ```bash
 magnet:?xt=urn:btih:C53E6AF2E54FDE7E777EB17A07B2CF9F889A1217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB5F1EB29A246B4DAAFDF2BBFDCE9C5CE9D13F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Noumena - Anima (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:F583D9609B6699AEFC72F4AFE70F651D26072A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26B952FDCA0EFBD7148AFB113A5C76ACF782C130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ DMG Master представляет собой простое и оптимиз�
 ```bash
 magnet:?xt=urn:btih:1E594A0A158E6CDB28AB49CC4FC44094B0FE8037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F810DBD88C4325EBD2E9D60CAD6AE74CA8BD8BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Leech: простой и удобный менеджер загрузок для
 ```bash
 magnet:?xt=urn:btih:BACB295B3571DFF7978E58297F198654C2C8B545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ Sublime Text не является свободным или открытым п
 ```bash
 magnet:?xt=urn:btih:651674BFB11E64B8D557E0A227C61622691E5DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:782A2EF5B258825A0FF9ABAB74FDDB3144C18E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ Camtasia for Mac — эффективное приложение для созд
 ```bash
 magnet:?xt=urn:btih:2A5E07FAE030988E30CB6549DBE4A8B5790199F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ Guano Apes - Don't Give Me Names (2000) [FLAC|Lossless|tracks + .cue] <Alternati
 ```bash
 magnet:?xt=urn:btih:8EB48179F4E94F8E253142A3FB5D9D99D7EE177F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0A843D142B01908632998ED32308FCC7993B242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD5F53431AAC18D516F50783DA243BDCC422B325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ ltfll - Deflect Trial (2021) Kaer'Uiks [FLAC 2.0|44.1/24|tracks] <IDM, Glitch, A
 ```bash
 magnet:?xt=urn:btih:87C4DC0227C2B272FCD6056ECAE4CFAC7374FA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7A6F3A5C153450ED0A65E919D876FC94D414CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

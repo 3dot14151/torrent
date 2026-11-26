@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DDA328A4752E624694DD250F8EDC026F1645B52F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Planet Coaster представляет собой реалистичный си
 ```bash
 magnet:?xt=urn:btih:6BDB0FF0D631E3F4BEB47B2A5579333F5D1B6781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Dead by Daylight - это многопользовательская игра в
 ```bash
 magnet:?xt=urn:btih:ABB02C7FFCFD8906019C12457F646E17C62D2586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

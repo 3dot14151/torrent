@@ -19,8 +19,7 @@ Rhythm Sprout: Sick Beats & Bad Sweets - это увлекательная ри�
 ```bash
 magnet:?xt=urn:btih:4EA615BEAD1C107FABE224BEAFA5296DF3B748AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (13.0.0.1/dlc) License EMPRESS
 ```bash
 magnet:?xt=urn:btih:46EFC237920547F2844DBBF901ACB42866FF62B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:512E602A2B97915391CA0C820D7A1A58F3061422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Delu
 ```bash
 magnet:?xt=urn:btih:856DFB342704FD4DA257EA2D362D5E40D976F8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

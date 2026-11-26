@@ -22,8 +22,7 @@ Kings Of Leon - Walls (2016) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:AEF41F73F88E26C2E0A158A02486C11BD2BC57F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Van Der Graaf Generator - Do Not Disturb (2016) [FLAC|Lossless|image + .cue] <Pr
 ```bash
 magnet:?xt=urn:btih:4FBB19FFB3C41667902D136C946CA57732197091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Alter Bridge - The Last Hero (2016) [FLAC|Lossless|tracks + .cue] <Alternative R
 ```bash
 magnet:?xt=urn:btih:1C7141B3B8571D32FA4D31D6EF9595E85E539588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Beth Hart - Fire On The Floor (2016) [FLAC|Lossless|image + .cue] <Blues, Blues 
 ```bash
 magnet:?xt=urn:btih:175421BA88F4D38CF6A2CFB7B182F12AB02D2A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fleetwood Mac - Mirage (1982) 3CD + 1LP + DVD Deluxe Edition Box Set, 2016, Rhin
 ```bash
 magnet:?xt=urn:btih:12FFB343CA2F9F362398D7E64BA44FAFB816D74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA206099F98A7D2C6317CC973E95BC5ACE7D494F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

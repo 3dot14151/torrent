@@ -19,8 +19,7 @@ Amaranthine Voyage 5: The Orb of Purity (2015) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:DBB2A2CB44A8328890799130E421EC10C287798B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Medford Asylum - Paranormal Case (2015) [En/Multi] Unofficial
 ```bash
 magnet:?xt=urn:btih:272C111614ECE1676A6D9933DC5FD7D432E33D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Expedition: Prisoners Of Ice / Роковая экспедиция: Пл
 ```bash
 magnet:?xt=urn:btih:DD6771245A0A755326E2978BB20AFEFFAF1D78C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Revived Legends: Titan's Revenge / Ожившие легенды: Месть т�
 ```bash
 magnet:?xt=urn:btih:8E044CFC70458596EEE14A59C60A2CE5A32EDC2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Castle Crashers - двумерный платформер от студии Behe
 ```bash
 magnet:?xt=urn:btih:0ADAED4788E10074B194A6520E4E099091B981DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Shadows: Heretic Kingdoms (2014) [Ru/En/De] (1.0.0.8172) Repack xatab
 ```bash
 magnet:?xt=urn:btih:51EB0107F6199C303CBAA1F06583F8B5441E81ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Wasteland 2: Director's Cut (2014) [Ru/En] (1.0/upd1) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:EBF24933D6B50EC06E387DF1DA1680830D9312E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ StarDrive 2 - это захватывающее и увлекательное п
 ```bash
 magnet:?xt=urn:btih:CAE739214766A0A696D26DC4B4AA909A20D0836D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

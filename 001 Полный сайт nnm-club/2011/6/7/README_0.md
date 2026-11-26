@@ -23,8 +23,7 @@ VA - Spa & Wellness vol.3 (2007) [MP3|192 kbps]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:6F58A81BF7DEF442F67124311DBFCC55115225CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ VA - Sunday in Bed Vol. 4 (30.05.2011)
 ```bash
 magnet:?xt=urn:btih:3783A0F1AD41E92D657F6CBA581BC34FA38D2EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Textural Being - Proximity (2011) [MP3|~317 kbps]<Dub Techno>
 ```bash
 magnet:?xt=urn:btih:D6C92E889468FC58C1D16F09592A4AB78CCDCB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Shannon McNally - Western Ballad (2011) [MP3|224 кб/с]<Folk, Country>
 ```bash
 magnet:?xt=urn:btih:12439D7E255784C3F5D462DB7107A75253A016C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Opera - компактный и в то же время мощный пакет 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ Rhapsody Of Fire - From Chaos To Eternity (2011) [MP3|176-196 kbps]<Symphonic Po
 ```bash
 magnet:?xt=urn:btih:157B9433AE851BF318F82A2615EF27CBA15DB9AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ Azam Ali - Elysium Remixes EP 1 (2007) [MP3|192-320 kbps]<New Age, Ethnic Fusion
 ```bash
 magnet:?xt=urn:btih:609026CB1C0EF1AD093D8F919768EC214A3272E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ VA - Тюремная Исповедь (2011) [MP3|256 kbps]<Schanson>
 ```bash
 magnet:?xt=urn:btih:8A3B0EAD05642C8614A7F421073DBB777FE13FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ Takillakta - Panflute Dreams (2000) [MP3|320 kbps]<Instrumental, Native American
 ```bash
 magnet:?xt=urn:btih:E9B65899BFFC305846CAAB38575428063105B93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ Puggy - Something You Might Like (2010) [MP3|320 kbps]<Pop Rock/Indie>
 ```bash
 magnet:?xt=urn:btih:E456DA9D4C6CDD745BB390020080F75BE83112AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ VA - Максимально продвинутый Лето (2011) [MP3|128 kbps
 ```bash
 magnet:?xt=urn:btih:90146496364CE3502E1BBF249FEF39FBE25C7EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ BBC: Мир природы: Открытки из прошлого / The Natural
 ```bash
 magnet:?xt=urn:btih:5DD2E9F1BFB2DEDDB9D6A17FAFAD0660C4449174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D9B774C19EB74423AB72342A17E7384456521F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FCD3D86BEB1DBF66DB5D8B23145DA961115551B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ O&O Defrag PRO 14.5 Build 539 [EN]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ Jimmy S - 4 альбома (2007-2009) [MP3|320 kbps]<Terrorcore/Speedcore>
 ```bash
 magnet:?xt=urn:btih:3A97449C8004E225DF91C21503242517AC1FDAA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E667C9B020C3A7573EEBEC7A051EFB1D0BD3D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ NG: Свет на Краю Земли (Хранители Мечты) / Light at
 ```bash
 magnet:?xt=urn:btih:672C975C6203515B93B29EE3925FF75F928E1883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86F897A7D54D2BBB8B4870902D9B67DBB006CB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ Falconer - Armod (2011) [MP3|320 kbps]<Power Metal/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:9D384CD20C079B7750D698325CA91B5A66EF58CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ Aiseesoft Total Media Converter – мощная,универсальная пр
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5BDDC435AD5366B1CB912BCCF8C0562950F4588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E480C70935EE0DA8A1B861108A3AAF788C8F91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +714,7 @@ VA - Time to Relax (3CD) (2011) [MP3|224 kbps]< Relax / Lo-Fi>
 ```bash
 magnet:?xt=urn:btih:29DE21761321F8FF2DCADE14721914A314732C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

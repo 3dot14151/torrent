@@ -22,8 +22,7 @@ Chimaira (kaɪˈmɪərə) — американская грув-метал гр�
 ```bash
 magnet:?xt=urn:btih:15E93F0FDC99144E2A0CFE9E34A0F3F797E6DE39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

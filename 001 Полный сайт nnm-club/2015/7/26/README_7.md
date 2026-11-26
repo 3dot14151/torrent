@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:61E6044B61C9CA6232C0B1FE46F4DE4FF3DA68C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Lennie Tristano - Descent Into The Maelstrom (1952-1966) /2015, Universal/[FLAC|
 ```bash
 magnet:?xt=urn:btih:26EF5D5E4DB069A998630D87FD15526E946E14CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A39B9967315E19003B383F7EF5474675060AED3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Jimmy Smith - Fourmost (1991) /2000, Milestone/[FLAC|tracks+.cue]<Jazz, Hard Bop
 ```bash
 magnet:?xt=urn:btih:85C8E98F9978319791C1E528156B91D8C8D47781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Wolves Den - Deus Vult (2015) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:C2E84E0C3328B377E0E80A5096D7E3F52362CEC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Terrace Lounge Session (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:F2BE8200DBC409B2267DA8DAAB3EB099D98F0DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Fear of Tigers - Zoipa (2014) EP [MP3|320 кб/с]<Electronic, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:8EB7D938AD7F3559FA6FCBD068B111D54E96CE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ SuryaDemaH - The Seven Cities of Love (2015) [MP3|320 кб/с]<Ambient, Downtemp
 ```bash
 magnet:?xt=urn:btih:3168DF3024F7E517486C5DB992C63EDB91A1E9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57C34D8BD293BB9B8BA6B7CFF8A92E88C37F6788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Fear of Tigers - Christmas In Kaohsiung (2013) EP [MP3|320 кб/с]<Electronic, 
 ```bash
 magnet:?xt=urn:btih:E90B7051FD880D5FA735BC95E1F8F001D7C8FE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F962F77CE5BA9708FD00DA01BE17C30432FF8519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53C25B0F2ECC3037EDFC4E358DF62AADE1B05FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DD70B241DBBA8FB175358996342797431F51AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Dropbox 3.8.5 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:579098B97803AADDD63AB33F8C97F20ED3DE6ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4C28AA62839B7EBADF498BF35CA0B407BDB8B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ VA - Trance Hits (Top 20 2015-07) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:43F4FC13F962ACE44D175669D005CCCDB3AFA786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2A1F6650D01E9A134A2CED2F90A58E0A758011D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36932E4B197C612BEB310D2A145E3197045CA255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Steven Solveig - Soulwalker (2015) [FLAC|tracks|WEB-DL]<Downtempo, Balearic, Lou
 ```bash
 magnet:?xt=urn:btih:42DA4E0F3150D778184877AD02FA9855A8696CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ CrystalDiskMark - утилита для сравнительного анали�
 ```bash
 magnet:?xt=urn:btih:653FAD515D1FF39B3C8F44FEFBA565F87D54D11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53A870ACBA401E4DFC028AC2290BA61BF4D7DE57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23A65248F036A465E013C2C76E0F0EE2400BB690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C0B6EC883E4DF0D3ACB36AD222F7D8EE0E63EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ Paul Sills - Awake and Dreaming (2015) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:8F4EA5BCF853257FA6440818A0DF058A7042F5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ NG: Последние львы / The Last Lions (2011) Blu-ray [H.264/1080p] [C
 ```bash
 magnet:?xt=urn:btih:BF8524ADB857456E977C16145FDAA0FF5A8921A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Ashampoo ZIP Pro - это мощный набор из 5 превосходны�
 ```bash
 magnet:?xt=urn:btih:6FD8954ACD55051401DCF9C2B4D1A059C5CA48AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Scartown - Там, Где Время Молчит (2011) [FLAC|Lossless]<Metalco
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Safetysuit - These Times (2012) [MP3|256 kbps]<Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:15FBABB281AFEBC2B9FCB33F4558CC759CA44CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Heart - 13 Albums,3 Live,1 Compilation,1 Solo (1976-2010) [MP3|320 kbps]<Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Nina Hagen - 14 Friendly Abductions: The Best Of Nina Hagen (1996) [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

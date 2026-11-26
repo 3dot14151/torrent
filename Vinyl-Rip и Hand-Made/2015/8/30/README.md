@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:CA39587AED78E12860FA0A7BF1BCE6710E2E3842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A2	Chanson Sur Toi Et Nous(   Читать дальше...   )Жанр: Chanson�
 ```bash
 magnet:?xt=urn:btih:3D97A9DE8AC54A9F4CDA30F63A87D4A3FFF4350E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4. Ticket to the Moon (4:07)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:2B4EDA75A73593D727ECC5A0C8403C68FA1D9CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Antonio Vivaldi - The Four Seasons (1982) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip
 ```bash
 magnet:?xt=urn:btih:10065BBF2F627A103D82DBF637E9841EC005C1E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

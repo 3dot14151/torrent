@@ -19,8 +19,7 @@ Rob Chapman, Peter Holmes | Observability with Grafana (2024) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:07D5BF64BD1A82E1196FFDD854C0C3A16D806143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tailwind CSS — это новый интересный CSS-фреймворк, 
 ```bash
 magnet:?xt=urn:btih:A5054ECA88F63F8E13A19449AF29C621C5250D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

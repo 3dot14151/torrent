@@ -21,8 +21,7 @@ Tony Hawk's Underground 2 (2004) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:6B7592230B2D942784EE9BBD32C56C221D540B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

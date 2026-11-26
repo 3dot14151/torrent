@@ -19,8 +19,7 @@ Rock Identifier - Stone ID v2.3.56 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:48566462CA6E6F202ACD48905750467DB1A78F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:9F475E1443071D11DA48B8EC5DE6ABBE966EE8C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WiFi Analyzer v6.8 (b106) Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A23663D48689E3CF1ACF6DA20559C2E8380FB1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lighting calculations / Расчеты освещения v6.1.10 Mod by Balatan
 ```bash
 magnet:?xt=urn:btih:97FD63AD57CD0C29EBA3513D2213D57DD75E8E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.3.
 ```bash
 magnet:?xt=urn:btih:32B8E89DFB79C8E064CF4401F82FA30671109F29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F9DDECD27B885CF90C14C0CE51AE623BA59D8BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C48E1651A38DEBD72A94185A622F83EA90C616EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:CB11FCBA50B25E6402401BBDFD3F18DE19E6932C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7073E96D944424304437AA8DA18458C3C747E09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ PictureThis - Plant Identification v5.16.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D5E27B6C1EAB27AC64F321B8784ED99C5DB35F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:563974ABD368C3338EBE4FCFBAA1BB90ABDF9580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ All File Reader and Viewer v55 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C2CEF75F12DAEAEC36E931FD845FF9144D042E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:B432307916CC9B5BF776A80BF72ED0E062076FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ FBReader Premium v3.8.21 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9D8B930FE6A8AF2595A27AC59CA716298668095E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

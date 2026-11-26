@@ -21,8 +21,7 @@ Windows Vista, 7, Windows 8, 8.1, 10, 11 Server 2008, 2008 R2, 2012, 2012 R2, 20
 ```bash
 magnet:?xt=urn:btih:F11522BF4A51CFC6D1F8123F6E67DC2F08E3DFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

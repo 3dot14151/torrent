@@ -19,8 +19,7 @@ Even if you're familiar with C# syntax, knowing how to combine various language 
 ```bash
 magnet:?xt=urn:btih:19E75A50122025AAEDFA7527346F719539248006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5CD1D63D558A3F231FCF87165E648BBD9F8B4155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Macbeth - Neo-Gothic Propaganda (2014) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:A40DF851BE04C1DA5677288919E59A1EB78FD406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Elements 1 (2012) [FLAC|Lossless]<Ambient, Modern Classical, Leftfield, Kra
 ```bash
 magnet:?xt=urn:btih:BAA422BD829323006EA5687E1681A56EE046C755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C5E5D35B5F9E1E38883D4BF4791C2AC38317A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A9200C5774EA5DFCBE936C653D86BCE4DC34F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ VA - Winter Particles (2014) [FLAC|Lossless|WEB-DL]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:145EF954A02826475AA31C3E9D2F37379145281F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCDF6C64BEDEB1664A57BC7C5C32F36F3991B74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Conforce - Kinetic Image (2013) Delsin [FLAC|Lossless]<Techno, Experimental>
 ```bash
 magnet:?xt=urn:btih:12F5AE66EFC36171275BC1D5B4828A4DE70FEE17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20DD06E9F7CFD91F7251046EA7F1E4AAFE41DB74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ Perpetual Loop - Molecronsition (2014) [MP3|320 кб/с]<Ambient, Downtempo, Psy
 ```bash
 magnet:?xt=urn:btih:BDDE933A7E290284A46C03D34039898A93474FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ VA - Chillout Lounge Vol. 10 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chillou
 ```bash
 magnet:?xt=urn:btih:7EB90C04CEC23FD3A943EDA43D00999B4C5E39C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ David Crosby - Croz (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:56DB90679BE17B9E9924F8E17042F44F2767C912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD0E421FB9F1132842CD3F25DD2109471D08F908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ VA - Зимний Олимпик Хит (2014) [MP3|192-320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:4266AAC77192A8AE9EF3BA859557F469F56E48C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ VA - Best of the BEST (2014) [MP3|320 кб/с]<House, Electro, Electro House, Da
 ```bash
 magnet:?xt=urn:btih:2CD6FDDDC586BB9522BB085EAC313DC4B107ACF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B00C8418D58699F213E3EC9D5869F14EDC4FFF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ Carbon - Dream EP (2014) [MP3|320 кб/с]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:5ED8A85CCCBF97F6F6561D3EDA96EAB88D63675F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B00FA5AA92E8AEA5979D61B59D6EDD7CD06047A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84AE642A43A1C6B64CA7F11F937EB7DBDA27353A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6F20371A0DD7EC12CE7A5AA8892690417C35976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AEF673296CE5F04EC3756FB1ADF6AB15248C0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +627,7 @@ Image Tuner - бесплатная и простая в использовани
 ```bash
 magnet:?xt=urn:btih:45D3D05EE4FE9FC6C1A19462B3EC27F8ADBE1FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9724791E0AC00A21A4A915AD81B23B5BF30BD469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1BF0486938EF6A3AED54E37159D04F528175BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B69A1CBCA173DD3F4BBC65A559968374FDE4E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ The Clover - Processes (2014) [FLAC|Lossless|CD]<Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:3B5B96DB0ECB4934C125E064734950F12DAB2FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

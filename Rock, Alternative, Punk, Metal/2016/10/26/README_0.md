@@ -22,8 +22,7 @@ Francesco Fareri - Universal Collision (2016) [MP3|320 Kbps] <Metal, Instrumenta
 ```bash
 magnet:?xt=urn:btih:4FB900B35B12A30429C9F863B3FD4CEDC618180A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Silverstein - Ghost (2016) Single [MP3|320 Kbps] <Alternative Rock, Post Hardcor
 ```bash
 magnet:?xt=urn:btih:6B148AFD8551EF54E726FC4BA25D1E893AFA6A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Morning Dwell - The Guardians of Time (2016) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:5EC5ABA57958091539694DF8DB83082544B56B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

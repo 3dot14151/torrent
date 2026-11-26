@@ -19,8 +19,7 @@ Fairy Godmother Stories 4: Puss in Boots / Истории Крестной фе�
 ```bash
 magnet:?xt=urn:btih:0E20E8F233A8B0E6326071F1919C39F34447BC20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Robin Hood 4: Spring of Life / Робин Гуд 4: Источник жизни 
 ```bash
 magnet:?xt=urn:btih:7A0EFD2FC0C0BB711456E129C2B7D79B939DC90E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

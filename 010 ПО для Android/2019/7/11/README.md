@@ -19,8 +19,7 @@ HelloChinese 5.0.6 [Ru/Multi] - Учим китайский
 ```bash
 magnet:?xt=urn:btih:51AAFE219904B38973FC3D9F3A6A964DEB3DB75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

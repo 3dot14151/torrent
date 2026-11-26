@@ -19,8 +19,7 @@ Super Lucky’s Tale — весёлая и увлекательная платф
 ```bash
 magnet:?xt=urn:btih:789B5EBAC1CB143A21E3D1FF475C18FAE2175EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Repack R.
 ```bash
 magnet:?xt=urn:btih:94D7503C81F612AE802F6B187840015A36A740D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

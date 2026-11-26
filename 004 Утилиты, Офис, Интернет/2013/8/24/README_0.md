@@ -19,8 +19,7 @@ Replay Media Catcher - программа, позволяющая захваты
 ```bash
 magnet:?xt=urn:btih:0AD81D4DDC4C1D731124D039D8887D7F5145575E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4010449CC8ED17C464D718ACAB92E91DA9F7CC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PAC-MAN 256: вечный лабиринт v2.0.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:8250C77C9DE6CD3D8345788A726F8390D436284D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52B435C92F71D2A316F3227109B9FEF00AC221D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Space Marshals 3 - это сюжетная история в жанре экшн
 ```bash
 magnet:?xt=urn:btih:435825018CCF34D8C620F93A1BD036916DC0F5DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

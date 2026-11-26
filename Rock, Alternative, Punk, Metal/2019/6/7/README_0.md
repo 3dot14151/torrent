@@ -22,8 +22,7 @@ Le Orme ‎ - Sulle Ali Di Un Sogno (2019) [FLAC|Lossless|tracks + .cue] <Prog R
 ```bash
 magnet:?xt=urn:btih:8E2E068C5D3177BD9C252C751B6796A9973DCBE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Awaken - Identity (2019) [MP3|320 kbps] <Modern Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:44A2EAE4369E34F9649B77AD551DDEEDDC38D320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eyes Wide Open - The Upside Down (2019) [MP3|320 kbps] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:841F29B2380CC4D8002EE38F7C9A9DF18F4A95CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mike + The Mechanics - Out of the Blue (2019) [FLAC|Lossless|tracks + .cue] <Pop
 ```bash
 magnet:?xt=urn:btih:7752CA0D3E8002539D3EDA339C81638565CCCBD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Phil Collins - Other Sides (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:FEED0917A41FAC3BFB27F582DB4B44656943843F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tomb Raider: Anniversary (2007) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A0821BE4CF3E5B344A9982773314877AC46178D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tomb Raider: Legend (2006) [Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:FB3A50399736449D235367D36C83DB3EA0F76689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tomb Raider (2013) [Ru/Multi] (1.0/dlc) License GOG [Game of the Year Edition / 
 ```bash
 magnet:?xt=urn:btih:79A214A2F214125F76BA3E15F05E58312671CC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

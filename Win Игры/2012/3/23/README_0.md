@@ -19,8 +19,7 @@ Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
 ```bash
 magnet:?xt=urn:btih:E6F10505F13EA6E253CD4D7B15607C0B3CC5CB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Earache Extreme Metal Racing / Адские гонки [Ru/En] (L) 2007
 ```bash
 magnet:?xt=urn:btih:1C7DDDB7B56C8B94B32FF6D9AC293F0CB3EBE2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

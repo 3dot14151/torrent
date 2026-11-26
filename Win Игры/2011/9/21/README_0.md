@@ -19,8 +19,7 @@ Voodoo Chronicles: The First Sign Collectors Edition / Расследовани�
 ```bash
 magnet:?xt=urn:btih:D6A95C9E976B4E94DA84C3234523548EBCBE5CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

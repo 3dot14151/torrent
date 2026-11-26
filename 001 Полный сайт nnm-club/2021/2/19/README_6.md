@@ -21,8 +21,7 @@ Absent - Beaufort (2020) Airvent [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Do
 ```bash
 magnet:?xt=urn:btih:CA4C8ECA64521181EA555DD615CCE21157FA6D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Finer Focus - это идеальное средство улучшения ра
 ```bash
 magnet:?xt=urn:btih:B82B8A4C00C22785AA1C37D42CCF8042E14B94CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ DiskCatalogMaker  - простая утилита для управления и
 ```bash
 magnet:?xt=urn:btih:FF790E4480BD0FADB46FFAA04E0C5801013C9939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Korpiklaani - Jylha (2021) [FLAC|Lossless|image + .cue] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:47A5C5963D0E49A51FE809E47D3554A238723F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Nisus Writer Pro Мощный мультиязычный текстовый ре
 ```bash
 magnet:?xt=urn:btih:1B17534A28E747528349FA9D593E954672300D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Whisk - это легкий редактор HTML и PHP с предварите
 ```bash
 magnet:?xt=urn:btih:2D321B1F616D19FDBF7A5D8543539A18F3F8C544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Lil Revive - Grim Peaks (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:EB9D960BB06D653DF9F7BD7203CCC13318FA5B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ The Dead Daisies - Ноlу Grоund (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:350283A0DDC4C39049D65C9334ADB575E33C6559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Wizard - Metal In My Head (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal
 ```bash
 magnet:?xt=urn:btih:7C06C5EB02E8E0ECAB643204C61B465E1B71F6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ VA - Sublime Drum & Bass, Vol. 02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & B
 ```bash
 magnet:?xt=urn:btih:77D4D3E5ACD0578C9BB6B175DA497C7DAFBF920E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DB4D56F3D5F90B0F8AD4DB626D08B22F90EB2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22E0F16D3C01D9A8EE1E032564FF34FAA6FCFA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CCC1FDF1EB40DF34CDCD09B1B5847352AB6BB4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD2D34A8C521726FCC0942BC64C08E61D3F80C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ VA - Exotic Paradise Vol.1 (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
 ```bash
 magnet:?xt=urn:btih:E6133A0BD6C355EC88212C67E556D106757F37F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ WhatsApp Messenger - это кросс-платформенное приложе
 ```bash
 magnet:?xt=urn:btih:DEE07892FD8E8608821844C0F23936BDBB7F03FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B91E74772DC986B417EE6F08D845A9DF18CE1E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ Nagart - Вы это слышали? (2021) EP [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:72C33BDD60B3D183A8E4724C65336DE8FF3983E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ WonderPen - приложение для как для профессиональ
 ```bash
 magnet:?xt=urn:btih:023A9318D70AB17AED77F7D3231CE1041F027584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ Cristallight iBarcoder - профессиональный генератор ш�
 ```bash
 magnet:?xt=urn:btih:C5B526B1CB57994CDF194AB3DA63D8CD98A7B7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ NCH Crescendo Masters 6.13 [En]
 ```bash
 magnet:?xt=urn:btih:2D3188183FCB86F29CC150FA4627B2368D257FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ ColorWell обеспечивает мгновенный доступ к стан
 ```bash
 magnet:?xt=urn:btih:EFC874C75FEF10A9794A504438E8B92EED1CF09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ Nat "King" Cole - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Voc
 ```bash
 magnet:?xt=urn:btih:69CFD14068A620D39352A476CB4C093A4D2217F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ Hides 5.4.4 [En]
 ```bash
 magnet:?xt=urn:btih:093E266A098449F96ABC46ED2686D83BE8542A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

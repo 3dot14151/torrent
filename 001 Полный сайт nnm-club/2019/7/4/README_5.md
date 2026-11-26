@@ -18,8 +18,7 @@ Photoshop CC — лучшее в мире ПО для графического �
 ```bash
 magnet:?xt=urn:btih:FBE17D8D88509195903B434317CE1127F1EAEE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ One Punch Man (2019) / Ванпанчмен [ТВ-2] [2019, TV, 12 ep] WEB-DL 10
 ```bash
 magnet:?xt=urn:btih:A7A667879DD8BCABE6C3DC1120E648DDBE53CEB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

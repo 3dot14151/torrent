@@ -22,8 +22,7 @@ Havok - V (2020) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5AEE7D5DE9226603692C250510DE2E933B535C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Poltergeist - Feather of Truth (2020) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:DC07AECAA4D3BE449849CF0C7C9E47ADBE9F63AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Saris - Beyond the Rainbow (2020) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:A0DC0C178CB4BBCE9731165E3F9C6DD027535D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ This Is Falling - Reprise (2020) [MP3|320 Kbps] <Metalcore, Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:D65BB8CC328D93FE421194525DAA0CC6E11A8657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B70E173EAABCCEB32DD516DC0DD3EA1404ADEE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Muse - The Resistance (2009) [FLAC|Lossless]<Alternative rock / Progressive rock
 ```bash
 magnet:?xt=urn:btih:42F84EB3DF973EA8F02068D770604774417B4807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

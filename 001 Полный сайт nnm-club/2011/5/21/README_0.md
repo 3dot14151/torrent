@@ -23,8 +23,7 @@ Francesca Battistelli - " Hundred More Years" (2011) [AAC|~294 kbps]<Pop,Pop roc
 ```bash
 magnet:?xt=urn:btih:65AEE1936D0508A062915EB1BEAA03B1E40A3507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ VA - 10 Electro House Tunes (2011) [MP3|320 kbps]<Electro House>
 ```bash
 magnet:?xt=urn:btih:85ECC9B2DF7071269DDE1887F2487826194ECD98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Cruachan - Blood on the Black Robe (2011) [MP3|320 kbps]<Celtic Black Metal>
 ```bash
 magnet:?xt=urn:btih:E809B2840641A2C46FCE72980D7FEDB0D97CF8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Amazing Adventures: The Caribbean Secret / Удивительные приклю
 ```bash
 magnet:?xt=urn:btih:9B76DB3440B0E8CF141F9C7C527E1F62FBD43673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ VA - Самая Гарячая 100-ка Хитов (2011)  [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:0F8AB2C11E82E426CF8145546F7D7F2A5DAB152C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ VA - Майский Хит 2 (2011) [MP3|320 kbps]<Pop, Club>
 ```bash
 magnet:?xt=urn:btih:9A45FD641C6F67C2D265E30BF66374FA6B6E6A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ VA - Electro Torpedos From DjmcBIT V. 22 (17.05.2011) [MP3|128-320 kbps]<Electro
 ```bash
 magnet:?xt=urn:btih:B6B336A8CD13AF7252E71A0B94C471475A7E5694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ Low Motion Disco - Keep It Slow (2008) [FLAC|Lossless]<Electronic, Downtempo, Am
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B976A2B57720BBB478E4D1A0DF81C77CF9066EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65F5B150E64A56FFDE1BCBECD2CC063B6C6B54A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ Arise In Stability - The Future That Amnesiac Draws (2011) [MP3|320 kbps]<Melodi
 ```bash
 magnet:?xt=urn:btih:9D43EA63FE895E7548D7196A03276230DE118533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4372B19175EF01BD260B915E56D36FD135AB6FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ Mystery P.I. - The New York Fortune (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:E97816565D2028BC708C10260CCD57C3EBD18BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E2DE955068E04A9E0135E04EFA977ACD4F80476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4672C8578678C310B13D8251417754ED503835AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ VA - Ninja Tune XX - Rarities [MP3|320 kbps]<Trip Hop | Dubstep | Experimental>
 ```bash
 magnet:?xt=urn:btih:2651B3F5B7E4C207887F629A407BFC072F5948BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ Paranoiac - Peace From Other Space (2011) [FLAC|Lossless]<Darkpsy>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +569,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 ```bash
 magnet:?xt=urn:btih:F54E202483CE6E5EFE12482459EACF220CBF9BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +603,7 @@ VA - Aditional {BC} Trance (2011) [MP3|320 kbps]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:1DEA6FEA9A158AB44C3A3C3BD04BB4F64CC929E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +628,7 @@ Yes! – авторитетный советчик, чье мнение очен
 ```bash
 magnet:?xt=urn:btih:28D7AE10CC0BE03016246AFB79BCC12440BEE8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +661,7 @@ Cat.#: GOA1CD008
 ```bash
 magnet:?xt=urn:btih:CC64AD03C6309379CC4EEE9B2F6F04657CB26088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13BE4463797A6C0287E6F351565B7C0DE9DB8CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ EssentialPIM Pro Network - это идеальное решение, если в
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +738,7 @@ VA - XXXL максимальный размер удовольствия 4 (2011
 ```bash
 magnet:?xt=urn:btih:5FBDF3724BFB0D68E8498DA9A291ADC6CA8867EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:AF6C57CF5EC7AAA3BF4BE0BD85961F3584FC6871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Processing тут и сам язык и среда программирован�
 ```bash
 magnet:?xt=urn:btih:BC9B466B88F2B126E6229593C0711D8C15BCC71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

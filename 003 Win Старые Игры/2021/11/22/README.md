@@ -19,8 +19,7 @@ Starship Titanic (1998) [Multi] (1.0.0.42c) License GOG
 ```bash
 magnet:?xt=urn:btih:B2B3FF833E493C92B9D781B35B4A321B55B5DF8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.21.2.1256) License CODEX
 ```bash
 magnet:?xt=urn:btih:D71DAAFF2DDD0AAC66D3A6E57A05808D9210C6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

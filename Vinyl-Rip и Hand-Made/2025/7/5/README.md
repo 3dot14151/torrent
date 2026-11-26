@@ -22,8 +22,7 @@ A4-Оберег(   Читать дальше...   )Жанр: Pagan, Folk MetalП
 ```bash
 magnet:?xt=urn:btih:C20A9B4E4E7092AB3BEE62DFCF87C588D62167BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:455290FFBE9DA7993E990CDA59335B32BD3D213E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:A7F131B968D96B719760A18DCDED3DE1FC0687B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

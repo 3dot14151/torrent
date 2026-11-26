@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3230AA56CFB999F0431111A4C21157B11843639C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Boot USB Sergei Strelec 2014 v.6.3 (x86/x64) (Windows 8 PE) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FF48AEAD97AE83BD6B17E5F7F11E567F9E192F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCF1C807544F0D50AF57B02CF8312B95D7601331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4298211681071F5506F6A843E875E4670AFC9360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C20EC6956D6A2E740CAE11DCE0501C8367E0DC68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Arcanum Of Steamworks & Magick Obscura (2001) [Ru/En] (1.01a) Repack R.G. Мех
 ```bash
 magnet:?xt=urn:btih:766AF2C21F6B9D9AED39C3D2E4F109220F3644C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

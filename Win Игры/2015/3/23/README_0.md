@@ -19,8 +19,7 @@ Divinity: Original Sin – это RPG в духе старой школы. Зд�
 ```bash
 magnet:?xt=urn:btih:AFC6C05F84E9DA68E356C4E85338036BE102BFE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Sid Meier's Starships (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:BE99C13DAD00B0E60FC7E0E3F4E4F28163533529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

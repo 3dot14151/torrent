@@ -22,8 +22,7 @@ Art Pepper - Goin' Home (1984) Victor [FLAC|Lossless|image + .cue] <Post-Bop, Pi
 ```bash
 magnet:?xt=urn:btih:D5240A8AE4EDA6122B6E3E14138E864365D8CA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crusaders - Ghetto Blaster (1984) [FLAC|Lossless|image + .cue] <Funk-jazz>
 ```bash
 magnet:?xt=urn:btih:F3AE2665AEF9BD770AABA897BD507900456550D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C333DDDAADCF4359E8BAB28B4A765970DA5904E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Emma Ruth Rundle - On Dark Horses (2018) Japanese Edition [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:6DF328AA30D11B3FC6C0237A67487CC5A46D16DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Shine Of Space (2019) [MP3|320 Kbps] <Synth, Electronic>
 ```bash
 magnet:?xt=urn:btih:AAB7B38DE8EA52869A3A7F73DAB5258A0689B453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A32AF4ECC091E5B519AEDBD45D2BFD8416129C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Kauan - Kaiho (2017) [FLAC|Lossless|tracks + .cue] <Post Rock, Folk, Ambient, Do
 ```bash
 magnet:?xt=urn:btih:687A67C19E22129DB0C5C87ECEAA4CF66735469D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Noel - Is There More To Life Than Dancing? (1979) LP [MP3|320 Kbps] <Electronic,
 ```bash
 magnet:?xt=urn:btih:E553272E472C58840D3A368D16EC695383B1E8D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11D3C94BDE468EE7ED8C83F0F886D2C58818735A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Kenne Cramer - All Day Long (2017) [MP3|320 Kbps] <Blues, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:4B5535F943CC160C944FC820234D9FCA3D572703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ VA - Ice Cream Dance Disco (2019) [MP3|320 Kbps] <Dance, Disco>
 ```bash
 magnet:?xt=urn:btih:EF7011BC8EAA273D79CA9AFAC0F506BF6951FBAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Kauan - Kaiho (Instrumental Version) (2018) [FLAC|Lossless|Web-DL|tracks] <Post 
 ```bash
 magnet:?xt=urn:btih:8799CFA0272E8F52509C50C202BF742B471B46E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Dark Strands - Unknown Truths (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 ```bash
 magnet:?xt=urn:btih:CFB05825B0909C87E09240FEDE9FCE1A0347A925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Kauan - Sorni Nai (2015) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Folk,
 ```bash
 magnet:?xt=urn:btih:FC645AA618E604497E8A2C4638FDDD35F3579C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ VA - Fitness Unlimited 2018: Made For Workout & Running (2018) [MP3|320 Kbps] <H
 ```bash
 magnet:?xt=urn:btih:83FDEAF876C67EE94A84A43B8082563A494601D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Philip Wesley - Dark Night of the Soul (2008) [FLAC|Lossless|tracks + .cue] <Mod
 ```bash
 magnet:?xt=urn:btih:6BC52A6863772248A7446855DF2D2A62C35195EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E1A28C808E6644F5926C238DBC8A42469424642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Moondog Howlers - Misbehavin' (2019) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4A22DC6DC32382AA241034C87B85CF63ADB34669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ VA - Power Workout: Pump Up Music 2019 [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:7C3903320CA202ACA622A4719A6DF215769F32A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE9D66F2067D99C64730D606EB245B6D8C8E8999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ VA - Great Weekend House Party (2019) [MP3|192-320 Kbps] <Electro House, Dance, 
 ```bash
 magnet:?xt=urn:btih:673575836C342BD2E7B7DB1D5F3B41CC701227F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ VA - Trance Collection Vol.74 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 ```bash
 magnet:?xt=urn:btih:B5BC2E542D7DC58A43C290FF099B030CC20E2404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F22ACFD185FF90AAE0A325C2C89DBF24A5450C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1737521A314C960B86F87E74B9D1266D0F626CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ Lenny Kravitz - Raise Vibration (2018) Japanese Edition [MP3|320 Kbps] <Rock, So
 ```bash
 magnet:?xt=urn:btih:1C0DEA899574D3BE23715B4251A527996163B816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C0B58115077051CE646889BE30E23A793B4AC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

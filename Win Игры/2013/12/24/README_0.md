@@ -19,8 +19,7 @@ Christmas Stories: Nutcracker / Рождественские истории: Щ�
 ```bash
 magnet:?xt=urn:btih:8759E68429715DA6D60548ACA7F29EA88EFDC05D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ S.T.A.L.K.E.R.: Call Of Pripyat - Смерти Вопреки. Послушни�
 ```bash
 magnet:?xt=urn:btih:8FF096F6B226AE2AA90C26912DF84F5D5DA42C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B106A890C0C4EDEA798071202AA74544453FE60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Enslaved: Odyssey to the West (2013) [Ru/En] (1.1/4dlc) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:6568BE37F7C15DCA3C9018A9E58BFBA80D1A6293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

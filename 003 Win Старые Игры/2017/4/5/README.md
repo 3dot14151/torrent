@@ -19,8 +19,7 @@ Ultra Fighters (1998) [En] (1.1) License
 ```bash
 magnet:?xt=urn:btih:9D38065910D7294FC16A5C3B2B490FCEBA78DBB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ EF - Ceremonies (2013) [MP3|320 кб/с]<Experimental/Post Rock>
 ```bash
 magnet:?xt=urn:btih:734D34677783D5B90D8AC8D8DAC805BB3B6DF79D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Cult Of The Fox - Angelsbane (2013) [WavPack|Lossless]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:3C49C73B210BDC0A3F707C752F930519E756A9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ My Sleeping Karma - Soma (2012) [MP3|320 кб/с]<Psychedelic Rock,Space Rock>
 ```bash
 magnet:?xt=urn:btih:F9A8AFAF3F18507ACC64AA7F2721B53B04B2D2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Creedence Clearwater Revival - Bad Moon Rising: The Collection (2013) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:C63F6466E839BBD2DEB33C14A5429C60CFA5C5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Carcass - Surgical Steel (2013) Japanese Edition [FLAC|Lossless]<Melodic Death M
 ```bash
 magnet:?xt=urn:btih:FFC3F6054A559DA8C4355BEBDBDF7AA4099F2115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Rage (в переводе с англ.  — «гнев, ярость») — ме
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

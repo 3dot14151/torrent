@@ -22,8 +22,7 @@ Symphony X — американский музыкальный коллекти�
 ```bash
 magnet:?xt=urn:btih:8402E328F819AADD68A333A75729DE890F8E6575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

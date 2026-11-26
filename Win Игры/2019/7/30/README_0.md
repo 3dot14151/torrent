@@ -19,8 +19,7 @@ Dark Tales 16: Edgar Allan Poes. Ligeia / Тёмные истории 16: Эдг
 ```bash
 magnet:?xt=urn:btih:A777A673FEC8FE14394089D2B1BE11031E6AA1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LOST ORBIT повествует о космических просторах. В
 ```bash
 magnet:?xt=urn:btih:1F9170D9BD065DF91100C1BEBA76E237716C43FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CENTRALIA (2019) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:43E9F2259F119A3D6629B24DE5385267EF7E7C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ CENTRALIA (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B18A65238BC8E8437CE8BE14DAD6564E6DED744F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

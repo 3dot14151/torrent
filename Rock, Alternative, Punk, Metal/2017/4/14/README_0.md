@@ -22,8 +22,7 @@ Fvnerals - The Light (2014) [MP3|320 Kbps] <post-rock, shoegaze, ambient,>
 ```bash
 magnet:?xt=urn:btih:6813EC67064CBE47CCFF898089BCCEC6F5EDE044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Headlines - In The End (2017) [MP3|320 Kbps] <Rock, Punkrock>
 ```bash
 magnet:?xt=urn:btih:F59E29C759763E0EB63678D35BCFF511697B9D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lich King - The Omniclasm (2017) [MP3|320 Kbps] <Thrash Metal, Crossover>
 ```bash
 magnet:?xt=urn:btih:F7C61933735945961F38606FCE443DF6E24E63E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fvnerals - Wounds (2016) [MP3|320 Kbps] <post-rock, shoegaze, ambient,>
 ```bash
 magnet:?xt=urn:btih:70AD1D8960F3BA1F72ED7B4B83D189D9EE470705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ King Woman - Doubt (2015) [MP3|320 Kbps] <shoegaze, sludge, dream-pop>
 ```bash
 magnet:?xt=urn:btih:B32CE58AA4F99B49E53B420626A5041FE9082BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Otargos - Heretic Live (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:484106267CBFE1827768EE7F9740F9E2AEE6C6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ John Mayer - The Search For Everything (2017) [FLAC|Lossless|tracks] <Rock, Soul
 ```bash
 magnet:?xt=urn:btih:CC8E9E12BB087D104BD92958504D3C650BD10F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DB170E84FC8F0C52A519ECAFC371767D62CF714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54C9B31BF7BF8E6AED74D47FAF3373EB292F4886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Visions of Atlantis - Maria Magdelena (EP) (2011) [MP3|320 kbps]<Symphonic Power
 ```bash
 magnet:?xt=urn:btih:4E6BCCB708F02A74465A1955BF39B6DAD0C00994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Vince Neil - Exposed (1993) Japan Edition [FLAC|Lossless]<Hard Rock, Glam Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Smokey Fingers - Columbus Way (2011) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A66A25435A920A00C7527EF4A5302EE6E19A4997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Europe - Super Hits Compilation (1998) [MP3|320 kbps]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:B1FE0FBE9FF41E815C9FE1781930C06232DBA086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Judas Priest - The Chosen Few (2011) [MP3|~260 kbps]<Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0FE2346B256C9C8C64C93C2085E8D5523A8CAD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:380FB4E6856E9DBF37AC786023849EDB77534BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

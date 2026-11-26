@@ -19,8 +19,7 @@ Darkness and Flame 4: Enemy in Reflection / Тьма пламени 4: Враг 
 ```bash
 magnet:?xt=urn:btih:EEDD2ACDC70DB0CB53E001A360CA25B4EDB815D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:0E87CF17838ABEF27D1F599233B0DB94BD2EF5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

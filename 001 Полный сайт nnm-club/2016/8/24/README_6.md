@@ -21,8 +21,7 @@ VA - Дискотека 80-90 годов по - новому (Зарубежны
 ```bash
 magnet:?xt=urn:btih:2735A21BC83F6E2C72547CF76E868FC72080EF2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Acronis True Image — это интегрированный пакет прог
 ```bash
 magnet:?xt=urn:btih:48AD59723EA5EBB84239BAACD23B24DCCCDCFB97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Blood & Gold: Caribbean! – это смесь экономической стр
 ```bash
 magnet:?xt=urn:btih:97B26B41839967E259FD66B878B1063D13E1A2A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Call of Duty 2 (2005) [Ru] (1.3) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:F289F43A04A91E9AC0B11E60DA1B7075C6F90A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

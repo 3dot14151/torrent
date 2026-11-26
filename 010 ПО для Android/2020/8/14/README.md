@@ -19,8 +19,7 @@ Vocaberry  v2.7.3 [Ru] - научиться петь 0+ (обновляемая)
 ```bash
 magnet:?xt=urn:btih:38E664303A71712D22D4314C251689384D5545F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ A2-A4 - Баритон
 ```bash
 magnet:?xt=urn:btih:C3CC30E7826F8A168FBF1B652558B4765453371D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Vocaberry Karaoke v0.22.1 [Ru] - Научиться петь популярны�
 ```bash
 magnet:?xt=urn:btih:BCEC250B2FD15BD04E7CAF304AE365C09A0F669B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D99BA7F5C4A88F81B12FF26D3CCBA8C4F728604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

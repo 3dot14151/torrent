@@ -19,8 +19,7 @@ JavaScript играет ключевую роль в современной ра
 ```bash
 magnet:?xt=urn:btih:F26A3417AF43FAB85EBBFEDFAA9954512E5275DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

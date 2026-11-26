@@ -19,8 +19,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.6/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:F55DA180790BD4B79E9A24D0C9B75C9D4BFA8AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TV189 – это название биологического оружия, в�
 ```bash
 magnet:?xt=urn:btih:7113424E0ECD5F8073E6222F25A65B93AA678BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

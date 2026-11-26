@@ -19,8 +19,7 @@ Half-Life 2: Эпизод первый  дополняет самый попул
 ```bash
 magnet:?xt=urn:btih:3BA23EF870627AD18621EF9E64CDCEDC14900347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Slash - Slash [Deluxe Edition Bonus CD] (2010) [MP3|~238 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6B4C801F488BAB395FCC92371DE33D6FAE168DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ PuppyRus Linux распространяется на Live USB и Live CD, лег
 ```bash
 magnet:?xt=urn:btih:218725207100A19A5C0A01F5A69150A9FA9B63C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

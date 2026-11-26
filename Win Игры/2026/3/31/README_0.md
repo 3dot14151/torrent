@@ -19,8 +19,7 @@ Super Meat Boy 3D - это суровый, как само существова�
 ```bash
 magnet:?xt=urn:btih:2148F1564D58E281B54304AE31875C51F7FF3EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Everwind - это кооперативная RPG-песочница с элем�
 ```bash
 magnet:?xt=urn:btih:78D6D5C0FEE96847FD927E36B17583D641A41907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

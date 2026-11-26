@@ -28,8 +28,7 @@ Svarttjern - Ultimatum Necrophilia (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:4E2921153B5CECF7F4A7D189FBFCF70DF5AFA87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Stam1na - SLK (2014) [FLAC|Lossless]<Progressive/Thrash/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:44E7A02ABAAFD536091B8A84014F377AFB089F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Thy Serpent - 4 Альбома (1996 - 2000) [MP3|320 кб/с]<Dark / Melodic Bl
 ```bash
 magnet:?xt=urn:btih:58A6428719901D1D8B8174D1F7D03CA5F284C146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ BulletBoys - Freakshow (1991) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AFE6EFFA6F60F7E11CF6F9D149141C6C44E6D93C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:325B0ED32555F67953D08EFF5FE8E1B45CA7944A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Sanctorium - The Depths Inside (2014) [MP3|320 кб/с]<Gothic/Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:2123260155C9A33622602C5EC1ED0164F0C86DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ The Unguided - Fragile Immortality (2014) Limited Edition [FLAC|Lossless]<Melodi
 ```bash
 magnet:?xt=urn:btih:A9D60ACB8140E18C4933B6CFB2724FF7F58D770A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Britny Fox - 5CD (1988 -2003) [FLAC & APE|Lossless]<Hard'n'Heavy / Glam>
 ```bash
 magnet:?xt=urn:btih:49BDDEDD2BF69D321827FE822E0EF499B4508B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ Def Leppard - Slang (Deluxe Edition) (2014) 2CD /Scene/ [FLAC (tracks)|Lossless]
 ```bash
 magnet:?xt=urn:btih:D1E055D3C4ABB85900F15640ACEBD1A301BF0C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

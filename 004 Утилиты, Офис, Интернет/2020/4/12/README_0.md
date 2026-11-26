@@ -19,8 +19,7 @@ Infix PDF Editor Pro 7.5.0 Portable by conservator [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3766F7415330F5D10E73D128B61470327A57FBFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

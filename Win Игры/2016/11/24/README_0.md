@@ -19,8 +19,7 @@ Myths of the World: Born of Clay and Fire / Мифы народов мира. Р
 ```bash
 magnet:?xt=urn:btih:E33FC74D7E533E6A9B738DA589CB0C9A476C9B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PuppetShow 10: Bloody Rosie / Шоу марионеток 10. Кровавая �
 ```bash
 magnet:?xt=urn:btih:37C3B76642D07CA99274DC847F3B7EF62E658AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Adam Wolfe - Flames of Time / Адам Вулф: Пламя времен (2016) 
 ```bash
 magnet:?xt=urn:btih:CAA696D213AE5A16813FAFB30A91CE76E990F486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Way of the Red - пиксельный экшен-платформер о при�
 ```bash
 magnet:?xt=urn:btih:DB7F91F4469C480400E0EEBF0E5B24E0C7114D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

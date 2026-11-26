@@ -19,8 +19,7 @@ Excel – многофункциональная программа, котор�
 ```bash
 magnet:?xt=urn:btih:62E6614E51BAD637EE93A82829CE3C02F211C71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:123E135BB0C4217CFE9350A991622FB82B9F54D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

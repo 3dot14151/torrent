@@ -22,8 +22,7 @@ Asinhell - Impii Hora (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:BED7598140EB9D4CF90AFF514FBDC6309A93ABAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

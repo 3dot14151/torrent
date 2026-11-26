@@ -19,8 +19,7 @@ Bullzip PDF Printer - это виртуальный многофункциона
 ```bash
 magnet:?xt=urn:btih:370ABA51AB16693D4471ADDC4A5C5E80C9D39EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

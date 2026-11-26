@@ -19,8 +19,7 @@ Hunted: One Step Too Far (2016) [En] (1.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9124DA587D14FF8BBF0064582EBA0BC66886E347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Beyond the Invisible 2: Darkness Came / За гранью невидимого 2
 ```bash
 magnet:?xt=urn:btih:E7C204BCFE525CEB726B2FA52362238856397DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Summer Athletics 2009 (2009) [Multi] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:00FBC21A77AF4D420213F3058C05E8114B073744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Summer Challenge Athletics Tournament – симулятор спортивны�
 ```bash
 magnet:?xt=urn:btih:4873BE4A6BB7670F678B87956BEA7BEF8E74094B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Unseen Fears 2: Outlive / Невидимые страхи 2: Суметь в
 ```bash
 magnet:?xt=urn:btih:95FF3E7475A34C0A2F3D4CEBBCA64C63EF2A1819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ This War of Mine - первая игра, которая позволяет ув
 ```bash
 magnet:?xt=urn:btih:B393D9B63A824D730BF3D7B8D905218DE7F514CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Outcast - Second Contact (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:66CF46F5E42DF1717590A4D96943482909420230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Raventale - 6 Albums (2006-2012) [MP3|320]<Atmospheric Black/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:FF6E3217E549212EC713A6CA4D4B64B3208164C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Royal Republic - Save The Nation(Limited Edition) (2012) [MP3|320 кб/с]<Alter
 ```bash
 magnet:?xt=urn:btih:A11E7083E608247920DAAECB2C5EBD7D1AD5422A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Flyleaf - New Horizons (2012) [MP3|320 кб/с]<Alt.Rock | Female Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ VA - A Tribute To Pink Floyd - Breathe (2004) [MP3|320 кб/с]<Classic Rock & H
 ```bash
 magnet:?xt=urn:btih:5BA1F05F0A7A0F0F5DE64568E7E03383E1145572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Peter Gabriel - So (2012) 25th Anniversary Deluxe Special Edition Box Set 4CD /E
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Green Day - iDos! (2012) [MP3|320kbps] <Pop Punk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Ринго Вилли Кэт – Ты Слишком Красива(   Чит
 ```bash
 magnet:?xt=urn:btih:7ACB39F6A822F85F74B3091BAC2ED8668239BAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

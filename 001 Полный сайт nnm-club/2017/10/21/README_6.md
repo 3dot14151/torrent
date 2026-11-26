@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:742342A54723F2682DF0F7BA63DA31A8DB19B664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Magic Bullet Suite представляет собой набор из семи 
 ```bash
 magnet:?xt=urn:btih:A7A982ACA897ECF7164B34FE460043C7F222D9A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B8710D57AEA45DCD078DEFA29439118149777D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Mortal Kombat 9: Komplete Edition (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License]
 ```bash
 magnet:?xt=urn:btih:DAC56D7A15646DFCA0DFAA864CF45505860DD0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C124E51E0A71C0B5A8CC349CB9A54879A96C217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ WWE 2K18 (2017) [Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:FDB4C1B2A927715CCBE91EA1A769469F4899DE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Kerish Doctor — это комплексное решение для автом
 ```bash
 magnet:?xt=urn:btih:F6DE36917164CBCA49202090AF77AE93665CF809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:956BD64C7AAE4A232DD21D6835DD9E81246CF9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ IDA Pro 7.0 2017 Incl. Hex-Rays Decompilers [En]
 ```bash
 magnet:?xt=urn:btih:33F4E8EB0E51603C474A34DB749F9CDD254FD9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:CF10F5B5E32E0D060E105D04D2BD818D9A130AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Microsoft Windows 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 10.2017 [Ru]
 ```bash
 magnet:?xt=urn:btih:100B370CBA641A945D875B1667C3ED27280396E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:856BD919C9E96B6D536EC9B58676B6087A7F34F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

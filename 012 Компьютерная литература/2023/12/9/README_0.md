@@ -21,8 +21,7 @@ Ivor Horton, Peter Van Weert | Beginning C++23, 7th ed. Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:000F0F10BF6EFCB6DE6B08723F1D347085B99E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ James Gough, Daniel Bryant, Matthew Auburn | Mastering API Architecture (2022) [
 ```bash
 magnet:?xt=urn:btih:250DE521C3BD339634A60F800A8B4ADEAACF8C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Josh Steele, Renan Dias | Real-World iOS by Tutorials (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:4675FF1086FE4B7BA20F02D2CA9F70D66E85104C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

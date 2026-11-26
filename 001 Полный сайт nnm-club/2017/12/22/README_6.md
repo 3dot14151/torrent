@@ -22,8 +22,7 @@ Harry James - Things Ain't What They Used To Be (1948, 1949) 1989, Object Enterp
 ```bash
 magnet:?xt=urn:btih:32C673B5829CB64C7E0D5C80378378CBC2676067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lewis Nash - Rhythm Is My Business (1993) Evidence Records [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:C6E15D3322AE5BDC8622CCA09DEC3492B0AF285F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eric Alexander & Vincent Herring - Friendly Fire: Live At Smoke (2012) HighNote 
 ```bash
 magnet:?xt=urn:btih:6AB5765B92D1579AEF5DEA25FA23635B6D6E1B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Clark Terry & Bob Brookmeyer Quintet - Gingerbread Men (1966) 1991, Mainstream R
 ```bash
 magnet:?xt=urn:btih:7AFC2BFA20250AE041B9EF60AD6F977C3E198EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Buddy Tate - Swinging Like Tate (1959) 1988, Decca Records [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:4922FD0EBEA78A315CAAD7A9178CA26D874EACF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Best Of Vandit (Mixed by Jardin) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:A56F98F32F81F107D734EC1FAB63A38595DB3B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:065A14050303E6CAB51027C67B92061429111AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Yuji KONDO - Faces Past (2017) 10 Label [FLAC|Lossless|WEB-DL|tracks] <Techno, E
 ```bash
 magnet:?xt=urn:btih:46AD6AD4428AFD23C37F81E4F47CF8FD1B2A4F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Benny Goodman - Benny In Brussels (1958) 1989, CBS [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:684332BE3E6D7CCFBC6D332D93A474233CE1A66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Eric Alexander - Summit Meeting (2002) Milestone Records [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:23FF4E5682B818EE2B8D8C33DB31DBA7BE1DF543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBEC7118B7E306DE721FC3FBED4D7E9CD4B7E89F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Deep Value, Vol. 2 (Mixed By Pornbugs) (2017) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:DEFE897CBD8022123B506FD924F38CC257BC52E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Ferry Corsten Presents Corsten's Countdown December (2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:72C5661C8EAE4EA807AC0DDDF8B4DD1D2C0092D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Condensed Utopia - Assioma (2017) Circular Limited [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:252E211C281CDF0F7CC35BDB0DC5E56C65D6F8EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Enrico Pieranunzi Quartet - Alone Together (2001) Challenge Jazz [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:24C8FD4FE04867CCBD7CC81E53BDE27A9EA71CB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Alpine Grooves IX (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dee
 ```bash
 magnet:?xt=urn:btih:0F32696ABF87DE6E06820FFBD6CFF6FD972419A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ VA - Entrancing Music Top 20 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:6F53BCCE4C4037873430C391F1211F1E993C9F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Charles McPherson - Siku Ya Bibi (1971, 1972) 1991, Mainstream Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:D91A64F9C8CACDE6393A2A748E828AE94E376BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ PDF Expert - это один из лучших инструментов для �
 ```bash
 magnet:?xt=urn:btih:463ABED54B4609028591E3BE39B6DA6EA0799E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ VA - Aly & Fila - Future Sound of Egypt 527 (2017) [MP3|320 Kbps] <Trance, Uplif
 ```bash
 magnet:?xt=urn:btih:80CE5ABF658B6BA214B4FA2D7FB9A52889338950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF7C19B62ADFD7CF7D467DD6C54CEFE32510FACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6D5B32C9023BA7596F87921877D9ADA1F0CDDC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ VA - Black Hole Trance Music 12-17 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:E6E9665BC800E348BF29325A5B90997B3C55443B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:E59B16C2382F11FA84CBCD4B9944311AF9408D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ Jason Van Wyk - Opacity (2017) Home Normal [FLAC|Lossless|tracks+.cue] <Ambient,
 ```bash
 magnet:?xt=urn:btih:A51AAFB2232A0316B9DBF2E752E5ED12E978CC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE669F1A55808843AB90BEE71969E8A228079A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

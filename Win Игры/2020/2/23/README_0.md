@@ -19,8 +19,7 @@ Lost Brothers - одиночная игра-загадка от первого �
 ```bash
 magnet:?xt=urn:btih:600A33FA794F33DD103709F3E62A20AB07EB4F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ La-Mulana 2 (2018) [Multi] (1.7.7.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B8BD3CA633DACEE585A164A23188F509D3716372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Coma: Recut (2017) [Ru/Multi] (2.1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4D9EC6C614C7E8C95FD11591A0857021B23202DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

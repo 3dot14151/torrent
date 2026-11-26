@@ -19,8 +19,7 @@ Donna Brave 2: And the Deathly Tree / Донна Браве 2: Древо Сме
 ```bash
 magnet:?xt=urn:btih:BBB29FDE895BEF6DB6E9164D851379F225D94D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (1.0/upd1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:DF71382396289BDA4C12A0472FE5FFEC0EC7110D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

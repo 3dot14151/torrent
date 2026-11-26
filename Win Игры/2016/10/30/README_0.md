@@ -19,8 +19,7 @@ Manual Samuel - забавная приключенческая аркада о 
 ```bash
 magnet:?xt=urn:btih:829316A116F54B34AA0D4A684D84C5006F237081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

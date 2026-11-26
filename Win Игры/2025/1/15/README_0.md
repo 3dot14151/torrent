@@ -19,8 +19,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack FitGirl [Digital D
 ```bash
 magnet:?xt=urn:btih:1693BC80BAFC2A257B8592385F666073CF8B80C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294.40/dlc) Repack Decepticon [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:C9FAB49D0F37D967C4398D304D4D66224946A5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 ```bash
 magnet:?xt=urn:btih:6BAE088A454F54588796C38BB6B5A93A364A12AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blade Runner: Enhanced Edition (2022) [Ru/Multi] (1.2.1075) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CFDDC7C4E799DA9F3A221E49F22BDC62EABCE0D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Project Wingman - это игра-экшен, в которой вы может�
 ```bash
 magnet:?xt=urn:btih:A146FEEDAA7AFAFD5D65EABA7A350B629B80007F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ I Am Future: Cozy Apocalypse Survival (2023) [Ru/Multi] (1.1.0.006r) Repack FitG
 ```bash
 magnet:?xt=urn:btih:7023C4824113B92ABBF9CC3697ABE0AE92F67850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Running with Rifles - тактический шутер с видом сверх
 ```bash
 magnet:?xt=urn:btih:88A5957B8D053E2097D6F864D07BB252C7059DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Root (2020) [Ru/Multi] (1.32/dlc) Repack Let'sРlay [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:546C56BFA50E0782D5F917686C9190C96F034EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

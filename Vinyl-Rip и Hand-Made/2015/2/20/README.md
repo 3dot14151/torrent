@@ -22,8 +22,7 @@ A4. Пробковый пояс (5:15)(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:27959F65A685D2657CBF9D7608BA013D309EF820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

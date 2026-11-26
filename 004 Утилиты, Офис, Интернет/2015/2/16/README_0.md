@@ -19,8 +19,7 @@ Wake On LAN 2.10.18 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BEDA35A5894FAE8895DDEFBE26BAE7286E31FB85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

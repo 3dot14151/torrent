@@ -21,8 +21,7 @@ Occultation - Three And Seven (2012) [MP3|258-279 kbps]<Psychedelic Progressive 
 ```bash
 magnet:?xt=urn:btih:86BEC2AA9DD0C3D75216F8F2462367C6BF11A9B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Deuce - Nine Lives (2012) [MP3|320 кб/с]<Rap-Rock, Rapcore>
 ```bash
 magnet:?xt=urn:btih:5FC7F6A238A174595F66E9AE5BA8A022F50A81F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ VA - Рокъ-семейство - НОМ 25 Лет на Арене. (2012)[Mp3|
 ```bash
 magnet:?xt=urn:btih:D2ADD1E5D1F38415658F654F1E3062EA913D11AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Spectral - 6 альбомов /Дискография/ (1999-2012) [MP3|192-320 
 ```bash
 magnet:?xt=urn:btih:C6709F58B57387C72AF40D98C5E93919BE1C4E1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Empires Of Eden - Channelling The Infinite (2012) [MP3|192 кб/с]<Melodic Powe
 ```bash
 magnet:?xt=urn:btih:DF279DA39DDA723F3ED9A3FE33B5C1366E67009D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ War Of Ages - Return To Life (2012) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:BC04F6F4198D4DEC28032693E787BDF6CCB8ED05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Immolation - 11 альбомов  /Дискография/ (1991-2011) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:B2B250A247467D44A0AC15FF0EFFE3F1A4C318EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

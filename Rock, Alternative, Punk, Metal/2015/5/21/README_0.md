@@ -21,8 +21,7 @@ Eclipse - Bleed And Scream (2012) Single[FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:52DAC150428043D5B4111B813AE522E5F58B1148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

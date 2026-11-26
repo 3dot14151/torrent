@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:94A13BEB952D6F4321F4310845170FACC488F1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:720B351178A500DC6E2945297025D7E211BB45FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Iron Danger — игра, в основе которой лежат тактич
 ```bash
 magnet:?xt=urn:btih:11ED8FE09273C872B3EDDDA217033F5EA91096AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Elder Scrolls V: Skyrim VR (2018) [Ru/En] (1.4.15.0.8/dlc) Repack xatab [VR]
 ```bash
 magnet:?xt=urn:btih:25683F3139E0C505F7397ED537DC589B2F934127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8FD42B667C6D8E1F62795788E66CE8DEA7C7DEFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

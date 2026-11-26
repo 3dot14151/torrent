@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:F359B991FCA5539DCE02A40AEDF9F263F9171200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Apocalyptica - Cell-0 (2020) [MP3|320 Kbps] <Cello Metal>
 ```bash
 magnet:?xt=urn:btih:88B7E199AB798EF72EA3140283E444EAFE7E1BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Apocalyptica - Cell-0 (2020) [FLAC|Lossless|WEB-DL|tracks] <Cello Metal>
 ```bash
 magnet:?xt=urn:btih:FFDA8C77D602DC54DF7010A2C09081F07C2D54C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

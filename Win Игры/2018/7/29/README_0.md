@@ -19,8 +19,7 @@ Before Nightfall (2018) [Ru/En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:FE5677B404BA0661783D30F3C5F34CDD56F77530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

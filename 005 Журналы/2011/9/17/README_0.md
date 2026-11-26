@@ -20,8 +20,7 @@ C сентября новое название журнала - High Definition.
 ```bash
 magnet:?xt=urn:btih:63A2806D587D260C338CC36B45CF258690B16A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

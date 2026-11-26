@@ -19,8 +19,7 @@ Google Earth Pro 7.3.2.5495 Portable by PortableAppZ (x86/x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:28BC5EFC77BF2E78E6FCE9038DDB4171432EC50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

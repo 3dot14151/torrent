@@ -19,8 +19,7 @@ Shadowplay 4: Harrowstead Mystery / Театр теней 4: Тайна Харр
 ```bash
 magnet:?xt=urn:btih:3EA4CD50F1A057A1FAAFA171299E7317472C8D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.06/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:04262E4C73D1217514E1A6705117EDC55E1FAE6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rise of Venice (2013) [Ru/En] (1.1.2.4789/3dlc) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:819CAAA4F9145BB795365C9D772B4C14651205D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Corroded - Exit To Transfer (2010) [MP3|320 kbps]<Alt-Rock>
 ```bash
 magnet:?xt=urn:btih:E31B278D14C4938F79A6FA4704C313760ACD7428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Kiss - Ace Frehley (1978) SHM-CD Reissue /2008, Universal / [WavPack|Lossless]<R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Paul McCartney & Wings - Band On The Run (2SHM-CD Set Special Edition Japan 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

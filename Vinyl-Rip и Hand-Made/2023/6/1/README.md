@@ -22,8 +22,7 @@ Royal Hunt — англоязычная рок-группа из Дании, о�
 ```bash
 magnet:?xt=urn:btih:A0B0B5087FB0EB57093151DDDB49017BE5EA1041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

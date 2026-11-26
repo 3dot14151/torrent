@@ -20,8 +20,7 @@ Corsairs: Conquest at Sea (L) [En] 1999
 ```bash
 magnet:?xt=urn:btih:33E7329DB20C2C635426379DFC740DFC45611BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Vomp Pro - онлайн мультимедиа плеер для воспрои�
 ```bash
 magnet:?xt=urn:btih:0750E1C92C0EC3372A55E8E51AC158928275BE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

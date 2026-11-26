@@ -19,8 +19,7 @@ Pickers: Adventures in Rust (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:E589FB0F41BED91428A25DC2BA7FABB9CED9C66C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Delicious 7: Emily's True Love. Premium Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:B74FCC65EF58707E67F8F8CE539961484C576D6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ No friends 2. Castle without ghosts / Не друзья 2. Замок без п�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

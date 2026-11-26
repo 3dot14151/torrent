@@ -19,8 +19,7 @@ Uptooda (бывш. Image Uploader) – бесплатная программа �
 ```bash
 magnet:?xt=urn:btih:59086CFCEB02397CD89C07F28873DA029B0B786C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Office Tool Plus - функциональная программа для раб
 ```bash
 magnet:?xt=urn:btih:5A0B2D5644C09E7AF43A091505E054B0325D6E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:915808C05B5E0C1E174AB916A6675E1906B9097E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

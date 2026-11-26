@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8333910766A7604F2E79D7568E457355D80F63E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Hans-Jürgen Schönig | Mastering PostgreSQL 15 (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:DB319DA13376BA1DE368B8A338E613016275A484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

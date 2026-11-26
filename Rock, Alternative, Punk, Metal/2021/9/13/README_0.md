@@ -22,8 +22,7 @@ Syd Barrett - Crazy Diamond (2021) Compilation, Japanese Edition [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:6EB57B80182AAD05B0CE4C7497F2EB324C949A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ UFO - Force It (1975) Deluxe Edition, 2021, Remaster [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4AA26D6B4D6C740B596608CD22833CAD3CA9A114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:8AA803D0CA8F6476B7E0E8BA00A3E1F9572CC7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

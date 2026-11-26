@@ -19,8 +19,7 @@ Dragon Lore 2: The Heart of the Dragon Man [Ru] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:FBEEFFC3EDCE2FBF9A06ACC18D66FD03A4C17586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Police Quest Антология [En] (RePack) 1987-1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:E754B3A1180997B6D6FD1DF35257FF9E69617794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Lord of Magic [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:62A6BCCBDBA5797E9B3F8903A382A7A6210BD8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Edge of Chaos - не просто космических симулятор с �
 ```bash
 magnet:?xt=urn:btih:BF526D6254A8B39B6DD4A83919A5B8272784FCBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Roller Coaster Tycoon (Р) [Ru] 1999
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

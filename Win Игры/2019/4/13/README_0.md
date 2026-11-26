@@ -19,8 +19,7 @@ Caveblazers - отличный фентезийный RPG-рогалик с ис
 ```bash
 magnet:?xt=urn:btih:F18D1DB9518DEC7BE4DBCE996F8B8D8E8BA5CC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Space Hulk: Deathwing - это шутер от первого лица, дейс
 ```bash
 magnet:?xt=urn:btih:64C6D081401D2A0E2AF73B9252B92823ED798AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ We Happy Few - экшен-приключение, сценой которому 
 ```bash
 magnet:?xt=urn:btih:4A5E6C0E15F945734197771FD0A750FAF7C11C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Joe Harrison | Learn CSS By Use Cases v2 with All Code (2022) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:72AA0AAE1186B00B4EA5318F40FF34C023687DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:60C3C4F38B8A3EE98990D193C36A937FE3FACA5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Photoshop. Народные советы [2011] [CHM]
 ```bash
 magnet:?xt=urn:btih:0A1E0586EC2D8BDED908C696244679C376B94CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

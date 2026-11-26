@@ -19,8 +19,7 @@ Republique Remastered – игра в жанре стелс от студии Ca
 ```bash
 magnet:?xt=urn:btih:DFDEE5D052663617D6BF8A2A766CF0E2F58A1A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Day of the Tentacle Remastered представляет собой ремейк 
 ```bash
 magnet:?xt=urn:btih:6181B135248BC8D073BE31B7BB02072F17C25E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Republique Remastered – игра в жанре стелс от студии Ca
 ```bash
 magnet:?xt=urn:btih:DFF66998CF948B44DE002985B2D528CF7E9D0E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

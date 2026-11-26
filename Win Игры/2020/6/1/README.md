@@ -19,8 +19,7 @@ Minotaur (2020) [Ru/Multi] (0509) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:484FF30D8CE1F438C7312EAA631F95E72D7076AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nerved — игра ужасов от первого лица. Познаком�
 ```bash
 magnet:?xt=urn:btih:13E5CDDE66C7CA54D0CEB82A26AEE8BF90E4F628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

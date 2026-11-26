@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:805AAC2065759D64C714EE76A1BF4876CF4C1588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ VK Музыка: песни и подкасты v8.0 Mod by VK Equals [Ru/En]
 ```bash
 magnet:?xt=urn:btih:163DEC0A24CD5907CA924C75FAF104AB8D38F492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

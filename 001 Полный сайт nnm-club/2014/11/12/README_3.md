@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:66EB8C59877D6900E5C0D6FD1033C9C11050BA15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ XnView 2.25 | Minimal | Standard | Extended + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:799C9978EB627E143FFE62016F47E5A525337E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B25A8EBBEEECFB7F268D64DC453827EE64DE4BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Winyl воспроизводит все основные аудиоформат�
 ```bash
 magnet:?xt=urn:btih:0E15EC279368FCA7E2311F00B1B1B9D6EB33025D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FADC532B059E65454D84B033821AB2AD1D869D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C4F8346EEBE35E0805332A56B969E08878C08A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ NG. Дикая Канада: В сердце страны / Wild Canada. The Hea
 ```bash
 magnet:?xt=urn:btih:25F19722E52BCB58E229E162FAC8DA9A7DFC6862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCDFC2EE73E8DE655BFBE3C4C2952D0BDB76B41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Writer Pro – один из лучших текстовых редакторо�
 ```bash
 magnet:?xt=urn:btih:BCA6F1BB11DC0408B4E44008DC38444FD93A3E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers. Jaguar
 ```bash
 magnet:?xt=urn:btih:0AAFB87DBE4B26FA5AF6A9AD34C1A2BDE088321E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD54B529769CB57EFB3A70C46C22B3EDC4C62990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ NG. Дикая Канада: Дикий Запад / Wild Canada. The Wild West 
 ```bash
 magnet:?xt=urn:btih:A47581E3B52EC89DEB5B7C1D80D2D3ECA535BDCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ World of Tanks Mods (2014) [Ru] (0.9.4 #3) Mod Yusha [Сборка модов о
 ```bash
 magnet:?xt=urn:btih:45BF725BF4087EABCD65DB8E864CA500694048ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ Uniblue DriverScanner - утилита производит поиск и заг
 ```bash
 magnet:?xt=urn:btih:1242698FC12F0A62284A9FC1D6E32F7ED6F9754F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47E7FFF5F8149292F5B5E9ADBAC28787289E2DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B028BFBC44CC967904430AA4BD0EBB90C842E2B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98669DE3E43B824C90C07E3B0A1B6A4556483232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ Adobe® Flash® Player — это межплатформенная среда в
 ```bash
 magnet:?xt=urn:btih:A773115FF164029B01A5943D024C124E21159954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ Magnetic By Nature - стильный и хардкорный платформе
 ```bash
 magnet:?xt=urn:btih:310DA217799059C801EC9D4A40001E8DDE277E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ Rest In Peace Сергей Бодров мл.Формат: MP4 (ISO v.2)Прод
 ```bash
 magnet:?xt=urn:btih:F209ED604880E1BA895DDD27C0F4F21751D099C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB693B19F6194408C1BAA26256B65F225A3618E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B5CF3E0BE3A2BAFC621B84F7356AC1AC779593D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ CDex - многофункциональный аудио граббер, зап�
 ```bash
 magnet:?xt=urn:btih:852C6FB6D9E07D8B27B277A08048E32C6C787D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:763A0DE9EC93EF8B9A6B5BF71695E53DDDC4774A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ Panda Free Antivirus (бывший Panda Cloud Antivirus) бесплатный �
 ```bash
 magnet:?xt=urn:btih:230EE7E921DEB54B017D81CBB07D72B56D4BCAB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

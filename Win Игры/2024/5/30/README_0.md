@@ -19,8 +19,7 @@ Reus 2 выделяется своей уникальностью и увлек�
 ```bash
 magnet:?xt=urn:btih:60D395B5E2706B6BEC8038B86F76FC70FC4255B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (163238.365571) License GOG
 ```bash
 magnet:?xt=urn:btih:A8E555CB965EA4839DF49A02F16E301BABEF4E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

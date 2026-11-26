@@ -22,8 +22,7 @@ U.D.O. - Thunderball (2004) Released, 2012, Night Of The Vinyl Dead Records [FLA
 ```bash
 magnet:?xt=urn:btih:E1AA0255165B1FF9C6538BB8A77B2F61A0F0C7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

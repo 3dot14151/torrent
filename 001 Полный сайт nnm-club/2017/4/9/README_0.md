@@ -21,8 +21,7 @@ VA - Танцевальная вечеринка от Хит FM. Версия �
 ```bash
 magnet:?xt=urn:btih:5816F7308DD1B909596A1E4763870BD514977E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Отдыхаем душой на стильном радио Шансон �
 ```bash
 magnet:?xt=urn:btih:5CBEED8BD4F29B32ED0E0A50A8DD7990D7A56D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Frumpy - All Will Be Changed (1970) 1991, Repertoire Records [WavPack|Lossless|i
 ```bash
 magnet:?xt=urn:btih:6A035F9F8E6EB20DC7D214A05E0B8F4DD195E439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Wes Jeans - Hands On (2000) [FLAC|Lossless|image + .cue] <Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:787B6F2251D06CA48DD2B887671AEDB9DC6A7D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Improved Sound Limited - Improved Sound Limited (1971) Remastered, 2001, Long Ha
 ```bash
 magnet:?xt=urn:btih:BC0C857F8D7C578BB4982BF1531818167E4C615D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Сотка популярных весенних хитов. Версия �
 ```bash
 magnet:?xt=urn:btih:F0A628487C6276566B1DEE8F062CF02775DB6729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Karolina Smietana - Illusion (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:375E34BF88EFE21659EB7F38BDF6DD8427DD29CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ VA - Лучший весенний хит. Сборник № 9 (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:A5AA9B7905652916878E482805B59C9BDA8357F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30C49B0D06314B31EE2F54CF94C1BA6C1E477A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ VA - Весенний хит русского шансона. Выпуск № 3
 ```bash
 magnet:?xt=urn:btih:AE3A52A9729D79180A9CA10174C8D7246705ADED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Gifts From Enola - Loyal Eyes Betrayed The Mind (2006) [MP3|320 Kbps] <post-rock
 ```bash
 magnet:?xt=urn:btih:71A7212608BCDBCB59ADDB225EE9D03A604A041A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ VA - Ballroom Gala Jazz (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:AE6F2AFF5F37E73EDB91600044A1A3D3C047E4A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ VA - Trance Invasion Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:30B1933B5E2E1842824B25853AEE2001AB18004F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Steamhammer - Reflection (1969) Reissue, 2010, Air Mail Archive [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:052AA7C0703CB98FF0FD6B1CD2FE54F6CE1E8169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ VA - Козырная песня на Шансоне выпуск № 7 (2017) [
 ```bash
 magnet:?xt=urn:btih:246DD059C7A5C9B6718759EA186E5FB213832A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE2536C5918A58E0B2AB918778DF19AE10D626C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ VA - Вечеринка на радио Шансон выпуск № 9 (2017) [
 ```bash
 magnet:?xt=urn:btih:B19B9FDA33FB63D66296DEC977088D703F114F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Erwann Kermorvant, Axelle Renoir - 36 Quai des Orfevres (Original Soundtrack) (2
 ```bash
 magnet:?xt=urn:btih:F86E7403D5DCC5C60F0B1964D02D88F603536CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAB5DE356314E048AFE0A6340732C609ACB3037E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E87B13618B46FBB8ACE0832D8F6C9000963DBC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DA863DE75FF06423F567D92AA1C5204A0745CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ The J. Geils Band - "Live" Full House (1972) Reissue, Atlantic, Rhino Records[MP
 ```bash
 magnet:?xt=urn:btih:54F9CE5F66E3E24FCC71319B48C8F53AFC045D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ VA - Весенний хит-парад радио Шансон выпуск №
 ```bash
 magnet:?xt=urn:btih:8657008276D55E752486E89E27562910538BAC6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ VA - Шальной шансон в дорогу. Часть № 4 (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:76BD3334205E9161E276225E1DFE4DCB369B52E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ Harlis Sweetwater - Holler Stomp & Growl (2017) [FLAC|Lossless|WEB-DL|tracks + .
 ```bash
 magnet:?xt=urn:btih:0B66A0C572C4D3AFA0BBF8592A6974029960DD9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

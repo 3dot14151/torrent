@@ -21,8 +21,7 @@ Flame - Flame (1992) Japanese Edition, 1st Press [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:4676F7644635ACF16380A68CC60022B76CB08A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ W.C. Clark - 2 Альбома (1994, 1998) [FLAC|APE|Lossless|image + .cue] <Mod
 ```bash
 magnet:?xt=urn:btih:7C8ACAD03B4C99A0BDE5A3F45FE1714B3FF96AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Ruthie Foster - Joy Comes Back (2017) [FLAC|Lossless|image + .cue] <Blues, Gospe
 ```bash
 magnet:?xt=urn:btih:697E7573A1E25BECF88DD50451CA9738FC21A2E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Innes Sibun - Blues Transfusion (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:1225E8FB06824F339911BAE481192E8D3BD0B9A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Весенний хит русского шансона. Часть № 7 (
 ```bash
 magnet:?xt=urn:btih:AE5E5383FAFB16AE8AFFB48E72841B84ECA052DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ M.i.k.e. Push - From Beyond (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D4124113F5319C596F0C657F6754456EA0CD2C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ TaskPaper - простое приложение для создания и ве�
 ```bash
 magnet:?xt=urn:btih:B515E89CD37847E55E657AB9CE7660EDA4C14833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Mythra - Still Burning (2017) [MP3|320 Kbps] <NWOBHM>
 ```bash
 magnet:?xt=urn:btih:0397D62506463739A60E4DC9FFE2EAA67C6DD360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - Весенний молодежный хитовичок (2017) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:E29C1E2D1051431058E8A9E2D4D86E729C165D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Richard Niles Bandzilla - Bandzilla Rises!!! (2016) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:FF5DCABB9582487F42B19B120CDBC3CA741CCC1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Dekad - 6 Albums (2005-2015) CD [MP3|320 Kbps] <Electronic, Synth-pop, Electro-p
 ```bash
 magnet:?xt=urn:btih:C18932B5C6D02B158FE38E9F63F37B3C731E1247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Serial Box 05-2017 [En]
 ```bash
 magnet:?xt=urn:btih:BA4E415727704EF71C7CA1D1927322943BA305BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2717035B26723F120181DDFA79EA1A6972BAF9FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ VA - Горячая танцплощадка весенняя (2017) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:5EB0E28F08E86A373C01D63F4C258469B4406740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ VA - LUXEmusic - Dance Super Chart Vol.116 (2017) [MP3|320 Kbps] <Club House, De
 ```bash
 magnet:?xt=urn:btih:5B898BB65FFDA35096DDD83EA538964FFED166EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Tak Matsumoto & Daniel Ho - Electric Island, Acoustic Sea (2017) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:D4AAC2790E9FC2824D56807576873624C92F5094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50670F2CB03AD83F2A9EC2F3735776AC246256E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ VA - Любимые хиты весны. Выпуск № 12 (2017) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:C359CAA2A533481AF710CC9DBAC61BE4711928A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ VA - Русский отрыв Русского радио. Сборник № 4
 ```bash
 magnet:?xt=urn:btih:5E722073E6A079B43592C0E43506D7A928D23F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ VA - Шальной шансон в дорогу. Версия № 8 (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:E8350AA864519A87F918DF2C80B86E651243219E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ Spillo имеет красивый современный интерфейс, к
 ```bash
 magnet:?xt=urn:btih:F54679C44E220435798992D79FE6CA88CF5CDE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ Astral Waves - Genesis (2017) [MP3|320 Kbps] <Experimental Electronic, Downtempo
 ```bash
 magnet:?xt=urn:btih:CB6C3AA2BF151CD724A82215632A18EDBBD490D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ VA - Душевный сборник Русского радио выпуск �
 ```bash
 magnet:?xt=urn:btih:79A36C3C65DF6DEF5D5A372945A42F6C7BAD54B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +661,7 @@ Big George And The Business - The Alleged Album (1989) Reissue, 2005, SPM Record
 ```bash
 magnet:?xt=urn:btih:457E8F10C958DA720149306B668B16EA3AF4814D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA8A1B1FA2EB9A03D1779E86C87080C251EC094B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83AF8C7C9BD87132A6B2246B82FD34A0CB69F09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

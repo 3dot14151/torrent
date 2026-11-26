@@ -19,8 +19,7 @@ Vocalizer – внедренный синтезатор речи, который
 ```bash
 magnet:?xt=urn:btih:2012A06CDDE99191F045EC84C8890F37ABFCAA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

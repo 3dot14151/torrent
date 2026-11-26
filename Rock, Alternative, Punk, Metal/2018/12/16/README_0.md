@@ -22,8 +22,7 @@ Soreption - Monument Of The End (2018) [WavPack|Lossless|image + .cue] <Technica
 ```bash
 magnet:?xt=urn:btih:7C9E7150E9B36C6EDB18D585B79E30BBF3B63ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Jimi Hendrix Experience - Are You Experienced (1967) Remaster, Blue-Spec CD2
 ```bash
 magnet:?xt=urn:btih:0BD9A364A3467CA0130D34F45C2299F526A6F94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ CD - 1 - Начальник Камчатки:
 ```bash
 magnet:?xt=urn:btih:DF6F9EDED978B50E6E02CC8F0862ADAD5FBB7D6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD - 1 - Ночь:
 ```bash
 magnet:?xt=urn:btih:E7D36CB116D2A213CF6C538CA759235271DC0FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

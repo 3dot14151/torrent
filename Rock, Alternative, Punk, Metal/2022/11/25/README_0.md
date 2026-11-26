@@ -21,8 +21,7 @@ Asia - Alpha (1983) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:FFE5567ABACC40E1625DE9EEA3A7B69054F7712B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Nickelback - Get Rollin' (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Al
 ```bash
 magnet:?xt=urn:btih:869F56C46A118CA77D0BAEE858F58EB69D25E868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ XYZ - XYZ (1989) Japanese Edition, Reissue, 1990, Enigma Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:A68CCA3FFB50224E802F0B99D10943209CF07C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Daisy George - see me now (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Alternative & I
 ```bash
 magnet:?xt=urn:btih:02B2A37CD442DAA58D2852AC378D5AD54DABAD97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Withering Surface - Meet Your Maker (2020) Japanese Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:DBF816C2B5646FC680C8B0E059803D3525D244C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAE5E5215393A57AFAB53370F42BF603B29F80D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

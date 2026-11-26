@@ -19,8 +19,7 @@ KingStation - универсальный фронтенд для множест�
 ```bash
 magnet:?xt=urn:btih:3525E1082514EB684E9DC19EC6FC0495B17A576E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

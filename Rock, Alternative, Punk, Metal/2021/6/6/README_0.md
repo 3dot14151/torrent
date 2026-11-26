@@ -22,8 +22,7 @@ Paul Field - Big Dreams Little Rebellions (1995) [FLAC|Lossless|image + .cue] <S
 ```bash
 magnet:?xt=urn:btih:65D87760DFA9828E878C0A4BAACEBE184DF76367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anima Mundi - Septentrion (2002) [FLAC|Lossless|tracks + .cue]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5F294FC431DBAD3AC19CA89ABEF0575EBBE28EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Anchors & Hearts - Guns Against Liberty (2021) [FLAC|Lossless|WEB-DL|tracks] <Me
 ```bash
 magnet:?xt=urn:btih:44DDAA5ACD0F8F50FCA17BF337265042292E427E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fear Not - Fear Not (1993) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7D953E80825351F5C8F8CCB5692C4C3621DA11F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ John If You're Out There - Fables (2021) [FLAC|Lossless|WEB-DL|tracks] <Prog Met
 ```bash
 magnet:?xt=urn:btih:5F39153F2A1164990DD14433E64EF78739D4AF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Shun - Shun (2021) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Desert Rock>
 ```bash
 magnet:?xt=urn:btih:A16FDA00FF7A3457A96317BD6CDCB3099416E373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dread Engine - Parabellum (2021) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Progr
 ```bash
 magnet:?xt=urn:btih:F26988C230ECE9991BB09BE967657168A0ED146E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ King Buffalo - The Burden of Restlessness (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:58B7298544E84F9370FF6077AD64B3E6D0FAC464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Love Life - Goodbye Lady Jane (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:91C7158A49524233BB5C131ED49F64CF0E8796E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Till Lindemann - Ich hasse Kinder (2021) Single [MP3|320 Kbps] <Industrial Metal
 ```bash
 magnet:?xt=urn:btih:66E2A76481B2A38FC714FB6DB573BACD3AB49C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Wolf Alice - Blush (2013) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative
 ```bash
 magnet:?xt=urn:btih:09F795FD6CEC0B0E15B391237B7A98AB22A86BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D74E9103014C4A5F3E42ED97D93C98ECBBDFB245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Beggar's Ride – увлекательный и неповторимый п�
 ```bash
 magnet:?xt=urn:btih:6DDBD592A562A74958FF24E910722CAE553DB3C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chicku это суровый и бескомпромиссный платфор�
 ```bash
 magnet:?xt=urn:btih:7CECC251F1A9297193786EEDA30DAA60DE2DEFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Otem's Defiance – аркадный инди-платформер, в кото�
 ```bash
 magnet:?xt=urn:btih:FCE1C50FF57E02F316AC0474686B2631B413CD9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jack Nicklaus Perfect Golf это новое слово в жанре спорт
 ```bash
 magnet:?xt=urn:btih:2DABA87EC742D4854D5CE57BF3408D8A6AAADF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Vortex: The Gateway - это игра жанра "выживание в ужас
 ```bash
 magnet:?xt=urn:btih:F256E1D396C6A56BF421202313441477DD185B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

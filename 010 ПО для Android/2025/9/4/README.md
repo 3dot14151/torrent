@@ -19,8 +19,7 @@ MIUI-ify обеспечивает плавную, быструю и естест
 ```bash
 magnet:?xt=urn:btih:734D17D2060D545F411D284CD8D4693DE84A8BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CF84C0E08A9D222DFD3ABE21E3FE21370BEB6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ TV+: Бесплатное Онлайн Телевидение
 ```bash
 magnet:?xt=urn:btih:8605A991C92142CD1CD78E724698F6056A6AD284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69B7FB23381F28D4E6660746772C421F4E69320F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

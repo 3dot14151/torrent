@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D73F0CDFA933AA81DFCE3E533860646647D3E535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Боль души (2016) [MP3|256-320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:46EC307C3CA22D1D3AB298FE4598AC56D240A993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Deep House Fans Sensation September (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:5C494259F01B6E863C82F6CDBCC26BB9488BA65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Elements for iWork — это премиум набор изображений �
 ```bash
 magnet:?xt=urn:btih:13B69C8E93118C493B2638990EEE7463B01CBFDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - Extended Version & Remix, Vol. 4 The Sound of Italo Disco (2016) [MP3|320 K
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23A9EBF4E94235554C45D0E1D18221CB59FAEEDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ As Ganhadeiras de Itapua - As Ganhadeiras de Itapua (2014) [MP3|196-213 Kbps] <L
 ```bash
 magnet:?xt=urn:btih:9E010B87F961B75A93CA2667DC6AA2C4F437E487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Machine Code - Mechtropolis (2016) LP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:96A0C210AD98B750713F883A46351EE808CE260C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ VA - Music For Two Popular Lyric (2016) [MP3|320 Kbps] <Pop Lyric, Downtempo, In
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Hey Violet (Cherri Bomb) - I Can Feel It / Brand New Moves (2015-2016) 2 EP [MP3
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Logic System - это японский музыкальный проект на�
 ```bash
 magnet:?xt=urn:btih:D2F64F048DDB7E84407B3B728C326ECCDB2921F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Hong Kong Virtuosi Folk Ensemble - Four Virtuosi Plays Chinese Traditional Music
 ```bash
 magnet:?xt=urn:btih:7850F5F526B73F14B6AF36341C9537C6E32E6C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ VA - Billboard Hot 100 Singles Chart 02 July 2016 (2016) [MP3|128 Kbps] <Charts>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:729D471918F4E9FE141BF3076FE4D5D904A788BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ Megapack for iWork: Шаблоны для Pages, Numbers и Keynote можно �
 ```bash
 magnet:?xt=urn:btih:2F4DD458CABD7A34FB73B8C868ACACC500BD0AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ VA - Extended Version & Remix, Vol. 5 The Sound of Italo Disco (2016) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:C5EACF0B6931FA57CE29A84CEAB8BF21B14E6B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ Gangsta house (сокращённое название G-House) – относи
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ ReGen - KeyCode - это программа для определения код
 ```bash
 magnet:?xt=urn:btih:3F988281728274BBC3E69C6D35D0E28696C70421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ Burn - экшен для Вашего творчества.Формат: ATN
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ VA - Hardstyle The Ultimate Collection Vol.3 (2016) [MP3|320 Kbps] <Hardstyle, J
 ```bash
 magnet:?xt=urn:btih:416DC9AC22FBB2B0621F9F892F1B4CD68D95B366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Da Gudda Jazz - Легенда (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:F25E46336CB7CE976DDCCBD4AFE456130CA2FA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Dropbox 9.4.49 [Multi/Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ Cassius - Ibifornia (2016) [FLAC|Lossless|tracks + .cue] <House>
 ```bash
 magnet:?xt=urn:btih:A5EFFE89B18C4E8DB41B12AAE1DCAF8E1344070D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

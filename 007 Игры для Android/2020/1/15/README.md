@@ -19,8 +19,7 @@ Empire Warriors Premium: Tactical TD Game - тактическая страте�
 ```bash
 magnet:?xt=urn:btih:F6D3FF6A729FF36AB6258FCB3A54FE12DF11F31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alien Shooter 2 - The Legend – вторая часть захватывающ�
 ```bash
 magnet:?xt=urn:btih:1D20C0E73C0A4391404D2CC56E924FBB6FC7D12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Minecraft: Story Mode на Андрои – интересная эпизоди�
 ```bash
 magnet:?xt=urn:btih:8C041B419C9FA07C184D2584C6C5803F872EB7D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Need for Speed No Limits VR - Отличная игра для любителе�
 ```bash
 magnet:?xt=urn:btih:68246D90E4E0BDC354ED871F529B31689FEBAB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Need For Speed: Most Wanted на Андроид - долгожданные го�
 ```bash
 magnet:?xt=urn:btih:E756D46F12F2ED757980C96D57808ACB323DBED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

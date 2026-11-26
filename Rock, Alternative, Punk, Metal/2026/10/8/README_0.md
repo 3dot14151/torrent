@@ -22,8 +22,7 @@ CD1 - Original Album:
 ```bash
 magnet:?xt=urn:btih:E96DE82D98E8102E69D1754E489543E0BF26B6BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Greta Van Fleet - Palace for the People (2026) [FLAC 24/48|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:A298B1F49B273708612EF871C8DA9265123A50F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Pineapple Thief - Far and Wide (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <C
 ```bash
 magnet:?xt=urn:btih:B3D29CC63DFB4D5BC5E4FB37284110F8863BF75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Amaseffer - When The Lions Leave Their Den (2026) [MP3|320 Kbps] <Progressive, F
 ```bash
 magnet:?xt=urn:btih:741FF8668494E79761B765267D4FD3CAC21A558E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Thrash Course - From Wreckage (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 ```bash
 magnet:?xt=urn:btih:6FBAADB1702E59AC94614F8FCC9C40075F8F03B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

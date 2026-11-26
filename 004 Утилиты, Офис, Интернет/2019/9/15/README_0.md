@@ -19,8 +19,7 @@ Adrosoft Steady Recorder - небольшая, но очень полезная 
 ```bash
 magnet:?xt=urn:btih:6A659906F6F89DD94CD42668423B36A3CD594591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

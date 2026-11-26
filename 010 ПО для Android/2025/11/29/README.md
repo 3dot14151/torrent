@@ -19,8 +19,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:6EAA71D24143283D3462C8F22C1A092604038EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:C2FE4EA578C087528B82EE4BC3D24E51EADB2E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:ACBD370B58BA796D271D9EFAA33921B73D007283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:89A581C9CB8C97119E821993ACF785EA82369C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:6C9C8B327693DD2EF6B0EE5175B83D2CBECF6956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:7B2558F80C60A342BA89D2D62D7D921915A2F25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Listen Audiobook Player v5.3.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8E2A7E4AA19CE9284DE6172231E5684DE7A9C8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ VivaVideo - это простой в использовании видеоред
 ```bash
 magnet:?xt=urn:btih:A5E368BAAAA9E6F51F4CCB824C63F579A9A61279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Channel — ваша идеальная платформа для безгран
 ```bash
 magnet:?xt=urn:btih:E85D4F417F7B1A6C43D8CB81D897A34EF453EA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Cozy Timer - Sleep timer v4.0.9 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4C4F2DC2DF025C6148A66FA43442D60FD15D1B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

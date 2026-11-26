@@ -19,8 +19,7 @@ Mystery Castle: The Mirror's Secret (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:99C21D6700A6C6791DAF1EC74CEBD4D3A520C67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shrouded Tales: The Spellbound Land / Таинственные сказки: О�
 ```bash
 magnet:?xt=urn:btih:4B96B5B39A17E62C99C5A15A6030C34EB81D4792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dreampath: The Two Kingdoms / Тропа Мечтаний: Два Королев
 ```bash
 magnet:?xt=urn:btih:50DB9E11D12BDA3C9179C062D76088F322F22CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

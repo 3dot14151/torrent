@@ -28,8 +28,7 @@ VA - Greatest Hits of the 70's (2001) 3CD [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:1D8F1ECA00F428E2DA9418B8A3E153EF376D35E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Ost+Front - 3 альбома (2012 - 2014)  Discography [MP3|320 кб/с]<NDH, I
 ```bash
 magnet:?xt=urn:btih:7DBD5D4E7B379C5A7C11DEA7222F16B0FF774E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Haunted Hotel 19: Lost Time (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:1A4E0A34E05958FB79F6DDB1B48121A12A2B39CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

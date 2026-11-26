@@ -19,8 +19,7 @@ CDmage позволяет открывать и просматривать (во
 ```bash
 magnet:?xt=urn:btih:06670BD40FDD6EC3ABD8F6E57EF62DFE17466FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

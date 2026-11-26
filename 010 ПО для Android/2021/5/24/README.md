@@ -21,8 +21,7 @@ Audiomack обеспечивает (   Читать дальше...   )Тип �
 ```bash
 magnet:?xt=urn:btih:9F131E74806FB53E70C6B5A61B7D1538E96DC8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Launcher 10 - Вот и дождались, любители windows 10, воз�
 ```bash
 magnet:?xt=urn:btih:FCD1373090EE9B257C8310E093F59CA05E5BA32D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

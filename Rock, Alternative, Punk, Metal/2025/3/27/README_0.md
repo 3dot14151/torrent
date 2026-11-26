@@ -22,8 +22,7 @@ Helloween - Helloween (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 ```bash
 magnet:?xt=urn:btih:A2F8C881FA806420C16F49C7BEE16B806645112F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chivo - Ouroboros (2022) [FLAC|Lossless|image + .cue] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:66197EAA5118F2AA65E863F60759282736EA355A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Savage Grace - Sign Of The Cross (2023) [FLAC|Lossless|image + .cue] <Power Meta
 ```bash
 magnet:?xt=urn:btih:4635C6FF0664466EAB1C5A10E12F123E6AD57085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Night Legion - Fight Or Fall (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:97ECF66C75E62C66741AA0153CC11585F650AD52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

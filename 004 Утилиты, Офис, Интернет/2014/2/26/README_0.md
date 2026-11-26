@@ -21,8 +21,7 @@ Service Pack 1 for Microsoft Office 2013 (KB2817430) 15.0.4569.1506 [Ru]
 ```bash
 magnet:?xt=urn:btih:DEBCB26B7153AA90E097BC4E118AB349732CBC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

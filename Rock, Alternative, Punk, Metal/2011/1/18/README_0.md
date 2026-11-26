@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B7081FD8A7AF3DE761D74C88EE74596D431A6E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Sirenia - The Enigma Of Life (2011) [MP3|320 kbps]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:DEFD22801D527A50A467D448EADA8E6254FDF1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Omega - Дискография (16 альбомов + сингл)(1968-1998) [MP
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4DEF871CFB28B32970FCF3600B31F42CEBAF364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

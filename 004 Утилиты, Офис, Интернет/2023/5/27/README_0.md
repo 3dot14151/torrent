@@ -19,8 +19,7 @@ WinDirStat - небольшой бесплатная программа на р�
 ```bash
 magnet:?xt=urn:btih:91D4C1C5B8EE32853F6D6B8B64C66485C71B0067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NikFileTree - это программа, которая строит дерев�
 ```bash
 magnet:?xt=urn:btih:E3510C835B806463DD4F79A20183F12879198649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ SequoiaView - очень полезная программа, которая в�
 ```bash
 magnet:?xt=urn:btih:8FEB77D23A39587CE8E2347E1858FE4E70A7E48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

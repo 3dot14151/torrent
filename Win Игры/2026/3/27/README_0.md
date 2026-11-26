@@ -19,8 +19,7 @@ New Cycle - это постапокалиптический градострои
 ```bash
 magnet:?xt=urn:btih:959AD448A0AF890121B88BA2ED5696FF9EE9E42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ EverSiege: Untold Ages - гибридный проект, органично с�
 ```bash
 magnet:?xt=urn:btih:FFB8D3658501BC93FCCA266AE7539D944E664238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lost Soul Aside (2025) [Ru/Multi] (1.101/dlc) Repack HardwareMining [Digital Del
 ```bash
 magnet:?xt=urn:btih:12E6F473D8D4F30C1CC1D57DAE88ED8A9C78B309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Conductor: Eternal Service - атмосферный хоррор-симулят�
 ```bash
 magnet:?xt=urn:btih:5C9B6486D7C95E1EA180875D61E2D7600FF82CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Retro Rewind: Video Store Simulator (2026) [Multi] (Build 1966/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:CF4E75697802496FB86ED8762DC2DEB5A939EFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Damon and Baby - объединяющий механики изометриче�
 ```bash
 magnet:?xt=urn:btih:FEA6FAD3A1A60DF1E378451F194DF0EB0D67DEF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Screamer (2026) [Multi] (Build 22340215/dlc) Repack Other s [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:A4165EC24AF705FED7DC6163A946EBD977747488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ FATAL FRAME II: Crimson Butterfly REMAKE (2026) [Ru/Multi] (1.02.02/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:A7FCB6697325919C60FDBAB9102042AF9505A99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

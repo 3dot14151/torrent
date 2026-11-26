@@ -19,8 +19,7 @@ Antergos - современная, привлекательная и мощна�
 ```bash
 magnet:?xt=urn:btih:AEC99E6CCDE3FC52E78D109ED8476B334B549687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Autodesk Maya предлагает специалистам набор функ�
 ```bash
 magnet:?xt=urn:btih:9136A42E1FEA28FDCA93564F9AF57B5EEAC14B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

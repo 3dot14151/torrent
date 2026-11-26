@@ -28,8 +28,7 @@ Def Leppard - Rock Of Ages - The Definitive Collection (2005) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:2C00CB6833E0ED21289067A746C4EB3A214C1385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ SAGA - 23 Альбома (1978-2012) Reissue 1982-2012, Non-remastered [WavPack|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Black Sabbath, Heaven & Hell - 21 Альбом (1970-2009) Japan 1st Press [FLAC
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Numina - The Chroma Plateau (2018) Spotted Peccary [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:7CB7AB05F37D70A71E96AFCC365B43C63A737C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9B7659EA5ED25B9146749CE351ABCE6117B353B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:9C1934B449CED6B545334AD6773ADA6DE84C2B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Blindstone - Датское Трио , сформированно в 2002 (Thist
 ```bash
 magnet:?xt=urn:btih:9913699ABECA7A90EAD1122569EB8F8CE0C595AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:2C7F499A0D0EF2BB5D5DB51804D0C8E2BD8BCC53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:810E2FBCCE86A2D2F21A1BCEE7F47CA630E5C85C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:627796327775FE3A5F0BE4E7680174A235A53619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Silex - Arise (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:97A860CA9F9F58477DE5B114D4F550383F79B8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3C244FD347AFAF91B342251611416ED878110A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Don Diablo - Future (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:0CB2FE9EF3B2F88DA2FA1C48892B3561C08B51DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:5AD5FE811817A7244C2876A5C7D60648C379FB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Sasha Malkovich - Practical Levitation (2018) [MP3|320 Kbps] <Balearic, Downtemp
 ```bash
 magnet:?xt=urn:btih:44971BF2429BA315652632AC281EA168FC138077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Blindstone - Датское Трио , сформированно в 2002 (Thist
 ```bash
 magnet:?xt=urn:btih:8B342D212FE6696B1AECD63688B5F82D85E52878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ VA - Record Super Chart #523 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:97068FCDDC28C20171E53B42F363A9936B35C2DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27C718F40E493237D1091E6F071161BE0BA86EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:069D1591B09D058C3811BB1F1A7D8D1D804311D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Blindstone - Датское Трио , сформированно в 2002 (Thist
 ```bash
 magnet:?xt=urn:btih:919503655A50833FC446AFC799D7AB31005D9A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:7E58400C075988C0EC5B78CC83FEB8008F3F6FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ VA - Nothing But... Total Trance Selections Vol.01 (2018) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:B1930B33CD55C56C9B8E2B4FD4C70F9A8EB85E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Junksista - Promiscuous Tendencies (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 ```bash
 magnet:?xt=urn:btih:B0B76D0634A701DC05984742F524F703980B9690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ VA - A New Year Of Vocal House Vol.2 (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:8735BD6445F018E10262A1079B42F78C83ED16F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6029A4D0F4995FD726872318B1894817F0A6525E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Doctor's Cat - Gee Wiz (1984) LP, 7'' [MP3|320 Kbps] <Electronic, Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:BD90889C79ED58ACF7E412703F4C5F901FBE8320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ Future Lied To Us - Presence (2018) [MP3|320 Kbps] <Synthpop, Futurepop>
 ```bash
 magnet:?xt=urn:btih:16BFE51A3661BF507294BA4324FA98C4B72760D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ Colosseum - Colosseum Live (1971) Remastered, 1998, Castle Communications [MP3|3
 ```bash
 magnet:?xt=urn:btih:59B8D2F950FD0271EAB7990DCF21E282EFFFAB30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C59F8FE7C7249EE67792293648A81FAEC1B71A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PDF Compressor — программа которая позволяет быст
 ```bash
 magnet:?xt=urn:btih:C24BFC832CBACB82B6EFDD0BE4BF7BB50FBB6C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

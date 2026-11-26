@@ -23,8 +23,7 @@ A5. Problem Child (4:45)(   Читать дальше...   )Жанр: Hard Rock�
 ```bash
 magnet:?xt=urn:btih:F77EF5E65F19AF00797099C69862BE0B9801542D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

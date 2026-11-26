@@ -19,8 +19,7 @@ Fear for Sale 6: Endless Voyage (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:014AD53467E210FEEE538EF6FC6BEDD77302C276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Gurumin: A Monstrous Adventure (2015) [En] (1.2f) License CODEX [Steam Edition]
 ```bash
 magnet:?xt=urn:btih:2510A547EFF1F394A9FAD8280E3EF73A7F2E7AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ LEGO Batman Trilogy (2008-2014) [Ru/En] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2A94D34E8D03FF2C93F49C98B1325336C569E316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Shadow Warrior – ремейк одноимённого классическо�
 ```bash
 magnet:?xt=urn:btih:3F2C090055F0DA14FF44C0244840B543E464EFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Boguslaw Balcerak’s Crylord - Blood of the Prophets (2011) [MP3|320 kbps]<Neoc
 ```bash
 magnet:?xt=urn:btih:F34EFF019E6267EB00C4BDA5333A575138B8E4C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Dr. Livingdead - Dr. Living Dead (2011) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:34FBA9B9A620153606ED28B0ACC39B7097CA0DF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Anterior - Echoes Of The Fallen (2011) [MP3|320 kbps]<Melodic Death Metal / Meta
 ```bash
 magnet:?xt=urn:btih:9BE27239E7A883BBA48FDEA1BCE288293034C778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ The Morning After - Legacy (2011) [MP3|320 kbps]<Melodic Hard-n-Heavy>
 ```bash
 magnet:?xt=urn:btih:96DBCA6B9094C892C7576219FF4C846F9B5061AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Morton - Come Read The Words Forbidden (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:AE13DCB4FE0647935E27414ADCEF4090B851967F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Bass – Roger Glover
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BB7911ADAA59FD217DACBD0216D44F6B3712774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ INXS - The Very Best (2011) [MP3|320 kbps]<Pop / Rock>
 ```bash
 magnet:?xt=urn:btih:46AFBA7D6FBCBC718E6CC89F3BDC4356A356657F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:434F261E1BEF87A17BE1530D35FB102699208375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +402,7 @@ The Black Keys - El Camino (2011) [FLAC|Lossless]<Garage Rock / Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

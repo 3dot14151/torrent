@@ -22,8 +22,7 @@ A4 They'll Get You Anyway = Z Blata Do Louze(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:21A076D554BE6AE5FAB761F7D08FE619BC73C6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

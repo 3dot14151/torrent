@@ -21,8 +21,7 @@ Hangar - Stronger Than Ever (2016) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:0D170F25EBF0958025BB7BDBB3D1D03A05BC222E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Sunshine Disco (Summer Moods & Grooves) (2016) [MP3|320 Kbps] <Chillout, Di
 ```bash
 magnet:?xt=urn:btih:8364B73DF346C8BC551D8533D32AE00EC18503FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ CiG (Chad I Ginsburg) - Rock N Roll Alibis (2015) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:B6C238BBE30FCC0BFACB407F1CD09B6B2F73C5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Sean Chambers - Ten Til Midnight (2009) [MP3|320 Kbps] <Modern Electric Blues>
 ```bash
 magnet:?xt=urn:btih:7FC76A7C0A0BE837D1D9843CD0F63FFDDD71582A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Network Radar представляет собой простой в исполь
 ```bash
 magnet:?xt=urn:btih:D28D996992A168A1ECED8A214CA1F8E7007FB119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Markus Schulz - Global DJ Broadcast: 2 Hour Mix (2016) [MP3|320 Kbps] <Trance,Pr
 ```bash
 magnet:?xt=urn:btih:2D6544054AF8A7FAD01378827A1580E01940DCFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Evan - Blue Lightning (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Powe
 ```bash
 magnet:?xt=urn:btih:4E2BD82FF7D7B65A687AE1DB3E519C695BAF357F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Milan Hendrik EXP - Applegate Drive (2016) [MP3|320 Kbps] <Blues, Roots>
 ```bash
 magnet:?xt=urn:btih:087DFFCE7CC9EE34025E58A9F4C55D9794CB2512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - Lazy Sunday (2004) [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Rock, Soft Roc
 ```bash
 magnet:?xt=urn:btih:BCEA53C57BECED2BB8F22C5F485F7ED9A338A999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6B88B006C89575F7D2B53BACC4E02606EB22BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20F7D8AAACEB5EA97DDEA01A0563616D1811A9ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75383DA5BF6872484929EBA6F49062211164602D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Space Night: Lounge Chill Out Journey Through The Universe (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:50765C6B2D5A5820D1E09CFE1BCC969BBD731F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ A4 Art Tatum - Хумореска (Humoresque)(   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:DABD8BC7D5A01F33BC91F52D3EAD1DEA6C0C8E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Verizon IndyCar Series. Этап 12. Honda Indy 200 At Mid-Ohio (2016) HDTV [H.2
 ```bash
 magnet:?xt=urn:btih:DE6F5ECBCEBD440A3F0CFFFF7D161B743FEDE6B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D177F0CEBFEF8C928CBE7A70E5EE01958A1A552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Guattari - Determine (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Darkwave>
 ```bash
 magnet:?xt=urn:btih:BC2A2A59596AE7EE57A3C7C2AF23BB073C4B5521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ A4 Carmen McRae - Exactly Like You(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:BC26ADCA15833D7CA36C185E8FAB32048C1FE669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AE4E50B2CF6298D6C0AD4B0D4661277476B6962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ XXI Летние Олимпийские игры проводились в го�
 ```bash
 magnet:?xt=urn:btih:A41B4447C91082324B30521C83128AC18C9E9559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ VA - Top Party Hits Eternal (2016) [MP3|320 Kbps] <House, Electro House, Progres
 ```bash
 magnet:?xt=urn:btih:3AC1A72ED997B303EFD2C892A27844F93FA51A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ AudioSapian - Retrostep LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:55BE02BEC69652740E9D1F086D489C045EA4C571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C07C34BF7AC5C50B49295379C1AE51D9F5C8589B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10A67DD4B9BC9FC505FB9BF453C01139E64ABB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6594F70CF5F1360A1EFFB6C9F52E1E61F25D5BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ Groove Armada - Greatest Hits (2007) Compilation [MP3|320 Kbps] <Trip Hop, Downt
 ```bash
 magnet:?xt=urn:btih:A08CEF03F5FC4BCD56480DDD260C5023CED12938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

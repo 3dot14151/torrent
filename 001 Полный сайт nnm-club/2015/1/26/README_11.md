@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:0A6E751F755254E7ABF3DECE3CA92E28536A2FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tombgrinder - Under the Black Sun (2014) EP [MP3|320 кб/с]<Doom Metal, Instru
 ```bash
 magnet:?xt=urn:btih:9E8512950CFBB5EC84ED008C28184F644760819E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ The Rance Allen Group - A Soulful Experience (1992) [MP3|320 кб/с]<Funk, Soul
 ```bash
 magnet:?xt=urn:btih:380BE1906E1E3B733604BF13B24C120892922DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57A22164427AF6594CB41E9D1EAE2264144CC510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ STOMB - The Grey (2015) [MP3|320 кб/с]<Progressive Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:77B7761F25DAA9E0A1C8802109483A05F36F26E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Jazztet And John Lewis - featuring Art Farmer And Benny Golson (2013) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:E8C290AB4616C89A01D97E2F9BA2848420F629B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ John Lewis - The Bridge Game Vol. 2 (1986) [FLAC|Lossless]<Jazz, Cool, Third Str
 ```bash
 magnet:?xt=urn:btih:4436EED0BFF0678B2170E32A6CD1D940125BA126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Coleman Hawkins - Hawk Eyes! (1987) [FLAC|Lossless]<Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:B29FB13ADB047B25B45E5620A40F9289BBD1EF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE63C5FB4C56B5D16072D732CBC459632F349DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Mushroom Giant - Painted Mantra (2014) [MP3|320 кб/с]<Post Rock, Progressive 
 ```bash
 magnet:?xt=urn:btih:0456542CC6E1F4FFDE86CEFB7DB8E7B7607D11B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9D5DCA90A04228D8DA2439B5F796ED7F32C5426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92E48E81CA6423F7BF25990DCA95B1B0EAB55BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Dreambleed - Beautiful Sickness (2014) [MP3|320 кб/с]<Symphonic, Modern Metal
 ```bash
 magnet:?xt=urn:btih:CB036AD62C29E200A957E2F062AB1400FA6C10A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ VA - Carnival Private After Party (Chillout & Lounge) (2015) [MP3|320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:323B7C60D7DA2DDA3F9025C2D43E46DF2F17019A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ Shadowquest - Armoured IV Pain (2015) [MP3|320 кб/с]<Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:AAB70A44CC5E65FFFB871C026CA644D5E580AC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6939F64D7D0CA36C4A2A769165BBB4464C013E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ Clemens Van De Ven - Ballads (2015) [MP3|320 кб/с]<Rhythm ‘n Blues, Soul>
 ```bash
 magnet:?xt=urn:btih:7B1C84D689D1193941CFE05BA59C0305E528E439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ Albums, EP:
 ```bash
 magnet:?xt=urn:btih:70CA6DDC68B73B78BB329C49FACD51478D2F2733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ VA - Chilling Love Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:875BF9B1EC1EBB458C17B83C064447C6DE547400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0209004453234FA974A7C3AF0A0259C62A6373A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C3228DA414AB6CD3EB2E1AE38B4698FCBF3004F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEAA460B69074EA0C5F055870CDD8BFD9F3463D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ VA - Chillout Music (2015) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:E963BEC082DC17083679085296739D5A7BD00B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97499262C00A8472C4D5A8E51CC8A648E9C4ABF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +736,7 @@ VA - Valentine's Day (Love Chillout Selection 2015) (2015) [MP3|320 кб/с]<Dow
 ```bash
 magnet:?xt=urn:btih:DE258DE852F5BBBF6C13FA9B1ACB5C1CF8032BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +770,7 @@ VA - Late Night Grooves - Edition 1 (2015) [MP3|320 кб/с]<Deep House, Chill H
 ```bash
 magnet:?xt=urn:btih:BF0E5FF9DC10EDAC2325CE26F53C61B6A9F5335F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

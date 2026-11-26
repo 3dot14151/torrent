@@ -21,8 +21,7 @@ TinyScan превращает ваш смартфоне в портативны�
 ```bash
 magnet:?xt=urn:btih:3B3633F0E5A2D7F2B97BBC46FD2E26A7039BF58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ NoMachine – это средство доступа к удаленным ра�
 ```bash
 magnet:?xt=urn:btih:D1CF730E6A4D7264CF8AC9A6E9D69D967C9936C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Meitantei Holmes: Aoi Ruby no Maki / Kaitei no Zaihou no Maki | Sherlock Hound: 
 ```bash
 magnet:?xt=urn:btih:6F19627DAD64389BFB1D64D26350B3600B982EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Windows хороша, но всегда есть, что улучшить. Во�
 ```bash
 magnet:?xt=urn:btih:6272E40DEA953E54A9F73932ADD246FD484C30F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:49DB3ACA26FAD8074CEAE9D4CBB9751DA2EA09BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ VPN Russia - VPN сервера в России 1.181 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C8BDED937A7C3DEB94FB269EBD6C447C2C1CA531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Ashampoo UnInstaller 14 поможет вам установить, протес
 ```bash
 magnet:?xt=urn:btih:E26AD0902ADF8D576862CD6A5F22354FD88ADFEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ MainStage 3 позволит вам взять Mac с собой на сцену
 ```bash
 magnet:?xt=urn:btih:4F7191A9064937808737DBC6DF6B091A6854AC57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ SILKYPIX Developer Studio Pro 11 — японская программа, поз
 ```bash
 magnet:?xt=urn:btih:DBCAA9AFB759DC329448A22B72FAB153C05856AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ ProfiCAD - программа, которая будет очень полезн
 ```bash
 magnet:?xt=urn:btih:62DED246C7C5E2CAAC4A79C64D3142A56EA0126D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D80B6662F25654476CBCD7A66F69C9BDE75C06A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80E53F1014E8AB39DCE515049BD4BB60BB9FF48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22B53643491ED4AA09975138B39DCCCD931119B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C99056970406193AC7CF5DE86C2AC4EAB27F772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Quick CPU — это приложение, разработанное для т�
 ```bash
 magnet:?xt=urn:btih:891715066FE0C87004BCC05BD18A0B121ACD5DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4D6B865F24DE3B4507F80DFE5DA2FCD5DC00371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C173B217A47EC9902D74F10AC8B3DCAD8488FCBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ FastStone Capture - мощная и многофункциональная пр
 ```bash
 magnet:?xt=urn:btih:3939C3AB459B4DB231CCC27C3C7681F0796600E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:40ACFF44D485AEEA5B98D7E0CD207FC232994BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Transmit 5.10.3 U2B [En]
 ```bash
 magnet:?xt=urn:btih:70C6A163235DB9EDF671A0B14C66DF7BF25A8FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3543E3450E16E7C9DBBCB7A2E430C685141B3EC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +553,7 @@ OnionFruit Connect 2023.1104 [En]
 ```bash
 magnet:?xt=urn:btih:2552B83FBA62C029A42D0E4B7F43944D8C03FC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5808A0586221089450CC4F63C279FF21340E825B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7198B9A30A901B575B52A4BDDC8CD34B188F49E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ The Beatles - Now And Then (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:84F20F337D5F963C3A683376CCBCAD1B68B0B652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDDA6D5E797CE16A763AF381513DF39EED3C02A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

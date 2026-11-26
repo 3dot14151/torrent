@@ -22,8 +22,7 @@ Illwill — восьмой студийный альбом группы Lake of 
 ```bash
 magnet:?xt=urn:btih:C4DB17C8BE49F59258FA7AE9F7D5B667BD1A8C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:208075A344DF22974623EAB6494AB9F7DF103273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mezmerize - четвёртый студийный альбом группы «Sy
 ```bash
 magnet:?xt=urn:btih:6DD2DE0C278699D48EED18CE52B231B21BA20050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Rock Covers (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6ED754F77A8792729D976D93F2595FCF405DFEFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hypnotize - студийный альбом рок-группы «System of a Do
 ```bash
 magnet:?xt=urn:btih:4299F6872B474E45721026F90A85FBB5C08316D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Toxicity - второй альбом американской рок-групп�
 ```bash
 magnet:?xt=urn:btih:987EB3863A14788CEC68CB96BF8B45DC90CD58FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42EBA69B444644C6A03831C3EC8395D819E1723B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Need for Speed: Underground 2 - это аркадный гоночный сим�
 ```bash
 magnet:?xt=urn:btih:2DC07E7106EA1E8CC8FB5D6C2AFE7B618B514898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Need for Speed: Porsche Unleashed – одна из лучших игр сери
 ```bash
 magnet:?xt=urn:btih:59033D3B40561934DA9D8FADDFE6D045AE9E0667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

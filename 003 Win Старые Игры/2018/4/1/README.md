@@ -19,8 +19,7 @@ Praetorians (2003) [En] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:C433055671E6515BE3B8AC18F2A1590DCFA6F53F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total Overdose: A Gunslinger's Tale in Mexico (2005) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:0ADAD0AF984CF00CA73215250EB19F60FE8E05A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ World War II Combat: Road to Berlin / Дорога на Рейхстаг (2006) 
 ```bash
 magnet:?xt=urn:btih:FF7DFC2E66F6F96701D284674A1C98B09312A911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

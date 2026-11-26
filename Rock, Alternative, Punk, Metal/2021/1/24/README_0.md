@@ -22,8 +22,7 @@ Toehider - To Hide Her (2011) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:784B8DA90EAB33C287EDA05924C6A99403A35543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fat Soul - Electric Light & Magic (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:B4B269B7CBB944A40EB7902E4DDC0939F7F6258C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tribulation - Where the Gloom Becomes Sound (2021) [MP3|320 Kbps] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:7FE1389D03228770F738E2E07C1429C02FE6C18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ronin - Ronin (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:73989275E7C3FAD51F865ADD7F55A814670E01B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dream Wife - So When You Gonna... (2020) [FLAC|Lossless|tracks + .cue] <Indie Ro
 ```bash
 magnet:?xt=urn:btih:69EB6E560D886DE3855148F7EC15E10792D97092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Warfect - Spectre Of Devastation (2020) [APE|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:2CF492E8D66C928834BD665DDB1F586CABAC1E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Goo Goo Dolls - It's Christmas All Over (2020) [FLAC|Lossless|tracks + .cue] <In
 ```bash
 magnet:?xt=urn:btih:517740B514A4D007C64146B329672F30B302E142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Fraternity - Seasons Of Change: The Complete Recordings 1970-1974 (2021) 3 CD Se
 ```bash
 magnet:?xt=urn:btih:4EEAFC46124B38110673F26C5577AF30F6290B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D73E3C97F4B6E7B6AB2CF3A62090167D50A8D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Holy Mother - Face This Burn (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:AE4D880C46B9E88A90645174F4A452304B50FB4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Therion - Leviathan (2021) Japan Edition [MP3|320 Kbps] <Symphonic Operatic Meta
 ```bash
 magnet:?xt=urn:btih:DE05C52A970C15AADAD2C3D8C15C3D406B61728F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:D105E569A153E05CB4145FEDF622EEA6B816C4D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Crawling Solo - Mosquito (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AF276ED8B0A4C7980C2D3D6891CE883B0EDA4198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Europe - Gold (2021) Compilation, 3 CD Set [MP3|320 Kbps] <Melodic Hard Rock, Ar
 ```bash
 magnet:?xt=urn:btih:FA73DE5D1A1A9A89E5D2D21D74B49197061196E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Borge Olsen - Music in the Dark (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blu
 ```bash
 magnet:?xt=urn:btih:44B5DCB0675E00A39941BCC6F596636E60C50A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Saleblazers предлагает насладиться увлекательны
 ```bash
 magnet:?xt=urn:btih:D0546E4FFCDB576F9C4B1A000840BA6DA3526ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Living Legends 12: Frozen Destiny (2025) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:65F2DA2BB925F56DFD19DFFF43AF1F6890249F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534) Repack Let'sРlay [Supporter Editi
 ```bash
 magnet:?xt=urn:btih:A016D791C47E0FB7C253F70BE4DBCCA8198BAA2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7733CFB9CADAE71E3B3E290C34131EFEEC982DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rock Star Life Simulator - это обширная игра-симулятор �
 ```bash
 magnet:?xt=urn:btih:13DAB21428F3BA917A4A1814C9453707755C4724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Eternal Strands - это дебютный фэнтезийный приключ�
 ```bash
 magnet:?xt=urn:btih:2FCA551D53709663116F005711DF76780F9D5D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Princess&Blade - это захватывающее приключение, в к
 ```bash
 magnet:?xt=urn:btih:A39A8BD93E2929826563CAC0FAA9FD49D89CCDEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Final Fantasy VII (7) Rebirth (2025) [Multi] (build 17035252) Scene FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:219960B356BAE0392334AF57289691A0F13C897A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Somnus (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D9356CF113E737D20A32AC6C1FE44560BD5EAF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Stone of Madness – тактическая стелс-игра в реал�
 ```bash
 magnet:?xt=urn:btih:924510DF7DB66937B3EBA977E002BA870F627461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Deliver Us Mars - продолжение получившей множество
 ```bash
 magnet:?xt=urn:btih:6CF2F2DB412E2741F2B41B85F06F0D2BE3463644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FF06046CCFD47C867C91686901517ADC73BF729C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Foundation: Новая эра в средневековых строительн
 ```bash
 magnet:?xt=urn:btih:383BE82DF7A1E11C86D319C5F7241CAAB4914D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ NEEDY STREAMER OVERLOAD - это "многосерийный ADV", в котор
 ```bash
 magnet:?xt=urn:btih:21EAA2AD0D5448B183A119FD2F53964342752624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:62A44C21FF9B07308DDE8F0BEA224E4B7D1F7BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Cryptical Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:409A45D4CA2D301FACC09E6223A8965BC5C7E7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark City: London / Мрачный Город: Лондон (2017) [Ru] (1.0) Un
 ```bash
 magnet:?xt=urn:btih:9849AF07AAED219BC9B07AD7A768F23F4A9C4D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wonder Boy: The Dragon's Trap - это неожиданное возвращен
 ```bash
 magnet:?xt=urn:btih:EF2BC52762B93578D801F635457743D183CA4D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

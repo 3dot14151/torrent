@@ -19,8 +19,7 @@ O.D.T.: Escape... or Die Trying (1998) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:635317622734E4DE0BF784410C03EF57E24F5AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

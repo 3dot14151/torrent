@@ -19,8 +19,7 @@ Tales of Lagoona 2: Peril at Poseidon Park (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:9311DDAABFEE5EDB6AB93885A9868421FD910849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chronicles of Albian 2: The Wizbury School of Magic / Хроники Альби�
 ```bash
 magnet:?xt=urn:btih:0602E62BDED9A6DB0D8DA17B23C8787223C0C316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ F1 2013 предлагает вниманию поклонников вирту�
 ```bash
 magnet:?xt=urn:btih:16FA050D0F80341E95D206A19F0C0FE25B3C96DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Fable: The Lost Chapters Русификатор (2005) [Ru] (1.0) Официал
 ```bash
 magnet:?xt=urn:btih:6915CE4BC9242C01F1711D8FD61ECA11AACC1DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Montague's Mount - психологический триллер о сущест
 ```bash
 magnet:?xt=urn:btih:51582422585C46B719D7046BB13CBF52B4430CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Iesabel (2013) [Ru/Multi] (4.2.0.11237) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:30006F0308807CA5EF2DA37C1AB1A4BE98C10230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

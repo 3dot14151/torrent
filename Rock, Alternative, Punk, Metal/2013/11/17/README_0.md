@@ -28,8 +28,7 @@ Lapsus Dei - Sadness Reflections (2013) [FLAC|Lossless]<Melodic Death/Doom Metal
 ```bash
 magnet:?xt=urn:btih:CE86CD922500FAC6EB8937CA582E9AE84B2FC847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Coronatus - Recreatio Carminis (2013) [FLAC|Lossless]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:DA529212C0E842BDCDD75762B782780C4A198994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Words Of Farewell - Immersion (2012) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:96B6AFB2FA9DA87376C808CA5199910BFF66C846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Stormlord - Hesperia (2013) [FLAC|Lossless]<Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:ACBFCEFD259AF2FD24A842DE6F4B0595AA55E54E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Big Brother And The Holding Company - Cheap Thrills (1968) Remaster /2012, Audio
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Frank Zappa - Road Tapes (1968, 1973) 4CD /2012, 2013 Vaulternative Records/ [FL
 ```bash
 magnet:?xt=urn:btih:50F807B3D31D92ED4BE740E64E130E557579044C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Buckethead - 37 albums (2011-2013) [MP3|320 кб/с]<Progressive metal, Avant-ga
 ```bash
 magnet:?xt=urn:btih:230D157BE722587021BE4897A5B007867853E9DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6220454CFBA7F28069553C9510EB7C94FA75602D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

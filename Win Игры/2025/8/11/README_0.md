@@ -19,8 +19,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.408) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:601B59384B11AAD225AFAE635781171008CF3850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (2.0.1G) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E8528C3A25CD60970C917CDDA5A7DE894D0CD9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Heretic + Hexen (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:62E9263A646BD99B7E58603562E2762528BDD621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

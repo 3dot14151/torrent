@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1761AE4BB7CDB0D6B51BC47B571B70D904EA7811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 ```bash
 magnet:?xt=urn:btih:4F4E7697F58216831C09462B05AC61E6A919DF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 ```bash
 magnet:?xt=urn:btih:1D71C785FDAEAEDBC259DA42CA04105EB17B6C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

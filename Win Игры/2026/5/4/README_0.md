@@ -19,8 +19,7 @@ Invincible VS - это жестокий супергеройский файти�
 ```bash
 magnet:?xt=urn:btih:912403B56B97F15E40F63E5DCFDDE8087CC05A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sledders - это физический симулятор снегоходов �
 ```bash
 magnet:?xt=urn:btih:7FDB5B13A723120AF9BE2613A2367D22F4B6E2F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Coma 3: Bloodlines (2026) [Ru/Multi] (1.1.3/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DF38695412BA821B16F7E3B9311D0709722DC392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bylina / Былина (2026) [Ru/Multi] (4.1/dlc) Repack FitGirl [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:4CCF3D2B4A38DC864C5654E9B3514C213ED18D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Demonologist - это кооперативная игра ужасов, в ко�
 ```bash
 magnet:?xt=urn:btih:E265096D290B0E0488B361A861B8E27CE4A8B9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Inner Voice (2026) [Multi] (1.0.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E7D0A4307B48CBA49641806D285D9E0BAE7F0656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ ShantyTown (2026) [Ru/Multi] (1.01.05) License GOG
 ```bash
 magnet:?xt=urn:btih:51FA7D1E48F65BBA4FFF35D27317AD98DA054AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Pompeii: The Legacy (2025) [Ru/Multi] (1.002.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:6801729FB41DEA1686DF77159BA43C0C13284D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Occultist (2026) [Ru/Multi] (1.0.1.5) Repack Let'sРlay [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:D78D1697AADC8F334015EDB705267263BC5BC167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Heroes of Might and Magic Olden Era (2026) [Ru/Multi] (0.80.07) Repack Let'sРla
 ```bash
 magnet:?xt=urn:btih:8E13307E2C1597DFD84CEC2E90DF066EE1BC6D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ INDUSTRIA 2 (2026) [Ru/Multi] (1.0.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:074F8D474B88207749697A68D942E9C0971BF6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

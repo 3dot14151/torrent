@@ -18,8 +18,7 @@ iSendSMS - программа, предназначенная для беспл�
 ```bash
 magnet:?xt=urn:btih:F8601F9455A18B0ADB1B24718E2B029B4B4F1B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ ACDSee 18.1 Build 233 Final RePack by D!akov [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5A9362B370B5EFD90C3EA9D71BD64D8193F6A696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06FE93F58F80995DBE26FE9CF6A457B3F2C949F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Discovery: Почему? Вопросы мироздания. Пещерные �
 ```bash
 magnet:?xt=urn:btih:38612C2DE8BBDAC062993AA7ADB5C253438FCCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ War: SHOGUN 2 – «Закат самураев» посвящено драма�
 ```bash
 magnet:?xt=urn:btih:C2018795C8CB4DA3B77481A622C2347B84A12DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Profileschool | Природные шедевры мастеров (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:438181834B57515C083AE9C9209B48E78A09BA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAEF8CAF9934060AAE8D5C48AC3948AD6B9A4B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB95F3C6E3A3904781D7C06F954F6B3DB664FEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8368B8681891C62EF7B24627452EF50DD9037274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7D8A921BF8782F7C9BECA5EB4F4795DE0FBB595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:EBF67067B371E07E995ADAFC7E299769765844F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ ABBYY Lingvo x6 выходит в Домашней и Профессиональ
 ```bash
 magnet:?xt=urn:btih:F348B491C4EAE7CCAA4A67716B49574FE0E5A32F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ DVD из комплекта к аудиовизуальной игрушке щ�
 ```bash
 magnet:?xt=urn:btih:2B8731BED463262F4A80B8F79C839761DC284438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Superнянь / Babysitting (2014) HDRip
 ```bash
 magnet:?xt=urn:btih:70F9C2D52403AB7807E0FC610E9CFE3CEFC69880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ Space Run - это проект, выполненный в смешении жа
 ```bash
 magnet:?xt=urn:btih:8A74B740E62FF63C1D99B26BF8F441B83F120536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Parallels Desktop for Mac 10.1.2 (28859) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0EC3E70F7B7071956A1E978649537C72F01F0413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:3BEED36BA7DC6A31864E94BA7ECC99C18EDB0B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ Equalizer улучшит звук из Вашего устройства.
 ```bash
 magnet:?xt=urn:btih:517BF7923AFC533457514020EF2BA5498F52C7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ Kiesza - Sound Of A Woman (2014) [FLAC|Lossless|WEB-DL]<Electronic, Hip Hop, Pop
 ```bash
 magnet:?xt=urn:btih:DA1B147A3F012BE57AB3685503EDC3E9FEEB8833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E71E9743FB4334D78EE22AE965722819CEA0AECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4384A57F1A55BE29A2954B625A14DA6B92DDADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2F273A414C4976BCDB8F82680C5CE9DA867A45D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9D09BF31E7108B0466E2E4A25C1925D9D21E667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E30E5B8DB6F7259D1F9C36454AB0CCCE3377D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8DBA08C510F8070EEE58184416788B51BE8F41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy 12.2014 2 DVD [Ru]
 ```bash
 magnet:?xt=urn:btih:81FD3602285A7B0C35DFD02A48D2DDF8332874FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ testking.org | 70-640 Windows Server 2008 Active Directory, Configuring [2010] [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

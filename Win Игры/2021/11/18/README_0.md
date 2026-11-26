@@ -19,8 +19,7 @@ Christmas Stories 10: Yulemen (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:E75A0B9BF4FDC71477C787B0D67618EC65D28EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:23FD71B7C245E088EA9C26EF60FE3DC3EEB941C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

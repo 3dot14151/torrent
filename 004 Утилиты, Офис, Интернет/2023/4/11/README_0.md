@@ -20,8 +20,7 @@ True Launch Bar 8.0 + portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:45FB4C55808CD801E0F6349A690415724766F6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Nitro Pro – программа, которая является альтерн
 ```bash
 magnet:?xt=urn:btih:E1EB37A961015F2B9B8096D82F19840A7801AC4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Advanced Uninstaller - идеальный инструмент для деинс
 ```bash
 magnet:?xt=urn:btih:40B0AF3FD54B9991F28A41EC7C43B3D3C5162E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

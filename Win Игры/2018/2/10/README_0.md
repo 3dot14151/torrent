@@ -19,8 +19,7 @@ PuppetShow 13: The Curse of Ophelia / Шоу марионеток 13: Прокл
 ```bash
 magnet:?xt=urn:btih:236DDA04063D59BF24D15A856ACC338360E3ED21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pid (2012) [Multi] (18421) License GOG
 ```bash
 magnet:?xt=urn:btih:4518C36C335BC1C2FED6193944DA34CAB71112B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ World of Diving (2014) [En] (0.16.2) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:3F4DB6E0029D0BCC0D8335BFEF60B7C380F25F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8471842850EFFFF0816217C9670CE9231AEA76A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

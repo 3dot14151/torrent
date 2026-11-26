@@ -28,8 +28,7 @@ Pirana - Pirana Attack (2011) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:3CF5C9663ABEACDC449E479FAA4E5B10D20E8BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Flash Lightnin' - Flash Lightnin' (2010) [MP3|320 кб/с]<Rock / Indie>
 ```bash
 magnet:?xt=urn:btih:B192B7834D6835E5365B6DFCF735BEA6A6A636FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Devil Wears Prada - 8:18 (2013) [MP3|320 кб/с]<Christian Metalcore>
 ```bash
 magnet:?xt=urn:btih:6DF50BAED95DC434D9921A32E7221D3CEEF281EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Tyr - Valkyrja (2013) [MP3|320 кб/с]<Progressive Viking Metal>
 ```bash
 magnet:?xt=urn:btih:9A09E511CA7F0BBB34C6E976C0D417E6A1075CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Tanzwut - Hollenfahrt (2013) [FLAC|Lossless]<Folk Metal, Industrial>
 ```bash
 magnet:?xt=urn:btih:7D59BF14F7FC97EEB058FC75ADCD13C2B80ADC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Bob Dylan - The Freewheelin' Bob Dylan (1963) BSCD2, Reissue /2013, Sony Music/ 
 ```bash
 magnet:?xt=urn:btih:C17B788B092CA1D3AE1063562A345171BE945545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Bob Dylan - Bringing It All Back Home (1965) BSCD2, Reissue /2013, Sony Music/ [
 ```bash
 magnet:?xt=urn:btih:4AA97A9F2B0B6BF8140FC4891380B64E95024F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ VA - Pure... Psychedelic Rock (2011) [MP3|320 кб/с]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:B361A2D95CB19893A1BDFA1CB8ED6FF8C2775F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

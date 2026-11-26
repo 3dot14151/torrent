@@ -21,8 +21,7 @@ Frost - Falling Satellites (2016) Deluxe Edition [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:531218A9C964A81336640C39C9ED474CEB4CC634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDC28218F510B86A37FE839844864BC9A9558FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Dan Reed - Transmission (2015) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:4C889E74671234296C3175E66B901308C59D5BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Mongo Santamaria - Mr. Watermelon Man & La Bamba (1965) Remaster, 2014, Sony Mus
 ```bash
 magnet:?xt=urn:btih:80D8A7DAE71179B20821711564A24277A55045B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VirtualHostX - приложение, которое помогает вам о�
 ```bash
 magnet:?xt=urn:btih:0584D612EE259C826553092F0FCCF60FFB691282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - Summer Club Charts (2016) [MP3|320 кб/с] <Electronic, House, UK Garage, 
 ```bash
 magnet:?xt=urn:btih:987D4C93BDEE05A4F7CC913E05DE798D98AD5E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - 25 Years Of Hands (2015) 4CD, Compilation, Limited Edition [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:AA90C99D3B29E40D77834FEFC58651864DBAD347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0906DBA9DD6CFEB4938ED7BA5EBB249AE1E225CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38473FCA1B20A82654B3E2E5DA412790B7EE4608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Live In Montreal - Finale (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:01DEF068938555AA1155CEE8D6AA2ECB47BA15EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Ella Fitzgerald - The Best Of... (1996) Reissue, Remastered, Recordings from 193
 ```bash
 magnet:?xt=urn:btih:8FF1A17C8EE7762A43B44560F5FF267A0D56AE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93547131512729F3EF57321170F49B649FE6424E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Monochrome - Unforgettable Call Of The Octopus (2015) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:B99F7396907BF4247B1E433CB2D8A72CE03AF483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Four By Fate - Relentless (2016) [FLAC|Lossless|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:689A49C143690AB7F91CB1BA629780A960C22EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F0D29DC2DF4BFA03FFA0E9FE595C49A984F3988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Isaac Shepard - Mosaic (2015) [FLAC|Lossless|tracks] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:2BFFBDBDF77AA83D94D4F978D0C3E5C87E6845BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ POSYDON - проект подводной навигационной систе�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02EA6F349D40F34F6D457121B226C570328D3678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ VA - Ethereal Techno #002 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep Hou
 ```bash
 magnet:?xt=urn:btih:279BEB1D95258337915AD01930838142C93FD562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Dan Reed Network - Fight Another Day (2016) [FLAC|Lossless|tracks] <Melodic Rock
 ```bash
 magnet:?xt=urn:btih:CA3CCB2C47FCDC47E1AAE482C4D2C1E417CF6408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Angelica S & Science Deal - Nocturne (2014) [FLAC|Lossless|WEB-DL|tracks] <Tranc
 ```bash
 magnet:?xt=urn:btih:90F6A569BE3E55452CF90788A0B690C786E9B719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Dinka - Sundry: The Chillout Collection (2016) [MP3|320 кб/с] <Chillout, Down
 ```bash
 magnet:?xt=urn:btih:67F071BC4CF334E840DC32160205C2167060FB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ Born Healer - 'Til The Dawn (2016) [FLAC|Lossless|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:31083C91E9103470C2DEE50788AFE53769AA4816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50A3EB2CD040E2F45EB30D6B280D8E4BF923B74A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68E70711E3DAD8EBDC2C2B5D3239460AABC2EBB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Konstantin Klashtorni - Smooth Jazz III (2016) [FLAC|Lossless|image + .cue] <Smo
 ```bash
 magnet:?xt=urn:btih:DD1C1176964BCA802B8330D6C00ECB3F728EA60D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

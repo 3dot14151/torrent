@@ -18,8 +18,7 @@ DJ Nurlanus - Summer Dance Mix 5 (2016) [MP3|320 Kbps] <House, Dance Pop>
 ```bash
 magnet:?xt=urn:btih:B058F1D4B5B34E4829C0C5548AF403127C650D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Billy Joel - 2000 Years: The Millennium Concert (2000) 2xCD [APE|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:331AE317D9F59ADDFA8A22266143E4849238C120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Energizing Workout Hits (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:5CC429F0B588EDC5978087045F327BF3F0867B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Funky DL - Out Of Touch b/w Le Jazz Courant Noir (The Jazz Lounge Remixes) (2016
 ```bash
 magnet:?xt=urn:btih:53E037FE25AA9D6D685C5DCBBC5AD6341448BF43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE52E0DE4246A786528485E19DC56C8276E5C3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34BAC5D9309C4FCF7B8CC7AAB0EF551C7CD1D7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Funky DL - Autonomic (2016) Single [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats
 ```bash
 magnet:?xt=urn:btih:39E086316657937316925E7C7392B4416F18D4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Chicago - The Heart Of Chicago (1989) Unofficial Release [APE|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:15885126A24E822C9C25BD6CAE793A573020F794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B55B7372C78B3F86545CB15D1139164AB6051187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Funky DL - The Rhapsody (2016) Single [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Be
 ```bash
 magnet:?xt=urn:btih:BE0B66AA1BE45D346A844B4FC51B555F4172BFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Aura - Observations (2016) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D598694A4949F6AB0BA0A04928BEF4A40D29E6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Dj Sveta - Beautiful people (2016) [MP3|320 Kbps] <Progressive House, House>
 ```bash
 magnet:?xt=urn:btih:645D5B61DAE98844B84005146B826BF8E4178D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:400E547FE00989BE2697EF6986C348940D9D0409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 magnet:?xt=urn:btih:8F3AC7BDE2F89C103D1B73C2853BFA73CE69A8BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ VA - Best Body 2016 - Tribute to Pop Hits (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2D63C037FA2A03647225EC52BE1F397097B4EAC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EEA9756C6F0240C46218CF70BE737B0B171F7A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:F9A85F5260602A32A312D24B00238EDCEA00AEC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ VA - Diskoteka Club Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:4569A7D976198CD92F7E7CBD76EFCB7D327BD3B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Psy Trance Workout Music - Top 100 Burn Remixes 6hr DJ Mix (2016) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:1B81B3D0571AE7DBCFEEE55B699BF903A9CA41F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ VA - Thank God Its Sunday - 25 Relaxing Mood Tunes Vol.3 (2016) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:42AFD49C974337107D49B32ED632F799D0CFE9D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Fantastical - приложение представляет собой кале
 ```bash
 magnet:?xt=urn:btih:DFBA724FDEE03031C1AEFC5AF8D07979059E5DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF3220D53E61417655D104FC41688C2F5E5B3C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ VA - Nude Mix #4 (2016) [MP3|320 Kbps] <Drum & Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:0934B339F826E98CA2FC1C9204CCAC551573D38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEC23E2658120FE9CC1997BF6D7BA64B4A9711BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EBA52C11EDED730472E2C9B0B341605302C3169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

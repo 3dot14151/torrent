@@ -19,8 +19,7 @@ ReDrawn: The Painted Tower (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:70332626B947B4B23041418F583FD36B54D5186E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GolfTopia - симулятор гольфа с элементами песочн
 ```bash
 magnet:?xt=urn:btih:1DB6FF39E89C21D4EE90C30EC5C07C585C73113F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tunche - это очаровательная, анимированная вру�
 ```bash
 magnet:?xt=urn:btih:47031582012B1607107EC4194BA050FB8209BC6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Eschalon: Book III - последняя книга трилогии, в кото
 ```bash
 magnet:?xt=urn:btih:1AA02F69988934376269421C3C49C6B8FAB93A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sword and Fairy 7 - китайская приключенческая ролев
 ```bash
 magnet:?xt=urn:btih:265143D812DE59B79008873B53B309E043EB9E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ HUMANKIND – историческая пошаговая стратегия, в
 ```bash
 magnet:?xt=urn:btih:AC02406BA36CF6AF50112C610DCF7DD30027CED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

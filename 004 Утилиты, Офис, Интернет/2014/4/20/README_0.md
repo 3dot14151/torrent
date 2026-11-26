@@ -25,8 +25,7 @@ SharpFBTools 3.10.4653.20110 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:E8C8E288857952901522B8D5A3DFEF9B6D58C448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Fiction Book Editor (FBE) это широко известный (стандар
 ```bash
 magnet:?xt=urn:btih:92E089529A97688D3FB826A100066E27AF6F43D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

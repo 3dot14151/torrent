@@ -19,8 +19,7 @@ Labyrinths of the World 7: A Dangerous Game / Лабиринты Мира 7: О�
 ```bash
 magnet:?xt=urn:btih:D100BDB90EAE92C4A43D403C2DECB57C7C6739FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tomato Way (2016) [Ru/Multi] (110118) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3C7F5934141399A9B862290679FB317D79F1392A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead or Alive 5: Last Round - это доработанная версия зн�
 ```bash
 magnet:?xt=urn:btih:B3F8EA3DA7CE0F5C7DAFD8187DC584520027C3EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.820.0.64/dlc) Repack R.G. Механ
 ```bash
 magnet:?xt=urn:btih:3AF036DC2F2753168E9551323D6FE1EC54B16C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Factorio — это игра про добычу ресурсов, постро�
 ```bash
 magnet:?xt=urn:btih:992165D4CECBEF71B452FE4CD1556C23E5C142E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sinking Island / Б. Сокаль. Sinking Island [Ru] (P) 2007
 ```bash
 magnet:?xt=urn:btih:AB0363C611AA6E96BF7FE562504703C9AD1A074F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Overlord [Ru] (RePack/1.4) 2007 | R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:AA7ACA57C56E18EB0B32B6C916B8420FFF0F0EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ The Eighth Wonder of the World продолжение, а вернее втор�
 ```bash
 magnet:?xt=urn:btih:032533DCBB03E0B0A6FA08B1A99511E99A5FA102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Blue Force [En] (RePack) 1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:483FCAEB685954118BA16B9BE0EE45C5A5A7885C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

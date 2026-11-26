@@ -21,8 +21,7 @@ Happy Color™ - раскраска по номерам для взрослых.
 ```bash
 magnet:?xt=urn:btih:C70D567D6E7E026FD5338295720C9300EE7813AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ VoltLab v5.1.4 Pro [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FD867A24541E14D98D913D20D257170E82C79F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ GuitarTuna — это самый удобный, быстрый и точный 
 ```bash
 magnet:?xt=urn:btih:CDB3258A08BCA4F5AA73316E5C52DA2EF24121E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

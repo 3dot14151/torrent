@@ -22,8 +22,7 @@ A4. Don't Stop (3:15)(   Читать дальше...   )Жанр: Soft RockПр
 ```bash
 magnet:?xt=urn:btih:B8D21AE3BE8E830387C475552ED04087ED25D739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

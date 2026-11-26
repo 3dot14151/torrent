@@ -19,8 +19,7 @@ Where Angels Cry 2: Tears of the Fallen / Там, где плачут ангел
 ```bash
 magnet:?xt=urn:btih:3669E0CC2466B0008BC55F6EB6542C44B1ECD6B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Myths of the World 9: Island of Forgotten Evil / Мифы народов мир�
 ```bash
 magnet:?xt=urn:btih:D4A3369010F018A7B3990EAD602EE121E6FAA2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Virus Z - это 3D зомби шутер с видом от третьего л
 ```bash
 magnet:?xt=urn:btih:2CA800C5813D5B8536D4A78FA70B1900F8034FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Turmoil (2016) [Ru/Multi] (1.2.8.0) License GOG
 ```bash
 magnet:?xt=urn:btih:95CCC27EC1BB9960A194B4A7B98E87CC3B2285E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

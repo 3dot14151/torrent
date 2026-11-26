@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:6A5E850E6C7AC558288A2473CEE8B038BED1A9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ IELTS Listening - бесплатное приложение для всех, к�
 ```bash
 magnet:?xt=urn:btih:8CD7B0992EEA259132A159A32043932949D523D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Handy Photo – это приложение, разработанное с мы�
 ```bash
 magnet:?xt=urn:btih:083F47C987E66027D4EFD9043204896DA3D4B255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kinoplay позволяет смотреть любимое кино на люб
 ```bash
 magnet:?xt=urn:btih:4865F5803750CAF75054FCCDC59C19F2B0F104D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ DNS Changer  - инструмент на андроид, необходимый 
 ```bash
 magnet:?xt=urn:btih:096E4452E9838256FD81433CB2DE4E41EDE055F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

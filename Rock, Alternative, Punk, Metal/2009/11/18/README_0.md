@@ -28,8 +28,7 @@ Them Crooked Vultures - Them Crooked Vultures (2009) [MP3|320 kb/s]<Stoner/Hard 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - 100 величайших рок-хитов 90-х (2008) [MP3|192]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

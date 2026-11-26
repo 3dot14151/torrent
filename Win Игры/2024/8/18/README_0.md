@@ -19,8 +19,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.2D) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:F9F4C7A39BC1A7F2C65991CCA677E32ABF4A1E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Meowsterpiece Museum - игра со скрытыми объектами, где
 ```bash
 magnet:?xt=urn:btih:3BAC712856F0C3A48A1B1AA8FAFB18EA473094E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:866E296D060DA07E4AC89558E68725B6FE3B89A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hidden Through Time 2: Discovery - спокойная приятная игра 
 ```bash
 magnet:?xt=urn:btih:28596AD8019E4F93E14B0DE12914D6613133A386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Arco - это минималистичная игра, действие кото
 ```bash
 magnet:?xt=urn:btih:D52049A3257ECD757D02F7B80251966DCC82EDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Just Crow Things - мем-игра, где вы берете на себя ро�
 ```bash
 magnet:?xt=urn:btih:7E2D9E6233FFB6A0CEC13695DD8DCA1720A54D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Berserk Boy – аркадное приключение с элементами 
 ```bash
 magnet:?xt=urn:btih:837B927036DBFD3A5C3DCB4EA5D69C36F5C2ADB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Regiments – стратегия в реальном времени, где Хо
 ```bash
 magnet:?xt=urn:btih:3E5810436AC3B7DE750196C13D00BD8EEC08DD5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

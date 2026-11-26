@@ -19,8 +19,7 @@ WhatWeather - Метеостанция 1.18.0-pro [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E6FFB2B350669CFC5182CA08867DB887D7B010AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PixeLeap - приложение, что обязательно стоит опр
 ```bash
 magnet:?xt=urn:btih:846C41933981816B1FD802F1407D6D05EFF78C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

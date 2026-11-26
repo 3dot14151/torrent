@@ -19,8 +19,7 @@ Starstruck: Hands of Time (2024) [Ru/Multi] (1.0) Repack FitGirl [Soundtrack Bun
 ```bash
 magnet:?xt=urn:btih:9EC55DBC459E0D1B85A3DADC7B9E908149A9B367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Broken Sword 5: The Serpent's Curse (2014) [Ru/Multi] (3.0.5) License GOG [Episo
 ```bash
 magnet:?xt=urn:btih:F6D068CFF42A3D62D2736DC300E27992B0B57754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NARUTO X BORUTO Ultimate Ninja STORM CONNECTIONS (2023) [Ru/Multi] (1.50/dlc) Sc
 ```bash
 magnet:?xt=urn:btih:2A5413A9E002BE7D7136A627C4E90097CD223FE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hadean Tactics – это военная стратегия с элемента�
 ```bash
 magnet:?xt=urn:btih:07193F0A281EE05FD73C6C9F50D7BC63FBAF702F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepti
 ```bash
 magnet:?xt=urn:btih:B5494AE54CE72FA0C6059B24FDA7DD7C2F0DFFA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Lords and Villeins (2021) [Ru/Multi] (1.6.14/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B8D8990FB1BCF9F41D32FCD64824D4684FE22520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mechabellum - это эпический автобаттлер в научно-�
 ```bash
 magnet:?xt=urn:btih:B253D6EA96DC586CE852F3921A0C5A8534F28E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Last Epoch – приключенческая экшен-игра с глубо�
 ```bash
 magnet:?xt=urn:btih:E5CD2CA9F356094A69F230A30B70F2E76ED2FE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Creatures of Ava - это не типичная адвенчура по ловл
 ```bash
 magnet:?xt=urn:btih:C3A2C149EF1CEC21B3A39400AF6C5A91ADC0265E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Frontier Hunter: Erza's Wheel of Fortune совмещает элементы п�
 ```bash
 magnet:?xt=urn:btih:908C86675D9723BAF466922E16FC7380F8E353B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Iron Meat - это динамичный шутер в жанре "беги и с
 ```bash
 magnet:?xt=urn:btih:75A27A9EB562F3094152C395D92CDF67F40D5017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:BFA15CD2CF597A6429B67827A83FAFC58FEF1979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:1CA17DD735AA7F65512C118753D6B70628761553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Disney Epic Mickey: Rebrushed оживляет магию мира Disney в к�
 ```bash
 magnet:?xt=urn:btih:1EBE0B5688C56786B472789C3FFAA4BD423C20E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44B89797C94DAF42A0206093B1523572EE5AF606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Farewell North - приключение, направленное на иссл�
 ```bash
 magnet:?xt=urn:btih:6131F1F654FCCFFAE20537F7AE3965793027943B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Tiny Glade – это спокойный и даже местами медита
 ```bash
 magnet:?xt=urn:btih:D5C3129656B777C31EDDD8EEB5BE4EEB371A1483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ GOAL! The Club Manager (2022) [Multi] (0.8.0.1) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:215AA9295FC80092F6B869720499E45BE0D6B415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Mechabellum - это эпический автобаттлер в научно-�
 ```bash
 magnet:?xt=urn:btih:6C70028A616B5043A10EA186E5B719B45091D9C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Paper Ghost Stories: Third Eye Open - это сверхъестественно�
 ```bash
 magnet:?xt=urn:btih:55C7568405D2E1D76F19D22EC24D82A88A4FFAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

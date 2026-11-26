@@ -22,8 +22,7 @@ Zepparella - Zeppelin Forever (2025) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:F21C1398E9B85207E75EBB6B36D19EA335996822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

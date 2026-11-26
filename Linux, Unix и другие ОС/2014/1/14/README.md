@@ -21,8 +21,7 @@ Netrunner 13.12 Enigma II [32bit, 64bit] 2xDVD
 ```bash
 magnet:?xt=urn:btih:E40A56CB979E96634EFF86DD328A75D4980C874B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

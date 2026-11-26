@@ -28,8 +28,7 @@ The Prophecy23 - Green Machine Laser Beam (2012) [MP3|320 кб/с]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:018E2935E30932767B280B07E8DB5F01827C3DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Forsaken - Beyond Redemption (2012) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:B34B2EC83DB2F19E5E03EB31730A17327B7F6CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Van Der Graaf Generator - Alt (2012) [MP3|320 кб/с]<Progressive Rock, Art Roc
 ```bash
 magnet:?xt=urn:btih:87D7DCC881FFFB056D492F6107BF4A3204B26239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Poparzeni kawa trzy - Musculus cremaster (2010) [MP3|320 кб/с]<SKA>
 ```bash
 magnet:?xt=urn:btih:83201E97C0D013F568C2370F00EA6B048AEC64E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Metal Hammer Collection (2СD) (2000) [MP3|320 кб/с]<Gothic Metal, Doom/
 ```bash
 magnet:?xt=urn:btih:4ED99029BAF6D9253D1DF4F5A11A09DA4984533B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ AC/DC - 41 Albums (1988-2011) 27 Singles, 14 Promo CD [MP3|320 кб/с]<Hard roc
 ```bash
 magnet:?xt=urn:btih:F8E34938E391166B6FF6B13C1F831E8FD7B49BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4367EF4D0558255346B4D59F646CFE3755A52615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

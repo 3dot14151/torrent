@@ -21,8 +21,7 @@ VA - Vanlife Moods, Vol. 3 (2022) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:2D957EBE906A57566C4F1F800D85E28F9FABC84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Speech объединяет все функции синтезатора реч�
 ```bash
 magnet:?xt=urn:btih:998632DDE58A3CD89FCBBBFF31B47F2E24C7CC30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 2 (2021) [AAC|~311 Kb
 ```bash
 magnet:?xt=urn:btih:60B9B1E166BAE41F6A291F53F05B3F1F9B0835F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Disconnected - We Are Disconnected (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 ```bash
 magnet:?xt=urn:btih:800316DAB404B25D39D212DC390E55929391A0D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:58357CC6DB3457209734690CA5F22ECCCD77ED7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Sparadise Lounge, Vol.3 (Boutique Spa Chillout Vibes) (2022) [AAC|~325 Kbps
 ```bash
 magnet:?xt=urn:btih:EB9503E052395085099839B2A08B35DBFC05BACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Sparadise Lounge, Vol.2 (Boutique Spa Chillout Vibes) (2022) [AAC|~297 Kbps
 ```bash
 magnet:?xt=urn:btih:FA8E20C25EA4D38FBF29EE463C5E9159207CCF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Across the Ocean (Lounge Collection), Vol. 1 (2020) [AAC|~320 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:321801B9714435C3D7C553D6EF301EB78226038C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01A018B1F7632D8B5032A0708E36719E7C0D2F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C2D883BD5D1B784007FD4C9FB3D1020E9686683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:439C1708298DB8F08A968A60D83E8CA7D4829907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AFD096406F404C0A35285B2E12A0450F6B04C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Heights of Lounge (2019) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F3586A8F5CF43F6F238DA0B5213EC3246D828343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Moss - Cthonic Rites (2005) [FLAC|Lossless|tracks + .cue] <Sludge Metal, Drone D
 ```bash
 magnet:?xt=urn:btih:4C66A179578137486A46C797832A0B53012A21D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Alice Francis - St. James Ballroom (2014) [AAC|~310 Kbps] <Neo Charleston>
 ```bash
 magnet:?xt=urn:btih:898EBC05DC907721E569CEB76EB9298211942D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ VA - Across the Ocean (Lounge Collection), Vol. 4 (2020) [AAC|~333 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:FA6E500A00105C737A148EF53B1C336CA99A94A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ VA - Lakeside Chill Sounds - Spring (2022) [AAC|~312 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:40CF57C016D3C13C350A708DCF235F315FD07CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 3 (2021) [AAC|~317 Kb
 ```bash
 magnet:?xt=urn:btih:577FC990522F34738ED2F149F1FCED6C648EE65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Dream Widow, Foo Fighters - Dream Widow (2022) [AAC|~331 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:38A53A0D48A0E1444F89923C9E5459DC177138A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ VA - Electro Swing Elite Compilation 2016 (2016) [AAC|~309 Kbps] <Electro, Swing
 ```bash
 magnet:?xt=urn:btih:F3F67179CF6AF9A759694385220403A9EBAAC85E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ VA - Across the Ocean (Lounge Collection), Vol. 2 (2020) [AAC|~320 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:976D1ED152AF9B8129FFFA20FF7267F8B76C3BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ Alice Francis - Electric Shock (2017) [AAC|~282 Kbps] <Neo Charleston>
 ```bash
 magnet:?xt=urn:btih:78A0708C958680E5D374279DA1A1A3B6CC6685D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ VA - Vanlife Moods, Vol. 1 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:3014DA7E84AC356C46FD5B7FFF712CF1012075C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ VA - After Work Chillout, Vol. 2 (2018) [AAC|~324 Kbps] <Lounge, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:89B6300B9DDD87CBA81AE227FAD145E382052BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 4 (2021) [AAC|~317 Kb
 ```bash
 magnet:?xt=urn:btih:8C1655B7C54339FEBD4F66A5F99E458919484707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ A Ride to Heaven - A Ride to Heaven (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:77C59E1E5F20C8DF9F3E6D114E834ACD2371FE66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

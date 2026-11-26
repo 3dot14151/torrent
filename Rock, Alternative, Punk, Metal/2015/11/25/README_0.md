@@ -22,8 +22,7 @@ Bryan Adams - 18 Til I Die (1996) [FLAC|tracks+.cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:0955A7AED2270354265A69680FE6EA72964DE016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Snakes - Once Bitten... (1998) Unofficial Release [FLAC|image + .cue]<Hard R
 ```bash
 magnet:?xt=urn:btih:B5C9CD273DDA2579A8C5597EB993E393D8D3FA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Other (Additional Keyboard Ideas) – Max Hunt
 ```bash
 magnet:?xt=urn:btih:315908469C44DF28359986852AA5B4DE42972E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Who - Live in Hyde Park 2CD (2015) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:A5A64E8D10ABD92F0E1D7B64C938A24024D738BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25DF53B45D26E6AA1399C62244BBD98F04327D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

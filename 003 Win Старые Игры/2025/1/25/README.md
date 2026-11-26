@@ -19,8 +19,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.080.00) Repack R.G. Ме
 ```bash
 magnet:?xt=urn:btih:5F3DD59865DCF9D6A8173884441BF7F7B65ED13F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

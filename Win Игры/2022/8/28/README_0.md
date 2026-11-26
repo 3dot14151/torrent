@@ -19,8 +19,7 @@ Saints Row (2022) [Ru/Multi] (1.1.2.4376604/dlc) License FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:599C07671A30AE829DCE8871BBF8179F0DA6F86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Islets (2022) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3F092139EFAC2D8C60C1DBA232830F8D8B70E78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

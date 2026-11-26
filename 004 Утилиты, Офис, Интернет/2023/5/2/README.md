@@ -19,8 +19,7 @@ EveryLang - маленькая программа с большими возмо
 ```bash
 magnet:?xt=urn:btih:B05F463F20701652075A35E9EAADE24FFAD005E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aiseesoft PDF Converter - конвертер PDF в TXT, Word, RTF, EPUB, HTML, 
 ```bash
 magnet:?xt=urn:btih:9A014C68A0C83BF772DF81684B28809C77542BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

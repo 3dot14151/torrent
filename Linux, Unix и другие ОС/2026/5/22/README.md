@@ -20,8 +20,7 @@ CrossOver создаётся компанией CodeWeavers на основе и
 ```bash
 magnet:?xt=urn:btih:6D1255CD9A64234EA9F520650C8155EB85E0D021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VMware Workstation Pro™ позволяет техническим специа
 ```bash
 magnet:?xt=urn:btih:6E77BF9545E854B97CC0B8A0BE08AC4E6461F402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Tor Browser 15.0.14 [Multi/Ru] (tar.xz)
 ```bash
 magnet:?xt=urn:btih:8451F130E2435BD108B31BFA5159E923F45E5297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

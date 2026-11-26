@@ -19,8 +19,7 @@ The Weather Channel - полезное приложение отвечающее
 ```bash
 magnet:?xt=urn:btih:B6D4118C5EA034F77C69D48D71FD811C8DEDBD33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ MAPS.ME: Offline maps GPS Nav 14.0.71356 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F2D266F3E95FEDD2557A181BDBA4268F2595CC36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Ocean Of Sin - Lie Goes To Hell (2014) EP /Авторская раздача/ [F
 ```bash
 magnet:?xt=urn:btih:0F6759A6765B7875BCD657A667BDA6161EE9BFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

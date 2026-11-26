@@ -19,8 +19,7 @@ MechWarrior (1989) [En] (2.1.0.4) Repack Necros
 ```bash
 magnet:?xt=urn:btih:F4BD79823FFD20E6DA2FB6C671E194B86D977125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

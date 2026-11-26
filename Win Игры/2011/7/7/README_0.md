@@ -20,8 +20,7 @@ ________________________________________________________________________________
 ```bash
 magnet:?xt=urn:btih:0DDF60381200D6DCAD3F3E1B21481F802890AAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Pride Of Nations [Ru/En] (RePack) 2011 | MIHAHIM
 ```bash
 magnet:?xt=urn:btih:A1DB50C934EFA8BE1EFF0B7305BEC7B1DC131C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

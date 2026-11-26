@@ -18,8 +18,7 @@ VA - 200 Зажигательных Хитов 2 (2010) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:66D25922F9571787370BFA4793C457579FD49B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ VA - US Top 40 Single Charts (20.11.2010) [MP3|162-320 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C3B9F78D712744E42AE6C09E2C5A6CB8ABFA438D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ VA - Screams Of Hell (2010) [MP3|320 kbps] <Psytrance>
 ```bash
 magnet:?xt=urn:btih:3D71E563A65E4A6D14E6F1D80B68C325D98542B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Paul Bley - Turns (1964) [FLAC|Lossless]<free jazz, avant-garde>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:768E6659CBC2E50B094B09368176545B4F871750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Alienapia - Goapocalipsis (2010) [FLAC|Lossless]<Goa Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Agate - Black Soul (2010) [MP3|320 kbps]<Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Хит на все 100% Volume 7 (2010) [MP3|320 kbps]<Trance, House, Club,
 ```bash
 magnet:?xt=urn:btih:93CFD1E3CFC7CB726506D2F16E6F925106546476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Joanne Shaw Taylor - Diamonds In The Dirt (2010) [MP3|320 kbps]<Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:A54F7561143060E5D4D28AF45C06C5066335835D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ Urban Jazz Coalition - Gravitate (2010) [MP3|192 kbps]<Jazz/Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:E9E8E3EDAA1A3450A7A1E3945BB42BAA0F38108B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ VA - Фестиваль авторской песни "Саяны 2005" - 1 от
 ```bash
 magnet:?xt=urn:btih:66C1D364F6E4462CC81DDA1D4A3D7E7BEB3035EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ Ferry Corsten - Global Dance Session (20.11.2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:E8FC23044DDBEE74253104C4B106B6392C1C35FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ Blindside Blues Band - Raised on Rock (2010) [APE|Lossless]<Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ VA - Sexy Lounge Vol.1 (2010) [MP3|320 kbps]<Lounge, Downtempo, Lo-Fi>
 ```bash
 magnet:?xt=urn:btih:E3272A72FF8140673D8047B13EE760417DB355A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2033459E4580EB4929D236A54658C60F119B58B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +475,7 @@ VA - Dinamit FM: D-Чарт TOP 30 (13.11.2010 - 19.11.2010) [MP3|128-320 kbps]<
 ```bash
 magnet:?xt=urn:btih:62F159C89A8A636D9A3FBCEE935B464B1510010F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87ED2278510104E968BD2D48FDFF54E8D1925AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ Art Blakey / The Jazz Messengers - Indestructible (1964) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +561,7 @@ Process Lasso Pro - небольшая утилита, позволяющая в
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ VA - Record Super Chart № 166 (2010) [MP3|194-320 kbps]<House, Electro House, 
 ```bash
 magnet:?xt=urn:btih:393637626E497D3233B8B39D59367BBA80F45491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ ZipGenius Portable - портативный архиватор. Программ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ Mingus Big Band - Live At Jazz Standard (2010) [FLAC|Lossless]<Big Band, Post-Bo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ Aspera - Ripples (2010) [MP3|320 kbps]<Progressive Metal, Melodic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +738,7 @@ Defraggler - бесплатная программа для дефрагмент
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

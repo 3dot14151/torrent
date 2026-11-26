@@ -23,8 +23,7 @@ Debian GNU/Linux 8.0 Jessie (Testing) [i386, amd64]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

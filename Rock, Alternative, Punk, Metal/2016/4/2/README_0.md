@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:4A55405FAD32195A0F092AA9522BECFEA9122452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Otherside - Начало (2016) [MP3|320 кб/с] <Alt. Metal, Metalcore, Nu
 ```bash
 magnet:?xt=urn:btih:9FB71468A149922FA91559DD0028BF10C4B7ED08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ PRAVADA - Мечтать (2016) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:AB88BFDD86550227F9A75A4B5CA836627C8E6F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFE6EC8909DDCF6F46EFAC36378F561CAC142ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ DORO выпустла новый сингл, "Love's Gone To Hell", первог
 ```bash
 magnet:?xt=urn:btih:49953E2D8DCB7B2BEED4B76D5DB6CAC2AFFE2085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Royal Hunt — англоязычная рок-группа из Дании, о�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

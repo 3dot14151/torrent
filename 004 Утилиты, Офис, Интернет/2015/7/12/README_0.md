@@ -19,8 +19,7 @@ Compare Suite - это инструмент для сравнения файло
 ```bash
 magnet:?xt=urn:btih:291159BDB40390ED51B76592C9F40F90206A9807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

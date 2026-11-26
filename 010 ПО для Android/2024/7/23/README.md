@@ -20,8 +20,7 @@ Gif Me! – это лучший способ сделать из коротко�
 ```bash
 magnet:?xt=urn:btih:DB6DCE2E9F2EB792DE8EE1E5A7621DF836137A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

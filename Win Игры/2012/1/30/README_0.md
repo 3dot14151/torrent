@@ -23,8 +23,7 @@ Full Spectrum Warrior Дилогия [Ru/En] (RePack) 2004-2006 | Sash HD
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Air Conflicts: Secret Wars / Air Conflicts: Secret Wars Асы двух войн
 ```bash
 magnet:?xt=urn:btih:3DDE2E10EAC74120DA240F84CCC309E289F8DE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Sonic Before the Sequel [En] (Р) 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Sonic The Hedgehog 2D это фан-игра по Некст-Гену Sonic The 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

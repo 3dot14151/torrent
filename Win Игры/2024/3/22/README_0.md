@@ -19,8 +19,7 @@ Knight Cats 3: Whisper of the Universe (2024) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:7974A562B4D86A0E19069569C9A42C3FDB21B484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9E888E4C7767B01133AE6E5ADDA562E5D2E6920A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A Twisted Tale – приключение, игровой процесс кот�
 ```bash
 magnet:?xt=urn:btih:B9741FD60CE69451F8614EBA1BE674D24995B0D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

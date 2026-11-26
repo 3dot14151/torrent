@@ -18,8 +18,7 @@ SolveigMM Video Splitter - редактор для MPEG-2, AVI, WMV, ASF, MP4, M
 ```bash
 magnet:?xt=urn:btih:A1C02F7F76217A0290A014F4697B553F62B9CFA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Inspire Slideshow - это элегантное, модное и совреме�
 ```bash
 magnet:?xt=urn:btih:40A71A896E2508F0820E877AFC81E97C170854C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C745FF0B8B3C9D2C51C77B4FB29890A5DF342C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:C77D5DCDA7F10603C3F09BE7F2774406AEBA97A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Edge Of Reality: Ring Of Destiny / Край реальности: Кольцо �
 ```bash
 magnet:?xt=urn:btih:D7F95D0C1CF4F857A59E35981C943DC016821507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Remixed By Steven Wilson (96/24 Stereo LPCM, DTS-HD MA 5.1)
 ```bash
 magnet:?xt=urn:btih:16597DC706D6221599C01E95D9832CF8051EA4CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:7BA08897B50636F8BEDFE23B40E2F893A6004F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:870B7425A370E8C5DD76B1B5C2607609B17BEDF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE1F55BC419042BC40EEFCDCA95EFB9B2F6E2AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4072CF84508C1624E316E92D4DDEBCA0E905F71F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Solar Fields - Mirror's Edge: Catalyst (2016) E.A.R.S. (EA™ Recordings) [FLAC|
 ```bash
 magnet:?xt=urn:btih:77D5EA8A38C7FC4A7E61F9AB28C8F9E6B9656D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Tекстовый редактор QuickEdit оптимизирован под �
 ```bash
 magnet:?xt=urn:btih:E3DF9ABE338C641ED55275C195F9113A11015ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ TeamViewer устанавливает подключение к любому к�
 ```bash
 magnet:?xt=urn:btih:DD8AA9094CF87D2984738B3D156FEBF67E25501A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1264BD0AC4285BA7EE7C59105490AF44B6D0E1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Interactive Calendar - легкий в использовании календа
 ```bash
 magnet:?xt=urn:btih:D7D89E3DE9654EE829A7680E9E367AA0B1ACB793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:47D196DAB4B43037AC584D76EA1784A0D35CA873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ ApkCrack 0.7.1[Ru]
 ```bash
 magnet:?xt=urn:btih:12FB95748314503769E541ECBBC745A9E92F835C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Easy2Boot - инструмент для создания мультизагру�
 ```bash
 magnet:?xt=urn:btih:8CA7EFE6B5804EB9FD7F5DE16F5DDFAA4226D995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ HDScape: Морские виды: Исследования / Visions of the Sea:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9C3DC440D0EC919E6BE07B5A521855057368628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ Dr.Web Security Space предлагает комплексное противо
 ```bash
 magnet:?xt=urn:btih:345DC1CF725B7106E28003FA5D66E746C517BEAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ Battery Doctor (Battery Saver) 5.23 (build 5230006) [Ru/Multi] - Професс�
 ```bash
 magnet:?xt=urn:btih:9FF1EFE9E8CF3B5BCE020760D579FD62BD9F522B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ John Digweed - Transitions 541-591 (2015) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:FBC87195CC84F48B666CCFCD4483C3ACCD2AE644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +606,7 @@ Fragile — четвёртый студийный альбом британск�
 ```bash
 magnet:?xt=urn:btih:9A8A44649F0DB34A078ADDE778031A9618A50311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B7C6156D19E09E053AC572A2E20BFF87B33E05F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +656,7 @@ Opera Developer является передовой ветвью разрабо�
 ```bash
 magnet:?xt=urn:btih:C5BEA851EFFB8624847CC3575A0B48A8ED9C86ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -25,8 +25,7 @@ Clouds Arrived - Into the Depths (2013) [MP3|320 кб/с]<Instumental Post Rock/
 ```bash
 magnet:?xt=urn:btih:6AE9A76FAC8402687B787717A8B98DC48B628E89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Jono - Requiem (2013) [FLAC|Lossless]<Progressive / Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:CEB1FFECAF75981D1B3849E48F8AB0D58EE62C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Jethro Tull - Original Masters (1985) [FLAC|Lossless]<Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:9A6FB86D87274DA214B71EFF6657F8C9D47698F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ The Blue Effect (Modry Efekt / M. Efekt) - 1969-1989 (9CD boxset / remastered) (
 ```bash
 magnet:?xt=urn:btih:604B52398581B0B819D5E6FD8B93510306EA50B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ VA - A Tribute To ABBA (2001) 2003 Irond [FLAC|Lossless]<Metal>
 ```bash
 magnet:?xt=urn:btih:F8312FF457C05ACEF689E3C7BDB30F8C0E89CEFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ The Mars Volta - 2 Альбома 1 Сингл [MP3|192, 320 кб/с]<Progressiv
 ```bash
 magnet:?xt=urn:btih:C23C38E4915575CEC36790B1C9E37D6CEC5E30B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

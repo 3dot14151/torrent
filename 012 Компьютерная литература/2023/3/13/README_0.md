@@ -21,8 +21,7 @@ Sourabh Mishra | Practical Highcharts with Angular, 2nd Edition (2023) [PDF] [EN
 ```bash
 magnet:?xt=urn:btih:48A42756C0E6FA12AEE168A9A96917C4DEA3132F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC59400D27887270E532096FB8585F6BE62A45E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

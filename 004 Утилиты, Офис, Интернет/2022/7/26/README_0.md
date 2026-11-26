@@ -20,8 +20,7 @@ Office Timeline - Перед вами программа, которая пре�
 ```bash
 magnet:?xt=urn:btih:34AC70DACD653CCC5182DB3E3A334B9F4AC13767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

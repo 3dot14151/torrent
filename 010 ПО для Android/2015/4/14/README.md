@@ -19,8 +19,7 @@ CreeHack 1.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:813E23D74E8B3DCB4E45536D1B5E0A00C43D9CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

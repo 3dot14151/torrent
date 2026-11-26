@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:52CBCFBF006877AF5AE806CF14BCA2DFD9D2E87D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Zero Degree - Discography 7 Releases (2005-2014) [MP3|320 кб/с]<IDM, Ambient,
 ```bash
 magnet:?xt=urn:btih:452E0343F53109F09705DC2421AA471F3665AA18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ VA - Ibiza 2014 Closing Party (2014) [MP3|320 кб/с] <Tech House, Deep House, 
 ```bash
 magnet:?xt=urn:btih:748BFBE6165F63E90726C2B98F1AECD86143E0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Tervise Arengu Instituut | Рецепты, которые помогут вам 
 ```bash
 magnet:?xt=urn:btih:578C90087901C1A104695BA2D314899F8B0A5DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ The Butterfield Blues Band - East-West (1966/2014) [FLAC|Lossless]<Rock, Blues R
 ```bash
 magnet:?xt=urn:btih:656DEEB3C80E0E16025D4B67FADE91A454FCE9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ VA - Battle Of The Year 2014 - The Soundtrack (2014) [MP3|128 кб/с]<Hip-Hop, 
 ```bash
 magnet:?xt=urn:btih:95ABF4CF80C33359F566D2AFD2346574D6B89E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ Los Indios Tabajaras - 20 Greatest Hits (2001) [MP3|320 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:0800304A5658DB08FEDA64F6BFDA12CBF83BAC5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ Daniel Domb & Carey Domb - Apollo (1997) [MP3|320 кб/с]<Classical Crossover, 
 ```bash
 magnet:?xt=urn:btih:46742684591C4CE8E6E27C520B39766EC218DF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ Tomandandy - Обитель зла: Жизнь после смерти / Residen
 ```bash
 magnet:?xt=urn:btih:BC0F95E24B4685E30D776F25F61877E37BD6AB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:7F76C18DEE7D0EF17CB60C8F55251D761AA3CBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ VA - KnuffelRock 2014 (2013) [FLAC|Lossless]<Top 40, Pop Compilation, Ballad, Po
 ```bash
 magnet:?xt=urn:btih:A6203A041DBDDF01724020108BA351EBBDBA0FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ The Platters - Unchained Melodies (1998) [FLAC|Lossless]<Rock'n'Roll, Rockabilly
 ```bash
 magnet:?xt=urn:btih:047E9AECADBA1062C561519BAC203EBC10531D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ Travel Channel: Чудеса планеты / Earth Wonders (2010) HDTVRip (Се
 ```bash
 magnet:?xt=urn:btih:FEA6BC1A33EA98376F7270CBE3CEF3F67E34EE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ You+Me (P!nk & Dallas Green) - rose ave. (2014) [FLAC|Lossless|WEB-DL]<Pop, Indi
 ```bash
 magnet:?xt=urn:btih:DD1F67C20F4AD0C10FEBAC8FB60920CC18EA6B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E13D5F3F6BD3B01259A293018CB0157C9FDF993B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ Charlie Clouser - Обитель зла 3: Вымирание / Resident Evil: E
 ```bash
 magnet:?xt=urn:btih:B85470E8C0FD17B6CB40F2D312687B510228FD6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:427F235B7B45FD325001D489B483D32471427FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ Calibre - программа для конвертации и хранения �
 ```bash
 magnet:?xt=urn:btih:6007D65D77FFB9559983F8530F36FFBFD2331426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +561,7 @@ Utah Jazz - Groove Therapy (2012) [FLAC|Lossless|WEB-DL] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:721E2B56B992A943952AA6A01F9FF2CD928F7040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B088820DD7D4EE03893FB64608F4A81ACDACD0C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ Edward Simoni - Melodien Meines Herzens (2014) [MP3|320 кб/с]<Instrumental, P
 ```bash
 magnet:?xt=urn:btih:3AA6B724736DDA20716A0F62BEC0EC52A96E95F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D16EC6AE6AF4FAB496B0193A0FA056B1E224266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ IObit Uninstaller - поможет вам быстро и без усилий у
 ```bash
 magnet:?xt=urn:btih:C774F00443D2FD94C69B4030784941B7A314888A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +704,7 @@ VA - The OKeh Blues Story (2013) [MP3|320 кб/с]<Blues, Rockabilly>
 ```bash
 magnet:?xt=urn:btih:2E9178EA58A78EC5CD8D1D0F9186AEECEFB771F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A2ED2C6E0DB2C507CBCA78079BC4543AC375A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34FD0DC08D96EE9B08C124E5E3ED9096D786CFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:E9157C1D340DFBDBA7C7FA4D10421620784F51B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 ```bash
 magnet:?xt=urn:btih:4C702F334D57DFC0D44FE415ECD1DE9F67A71603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Kalmuri не имеет встроенного редактора изображ
 ```bash
 magnet:?xt=urn:btih:DEE9601290F37FFE3DC4E9EDE0706CFB50419B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:505A87784CB114C0647AB059495DA84063FE5713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:AFF188C66BBAE3971A1776C6A96EA1552449B677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 ```bash
 magnet:?xt=urn:btih:D17881A6D98C97C56C75E50EB60A0AADAAD18CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

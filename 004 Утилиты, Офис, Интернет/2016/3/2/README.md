@@ -19,8 +19,7 @@ ObjectRescue Pro - универсальное решение для восста
 ```bash
 magnet:?xt=urn:btih:FACB33327AFDE0177FC45F5503BA4C73EE5A1398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

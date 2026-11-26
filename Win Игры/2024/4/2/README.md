@@ -19,8 +19,7 @@ Necrosmith 2 - продолжение знаменитого симулятор�
 ```bash
 magnet:?xt=urn:btih:ABEB6369B0EDFD3AC622B0E96B36219CE636A2DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Knowledge, or know Lady / Ladies School Prince (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3E0E4B1D2E7784543A93A952EB7FBF2A9A06920A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Distant Bloom – постарайтесь восстановить некогд
 ```bash
 magnet:?xt=urn:btih:B66A6433020D37EA88A5AD6876B07911C18E2727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Aquarist - иммерсивный симулятор, позволяющий п�
 ```bash
 magnet:?xt=urn:btih:2C4B431500E8AD71C111AA5F8BBD026CCBF140C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tactic Boxing – откройте двери стилизованного ми�
 ```bash
 magnet:?xt=urn:btih:92C16B5605D5B841477AD011A1E67D395EC46C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Between Horizons - это крутой 2.5D приключенческий де�
 ```bash
 magnet:?xt=urn:btih:B3E91B82F0376EE9AB547D469560B5290A39AD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

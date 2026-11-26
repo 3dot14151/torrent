@@ -19,8 +19,7 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) License GOG
 ```bash
 magnet:?xt=urn:btih:AD37CA8EE1E7468175B2482DB44A4CFCF2CF490D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

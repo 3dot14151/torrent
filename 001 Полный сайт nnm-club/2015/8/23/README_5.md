@@ -18,8 +18,7 @@ Da Vinci Learning: Плазма: новая заря / Plasma. Ultimate Aurora (
 ```bash
 magnet:?xt=urn:btih:D13E98D278C3C1552E7159C1CDD1DB640D6A56CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DC165B69D1954E732E17EFAB91B65873C292261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58F7BAEB9519702DAD724E484DAEA8BDE7B4CB7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:857AEDADF36C3AAD598692F4212F6A782B95FBD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Rollcage Stage II - продолжение футуристического ав
 ```bash
 magnet:?xt=urn:btih:8F8FD880948CD61772FF5E7802B67966449906DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7563EA281351D60F4BDC6626595C94E2889E2F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Miranda NG — преемник популярного мультипроток�
 ```bash
 magnet:?xt=urn:btih:F53A32C4473222EF4A012627396DF515544341CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ KeyShot представляет собой средство интеракти�
 ```bash
 magnet:?xt=urn:btih:6D57AC29CFC476D8E9E7310E4C16B3343B28A186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:2C6F21BE2B64229F09673A0026612B670C6AFC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 ```bash
 magnet:?xt=urn:btih:FFA594FDAF15502ECFD2E16F7D920EE395823EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Everlasting Summer OST (2013) [FLAC|Lossless|WEB-DL]<OST, Score>
 ```bash
 magnet:?xt=urn:btih:49EE328EBC435B0673F0C17AAFD72F0C3AF9BF90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Cмурфы - это маленькие синие гномы, придуман�
 ```bash
 magnet:?xt=urn:btih:1F4C6716A7A3517B1DB80D6832928ADA19ED0915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ WebGL является новой веб-технологией, позволя�
 ```bash
 magnet:?xt=urn:btih:C3ACAB1020387CFBEC5E15ED92C26500337000B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:698E3E68B6C22BA2338EA4D80EF3FCBE97DAB801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Truck Nation (2014) [Ru/Multi] (2.1) License
 ```bash
 magnet:?xt=urn:btih:06FA14F83A8CED341C0D0E7C94064D8C12FFCA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ X-Lite 4.8.4 Build 76589 [En]
 ```bash
 magnet:?xt=urn:btih:D35D41AC464A0EDE65C197B6011D0813C10C30DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ Destroy Windows 10 Spying 1.5 build 300 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0B3EF0C5A404D41E966B5E825DA81F0AA1E564E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:693FA7F0D2677FB7ECEC7776BA9C596C310EF9D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F243E7DEB674F75187FA1E0691B5E26C299CF78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Dengeki Moeoh это аниме журнал с постерами и офици
 ```bash
 magnet:?xt=urn:btih:FE306024ABB315D61B910EC3C01F4717BDA21AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ Unheilig - 10 альбомов, 13 синглов, 3 ЕР, 5 Live, 5 компи�
 ```bash
 magnet:?xt=urn:btih:770DF8FDED2429D3B1AB3DD0D1E105658B12E823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1518936B62EA8EE7D408381C342A91336D259F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ Massive Chalice – это тактическая стратегия в эпич
 ```bash
 magnet:?xt=urn:btih:7C0C74798471DCF909B704C48F4E19F7AF252966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +606,7 @@ Sir, You Are Being Hunted (2013) [Ru/En] (1.3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3520073502A2E694766A22ED604F5DD71C71F7B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A684941C969D026207D444CA9325C601D881E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +656,7 @@ Serious Sam 3: BFE / Крутой Сэм 3 (2012) [Xbox360] [RegionFree] [FreeBo
 ```bash
 magnet:?xt=urn:btih:DB00B52E7D01D357DD896161953CC846B8ACBC0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

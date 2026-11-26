@@ -20,8 +20,7 @@ Aliens: Infestation [En/Multi8] (RePack) 2011 | EdCarnby
 ```bash
 magnet:?xt=urn:btih:DAD180EC54FF47B904AC4D4D6C544094F0B8DA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9CC949AF9994C3D4A58C07C5195864BC477EC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Loki: Heroes of Mythology [Ru/En] (RePack/1.0.8.3) 2007 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:6E84DA36BF19D684ADE829320E06BB88F3B865ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

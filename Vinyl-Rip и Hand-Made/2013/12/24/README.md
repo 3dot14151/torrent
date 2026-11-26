@@ -28,8 +28,7 @@ Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987
 ```bash
 magnet:?xt=urn:btih:0159D5A7AE17443E0DAE7B4D42D238F2A89D1A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|
 ```bash
 magnet:?xt=urn:btih:728CC25AEF93BBB5964D3C2875ACBAA18C051813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

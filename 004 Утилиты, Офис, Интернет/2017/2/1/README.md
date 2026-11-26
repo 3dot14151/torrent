@@ -19,8 +19,7 @@ Zan Image Printer - программа позволит вам легко кон
 ```bash
 magnet:?xt=urn:btih:5D7D5DD980BDD58E0A5618A1F2D18736322E8A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

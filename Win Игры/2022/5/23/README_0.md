@@ -19,8 +19,7 @@ Lacuna - A Sci-Fi Noir Adventure (2021) [Ru/Multi] (1.3.0.1) License GOG [Save t
 ```bash
 magnet:?xt=urn:btih:0C073FDCC9DFE2DC036F0F1FBB03FFC19212EC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3AB4210A7841DF793EEEFAFDAF18D6D248755A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Delano Athias | Getting Started with MEL in Maya (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:95C6FB6AAE8F7B7988BA573A6F531CC660A67F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ VA - Jazz Pop Cover Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:A5D26827E1E82FB1B0A666F059E2BCACA579D39F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ TagScanner — это мощный инструмент для организа�
 ```bash
 magnet:?xt=urn:btih:3E0330CC3A36E2898FF5D37C990166B6A2A78198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ RogueKiller Anti-Malware можно использовать бесплатно 
 ```bash
 magnet:?xt=urn:btih:47BBDEBE98067FB7E26320730962E97A39D51A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Ric Perilano's Disco Sound Band - Sound Of The 80s (Instrumental) (2010) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:BAF78A8A7060A3B606A1BADA62A4D6FC2374E039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:D2A13F2430319D9FC263F99B6E976DA57F264760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5B212271557DA8BAF37B36491D5DA144B6E14FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Tody поможет Вам более эффективно организова�
 ```bash
 magnet:?xt=urn:btih:0B797DF8D82CC019C083056A2E5BFE5637634D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ BluffTitler - программа для создания красивых тек
 ```bash
 magnet:?xt=urn:btih:F27A700ACFC4E5224AEDD3584F82A3111FAA597E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Desktop Calendar – бесплатный календарь рабочего с
 ```bash
 magnet:?xt=urn:btih:E8335D64B7075B44D52FF9FBFBF344A9C304BB59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Tixati — это полноценный и бесплатный клиент с
 ```bash
 magnet:?xt=urn:btih:8705EE681A3C5EE460E1DC25D1340E6CC7D3FAC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 ```bash
 magnet:?xt=urn:btih:210D4EC2BDDFBB4C8D2BEAD65990CF33D94AA795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F5EEB7F16FBB826B9ED9094061D4F26C32A7BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C660AC7717809839528D1B78E698A8C19520C64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Nitro4D NitroSolo v1.07 For Cinema 4D [En]
 ```bash
 magnet:?xt=urn:btih:6CC9C4A7A9B2FD170FBFABF3588CE0C76E8E841D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D961F15CB8FFD892FFD298C51AD3D6F568568B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ Joplin - это бесплатное приложение для создани�
 ```bash
 magnet:?xt=urn:btih:EBF9189323D78E6CB6A38D27BE701C019F1064B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ Any Video Converter Ultimate - предоставляет пользовател
 ```bash
 magnet:?xt=urn:btih:3948662867F03E7322BCFCA774B13C8FBE9934FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ NitroVertex - это плагин, который может создать оч
 ```bash
 magnet:?xt=urn:btih:7A253A44D59FBA09343A1B81BACF35F279C98CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BEE4EC0E5FCF3C09AABAF340C14E781DB89177F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7F0F7FA7084B80534893B0CAC85A478393F8F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +582,7 @@ Nitro4D NitroRelax v1.05 For Cinema 4D [En]
 ```bash
 magnet:?xt=urn:btih:71D9D3EE0E619B32DBBDE3D8984E7A982CD054B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ Nitro4D NitroMoFracture v1.06 for Cinema 4D [En]
 ```bash
 magnet:?xt=urn:btih:F1C61CEC7BBD75500E21633DE949725DC5AC7A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ VA - Rap NNM 2021 (Русский Выпуск 3) [MP3|320 Kbps] <Rap>
 ```bash
 magnet:?xt=urn:btih:D3CB6BEAFCD373BA6364244A90092F86B4B5B296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +661,7 @@ NitroDraw - это плагин с которым можно осуществл�
 ```bash
 magnet:?xt=urn:btih:202651D97C6EAA28F90BA6B26B69DB40DC1F41E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fallout (1997) [En/Cz] (1.3.4) Repack
 ```bash
 magnet:?xt=urn:btih:F379FB786F5ACD1FA5539ADC7CCAEC071888F3EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

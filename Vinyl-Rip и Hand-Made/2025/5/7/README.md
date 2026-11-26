@@ -22,8 +22,7 @@ B2 Meticulous Soul Devourment(   Читать дальше...   )Жанр: Death
 ```bash
 magnet:?xt=urn:btih:9719182439FBF2997A2730134A356A4698923EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dissentient - канадская метал-группа из Оттавы, Он
 ```bash
 magnet:?xt=urn:btih:7B0E7BE7295FF703BAC699862AFC7021626D834F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:4149C489DF7C8DE0398E594666B43F3E53BE6E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Tormented(   Читать дальше...   )Жанр: Progressive, Technical
 ```bash
 magnet:?xt=urn:btih:F493BAABCC128DFF80E1F6AE8D47D80A016635B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ B1. Ocean of Malice (04:42)(   Читать дальше...   )Жанр: Avant-G
 ```bash
 magnet:?xt=urn:btih:520683272C3DF6F488C4F90A273D58022D645F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

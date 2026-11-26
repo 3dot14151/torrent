@@ -19,8 +19,7 @@ Baldur’s Gate Trilogy (сокращ. BGT) - мод для Baldur's Gate II , �
 ```bash
 magnet:?xt=urn:btih:28F90B7914117E58399C50F985C24694A66B1E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rayman Forever (1999) [En] (1.21) License GOG
 ```bash
 magnet:?xt=urn:btih:2931AD551FBB383A99D3D175C7EB0D6B213482DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

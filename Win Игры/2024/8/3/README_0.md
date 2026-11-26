@@ -19,8 +19,7 @@ Enchantment 2: Sun's Tear (2024) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:FBA4979AB5B0C5D85FD1A5D0D78951D0B10419D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Oblivion Override погружает в постчеловеческую эпо�
 ```bash
 magnet:?xt=urn:btih:681750EE7F5104FBE93762D0D4161EAC8705AAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BioGun погружает пользователей в микроскопиче
 ```bash
 magnet:?xt=urn:btih:C9C6CCFBDC1EFAB4DBF17473463E2C74B92DD2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack Other s
 ```bash
 magnet:?xt=urn:btih:45D7C4D4254334C792F08FF6F7512C89DC7D7F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AE6769677AC417C15E255285850D42427FEF5463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F088C7B82DABCE4865C740BF684B1793C90A2EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Great Houses of Calderia с головой окунает вас в жесток
 ```bash
 magnet:?xt=urn:btih:FE4035DF7DF2E54938CE678D14CB066EEC89FCB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Back - это игра ужасов с полным движением и жив
 ```bash
 magnet:?xt=urn:btih:D37019452A240F21A36FD4F3CD9AAB4F7E319E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mini Airways (2024) [Ru/Multi] (0.8.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A0BFDC5B98F5409EECB5CA70A2757C5833BBDF4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FBAA93A6DA539082E48CE60BBE51AD0C287EC8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Tomba! Special Edition предлагает ностальгический по�
 ```bash
 magnet:?xt=urn:btih:F98224BE2CACFD467C45A9EDF8B4C3BF501D2661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ First Cut: Samurai Duel - это хардкорный пиксельный сл�
 ```bash
 magnet:?xt=urn:btih:786091EAAEBC1FA7D31564DB7F21129B93E8486A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:78A7F89042912ACA0BCF9274EE3F8FA7C5C12AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Into The Flames – симулятор профессии пожарного, к
 ```bash
 magnet:?xt=urn:btih:DF24CBA3E98DE6B79852C4A4EFD85698F034F64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

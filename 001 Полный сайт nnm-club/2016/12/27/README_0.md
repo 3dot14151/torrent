@@ -21,8 +21,7 @@ URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mo
 ```bash
 magnet:?xt=urn:btih:FB0B606EE8B57553EF27D23285AA24F8B71CC070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51FA550B3B5F04AB47FEBE96C0CA363B6A5294B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Vocal Trance 2016 New York (2016) [MP3|320 Kbps] <Uplifting Trance, Vocal T
 ```bash
 magnet:?xt=urn:btih:EF6B28C2DC521A689692347CFC08B5C5C2C42784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB3C073B82A8C799BB7F351598815963BF592DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CF0A9421D089B9A56C2A936C4820D601C5DCBC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Joe Brown - The Ukulele Album (2013) 2CD Deluxe Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:8032B7B2B463D8F35BF70503816524FD1AC48907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Devil Doll - The Return of Eve (2007) [MP3|320 Kbps] <Country Blues, Rockabilly>
 ```bash
 magnet:?xt=urn:btih:A4195528C8DD3E6EA70881059377F5DBBFD9921B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ The Neal Morse Band - The Similitude of a Dream (2016) 2CD [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:87B049E26AF84AF0B468DC7B29565410B7E28159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Big Pig - Bonk (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Funk>
 ```bash
 magnet:?xt=urn:btih:2A730AAAEF075076F90E4AF5A03CBF7DE393E446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE232226B4FBD074E4ECB6D1BF44BFBBC9919E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ ProfiMail Go Full 4.19.24 [Ru]
 ```bash
 magnet:?xt=urn:btih:87BFEBDDC1371A40B97F643610CB5E0492DDCAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18280E2F657F65FD748A8CC6CDC2142BDCD2E9D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Neurotech - Symphonies (2016) [MP3|320 Kbps] <Industrial Metal, Symphonic Metal,
 ```bash
 magnet:?xt=urn:btih:F8B5F2D8C6F200F28EF39D61C4C78FCB364B32BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C3AF0B2078B39B58E1E815DCAC2ED7A705A73A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11C4EE583894DFC240F26E25510591F1A56C6C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Big Pig - You Lucky People (1990) [MP3|320 Kbps] <Electronic Pop Rock, Funk, Fem
 ```bash
 magnet:?xt=urn:btih:D14EB332A8C76988FBACF8BEAE5F570B7B13326B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Devil Doll - Queen Of Pain (2002) [MP3|320 Kbps] <Rockabilly, Country Blues>
 ```bash
 magnet:?xt=urn:btih:18489187C4A4D492CB9ABED56FBF4E5F56D2B83D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ Celtic Tribute to Led Zeppelin - Long Ago and Far Away (2007) [MP3|320 Kbps] <Ce
 ```bash
 magnet:?xt=urn:btih:6525D4A5FF54E94E79B937D66080073B346E49D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Liebe - Revolution Of Love (2016) [FLAC|Lossless|image + .cue] <Synthpop, New Wa
 ```bash
 magnet:?xt=urn:btih:D626807268362923C94DE1AA84FDE7BA02898C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ ClamXav — это  достаточной простой антивирус д�
 ```bash
 magnet:?xt=urn:btih:1B5A8B5DADED85235C124FAF33005FC18473C82E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ Noire Antidote - I Know Where The Wolf Sleeps (2016) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:A7E20DC506D43093AB70A720E108F504E10EACE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39FA1D7DE1D67F1D49848C5B2CD015595E207B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ Christine And The Queens - Chaleur Humaine (2014) 2016, Because Music [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:70DACF8C670EF44AC3E32FA53FF75F78133025F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ akaEasyMoney - программа для учета личных финансо�
 ```bash
 magnet:?xt=urn:btih:C64394483043AC911305A789BB5247A953EA2885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

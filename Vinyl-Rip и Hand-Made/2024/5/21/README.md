@@ -22,8 +22,7 @@ A4 Papa Was A Rolling Stone(   Читать дальше...   )Жанр: Reggae,
 ```bash
 magnet:?xt=urn:btih:DD509BA9E5922A29369568083E5D855111810324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Prong — американская грув-метал-группа, образ�
 ```bash
 magnet:?xt=urn:btih:A121860FEDB92B93B2FE2D84776AFA9CF1425DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 - Mayhem - Tear Down The Walls(   Читать дальше...   )Жанр: H
 ```bash
 magnet:?xt=urn:btih:5BDD69A33E6F4F80DD3B0E7FAE0D064A7818CE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Dust Bolt - трэш-метал группа, образовавшаяся в б
 ```bash
 magnet:?xt=urn:btih:63126E6DA01FF2C85A9EC030C270FAFE94841AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DABE81364C483A6F331A7CED205EE18245F17799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

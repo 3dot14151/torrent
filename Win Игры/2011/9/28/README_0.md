@@ -19,8 +19,7 @@ Mystery Legends: Beauty and the Beast - Collector's Edition / Таинствен
 ```bash
 magnet:?xt=urn:btih:4651F1E333A147F69CA398CF6360789573699B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Grief Syndrome - это додзинси-аркада с элементами RP
 ```bash
 magnet:?xt=urn:btih:2EA297B84BF98D47C68CCF159A83C8F4F33D8699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ King Arthur: Fallen Champions (2011) [Ru] (1.0.0.6) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:1FD9045D2EA636FC2602A7AB5B668D07B413CD9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFD258753A350A9313209A99E828982B610E8D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

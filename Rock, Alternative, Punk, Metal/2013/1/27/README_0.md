@@ -28,8 +28,7 @@ Wave Machines - Pollen (2013) [MP3|320 кб/с]<Alternative Rock, Indie-Rock, El
 ```bash
 magnet:?xt=urn:btih:9BDD529A79D504376BF7AB76B371D56A7F9AAEDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Emergency Gate - You (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:66927673D44D0434712674EA858AA7803419CEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:DEDCBF32A4A5C801001693FBECED7FA91CBF6D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Bombay Bicycle Club - Flaws (2010) [MP3|320 кб/с]<Инди-рок>
 ```bash
 magnet:?xt=urn:btih:0A377E5B2AA19B5ABC8ACD20C6D075BABC18FE36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Helloween - Straight Out Of Hell (Japanese Edition) (2013) [FLAC|Lossless]<Heavy
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Theory of a Deadman - 3 Альбома (2002-2011) [FLAC|Lossless]<Alternative R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

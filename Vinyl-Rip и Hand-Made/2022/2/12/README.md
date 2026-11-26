@@ -22,8 +22,7 @@ VA - Мельница: Песни И. Николаева (1988) [FLAC 2.0 24/96|
 ```bash
 magnet:?xt=urn:btih:06220FFA057ABCADE08BD23862E9BB4D72D0C3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

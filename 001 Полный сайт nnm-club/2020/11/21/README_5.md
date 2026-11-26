@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BCA3BBD03C28C91644550EEAFB2CE9EF0F74B9CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Win 10 Tweaker – это небольшая, но очень мощная пр�
 ```bash
 magnet:?xt=urn:btih:B02E50DAD046BC180A52D353235E6CB44718597F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Adobe Photoshop 2021 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:AB24B91A646BDEE2EC50A6B30CC8DB33C335D955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

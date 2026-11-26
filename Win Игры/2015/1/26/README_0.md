@@ -23,8 +23,7 @@ Reign: Conflict of Nations / Империя: Смутное время (2009) [R
 ```bash
 magnet:?xt=urn:btih:086B3E2F27EED03F55A5468CE324AE28FFB74FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

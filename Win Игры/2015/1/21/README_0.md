@@ -20,8 +20,7 @@ Forced - аркадный экшен/RPG с элементами головол�
 ```bash
 magnet:?xt=urn:btih:DDE0CD8117E728963487C2493504B5E8EB248DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Warlock: Master of the Arcane - новая стратегическая игра
 ```bash
 magnet:?xt=urn:btih:D91558AC108E37379F62768B74F844532A8BCC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Forced - аркадный экшен/RPG с элементами головол�
 ```bash
 magnet:?xt=urn:btih:618088A7A2DFB51CA213CBEF3CB7FB21BE783135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

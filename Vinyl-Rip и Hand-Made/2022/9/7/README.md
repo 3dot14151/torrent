@@ -23,8 +23,7 @@ Blackmore’s Night — фолк-рок-группа, основанная в 19
 ```bash
 magnet:?xt=urn:btih:C053294091A78AD79E78FAEA3F3D23B502A1EB28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

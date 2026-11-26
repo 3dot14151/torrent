@@ -19,8 +19,7 @@ Cabela's Hunting Expeditions – симулятор охотника, где в�
 ```bash
 magnet:?xt=urn:btih:A60DFDA638F2FD24777FE03583F18F4FFAABF093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Big Pharma - уникальная стратегия, в которой игро
 ```bash
 magnet:?xt=urn:btih:2B19BDE1A8A58F7B6F17C673143BE930088A1F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

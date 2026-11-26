@@ -28,8 +28,7 @@ FireForce - Deathbringer (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:46B28D421376CAB209A1018BD4022D4DF29493E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Running Man - The Running Man (1972) Reissue /2000, Akarma/ [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:69AAB62375BFA095E050E1F1E096C294E374F6BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Catfish - Get Down (1970) [MP3|320 кб/с]<Blues Rock, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:7D2616441AE047494C30B5BE71F88344FEB4EF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:F3A5F1B056CA365CB7DD9E0FBAD61756CA87DB69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Monuments - The Amanuensis (Limited Edition) (2014) [MP3|320 кб/с]<Progressiv
 ```bash
 magnet:?xt=urn:btih:FFC6DCB6BAB12AEC8C8538204FBC41B2B872B6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Korn - Hater (2014) (Single)  [MP3|192 кб/с]<Alternative Rock, Nu Metal>
 ```bash
 magnet:?xt=urn:btih:32BD0D897115C53EAB6466AB9F46103B4922A614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Monuments - Gnosis (2012) [MP3|320 кб/с]<Progressive Metal / Djent>
 ```bash
 magnet:?xt=urn:btih:207964E5FFD516E2784A476740872EEAEF74BFE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ SBB - Lost Tapes Vol.1, Disc 1 - Impresje (2005) [FLAC|lossless]<Jazz-Rock, Prog
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Slaves - Through Art We Are All Equals (2014) [FLAC|Lossless|WEB-DL]<Alternative
 ```bash
 magnet:?xt=urn:btih:259451518676D17C8B0AD44BEC297C559BAC8BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

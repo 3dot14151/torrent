@@ -28,8 +28,7 @@ Viter - Springtime (2012) [FLAC|lossless] <Folk Metall, Folk'n'dustrial>
 ```bash
 magnet:?xt=urn:btih:5DE091CDFEFC467E2FBCC343A77D514B72BFD81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

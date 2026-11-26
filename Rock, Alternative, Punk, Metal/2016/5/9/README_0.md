@@ -22,8 +22,7 @@ Around The World In 80 Days - Genesis (2015) [MP3|320 кб/с] <Post Rock, Elect
 ```bash
 magnet:?xt=urn:btih:A337E6021A881DA99482DD9A47771B85D607D3C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Celldweller - Transmissions Vol. 03 (2016) [MP3|320 кб/с] <Industrial, Altern
 ```bash
 magnet:?xt=urn:btih:AFEA9E483D1DB59803CA69943FB98672899EE5BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

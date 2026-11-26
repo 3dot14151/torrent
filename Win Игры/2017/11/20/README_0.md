@@ -19,8 +19,7 @@ Among the Sleep (2014) [Ru/Multi] (3.0.1) License GOG [Enhanced Edition]
 ```bash
 magnet:?xt=urn:btih:2FB932955C8DAEA08C48724D34B140EE4F75E14A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Perception – это сюжетный приключенческий хорро
 ```bash
 magnet:?xt=urn:btih:810B0D8291F495F2EF1A2B4E9E6401CA19F75050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blackguards (2014) [Ru/Multi] (1.6/dlc) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:4621407B123302159FFE31E671196C2746647E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Royal Detective 2: Queen of Shadows (2014) [En] Unofficial [Collector’s Editio
 ```bash
 magnet:?xt=urn:btih:81BC0FB16DE4C02EEF0FD1BFBE5365693B7F5BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightmares from the Deep 3: Davy Jones / Кошмары из глубин. Дэ�
 ```bash
 magnet:?xt=urn:btih:7E828CB2B46BEE65EB959C41DE65066EFEE510FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Broken Sword the Serpent's Curse Adventure – point'n'click приключен�
 ```bash
 magnet:?xt=urn:btih:45BD44438460B1351B073E124216E8A8C5A96AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

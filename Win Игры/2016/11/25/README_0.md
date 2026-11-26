@@ -19,8 +19,7 @@ Yesterday / Yesterday: Печать Люцифера (2012) [Ru/Multi] (1.0.0.1)
 ```bash
 magnet:?xt=urn:btih:115C4597CA81EE32D93E2D9053F579F9AA4804D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RollerCoaster Tycoon World - это современное воплощение 
 ```bash
 magnet:?xt=urn:btih:49BEC31B7C2C8C36EC319CC1F561779871C1A5EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

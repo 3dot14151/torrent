@@ -18,8 +18,7 @@ Set A Light 3D - это виртуальная фотостудия, котор�
 ```bash
 magnet:?xt=urn:btih:15D1F12C739215DB5FE9A6E19F05DCCCD452126D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ulysses разработан преимущественно для писате�
 ```bash
 magnet:?xt=urn:btih:6DAE83C7F86FF434D3A2B4F18A07F2AE856A33B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Thief Simulator (2018) [Ru/Multi] (1.2.6) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A749D9F0E8173C20B2181059294C3ADB92EAF38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Book of Demons — это гибрид Hack & slash и карточной игр
 ```bash
 magnet:?xt=urn:btih:B39A848A23C5C52E7CF268718A0FE8080B17379E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ VA - Discover Dark 200 (Compiled & Mixed By Zach Zlov) (2019) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:379FB6C4986F6CEA7CD61E35B371054B59A2B3CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Cooking Simulator (2019) [Ru/Multi] (1.8.0.4) License PLAZA
 ```bash
 magnet:?xt=urn:btih:32CEE1CC9F5590BF17B660B2C944B27CBD0AB682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C6993E2352B39311A7AD8A0B1816C618FC5559C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71B4F1B3D42BF1365D450AB2281A7E03357E75EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8DF792079A844D769AE0AED7C82D6D61A4C6540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Microsoft Windows 10.0.18362.356 Version 1903 (September 2019 Update) - Ориг
 ```bash
 magnet:?xt=urn:btih:C2B3268D01B09938E30F13C8E3D9EDF55D6B65FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [2019, T
 ```bash
 magnet:?xt=urn:btih:9F6F9F943CAA78053204E4DEA776C29145BDAD6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ ARCHICAD 23 это следующий шаг в развитии одного и
 ```bash
 magnet:?xt=urn:btih:538844B6FCB7E102CBA61497F93B6CF757A9C30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Kimetsu no Yaiba / Demon Slayer / Истребитель демонов [2019, T
 ```bash
 magnet:?xt=urn:btih:53D7958AAA5B8CC2EDB912A14C6D1DB5CB80AB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

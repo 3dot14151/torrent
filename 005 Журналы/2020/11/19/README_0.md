@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:90656693719690B12169B3BBEBB1EC97C3B04EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ WOOD - Профессиональный журнал, посвященный д�
 ```bash
 magnet:?xt=urn:btih:7731B3E6745027C25E8D1DCB9D1D5BBEA5229820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

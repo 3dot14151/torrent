@@ -23,8 +23,7 @@ Souleck - Game Over (2015) [MP3|320 кб/с]<Gothic Metal, Alt. Metal>
 ```bash
 magnet:?xt=urn:btih:55E6D5D7793ACCE7324651B7E590EC277097D4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Snakeyes - Ultimate Sin (2015) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:79242EA66134941383390D41029318C0E0E7D17D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Alan Hull - Squire (1975) /2001, Warner Bros., Germany/ [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:DA53F56E26BE49079FB09803C983FC7C7118A072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4827F8EA37C8C94C1BF668E2508DB6F637468981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Motley Crue - Too Fast For Love (1981) Leathur Records [MP3|320 кб/с]<Glam Me
 ```bash
 magnet:?xt=urn:btih:E4DD8573580CA5C2684C4BFC3911143F953F8B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Lunden Reign - American Stranger (2015) [MP3|320 кб/с]<Melodic Rock, Alt. Roc
 ```bash
 magnet:?xt=urn:btih:9ACCCBCA467ECC93CFA47D5890108724918627D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ VA - Pigs and Pyramids: An All Star Lineup Performing the Songs of Pink Floyd (2
 ```bash
 magnet:?xt=urn:btih:1E558E862FFA0FB21098E3D72F25590A0EC72B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ KISS - 40 (2015) Japanese Single Disc Version [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E84D80E362BB7A712EC338DA67F7B25FFBD0A7CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Nightwish - Endless Forms Most Beautiful (2015) [MP3|192, 320 кб/с]<Power/Sym
 ```bash
 magnet:?xt=urn:btih:0E81D9EFB5AA4E5EBDF2B4C11ED951137C4C7AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Scorpions - Return To Forever (2015) Japanese Edition [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EBF9D5FD04F6A1D2E39A066460FDEFFED5D69486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ Mantus — это немецкий дуэт, возглавляет которы
 ```bash
 magnet:?xt=urn:btih:B8B79952B655B8BA8011C404EE307AB8AB02211D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

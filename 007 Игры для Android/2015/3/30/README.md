@@ -19,8 +19,7 @@ Comix Zone 1.1.1 (SEGA Genesis Game) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8B0EAACC42B4A777E61173EB7F64547D905105BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

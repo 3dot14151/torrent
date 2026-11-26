@@ -19,8 +19,7 @@ The Legend of Heroes: Trails beyond the Horizon (2026) [Multi] (21493729/dlc) Sc
 ```bash
 magnet:?xt=urn:btih:6EF6CCEB3B922B5F4FF7E76FC5BED967637A422A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Loot & (and) Ledger (2026) [Ru/Multi] (1.0) Reack FitGirl
 ```bash
 magnet:?xt=urn:btih:1E393A0112051B2810BCDD6196F33C877B532877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.980/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1CE8A9D0894AF2238B1210DD0556EF61B85815D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2F119C716FBEC1AFA9CEF9F09D9CC826A10EB133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Legend of Heroes: Trails beyond the Horizon (2026) [Multi] (1.0.6/dlc) Licen
 ```bash
 magnet:?xt=urn:btih:33557D0301CF2B8BC050B1637F32FE6350E82562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 ```bash
 magnet:?xt=urn:btih:9D3D6747DB7F85F43CB508DC20A29C3C4DF8A4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.13) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F6E5FFA585FB8E101815D05447852A5E6950D011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ DeadCore Redux (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:306B5BCAB1CD3D2C6486644363F044AEF2B81CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Animal Shelter 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A9054E3A036CAA91695069AAEFD434766865EFEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

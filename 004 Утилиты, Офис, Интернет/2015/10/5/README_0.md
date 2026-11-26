@@ -22,8 +22,7 @@ USBboot Installer 1.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:C23C29E2F42D0AD83912748A48BFAF738A87BDE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

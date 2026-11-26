@@ -19,8 +19,7 @@ Rust - новый язык системного программирования
 ```bash
 magnet:?xt=urn:btih:85E8BC47FBF5DCAA8757A6091191A7C2D33C818B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

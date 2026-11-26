@@ -19,8 +19,7 @@ Angel Code: A Linda Hyde Mystery / Секреты Ватикана. Код ан�
 ```bash
 magnet:?xt=urn:btih:6D5113D0DF3FA53E88CBC7A85C6197EAAAFB7904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nancy Drew: The Captive Curse / Нэнси Дрю: Проклятие старо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nancy Drew: The Captive Curse / Нэнси Дрю: Проклятие старо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

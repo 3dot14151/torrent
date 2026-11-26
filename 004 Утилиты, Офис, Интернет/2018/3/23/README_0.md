@@ -19,8 +19,7 @@ QupZilla — web-браузер построенный на базе Qt и бр�
 ```bash
 magnet:?xt=urn:btih:0E4879D478C27D639E3E33031211EB8C2522B4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Disgorge (US) - Cranial Impalement (1999) [FLAC|Lossless|tracks + .cue] <Death M
 ```bash
 magnet:?xt=urn:btih:146FF9AE43C9B9F3854EED2ECAB2AC08684BE978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Suffocation - Human Waste (1991) EP, 1994, Relapse Records [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:5F5A9576FCDBF253444AE242397AA60BAA43A939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - It's a Cool, Cool Christmas (2000) Compilation [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:92DD6B7AC4362CD5DE30A614B3283CD8BB4C7003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Twilight Force - Heroes of Mighty Magic (2016) [FLAC|Lossless|tracks + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:B906EDC459C65ABDA53FD2C55669F524C914ADE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Blackmore's Night - All Our Yesterdays (2015) Deluxe Edition [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:33C8E84D45965C23F539F424299010FD91FE8E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Pink Floyd - Meddle (1971) 2011, Reissue, Remastered, EMI [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:CF30726DD04FCF13BB3DA8C4BFBBDC5D8F4BAC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ House of 1000 Doors 3: Serpent Flame Collector's Edition / Дом 1000 двер�
 ```bash
 magnet:?xt=urn:btih:C34EDBB978998F3AE32EAE3B4B353EF0C48FB5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

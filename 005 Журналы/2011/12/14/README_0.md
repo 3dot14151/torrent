@@ -20,8 +20,7 @@ Photoshop User официальный журнал NAPP. Он публикует
 ```bash
 magnet:?xt=urn:btih:44DBC4E6908BF62D9ADDC6C0F96621625DD97204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

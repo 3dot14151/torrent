@@ -19,8 +19,7 @@ Sister's Secrecy: Arcanum Bloodlines Collector's Edition (P) [Ru/En] 2012
 ```bash
 magnet:?xt=urn:btih:FBDB9C1CA42A3AE2E38D21FAE933D54335CB55FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tiny & Big: Grandpa's Leftovers - это оригинальная аркада �
 ```bash
 magnet:?xt=urn:btih:7C07D91E1D96C4C43CE1FE041093F038C2D3C66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Kingdoms of Amalur: Reckoning [Ru] (UO/v.1.0) 2012 | ZoG Forum Team
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Promised Land / Берега изобилия (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:F87B29906FE41473D59563EF63D903826BADF23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Spellforce 2: Faith in Destiny [En/Multi4] (Repack/2.0.2) 2012 | Samodel
 ```bash
 magnet:?xt=urn:btih:D67ABD939E6B9F4DC5591BC8FFB682B19702F574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Spellforce 2: Faith in Destiny [Ru/En] (RePack) 2012 l a1chem1st
 ```bash
 magnet:?xt=urn:btih:4F6791D2B5987BA4CDAA6ABABE3BF7126E7FBA6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ LEGO Batman 2 : DC Super Heroes (L) [Multi10/+] 2012
 ```bash
 magnet:?xt=urn:btih:31C5BEB9D61D607A62E0815AF19233B3C664FF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Magic: The Gathering - Duels of the Planeswalkers 2013 (L) [Multi9\+] 2012 | SKi
 ```bash
 magnet:?xt=urn:btih:38A43A7BB5F2C67D1825A75DAA3C17F12564911C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Civilization 5: Gods and Kings / Civilization V: Боги и короли (L/Add
 ```bash
 magnet:?xt=urn:btih:80BDD6A0213B75B0A50C95CB48DC7DF7E1113188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

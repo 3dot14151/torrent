@@ -19,8 +19,7 @@ Joseph Steinberg | Кибербезопасность для чайников (2
 ```bash
 magnet:?xt=urn:btih:D32159AECCD327E37299019EFB1E74A0E4674AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

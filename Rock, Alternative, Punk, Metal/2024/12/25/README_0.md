@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:CA543906E6EFE401E580068FB37D306992061E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB57643BF1A3DF0C74C055C8A65AC51FFFA56A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Vedran Bozic - Planet Led Zeppelin (Live At Vintage Industrial Bar, Zagreb) (202
 ```bash
 magnet:?xt=urn:btih:AA37F852FE4733E3629727CD22AB088E41190D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

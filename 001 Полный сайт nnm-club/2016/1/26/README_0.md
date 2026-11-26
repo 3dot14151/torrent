@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5B339EA1EF826E2AFC2BA332688BF8ACF9C61CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:013CBBC6291570DCC78C4E3F9278E5610FEC7D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7DE1996AB8B4B2EEDED6319270E5A787B50F1FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Northern Lite - Super Black (2008) [FLAC|Lossless|image + .cue] <Synthpop, Rock,
 ```bash
 magnet:?xt=urn:btih:CEA7F098D9A82339601179EF20E0077451FB95C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Restart The Game (2016) [MP3|320 кб/с] <Tech, Deep, Progressive House>
 ```bash
 magnet:?xt=urn:btih:CA26AFE56DCE1BA4E4E98E6DCF6F6C2AE9CAB930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - Consciousness Determines Reality (2016) [MP3|320 кб/с] <Psy, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:59BFC782174E8EAB79A4C1BEA60FF07BB4F6931A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Johan Gielen & Peetu S - Festivo (2016) Single [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:D1F309A577C0CFFF61884669AD2C0B34213D552F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65819B086DE4C44AE9BF66DA48140C87300284B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ VA - Sunrise Avenue Vol.8: 20 Lounge and Chill-Out Pearls (2016) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:CEEDBFFE075FF31C76803724EDB39476461892A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Northern Lite - Temper (2005) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Elec
 ```bash
 magnet:?xt=urn:btih:1A8D847F83CCB3AB1310DDC1FB8F3FC3BBF144C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1A207F3B4CC8404E7B0CDBB6ED84E768AB946FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Northern Lite - Reach The Sun (2004) [FLAC|Lossless|image + .cue] <Synthpop, Roc
 ```bash
 magnet:?xt=urn:btih:72CA6C9DCA17B803FA22A5C555BB21C59C871263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D2C7581A5C9631FA57FAA36756240FEDC23F826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ David Wahler - Secret Dream (2012) [MP3|320 кб/с] <New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:5596590A888F9BDCCEEC98DBACB8EB6B152DEF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4610B605BE59D2628C96EE257FB2BDFEC38119A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BD0CCD839CA722AF4D9BDB07311445B4FA8B9A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E95FFA8EEEF1524E1562A2F6BA6DF65F300B82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Iggy Pop - Gardenia (2016) Single [MP3|320 кб/с] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:EF69ED19D70A087D982E955C08BDB3E6AB57C823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:30DE0D331C7E27771739D38139EA0DD38CFA92D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D02019148E40DDF4423309181860B25809E584DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7A58868C4AC28E9653AE67B7C5B2068154E9933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ Redman - Mudface (2015) [FLAC|Lossless|Web-DL|tracks] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:5B11A2DFB0946BC1840468DBF503009A5B470465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ CD1 - Golden Earrings:
 ```bash
 magnet:?xt=urn:btih:1958ADF2183176CE20E7F1A9E114A0CCB78341F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ Robyx Party - Long Single Mix 1990 Mix Part 1-2 (2016) [MP3|320 кб/с] <Italo-
 ```bash
 magnet:?xt=urn:btih:711A81BEC9494F4133BBD41E107EDB52A4D08206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BD386FA2E5BCFBFDB56B203C45253E327B7DE05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:AE176054CA7F029F0BEDF7EAFC8D1230C46ABF27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:371E60A007B2A14A9DAC28D4FE4E01212C3DA660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ VA - Радио DFM - D Чарт - Top-30 (27.09.2013) [MP3|128-320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:253FFAE963DD940CC382C596C093534CEE217C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ DJ Nike Twist - TranceWave 072 @ GTI Radio (03.10.2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:65D4558C31C123F9C05A2A4493E8055D11F3B15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:406719F83EC983792B7EC154777DA5FC69C85B4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9990422F3ED5C14E5A59FCBE05C9D1CAD3C27C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Soft Organizer 3.21 RePack by AlekseyPopovv [Ru/En]
 ```bash
 magnet:?xt=urn:btih:23A44FAC990837ABFDF290E34A628D4B6BC64DA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1E9B0C2435868DC5093B9F45B87B21D5D5C3BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCE5AA484A084D3346F46C1A23F671EBCE22DC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Dream On, Dreamer - 3 Альбома (2010-2013) [FLAC|Lossless]<Post-Hardcore |
 ```bash
 magnet:?xt=urn:btih:85161CA76796CAAC2336C83705837028C40E73B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C6300E5CD51A7F71C02D20A7D378B524225100B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Wallpapers - Обои разное 3. [JPEG]
 ```bash
 magnet:?xt=urn:btih:74ECFFD0E7AA12788F716ACD5EF658352D85BA60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Comedy Баттл. Без границ. Выпуск №20  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:E811C89EF158F84A2A610F83C8CF25BAA454D03D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD06E48CD1BF56324463D0E51F8473E43DA91F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB29CE632AD7FB67E7066FFE9FF398836DC54ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Wallpapers - Обои разное 2. [JPEG]
 ```bash
 magnet:?xt=urn:btih:5DD14A21E99A234B358EFD97D72ACD7004DC9A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ VA - Радио Record Superchart Top-33 (01.10.2013) [MP3|128-320 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:D715BB549C16F3918AF39297546C4EC76C47A8CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DE8037CCDB93AFBEC7BB5904337FE715D423AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Casablanca - 2 Альбома (2012-2013) [MP3|320 кб/с]<Hard Rock, Glam Rock
 ```bash
 magnet:?xt=urn:btih:CD0A465E274B8391EBCC2E8EDCF7DC7DE37E2DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:874BFF42A513523C77373B46E862789FEE92A875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62BE0BB934A4079AF4FEC3C35371CF3A21BEE72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ FlashFXP - FTP-клиент, поддерживающий любые типы с
 ```bash
 magnet:?xt=urn:btih:BA855945258FECCCD663222CC8ADF7866C6C94D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ Comedy Woman. Новый формат. Выпуск №113 (2013.10.04) WEB-DLRi
 ```bash
 magnet:?xt=urn:btih:A6569D650A1BCD34F7357B0A90B7EAC1897E7D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ Tempo Giusto - From The Core (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:76753892D4F0729E78373863E70D2CA1C01DEB70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ VA - Top Club Music World Hits 25913 - BIG (2013) [MP3|237-320 кб/с]<Progress
 ```bash
 magnet:?xt=urn:btih:2301698271D30794E3CF5E4926FA0DD89A14012A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56F6F3595DFCF487888A38A8B15EDBA322D8CB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

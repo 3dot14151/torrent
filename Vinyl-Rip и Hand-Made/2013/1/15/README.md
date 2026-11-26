@@ -28,8 +28,7 @@ B5. Каравелла 2:54(   Читать дальше...   )Жанр: Post-pu
 ```bash
 magnet:?xt=urn:btih:600F9F1D454EA5A2F649A031DFD80B2D7DB585E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B5. Летучая Мышь 5:05Жанр: RockПродолжительность
 ```bash
 magnet:?xt=urn:btih:E903C8D6A94FB68D5462FB08FA40F9A13A0AE782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ B5. Прощальное Письмо 3:48Жанр: RockПродолжитель
 ```bash
 magnet:?xt=urn:btih:F3FC04D141D1463E32E63C82F8395E070280BE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ B4. Следуй За Мной! 4:40Жанр: Hard Rock, Heavy MetalПродол
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

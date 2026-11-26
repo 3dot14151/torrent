@@ -21,8 +21,7 @@ Point Of Power - It's About Time (1994) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EB43ED5590A19DCB2FF9FACE29BBBAF61EA5C90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Bob James Trio - Explosions (2008) [FLAC|Lossless]<Jazz, Avant-Garde Jazz>
 ```bash
 magnet:?xt=urn:btih:78010AB8A02A45010A2A90FF4C91572A926C0786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Nacho Picasso & 88 Ultra - The Witchtape (2015) [MP3|320 кб/с]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:C2918222807FC4EACDE349A76D5CA036CA053C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5CBFC9ACF76AEB6857676AA58DC413DD0369D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Station - Station (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D587E7105DFC2E9D2318712D0D8DC89A272898C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Erra - Moments of Clarity (2014) [FLAC|Lossless]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:5124F40343C17DCCF35B281778459C79063D96F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ghost Cries - Melum Primus (2015) [MP3|320 кб/с]<Symphonic Black/Death Metal>
 ```bash
 magnet:?xt=urn:btih:014E493E2A77A1C68742D52033971F0521ABC03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ DeWolff - Live & Outta Sight (2015) 2CD [MP3|320 кб/с]<Psychedelic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AA6EF8FB9C50E8FB20D37F86487EC83ADDE33009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0395A92405F20BA38CFFF5BAF84A2EAF0A8A051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C86E59B8397A9CBD94BBC22765C5277E782D0EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10DD243D18D9A628C6FD02536679197BDE0B281E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:269B3671D16D4A3A6EC6FC03F47AC814996B8CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34AFE74BB31C7B7C86E6F325D41D52FD163BD930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD5A7621E3308E790AB5A364665D8A702E0F5589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:9C5C868344FE473E28EFBFB39FE9995A92933355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ CaPa - Epiphany (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:70D5829843DBD8700A29B99909AD630B712DC47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:034142B171622E8585928FA5C2AF13B8EBF32CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE4FDDDA689365BE538D8679ACC6BE8C98FAF99A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ VA - The April Releases (2015) [MP3|320 кб/с]<Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:1D00EBC05DC0EFA5A73FF4FDA0ED97E12100E543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C149071F2215240DCABA3849BBCB59795E50C0A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Sable Maze 4: Twelve Fears (2015) [En] Unofficial [Collector's Edition / Кол�
 ```bash
 magnet:?xt=urn:btih:8C886DD7EE42E0421A056356E028A4BFF13E940E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8AA4DEF8824E62A6352B233667A91E0AEA999F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B745ED8314D08E23BF006EFE4B0115113A5F79D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ VA - The Art of Electro Swing Vol.4 (2015) [MP3|320 кб/с]<Electro Swing, Brok
 ```bash
 magnet:?xt=urn:btih:D9B0D3133AFC821B415E18E7439DA610823549EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ The Jimi Hendrix Experience - Miami Pop Festival (2013) [MP3|320 кб/с]<Psyche
 ```bash
 magnet:?xt=urn:btih:90B513DC54960F2E1D90570F9B7061E23B01031C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ Pete Seeger - Rainbow Race (1971) [FLAC|Lossless]<Folk-Rock, Country>
 ```bash
 magnet:?xt=urn:btih:23025BD2ADABC5D92C7B6945A17002C9EC5C4623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

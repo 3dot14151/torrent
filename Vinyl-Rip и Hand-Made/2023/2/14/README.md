@@ -22,8 +22,7 @@ A4 До Ре Ми Ля • Do Re Mi La(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:A065670089BA3C270CD0C8D8545F0B707EC4AB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 (Sitting On) The Dock Of The Bay(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:940B4EA19BA495BA8D9C3CB20E6DB82AB6DA766C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD3654D172170AF48F6FC9169C4425D801B3CBDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

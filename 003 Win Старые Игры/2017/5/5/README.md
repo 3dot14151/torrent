@@ -19,8 +19,7 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:410D802BDE443F722A1A3651BDBDD67E80341632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Free Countdown Timer 5.2.0.0 [Multi/Ru] + Portable
 ```bash
 magnet:?xt=urn:btih:5E1A9E0DDF84CDEF9BD2974CD848644D3462F269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Silly Polly Beast (2025) [Ru/Multi] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:A4631BC23E3BB1C6D906F146807C6989894C87F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Moon – стратегическая игра о выживании, гд�
 ```bash
 magnet:?xt=urn:btih:5D9687BEDEA5AFEDEF1BA4EC7963D3A5874EC9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Queen's Wish 2: The Tormentor (2022) [En] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:5A0F0F0857A207C696CD5BDB67FE3A277B4540E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Legendary Tales возвращаются с новой историей-прик
 ```bash
 magnet:?xt=urn:btih:0688C876BFCD34047F4C768ADDF59561F1A1182A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:30AE8AC68C8F42EBC442FD34753D26FD8841911B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dispatch - это комедия о рабочем месте супергеро
 ```bash
 magnet:?xt=urn:btih:D442FE45C8C627DB3EB782DF155494263188D82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:67BC9814DD6CB2A0B0A1116DFAC7AB70F5037354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

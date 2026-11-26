@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BAF976BFD3470FA2A3B999A97F6A0B410FAA945C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Endless Space 2 (2017) [Ru/Multi] (1.4.13/dlc) License CODEX [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:7F866BB6E398715F80CBCB4FDE9779A39F94A602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Sword Art Online: Alicization / Мастера меча онлайн: Алиси
 ```bash
 magnet:?xt=urn:btih:C2A90DCB34FC3C992736C7513E8FF5CD9B8EAD29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

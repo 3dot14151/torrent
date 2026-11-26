@@ -18,8 +18,7 @@ Battlefield 1 погружает вас в эпоху Первой мирово�
 ```bash
 magnet:?xt=urn:btih:C9EE56540C94C6128DEF573A86C3D7E5B7C8DFAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

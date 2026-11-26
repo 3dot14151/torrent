@@ -22,8 +22,7 @@ A4 Ва-Банк - Максималист = Maximalist(   Читать даль�
 ```bash
 magnet:?xt=urn:btih:FB40DB677524F1F1F8DAA0B20AE52A8BAE3F0F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ NetSend2015 – клиент-серверное приложение, предн
 ```bash
 magnet:?xt=urn:btih:90171808E970564A75DE7F6F26A19E697745A75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ InputMapper 1.5.31 [En]
 ```bash
 magnet:?xt=urn:btih:6D559FECAB60D12B3A99E6846775AE20D87C427F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

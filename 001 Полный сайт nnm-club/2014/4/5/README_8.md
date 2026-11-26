@@ -28,8 +28,7 @@ VA - Get Ready For Ibiza Chillhouse 2014 (2014) [MP3|320 кб/с]<Balearic, Down
 ```bash
 magnet:?xt=urn:btih:34D100C11C38A247DCC5BF0985DA44E2C48EB246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A5BED6C717E163E828D65F8C717806D1DC67905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Miami Sunset Trance (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:ADB40879252CC87152D8B48D85BF0248581BA50F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ The Milton Incident - Innocence Lost (2014) [MP3|320 кб/с]<Dark Alternative M
 ```bash
 magnet:?xt=urn:btih:5423C394DEC53A692FAB0965AAC32143192941F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:51CCADFEBF8895BB5F9BF48B4E40B7460B542024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - 70 Audition Turn Production (2014) [MP3|320 кб/с]<Progressive, Club, Big
 ```bash
 magnet:?xt=urn:btih:490BAE67545EF36E31548E824CE694ED85E9D60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA8D36270785FB5717E3DAA83A2B662ED377721A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Shaiko - Insomnia (2014) [MP3|320 кб/с]<Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:CF875014EBD37FF873970B0E5E2943FDEA808094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0995368DB9670C51D39D585496FD788A1F7F82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ VA - Ambient Sonics (2014) [MP3|320 кб/с]<Ambient, Downtempo, Chill Out>
 ```bash
 magnet:?xt=urn:btih:2CA211028E8DE7C00FE2562470121F77722FB329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DD9A27D31EF8FBF11E61801CEBA3684EC010CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7E27534892530257E6795D240D7C27EDF0616C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ Descend Into Despair - The Bearer Of All Storms (2014) [MP3|320 кб/с]<Funeral
 ```bash
 magnet:?xt=urn:btih:A61248F402E4DB69E589FF1A143E44A0823BBEE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C77A1B6875363C939609B7BD3F6108A11774A527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:723800EEE4AAB02A18AC62BC84A7E005F8D0F481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +477,7 @@ VA - Ambient Mythos (2014)[MP3|320 кб/с]<Ambient, Downtempo, Chill Out>
 ```bash
 magnet:?xt=urn:btih:1B595436407D001222EE670E091B476B45B3A9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +511,7 @@ Nolita - Look Back On (2014) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:115467CD062C26875BF12915A38617295B0C8DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2EE0D928A8CD1F69E07328EAF7A9AA77BEBE288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +574,7 @@ VA - Ambient Breakdowns (2014)[MP3|320 кб/с]<Ambient, Downtempo, Chill Out>
 ```bash
 magnet:?xt=urn:btih:E49DDB6F26D8E669E82E2E170FD437E8AA16A754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8777AFC04CCE4114C9DE63F9262DA9118F9BBFEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ VA - Mashed Mellow Grooves Two (2000) [FLAC|Lossless]<Dub, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:5AA1DFC54FEF44DF42B1074C9910B762E9591C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:740DED951089E5437B52186546CEBD15F4EF63D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +692,7 @@ VA - Poolside Miami (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:19EC4478FA2558A0BF84DD1A2DDBFE81BF16DD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F659708BDA2EE71FE7EA1DCC29192C7BC7090752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +751,7 @@ VA - Armada Presents Deep House Essentials #001 (2013) [MP3|320 кб/с]<Deep Ho
 ```bash
 magnet:?xt=urn:btih:A77E5BB720076729B24DE573EF6ECB4F36763D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BB4FF99D08ADAE485EDFA4F6E05625B5B0FA2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

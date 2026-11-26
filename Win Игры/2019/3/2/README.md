@@ -19,8 +19,7 @@ Danse Macabre 9: A Lovers Pledge (2017) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:12CA6E58E7776D5B0A6E75BD50DCF2678F58FF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Christmas Stories 6: A Little Prince (2017) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:A72E40917DC12D3B909249819038F9BAA380F21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Harrowed Halls 2: Hells Thistle (2017) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:778D0613369F34416A293E3F5D0DEBB315863B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Secret Order 7: Shadow Breach / Тайный Орден 7: Сумрачно�
 ```bash
 magnet:?xt=urn:btih:F95D658F64DB4FB2E1948932C16C7B77FD8BEF42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.4.0/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:FF815925FF86C50074F0E4C379E3573AE62DF267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fimbul — это динамичные бои в викингском антур
 ```bash
 magnet:?xt=urn:btih:DC9E67225524260E11CAB69829F2F66E10F5322F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Galactic Civilizations III – самая глобальная игра-песо
 ```bash
 magnet:?xt=urn:btih:DD254341647B57CEF869BFE6D56750284F66A50C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.21.26998/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:3EB9FA5061AA3128184847C49652CFADCB1D2E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Sims 4 (2014) [Ru/Multi] (1.50.67.1020/dlc) Unofficial R.G. Origins [Deluxe 
 ```bash
 magnet:?xt=urn:btih:788A00E332A6DC3758210BB1ED66D8B3C0B155B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

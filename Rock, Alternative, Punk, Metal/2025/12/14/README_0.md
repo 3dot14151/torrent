@@ -22,8 +22,7 @@ Sonny - Sonny Dread (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Reggae, Altern
 ```bash
 magnet:?xt=urn:btih:06E5B68FCFDFB46DD2A52CD8D0B6F66AA5F3EA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wolftooth - Wizard's Light (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:7983972F7F95A6CA124C70B3ED06A3EE8CC96C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Alto Flute – Jeroen Goossens(   Читать дальше...   )Жанр: Prog
 ```bash
 magnet:?xt=urn:btih:4F9C76A166CD280957495E32A3A6BE3EB90EC5DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30C02FD3C23F4DF5476C5EB4D61A493DC41A7F51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DD23FC72A0BAA70BFFCC167129C12A43C74AEA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

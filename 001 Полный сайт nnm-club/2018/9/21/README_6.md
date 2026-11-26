@@ -22,8 +22,7 @@ Manticora - 8 Deadly Sins (2004) [WavPack|Lossless|image + .cue] <Progressive Po
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FD26CC11FBB5958C3B038C22EAF0F61C6D2DC90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:3038585F2114C984C15A293426A1F544C0AEAA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D337C642B00D3E060A7AE36000A984FF0A39D2F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Cherie Lily - The Dripping Wet EP (2013) [FLAC|Lossless|tracks + .cue] <Electro 
 ```bash
 magnet:?xt=urn:btih:B74E0DF6A2A762A6A6A304AF35EA59689412534B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Markus Schulz:
 ```bash
 magnet:?xt=urn:btih:A7109F81F242C54F2E7070B9F9282B0BEFC190FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ FotoMagico – популярный пакет для создания слай�
 ```bash
 magnet:?xt=urn:btih:10F21ADDD19896F83B5AF354AA57F186B5900751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Blitzen Trapper - Furr (2008) 10th Anniversary Deluxe Edition, 2018, Sub Pop [MP
 ```bash
 magnet:?xt=urn:btih:84E8B546503DDEE6A3E6F46409EF7CB9B97297EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Aleister X - Half-Speed Mastered (2013) [FLAC|Lossless|tracks + .cue] <Dub>
 ```bash
 magnet:?xt=urn:btih:CC2D1E733093ADE2706308677DE9DF5D01381E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ iA Writer 5.1 [En]
 ```bash
 magnet:?xt=urn:btih:44FBAC901DAE3B1976E57215AB4F52FBBBC6DFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ C418 - 72 Minutes of Fame (2011) [FLAC|Lossless|tracks + .cue] <House, Breakbeat
 ```bash
 magnet:?xt=urn:btih:A087FC6DA36CB1FCF5ED4C951B97464310AC91EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Aleister X - The Git (2010) EP [FLAC|Lossless|tracks + .cue] <Dub>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Smultron - простой и элегантный текстовый редак�
 ```bash
 magnet:?xt=urn:btih:052D1E21BF5049224806D9594A85CCB354EEB728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ VA - Quality Dance Selector (2018) [MP3|320 Kbps] <Hard House, Club, Eurodance>
 ```bash
 magnet:?xt=urn:btih:27A9009D0B744906E5274DD869031C3C7CA6FE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Andrew W.K. & B-Roc - DAMN! The Mixtape, Vol. 1 (2009) Limited Edition, Mixtape 
 ```bash
 magnet:?xt=urn:btih:860BDFBDB74A477FBF80E7EDD195DC1532068AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Screens 4 v4.6.2 [Multi/Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Hush - Aloud 'n' Live (1973) [MP3|320 Kbps] <Glam Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:6E4DF27732E149DCCEDDC91F93F0AC94FF919C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ VA - Now Electronic (2018) [MP3|320 Kbps] <Electronic, Synthetic, New Wave>
 ```bash
 magnet:?xt=urn:btih:72D0F218FF5D419C52392DF670437D4E0C7369D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ Big Giant Circles - The Glory Days (2014) Limited Edition [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:0000DACC8D482262D8DB0856E3DB913D279F11CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13E741BE275970546DCD257F559866D38A501AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ VA - Grotesque Reworked & Remixed Vol.2 (Mixed by Daniel RAM & Skyver) (2018) [M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ Cherie Lily - WERK: The Remix EP (2010) [FLAC|Lossless|tracks + .cue] <Electro H
 ```bash
 magnet:?xt=urn:btih:DB12DB00934ACE1E1FC26EB99A97880D1A883831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ Floating Bridge - Floating Bridge (1969 | 1998) [FLAC|Lossless|image + .cue] <Ps
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ Serial современный эмулятор терминала, которы�
 ```bash
 magnet:?xt=urn:btih:6674C36674F2C57D4C7564CDE125F0ECD9B52B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ Mp3tag - утилита, для быстрого редактирования ID
 ```bash
 magnet:?xt=urn:btih:32868D285EFA7C87463A81D3E464425AEEFA442F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

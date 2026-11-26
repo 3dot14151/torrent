@@ -19,8 +19,7 @@ Origins: Elders of Time (2014) [En] Unofficial [Platinum Edition]
 ```bash
 magnet:?xt=urn:btih:E1B78D62C7B3DD3C49F2B121A8BFF6E65BA48CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Final Cut 3: Homage (2014) [En] Unofficial [Collector's Edition / Коллекц
 ```bash
 magnet:?xt=urn:btih:B6535072F26C352FE7986AF3F19803BE693158CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Trine 2 (2011) [Ru/Multi] (2.0 upd3/2dlc) Repack R.G. Revenants [Complete Story]
 ```bash
 magnet:?xt=urn:btih:A102FCB3282AAEDF041C66B39B2011FAE7C37CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ King's Bounty Anthology / Антология King's Bounty (2008-2012) [Ru/En] R
 ```bash
 magnet:?xt=urn:btih:E8F06532D052258A9ED788EA9E3E03CC2AB38097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

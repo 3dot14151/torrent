@@ -21,8 +21,7 @@ Tower Bloxx Deluxe (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:64D8E2DDB34E2532C804C42122434BACD875D114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Darkest Hour: A Hearts of Iron Game – самостоятельная игра,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

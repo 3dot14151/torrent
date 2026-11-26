@@ -22,8 +22,7 @@ Nord Frost - Schwarzwald (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:B38A41B435A3C665BDC051341CD243AC7C936EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Cox And The Riot - Death Disco (2014) [MP3|320 кб/с]<Indie Rock, Pop, Alterna
 ```bash
 magnet:?xt=urn:btih:03C68E1CCE7E4F60DE2B1E2C3DBA649B3A3DA660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Belfry - Rest In Pieces (2014) [MP3|320 кб/с]<Melodic Death Metal, Power Meta
 ```bash
 magnet:?xt=urn:btih:E36D6DB140B3C8A9F7C91EE4640194AF96AD9335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Brothers Keeper - Todd Meadows (2014) [MP3|320 кб/с]<Southern Rock, Blues, Am
 ```bash
 magnet:?xt=urn:btih:6D55A2DADCB12B08E9F6BF38DD2595EB9EB609EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ The Color Morale - 4 Альбома (2009-2014) Дискография [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:A15FDEAD03F101548C4DF4C4EE78F85AC48E5918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Cannibal Corpse - A Skeletal Domain (2014) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:76DF78885758901A2452A0E0002950590BF26AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Slash - World On Fire (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5B1EA0A395D41427DFDAD731668A895684F90D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Slash - World On Fire (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3B3E46B6CD4D64A15F9F721A8177CF87C8301FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

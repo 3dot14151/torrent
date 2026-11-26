@@ -27,8 +27,7 @@ VA - Chill & Relax for Business Men (2014) [MP3|320 кб/с]<Ambient, Pop Classi
 ```bash
 magnet:?xt=urn:btih:DA8E2D753450A379A902E5B65342E78D9AFC170C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F5B57260B6E2D5347A28478EDD12F081BED4C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6477BB6EA951CD9EEFA73AA946037B6C99091B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ VA - Попсовая Соточка (2014) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:A61AD20CB902574B24E0A32885A61BD25D1F0937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Written By – F. McDowell
 ```bash
 magnet:?xt=urn:btih:B13139234B2C5493115B236FFE5AB06D568CA2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86D986757046757D9922C19DE89B333D6E3808B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54DC850B3D254E6F6198C69E708EDE95EB54753B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Ellie Goulding - Bright Lights (2010) [MP3|320 кб/с]<Pop Rock, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:060731FE979D3FD9BF1CB935B90AC67ED893AA0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ Eagles - The Long Run (1979) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:8E5C2FC00620B2F0D05D3C32FB1C370566624420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ Garou - It's Magic! (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:523CC7951C7B0DE96439E221D3693A447318F672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ VA - Зимний АвтоХит 50+50 (2014) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:072BA9169E3E9B72300F24A0DB0EEDDB4166A290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60458C2FF53D478A9862BE60DC7A38070D8529CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ Joe Cocker - Alive in America (2014) [MP3|256 кб/с]<Rock, Blues, RnB, Pop-Roc
 ```bash
 magnet:?xt=urn:btih:053780F4E5F1342E046A83FC884F4693D6D6F626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ Written-By – B Gibb*, R Gibb*(   Читать дальше...   )Жанр: Pop
 ```bash
 magnet:?xt=urn:btih:8D8B603B74ECE46D1AE0FACDF5CF9D5EFFCCC47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB318D9B661C4802118BE5897B2B0D78200160B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +498,7 @@ VA - За Рулем С Радио Шансон (2014) [MP3|256 кб/с]<Шан�
 ```bash
 magnet:?xt=urn:btih:EE65863D13209A95FADEF6FF44E9C2B2F9717D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +529,7 @@ Uriah Heep - Look At Yourself (1971) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4DF0A498A13A1D5ED2EB569DC4F4A8B16F310EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +554,7 @@ NG: Больше чем фокусы с Ди Эм Си: Разорванный /
 ```bash
 magnet:?xt=urn:btih:B93CA423339D5A1C08CB9D3AB0B4CBE772DB71C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F5256A87F500BCF687EFFDAC98D06D9C82821E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C11490915725F22D7478F7F22CD1236805A4DA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1F400885609E720D72DDB9465887D91ED3E9FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +685,7 @@ CD1 - Bible of the Beast
 ```bash
 magnet:?xt=urn:btih:07C9B3E0FE13C329B222616CA4AC7AEEE1D19DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C556A29F46573B74D9D984CBB2EEACD3D9B5AFF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4CAE43A9AF1E686E717F5144A8900890CB719EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +763,7 @@ Wallpapers - New Mixed HD Wallpapers Pack 230 [JPEG]
 ```bash
 magnet:?xt=urn:btih:5FF03882981CA3FB439FB16C80847A5D0E9CABB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -813,8 +788,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E437EC8E41A671FFDA35490CF37AD2DB790F0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

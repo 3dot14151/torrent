@@ -19,8 +19,7 @@ The Wolf Among Us (2013) [Ru] (1.0.0.1) Repack xatab [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:27229CB3490D771E2274F60AEADF9AFCD8711242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

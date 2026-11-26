@@ -20,8 +20,7 @@ Pixelmator представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:6AFCCCEA51AC7E5BF6D1962F99005AE7600FBEC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Cage The Elephant - Melophobia (2013) [MP3|320 кб/с]<Alternative Rock / Indie
 ```bash
 magnet:?xt=urn:btih:3C7A592F465B73755E451A5EAF33E423813D5106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Astropilot - Solar Walk 2 (2012) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Amb
 ```bash
 magnet:?xt=urn:btih:1E99DA2B31FD792837402AF451987A003CF5793C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86C7DA9C2093DC580235DF1145602AB878DBF8D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Tycho - Awake Single (2013) [FLAC|Lossless|WEB-DL]<Downtempo, IDM>
 ```bash
 magnet:?xt=urn:btih:398A25CBF889ABC6B5426350A2682B72A69B1C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:759535F87AC67DABAC8B4020BA91D8349EA1E795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68412B99394F1AC84F49457F81AA7635F8BF33BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFC0501CED5E0C54D134447F112A6DBEC2501FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ CheeTos - Отмочитос в стиле читос (2010) [FLAC|Lossless]<Т�
 ```bash
 magnet:?xt=urn:btih:82447B9ADB3891AFE4C4F44B123D2B1AE02B52F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Super Eurobeat Vol.225 (2013) [MP3|320 кб/с]<Eurodance, Italo-Disco, Hi 
 ```bash
 magnet:?xt=urn:btih:9B98298F84D34E89E126989B1B6D96DC61FDC081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F562B9DABEA14F390110B1AF98C74AB88B99099F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Charles Walker - Still Finding My Way (2007) [FLAC|Lossless]<Blues, Soul>
 ```bash
 magnet:?xt=urn:btih:908440C70EF9D8141138997C6724218E2BFF3B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D45E3763F0FDECFCDA45C8FA14F23657A8B806F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ VA - So Fresh Dance (2013) [FLAC|Lossless|tracks + .cue]<House, Dance>
 ```bash
 magnet:?xt=urn:btih:564DCD8D860073DBED8C6971342968356821D6BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:21071732365CEC370A9FD2AB524DDB778BCF967A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ The Naked And Famous - In Rolling Waves (2013) [MP3|320 кб/с]<Indie Pop, Elec
 ```bash
 magnet:?xt=urn:btih:76361898FE4C7F71837A520FE392007513C306F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +481,7 @@ VA - Dance Classics: The Ballads Vol.1-4 (1989) [FLAC|Lossless]<Funk, Soul, R&B>
 ```bash
 magnet:?xt=urn:btih:8250D1D53B77E60D8C9898733FB31BCAED4A5E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D453926FA571CDEA6E98B6E2835D6F926FB2F5DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C31263DD88C8AF82DF24FC5D9DC0320BBFE36C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ IDimager Photo Splash позволяет существенно преобраз
 ```bash
 magnet:?xt=urn:btih:25A4F6667C97517B4FA64ED088BFD0C34A564D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ Firebug — расширение для браузера Firefox, являюще
 ```bash
 magnet:?xt=urn:btih:11F7CB4736D965460FEF924AAE5201D851DA99B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +611,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:8ED814A4C705451F0FA9D875A1D36C1A22B6EC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53634CE339D665511844A333B8E1C65159F69FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ Aiseesoft Blu-ray Player - удобный в работе "все в одном"
 ```bash
 magnet:?xt=urn:btih:67ADE2D2F2199E09354EC4A7A20F341D875823C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ VA - Super Eurobeat Vol. 225 (2013) [FLAC|Lossless]<Electronic, Disco, Hi NRG, S
 ```bash
 magnet:?xt=urn:btih:D7F97E2701446367FB84E2011601635F74256304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ BBC. Horizon. Что такое реальность? / Horizon. What is Reality
 ```bash
 magnet:?xt=urn:btih:C59AC06DE96EF4AAC15BD487981BBD4A9C418914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

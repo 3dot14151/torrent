@@ -19,8 +19,7 @@ Home Design 3D v4.0.8 Pro [Ru/Multi] - Создание и персонализ�
 ```bash
 magnet:?xt=urn:btih:DC1FD83EA24BD927537E937CCCCC0EEFDFA26FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

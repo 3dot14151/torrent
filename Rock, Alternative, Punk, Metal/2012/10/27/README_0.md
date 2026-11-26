@@ -28,8 +28,7 @@ Bloodshot Dawn - Bloodshot Dawn (2012) [FLAC|Lossless]<Thrash Metal / Melodic De
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Soul Scars - С Рассветом (2012) [MP3|320 кб/с]<Alt.Rock | Alt.Metal
 ```bash
 magnet:?xt=urn:btih:CD31AF82A25485762066EB38E4D416E98AAD6EA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Dew-Scented - Icarus (2012) [FLAC|Lossless]<Thrash Metal/Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +139,7 @@ Skalmold - 2 Альбома (2010-2012) [MP3|320 кб/с]<Viking/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:2471AC6FFFC37B501BDAFE03CD6E4705B5AFFFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +172,7 @@ Graveyard - Lights Out (2012) [FLAC|Lossless]<Hard Rock/Stoner Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +205,7 @@ Karma To Burn - Slight Reprise (2012) [MP3|320 кб/с]<Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:9BB038CBB51816DA3B72BFA56AC37584D774AC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +239,7 @@ Lamb Of God - Resolution (2012) [FLAC|Lossless]<Groove Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +273,7 @@ Cradle Of Filth - The Manticore & Other Horrors (2012) Limited Edition [MP3|320 
 ```bash
 magnet:?xt=urn:btih:4C295BE72E2D4E88EDB8927CCE05E5336EF75586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +307,7 @@ Stone Sour - House of Gold & Bones Part 1 (Japanese Edition) (2012) [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +335,7 @@ Neil Young & Crazy Horse ‎– Psychedelic Pill (2012) 2CD [FLAC|Lossless]<Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4DE48565CF7A074AC4F1EAA61636D86C5957334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +403,7 @@ Niagara - 5 альбомов (1986-2002) [MP3|256 кб/с]<Rock, Poprock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

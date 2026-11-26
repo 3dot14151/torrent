@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:3924519C1A8A00390B7E89CCDA6B7D1A200397D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [MP3|320 Kbps] <Mel
 ```bash
 magnet:?xt=urn:btih:4971D1B7082D18BBA821DAA734FDA8CE871A1F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Byron - Chapter II: The Lotus Covenant (2024) [MP3|320 Kbps] <classic melodic me
 ```bash
 magnet:?xt=urn:btih:69544D502F0C192854CC5E8E86FE968CB6D46BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Gems (ex-Thundermother) - Phoenix (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 ```bash
 magnet:?xt=urn:btih:475E46410016F7DCB648A3803A6F9A9912AB8417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [MP3|320 Kbps] <Nu-Metal, Industr
 ```bash
 magnet:?xt=urn:btih:82E94B6A253F26BA2780DF5B76E60C795249FC3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sojourner - Premonitions (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black 
 ```bash
 magnet:?xt=urn:btih:D8582203F78CBD1B60FEED9C0B8333E0B795B14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Blood Red Throne - Nonagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:9D171402B16D35A95B409F99E2B52CB71C7BDF00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Manticora - Mycelium (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Met
 ```bash
 magnet:?xt=urn:btih:EA54065655A0282295021ABF433BE8669F52F7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Faith Circus - Bum In The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:76C2A59C5B8BBE17742A7463AD6545F97DF38305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The Rods - Rattle The Cage (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5DED75AF05A5E52C2494BD979D028AAC877A342A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Robert Hart - Circus Life (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 ```bash
 magnet:?xt=urn:btih:D141B4C98D834A8CD94A1244F049AAD24CADA1EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Any Given Day - Limitless (2024) [MP3|320 Kbps] <Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:0DEDC7BD87A8E65F392011F79215D8DE00310F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Nubian Rose - Amen (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F8DD178116E3BE655E1DF7B920A2BBC4A5598D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Mosh-Pit Justice - Mosh-Pit Justice (2013) [FLAC|Lossless|image + .cue] <Power M
 ```bash
 magnet:?xt=urn:btih:6452437990D48929201FC531288B75C040497A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Hiraes - Dormant (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:B2297773461E19B0A86902922D52FDE2CD276C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Any Given Day - Limitless (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcor
 ```bash
 magnet:?xt=urn:btih:365476DBC731B79C2AEC489855BA2A1F3822900A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

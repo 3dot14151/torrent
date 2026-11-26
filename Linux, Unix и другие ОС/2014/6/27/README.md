@@ -23,8 +23,7 @@ Linux Mint — дистрибутив операционной системы Li
 ```bash
 magnet:?xt=urn:btih:A26B7E3D22F3F0976B917599B1C24112675C5DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

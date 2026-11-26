@@ -20,8 +20,7 @@ Ittle Dew - аркадная ролевая игрушка в стиле The Bin
 ```bash
 magnet:?xt=urn:btih:C4F2A7A2BBA8BA08E03A117BE0F2BD9124AF42DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

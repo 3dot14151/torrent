@@ -21,8 +21,7 @@ Orlow tells the story of Germany’s troubled past―Prusso-German authoritarian
 ```bash
 magnet:?xt=urn:btih:915B1B880AADB96E80BA6EFACB33DA4E4123AA57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ This volume provides an in-depth introduction to 3D printing and biofabrication 
 ```bash
 magnet:?xt=urn:btih:23B43C263470586FC0EA98EAAD782C6AE4E9101F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

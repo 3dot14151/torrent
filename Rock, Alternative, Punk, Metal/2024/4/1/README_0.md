@@ -22,8 +22,7 @@ Avi Rosenfeld & John E Mendel - Instead Of Worrying (2024) [MP3|320 Kbps] <Class
 ```bash
 magnet:?xt=urn:btih:6C9105788BCA01071D79047C35E70CEBA41F14AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dino Jelusick - Chosen Gems (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 ```bash
 magnet:?xt=urn:btih:B249E4EB2D40142985151D605EE8E75F47DB7EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Leviathan Project - MCMLXXXII (2024) [MP3|320 Kbps] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:5AAAB8B03DD04B1A9252029CA58A6E99BE4225EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Flood - Ripped Into Exile (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:48DAC4A5B37533C716F58A14BB99D16EA872A9A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tin Idols - Jesus Christ Supernova : The Heavy Metal Soundtrack (2013) 2CD [MP3|
 ```bash
 magnet:?xt=urn:btih:F5415D2A9B362BB697C404A19CF425ECBB3A8456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tad Morose - Matters of the Dark (2002) [FLAC|Lossless|image + .cue] <Progressiv
 ```bash
 magnet:?xt=urn:btih:6A118829623CB1F3565C61F1E5B3EFC600B01045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Tad Morose - Undead (2000) [FLAC|Lossless|image + .cue] <Progressive Metal, Powe
 ```bash
 magnet:?xt=urn:btih:0D0CD445549764C6324FA6462458C663324C655A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Tad Morose - A Mended Rhyme (1997) [FLAC|Lossless|image + .cue] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:3A9B37948A18EBA8A7A96EC34FB247758383ACCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Tad Morose - Reflections (2000) Compilation, 2001,  Remastered, Irond Ltd. [FLAC
 ```bash
 magnet:?xt=urn:btih:33BB6C29D289A31F7F685ED80B4B99B7A477FA40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Tad Morose - Modus Vivendi (2003) Japanese Edition, Reissue, 2004, Century Media
 ```bash
 magnet:?xt=urn:btih:4E570D74C9ED8D4542A411D89FB39DD76EABDDA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Tad Morose - Paradigma (1996) EP [FLAC|Lossless|image + .cue] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:BE50A669509AF48204101C543C19D5A2FFB1995C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Bruce Dickinson - 12 Albums, 15 Singles, 77 CD (1989-2024) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:A74697EF6188E292C80D3DA8BBE03DFE33F85CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

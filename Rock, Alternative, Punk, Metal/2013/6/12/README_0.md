@@ -28,8 +28,7 @@ Skamp - Live & Deadly (2007) [MP3|256 кб/с]<European Pop-rock>
 ```bash
 magnet:?xt=urn:btih:1C41E8DDD5F4CC0190465F91B9490AD29FE55CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Mallet - Roll Mallet Roll (1999) [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Silent Rage - Don't Touch Me There (1989) Japan [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Shank Rock - Crime Time (1994) [APE|Lossless]<Melodic Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ The Poor - Who Cares (1994) [APE|Lossless]<Hard Rock , AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Thunder - Back Street Symphony (1990) [2CD] Japan [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Michael Monroe - Nights Are So Long (1987) Japan [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Tesla - Psychotic Supper (1990) Japan [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Steelheart - Wait (1996) [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ Jimmy Eat World - Damage (2013) [MP3|320 кб/с]<Alternative Rock / Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:4B2156EB4CE83302DA960DE5C5FF7D4503AD0741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +368,7 @@ Chris Rea - Whatever Happened To Benny Santini (1978) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:DC5245553C6FFD4782C43FFB406381222483B490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +402,7 @@ Dark Moor - Ars Musica (2013) [MP3|320 кб/с]<Power Metal >
 ```bash
 magnet:?xt=urn:btih:21888A7EBA91BB0B2CB0AD7357CD36E8DB80C9A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +436,7 @@ Chris Rea - Chris Rea (1982) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:90A63A27FF2E9EC23472963233E0C128D9C9395B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +461,7 @@ Sigur Ros - Kveikur (2013) Japanese Edition [FLAC|Lossless]<Post-Rock, Alternati
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

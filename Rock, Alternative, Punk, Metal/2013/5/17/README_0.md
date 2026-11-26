@@ -28,8 +28,7 @@ Critical Solution - Evil Never Dies (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B01A73A31444D6529AF16B119EDC9EB90E515603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Asgard - Outworld (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9D5240CDC006C48BFDD39283059D313F6F2E59D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Stoneload - Addict (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B1A5B0EA7A127238AA6E79085128CFF8628BBDA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Halford - Crucible (2002) Japan Edition  [APE|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ MorozMatik - On the way to the Bucketland (2013) [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:A0F13E607358486E7CA1C87DE43A7162FDF4B6DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ V.A. - Наводнение (К 300-летию Санкт-Петербурга) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ VA - Non Pop (2013) [FLAC|Lossless]<Spacesynth, New Wave, Punk Rock, Alternative
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Timo Tolkki's Avalon - The Land of New Hope (2013) [MP3|320 кб/с]<Symphonic P
 ```bash
 magnet:?xt=urn:btih:D7B73C6809EE9CFE174FB822C02706E60A001730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Velvet Revolver - Libertad (2007) Japan Edition [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Escape The Fate - Ungrateful [Deluxe Edition] (2013) [FLAC|Lossless]<Post-Hardco
 ```bash
 magnet:?xt=urn:btih:23FD12350F3E11CE3CADC59FD5D36B08391D9D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Renegade Five - Undergrounded Universe (2009) [FLAC|Lossless]<Alternative Rock/M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Battle Beast - Battle Beast [Limited Edition] (2013) [MP3|320 кб/с]<Heavy Met
 ```bash
 magnet:?xt=urn:btih:BFAA391F72866213EAC94204F9FAE1C1FBBFDFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +425,7 @@ Noumena - одна из ведущих Death Metal групп.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +459,7 @@ Eagles - The Studio Albums 1972-1979 (2013) Box Set [FLAC|Lossless]<Rock, Countr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +493,7 @@ Breaking Benjamin - 8 альбомов (2001-2009) Дискография [FLAC|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +518,7 @@ VA - Легенды Мирового Рока (4CD) (2001) [MP3|320 кб/с]<Cla
 ```bash
 magnet:?xt=urn:btih:FAF07500E783119C321A530D345131E2370E3BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

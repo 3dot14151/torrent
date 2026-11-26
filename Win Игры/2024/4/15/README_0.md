@@ -19,8 +19,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/En] (3.8.6/dlc) Repack Decepticon [Gold Editi
 ```bash
 magnet:?xt=urn:btih:2673CFB8E22E53C3A36609A411C5D926F5E69CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FIFA 16 – первая игра в серии FIFA, в которой учас
 ```bash
 magnet:?xt=urn:btih:9AC821F79F504C327DA4FEF94C6983D291C2F43F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

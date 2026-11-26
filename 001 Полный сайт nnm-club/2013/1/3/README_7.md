@@ -28,8 +28,7 @@ M.PRAVDA - Live in Motion 112 (09.09.2012) [MP3|320 кб/с]<Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:0C851ADB4321FD320E399C414C8BEE48D16FD410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ M.PRAVDA - Live in Motion 126 (22.12.2012) [MP3|320 кб/с]<Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:B6CF2D4BF51513730040A0A8CFD40F35288BE814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ M.PRAVDA - Live in Motion 110 (25.08.2012) Best of August [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:8396E9EDB1C38DA5A603028C4D9F42502E4CE297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ M.PRAVDA - Live in Motion 123 (24.11.2012) Best of November [MP3|320 кб/с]<Pr
 ```bash
 magnet:?xt=urn:btih:D257C89865239C01F99D46EA5318BBFE6AC51620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ M.PRAVDA - Live in Motion 127 (Мегамикс из лучших треков 2
 ```bash
 magnet:?xt=urn:btih:41C0B7E90EC4D3DF96412F053ABA620BAD1C321B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Madutec - Pressure Drop EP (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:19A72E541F68B5465F6EA0A25DA464747025FC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ DJ Feel - TranceMission (24-12-2012) - INTRO
 ```bash
 magnet:?xt=urn:btih:FBE7A3FBB941422ABF6A02B186A2628ED61F22A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D728096A21B60D93810711B431889B71C1AB095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ VA - Platipus Archive 2 (2012) [MP3|320 кб/с]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:99924077D1834AC214B3DC16569043214EE8631A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Animal Wallpapers (02.01.13) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:C61D4C3887FD10DD014538E6438930FC928980E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:947464DA2E3A7543F65D093700DF7240D3AD1A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ Danny And The Juniors - For Cool Grandkids Everywhere (2001) [MP3|320 kbps]<Rock
 ```bash
 magnet:?xt=urn:btih:53EEDFB06BCE0A0380CA8462523B3CDE7E866F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ David Shelley and Bluestone - That's My Train (2011) [APE|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +461,7 @@ Dj Feel - TranceMission Top 30 Of 2012 - INTRO
 ```bash
 magnet:?xt=urn:btih:A65FA1F8F9B18E3DBEF485D3DE0DCC2FF40A1AA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +495,7 @@ Delbert McClinton - Nothing Personal (2001) [APE|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +529,7 @@ Dirty Dave Osti - Burning Down The Dirtshack (2011) [FLAC|Lossless]<Blues-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27650560B1AFE81D50A767EC4B826F3AF9A57FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +592,7 @@ VA - Dubai Beach Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:C2CB1FAA17C4513C599329C472D2CBC5509CADBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +626,7 @@ The Air I Breathe - Great Faith In Fools (2011) [FLAC|Lossless]<Metalcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03DA137B928642C2A28A597AFCEA7B62B9B5A796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAD2299A0B8A97D9A5C994AACD753CB4656AD0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +705,7 @@ Nature Wallpapers (02.01.13) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:137D602DED56843FE2EACC4F3407BC58A8B8DE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +739,7 @@ VA - Different Shores (2012) [MP3|320 кб/с]<Deep Dubstep, Deep Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:BA4D61521292CA1DBC8CABBF4CCA99CD239C3BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +764,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -818,8 +793,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81CBB185D9B2867CCCB8DE7BBC26CE206F7F267F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

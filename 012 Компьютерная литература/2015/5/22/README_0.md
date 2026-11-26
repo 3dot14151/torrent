@@ -18,8 +18,7 @@ P.R. Nicolas / П.Р. Николас | Scala для машинного обуч�
 ```bash
 magnet:?xt=urn:btih:7331E30E0D7134E513DECB4CB7F6767E621C598E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Microsoft Visual Basic (VB) является наиболее популярны
 ```bash
 magnet:?xt=urn:btih:C6B5E546C3AC25BA29790B1C504F0436997FA06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Tomas Varaneckas / Томас Варанецкас | Автоматизация 
 ```bash
 magnet:?xt=urn:btih:D72B9652453F51FC650C7BC7CB18B0DC9E24183A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ B. Sheldon / В. Шелдон и др. | Профессиональное про
 ```bash
 magnet:?xt=urn:btih:5FE5F21B1F1A7FCD5861F25E1689ED70D87F999E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ T. Gaddis / Т. Гаддис и др.| Начинаем действовать �
 ```bash
 magnet:?xt=urn:btih:5D84AA3A057FC283A15EF4050F98CA5DBD81E1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Sanjay Madhav / Санджай Мадхав | Алгоритмы програм�
 ```bash
 magnet:?xt=urn:btih:082FA6BE188B074AADFA0D9645C6EAEC3036F45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Kyle D'Aoust / Колье Дуст | Скриптовая разработка �
 ```bash
 magnet:?xt=urn:btih:90993478BA03663476221E040685EFCB23FE7D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Serge Lidin / Серж Лидин | .Net IL Assembler (2014) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:EFC2DDCF634F880F4CEACECB8671A9F69A4A0B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Toby Weston / Тоби Уэстон | Изучение Scala для разраб
 ```bash
 magnet:?xt=urn:btih:A07520202F2A829AFC88DBD910FC58B4E108DEE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:931E4B1189CB9E272E5507AC9BFF0BC6328C501E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Shalabh Aggarwal / Шалабх Аггарвал | Поваренная книг
 ```bash
 magnet:?xt=urn:btih:543C8987389368299ECC619B7DA91A57CC7F047C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Richter J., M. Bospoort / Рихтер Ж., М. Боспорт | Windows Runtime
 ```bash
 magnet:?xt=urn:btih:72A3A60200D96B2F278EBD566C4923717390927B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Darrin Perez / Даррин Перес | Сделайте 2D RPG в выходн
 ```bash
 magnet:?xt=urn:btih:5E6E463343BE1B5A739BA4665B907966C51805BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Shai Vaingast / Шай Вайнгаст | Начало визуализации 
 ```bash
 magnet:?xt=urn:btih:B7B44256230AFC2632485C0B182F342FDBF4483A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ Sherif Talaat / Шериф Талаат | Windows PowerShell 4.0 для разр
 ```bash
 magnet:?xt=urn:btih:20AD14AB00583ED9C631813A3C40ED0F235CC5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ A. Gupta, A. Gupta / А. Гупта, А. Гупта | Модификация Min
 ```bash
 magnet:?xt=urn:btih:232B3E037B3DD44810823FCA06175124CDA2A0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Python является объектно-ориентированным, язы�
 ```bash
 magnet:?xt=urn:btih:8BFD63324DFF2CAD5D5C2D3C1BFF422EEF2F3903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Patrick Felicia / Патрицк Фелиция | Основы программ�
 ```bash
 magnet:?xt=urn:btih:4B79F057AC5AED5BD96D08466392E9ECCBCA9780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ M. Alchin, J. Browning / М. Алчин, Ж. Бровнинг | Професси
 ```bash
 magnet:?xt=urn:btih:BB9409F1A3848B6265A30A4B9E80AAF9E9026781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ J. Palach / Ж. Палач | Параллельное программирова
 ```bash
 magnet:?xt=urn:btih:E080829BE59B505B440D8C61E828712A097986C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Christopher Pitt / Кристофер Питт | Книга рецептов Lar
 ```bash
 magnet:?xt=urn:btih:FF613045E331A024A0754464717212ACDA68EB36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ D. Mantyla / Д. Мантула | Функциональное программ�
 ```bash
 magnet:?xt=urn:btih:BCC30563BB8D1557CEF0CAB44F5A4D23DB236034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ Simon Jackson / Саймон Джексон | Основы Unity 3D UI (2015) [P
 ```bash
 magnet:?xt=urn:btih:0A59F5BB335B59D68011EE0E787BC9B351F5628F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ Windows Presentation (   Читать дальше...   )Жанр: Програ
 ```bash
 magnet:?xt=urn:btih:3009C3A85C597EE60365821A8494BEDF8A1DC741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ Unreal Engine 4 используется для создания высшего 
 ```bash
 magnet:?xt=urn:btih:3BB6B05EC98765FA76A5FE04A7A0D94B18BD19D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE9D9D7C7A4152184FAA7A8C02A0EAF62D04D009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Futuremark 3DMark Developer Edition 2.7.6296 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:772C50E88A34739AC7C7A7AAC49DEBDE17758EE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

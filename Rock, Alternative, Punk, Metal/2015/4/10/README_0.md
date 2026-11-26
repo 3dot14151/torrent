@@ -23,8 +23,7 @@ Tora Tora - Revolution Day (2011) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3BD0D92D7DBC9E84740FCC2D48A816654DCC0443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The Muggs - Straight Up Boogaloo (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A6F110BB64BE97C11E5617D741EFF17127D45C79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ A Life Divided - Human (2015) [MP3|320 кб/с]<Alternative Rock, Industrial Roc
 ```bash
 magnet:?xt=urn:btih:2B05AD5136D2ABDD295791FAA582A468DFFE0352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Bad English - Greatest Hits (2003) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8E912D1E7FABE785D9D04855479D911CD16D8ACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Van Halen — американская хард-рок-группа. В 1972 г�
 ```bash
 magnet:?xt=urn:btih:3ED383FD7D226C85265DBCDFE5C5DA275E90B23B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Halestorm - Into the Wild Life (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Alt.
 ```bash
 magnet:?xt=urn:btih:369146469D8BD292076E49F91662B12C18C7DB1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ VA - Greatest Ever! Classic Rock (The Definitive Collection) (2015) 3CD [MP3|320
 ```bash
 magnet:?xt=urn:btih:557A8597A4456B5367B5168477B3BD20D57E3A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

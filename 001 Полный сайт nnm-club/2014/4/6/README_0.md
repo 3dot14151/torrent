@@ -27,8 +27,7 @@ Gun Barrel - Damage Dancer (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:10BDA51A25B67FDBA7FDDCD7C4E8490580D0FFE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Amazonia Blue - Fairytales of Amazonia (1997) [MP3|320 кб/с]<New age, World, 
 ```bash
 magnet:?xt=urn:btih:C97B656255E66AE11CE35528019DBD624382EF9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Dead Horse - Horsecore: An Unrelated Story That's Time Consuming (1989) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:E6DAB2A3C39FD928B872D04FEDA74A5AFC6FA550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2E639D6A780F73BA847B9002A94BF8ED3FC10ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Human Collapse - Darkness To Fall (2014) [MP3|320 кб/с]<Melodic/Doom/Death Me
 ```bash
 magnet:?xt=urn:btih:652FEF2C9FC37F8EEFF95881FB31D0159123B8BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Ben Webster - The Frog (1993) [FLAC|Lossless]<Mainstream Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:3EB2D8C4FD854469FD786E9E33E8EFE1C87BB32A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ Avi Lebovich Orchestra - Groove Collage (2008) [FLAC|Lossless]<Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:BE3D3E787B23621510EA8327B0F6062B36C56EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ Wallpapers - Lexus [JPEG]
 ```bash
 magnet:?xt=urn:btih:6E0E13A00F7C2DB13B1FD331A674956DEB0FD145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ VA - Your Songs (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:33871892E78B2969EC9082042651DB6E96F7EA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7E298C8266B13B5BECD3E7D245F084899380615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ Jazz 'n Roll - Blame it on the BeBop (2008) [FLAC|Lossless]<Vocal Jazz, Swing, C
 ```bash
 magnet:?xt=urn:btih:C451AA25515724775BA77E368493F0C85B03D8BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:440958CE47DD57FE1E2D51927D91EDA2B58CAFB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ Heavy Metal Kids - Heavy Metal Kids (1974) Remastered 2009 [MP3|320 кб/с]<Roc
 ```bash
 magnet:?xt=urn:btih:B975303B19B54542C8D70CDDDECC74AFDA274D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C359F02F4D44466648896D5B10AB3C378A91E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +474,7 @@ N/AЖанр: Electro HouseПродолжительность: 00:47:40
 ```bash
 magnet:?xt=urn:btih:ACDEE4E1F5617FF3B90EF3512F206E7C8351D161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11E0FAFA5762A6605C8684376421B225FB30F04D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ Stand Up. Выпуск №23 (2014.04.06) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:54F3CFCDABA84E0F2B1C04B92EB6CBF4F0043B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ VA - Rainy Day Vol 1 (Jazz and Lounge Selection) (2014) [MP3|320 кб/с]<Jazz, 
 ```bash
 magnet:?xt=urn:btih:AA560E7CE978C493093E95ED7AD7053C5E214E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +592,7 @@ Grant Green - Street Funk & Jazz Grooves (The Best Of) (1993) [FLAC|Lossless]<Gu
 ```bash
 magnet:?xt=urn:btih:5904B7456ADC7C7C4B9205C5E8D1789C51CC1963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ Ben Webster - Cadillac Slim (2000) [FLAC|Lossless]<Swing>
 ```bash
 magnet:?xt=urn:btih:AAE6E2BF12AECCE200BE4DF9FD5117DE3B12F4EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ Tulku - Mystic Hits: Best Dreams, Vol. 06 (2001) [MP3|320 кб/с]<New Age, Rela
 ```bash
 magnet:?xt=urn:btih:91D72BAE9268B10B4BD18847F774F65E557B6659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ Dynazty - Renatus (2014) [MP3|320 кб/с]<Hard Rock / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BB15B20141A477ED6E0853B34543637CA01CF485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FD2B0D134CB97C00D7F2739868DCD67581D1D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +743,7 @@ Ben Webster & Bill Coleman - Ben Webster Meets Bill Coleman (1998) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:DB6171E1C34B9EBD6DAA24418DFA6BBF13651482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +777,7 @@ David Huntsinger - Table for Two (2008) 2CD [FLAC|Lossless]<Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:B14D335ED8AE88007D61E43BD35D28E8F8A40FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Boom!(   Читать дальше...   )Жанр: Alternative Metal, Nu Meta
 ```bash
 magnet:?xt=urn:btih:6B885BCE2311F1E892EEE8D4BF17C19A95011F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

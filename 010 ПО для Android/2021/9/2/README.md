@@ -21,8 +21,7 @@ CountThings from Photos v3.23.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:82EC453A02AAE5C6D418820F34DB6E51EC595533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

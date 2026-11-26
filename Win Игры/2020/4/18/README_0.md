@@ -19,8 +19,7 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.1.4215/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:F4215BBEC374518CE64175DE6D0277E9FE45E1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Radio Commander (2019) [Ru/Multi] (1.122/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8C0A91C76652A7D4F6CE4E097ABFC48D155F2961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:1FFD3A0F2C5A89F0ACE4C41FB1FBEBA3DE92D00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fort Triumph (2020) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8CF4C723C99067AF9C67CAE80339B111EDC88E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (upd4/dlc) Repack xatab [De
 ```bash
 magnet:?xt=urn:btih:0D96D1DF2389A29A4A8123D928BE82699B2503C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

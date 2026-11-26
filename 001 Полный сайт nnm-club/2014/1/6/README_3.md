@@ -27,8 +27,7 @@ Little Mix - Salute (2013) Deluxe Edition [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:303C4207305AE76A5C3DC3F845D1489A266F2FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Michel Berger et Luc Plamondon - Starmania (1988) [FLAC 2.0 24/96|image (Vinyl-R
 ```bash
 magnet:?xt=urn:btih:6889AE6ADF1ADBA3EE990AD74AE7089E888CE69C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:461004698B637FEB72DB96AA43460A513BDAB9E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Franz Ferdinand - Greatest Hits (2005) [FLAC|Lossless]<Post-Punk>
 ```bash
 magnet:?xt=urn:btih:6F01DB33E2FBBBF29ECDA9B71E0C67628CF6DF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ VA - Зимний Хит-парад DFM. Отрывайся по-полной 20
 ```bash
 magnet:?xt=urn:btih:CAB87B8DFCA9E1782BCF5F45809F945366EFF802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78261D23BC8B9462F55712753AEAB7FE4320D912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Motorhead - Aftershock (2013) [ALAC|Tracks]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0FDC37143AE6BE7DB96B3F1BAB35C6C045940156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Stanley Lau / Artgerm (part 2)
 ```bash
 magnet:?xt=urn:btih:F600FA4E191C87C1EF443F413B144B583045CC97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61EF2C67DA93426FF906E289826FF68A270EF3EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ Choir of Young Believers - 2 альбома (2008-2012) [FLAC|Lossless]<Avant-po
 ```bash
 magnet:?xt=urn:btih:6446DE5A916F2EAF80A5C685F653F2E87A188B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ Rainbow - Since You Been Gone - The Best Of Rainbow (2014) [MP3|320 кб/с]<Roc
 ```bash
 magnet:?xt=urn:btih:CB763BC5CA10B44A97BE9796632F432E62FE3760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CD388CD3C8292633B00F93C701458726BF97A3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A17FB6BD5D34A42EFBFC868A249CA9EE1BECD5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ WinApe 2.0 Alpha 18 [Английский] (2011) [Amstrad CPC]
 ```bash
 magnet:?xt=urn:btih:033CB5E27AFFF6551FF57BC47983DAAE4DCFAFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ NG: Взгляд изнутри. Сутки в аэропорту Майами /
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ Windows Hotfix Downloader - небольшая бесплатная утилит
 ```bash
 magnet:?xt=urn:btih:F770A5501EAE99E82B259AFE6FD24C5F0310EFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3413BBC211B01C5B1681CA8A11254B32FD7F89DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ Boris Zhivago - The Last Goodbye (2013) [MP3|320 кб/с]<Italo-Disco,Hi NRG>
 ```bash
 magnet:?xt=urn:btih:46C593BFF6AFDB0D6AC04653EFA908EA9B5227BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ Discovery: Мегаструктуры: Грандиозные переезды: 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +657,7 @@ VA - Best Of Stamina Records 2013 (2013) [MP3|320 кб/с]<Hardcore, Hard Techno
 ```bash
 magnet:?xt=urn:btih:F13BC84DF254D6686EF83A74EF72C2FF3AC14459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ Gabriel Knight: Sins of the Fathers [PS3] [En] [3.55] (1993)
 ```bash
 magnet:?xt=urn:btih:C909D92C1065BDDBFC96743FBC09BC9CF1ACD200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB93CBA64D7327D488DCB4064ACFD848CEE643BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:958EBC2636008E0E899D332C1AEE82E026D28356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

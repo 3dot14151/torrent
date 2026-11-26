@@ -19,8 +19,7 @@ C. Адлер, Р. Дашен  | Алгебры токов и их примен�
 ```bash
 magnet:?xt=urn:btih:E65EE943E2B2B12635683E8D53FCFD254A37D99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Gears of War 2 (2009) [Xbox360] [Region Free] FreeBoot [License / 7 DLC] [Ru] [G
 ```bash
 magnet:?xt=urn:btih:E0EDFA59B93269F975A77565A570A8907B6B1F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ CrazyTalk — новая обновленная и улучшенная верс
 ```bash
 magnet:?xt=urn:btih:9D9AD200E7F63386F95BF188101E412870C15DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Grand Theft Auto III (2002) [Ru/Multi] (1.1) Lossless Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:E679E80AC6F7A31591689D376D80D0B31C506063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D44F6C856D7B726D0420B6DF815814A731B4A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:643DA8750FF5E875648AE01C594C73AEC6BAE879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Grand Theft Auto 2 / GTA 2: Беспредел (1999) [Ru/Multi] (11.44) Lossles
 ```bash
 magnet:?xt=urn:btih:BFCD2861437EEC85F3389DB244E8A044D6475E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AF84B31D8D4A7CFCB28C963BF3411F7AFE27003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Grand Theft Auto: Vice City (2003) [Ru/Multi] (1.1) Lossless Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:6A530EB832616AC8FC1AEFB47BC1FCD84A4BA880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AADA1203DA4C6B4F86A9DBC034589E637CD3F217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70B3DA0F21E8706FC5DF4F762EB843D7DC8A0C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ Grand Theft Auto: San Andreas (2005) [Ru/Multi] (1.0/1.1) Lossless Repack R.G. O
 ```bash
 magnet:?xt=urn:btih:CE644BA252ED8A8ED35B90B24852A13A08C542CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0CFE4383F0FA3D32E781208DA0693ABDBA02306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

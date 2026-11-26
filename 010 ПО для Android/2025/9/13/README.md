@@ -19,8 +19,7 @@ Talksy: Навык общения v0.1.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FE598BA3EE7C96433D5C52BD861032AA30C4AD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58805C808BEC45F2C8D9A0077BB652E7B88F5E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PhotoDirector v20.5.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:315D5A1088E7B456FB7162A36B6619EA721EB934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PowerDirector – Video Editor v15.7.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7BF2C6F091E8026A29211DAFCA22CF4514E014FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

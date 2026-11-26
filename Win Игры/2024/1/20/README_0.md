@@ -19,8 +19,7 @@ The Cub (2024) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:69CFBBAB653CFEF9D02AAF8F8C311ACB7894D084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893/dlc) License 
 ```bash
 magnet:?xt=urn:btih:B02B3488A69BBDE99C7589E50D30FA0E06DF6238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kingsvein - это тактическая RPG в духе олдскульных
 ```bash
 magnet:?xt=urn:btih:045E2F4CCED061B62BFB4C2BFCE940A84526B5B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

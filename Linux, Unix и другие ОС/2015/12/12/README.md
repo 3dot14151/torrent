@@ -21,8 +21,7 @@ pfSense - компактный дистрибутив для создания м
 ```bash
 magnet:?xt=urn:btih:5023F244885E55715815E1192F923A13760841B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

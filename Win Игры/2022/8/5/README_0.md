@@ -19,8 +19,7 @@ Hard West 2  — это пошаговое тактическое путешес
 ```bash
 magnet:?xt=urn:btih:3629A7EDBEE62DC9EF37040249C86105027E3196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Midnight Protocol (2021) [Ru/Multi] (1.3.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E7ADB5FFE3F52273786409E91C6F14BEB1335B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bridge To Another World 10: Cursed Clouds (2022) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:51FD93249E924A6412D3F30DB4A0AD290A66FDD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sins of a Solar Empire: Trinity (2010) [En] (1.38) License GOG
 ```bash
 magnet:?xt=urn:btih:1D31E8F7EF5A9163E0DA9A18AFAD4E83F01B53FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

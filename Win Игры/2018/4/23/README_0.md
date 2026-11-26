@@ -19,8 +19,7 @@ Nevertales 7: Creators Spark / Несказки 7: Искра Создателя
 ```bash
 magnet:?xt=urn:btih:85DD7644768834F5C30FC8F82AA9AB3B294485ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Saga Of The Nine Worlds 2: The Four Stags / Сага о Девяти Мирах 
 ```bash
 magnet:?xt=urn:btih:68C630EBC14B5C73219BDFE45545EF575694EE1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

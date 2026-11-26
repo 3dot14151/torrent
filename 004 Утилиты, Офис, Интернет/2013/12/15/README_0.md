@@ -19,8 +19,7 @@ Auto Hide IP - позволит Вам заниматься серфингом �
 ```bash
 magnet:?xt=urn:btih:2A8FDDFCB8AA0C1E35683512EB3B79BB3F2BDD57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

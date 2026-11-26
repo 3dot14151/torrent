@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A2DAE4E6FD77E8094364D8C637206D18AF75243D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Imperialism II / Империализм II: Век исследований [Ru]
 ```bash
 magnet:?xt=urn:btih:F8C5BF606589D51AADC5189EBA4C1242AA569202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Undercover: Operation Wintersun / Совершенно секретно: Опе�
 ```bash
 magnet:?xt=urn:btih:A38A570BC8EBB15B0319AF1EEE8E08CAB55E36A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Civilization: Call to Power / Цивилизация: Воззвание к си
 ```bash
 magnet:?xt=urn:btih:5D0420E60751D5911E5407E56ACFAA66A7F3BAD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Infernal: Hell's Vengeance / Diabolique: License to Sin / Infernal: Дьявол
 ```bash
 magnet:?xt=urn:btih:47EFE4B10256D6063F485A7A97645308940D00DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Starship Troopers: Terran Ascendancy [Ru] (P) 2000
 ```bash
 magnet:?xt=urn:btih:664902F5730361C092BF1982CA6288D97BF2DD59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ StarLancer [Ru] (RePack) 2000 | Pilotus
 ```bash
 magnet:?xt=urn:btih:618D38190B40AD183BD559CD943D6F7D3AFE92F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Railroad Tycoon II / Железнодорожный магнат II (P) [Ru] 199
 ```bash
 magnet:?xt=urn:btih:013963BA269B9199A378AC482BC8AA38F8E79CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

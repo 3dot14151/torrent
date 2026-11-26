@@ -22,8 +22,7 @@ VA - House Life Vol.19 (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:D8ACDEBB6AF3EBC388EBCE2B93D0E08A37013303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Delicihouse (The Sound Of Deep House) (2018) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:58B49E88BA4B306A8D67861AFB411D60E942F8A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Art Blakey And The Jazz Messengers - Live at Kimball's (1986) Concord Jazz [FLAC
 ```bash
 magnet:?xt=urn:btih:7137591DFA1CF79CDEE31CE2D2A9487AC35F38B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lester Young - Blue Lester: The Immortal Lester Young (1944 - 1949) Savoy Jazz [
 ```bash
 magnet:?xt=urn:btih:87BDBBA1F26AC4B84B6C0896781D67638B048344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Buster Williams Trio LIVE - 65 Roses (2009) BluePort [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:BC2023C510E589238690BF6D5B2F46DB7AE83F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Music Lovers 2018 [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:83377B49FE08887186AD0BECF5E7B783AA907B43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Jean-Louis Rassinfosse, Chet Baker, Philip Catherine (1983) 1985, Igloo [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:BFA2966200E809F0E0A87042F3411EF3B5D8560B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Dinah Washington - Ballads (1962, 1963) 2002, Roulette Jazz [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:9B2EB95DE7413E6991806622BCEE1FFC2335B562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Ron Carter And The WDR Big Band - My Personal Songbook (2015) In+Out Records [FL
 ```bash
 magnet:?xt=urn:btih:C4D8B82148656DE819E55009EB7F32C99E1A8A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64C8AB069C0DE2B9C5DAEC27AC70FFF72DCF03DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Progressive Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:56A7382E7CD40CF685449156091D32C1089E48C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Club Masters Vol.15 (2018) [MP3|320 Kbps] <Future House, Progressive>
 ```bash
 magnet:?xt=urn:btih:127C4E26F6B74D4C60A54BFF8414F87E1FC1982C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55A1396B5378868BAB5451118465C85B79FAA8A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Facechain - Accensor (2018) Dream Catalogue [FLAC|Lossless|WEB-DL|tracks] <Techn
 ```bash
 magnet:?xt=urn:btih:FE3730CC5E3FF7496FBD599934C0ED2C3EBB5506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:CA7F92A2B91DA99B92A29B112670379C5006202B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:05F54F9CA94A6272C3403A88590D923D2F9B5673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B112A4A9D8B42F556D1981CCD352F46C6828335E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Mike Garson - Mike Garson's Jazz Hat (2008) Reference Recordings [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F28EC1362FCD2C99508A41CDB335B36C3136C2F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ VA - Deep Progressive House Set (2018) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:E959819F38B75DCE489D4E7D79E366A25D16BA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ VA - Dinner In Love (Romantic Lounge Music Playlist) (2018) [MP3|320 Kbps] <Bale
 ```bash
 magnet:?xt=urn:btih:1EF83E8EEE34A8CD1FAA5F5BFB404B28D8D73A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:153E7286C8FCBC21593C9CFFD8917AC4C4A0E7C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ VA - Chillout Empire Costa Del Sol Selection (2018) [MP3|320 Kbps] <Downtempo, C
 ```bash
 magnet:?xt=urn:btih:A9BA3CF2B220C0EEB95F3BEE64B37D9C716C8A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ VA - 2000 Hands (2000) Hands Productions [FLAC|Lossless|tracks+.cue] <Rhythmic N
 ```bash
 magnet:?xt=urn:btih:ABE78F1BBA47BD43BA4E37294A498A9D76CFBA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6EF06B3F5EFA1ACEE28EC6EACF636679C52A1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ Robert Moore - Outta My Soul (2012) 2014, Reference Recordings [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:12332AF7C8272784A0AF0218FCB20B47F3536124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ Hudson-Ford - Nickelodeon (1973) Reissue, 2015, Big Pink [MP3|320 Kbps] <Soft Ro
 ```bash
 magnet:?xt=urn:btih:E7EC4E4B682329DC9C374597229570B9EC415638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

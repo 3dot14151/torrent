@@ -19,8 +19,7 @@ Astro Looter: Survivor – настало время отправится нав
 ```bash
 magnet:?xt=urn:btih:6DBCD961DD201423C4F67522F6BFF8EED56AD3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Founders' Fortune (2020) [Ru/Multi] (1.2.8) License GOG
 ```bash
 magnet:?xt=urn:btih:5AE43A31924DD167E3DF84653E5F992B51368F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

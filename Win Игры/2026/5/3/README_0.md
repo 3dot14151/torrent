@@ -19,8 +19,7 @@ Lay of the Land - это песочница с физическим миром, 
 ```bash
 magnet:?xt=urn:btih:DB1B3FDBC39F1155520C61EC39A98FE6CB4AC3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bus Bound (2026) [Ru/Multi] (Build 22926160/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:81D04B815D316CCB8DCB9EA4FB0DD679500739CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Skull Horde - это игра в жанре auto battler dungeon crawler, в к�
 ```bash
 magnet:?xt=urn:btih:E5F4165182C567C662CFA29647F5310644B56296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Minos - это игра в жанре roguelite со строительство�
 ```bash
 magnet:?xt=urn:btih:E003936267B609F4B400C557002D7C5B28D88E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bubble Hunter / Охотник за пузырями (2024) [Ru/En] (1.0) Portab
 ```bash
 magnet:?xt=urn:btih:9E2B46F98C6563D4EB8869CDBC14A56644075120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kamikaze Lassplanes - это визуальная новелла, в котор�
 ```bash
 magnet:?xt=urn:btih:326168F71F7984FB2A531AF289A0200B79C136AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Rumbral (2026) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6F2E870B2E91F62BBA0FE5CCA6F7797DB52144D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Last Man Sitting (2026) [Ru/Multi] (2026-03-26_59219/dlc) Repack FitGirl [First 
 ```bash
 magnet:?xt=urn:btih:2B1DEC9A0C7878D5A1ECE643A1FFF81AD81701F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Subliminal (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:48084BA83B9D25D02AD9A8383257FC800B4CC997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

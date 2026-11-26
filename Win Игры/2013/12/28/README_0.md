@@ -20,8 +20,7 @@ Sanctum 2 (2013) [Ru/Multi] (1.1.25536.0/5dlc) SteamRip @nonymous
 ```bash
 magnet:?xt=urn:btih:4DAC8D4EDDA40493C0C1C4957A4F17E5C5442C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

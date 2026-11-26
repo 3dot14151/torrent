@@ -28,8 +28,7 @@ VA - Sky Near Melodic Sunset (2013) [MP3|320 кб/с]<Progressive, Uplifting, Me
 ```bash
 magnet:?xt=urn:btih:0A2EBFE8BD0342E3E5CD8931E5DEF45EFCDB5857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Optiv & BTK – Journey From The Light / Introvert (2013) [MP3|320 кб/с]< Dru
 ```bash
 magnet:?xt=urn:btih:F5118084784F3A0A940111AB9BF0F864D3161C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ N/AЖанр: Melodic TechnoПродолжительность: 00:33:57
 ```bash
 magnet:?xt=urn:btih:81DFE5BD3783ADD5772163CF1F791A8ABE68C073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Mikal – The Immaterial EP (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:45C8A3C609F0DD1CD74DA558320ADBCADED11E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ VA - Ibiza Seasons (Winter Edition) (2013) [MP3|320 кб/с]<Deep House, Electro
 ```bash
 magnet:?xt=urn:btih:AB3A845E76CE1E99D8026E78272C7F7958A8F7A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ VA - Trance Eve Volume 60 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:DA9FBB77BF521457DEF966794A08FBDB66D0788E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ VA - Клубные Новинки Vol. 352 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:88CDADA9B98D87DBC723489016C61EFBC6C47BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ VA - Клубные Новинки Vol. 353 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:859C7DE24007D601186BE777789FFF980FE9FD02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06F58AE67408437997DA18A1F5B486DA12CA355E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ VA - Club Trance Volume Seven (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:6D9448DD51DFA15C73475E407853FE6AB6A9A87D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ VA - Клубные Новинки Vol. 354 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:21F00EEC4280EE9D08A8B0742277653B4635E67B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F2F3C0C31672D6EBBD17BA2AD8C23ECEAEC1A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +394,7 @@ Six Blade – Forget Who You Knew EP (20131) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2E1F38DA5D27FB9B0B01304C66CB5BFBFA9B3816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ Au5 & Fractal – Secret Weapon EP (2013) [MP3|320 кб/с]<Drumstep | Dubstep>
 ```bash
 magnet:?xt=urn:btih:FDBB61A86FBE5FBA08115E29A699828824FB43D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3C968F1F2F371F58BF459FAC2983889A57B4A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A9B0DA30BE972768C6D88BB5044AD6854FA38FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD684C6DBE7BD27693BB4E6590F2F8BA1B9A9584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ Sei A - Make It Work [EP] (2013) [FLAC|Lossless|WEB-DL]<Tech house>
 ```bash
 magnet:?xt=urn:btih:10739B3F5B5CED5C26B1085B04528860532853A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:930AFB849F841325F19C7B754996BFA4F1BA33FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40A13A96E6166078A7540D39A386275697E7CB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ Frank Riggio - Psychexcess I - Presentism (2012) [Hymen Records] [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:E272B3D3C34DD00891BCB9406FE89B51153621BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3918E4307D3EE95F0ADD5ADCFAA38749A641F747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B6BB0FE8A606FD049060F87DC71B86E2C6771E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A8AF94F471354B17D87AD7C7F9E066CB1700292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:408CF05C6B615ECBCA1C78CA5F56D7D35A5899FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +739,7 @@ Joya Mooi - Crystal Growth (2013) [MP3|320 кб/с]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:B5E213B707445F23DC097C8329FE4A1879A07A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wise Windows Key Finder Portable 1.0.2.13 [Multi]
 ```bash
 magnet:?xt=urn:btih:18B8E85810882CB1FF2394DEAB22BD710EAEDF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

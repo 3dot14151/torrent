@@ -28,8 +28,7 @@ Vindictiv - Cage Of Infinity (2013) [FLAC|Lossless]<Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Vhaldemar - Shadows Of Combat (2013) [WavPack|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Attic - The Invocation (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Edge - Heaven Knows (Japanese Edition) (2013) [MP3|320 кб/с]<Melodic Hard Roc
 ```bash
 magnet:?xt=urn:btih:C37127046D8446CA86B1CF1C0CE93A0CA3B32424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - Classics In The Metal (2013) [MP3|~245 кб/с (V0)]<Heavy Metal, Power Met
 ```bash
 magnet:?xt=urn:btih:102376C4F4EB1F8E2E787BA9A8172EF7C8FA29B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Orphaned Land - All Is One (2013) Limited Digibook Edition [FLAC|Lossless]<Orien
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Blood Ceremony - дум-метал группа из Торонто, образ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Genesis - The Lamb Lies Down On Broadway (1974) 2 Japan Mini LP SHM-CD /2013, Un
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ The Moody Blues - Timeless Flight (2013) Limited Super Deluxe Edition BoxSet, 11
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Mitch Leeuwe | Mitch Leeuwe Tutorials / Учебные пособия Митча
 ```bash
 magnet:?xt=urn:btih:68AEEF30BA71DDB4FAA7C9816E59FEC0C08E8725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

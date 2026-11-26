@@ -22,8 +22,7 @@ VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Re
 ```bash
 magnet:?xt=urn:btih:84E75A1EC4D380373866CE73E20381F038050014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dream Theater — прогрессив-метал-группа из США. Ос
 ```bash
 magnet:?xt=urn:btih:F54DA8DF7B049A3992B3F87B218182001FC3E6E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

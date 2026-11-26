@@ -28,8 +28,7 @@ Electric Six - Mustang (2013) [MP3|320 кб/с]<Alternative Rock, Hard Rock, Ind
 ```bash
 magnet:?xt=urn:btih:3DC75ABDC5022DF6EC74D8D5819311F914C7119B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Patent Pending - Brighter (2013) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:466AE05140AF363D32698833060979AE846E095F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Taurus - Opus 3: Research (2013) [FLAC|Lossless]<Symphonic Prog, Instrumental>
 ```bash
 magnet:?xt=urn:btih:B3F005C181E65E758233749B11C838AFC030E04B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ BJ - Acoustic Heroes (2013) [MP3|320 кб/с]<Melodic Rock, Acoustic Rock>
 ```bash
 magnet:?xt=urn:btih:4902081142BE849D2494E6619161610E89A579AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Dire Straits - Live At The BBC (1995) Japan [WavPack|Lossless]<Rock, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:CAE8F917F901A44B900B46AD875B737FE2B5A411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Alvin Lee - The Last Show (2013) [FLAC|Lossless]<Blues Rock, British Blues>
 ```bash
 magnet:?xt=urn:btih:C1B60F8E419C4737ABF8E9D72A5974C64DF7865D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Strawberry Fields Forever - Kenwood Demos(   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:45F98E2C94569D0937ED3A180FA77D5AB1B28678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

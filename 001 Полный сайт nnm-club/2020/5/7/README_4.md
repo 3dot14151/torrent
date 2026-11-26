@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5F80341457996DA750C0071B3DF962FF449952C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D8278D1AA8C437094B9ACD3E0529BD394EE3CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:683301B1E5CA280CF98A210FC7749B4CAD3169F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DD944F18F9F91FB8AF8CEE0164D83792D8BF940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4C20EF81CAD471840898D6B202A71537F8075EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Windows Office - это бесплатный офисный пакет, позв
 ```bash
 magnet:?xt=urn:btih:DDEF7E21DBA5804D7CA3CDAF7950B489137B49CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6234F35208DD6962C8FFDA45BC0806C699D82C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ PowerTube поможет скачать ваши любимые видео и м
 ```bash
 magnet:?xt=urn:btih:A9ECE6182DCAD7119B5A77407132B5391E4D88F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ WindowsWord - бесплатный и удобный в эксплуатации
 ```bash
 magnet:?xt=urn:btih:40D37A8DF497FC8473F19DDDE0DBBDA7F0742EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ OreGairu | Yahari Ore no Seishun Lovecome wa Machigatte Iru | Жизнь - Лю�
 ```bash
 magnet:?xt=urn:btih:724C986ACA3ACE3867D35EBFBBB7AD18CAA72C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ OreGairu 2 | Yahari Ore no Seishun Lovecome wa Machigatte Iru. Zoku | Жизнь
 ```bash
 magnet:?xt=urn:btih:691B08EA5408E8E7FE761A4375AFC55F6467FA49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Redline | Красная Черта [2009, Movie] BDRip 1048p 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:355BD76D6EE380024848A7B288E7A8BBCA58E7BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 ep] BDRip 1080p HEVC 10-
 ```bash
 magnet:?xt=urn:btih:1E59A85BA7A0C261B8D061AF1DC5B5502B2227FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 ep + 1 s
 ```bash
 magnet:?xt=urn:btih:5117BC59BB705AC08A659CCAB393EF954A97C778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Berserk | Берсерк [TV-1] [1997, TV, 25 ep] BDRip 1080p 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:817765260D1B8A99404DCE92263315001CA8B186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ Sword Art Online | Мастера Меча Онлайн [ТВ-1] [2012, TV, 25 e
 ```bash
 magnet:?xt=urn:btih:3C246D97DA922A989AF07CB5E23B76918EECB514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ Deus Ex: Mankind Divided (2016) [Ru/Multi] (1.19HF/dlc) License GOG [Digital Del
 ```bash
 magnet:?xt=urn:btih:72684497FA2BECC769B3B247668DE92B71604945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +446,7 @@ Windows 10 Enterprise LTSB 1607 (x86/x64) by Paxweaver (04.2020) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:660D90FEA3CDC5C2793F14ABAC81618769F329EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:410FB6BB917629DBB693C60E1350A4172AC12CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +496,7 @@ Call of Duty: Modern Warfare 2 - Campaign Remastered (2020) [Ru/Multi] (1.1.2.12
 ```bash
 magnet:?xt=urn:btih:EECF5131D23730AD61D7C390048006939385C9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

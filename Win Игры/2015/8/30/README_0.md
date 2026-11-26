@@ -19,8 +19,7 @@ Grave Mania:Undead Fever / Зомби-Лихорадка (2012) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:6AF6A9F61015C36319B7DD4BD3800CBF7017987F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aaru's Awakening - это двухмерный аркадный платформ
 ```bash
 magnet:?xt=urn:btih:1BEAC2253996A3CD3B1FE56FA60F0040C817782A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Big Pharma – капиталистическая мечта каждого, к�
 ```bash
 magnet:?xt=urn:btih:1647020C9C8E7A946A855876747402415E67C469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mega Man Legacy Collection преподносит мега-подарок все
 ```bash
 magnet:?xt=urn:btih:F5187BC24A7F6167A0102ECABE7A78D68BBEA33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ I Shall Remain это постапокалиптический ролевой э
 ```bash
 magnet:?xt=urn:btih:79007BEFCC23B1C56ADA71728C3A73E6625E88F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ X-Men Origins: Wolverine (2010) [Ru] (1.0.0.1) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:9162759E0FCE432246129CB3F4299EC85A1CE6C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dead Rising 3 (2014) [Ru/Multi] (1.0.0.6/upd6/4dlc) Repack xatab [Apocalypse Edi
 ```bash
 magnet:?xt=urn:btih:9F68E93DDEAD614765983F3CB9C808429BDC9061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

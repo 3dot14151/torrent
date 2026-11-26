@@ -19,8 +19,7 @@ Stargate: Timekeepers — тактическая игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:A7B2987D3A6DDB999812FAB4F7D3124D8E82FA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rogue Waters - это тактическая пошаговая игра в ду
 ```bash
 magnet:?xt=urn:btih:BDA355E7D19E57014B4DA05DAFAE022AF03A7BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.005.26813) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:504B5E65F080C2EEAE237EECF1462C80936334B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:1D798CA389D0CB303F222ACD7FF9825315C423E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:0D0B31089844FB82A582084F09CE164D278C467C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:37C6C1932884AEE94F580508061C44663E01D7A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

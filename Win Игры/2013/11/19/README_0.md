@@ -20,8 +20,7 @@ GRiEF - психологический платформер от независ�
 ```bash
 magnet:?xt=urn:btih:66F4E5C244A3E76EA57309FAEC2CE134617F8368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Spacebase DF-9 (2013) [En] (early access alpha 2 taste oddity) Repack Elektra
 ```bash
 magnet:?xt=urn:btih:9A453033B40924699C1870D99D7604FF726AC78C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Blood Knights рассказывает историю Джереми, охотн
 ```bash
 magnet:?xt=urn:btih:E36FA184DE509DA7E793495A127D00BF5086EC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

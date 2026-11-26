@@ -19,8 +19,7 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:D5CFB430DE6E46DC3D258E149421AC1551FFBACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ iFind Data Recovery - программное обеспечение для во�
 ```bash
 magnet:?xt=urn:btih:7B7D5FDD1EF94B233135F731B7D3F5A0842D1945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

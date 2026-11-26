@@ -19,8 +19,7 @@ zVirt — комплексное программное решение для б
 ```bash
 magnet:?xt=urn:btih:36F9429C723DD9CAB71354988C742B6ACB868ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ MiHome v10.0.706 Mod by Vevs [Ru]
 ```bash
 magnet:?xt=urn:btih:F954C340DF6327367CDF6D0C167A256BCD14CB52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Fully Fluent - Learn Languages / Бегло - Изучайте языки v2.5.4
 ```bash
 magnet:?xt=urn:btih:91A4ACEAE6D39BD2CBA1420D33FFD4F3F9F9735B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

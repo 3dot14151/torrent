@@ -19,8 +19,7 @@ Twinkle Tray позволяет легко управлять уровнями �
 ```bash
 magnet:?xt=urn:btih:468CCFCF85552FBBC84BD2160492B087070D9828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:DAE8741BA4E942D55805606B4EF3909285ECED4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

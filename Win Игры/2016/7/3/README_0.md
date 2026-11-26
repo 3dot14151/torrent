@@ -19,8 +19,7 @@ Désiré (2016) [Ru/Multi] (1.03) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:87C9411B387788429657B04E5E0AC953AF83FFDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spider: Rite of Shrouded Moon - играем за паука, плетём се�
 ```bash
 magnet:?xt=urn:btih:139C2EEEAAC223F09ED42B2E1F41206D419B8558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Astebreed – динамичный shoot-em-up от японских разра�
 ```bash
 magnet:?xt=urn:btih:D898671B7B6546247EFD28983C1A72F5E1284241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7E5421DD62FFDBC548E6C11924EAD735F1916246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ AMOK (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F1C9B8F537926929EC66D8D432DE4B36DEAA3393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Gnomes vs. Fairies игра в стиле Hack 'n' slash-Action RPG platformer. 
 ```bash
 magnet:?xt=urn:btih:84BA45974DD4D7929D30BE24FC11F8253818A4AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ RC Racing Off Road 2.0 (2016) [En/De] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:2903ED09F087685C2503BF7AA7DE30C5A6AD8E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

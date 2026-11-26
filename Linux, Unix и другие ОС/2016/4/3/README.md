@@ -19,8 +19,7 @@ Debian GNU/Linux 8.4.0 Jessie [amd64] 3xDVD, 2x updateDVD, 1x netinstCD
 ```bash
 magnet:?xt=urn:btih:F1424D4844B3D46A1F2A5375A8E40102065ECD4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Mountain Goats - In League With Dragons (2019) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:34AE7B98EF1547075A328BDABE625A290CB70701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Yours Truly - Afterglow (2019) EP [FLAC|Lossless|tracks + .cue] <Rock, Pop Punk>
 ```bash
 magnet:?xt=urn:btih:1CDD40A23928EC5170D348E5995B2FBD1217E30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Millencolin - SOS (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk>
 ```bash
 magnet:?xt=urn:btih:A85C673583EE36E39A4D9E2FD7334875FEE54AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Myrath - Shehili (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Folk M
 ```bash
 magnet:?xt=urn:btih:BB198671D0ABA917A7BB8B41B76C200947933525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tom Keifer - The Way Life Goes (2017) Deluxe Edition [FLAC|lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:7217DA38AFAC35B7C199B1449BE18BD090D6DA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Cats In Space - Daytrip To Narnia (2019) [FLAC|Lossless|tracks + .cue] <Classic 
 ```bash
 magnet:?xt=urn:btih:A77768489DD0B291F741CD5CB56C76B30DAAD06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Hozier - Wasteland, Baby! (2019) [FLAC|lossless|image + .cue] <Rock, Indie Rock,
 ```bash
 magnet:?xt=urn:btih:E143567F464D1C57A80FA553FD9CF987B2878ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Fortune - II (2019) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F2B6280798B33929FE378371388680B47908651D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Wildhearts - Renaissance Men (2019) [MP3|320 kbps] <Hard Rock, Punk'n'Roll>
 ```bash
 magnet:?xt=urn:btih:53A3A7A24AE0812847C139F871497C2AC7241F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Cigarettes After Sex - Cigarettes After Sex (2017) Partisan Records [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:9B76A64F47FD495034044F2632E4C653EE9817A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Focus - 11 Albums, 1 Box Set (1970 - 2019) 24 CD [FLAC|Lossless|image + .cue|tra
 ```bash
 magnet:?xt=urn:btih:B36E51F9B783BE9FDF25E6CABAD2BAC9085D15FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

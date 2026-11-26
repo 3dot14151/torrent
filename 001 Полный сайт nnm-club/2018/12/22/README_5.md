@@ -22,8 +22,7 @@ Marion Montgomery & Mart Rodger Manchester Jazz - Makin' Whoopee (1993) Bowstone
 ```bash
 magnet:?xt=urn:btih:68F2EDF122EB5B5B320A2ACEC70E02BF86C1BF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Joey DeFrancesco & "Papa" John DeFrancesco - All In The Family (1998) HighNote [
 ```bash
 magnet:?xt=urn:btih:2CDE305A996B00ED1628A22B0782C15312058A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A3EA81F031A3ADFCEF03F38B1C5BCA0455A589B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:FAD9B5B9154D073273E5D572009AAA16C689C56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6330588A082FE9AAC90B0BC0F25510132B4B1F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Chingona: Psychedelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:BAE96A10DB8BCD4A3420C0B608398C526FF892BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E1AFEE8A8F6B1C1E551BA0F75854BEE2489457A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61CFAF4885444C4F6B9F08479C2FD098BB03C00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C59BFF8332677C1C4DB3CC4111A3DA3465E8B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ VA - The Official UK Top 40 Singles Chart 21.12.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:6EFDF29B2E858304FDA0FDA2AFF85B00B2B2215C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Phlebotomized - Deformation Of Humanity (2019) [MP3|320 Kbps] <Progressive Death
 ```bash
 magnet:?xt=urn:btih:16B1D866304BC705B97DE6CE0FBD68DCD543EB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C6BCB75321F7979235F762C06AD0F04AA0BEC111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:8A239F7A47045E487216B3C93202A42B4829CCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Foghat - The Best Of Foghat (1989) Compilation, Reissue, Rhino Records [MP3|320 
 ```bash
 magnet:?xt=urn:btih:93A4CE9394EBA0F0A41DE339162C3A09F91998C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23D22A3222B2E88C29F20737DB5C092302595997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ VA - Beautiful Light: New Trance Music (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:594BAA7F2B49952E1712A5D259D713A15EE7E699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ VA - Xmas Hits (2018) [MP3|320 Kbps] <Dance, Pop, Ambient, New Age>
 ```bash
 magnet:?xt=urn:btih:3913362707A6E0CC14324BC21284244780473E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ Promises - Promises (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
 ```bash
 magnet:?xt=urn:btih:7C802997AB6EBA9E1EB7BE46E34518B5A13235E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49206C753FD285785563F1C00AB96FEE3AC94BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Helloween - Better Than Raw (1998) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:A289DF5B668E466070BF1268C62B5D27966644B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ Wirecast предлагает доступное программное обес
 ```bash
 magnet:?xt=urn:btih:E76972FEED722C64EC5F4560381F5F6417B8510C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ VA - ЕвроХит Топ 40 Europa Plus 21.12.2018 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:94EB31A3CB6C2EC96793813D3C32F6310697EB56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3067B7BF80E5CFFF43FE6590BDA587B7A34124C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ Belinda Carlisle - Belinda Live! Good Heavens Tour! (1988) DVDRip [hand made 60f
 ```bash
 magnet:?xt=urn:btih:9733929FFBEBE59EA7F03A12DF70094E4AD6AC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E13C91EB398F3BB25183DD82ED576E2747FC7DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:226BC12589C73E2649058D0CD71212ADB3DFB519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

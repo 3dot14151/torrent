@@ -19,8 +19,7 @@ Google Earth Pro 7.3.6.9345 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FE619F2A38397A750FB8A5D857AF423B3DE5DB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

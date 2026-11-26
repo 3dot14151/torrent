@@ -19,8 +19,7 @@ King's Table - The Legend of Ragnarok (1993) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:ECD9BC1859F56C443F8F08B1E5458041EA312A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2716B309F3E7B5300482E041253510FE0B8DA2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - High Rankin presents This Is Suicide Dub Volume 1 (2010) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:4845516FB28C01F76D8FD5E42680DEDF2F3D9487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Illegimitation (Demo 2003):
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ The Smoking Time Jazz Club - Lina's Blues (2011) [MP3|320 кб/с]<Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:4F375943AE394BF786C52B957B9875F17664A2ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ The Tremeloes - The Complete Collection (1992) [MP3|320 кб/с]<Pop/Rock, Pop, 
 ```bash
 magnet:?xt=urn:btih:EAE0E5339C80E4DAE8237060EA22D863A6640E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ VA - Foreign Collection Of Hits Зарубежный (2012) [MP3|256 kbps]<Dance
 ```bash
 magnet:?xt=urn:btih:538A54510A96DDEB2EC833B569DA1446F8C32001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Space Cat - The Remixes (2010) [FLAC|Lossless]<Psychedelic / Full On>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Desert Sin - Destination Paradise (2012) [FLAC|Lossless]<Heavy Metal/Power Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ VA - High Big DubStep (2012) [MP3|320 кб/с]<Dubstep, Progressive>
 ```bash
 magnet:?xt=urn:btih:3D038053C8C5E8530B50CE0431DBAE9690A242AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5059FD742DE5BCB6D533A3AA9CB16A822DAB8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81416B549F3ED435FEF3E26D522532DB3B73244E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ VA - Звезды Танцевальных Хитов. Зарубежный (201
 ```bash
 magnet:?xt=urn:btih:C8D3509881E4A32FD773085F67C30BC9F8AE20F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ VA - Dance Dance Dance Party (2012) [MP3|256 кб/с]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:76449B5AF396CB49C2EEA893A355F8174F45EEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +436,7 @@ VA - Trance Maniacs Party: Uplifting Breeze #35 (09.03.2012) [MP3|320 кб/с]<U
 ```bash
 magnet:?xt=urn:btih:A26EC58227567707DE17952FFDAA0E6826A28104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +470,7 @@ VA - Русская Зажигательная Тусовка (2012) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:47D973942BD483EA6B8256A6F46EC4F53A6EC66A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +502,7 @@ MoShang - Further East (2010)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +527,7 @@ FAR Manager – мощнейший известный всем консольн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +552,7 @@ VA - Ultimate Dance & Trance Vol.1 (2012) [MP3|320 кб/с]<Dance, Trance>
 ```bash
 magnet:?xt=urn:btih:DE579BBB11D063D33410519B0F0A366885581E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +586,7 @@ VA - The Finest Selection Of Chill House Vol. 3 (2012) [MP3|320 кб/с]<Chill H
 ```bash
 magnet:?xt=urn:btih:5E1029943F259D040C69BE1FB35037B1EB2009D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DB5DCB059F3C691FAAB4CB4A86AC6AFA9DCBD0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +645,7 @@ Various - A Cosmic Journey (1997) [MP3|320 кб/с]<Drum'n'Bass, Intelligent, Ac
 ```bash
 magnet:?xt=urn:btih:FFA565AF97C820EA9E5E102067B74C18074B042E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +675,7 @@ Broken Sword 3: The Sleeping Dragon / Сломанный меч 3: Спящий 
 ```bash
 magnet:?xt=urn:btih:75DFFB813500031D700BBD7ED6034A57B11FD899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +726,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +760,7 @@ Partition Wizard Professional Edition - менеджер для работы с 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +785,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D5026B1C5C486CF4B72D41D325A11FCF9CD3CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

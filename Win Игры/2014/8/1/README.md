@@ -19,8 +19,7 @@ Lost Legends: The Weeping Woman (2014) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:ED5E61F4F339038FAC0CD11749AE078F5BAC26ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warlock: The Curse of the Shaman (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:32F4C66BE52F9AF1D5DC69AB57042612B1414380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Amaranthine Voyage 3: The Shadow of Torment (2014) [En] Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:A762A439A111DA1E2BC236F4B28BF18075834890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Runaway Geisha (2014) [En] Unofficial [Gold Edition / Золотое издан�
 ```bash
 magnet:?xt=urn:btih:A1678F103A661CA0B17A65DA3381DA7E634889B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Sacred 3 PreOrder DLC Pack (2014) [Ru/Multi] (1.0) DLC Reloaded
 ```bash
 magnet:?xt=urn:btih:2681AD7751031E898C4EC6EDA8480735225FFCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Sacred 3 (2014) [Ru/Multi] (1.0) License Reloaded
 ```bash
 magnet:?xt=urn:btih:0E8607E10035C3DC4908C47779396851E8E69034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

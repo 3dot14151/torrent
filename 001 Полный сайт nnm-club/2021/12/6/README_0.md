@@ -18,8 +18,7 @@ OmniPlayer Pro для Mac - это универсальный медиаплее
 ```bash
 magnet:?xt=urn:btih:54A05EEC3F5B9290467A2E3F0471F8170E80C01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Nisus Writer Pro Мощный мультиязычный текстовый ре
 ```bash
 magnet:?xt=urn:btih:B71B487B3481B07F50AF6B0FE57CD55BE13726C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Typora дает вам безупречный опыт как читателя, 
 ```bash
 magnet:?xt=urn:btih:35042F062CCE657EBAECAB40F2FC4AB87B851908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Sound Studio - универсальная студия звукозаписи.
 ```bash
 magnet:?xt=urn:btih:B6EB2AD4B25E050DBD83BFC432B3DC5E1A6B15D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Slugdge - Esoteric Malacology (2018) [WavPack|Lossless|image + .cue] <Technical 
 ```bash
 magnet:?xt=urn:btih:28C19DBC00454B036B251BCE2D756FC50AB79253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ MaxCommander - это все, что вам нужно для управлени
 ```bash
 magnet:?xt=urn:btih:65B5C1DA642927779F72E883D6286B5C6484C0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ MenuBar Stats - системный монитор, очистка памяти �
 ```bash
 magnet:?xt=urn:btih:EDA71FE5302AA987CB6B95EFB6D75C8050C8C886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Project Office Pro 9.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6AE59CB62F49F2844388EDC52F76E61DD2226015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83BB40461F339D67E43250F8966AAB269D0775BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Memoria Avenue - Memoria Avenue (2021) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:E7BF75162D94AAC7F7404E17D3406FC883EEB1EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Groundbreaker - Soul To Soul (2021) Japan [FLAC|Lossless|image + .cue] <AOR>
 ```bash
 magnet:?xt=urn:btih:C0B545D8D6CD66036C78E3D0136C1E6BE6580C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ David Knopfler - Shooting for the Moon (2021) [AAC|~306 Kbps] <Rock, Folk>
 ```bash
 magnet:?xt=urn:btih:AE6EB33ED445492998BBCF0B6F032E5FA9FA957D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Deep Purple - Turning to Crime (2021) [AAC|~328 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5F5B7046C4BCD49C2033E3B8CD16842396152C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Download Shuttle Pro for Mac 1.9 [En]
 ```bash
 magnet:?xt=urn:btih:2A971EB3D68602CE8842BD714FD1DB62B6E62C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Hypocrisy - Worship (2021) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2C4D60F3EA7250EBF14EA504723C156D77816AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F58B397B827FCBAD9A79CB0636582CA9CC025D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ CD01 -  The Modern Jazz Quartet 1953 & Concorde:
 ```bash
 magnet:?xt=urn:btih:3CACE0D4E3E8AB7024585B51815A93F92173D501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Mate Translate обладает невероятно полной базой д�
 ```bash
 magnet:?xt=urn:btih:DD651993320FA38AB499B5A61FFF5F55A3F8CFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Disk Doctor Pro 1.0.22 [En]
 ```bash
 magnet:?xt=urn:btih:3202FA6FFA419CDAB162145173166F97B7B155D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Picture Collage Maker — простой в использовании гене�
 ```bash
 magnet:?xt=urn:btih:3CA23734600CDB6DA6AEAA1D490DC8BA671BA901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ VA - You & Me (2021) [MP3|320 Kbps] <Pop,Folk, Indie, Other>
 ```bash
 magnet:?xt=urn:btih:F84A547B8FA2AB7B7D9B7524FF9EADB7C2F21FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Window Focus 1.0.8 [En]
 ```bash
 magnet:?xt=urn:btih:A75ED8838D6D7C3C4B110081BF3CD1B623C58594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ GoodNotes 5 v5.7.52 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D00A8DA3F5B31EB511AE806AA5665B179A795D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AE34113813152CC467A2B28EDDFC15ADFB16CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D07211A4152326A1ABA9A6912BF284916EA2C93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ Live Home 3D, преемник Live Interior 3D, является мощным, 
 ```bash
 magnet:?xt=urn:btih:317E1CC4DD318324731DE6A47CCC3FF422A61CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

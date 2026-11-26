@@ -27,8 +27,7 @@ VA - Club Playlist September (2013) [MP3|128-320 кб/с]<Dance, Club, Euro>
 ```bash
 magnet:?xt=urn:btih:CF721B08C0057F775F29BDA3F92D743739B52D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F4D479EBE827AD7511A3A99597196DD6918997D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66C5B5DB8041A73902F0ED1159F071CADC85CA50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ VA - Осенние Муз-Новинки 50+50 (2013) [MP3|256 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:248749CE9F20496F3EEEBEE1626C4B2434BF1536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F85291699019208BFA5B5E8762E295B3924AA0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD871D618B824887486A92E7020A3B49B416FDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48DDCBFBECD6190E61C62DBDABBA8DE6FEE483CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ The Rides - Can't Get Enough (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:A70A1133182F0AB7BBE7D7EBE11A2935CE716879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Eurythmics - Be Yourself Tonight (1985) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop 
 ```bash
 magnet:?xt=urn:btih:1BB8881A70F9DB12144A0D452755F3D49D092530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E0209EC928F89FDF94A393052F801224635D80B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ VA - XXXL Oops! Dance - 1 (2013) [MP3|128 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:882CEB2D5335C6D67FAD9D6C5CBF877B78750BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5053861DA9C726D4F3CF6E9AD1868253832FFDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ Bong-Ra vs. Igorrr - Tombs / Pallbearer (2013) [MP3|V0]<Breakcore, Doom Metal, D
 ```bash
 magnet:?xt=urn:btih:4CA30ED753917D2FC6683DD25DC8A04A0E995C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8309C51E102D1EB5BC576432B12C3FE5058DA8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ VA - Дискотека О, Боже, Какая Тёлка! (2013) [MP3|128-256
 ```bash
 magnet:?xt=urn:btih:45EA8D43E3BAD936C39D9136DE44A9073070676B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ Sea of Lies: Mutiny of the Heart.Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:39E51FA1F610C30CD7F8F05C98AFBD80E4F890CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39E046459CE5CADA977B5CDE8A6D5A014C700BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:CBEBF7BD8B82F4ED96C3CBF335BE5C9B654E8AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ VA - Лучшие Хиты Радио Record 14 (2013) [MP3|128 кб/с]<Club, D
 ```bash
 magnet:?xt=urn:btih:94294E0DE0A9F5483CD6CB49E11CEB424FFB86F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ VA - Enigmatic 30 World Hits (2013) [MP3|320 кб/с]<Enigmatic, New Age>
 ```bash
 magnet:?xt=urn:btih:EAFA0A19AE10C176D23A1F54CC5E674D3FFFFCEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B50C6A34E72B27EB265282952A94310FFACBF67C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ Matthew Curry & the Fury - Electric Religion (2013) [FLAC|Lossless]<Blues, Blues
 ```bash
 magnet:?xt=urn:btih:3CF09BBA72B8A8506A6C676585DE4B463DCEEE20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ VA - Pure... '70s (2013) [MP3|320 кб/с]<Pop, Soul>
 ```bash
 magnet:?xt=urn:btih:27FD6B894A474370A2C4795F569DBB9F1D6C9673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ Jon Hopkins & Purity Ring - Breathe This Air / Amenamy (Jon Hopkins Remix) (2013
 ```bash
 magnet:?xt=urn:btih:3FC705B62C9733F077F6FD6D81723F90699B2395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20C765AB579302C9A8A328D738DECA0F4C396BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

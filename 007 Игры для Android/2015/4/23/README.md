@@ -19,8 +19,7 @@ Tiny Toon Adventures 1.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:063EDA2943E0AE5AEB7AD741C313E4A53B1B43F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Disney's Aladdin 2.0 [En]
 ```bash
 magnet:?xt=urn:btih:C05D432096AFC983AC9F5317DD8F919AE27C70F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2B98778346BABC9F37F79CEA8BB45828DF19019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

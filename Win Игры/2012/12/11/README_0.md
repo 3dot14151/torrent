@@ -21,8 +21,7 @@ One Night 2 - вторая часть трилогии One Night, но явля�
 ```bash
 magnet:?xt=urn:btih:AE024120EFBF62A002CCC41CB71AFC450D33BC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Peekaboo [En] (L) 2010
 ```bash
 magnet:?xt=urn:btih:03970E6F98C00E771EF9A37DBEFBC172FD7AAE0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Mental Hospital: Eastern bloc [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:7BE690C1F4C3A1F3AC18E6CA9DBA5A3AB70119D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Spirits - красивый пазл-платформер, в котором ва
 ```bash
 magnet:?xt=urn:btih:A7CF58FB2FA63CE2452EAB56699F36D604F3BDE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

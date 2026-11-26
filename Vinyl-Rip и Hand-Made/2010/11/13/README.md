@@ -28,8 +28,7 @@ Michael Jackson - Collection (1979-1997) [WavPack|VinylRip 24/192]<Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

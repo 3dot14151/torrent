@@ -19,8 +19,7 @@ Knights of Pen & Paper 2 v2.5.30 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:670F94C28D71CA498B9A949AC3565315D68E4E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

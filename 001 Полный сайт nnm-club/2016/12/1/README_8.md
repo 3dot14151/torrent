@@ -21,8 +21,7 @@ VA - Discotheque275z (2015 - 2016) [MP3|320 Kbps] <Deep House, Club, Future Bass
 ```bash
 magnet:?xt=urn:btih:29D7EF7E4E4254FA99EC1AAAD9C250D9DB741D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Hearthstone является коллекционной карточной он�
 ```bash
 magnet:?xt=urn:btih:5E12E017B3F5E7069122C8549CAB9A3DD7E9F4A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [Ru/Multi] (1.1.0/dlc) License CPY
 ```bash
 magnet:?xt=urn:btih:32BA10E4C851362D9155BFC383E94795B325F2AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A800924C2065E7A8FCECD9D7F4C78868E526E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE9DD6BE35B82E8E8FF54EF85CC35C9544C1DEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ CorelDRAW Graphics Suite X8 18.1.0.661 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B3D99F9D9FE34604712787B41646D28D97F65866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:380CCA861DEF153D62BC4C09025E357FE3806E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Debbie Poryes, Hein van de Geyn, Hans Eykenaar - Trio (1982) Remaster, 2015, Sol
 ```bash
 magnet:?xt=urn:btih:1593612E503E94A4690F31FF550FA46F0E3A2583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Oliver Lake - Compilation (1990) Bluemoon Recordings[APE|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:88DDBED88A10E463A7ED30C41F704224F54394FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Paris Jazz Big Band - Paris 24H (2004) Cristal Production[FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:879A69FEB7266003DF49A2859CA5B0D6D635A17D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ National Youth Jazz Orchestra - Cottoning On (1995) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:F07E8FFD82C568AF1E4F15A3BB8A677980ADDDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Michel Camilo Trio - Suntan (1986) 1992, Evidence[FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:B4B7EB9BDD896DE4800161BB7E737C4CE70C07E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ VA - Finding Around Happiness (Energy Tech Trance) 011 (2016) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:296BCC6447EECDEDBE37C6E68CA2482646988D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ VA - Sunshine Universe Harmonies (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifti
 ```bash
 magnet:?xt=urn:btih:DCB402D8DDE1C3964019A470B69CA3EDD963F722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ National Youth Jazz Orchestra - Remembrance (1991) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:DF63184FDB2A18298179FC499D7386BCC707F504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ National Youth Jazz Orchestra - 47 Frith Street (1998) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:AC701EA3259A69C6EDC21E59FF2928759BAEB727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ National Youth Jazz Orchestra - Hallmark (1993) [FLAC|Lossless|image + .cue] <Bi
 ```bash
 magnet:?xt=urn:btih:3A5F66C64D4EB2EC5329F251D42F3240F76DB0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Mitch Watkins - Curves (1990) Enja Records[FLAC|Lossless|tracks + .cue] <Jazz Fu
 ```bash
 magnet:?xt=urn:btih:F6F1CFF654050FC29B0AD76EF2B4A58B28C4DB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Mongo Santamaria - Mongo at the Village Gate (1963) 1990, Riverside[FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:8BBAFF71FB31B6F1DD60461EE30D9736BDA38208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ National Youth Jazz Orchestra - Unison In All Things (1996) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:6689B6093E8FDA33C50F9485D3C3DD641BC1889C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ Graphic Styles  содержит набор высококачественных
 ```bash
 magnet:?xt=urn:btih:0FBBCA3A48DDD5FCFACEC6D46CEFCE78484E95D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ National Youth Jazz Orchestra - Portraits (1990) [FLAC|Lossless|image + .cue] <B
 ```bash
 magnet:?xt=urn:btih:70C38B9F29EFFED64853428140E57E7F7B87B807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD4737463EC1B85C334734A67842554F9109198A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

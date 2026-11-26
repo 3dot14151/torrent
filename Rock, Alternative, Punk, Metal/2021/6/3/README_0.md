@@ -22,8 +22,7 @@ Black Expression - Regreso A Casa (2021) [FLAC|Lossless|image + .cue] <Progressi
 ```bash
 magnet:?xt=urn:btih:1F9539744D356363AC882AEDEF28B72DA1A555E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Red Fang - Arrows (2021) [MP3|320 Kbps] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:E47F021FDED4B861C309D4191800192F4BDE72B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blaze Bayley - War Within Me (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:398E33B62E9562F31052C46BB38AA23AB09F6CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rod Marenna & Alex Meister - Out of Reach (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:926D1EF778B2BADBE2DEA28FC73B97D6391DAEBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Utbyrd - Varskrik (2021) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:227D28982B148B3DA910181339E87751EF26D61E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Van Canto - To The Power Of Eight (2021) [MP3|320 Kbps] <Power A Capella>
 ```bash
 magnet:?xt=urn:btih:2840C35199FA6639607BEC9BB51B9547F2A61269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Weezer - Van Weezer (2021) [MP3|320 kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:8DFEC11FF461E2C17D39D10153F268246E2C6F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Shade Empire - Intoxicate O.S (2006) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:C5AC0E53BE3863A9490DE7A65ECBA9870909F2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Stronger Than Dirt(   Читать дальше...   )Жанр: Folk Rock, Count
 ```bash
 magnet:?xt=urn:btih:C77022B85624F0DA7D112CEC0350BAE52BC5DE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Crystal Sky - Spell Of The Witch (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 ```bash
 magnet:?xt=urn:btih:9BCCA71419E77E5ECDE6D097917DAC4EC62D306E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FADCF21B2F581C0BF4DED04BB3CE3EABA46FD445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

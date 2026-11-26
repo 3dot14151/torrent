@@ -19,8 +19,7 @@ Multitouch 1.25 [En]
 ```bash
 magnet:?xt=urn:btih:FF98981740078E93054236D173D96FC99DED2A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Notes & Harmonies, Vol. 1 (2021) [AAC|~326 Kbps] <House, Downtempo>
 ```bash
 magnet:?xt=urn:btih:8774A0A85D27045580A31D72226582E4ADFB98DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Reaper - Rebirth Of Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thr
 ```bash
 magnet:?xt=urn:btih:500054018F9639CF0394A618896E1F338F12D44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ PhotosCollage создает коллажи по ширине и объедин�
 ```bash
 magnet:?xt=urn:btih:242E41CB062E9B9DA37B7881089A9C7331AEB5FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Morning Moods, Vol. 1 (2018) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:C2E01D8219FFD44FA1A1DB726B2D3BE6FD826791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ VA - Morning Moods, Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:92B2F21D2E248F96337133223AA48188AE4D39E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Dragonland - Starfall (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal
 ```bash
 magnet:?xt=urn:btih:21578667A65AF25BBFFE95ADF45E7A44D519BE75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ eBookBinder - это супер простой инструмент для со�
 ```bash
 magnet:?xt=urn:btih:97739E29264CB558F84DA82C4872AA245D388F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Dragonland - Astronomy (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Sym
 ```bash
 magnet:?xt=urn:btih:B5C9B67FBDEE5A17C5696DEF7783C20B153BD2E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ CrystalDiffract переносит на экран вашего компьюте
 ```bash
 magnet:?xt=urn:btih:F0BBB9CE34D25F142A2E5DC6629B3A4FF603B089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ QuickLens 2.8 fix [En]
 ```bash
 magnet:?xt=urn:btih:4A72A4171C7C91953FF7D3E8044EDB6540FCC3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Dragonland - The Battle Of The Ivory Plains (2001) Japanese Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:8DA19EBE71EBE155ECC3506C5F79580433161840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Dato поддерживает все языковые стандарты и яз
 ```bash
 magnet:?xt=urn:btih:D0F8DA95B1FF783BF5620FE7DA61E58CE15F9870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ DVD-Cloner - это небольшая утилита, при помощи ко�
 ```bash
 magnet:?xt=urn:btih:5B8BA83BD7077F3928437805CDC953B498FD0562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79DCEA3F1ED38876D2D01DDA6E394F0DB35F06D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ HOSH - Live @ Avala Tower Plateau, Serbia (2021-08-14) [MP3|320 Kbps] <Progressi
 ```bash
 magnet:?xt=urn:btih:6721F6830383E722A92375DF3A789F19989841C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ KingSlayer - Graves (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A7C4800C89C86328E51EC443FE4F36602BCF5804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ Black September - The Forbidden Gates Beyond (2010) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:FD81E66ACF3D867F09FCB3331BF19B12C8CBD6CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ Dragonland - Holy War (2002) Japanese Edition [FLAC|Lossless|image + .cue] <Symp
 ```bash
 magnet:?xt=urn:btih:5783D2014B328543AB729DDC79500BCF32DAD63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Anatomy Of I - Substratum (2011) Reissue, 2015, Punishment 18 Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:2F0F869211930DCB37985F0FF146820E03819A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Raphael and the Thorns - Rituals (2021) [FLAC|Lossless|WEB-DL|tracks] <Dark Thea
 ```bash
 magnet:?xt=urn:btih:6CF43E8222B8D956215C3063F023B7232859628A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Jeff - Didn't You Hear (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6A89ED525D14BAADA272FC4091E32C4359392323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ Batteries 2.1.9 [En]
 ```bash
 magnet:?xt=urn:btih:7B98B9551F3F2EC70503C33BD36BE7671B558AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Toby Hitchcock - Changes (2021) Japanese Edition [FLAC|Lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:E4B5FA886A949FA2F1C2CCC2398303847E3D12F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:74E9ACE52F54EFE7D05F8119B42F5F8547E7F6BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ Dragonland - Under The Grey Banner (2011) Japanese Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:2471CDAFE1216999C9DDF61A48B56A76B3B9263E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

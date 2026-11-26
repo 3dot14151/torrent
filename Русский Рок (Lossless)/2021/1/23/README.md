@@ -22,8 +22,7 @@ Stay Away - Путешествие из России в Москву (2020) [FLA
 ```bash
 magnet:?xt=urn:btih:74E72A40BC543C9FC590F048F0FA49F31A9E1777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Grima - Rotten Garden (2021) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Atmosph
 ```bash
 magnet:?xt=urn:btih:36025E6D4DD97144F86E0238EFB7D4CE5AEBC54D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Babooshka - Плюнь Дьяволу в лицо! (2020) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:7B3E78F7BEF172772EECF922250740F8FC3F4997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

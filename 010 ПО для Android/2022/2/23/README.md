@@ -19,8 +19,7 @@ Persona - твоя новая селфи-камера на каждый день
 ```bash
 magnet:?xt=urn:btih:F07FDC118B5AA284F4DDBC83ED6AA1468D17276A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

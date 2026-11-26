@@ -22,8 +22,7 @@ Bailout - ...As the Winds Blow On (2016) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:090AEFA073DEC900A999285D37B06CDE9A72813C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eths - Ankaa (2016) [MP3|320 кб/с] <Nu-Metal, Metalcore, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:07BD2E4927505BD0E16CA29C590B5945C19E80B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ PJ Harvey - The Hope Six Demolition Project (2016) [MP3|320 кб/с] <Alternativ
 ```bash
 magnet:?xt=urn:btih:EDED73226640FB5AB0C50477590F191267DBE2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dynazty - Titanic Mass (2016) [MP3|320 кб/с] <Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4BB3ED19EA9ABEA98FB6AB84674CD5B6501C5479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

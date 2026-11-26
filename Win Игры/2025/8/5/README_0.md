@@ -19,8 +19,7 @@ Rail Route – экономический симулятор, в котором 
 ```bash
 magnet:?xt=urn:btih:BBC8F948DA702390CD0A84A8B51D0845C69F46B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Copycat - это инди-игра, основанная на повествов
 ```bash
 magnet:?xt=urn:btih:00CDE286B32312B543CE9C9AB466F445717A4241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PPEAK - это совместная игра о восхождении, где �
 ```bash
 magnet:?xt=urn:btih:716A16238FE8571E176B25998F2953594DA7E4AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CABD6325C6BF282285AB7EA0F0F2B10C4017FAFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Shaman's Ark (2025) [Ru/Multi] (build 19404296) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B901121EDB0D22793D91C81D7D84D22C22CC9637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:DDFA6CB1B263ADE6890102AD744644B7EAB3B972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.3.1/dlc) Repack seleZen [Spe
 ```bash
 magnet:?xt=urn:btih:2578EA8DFB9352310A11EA6EC6E7F4843C96E12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ POPUCOM - кооперативный приключенческий платфо
 ```bash
 magnet:?xt=urn:btih:257A7AF6BF8A160040365B54AB1BE143301D2213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Echo Paradox - это психологическая игра ужасов, 
 ```bash
 magnet:?xt=urn:btih:C61463E0C032975991531D84CB6D5DD97F784926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3 Hotfix 2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CE6C69334CD5467600A42A3BAFB0E54D0FB68EEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Captain Bones - это приключенческий боевик действ�
 ```bash
 magnet:?xt=urn:btih:2F760A31A1F85F5A5DC9F7FA58FE427AAF8FBDEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F1BD54DB109007DADABAB4F1BFB6AE21901095DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Pilgrims / Пилигримы (2019) [Ru/Multi] (1.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:BD1373310E5F00490ADFAB045A81805CE67F6624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

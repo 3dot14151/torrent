@@ -28,8 +28,7 @@ Transit - Young New England (2013) [MP3|320 кб/с]<Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:AFC445E91D6BCD91593DDD362A02C255C7B5FC01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Mortalium - A Gap Between Birth And Death (2013) [MP3|256 кб/с]<Doom Metal, G
 ```bash
 magnet:?xt=urn:btih:FB62924CA9EA69A4EA11C81364770E5690A5C56E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Mini Beats - 3 альбома (1999-2000) Discography [FLAC|Lossless]<rock n
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ The Virginmarys - King Of Conflict (Deluxe Edition) (2013) [MP3|320 кб/с]<Har
 ```bash
 magnet:?xt=urn:btih:7B233A197314A628938EDD46ED095B7E5106412D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Chrome Molly - 3 альбома (2CD) (1985/87 - 2013) [FLAC|Lossless]<Hard'n'He
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Corroded - 3 Альбома (2009-2012) Дискография [FLAC|Lossless]<A
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ HIM - Tears On Tape (2013) [MP3|320 кб/с]<Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:D57D59FF7A5076B44649E28FC4E71CE20C153470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Cannibal Corpse - Dead Human Collection: 25 Years Of Death Metal [13CD] (2013) B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Sunsay - Благодари (2013) [MP3|320 кб/с]<Funk / Experimental / Alter
 ```bash
 magnet:?xt=urn:btih:7F7DA74D2B31A9646B0D030CD377242FE567DEEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Evanescence - Greatest Hits (2CD) (2012) [FLAC|Lossless]<Alternative, Gothic Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ Evanescence - Greatest Hits (2CD) (2012) [MP3|320 кб/с]<Alternative, Gothic R
 ```bash
 magnet:?xt=urn:btih:F7E1A387E98AC1B9B682FFE69777C667213C0A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +396,7 @@ Ska-p - 8 альбомов (1994-2013) Дискография [FLAC|Lossless]<Sk
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

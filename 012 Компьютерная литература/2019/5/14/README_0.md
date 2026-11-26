@@ -19,8 +19,7 @@ Shodan – это поисковый движок для устройств, п�
 ```bash
 magnet:?xt=urn:btih:47080C4CA22F0784D704288FB53494E19C8EF7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Revoltons - Seventh Act Of A Death Foretold (2026) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:1FC738A2285417AF3DAC9245DD38D14BA682DC49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Child - Rebirth (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Blues Roc
 ```bash
 magnet:?xt=urn:btih:BA29C824CB87456BC84DC4538A276413A5F1AF13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dan Byrne - This Is Where The Show Begins (2026) [FLAC 24/44.1|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:20C75E11DA9EB4492D24DBFD5883EE363E1F517B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Savage Gentlemen - Savage Gentlemen (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:44B39B2A9DE708B3FE7173451A4257C782CF4307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tyler Nichols - Big Fish (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Ro
 ```bash
 magnet:?xt=urn:btih:F335CBBDDCD62BFA69277B07CA3705F55C1575FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ageless Warrior - Unifier (2026) [FLAC|Lossless|WEB-DL|tracks] <Power, Heavy Met
 ```bash
 magnet:?xt=urn:btih:A4E0BA7B0C0A416D1E001E86DAA1318962FF94FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Hellyeah - 6 Albums (2007-2019) [FLAC|Lossless|image + .cue] <Groove  / Southern
 ```bash
 magnet:?xt=urn:btih:5284401EB324DD8713AEFB7813D23117C8D62552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Joe Cocker - Gold (1998) Compilation, Unofficial [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:B9578EA1BCC58EF74F4AE94606D869B304BD2FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Rainbow - Ritchie Blackmore's Rainbow & Rising (1998) Compilation, Unofficial [F
 ```bash
 magnet:?xt=urn:btih:233860E42C283D43FE0E719D24304B8C8C6F5E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Rebel Meets Rebel - Rebel Meets Rebel (2006) [FLAC|Lossless|image + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:0C7E70A414DE33573F8F0783CF2E1480A8B6A127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Damageplan - New Found Power (2004) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E176894BEBFEE16BC10DF14171A0B70497BDEFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Swedish Death Metal (2009) 3 CD [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:DF9CDCDD0BDAB39F094C2864C195C5FE81B76892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ Queen - Greatest Hits I (The Platinum Collection) (1981) Compilation /2000, Parl
 ```bash
 magnet:?xt=urn:btih:D7C565BBCA3A4F635E046B1490F61550CE918E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ Savage Garden — австралийский поп-рок дуэт, польз�
 ```bash
 magnet:?xt=urn:btih:2457F8BF966D4C33494CBF15CD5FC90A2EFE63EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

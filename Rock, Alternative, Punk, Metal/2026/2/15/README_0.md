@@ -22,8 +22,7 @@ Manic Movement - Future Dreaming Self (2001) [FLAC|Lossless|image + .cue] <Melod
 ```bash
 magnet:?xt=urn:btih:FBD2E292B1AB13B0581962960EE4ED3FE89B8596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Soldiers of Forgiveness - The Year of Aquarius: Only Poetry Lives Forever (2026)
 ```bash
 magnet:?xt=urn:btih:6D39AC98114D557359790D84FCE740CB824DF251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 01:
 ```bash
 magnet:?xt=urn:btih:8A1909D41331C713C2AC7BA1D8AEAA72F0505C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Converge - Love Is Not Enough (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metalc
 ```bash
 magnet:?xt=urn:btih:7D8C36F59578C2D9AE164787E4F4B2D731D4B2C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7EF8D675372ADD7F838377A7B65688582F97F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB0F6CC458592CC74A9566D394EF4C0897111BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Otto Dix - Хюбрис (2026) [MP3|320 Kbps] <Darkwave>
 ```bash
 magnet:?xt=urn:btih:71EE16FBCF2D5725D21B9D98D84765EB4D78ADB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Endez - The Life In A Day (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:5700B5B2CB7863F574677E4681DB6157C7C545B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

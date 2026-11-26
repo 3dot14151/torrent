@@ -19,8 +19,7 @@ ContractVille (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E35F2792964096DE56C6B00B4EFCA9362EC81649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413/dlc) Repack Let'sРlay [Digital D
 ```bash
 magnet:?xt=urn:btih:128E1615247F19E867A08023B1BB3A24326843F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Last Vanguard - шутер-платформер в жанре метроидва
 ```bash
 magnet:?xt=urn:btih:EC6FEA2F19F29E25D856BC9099B43BA3A0EAA2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Of Blades & Tails (2022) [Ru/Multi] (1.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:B4E08E35403674119B54A2F68C0B0F6CC19CCCEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Song of The Prairie - это трехмерная фермерская игра.
 ```bash
 magnet:?xt=urn:btih:47705C82FADD90C7F2206773C799154BEACBAF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kaodi - это короткая история о шрамах, которые �
 ```bash
 magnet:?xt=urn:btih:1B140767A757DADAAA742E6CBA8DECC670DAF71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50. 5_31: 0:01) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D0E62D02DDFB059115B696404B91242D1F99893C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

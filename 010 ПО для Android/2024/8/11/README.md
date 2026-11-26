@@ -19,8 +19,7 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:999108D7C584597F22C26EF54ACD1E13F35943C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:A66A706C1C85436F0769860D22EE616D37431FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.09 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:728D58184EF4B7ECAB9BADA10C8B1BA606FA21E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Photo Sherlock v1.119 Mod by Mixroot  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9D2952A725F4250FC1403454B28D392EB415B3E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Astrological Charts / Астрологические Карты Pro v11.0 [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:08B440B56FB58695712BD2B4D85559BD97108A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ GPS АнтиРадар v45.2 Mod by 0x7d [Ru]
 ```bash
 magnet:?xt=urn:btih:309CC0A273B3E5AC8E5DDAD39B49412F29B133D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:682D1AFF4437A3BBDE9A902FE85F98879F26AB08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ HeadUp Display (HUD) – это возможность использовать 
 ```bash
 magnet:?xt=urn:btih:7DFB5BFD61D8042582436A9EF0314E791935FFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Horary Chart / Астрология: Хорарная Карта v4.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D55F385AFF5AAA6161431B7C88F2A7CECD970F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ PhotoRoom v5.2.4 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C5AC032E467F1B50D9D9E0628770B4275C9DBCBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

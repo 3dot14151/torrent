@@ -22,8 +22,7 @@ No Age - Snares Like a Haircut (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Nois
 ```bash
 magnet:?xt=urn:btih:03BC28453CF3AA8DCC84E4480975C7D32907CF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tribulation - Down Below (2018) [MP3|320 Kbps] <Progressive Death Metal, Gothic 
 ```bash
 magnet:?xt=urn:btih:48C35C2E3AB134F538C426017C36CFB4E3D2A4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dream Wife - Dream Wife (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie 
 ```bash
 magnet:?xt=urn:btih:B699BDBAC3CD4EDC5FC2A2754AFE4D2A6EECFA26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:871519FD72F168A46CDB2003111F32B12DD2A188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Coal (Надя Гордиенко) - Post Scriptum (2011) [MP3|320 Kbps] <Rock, 
 ```bash
 magnet:?xt=urn:btih:395996608ABD64509B52433063F8BD664033961C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SafeIP - бесплатная программа, с помощью которо
 ```bash
 magnet:?xt=urn:btih:F0B47B099596268E8C5545DB31B91AD430280E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

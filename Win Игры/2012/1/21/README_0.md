@@ -19,8 +19,7 @@ Vacation Quest 2: Australia (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:0E0322776DD8AFD6C3398F076ED0DA8669E96395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Witches' Legacy: The Charleston Curse. Collectors Edition / Наследие в�
 ```bash
 magnet:?xt=urn:btih:BF3C63430C849D62845A21AB3973EC90B4B26D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Mini Ninjas [Ru] (RePack) 2009 | R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:D486A97961C65CC1C7325E96CCC0F69C7D19AC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Sonic the Hedgehog 4: Episode 1 (P) [Multi6/-] 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:685CBFF9FB42AD4902D5478E3D2CDC0EF8409606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ LEGO Indiana Jones: The Original Adventures объединит в себе ин�
 ```bash
 magnet:?xt=urn:btih:350B2748328149A3E31A29D8C75A274F8A9C33DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

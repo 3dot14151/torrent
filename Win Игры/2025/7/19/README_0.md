@@ -19,8 +19,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Scene Rune [Vanguard Edition]
 ```bash
 magnet:?xt=urn:btih:5230CB87509BA191A8AA483415A164D31BA2987F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.04.20550/dlc) Repack LetsPlay [Digital D
 ```bash
 magnet:?xt=urn:btih:D8204B54D9224CD1D0F0126C3BB79046B7DAA676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warspace 2 (2025) [Ru/Multi] (1.00/dlc) Repack FitGirl [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:4A758F3514D56FB50A03B9676116FC7FE4527509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0r18) License GOG
 ```bash
 magnet:?xt=urn:btih:38E0B92D11BAB77FD0AA50D5B5A6CC09C96CF8E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tony Hawk's Pro Skater 3 + 4 (2025) [Multi] (Build 18871623/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:C1175485ACC042A713F3EB3E3B141BBAD654E9F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Reus 2 выделяется своей уникальностью и увлек�
 ```bash
 magnet:?xt=urn:btih:04E192082B1A982638F9D782020A6A6D1D2D2EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ DOOMER SIMULATOR погружает игрока в жизнь человека,
 ```bash
 magnet:?xt=urn:btih:A010F4E4557CD4C0202BB87235434B59777507DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.21.0.3/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:B858423F6ECAE47818DBA2A8A4CF2FBD960A7CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:1B6815E5198D5589E2DA8812B4892DDEE73B4335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Loophole - это пошаговая головоломка на сетке, в 
 ```bash
 magnet:?xt=urn:btih:8DBF9E1EF81BEDAE82B7A50711F4AD1ABD8FD41E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Zombie Graveyard Simulator (2025) [Ru/Multi] (1.2.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4C24C9770A8FFC94DB10BEE7950D5CE625A8B4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

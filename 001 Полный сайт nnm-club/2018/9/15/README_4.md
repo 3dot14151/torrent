@@ -22,8 +22,7 @@ John Hicks - In The Mix (1994) Landmark Records [FLAC|Lossless|tracks + .cue] <H
 ```bash
 magnet:?xt=urn:btih:C1313172C4051F930C461DA6F3EB63C0C6EE9700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Enrico Intra Trio - Jazz In Studio (1957, 1962) 2008, Rearward [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:943755EAA5018FB747F3DC5DAEC66C23E2D4595D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Wild Painting - Emotions (2017) [FLAC|Lossless|tracks + .cue] <Alternative>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ray Crawford - Smooth Groove (1961) 1988, Candid [FLAC|Lossless|tracks + .cue] <
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ahmed Abdul-Malik, Ray Nance, Seldon Powell - Spellbound (1964) 2013, Real Gone 
 ```bash
 magnet:?xt=urn:btih:2F29A661C150A3B6CF22F8CC7918F5E00E381072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Joey Alexander - Joey.Monk.Live! (2017) Motema [FLAC|Lossless|tracks + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:344D64D5B8C5D93D5E7B87F83E5C300CB77F4F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Jessikill - Metal Knights (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1A470056510C71223492C1DA39112D0EACBD74A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Jessikill - Another World (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Joey Alexander - Eclipse (2018) Motema [FLAC|Lossless|tracks + .cue] <Post-Bop, 
 ```bash
 magnet:?xt=urn:btih:202D7F49AFBF55F5694C0806466160D8DCA5B254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Lifted Audio 3 Years Together With You (Mixed by Azima) (2018) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:9E59941DF178A8F83228E22F4373D281B681AF27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Little People - We Are But Hunks of Wood (2012) [FLAC|Lossless|tracks + .cue] <D
 ```bash
 magnet:?xt=urn:btih:D6BDB72F7914174CA5974F4F8AE43CE46A406662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Frank Zappa - Joe's Xmasage (2005) [FLAC|Lossless|tracks + .cue] <Avantgarde, Ps
 ```bash
 magnet:?xt=urn:btih:4E7DE7564FA760540EEBC78D81025F4DB03FF0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Trance In Tomorrow's Land: The Festival Edition (2018) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:6EB70B27415450BED2874A99EC70F813C7272318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Frank Zappa - One Shot Deal (2008) [FLAC|Lossless|tracks + .cue] <Avantgarde, Pr
 ```bash
 magnet:?xt=urn:btih:03E5E3B1148B625E231FDF67691F6EC592EDC4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Frank Zappa - Everything Is Healing Nicely (1999) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:3581687231C712F05A76A72FA804F0EF797C1D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Alboka - Bi Beso Lur (1998) [FLAC|Lossless|tracks + .cue] <Folk, Basque>
 ```bash
 magnet:?xt=urn:btih:D05CB8F814403AAFB25454CEBBC056B1E3257956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Dream Theater - Forsaken Radio Sampler (2008) EP [FLAC|Lossless|tracks + .cue] <
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Eli's Second Coming - Eli's Second Coming (1977) LP [MP3|320 Kbps] <Funk, Soul, 
 ```bash
 magnet:?xt=urn:btih:3E36488183FC413BF025FE426D3E43C9004D1FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Scott Hamilton - Moon Mist (2018) Blau Records [FLAC|Lossless|image + .cue] <Mai
 ```bash
 magnet:?xt=urn:btih:8B00888B70C827E88BF1A75CCB74FD296DAE0595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Alboka - Lau Anaiak (2004) [FLAC|Lossless|tracks + .cue] <Folk, Basque>
 ```bash
 magnet:?xt=urn:btih:4FD1B44BD2880E66DAF33750A467863286B35F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ VA - Ellie Lawson: The Best Of (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:B10C25D29C823A1E4A03E4821264011F98866055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22D7026696930DB1DC5F4C89750A2D18CA17C46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ Deicide - Overtures Of Blasphemy (2018) [FLAC|Lossless|image + .cue] <Death Meta
 ```bash
 magnet:?xt=urn:btih:6307B9A3BA9A6A67366148EAD3332691DB7007E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ The Whispers - And The Beat Goes On (1979) Reissue CD, Solar, 2003 [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:89CBED22DE9DDBEB24DF7D785D7E08311E8F5F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

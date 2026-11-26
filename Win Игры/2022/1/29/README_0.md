@@ -19,8 +19,7 @@ Whispering Willows (2014) [Ru/Multi] (1.6.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E0705EC1F1B5F5C32C5B5BDCED8FC4E0B121D757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Crows Eye (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:648175708E05F9FEB5218C0DB77F9D2B2CE44B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

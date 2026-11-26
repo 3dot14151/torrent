@@ -19,8 +19,7 @@ Jim Capaldi - Dear Mr Fantasy: The Jim Capaldi Story (4CD) (2011) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:A2254F5EA1B147AAC45ED5E533176D7AC3A7496D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jerry Cantrell(guitarist of Alice in Chains) - 2albums (1998-2002) [MP3|320 kbps
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Photographer - Airport (Remixed) (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:C26E569B1CECD7F728E077D8053DEEA822338FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Kaimo K - Innermost (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:2B890D2F3143E3AC2C5378380F2CF881225AE692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63DF143CBD180EDFA322683661B0A35FFF86558E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Kyau And Albert - The One (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:49A341A0D731527A9105C4973D734A4DD6B6DB47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53359BB16F729A59E93CD12B9FE342E5581E1AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ And.Id - Eternal Return (2013) [MP3|320 кб/с]<Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:61C70537FEC0B154994D43BA7A123E4E91770C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4D5BCED3744ED05CEED3CDEDC8E33932BD03B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Ari Hoenig PunkBop - Live At Smalls (2010) [MP3|320 кб/с]<Post-Bop, Contempor
 ```bash
 magnet:?xt=urn:btih:E337D325C95A10707FECC78604757756170D5FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC0B7925842CEF8936AA9D5F6815A815817A9F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Lyctum - Bright Lights (2013) [MP3|320 кб/с]<Progressive Psytrance>
 ```bash
 magnet:?xt=urn:btih:38CAA320069DA65ADAB7EF416A5C080FA91F4816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Umberto Behboudi - Overtones (2013) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:C0F61A844CDA5032A6E9F8FAB043639CC3DC3540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DED44D72500B51843BD245FE8384FD9666FE3B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ IgVin - Dance club energy Vol.122 (2013) [MP3|320 кб/с]<Club, House, Trance, 
 ```bash
 magnet:?xt=urn:btih:BFD493C4771D1E79C0C2D49020950E89D439B9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:588F4C3024E8A1E7DD2AC2387A908BF18C9C327B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ History Channel: Ледовый путь дальнобойщиков (Сезо�
 ```bash
 magnet:?xt=urn:btih:704FB9E5E91908C3C6225A07B1A041527B62A9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ VA - Звездный летний клубный драйв (2013) [MP3|256 к�
 ```bash
 magnet:?xt=urn:btih:2EBFD151A3687FEE203193EAE61AFF23E5A3D2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +477,7 @@ Rolfe Kent - О Шмидте / About Schmidt (2002) [FLAC|Lossless]<Score, Class
 ```bash
 magnet:?xt=urn:btih:356DB0E554AD811949DCC8D45E01EC453EE81A4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:969DB6D6C3D3F25C942DB971F0BA764C3BD5C51D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1EAFD497ADC571DDBA3708CA82C41E8C0D3ADE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:758A1908D560ADA93A0EE530C9B7AB6886B93966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ VA - Улетный Хит. В свободном муз полете (2013) [MP
 ```bash
 magnet:?xt=urn:btih:E64E4CCAD27C4AAF6A5D917231EC09985F390104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +614,7 @@ Josh Ferrin - Cry (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:29A84686CFA8C69A5B24DD68197959EB6F55DBFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ Bigasoft Total Video Converter - мощный видеоконвертер, по
 ```bash
 magnet:?xt=urn:btih:5479081696FC1636A55F4E980E199618FA4D8E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ The Hightones - Oh Baby, Me Too (2013) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:956BED4017A5F375CC49A11F73D679800C1E0587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ VA - White Label 12 Inch Sampler Vol. 1 (1994) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:B353B9AA0CE43E16D492FAB7F954DD081479292B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2221CF848A303463F890F45FDE7599BE3037F07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

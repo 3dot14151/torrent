@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CD13CD95F81494EF661FA530FEA7DB1293AD6731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04C41B5C8130FE94158DFC78E2BD18F4BFE522A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Traxsource Top 100 April - May (2016) [MP3|320 кб/с] <Club, House, Minim
 ```bash
 magnet:?xt=urn:btih:DB32377DCE50CF253A3A2773B063EE9F36F25B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Wax & Boogie - Lost In A Dream (Milano Club Blues Nights) (2012) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:490033E7DCBA7514C02F1C2FA3A9ADD016CF7A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Going Deeper: Lounge Erotic Tantra Affair and Sexy Chill Out Kamasutra Inti
 ```bash
 magnet:?xt=urn:btih:75731371067AC2ADE00680D15D8A4353FCAC2073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Armin van Buuren - A State of Trance 766 (2016) [MP3|320 кб/с] <progressive t
 ```bash
 magnet:?xt=urn:btih:28457869B157D9324115BB5CBD662E8E7AFD405A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Second Breath - Unknown Bands Vol.9 (2016) [MP3|123-320 кб/с] <Alt.Metal / Al
 ```bash
 magnet:?xt=urn:btih:41585D6E90AC08147DE4FAF33789097CCA29E60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE25F504636B2CD72A403D70CCA9F0949A0D1AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Bottle Of Moonshine - Believe The Numbers (2015) [FLAC|Lossless|tracks] <60's-70
 ```bash
 magnet:?xt=urn:btih:37B02C40B6F7B4D978788F5DFD9C3DFA3E17652F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13CAD0971B46B42539EB7776212365E48A20D270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ VA - Vocal Chillstep Selected Works [Compiled by Zebyte] (2016) [MP3|256-320 к�
 ```bash
 magnet:?xt=urn:btih:C10AD23D2E1AD2710E8ADA36411AC939935EC655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Laura Fygi - 25th Anniversary Collection: Fans' Choice (2015) 2CD, Compilation [
 ```bash
 magnet:?xt=urn:btih:E077A5822CF912E1AA555B1A9B5C8B37642D9011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Orax - 2 Albums (2012, 2016) [MP3|320 кб/с] <Electronic, Synthwave, Italo-Dis
 ```bash
 magnet:?xt=urn:btih:2259F7F26A958B8DFFFFD54EC7747D45F05B946E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Phaeleh - All That Remains (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House, 
 ```bash
 magnet:?xt=urn:btih:9D22FE437320795D0D8EF53D0E5424CE5CDE80B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Soft4Boost Any Audio Record 4.9.7.399 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8DD5577C86EA8374A3A49F634B9AB62FAB5D2277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ Soft4Boost Any Audio Grabber 5.9.7.399 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DCB1722B338FAC7C8C3144266F22C736308154D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ Phaeleh - All That Remains (2016) EP [MP3|320 кб/с] <Tech House, Ambient, Mod
 ```bash
 magnet:?xt=urn:btih:627F600F499A8EEA983FB46D8258C8DC2F7D6ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ InfoCity – ежемесячный азербайджанский журнал 
 ```bash
 magnet:?xt=urn:btih:AE7D4CAA0161E2BC1BD7422B338E1838E8F36F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ VA - Alterportal HITS 16 Vol. 93 - May (2016) [MP3|128-292 кб/с] <Alternative
 ```bash
 magnet:?xt=urn:btih:1624AC1BB150FAB6480071A627B2FAF2400DBA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ Soft4Boost AMPlayer 3.8.3.295 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F936242BF084A7178DB8E06C9D53ADAB54535A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E632068F0E74CDF03BB240642DD6266BBA54F716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ Table Top Racing - World Tour (2016) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:139597BBCE3A8BD5CB9FBD28A29C5DA2BF512F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ The Kelly Family - Over The Hump (1994) [FLAC|Lossless|image + .cue] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:F9D948EFB477F9F0E4852530DDB8042F828EE971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:927560D2D402DECB72606B81B4292389C2FA11FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Keane - Greatest Hits (2007) [FLAC|Lossless|tracks] <Rock, Pop Rock, Brit Pop>
 ```bash
 magnet:?xt=urn:btih:2DA928171AD8EA644DCD3739E11E13A059530DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ ZD Soft Screen Recorder - программа для создания снимк�
 ```bash
 magnet:?xt=urn:btih:392D41C3BC77F5B784D0B626AE6D293B41BCA375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

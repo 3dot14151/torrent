@@ -22,8 +22,7 @@ A4 Painless Saturday(   Читать дальше...   )Жанр: Rock, Power Po
 ```bash
 magnet:?xt=urn:btih:08CF3344BB4D85B9F6EAF97231318CE41197FF5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 You Know That I Love You(   Читать дальше...   )Жанр: Rock & 
 ```bash
 magnet:?xt=urn:btih:98DAAF04C4B084546C2644B32DA3C3CFD3941983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

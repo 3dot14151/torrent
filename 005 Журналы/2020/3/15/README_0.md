@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7D8A42E4E0D8E53569233EA3B6EEF9774C64E58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gardens Illustrated - международный журнал, издающий 
 ```bash
 magnet:?xt=urn:btih:19B37A82EE333EA580DAB5FD83C83B091ADA0787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tatler журнал о светской жизни и моде, это брит�
 ```bash
 magnet:?xt=urn:btih:8A464FA962330B23BE54D781988715C203E1882E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:F60DD99DA1894B5226E00496DEE73C13295CE634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Generation Zero (2019) [Ru/Multi] (Build 20191028/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:06DC94E4BCF8F48743DE5D11484665B19CA32BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Bully (2008) [Ru] (1.2) Repack R.G. UniGamers [Scholarship Edition]
 ```bash
 magnet:?xt=urn:btih:25D53413053FC4D1D69185271C8A3EE99615709F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A1A945BA58DEB90201DD7B288421B5A419480AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ H2testw - утилита со странным названием, но очен
 ```bash
 magnet:?xt=urn:btih:E2C4E7A51ABB35FB3A21894AC3E3776C599A4021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

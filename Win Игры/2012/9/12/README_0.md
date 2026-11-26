@@ -23,8 +23,7 @@ Dear Esther / Дорогая Эстер [Ru/En/Multi14] (RePack/1.0u7) 2012 l R.
 ```bash
 magnet:?xt=urn:btih:74CC24570DE83B5DAA638A0E3E0BA35832DC3B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

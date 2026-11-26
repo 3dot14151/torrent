@@ -28,8 +28,7 @@ Platitude - Silence Speaks (2006) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:C117E010A20334C8EB76C0D7C55F32C68579E16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Fatal Force - Fatal Force (2006) [FLAC|Lossless]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:75C9138EEBED96CE1134C7C9DDC0FB46B350D28B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Gwydion - Veteran (2013) [MP3|320 кб/с]<Epic Metal, Folk Metal, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:17285E7ECB56D46CB3B37C243FCECEFDFBB8F147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Mael Mordha - Damned When Dead (2013) [FLAC|Lossless]<Gaelic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:A69D761CA2BBD28111CE37FF158314962971CBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Bonus Tracks
 ```bash
 magnet:?xt=urn:btih:81ECB2ADCA6AE84702CBEBA59F8FE40A31548383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Angelica - Thrive (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0027C92799DCCF740E4345C7E8B10C2259F800B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

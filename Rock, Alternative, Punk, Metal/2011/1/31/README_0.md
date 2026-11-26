@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:E2F5B49C15C0866D24440E8255E7210AB580A5C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Pergamum - Feel Life's Fear (2008) [MP3|320 kbps]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:662B2B6D404BD089193FAB5F328FC841DACE2F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Elvis Presley - 24 Karat Hits! (2010) [MP3|256 kbps]<Rock and Roll>
 ```bash
 magnet:?xt=urn:btih:79793408DAF977762D5BB792497B943375F72690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Die Krupps - Als Waren Wir fur Immer (2010) [MP3|256 kbps]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:487D38FDD31E8EDF406170308E21A0DA44E2D91D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Helloween - 1st Pressed Japanese Discography (1985-2010) (2010) [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

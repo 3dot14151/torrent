@@ -22,8 +22,7 @@ Within Temptation - Shed My Skin (2021) hand made [restored, declipped] [FLAC 2.
 ```bash
 magnet:?xt=urn:btih:9211FAC881F4F8591F674156A56E27D452602055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

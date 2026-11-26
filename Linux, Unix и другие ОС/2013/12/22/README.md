@@ -21,8 +21,7 @@ Sabayon 14.01 [x86] 4xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:479EA1463F4DA2E940492442507C8C2EB6AD7403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Sabayon 14.01 [amd64] 4xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:2E99422D40E247168F9476B3F328EE159034C45C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

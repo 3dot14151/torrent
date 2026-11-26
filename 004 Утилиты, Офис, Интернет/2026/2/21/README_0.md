@@ -20,8 +20,7 @@ Transmission, в отличие от многих других BitTorrent кли
 ```bash
 magnet:?xt=urn:btih:B115DDFE18ECE166C259988551A2FEA293A01F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MediaHuman YouTube Downloader 3.9.18 (2102) (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D5518B1BCC859927E2D1612544500EB98BD7630C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FD06A23EDD41356CB1E0FE88D1DA8EFA63A07F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:26D39803B82B12DDD5FD5F8FE1BBA6DD61B96F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:B09CB7D476F182541F88B3B1A25AD116C7C90004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

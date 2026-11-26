@@ -18,8 +18,7 @@ Digital ArtРазрешение файлов: 385х705-5147х3833Формат: J
 ```bash
 magnet:?xt=urn:btih:C98719F46B4A205BB19D1860F0149DFA668CB6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ MediaPortal - мультимедийный центр с открытым исх
 ```bash
 magnet:?xt=urn:btih:006BDAFA32E1A75AC691D60F73AEC74E1BD74B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5B20150166F64B4DD1B320F94CADB421CDAB29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ ________________
 ```bash
 magnet:?xt=urn:btih:45D859A3FE76839B9806893CF092531FEE851DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF7EC7A357C15777DD3C5EA528F99B0C537DB327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ iSpy - программа для наблюдения, мониторинга, �
 ```bash
 magnet:?xt=urn:btih:D84942DAA0925E467E76383E7DE2543A60F2AF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EB8891F149C43CDEF49BE208FCA9C31A4A979AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Hetman FAT Recovery - программа, которая является луч
 ```bash
 magnet:?xt=urn:btih:111356410CCFA76835BE9045EE93542AF2D2C8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C173BA764FC95B14CC742D22DA7CF8354BFDB8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Visual Assist позволяет увеличить возможности ре�
 ```bash
 magnet:?xt=urn:btih:C21F3E1E7F2D09B49357DCB2C37A059C05613AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC370E7E6DB31C09411B4BBBA4ECFA205B65A53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Robotics;Notes / Записки о робототехнике [2012, TV, 22] BDR
 ```bash
 magnet:?xt=urn:btih:815AC8AEFD1BF17DEA11EF0A2371CF83F428D815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Kaze no Tani no Nausicaa | Nausicaa of the Valley of Wind | Навсикая и�
 ```bash
 magnet:?xt=urn:btih:3E2DC1C7ACD0418940C6E81EE61E7294524D0821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ TheAeroClock - уникальные настольные часы с прозр�
 ```bash
 magnet:?xt=urn:btih:D1C6F83D1FEAC76A520C5DC532E0851BCE876FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E89CA116E65A52E1D1459D9A3E976663FF4D4E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7291D3074223A2C42751B78E7730B3E3F8995BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C37FCAA89A824A5D5A4E73F956604AEF0D55D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ Stanley Lau / ArtgermРазрешение файлов: 500х635-5760х3600Фо�
 ```bash
 magnet:?xt=urn:btih:01027102314DFE3EED5FC96BB95E5C166722FEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98AC9140EC3D7170B85D8537DDBCD366B03ED5A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ VA - The Ultimate Rock Ballads Collection  (2007) Box Set, 8CD [FLAC|Lossless]<R
 ```bash
 magnet:?xt=urn:btih:CFBE01FEDE7D62338E2E0C89D3F58DF0B8F8E5AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ Hetman Photo Recovery - программа, с помощью которой п�
 ```bash
 magnet:?xt=urn:btih:53F46B0CDB0A81ECBECC3C7C51D55ECB7FE46139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ The Ant Bully [Wii] [NTSC] (2006)
 ```bash
 magnet:?xt=urn:btih:5D9BFDB304E9ED22E345293E19C7981065C122CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53DFFA14425CA678E75ACF41EE7BD4AD0AB2A947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ Toriko / Торико [ТВ] [2011, TV, 101-112] HDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:8051D76C5FFB619F6EE7F0DC6F5F6C2035000516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +635,7 @@ Ingate(изд.) | Facebook для бизнеса: создаем и реклам
 ```bash
 magnet:?xt=urn:btih:97C246EA66A10EFA4489834A979CAD7D03329860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04F9621F6F697A9D9F9883514AE9C41826DAA53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

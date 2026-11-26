@@ -19,8 +19,7 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (151) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:0EFBE489A6854310FF59D96D15255E4F2172CC44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Legend of Mala Tokmachka - это 2D‑стратегия с элемент�
 ```bash
 magnet:?xt=urn:btih:B1B295D36A2C89FCB51FC4865A4A82366A260B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 24040403) Scene Rune
 ```bash
 magnet:?xt=urn:btih:26FFD5DCB880AB9D9689A100063603D6DDFE2848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

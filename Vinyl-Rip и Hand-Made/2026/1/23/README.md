@@ -22,8 +22,7 @@ Serenity In Murder - японская метал-группа, образова�
 ```bash
 magnet:?xt=urn:btih:F42CA6C09E62BAC12AAE2907D3C5C4D6FE69B9B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

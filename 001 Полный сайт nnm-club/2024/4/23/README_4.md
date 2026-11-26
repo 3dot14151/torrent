@@ -21,8 +21,7 @@ Depeche Mode - Some Great Reward (1984) 1st German Press [APE|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:52153A29EEA42ABA7643274EFC3E0A15815FB374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:20283D631DDC10E94E245FA015668FF40574E843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

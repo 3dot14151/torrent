@@ -28,8 +28,7 @@ New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:8E7BB0A88F2706F522FEC9126FFA7E866F725A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:184203F6350C760F05A5D22CBD64BDDB47BBD442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +98,7 @@ Poets of the Fall  — финская рок-группа, записывающ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +132,7 @@ Overkill - The Electric Age (2012) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5F009844E3E78FBEC1B78DDF8F74D5F857B8394A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +200,7 @@ Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +234,7 @@ Foreigner - Extended Versions (2011) [MP3|320 кб/с]<Rock, Hard rock>
 ```bash
 magnet:?xt=urn:btih:0198B3C2EC523C2B8C6F605D9AB68FF97D9CF942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

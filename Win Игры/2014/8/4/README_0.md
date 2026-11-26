@@ -19,8 +19,7 @@ Premium Adventure Collection [Ru/Multi] (1.0/1.0/1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:5E90362B85641585D296629C640B7BB065020AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

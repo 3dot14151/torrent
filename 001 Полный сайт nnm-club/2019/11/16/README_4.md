@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:60F27BECF2DC850CFDD2546086BBD91B5FE4F3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Gorky 17 / Горький-17: Запретная зона (1999) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:C8785E2CBFEB979FB4AA9430E641EA109B0B5ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - По волне моей памяти  70', 80', 90' (2019) [MP3|254-320 Kb
 ```bash
 magnet:?xt=urn:btih:B790CE513B78528294F1073B0540FEF2F6EEB089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:43157305533A6BDC5E1A6EF81502959E0C34077E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB152DAAFB73AF8DC5D6CCD2A7EF8B3E60082C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF771BA53479A374EB709CF1712356E34BD745C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Doom 3 (2004) [Ru/En] (1.3.1/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:95F03C8F5BA0C599E3DB239A19DB41B498FC2FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:194B879BA1195BF681E84B119B295D50A795FBF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

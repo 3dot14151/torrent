@@ -20,8 +20,7 @@ All programs (   Читать дальше...   )Жанр: Программар
 ```bash
 magnet:?xt=urn:btih:A3D067E85DD3458D4A5E046EB8CBB407F5C678AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ABBYY FineReader PDF 15 — это универсальный инструмен
 ```bash
 magnet:?xt=urn:btih:A23F852D6F29C3ACF83128F7BF86557787E8E868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

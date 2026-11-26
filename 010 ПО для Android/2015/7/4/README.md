@@ -19,8 +19,7 @@ Aquarium Live Wallpaper v1.7 (Mod Ad Free) [En] - Живые обои с акв�
 ```bash
 magnet:?xt=urn:btih:D1ADBD20F1D94D93FC868127DFCD2F93AC4141D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

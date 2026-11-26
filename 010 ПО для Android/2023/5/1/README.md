@@ -19,8 +19,7 @@ BackCountry Navigator TOPO GPS v7.3.8 [En]
 ```bash
 magnet:?xt=urn:btih:E0FC4FBE30245973489AE580F726D8B1306842AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ElectroCalc - DIY Electronics v3.7 (88) Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:55CF33DCDCD2EC839B5C4DD7B02C03BB254D6B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

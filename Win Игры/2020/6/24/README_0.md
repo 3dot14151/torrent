@@ -19,8 +19,7 @@ Disintegration (2020) [Ru/Multi] (1.0.0.6) Repack от xatab
 ```bash
 magnet:?xt=urn:btih:946E8B3891659E531F73F11E148A025C646CEF8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

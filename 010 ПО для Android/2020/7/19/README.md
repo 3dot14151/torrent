@@ -19,8 +19,7 @@ NumoTrend (NUM + KinoTrend) v2.1.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:361146A250208707029785A265A96F6019773795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Alanis Morissette - Havoc And Bright Lights (2012) [FLAC (tracks+cue)|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Tarja Turunen - Act I (2012) Live [MP3|320 кб/с]<Symphonic Metal >
 ```bash
 magnet:?xt=urn:btih:71F390209A5A7D4519133F28D9C15793476ADBFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

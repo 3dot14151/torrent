@@ -20,8 +20,7 @@ EaseUS Data Recovery Wizard служит для восстановления у�
 ```bash
 magnet:?xt=urn:btih:8140AC3B5EEF19DFA5EFABF7E9331499CFD9E0ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

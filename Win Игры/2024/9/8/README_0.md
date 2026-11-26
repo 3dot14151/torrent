@@ -19,8 +19,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9596DAE0F0F985E87DED119ADF579F8F7A3C46D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fallout: London - это глобальный мод для оригинальн
 ```bash
 magnet:?xt=urn:btih:2F15724DD929B1D028B45DF425D1EF0677FB339A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AB6A9CA776A822BF9401CC2266461D23DE4C34A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A1A0FE9015C7D60BC3FCCEF8FBCEA118DB4C8DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Volgarr the Viking 2 - помните брутальный двухмерный 
 ```bash
 magnet:?xt=urn:btih:A513B5F7281FFDC05C305BC867F1C21408481D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dark Deity (2021) [Multi] (1.58/dlc) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:1CA51EBA90A6561DDD8F5E3DC7071EA9AF285AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Wartales - ролевое приключение в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:613528D476E04AF9C5C0E8E54F74DA99A3057ACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (
 ```bash
 magnet:?xt=urn:btih:8A90CAE4A8E6651719CE3455DE7893EFF4FF29CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:951F276F9C8B6FDBA149353F9FDBC5518942B87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

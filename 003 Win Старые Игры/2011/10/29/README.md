@@ -19,8 +19,7 @@ Project Eden [Ru/En] (RePack) 2001 | Фаргус
 ```bash
 magnet:?xt=urn:btih:0BEC66D54A0EEC8533951F39B83F5B23841FD6C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

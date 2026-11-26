@@ -19,8 +19,7 @@ Surface 8: Return to Another World (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:1D115443706F193AAFE2CD8E2691104D37B5432C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eventide: Slavic Fable (2015) [En] Unofficial [Collector's Edition / Колле�
 ```bash
 magnet:?xt=urn:btih:FB109F3039667452B2FBE56FBE23D3E54486546C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Parables 10: Goldilocks and the Fallen Star (2015) [En] Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:37FB51DD3D8464C82E916F20163E2B69B78F66D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark Parables 9: Queen of Sands / Темные притчи 9: Королева 
 ```bash
 magnet:?xt=urn:btih:BE1A4E2B8EF4925DDA67744384454265C99E9A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Five Nights at Freddy's 4 (2015) [En] (1.1) Unofficial
 ```bash
 magnet:?xt=urn:btih:45A8D21EA50ABA18864E87DE984CE6AB19E72251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

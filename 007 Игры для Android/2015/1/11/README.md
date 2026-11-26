@@ -20,8 +20,7 @@ Angry Birds Star Wars 2 v1.8.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:BD783802C0179AD261BC17CCC8AF0704D96D06B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ KMS VL ALL — это программный плагин для активац�
 ```bash
 magnet:?xt=urn:btih:A75D3386D4E0CA1C00BD2C575F3FFCFE899F510B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eassos DiskGenius - программа для управления раздел�
 ```bash
 magnet:?xt=urn:btih:F2CA2EA77F9AE6A79F2DD37617D13416B06D7C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bandizip — это быстрая и надежная программа, ко�
 ```bash
 magnet:?xt=urn:btih:51976D782A70CD3D6AF45E8467710CD381D30726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ O&O Defrag Professional – инструмент дефрагментации д
 ```bash
 magnet:?xt=urn:btih:E2D4FB9C0CDDE4F224D5FDD5FFF31D4BE1828019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Wise Data Recovery - утилита, которая позволяет быст�
 ```bash
 magnet:?xt=urn:btih:579A4C6AF1B25E647EABBB0C020EE715CEF558DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Macrorit Partition Expert Pro Edition — это современное прог
 ```bash
 magnet:?xt=urn:btih:CB8F598C64A59FAD2ED274E6F54E6B07881DAC1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

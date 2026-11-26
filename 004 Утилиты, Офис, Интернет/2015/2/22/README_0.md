@@ -19,8 +19,7 @@ LICEcap может захватить область рабочего стола
 ```bash
 magnet:?xt=urn:btih:F36D7FD6AD303D39EECD6C942BC398AC25DEC5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

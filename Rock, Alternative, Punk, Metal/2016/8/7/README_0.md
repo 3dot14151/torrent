@@ -22,8 +22,7 @@ Mike Tramp - More To Life Than This (2003) [FLAC|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:3E7A857885C948FB45C8EBDC8D546BF96DB5840F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Attraction 65 - Attraction 65 (2003) [MP3|320 Kbps] <Rock, Classic Rock, Melodic
 ```bash
 magnet:?xt=urn:btih:F39E152B68CD7014385AAB6F516962946B857A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kambrium - The Elders' Realm (2016) [MP3|320 Kbps] <Symphonic Power, Melodic Dea
 ```bash
 magnet:?xt=urn:btih:4E3788D1704D7C2D04327B809B3D28F886EF0A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Uncle Dog - Old Hat (1972) Remastered, 2005, Air Mail Archive [MP3|320 Kbps] <Ro
 ```bash
 magnet:?xt=urn:btih:1C499B6F8660A105E677D4BC683434DC39CFB0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABF5D0969C46FD6DCE2335199B0199CB02DA061C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Metalwings - Fallen Angel in the Hell (2016) EP [MP3|320 Kbps] <Symphonic Metal,
 ```bash
 magnet:?xt=urn:btih:E832F52963D4307733F9CB0FD43BD340C0EC21AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

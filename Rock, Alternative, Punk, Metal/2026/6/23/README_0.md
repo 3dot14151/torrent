@@ -22,8 +22,7 @@ Ghost Avenue - Full Throttle (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:2C418D79D562A4F78AE31B0AB4557DA725A238CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

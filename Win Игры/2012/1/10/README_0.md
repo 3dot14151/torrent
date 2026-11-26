@@ -19,8 +19,7 @@ Mystery Case Files: Prime Suspects / За семью печатями: Глав�
 ```bash
 magnet:?xt=urn:btih:FEB9C27C4C4C6A69276C4D53CFCBCAB0276EC685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Two Worlds: Game Of The Year Edition [Ru] (RePack) 2008 | R.G. Repackers
 ```bash
 magnet:?xt=urn:btih:97784B9834120E319DFE8ABD51431EF45D8254E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

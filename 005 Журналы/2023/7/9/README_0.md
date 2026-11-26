@@ -19,8 +19,7 @@ Woodcraft - издание, целиком посвященное столярн
 ```bash
 magnet:?xt=urn:btih:03C87B93C19305783289F84AE661B437BA1DF351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0747B9D7877D6E7F50F1223B0A7E856FD79ED0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Value developer productivity over anything else? Want to get more done in fewer 
 ```bash
 magnet:?xt=urn:btih:B7F08CF2A1F040C993DE97D724DAA7404A67686D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AF21C82FAE5685C54E386B43AF0AB26AD95EECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

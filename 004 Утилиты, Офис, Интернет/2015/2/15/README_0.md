@@ -19,8 +19,7 @@ Dragon UnPACKer 5.7.0 Build 284 Beta + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AE33FAFF0AFB6BC63A915758D3516EDA773B4A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

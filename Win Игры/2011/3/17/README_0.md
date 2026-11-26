@@ -24,8 +24,7 @@ Mystery of the Earl / Тайна пропавшего графа (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:4A7171903A51856DE6D62B13CC8D6101F665A93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Kingdom Of Seven Seals / Королевство семи печатей (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:73F6CAC6E265396A289F36684D1F358F157DD972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

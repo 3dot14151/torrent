@@ -19,8 +19,7 @@ Surface 4: The Pantheon Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:499E31EDF5FB580C0F0A8F2CAE90DF6E93C217E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yogventures! - масштабная песочница с открытым ми�
 ```bash
 magnet:?xt=urn:btih:D258818DD2A8B772A4EC890C3B1885606858BF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ F1 Race Stars (2012) [Ru/Multi] (1.1.0.0/12 DLC ) Repack R.G. UPG
 ```bash
 magnet:?xt=urn:btih:87077FA0727B9D92E086B6830C10F7E446C60AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ DwarfCorp - новая фентезийная песочница-стратег�
 ```bash
 magnet:?xt=urn:btih:73E72DC8E11A749EDA540634C70C2E80FB404346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Superbrothers: Sword & Sworcery EP - это атмосферное экшен-п
 ```bash
 magnet:?xt=urn:btih:DDCD039F7EE93A5ECEC123E687BF1EC41D18F5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Ironclad Tactics (2013) [En] (1.0) Unofficial 3DM [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:CA3739A56742371CDDEFBB43F540491E1C4646D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02A78F44C5CDDC00419E20578E09451A34F45ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Hot Wheels: World's Best Driver продолжает серию аркадных
 ```bash
 magnet:?xt=urn:btih:495B69E43861C0C1526BD1E6C08E60626824FBEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

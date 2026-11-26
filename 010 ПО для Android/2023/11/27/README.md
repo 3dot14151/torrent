@@ -19,8 +19,7 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:CF9F477CDA546DC1BE1AA8F579336CC6CAE641D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:6733BED70195404DCF22D80E1364FFF19C36DFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FX Player Pro - универсальный медиаплеер который �
 ```bash
 magnet:?xt=urn:btih:F0B36BF2EE0C4ADB03C0A97B2F9E7FADB0E9B1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Smart Launcher - лаунчер являющийся одним из самых 
 ```bash
 magnet:?xt=urn:btih:BA5B9D08774BACF2C5C4B4F62F6C8AAB7FAD630F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Square Home - красивый, стильный и функциональный
 ```bash
 magnet:?xt=urn:btih:BF87F8760F7CF492C5B11CA8253706A20A836790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

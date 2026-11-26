@@ -19,8 +19,7 @@ Monsters of Little Haven (2019) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5B47CD6135F00781BFDABBD12A64F434E8AFCA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0001/dlc) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:260B0626BCBA692ABE303E6DC4D5B8CAAD4C42BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kingdom Wars 2: Definitive Edition (2019) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:78B0A0AB3CE6A78E8DB8BB4F021B00F74818CC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ InMe - Phoenix - The Best Of (2010) [MP3|320 kbps]<alternative/modern rock>
 ```bash
 magnet:?xt=urn:btih:7B4444E06F282C910F6CE17ACEB2163DCD9DFA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:7012434A13935ABD75546EE25ED32BB7B41E1195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Nemesea - The Quiet Resistance (2011) [MP3|320 kbps]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:A70772CC451343EF81657727D708B41600B6DF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ The Unguided - Hell Frost (2011) [MP3|287-300 kbps]<Melodic Death Metal | Modern
 ```bash
 magnet:?xt=urn:btih:77E2752BED29C3B18ED6261F19720CA2D395A521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Twisted Sister - Under The Blade (1982) SHM-CD Japan, 2011 Re-issue [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ The Animals - Retrospective (2004) [APE|Lossless]<Rock, Blues rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Blood, Sweat & Tears - Original Album Classics [5CD Box Set] (2009) [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ F4Band (Ф. Чистяков) - Концерт на улице Ленина. 20 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +315,7 @@ VA - ZZ Top: A Tribute from Friends (2011) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +344,7 @@ Mastodon - 5albums + 5singles (2001-2011) [MP3|320kbps] <Progressive Sludge Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +378,7 @@ Nickelback - Here And Now (2011) [APE|Lossless]<Alternative Rock / Post-Grunge>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ XBISS Generator passwords - замечательный многофункцио�
 ```bash
 magnet:?xt=urn:btih:DA2932417B23B048E48F9787E2F59C6DDFDEA13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

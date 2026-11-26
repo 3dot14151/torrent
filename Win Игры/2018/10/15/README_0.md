@@ -19,8 +19,7 @@ MIAZMA or the Devil's Stone (2018) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:4E0B5C8B0255C16BF190040A064ACB8276033C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E253C3E0E917A5EFBAECA4DAFFF07FBF9DEB0D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AIRHEART - Tales of broken Wings - это история молодой деву
 ```bash
 magnet:?xt=urn:btih:12CB8CD33247F8890A06358EB0562540F4B15934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Medal of Honor (2010) [Ru] (1.0.75.0) Rip xatab [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:6201D17BD4E68551CD08FB2D9ADF5C59962D26EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Medal of Honor Warfighter (2012) [Ru] (1.0.0.3/dlc) Repack xatab [Limited Editio
 ```bash
 magnet:?xt=urn:btih:25C99C34AE9B33FBDD484ED9B9475321110C9D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

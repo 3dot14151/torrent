@@ -19,8 +19,7 @@ bimmer-tool позволяет читать и удалять коды неис�
 ```bash
 magnet:?xt=urn:btih:7EDEA0CB192425B1BCF35F03F821F4CE426D5D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

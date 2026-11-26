@@ -19,8 +19,7 @@ Icewind Dale Dilogy (2000-2002) [Ru/En] (1.42/02.01.016/dlc) Repack R.G. Catalys
 ```bash
 magnet:?xt=urn:btih:E4670585C1354EA82913133D1A87DD81C7C837B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

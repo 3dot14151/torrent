@@ -19,8 +19,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.5 Mod 
 ```bash
 magnet:?xt=urn:btih:9018A8DF3694C7ACEB82767F618BE4DA9C84A788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Netmonitor: 5G, Cell & WiFi v1.25.15 Premium Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1690544E21097F7CB5C7508F6A97E7A477C70D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E25B72B4A880958364E884C30D55BB926AB2C57E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ INKredible PRO включает в себя все функции покупки
 ```bash
 magnet:?xt=urn:btih:B50C94A01C687585F6CD81771A14F7A9974418E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Испорченный Телефон(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:ED446D73CD4F41073A14074723A479F208122761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ In Flames — шведская музыкальная группа, играющ
 ```bash
 magnet:?xt=urn:btih:28E212FBF43AC8B9EA9521815678762830BA9F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

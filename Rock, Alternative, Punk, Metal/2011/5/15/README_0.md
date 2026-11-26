@@ -28,8 +28,7 @@ Dead End - Stain Of Disgrace (2011) [MP3|320 kbps]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:8F44EF94CD34BBFBCA10200265F8F0DA0D7F961E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Stevie Nicks - In Your Dreams (2011) [MP3|320 kbps]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:864DE96138BB38009A2ADE8195E8E016C2356F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Smokie - The Hit Box [10CD] (2003) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:4C9F4A206AE2943A3BF77D20E54DE94A892E05C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ The Eagles - Hotel California (1976) [Box Set Limited Edition 2005]  [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:DD2EB707EAA6CB084D969C040F2CAF8463356528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Smokie & Chris Norman - The Best Of 20 Years (1995) [MP3|320 kbps]<Pop-Rock, Sof
 ```bash
 magnet:?xt=urn:btih:5E0910E8E88D0AECE82A3C7854DB24929E123B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C5F5EB1377074AC1ADE3458483EBB83149A6EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

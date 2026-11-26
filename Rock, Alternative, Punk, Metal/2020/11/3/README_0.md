@@ -22,8 +22,7 @@ Wyzards - The Final Catastrophe (1997) [APE|Lossless|image + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:CB7BC71907A2F670F1C1579771264713FA95DCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Centinex - Subconcious Lobotomy (1992) [FLAC|Lossless|image + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:C3DA0E3289F2369EFA65B2E36DB11C03D3292565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Landscape Garden - Gild the Lily (2020) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F3CBE06C497710DE2ED3398320C0395436F5DD00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Them - Return to Hemmersmoor (2020) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F41025D36D7B5E5F5C8236332E7ADAA30C3654DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ UNBLOCKERS - Бытие (2020) EP [FLAC|Lossless|WEB-DL|tracks] <HardCore-Punk, 
 ```bash
 magnet:?xt=urn:btih:7F068AFA12244D5DCF4D6278109A4D929E3600F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Carcass - Despicable (2020) EP [FLAC|Lossless|tracks + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:C941B0F922FBFAB46E79A8F71B4F19129B431807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Liar - 2 Albums (1977, 1978) [MP3|320 Kbps] <Classic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AB32756160DB8BD88078CF968B86CE9DCF028F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:622F4A2408D0E3FC225670761B4F95E0B9A8C0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

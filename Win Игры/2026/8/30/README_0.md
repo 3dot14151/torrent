@@ -19,8 +19,7 @@ Elminage Gothic - классическая партийная RPG старой �
 ```bash
 magnet:?xt=urn:btih:BB9D7CC75DC89ABB01652F6D001918C488F134F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tabletop Simulator – хорошо проработанный и максима
 ```bash
 magnet:?xt=urn:btih:F8107715DFF826DFD233C96FC5E4A8696ED17C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Chop Chop Inc. (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:390F6D8D8EDC7C452717B0E037B922A5639FD69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Starsand Island - это уютный симулятор жизни от сту�
 ```bash
 magnet:?xt=urn:btih:98550BA07264C2D269341C2C3CC5BD08D117BEF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Resonance: A Plague Tale Legacy (2026) [Ru/Multi] (1.1.0.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6C2D80B8DDF8C4CBA1B08A9646607391A639D1E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

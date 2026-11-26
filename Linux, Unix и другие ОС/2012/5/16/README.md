@@ -21,8 +21,7 @@ OPHcrack это ОС, созданная для взлома паролей Wind
 ```bash
 magnet:?xt=urn:btih:1AF9DBF54CBA03EA1046713E30A93752F1C8549C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

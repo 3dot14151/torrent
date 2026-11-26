@@ -26,8 +26,7 @@ Tastexperience - Melodic Variations (2013) [FLAC|Lossless]<Chill Out, Melodic Tr
 ```bash
 magnet:?xt=urn:btih:C2B2E4BD96C4920D05D9F8B28BE814A8724ACC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Alesso vs. OneRepublic - If I Lose Myself (Alesso vs. OneRepublic Extended Remix
 ```bash
 magnet:?xt=urn:btih:008F5B0A47757F8F59CD8CD671D1309FD1FBEB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ RAM - Kingdom Of Dreams (2014) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:2035937E340744E4ADBCDC0E0AD3DE688924D42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80C3F166FB1A2D5F4FA965B0E9771443E4050744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Blue Sky Black Death - Noir (2011) [FLAC|Lossless]<Electronic, Rock, Shoegaze>
 ```bash
 magnet:?xt=urn:btih:10E8A53EFD471ACC8998777F4CE9E621773DB87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Social Distortion (иногда обозначается как Social D или 
 ```bash
 magnet:?xt=urn:btih:E67067C426DC0FE1436CD33D11D2447F2001BE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFF8DFDA10678379F96C8834E72D6C802F2DAE09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08AE908CF26EEFBF104EC2B1575F96E1AC047F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Advanced Installer - это мощное и простое в использов
 ```bash
 magnet:?xt=urn:btih:047A67C5C91F9387AC130FA9922EA475D318D045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Sonic Element - Change (2011) [MP3|320 кб/с]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:34367797C9628BA8777963039956C4D102A1463B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Kent - Tigerdrottningen (2014) [MP3|320 кб/с]<Indie Rock | Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:3CB97D8E2D97316E14D8C607859C62AB0F2E334C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ RAM & Arctic Moon - Mirakuru (2014) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:BD5C3B2D23E0D43C565C3E21B2C3B3F3E0CAAF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5B273B1FFBF71DC5C4C35C1BBBFDBD7EB130A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ New World Sound & Thomas Newson - Flute (2013) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:81310546341FF2318377B1A46F16E35C131A34E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Driftmoon & Andy Blueman feat. Dsharp - Leviticus (2014) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:8B85682AE7E50B4EF5A6404D9B2288EDFFBC548A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFB99080CD6FE64AD1D93FCCB425B617FEBDD4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Susana & Hazem Beltagui - Silent For So Long (2014) [MP3|320 кб/с]<Trance, Pr
 ```bash
 magnet:?xt=urn:btih:0F7912D95495AE42FDE5E8E27ED99034BF584F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Winger - Better Days Comin' (2014) Japan Edition [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:49CDAEE0F046E9B6602074A169595D3D48ECEBB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17FB4BF3A7134D5224F3FF09C820850B7B4CBCC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Royal Detective 2: Queen of Shadows (2014) [En] Unofficial [Collector’s Editio
 ```bash
 magnet:?xt=urn:btih:81BC0FB16DE4C02EEF0FD1BFBE5365693B7F5BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ VA - Buddha Bar: Best Of Electro Rare Grooves (2013) [MP3|320 кб/с]<Chillout,
 ```bash
 magnet:?xt=urn:btih:46916B4D40F396A2C437E2A1B6EEA1642694A686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ Wise Program Uninstaller — это утилита для полного уда�
 ```bash
 magnet:?xt=urn:btih:4E07DD3C284A995B8C8C7AE6DD6B5BD28BA7DFEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ Ray LaMontagne - Supernova (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:37D8BEFDB6C07138823AAD8B4A21DA63C7031935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E25C28EC35E8CB49F084B78D56D07CF86781812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

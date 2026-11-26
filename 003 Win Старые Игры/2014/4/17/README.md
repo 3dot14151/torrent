@@ -20,8 +20,7 @@ Blood Anthology / Blood Антология (1997 - 1998) [En] License
 ```bash
 magnet:?xt=urn:btih:F5E950589C6C5690169C841B61DC7D40147B8068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Safecracker: The Ultimate Puzzle / Взломщик (2006) [Ru] (1.01) Rip
 ```bash
 magnet:?xt=urn:btih:FEA5FBD21B0EFA71C4C7BBE66A9A0E9977200B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEE2A979CFDAB0701444A0B7BAB484384B7A938B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Stories: Mountains of Madness / Таинственные истории:
 ```bash
 magnet:?xt=urn:btih:FD1C5074B2ED4E8B132BDDBE9AE0203A9D7B868A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Heritage: Sign of the Spirit. Collector's Edition / Тайное Нас�
 ```bash
 magnet:?xt=urn:btih:DDDDD70491CDE894A587D5F33BD42369ABD2B99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dragon Keeper 2 / Как воспитать дракона 2 (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:90BFA8F522A777AFAEE7E5D6D64DEB057A3C35E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

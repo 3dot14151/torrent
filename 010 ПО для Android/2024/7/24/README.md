@@ -19,8 +19,7 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:01E7825E3F7E1926BAD9ABC6DF57A4B33CCA782D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DoFoto, профессиональный фоторедактор с искус�
 ```bash
 magnet:?xt=urn:btih:21E842BFE05A9BD1CF833E1C0F94A850488D00F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

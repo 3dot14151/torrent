@@ -21,8 +21,7 @@ The Dogma — прогрессив-метал/пауэр-метал группа
 ```bash
 magnet:?xt=urn:btih:245C1B0A9C1653B600171059B943283EFB304FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

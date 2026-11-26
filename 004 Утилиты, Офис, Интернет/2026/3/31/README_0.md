@@ -18,8 +18,7 @@ Free YouTube Download на сегодняшний день самое попул
 ```bash
 magnet:?xt=urn:btih:3D11734B75BC23FA656F620815AB21459BA2DB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:362FA61DD12909CFF15418652D58B5A412B6A648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Pale Moon - веб-браузер, созданный на базе популя
 ```bash
 magnet:?xt=urn:btih:4560661D2B737390392049B8C5267A5D3C2A01AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Notepad3 - удобный текстовый редактор на базе Scin
 ```bash
 magnet:?xt=urn:btih:BC43FB38B473AFBBA015F298C00C5DF4CFA08164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ RJ TextEd - мощный текстовый редактор с большим �
 ```bash
 magnet:?xt=urn:btih:3025CBBE241C5BE8EE9A2C67E2D491F9A17D14A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Registry Finder - простая в использовании утилита д
 ```bash
 magnet:?xt=urn:btih:76BA67B0E194FA9A0305C93AE3F339A467572CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ SanDisk (Western Digital) SSD Dashboard - официальная програм�
 ```bash
 magnet:?xt=urn:btih:9A3F776725293FF32C4B3C6C28961FB781B38D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

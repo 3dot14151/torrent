@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:72B088CBB9DDC8A8B182AC90AA1CB8473F925579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ InfoCity - Ежемесячный журнал о технике и технол
 ```bash
 magnet:?xt=urn:btih:8DC45311F2AF401608C9B2ABD7F93E022E01CDD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ National Geographic - уникальный научно-популярный г�
 ```bash
 magnet:?xt=urn:btih:C291A8B7656980A16BFDEABBFFA0524E32614E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8B652C679E4E0A3EBC9BCCF09EA4C4AD6CD7E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

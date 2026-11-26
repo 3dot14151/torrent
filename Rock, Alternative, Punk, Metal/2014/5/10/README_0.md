@@ -28,8 +28,7 @@ Elvenking - The Pagan Manifesto (2014) [MP3|320 кб/с]<Melodic Power / Folk Me
 ```bash
 magnet:?xt=urn:btih:8F0DF4F0F5D0BEA734A5D1D703E65E1FF568B535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Alannah Myles - A Lan Nah (1995) [FLAC|Lossless]<Pop Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Disc One
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

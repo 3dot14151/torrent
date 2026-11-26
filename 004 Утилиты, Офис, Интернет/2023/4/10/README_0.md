@@ -20,8 +20,7 @@ PopChar 8.7.0.3001 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:53EAC1D4D202D2CF7D6820B9BB9E9972559F90B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Maahlas - Nightmare Years (2014) [MP3|320 кб/с]<Melodic Death Metal, Progress
 ```bash
 magnet:?xt=urn:btih:75AFBF44C9426E65E9D30A8605E9A4A8678DC29A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97612391468CC3F151DB7CBFFA3738138F7DF284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Robert Randolph & The Family Band - Colorblind (2006) [FLAC|Lossless]<Rock, Pop-
 ```bash
 magnet:?xt=urn:btih:B5D9906CC4734881E60222E75F936DEB1F6359FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ New York Dolls - One Day It Will Please Us To Remember Even This (2006) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:3BE21D1666A2622BE3BE242FF1AB7273769420DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Zaum - Oracles (2014) [MP3|320 кб/с]<Psychedelic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C3EF976F40B5BF561D134679AF74245DDD8D8070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Eric Johnson - Up Close (2010) [FLAC|Lossless]<Instrumental Rock>
 ```bash
 magnet:?xt=urn:btih:4B3DE55AF906DE8A4C4D56A131701B07863756DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ The Dead Rabbitts - Shapeshifter (2014) [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:183023012946FE8DA2AB667782380DA4906B5EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ Yes - Heaven & Earth (2014) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F8A48B799C77369EF36B5B7EC01C2CC1101F6837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Enter Shikari - Rat Race [EP] (2013) [MP3|320 кб/с]<Post-Hardcore / Experimen
 ```bash
 magnet:?xt=urn:btih:1FAD3DE490ED76F4947339A2A12076650709523E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

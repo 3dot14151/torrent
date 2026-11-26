@@ -22,8 +22,7 @@ Audiotopsy - Natural Causes (2015) [MP3|320 кб/с]<Alt.Metal, Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:5DCC12A1896A81F0B05BFCC335DCB4A426620B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gun - More Frantic (2015) Deluxe Edition [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CDD422E12C1E04C6B33334EF3DACF6398202B929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ The Winery Dogs — американская супергруппа, созда�
 ```bash
 magnet:?xt=urn:btih:C3943A7EA1E245CF59375F20D8CF27DB2C1611E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

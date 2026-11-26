@@ -20,8 +20,7 @@ Reset Windows Update Tool разработан для случаев неста�
 ```bash
 magnet:?xt=urn:btih:8DB962ED33F0EE9E0ED15B5DA69D686D19C3298E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

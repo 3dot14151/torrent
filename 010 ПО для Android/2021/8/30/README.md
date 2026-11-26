@@ -19,8 +19,7 @@ XEFX v2.4.9 [Ru/Multi] - оживить фото и Живые обои и Фо�
 ```bash
 magnet:?xt=urn:btih:F6C0A57E671C54D129903CCECF61284F3D66EE42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.12/dlc) Scene Tenoke [Ultima
 ```bash
 magnet:?xt=urn:btih:2FB52C1E996FF9368D420DEF3129FABC9D895BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MUSYNX пришла на компьютеры с мобильных устрой
 ```bash
 magnet:?xt=urn:btih:3A7C7828A09338AB7B84D98170361FDF077C65B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Unseen Fears 6: Fortunes Consequence / Невидимые страхи 6: П
 ```bash
 magnet:?xt=urn:btih:1142ABCBFAA27FCDE04B5CDE18EE4DFFBC676D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Criminal Archives 3: Murder in the Pages / Криминальные архивы
 ```bash
 magnet:?xt=urn:btih:63CEE49B4E6BFF9C375A8B72EE78F26907F91DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Edge of Reality 9: The Legend of Greenbush (2024) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:E2FD850C7195C2A6DF6AD9E0AA5AB996B7904DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Three Kingdoms Zhao Yun погружает игроков в водоворот 
 ```bash
 magnet:?xt=urn:btih:F25E6900875B7FA1FBED614668A49E5E4AC2B3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack FitGirl [Digital D
 ```bash
 magnet:?xt=urn:btih:EA2088A7EDF7FA3E0EB8CE508C692C3E27A043CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Starship Troopers: Terran Command - это захватывающая страт
 ```bash
 magnet:?xt=urn:btih:D369E6E61F1B9F85504DB1650B45CBC992839A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Kona II: Brume (2023) [Ru/Multi] (20240222) Scene Rune
 ```bash
 magnet:?xt=urn:btih:477E4BF248C084D4B910AF0E265B6C486A8E7C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Goodbye Volcano High (2023) [Ru/Multi] (1.06) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:97D45D3F5EBD933CDCE581742D5E8CD85E17574F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Immortal Mayor относится к симуляторам бога и ст
 ```bash
 magnet:?xt=urn:btih:BD9B095035965D6D259102710E68D275F8CE3227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:3DE910330D67C883EDF9A3C846E815C8989317A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:D5283CB9A1910A227BE17F05AF47B7AA3D2ADB78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Clash: Artifacts of Chaos – это уникальная по стилю игр
 ```bash
 magnet:?xt=urn:btih:68F759D206B3A4D2D74C342E8C15D5B45661BC91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Metal Unit повествует трагическую историю о буд�
 ```bash
 magnet:?xt=urn:btih:B53EC6A466A4A57420991BF1AFEFD5E2C6B975F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ There's Something In The Ice - хоррор с гнетущей атмосфер
 ```bash
 magnet:?xt=urn:btih:A517E6B73CA494CEC369B7EACC854190A9F7F517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Pepper Grinder - это ураганная двухмерная адвенчур
 ```bash
 magnet:?xt=urn:btih:A9229C8E427243D5AE340D9DB3B6BB33C6F474B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Montezuma's Revenge - это забавное путешествие в серд
 ```bash
 magnet:?xt=urn:btih:B5B24DB189357643F37393038C373BE222D1ACD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

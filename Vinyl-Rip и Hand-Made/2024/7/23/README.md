@@ -22,8 +22,7 @@ Deep Purple — британская рок-группа, образованна
 ```bash
 magnet:?xt=urn:btih:87CC58E5ED6B97AF7519F75D3798FD6D805E6255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

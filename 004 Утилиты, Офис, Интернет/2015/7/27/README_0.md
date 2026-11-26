@@ -21,8 +21,7 @@ A4ScanDoc дает возможность стандартизировать с�
 ```bash
 magnet:?xt=urn:btih:1D10CBBFAB14B6C39470FD52E6A0A874707FA782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Titan Quest: Immortal Throne (2007) [Ru] (1.1) License [Expansion Pack]
 ```bash
 magnet:?xt=urn:btih:EB35DAB4CE4CCFF5CBCB07200E44ADE08A439C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

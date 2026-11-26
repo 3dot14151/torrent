@@ -18,8 +18,7 @@ Nature Wallpapers (23.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:AE45F49C9F8F9C97EE6D4B9D4856106630AC5FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Birds Wallpapers (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:168A17E1819BE79C6DAA41D1E1BB09E13AF3799E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Tystnaden - Anima (2012) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:64112077090F0F50195642064011825FF8404459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Arty - Together We Are 027 (22.12.2012) [MP3|320 кб/с]<Trance, Progressive Ho
 ```bash
 magnet:?xt=urn:btih:D2D412A1C2E42A373F7FAA8341F13FB9FCA0CA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89A8E1571C13A4C6F5898EBB0E7B7CBC1C6CEDAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Desktop Wallpapers (24.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:293F3BE068BE9DE6F5C4C0F3D31DE14C16BE5881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ VA - Модная VIP тусовка Зимний выпуск 4 (2012) [MP3|128
 ```bash
 magnet:?xt=urn:btih:7ED025013388037E1B3F122B2D845AC913F8BA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ Destinity - Resolve In Crimson (2012) [MP3|320 кб/с]< Thrash/Black/Death Meta
 ```bash
 magnet:?xt=urn:btih:11A678811F28CAD876D214B27312AA43A9B6AEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ VA - Новогодний ресторан. Выпуск 2 (2012) [MP3|128 кб/
 ```bash
 magnet:?xt=urn:btih:A427CB77431FEA0214E4E85D8096CA3D8B1E776D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +337,7 @@ Best HD Wallpapers Pack (24.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6273F6EBF1A75DB9707D1309CAE17C350DC3100A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ Wise Disk Cleaner - быстрая и простая в использовани
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ VA - Golden Romance (2012) [MP3|320 кб/с]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:27EB20E6AF9092D612ECD4A041B91844AD86E80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
 ```bash
 magnet:?xt=urn:btih:D499074BF3FCB9AE0F3552C7B28F371EBE117923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ Sunrises and sunsets Wallpapers (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E98704404CBB1626A919D136BE756AB8B68D84E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13E5F5BFD818B9E437DF36F796F9B9E207A2B889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ Waterfalls Wallpapers (24.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6FA0F18812620AAF5AD7DFD55D9EC2603DF73A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ New year wallpapers 2013 (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:AD76C4C8BA87BB9BF6FB4F2115C0B941496C0D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ VA - Top Club Music World Hits 2112 (2012) [MP3|256 кб/с]<Club, House, Dance>
 ```bash
 magnet:?xt=urn:btih:B659A75138985B6F4B33C2BBA5247FDCC7E867A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ VA - Dance Hits Vol.277 - Vol 278 (2012) [MP3|128-320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:1C1B7CA92FE13742B8DEC53743F36A0CA57F222C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ VA - Новогодняя лавина хитов. Часть 2 (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:633DFE19DF364D235F158ACC340311ABB58E846A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [M
 ```bash
 magnet:?xt=urn:btih:E4F3A09A5DB8AB46FE73C23CF5CF05B2308B56AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ Robin Rogers - 2 альбома (2008, 2010) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:A5FECB5D06A42F0486BD83DFA636E7EC2C3C7598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ Best HD Wallpapers Pack (23.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:316CDB639EE2CF893ADFFB2315328305B8D9C45E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ SMPlayer - кроссплатформенный мультимедиа прои�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

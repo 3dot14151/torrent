@@ -19,8 +19,7 @@ Tom Clancy's Splinter Cell: Double Agent [Ru] (RePack/1.02) 2006 | Naitro
 ```bash
 magnet:?xt=urn:btih:50759211E07DF769EA92AC34B0169C5E343FBE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

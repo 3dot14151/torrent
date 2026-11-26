@@ -19,8 +19,7 @@ ReDrawn: The Painted Tower / Спасенная: Нарисованная баш
 ```bash
 magnet:?xt=urn:btih:BE5D344D077A41879EC49476D43AC1865083B621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Demon Turf (2021) [En] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:8DCD2985F316B1BC3589DE2E6D0EE6C22B1AB0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pronty: Fishy Adventure - подводная метроидвания, мест�
 ```bash
 magnet:?xt=urn:btih:C2F0B14DFDF7E1DA466F7A70205175CF47385554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ UNDEMON (2021) [Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:EEA8155E295364099FEDFC3B479357920324E8B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ American Hero - это реставрация и ремастер игры, по
 ```bash
 magnet:?xt=urn:btih:3FB7F4E7DF46002BF08FF0699008E8D36F3EBFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Gunfire Reborn - это приключенческая многоуровнев�
 ```bash
 magnet:?xt=urn:btih:1137FD343CFEB3335869E536D52F5BFD9BCEAF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

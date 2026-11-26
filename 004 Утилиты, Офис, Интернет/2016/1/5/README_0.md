@@ -19,8 +19,7 @@ OFF Timer — бесплатная миниатюрная простая в ис
 ```bash
 magnet:?xt=urn:btih:59FA1C1AE332717CED8F9FDE0EA6AC2DB38B78C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

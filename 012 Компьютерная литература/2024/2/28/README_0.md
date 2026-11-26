@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EAF71D3AC1991D8A683D87E926E1F50AC41151CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Kameron Hussain, Frahaan Hussain | Linux Unveiled: From Novice to Guru (2024) [E
 ```bash
 magnet:?xt=urn:btih:3DB69709452553B98D6648726E695E937D0A242A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

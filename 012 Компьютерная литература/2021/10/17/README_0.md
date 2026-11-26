@@ -19,8 +19,7 @@ Cycles — это движок рендеринга, который впервы
 ```bash
 magnet:?xt=urn:btih:3C96205C693FA789951C24D41EC2542E87AED80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ EEVEE - это PBR-рендер (Physically Based Rendering) в реальном
 ```bash
 magnet:?xt=urn:btih:26F5C27374BB8347C5CCB30F729C00F5F66AD81C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A531B96597260ECADCD9F4D5FC10A2957001906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Kasey Chambers - Carnival (2006) [MP3|320 kbps]<Country, Rock>
 ```bash
 magnet:?xt=urn:btih:F513900D137CEC50F587B352D78859566C6CB829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Hit Parade Rock'n'roll XX Century (1999) [FLAC|Lossless]<Rock'n'Roll>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Rock'n'Roll Planet. The Best Rock'n'Roll Music (1998) [FLAC|Lossless]<Rock'
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Chuck Berry - Ultimate Legends (2011) [FLAC|Lossless]<Rock'n'Roll, Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

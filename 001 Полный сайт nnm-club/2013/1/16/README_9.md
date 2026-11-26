@@ -21,8 +21,7 @@ Diapo - Edom EP (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:9C26CDB0FBD7F7FB2BB145B49BFC91B5BDAA39B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Redhead - Black Mornings EP (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:4390D3B023DFB534DCB3CE7CFFCA354B0AF322EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ VA - Five Years Later (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:93B12DEC701A791366B141C6DEEABF38BF36A894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A47043502867D34E20399FD2C667CA4B9EE7B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ VA - Alchemy Contenstants Compilation 2012 (2012) [MP3|320 кб/с]<Techno, Tech
 ```bash
 magnet:?xt=urn:btih:6A3BF6BE0BE57CC72B97C84D1C3866215057304A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ VA - Coyu Edits Vol.1 (2012) [MP3|320 кб/с]<Tech House, Deep House>
 ```bash
 magnet:?xt=urn:btih:26BC9161AC8040D14DD8AA2ADA6E67280EBF0A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Knobs & Flex - Habrozer EP (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:657C0091C589F75669B058095664D161396B370E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Cari Lekebusch, Zoe Xenia - Good Love Sweet Love (2013) [MP3|320 кб/с]<Tech H
 ```bash
 magnet:?xt=urn:btih:757C88CD20EC8D4D80A31A6831A8CA169E056C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ VA - Ibiza Not Ibiza 2012 (2012) [MP3|320 кб/с]<Tech House>
 ```bash
 magnet:?xt=urn:btih:9EF21417ACA7F1136D843C505082B8A698051B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B9113D6297D05BBE992D3FB9AECDFC552C84E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3C9E5F5FD569093C6A89A00E09D97923CFF5EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ Flex - Failure System EP (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:8F81596DD8DCF1219021EA75A2235D66D03F8D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ Vulture Cavalry - Blackwing (2003) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:11E3579CBB95AFD2005099BB0B69A1E32B81DC4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D07CC06935A0ABC74140EF94E5A63BB83119C386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2446BA01F8773B160D36588B90C52560D893E101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ PPV  на телешоу TNA.Жанр: СпортПеревод: Многого�
 ```bash
 magnet:?xt=urn:btih:16F7C144EA82030EABEC1599D71A4395EBE07820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AACEE90F35A3E80A4F81F4630D1B990F11547BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ Colt 45 - Больничка (2012) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:E96BE9095FFC42BFD43B8AD9AEE20866B9979CDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A7058B35AADF71F65798B124E571175E9DD76D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39CCBD6919B9E658A50C1D311AF79EDE42E9A540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Gregg Plummer - Free (2012) [MP3|320 кб/с]<Ambient, Electronic, Space Music>
 ```bash
 magnet:?xt=urn:btih:2143E3ED6B3129F66BDBD35A3F692A58A4944982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ Hollywood Burnouts - Excess All Areas (2012) [MP3|320 кб/с]<Hard Rock, Glam R
 ```bash
 magnet:?xt=urn:btih:1E9DD398B57468629E8FAF123403779926EE6CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +650,7 @@ VA - Looking Ahead (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:74A224D2CDD55ABE6CE96F7C3FE6D084429F65E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ VA - Ambient North: A Chill Out Excursion (2012) [MP3|320 кб/с]<Chillout, Dow
 ```bash
 magnet:?xt=urn:btih:EA5233CE1C798571AA018BB78FF422F489A12337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ Ar-SiDE - ЖИВой (2013) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:BF4884FE3993943909957D2AF847DD5E6C8FA0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +743,7 @@ Free Download Manager - программа, которая сочетает в �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Carmageddon Max Pack (1997) [En] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7C8A557E81319DCA3C122230109DC182089B91F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

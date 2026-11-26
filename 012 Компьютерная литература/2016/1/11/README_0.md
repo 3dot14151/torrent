@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:668F3FF1B164805A0D41167F895F5A1322FCF782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Photodex | ProShow Producer 7.0. Руководство пользователя
 ```bash
 magnet:?xt=urn:btih:B95580FC252D93928181229081FBA5670A507955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

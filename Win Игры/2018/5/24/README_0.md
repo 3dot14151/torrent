@@ -19,8 +19,7 @@ Ancestors Legacy – это историческая стратегия в ре�
 ```bash
 magnet:?xt=urn:btih:C24F7B65BE1F4E4AC753D4F1E9FE883BFB604706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

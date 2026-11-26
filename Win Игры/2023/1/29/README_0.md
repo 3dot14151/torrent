@@ -19,8 +19,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.0.1) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:1AD29AFEB83C145EF87CFFAF8DA7BA65CA5A9C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3E05919EDB0515CEB45E06C6BBAD63F9ADA93C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Win10PE-x64-1803 xlx 01.05.2018 [Ru]
 ```bash
 magnet:?xt=urn:btih:91056A13B53DC626C567335E7376EDD3D96EAD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:592B29843A83E9BA7009B3516196F87EA510B17B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Hob (2017) [Ru/Multi] (1.17.3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:21594014A685091416B2BD7FD97EA713ED88CEAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB531B3F449525CF103E59E4B909E030203AE235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Microsoft Windows 10 10.0.17134.1 Consumer editions Version 1803 (Updated April 
 ```bash
 magnet:?xt=urn:btih:27445BD9A44A7D3CAF754129AA57830C9A04DB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Age of Empires - легендарная стратегия в реальном �
 ```bash
 magnet:?xt=urn:btih:EB8AB0C091BE778BEDE28BB304C335EB1F947AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

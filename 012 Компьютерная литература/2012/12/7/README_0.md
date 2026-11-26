@@ -21,8 +21,7 @@ Photodex | Proshow Producer версия 4.1. Руководство на рус
 ```bash
 magnet:?xt=urn:btih:E28B78B77C3F467D6E4DA746FE771A4704AAE38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FA5250ECA7EF978FBA7975C348E238D5A253451F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017
 ```bash
 magnet:?xt=urn:btih:D2FF1B17202D524551BBAC56D9B40B6D6F180400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:4DBE38861C41240D2E667EC150F66772745A6F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ RegScanner 2.45 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D0348C06529EA0BE95DE30E4829ED910A960ED6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|44.1/
 ```bash
 magnet:?xt=urn:btih:6E0E0B33ABD0640DAE1E5B4BEF1A12447833F721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Mp3tag предоставляет пользователям мощный и п�
 ```bash
 magnet:?xt=urn:btih:B0C80E297CA1FA3C2E83A24473B95F0EC08CC510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79E58840415DAC66FB116BE4D3EB77E5BFD3E397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Paul Haslinger - Exit Ghost (2020) [MP3|320 кб/с]<Electronic, Contemporary In
 ```bash
 magnet:?xt=urn:btih:15EC90E5876BDC4DBD6BA470565D8349F36B4E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Paul Haslinger - Exit Ghost (2020) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Con
 ```bash
 magnet:?xt=urn:btih:98AB0676DCE48632C0486039DEC1C4880A161AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5414B68F4BE496BEF3393F6276BAF4E311DD2D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27BC36496A30DB5FC043D05305718F774BDFE019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ John Powell - The Call of the Wild / Зов предков (Original Motion Pict
 ```bash
 magnet:?xt=urn:btih:56640D7EBFCDBBD055340E8E22F1A9D4EE40672C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Paul Haslinger - Exit Ghost (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Electronic, C
 ```bash
 magnet:?xt=urn:btih:393432FFC698C8C2DC893B39311D5381CA064D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EE5CF35D85F441AB5B5FC1BD6B3A44C3BFA87F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:BD1FC86A8EC5F8E64B1A72AC278D2B2403325DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO 
 ```bash
 magnet:?xt=urn:btih:1C94AD8B9806AB224AD9075FAE544573B5E80991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C8D1CB6C3551A0179A8BBB127C7F3BFCDD6628D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:A68DC2077349E9D2163E02C89A9ACA642C2CC0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CA3DB72BDD3E7932CCF2EF8B235ACAF4277567D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ The Cactus Blossoms - You're Dreaming (2016) [FLAC|Lossless|tracks + .cue] <Coun
 ```bash
 magnet:?xt=urn:btih:CBFE8EB3468A0932B93019F56AFD2719E7B03F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ Sepultura - Quadra (2020) 2 CD, Deluxe Edition [FLAC|Lossless|tracks] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:EF12F20FC96D5EB24157C399EB7C22E263E5FA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27D028BA2EE7E13ADE085C4AD3CE80AB6364A99C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ Navid Hejazi - Mah (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|44.1/24
 ```bash
 magnet:?xt=urn:btih:2427815A63851AAAA89A42F3F3B6B420ED721A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:850A0CA7183B113D88609C586B6FAA8DD41019DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57ADB8C19FD63D29120A8FE41C7FDE7E21B051EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ Cop Craft | Мастерство копа [2019, TV, 12 эп.] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:AC878A7870D0489F100661BBA184D6C2A7E455DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

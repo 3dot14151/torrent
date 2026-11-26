@@ -21,8 +21,7 @@ SЕО Монстр 2013 [2012] [PDF]
 ```bash
 magnet:?xt=urn:btih:CB71FE15EC41531F4514411FE760AB6B3C206009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0397FF5C222B754CDC2AC2421B9B7C10F970FC67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

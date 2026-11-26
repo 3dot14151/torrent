@@ -27,8 +27,7 @@ RXYZYXR - LMNTS (2012) [MP3|320 кб/с]<Progressive / Math Metal / Djent>
 ```bash
 magnet:?xt=urn:btih:B2D571AD366A8F262ACE1107162689D547A3F08C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Interior Wallpapers (16.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:49BEC8ACCCB19B0AF4C28AA71BDC996DCB0A669F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Space Militia - Corbomite (2012) [MP3|320 кб/с]<space, electronic, downtempo>
 ```bash
 magnet:?xt=urn:btih:A05142F392D0AE6141670E22854B5D935F11396C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1213F50F16145E1F7BD483FC062FF6A48B17CCD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ VA - Русский РадиоХит: Новинки шансона (2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:9F1CADD7D6FE68EB8B7AE911C9240C1A123D293C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E81BFEB5C2139D5C695C674037016F01C9F8FB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ VA - Super танцевальный драйв (2012) [MP3|256 кб/с]<Pop, Dan
 ```bash
 magnet:?xt=urn:btih:A84D76F3BD1C59E3D33583CF871A82248C8217FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ VA - XXXL Осенний хитовый сезон (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:44F6AB1A494D4F97E14DB80778825D2E1AD8EE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ SMPlayer - кроссплатформенный мультимедиа прои�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:565F731679874868F4C230DCB3EBE440536058A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4B591447D32A5E56E7262C9C764906E3090D9A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ Coma Divine - Dead End Circle (Digipak) (2011) [FLAC|Lossless]<Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B54EBFBEE5685FB5C95352A4CE95B182869C9412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ VA - Правильный музон для шальной компании  2 (
 ```bash
 magnet:?xt=urn:btih:031BA43B8E0CD9E42DEE2E406A4ADB54EB78FAC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ VA - Топ-лист осенний 6. Лучшие из лучших (2012) [MP
 ```bash
 magnet:?xt=urn:btih:6B879053253E9AF97E52F8E7C08512CF9EBC5E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1348F3C017CCF74D7E8F93979C518395C6E86411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ VA - NRJ Hits 17 (2CD) (2012) [MP3|320 кб/с]<Poр, Dance>
 ```bash
 magnet:?xt=urn:btih:6252EBC80F2A58DA444CA931B62A2BD36E0D791C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +546,7 @@ VA - Benessere: 50 Relaxing Music (2012) [MP3|320 кб/с]<Relax, Chillout, Inst
 ```bash
 magnet:?xt=urn:btih:D4C201A7C651D14D730DDA99B8A0BA33B1F12F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53F184C197D2F389F3BA745773CB5F05EA9C0CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ VA - Дальнобойщикам: Далбнобойные Хиты (2012) [MP3
 ```bash
 magnet:?xt=urn:btih:C35C7C2A6F369A86C22340EFD0213BD41ED22A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ VA - Новинки шансона-6 (2012) [MP3|320 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:F9032FEEA508E45CB29942899AD6CFE9CFC78786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCD979CB468FE0D7C9B1B150D6B5826FAAECCCF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +702,7 @@ VA - Trance In Motion: Sensual Breath 020 (2012) [MP3|320 кб/с]<Trance, Vocal
 ```bash
 magnet:?xt=urn:btih:01B35F2941770F0B5EF68E8DA5D7EF36D5157CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8A5B35255A70C1B21FEDB41013D08A66ED73E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +752,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFC1464FC2881647DFC5679C1B719B0702CE3BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -811,8 +786,7 @@ VA - Союз Хитовый - 5 (2012) [MP3|128 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:A381CD61F05A61C1E652BDA5590471F7CC45F613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

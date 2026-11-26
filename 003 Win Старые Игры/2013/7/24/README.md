@@ -20,8 +20,7 @@ Chaos Overlords (1996) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8E3B633796D8B7866FD1D45CD02C643CD5D276B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

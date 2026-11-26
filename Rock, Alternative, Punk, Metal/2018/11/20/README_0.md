@@ -22,8 +22,7 @@ Abi In Malam Pestem:
 ```bash
 magnet:?xt=urn:btih:189EA0E71242193AD4DE766F93079D9BC0027FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kong - Push Comes to Shove (1995) [FLAC|Lossless|image + .cue] <Instrumental Pro
 ```bash
 magnet:?xt=urn:btih:67E48F306242FE823CBB2B7050DA5315D01C805C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gordian Knot - Gordian Knot (1998) Japan [FLAC|Lossless|image + .cue] <Progressi
 ```bash
 magnet:?xt=urn:btih:79451F9E1238F1AF93C0FEE8ED08F0879EE751CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lambert & Dekker - We Share Phenomena (Instrumental Version) (2018) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:FCFF0CD013254A86F22F95486DE7E0E0C3AE2BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Skyharbor - Sunshine Dust (2018) [FLAC|Lossless|image + .cue] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:9EAF252518F57792A79F0991E4137D308D2039F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Snakes In Paradise - Step Into The Light (2018) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:DED1D5BAA724E76554D44457D08635E2EAF8DFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Anubis Gate - Covered In Black (2017) [FLAC|Lossless|tracks + .cue] <Progressive
 ```bash
 magnet:?xt=urn:btih:3CE5A087DA63E7518A48E6EB75F9BB693A8F2CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Vanden Plas - The God Thing (1997) Reissue, Special Edition, 2004, Inside Out Mu
 ```bash
 magnet:?xt=urn:btih:21C7A0CE810DE59D6A98DD7E7D749D055DF779C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Nordic Union - Second Coming (2018) Japanese Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:DE137A4423C594DB5781422A2ED3337A49E76ED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Holter - Vlad The Impaler (2018) Japanese Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:A96959ACC56DF25A9079C91219DC02E204E94238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Luke Combs - This One's For You Too (2018) Deluxe Edition [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:D786C8CE86812D2B466E1B9469EE0320BD20A498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ The Brew - 7 Albums (2008 - 2018) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blue
 ```bash
 magnet:?xt=urn:btih:F103A0F5ED689C02B25C57F3CE4228E39D99E534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ P.O.D. - Circles (2018) Mascot Records [FLAC|Lossless|tracks + .cue] <Alternativ
 ```bash
 magnet:?xt=urn:btih:468E878020C635C5767834B1E4A59FE37F0F9361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ Jesus Culture - христианская рок группа из города R
 ```bash
 magnet:?xt=urn:btih:B098E2CABFD5815F59EB297F2A8E70D4E4A10C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

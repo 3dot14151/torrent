@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:553685EF81111A84F2B014E3F379543461C14C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2B43D2C89C204E59AC1AC6EF4A05CF830495609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:517C08FC53C1D840F13A6E7199FD6D11AE3234FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Warfect - Depicting The Macabre (2009) [APE|Lossless|image + .cue] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:ECC8A22FDD39CCE1C434985F9DC1535863217210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Best of Afterworld (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:DCAD17359A3EFB3621687EDEDC2BF658A701BE71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Subculture - The Singles (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B367CC838795F3C17E4F07C1BEFD36F781BF608C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Hellwitch - Syzygial Miscreancy (1990) Remastered, 2017 [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:4772CBA5298481479B7F4C099303BC2F7895013A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - The Best Of Suanda Base (Mixed by Ahmed Helmy) (2017) [MP3|320 Kbps] <Tranc
 ```bash
 magnet:?xt=urn:btih:F6C223810CDFFECA6125D47B5DAAC1A8D40FDBF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - DJ Box - Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House>
 ```bash
 magnet:?xt=urn:btih:0AA806BED85E36EE1E14667D0CAFF560A8017577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Warfect - Exoneration Denied (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:56D97880F7600466AF09ED3A7ADB2FDAB14F27D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Christmas Trance 2018 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:6962085561412A43B360AD64B89966EC5CA9CBD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ afarOne - Lucen (2012) Karlrecords [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, 
 ```bash
 magnet:?xt=urn:btih:3FC13E3EB1162345F338F9CE9A97DD9EC058DEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Andrea Belfi - Ore (2017) Float [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experime
 ```bash
 magnet:?xt=urn:btih:79477BC85C7EF4497A0C80E451F4508FF1B17651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Warfect - Scavengers (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:0CB85A2C4F69E41EE21748AE7E19E990072FF281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ B.E.N.T. - Eleven (2001) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:B04E921B630489EC5C0B1E52F7F7F97304070B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:CB8CA82D49E75404ADD82A2D0A0554EA3279648E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Broken Thoughts - Keju Luo (昆明市) - Discography 8 Releases (2011-2017) [FLA
 ```bash
 magnet:?xt=urn:btih:9527964DBDC05DFBA26031B0C70535C34C0D52AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:D4ACB198147C457E1AFB24F337D5B511C425599C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.22 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:7FBE19C4C8B4815332E7B3D826AEA34CBF8C7DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.24 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:0AA5A56E4AC0F06439C86160EA3DA701214177CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:498749DBF897C4418A8E67788A0232EF5683C23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B10D52B4966D2DDFE85944DD52E27530D4F8BEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ Beegie Adair & Friends - Christmas & Cocktails (2011) Green Hill Music [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:C2B72F823BDCCF57BB43E73EB1A87AAC2363C003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.23 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:09D51E1F7EEE9797741ABF596E0D54ED740F0386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ Radiation Romeos - Radiation Romeos (2017) [FLAC|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:C3F18DE7175418F436C92BC743B2FB7770CD3DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.26 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:644F8D2EF2ABFFE4711051AAE71EDB12BAD4C3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

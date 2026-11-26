@@ -22,8 +22,7 @@ J. D. Overdrive - 3 Albums (2013-2021) [MP3|320 Kbps] <Southern, Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:C9786C379C87D987055412BD90E915A985C58B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ High South - Peace, Love & Harmony (2020) [FLAC|Lossless|image + .cue] <Classic 
 ```bash
 magnet:?xt=urn:btih:C815FCBA4B37525802974023C047F8B58DF9FDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Marius Danielsen - Legend of Valley Doom - Part 1-3 (2015-2021) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:F0FE1406DE3E567EE4340F53196E68A71744A032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ JODY GRIND - английский коллектив прогрессивног�
 ```bash
 magnet:?xt=urn:btih:634A584E9C10A1017AF6285F3C00FCA0CDD0CF04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Diamante - 2 Albums (2018-2021) [MP3|320 Kbps] <Alt.Metal, Modern Rock, Female V
 ```bash
 magnet:?xt=urn:btih:E2C9705AC7BF5B3213E1A382239DAC86941BE18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Peter Gabriel - Rated PG (2020) [FLAC|Lossless|tracks + .cue] <Prog Rock, Soundt
 ```bash
 magnet:?xt=urn:btih:771DA643729BF27B8F09F6F7D7059C880506D668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Darko US - 2 Albums (2020-2021) [MP3|320 Kbps] <Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:33ACC98A204E87D8D94116961EF370EF6337ADF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - The Mastermix Collection – Rock (2021) [MP3|320 Kbps] <DJ Sets, Hard Rock
 ```bash
 magnet:?xt=urn:btih:938760C673768B7E5A97941E628C75AA6A3F7F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Robin McAuley - Standing On The Edge (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 ```bash
 magnet:?xt=urn:btih:72A8E98E5661E9FC2A0C7BCD7176322CBE725954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

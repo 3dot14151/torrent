@@ -19,8 +19,7 @@ Love Story 3: The Way Home (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F3A21E3391684861B43CD5960A8FF1D92010B47C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Midnight Mysteries 3: Devil on the Mississippi Collector's Edition / Полун�
 ```bash
 magnet:?xt=urn:btih:7986CC01194BB427D0BCFFE0BD5E193461684F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Love Story 3: The Way Home / История любви. Дорога домой 
 ```bash
 magnet:?xt=urn:btih:14733DB35EB18FE9A0FA42113C3E986DED251FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

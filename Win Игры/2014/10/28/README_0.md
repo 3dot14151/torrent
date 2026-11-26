@@ -19,8 +19,7 @@ Fear for Sale 5: The 13 Keys (2014) [En] Unofficial [Collector’s Edition / К�
 ```bash
 magnet:?xt=urn:btih:76E77449C84635E34910017C9C8640915EE34E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Who ya gonna call?
 ```bash
 magnet:?xt=urn:btih:A09335EDD8A23A0A6D0F1D27A6271921508F721C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

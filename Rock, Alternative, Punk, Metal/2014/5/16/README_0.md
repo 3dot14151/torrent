@@ -27,8 +27,7 @@ Nibiru - Eternity In Me (2013) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:1FAF0BD25394F64FF545750CA48FB4B3A135345E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Winds Of Plague - Resistance (2013) [MP3|320 кб/с]<Symphonic Metalcore>
 ```bash
 magnet:?xt=urn:btih:3D6D1A87BAD91888092E9FEE3A4C18703A011785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Honour Crest - Spilled Ink (2013) [MP3|320 кб/с]<Metalcore, Electronic>
 ```bash
 magnet:?xt=urn:btih:575706B19C7B135D4256FA99D3C3E24ABB98A09A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Dirty Woman - City Of Sins (2014) [FLAC|Lossless]<Heavy Metal / Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:C7131907404A620B341BBB8684EFCF61443334B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Sirens & Sailors - Skeletons (2013) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:F5F9BF0465D1034EE8403859CF191ED6976FB2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Oceans Red - Hold Your Breath (2013) [MP3|320 кб/с]<Post-Hardcore, Electronic
 ```bash
 magnet:?xt=urn:btih:CEEDE633D2D5B577805D4C5D9A74D568037DF08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ A Broken Silence - All For What (2009) [MP3|320 кб/с]<Alternative Rock, Rapco
 ```bash
 magnet:?xt=urn:btih:BACD199CA64BD31136FCB0F8BF91B49FF713BE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Hacktivist - Hacktivist (2013) EP/Remastered [MP3|320 кб/с]<Progressive Metal
 ```bash
 magnet:?xt=urn:btih:58512BAE836F725A8AE3A8120493E7C7F33EC7AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Personal collection, original rip & scan work: antonyart
 ```bash
 magnet:?xt=urn:btih:BB012E6FBDF7B9BEB9C0DD666BCCFF47038B7088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Bonus Tracks:
 ```bash
 magnet:?xt=urn:btih:679ABD3BD760965A0F7E3FFC3422372EC1451627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +363,7 @@ Timo Tolkki's Avalon - Angels Of The Apocalypse (2014) [MP3|320 кб/с]<Symphon
 ```bash
 magnet:?xt=urn:btih:D3007CB6DBCB30A530F16FDB0E3EB4B12429406E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +397,7 @@ Simple Plan - 4 Альбома (2002-2011) [MP3|320 кб/с]<Pop Punk>
 ```bash
 magnet:?xt=urn:btih:E8165673899CDEFD3F661CB77B84597206F813D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0097C80F8C78DFE814791B05378E0E097CD58767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +465,7 @@ Avatar - Hail The Apocalypse (2014) [FLAC|Lossless]<Modern Metal>
 ```bash
 magnet:?xt=urn:btih:D54A59538D9E8CA67004A04DEAC9DCCD4D7E3985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +493,7 @@ Coldplay - Ghost Stories & Midnight (Remixes) (2014) [FLAC|Lossless] < Alternati
 ```bash
 magnet:?xt=urn:btih:FB35DC08CCCED3742E3481B3C19258EBAD062A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +521,7 @@ Slade - 15 Studio Albums, 5 Compilation, 3 Live (1969-1997) Discography [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:639F2FFABE6F8FB0B1E340C9624FFA2C1EC40AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

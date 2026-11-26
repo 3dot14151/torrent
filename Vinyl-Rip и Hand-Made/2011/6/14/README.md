@@ -26,8 +26,7 @@ Deep Purple - Shades Of Deep Purple - (1968) [FLAC 2.0 24/192|image(Vinyl-Rip)]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

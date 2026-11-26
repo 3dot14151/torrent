@@ -19,8 +19,7 @@ Outdooractive v3.16.6 Mod by Timozhai [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E1FFCAA48C504BE2800D24FBA40DECB5182C22BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GPS АнтиРадар v43.0 Mod by 0x7d [Ru]
 ```bash
 magnet:?xt=urn:btih:3D7EE92C5CE24782FAC395C05E8C3B21A3FB1009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Patephone / Патефон v10.11.17 Mod by vl80k747 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A4072E1FB44D7F861D4FC88450B66EB40A0D4CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

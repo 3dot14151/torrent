@@ -19,8 +19,7 @@ PS Tray Factory - это средство для управления иконк
 ```bash
 magnet:?xt=urn:btih:0CC9EC620C7437EFFB562783B715E586A50434C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDFB9DB231F4E30A4E5D209E422B01E5347D3731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

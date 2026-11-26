@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2BA9864BBA46FD093B4C2218DD9A8D1690E7C1D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Infinite Design v3.4.21 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:C8521ADB380633B1D68FBBACB6E8B199CF1C2669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

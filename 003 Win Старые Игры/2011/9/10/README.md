@@ -19,8 +19,7 @@ Indiana Jones and The Fate of Atlantis - замечательный квест, 
 ```bash
 magnet:?xt=urn:btih:5C5A8685CCB89B4DDD8597F5437D67EE6D789F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ M.A.X. 2: Mechanized Assault & Exploration - мало чем отличающе�
 ```bash
 magnet:?xt=urn:btih:0E2E995B6649F3F21E308B67CCA42BCEEFC4A18A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Delta Force - тактический шутер от первого лица. В
 ```bash
 magnet:?xt=urn:btih:FE9CB8B5F3F46E5D14AE816F4AF28C99E6854BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tropico - экономическая стратегия в латиноамер�
 ```bash
 magnet:?xt=urn:btih:EA02573069AFF72F8B7BD29ABD420B6B4890C4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tropico - экономическая стратегия в латиноамер�
 ```bash
 magnet:?xt=urn:btih:E85AAD7B7DF50FBE500437CEE50AAF05156DA0B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Plazma Being — инди-пазл-платформер от независим�
 ```bash
 magnet:?xt=urn:btih:E6E71B75E56AF8FA64290C2E43A51C01110F6ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jigsaw Puzzle Золотая Коллекция - занимательная и�
 ```bash
 magnet:?xt=urn:btih:DE6C2530922147ED5825B887583B62B27DB48A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SpongeBob SquarePants Bubble Rush! (2010) [En] (1.3.1) Repack mike1986
 ```bash
 magnet:?xt=urn:btih:F15174DF86EFB253948C3D3234E0D0F0A420C18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Fort Defense / Защитники Форта (2013) [Ru] RePack adguard
 ```bash
 magnet:?xt=urn:btih:029564B95A3B99262243154876103AA4D0B2EE70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

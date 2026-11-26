@@ -22,8 +22,7 @@ Theory Of A Deadman - Say Nothing (2020) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:8E496E2A1EEAB503F8B71374D52BC3271FE4E45F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82BE13282D0D3F11AA125A0FD57269FC0B66775C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:FFB4C9CCEB9CA43299BA4AB894B036D8585E1686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:110AED5B091EE96C497ED28E60800EDE27F117AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ ZZ TOP - The Best Of Blues (1997) [FLAC|Lossless] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:D5918B892F67D02A2513A9E4C73EEC609A648C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Leecher - Deviant (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Gothic Metal,
 ```bash
 magnet:?xt=urn:btih:76111FE0A95607F688AF62C402BA56DA882C73B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

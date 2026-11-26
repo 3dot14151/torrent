@@ -19,8 +19,7 @@ Labyrinths of the World 11: The Wild Side / Лабиринты мира 11: Ди
 ```bash
 magnet:?xt=urn:btih:1787E0C3E63EA783D2D361924946C3A1F02EF7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Find Me: Horror Game (2020) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:9F31E2700FEC2CB95392DB292D67218075D3396B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Path of Zen (2020) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:8DC4E4C1D9A94EF6A9B29C447D436994DB7004B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Invention Highway / Как решить проблему (200) [Ru] (1.0) Licens
 ```bash
 magnet:?xt=urn:btih:777327F8F9212172DAE8767293BCE3212F9B1F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ RUNNER HEROES - это уникальное приключение, в кото�
 ```bash
 magnet:?xt=urn:btih:08F73E9BB79C37C6A667CE24BADCE353EEE27D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D73425F0472741D47BD7A3D71D24DE68720B3F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Top Gear — популярная английская телепередача,
 ```bash
 magnet:?xt=urn:btih:497BFF283B66FF555CDC0207B222233983B1D54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

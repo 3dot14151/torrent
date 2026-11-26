@@ -19,8 +19,7 @@ Tacticool - это динамичные командные бои 5 на 5, с �
 ```bash
 magnet:?xt=urn:btih:D15B0F4B92F9FFA3318D77304256E2C120EE2F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

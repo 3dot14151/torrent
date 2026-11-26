@@ -19,8 +19,7 @@ Saints Row: Gat Out of Hell – самостоятельное дополнен�
 ```bash
 magnet:?xt=urn:btih:BA47FE1029A403EB4528055BA3CCB3CEEE16CB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Flying Tigers: Shadows Over China (2017) [Ru/Multi] (1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:E0E54A57B606D9571E96EFFFF628DE4027F60594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Flying Tigers: Shadows Over China — авиационная аркада, по�
 ```bash
 magnet:?xt=urn:btih:3F868402FE351C8B8D5A159E052D0CA687C5BCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ FLYING TIGERS: SHADOWS OVER CHINA – основанный на реальных
 ```bash
 magnet:?xt=urn:btih:68A9ACFC03BD1567A8CB91B7AD0BCB5FE7638F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Flying Tigers: Shadows Over China (2017) [Ru/En] (1.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:336518DFA030B094CB99F3604E73AEA09A0E5DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Binary Domain (2012) [Ru/En] (1.0.0.1/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:194ABC05C4036278A2108C5F5F75389A4AC2332E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:DD5B9681AE201FBF1230BA79F4E920C6F7853990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ RadLINE Quarantine (2017) [En] (1.1.2) License HI2U
 ```bash
 magnet:?xt=urn:btih:7FA228638DE340EBEC4B79FAE1875CED0C7B822D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Quarantine - это пошаговая стратегия, посвященна�
 ```bash
 magnet:?xt=urn:btih:DB5997114FF4524E7D5047726E8FE192F8D82DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

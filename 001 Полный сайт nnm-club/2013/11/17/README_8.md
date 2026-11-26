@@ -22,8 +22,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 ```bash
 magnet:?xt=urn:btih:97EEDF0F705DA9D4EE2CAB2E665341959F633501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ SEGA MEGA DRIVE Ultimate Collection [PS3] [EUR] [En] [4.30] [Cobra ODE / E3 ODE 
 ```bash
 magnet:?xt=urn:btih:E72EE0C9075AE634244FFB02DA60F03B8A4DE3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:497E4427E81E887E148D6F5F3969CD6FA3AF9690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5EDEA17756EBBE0E71E85730EB2BD5074E7DE5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ XCOM: Enemy Unknown привносит в мир XCOM новую историю,
 ```bash
 magnet:?xt=urn:btih:125CCBAF9C3059D8DCB2CF1B5E31AACB7FD75218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/En] (1.0.0
 ```bash
 magnet:?xt=urn:btih:39CEBAE12FD259BDACAC716493DAF9A29E7A4CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru] (1.0.0.14
 ```bash
 magnet:?xt=urn:btih:7E68ED56A2F6D0E2B203E5DEB6663C2068061427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ BioShock Infinite (2013) [Ru/En] (1.1.23.63123/7dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:8A5B55B6D478070913198A61F1A1CEFD2B950FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61572E039E5B0657328E25FA57A3A97D1FF63145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Alcohol 120% - эмулятор CD/DVD-дисков. Программа созд
 ```bash
 magnet:?xt=urn:btih:BE1E882B55A4799BF3F5FD3824BD25A20A5B0472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ The Sims 3 (2009) [Ru/En] (b10.2/dlc) Repack R.G. Catalyst [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:EFD51F19C395C06786C268AC15FA06BBE2351B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ XCOM®: Enemy Within - это первое глобальное дополнен
 ```bash
 magnet:?xt=urn:btih:BDEE5A4A182A290213908BF6A194D5E4D4E3DE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/En] (1.0.0
 ```bash
 magnet:?xt=urn:btih:9707E0B2A6638876A663989466A5C5BC0CDB5412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Need for Speed Underground (2003) [Ru/En] (1.4) RePack RG Games
 ```bash
 magnet:?xt=urn:btih:FE0994E10BFC39BC8723C06B4BED6CAF1213736A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 ```bash
 magnet:?xt=urn:btih:DAECEF3BA33A702682702A4791513B39E24E9FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ The Sims 3 (2009) [Ru] (21.0.150/Store October 2013) Repack Fenixx [Gold Edition
 ```bash
 magnet:?xt=urn:btih:6C1744392B599BCD5E19BC5D9D4B979090114173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

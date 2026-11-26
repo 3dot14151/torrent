@@ -18,8 +18,7 @@ Remnant 2 - это атмосферная и брутальная комбина
 ```bash
 magnet:?xt=urn:btih:A5D604ECDC250A2572D8BD7189BC5E7F40345230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ System software for Windows v.3.5.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:8722EAF381C8DE57D63076FA89457AEDCA3B0D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ MInstAll v.25.11.2023 By Andreyonohov (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:93B0DF58E4D4404B19C159843EF39DCBB9E13BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:FF797998B970768BE3CF4F711A610FA3368842DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Chicken Invaders ставит вас на передней край битвы �
 ```bash
 magnet:?xt=urn:btih:8A69884E03EB1D1F4E5952B73DF27CCA2D198E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

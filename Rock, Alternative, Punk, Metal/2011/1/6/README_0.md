@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:3BDB86E6DC0DCBF511687B2D28B66CB1068C982F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Alvin Lee - The Best Songs 3CD (2010) [FLAC|Lossless]<Rock, BlusRock, HardBlus>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Sam Brown - Дискография (10 альбомов) (1988-2007) [MP3|320 kb
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Joe Cocker - The Very Best (2011) [FLAC|Lossless]<Blues, Soul, Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

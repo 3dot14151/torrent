@@ -23,8 +23,7 @@ Prepar3D - это реалистичный авиасимулятор на ба�
 ```bash
 magnet:?xt=urn:btih:84B079623F0551CFDD9202B60967AD2CE6B9797E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

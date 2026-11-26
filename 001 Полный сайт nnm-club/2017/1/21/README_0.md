@@ -21,8 +21,7 @@ Eve Fleishman - Atmospheric Epic (2017) [FLAC|WEB-DL|Lossless|tracks + .cue] <Vo
 ```bash
 magnet:?xt=urn:btih:06ED2CB2184E0F4F73A65764D1297C13E5AA7E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Ronnie Baker Brooks - Times Have Changed (2017) [FLAC|Lossless|image + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:E021A4CD4E29EBBDF11F365E717F86E86B57B7C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Colony House - Only the Lonely (2017) [FLAC|Lossless|tracks] <Indie Rock, Altern
 ```bash
 magnet:?xt=urn:btih:94B221F00B2B57DE92B0CF6A9F81B293B1E4D75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D52C26D78601EE7241F4AE1A482D238A001DC42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:061DE157A21CFB99F047928CDFAF71DDE54DA90C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Mason - Harbour (1971) Reissue, 1999, Gear Fab Records [MP3|320 Kbps] <Psych-Pro
 ```bash
 magnet:?xt=urn:btih:9FDB34C232044C220B79D1E75F4DB966EB97761D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - Блатной шансон на любимой волне. Часть № 
 ```bash
 magnet:?xt=urn:btih:21A1BC7B5960F06D883B51BABC6B4A52893D3DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF7B0801CC98C26C7094E8A2085400D7A4A1DC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ VA - German Top 100 Single Charts 20.01.2017 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A1B56F5FBBEDC8DEC80AB0A769FBBC0643E2BC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Natalie Cole - Dangerous (1985) [FLAC|Lossless|image + .cue] <Soul>
 ```bash
 magnet:?xt=urn:btih:13E39A6EAE2771DA84AD657ECF08E85C96C2B050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ VA - Paul Oakenfold - DJ Box January (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:60D74D675B52753280B15204EE275A9CF2617CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - Музыкальный плен. Часть № 8 (2017) [MP3|256 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:E12436747236655ED9BD5C37E8F2542FE3751F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ As Lions - Selfish Age (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative 
 ```bash
 magnet:?xt=urn:btih:F0D42BB579D387543C3AA0C2209B96D8D12D5E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C8740E748A44029CD9F0857A3A232FF19E17CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ VA - Снегопад новинок. Часть № 6 (2017) [MP3|256 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:7C328EDCC8E812635B31879E12B0AFE3946BBA34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD9C3CC6E8A360A7CC74EE170D068F9A8BD09041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76E4D492478275DA3E718F4D467A95EBFE9C158C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Stefan Torto - Indivisual Connections (2017) Cosmicleaf Records [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:C08CBA5D5D6A3BF35E94906AA9B4D0E01F772271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ VA - Снежный хит-парад. 100 русских хитов. Сборн
 ```bash
 magnet:?xt=urn:btih:EE67005BE056F30809563BFB599B09F48355A07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ VA - Neon Lights Dance Club (2017) [MP3|224-320 Kbps] <Dance, Club, Electro Hous
 ```bash
 magnet:?xt=urn:btih:08433FB0FBA12C3794709E1F9E53891928B5ECA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD47FDBD3B76FF5CF484C3EEFE3672EBBBB2B609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ VA - Espectrum: The Avantroots Dub Techno Compilation (2016) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:04BF6E53C5A770A73E1CD0D83A5755486F4B867F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ Katri - Ompasa (2017) [MP3|320 Kbps] <Psy, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:8ADBE9F7A1E6BE95FC5F813E467B8E4BBA365183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF4C0C1867BEA90A7FAA3DECF46467766D27AF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Emma King - Emma King (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul, Folk>
 ```bash
 magnet:?xt=urn:btih:5372D88602A614DA1EE0893862C56B900EE3766F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ VA - Лучшие блатные хиты года на радио Шансон 
 ```bash
 magnet:?xt=urn:btih:1CC6305D951C881469755AC8A64FF5584D91D539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Waterfox - бесплатный высокопроизводительный б�
 ```bash
 magnet:?xt=urn:btih:41EC1E2BBD2EBC98FE23A4919EFC69328D7BFDEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ExplorerFocus — это замена Проводнику Windows для тех
 ```bash
 magnet:?xt=urn:btih:87A4C0F97C0E7E8CC6EB4E1E771E5833319C99F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ NETworkManager 2026.11.22.0 Pre-release + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D81532DB93A1E35B333B72A936BAE3191DF2B529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Xtreme Download Manager ускоряет загрузки, восстанавл�
 ```bash
 magnet:?xt=urn:btih:E4DFBB7A850764A9FD607C367895F7B8C4346D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Q-Dir - это отличный альтернативный файловый м
 ```bash
 magnet:?xt=urn:btih:0D9905A5217A343609EE6E79B3ED2A36F557AC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Unicodia — это энциклопедия символов Unicode с отк�
 ```bash
 magnet:?xt=urn:btih:8ED467630F26FEAC60D33A0A3A2C913E85215333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:85FEB03245D8B80D76EEF339FCFBFED02E01E8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Kerish PC Doctor — комплексное решение для автомат
 ```bash
 magnet:?xt=urn:btih:A5A87E7E5C7BA8CD1AE519F0092B4C0CEAE64C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:447DA12702A234803E5D23EBA51AE234013B54CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:A85C90129EA2F9350E3949DD2568B0F6F962327E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:8CF6D356CB34AE11273C8B2E2CA2AAB58A730733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:CE83157D8E915E27DCE24CC25FAA647C4888C4D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

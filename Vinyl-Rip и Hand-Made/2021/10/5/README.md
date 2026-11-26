@@ -22,8 +22,7 @@ A3 Andante(   Читать дальше...   )Жанр: ClassicalПродолж�
 ```bash
 magnet:?xt=urn:btih:758B21FB195E6A2868BB9C44981F05983F1924E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

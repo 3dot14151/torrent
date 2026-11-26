@@ -22,8 +22,7 @@ B2 Choral Prelude "Von Himmel Hoch, Da Komm Ich Her" (BWV 606)(   Читать �
 ```bash
 magnet:?xt=urn:btih:53D4952CF4D87E618BF69F1B5C2DE58345985814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

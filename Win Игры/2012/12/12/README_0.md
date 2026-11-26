@@ -21,8 +21,7 @@ Slender's Woods [En/Ru] (L/1.1) 2012
 ```bash
 magnet:?xt=urn:btih:DEF46EAFDF47D81574BF829BD9E12DB786B5486A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tony Hawk's Pro Skater HD [En/Multi5] (Steam-Rip/1.0.8788.0/DLC) 2012 | R.G. И�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Test Drive®: Ferrari Racing Legends [En] (RePack) 2012 | R.G.Games
 ```bash
 magnet:?xt=urn:btih:80DCA235F75471968EE755799779618331CA2C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

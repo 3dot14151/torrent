@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:F01CFB2DBC0ED0D0F052D89061328C74C7D1493D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - German Top 100 Single Charts 22.10.2018 (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:DEFD88C77389D1F0192CB59FEF92C9A5DB1A8407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Jump Desktop (RDP & VNC) - программа, которая делает до�
 ```bash
 magnet:?xt=urn:btih:4A259F306556303196D239E37554B7BD2556DAE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Black Hole Trance Music 10-18 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D91565EF55C68F847251FB5A22A7E367AB285E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B71C14F08940B2053718BEA2A4E716FDC9E6197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Piezo не требует никаких настроек, достаточно 
 ```bash
 magnet:?xt=urn:btih:E8BCAB49D5D92FD419AD94889880BF93E76F2189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - Best Of 2018 - Die Hits Des Jahres (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9DF2EA0E5303A7836912C2BA6B90664EDAC79827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Ballermann Hits Party 2019 (XXL Fan Edition) (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:CB9A8E0C4C5ED964F2CE08EB2EBD65011AE650CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04CB1CD136D3C695BDA7EBE2C36E08E9438696BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Super Eraser Pro мощное программное обеспечение об
 ```bash
 magnet:?xt=urn:btih:E8B5B66B359007FCDDB79F1D0C644AF606834710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Dirty Vegas - Photograph (2015) D:vision Records [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:438C132FAE334A4807B7C6CDA2C8BA022CC1FDC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - Death ...Is Just the Beginning, MMXVIII (2018) [MP3|320 Kbps] <Metal>
 ```bash
 magnet:?xt=urn:btih:19B91126519A89D651D3E61944724E61E58FA4C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ App Cleaner - лучшее приложения для очистки Мака �
 ```bash
 magnet:?xt=urn:btih:9A1F75CD22982FD162EF8D28B98FE377EB237FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Tipard Mac Video Converter Ultimate 9.2.10 [Multi]
 ```bash
 magnet:?xt=urn:btih:56AE52A32CB660678010C45420AC74D2694CE69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ VA - Age Of Rebelion: Rock Revue (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:2B41727C77D852DCDB1D9068F83686E15A0105C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E938E7DA0F163BC16280AAECB8429EF2C2FB4E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Classic Rock Orchester London - Classic & pop (1993) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:C123FD09CA1AD4F386F16C1BBF38225350E5719F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Electric Youth - Innerworld (2014) [FLAC|Lossless|tracks + .cue] <Synthpop, New 
 ```bash
 magnet:?xt=urn:btih:A7996CBE3F78FB243FCF534E00B8C618787B993D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67F830C3BE52D4AC6578E729050D3F5BAE68A239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ NGW: Чудаки животного мира. Обезьяны носачи / F
 ```bash
 magnet:?xt=urn:btih:3DFD5AC5BADCBDB717B595064C7CABC0DDCD6C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ SYC 2 устанавливает совершенно новый уровень 
 ```bash
 magnet:?xt=urn:btih:814646DA741C91DD4C0EC77311669F5617CE743E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:5BBEA89801B20369C69EDD6DB00E368AE9F44E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ VA - ЕвроХит Топ 40 Europa Plus 19.10.2018 (2018) [MP3|320 Kbps] <Pop,
 ```bash
 magnet:?xt=urn:btih:0D724ACDDDC12B28541EA1D4995699AE71F0120D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F43A5E03789647DC831D1474878DDD9CB46045D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ NG. Ужас в небесах / Terror in the Skies (2013) DVB (серии 1-4)
 ```bash
 magnet:?xt=urn:btih:5A6FEBD2212E154CDF579B3849E1606489EA4B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1284B8230F6447CDCDE28074954E123811F8BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

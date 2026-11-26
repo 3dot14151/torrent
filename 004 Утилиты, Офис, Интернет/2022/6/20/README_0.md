@@ -19,8 +19,7 @@ AntiDupl.NET - бесплатная программа с открытым ис�
 ```bash
 magnet:?xt=urn:btih:0704849A7DB27C07EE49F2572E3E9D63882AF751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ TcpLogView 1.25 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1C6CDA1B9F41A6D15982E932E887FEFAE444C7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HTTPNetworkSniffer 1.51 Portable + Driver [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1AF0CF6F56CB3A3FD61D45B7E439580D06C0FA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Startup Delayer - выручит в том случае если на вашем
 ```bash
 magnet:?xt=urn:btih:1EE20699E38D95E673B77138D016ECF96C7C438B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

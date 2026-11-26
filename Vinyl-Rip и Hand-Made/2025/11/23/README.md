@@ -22,8 +22,7 @@ A3.a Green Green(   Читать дальше...   )Жанр: PopПродолж�
 ```bash
 magnet:?xt=urn:btih:83786203FBC1C93B2EC2AC60ACB8DA97D7B35E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Twogether - Side By Side (Together)(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:50A248C5C86247D34F8A8BBD7B13610ECADBBB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

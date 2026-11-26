@@ -22,8 +22,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:0F81B2C9C5C16D8A44EF9E081F5B9B67361A40AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Darkseed — немецкая готик-метал-группа, образов
 ```bash
 magnet:?xt=urn:btih:40F1C6AC053FEA983DB4813116F75EE2F2ABA434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

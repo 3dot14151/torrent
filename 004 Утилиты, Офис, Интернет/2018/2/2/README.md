@@ -19,8 +19,7 @@ Total Mail Converter надежная программа для конверти
 ```bash
 magnet:?xt=urn:btih:345D189EB9CE9970E5C6EF916454B95415BEE07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Outlook имеет свой собственный формат файлов. Е
 ```bash
 magnet:?xt=urn:btih:C30BA68CD044186693C3AB267B946CB311501267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

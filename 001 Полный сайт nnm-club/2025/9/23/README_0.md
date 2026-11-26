@@ -18,8 +18,7 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:AFE2CEDBBB6DC734295776C1CE030833D966BE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F90D424D9E268B64158599BBC796CB383599CED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Grand Blue Season 2 / Grand Blue Dreaming 2 / Необъятный океан [�
 ```bash
 magnet:?xt=urn:btih:7A9B7FADCB5A8ECF5FEDF95E7940D79156945109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Star Valor - космическая игра в жанре экшен-РПГ, г
 ```bash
 magnet:?xt=urn:btih:15CD3C7B898FA0DDD6546BAB71F695908943F176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Swordhaven: Iron Conspiracy с головой окунает вас в полн�
 ```bash
 magnet:?xt=urn:btih:F223758DC46079B2F03C3637AC6B43DD495B7D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:51C5A4A5001DEED05C15BF56A04F564E874EB35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Kizetsu Yuusha to Ansatsu Hime | Обморочный герой и принце
 ```bash
 magnet:?xt=urn:btih:0326F26948AD32CF1BF0723A20023271EF44A89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Nukitashi the Animation | Нукитаси [2025, TV, 10 из 11 эп.] WEBRip 1
 ```bash
 magnet:?xt=urn:btih:8C72124B5ACDC760877A5D5B3F4D3EEB86AFFEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF43BBC59990344C88B5E05B6C4EA772C2154F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Reality Break (2025) [Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1D265ED7707760381B6AF09330F409653C2AAC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) License GOG
 ```bash
 magnet:?xt=urn:btih:4384C11F5EAE9EE0EF7EC281A95D2700057C4A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Yet Another Zombie Survivors (2023) [Ru/Multi] (B.0.9.0a) Repack Let'sРlay [Ear
 ```bash
 magnet:?xt=urn:btih:33BB7237FBD3E2BB5420F7DCBA578AB667C8B51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Craft the World объединяет в себе наиболее интерес
 ```bash
 magnet:?xt=urn:btih:E1FD295911293C7295010D33DD92A575A28AC241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Scene Rune [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:BB8CADC93A14D76B3B5EB36357D35ED79E7BC786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack seleZen [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:16D26A85AA61D2ADD34F3B1E93BE78D9C01D4AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:308F62C49E86F5C86386504A48AE7256113EF4B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack FitGirl [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:0B8E11587C8FAB87FCBA1E9DB5A57261A04E30F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04E76592C91A98412E4B3C419B2FDC3FD7D98156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ Kakkou no Iinazuke Season 2 | A Couple of Cuckoos Season 2 | Обручённы�
 ```bash
 magnet:?xt=urn:btih:EC0F96DD39369180C7D99B60F1AE522B68138CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ Topaz Gigapixel – это ведущий в отрасли, ИИ-усилите
 ```bash
 magnet:?xt=urn:btih:06FEBD296D78A40DEA7E05F4BA8F92C40A532F36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:804B21789BB9D823C6A8092687E9F97927A1D3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B84063EFB9299EDAEDC9F64A67243B7084B91325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ DOOM запустили на вейпе и на калькуляторе
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27D2E693F8C7E76E38A0960116FE6348667DB17D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

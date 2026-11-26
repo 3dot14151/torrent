@@ -19,8 +19,7 @@ Language Pack Multi 34 For Windows XP v.5.1.2600 [Multi]
 ```bash
 magnet:?xt=urn:btih:3E65D0A58FC9E076CE0E7C08A3F1884257011E0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

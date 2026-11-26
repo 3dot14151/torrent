@@ -19,8 +19,7 @@ Drift Max Pro v2.1.01 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DF6A24BC06A1EFDA60754AEE86F9898E21747A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

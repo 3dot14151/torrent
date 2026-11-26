@@ -19,8 +19,7 @@ Reflections of Life 5: Hearts Taken (2017) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:B6AA4399C77D2A44C0CDD05EDE44E0678D09C947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Darkness and Flame 2: Missing Memories (2017) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:004A806E28232F0E781D182D7E122A16F759903C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Andersen Accounts 2: The Price of a Life (2019) [En] (1.0) Unofficial [Colle
 ```bash
 magnet:?xt=urn:btih:1D82500A7DB05B8867D5A70198BF33C8FF028609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:BD8808AED545A7EE134752CF67C450E0468A0A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Monster Energy Supercross 2 (2019) [Multi] (1.0/dlc) License CODEX [The Official
 ```bash
 magnet:?xt=urn:btih:FB4F517A148A409CE783A11CEEC6355D06EFE020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ GOD EATER 3 (2019) [Ru/Multi] (1.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:7385F3F93D5D1541E623D1ACB9487D0EB9DFD4F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

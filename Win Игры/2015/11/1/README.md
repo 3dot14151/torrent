@@ -19,8 +19,7 @@ Grim Tales 9: Threads of Destiny (2015) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:F42C251FAA7764CA8E07DC866E43954A72C43B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ League of Light 2: Wicked Harvest / Лига Света 2: Нечестивый 
 ```bash
 magnet:?xt=urn:btih:F82206B587A0721866CF09870589D6E791F523F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

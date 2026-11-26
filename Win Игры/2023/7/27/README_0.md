@@ -19,8 +19,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:4DF8CDF41B5C10AD7D9BF94DE2C9C8B13A2078F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

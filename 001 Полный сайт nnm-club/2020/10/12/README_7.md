@@ -19,8 +19,7 @@ FontBook - это универсальная утилита для шрифто�
 ```bash
 magnet:?xt=urn:btih:C87D8232313812F43D2C3238D5655E014AA78E6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Amazonics - Amazónico (Amazonico) (2020) [AAC|~308 Kbps] <Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:86FF92EA1C344DB155E5C4DF32263017B707B3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82614D756C9EC1967B74698EF080287859B30369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 ```bash
 magnet:?xt=urn:btih:3FC1E8DDAD59B300FCD10F60D00D049348CCD890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ PDF Checkpoint автоматизирует рабочие процессы PDF 
 ```bash
 magnet:?xt=urn:btih:A57C785449F64E00EE609E5989E699B4E431BF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Energy Voice - Best of Energy Voice (Expanded Edition, New Italo Disco Hits) (20
 ```bash
 magnet:?xt=urn:btih:C1E25908F2CFFAB96178FD6837DC31258F3AC165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Amandus - Sing a Song (2020) [AAC|~325 Kbps]<Jazz>
 ```bash
 magnet:?xt=urn:btih:8CF9624170A5D55887A6821561AFD8F8EE011601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Wondershare AllMyMusic для Mac позволяет записывать про
 ```bash
 magnet:?xt=urn:btih:89C095BAE5AF1282762F5FBFAC70F06506E04A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14984DE97910BD89CD5AD0DDD0026B9F4365DDC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Róisín Murphy - Róisín Machine (Deluxe) (2020) [AAC|~321 Kbps]<Electronic, P
 ```bash
 magnet:?xt=urn:btih:B7317886BAFB6EE5265C21B2B5DBB222D0425D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Cloud Outliner позволяет с легкостью создавать ау�
 ```bash
 magnet:?xt=urn:btih:52914993453B0D25E6B1126942F2216CEE1C3075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Fancy - Sail Away (2020) [AAC|~329 Kbps]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:DE7F420A97A63EE8A99710D14B7F7D86B64CDFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Amadine - это программное обеспечение для векто
 ```bash
 magnet:?xt=urn:btih:8B6BE73EAEC9703E197C69E80F18AC16B569CBBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Handy Note - это прекрасно написанное приложение
 ```bash
 magnet:?xt=urn:btih:3B633866CD7DA8572428B1315694467F5F3DE96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Torch - Reignited (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:15A107066D34774BF99A7ED05AEF27446FCA9C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

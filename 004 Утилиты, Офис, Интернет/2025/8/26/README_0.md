@@ -20,8 +20,7 @@ Activation Program 1.12 b07 Portable by Ratiborus [En]
 ```bash
 magnet:?xt=urn:btih:F4499F3E9E27797B2436529BA8C29DE49DA9301A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ MiniBin — это легковесная, но мощная утилита дл
 ```bash
 magnet:?xt=urn:btih:E189F7276959CD4920C73E9B6FF2C899C13B1592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Slimjet 47.0.1.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BDF4E7A6E8C819CFC1075E22B08679602743A7A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Pale Moon - веб-браузер, созданный на базе популя
 ```bash
 magnet:?xt=urn:btih:D88F03AB810079169B400C06E0EF76262FDDECA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:EB9E71DE93171C4DA54F165544DBCF7B9700816E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

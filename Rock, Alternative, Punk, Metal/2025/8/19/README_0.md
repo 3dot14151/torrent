@@ -22,8 +22,7 @@ VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [F
 ```bash
 magnet:?xt=urn:btih:0F858DAC461E62547AA5D72613ACE76A37D7B180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Linkin Park - From Zero (2024) U.S., 093624838807, Amazon Alternate Cover [FLAC|
 ```bash
 magnet:?xt=urn:btih:D20169EE503D28A70C4FA1BD72A982AD32FC7EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Throne Of Time - Emperor Of The Universe (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:7F0477002D0B10AA806BBAAB9E3D13E9682DB9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Black Knight - The Tower (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Me
 ```bash
 magnet:?xt=urn:btih:A61541BD655F57571ED2D56A2051B94E378DD965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

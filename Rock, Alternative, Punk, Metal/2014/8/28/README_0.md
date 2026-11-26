@@ -28,8 +28,7 @@ Amongst The Thorns - The Rebirthing (2014) [MP3|320 кб/с]<Progressive Death M
 ```bash
 magnet:?xt=urn:btih:33C7F3543507BB3288DEFF9C923D9DB02A68B5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Chariot - Demons And Angels (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:792E49A2EA8AE1694B056831CDDA9EC0044BDC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ The Order Of Israfel - Wisdom (2014) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:D4CC355C45DC93DFD69695DC7F25582D0F498C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Dark Fortress - Venereal Dawn (2014) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:367B8C60FFD58517C2B3268FAFBE3F859425446A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Troldhaugen - Obzkure Anekdotez For Maniakal Massez (2014) [MP3|320 кб/с]<Fol
 ```bash
 magnet:?xt=urn:btih:F136A4D572F213A2F0528C3446ED919B10330E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12D49E7F499929F4DB3B9F34830614C5EE3E2E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ Blood God - Blood Is My Trademark (2014) [MP3|320 кб/с]<Hard Rock, Heavy Meta
 ```bash
 magnet:?xt=urn:btih:BA6B4DF778A7DB4EE6EEE8986DFE32C8F95E5BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ Deadly Dive - Snakebyte (2014) [MP3|320 кб/с]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:CD9B9E2AE3C2E50D7488F51C17FE81CD11534E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ Totorro - Home Alone (2014) [MP3|320 кб/с]<Post Rock, Post Metal, Math Rock, 
 ```bash
 magnet:?xt=urn:btih:BEC19402A9DC558C1F072125D9FF250FF99075D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Blues Pills - Blues Pills (2014) Exclusive Edition [MP3|320 кб/с]<Stoner, Har
 ```bash
 magnet:?xt=urn:btih:8DBB7665605A3109CDD738AAF409AFDD4B821322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +343,7 @@ Madball - Hardcore Lives (2014) Limited Edition [MP3|320 кб/с]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:DE4F1B8921C4804252B3D3AA4757A627190829BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +377,7 @@ HammerFall - (r)Evolution (2014) [FLAC|Lossless]<Heavy / Power Metal>
 ```bash
 magnet:?xt=urn:btih:6EFA324C04C2123151041C879F27B3B98677222D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA218F2E9523A9A70A12908DFD3A56F636E31665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +437,7 @@ Interpol - El Pintor (2014) [FLAC|Lossless]<Alternative Rock, Indie Rock, Post P
 ```bash
 magnet:?xt=urn:btih:0EAC77E5A36036D4BC388509C732CA992C2321D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +465,7 @@ Dio - Singles Box Set (2012) Anthology [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B95304DB8B9EA957FD2DD3042D2C26B5BB38FD9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:180E2C8698089F3567A0A32B612512A1C3E92E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

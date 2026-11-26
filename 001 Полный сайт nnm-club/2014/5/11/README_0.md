@@ -22,8 +22,7 @@ Dark Elixir - Simple Chaos EP (2014) [MP3|320 кб/с]<Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:DE151CBBDCA73E8903F263461DD4FF62FA1BE43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A22BF8E8905C1EEA359E74A4EB0C0EB57A52EB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CC3E064516F8E3761DE1D99BBA263038B029F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D27A99DB4A8D297E1B7EF7F7D9B47B921BF79750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Gass (feat. Peter Green) - Gass (1970) Reissue /2006, Retro Disc Int/ [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:ED187551B48451C83E89C9A84C09874009E1FBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Christiania Selection Vol 2 (Compiled by Flexus) (2012) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:98F8E1A9169E6BDC2C1444F7B33A093952E1E4C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:AF69BEF34D80930803E97BE1A81C3560F3D0A909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81813D116BF16789D7877C475BD90C37194D78EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ Warm Dust - And It Came To Pass (1970) Remastered /2005, Second Life Records/ [F
 ```bash
 magnet:?xt=urn:btih:D2EDE55C24385F2F358D1B79957BE64961726152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ Lettuce - Fly (2012) [FLAC|Lossless]<Funk>
 ```bash
 magnet:?xt=urn:btih:2D5181D81CE5B278F1C197D9E8759BF1C439E9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FBB62637094906449CF19F41E8F47C3DD980EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09CE8B9F4EF8E6AC6BAC55BFAB4F454B5597F459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Forgotten Books: The Enchanted Crown (2014) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:A7DB55843414E16E22474C8B6F83852F81008A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7339E292D20683C043CADA07D4186CC8FBC7D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ VA - Проза жизни 4 (2014) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:14CA7F2CF07ADC29B8F81482B92E8C1FC51D8A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +446,7 @@ Buzzcocks - The Way (2014) [MP3|320 кб/с]<Alternative Rock, Punk>
 ```bash
 magnet:?xt=urn:btih:C661DAC7406AB671D8FEDBA87525754B996FEE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56E8F917D434F9DDD55AFB53608EBC9CA3DD0337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ VA - Dark Dubstep Vol.1 (2014) [MP3|224 кб/с]<Dark Dubstep>
 ```bash
 magnet:?xt=urn:btih:4466407C0610FDDE37774DD1090425893F1EE142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD46FB88FD9C942B662FA965148F4521E8FD3927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C742EF4AF36B6094D3F25469E3D3923E88F03870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:954A54F01D5A15389341FF6B93E99D65EEA63631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F38B06B458BD67BBE68FF11D61C6B7B55ECCC5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B28CBE90F1117107AA8F6EBDD0610268C5AD8A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +661,7 @@ Together для Mac OS - Программа для хранения и орга�
 ```bash
 magnet:?xt=urn:btih:7C927450F066EB6FC205B3400FE4D9D4973DDECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ NG: Чудесная посадка на Гудзон / Miracle landing On The H
 ```bash
 magnet:?xt=urn:btih:D1A1C9F0ACC2BB93583C42428AF1AD69A790126B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ GJ-bu / Клуб GJ (2014, OVA, 1) HDTV 720p Raw
 ```bash
 magnet:?xt=urn:btih:03473161DF992332CC09A51E719D9CFA39365886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

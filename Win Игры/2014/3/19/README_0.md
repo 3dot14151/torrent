@@ -21,8 +21,7 @@ Journey of a Roach (2013) [Ru/Multi] (1.30.011) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:6FDEA9F875B29D42B97A2B2D5C1173A4587F1E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Incognita - шпионский триллер канадской студии Kl
 ```bash
 magnet:?xt=urn:btih:55843EFF2C6B1E7FBEDC50ACAC5FD9D7D3CCDAF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ High Dive предлагает пользователям пройти 20 нов
 ```bash
 magnet:?xt=urn:btih:250333E5A8C7D548F060022FFB05214F356978D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:B8914017FC8ACEBB6FA9E7CBD4BDA7092CFFB870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Spacebase DF-9 предлагает Вам построить поселение
 ```bash
 magnet:?xt=urn:btih:D1E375A7602374D6280C1C6EDCA12E82DF622A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Totally Accurate Toilet Simulator - атмосферный симулятор т
 ```bash
 magnet:?xt=urn:btih:E5F3A682C9265D0F6D087A5D871C9F69F9350CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

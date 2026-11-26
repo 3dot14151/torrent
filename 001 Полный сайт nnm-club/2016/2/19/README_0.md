@@ -21,8 +21,7 @@ Nancy Harms - Ellington At Night (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 ```bash
 magnet:?xt=urn:btih:EB3C05474835BAA5B3186C9E65606C6DF7586953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Techno 2007 - The Best (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:BC45CD2EE6A64BC6DAC3FBE73ABF6A5A3BB5F707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B574259D57285D65D5B96C7C0EDFA8647504FE87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Dwaallicht (Wisp) - Welkin EP (2016) [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro
 ```bash
 magnet:?xt=urn:btih:530DEC2856468204B8CF305A5A54BE3917E6AF7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Only Chillout Vol. 03 (Compiled & Mixed By Seven24) (2016) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:79659B276238886DA71475B75470C18E9D36450E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Future Breeze - Second Life (2005) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:8FABE963F50038A154D2609A910F9ED3D6BCD232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - Music For Everyone - Dubstep & Drumstep Vol.4 (2016) [MP3|320 кб/с] <Dub
 ```bash
 magnet:?xt=urn:btih:4506D73B5C2293AAEDB61BFBBD99B0D995C7E86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F895BC988EDECC4538965EED8C33A87198203A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C361B834D5E381813EA272796A434FAC14419F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ VA - Club Of Fans Dance Vol. 6 (2016) [MP3|320 кб/с] <Club, Dance, Hands Up>
 ```bash
 magnet:?xt=urn:btih:AE0605F7D46B89B00EF8F89828EDE6B9C37CE3C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:864CBBD01BA3463E6CEB6B95BEA993C6C8E39B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92F50F8FA472C3EB745CE82D5B1961E9662EE59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ hr - Task timer as simple as it's name 1.1.3 [En]
 ```bash
 magnet:?xt=urn:btih:AE8BE83FBF3724298ADD11A0FAB32C410619D7A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2779948B598F2EDF11DD1FBCBED67004A64E1765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A953A1607A5979A9626AD907B7C120A448944CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Clipboard Center простой в использовании и мощный м
 ```bash
 magnet:?xt=urn:btih:6B854EB57BBB82EC607DE26B75012CF5AAACE91E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Children Collide - The Long Now (2008) [MP3|320 кб/с] <Alternative Rock, Indi
 ```bash
 magnet:?xt=urn:btih:BB3196E682198851C97B3A1233283BB0FDAF9BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ VA - Under The Same Sun: Privacy Music (2016) [MP3|320 kbps] <Pop Lyric>
 ```bash
 magnet:?xt=urn:btih:510152505F76E8A17B03587E805EFAB72D74B277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Katharsis - Cosmic Future (2016) [MP3|320 кб/с] <Progressive Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:0A5B4E032DA62F44C04D39F39BE455E74DD66730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ VA - Antimateria (Compiled By Egorythmia) (2016) [MP3|320 кб/с] <Progressive 
 ```bash
 magnet:?xt=urn:btih:2BFB82086B170D8888E8F0E9417B13F4B890CBF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ VA - Romantic Dinner - Lounge & Jazz Music (2015) Vol. 1 [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:F7B77EEC38F4AAAB83D65FA2DF4B8807149872ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ African Head Charge - Songs Of Praise (1990) [MP3|320 кб/с] <Reggae, Dub>
 ```bash
 magnet:?xt=urn:btih:4641D8E68F7D1ACD785CBEFBB2937F9DAE2F1B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ Handful Of Rain - Three Days To Come Back (2016) [MP3|192 кб/с] <Melodic Hard
 ```bash
 magnet:?xt=urn:btih:0CBE4C012BBF19B4347265AE1194F38B03313FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ Boyz II Men - Collide (2014) Target Deluxe Edition [MP3|320 кб/с] <Soul, Rhyt
 ```bash
 magnet:?xt=urn:btih:D457745965E66E0AF819B2917AC7258A91891704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84A8382090048E20F2B5069507CFB6878B88FBC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

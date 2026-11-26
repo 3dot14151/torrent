@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:23D5288286346D7EA131F75BC8802749785495D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B299213E55265A16C83174B0FE9E3D376D1E8366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Riffstone - Richard III (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5C37076CA07102E9111EEB2DE6A3E0EC673D3009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bleeding Through - Nine (2025) [FLAC|Lossless|image + .cue] <Metalcore, Heavy Me
 ```bash
 magnet:?xt=urn:btih:20A0DC8CA710AD3ECE50AFA13B514ACB4B775258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

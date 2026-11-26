@@ -23,8 +23,7 @@ Unlеаshed - Dawn оf the Ninе (2015) Limited Edition [FLAC|Lossless]<Death Me
 ```bash
 magnet:?xt=urn:btih:8F4B4123CFC8E734339649D31BE80EF988752F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Norot - Nathrach (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:E21008CEAC2B331892E5609C28DCB49563D2BC87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Things Fall Apart - Things Fall Apart (2015) [MP3|320 кб/с]<Screamo, Melodic 
 ```bash
 magnet:?xt=urn:btih:F90B26B5C86C227E6C557E90A566CB0D1DE67055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Qualm - Qualm (2015) [MP3|320 кб/с]<Raw Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:1BA38C63A4382EDB63C3D67991FA5C673D8E0BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Terran City - Disperse (2015) EP [MP3|320 кб/с]<Post Rock, Ambient, Instrumen
 ```bash
 magnet:?xt=urn:btih:068DB253422E17574288C5DD750F0C8830BA0CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Luca Turilli's Rhapsody - Rosenkreuz (The Rose And The Cross) (2015) Single [MP3
 ```bash
 magnet:?xt=urn:btih:66D915E3D3050C43C9ED887A5AB8A686CE6F4560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Burning Down Alaska - Values & Virtues (EP) (2015) [MP3|320 кб/с]<Melodic Har
 ```bash
 magnet:?xt=urn:btih:15E5E0F045BE49073C32DC87F9B82ED2FB3D8B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Korpiklaani - Noita (2015) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:9CF5BD2D6BFD1F18EFE2F039FCF61A24E3FFCBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

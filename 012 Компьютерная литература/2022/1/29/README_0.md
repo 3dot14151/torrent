@@ -20,8 +20,7 @@ Heydon Pickering, Andy Bell | Every Layout - Relearn CSS layout by example (2021
 ```bash
 magnet:?xt=urn:btih:4079AA01868157F684C23B7471D56577BD95E697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Simon Høiberg | JavaScript In The Industry (2021) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:F0F65AE8028EC4758CD85B17F4169965A2F4D247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Google Cloud Platform (GCP) является одним из лидеров от
 ```bash
 magnet:?xt=urn:btih:8A343FA40C3B2C4ADB2B5AC8E5E248CAE88A73DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Google Cloud, общедоступная облачная платформа о�
 ```bash
 magnet:?xt=urn:btih:8FC398EBF6FB1FF0CE827BA5BCD0F6E1AC6FA3F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

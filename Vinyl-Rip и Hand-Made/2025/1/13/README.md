@@ -22,8 +22,7 @@ A4 Mary In The Morning(   Читать дальше...   )Жанр: Country, Pop
 ```bash
 magnet:?xt=urn:btih:50D4B38EF5C7D7EF32B226734F85391AEC28A60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 I've Got You, That's Enough For Me(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:3D08FB8E2A8620390BEB7EEFFBBF9EAADC9A8F62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Vivaldi Metal Project - симфоник-метал-проект, переосм
 ```bash
 magnet:?xt=urn:btih:E1519AECA61FA985A8D8BD1E64613BB16B452716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

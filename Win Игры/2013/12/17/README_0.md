@@ -20,8 +20,7 @@ Zombie Driver HD (2012) [Multi] (1.4.23-21733/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5259F41B38BF62F10188CDEA414DB89338714554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Velocity Ultra (2013) [Multi] (1.0) License FANiSO
 ```bash
 magnet:?xt=urn:btih:C8BB8BC190D893A80CEAFD872A03232D50AA4042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

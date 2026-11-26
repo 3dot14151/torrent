@@ -27,8 +27,7 @@ A Switch Below - Signs Of Impact (2005) [FLAC|Lossless]<Melodic Death / Thrash M
 ```bash
 magnet:?xt=urn:btih:27A96EE58BF6C748C8BD69A6F23F08A9C74B194B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Carlotta - Depresionismo (2013) [MP3|320 кб/с]<Gothic Metal, Female Vocals>
 ```bash
 magnet:?xt=urn:btih:D5601DD77D4711ADE15C7033DA9AA2489B693681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Shadow of the Colossus - End Game (2013) [FLAC|Lossless]<Progressive Metalcore |
 ```bash
 magnet:?xt=urn:btih:A4E2274D896041399F1F23727D248BC6730E4611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Asia - Asia (1982) /W.German Target CD  [APE|Lossless]<Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F96A52EF98D6D38E0054789F6B5BA91933AF37E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Graeme Edge Band - Paradise Ballroom (1977) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:B6E7AF532A8D065B62D2572C17A205C31C06A1D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Blessthefall - Hollow Bodies (2013) [MP3|320 кб/с]<Post-Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:FC4D1E52A233E2FB30181078805F5BA77D185A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Edgar Winter - Jasmine Nightdreams (1975) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:0373F97CEBA1011364547CD4B01D5DD9DC289F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Richard Marx - Paid Vacation (1993) [FLAC|Lossless]<Rock, Melodic rock>
 ```bash
 magnet:?xt=urn:btih:EA939675092BE646B195D06947B7FA30F51ABABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Manowar - The Lord Of Steel Live (EP) (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:AECDE54B8F08D78B5A1473AF96BE3F71358C2C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Kreator - Dying Alive (2013) 2CD, Live [MP3|320 кб/с]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ VA - Pure... Hard Rock(4CD) (2011) [MP3|320 кб/с]<Rock, Hard Rock, Heavy Meta
 ```bash
 magnet:?xt=urn:btih:E2A6FDAADB7FAF6D1B7211979907B026F7482054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Danger Mouse & Daniele Luppi with Jack White & Norah Jones - Rome (2011) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:36A60A56FC9849B8E9F8E2B521DA74FE5606A0BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

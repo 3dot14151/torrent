@@ -19,8 +19,7 @@ Voodoo Whisperer: Curse of a Legend Collector's Edition / Заклинатель
 ```bash
 magnet:?xt=urn:btih:E87DA612E510BD63B361F9CA0AC28704CC5F9B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Open Sea Fishing: The Simulation / Рыбалка в открытом море (
 ```bash
 magnet:?xt=urn:btih:79D26424A8DC4DDB8832DD21DFEAC535149B17B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Supermarket Management 2 / Торговый Переполох 2 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:4A2EA7CF11485F96CCC00F8E4211B972C9BA4747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

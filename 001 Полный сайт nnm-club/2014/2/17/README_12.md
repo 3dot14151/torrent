@@ -28,8 +28,7 @@ VA - Vectiva United 003 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:6DA03E77E8638268F8F875FFA8FECC526D5FD4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Ucleden - Who’s There EP (2013) [MP3|320 кб/с]<Deep House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:49E1ACD353B3D79137B910C4CC91240DD6C04957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D01F5377C77E45B8E51D8F90BDA4EC16C0C37635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0458A504FA982ED683C5A3D267CF1D44E7A39FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Aurastore - Untapped Horizons (2013) [MP3|320 кб/с]<Ambient>
 ```bash
 magnet:?xt=urn:btih:695385BA11B985A034F5365B836ABD88ADCF96B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ VA - Audioexit Seventy (2013) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:A3C50BD7CAD6FF26619335658910BF4C343BD5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ Eldritch - Tasting the Tear (2014) [MP3|320 кб/с]<Progressive/Power Metal>
 ```bash
 magnet:?xt=urn:btih:B585F7D82011C2D0BD9360E7941737B32C8AD02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ Egrojj - Gambling EP (2014) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:C5A020CB148EA911AE0571C731420E183A1E741B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ VA - Cream Ibiza Anthems (2013) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:B4CBFA4BD700E496438A2CE04A9EF3F3BE22DF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ VA - Gynoid Audio Best of 2013 (2013) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:8BEDDFDB79DC66C77F47EB23CF87603B1C452CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ VA - Клубные Новинки Vol.361 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:6674D54255BD88DE0A4575C53C57CA0A0ED5F054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ VA - Ambient 4: Isolationism (1994) [FLAC|Lossless]<Noise, Experimental, Minimal
 ```bash
 magnet:?xt=urn:btih:2F635777F6BAEAEA6182972A1227EA492FF92189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42DB3B8FF5F873ECD2F82DF3325C3F4E2A221426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +452,7 @@ VA - Deep House Sektor Vol.12 (2014) [MP3|320 кб/с]<Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:93B5F2B45EB874751917950EBAECCAEC7B27AD7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ Ya Tafari - Bath & Beauty Music. Volume One (2012) [MP3|320 кб/с]<New age, Re
 ```bash
 magnet:?xt=urn:btih:AC819CF01377F10857BFC9F0BBCEAA7B5E478A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +513,7 @@ Lunar Dawn - Blessings From Irij Remixes (2013) [MP3|320 кб/с]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:0A4948AF7C7C98578B52F4F7C251876F0DD8B513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67E69E7D32D87684E4B9330B6EE004E2D4D991D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ VA - Constellations In You 2 (Mixed by Eco) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F583D18BD5084C4850EFA16453177E3657D42B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ VA - Club Music Vol.26 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:CB89B8CC6A09A709611B4563C4090F8EE5455F51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +640,7 @@ VA - Клубные Новинки Vol.362 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:1D4F56D24459C8B0B4B5DDF635CB2B51FAAD0F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +669,7 @@ Morphic Resonance - Chromatic World (2014) [MP3|320 кб/с]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:AC4ACBC0C48032CBE962EC5CC03CA1C02454E0C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +697,7 @@ Muhr - Depersonalization (2013) [FLAC|Lossless|WEB-DL|24Bit]<Ambient, Modern Cla
 ```bash
 magnet:?xt=urn:btih:31D706B45499AA87E6B059E902E21713BCE4E724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +731,7 @@ Cadacross - So Pale Is The Light (2001) [APE|Lossless]<Epic Metal, Melodic Death
 ```bash
 magnet:?xt=urn:btih:D74079E39DDC759B3D26B12C4DCF5B85686FEF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -782,8 +758,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A3E239F4CE1319A4371EA7E088A5CD14FB4998F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -817,8 +792,7 @@ Collioure - Dreaming of Paradise (2013) [MP3|320 кб/с]<Indie Dance, Nu Disco,
 ```bash
 magnet:?xt=urn:btih:FF1F4FFAE52D2B32D03EE1A1D44198AC81325543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

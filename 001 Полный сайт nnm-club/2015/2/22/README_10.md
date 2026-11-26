@@ -21,8 +21,7 @@ Ethereal Shroud - They Became The Falling Ash (2015) [MP3|320 кб/с]<Atmospher
 ```bash
 magnet:?xt=urn:btih:8AAD18F3C4BBCD6A319EAA21B1225BB4F1566C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:515D85BD4A9BFF0BBE5604E657C242EC8CAFC386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Aaskereia - 2 Albums, 2 EP, 1 Live, 2 Demo (1999-2011) [MP3|160-320 кб/с]<Bla
 ```bash
 magnet:?xt=urn:btih:D17B0A2C9388AF29146D123E82EC8FE274146232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1107BA234D49F80881301B4AC4446AEE7B1F8CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4611E9F6FF55F7CEEA05226F11B5CC91CB7C02BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Faulnis - 6 альбомов (2004-2014) [MP3|156-320 кб/с]<Black Metal, Depr
 ```bash
 magnet:?xt=urn:btih:B00F271E9F9F073B34B4EB0B9A2842A42397E005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Sleazy Roxxx - Dangerous Obsession (2014) [MP3|320 кб/с]<Glam, Punk, Rock>
 ```bash
 magnet:?xt=urn:btih:02F2B4D55055297FBDC108E682C5B35575C84345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Sleazy Roxxx - Dangerous Obsession (2014) [FLAC|Lossless]<Glam, Punk, Rock>
 ```bash
 magnet:?xt=urn:btih:A626F42CB8E56E54AC33C8D838EB5078B8B7140F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - RLX 7 The Chill Out Collection (2015) [MP3|320 кб/с]<Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:E4FC84EB8FCC77BBE4615B2A6CF6C0D502C4D025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Heart In Hand - 3 LP (2010-2014) [MP3|320 кб/с]<Melodic Hardcore / Metalcore>
 ```bash
 magnet:?xt=urn:btih:FF66C94097203EB00EB248452481D1FEB9E2B7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C06446BBDA3628870ACEDFAC220459B7AAFBFB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ The Parlor Mob - Dogs (2011) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7E0EBB162300296CA4B2A4BF4759ACF9E8AC6793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Uruk-Hai - Tawanthinsayu (2006) [FLAC|Lossless]<Dark Ambient, Battle Ambient>
 ```bash
 magnet:?xt=urn:btih:28D2998CC472F717B8F91DE79D725B681E75FCB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EFAD45EF2A001D236FAF6BB007CF176F5C0BD7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F466FBED3B9652628159CEDA45EE55D5EF7916B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E1F275754B7CDE9BD2C8E8C7199E49D56287A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Bloodshed Walhalla - The Battle Will Never End (2012) [MP3|320 кб/с]<Viking m
 ```bash
 magnet:?xt=urn:btih:C3FCC0DC46DBF1AC53EA2853FAD39BF2B43A606B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0435E2B1EC8536B941D16530D0863F1C3A5BD095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ Solefald - World Metal: Kosmopolis Sud (2015) [MP3|320 кб/с]<Avant-Garde Meta
 ```bash
 magnet:?xt=urn:btih:71AD12046E7DF26179D8273BF37269580DCE87EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06FBE29B32C31A267B892FCD77C68B2A3F51ABA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4E486269DD3CF9250B04C043E3569D6A457D9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ John Zorn - Madness, Love and Mysticism (2001) [FLAC|Lossless]<Jazz, Avant-Garde
 ```bash
 magnet:?xt=urn:btih:0A616B12709C91B7FE01C9244445B9484E443967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ Q-Project - Renaissance Man (2006) [MP3|~245 кб/с (V0)]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:6AA9FC814A2597F08FF309D8F8E2AD118F6942CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ Carter - Strange Love (2015) [MP3|320 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:1C009BE4690542B8C2A57F87BDC7795CDEFEEAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ Heaven - Brass Rock 1 (1971) Reissue, Remastered /2008, Esoteric, UK/ [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:1BF11A83355A7E2C3DCEDC53C28EE0A030DCD2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ Erin McCallum - It's Time (2015) [MP3|320 кб/с]<Electric Blues>
 ```bash
 magnet:?xt=urn:btih:3DDC2A956F45D0EC58B449CA3D598E220C217F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

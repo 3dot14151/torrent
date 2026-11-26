@@ -19,8 +19,7 @@ ZOMBI (2015) [Ru/Multi] (1.1) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:4612A876610159635FF8195DD14CE8C2896D0C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

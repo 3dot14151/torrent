@@ -19,8 +19,7 @@ Kotlin – простой и высокопроизводительный язы
 ```bash
 magnet:?xt=urn:btih:3C8E88A925628182A6B0D993C4283F269895EFED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

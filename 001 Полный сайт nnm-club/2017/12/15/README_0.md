@@ -21,8 +21,7 @@ RightFont - менеджер шрифтов с  красивым интерфе�
 ```bash
 magnet:?xt=urn:btih:07DC9586DF5C75323CDD544974EE6069B8C57C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Bottle Of Moonshine - Everybody Watches No One Knows (2014) [MP3|320 Kbps] <60's
 ```bash
 magnet:?xt=urn:btih:416AB227D0A3DA644D68E3F630FCB66A19F9CAC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ SecuritySpy работает с широким спектром камер чт�
 ```bash
 magnet:?xt=urn:btih:F37D3507213F8B2B939D00C5A5C2E29AA62A1F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Parks (The Parks, Парки) - Discography 12 Releases (1991-2016) Elektrus, Ф
 ```bash
 magnet:?xt=urn:btih:343C0F975AA27BA8977EE9E699FA3B7DA5B4BACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.7 (Compiled by Викто�
 ```bash
 magnet:?xt=urn:btih:B800DCA442F19263F784B9C6D16D3411D7FBE642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Alexandra Savior - Belladonna Of Sadness (2017) [FLAC|Lossless|tracks + .cue] <A
 ```bash
 magnet:?xt=urn:btih:17D539D9E06A43766469F999AEFBE5D7069F1C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Chillout Winter 2018 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:EFE228B0E9B8B71FDD89740607995A71866B795F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Children Of The Sea: Pacific Chill Area (2017) [MP3|320 Kbps] <Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:5C4F96FD4C7FD8F5D92D7FDA406BD9DACFF59E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27CFC0B07FF5FE96844F45B6ED0D2C7F6E97C945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCBFE6D85292E789EBAC21911A37D6936DD91E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:503347990DFE4214DE68D42EA49FBAAE0FD7A51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96A7663A491B238D507068D33FF642412FD183CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E014CA1A09138285DDDF198B6416F47C2F723065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E39180B14B67DC9EAC19CBB4FE7544DD3496B988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7904A018E48E5E9EF7BF5A50367CEF02676194AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A7458E94BEF0BBCCA037E0360C83942A870C437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:684B629A7E0B309E6C0DD451FC134CA30F41AD87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ Pablo Alboran - Prometo (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B6EF60A7AC524C6A7545297CAADBF9A99518D916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Gabriel & Dresden - The Only Road (2017) [MP3|320 Kbps] <Trance,Progressive Hous
 ```bash
 magnet:?xt=urn:btih:64E78624DE1478DA0C53E0A99E43A11B1E8F0D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA1BF60553970C95BAB8193B2EDDFE36F474DB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ VA - De Top 100 Aller Tijden 1972 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ```bash
 magnet:?xt=urn:btih:CD94757E6EC68C874C2483F5DB7105031C77CC75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Jozef Van Wissem - Nobody Living Can Ever Make Me Turn Back (2017) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:BE7EAD49B9D5C1ED6AFF53D294D6CDB4D429227B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ Comedy Woman (2017.12.15) SATRip (Дайджест)
 ```bash
 magnet:?xt=urn:btih:FA3D6809EEC69825A822DC513592A7A4F8F79AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C678EEB7B6E8A0D8491144F940838BDA0A435C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76B5B324B15BFF9B5E76CD29BFC743AD1863B9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ Cory Wong - Cory Wong and the Green Screen Band (2017) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:1A1B9BE5DBF97BAC22057AB10FB7B0A38B9677A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

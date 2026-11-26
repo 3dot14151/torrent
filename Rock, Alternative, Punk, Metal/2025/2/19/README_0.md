@@ -22,8 +22,7 @@ Crazy Lixx — шведская хэви-метал/хэйр-метал/хард
 ```bash
 magnet:?xt=urn:btih:EE72BBCCDF28E070241D72D3D4993E9DB444843E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:114284C53B4A023398B03A92A3B3B62D90644ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Saor - Amidst The Ruins (2025) [FLAC|Lossless|image + .cue] <Atmospheric Black M
 ```bash
 magnet:?xt=urn:btih:E194E574C22D82EEA51503FE01B31D5FCE01869B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wretch - Visitors (2025) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:721637B1985F02AA8CE95D7044EDF77C1F3B10A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 ```bash
 magnet:?xt=urn:btih:726CA168F08D263488BA58A269DE7BE2793517AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

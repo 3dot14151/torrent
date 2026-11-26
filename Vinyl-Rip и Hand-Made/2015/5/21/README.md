@@ -22,8 +22,7 @@ Bon Jovi - Slippery When Wet (1986/2015) [LPCM 2.0 96kHz 24bit, DTS 5.1 96/24 | 
 ```bash
 magnet:?xt=urn:btih:421CD0BD08F3B90647F42B047D0AEAA0303A09D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Doctor For My Heart (3:22)(   Читать дальше...   )Произво
 ```bash
 magnet:?xt=urn:btih:A0F387985A7562C2BA8647C44AA7B991CA62460E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Route 66 / Трасса 66 [Ru] (P) 2009
 ```bash
 magnet:?xt=urn:btih:D46698E9222CCB7E02ECBCD06A58D3A0831AF3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Inbetween Land / Между небом и землей [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:E1749D3D52CFD62D9472824C207EB92793533E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wildlife Camp In the Heart of Africa / Заповедник в самом цен
 ```bash
 magnet:?xt=urn:btih:9EB086FE67D5F4E92B54F580917FB61A42234D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

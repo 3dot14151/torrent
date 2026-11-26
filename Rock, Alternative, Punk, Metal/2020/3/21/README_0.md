@@ -22,8 +22,7 @@ Neorhythm - 3 CDr Альбома (2018-2020) [MP3|320 Kbps] <Groove, Death Metal
 ```bash
 magnet:?xt=urn:btih:EDEE2E4C67913E6D6E9B24C0B19848937C8F77B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Worriers - You or Someone You Know (2020) [FLAC|Lossless|tracks + .cue] <Indie R
 ```bash
 magnet:?xt=urn:btih:CE79EAB26E3B65792883EED5FD6F1A9E1829A008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Killswitch Engage - Alive or Just Breathing (2002) Reissue, 2005, Roadrunner Rec
 ```bash
 magnet:?xt=urn:btih:F4F785EF984C2AEE09036945F38326E1F64C4160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Rock Live! (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1FF0849AB4E5E5FD48BC08D752939398AEF74C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Def Leppard - The Early Years 79-81 (2020) Anthology Boxset 5CD [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:B7160226A9E90B67EA72AC2D073058F368DE15CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8A9C95C45A883BF9EB5E3122BAECB4BFC930B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Def Leppard - The Early Years (2020) 5CD [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4B32F90D3EA61DD6BE8FDD97292EDFACE4034394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

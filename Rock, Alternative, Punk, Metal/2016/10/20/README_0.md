@@ -22,8 +22,7 @@ Perpetual Dreams - A New Rising (2016) [MP3|320 Kbps] <Melodic Heavy Metal, Hard
 ```bash
 magnet:?xt=urn:btih:C975F4CBB32EC9BE4CADEC0D775A55A0449ED064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Papadosio - Pattern Integrities (2016) EP [MP3|320 Kbps] <Experimental Electroni
 ```bash
 magnet:?xt=urn:btih:261A065F4893A1F34A7D175B6307BEAD19A5319D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jethro Tull - Original Masters (1985) remaster, 1998 DCC Compact Classics [WavPa
 ```bash
 magnet:?xt=urn:btih:35FC37AEE8CE7C6BD846EEED6534437C479B6FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

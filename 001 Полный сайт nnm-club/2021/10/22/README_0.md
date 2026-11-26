@@ -21,8 +21,7 @@ VA - Urban Orange Music 4: Downtempo Experience (2021) [AAC|~325 Kbps] <Lounge, 
 ```bash
 magnet:?xt=urn:btih:E9B348E54C62066D555176315A484753C138C507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36B2635EB0E695E224E58B8075AFA461F297BA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Urban Orange Music 3: Downtempo Experience (2021) [AAC|~324 Kbps] <Lounge, 
 ```bash
 magnet:?xt=urn:btih:BD02DF48C9BCB60A765EB9919E4DC8AA39C3E2DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Urban Orange Music 5: Downtempo Experience (2021) [AAC|~319 Kbps] <Lounge, 
 ```bash
 magnet:?xt=urn:btih:1B012B31F682BB76B82B281F5837941AFB9E0D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC8F275D0C0CDFB8A442B16FBFF9EF8A58D1F1CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ ON1 NoNoise AI 2022 v16.0.1.11291 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C2972E06E3E2E6A435DF804B8AC573972026B8D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Urban Orange Music 7: Downtempo Experience (2021) [AAC|~329 Kbps] <Lounge, 
 ```bash
 magnet:?xt=urn:btih:6FCBFBAF5A090F0CE3A70AEFD1522B4CEE6C6B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Stratavarious - Stratavarious (2021) [AAC|~350 Kbps] <Funk / Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:40018A3963C3EA1CD5DD0DD0282D466AD75072DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Kammerflimmer Kollektief - Wildling (2010) [FLAC|Lossless|tracks + .cue] <Dark J
 ```bash
 magnet:?xt=urn:btih:F8225E2888C3A17263DFB2F3CC75A5AF0A2533E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - In Love with Lounge, Vol. 2 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:0C4107F1FD6C045FA6113624C8E83AC196FCF626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ ON1 Effects 2022 v16.0.1.11291 [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:D8DB5FFCA89086ED7FE736D552179895E1AF5048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Koan - Argonautica (White Orb Edition) (2021) [AAC|~345 Kbps] <Ambient, Chillout
 ```bash
 magnet:?xt=urn:btih:87BC5EEB2BD4ED6663BCF153E935AA5552016645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Hate - Rugia (2021) [FLAC|Lossless|image + .cue] <Blackened Death Metal>
 ```bash
 magnet:?xt=urn:btih:AA12328BA030DB94CB92C95B23FD6F4739F6F25E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ VNC Connect - это последняя версия нашего кросспл
 ```bash
 magnet:?xt=urn:btih:2EFD5A528FFEDEFF74AB2B21C1E2BB504B422DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D2901A91414DABEF2633AF5926646548338D5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Dream Theater - A View From the Top of the World (2021) [AAC|~352 Kbps] <Progres
 ```bash
 magnet:?xt=urn:btih:D687E8F0C497A7F17007B6983192709D9FF67F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51592CD38F948ABDD5C59D5EBA23DDE88D29D5E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFDEF670C69082767894462204E2BC3BEE75BC04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Dream Theater - A View From the Top of the World (2021) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:194C6547BE70A338B2137A05E247015A0B352E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67E2EB5E3A3792A5C98BDB3419720983F239A0A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:0F05AA176B3F34AFB63DAC4676783A3FB3D552EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ Araxis Merge – это обязательное приложение для р�
 ```bash
 magnet:?xt=urn:btih:BA2FE61AB0D4643F04CBBAB6A65BBAAB428F2124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48869A0523A2B5B1E6128006E80369590F09BB26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ Rob Papen - DelSane 1.0.1a VST, VST3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:E32502EE77A91FDD2844EF69C6E218670923A275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ Cradle Of Filth - Existence Is Futile (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 ```bash
 magnet:?xt=urn:btih:D056332A2A1B155CF87C68C4F19A8514040FAA25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ Irari (Irina Mikhailova, Ira Stein) - Esquisses (2004) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:F805F232CA01F18D608B5CE95214991780477FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

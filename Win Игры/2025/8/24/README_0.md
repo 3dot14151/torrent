@@ -19,8 +19,7 @@ Coral Island – классический симулятор фермы, пер�
 ```bash
 magnet:?xt=urn:btih:755974C6A3AB9A50683C590B5C7033DF7D94F185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Primordia (2012) [Multi] (5.3) License GOG
 ```bash
 magnet:?xt=urn:btih:0CE3881A60A4DC5512B6417547BC64D304B601F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EC851C5535FD79B44D37F58E84C7ECA498A80A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2143F6C6E9F2C0BEA06A44081BBE2C64A345CF84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Firehawk - это тактический симулятор FPV-дронов. П
 ```bash
 magnet:?xt=urn:btih:990A7E8EAA3625592D3AEC55FE53906051ABC8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4543/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:5A76683C8637EBFC59B279F7F4301AC49A2E8E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.31/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:467497FF0FEA01F7931A8B97B884DD1D4A091E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tale of Immortal, песочница с открытым миром, глубо�
 ```bash
 magnet:?xt=urn:btih:30A9EA5F6BD3501727954666B324AD442DD3AB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7ED13E7E211BA9902B24B2114F9BE296C913819E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Touhou Danmaku Kagura Phantasia Lost - это ритм-игра, построе�
 ```bash
 magnet:?xt=urn:btih:3FBD1B240BC683C310E2AD9115579780CEA9B050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4AE8506652DC97424FA830FED8F9D18DEE7DD33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Lost Twins 2 - это невероятно милое головоломное �
 ```bash
 magnet:?xt=urn:btih:2401E1A4AC7EB238FD50F2599131A0CAEE4310AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ To the Eden начинается с падения таинственных об
 ```bash
 magnet:?xt=urn:btih:EA583DB2DA49C810967D2CAA148E143D37F0CB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Poly Bridge 3 - игра-головоломка, которая заключае
 ```bash
 magnet:?xt=urn:btih:5C689068BAEC697A1E19D09F38A9A6C54FA0EEDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Last Epoch – приключенческая экшен-игра с глубо�
 ```bash
 magnet:?xt=urn:btih:7759643EF97E6D82AB612BD6A7F2A6536C678E9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack Wanter
 ```bash
 magnet:?xt=urn:btih:938C4DEDF74A68CAAF1DA39D4AEC1EAC2D14D81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Ghostrunner - эта жестокая игра-слэшер от первого 
 ```bash
 magnet:?xt=urn:btih:75D5E164D081261617B823F5C6B69E79E0C58826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1A159C1E5F6F662D16FD6278C0EE019357F4E8CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7A10F6BFED2ED166A9C997EB3B4B727C522DBDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Detective Club 2: Gallery of Shadows (2025) [Multi] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:716D3637A7F5972E6C5D40C866E55EE601AE920B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

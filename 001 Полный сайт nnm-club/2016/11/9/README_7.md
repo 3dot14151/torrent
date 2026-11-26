@@ -18,8 +18,7 @@ ABBYY Lingvo Dictionaries 4.6.6 [Ru/Multi] - Оффлайн словарь
 ```bash
 magnet:?xt=urn:btih:05B1BDEB0F6861A550A7312CD7E64348A9BBB831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Hanamonogatari / История цветов [2014, Special, 5 из 5] BDRip 108
 ```bash
 magnet:?xt=urn:btih:1D2083FB1C11E2FF9FEDB2E942965A56B9938B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Planet Explorers (2016) [En/Ch] (1.0) License CODEX
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Adobe Illustrator CC 2017 21.0.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:812C169CF2BFB5075290413A58B1E663EF0CEA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Microsoft Windows AIO Hi Quality StartSoft 32-2016 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:57CBF333A3DF7075C0C9FFAFE39CDD2DC6F54347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Power Clean является маленьким, быстрым устройст
 ```bash
 magnet:?xt=urn:btih:AECB1261A99BC4D19B45CB0DED7985483346653A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Adobe Illustrator CC 2017 – это принятое в качестве отр
 ```bash
 magnet:?xt=urn:btih:38D13CA221F3A20D7967787FAA05B27513EF06D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Adobe Photoshop - это комплексное решение для профе
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Metro: Last Light Redux (2014) [Ru/Multi] (1.0.0.3) License GOG
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Adobe Premiere Pro CC 2017 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:D045F207EAD21DD2A4D0971D5550AFFD41CF05A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Bethesda Game Studios, создатель популярнейших игр Fall
 ```bash
 magnet:?xt=urn:btih:01092D0EFF705C4EA49F9215B400BDCEBA3B0AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Metro 2033 Redux – самая полная и лучшая версия кул
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

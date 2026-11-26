@@ -21,8 +21,7 @@ Jondo Live-DVD предлагает безопасные, предварител
 ```bash
 magnet:?xt=urn:btih:966064B91A4F6C5236657DD273A7056ECF2AA033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ CentOS 7.2-1511 [i386] 4xDVD + 2xCD
 ```bash
 magnet:?xt=urn:btih:C3DD2A89FD91DD5A711A802ACC5C9BC88D89D396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

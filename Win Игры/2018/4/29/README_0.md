@@ -19,8 +19,7 @@ Radical Dungeon Sweeper (2018) [Multi] (1.06) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A178511CA7EBB7A0AA52EAD671C0177F2480E354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Basingstoke представляет собой суровый рогалик с
 ```bash
 magnet:?xt=urn:btih:482051F86FEA1E610D2A78526085F42697075A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Monster Prom (2018) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:013DD021E37CD194952FE520E2560628A090EC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

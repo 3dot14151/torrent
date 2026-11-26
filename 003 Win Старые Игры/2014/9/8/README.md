@@ -22,8 +22,7 @@ Infernal / Дьявольщина (2007) [Ru/En] (1.0) Repack CUTA
 ```bash
 magnet:?xt=urn:btih:0977A79C9D81A276C178907371BCADA024BB3A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

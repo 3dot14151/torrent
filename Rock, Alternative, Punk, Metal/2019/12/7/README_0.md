@@ -22,8 +22,7 @@ Michael Damian - Love Is A Mystery (1989) [FLAC|Lossless|image + .cue] <Pop Rock
 ```bash
 magnet:?xt=urn:btih:A6C3EB8CEAB617928E391B04E4FCA80C2A94114E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Waterloo - First Battle (1970) Reissue, 1999, Musea ‎[FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:0ABAD60C55C5F4291ED4E5F7449321ED84A3B1D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fantasy - одна из самых недооценённых прогресси
 ```bash
 magnet:?xt=urn:btih:AB792CA177ABF3DD308856CB3BCDDCF7249CEDA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ L.A. Guns - Another Xmas in Hell (2019) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 ```bash
 magnet:?xt=urn:btih:E13860FA39D28D61FCB3793B632EF034F3B36299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

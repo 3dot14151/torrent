@@ -21,8 +21,7 @@ Exiland Assistant 4.6  Free portable [Ru]
 ```bash
 magnet:?xt=urn:btih:CE3D17DA2E54C850037A6C6B983DDF7E1F361706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

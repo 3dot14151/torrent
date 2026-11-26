@@ -19,8 +19,7 @@ Arduino Remote v1.0.2 Mod by Johann Shilinski [En] (авторская разд�
 ```bash
 magnet:?xt=urn:btih:466B062E70DF3B264C02CBA5AF124E2785195631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

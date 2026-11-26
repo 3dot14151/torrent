@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:29D1AA52CEC8AA39CB7E8D0E0028FF998B4FDFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Самые Сливки Жаркого Лета на Русском Рад�
 ```bash
 magnet:?xt=urn:btih:EA8E0F6A770F3C6E4F056A75E05236F79254449A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - PAN AM Flights Vol.1 (2013) [MP3|320 кб/с]<Indie Dance, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:AA237BFFEFC8176DA659DC015DAF676C70FE91B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ The Byrds - The very best of the Byrds (2006) [APE|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:7DA83E2CD2409D29ECC95B0DF5DB1F6A37C62E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ VA - За Окнами Август… (2013) [MP3|160-256 кб/с]<Pop, Шан�
 ```bash
 magnet:?xt=urn:btih:078B3710C0A1D9A89E09DB7B4F84ABDB88003FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ VA - Chill Out Ibiza: Beach House Chillhouse Vol 2 (2013) [MP3|320 кб/с]<Hous
 ```bash
 magnet:?xt=urn:btih:4F34149242AA352A3359925504422CD1000A438D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Zach Day & Full Throttle - Deeper Shade of Blue (2013) [FLAC|Lossless]<Blues-Roc
 ```bash
 magnet:?xt=urn:btih:EE88403FA5301811BEFCBF863025789D840F1AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Grateful Dead - The Very Best Of (2003) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:6FB763D153A1833B29466250C39E1819330A2174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +285,7 @@ Thomas David Gibson - Nine Pound Hammer (2013) [FLAC|Lossless]<Blues-Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:25619703D053F10826BDA2747738975928A4A3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +319,7 @@ goJA moon ROCKAH - Disco Dracula (The Remixes) (2013) [MP3|214 - 270 кб/с]<El
 ```bash
 magnet:?xt=urn:btih:71AFD62D65EF00751F4BC2C3A775E06142241A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +353,7 @@ VA - For Love of Erin. Songs  Of my Irish Homeland (1999) [MP3|320 кб/с]<Folk
 ```bash
 magnet:?xt=urn:btih:76F595DF79B29C3E417FE1909E0E0A72DD5BF776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACBC3FD801EC2EF6972A1715FF92E82647A271CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8B498DAA250001272FE3DD68FC779978D29A3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60B4C9A35AD23C2D9E026A50D74C4875B496D8A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01A63239ABEBA7A39DC69AD0D88ED25FE3E17B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:048E874C09FEEB18BCBD8DD67CDC61FB52DF1275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +516,7 @@ BCee – Lost & Found (2013) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:77C65722A73CA8BDA1DC776E0BCB2FE862A9700C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +550,7 @@ Fred Chapellier & Friends - A Tribute To Roy Buchanan (2007) [FLAC|Lossless]<Blu
 ```bash
 magnet:?xt=urn:btih:F72C644E3DAF42E737A7BF592730EDE0B82CE214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +575,7 @@ History Channel: Древние пришельцы (Сезон 5, серия 2) 
 ```bash
 magnet:?xt=urn:btih:238337C7D20576C164710CB7697B9E6BD1C08A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B299D858C94C46C9198875A0569719C54332CF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ VA - Tweakers (Compiled by Dj Paul Taylor) (2003) [FLAC|Lossless]<Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:02A93A2E4DE539B895AA155682B6302419E12E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:835EF2F1BC8EBA5972615F59295DB3CD3D536BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +697,7 @@ The Western Sizzlers - For Ol' Times Sake (2012) [MP3|320 кб/с]<Alt Country, 
 ```bash
 magnet:?xt=urn:btih:6D67A8AD2117E88CA486E8FA4EA421CF034F64B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8FE6CCBEC6F47CE7E9F0E43C1A13C379CE3D468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DAE7D7859DEC222D179301C6F9529B78EC87A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -799,8 +774,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCF53F9D8F43A1C41BB8FFE6403C61F3AAB578F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

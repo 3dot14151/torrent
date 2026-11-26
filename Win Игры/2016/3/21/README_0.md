@@ -19,8 +19,7 @@ Candlelight (2016) [En] (1.0) Rip R I T U E L
 ```bash
 magnet:?xt=urn:btih:0707C24B7D896DDEF2A24964124983CA211EBFC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Don't Starve (2013) [Ru/En] (1.168028/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:6B6CCF69AA1FBFB6E29C2FB42658BF2FB6321FAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DogFighter - аркадный симулятор от Dark Water Studios. Игр
 ```bash
 magnet:?xt=urn:btih:BE5900E1A0FD10EDE3DF497C58D46697DE9BD1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DreadOut - на удивление весьма страшная хоррор-а
 ```bash
 magnet:?xt=urn:btih:C3E8C1C24539FB26BDAEB62839FC4E81C72F3516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Age Of Gladiators - игру можно охарактеризовать как 
 ```bash
 magnet:?xt=urn:btih:B01FD9FDA0D83B74DEDB08DAC0F55CD4AAFAE485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

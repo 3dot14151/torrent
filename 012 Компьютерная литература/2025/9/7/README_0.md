@@ -22,8 +22,7 @@ Web-программирование:
 ```bash
 magnet:?xt=urn:btih:301FD2945568611049389FB48ED09296223E6584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

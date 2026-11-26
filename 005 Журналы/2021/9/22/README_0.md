@@ -19,8 +19,7 @@ Grazia — итальянское женское издание, выпуска�
 ```bash
 magnet:?xt=urn:btih:05D81B353A99E826B55B5180630A663D1F78F173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grazia — итальянское женское издание, выпуска�
 ```bash
 magnet:?xt=urn:btih:088E27C25B89E88270B470F4FC36B9243716C9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grazia — итальянское женское издание, выпуска�
 ```bash
 magnet:?xt=urn:btih:A53EE792D292640E14A0264FE0758D987D08F088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grazia - это двухнедельный журнал, в котором ра�
 ```bash
 magnet:?xt=urn:btih:C3522DB974366A15557409D0215614A140112A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grazia - это первый женский кроссовер с глянцев
 ```bash
 magnet:?xt=urn:btih:0A8E33A4330544A1A5704D6BD046D4E72479AD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Men’s Health – главный мужской журнал во всем ми
 ```bash
 magnet:?xt=urn:btih:82AA4BCC3FD6BE007CC1997EE29D0BE09673B792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

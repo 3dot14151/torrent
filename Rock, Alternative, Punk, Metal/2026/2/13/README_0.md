@@ -22,8 +22,7 @@ Worm - Necropalace (2026) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Doom Me
 ```bash
 magnet:?xt=urn:btih:47323B7F25016544E0154F9F6AF9B9D3F70E5DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Slaughterday - Dread Emperor (2026) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:F9B10DB21296F23335BD2F1E63EFBB3A6DD20534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Powerwolf - Wildlive (2026) Live at Olympiahalle [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:FAC22A187E654689C4CACFB88757A03769EF2D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

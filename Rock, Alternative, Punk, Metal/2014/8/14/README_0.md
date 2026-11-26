@@ -22,8 +22,7 @@ Failgiver - Failgiver (2014) [MP3|320 кб/с]<Punk, Chaotic Hardcore, Crust>
 ```bash
 magnet:?xt=urn:btih:972229FD2F7C9F9035DBDDAC569EFEBE43C02B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Reverend - 5 Альбомов. Дискография (1989 -2001) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:9DA0C89B49B89B687608B850B018658387A0A991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Punch - 4 альбома (2008-2014) [MP3|320 кб/с]<Hardcore Punk,  Powerviol
 ```bash
 magnet:?xt=urn:btih:A04C80A6E16ADBA69981F8FFCC0DE19A3B4A9146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Odraza - Esperalem Tkane (2014) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:602D690E2124878AB5D1AA840CD1BF1E9A3346FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ SunStrike - Rock Your World (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E0859AD4F7A1E372B3B19E851DEABB30A59EE16C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB069D3BBA867385FAACB3AEC8C654E5088275A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Freddie Red - On Fire (2014) [WavPack|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:843F1C2F87EE5BCDB99B4D671249C2C8E7E57463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Ninth Circle - Legions Of The Brave (2014) [MP3|320 кб/с]<Melodic Heavy Metal
 ```bash
 magnet:?xt=urn:btih:E11D2EC8ADA27514CB4BA87E250A896B2B266462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Checkit — это то же самое, что и проверка работо
 ```bash
 magnet:?xt=urn:btih:B1A5197D0AEC6D0962DF93D050E2EB0C87183559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

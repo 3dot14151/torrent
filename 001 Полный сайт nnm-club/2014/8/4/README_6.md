@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:57295C13EA38B88BCCBF8FA77F666D3A325414A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Roy Rogers - Slide of Hand (1993) [MP3|320 кб/с]<Blues, Blues-rock>
 ```bash
 magnet:?xt=urn:btih:A375A33CED79194BC182B97945D3FA54A396227B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Slander - Demo Tape (2014) [MP3|256 кб/с]<Hardcore Punk, Powerviolence, Black
 ```bash
 magnet:?xt=urn:btih:C63251C6F85A9F9B1169A336198C92F9BB78E4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ I Hate Joanna Lumley - Pet Hates (2014) [MP3|320 кб/с]<Hardcore Punk, Powervi
 ```bash
 magnet:?xt=urn:btih:8BC403C86EFF98D90E3610E5BB4BE7ABAFECE2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8303F89F41775B9E0BCB8B0CD6724FE1F35BD952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ VA - Chillout Summer Vol 2 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:DB0943D7D79648FFF2CC18248321AEE560C058BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A64154726A8A7004CD3C46C6DEE534CCDB06D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ VA - Paul van Dyk VONYC Sessions Selection 2014-07 (2014) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:E2D0850BAD324FE00418C62336FF5A7FC320DE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7EEF7A69D35DCF033D1A19B6583869AA52A888E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:876BB3BBE26BFF354563AF0C5590811A3169EA2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F557A7CA808F34BD37F283BF594D5F6615AA06B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FB838E3B9666B1F38AD1D3870D193C1B84DFE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5846CAB007872559FAB4D17A4C7A9556A4E386A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ VA - Summer 2014 - Electronic & Ambient Sampler (2014) [FLAC|Lossless|WEB-DL]<Am
 ```bash
 magnet:?xt=urn:btih:E62F89FACC761A4185AC872401AC6ECB89F844AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ Count Basie and his orchestra - Fancy Pants (2000) [FLAC|Lossless]<Jazz, Swing, 
 ```bash
 magnet:?xt=urn:btih:DBD8454BD43C0E4D773C3CB0E70A16A49B302F8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +481,7 @@ Gaetano Vivo & Anna Paturzo - Chakra Vivo Healing Sound (2012) [MP3|224 кб/с]
 ```bash
 magnet:?xt=urn:btih:DA6C2B2A44B886C63F47E8CC40DA781AC1480227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ Richie Hawtin vs Luciano - Live @ Enter.Main Week 03 (2014) (Space, Ibiza) [MP3|
 ```bash
 magnet:?xt=urn:btih:58E755CB4E6A63967D6687370F2123E01EC25195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ VA - Deep House Deluxe Vol 2 - Ibiza Edition (2014) [MP3|320 кб/с]<Deep House
 ```bash
 magnet:?xt=urn:btih:06566EEB446620F6B907BF7A899EC81106C1F6E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32524BD11F2EA85EFE3C205AE02F8BB403F21442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3973922C8259A4EB78173CDE6BD6688EC5F5AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:878BEF3A857135E6FD20564D972AEE48FEA5F78F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D547382CCA930CA80A64A01229BABF45A267D57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ Monday Suicide, Landverraad - Split (2014) [MP3|320 кб/с]<Punk Rock, Fastcore
 ```bash
 magnet:?xt=urn:btih:2811FE0087AE9EF2853B0310D1E067F30150B515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +719,7 @@ VA - Ibiza Summer 2014 Anthems: Deep House (2014) [MP3|320 кб/с]<Deep House, 
 ```bash
 magnet:?xt=urn:btih:66F8BB4FF94CB3CFA2990B6BDE03509F6734E39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE3D0F6D08E214CCB117ABCC1BD761DEF96F13BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

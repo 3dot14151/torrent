@@ -22,8 +22,7 @@ Skillet — американская рок-группа из города Ме�
 ```bash
 magnet:?xt=urn:btih:832CDCC3BFB9C4CA029441C03B5495DA3DE7F480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

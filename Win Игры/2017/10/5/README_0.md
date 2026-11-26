@@ -19,8 +19,7 @@ Viktor — насыщенное событиями приключение с г�
 ```bash
 magnet:?xt=urn:btih:16C20D48FFCC7030AB70ACF14FF92C68305BA5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Battle Chasers: Nightwar — это ролевая игра в духе лучш
 ```bash
 magnet:?xt=urn:btih:E81A10DC1BB6C36A891CBC33BC96B1AC7EB1ABCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Omega Strike (2017) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CB0A6F891638BF32C17CA89DD738512910390E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

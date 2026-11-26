@@ -24,8 +24,7 @@ Jackal - Cry Of The Jackal (1989) [FLAC|Lossless]<Heavy Metal / Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Manzano - Red Hot (1989) [APE|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Les Cowboys Fringants - Que Du Vent (2011) [MP3|320 кб/с]<Folk Rock, Alternat
 ```bash
 magnet:?xt=urn:btih:46A4EDBE62C00E75E2129A2C62AB4F2280A58200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Red Line Chemistry - Dying for a Living (2010) [FLAC|Lossless]<Hard rock, Post-g
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ August Burns Red - Rescue & Restore (2013) [MP3|320 кб/с]<Christian Metalcore
 ```bash
 magnet:?xt=urn:btih:8A48E01C73D6BEEA73F7ABD465332A144E3A75DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Vidunder - Vidunder (2013) [FLAC|Lossless]<Hard Rock, Stoner Rock, Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A51F7895EFC837FFD90EFEA04569B05B0A8C1878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Civil War - The Killer Angels (2013) Limited Edition [FLAC|Lossless]<Heavy/Power
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ VA - A Tribute to Мастер. XXV (2013) [MP3|320 кб/с]<Heavy / Thrash Meta
 ```bash
 magnet:?xt=urn:btih:3FDF603AB711421D7773D567D5866CCDFE545C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ Cello Fury - Symphony of Shadows (2013) [FLAC|Lossless]<Classical Music, Cello R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ Rush - 17 Singles (1973-2012) [MP3|320 кб/с]<Hard rock, Progressive rock, Hea
 ```bash
 magnet:?xt=urn:btih:5F19AFA917B08A35DACE792A545671E45BF65E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +424,7 @@ VA - The Greatest Rock Ballads (2007) (2CD) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +458,7 @@ Skillet - Rise (2013) [FLAC|Lossless]<Alternative Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

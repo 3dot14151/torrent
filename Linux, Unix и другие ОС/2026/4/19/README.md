@@ -20,8 +20,7 @@ Zimbra OSE (Open Source Edition) 10.1.16 [x64, amd64] (tgz)
 ```bash
 magnet:?xt=urn:btih:D741AB3B513E2E17DE703369712E1D7F5312D418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Zorin OS разработана так, чтобы быть простой, по
 ```bash
 magnet:?xt=urn:btih:DE6FB96A179A82E194D7E0D0D4420E49167D82C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Zorin OS разработана так, чтобы быть простой, по
 ```bash
 magnet:?xt=urn:btih:A459854422ED1F103FCBBB7E0CB2814E6495B883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

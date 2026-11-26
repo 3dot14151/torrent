@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5AC1F81788E9C832BB4470EA7FED59A190B84BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gil Edwards - Celebrate (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:565347169D2E1F7ADD787B4FFB2182AD1505F30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Leprous - Malina (2017) [MP3|320 Kbps] <Progressive Metal, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5A755CDDCFA02BA7372A12FF5B94895CEF8B0AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

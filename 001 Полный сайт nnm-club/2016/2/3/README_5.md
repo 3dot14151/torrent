@@ -19,8 +19,7 @@ PRO PDF Reader 4.5.2 [Ru] - Читалка книг и документов фо
 ```bash
 magnet:?xt=urn:btih:B6A601A60478AB2E7B4209BFF293918DB3DBA321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFE458AB5D1CC57B07E6218727CB9C6D4DBB493C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D03895F0425355CD4E4BDB40A135E25E52C68E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:024B944C9AC40B1026275321D3A32BC5D66DC79B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38AA43C3331456DB53A018C578807759DF00C140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Gods Will Be Watching — это минималистический трилле
 ```bash
 magnet:?xt=urn:btih:FF8D930592C73CACED3743820FDD54728934FBD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B25A5B76E4C8B61D9924781F31C1FA1465FF23C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B6C53651574472B91AF1CEC967D14386A7B61EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E09D65847E7D8753952D63A4A74D3634BD1E43A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FFCC2C2EC477AD53B55D6A377CE8DA18ECE9C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ WWE 2K16 (2015) [Xbox360] [RegionFree] 17349 [FreeBoot] [License / 5 DLC / TU 4]
 ```bash
 magnet:?xt=urn:btih:25A5BFC4863A3935F3DE71212CBFC4F8E32F0E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ PhLearn | A Dark Force Photoshop/Тёмная сила Photoshop. Части 1 -
 ```bash
 magnet:?xt=urn:btih:010DD1A7DC74E1A5F0D5FE074F2E1F232B52E66B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Unity зачастую представляют как набор компоне
 ```bash
 magnet:?xt=urn:btih:6C3510DDDBDD8E0DF8A2E2F7850CCC4A0A487630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ D4: Dark Dreams Don't Die (2015) [Ru/En] (02.02.2016/dlc) Repack R.G. Механ
 ```bash
 magnet:?xt=urn:btih:584FC9E9EF48AB86928972B6AB961B664C8BFCA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ NHL 16: Legacy Edition (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Uno
 ```bash
 magnet:?xt=urn:btih:78C4F7CE1515C3DCE62844B9267E415EDA0222F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Hacking School, IT Security Academy | Взлом сайтов на практи�
 ```bash
 magnet:?xt=urn:btih:605F326663956365C2498434300BFE33012BD472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ Yakuza 5 (2015) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 ```bash
 magnet:?xt=urn:btih:1E29957E042530730084A64313EBE679840F430D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CCF5600AE22F775C127A9CCB9BDFDC8BDF6D48A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ Grey Goo (2015) [Ru/Multi] (0.34.593311/dlc) SteamRip Let'sРlay [Definitive Edi
 ```bash
 magnet:?xt=urn:btih:DB1F52BB066160AF2FAE4FD8B0F36B9F40FB33D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E8B98DB6F25CDE470332B3C5EDA5C2506EFCBFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +575,7 @@ S.T.A.L.K.E.R.: Тень Чернобыля - Альтернатива (2016) [R
 ```bash
 magnet:?xt=urn:btih:DA8DE4AD96F53B5CCA998E00F7A2346C7B0F153E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +625,7 @@ Microsoft® Windows® 10 Ent 1511 x86-x64 RU-en-de-uk by OVGorskiy® 02.2016 2DV
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

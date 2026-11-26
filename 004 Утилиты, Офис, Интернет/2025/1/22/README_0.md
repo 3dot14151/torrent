@@ -19,8 +19,7 @@ DVDFab StreamFab — это удобный и мощный инструмент 
 ```bash
 magnet:?xt=urn:btih:CD7A31793DB1864F7678310886581CB057C267C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

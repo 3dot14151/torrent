@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Dwarf Run - старомодный RPG с элементами point-n-click
 ```bash
 magnet:?xt=urn:btih:AB80BBB449C129FFD37A991D8B6E93F324587C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Legends of Dawn Reborn приглашает игроков в жестокий �
 ```bash
 magnet:?xt=urn:btih:66BB9113152084130EA7EC2EF7D0908EEA04D8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A1B649B0B1C7B570D6F5037D4D48DD3FF492240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Root Explorer является непревзойденным диспетчер
 ```bash
 magnet:?xt=urn:btih:12CFFC1651AF6C5F5EBA45AD84C0924DF0F37FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ World of Tanks Blitz / WoT Blitz - масштабные и динамическ�
 ```bash
 magnet:?xt=urn:btih:A49FE16CF2ECC97F2762E98013CFBCB3097CCE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73C971621C7B3538C66D3AF892DF6B179958D698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Alpha Polaris: A Horror Adventure Game (2015) [Ru/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:9C02DDE521B68D18CBDFA27987FABBD196F4AA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Just Dance 2016 – продолжение популярной серии та�
 ```bash
 magnet:?xt=urn:btih:7D7C2EB959A47B53FC9478074D5327661023059B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Durarara!!x2 Ten / Дюрарара!! 2 (сезон второй) [2015, TV, 12 
 ```bash
 magnet:?xt=urn:btih:F4256A4563EAAF5A30BAB86BA71BF792345E9FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Asphalt 8: Airborne - Новая часть одной из лучшей сер�
 ```bash
 magnet:?xt=urn:btih:AECAB2756198D87CF81170CE5BB58CCB6C16A715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Microsoft Office 2013-2016 C2R Install 4.8 by Ratiborus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A3A2970F2AC2076DB4D5F1BD16FF7CEE2157CE55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Native Instruments - Traktor Scratch Pro 2.10.0.13 [Multi]
 ```bash
 magnet:?xt=urn:btih:00E9BCFEED1D7363F8B7AFE310FC4EE30700C0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DA470A2BA009662869FAE3BDA754E1A1F45A2E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5E10EE3E6E9936CDF5BBC9DF05F27301E2AF005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ EasyBCD - менеджер загрузки операционных систе�
 ```bash
 magnet:?xt=urn:btih:3B8486EF019FC50AD4434E0880CF0FDFE05CF507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ Torque Pro (OBD2 / Сar ) 1.8.62 - программа для диагности�
 ```bash
 magnet:?xt=urn:btih:D1DAE75FB6603A5D966B27B8220A37C4118241D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ Microsoft Office 2016 – лучший пакет прикладных прог�
 ```bash
 magnet:?xt=urn:btih:4C0256EC279B747509809748600A9CB77605E973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

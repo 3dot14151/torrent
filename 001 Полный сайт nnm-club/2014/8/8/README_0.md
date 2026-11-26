@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3282C5B5EBABEBF771F35B174D6790AD9823BFA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Chase Dobson (c.db.sn) - Parallel Lines (2014) [FLAC|Lossless|WEB-DL]<IDM, Downt
 ```bash
 magnet:?xt=urn:btih:6DC7E0F51C5EB33855F7F6592E085D0AB0176D1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25B96F98BECD8D6A9EF7D2008F82157F04223B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53030013D76E6AC94A2B20F42FA3FCBAAE651F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:B4B49A6AFFFED6E037622E7704B85FC1ADC5F483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Wildways (ex-Sarah Where Is My Tea) - What You Feel (2014) Single [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:F825E7BCFE2969B4AC3F05F785DCBC1BC9977977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Craig Armstrong - Невероятный Халк / The Incredible Hulk (Origina
 ```bash
 magnet:?xt=urn:btih:68E6E060D00739D544FA87662ECA9299A1A41090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ AdwCleaner - небольшая полезная утилита, которая 
 ```bash
 magnet:?xt=urn:btih:0BAA029BB39DF2F30A98765060DE0424F7D2F59C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Chillout: 200 Chillout Songs (2014) [MP3|320 кб/с]<Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:74263E7A850C5977F29709A16CA41BCA8D0AB643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B822FD01C77D14543DE30838C743A14AFC8E4BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Icecream Ebook Reader - бесплатная читалка книг в FB2, MOB
 ```bash
 magnet:?xt=urn:btih:D5F6189DDC1C3AD9E6367125FC92EFFDED198E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E46EC7334E8B4D0F2F36B92F97F5BDE428418936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F0B66AA55C2714BA4BFC40D9E8558AAEACDA623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE1723D9A43070DC7C096BFFAE3BE18D0AEB281F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Comedy Баттл. Суперсезон. Лучшее. Выпуск №3  / Ко
 ```bash
 magnet:?xt=urn:btih:082AF6AD6786ACAF03B455A54FB0D3845E1A59CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7C96DF93B73FE83A849AB02678B429329A2E9FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Latin Lover - Casanova Action (2007) [MP3|320 кб/с]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:6D8456999CDC4B9679CD2BA9E921B5467B059BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Latin Lover - Casanova Action (2007) [APE|Lossless]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:254CEA384DF5E692E04D8F9EB1FE4C4B1CA738B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EB7386E94A06B32C3B2325471EA01B6287A1053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13EF55941BAF8E9153F53EACEA4AC714097EDD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ PopClip предлагает достаточно удобный способ р
 ```bash
 magnet:?xt=urn:btih:733C7ADC634A22ECF9199C54B3FFB1A976BD3C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ A4. Bad Man (3:49)(   Читать дальше...   )Жанр: Hard RockПро�
 ```bash
 magnet:?xt=urn:btih:6E6FF790FCF6CEBDA6E39A41B6A06423E9C699A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ Legowelt - 12 Albums (2008 - 2014) [FLAC|Lossless] <Techno, Electro, Ambient, Ac
 ```bash
 magnet:?xt=urn:btih:4AA2940A81A292D94C339321FC78016422B23571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9854F42673CF9DB75B32BBFB17BC6FB1F28A5120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ Kryptic Minds & Leon Switch - Black Out Vol. 1&2 (2005) [FLAC|Lossless|WEB-DL]<D
 ```bash
 magnet:?xt=urn:btih:CD77E126A308D59E001733E845D4971807DEF2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +728,7 @@ Radiorama - Swedish Remixes (2006) [APE|Lossless]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:7AA396AB97E4D16733BD3BCAFF89C9A6BD5DB207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

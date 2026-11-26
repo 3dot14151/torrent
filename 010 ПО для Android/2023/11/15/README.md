@@ -19,8 +19,7 @@ Ventusky: Прогноз погоды v29.0 Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:55B7E4BE2479B41CCC9AA4DC251387EDF2B758EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reface v3.54.0 Mod by Mixroot [Multi]
 ```bash
 magnet:?xt=urn:btih:F5021DAC836005FD56D07B9E84F03B9D80D8848E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ STEEZY - танцевальная студия №1 на вашем устрой
 ```bash
 magnet:?xt=urn:btih:025DBE329C060FA68116C71CBB7108B994C8B803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

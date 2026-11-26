@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2D968913CF3C90E7E2C3C5F1C0A9FA38D323F5D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Nuclear Warhead Cooked in Wine | Рай Монстров (2020) [MP3]
 ```bash
 magnet:?xt=urn:btih:FC3E32474D088A7838242E5F793C0FCCDAA69296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ FreeVimager 9.9.8 + Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:E7AE22A0D9AFAD9D6830AAFB942DE9E86298A6EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B506A54CF81E0FDA094C6E8974EFA9675897B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ VA - 2020 Grammy Nominees (2020) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
 ```bash
 magnet:?xt=urn:btih:B660C11AAC89CEAE5A7CE00EA394A8964BB27C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:FEEA7A49F1BB44C4FFDF811EB5F93181D58D1DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 https://onlinelibrary.wiley.com/action/doSearch?AllField=molecular+magnets
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Styders - Stylization Borders - живые обои на Android. С помощ�
 ```bash
 magnet:?xt=urn:btih:3A0E453F3C17B8CC851C3F9919B7F3A9EE942CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Ubuntu*Pack GNOME Flashback 18.04 (февраль 2020) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:94AEC876A3956607A6A14C7F0BC2BEB1D82D370B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Backup Apk - Extract Apk v1.2.9 [En]
 ```bash
 magnet:?xt=urn:btih:97C7BDA3E19EC363611A14B656680AF51DED7803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ DARQ – игра про мальчика по имени Ллойд, котор
 ```bash
 magnet:?xt=urn:btih:47A386A48C85ABAE4BEB284A00B4F0B2DA33BF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Gilla - 4 Albums (1975 - 1980) [FLAC|Lossless|tracks + .cue]<Disco>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:1DA1867552746930D164E8AA1708413935C396E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:345B5E09FDB7AAD7DF9C675F81324E1C0DA29F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Ubuntu*Pack GNOME Classic 18.04 (февраль 2020) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:5164EEFA091CD33541C6C9245DAFC7EF174453EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79B938179BE26162068B46DB981513A850947962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Ubuntu*Pack GNOME 18.04 (февраль 2020) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:099CECC826C0E500ECB23907307270C1DE3BBE56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:25B43DBBF95CBDDDC5BECFA9ACF1EE0F29CE1E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9808DF3F02475CA6E66089866D05BF8884CD2317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks / Сказки лагун�
 ```bash
 magnet:?xt=urn:btih:02476EE321D3525150F5A040CEEA8AFB5E9E2F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ Ubuntu*Pack Budgie 18.04 (февраль 2020) [amd64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:06C42BC76E16F040149DA5E59E851A528AC1FE35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ Equalizer Music Player Pro - На вашем устройстве недоста
 ```bash
 magnet:?xt=urn:btih:C574146025D065AD7AB925E8EEA129B35D7D6A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03DD18C3A4CCEF675B252D35E687551D5FAACB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ AiScan: All QR Code Scanner & Barcode Reader v1.0.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:40BA2876842FA59DC7C514DDF3B6B561EC2357AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:F8FA794707941C30443D88B4E61B708E8ACC781C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ Organic juice maker - генератор сцен, который поможет
 ```bash
 magnet:?xt=urn:btih:7EDC93395BEADCFAA3E9DB89FFFC24E3B06A15ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Enlightenus - творческая, интересная игра, котора�
 ```bash
 magnet:?xt=urn:btih:BC0CD90854B456AA1A7DC340175D553F59E9548C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Carnival Mania / Луна-Парк (L) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:A87C8A3C28B37D5602279E0CBF7BFDC0731594EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Mortimer Beckett And The Secrets Of Spooky Manor / Мортимер Бекетт
 ```bash
 magnet:?xt=urn:btih:BDC29022E06627C3E102D70BD57F2D80F158A6B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Ice Cream Mania / Пляжный сезон (L) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:283E8667DE05A254DEA1D8D22E27F80FB8577F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Allora and The Broken Portal (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:5C6DF6150D1750243F6EAAC47A37CAEB1F0E1E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Bistro Boulevard / Бистро Аллея (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:457DD524A90536A32A74003157ADEDF448134466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABC45982EE04A7624C5CA24EF893BAEEA240D502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Family Farm / Семейная Ферма (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:BFBBB673444FCE0128BA79B5D8B40E4F0D30C4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Shadow Harvest: Phantom Ops
 ```bash
 magnet:?xt=urn:btih:BA4E27B35A3300E842BD57D67CD3A6C4A8BA19B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Replicore / Replicore: Смертельная игра [Ru] (RePack) 2011 | Feni
 ```bash
 magnet:?xt=urn:btih:A3D17981141130354B3CE4A91AFBA93E5CBF1375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:801EE6CB99D7FD5E5DB8C327434C7A5423977B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Madagascar: Escape 2 Africa / Мадагаскар 2 [Ru] (RePack) 2008 | Spiele
 ```bash
 magnet:?xt=urn:btih:2DF563D40D127D95C15DC558FBB2AFD0E2FC2E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, 
 ```bash
 magnet:?xt=urn:btih:987664214E6F11079542D287358ED422A18C20BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Maximum Joy(   Читать дальше...   )Жанр: Electronic, Rock, Po
 ```bash
 magnet:?xt=urn:btih:438AFE97694D907AB666D22E3B16F6A61A682133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bullet For My Valentine — британская металкор-группа. 
 ```bash
 magnet:?xt=urn:btih:466E7FA09FB358B7CB319DDB9C206D2F8F126F5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Andreas Deja | Уроки от "Девятки диснеевских стари
 ```bash
 magnet:?xt=urn:btih:5502CFC1B8F824B2B996E0B187BA4360F0280F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

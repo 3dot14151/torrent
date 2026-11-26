@@ -19,8 +19,7 @@ Real Fishing / Настоящая Рыбалка v0.0.71 Mod by vadj [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5F96AE43C7780FBDC706B9DEC67E196746930482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7C2EB17120015A03DB062B688E77FACA99B1472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

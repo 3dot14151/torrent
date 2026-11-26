@@ -20,8 +20,7 @@ Lindemann - Steh auf (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 ```bash
 magnet:?xt=urn:btih:D12BB7C0521431D942F0689967C4195C594A661D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

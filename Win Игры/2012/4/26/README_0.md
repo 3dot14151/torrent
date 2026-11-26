@@ -19,8 +19,7 @@ Campgrounds (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:2F5D0D9F4AF0A0754E1B3F7FC14AFB18376FE2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Azkend (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:BCCFA4BBF10989DB63B8C3554C25DEE37A0756BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sandman (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B360C1957AB7B8C35E389FCBA53128EF571CF08C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

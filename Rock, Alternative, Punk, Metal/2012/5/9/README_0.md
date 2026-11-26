@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:43CAA518474B113CD78F1AC15E49357973F25B4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB1126D4F36CA373B603FB3258AB4C06C3C6E354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Marilyn Manson - Born Villain (2012) [FLAC|Lossless]<Industrial Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ The Rasmus - The Rasmus (2012) [FLAC|Lossless]<Alternative Rock, Melodic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Paradise Lost — метал группа из Великобритании, о�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Faith No More — американский музыкальный коллект
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Green Grey - 550MF (2000) [FLAC|Lossless]<Funk, Pop, Alternative, Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Die Krupps - 4 Альбома (1992 - 1997) [FLAC|Lossless]<Electronic, Industri
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Suzi Quatro - In the Spotlight (2011) [FLAC|Lossless]<Classic Rock, Pop Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Pathfinder - 1 Album, 2 Demo (2007-2010) [MP3|320 кб/с]<Symphonic Power Metal
 ```bash
 magnet:?xt=urn:btih:D3B87B0B6DB87CDD185BE61D2BAC29EBF45BA6A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ Francis Rossi - 2 albums (1996, 2010) [MP3|320 кб/с]<Rock, Pop-rock, R'n'B>
 ```bash
 magnet:?xt=urn:btih:104B7FA65E25B871710F0056C2123D10CC3E4164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ Stargate - Stargate (2004) [MP3|320 кб/с]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:64B3FD9668B6F200C688C2993FD72AE6619BC62E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +462,7 @@ Atlantyca - To Nowhere And Beyond (2012) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:9ADC8D35B29889211ABE8386AC38081D714DC6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +495,7 @@ Steeltower - Night of the Dog (1984) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:17017715A6DB04E0B3D54CB35AD30B7839AF3A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

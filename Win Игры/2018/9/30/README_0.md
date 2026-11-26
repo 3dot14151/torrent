@@ -19,8 +19,7 @@ Living Legends 7: Fallen Sky / Живые легенды 7: Падшие неб�
 ```bash
 magnet:?xt=urn:btih:35B8A76A8246CEF6DF5921F494327B5F52D298FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HYPERGUN (2018) [Ru/Multi] (1.1.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:D3EC4DDE7D378F2D9DDE0A88F0E0B902CF30D49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jurassic World Evolution (2018) [Ru/En] (1.4.3.37142/dlc) Repack R.G. Механ
 ```bash
 magnet:?xt=urn:btih:A6A18E4AAAB518224EBBD9B9E2F84E478638FEE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

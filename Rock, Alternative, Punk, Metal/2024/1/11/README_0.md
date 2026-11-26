@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:992DEF172F750B0567BA9A9EF72C7A7156459F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Waking The Fallen Disc 1:
 ```bash
 magnet:?xt=urn:btih:A29EA1BB7A82C068795637B557C580DC910F9170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Russell & Guns - Medusa (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:71FD7C4AC2EB4255A15F47C2E5DABF3006268F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Magnum - Here Comes The Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6FB8DC5FD4A68862EDAD7DEC730E63490C0D3324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Exit Eden - Femmes Fatales (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 ```bash
 magnet:?xt=urn:btih:C7B234991445430FF4C6818BF8AF1F8EFAE60B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Regime - Demo 1991 + 3 (2013) Compilation [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:848FC88A18E643D89FF7A8D1457D9CC4ADC28960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sad Whisperings - Sensitive to Autumn (1993) [FLAC|Lossless|image + .cue] <Death
 ```bash
 magnet:?xt=urn:btih:18C8BD1DAA46B79041A180A442077DC9C5561367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sad Whisperings - Return to Autumn (2023) Compilation [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:4B937FCF80252AB3AC5A5CEBC2A827D0F2949B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Primordial Serpent - Ancient Myths and Legends (2021) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:B9384D6D0CE67E1252B0F44E26B271C3EAA3C393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ First Draw - The Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:53C00F820E4B225D5F79B44C2DB2FF3BA152C2A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Grandmaster - Black Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 ```bash
 magnet:?xt=urn:btih:C780D879FAA231BF2F2D8EC57C7A8C7442EC4787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Bonfire - Fistful of Fire (2020) [FLAC|Lossless|image + .cue] <Melodic Heavy Met
 ```bash
 magnet:?xt=urn:btih:BBDA61D7D38D5E608EA618126047EB4D45071CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Kruger - Агония (2024) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:0FDA992BE510D284D70872143C50A6CC7E704B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

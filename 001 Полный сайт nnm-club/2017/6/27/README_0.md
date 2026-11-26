@@ -21,8 +21,7 @@ La Flavour - Mandolay (1980) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electroni
 ```bash
 magnet:?xt=urn:btih:22433EE98857DA830CD04A83859B65240E08D59C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Samuel Kjell Smith - Vision Quest (2011) [MP3|320 Kbps] <Psychedelic, Meditative
 ```bash
 magnet:?xt=urn:btih:97ACF4AA24FBF0C9B7EF0149399531867FE2D9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Just the Best Music Vol.9 Music with Positive Energy to Relax Mind and Body
 ```bash
 magnet:?xt=urn:btih:31DC759B7FEB392414A47F65221F6EAF5EE9D081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Mac App Blocker - с помощью этой программы пользова
 ```bash
 magnet:?xt=urn:btih:B8265B0401AF3DC075E5C27DD6C135AE4B606936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01B72B317E1803E34022FE61F8D5FFFC1C3E9744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Iboga Records - Set: 28 (2017) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:FBA19BF7675D5D134530A2A2060E890D681B81B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Viscosity может подключаться к любому серверу VPN
 ```bash
 magnet:?xt=urn:btih:7D3654E051F52DE349F8A29A5666C8FF7C7C829D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A62FBA2D0B06A650A84C7AD83609E7DB0E10422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - New Horizon: Deep House In The Mix (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Lucho Gatica - Historia de un amor (2013) [FLAC|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:A5638D3AF7201E905E8B432AF498FE13F03AC091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:939EDB0968AC5AE36A20C28118AA7428FA33A436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ save2pc Ultimate - новая версия неплохой программы, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Emiri Miyamoto (宮本笑里) - Amour (2017) [MP3|320 Kbps] <New Age, Instrument
 ```bash
 magnet:?xt=urn:btih:6A289C9E0D2D6BA6101B83B6355A521C579F7A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Paradisio - Greatest Hits (20th Anniversary) (2017) [MP3|320 Kbps] <Eurodance, P
 ```bash
 magnet:?xt=urn:btih:38D2D3AFAA8EF5EF16ED7854095E3E95F492BC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:CC9E7B1249D66D8A8AE26D8176A15B48615AF289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Wynton Marsalis - Black Codes (From The Underground) (1985) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:4C4D4745C98855BD2DAE01802B3F50BB69DB06E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4519FFB680B39E9E13A336E74E7C803D63942737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A4E2A4660B53C454ECA9DD40FF99FCC861604C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ VA - Terraformer (2017) (4CD) [MP3|320 Kbps] <GOA Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ Avast Clear 17.5.3559.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1CCC52E1E45533DAFA42C04614BA99F3664B92A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ Final Cut 6: Fade to Black / Последний дубль 6: Затемнени
 ```bash
 magnet:?xt=urn:btih:3BE684FC9AF860D5AB9DF0633A270EC78A8BAE21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEC95EB046FEE9CC9F18C3FC18FA09230057D992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B61F1282E74572DD75E22127B1F2E806649F192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ Los Pericos - Soundamerica (2016) [MP3|320 Kbps] <Reggae, Ska>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

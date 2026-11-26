@@ -22,8 +22,7 @@ Francis Rossi - The Way We Were Vol. 1 (2025) [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:62531833E27BC548164D06BF37FDA5E101B4DD2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD4 - The Meaning Of Life(   Читать дальше...   )Жанр: Thrash Me
 ```bash
 magnet:?xt=urn:btih:B4DCA57F6CAE20A240B7CE1806D901C7935A581E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bloodtooth - Bloodtooth (2025) [MP3|320 Kbps] <Industrial Black, Death Metal>
 ```bash
 magnet:?xt=urn:btih:95A36FE7FA53A60244C754AFB8DA04E043DAFBD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (1972) Mix, Remaster, 2025, Legacy
 ```bash
 magnet:?xt=urn:btih:195D51B275959DFC58403973BD778DF87EACF2ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (1972) Mix, Remaster, 2025, Legacy
 ```bash
 magnet:?xt=urn:btih:657528A038C31F4C9C843C8A56B5FA7B5613DF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Shadowgrounds – эпическая научно-фантастическая �
 ```bash
 magnet:?xt=urn:btih:041B7AB099518AB6606728F1965B9057F8BAA2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

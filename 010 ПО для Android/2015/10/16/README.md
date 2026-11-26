@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:3D37AB7A6983B5761F2F828AFE26D2AC805033D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DE93D2F96F842171B94EA1CE1B78783EECA9C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VideoReg Pro 6.96 [Ru]
 ```bash
 magnet:?xt=urn:btih:0FC54E3071CB1210FCBCDFFCEC9023E2031DC9D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ RocketDial Dialer&Contacts Pro 3.8.6.1 [Ru] - Звонилка с широким
 ```bash
 magnet:?xt=urn:btih:4D68BBBB3550507B139A33938DE31A473792578F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

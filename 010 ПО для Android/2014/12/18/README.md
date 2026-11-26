@@ -20,8 +20,7 @@ uTorrent Pro 2.25 - Торрент-клиент (18.12.14) <Ru>
 ```bash
 magnet:?xt=urn:btih:63AF828190B3618D1323F693BB5B3DE885546AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

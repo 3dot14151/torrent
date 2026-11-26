@@ -19,8 +19,7 @@ This third edition of the Oxford Russian Dictionary is based on the text of the 
 ```bash
 magnet:?xt=urn:btih:E7547F4AC761087645DD860628859D430332C789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

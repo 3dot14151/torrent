@@ -19,8 +19,7 @@ The Golden Years: Way Out West / Золотоискатели. Путь на Д�
 ```bash
 magnet:?xt=urn:btih:FFE3BB01BAF444CBCB89952562272409F6C6CE50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B40C04B8A67FD97E92D043B9B2C7D0CC80F2E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Past: Realm of Ghosts Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D1879A6AE34459F2AB24B3777BA9D3516882CBA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

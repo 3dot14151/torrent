@@ -22,8 +22,7 @@ Abyssic - A Winter's Tale (2016) Limited Edition [FLAC|Lossless|image + .cue] <S
 ```bash
 magnet:?xt=urn:btih:78582F34610AA779DC4EFF47E8BBB154CD001C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Paragon - Hell Beyond Hell (2016) Digipack Edition [MP3|320 кб/с] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:34D43F3770F61B529BDBA5751147492B76CCBD1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Elvis Presley - Elvis Sings... (2014) Compilation, Live [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:DC26593948B0831DB54521B62EBB6D04DA60D7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Scorpions - Animal Magnetism (1980) 2015, 50th Anniversary Deluxe Edition [FLAC|
 ```bash
 magnet:?xt=urn:btih:D4A688055D4C7B82757043A57D4832F7F2AE0823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:741D4961291260CAF69C420EC748035FE060A784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Panic! At The Disco - Death Of A Bachelor (2016) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:E4C97A7BC174C898F6DCCBB5C156A3BA6AEEE214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:507F705CAC530C50A42CDA37DD04BD9BF36C65F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

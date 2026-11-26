@@ -22,8 +22,7 @@ Greg Lake - Greg Lake (1981) Reissue, 1993, Chrysalis [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:FB01DD488DABF0BAC3878ED982D82873E0162076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Circa Survive - The Amulet (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:0840B6A3F8043972981E6873D71534E97B216AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Zombies - Odessey And Oracle (1968) Reissue, 1987, Rhino Records [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:9EEAFD249A38A7DE9F4FC3B9F784899CA27EC3E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Whitesnake - The Purple Tour: Live (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard-Ro
 ```bash
 magnet:?xt=urn:btih:3CF79A44D75497997330DD3265D4FD28F4DEFADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Whitesnake - The Purple Tour: Live (2018) [MP3|320 Kbps] <Hard-Rock, Classic-Roc
 ```bash
 magnet:?xt=urn:btih:FD9219F153ACEA5024D2F8B78F73E13EBA4800BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

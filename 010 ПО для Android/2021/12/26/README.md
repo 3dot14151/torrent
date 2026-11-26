@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AF5C5F41D128946E9D71A80D043052021AF322A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ English Idioms & Slang Phrases v1.2.6 [Ru]
 ```bash
 magnet:?xt=urn:btih:8279358720B4551D96F924BDC2225317AF0F16D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ TOEFL – достаточно сложный комплексный станд�
 ```bash
 magnet:?xt=urn:btih:7F6738D0CBFF2B2CA9826F677FE8BCAB18723F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BBC4288FA21C789CE4362E524DC06ED7D4AF4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

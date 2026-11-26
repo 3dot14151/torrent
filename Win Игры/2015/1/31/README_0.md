@@ -22,8 +22,7 @@ Blackguards (2014) [Ru/En] (1.5.34047s/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B17C54F155EEFF86E9881720A754F90F028A4439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Tash Sultana - Notion (2016) EP [MP3|320 Kbps] <Psychedelic rock, alternative ro
 ```bash
 magnet:?xt=urn:btih:6835EB6BA9AEC93D8C44A7626BC2FDA1A9A064BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elton John - Rocket Man: Number Ones (2007) [FLAC|Lossless|tracks + .cue] <Rock,
 ```bash
 magnet:?xt=urn:btih:77CA9C001639267BC89F661CDC0187BE26610802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Keane - The Best Of Keane (2013) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:4B0A3988DF8AA832D77EBF2A8A836446E4837207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ INXS, Michael Hutchence - Discography (1980..2005) [MP3|320 kbps]<Pop-Rock & Sof
 ```bash
 magnet:?xt=urn:btih:43D916C1F8BB9402C106C42F0E0EC495E4BAC842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

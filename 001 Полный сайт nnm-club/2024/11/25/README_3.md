@@ -21,8 +21,7 @@ VA - Tantric ASMR Bliss: Sensual Voice of Passion (Seductive Edition) (2024) [FL
 ```bash
 magnet:?xt=urn:btih:A576EED91DF420EA254D7527A8B732DE5057553D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Визбор 85 (К 85-летию Юрия Визбора, Tribute) (2019) 
 ```bash
 magnet:?xt=urn:btih:B41B2EB2D35F6595538219521C8D761C6A195C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4E8FF8EF613C16A4F58F446F071DFAE198F1DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Suicidal Angels - трэш-метал группа из Афин, Греция, 
 ```bash
 magnet:?xt=urn:btih:283F20255D32605832DBE453E4F8E81F712E18DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Relaxing Radiance - Fire Sounds White Noise (2024) [MP3|320 Kbps] <Easy Listenin
 ```bash
 magnet:?xt=urn:btih:B0741406640E264E84019CB0442B954FF8D0BA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Drunken Fist: Totally Accurate Beat 'em up (2019) [En] (1.0) Scene DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:548822985F34D254AFF186820C4DEA311122C10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:978B62E63E5EB49B035517B8EA451851550B3FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

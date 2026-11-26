@@ -19,8 +19,7 @@ MaxTo – полезная утилита для наведения порядк
 ```bash
 magnet:?xt=urn:btih:5AC5A7D98C6DA62F80F2EAE83633DB3009F2443D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

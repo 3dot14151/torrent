@@ -21,8 +21,7 @@ Export Calendars Pro - мощный инструмент для экспорта
 ```bash
 magnet:?xt=urn:btih:C92EAE91E1290A9F3A9A15A9E9DF5F7E8CD46B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Scrutiny проверит ваши изображения, ваши внутре
 ```bash
 magnet:?xt=urn:btih:63BAF0BB2EB5235B78A62102451739233E17B194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:D9491A2488B157936B26C3EBE105C5DDD19AE68E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ RightFont - менеджер шрифтов с красивым интерфей
 ```bash
 magnet:?xt=urn:btih:B0EB5946B0D55A4487891865D8037F0CD31C6BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Chronicle Pro 9.5.3 [En]
 ```bash
 magnet:?xt=urn:btih:E436F7D05C991FEACAD6ABBE16FE99DBD7CCD38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Wimoweh - это приложение в строке меню, которое �
 ```bash
 magnet:?xt=urn:btih:D0D195BA3649B06DB3174EFEAAD4C00F37A8A6AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:0C943FFB8CD96C688BF7F489A842F67DB741C3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Ph
 ```bash
 magnet:?xt=urn:btih:78D0D14438E6DC8823F5063A0C37E9C4B4A1E9D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Exporter for Contacts (ранее был «Export Address Book») - это по�
 ```bash
 magnet:?xt=urn:btih:C2B819B2837F276FA39C164AD2DB466FD4D912B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ iThoughtsX – программа, позволяющая визуализиро
 ```bash
 magnet:?xt=urn:btih:ADAF1F6930A5783C9ADBE7D9CC1D36030F14F225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ SnapNDrag поддерживает PNG, JPEG и TIFF форматы, если н
 ```bash
 magnet:?xt=urn:btih:1650C16809A41CC98E49D2E530C794F3282E765A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ iNotepad специально разработан, чтобы позволит�
 ```bash
 magnet:?xt=urn:btih:BA0DE4A92E8FA5A00454F32452A78FFECE102BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Boy Robot - Rotten Cocktails (2005) City Centre Offices [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:D69DD8BCA0E6D74DDE48F4380E6B856E5B4D85C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Rottenwood 1.2.5 [En]
 ```bash
 magnet:?xt=urn:btih:C4D2BAB56C2CA13C3E9A8096DE55BFCBE4A94105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ File Juicer может быть использован (   Читать дал�
 ```bash
 magnet:?xt=urn:btih:B52529CB7997A63A1E1A6517D632CFE167C81634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Eon Timer 2.8.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C5956C60B694003354F755553504889F44A878D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ OCRKit представляет собой простое и рациональ�
 ```bash
 magnet:?xt=urn:btih:E07ED0F89BE3150CB6CBF52B870A4D8E16503613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ John Gary - Sings Cole Porter (1994) Audiophile Records [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:9B7A26FFA030E099213C5C05C46AED94A2B59B35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44EA11BEA6DC8A87F3F4EFE8EE61821DD397307C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D38B8A710821270F38A3363A478D07232F3BE0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1782904673CA6E033241156A1E71402132A3B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ Scudo - это гибридный брандмауэр для macOS, котор�
 ```bash
 magnet:?xt=urn:btih:F5726986E220604E27E74DE4806AB871F067457F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ VA - Chillout And Ambient Pieces, Vol. 5 (2019) [FLAC|Lossless|WEB-DL|tracks] <D
 ```bash
 magnet:?xt=urn:btih:85FD4EC2AF462A511DD922C42E9FB4B77B03B4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ Zoc terminal - является довольно известным telnet/SSH/S
 ```bash
 magnet:?xt=urn:btih:205641D5C5242F20683EB3D1B9DA93C3AB928CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E106F6B90DD836D7F0B34759AFCBE91CA5AD4AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EF59BFA0A2EF0EA0D5BAE07BFB82B3F95181B66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

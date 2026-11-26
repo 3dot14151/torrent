@@ -22,8 +22,7 @@ Annisokay — немецкая металкор-группа из Галле, С
 ```bash
 magnet:?xt=urn:btih:EA331C6AA37AFF91FC4BE0DE2FADBADDC509C7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

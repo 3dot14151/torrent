@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2F0D0C45BA5BC98705DEAD0B76A7111EB54111CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Falling in Love with Lounge Music 100 Sexy Tracks (2016) [MP3|320 кб/с] 
 ```bash
 magnet:?xt=urn:btih:85F0F5023B7AFF9F6D66588E0166DD6B3ECEE0ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D77A3EA3D970068EA7F083E206D65AE05A99760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Atrocity - Gemini (2000) Limited Edition [FLAC|Lossless|tracks] <Rock, Industria
 ```bash
 magnet:?xt=urn:btih:3505C87A7129BD789670CE7F5132D843436C5D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Tord Gustavsen - What Was Said (2016) [FLAC|Lossless|tracks + .cue] <Contemporar
 ```bash
 magnet:?xt=urn:btih:5179FAB895CA858A688F353F7B44210026102001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1D35F054CD2FDF97313A6B547FFC57DEA55DC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9ABEC3CFA546C30A38BA5A6BA0B3168A6D074A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Citrio — это быстрый, простой и безопасный бра�
 ```bash
 magnet:?xt=urn:btih:4DF5FA53792C9A712507E3AF944899EE030AF3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:105649F493ABA27AC594A2E504530AB9AB888DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ BlackRain - Released (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:D1997A7E4A30872F4F73B9869FA8AFF4F2AEE80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D630F64E487F104136EF8D22A5FFBEAA4B5A476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ BetterTouchTool удобное приложение, которое позвол
 ```bash
 magnet:?xt=urn:btih:B897434A532F9D301C9A50293D88E8A6136DFDEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ VA - Sweet Afternoon: Music Romantic and Chilling Pop Songs (2016) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:B0FD3463D130E3C14838BD4146680D29E32A3B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ VA - Bass Killer 4 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Drum and Ba
 ```bash
 magnet:?xt=urn:btih:73BCF61104CFB13FB7708FB3408752A372C23BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D033FC9B099FF849275B64D6AB8D849BB55D8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Layla Zoe - The Lily (2013) [FLAC|Lossless|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:4BA87C6396774D87EEEB5616DA42FA7D35291D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Invisible является простым в использовании и оч�
 ```bash
 magnet:?xt=urn:btih:54401B2E8CBD36B44C0A4AA5266466EF76A92F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ KeyCue – удобная утилита, которая поможет поль
 ```bash
 magnet:?xt=urn:btih:45FD4DA7B0F01CE994C05859BDD85C48A3BB53EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ VA - Extra Trance: Bonus [04] (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:8C3DADC5316EE561E172FB9C6BCBBB90B3EF9B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ Bullet Train Blast - Shake Rattle Racing (2015) [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:44059CF037E7EBD0B5284E85DEEF64488343F0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Bill Wyman's Rhythm Kings - Kings of Rhythm, Vol. 1: Jump Jive and Wail (2016) [
 ```bash
 magnet:?xt=urn:btih:131F7A50E41E5CF6BDCACEC3E7398818DA944059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ L o W (L ö W) - Discography 7 Releases (2011-2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:A73608114189D689277C550FCA76DF2EBB6900AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ FocusList - приложение, чтобы планировать день и 
 ```bash
 magnet:?xt=urn:btih:9C95AC7F0CB33EF4CDB5432F899A7F28B7150D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ Priime обладает более чем 100 фотографическими �
 ```bash
 magnet:?xt=urn:btih:87E30C1037BEDE644A0677606CBC4BD31DBE0DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE6766C275A624A0B6E8134C4A4B68C270622804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

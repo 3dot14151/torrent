@@ -19,8 +19,7 @@ Rotation - Orientation Manager v25.0.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CA22B035E00379FB823CF49ADF069ABEB8FB2259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

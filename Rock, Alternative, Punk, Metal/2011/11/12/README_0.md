@@ -28,8 +28,7 @@ VA - 100 Hits. Indie (5СD) (2011) [MP3|320 kbps]<Indie, Alternative, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:7EB4C5542B6CA896FE72E13147B333A82046C931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Pink Floyd - Wish You Were Here [Experience Edition] (2011) 2CD [APE|Lossless]<P
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

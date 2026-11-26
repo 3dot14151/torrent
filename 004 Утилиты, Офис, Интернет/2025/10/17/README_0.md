@@ -21,8 +21,7 @@ RustDesk Remote Desktop – программное обеспечение для
 ```bash
 magnet:?xt=urn:btih:B6E074CF0DB1551727909E00CF6895DCD0064F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:B7774091FBA32672AFE60BD61F045E6C698A14AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:2F13A7E474AE2DE13BEB2A669BF2B379F94F7868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 ```bash
 magnet:?xt=urn:btih:FE10B8D45A8CC0E095B2624CC1E03DF86E436315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ O&O Defrag Professional – инструмент дефрагментации д
 ```bash
 magnet:?xt=urn:btih:3613DF625AE54B1119CEE2E3AC2EBF6A887650CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ OCCT 15.0.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:A85071952902E1781B4341F7372916F60EC2E949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ FurMark 2 является преемником почтенного FurMark 1..
 ```bash
 magnet:?xt=urn:btih:364DFD7D9A8537900BF7E260D6C827D7F585479D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:1597A6CFD220953B2A0A4C689329E38F46B635B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:CB669615C743809FD93DD8E8AB69F1E8B70D7C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ DBF Viewer 2000® - приложение для просмотра и редак
 ```bash
 magnet:?xt=urn:btih:137BE0D58D61987F54AC3F0440D4584A872F0C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ MathType - это интерактивный инструмент, которы�
 ```bash
 magnet:?xt=urn:btih:03ECA369F0FAFC15A53DFDBE2DB9717DD1BA5B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ MediaHuman YouTube to MP3 Converter 3.9.17 (1510) RePack (& Portable) by elchupa
 ```bash
 magnet:?xt=urn:btih:C073FAF9CFBC93F0D13860202E778D865244CCC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Auslogics File Recovery — простая и эффективная в испо
 ```bash
 magnet:?xt=urn:btih:5088AEBB4089A9A7AD8BAEF9E98934F35F722BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:3511F5602B19F122B712BF567DB1E699F6DB3910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:C380F5F1D67FFA76AFE9B50866BDBA2443FEBD21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ PDF Combine — объединение PDF, или слияние PDF, пред�
 ```bash
 magnet:?xt=urn:btih:F93D97635FF730AF050B23C4CCE05DAE9048D545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

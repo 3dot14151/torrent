@@ -19,8 +19,7 @@ Might and Magic 8: Day of the Destroyer (2000) [En/Fr/Ge] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BE386AE4B809D451A22546D6E5069EC75607E189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

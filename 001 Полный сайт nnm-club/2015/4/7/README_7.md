@@ -18,8 +18,7 @@ Shinmai Maou no Testament / The Testament of Sister New Devil / По велен�
 ```bash
 magnet:?xt=urn:btih:881D5761902C6D22E18AFFD6A7DCB34EABA9879C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Seiken Tsukai no World Break / Святая троица: "Мечи, Магия,
 ```bash
 magnet:?xt=urn:btih:1629A01772E781CFCC6A684024C042218EB7109E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E1F13263B115BECB9E495893ABD9BB31A9D5C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Sony Vegas PRO — профессиональная программа для м
 ```bash
 magnet:?xt=urn:btih:37C2296A060A6E2DA9EC9C7A34990B51C88487AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Paint Tool SAI - простое и удобное графическое при�
 ```bash
 magnet:?xt=urn:btih:3C50E45564B95C3D6B0DE77E22854F999690D41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Dragon Age: Origins & Awakening (2009-2010) [Ru/En] (1.0.5.0/dlc) Repack R.G. Ca
 ```bash
 magnet:?xt=urn:btih:263C6F8447E29688F12A63CCA0FA9F15489CF96F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFFAA6DDCB3E3E5EB8BC3057D5EBC19509AFFEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E619BB11E9439A39BE662B6F038BF0C468F79744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Dragon Age: Inquisition (2014) [Ru/Multi] (1.0.2.5) Repack R.G. Catalyst [Digita
 ```bash
 magnet:?xt=urn:btih:D216503F5659912B89B9F58A3C1BBE622B921483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PDF Shaper Professional 13.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2B5AC3EFED8DD2FC9FDE82EFB0F09CB45FCAC5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Icecream PDF Split & Merge Pro 3.47 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:122B1D54C446F8837AF0CF961B46934FF37D10F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ OEM Info Updater 9.8 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:234A510E2AEE1A76911B5373156BB6C5CFE0E076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

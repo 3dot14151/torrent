@@ -19,8 +19,7 @@ Virtual Sports - симулятор тенниса для устройств в�
 ```bash
 magnet:?xt=urn:btih:6E19612943E875C2337CEECE860930990ADB858A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ I Expect You To Die - это игра-головоломка в виртуаль
 ```bash
 magnet:?xt=urn:btih:DA03D66BBA692A6B5A6225C8011F7583DB61434D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (130418) License PLAZA
 ```bash
 magnet:?xt=urn:btih:344D67109233E760FC090D7DEC3FE4D89865F680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pharaonic, увлекательная трехмерная игра, в кото
 ```bash
 magnet:?xt=urn:btih:C46E4418BDEFE52C37ADD46394F24D3A35CE25DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/Multi] (1.0.0.0) Repack R.G. Ca
 ```bash
 magnet:?xt=urn:btih:170C91885ED7E7C6066B675B5A54291B7E542BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Distrust (2017) [Ru/Multi] (1.1.4/Upd4) Repack Other s [Cruise Edition]
 ```bash
 magnet:?xt=urn:btih:D16F3D497F036C4B074C9BB782935FF0FABD6696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

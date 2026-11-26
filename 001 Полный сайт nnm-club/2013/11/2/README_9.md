@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:40DCE396129243A724B1A86C10780B225B0B5C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Chase The Ace - Are you Ready? (2013) [MP3|320 кб/с]<Hard Rock, Classic Rock,
 ```bash
 magnet:?xt=urn:btih:CC418CE5EB7A9CB7C94CBBA037BBA6FB65205959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - House Autumn Lounge House At Its Best (2013) [MP3|320 кб/с]<Downtempo>
 ```bash
 magnet:?xt=urn:btih:7539FCB87DD742974372C6DB48ED2827348B6A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Клубные Новинки Vol.330 от AGR (2013) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:37E2B84FF389CAAA33C7A6A5B92F33254BEAE640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Клубные Новинки Vol.327 от AGR (2013) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:EE2E50B8BC6062E47EE68000FD65A60E444A92A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6116EA3CCD204B44EB2545FDFD4D20EC1D3B130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ VA - Клубные Новинки Vol.329 от AGR (2013) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:A0FFF14FE6488979987E9B2FBAE204FBB47E4855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Booster - Рукописи не горят (2013) [MP3|320 кб/с]<Rap, Hip-Hop
 ```bash
 magnet:?xt=urn:btih:7F0B4BA76F063B2CCB1B524E61A9924C96FE447C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CCB2FA55B79C9E6E660E7050BBB2E2521502A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ VA - Клубные Новинки Vol.324 от AGR (2013) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:426E33B523EBE56B01A4D352C3140B54E9CE0989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64E512E2E1450C9881B6AD6333F9360EE8CAB507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A17108A2DCE65796C6E72AC8DF507F216F054EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ VA - Осенний Муз-Paradise (2013) [MP3|256 кб/с]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:03261B0407449EA59B8DC9536F80A576D3EFD360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8069E9212E28BAB075075E9A3C4974262122F2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9499BEE9236C7CE8F65E241475B58AAD74F15C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA24E3CA9E7D5505217CB1742B6EFC55C092DC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ VA - Клубные Новинки Vol.323 от AGR (2013) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:C2B63CEB3E064B441B7EBF1D74217EEF5FA09822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ Wolf Hollow - Rediscovery (EP) (2013) [MP3|320 кб/с]<post-hardcore/electronic
 ```bash
 magnet:?xt=urn:btih:BEDA227EE9315DDB4E1990BE065B9C501A8144C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +591,7 @@ Ethereal Sin - Millendium (2013) [MP3|320 кб/с]<Symphonic Metal, Melodic Blac
 ```bash
 magnet:?xt=urn:btih:CFE93A44720D140EDA92D6D66E346EFC092AC3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +625,7 @@ VA - Deep Thing: Deep House Vol 3 (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:5D2F28E6C16158ED294B471C6191DDB8472B3493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +659,7 @@ Tempestt - Bring 'em On (2008) [FLAC|Lossless]<Heavy/Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:00CC25294B20D4683DBE0F831FEAC1DECC847A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +693,7 @@ Poemisia - La Danza Degli Spiriti (2013) [MP3|320 кб/с]<Symphonic Metal, Goth
 ```bash
 magnet:?xt=urn:btih:DBAF2BB8A2CF97740D58BC0166C9D3E7EFE2CABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +727,7 @@ VA - World Lounge (Ethnic Chill Out and Buddha Lounge Sound) (2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:B1F2899AA9F7C872AFA4728A765A5590C4BF1669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +752,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FF263FFD4BDCE178184BB05688412263FE28D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +777,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

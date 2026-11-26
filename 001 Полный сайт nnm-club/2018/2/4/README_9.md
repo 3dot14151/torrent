@@ -22,8 +22,7 @@ Piero Odorici Quartet - First Play (1989) 1992, RED Distribution [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:DD7EC6B1310C8F76BF2361E651E3CE98F619F92B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - The Sound Of Progressive House Vol.08 (2018) [MP3|320 Kbps] <Progressive Ho
 ```bash
 magnet:?xt=urn:btih:4428D786DEB4109447208266A2A7083E2D8F84E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Rhodes Journey To The Light (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:BFE5F7AF6B8077AD3A23E07BB1231E2A28B638E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Selective Deep House Vol.4 (2018) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:A567E9A94F6E2D0A2D5167F0615B04CB9776017A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Occer - Imperfect (2017) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ps
 ```bash
 magnet:?xt=urn:btih:08F071207FF8593B7FFA146CA557B7C9712A5EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B9F1DE1FE83AF6D21F6F7EB87A110F04CE4FF01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:60C61BA379B1D96B9851C3EFA55F4A330F7A9F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B131BC0E4478C35DDCEA27CB180B3CF1A676608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - The Elegance Of Electronic Music - Deep House Edition #2 (2018) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:726136EE51E1B50E8375A3AD18F899C3177972DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Indian Wells - Where The World Ends (2017) Japanese Edition [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:D1B6C276B3D73FAC67BD97FEF3BE092B80F0BA6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA581B9E8CE3E48E84A7A51876BD763027F8506A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - The Official UK Top 40 Singles Chart 02.02.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:45E6C389F7126A955FDD90DFA40B6F6DD6B1192E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Art of Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:933F93CDFFF6FEAFB532342405A7CD0056C6E436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7451E1E91D0794A678F260128556D815A4B6C4D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Antendex - Take Shelter (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic>
 ```bash
 magnet:?xt=urn:btih:0D9896C655FA3CD1CB37168EC04A79957C91A48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADABF6D1EFECB92F4C702CD0D7A3FC8D859E96C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ VA - Age Of Love 10 Years (2018) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:DAC174DAA67E9E1EEC23620D7D5E5CC75A9DF3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ VA - Chillout Lovers: Introspective Chillout Sounds (2018) [MP3|320 Kbps] <Downt
 ```bash
 magnet:?xt=urn:btih:86E91D1615AA63288A2DB9199BB28D15A3348BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ John Dummer Blues Band - Cabal (1969) Reissue, 2003, Sunrise Records [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:781F9E84AE745A2BE41F3D5E264B158F2A5A3460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ Auto Reverse - Loneliness Of The Deep Space Traveller (2017) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:3615A5CAD0A1F9350657126070F022ADC694B66F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ VA - Timeless in Space: Universe Lounge Journey (2018) [MP3|320 Kbps] <Downtempo
 ```bash
 magnet:?xt=urn:btih:B929FB28766E4021AF2E3C455E9AFC28803CB12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8B8F3C3FCB67673BBE2B8CE353CD55D7C1EAD81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ Laura Branigan (Лора Брэниган) - Laura Branigan (1990) Atlantic, 756
 ```bash
 magnet:?xt=urn:btih:C3B3C65F83176000D0EF146E9F8DCCB1737944CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ PDF Combine - надежный инструмент и незаменимая п
 ```bash
 magnet:?xt=urn:btih:23C7966507E164C1EFD9796C3AF14C6DBD547D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ David Myles - Real Love (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:4B3FEC15C3A9F2BE73DD40DBB860D55F6A509C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB7715BC83AD832F4BC5DCCE5C5E5C154F5A2DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

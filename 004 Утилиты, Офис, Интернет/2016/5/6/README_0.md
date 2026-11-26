@@ -19,8 +19,7 @@ GridinSoft CHM Editor 3.1.0 RePack by Manshet [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:903CAEE2A481F046D1A95881281C62A49E37D4EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TestDisk это мощная бесплатная программа для во
 ```bash
 magnet:?xt=urn:btih:23497C860D1F3C6758248F3DB35CE3DD4709ACC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

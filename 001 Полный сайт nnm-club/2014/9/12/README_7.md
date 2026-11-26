@@ -28,8 +28,7 @@ Agresiva - The Crime Of Our Time (2014) [MP3|320 кб/с]<Heavy Metal, Thrash Me
 ```bash
 magnet:?xt=urn:btih:B1D8D96CDAC3234518F35088962E6414697F4AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Recreant - Still Burn (2014) [MP3|320 кб/с]<Screamo, Neocrust, Punk, Female V
 ```bash
 magnet:?xt=urn:btih:ADE80A97F3975B6D8A86F1D8AC350D858E2B6706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Storm of Sedition - S/T Cassette (2014) [MP3|320 кб/с]<Anarcho Punk, Blackene
 ```bash
 magnet:?xt=urn:btih:A61C1979C7DBC2154CEF306F6B344267A87A9588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Master Compilation (Selected By Dario D.) (2014) [MP3|320 кб/с]<Funky, C
 ```bash
 magnet:?xt=urn:btih:9755DD4FFC3F1DFF99C733D572134DA90000DE51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Aeterna - Eschaton (2014) [MP3|320 кб/с]<Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:3B50F403E14FF2FB83CD21AC3F7E4A91FC9CAA98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Swinsian демонстрирует простой, но вместе с тем 
 ```bash
 magnet:?xt=urn:btih:FC4A576BEC58CE1A723B8F376FEF16A01DCB90C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Last Rizla - Seamen (2014) [MP3|320 кб/с]<Post Rock, Sludge Metal, Instrument
 ```bash
 magnet:?xt=urn:btih:1A6EEA380507837B3CFF313819CABB16BD928974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D05FA7BE34B66EFCAFA6F2B4FC820DF99151A8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9FBC064F2F5CDD585FA036948D3A97FF43DF53F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Application - System Fork (2014) [FLAC|Lossless] <Techno>
 ```bash
 magnet:?xt=urn:btih:860A37ACFFF1E9D349C1B16B3A3849F3338E2E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ VA - Paul van Dyk VONYC Sessions Selection 2014-08 (2014) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:BD0D3CF527AF818B6FE85EBC61C4A1496B86FE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BD45172BDCDE1F23BC61FF32559D433DFFA8633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C71054BCBEA5AB6727E2E9ED9F72E2F1701AC80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ Alcohol 52% - широко известная программа для эмул
 ```bash
 magnet:?xt=urn:btih:20C0D7C0ECCAD079E4B01274DD7FE562AC051382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ Alcohol 52% - широко известная программа для эмул
 ```bash
 magnet:?xt=urn:btih:EC764E59AE03DFEF153859C7209862DC0210EE42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ Shapeshifter vs TheUpbeats - SSXUB (2014) EP [MP3|320 кб/с]<Drum'n'Bass ,Neur
 ```bash
 magnet:?xt=urn:btih:146CA2EA10BA2F28C2FD7F398F7D3F227162BA81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9919298CE8CF428EF8407B0DBE9CABF13B3F13E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:813C6D8A75492EAE53C35DDC093AD451143FCD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ FotoMagico – популярный пакет для создания слай�
 ```bash
 magnet:?xt=urn:btih:5C0B2C222C1EA1110560ED9D881C36B40C89513B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ Nothgard - Age Of Pandora (2014) [MP3|320 кб/с]<Epic Metal, Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:2B4F6034AE3F0E01ADC6311AFD0A0737913FDD61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DFC7E04995322E9AD03E309AEBB4DEB5F392D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:AF1EB315EFBCDCB39D515C3430AB4B7AD3977096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ VA - Absolute Dance Autumn 2014 (2014) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:219331DEEE5A59F7FF3C2BD627898ADD4CD9E9EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ VA - Eargasm Chill Out Vol 1 (2014) (An Obsession of Erotic Lounge) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:F72639AAB56F43EB8092DB5F50CC7DF84051EE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ VA - Goa Vol. 50 (2014) (Compiled by DJ Prozak) [MP3|~245 кб/с (V0)]<Progress
 ```bash
 magnet:?xt=urn:btih:372C8B762B48BE93BBD2E48E5B6B44FA2BDEBED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

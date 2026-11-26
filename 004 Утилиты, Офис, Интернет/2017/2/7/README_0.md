@@ -21,8 +21,7 @@ HelpSmith - инновационная программа-помощник, по
 ```bash
 magnet:?xt=urn:btih:A50CE1250C40340118EAB5494BF350D056204A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

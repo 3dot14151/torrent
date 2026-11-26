@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:6C2EE4FB43B2EDC1822CE3964C78D00CD83D2B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Anterior - Echoes Of The Fallen (2011) [MP3|320 kbps]<Melodic Death Metal / Meta
 ```bash
 magnet:?xt=urn:btih:9BE27239E7A883BBA48FDEA1BCE288293034C778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ The Morning After - Legacy (2011) [MP3|320 kbps]<Melodic Hard-n-Heavy>
 ```bash
 magnet:?xt=urn:btih:96DBCA6B9094C892C7576219FF4C846F9B5061AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ VA - Sexy Trance #18 (2011) [MP3|320 kbps]<Trance, Uplifting trance, Vocal Tranc
 ```bash
 magnet:?xt=urn:btih:095B373D37207004566ED02AFCA775C69F54C7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CFFCE22D1ACFDE6BFEF10320ADA4F9383819815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC95B2A562F0CD9AE02945E7A94D91E9C2518C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ VA - Beach Club: St Tropez (2011) [MP3|320 kbps]<Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:5BE019398CA9428CDC0D235FAFB8CB11BE698474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:444474F1762A0939B10FD7AB6E377498B6B183E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ VA - Goa Overdose 2 (Compiled By IMBA) (2011) [MP3|320 kbps]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:7C3C755D74A67A44C28368181AC62804B45F0793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ NG: Несокрушимые: Малыш в автокатастрофе / Natio
 ```bash
 magnet:?xt=urn:btih:18584473F40B35BC5AE07C94C13737024EE56C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:535F3C837BB869ECCC0692EC894903D9DFDE4CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +374,7 @@ VA - Rehab For Lounge Lovers At Lunatic Asylum Vol 3 (2011) [MP3|320 kbps]<Chill
 ```bash
 magnet:?xt=urn:btih:8D6E0456BD2428409BAE97FF00A72F07A5AE62C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B2656F33979F9FB33B918F772ADB55B7CD2340C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:455614EDD04D9B05896CD6630429FDD451EA928A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ Total Escape - первый украинский информационный ж
 ```bash
 magnet:?xt=urn:btih:C3EBEC307592B9E6BFCBD72E0C8C7E199398FC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ Ganga - I Dream About Trees (2006) [MP3|320 kbps]<Chillout, Ambient, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:E67BCA5EFB9AD95D50995E378DBF0301F18F890A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +517,7 @@ Dj Tapolsky - Time2Bass 049 (28.12.2011) [MP3|224 kbps] <Dubstep, Drum and Bass,
 ```bash
 magnet:?xt=urn:btih:4F72E5423812CC70A5FD967A4E93375F80460AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9639996BB196A8CF3B09BB4998F0C2B07C1EDF5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +576,7 @@ VA - Chilldren Of The Blue Ray - 13 Moons (2008) [FLAC|Lossless]<Trip Hop, Break
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +604,7 @@ Nuage - Collaborations & Remixes EP (2011) [MP3|320 kbps]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:BF621E0C29E0F3F879C369C698BB77FFBC26A4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7607FB11E893C75CEF161D85619FFEB1891F7C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ MediaMonkey также предоставляет интеллектуальну
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0C8E4260A4D6CA7EB288F4425ECC35C1559C108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +740,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

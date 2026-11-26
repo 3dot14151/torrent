@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:0D8A03FC5A04664401C39CC6A6FC8AF2A4E1BDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Explainer World Video Toolkit Library - это очень огромная би�
 ```bash
 magnet:?xt=urn:btih:4729504DAEC41C28F07773A4CCDEC059CB83C607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ All in One Runtimes - пакет приложений, необходимый д
 ```bash
 magnet:?xt=urn:btih:400C7F57308AC538BC87F10ECFF23B3B2959DE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4295F485826B6A40C332604A903D28EE1EECA569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F36B327A0228532D9C7FAE42AD737FCCA982B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08BBBEE73E32DA4DE59C27BFEE800CB293309530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DC5DE9762F61398C80F9C312EDE41EEE1B9F30C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:172EB7D8521771789EC4716F65723ADAEA0AB6B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ CyberGhost VPN позволяет просматривать веб-страни
 ```bash
 magnet:?xt=urn:btih:C98207DE5DD92C9B0678F5788173B05F39191B99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Sonic Forces (2017) [Ru/En] (1.04.79/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:F8714E86F4F4626D5CF7E1F61815116E39AA040A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:445B7B20C20F227A1CA20C1688B8779CD902C0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Sonic Generations [10+ лет] (2011) [Ru/En] (1.0.0.5/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:8CE21A95A8AC54345A42C97E52A9A8520331E70D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Queen - The Show Must Go On ★ Hot Dance Remix ★Up Music
 ```bash
 magnet:?xt=urn:btih:322A8D8400B9D7F5A862C643EE0A641E0557861B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ RE Vision FX - Effections Plus
 ```bash
 magnet:?xt=urn:btih:D9E96588F5019DA6E91B2E46B4CA69B72689AAD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Kim (2016) [En] (1.4.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:856A242BE3E20EFFB6475A04DC6EBBF579C2FF5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Test Drive Unlimited 2 перенесет нас на два курортных 
 ```bash
 magnet:?xt=urn:btih:A2C0A0033F56E91A3B7E04FE467FE619C7BD3B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Nero 2018 Platinum 19.0.10200 Full RePack by Vahe-91  [Ru/En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/En] (1.2.1
 ```bash
 magnet:?xt=urn:btih:046A2E39415D568FFEAD070462092C807D51C592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

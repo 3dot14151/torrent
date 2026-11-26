@@ -19,8 +19,7 @@ Entwined. Strings of Deception / Запутанное дело. Нити лжи 
 ```bash
 magnet:?xt=urn:btih:D326C24BE1A93B70339362091C13DACC7FD0CB95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Greak: Memories of Azur — это сайд-скроллер для одного
 ```bash
 magnet:?xt=urn:btih:C72ADA065006E48A05E7C5A6C88496C25BF1FB85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hell Architect — игра, в которой вы можете создава�
 ```bash
 magnet:?xt=urn:btih:C09C7633F6B21DD58282E945C5CF55479AA3D2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

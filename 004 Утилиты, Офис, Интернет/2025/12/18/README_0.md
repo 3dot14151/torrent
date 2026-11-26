@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AE4A92CFBBDBA6F52F1AD4CC90BB269DB6278AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:15AB9791BBFC2856CB2D31902EEE11641E3E71C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8446C18B93FD95B24A14C1B2730A1EE1A3C4C7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vivaldi 7.7.3851.66 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E2E4A8B645093810A9F41A3A51E279D07A51903B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ RAM Saver Pro - инструмент для профессионального �
 ```bash
 magnet:?xt=urn:btih:1AA077FA9138BC799FBA20A89FE1A8DD6103FF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:2C8966F900739011A0CD34FF733C5518E488FF4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:314D660DD979601C4D7B6E2D0CF2E72FC613C4C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Latest Version Finder 2025.12.18.1218 [Ru] (авторский релиз)
 ```bash
 magnet:?xt=urn:btih:368D7404D19F797E2263F0CE211DCA896DF31C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Opera One 125.0.5729.49 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8B43FE48DD3F93A3389A9B2E1C56DCAA661B3F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ KMSAuto Lite + Установщик офиса + Некоторые нужные
 ```bash
 magnet:?xt=urn:btih:FD9DCBFCE28BD4B51F6F2F6A6B97269AA669F75E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

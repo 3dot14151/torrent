@@ -19,8 +19,7 @@ Cisco Systems VPN Client программное обеспечение для п
 ```bash
 magnet:?xt=urn:btih:5CCA85329F25979F4C0347D28CA2C880EC0DA3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

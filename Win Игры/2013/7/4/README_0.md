@@ -19,8 +19,7 @@ Far Cry 3: Blood Dragon (2013) [Ru/En] (1.02) RePack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:69F44808792859752B6B78A8C666472256FE860B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

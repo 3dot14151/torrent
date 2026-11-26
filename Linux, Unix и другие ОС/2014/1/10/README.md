@@ -21,8 +21,7 @@ Korora 20 включает в себя пять DE: GNOME, MATE, KDE, Cinnamon �
 ```bash
 magnet:?xt=urn:btih:2AC3D926AFFA32E4D8C2E3B889CA937E10836D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Korora 20 включает в себя пять DE: GNOME, MATE, KDE, Cinnamon �
 ```bash
 magnet:?xt=urn:btih:9EAF93A8FAFC094C2F60EFBF0AC17AD0057F8DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

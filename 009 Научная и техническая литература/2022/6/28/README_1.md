@@ -19,8 +19,7 @@ Tyler Bain, Peter Kent | Cryptocurrency Mining For Dummies 2nd Edition (2022) [P
 ```bash
 magnet:?xt=urn:btih:802BE852A6595EECE25D65054206BAAFD665D9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

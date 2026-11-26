@@ -19,8 +19,7 @@ Unreal Gold [Ru/En] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:E71F9DFA901AD3FB7031245565789177B1C719AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

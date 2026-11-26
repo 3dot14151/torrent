@@ -19,8 +19,7 @@ Parted Magic - дистрибутив на основе Linux, предназн�
 ```bash
 magnet:?xt=urn:btih:38F5FFB56A3E9ECFBB67F44925EE0C7C0EBDE18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

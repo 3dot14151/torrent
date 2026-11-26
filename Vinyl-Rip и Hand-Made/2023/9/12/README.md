@@ -19,8 +19,7 @@ The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The G
 ```bash
 magnet:?xt=urn:btih:44C7531B9D98C6243DE8F8D2E90C177BF1E0E092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

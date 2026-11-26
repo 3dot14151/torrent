@@ -27,8 +27,7 @@ VA - Disco Remix Hits - Best Of The Best (2012) [MP3|256 кб/с]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:43735ADCBD45ACA32C571F7DFA709C455384A67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Overlord - Complete Pack [En/Ru] (Repack) 2007 - 2009 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:61807B885AA88AA2D4BFF0AF090D3D6D2CBCA311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Sony Vegas PRO — профессиональная программа для м
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Medal of Honor Warfighter [Ru/En] (Repack/1.0.0.2) 2012 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:404F9747266EC327CADB95FDCEA59B5F0E28A33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Dis Tortion - Metal Recall (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Thrash 
 ```bash
 magnet:?xt=urn:btih:8E87FA78B5ED059FED8E9C595D7E9FE7B764106C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

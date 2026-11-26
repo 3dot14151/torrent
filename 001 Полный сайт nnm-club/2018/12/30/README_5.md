@@ -22,8 +22,7 @@ Clifford Jordan - These Are My Roots: Clifford Jordan Plays Leadbelly (1965) 200
 ```bash
 magnet:?xt=urn:btih:D088A5918D21A66EFE7EC7309AE99A7EC902005A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chris Connor - Sings Lullabys For Lovers (1954) 2013, Bethlehem [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:4860F8C79AE74A68693926FC71E21E68059853FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Addicted 2 House, Vol. 30 (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:689DF06FC48661A85C824080720B72D8E0071B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Catherine Russell - Harlem On My Mind (2016) Jazz Village [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:7CCD89F51A1D022B07526D78252FFF0CBC5794C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Acid - The In Part Od The Out Crowd (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 ```bash
 magnet:?xt=urn:btih:A4EF86568C49BCAF6DA1ED839974A54D9B30F31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sir Roland Hanna Plays The Music Of Alec Wilder (1998) Gitanes Jazz Productions 
 ```bash
 magnet:?xt=urn:btih:7C354FE80167859D35C8E682D0D3FFEB97DAD48A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Snoweffect - Rustic Physiocrat (2005) Ryoondo-Tea [FLAC|Lossless|tracks+.cue] <A
 ```bash
 magnet:?xt=urn:btih:5FA6B75AE861E1C14D2D95F8F6B3E9DD122900AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Ouie First X (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 ```bash
 magnet:?xt=urn:btih:5D6AE3465068D874CCEC03E9EBB6DFDD9E2358D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53DFF1A22109D4071E1648103966E4E4245E40B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Kryder - Kryteria Radio 166 (Yearmix 2018) 2018-12-26 [MP3|192 Kbps] <House, Tec
 ```bash
 magnet:?xt=urn:btih:DADA4EF1C77B41E3DCC33A534C59297B75A2089E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Forces United - Andy Vortex (2018) [MP3|320 Kbps] <Heavy metal>
 ```bash
 magnet:?xt=urn:btih:7BD7423002ACE1EE9317208CF63EF6FD9BB633E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Nebula - Gate To Infinity (1997) Disturbance [FLAC|Lossless|tracks+.cue] <Techno
 ```bash
 magnet:?xt=urn:btih:390D4621D1BE6F2CDFFA23C39D1AC95FB87C19CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Kennelklubben - Kennelklubben (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 ```bash
 magnet:?xt=urn:btih:91E98E2F9222B5E636890908C1F0E51D32121196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Riot Horse - Cold Hearted Woman (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 ```bash
 magnet:?xt=urn:btih:03E2671EF2FCC6DCC0FE71FB4652FD6390D348A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ John Hackett & Nick Fletcher - Beyond the Stars (2018) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:45258ABBB8FE775E156A9B511405952EDB1EC89E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ The Marcus King Band - Carolina Confessions (2018) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:00EF7B09BB0EC15DD8463320C21B2CA2A0BF39E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Christian Tolle Project - Point Blank (2018) [FLAC|Lossless|tracks + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:736512CF98F2A4A9F2D40E4BCC8EA10358D0502F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA1DC275FB5643E8725CE3656C2942CDC59740D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Chrome Division - One Last Ride (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:B2C851759058CA409EB3C8A207D0D002BBD0ABD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Glass Hammer - Chronomonaut (2018) [FLAC|Lossless|tracks + .cue] <Symphonic Prog
 ```bash
 magnet:?xt=urn:btih:940BA099CE0B134C02613578946ABB533B3B8CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ Tykwer/Klimek/Heil - Run Lola Run (Original Motion Picture Soundtrack) (1999) TV
 ```bash
 magnet:?xt=urn:btih:631CF91264E6C40D0E263F6F6078C34EDBD87EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E09FC35AF10ED972A9EF71FF9ADACBE6F4F8FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8CB4D2BF1DA3B5E67D6C8F2AF304625F41D4951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EDDE57D5ED83DC6B845A5FCD81D9BC5A2EB9FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ VA - Best Config Top 2018 (2018) [MP3|320 Kbps] <Melodic, Caribbean, Tropical>
 ```bash
 magnet:?xt=urn:btih:7BA2093D199FF38FC9581781DBA02EDED62FF50B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:828BF15650C43147182091B8F7B9374CA845853D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

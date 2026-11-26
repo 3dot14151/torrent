@@ -28,8 +28,7 @@ Chiraw - Scarecrows And Lullabies (2011) [MP3|320 kbps]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:4762BA1DD94298AE7457183321E18DC41BD9049A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Pink Floyd - Complete BBC Broadcasts (1967-1971), 4CD (Bootleg) [MP3|320 kbps]<R
 ```bash
 magnet:?xt=urn:btih:8B4801969C6ADF7B0A2622906AD71502D2A0FE99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Aposento - Retorno a la muerte (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:3CC677B022EEE737170B0FB44DFF92A72364B85B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Titanium - Аtоmiс Number 22 (2016) Japanese Еdition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:96A4852A83890B0F71316BB56D7CD5F44B1D1C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Heretic - Chemistry For The Soul (2002) [APE|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:935298C0BFBD4D63B735E1B4A1A448FACD62838A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Leverage - Circus Colossus (2009) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:2FE5E12A8267986773128ED206173C9107E22C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Level 42 - True Colours (1984) [FLAC|Lossless|image + .cue] <Pop Rock, Funk>
 ```bash
 magnet:?xt=urn:btih:AC7BF2E300A3EDAB2807C3DFF281637650398014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Symphonity - King Of Persia (2016) Jараnеsе Еditiоn [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:3B3A055334DE574EB2E622AB2EE7EB1382ED57F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Profuna Ocean - In Vacuum (2016) [FLAC|Lossless|image + .cue] <Neo Progressive>
 ```bash
 magnet:?xt=urn:btih:948B6AE3D3F1CE4B370A71BF275D0488D7E1CDFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Janis Joplin - Farewell Song (1982) [FLAC|Lossless|image + .cue] <Blues Rock, Cl
 ```bash
 magnet:?xt=urn:btih:E54658F4FCAE88573E9F417827F946468F0DD0E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Sonata Arctica - The Ninth Hour (2016) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:8CDA8D573485BD4D8FD2C160DA6A995D6019DF41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Alkonost - Песни Белой Лилии (2016) [MP3|320 Kbps] <Folk Metal, P
 ```bash
 magnet:?xt=urn:btih:BCB939D4CAA0D7A519D8B099BB3050D9B7419712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1FEA4A265E72C1CB5FFAFD8DDFB7C4D5C8B3CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

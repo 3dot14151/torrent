@@ -22,8 +22,7 @@ Erroll Garner - 1946-1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 ```bash
 magnet:?xt=urn:btih:45829B6E55B4516E536EC941CD1104A4723261FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Folder Tidy 2.8.5 [En]
 ```bash
 magnet:?xt=urn:btih:EEA961237AFD19645753B09C4F0AEABD2A983F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ AnyMP4 DVD Creator – профессиональная утилита, кото
 ```bash
 magnet:?xt=urn:btih:8B32F3619145F18AE53293CD28AC18D66FE2D470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:E0B270D54DBA971D723B5ADE1FE199078EEFF568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Jettison - размонтирование внешних дисков перед
 ```bash
 magnet:?xt=urn:btih:B0D4F3D7638388BCA3EBA8A9872CF8B386B3F704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Network Kit 9.0.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:BEE5B64326E4705690E0A0B77EEC5C5194AA2A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ DirEqual - это инструмент сравнения папок, котор
 ```bash
 magnet:?xt=urn:btih:62682BF1BF5CD1ABC2E7EEEFAD4F28C2AC61BA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ ColorWell обеспечивает мгновенный доступ к стан
 ```bash
 magnet:?xt=urn:btih:FA654CB8B94BC99DC36AB9E414AD3C38DBDF5186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Aiseesoft Mac Blu-ray Player - удобный в работе, медиа про
 ```bash
 magnet:?xt=urn:btih:9772CD6610142DCFD85C9976943F579EA940AF9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Cocktail - комплекс утилит по всестороннему обс�
 ```bash
 magnet:?xt=urn:btih:2BB61FF0C412A51C1D3128BE7FB2587C754F1473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 ```bash
 magnet:?xt=urn:btih:1278CAF884E3A2E1CDFA055D291111B4825C15E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Benko Dixieland Band - A Jazz Szuletesetol Napjainkig (2002) Bencolor [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:24A023AD6106028C06C3441CFCC6E19037CA5F42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ GoodNotes 5 v5.7.54 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F8BA1704D4494CFE4D4DF256024F9FF5875F1425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ PaintCode 3 v3.5.1 [En]
 ```bash
 magnet:?xt=urn:btih:B5A604E86787967F5D953BD097D356A87190E8A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:8C92C82D982D8A8744471B4619771D2E7F9A4A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:9B4F84FFC6F48B5351A72415EA83BB7FE6939E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ VA - Chillout King Ibiza: Aperitivo Del Mar (2018) [AAC|~334 Kbps] <Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:282071EE390D6CF0374814BC5B06371626BB652A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ SideNotes - это боковая панель, которая заполнит 
 ```bash
 magnet:?xt=urn:btih:6FFBADAC71520228935E0E8222AF9E2F3D151445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ VA - Chillout King Ibiza: Chill Around the World (2017) [AAC|~323 Kbps] <Lounge,
 ```bash
 magnet:?xt=urn:btih:5FBF95A82F2A20C6435AAC4F714A597AA1EB5E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ Aiseesoft Mac Video Converter Ultimate - мощная программа для 
 ```bash
 magnet:?xt=urn:btih:09CFE0BC0FA6D4B00039533F06F81C8E8792504F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ AnyMP4 DVD Ripper - приложение для копирования DVD-фи�
 ```bash
 magnet:?xt=urn:btih:55BA76B7E3170200B0E034119D0A4AAE2FAFD72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ LaunchBar - функциональная замена Spotlight на Mac. Пос
 ```bash
 magnet:?xt=urn:btih:EB497CA65BA55D4AC3B9ABA5F691B7E95DC83345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ VA - Chillout King Ibiza: The Relax Smoothie (2016) [AAC|~326 Kbps] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:8A3ED6C828BCC4003C69C7303C1C9AE49EE1A285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Wattagio информирует вас о текущем состоянии ба
 ```bash
 magnet:?xt=urn:btih:386FAAF00776D610CD2D3445400D500A3382B0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ VA - Chillout King Ibiza: Club Del Mar (2015) [AAC|~342 Kbps] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:734DAABD3DC2AFA87BE6D88ACF9126D0B489D5E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ Super PhotoCut интерактивный инструмент для вырез
 ```bash
 magnet:?xt=urn:btih:1AA1E788D3919BD12EBE0A6F415A7B7546A4924A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ City in the Sea - Below the Noise (2013) [FLAC|Lossless]<Metalcore | Electronic>
 ```bash
 magnet:?xt=urn:btih:C7FCDFA5743A494F1FEC828DD191BE456CD70B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Heliotropes - A Constant Sea (2013) [MP3|320 кб/с]<Experimental Psychedelic/S
 ```bash
 magnet:?xt=urn:btih:FC30943A7A2A16FBC065DEF1840C64E09AA9613F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Cake - Showroom of Compassion (2011) [MP3|320 кб/с]<Alternative rock>
 ```bash
 magnet:?xt=urn:btih:4562D67306515C38320D3B735D021B096C6C5087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ The Byrds - The very best of the Byrds (2006) [APE|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:7DA83E2CD2409D29ECC95B0DF5DB1F6A37C62E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Grateful Dead - The Very Best Of (2003) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:6FB763D153A1833B29466250C39E1819330A2174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Stray Cats - The Very Best Of (2003) [FLAC|Lossless]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:583C526E2E5134E19845209E7153A5B2C7D6047E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Genesis - Abacab (1981) /W.German Target CD [APE|Lossless]<Rock, Progressive Roc
 ```bash
 magnet:?xt=urn:btih:167040432C406590C13165A4936C9DEBDF6A2E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E76E9412D085C74B080F3CA4BB5EDFD08A6932F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Nina Hagen - The Very Best Of (1990) [FLAC|Lossless]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:815B5B593B1E034E276653715B3B22E04B22E225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ The Who - My Generation- The Very Best Of The Who (1996) [FLAC|Lossless]<Rock, h
 ```bash
 magnet:?xt=urn:btih:BAAB1544EA31692E62FFE3E3859904A069E4459E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +367,7 @@ Motorhead - The Very Best Of... (2002) [APE|Lossless]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9596DABDC063D396D473FB8C637921901FEAF44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +401,7 @@ Manfred Mann - The Very Best Of Manfred Mann (1993) [FLAC|Lossless]<Classic rock
 ```bash
 magnet:?xt=urn:btih:DAE2C89D9A38E5AB3B0194612D855B4AF905138C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +435,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:6F425FEC0BD7A744842C987B97126097825612B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +469,7 @@ Carlos Santana & John McLaughlin - Invitation to Illumination-Live At Montreux 2
 ```bash
 magnet:?xt=urn:btih:1EE67D0762B48731E68DEBDD732DA6A937713CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +503,7 @@ Nirvana - The Very Best (1994) [FLAC|Lossless]<Grunge>
 ```bash
 magnet:?xt=urn:btih:63ADAEC5B745509E659B66E9C73B9157F62A049F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

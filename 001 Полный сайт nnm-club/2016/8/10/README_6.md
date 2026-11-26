@@ -18,8 +18,7 @@ Serious Sam 2 - это полноценное продолжение истор�
 ```bash
 magnet:?xt=urn:btih:D9FDDC4B6551DB83E3D00C3E0B63374D48D7B79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:754A0E0A06D594A3971F913BBFF7AF954DD395CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DriverPack Solution - это самая популярная программа 
 ```bash
 magnet:?xt=urn:btih:5428C15F6471F1554C43202B4107F3113427D6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06AE8F81C15185F91ED66E558846181BD2F91BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ WinSetupFromUSB - это утилита для создания загрузоч
 ```bash
 magnet:?xt=urn:btih:432045120320232930A27CA378120A5C053D96F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.668.1/dlc) Repack xatab [Digital Del
 ```bash
 magnet:?xt=urn:btih:723CF1E65F684E15667E08814E4739C5000CD133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Microsoft Windows 10 Professional vl x86-x64 1607 RU by OVGorskiy 08.2016 2DVD [
 ```bash
 magnet:?xt=urn:btih:05A044C80D950C67A3BA38ACF5E7B0F1F8C70A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ FIFA 16 - это новая часть в ежегодной серии футб
 ```bash
 magnet:?xt=urn:btih:FCCD3A14F7CCDEB7FC82EF41E59E9719261ADE95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.668.1/dlc) Repack Samael
 ```bash
 magnet:?xt=urn:btih:E722ACC151186E5819D072D701F802EC96A4C181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

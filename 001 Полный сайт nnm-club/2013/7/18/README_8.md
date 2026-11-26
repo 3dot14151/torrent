@@ -28,8 +28,7 @@ Hitman Ultimate Collection (2000-2012) [Ru/En] Repack R.G. Механики
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Beelzebub / Вельзевул (2009) [1-211 главы] [Манга] (обно�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Hentai Ouji to Warawanai Neko / The Hentai Prince and the Stony Cat / Принц
 ```bash
 magnet:?xt=urn:btih:D48F4B3C243E4B4EB9CDD8A56E938CD1880C153C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ World of Warcraft: Cataclysm — дополнение к многопользо�
 ```bash
 magnet:?xt=urn:btih:A758DAB035F12706B148D2ED96057B4E9C40E21C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Optical Flares – новый плагин для After Effects, позволя�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ World of Warcraft: Wrath of the Lich King (рус. Мир Warcraft: Гнев К�
 ```bash
 magnet:?xt=urn:btih:D00B0B47AB8C889FA472C0230A6F4530B798A2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

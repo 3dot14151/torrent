@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:E7B5EDCD84C70EBD149F75CBB6E603730AD7E3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ DG Win&Soft придерживается идеи, что ставить сис�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Javascript + jQuery для начинающих в видеоформате (201
 ```bash
 magnet:?xt=urn:btih:ED406A92B74E3083D06D6C0B94F3F2CBDA01ED5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

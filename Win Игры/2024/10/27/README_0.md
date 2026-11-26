@@ -19,8 +19,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.10.04c.standalone/dlc) License GOG [Co
 ```bash
 magnet:?xt=urn:btih:09B2B2F60E129D62EF7EC8836103A6ACC686C615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) License GOG
 ```bash
 magnet:?xt=urn:btih:361FF4ABD4612063A56C8D0CF142EF9297119320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.22-CL363716/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D8E4CBC1017FE277E11BCE5472E74E7B067C7552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beyond Shadowgate, захватывающее продолжение класс�
 ```bash
 magnet:?xt=urn:btih:720E080ABD6327B3E9031D87F819E61B69EA33FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.0.0.38f) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:02324A628CDB8077734BAC4C529A14435BDC301D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:109AECA51590EA5B1BDC8B8F4784B753F46D9BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Terraformers предлагает вам построить космическу
 ```bash
 magnet:?xt=urn:btih:E9ED31A7E4C6965149BC678EFE4EF3F84D3E0DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:996B247759200451B910F3AB858EF4BF16D3514C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ A Tiny Sticker Tale (2023) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C64DD588D6E960CFDB6C12D3ECEE7BFDE35098F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

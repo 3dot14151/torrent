@@ -19,8 +19,7 @@ Shaun White Skateboarding призывает Вас превратить окр�
 ```bash
 magnet:?xt=urn:btih:233CBEC5DCE0E15325D917B99D2A5A2EF2D939A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shaun White Snowboarding (2008) [Ru/En] (1.01) Lossless Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:27D612129CF2A9415D58CD1EF9D1E8B46A4FFFEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Assassin's Creed Syndicate [patch/dlc] (2015) (1.31)
 ```bash
 magnet:?xt=urn:btih:D7F8F0177EEE9F3F0A63DDA3F9743BB21EE62373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alien: Isolation (2014) [Ru] (1.0/upd9/dlc) Repack =nemos= [Digital Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:9B389ADA9C46CE5196B6AE5D214481D081E76707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

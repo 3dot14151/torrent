@@ -20,8 +20,7 @@ Beat Find / Распознавание музыки v1.6.61 Mod by NURIK [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:D986AABD5C819604FEBFCF277B9821F7304271D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:FBF21113163878C6A10EDDCBAF6D42C185C96797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:C9329F7EB6EB248DACCA5D96D8D7050C66CB1F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A40C2EDC42821484AC24DF3AB5A4EA5BC264010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:6610F916375D73409828EB7F005EB812FBA82044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:8D750A36AC6C9044A48D3B529EA022724A3432CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ MP3 Cutter - лучший инструмент для удобного и про
 ```bash
 magnet:?xt=urn:btih:4834681349590C3868A3126C61F8A347A201589F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Parrot Timer / Кухонный таймер v2.11.0 Mod by Alex.Strannik [Multi
 ```bash
 magnet:?xt=urn:btih:21585C514290053E506FA3CAED22853E7A1C0EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Material Pods: батарея AirPods v6.70 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:44756AD518FA087B9FFAA1BC11686A815FA52C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

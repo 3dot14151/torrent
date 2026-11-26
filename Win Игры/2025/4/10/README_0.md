@@ -19,8 +19,7 @@ Spin Rhythm XD - яркая и динамичная ритм-игра, в кот
 ```bash
 magnet:?xt=urn:btih:812C7A36E6455D97F66068D83EACAA3CE96E450C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Making of Karateka (2023) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:CAC94F200E78E04974FAAFC34E3BEA831CDD3238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (2.0.1.1/2.0.7.1/dlc) R
 ```bash
 magnet:?xt=urn:btih:148F06EBDC3E6F889D2D74ABBF570FF5989C05E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Stalked 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0B51C90130EBE5176B11B7658F67B8A3DD342BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Scene FAiRLiGHT [Deluxe E
 ```bash
 magnet:?xt=urn:btih:DF5FC1442730D9F356FE97892B59E98D20586B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:FCD06403B87B9EC8E25498AA17F588DCAB2BBC49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Funko Fusion - это экшн от третьего лица, посвящен�
 ```bash
 magnet:?xt=urn:btih:6CB7127A3F24E794A0607DD2CDF67C00D87434AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Mass Effect (2021) [Ru/En] (2.0.0.48602/dlc) Repack Wanterlude [Legendary Editio
 ```bash
 magnet:?xt=urn:btih:37707820E3B3D3C6DA8BE227952293352B70F815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack seleZen [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:C1433C2B4A9C6307149CA3011195C083206B6502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:D92273FFCF314FCC7DE1AAAB39FECF17C792DE26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Skulltide (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E9C2981A923147811577A050B213EFE28F06D4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Cinemaster: Cinema Simulator (2025) [Ru/Multi] (1.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A42631DF0B19FAA496A3269339A91A709FA8B0F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack FitGirl [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:6A190BD36CB3EC977A9B9A459A68FEE4CD18B4D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

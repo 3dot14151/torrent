@@ -19,8 +19,7 @@ Bio Goddess - это шутер от третьего лица с элемент
 ```bash
 magnet:?xt=urn:btih:71EBA505A2738632080697980EDFBEBAE1B53B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:DA242BFD0AAD003114B15C11EEF8A1D808842AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Syndicate - возвращение культовой классической �
 ```bash
 magnet:?xt=urn:btih:BB4739E4A7D478CD72E4B10941F2E38DFABCBF2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Arcane Ascent - карточный рогалик с пошаговыми бо
 ```bash
 magnet:?xt=urn:btih:E1B508281245150482EE228454E69069F3EAE821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

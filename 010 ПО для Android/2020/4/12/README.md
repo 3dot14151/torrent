@@ -20,8 +20,7 @@ Wunderlist: To-Do List & Tasks Pro 3.4.19 [Ru]
 ```bash
 magnet:?xt=urn:btih:D545BAA0B74AD35A856F9742510F2FB8349E3E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

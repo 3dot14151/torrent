@@ -19,8 +19,7 @@ Movavi PDF Editor 3.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A817DE0D52F1DBD4FB2EEF34FA8BDABE3F97010B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

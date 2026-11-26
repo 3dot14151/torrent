@@ -22,8 +22,7 @@ VA - Nature Lovers (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:7D0FABF4DA29BE1AD6E8123AE22B7547876DC83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Erroll Garner - 1945-1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 ```bash
 magnet:?xt=urn:btih:D4E64CA6CAB94296E5061A2CF6C6D1F7D075EB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Chill out Mood, Vol. 3 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:35F36030B754137C2D8142D01DF9E1BAEC887E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mygrain - Orbit Dance (2006) [APE|Lossless|image + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2E1E021E3EB6A19E332368E7113C66E698565F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Baltak - Kral Na Dva Svetoj (King Of Two Worlds) (2000) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:24E54A6DC1D735F93B89D5D999F98C4622911362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mygrain - Signs Of Existence (2008) [APE|Lossless|image + .cue] <Melodic Death M
 ```bash
 magnet:?xt=urn:btih:3C4278A5023FE425728949B80E2E757014766D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Chill out Mood, Vol. 4 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:79EB06CB0DF6C8F8B685036BED3C2A471559F067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - A Touch of Sensual Chillout (2021) [AAC|~293 Kbps] <Lounge, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:CF8AEDCA1F31D74BF82E388676453730204F39FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ MyGrain - MyGrain (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:142B9881989DC73688E9906E3439995209DA171E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Stephane Grappelli - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:303FC41317923FE7B1338BB98DB29FA75A25DF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E4EBA6B59ACA76EFDC2917DDEE7837FE7DABA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Nu Cool Covers 2: Pop Classics ReStyled (2018) [AAC|~323 Kbps] <Lounge, Nu 
 ```bash
 magnet:?xt=urn:btih:B8722280916950A5D18F791B88908D76C06323A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF2507F01CDC202331DE45F75ABA01D09AC66D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B1E9D4A1E0D3E05EBB1803AD405C5E193AA6E0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8372E4C44AF09B53317501EE00D4C299287E3C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Doctor Smoke - Dreamers and the Dead (2021) [FLAC|Lossless|image + .cue] <Doom M
 ```bash
 magnet:?xt=urn:btih:74C149762DF4A638808FC4C973152FA3BCE6A45E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Ex Deo - The Thirteen Years Of Nero (2021) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:A30525BB640703B4F4EC2517B0D4C70C4320A636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ VA - Winter Lounge 2021 (2021) [AAC|~330 Kbps] <Lo-Fi, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:066CA4E5796D2666C27EFAE76004A3A4F93D9EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:892BE544A3BD4A0883D9A6B7E8AFBCBC5BCCC627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ Ely Bruna, Papik - In Sweet Harmony (2021) [AAC|~303 Kbps] <Nu Jazz>
 ```bash
 magnet:?xt=urn:btih:870F143F83C0732322713B835885BD4F55A091FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ VA - Nu Cool Covers 4: Pop Classics ReStyled (2021) [AAC|~315 Kbps] <Lounge, Nu 
 ```bash
 magnet:?xt=urn:btih:72EBDE49B947074FEF66A46AEB2F837B3F367BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Renton - Birthday Mix (2018) [FLAC|Lossless|WEB-DL|image + .cue] <Chillout, Deep
 ```bash
 magnet:?xt=urn:btih:A974D7DF1628CDF707420056D4CB32FC07082033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ VA - Erotica, Vol. 3 (2018) [AAC|~325 Kbps] <Electronic, Chill Out, Lounge>
 ```bash
 magnet:?xt=urn:btih:38CB610A04642092F0467CBD6E74C55B59BEAE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:757C5C8651B64D8A813E3DD309DDD630707C7F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ VA - Nu Cool Covers 3: Pop Classics ReStyled (2020) [AAC|~328 Kbps] <Lounge, Nu 
 ```bash
 magnet:?xt=urn:btih:75A307EF29B17C832F45770E74FFB76CF0876DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ VA - Erotica, Vol. 2 (2016) [AAC|~331 Kbps] <Electronic, Chill Out, Lounge>
 ```bash
 magnet:?xt=urn:btih:37559406D337E3F80A8518BF4887D8503B3AFBF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

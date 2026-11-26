@@ -22,8 +22,7 @@ Breaking Fate Down - Over The Seasons (2016) [MP3|320 кб/с]<Progressive Metal
 ```bash
 magnet:?xt=urn:btih:CD01FD9AB3191F2989D419E82EB217B79C8E5837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Burning Black - MechanicHell (2009) [MP3|320 кб/с] <Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0651880438A603F37A23FA454B51A8184F3B49E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Diamond Head - Diamond Head (2016) [MP3|320 кб/с] <NWOBHM, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:2C0585B3DC8E06E1CB3A27CDE8B47A5EC62D007F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tonight Alive - Limitless (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Alt.Ro
 ```bash
 magnet:?xt=urn:btih:39CD8C826F7AE3A822AFE5B120792DBBF7080674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Myrath - Legacy (2016) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:70ED3F8B4D2F688D954614747AE75B60E08B08AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Van Halen - 5150 (1986) [APE|lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8676C1B8935C41A398830A60932F9308CDA41B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3834290EBB70EF7C5789A3C15B519A02DEEEB186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:575607F500EDE232BC11EC30DD976554B1F878AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EFFECD9CA972BF2C6CD8E97FB5B1775F4F5D859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Death Dealer - War Master (2013) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:1BCCD8B61DD4C8B8D0B2C305C20DD0F8FAD37431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:422B48B4CB002A7AFC4AA208C9F766481D260FAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Serpens - Serpens (2013) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:5A9159434BFDA8DDF61B200FE9883C2DC299B60A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ VA - Trance Eve Volume 58 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:D7C4190ADCE9008F3060278784EE875F422C81C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ VA - Whisper of Consciousness 2013 (New Year's Eve Special) (2013) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:B34C0AE1F81BAE52B9F3E4CC864D099D6C9F8FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:549814DE2FFAC2BFB76369251594FE86FCB12889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F43A4DEF597BBE615A4B9791E17676CA6E9C309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CD7E4842B67ED271C09FD80BFE8FAE0DF56F388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE27B76D288F29D51CBDAE87FE2B41F4E6AEB71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ Maximilien Mathevon - Lotus Flower (2013) [MP3|256 кб/с]<New age, Relax, Medi
 ```bash
 magnet:?xt=urn:btih:E4EABC61AE59BF62C905BA003ABB0C935C0F0AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C4B065D9FCC51325B8D811B0EC29B40AB03974D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +451,7 @@ Discovery: Патрик Демпси в гонке Ле-Мана. Серия 4 /
 ```bash
 magnet:?xt=urn:btih:2161E1577E7361AF5A6539B74E98783A885A408C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ VA - Trance Symphony Volume 34 (2013) [MP3|320 кб/с]<Trance, Uplifting Trance
 ```bash
 magnet:?xt=urn:btih:84AE4B7346A9F9F094923CE9081C23C57559B8A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A20AC16F91FCAC6ADCFAE3E298C6EEEC94E5E230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +542,7 @@ Prayers Of Sanity - Religion Blindness (2009) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F997DCC83A57F3739B585F5390271F7FA49CD2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +576,7 @@ VA - Trance Top 100 2013.12 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:0626544805226154999F5A3B354DEC6F76909828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ Seay - A Winter Blessing Songs For The Season (2007) [MP3|320 кб/с]<New age, 
 ```bash
 magnet:?xt=urn:btih:28739850068CEDAF6C705A49437BAC195E12B691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ VA - Billboard Top 40 Singles Chart (28-12-2013) [MP3|~245 кб/с (V0)]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:872F062B45D3F399589945592DA0AC6D651831C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A39DEF73F9B7023EC22E439537B746FA719C075A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BAFC834B581FE5E2C4C2B8C3C52C7B4213D1B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +719,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2801C9207D4ED9ACE3210BB184FCAD0A09673541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FD23F55D3C99F3CA7035D4391F9824A1870218C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

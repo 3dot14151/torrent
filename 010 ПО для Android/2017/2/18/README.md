@@ -21,8 +21,7 @@ WiFi Map 3.2.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:97C351CC1F3D6205024C6C9BC663338EB598C5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

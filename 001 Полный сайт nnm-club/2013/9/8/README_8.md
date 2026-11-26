@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:E6082DE4510877400FE9DAADFD0189FDCC109BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Ozone 5 Advanced - мастеринговый процессор в едином
 ```bash
 magnet:?xt=urn:btih:E2A2576663D3EF540B77FEB93A213F72DE912602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F1DCAF5F401DF024A13FBC076DF6DB573FFF59D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ The Elder Scrolls V: Skyrim (2011) [Rn/En] (1.9.32.0.8 / 4 DLC) Repack R.G. Reve
 ```bash
 magnet:?xt=urn:btih:F2B383D12DF028F8DAEFC1D5E0336CF827633E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ GPS навигатор с пробками, радарами, патрулями
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Michael Bolton - Ballads (2003) [APE|Lossless]<Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:4A3CCA3136C76D883329BE90E67E7B2F5A1F51B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B63E7A86783D584E4194E395722F36D0A05A488F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:701797B6AD0F771300527CF6BEC6DFCBA621844D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - Как ты прекрасна! (2015) [MP3|256 кб/с]<Шансон, Pop>
 ```bash
 magnet:?xt=urn:btih:84B2208BA8CCB72C136E7E74577364429B078564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Лучшая попсовая 100-ка. Зарядись лучшими х�
 ```bash
 magnet:?xt=urn:btih:2A961246F14718EE03A1734333C7427FA429B1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6439F93EDE7B2C7A66A3A595A34B94C9572B46ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE96949C00FB284CE97A7D0DEA63F265AA98F278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Rone - Discography 16 Releases (2008-2015) [MP3|320 кб/с]<Techno, Minimal, ID
 ```bash
 magnet:?xt=urn:btih:7AB681B5C5EAC37E92E4CF3DA3D7AC5F9950493F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Demis Roussos - Forever And Ever - The Very Best Of (1992) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:14175D772E5D9153767768698729B903356AAC8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:690030B0F586BA1AB43B816E8263EC4C191EAE28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Toto - Best Ballads (1995) [APE|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:116CBC91F8A1384657760E2A2C1650E9FC24E154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Геометрия судьбы. Академия хитов шансона
 ```bash
 magnet:?xt=urn:btih:C0523E2EAF2B09C626B1AC5F12663F7950CD738B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D21BF82E763991BE1833F2CFEB9AA95FC67723FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0ACEEE8775B20747A26A7DDA1F578AE588A108D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Avi Avital лауреат премии «Грэмми» за лучшее инс
 ```bash
 magnet:?xt=urn:btih:5DBC15A19D907509C9BF32A425DC99BAEDEC96B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AEF1B4D39B0E3C1347A76DAE0D9C0ED98091D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48D13D0ED32655D5A7918B56CEE5ACF4FAD008F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ VA - Полюса. Самая свежая попса (2015) [MP3|256 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:7F3D1256AABEBC63FC53A9303B061A6D63189D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFA2B8B01892DECAD39D84E8C294B40E7DED2085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E506D6119900768864EFF03670439D445A0C951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ Wolfgang Amadeus Mozart - Mozart Klavierkonzert KV.365, Schubert Fantasie D940: 
 ```bash
 magnet:?xt=urn:btih:48A5FE83B4CF030EE1CF0DE189B10AB6DB768628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Beginning Android Web Apps Development показывает, как создав
 ```bash
 magnet:?xt=urn:btih:D319FD02C35B7E22640533682A75A45785DB3C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:181EDE8F407DE2F5D8D057E50774898C869320C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ VA- Хорошие песни на Радио Шансон (2015) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:F0D0009577F67214D4BCC6C68B79CE1E4C7C85F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ VA - The Best Of Funky Breaks [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Funk
 ```bash
 magnet:?xt=urn:btih:520F1407F8F9FE6D1DCADFBF0428F7872660BAE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

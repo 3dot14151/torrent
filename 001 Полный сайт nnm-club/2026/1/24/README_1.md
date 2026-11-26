@@ -21,8 +21,7 @@ Mezcaleros - No Way Back (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:79AF010894AC41138CA1DC5A749D8D0191AAA968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.980/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1CE8A9D0894AF2238B1210DD0556EF61B85815D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2F119C716FBEC1AFA9CEF9F09D9CC826A10EB133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ The Legend of Heroes: Trails beyond the Horizon (2026) [Multi] (1.0.6/dlc) Licen
 ```bash
 magnet:?xt=urn:btih:33557D0301CF2B8BC050B1637F32FE6350E82562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 ```bash
 magnet:?xt=urn:btih:9D3D6747DB7F85F43CB508DC20A29C3C4DF8A4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A60DC3EFF08B8B2C88194FF9DAB79288ACE0CAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F91A2FE364AEC4AA0ADE92844338BE027028F1CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FA613E6F5C8B6A191698B8D6D5969E53A27BBA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Culture Beat - Serenity (1993) 1st German Press [APE|Lossless|image + .cue] <Eur
 ```bash
 magnet:?xt=urn:btih:D22843F875DA002FCCCDE57EBA926B5FE298DC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Snap! - The Madman's Return (1992) 1st German Press [APE|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:8CA3050122DEBB6B8F0F4D6F94324BAF5AADB7ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ DJ Bobo - Dance With Me (1993) 1st German Press [APE|Lossless|image + .cue] <Eur
 ```bash
 magnet:?xt=urn:btih:F0D4B5F222C852B8D81523DEC2DE26A132BDE9FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ MiX Camera вдохновлена ​​камерой Mi, но добавляе
 ```bash
 magnet:?xt=urn:btih:67376E04E79DA1BD54F2CA6810418EF4924F78AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Happy Color — самая популярная и излюбленная бес
 ```bash
 magnet:?xt=urn:btih:9DA4D87984992CB2CCA437AF87C438397A8322B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ DJ Hooligan - 3 Years To Become A Ravermaniac (1995) 1st German Press [APE|Lossl
 ```bash
 magnet:?xt=urn:btih:66FA6E31F4C3A3CEA7133D56116AFABE078F80FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ News Intro — это фундаментальный и визуально бе�
 ```bash
 magnet:?xt=urn:btih:4464CD6B7D29B03D073A7FC1F0E635C3D1F8A227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Captain Hollywood Project - Love Is Not Sex (1993) 1st German Press [APE|Lossles
 ```bash
 magnet:?xt=urn:btih:62B352BC8FCD97062DAA4B7545CD75F145EC1165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6216ACA595A54608A8316FE07E5F51DFFD35AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BF2669D4C762114D46EF316DD77F0B318E348FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5B3718C906B07A9C184D5FA985969472B45E0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ Blender Mode — большой пак знаний и ваш пропуск в 
 ```bash
 magnet:?xt=urn:btih:65DDB92E9A210EC71407150C9956252C796D5003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Blender Modeling — ваш пропуск в мир профессиональ�
 ```bash
 magnet:?xt=urn:btih:D6C47869041D6B4FEFA81996D292BA5BA9F5A540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA8756774A895C8FD43A22E504D1AE30365D5EB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1DA7CCCACD5C274B2116B7614F2865ED7763060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53BD1AFD29C328D049131516FA5F740513A645E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ Alan Morse - So Many Words (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressi
 ```bash
 magnet:?xt=urn:btih:AF99709771426D49B56B0FDCEC97596F8FF090C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A93213E85D5CB1A7EB77ECAA3B5C699EF73969E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

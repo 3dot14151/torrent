@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0496136FE1FDCD3ED4B05C40457643B06B5B1FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:426968CF775AEFEDEA082184C0B8615168561537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haikyuu!! / Волейбол!! [2014, TV, 25 ep] WEBRip 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:83C44B203C81FF5E10849AE352EB5D7EF4B6BF91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B72F0D88C9E0D48637FB683128440315D8BBD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:829C982D0BE658C217E5B10DE76BFCF801DD7957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Starpoint Gemini 2 возьмёт игроков в захватывающее �
 ```bash
 magnet:?xt=urn:btih:0B388DBB072F12C87B73C1DC7C84B82D81D8B9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14C9A06413AF776B18151EB81D76A7EC87467537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Windows 8.1 SevenMod RUS-ENG x64 -10in1- Activated (AIO)
 ```bash
 magnet:?xt=urn:btih:D011927AA1B115E9F1740395C334120A9480353A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

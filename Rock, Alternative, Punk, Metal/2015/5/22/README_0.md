@@ -22,8 +22,7 @@ Gwyllion - Awakening The Dream (2007) Japanese Ed. [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:5189AEA88B57DAB06A77BE8DD95D193D13F30E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Leprous - The Congregation (2015) [MP3|320 кб/с]<Avant-garde Progressive Meta
 ```bash
 magnet:?xt=urn:btih:C9C2D5A4484949E2919D96F632CF00424D92AD51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bohemian Lifestyle - Madame Libertnah (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0DEB9D772D44AF5D8E6636A3E131F0DDCDEA94F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pyramaze - Disciples Of The Sun (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:0463C76CAFD61A17CCFA1B1D45CBE7C9F7242CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mono Inc. - Terlingua (2015) [MP3|320 кб/с]<Gothic Rock, Synth Gothic>
 ```bash
 magnet:?xt=urn:btih:D39939C0F621A11035E3FE9711DC95406EC377BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Emerald Sun - Metal Dome (2015) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:3800ACD2C1DDA78916E5948F711893CC562EDD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Gorgoroth - Instinctus Bestialis (2015) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:F3C3C31F29FB3D9B6C5264D322DB60C9BA174038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Melidian - Lost In The Wild (1989) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D07A82CC066A148C60F67F87DC7824F539EDF09F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AFA3C282E8C50B167C3CE8130E8C5FF534CE5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

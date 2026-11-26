@@ -18,8 +18,7 @@ Heroes Of Might And Magic III - Complete & Heroes Chronicles + HD / Герои �
 ```bash
 magnet:?xt=urn:btih:6CC09549E5B527A5581D1BFE8BE972912F0BBF6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

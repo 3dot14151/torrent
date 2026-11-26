@@ -22,8 +22,7 @@ Ex Animo - Neverday (2016) [MP3|320 кб/с] <Gothic Metal, Doom Metal, Dark Met
 ```bash
 magnet:?xt=urn:btih:B309AC301A585D1766DEC0637C762DB0F51E50EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Goo Goo Dolls - Boxes (2016) [MP3|320 кб/с] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:A47656BDCBB80DE055FC2078E295628F88B09BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kvelertak - Nattesferd (2016) [MP3|320 кб/с] <Black Metal, Punk Rock, Black'n
 ```bash
 magnet:?xt=urn:btih:57755A2D4FFD84A5595A826F93D0B579EDE600E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ John Carpenter - Lost Themes II (2016) [FLAC|Lossless|WEB-DL|tracks] <Cinematic 
 ```bash
 magnet:?xt=urn:btih:0FB130A681AA21956DE6B27212B216036AB3B15B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Maroon 5 - Songs About Jane (2002) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:385A3D4D9224B7EF384C05E6AFF132F86EE62146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB1EB66F1DCE04645138EAB76F9D7BC7F2B6961C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

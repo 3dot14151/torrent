@@ -19,8 +19,7 @@ Deep Rock Galactic – научно-фантастический шутер пр
 ```bash
 magnet:?xt=urn:btih:C378024816B4614190F5753B2EF6CBBD3D45E953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (karma250620) License GOG
 ```bash
 magnet:?xt=urn:btih:1AC8E7D20A73EA977FFDBD40B53541CE8FB4F678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C3E3CD8E8B448B9BD0A8BC5E55D4269D61C8A91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.10) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:35C5566A2D9CD388194E5BC0A7CD5FC3A41A3EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E47F80BB0BEBDC2EEBAC901E45C60D5AA05EB290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2779316F0180EBD7644F9CD03A67DFC8F094358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

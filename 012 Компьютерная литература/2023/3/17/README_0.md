@@ -21,8 +21,7 @@ Laurentiu Spilca | Troubleshooting Java: Read, debug, and optimize JVM applicati
 ```bash
 magnet:?xt=urn:btih:4C36BBF26108AF9ADB6C6282E90EE46EAEBAC91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Kolawole Mangabo | Full Stack Django and React (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:C2D3D9C7F28749854A75C56D1D2679FCA933B625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

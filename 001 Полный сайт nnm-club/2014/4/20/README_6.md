@@ -20,8 +20,7 @@ Borderlands 2 (2012) [Ru] (1.0.66.6778/46dlc) SteamRip R.G. Игроманы [Ga
 ```bash
 magnet:?xt=urn:btih:666E27C864271BB7EDD68B374F9A9AC165B33124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Game Stock Car Extreme 2013 (2014) [Multi] (1.15) License HI2U
 ```bash
 magnet:?xt=urn:btih:ECF20020E01E7AF94A9A94FA4C14846EF0DCB517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Delta Force Anthology / Delta Force Антология (1998 - 2005) [Ru/En] Lic
 ```bash
 magnet:?xt=urn:btih:84247CA69DAB35205C41A8DFAD5B5060C4C1EAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ SolveigMM Video Splitter - редактор для MPEG-2, AVI, WMV, ASF, MP4, M
 ```bash
 magnet:?xt=urn:btih:6E9B0CB01A3F941F20F88A4B692EE2945DA86B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Agarest: Generations of War Zero (2014) [En] (1.0/dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:AB8D2233474BF9571DA9A594C6D89D1C80C743D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Pilgway 3D-Coat 4.1.01 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2414D6FE7F8093EF0CFAA3BCB1625DD263D7A168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Baldur's Gate Enhanced Edition v1.3 [En]
 ```bash
 magnet:?xt=urn:btih:E46EDAF9514C988A47C766C82D5564807D100673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Adventure Time: Finn and Jake's Epic Quest (2014) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:505B3502D43DD2FC56B2AA75947F350DBF3AF7D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A06C4F895CDA3A40D67C1E3724485FD837DC1462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBFD957B07D1932D9CA78C40B1D6087A6B614DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D4E9F9F0FE81D9C4DF74B0606EEA1687326D675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CFDCEF1B5BB4C41DDDA7FE5C1829CB511C2477D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0958441018AAC50442BB12101CD449DD9A99A488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C68DE723CF182F8F1BC408476056A92A532BB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ The Elder Scrolls V: Skyrim Legendary Edition (2013) [Ru] (1.9.32.0.8/dlc/mod) R
 ```bash
 magnet:?xt=urn:btih:5D6CDE4AA45C1D592D1EB6E70B5B4A23A7E51978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

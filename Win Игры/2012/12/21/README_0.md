@@ -19,8 +19,7 @@ Reality Show: Fatal Shot Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:16AD02D8248BA2C37890EC181478407F6685D80E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Torment of Whitewall Collector's Edition / Исчадие тьмы Уайт�
 ```bash
 magnet:?xt=urn:btih:13702192FB0E8087E50568780B13D6E4F5A73F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Mysteries: The Soul Keeper Collectors Edition / Таинственные и
 ```bash
 magnet:?xt=urn:btih:BE465C00C59285ECD614B578B0B0BB8DF3FDACB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Invisible Man / Человек-невидимка [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:8EE4D1AC30B4D5241E411197655BA98BA4AF99E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Renegade Ops [Ru/En/Multi6] (Steam-Rip/13/2 DLC) 2011 | R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:E094626E64C00D0788EF502273862CDCA2034AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Oddworld.Stranger's Wrath HD [Ru/En/Multi10] (Repack/1.5) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:3B12FA028E19A9D0402DD8849F32AAB3AF678CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Super Hexagon - новаторская аркада, выполненная в �
 ```bash
 magnet:?xt=urn:btih:F8E0071362206562483D116ED426FF8365C91C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

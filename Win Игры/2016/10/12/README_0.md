@@ -19,8 +19,7 @@ Double Dragon: Neon (2014) [En] (1.0/u3) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:9BF3748F31ACD15177983270312700FE577F7EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Avernum: Escape From the Pit от Spiderweb Software – это своеобра
 ```bash
 magnet:?xt=urn:btih:F6FD656B3C6BD1C7412F07DB6546B1DF784D3768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Just Cause 2 (2010) [Ru/Multi] (1.0.0.2/dlc) License PROPHET [Compete Edition]
 ```bash
 magnet:?xt=urn:btih:F0D13A772B220E28887198D4934113C32A17E2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

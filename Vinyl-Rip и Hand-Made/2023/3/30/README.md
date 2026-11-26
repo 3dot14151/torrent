@@ -22,8 +22,7 @@ Dreamtale — финская группа, играющая пауэр-мета�
 ```bash
 magnet:?xt=urn:btih:8870D5E32E79A2FB57376BF8A99690B6CB86DB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

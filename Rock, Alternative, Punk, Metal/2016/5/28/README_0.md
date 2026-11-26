@@ -22,8 +22,7 @@ The Alex Parche Project - Prohibido El Paso (1994) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5FDD98A0336A0EBAAD0F01C6C8899E3689F4D208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wings Of Destiny - Kings Of Terror (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:184396D3D49DBB94678CEE95347174E9879B83FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lonewolf - The Heathen Dawn (2016) Limited Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:AF8A5549AA06E73D1510141E619D7F4AE9C594D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Suidakra - Realms Of Odoric (2016) Limited Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:0BD193FB1A033728EBB14E9AD2CDC2726D15BA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jaded Heart - Guilty By Design (2016) Limited Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:B5B5614D6C6F921A72E51E041F6F84D734956F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Astralion - Outlaw (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:924813D027257684BFA2F748BBB16573131419DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Stardust Reverie - Proclamation Of Shadows (2015) [FLAC|Lossless|image + .cue]<H
 ```bash
 magnet:?xt=urn:btih:9B73D10F81BA5C70BCE9AEBB556EEC48A60AA465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Iron Savior - Titancraft (2016) Limited Edition [FLAC|Lossless|image + .cue] <Sp
 ```bash
 magnet:?xt=urn:btih:F8A40723B44AEBDE5FB266216784CFEBA664531F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Katatonia - Last Fair Day Gone Night (2014) 2CD, Live [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:D1D6078DA5CD10BE0E82C11EC66D9C4EC5DCBB20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47D9AD263969A73425960B236A398FBF2241D604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Queen - A Day At The Races (1976) 1996, GoldCD Reissue, MFSL UltraDisc II [FLAC|
 ```bash
 magnet:?xt=urn:btih:BFFC7311DEF2F50D1A7A7459ED411AC3BED2ED2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E3BE9C80EE3B61F3D19449E56C0FE139A130822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ The Alan Parsons Project - Discography (1976-2016) 69 Albums [MP3|192-320 кб/�
 ```bash
 magnet:?xt=urn:btih:F7908F27E37068E8260724486268900C507BD158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Dante - метал-группа из Германии, основана в 2006 
 ```bash
 magnet:?xt=urn:btih:3CD54FE933B31F4845E5217A1A6F3231B2844A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1. Voyage of the Sunchaser (05:57)(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:E5DC5BD2B2D8E79A0EE47A020B7A2C217A390187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

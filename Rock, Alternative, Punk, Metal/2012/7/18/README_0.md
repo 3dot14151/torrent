@@ -28,8 +28,7 @@ Cripper - Antagonist (2012) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Bluesville Station - Step On The Gas (2012) [MP3|320 кб/с]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:009BDEA52D4FF210D2CA2D991631F95FFB3C5879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Hellyeah - 3albums (2007-2012) [MP3|320kbps] <Southern Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Ronnie Montrose - Дискография (24 альбома)(Montrose,Gamma,Solo
 ```bash
 magnet:?xt=urn:btih:C446AA4496B4F407E9269272A5E6D6D36DED005E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

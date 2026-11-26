@@ -20,8 +20,7 @@ Online Nandroid Backup Pro 4.2.2 (rus) [Программа] (Android 2.3 +) - Б
 ```bash
 magnet:?xt=urn:btih:4B486227A53ADDD17759EE3B168B4592B7A51560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

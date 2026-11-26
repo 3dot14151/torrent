@@ -19,8 +19,7 @@ Christmas Stories 11: Taxi of Miracles / Рождественские истор
 ```bash
 magnet:?xt=urn:btih:E0424A120EF69FF8D36CE741FBFCB0E1D71DB7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bridge To Another World 10: Cursed Clouds / Мост в другой мир 10: 
 ```bash
 magnet:?xt=urn:btih:A1FDB17FE2F4FD29A754F3BDC59BBEFC09EDD94E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Urbek City Builder – это возможность заняться строи
 ```bash
 magnet:?xt=urn:btih:45A60631533DB0B99CFD07447CC374071702516C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mini Metro (2014) [Ru/Multi] (202211171226) License GOG
 ```bash
 magnet:?xt=urn:btih:A4148CE434EC7CD9BCE95439FBEA55568F033264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

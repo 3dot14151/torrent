@@ -19,8 +19,7 @@ Agatha Christie's The ABC Murders (2016) [Ru/En] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:2BC05B887CBED5911E1A8FBC66E866F19CDB20FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

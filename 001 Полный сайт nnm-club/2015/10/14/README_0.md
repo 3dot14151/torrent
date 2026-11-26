@@ -21,8 +21,7 @@ Jonathan Fritzen - Fritzenized (2015) [FLAC|image + .cue]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:9C749DDE73AE5D4C3347F56C735CF4CFE61CF1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Freddie Roach - Brown Sugar (1964) /2014, Universal/[FLAC|tracks+.cue]<Hard Bop,
 ```bash
 magnet:?xt=urn:btih:4CF728B86B0B9CCF6A1AEDFE2FF7A5942D4BEF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Icecream Image Resizer 1.28 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9BD7EAEBA9A8B621982909B42E08A21280037891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F20E3F170884FFF9A0D0DAD3BCCAC51B7C4FC03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Hans Christian - Nanda Devi (2015) [MP3|320 кб/с]<New Age, Meditation>
 ```bash
 magnet:?xt=urn:btih:42EC0F410A5E4671E9157F52B419038F967B31DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Stacie Collins - Roll the Dice (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:36D5B5BCC7AF947250D8DCF6371EF0E8BDA72C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A1A358841B8F28737A9F773F830F8773F632E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A87B6E796EC45D370D6AC99CB1B2EA188AB1C9E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Cookie McGee - One Way Ticket (2010) [MP3|320 кб/с]<Blues, Electric Blues>
 ```bash
 magnet:?xt=urn:btih:AD0F4294688D712FB302A6E28221C8EB1622786B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Icecream PDF Split and Merge PRO 2.29 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BDAEDAA136EB5772C6CED521EE941976EF5CC810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Polarity – современный интернет браузер с подд�
 ```bash
 magnet:?xt=urn:btih:1F4426BB46A2C2D6120166E3E20E4DE457A63F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Icecream Slideshow Maker 1.34 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3685E5C20C7F0C01F0CEF8E34B59A678B533BC88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF913EDFC8F66481F2E81ACF1019F8111BB330DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Icecream Screen Recorder 2.63 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9D28AD06A2FFF6A9B057D195277D7A5072B1115B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3ECE6DEB2A40A6E7A8FC3940265C946E09D3EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E6AB0DF4030D41167D4FF245DFCD653CF832D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ VA - ... And Darkness Came (2012) Headphone Commute [FLAC|Lossless|WEB-DL]<Ambie
 ```bash
 magnet:?xt=urn:btih:04C74E2B36FEE2A5EAE523A1B6ED4B935F6FC53C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C28CD5D20053D877FEF679C3362A1F507FDDF331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA86755BCFA065C499F2DEB32230076A271D8F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C05F89C50EA32756E56CD52DE4ABE99CCAC97FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:494C82FB4C5A43190ABA2687BC6A263EB206587E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89C2CAE2771EA87D1E99DDE6A495C46DE0102C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ Icecream PDF Converter PRO 1.66 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CBF3F67A74D2E4FCA8CE0A4D61276E7D72345FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ PointerStick 2.67 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4D880CE91C56A2324044D2D7B614BD5F78B3FDC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76B453D5806A90E2E53BE5C0A3F1672238C25518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ VA - Creative Music Box 26 (2015) [MP3|320 кб/с]<Dubstep, Glitch Hop, Trapste
 ```bash
 magnet:?xt=urn:btih:2F42592CA43B9FE665ED05BBEC07576C9207BC65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

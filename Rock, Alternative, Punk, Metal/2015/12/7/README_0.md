@@ -22,8 +22,7 @@ Stereo Nasty - Nasty By Nature (2015) [WavPack|image+.cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C2BFCA2F4F832187777BF59430DF0032BB1C0FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Reverence - Gods Of War (2015) Japan [FLAC|image +.cue]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:18DA7B7ADBC42D5A4CF271151E9847D69CDC6221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F181634E693F4766A8C513BF92DA1109F8374D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wintermoor Tactics Club (2020) [En] (2020-05-04/dlc) License GOG [Wintermost Edi
 ```bash
 magnet:?xt=urn:btih:3207359C2DE7C6F2A13049F2BFC1487860FC1B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Stevie Wonder- Songs In The Key Of Life (1976) [FLAC 2.0 24/96|tracks (Vinyl-Rip
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

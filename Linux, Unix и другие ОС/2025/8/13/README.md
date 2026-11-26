@@ -19,8 +19,7 @@ RAR - это консольное приложение, позволяющее �
 ```bash
 magnet:?xt=urn:btih:6E4ABAAE565BA0782B83A1503B91E87BC8243D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Lindi Ortega (Линди Ортега) - The Drifter (2009) EP [MP3|320 Kbps] <C
 ```bash
 magnet:?xt=urn:btih:6EF856CE8FAD8D697389C9F3D2EAB0BE0A6A266C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nicolette Larson - Live At The Roxy (1979) Remastered, 2006, Rhino Handmade [MP3
 ```bash
 magnet:?xt=urn:btih:32FDCB17DEC9F451741CFD601C3A5C534ED8FD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lindi Ortega (Линди Ортега) - Untitles (2008) EP [MP3|320 Kbps] <Coun
 ```bash
 magnet:?xt=urn:btih:09562A16602BFD2C3E084B7BC6F0564C43018C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nicolette Larson - In The Nick Of Time (1979) Warner Bros. Records, HS 3370, US 
 ```bash
 magnet:?xt=urn:btih:BEFF1BAEE365D351091A2A0DA6B5C749A6F4349B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nicolette Larson - The Very Best Of Nicolette Larson (1999) Compilation [MP3|320
 ```bash
 magnet:?xt=urn:btih:77D86CB0AAF57111974132CEEFF2808D26911A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

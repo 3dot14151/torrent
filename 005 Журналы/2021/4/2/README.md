@@ -19,8 +19,7 @@ Cosmopolitan — международный женский журнал. Сод�
 ```bash
 magnet:?xt=urn:btih:959FFBB6B7FE75D4E1779212B434BD14CFE669DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

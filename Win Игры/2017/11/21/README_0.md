@@ -19,8 +19,7 @@ Dreampath 3. Guardian of the Fores / Тропа мечтаний 3: Хранит
 ```bash
 magnet:?xt=urn:btih:50990BB5177AA1189C7C69C8981B0A5782E255E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blackguards 2 - сиквел пошаговой ролевой стратеги�
 ```bash
 magnet:?xt=urn:btih:6DA7B17E7EA7E47A957F72D048713293B0E2F9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

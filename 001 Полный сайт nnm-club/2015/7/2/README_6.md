@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9037D7AE113622EE8BD5A011B8CE5791E7EF8EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Adobe Premiere Pro CC 2015 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:EDAC9412E1F7AA1263E3AE3E6BCABEB636263A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E95E07D5858759A8DCDF280234DFA25AC97DA37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Prototype (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En/Mul
 ```bash
 magnet:?xt=urn:btih:88793AB3E3B83B9E32854AE2945F51344E40E993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF0319CA90E1901260D5383F2CF981BBFE19F67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:881BFD21ACAEF67B44849F96EDAB65493ED8A677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8F2019C10EB4F47AAEDAE0A8E2CBDAF411102D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Ultimate Car Dock 2.3.6- Dashboard  - Используйте свой телеф
 ```bash
 magnet:?xt=urn:btih:E7FDDFB3E80782A8C096C0C58C84D70701FB67AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2465FBDAFC2DEB5D2B91FF1AFC1E8A8941991AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Adobe Media Encoder CC 2015 - это программа кодирования, 
 ```bash
 magnet:?xt=urn:btih:B7CF04B05E0F9EE957B190D9D38788DDC2FE898D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ SamDrivers 15.7 - Сборник драйверов для Windows [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4EDF5A46A011B99B31F584EF30E65820F6CB128D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Adobe Muse CC. Совершенно новая версия 2015 года. Со�
 ```bash
 magnet:?xt=urn:btih:546787D61088414613529303FFD8EDC74065D5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ OS X 10.10.4 Installer USB for Win (14E46)
 ```bash
 magnet:?xt=urn:btih:568CFDAF66F8021D43280C7126D3EBBF31897655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F83495D2466AF2A408891B9A6A7D54776A96ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF04BB722050F7A8973AF9E4C24CC8B698676873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD21FB4EE9A3E5B2BE31076D601871B559F943ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Adobe Audition CC 2015 (8.0.0.192) [Multi]
 ```bash
 magnet:?xt=urn:btih:14307A1040BCFA8AF62F59947C75AFE2E69B678E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Half-Life 2: FakeFactory's Cinematic Mod 01 - 2013 (2005-2015) [Ru/En] Mod
 ```bash
 magnet:?xt=urn:btih:85C5D1FC3AF5368970A534945F29A4A420E76F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ Avid Media Composer - программное решение с дополнит�
 ```bash
 magnet:?xt=urn:btih:99186E416F21E604A993601720F8BFCBAB1B78BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Kerish Doctor 2015 — Комплексное решение для ухода �
 ```bash
 magnet:?xt=urn:btih:4A30E1224911BD11FE1EDF81FF8F5DA9A60412B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ High School DxD BorN | High School DxD Third | High School DxD 3rd Season | Де
 ```bash
 magnet:?xt=urn:btih:985BAEB279C4859288E97793E41A601EC6102334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +553,7 @@ OS X Yosemite 10.10.4 (14E46) [Multi/Ru] (Installer)
 ```bash
 magnet:?xt=urn:btih:0ED09D342230E91474E658A8CAA890BD34F2DE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DBDB91848FC7DEDFF92F4E9BAF6440AEB0A6D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +606,7 @@ Sony Vegas PRO — профессиональная программа для м
 ```bash
 magnet:?xt=urn:btih:14B7C10EABE1C0B02D1F2ADED8D21B7215C552F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

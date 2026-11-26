@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:4F2B8BCB688813C566884A02D1EE332D60F87093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:709D1312D42ECE4D7D9A01B82F2AE3BBBB464F29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F52E4652B252BC296E94CA13BDF175F7B4F64F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8921FE53BB2ED898AD4861EE4B86400A0BDD9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2F36203085565309409E58D43FC20A847E884F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:253FDAA9D1B539879D60AF6EDD25744C9660C9B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3F4325544407416756BD3AE5383D2C0FCFC146B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:249AE451EAF1308902EAB7CFDED840448BFE185F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Hisstönend - II (2013) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:018D3845C558768A5F354DCC1990F7B7B8709847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Wolfgang Dauner Quintet - The Oimels (1969) 2007, MPS[FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:B57F7C2436CADB5E06828796CE6B819BDAC64263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Hell Theater - Reincarnation of Evil (2012) [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:46D327B9F01DBC6C8639FFD6F3F5A1733601F030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - RLX 9: The Chill out Collection (2015) [MP3|128-320 кб/с] <Downtempo, Ch
 ```bash
 magnet:?xt=urn:btih:A1135E26586784265EE17E1F1900304E39CD867A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Les Grooves: Selected Vibes for Cool People (2016) [MP3|320 кб/с] <Deep 
 ```bash
 magnet:?xt=urn:btih:5A2F77C9BDE85400F0A9380C7FE38CAB43BD209D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Hyborian Steel - Blood Steel And Glory (2012) [FLAC|Lossless|image + .cue] <Epic
 ```bash
 magnet:?xt=urn:btih:F39FFC64D750A7C1124A78D8A4CAA751A9FD6431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Dennis Rollins' Velocity Trio - Symbiosis (2015) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:B07084B66E5A40DF21A29E248E714A5380F8D211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Conqueror - Madame Zelle (2010) [MP3|320 кб/с] <Rock, Prog Rock>
 ```bash
 magnet:?xt=urn:btih:9FEE7CB94B2C281891EC6A42CB6958B7370A7EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Karasol - In Your Wild Garden (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, 
 ```bash
 magnet:?xt=urn:btih:1AC39455F6B06DE736AEAE00AAD0D4249727C471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Dodsferd - A Breed of Parasites (2013) [FLAC|Lossless|image + .cue] <Black Metal
 ```bash
 magnet:?xt=urn:btih:147F1B46FBBB50B9CBFFCD1C33A102419AC0D1AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Enoch - Sumerian Chants (2013) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F0998AF451824EDED7C492CEFA2ED05362C50E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Ice Cold July - There Will Come A Day (1994) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:ACE6F30A8B9D2A52DB141A201063728357D5A314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ VA - RLX 10: The Chill out Collection (2016) [MP3|320 кб/с] <Downtempo, Chill
 ```bash
 magnet:?xt=urn:btih:D394672BE16F23ECD2507680C1CA371141FEACC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ Opium - Chaos Theory Laboratories (2011) [FLAC|Lossless|tracks + .cue] <Ambient,
 ```bash
 magnet:?xt=urn:btih:50653D8BE2DEC25AC9627B49BB7E02D1BE7863B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ Charles Mingus - Pithecanthropus Erectus (1956) 2007, Warner Music[FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:F4247AE3562E0CCD0084807C78708124134AEA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ Cam Buma Project - The Calling (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jaz
 ```bash
 magnet:?xt=urn:btih:B43AD6C3BF52824B9FD6469576D7391680640F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:2186D1D82B3095604AC188A42D6EF3A3529FC875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ VA - Super Bomb Electro - Classic (2016) [MP3|320 kbps] <Electro House, Electro>
 ```bash
 magnet:?xt=urn:btih:CC35E95898DF183BD033E3556B69BCBB19737FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FTP Rush — бесплатная версия FTP клиента, для пер
 ```bash
 magnet:?xt=urn:btih:C0076B68569F4FD5923E0D103B16E83F2FF111A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ThisIsWin11 - приложение для оптимизации и настро
 ```bash
 magnet:?xt=urn:btih:F8DCB30C7E18B6E6961D01717979048E274D929E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ jv16 PowerTools - достаточно мощный набор утилит, п�
 ```bash
 magnet:?xt=urn:btih:2A71D3018F2D718F7B6880632CB78BE3A4EDBD14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ WebBrowserPassView - небольшая программа для восстан
 ```bash
 magnet:?xt=urn:btih:B1D5D5C39CF32750013A7AD877F28F8B0DA99C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

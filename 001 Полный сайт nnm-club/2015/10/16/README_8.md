@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A830FAC813B6C12B0AB3CE2DDBC7BF13F18314AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Paragon NTFS for Mac® OS X стирает границы между систе�
 ```bash
 magnet:?xt=urn:btih:1199C6D152926164D9DDBCE6EF103F499A935B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dungeons 2: A Game of Winter (2015) [En] (1.5.1.392/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:2B929B60238A27A2EA8EF48BE5735944E1F51739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF5B3D979A95238727B76D73A6B28B7F644D977B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Adobe Acrobat Professional DC — это полностью обновленна
 ```bash
 magnet:?xt=urn:btih:5885164D794832C4989DD18D6DA3CFD27A7F5F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Windows 10 (x86/x64) 12in1 by SmokieBlahBlah 15.10.15 [Ru]
 ```bash
 magnet:?xt=urn:btih:E5C23CA5E19FDD37B43BADB01E637DF2793E8FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ TNOD User & Password Finder – это программа, которая при
 ```bash
 magnet:?xt=urn:btih:EAE6EC4AF4A9F949AD6F74172406BF86C356A814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Warhammer 40,000: Deathwatch (2015) [Ru/Multi] (1.0) Repack xatab [Enhanced Edit
 ```bash
 magnet:?xt=urn:btih:E82B8F0A2D7381834833528ADB547E026D0A106D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Call of Duty: Advanced Warfare — шутер от первого лица, ра
 ```bash
 magnet:?xt=urn:btih:26E072895CD0CE7F01D3F44E27135C7CBACC1DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:522DDFF2D206448275DE43E07132EA1AAFC342FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:B32B1E507476E2E9F379F970CC2067E8B8BCDC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Destiny + Destiny: The Taken King (2014) [PS3] [EUR] 4.60 [Repack / 1.16 / 10 DL
 ```bash
 magnet:?xt=urn:btih:FD6B3E98547537140FB89A5AFC96F2D817306187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3991F905DBE456CE3E49E55947ACB7D1B6A894EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

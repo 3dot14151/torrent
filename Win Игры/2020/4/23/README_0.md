@@ -19,8 +19,7 @@ The Shattering (2020) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9DC01891B22639C914A5B2CE29870018BE371AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0.4.1) License GOG
 ```bash
 magnet:?xt=urn:btih:19CBEB1876B8607124D1CA296E8C64746D34969D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Broken Lines — это тактическая ролевая игра с раз
 ```bash
 magnet:?xt=urn:btih:9FBEAF404224C11AF4C76DC195D3DF92CF6ACF38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

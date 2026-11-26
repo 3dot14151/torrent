@@ -28,8 +28,7 @@ Anna Von Hausswolff - Ceremony (2012) [MP3|256 кб/с]<Progressive Rock, Indie 
 ```bash
 magnet:?xt=urn:btih:2F0B06DE7D9A123AC65B523F85F5971A99ED5BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Paul McCartney - Memory Almost Full (2007) Limited Edition 2CD [FLAC|Lossless]<R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Monkees - Greatest Hits (1995) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ We Came As Romans - Tracing Back Roots (2013) [MP3|320 кб/с]<Metalcore / Post
 ```bash
 magnet:?xt=urn:btih:CC572DD3A78E72EB10315BDC87B0D167A2DCB0F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Powerwolf - Preachers Of The Night (2013) (Limited Edition) [MP3|320 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:BA9E46D1A1E57AB1406E921D96D0708A89A0259B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Chris Cornell - американский гитарист, композитор 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

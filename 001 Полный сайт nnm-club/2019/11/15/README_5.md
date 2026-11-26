@@ -18,8 +18,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:9F7AFA3E184AE60243C3F743328150ED6F5978A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Adobe Photoshop Lightroom - незаменимая программа при р�
 ```bash
 magnet:?xt=urn:btih:3F5932A6895E7553A2883C09F6781907AF620E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ ru_windows_10_business_editions_version_1909_x64_dvd_675b5388
 ```bash
 magnet:?xt=urn:btih:22AF685BCFC537FED718702DAC523697892D23B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA30B6B941074D4714DBDAB435B1196AFE26EFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:458B88444AAEB8425A7B8E96F7B394D78AA5FD67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Bee Simulator (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A48DDBCF8DAA7430004E798A7194CBDFB3D43DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:A4871C79E84E25E285DAD2E35B34899C405BB4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E856EA01781002E2B098D913D5C78BBA312DF929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Terminator: Resistance – шутер от первого лица во врем
 ```bash
 magnet:?xt=urn:btih:F12E5D332C3E0C8B9721D608D4CE81E090888A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ RAGE 2 (2019) [Ru/Multi] (1.09) License CODEX
 ```bash
 magnet:?xt=urn:btih:D931D426C54EB7077DBD3F063DEFE13941E8FB3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Office 2019 — новый офисный пакет от корпорации M
 ```bash
 magnet:?xt=urn:btih:F700AAE142CEB1AFD79CB9A07E5208A15F740C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ RAGE 2 (2019) [Ru/Multi] (1.09 Update 4) SteamRip =nemos= [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F9F46684D7FFCF93CCA00559993349F213D92CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

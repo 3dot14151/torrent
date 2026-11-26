@@ -19,8 +19,7 @@ Obduction (2016) [Ru/Multi] (1.6.5) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:3D761EA00A804D7870D32CF7F0BF0B5C0FF247A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nioh: Complete Edition — полное издание приключенчес�
 ```bash
 magnet:?xt=urn:btih:1B557B529B884C410EB4DE5E9C9AC2B719F1E71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WWE 2K18 (2017) [Multi] (1.04/u1) License CODEX [patch]
 ```bash
 magnet:?xt=urn:btih:E95DAD7B7CD4FE0C49A9F4806881985C6B5FE976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (2.02) License GOG [20th Anni
 ```bash
 magnet:?xt=urn:btih:F5B04985324F77F9D16E04B50EACEB38A520B0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

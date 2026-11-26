@@ -18,8 +18,7 @@ Causal Loop - нарративная головоломка с научно-фа
 ```bash
 magnet:?xt=urn:btih:D6E50F299910DECAB77AAEB72B1DC55C95CC1DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Otus, Юрий Пасхин, Никита Иванченко, Алесей Че�
 ```bash
 magnet:?xt=urn:btih:745219EB5A4E95E01D2AC1E67E5F619D25192392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Kristala (2024) [Multi] (1.0.3/dlc) Repack Let'sРlay [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:DF2811ACBACF5524C08E5FE05741F3C4840E44F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ichijouma Mankitsu Gurashi! / Жизнь в манга-кафе [2026, TV, 2 и�
 ```bash
 magnet:?xt=urn:btih:5D1C370089AAA75FD4BCDBD8A20A61E23F8768B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mullvad Browser основан на движке Firefox ESR. Содержит �
 ```bash
 magnet:?xt=urn:btih:BFA2933BF5C655C941FD1F8FF1B9602E79676BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Sabayon Linux - дистрибутив Linux, созданный как форк
 ```bash
 magnet:?xt=urn:btih:8B2A91B6628F5FEAEE09ECC4C7E86831E79C3A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Netrunner 13.06 Stealth Edition (Анонимный доступ в сети) [i
 ```bash
 magnet:?xt=urn:btih:F206279B44B8E079009D5B03382A1E98DC386867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:5A2CC0375E0A4C28EC1B6B83B36384F9696AED2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

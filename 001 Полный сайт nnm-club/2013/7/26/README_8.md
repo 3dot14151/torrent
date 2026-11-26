@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2771C7FD6D7E8AE8D9F4BD4FECA9950B50DF3B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Torchlight 2/II (2012) [Ru/Multi] (1.25.5.2) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:7EF2C09AA557705F37772D86F69BD59EABD3EB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E859D56CD8893A01366FF3F8A6720C963A50CD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5180240FC52BFA079B096F7C7AD398ACC8CE462C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Halo 4: Идущий к рассвету / Halo 4: Forward Unto Dawn (2012) BDRi
 ```bash
 magnet:?xt=urn:btih:F48D63B2828B2EF64F1E2732A98E3206057146A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6604731899EB6236E6A0DC0A66136E2876365387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Parallels Desktop 8 для Mac работает с последней верси
 ```bash
 magnet:?xt=urn:btih:66BCFCD48F6AFA60513A7CC9877D4E56FF4CF186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ The Pretty Reckless - The Pretty Reckless (2010) [FLAC|Lossless]<Alternative Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Tandy Leather Factory | Библиотека кожевенных дел мас�
 ```bash
 magnet:?xt=urn:btih:E0A81473B160EA1C1E8C0F827E2B0877D9CB090B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Shadowrun Returns (2013) [En] (1.0) License Fairlight
 ```bash
 magnet:?xt=urn:btih:B3FB5A4D8063F3963E1177FC3813B2679E3A2A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F9CA4C73E419065C4F4573F15AB0DB03C0B2EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ City17 теперь Бобруйск-17 - большая оздоровител�
 ```bash
 magnet:?xt=urn:btih:85AF34C006C4A8791E4EC0F5D1D1ED176E10E49E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Plex Media Server  0.9.8.1.46 (Смотрим MKV, AVI на Apple TV 2/3 без 
 ```bash
 magnet:?xt=urn:btih:69F10F58E140E9E219DB306B96D19678B3E32BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3A9D27B1C82A9510D666E150B4678E2923A84BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Fable: The Lost Chapters (2005) [En/Ru] Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:38273738A8DFF58972961850719C1AB961BCD473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65216F291AF92D9A40950319B6E5C43619F740FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

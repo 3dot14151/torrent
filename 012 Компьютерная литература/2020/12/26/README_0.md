@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:282D9E54B03F1FED618824928B99FD7FD323BF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B6A2F5C3821798618E6F3953C9C611BA74B82BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Kotlin - один из самых быстроразвивающихся язы�
 ```bash
 magnet:?xt=urn:btih:2521118D939AEDC64BF59DF4C6BF57AA40C95413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

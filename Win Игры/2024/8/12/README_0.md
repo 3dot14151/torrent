@@ -19,8 +19,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:A3CA41F83232824B1541498B9B6AADBBC5C96881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Voltaire: The Vegan Vampire - это фермерский рогалик-экш�
 ```bash
 magnet:?xt=urn:btih:D796D6DB055A13CCE196C3310E514EB00E3A8D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888.1721314771/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A9FF34D90847B36F04B6D899A2401A58A2AE5A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Zoo Simulator (2024) [Ru/Multi] (1.00.23) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:579B45B85105FF6AB5FC3444874E5B0E59C81959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wine Hunt: Aim Fidelity (2024) [En] (2.0.1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:57DEF607E9F873D1CF145022E79EC41177E37CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bo: Path of the Teal Lotus - яркий платформер, предлагаю
 ```bash
 magnet:?xt=urn:btih:83931E2BB1AE0A1C13E4FE89874F48872B79C166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Deathbound - действие игры разворачивается в сре�
 ```bash
 magnet:?xt=urn:btih:B21EB2D092118BB5248EACFFFAD7DDB141924CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Hot Lap Racing (2024) [Multi] (1.0.3-0cfd3d1de) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FACA0D0DBEC68155D4BE300E4F4F7E5207EA1527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01/d
 ```bash
 magnet:?xt=urn:btih:25F7700E57F0F891489EA35DE20F1738332F90CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Cursed Fables 5: A Gilded Rose / Проклятые предания 5: Позо
 ```bash
 magnet:?xt=urn:btih:010F7EB740C12D9BC4F9EE4F5925FB7E9686B711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:B5A58E65D5AD2E49D3451415B145B564169B6EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ City of Stories 2: The Professor's Secret / Город историй 2: Сек�
 ```bash
 magnet:?xt=urn:btih:E86B2B9A932E8C035D4AE5904DE8A7FE6C464618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:92D867C4DD0B0153E9DB3E884B04B90FF25E4D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ A Space For The Unbound – игра, выполненная в пиксель-�
 ```bash
 magnet:?xt=urn:btih:188C80A45A7F33C3666448390783B46F8DD41DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ My Recycling Center – теперь в вашем распоряжении ес
 ```bash
 magnet:?xt=urn:btih:38BD13F25E46F503DF38DB879568CD0933B36EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Fozzy — американская хэви-метал группа.
 ```bash
 magnet:?xt=urn:btih:46559443E0979F542F4D933AF84E9D407EA52E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5A3741CAC7E106A729D2B12BDF7660BD6A8663F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

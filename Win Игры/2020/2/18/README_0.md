@@ -19,8 +19,7 @@ Enchanted Kingdom 6: Arcadian Backwoods / Зачарованное короле�
 ```bash
 magnet:?xt=urn:btih:659CC0B5CF35F5883C1D479E31CC4840E4D30004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Immortal Love 7: Stone Beauty / Бессмертная любовь 7: Нетл�
 ```bash
 magnet:?xt=urn:btih:10AE5C0D819E335F2168F9B12EFB97ABA1AD20EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Train Sim World: 2020 Edition - захватывающий симулятор, �
 ```bash
 magnet:?xt=urn:btih:E4C3BDE86F4A15676BF7FC066FDA23068128914E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Sylvan Realm - The Lodge Of Transcendence (2011) [MP3|320 kbps]<Black metal>
 ```bash
 magnet:?xt=urn:btih:E7052C68DCA988771063FE9844B87C20574B434A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ While Heaven Wept - Fear Of Infinity (2011) [MP3|256 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:0FF352BD48F747C638B7F3779D657F8033F7A689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ The Haunted - Unseen (2011) [MP3|320 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:4293F3EBA265D9CE1EA95838BF0E2704A47495BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Hydria - Дискография(2008-2010) [MP3|320 kbps]<Symphonic / Gothic / M
 ```bash
 magnet:?xt=urn:btih:0B98BAFB08E51A1BCC50EAF371E253D28454919D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Ian Gillan - Magic (Japanese Edition) (1982) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:320BF9C8A6E0D094569994341B485E6538F16DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61DF99DA9F6FCE83A8F9BC0A28893750D56BAA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Black Sabbath - Greatest Hits (2009) [FLAC|Lossless]<Hard Rock, heavy metal, doo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Nickelback - Greatest Hits (2009) [APE|Lossless]<Alternative rock, Post-grunge, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

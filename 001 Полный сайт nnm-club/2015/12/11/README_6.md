@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:66BC04A69673A55D7F6794BC8125ED77441F2E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:145FBD64BC7B1FEEAB41D2997DB4A28D0DFC69DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDC939DFA37F5EE474A2560F0280BA898F3F0E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Windows 7 SP1 (x86/x64) + Office 2016 26in1 by SmokieBlahBlah 09.12.15 [Ru]
 ```bash
 magnet:?xt=urn:btih:D96D64C5E20BAF604FC8DE899A634279A1DCF9B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ The Sims 4 (2014) [Ru] (1.13.104.1010/dlc) Repack by xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2E8E603CE234432FED72B844CCEA1DB02F80E147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76ADD1B97B992B0E9CE8F74B09AE67469ABDBAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

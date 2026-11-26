@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:8303B45C4228CA1426BF3366CA8FF503B10E6AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Gratuitous Space Battles - космическая стратегия, в кот�
 ```bash
 magnet:?xt=urn:btih:2E4C466B5763FC71C3FBFA712553CB28429C6FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA9C31740045CA4E8451BA2FC8B7F16A4789D115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Oil Platform Simulator - поиски неуловимого черного зо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Far Cry 2 [Ru] (Lossless RePack) 2008 | RG Packers
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Lost Planet 2 [Ru/En] (RePack/1.1) 2010|  R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:92A82C609372EE861140B4986100A74E78CF36C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Nancy Drew: Alibi In Ashes / Нэнси Дрю: Сгоревшее алиби [R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

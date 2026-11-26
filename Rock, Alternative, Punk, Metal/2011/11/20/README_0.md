@@ -28,8 +28,7 @@ Exxplorer - Vengeance Rides An Angry Horse (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9BF1F8DFD40ED665969BC33FF8F4959862738890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Haken - Visions (2011) [WavPack|Lossless]<Progressive Rock/Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Badda Boo Happy Band - Концерт на Светлой (19.02.11) (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:B5A6270C8ABE97C54EA94BDE5A2D8347006E837F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ CD1 (01:12:19)
 ```bash
 magnet:?xt=urn:btih:2E704EDC480741DF5E1DDB345B6F2912AE8A82D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ LaFee - Frei (2011) [FLAC|Lossless]<Rock/Pop-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Insomnium - 5 альбомов (2002 - 2011) [FLAC|Lossless]<Doom Metal, Melodic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:507C63A5E86B403046ABF7AC153B155F18B60A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

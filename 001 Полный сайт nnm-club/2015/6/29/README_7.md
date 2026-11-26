@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:921E7FE38855F20A4E2B141D6473B22F5D1439E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Tekken Tag Tournament — четвёртая игра в серии файтин
 ```bash
 magnet:?xt=urn:btih:534D259604665C63D3EE68E3F7E7801889E98811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:770C75B0DC542B8CCD53FD49384382EB728CC524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Shadowrun: Dragonfall - Director’s Cut - самостоятельный рел
 ```bash
 magnet:?xt=urn:btih:A95C0D95641AD6319161EF628D9809668213A4AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ FreeTV v1.1.4 [Ru] - просмотр Online TV без внутренней ре
 ```bash
 magnet:?xt=urn:btih:5A20CC59CBBC8074101343211DAAE65F0554FB58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Anime Studio PRO - профессиональная версия одной из
 ```bash
 magnet:?xt=urn:btih:4163EC1298BBAA5B8E1BF205F67BCB8E894F4BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA11E0739137EEBD216E2E25006D69405E91408A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA1288116AC2CCC7E7218DB895EBF2971016B713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ AlReader 1.65 150531 [Ru]
 ```bash
 magnet:?xt=urn:btih:9876A79851E973281E2BFA774DA7362D43A895A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:031600C8325C797B817E417AD94A0AD9E08ED3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

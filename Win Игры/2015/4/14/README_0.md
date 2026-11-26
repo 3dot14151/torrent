@@ -20,8 +20,7 @@ The Novelist (2013) [En] (1.11) Repack TE
 ```bash
 magnet:?xt=urn:btih:6029FB6DD34FCEDFB7777B19C7525D5795327DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ I, Gladiator - Замечательная эпическая игра I, Gladiat
 ```bash
 magnet:?xt=urn:btih:BBA2B0B3308BEF0B78D4ADC9C355CE461D2BB3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mythic Wonders 2: Child of Prophecy / Мифические чудеса 2: Ди�
 ```bash
 magnet:?xt=urn:btih:54E966DF2FE963223385DBA1BD3B08B0EEF90460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fear for Sale 5: The 13 Keys / Страх на продажу 5: 13 ключей
 ```bash
 magnet:?xt=urn:btih:45A014068846C5B8311824C4118E2D04A0AADC7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fear for Sale 7: City of the Past / Страх на продажу 7: Город
 ```bash
 magnet:?xt=urn:btih:BF1ACBA468165C31D3CE022888A6C9266B9A7329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dungeons 2 (2015) [Ru/Multi] (1.6.1.31/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:EDF87F3F21E76D35492139D30F285559F435A211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Baja: Edge of Control HD — обновленная версия оригина�
 ```bash
 magnet:?xt=urn:btih:714E196CF2B8FBBD7A9982F7E0B0F4691ACAF67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

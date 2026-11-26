@@ -19,8 +19,7 @@ Tyrobot - система автоматизированных исследова
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Julian Priester - Love, Love (1974) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:9FAA78C84C86FD642F345654F5E7D923D60218BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ N/AЖанр: Melodic TechnoПродолжительность: 02:00:57
 ```bash
 magnet:?xt=urn:btih:26C23A1D04A5E2BE4E24BF5404B3BF3DCDC2B797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ DJ PATRIOT - Trance Mix (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:6CE3AD3E9EE4CDD399540ACF9A8ED4DA7B775A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ DanyLove - Вторая ступень (2010) [MP3|320 kbps] <Downtempo, Ambient
 ```bash
 magnet:?xt=urn:btih:CBD8C9883DC7B98896290F14B8AD56603B86A18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Armin van Buuren - A State of Trance 637 (29.10.2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:D3A305E70ADF0983CDFA8A71885E828442071599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ VA - Chill Evening: Hotel Lounge Edition (2013) [MP3|320 кб/с]<Downtempo, Lou
 ```bash
 magnet:?xt=urn:btih:D3BA6765D5C4F0C01B14A41AE929F1300934745B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24C869414B746B6D15BA64FDC35CAAB0F84E60CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56E6BA5BBA0302E1B433E67E8B0B68563823C8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ Side Liner - Emotional Diving (2006) [FLAC|Lossless]<Dub, Ambient>
 ```bash
 magnet:?xt=urn:btih:575EF4B75E444BA7588ACDB2A4932214DDFD6E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46B6793C67EEBA97EE8B188972EB5DEC94F3392B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ Desdemona - Lady of the Lore (2001) [WavPack|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:62885FA0AED7FAB744776A756B95B6383EA9E044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AE8C8612A24A3714C77F9C6BC7675BF9F1013FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ Julie Tippetts - Sunset Glow (2000) [FLAC|Lossless]<Jazz-Rock>
 ```bash
 magnet:?xt=urn:btih:750D8E6895EF11F4A446A27EEC577D251F34D472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:536B8574E17F388736760825A5D61D26D12EFF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +452,7 @@ Popular Photography – американский журнал для широк�
 ```bash
 magnet:?xt=urn:btih:6A2F189492155291E65F5A2E8F65FD549C8B3BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ MyGrain - Planetary Breathing (2013) [FLAC|Lossless]<Modern Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0FE3FD1F2396444FEC596FA7ACD178CA153109B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ ForeverLive - 4 релиза (2009-2012) [MP3|128-320 кб/с]<Piano, New age, I
 ```bash
 magnet:?xt=urn:btih:92140ED91C57B8CD5598341F06662C1AC9BEC43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ VA - Chillin' Nightflight (2013) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:D2D3CAFEAB6EDFEB48609BDADCAC2887E65C3808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ Benga - Chapter II (2013) Deluxe Edition [MP3|320 Kbps] <Dubstep>
 ```bash
 magnet:?xt=urn:btih:92018D487D02DA029C0B2CB0BC6C955ED487969F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ Weltschmerz - Dunnen Faden Des Lebens (2013) [MP3|320 кб/с]<Drone, Dark Ambie
 ```bash
 magnet:?xt=urn:btih:D37895A06BD8F7209DC85881B910ADF3D5E4AE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:321DBDA3A604479C684CFDFB8C264B547C6DA864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +669,7 @@ The Junior Cook Quintet feat. Blue Mitchell - Junior's Cookin' (1999) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:276C0B1C60544CE7FEE3ACEBFC43D3F150E1FD50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BF294B1F16DD849016B42E3A5FA0CE2CB8C3224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:684E3700B13886F2A325274E604BDE859F1B980E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +746,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C6866AF84306EC0F5858FC46185581B0672A6C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

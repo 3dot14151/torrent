@@ -22,8 +22,7 @@ Bad Company - Rough Diamonds (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:FC2A661789B5C4A58D10283D083063A97D31409A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

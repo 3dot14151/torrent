@@ -19,8 +19,7 @@ YARVITTO v3.18 Pro [Ru/Multi] - путеводитель по Европе и н
 ```bash
 magnet:?xt=urn:btih:8A098D14C9D832FCBF77DFE77B466A84BE191422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ All GPS Tools Pro - приложение предназначенное в пе�
 ```bash
 magnet:?xt=urn:btih:74C9413CA389A96B70DD621213FFE3C99E2B4A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hidden Expedition 15: The Curse of Mithridates / Секретная экспед
 ```bash
 magnet:?xt=urn:btih:A11EFE27F2F3CBF41BEEFA25EFCBE8182A8B9462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deep Under the Sky (2018) [En] (1.181) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C1FDB55B786C4B0D3038B81700CEE41A2AB6CE0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gravel (2018) [Multi] (Update 2) License CODEX [patch]
 ```bash
 magnet:?xt=urn:btih:78640472A915350CB4EED82A1D1F34AB1800E8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Outbreak: The Nightmare Chronicles (2018) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DF7E915A7D48D0730F2B6153059FB1FE2684F4FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kartong - Death by Cardboard! (2018) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:EF2E4EBE7747FE91A87C28D53E949C380D45B0BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Empires Apart — стратегия в реальном времени о Ср�
 ```bash
 magnet:?xt=urn:btih:E44F1B4078FE321313EE9DD96139402100FB6A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Empires Apart — стратегия в реальном времени о Ср�
 ```bash
 magnet:?xt=urn:btih:87D3AF89F77161AFEFAABB43F3603F5B2B4B053D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

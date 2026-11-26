@@ -19,8 +19,7 @@ Al Emmo and the Lost Dutchman's Mine / Эл Эммо и сокровища Зо�
 ```bash
 magnet:?xt=urn:btih:FAEB6A3F034B7CCB014861C7D726C6AD2D7B99C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

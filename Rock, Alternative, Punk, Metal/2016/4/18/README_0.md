@@ -22,8 +22,7 @@ April Wine - Harder.....Faster (1979) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:A1E465BBADAD69A500947EE17565B1E12DAC9C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Riot - Fire Down Under (1981) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:06F4D32DA2B14AE607B496D1DD755266D504353C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eths - 5 Альбомов + 1 Compilation (2004-2016) [MP3|320 кб/с]<Alternat
 ```bash
 magnet:?xt=urn:btih:546FDEB11C3B9F63418CC350C211BCD7BC84EC1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Drive She Said - Pedal To The Metal (2016) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EEA073AA67DDD79C4F6A90C02F504637F38FB42E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Lucky Dutch - Cadillac Coffin (2016) [MP3|320 кб/с] <Hard Rock, Blues Roc
 ```bash
 magnet:?xt=urn:btih:F8019AAE563943E14D433F9A46168B26F2A620BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mordor - Власть (2016) [MP3|320 кб/с] <Rock, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:D98BDFBAC25E029481901588CEA407CFDC3D3720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Metallica - Kill 'Em All (2016) 6CD Remastered Deluxe Edition  [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:7B1209D22B11A2F57B933964D9ECA62304A3D7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

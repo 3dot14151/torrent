@@ -19,8 +19,7 @@ Volume (2015) [Ru/Multi] (1.1.04) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C7C8720D7ACB3778F0D5887E5BBA720F9E6A4523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Firewatch – игра о взрослых людях, ведущих взрос
 ```bash
 magnet:?xt=urn:btih:865F7404E7D56207BBA4CF167BDB412711EFFF42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.0.19854) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E3001D5078D1147EDC8DD5E1CE888AE17374025A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ God Eater: Resurrection (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:7F84D4EFD9954CAC12BC06A6E9B6E28602F84144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

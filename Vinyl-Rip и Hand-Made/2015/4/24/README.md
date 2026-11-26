@@ -23,8 +23,7 @@ A5. Seventeen (4:34)(   Читать дальше...   )Производство
 ```bash
 magnet:?xt=urn:btih:3E37A27E7A3794ACE239B0470EEB48A4BCB19FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

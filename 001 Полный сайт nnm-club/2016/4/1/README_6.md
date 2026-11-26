@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7A34F4D553967CADAA71C1150A5E59C68D22062E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2FEBAAA3ADADC80F94AB736A415BAC61577D627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B9604D850ACC91AA7951D480D1C7CEE512447F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Blue Sheep (2016) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1F68C409E581CBE71CA65F21317EA819C9F42CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C52661C164F1B1141E0416607DDF397375A23761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Little Big - With Russia From Love (2014) [MP3|320 кб/с] <Rave>
 ```bash
 magnet:?xt=urn:btih:F810F743127BB139AF6EAE6A684F5EBC29DB562E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Smart Keyboard PRO является быстрой мультитач-клави
 ```bash
 magnet:?xt=urn:btih:CFDF73C177E2AC92797670F6CA5D88C46708CBE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F985ACCD29D904AC7F80A88EDFE30DFF3AA3995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7680429DAAFEB3ABEBA7E03A94C950B2235F49DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Layers of Fear - жуткий психологический триллер, с�
 ```bash
 magnet:?xt=urn:btih:CF0016BB37C870596FFAC0B68727450BB104CED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ DAEMON Tools Ultra — это самая мощная, функциональн�
 ```bash
 magnet:?xt=urn:btih:DE077BA93B3E797FA507BE4021F81A9AFD0D638A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2255C285C1CAB0DFA3BC9FAC8CDB61450F3FB581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Assetto Corsa – новый гоночный симулятор компани�
 ```bash
 magnet:?xt=urn:btih:571B1A8B053F980403AE2516605F2C6C7E657BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Antonio Vivaldi - 4 Seasons of Love (Il Tempio Armonico) (2010) [FLAC 2.0|96/24|
 ```bash
 magnet:?xt=urn:btih:C16587DA15C22C5A6C6F342567F7DD26C7149F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DBB5D20581C909B8D705FDC96EB603DF6518D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ Windows 10 сочетает в себе все лучшее, что было в 
 ```bash
 magnet:?xt=urn:btih:44FDA7E5ACB719B0B13B2B183BDFDE8F43B48E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Lucy ~The Eternity She Wished For~ - это визуальная новелла 
 ```bash
 magnet:?xt=urn:btih:14EEF7773EC6B3B925C3114EFA9CDC47C7FF547E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Never Alone — это атмосферная головоломка-платф�
 ```bash
 magnet:?xt=urn:btih:CA288CB8A6D46BB0B2AADB1753FA7EA1F3BDD925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7D24FB819E64304DDC5128B85D46F6DA54EF6B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Labyrinth Legends  (2012) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [E
 ```bash
 magnet:?xt=urn:btih:7A34EEF474CEA115B968999419D4ADA0ECD66132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ ESET Endpoint Security 5.0.2260.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:09AABF5B0347770C7BD0238376BB6EDEDE15D379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0276378F3D49F56CF944ADCB628A5936717F225E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ Teorex Multi-View Inpaint - это программа, предназначен�
 ```bash
 magnet:?xt=urn:btih:7B6F8C05F51539ED09CC31F07112717BC9238BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ Pose Tool 3D 6.8.79 [En] - Инструмент постановки поз дл
 ```bash
 magnet:?xt=urn:btih:66E3D5D06E336D5E5C2ED3F29CAFDF72E599EB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ ESET Endpoint Antivirus 5.0.2260.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:985C7A671E4DA8FA2BBB7A0CBFD8DCE3A58C8230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

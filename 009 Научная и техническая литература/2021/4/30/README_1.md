@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8B9785615049908B413A33D86796C3BB79AC127B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ NeoBook — это компьютерная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:319E9BFE584DFFC49CDC3C4D8D2CB6E0FAC23A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6BE434253CF2FB59D8E4AF2B50808A09DD0AB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

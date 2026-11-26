@@ -22,8 +22,7 @@ Ohmwork - Ohmwork (2015) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:14F83D044D638D3787289E817C300271A7532097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Diminished 7 - The Regal Chapters (2014) [FLAC|Lossless]<Melodic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:93769362409E8B1A02C14F63603514074BF65488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sterbhaus - New Level of Malevolence (2015) [MP3|320 кб/с]<Blackened Thrash/D
 ```bash
 magnet:?xt=urn:btih:C558186D4BD9B43EB72D82CDA3BA239AC45065DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Isvind - Gud (2015) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:CF37853266967CA0467254693B880ECFCB01E664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Undead Corporation - Shunsatsu (2015) [MP3|320 кб/с]<Modern Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:5F410DF2826AE3A5F52A1F5022415D29B4A8B453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Whispering Woods - Perditus Et Dea (2015) [MP3|320 кб/с]<Symphonic Gothic Met
 ```bash
 magnet:?xt=urn:btih:EE9DCD06E79A4EC61998E597458193A0E2C6EBBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Fall Of Carthage - Behold (2015) [MP3|320 кб/с]<Modern Thrash/Groove Metal>
 ```bash
 magnet:?xt=urn:btih:A00689FF9592A1A5E8A006570E14434A09CAAA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Midnight Odyssey - Shards Of Silver Fade (2015) [MP3|320 кб/с]<Atmospheric Bl
 ```bash
 magnet:?xt=urn:btih:540FA5D115356B545D1115F3C713C25CD7C6EC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Astral Son - Silver Moon (2015) [MP3|320 кб/с]<Psychedelic Rock / Krautrock>
 ```bash
 magnet:?xt=urn:btih:C4EF589BFE50852E2A87A8E2970BAE23D2FC2C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Lou Pardini - Look The Other Way (1998) [FLAC|Lossless]<AOR, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:012B7144FB6AD8CDB3A48B400DF68051B0A877C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Luca Turilli's Rhapsody - Prometheus (2015) Single [MP3|320 кб/с]<Symphonic P
 ```bash
 magnet:?xt=urn:btih:603639D47D0D6C09ABF3B2F23E6EDFBC1F484D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Axel Rudi Pell & Friends - Magic Moments (2015) 25th Anniversary Special Show [F
 ```bash
 magnet:?xt=urn:btih:6D670E54E38F053851E400F9587AB9DEBD4B37AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:35164848ADDC8EC813BEFA7402D577B2EF9358A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Helloween - My God-Given Right (2015) [FLAC|Lossless|WEB-DL]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:4C58639600236477FE2A5E1B3C4E84DE5FC83895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Paradise Lost - The Plague Within (2015) Deluxe Edition [MP3|320 кб/с]<Gothic
 ```bash
 magnet:?xt=urn:btih:4426F3BA147D69E3833A80F880314A587056EB2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Florence + The Machine - How Big, How Blue, How Beautiful (2015) Limited Deluxe 
 ```bash
 magnet:?xt=urn:btih:E382C7DA7AC70B579394494BCCF3BB76A4985E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Tarja - Luna Park Ride (2015) [MP3|320 кб/с]<Power Metal, Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:A50E78629A61B586117213CEBD60D1D7C24939B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A14F478808AFD57931E473A7E92B2333A4B1DC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AC69A96495EAB15F0B2D04F954A038CC6DD52FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ Helloween - My God-Given Right (2015) Mailorder Edition [MP3|320 кб/с]<Power 
 ```bash
 magnet:?xt=urn:btih:830A56DE6E3A70FC06177A295CB7B356B785B6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ EP к новому альбому фронтмена RAMMSTEIN Тилля Лин
 ```bash
 magnet:?xt=urn:btih:E17C5E1A3C8CAF79919740C1DA6AC4EE01CE48CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ Sepultura - Chaos A.D. (1993) [FLAC|tracks + .cue]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:BCA3F4EE230B83C0DEE0B78B7B8369A795A5D5AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Тiнi(   Читать дальше...   )Жанр: Hard RockПродолжи
 ```bash
 magnet:?xt=urn:btih:A17A4CE643D8847CE7E1CFD22E22534E740929BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Muse — британская рок-группа, образованная в 1
 ```bash
 magnet:?xt=urn:btih:5FBA7EF7B7B54B620C338E049529D44B629B3255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

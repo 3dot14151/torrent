@@ -26,8 +26,7 @@ Astrophobos - Remnants Of Forgotten Horrors (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:AAAE365C0F78957981817A9748EECE90CA55EABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Iskald - Nedom Og Nord (2014) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:DFF3CD2E71FFD283E32F12D58830EFC6C73EAC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Valkyrja - The Antagonist's Fire (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:872DFB3E330C3FDF96B718DBDDD23D779E6744C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Iguana - Iguana (1972) Reissue, Remastered 2012 [FLAC|Lossless]<Rock, Fusion, Pr
 ```bash
 magnet:?xt=urn:btih:860A584C18033E7F1E48D483BD22305F3DDD6A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Blind Passengers - Neosapiens (2001) [FLAC|Lossless]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:B3E0EF2A9AD2733AC7D993A8906F9CFE55A17F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Judy Dyble - Talking With Strangers (2009) [WavPack|Lossless]<Folk Rock, Psyched
 ```bash
 magnet:?xt=urn:btih:65777CA77A1DBC3C391330AA8463BD2A7393798C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ VA - A Tribute to Queen - Tie Your Mix Down (2000) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:AAC4551B20C9C6A0D5EC801819A939B46141E9F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Harmonium - Les Cinq Saisons (1975) Reissue 1991 [FLAC|Lossless]<Prog Rock, Symp
 ```bash
 magnet:?xt=urn:btih:FF892E1AC5EC86DE3567B4B671FDB1EC7E5F7EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ Aura - Вдохновение (2013) [FLAC|image+.cue]<Symphonic Gothic/Power Me
 ```bash
 magnet:?xt=urn:btih:66EB3A287497111597FE975427B8354875B658D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ Def Leppard - Slang (Deluxe Edition) (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6E114FC7F9C05E57A61853B77FDF06D584EB9B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ Sam Brown (Сэм Браун, настоящее имя — Саманта Бр�
 ```bash
 magnet:?xt=urn:btih:ABB7F2B8F6A1F8968FCBD8627DBF9DB261ADC3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

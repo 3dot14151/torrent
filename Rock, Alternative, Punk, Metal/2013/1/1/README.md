@@ -28,8 +28,7 @@ Sanction-X - The Last Day (2009) [MP3|320 kbps]<Melodic Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4D62451EEC5D8FFE2F7CBAAD923200EBC8B2FDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Kryptos - The Coils Of Apollyon (2012) [MP3|320 кб/с]<Thrash Metal/Heavy Meta
 ```bash
 magnet:?xt=urn:btih:CDF598CA8D5757B62FC5E6C6DBEE545CC6483D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Sulphur Aeon - Swallowed by the Ocean's Tide (2012) [MP3|320 kbps]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:77A3B5ABD685F15F545968BB79776F55A4719BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Stigmatic Chorus - Fanatic (2012) [MP3|275-295 kbps]<Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:71C76BDEA0D40DB43DB51CCC8A9FEFDE869DA8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:919C37B41A520137CBF5E33AB8D9E9130EC50854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

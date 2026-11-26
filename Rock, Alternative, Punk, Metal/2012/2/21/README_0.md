@@ -28,8 +28,7 @@ Autopsy - All Tomorrow's Funerals (2012) (2012) [FLAC|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Five Day Week Straw People - The Five Day Week Straw People (1968) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:B0B230EE87585AAA7627B073A928625A3387F41B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Judas Priest - 3 Albums + 2 Compilation (1978 - 2011) [FLAC|Lossless]<Heavy/Spee
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ The Beatles - Sessions (Remastered Edition)(2010)[MP3|320 kbp/s]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:844FE38E104AFEC7757D10AF3ECCE4E6E2DD51BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Ricochet - В Тени Гигантов (2011) [FLAC|Lossless]<Punk Rock/Hardcor
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

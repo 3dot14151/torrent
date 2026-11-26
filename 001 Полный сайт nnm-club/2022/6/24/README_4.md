@@ -18,8 +18,7 @@ Zver Windows 10 21H2 Enterprise LTSC v.2022.6 x64 собрана на основ
 ```bash
 magnet:?xt=urn:btih:BDA2983486F276456C385AA446C04B8D62FCAF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9375E4358FF8491E5C0A06ED1E4D87DFAFDF85C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ MX Player — видео-плеер для Android-смартфонов и пл�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Multi] (1.0.0.145) Repa
 ```bash
 magnet:?xt=urn:btih:AE63B30D7FF0740FB35ECC6DE122C2BDC968AE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ RESIDENT EVIL 2 / BIOHAZARD RE:2 (2019) [Ru/Multi] (Build 8814181/dlc) Repack Ot
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:CAE8C4C9E9CD2599E273A85AD2A44AC7759770DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:E21EF0754862EB91BC90178836ADF264CF72DF7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9160FD2D22EB52C3AEAF498CC1F53059A11C84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Topaz DeNoise AI 3.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:72E6C61789E4254412034A8BA5722750E8AF15F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FBB1BAD4E9CF2E2CD8D043607A15B33DAD32EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Adobe Media Encoder 2022 - это программа кодирования, к�
 ```bash
 magnet:?xt=urn:btih:D34748F63D90DFAE3714A270C2F778E11C0337F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3A8E2CEF4FC57D27220482011DE3C1A834B32F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Adobe Audition 2022 22.5.0.51 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:188ED8CCF505E83A1B8857F613279EB25B4EDD21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:891932F06A4905B3A3FA8EDFC239FB335D2DB03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Date a Live IV / Рандеву с Жизнью 4 [2022, TV, 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:A3E4ADDBE857626543EB748DE99C8C1BF3216986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0407268BE7FAD743E274335DA1A00DFF400089C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ Go быстро набирает популярность в качестве я
 ```bash
 magnet:?xt=urn:btih:1A75B1B3D2C6DDC846CCFD79CE861672C93A525D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic / Госпожа Кагуя: В лю�
 ```bash
 magnet:?xt=urn:btih:FC97A51EBB3E5BF76631C7576132E150A3876A3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C931B6242FC3B5F7E919A59ED52999264EE24B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ LEGO The Hobbit (2014) [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7480D7D92DE9025D5C9397C43DA1E47F44EE1BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A872AE17E2F17466196BC0BB52851ABC1EDF7354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:674EDBA2434065D4AC178FB9185D46428D1BDB6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 ```bash
 magnet:?xt=urn:btih:1AC94AFB5DA9827FF2F906E4B73B5CBEDF8293F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B63A0D3430FFA6EBE4DBCF22FBA4E88C9739C6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3B1DB31B5E50D7524FBEC42861AD5109F53E88E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

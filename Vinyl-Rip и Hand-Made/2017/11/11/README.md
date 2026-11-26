@@ -22,8 +22,7 @@ VA - Наши баллады (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop, P
 ```bash
 magnet:?xt=urn:btih:B5434AD69CFD4823BAC88102C80729EFEC6783F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Never Before (4:00)(   Читать дальше...   )Производст�
 ```bash
 magnet:?xt=urn:btih:B5E0401134233488E96CEDC46D52C0AF098364D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

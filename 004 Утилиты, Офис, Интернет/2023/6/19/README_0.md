@@ -19,8 +19,7 @@ CPUID HWMonitor - утилита предназначена для монито�
 ```bash
 magnet:?xt=urn:btih:72F15F7CE1A607FAF89410F7A7BA08A6991068F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ashampoo Burning Studio 2023 – это мощное программное ре
 ```bash
 magnet:?xt=urn:btih:CA63432FEBFA57C44F4F560A7398E2DAAB18F52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ iTop Screen Recorder позволяет записывать видео экра
 ```bash
 magnet:?xt=urn:btih:29B7185D575DE0555CFA85E1A021F9CEAD1BB874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

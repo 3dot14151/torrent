@@ -19,8 +19,7 @@ Seven Nights Ghost - интригующая и захватывающая игр
 ```bash
 magnet:?xt=urn:btih:3FF165B4CFF3DFE632387FC76F4F73E65736C9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Prison City - это динамичный шутер с боковой прок�
 ```bash
 magnet:?xt=urn:btih:8FB8ABACB6F6B40103B2BD6C8E5836965106FB06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tavernacle! (2023) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5145399FDD56A1BDF15FBD9DCDFECF751A7EDC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Raiden III x MIKADO MANIAX (2023) [Multi] (1.0/dlc) Scene Tenoke [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:AEE4573D070D0182CFD8037A78D03B90506D2403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ANONYMOUS;CODE (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7886A22CD77B2691610BB996E260A752CED52D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Isle Tide Hotel (2023) [Ru/Multi] (1.0) Scene DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:B234351E7BF354B9B9224D5A71252B668F7156C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B86254BB8BC696670D02F96D92245D334DB1D8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6C2C505F48768E54BD67D318AC61706DF09BB00F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Cold Waters (2017) [En] (1.15g) License GOG
 ```bash
 magnet:?xt=urn:btih:7A77424647CAD3D95977A6D13E3951F41D9A13F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

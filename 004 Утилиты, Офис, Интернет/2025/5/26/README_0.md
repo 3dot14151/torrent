@@ -19,8 +19,7 @@ Directory Opus — альтернативный файловый менедже�
 ```bash
 magnet:?xt=urn:btih:28AF453FA2D7ADFA5344BF8C5A29E03AE67CB257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:9B0F248795CCE7F0AE207BDB61710DA19B71B2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

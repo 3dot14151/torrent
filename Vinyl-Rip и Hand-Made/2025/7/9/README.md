@@ -22,8 +22,7 @@ B4. Solitude(   Читать дальше...   )Жанр: Progressive MetalПр�
 ```bash
 magnet:?xt=urn:btih:BEB3673CE45CC421835DAB2973AE5A594119B0EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B2. Second Chance(   Читать дальше...   )Жанр: Progressive Metal
 ```bash
 magnet:?xt=urn:btih:34D7F0E29F9D40AFEFE5D0A059600288E8D94BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Rock Ballads Volume 1&2 (1993) Unofficial Release [FLAC 2.0|48/24|image +.c
 ```bash
 magnet:?xt=urn:btih:5A17B8B0F50F991395096614B7BF544291753A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ SIDE A:
 ```bash
 magnet:?xt=urn:btih:ED8A09DD43A06A0E201E0C3CD24970643E4C9F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ A4 Believer(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock�
 ```bash
 magnet:?xt=urn:btih:6F0F2142130DC3800D13C567AC2C80EC241EAF30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

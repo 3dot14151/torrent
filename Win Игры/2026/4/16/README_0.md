@@ -19,8 +19,7 @@ Windrose - это PvE-приключение в эпоху пиратства с
 ```bash
 magnet:?xt=urn:btih:32AFD3F5AC632901810A9A74BAF27812F74D5BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Heroes of Loot - это ролевая игра, в которой вам пре
 ```bash
 magnet:?xt=urn:btih:D638A8E8CD0EB3C14877AA47408812024DD90E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Weird RPG 2 - это инновационная игра в жанре экшн-
 ```bash
 magnet:?xt=urn:btih:C12F7930631E943045A15E29A6C678F419E9FFE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cthulhu: The Cosmic Abyss (2026) [Ru/Multi] (PR1.8324.29803/dlc) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:20F250C4635AD4214DDFF46AC1AA9C7244EBFC9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -25,8 +25,7 @@ FIFA 13 воплощает драматизм и накал страстей н�
 ```bash
 magnet:?xt=urn:btih:822F6AC115622ED7CAF3C10078AC70DBD54B7D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

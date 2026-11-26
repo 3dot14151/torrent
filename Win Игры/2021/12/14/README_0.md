@@ -19,8 +19,7 @@ VenusBlood HOLLOW International (2021) [En] (1.0.2/dlc) License GOG [16+]
 ```bash
 magnet:?xt=urn:btih:89606B75B1DD2028446A3989B283EAD498B8C08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Teardown (2020) [En] (0.9.0) Unofficial [Early Access]
 ```bash
 magnet:?xt=urn:btih:AD46F9FA181990F16315608C67561A97A3EF059E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wildfire (2020) [Ru/Multi] (1.04.06) License GOG
 ```bash
 magnet:?xt=urn:btih:042D1F71324D382D7FCAFCDB2886E417B9BBB973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

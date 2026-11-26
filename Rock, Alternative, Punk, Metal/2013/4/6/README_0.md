@@ -28,8 +28,7 @@ Holly Throsby - See (2010) [MP3|~172 кб/с]<Indie>
 ```bash
 magnet:?xt=urn:btih:C3D21CB5E4B9CB9ADCD392FC5B7FF357E48B95FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98F9854A3547861E482E90E9EAA2487AAD4E885B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Summers - 364 (2013) [MP3|320 кб/с]<Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:E3D9A772E23C132BA5A301603A843E4B1027E3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Elvis Costello - National Ransom (2010) [MP3|~172 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:A58A0792F7E8691718E6B2C59547EC1A89B0A68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Drowning Pool - Resilience (2013) [MP3|320 кб/с]<Alt.Metal | Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5F1A348ECADDE7B0FBF6619B2289A4EF59722D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Paramore - Paramore (2013) [FLAC|Lossless]<Alternative Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

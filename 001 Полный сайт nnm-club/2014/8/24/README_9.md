@@ -25,8 +25,7 @@ Malcolm Braff Combo - The Preacher (2000) [FLAC|Lossless]<Fusion, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:B48E681A7443CAC5211D264173E2407C957B2380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ VA - Voltaire Music Pres. The Moscow Diary (2014) [MP3|320 кб/с]<Funky, Club 
 ```bash
 magnet:?xt=urn:btih:21C380DDEB885334370C562DC504904DD0510CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Adsol - Unprecedented Landscapes (2012) [FLAC|Lossless|WEB-DL]<Ambient, Downtemp
 ```bash
 magnet:?xt=urn:btih:B8B01A99A7A51FEBAE653EA3BE8D03309A3D3889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ USA Pro Challenge  — шоссейная многодневная велого�
 ```bash
 magnet:?xt=urn:btih:69C12D16047DB6D7D9C0F9284CE6909EF075CA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ Nomenklatur (Nomenklatür) - Minotaur In The Lost (2012) [FLAC|Lossless|WEB-DL]<
 ```bash
 magnet:?xt=urn:btih:34F5BCC6DE16DD952A0349660F2790AA2DDD8A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7119FDD558377D87DEAEF1CBF8B69F7439F365F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ Henry Carpaneto - Voodoo Boogie (2014) [MP3|320 кб/с]<New Orleans Blues>
 ```bash
 magnet:?xt=urn:btih:6B971757AC48367465936C91F7BB7590A985C052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ USA Pro Challenge  — шоссейная многодневная велого�
 ```bash
 magnet:?xt=urn:btih:B11771ABF41116E433C3EAE609929D8715199291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:BF03DB785851327BFD130590B42FC29F0E3E3A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ USA Pro Challenge  — шоссейная многодневная велого�
 ```bash
 magnet:?xt=urn:btih:CADD34E0740D9A5A3453B18A404F15B26E6666A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ Dave Fields - Time's A Wastin' (2007) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:16114B61191FB5CB2ADF4E8AD2F43AF60E15A7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA6B0028F518546C9774418FA748306E31D6D904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ VA - Armada Top 15 - 2014-08 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:09CD000F4683C3CFA3525AFEAAAB45D64A0D6683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ NGC 3603 - кипящее скопление массивных звезд, са
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ Zeeteah Massiah - Juice (2014) [MP3|320 кб/с]<Blues, Jazz, Pop>
 ```bash
 magnet:?xt=urn:btih:90A52078C7ED450387DABC648EBE93AC2B39099B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ Dust Bolt - Awake The Riot (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E641BF4D4746BF5C95CC82C4E82217B9929F90BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2758BE0C54CA8F0D76ABFFE25FDAF70D8E06E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC7FD9B78F40DB7D504F1465CC07A6B5BFA790C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D627B03F237AB1178203BCEA6393EEB761B0174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67412706697C1EDFC47C04346E668820E2BF8E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF0A16CDCA64FF9F56E03399DE9F5A76873785A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ Process Lasso Pro - позволяет вручную или автоматич�
 ```bash
 magnet:?xt=urn:btih:40B347A6B6BB4142D980E9AF424D1D47B3AF9CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6887F9455999CAF49F679D92E0340C47562C352F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ DJ JunGo & Jin Shi - #best13 (2013) [MP3|320 кб/с]<Nu Disco / Deep House>
 ```bash
 magnet:?xt=urn:btih:AF89CC190D7DB2644BA21FA4285E1E9A6B0A09DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E66368DE1BB2919BEF0BA922315B86BA23A1427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

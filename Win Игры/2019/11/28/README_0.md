@@ -19,8 +19,7 @@ Mutant Year Zero: Road to Eden — то, что нужно, чтобы удов�
 ```bash
 magnet:?xt=urn:btih:A0C5E0AF64EF954B4FC9BA7A7D2647B625A6FAB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

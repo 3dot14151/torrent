@@ -20,8 +20,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.1.1b/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4BEBB8E6880A89F5202FCA8BBD02E26F65128404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:48303D712C5273B6FC7DE6D7A2DE6D9CB5A00692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Far Cry New Dawn (2019) [Ru] (1.0.5/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4450CE45AAB56AA4B37798025A80564290A764AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

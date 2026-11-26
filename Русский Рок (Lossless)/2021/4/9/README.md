@@ -22,8 +22,7 @@ KAUAN - Ice Fleet (2021) [FLAC|Lossless|Web-DL|tracks] <Ambient, Post Rock, Folk
 ```bash
 magnet:?xt=urn:btih:65DE97F9AA81D61BDEAA194CB8939E87A48B648A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

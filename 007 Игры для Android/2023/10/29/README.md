@@ -19,8 +19,7 @@ Death Worm - управляйте подземным чудовищем на And
 ```bash
 magnet:?xt=urn:btih:F67C24878CA93BCBDE0CFC0D4FE5A1E9D0EE5575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

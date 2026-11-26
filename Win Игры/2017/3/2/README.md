@@ -19,8 +19,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack R.G.
 ```bash
 magnet:?xt=urn:btih:BCBD9A98076584694E63791ABFDEE35CDFE65F62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Expeditions: Conquistador (2013) [Ru/Multi] (1.6.5) License GOG
 ```bash
 magnet:?xt=urn:btih:68223425210DC65E5E650B46E46FFBF379A42677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Club MStar / Клуб MStar (2016) [Ru] (22.02.17) License
 ```bash
 magnet:?xt=urn:btih:495F2B40549B6D2BAB710F244CDFA40B5D6BE5EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

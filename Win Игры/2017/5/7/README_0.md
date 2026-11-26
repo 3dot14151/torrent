@@ -19,8 +19,7 @@ Harrowed Halls: Lakeview Lane / Обитель Страданий: Лейквь�
 ```bash
 magnet:?xt=urn:btih:C4F3B34470C95F20AA38ECEDFAD8704981A28361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Queen's Quest 3: End of Dawn / Королевский квест 3: Конец �
 ```bash
 magnet:?xt=urn:btih:3868A53E3C118EAFBFB1AF609BE45C6B9044F927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enchanted Kingdom: A Dark Seed / Зачарованное Королевство
 ```bash
 magnet:?xt=urn:btih:5DBE2981D956548B64117E7FB27210618564596E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.02) License CODEX [patch]
 ```bash
 magnet:?xt=urn:btih:3FD75D0206686D4721684C0B3D2EC2ABBBEF13ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

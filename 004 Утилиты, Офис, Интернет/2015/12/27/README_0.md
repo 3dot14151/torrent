@@ -19,8 +19,7 @@ CHM Editor — это инструмент который позволяет с�
 ```bash
 magnet:?xt=urn:btih:2F8356EAF59CF321A85D80F84F8FB4444E81AFCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

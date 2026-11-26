@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:51891A4C7BA429D29C3820B45A184386D03A7B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:049951A703404D26DB3A80C374EBC414459DDABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ XVII век, Италия. Придворный короля Витторио А
 ```bash
 magnet:?xt=urn:btih:7F5968629B45A529549C25682E37D77115284107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

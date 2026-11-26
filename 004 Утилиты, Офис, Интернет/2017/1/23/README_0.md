@@ -20,8 +20,7 @@ Stellar Phoenix Photo Recovery - программное обеспечение, 
 ```bash
 magnet:?xt=urn:btih:B3876AB29022C02A55FC2688394872EEB693AD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Upsilon Acrux - Sun Square Dialect (2015) [MP3|320 кб/с]<Avant-Prog, Math Roc
 ```bash
 magnet:?xt=urn:btih:D8BB55B9EDE72165A80012CADBAA9C6FD36E6FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sitcom - What's Up (2015) [MP3|320 кб/с]<Indie Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:535D82F4178D01DB82E228B0DCBEA2E12ECE5C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Diabolicum - Ia Pazuzu (The Abyss Of The Shadows) (2015) [MP3|320 кб/с]<Indus
 ```bash
 magnet:?xt=urn:btih:A0F86790F665510D9266CA87A4AC6BDE82F92266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rancid - All the Moon Stomper's (2015) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:B439DB6FAA739A7D565EC1E5446C3F3FAA7D9A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Yukon Blonde - On Blonde (2015) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:114B120BF3B2BD5DCFBC7E323AFE9D8CDB32CDB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Vasya Club - Хiпан (2002) [FLAC|image+.cue]<Folk-Rock >
 ```bash
 magnet:?xt=urn:btih:F77731FB6A9B1D16C98EB41DD44A55D1AEEC2039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Captain Beefheart & The Magic Band - 2 альбома (1980-1982) [FLAC|image+.c
 ```bash
 magnet:?xt=urn:btih:4BE6876648F0B1490B6A8FDDE5ACB0C909BF9B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Dead of Night - The Dead Shall Rise (2015) [MP3|320 кб/с]<Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:D9190247460F749727AD7C452A23D7635E0D0513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Smokie - Changing All The Time (1975) [FLAC|image +.cue]<Soft Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:2FDCCE1D96008FE8C0CB25B51EFA69E82206AF36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Nils Lofgren - Face The Music (9CD) (2014) [MP3|320 кб/с]<Rock, Heartland Roc
 ```bash
 magnet:?xt=urn:btih:4BDA181561461A02E32780C789F46BB2B39AE755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Europe - War Of Kings (2015) Japanese Edition [FLAC|image+.cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:22E55C83B7E7E4621F6F3C1DE44DA8CFF092DF63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

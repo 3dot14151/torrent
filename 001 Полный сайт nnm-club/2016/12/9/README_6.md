@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Adobe Illustrator CC – это принятое в качестве отрас�
 ```bash
 magnet:?xt=urn:btih:9F67A66EED49103B0042884337CE5468DA87D118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Microsoft Windows® XP Professional SP3 VL 'Retro' v1 [Ru]
 ```bash
 magnet:?xt=urn:btih:40F0197897BC3CB1A8F7CBE0F2EE8C834A4807E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

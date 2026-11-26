@@ -19,8 +19,7 @@ Crashday – это своего рода «все-в-одном» для люб
 ```bash
 magnet:?xt=urn:btih:A5523AE1CB0DD34E084554589F6DC6C54324871A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grand Theft Auto: Vice City (2003) [Multi] (1.0) License
 ```bash
 magnet:?xt=urn:btih:6C651B373E1B5C8B3E94FD3118247B2E8E97DB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

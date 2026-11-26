@@ -19,8 +19,7 @@ HDDScan 4.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:3A241D60EF51DA885DB17BACDA81A94BA25A2C79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

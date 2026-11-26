@@ -25,8 +25,7 @@ Mafia Dilogy (2002-2010) [Ru/En] (1.0/1.5) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:256642CB356DCDF61CE542E9293F653331C01C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:17B4DDD29AFDD9CEBABACD7AEFF8F4D86FB69A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:72E53BE4131F9659D4923D59306088972EC56B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ B4 -  Vibe (Instrumental) (3:16)Жанр: Hip-HopПродолжительнос�
 ```bash
 magnet:?xt=urn:btih:4C94CC8C0EFAAA97C0DAB48CC53F6B975A62E02B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Haywyre - Smooth Criminal (2014) WEBRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:79CA4289FC3537865125AD26CDD83EB9BB6C187E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ McKenna Mendelson Mainline - Stink (1969) [FLAC|Lossless]<Blues, Rock, Blues Roc
 ```bash
 magnet:?xt=urn:btih:70AD8FE45A4E0137DDCB527F9B14931A1F310BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Fhloston Paradigm - The Phoenix (2014) [FLAC|Lossless] <Techno, Experimental>
 ```bash
 magnet:?xt=urn:btih:54C3E1AA3040449BEACAAFAD647B1F6E44F639F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1A442CF108C43EDCB1B547779C5789658449BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Jim Suhler & Monkey Beat - Starvation Box: The Best Of Jim Suhler and Monkey Bea
 ```bash
 magnet:?xt=urn:btih:FA38D0CBFAD3DC3B0FB30FB5F6608832B41A4EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7DF81E4E26CEDA7A61CCBAC09B17386B4006A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C1CE77DAA5A284AADA249E3B158E5BC3F85ECBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71E67BB6F4A2F25AE251030419794AC756D3A3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ VA - Sudbeats Vol. 2 (2014) [MP3|320 кб/с] <Techno, Tech House, Progressive H
 ```bash
 magnet:?xt=urn:btih:09F48805C069746745FB4A565BBB38A517708C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ RL Grime - DJ set in Mixmag Lab (2014) [H.264/720p-LQ] WEBRip
 ```bash
 magnet:?xt=urn:btih:A98C568F47E42B1C5F65ED84364C04CF0BAD5C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ Mad - For Dancin' - 28 Superhits (2006) [APE|Lossless]<Disco>
 ```bash
 magnet:?xt=urn:btih:5A3666DEA2B6508A9AFEF6449B777CF295417467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +434,7 @@ Monte Kristo - Sherry Mi-Sai (2007) [APE|Lossless]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:F93DF302BED4B694D5606AF9181B869E2B281DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ VA - German Top 100 Single Charts (17.07.2014) [MP3|~256 кб/с (V0)]<Dance, Po
 ```bash
 magnet:?xt=urn:btih:C42A846245005D5463E051088A53F4D9FAC610DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F397C9403A890DA62E39E50549D33F5169BE6736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4F0D03E9025A5C7B7FA53C0DFD27761EB27B567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ Monte Kristo - Sherry Mi-Sai (2007) [MP3|320 кб/с]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:088BD95A2A64F1B79B82C56966CB1682C0B3C685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ Mad - For Dancin' - 28 Superhits (2006) [MP3|320 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:4CFE826E5D19C238F3B52E63F28A263EE92216C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B0519D29825D5321A988383DD2B5F9ACC1821CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82FF1A0DA0D19FFDAE9CB153BEAA947609D188F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ Mozzart - Money (2007) The Maxi-Singles Collection [APE|Lossless]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:1B5709D6AE65636E5FD9948AE7428AF63A6D1F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27F5E9BA77CA898EA00B3B89BF805339FACB2B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +747,7 @@ Media Player Codec Pack Lite отличается от обычного Media Pl
 ```bash
 magnet:?xt=urn:btih:192B9E0C74313251728AE09ABFCAEE54DB5D4C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

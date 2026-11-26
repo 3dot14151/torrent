@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A32F0A72DED6A44B7A84FF7D20982E07AA0E0883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Birthdays / Дни рождения v2016-01-15.34-paid Patched  [Ru/Multi] - В
 ```bash
 magnet:?xt=urn:btih:9729C91965FE657F80C4EC107FF98E038CB9B9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

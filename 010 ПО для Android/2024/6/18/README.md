@@ -19,8 +19,7 @@ ViewBox - приложение для Android устройств (в том чи
 ```bash
 magnet:?xt=urn:btih:382CC0CB45852C8A1D5AE1D7365A5C3F2B368F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NewPipe – это клиент для YouTube, который не исполь
 ```bash
 magnet:?xt=urn:btih:2666DDED9A499B7292EF418A762E0B7DA9C1975B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Smart Launcher - лаунчер являющийся одним из самых 
 ```bash
 magnet:?xt=urn:btih:B6FA20DFB34502A134CA59FB1E5ABB2A26BD41E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Zaycev.net v9.4.0 Mod by Timozhai  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0BCC02D2CE25E680166540F8449E416F53B9C8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Smart Launcher - лаунчер являющийся одним из самых 
 ```bash
 magnet:?xt=urn:btih:1CB73294878363931B2842338D1028665AFF5761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Best Fiends Stars - Вас ожидает совершенно новое при
 ```bash
 magnet:?xt=urn:btih:F664DA1BD46BB0E67DBF8CCE065A11619379A5B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

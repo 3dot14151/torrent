@@ -21,8 +21,7 @@ Nitrate - Real World (2018) Reissue, 2021, MR Records Production [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:B911B4216B7660A74DCEB983AEAE85CCF203A968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Mercy Shot - Brace for Impact! (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:F4E230909D0483D43E0FECA1C363F5EBAD2437B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Korella - Начало (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melod
 ```bash
 magnet:?xt=urn:btih:6C2898B4516AB609E6A3729677A606FDD4E32BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ About Us - About Us (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:FCD22154A99B1627DB44353A78E24B7E6D9FD8A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Helvegen - Следуй за мной (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk
 ```bash
 magnet:?xt=urn:btih:81649365A68B7576BF20C6B140D20C69A47682A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Celestial Season - Mysterium I-II (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Doom
 ```bash
 magnet:?xt=urn:btih:A99107653BD77B97AF455FD37FF2F3337E6C993A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Karfagen - Land of Green and Gold (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Symp
 ```bash
 magnet:?xt=urn:btih:AC28958F3AA0C9A30278F226B1769B0F68A79A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ The Beach Boys - Sail On Sailor (1972) 6CD, Super Deluxe, Remaster, 2022, Capito
 ```bash
 magnet:?xt=urn:btih:31AB1BAF1738B3797F3D367034DD274344A47845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E06B862ACCA1F7F7101A43CF31DC53DB83732058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Outland - Where Do We Go From Here? (2022) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:8FD214DB120EAD6821841CD48215D5356C3903AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

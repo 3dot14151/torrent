@@ -27,8 +27,7 @@ Vanilla Potatoyes - I Want to Be Your Dream (2013) [MP3|320 кб/с]<Downtempo, 
 ```bash
 magnet:?xt=urn:btih:3B5E4D98D3265F01527C86B4CB76B7D6D3A03567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Legion - V (2013) [FLAC|Lossless]<Hard-n-Heavy>
 ```bash
 magnet:?xt=urn:btih:98848B3F518879B222189EBEDC0086838AE7571B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57D76CF1125955192379E9C9236EA06308FEBE14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Kontor Sunset Chill-All Time Classics (2013) [MP3|~245 кб/с (V0)]<Downte
 ```bash
 magnet:?xt=urn:btih:215FF7C1DBB2808AF819CF6272FE7537F8FA9EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC402DAC21F8F227C44916A3C5AF7D2D2A452467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Sunnyland Slim
 ```bash
 magnet:?xt=urn:btih:900029EC8330ED613D446A17288024330BCCD0EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ VA - 30 Trance Classics (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:B9D9D364EE4A77CA0CF91C5835B6EAECEA0362D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:604447280C48E8895B7F2E4BB75E0FDE486E760D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D12F6F94B39289EC0BDEFBEC7C5F357D946DA023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E120C644A359A3ADEE248CFB043DA7EAC5DD6BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ VA - Танцевальный Экспресс. Клубная дискотек�
 ```bash
 magnet:?xt=urn:btih:9AAE0D17040BAFCE735BDE2BAFCCDFF60A19A8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:688728DDBB5FA054B8CEE7C940906BEDF675163F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C59C82BFFFCF4877F107EF6FD175984A66F3FDB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C91002439BAD16DCBA51070FB59715DE0D44406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ VA - Romantic Dinner Music Chill Out & Lounge (2013) [MP3|320 кб/с]<Downtempo
 ```bash
 magnet:?xt=urn:btih:9CF8CF9A2DAD8356C2BFD94C72C4C0F9A8B82A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ PsiloCybian - Dreamtime (2013) [FLAC|Lossless]<Progressive Psy Trance>
 ```bash
 magnet:?xt=urn:btih:0CD0D3D31315C8F90A94738517BF4295FD2F070D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:856805CD0C9009AA177AEA55A3EA6F68C4063678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED8F925B455F6437D7B64040770A9E39C7F273B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ Bee Gees - Bee Gees' 1st (1967) Repress /2004, Polydor/ [FLAC|Lossless]<Pop-Rock
 ```bash
 magnet:?xt=urn:btih:3BB0F20583A73707F61CFD9BB0F8F90EA3C120A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA15F39EEF58052A218418ECF2C36ADB4170FDBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +624,7 @@ Arandel - Discography 4 Releases (2010-2011) [MP3|320 кб/с]<Techno, Experimen
 ```bash
 magnet:?xt=urn:btih:680A91AC0ABE43C64EA0EDAF3895B93FFCD14531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:245ED688C2A9F29C4F452B0FB3E75E224769AD7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37DECD45C19CEC3999BE5A72F0D9351708085104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29ACE23E4A01DEF9B25FC0BE1B357E9EECB59082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ Barney Kessel - 4 альбома (1988-2009) [FLAC|Lossless]<Bop, Cool, Mainstre
 ```bash
 magnet:?xt=urn:btih:1320B1C35A3A98D6BA37B23F62F4571609CA3A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A4195FE6610D5F1C4B415264B50D62D6717C49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Aosoth - V: The Inside Scriptures (2017) [FLAC|Lossless|tracks + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:9E6FDE6C2F249848A3566A5B496CFD6603159F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bob Seger - I Knew You When (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:E8016EFEF6843D82BBE29309C9C60B9725FE025C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Spacehog - 4 альбома (1995 - 2013) [FLAC|Lossless|tracks + .cue]<Indie, B
 ```bash
 magnet:?xt=urn:btih:05E90C273EBE3F2335C7DAF14D9A3FF5402F49F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ SuperHeavy - SuperHeavy (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Rock
 ```bash
 magnet:?xt=urn:btih:B7A76EF6C4BB285A25A64CD15B5205C6015C9A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

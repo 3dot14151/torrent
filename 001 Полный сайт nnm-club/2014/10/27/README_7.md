@@ -28,8 +28,7 @@ VA - Trance Autumn Weekend Vol.5 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5B1C1BDCF1AA7953E7D4C2FA26239238467C5C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Deep House V.29 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:33E67961E0090D23C1CA104C0CE325750B201591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ VA - Dutch House, House #12 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:B2AE63AA329CACBE7D28E3C693DB9C4D9E6FD17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ VA - Trance Pro V.64 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:77D06DCEA1830FC687893BFDB1A2D60014EA47B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Dutch House, House #13 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:4BD40071FD25FC2F857BBCF164C7B7C2CBA73730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Deep House V.30 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:AF3809F397FE733D2DD1AD751D539A5DF1DBBC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ VA - Dutch House, House #14 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:15ABDFEBE2AEF15D3393262A4D5E2C2E7B02DF57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Canedy - Headbanger (2014) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CFD14961DE6325619ECE65926D922ACD859620FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ VA - Deep House V.31 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:25989038366FA26F90E7E2700F53E03E1B392A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ VA - Trance Autumn Weekend Vol.6 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:CB8D1DDE8C3C7294178A298F97E10A971E50C749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ Flynn Effect - Skin (2014) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4477B46FB6CFA75323026426D598E04D2C9F53D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ VA - Electro House Pro V.73 (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:D74ED5D210C20C9CC4392BF0EAA1921B1B23BB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +445,7 @@ Jimmy Buffett - Christmas Island (1996) [MP3|128-320 кб/с]<Christmas Rock>
 ```bash
 magnet:?xt=urn:btih:1839E1E2A6B1B8DD13EEC6AF9821B565DE7072F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +479,7 @@ VA - Deep House V.32 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:8417EE8D8E5B79F4E0239EA4BD03DFFE61DB0109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +513,7 @@ Kory Clarke - Payback's A Bitch (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D274D2C80781D681469E819D310658C2A43E4B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +547,7 @@ Onisu - Progressive Logic 12 @Center Groove (2014) [MP3|320 кб/с]<Progressive
 ```bash
 magnet:?xt=urn:btih:7E40B17849F8E4EDBD76F2E0F4D02EBFDB93F812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E44CD2D5A26A5A81278953222EF2E5C2E4C6628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FF459EE120E7443E3E51DCFDB4511EF555A7480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +633,7 @@ Red Circuit - Haze of Nemesis (2014) [MP3|320 кб/с]<Melodic Progressive Metal
 ```bash
 magnet:?xt=urn:btih:9B8825066A77E83422F58463A73FAD6C32634614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +667,7 @@ VA - Hardcore Top 100 - Best Of 2014 (2014) [MP3|320 кб/с]<Techno, Hardcore, 
 ```bash
 magnet:?xt=urn:btih:D5901BB49BF51A715FF509B6A750757428001F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +701,7 @@ Xtasy - Revolution (2014) [MP3|320 кб/с]<Heavy Metal, Melodic Rock, Female Vo
 ```bash
 magnet:?xt=urn:btih:4D04777C1869362A1E54BCF3CD62A75FDE19909D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +726,7 @@ Media Маг – это площадка, где публикуются самы
 ```bash
 magnet:?xt=urn:btih:858F19A4966910E7D0C8CFF4BC4642A73CA0A83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +751,7 @@ Marta | 150 рецептоа для мультиварок MARTA MT-1971, MT-197
 ```bash
 magnet:?xt=urn:btih:648EF06A3C9A3B613D9F27D950340455D65302C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +785,7 @@ Guadana - Deryaz (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal >
 ```bash
 magnet:?xt=urn:btih:FDFA2CDE490BC89386128D00EE19C4ECF39609E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -843,8 +818,7 @@ VA - Club Playlist Autumn Edition 2014 (25.10.2014) [MP3|320 кб/с]<Dance, Clu
 ```bash
 magnet:?xt=urn:btih:DE0A15C2C6A8EC06DEA7F021C184CACDA0893BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

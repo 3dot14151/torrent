@@ -19,8 +19,7 @@ Russell Barnes (ред.) | Android: Tips, Tricks & Apps (vol.1) / Андроид
 ```bash
 magnet:?xt=urn:btih:9B1E9ACFB509B895F032B5EB5C0CDC8F8C50735C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21BF690C5349B1A546F15BEB30A359BABE5EA41F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Dave Harfield (ред.) | Андроид: Советы, трюки, прилож
 ```bash
 magnet:?xt=urn:btih:2B880B062AAC38BB049233097E09CE327EDA4296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Mike Wooldridge, Brianna Stuart | Teach Yourself Visually Adobe Photoshop CS6 / 
 ```bash
 magnet:?xt=urn:btih:80D1703ECE1314DA563C6E9D917F279E81FA18D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

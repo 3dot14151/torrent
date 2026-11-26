@@ -19,8 +19,7 @@ MX Player Pro v1.93.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FA4B32E74F9EC807F59CB278360B03BA6B83461A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ebook Converter / Конвертер электронных книг v1.16.4 Mod
 ```bash
 magnet:?xt=urn:btih:6F88237713CB88504CC5F44FE46DCFB7D684EDC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Relive: Бег, Заезд, Поход v5.65.0 Mod by victorovich31 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DC7F6CD682A272B617EF512857ED8C35097582AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

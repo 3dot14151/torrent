@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9731F10DC5BEDF94E86C891FD86D8443A2F43963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9146B71F351638037961119F75B8605C311A4536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0555C9CAA77AB088800909351E85E1BC464CE6EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ You can always (   Читать дальше...   )Производство: Ud
 ```bash
 magnet:?xt=urn:btih:7A20AE2335E4BB74FB25E11797093AF796689460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

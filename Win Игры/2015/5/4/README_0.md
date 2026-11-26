@@ -20,8 +20,7 @@ The Binding of Isaac - новый проект Эдмунда МакМиллен
 ```bash
 magnet:?xt=urn:btih:811556783FB53B875F2AF0DFA847055F3319B0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Binding of Isaac: Rebirth - изометрическая аркада с р�
 ```bash
 magnet:?xt=urn:btih:CDBD72E672A9E7ABC7F1BCC7016D7657AAE09F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Assassin’s Creed Chronicles: China / Китай (2015) [Ru/Multi] (1.0.10897.0
 ```bash
 magnet:?xt=urn:btih:C7527B85322CBF893133872B5218B5C55580E647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

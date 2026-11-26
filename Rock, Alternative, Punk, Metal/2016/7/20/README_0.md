@@ -22,8 +22,7 @@ Dust Bolt - Mass Confusion (2016) Japanese Edition [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:271A041F4FA6A15327CCCEC4CC249477D3560ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fields - Fields (1969) [MP3|320 Kbps] <Heavy Psych>
 ```bash
 magnet:?xt=urn:btih:2B9E92E23F51703AD74CEF17BEA2DE6556167628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Orden Ogan - Vale (2007) Reissue, Remastered, 2015 [MP3|320 Kbps] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:86A0A20ABAB631A916248EFBA822F552719F457C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Diana Rein - Long Road (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B4BC72744641B25182E76CF1278E0348A06D5BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mitch Ryder And The Detroit Wheels - Breakout !!! (1966) 1993, Sundazed Music [M
 ```bash
 magnet:?xt=urn:btih:BB34E3E7C2E7FE703A158553B8B9A80CF67700B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tim Montana and The Shrednecks - Tim Montana and The Shrednecks (2016) feat. Bil
 ```bash
 magnet:?xt=urn:btih:65576BB943477F7C25BF8A367BEBC60A687E4E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Gary Moore - Still Got The Blues (1990) Remastered, Reissue 2002, Japan [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:A9C8CE180F117A0EE74FC67A76EE6C5A19BCDBA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

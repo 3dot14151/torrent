@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3D85D852F68DB6FD792BD6D293E2E3523E954C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ CoolReader — это удобная программа для чтения эл
 ```bash
 magnet:?xt=urn:btih:9A55F7703920331AB13CCE1BCEEA0B1F548A45D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

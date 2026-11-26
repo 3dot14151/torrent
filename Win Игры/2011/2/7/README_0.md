@@ -21,8 +21,7 @@ Vancouver 2010 переносит игроков в мир спорта — ми
 ```bash
 magnet:?xt=urn:btih:9C8EB800730B0383872AF267B5DFC6D4D3A00EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

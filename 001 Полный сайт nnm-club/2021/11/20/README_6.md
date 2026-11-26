@@ -22,8 +22,7 @@ Obsqure - Au Palais (2021) [AAC|~340 Kbps] <Psychill, Downtempo, Cinematic Elect
 ```bash
 magnet:?xt=urn:btih:A05E10E3DED4074BB2CA8F0E35637AA49534B395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Obsqure - Oriental Banquet (2019) [AAC|~317 Kbps] <Psychill, Downtempo, Cinemati
 ```bash
 magnet:?xt=urn:btih:9A4B8130839A79773EBCF675FE1ACC0CF4238141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Obsqure - Eight (2020) [AAC|~299 Kbps] <Psychill, Downtempo, Cinematic Electroni
 ```bash
 magnet:?xt=urn:btih:7CB662C649DFF9937356A0E24B1C9D600E3DDBBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Bev Lee Harling - Little Anchor (2021) [AAC|~291 Kbps] <Nu Jazz, Nu Soul, Vocal 
 ```bash
 magnet:?xt=urn:btih:1CC58981B63F33DC2EFA18BAA2CACBA0FD8D7E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Obsqure - Silk Roads (2020) [AAC|~323 Kbps] <Psychill, Downtempo, Cinematic Elec
 ```bash
 magnet:?xt=urn:btih:600CFAE5DDE2B2F82F97EA182B1C7AB237BCF25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Obsqure - Tabula Rasa (2018) [AAC|~320 Kbps] <Psychill, Downtempo, Cinematic Ele
 ```bash
 magnet:?xt=urn:btih:C59CB2D38CC66E2B80C7CC9810A3E9FA232C10D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ David "Fathead" Newman - Mr. Gentle, Mr. Cool: A Tribute to Duke Ellington (1994
 ```bash
 magnet:?xt=urn:btih:8DF4F052048DD1EC41FF761C5DD92C2FBFFD855A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Hell Fire - Mania (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:DB8FDEAA2CF6C9592CF57C8AAD4A574E89A80012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28A0F9DC6792DA186B51EF4E79AA3E2D49E6E43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Nightland - The Great Nothing (2021) [FLAC|Lossless|WEB-DL|tracks] <MDM>
 ```bash
 magnet:?xt=urn:btih:6BED0809FAE642C82B13564302239EB4EBFD188A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F35FE089A3D522B42EFDD637342B4EEE73267993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Aephanemer - A Dream Of Wilderness (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 ```bash
 magnet:?xt=urn:btih:44B86E7954C5CB278AE8828D191CA4BAC11068E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Swingrowers - Hybrid (2021) [AAC|~327 Kbps] <Electro, Swing, Jazz>
 ```bash
 magnet:?xt=urn:btih:F73E2C0175614BA0D09CC99FC8446D137348F9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Marina & the Kats - Different (2021) [AAC|~307 Kbps] <Swing, Jazz>
 ```bash
 magnet:?xt=urn:btih:7A73B70F49EC715316B94D8490B1237CEF70855A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ Station - Perspective (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7FB2CB60595DE1779498F25A8A86873759857DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ Marina & the Kats - Swingsalabim (2019) [AAC|~332 Kbps] <Swing, Jazz>
 ```bash
 magnet:?xt=urn:btih:01C5E881CE95FD964A1A0DEEF0D435D0B94FC185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49EE1EF231D75A9DCF234688CDE5914AEF94BB64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EB053E38C884F6BC6377654607861D582DA1D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ VA - Beatport Hardstyle: Sound Pack #369 (2021) [MP3|320 Kbps] <Hardstyle, Hard 
 ```bash
 magnet:?xt=urn:btih:428F48C6B37795EDCD642BD6342BD20ED2AC99B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ Synth Replicants - atlantis (2021) [AAC|~321 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:F3807DEE97C34FBD5C9BFB6CF30B3AA741D8B5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ VA - Dive In Red Oceans: Psy Trance Mix (2021) [MP3|320 Kbps] <Psychedelic Tranc
 ```bash
 magnet:?xt=urn:btih:B23B73A7AFA3BA6C56255ED73F285ED4C1B93876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91D3A56B81D3590DEEC94B0BDBC8CF572F273425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1B3FF0E2CA2D7CBB20BC66E891CE5C7FAE16464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ ChipaChip, Vnuk - Дохлый номер (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:BC2A33D6620BA2F5312D28FD406AFB7AA49E5FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ Margenta — проект, состоящий из альбомов, напис�
 ```bash
 magnet:?xt=urn:btih:4E70ABA269078B974A11A47F35CB874A192761F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6705F90417C7288C8BCB4C374AF3DF9BF55AFE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

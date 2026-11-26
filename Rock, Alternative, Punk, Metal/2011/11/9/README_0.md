@@ -22,8 +22,7 @@ Naka - Пора (2010) [FLAC|Lossless] <Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Nightwish - StoryTime (Single) (2011) [MP3|320 kbps]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:2D09A476E1987ED2B7D395D29E01F91990AB1B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ CD 1: 00:44:14
 ```bash
 magnet:?xt=urn:btih:86AB983D4011A4BA2B26E6A90898E505FE4BC178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

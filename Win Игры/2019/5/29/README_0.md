@@ -19,8 +19,7 @@ Witches' Legacy 5: Slumbering Darkness / Наследие ведьм 5: Прит
 ```bash
 magnet:?xt=urn:btih:ADC2A7061DC1AA487714DE9F638FD4861FF1BA6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ China: Mao's legacy (2019) [Ru/En] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:34E824391BD34FCBB3D0D1E87239C68B7F81E33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:C2A6BCEC9F285050035040118D170F0B8A7F3D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

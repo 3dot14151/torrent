@@ -22,8 +22,7 @@ VA - RETROспектива, часть XI: Эстрадные оркестры X
 ```bash
 magnet:?xt=urn:btih:64A86471AA2E43AAD43C0436559FE39120740400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ A4. Trouble 4:42(   Читать дальше...   )Жанр: Blues RockПрод
 ```bash
 magnet:?xt=urn:btih:6D5431EF63FAA91ABF6E1B1F7EE07F350DE67922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Frank Sinatra - Duets (1993) First Press [WavPack|192/32|image + .cue|Vinyl-Rip]
 ```bash
 magnet:?xt=urn:btih:B0D9756435C197DF0E5FB0857CBB9191D5FA30D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

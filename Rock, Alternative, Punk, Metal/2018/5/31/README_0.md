@@ -22,8 +22,7 @@ Ghost - Prequelle (2018) [MP3|320 Kbps] <Heavy Metal, Occult Rock, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:ECEBE4426FFB6A208FD665DB429BBD53481E9679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Circle of Dust - alt_Machines (2018) [MP3|320 Kbps] <Electronic, Industrial Meta
 ```bash
 magnet:?xt=urn:btih:6778AD1DA2E7AA00C402505B9862B83C6579CC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

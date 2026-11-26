@@ -19,8 +19,7 @@ Legacy of Kain: Soul Reaver (1999) [Ru/En] (1.2) Repack Vasy@n
 ```bash
 magnet:?xt=urn:btih:6168E3DCE5165BC2E8F49E0A9270D90F5052EB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

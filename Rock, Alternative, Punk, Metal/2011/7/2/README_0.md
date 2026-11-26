@@ -28,8 +28,7 @@ Seven Witches - Call Upon The Wicked (Limited Edition) (2011) [MP3|320 kbps]<Hea
 ```bash
 magnet:?xt=urn:btih:CF475F38C76F90B744FCC3D09BB233DFA29CFE1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Thurisaz - The Cimmerian Years (2011) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47BC3CFCB6B36160FA2FABB41603DD11AE81A914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Beyond Compare – мощная и одна из лучших программ �
 ```bash
 magnet:?xt=urn:btih:D8EE51C960FAE1919CAF1FAB68B7C51D892318FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

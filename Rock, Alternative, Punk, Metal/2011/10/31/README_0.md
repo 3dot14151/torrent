@@ -28,8 +28,7 @@ Charred Walls Of The Damned - Cold Winds On Timeless Days (2011) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:57883B595437F041090F24296B2F81007BCCB2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Emerald Night - Зеркало Троллей (2011) [MP3|320 kbps]<Melodic Blac
 ```bash
 magnet:?xt=urn:btih:56F4133C439053B896C962DC689ED30CBDA519DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E13182AFD5C7E00114E3F61983092561C1EFF90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

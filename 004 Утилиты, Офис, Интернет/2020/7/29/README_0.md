@@ -19,8 +19,7 @@ Passcape Reset Windows Password 9.3.0.937 Advanced Edition BootCD [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:71342BCEA8A2F8DC2C5C16B97A491068CCD5C4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

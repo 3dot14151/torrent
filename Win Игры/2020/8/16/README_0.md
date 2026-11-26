@@ -19,8 +19,7 @@ Automobilista 2 – вторая часть гоночного симулято�
 ```bash
 magnet:?xt=urn:btih:F6250BAFEC902CBF741F5BAA4CE6D60ECB60569E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

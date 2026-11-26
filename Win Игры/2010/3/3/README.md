@@ -20,8 +20,7 @@ Sonic & SEGA All-Stars Racing [Multi5] (RePack) 2010 | R.G. Gamers
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Greed: Black Border / Greed: Корпорация Диабло [Ru] (RePack/1.1)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

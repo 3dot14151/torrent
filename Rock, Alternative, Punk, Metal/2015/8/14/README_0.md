@@ -22,8 +22,7 @@ Eisregen - 2 EP, 1 альбом (2014 - 2015) [MP3|320 кб/с]<Dark Metal>
 ```bash
 magnet:?xt=urn:btih:7D8CAC6339EDB06B1DA30CA12C99F6AA90FEF750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Damned - Les Genies du Rock - Gun Fury (1995) [MP3|320 кб/с]<Goth Rock, P
 ```bash
 magnet:?xt=urn:btih:EE12859D05E0841DE2D29E45B833D79A58D84183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stiv Bators - Les Genies du Rock - Sonic Reducer (1994) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:7FF1858995F25883EDC5270704FC04C80C4A5C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Doobie Brothers - Les Genies du Rock - First Album (1993) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:53FDDAD42CD9B4F34ECE7E3A0CF74C04910C6A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Bollock Brothers - Les Genies du Rock - God Save The Queen (1995) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:144F82B5ED92FD1FA8B4A826A6FE9DC3F87DBC60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The 13th Floor Elevators - Les Genies du Rock - You'Re Gonna Miss Me (1993) [MP3
 ```bash
 magnet:?xt=urn:btih:0387046A92E8A3FEB98D9B9D111E72085F6F28B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Nuclear Sun - Rising (2015) EP [FLAC|Lossless|WEB-DL]<Industrial Rock | Futurepo
 ```bash
 magnet:?xt=urn:btih:871841BD86AF85D2E33E5DF02299F354171DE087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Stray Cats - Les Genies du Rock - Rockabilly Live (1994) [MP3|320 кб/с]<Rocka
 ```bash
 magnet:?xt=urn:btih:C1C33548774D36D846D5DBD9B0100DA5E0230C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Kinks - Les Genies du Rock - Waterloo Sunset (1995) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5686FFF6EA3DA0082990E06EB4FF83168ED183B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Hair Of The Dog - The Siren's Song (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5BEDF0853BB5CC2E37E21BA0D4C270ECF6D5C351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Stillwater - Stillwater (1977) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:6318657AAD51933C7B9100EA10EF290499D14196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Bullet For My Valentine - Venom (2015) Deluxe Edition [FLAC|tracks+.cue]<Melodic
 ```bash
 magnet:?xt=urn:btih:7D0CEA698AE11AEA92484649B5090547775FC229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

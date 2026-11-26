@@ -22,8 +22,7 @@ Malefactor - Death Falls Silent (2002) [FLAC|Lossless|image + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:45CBC241291EE04ED362A49FE87F8A2E0ED7177C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Arktis - Arktis (1973) Reissue, 1998, Garden Of Delights [MP3|320 Kbps] <Rock, P
 ```bash
 magnet:?xt=urn:btih:3A7870F3696D2B6C3E4822EB25D8EAE8CEEDA855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Plaag - 1 album, 1 EP (2011-2012) [MP3|210-256 Kbps] <Black Metal, Black'n'Roll>
 ```bash
 magnet:?xt=urn:btih:47E5AC1B4E4C73D5EC092F81A74DE747D970B43A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Riff Action Family - So Lonely To Play Without You (2017) [MP3|320 Kbps] <Hard R
 ```bash
 magnet:?xt=urn:btih:B06F1C69C7E3D427DC52E416536C967405FF628B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Aaron Gillespie - Out Of The Badlands (2016) [FLAC|Lossless|tracks] <Indie, Acou
 ```bash
 magnet:?xt=urn:btih:4EAA43EAA361EC665A48BF5AABF86F28C67FFA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Kreator - Live Antichrist (2017) Live [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:EBCB52C85106D657DA49E4CAD5BDA79F4A445269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Gotthard - Silver (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E21F780CF191736E54AA79B9657A07A0E35CD201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ LV (LVGroup) - The Best Orthodox Songs (2016) [MP3|320 Kbps] <Русский р�
 ```bash
 magnet:?xt=urn:btih:9F42490B9179FBDA701C23811865B690E9CD16B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Feeling B - 4 albums (1989-2007) [MP3|128-320 Kbps] <Punk Rock, Folk, Electronic
 ```bash
 magnet:?xt=urn:btih:56B9C042848A00BE5FBB4C172D73219702B28163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Queen - Discography (1968-2014) 212 Albums [MP3|128-320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:BCD7CA859F888A4ECAF2DB15D704980DCDED7530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Halloween(   Читать дальше...   )Жанр: Power, Speed MetalПр
 ```bash
 magnet:?xt=urn:btih:9E9BCB9705C2EA1CE1E134C8A498F471C00136D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, Funk�
 ```bash
 magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ring of Fire — американская неоклассическая/про�
 ```bash
 magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Farmington Tales [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:D729B1E504D0E70EDA8DD91902DD76F97FA21B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Web of Deceit: Black Widow Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:0D42249F7B7E27DE9A5A4265E0F94FAD045E2436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Treasure Seekers: Follow the Ghosts / Легенды 3. В погоне за п�
 ```bash
 magnet:?xt=urn:btih:31607EB4F465768B44E274A91C795EB011A5CE47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jigsaw Boom 2 / Пазл Бум 2 [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:6F605E4B2CF6871847AFB8390CCCBF75BC89337D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Secrets of Power: Alexander the Great. Collector's Edition / Секреты мо
 ```bash
 magnet:?xt=urn:btih:EA3FD513FCE9851757B52AD3D71090BC7C15B0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cursed House 2 [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:DDF8B8A32ADFB5FB821CE0CBC197DF8B45BD4849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Audiosurf [Ru/En] (RePack/1.0u31) 2009 | NSIS
 ```bash
 magnet:?xt=urn:btih:3556BD2A6CBE177B61C0680BA4051108ED4EFDA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

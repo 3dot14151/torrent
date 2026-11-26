@@ -19,8 +19,7 @@ Viscera - это шутер с видом сверху, вдохновленны
 ```bash
 magnet:?xt=urn:btih:08A0C379997164E8BDB0C6437BBD65E8C5B94C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Atari 50: The Anniversary Celebration приглашает игроков в и�
 ```bash
 magnet:?xt=urn:btih:FD473F9903FD2262B4CA76E369BCB1E0B678ACC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dragon Quest Monsters: The Dark Prince (2024) [Multi] (1.0.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:687414FD41210347EDAB1FB4FB12706085321FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alaskan Truck Simulator – уникальная игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:033F4EFCD4264DFBDB61926CA32F1DF0B5D49AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.63) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6B10AC8A13B0EE18B0E980459414E6E28E816929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Only Up! Skibidi Together (2024) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:463B7ACDA384C151C242A2CC0BCE7919E0246EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bendy and the Dark Revival - это хоррор-игра на выживани�
 ```bash
 magnet:?xt=urn:btih:7F1B049ED2FB3C02282A0122F41CFC4FEE566358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Only Up 2! (2023) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:4E7ACF8B2A37DF72B8930495879B7A6F1EFC9751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

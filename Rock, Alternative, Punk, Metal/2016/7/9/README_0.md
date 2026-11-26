@@ -22,8 +22,7 @@ David M'ore - Passion, Soul & Fire (2015) [FLAC|Lossless|image + .cue] <Rock, Bl
 ```bash
 magnet:?xt=urn:btih:4D20723826C333700E5EBC16D14A73FCF8AE21DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Waken Eyes - Exodus (2015) [FLAC|Lossless|image + .cue] <Progressive Metal, Powe
 ```bash
 magnet:?xt=urn:btih:C14279BAC95B37D3212E59A5269416288DA44963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lanterna - 3 Альбома (2001 - 2006) [APE|Lossless|image + .cue] <Folk Rock
 ```bash
 magnet:?xt=urn:btih:36C5094505B09DD5AE2817349CC391A598CA39F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rockin' Horse - Yes It Is (1971) [MP3|320 Kbps] <Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:250C987C830E524B91AE23ED2D5540F175B27FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nick Johnston - Public Display Of Infection (2011) [MP3|215~232 Kbps (V2)] <Rock
 ```bash
 magnet:?xt=urn:btih:5ABCCE7FF8E465B1FC9B243BFE194321849BC194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Handful Of Rain - Three Days To Come Back (2016) [MP3|320 Kbps] <Melodic Hard Ro
 ```bash
 magnet:?xt=urn:btih:3F67E084B18917B38713BBD101EE512CDDCC04BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Death Whistle - Death Whistle (2016) [MP3|320 Kbps] <Symphonic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2E142A1649DB9765D63515B56BA071DE682D8CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AEB75C6373DDEF5E567D3F89F984B572DBF860E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Kissin Dynamite - Generation Goodbye (2016) [MP3|320 Kbps] <Hard Rock, Melodic H
 ```bash
 magnet:?xt=urn:btih:AF85344FEBDA5F63CBDB4850570FA0A00D99373C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3B3BED5D0E1E2931F02CB503A75A8C3EAFCAFF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70AD16949DBA0AC9EB5F19DC53C6B25F4AEF1601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

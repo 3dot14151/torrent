@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B39EF28AB29C176897DC0017673028C872067B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Anneke Van Giersbergen - Drive (2013) [MP3|320 кб/с]<Alternative rock>
 ```bash
 magnet:?xt=urn:btih:D748F2A922DE39ACC6B1B8FAFAF1570B3C650E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF94E3601E83E217BB34DF5FEBE93C1EC72C101D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:95099120BF81DAB18DAC8F040F60AA505BC857C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ James Leg-клавишник и вокалист blues-rock дуэта Black Dia
 ```bash
 magnet:?xt=urn:btih:30DA42D4B11F225A20D0B2F835C39A9FD5E90F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Kirill Pokrovsky - Divinity: Dragon Commander. Digital Imperial Edition Soundtra
 ```bash
 magnet:?xt=urn:btih:33D6DDEFD65C4D13923A7F7A604C09CD30333A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ Astronaut Ape - Ten Minutes Eternity (2013) [FLAC|Lossless]<Electronica / Chill-
 ```bash
 magnet:?xt=urn:btih:A1C955A0CFB523930620D2E90E7CD2D853510148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ David Lee Roth - The Best (1997) [MP3|256 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:2C119C31A5DC848093B5D0B290D1DB8A88C1F1EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ Discovery: На волосок от смерти / Sospeso nel Vuoto (2011) HDTV
 ```bash
 magnet:?xt=urn:btih:8E7E777D9B5926DAF23B9A7F4B3CB675A73CBA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:465332D414148B5DFEBC6F0B8849100D8501B71A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ Beat Club - Progressive Times - Vol1. 1970 (2009) DVDRip
 ```bash
 magnet:?xt=urn:btih:93A4F35A4F9ED2A9B7E3A2FD15228566FF5502AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D71F0692F1754F52B631EA1F0929D44D81F8127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ Danny Elfman - Epic OST (2013) [MP3|320 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:C3E8D749BE5C15C2906C47EC14264F94521253E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ VA - Electro Life 28 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Dubstep, Progr
 ```bash
 magnet:?xt=urn:btih:3614453BA887A43403FEDFCA44A316FC6EB5CE91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ NG. Обезьяночеловек. Серия №3 / Ape Man (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:97FE324E4011ED05197C5573204B53C7B9B0C3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ Dangerkids - Collapse (2013) [MP3|320 кб/с]<Rap Rock / Alt. Rock / Post-Hardc
 ```bash
 magnet:?xt=urn:btih:C410BF7D4A69122A401850E4C8BAB839EC19E6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ Wallpapers - Обои для рабочего стола - разное (19.09.2
 ```bash
 magnet:?xt=urn:btih:EF719A77DDCAEF37F5DAFE3A9AD8548907435C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74AF65F196F345549C5EFFA876EF08F01F455397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0ECCF24E16F6F35505804CB5D96B7A09151024E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A28FA97005038955A24DBEFA106F78B8DC84EB4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01B56DA98458FD8A3FD805A6100C02E197820C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ VA - Electro Life 27 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Progressive Ho
 ```bash
 magnet:?xt=urn:btih:AEED2D0DCD3D5D4E990913F10D82AA8640236757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A92972673838645ABADD33125D7F8B76A868990D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ Ontrack EasyRecovery Proffesional 11.0.1.0 RePack by KpoJIuK [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D9C7ECC838D027B5D86E06E6FF48A2CB6DDD97BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ MotoGP. Гран При США Остин. Этап 2/18. Гонка (2013) HDTV
 ```bash
 magnet:?xt=urn:btih:D1BD796DC7AB54555ADD126A0D9329A8F4B13997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

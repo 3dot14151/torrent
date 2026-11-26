@@ -19,8 +19,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7D03A7F1DC6BBDD258F6AFA4FA33E69DF67C4CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 ```bash
 magnet:?xt=urn:btih:AED206A970DF2C733C228676EA154BAC7B75B1F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VPN Inf - быстрый, безопасный и безлимитный VPN
 ```bash
 magnet:?xt=urn:btih:E413C389917BDA802683C1590560E8BEC5B633AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 ```bash
 magnet:?xt=urn:btih:A93B7022F51FD5C03C7F5972566448ED2A2186C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A6AE49069973BBF686426CA4FB90B089BF977E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

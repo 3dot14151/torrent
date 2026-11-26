@@ -18,8 +18,7 @@ VideoStudio Pro X9 создана для обработки видео и поз
 ```bash
 magnet:?xt=urn:btih:9A877429CFBD5F60EC7D39B33F7FC6658CC50518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Firewatch (2016) [Ru/En] (1.0/upd8) Repack xatab
 ```bash
 magnet:?xt=urn:btih:61FDAD7B49F8AA9A49AB543E9B0EF727BCB7296C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ The Town of Light (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:EEBECC91B6EAA9AD2E1722C1D508FA32825E697F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Windows 7AIO x86 x64 pe StartSoft 7-2016 [Ru]
 ```bash
 magnet:?xt=urn:btih:BA4A59F0F4B183ED793247DEBE56D6D68DFFFA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Resident Evil 5 (2009) [Ru] (1.0.0.129r1/upd1/dlc) Portable PortGamPC [Gold Edit
 ```bash
 magnet:?xt=urn:btih:31E210D573DE633DA8983E88080D3774CEDF3E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Manhunt (2004) [Ru/En] (25.02.2016) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:A9A95ED62768BD392F0B28B8BE504A4A22AB5BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C26E04D1E56A36011983B90A92773A1384D354E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:1848A1A96EF5106585BB62F565EC180A273A0501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47E6DEC500AA339D800CA6B299CC49AFFBAA4B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ X-Particles – это полнофункциональная система д�
 ```bash
 magnet:?xt=urn:btih:E27896520F1BE788C8F1E2F2D891D8A4EBF4EB27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B52C064AB994246586EB9BF62112C87A17442A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Veeam® Backup & Replication™ — комплексное решение, ра�
 ```bash
 magnet:?xt=urn:btih:88765373ED1F54CC45CEDFBDCBDCF6527FB8FE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ VA - Дискотека 2016 Club Dance Vol. №149 от NNNB (2016) [MP3|128-32
 ```bash
 magnet:?xt=urn:btih:2F080B731A903756A773EF5BA193CD4E18F9B2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ The Elder Scrolls V: Skyrim Legendary Edition + Falskaar (2011) [Xbox360] [Regio
 ```bash
 magnet:?xt=urn:btih:35E0F1A082A5FC6C2377870C72C2424E3217B202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ Windows 10 x86 x64 pe StartSoft 9-2016 [Ru]
 ```bash
 magnet:?xt=urn:btih:1D1DDB68BF5286169020D20BD1834FF873F9384C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ BELOFF 2016.02.23 [Ru]
 ```bash
 magnet:?xt=urn:btih:8ACDBC40511085EA63AA47A5E997CB1934329711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BA12FE06C03CD7CA737CD5BFCEF400DD4603C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:927B64B482C3E734915C9F35FDE3308F16EEAB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EB72B1978DD0BE3BDE3BE16C326BD9088BD069A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F96B29F6C605F47BA237CF389C77E7A09B068668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

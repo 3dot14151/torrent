@@ -22,8 +22,7 @@ Risen: Дилогия / Risen: Dilogy (2009-2012) [Ru/Multi] Repack R.G. Мех�
 ```bash
 magnet:?xt=urn:btih:065DE8EB35C579D8E30CD63C8DB78BCA47450EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

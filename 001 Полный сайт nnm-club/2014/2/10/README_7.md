@@ -23,8 +23,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 ```bash
 magnet:?xt=urn:btih:398A658AF8F9850F5D8E4F06087CAF66EDE98D79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

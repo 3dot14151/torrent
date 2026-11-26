@@ -19,8 +19,7 @@ Dark Tales: Edgar Allan Poe's The Fall of the House of Usher (2014) [En] Unoffic
 ```bash
 magnet:?xt=urn:btih:340B6C79ABA724F297F515ABFC7CF61712044D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ghostbusters: The Video Game (2009) [Ru/En] (1.0) Repack Audioslave
 ```bash
 magnet:?xt=urn:btih:023DB036339E9A1E6DCEBEF35E6E3FE46093B7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

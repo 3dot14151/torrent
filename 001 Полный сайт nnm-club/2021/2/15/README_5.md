@@ -18,8 +18,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (45340/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E89CFE6C6DB8F8D4B72CEA06FC15C5FCE7C6D149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Wreckfest (2018) [Ru/Multi] (1.27.0990/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:4F26FC5E7837B6055384A504DCA0BFB81DD2F5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ MultiBoot HDD 2021 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:B520FF667AB70A241D8AB6D8761621E140B2AED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

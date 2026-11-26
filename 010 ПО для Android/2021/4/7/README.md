@@ -19,8 +19,7 @@ Color Grab (Color Detection) - Любите рисовать? Или же тво
 ```bash
 magnet:?xt=urn:btih:881EA281869D53AB81321CAA7DDE8A9BF223C85B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Alarm Clock Pro 2.9.9 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:DCD7C5298592F4812E633F9939028E0B6226822D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Vimage 3.1.2.2 Mod by derrin, REALY [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:47D86052AF0DC3C0B61EF752DED2588D4C646C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ aCalendar+ Calendar & Tasks - Простой, и очень качественн
 ```bash
 magnet:?xt=urn:btih:2FEB967D24E8B7CB4CD3E97187C372A922E8AE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ MiXplorer – полнофункциональный менеджер файло
 ```bash
 magnet:?xt=urn:btih:7BAF09CFF10DA64357EA1EACF912F006264ADD66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

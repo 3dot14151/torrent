@@ -19,8 +19,7 @@ uTorrent Pro 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4ECC3E290FB32BBA8E2317B0C1E9481D387F16E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Start Menu X 7.33 SpaceX [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2388016BE3CE91B9207E160D16477A1351CE41AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ uTorrent (AdFree) 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8BDF2E446B8F6FDC4537281C4B10B8A2E0ECEB7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Discord - мессенджер для текстовой, голосовой и 
 ```bash
 magnet:?xt=urn:btih:EA85E98812C7CB715B65B887179ADF6C190E382B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

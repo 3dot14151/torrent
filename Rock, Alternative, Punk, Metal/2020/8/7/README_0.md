@@ -22,8 +22,7 @@ Deadly Sin - Sunborn (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5EF612154BE449389154AB4649F116C74ACAA642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ John West - Earth Maker (2002) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic 
 ```bash
 magnet:?xt=urn:btih:E3EA7B7A7E221E41BF7E79DC5B26D23B008694F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Demons & Wizards - III (2020) [FLAC|Lossless|image + .cue] <Heavy Metal,  Power 
 ```bash
 magnet:?xt=urn:btih:530C889762D17F52F1C79612A7EF9033B3CB8411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Batushka - Raskol (2020) EP [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:036ECCE98602C17676CF303564171BC431BC8C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Joe Bonamassa - A New Day Now (20th Anniversary Edition) (2020) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:6614BCD157C355B51E88C1B2EF96A5F7E7E25C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:FE3C76BACD9171CE076136F329030F3F5FFFAFED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Deep Purple - Whoosh! (2020) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0647A1E56F936AB10B645B3D42FF6D0B78ABA991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

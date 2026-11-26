@@ -26,8 +26,7 @@ VA - YSE Remixed 2013 (Compiled By DJ  Bim) (2013) [MP3|~245 кб/с (V0)]<Psy-P
 ```bash
 magnet:?xt=urn:btih:E676C4CA2222F85A4E101E9D71DD648881564531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Full Contact 69 - (Wo)man Machine Version II+ (2013) [MP3|~260 кб/с (V0)]<EBM
 ```bash
 magnet:?xt=urn:btih:449DD808E070EDFD588EF17D80D546CE89A4DEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66CB8E6BE8EA7756D4C9B3F30BC13F94C6D37321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ VA - 40 Top Downtempo & Ambient Chillout Hits (2013) [MP3|320 кб/с]<Downtempo
 ```bash
 magnet:?xt=urn:btih:940D2B618ACDF06C9326913D841B0ACFD65BFE05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA71A0FDAB91193C5550AE8AD297C9681DC5970E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15C68BD028911657EB0DD1EEA95B78D17F7D5815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ VA - Правильный музон от радио Шансон (2013) [MP3|25
 ```bash
 magnet:?xt=urn:btih:12751AA307FE2B913B5D68D6D2D3C16AFDFCBF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 ```bash
 magnet:?xt=urn:btih:A686A7C4B626FAA1CCC2B635DC2908B2BD732B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ Armin Van Buuren - A State of Trance 636 (24.10.2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A802C911372BE2967485079215FCEDA9134E30B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:DB16364166EE959D5F59AC141C729D360AB98E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +339,7 @@ VA - Вечеринка зажигай с нами! Осенний отрыв (2
 ```bash
 magnet:?xt=urn:btih:96D57262FC41D7A3B8FFBEC772207259488C4F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ Greenshot — утилита для создания скриншотов. По�
 ```bash
 magnet:?xt=urn:btih:E83EBDA9D81D9E948487A8CCC9B79A31209ED054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ Cold Therapy - Embrace The Silence (2013) [MP3|320 кб/с]<Dark Electro, Electr
 ```bash
 magnet:?xt=urn:btih:1157287F3F3BBC5DB315C166A133BC627822B0D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ DJ Цветкоff - Танцпол @ Record Club # 237 (25-10-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:94F83C318A27497536729409D237237A601F5E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +492,7 @@ VA - Звездный Бум от Русского Радио (2013) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:FCF23EA9A2941068856C48884D5ADE43DFBABD71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76899F6192C389DD6D1E76BC696C5F8DBD7DCAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA52D771C78145F25BACEDE443636DC3191E2244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23A05D9F1DDB6BD306C134AC3D60890EDF18E832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:F00DF9AF28149109CC8043E3049586FB4A95F7F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:E461836B6BA3C641C58D6139CAB2863F32667D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:73A23C4107F7AA6092DF966C094C445535344306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:003CA338727E640FBD50335FC786438631C9E921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ NG: Машины: разобрать и продать. Крутые тачки 
 ```bash
 magnet:?xt=urn:btih:757CCD0A492F1A3282EC9DA9AC1A495CAD0FBB8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +747,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC606A60294605AF920FCEFEEEE31D8161F15834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Bad North (2018) [Ru/Multi] (1.05.1) License GOG
 ```bash
 magnet:?xt=urn:btih:F1A6B531472F57D5B14EA8CF6E9FE655F8CF8D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Room Three (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 ```bash
 magnet:?xt=urn:btih:222AA46DE0A9F22E531C939244A5F13071BE4B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

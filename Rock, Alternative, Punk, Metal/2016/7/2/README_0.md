@@ -22,8 +22,7 @@ Glaciation - Sur Les Falaises De Marbre (2015) [FLAC|Lossless|image + .cue] <Dep
 ```bash
 magnet:?xt=urn:btih:D1F5409BA81BE3DD2807AF59796639FF6D063C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ One Hundred Thousand - The Forms In Which They Appear (2016) [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:4B01B53C75DFA23FAB9A6D6C74795EA145100A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tom Euler - Fool Me Once (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:8138926115F805082BCC44F4975E7475111A4BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Eagles - Unplugged 1994: The Second Night (2016) [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:FE5F91384037E6249A0E1DBD8262BDCF46F7666D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

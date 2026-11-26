@@ -19,8 +19,7 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:A994385B8EC35B7DF8BEB90ABB150F2B4E122F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

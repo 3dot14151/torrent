@@ -19,8 +19,7 @@ Eventide: Slavic Fable / На закате. Предания славян (2015)
 ```bash
 magnet:?xt=urn:btih:EA8013A29527171F63BD8285C66BC52B2B3F807B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ AMD Catalyst 14.1 LINUX Beta v1.3 Driver 14.1 Beta v1.3 [x86_x64] (run)
 ```bash
 magnet:?xt=urn:btih:2EA29C29F120EC77A6B6A5CF2AF4F41C5E81831B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

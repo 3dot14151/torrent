@@ -22,8 +22,7 @@ WastedSky - Мы все нули и единицы (2020) EP [MP3|320 Kbps] <Nu 
 ```bash
 magnet:?xt=urn:btih:D6905441882723A75D7320F15F4B8BA453464BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0F046CFEEF71F624E22C3466824902BCFFC0B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Black Mirrors - 1 album, 1 EP (2017-2018) [FLAC|Lossless|image + .cue] <Blues Ro
 ```bash
 magnet:?xt=urn:btih:2D4D71E0BBC8434F9824133B91B22C85A40DD4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

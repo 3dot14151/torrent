@@ -19,8 +19,7 @@ Unforeseen Incidents - это интерактивная детективная 
 ```bash
 magnet:?xt=urn:btih:B24C9FE356E26E4B8ACC44ECA21964982D7E351A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

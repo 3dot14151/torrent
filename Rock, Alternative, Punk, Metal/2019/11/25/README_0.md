@@ -22,8 +22,7 @@ Pere Ubu - The Long Goodbye (2019) 2 CD [FLAC|Lossless|tracks + .cue] <Post-Punk
 ```bash
 magnet:?xt=urn:btih:1C53E98693577259BD70F1ABD19AE9B87CB23D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

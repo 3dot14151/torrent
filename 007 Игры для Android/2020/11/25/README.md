@@ -19,8 +19,7 @@ The Wolf v2.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:ECF2929CB0F922BC509D25643F667C6CEF50216F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36761B858F4539E6194CB74FD8E9DDF86E5E5832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

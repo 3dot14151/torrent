@@ -22,8 +22,7 @@ Poet - Emily (2020) [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
 ```bash
 magnet:?xt=urn:btih:3857301201293DDC893082D2CB7E888DADB53CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Aedan Sky - The Universal Realm (2025) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:5B00A8C53F596C792A17E20BF5B7C1B13919C868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Amerikan Kaos - The Sheeple Swing (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 ```bash
 magnet:?xt=urn:btih:D693910455B836A55AC3E4C07C15C1FBC50CC6F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Suzi Quatro - Freedom (2026) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6FDF2A4FE94D5CC9BC05801F765E8B201E59B46A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Kekht Arach - Morning Star (2026) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Am
 ```bash
 magnet:?xt=urn:btih:D3FA896BBA0E6609AE049B3CA7779C605B4AAEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Cactus - Temple Of Blues II (2026) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7FA75E5AAFA83A0A54E05CE362DE99F6669E6383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Nervosa - Slave Machine (2026) [MP3|320 Kbps] <Thrash, Death Metal>
 ```bash
 magnet:?xt=urn:btih:7EADEA7CABE424035724BFC20DB53E8C4BDFCB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

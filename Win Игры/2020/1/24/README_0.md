@@ -19,8 +19,7 @@ The Unseen Fears 5: Ominous Talent (2020) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:7C28C16C5326270BE188F492E28201458E0D8DCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hellscape: Two Brothers - это путешествие через ад, вдо�
 ```bash
 magnet:?xt=urn:btih:85040EC3A57E3538478884338568D71CA9930DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Submersed (2020) [Multi] (1.0.0.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:29F370750ABBC8401554FE8E127D1180BB6AC26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Warsworn: Дракон Японии – это грандиозная страт
 ```bash
 magnet:?xt=urn:btih:BA4B239CACD0846BB0A54FA18F2ED1526B3A38BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

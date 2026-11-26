@@ -20,8 +20,7 @@ Perfectly Clear позволяет создать идеальную фотог�
 ```bash
 magnet:?xt=urn:btih:28F2BCCF3249ED77B6A72CE9EFB6BC8184B6C806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

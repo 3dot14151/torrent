@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:1554A8182F988F18ACDF50FB465872BB0FFEF107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nerve Star - White Hot (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4B093EC306F7BCE0A39E6C3BE6F6B9185B43ACEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Evil Not Alone - Бархат (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapc
 ```bash
 magnet:?xt=urn:btih:4E3ECFBE48F4F494383B58D91163C1DED9603399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deadletter - Existence is Bliss (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post
 ```bash
 magnet:?xt=urn:btih:D5DB86C7FAD93E366A9B451223302CBDFD13EACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mitski - Nothing's About to Happen to Me (2026) [FLAC 24/96|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:DF1ACEFB7AC189BFEBEF1529A61F8602B29241A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Nothing - a short history of decay (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <S
 ```bash
 magnet:?xt=urn:btih:63E407A28D50707BE43B909ADCB31583DBFBF044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Black Swan - Paralyzed (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5A96A872B333DAF7D148E75A2BDA84BC5462CBFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Blackwater Drowning - OBSCURE SORROWS (2026) [FLAC 24/44.1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:B7F01E8B16FCA85F6061884483C6AA9177B0265D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Cryptic Shift - Overspace & Supertime (2026) [FLAC|Lossless|WEB-DL|tracks] <Tech
 ```bash
 magnet:?xt=urn:btih:77026A11D5FDB7ACD79730907FD22316C9355511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4743BCA7E77D6FF88A9D9308FC9E6C3CAA42F5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

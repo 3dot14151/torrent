@@ -22,8 +22,7 @@ Cathedral — метал-группа из Ковентри, Англия, ос�
 ```bash
 magnet:?xt=urn:btih:01D6F3099DF85B260D4C1487C81B68E0B52E88B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

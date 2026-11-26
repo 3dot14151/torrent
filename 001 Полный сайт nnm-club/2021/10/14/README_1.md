@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EF8311FFB7F2EA55352DB472EA71F680385ADC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE7662D54C5E6C1FF04E7945EC0F161DF18BADB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Winterhorn - The Glacial Abyss (2021) [AAC|~316 Kbps] <Metal>
 ```bash
 magnet:?xt=urn:btih:910645F1524427718AB0CDA89D70D35EEA521F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Vanlife Chill, Vol. 2 (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B5D8F06259BBE47D7C98EF41FF429AB96722CCD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Trivium - In the Court of the Dragon (2021) [FLAC|Lossless|WEB-DL|tracks] <Thras
 ```bash
 magnet:?xt=urn:btih:ABC85C4559C60FBF92DF55004EEC5A0F6F656E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Manfred Mann's Earth Band - Mannthology: 50 Years of Manfred Mann's Earth Band 1
 ```bash
 magnet:?xt=urn:btih:837C341DCCF28AF97E7620F01CB9DD081E14AC8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Summer Ease: Chillout Your Mind (2021) [AAC|~317 Kbps] <Lounge, Chill Out, 
 ```bash
 magnet:?xt=urn:btih:A90FAE36E8216813F2BB833ADC6652702B6E5595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - Chill & Sun, Summer of Your Life, by Smooth Deluxe, Vol. 2 (2021) [AAC|~319
 ```bash
 magnet:?xt=urn:btih:DE72563CAA814EA05ED65DB484623316701F1404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Nu Swing Club (2013) [AAC|~321 Kbps] <Nu Jazz, Broken Beat, Swing>
 ```bash
 magnet:?xt=urn:btih:E90BD6A687328A2FFA2E1A779F92D2BC182FF7E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Adobe Substance 3D Designer 11.2.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:C78C6E3DE16AADBDAC7C63229076BDFCB7258AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:457DCE093E22064A74A9B5B4BA5BDA6C55DAA84A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - The Perfect Soulful Vol.1 (Chillout Your Mind) (2021) [AAC|~309 Kbps] <Loun
 ```bash
 magnet:?xt=urn:btih:E7F0CFBFC2C626F61031854E480976CE77F31466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Club Des Belugas - How to Avoid Difficult Situations (2021) [AAC|~345 Kbps] <Jaz
 ```bash
 magnet:?xt=urn:btih:0080AA3FF1023EC181217345C7D7935E46281486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ VA - Nu Swing Club, Vol.2 (2021) [AAC|~322 Kbps] <Nu Jazz, Broken Beat, Swing>
 ```bash
 magnet:?xt=urn:btih:6589A55D44D86B23AF43F29698F17D107A0CD407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4942DFAF5EA170D547B6B5FB4B5A35A4F2DC72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ MLO - Oumuamua (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 ```bash
 magnet:?xt=urn:btih:6774869FCDC377DCC3B7EA885A8471CDF1D275D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ VA - Music News vol.140 (2021) [MP3|320 Kbps] <Pop, Soul, Dance, (Other)>
 ```bash
 magnet:?xt=urn:btih:77F3DF56C0D664E82794F31ED6200DE62BBE0DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Maya Fadeeva, Club Des Belugas - That's My Style (2021) [AAC|~310 Kbps] <Jazz, N
 ```bash
 magnet:?xt=urn:btih:BE095318C62E77263D43CD78FE6737C2ECAB9452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5216EE30A87A5021CFFC938D99F4BDD72F1AE75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ VA - Lounge Philosophy, Vol. 2 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:3DA931E58E6C279A5663123EE85355AB0BB5735D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Movavi Video Converter - конвертер видео и аудио файло�
 ```bash
 magnet:?xt=urn:btih:A8D531DF1EAF2837D0C0DD4F86A890C958770F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ RX уже давно является популярным пакетом для
 ```bash
 magnet:?xt=urn:btih:68F99D4787EE07628630BB44F583AD0328E5B31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Adobe Substance 3D Sampler 3.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:487B882EC117BBC9ED7C6A5B29A31036703E245D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F571A2781C402A806953CEFB678ED73D1821CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D46035517D67ACD568696F45AE9483B2DCD72F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ Emmylou Harris - Producers Cut (2002) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-A
 ```bash
 magnet:?xt=urn:btih:56869ECB38837400D90DD66019A09AC07318887C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

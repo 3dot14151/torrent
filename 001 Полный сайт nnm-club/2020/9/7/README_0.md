@@ -21,8 +21,7 @@ VA - Afternoon Chillout Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:F3501C2ECDB2A661F5BC6A23984912A36E691632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:E13C2EE20683B7D63E3AC4516D54D49872220AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:B14272187F39F7D0807500629B63204A2094C330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ HDCleaner – многофункциональный программный пр
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53EE9035A6F259ECF098291FAB8E19DE93CDFE56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Monolith - Unnatural Bodies (2020) Soundofmonolith [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:085E3E5331228E22A8FBC6C68B3DD09F69E8C635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:D3D385E7B52981C131BB47E2AC69A3D103D12936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:4B59856E36AE1746C6BA518BBAF486E867CB4041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ YTDownloader – простая в использовании программа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAD83B296E9D1DC9D7D709E6FBDB581DDD591067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Fredrik Lindborg - A Swedish Portrait (2020) [MP3|320 Kbps] <Mainstream Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Yesterday o Utatte | Sing "Yesterday" for Me | Спой мне Yesterday [2020, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8790445C2586B09461FA5402A44B24C331441F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ The Mavericks - En Español (2020) [FLAC|Lossless|WEB-DL|tracks] <Latin, Country
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:A82B1BBD308D567DE4872F325ECD0C6C98919869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ GeoGebra — мультиплатформенное программное об�
 ```bash
 magnet:?xt=urn:btih:5158034727AFEE2D9B0F9E88906D1C7EC93912E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
 ```bash
 magnet:?xt=urn:btih:F43D449F042CE44C44752F8602AE03C55BE953A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6D1A64C75D4BFB022B2D1653846F9DDDDB2C16C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
 ```bash
 magnet:?xt=urn:btih:CC35407B8D019938034182567EEFB738C983FD76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Count
 ```bash
 magnet:?xt=urn:btih:39A099F83FA7C38A13098746D355E7C53964240B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ Topaz Mask AI 1.3.3 RePack (& Portable) by elchupacabra [En]
 ```bash
 magnet:?xt=urn:btih:BC7A12B2EC558AEC535CDDEF073FC1D0C4962B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ VA - Workout Top Music Motivation (2020) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:0218FBA8438DA9287BFFCBF88E78FC516E6EA518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ Program4Pc DJ Music Mixer - это приложение для простого 
 ```bash
 magnet:?xt=urn:btih:B7596160963609FB2DBEDDF2EC2940690636C761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ Topaz DeNoise AI 2.2.11 RePack (& Portable) by elchupacabra [En]
 ```bash
 magnet:?xt=urn:btih:1E17FBE4F06319C1C984B9F7615A063E2B8E223A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ Stairway to Heaven - Brain Damage Tribute to Pink Floyd (2012) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:5D12FD492ED643E98DE511F016563A7609F4A619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

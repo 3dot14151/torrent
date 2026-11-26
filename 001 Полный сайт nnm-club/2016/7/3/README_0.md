@@ -21,8 +21,7 @@ VA - Зарубежная Дискотека ХХ Века - 47 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:BDBFBBF36DD152289D381CCC62C108081C0B98B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Зарубежная Дискотека ХХ Века - 48 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:4A730AB73C9DF9DCBD2D42197AD5E9D6BBAF882D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Зарубежная Дискотека ХХ Века - 49 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:3AF1D4250C3E96B2C799361AC5C65F16A04C0185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78C15050DBBD5123DFD4EDFB1CB4E2A9B47EF641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Whos Afraid Of 138 Top 15 (2016-07) (2016) [MP3|320 Kbps] <Trance, Upliftin
 ```bash
 magnet:?xt=urn:btih:8325CDAD17D00B386239B61C25CDE955CF966C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Lauer - Borndom Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:00AD4B2C00D26D42CCC6B69AB604A6901CA3AE03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Henry Saiz - Secrets (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hous
 ```bash
 magnet:?xt=urn:btih:BEB2651978FAFBB734DF41527DA51B0DE38741B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - Зарубежная Дискотека ХХ Века - 50 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:D12920F0B89B2B619706B290866D62CCF417C0A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:863C9469C5165AEFB192D54208567349BCB808A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ XMedia Recode - отличная утилита, цель которой - по�
 ```bash
 magnet:?xt=urn:btih:440EB06E0873F48D9800DB79CC94F478A647CDB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3C090E02D32B90D67DB79874E31087B06A742B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Delta Goodrem - Wings Of The Wild (2016) Sony Music Entertainment [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:0864259794C98AC40F51B9012135D0C4D831510C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26CD4115BBD5E3C9C0C4FE41B2FBBF3DAB784BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:521C8115F30E1B6FB3F45C8648BF0D7096F7A319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:CEE3EB6D93A6B94B7D917B6DC87896741D8715DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ VA - Sleep, Rest, Relax (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:4217E1B9098877B0B02223A7B6FD5E4066CFD368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:921731D9C7EFFE30EC62B159899C25FC5B56907D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Midori - Soul Healing / The Best of Midori (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:9C217C1E8C734FB8AA310C767388EFF63A225FB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Ahmed Romel - Kenopsia (2016) Single [FLAC|Lossless|WEB-DL|tracks] <Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:37C843CBFD011BD4BC13587BEEE49C283A7F0512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80DE168B904C86D967D5B8DB3EEE5D01DCB86EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFA5B3CACA021DC02D67646191D065FE8FACF2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C73215B5192ABE37F550328AF052BB4B525DB7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ The Pointer Sisters - Best Of The Pointer Sisters (1998) [APE|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:5778584DE032F97E2C7F563DE7420AF2480EA7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F03694B4E0FAEE36B66A6C758CBC0AC1A1217107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ VA - TOP 100 Club (June) (2016) [MP3|320 Kbps] <House, Electro House, Club House
 ```bash
 magnet:?xt=urn:btih:90D950EDE7D57CAF339623FBC557EFF647CF663F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

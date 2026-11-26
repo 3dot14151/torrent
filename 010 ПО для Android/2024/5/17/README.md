@@ -19,8 +19,7 @@ Soul Browser - добротный браузер, что несмотря на �
 ```bash
 magnet:?xt=urn:btih:3944B4E0A48994CD4D3F1CA354B4411D4181388C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Denoise it - ИИ фоторедактор v1.1.8 Mod by srajawwal09 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2268D5C3400ABC1A3130DA202981EAEC9D7FA17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

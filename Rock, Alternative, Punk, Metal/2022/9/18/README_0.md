@@ -21,8 +21,7 @@ Kotipelto - Coldness (2004) [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Meta
 ```bash
 magnet:?xt=urn:btih:5A4ED0DEAA841D0B23F713356FD87740E5AA1207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

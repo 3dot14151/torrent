@@ -19,8 +19,7 @@ Aragami, игра в жанре "стелс", посвященная тайно�
 ```bash
 magnet:?xt=urn:btih:3A5C7FC449FC0E9C36C8EAC68C272512DE378072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

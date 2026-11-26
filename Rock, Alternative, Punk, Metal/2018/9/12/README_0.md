@@ -22,8 +22,7 @@ Andrew W.K. - Close Calls With Brick Walls (2006) Japan [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:84588059920549F2854117F1BA721A46FA7951A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Andrew W.K. - The Wolf (2003) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CEBAA1A1A95727DFF7348502264609F6CD4E7F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ The Union - 3 Albums (2010 - 2013) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blu
 ```bash
 magnet:?xt=urn:btih:34C8007E989722497327A4F59A4FB50AD1F195B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

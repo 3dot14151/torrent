@@ -19,8 +19,7 @@ F1 2017 (2017) [Ru/Multi] (1.6/dlc) License CPY
 ```bash
 magnet:?xt=urn:btih:C8B7435678C68AF39BD1607B27718E84A7A5ED0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

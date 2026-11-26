@@ -27,8 +27,7 @@ Memory
 ```bash
 magnet:?xt=urn:btih:ADD414FA2D8D0842865133625C6C88DBAF6CD8D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

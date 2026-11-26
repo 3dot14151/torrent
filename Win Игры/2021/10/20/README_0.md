@@ -19,8 +19,7 @@ Impostor Factory (2021) [Ru/Multi] (1.0) License GOG [The Screw-It-Just-Gimme-Ev
 ```bash
 magnet:?xt=urn:btih:3DE6E2BDA2290C9483571F840A9DFAEAB7E03D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

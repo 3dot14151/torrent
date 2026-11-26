@@ -28,8 +28,7 @@ Dire Straits - Brothers In Arms (UK-1985) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Cla
 ```bash
 magnet:?xt=urn:btih:28EF6996305902676186E9B67D432697DCEEFB96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

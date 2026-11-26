@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:830AAED4D7E8CAF0B965CAFC74B514A86DD9A295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ BetterMouse — это утилита для macOS, улучшающая про�
 ```bash
 magnet:?xt=urn:btih:4D3AF56D0FA3B58A88D0D3E2F744C3F7F058EFCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ PJ Masks Power Heroes: Mighty Alliance призывает вас объедин�
 ```bash
 magnet:?xt=urn:btih:D2A3FEC8F75BE678636403446CA0D8376AB4A060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ RipX DAW PRO обладает (   Читать дальше...   )Тип изд
 ```bash
 magnet:?xt=urn:btih:047950497CA87CD7780DB5275062E58D52CD5CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9763ECED6EB1808FFC7E9591F8E75E44CE2A668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5946E89D3D3540BAD00EC3BAFA2A14A408E0275A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ VA - CLUB HITS | Dance Music 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Ele
 ```bash
 magnet:?xt=urn:btih:37047C1D3CD028FE67EB183B0C493DC86C7866C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

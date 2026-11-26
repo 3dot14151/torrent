@@ -22,8 +22,7 @@ ZveroБой (Зверобой) - Ток (2013) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8EE1F6F9B6B09C645B7040CB2E8BF744EA6EE95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ ZveroБой (Зверобой) - Напиши на мне (2012) EP [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:31A065FEE3E7C774B23317412E856F58EB31AAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ ZveroБой (Зверобой) - Акустика (2009) [MP3|256 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:69DAF2FA9784BDC8AD6B9C120F22BC4F0E426892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ ZveroБой (Зверобой) - Жив (2008) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:86905DE3387427138B1E5131190E49C8D805D887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ ZveroБой (Зверобой) - Чистое небо (2014) ЕР [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:10D9F8CC60827D5F440A2A80EF089A4770E3D27E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAC2EB4F9A5E3102E1F448812AFE55F728888B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Matrixx - Здравствуй (2017) [FLAC|Lossless|tracks + .cue] <Neo-Pos
 ```bash
 magnet:?xt=urn:btih:015E881A6D238A811E75B6BBCA31BCC95BFE7709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ ZveroБой (Зверобой) - Война за мир (2016) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:BCB34B86EB059EED8CDD188776CF18EFE8EE9456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Black Sabbath - The End (2017) Live, 3CD, Japanese Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:2B3006676C8DC5A4AC8FC28F7ADFFB8FB5199319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

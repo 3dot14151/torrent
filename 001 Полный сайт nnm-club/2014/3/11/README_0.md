@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:39E7C4663F9B920FDE63FA5D22B027BF4A29D757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AC09414C8972A8C81797D804CA8D43E6B7ABD59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ken Peplowski - In Search of (2011) [FLAC|Lossless]<Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:9A1C8326A693B9C666AAAD963C84646792FEF53C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Julian & Roman Wasserfuhr - Running (2013) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:4DD1290B16C7E082CF2F2C0E8602EE852997CAE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Ken Peplowski - Maybe September (2013) [FLAC|Lossless]<Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:23771F88EBD73DA65AA1CD9C3ABE491D409CFB4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Kenny Wheeler, Norma Winstone, London Vocal Project - Mirrors (2013) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:CE5F81C60CB1AC8482275435BFC94D1AC609B1B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:2474A7C271FC80F64C13598522217F1E61ECE3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99280E799517AF3EF026B872757C6B6CFCB07217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C61A287C3AEA8B5051C946B00F62EF924B95AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8A78DE2540D2C490EE12DA81BD5CAD1CED9180F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ Annodomini - Sixtrinity Secret (2008) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:11C6B624433334CB9623B4765AE6800B739420DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ Robin McAuley - Business As Usual (1999) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A19005CE90FE829F8B336C554BA1E047CF2BF0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ VA - Stories Perfect Infinity (2014) [MP3|192-320 кб/с]<House, Club, Funky, T
 ```bash
 magnet:?xt=urn:btih:B7EFA0C860C3809A048F80E79FE5A57EBFEBF304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +417,7 @@ Ken Navarro - Dreaming Of Trains (2010) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:24E46F83C30F29C0E88FF992797116BD5CED59BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCC2822FE6F70E13EFE3F0E3D86BFEF29C425929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ VA - Chill Out - Spring Essentials (2014) [MP3|320 кб/с]<Chillout, Lounge, Do
 ```bash
 magnet:?xt=urn:btih:77D9299004485FC9C70CF1B638C5881DF502710F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9DD51EEAD88F8488ED10215934A1203E8FE4A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ VA - Q-Dance Presents Hardstyle Top 40 February (2014) [MP3|320 кб/с]<Hardsty
 ```bash
 magnet:?xt=urn:btih:CB150882210E51E4FDC78FACF050E02E79DF239B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +569,7 @@ Magni Animi Viri - Heroes Temporis (2006) [MP3|320 кб/с]<Epic Symphonic Opera
 ```bash
 magnet:?xt=urn:btih:BBBBDFC36C980D66C2DCAFDAE3A96F504A2E7A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E0D8EC4B8FC2219F68F052462FD92F006054306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ VA - Chilled 2014 (50 Essential Chillout Grooves) (2014) [MP3|320 кб/с]<Chill
 ```bash
 magnet:?xt=urn:btih:6938B964E2E60BCC00DF1A379A854D8FC310652B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +662,7 @@ VA - Best of Trance Vol. 2 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:34D9A0C6E0833B8B524FC6828034EB3092A99B0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:064707A0BB37348E2EA8BDE16FC530AEF64DE992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C0294FD8F44A90C805C6F7EFDE3CC8AB71E45F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +746,7 @@ James LaBrie's - MullMuzzler 2 (2000) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:36A9712D9E005680C76927A797A38CCCD4605C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +771,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D429C6C356F2D2876AE55CC3447C0B0D2DD4E3A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

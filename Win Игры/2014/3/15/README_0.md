@@ -19,8 +19,7 @@ Aarklash: Legacy будет опираться на настольную игр�
 ```bash
 magnet:?xt=urn:btih:BAFBB81CFB3198D68BB4D4CF40BD0DFF411B147A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Dark Eye — Demonicon рассказывает о печальной суд
 ```bash
 magnet:?xt=urn:btih:0AC0C1FC30BAEEF491A4B66D3A4F3FF882E94E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

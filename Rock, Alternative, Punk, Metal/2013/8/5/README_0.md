@@ -28,8 +28,7 @@ Exilia - Decode (2012) [FLAC|Lossless]<Alt.Metal | Nu Metal | Female Vocal>
 ```bash
 magnet:?xt=urn:btih:7DF901E29F9024D5C8654E6E6AF204E0652F5D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -69,8 +68,7 @@ Grateful Dead - May 1977 (1977) 14CD Box Set /2013, Rhino Records USA/ [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:167BCA6B373CC022FB4F18F7F07BF26451C5BAB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +102,7 @@ CD 1Жанр: Rock, PunkПродолжительность: 01:19:40
 ```bash
 magnet:?xt=urn:btih:157D0A48907B2D0423C4B3F34D1C93D05B8020DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

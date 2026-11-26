@@ -19,8 +19,7 @@ Cloud Meadow (2020) [En] (0.1.4.2a2) License GOG [Early Access] [18+]
 ```bash
 magnet:?xt=urn:btih:017CC0841222D627967677C143073DCFD4278F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Afterimage (2023) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:09D7A967A8469F90467A86548623BAD45F4E5B05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ravenbound - это оригинальный ролевой экшен с эле
 ```bash
 magnet:?xt=urn:btih:CC7683609AD8F3A3476C47E3D1E979A5EEDA59FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

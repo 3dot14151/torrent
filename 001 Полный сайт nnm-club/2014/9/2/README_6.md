@@ -25,8 +25,7 @@ All Around Heroes - Aah... (2014) [MP3|320 кб/с]<Melodic Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:74E5CD0BED1A352DFC23749925C12181E4CC6FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Gnarwolves - Chronicles Of Gnarnia (2014) [MP3|320 кб/с]<Melodic Hardcore Pun
 ```bash
 magnet:?xt=urn:btih:4C8F1A1EF1522CD6A9552DE78BF2E3770B1E1C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Silver Lining - I Hope I'm Still Around (2014) [MP3|320 кб/с]<Hardcore Punk, 
 ```bash
 magnet:?xt=urn:btih:AF5D46EBC39BE1FB885782375DA7614C57E5F55C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ VA - Infrasonic Collection Series Volume Ten (2014) [MP3|320 кб/с]<Trance, Up
 ```bash
 magnet:?xt=urn:btih:5B43EF8990AF43CF0657F84439B088E45BA1D59B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ PuppetCopter - летающий робот-кукловод от компани�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3A2EB7AEFD4F7E32B79A7361F0035A4400F26C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Astra - Broken Balance (2014) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:3E8C7E978817472C1E5A01B9E83769980C57B378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:288E4166DB3622A9231E26BE18E1245809DEB498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09ADFC0CBB711AB78FEC3C3335952EEBFA1E5EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ The Human Project - Origins (2013) [MP3|320 кб/с]<Melodic Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:55D03A97B8A39E6606941B4F5A4F38D535FA16FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ JavaScript framework для быстрого прототипирования. �
 ```bash
 magnet:?xt=urn:btih:C4BA898A28B6EB26498B63FE713131D9116FC0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ Merging Flare - Reverence (2011) Japan [FLAC|Lossless]<Heavy Metal / Power Metal
 ```bash
 magnet:?xt=urn:btih:3CE607329BBAC8A12875C0F9BC8A0CF7586E1529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +392,7 @@ Kill Devil Hill - Revolution Rise (2013) [FLAC|Lossless]<Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1CEFFF6915A21CD973D9F6A97DEE0C1F207BC15A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A478A659093198AFFC03769CBCF4CC7226557CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ Love Sculpture - Blues Helping, 1968 (2008) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:8AB4AF38552F94F7D9A2D1D34FFC900AD94203D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +485,7 @@ Barbara Carroll - I Wished On The Moon (2007) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:8490278A17E4EB24B854292CDBDC207877F6102D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05E5504249E02CDA6A1169566D5E6425FE8C986A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ VA - Balearic Island House Chillers Vol 3 (2014) (Ibiza and Formentera Deepest G
 ```bash
 magnet:?xt=urn:btih:CBAD06DF5CFAF9D33EC3A4D866E553BF53AF7B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3519E0EA576ED9107A1D607FA2196AB755DDBF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04068D14D4117CBC6D5DFF7A6158034830B5401B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D551038C7B998177CC32395F61659D6D1E10F05B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF925748D62FEB29F50DE15BCA4544A03E9F2251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B874B56F9AA90C25FEE21E8527BDC044AFC5F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ Entombed A.D. - Back To The Front (2014) Limited Edition [FLAC|Lossless]<Death M
 ```bash
 magnet:?xt=urn:btih:D7FB1A20F7F65F70AB5242D2235E9A461479BE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +740,7 @@ Derdian - Human Reset (2014) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:AF4402FB7FF8101AC8DA90040DF3713B320122D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -799,8 +774,7 @@ Mason - ZOA (2014) LP [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:3AE65FC90B45800E7C1CAC7F3A63CBB5735F690D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

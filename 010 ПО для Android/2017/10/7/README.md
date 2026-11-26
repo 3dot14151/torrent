@@ -19,8 +19,7 @@ Facetune 1.1.4 [RU]
 ```bash
 magnet:?xt=urn:btih:EA179300017AC9377CE97E1F4E8603F1F924823D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

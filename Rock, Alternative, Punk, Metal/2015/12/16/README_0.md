@@ -22,8 +22,7 @@ Bloody Hell - Bloody Hell (2015) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:262B20340222D3E57FCB8FE8F0FCF8D447B84DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dream Evil - The Book of Heavy Metal (2004) Limited Special 2CD Edition / 2012, 
 ```bash
 magnet:?xt=urn:btih:27E87DDCCB7C4ECAB3BF9B33009B32E1E12F4632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Avantasia - Mystery Of A Blood Red Rose (2015) Single [MP3|320 кб/с] <Power M
 ```bash
 magnet:?xt=urn:btih:FF82E5441D99A26C66B99354F27BF4620C3253F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Iggy Pop - Naughty Little Doggie (1996) [FLAC|Lossless|tracks + .cue] <Alternati
 ```bash
 magnet:?xt=urn:btih:0A139B73C597141939AE18A64AF8ED31AED0F296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Adriano Celentano - Il Rock Di Adriano Celentano (2006) Re-Mastered SAAR Studio 
 ```bash
 magnet:?xt=urn:btih:00B079A30D18F2364984AF4CC00D80AF2EE6AC01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Manfred Mann's Earth Band - Criminal Tango (1986) remaster, 1999, Cohesion [FLAC
 ```bash
 magnet:?xt=urn:btih:C1CF6B02DCD2FB8665CA17364D59D781094FCAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

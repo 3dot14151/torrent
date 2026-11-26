@@ -18,8 +18,7 @@ Michael A - Dark Mirror Session, Vol.1 (2022) DJ Session [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:61B2CB1C7AD918BD69090D55A411603DA8A11B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E40B364BFA49E0ABB58BF6B37FA54F5B095A587E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Impressive Sound 2022.1: Volume III (2022) Compilation [MP3|320 Kbps] <Post
 ```bash
 magnet:?xt=urn:btih:772D392AB77009FCCD4D26F140F05091B6124571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Journey - Freedom (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Arena Ro
 ```bash
 magnet:?xt=urn:btih:FC2ED9E8902A673EC41AD167AA7289C769024ACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAA1E3FF2203AD7EA424D60BC36BD018F1AA3FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - Impressive Sound 2022.1: Volume II (2022) Compilation [MP3|320 Kbps] <Techn
 ```bash
 magnet:?xt=urn:btih:313B25290483F2B6B43BCA32A88A3FE01F221F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ RAR Extractor - Unzip ZIP 7Z 6.7 [En]
 ```bash
 magnet:?xt=urn:btih:929DA77AEBD7B072F00EA32EB499102D95A1B7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:948C81EB26E513B4E906B00A7400C47C1AD556B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:07CF280CFF7BA652484D0D796D2F39919206AB70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ```bash
 magnet:?xt=urn:btih:A4567001944AC123480C56C2E550FBD7FBE3F12B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC7CA018E80C798F8085F624055235A54B3D5ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ VA - Impressive Sound 2022.1: Volume I (2022) Compilation [MP3|320 Kbps] <Progre
 ```bash
 magnet:?xt=urn:btih:4BF379CB5B89F3AFF46CC24315C9B0A0AB4E66EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E4430BD93AA2CF2227B3CAF54C24A78C0756893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BE21CACCB3A3D05E58327DDA3677F666EF9F9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ VA - Impressive Sound 2022.1: Volume IV (2022) Compilation [MP3|320 Kbps] <Jazz-
 ```bash
 magnet:?xt=urn:btih:4153E3D265FCFD5E71D6A2D46B9DAF0307E40235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Digital Clock 3D 2.1.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8A810B8678200D6806E7E0C546C971F897FFB563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:4EFD258E734DD9333C8C905C601358420C15328E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ ISO Workshop – небольшая программа для работы с о
 ```bash
 magnet:?xt=urn:btih:34EC17B770C0807BC836A54DC1D79952B2A7D03E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ VA - Impressive Sound 2022.1: Volume V (2022) Compilation [MP3|320 Kbps] <Instru
 ```bash
 magnet:?xt=urn:btih:B9328A9BFEE0853E89B72A83219B87D86C9B6F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7F93E28074D71E0CDDBBBCAB4A146477CE60187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 ```bash
 magnet:?xt=urn:btih:FEECD16C2683D36807C3A670AEE5C32CD47D387B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ VA - The Best Acoustic Album In The World...Ever! (2022) [MP3|320 Kbps] <Pop, Ro
 ```bash
 magnet:?xt=urn:btih:C105D9B5B2B23CD7C9088691DEBCE30C86AE4D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ Format Factory - многофункциональный конвертер ра�
 ```bash
 magnet:?xt=urn:btih:1D7B87DEC1BEF32AAC382CF3FEAF3C7300EEAF97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ OCCT 11.0.10 Stable Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:19C604EF2EF22E27EFD2843474201DEDE49F1A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:E54490F931F8E452572C40D0C2CFAD6D22FF0B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DA91E769769A990B5ACF1D1DFCF9C0C560F69E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fake GPS v5.3.1 [Ru/En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:6869B596507EE791A7937A6734C2C4F24486D1AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

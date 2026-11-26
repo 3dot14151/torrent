@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B632FF48C5F0EE5C6CD25372996A28EC34957D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Grand Theft Auto V / GTA V [PS3] [Ru/En] [Repack / 1.10 / 4 DLC] (2013) | R.G. I
 ```bash
 magnet:?xt=urn:btih:958E464B06DF5E8307F3988C1B8F1B26CDC86FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ The Last of Us — приключенческая игра в жанре surviva
 ```bash
 magnet:?xt=urn:btih:2F9418367E744C2353E5E714D7438C8B50C347BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ FIFA 14 (2013) [Ru/Multi] (1.4.0.0) Repack z10yded [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:29EEADD74856CCAA3B5F897F2CC80E96F370F1D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

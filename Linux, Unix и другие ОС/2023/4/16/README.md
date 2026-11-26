@@ -20,8 +20,7 @@ TrueNAS SCALE 22.12.2 [x64] 1xCD
 ```bash
 magnet:?xt=urn:btih:434A0FF76FD00759B161A536A13104D05B7A41E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

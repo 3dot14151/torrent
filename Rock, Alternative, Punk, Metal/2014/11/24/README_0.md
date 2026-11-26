@@ -28,8 +28,7 @@ Fall Of The Leafe - August Wernicke (2000) [FLAC|Lossless]<Atmospheric Melodic D
 ```bash
 magnet:?xt=urn:btih:C6411900061EFEF7DF2E0997557C9275C23889B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Triphon - Awaken (2014) [MP3|320 кб/с]<Melodic Metalcore/Modern Metal>
 ```bash
 magnet:?xt=urn:btih:EF876C6F902DCC6A21FB6B22A3E2632937DA50CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Henry's Funeral Shoe - Everything's For Sale (2009) [MP3|320 кб/с]<Hard Rock,
 ```bash
 magnet:?xt=urn:btih:710F311D985E418C40B514BF8665D854726A456E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Arcade Messiah - Arcade Messiah (2014) [MP3|320 кб/с]<Post Metal, Progressive
 ```bash
 magnet:?xt=urn:btih:90962AA56267EECD785DF9D3BEF2C5A45F063AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Primordial - Where Greater Men Have Fallen (2014) [MP3|320 кб/с]<Black Metal/
 ```bash
 magnet:?xt=urn:btih:00F80E173FE5A1570DC1AA7C6A391913B9BF50F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Deadwood - Picturing A Sense Of Loss (2014) [MP3|320 кб/с]<Post Black Metal, 
 ```bash
 magnet:?xt=urn:btih:CD65375E9B84CBD37B452B93EE3666D325643692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ VA - Classic Rock presents: Voodoo Lounge (2014) [MP3|320 кб/с]<Rock, Hard Ro
 ```bash
 magnet:?xt=urn:btih:FE32C786625AFBBB87DAC7DBC07A83450DD6DB63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Imperial Age - Warrior Race (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:DEC3056F75535DCCFCB73C126CFF0F1BB6545EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +285,7 @@ Caffeine Cafe - Cut The Time (2014) [MP3|320 кб/с] Авторская раз�
 ```bash
 magnet:?xt=urn:btih:94B492711C3388774830F444E8A6DBD6440A0F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

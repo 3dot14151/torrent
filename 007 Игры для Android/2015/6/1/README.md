@@ -21,8 +21,7 @@ Where's My Perry / Где же Перри? 1.7.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:2C18687517A8A2A1B18BC6423D8A9551BD2DD180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

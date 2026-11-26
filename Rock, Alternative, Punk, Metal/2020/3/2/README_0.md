@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:2C01AA157B19EB80BD726720586FB90A4F7CD4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Factory - A Tribute to Pink Floyd (Best of Remix) (2015) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:C054B00053A1E1398DD018842980B1B7F992DD1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Factory - A Tribute to Pink Floyd (Best of Remix) (2015) [MP3|320 Kbps] <Progres
 ```bash
 magnet:?xt=urn:btih:B0312AB08FF484DE9461A4279817A0DB5323B519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ozzy Osbourne - Ordinary Man (2020) Japan Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:6E9DDE91892EC3FC009BB8D49DA4D7A289DEE312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

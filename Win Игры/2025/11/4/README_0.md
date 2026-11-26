@@ -18,8 +18,7 @@ Knightica - сочетает в себе жанры стратегии и сим
 ```bash
 magnet:?xt=urn:btih:4B9CD71B895BBA2444B1A68F040B9DC683B6CD66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Super Mario Bros. Remastered (2025) [Ru/Multi] (1.0.1) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:6450F61335414FA1B2EE364793A6AA37C3015CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ GoLand - это IDE от JetBrains, нацеленная на создание �
 ```bash
 magnet:?xt=urn:btih:962D3787699788596A93F8BECD892B5D47533B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

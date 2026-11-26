@@ -20,8 +20,7 @@ Concept - Straight Forward (EP) (2012) [MP3|320 кб/с]<Psychedelic / Night Ful
 ```bash
 magnet:?xt=urn:btih:453C140E2993B3F917485EE71BD7F79E8E2B2EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:BFEEFECB6B1D5952FA8C29282C8B1E0BC1D4899E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:0B9B94BD0DFDD766855C355CBDDF80E16195E67F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD0EAFA07C44015DB34E9AD658D8384EC1E285D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4A5813758C0EF1A7FF922CB36A13893F917FA7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:F793B36C36CCDFABEB42916B4B9B48D2492E7CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Reverse - Reverse (EP) (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:F5A2E55C3BEB1E76FE4B514C2E967252864417AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:04344BE57B5D786854533A98BA4C07A29C9F205C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Total Escape - издание, воплощающее саму суть изыс
 ```bash
 magnet:?xt=urn:btih:B3CF658269BF5FA4A43E44C4DDF4FCB640A037BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:5262FB286CABB80F3CA87148D982EB3BEC73D345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ VA - Deep House Stories Volume Five (2012) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:8C86D0823359306AD899DAE8C6EEB7AD3D8B29EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ VA - Клубные Новинки Vol.75 from AGR (2012) [MP3|320 кб/с]<Club
 ```bash
 magnet:?xt=urn:btih:FEB5CE83C3E59EC84E352A77ED2D5CE4A65335AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Elle Decoration - самый красивый и полезный междуна
 ```bash
 magnet:?xt=urn:btih:5ED51A709F7DB11680756F94949E801D70D0578E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ DJ Kocmoc - RED STATION vol.4 (3.05.2012) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B6D3FB9CE090F141C7FF93DB94E7B7E374C89628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Hopeku - The Awakening (EP) (2012) [MP3|320 кб/с]<Psychedelic / Full On, Prog
 ```bash
 magnet:?xt=urn:btih:846F108EC58507E95C16DECE15B55AFFD4A59F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Arminstel - Trance Evolution vol.72 (06.05.2012) [MP3|320 кб/с]<Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:03127B42A82A9C7300771EB85DC2B24D3DDDD57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A774C94D2D10E0B6C4D80BF0D4ABC0062BCE62C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C0F30BC09771CDAA89A72849F4245C01BF48297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E26B677BCDF4AE7A71C21606444EFC26EAA505EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:515696B46FFE492E502073CCFB2378AF02806EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Matremath - Hell (2012) [MP3|320 кб/с]<Progressive Math Metal>
 ```bash
 magnet:?xt=urn:btih:93A3F550DF9AA276981178C83BC89F13D2CF4D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

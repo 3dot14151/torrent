@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2F7AA6781E1A73CC8226ED1F2EACC55D86196B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:815A4A8225865D516CEABAAEB717066AD3B65591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

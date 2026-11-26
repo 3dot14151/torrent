@@ -21,8 +21,7 @@ Monument Valley NETFLIX 3.7.235 Mod by apkvision [Ru]
 ```bash
 magnet:?xt=urn:btih:A17975A1EFFD91404B2DD3EA14BF560A9AFAD788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Valiant Hearts: Coming Home 1.0.5 Mod by apkvision [Ru]
 ```bash
 magnet:?xt=urn:btih:B625EFF82840D7EB0B154558DE21DEC9F386A694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ World of Goo Remastered 1.0.23082408 Mod by DroidHaven [En]
 ```bash
 magnet:?xt=urn:btih:3F8E689EE1288F63235E88B01250FDD291E03500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ CyberYozh Academy, Павел Банников и др. | Кибердетект
 ```bash
 magnet:?xt=urn:btih:8B7763794B9BD7CDCD9232A7242A9E17E45EB5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Revo Uninstaller Free 2.7.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:171E7CF40EAF86853C282DA2FB6BAF328381A3CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B3C4FFC40EA4EE21F57DE64EE04AE993385D38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Anthrax - Cursum Perficio (2026) [FLAC|Lossless|image + .cue] <Thrash>
 ```bash
 magnet:?xt=urn:btih:42CF7E6EB596405F1A0E3C7DEF665407C7104A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:E4CECE167F25DFEBFD05A34CD4EA65D3E59797A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Gears of War: E-Day переносит игроков к событиям Дня
 ```bash
 magnet:?xt=urn:btih:2BFBF9B0EDD1595099711F9AE50E122DCC5539D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Flotsam And Jetsam - Rats In The Temple (2026) [FLAC|Lossless|image + .cue] <Pow
 ```bash
 magnet:?xt=urn:btih:E5EA062B4F9A998E0C588B05B91DC20B6777A5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E38D6F02E67F2F68316442CDDBE1DD97B8FC148B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B9DEA0D1D1E42CBC0E4EA13F67D0ADE9861843C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A37A5A68CAC813438484EBC95F5F59802B99CE95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BC85805A162A203C659AA7BDCF1C9AAE92E4511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Growth - Under The Under (2026) [FLAC|Lossless|image + .cue] <Technical Death Me
 ```bash
 magnet:?xt=urn:btih:30F8DFCCC7E362DB0E0EE048773165A714CD03F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Gears of War: E‑Day - это приквел культовой серии, �
 ```bash
 magnet:?xt=urn:btih:0A6C044CEDB71A422BC88615B28FEA92E520F6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FE3366450974682F1CCE2E22ABAE963A7178B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ JavaScript.Ninja, Илья Климов | Тестирование в эпоху
 ```bash
 magnet:?xt=urn:btih:0E575E6ADE422437EA2EA82C01EB1FFA60696856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82501619D0557FE81A8134B31E2FD1CBF6A58C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:519A71734D7EF4608E9BE76FD739DD85BC29A4F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ OCCT 17.1.7 Portable [En]
 ```bash
 magnet:?xt=urn:btih:BAAC79BD9FA5395CC28DE469FEB958B16B215D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ AnyDesk 9.8.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CA494305B347E169CFEF944A575619E451756B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:234D8C14BFB0D089A1CC0DA3BFF52C08FE93BA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ Tuscadero - My Way or the Highway (1998) [FLAC|Lossless|tracks + .cue] <Rock, In
 ```bash
 magnet:?xt=urn:btih:114F0B5C9A179222AEA9E3CDDC8C63B60EAD4251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ Adobe Photoshop 2026 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:A999204B33A0A2872557D6DDC05C9AB24265D2DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ Adobe Photoshop 2026 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:C4AEB23E7418D1226BCFC94CA960841C837E6693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4773FB0EFD3BC89F8EE7AF40EE9286863557AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ Navicat Premium — это надежное комплексное решени�
 ```bash
 magnet:?xt=urn:btih:7EDBB2C9A41C7599F068224D01B21867999A7EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:363BCBBA1AA3382B0000A466745230AD90865224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

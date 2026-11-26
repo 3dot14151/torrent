@@ -19,8 +19,7 @@ Fear For Sale 3: Nightmare Cinema. Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:E365A31251CC210D4802DD5381FC603952FA6206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fairy Tale Mysteries: The Puppet Thief Collector's Edition / Сказочные 
 ```bash
 magnet:?xt=urn:btih:34D54760D4856EC53DF1D732F6FF4086ED270797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pid (Русификатор/2.1) [Ru] 2012 | Бaton
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Adelantado. Trilogy. Book Two / Трилогия Аделантадо. Книг�
 ```bash
 magnet:?xt=urn:btih:7ED77DD84BC1464F742DFF5E71C2F18E4CA4DEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ ParkingLotGrass - Tusk at Hand (2015) [MP3|320 кб/с]<Alt. Rock, Modern Hard R
 ```bash
 magnet:?xt=urn:btih:12C8DC035455BA9C891990103C021F5475F1C3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sara Lov - Some Kind of Champion (2015) [MP3|320 кб/с]<Alternative, Dream Pop
 ```bash
 magnet:?xt=urn:btih:1A670BEC0D264FAC82DFC38134DC5D2492C70623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lifeline - Scream (2015) Japanese Edition [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6D6798DDBE511067D76B6C8C4B7ACC823D2D1CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rod Stewart - Another Country (Deluxe Edition) (2015) [FLAC|Image+cue]<Classic R
 ```bash
 magnet:?xt=urn:btih:42F90A0FC24332E4C321B55D3B1BD42522BA2F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Рок против шерсти (приложение к журналам 
 ```bash
 magnet:?xt=urn:btih:C1EB43215AC7D978808EC4F0607E609B4BAF1E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dolphin (Дельфин) - Андрей (2014) Remastered Deluxe Version, 2015 [
 ```bash
 magnet:?xt=urn:btih:94EB092008D52061EFBE5CC38CAD7D82B3FB5A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C53ED7FA69B342156390B2E739072B7C4D52A59B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39ACCF8D7E3AB25807091FF8A27BFCD427A5392C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

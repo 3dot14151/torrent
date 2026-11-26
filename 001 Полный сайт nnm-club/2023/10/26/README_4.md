@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:72D13501D4B299FD973C424D271D5C444D6C8286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:B3EC24816E539EFD06377E54F8EB43E0FBF14276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:501ABDE0D91CE7A69330799A67170F65E248B69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ DISC 1:
 ```bash
 magnet:?xt=urn:btih:72319843AE98E5B1DDF5075C4CD77CADFCD54891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:9CBB71A1405FBE948736CD68C248311F90820723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Slimjet 41.0.2.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:92B56424DE87973EEF445C8DB7777548362CBDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50717ED8BB7C500520CE66F269EEC40A6F150020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:147E56D252893A3D32C4C42873245FC7986F9F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ EZ CD Audio Converter (Easy CD-DA Extractor) - мощное многофунк�
 ```bash
 magnet:?xt=urn:btih:77C8E5DE740EFB60DCB913F0097F1BA817EB23D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B3D8D57690A0A8047AF9952268D577CA56F4386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Firewall Security AI - No Root 2.3.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EBEDED80DA4C458DC17C35A6591701127FE1E986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:4184FAAA24F8DB1EA9CFE2A006A96BE5C2611FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A617AAB291E9E9D3E2BA5D80F6907EA3A26B1E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ True Burner - удобное в использовании программно�
 ```bash
 magnet:?xt=urn:btih:FBBE03CBF5EF44B58C5B682E16322950AE8F8E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ Live - это быстрое и гибкое программное обеспе
 ```bash
 magnet:?xt=urn:btih:2AF060525005EE83ED9D5DAEEC96488024E13813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ R-Studio - основанная на новейшей уникальной те
 ```bash
 magnet:?xt=urn:btih:4296099299313AC6C139465A49AC7842921765DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7F35E029D6BCF665D980F008F6E22838BC3CC4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ Tiptoe Lark (смотрите 1 скриншот)
 ```bash
 magnet:?xt=urn:btih:A3777D10D2776A2AE2C69D2DA9771259C4824B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4B210A52E3A7384831138FBED6720CF4EB921B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ Anti Spy Detector - Spyware 5.1.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DAB22C837801D4864D8F8A48A22C608B553FA90A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ Anthony Onyekachukwu Okonta | React.js Design Patterns (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:EC11F295EBE5DFFCD017C0533AB0E35CB8F0E4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF757D93DB7AE8827236EA869263079F1E99D2C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ VA - Beast Mode Hip Hop 2 (2023) [MP3|320 Kbps] <Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:74D13EDC5DEA7D752C9AE658F63ACAD738D6111F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C218BC8A4C9C8C57E50A270CB4DECB3CABA9702A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 ```bash
 magnet:?xt=urn:btih:1F019376E8050631369E7A2AA004622AC67EC027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ R-Studio Network 9.3 Build 191251 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C35DC69BFBFFDEC40B718B2FBF88190055BFBE01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

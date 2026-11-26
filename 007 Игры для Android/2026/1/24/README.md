@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F3AA5286B90F85321C3C7DBBF171F424027713ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jigsawscapes® - Пазлы v5.0.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4FDA1FEA2F4DA7FDB3E586C8829F38CE55BE62EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Jewel Legend: игра три в ряд v3.21.1 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:398703D2A0402ECE3A5AFC5FC0A39DCBD836CDC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

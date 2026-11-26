@@ -19,8 +19,7 @@ HeartZ: Co-Hope Puzzles - увлекательный экшен-платформ
 ```bash
 magnet:?xt=urn:btih:4C1715CEEE2003A4A2F6468AE15398E0B69AF7D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tick Tock Bang Bang (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:4B21CDBAAB285EC5D028104B2B18F66ACD498165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Park, триллер о парке развлечений прямиком �
 ```bash
 magnet:?xt=urn:btih:6F7686DF7D46809FD82EFE17D348E792A0BEC585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

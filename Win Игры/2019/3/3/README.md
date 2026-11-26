@@ -19,8 +19,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:227FD6F24D48A7383FE366EF273FD457C0FC258D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Space Engineers - это фантастическая песочница, где
 ```bash
 magnet:?xt=urn:btih:E5530F9D68AFF9EF533AAF0133A94174ED65DBDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ashen – экшен-РПГ с открытым миром, что расска�
 ```bash
 magnet:?xt=urn:btih:47E16B4D0A8657854E053A9E5B4B55C32B2490DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Farm Together — от создателей Avatar Farm. Начните с ну�
 ```bash
 magnet:?xt=urn:btih:2ABF48E114E57521E2F58D24097D0CA206396F8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Farm Together — от создателей Avatar Farm. Начните с ну�
 ```bash
 magnet:?xt=urn:btih:5E3579194AFEC70FBE4881D67D8EA9D334214550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

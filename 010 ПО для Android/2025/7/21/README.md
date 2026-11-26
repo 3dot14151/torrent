@@ -19,8 +19,7 @@ ByeByeDPI v1.6.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ADA865E2DA87F56FC85788F4F24614C0A72DC22A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E210A291DFBA1C8E20562B361542E7F8445186CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.21.6 Mod 
 ```bash
 magnet:?xt=urn:btih:85B2448B04A265F5DABCDA265A9D7C1A1C2D2FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABFCAEF78E7CDF33FF51B5E6277EAC024EECE4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

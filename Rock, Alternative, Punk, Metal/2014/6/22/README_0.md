@@ -28,8 +28,7 @@ Meadows End - The Sufferwell (2014) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:DB6932B938BE9FC5488356392826BED4DAFCB964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Tokyo Blade - Burning Down Paradise (1995) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:10867F5FBC6F259B9452B8E328324634B89AF219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Chuck Zayas - Down South (2013) [MP3|320 кб/с]<Rockabilly Blues, Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:D21335B7BA69E5B83D7C16AD20B6A578C5A2FD1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Classic Rock Magazine #198: Monster Mash (2014) [APE|Lossless]<Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:2D6F1F1E7EB36E901C3C95666883000CACFBC4B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Uriah Heep - Outsider (2014) Japan Edition [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:70D59B7FCC2C4FBFF38998A76E6C60E8CCC29F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

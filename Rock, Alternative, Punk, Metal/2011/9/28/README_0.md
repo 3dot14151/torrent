@@ -28,8 +28,7 @@ The Gate - Earth Cathedral (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8F19F36EDD708E2BEB83E650DE689B66216491BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Critical Heat - Life Rolls On (2006) [MP3|192-320 kbps]<Blues/Rock>
 ```bash
 magnet:?xt=urn:btih:3C24618148FACE207810497EFF3CA6B43F4FC8D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Marc Bolan & T.Rex - 17 Albums + 1 Live + 22 Singles + 6 Compilations + 1 OST (1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Bryan Adams - Best Ballads (1996) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:29CCBF7A71D46A8F9247E1167C0B8F63354A7CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

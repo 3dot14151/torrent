@@ -22,8 +22,7 @@ Zarpa - Imperia (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6EAF5D93A19680DB8BCE6D77241F6E7ACBB4875F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alter Bridge - AB III.5 (2010) Special Edition, Reissue, 2011, Roadrunner Record
 ```bash
 magnet:?xt=urn:btih:224A4C5022AC656660FFB4E6F0D903D98948884D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Alter Bridge - Blackbird (2007) [FLAC|Lossless|tracks + .cue] <Alternative Metal
 ```bash
 magnet:?xt=urn:btih:6C4259627EDD42AEFD98686327B62233E1665B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Parkway Drive - Viva The Underdogs (2020) Live at Wacken, Germany, 2019 [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:8EC4D6C9F92ACF9A4EC24DE8C1F31A4321ECC806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Eternal Grave - Arquitectura del Horror (2009) [APE|Lossless|image + .cue] <Deat
 ```bash
 magnet:?xt=urn:btih:04A02E9E5383753234567050FFE409EAF9C525D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Liquid Tension Experiment - LTE3 (2021) [MP3|320 Kbps] <Instrumental Progressive
 ```bash
 magnet:?xt=urn:btih:3D7440DFAF270F34EA04DD30CE8ADB6E18832F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

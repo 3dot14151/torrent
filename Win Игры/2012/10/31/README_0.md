@@ -21,8 +21,7 @@ Edna and Harvey - Harvey's New Eyes [Ru] [Lossless Repack/1.3.371) 2012 | Lumino
 ```bash
 magnet:?xt=urn:btih:201070187D8E9E4CBDF1BDCABDDB23B440D6D11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Dream Of The Blood Moon [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:CD0B4EB023368D4D0DC176BA892B7F35BC1255E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Infected: The Twin Vaccine Collectors Edition / Заражение: Вакцин
 ```bash
 magnet:?xt=urn:btih:ED3BA5A2EA4D4937434FFDE1E11EF9C89711B3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Delicious: Emily's Taste of Fame / Объедение от Эмили: Вкус 
 ```bash
 magnet:?xt=urn:btih:33A072E676B5F4C2459746FF1AF57ACF26672E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Uprising44: Silent Shadows комбинирует экшн от третьего
 ```bash
 magnet:?xt=urn:btih:45880242DC06478D7FB6A4D47AA6896DFDBE1E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Virtual Villagers 3: The Secret City / Робинзоны. Затерянный 
 ```bash
 magnet:?xt=urn:btih:25F1FDB0573B85544CD7434F43B944DBA5844078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Alter Ego (2010) [Ru] (1.07) Repack
 ```bash
 magnet:?xt=urn:btih:2188E537C73BCF5E299E098052D5B728471446FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0081C1A58DDCE9F46828486352B711395FD5E78F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Alawar Новейшие игры за 25.10.2012. [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:2EC8B93652E0F759C69E74BF3AB7746A6B1B8512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

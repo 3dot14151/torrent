@@ -18,8 +18,7 @@ Microsoft Office 2013 SP1 VL RUS-ENG x86-x64 Compact (AIO)
 ```bash
 magnet:?xt=urn:btih:C2EC10714DC5D9CE3CDA48C3AFD6A6416F054E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

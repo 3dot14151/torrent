@@ -19,8 +19,7 @@ ZArchiver Pro - файловый менеджер, что обладает вп�
 ```bash
 magnet:?xt=urn:btih:9A26941BD73FADF699773E66669B4CD7D555F94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

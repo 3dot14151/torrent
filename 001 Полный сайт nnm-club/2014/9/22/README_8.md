@@ -25,8 +25,7 @@ Albez Duz - The Coming Of Mictlan (2014) [MP3|320 кб/с]<Occult Doom Metal>
 ```bash
 magnet:?xt=urn:btih:D4C2DE6FF7B1D75158A6EECFD2797F0CA9294F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08C7F213749E07B74DE8253324F278D78E53EE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ CD1 (00:55:44):
 ```bash
 magnet:?xt=urn:btih:A89B8F11FCD2ED78FBC5509DFF28AEA865E21247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ VA - Trance Pro V.58 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:38273265D3AD63B62E59DE2A28DB4DD1F84A3985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Freeworm - Vegetation = Fuel (2000) [FLAC|Lossless]<Dub, Ambient>
 ```bash
 magnet:?xt=urn:btih:B3B1799D2D8FA3B99C97F6E54DB697BED1AFFE82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Dense - New Speak (2014) [MP3|320 кб/с]<Psybient, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:37097DD884929126415EEBE4989757566CFE11B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ VA - Deep House V.21 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:F4AAEECCF473FF9B24F904D9786DD8F1F19ECF92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Helevorn - Compassion Forlorn (2014) [MP3|320 кб/с]<Doom/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:B8CE3DF9CAAC207083C8B463D780ACE5B8A55E6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ VA - Trance Pro V.59 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:77921696012FB9D63B7420275DE643E150E08E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D91CB8228EE840CA87437210976CAA480A087988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A34B12D9D32A5CCF4D34929D635C10922250E0D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C25435A75F4BD4EB4865BBD8BAAB156725CA1BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E8C338969A9ED96BAA312A5DC8C4669854B3E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +433,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3A6CDA98687D9E49D62FF2081BB0A9337CFE8E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAC58036C11D069812774A63E0A8B5550C7DF324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D33A58004C510C91BE9A0A80B90568A16B3B687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8850DCEFF8C594294A7508DC5073F957C57404D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C0EB91F99D9ECBE4E5698B2BCA5D75E34744711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59BBAAB947C9BF77B3F02F1F9D08025CE8D7B1CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ Dave Specter - Message In Blue (2014) [FLAC|Lossless]<Modern Electric Blues>
 ```bash
 magnet:?xt=urn:btih:C58D465A205686AFFA1A5DB77B346482C4BA1C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +634,7 @@ VA - Deep House V.22 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:0568DAACE106D127A9CBAEDD2CFF61EECE46A675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +668,7 @@ Julie Anne - Hey, Daddy! (2007) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:44939B5007F9B057D99A15F55EE7EFD5219D805E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +702,7 @@ Madvillain - Four Tet & Koushik Remixes (2005) Promo CD [FLAC|Lossless] <Electro
 ```bash
 magnet:?xt=urn:btih:CA0EDF3B3F1AE78315A13D773539A683EEB08787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4745E8C5AE8D0FD79BE6C7DF598547C6C9B4E727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C81162BDEE8476EC84FF72C37AA234253C2A26E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +785,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:4AD8ABFA9F9A0A843D75AEFE1E3ECAE8546D8CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

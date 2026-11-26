@@ -19,8 +19,7 @@ Armed and Dangerous (RePack) [Ru/En] 2003 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:6966A91FA90F0FB31DF497BA99DA11922A453C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Helicopter's Flight Simulators Collection Vol.1 / Коллекция симул�
 ```bash
 magnet:?xt=urn:btih:18577C9CA2DB11E164CB28E3856DD32A9608E793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

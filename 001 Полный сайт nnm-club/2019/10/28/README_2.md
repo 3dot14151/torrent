@@ -18,8 +18,7 @@ AnyDesk 5.3.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0FCB91DFC058B0674E290723006CC4C9732C0408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Moom 3.2.16 [En]
 ```bash
 magnet:?xt=urn:btih:E3D13259F751890C534ACCB1467806528261403C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Recover Keys - это приложение для Windows, созданное д
 ```bash
 magnet:?xt=urn:btih:D50A8E90CD0B695A41FCA8ABC00C635250D39EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Advanced Driver Updater - программа для автоматической
 ```bash
 magnet:?xt=urn:btih:D364A66830E2D9A356F9CD4DF2D3B681E662F6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C51E3774619ACDB3B9F07336EC69799607EB415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D71BE25936EB07000EB9AB535AEFB137A7F6FB25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABE78326D8E1B942B7540A68091EC9FEDC3B2449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D359F9F88DC2E7F35EB8AEA6C2A9DAE4E7BEF57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:544015FF1DEDEE0FD750767FF6FE32144E269997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:43E4D1C62BC7197A5CF9219A4FE699B61AD3FD91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ SoftMaker Office Professional 2018 rev 972.1023 RePack (& portable) by elchupaca
 ```bash
 magnet:?xt=urn:btih:688AD47923CD9D1A11CC3C02E7289A3F23CBEE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D04AE45F286B08194B08787A9E4363578BDD0103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48F5C99E75EBA117546250C55936033FEEDB966E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ VideoHive - History Slide 2 - 21193470 [AEP]
 ```bash
 magnet:?xt=urn:btih:5D57888D28B9EB1A8609D4C62DFF55C2B9C146AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Spektrel Art  экстравагантный потусторонний пока
 ```bash
 magnet:?xt=urn:btih:D66397EC0AF32144D5DA6F4042B5FB73BB684CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ VideoHive - Slideshow - 24890674 [AEP]
 ```bash
 magnet:?xt=urn:btih:C948E64458C2A2A5AC8B48A43DFC624AAC13F584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B4031C9A9ED4F3C61A79468B9CD89FFA4BDB318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4ADE2AA87E2E8A9AC89B4E101E0977E7FE84D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ Conflict: Denied Ops (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [Licen
 ```bash
 magnet:?xt=urn:btih:58960397F399B8A153F5A7E3A3F67FEECC5548A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ Vintage Photo Slideshow - кинематографический проект, �
 ```bash
 magnet:?xt=urn:btih:1624C046307E9654AFBC4DDC70D54B54BF9165C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ Ubuntu BusinessPack 16.04 (август 2019) [amd64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:4EAB7FD7EDE8CC4316A1AA9534CB1050E2829A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ Real Gold Awards 2 - универсальный шаблон с модульно
 ```bash
 magnet:?xt=urn:btih:FAA6EEDDC0C89137DB38819D0D6F2186ABF43F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ Adobe Zii - это небольшая и замечательная утилит
 ```bash
 magnet:?xt=urn:btih:EDFE315DAA4478618330B3FCB567D501BA090529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ Line News 2 - это полный пакет необходимого дизай
 ```bash
 magnet:?xt=urn:btih:439B0B3C451AC900CAD0B26E06D6848D8A42DEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ VideoHive - Old Photo Slideshow - 21970603 [AEP]
 ```bash
 magnet:?xt=urn:btih:4F77C04E64918F1C39475E4BED401F4031E6B20B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +652,7 @@ VintageScene - приложение для обработки ваших  фот
 ```bash
 magnet:?xt=urn:btih:99938C5DEB021A9861D100E4140620C5104D6051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

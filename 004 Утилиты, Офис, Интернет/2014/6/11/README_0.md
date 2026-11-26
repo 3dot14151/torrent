@@ -19,8 +19,7 @@ BurnCD from ENOT - бесплатная программа, позволяюща
 ```bash
 magnet:?xt=urn:btih:14E56B028A1B1652855F99079FDF87FCA28BFA02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32CF735BB815EC91BDF2B00C500A3989AE856515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

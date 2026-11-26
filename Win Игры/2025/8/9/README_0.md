@@ -19,8 +19,7 @@ Rail Route – экономический симулятор, в котором 
 ```bash
 magnet:?xt=urn:btih:79594BD37FEF0B1132A03FDC20361FCEC3A2FD30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2307DA4819257544584ACAFF2E0332AF405F7236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MX vs ATV Legends показывает, какими могут быть инт�
 ```bash
 magnet:?xt=urn:btih:66828EB3C664D7E28D71323327510B923E3B06CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The House of the Dead 2: Remake - это обновленная версия в�
 ```bash
 magnet:?xt=urn:btih:3C691ABA5C9DE0355F1FAE42075FA5249431BBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MX vs ATV Legends показывает, какими могут быть инт�
 ```bash
 magnet:?xt=urn:btih:320B26A1B5983AA946BBC256B4AF998E5CD113F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Iron Core: Mech Survivor - это однопользовательская ро�
 ```bash
 magnet:?xt=urn:btih:89FF6A68033D5954508EA5E9B2CF7C099D708C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Le Mans Ultimate - официальная игра FIA World Endurance Champions
 ```bash
 magnet:?xt=urn:btih:5F2F54CAB57C510543D0EF774C93C538B718E65A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Digger: Galactic Treasures - атмосферная космическая иг�
 ```bash
 magnet:?xt=urn:btih:0D76201C8CE03820331F7F1110ED5D1F8E390BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Count of Monte Clicker - это игровой проект, повеств�
 ```bash
 magnet:?xt=urn:btih:F3E9B99B32A50D54BCA0A542AAB46A68BCD6A125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Yomi 2 - это файтинг в карточной форме. Изучайт�
 ```bash
 magnet:?xt=urn:btih:9E3B68DFC2418F1EE61D20FBEEFB0A1F5D7610D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ RIPOUT - это хоррор-шутер с режимом совместной �
 ```bash
 magnet:?xt=urn:btih:63FEBF0E1DC63CF223A7EC1A1860AE512C1ED9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Terra Nil – градостроительный симулятор-песочн
 ```bash
 magnet:?xt=urn:btih:AC49F57FCF26B9ACE62C723F9F1AADAA03BD7888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Koboo: The Tree Spirit предлагает уникальное сочетан�
 ```bash
 magnet:?xt=urn:btih:6A6000ADAA4E6FA4CFD8CD4D5FE23B48DCA0D975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Relaxing Time 3: Enchanting France / Время отдыха 3: Чарующая
 ```bash
 magnet:?xt=urn:btih:3B5C84C387B14F4F49431F3B809D82E8774A5DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

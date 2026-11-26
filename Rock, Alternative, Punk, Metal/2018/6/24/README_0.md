@@ -19,8 +19,7 @@ Powerwolf - Demons Are a Girl‘s Best Friend (2018) Single [MP3|320 Kbps] <Powe
 ```bash
 magnet:?xt=urn:btih:687D75CD9DAE5C2D06DFBC1EFA5C8883016288D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Radio Tapok - Старик и братья (2018) Single [MP3|320 Kbps] <Punk Ro
 ```bash
 magnet:?xt=urn:btih:59CB586C739D6C3EE05691F6C7F0687300D41465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

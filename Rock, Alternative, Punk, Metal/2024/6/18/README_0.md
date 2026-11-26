@@ -22,8 +22,7 @@ Loch Vostok - Dystopium (2011) [FLAC|Lossless|image + .cue] <Extreme Progressive
 ```bash
 magnet:?xt=urn:btih:25742972EB4595CCC649E7603FB435DCF9456CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Loch Vostok - V: The Doctrine Decoded (2012) [FLAC|Lossless|image + .cue] <Extre
 ```bash
 magnet:?xt=urn:btih:B8E161E0BBB4DFCF3462BD98133D415E9CBD39EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Loch Vostok - Reveal No Secrets (2009) [FLAC|Lossless|image + .cue] <Extreme Pro
 ```bash
 magnet:?xt=urn:btih:E8E5EFCB220589D9D982E9C489284C8708656973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ RivetSkull - Absence of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:511D3B83CEFC8773FD52CC8F643A83C43E38C45C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Exodus - British Disaster! The Battle Of '89 (2024) Live At The Astoria [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:6ECEBB005431559F46B453B0E65522108B9E7561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Hollywood Stars - Starstruck (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:ADCA3B6DDFDB3D8EF1129F51D02EA3796A2DA917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Conflict Zone [Ru] (RePack) 2001 | Pilotus
 ```bash
 magnet:?xt=urn:btih:B7C8B8A31FF1FACE2AD067DEEABB5314DE70628F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ War Wind (RePack) [Ru] 1996 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

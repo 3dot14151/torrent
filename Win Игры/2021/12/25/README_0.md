@@ -19,8 +19,7 @@ Ms. Holmes 3: The Adventure of the McKirk Ritual (2021) [En] (1.0) Unofficial [C
 ```bash
 magnet:?xt=urn:btih:4FB679A1E84FBD740A8B6347C8653F313BA55040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Command & Conquer Generals Zero Hour: World War II (2013) [Ru/En] (0.27) Repack/
 ```bash
 magnet:?xt=urn:btih:78F97A7E57DEFA810EAC20C9F4765594239A2827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

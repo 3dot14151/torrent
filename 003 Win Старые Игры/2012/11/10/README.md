@@ -20,8 +20,7 @@ Beat Down [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:EF6DC01ADD88D3D104CAFD66EC9C9F73E8E10BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Rent-a-Hero [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:1F2683337E725A079B4C896A4F6D2A87CC6C057F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Duckman: The Legend of the Fall [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:ED6A92E3D20785308DFFD5E32AF54B1B050A9DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
 ```bash
 magnet:?xt=urn:btih:657BF5453AC125391F0B642CC46FFA0A525F1D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ War Wind 2: Human Onslaught [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:8042EFA0499E37FDC65E7BB7A11DE6008F933467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Ignition - компьютерная игра, изданная в 1997 году 
 ```bash
 magnet:?xt=urn:btih:E6E5712314ED68AC26F647369779EDE957F19159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Conflict: Desert Storm / Конфликт: Буря в пустыне [Ru] (RePa
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Conflict: Desert Storm / Конфликт: Буря в пустыне [Ru] (P) 2
 ```bash
 magnet:?xt=urn:btih:47E65DECAD9FDB9232CB4DF23C862EB0EC4996EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

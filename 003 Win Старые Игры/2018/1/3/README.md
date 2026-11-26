@@ -19,8 +19,7 @@ Warrior Kings: Battles / Лорды войны: Битва (2003) [En] (1.23) Li
 ```bash
 magnet:?xt=urn:btih:90D13ED4253B78ED7DAA1C03EEA9FD071429D023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

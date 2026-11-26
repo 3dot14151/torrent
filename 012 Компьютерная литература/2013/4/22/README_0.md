@@ -21,8 +21,7 @@ Finite Element Simulations with ANSYS Workbench 14 представляет со
 ```bash
 magnet:?xt=urn:btih:94C2AB3CD084B3EC891520CC7CA8A4D3200EAF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

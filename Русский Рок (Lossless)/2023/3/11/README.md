@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:9C587E30A6E0A703DF670B15D75C61B93E2CE31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ District 4 - Закон молчания (2023) [FLAC|Lossless|WEB-DL|tracks] <N
 ```bash
 magnet:?xt=urn:btih:6D075EAEF94232385636D53376CF0C4514C83E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

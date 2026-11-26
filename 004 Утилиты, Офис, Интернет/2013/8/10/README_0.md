@@ -21,8 +21,7 @@ CloneDVD Studio CloneDVD - программа для создания полно
 ```bash
 magnet:?xt=urn:btih:D088621747FF4A896A20C383B0E9C818FDE9D735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

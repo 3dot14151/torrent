@@ -28,8 +28,7 @@ Drescher - Erntezeit (2014) [MP3|320 кб/с]<Folk/Melodic Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6E6F689F7605D16D9081B90CC1C38ACEBF92CC35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Marchello - The Magic Comes Alive (2012) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FEB1E05FD6FAA75EB74DC7FDEE9AC712E8C6C985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Karfagen - Magician's Theater (2014) [FLAC|Lossless]<Symphonic Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:E2D21222F5966B97D01598BF05E70BBADEC42DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:F9C03D731EF888736613A257E1CD41ABA7E07029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Schelmish - Die Haesslichen Kinder (2009) [FLAC|Lossless]<Mittelalter Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Uriah Heep - Salisbury (1971) Remaster /1996, Castle Comm./ [FLAC|Lossless]<Hard
 ```bash
 magnet:?xt=urn:btih:3BA36CC5E03E5BF2DE713753ED050419673DC170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73C3073A263731FB93FB48AFD27D56DB75BBAFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

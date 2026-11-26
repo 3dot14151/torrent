@@ -19,8 +19,7 @@ Emporium - короткая интерактивная виньетка. Emporiu
 ```bash
 magnet:?xt=urn:btih:5C5B3953DCC36A9803B48CBD175CFD99E1291AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Falling Nights (2017) [En/Es] (1.0.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:AD1C921F258CAE2EA3011ECCCD8E130742D4C851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

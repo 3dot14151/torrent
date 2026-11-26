@@ -19,8 +19,7 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.492.0/dlc) Repack Decepticon [Defi
 ```bash
 magnet:?xt=urn:btih:AF5D2257DB68B57B318A94B94CD63BF61941CF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Contra: Operation Galuga, последняя часть легендарной �
 ```bash
 magnet:?xt=urn:btih:FEAE6DB0D3C38EE48D361D3D8B706CC8A42A38F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

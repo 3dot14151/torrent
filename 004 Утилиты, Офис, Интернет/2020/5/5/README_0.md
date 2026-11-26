@@ -19,8 +19,7 @@ Stardock Start10 – утилита, предназначенная для пр�
 ```bash
 magnet:?xt=urn:btih:72C771FC3BCD88898B5237616B775189B2D3AFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

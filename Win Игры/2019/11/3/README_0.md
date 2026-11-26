@@ -19,8 +19,7 @@ Worlds Align: Beginning / Слияние миров: Начало (2019) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:95F35EC37D18A236929917D196B54821EAB0C55D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Agony – это приключенческий хоррор c видом от �
 ```bash
 magnet:?xt=urn:btih:6CFBBF1EADAF4E9904046A7BD0A785279E618E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Case Files 21: The Harbinger / За семью печатями 21: Пр
 ```bash
 magnet:?xt=urn:btih:53BC7EA48BCDB46B0AC747F049B316638AFDCC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tony Stewart's All-American Racing (2020) [En] (1.0) Steam-Rip CHRONOS
 ```bash
 magnet:?xt=urn:btih:13469AD5A334B1EAFF7FC9F54972B33EE8A24B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.0/dlc) SteamRip CHRONOS [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:BB18A5766E8D8C7A8A008436C1B0B902E0A14AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

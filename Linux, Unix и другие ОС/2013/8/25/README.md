@@ -21,8 +21,7 @@ Slackel Openbox 4.0 включает в себя текущую ветвь Slack
 ```bash
 magnet:?xt=urn:btih:C2B0602A4664037EA4D979AA3FF5E1701D7F4537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Ubuntu Studio — дистрибутив Linux, основанный на Ubuntu
 ```bash
 magnet:?xt=urn:btih:632EACBA9C135549378A6043121BA7A9514AA2B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

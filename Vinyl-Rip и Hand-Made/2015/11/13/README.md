@@ -22,8 +22,7 @@ B1a	2. Grave(   Читать дальше...   )Жанр: ClassicalПродол�
 ```bash
 magnet:?xt=urn:btih:5469122371C79B871FC2A86F23F1879DF8ED662B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

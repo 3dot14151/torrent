@@ -19,8 +19,7 @@ Mystery Case Files 11: Dire Grove, Sacred Grove (2014) [En] Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:0A1B90D140125F4CC79788ADCBE32835F210F9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Echoes of the Past 6: Wolf Healer / Эхо прошлого: Волк-Целит
 ```bash
 magnet:?xt=urn:btih:889429BBC03DEA46FB802047AF9FA3F2236A7963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Rollers of the Realm - это смесь "пинбола" и ролевой иг
 ```bash
 magnet:?xt=urn:btih:F31E36E53B374088129B479EDF70933A19629EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Nekro – RPG которая будет во многом напоминать �
 ```bash
 magnet:?xt=urn:btih:0D0D5AE0BD4C44C6A7E9318888C62273ED0005A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ The Witcher Dilogy (2007-2011) [Ru/Multi] Repack R.G. Механики [Fantasy 
 ```bash
 magnet:?xt=urn:btih:2A8081CEAA6D96154CD53B8BC50411F06A7AFC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Runers представляет собой игру в жанре Action/RPG (Ro
 ```bash
 magnet:?xt=urn:btih:0A04EA1407AB581B35ED90870A8042955A55C754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

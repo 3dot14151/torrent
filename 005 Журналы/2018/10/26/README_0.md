@@ -19,8 +19,7 @@ Woodcraft Magazine — журнал, посвящённый столярному
 ```bash
 magnet:?xt=urn:btih:A737B80185EE8C139DE38A255F416A1C706DA21C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

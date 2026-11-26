@@ -20,8 +20,7 @@ Ontborg - мелодик-дэт-метал группа из Мерано, Юж�
 ```bash
 magnet:?xt=urn:btih:C58410043C9F42253DDA1B1E9CFCB3DBC512B22E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Riverside — польская рок-группа, образовавшаяся
 ```bash
 magnet:?xt=urn:btih:05EA5A946EB3399EC006EFD379ED67DEC271FED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

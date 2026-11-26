@@ -19,8 +19,7 @@ Lost Lands: Dark Overlord (2014) [En] Unofficial [Collector's Edition / Колл
 ```bash
 magnet:?xt=urn:btih:B638ADDE404C0E4AE41309CA7B827F6DF2F48670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Leisure Suit Larry: Reloaded - это римейк первой части се�
 ```bash
 magnet:?xt=urn:btih:82C53BB42DB6C9A0D826407A620BF12CCBD0FB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Colin McRae: DiRT (2007) [Ru] (1.2) Repack YelloSOFT
 ```bash
 magnet:?xt=urn:btih:275A04F15712F4C27BB0D8BD824350AF1D14E27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

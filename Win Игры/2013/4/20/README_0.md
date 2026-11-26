@@ -19,8 +19,7 @@ Apothecarium: Renaissance of Evil Collectors Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:E379CC5D879CD3E309D93FF948A39DAA1D4311A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

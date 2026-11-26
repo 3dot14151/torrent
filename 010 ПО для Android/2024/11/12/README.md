@@ -22,8 +22,7 @@ MiHome v9.9.700 Mod by Vevs [Ru]
 ```bash
 magnet:?xt=urn:btih:0C147C8D7D432C3D4825DCFF9727682CA86870AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

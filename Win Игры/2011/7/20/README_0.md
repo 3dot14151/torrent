@@ -19,8 +19,7 @@ Cursed House (L) [Ge] 2010
 ```bash
 magnet:?xt=urn:btih:A6EEDB3618822CEBFD2D78327546F34672CE0399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B199864504C35113B9825E0ADE8DB9A335C90BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

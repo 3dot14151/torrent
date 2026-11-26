@@ -19,8 +19,7 @@ YoWindow Weather 2.16.5 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9E8D31A121B925EC78A792F5982FFEE911349962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

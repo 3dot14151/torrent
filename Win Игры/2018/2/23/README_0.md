@@ -19,8 +19,7 @@ Shadowplay 3. The Forsaken Island / Театр теней 3: Покинутый 
 ```bash
 magnet:?xt=urn:btih:3BD8E3C3674105685A7384A3BA3FDD5A79E702F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RUINER — это брутальный экшн-шутер, действие к�
 ```bash
 magnet:?xt=urn:btih:FCC8F837D9548394B0E2B42973A2A47D8A5120BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhammer 40,000: Armageddon: Da Orks - вторая часть в серии в
 ```bash
 magnet:?xt=urn:btih:566E74DB1E289FA1743E9B3A68B207A7B159B0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Abandon Ship – это приключенческая инди стратеги
 ```bash
 magnet:?xt=urn:btih:DD21D1086C97A1DE932EBFAEBD2885CB0972AB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Universim – это, наверно, самый масштабный сим
 ```bash
 magnet:?xt=urn:btih:1D5CF5FE26AC64664D8224BF48D11F65F9968C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Injustice: Gods Among Us - новое слово в мире файтингов.
 ```bash
 magnet:?xt=urn:btih:9D0F6EF4D4C056A897155BFDE06E1BDA75E5E00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

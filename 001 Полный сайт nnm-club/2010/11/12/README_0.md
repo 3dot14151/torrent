@@ -27,8 +27,7 @@ VA - The Contemporary Soul Songbook Vol 2 (2010) [MP3|128-192 kbps]<Soul>
 ```bash
 magnet:?xt=urn:btih:6CB5C927CB6D19CEF06100F3BA74DB45531250E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Ingrid Lucia - Midnight Rendezvous (2010) [FLAC|Lossless]<Vocal Jazz,New Orleans
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Disc 1/2
 ```bash
 magnet:?xt=urn:btih:3C7C0818EC34D8738C7DD805B35287667D2538D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:F15E4F9993DE52959F7DA7508A28F5D786712789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Armin van Buuren - A State of Trance 482 (11.11.2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:902645E3C6E644C10E2C195025E2516FD60C1AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - Trance In Motion Vol.70 (12.11.2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:5F4B330EA4B67BC1A68E1E3F67598F1D0A89E0C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ VA - Jazz Moods: Jazz at Night's End (1999) [MP3|320 kbps]<Jazz>
 ```bash
 magnet:?xt=urn:btih:CA27BADC3BB41A75DADE8549AD90756BD32521F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D44BA9F1CFC317C69D025FF18B5CC994223537C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:519BB578BC5CE5ADFF6307BC5936DC8EF23301E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ Kaya Project - Desert Phase (2010) [MP3|320 kbps] <Tribal, Downtempo>
 ```bash
 magnet:?xt=urn:btih:E4C5D456CDF8DA7B1B702F09E24DACD48A1F3210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ Subheim - No Land Called Home (2010) [MP3|320 kbps] <Ambient, Electronic>
 ```bash
 magnet:?xt=urn:btih:83AAD2F0CB4E87882E69287E58E09676C8611C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ NG: Саксонское золото: Чудо-клад / Saxon gold: Finding t
 ```bash
 magnet:?xt=urn:btih:B2D9ED9A7137F434776DA03F376A5F8B3AB0809A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA37302617454DBDCAD39F737B99903FEE9D61AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ Orbit Downloader - менеджер закачек файлов из Интер�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D26C11C9DB1E8CC90C6500112AC2202FF9C0385A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +476,7 @@ VA - Душа болит «Прости меня - моя любовь» (2010) 
 ```bash
 magnet:?xt=urn:btih:2A03C0E719CDF3053035231B79D40A186C071077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFA6138F7385C16396F8FB99C708497A9ADBB45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDF49BC4CC449F7155032044872E2F0ED6E9004E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +560,7 @@ Cayetano - Back Home (2010) [FLAC|Lossless]<Lo-Fi, Nu Jazz, Downtempo>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD09501FCD937832683846BFCBF832ADBB0146E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D58EBC51660B7557A4051B33CC4C78A4A7AA27FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ Digital-Tutors | Integrating Titles into Footage in Composite 2011 [2010] [EN] P
 ```bash
 magnet:?xt=urn:btih:C20257090076BF3903C75AB9826F064B61B93D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ HDClone FREE Edition - Программа для копирования инфо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ La Bouche - A Moment Of Love (1997) [MP3|320 kbps]<Eurodance / Pop>
 ```bash
 magnet:?xt=urn:btih:7D875E8C0B2E368E0696E69E2D5FCED5B7A2BB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

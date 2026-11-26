@@ -22,8 +22,7 @@ Side 1:
 ```bash
 magnet:?xt=urn:btih:8457D54F402AB5069967B61CB5491C65CA0B88C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Stardust(   Читать дальше...   )Жанр: Jazz, Big Band, FunkП�
 ```bash
 magnet:?xt=urn:btih:D35B1332D75F523105AD336B92C50E85600B9C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:057AA7BA1444A9D075D2CE7CA0B8301ED5C5D489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

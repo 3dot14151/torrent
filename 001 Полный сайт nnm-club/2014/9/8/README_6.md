@@ -18,8 +18,7 @@ The Elder Scrolls III: Morrowind - эпическая игра, где вы мо
 ```bash
 magnet:?xt=urn:btih:3ADCFC8556524BBADADC21876778F9FC9D903472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

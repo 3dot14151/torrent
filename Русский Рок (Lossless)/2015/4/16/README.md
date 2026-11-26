@@ -22,8 +22,7 @@ Animal ДжаZ - Хранитель весны (2015) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:6B88844A539AA2A72E1A2EED3888C02BF656D065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

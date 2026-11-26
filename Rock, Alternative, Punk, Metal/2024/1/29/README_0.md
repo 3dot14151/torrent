@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5E01D4124D36D703A7C55CF01FB706D05C8687BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Magnum - Here Comes The Rain (2024) [FLAC|Lossless|tracks] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A66E8C675532E7D130F0928A059E512A8359620E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Indignatio - Principium (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 ```bash
 magnet:?xt=urn:btih:F91C4EFB93B82A852E263AA3679E4BE08CE641EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Indignatio - Principium (2023) [MP3|320 Kbps] <Groove Metal>
 ```bash
 magnet:?xt=urn:btih:0656B3D43E56B7107FA91407370B7E51B552D965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Twilight Aura - For A Better World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 ```bash
 magnet:?xt=urn:btih:C7FF6BB51F5D23EF2DDD3C7713D7A44678845DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jan Magne Garte - Fight For Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:33C21378E0243B4A2FE8C3B0DD122896B52F975E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

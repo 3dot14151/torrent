@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0C4899C47ABAC1BFEABA1DA5091F5CEC5EFB9EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Hektor - это приключенческий хоррор, главный ге
 ```bash
 magnet:?xt=urn:btih:8E5CBD48E7208040DE96B41F5C3FC2A02BDD617A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Fallout New Vegas: Ultimate Edition (2012) [PS3] [EUR] 3.55 [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:0946AB50DF14186F3D311E9E17D65D26CCA7022D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ World of Tanks: Xbox 360 Edition (2014) [Xbox360] [Region Free] (XGD2 / 16202) [
 ```bash
 magnet:?xt=urn:btih:287184FD287ABFA8790105A4E644AE4BAD330FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ English, Japanese, Korean, Arabic, German, Spanish, Finnish, French, Italian, Du
 ```bash
 magnet:?xt=urn:btih:03126BF7621F718C2E94E0AC750DA17E0A441D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ VA - Дискотека Казанова Старые Песни По Новом
 ```bash
 magnet:?xt=urn:btih:9B6ECD059BEC96CA73D39C195B06621B257977BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:C811A2D4FC753C34F5CBA3C2BFB853382DEC6A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ CorelDRAW Graphics Suite X7 17.4.0.887 Retail RePack by Krokoz [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1A10C1991FAEAF8A1A43B59A1788E9C5DF6C9044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ VideoStudio Pro X8 создана для обработки видео и поз
 ```bash
 magnet:?xt=urn:btih:86D91A7874E7B5F1D7117FB495EE49ACE019A436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B0087286A3F3CAD494F41804DAE4863B64F4A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Navitel / Навител Навигатор v9.5.30 Full и другие - то�
 ```bash
 magnet:?xt=urn:btih:1145B14F201B4F691C6F5F1D31BF6A122E744811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AB57EB8B71681A1BEA82E8F4DBD3DD58F91FFF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Navitel / Навител Навигатор v9.5.30 RePack [Ru/En] - тольк�
 ```bash
 magnet:?xt=urn:btih:CB2A83360E6B7328A975ED735C5BDC7FA5D4A3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

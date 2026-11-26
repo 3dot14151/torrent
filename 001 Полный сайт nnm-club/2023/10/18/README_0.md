@@ -19,8 +19,7 @@ Tembo умеет искать файлы, папки, письма, заклад
 ```bash
 magnet:?xt=urn:btih:D56DC32518D6ECBA9D58908B3FF392E57EEF5645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Psychework - The Dragon's Year (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Powe
 ```bash
 magnet:?xt=urn:btih:C66E683F2052FB724B250CC5C2A343BDDC5150BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Toshiko Akiyoshi - New York Sketch Book (2004) Ninety-One [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:96ACC06878054FF8D82A4F6298E1E947E2BE3FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ SounceSource позволяет настроить прямо из строки 
 ```bash
 magnet:?xt=urn:btih:ADFA6276C1099DC10EDC37F17E4F9568CD8050A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ NCH DreamPlan Plus 8.09 [En]
 ```bash
 magnet:?xt=urn:btih:214B9267F0528C5D3828F7BB18D322FF4BCEFEBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Texifier — это редактор LaTeX, предназначенный дл�
 ```bash
 magnet:?xt=urn:btih:0594D0ADDC8113309FFC99E14ACA9719FE783CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ TurboCollage 7 v.7.2.10 [En]
 ```bash
 magnet:?xt=urn:btih:BFE2F47BEB7CF9EA40063ED9542797FD949B1911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4877AE0BFA12366F6658DE1021829656B519C1DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Blocs - простой способ создания красивых сайто
 ```bash
 magnet:?xt=urn:btih:7505FEB43CBC69B402B7417BA45DE94822485F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Storyist для Mac OS - является мощной средой для ра�
 ```bash
 magnet:?xt=urn:btih:894C7852ED37899CCA51FD922F93996A9A29E50D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:180650551965467AA0484FB89E0DAD5EAFBA73C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FAB10357AADF37E7F17C20791E436DFC12AF108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:B0B501EE069262FE62A6916B33A494604E7283B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC21DB3CE5E2C12368D142A49505A0489B8A57AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Amorphis - Queen Of Time - Live At Tavastia (2023) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:47AE340444875F1C643C4D2D3496C06D4B18459C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ Musify — лучший конвертер YouTube Music, который мож�
 ```bash
 magnet:?xt=urn:btih:8755ABE651FBABDDD22873A8FDE723F04E2DDB38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Canary Mail может похвастаться большими возможн�
 ```bash
 magnet:?xt=urn:btih:B238920468606E7119D4D5082E050AC7BFC424DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:E63A06D60429F9476E1F350F550E0D4E8F9401A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ Widgetter - Custom Desktop — это прямая линия, позволяю�
 ```bash
 magnet:?xt=urn:btih:4ED519D9687A02F501932767151B932545DDC825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ System Dashboard показывает использование процесс�
 ```bash
 magnet:?xt=urn:btih:259BDBBC3147041E4387248C7425F17F8D6CB62F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:7E69BA0D9F146CFAD6F56DA334BFD56E74AF36C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6273BEAC0B1853B1243D011E2195D6FA2BAAF385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ Freddie Gibbs - $oul $old $eparately (2022) Bonus Edition [FLAC|Lossless|Web-DL|
 ```bash
 magnet:?xt=urn:btih:90C56B8C5A92D75086E74F601C887201921DCD1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:305FBB2C23C9E200B9C2CFA4713660781362ACAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +638,7 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:AE343A2A85F596D3757F1847926CE791641A0FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +663,7 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:9DBE0A7B43319BBF1E0D4876BA6B0B88432CAF51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

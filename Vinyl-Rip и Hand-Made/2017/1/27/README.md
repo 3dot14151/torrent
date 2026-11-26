@@ -22,8 +22,7 @@ The Alan Parsons Project - Eye In The Sky (1982) [FLAC 2.0|192/24|image + .cue|V
 ```bash
 magnet:?xt=urn:btih:916F84058C7A637A95ECA528965370E84EF7C6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A3 - Fling Thing(   Читать дальше...   )Жанр: Hard RockПрод�
 ```bash
 magnet:?xt=urn:btih:1E6B5D32A088427B4E8E7DE4AD3774E5F4851F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

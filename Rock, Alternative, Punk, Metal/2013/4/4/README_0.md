@@ -26,8 +26,7 @@ October Tide - Tunnel Of No Light (2013) [FLAC|Lossless]<Melodic Death Doom Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ MP (Metal Priests) - 4 Albums + 1 Live (5CD) (1986-1999) [MP3|320 кб/с]<Heavy
 ```bash
 magnet:?xt=urn:btih:384BC45080FC80CF35B8F29B5EC24B76D5D2FB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ October Tide - Tunnel Of No Light (2013) [MP3|320 кб/с]<Melodic Death Metal, 
 ```bash
 magnet:?xt=urn:btih:4BA4959D6A23EFC2F56FE9A7E1331BBCB00F23F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

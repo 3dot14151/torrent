@@ -22,8 +22,7 @@ Drama - Silver Brilliance of Nocticula (2006) [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:49709225FDA05EB7704BCBD778ECD53FEDCC53B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Scythe - Decay (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:DCA73FE3BA34D3F929DE5583EC1AD29007DDCA7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Scythe - The Process Of Rotting (2004) [FLAC|Lossless|image + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:D0932FE2E3B06F97D62CA819E2D8D0F24D7A2C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ John Budnik Band - Transformations (2017) [MP3|320 Kbps] <Northern Rock>
 ```bash
 magnet:?xt=urn:btih:2D0F1BA56352393D9E92AC3CB51FF39B7191946E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Front Riders - Steel Trail (2017) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4423F526D517D3FAC811B76BF6C63A9F20BA8E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Eclipse - Monumentum (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:69B302CC6D1F0C5A3DF92CA352375425889A88AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ bAbA yAgA - bAba yAgA (1992) [APE|Lossless|image + .cue] <Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:E379CC151865F4AEC5BAA126E08A495CDDBB6191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BDC5074B959CCF39DC957D5B35F6349D44044DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ bAbA yAgA - 3 альбома (1992-1999) [MP3|320 Kbps] <Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:540C8F5AA96CAD8E35890F450FE5CBA191D00B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

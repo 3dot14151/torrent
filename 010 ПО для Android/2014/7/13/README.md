@@ -19,8 +19,7 @@ Hang Drum Jam v.1.0.5 (2014) <En>
 ```bash
 magnet:?xt=urn:btih:7B53FCD315C23F4EEFB6881915B04564A621BF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

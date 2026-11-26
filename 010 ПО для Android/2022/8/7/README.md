@@ -19,8 +19,7 @@ Twilight - заставляет экран адаптироваться под �
 ```bash
 magnet:?xt=urn:btih:8CBD879F677ECE42EFCF443BC927325C42EA3CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Advanced Download Manager v14.0.13  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:28A930371C1EFDEE429528D8B2D9ABAB75FFF2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

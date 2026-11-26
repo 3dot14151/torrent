@@ -19,8 +19,7 @@ Raúl Ferrer García | iOS Architecture Patterns: MVP, MVVM, VIPER, and VIP in S
 ```bash
 magnet:?xt=urn:btih:256B61230E8F455B0E8687F4D35A959700650290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

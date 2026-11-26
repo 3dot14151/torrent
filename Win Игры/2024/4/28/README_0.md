@@ -19,8 +19,7 @@ Trailmakers (2019) [Ru/Multi] (1.8/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F0624861B5332EEFAE612B50FA994D94B938F9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Truck Driver (2021) [Ru/Multi] (1.35.2.32/dlc) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:0BD9F8FAB845F0284E496682BB39782F070142FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:C0AD49D21378D05C98657A3F2F759BC88326A233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:E02363E25735FB9751E55CBE82AF5CC2F62EECD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ColorBlend FX: Desaturation – сплатианцы будут смешиват
 ```bash
 magnet:?xt=urn:btih:D0983287831D84BD35DF476BB4FB7F4A152415CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SaGa Emerald Beyond - это новейшая отдельная игра в с�
 ```bash
 magnet:?xt=urn:btih:A3379A6070A9F8E3ABC33D7C6A277DDC612EF875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5B4B37D4AB2B8F8726D360EB98D66FA67909DC91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:A94748353E54D888BC9C5FE7A71C1DCCB7C124B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:A8C3E77380031C8FDBDE579C16D9D3895DE21E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:57B99BD4EEC1A18C895BD211CE647236CE0FA9E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:7FD7E9FC38332905ED1515FD4A90DF04872B90D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ FastStone Capture - мощная и многофункциональная пр
 ```bash
 magnet:?xt=urn:btih:B52A76BFFDF3FB9E67DDD54EAA16418C19BFDFC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ R-Studio Network 9.5 Build 191648 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6E75369712F0DC32C20CF5D5DEC4CA4F9C8A824B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:CFD851F1DAA458B0322C01161031780DDE59C8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ System software for Windows v.3.6.7 by CUTA [Ru]
 ```bash
 magnet:?xt=urn:btih:DAE82C9C167D85BBFE19C25BDBFD39EEFAB97B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:41C39D6D28C16AE49C6EEC7B5667CAE88DFF8832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

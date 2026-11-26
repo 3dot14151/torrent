@@ -19,8 +19,7 @@ dict.cc+ Wörterbuch 12.0.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:CA4448FF2223601921EA81D6F31FB5AFF2F6965C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Prisma Art Effect Photo Editor / Арт - Фото в Рисунок v4.6.1.615 
 ```bash
 magnet:?xt=urn:btih:B36914CF5AC5F54A042E14A97C682149D5481351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

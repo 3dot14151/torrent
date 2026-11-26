@@ -19,8 +19,7 @@ Stronghold: Crusader II - это долгожданный сиквел ориг�
 ```bash
 magnet:?xt=urn:btih:3BE06E6A82829732BEAC081A642815A7070D0F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

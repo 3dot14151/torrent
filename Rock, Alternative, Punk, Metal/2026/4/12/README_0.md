@@ -22,8 +22,7 @@ Vomitory - In Death Throes (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death M
 ```bash
 magnet:?xt=urn:btih:288FEF5AE22B30E02E0C339D00B3A1C1F4C164CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Atomica - HilFe! (2007)
 ```bash
 magnet:?xt=urn:btih:304FE95C90E324A3813FA55C763E637B1402F875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nina Hagen - Highway To Heaven (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pun
 ```bash
 magnet:?xt=urn:btih:253EB1B940FE9E9449B89061910E02953FC1EF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ John Farnham - Anthology 1 (Greatest Hits 1986-1997) (1997) Compilation, Remaste
 ```bash
 magnet:?xt=urn:btih:3EDE6434DB9ADC267589833E6E3DBB17D60B6A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Aryem - Agnes (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:09A5381EFA59379C294F459C8944B982FD67CB88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

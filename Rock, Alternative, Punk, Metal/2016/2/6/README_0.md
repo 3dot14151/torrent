@@ -22,8 +22,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:661F331A8121FEBBC9E455FC8817A9C5909FDDEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:1DB03D08D205A93AF859E98E3EF78D79D110BBD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D2BB5F469C7D98E1DE83E63671B4275E8D80BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nordic Union - Nordic Union (2016) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:2B0E8F2F65ACF731BB7628B17DDA015D5236C7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Last In Line - Heavy Crown (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EF2D5C2FC3D5E8BF06245561C88D9242AA8C6F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rage Of Angels - The Devil's New Tricks (2016) [MP3|320 кб/с] <Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:C34CDD707A32068DDCD04671828C400281913ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:ED5B852230F7CD409F13BC1D6AD2724E9DFB566F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Elton John - Wonderful Crazy Night (2016) Deluxe Edition [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:A431589699B283BF6877B6743DD3944330794C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ GPS (ex-Asia) - Window to the soul (2006) US Edition [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:50E85487D54CC46F2FB95EBE3C8FCB772CBF5D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA1616DA649EBCA35BE725CE479D825CF3DCA026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Eurythmics - 1984 (For The Love Of Big Brother) (1984) [FLAC 24/96|Vinyl-Rip|Los
 ```bash
 magnet:?xt=urn:btih:8CDCE69C8A80C69B9896F841F4486499B2E58BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Fixx - Shuttered Room (1982) [FLAC 24/96|Vinyl-Rip|Lossless|image + .cue] <E
 ```bash
 magnet:?xt=urn:btih:3FF2F35B07073001798BD3849523D46D2D42D7E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2E39E41833C0428ADE1A89C3ABFBB3234970C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Fixx - React (1987) [FLAC 24/96|Lossless|Vinyl-Rip|image + .cue] <Electronic
 ```bash
 magnet:?xt=urn:btih:9439045B08466425FBB6D503799F8E8595D948F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Fixx - Reach The Beach (1983) Vinyl-Rip [FLAC 24/96|Vinyl-Rip|Lossless|image
 ```bash
 magnet:?xt=urn:btih:C40086E2AFECB622F04086DDFD9837CF4108CF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

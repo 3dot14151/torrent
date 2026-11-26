@@ -19,8 +19,7 @@ Microsoft Flight Simulator — серия гражданских авиа сим
 ```bash
 magnet:?xt=urn:btih:9A52ABFD607303E9FAA28ABCD3C0A313F0DE26D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

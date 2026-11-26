@@ -19,8 +19,7 @@ Mystical Riddles: Snowy Peak Hotel / Мистические загадки: От
 ```bash
 magnet:?xt=urn:btih:774C28C11D86BCEE7C08B12026569DEC9D831529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tank Warfare: Тунис 1943 – тактический симулятор бо
 ```bash
 magnet:?xt=urn:btih:7577F7CC60E3B4D0E36B80EAE48CAF4E04ED63EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ UNSIGHTED (2021) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:37DD3F39FD6276F8517B7000973577F0845512A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

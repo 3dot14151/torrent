@@ -19,8 +19,7 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:58721D3BE987670FB715F181528F8919EE436149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ NAS4Free основана на ОС FreeBSD, поддерживает обмен
 ```bash
 magnet:?xt=urn:btih:43C634DB4A45A0986A9B35B7994F12D0B16D9056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

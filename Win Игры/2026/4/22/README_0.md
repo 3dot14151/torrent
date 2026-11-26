@@ -19,8 +19,7 @@ All Will Fall - постапокалиптический градостроит�
 ```bash
 magnet:?xt=urn:btih:A081883D174E676A68BDBB9EC730766365015092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:3475A41056EDCD4510896B4FD4CD8723DC3FE6C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gori: Cuddly Carnage (2024) [Ru/Multi] (1.0.187/dlc) Repack Let'sРlay [Special 
 ```bash
 magnet:?xt=urn:btih:4FBAAA4656A29EB93FCA428489D7F985C6E0E664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Europa Universalis V (2025) [Ru/Multi] (1.1.10/dlc) Repack AIexandro
 ```bash
 magnet:?xt=urn:btih:540119F3B55D251BFB4F9A1661EC2C4A4284E3BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DarkSwitch - это вертикальный градостроительный 
 ```bash
 magnet:?xt=urn:btih:40D6E858D77C8E756EC93BFA2814F1A8DD3E21BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dawn Break (2026) [Ru/Multi] (Build 22861684) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:66DCDA7D41AB2C1395B776E97B2290D4728D7768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ ChainStaff – жесткий платформенный экшен с необ�
 ```bash
 magnet:?xt=urn:btih:0895796DD57139FA8B9163E2995D8558508724D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Bylina (2026) [Ru/Multi] (Build 22857118/dlc) Repack Let'sРlay [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:1105E2A38190DC3B114B8DC02C2B322FB2D44A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Lucky Tower Ultimate - это абсурдная игра, которая оча
 ```bash
 magnet:?xt=urn:btih:457F20E96A33075AC9012BEFCF487292CDC05708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Ember Guardian (2026) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [Supporter]
 ```bash
 magnet:?xt=urn:btih:4D3ED811411F00D87BBB4085A573FC5C9D613139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

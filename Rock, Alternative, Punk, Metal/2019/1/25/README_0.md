@@ -22,8 +22,7 @@ Sufferer - Sufferer (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Post-H
 ```bash
 magnet:?xt=urn:btih:F9C754C2B07B6257ECE23349FC7CA9BB654CE337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Citay - Little Kingdom (2007) [FLAC|Lossless|tracks + .cue] <Acoustic, Psychedel
 ```bash
 magnet:?xt=urn:btih:F0C7C88037F9B02838C06DA5D607B59CF91E35C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Better Oblivion Community Center - Better Oblivion Community Center (2019) [FLAC
 ```bash
 magnet:?xt=urn:btih:ECB45922EF2DFC9FFCA628A88375D68D7CCB9CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Alice Merton - MINT (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:4B5222F3ACD1F563A121EB512478E6919E98F1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Santana - In Search of Mona Lisa (2019) EP [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:4AA5C7B4C00333647A3D5103F47F0D7332751283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A47599C4A297C13F55F5F40F20EB4F211EC10288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

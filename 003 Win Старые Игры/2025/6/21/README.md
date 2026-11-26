@@ -19,8 +19,7 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:8013ECEEB0A740CC90371D15FEC2A0C1E507342C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

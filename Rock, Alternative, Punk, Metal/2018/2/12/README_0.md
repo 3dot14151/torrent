@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5F04520C7DB2A8462EE4BF505361A377CCB5B1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1B1E46ACE96EF19D648827A5F24F467995BE321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Rockabilly Girl (2001) [FLAC|Lossless|tracks] <Rockabilly, Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:6F4B15E27FF733F6A6C6A39E9747EA33FC30FCD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deep Purple - Purpendicular (1996) Remastered, 2018, KronStudioLab Int'l [FLAC|L
 ```bash
 magnet:?xt=urn:btih:B2014D0B6971ADB1FBBFEDB404A751050562CF46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pink Floyd - The Dark Side Of The Moon (1973) Unofficial Release, Remastered, 19
 ```bash
 magnet:?xt=urn:btih:BEB8265DC8CD5D521C2CB3F5F02EF1409826790F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:24D6E42767BE5DCA370281A756103EEF5F8993A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE761C9E17BCEA2A3AB09DB217E813FB26FBB17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98381265E4C2824653176FB0085B1D44DFCA5CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99312E07D2017A716405877C2AB9AA2CE484A531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC645BB61EB482BD31BB9260EDA60FFF36D7BF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C51EDEABCC02C1BD7B1A7A785386DB2C634AC244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA9CC1CA81E2C5455027F609608B4FC1B59C3263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ King's Bounty Anthology / Антология King's Bounty (2008-2012) [Ru/En] S
 ```bash
 magnet:?xt=urn:btih:5F78A890CB9E5A1154D70E5A6082B168D549C8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B06479FE1E4DBAF321571F9D71793FF15223C5EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Watch Dogs [PS3] [EUR] [En/Ru] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2014)
 ```bash
 magnet:?xt=urn:btih:5D99CBFCDC33873D34705BA172DDFBD3C51B994B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Metal Gear Rising: Revengeance – совместный проект леген�
 ```bash
 magnet:?xt=urn:btih:66BE6D484A56600E3155B12ABA6F1F8C2816D17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FB589652357368807DF61099002F440FC7C3027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Bound By Flame (2014) [Ru/En] (1.0.0.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D1C1A926EB9FA630F47C9ED8FCA1ADDF1AE6BD14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ THE AMAZING SPIDER-MAN 2 / Новый Человек-Паук 2 [PS3] [EUR] [Ru]
 ```bash
 magnet:?xt=urn:btih:07776A13093BF2710044C94049FB7AAE2A0C3399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Wings of Prey / Крылатые Хищники (2009) [Ru/Multi] (1.0.5.1/2dlc)
 ```bash
 magnet:?xt=urn:btih:57DA73BB1BC3DBFE99EC92A11584CE1EE8BCB251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ CSI: Место Преступления / CSI: Crime Scene Investigation (2013-
 ```bash
 magnet:?xt=urn:btih:17B08D002B5A8B1E1C3A423B6A7BCE36F3BDFA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ Max: The Curse of Brotherhood (2014) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:AF0401DC346C555CFECDBA665A08B9237708A020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55AE55FC2939CB1585DB343887B2414144B1ADE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.1) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:4110A8F33717A9CEFE24625C25A05CC27D659BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40B6ED3BC83BFD7B2330319485610395D2AF03B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ ArtMoney предназначена для редактирования пара
 ```bash
 magnet:?xt=urn:btih:7889041FBBCB04F8B1C944053132E4D0A4B6C85D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16A0A49CCDFFCACEF4B4DE96399878DE55413F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

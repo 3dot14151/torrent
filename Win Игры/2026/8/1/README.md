@@ -19,8 +19,7 @@ Saturnalia (2023) [Multi] (2.0.15271g2) License GOG
 ```bash
 magnet:?xt=urn:btih:C2482322DC760F1B54F9E02BA230697D1043A956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Thief является четвёртой игрой в легендарной �
 ```bash
 magnet:?xt=urn:btih:14A6054AE3DBC994EEF735FEDC4B2BC73544401D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dinoblade - это динамичная Action RPG в сеттинге доис�
 ```bash
 magnet:?xt=urn:btih:3E662E269A46AAF2E08462D584EFED5A79FDB97F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Solo Leveling: Arise Overdrive - экшен‑RPG по мотивам попул
 ```bash
 magnet:?xt=urn:btih:A47F4F74687C1346A55A9AEA8F0B484791FCA963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

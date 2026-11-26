@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:77DC5A104765D223D91AD30412565A52F8E12522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B81B9B361BAFA4AAC531F4C78598AFA7CAA3FCC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ CSI: Киберпространство / CSI: Cyber (2015) HDTV [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:D79E0CAC505B3E10F0ACEF7CEE6ED48ED70618F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MyLifeOrganized — это приложение под различные уст
 ```bash
 magnet:?xt=urn:btih:290AE0060611A156E03308A425D3B67317665740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Navitel / Навител Навигатор v9.6.2385 RePack [Ru/En] - толь�
 ```bash
 magnet:?xt=urn:btih:42015AA5C6EB2C1768E127AF2B8577F7AD1C6164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05531273609B968750E501C1CF76715982C90470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Windows 7 Максимальная Ru x86-x64 Orig w. BootMenu by OVGorskiy® 03
 ```bash
 magnet:?xt=urn:btih:044969793A6D07C9A2A5EE2B2BC91979BE4C0FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:681D6A7DA6351B870D890A24A9F7D52F195821CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 ```bash
 magnet:?xt=urn:btih:60B2512363677460073939A71C832D98E29F40FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Windows XP Pro SP3 VLK Rus (x86) v.16.4.24 by VIPsha [Ru]
 ```bash
 magnet:?xt=urn:btih:D7B50B9BE51C2F350DAB31EFA365E5304BA37617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

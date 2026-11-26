@@ -22,8 +22,7 @@ A4 - Faithless(   Читать дальше...   )Жанр: Death MetalПрод�
 ```bash
 magnet:?xt=urn:btih:3CAF7F4591B0913976D785125AA84992A6405FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

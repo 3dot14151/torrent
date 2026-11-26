@@ -19,8 +19,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack dixen18 [Complet
 ```bash
 magnet:?xt=urn:btih:F37DDD1F76472E3A872619CF748A2112B55C5115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sherlock Holmes The Awakened дает возможность игроку выс
 ```bash
 magnet:?xt=urn:btih:5E553961CE21119063541284F25D4F5531B47E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.002.003.77876/dlc) Repack DjDI [Premium Ed
 ```bash
 magnet:?xt=urn:btih:D89CE23BE256ACB2A0F1F98E391ACBB11090A714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Solomon Snow: First Contact - это научно-фантастический �
 ```bash
 magnet:?xt=urn:btih:36514BD3CB0792D7D60330C21F84B6F4C6E2FFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Moonscars (2022) [Multi] (1.6.009) License GOG
 ```bash
 magnet:?xt=urn:btih:87D0128D596233257103ADFF078A20661ED44361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:ACC857CA2BBC8E7589E910717E00F0A194A5955E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A Long Journey to an Uncertain End – смесь квеста и приключ
 ```bash
 magnet:?xt=urn:btih:196BA8773B6EAFA776E440ABA0D752A9BCB73D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sludge Life 2 - это продолжение сюрреалистическог
 ```bash
 magnet:?xt=urn:btih:95245C0795821D0B615C61C7750CD6AE11DBDF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Civitatem - однопользовательский градостроител�
 ```bash
 magnet:?xt=urn:btih:CEAF35E3B9D9B26FBD636DC3BC848163E2F84BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ FRONT MISSION 1st: Remake - атмосферная тактическая пош
 ```bash
 magnet:?xt=urn:btih:B8223CBE7A91B96FAFDC447CF3E3DE6B5AB887B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

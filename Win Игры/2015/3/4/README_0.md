@@ -19,8 +19,7 @@ Off the Record 3: The Art of Deception / Не для печати: Искусс�
 ```bash
 magnet:?xt=urn:btih:CF6DF02BCFA00E2DDE10AA71E3C489355DBBE466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

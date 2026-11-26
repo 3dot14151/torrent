@@ -21,8 +21,7 @@ VA - Sun Travellers, Vol. 2 (2020) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:C3C811D3D52A8ABB6CC1739DEE6D4BA8CF55540C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 1 (2018) [AAC|~327 Kbp
 ```bash
 magnet:?xt=urn:btih:191E0B58D81176C1C36B651409577F434C6A8A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Sunset Emotions 1 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:2A0CD7EB16D71E2BF0A2601359F074A1DB7285B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ SideNotes - это боковая панель, которая заполнит 
 ```bash
 magnet:?xt=urn:btih:27B929D9814C2C8DD150AB1B9779A225DDFBADA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Modern Urban Jazz 2 (2022) [AAC|~313 Kbps] <Jazz, Nu Jazz>
 ```bash
 magnet:?xt=urn:btih:34AB8393AC2BAFDD1AA3C7ACFF8B28D436499BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:EE9E45935FE30BB12CE4B3E2252EFC9D0A3B076E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Magic Battery 7.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:74A094D77EEF2491799144663DA3B6EAC2EBEE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4318A2CCF9DD661A3A57722CB331C37884228E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ VA - Modern Urban Jazz (2020) [AAC|~314 Kbps] <Jazz, Nu Jazz>
 ```bash
 magnet:?xt=urn:btih:1E77AD811DA2A00A3E8FE651EF7C98F36FC55DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F893F8607B762CDB3563C2716049A0BFA10E7B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ iNet показывает устройства, подключенные к ва
 ```bash
 magnet:?xt=urn:btih:12F1ACA430850308CBC401749809D8FB56DCB674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:51B6D210EDF451A232A0BDF9281298316DC211FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83DB7FE8BC7E528C80E02BFEEB5711B5BB0D8BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ PDFelement Pro - профессиональный инструмент, кото
 ```bash
 magnet:?xt=urn:btih:B6595FECB0BB661D8FE0AEF880B71B85803342E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5D9D3204FF9F50D7C01A84EE3D843EF6D570562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Shadow of Intent - Elegy (2022) [MP3|320 Kbps] <Symphonic Deathcore>
 ```bash
 magnet:?xt=urn:btih:8AC88BAD631B57FB233425B632193CEA071686F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ Fit For An Autopsy - Oh What the Future Holds (2022) [MP3|320 Kbps] <Deathcore /
 ```bash
 magnet:?xt=urn:btih:19CF19B8AA42BF6868FD6CB87D0919AA95A73EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ VA - NME: Best New Electro Hype (2022) [MP3|320 Kbps] <House, Electro>
 ```bash
 magnet:?xt=urn:btih:EF96472454849D299F53EFC6428BCC67B9546255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Land Of Gypsies - Land Of Gypsies (2021) [FLAC|Lossless|image + .cue] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:25489C1FCEF1E54521C6D3F4039636CEECD52CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:F3005D10DB78AF478D1C79287D5F9AE11F32EC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60389611A4C6D5D335BB74894820A56794115A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ CD01 - JATP All Stars Feat. J.J.Johnson:
 ```bash
 magnet:?xt=urn:btih:315DDA33795E8C0BB5B14F45D3D7AFFD39D8484E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB0DE0FC935189CDE5D889178EF09F47E0C0765A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ BurnAware Free - бесплатная и простая в использова�
 ```bash
 magnet:?xt=urn:btih:3CE253B7C64439E5BDF25403742F48A44709D8FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ RegCool 1.308 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:441DB4266814823362935999BC811927B1506968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70813305044D7A7D89B6A61222F8F9BA5EDF56ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

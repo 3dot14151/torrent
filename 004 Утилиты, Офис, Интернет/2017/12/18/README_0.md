@@ -19,8 +19,7 @@ Gihosoft iPhone Data Recovery – это простое в использова�
 ```bash
 magnet:?xt=urn:btih:25E02E72819EB42D2780234C8DABCA994B4F9A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Clean Master for PC 6.0 Pro [En]
 ```bash
 magnet:?xt=urn:btih:5262AABA4226CA9EB6CF7BECBC197B7A8A0524DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

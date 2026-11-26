@@ -21,8 +21,7 @@ CAINE 6.0 (компьютерно-технические экспертизы, �
 ```bash
 magnet:?xt=urn:btih:268BD8884C84E5E6EF8303101CC315357C92A359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

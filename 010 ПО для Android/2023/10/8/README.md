@@ -19,8 +19,7 @@ Relax Rain: sleeping sounds v6.7.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:256C97FC935482F7BEB44648AD95407508EC0E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ColorNote — ColorNote это простой блокнот. Он предос�
 ```bash
 magnet:?xt=urn:btih:209DCA58363033CFA864A524BF9ED8E22249171E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ```bash
 magnet:?xt=urn:btih:5807FD4A102E727136F9CFFD1E012EB832D908D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:84C0F14CB29370062FA3E44090F920924946297B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F09B7DD25C849923DF05675F0FD34913DA34DC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Sacred 2 - Fallen Angel (2009) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Un
 ```bash
 magnet:?xt=urn:btih:3F5D678283AA3041097B8EBA982144A67B01C2FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Microsoft Windows 10 Insider Preview Redstone 2 build 10.0.14905 (x86-x64) (esd)
 ```bash
 magnet:?xt=urn:btih:1FF59401FF12FF5FE98F6B53951CE900CDC267AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:531E8373629F6203D6F1F2FE4D28A355781598C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFC15E8A1467EB1A556BC2BE60F5E135A62C6805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Adobe Photoshop CC 2015 - новая, следующая за CC версия п
 ```bash
 magnet:?xt=urn:btih:C7DAEF16AEB75CA8C32E5A3427B646694D0DEEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Destroy Windows 10 Spying 1.6 Build 717 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F411D1BB32D165A91D3DC705710E79235527A79A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C15F784CD911404034F8F0EC4879C13F19342BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

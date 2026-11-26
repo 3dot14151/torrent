@@ -22,8 +22,7 @@ Alestorm — фолк/пауэр-метал-группа из города Пе�
 ```bash
 magnet:?xt=urn:btih:F09C05E399CFB1186F78012C64093F1FDB5723D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

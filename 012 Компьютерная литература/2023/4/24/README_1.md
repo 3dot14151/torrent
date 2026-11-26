@@ -19,8 +19,7 @@ Kenneth Hess | Practical Linux System Administration: A Guide to Installation, C
 ```bash
 magnet:?xt=urn:btih:3D1BC6FB57914483EF81ED360B12DD899177BF67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CC9011010113C039657405D2E8E83A42BC1A066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

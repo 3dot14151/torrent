@@ -19,8 +19,7 @@ Web of Deceit 2: Deadly Sands Collector's Edition / Паутина Лжи 2: П�
 ```bash
 magnet:?xt=urn:btih:8E9FF9A93BFD8B2E82A6F4A406D2DEFDBC720217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Portal 2 (2011) [Ru/Multi] (upd30/2dlc) RePack NSIS
 ```bash
 magnet:?xt=urn:btih:0AF747DF46911606BD2B0DEEAE95E49A737CCB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

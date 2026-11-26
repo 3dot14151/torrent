@@ -19,8 +19,7 @@ SQL, «структурированный язык запросов» (Structure
 ```bash
 magnet:?xt=urn:btih:E0341314BDAB544AECEB73160371FAB37AB3C4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

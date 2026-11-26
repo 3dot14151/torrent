@@ -19,8 +19,7 @@ PowerWash Simulator возвращается! Красота в чистоте! 
 ```bash
 magnet:?xt=urn:btih:D63761FE2D6ABD363EEB796232A83D073D259FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Halloween Stories 9: The Death Card / Хеллоуинские истории 9:
 ```bash
 magnet:?xt=urn:btih:EA7F9F339CF7063825404B12F93622D2899F42E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nicktoons & The Dice of Destiny - это яркое место, где встр�
 ```bash
 magnet:?xt=urn:btih:D5D9A1647E593369E55C66E7D74155A8726AA142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 ```bash
 magnet:?xt=urn:btih:9AFA1931930BB7A6DB81CA927BA5ACF66765B68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 ```bash
 magnet:?xt=urn:btih:AC34C0422EC3E26EC777D4A9AEC5140E927976EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:91B76BAE4F8D036A87758803D8B1D4E13034B93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 ```bash
 magnet:?xt=urn:btih:3C3646E5AE792CBA0A7915ECEADB4AEA3EB97253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Planetary Annihilation: TITANS  это улучшенная версия стр�
 ```bash
 magnet:?xt=urn:btih:5137BE0C46F2A8C37CF976332724CBBA154AFF56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (Build 20392961) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9D8003D17848A2CF7D2323D690D532EF66606505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ A Legionary's Life – симулятор жизни римского легио
 ```bash
 magnet:?xt=urn:btih:544A227B78E4110DA41B55EC1CC3B72E2CA9D52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Mortal Kombat 11 – продолжение культовой серии фай
 ```bash
 magnet:?xt=urn:btih:3714EDFD2580FC0C3B3C9186B6EF5EEA86BB26D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Love.Might.Kill - Brace For Impact (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:19A29BB9A648FA882468FB9AC354B99AC6EBB700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Happy Hippie Hits (2009) 5 CD Box Set [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:FE9181F0AE606251A88817A97ED35E72BB42551F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Saxon - Call To Arms (2 CD Limited Edition) (2011) Performance (2011) [APE/FLAC|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

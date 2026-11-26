@@ -22,8 +22,7 @@ Sorrow - Death of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Doom
 ```bash
 magnet:?xt=urn:btih:E7BBF6B7049991920632AC7147BF236D3B55F2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Strident - Paranoia of the Tyrant (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:6C3E8BE24D4570876D48396F23C6C93E1D3C8C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rascal Reporters - The Strainge Case Of Steve (2023) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:3283D62B84CCB805060703217346CB0690C5E7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ White Canyon & The 5th Dimension - Gardeners of the Earth (2023) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:20ED8DA5C9836757704F4CD9E76BC73352B0435C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jay Tausig - Amorphous Architecture (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyche
 ```bash
 magnet:?xt=urn:btih:04689B08067143E9914E7659329B98F673BD9A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sarayasign - The Lion's Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:29FC401672DFBEA75A0ADCC2A23FF4D8CFEF3B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C2CFE8769D29CC8885E8B547872B547644CD6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Peter Gabriel - The Late Show - New York Broadcast 1978 (2021) Reissue, 2023, Go
 ```bash
 magnet:?xt=urn:btih:CA40D068E4A675E7FD25A7F449FE7F08B04621C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:677B73B0B2E70354AFC6CDDDCB6669E102E4FA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Suzi Quatro, KT Tunstall - Face To Face (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5463B9124B1277909176DCF7B588A157A423EF63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Peter Gabriel - Come Talk to Me (Live) (2023) [MP3|320 Kbps] <Progressive Rock, 
 ```bash
 magnet:?xt=urn:btih:9BAD32348F08360CCB704B369ED4442F64881027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

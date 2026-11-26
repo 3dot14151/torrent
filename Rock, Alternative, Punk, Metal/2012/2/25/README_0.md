@@ -28,8 +28,7 @@ Sent By Ravens - Mean What You Say (2012) [MP3|320 кб/с]<Alt.Rock, Modern Roc
 ```bash
 magnet:?xt=urn:btih:45675BE69D2C95C99D54334186692CF0CBCEC005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Zgard - Reclusion (2012) [FLAC|Lossless]<Pagan Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Chaos Divine - The Human Connection (2011) [FLAC|Lossless]<Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Kill For Thrills - Dynamite From Nightmareland (1990) [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Black Oak Arkansas - Early Times (1974) [MP3|320 kbps]<Southern Rock, hard rock>
 ```bash
 magnet:?xt=urn:btih:DD9484E0C46CF8FDFC7D8775C6F2F29E19A595DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Seanor & Koss - Seanor & Koss (2005) [MP3|320 kbps]<Psych hard, blues rock>
 ```bash
 magnet:?xt=urn:btih:B19302405E617846CE1E99F83F2C2CF59926F949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Sodom - 4 альбома (1987 - 2007) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2BA1632E75E355A393923E46CD55BB236D318B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Seven Seals - ... of Contradictions (2012) Авторская раздача [FL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +356,7 @@ HURT - 6albums + 2ep (2000-2009) [MP3|128-320 кб/с]<Rock/Alternative Rock/Alt
 ```bash
 magnet:?xt=urn:btih:A3B6B34FA6E364D8980199178097D392887E3D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ Freedom Call - 8 альбомов (1999-2012) [MP3|224-320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:7935428FFCAFB3E8511FFAF1382412B44384C51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

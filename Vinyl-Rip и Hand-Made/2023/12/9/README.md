@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D277B86D06D3816C4F580DA1E4B71CF5CE764C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Love And Understanding(   Читать дальше...   )Жанр: Pop Rock,
 ```bash
 magnet:?xt=urn:btih:9190965DDD45DA2D9002C6F8CBC92C5D19BD4122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

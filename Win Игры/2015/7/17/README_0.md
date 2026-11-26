@@ -19,8 +19,7 @@ Fear for Sale: Nightmare Cinema / Страх на продажу. Пленник
 ```bash
 magnet:?xt=urn:btih:4A0571E0DF0C27EDC62210776716E6B74AC0934B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

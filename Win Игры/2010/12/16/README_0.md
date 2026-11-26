@@ -19,8 +19,7 @@ Artifacts of the Past: Ancient Mysteries / Артефакты прошлого. 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alien Hallway (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:57F72713D3EE2267CA8916A128AC70AB63EB402D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Off-Road Drive / Полный Привод 3 [Ru] (RePack) 2010 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:4EE07424F55604A7F5C063575D57642AC8A96188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Off-Road Drive / Полный привод 3 [Ru] (L) 2010 | TRiViUM
 ```bash
 magnet:?xt=urn:btih:9362AD209100BF576F2E63B81E70712B9EEF0714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Starpoint Gemini [En] (RePack) 2010 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:CF84F888008C42C623ECDB4CE0C3B54557A39FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

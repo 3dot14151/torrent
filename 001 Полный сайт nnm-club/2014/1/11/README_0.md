@@ -27,8 +27,7 @@ Suncrown - You Are Not Alone (2014) [MP3|320 кб/с]<Symphonic / Epic Metal>
 ```bash
 magnet:?xt=urn:btih:2E6FA84EC16EA2A7F362499E7E769CBBF5B2D830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Vocal Passion 2013 (New Year's Eve Special) (2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:7E2992397A4AD331CB230690D78CDE01459DC120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:688A990709BEB283448126FD8D16CBD2654FB977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98AA2D8A50C315FE3BBD5C2FC03FE40978D665C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Trance Top 100 Best Of (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:EEF093D24DEB176256292D7E79568D8B53C99447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DC7E118171566276E3EA63D1EB59E52039D6E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Slackbaba - Ask (2013) [FLAC|Lossless|WEB-DL]<Dub, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:E60CB5DA099931DC061AE5C254D1644BA20BFE97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ VA - Winter Dance Mix (2014) [MP3|320 кб/с]<Club, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:D3DBC784F480513899C9851BE468B9C659B2F4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8016B7FCFA2C72CB9F3927C7AC6B3C89590ED580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D043D5FC4B3EF1AE279237AFC3430B30C1CED4B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9B7FFCE671FB2D00A8298346707463F9BC11154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ VA - MicroCastle Vol 6 (2013) [FLAC|Lossless|WEB-DL]<Tech House, Progressive>
 ```bash
 magnet:?xt=urn:btih:D2F35AE993050D12E35528A5940ED168FED9B1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67814EB00F7E45D3A93F8500BE474F9443FF5551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ EngineerЖанр: Canterbury Scene/Avant-ProgПродолжительность:
 ```bash
 magnet:?xt=urn:btih:2BB097E9EBD0A8D46E3C05A59FAFFAD60E3AC274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00D17936DBDA748CB56770BE6A4C157A2A7590FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +451,7 @@ Ford присоединяется к Volvo, Nissan, BMW, Mercedes и Tesla в г
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F268C6D75952E9AAC329F6486EE22AFF72108BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ Noisuf-X - Warning (2013) [FLAC|Lossless]<TBM, Electro, Industrial>
 ```bash
 magnet:?xt=urn:btih:434F3152336B58A6AA7EA52C75DE032A784DD3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ Mazzy Star - Seasons of Your Day (2013) [FLAC|Lossless]<Dream Pop, Alternative R
 ```bash
 magnet:?xt=urn:btih:63BE29365AF53F908656A7D605E5C5D43BF89EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +571,7 @@ Desert Dwellers - Dive Into Forever EP (2013) [FLAC|Lossless|WEB-DL]<PsyChill, A
 ```bash
 magnet:?xt=urn:btih:000B6B72523B16B690F14C9B39578D8F74217A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C320422C63F41E45A72CB91E78CF5BC811138521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ Kiri Te Kanawa - The Best Of Kiri (2001) [FLAC|Lossless]<Opera>
 ```bash
 magnet:?xt=urn:btih:2590D4337AB64A0B008A1B0236799FDF8E1C0BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5404B85F08F2E6B122A66657D87AA5A10A684D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ Johnny Mathis - Open Fire, Two Guitars (1999) [FLAC|Lossless]<Blues, Pop>
 ```bash
 magnet:?xt=urn:btih:B589BCEB58E7ECDE26382EA911E8827C1E17940B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CC41233FACAEF5F0A024E3FB518233D8E85046A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

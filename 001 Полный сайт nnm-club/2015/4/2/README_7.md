@@ -23,8 +23,7 @@ The Six - The View From Jazzbo's Head (2014) [FLAC|Lossless]<Jazz, Mainstream Ja
 ```bash
 magnet:?xt=urn:btih:D150B004D1E96AD51A1CF3B55378BD52B66531F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B97306DB3DF0C7C6AB484DFDDB9CD86715BEC693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC03C1ABE2386048C2EBE3E8F0576C7B3C9AE2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Art Farmer - To Duke With Love (2015) [FLAC|Lossless]<Jazz, Hard Bop, Cool>
 ```bash
 magnet:?xt=urn:btih:00E685F83BC7864435488001318C05D166F80FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Lou Donaldson - Midnight Creeper (2014) [FLAC|Lossless]<Jazz, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:614E86FA00C671AECE6DCBB9AC501CFD97D773BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ordoxe - May Death Be My Shepherd (2015) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:A596CC7B1FB2D8A5BFFCEC71C4F599FF7E446190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ The Modern Jazz Quartet And The Oscar Peterson Trio - At The Opera House (2013) 
 ```bash
 magnet:?xt=urn:btih:FC1FFC080746E12DB6722CAFD2453F020D236650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFBFDC8723647E492D1835AB6600F6A1425AF6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFCFD265D8CBB42D5421120140316881D23F45DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Atlantean Kodex - The Golden Bough (2010) [FLAC|Lossless]<Epic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D827DA79A2BB19F039A44BAC1AC49CA1159E2F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Stephane Grappelli - Plays Jerome Kern (1999) [FLAC|Lossless]<Jazz, Mainstream J
 ```bash
 magnet:?xt=urn:btih:EF014C9DFF1B3961F7100DB885E42F9A02B6037F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA43F3A6A71087B680B8FA98B58EF00537194243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ All These Fallen Trees - This Is Where We Are (2015) EP  [MP3|320 кб/с]<Post 
 ```bash
 magnet:?xt=urn:btih:1A0FB5A2CC2862526B6670DEBCDC511C8287D493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2702180020A0DF41F8F9EF03FDB2383DD72F6A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Netflix планирует оставить Popcorn Time как бесплатн
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ King King - Reaching For The Light (2015) [MP3|320 кб/с]<Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:693FA83902355E6353F203393C0A1C1AE81D2FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Peter Muller - No Mind (2014) [FLAC|Lossless]<Funk, Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:CE7692A63E2CF77A88F956A2BB88361DAEB61F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ Don Shirley - Water Boy & The Gospel According To Don Shirley (2003) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:BE849D29D235BD29635FEA83380C26D351220B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ Dropbox 3.2.9 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FDF29C8B67E2EF427BC4B4BF7B3CE43ABFC47A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ Tygers Of Pan Tang - The Wreck-Age (1985) [FLAC|Lossless]<NWOBHM>
 ```bash
 magnet:?xt=urn:btih:99861016A065A3DCC4C1E48932B24A793A5E30E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A881A00113A67FD7314EA03EA8B9368E7ED14D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:055D822963BA518F190D41B8D000EFCA7568CE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ VA - Vocal Chillout Lounge (2015) [MP3|320 кб/с]<Electronic, Downtempo, Loung
 ```bash
 magnet:?xt=urn:btih:7F56941CAF6E8B7B8F2CB9BD7E7D36F6CA4B26F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBEC468A0715F8D98229CA860603837AD154BB5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCAEA73A62D65E172610C3B1EC57CF2990069F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Fear for Sale 6: Endless Voyage (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:014AD53467E210FEEE538EF6FC6BEDD77302C276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

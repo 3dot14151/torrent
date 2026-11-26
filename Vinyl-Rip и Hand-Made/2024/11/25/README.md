@@ -22,8 +22,7 @@ Memory Garden - шведская дум-метал/хэви-метал груп�
 ```bash
 magnet:?xt=urn:btih:DD749C6A2DD8692986396B077129DDE95689D1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ SIDE A:
 ```bash
 magnet:?xt=urn:btih:30621F116366F2119F1F6E82211614F817B3C27B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Suicidal Angels - трэш-метал группа из Афин, Греция, 
 ```bash
 magnet:?xt=urn:btih:283F20255D32605832DBE453E4F8E81F712E18DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

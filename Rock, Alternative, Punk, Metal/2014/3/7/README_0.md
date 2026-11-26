@@ -28,8 +28,7 @@ Munarheim - Nacht Und Sturme Werden Licht (2014) [FLAC|Lossless]<Folk Metal/Symp
 ```bash
 magnet:?xt=urn:btih:2603D145F936C97FE24C59C61EE926EF0C2D785A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Creek - Storm the Gate (1989) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:673CBBCF31A2A09F243F42C1113C5679BD1287CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Tangier - Four Winds (1989) Japan [APE|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:5C914A5DD7EB756DA101692462DB8B7DAF0DC7AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Von Groove - The Seventh Day (2001) [APE|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E2A6C532F59459897BB6AF33BA679AEE3912A213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Shy - Welcome to the Madhouse (1994) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D049B1DBC669C4B70B2B631C28F6FC44A4DF324F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Snakes In Paradise - Garden Of Eden (1998) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:31C07F16F5F7BD787ABB0737DE0E85248A972D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Harem Scarem - Big Bang Theory (1998) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C4402442A369DF335A4985200387748B1CABA158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Audio Adrenaline - Kings & Queens (2013) [FLAC|Lossless]<Christian Rock, Alterna
 ```bash
 magnet:?xt=urn:btih:FC2B7662BA315A2466418C0415AAA03D28F8CE50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

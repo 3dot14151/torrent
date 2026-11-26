@@ -18,8 +18,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 ```bash
 magnet:?xt=urn:btih:442BC1BCBC7B8AB2496CF80E4E5C0F58483E6FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4305859395531E91A0CECBAA7B71B9C6CED6430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BF2EF42B583C8FB2704AAEA0F2BFA1ACA2992DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:B3F3D95A376C05CA00CB4503C0F6185164D891DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4B2118D080CB95AE4E8C16CBB3F5F64C7AB14A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ N/A | WIFI антенна за 15 минут своими руками PCRec
 ```bash
 magnet:?xt=urn:btih:1C42C6835FC50B895AB2A41716BEA1316E174383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E2A1978B22C4660B6B8F34827B905BE3FF8A760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C1E6BC14A898A98EEA9CC0B9181CA53AE7ACCE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Zoria: Age of Shattering (2024) [Ru/Multi] (1.1.8/dlc) Repack Let'sРlay [Deluxe
 ```bash
 magnet:?xt=urn:btih:528C4582D97165D570896D6A8BCF1FF978997037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ VA - Mixed by DJ Юrkanik (2025) [MP3|320 Kbps] <Progressive House, Trance, Drum
 ```bash
 magnet:?xt=urn:btih:886F9F101D0CD4E9FC1E915606A5878FCFADFF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:16ED5F90F5C09DEFA09C8AEE6611EDC88A1BC524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Tenkuu no Shiro Laputa | Laputa: Castle in the Sky | Небесный замок
 ```bash
 magnet:?xt=urn:btih:9BB8AA00006B216697859FB78741D3C62D472D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 ```bash
 magnet:?xt=urn:btih:5441BF6CAC12AB7D9B501364CED2F91AF7E9F8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:0812328B2182FB54B35C7D6D56BDC3466A527C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:462364619BC55F9D426AA482E1D3160C9FB15A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ Tales & Tactics – перед вами классический автобат�
 ```bash
 magnet:?xt=urn:btih:B0871D60435E24B839519C118156A3303FA799E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:3FF3EAC921BC7126BD7FAF3F6D57FBE8D980C800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +446,7 @@ NEET Kunoichi to Nazeka Dousei Hajimemashita | Somehow, I Started Living With a 
 ```bash
 magnet:?xt=urn:btih:F7E1D93D86A55F84132060C5E5119C721DC10408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +471,7 @@ ON1 Photo RAW MAX 2025 — лучший редактор фотографий в
 ```bash
 magnet:?xt=urn:btih:C9F823220A297FAAE8949F316D4D91D38FA91D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +496,7 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:017BC23877FDE36ACBF45255A2D63503E114861E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +521,7 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:BCF980D844AF429D78ADAD66B0CB43DED64D71BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +547,7 @@ Garmin: Дороги России Топо 6.48 [Ru]
 ```bash
 magnet:?xt=urn:btih:1699B583670C53625FB0B9718EDD42E7BF4CB39B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D9C01A611B1C042C75F2D39F2BB7721E2233687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +597,7 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:78B0E6E0333B63DBBC01C4AD2F9E2E1B7122F958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF12859C3365D28656D6B204BFA3B2D8431C6986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

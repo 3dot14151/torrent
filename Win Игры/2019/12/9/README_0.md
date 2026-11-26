@@ -19,8 +19,7 @@ Christmas Wonderland 10 / Рождество. Страна Чудес 10 (2019) 
 ```bash
 magnet:?xt=urn:btih:D352F94D34F0A8CCD28B142BDD1617CA3F8DB088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Counter Terrorist Agency (2019) [Ru/Multi] (1.0.1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:AECBF766D8593A96ADC1F6C2E7B0560B434C07DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

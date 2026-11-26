@@ -19,8 +19,7 @@ Blitzkrieg / Блицкриг (2003) [Ru] (1.2) Repack/Mod Sprut [Сборник
 ```bash
 magnet:?xt=urn:btih:95C28F9896379C7DF7A97B05BB248A57C31C2EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GZM9 – наиболее крупномасштабный проект на б�
 ```bash
 magnet:?xt=urn:btih:5FC00E7680DC57C9561F51C0DB974E88A50EED4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

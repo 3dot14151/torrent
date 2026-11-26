@@ -19,8 +19,7 @@ Spirit Legends: The Forest Wraith (2018) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:5B8E1329A5241E39EE8B12AD2D3C4DA3B8EADB4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:DB22CD84E1142B596C361103F932942B8CFBE69D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

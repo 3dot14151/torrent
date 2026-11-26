@@ -19,8 +19,7 @@ Static Dread: The Submarine (2026) [Ru/Multi] (Build 20260917T1313Z/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:5CB1D03EB2A7580652ADDAAFFA328B7967B84E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (3.0.0-cs 73341/dlc) Repack Other s [Comple
 ```bash
 magnet:?xt=urn:btih:0D2196483BE8E9E9EA67021B3EA271B3BD42FC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

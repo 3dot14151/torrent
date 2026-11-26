@@ -23,8 +23,7 @@ Brutto - Underdog (2015) Переиздание [FLAC|Lossless]<Punk Rock, Alter
 ```bash
 magnet:?xt=urn:btih:E85F0C56C4EE59C25D4C4FD3B0099E45929ACB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

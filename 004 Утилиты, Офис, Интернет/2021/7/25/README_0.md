@@ -19,8 +19,7 @@ OneClickFirewall 1.0.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:1E2608223F39CA9E6841C1A48C3346CCA5AD39BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

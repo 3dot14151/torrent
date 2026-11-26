@@ -23,8 +23,7 @@ Dire Straits - Love Over Gold (1982) [LP] [24/96] [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

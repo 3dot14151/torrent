@@ -19,8 +19,7 @@ Hand anyone a pencil and paper and they can start drawing, but it's just as easy
 ```bash
 magnet:?xt=urn:btih:D2DFFD3D2BAFC0F3C2E3CDCF4A9BE3039C1C4DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:632E2FE5A8CFE2299B56A299E73939A6B5255A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

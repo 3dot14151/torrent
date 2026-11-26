@@ -19,8 +19,7 @@ ESET Smart Security 10 поможет сделать работу в интер�
 ```bash
 magnet:?xt=urn:btih:9EFAB087974129F8C2134B2D74FC6948E72BB6B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Imagenomic Portraiture - плагин для Adobe Photoshop и Photoshop Elemen
 ```bash
 magnet:?xt=urn:btih:D96C6B7B1BBFF2DB4024D969AD50398C14D89506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MultiBoot USB HDD Utility and Windows & Linux CRUTCH 2016 v5.0 - MultiBoot сб�
 ```bash
 magnet:?xt=urn:btih:B7868E921147A85A5B2041E5CC072DD63CE439C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

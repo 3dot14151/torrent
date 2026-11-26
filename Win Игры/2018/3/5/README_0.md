@@ -19,8 +19,7 @@ The Raven: Legacy of a Master Thief (2013) [En/Ge] (3.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7470FEF26554713C86B792CC0691E9DC07437971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Technomancer - это продолжение Mars: War Logs, в которо
 ```bash
 magnet:?xt=urn:btih:5E9D634F443530CB635F8D139B606C2F772683E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

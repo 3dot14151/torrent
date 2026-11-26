@@ -27,8 +27,7 @@ A9 Satisfaction (I Can't Get No) [3:46]Жанр: Classic RockПродолжит�
 ```bash
 magnet:?xt=urn:btih:A791C9FE4937710226F74F34DD44971BF8D3E9A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

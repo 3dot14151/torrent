@@ -19,8 +19,7 @@ Reah - потрясающе атмосферная приключенческа�
 ```bash
 magnet:?xt=urn:btih:2EBBA9F685E000D478CFF76E3C304F9501E3C229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

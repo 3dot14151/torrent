@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BCB4CBCE720746D31CFA002C62DC0A0142B5FEDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reset Windows Update Tool разработан для случаев неста�
 ```bash
 magnet:?xt=urn:btih:8DB962ED33F0EE9E0ED15B5DA69D686D19C3298E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92BC1B51B59767B99CDE3E43D795C349176CDB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ WhatsApp Messenger - кроссплатформенный мобильный м�
 ```bash
 magnet:?xt=urn:btih:D76A92205E95CBC3797F18414BDE36AF8436AEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73A0F338558FB3FC96822F1B54FA1272AA175468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A430E6EF7F9AB2632B199A8C4AD1F742BD5759C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:095D8BDD68AEEFB3CCD1F530A56CF972C81AED40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Udemy, Stephen Pearson | Rigid Body Simulation Guide in Blender 2.8 (2021) WEB-D
 ```bash
 magnet:?xt=urn:btih:E38F472A0DC238A8A4F8919767E4B51AC7880577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Udemy, Stephen Pearson | Beginners Guide to the Particle System in Blender 2.8 (
 ```bash
 magnet:?xt=urn:btih:95058FBEE5E6595703EF7390A32AB846A7BB72E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8F7876667D9336F2593D235C2B027DDBE2CC635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Metal Gear Solid 3: Snake Eater — одна из самых популярны�
 ```bash
 magnet:?xt=urn:btih:7C3F6C8F58EB95E4DDA1FA8EFD22C616F315FFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Mundfish | Артбук по игре Atomic Heart / The World of Atomic Heart (
 ```bash
 magnet:?xt=urn:btih:E3E8C6A38174C298A75F6437481E87761CCE8A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Udemy, Stephen Pearson | Complete Guide to Dynamic Paint in Blender (2021) WEB-D
 ```bash
 magnet:?xt=urn:btih:E65F3B285315A5868801BEBDC07F37F3592E4856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A19957B9C73856D991CCBABFC271A07D36748AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Cobian Backup - бесплатная программа, позволяющая 
 ```bash
 magnet:?xt=urn:btih:D8434B8F19B267DD93129F19C80E02511E26E731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Oxide Room 104 — это сочетание экшена и жанра «эск
 ```bash
 magnet:?xt=urn:btih:B2CF95CA46947EBECD3C37F068EEF42396311E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

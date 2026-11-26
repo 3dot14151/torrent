@@ -21,8 +21,7 @@ Mustang - Beyond Raging Thunder (2023) [MP3|320 Kbps] <Speed, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9E33613C14B8FC17276D5A5A8B2E4A35B54DA440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A06DF4715F26EAA5C1BFD4802569A1BE7438F4BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Iced Earth - I Walk Among You (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Thras
 ```bash
 magnet:?xt=urn:btih:C0A63AE564F185AE17031BBC02409D68A2E6BC1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:B22A1DB3B05EE81D4D71F2A9091422E5701802E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Louis Hayes - Exactly Right! (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-B
 ```bash
 magnet:?xt=urn:btih:4100B021AB5060AB7875EA11668DA1E45C1307B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Loggins & Messina - Long Island 1976 (live) (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:DB157D4B77F177D36F2E5D6026B2B619937C7B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms And Lav
 ```bash
 magnet:?xt=urn:btih:3AC8AC77B9F7E9779F7773CD98BF5562151932AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:379AFADAC035BD93DDD39E99D25584AFD3FCEBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ OSI — американская прогрессив-рок-группа, пе�
 ```bash
 magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Total Stranger - Mean Season (1986-1990) Remastered, 2023, MelodicRock Classics 
 ```bash
 magnet:?xt=urn:btih:BE8EAA85BE6571BBE5DC86BCC931AD25E6320253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ George Lynch - Guitars at the End of the World (2023) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:6E4A0A7B650715B878F743B144493BFC8C29D13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Street Fighter - Second Hand Hero (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 ```bash
 magnet:?xt=urn:btih:5027173AC9279C3B78EFDCC4043022955BB3E97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Sarayasign - The Lion's Road (2023) [FLAC|Lossless|image + .cue] <Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:C56090D72C60747CEAA0AE63D2337F2439011F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ The Staehely Brothers - Sta-Hay-Lee (1973) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:D9E72142F26243D1521F63B4CFC9C7E7C4A799F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ King Gizzard & The Lizard Wizard - Live in Chicago '23 (2023) [MP3|320 Kbps] <Ps
 ```bash
 magnet:?xt=urn:btih:DC00D770695654316765C147052B911BA621E9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ VA - Metal Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 ```bash
 magnet:?xt=urn:btih:A4DEE7C12072D0574E2458D6FC4B12841E69E0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ BuhoCleaner — это незаменимое приложение для очи
 ```bash
 magnet:?xt=urn:btih:E434FF55027501DCD31C1987EFAF3F15CB3B744A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Classic Essential Mix - это еженедельное радиошоу, где
 ```bash
 magnet:?xt=urn:btih:B96F339776E2354E569EC0EC13B4FF3641ACF579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Stream Of Passion - Beautiful Warrior (2023) EP [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:532ED7902DD5F65F17FE69CB1DAD94E8D51B00D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ Steely Dan - Memphis 1974 (Live) (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8D7955E64DFF74DE1DC79731EE4E7442C6B547FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ Fire Rose - Blood On Your Hands (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' H
 ```bash
 magnet:?xt=urn:btih:6A6DE1FD2558DC626DBB4008D233212DECC6E146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ Thunder Volt - 4 Releases (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Sto
 ```bash
 magnet:?xt=urn:btih:E33B31E661FA93A404F3B12929A7A2F33833094A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ The Flower Kings - Look At You Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 ```bash
 magnet:?xt=urn:btih:8D9EDC7155BF57770F18E025515DFDFD21878FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ Butchamana And The Big Bang Brothers Band - Indian Dream (1981) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:85501CF302FD46A17D1B194A00BE2D9BE3260023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ Dark Divine - Deadly Fun (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Altern
 ```bash
 magnet:?xt=urn:btih:05D41357F33FDFC4FBC54AC8FE8C369FBA423576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ The March Violets - 2 Albums (2023) [MP3|320 Kbps] <Alternative, Post-Punk, Goth
 ```bash
 magnet:?xt=urn:btih:A7E479DB407836601F6F160E92B940ECA9EA4500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

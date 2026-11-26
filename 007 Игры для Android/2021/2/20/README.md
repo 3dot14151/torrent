@@ -19,8 +19,7 @@ Cafeland - World Kitchen - в этой игре вы сможете создат
 ```bash
 magnet:?xt=urn:btih:E81C782B6C42D757F8BDF19C46685D71E3823C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Noblemen: 1896 – игра на андроид, где вы примите св
 ```bash
 magnet:?xt=urn:btih:C7DF4DB91F0A3B8E27CF0A65B687CD94AA713443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blade Bound: Legendary - экшн-RPG, рассказывающая о борь�
 ```bash
 magnet:?xt=urn:btih:54AAC20054A61C3BE7343FCF7232654E977F2C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F3CC34B8B4B7B7EF0E032B5CEB6BAA92EBAF6BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

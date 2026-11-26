@@ -22,8 +22,7 @@ Brothers Of Metal - Emblas Saga (2020) [FLAC|Lossless|image + .cue] <Epic Heavy 
 ```bash
 magnet:?xt=urn:btih:AF44E84E64E14CCDF63232FC2929ED95E6D099FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eric Clapton - Eric Clapton (2021) Anniversary Deluxe Edition [MP3|320 Kbps] <Ro
 ```bash
 magnet:?xt=urn:btih:6B75EF6C4F03FB11FDB63FCCA8637A3E46A120F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

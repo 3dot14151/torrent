@@ -19,8 +19,7 @@ Star Trek: Deep Space Nine: The Fallen / Отверженные: Тайна те
 ```bash
 magnet:?xt=urn:btih:A76330CEC03D9DF4D7EB9183ECCC30ACC2DF4B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Quarantine Антология [En] (RePack) 1994-1996 | RG Games (Pilotus)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Adobe Photoshop CC 2015 - новая, следующая за CC версия п
 ```bash
 magnet:?xt=urn:btih:4ADCF842BBE7722B134960C84681A2D3C0ED3DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 ```bash
 magnet:?xt=urn:btih:1611DF3B49A9EF419E7326A04BF1DC361DD09113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Fuse - отдельная программа для моделирования �
 ```bash
 magnet:?xt=urn:btih:4B333D121CCCC08325A8956CD8231EF37205573A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ triCerat ScrewDrivers 4.7.5.60 [En]
 ```bash
 magnet:?xt=urn:btih:B40EB3D182A74CE0680E4ECB73933E428313C9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ BELOFF 2016.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:A8CEE5EF611A56FA9C73232DF8F93150BA5D45B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:562BB9DF7CF559FD0370DB4CF679B38DBDA57C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64603E17F2C1E97911826D5E366888C00F7A5872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Adobe Photoshop CC - это комплексное решение для про�
 ```bash
 magnet:?xt=urn:btih:3A2D15363054117EF703BFE2B9873ED4D6545BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ The Evil Within (2014) [Ru] (1.5/upd5/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:8F33FE98D598E0A95E0408C54F9C56EEDB52EE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FF4A3047863090B97B51F504F51229E4497D21C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29B4985351AFEEB7674F02B5948ECFCCBCBD4D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

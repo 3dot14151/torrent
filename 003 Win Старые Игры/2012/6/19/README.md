@@ -20,8 +20,7 @@ Creatures – это игра, симулятор жизни. Вы будете 
 ```bash
 magnet:?xt=urn:btih:90B225BC716596E1D793548965A20327E3F2B833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

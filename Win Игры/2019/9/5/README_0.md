@@ -19,8 +19,7 @@ Dark Romance 11: The Ethereal Gardens (2019) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:0298F3C012A37DDF8A62AA0A54CBA5A21C8326F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Signal Simulator — примерьте на себя роль ученого к
 ```bash
 magnet:?xt=urn:btih:6EEAEF74FD42CA11CC82A6F308BDEED2D292F4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

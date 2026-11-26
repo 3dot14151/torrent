@@ -28,8 +28,7 @@ The Animals - The Best Of The Animals - (1965) [FLAC 2.0 24/96|tracks (Vinyl-Rip
 ```bash
 magnet:?xt=urn:btih:C629030EAF9DF5B3619E4ABA4B0DEF15A98A94F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

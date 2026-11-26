@@ -19,8 +19,7 @@ Twinsen's Little Big Adventure 2 Classic – это экшен приключе�
 ```bash
 magnet:?xt=urn:btih:1474C2F196C4D2D46A49C4D2270A8F002346376B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Billy Talent — канадская рок-группа. Была сформир
 ```bash
 magnet:?xt=urn:btih:FEEB64DDC9870C87808846C58D77D278B15B4AB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

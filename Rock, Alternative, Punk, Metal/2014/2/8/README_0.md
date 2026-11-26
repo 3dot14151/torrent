@@ -26,8 +26,7 @@ Kampfar - Djevelmakt (2014) [FLAC|Lossless]<Pagan Black Metal>
 ```bash
 magnet:?xt=urn:btih:E02C0C08B2285AD9169C76D505AA7FF9F8E4C946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Cryptic Wintermoon - 4 Альбома (2003 - 2009) [MP3|320 кб/с]<Melodic Bl
 ```bash
 magnet:?xt=urn:btih:6AD252BBE90D7CA0350E77C6A06EE9389E201845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Woe Unto Me - A Step Into The Waters Of Forgetfulness (2014) [MP3|320 кб/с]<F
 ```bash
 magnet:?xt=urn:btih:FEC6BF2A9A3363821E55CE2DDEDB19042EB36D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Ring Of Fire - Battle Of Leningrad (2014) [FLAC|Lossless]<Progressive, Power Met
 ```bash
 magnet:?xt=urn:btih:19BB9BBCEC844A4F3E4CAFEAACDA13A1C16FD09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Frank Zappa - Joe's Camouflage (2014) [FLAC|Lossless]<Progressive Rock, Avantgar
 ```bash
 magnet:?xt=urn:btih:81FFFC87CF94F883B232701E26E14EEE586A116D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Sonata Arctica - The Wolves Die Young (2014) [MP3|256 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:4FA490133F760EDEDD63E56117FAC59F05D22D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ U2 - Invisible (2014) Single [MP3|320 кб/с]<Alt Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:356B7D1B467DFCDCE09255A1DE34731B63BA4D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Audrey Fall - Mitau (2014) [MP3|320 кб/с]<Post-Metal, Post-Rock, Instrumental
 ```bash
 magnet:?xt=urn:btih:C7E8E92CFAC11A4135593385E9D915D7CECB4561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ CD1 (New Recording):
 ```bash
 magnet:?xt=urn:btih:B1F73D1AEC365C30C324D825A5E3E93D3D771CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

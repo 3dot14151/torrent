@@ -19,8 +19,7 @@ Master Browser config 2019.08.002 [En/Ru] (Обновляемая)
 ```bash
 magnet:?xt=urn:btih:C31C722235762256EFD73BA7F00BC806EFABC1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

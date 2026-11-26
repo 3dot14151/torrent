@@ -21,8 +21,7 @@ Silverlight может воспроизводить WMV, WMA и MP3 для вс�
 ```bash
 magnet:?xt=urn:btih:6D8180332510E81BD73A526994F94EBE54E03DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

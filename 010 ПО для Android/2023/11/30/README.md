@@ -19,8 +19,7 @@ Bazaart: Photo Editor & Graphic Design v2.3.4 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D6009DC8A12D730211A0DA0C6D0D36DD7D920C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mobizen Screen Recorder - невероятно популярное прилож
 ```bash
 magnet:?xt=urn:btih:4AA20B155D05060E1960EBDE50079F79E0CE2668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shazam (шазам) - невероятно популярное и очень у
 ```bash
 magnet:?xt=urn:btih:91638FAB2182968AE84FE0F12784975E336C2D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Music Folder Player - аудиоплеер, что не может похвас�
 ```bash
 magnet:?xt=urn:btih:5B617E6400EEDE346DEEED7C6E49BDB890D79E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ PROTO - симулятор схем v1.25.0 Mod by vedserega [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:409805C8BFE485627F08DCCC32AF375078921883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

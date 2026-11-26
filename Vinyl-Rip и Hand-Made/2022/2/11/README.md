@@ -22,8 +22,7 @@ Jethro Tull – The Zealot Gene (2022) [DSD128 2.0|tracks|Vinyl-Rip] <Prog Rock>
 ```bash
 magnet:?xt=urn:btih:88B246F3D9053A5C3C39ACCB57FD00A839BC6131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Не Стреляй! (1982)(   Читать дальше...   )Жанр: Blue
 ```bash
 magnet:?xt=urn:btih:A7A38E00B185EEA503AC903D3D22F951017B5460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

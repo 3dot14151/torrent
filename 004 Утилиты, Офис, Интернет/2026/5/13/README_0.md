@@ -19,8 +19,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:3119C62FC54771BE3B2A1DDFDAAC1BED9CEE1ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PeaZip — бесплатный архиватор и графическая о�
 ```bash
 magnet:?xt=urn:btih:27883D2420E643E46665952FCEDACC2F0BED56B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Geekbench - кроссплатформенная программа для пр�
 ```bash
 magnet:?xt=urn:btih:7416D8B30232859FEC15B0E91034A088AC1DD8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tor Browser 15.0.13 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C4493606E0F3AE41CDC507F04E88FDAB3492F5EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:AF928E4B40775D9175C4A8C0675FBCE1334743D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:12C7A7F61B38F9054D5C5A1698C27E638C7AB6C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Active@ Disk Editor - это бесплатный расширенный инс�
 ```bash
 magnet:?xt=urn:btih:7D58E00A54F275160DE36DCD8B2CA3E65E120972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ GadgetPack 42.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1C460D4499DBE890FF405521C32070BE80501921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ StarDesk — это инновационное программное обесп
 ```bash
 magnet:?xt=urn:btih:BB90072D32F11C473847A1654C9FEF40E1B5456D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ MicroSIP — SIP-софтфон с открытым исходным кодом,
 ```bash
 magnet:?xt=urn:btih:7F82B2A8497A04E0BF6080B9C0E600B2FAEE6613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 ```bash
 magnet:?xt=urn:btih:BB87C0E714438457510E8C36CC4FDF548046C15A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ RAMMap — утилита для анализа использования фи�
 ```bash
 magnet:?xt=urn:btih:9CB5133F2671171FDD645BE9356802142050A867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ InstallerClean Standart / Slim 1.8.1 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:235F3B01608B7D091F06DE5FA01648EC2B4B5DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ FileBricks — это бесплатная программа для Windows, п
 ```bash
 magnet:?xt=urn:btih:098C231FF2F387ACC95F2C15C145BF6B59524B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:B9C2B9AF75144CD93567D091CC6A658870A7C4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ SfxPackager помогает организовать файлы и програ
 ```bash
 magnet:?xt=urn:btih:22DC1F8B57F427D1DAE904A08622BA91669ADDD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ Quick Access Popup — это небольшой инструмент для у�
 ```bash
 magnet:?xt=urn:btih:098ACE559240350D5254D2C280A6C1779D4986DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:5EAFC7CD0D8AD52623A177DA280C4910FCCAAF83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

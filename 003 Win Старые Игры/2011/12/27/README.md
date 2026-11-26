@@ -21,8 +21,7 @@ Descent [En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:DFEAD2DC766E9ACACCC32CADCC504DD8A4B6D9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ DFS обладает сильно нелинейным сюжетом, связ�
 ```bash
 magnet:?xt=urn:btih:787AD675929FF2D441674A7866938C613EF4E963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ The Last Express [Ru] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:172EF8B3495CE552CB103901C37D018935BA2F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Action/Adventure от третьего лица в мире Might and Magic.По
 ```bash
 magnet:?xt=urn:btih:686BFDC0AB781BEE09422B8B6D4A3318BD32FC07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ The Simpsons: Virtual Springfield [Ru] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:9AD9AF12FDB0774C43BE9ED6C1185BEB0EB7EC62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Descent: FreeSpace 2 [En] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:B888C02FC7D392E760791F4138C875FB1EC923A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

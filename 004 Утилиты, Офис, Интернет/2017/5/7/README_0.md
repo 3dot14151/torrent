@@ -19,8 +19,7 @@ Corel Website Creator позволяет легко создавать веб-с
 ```bash
 magnet:?xt=urn:btih:FF3DFAC219AF20314C85A060A4E7C42B966C1BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

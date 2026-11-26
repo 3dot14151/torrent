@@ -19,8 +19,7 @@ Just Cause 2 (2010) [Ru/Multi] (1.0.0.2) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:42C797D21227E1F3DBD07A5CCAE04CAA1EC62A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ D.O.A.: Живым или мертвым / DOA: Dead or Alive (2006) BDRip [H.26
 ```bash
 magnet:?xt=urn:btih:0D4470247853D143DA287657C8F0EB2BEA7C8B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

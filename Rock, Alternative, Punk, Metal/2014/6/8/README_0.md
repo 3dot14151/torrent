@@ -28,8 +28,7 @@ Stepson - Stepson (1974) [MP3|320 кб/с]<Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7DEB2B768B5478285FC884F410D45F7A035C8FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Incredible Hog - Volume 1 (1973) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8CBCDA7D4B2FBF1ADF4F58E440DD104A4DCAE21A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Opus Doria - A Day On Earth (2014) [MP3|320 кб/с]<Symphonic Power Metal, Goth
 ```bash
 magnet:?xt=urn:btih:66F8BEC89B119CAF2CD05D7AB144A60626A2AEF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Twilight Force - Tales of Ancient Prophecies (2014) [MP3|320 кб/с]<Melodic Po
 ```bash
 magnet:?xt=urn:btih:1C24ECF8DA7AF97E4ABEDB74CE3B6E9348F007CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:0113AF6F6C7C018C927E35B6732590B19B3593C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Hustler - Play Loud (1975) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A1FF8DF1D24A596EF6C70E645DB4CFD406F3366A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Saints & Sinners - Skinhead Times (2012) [MP3|320 кб/с]<Melodic Skinhead Rock
 ```bash
 magnet:?xt=urn:btih:43266414527E43A312D077A790C31C0E176360C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Shakin' Stevens and The Sunsets - Story Of The Rockers (1993) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:6CDC0671EFA1238F527DA8B8FFA4788A75D0C3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

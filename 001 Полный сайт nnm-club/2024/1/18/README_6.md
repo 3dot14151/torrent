@@ -21,8 +21,7 @@ Trapsix - Scenery (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:F768F0A3C2D36736EF656AB9EE25361B5262BC97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ MetaRename — это удобный инструмент для фотогра�
 ```bash
 magnet:?xt=urn:btih:BFD644E1585C8B83847C05D39BB4C898A8DFA17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ MetaVideo for Mac 1.1.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:004D3EB01C885338785340FA42FD5643BF279D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ PullTube 1.8.5.23 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1684B2FF382730E61B3B992AE68F18DCD9C471F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

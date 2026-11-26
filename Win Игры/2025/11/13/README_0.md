@@ -19,8 +19,7 @@ The Last Caretaker (2025) [Ru/Multi] (0.5.0.581804) Repack Other s [Early Access
 ```bash
 magnet:?xt=urn:btih:B5BD24DFC83EE728D7D0575222E2258C52CDA831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sacred 2 Remaster (2025) [Multi] (1.0c) License GOG
 ```bash
 magnet:?xt=urn:btih:B0E109853A4A4192E78A10CD24C3CD7E4FD9EC00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Don't Escape: 4 Days to Survive (2019) [Multi] (1.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:2B63C385701AA235214874E0159EECC347C16940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

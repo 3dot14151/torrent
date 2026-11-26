@@ -19,8 +19,7 @@ Voodoo Dice (L) [En] 2010
 ```bash
 magnet:?xt=urn:btih:4BF0F3BC1E75F538BD67F0AC3EBE7FC3093BE640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hallowed Legends: The Templar Collectors Edition / Священные леген
 ```bash
 magnet:?xt=urn:btih:6DBD64D2C12E60D19E60BB5FFE06EF83C1700B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

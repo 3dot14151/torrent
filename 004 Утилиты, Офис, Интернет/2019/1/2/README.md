@@ -20,8 +20,7 @@ Unlimited Clipboard - очень простая утилита для расши
 ```bash
 magnet:?xt=urn:btih:6CABF988797A6AEB5D6760504F0FC6A4DA38D22E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Ruins - Place Of No Pity (2012) [FLAC|Lossless]<Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDF2D2F4FE159B2443836E7E0A91DC2D53773116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7330AD9B19E13E7129E8C902A88550453D8DBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Elenium - Eccentric Soul's Anatomy (2009) [FLAC|Lossless]<Progressive Sympho Dea
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Lothloryen - Raving Souls Society (2012) [WavPack|Lossless]<Power/Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Ex Delicto - Hostile (2009) [MP3|320 кб/с]<EBM, Electro>
 ```bash
 magnet:?xt=urn:btih:0260886A827B5A2C2ED7D5771676D52374880565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Hanker - - Conspiracy Of Mass Extinction (2010) [WavPack|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1563A524782373D3E18C1BF229E7A2DBC9FA8B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ VA - Disco In Desert (2013) [MP3|224-320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:36B08584232C78ACDAB0BEEEBA4D4977EF86C785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ VA - Trance Velvet (2013) [MP3|320 кб/с]<Trance, Uplifting, Melodic>
 ```bash
 magnet:?xt=urn:btih:FF272D63D80543C36C8D75A0C84341192DC2F0F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ VA - Summer Fashion Dance (2013) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:12A8771B4264FA0AA8C60EC621318D35E9C71B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ Blood Red Throne - Blood Red Throne (2013) [MP3|320 кб/с]<Technical Death Met
 ```bash
 magnet:?xt=urn:btih:D23863E15D033EE5C4724C3CADCC67D97315EFF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ Veronica Mortensen - 2 альбома (2007-2010) [FLAC|Lossless]<Jazz Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +464,7 @@ VA - The Sound of Garuda Chapter 3 (Mixed by Ben Gold) (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:524BAEA5CEF0E10C77FCD54F6CF717DDFA5B0D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +498,7 @@ VA - Family Trance Saviour (2013) [MP3|320 кб/с]<Trance, Progressive, Uplifti
 ```bash
 magnet:?xt=urn:btih:8BBE656AFE3E03707D58A0E6C598D1230C225962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +523,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +556,7 @@ Fall Of Empyrean - A Life Spent Dying (2010) [FLAC|Lossless]<Melodic Doom / Deat
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +581,7 @@ ELLE Decor - самый красивый и полезный журнал о с�
 ```bash
 magnet:?xt=urn:btih:E921C39013E7389142EEE5C9D432CA685124B1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +615,7 @@ Trust Company - Dreaming In Black And White (2011) [FLAC|Lossless]<Rock/Alternat
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57F0AD3784C806234F64FB7B6A42570F888C4FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CD3C85B9C1277965C38F969C3CF94933A48A6DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +699,7 @@ Raven Black Night - Barbarian Winter (2013) [FLAC|Lossless]<Epic Doom  /Heavy Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36BBCD66D6F468770C99383E15A2106112AC3C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +755,7 @@ Strapps - Secret Damage (1977) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9DAFC9679667694614E117A95921972C3D74E6B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +780,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D82C76640CF9BED4563F278D24DF7BB463C09C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

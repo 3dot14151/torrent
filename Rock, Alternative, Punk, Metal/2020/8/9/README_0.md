@@ -22,8 +22,7 @@ Haken - Virus (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, Progressiv
 ```bash
 magnet:?xt=urn:btih:F92CEBFFA341EB96A32236FD71435F72A43DEA6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ FM - Rockville II (2013) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5F6598AAC63A5BEE7BA9D80ED5A124D0DE4403B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Black Crown Initiate - Violent Portraits of Doomed Escape (2020) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:F924B39D258D3AF22378B13E992C433ABAE35458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Misery Signals - Ultraviolet (2020) [FLAC|Lossless|image + .cue] <Metalcore, Mel
 ```bash
 magnet:?xt=urn:btih:38F61305AC1F4A5242FAA30BB10EF9C573D52DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Meadows End - The Grand Antiquation (2019) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:9AB91B60F40A88AD71D8B7DF564260466B03477F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ FM - Rockville (2013) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:504E5FBA0FB8EE7C41CE2CF07CD109985136936B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Curses - Chapter II: Bloom (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post
 ```bash
 magnet:?xt=urn:btih:8ADF3349C7F1D9BCE97CE64E5FF69C621F3C4E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC2746D548644C7F9401419F8DF846366D2868C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Soul Blind - Greatest Hits Vol. 1 (2020) [MP3|320 Kbps] <Grunge, Shoegaze, Post-
 ```bash
 magnet:?xt=urn:btih:6C208B5D619DCCA1553A998C15E8B49D65DABC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Deep Sun - Das Erbe Der Welt (2019) [FLAC|Lossless|image + .cue] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:4F354D0CE98E52EC9A8FCC9DED87FA258725B7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Orbit Culture - Nija (2020) [MP3|320 Kbps] <Groove Metal, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:554A621CF258A7BFD7EBAB0646E8AB76EA85421F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Orbit Culture - Nija (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Progres
 ```bash
 magnet:?xt=urn:btih:32998F79B2C59FBA7BA176490C32237057A78DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Black Veil Brides - Re-Stitch These Wounds (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:53C3945A2D757E16C682AFBC91941DD20C1F84A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Deep Sun - Race Against Time (2016) [FLAC|Lossless|image + .cue] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:C2E9960F284055BD123F4D5353D4D3721D2A79A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Onslaught - Generation Antichrist (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:770444808441E53C342FDFD03B4C32F5E1FFAC4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Dukes Of The Orient - Freakshow (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:4427246FFD9F15922CFB2A17BC8972933620BC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ VA - Rock Poetry (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C958636E041E845F3E14674F110805C00F3FBE7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Static-X - Project: Regeneration Vol. 1 (2020) [FLAC|Lossless|image + .cue] <Ind
 ```bash
 magnet:?xt=urn:btih:DDFAEC8EDA01C9DE4113CE210321AF3FA7DA3276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Avatar - Hunter Gatherer (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:BB32D80B03561A6FB5B77E1DF3A3914E4F3A9FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

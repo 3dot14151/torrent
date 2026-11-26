@@ -19,8 +19,7 @@ Teslagrad - это двухмерный платформер с элемента
 ```bash
 magnet:?xt=urn:btih:D44F90EF7C58ADF0489C12718F27C6051EACDC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.12) License GOG
 ```bash
 magnet:?xt=urn:btih:34F0B1D546D43185757C2A81BD012692465C7AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Trash Sailors это приключения мультяшных пиратов 
 ```bash
 magnet:?xt=urn:btih:0EF447797236711883DE336117FB5659C6DD36DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:0B2386FDB62466D14BA1C510A416AF8D205E5DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

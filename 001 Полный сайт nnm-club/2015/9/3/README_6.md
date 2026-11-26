@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:573E38F6E8755DF4BFFC0FB046086C4D2C6D47C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A77B33E458AEDEACF52DE1026D2EDD7AC72C239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CINEMA 4D Studio – это самое лучшее, что MAXON может п�
 ```bash
 magnet:?xt=urn:btih:4CBB93CC908AAAADA681C84DF268CEB6E0012254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mortal Kombat X – файтинг нового поколения и следу
 ```bash
 magnet:?xt=urn:btih:22D07246FA2CB9C063E3C81823F27DA618D51E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EFF33E0CE3734A646FB862958ED54580E571809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Snappy Driver Installer (SDI) - портативная программа по �
 ```bash
 magnet:?xt=urn:btih:A721A4750A8E436AB64ADB21FBA724DEE5134D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

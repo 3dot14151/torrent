@@ -25,8 +25,7 @@ Unsilence - A Fire On The Sea (2014) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:169D46FBA94B5E4314A54A7AE9EB7AA02E0D8700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Glories - Put The Beast Out Of Mind (2014) [MP3|320 кб/с]<Post Rock, Instrume
 ```bash
 magnet:?xt=urn:btih:5EF081B74AE28E9A9C65C2A720F706F69F22C217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Novembers Doom - Bled White (2014) [MP3|320 кб/с]<Doom Metal, Progressive Met
 ```bash
 magnet:?xt=urn:btih:AB8567295B84D986D33657456CDFB19BA3E5A00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Clan - Witchcraft (2014) [MP3|320 кб/с]<Heavy Blues Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:CEB0364F9EA35A4620EFAFEC0EDFF8E9A454CD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Silent Descent - Remind Games (2014) [MP3|320 кб/с]<Melodic Death Metal, Mode
 ```bash
 magnet:?xt=urn:btih:7EBC4BA4CFA283661677C05BB1BC188FAFFCCBD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Kix - Rock Your Face Off (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1D7312262AF7BA48AFDA8218549D8C21BFCF623E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Betraying The Martyrs - Phantom (2014) [FLAC|Lossless]<Symphonic Metalcore | Dea
 ```bash
 magnet:?xt=urn:btih:10DA27746440290413D677D0C16C07C37049A25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Sin Shake Sin - Lunatics And Slaves (2014) [FLAC|Lossless]<Alternative Rock | In
 ```bash
 magnet:?xt=urn:btih:E67511F0DF40F8E27E1783B518372AD6ADE38EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Eric Clapton & Friends - The Breeze: An Appreciation Of JJ Cale (2014) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:DC3C5F53D16A3AD1C79A2A14BC00DD0A390DD283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

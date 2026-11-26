@@ -28,8 +28,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Arctic Monkeys - Suck It And See (2011) [MP3|320 kbps]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:FA510D11C4B066096A1D62A3F351DA6E5915ECDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

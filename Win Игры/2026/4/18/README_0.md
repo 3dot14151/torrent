@@ -19,8 +19,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:EA6114DF16BD04FC2DBE1EE7820E3B1E8897A323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:CBCCE44B39BA8F45C2BBD8DD0296E378773E6E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MOUSE: P.I. For Hire (2026) [Ru/Multi] (1.0.2.8140/dlc) Repack Let'sРlay [Digit
 ```bash
 magnet:?xt=urn:btih:90BC615689E1CD91FE8280D035CCCC1933AEDB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

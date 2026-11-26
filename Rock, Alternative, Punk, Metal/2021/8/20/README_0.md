@@ -22,8 +22,7 @@ Municipal Waste - The Last Rager (2019) EP [FLAC|Lossless|image + .cue] <Crossov
 ```bash
 magnet:?xt=urn:btih:63476168EB5BD9836B883145481A3635152375D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stormwind - Taken By Storm & Warbringer (1984) Reissue, 2020,  Rockport Records 
 ```bash
 magnet:?xt=urn:btih:3BA2C479D378D45B88A6AAB5C46BF771D5610AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Book Of Numbers - Magick (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard
 ```bash
 magnet:?xt=urn:btih:B0CF09BD1763B10E01C0D7AD9893458CED598F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Steel Rhino - Steel Rhino (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:943789A2E9FC7DD3CEA147501EB4B7F3F8595564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tridente - Apocalipsis (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Groove
 ```bash
 magnet:?xt=urn:btih:60CE5AE057BD4A8FD9FCB85BF2D79D6B54778F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ WarKings - Revolution (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:2BBE4E28FAA59C7FE728ED8DB036B36BF5341445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Legions Of The Night - Sorrow Is The Cure (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:53C08603FB53A4D252D6C7FE82F44FD1BE45E0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Slaughter to Prevail - Kostolom (2021) [FLAC|Lossless|image + .cue] <Deathcore>
 ```bash
 magnet:?xt=urn:btih:D08D7A76BE70DF3A3029548564A9F7A00491D17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Jack Russell's Great White - Great Zeppelin II: A Tribute To Led Zeppelin (2021)
 ```bash
 magnet:?xt=urn:btih:478C7D4E88B296A975C8F93431E922A251B5B64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

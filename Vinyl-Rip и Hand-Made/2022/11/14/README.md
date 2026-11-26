@@ -22,8 +22,7 @@ Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
 ```bash
 magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Red Hot Chili Peppers (RHCP) — американская рок-группа, �
 ```bash
 magnet:?xt=urn:btih:E6A11D77E3D0177B2967C16310A58FC22C6C064B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

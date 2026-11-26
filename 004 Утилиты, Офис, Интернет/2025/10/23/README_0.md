@@ -19,8 +19,7 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:D89FE2B96D3DFC1F7324A121952A2E56A3ABC7D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MediaHuman YouTube Downloader 3.9.17 (2210) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BBBB078828E8E8D094874B7730D3E01BB46E86AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E4E9A171BEE07EDEB9BB4BEC6B22AB49D0F08298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:14D9BD6CD72425C5EE54934E0B7EF4C1CDFBA85B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:E4E0A5AE67BB43B602F6D70E417FC677D6D75E1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:4F3262E26DD8B5135CE61365D05401D3FEB1A0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 ```bash
 magnet:?xt=urn:btih:0067DDC0ED50594FD142662C9C98FF616EF8CDBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ UltraSearch Professional находит файлы и папки на локал
 ```bash
 magnet:?xt=urn:btih:6154D36541115DFD76F8530E5D24D10E369B5EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:54BEBE329919CA5BE8AD2B6FFFABFB33D9FFFC08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

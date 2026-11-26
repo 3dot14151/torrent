@@ -27,8 +27,7 @@ VA - Lounge Tunes (The Finest Selection of Lounge, Down Tempo and Chill out Musi
 ```bash
 magnet:?xt=urn:btih:C7C1DE588CF16E9C7A57C218768E55C596D57BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:778117E44AF8F0F59E58FC76B015BD64EA08342F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Miles Davis - At Carnegie Hall (2014) [FLAC|Lossless]<Jazz, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:A3E34973405474A021F92502CD1E189530916C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ VA - Pure Ecstasy Vol 2 (Deep, Warm & Intense) (2014) [MP3|320 кб/с]<Electron
 ```bash
 magnet:?xt=urn:btih:4A18F4F72F1A99031624A78D94E57146EB456D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ VA - Hollywood Trance Vol 2 (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:BA4B1CC396F487895CE9B2DC8298B1BC2EDCD197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Astrud Gilberto - Gilberto With Turrentine (1988) [FLAC|Lossless]<Jazz, Vocal Ja
 ```bash
 magnet:?xt=urn:btih:A43B8A96BC88CCF67734C610A3D12023E5B8160D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F6FE12BC92FD2863B1D108700D6E0F769D4072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Discovery: Эффект Карбонаро / The Carbonaro effect (2014) HDTVRip
 ```bash
 magnet:?xt=urn:btih:A2E82972D2E2E53ACB22EEE036082FBD87A89FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1740A921331BEDEC22D84E125B53688B5508B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C04CAB4325CC55E0262CDB8AC1D2C574C3F4D0D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ VA - Poolside Mexico (2015) [MP3|320 кб/с]<House, Electronic>
 ```bash
 magnet:?xt=urn:btih:A40622B2C3621DA2A5A4D53608252815AB3D9D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B31E312B1CD903CC56F2BA5B27523F6A7EA2FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:451AF2006D9DE89834A1F125EA731C334EE6D7EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ DropDMG — это очень простая, но функциональная 
 ```bash
 magnet:?xt=urn:btih:E9A074CEB89DA9B5CD16A79D7835C767EF23FAC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ William Hardy | VoIP Service Quality Measuring and Evaluating Packet-Switched Vo
 ```bash
 magnet:?xt=urn:btih:E8AEDA81F1C8EE7D48979A89CED1BE16121E95E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +459,7 @@ Mr. Projectile - In The Fog (2011) [MP3|320 кб/с]<Glitch, IDM>
 ```bash
 magnet:?xt=urn:btih:A032829D073FD93FAB78015DBC5260EAC729AF50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +493,7 @@ Dubba Jonny - The Fire (2015) [MP3|320 кб/с]<Dubstep, Drum & Bass, Glitch>
 ```bash
 magnet:?xt=urn:btih:B427FB6BF84E487AC85698AA44B9524BFC4669E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:433EE43DC35D183E0F1AD3A8116721D2039E3B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F08EAA041BE34B7595B26A873231D585F1162BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BA886EED02CE992ACB7B6E611C1FEAAD3BFB3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +621,7 @@ Mountain 1.6 [En]
 ```bash
 magnet:?xt=urn:btih:91D340E9C274E2CB9968A4C11EAE08A7FE29BC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +655,7 @@ B04. Родня(   Читать дальше...   )Жанр: ChansonПродол
 ```bash
 magnet:?xt=urn:btih:E3DE619B7F36DC9E7AD451EE7A2E42811F4367B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED7BACCCCFE61D81FF1AC0F064B011C365B90914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ VA - Музыкальная звуковая волна (2015) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:76DD49DAEC9B879EB18E9E514B1114FFF2F8421A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4A19995DE2AA6AD21B2872E62AC68611F428099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

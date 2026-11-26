@@ -21,8 +21,7 @@ Monster Hunter Freedom Unite – это 1400 клинков и копий, дв�
 ```bash
 magnet:?xt=urn:btih:6C6ABEB6C4A43EAFBAC7EE56B485D59FEE4A01C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ RevoStock Album Series 01 80917Название: Album Series 01
 ```bash
 magnet:?xt=urn:btih:CDD7A707D01D003014FE7646139AF71E5B29DD68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ AutoCAD® Architecture – это AutoCAD® для архитекторов.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3622FB7B10E4A1F3E680086418578664C26F6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Need For Speed: Pro Street - это нечто не похожее на оста
 ```bash
 magnet:?xt=urn:btih:13597386CE05E76248EAD96F626AAFA804DB2A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Mujin Wakusei Survive / Uninhabited Planet Survive / Выжить на необ�
 ```bash
 magnet:?xt=urn:btih:128EF19B099394127B0255D848697062A8512DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

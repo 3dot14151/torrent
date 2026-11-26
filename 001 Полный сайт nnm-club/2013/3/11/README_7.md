@@ -18,8 +18,7 @@ Demigod / Demigod: Битвы Богов [Ru] (RePack/v.1.30.154) 2010 | Naitro
 ```bash
 magnet:?xt=urn:btih:487C7E3E54EE698B2A474B49CE0A860100D30061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69294B0549C9FC2AADA36D8FA8A37C4A2AF5CD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Vergil’s Downfall (Падение Вергилия) — первое DLC к и
 ```bash
 magnet:?xt=urn:btih:72F82133182C99F4F0473C389BDABF785BC626D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Tropico 4: Steam Special Edition [Ru/En] (Repack/v.1.0.6.345/+7DLC) 2012 | Naitr
 ```bash
 magnet:?xt=urn:btih:A0693F6728F5FDD529232AD39BD7A3A8078F180E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC343A41FC3B9D0586C667A2A04524C715A0BD21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Mass Effect 3: Цитадель / Mass Effect 3: Citadel [Ru/En/Multi6] (DLC) 20
 ```bash
 magnet:?xt=urn:btih:2D52FFA595E9E068E53D9BCB1DF525B721079A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ DmC: Devil May Cry [Ru] (Repack/1.0u2/4 DLC) 2013 | Fenixx
 ```bash
 magnet:?xt=urn:btih:AD644F96C0F0004F9D41BC23FDB005AA041EDBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ The Sims 3 предоставит вам безграничную свободу
 ```bash
 magnet:?xt=urn:btih:401FC18231AC70DD83A5B24AA16CE78969DE75F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ OS X Mountain Lion — новейшая версия самой совершен
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

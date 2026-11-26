@@ -19,8 +19,7 @@ Shadoworlds (1992) [En] (0.9.1) License GOG
 ```bash
 magnet:?xt=urn:btih:F9A896E437CAF6B75502306E431647EB45165029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

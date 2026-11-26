@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0692ECEAEC81470357A7420F8397DF65841A4F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Exact Audio Copy или просто EAC — риппинг-программа �
 ```bash
 magnet:?xt=urn:btih:418DAC6461338F1FCE500D8CA85F6CC73C11E6E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

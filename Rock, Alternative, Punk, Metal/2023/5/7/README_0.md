@@ -22,8 +22,7 @@ Deconstruct - Ashen Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C9943251E6942DA1D2163BFDD718ED3E4DEA3C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ In-Quest - Epileptic (2004) [FLAC|Lossless|image + .cue] <Progressive Death Meta
 ```bash
 magnet:?xt=urn:btih:9D40E4A54368350F8534B38E000B95EEA5CD9ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Depleted - Failing (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:2E2AC808C6BC707DA9149147DB94C0A1FB38AD5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Demon Project MX - Demon Project MX (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 ```bash
 magnet:?xt=urn:btih:2D229DF437068B9F011CF73DDDEA7D3B27747BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Legion Of The Damned - The Poison Chalice (2023) EP [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:33EA5CE8E17FFC7DED806855506FEF9DEFB8A401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Answer - Sundowners (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BA688A13B6BBE5A9E9F49473453585158A744F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Paramore - This Is Why (2023) [FLAC|Lossless|image + .cue] <Alt. Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:F88B1342BDA4707E9F74440648F39100BDB8B861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

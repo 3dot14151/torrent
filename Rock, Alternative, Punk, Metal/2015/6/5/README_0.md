@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:0401DAA31DC5181D6F57E4D331BB9537F8A833E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Michael Cosyn Group (Feat. Paul Shortino) - Burn The Earth (2015) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:A4105519EFB6A020707B3A9B045F629E90704ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Ozric Tentacles - Technicians Of The Sacred (2015) 2CD [FLAC|tracks+.cue]<Psyche
 ```bash
 magnet:?xt=urn:btih:5A882039A27C7F8624C717CF8B98041A347B96D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Beauvoir - Free - American Trash (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:75C21B8A56510DCF95BFD206F51B76139E0EC812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3D58E0D10630D99B5F38F5F59A043EF2624C3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Shawn James & The Shapeshifters - The Gospel According To Shawn James And The Sh
 ```bash
 magnet:?xt=urn:btih:5947115EA4960241384070871007C168C294EBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Smash Into Pieces - The Apocalypse DJ (2015) [FLAC|tracks|WEB-DL]<Alt. Metal | M
 ```bash
 magnet:?xt=urn:btih:A3A69BB24B688215039652E8E715F25F29BC3035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ We Came As Romans - We Came As Romans (2015) [MP3|320 кб/с]<Alt.Rock, Post-Ha
 ```bash
 magnet:?xt=urn:btih:AC4933B2A27F3D8203E265811739A500B5026DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Wolves at the Gate - Reprise (2015) [MP3|320 кб/с]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:8B0F2E12C8463C6EED84A03BE85D7A5B5BD637BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Florence + The Machine - How Big, How Blue, How Beautiful (2015) Deluxe Edition,
 ```bash
 magnet:?xt=urn:btih:3FEC3CD84FB1F750A3E2F0A6FEC0C1E0509B96D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Jethro Tull - Aqualung (1971) [FLAC 2.0 24/96|tracks (WEB-DL)] <Rock>
 ```bash
 magnet:?xt=urn:btih:4B9AC518B7432FA1AB61EE82ED4132A958D9A487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Muse - Drones (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:A8D8067E106B91D5A1F682BD75426D9B36B60C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Muse - Drones (2015) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:67A1AF000D54B0CB645BE143BEDCE147A2CD32D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

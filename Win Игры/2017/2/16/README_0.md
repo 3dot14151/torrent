@@ -19,8 +19,7 @@ The Book of Unwritten Tales 2 (2015) [Multi] (4.6.1.182341/dlc) License GOG [Alm
 ```bash
 magnet:?xt=urn:btih:C518E28A53036C3A2083B548AD6EFBA29867C546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Drizzlepath: Glass (2017) [Ru/Multi] (1.0.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:72469F599D2F01E2EB8CACD48E7DCC115A2119A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Farming Simulator 17, разработанный компанией Giants Softw
 ```bash
 magnet:?xt=urn:btih:11FFA5843F19410446E046FBEA4ECD6459DD1A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

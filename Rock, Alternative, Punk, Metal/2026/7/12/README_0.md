@@ -22,8 +22,7 @@ Shocking Blue - Greatest Hits (2008) [FLAC|974, 1006 kb/s]<rock>
 ```bash
 magnet:?xt=urn:btih:922DEFBB288A2F93F414A7D58AAED2586B645BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shocking Blue - Golden Hits (1990) [Vinyl Rip] [FLAC]<Rock>
 ```bash
 magnet:?xt=urn:btih:470DD9BBCCE29CC13FED81B200843EC68C8495D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Rolling Stones - Foreign Tongues (2026) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:FA894389F019FACD1F1077028DC7579977241DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Rolling Stones - Foreign Tongues (2026) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:C716D22B5150183DAA7CE2EE45EA304AAD5114E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Kramp - Gods Of Death (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:AF730D78AA0F9CAAA02E904D0DD8C56EA0F5C1B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Clockwork - Kill In Time  (1995) Compilation, 2017, Divebomb, DIVE148, USA [FLAC
 ```bash
 magnet:?xt=urn:btih:366928D39027AF5357211144EED3FAE52B8D4C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lector - Bubonic Dawn (2014) [FLAC|Lossless|image + .cue] <Death / Doom Metal>
 ```bash
 magnet:?xt=urn:btih:8AD92FEFB555FDB7F3CADF73E0491E64F0F37A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Breitenhold - 2 Albums (2014-2015) [FLAC|Lossless|image + .cue] <Power / Speed M
 ```bash
 magnet:?xt=urn:btih:FA106E0B7EB527A64226EA9EA89C87159C2A13EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Cloven Altar - 2 Albums (2015-2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:523C45F00FAE5C8FDDECE9D626AB5948DA11D1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The Adekaem - 5 Albums (2015-2023) [FLAC|Lossless|image + .cue, tracks] <Progres
 ```bash
 magnet:?xt=urn:btih:81553EB18F6C1842069D9AD29A1862981D764C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24D37EC7401D62EE7CB710C8630D283C089F73E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Slik Toxik - 2 Albums (1992-1994) [FLAC|Lossless|image + .cue] <Hard / Glam Rock
 ```bash
 magnet:?xt=urn:btih:3E0BBFECF882F351620B4EA9BBFB19F39365DD11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

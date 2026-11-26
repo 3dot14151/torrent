@@ -22,8 +22,7 @@ Circus Of Power - Circus Of Power (1988) Japan [APE|Lossless|image + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:B3E02F3CFF48C3253450955537058A5B76372A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nick Cave & The Bad Seeds - Skeleton Tree (2016) [MP3|320 Kbps] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:1FE30F634626647BA3DA012D5AFEB807EE3BF1C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

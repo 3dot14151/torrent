@@ -19,8 +19,7 @@ House Flipper – увлекательный и интересный в своё
 ```bash
 magnet:?xt=urn:btih:4A0FB423C76F092E36313D12DCADEB2B2F5CD42D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Baisu (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3DCF6FFD9D79F10351188DE2170F763A30D979A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enigma Quest – отправьтесь навстречу таинственн�
 ```bash
 magnet:?xt=urn:btih:77E98E04BB76E478A19F57BE4ABFE377D62B5F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ A Game's Tale (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DFB6DE562C3166DFA56344779BDBC9CCF46B5F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ECHOSTASIS бросает вас в глубины цифрового созна
 ```bash
 magnet:?xt=urn:btih:09BE988909D803D74E6682ACFC64A7D95795391B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Outer Wilds – приключенческий экшен от первого л
 ```bash
 magnet:?xt=urn:btih:19D925094C6A6953DC0CCE5AE68303D92CEE249E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hood Story: Kaito Yamazaki - вы сыграете за Кайто Ямадза�
 ```bash
 magnet:?xt=urn:btih:8C7F6850100A674EED3DA41392296BF1F98CBD56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

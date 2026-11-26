@@ -19,8 +19,7 @@ Omensight - это детективный боевик и духовный на�
 ```bash
 magnet:?xt=urn:btih:37A4C5178221674F61C13DF820B670AE7FFAA530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

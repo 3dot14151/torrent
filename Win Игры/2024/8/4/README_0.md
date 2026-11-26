@@ -19,8 +19,7 @@ Fallen Leaf (2024) [En] (1.0.0.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F02D8C80B09C8D66C4899DBC203398A650B94DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Batman: Arkham Knight торжественно завершает знамени
 ```bash
 magnet:?xt=urn:btih:81FBAB8B98BD9E3829B27DE48A02D5F61D0E72BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DAISY THE SWIMMER переносит пользователей в яркое п
 ```bash
 magnet:?xt=urn:btih:3167047073CE5537A116927D6F89BD6675846471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chicken Game - это интерактивная история, что пока
 ```bash
 magnet:?xt=urn:btih:1F50E128D2938919A72A1C204C1109610276B261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Mortuary Assistant (2022) [Multi] (3.0.0) Repack Other s [Definitive Edition
 ```bash
 magnet:?xt=urn:btih:71FBFB36186CCA4E8EF7465DFA9D3287A894E057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Shift 87 – самая необычная рабочая смена ждет в
 ```bash
 magnet:?xt=urn:btih:6636B88D5872F2392357860B7092BEAA5CF8A3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Fallen Leaf (2024) [En] (1.0.0.14) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6176E6DEABB8FC3BFC38FA362B42AE02D080AF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Ms. Holmes 6: Letter M / Мисс Холмс 6: Буква М (2024) [Ru] (1.0) 
 ```bash
 magnet:?xt=urn:btih:92A2E00F0A63BB312E79AC9C0D5D4C4515716F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Rising Star 2 - ролевая игра в сочетании с симулят�
 ```bash
 magnet:?xt=urn:btih:609C67D773650329442650ADF9934B333C7C656D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Super Life (RPG) – казуальный симулятор прогресса.
 ```bash
 magnet:?xt=urn:btih:3E6A6057F9B1963BE656F1570B56B3630B1EC426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Sumerians (2020) [Multi] (1.0.7/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:889ABDC35F0E4AA3BBBCBB8540944F01766C3AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

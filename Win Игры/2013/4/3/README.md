@@ -20,8 +20,7 @@ Eyes Without a Face [En] (RePack/1.1) 2010
 ```bash
 magnet:?xt=urn:btih:11D8D6BA7758F469AA4C4B43A31075235070D1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Last Stand 3 - Union City [En] (L/1.3) 2011
 ```bash
 magnet:?xt=urn:btih:FB0A59025996F794CC1FC82114E1DEFA68C08082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Lone Survivor [En] (P/1.1) 2012
 ```bash
 magnet:?xt=urn:btih:A9364F5C2BAAFBE8ABA9F6D417E22E05677FD397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ The Secret Order 2: Masked Intent Collector’s Edition / Тайный орде�
 ```bash
 magnet:?xt=urn:btih:AE6B6E131E45C870DB3E78A172B55A97072B51E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Haunt: The Real Slender Game - новая, очень качественная �
 ```bash
 magnet:?xt=urn:btih:9DA14E89E080F04D7BAB0237E3CE6B6D030063A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Sherlock Holmes vs. Jack the Ripper [Ru] (RePack) 2009 | R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:A563AEB467F307162201C39F7B631E9ABC9506C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ A Vampyre Story / A Vampyre Story: Кровавый роман [Ru] (RePack) 200
 ```bash
 magnet:?xt=urn:btih:9EB31FD6935B5282673B2A18B802E69E40EE46EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Orcs Must Die! 2 [Ru] (RePack/1.0.0.349/5DLC) 2012 l Naitro
 ```bash
 magnet:?xt=urn:btih:84918A151A546C434EA0687EF26A2129E499C432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Trials Evolution: Gold Edition - ответ на их ожидания.(   Чи�
 ```bash
 magnet:?xt=urn:btih:9EA4615D1E101052B12357F3D5397EAEA5FC8C53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Mark of the Ninja [Ru/En/Multi] (RePack/1.0.9467/u5) 2012 | R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:19816908DEFBDA8A17202A0DA7DCA1E72300E580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Bridge Project [Ru/En/Multi] (Repack/1.4) 2013 | R.G. Repacker's
 ```bash
 magnet:?xt=urn:btih:1F70D2531C68D71A4050482E99DC3ED4F95183D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Cities in Motion 2 [Ru/En/De] (L) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:D941B8216E090E3F2BC2BD5F53B5F380C791BCA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

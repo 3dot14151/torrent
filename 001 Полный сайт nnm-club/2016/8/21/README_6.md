@@ -21,8 +21,7 @@ VA - Trance Collection Vol.50 (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Pr
 ```bash
 magnet:?xt=urn:btih:8EDDA346D74209A5AEEBAE0C7FF1D957A914E678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Paul Oakenfold DJ Box (August 2016) [MP3|320 Kbps] <Trance,  Progressive>
 ```bash
 magnet:?xt=urn:btih:C946468CF7572C2C26575BFF5A33DF9867812023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - World Amount Club House (2016) [MP3|320 Kbps] <House, Electro House, Future
 ```bash
 magnet:?xt=urn:btih:F6EF9396599036E0498605061C57FB13CD524D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Russian Mega Boom (2016) [MP3|256 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:90797F91B0A3F4FE8EF5786B7B5B06718B191138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:5D1D31460C25E7405DBBC8A9D0D13A0E1A516248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:730538379447538BC6140F747CF5B1FF883176AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AD8E33F7A2220F28D81F89ED59FDBF49260F4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Dark Orbit: Reloaded 3D - это огромная игровая вселенн�
 ```bash
 magnet:?xt=urn:btih:A364EB04F2AA6D61341F531AD94CC394D5FD11E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ED2DCC96162941A615C540D0F716FE65E434D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7EBFC545237E6FBB1FB67B1EFA63033DCD19A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9956D6FC4561FFB286CA898316A397E2D5205F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Android Weather & Clock Widget, быстрый и точный прогноз п
 ```bash
 magnet:?xt=urn:btih:CC1D88070EFE530D370551E92B8E5D4F4618A0A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) Repack =nemos= [Complete Edi
 ```bash
 magnet:?xt=urn:btih:FFF9877B121D2FE1A107DB9054410447EAB12E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:B4E7B351FFDDB3788D03C0A068950D59A19AB6C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BE1FE419744AD0103FDCB0B8F4BCDEA9B1241E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Pinnacle Studio Ultimate 20.0.1.109 (x64) RePack by PooShock [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EA0706D7D4E3A1DAFBE70A4622FFF07FF3B00DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:434C53402C045F908869FD62B2B905D64D4C1EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ GooglePlay Crack 6.9.15G [Ru/Multi] - Взломанный маркет
 ```bash
 magnet:?xt=urn:btih:8D2600949797D20E45A727E3456151A7668CA9A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

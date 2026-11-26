@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EF3C73B3E51FA8B254383ECE34DDBBAA5DA69D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aditya Iyengar | Build Your Own Web Framework in Elixir (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:2A867F35A439AF024A542163128B279D267AEDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AB795E68061DFFA91E905B7434FC340EAEE503D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Colleen M. Farrelly, Yae Ulrich Gaba | The Shape of Data (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:65DE10B342BDB7FE12A69865E433295B5C48425B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Elizabeth Noble | Pro T-SQL 2022, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:E70C177BE6BC94D9CF5DBF9B181B49E266C3ED79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

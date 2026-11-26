@@ -22,8 +22,7 @@ Breaking Benjamin — американская альтернативная ро
 ```bash
 magnet:?xt=urn:btih:19D080D0B3674103960C95AD979E7057B0A61E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

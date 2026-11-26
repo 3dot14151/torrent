@@ -22,8 +22,7 @@ A4 Mother Dear (P) 1965(   Читать дальше...   )Жанр: SoulПро�
 ```bash
 magnet:?xt=urn:btih:781F141E8F72A0370848ACD82AC6439534ACCC05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

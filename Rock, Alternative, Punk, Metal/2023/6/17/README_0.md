@@ -22,8 +22,7 @@ Opera Magna - Of Love and Other Demons (2023) Compilation [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:23D502289832E35675AFFB9F6C95C69C5280C518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shaka Ponk - Shaka Ponk (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 ```bash
 magnet:?xt=urn:btih:AEC29AFEC6C8905C7C79F58F62F6041F43012DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Vision Denied - Age Of The Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 ```bash
 magnet:?xt=urn:btih:62CAE5EB399B6DDCB9BFE1BA4750422661A45E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Memorized Dreams - Theater Of Life (2004) [WavPack|Lossless|image + .cue] <Power
 ```bash
 magnet:?xt=urn:btih:8032856AFF067DD021C4C434EC2FF5EBAB5EAEB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Distance of Thought - Edge of Forever (2023) [MP3|320 Kbps] <Progressive Power M
 ```bash
 magnet:?xt=urn:btih:DA7507DF7572061DA10D9B2DE3EA6EE124523EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Disillusive Play - Songs for the Non-Existent (2023) [MP3|320 Kbps] <Symphonic, 
 ```bash
 magnet:?xt=urn:btih:E22D195868B22309AB119D02315036A9A5C46FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Queens Of The Stone Age - In Times New Roman... (2023) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:555DDE097523A2ABCF92F7A040EA3085F205BC20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Fugitive - Nobody Gets out Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:A0832EA364809A5E693986B9C0CA7E9832E2DF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Whoopie Cat - 3 Albums (2016-2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, 
 ```bash
 magnet:?xt=urn:btih:41F4A18C010AC5111C51A8F94A6E7AD8CC82E786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Hellscream - Made Immortal (2013) [WavPack|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:BA6F4C1E90A9F65C19DC36F26ED3DABC051247B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Arch Nemesis - Of Mind and Fantasy (2004) [WavPack|Lossless|image + .cue] <Dark 
 ```bash
 magnet:?xt=urn:btih:232EE6C0D450EF8739B5E6610717FA51C2613DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Manifestic - Anonymous Souls (2019) [FLAC|Lossless|image + .cue] <Progressive Sp
 ```bash
 magnet:?xt=urn:btih:81F2C552D7B15068DA00419072099550E8104F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Reptilian War Machine - Merciless Addiction (2022) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:3AD5445966FE2454FEDAD135384293F65DF6D444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Death - Symbolic (1995) Canadian Edition [FLAC|Lossless|image + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:5C41A70F956484689EC60D9FF2ED8E822C25D46A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Scar Symmetry — предложили слушателю то, что не мо
 ```bash
 magnet:?xt=urn:btih:9FC741C56D6EE2D1F3B39EB24D9108B086A407F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

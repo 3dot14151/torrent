@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6F9E85C3A903BD93216B7F2D9E532554BB38C557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Places of Power - Now Is The Hour (2009) [APE|Lossless|image + .cue] <Melodic Ha
 ```bash
 magnet:?xt=urn:btih:2454BC6CE5EB0899219DD23EB0831D71AA13B014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Another Cynthia - Collection (2006 - 2009) [MP3|256 Kbps] <Indie Pop Rock, Synth
 ```bash
 magnet:?xt=urn:btih:3FF0CEEB124785B66CD0FF3184B9806B2B32694A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Kaada and Patton - Bacteria Cult (2016) [FLAC|Lossless|tracks + .cue] <Experimen
 ```bash
 magnet:?xt=urn:btih:4125E3EA502368531F73FD066D267FFDCC07C100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Mammoth - XXXL (1997) [APE|Lossless|image + .cue] <Hard Rock, Heavy Metal, Class
 ```bash
 magnet:?xt=urn:btih:93295412859A70DCAE3043698D7FB7A480A8A05F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ The Great Kat - Rossini's Rape (2000) EP [APE|Lossless|image + .cue] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:3B1BE8E14493AD6E62AB41A83281E61B18F98188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBD74009BD0C39E2BAC8FBA548FE74C67350D225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C927C642A0B7FB6BB27B06D303CB9F5A0B2C567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B6558C9644D1EDEE115D90938A1B03C295AFD23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10186F971A4B2D3044D7D91ED3745729221B2C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB819F20F3D28B6155CD3527DCC80BAB937A93D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ VA -  Liquid V Club Sessions, Vol. 6 (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:3E14FC39B61C820204EC1D3EB794E25D8B3D19C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Dog Won't Bite - Schplatterfunk (1993) [FLAC|Lossless|image + .cue] <Acid Jazz, 
 ```bash
 magnet:?xt=urn:btih:2BDAAB553A017D50BDD81D7ADC79E1E7E4AA3947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Heavy Bones - Heavy Bones (1992) [APE|Lossless|image + .cue] <Hard Rock, Heavy M
 ```bash
 magnet:?xt=urn:btih:C4D3CDEFC341B689E60F042DB65B59655892FFCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Craig Padilla - Heaven Condensed (2016) [MP3|320 Kbps] <Ambient, New Age>
 ```bash
 magnet:?xt=urn:btih:1CF2073A8958CA56B9CC95AAFABD00381BDEA3C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ VA - Scuba Presents Hotflush, Vol. 4: Tech x Step (2008 - 2011) (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:8C57760FCA269EB428898340C35A66BBA339A878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:331FC4F117A4A97C7407EFD2E65882189EFF8654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Sharon Vorster - Golden Ring (2016) [FLAC|Lossless|tracks] <Country>
 ```bash
 magnet:?xt=urn:btih:F64FCDEBAB0419712EAF60129202DA990B2A6DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3800A8E05404AFA677B677CD9A32A89E37726FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ VA - Defected In The House Croatia (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 ```bash
 magnet:?xt=urn:btih:530C3741041D457D76FB181F00C666268DCD820B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Gary Hoey - Utopia (2010) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:AA9532F38CA88C811F4F631848ED0E7C45CC777D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ Gianni Vancini - Acustico (2016) [MP3|320 Kbps] <Jazz, Instrumental>
 ```bash
 magnet:?xt=urn:btih:44CFD96D53DB3A895D6E0BBBF18A13A35E6E88AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B3936CA13842536F43EBE30FC144EDFE9A8F94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Vinnie Moore - Defying Gravity (2001) [FLAC|Lossless|tracks + .cue] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:1D991D3231740CEF5404DECBC62FE9CDE34C6E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:893A8647E653895F71F24B2F35CBCF13508B42E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

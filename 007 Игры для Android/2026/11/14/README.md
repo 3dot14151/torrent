@@ -19,8 +19,7 @@ Diablo III — это напряженная и азартная игра, ус�
 ```bash
 magnet:?xt=urn:btih:B44463EE930D7C94CBDB66090CC683242479C32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

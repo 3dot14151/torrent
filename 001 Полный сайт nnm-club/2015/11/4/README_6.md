@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:00015E7D5C12D177B7AA5986BE757263BF8B6A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0E167AA5A133FD1C08E3AA25CAB1D89DA791337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3FF954B46DCC8AF92E9AAF2DE41E9883E31A8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Altium Designer - комплексная система проектирован
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA4CD0699D01C0D17012CAAD745B5D55DBAE549A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ KingoRoot 2.5 Beta[Ru/En]
 ```bash
 magnet:?xt=urn:btih:B31BE248822DE5D8E48CD7FE3B8F7676F51EEAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Owari no Seraph / Seraph of the End: Vampire Reign / Последний Сера
 ```bash
 magnet:?xt=urn:btih:67C55FAE621889F4787629350397524452573C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1BB17CBE40785A7CC44FEBE70C34F1728B85B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Avast Internet Security 2016 - комплексный антивирус, кот
 ```bash
 magnet:?xt=urn:btih:1514D402EB4B87176E665A4D1B996B9FC289F2E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66F4ACCD952239809073C1D5CA68F1229CFFD042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:F7136720F5430DA4588408C23F4570C72DE1F07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ TeraCopy Pro – утилита улучшает процесс копирова
 ```bash
 magnet:?xt=urn:btih:7FB784B4B674B5C9CE759A48193E127B8D3C5EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Fundy Designer - новое слово в дизайне фотоальбомо�
 ```bash
 magnet:?xt=urn:btih:9F9128D4D1E166BE4A9DE4013A09F93502C8D880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:099F2130F536A18089EF235FC283D295102F5F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Tales of Zestiria (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unoffici
 ```bash
 magnet:?xt=urn:btih:A4A72FA56156772430F94604C88D6C536B0521F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ Dragon Fin Soup совмещает несколько жанров в одной
 ```bash
 magnet:?xt=urn:btih:805C30BD8C45A2AB8210517935D80EEC58719D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ Tor Browser Bundle 5.0.4 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:0350623735851B10AE3C30AE556633B52B849A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:878798A6A1758F6EB9EF93A51C1288BCDE39D0F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4CA9C41F18044D084C77CFF458A75645D4803BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.7/dlc) Repack R.G. Games [Comple
 ```bash
 magnet:?xt=urn:btih:BFCE86F232A819D52F994E2DC4141D4BC5223BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ VA - Дискотека 90х: Новый Стиль (2015) [MP3|320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:75FD4D24CCEB0E1C0F5C1D8E12F89BD23EE5817D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD5AB3D0DE05A03F218DCC0816BB138F3A3A39D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ Kingo ROOT - Удобная программа, которая позволит 
 ```bash
 magnet:?xt=urn:btih:900556371BC3CCBBD6AED4504B5C77EA2062009F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +603,7 @@ Tokyo Ghoul A / Токийский гуль [ТВ-2] [2014, TV, 12 ep] BDRip Hi1
 ```bash
 magnet:?xt=urn:btih:C8BDEC1C82BAFE2FC947E1391DF873BE55306761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4782A4ED56F5324E15B74F80D1474DEF995ED8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +653,7 @@ DiRT Rally в раннем доступе, и располагает неско�
 ```bash
 magnet:?xt=urn:btih:DF438A7946B93BBF9116D4D1A08D0B9B3E17C373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

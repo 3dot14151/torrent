@@ -19,8 +19,7 @@ Fedora 27 Live spins [x86-64] 7xDVD
 ```bash
 magnet:?xt=urn:btih:E6D1B2CA3BB8B0B15DD9D733523E383B1D5A2B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

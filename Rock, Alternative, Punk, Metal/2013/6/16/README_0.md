@@ -28,8 +28,7 @@ Fall of Empyrean - Anhedonia (2003) [APE|Lossless]<Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Fission - Crater (2004) [FLAC|Lossless]<Thrash metal / Melodic death metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Mothership - Mothership (2013) [FLAC|Lossless]<Hard Rock, Stoner>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Genocide - Stranded (1994) [style AC/DC] [APE|Lossless]<Hard'n'Heavy>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Bonfire - Live In Wacken (2013) [MP3|~ 240-320 кб/с]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E7AA9E39640E919B3E23D18E9D9486E9AC675154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Chris Rea - Deltics (1979) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:4D2DB792DDBAD3A780F86CD53295B9A77358544F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Gary Hoey - Deja Blues (2013) [FLAC|Lossless]<Blues-Rock, Electric Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Grand Funk Railroad - Icon (2013) [MP3|256 кб/с]<Classic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:69BCAA9EBABDB224C3183D9FFD49212F17828783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ David Knopfler (ex-Dire Straits) - Behind the Lines (1985) not remastered [WavPa
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Falling in Reverse - Fashionably Late [Deluxe Edition] (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:A97B7C2765F06197B81646BF60093324CF4E39FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

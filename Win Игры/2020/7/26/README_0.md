@@ -19,8 +19,7 @@ The Feud: Wild West Tactics - это пошаговая тактическая �
 ```bash
 magnet:?xt=urn:btih:35D371292E6E6C0D975AA74844F061CF640F33EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Necrobarista (2020) [Ru/Multi] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E95C21DE6D9B0119C89BE6497BDB0AD0C0730518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Escapists 2 (2017) [Ru/Multi] (27.666175/dlc) License GOG [Game of the Year 
 ```bash
 magnet:?xt=urn:btih:152067D2331CF2F0702EDBEBEB477DB033AAE95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ World War Z - это напряженный командный шутер на �
 ```bash
 magnet:?xt=urn:btih:683ED25F3E4CE6F3CA463C1FDAA22C0BA7C9085F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

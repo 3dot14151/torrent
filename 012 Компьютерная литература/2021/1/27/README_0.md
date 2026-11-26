@@ -20,8 +20,7 @@ ZBrush от компании Pixologic - приложение для цифро�
 ```bash
 magnet:?xt=urn:btih:98EE0BB62B464679187C82EC1B224048E3179813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

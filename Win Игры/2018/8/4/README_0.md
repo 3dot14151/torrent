@@ -19,8 +19,7 @@ Morphopolis – яркая приключенческая инди-голово�
 ```bash
 magnet:?xt=urn:btih:DDE8461A17F22B63A93EEE99CED5D2402AB41506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightmares from the Deep: The Cursed Heart (2012) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:04AD7973D161F3F6706178B38DDC5C9BDD9988F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blood Waves (2018) [Ru/En] (0.7) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B174672590570FEAA5FB80A3A0C41CF1572BA813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

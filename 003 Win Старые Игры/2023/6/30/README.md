@@ -19,8 +19,7 @@ Aus dem Leben eines Diebes / Из жизни вора (2012) [Ru/De] (1.1) Mod
 ```bash
 magnet:?xt=urn:btih:33799FB7DE0130E1783B4124C848C9ADC3A407B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

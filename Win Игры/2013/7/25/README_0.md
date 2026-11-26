@@ -19,8 +19,7 @@ Nightmares from the Deep: The Siren’s Call Collectors Edition (2013) [En] Unof
 ```bash
 magnet:?xt=urn:btih:360DF03ACF4F193ADEFF7EB5AB8A9AFF0C0DF281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Shogidokoro (2013) [En] (2.7.4) Repack dark_elf2
 ```bash
 magnet:?xt=urn:btih:7921991263F9F0CF2985B0D377FB6C67484663D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ League of Light: Dark Omens Collector's Edition / Лига Света. Пред�
 ```bash
 magnet:?xt=urn:btih:DE2923CD40CD4245FD0AB173E3589A65C89A8838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Giana Sisters: Twisted Dreams – платформер, главная геро�
 ```bash
 magnet:?xt=urn:btih:8340EE8D394EA5136F1AC3DC950B4EA9B831224F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Rugby Challenge 2 (2013) [En] (1.0.0.0) RePack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:DCE092AAC047A2C89132ED6E52C51A1E6247A3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Rugby Challenge 2: The Lions Tour Edition (2013) [Multi] License FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:3116AEAFB459A789C31B72EFB020CA5979792C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ NASCAR The Game 2013 создана по лицензии NASCAR, что зна�
 ```bash
 magnet:?xt=urn:btih:9D864B80DF28EE6485AE0169F39206C157BDF277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

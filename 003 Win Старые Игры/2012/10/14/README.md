@@ -20,8 +20,7 @@ Desert Law / Койоты: закон пустыни [Ru] (RePack) 2005 | RG Gam
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

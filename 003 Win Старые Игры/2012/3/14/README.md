@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A208B1F2174C97ADAC786846425BBC4827FFCF22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Redneck Rampage - компьютерная игра в жанре шутер о�
 ```bash
 magnet:?xt=urn:btih:4971CAD9ADC689944C2604337AD026693EF048CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

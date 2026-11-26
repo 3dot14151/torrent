@@ -19,8 +19,7 @@ Jagged Alliance 2: Wildfire возвращает вас в Арулько, но 
 ```bash
 magnet:?xt=urn:btih:84C3357DE0A7BE2511FCD7FD1E358C1CB8487659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

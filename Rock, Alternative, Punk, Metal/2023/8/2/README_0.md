@@ -21,8 +21,7 @@ Cavalera - Morbid Visions (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Dea
 ```bash
 magnet:?xt=urn:btih:2A699C1D62CC583A4D9F13C09B3DE2D99265185E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Greta Van Fleet - Starcatcher (2023) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:9F46E58DEFC65B232CD49D6605A1B0D1E935B305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

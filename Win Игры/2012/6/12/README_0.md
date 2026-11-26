@@ -19,8 +19,7 @@ Bang Bang Racing - веселая, насыщенная постоянным э�
 ```bash
 magnet:?xt=urn:btih:8F650926BAB859498E98B433B97CE280F9E29328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil: Operation Raccoon City (Update2v.1.2.1803.132) 2012
 ```bash
 magnet:?xt=urn:btih:3B5271FC9CCA2C131AC6E500C3B32388507D1E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kane & Lynch: Дилогия [Ru/En] (Repack) 2007/2010 | VANSIK
 ```bash
 magnet:?xt=urn:btih:819D1F5B9EDDF23B02876650B4AA55C80BF7ADA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rayman Origins (RePack/1.0.32504.1.02) [Ru] 2012 l Fenixx
 ```bash
 magnet:?xt=urn:btih:210EFEA8FC950602B56D2FE357FEBF30A85C7C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

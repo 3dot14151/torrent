@@ -19,8 +19,7 @@ Crusader: A Conspiracy in the Kingdom / Crusader: Adventure Out of Time  (1997) 
 ```bash
 magnet:?xt=urn:btih:601395863ED3B93E7DBC1D3B489C05A1283603ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

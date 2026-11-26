@@ -19,8 +19,7 @@ GPS трекер 1.9.7 - Loki Мобильный GPS/ГЛОНАСС трекер
 ```bash
 magnet:?xt=urn:btih:FE7E18661CFCE787B28F9460DDEC509AE90CC290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

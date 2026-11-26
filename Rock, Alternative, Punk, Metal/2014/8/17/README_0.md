@@ -28,8 +28,7 @@ Some Nerve - Some Nerve (2014) [MP3|320 кб/с]<Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:C026CB989973A74B8F0AB0D43C2C8D7AE150BA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Destillery - Ferrum (2002) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4DAE3EC07387F4BAEC33FE98FC683B9F8C5327FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Destillery - Behind the Mask (2000) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9E3A7791862A592FD1A8FBE60FADB3C64398908D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Aska - Fire Eater (2013) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:485A67B72EACD55DB9EBE9B1E4CFC1703AC43707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Dylan in the Movies - Sweet Rebel Thee (2014) [MP3|320 кб/с]<Indie Rock, Alte
 ```bash
 magnet:?xt=urn:btih:1659F678183AE764E4E6ED55B8FF49BFA218F7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Crypt Of Silence - Beyond Shades (2014) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:3286AC6DF4DCCC2C842E6A2DF7F64E967B4E1D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Aska - Absolute Power (2007) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:24557C4A2518BF5BEF25319CEC3E7326F16C9319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Destillery - Immortal Sun (1999) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5AB06BD075535E1212DAB49B1F29D5096D80B63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Dr. Feelgood - Stupidity (1998) [MP3|320 кб/с]<Pub Rock, Rock'n'Roll, Blues R
 ```bash
 magnet:?xt=urn:btih:0FE4EAF70D50BDE87A3C49E857BFBF10E922A2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ P.O.D. - Murdered Love (2013) Deluxe Edition [MP3|320 кб/с]<Alternative / Nu-
 ```bash
 magnet:?xt=urn:btih:6C265891B9D5DC97BFE4054C8648DF7612C501A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ Alannah Myles - 85 BPM (2014) [MP3|320 кб/с]<Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:E94F0A04050C381951060B6FF34CC64E96E0D812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +394,7 @@ Gotthard - Bang (2014) Japanese Edition [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D3BE5F83CC74A43880FA8D9877262F431D490535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +428,7 @@ Ace Frehley - Space Invader (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:31932811756A46CCE585C9A07E524E18785E4EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +462,7 @@ Linkin Park - Hybrid Theory (Live At Download Festival) (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:BC17219278678B36796B8EB9ECEDECC04556EAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EF9585760CE54AB886B312DF01A5EB4FDC2520F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

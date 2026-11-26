@@ -19,8 +19,7 @@ Smart AudioBook Player Pro v11.2.8 (A8.0+) Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BF123D12E895E826632BE522D74A6F56E5B278B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

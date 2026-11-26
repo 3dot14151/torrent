@@ -19,8 +19,7 @@ Fairy Godmother Stories 2: Dark Deal / Сказки Феи Крестной 2: �
 ```bash
 magnet:?xt=urn:btih:BE74E9A563642F7E9082B12D2AFC58E0873DDE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

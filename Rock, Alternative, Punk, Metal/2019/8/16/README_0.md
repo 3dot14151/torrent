@@ -22,8 +22,7 @@ Avandra - Descender (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:68941856ED2ECB36F9102FA959B2BDC9EF3FD4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Capture (ex-Capture the Crown) - Lost Control (2019) [MP3|320 Kbps] <Post-Hardco
 ```bash
 magnet:?xt=urn:btih:E1894B7E6F31AA201262E3008F4E7A60A79FA016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Shadow of Intent - Melancholy (2019) [MP3|320 Kbps] <Symphonic Deathcore>
 ```bash
 magnet:?xt=urn:btih:47C238E64B921C9BB9C9E98A1634DE5D9DE62A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sniff 'n' the Tears - 8 Studio Albums (1978-2017) CD [MP3|320 Kbps] <Rock, Pop R
 ```bash
 magnet:?xt=urn:btih:7D0E4ED53093646531CF60F9C5B56433CB57A5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Paul Vincent - L.O.V.E. (2015) 4xCD Box Set [MP3|320 Kbps] <Classic Rock, Blues 
 ```bash
 magnet:?xt=urn:btih:DD4FE6A2C96967D3463164C19696B008F83008EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

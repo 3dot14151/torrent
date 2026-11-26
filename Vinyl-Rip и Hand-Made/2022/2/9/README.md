@@ -22,8 +22,7 @@ Madeleine Peyroux – Half The Perfect World (2006) 2008 [DSD128 2.0|tracks|Viny
 ```bash
 magnet:?xt=urn:btih:27F1EEF69DD3F4DDE3910F40BFE4D2F86CDE9D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

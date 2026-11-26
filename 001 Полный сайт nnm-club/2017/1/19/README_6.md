@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:134B0597CC8159BD6C00690FD51C7D2991610475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE13875386AB2C7E23A7DD78DEBA94E4D084E1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Titan Siege - классическая хардкорная MMORPG, ориент
 ```bash
 magnet:?xt=urn:btih:CADAB481D35DA5E017AF28EB1C80C6CB8F3E64D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Navitel / Навител Навигатор v9.7.2172 RePack для карт р�
 ```bash
 magnet:?xt=urn:btih:D498C0D670690EE8304DD4DB50A54D8985590B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ iGO Primo NextGen 9.18.40.671989 (WinCE) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8814D13FB574F691B714754B4AAE59D703014DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0126BD5792488D4E135F13FD5089A6EA1F805003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

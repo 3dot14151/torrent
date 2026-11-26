@@ -28,8 +28,7 @@ Shock Headed Peters - 7 albums (1984-1996) [mp3|192-320 kbps] <Post-punk, Noise 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Samael - Lux Mundi (2011) [MP3|278 kbps]<Black Metal / Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:86A332FE55BAD9F11A37DD1CA60D2D5F5EA6A1A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

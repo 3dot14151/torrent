@@ -27,8 +27,7 @@ Pierre Adenot and VA - Париж, я люблю тебя / Paris, je t'aime (20
 ```bash
 magnet:?xt=urn:btih:92ACF70031AA5738D93EA51BE37BE16A2FF4E529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54791BA7C414C7EF5488C62877E55D74A8F805A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Registry Life - это универсальная утилита для испр
 ```bash
 magnet:?xt=urn:btih:18D6C40201398DBA4B7F15B85AE496DFE6AAF9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Ultra Deep House (2014) [MP3|320 кб/с]<Club House, Deep House>
 ```bash
 magnet:?xt=urn:btih:4C994EC5B5756D7244E5A5C9382EDB1170E10A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ RogueKiller - небольшая антивирусная утилита, осн
 ```bash
 magnet:?xt=urn:btih:F2EA8A667F3EAF3A90DE2A5646DB8FC635B069C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2756D975BCF4664A1B974FBB2533213ACF8C5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ DCommander для Mac - двухпанельный файловый менедж
 ```bash
 magnet:?xt=urn:btih:2C577DFE4B03F41991479F4A8EAA9EA944401428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:93C3BFFDD3AC4157500B8E7E6FB04F9F577B3CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Krystal System - 4 альбома (2008-2013) [MP3|320 кб/с]<Industrial / EBM
 ```bash
 magnet:?xt=urn:btih:24AF6A01697E03A02975055F071A5BE656D9EE56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BFBF65C31B3EC70601A5E3A7E614E8C61703A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ The Word Alive - Real. (2014) Bonus Track Version [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:E735D072F032C2A761BC2EB2D3052A1498E9D7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ VA - Отличница лёгкого поведения / Easy A (2010) [AAC|W
 ```bash
 magnet:?xt=urn:btih:1311C13B39D9101798FF157A1D5C333358116E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ NeoOffice создан на основе офисного пакета OpenOffic
 ```bash
 magnet:?xt=urn:btih:A674D6C5EBE4A5CF13BAD28CBFCA268D86F8D1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:950FD2DD236706A7749BAE9EB0E93B334CC128A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA8E301C5A3C56C333BE5CC08768F7C131CE3549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ ICQ — одна из самых популярных программ для м
 ```bash
 magnet:?xt=urn:btih:6E2D0014C0DFA6605762B5759E2D8D3FDF766EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ Stephen Bennett - River (2001) [FLAC|Lossless]<Instrumental, Acoustic guitar>
 ```bash
 magnet:?xt=urn:btih:B1B3334E6891DACFE05BE4682AF49F7EA6856005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +513,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:A457847953BAFE0B77581512B089DCBAA885764A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ Marc Streitenfeld and Harry Gregson-Williams - Прометей / Prometheus (20
 ```bash
 magnet:?xt=urn:btih:7E7D0F3F769DECFECFB19BFB3402AF7C11416761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F47134EF0EA07FAA9DB635BDE084019A031A63E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBE4017D19E4EE04BE66A7801936983C68CB8CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ Overkill - White Devil Armory (2014) Limitеd Еdition [FLAC|Lossless]<Thrash Me
 ```bash
 magnet:?xt=urn:btih:6B7BC7A41B382F29FE92483B9A77EF74467E3D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ Alexandre Desplat - Годзилла / Godzilla (2014) [AAC|WEB-DL|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:FD74E143A3B203AE2B69EC4BE99344235A59B1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ Hans Zimmer, Geoff Zanelli and Blake Neely - Тихий океан / The Pacific
 ```bash
 magnet:?xt=urn:btih:E9BC260950BC6AB8706EE0071069E138AD4A68B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ Amy Winehouse - New Collection (2008) [AAC|234-357 кб/с]<Soul, R'n'B, Jazz>
 ```bash
 magnet:?xt=urn:btih:3656BDB154D424F59CE96D03FDBAEA0752691687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ FotoSketcher поможет вам автоматически конвертир
 ```bash
 magnet:?xt=urn:btih:FF7BAA662F47EDD58317A021A594153AC0A4D8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

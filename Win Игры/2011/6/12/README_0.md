@@ -19,8 +19,7 @@ The Revenge (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:DF05BA27A4F1FBF8CB68C5D6F5B4ED0D6D76FD9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fairy Tales: Four Seasons (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D5709D2A10285137A76B70265C8B5AFEF1205AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

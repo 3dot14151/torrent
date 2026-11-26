@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:48F30E386296236BAFDAD0CF75A8DB1AF49E7D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Woodcraft Magazine — журнал, посвящённый столярному
 ```bash
 magnet:?xt=urn:btih:E3AC180458FA625ECEF7522D54B13F048A3FD633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.4.8) License
 ```bash
 magnet:?xt=urn:btih:35B49CFF28B4B6BA1EE6D48405328D60D2B92BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Scythe: Digital Edition - это длинная история в пошагов
 ```bash
 magnet:?xt=urn:btih:D9230462C6CEB5A5C768FF0AC03CD69B37E5D331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sand Land (2024) [Multi] (1.0.5/dlc) Scene Tenoke [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:89D52C76544B3EDD10CB8F50C9604BD02EAEE636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Islands of the Caliph - это ролевая игра в жанре Action RPG,
 ```bash
 magnet:?xt=urn:btih:FBD7FB42E54607360CB8C4677CBD8889778D8F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Leviathan's Fantasy - это игра-симулятор, в которой 
 ```bash
 magnet:?xt=urn:btih:354B51E2785E9785ED4D6FC79B60C5EF7D56B493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ REVEIL (2024) [Ru/Multi] (1.1.1/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F4679B711CAFDD3BC5EB930E42B3DEA2416F6460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Godrop - рогалик с увлекательным игровым проце�
 ```bash
 magnet:?xt=urn:btih:3D358DD4AAD8F984A7DA2D6C25B2806975C51F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Pepita Slappers - Rocket To The Moon (2018) [MP3|320 Kbps] <Rockabilly>
 ```bash
 magnet:?xt=urn:btih:31B9F378177E584CD2EE656CCCA10251BB7EC547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kiss - The Best Of Kiss Volume 2 (2004) [FLAC|Lossless|image + .cue] <Hard Rock,
 ```bash
 magnet:?xt=urn:btih:A23CB9CB8ED9248F126E7552C096192E84E5204F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Powerwolf - The Sacrament of Sin (2018) Deluxe Edition [MP3|320 Kbps] <Symphonic
 ```bash
 magnet:?xt=urn:btih:BDA4F27C733A44DC7C1FCC37418955C9CA1F6F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

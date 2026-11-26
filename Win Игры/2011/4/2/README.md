@@ -19,8 +19,7 @@ Empress of the Deep 2: Song of the Blue Whale Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:E6D053287900AAC1917A0A70B595D93785053064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PuppetShow: Lost Town Collector's Edition / Шоу марионеток: Зат�
 ```bash
 magnet:?xt=urn:btih:1DC1F881C028D9C9627BF3942FC540430842713C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dynasty Warriors 6 [Ru] (RePack) 2008 | Spieler
 ```bash
 magnet:?xt=urn:btih:17A883058884B342053FB0D07E69614233DF1A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

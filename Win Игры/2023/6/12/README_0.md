@@ -19,8 +19,7 @@ Ms. Holmes 4: The Case of the Dancing Men (2023) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:55F012333560900D87C2ED79576145A2567D3D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deadly Delivery — хоррор от первого лица. Ваша цель
 ```bash
 magnet:?xt=urn:btih:7F3C4228F2A5913FC7481119033E9A39D4380E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

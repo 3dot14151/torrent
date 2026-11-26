@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:28A2551416C8F8D385C244AAC31D8F25E8975269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Moлoдoй cтyдeнт-юpиcт и кpyпный бaнкиp зaключaют пap
 ```bash
 magnet:?xt=urn:btih:17AADADA6D086236F1AEC798784B3775F4D62D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

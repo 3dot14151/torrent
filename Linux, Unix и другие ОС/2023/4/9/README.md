@@ -21,8 +21,7 @@ OpenMediaVault представляет собой новое поколение
 ```bash
 magnet:?xt=urn:btih:296EFFF237B9503616B49E2B353E65B94D754348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

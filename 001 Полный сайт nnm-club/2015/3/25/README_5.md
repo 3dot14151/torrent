@@ -20,8 +20,7 @@ Borderlands 2 (2012) [Ru] (1.8.0/dlc) SteamRip R.G. Origins [Game of the Year Ed
 ```bash
 magnet:?xt=urn:btih:2661C3EDB64BB5397363FD293F6579230941F55C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ultimate Adobe Photoshop Plug-ins Bundle 2015 — Пакет включает в
 ```bash
 magnet:?xt=urn:btih:295DBC8BD1C75B6E3F2DCA20BBAC80418E83DC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44CBE90B83CB7B379E943AF0A08A1F6002416246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:2EAB79DDF969927F6B5164EF19593F10D3AE84BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Snappy Driver Installer - портативная программа по уст�
 ```bash
 magnet:?xt=urn:btih:BDBB156A7ADFAF012B9B23B72ACC2C504543C018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

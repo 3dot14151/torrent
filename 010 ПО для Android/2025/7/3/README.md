@@ -19,8 +19,7 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:9FD2EAFB192251F1D264461D444B29AF1CED2E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

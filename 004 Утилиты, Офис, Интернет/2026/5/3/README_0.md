@@ -19,8 +19,7 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:76DF92885BC4F5A09E03C16952C13F95B986FB56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Your Universal MultiBoot Installer exFAT (YUMI exFAT) — это бесплат�
 ```bash
 magnet:?xt=urn:btih:50DD1A94A04F49D55FA10FC508515C58215DCB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:3F3EAB45010BE0D084495A124EC7211A4CD39809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Zen Browser — это новый, ориентированный на конф�
 ```bash
 magnet:?xt=urn:btih:B8F1E1237560AF7E0C2E98DF54A7D08E2C38BAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Core Temp - программа для контроля температуры п
 ```bash
 magnet:?xt=urn:btih:CA3409A8BEB3D791ECD30387FFE120E32C7DDB08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Master Cleaner — это мощный инструмент для обслуж�
 ```bash
 magnet:?xt=urn:btih:72848F4B734C7C8BE8C3FB4F17F3AA2BF65D7D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ TreeSize Professional 9.8.0.2300 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6294BE896C4E018EA8FA1CD86207E38BC2524B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ FolderSizes Enterprise 10.0.45 [En]
 ```bash
 magnet:?xt=urn:btih:3DFA50940FF0E52F14431A484D91E2CCA47848BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ IsMyHdOK 4.55 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:42C18F7658E79F634A978941A96112542E57AB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ HFS — это веб-сервер файлов для вашего компью
 ```bash
 magnet:?xt=urn:btih:B3BC12B89F309B5ED6B46A848D415D54BECDE3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ PrivaZer – полезная утилита, которая поможет ва
 ```bash
 magnet:?xt=urn:btih:2D8B30EB5B3A339AD18C26E45B23FE726778A89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:5BC0430A4B9522C205DFC95A6A3B4C15D193C649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ NeuroShift AI — это интеллектуальный переключате
 ```bash
 magnet:?xt=urn:btih:83BD98C2604B169418D6EC2E261B2EF9A8750925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

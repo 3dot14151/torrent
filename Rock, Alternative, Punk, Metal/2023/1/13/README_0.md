@@ -22,8 +22,7 @@ Aeronwen - Aeronwen (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressive 
 ```bash
 magnet:?xt=urn:btih:B0055EADC992DA384C10408745E28EFF4171F422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ahab - Live Prey (2020) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:5CD9CEE7B6B6052223184AE1AD12A46A1960052E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1 - Live At Up The Hammers Festival 2017:
 ```bash
 magnet:?xt=urn:btih:6F036CA4C001F6ED679D45EAA190F115497E6A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Eric Clapton - 461 Ocean Boulevard (1974) Reissue, Remastered, 2004, Polydor [OG
 ```bash
 magnet:?xt=urn:btih:DC9207C1FC046BB9B8A5B312A169764634B1C8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Glass Hammer - At The Gate (2022) [FLAC|Lossless|image + .cue] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:A1A86657D882F925A64BD798078CFAF3D9280E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sunchild - Exotic Creatures and a Stolen Dream (2023) Antony Kalugin [FLAC 2.0|4
 ```bash
 magnet:?xt=urn:btih:FC347CF08A073A6B38E6C3924C92857C13654F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Harakiri for the Sky - Aokigahara MMXXII (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:0A634B4BBAB60A44A37DE59A827E92A5DBDD9E5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Beyond The Black - Beyond The Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 ```bash
 magnet:?xt=urn:btih:499F1EC9B78FE7114E16F97E69F34C51DF1EA622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Hades Descent - The Solitary Path To Armageddon (2022) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:33D18864761CD0107AD1A4276E07CE66D7EB52CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Martyrium - Children Scream for Mercy (2019) [FLAC|Lossless|image + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:72EB81884327EF6C2002E7FC9BB1E6AC6623FD01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Jared James Nichols - Jared James Nichols (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:4F2989AE4A3145902F7B4BE6D700F5990C17CFA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B49B2DDFC3A917B8D43323D1632F1153BA3772D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Eyes Of Ghost - The Black Astral Travel (2023) [FLAC|Lossless|WEB-DL|tracks] <Sy
 ```bash
 magnet:?xt=urn:btih:F5E06E799EE887DA236EF2E9F967BE5B79AE8B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Proxmox Virtual Environment (Proxmox VE) — система виртуализа
 ```bash
 magnet:?xt=urn:btih:556EABFE7E46D8B3ED21C9C2D4CC1F28B44F8ABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

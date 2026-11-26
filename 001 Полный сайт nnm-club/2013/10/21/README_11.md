@@ -28,8 +28,7 @@ Nasaferus - Эпiдэмiя Барацьбы (2008) [MP3|320 кб/с]<Death metal
 ```bash
 magnet:?xt=urn:btih:4A8540F3539A914AC639C969B27A364D5EF93912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Moongravity - Inspired by memories (chillstep mix) (2013) [MP3|320 кб/с]<Chil
 ```bash
 magnet:?xt=urn:btih:00AFA7C2D95D72E4BAA99DD00617B5B0655663D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Grave - Burial Ground (2010) [MP3|320 кб/с]<Death metal>
 ```bash
 magnet:?xt=urn:btih:98ED441EC4F8BBBDBA572CE47730D08943735483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Perspectives - Dreaming Trance (2013) [MP3|320 кб/с]<Uplifting, Melodic,
 ```bash
 magnet:?xt=urn:btih:BB2F6AD3CFEB9D145DC1AB589B51B3D0580E3C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Grosad - Confession For The Devil (2012) [MP3|320 кб/с]<Death metal>
 ```bash
 magnet:?xt=urn:btih:7E70CCB53464F5F2E1A675A3890A6C8E83E04A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:924F9686332161AB72D3D1B4113BD532920FEBB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ VA - Club Feeling - Volume 01 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:D1E312870160B6FAC64F400E8F712E356746DE4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:566F5592EABC9D28496FE7FC9D4C331F1E5CA2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87D5D84619BB4F72658EE1144FAA60283991F758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FE9344EF718439A65EC3338350495D6F984B74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Warbringer - IV: Empires Collapse (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:03D9DE6B18A36507599FB764560088263EF7DA00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ Decapitated - Nihility (2002) [MP3|320 кб/с]<Death metal>
 ```bash
 magnet:?xt=urn:btih:C387BC1A65009F8FE1CEEAC2D89721B2593042B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01854E204BE1110C70D8CE6B20941C980D83226E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A6E7BAF60880BCA6958391ABC393EE74FA4985B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ VA - Chillstep for World Vol.3 (2013) [MP3|320 кб/с]<Chillstep>
 ```bash
 magnet:?xt=urn:btih:B1866B7D457403C9006A86435CD24B7E64FD1F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ VA - Deep Dive (2013) [MP3|320 кб/с]<Deep House, Club House, Vocal House, NuD
 ```bash
 magnet:?xt=urn:btih:E63D68E4F8E0AF65AC822C628956AD0FC7582EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ VA - Club Music Vol. 21 от Kulemina(2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:62A7850B799694329740E85AFCC30253D3FA5F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +574,7 @@ DJ Цветкоff - Танцпол @ Record Club # 234 (11-10-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:DB75E95785B06A188F106DD43410D6423228BF84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ Antibreak - Advent Star (2013) [MP3|320 кб/с]<Ambient, Downtempo, Experimenta
 ```bash
 magnet:?xt=urn:btih:148481CDF1FCAB6E5A76553C3D2AE71A065BDF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F41E814E3BBD2AB23D490EBBAE71FF243892E922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F38835DB61A2F9A7D21BE1AB7644519B42E3D18A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +692,7 @@ VA - Disco Nigth от Kulemina(2013) [MP3|256 кб/с]<Disco, Club>
 ```bash
 magnet:?xt=urn:btih:31D1B705E6CD7C951A7FF40B312BDAF231641C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +726,7 @@ DJ Цветкоff - Танцпол @ Record Club # 233 (04-10-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:DEDAA41ED130A04AACE8A0330EEFD3F5E3F19D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +751,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F106270119C5D9F15F4EC817B4ED2B4180B0DC29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +785,7 @@ DJ Цветкоff - Танцпол @ Record Club # 235 (12-10-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:B81B5E8A2951ED32ADC993F82E76A06F68AD2BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

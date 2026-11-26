@@ -22,8 +22,7 @@ VA - Beautiful Day (featuring R. Stewart, J. Cocker, Free and many more) (2004) 
 ```bash
 magnet:?xt=urn:btih:9AE456C90D5FA29FD2ECCA39956FCFBE66132176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Amorphis - Queen of Time (2018) Limited Edition [FLAC|Lossless|image + .cue] <De
 ```bash
 magnet:?xt=urn:btih:67A51FCC52661E0ECA12F6848AB84B80E62B1C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Vovsoft Hide Files — это простая в использовании пр�
 ```bash
 magnet:?xt=urn:btih:3A8E5E27E29C26F9C400A76DF13DD64799249BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

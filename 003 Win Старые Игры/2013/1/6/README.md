@@ -19,8 +19,7 @@ Seven Cities of Gold [En] (RePack) 1993 | RG Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ D-Day -  тактическая стратегия в реальном врем�
 ```bash
 magnet:?xt=urn:btih:26969BD9014EDCB1C64987815257BFB1927D3DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Stronghold [En] (RePack) 1993 | RG Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Republic: The Revolution / Республика: Революция [Ru] (L) 200
 ```bash
 magnet:?xt=urn:btih:31F6409E798969CA6DEE43DAB8923C9E0346F8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

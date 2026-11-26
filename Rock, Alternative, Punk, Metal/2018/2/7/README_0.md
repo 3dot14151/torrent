@@ -22,8 +22,7 @@ Evertale - The Great Brotherwar (2017) [FLAC|Lossless|image + .cue] <Power Metal
 ```bash
 magnet:?xt=urn:btih:374611C63815DB16C2D0A997E204DDDD2046DC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Iahsari - Shrine Of The Ancient Gods (2018) [MP3|320 Kbps] <Symphonic Metal, Fol
 ```bash
 magnet:?xt=urn:btih:01E44375A50EF7B884BCDAA4563C458B1356090D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Radiohead - Amnesiac (2001) Limited Edition, Book [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:B0FCEE84C578D58C82205B79238E3355E1AAFA39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:651ABA8DAA873EB49B004C72E541AA9091A696F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

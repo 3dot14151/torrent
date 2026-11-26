@@ -22,8 +22,7 @@ VA - Relapse Sampler 2015 (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <blac
 ```bash
 magnet:?xt=urn:btih:44E120DEB76508E2C1D9C1D043A2A108A5458780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CA40FB4CD204141F4DFF18D02772D3D0E1E293A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Flight of Sleipnir - 4 Albums (2014-2021) [FLAC|Lossless|image + .cue] <Ston
 ```bash
 magnet:?xt=urn:btih:53322275DEFB1F4AE4E01B2CE695454ACF70A2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Darkness - Motorheart (2021) [FLAC 2.0|96.0/24|tracks|WEB-DL] <Hard Rock, Gl
 ```bash
 magnet:?xt=urn:btih:40BCBC006AC65B386FE4563917AAC44AD840D916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Second Reign - Gravity (2021) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:ED15A2DA03BAE74A22950C2390CDA00911FEAD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

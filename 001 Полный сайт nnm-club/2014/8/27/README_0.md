@@ -24,8 +24,7 @@ Madu - Уходим мы все незаметно... (2014) [MP3|320 кб/с]<S
 ```bash
 magnet:?xt=urn:btih:F68B529C5ABE463D53FD71D76A322DB43B5AAD69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - House Is A Home Vol 1 (2014) [MP3|320 кб/с]<Funky, Club House, Deep Hous
 ```bash
 magnet:?xt=urn:btih:60594F479E8323708573DCBFF21337E02BE26F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ VA - Deep & Dark Dubstep Vol.1 (2014) [MP3|320 кб/с]<Deep Dubstep, Dark Dubst
 ```bash
 magnet:?xt=urn:btih:749AFF54D6635CA9981AFA3E9D48A439FAFF2A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ VA - Deep Dubstep, Dark Dubstep Vol.2 (2014) [MP3|320 кб/с]<Deep Dubstep, Dar
 ```bash
 magnet:?xt=urn:btih:9235583B9EB2CF6AFC55C1CF01674AF0FF1671F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ HoudahSpot позволяет составлять детализированн�
 ```bash
 magnet:?xt=urn:btih:1A5E2410888674FA4C81233191A1767ABBF0F417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ Kito & Reija Lee - II: The Remixes (2014) [MP3|320 кб/с]<Trap, JerseyClub>
 ```bash
 magnet:?xt=urn:btih:F8682381ECDA283EB89A7E13329BA056242CD758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ V.A. - Alternative Tentacles For Beginners Sampler (2014) [MP3|320 кб/с]<Hard
 ```bash
 magnet:?xt=urn:btih:EE254713E41F715DF96ECFC600A069A3FFD09FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:017B206A812A51C16A72772DCC5A46DA221C0349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ VA - Anjunabeats In Ibiza (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:065B97B8005CA6189A2647F3BB84ACF9948E6A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ Chris Mulkey & Blue Highway - Voodoo Walkin' (2004) [MP3|320 кб/с]<Blues Rock
 ```bash
 magnet:?xt=urn:btih:B9D1F9E01199D96647F4E7177E4C8C9FFB932384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B7313B5AE28FA48FD0B6959070CA4929C6A60A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ VA - Audiokult Chilled Summer (2014) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:0CA969464938C4C7C9CD10DB987522C4AE5C736F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:257C9A4E2398B26FA4B4A6E0A49752292AFAAEF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ C.H. District - Slides (2005) [FLAC|Lossless|WEB-DL]<IDM, Experimental, Illbient
 ```bash
 magnet:?xt=urn:btih:9C2FAE93F46E09A44C093161AD5676799B370755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ Within Reason - Farshadow (2014) [FLAC|Lossless|WEB-DL]<Ambient, Downtempo, Dub 
 ```bash
 magnet:?xt=urn:btih:07E330DFF48A66DE75E17CDBCC49D63BFD27D6B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ VA - Deep House Cartel 2014 (2014) [MP3|320 кб/с]<Funky, Club House, Deep Hou
 ```bash
 magnet:?xt=urn:btih:58FD5996E1AC3C67473941B2F7ECCFD83A26719C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:766EE73B9C3BF9973874CEC1279877C20EA1EE4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ Anno Zero - The Next Level (2014) [MP3|320 кб/с]<Melodic Death Metal, Gothic 
 ```bash
 magnet:?xt=urn:btih:9179DB72A7A45BE2870FF480F53F5C993D731E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B9847AEE0C702915EE47B2808D3AC25BC092A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAC73B8FA379A3A006176F173DD1944393B6E6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ VA - Easy Listening Lounge Affairs, Vol. 2 (2014) [MP3|320 кб/с]<Downtempo, L
 ```bash
 magnet:?xt=urn:btih:0B782BDC2D426460FF78D15CB2F18D3B43EFF289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ VA - A House Affair Vol 15 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:12CC73C0B7BADC5DD966DA828A92B38D65935BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAD5BFA0215BCDC57AA1384A05A6F5A742CA58E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:140504F0AE04BDBFB2B797E8013CDEF94670CD73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ VA - Ibiza Summer Vol. 3 (2014) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:C53D6788801724B0273A34E277F2F8B3B6343CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:722BA4FC75DB3E59E33BC52FC2926575FCA15C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

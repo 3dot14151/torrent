@@ -22,8 +22,7 @@ Passengers - Casino (1981) [FLAC|96/24|image+.cue|Vinyl-Rip] <Disco>
 ```bash
 magnet:?xt=urn:btih:EC8F9C9C63354292D7A3CC369D8281FCD251AA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Masfel - Angyaltojas (2000) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 ```bash
 magnet:?xt=urn:btih:3745006CAED082ABC6B6A2A821D2C98D2FDB3AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Hospital Hungary (2005) Приложение #083 к журналу Stereo 
 ```bash
 magnet:?xt=urn:btih:1D9CFABA9D2F9E723A2481379F7593050C36E184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A Sound Of Thunder - It Was Metal (2018) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D2A180B156324AFFAAE48453869FA7564BABD998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dare - Out Of The Silence II (Anniversary Special Edition) (2018) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:33C68455B922A1F946F1A947786F5267EE4B23D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

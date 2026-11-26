@@ -19,8 +19,7 @@ Insofta Cover Commander позволяет создавать профессио
 ```bash
 magnet:?xt=urn:btih:D22D8C5AD12A6F8EC664901C7B30824CAB929070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

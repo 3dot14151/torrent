@@ -19,8 +19,7 @@ Assassin’s Creed Liberation HD (2014) [Ru] (1.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E2CFCECDAF693D58C812F481C1C05417A59B7435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B6FFFC922BA0FFEB73920BEA9546C6E298514F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

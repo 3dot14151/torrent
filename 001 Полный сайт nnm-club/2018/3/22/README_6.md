@@ -22,8 +22,7 @@ Michael Musillami Trio - Zephyr (2015) Playscape Recordings [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:A5C1A550A75249C00AC3A54BC0E85996BE60DE7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Moon Walk (2018) [MP3|320 Kbps] <House, Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:457BA7BC4273B2E03338AB5CB8906DA26A295A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Touch 25 (2008) [FLAC|Lossless|tracks+.cue] <Abstract, Field Recording, Exp
 ```bash
 magnet:?xt=urn:btih:824D1C2DB3D7BD431FA6FF72C3D5870809FB93BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Janice Lakers - The Rainbow Lady (1985) 2016, Solid Records [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:CA6C9A7D7A2D5715261967EDB42BD87568AE5292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Infrasonic Winter Selection (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:EE2C2D3D63F48D8586BDA1A70A296AE3895F9EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Saturne - Trace Elements (2017) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Techno,
 ```bash
 magnet:?xt=urn:btih:D427D79D11F6A6E7330B990B805574F86C074297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ S.O.N.S - Shin-Okubo One Night Stand (2018) [FLAC|Lossless|Vinyl|tracks] <Techno
 ```bash
 magnet:?xt=urn:btih:346B3CBB9F0426884BD90F2BA6B248E992F7E839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ G.R.I.T. - KALMADS E.P. (2018) Exalt Records [FLAC|Lossless|Vinyl|tracks] <Dub T
 ```bash
 magnet:?xt=urn:btih:58BABD869E302DA773F841BF2B95D540FB278FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - FG Top 10: March (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:440186DED56364262F8E18F2F177E602622697F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Samba Trio - Tristeza (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:62B6E50E3DDAAD1B74F9CAF502D4E22725AAB25B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA9D8E446F5F843BD9194662580C7CF19252EE55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ VA - AmBeat Party (2018) [MP3|320 Kbps] <Club House, Progressive House, Big Room
 ```bash
 magnet:?xt=urn:btih:36214D3FA45FB259B19782C8EC854D6606F7D898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ VA - Sunset Inspirational Grooves (2018) [MP3|320 Kbps] <Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:894E63B5F7508E9F2E814EB2DC7A0D2D1EC7AEA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:5A24F65097E3B2CD9991779B1FF71BB66B6E474D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5B4D4F70B678F575CDD3E00093EB14676FFB823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ VA - Freakin Miami (Mixed by House Of Virus) (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:D17975C204D8AE60510B8D71B5F84011D3880617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4D7B8F30BF4C9EF19EBE47482DD7117002E2D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ VA - Spring Progressive House Vol.1 (2018) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:DCC24DC266A2A90CEC5C1825931D1E309E263E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Angeles & Internazionale - Vigilance (2017) Janushoved [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:FA2E7CDE56B0416684F31543039A947D0B9FB7A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ VA - Coastal Selections 006 (2018) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:77082C4FA3CD821B93B6EA84830870A5B2320D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58B5B72B264BA5C0A9E2DD3F24D3A53511494915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ Fonogeri - Into The Labyrinth (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambien
 ```bash
 magnet:?xt=urn:btih:AE81CC0D7627ABD65411C4FB4F3E8D807C563E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ VA - Miracle Steps: Music From The Fourth World 1983-2017 (2017) Optimo Music [F
 ```bash
 magnet:?xt=urn:btih:776D9063F033B8B093E551E4C31C51F34774D516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ VA - Aly & Fila - Future Sound of Egypt 540 (2018) [MP3|320 Kbps] <Trance,Uplift
 ```bash
 magnet:?xt=urn:btih:7957636CDA43DD5794D94D751FDE24252F05B7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ Motion - Make My Feet Wanna Dance (1997) The Best Of [MP3|320 Kbps] <Electronic,
 ```bash
 magnet:?xt=urn:btih:EA99C16D53F66589E49E48E6790D35FDBCAAACA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:527334F6B00D7548AE9D44980FFF445B6D7F8219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

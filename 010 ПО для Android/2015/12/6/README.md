@@ -19,8 +19,7 @@ Brain 3D Anatomy позволяет вращать реалистичные 3D-�
 ```bash
 magnet:?xt=urn:btih:2089AF1AA225F371BC4337949FFCBED4100D0BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

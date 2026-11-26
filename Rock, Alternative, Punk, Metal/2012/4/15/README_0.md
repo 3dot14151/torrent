@@ -19,8 +19,7 @@ Working For A Nuclear Free City - Jojo Burger Tempest (2010) [MP3|320 кб/с]<S
 ```bash
 magnet:?xt=urn:btih:9D67188AB1F825358B233D38F8569C790D11B1E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Fuel - Something Like Human (Special Expanded Edition) (2000) [MP3|~225 кб/с 
 ```bash
 magnet:?xt=urn:btih:43943246EC44B1958391ECE48412735D1F6BC7A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Era For A Moment - When Earth Meets Sky (2009) [MP3|320 кб/с]<Alt.Rock | Fema
 ```bash
 magnet:?xt=urn:btih:45FC1FCA185039BA604AF87A85643FA48802A541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Lostprophets - 5 альбомов - Дискография (2000-2012) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:BAD20A6145E6FC68AC2C346BA72589975E0B6E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Anathema - Weather Systems (2012) [FLAC|Lossless]<Post-Rock,Atmospheric Rock,Doo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Digimortal - 3 альбома, 1 сингл (2007-2011) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:A55F1C5108A26F6424C52C82D01E20980E20B5A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Jon Anderson and Rick Wakeman - The Living Tree in Concert. Part One (2011) [FLA
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Dave Mason - Alone Together (1970) 24Bit Remastered /2006, Universal Japan / [FL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Amalgama - Мечта (2012) [FLAC|Lossless]<Melodic Hard Rock, Heavy Metal, Pow
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Ylande - Северный Ветер (2012) [MP3|320 кб/с]<romantic folk>
 ```bash
 magnet:?xt=urn:btih:361EC2EEC61637E4866B83EE8DEE227301FEC665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

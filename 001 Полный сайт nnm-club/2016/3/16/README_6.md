@@ -18,8 +18,7 @@ Windows 7 SP1 IE11+ RUS-ENG x86-x64 18in1 Activated v4 (AIO)
 ```bash
 magnet:?xt=urn:btih:5FB199C7877B6F4C1646973A7EF7CC49B230545D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

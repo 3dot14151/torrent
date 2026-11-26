@@ -28,8 +28,7 @@ Earth 2150 Trilogy / Земля 2150 Трилогия (2000) [Ru/En] (2.8.7.1) S
 ```bash
 magnet:?xt=urn:btih:15B9A4BFF94F2BD385FA5EE9D131C9E5C5AF7805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Kult: Heretic Kingdoms / Культ. Королевства ереси (2004) [R
 ```bash
 magnet:?xt=urn:btih:80B1A322A68909F2102071C886E485BAD12BCACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

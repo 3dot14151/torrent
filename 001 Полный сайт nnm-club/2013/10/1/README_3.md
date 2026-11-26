@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D485CC76F93109967D0208BFF09A410E27C76A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Iesabel (2013) [Ru/Multi] (4.2.0.11237) RePack z10yded
 ```bash
 magnet:?xt=urn:btih:5C72BFEA4ED7604BBE08F2149F12B5D1F8FE230C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E49EDC00F2332EB384D8B3A2EF65B829BFE020E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Toaru Kagaku no Railgun S / Некий научный Рейлган [ТВ-2] [2
 ```bash
 magnet:?xt=urn:btih:70FE4F283D0D92CA008BD3A7DBD2C51EC4E0509D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Adobe Flash Professional CC - это мощная среда для создан
 ```bash
 magnet:?xt=urn:btih:8D491E80796E699C1252B92C7A381FFAA6C1EFE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ NBA 2K14 (2013) [En/Multi] License RELOADED
 ```bash
 magnet:?xt=urn:btih:DF16F073577CE4638CC9061FCD381943F2725BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Rampant Cinematic DustFX - Easy to Use Dust Effects for Your Video. The Same Atm
 ```bash
 magnet:?xt=urn:btih:2CB2F969B9FBE72CA3AC3B92027E1F2003A568C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.1.22/5dlc) Repack Fen
 ```bash
 magnet:?xt=urn:btih:2E15E2532DF9C0E64DEA2CA73C772C2CCF6935B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Adobe InDesign CC представляет собой универсальное
 ```bash
 magnet:?xt=urn:btih:1CD2260810A5DA2C973B8EAD4108D36A0C96F9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Flashback HD-переиздание классической приключен�
 ```bash
 magnet:?xt=urn:btih:1DBA65ACC3A537C3DED6D55C417985F34182AB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27846E02AAD8302D1ED0F4EBF682B3B399707119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE46DFC2C0D23648300AA6A1EE7898062E212860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99406EF1CE5E7A20C9B613315A1A8FE4ADEBFEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Rayman Legends — продолжение головокружительных �
 ```bash
 magnet:?xt=urn:btih:7768C63CCB729F27E277F2DDA4037BF6AEA2BD7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

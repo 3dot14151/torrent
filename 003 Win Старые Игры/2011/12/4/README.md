@@ -21,8 +21,7 @@ Alpha Storm [Ru/En] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:F68729261A10E92D157D2B764A1FFDA6C5194F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E9E5F2832EA579BF516438DF777ECAAED20BB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Remember Tomorrow [Ru] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:2827650DA49EB8AE37C55B1786078BDC19D920FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Warlords: BattleCry [Ru] (RePack) 2004 | Pilotus
 ```bash
 magnet:?xt=urn:btih:08E1C99A9950655D20659A08BDA56C6438108023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Star Wars: Rebellion [En/Ru] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:9427AF7A98C81C84B5B973B609FA7AEEB04176C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

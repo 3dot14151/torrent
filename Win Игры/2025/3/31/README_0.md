@@ -19,8 +19,7 @@ Quilts & Cats of Calico - это уникальная и наполненная 
 ```bash
 magnet:?xt=urn:btih:437AA24E7B88FF3733C922F2342EA92826C33C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Still Joking (2024) [Ru/En] (1.2251) License GOG
 ```bash
 magnet:?xt=urn:btih:285087AAA07900D780B43A836E2A5FEAA96867D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:D584924EEC1FEE362E26898D159DDB6CB9362174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Twilight Monk (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3D7B490D65EE4D774C276F1E12A24917A949AE5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bаttlеfіеld 4 – это определяющий для жанра, пол�
 ```bash
 magnet:?xt=urn:btih:7BF28C4879FC717D1A79C7C07AA6AA1BED7E24AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Unholy (2023) [Ru/Multi] (30864) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2A0BBFDB5AEDCED57B007D2815FA7BFD7E893909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D0B02999EA5FBC44B7498DAC02BA9572467516AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.3/dlc) Repack FitGirl [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:4F1C7A6A911273822216216D8EF04B115CE6004E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ A TAVERN FOR TEA предлагает примерить на себя роль 
 ```bash
 magnet:?xt=urn:btih:730E95F132EB4BA04BCEC007FA389B3B22237A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Rain World (2017) [Ru/Multi] (1.10.1/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8989FD4BBE125E7635B2214F9338B9119FFE9131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DA721A9F68FFE0E7636C77984C2680EE4B1B1161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Icebound Secrets: The Frostwood Bane / Тайны ледяного мира: П�
 ```bash
 magnet:?xt=urn:btih:5E3EFE01DEB04BD38100C601D996A081C300ABCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Miryam: The Polluted Land отправляет игроков в зловеще�
 ```bash
 magnet:?xt=urn:btih:5375D6A65B3D05FA8F94D9997971795ED94B3F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Afterimage - это двумерный приключенческий боеви
 ```bash
 magnet:?xt=urn:btih:644E13A381830C5EBCB40366EE16061BEC9C8AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

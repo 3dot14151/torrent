@@ -19,8 +19,7 @@ Elle — французский еженедельный женский журн
 ```bash
 magnet:?xt=urn:btih:A6A0BA1DCC34FA4BD449F1BE5E1438093A1C667B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Elle — французский еженедельный женский журн
 ```bash
 magnet:?xt=urn:btih:7A7B949AFD7D79EE8C03D957EECFE706298DA8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Elle — французский еженедельный женский журн
 ```bash
 magnet:?xt=urn:btih:445551592A77DE20E89B172E7CF9FE953A2E6B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cosmopolitan — международный женский журнал. Сод�
 ```bash
 magnet:?xt=urn:btih:DC215FE6C64BE6E6C857E771BA8A2EDFA30B1556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grazia — итальянское женское издание, выпуска�
 ```bash
 magnet:?xt=urn:btih:EB1B7F521BE97821176ABD222912C1CBB71EA1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD4F8029EB40F90993DC50F6D28C8F52C1698034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Grazia — итальянское женское издание, выпуска�
 ```bash
 magnet:?xt=urn:btih:8A3953ADF0B3801BCA9A8EF6DCC565F067EEA990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C2533D6202D6C573C1CD4E64883F8F4AFF17447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D7123A07FD3D5246611CDFB101D45E354779963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

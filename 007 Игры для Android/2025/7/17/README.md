@@ -20,8 +20,7 @@ GRID Legends: Deluxe Edition v1.1.4RC7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C5113B263249C416F41587F68672BE424EC91ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

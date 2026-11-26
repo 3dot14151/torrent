@@ -19,8 +19,7 @@ The Cursed Forest (2019) [Ru/En] (1.0.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:45CDD3F868210296B8CBBDB8E138040231F4FF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

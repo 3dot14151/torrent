@@ -19,8 +19,7 @@ WinSnap - отличный многофункциональный инструм
 ```bash
 magnet:?xt=urn:btih:0BB752EE3AAFA53DC49E8C57B69CC302A9D97CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PrivaZer – полезная утилита, которая поможет ва
 ```bash
 magnet:?xt=urn:btih:B46A467BC9E30C94F73FDB40449C994730C7429D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Atlantis Word Processor 5.0.5.5 + Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:875762D0B217A1F22C9682C4682EB073148C449A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ WinArchiver — это мощная утилита для работы с арх
 ```bash
 magnet:?xt=urn:btih:612DD9F1D6C9A3B1E7201598C0900EF0FB3CDAD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Jean COURBON, Jean-Noel THEILLOUT | Résistance des Matériaux - Formulaire (201
 ```bash
 magnet:?xt=urn:btih:0024BDC1AB1CBE715070BE0E09A51571ECDD9274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

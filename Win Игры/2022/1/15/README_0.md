@@ -19,8 +19,7 @@ Cave Story, вероятно, является самой известной и�
 ```bash
 magnet:?xt=urn:btih:4615A5EF8AC5809F11FBF1D6C9F94948EE444747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:B109C011C25FAEC132710CC626F66C9D98524433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

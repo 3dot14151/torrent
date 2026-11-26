@@ -22,8 +22,7 @@ A4. Sundance (00:53)(   Читать дальше...   )Жанр: Progressive Me
 ```bash
 magnet:?xt=urn:btih:95AEB8DE0CF8478A68625919D77EBDF71497E2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Kittenhead (01:13)(   Читать дальше...   )Жанр: Progressive 
 ```bash
 magnet:?xt=urn:btih:DCAF6C5BCC4FEE2367EDD2848BC8B4A8513AFD78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD-1 (42:50)
 ```bash
 magnet:?xt=urn:btih:261C68AEFD6A04F25E52A6290E8508899A3C06D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

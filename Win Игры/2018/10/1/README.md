@@ -19,8 +19,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.4/dlc) Repack R.G. Catal
 ```bash
 magnet:?xt=urn:btih:3C3DDC0CC46C752D581C841B1E5159C15AA4BF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Prodigy Tactics — тактическая ролевая игра в пошаг
 ```bash
 magnet:?xt=urn:btih:44262BD461B97284652FB31CAA183E8EE0326034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unravel Two (2018) [En] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:E03AE73CAA53245E51C447EA3E0048BC89437FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

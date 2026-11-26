@@ -19,8 +19,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:0BDC4EF30B441FD6651B3EC9D648F2AAB3330406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) Repack Wanterlude [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:335B78DAC093BDDDB5D77831941A43E74E18FBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack Wa
 ```bash
 magnet:?xt=urn:btih:E96CB6587B87BAD1174FC9ADFBD9FBD1E5C54DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bulwark - это создание своей крепости и расшире�
 ```bash
 magnet:?xt=urn:btih:EFB01BDBA4AFFB52FBF44E9F504C9A5BD638F72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.0.10122/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:537200FF53AF82CF78BB6E7067DEE66253CC7493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Saturn (2024) [Ru/En] (1.35.02.11.16461/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EC1C4AE6DA055C67695251DE76C73FC1786E2D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Renaissance Kingdom Wars (2024) [Ru/Multi] (1.0) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8E274D6C1418E881BFAF09DB9196A3D720351351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Backrooms: Mass Extinction (2022) [En] (1.2.2 Beta) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:981527D950775AA9EA3C5E915DB3B7221817D204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Door Kickers 2 Task Force North – великолепное сочетание 
 ```bash
 magnet:?xt=urn:btih:1CCA36A80CACB8A06755A75B808D3FA2197EE75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Let's Cook Together 2 продолжает идею первой части - г
 ```bash
 magnet:?xt=urn:btih:07C647B4E00F3ECBFC82D71C4D7CCCD397C1702C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Locks (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CB7342D444CC5B0E5F2A26C96909F1D4D05128A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Rake - жуткий сурвивал-хоррор по мотивам крипи
 ```bash
 magnet:?xt=urn:btih:747BE1F39865D8982BD7914174A35E0E0A3AB5FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack De
 ```bash
 magnet:?xt=urn:btih:195D47896720338BC730D331A510896DC0DF8DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Mind Echoes: The Lost Mysteries / Эхо разума: Утраченные та
 ```bash
 magnet:?xt=urn:btih:EA7BD4B8DD1D119C2B8F9F1E0D92E04262C884F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Clone Drone in the Danger Zone – увлекательная аркада, в �
 ```bash
 magnet:?xt=urn:btih:07AF15588EFD62EDD5461FC901AFB19E8DA72B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

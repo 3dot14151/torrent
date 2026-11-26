@@ -19,8 +19,7 @@ Comix Zero - инди-платформер в жанре «комиксвани�
 ```bash
 magnet:?xt=urn:btih:7ED5260DF4BCA369397997CF1AE06F262C4FAF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ THE IRONY (2026) [Multi] (Alpha 0.1.2) Repack Let'sРlay [Playtest]
 ```bash
 magnet:?xt=urn:btih:CA097458717E8EB081ED694F8C54E22BAB731B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhammer 40,000 Dark Heresy (2026) [Ru/Multi] (0.0.3.507) Repack Let'sРlay [Pl
 ```bash
 magnet:?xt=urn:btih:205CD574182AB1AEAE0DEA22159D69022440C95E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

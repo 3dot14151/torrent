@@ -28,8 +28,7 @@ Vanishing Point - Distant Is The Sun (2014) [FLAC|Lossless]<Melodic / Progressiv
 ```bash
 magnet:?xt=urn:btih:A424E6BB7DBCB01293E34ADBB44D646F0146FEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Munarheim - Nacht Und Sturme Werden Licht (2014) [MP3|320 кб/с]<Symphonic Bla
 ```bash
 magnet:?xt=urn:btih:45EB7E211D3CD23384625AA865FAC1C60746112F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Vanishing Point - Distant Is The Sun (2014) [MP3|320 кб/с]<Melodic Progressiv
 ```bash
 magnet:?xt=urn:btih:B505F872067D76D9E11F35ACC5194C6ADC02AC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Freedom Call - Beyond (2014) Limited Edition [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:B8729F9F1F3D805649386613FF706A24EF636502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Avenger Kills - Главное - Жизнь (2013) [MP3|320 кб/с]<Heavy Metal
 ```bash
 magnet:?xt=urn:btih:083C785EE8CF2AE05535553AA370F651EADE8D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Overland - Epic (2014) [MP3|320 кб/с]< Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8FA9BE966B595E9F3393A68D1EFEF8F4AF2510FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Vanden Plas - Chronicles Of The Immortals: Netherworld (Path One) (2014) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:48CA07264F6AAF2728334295D67B662A55B65609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Within Temptation - Whole World Is Watching (2014) EP [MP3|192 кб/с]<Symphoni
 ```bash
 magnet:?xt=urn:btih:89FBA7AC39686539C9F537AD2EBD59A84DA4D95E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Eloy - Reincarnation On Stage (2CD) (2014) [FLAC|Lossless]<Psychedelic, Space Ro
 ```bash
 magnet:?xt=urn:btih:FB9B74E8A247E1EA9B8D85978E17E35FE0F97819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

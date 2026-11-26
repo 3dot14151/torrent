@@ -19,8 +19,7 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:2A72DD078556AE5BABE1C85F95BB84C210A8DDB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SoftPerfect RAM Disk - программа для создания виртуал
 ```bash
 magnet:?xt=urn:btih:C888285419B26761A627B78BF318E471B8A39176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:E4F7B058465BBA8C994C8F2B2329387ECBE526CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Screencapt — лучший инструмент для записи экран�
 ```bash
 magnet:?xt=urn:btih:743B62C0F24F483D0CA349E62F28D12AFBDED02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Camtasia захватывает действия и звуки в любой ч�
 ```bash
 magnet:?xt=urn:btih:DFDC1116C92D9670F46FFC928FC20CC3C782AE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Snagit предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:D9E8BE4B9DB122943ECC147175AB98CEB97E41B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

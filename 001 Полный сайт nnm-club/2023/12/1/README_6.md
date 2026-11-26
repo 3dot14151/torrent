@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:52854AB495159B00FCB8F264307A61380633A2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Anger As Art - Virtual Sympathy (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:A580F76B283116B1FEFFA5D0422F88AB4EC2C34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Kiosc — это приложение для создания пользоват
 ```bash
 magnet:?xt=urn:btih:F51CF7F9EC54517FD67EFA30338BF78D9EEC6197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Dorothy Ashby - The Fantastic Jazz Harp of Dorothy Ashby (1965) 2016, Spellbound
 ```bash
 magnet:?xt=urn:btih:C74EDF6B86403FD40D53264D67EB55B581A7C769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Dissection - The Somberlain (1993) Reissue, Remastered, 2006, 2CD [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:823E8CD970544CF6CEDABE108F18596474DE7E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7F6764CA090D9B24DDA7B9C11E1ECBDFF1F004A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Count Basie - Basie's Beat (1965, 1967) 2020, Universal [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:41E068A76641E803465D691CF9B5C9512D9770AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Indust
 ```bash
 magnet:?xt=urn:btih:63900F0EBC0D757853018D0D1B0344D6106E629F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4EC4A5F33D8E890A94E5179E81F55715EDCB4B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:641CCC354C7376342C2304E7931BAA350FBB3280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Herb Ellis - Man With The Guitar (1965) 2021, Universal [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:56E0B894D1C1390E3C69126A06B5888799896435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Skiltron - Bruadarach (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Celtic 
 ```bash
 magnet:?xt=urn:btih:C6B6C00C596AA8A14756C95CEC4607E45EC28862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Flames Of Fire - Our Blessed Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 ```bash
 magnet:?xt=urn:btih:A9AF360851A8A46412ABFAD9B0868C8924E04D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF280E06CB2501C741CFFF044E877C1AC324DE60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ LikArt - Мессия в MP3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Ro
 ```bash
 magnet:?xt=urn:btih:C0ACCBAC7E974D26D88ADEEAD02ADA4AEA11C8CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Dissection - Storm of the Light's Bane (1995) Reissue, Remastered, 2006, 2CD [FL
 ```bash
 magnet:?xt=urn:btih:A48919F59E2AE79E973BFF39E8FB14EF2621304E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Orphaned Land - A Heaven You May Create - Live @ Heichal HaTarbut, Tel Aviv 2021
 ```bash
 magnet:?xt=urn:btih:B0449DF1A2CD7038F88BF46C3A9E32A22212EDEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Ro
 ```bash
 magnet:?xt=urn:btih:3FCE8DF1BB36F62D15493A5F080BD80CDD4A3599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7EADA39B9A7269B83F865A6EFEBB49748F5C864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mo
 ```bash
 magnet:?xt=urn:btih:68EDFEFC237633B232D500A078E1B98D401A1AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ The Moody Blues - Long Distance Voyager (1981) Reissue, 2008, Decca [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:ED12597213EB4C59707915E3EC9FEB44B3EE1448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59E9CE838B571D79A6D1227A9A05AB8E73F818F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ GoodTask — это элегантная и мощная «напоминалк�
 ```bash
 magnet:?xt=urn:btih:6384B242B5347C105BC18C8BC496E1B7B5D8A796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25EC1E022B67F76A3D078159DFE7FBA3B08225DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:250D3969300B3E0745C3834BE97F5DA8378935A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ Disk Space Saver - это анализатор дискового простра
 ```bash
 magnet:?xt=urn:btih:8E4DA12B76EFC8B6D218067C78B0767FE03106AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

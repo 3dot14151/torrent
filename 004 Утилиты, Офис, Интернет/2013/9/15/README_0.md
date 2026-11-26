@@ -21,8 +21,7 @@ PirateBrowser - браузер, позволяющий обойти запрет
 ```bash
 magnet:?xt=urn:btih:596F9467647D7B06A1DE786E30A4623A4957B38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

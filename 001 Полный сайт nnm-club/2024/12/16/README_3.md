@@ -21,8 +21,7 @@ VA - Шансон премьера 2024 декабрь (Новые песни. �
 ```bash
 magnet:?xt=urn:btih:3E724E6E9E0E1432F7E035FA2753D2F958395C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Любимые песни года (2024-2025) (2024) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:8D855307C1BDDAC0D02ECDDC70F047054CAE44F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Enya - And Winter Came... (2008) [FLAC|Lossless|WEB-DL|tracks] <Celtic New Age>
 ```bash
 magnet:?xt=urn:btih:CDF992A38D6CE714A62F16A8C0FC21A7AA1E9861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45811670DE309B7F67774A3706B75D9F32141992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Rogue Citadel (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AF9D7739FC7163B1298D2A6BD52382B645B321F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:793E06D0C1BAEEAB49DF25C0E3F8F6392B9201DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

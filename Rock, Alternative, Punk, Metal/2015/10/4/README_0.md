@@ -22,8 +22,7 @@ Heart Of A Coward - Deliverance (2015) [FLAC|tracks|WEB-DL]<Progressive Metalcor
 ```bash
 magnet:?xt=urn:btih:92400E3E07D5D0F0BE6DB0F64302C941EBF2505F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Heart Of A Coward - Deliverance (2015) [MP3|320 кб/с]<Progressive Metalcore, 
 ```bash
 magnet:?xt=urn:btih:3FF54C03AB682BE53359C1725BED20CADC579DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Trivium - Silence In The Snow (2015) Special Edition [FLAC|tracks|WEB-DL]<New Wa
 ```bash
 magnet:?xt=urn:btih:F0771EF53403E8C991E16BB69DE5D878E495477C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stam1na - 6 альбомов (2005 - 2014) Дискография [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:3763830A93891EF14EC894B838ABABF15D70D1DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Chris Norman - Crossover (2015) [FLAC|image+.cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:B47B0A7BAAFCFD49B0DDB31A8D0244115F7019C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tarja Turunen - Ave Maria - En Plein Air (2015) [FLAC|image+.cue]<Neo-Classical,
 ```bash
 magnet:?xt=urn:btih:3B8CF00BC120A93872CB654645A10EAECF81104F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Accept - Heavy Ballads (2015) 2CD|bootleg [FLAC|tracks]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:526603265CBE71676BE80DDB1101407876CDFD57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0942F4059BDD883953E4C05E8F394543446301AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

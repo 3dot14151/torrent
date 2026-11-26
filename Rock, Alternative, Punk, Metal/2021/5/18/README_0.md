@@ -22,8 +22,7 @@ Mustasch - A Final Warning (2021) EP [FLAC|Lossless|image + .cue] <Stoner Metal,
 ```bash
 magnet:?xt=urn:btih:93294E473D8E6BAA610539E40728992E4AE695E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Party Boys - She's A Mystery: Greatest Hits (2021) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:53B9F5C18FA50E1920891A1DDD711775D49E27AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ancient Dome - OWT ...And Still We Are! (2015) [FLAC|Lossless|image + .cue] <Pow
 ```bash
 magnet:?xt=urn:btih:B8BCB3C3D20E83C3A4DB6481935D0D0A4E172102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ancient Dome - The Void Unending (2017) [FLAC|Lossless|image + .cue] <Power Meta
 ```bash
 magnet:?xt=urn:btih:F249BCC8730CAE12ECF8E598EE3EC802053934DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC57315735BADD47CE8BADCF42095F5DCAD75BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

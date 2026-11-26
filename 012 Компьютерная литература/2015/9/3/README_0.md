@@ -19,8 +19,7 @@ Bruce Eckel / Брюс Эккель | Thinking in Java (4th Edition) / Мышл�
 ```bash
 magnet:?xt=urn:btih:A841C55D5F2081E8E91681C929BAFEAF0D7B1714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

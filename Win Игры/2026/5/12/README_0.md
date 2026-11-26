@@ -19,8 +19,7 @@ Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack HardwareMining [Complete Edit
 ```bash
 magnet:?xt=urn:btih:7583D090BDA31164B919FD81254C93734E4F2DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Red Dead Redemption 2 – приключенческий шутер от тре�
 ```bash
 magnet:?xt=urn:btih:25A86C56DDB9C6DF787FF37A3F81DA2844C2A405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Repack Let'sРlay [Digital
 ```bash
 magnet:?xt=urn:btih:65CBF9B9DB6D176718087729D06ABF32EBD9BF74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Scene Rune [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:E8D6CCCEB89E1357863EDFDE631A9FBECA93CEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

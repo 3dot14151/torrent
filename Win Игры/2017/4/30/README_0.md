@@ -19,8 +19,7 @@ Armello сочетает три стиля игры: карточную такт
 ```bash
 magnet:?xt=urn:btih:B37B22F82DFB9085DA5F3C3D367C37F9111226EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Army General - пошаговая стратегия, посвященная с�
 ```bash
 magnet:?xt=urn:btih:BE8E21E06A4F1D105EC763D398D3EF1D7D1CBCD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

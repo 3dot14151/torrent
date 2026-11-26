@@ -19,8 +19,7 @@ Cry of War — игра, посвященная танковым баталия�
 ```bash
 magnet:?xt=urn:btih:421D845CFC06A93B572AADD46C8A8A6C3A5434DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Cookie - Программа для полного удаления cookie-фай
 ```bash
 magnet:?xt=urn:btih:1C579EA483EF06163A71D07265B9020F495F4493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Airmail, популярный почтовый клиент для Mac от ко
 ```bash
 magnet:?xt=urn:btih:E257DB52BA4C4A5B733F432E6BE502340777E73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Doug Raney & Thorgeir Stubo - Everything We Love (1983) 1998, Prevue [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:F532D71F509497D09DC7C12F2FDBB89290EC7410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ SuperDuper! - Утилита для клонирования жесткого д
 ```bash
 magnet:?xt=urn:btih:B1B02EC71310C965BC6675E05A1A38141A34F30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Jimmy Raney & Doug Raney - Duets (1979) 1986, SteepleChase [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:F17240A255A049CEC9E7B5D0A35E91D87264F002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Sip Pro 1.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:E3075F3B0EF802FC8CA91AE1E86596289032FD25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Tidy Up - приложение предназначено для поиска д
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Downcast – программа для загрузки и прослушива�
 ```bash
 magnet:?xt=urn:btih:108E14DC4B10A66D18EB368A0759784A4FEC412C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2531D6CC5F6B2C1596295372A64CFE0B5D79BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ UctoX - это мощное приложение для выставления �
 ```bash
 magnet:?xt=urn:btih:88C748A1A98191B4FEB73217F7445096EA93297F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Steven Solveig, Ingo Herrmann - Steven Solveig Meets Ingo Herrmann (2018) [MP3|3
 ```bash
 magnet:?xt=urn:btih:2627D057A1E9A2387070E3E6AF5F584A28FE9E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ VA - Big Room Bass Vol.5 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:582455343FEC662789238C45BF8A5AFD830577DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ VA - Lost In Trance (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:1E2B3527E72742068322286D64AE831D25E0CFE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ iA Writer 5 v5.1.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:7C1143A85AE57678016F52C1ACB81D12FD2E2165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ VA - Hidden Places: Chillout & Ambient 9 (2018) [MP3|320 Kbps] <Downtempo, Chill
 ```bash
 magnet:?xt=urn:btih:D24DB5C3AFEE9D645BD62E255B4952CFB56F3FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Markus Schulz:
 ```bash
 magnet:?xt=urn:btih:6BF2E7D555859C33804C3FE16D7D8F22402889E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Tri-BACKUP Pro 9 v9.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:B4C0ED7A9CF92D034E7F2E07E71C6F34011A0AA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ MX5 развивает заложенную предшественником к�
 ```bash
 magnet:?xt=urn:btih:06A8424309F2B1D19E99595884DF03D6971CFBD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ YouTube Downloader - Удобная программа-загрузчик для
 ```bash
 magnet:?xt=urn:btih:56B6264626B96DE04621BB2C250E32DC5673B8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ PDF-компрессор предназначен для сокращения р
 ```bash
 magnet:?xt=urn:btih:84264C6DBDE6715AE9BCEE2DEA04ACD8466D82CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ VA - Best Resort Chill Playlist (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ Tim Hecker - Konoyo (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ VA - 10 Years Of Enhanced 2008-2018 (2018) [MP3|320 Kbps] <Trance,Progressive Ho
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C2000674BE8C799BFF8D18ABB2A865C3DFB2540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

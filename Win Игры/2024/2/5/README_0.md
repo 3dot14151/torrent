@@ -19,8 +19,7 @@ The Last Worker является атмосферным проектом, пре
 ```bash
 magnet:?xt=urn:btih:76C227427BC05B52D8EBB3C244068D69984252F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 ```bash
 magnet:?xt=urn:btih:B82CC83B6BC524EF2AF203DF70129B51D1B0C4CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

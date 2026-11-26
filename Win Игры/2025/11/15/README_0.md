@@ -19,8 +19,7 @@ STAR WARS: Squadrons (2020) [Ru/Multi] (1.0.10.39591) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:5397E1539BE547FBAB3EB932725C45A3963ACB70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Supermarket Simulator (2025) [Ru/Multi] (1.1.7) Repack Necros
 ```bash
 magnet:?xt=urn:btih:860BFBD080EA2DA6BC536ABD471E70D1B9B9F579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Zoochosis - это бодикам хоррор-симулятор. Ты - ноч
 ```bash
 magnet:?xt=urn:btih:F3514D5A5402733C62182F01E9FFB18A80B00135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lady Mabel Mysteries: Death on Board / Тайны леди Мейбл: Смер�
 ```bash
 magnet:?xt=urn:btih:8B98FC9BFBCED7D4A7CB53D4E7EECDF323443F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Edge of Reality 10: Island of Shadows / Край реальности 10: Ост
 ```bash
 magnet:?xt=urn:btih:6F6D767E11F49609E2AF84DFCD2AEDD469617D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Creator (2025) [Ru/Multi] (0.1.05.1028.88888888/dlc) Repack FitGirl [Support
 ```bash
 magnet:?xt=urn:btih:643C82F32FE389C6B6A55CE9B9196BF689AFDA74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Shenmue III (3) (2020) [Multi] (1.06.01/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F15158197A6AEE2017080CF1E41E4AB6A6BB6E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Escape Simulator 2 - это продолжение самого продавае
 ```bash
 magnet:?xt=urn:btih:7B1BAE11E0E6D82C8AFDD416853B9B20AC599AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Last Starship - это двухмерный симулятор космич�
 ```bash
 magnet:?xt=urn:btih:491C3C00F805E0090A3C9E8AC610E4DF54328ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ DE-EXIT - Eternal Matters - приключение, в котором предс
 ```bash
 magnet:?xt=urn:btih:271A8611309A88E104F522884DD5F4DF55FC267D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Dark Moon – стратегическая игра о выживании, гд�
 ```bash
 magnet:?xt=urn:btih:C15238EB34D4B047582433BFB5CED3D5EE9B1B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46561/dlc) Repack Dece
 ```bash
 magnet:?xt=urn:btih:78EEF020742F967F36A4B61558115FD699A6CA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Full Metal Schoolgirl (2025) [Multi] (1.01/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8CF4BACC64F68D378485D7A88C31330532B89518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Lumo, волшебный платформер повышенной степен�
 ```bash
 magnet:?xt=urn:btih:9EB6B44363DBB0C7F831703C04E068EBB99C8D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Bridge Constructor Playground предлагает людям всех возр�
 ```bash
 magnet:?xt=urn:btih:9D36F06815C21A50B38F67579C99B1863EA9DB5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Bridge Constructor Medieval / Bridge Constructor: Средневековье (20
 ```bash
 magnet:?xt=urn:btih:B4C261C6B0A7A0E20EEAE38F1B1F530895F0215E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ The Stillness of the Wind (2019) [Ru/Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B7824570115AECAA95523B9DA6BC81CF48CB5A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ CRABS MUST DIE! - шутер в открытом мире с RPG-замашка�
 ```bash
 magnet:?xt=urn:btih:9D872ADF206C402B7FBB1B087E9053824D58C2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Total War: Three Kingdoms - эта игра из популярнейшей ст
 ```bash
 magnet:?xt=urn:btih:2D6222CC7AAE3126B7C300681E9F1259495F562E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.3.1.628/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:BAE75880D1BC7525B139C86D9462F31C1B5DE0F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Tales of Xillia Remastered (2025) [Ru/Multi] (1.0.2/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1537DC3E0532CBA43BF9E018447E090E47F18199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ Tales of Xillia Remastered (2025) [Ru/Multi] (1.0.2/dlc) Repack FitGirl [Deluxe 
 ```bash
 magnet:?xt=urn:btih:4283415E5B0E7B01B66198D47C9ABDC03B1F6A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

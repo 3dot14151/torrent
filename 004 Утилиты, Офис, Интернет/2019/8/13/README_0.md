@@ -19,8 +19,7 @@ TuneFab Screen Recorder - это программа, с помощью кото�
 ```bash
 magnet:?xt=urn:btih:577D6694123874B45A91BA1E72007F010101B40C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark Tales 5: Edgar Allan Poe's The Masque of the Red Death Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:7F9BB317A83D6A0C99B7DCF1715B6EA1495A0DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enigma Agency: The Case of Shadows Collector's Edition / Агентство Эн
 ```bash
 magnet:?xt=urn:btih:9306FB38BEED8F062E79E30472BD6853BA0A399E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Star Trek (2013) [Ru/En] (1.0/DLC) RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C84F2E1839BB1218E2110D985382AD1B2C448689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

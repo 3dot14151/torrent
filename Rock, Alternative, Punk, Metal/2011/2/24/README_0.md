@@ -28,8 +28,7 @@ The Black Angels - Phosphene Dream (2010) [FLAC|Lossless]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:E32268C8C84731A44489B3C8325D35C0F295E3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

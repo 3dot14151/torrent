@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E48F70FA98FF27C8FAAE0142E1642DC3D255AB6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7F01EA8A0D5F96531CA31EB5E678383EAFA2C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Trackmania Turbo – новая часть в серии аркадных гон
 ```bash
 magnet:?xt=urn:btih:DFAC86850B727C3698D8D330E450614A93771C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ WinPE 10 Sergei Strelec (x86/x64) 2016.03.25 [Ru]
 ```bash
 magnet:?xt=urn:btih:43BF6BA8BE9C49C82708DB6D288B4C92C76145BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VA - Дискотека 2016 Dance Club Vol.150 от NNNB (2016) [MP3|192-320 к
 ```bash
 magnet:?xt=urn:btih:245981881C9D2467F2AC6ECD8EA645A582D97179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Tom Clancy's Splinter Cell Blacklist (2013) [Ru/En] (1.03/upd3/dlc) Repack =nemo
 ```bash
 magnet:?xt=urn:btih:FE0D6D3D7AF4B8681A06E1123109DF7D66334A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CC096DA9F638C35552864EBD3A817D2B06C3953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ WPI 2016.3 by Software2013 [Ru]
 ```bash
 magnet:?xt=urn:btih:909B40B911775FF8BA74F4D82B67B73F178D347A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DEE0D68A4E2F65E483C0E247B41D73841E01869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ ru_windows_xp_professional_with_service_pack_3_x86_cd_vl_x14-74146
 ```bash
 magnet:?xt=urn:btih:EB2BE918A0E2226F92DE111F2D78A77A4265C66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:286E12999337621A18D008CFFFA621AFB1DB55E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

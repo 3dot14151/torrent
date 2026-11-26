@@ -19,8 +19,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack SpaceX [Bear 
 ```bash
 magnet:?xt=urn:btih:3323E3C6F0786E2ECBC36865390097F397F80832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) Repack SpaceX
 ```bash
 magnet:?xt=urn:btih:47C67644ECAA1FBEB9F6B91DC7209640A4AA07C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.0.1.1) Repack SpaceX
 ```bash
 magnet:?xt=urn:btih:8914F798046D5FA0B69EE81CF3483E2293FD1F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Spacebase Startopia — это необычная и захватывающая 
 ```bash
 magnet:?xt=urn:btih:CC32725B519351970A26EDC03D7082A4E4275EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

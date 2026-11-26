@@ -19,8 +19,7 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 ```bash
 magnet:?xt=urn:btih:B3114F34782C532FF6EBA6AF2CB2E20B97557973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Sixpence None the Richer + Leigh Nash + Fauxliage - Дискография (20 C
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Red Hot Chili Peppers - Дискография [1984-2006] (Japan 2006) [FLAC (i
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Perfect Dark — японский пиринговый файлообменны�
 ```bash
 magnet:?xt=urn:btih:06F2437CC890C68E7E80D3712404BFDDF120B0C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

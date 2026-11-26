@@ -19,8 +19,7 @@ Escape from Monkey Island (2000) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:13164B904866496EF2DA0179BEBD35769AC40D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

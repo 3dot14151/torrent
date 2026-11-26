@@ -19,8 +19,7 @@ Verho Curse of Faces - мрачный мир, скованный смертел�
 ```bash
 magnet:?xt=urn:btih:D290B1CFF2BCC9BA3598DC553462B745D2B83A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FE20A90E2547028091D1DEBA5E74AE5C705BCD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Majogami (2025) [Multi] (20659537) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AEC4AF2063B228157E850ED7246FA7FA7E7D5E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Bench (2025) [Ru/Multi] (1.0.107) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:12CB9A5D463A6BF21CA20143254270883E2A8525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8A09A443B7495088987D8F867255A7C84D715200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Liuyin's World (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4DE213C4DDA65F538E0931440CE9B660041EFA73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Schiller - Zeitreise (Das Beste von Schiller) (2016) [MP3|320 Kbps] <Ambient, Do
 ```bash
 magnet:?xt=urn:btih:34D3F341D03AD37E9D45163F3C2BDEA6AAEE532A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C352862352C1298353FF3DB76071F4C374B1D31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90BA0F0EDEC997A737544A2083978E64193D6315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Ashampoo Snap 9 - это идеальное решение для снятия �
 ```bash
 magnet:?xt=urn:btih:FE9CC0391E595A505CBA6500B86106B8A2913C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Haunted Hotel 10: The X Collector's Edition / Проклятый отель 10. 
 ```bash
 magnet:?xt=urn:btih:191094EC0348A22FB282EDCB1DFB4EFAEB2204DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Scrivener сочетает в себе возможности текстовог
 ```bash
 magnet:?xt=urn:btih:0AE9230EE75D180BA2EE1C2E25F3FC71C1BB5370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F03EFB89C9670C9F43FC06EDDB4AA485C7522A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94C8F3B2F4169148EAFCFD0071530E4F94B44D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB80E9B5DDE06B25A0F5F8497AF8866CB7E13ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Winter Slideshow - это проект для слайд-шоу, который 
 ```bash
 magnet:?xt=urn:btih:54AEA4DACBC5D32F49C76C300BE09850766B1E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E3EF9C4F82123D4A360D5969EF00FE258139CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Christmas Card - Самый простой способ поздравить с�
 ```bash
 magnet:?xt=urn:btih:FEA8B131900B69E5F6CF608D83F5B362D6C1F6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09E2BF5E5EA3B8EB9AA2688153939045EEE49521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Phantasmat 5: Behind the Mask / Фантазмат 5: Под маской (2015)
 ```bash
 magnet:?xt=urn:btih:BF59A7D00D2C48A8AE35214750A8098AA5FDA2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72DB09728C5770EC5D1CA189CF7C6BABBC252FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ Ice Skating Santa - Санта Клаус хочет пожелать всем �
 ```bash
 magnet:?xt=urn:btih:4C1FAD5B6F97800F813BCC465CCD826BC1109B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28CDEFF962ECE2C8550F2EDD2D34350579A222CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (1.2.2.57.4328/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:A39149119A678D7BE69DA14176B96AA9A2CA6FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ Stone texture background - 30 UHQ - натуральные высококаче�
 ```bash
 magnet:?xt=urn:btih:3CF8420A02D808E4D21857A0BE2C4751E2BCB13B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ Merry Christmas Slideshow - яркое, ослепительное Нового�
 ```bash
 magnet:?xt=urn:btih:F4530DEC4C9D9281A5B9940E09C604811EDD385A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEE801DDF10EDD197B56D669BEB67FAF93EA82D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E76059D139E4C154CC153FBAEC21DC3B21D6BF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ Ruth Gairns, Stuard Redman / Рут Гарнс, Стюард Рэдман | Oxfo
 ```bash
 magnet:?xt=urn:btih:2D77104AC9CF9C6E9C11EB34E65368D930CF4026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ Micopi не использует генератор случайных чисе�
 ```bash
 magnet:?xt=urn:btih:62C9E81A0403B07E4D99FE4D4AA37BD69F050F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5EAF3DF56914370BD220535F8E333BF10EEB6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

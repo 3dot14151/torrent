@@ -20,8 +20,7 @@ Battlezone 2: Combat Commander - продолжение культовой RTS/F
 ```bash
 magnet:?xt=urn:btih:E1E10B8CC0CB37C5DAC0DDAE0F2B3C8B620AEE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

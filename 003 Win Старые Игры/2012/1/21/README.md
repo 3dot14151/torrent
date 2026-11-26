@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5706598F2F0B95E47351F0AA906067771AB4652E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call of Cthulhu: Shadow of the Comet [En] (RePack) 1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:3393E73F44C615CDEA7C557EE10102FFCA315A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6715C9F992CBF6388F5DD4EC981C94530E431739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fahrenheit / Indigo Prophecy / Фаренгейт [Ru] (RePack) 2006 | R.G. Shif
 ```bash
 magnet:?xt=urn:btih:F9FB144DC2EE4278498B39D59BB95790E90EAD10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Prehistoric Антология [En] (RePack) 1991-1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:C90C6F0568E7B2F4309F7A97DCCA38F06D297E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Spy Fox Антология [Ru] (RePack) 1997-2001 | Pilotus
 ```bash
 magnet:?xt=urn:btih:DC0C0242B0ADF5939CDD876655128AA19896A2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

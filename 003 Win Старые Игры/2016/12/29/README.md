@@ -19,8 +19,7 @@ Star Wars: Jedi Knight: Mysteries of the Sith — самостоятельно �
 ```bash
 magnet:?xt=urn:btih:E1D5070529229275A3E4A55110B70061D97B6160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Wars: Jedi Knight - Dark Forces II (1997) [En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:8C5A8D26887C6035DE00925F01E6BF2119E4E2E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

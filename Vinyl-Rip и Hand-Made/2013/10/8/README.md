@@ -22,8 +22,7 @@ Das Duell Und Der Tod Tybalts (Romeo Beschliet, Mercutios Tod Zu Rachen) - Final
 ```bash
 magnet:?xt=urn:btih:BE5A6FB86C5870DDFD5B8BD06CA43BF65D2AC474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ B4.  I Like You In Velvet  :: 05:17Жанр: Modern Classical, Downtempo, Euro H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

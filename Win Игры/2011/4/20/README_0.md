@@ -19,8 +19,7 @@ Agatha Christie: Peril at End House (P) [En] 2007
 ```bash
 magnet:?xt=urn:btih:723F5B6698275ECEE5A2690F2C1A47CF52054CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shiver: Vanishing Hitchhiker / Дрожь. Призрачный попутчик
 ```bash
 magnet:?xt=urn:btih:472AFA50EBFC3453BC8A17616677229C9937EE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

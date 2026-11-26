@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9668D11B639ACDF9A87A3B50AE056068B2034EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87474870A895FF60B7C90779A360CA58CDB624A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ WebForMySelf | HTML5 и CSS3  с нуля до профи (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:143D13949898F172B743BD7D4B67273F149E0AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Red Alert 2: REBORN (2016) [Ru/En] (1.001/2.2) Repack/Mod Gluk-v48
 ```bash
 magnet:?xt=urn:btih:732854B8861BAE6A85FE27455F4B342E4D437910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ The Elder Scrolls V: Skyrim Reloaded 2016 4k nextgen (2013-2016) [Ru] (1.9.32.0.
 ```bash
 magnet:?xt=urn:btih:AD22187D6D47112705274D5F0D2C6BA791A9E8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

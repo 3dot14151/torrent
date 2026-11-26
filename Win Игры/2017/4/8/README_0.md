@@ -19,8 +19,7 @@ Headlander (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8F5892168DA5041E14B872140BBAF5602F753CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Battlezone 98 Redux (2016) [Ru/Multi] (2.2.301/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:BF5683A246AAABB275F3FF89487E32FA55B09C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blackwood Crossing - это сюжетная приключенческая иг
 ```bash
 magnet:?xt=urn:btih:ADB4DF6CEB85AD55AF4E8656E9480CA36A1F09AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Herald: An Interactive Period Drama – приключение в альтерн
 ```bash
 magnet:?xt=urn:btih:16B38227AFBE793C6C796B97657AFD40623DE47D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

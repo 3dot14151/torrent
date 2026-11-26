@@ -20,8 +20,7 @@ Mailspring является (   Читать дальше...   )Язык инт
 ```bash
 magnet:?xt=urn:btih:33E798F23C666D76D89BB4E8B1F104F4B7FC7C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ O&O DiskRecovery Pro, Admin, Tech Edition 14.1 build 145 [En]
 ```bash
 magnet:?xt=urn:btih:62DB326E38A7B62A6378D670F9DE6DF5E78B5A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

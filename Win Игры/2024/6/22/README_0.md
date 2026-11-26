@@ -19,8 +19,7 @@ TY the Tasmanian Tiger 4 - экшен от третьего лица, в цен�
 ```bash
 magnet:?xt=urn:btih:D71246E97F90B77D7FFEBDC2C6EEA4DBF0732131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Siralim Ultimate - пошаговая ролевая игра, позволяю�
 ```bash
 magnet:?xt=urn:btih:00BCAD407B8D0512D40F2CC18D848F008A1B2FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.02) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:D262F3539D81996357093C98ECB16ED2A0B7756E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Arena Renovation (2023) [Ru/Multi] (1.0.164) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7B9E72E0E01E7458D46E0BA5924484E51CA47BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Nucleares может заинтересовать любителей ориги�
 ```bash
 magnet:?xt=urn:btih:30377AFFA4169CB3951B92832A6E2D804A1801FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.15.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3B42FEB64EB3FDB062DF8B5A04754CB5A5286D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.9.1@143028/dlc) Scene FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:691ADDD542FBFFD435AC57EDC6009FD993DEB10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.2) Scene FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:026DD1905B309D5D928B247A300986AA310F8408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Vanity Fair: The Pursuit / Игра славы и богатства (2024) [Ru/
 ```bash
 magnet:?xt=urn:btih:C130CCAA50848053E62B8A1C7D25F4990135226D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Baten Kaitos: Eternal Wings and the Lost Ocean и Baten Kaitos Origins тепе�
 ```bash
 magnet:?xt=urn:btih:B7442F6B6477296502517E352F1B6825AEB1BFE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Scene Doge [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:9360AB6F970A9B13502E67F0C6C4911504D0E479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Fossilfuel 2 забрасывает игроков в затопленный и�
 ```bash
 magnet:?xt=urn:btih:F94C5F4A91CE5E4C5219974CEE6A0691BE7EB4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.21.67207.27/dlc) Scene Doge
 ```bash
 magnet:?xt=urn:btih:FFA8EB06251AE5AAA9DEBAAA7DD292F32F8833C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ JoJo's Bizarre Adventure: All-Star Battle R (2022) [Multi] (2.3.3/dlc) Scene Ten
 ```bash
 magnet:?xt=urn:btih:C6557C386DCA73FD29CCF27B9950504AD02FD7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Repack dixen18 [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:7424A7ED90FA577C68C7DA40BD1F04D1B88733E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

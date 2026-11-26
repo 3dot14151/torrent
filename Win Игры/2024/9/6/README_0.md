@@ -19,8 +19,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (Build 15521170/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:0D4164CB5C4345190DFF732BCA8664E7F9723868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil 3 - полностью обновленный ремейк хор�
 ```bash
 magnet:?xt=urn:btih:9754CBDF17315A4ADA594E305C0EE412338A7941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:60446AEF1DA4D641788CF00AFCFA0EE7C343A548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1648/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:729D8D783F673A69497FC33B23300C09E6187787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Motel Manager Simulator предлагает игрокам встать на м
 ```bash
 magnet:?xt=urn:btih:CDAF6E5EE495762CBD5C935DE7819FEC670E2302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

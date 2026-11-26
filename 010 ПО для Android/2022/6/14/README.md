@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:A4E0109B9B4EF476735E42290353797869813F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Voice Translator. Translate v1.5.7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:954C3DE88682E569779AFC51EB99A2BBB1ADBC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

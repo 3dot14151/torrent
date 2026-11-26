@@ -19,8 +19,7 @@ The Alien Cube — это приключенческий хоррор в сти�
 ```bash
 magnet:?xt=urn:btih:9CF3F221B056D21A00406739B60DB108E380DBB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

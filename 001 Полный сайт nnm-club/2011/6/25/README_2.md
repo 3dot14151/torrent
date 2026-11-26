@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C6830E5EEC507CE6F99296C58D4A86E9EF78E834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ The Fall Trilogy: Chapter 3 - Revelation (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D93ABCBB866F25745ACC4F399704CDB313BF4D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Discovery: Разрушители легенд / MythBusters. Коварные �
 ```bash
 magnet:?xt=urn:btih:46395C2B405FA1C09BCAEA97144CDE82D965EAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C2A0256E1DED5D692EEC4959845BAAEBD25EA6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Mystery Valley: Extended Edition / Тайна долины: Расширенно
 ```bash
 magnet:?xt=urn:btih:3F9797FC43EE57099F3D5F16D7DBCB9B5A1D6F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BDC9E486F5BCEDDA746E54ECA8A27535999014B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ VA - XXXL Союз Зарубежный (2011) [MP3|224 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C52F1922C498769AF0B5AE2E7387A8E62E070F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ George Duke - Original Album Classics[5CD Box Set] (2010) [FLAC|Lossless]<Jazz F
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ VA - Танцевальная Жара От Recordа 50/50 Новиночки Н
 ```bash
 magnet:?xt=urn:btih:29912B2BC7490A8D27B5EA3E567F78B5BC60C2DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0B433E55C98ED780CB7463D49F10E3DE937795F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Discovery: Разрушители легенд / MythBusters. Голубой л�
 ```bash
 magnet:?xt=urn:btih:A9CB44640A99CAF77FDB7824B62E133AE1A24F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8590AA2B109CF0FA8D3E3B83494A1B69194BF7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57277E5EA13F451A94B0FDE86692EDBA2E6B8AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Boкpyг pыщyт пoдoзpитeльныe люди, и нaвepнякa тpeтий
 ```bash
 magnet:?xt=urn:btih:A9EFCECC34BA377761149934D9FDA03BC425A6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ OST-Древо жизни / The Tree of Life(Unofficial) (2011) [MP3|320 kbps]<O
 ```bash
 magnet:?xt=urn:btih:F76E4771E959015AD30976411C86DC3E11547A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56A5B527B2019724CF6712AA308D3E4E4F763AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ Discovery: Разрушители легенд / MythBusters. Уклонитьс
 ```bash
 magnet:?xt=urn:btih:113BA6D42FA04F155A7A1BD6D4262E70742773DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Linkin Park - Live 2004-08-03 Camden, NJ (2004) HDTVRip
 ```bash
 magnet:?xt=urn:btih:C39F5B0F886D533778D4F0282355A2BFD2D06DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B54C7BB9BA2E2CFE6ED937661778B5BC73C99A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01C66CFBF100B09AC187D7A57F16A5EE65FBA874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DA167BCBA8D23962A2582A040CD246F8AF2E01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:294B2EE3316C3D244D1D49FD3A8A9F60FE29F032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38EAE3E648BC968C2E89EF55BCADD2A020FB4BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ Hughes de Courson - 5 albums (1995-2005) [mp3|224-320 kbps] <Classical Crossover
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Real Crimes: Jack the Ripper / Тайны Джека Потрошителя (P) 
 ```bash
 magnet:?xt=urn:btih:D973497B3ACE132AC479AA8D5F55925B37EA26FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE52AC80696386EEB913F87FD75CA5187404623F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Aquascapes Collector's Edition / Акваландия. Коллекционно�
 ```bash
 magnet:?xt=urn:btih:161D5378CA506D8D8B51B9D29AA73A7040FA522D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Weather Lord 2: Hidden Realm / Повелитель погоды 2: Затеря
 ```bash
 magnet:?xt=urn:btih:C8F08A889CF3F6AB423B3671D41DC3C9F72F2BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Wargame: European Escalation / Wargame: Европа в огне (2012) [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:AA0495D585B82E15C75A0314F5AB756E3CAAEB8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

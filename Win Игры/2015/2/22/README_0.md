@@ -21,8 +21,7 @@ Death Skid Marks - брутальная инди-аркада с элемент�
 ```bash
 magnet:?xt=urn:btih:405DAB0EB884B36F14362E0FC782E0E44E21DA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Blacklight: Retribution - бесплатный шутер от первого л
 ```bash
 magnet:?xt=urn:btih:16A2722CEE0FB902DBCFD8511C5457AAFABBDF0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

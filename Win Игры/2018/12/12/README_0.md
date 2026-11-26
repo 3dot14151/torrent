@@ -19,8 +19,7 @@ Spirits of Mystery 12: Whisper of the Past / Тайны духов 12: Шёпо�
 ```bash
 magnet:?xt=urn:btih:A970A67032B9058877E2A1BBED5CC5D59399EED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WWE 2K19 (2018) [Multi] (1.03/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C4AF4A1958107955EAA8583DAAE3978D571B70E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

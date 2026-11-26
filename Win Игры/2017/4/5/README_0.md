@@ -19,8 +19,7 @@ Wave of Time / Волна времени (2017) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:AC34EACEFF7895850B3C1E0ABF8FCD346C04477A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.0.4) Crack
 ```bash
 magnet:?xt=urn:btih:10344B9B61A38D40A50AE31F030527F48F8AFB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

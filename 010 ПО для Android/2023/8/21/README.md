@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:79B6342E538977986FC9F4DEF03AE01AD1775857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Offline Maps / Офлайн карты для путешественников v
 ```bash
 magnet:?xt=urn:btih:6FD19DDA9EFAE98EF8E850D03CCA35798F2E8489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

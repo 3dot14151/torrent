@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:1DB22D470C8DF27A388D70F19FB770AF47F08ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ PhotoDirector v20.8.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CB167AE7E0D9231A9A4EE6D61AB78AC67F3518BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Web Video Caster® позволяет смотреть на вашем ТВ ви
 ```bash
 magnet:?xt=urn:btih:6854B903BAC53A64E3CC130E8054F76F6C23A00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ DNS Changer для Android — это первый уровень интерне
 ```bash
 magnet:?xt=urn:btih:FA5F2F36E58D279B46806E7545723F88045736AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Night clock / Ночные часы v2.11.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2B186E18F433C0642BE9EEE8CFC1DA9C2EB7EE43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Relax Rain: sleeping sounds v9.1.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4B48EE758B04FD12B81F5BDA8B95093268F9F9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ AI Photo Editor Pro - Polish v1.694.240 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:14915392D11670FCA12EE7153B3051A75FF404E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Daff Moon Phase (Фазы Луны) v3.51 Mod by shv7net [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C66E3AA485FC4CD901B30EB0FEEB7D4903BF61D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Auto Reply: автоответчик v6.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1ECE0DBDB9B39D053F413B57824815A47F672527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Pencil Photo Sketch - профессиональное приложение дл
 ```bash
 magnet:?xt=urn:btih:7981327F9F4713558C2C3292191BBB093FC4B4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Revo Uninstaller Mobile всегда старается предоставить
 ```bash
 magnet:?xt=urn:btih:1A4588C3E232CC47C271EFAF535C23BC3029A083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:107D55767B3A1B7023F9EC6AA5D1CBAD2CBFF95E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Gmail, Yahoo, Hotmail, FastMail, Apple, GMX, Outlook, AOL или Exchange - Aqua
 ```bash
 magnet:?xt=urn:btih:80FAFB8157FDA48B05654049F973C927429C0A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

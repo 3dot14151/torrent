@@ -19,8 +19,7 @@ Fairly Twisted Tales. The Price of A Rose / Весьма запутанная с
 ```bash
 magnet:?xt=urn:btih:161BAEEC9DB4A9B728EF0F3552747A3A2B8C701C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

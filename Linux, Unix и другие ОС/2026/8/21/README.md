@@ -19,8 +19,7 @@ GParted - бесплатная загрузочная программа для 
 ```bash
 magnet:?xt=urn:btih:F054BD1DFB572034B198B588F3BD0289C63147F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Elementary OS – дистрибутив Linux с открытым исходн�
 ```bash
 magnet:?xt=urn:btih:84CFD0DAFDA8E1CBCB393D32BF90FA53872DD641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

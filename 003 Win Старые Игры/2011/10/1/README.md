@@ -19,8 +19,7 @@ Alien Earth – классика жанра, действие которой р�
 ```bash
 magnet:?xt=urn:btih:52272C3E08FB5DB2D08AA493222FFCFB410906CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sam and Max: Hit the Road [Ru/En] (RePack) 1993-2002 | Pilotus
 ```bash
 magnet:?xt=urn:btih:BCD66CCCF8F9F178C2D5CBD464121E4742285BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ First person shooter, действие которого разворачивае
 ```bash
 magnet:?xt=urn:btih:15409DB727EE6C6DD9B775B305C0AD05583CA96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fate [Ru] (RePack) 2005 | Pilotus
 ```bash
 magnet:?xt=urn:btih:329E07293F722C01BE87074D7CD9D4C0277FD4EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7DAA3B793BF5E960670D0026799DC66C9EE5EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Odium / Горький-17: Запретная зона [Ru] (RePack) 1999 | Pilo
 ```bash
 magnet:?xt=urn:btih:87DB74E69C475C9310D4C36A27885F6617ECA632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

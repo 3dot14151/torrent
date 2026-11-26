@@ -22,8 +22,7 @@ Sounduk - Том третий (Наше время) (2013) [FLAC|image + .cue]<R
 ```bash
 magnet:?xt=urn:btih:3728EF9232619B9854DAE88EEE610736693BA552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

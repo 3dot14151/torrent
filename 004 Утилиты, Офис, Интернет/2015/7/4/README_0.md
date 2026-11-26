@@ -19,8 +19,7 @@ CloneApp 1.04.340 Portable [En]
 ```bash
 magnet:?xt=urn:btih:D2A1D025FA4391B4679F10C8F2B5E6835B1050B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Setup Factory 9.5.0.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F105E6F4FE15DBDCE7D61EB42E673BACDA7C45AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

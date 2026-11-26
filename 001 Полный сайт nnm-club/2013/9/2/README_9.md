@@ -22,8 +22,7 @@ Judd Madden - Glacial (2013) [MP3|320 кб/с]<Doom/Post/Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:63D649966904B7EE5843E85C60BF994914359532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6F7EAFB2D15A707ACB5B2E1E448B4FB750DFF25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ frinstream - Keep Moving On! (2013) [MP3|256 кб/с]<Alternative, Nu Metal>
 ```bash
 magnet:?xt=urn:btih:F44091859AC7AB15F22DFA224C0C1A6CED453C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - Miami Trance Anthems (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:6CE92966DC211E3C5508C2E5116A5917A4EE5847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Masterstroke - Apocalypse (2006) [FLAC|Lossless]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:34C471341BD4704802EB742C0AAE50DFB4A3D349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Deathstorm - As Death Awakes (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F70BABE46AB358943A58AE09F04B9CA103B9EE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6277162E94B55A91101B6E7A9B5E83256724F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE651DD913EA800781736AC122BD8CFD26BCE59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55237B8454594533FFD578319F9A82D17586DE2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ VA - Classy East (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:081699B024CF9980910D90378ED83A1388767201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ CD.1.
 ```bash
 magnet:?xt=urn:btih:E751DAEE8423EC29EC728271D8ACAAA6951B095C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:745F443E8D239963450E10135566B662D724A9EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ VA - Behind The Courtain (Erotik Lounge Songs) (2013) [MP3|320 кб/с]<Downtemp
 ```bash
 magnet:?xt=urn:btih:94AAE78F30593095F4ACC966D6428C473AEE7CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ Lisa Gerrard - Free 4-Track EP (2013) [MP3|320 кб/с]<Ambient, Neo-Classical>
 ```bash
 magnet:?xt=urn:btih:BC94993055422056FD51257391D7F30CCFDFF7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ Infernus Novas - 2 Альбома (2013) [MP3|320kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:3088AEAD2BF3392CBA1EE2A706B386AEED45D846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ VA - I Love Ibiza - Chillout (2013) [MP3|320 кб/с]<Lounge/Chillout>
 ```bash
 magnet:?xt=urn:btih:F6CB508536B1B5A65CA74C0EAE84D00F4299FE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C635CC3F0D20E417685A9C188C7EC7300732E36F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07BD108BBF5D516E8503677B357364DEDE8B1608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ VA - Logicuser Compilation 2013 (2013) [MP3|320 кб/с]<Downtempo, Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:C3418E65C5475021EF7855A368339157C1A9617E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ VA - Chill Out Mix. Emotional Melodies (2013) [MP3|320 кб/с]<Downtempo, Chill
 ```bash
 magnet:?xt=urn:btih:1BA4D666A57CB140DF6549FD107AFECC4164E8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E769E0D77B63A1150BB00D81F006C517251EB57A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D354ADE21D11D858DC182F62C55D736390E13FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ VA - Summer Waves Vol. 3 (2013) [MP3|320 кб/с]<House, Indie Dance, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:A10B9E72CEDF6F88E929800776D50A446FE6C66F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +712,7 @@ VA - Песня лета #2 (2013) [MP3|128 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:1B9E6DB711393868B43A4DDDB38474FC4747EA73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D57C51E77234B8C1536E76FBB3BD2C1DDF5E8AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +762,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0FA6A8CEC2944A32691C2D86AD72261F45A3EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

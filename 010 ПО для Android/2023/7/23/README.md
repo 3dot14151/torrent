@@ -19,8 +19,7 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:9D9558D03FDEADFE53A36C4B9DA148C9BD78DAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ X Icon Changer - отличный проект по персонализации
 ```bash
 magnet:?xt=urn:btih:ACD62D1E0E4CB4A8B5777A177FD8777C5D0F0C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dynamic Island - ещё один проект предлагающий поль�
 ```bash
 magnet:?xt=urn:btih:BBD50B965B83E7467FF86CEAD667D0EB996DEAA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0.3 
 ```bash
 magnet:?xt=urn:btih:7C8BC5633B903381E0D81EC4BA1503487FF75A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ HWiNFO - мощный информационный инструмент, кот�
 ```bash
 magnet:?xt=urn:btih:C9183320255429132DE038AEE131A33CF777E4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GPU Caps Viewer - информационная утилита, позволяю�
 ```bash
 magnet:?xt=urn:btih:F96075CB80C081CC3F6ACCBD42BF2CFDF036814B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Tenorshare 4DDiG 10.7.0.16 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0FD2A594C142CD8F10F23E63CBFF9F741EEF36EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ GPU Shark 2 является преемником GPU Shark 1. GPU Shark 2 - э�
 ```bash
 magnet:?xt=urn:btih:7F0E9A6E623BA83B9A55BECA335AE20901936EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:A9D3E249AC729391F21F58731F3EE3221ECE79A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:45B2D822D2AC9C620AEF435E611ED86E5D212D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Mullvad Browser основан на движке Firefox ESR. Содержит �
 ```bash
 magnet:?xt=urn:btih:24CBCAC1AF7E4BEEBC09F616865E92E893BEF66A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ R-Studio - основанная на новейшей уникальной те
 ```bash
 magnet:?xt=urn:btih:4E4EC754617A86300BDD4B446029E6602E975A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:288B3D5135799E50DABEC5825E5A333880AFDDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ PrivaZer – полезная утилита, которая поможет ва
 ```bash
 magnet:?xt=urn:btih:7A7A11AF8D1C48FDF056ACE0338C7BBF6D34B7AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:EF2CB07201A7C68773D49DAFA9934938F6F3757C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:79DFC9424B3D25853FE646484350724CBFF71309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:A25A1158E2E44856233DF693D6BF691B4C2F54AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Cisdem Duplicate Finder помогает находить дубликаты ф�
 ```bash
 magnet:?xt=urn:btih:FB05A650CD81A5C099836E018D9092DE0F6EB24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:83B46567421954B57648B8280668B68E6F82EDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:16DFA2F6106674A0CDC755DAE8ADD6E091EFA9C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ MediaHuman YouTube Downloader 3.9.18 (0103) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:5B603AAD2F8634BDCA1F460CD2EB7D7BF8B0AE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E84C01FCCAC05672654302F30CA1094C9624AC5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ OCCT 16.0.2 Portable [En]
 ```bash
 magnet:?xt=urn:btih:4AB9F7AEAF6785D4D8DFC0324657A3723A132A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:7E3810DEFE7C99744AC811D5032B32E4DFDB4A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

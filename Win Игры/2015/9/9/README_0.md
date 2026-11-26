@@ -19,8 +19,7 @@ Rack N Ruin - это классическая экшен-адвенчура с �
 ```bash
 magnet:?xt=urn:btih:11ED429AB09362BC1DB7348FD2E7ED5E8D73C08B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Onikira: Demon Killer - это аркадный двухмерный экшен,
 ```bash
 magnet:?xt=urn:btih:927081DC0D19ECF431C6B1AB6F12E0A42E88D996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Act of Aggression – стратегия в реальном времени, д�
 ```bash
 magnet:?xt=urn:btih:15E48D345C4C138E73FE3A3D447C4DF9D9E375E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Leo’s Fortune - это платформенная приключенческа
 ```bash
 magnet:?xt=urn:btih:C76E5B35B81ED86B59A5016753E1615C3183BEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

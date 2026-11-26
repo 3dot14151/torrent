@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:55455C3F763B630AAA94028BBE3A106A6A4B82BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FA657958EF83BDD4EB697E31564C3851C43F8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2220A452B17B5E797921BDB25453BACF2D29425E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E84FF813D92909EABD2FD1E4A3DC652824D8C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Autodesk MotionBuilder (ранее известный как Kaydara) — про
 ```bash
 magnet:?xt=urn:btih:EF4E0EDB3BFEE8E86B66EF9C2BAC7DFE60693FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Daylight - хоррор, построенный на движке Unreal Engine 
 ```bash
 magnet:?xt=urn:btih:410D414858CFE7EB6E08BE991C0F4E534C063253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ The Banner Saga – эпическая ролевая игра, вдохновл
 ```bash
 magnet:?xt=urn:btih:1E556FB5730FA4C52556B19F5B814E926C331531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C8F5E6C62EE1D5E78372A166B65CFB3A739F897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Grisaia no Meikyuu / Лабиринт Грисаи [2015, Special] WEBRip 720p r
 ```bash
 magnet:?xt=urn:btih:985BD6A8A5B1E90B4E3BC97031F4D128822E9B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Active Partition Recovery — служит для восстановления �
 ```bash
 magnet:?xt=urn:btih:226C0FD0227DDFB8D97E9D999036EA4AA4F87FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ WPI by Rockmetall666 4.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:461CD2F4FA2926C42C12667C81F3BFE24C62B052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Nero Burning ROM — передовое программное обеспече�
 ```bash
 magnet:?xt=urn:btih:9E7FB9C5964F67BEDFAE1F75D8B3FD34CB63C881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Naruto: Shippuuden / Наруто: Ураганные хроники [2007, TV, 
 ```bash
 magnet:?xt=urn:btih:15AB319B245EC044160C7095B2045E635BFBC6B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Hand Of Fate (2015) [Ru/Multi] (1.1.5/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8F5C307CBD6B47AE97FDC15F55A410B211780575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:0C2668908973E3613DB31FAD6A1B42B0E2AFF845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

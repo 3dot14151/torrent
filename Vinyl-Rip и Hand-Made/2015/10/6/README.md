@@ -25,8 +25,7 @@ Rattle That Lock («Греми замкОм») — четвёртый сольн
 ```bash
 magnet:?xt=urn:btih:0AC1920B556EC91436F70CF88776260920C8C67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

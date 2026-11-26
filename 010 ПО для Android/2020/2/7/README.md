@@ -19,8 +19,7 @@ Canva Premium 2.47.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:490C144B61C8837904017530C0B9C03E69819B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

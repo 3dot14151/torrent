@@ -22,8 +22,7 @@ A4. The Quiet One (3:09)(   Читать дальше...   )Жанр: Hard Rock�
 ```bash
 magnet:?xt=urn:btih:8D4BBB4A420ABA0305F29469CA3488B47FDC7C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

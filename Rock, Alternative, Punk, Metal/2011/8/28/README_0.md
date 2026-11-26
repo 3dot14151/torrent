@@ -28,8 +28,7 @@ Vanir - Sarimners Kod (2011) [FLAC|Lossless]<Viking Metal,Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Southern Rock. GOLD (2CD) (2005) [MP3|320 kbps]<Southern Rock>
 ```bash
 magnet:?xt=urn:btih:7B5ABDFCED81494AF05C5A8F41234CE580CC669A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Ravenscry - One Way Out (2011) [WavPack|Lossless]<Alternative,Gothic Metal,Femal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

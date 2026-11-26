@@ -18,8 +18,7 @@ PC Cleaner Pro – это очень мощный и многофункцион�
 ```bash
 magnet:?xt=urn:btih:865D53874B0FD26DF36D3A2EB4023DE840602751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A2A109DFE674995A39DF8C9D7F9CAB1B29E55EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Roads of Rome 3: New Generation / Дороги Рима 3: Новое покол
 ```bash
 magnet:?xt=urn:btih:78F17458380252AF4AEB3258F9DC2C9E820B66CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B136263CAC4495EEDE8E79FB63DA2FC7557B4FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Electronic Component Pinouts v16.80 PCBWAY [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D425E4D839036B93FCD81A2B0A0A4DF658BD359F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ SysAdmin Software Portable v.0.6.3.0 by rezorustavi (Update 30.07.2022) [Ru]
 ```bash
 magnet:?xt=urn:btih:6A2B0A9490CEF1B793E4B8A82E1ECAE4D5A64748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FD2B4C7F9B9962E859358C71031D22B0346F2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Vestaria Saga - это серия стратегических ролевых и
 ```bash
 magnet:?xt=urn:btih:9F1CFF410D1F4D9B1215A0F5F73FB669F625AC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2CD869BF3E38ED9FC660BDA3788B92739644654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE55CDD1673B38C30E0CCDCA1CB2BFB437102BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4F9F68B041004759ECB0AE3D8FD23300DC9F121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Sucker Punch / Запрещенный прием Soundtrack (2011) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:BD26ACF023B62D94C9336805E7E94A26AF394ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Udemy, Dzianis Matveyenka | Groovy (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:F608691AE68F9C3E6FCDC85647DD9E1A72BA3182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ YouSmart, Нина Наумова | Курс Adobe Illustrator, Photoshop, InDes
 ```bash
 magnet:?xt=urn:btih:1BE465673721111F90DD0771C6D591A4FE1FE9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Windows 11 Pro x64 3in1 21H2.22000.795 July 2022 by Generation2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9813E58DFF0A37F49DE167762E8F53169E2660D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A055D5F23C1272468D561B09E5732BF2A6185CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E5B6DAF6C2645417F523668580E54964AA66E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:526619F42A91C2548FC2784202DA8989A3A7CB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ Ventusky: Прогноз погоды v20.1 Mod by Сіtrus, qwerty [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7DDAB936E8E82F3D62BA13BA989B0755DD8E8478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ Aion - это виртуальный мир, в котором тысячи иг
 ```bash
 magnet:?xt=urn:btih:CA5B58591EBE04C062140D549374DE827E0124D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ OTT Navigator IPTV v1.6.5.5 Final / v1.6.7.3 beta [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:912F492B7D364620EC0F918373B575211D94B34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8156B6EC949A015C3C43735297F9C86416DC8CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B05617362D1937C9BA303513984B9DF24757E181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +603,7 @@ Wise Folder Hider Pro скроет файлы и папки на локальн�
 ```bash
 magnet:?xt=urn:btih:528555945D87394378E81D10F23AF52852EBFC22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:349C1B955A3C9F47C1618581B64C44AC9AF52F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBA37D7D79EF5A26C427624792C4E2CF898458C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

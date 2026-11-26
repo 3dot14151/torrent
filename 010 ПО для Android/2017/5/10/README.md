@@ -19,8 +19,7 @@ InternetRadio 2.0.1 [Ru] (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:ABA7C5E7176A97911B98047FA7456B1DE6E76523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

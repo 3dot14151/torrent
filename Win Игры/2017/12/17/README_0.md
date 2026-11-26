@@ -19,8 +19,7 @@ Trine Anthology (2009-2015) [Ru/Multi] (1.09/2.12/2.01/1.11) Repack R.G. Мех�
 ```bash
 magnet:?xt=urn:btih:6A753E7F6A9700646DE535BED96094FD5D8929B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ RMS состоит из двух основных модулей: Клиент �
 ```bash
 magnet:?xt=urn:btih:FE6305DC2DE219FDD8F001E1AC1803CF018874C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ TheNightfall (2018) [Multi] (1.0) Repack MAXSEM
 ```bash
 magnet:?xt=urn:btih:A3967EC4E75640BFDAA6EDD90699A0A68D1FA0E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:04A0C7091373EE7386F4CF78F3348F99049D69B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TheNightfall (2018) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:4870DB3DDF7D7396C648D69BE00EDAA0B1E714E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Outbreak: The New Nightmare - это игра с элементами выжив
 ```bash
 magnet:?xt=urn:btih:92A1B4E2A771022CC41C314FEFEBD04A99B7B1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Get Even - игра в жанре психологического трилле�
 ```bash
 magnet:?xt=urn:btih:C493D46C22AFADE3E187EEA923412CEEF896398C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

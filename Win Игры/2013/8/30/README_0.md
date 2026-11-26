@@ -19,8 +19,7 @@ Teenage Mutant Ninja Turtles: Out of the Shadows переносит вас в т
 ```bash
 magnet:?xt=urn:btih:DDA952965BCC0210A89D135EDBC31DBCC6EA52F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Memoria – расскажет нам историю принцессы Сати
 ```bash
 magnet:?xt=urn:btih:5520C6965A93C7B626CBCAA4DDB1E8798A87A388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

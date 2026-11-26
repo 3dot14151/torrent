@@ -19,8 +19,7 @@ Wise JetSearch 4.1.4.219 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:78DE4169FCF72CD6473E81C76242D9FABE905B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

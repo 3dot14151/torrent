@@ -19,8 +19,7 @@ Motorsport Manager (2016) [Ru/Multi] (1.5.1/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:E7DBD90152B25D5B1BC496588A9EC268FE364B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hob (2017) [Ru/Multi] (1.16.3.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:BB31226F49AD0F8470DC757CA59E4EB76DB9A166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C474D8CF4471494B74259155354A9364917FAC32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Perception – это сюжетный приключенческий хорро
 ```bash
 magnet:?xt=urn:btih:6734CCEEA6383D9A4093D0B5F2EA449064D120F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Attentat 1942 - это мрачная визуальная новелла, в к
 ```bash
 magnet:?xt=urn:btih:059AD7A23448ADAA3267C2912EC8F4E37F98FD73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ WolfensteinII: The New Colossus — долгожданное продолжен�
 ```bash
 magnet:?xt=urn:btih:D9F3FDDB13DAD78C49F9EBEB37FE205806BCFD27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

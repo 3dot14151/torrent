@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3B90C48011B07690FB71589E2703D3D3E9EFF987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TurboFTP - FTP-клиент с широкими функциональными �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Electro-House Boom BOX (02.04.2011) (2011) [MP3|320 kbps]<Electro House>
 ```bash
 magnet:?xt=urn:btih:0EC200D729586FF915D701673D709B71A8A1DF76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Самые Лучшие Хиты МУЗ-ТВ Часть 1 (2011) [MP3|256 k
 ```bash
 magnet:?xt=urn:btih:9F59B6F9253ED28616B49F39D0D221E5897D9389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Brettina - Brettina (2010) [FLAC|Lossless]<Smooth Jazz, Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A02BFE49E4D1584EE3FA610FD2F71D789AC92FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Arabian (2006) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:6412B20C1C3779EBDB68F0FF21E258B1A0505243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ I.Hardwood | Каталог паркетной доски Interior Hardwood [191
 ```bash
 magnet:?xt=urn:btih:D9A30A06533164094A506DA36B7C59784EAF3DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D0BE9E7AA5EE1225A389C6970510ACA41058244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ VA - Свежее Радио Самые Лучшие Хиты 2 (2011) [MP3|128 
 ```bash
 magnet:?xt=urn:btih:80B36F1A95DCF3A5E5ACE2149C924F1FF2B1E9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6304D5BC117FB90D12E04970F101578F853284DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Paul Taylor - Greatest Hits (2002) [FLAC|Lossless]<Jazz, Smooth Jazz, Crossover 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ Gary Moore - Scars (2002) [APE|Lossless]<Blues, Blues-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F82DA84B9FAE777FED29FEA4D84C4D7F2CEDBF6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ Arch Enemy - Dawn of Khaos (2011) (EP) [MP3|224 kbps]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:80901514195842AEA63E490226E66AB14748801C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ Diane Schuur - 2 Альбома (1987-1994) [FLAC|Lossless]<Jazz, Blues, Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A91A92160947129898EA13A0DE1E9BF9EBEFCB7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +560,7 @@ VA - Полоска Света (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:424EE6318E1E65815966C99B2938A9351D4FAF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +587,7 @@ Real Comedy / Комеди Клаб / Comedy Club / Выпуск №28 (2011) SA
 ```bash
 magnet:?xt=urn:btih:3311CC6FFA45DB3F3008FB1A9AEFD368A5C4F557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +612,7 @@ VA - Танцуют Все (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:04EE78E84D6489CB95FFD6A5DDB05FDEBB25A6B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ Little Axe - The Wolf That House Built (1994) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ AutoRuns 10.07 [Английский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ VA - Mega сборник: Новинки Vol.3 (2011) [MP3|256-320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:A39ACA733245650BD25DB0336B19EA160FAFB9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91AC640A87F5DFB622806CCD1CEDDB7AAF1FF917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

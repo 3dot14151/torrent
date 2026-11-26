@@ -20,8 +20,7 @@ Ocean Match / Рыбки: Три в ряд v3.0.7 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8A8A379860619F9AFF0AAEC87B410B73C4476D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.5 Mod by v
 ```bash
 magnet:?xt=urn:btih:090F386C301BCCC3A60AD19830DB4436514B2CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

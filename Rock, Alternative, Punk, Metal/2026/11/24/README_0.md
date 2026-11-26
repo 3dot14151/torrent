@@ -22,8 +22,7 @@ Dire Straits - On Every Street (1991) Japanese Edition, SHM-CD, Reissue, Remaste
 ```bash
 magnet:?xt=urn:btih:E15E270D7D4F316B60ACF4F9823D0BB049D4D512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Deliver the Galaxy - Those Who Came from Heaven (2026) [FLAC 24/44.1|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:4BC44E3ECCE46B97E821597254BCEBF350005C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Foreshadowing - Ozymandias (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Got
 ```bash
 magnet:?xt=urn:btih:B7F3E2BE62CA8E0AFC77E3612A137D61CABFF922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ U2 - Carnaval De Luz (2026) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:7EB15F8128EFA130F2367AFC46A6819EE8A88A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

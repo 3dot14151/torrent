@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5599874A90A6032E6ED1DB344927302FBFF3B991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Addictive Drums представляет из себя полноценную д
 ```bash
 magnet:?xt=urn:btih:C7C869C312628631C0ECE419015B1D397E066016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08F2460C20B84058058F5060EB184E21A9E87FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Udemy | Посадка верстки и создание тем на CMS WordPr
 ```bash
 magnet:?xt=urn:btih:18318F1CE79BDFCC6B0AD3D44FA5E6FC0B21EC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Transistor - научно-фантастическая игра в жанре Ac
 ```bash
 magnet:?xt=urn:btih:EB5FAB59BA7BB728023A4673223889942F864D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Killsquad (2019) [Ru/En] (0.7.3) Repack Mizantrop1337 [Early Access]
 ```bash
 magnet:?xt=urn:btih:BECDAD023F6F8732807759DADB971678B5E81A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Arifureta Shokugyou de Sekai Saikyou / Arifureta: From Commonplace to World's St
 ```bash
 magnet:?xt=urn:btih:739C5E7D7E44CC4F0CD73FD321FE9BD9E4537E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Windows 7 sp1 x64 AIO Release by StartSoft 27-28 2019 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D27F79DD8CD811515020B086EBE3663721E5A5AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A5527C970EB109E7DBD739A1237459A46DCD63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Vladimir Fonarev (Володя Фонарёв) - 21 Compilations (1997 - 2017) [
 ```bash
 magnet:?xt=urn:btih:89265B8BD7AF9F5119CB5873E562D3F611751D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A5A8298615228DC7E4EE9F94EEBDE102A6EB12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A3D9BFCDA6A7C7D997E7336D980B469BE5D6F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Sniper Elite III (2014) [Ru/Multi] (Build 4249829/dlc) Rip =nemos=
 ```bash
 magnet:?xt=urn:btih:DBCFA8AABFD398CC5485DF209BEB603C3AAF2380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

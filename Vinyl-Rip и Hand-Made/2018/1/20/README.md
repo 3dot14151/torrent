@@ -22,8 +22,7 @@ A4. Clean Heart (4:01)(   Читать дальше...   )Производств
 ```bash
 magnet:?xt=urn:btih:D3048926114DED2031AAFC5845A63E24A651E54E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

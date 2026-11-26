@@ -20,8 +20,7 @@ SDR-RADIO 1.5 build 1425 [En]
 ```bash
 magnet:?xt=urn:btih:35EC2C7463AB395C533778AB501D83B7FFCAAE8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

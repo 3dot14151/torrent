@@ -22,8 +22,7 @@ Great Lake Swimmers - New Wild Everywhere (2012) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:5C45ED128093EC5A3A1AD4C31BB54BD434174963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Boris - Secrets (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Doom Metal
 ```bash
 magnet:?xt=urn:btih:4C6FA39FBE325421079A7B734ED977B70409B60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Collective Soul - Collective Soul (2009) [FLAC|Lossless|tracks + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:C838790A491DB628387D92F02B5AB54EF6B9037D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Therion - Sirius B (2004) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0388E04A1D34A8DF6BEEA07B51E2BF4807147C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

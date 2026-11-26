@@ -19,8 +19,7 @@ Cross of the Dutchman (2015) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:99BA30FDE14BE13BD432A4C2E517790D6A26F5C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

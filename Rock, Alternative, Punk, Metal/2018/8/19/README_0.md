@@ -22,8 +22,7 @@ A Sound Of Thunder - It Was Metal (2018) Limited Edition [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:2DF1E6CFE685B42FE1BA7F75C86472BC4FBFF38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Max Pie - Eight Pieces - One World (2013) [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:18CDAC1195B825FC0628607E228A5A79FA8F8257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Guess Who - The Future Is What It Used To Be (2018) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:0613F60585E55E92690E15BF50819F04A80F7EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Blue October - I Hope You’re Happy (2018) [FLAC|Lossless|WEB-DL|tracks] <Alter
 ```bash
 magnet:?xt=urn:btih:D2319A5B1007AC6B7B4B86B102D938DA11689B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hartmann - Hands On The Wheel (2018) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0D97A1593289EC0C3A96F17AC637422BC3D3F7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Johnny Gioeli - Deen Castronovo - Set The World On Fire (2018) Japanese Edition 
 ```bash
 magnet:?xt=urn:btih:A830232FBEFF07CCA4C0331313EE37C151FF09D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C257021CA5DAAA4AA4A602D35EC664FA7734765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

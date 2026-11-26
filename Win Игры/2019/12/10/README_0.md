@@ -19,8 +19,7 @@ Elephant Games представляет новейшее увлекательн�
 ```bash
 magnet:?xt=urn:btih:B2AE82277416DC6D4FF77AAE62298830371BCFD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ashen – это кооперативный экшн-RPG c открытым ми
 ```bash
 magnet:?xt=urn:btih:5A51AE3C3D48BB17A95430F036B6350DF525ED70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08)
 ```bash
 magnet:?xt=urn:btih:6EC0AB0655B929EB23D6B67789BC48B6994AE619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

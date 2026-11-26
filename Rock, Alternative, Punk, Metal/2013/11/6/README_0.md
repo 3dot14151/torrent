@@ -28,8 +28,7 @@ AOR - The Secrets Of L. A (2013)Japanese Edition [MP3|320 кб/с]<Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:C2DC7A80FF0B76191809DB4D3676D32611F2915B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Sabbath Cadabra: A Greek Tribute To Black Sabbath (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:A4AC3045B40CD58F1EA2BC18D904EADA238F4AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Vita Nova - Vita Nova (2013) [MP3|320 кб/с]<Gothic Rock, Female vocal>
 ```bash
 magnet:?xt=urn:btih:1914402BCC678B2018A0958DDC34EBD062DFD18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Opera Metal Vol. 8 (2013) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:7B79820C30DB2FABFD853D502F55E4923E3A3F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Leah - Otherworld (2013) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:9D8156F702FED37AA90624060674E752EE02BE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Emphatic - Another Life (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4F8674C890BA99C2F40526FFC5042E4D50D63507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Nazareth - The Best Rock Ballads (2011) 2CD [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:67429CB52303F3DF074DCE28C69882B028E98524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

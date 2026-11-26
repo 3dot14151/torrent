@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:FC31E52722AF4919F18766E8081BF018ADDEFEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Overlorde - Awaken the Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 ```bash
 magnet:?xt=urn:btih:AE9F0BB96F4CBDDAA394E786B9F1B86492C09254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Fort Rock Fest (2024) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:BA99180DFCE3D306C872228A0E305F1EB1563E0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3872622E4F220BD40DBA5ADFAC526465D60B669E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Twists [A Visitor Arrives] - Kreidler (2024) [FLAC|Lossless|WEB-DL|tracks] <Post
 ```bash
 magnet:?xt=urn:btih:2CBBF36295963ACC1E6297DEA0645728288F9C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B208D5E81839436F64ADC9C3D71FE2346CCFCEB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Elegý - Graveflowers (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:CAB3DC965059E520D6FB847E88037ED0DA49C03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE99C4FE402C78267EBD1D67131548851AB00AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Kalmankantaja - Kohti valon kuolemaa (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 ```bash
 magnet:?xt=urn:btih:22BE9D31248CBE2FDBF734E53F7D56D7A85CE597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Scavenger - Feral (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Prog, Doom>
 ```bash
 magnet:?xt=urn:btih:5D44E6800910EFEAF09F7B2A812B08200F547CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Varathron - The Crimson Temple (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 ```bash
 magnet:?xt=urn:btih:BD0611912538C771822DB710988DCCA12671634C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Warmen - Here For None (2023) [FLAC|Lossless|image + .cue] <Melodic Death, Power
 ```bash
 magnet:?xt=urn:btih:02EF8606580DA15120137C460B14872FF115BFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Clutch — американская рок-группа из города Дже
 ```bash
 magnet:?xt=urn:btih:9B6717AE599D59EB30E48D921F7C4A010F96DFB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

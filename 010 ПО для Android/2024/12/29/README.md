@@ -19,8 +19,7 @@ PhotoRoom v5.7.6 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:83CFACF2968BB778A0BD75893C64393702939090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28A1C33A3BC03804705E7CBAFDC1DB99F7080F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:4987C79B1B6622C24FD3F41678275E6B68C6EFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8F1B62DFDA9F643F1D4F49A69B922A58EDC8D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

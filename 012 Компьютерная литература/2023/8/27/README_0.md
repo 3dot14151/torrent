@@ -19,8 +19,7 @@ Shantanu Baruah, Shaurya Baruah | App Development Using iOS iCloud (2023) [PDF][
 ```bash
 magnet:?xt=urn:btih:E720D6F984D16FC4E835FF334E50ED7B7C16EB08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:736FBB65AF2BD7C8DAAD1A1F5868D3B86657D5C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Elías F. Combarro, Samuel González-Castillo | A Practical Guide to Quantum Mac
 ```bash
 magnet:?xt=urn:btih:73EE27B77E3B2F66B8D97C24EDE9D83BF9E5560B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fedor G. Pikus | Hands-On Design Patterns with C++, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:519AF27A7BE4B2BF2EC456D33823728FFB248D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ajay Reddy Yeruva, Vivek Basavegowda Ramu | End-to-End Observability with Grafan
 ```bash
 magnet:?xt=urn:btih:AE114AAA614611F9500BD195A0A6A1C80DB03AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Carlos Santana Roldan | React 18 Design Patterns and Best Practices, 4th Edition
 ```bash
 magnet:?xt=urn:btih:9F9A1DB8ECDEF050ACFD9A8FAB534C94D2AAEAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ M.O.D. (Method of Destruction) — кроссовер-трэш группа, с�
 ```bash
 magnet:?xt=urn:btih:D6FFE5E576D22BEC6B9CB021FB6F0380DAEE8E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

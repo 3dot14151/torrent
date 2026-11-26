@@ -28,8 +28,7 @@ Teach-In - ВИА Тич-Ин (1976) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Disko/
 ```bash
 magnet:?xt=urn:btih:403F8F66E34EFA003D4A88E1235C6808245DCF03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

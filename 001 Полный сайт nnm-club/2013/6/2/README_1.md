@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:16AE0F15258EA3D868331DA1BC9ADAD45C00D71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90C2D31DDACE31EFCDA75763446EE859947F5839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68E902131D63207B74784AFF9BDE343FF1D509A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Harold Land - Eastward Ho! (1991) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Hampton Hawes - Northern Windows Plus (2003) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Estilo Libre  DJ Valdi - Macarena (Official Video) (2013) [H.264/1080р] WEB-DLR
 ```bash
 magnet:?xt=urn:btih:E7F38326678D2D21C44C5B50B0AFF9F2B4826DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Hamiet Bluiett Sextet - Young Warrior, Old Warrior (2005) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Nightrage - Vengeance Descending (2010) 2CD [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ Sean Bay  Shahzoda - Hands in the air (2013) [H.264/1080р] WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:86AA2A388BDA1CD17A297FA6C1FA30DD09C2C6BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ The Harold Land/Blue Mitchell Quintet - Mapenzi (1990) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ Five Pointe O - Untitled (2002) [MP3|320 кб/с]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:A68B09426024B54F08669885AACAE70B8DBCEB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D930249460D1669FA06C3A8A2FE46F0B8FED9F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ Warlord - The Holy Empire (2013) [APE|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D04FD4ED6D6228949DA98B22898470610BD66D5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ Tour De Force - World On Fire (1995) Japan [APE|Lossless]<Melodic Rock, AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ VA - John O'Callaghan - Subculture (2010) [FLAC|Lossless]<Trance, Progressive Tr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ Hannes Riepler - The Brave (2012) /WEB/ [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +548,7 @@ VA - Drum and Bass Pro V.19 from AGR (2013) [MP3|320 кб/с]<Drum&Bass>
 ```bash
 magnet:?xt=urn:btih:79DE0D6C1085C5842BC15C0B1F770C325C891200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6784DB82B7935B0F191CD78A80CDC9C13395AE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01BB83D00E61D8BAAE01965F683CEC9580C8A197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ Maragold - Maragold (2013) [MP3|320 кб/с]<Rock, Pop Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:1370B3128F1355B946570BD672C67BC0D178C5BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ Inter Arma - Sky Burial (2013) [FLAC|Lossless]<Sludge Metal/Black Metal/Doom>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +699,7 @@ The Blood Of Heroes - The Waking Nightmare (2012) [MP3|320 кб/с]<Drum'n'Bass,
 ```bash
 magnet:?xt=urn:btih:6D36FE5EB524B22B40ABF9540263B6AFAF985B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +724,7 @@ PlatiNum Project - Зажигая лето (2013) [H.264/1080р] WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:C510C8416CF4A15942C853CD7E4669315E5EB1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +761,7 @@ Antony and the Johnsons - 6 альбомов (2000 - 2010) [APE|lossless] <Chamb
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -811,8 +786,7 @@ JTA Feat. Dastinz - Saturday Night (Official Video) (2013) [H.264/1080р] WEB-DL
 ```bash
 magnet:?xt=urn:btih:915A684C621D741110BE6B8CAB2CBFE7A455E0D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

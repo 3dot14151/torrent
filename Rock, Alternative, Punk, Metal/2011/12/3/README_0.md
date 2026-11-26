@@ -28,8 +28,7 @@ Arrayan Path - Ira Imperium (2011) [MP3|320 kbps]<Epic Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:93ABB679EA6AFE03C38121B149AF0B45D79B091A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ DISMAY - Быть добру! (2011) [MP3|192-320 kbps]<Punk-rock, Pop-punk>
 ```bash
 magnet:?xt=urn:btih:6601B9B0C64EE270C6DA658878C0CE011AE24B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B6C091F24D6C0E84E90FA4C916C541E23A05508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Dragonland - Under the Grey Banner (2011) [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Gogol Bordello - Моя Цыганиада (2011) [MP3|320 kbps]<Gypsy Punk/Folk
 ```bash
 magnet:?xt=urn:btih:8E6B5464186561B330B2C9E47B2F4F5B610BBE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Korn - The Path Of Totality (Special Edition) (2011) [FLAC|Lossless]<Nu-Metal / 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:451C8A76877105542DE1969D6ADCA1D9A5F8F4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

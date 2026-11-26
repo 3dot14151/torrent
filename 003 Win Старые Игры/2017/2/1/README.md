@@ -19,8 +19,7 @@ Marine Heavy Gunner: Vietnam / Морпех против терроризма 3:
 ```bash
 magnet:?xt=urn:btih:4EFA91B2DA5741D0417D14FE3E45DCF27C16BB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sea Dogs / Корсары: Проклятие дальних морей (2000) [
 ```bash
 magnet:?xt=urn:btih:E0193C3DFEC3CB58C86627483D062D0B647A2D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

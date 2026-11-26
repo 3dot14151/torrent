@@ -22,8 +22,7 @@ Wisdom - Rise Of The Wise (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:6AD9E2F46585B7EF300A4E4E476A4C154E08EF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Visions Of Atlantis - Old Routes - New Waters (2016) EP [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:1EA71458782AC889F905E87340B2A7FD39AD25B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Paul McCartney - Pure McCartney (2016) 2CD [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:5587B1CE1BE60811EF8B6534A779AF359D7B4437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ DISC 1:
 ```bash
 magnet:?xt=urn:btih:3821C0452C3649A30C30811C81B7998BE108433D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

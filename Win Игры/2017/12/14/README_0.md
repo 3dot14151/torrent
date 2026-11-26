@@ -19,8 +19,7 @@ Sherlock Holmes: Nemesis / Шерлок Холмс против Арсена Л�
 ```bash
 magnet:?xt=urn:btih:18D2DD9A95801F5BF22495E0F978767A32A5DAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pandora: First Contact (2013) [Multi] (1.6.7/dlc) License GOG [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:5850BA495EDA2B8C1ED3762F8DF1AD4D0FDF7314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Emily Wants to Play Too - игра жанра survival horror о парне из
 ```bash
 magnet:?xt=urn:btih:AAEC3B9598835F8420B58476B6D485957BEE95AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

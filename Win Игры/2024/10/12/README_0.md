@@ -19,8 +19,7 @@ Ash of Gods: Redemption - тактическая пошаговая ролева
 ```bash
 magnet:?xt=urn:btih:62CE842F9065BD6F0AC1B1F90DE89B8090C77C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mech Engineer - симулятор, в котором вы будете зани
 ```bash
 magnet:?xt=urn:btih:E06884568C626BE26F8BE8D913DA1AAEFF0BC178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Europa (2024) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:C539C7ABD1CCF0BCFB948EB935821D1B2809BFAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kvark - это шутер от первого лица события котор
 ```bash
 magnet:?xt=urn:btih:06AA99C90F02F04FDEB285189ACF8F9BC9FAE432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 ```bash
 magnet:?xt=urn:btih:8EBE23AD6FDE1FBB9722FD60235A8B0B8FDBC090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
 ```bash
 magnet:?xt=urn:btih:8C330CD7E9DE26958D9B83AF6E9179E3DE9E5412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 ```bash
 magnet:?xt=urn:btih:7BD60437CF6C56AC4164FAF75FE4FF08841AD708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.43094/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:D8A20EEEDEFFE0EACDCEE939F441E70B6F3AA2C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Cash Cow DX (2024) [En] (1.1.2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:11DC4C91BC55E84992FF52122A57C51A00452E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

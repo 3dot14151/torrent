@@ -19,8 +19,7 @@ This book is a beginner’s guide to Java Programming Language for Kids ages 12 
 ```bash
 magnet:?xt=urn:btih:751F6C9DACF35075E6203E378DF10FB824058FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

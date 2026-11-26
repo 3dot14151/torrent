@@ -19,8 +19,7 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 ```bash
 magnet:?xt=urn:btih:723D93BCD0C55E2A19C07248FD771525506A34B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Survival & Horror: Hangman's Rope расскажет историю прокля
 ```bash
 magnet:?xt=urn:btih:B523C27AC4BDA80503447FAD544CEEB448030B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.13418/dlc) Scene Rune [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:959C29F50FAFB5B9373C17FBA619D9E3FB12E499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Trek to Yomi (2022) [Ru/Multi] (build 10443135) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:47A70BE383996C256E1C6F079AEB7D88758E4CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cantata (2023) [En] (1.01/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:D715E02DFEEAB963D0D092B88C58EA87CBE0CB95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

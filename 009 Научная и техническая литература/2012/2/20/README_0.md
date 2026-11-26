@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4A92FB3481E6B2C3D3E6B2C45EBB09BC83A9905F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E6D956683BCE5C1597AC391A00458D08C3C9CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Colin Mitchell | Spy Circuits [2011] [PDF] [Eng]
 ```bash
 magnet:?xt=urn:btih:C4271525319EB71DBC280C72C92853B36E53D030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

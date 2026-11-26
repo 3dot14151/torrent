@@ -19,8 +19,7 @@ Ominous Objects 3: Trail of Time (2015) [En] Unofficial [Collector's Edition / Ð
 ```bash
 magnet:?xt=urn:btih:CC70E21E24D4ECEA701874AEC75382F12A695449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Secret of the Pendulum (2015) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:F9EEC6B8BC6B8D6C2827BBC4D9D4D4CB2F5437EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Immortal Love: Letter From The Past (2015) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:D860DA552BCF17E8D98EA794D12DADCC9B7C4B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Statue Of Liberty. The Lost Symbol (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:61F37775C9A6108F303BE831513E857023CA2661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

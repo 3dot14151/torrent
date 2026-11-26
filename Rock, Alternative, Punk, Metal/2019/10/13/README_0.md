@@ -22,8 +22,7 @@ Bay City Rollers - шотландская поп-рок группа, созда
 ```bash
 magnet:?xt=urn:btih:49ED87ABC229630FF8FD678419382A3F1F37035B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Leslie West Band - The Leslie West Band (1975) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:925BDB47C9CD737DA36EFAC3C0754FEE9143016C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - 100 Greatest Soft Rock Anthems Ever.. (2019) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:7F1540B6145525789E79BA1193F5A1AB81ADF16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

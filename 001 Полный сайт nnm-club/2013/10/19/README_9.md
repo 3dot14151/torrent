@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:282413F44E233012056DD062C9B97EDAE3620A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41CEA77C4F686190C1B683B62E11098E1902D10A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEED2AB223395FFEAC0BAE95F8E201CC9CCF6D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ InternetUrok | Английский язык 2-11 классы (2011-2013) WEB-D
 ```bash
 magnet:?xt=urn:btih:F5DA8639280BE82F593B16C1AEFF53C53B537EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ The Stanley Parable - профессиональный ремейк необыч
 ```bash
 magnet:?xt=urn:btih:76F5904C5632060553183C1897FF89CB94CCA750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69CFC399734BFF945C1895C7C84B6A1B65A80A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6033212A9E79C3A3A2A8935792AE8C978A406B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ StartSoft WPI USB 42 [Ru]
 ```bash
 magnet:?xt=urn:btih:11F9F9531EEFA8195EF3C1E0F602813A3521A264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Marvel Comics | New Avengers / Новые Мстители (2005-2013) [Обно
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:463F5FDA498DD49CCA1E8DE761AC754C62524EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Game of Thrones (2012) [Ru/Multi] (1.5.0.0/3dlc) License PROPHET [Special Editio
 ```bash
 magnet:?xt=urn:btih:47D72DC3EC368C928ECA2BC8822E267DFD75EE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ LEGO Marvel Super Heroes - адвенчура по вселенной Marvel в 
 ```bash
 magnet:?xt=urn:btih:C57D98B3408538E376D4289FDEA12660ACB05413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Bridge Constructor - отличная физическая головоломк�
 ```bash
 magnet:?xt=urn:btih:8AD698F9373A4B9AC7DA6ECF544785D38A7F57F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ InternetUrok | Физика 7-11 класс (2011-2013) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:7752EA3EF84F696613282A65694D893F7689E461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C34C85B795F00530F4399FC45A06496BB3D03A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Magic Bullet Suite 11 представляет собой набор из вос
 ```bash
 magnet:?xt=urn:btih:9C4291F618AB7EBDCC47E3A89214FBBE09F35650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Knock-knock (2013) [Ru/Multi] (1.0.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:7EE7AF463F280A2041AB9A136B3C197B6ABC9A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ God of War: Ascension [PS3] [Ru/En] [Repack / 1.12] (2013) | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:FD116795C2B55CCCE23CFD630C17393E3C1AFAED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ LEGO Marvel Super Heroes - адвенчура по вселенной Marvel в 
 ```bash
 magnet:?xt=urn:btih:76A6005CFE7E6F2AAB66E7CE40D1AE5D9E3B6111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E174F9A26CB4882B15409146A9538879BEB4F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Leshcat AMD Catalyst Graphics Driver 13.9 WHQL UnifL Update 2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4431FF21183ADF99C0BB3C65885CB35B2EE801D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Metro: Last Light [PS3] [Ru/En] [Repack / 1.02 / 7 DLC] (2013) | R.G. Inferno
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FA0732000B504341CA75B2C0DFE63A7BDA0599F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B1BC2E604B4305272BC5AEFC29ADB422AE689D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013 Redistributable Package Hybrid x86
 ```bash
 magnet:?xt=urn:btih:A7C1C81300C04FC08E0279D3E01E3BB9F15FDEDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ Mountain Lion включает в себя более 200 новых функц�
 ```bash
 magnet:?xt=urn:btih:E9EE3506CB886B6C8E571DE656864AF53388CC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

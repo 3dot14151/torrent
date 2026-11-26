@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:131DADF3C48724D06FCB91AABEAD452590F6DEDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Wake on Lan for Mac 1.0.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:357525D1028DC7708017B8656F61D4D23D10A96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Lifeburn - Город греха (2022) [MP3|320 Kbps] <Hard & Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:554326732F08559E5D58DBBED9365ACD09D5B056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D22CA6EB9B072E59EAE798AD6D8EAE704BAF2E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ EverWeb даже создает мобильные сайты, которые о
 ```bash
 magnet:?xt=urn:btih:95A0428D1541B764E9FB8B217B8D18F5332221D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ VA - Simply Breaks & Beats Vol. 01 (2022) [MP3|320 Kbps] <Grime, 2-Step, Breakbe
 ```bash
 magnet:?xt=urn:btih:9953A73F195732E3298C01628426E6DC25B4B46B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ FIZICA - Доппельгангер (2022) Deluxe Edition [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:424106AA7759937776F04158A6334B176448AAB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:51B29E705AFBA516EC6D32400C8A29F6BCB27D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Marvin Gaye - I Want You The John Morales M+M Mixes (2022) [FLAC 2.0|48/24|WEB-D
 ```bash
 magnet:?xt=urn:btih:E810AAA583DD103EBD7ED755C2270DD720F68BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BBFECDF4248B3E4CAF37209A9E040E0D7F5928C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:FBA08EA08E359D57D9E5C5C1E261DD17CEE5D846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AAD6321E179247CCBF2D980BC083A48268A4C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ One Switch - это крошечное приложение, разработа�
 ```bash
 magnet:?xt=urn:btih:CCF1A602ED66B6B01AC090B8EE6855BE486325FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Sepultura - SepulQuarta (2021) Japan Edition [WavPack|Lossless|image + .cue] <Th
 ```bash
 magnet:?xt=urn:btih:F822BC728F4E647068396B6C1FFC7A184973F07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Flowstate: текстовый редактор, который заставит 
 ```bash
 magnet:?xt=urn:btih:8AD762DCEF3694F4167D5086100036966AECF4D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ CD 1 Gammapolis:
 ```bash
 magnet:?xt=urn:btih:ADA5472B65D53DD921B5F19C42B5AE67182BB3AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68143EE7AC991222F2B617BF7270027DEEC5222A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Jane's Addiction - Ritual De Lo Habitual (1990) [FLAC|Lossless|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:7126935D269C5552AECCD437A657FF89A7CD64F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Wondershare DVD Creator - приложение для создания ново�
 ```bash
 magnet:?xt=urn:btih:F28B8A4606991ABA585F3D141A4C1ED84506D3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Cool Menu — это набор из 10 очень полезных функци
 ```bash
 magnet:?xt=urn:btih:69D17E3FC93A9CD1F74BB8E1267F977EFA9E148D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Chaos Control Premium 1.16 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:F8EDFCF751FFA9CBD4E0D4848FEC5147EAFA2456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:3DF3834B531E4D43B50E5A39CFD4E58B1091FCCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Various - The Best Of Italo-Disco Vol. 4 (1985) [OGG Vorbis|485 Kbps] <Italo-Dis
 ```bash
 magnet:?xt=urn:btih:A7DA0F3099DAA596BECE05EFDDB8F96B10801311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13115F0DC1490BF9D766D8DDB803695A20016F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ macOS 11 Big Sur многое делает правильно и после не
 ```bash
 magnet:?xt=urn:btih:8A2C7D6144F4138B94A769913FAFFE8B956E83F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98ACACC7BD91B56C1FBF6F006FBFED21C2C1D8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

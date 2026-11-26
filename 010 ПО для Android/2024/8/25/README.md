@@ -19,8 +19,7 @@ Ventusky: Прогноз погоды v36.2 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:25BAB413D51387E5393FA92B1B235EF34EFE3ED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F924774A8940C550512E45C3539FBE049A2B2687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ViewBox - приложение для Android устройств (в том чи
 ```bash
 magnet:?xt=urn:btih:9061FDF038479540E64EC6B2B4E9349454A19B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50A6B53C28A03A0828B8F7ED1F6A70205E70264A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 ```bash
 magnet:?xt=urn:btih:CDE6B5D4587A3583975CB2C71058B155704C259D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

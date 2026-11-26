@@ -22,8 +22,7 @@ CD1 - Le Dernier Des Héros (сведение: Франция 1989):
 ```bash
 magnet:?xt=urn:btih:1F65E25287B145078D57C6DFACD518AD7CC68E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

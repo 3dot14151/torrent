@@ -19,8 +19,7 @@ Guild of Dungeoneering - минималистический и довольно 
 ```bash
 magnet:?xt=urn:btih:DA1275560779A46C7E8A6A1066544B609BDB7EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Street Fighter V (2016) [Ru/Multi] License RELOADED
 ```bash
 magnet:?xt=urn:btih:F511043FFD64A3C3C42E68E8C36C4E050D0885AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

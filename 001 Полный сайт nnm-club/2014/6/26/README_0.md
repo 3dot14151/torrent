@@ -27,8 +27,7 @@ VA - Victoria - Songs of Victory (1999) [MP3|320 кб/с]<New Age, Enigmatic>
 ```bash
 magnet:?xt=urn:btih:EDD971138B2B114F6AEFD5FB2B0C0A7864BE35EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Yael Naim & David Donatien - Yael Naim (2008) [FLAC|Lossless]<Ballad, Folk, Worl
 ```bash
 magnet:?xt=urn:btih:E07D36B8980B0BBE776DF21927EF786AD45740BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ First Rebirth - 2 Releases (2009-2014) [MP3|320 кб/с]<Downtempo, IDM, Trip Ho
 ```bash
 magnet:?xt=urn:btih:0182B1C003AB9CB59E4781572210A83E6CE3E122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Desert Rose - Sands Of Time (2001) [MP3|320 кб/с]<New age, Vocal, Enigmatic>
 ```bash
 magnet:?xt=urn:btih:9525987FF6C0F1E1E62F1E5E3FAEBDC3C5B5C570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Autoclav1.1 - Ten.One.Point.One. (2014) [MP3|320 кб/с]<IDM, Drum & Bass, Expe
 ```bash
 magnet:?xt=urn:btih:EE6DDCF2F500DCE434D8F14CCF06303B0700377C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A3367C25063315739369B8379BF05950AF9EF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A49EA4627C31A4703F7342D70ADD2BAB24C361ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ Raise Data Recovery for FAT / NTFS - две программы предназн�
 ```bash
 magnet:?xt=urn:btih:FC25E542B9B7E878AA743657779DDB20D95BBB9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ LAHO - это industrial/electro metal проект одного человек�
 ```bash
 magnet:?xt=urn:btih:57B818D72FD880C3F70C324AD6048D0BB06AD489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD4DD793835EE44002CB9AE02F43BE7D6280D8CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ iSpy - программа, которая с помощью микрофона �
 ```bash
 magnet:?xt=urn:btih:4CC94CDA31D78807094091C4BF5F83E6786142BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6C26D68F30AE683E8A734646175264E3FA321F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79D2F71FD8F6818722F0BA38BA59D38A426AD3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08D75F70A153682C8845115CE034294A60F62DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ John Williams feat. The Skywalker Symphony Orchestra - The Star Wars Trilogy (19
 ```bash
 magnet:?xt=urn:btih:3982C3E3E33CD00AE09BF863FA81FAE35D77BD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ UFS Explorer Professional Recovery разработан практикующим
 ```bash
 magnet:?xt=urn:btih:45E3501F2D2B82D1AC7DB707E2D2646EC4BD3172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79FD78CE51C256A04CFAB19623DC8E321D29920B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ VA - Звёзды шансона. Выпуск 12 (2014) [MP3|128 кб/с]<Ша�
 ```bash
 magnet:?xt=urn:btih:8496E17609794A7D09910AAE8E38DDC79A12A08C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17FCAD78D28CC90720E4262B81911D89B8599501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE325FE632E02C724FB580751AF15504EE0A5E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C842DD165020F083B15517637BC3C4318787551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ Lily Allen - Sheezus (Deluxe Edition) (2014) [FLAC|Lossless]<Electronic, Pop, Sy
 ```bash
 magnet:?xt=urn:btih:B6F3167553254B173E5AEB03B7A1475F4537FBBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E15353BFA91CE236DC6E2F72D436A66CF8A1D7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:924D357AC0DCC67A492A42B04F04FB17CC548DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ Raimonds Pauls - Zelta 60 (1996) 2CD [FLAC (tracks+.cue)|Lossless]<Instrumental,
 ```bash
 magnet:?xt=urn:btih:85D8A6117E5F1C0F5AAAA87530BB39EF201D19D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D61FEF810E087616C20055A072383593BBF04B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

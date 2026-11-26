@@ -19,8 +19,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack Let'sРlay [Master 
 ```bash
 magnet:?xt=urn:btih:8A217DF507A151D9E54184D45C68D80A7F6BD9FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ iRacing представляет официальную игру World of Outlaw
 ```bash
 magnet:?xt=urn:btih:E3EDE033264F8EE25660D520B80F2FE40956114F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Escape from Yandere - психологический триллер, главн�
 ```bash
 magnet:?xt=urn:btih:37F3AAFAC6AA0CC2FDB8D9E4611FCBA8F3AB7468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Havendock предлагает отправиться в захватывающ�
 ```bash
 magnet:?xt=urn:btih:55A582D1498FC78952A2559C312AF058AA8A5868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Scene voices38 [Master Ass
 ```bash
 magnet:?xt=urn:btih:0B2FA2DC5E6AFB42AF830498C78071FE668B809A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack FitGirl [Master Ass
 ```bash
 magnet:?xt=urn:btih:5ACF6BC766DAD75D6E8A41F829B86869BC130625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Grand Theft Auto: Episodes from Liberty City включает в себя все
 ```bash
 magnet:?xt=urn:btih:FAC07207AB86DBF679A1866DD550FC790A62C8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

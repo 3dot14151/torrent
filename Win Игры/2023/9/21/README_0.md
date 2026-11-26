@@ -19,8 +19,7 @@ Gunbrella - это мрачный приключенческий экшен в �
 ```bash
 magnet:?xt=urn:btih:DE5A3BD54F47F832377F0AEBC6EB68BF17C7FBD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gunbrella - это мрачный приключенческий экшен в �
 ```bash
 magnet:?xt=urn:btih:26EC482CFC77118F6BBB013153C57D01DEFAA750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Summum Aeterna - это рогалик-метроидвания с динами�
 ```bash
 magnet:?xt=urn:btih:D870469B650D04C1FAAD7D3F7BE82AA250836D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ inZOI: Character Studio (2024) [Ru/Multi] (15485995) Repack Meadwey [Early Acces
 ```bash
 magnet:?xt=urn:btih:8DB6711EF5E655F7638045B6431CB5557749E4B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Townsmen A Kingdom Rebuilt (2019) [Ru/Multi] (2.2.8.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5106FCEB5A49A22C2AF97D42A55565ED99F60BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Patron сочетает в себе классические элементы г
 ```bash
 magnet:?xt=urn:btih:EBDF7524388D84DAE0D1FFADA304C2563C61A935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wargame: Red Dragon (2014) [Ru/Multi] (130278/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1CE54BEA6E7B8AF984C5549ADAF1C5E97325E7FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Monster Jam Showdown - гоночная игра, которая покажет 
 ```bash
 magnet:?xt=urn:btih:2141F7055ECF0E7A4B494A3509BDD6D12B3E517B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crypt Custodian - очаровательная метроидвания, нап�
 ```bash
 magnet:?xt=urn:btih:B8C8F9AD67C9B9EBBBACEEB2788AD24392D5134E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ World Turtles - это увлекательная средневековая г�
 ```bash
 magnet:?xt=urn:btih:69DFE06EFF85277133689C88FE465AF6F9BF36D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Golf Club Wasteland / Golf Club Nostalgia (2021) [Ru/Multi] (1582) License GOG
 ```bash
 magnet:?xt=urn:btih:B4411B02648F167438DA7F3308424351C620E544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Fireside – окунитесь с головой в добрый игровой
 ```bash
 magnet:?xt=urn:btih:04E191E4B51A239202086A4E79C7130547CF5379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Highwater переносит игроков в недалекое и мрачн�
 ```bash
 magnet:?xt=urn:btih:1B1D60287D7FD583D4219000F9B968A4247B1B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Alter Ego (2010) [En] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:4E6B969146BF74CA81B506DEDF2D1098529F89DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Just Xiangqi - увлекательное цифровое воплощение 
 ```bash
 magnet:?xt=urn:btih:CEE6C126C6F018543B590CE352C7EA82EEB49ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ KONOSUBA - God's Blessing on this Wonderful World! Love For These Clothes Of Des
 ```bash
 magnet:?xt=urn:btih:A4A4500569D1D762914EAB0B0A7A65A7CA99C43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

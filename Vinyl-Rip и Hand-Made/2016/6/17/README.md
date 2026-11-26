@@ -22,8 +22,7 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) [FLAC 2.0|96/
 ```bash
 magnet:?xt=urn:btih:F1B9A12060A1FA9D892B95D145EAE4122F73D695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystical Riddles 2: Behind Doll Eyes / Мистические загадки 2: 
 ```bash
 magnet:?xt=urn:btih:852D921590EE5049F9ED3CAC9A41B38C1B959491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ My Destiny - это одиночная игра о медвежонке, кот�
 ```bash
 magnet:?xt=urn:btih:B1CAF71EA800DB61CD8016C0AC8FA6D140018E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

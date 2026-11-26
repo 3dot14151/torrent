@@ -22,8 +22,7 @@ Sunstorm (Joe Lynn Turner) - Edge Of Tomorrow (2016) Japan [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:CC6B1A07A3259D901931CC9A85C7E528BCD36097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6AD1460523E6676F4387C0DE84029EE9A184867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Creedence Clearwater Revival - 6 альбомов (1968 - 1986) 6CD, 24 Karat Go
 ```bash
 magnet:?xt=urn:btih:4E13511EA4012375EF5356658F99824D30EF8590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

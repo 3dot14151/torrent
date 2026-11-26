@@ -19,8 +19,7 @@ S.E.C.U. предлагает два захватывающих режима и�
 ```bash
 magnet:?xt=urn:btih:258BEAE460C1F73C526B119403921793F57D880E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eternal Dread 3 – это трехмерный ролевой экшен с в�
 ```bash
 magnet:?xt=urn:btih:8CFCB46CD78D714016ACE8B37C88DC9D7F55244D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Six Ages: Ride Like the Wind – текстовый квест с элемент
 ```bash
 magnet:?xt=urn:btih:F674623A266EEF20D67166120992DA9F36A97201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:DFD6C87718EF3515D773D9E542B5065525C4F175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kaya Joshi: Magical Detective (2023) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:DDAFE2E754EDEC0FDFB0531A55FBD2526C9B7012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

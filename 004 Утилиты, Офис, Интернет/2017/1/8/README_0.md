@@ -19,8 +19,7 @@ ActiveBarcode является мощным эффективным програ�
 ```bash
 magnet:?xt=urn:btih:D43DED5C9383968B6AE17A932500DED32BD55713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zero Assumption Recovery — программа для восстановлен�
 ```bash
 magnet:?xt=urn:btih:CEC29B2E34B511083CAD7BAA0651BD28B2871594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

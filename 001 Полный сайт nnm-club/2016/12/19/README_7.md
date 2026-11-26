@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:17E01325FFF28371BB16944F212AE89AB320B11B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA38C2D7A0F0A98D66CDF7FE3DE1CD53160E5894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EEB470073FB757DCC6D4C8F0AE9B8697B3D18A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Sonny Cox - The Wailer (1966) Remaster, 1998, Universal[FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:B59E816B14828EC82B0293D3DB29BAB23E29437A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:6F808BE7E44077714EA155F01925458E3796CEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Following My Intuition (2016) [MP3|320 Kbps] <Psychodelic Trance>
 ```bash
 magnet:?xt=urn:btih:B8B7D7EB5AA94903FE3F01BD1A7FA6DAD8A3BF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Global DJ Broadcast: Top 20 December (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:8245BE8B4113150BCF9CD7288B156FD840A7AF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - The Best Of Suanda Music 2016 (Mixed By Ruslan Radriges & Mhammed El Alami)
 ```bash
 magnet:?xt=urn:btih:1FCE845EE8067675420247BFB58EED4B4FD36A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - 75 Trance Anthems (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D4AC052ABA2687F6E78F761302A59AB354B38A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ GraphicConverter - полнофункциональный графический
 ```bash
 magnet:?xt=urn:btih:ACC095123BC551EF2F5F0C3D770D77EF00C55D6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - Блатной шансон на любимой волне. Часть № 
 ```bash
 magnet:?xt=urn:btih:FA98B55AD518DFE235BF4BA3BB9191A4BD7A9065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Nanaki - Dandelion Radio Session (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock
 ```bash
 magnet:?xt=urn:btih:A40F5744A115EC49770A4367422508DCD15EDBAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Headcrash - Overdose on Tradition (1995) [FLAC|Lossless|tracks + .cue] <Industri
 ```bash
 magnet:?xt=urn:btih:42A0829AAEA741F5E5C15D5BFCD982CC1ED92D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ Bitter-Suss - Apologize For The Past (2016) [FLAC|Lossless|WEB-DL|tracks] <Elect
 ```bash
 magnet:?xt=urn:btih:07C8ECF45DCA8D93C2F8AE76DD346E18BDE874F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3DD724ECB27AD3FF612652B1B4427616998CA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12485504E39C818F92BA63C8E8EA746D13E317DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Tri-BACKUP (Резервное копирование)
 ```bash
 magnet:?xt=urn:btih:E958FB8D6D337A91D66CB11D6BB37E1943AF325A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ SQL Client представляет собой легкий клиент баз�
 ```bash
 magnet:?xt=urn:btih:68FC36317E5428F8000734FF312D8A4AD7E357AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Bob Lanza Blues Band - From Hero to Zero (2015) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:A9962BC77CBCE99F6D635F59C8D4B60EA1F2B771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ SQLPro для Postgres является передовым, но легкий к
 ```bash
 magnet:?xt=urn:btih:0C76411CA870112064F6A94AF7D29A9783014DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:857BFF4B9352A37F265981820A633288DC34A63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D3186A48D6B32AEECCE571FC68EB7F4F7BF255D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09B3EEBF845DE8388D6C878D1166E1217FFD7A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ Charlie Daniels - Night Hawk (2016) [FLAC|Lossless|WEB-DL|tracks] <Country>
 ```bash
 magnet:?xt=urn:btih:630E5FEF09ACFB10CAC9700374764A7199FF08F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D58117E3F54CF5F94310858BA0BDA8136F27F1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ The Ray Conniff Singers - Christmas With Conniff (1959) 1990, Columbia[FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:E840FE9B94F5027FECE09C2D0597BF3BB290B7AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

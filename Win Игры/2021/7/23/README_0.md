@@ -19,8 +19,7 @@ City Legends: The Curse of the Crimson Shadow (2021) [En] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:61C43DE95449F9F947146F3CCC68A8ADC70BDC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Last Stop – приключенческая игра от третьего ли
 ```bash
 magnet:?xt=urn:btih:EB580B8B163BD48733EDC3BFEF95B595915ECBEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhammer 40,000: Battlesector — динамичная пошаговая ст�
 ```bash
 magnet:?xt=urn:btih:0234AA04EC28DAE4BB1161CA67A311D0CB8F30D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

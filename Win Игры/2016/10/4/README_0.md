@@ -19,8 +19,7 @@ Selma and the wisp - это удивительный игровой платфо
 ```bash
 magnet:?xt=urn:btih:2B3954E6570A82F19D0E9AFB00A6AF9E71E9752C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

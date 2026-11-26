@@ -28,8 +28,7 @@ Photographer - Edge Sessions 001 (2013) [MP3|320 кб/с]<Trance, Progressive Tr
 ```bash
 magnet:?xt=urn:btih:57283194215F93D6D1FB11DAA7AD9AB6AD8D6F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Eoront - Д'хаар (2013) EP [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:022EB66129F198B9452757315941DCBE809B7BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - Vocal Trance Temptation Volume 27 (2013) [MP3|~225 кб/с (V1)]<Vocal Tran
 ```bash
 magnet:?xt=urn:btih:FD6F5D2B3648B3E3584CCDD0BAF1B1DA2CCDDE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Kevin Hays - 2 альбома (1994 & 2011) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:0CD2B8990EC8034EE74A5F910237A9DF6AA97654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Gallery Stranger Dreams (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:C9CAC3DEA2103D3754C72F29B909FF90698274D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - House Pro V.34 (2013) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:46ED5173B29115237054082030318D73ECE434B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Jaimee Paul - Christmas Time Is Here (2010) [FLAC|Lossless]<Vocal Jazz, Christma
 ```bash
 magnet:?xt=urn:btih:48B5B07A8C8855C858343C4D2178C1153F279620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ VA - Lounged Out (2013) [FLAC|Lossless|WEB-DL]<Downtempo, Chill Out, Lounge>
 ```bash
 magnet:?xt=urn:btih:B2F4B1EC783D885B60D70DF2CC30D8C4806B8694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ VA - A dozen of the polar region from bsa51sv (2013) [MP3|320 кб/с]<Dance, Du
 ```bash
 magnet:?xt=urn:btih:409A46CB4884F036B6DDDC632749C71EAE25B422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ VA - Dj Compressor - Best 2013 Part 1 (2013) [MP3|320 кб/с]<House, Trance, Te
 ```bash
 magnet:?xt=urn:btih:93BB1D5547D877B4AB2551213EC2FFB1E7E4202F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +384,7 @@ VA - Клубные Новинки Vol. 356 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:97C9CA349871AEF49CB96CCC041DAA072A579C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +418,7 @@ VA - Le Beat Technique, Vol. 6 (2013) [MP3|320 кб/с]<Techno, Tech House>
 ```bash
 magnet:?xt=urn:btih:EE07039BA924182D471A774D3F8DA61CF4EA0B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +452,7 @@ VA - Underground Anthems 6 (Mixed By Liam Wilson) (2013) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:0620397AAFFFC7D508378B6AE829395C7E58E050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +486,7 @@ VA - Drum and Bass Pro V.27 (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:11507AAB141A9BFD85B5AABF4103A5208BB2B5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +520,7 @@ VA - Various Artists Vol1 (2013) [MP3|320 кб/с]<Minimal, Techno>
 ```bash
 magnet:?xt=urn:btih:16DA104A8C13FB99ADC3847EC5ED29E731F7F4B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92F293AA709785A65BE545193C05D4F908CC5AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:221CA416A517FFC0A6F29F9D8A8D14B501FC0FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4407540C177E6E39C56C6C8314F08D9F28114E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:826475B1BA3B9A01D7122ACF7E40438C367DED5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:861608A11A1D9D7AF90764D9ACA5C4EE0913460E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AF3D565D38344C6B4623404CB9FD18BE7D17DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +725,7 @@ Thomas Datt - Dead Machines/Narani (2013) [FLAC|Lossless|WEB-DL]<Trance>
 ```bash
 magnet:?xt=urn:btih:E3B352600870F7C793AB61F8BB5136053BF4C89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +757,7 @@ Alwoods - Long Life Forest (2013) [MP3|320 кб/с]<Progressive, Psychill, Ambie
 ```bash
 magnet:?xt=urn:btih:06A124013361EE85062F59252A1DEAF675DDFF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -814,8 +789,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:741EA46762A01B4746AD9A48F9D6ECAC7E4B37BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

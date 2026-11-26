@@ -19,8 +19,7 @@ METAL SLUG - классический экшен-шутер, сохраняющ�
 ```bash
 magnet:?xt=urn:btih:063576A9533107D6CE569617D763C499276248AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ One Boss One Fight (2024) [Ru/Multi] (1.10) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9608ECAB9E6A9375D0E61ACAB6A5EB29BD6DD1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Troop (2023) [Ru/Multi] (Build 20241125/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:08CF2BCBC446E57AE8313A547DF7F342F5D0A46B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DON'T SCREAM (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:18F10B11DBAC85B9A54D59883B0293E159C36DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Monster Hunter Stories - ролевая игра во вселенной Monster
 ```bash
 magnet:?xt=urn:btih:41FED8EFC22E8AEE20235B45521FD464735540E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Project Wingman - это игра-экшен, в которой вы может�
 ```bash
 magnet:?xt=urn:btih:A6AB90D43147CF7C98F2E48BA4CB7E41101ABCE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

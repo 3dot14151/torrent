@@ -19,8 +19,7 @@ Sports.ru для Android - это вся информация о спорте с
 ```bash
 magnet:?xt=urn:btih:FE3844D86C596F609B51631420B6E2E8BC3FC7A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:B7346DEB12BFA37ED1F6669921FB1526D1B93A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Photomath v8.36.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:04FFFF07FCE51306DBE37272C7DE0BE34B167269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2E19C1B6825526B0518CC5874ACBFF53664BABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Pencil Photo Sketch - профессиональное приложение дл
 ```bash
 magnet:?xt=urn:btih:1C6B95CCF25C8E619D29D91C5289F805C643056C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

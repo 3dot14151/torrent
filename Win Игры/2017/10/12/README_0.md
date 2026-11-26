@@ -19,8 +19,7 @@ Spirit of Revenge 6: Unrecognized Master / Месть духа 6: Непризн
 ```bash
 magnet:?xt=urn:btih:B27EC94B1FAD3A7C4475073829232F532DE16CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Divinity: Original Sin II — долгожданное продолжение з
 ```bash
 magnet:?xt=urn:btih:7A86CB3CB61A7F5D2D745036069CF324A9C870B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Artania (2017) [Ru/Multi] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:341F57C35BC5C9593AC778B81099078E6AE2CB90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

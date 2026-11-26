@@ -21,8 +21,7 @@ K-9 / Собачья работа / K-9 (1989) [1080i] HDTV
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

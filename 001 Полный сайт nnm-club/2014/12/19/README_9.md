@@ -28,8 +28,7 @@ Tell You What Now - Signs Of Life (2014) [MP3|320 кб/с]<Progressive Metalcore
 ```bash
 magnet:?xt=urn:btih:F56ED8581A2055B45F2EA4A39EDFC4CA6E30EE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Monster Tunes Best Of 2014 (Mixed By Allen Watts) (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:3CD1FB8775466A7B5A1FCA801034394EC300B19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - The Best Of Damaged 2014 (Mixed by Jordan Suckley) (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:1E4E1E7685C0E676E7973F003B1BFCA2320C0333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Axenstar - Where Dreams Are Forgotten (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:917AB9531FB96CCFEB9B3334E0EBC09D14BD0A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3408FC76430EBF3D323A93FA446AD13D158B02E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ VA - The Best Of Trancemission 2014 (Mixed By Feel) (2014) [MP3|320 кб/с]<Tra
 ```bash
 magnet:?xt=urn:btih:4F3E2B61B8FB75F069845C359B1CCF63D9DE3050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ VA - Trance Tattoe #54 (2014) [MP3|320 кб/с]<Vocal Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:0193FD68044CCE9317A59F44B365E2D85C0EC9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ Soundcritters - Biomimetics (2013) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:BE97A49C7E314813723224B2859F0C25DC2601D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:899D0BC6167E96B48AEEC47EDF24CF550FB9C823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E13443C6AAB39F3B5EFC09F80DBDC8918511B17B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ Igor Dmitriev (Игорь Дмитриев)Trio - In A Siberian Mood (1998) [FLA
 ```bash
 magnet:?xt=urn:btih:34F175EF280D5261EB38E61148E0A52F1810C44F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ Boomerang - Boomerang (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5416FB77B57BDDE779CE8BC41EAB16A6F2C2D344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ Switch. - Aeon (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:3B1DDFCDC7243200E1FE9857E89714E3C515BE4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ Kehvo Kings - Fooling Around (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E67EC589EDC4024D425CA8FE3C2416E8037415CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ Christian Werge - Son-Ia (1993) [MP3|320 кб/с]<New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:FA238716A7C73D9F73019DA299F37E288062499C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ Frances Madden - If This Were A Dream (2014) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:930A3389861F7C3096607BB09E653BE07835E9BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6D942CD0A1F8E3CCCFB2BFECF18892F676F4EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6861DF68D8836C6EBB3B3F6F81AA8E173DE13213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ Conway Twitty - Conway Rocks (2003) [MP3|320 кб/с]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:9F31DD44FF1E217A9728B278D91D00724C873C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +630,7 @@ Louis Armstrong - Basin Street Blues (1989) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:D8393DD3CE9AB06ADAC01EE2061650C011727D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +664,7 @@ Shogun - Dragon (2014) [MP3|320 кб/с]<Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:26BD017AF10B37341A9C284DFE98A88A0B4A8811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D372F7D0112F2BF7EDCF0173B7DA0681C14C40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0095C4022304ABC3EA7B659BD4ECC7716D2028F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE9F777FF7B631015082905A7F9A6BA53D9BB3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3E2DC451C63701B59C68D49A6CDE658E16BB714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

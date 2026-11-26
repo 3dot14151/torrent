@@ -22,8 +22,7 @@ VA - NOW Alternative Classics (2020) [MP3|320 Kbps] <Indie & Alternative>
 ```bash
 magnet:?xt=urn:btih:D5DA294E74E485E01EE09FE28334EF13CB0275D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trivium - What the Dead Men Say (2020) Japan Bonus Tracks [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:F9B1EAD12F53760994B041E25FB70D59C2433D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Wasted Maniacs - Night Of The Maniacs (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard
 ```bash
 magnet:?xt=urn:btih:03C567BD4DB91B414BF79FC5C5B803A6C06ADA38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Francis Rossi - The Way We Were Vol. 2 (2026) [FLAC 24/96|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:C8461D5B9C44F20CB7A8AA536BF15C9B25DE7436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

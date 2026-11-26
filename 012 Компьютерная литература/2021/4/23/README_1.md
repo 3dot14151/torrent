@@ -19,8 +19,7 @@ Wei-Meng Lee | Go Programming Language For Dummies 1st Edition (2021) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:C7F47AE1B1E22E45E8A9A9FEB358731C8C5C2B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Prog
 ```bash
 magnet:?xt=urn:btih:5D1B0A3AA3794568C69DFC9A3F9BDF9668CFB0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Matt Zandstra | PHP 8 Objects, Patterns, and Practice (2021) [PDF, EPUB] [EN]
 ```bash
 magnet:?xt=urn:btih:7DB4F9DDE25CEE645C597A3CE4C51E75E840595A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

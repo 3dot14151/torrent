@@ -22,8 +22,7 @@ Storm: Frontline Nation - военная пошаговая стратегия, 
 ```bash
 magnet:?xt=urn:btih:8AC6D6EE89E05F7A323912C57E3BD2E7D5D93A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

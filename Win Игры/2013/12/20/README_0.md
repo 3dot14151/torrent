@@ -19,8 +19,7 @@ The Great Gatsby: Secret Treasure (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:B1532A45076D3059FE01DBC3783FC8AF019D6906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A118649F6672C580D86FE2B88D3F68A77FACBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery of Sargasso Sea / Тайны Саргассова Моря (2013) [Ru] U
 ```bash
 magnet:?xt=urn:btih:A15E1633E1A75D5907B9A09A8EC4AD5C96075022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Total War: ROME 2/II Caesar in Gaul (2013) [En] (1.0 Upd8/3dlc) Patch RELOADED
 ```bash
 magnet:?xt=urn:btih:CA970E51F356E7386C168D23806814521C96BD57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ B5. Отлюбил (3:26)Жанр: Рок / АвангардПродолжите
 ```bash
 magnet:?xt=urn:btih:A853DD707E8A06F8FEC03C6576F50A485DC533DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

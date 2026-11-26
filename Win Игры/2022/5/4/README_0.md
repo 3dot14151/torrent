@@ -19,8 +19,7 @@ Partisans - тактический экшен с элементами выжив
 ```bash
 magnet:?xt=urn:btih:50E0DA1E01873D3798D9A9C057AF28AEAF9D090A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

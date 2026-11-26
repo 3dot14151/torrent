@@ -21,8 +21,7 @@ Pic-a-Pix Puzzle World 6.3
 ```bash
 magnet:?xt=urn:btih:40A47DF2BB3BFFF9CA596910820073D7909EE814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Photo EXIF Manager позволяет просматривать и редакт
 ```bash
 magnet:?xt=urn:btih:D28A25D11732C7B6AC54339EFDB05D57D6AFD3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

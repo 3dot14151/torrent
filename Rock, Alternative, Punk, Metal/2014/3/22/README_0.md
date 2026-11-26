@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:C3D24851993708AC45F7001F5B1001604D3B1B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Grimner - Blodshymner (2014) [MP3|320 кб/с]<Folk Metal, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:95626A43E1813C5A7657CE915FD9F54A6B2F79B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Free Spirit - All The Shades Of Darkened Light (2014) [FLAC|Lossless]<Melodic Ha
 ```bash
 magnet:?xt=urn:btih:6F912927DF1FB0FAB1D65D4A52F1F5E62660AB4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Asia - Gravitas (2014) [MP3|320 кб/с]<Rock, Art Prog-Rock>
 ```bash
 magnet:?xt=urn:btih:6C5DFBFB2DD2C6273D52B6455BA1F2D14D9B4DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ CD1. AC/DC s Music Celebration
 ```bash
 magnet:?xt=urn:btih:0682CED6131C5298D681402AE0E40D8A95066665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Asia - Gravitas (2014) Special Edition [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:2A439ABEF2F3CB73ABA3745BC4E837105E4A25E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C346CC4D4E551C6D13A771E18FA2518B1C9EF19B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

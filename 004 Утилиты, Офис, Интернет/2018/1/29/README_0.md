@@ -19,8 +19,7 @@ Bigasoft Video Downloader Pro - популярный онлайн видео з�
 ```bash
 magnet:?xt=urn:btih:662408E85CC4B1AB6E9ABCD810D7C1BB45B68041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FonePaw Android Data Recovery - эффективная программа для
 ```bash
 magnet:?xt=urn:btih:ADDAFEAC3F5A327B05D9D4D7E353EE39E590C1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

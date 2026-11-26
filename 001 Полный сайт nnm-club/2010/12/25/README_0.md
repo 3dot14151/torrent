@@ -18,8 +18,7 @@ VA - Новогодний Вечер 50/50 (2010) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:47531DD46D9DDB3B5E6335A7914486A26753857C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81100186EAE6D4FD29FAABA11C311F1F491006B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40D9A5D7CCDC44C80AAFB75D993FB30AFC24A465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ S.U.N. Project - Into The Sun (EP) (2010) [MP3|320 kbps] <Psytrance>
 ```bash
 magnet:?xt=urn:btih:E7A00B53BB4AE4C9D1A3B52CA1806D4734790690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Танцевальный Рай 26 (2010) [MP3|320 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F345C6F3304E35EEF8C65E14BFEE562FE6C62DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BB1161A33455C5CBE5B2764FB544DBE13D63851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - Все хиты зимы 50/50 (2010) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E7743A9B85FA30A09441C0716171D79494734DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:369EF2183FB0B425BD467D288FDAE9D5335FBF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Viper inc - Я Бог (2009) [MP3|320 kbps]<Modern metal? Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:5491849DF5E658C8B93B1A0569EBBA391A14CD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ VA - На ресницах твоих белый снег (2010) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:A068EDB5534011CED5FED155C6E2CD0B1C73E1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - Союз Русский Новогодний Выпуск №60 (2010) [MP3
 ```bash
 magnet:?xt=urn:btih:9383116E68D4AFBE5C44F5BFC2570C8216D09F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Radiocent - Бесплатная программа для прослушива�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Armin van Buuren - A State of Trance 488 - Top 20 of 2010 (2010) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:7303043CA04A7C79329C3F2A3059B4E641E88F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ VA - Новый Год С Музыкой В Дорогу 50/50 (2010) [MP3|256 k
 ```bash
 magnet:?xt=urn:btih:939731D4FEE26ED22576E7A708DC8EE41EA859DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ NG: Школа охоты для косаток / Orca Killing School (2009) TS
 ```bash
 magnet:?xt=urn:btih:0A93A114120AE0DDC83105EBDB866A15B5806A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64ADD7B8AFD6A4C2134C78ED8F5BE1D16AC24E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ VA - A State of Trance Yearmix 2010 Mixed by Armin Van Buuren (2010)  [MP3|320 k
 ```bash
 magnet:?xt=urn:btih:CF8DAEBE0447B675236012985D6744A3D967ACF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Bob Dylan - Playlist: The Very Best Of Bob Dylan '60s (2008) [MP3|128-192 kbps]<
 ```bash
 magnet:?xt=urn:btih:CEF3FCBB6976ACDFA87F2D24FBBCA18C9BD9BC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ VA - Союз Пионерский №1,2 (2010) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:EC4FB26A4D5FC08A86239339917A3CA7EF5C18BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ lynda.com | Flex "Hero" and Flash Builder "Burrito" Beta Preview [2010] [EN] PCR
 ```bash
 magnet:?xt=urn:btih:516D7479225E97583F53452B801BA0EBEF5EDDCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ Side A
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9F1BCE23602970F304BC5E3C5061B1CC9735AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

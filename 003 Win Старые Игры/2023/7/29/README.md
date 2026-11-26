@@ -19,8 +19,7 @@ Star General (1996) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:38DE8C00AEE2115EB0DD83221208B36D767848DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 ```bash
 magnet:?xt=urn:btih:519E01CB8B61CE3ABF2F528825E2A7F6F270539C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark Tales 2: Edgar Allan Poe's The Black Cat / Страшные истории.
 ```bash
 magnet:?xt=urn:btih:19E8AA351D46431B26E51ABC3450925B512BF78C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Orcs Must Die Дилогия [Ru/En] (RePack) 2011-2012 | R.G. Механики
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Hero Academy - асинхронная пошаговая стратегия от
 ```bash
 magnet:?xt=urn:btih:F8B143A36AE3A85D164A3CCAB28E5F0815C4A556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Sniper Elite Collection [Ru/En] (Steam-Rip/1.0.0.0/2 DLC) 2005-2012 l R.G. GameW
 ```bash
 magnet:?xt=urn:btih:4FAEC9C25CC078DE4249DC330A357FC92767BFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Rigonauts - классная аркада с реальной физикой, г
 ```bash
 magnet:?xt=urn:btih:1B4A5D551E06B274B0D650009B611C9D56B91286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Serious Sam HD: The Second Encounter - Complete Edition [Ru/En] (L/Steam-Rip/1.1
 ```bash
 magnet:?xt=urn:btih:E983E3CA0A781A1C21C3B98D465D6A815224C294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

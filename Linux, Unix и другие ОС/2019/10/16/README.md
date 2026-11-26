@@ -22,8 +22,7 @@ P.S. После установки в Домашней Папке снять г�
 ```bash
 magnet:?xt=urn:btih:ECC0362B8210D2F4636ED4C731A9DE71E152946C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

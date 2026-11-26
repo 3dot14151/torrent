@@ -19,8 +19,7 @@ Lure of the Temptress (1992) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6F4708C0E6B160BE8A552A8F54C613FF221D614D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

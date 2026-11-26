@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:461B82FB11A3AB5104510E98A2F63842E4AC524E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Skylanders: Imaginators (2016) [WiiU] [EUR] 5.5.1 [WUP Installer] [License] [Mul
 ```bash
 magnet:?xt=urn:btih:39A1F3F91D2FFBD644B7ABC73DBFE875F3EA8C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Mafia: The City of Lost Heaven / Мафия (2002) [Ru] [macOS WineSkin]
 ```bash
 magnet:?xt=urn:btih:2C7F412A7A6270A26DB26B1CEBD76F8551E198D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D544D3E21F5BB6A008AA7C7716937D69E7A6795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAB6D13F6232C07BCFA3CFF21FADC5BD283AF1C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ ZiL Truck RallyCross (2017) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:062E5902F1975B15DFD5832FBED29229F4961B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0EFB0355493DEA7E11EA4B8EE2517D34D191294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Hide Folders - это удобный инструмент для сокрыти�
 ```bash
 magnet:?xt=urn:btih:4DD1CFAE7AA8D7801E35C10891F02B19F81FC370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Profileschool | Основы аналоговой фотографии (2017) PC
 ```bash
 magnet:?xt=urn:btih:83A29FB8CC3E743FB1E20A1271A17D40E65D2D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Red Giant Effects Suite 11 представляет собой набор из 9
 ```bash
 magnet:?xt=urn:btih:7F1A5703E12206C420B4DA46547C5E8A791C4D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.18/dlc) Repack ivandubskoj
 ```bash
 magnet:?xt=urn:btih:A342085DDA195A239F3DA780A352C2703EB23F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Navitel / Навител Навигатор v9.8.3 RePack для карт рел
 ```bash
 magnet:?xt=urn:btih:C4FB7F2D43D26C805698C76DABF28BE11855EA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

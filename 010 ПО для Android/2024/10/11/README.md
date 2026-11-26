@@ -19,8 +19,7 @@ IPTV Pro v8.2.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8D43B9E45DCAED5879EDCBE81BC16066015BA276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sabayon 17.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ```bash
 magnet:?xt=urn:btih:CCEE567DE968E1F0530A4C874C9417E7F9237E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maplesoft Maple 2017.1a Build 1238644 [x64] (run)
 ```bash
 magnet:?xt=urn:btih:357CDD9D9A67453A98EA06DAC098E79B8A53EE14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

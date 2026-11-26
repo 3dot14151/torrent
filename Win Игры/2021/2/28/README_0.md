@@ -19,8 +19,7 @@ FEIST (2015) [Ru/Multi] (1.4.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DDF8B159E547DCBB3F30C3682BECA836A03DBD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

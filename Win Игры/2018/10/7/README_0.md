@@ -19,8 +19,7 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:4B198A8965DCFA65011E20D31D3010FCC8481F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Battlevoid: Harbinger – это сложная игра в жанре косм�
 ```bash
 magnet:?xt=urn:btih:46C3D1151D55B816B0AD15F5ED87F34F3568732C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

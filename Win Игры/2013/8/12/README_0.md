@@ -19,8 +19,7 @@ Untold History: Descendant of the Sun Collector's Edition / Нерассказа
 ```bash
 magnet:?xt=urn:btih:7E1350168C7699EF0516FBDBEE85A286FC990442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Natural Threat 2 / Ужасы природы 2 (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:33F1C33B7DB8142FFF7E7DF2F196BCB641A89108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Patrician IV – это экономическая стратегия, дейс�
 ```bash
 magnet:?xt=urn:btih:CC3669E831F018DEEC8BF7A1B029AAD567A9D27F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Cat Lady / Госпожа кошек (2013) [Ru/En] (1.2) RePack Sash HD
 ```bash
 magnet:?xt=urn:btih:255BA8BEDDD2CFAA9E4B86019E987E88991F48EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

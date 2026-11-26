@@ -22,8 +22,7 @@ Bee Gees - Size Isn't Everything (1993) [FLAC|24Bit/96kHz] <pop-rock>
 ```bash
 magnet:?xt=urn:btih:ACA23A69194F656517C72AC23134A407C7EEB865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

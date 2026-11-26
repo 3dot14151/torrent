@@ -19,8 +19,7 @@ Vampyr (2018) [Ru/Multi] (1.1.7/dlc) Repack SpaceX
 ```bash
 magnet:?xt=urn:btih:8A3EB5A2B591614A4E5590B32D13C67C2BAB7C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crash Bandicoot™ 4: Это вопрос времени представляе�
 ```bash
 magnet:?xt=urn:btih:D4624917265114609C6BEA26B093A861F430D3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

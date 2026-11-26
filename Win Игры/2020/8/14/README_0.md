@@ -19,8 +19,7 @@ Labyrinths of the World 12: Hearts of the Planet (2020) [En] (1.0) Unofficial [C
 ```bash
 magnet:?xt=urn:btih:CF1D6B074E7DD2C127D6B399F3506140A79D83D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

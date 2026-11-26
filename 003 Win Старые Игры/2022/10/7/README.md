@@ -19,8 +19,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:0E5345CAAFB3D97FBA5FEE09E010F6B583574017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

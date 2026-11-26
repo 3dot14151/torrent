@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:F2F80A73B6DE0F3FDA2563D8D723D52F6E14835C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65D11358F8026734568EDF68A8F98EA02AF83584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:789CEF88369865E5825CE4D21A61C1B8CD8152C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:310518A57906D9F4231F8074D89F837900A4DD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Alex & Chris - Abstract (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:42A9E4DF5CC1BD4C12F6A408AC6A5BAA5FA997D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Guest Mix Ilya Atomiq:
 ```bash
 magnet:?xt=urn:btih:F8299A1F77D6359FD31A29C67188CA58DFA8B04F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAD0DC6719F3DC4906CB6A69BC709EAAFA6BC751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67E126ACF7A3F5531A0B2B62F5E3AD910A7A1FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:480CD8F05E8E99BDF37E09404FF979EC25B39183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C47D2A737842BAB8214B8676DB011A764E0C169D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Re:set - Resynthformation (2014) [MP3|320 кб/с]<Dubstep, Electro>
 ```bash
 magnet:?xt=urn:btih:9D2E67775EE3FD1417E8BDAF925723C610BC7432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ VA - Ibiza Sunset Trance 2014 [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:04393DB6C1067A1A01A1328790E76304D37DC502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Easy - Chill Out Selection Vol. 4 (2014) [MP3|320 кб/с]<Lounge, Chillout
 ```bash
 magnet:?xt=urn:btih:3D15A4E8847E163B3760FD7B8BFB2008CC2E7D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F53B53037348BFCFD269A9303531565FA99ED87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7831D2B5BE8D2D573968915D4F75D3AC4299F669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Leif Shires - What a Wonderful World (2009) [FLAC|Lossless]<Jazz, Trumpet>
 ```bash
 magnet:?xt=urn:btih:CF5CAAC3232FFD62AA22FEABAED3D7B4DFF52356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ VA - The 50th Release (2014) [MP3|320 кб/с]<Electro, Acid, Dubstep, Noise>
 ```bash
 magnet:?xt=urn:btih:0E43D8B1746330CADD339FD592FA531F1159AD4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E09D40A0C3E6AA6D203893A6CB9DDA522BF03CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +560,7 @@ Leafnote 1.03 [En]
 ```bash
 magnet:?xt=urn:btih:D723FD8A840C78A9AF0A4A3A5BA8E3ECAA275BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ Digi G' Alessio - Cirque de Poche (2012) [MP3|320 кб/с]<Bass music, Trap>
 ```bash
 magnet:?xt=urn:btih:3C2BDBA0C5473DCAFA8DB0ADD424DB4B9B65E03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A17B1B6FFBE927F69202FF5D630C457F5AFD880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +655,7 @@ Khotin - Hello World (2014) [MP3|320 кб/с]<Electronic, Deep House, Ambient Te
 ```bash
 magnet:?xt=urn:btih:EAA3718B1FB068A8956959E13A9569D26EB72F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ Scalameriya - Frostbite EP (2014) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:0F0EC4F04E1E1C3BD643D8C2306916EB46DF434E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:277E256DF74CC0BC715A663E37AAC4316717837F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86ED423FC4EE97B8DA09AE747289B2529E7B49FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

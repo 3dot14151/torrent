@@ -21,8 +21,7 @@ Tracker — восьмой сольный студийный альбом бри
 ```bash
 magnet:?xt=urn:btih:6FC3415C8A6125F97E81A46578E483192425E70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

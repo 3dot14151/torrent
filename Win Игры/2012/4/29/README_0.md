@@ -20,8 +20,7 @@ Xbox LIVE Arcade хит "Toy Soldiers" приходит на PC!
 ```bash
 magnet:?xt=urn:btih:C270C45761171B3A07BAE5EEE8BC0B89FF07C639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Nitronic Rush - безумные гонки на выживание с неон�
 ```bash
 magnet:?xt=urn:btih:A12299B91D7B165B1C5B3B77E2DD326297A56AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Anathema - We're Here Because We're Here (2010) [MP3|320 kbps]<Atmospheric rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Mark Knopfler & Emmylou Harris - All The Roadrunning (2006)[APE|Lossless]<Countr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Nyktalgia - Nyktalgia (2004) [FLAC|Lossless]<Black metal>
 ```bash
 magnet:?xt=urn:btih:DF6D7CFADD2DE51675FC046845498FEED8434973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Cremated Lives - Bloodluster (2008) [FLAC|Lossless]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:0D2D5BA8E65B83364C3CEEC59A90162FC23862FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Medea - Декаданс (2008) [MP3|320 кб/с]<Sympho Black Metal>
 ```bash
 magnet:?xt=urn:btih:EED5A3F4C604842AE2038F8815255EF3456EA1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Dragonfly - Atlas (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:138108C49579623F22312B6EA35B8B77DC2D195C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Control Denied - The Fragile Art Of Existence (1999) [FLAC|Lossless]<Power metal
 ```bash
 magnet:?xt=urn:btih:174EB4200A23D4F4CADADE5C0382720A755F741B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Latexxx Teens - Cold Heart And Old Scars  (2013) [MP3|320 kbps] <Industrial Rock
 ```bash
 magnet:?xt=urn:btih:908E85A26C933E9FB8ED0895A5ADF2C3D4AB2EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB7ADBD4DA8C95AA01549B97F49DEFD6F001BB6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Paul McCartney - New (2013) [FLAC 2.0 96/24 |tracks (WEB-DL)]<Rock>
 ```bash
 magnet:?xt=urn:btih:FC425D7FD174F75C3A4C1FED107472C9D9A4978D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Scorpions - Best Love Ballads (2009) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:24FE721D2A2CCE62AF1DDA8E002DB12B3735D49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D00BE494FFB6066267EE1CB7A2850F58C615BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

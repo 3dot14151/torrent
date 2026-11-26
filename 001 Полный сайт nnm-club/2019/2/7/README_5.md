@@ -22,8 +22,7 @@ VA - Jazz In Texas 1924-1930 (1997) Timeless [FLAC|Lossless|tracks + .cue] <Dixi
 ```bash
 magnet:?xt=urn:btih:C818AE69E5FDB09051AEFDAEFDEA070E73D228B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chris Gall - Room of Silence (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary 
 ```bash
 magnet:?xt=urn:btih:091CFB2E3DFF232E6B2873E27691F72B69AFFD51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Twitterrific - Простой в использовании, Истинная п
 ```bash
 magnet:?xt=urn:btih:6B53EC9F5F6C454DCE3EEEE15F6D4C7180E72EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Mohlao - Ambrose (2009) Meanwhile [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ele
 ```bash
 magnet:?xt=urn:btih:556E2B94C5F45B1DC1D0A3ACD26EA165DE253124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ TaskPaper - простое приложение для создания и ве�
 ```bash
 magnet:?xt=urn:btih:830FC45F719CE26D64BC841B1E4B552DED15E272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Tension (GER) - Currents (2019) Be Sure [FLAC|Lossless|WEB-DL|tracks] <Techno, A
 ```bash
 magnet:?xt=urn:btih:FF69D1F8A2D489385CFE189B78EB3B82A3BB1C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Dirk Serries - Epitaph (2018) Consouling Sounds [FLAC|Lossless|tracks+.cue] <Amb
 ```bash
 magnet:?xt=urn:btih:71934AF2B9EE25664DD945BABD0B33A70526B035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D1D1F4C38ADF9D186409140B6B5632DFC298499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ GraphicConverter 10 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:8A7187A4424C8A426A2407D18ED08EFFAC97CAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Wondershare Recoverit - профессиональное приложение, �
 ```bash
 magnet:?xt=urn:btih:C43EE689F8FA44CF8F2861830BA815DF63C910DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Money Pro сократит расходы и покажет полную кар�
 ```bash
 magnet:?xt=urn:btih:434F4FDA109C9ADB422AC38CFEA95E1148F54740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Instaradio - слушайте любимые радиостанции или о�
 ```bash
 magnet:?xt=urn:btih:62F1BFD356ED588B080C118523B4E1F02EE0F142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1F0C9CEB2AB73E66A7EEFB69A4F623F380483E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E111CACA64FAD6C589C45A7A13A5CD18B9599B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB9C1F6AFC9B6F69BD6C04CC92F56F73A9A2B470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop 
 ```bash
 magnet:?xt=urn:btih:E3081A86161D24E0B7E325CC9B930992373D77AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Registry Life 4.21 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1553E933E2DE22374075610A9BE9B82BD20569E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Tyrant Eyes - The Darkest Hour (2003) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:EFA76C75CA7D3EFB2416B8910A016AF9EB620F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ The Veer Union - Decade II: Rock & Acoustic (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:122C28B6614D49B7A627690BF3057E7F92046884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 ```bash
 magnet:?xt=urn:btih:E0A46175BAF3FF53DCCC02B3E4DDA06DCB5BAF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24F2323023DFCD5FF89767AD45C3EA74C46B1296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Allavsoft Video Downloader Converter - профессиональный инст
 ```bash
 magnet:?xt=urn:btih:CCDB5BA75F83E50D9ED1078D1B41BE3A24D3124A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ Comodo Dragon 72.0.3626.81 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F42AF5D4EB9D7616C7031F6E10E9E3CA7068F567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ WinSnap позволяет делать скриншоты экрана мони
 ```bash
 magnet:?xt=urn:btih:5E3BFC9062A78AD3EF13615F0CD6EE0A3ACDA17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C61642E6C5C37A0D24DED972C4F227443D7CEE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ VA - RnB Soul Mix: Hit Channel (2019) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:739C0CE94B8B0069B54280129282570A75AAA845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

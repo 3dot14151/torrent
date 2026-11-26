@@ -20,8 +20,7 @@ The Simpsons: Hit & Run (2003) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:55E3478D30B45FEDA3F1313D46F47361ACF22AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

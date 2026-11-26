@@ -21,8 +21,7 @@ Allman And Woman - Two The Hard Way (1977) (Gregg Allman And Cher) LP [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:6EDF238C5208E55348A6C8B01F8C5779FF65933C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Auslogics Disk Defrag - это профессиональная версия к�
 ```bash
 magnet:?xt=urn:btih:04B76F17DEAB7E081719F3032E4CE0B2F9818BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C350BBB13595E3E01623047955F1BA713665936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:371F047AA2D2879327D0C9B0BF186A5FB968814E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Extreme Picture Finder - программа для автоматическог�
 ```bash
 magnet:?xt=urn:btih:13E6F9A9B301AF817F78E307985E9D3E527056AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Auslogics Registry Cleaner поможет вам избавиться от ош�
 ```bash
 magnet:?xt=urn:btih:09A65EDFC6092C208B2EA53ED36C8C3B297A998C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2453A8450F2EA2DD47893E3670E9F251D8A8ECC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FDEE2CE30D2207D06F5E89E4CB55C5BE9DF74F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:948DD72094BD5C172F0AA91E040B2B1F8E274575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B77B510EF6DD5278D93EF6DA4E9BB7DCBF395C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD03430ED66CF8E4D309E8EDE6E433C17C67B347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Shakra - Mad World (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D3F990668ABED5114A5E7355825538716939468A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ ActivePresenter — программа для создания презента�
 ```bash
 magnet:?xt=urn:btih:735DCAB939624F9A664FCFE46C3CBF5FDFB9A6A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Auslogics Registry Defrag - программа для дефрагментаци
 ```bash
 magnet:?xt=urn:btih:4FEDAB039604108C7EDD8CF0A1997C3D279499DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Dirty Pair (1987) | Грязная парочка [1987, OVA, 10 из 10] BDRip 
 ```bash
 magnet:?xt=urn:btih:35B5B49C35662E297E0926B1032AA152C66E19EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ ExpanDrive 7 v7.5.0[En]
 ```bash
 magnet:?xt=urn:btih:576927856860141287E247DFF029BB1FC45ACA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Dirty Pair: Lovely Angels Yori Ai o Komete | Dirty Pair: With Love From the Love
 ```bash
 magnet:?xt=urn:btih:638335570B6FD2B851E9AEA7C731F11E73647FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Sergio Santini - Love to the Piano (2017) [MP3|320 Kbps] <Instrumental, Classica
 ```bash
 magnet:?xt=urn:btih:8155E48AD8B0EA739E926CE28D74ABBF13C64B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D35A9BAE707A35584C1D4173C6627A083D86168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:077E4C50F729807AF462FCE66F8599222F255AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1EA20E38E704346AEDC4E06563FC5E4D9693327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ Comodo Dragon 80.0.3987.87 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6B894F3C1B7BAC8E94226BA6A0BD509396EC708A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ Artweaver 6 - это полнофункциональный инструмент
 ```bash
 magnet:?xt=urn:btih:E185788201FDBC672FBD9F6B0982249A27E6A3CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ Dirty Pair: Project Eden | Грязная парочка: Проект Эдем 
 ```bash
 magnet:?xt=urn:btih:3036A5D8A39B3CC81F25DD2AE6E849B97FB1F21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A5ECA86C42680B058F81919ACCB8DF3D8000F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ Dirty Pair Flash | Ослепительная грязная парочка [199
 ```bash
 magnet:?xt=urn:btih:E1AB3560036B5FAA297B3038DF43184398AEFE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

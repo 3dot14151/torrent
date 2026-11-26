@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:263AD522CD15CA9FB2128C700082A307D4B67AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 ```bash
 magnet:?xt=urn:btih:0ADB52A63DC15AB84CBAD4787B99F106FF167FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Left 4 Dead - это классический survival-horror, действие 
 ```bash
 magnet:?xt=urn:btih:785A9ED4ED832E7600D751407A9E3C073DA6C89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1128.ffO6.pc/dlc) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:5E87BA1D959E5DC631B83D63F121CA997684FD9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Gas Station Simulator – симулятор владения собственн
 ```bash
 magnet:?xt=urn:btih:1D12527A910C8F48E550BB20DC6A7F658CAD5E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Icarus (2021) [Ru/Multi] (2.2.31.130582/dlc) Repack seleZen [Complete the Set]
 ```bash
 magnet:?xt=urn:btih:C2D6235744E81E61896124FC81932262BEE50573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Lords of the Fallen приглашает игроков в мрачный мир
 ```bash
 magnet:?xt=urn:btih:0C33C33C8B3BDE7439A67BC66E9E90F062DB3AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Roboquest - это динамичный рогалик от первого ли�
 ```bash
 magnet:?xt=urn:btih:4E27A02FBDD0015E90CD6B60C9D8D1BD0417E601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Slackers - Carts of Glory - это гоночная адвенчура, кото
 ```bash
 magnet:?xt=urn:btih:C9039E3C629E0504FBDA6AC79D8DDEC0E4E33E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

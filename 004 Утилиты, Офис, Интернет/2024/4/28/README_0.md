@@ -19,8 +19,7 @@ WinPaletter 1.0.9.3 Standalone [En]
 ```bash
 magnet:?xt=urn:btih:400AB55548A5E4C171D793F2817774ABDF2833F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:BF94E67F4D2D60701CC5DD5A2D9C320055235FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

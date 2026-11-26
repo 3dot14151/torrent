@@ -22,8 +22,7 @@ Uriah Heep - Return To Fantasy (1975) Japanese Edition, SHM-CD, Reissue, Remaste
 ```bash
 magnet:?xt=urn:btih:E15D3F2DEB4261E9D0433BE077B4A8EED5E83884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Uriah Heep - High And Mighty (1976) Japanese Edition, SHM-CD, Reissue, Remastere
 ```bash
 magnet:?xt=urn:btih:69811D9E53021846B42687F4F322E88A8FD5FBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Corrs (студийные альбомы+Unplugged+Andrea Corr) [1995-2007] 
 ```bash
 magnet:?xt=urn:btih:C10241EAE02DEDCCDEE07D377D267823A90B8303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mental Brake - First Of All (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:46B25091BDA9FD505CACBF964C4F46B0F9C572C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lamb Of God - Into Oblivion (2026) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:3FEECDAC89C0704D14DE87E3FB63D4762295E674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sable - Simbolos de Rebelion (1986-1993) Gadir 2021 [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:29F781BA21DE632E7DBDE86C6F0652CCE0564143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:D90E1E7C9943516A540CB5C2F854B40F349B6239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Moonspell - Far From God (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Gothic Meta
 ```bash
 magnet:?xt=urn:btih:AA671B9266CB870E1C312B3CF6407533A6EEB978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

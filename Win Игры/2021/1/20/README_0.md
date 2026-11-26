@@ -19,8 +19,7 @@ Battlefleet Gothic: Armada 2 - это новая стратегия в реал�
 ```bash
 magnet:?xt=urn:btih:37DC68B10EAD2C7DB92795F6B5220A4D22A6D11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Long Dark - хардкорный симулятор выживания в б
 ```bash
 magnet:?xt=urn:btih:AE44E314CB3A2772DB506497522DECC39C7DCB06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

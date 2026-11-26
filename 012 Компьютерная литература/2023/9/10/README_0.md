@@ -21,8 +21,7 @@ Rohan Banerjee | Hands-on TinyML (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:42B27A42B6BE7B677556A5B50FF1F10C67C34216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Justin Jenkins | MongoDB for Jobseekers (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:9D53E6F0921F6136217A2DFFBB2AF3028376E1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ David Gonzalez | PostgreSQL for Jobseekers (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:C28B27B54F2A8A4EF91CD95F4456A94E757BAA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6340DA99BCC5F4BBA0540D793B5EC2C0CD5C164A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

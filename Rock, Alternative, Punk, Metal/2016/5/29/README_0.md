@@ -22,8 +22,7 @@ Mudcrutch - 2 (2016) [MP3|320 кб/с] <Rock, Country Rock, Folk Rock>
 ```bash
 magnet:?xt=urn:btih:F012C5AFC0534CD1E60A560504010233B94C3AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Girls! The Ultimate Female Rockin' Rollin' Jivin' Album (1990) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:E1D7A276DAFD82D56B1B59BAF684F07ED523D6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Monkees - Good Times! (2016) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:C2C5E23618BC320DB3A050ECB00E5759CBF096D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Queen - News Of The World (1977) 1993 GoldCD Reissue, MFSL UltraDisc II [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:CBC7757D5A08B7789B4E9060AE15028355480B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

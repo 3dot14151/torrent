@@ -21,8 +21,7 @@ Ziggurat - это dungeon crawler от первого лица, в которо�
 ```bash
 magnet:?xt=urn:btih:0E3B839289527013DC8D2E39C114698B6BDA4F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

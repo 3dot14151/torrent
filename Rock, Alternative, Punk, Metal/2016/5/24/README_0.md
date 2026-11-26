@@ -22,8 +22,7 @@ Savior From Anger - Temple Of Judgment (2016) [FLAC|Lossless|image + .cue] <Powe
 ```bash
 magnet:?xt=urn:btih:E9591441C4AE854C422F21BCC74F5EC9ACBD6397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Seventh Veil - Vox Animae (2015) [FLAC|Lossless|image + .cue] <Modern Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FA73EA452D07253AE1233AEC7F164F18C8D0D175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Illnath - Second Skin Of Harlequin (2006) [FLAC|Lossless|image + .cue] <Sympho M
 ```bash
 magnet:?xt=urn:btih:211BD055C05A4DA33523522EEDF844177156D0EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The 69 Eyes - Universal Monsters (2016) [FLAC|Lossless|image + .cue] <Gothic Roc
 ```bash
 magnet:?xt=urn:btih:3D1F45BB41F34521D6527056C9256ABBC7761450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Stratovarius - Best Of (2016) 2CD, Remastered [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:53010A352BCC5182D0A7451B9314FAA366E0CCDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Catharsis - Антология. Лучшее (2016) [MP3|320 кб/с] <Power Met
 ```bash
 magnet:?xt=urn:btih:2205D0C21B854699FBB431678208B3A04E14E495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Architects - All Our Gods Have Abandoned Us (2016) [MP3|320 кб/с] <Metalcore,
 ```bash
 magnet:?xt=urn:btih:3BE461DDB86171F8401C8AE9C537D3509E7B4757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

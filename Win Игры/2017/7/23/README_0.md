@@ -19,8 +19,7 @@ Turner (2016) [En/Es] (1.5) Repack Other s
 ```bash
 magnet:?xt=urn:btih:12B56B8872E7EE452037E477E95AE672CDCDAAC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phantasmat 7: Reign of Shadows / Фантазмат 7: Власть теней (
 ```bash
 magnet:?xt=urn:btih:75F15CE4F9A550FE3908B1BB5F63BEC0A0A1271C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shadow Bug (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:82E314D7137CB6AAF8DFF5187E8CCB5139235A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Banner Saga 2 продолжает события предыдущей ча�
 ```bash
 magnet:?xt=urn:btih:D09ED55D9542B1B9745CDC6713EB9D632478B6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

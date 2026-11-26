@@ -21,8 +21,7 @@ Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
 ```bash
 magnet:?xt=urn:btih:756AF940DCCA31F94F3D32904F8AF583AA034F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0B392441536C1BBAFF7A2B028E968C1DEB45F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E969DDEA37F9C74A43F30C3D29AB27E213DD1E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Paste 2.2.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D517AD6254FC0B22827EF93E27F3428CE13C6458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Italo & Space Disco (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobea
 ```bash
 magnet:?xt=urn:btih:7CC48A5D636D464CD7595446569A5071524EA8C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - The Groove Deep House Project (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:15DD0ADB9F174DF089C1F7772D30D67D1E17C0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1FB9059A8A27F154CEE9C9D93219C23BB121C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92CF30591768002B8A7C77237FD4976CF3C52882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - Deep House Collection Vol.140 (2017) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:35589BFBB4E2B3517E2E1E0FA02FA55C4C0899D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:389DCA6E8CFFB36215E4F3A8983792B189D23074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ We Came As Romans - Cold Like War (2017) [MP3|320 Kbps] <Alternative Rock, Post-
 ```bash
 magnet:?xt=urn:btih:4F77DA7FD563C8E21276ADBEE0754B245B93FA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - Beautiful Messes: Country Soul (2017) [MP3|320 Kbps] <Folk Blues, Country>
 ```bash
 magnet:?xt=urn:btih:ACC41ABA52AC9C88CAA4217C6860D5256A897420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2F3C55A0C3C6BAFCF2F78E3364F8B03CED3139B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AE7FCAAF0AAAFE2B52333DBB199A118E89C79A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5E73461BCBCFAF3540F7D5377F754B404FD7374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:278718070F97F2693527031075D4B9F56F056F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ VA - Armin van Buuren Live At Ultra Mexico 2017 (Highlights) (2017) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:47D35ADFDAEAE77D2340A2EC43076037271AE541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ PhotoBulk 2 это кардинальное обновление одной из
 ```bash
 magnet:?xt=urn:btih:72F8577814DAEE15E3FD8A491BD96C6CE160E3C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Moom небольшая, но очень полезная утилита, за �
 ```bash
 magnet:?xt=urn:btih:2A675201450C2F43C176062A9C64585CE48FD6BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ VA - Top 10 Secret Radio Weapons Vol.5 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B32EC9CCA2FDBE8CFDAA02B55CD63CA1B281A86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4ABD52E4B648F09F9688C258D549C26D00A9FDA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A5768923D8AD95D78DF0853573AE50DF9E05F29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:F7F6A279DFCCB9E22C4A3211AF031D3589AA88B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ VA - Lyrical Songs Of From Ovvod7 vol.1-3 (2017) [MP3|320 Kbps]<Rock, Lyrical>О
 ```bash
 magnet:?xt=urn:btih:5EF43E931FC556C797BC8F989B064F91902775AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E619A0F9D88C49872C2E5F7CD9024D88BA0A5DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C74B739FB3C0ED928739808A6BECF9F0548495E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

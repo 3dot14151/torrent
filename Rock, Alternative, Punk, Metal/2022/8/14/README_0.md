@@ -22,8 +22,7 @@ PreHistoric Animals - 3 Albums (2018-2022) [MP3|320 Kbps] <Alternative Progressi
 ```bash
 magnet:?xt=urn:btih:D1E8CB823DF12DB19B5CE1A5333F4262E575D621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Semblant - Vermilion Eclipse (2022) [FLAC|Lossless|image + .cue] <Extreme Metal,
 ```bash
 magnet:?xt=urn:btih:2AF6010BC3F9423522290C70339784A36C239EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Act 1:
 ```bash
 magnet:?xt=urn:btih:ABE1C01CD87525709E60FB47F84DACF7D0F473B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:FC5A47CA3C8BC51DDAC8FB9BDA90E307F0CA08CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lacrimosa - Hoffnung (2015) Deluxe Edition [FLAC|image + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:2EF39B0AD390EF57A24A68AB37A03FFCA2AE5060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

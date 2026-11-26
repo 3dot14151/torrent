@@ -19,8 +19,7 @@ Stellar Tactics – увлекательное путешествие по ко�
 ```bash
 magnet:?xt=urn:btih:294F52AF5C406344DD41CDD07F653C0657199205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ First Feudal (2021) [Ru/Multi] (1.4.6) License GOG
 ```bash
 magnet:?xt=urn:btih:6EE1F00A8428FCC8DDBF45C8F08401D36FAD353A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Retreat To Enen переносит пользователей в 3600-й год 
 ```bash
 magnet:?xt=urn:btih:5A1A18F994194F5EEA01A5F76E3A4CF4890EACF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Computer Repair Shop (2024) [Ru/Multi] (1.01) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:9CD5B2D082383C8C62EFC7E26A93EAD580688AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ RUN: The World In-Between – чрезвычайно динамичный пла
 ```bash
 magnet:?xt=urn:btih:D1D75E17DBB221AF4423EEC9A6294168A7F79E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

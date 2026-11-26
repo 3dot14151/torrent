@@ -19,8 +19,7 @@ KeePassDX Pro - Приложение позволяет сохранять и и
 ```bash
 magnet:?xt=urn:btih:39D286EA986006F0514C14018BA164F436445024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enpass Password Manager Pro v6.7.1.572 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:872CC153681BFEDAEF04D895A96FCF4A4C8EF68F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CPU-Z для Android от разработчика CPUID. Отличное пр�
 ```bash
 magnet:?xt=urn:btih:069A3E79D2D0642D715227BCA0A99F4AB6635A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Jotr: Quickly Draw & Sketch 4.4.4 Pro [Ru]
 ```bash
 magnet:?xt=urn:btih:23C587D122C6279256E7CB7FE0B9E0B0A85DF926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C2E948DE3104F7B8DC0E34EFFDE115D94E1A0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

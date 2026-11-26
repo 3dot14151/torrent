@@ -19,8 +19,7 @@ Elven Legend 6: The Treacherous Trick / Эльфийская Легенда 6: �
 ```bash
 magnet:?xt=urn:btih:27AA1701983937C2DAD93EC54E7E986139C5D0D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ To Be or Not To Be (2015) [En] (1.0) License POSTMORTEM [That Is The Adventure]
 ```bash
 magnet:?xt=urn:btih:7D7BA94EC42A03B5206526ADED5156541687C536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Idol Hands - это аркадная стратегия, в которой вы 
 ```bash
 magnet:?xt=urn:btih:940C4B736C85ABB28934658627E40F2DD3797A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

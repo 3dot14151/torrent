@@ -22,8 +22,7 @@ VA - Охота! 87 (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:589F70B0A64193DD428A8AD947EB726EF86FE748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

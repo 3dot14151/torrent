@@ -19,8 +19,7 @@ Cursed Fables 2: Twisted Tower / Проклятые предания 2: Двул
 ```bash
 magnet:?xt=urn:btih:4A59F0CD0C89AF7625F41230F2B87B830B8F58BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Space Tail: Every Journey Leads Home переносит юзеров в косм
 ```bash
 magnet:?xt=urn:btih:40139FDD271E55BC60E5C50E79AC6ADCD90CB32C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

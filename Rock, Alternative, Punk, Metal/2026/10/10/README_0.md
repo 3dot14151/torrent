@@ -22,8 +22,7 @@ Gavin DeGraw - Chariot (2004) 2 x CD, Album, Special Edition [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:2F22300639A1C11C0B0832D86504C10B94E7CB16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74EF04A11E280CC117C4CE70E0206343D378AB88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Death Dealer Union - Dark Sister (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:DD67B10061929144B1DBA31BD4467F7BB12B5773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deep Purple - The Book Of Taliesyn (1968) Reissue, Remastered, 2000, EMI [FLAC|L
 ```bash
 magnet:?xt=urn:btih:2569578802A0FFD21BEECD755CA28127D5BD8F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:BDBE5D002ECA6E697B423F68BA0BDE25EFFA7C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Max Hightower - The Blues Chooses You (2026) [FLAC 24/44.1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4CEB66FECBCE6768E01E4F0C819C2ACD39CB864E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

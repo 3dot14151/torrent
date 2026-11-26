@@ -21,8 +21,7 @@ MenuetOS — любительская операционная система д
 ```bash
 magnet:?xt=urn:btih:2679775D5B8771AAB4F7B99EAC59576455CD58AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

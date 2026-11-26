@@ -19,8 +19,7 @@ Hero Returns (2014) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:6DC89502EEF8880407F5AE90DCFA682CA7BBE497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Bridge - 2D-головоломка, которая заставляет иг
 ```bash
 magnet:?xt=urn:btih:578B60E030D3C9251B6D1630AC663EA681E48B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Afterfall: Insanity (2012) [Multi] (1.1.8364.0 (2.0)/dlc) Repack Let'sРlay [Ext
 ```bash
 magnet:?xt=urn:btih:793CD127D3CA4A92974B0752A257A6F047A4B7DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Hero of the kingdom / Герой королевства (2012) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:9CAB53CAF762530FEB19D277376A90344FB80C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Revived Legends 2: Titan's Revenge (2014) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:B90863CD74E1C63FED1EA8A5EA267B311D4D0E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

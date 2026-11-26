@@ -19,8 +19,7 @@ We. The Revolution – это уникальная игра с необычно�
 ```bash
 magnet:?xt=urn:btih:ED79E55DEE70A9D5AAE93F6CA1A5E2894941711B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ V-Rally 4 — это продолжение легендарной серии г
 ```bash
 magnet:?xt=urn:btih:3115EA87C08D59AE91E8A08DAEB328781D8C263E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Phantom Doctrine — шпионская пошаговая стратегия-т
 ```bash
 magnet:?xt=urn:btih:29239CCD398050E727D098B320809BE2B49D05AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0.10246.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:4DCE8A4BC5EC5AF7465B8ABAC6042E12AEBED5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

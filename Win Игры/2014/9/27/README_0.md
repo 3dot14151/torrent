@@ -22,8 +22,7 @@ Flockers – это современный взгляд на жанр голов
 ```bash
 magnet:?xt=urn:btih:29A80A7C45A6E5261022EA90B4AAB900C7A144D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Castlevania: Lords of Shadow - Mirror of Fate HD (2014) [Ru/En] (1.0.684575 Upd2
 ```bash
 magnet:?xt=urn:btih:1A42864B2AB5FFAD946070E05304463C26F719BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/Multi] (1.0.0.1/4dlc) Repack R.G. Reve
 ```bash
 magnet:?xt=urn:btih:C41E61636240DD180B9474C9C15C05886A52EFEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

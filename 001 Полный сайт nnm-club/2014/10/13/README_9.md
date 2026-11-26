@@ -24,8 +24,7 @@ Lion House - Drancy (2014) [MP3|320 кб/с]<Screamo, Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:6522A64341FB4F45C15EB6C3D152E1096DBA8F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Zamorak - Immortal Malice (2014) [MP3|320 кб/с]<Black Metal, Crust, Hardcore>
 ```bash
 magnet:?xt=urn:btih:C82A06040212F46D0E604887AB63EF8E20497935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Locktender - Rodin (2014) [MP3|320 кб/с]<Screamo, Post Metal, Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:480DCD9BE3FDD0A04AB21EFC5CFB771F70EB89F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ VA - Trance Pro V.60 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:E1E149D0D4AE387CE31BF760AFB167FFF4E4D2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ VA - Progressive House V.32 (2014) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:27153F1B92DF84B65512CA5FCD708E68D4B0C66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Nausae - The Hue, A Veil (2014) [MP3|320 кб/с]<Screamo, Emotive Hardcore>
 ```bash
 magnet:?xt=urn:btih:07EB37BAB3C648BC1F5837F26810D06997A61130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ VA - Deep House V.24 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:EC0CB9240ECE50169452FD625DCEEC2213C8F505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Vexed - Demo (2014) [MP3|320 кб/с]<Powerviolence, Grindcore, Hardcore, Female
 ```bash
 magnet:?xt=urn:btih:54E72114B009501925628B32E985B78190AF86AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ VA - Progressive House V.31 (2014) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:3C4D74D75FDED2C6225E0076790B97E214F8716C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ Neutral Spirits - Neutral Spirits (1972) [MP3|320 кб/с]<Psychedelic, Acid Roc
 ```bash
 magnet:?xt=urn:btih:9ADF4376564523E8507F569CBEBB65172861C97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ Ascendant - Discography - 3 Releases (2014) [MP3|320 кб/с]<Ambient, Psybient,
 ```bash
 magnet:?xt=urn:btih:61D83323522500DE0F75E414CBB61ABB1C556DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ Dragster - Dead punk (2014) [MP3|320 кб/с]<Garage Punk, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:493E10CA82E6438C54B7BCE966104598D4701598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +400,7 @@ Les Deux Minutes De La Haine - Somnolences (2014) [MP3|320 кб/с]<Screamo, Pos
 ```bash
 magnet:?xt=urn:btih:5A35421B156B5472498E22D0B9140869C52FBCCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +434,7 @@ VA - Amsterdam Enhanced (Mixed by Aruna & AWD) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:65105CC9D37806B572A1530152537F78974ABEA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +468,7 @@ VA - Ibiza Seasons Autumn Edition Vol 1 Essential White Isle Chill (2014) [MP3|3
 ```bash
 magnet:?xt=urn:btih:F438CD81F78C6AFFA35A73FF5E868FA1254BB0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ Corr Mhona - Dair (2014) [MP3|~245 кб/с (V0)]<Black Metal, Doom Metal, Melodi
 ```bash
 magnet:?xt=urn:btih:2A275010B398DFAFF5EE4102F9462E58802171AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +532,7 @@ VA - Deep House V.23 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:E8457B1A99AF23502B5D70A7346FEBD03A934D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +564,7 @@ DivahaR - Divarise (2014) [MP3|320 кб/с]<Melodic Sympho Black Metal>
 ```bash
 magnet:?xt=urn:btih:40472C9F19DFE2A00705823B1701C84F6D169FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6BE99EE37E9A226B87F5A45873E4598F6950C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B7CA299D6BE8B588C06593CB80EC2E2AAEF9951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +648,7 @@ VA - Feel Presents: Trancemission Ibiza Sessions Vol. 1 (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:A5D0380F7E922BD78B9BB795C3635CA45912DF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +682,7 @@ Evil Conduct - Today's Rebellion (2014) [MP3|320 кб/с]<Street Punk, Oi!>
 ```bash
 magnet:?xt=urn:btih:7F71087A1E1A5B2E12AC543816700F5B21C1B86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49EB22D30670DF3BFB0B3F1A9B360E2FF9458261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +740,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB428E7723CDA3C8BADBA6AE066B71D6F670C757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +765,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C5EB31DE3B936F59D4B90715A94BEE410778311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -820,8 +795,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CFDDFE7B0399A5870934B1AEC38BADFAA6F57EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

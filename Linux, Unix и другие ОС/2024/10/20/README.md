@@ -21,8 +21,7 @@ HCL Safelinx - программный продукт предоставляет 
 ```bash
 magnet:?xt=urn:btih:E634CBDCF17509E149ED2A94931D63B1D49F7EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Rite of Passage 9: Bloodlines (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:57AA13AFFC483736245FD446239B8985A6FE68A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Coma 2: Vicious Sisters — атмосферная сюжетная игра
 ```bash
 magnet:?xt=urn:btih:073CE5938EEAFB1EFAE8AD8B7823A755720B4F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

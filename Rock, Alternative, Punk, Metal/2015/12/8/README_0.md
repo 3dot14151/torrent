@@ -22,8 +22,7 @@ Zgard - Totem (2015) [MP3|320 кб/с]<Pagan Black Metal>
 ```bash
 magnet:?xt=urn:btih:E405BC5B689BAAE3B60380075EB870EF84B1B1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Billy Sherwood - Citizen (2015) [FLAC|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F5DD592D46117D33D9E3BF3DC9401FD31D1843C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Foggy Mountain Rockers - Angel Heart (1999) [MP3|160-192 кб/с]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:4D0C2E466AD039B12D1F779EE94901D24C0D46E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Danzig - Skeletons (2015) Limited Edition [FLAC|image+.cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:AFBE67EE8F053B3E9963A017566415B0264AFE7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ King Gizzard and the Lizard Wizard - Paper Mache Dream Balloon (2015) [OGG|493-5
 ```bash
 magnet:?xt=urn:btih:B91469D4AC4ED97A3905D4C468C4E2448842DCCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Batushka - Litourgiya (2015) [FLAC|Lossless|WEB-DL]<Black Metal, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:91F1ABFBCDA6C97FADB3DD20671643DD2E4B0B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Scorpions - Best (1999) [FLAC|tracks+.cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B974D202FC1FF1EC50967F38B84E14DED766DF25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Europe - Super Hits (1998) [FLAC|tracks+.cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:AFBA74E2484A69FF7DFA54850BF44956CF78BC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

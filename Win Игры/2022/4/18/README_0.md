@@ -19,8 +19,7 @@ The Haunted: Hells Reach (2011) [Multi] (1.0 Build 8564469/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7DB0BCABAEF7DF8482696F82AF63A375FA769D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Firewatch (2016) [Ru/Multi] (1.1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:BCCB8555FA56AB7DF55E5EAC2E1686F503BF1AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

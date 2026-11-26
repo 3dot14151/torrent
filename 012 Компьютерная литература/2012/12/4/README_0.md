@@ -19,8 +19,7 @@ Autocad MEP 2012. Руководство пользователя [2011 г.] [PD
 ```bash
 magnet:?xt=urn:btih:6676D88E250D9FCA050BCFCA52E61BF5E6FBF5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Barren Earth - The Devil's Resolve (2012) Special Edition [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:FEB5D56A0B054DDCA955E488C51D54573A9F6664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Cnoc An Tursa - The Giants of Auld (2013) [MP3|320 кб/с]<Black Metal, Epic Me
 ```bash
 magnet:?xt=urn:btih:31B4C152723DD3AD3C9A746C804ABC901EF1335B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ FM - Rockville II (2013) [MP3|320 кб/с]<Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:3273730404615C21DAC57AA7649B6BC6E73400B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Millenium - Ego (2013) [MP3|320 кб/с]<Neo Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:070289BBE80FF04492007DF833E6C1C311888053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Bob Dylan - Music & Photos (2013) [MP3|320 кб/с]<Rock, Folk>
 ```bash
 magnet:?xt=urn:btih:1556921FD8EDAEFCF99FDD8EA50D7CE83752A23C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CAF01009E73670D4C0AD591878123156C84395B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Gamma Ray - Master Of Confusion (2013) EP [FLAC|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ The Korea - Saturnus (EP) (2013) [MP3|320 кб/с]<Metalcore / Djent>
 ```bash
 magnet:?xt=urn:btih:03C35109BFC6A8DD97D6087EE2C5F8036189C54D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ Sevendust - Black Out the Sun (2013) [MP3|320 кб/с]<Alt. Metal>
 ```bash
 magnet:?xt=urn:btih:E909B0FAB5BEFB9F53301C4C2EBAE234839EB8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ Omnium Gatherum - Beyond (2013) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +341,7 @@ Limp Bizkit - Ready To Go (Single) (2013) [FLAC|Lossless]<Rap, Rock, Alternative
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ Limp Bizkit – Ready To Go (feat. Lil Wayne) (2013) [MP3|320 кб/с]<Rapcore>
 ```bash
 magnet:?xt=urn:btih:D47C129CE6AA10E1C0E60ED3E7816927C8F25D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +409,7 @@ Led Zeppelin - Studio Magik : Sessions 1968-1980 (2013) Bootleg, 18 CD [FLAC|Los
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBD6DC51368FE5AF993803321C64198F22ABDFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +471,7 @@ Fleetwood Mac - Rumours (1977) 35th Anniversary 3CD Set Deluxe Edition /Reissue 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

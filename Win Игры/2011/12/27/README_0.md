@@ -21,8 +21,7 @@ DEMOLITION, INC. технология которая использует физ
 ```bash
 magnet:?xt=urn:btih:1245FECAA2DC275B84F485ABCA7C64E20C532879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Brink of Consciousness: Dorian Gray Syndrome. Collectors Edition / Грани С
 ```bash
 magnet:?xt=urn:btih:B9D544BD904E7E10EB0DD9118AAF890899EF6815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

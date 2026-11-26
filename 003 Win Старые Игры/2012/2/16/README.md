@@ -19,8 +19,7 @@ O.D.T.: Escape or Die Trying [Ru] (Rip) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:B17C3EFBD00C1C1E3EAE746F80C85598C33D94FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

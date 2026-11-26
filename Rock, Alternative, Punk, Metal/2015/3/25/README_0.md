@@ -23,8 +23,7 @@ Ashbringer - Vacant (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Post Metal
 ```bash
 magnet:?xt=urn:btih:F18639C6331F4AE8883C794DED00EFE3280FB332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Thornyway - Absolution (2014) [FLAC|Lossless|WEB-DL]<deathcore, prog>
 ```bash
 magnet:?xt=urn:btih:1D7172DF2E5B8A20CC30D932B41ED167693ACB7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ The Divine Baze Orchestra - 2 Альбома (2007-2010) [FLAC|Lossless]<Rock, B
 ```bash
 magnet:?xt=urn:btih:480267F4E7EBB3169451BD231160BE526C4AFC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Gary Moore - Victims Of The Future (1983) /1995, Virgin/ [WavPack|Lossless]<Hard
 ```bash
 magnet:?xt=urn:btih:27F1E9BC8D019DEB4F1BA49F4558F36298CA902D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C011932283A49E6A051D863136D77852AD957FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ VA - The Many Faces Of Yes (2014) 3CD [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:CCA0412B0F8256984E404C3D631443304902C6BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4191EAF65563C9EF26EE949A89E3209E4176A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

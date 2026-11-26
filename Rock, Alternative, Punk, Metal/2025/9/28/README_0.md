@@ -22,8 +22,7 @@ Alternanthera - Сублимация (2025) Авторская раздача [M
 ```bash
 magnet:?xt=urn:btih:89CD58F414DF32FB9B7F8B6EB2486DB3CBB162DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vicious Rumors - The Devil's Asylum (2025) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:270C9BC036F49A7EC66E88350DE8FB10E477BB3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

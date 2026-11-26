@@ -22,8 +22,7 @@ Medley(   Читать дальше...   )Жанр: PopПродолжитель�
 ```bash
 magnet:?xt=urn:btih:8996DA4B48CAAD502164BDA7B940F9E888F643C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Medley(   Читать дальше...   )Жанр: PopПродолжитель�
 ```bash
 magnet:?xt=urn:btih:CD97BE2684764506F63A972253A481A53188E62D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

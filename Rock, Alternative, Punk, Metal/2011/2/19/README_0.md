@@ -28,8 +28,7 @@ America - The Best Of. Centenary Collection (1996) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:286D7026E8BC0D4D69F16F68B15DEF8B232040D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Sean Lennon - Friendly Fire (2006) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:67FC183A95AF9F45F72B6B599DE46BC0CB618766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Chris Cornell - Scream (2009) [MP3|320 kbps]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:516FF6938AF0BF9A8EA5370C27D4EC37AC5385CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ The Who - Дискография (1965-2010) [MP3|320 kbps (кроме 2 аль�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ The King of Limbs — восьмой студийный альбом англи�
 ```bash
 magnet:?xt=urn:btih:8464496ABD856459514E7F3542CF52346251BC22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

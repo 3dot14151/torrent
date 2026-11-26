@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7D255C8750B579DA3C13A3D269B3770EB0398757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79D9DE66427648E800283E9383C00336A8801FAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Psychologies в переводе означает «психологии» – �
 ```bash
 magnet:?xt=urn:btih:A4F2925B00192F628A70FDDC0AB09B4D3E8C5BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Girls Gone Wild Magazine - молодежный журнал, команда к�
 ```bash
 magnet:?xt=urn:btih:C41D0C87E78E5675DAC0C1C25A8B190510A00DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Girls Gone Wild Magazine - молодежный журнал, команда к�
 ```bash
 magnet:?xt=urn:btih:453C274DFAE5AC347A8079C9FE9D1B30F455EB62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Aubade 2012 - официальный календарь от известног�
 ```bash
 magnet:?xt=urn:btih:CC1A7FCBDA2A02F4670EC7F349C1E9CB7FC47F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

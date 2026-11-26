@@ -21,8 +21,7 @@ Defense Zone 2 HD  МОДх4  1.5.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:BDC8D77F1A83074D120B53BFC100E3B8AFC8B1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

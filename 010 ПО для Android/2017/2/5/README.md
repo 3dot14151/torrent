@@ -19,8 +19,7 @@ Ancleaner Pro, Android cleaner 3.30 [Ru]
 ```bash
 magnet:?xt=urn:btih:E801294E6DA5F2336CB5F090AF75BE784019DDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

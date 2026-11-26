@@ -19,8 +19,7 @@ Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BB0AB3157D88B434CDB7C656D322B482F04BABC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

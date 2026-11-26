@@ -22,8 +22,7 @@ A4 Hot Chocolate - Love Is Life(   Читать дальше...   )Жанр: Cou
 ```bash
 magnet:?xt=urn:btih:FF4FC91550A2A1F1BCD9C62F9D9182EF3A45201E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

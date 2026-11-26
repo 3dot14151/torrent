@@ -20,8 +20,7 @@ ClipboardFusion - утилита для настройки и удобной р�
 ```bash
 magnet:?xt=urn:btih:F5AF80DA5ACDFCD9BAB5D3BFEDC054D7FE595649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ FileSeek использует один и тот же установщик ка�
 ```bash
 magnet:?xt=urn:btih:340B2DBF0EABE02271FFB81CAFD1018D53ABD694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 ```bash
 magnet:?xt=urn:btih:DDF016114C289D978CC79A18D07C8FAE8BF9A6E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

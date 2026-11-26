@@ -18,8 +18,7 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:D87973E8484E5CBB9EDE0521A13C9EA8962E44A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Fitify: Фитнес тренировки дома 1.66.2 Mod by Balatan [Ru/En]
 ```bash
 magnet:?xt=urn:btih:DA2100B36139C9756365DA475A077024ECC3FAD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Myriam Hernandez (Myriam Hernández) - Sinergia (2022) [FLAC 24/44.1|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:4F7459DF14FD52CFA90022492A93E848597387F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:013D9B49E30F1519CFE8927D093636B64D4830B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ FM-84 - Atlas (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave>
 ```bash
 magnet:?xt=urn:btih:AF43FD0DEF44FBD83E3D96B7E3BB6EEE70E3D7CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - D.Trance 105 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:6F757CA21B575F2494F351173A16AA1C48C29BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Calm Reflections: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:F0E45BDA5B2C052DCF8B534D97487C7ED4B6C0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Sea Melodies: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bale
 ```bash
 magnet:?xt=urn:btih:4667A55EFADE3D380D7813270FB5C38A4EF4CA44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Text Editor Pro 28.4.3 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E704B4FB9E896EBE0F29FD489EB9AA92812C9AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:044BB7445ABC717754FA8763CF2F6B77141B8150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C44E232C45B928D805ED8C06B1FBC588605AF678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ VA - Pure Dreams, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:A63C49A7681C00BC782655692077AE2DDCA88FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Max Cruise - Nights at Sunset Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 ```bash
 magnet:?xt=urn:btih:98BC94DECC0E0DC7750898F8DFEC1696F06D77D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Bon Jovi - Superrock Japan 1984 (Live) (2024) [MP3|320 Kbps] <Hard Rock, Pop Roc
 ```bash
 magnet:?xt=urn:btih:AADED9C62175BF3D3C77057C3A2FC5870B197E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A73433905FE6B53882E4726C2E8CEA3D99F3F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AE72CB9648A187C54A1D580B7DDBC2586A93F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ ShockOne - Organism Algorithm (2024) [FLAC|Lossless|WEB-DL|tracks] <drum 'n' bas
 ```bash
 magnet:?xt=urn:btih:F9E9F94CC5D875D0513DB3828A0429E7996463E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Dio - Ronnie's Birthday Show (2019) Reissue, 2024, Smokin' [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:CE1BAA52A57FF468CD0DDE65838CE8CD5863CBC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ ShockOne - Organism Algorithm (2024) [MP3|320 Kbps] <drum 'n' bass, dubstep, dru
 ```bash
 magnet:?xt=urn:btih:80698B961E5CF2D123589BC2ADC859DF251110A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12E05A36BFC4442AFB1B20E29BD6ABB9F4E2C9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ VA - Александр Зацепин, Леонид Дербенев - Песн
 ```bash
 magnet:?xt=urn:btih:A07E7EFD82AE6DE81FEB18A9F29D62684A271157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11196DBBA4A65E4ED0F5150F32EE635D99147581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Distant - Heritage (2023) 3CD Absolute Deluxe Edition, 2024, Century Media [FLAC
 ```bash
 magnet:?xt=urn:btih:A818BE398A8B81DE5E21AD8EC3AD2C391DBEBC90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ Job for a Cowboy - Moon Healer (2024) [FLAC|Lossless|tracks + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:1D91F0B92598C5A7FD9268CDF5865CE57DA0F134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ Beau Geste - Another Night in the City (1986) Remaster, Unidisc, 1998 [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:1FDB1C16CEA9FC55DC7A12118E896657AD1F6E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ Timson - Forever's Not Enough (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock
 ```bash
 magnet:?xt=urn:btih:94040AA01B59562F907AD9075D38A227DF8D04F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

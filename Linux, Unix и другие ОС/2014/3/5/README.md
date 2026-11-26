@@ -21,8 +21,7 @@ Calculate Linux 13.11.1 [i686] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:4CDC2A284B03BA7BAC721437407B8FF823BDC357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Salix OS 14.1 XFCE [x32, x64]
 ```bash
 magnet:?xt=urn:btih:8832E3B7B04E12B24B06CB5D56545FE5A183E801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Calculate Linux 13.11.1 [x86-64] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:E3A931A354422ABE47CE4A467F9F9D4D90B4F0F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Linux Mint Debian Edition (LMDE) является альтернативным �
 ```bash
 magnet:?xt=urn:btih:614EEA02FBFA8F478222724F50BB05D2CDC7364B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark Seed Антология [En/Ru] (RePack) 1992-1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:C34EC54304FCB2A5CE9AC72833928247C88DA2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden & Dangerous [En/Ru] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:5ECB39AB46EE8B69CA4B2757DC290057A59B8249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

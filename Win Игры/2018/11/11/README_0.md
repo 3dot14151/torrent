@@ -19,8 +19,7 @@ Crashlands – ARPG с захватывающим сюжетом и возмож
 ```bash
 magnet:?xt=urn:btih:925EEC391E91ED4B6A11399B13735F4E062F4D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/reg1.35/dlc) Repack Seraph
 ```bash
 magnet:?xt=urn:btih:4A73B212287FAC91B6E7FED32B8DD56C39F930E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

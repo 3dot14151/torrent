@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:92AD1D47484F32B9149A24A3ED567688C82F9207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Celine Bonacina Trio - Open Heart (2013) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:FDB953389B6785D26ADEF17797036C6807FD72A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Vulture - Oblivious To Ruin (2012) [MP3|320 кб/с]<Stoner, Sludge, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:093D0984E7B00CFB0AE4B3FF568914816C5AA3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Mon Dyh - Murderer (1980) Reissue 1992 [FLAC|Lossless]<Rock/Blues Rock>
 ```bash
 magnet:?xt=urn:btih:0200F9079E098FB1022B5DBAFB1324B6C2B72060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Mammothor - Tyrannicide (2014) [FLAC|Lossless|WEB-DL]<Hard Rock / Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9C6D860491A678766B8D2D8585A8739EE27EFC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Karo Glazer - Crossings Project (2013) [FLAC|Lossless|WEB-DL]<Jazz-Vocal>
 ```bash
 magnet:?xt=urn:btih:E60EAFD3CD2962A40D4B0D8222FD0A8FB0376040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ The Jerusalem Xperience - City of Light (2001) [MP3|320 кб/с]<World Beat, New
 ```bash
 magnet:?xt=urn:btih:684EE620EFA902E1C0FE6F8777FAB697B390E97E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD4D43498D3AAE1A771ABCA7DBD18B3D3F8A7612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Drew Davidsen - True Drew (2013) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:80F05C9BBCB7B9BDCDA25D37746F78735A9E8709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:985628E2BAEA660391EA44366D88AEAFF66A3521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ Advanced Photographer - чрезвычайно нужный журнал для 
 ```bash
 magnet:?xt=urn:btih:A4131B65EF66F345E5BAEBB5196BC7BFC6A9A3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DD680212A293F26892372A8B6102203EAAB22B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ Denis Solee - Sax and Candlelight (2000) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:D2CAA795A410595896260FDC1DC1B55953928B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +418,7 @@ Miller Anderson - Bright City (1971) Reissue /2004, Wahalla Europe/ [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:9CD295C35B1E82BCBEEDCC21A8D2309CAFAB128A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +452,7 @@ Sinheresy - Paint The World (2013) [MP3|320 кб/с]<Symphonic / Melodic Heavy M
 ```bash
 magnet:?xt=urn:btih:ABC48E964A37BECAABBC48AA078C3436F8A59A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ Burning Plague - Burning Plague (1970) /Remastered 2001, Progressive Line Austra
 ```bash
 magnet:?xt=urn:btih:0CED1113F9AA6333B00BEFB8E1DEDECBCD3E506E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +518,7 @@ Gabriele Coen Jewish Experience - Yiddish Melodies in Jazz (2013) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:A4A2F992ED92524A83A4B20CB454CE2B92E05514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +552,7 @@ Bester Quartet - The Golden Land (2013) [FLAC|Lossless]<Jazz, Klezmer, Ethnic>
 ```bash
 magnet:?xt=urn:btih:6C75B75C1EC9D84BFCB01C246D97B1D1DF28DF38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +587,7 @@ VA - Billboard Top 40 Singles Chart (25-01-2014) [MP3|~245 кб/с (V0)]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:97F6BEDA9D9B5599808424AE12C989A617DB4315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +621,7 @@ The Last Of Our Kind - A Diamond In The Rough (2012) [FLAC|Lossless]<Post-Hardco
 ```bash
 magnet:?xt=urn:btih:67BD06E347162D73DAD54512AEFD0F44A40E5710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +655,7 @@ Side Liner - Crying Cities (2009) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:6C72DB6321EAEF58B8C589FFFE80834E56C94FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +688,7 @@ Blinded Colony - Divine (2003) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:7F8E2CE81B14496115C883A9D8BDE93B01A2E4DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7C095E6520176C6214AB80AE3E8B943BD8FD75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0224E430277D0A89EBDE5DE0E18ECB1F65EA317F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +772,7 @@ Back Door - The Human Bed (1973-1974) Released 2002 [FLAC|Lossless]<Jazz Rock/Pr
 ```bash
 magnet:?xt=urn:btih:CA6F2B061F8BB7DC8CCBDE0D8954754514B43864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -824,8 +799,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B42A1CAA065F5E67311266A2DAD29C66666D93A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

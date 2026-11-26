@@ -27,8 +27,7 @@ B5. Mermaid :: 04:25Жанр: Funk, Soul, JazzФормат: Vinyl, LP, AlbumПр
 ```bash
 magnet:?xt=urn:btih:6CF07E052D902AFC7922FC3A4BDADA244F622FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

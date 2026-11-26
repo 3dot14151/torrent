@@ -19,8 +19,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:0BD2B6061772CB5A91B3F38D97A9CF6A213EC83F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack FitGirl [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:C10DC4EFEA46A7154AA9A1C90CE6FE58E195AE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tiny Glade – это спокойный и даже местами медита
 ```bash
 magnet:?xt=urn:btih:10B59929FAB2CDC1F87D2F41E256DD45F4C94A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:485219350486B5EE464507CFBAEE850FEC80FABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Ashampoo HDD Control - программа для контроля работы �
 ```bash
 magnet:?xt=urn:btih:AAE93061E5BEA03186EBE3D6F5576A0311816309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

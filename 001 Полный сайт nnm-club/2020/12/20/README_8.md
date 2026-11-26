@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:23AB084FC497E4B01F418424F562B3DC312D76D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9732F260DD897544C5A56D035DD66AD0408ED695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Windows 10 Pro 20H2 b19042.685 x64 ru by SanLex (edition 2020-12-19) [Ru]
 ```bash
 magnet:?xt=urn:btih:9DAE46E3785CFDA30C5514019DAB1E237C0AB4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Missing 2: Island of Lost Ships [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:6C8BB9B6E4D3B2FCCA80D5C630F5947EC7558978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightmare Realm 2: In the End Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:35B060F07B09BDE30D6D7459D457BB2C72BC08D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ I Am Alive [Ru/En] (LossLess RePack/1.01) 2012 | R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:6FCE4B69A16BF44B1EBEF2E7F16EB6DB501A7F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lake House: Children of Silence Collector's Edition / Дом у озера. Де
 ```bash
 magnet:?xt=urn:btih:CF4C8E8B4521E12D348291700E921235E1131E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Cognition - это "эпизодический криминальный трил
 ```bash
 magnet:?xt=urn:btih:0CE7A45210E0AFA507CEB8614F73D0055E753150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Arma: Tactics (2013) [Ru/Multi] (Beta 4.2.1.11645) Repack 3DM
 ```bash
 magnet:?xt=urn:btih:C8C0F06B8B34606AA7A98DC8CB2F29F194F6AC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

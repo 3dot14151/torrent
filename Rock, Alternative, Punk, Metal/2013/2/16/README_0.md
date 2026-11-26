@@ -28,8 +28,7 @@ Sons Of Aeon - Sons Of Aeon (2013) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Psychofagist - Il Secondo Tragico (2009) [FLAC|Lossless]<Technical Jazzcore Deat
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Silverstein - This is How the Wind Shift (2013) Deluxe Edition [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:5A8010A6550312D946CDE1A600FCAB7AFBECBD76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ My Left Boot - Summer Songs (2012) [MP3|320 кб/с]<Stoner Psychedelic Fuzz Roc
 ```bash
 magnet:?xt=urn:btih:F09F14AD2FAA03F1F4E47012919BF2D77691430E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Stahlhammer - 6 albums (1995 - 2006) [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:0DC5135630082225958D119EBA3007471B9521F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F69688A706C7DE373405650569F6033428A24643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

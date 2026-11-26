@@ -19,8 +19,7 @@ Gloomy Tales: Horrific Show (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:4E20B7200CD92702BF85DEAA95B70F887E02D013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CULTIC – ретро-шутер от первого лица, где вы сы�
 ```bash
 magnet:?xt=urn:btih:EF3D6A71F93E576218BB89349466F678DF2D613F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SuperPower 3, долгожданная новая игра из серии Super
 ```bash
 magnet:?xt=urn:btih:35D929193C06CA0BD0EE4367B315B19DA364BAD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

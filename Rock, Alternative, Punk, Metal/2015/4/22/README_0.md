@@ -23,8 +23,7 @@ Axolotl - Voices Of Luna (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:3B4CD01F679863C21AF4183143446972291F385A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Drudkh - Борозна Обірвалася (A Furrow Cut Short) (2015) [MP3|32
 ```bash
 magnet:?xt=urn:btih:FF0D66636563D47EAAA5E8CD46168CD71588D887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Limblifter - Pacific Milk (2015) [MP3|320 кб/с]<Alternative, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:A3D72950E1C95EB71172B2681536DB99CAFE175F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Khors - Night Falls Onto The Fronts Of Ours (2015) [MP3|320 кб/с]<Black Metal
 ```bash
 magnet:?xt=urn:btih:191131A17D9E5E497A28114D263F728BB520302A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Mew - + - (2015) [MP3|320 кб/с]<Alternative, Indie Rock, Dream Pop, Art Rock>
 ```bash
 magnet:?xt=urn:btih:298A2A001D679477AC8EB683930EE901A4F841A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Joe Hertler & The Rainbow Seekers - Terra Incognita (2015) [MP3|320 кб/с]<Alt
 ```bash
 magnet:?xt=urn:btih:11FFE8C319371CA28F347BC8377462C648190E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Shattered Sun - Hope Within Hatred (2015) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:27C4EF5F3088A1A4151917D8296F8B15EE702A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Shining - IX - Everyone, Everything, Everywhere, Ends (2015) Digibox Edition [MP
 ```bash
 magnet:?xt=urn:btih:4DF900DBA992A847C93D62EE007A18F3D4272ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98B2173C1695799939824ADC951A74C5C80C0137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ Foo Fighters - Songs From The Laundry Room (2015) EP [MP3|320 кб/с]<Alt. Rock
 ```bash
 magnet:?xt=urn:btih:9980D24397754321B2EE5085B51B515C3DB22367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ Peter Bardens - 2 Альбома (1970-1971) Reissue, Remastered /2010, Esoteric
 ```bash
 magnet:?xt=urn:btih:9F2986E206353B4E7E4AF4F5DFF44557B28AA71A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Umbra Et Imago - Die Unsterblichen - Eine Neo-gotische Oper In Drei Akten (2015)
 ```bash
 magnet:?xt=urn:btih:7F4BBFDF1A7AC8F288D41F4DAD10ECF194B4663C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45562975B629F968C6CD763436FEE8AFE14FF675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ Van Halen - The Very Best Of Van Halen (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C85285BFDEC64E535BE237E081E4EED9C5AE2FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ Blue Stahli | Antisleep vol.01-03 (2008-2012) [OGG|435-579 кб/с] <Industrial 
 ```bash
 magnet:?xt=urn:btih:E6837C3004FC6214F9345C385011AC88DA5EF9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

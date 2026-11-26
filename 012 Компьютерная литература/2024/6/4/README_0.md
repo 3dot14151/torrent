@@ -22,8 +22,7 @@ Learn how to build probabilistic models using the Python library PyMC3(   Чит
 ```bash
 magnet:?xt=urn:btih:2AFE8D2B786D2FCBD539A749BB9A247A347240AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

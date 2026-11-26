@@ -22,8 +22,7 @@ Rosetta - Quintessential Ephemera (2015) [MP3|256 кб/с]<Post-Metal, Sludge Me
 ```bash
 magnet:?xt=urn:btih:24350B7C2325BB9BE61559C1CD4B6700F166E7F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Krayenzeit - Auf Dunklen Schwingen (2015) [MP3|320 кб/с]<Medieval Folk Metal>
 ```bash
 magnet:?xt=urn:btih:80E04DF8C9513846FEB96E678ABC57E2E8660A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Demon Lung - A Dracula (2015) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:91DB848B160AEDEC99AE8440A708E6AA8087D12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Telergy - Hypatia (2015) [MP3|320 кб/с]<Epic / Symphonic / Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:6D621941F7D8D803D5D85AFDD4B609C4BF1C104D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Audio Adrenaline - Sound of the Saints (2015) [MP3|320 кб/с]<Alternative, Chr
 ```bash
 magnet:?xt=urn:btih:B97E0AD9DD88D0F52FC5E61BB5EA87D484392F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Savatage - Return To Wacken (2015) [MP3|320 кб/с]<Progressive / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:61C0EE6932E8DB83150A273E40C9A883AEEF0EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Chappo - Moonwater (2012) Deluxe Edition [MP3|320 кб/с]<Alternative, Indie Sp
 ```bash
 magnet:?xt=urn:btih:6B6C2BC81CD2D127E936065DF3F1600B679437AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Smokie - Gold (1975-2015) Deluxe Edition (2015) 2CD [FLAC|Lossless]<Pop rock>
 ```bash
 magnet:?xt=urn:btih:4A8E9E49556FD96B1521789D63CD5C4A4097098B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

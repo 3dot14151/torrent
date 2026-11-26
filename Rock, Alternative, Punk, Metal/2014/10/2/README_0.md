@@ -28,8 +28,7 @@ Gum Bleed - City Of The Heroes (2014) [MP3|320 кб/с]<Street Punk>
 ```bash
 magnet:?xt=urn:btih:82AFBBE6308E26A59CC2AB271E5174BD0767F926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Gentle Giant - The Power and the Glory (Steven Wilson Remix) (2014) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:415F5883326EE8E72D7DA03F4479C74C50CFE6FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Eagles - The Very Best Of (2003) 2CD [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:0B284D556C4AD67B884E31299C59D65E87B2A4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

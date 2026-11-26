@@ -19,8 +19,7 @@ Burnstar — это захватывающая экшн-головоломка, 
 ```bash
 magnet:?xt=urn:btih:B502596FDE50DF12E7ABA6CAC6803A6D3E31F3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Burnstar — это захватывающая экшн-головоломка, 
 ```bash
 magnet:?xt=urn:btih:037F98F2C0CA08F67827769FDCE99162C9F1A1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ghostbusters™ (2016) [Multi] (1.0) Repack Dok2
 ```bash
 magnet:?xt=urn:btih:09E4F9A77BA31CD75DB740AB67147278DA6AC718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

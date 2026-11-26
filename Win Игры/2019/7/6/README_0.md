@@ -19,8 +19,7 @@ Underhero (2018) [En] (4.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:26DCDE764A0B0D0C4472DE09853408BD3D87CFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

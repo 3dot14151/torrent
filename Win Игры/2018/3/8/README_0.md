@@ -19,8 +19,7 @@ Senran Kagura: Peach Beach Splash - соревновательный шутер 
 ```bash
 magnet:?xt=urn:btih:DCEF8C3EC18A3CFDC0FEA6EC7296F3A00D54AAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Vanden Plas - Chronicles of the Immortals: Netherworld II (2015) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:0BBDE430E3BA5A3A807B6A46D2E7895D28410D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Harlis - Harlis (1976) Reissue, 2009, Sireena Records [MP3|320 кб/с]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:A139D81F41E189D6253AFA7433AE8689E402EBE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Moondog Matinee - Carry Me, Rosie (2015) [MP3|320 кб/с]<Alternative, Heavy Bl
 ```bash
 magnet:?xt=urn:btih:7BE84C173820AC6DF08344BDE403484577DECF1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cult Of Luna - Vertikal (2013) [FLAC|image+.cue]<Post-Metal / Sludge Metal / Pro
 ```bash
 magnet:?xt=urn:btih:445DFDBA1589484B2108BC8DF35E4DCC9BBEC185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Deathdefier - They Will Come To Cut Your Head (2016) [FLAC|image+.cue]<Instrumen
 ```bash
 magnet:?xt=urn:btih:427EF6919686183F9171F804E468A59269B7180B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Chris Isaak - First Comes the Night (2015) Deluxe edition [MP3|320 кб/с]<Pop 
 ```bash
 magnet:?xt=urn:btih:C24DAAC3D979B3B14FCDACED293192E96F984C53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Queen - A Night At The Odeon: Hammersmith 1975 (2015) Live [FLAC|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:A6F0B0F99357C3AB7FEADD9AE4DC344B023C813E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Brujeria (с испанск. "Колдовство") — американска�
 ```bash
 magnet:?xt=urn:btih:2991EC50CB23714860022ED286DD229A728C2FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Kurt Cobain - Montage of Heck: The Home Recordings (2015) Deluxe Edition [MP3|32
 ```bash
 magnet:?xt=urn:btih:F0DBE34C06E56DDE785462BA9BC7771AA58A7FBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Swallow The Sun - Songs From The North I, II & III (2015) 3CD [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:A7D365272C8171F6F2B5523F4F0C7D0F98CDFB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Jeff Lynne’s ELO (Electric Light Orchestra) - Alone In The Universe (2015) Del
 ```bash
 magnet:?xt=urn:btih:115BF2A49509DF0917CC657C3C51B31D06C98740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

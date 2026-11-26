@@ -19,8 +19,7 @@ Haunted Hotel 5: Eclipse Collector's Edition / Проклятый Отель 5: 
 ```bash
 magnet:?xt=urn:btih:A16D440725524B6BF12EDD33541B220DDC221925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Resident Evil: Operation Raccoon City — классический шутер о
 ```bash
 magnet:?xt=urn:btih:1990E0B35991422A9ABCDE2859187F3BD156EF62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ The Dead Linger - экшен-песочница с выживанием в зо�
 ```bash
 magnet:?xt=urn:btih:8D3BFD0595F71F572BC43B5B63CA5A00A1F86104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

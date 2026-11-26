@@ -22,8 +22,7 @@ Splitmouth - Torment (2020) [MP3|320 Kbps] <Nu-Metalcore>
 ```bash
 magnet:?xt=urn:btih:BBEE60CCFCFFEB4137185F2F4716958E83F07256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:C88C5627E167F15A3AAFCC751A0154EA60464FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stone Temple Pilots - Perdida (2020) [FLAC|Lossless|tracks + .cue] <Rock, Alt.Ro
 ```bash
 magnet:?xt=urn:btih:8D2B816B518530925543595CE431E5E39BFB4553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Within Destruction - 4 Albums (2012-2020) [MP3|320 Kbps] <Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:6F2BB03B92DFF945E7C85B2FFF2E95A296BBF0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:86C1BDCE5448D196DA4E4CDA5D0FDC50E06183E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dion - Blues With Friends (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:3085FF376C374F676C7AA82A4D3F4BAE0D4035A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Dymna Lotva - Чакай Перамен! (Кино cover) (2020) Single [MP3|320
 ```bash
 magnet:?xt=urn:btih:F3F558D48EAE189784FB8F4B7F6EBDDF1151DBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Motionless In White - 6 альбомов + 3 EP (2007-2020) [MP3|320 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:DC3D134C769AB72433445B2E2D8A6916878B6B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

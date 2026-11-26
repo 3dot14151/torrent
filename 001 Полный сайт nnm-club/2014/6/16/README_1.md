@@ -24,8 +24,7 @@ Archangel - Calm In Chaos (2014) [MP3|320 кб/с]<Ambient, Progressive Metal, I
 ```bash
 magnet:?xt=urn:btih:5E59344CE730A41A3D84CC4C74B0AC158AFE65D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCA2B4F736BB4FC29F3E4B609104D743607A8062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC777C626781D7FEE51068D831B24B204FC5F4F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Paint.NET - простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:455E9EEAFB3F537315208D04F021C8A6EA4FEE70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:361292B00FA40B751E56C9ABD57D89A7EE8D377A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Pink Martini & The Von Trapps - Dream a Little Dream (2014) [MP3|320 кб/с]<Ja
 ```bash
 magnet:?xt=urn:btih:0C5DA0F5B4A55EE76C61838733616BC4D368FA1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Блюз в России (1992) 2CD [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:0DD2E57AE3C55CC858B04746C13F6A69F2C0CB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Dolly Parton, Linda Ronstadt & Emmylou Harris - Trio (1987) [MP3|320 кб/с]<Co
 ```bash
 magnet:?xt=urn:btih:9AFD3930C21CA39791AA8D4CD7F32A90CABD90B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Quasimoto - The Further Adventures Of Lord Quas (2005) [FLAC|Lossless]<Rap, Hip-
 ```bash
 magnet:?xt=urn:btih:12B4F15E7B1BF5100DABFE8871366F93DDA73D79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ KCNcrew Pack  -  это огромнейший сборник серийнико
 ```bash
 magnet:?xt=urn:btih:750F6AE0B5AAA365904402DE6D1FEC021563AE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ Joe Pass & Red Mitchell - Finally: Live In Stockholm (1992) [FLAC|Lossless]<Jazz
 ```bash
 magnet:?xt=urn:btih:AEF27CC8A229356B98CF9074CF87EEEB4F1DEDCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03E27986F989A50D6449F9ABD76A45093D086D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FF6721027991C3B176E2102B9DEAA92911AC8CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ VA - Американский психопат / American Psycho (2000) [MP3|320
 ```bash
 magnet:?xt=urn:btih:34D72276E65E56BFC6F21CDECED723F9ACC9FFC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C5EDF72FEF732FF13EF50FF7F95C677BF81CD11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ Beth Hart - 37 Days (2007) 2011, Smartfeller and David Wolff [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:7E0F5B1EF28F424167ABA8D28F26769A2BF16548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:730FC922D0F99C3631115B6571C97879CFD9C6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC297A3800ABD7F846881A2E06ACCD7E4E26A9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBBB90BF0C95440A0A9C41EEEEDE2EB46BC7B456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ James Horner - Коммандос / Commando (2011 (1985)) [MP3|320 кб/с]<Sco
 ```bash
 magnet:?xt=urn:btih:D3A4D2DB1118606263E90525C7C447B3D4A872BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ The Shakin Arrows - Shakin'Strings - 25 Instrumental Memories Vol 1 (2014) [MP3|
 ```bash
 magnet:?xt=urn:btih:3454DD51382F18EBCFC9AAE95C5BB845AB776CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ VA - New York Chill Lounge Groove - Chillout Lounge Cocktail Party Music in Sexy
 ```bash
 magnet:?xt=urn:btih:FB399029A2291EE4ADBA152FD185F8D1D7C00D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C3F6188655ED056B560D485DBC75DE6F84FFD21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF19021348C5CF5DF2692260B16091C8D466A15F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +716,7 @@ Troika (David Arkenstone) - Faeries (1999) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:4CA957F45248F8578900CE3AAE80F7BFDB8B8000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ VA - Armin Van Buuren: A State Of Trance Radio Top 20 June 2014 [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:486B12DD0BE7E438CFD2A93217E20F339CCED09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

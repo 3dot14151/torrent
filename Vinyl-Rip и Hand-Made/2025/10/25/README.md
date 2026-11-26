@@ -22,8 +22,7 @@ Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vin
 ```bash
 magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

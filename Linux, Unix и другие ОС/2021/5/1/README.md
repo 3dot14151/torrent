@@ -19,8 +19,7 @@ FreeNAS 11.3-U5 [x64] 1xCD
 ```bash
 magnet:?xt=urn:btih:1AB2D35427D220502D50A077937C3180099FBBFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

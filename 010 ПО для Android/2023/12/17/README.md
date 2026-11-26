@@ -19,8 +19,7 @@ Listen Audiobook Player v5.2.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0DA2D4F6DB282C5CAD093C9D92CDBDC57905E8F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

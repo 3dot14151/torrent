@@ -22,8 +22,7 @@ Senpais - метал-группа из Берлина, Германия, осн�
 ```bash
 magnet:?xt=urn:btih:9EFD1645E841C43834A15436BEC27010E06FA8CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Triskelyon - канадский трэш-метал проект, созданн
 ```bash
 magnet:?xt=urn:btih:7E2E72718F04AF5F4B10DD6D78519948A4406ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

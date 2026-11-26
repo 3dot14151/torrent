@@ -19,8 +19,7 @@ Obscure Legends: Curse of the Ring (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:CE98DA1015CBD7E445647712FD65E911435CAFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Wallace and Gromit's Grand Adventures. Episode 1 to 4 (2009) [Ru/En] (1.0) RePac
 ```bash
 magnet:?xt=urn:btih:6799E4C230193968AFE762265F38B7F0E9E55854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Wallace and Gromit's Grand Adventures. Episode 1 to 4 (2009) [Ru/En] (1.0) Repac
 ```bash
 magnet:?xt=urn:btih:B5E6DA47E9D544EF1B121F5BDB894F528379AE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Tony Hawk's Pro Skater HD (2012) [Ru/En] (1.0.8788.0) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:FB862957E9ED19C9808753D472877377378DFB26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Payday 2 (2013) [Ru/En] (1.4.2/4dlc) Repack Fenixx [Career Criminal Edition]
 ```bash
 magnet:?xt=urn:btih:02571F025A7F86691822DEC5DCD4E980EE8904DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Brutal Legend - это приключенческий экшн объединя�
 ```bash
 magnet:?xt=urn:btih:1FF2D3925D6D4E87CF469376B80117730866B8BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Broken Age – нестареющая история о взрослении, т
 ```bash
 magnet:?xt=urn:btih:CC984CEFFB587AC62734A8E794885284407A972E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

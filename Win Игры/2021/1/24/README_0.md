@@ -19,8 +19,7 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (1.4) Repack xatab
 ```bash
 magnet:?xt=urn:btih:756C94F22FE56957E2358B65037055CA5960906A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rebel Galaxy Outlaw (2020) [Ru/Multi] (1.18d) License GOG
 ```bash
 magnet:?xt=urn:btih:F3EB873A17E30BB239DCE3AAED7A4A9805BC9BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

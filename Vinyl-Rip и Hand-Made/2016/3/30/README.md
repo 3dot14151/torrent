@@ -22,8 +22,7 @@ A4. The Diary Of Horace Wimp (4:22)(   Читать дальше...   )Прои�
 ```bash
 magnet:?xt=urn:btih:0409C9979B742FE6F320BD4223B7C9C18EDFAF7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

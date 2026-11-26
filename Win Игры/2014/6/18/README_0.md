@@ -19,8 +19,7 @@ The Torment of Mont Triste / Город несчастий: Холмы Печа�
 ```bash
 magnet:?xt=urn:btih:E2989BCCBACFCBDD34F87AFB77CF79CE75A4CC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

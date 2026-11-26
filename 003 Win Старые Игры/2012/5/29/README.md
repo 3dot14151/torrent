@@ -19,8 +19,7 @@ Master of Orion [RUS] Dospet 1994 | Pet9948
 ```bash
 magnet:?xt=urn:btih:A75C83FDB9DF1686D800BD4FA3C34B7C610B28AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Cydonia: Mars: The First Manned Mission [Ru/En] (RePack) 1998 | RG Kirill Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

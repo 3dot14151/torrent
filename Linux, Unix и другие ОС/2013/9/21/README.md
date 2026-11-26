@@ -23,8 +23,7 @@ BackBox Linux 3.09 [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:808463A440D9CDB5ABAB6A33706D3917E26AEAFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

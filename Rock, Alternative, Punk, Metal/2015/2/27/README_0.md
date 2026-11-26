@@ -21,8 +21,7 @@ EPs:
 ```bash
 magnet:?xt=urn:btih:62DDEED9C6B64A06DA12DC65C53017E0C95F77BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Below The Sun - Envoy (2015) [MP3|320 кб/с]<Doom Metal, Post-Metal>
 ```bash
 magnet:?xt=urn:btih:4ECC40023A8736C9142BB32F073FB168B9D3542E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Lobby Loyde - Obsecration (1976) Remastered/2006, Aztec [MP3|320 кб/с]<Rock, 
 ```bash
 magnet:?xt=urn:btih:1C60F46A62194DB76B2F7D02AB208E7825D52388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Through the Horizon - Horror opera begins (2014) [MP3|320 кб/с]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:3AD4204871FBE565C0BD12D9AC2BEF4B8B5BDE74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Enforcer - From Beyond (2015) [MP3|320 кб/с]<Heavy, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:0B48C39060155884413B750A88BBE95421E7CDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ A Place to Bury Strangers - Transfixiation (2015) [FLAC|Lossless] <Indie Rock, P
 ```bash
 magnet:?xt=urn:btih:B7556C1F802FE8AE4522F0A9A5089E0C78D520EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Wolfpakk - Rise of the Animal (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1302BFE5A1F683AC4D387A628F173ED34583B5B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Imber Luminis - 1 Demo, 2 Album, 1 Compilation, 1 Single, 2 EP (2010-2014) [MP3|
 ```bash
 magnet:?xt=urn:btih:A39B58328256D15FD51A71E601B65440FEB2DC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ Devilish Impressions - Simulacra (2012) [FLAC|Lossless]<Avantgarde Black/Death M
 ```bash
 magnet:?xt=urn:btih:81B51AAC5311A4AE1C65AD55E77BB02D75689DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ Mantus - Melancholia (2015) [MP3|320 кб/с]<Gothic Metal, Darkwave>
 ```bash
 magnet:?xt=urn:btih:2012A2F56A4A04A5A5F447659C1E07E98F049BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ Bloodtruth - Obedience (2014) [FLAC|Lossless]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:2A8B0E174B7E893E888653EC1151E41EA0AB4BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

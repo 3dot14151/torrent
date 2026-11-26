@@ -19,8 +19,7 @@ Flat Equalizer - Bass Booster - это приложение для улучше�
 ```bash
 magnet:?xt=urn:btih:C3680978A009BED3B5508EC89886DFAD1B85C884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Weather Radar Live Tracker PRO v1.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3C84E5766D5AD978C40330E84EEAF1B4AE320C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pulsar - прекрасный представитель своего класс
 ```bash
 magnet:?xt=urn:btih:04140814C9B5C9E0D323784E3104B0E1DA5CC51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Equalizer FX — программа поможет Вам улучшить зв�
 ```bash
 magnet:?xt=urn:btih:8E52BE84B01E7C1258A4C873FD0210D69D074BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

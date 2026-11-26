@@ -20,8 +20,7 @@ Star Wars: X-Wing Collector Series [Ru] (P) 1998
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Tom Clancy's Ghost Recon Advanced: Warfighter [Ru] (RePack) 2006 | MexicanoTomat
 ```bash
 magnet:?xt=urn:btih:64EC1C9B62C67DDC4844C18BA7818EE88DE13F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

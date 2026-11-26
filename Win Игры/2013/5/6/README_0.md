@@ -21,8 +21,7 @@ Zack Zero – динамичный платформер с 3D графикой, 
 ```bash
 magnet:?xt=urn:btih:9BDEB90F4A702290BA066156F079B3DE680ED642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Alan Wake: Collector's Edtion (2012) [Ru/Multi] (1.06.17.0155) License PROPHET
 ```bash
 magnet:?xt=urn:btih:F33045A44A86442062B18915293EFF7CFB27B5D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Far Cry 3: Blood Dragon (2013) [Ru/En] (1.0.1) RePack R.G. Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

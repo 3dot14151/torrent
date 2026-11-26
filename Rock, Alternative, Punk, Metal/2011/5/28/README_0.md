@@ -28,8 +28,7 @@ Stormwarrior - Heathen Warrior (2011) [MP3|320 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:810B34D42E4695104E0E099EFE9AF86902B6992E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Tyr - The Lay Of Thrym (2011) [FLAC|Lossless]<Progressive Viking Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Alestorm - Back Through Time [Limited Edition] (2011) [MP3|320 kbps]<Pirate Powe
 ```bash
 magnet:?xt=urn:btih:656AA17B7E316604CA87BA58A409FCAC66A4711E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Nazareth - Big Dogz (2011) [MP3|320 kbps]<Hard-n-Heavy>
 ```bash
 magnet:?xt=urn:btih:45F72EE08A841194B9C3878958CC5DA96614114C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Nazareth - 22 студийных альбома (1971-2011) [MP3|320 kbps]<Hard 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

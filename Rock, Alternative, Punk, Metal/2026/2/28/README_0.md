@@ -22,8 +22,7 @@ VA - Greatest Ever! Rock The Definitive Collection (2006) 3 x CD, Box Set [FLAC|
 ```bash
 magnet:?xt=urn:btih:C91347926B1CC1DB18977D5236C85B36CDB8810E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Breakthrough (Underground Sounds Of 1971) (2021) 4 x CD, Box Set [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:CB3E8F7F13C4975BD5FBCDF99852AA0D663C8941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jari Lindholm - Trajectories (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 ```bash
 magnet:?xt=urn:btih:84ABE46A55623567AFBCBDED2C31D870D35D6011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Neverlove - SEXMETAL 2 (2026) [MP3|320 Kbps] <Hard-Rock, Glam-Metal>
 ```bash
 magnet:?xt=urn:btih:1079ECEFBD1372B7F50267D2DF0453890A627CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Evig Natt - Vaketimen (2026) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Death 
 ```bash
 magnet:?xt=urn:btih:4108F3C4A60CBB5825BD3D4339F09F8F657F08F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - So High I've Been (A European Rock Anthology 1967-1973) (2026) 3 x CD, Comp
 ```bash
 magnet:?xt=urn:btih:808D2588FC46488BD2F1BB40DFC746D0C01E7099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Gladenfold - Soulbound (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Powe
 ```bash
 magnet:?xt=urn:btih:DB02F1347B03DCA5B7ECD95A1578BEB8254470DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Glorious Bankrobbers - Intruder (2026) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard
 ```bash
 magnet:?xt=urn:btih:0B661B81F9CC5C1A00F7C3DAB44A5146D8536940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21BAF817CE51E6AA8737C73DF291BAF039D3C3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Zed Yago - At The Edge Of The World (2026) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A29570BE1DD3E4AD7C00344D3EA86BA330E04B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Stahlmann - Schwarz Wie Der Tod (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indu
 ```bash
 magnet:?xt=urn:btih:B421A2AB1D6EDA77EF8A796C7E5D5F7D8B2072F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

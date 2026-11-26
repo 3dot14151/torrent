@@ -28,8 +28,7 @@ Obsidian Gate - Whom The Fire Obeys (2014) [MP3|320 кб/с]<Sympho Black Metal>
 ```bash
 magnet:?xt=urn:btih:E8972473E9C8ED06A2F3F516F4ACC3DD1E6E650A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Veni Domine - Light (2014) [FLAC|Lossless]<Progressive Doom Metal>
 ```bash
 magnet:?xt=urn:btih:31038D3D4980D6B89A45A459B95634A5C95B6BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Heidra - Awaiting Dawn (2014) [MP3|320 кб/с]<Folk Metal, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:938EF2E0936B6778FF4ED7EA241C13E7A225F7EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Falconer - Black Moon Rising (2014) [FLAC|Lossless]<Power/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:2A65C13CC5BF3D4BF8FCCD0D45F9288518624933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Lethian Dreams - Red Silence Lodge (2014) [MP3|320 кб/с]<Atmospheric Doom Met
 ```bash
 magnet:?xt=urn:btih:B15133FD070FAB92EBE4A967CC21A53D8085CA9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Twilight Force - Tales Of Ancient Prophecies (2014) [FLAC|Lossless]<Epic Symphon
 ```bash
 magnet:?xt=urn:btih:4683DDB6FC0479EF71793B3B3CF808ABC642D572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10F184C167B8CDE550CA5F903D43B0425DFAD616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Bloody Mary - We Rock, You Suck! (2009) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9B2EF93AD2EB767E7737EC757FF288FEB159E27B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01598B87EDEE68AF8E9E5676E8D2299214353C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Darkest Era - Severance (2014) [FLAC|Lossless]<Heavy/Celtic Folk Metal>
 ```bash
 magnet:?xt=urn:btih:3F32BDB167F6277E83778A81FF051C996622875D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ Mastodon - Once More 'Round The Sun (2014) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:D428E6ABC4DB90479A6596E882BF32735F314A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +394,7 @@ Septicflesh - 13 Альбомов, 2 Концертных записи, 1 Single
 ```bash
 magnet:?xt=urn:btih:1C45E3ACF14A9FDCD529DE458EA84003F108240B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

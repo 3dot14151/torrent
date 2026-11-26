@@ -22,8 +22,7 @@ Blue Moon
 ```bash
 magnet:?xt=urn:btih:53055E9F1D693BEBDE63303FB266FADFAEB68DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Odd Man Out(   Читать дальше...   )Жанр: Jazz-Rock, Ambient, 
 ```bash
 magnet:?xt=urn:btih:9C2ECB1A4E68A9AA920216258EDA61DFC5983EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

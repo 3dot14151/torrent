@@ -19,8 +19,7 @@ Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:BB6114E622058B11D7E73F24C94A5329538D0639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

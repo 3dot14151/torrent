@@ -19,8 +19,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.0.5с-2.0.8fix) License GOG [Patches]
 ```bash
 magnet:?xt=urn:btih:2F0C28A9706A2787585BF2DACEB7B80F10810E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WARSAW – это увлекательная тактическая RPG на у�
 ```bash
 magnet:?xt=urn:btih:23F1692BC4F637D613C5FDA2C6716EAC0DF6DE95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

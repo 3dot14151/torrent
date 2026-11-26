@@ -20,8 +20,7 @@ CurrPorts – полезная бесплатная программа для с
 ```bash
 magnet:?xt=urn:btih:5379339FFB3A010398D0B7E8472DB039595795E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

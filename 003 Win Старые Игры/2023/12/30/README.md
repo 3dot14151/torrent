@@ -19,8 +19,7 @@ Shattered Union: Захват США - тактическая стратегия
 ```bash
 magnet:?xt=urn:btih:872A7821581DB616C0236F06EF6F7129248F5F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

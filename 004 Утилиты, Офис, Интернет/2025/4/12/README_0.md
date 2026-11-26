@@ -19,8 +19,7 @@ FolderSizes 9.7.522 Enterprise [En]
 ```bash
 magnet:?xt=urn:btih:A44FF8F42C8BDA5B4F7D9F5C3F8D3A5ADFD6E281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

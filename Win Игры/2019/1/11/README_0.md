@@ -19,8 +19,7 @@ Decay: The Mare (2015) [Ru/Multi] (1.1.1) Repack Other s [Chapter 1-3]
 ```bash
 magnet:?xt=urn:btih:972A5040D89904C932A5311DB8412FD3B98A2EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:ABFE569BA305D4A3166BEA5BE021E145E3719378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

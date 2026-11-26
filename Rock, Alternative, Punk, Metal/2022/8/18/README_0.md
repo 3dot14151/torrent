@@ -22,8 +22,7 @@ Leize - Leize (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C986107416C50156BBCC97D105AC031077C1D0BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nervosa - Agony (2016) [FLAC|Lossless|tracks + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:08081BF79C18677AB89FBA09E80B11A6F3C45676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nervosa - Downfall of Mankind (2018) Limited edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:E2B3EF02A783B472F7FE1A96918FC7907A8332B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Disc 3 - Gathered Around the Oaken Table (1999)Жанр: Viking, Black MetalПр
 ```bash
 magnet:?xt=urn:btih:3E4A7BE5DD33837787BA010F86E0C9637087E2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40147E983F82C2ED2DD85193DE3D99DDA29251A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Lacrimosa - Revolution (Limited Edition Digipack) (2012) [APE|lossless] <Gothic 
 ```bash
 magnet:?xt=urn:btih:76799FEBBB09DFAA12990024B23C0CF6D3F62CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

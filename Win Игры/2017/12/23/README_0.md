@@ -19,8 +19,7 @@ Shadow Warrior 2 - продолжение ниндзя-шутера Shadow Warri
 ```bash
 magnet:?xt=urn:btih:07F97E61F591A08D7A38B11585725BE396540FDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Algorithmic Melody - Love & War (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alt Me
 ```bash
 magnet:?xt=urn:btih:B729216E3EAEF12045700CBB3BF4DA8F075D2742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ R.E.M. - R.E.M.'s Top Forty Playlist (according to Berry, Buck, Mills and Stipe)
 ```bash
 magnet:?xt=urn:btih:3A1EB0FF5D26208B89C1D91149CC14EF1CC7FC4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

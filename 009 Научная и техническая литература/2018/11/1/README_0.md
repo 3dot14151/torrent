@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:445F41E2C6E8E4699E47639830DBE5725C1BA1E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XVIII век – самый загадочный и увлекательный �
 ```bash
 magnet:?xt=urn:btih:00A482363B239F765B38233976FEF7AB55D6FDCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

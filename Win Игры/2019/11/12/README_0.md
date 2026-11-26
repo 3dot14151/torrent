@@ -19,8 +19,7 @@ PC Building Simulator (2019) [Ru/En] (1.5.2/dlc) Repack Sceef
 ```bash
 magnet:?xt=urn:btih:1E718AB5217EB4E06D9DEDEA854DE30ADBA9C668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alice's Wonderland: Cast In Shadow / Алиса в стране чудес: Те
 ```bash
 magnet:?xt=urn:btih:C29CF6606EAB9B4E74D7E0FCE61BC18EADE5E1BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ X4: Foundations - это космический симулятор, продол
 ```bash
 magnet:?xt=urn:btih:082E60A250BC84DD7165152C263B5DF76E06D016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BATMAN™: Рыцарь Аркхема торжественно завершае
 ```bash
 magnet:?xt=urn:btih:C98874BFAEE212D5FB2D71B306B2E4B7C524B62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

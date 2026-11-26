@@ -20,8 +20,7 @@ Volume Activation Management Tool (VAMT) 3.1 Version 10.1.10586.0 [En]
 ```bash
 magnet:?xt=urn:btih:F323FF448092DBA397A01FEDC85F5F74A794504F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

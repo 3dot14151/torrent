@@ -26,8 +26,7 @@ Rahvira - Hakaharvatc (2013) [MP3|256 кб/с]<Black Metal, Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:05DE167725ADCB14F9E29037BE672BF6F2446958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Houses - A Quiet Darkness (2013) [MP3|320 кб/с]<Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:6B40F97B7E4B5C05095B77C9D2F395514366AA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Masterplan - Novum Initium (Limited Edition) (2013) [FLAC|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ VA - Golden Rock Ballads (2001) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5F9923644F7E17CB1D70708BB38579A8D2B7D7C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ VA - 100 Hits Rock Classics (5CD) (2012) [MP3|256 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:E0E42EBB2D96369865931B41CFA9E33DCA9F48A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

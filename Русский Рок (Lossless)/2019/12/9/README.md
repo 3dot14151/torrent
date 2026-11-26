@@ -22,8 +22,7 @@ KillHammer - Время скверны (2019) [FLAC|Lossless|WEB-DL|tracks] <Mel
 ```bash
 magnet:?xt=urn:btih:330B557085DE01BE4C1F36BD268157BB1BDF65E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

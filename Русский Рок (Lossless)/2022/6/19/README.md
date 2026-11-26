@@ -22,8 +22,7 @@ Moratory - The Old Tower Burns (2021) [FLAC|Lossless|image + .cue] <Thrash, Punk
 ```bash
 magnet:?xt=urn:btih:A748C601D1CCA537DBEC74D558B76650936BD763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

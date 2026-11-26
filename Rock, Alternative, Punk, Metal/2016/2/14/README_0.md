@@ -22,8 +22,7 @@ Mitochondrion - Parasignosis (2011) [APE|Lossless|image + .cue] <Black Metal, De
 ```bash
 magnet:?xt=urn:btih:5545D9670EF6519FDC8226A8257834CC5903C1BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Baldrs Draumar - Aldgillissoan (2015) [FLAC|Lossless|image + .cue] <Folk, Viking
 ```bash
 magnet:?xt=urn:btih:01D49948D2FA61DA5F9B1D1448202032EAF44821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tartaros - The Red Jewel (1999) [FLAC|Lossless|image + .cue] <Symphonic Black Me
 ```bash
 magnet:?xt=urn:btih:F43799E2D7B4D64E3289EC08E1D7CBCE88E156D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dead Can Dance - Toward The Within (1994) remaster 2008, Vinyl Replica, 4AD, Jap
 ```bash
 magnet:?xt=urn:btih:71693991316BC5552AF6A07F6324F5C87E724E40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Cure - Bloodflowers (2000) Japanese Edition [FLAC|Lossless|image + .cue] <Al
 ```bash
 magnet:?xt=urn:btih:00FA46BC090369F7AF205069C35D005092C4C95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Cure - Greatest Hits (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:F99C2139BA2649F8A2E7DDA444D711204CBB0972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Pink Floyd - A Momentary Lapse Of Reason (1987) Japanese Edition [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F9EBBE28EFC232D3F71D3DFED971BA8A074DF652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Christmas Spirit 3: Grimm Tales (2019) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:E9DB0D214B8FFD24E4426A0B80120E0531491CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Conqueror's Blade - Многопользовательская ролевая т
 ```bash
 magnet:?xt=urn:btih:64A22D55E3FEEC2597323F5D975E7B866EECA62C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Cyotek CopyTools отличается (   Читать дальше...   )Яз�
 ```bash
 magnet:?xt=urn:btih:A534650F14F77D99C3871C5DB0DF5DB91BF1D165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Total Uninstall - универсальная программа, которая 
 ```bash
 magnet:?xt=urn:btih:B010F9EC7C6783CD6404BCDEFE86A44087096374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Total Uninstall - универсальная программа, которая 
 ```bash
 magnet:?xt=urn:btih:BC0053ABC5535B06B26B32092287CB31EEFE57B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ USB Network Gate (бывший USB to Ethernet Connector) легко подкл�
 ```bash
 magnet:?xt=urn:btih:CB02BE3448B7E028956BF8C1EFDEA2840F756675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

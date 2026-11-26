@@ -20,8 +20,7 @@ Ubuntu 24.04 Noble Numbat LTS [amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:3648BAF850D5930510C1F172B534200EBB5496E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

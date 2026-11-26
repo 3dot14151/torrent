@@ -19,8 +19,7 @@ DVDFab Video Downloader позволяет пользователям скачи
 ```bash
 magnet:?xt=urn:btih:708A9AD972BA347AE3A8D791A030F32F0766058A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

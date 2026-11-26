@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2D7921C46EE0FA3ADF8B670025CEC0CA60A6D7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ New agent environments ranging from games, and robotics to finance are explained
 ```bash
 magnet:?xt=urn:btih:03C0AC43890D270E8A4C53E11946F81DF1C393C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

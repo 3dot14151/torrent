@@ -27,8 +27,7 @@ The Wild Horses - Americana (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:E68432D5C5F60EA8D4DAF9A198061DB224774BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Mark Selby - Blue Highway (2013) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:122973536F9FF92667B6CDFD7BA8CF3BDEB11CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F14EE092EA07475C082DA3C6770A4FB137B27E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Pattern Behavior - Collapsar (2014) [FLAC|Lossless]<experimental, IDM, ambient, 
 ```bash
 magnet:?xt=urn:btih:EF8819CABC4373B301D3DCCCE1E0920817597411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Lanie Lane - To the Horses (2011) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:809F248D8F3BA40BF7C083243A2D8E711B2B6A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1666610E9F50B68C68531D165C2948A652BC77C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Moist - Glory Under Dangerous Skies (2014) [MP3|320 кб/с]<Alternative/ Pop Ro
 ```bash
 magnet:?xt=urn:btih:A85601113FB3EA666091C3BDCB4919118267C1D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Maximum Groove - Coast To Coast (2004) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:8AE5D8261039D90559468EA6B981BB902E4A5869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18F00DE86CB23632FCFD1FE690DAB0EED7B53558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAE5774CDFB79FEDB93163139C840646204E77AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:748F780CBAF42CEB7907825A0BBAAD008FE0A2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5749198E327EE33550C86AAF8016E1A9F73AC94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3500C9E657D0325AB33A06FEC610A6EBD6FD5173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ Ben Granfelt Band - Handmade (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:EDDCCB48466CCE983EBD28124A90622E6290E801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ Clem Clempson - In The Public Interest (2013) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:2F5B7EC62518EBC09F37F8B89BFE20E8B2EEB5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ Public Enemy  feat. Paris - Rebirth Of A Nation (2006) [FLAC|Lossless] <Hip Hop,
 ```bash
 magnet:?xt=urn:btih:434852A7D2CFCF527D9657E6D0E5BD7CF8617AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5BB06EBDA2883E2D9A9DEF9A32647893C52CB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ VA - American Jazz - Cole Porter Songs (2014) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:F94988A7B030B2CE63DB9FEC60068DAFF3C7E05D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ Splav - Сверхновая (2011) [MP3|320 кб/с]<Modern Gothic Metal | Fema
 ```bash
 magnet:?xt=urn:btih:FEC49007DC46AAD377314D2DB707A2B0C415098F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ Hiram Bullock - Late Night Talk (2006) [FLAC|Lossless]<Jazz, Jazz Fusion, Jazz-R
 ```bash
 magnet:?xt=urn:btih:CD1DFB97540FD847BDB4F8E3BDE561EF5CF0C7F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ Discovery: Сверхчеловеческая наука / Super Human Science (
 ```bash
 magnet:?xt=urn:btih:C39EAE981564B018F00FD97431B0841FC93A7C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +655,7 @@ Freddy Cole - Singing The Blues (2014) [MP3|320 кб/с]<Blues, Jazz>
 ```bash
 magnet:?xt=urn:btih:D8961914F10812347F0CD5DD675A22103C0139FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +689,7 @@ Max Greger - Star Edition (2011) [FLAC|Lossless]<Big Band>
 ```bash
 magnet:?xt=urn:btih:9D718A6DFD296E10A73F4B7DBA8B579AF20D698B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1C6AE11AEB43C2179CFB2C7C46C7E67078D9940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43CEEB5BB8B65873315DC2C77002C7153D2B0911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ Scarlet White - The Inbetween (2014) [MP3|320 кб/с]<Modern Hard Rock/Alt.Meta
 ```bash
 magnet:?xt=urn:btih:F500CFD74BD1EF72F8ED964869952C90C21425FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

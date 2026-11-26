@@ -23,8 +23,7 @@ Woebegone Obscured - Deathscape MMXIV (2014) EP [MP3|320 кб/с]<Doom/Death Met
 ```bash
 magnet:?xt=urn:btih:1FCF86F2E8D0E8C9CFDA082105F50B104C679A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Yearning - Evershade (2003) [APE|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:310DE701000C80FE2F6707A2DFD109CB036390D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ The Satellite Year - Mission: Polarlights (2011) [MP3|~190 кб/с (V2)]<Alterna
 ```bash
 magnet:?xt=urn:btih:2D9B3B95E81D288083F2F6201B74021D52AF6C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B4A366AEC6B81FE25D5F4D8B3F3AC928ABBA2A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Hermаn Rarebell - I'm Baсk (2007) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:993C191F2FCD5B2519EB063C5BC5A9493FEF30F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Ensiferum - Suomi Warmetal (2014) EP [MP3|320 кб/с]<Folk Metal, Viking Metal,
 ```bash
 magnet:?xt=urn:btih:26B25A5F63803AE3CA6500CAE49121AE7B065390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Hermаn Rarebell - I'm Baсk (2007) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EE5C2130AC87452837CAD5067FFC106C353C26A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Written By – F. McDowell
 ```bash
 magnet:?xt=urn:btih:B13139234B2C5493115B236FFE5AB06D568CA2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Eagles - The Long Run (1979) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:8E5C2FC00620B2F0D05D3C32FB1C370566624420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +312,7 @@ Joe Cocker - Alive in America (2014) [MP3|256 кб/с]<Rock, Blues, RnB, Pop-Roc
 ```bash
 magnet:?xt=urn:btih:053780F4E5F1342E046A83FC884F4693D6D6F626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +343,7 @@ Uriah Heep - Look At Yourself (1971) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4DF0A498A13A1D5ED2EB569DC4F4A8B16F310EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C11490915725F22D7478F7F22CD1236805A4DA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +406,7 @@ CD1 - Bible of the Beast
 ```bash
 magnet:?xt=urn:btih:07C9B3E0FE13C329B222616CA4AC7AEEE1D19DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6A73E0C54681D63C4C425D1EDC1E9AB4676599F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

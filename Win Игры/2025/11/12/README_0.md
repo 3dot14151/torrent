@@ -19,8 +19,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) Repack Let'sРlay [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:F39028EAA16C65E87730DAAF2DDBB5BD3F5EB47D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Ed
 ```bash
 magnet:?xt=urn:btih:0AD9D6E2796840F184C0A0294338D97E01BDC5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Slayer: The Demon Haunted World - это стратегическая экшен
 ```bash
 magnet:?xt=urn:btih:E5DE487027389B2AD25FEC7CEEDE7A1D0270FA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wartorn — это однопользовательская рогалита с 
 ```bash
 magnet:?xt=urn:btih:A4A8CDCC21444989B6C7F3F06EDC403BECF70BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

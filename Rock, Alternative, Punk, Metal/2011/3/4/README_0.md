@@ -28,8 +28,7 @@ Agnostic Front - My Life My Way (2011) [MP3|192-320 kbps]<Hardcore/Punk>
 ```bash
 magnet:?xt=urn:btih:D7B7DF85ED028C0B3A925A853DF05B59E9C925EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Blue Stahli - Blue Stahli (2011) [MP3|320 kbps]<Rock, Electronic, Industrial>
 ```bash
 magnet:?xt=urn:btih:019DEE7947C1956BD46169881C96AC11EDA95EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Manfred Mann's Earth Band - Дискография (1972-2007) (1972-2007) [MP3|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

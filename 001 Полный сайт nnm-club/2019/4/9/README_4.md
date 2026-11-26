@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:255CB74E7879E4BB0A4B168217F80CAB74B93B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - THEOTHERSIDE | THƎOTHƎRSIDƎ (2018) Metempsychosis Records [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:AF5A8BE491990886E5127119D9F2F925A9567ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Natalie Cressman & Ian Faquini - Setting Rays Of Summer (2019) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:599F2B854EF5ABA86598E48038031FEAE8ED66B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Coral - Move Through the Dawn (2018) [FLAC|Lossless|tracks + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:41FFB708D719758CBB803661A3E623AEB08CD24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A.G. (AG of DITC)  - The Taste of AMbrosia (2018) [FLAC|Lossless|Web-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:F8006F3FA2A4D9558807579203099FE8DE317DF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - German Top 50 Party Schlager Charts 08.04.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:6E457BB8EF5F53C54ED8735D3F8454B0B86675A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, 
 ```bash
 magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Quelle Chris - Guns (2019) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious>
 ```bash
 magnet:?xt=urn:btih:569DA32239E21C9A4FD59C94BE796BFB753363B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Sworn Enemy - Gamechanger (2019) [MP3|320 kbps] <Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:915A7C6A4FCB06AEFF7CF6CA15547635A39459DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACA5285BC7BD46F8AEF644242BDA250E94B517FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Photo Supreme - вспомогательная программа для вла�
 ```bash
 magnet:?xt=urn:btih:A69FC084803C2BF7BCE37A1E0F77AA03EE026A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Captain & Tennille - Song Of Joy (1976) CD, Album, Remastered, 2005, Universal M
 ```bash
 magnet:?xt=urn:btih:8D7A0832FBFA5F9ED9942D38F711F4B95451422A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:831CCDA362CA6BBF50F77F5C9FFBA1F9D0676741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:975A1CA5182E87B9E1941C685BE9A10C617B6E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Beatfarmer - Speaking with the Wind (2019) [FLAC|Lossless|WEB-DL|tracks] <Psydub
 ```bash
 magnet:?xt=urn:btih:A8279A70747D0E836EFAE3F998635C0836E7C620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Band Of Light - Total Union (1973) CD, Reissue, Remastered, 2006, Aztec Music [M
 ```bash
 magnet:?xt=urn:btih:5991178B3B8492F363102ED29EC1C56C9C5222E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DE823F1FB20D6AF54809FFE1AAE78B11AD72067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFA91040D58F83CA6EE11308AA9E8E689E5EA4DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E12F3BF57EE48A1870E9539DBBD4DEBB17280F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F11454F7AB3EA6E531EE1E8E196F9C10B7D5254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ VA - The World of Neo Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B>
 ```bash
 magnet:?xt=urn:btih:BC0BDD9550E58C56653BF8A3FA782C531D511185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ MONOЛИЗА - Ни черта (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1A695C00D35510A08B82DA67937A3EAC8EDF67F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78D2A9FF442718F6AF83C0704E0F0C6D34A4B1A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:144C094C57712EE94E7F082D166C21B29B3323B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B4944D2C16090B2F8B456E122BC3468F38F16D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [MP3|320 Kbps] <I
 ```bash
 magnet:?xt=urn:btih:F0083371ACEBB31229F8B6F590BBE3E0BBE37D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

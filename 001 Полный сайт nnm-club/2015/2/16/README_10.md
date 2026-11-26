@@ -23,8 +23,7 @@ Nico Morelli Meets Mauro Negri - Colours (2002) [FLAC|Lossless]<Post-Bop, Free I
 ```bash
 magnet:?xt=urn:btih:3A6C8AB1D787E8876A1D53ABBD7384234E119B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Nick Granville Group - Wishful Thinking (2008) [FLAC|Lossless]<Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:3272CAFD075D668C19739659E44660B994B4BE86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Nico Morelli - Live in Morocco (2011) [FLAC|Lossless]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:89590009D0132CF516C24BDE9716A8D88E3923BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Ecnephias - Ecnephias (2015) [MP3|320 кб/с]<Death Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:931BFDD5A59EF32FAF0440ADD11BF4C378389D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Furor Gallico - Songs From The Earth (2015) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:851DEDD83AA189C2572AFDD2B10EE57FADB1435A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88153740607AF69AA26C1E13C038CA312D907615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Manic Depression - Technocracy (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:3193AF28F741333CB88E7AE2300F9BF4228FD289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ Manic Depression - Technocracy (2015) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:AC6BE532A5B030075B92EC8AF7B44F8638E40D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Nick Pride & The Pimptones - Midnight Feast Of Jazz (2011) [FLAC|Lossless]<Jazz,
 ```bash
 magnet:?xt=urn:btih:AD4BB92042F1CA38DB2595BD17AF28A9EFDE3A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ Aeon Spoke - Aeon Spoke (2007) [MP3|320 кб/с]<Alternative/ Indie Rock>
 ```bash
 magnet:?xt=urn:btih:81C659A2BA413846213A4157643CF049D51BE61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DAACA58E7E4C11E757CF8C3C6351347C5D25C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ My Sad Captains - Best Of Times (2014) [MP3|320 кб/с]<Alternative/ Indie/ Fol
 ```bash
 magnet:?xt=urn:btih:FA7C4608B476B81BB5A12EC89961D62A4F5B541F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ VA - Sensual Lounge Souls Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:96F40DB72656517F786757F60D81887064A3D468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE33ED47EA025B693AEBC28E28896CC1CEA042C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ Calabrese - Lust for Sacrilege (2015) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:DAA2E66DD030FAE1A0FD9030036D8AFA7FF3A784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1183BDD1B302299523841909729E4A7E928E6839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E33542D9EB0F69DE5D926CC341129FC13AA49381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ Bombay Black - Walk Of Shame (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1F64BDB68C9698ACA1579EBFD8037EDC8194AE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ Nicola Conte - Jet Sounds (2010) [FLAC|Lossless]<Bossanova, Future Jazz, Latin, 
 ```bash
 magnet:?xt=urn:btih:3491F697A733676E42A13CABE72C32C81AB57211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:297DD6F4EFF7B148E1B0EAF45E56B91C0A5C805E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ VA - Vocal Trance Collection Vol. 131 (2015) [MP3|320 кб/с]<Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:8A1C76FF59B59A1170CF183A401840A615BCEF03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8DF56D7FB8D23CCB11AF75D751F0B034127E235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ VA - The Full Moon Archive Music Collection (2010) [MP3|~181 кб/с (V2)]<Sound
 ```bash
 magnet:?xt=urn:btih:1D6C864A4F643FB92551373EE8738D2AB7DF7CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DCE92378DCE8CD15CF5E3E1098AD59E57F43B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F902DB670796F2B3846595D2076B66F8474538E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

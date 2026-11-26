@@ -19,8 +19,7 @@ Grim Legends 2: Song of the Dark Swan (2014) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CD6CF948BF9F4A4BCFCB1C039ECA6AAB530FD114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fade to Silence — это симулятор выживания в постап
 ```bash
 magnet:?xt=urn:btih:3CE5E882E9BEF18D01AA7026DA98D025D61BA27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

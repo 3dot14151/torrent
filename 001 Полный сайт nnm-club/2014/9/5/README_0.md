@@ -25,8 +25,7 @@ Hermann Kock Trio - Two Trios (2008) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:5862DEC3BFFFBFC80C46216BCFEBA9C9C2F86B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ VA - Fashion Grooves - Lounge Jazz for Ramps & Boutiques (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:21ACCEE52F5893E23E9647FA4CEBE0FF311F6F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:039865495C271FE2BA9E4A6185307DF27F1E0F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Idlefon - Intensive Collectivity Known As City (2014) [FLAC|Lossless|WEB-DL]<IDM
 ```bash
 magnet:?xt=urn:btih:B193CFAA7185142D86F7EEB4E9226A76DAB2ACE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Metamatics - Instamatic (2014) [FLAC|Lossless|WEB-DL]<Electro, IDM, Ambient, Exp
 ```bash
 magnet:?xt=urn:btih:D5A925B213BC3B2172B1378A738596125F7EF52B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AA03CCB6F3BF44F6F64C9A051ECA97DD1546770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AEE309D5E27543584805139439EF078C987AB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ JavaScript framework для быстрого прототипирования. �
 ```bash
 magnet:?xt=urn:btih:76AC8230F4EA7BA032E2505EFD450EC88DE93B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90EA8A53C98013507A56B48FA0894F4E70892706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E356C43C4BFFD8B9C5A93C33428BEB9544243C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ Marc Antoine - The Very Best of Marc Antoine (2003) [APE|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:D4072F6EF9EA0DACE464CEF5D119BFFA89589CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ Ashampoo Photo Optimizer - простой и удобный инструмент
 ```bash
 magnet:?xt=urn:btih:5B83E6EFACA873B760D5EE7467807832EE5BF7A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ VA - Uplifting Only - Fan Favorites 2013-2014 (Mixed By Ori Uplift) (2014) [MP3|
 ```bash
 magnet:?xt=urn:btih:7CF54B1A643DE1179FC0EAC557C7AB08BD5A1D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1FF812B546AA8689F55397386E3D17E0332CA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ Aphex Twin - minipops 67 [120.2][source field mix] (2014) [FLAC|Lossless|WEB-DL]
 ```bash
 magnet:?xt=urn:btih:0CB41DB9DF49FC80F9AF230B7AA9BB53E21CC2BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC731587D135E476DB6421F2B061E1497285415A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ Sena Ehrhardt - Live My Life (2014) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:EF64E5A6BE4FF0639E3E01FFACFC964F160BD231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ Comedy Баттл. Суперсезон. Этап 2. Выпуск №1  / Ком
 ```bash
 magnet:?xt=urn:btih:F64B858A7DE7F5F87CD0A6BB23DF78E66078DA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ VA - Нажми На Play (2014) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:48430EFE47B31F55CA78647EEA5C556C93BB3335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ VA - Музыкальная осень Hit- Mix (2014) [MP3|128-320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:A4C3360AF2E60179180C8098B629CBE408E96169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:9ECDA41B5D0A6C68D7CA024833585CA7EB838651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB430C12BAD9ADB503BC7BA3D145A4F8B899439D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94D589A66A7015181F806EF7C7E99FD020F77B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +689,7 @@ VA - Любимая моя. Душевно с шансоном (2014) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:0C9831FD51646E9B9784930E05FD75B273963A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ Comedy Баттл. Суперсезон. Этап 2. Выпуск №1  / Ком
 ```bash
 magnet:?xt=urn:btih:F28B9920FC581C65A6FA6D41EC292B6041E83779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +740,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0505D2136449608B464E3AE72EACA4F33DF1271C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SD Maid v5.5.10 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E8E8940D3549F5425E694564EBE29A5ED1D36FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NYMF: Арт-проект Ню Фотографии 1.5.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:5DEDA709E0C96BEB94F8B0846F225CB51BF8065B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:371E18967C858856FCDFFCF32FB527DBED69B78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Forbidden Secrets: Alien Town Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:CCBB6128B3CF0932D699B471CBD6951BA8E4B2AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Halls 3: Revenge of Doctor Blackmore. Collector's Edition / Дома с 
 ```bash
 magnet:?xt=urn:btih:87CBC3983CE311832E0659FCCC35138BEB43557A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tales of Terror: Crimson Dawn / Трепетные истории: Багров�
 ```bash
 magnet:?xt=urn:btih:E1D6A0AF84C66C2940AFCC973D88BD86D7FD1B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Imperium Romanum [Ru] (P) 2008
 ```bash
 magnet:?xt=urn:btih:9FCB40C344F1512D2F5178225A1EB2D5FAD217F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Arena Wars 2 предложит игрокам современный графи
 ```bash
 magnet:?xt=urn:btih:E89B56A907F1967CA9377B8238093973D64930E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ The Testament of Sherlock Holmes [Ru/En] (Steam-Rip/1.0.0.2) 2012 l R.G. GameWor
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Star Wars: The Force Unleashed Dilogy [Ru/En] (Repack) 2009 - 2010 | R.G. Мех
 ```bash
 magnet:?xt=urn:btih:587B6DDB7DC7B6700813F6834E3B52D1007A3200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

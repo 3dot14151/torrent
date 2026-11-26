@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:86BADB4D449510D7D4B5ABD281B4ED784A97A7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF0FE408D0F9CD3FD7F1444E6DD8DABCAB870D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1B5B473AC18E375B19B28C62BB2A951271F3231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38C0C58A3AD469D5A484B950E77EE1633600C4CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9550E9270252C9C45663861AD5E7CE428ED19F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5B26CE14184DFDE0E9001996DF89B52EA0426D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:713AE345245DE2C4176FCF863C5F57768E4D673E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A26C44DC9EBC6380AF02478307269527D5E323C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33A47A93C6CEAFE3A15EB351420D982D08A1052C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Thelonious Monk - Making The Right Moods (1999) KRB [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:9067D9CCC22CAD90A2A8E7602018523EF91E17B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - My Fitness Week Thursday: Swimming Chillout Playlist (2017) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:49326D58748A8FD785279245FC719B0579A149ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Antonio Farao - Black Inside (1998) 2005, Landy Star Music [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:97ECEEB2E96EBD30E7D3CB80E5F76E9DA3E572D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ CheckOff  работает в режиме меню или как обычное
 ```bash
 magnet:?xt=urn:btih:D3D4EEB598635593FFA647F3832C3B89DAB8FD23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Special EFX - Mystique (1987) GRP Records [FLAC|Lossless|tracks + .cue] <Smooth 
 ```bash
 magnet:?xt=urn:btih:A352F378B7304F86D69C0714F0EE37DFA2D5F375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:42F39CAC31FF7B42D3720B2FDADD841D6EDF9FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:92B9168B5688302C28B9F59700AAF2983C06D8DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ Video Downloader Converter - это программа от Allavsoft, кото�
 ```bash
 magnet:?xt=urn:btih:D8440B4C03729D9DECA7041F53F790272697AD3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ VA - Russian Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:89717FC6AEDCEA61B2C13016D6E4D65CAA3F48F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ The Bai Bang - Ridin' High (1996) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:538E6FE238B6CA88B7120A8B50BCD8AFBBCB30CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ Arbre Noir - Collection 5 Releases (2000-2006) Polymorph Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:4DC640FCFC0CB7D94374A9B4F16DFA3C8C52C43A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ Murray Head - Tete a Tete (2007) [APE|Lossless|image + .cue] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:DD829C859BFAC08615D5E1B88B132A6FE07F3FDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ Dream Evil - Six (2017) Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:FF8DDAEF192D49C1616A5F751F5DBC3F0E996A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ Thierry Lang Trio - Serenity (2014) Universal [FLAC|Lossless|tracks + .cue] <Pos
 ```bash
 magnet:?xt=urn:btih:3CFFC1BB1727AFE6CC57D3427EE933329A4E0782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ Anggun - Toujours Un Ailleurs (2015) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:91F517A1187C71ED976888C782F802358C85F594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:ECEC334BAD9533FD4ECAA21665940730ECCA2329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ VA - We Are The Night: Best Of The Clubs (2017) [MP3|320 Kbps] <House, Club, Dan
 ```bash
 magnet:?xt=urn:btih:C7F0EB00DC740603C329D381E3568F1272EDAB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

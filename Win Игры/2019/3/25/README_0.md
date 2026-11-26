@@ -19,8 +19,7 @@ Dark Parables 14: Return of the Salt Princess (2018) [En] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:CB6B6655AB2ACF7B3844B0BD5F3A38E151D8E752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Twola был просто еще одним умирающим маленьки�
 ```bash
 magnet:?xt=urn:btih:09904C3268980B614CE62DDC9498EBDE27316CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

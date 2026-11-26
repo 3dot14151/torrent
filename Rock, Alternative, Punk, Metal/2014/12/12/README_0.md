@@ -27,8 +27,7 @@ Bhleg - Draumr Ast (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
 ```bash
 magnet:?xt=urn:btih:FE71762EDD42DFF5B5C913350D60DE71F0E92EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Zrec - Zertva (2008) [FLAC|Lossless]<Pagan Metal / Folk Metal>
 ```bash
 magnet:?xt=urn:btih:DEA1261601C73B80A68D3A886C897D3B1DBBD086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Voodoma - Secret Circle (2014) [MP3|320 кб/с]<Melodic Heavy Metal, Gothic Met
 ```bash
 magnet:?xt=urn:btih:94BA31DD91106ED52BF881B8A36F40E429D91B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Ira Tenax - Portrait Of The Fallen (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:843CC78709BCC4AD144FF4C262B99A290BB1A8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Stratovarius - Elеmеnts Pt. 1 & 2 (2003) 2014 Reissue, 3CD Boxed set, Complete
 ```bash
 magnet:?xt=urn:btih:CD0F1FAA2F2BB6E3868713AB190175A96654286E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Strаtovаrius - Elеmеnts Pt. 1 & 2 (2014) Complete Edition [FLAC|Lossless]<Me
 ```bash
 magnet:?xt=urn:btih:BBA44ED03827DFDDA09758D4A6BA2DB4F37823B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ The Angels From Angel City - Beyond Salvation (1989) [MP3|320 кб/с]<Hard Rock
 ```bash
 magnet:?xt=urn:btih:91D827595568A8DB98133AF34BCF3D0AE42CCD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EE0E965E5025FC8D24D955477A5236706577C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ The Hardkiss - Stones and Honey (2014) [FLAC|Lossless]<Pop, Rock, Electronic, Al
 ```bash
 magnet:?xt=urn:btih:3AD68D77A957142D0E9403A23930E7F80E075093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:381B5E88C5611769F3619E686D0AFC94E2A4B94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:011C9C36147582C9374976915C825BC05131956A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

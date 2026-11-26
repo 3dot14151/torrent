@@ -22,8 +22,7 @@ Imperial Age - Warrior Race (2016) Japan [FLAC|Lossless|image + .cue] <Symphonic
 ```bash
 magnet:?xt=urn:btih:249C3EB2068973FCC868A6CFA01D1DFF94A99A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

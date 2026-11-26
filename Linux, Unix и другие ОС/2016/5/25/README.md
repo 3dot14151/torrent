@@ -19,8 +19,7 @@ OSGeo-Live 9.5 (Дистрибутив для географов, картогр
 ```bash
 magnet:?xt=urn:btih:D4E4DBACC89EC17DAE517E2740C81AE90C840E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Q4OS - дистрибутив операционной системы Linux, с�
 ```bash
 magnet:?xt=urn:btih:BE5D9C1273A392742F71A699A691531DE62F5296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

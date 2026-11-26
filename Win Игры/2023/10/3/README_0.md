@@ -19,8 +19,7 @@ Unsolved Case 4: Above the Law / Нераскрытое дело 4: Вне за�
 ```bash
 magnet:?xt=urn:btih:2DDFC07069B3FEC63E9C53746857850317E31244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Abomi Nation (2021) [Multi] (1.3.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5F7492251E13097DFC634EF654CB2E8DA0EBE81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NOCH — зловещее сюрреалистическое приключен�
 ```bash
 magnet:?xt=urn:btih:4B3183A7B79636D2EE8CFFD70A075B251683EAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Demonologist — это кооперативная игра ужасов, в к�
 ```bash
 magnet:?xt=urn:btih:3601B015B51810F957D5D30D1457698E650A0D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Scene Rune
 ```bash
 magnet:?xt=urn:btih:82EE1434E56B6992AACC78FCC8F665E8F40002D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Overpass 2 - это захватывающий дух внедорожный с�
 ```bash
 magnet:?xt=urn:btih:902D6A34B128300858D39B730811EE3A69D187A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

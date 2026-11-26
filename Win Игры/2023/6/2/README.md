@@ -19,8 +19,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064) Scene FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:70C369E8339C29FECB6BB2A873407FF9F2255EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs (2023) [En] (1.0) Unofficial 
 ```bash
 magnet:?xt=urn:btih:661E58B5CC4933C1C6F9858F27F0F5CAAF5440E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kao the Kangaroo / Кенгуренок Као (2022) [Ru/Multi] (1.6.0/dlc) Lic
 ```bash
 magnet:?xt=urn:btih:5DA0056834857C73B18BEF057317BF8DC230F4F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

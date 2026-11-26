@@ -22,8 +22,7 @@ Svengali - Sayonara (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:BDE8E7F7AF7230ABE9E66AABA554205172F21727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shaark - Again With Hatred (2006) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E233DD26ED66AAB03902466E49A975B3BDEE1CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Welicoruss - The Best of Welicoruss / Siberian Heathen Horde (2016-2020) [MP3|32
 ```bash
 magnet:?xt=urn:btih:6943DBFAD2D8C3D046313C8FB1838F8FB0B46A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Brian Fallon - Local Honey (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:2A36D7656CBF12C0765B231CE10B05787FDC8681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Black Dahlia Murder - Verminous (2020) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:8ED3328CB3CE0A63B02149BC4C87030C6779E2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Holdaar - Где Не Место Рабу (2013) [MP3|320 Kbps] <Folk Acoustic B
 ```bash
 magnet:?xt=urn:btih:16E4A0BBBA3D31BB075F004F1FE90D2CAEC58B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Almanac (Victor Smolski's) - Rush Of Death (2020) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:67D4C366835C612EFCF85AF950217D4CAFF6780B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Nine Inch Nails - Ghosts VI: Locusts (2020) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:97AC13274E2A347DBB3859129EE91F84644E63F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Wine Red - Сквозь горизонты (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:95695D14D3245841CA51AC7426724D7AE03990BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Nine Inch Nails - Ghosts V: Together (2020) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:D2F9BDF2F69B8381567BBB9CACD95FD9658E5647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17934C181D9B498249F32E49085F21E04D8EF9FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Soft Rock Classics (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:2F905E72B2B556F68648690F918072D190671BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Baxter Dury - The Night Chancers (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Alternat
 ```bash
 magnet:?xt=urn:btih:AC7177A979436DB8616487CE6B16165F39FC2169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Rock Legends (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Classic Rock, Hard
 ```bash
 magnet:?xt=urn:btih:746427000F0EFB336C60E1D4C95B2A5CE9AD7289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

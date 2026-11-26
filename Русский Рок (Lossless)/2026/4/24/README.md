@@ -22,8 +22,7 @@ Lumen - Любовь и Красота (2026) [FLAC|Lossless|WEB-DL|tracks] <Roc
 ```bash
 magnet:?xt=urn:btih:A90CD02EE8A37962D3AAD1113AB2714F1C1A87FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Agatha Christie: Evil Under the Sun / Агата Кристи: Зло под С�
 ```bash
 magnet:?xt=urn:btih:AA6B2B6BDBDA60E4F8CD7EF038F992C8BD203446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:429033DF2B7D1F5BD79EAED73C7F34F868B56AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MailWasher Pro включает антивирусную защиту, обес�
 ```bash
 magnet:?xt=urn:btih:6792BF12D6B46116DE8DB48CA6FB0F4225D47ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

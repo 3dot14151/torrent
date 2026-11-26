@@ -19,8 +19,7 @@ Monstrum (2015) [En] (1.3) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B1334F2A68098BA22F112E4715B227A846D2F3DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

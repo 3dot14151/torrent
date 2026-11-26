@@ -18,8 +18,7 @@ Zoo Tycoon – перерождение серии симуляторов мен
 ```bash
 magnet:?xt=urn:btih:1994ED57B5C9B38D9ACA41F5A12522D7B7FAD81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Young Justice: Legacy (2013) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:6F1CE2B127BA5473D3655FC7FAAF93A688132BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AE7466FB6E6D9B02C8E04EEE1E547663125CF1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013 Redistributable Package Hybrid x86
 ```bash
 magnet:?xt=urn:btih:DC14E06D13CFBE1C41671C6A3B8BECA8CF1837A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Windows DesktopPack - это сборник программного обесп�
 ```bash
 magnet:?xt=urn:btih:FA30737B52C7A8141FE4DE827841E120A2A0219E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C63555EF77CC4139E707A52EDED36C0EB577548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Wireshark - собирает и анализирует информацию о �
 ```bash
 magnet:?xt=urn:btih:29BC290A932B672536ACE345DD1E4E58685BB88E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1C1E8DDF9DF53DC023A66618CED6642E1AD18EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Tuxera NTFS for Mac 2013.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:967D4A4F2217F8AA54C4F20713F60A2D2784EBFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Portal 2 [PS3] [USA] [Ru/En] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2011)
 ```bash
 magnet:?xt=urn:btih:CBA09C4CD6FDFD9EF0D61075EA99359956511196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 ```bash
 magnet:?xt=urn:btih:41E0B5566B515A6687EAF1FCDECE308AB7F4356B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 ```bash
 magnet:?xt=urn:btih:2E046FB6434C41C4DB083A7FBDC5F9F4765E4F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Adobe Illustrator – это принятое в качестве отрасле
 ```bash
 magnet:?xt=urn:btih:F39BDACE563E0DB67040E043188E1786F345F6AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ iTools — очень классный файловый менеджер для 
 ```bash
 magnet:?xt=urn:btih:308583705C1B27210324464777D3C47704A5D618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:523C68BE2CA171A96284D87667D38154CC4E4DCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

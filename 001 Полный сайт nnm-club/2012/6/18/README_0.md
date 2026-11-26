@@ -27,8 +27,7 @@ Attila Fias - Christmas Spa (2006) [MP3|320 кб/с]<New age, Piano>
 ```bash
 magnet:?xt=urn:btih:14AC1A75156131A56BB042EE74ABF95EB2495BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - New Club Party Vol.4 (2012) [MP3|256 кб/с]<Club>
 ```bash
 magnet:?xt=urn:btih:DFE71535EB61C8CBBEC82FD60275D62C8C67CA08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ VA - The Other World (Albatros) (2007) [FLAC|Lossless]<New Age, Instrumental>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Chelsea Grin - Evolve (EP) (2012) [MP3|256 кб/с]<Deathcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +165,7 @@ VA - Жаркий клубный хит 2CD (2012) [MP3|320 кб/с]<Pop,Dance, 
 ```bash
 magnet:?xt=urn:btih:A6709144E4F03139D1BBAC20C5332FB6F9EEBE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +199,7 @@ VA - Клубные Новинки Vol.92 from AGR (2012) [MP3|320 кб/с]<Club
 ```bash
 magnet:?xt=urn:btih:959DC8B82AF2A8D77E3B734E89428A0DB056BA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +233,7 @@ Nostrum - Requiem (2012) [MP3|320 кб/с]<Acid Trance, Hard Trance, Progressive
 ```bash
 magnet:?xt=urn:btih:FFF8E20BD2855239A7414BB798FFB4AB49C539AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +267,7 @@ Tiёsto - Club Life 272 (17.06.2012) [MP3|192kbps]<Trance ,Progressive House, El
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Theresa Flores Geary | Creative Native American beading [2005] [JPEG]
 ```bash
 magnet:?xt=urn:btih:D24D8EFE2B4FE2F3A422A3D294A7EF05B1C32A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ VA - Dance Paradise Latino Romantica (2004) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:7EEB9148F59E76079959F26D5643E038BCA9DE09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B8466D8B53B9BC7F57922D6BD3CE1E5FED0B2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39037041A23D4947428CE98FB4AC28E08FC5EBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +406,7 @@ VA - In the Club 2012.2 (2012) [MP3|320 кб/с]<Club House, Dance>
 ```bash
 magnet:?xt=urn:btih:564A4DDBA22DAEED9114245B355929E55222E59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +440,7 @@ VA - Miami Trance Anthems (2012) [MP3|320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:54223F334E3E28AA8EEAA861CF9D9681E136F5B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +474,7 @@ VA - Забугорный Дискач (2012) [MP3|256 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:775C273E5BFFEAF04764CE3C03735A42D4E86FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +508,7 @@ VA - Зарубежные Новинки Vol.59 from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:8E9B175B4953CBAE94215426366976FFF0EE5650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F027B7328532CE879CAFDAC4A9244489E451C662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4E95575EC4FA4AF07F2CA176711212B7F2B0298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56EBC7847658791B30E71269C483F2AA51C7C26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F17D8715CDE1992445184D48366007509A60F96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D90D5F216EBBC01A5ADFEFE1F9AE3ACDDFF70B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:847E6269CF6B489D91DFA6B29A4896A645CF63A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +717,7 @@ TNA Wrestling (Total Non-stop Action Wrestling) — федерация рест�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ TNA Slammiversary - PPV на шоу TNA.Жанр: СпортПеревод: Од
 ```bash
 magnet:?xt=urn:btih:E369E0BFE9A8EEFF5770A69CC3D0BE4AEC00D5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F173DFE20DFAD977C88529ED410B78F01C7AD6F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

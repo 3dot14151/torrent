@@ -22,8 +22,7 @@ Three Days Grace — канадская рок-группа, исполняющ�
 ```bash
 magnet:?xt=urn:btih:1A82A1540DC5E02CB8C0930D0898A163112A12D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

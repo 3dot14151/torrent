@@ -22,8 +22,7 @@ Devin Townsend - Unplugged (2011) EP [FLAC|Lossless|tracks + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:C94EC6BD8845D190D0B4DB3BCD67F2F208A2233A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sirenia - Nine Destinies and a Downfall (2007) [FLAC|Lossless|tracks + .cue] <Go
 ```bash
 magnet:?xt=urn:btih:754357B1181F59F016AD16A26E6B31D46CD9F2ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Devin Townsend - Iceland (2016) EP [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:D5DFEFAB8FE9F6C0EC7C272C41262248206D4E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Old Man’s Child - 8 альбомов (1994 - 2009) Discography [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:179830D6FD4F49D93FE63EE6277B8EE7746123B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

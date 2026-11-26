@@ -18,8 +18,7 @@ Digital-Tutors | Creative Character Exploration - Aliens [2010] [EN] PCRec
 ```bash
 magnet:?xt=urn:btih:E4F2A930D7CF4FDF7A89B0005315C540A76E30BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Digital-Tutors | Working with Tables in InDesign CS5 [2010] [EN] PCRec
 ```bash
 magnet:?xt=urn:btih:FA6B39CB028DF0716247D398DDC89E37F4ED9439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C900CD7AE741E3B01368DC7BCE4536767945FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ VA - Включи Весь Мир! Новогодний (2010) [MP3|128 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:3070489119C262F43BABCC093C699F2AF87B0C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Billy Joel - Glass Houses (1980)(2010 AFZ092 HDCD 24K Gold) [WavPack|Lossless]<R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Michael Allen Harrison - Tango (2010) [MP3|128-320 kbps]<Instrumental, Tango>
 ```bash
 magnet:?xt=urn:btih:D1E50CD6928A208E7E5908A02E366C607287D6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ Andres Segovia - The Baroque Guitar (1988) [MP3|192 kbps]<Classic>
 ```bash
 magnet:?xt=urn:btih:55D1FDF65D1724F56834190E92F1BA94983004B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ VA - Ether - Compiled by DJ Zen (2010) [MP3|320 kbps] <Tribal, Downtempo, Ambien
 ```bash
 magnet:?xt=urn:btih:D8DE8A0A4126169A89886F35CEF58FD6DD48073B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Digital-Tutors | Understanding Object Transformations in InDesign CS5 [2010] [EN
 ```bash
 magnet:?xt=urn:btih:5323903D19DCEFFE99B3AFA00E3A2074F7565BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ VA - Самые модные хиты радио Record 50/50 (2010) [MP3|256 kb
 ```bash
 magnet:?xt=urn:btih:2C5AB003AD63375F31654C4317100017BBCC3AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Vacuum Stalkers - Gandahar Suite (EP) (2010) [MP3|320 kbps] <Progressive>
 ```bash
 magnet:?xt=urn:btih:BC552634294F78115455AF62833B603BF1B770DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC0C88F3D576BA6D3350903909370FFD0524C09D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Sumatra PDF можно смело рекомендовать тем, кто по
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ Phil Woods Quintet - Ballads & Blues (2009) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33F631BC363BB09A77C0718A9CCC5343134AE266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ Digital-Tutors | Exploring Animation Principles in Maya 2011: Exaggeration [2010
 ```bash
 magnet:?xt=urn:btih:37D44E341B477B95372E0E3FA23A73638479733C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Digital-Tutors | Getting Started with InDesign CS5 [2010] [EN] PCRec
 ```bash
 magnet:?xt=urn:btih:E4063874CDBC6679B79A9498110A633B583C921D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E12568BD2E12BBADC1A63996B65BCBD752B91327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ VA - Улетная 100-ка шансона №2 (2010) [MP3|256 kbps]<Шанс�
 ```bash
 magnet:?xt=urn:btih:854850C663C8A6A537FDF8048A87D4DAD73F3253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F475D7B002527ACC38A3FEE24C29E59B2F677FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:223B591C37673615356DB782BE6C8058BF291D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ Llorca - New Comer (2001) [FLAC|Lossless]<Jazz-Lounge, Chillout>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ Dress-up Pups (P) [En] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:579CC47A86261944C21AF89E612B027FEC6EAC8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F54C72A78C305F28E13BBD1E493619F7F722E2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79F69746AFEB89F4D0CABE76598F913FF46E889A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

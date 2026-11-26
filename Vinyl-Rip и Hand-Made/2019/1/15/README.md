@@ -22,8 +22,7 @@ A4 Увижу, Узнаю(   Читать дальше...   )Жанр: Pop, Schl
 ```bash
 magnet:?xt=urn:btih:DAB094A46908BD52C495E2A06464C3BF808767D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Crying In The Rain (4:22)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:365EC4B13142CA1BF1868B2AFD46426DCC9B8AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

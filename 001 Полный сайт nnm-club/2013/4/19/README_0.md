@@ -27,8 +27,7 @@ VA - Шальные мелодии шансона (2013) [MP3|128 кб/с]<Ша�
 ```bash
 magnet:?xt=urn:btih:BE71741B7F42BA0A92A1DC37EAA2256D57F25793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - 100 Клубных Хитов 7 (2013) [MP3|320 кб/с]<Dance, Pop,Club>
 ```bash
 magnet:?xt=urn:btih:D171AEDFECEF515483386FED7D99289F603FA412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Photo Collage Max – это удобная программа, которая �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:455542F97213A2DDBAAE00B3FA86DC3A3C0D120E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ NG: НЛО над Европой: неизвестные истории / UFO Eu
 ```bash
 magnet:?xt=urn:btih:10DF18F5FF07E853E7E9091DA4516BD682F09D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Wise Disk Cleaner с его интуитивно понятным и удобн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ VA - DubStep Pro V.24 (2013) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:A70AB330D188480DF148AA26D5383891BFE01CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ Tripical & Cybax - Half Moon Festival: Phangan Island - Thailand Vol.4 (2013) [M
 ```bash
 magnet:?xt=urn:btih:DAC0E8061888EDEF1B5DEB87EABC5A581A0BC846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ED0ACE0B71FAD21CB99B77FFC709BBDA6BAB9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ VA - Новинки сезона от русского шансона Vol.9 (201
 ```bash
 magnet:?xt=urn:btih:BC15F50758C82CCBD6101385442ADD7490EBDA3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ VA - 15 Top Trance Hits 2013.04 (2013)
 ```bash
 magnet:?xt=urn:btih:D2E4C555A310751513CCA15047EF8B1AD7DC725C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ Doyle - Abominator (2013) [MP3|320 кб/с]<Horror-punk>
 ```bash
 magnet:?xt=urn:btih:8E615573375D87607F97E3B0F763F3B11F5614C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ VA - Armada Presents Trance Essentials 2013 Vol.1  (April 19th, 2013) [MP3|~256 
 ```bash
 magnet:?xt=urn:btih:73F7800372A915392246DFB1587202E5F3B78173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86ADA1982C7DF4048A13E2DE52FF6992BA1541CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:054128A33D60D33B7B06F3C4D679A37EE328AC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ Armin Van Buuren - A State Of Trance 609 (2013) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:9451A9486C082E899B13A7ACC9434B926D403DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ VA - Full Relax (2013) [MP3|320 кб/с]<Relax>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC19A620797E04013927B6235B3CADCC407817DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ VA - Fragile Life (2005) [MP3|320 кб/с]<Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:BD9A9BCAA3FBC0D86192CB6E2DA24ADEDB94B99C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ One Love Peace Concert (1978) DVDRip
 ```bash
 magnet:?xt=urn:btih:366729B8DA60A03C1BB612A814B5421D0F27D623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ Johnny Logan & Frederic Francois - The Best Of Retro (2000) [MP3|320 кб/с]<po
 ```bash
 magnet:?xt=urn:btih:4A70BEEC1E68CA75CA5F91B04C09A7B43EE93BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +714,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89FF8B46DAA48F6A5AD9F1107EBDAEE1566E5D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ n7player Music Player - весьма впечатляющий своими во�
 ```bash
 magnet:?xt=urn:btih:4BC7994BD63507517E4450DD4425A3D9B249F887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ n7player Music Player - весьма впечатляющий своими во�
 ```bash
 magnet:?xt=urn:btih:2890AD63A52C65242825D3231D47904FC3E40ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MyFitnessPal - отличное приложение для всех кто хо
 ```bash
 magnet:?xt=urn:btih:A5BFE9475226653A357BF6C0D75A0C436D56761D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Foreca Weather - весьма популярное погодное прилож
 ```bash
 magnet:?xt=urn:btih:0EFA565E3E43035007E7EDBE20404DD9DCEE7604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Foreca Weather - весьма популярное погодное прилож
 ```bash
 magnet:?xt=urn:btih:16D7B66226030127E709034E31BAF82BC40E1701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ n7player Music Player - весьма впечатляющий своими во�
 ```bash
 magnet:?xt=urn:btih:D3612214A9BC10EC4E2951E6DCBA8CF53174CF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

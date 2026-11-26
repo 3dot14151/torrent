@@ -19,8 +19,7 @@ Disney Epic Mickey 2 The Power of Two / Disney Epic Mickey Две легенды
 ```bash
 magnet:?xt=urn:btih:E4AF1B22F9D4605224A190075166E29209F461F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Shadow Warrior - ремейк шутера от первого лица от с�
 ```bash
 magnet:?xt=urn:btih:422EA2747231D179426D8CAD7605B107CAA664EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

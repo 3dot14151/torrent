@@ -19,8 +19,7 @@ Pure Hold'em (2015) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:B88F9F918667634CBA7BD1B4D4814E1D6EA42A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadowrun: Hong Kong - это новая пошаговая ролевая иг�
 ```bash
 magnet:?xt=urn:btih:8BA7BBF0F342212A17FDF18AA839DFA174054231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

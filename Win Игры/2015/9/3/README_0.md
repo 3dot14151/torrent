@@ -19,8 +19,7 @@ Guacamelee (2014) [Ru/Multi] (1.0) Repack R.G. Механики [Super Turbo Cha
 ```bash
 magnet:?xt=urn:btih:48486795212BE7C584146241BEE367283C016E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Azure Striker Gunvolt — это 2D-платформер, в создании к
 ```bash
 magnet:?xt=urn:btih:83398BCBC7B3BC6CB32038DE6D37327CA0D0548E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nobunaga's Ambition: Sphere of Influence - представляет из себ�
 ```bash
 magnet:?xt=urn:btih:3206B768FC3E41E7CD28FC7BF5252F2EBBF9CF9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

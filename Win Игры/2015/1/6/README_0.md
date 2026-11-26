@@ -19,8 +19,7 @@ Amaranthine Voyage 3: The Shadow of Torment / В поисках бессмерт
 ```bash
 magnet:?xt=urn:btih:5748BBB206312B8E8B673099F2753D3DAC79953B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5CC8D5B24703FF2EDECB4C700122E052C8A8A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Skyward Collapse - оригинальная пошаговая стратеги�
 ```bash
 magnet:?xt=urn:btih:DA1DFBFAB238AD4F47F020638F7364C01DCB70E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B64A40B46F5D0196D99D7405F60026D9AC1E11A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ AI War Fleet Command (2009) [En] (8.020/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A47F6C7DED5E5C5761A79D8564770E969F7E2B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Do Not Fall – логический платформер, рассказыва�
 ```bash
 magnet:?xt=urn:btih:35E2A65E56CFD8D37FE8747B1631F6F70B233052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Lord of the Dark Castle - это приключенческий классиче
 ```bash
 magnet:?xt=urn:btih:49ADE3231DCE3F08B0C4D7D3E11CEFC040F4DB4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Leviathan: The Last Day of the Decade / Левиафан: Последний д�
 ```bash
 magnet:?xt=urn:btih:006D3030397463DA1B73DB5647A8E10F370384D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ State of Decay (2013) [Ru/Multi] (14.6.23.5340 upd17/2dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:418B192B7EC020100A0A64623A002C088447C017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

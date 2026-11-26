@@ -19,8 +19,7 @@ Potion Permit (2022) [Ru/Multi] (1.5/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B25401E4F3BBE418AD1C30DAA2ADB0D6E81886EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OTXO (2023) [Ru/Multi] (1.106) License GOG
 ```bash
 magnet:?xt=urn:btih:AB2F32AEE289FACF96B420FC4D560122BE77593F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack dixen18 [Master Ass
 ```bash
 magnet:?xt=urn:btih:5F07CBA7BD4753396589D11A079F517C33DFE934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Inkulinati (2023) [Ru/Multi] (1.48.1.0/dlc) License GOG [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:C9A35464297C808EFF70ABAC9FE086F53F0DE608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Evil Awaits (2024) [En] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:83B33324230EBDFA314982D2F8495213E28B77F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Beyond The Darkness - это мрачная история, которая ок�
 ```bash
 magnet:?xt=urn:btih:7AF66DFF47474C7A6F3491B0D680EF41FE04CFA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6.596/dlc) Repack Let'sРlay [The One Wh
 ```bash
 magnet:?xt=urn:btih:F885B74B2DC2D83670E85A6124CB03DA599EB24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

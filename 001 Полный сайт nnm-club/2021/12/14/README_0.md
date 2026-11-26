@@ -21,8 +21,7 @@ Tim van Werd - Live @ Pyramid of Austerlitz, Netherlands (2021-12-09) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:7BD5CB21ABA51E412BF923809D30711739ED5E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Typinator – это простое приложение которое сэко
 ```bash
 magnet:?xt=urn:btih:6D624F0DAD05624302474E9C3CA44DE1BC07C275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ DoYourData Start Menu Pro 4.5 [En]
 ```bash
 magnet:?xt=urn:btih:675DB4E6ADB598004511BF509FF25F57DE1DDE97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ SILKYPIX JPEG Photography  - лучший инструмент для того, 
 ```bash
 magnet:?xt=urn:btih:95D4001959A5175D1D11C70E67D6644EFEC9EC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Olly James - Live @ Rave Culture Liveset, Netherlands (2021-12-05) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:37885A97299029BA43E38A6ED36CDC084280B79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ SILKYPIX Developer Studio Pro — мощное приложение, котор�
 ```bash
 magnet:?xt=urn:btih:0D73CDD50F4858D887EFE06100E0F1DECFB1F9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Jim Peterik And World Stage - Tigress - Women Who Rock The World (2021) Japanese
 ```bash
 magnet:?xt=urn:btih:C6A0EFD5113C8F567C33531B1EA950B1E7DAD6A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ WidsMob Denoise простое приложение снижения шума д
 ```bash
 magnet:?xt=urn:btih:14E45307DB7A8E561AB9015C083E8F41A5311F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Coffee & Jazz: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:79B9B204FB01AD55E7BE7A24058BA119E861769A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 3 (2020) [AAC|~326 Kbps] <Broken Be
 ```bash
 magnet:?xt=urn:btih:43326F278F1885FE8F3B383F40E7CE42E940E87A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Drifting Sun - Forsaken Innocence (2021) [FLAC|Lossless|image + .cue] <Progressi
 ```bash
 magnet:?xt=urn:btih:C974CA64B0A9E11E1E02403917B7D703D0D187B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Life Of A Hero - Letting Go (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:EB49091BEC912C6253747E091E749A756499A1E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Finder нежелательных файлов сканирует ваши фа�
 ```bash
 magnet:?xt=urn:btih:C8E1787546028F8E5E07D980EBE434C0CE46D000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ VA - Chill Executive Officer (CEO), Christmas Edition (2021) [AAC|~320 Kbps] <Ho
 ```bash
 magnet:?xt=urn:btih:D6A3EEAEC56D2492F8467312E9B1D4E3DE22996B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:034A187ADCFAEC59A2D1B57FB98B6302F8B8A443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 2 (2019) [AAC|~330 Kbps] <Broken Be
 ```bash
 magnet:?xt=urn:btih:3FC9FCC6722E159BFF41B13F37B8ED32B120D53A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ FileMaker Pro - это платформа для разработки и для 
 ```bash
 magnet:?xt=urn:btih:B65394634B785693B0DC9E885ED952870DA484F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Donemax Data Recovery для Mac предоставляет простой сп�
 ```bash
 magnet:?xt=urn:btih:F10EC9AEBEDB64133F894B880692D98C99BA3066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Tayasui Sketches Pro 6.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0A69AAA9CE50B356BB4DBD807F72D4C7AB9DC9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 4: The Cover Session (2021) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:D3AD42EE66A0A3D510BF266D3E9672070806FECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ FabFilter TotalBundle - содержит коллекцию последних �
 ```bash
 magnet:?xt=urn:btih:02FA58991300E969FDF81A20FA20E017B53FC866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBF5D16C8D351B2DB0C77E80D7A211F621135FE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Blocs - простой способ создания красивых сайто
 ```bash
 magnet:?xt=urn:btih:59C78DCF12D7784C0B6BCE9EEDCC3DD43309EC57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ DMG Canvas создает образы дисков (.dmg). Процедура �
 ```bash
 magnet:?xt=urn:btih:13B4ABF5BFDCE7E3A48C2F1C480D3C0263D56CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 1 (2018) [AAC|~327 Kbps] <Broken Be
 ```bash
 magnet:?xt=urn:btih:5942BE366DE506520249BDE43D638C5C2916FD8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C39958665E232B0FD912ACEB9C6845632638357F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

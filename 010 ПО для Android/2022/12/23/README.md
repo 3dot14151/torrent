@@ -19,8 +19,7 @@ Yoga VPN - безопасный прокси 7.0.530 [Multi]
 ```bash
 magnet:?xt=urn:btih:086BF6D2DD864A9DCD964597E4D17ABB9727232D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VPN Master -VPN-прокси Hotspot 5.8.008 [En]
 ```bash
 magnet:?xt=urn:btih:F1D2D1C6941BF758565F9103B2A43B52BBABC176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

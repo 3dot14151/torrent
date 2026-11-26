@@ -22,8 +22,7 @@ Inexist - Relax And Feel Free (2006) [FLAC|Lossless|image + .cue] <Melodic Death
 ```bash
 magnet:?xt=urn:btih:A9BC2B4F0F9228E0BC7AA902AF24B060BBDB3035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Indica - A Way Away (2010) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:BCA904FA015C61DBDB08FF6325CC850E98CAD3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Enuff Z'Nuff - Strength (1991) [FLAC|Lossless|image + .cue] <Soft Rock>
 ```bash
 magnet:?xt=urn:btih:FA9721F672E0AA098D94085134CFBDC86506AE7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAD8B129DC2396BC1F264C79FF9D8ABCDFBDE5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AD5EEDC6103B6860148025EB2096C7341D2BAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E4FE27D373436F44FC59A31E2A7F399860E922E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ KUZMIN Absolute Band - Полный Близнец (2020) Single [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:5DF9F4E435C6E4895793793DDEC1FE19637AC1D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Молодая гвардия - New Generation (2005) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:7944A3BCF3834C8306A9C5D2ED7ADE2715FACB94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Morgart - Die Schlacht (In Acht Sinfonien) (2005) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:7704DA220424846DC1F8DEB85AD4075BC5B15A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Beat City Tubeworks - Top Rock (2020) [MP3|320 Kbps] <Rock'n'Roll, 70's>
 ```bash
 magnet:?xt=urn:btih:64DDE6FA12E2C6B45B32D156B6FBA462EF295DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Impellitteri - Pedal To The Metal (2004) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:63911D67FB22A9BB72286E42124535B0B320C423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Foreigner - Original Album Series (2009) 5CD Box Set [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:EF22E6B91EC8DA8B756868E7C18D9EC857B99D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Sebastian Bach - Kicking And Screaming (2011) [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:00E095C9E2DC7C020BCFDE880237E1C5E252AD97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

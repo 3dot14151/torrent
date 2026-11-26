@@ -23,8 +23,7 @@ Tarja - Dark Christmas (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Ro
 ```bash
 magnet:?xt=urn:btih:5E55A9C4DAE753DE206C94C9BCD018E50872E5D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:32349FB0B9796B84FA27182B5A0FCBC4C55865A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AACC1D53EA5CD9F0C1C513AD662F73B0283EB625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Lulu & the Luvvers - Shout (1964) TVRip [H.264/2160p] [Handmade Upscale AI]
 ```bash
 magnet:?xt=urn:btih:471D6E096D087E8985A2529A80B2D62B06623166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ DxO PhotoLab 7 ELITE Edition 7.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:829C917CF776EF72E7201BFA1E9ADD37B60E0F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Wipr блокирует всю рекламу, трекеры, майнеры к
 ```bash
 magnet:?xt=urn:btih:4CDBDAE46C518688CBEA4678883AF21A7338A750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.43
 ```bash
 magnet:?xt=urn:btih:2EEBE593CFF48A532210002AB0E4C380DEA24200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:675F77DA914E7BC542F282D8A00C293FF2776ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:07D0B2D1043F288B5E427B90B54A59B98FE318D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4970D3B1B6CA6B9B89F6E1338E98C4CF4CB7DD47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Tarja - Dark Christmas (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Met
 ```bash
 magnet:?xt=urn:btih:52D395C86768D841A7AFBBEB1559783C551032B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9506A33E3A53F64D0EDC70395171B91CD5FF7179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ Soshnikova School, Сошникова Елена | Пейзаж. Основы (2
 ```bash
 magnet:?xt=urn:btih:4924B40D8AF3C322233ED800D9810E1345C2704B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73EC8EEB1371BB3CD60589F6B3E57060D03175BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ AI Image Enlarger 3.0.4 Mod by TryRoom [En]
 ```bash
 magnet:?xt=urn:btih:A45FC579727A99A5E963D98D9BCD4A487A6CFF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2391C9A3A0F5A7EE0828DEBB2D57BDA8D677B9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:753917E946883AD172D42FC2E042238B1CF736B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD8F5802FD39BE0CF4DD9DA0287594C9628C38B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ DxO FilmPack – очередной редактор фотографий с к�
 ```bash
 magnet:?xt=urn:btih:A23A78C34306CA45FC7C9DF06648AA834F6F4754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:FC952E3CACFAB88AD8DDD9BE216C600F540540CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ Paste 4 v.4.1.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B8790D0EF152D1823B3634051886875E0A1ABDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79E3A462DCBE5AFA459E507E2CFA4E031D35FCDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ Antivirus Removal Tool - портативный набор официальны�
 ```bash
 magnet:?xt=urn:btih:82EA8018B5EACBC0538A980F6AA38F7EEE4922A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ Android Studio предоставляет быстрые инструменты 
 ```bash
 magnet:?xt=urn:btih:14D37BAB585E8BF3DBE6E04EF989424A37CD1B4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1236EC44D29078CBF3AC33FD85DF1C25EB37E94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ Alt SwitchER - программа для автоматического испр
 ```bash
 magnet:?xt=urn:btih:752C70CE60FCD2E088536487F236B5A4F8C0A298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

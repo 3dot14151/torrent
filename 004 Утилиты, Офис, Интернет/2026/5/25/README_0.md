@@ -22,8 +22,7 @@ JPEXS Free Flash Decompiler — это декомпилятор и редакт�
 ```bash
 magnet:?xt=urn:btih:358C2AE08E8D12D22BCE9BDA937A3B31727DAFBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:EBBE6CF59DBDAECB5FACAA1EB42CBDEB5C32F5E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ ET Optimizer (ранее ET All-in-One Optimization Script) предоставл
 ```bash
 magnet:?xt=urn:btih:B75492753E3D4111B9F08C300748AB01A95B7658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Kudu 1.42.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:16EFD7DD76F5E5B989AB9489661EB72AAD9E373B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9C297A056AECE0632C6E62ED3BB9ECB296524FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:DECB45D37DDDF634BB4D3003EFB9D04EF2679098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ ShareX - программа для снятия снимков и видеоза
 ```bash
 magnet:?xt=urn:btih:00D28176C97948E40CD285E567973349E9946D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ MediaHuman YouTube Downloader 3.9.20 (2405) (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4B9423299EEE27A5320CC7F9C34D331413C42D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Lacey Free Music & Video Downloader 3.17 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:574C802F1286B78E8FEBF78BEF214C4221597D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Text Editor Pro 36.2.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:89840BFA4606BAF335D885A7B2037F14F37D2EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:52D837F3E50E3132F021A2E38A0F3D14E1266E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:14ADCDAD35778E87FBF58E73BFE91D52AE11BBA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Executor — это настольное приложение для управ�
 ```bash
 magnet:?xt=urn:btih:CD670F55CC8E9E431469DE394E44AD7673257A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ r3dfox — это форк веб-браузера с открытым исхо�
 ```bash
 magnet:?xt=urn:btih:EC111BF230CC9576DF131DA2401FA1D51A5D349F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Qalculate! — это многофункциональный кроссплат�
 ```bash
 magnet:?xt=urn:btih:00D8B42FD05B565BBE960F4343FC26F154CB05DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ Browser Tamer — это сверхлегкий, открытый прокси-�
 ```bash
 magnet:?xt=urn:btih:C80591D152FB24D8A9324DF1FDF9B007D1841A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

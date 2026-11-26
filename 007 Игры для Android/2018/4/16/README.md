@@ -19,8 +19,7 @@ The Room: Old Sins 1.0.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:30E512F87FEE0D86671AA720F55E6B3E74A79071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

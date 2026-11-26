@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:C9B1A82DBFBD0429377FDEC462F4DD2FBE9583EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Al Hirt - Bourbon Street Parade (1993) MCMXCIII Intersound [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:18127D01F663760866400F30E68D5819B5D97A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Wurkout Vol. 6 (Dj Tonyynot) (2018) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:D0A0379BC322CA77D8281BB4DCDE1642119153C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Electronic Lounge 25 Electronic Flavoured Lounge Tunes Vol.2 (2018) [MP3|32
 ```bash
 magnet:?xt=urn:btih:3C24CCFE136BA86223540602005048E4A0EB0DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Hidden / Places Chillout & Ambient 6 (2018) [MP3|320 Kbps] <Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:24F568E93B6552FD74F75218F00E7AC20821C917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jono Mccleery - Seeds Of A Dandelion (2018) [MP3|320 Kbps] <Chillout, Soul, Down
 ```bash
 magnet:?xt=urn:btih:A6711A004E77E79E467E11693E44AECED5B89433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9CA287BE87085275E7A4EB3A102486DC77DFCC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0009 (
 ```bash
 magnet:?xt=urn:btih:1FCF3E5D29C208219467D8C96762E6B44748D602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - Lady Night (2018) [MP3|225-320 Kbps] <Chillout, Lounge, Balearic>
 ```bash
 magnet:?xt=urn:btih:CE9D00DC3C4E7836E4961DF7A26460C6A844062F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ In Vain - Currents (2018) [MP3|320 Kbps] <Melodic Black Metal, Progressive Death
 ```bash
 magnet:?xt=urn:btih:A29908F199792F1CFADE49BBD07E2F766D56701F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0590AD6BDB4B156A683067DAAB9151E947F1A5FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34F9D55DEFF5FFCDFA9A6132F449D287E854B1FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Django Django - Marble Skies (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Psyche
 ```bash
 magnet:?xt=urn:btih:483FE0659606B7E4372020B90108CCA2D0E9669A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43F82D47A541E3BE10D06033A7BA5FBBB054751D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Craig David - The Time Is Now (2018) [MP3|320 Kbps] <Pop, R&B>
 ```bash
 magnet:?xt=urn:btih:3B05A3A8370AD81B7E4731C436EF72918C088175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:911F53482BEB6DB478040099395D42EDAD161FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Sniff'n'the Tears - Random Elements (2017) [FLAC|Lossless|image + .cue]<Pop-Rock
 ```bash
 magnet:?xt=urn:btih:95046DA68A4EE5308458A48B9C5E96E9464B617A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Margo Rey - The Roots Of Rey / Despacito Margo (2018) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:9EBA10F03D422FFDA655DBB9DE5E6A4DCBD7B3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41161BC4CE81D469E83B4A50016A7C09A856594D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A64678742616C11BD88C7C3B6F4E5FA3EF7F97A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ VA - Workout Hits 2018. 40 Essential Hits For The Practice Of Your Favorite Spor
 ```bash
 magnet:?xt=urn:btih:7E63DB4751A78E1A4403E23233032CB9151FE53F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29B97C14BC5551BB6E58F40906C947A40859A0EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ Movavi Screen Capture Pro для Mac поможет быстро и легко �
 ```bash
 magnet:?xt=urn:btih:9FF78A45763AE42527EAA60D16BD331DC8D598F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:658BCEB8B718103FE67763B506D7845FC5B166CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A73CD999F92870D5837977099F7C89F5B2D13240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

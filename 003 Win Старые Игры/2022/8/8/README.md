@@ -19,8 +19,7 @@ Blade Runner (1997) [Multi] (1.0.1016) License GOG
 ```bash
 magnet:?xt=urn:btih:756ABF6EB675588AEC8CBDDA47ACE6E51DAE9F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

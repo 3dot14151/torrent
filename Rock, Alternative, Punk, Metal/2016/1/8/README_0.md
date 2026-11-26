@@ -22,8 +22,7 @@ Status Minor - Ouroboros (2012) Japan [FLAC|Lossless|image + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:4B8444F6D01A0F082B34387C147C9EBDE59C2CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Love Might Kill - 2 Big 2 Fail (2012) Japan [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:99E2B0DAF6D31A51D209EBAC1DB7A64AF1B3D70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Baris Manco - Sozum Meclisten Disari (1981) Remastered, 1999, Akbas Muzic [FLAC|
 ```bash
 magnet:?xt=urn:btih:743C8FF97C7E176BD64F97CDD67B839D555AC9DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Burning Point - 13 альбомов (2001 - 2015) Discography [APE, FLAC, WavPac
 ```bash
 magnet:?xt=urn:btih:12E2E3373D4E64A53BAD1208D0E16459CEC6D324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ David Bowie - Blackstar (2016) [MP3|320 кб/с] <Art Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:18782E89C5609EECF0A350EB9F7407926E121C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

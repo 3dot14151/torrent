@@ -28,8 +28,7 @@ Jaap Schroeder & Capella Savaria - Vivaldi 5 Violin Concerti (1985) [FLAC 2.0 24
 ```bash
 magnet:?xt=urn:btih:B78A47F2AC867846ECF24C7E3FBF6767905F51A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

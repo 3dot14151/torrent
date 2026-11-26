@@ -18,8 +18,7 @@ The Artisan of Glimmith - это уютная и медитативная гол
 ```bash
 magnet:?xt=urn:btih:C5D32AC3DDD17A29EF8E6D756B020391C5A7CAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3A72DFB2C6BEAF9831A59D2E7C72B8BF82ADEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Josh Graff - Still Standing (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:F674D2F01CFCE43DA237A8C0EE98575B67BD148D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Mark Easton - Dark Horse (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:85E14BBE0C3C22C07518BDCA12674811C0EFFAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Mark Hummel, Anson Funderburgh, Junior Watson - Road Dog (2026) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:E20D693B91EBE805A994FA21C7F1FFE1CED29A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15822DBE407C3322556EDACBAE0BF56DDF31699C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
 ```bash
 magnet:?xt=urn:btih:55E438019F20FBA40E4CFFAF95E22B56F8DE78F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Michael Rubin - 5 Minutes of Passion (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ```bash
 magnet:?xt=urn:btih:CAC70E78FAEBC11FDDEBFF5F37260A9E90F5F68B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E652717E4E23DED324B0DD9000029D46BFCEF0B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Shun Kikuta - Back in the Windy City (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ```bash
 magnet:?xt=urn:btih:3FFBADD8ED6C0C1E496CE6BE02D3B0ACAA24690B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ The Weekend Blues Band - Stone Wings (Whispering Angels) (2026) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:ED8DB5DEF2DEFEAAD206961915A62189CD251BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ ThunderGypsy - Southern Soul (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 ```bash
 magnet:?xt=urn:btih:0A2CBF1BC6E5A4B1E756514DF44D9DF7FABE7EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ InnoExtractor - это приложение, которое поможет ва�
 ```bash
 magnet:?xt=urn:btih:6577944CA0EACF5CBAE461533849528416D7CBFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F42B6766E9805953B063501E8A419DCA3B9ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ From Ashes Reborn - немецкая метал-группа, основанна
 ```bash
 magnet:?xt=urn:btih:B8E761F61338C05FE621304779A7A099BB6F0DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ SuidAkrA - немецкая метал-группа из Дюссельдорф�
 ```bash
 magnet:?xt=urn:btih:82C87110F97F59303AE74E228D8B233F4771553E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1802657A22B63C02748CE4C0C7C476BFABD5501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAF3ED4F4E3D6C89D640CEB299334B6C7774F267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A33CA09B13E9270C084BDA9D66A3567633F2F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:362A43F8C796256AD0F448F9CFB83CF06DC74949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ Adobe Audition - Программа для работы с аудио-данны
 ```bash
 magnet:?xt=urn:btih:BE75B472D6C6303BE04172181C7985465691E68B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9BCC320C1B7E4DD76D366DF6649A7F70A69F00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F4638F8AAA7B6CFAB38C29E195597A62EA48EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ TG WS Proxy 1.10.2 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C6AF19DC0E0EE252243177CED28F76F5F51590A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ Nik Collection by DxO 9.1.1.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:415A5837196E3AE1E022B9A748F58C0211C6E401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Detective Club 3: Carnival of Secrets (2026) [Multi] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:7E5795ACBCC8E9D6B29671DA3F4F1FF166728D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

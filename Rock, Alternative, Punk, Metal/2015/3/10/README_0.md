@@ -23,8 +23,7 @@ Worhol - The Awakening (2015) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:2637164ED2451AB1D0C50923F95BE311362EAC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Frosttide - Blood Oath (2015) Limited Edition [FLAC|Lossless]<Melodic Death/Folk
 ```bash
 magnet:?xt=urn:btih:09CF543B564C3C3ECE8324F0609271B75E0D7FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ The Black Codex - Episodes 1 - 39 (2014 - 2015) 6CD [MP3|320 кб/с]<Progressiv
 ```bash
 magnet:?xt=urn:btih:B9509FCE1B3CEBE9CA90D98A33AC81CA6E1AF359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Enforcer - From Beyond (2015) [FLAC|Lossless]<Heavy / Speed Metal>
 ```bash
 magnet:?xt=urn:btih:EBF34F5DA7A440794B262AD002F4EA0B10B670C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Enslaved - In Times (2015) [MP3|320 кб/с]<Progressive Metal/Black Metal>
 ```bash
 magnet:?xt=urn:btih:500B604689F8EF80466DE0FA647845A4EFE2EE03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Sweet - Desolation Boulevard Revisited (2012) Live [MP3|320 кб/с]<Rock, Oldie
 ```bash
 magnet:?xt=urn:btih:CF778FEE17E5F52919D0BFB510F68D6BEDB5DAD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:954DFF367B8F1AA212B2F24606D34B13AC3F4BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Katzenjammer - Rockland (Deluxe Edition) (2015) [FLAC|Lossless]<Indie Pop, Folk 
 ```bash
 magnet:?xt=urn:btih:B0672B26B7D173BAC80DF9C923A377B8C61B3151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Toto - XIV (2015) Japanese Edition [MP3|320 кб/с]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:D6E01BE4DEE0801447746DF011A34C3153E88740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ The Black Marble Selection - Under Her Spell (2015) [MP3|320 кб/с]<Rock, Blue
 ```bash
 magnet:?xt=urn:btih:268C458B8E73C509DBE5B064EEC376F813561615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ The Killers - Дискография (2004-2014) [MP3|320 кб/с] <Indie-Rock, 
 ```bash
 magnet:?xt=urn:btih:8639E78BCB0E99428B3A464881776F8E4B5B5DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

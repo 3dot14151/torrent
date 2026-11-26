@@ -19,8 +19,7 @@ Spring Framework 5: изучение Spring Framework 5, Spring Boot 2, Spring M
 ```bash
 magnet:?xt=urn:btih:F72C6F4C4CB9B482BBFA3EAC74C1028CEA42AC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:592A6AAFC774F236C24FE2E7295CDF36830CCE7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B258B5FCEB10B5D479D3EBB81C8C458EC50B816B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Resident Evil: Revelations (2013) [PS3] [EUR] 3.30 [HEN] [Cobra ODE / E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:36F071BB341CBB01B8BC8081B639FE4CABE76417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5C928B18ED9A79F4A2CF441EE7B754EC5614000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ VA - Disney Love Songs (2009) [MP3|192 kbps]<Музыка и песни для �
 ```bash
 magnet:?xt=urn:btih:A07A9ACBF9F6A72A78F9D12B114D7254DF58ABC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Udemy, Nikita Sergeev |  Power BI: от новичка до уверенного
 ```bash
 magnet:?xt=urn:btih:1ECDD9AC9E77165449E64991B4EBE8D6BB688270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B302524BAB635CF484A14E9D0353B86E6288874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82A9BF48A55E19F7AEEC02785EFB0059DB265116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Stronghold: Warlords (2020) [Ru/En] (1.0.19135) Repack West4it
 ```bash
 magnet:?xt=urn:btih:09FC8715729FC31CAB0329745991B99FB8C9B7F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04146AF9D94169AA7B6FF5F94B72748222FAB122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ ATOM RPG: Trudograd (2020) [Ru/En] (0.8.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6A8173A39AB2BF2D23E6EDAEFC5051FFD8D9115B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5045683BDE71F1A632865D22D77885A7A3379F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E297FACC381DCCB296E9B5297E34B581A0CCADA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95B755C2F0EC9642A851EA773C866147374F3CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEA54F5C0748A44BD732C50C2BCE70CD60F26F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.4/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:19BD487BF46642D57FC34B119FFB65F0715A5463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Microsoft Office Word 2007 SP3 Enterprise 12.0.6798.5000 Portable by Spirit Summ
 ```bash
 magnet:?xt=urn:btih:A5B0301452628C248081794F9E005F1B19AAA86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39C34EDF59E9EA66A3F709ADFDD22FC7A806DCC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02EE12662067A1B82AC64189F9D040C3AB986B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ Age of Empires III: Definitive Edition — новая веха для культ
 ```bash
 magnet:?xt=urn:btih:E5A2F374C513B9381A5C8A2546FE3E4937041A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ ASAP Utilities — мощнейшая надстройка для програм
 ```bash
 magnet:?xt=urn:btih:8D8F2D657C57ABE20F2A2ECC77FCF748C07FEFA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ SnowRunner (2020) [Ru/Multi] (12.1/dlc) Repack xatab [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:E4E0483FE659C0CB3132950EB7BED91F82F32714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +633,7 @@ tobyMac - Portable Sounds (2007) [FLAC|Lossless|image + .cue] <Pop, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:22AD556F658D3BD5D1F6A39C58F01489139E9278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ Blur n Bokeh - это инструмент, позволяющий выдели�
 ```bash
 magnet:?xt=urn:btih:DFB5299CF43F85EC14A2DB0D320439902742BC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

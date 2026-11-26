@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:91693AC342C0F86506F6BFBA93245D2B6495055E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cкелетон. Кубок мира 2017-2018. Санкт-Мориц (Швей�
 ```bash
 magnet:?xt=urn:btih:B74A895F959B54E62C9F0C7CDC84DAD7E911A9D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Lost In House (25 Groovy Dancefloor Tunes) Vol.1 (2018) [MP3|320 Kbps] <Hou
 ```bash
 magnet:?xt=urn:btih:C2856D7CDDA2242A7B61ACFB0EAEF6D0BF760B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jens Sondergaard Quartet & Bob Rockwell - More Golson (2012) Stunt Records [FLAC
 ```bash
 magnet:?xt=urn:btih:8D868D3690B89B45D5A61DEF8B5ACE66048EA128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Elsie Bianchi Trio - Atlantis Blues (1962) 2004, Sonorama [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:07F4C33AA1E4156873C4C0FAF4F57CA45886E1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Goa House Party (2018) [MP3|320 Kbps] <House, Big Room, Dance>
 ```bash
 magnet:?xt=urn:btih:1EBBAEC2B3FC042A8382196B93AA7CC950C8261B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - True Hits Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:AB92CEF6DA583F3A9FD02D9BDD12E8C515AFEA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Hed Kandi: Back To Love (2017) [FLAC|Lossless|tracks] <House>
 ```bash
 magnet:?xt=urn:btih:F2F1271139FAA718120C16A8EAB3F58E77F94328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Lounge Affair Vol.2 (2018) [MP3|320 Kbps] <Lounge,Chillout>
 ```bash
 magnet:?xt=urn:btih:0013CF831455F60D567F312CD2A7297793094773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Black Art Jazz Collective - Presented by the Side Door Jazz Club (2014) 2016, Su
 ```bash
 magnet:?xt=urn:btih:26672F73521BDDF42A6D4E27797CAA665F2D86AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Emotions Music - Autumn Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F13C42779D0C35261B6BD93F47E70307810AE194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Hed Kandi Beach House (2016) [FLAC|Lossless|tracks] <Funky House, Club Hous
 ```bash
 magnet:?xt=urn:btih:2EB410304B15554E79EBE76B2B3B1AA641D2856C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ PicturesToExe Deluxe 9.0.15 RePack by вовава [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E807B7F1C601F940EFC5802C0CF993EF6367E163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ VA - Night Air: Funk Disco Set (2018) [MP3|320 Kbps] <Soul, Funk, Disco>
 ```bash
 magnet:?xt=urn:btih:9AD8C9A09447F57D4455D9A6A0D0D2BBA7142A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Worry Blast - .44 (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:291E01D82F5C6312E14943EBB4B27421C9DFEBEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Lilly Martin - Minetta (2018) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:6A0A18EC80F65A1F4339196A362EC35AAB51D5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA9CFEA0D5500F4DB3AB8C0BB54C2D3410BCF08C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Black Label Society - Grimmest Hits (2018) [FLAC|Lossless|image + .cue] <Souther
 ```bash
 magnet:?xt=urn:btih:EFCCC89E27CF9E7D13A5F058E926CF331557C7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ VA - Eurodance (2018) [MP3|320 Kbps] <Eurodance>
 ```bash
 magnet:?xt=urn:btih:5161C18605DA2E32A2DC338043E8931318BAC2B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F402FF3811A253B182829DF387240C50BA548996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Tesla отменила зарплату и гарантированные бон
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:260996BB0BD86C2074A8B31E2BEDF0D78D15001A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ Devil's Disciples - The Devil Plays Guitar (2006) [MP3|256 Kbps] <Instrumental B
 ```bash
 magnet:?xt=urn:btih:AB73ED8E1E352232114503613843F71AB4995809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ Somali Yacht Club - The Sea (2018) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, P
 ```bash
 magnet:?xt=urn:btih:0FC1063192C523E579AF162E99638A4F92AE1545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ Omnivox - Surrender (2018) [MP3|320 Kbps] <Goa Trance>
 ```bash
 magnet:?xt=urn:btih:BC1ADEAFB63595609AF22E700739F7DB10CF2824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E25032B59A0F0F4E236DA564ECAAC04C364D9603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

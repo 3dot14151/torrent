@@ -20,8 +20,7 @@ Figma — онлайн-сервис для разработки интерфей
 ```bash
 magnet:?xt=urn:btih:A6E0B13EAE92F9053F74B553FF0E6332D4C55CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Data mesh в действии | Я. Майхжак, С. Балноян, М. Си
 ```bash
 magnet:?xt=urn:btih:CF1C0093476DA2E7052644A9C49BADA957AEBB6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

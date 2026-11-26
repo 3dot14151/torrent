@@ -19,8 +19,7 @@ Wing IDE PRO- интегрированная среда разработки, п
 ```bash
 magnet:?xt=urn:btih:95E4FD1C0C10A689176AA83E2C7A8D69641D9A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

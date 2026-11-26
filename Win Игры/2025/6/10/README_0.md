@@ -19,8 +19,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
 ```bash
 magnet:?xt=urn:btih:367E27DE8E514D9437859A9E3E2E96AC96C15DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Sinking City – игра-расследование. События про�
 ```bash
 magnet:?xt=urn:btih:C16A8632E7C279EBCD7AC1E749A30CFDBFE89C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Zoeti уж точно нельзя назвать типичным карточ�
 ```bash
 magnet:?xt=urn:btih:82F37FD123B4072E6896D776CDB6920F15009A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.4.1)
 ```bash
 magnet:?xt=urn:btih:110F0A3BE92DDABA4072E6DE2EFD5CA77D7A3973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

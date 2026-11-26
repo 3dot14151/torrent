@@ -22,8 +22,7 @@ Inspector - Russian Prayer (1993) [WavPack|Lossless|image + .cue] <Art Rock, Har
 ```bash
 magnet:?xt=urn:btih:8952DFE731953638BC5CFE22AEF2455CA4D6C04B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBA5D1CD3ACC0642FF328533CA078B786A313183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hell Rebel's - Reawaken (2017) [MP3|320 Kbps] <Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:990C6484F024B57711B4DDAD0728872CFB860E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C03AF04BC8AAFFE4EC6A734F66125D2AC607A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

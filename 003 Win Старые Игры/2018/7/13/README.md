@@ -19,8 +19,7 @@ Myst IV: Revelation (2004) [Multi] (1.03hf2) License GOG
 ```bash
 magnet:?xt=urn:btih:1F588D27DADC0C3B078DA0A8C0112140E8A53487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

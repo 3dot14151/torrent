@@ -19,8 +19,7 @@ Vampire: The Masquerade - Bloodlines (2004) [Multi] (1.2/10.2) License GOG
 ```bash
 magnet:?xt=urn:btih:DEF1628922EECBBF49E0C401DC7B25B4118B8C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

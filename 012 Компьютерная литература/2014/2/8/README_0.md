@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:47B6FD230A0B354B4BC541E6DEEA85CA9B43C3A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Zend Framework 2 представляет собой последнее обно
 ```bash
 magnet:?xt=urn:btih:4217880B17573357C4E0C418E1C7ADE58CB6FC54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

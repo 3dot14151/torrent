@@ -22,8 +22,7 @@ Torque - II (2026) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8AD0C9BA7F2078184FEF1895C2FCF44373BE7366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ GraveReign - Icon Of The Accursed (2026) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3E153B522C60A60E6492860B3A50A396763F1DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Solarus - Of Sin And Ruin (2026) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:C9BEFF73D96FEDCC98FFA36A8EAE2B28E79E0AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Smoking Snakes - All Lights On (2026) [FLAC|Lossless|WEB-DL|tracks] <Glam, Sleaz
 ```bash
 magnet:?xt=urn:btih:3D27038F3E6E8BFE8AE5A703895565D0EEAF8B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sinsid - All That Remains (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:776CBE7D1688711C073A45F0EC4785D15C139F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

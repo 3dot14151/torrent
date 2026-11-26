@@ -21,8 +21,7 @@ Openssource | Курс по анонимности и безопасности �
 ```bash
 magnet:?xt=urn:btih:C116928C9BF1B6E628534953B2CCB981DFD734D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.1.52027/dlc) Repack DjDI [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:86E2E57598B6C5BAF728E7CA186BE1A10EC7A56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Lord of the Rings: Gollum - это официальная адаптация
 ```bash
 magnet:?xt=urn:btih:64187B21493691E857CD54F8C10E749D28B8A6EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Elypse - атмосферная метроидвания, представляю
 ```bash
 magnet:?xt=urn:btih:B490DE99EAFA4F31E6F7203DA532A654630C9587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bum Simulator предоставляет возможность игроку п�
 ```bash
 magnet:?xt=urn:btih:9CD492BBE4840432A2F95929475F56163D32105F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

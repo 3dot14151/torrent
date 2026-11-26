@@ -21,8 +21,7 @@ Salix OS 14.0.1 KDE [x32, x64]
 ```bash
 magnet:?xt=urn:btih:5D7B8D7BC3C420F4109C14011FF2681F1F9855B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ```bash
 magnet:?xt=urn:btih:A20131BC824CA58421917EF3F4028EA4435F25BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Kubuntu — производный от Ubuntu дистрибутив Linux. Kub
 ```bash
 magnet:?xt=urn:btih:DEC9C4A940947889F8FB0DEE42998B55882C8E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Xubuntu — дистрибутив Linux, основанный на проект
 ```bash
 magnet:?xt=urn:btih:D5DA10DB81B68351DE6A075A6CCF5FC335C878D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Lubuntu — это современная операционная систем�
 ```bash
 magnet:?xt=urn:btih:EEB3AC51A8BFA6610794D1AD9BC89558A5BE9278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

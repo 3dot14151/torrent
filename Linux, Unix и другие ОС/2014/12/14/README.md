@@ -21,8 +21,7 @@ Calculate Linux 14.12 [i686] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:4073F6986A876CA353BA7A3B223B5EF1BBC44577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Calculate Linux 14.12 [x86-64] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:320FCF4B4BCE6A224857EFA3640F1ACEE09D92DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Linux Mint — дистрибутив операционной системы Li
 ```bash
 magnet:?xt=urn:btih:3AD0450CB227F9954CA0690A729D4C5C130FE073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Linux Mint — дистрибутив операционной системы Li
 ```bash
 magnet:?xt=urn:btih:1EEA79BA37DB327913013D20CD3F9382EDAD375F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

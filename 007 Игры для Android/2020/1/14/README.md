@@ -19,8 +19,7 @@ The Room – квестовая головоломка, в которой вам
 ```bash
 magnet:?xt=urn:btih:6D790145CC99EE752142662B7BCA287058DAA8DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Need for Speed: Hot Pursuit на Android - радуйтесь новым гон�
 ```bash
 magnet:?xt=urn:btih:BAD8DEE55BD1F0FA7F333B9CD50BEFD14B5ADCFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ GRID Autosport – отличная гоночная игра для Андро�
 ```bash
 magnet:?xt=urn:btih:E0EBF305F34E139F411A65B527EFCA2FB051ABF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Return To Castle Wolfenstein (RTCW) - Порт компьютерной игры
 ```bash
 magnet:?xt=urn:btih:BBD07262AA34F60CA0C2D9F92617E6C19EF01BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

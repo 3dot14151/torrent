@@ -21,8 +21,7 @@ Charles Pfleeger, Shari Lawrence Pfleeger, Lizzie Coles-Kemp | Security in Compu
 ```bash
 magnet:?xt=urn:btih:790EB8E66E3D06027DC7F6B44D959B9CA57B5108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Joel Holmes | Shipping Go (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:4B1059DA0778C05E92E139AB06B4B9C508D90107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Prabhu Eshwarla | Rust Servers, Services, and Apps (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:4ACA58333C62681C24D4B96AE4C05F64092DEADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17CF09AF591E5AE7474F343AAAD7D887D38B65ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:883E2CA5F18A29F038D631DC7CDF1DC4DB7222AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

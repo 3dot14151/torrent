@@ -19,8 +19,7 @@ Rue Valley (2025) [Ru/Multi] (1.1.0v11/dlc) Repack Necros [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:17F80EB144760A739C0A5F223EDA93205FE5A316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Escape from Mental Hospital / 100 Дверей - Сбеги Из Дурдома 
 ```bash
 magnet:?xt=urn:btih:139706E8887BB5F575C9B512A0D6B7949BB544E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.95-1/dlc) Repack FitGirl [Final Cu
 ```bash
 magnet:?xt=urn:btih:8F679CBE63C0903D74CAB90358949B27EEC939C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost in Random: The Eternal Die объединила динамичный экш
 ```bash
 magnet:?xt=urn:btih:16E05F860DC1C06B3555A9560CC2C2E83C6BBE1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Crosak (2025) [Ru/Multi] (1.04) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5CA335882921AA4E863306403BA6D7AA4FF07F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:F3F52C048EE88C66C9D5EE02836445ACC0806FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Elephant Collection - это ремастер десяти классиче�
 ```bash
 magnet:?xt=urn:btih:7798108012A0BF41CC94E4CA900B056EE479D1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Magical Drop VI, очередная часть популярной серии �
 ```bash
 magnet:?xt=urn:btih:617F79DE7A2339E03862709E66612F7D71CBD817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Heroes of Loot 2 - продолжение пиксельного рогалик�
 ```bash
 magnet:?xt=urn:btih:C3CD6DF6AABBCE2511C8B3B25B7498948BE0AF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Basingstoke – приключенческий экшен-рогалик с эл
 ```bash
 magnet:?xt=urn:btih:6AF59D83BE400B8BBB38C3DEA2F8C4F6CE5916BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

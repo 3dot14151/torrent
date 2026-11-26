@@ -22,8 +22,7 @@ Vassafor - Malediction (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:E487A5228B02929AAB8650071973AB18DC8772B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ SunSay - X (2017) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:717892482FDEBCC9534D3E9B7B7585480E3C9E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF32B35C97DCE8967C1C668D126996A3CBD157A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:197DE0A435B2F6F4AB9195C393354EE7A41CC133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:870A31E878586491321D299F1808F48290E11933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Project Highrise - является игрой в жанре "симулятор
 ```bash
 magnet:?xt=urn:btih:122D1BE00C3F3A32F1C3A706175BBF9AF3F80C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

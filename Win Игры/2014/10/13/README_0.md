@@ -19,8 +19,7 @@ Myths of Orion: Light from the North (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:C7D0039C8FA32F9CECDBB22F3A211433475D0E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Paranormal Pursuit: The Gifted One (2014) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:FDE0C44C8FB4879103392E84F2ABA2F4BC538103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Witches Legacy 2: Lair of the Witch Queen / Наследие ведьм 2. Ло�
 ```bash
 magnet:?xt=urn:btih:3EC3FB054C4289FC8AD148537A7AD942B2C547E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Hidden Expedition 7: The Crown of Solomon / Секретная экспедиц�
 ```bash
 magnet:?xt=urn:btih:701FD7BDAB3ED02C0B209EDFD09484AE6EA88798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Pier Solar HD — ремейк ролевой игры Pier Solar and the Great 
 ```bash
 magnet:?xt=urn:btih:5A7E96DD887F89C6360888F06B29B90A46BBAE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Saints Row 4/IV (2013) [Ru/Multi] (1.0.6.1/dlc) License PROPHET [Game of the Cen
 ```bash
 magnet:?xt=urn:btih:A8414D20E49914BC65E15BFA64F0DD16042DC7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

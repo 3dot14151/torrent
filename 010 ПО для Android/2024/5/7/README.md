@@ -22,8 +22,7 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 ```bash
 magnet:?xt=urn:btih:50C8E2F30F9CF88A7497FEA4C44D30DD5AE60A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

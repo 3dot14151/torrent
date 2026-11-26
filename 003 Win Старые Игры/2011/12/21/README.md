@@ -19,8 +19,7 @@ Evolva / Evolva: Риск заражения [Ru] (RePack) 2000 | Pilotus
 ```bash
 magnet:?xt=urn:btih:81A5E9A516D99802A9F4B1FC063B2B7E79C1FA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deus Ex: Invisible War [Ru/En] (RePack/1.2) 2003 | MOP030B
 ```bash
 magnet:?xt=urn:btih:84CF7970F1BC92EB6F7BB46111AB4E10157E03D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

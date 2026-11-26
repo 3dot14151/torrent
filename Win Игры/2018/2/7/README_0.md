@@ -19,8 +19,7 @@ Silent Decent — очень захватывающая игра ужасов о
 ```bash
 magnet:?xt=urn:btih:A19D8845EF965C46D2EEE5FBCE380B4DEDC0BB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:DFA46A6BCCBF425800C986BA98D2EFD2DE4A9B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Silent Decent — очень захватывающая игра ужасов о
 ```bash
 magnet:?xt=urn:btih:0C860DF5A9F7AEC059F69B1F96FF3D37DAA0E1E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

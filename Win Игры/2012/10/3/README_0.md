@@ -19,8 +19,7 @@ Where Angels Cry [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:2F1620D04A96E6C09D88AC3BA7E09F96AA33B064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Anno 2070: Deep Ocean Expansion [En] (L/AddOn) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:FF5D65CD9CD1734404DA7FD366357078845C7D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

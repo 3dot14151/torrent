@@ -19,8 +19,7 @@ SIMULACRA (2017) [En] (1.0.48) License GOG
 ```bash
 magnet:?xt=urn:btih:5CFFA361B9F9E6BFBD7DB907FC1D2775DE9996BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.04) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:10C3F26E5F9387A791F13683419373CCB30DF440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cuphead - это игра в жанре run'n'gun, в которой игрок�
 ```bash
 magnet:?xt=urn:btih:DB51AD63B5AAEC1F17A3F8F1B234C4167FD1452D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

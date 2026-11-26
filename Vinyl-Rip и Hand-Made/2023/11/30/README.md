@@ -22,8 +22,7 @@ A4. Will o the Wisp (05:05)(   Читать дальше...   )Жанр: Progres
 ```bash
 magnet:?xt=urn:btih:38B5560B127628C874758422F72FA1DBD78DD10A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Con Amore (Cu Dragoste)(   Читать дальше...   )Жанр: PopПр�
 ```bash
 magnet:?xt=urn:btih:65CB716CFC68BD32768AF0093627BBDF48143897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ C1. A Fair Judgement (10:23)(   Читать дальше...   )Жанр: Progre
 ```bash
 magnet:?xt=urn:btih:0FF47024966D3DD594781D5F0B0D3FB616721E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Them - немецко-американская хэви-метал группа,
 ```bash
 magnet:?xt=urn:btih:89698A042F4627CECBFA421347999C50733FF300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

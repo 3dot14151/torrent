@@ -20,8 +20,7 @@ Fable: the Lost Chapters перенесет вас в удивительный �
 ```bash
 magnet:?xt=urn:btih:F7DBA3E1E9568477B871FCF7878864141966AA81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

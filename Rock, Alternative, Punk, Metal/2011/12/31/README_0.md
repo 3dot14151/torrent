@@ -27,8 +27,7 @@ Analgesia - Beyond Illusion (2011) [MP3|320 kbps]<Symphonic Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:9B1E24530BDB19D32959ED8C6C18582EAA1243E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ D1. Nuit D'Hiver 5:25(   Читать дальше...   )Жанр: PopПродо
 ```bash
 magnet:?xt=urn:btih:78775AA202D728AE8E558B818CDCEAD99C9D88E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B2. Science 2:43(   Читать дальше...   )Жанр: Nu MetalПродо
 ```bash
 magnet:?xt=urn:btih:85DE97EF1D07A8A1C837ED8619898CE06530A5B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ D1. Mehr 4:10(   Читать дальше...   )Жанр: IndustrialПродо�
 ```bash
 magnet:?xt=urn:btih:679D710E769F7DBFDF0D4054004758E29C439C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ B5. Feuer Und Wasser 5:13(   Читать дальше...   )Жанр: Industria
 ```bash
 magnet:?xt=urn:btih:6D6C6E25C3139962F9AC2CDAA5D576253CBB1157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

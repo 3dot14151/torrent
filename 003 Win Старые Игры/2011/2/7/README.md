@@ -23,8 +23,7 @@ WoG предоставляет всем любителям серии игр «�
 ```bash
 magnet:?xt=urn:btih:07916A2FD13D15AB7B2710DB27E496BC94EEB14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

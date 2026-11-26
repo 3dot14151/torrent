@@ -19,8 +19,7 @@ cFosSpeed - высокопроизводительный сетевой драй
 ```bash
 magnet:?xt=urn:btih:5E1E9FB761904ABA632D17D1BC9FCA02B46085B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:461930AE6D1817899692EED9502D6D9375DA511E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ UninstallView - это инструмент для Windows, который со�
 ```bash
 magnet:?xt=urn:btih:7E1E503EAB8CC6555A99C4B59233D31B59B63E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ QuickTextPaste 8.83 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B531E5D1815D6D727446F95C2E48F69C944B2DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

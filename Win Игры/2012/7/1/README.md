@@ -19,8 +19,7 @@ Chronoclasm Chronicles (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:FD2C4B1452AD6C0FDD693C6078DE1382F9901CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fierce Tales: The Dog's Heart Collector's Edition / Жестокие истор�
 ```bash
 magnet:?xt=urn:btih:A49AF03E5CF284B6067FFA4A0C7C6ECD28E0D27F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Solar Struggle аркадный космо-шутер.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ London 2012: The Official Video Game of the Olympic Games (RePack) [En] 2012 | A
 ```bash
 magnet:?xt=urn:btih:5D48476098EE54EDCBF9F66BF7C099B23222E302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

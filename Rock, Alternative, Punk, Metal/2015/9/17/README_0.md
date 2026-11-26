@@ -22,8 +22,7 @@ Claret Ash - The Cleansing (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Pro
 ```bash
 magnet:?xt=urn:btih:832D19CE71BFEE8681B6A8D10DCA27699864A815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:715ABCA77219152BBAB478EA8B04F77187EDD3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

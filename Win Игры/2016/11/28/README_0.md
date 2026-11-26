@@ -19,8 +19,7 @@ Mystery Case Files 14: Broken Hour Collector's Edition (2016) [En] (1.0) Unoffic
 ```bash
 magnet:?xt=urn:btih:AF671AE4E8877156BF44685DE367EA2D0560A750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ukrainian Ninja (2014) [En/Uk] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:8165F6154DB68020D42DE9E90E025C5E9AA92D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 ```bash
 magnet:?xt=urn:btih:B8238D832721CE5F3FF3E9DF858BF55D9AE1697E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

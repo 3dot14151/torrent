@@ -22,8 +22,7 @@ Bolder Damn - Mourning (1971) Reissue, 2008, Erebus Records [MP3|320 Kbps] <Hard
 ```bash
 magnet:?xt=urn:btih:63A80DF69B39E75C0E907576AC3D15B7B9853750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Running Wild - Black Hand Inn (1994) Deluxe Expanded Edition, 2017, Noise [FLAC|
 ```bash
 magnet:?xt=urn:btih:DA7EE3CC4C8F86F523E594DDF75DE982C0B0D04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Marilyn Manson - We Know Where You Fucking Live (2017) Single [MP3|320 Kbps] <Al
 ```bash
 magnet:?xt=urn:btih:95277C12F87F93624496EAB13DC4AEBA507FADA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Foo Fighters - Concrete And Gold (2017) [MP3|320 Kbps] <Alt. Rock, Post-Grunge, 
 ```bash
 magnet:?xt=urn:btih:B324C90EB3E0FE092558F31A30E4F3AFC3A1C75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ The Parlor Mob - рок группа из Нью-Джерси, созданна�
 ```bash
 magnet:?xt=urn:btih:4FD00D225127A7EE8DB27D0CF65FB136C9B3692B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

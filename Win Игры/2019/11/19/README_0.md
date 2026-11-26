@@ -19,8 +19,7 @@ D1896 — это платформер приключенческого боев�
 ```bash
 magnet:?xt=urn:btih:2901BF93A5ABD27FCDD6CF692FA5A2FB4ABF077D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

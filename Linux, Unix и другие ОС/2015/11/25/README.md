@@ -21,8 +21,7 @@ Cinelerra может работать с видео и звуком очень �
 ```bash
 magnet:?xt=urn:btih:EA22BA4CA1B929C5839DAA79492D7E4E42F24FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

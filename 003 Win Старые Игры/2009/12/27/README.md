@@ -19,8 +19,7 @@ Far Cry / Collateral Damage / Возмещение Ущерба [Ru] (P/Mod) 200
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Far Cry / War Zone / Генная Лаборатория [Ru] (P/Mod) 2004/2006
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

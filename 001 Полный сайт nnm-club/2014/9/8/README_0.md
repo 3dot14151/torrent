@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2DD732FC368437B0B1249644475C6CB7442693C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F148BEC928B15F76DDBF7DE11D83F44C2EDEF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Hybris - Emergence (2014) LP [MP3|320 кб/с]<Drum'n'Bass, Neurofunk, Drumstep,
 ```bash
 magnet:?xt=urn:btih:11FEEE596F68580C1A9F027BD8AEFE56F09AA1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Moko - Gold Love + Your Love Remixes (2014) EP [MP3|320 кб/с]<BassHouse, Drum
 ```bash
 magnet:?xt=urn:btih:D513482019988A8195D8D0DDF76B9813B3718956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55A5F3EE5D4125260ACE58792119D156CCFE34C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Discovery: Повелители разума / The mind control freaks (2014) HD
 ```bash
 magnet:?xt=urn:btih:DF32B9800A41F0D9E85F2F0CBFDD0965F5FC8460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ V.A. Prog Rocks! - Volume Four (2CD) (2014) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:7491457C73EC8C459F584059AEA1227F2AC6098C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Don Davis - Парк Юрского периода 3 / Jurassic Park III (Origin
 ```bash
 magnet:?xt=urn:btih:C83874BD811D774119CE04E9126F151D2035C4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ Synalyze It! Pro – это инновационное приложение, к�
 ```bash
 magnet:?xt=urn:btih:D6ABDAC3E8A1A7CBD0C08AFFDAB16AECDC90B93E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ Oliver Schroer - Celtic Devotion (1999) [MP3|320 кб/с]<New age, Celtic>
 ```bash
 magnet:?xt=urn:btih:8AC28515906AA9A7A68F06DB995753BBF8F95154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:764D9A9343D0B3C617F8BDF39F2A00B96FF6E7EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A0DA9A1899814E100BE35A8255BE46CED8B4C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4614358E54FE957C18DE4821D7566366CB9A5720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64CED3EDBD7AB28B5108A71E2CBCEC70A8005BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ Double Concerto for piano, violin and orchestra in D minor, MWV 04
 ```bash
 magnet:?xt=urn:btih:23C0B2DE6F0DBA8B3772EE50897924945DC5888E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +479,7 @@ VA - Соседка / The Girl Next Door (Soundtrack Unofficial) (2004) [MP3|128
 ```bash
 magnet:?xt=urn:btih:BEDF7A2A35A0B44BE8145EF03D9CF08CC19126F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1C570B3769663265611D9B1070DF3289F1558B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:875F359E064632BAF4F1BA453132552DB304F74E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +563,7 @@ Luc Arbogast - Oreflam (Limited Edition) (2014) [MP3|320 кб/с]<Medieval, Neof
 ```bash
 magnet:?xt=urn:btih:E32E56126AADD1E31ECBB1F66A1BAA5CF8A21ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +597,7 @@ John Williams - Парк Юрского периода 2: Затерянный �
 ```bash
 magnet:?xt=urn:btih:DEA5146B0049E74A43B09E2EB85A5C406544909B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC96A787296D5EC1C8CD3E5E84C41CEC11E89016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:853EF25A0B5057FE8C0E1A40FBEDB325BD336D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ VA - The Official UK Top 40 Singles Chart (07-09-2014) [MP3|320 кб/с]<Pop, Eu
 ```bash
 magnet:?xt=urn:btih:20E263B66007D5174F714C78D3ED9E49165DD752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B96A30FD4ADB1A16E3C48964F9419B599E8DD73A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ Chopin: Barcarolle, Scherzo op.31, Polonaise op.53, Andante Spianata & Grande Po
 ```bash
 magnet:?xt=urn:btih:75B69628AFBB418BB73D930A2A503BB6630580B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Skillbox | Продвижение в Instagram (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:40FB7AA16BB6FBA2F8B015D42323FA21612E64D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50FFDA5E0CEA0041CF025FE4EE2BA7148DC09BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Crysis: Remastered (2020) [Ru/Multi] (1.2.0) License CPY
 ```bash
 magnet:?xt=urn:btih:44FAD2343C76B25C8E9BEF702D75FD8C8D1BBF4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Microsoft Windows 10.0.19042.508 Version 20H2 - Оригинальные обр�
 ```bash
 magnet:?xt=urn:btih:7A38E182827702EFC04D65F1D0A3A9239F45DCB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ W10 Digital License Activation - инструмент от Ratiborus для ак
 ```bash
 magnet:?xt=urn:btih:B1BCC16F2737AC3D54AA7939A234AB2A8807B8F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08FA10303DBA575D142E0C02C0DDCB6475DBBE94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCA3568B10C51434A9B713083C7693F1EBA47BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

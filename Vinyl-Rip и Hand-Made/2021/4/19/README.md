@@ -22,8 +22,7 @@ A2.1 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПр
 ```bash
 magnet:?xt=urn:btih:6F44E0BE346DD97196F02438510A01DA24385EE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A3 Contrapunctus 3 (No. 3)(   Читать дальше...   )Жанр: Classica
 ```bash
 magnet:?xt=urn:btih:2E03C8D4C8E31BD6103BB2013F47BB16FDB38C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

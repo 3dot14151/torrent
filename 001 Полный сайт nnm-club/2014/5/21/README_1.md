@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1535306AC8C7B63D43684436593BD574D3FC1250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Sinfonia concertante KV 364 E Flat Major
 ```bash
 magnet:?xt=urn:btih:3463277E9F65599C920DDD8626021DBDA9F4B1A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Control Center 1.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:65DF1F0B9D32EB22E828CE38BAAF413181133316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ VA - Spring  Beatport  Singles (2014) [MP3|CBR|320 кб/с] <Trance, Uplifting T
 ```bash
 magnet:?xt=urn:btih:F90F8CD2197B1FF2B517BE4E023B10C606D41C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ TechSmith Snagit облегчает захват изображений с эк�
 ```bash
 magnet:?xt=urn:btih:D7C3BBED016B232358D637DA3B70E1B8789FF543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ Beethoven: Sonata No. 32 In C Minor, Op. 111 (1822)
 ```bash
 magnet:?xt=urn:btih:0AB0D865CE7234C8CE58935FD9D75EC3A71532F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ Sticky Password – уникальная программа, которая ин
 ```bash
 magnet:?xt=urn:btih:9106812DFB7E41662CA97AA617FE5D97E7C3E31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ Piano Sonata No. 8 in C minor ("Pathétique"), Op. 13
 ```bash
 magnet:?xt=urn:btih:ED768AFB0816867AB9639FABD864D019F010A769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4B6DF9D51C5ACC8C7EDECCA6C1E0F4107F95D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1882D13A977F3EB25F973CAF795E3EC81F45C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76F64597AD470E50D57B014DE99CDB5B77BB8C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B52829D85F2CC9895C98690E13F11AAC35BC8109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ VA - Дискотека Море удовольствия 50/50 (2014) [MP3|256-
 ```bash
 magnet:?xt=urn:btih:6D9F2B440431CA969DCAEA14BAD862F58A597253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B21ED14419B54C8CE527261D3A52EFBBBA226142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ VA - Новый Шансон (2014) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:95A44509E456DCB89B97AB622ED4FD8DB8CDC7F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:940A34E61E9FCE4EB64868F896487A96A8C7BBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB337513A0247BF55EDEB230EB98342C4EE3E6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6885638353F6FA6F5C8967782A44FABEF66DA34C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +529,7 @@ Chromium - кроссплатформенный браузер с открыты
 ```bash
 magnet:?xt=urn:btih:3D7E7822E221216B6377ADB2A0E0FDCF9AA83716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD55A65AFF580A1E1ABE712ED2AA3B5643D12F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ Windows Blu-ray Player – это лучший проигрыватель для
 ```bash
 magnet:?xt=urn:btih:7E90D80FCEF5DEB073D7BDEF2F1A669B7DB78C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BF71BBAFC3E1DD5B594B2F8E63E29A8F2E7EF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:4350C00BF7FBC2C25FD2FB3C9D82B0566F958F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +672,7 @@ Myristica - 3 альбома (2011-2014) [MP3|160-320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:5476DC920A7F8B8CC793E134A90CEF79167B9D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:416FF12CFBCF3C8BF17FB1C830CA673B6172EC01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +724,7 @@ Chronos Atomic Clock Synchronizer подключается к различным
 ```bash
 magnet:?xt=urn:btih:5B1E5DBD4FE46E465F38E0A471AACB26F60A8AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

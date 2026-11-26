@@ -22,8 +22,7 @@ Saturnalia Temple - To The Other (2015) [FLAC|Lossless|image + .cue] <Stoner, Do
 ```bash
 magnet:?xt=urn:btih:79881A3DCE2E10E45B7CF08A025C775949985C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blue Max - Limited Edition (1976) Reissue, 2003, Gear Fab Records [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:B94F8AF042D11423B71025BAE39296CD4109E7EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Alice Jayne - Inside The Cover (2017) [MP3|320 Kbps] <Rockabilly, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:46D6B8061C4AE9D168ECCC971F665AC360203F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Blondie - Pollinator (2017) [FLAC|Lossless|image + .cue] <Pop Rock, Post Punk, N
 ```bash
 magnet:?xt=urn:btih:633738E43A3ECBC87F4A6BED69D6BC3BE5804972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA56968A2E9B212E103FFD9B1B92313784E6F58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Harry Styles - Harry Styles (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:2490638F0B2DFDD697CE1AF0EC7997F8686B3131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Imelda May - Life Love Flesh Blood (Special Edition) (2017) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:DEEDC21BB2C7063FA7C7996953A6D040A6CF210E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Niva - Gravitation (2013) Japanese Edition [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E0B61340ACA301ADB55254EBEF23C622F9039E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Cream 21 (Mixed by Paul Oakenfold) (2013) [MP3|320 кб/с]<Trance , Progre
 ```bash
 magnet:?xt=urn:btih:D44620E199C37329C68F82AF9E4D1BD70C7A26A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Story Of The Year - Ten Years And Counting (2013) [MP3|320 kbps]<Alternative Roc
 ```bash
 magnet:?xt=urn:btih:AA819D9CA487A5C3420A5739F96B203DC87110D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Space (2013) [MP3|199 - 320 кб/с]<Spacesynth>
 ```bash
 magnet:?xt=urn:btih:A4A954CFC849C8C47E04C650CFB429C8D9DC06D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Cryptic Carnage - Rozelowe (1998) [FLAC|Lossless]<Blackened Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0AF93D7CD0EDF6771CD01DD0C4E4E6BEBE942ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ VA - A State Of Trance Classics Vol. 8 (The Full Unmixed Versions) (2013) [FLAC|
 ```bash
 magnet:?xt=urn:btih:4145A9DD9A0103C7010CB2F1BAF5D1A5BABF9955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Royal Crown Revue - Mugzy's Move [+ Barflies At The Beach] (1997) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:6C61C34EC67A274EC7120A1445ED505FEBF52E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ jv16 PowerTools 2014 - программа, представляющей собо
 ```bash
 magnet:?xt=urn:btih:092B8E937A18B6E040B78103EC1505779D1C3346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ B3. Native Love (Instrumental) :: 08:22Жанр: Hi NRG, DiscoФормат: Viny
 ```bash
 magnet:?xt=urn:btih:52C360F4FEBC555929C1CCBAB814C122E032AA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C3F8179D096BE3D71AD48614B7F7A44EFC34DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ Oceania - Oceania II (2003) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:A9AEC18843549FAFA6D8DE6EA6A6DEE228C36CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75E9C3E80FA0BE4ACD6F4A464AF35743A5F037FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +408,7 @@ Royal Crown Revue - Walk On Fire [Bonus Tracks] (2006) [FLAC|Lossless]<Swing rev
 ```bash
 magnet:?xt=urn:btih:9A62B9E51C0EF071EDF9D6718107E4F68D526AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +433,7 @@ Wallpapers - Обои разное 18. [JPEG]
 ```bash
 magnet:?xt=urn:btih:251B1876981C18229E81074B8B9652948C6B05AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +467,7 @@ Ginger Snap5 - Snapped By You (2013) [MP3|192 кб/с]<Futurepop, Electro-Indust
 ```bash
 magnet:?xt=urn:btih:6CFF760205A45DD24EF40991CEB1FC3B51D7EA20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +501,7 @@ Tori Amos - Tales of a Librarian  (2003) [WavPack|Lossless]<Rock, Alternative Ro
 ```bash
 magnet:?xt=urn:btih:A3AEB3DE0E98017EDED3B668ECEBA987F27AFA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +534,7 @@ Ron McClure, John Abercrombie & Aldo Romano - Yesterday's Tomorrow (1991) [FLAC|
 ```bash
 magnet:?xt=urn:btih:2B3CCC7687FEA772A67BF37AC6BEED2FA2B028C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD3E1DD9A20F6FE663A5B5149A859170FC224CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +593,7 @@ VA - Anjunabeats Pres. Journeys 01 (2013) [MP3|256 кб/с]<Trance, House, Progr
 ```bash
 magnet:?xt=urn:btih:8D253FE4745FF5D6B1729E389D22B67C4AB2A134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C183960FC45C09E873978E546A71685CB09F6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +653,7 @@ Travis - Where You Stand (2013) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:EF78E869BC13BE9E57A22D8ABF72E1FA97FFC487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +678,7 @@ Wallpapers - Обои разное 17. [JPEG]
 ```bash
 magnet:?xt=urn:btih:E4355DBA884CAAE1A7FBC5CD70BB9123D18004F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:588CD095E608F9B98941E3F363BA84A2AEFBB51B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +737,7 @@ SPA Strings - Indian Shants (2013) [MP3|320 кб/с]<Native American, Downtempo,
 ```bash
 magnet:?xt=urn:btih:C70DED177CB7448245074A65668E80DEDEAAD3A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +762,7 @@ Almeza MultiSet - автоматический установщик програ
 ```bash
 magnet:?xt=urn:btih:CC1420BBAD18FFE0F01205AFFCA356820E222BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ VA - Red Station.Domination (2013) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B880ED12C9F76FC3CDAA86C0A859B88304FA61FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

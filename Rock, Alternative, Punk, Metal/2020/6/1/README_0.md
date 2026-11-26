@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8A54A8C929A7D627802D887192C7FCCD1680BDA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wildside была образована в Лос-Анджелес, Калифо�
 ```bash
 magnet:?xt=urn:btih:807C59E421D314C6A9FEFE85A358BFB3B7BF59F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Santana - The Best Of Santana (1969,1990) 2CD /Sony Music 2012/[FLAC|Lossless]<C
 ```bash
 magnet:?xt=urn:btih:D7A68FF738D38EA7B755F7763649EC6B24E85D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ CD версия Windows XP Professional SP3 (v5512) Corporate Edition Volume Lic
 ```bash
 magnet:?xt=urn:btih:BD9FC6418C7D4DC9FF6DC5E2F00E91D933ACF644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

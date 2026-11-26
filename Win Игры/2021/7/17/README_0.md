@@ -19,8 +19,7 @@ Siege Survival: Gloria Victis (2021) [Ru/Multi] (6998499) License GOG
 ```bash
 magnet:?xt=urn:btih:607720D677EC5406C2CBC31231B68BB1FC470BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

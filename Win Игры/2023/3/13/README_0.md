@@ -19,8 +19,7 @@ Contraband Police (2023) [Ru/Multi] (1.0/upd1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9E2AF6F8C39F9A0E0A6F36FEB3CD049940338C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GRIME (2021) [Ru/Multi] (1.11.11/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D7407466D00B517D1ECFAD1509E0E0B426889D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ My Dream Setup (2023) [Multi] (20230224) License TENOKE
 ```bash
 magnet:?xt=urn:btih:09FD09BB9FE5F45D0CD3FB8C094CC51140E12737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Blind Fate: Edo no Yami (2022) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1C42958EE6086EEA3CD1C03968C203D613242CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Camelot 2: The Holy Grail / Камелот 2: Святой Грааль [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:6FD1A763DF46FAE466218E5BCB1B326A997A6C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ StarCrawlers (2017) [En] (1.1.4.1) License GOG
 ```bash
 magnet:?xt=urn:btih:8A61E48B8F3041946A4F128FCAAAD8597FAC500C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

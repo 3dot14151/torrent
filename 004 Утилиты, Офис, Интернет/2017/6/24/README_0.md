@@ -19,8 +19,7 @@ TrackChecker – достаточно любопытное приложение,
 ```bash
 magnet:?xt=urn:btih:9073A9BACBB308C20571607A367F951FDFC10952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Acronis True Image — это интегрированный пакет прог
 ```bash
 magnet:?xt=urn:btih:DFA02C5CF8287C3BD511EE54DDDCF6A537264074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Process Monitor 4.01 RePack by KLASS [Ru]
 ```bash
 magnet:?xt=urn:btih:A850C42FEE4BF22BDFFA108BA458199D933BAE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

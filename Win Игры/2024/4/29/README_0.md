@@ -19,8 +19,7 @@ Fallout 4 - это продолжение знаменитой постапок�
 ```bash
 magnet:?xt=urn:btih:4D3DC12C5C57B8A02FD74BA31CB7BF47C3213AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:5D137846872A9CC1F7ED6F7E5AB0D3130C50BE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Fall of the Dungeon Guardians - Dungeon Crawler RPG с видом от пе�
 ```bash
 magnet:?xt=urn:btih:CCF69E40FE159060603FE82D431EA8AFED88EABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Staffer Reborn – здесь вы узнаете о сверхъестеств�
 ```bash
 magnet:?xt=urn:btih:186C92257265EC78F5F6FDAC0F631AE81A6CA9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

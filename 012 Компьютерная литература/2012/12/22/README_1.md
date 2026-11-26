@@ -19,8 +19,7 @@ Dojo - это высоконадежный инструментарий JavaScri
 ```bash
 magnet:?xt=urn:btih:0CDDCCF08EE4777FDC19DF36C3BC8A88D65BD0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

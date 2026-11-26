@@ -19,8 +19,7 @@ Unsolved Case: Fatal Clue (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:D3A30E93339366C83EDBB4801053EC31FD3B7B43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reflections of Life 11: Spindle of Fate / Отражения жизни 11: Ве
 ```bash
 magnet:?xt=urn:btih:5C534F0CBA9A120ADDA2BDE5185D60BE92A719C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sucker for Love: First Date повествует про парня, что од�
 ```bash
 magnet:?xt=urn:btih:8A84934068624239689AB9BAEE0430D17DEA10A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Steelrising (2022) [Ru/Multi] (Build 9770876/dlc) Repack Other s [Bastille Editi
 ```bash
 magnet:?xt=urn:btih:21E99EC6E4DB29A7819E51AF0BFB0137C0485B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

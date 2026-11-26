@@ -22,8 +22,7 @@ Senses Fail - If There Is Light, It Will Find You (2018) [MP3|320 Kbps] <Post-Ha
 ```bash
 magnet:?xt=urn:btih:D7A3FCDCDEF5E91C5C47F64AD5EA7C8CB493CFE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ For The Fallen Dreams - Six (2018) [MP3|320 Kbps] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:7CEB823C098F23B9B79C8B33E648665D9B27B5F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rolo Tomassi - Time Will Die And Love Will Bury It (2018) [MP3|320 Kbps] <Mathco
 ```bash
 magnet:?xt=urn:btih:C58DBACB97B0A773E6737B16266CB905F84747C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jimi Hendrix - Both Sides of the Sky (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:25ABF7F09981484F24653F5536898BACE1EF3AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

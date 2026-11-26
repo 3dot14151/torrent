@@ -18,8 +18,7 @@ VA - Осенний Хит парад XXI века (2010) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:100BC622B19FD331BEE46435EAE50554309F04C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ VA - Trance Deluxe Vol 01-05 (2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:9982C78882E80E3D6606E6C891BE06DA2BEE6D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ VA - Bargrooves Deluxe (2010) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:4C0F57DFA36809F15FF86041E7AE03394BE2B06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F619D84397C359BF7382886937DBF1A9A07481FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ John Mayall - Blues Express (2010) [MP3|320 kbps]<Blues>
 ```bash
 magnet:?xt=urn:btih:2C8B321CE5093C15A095BA8F0052C6F7E07F6CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ WILDSTORM | Planetary [1999] [CBR]
 ```bash
 magnet:?xt=urn:btih:5C6AA1E8F9090D46C7E06B7DC3B6A5332BD98210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C963508CEC18E23DA1302469CC5FB10236015C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Andrew Hill - The Complete Blue Note Andrew Hill Sessions (1963-1966) [7CD Boxse
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - На любимой волне. Радио Record №6 50x50 (2010) [MP3|32
 ```bash
 magnet:?xt=urn:btih:713C44070280B8B4ADA409476708B411EC2DD382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Nokia Siemens Networks устанавливают рекорд скорости 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - Жажда Скорости Максимальное Ускорение (20
 ```bash
 magnet:?xt=urn:btih:558A3BA74702CB8B1526359981006540DC3EFD48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EEE100C3D80B883E4C095F90CAA818B53D97126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Hossam Ramzy - 2 альбома (Flamenco Arabe) (2003, 2006) [MP3|256 kbps]<Eth
 ```bash
 magnet:?xt=urn:btih:5B0C325151ED9ADC4097551B389EBE0775D31517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ VA - Музыкальный Автомат 50/50 (2010) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:FA8A9D458E46D2A2DFE0C6AE59D2D078737C1BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72AF83CC3BD5342D9E262DBAAF2106403DDBCB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ VA - Godskitchen Pure Trance Anthems 2011 (2010) [MP3|96-320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:C75062386F2FC0BD148670B661C39E6A4226FCE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:612EB6E0F51F5176FB7367CC2E14C8C0613B1ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ Comedy Баттл. Отбор.  / Комеди Клаб / Comedy Club / Выпу
 ```bash
 magnet:?xt=urn:btih:137D6AA4C0DE8FAB809DBBB474FC2F51CAEA7798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D88731A25D05524BDCB5EB45BB63433C84328F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ VA - Хит на все 100% Volume 4 (2010) [MP3|320 kbps]<Trance, House, Club,
 ```bash
 magnet:?xt=urn:btih:4D8DE8DC113224F5D0FD89C5B7A0295A06B53CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ DJ MEXX - Halloween mix (2010) [MP3|320 kbps]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:B3904825289DBA4A989E15C95A7C590D48B57998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Mysteries of Magic Island (P) [En] (2010)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98DFEB2FF95ED9B615BCE75C0A4BAB3C8FF5451B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ DVDFab - программа для копирования DVD и Blu-Ray дис�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35259CDE12FA3A2F2D482DC636E944B44573F75D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

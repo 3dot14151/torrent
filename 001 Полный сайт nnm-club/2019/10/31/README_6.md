@@ -20,8 +20,7 @@ WebForMySelf | Python. Полное руководство (2019) [unpacked]
 ```bash
 magnet:?xt=urn:btih:F7479FBC8246BA64A4F66EC84241435C7079AA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 10.20
 ```bash
 magnet:?xt=urn:btih:BF04FAFBD0AAC672BCB9FEC9D7CB4D0152A243A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

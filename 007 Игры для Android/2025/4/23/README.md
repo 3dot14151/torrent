@@ -19,8 +19,7 @@ Prince of Persia™: The Lost Crown - это приключенческий пл
 ```bash
 magnet:?xt=urn:btih:1254A6E3E2A38384EC424BB4B7D6F8259B2AE545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ EMPIRE переносит сражения в реальном времени и
 ```bash
 magnet:?xt=urn:btih:24748208EF56FD5F6201AF912B95B4696EEB93D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Chaplin: The Missing Pieces v4.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:71B3C813C5C8C55C574E71F6558FCE680A5F7C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

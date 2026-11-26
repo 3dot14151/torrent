@@ -19,8 +19,7 @@ Trial by Viking - это ролевой экшен-платформер, сме�
 ```bash
 magnet:?xt=urn:btih:74BCD7ED371A715205BE59AEF972A52C9A6DD925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Collider 2 (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DD295A5FA892C822C45EB49CB7B2DCC5E192D64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:972A6BB649772C23F7871149B10A36FB04D15843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tale of Wuxia - это переделанная Legends of the Wulin. Это к�
 ```bash
 magnet:?xt=urn:btih:0FAA92295854BFBD80A2213458A8B3CEFF6F2484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

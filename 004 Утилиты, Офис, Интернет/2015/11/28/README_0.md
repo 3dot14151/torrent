@@ -19,8 +19,7 @@ Falcon – неплохой комплект курсоров шести цве�
 ```bash
 magnet:?xt=urn:btih:0AD758D071F676675C5C794397EB90773E9663DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

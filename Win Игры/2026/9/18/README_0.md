@@ -19,8 +19,7 @@ Crimson Moon (2026) [Ru/Multi] (1.0.0.160034/dlc) Repack seleZen [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:279B6584EDB36928C03A4E929B750B5BECF0740A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Square Enix и Tri-Ace представляют последнюю часть с
 ```bash
 magnet:?xt=urn:btih:7A558F4B5C82BBAFB115195D88A15EDD4F3EDCDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Big Ambitions (2023) [Ru/Multi] (1.0 Build 3670) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2B9FA7E3F2A4BA449696126AE95B0BDC6872B799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Spiral - это сюжетная игра от третьего лица, в к�
 ```bash
 magnet:?xt=urn:btih:C4073CAFA6435C7BF0955A5FEB921047BE52A16B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hank: Straightjacket (2023) [En] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:DC848E694A4224B2AD8DF9F1CB1CFFCCCC21D5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hank: Drowning On Dry Land (2026) [Multi] (1.0.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:82D6CF2B40FC4B223772DD68566655BB67E3BD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Truxton Extreme дарит острые ощущения шутера как м�
 ```bash
 magnet:?xt=urn:btih:4FA7B6A8A327F13D18259F36D76B378C1F161EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

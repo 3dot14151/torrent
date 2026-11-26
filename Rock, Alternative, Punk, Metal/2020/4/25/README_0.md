@@ -22,8 +22,7 @@ Paloma Faith ‎ - A Perfect Contradiction (2014) Deluxe Edition [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:151C2C568BEE749714E80285ECBFD755570640E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Awolnation - Angel Miners & the Lightning Riders (2020) [FLAC 2.0|96/24|tracks|W
 ```bash
 magnet:?xt=urn:btih:E3781E57C8D0964F96B9BCE1C5996BE7410D3BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Black Sabbath - Heaven And Hell (1980) 2 SHM-CD, Japan Deluxe Edition [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:37414A92600413D3DBA3532C35AB798D86EC5C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Raveonettes - Chain Gang Of Love (2003) [FLAC|Lossless|image + .cue] <Indie 
 ```bash
 magnet:?xt=urn:btih:F47273D9E1DE0F48EB229F207558CF77C565F840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ulcerate - Stare Into Death And Be Still (2020) [FLAC|Lossless|tracks + .cue] <T
 ```bash
 magnet:?xt=urn:btih:5D195192857018986690CAFD6E355A74444DC8AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Paloma Faith ‎ - Do You Want the Truth or Something Beautiful? (2009) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:1114BF7B69BAD76A7E271F59787825512483E599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

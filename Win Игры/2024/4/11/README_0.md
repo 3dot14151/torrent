@@ -19,8 +19,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (20240405) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E4BF4B2FA26C20B65D05B40B19132522DD14763E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 ```bash
 magnet:?xt=urn:btih:B1D1E304B1FEB423BA3D5E4B47954F916604257A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Days – перед вами классический сверхъесте�
 ```bash
 magnet:?xt=urn:btih:8FF60AE286F138BF471AF749A327F560FBB8E36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sheba: A New Dawn повествует о мире, что переносит в
 ```bash
 magnet:?xt=urn:btih:1EF71D07376FF39B23F74E40102A847799845CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Children of the Sun бросает вас с головой в жестокую 
 ```bash
 magnet:?xt=urn:btih:AFC948260D43677A7872C2FD82512474676FD622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Spirit Legends 3: Time for Change (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:8FB7C725A7F8D8CF7374DA80AAC6C39A1181118E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yuletide Legends 3: Who Framed Santa Claus / Рождественская ист
 ```bash
 magnet:?xt=urn:btih:9B57E3CFE99B7B82395B1B5620BC0AC73CF01407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Legends 15: The Scars of Lamia / Легенды о призраках 15
 ```bash
 magnet:?xt=urn:btih:87E7BE57538296B497E0994BE2E7560815D3E369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A2CC0913CCE3E9C425F189AF3CE2D602616DCDC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

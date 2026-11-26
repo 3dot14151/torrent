@@ -22,8 +22,7 @@ Himinbjorg - Wyrd (2015) [MP3|320 кб/с]<Pagan/Black Metal>
 ```bash
 magnet:?xt=urn:btih:CF332A36DC17057240875C7045A2A88163AC4294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Set In Stone - Where Secrets Hide (2015) [MP3|320 кб/с]<Metalcore / Post-Hard
 ```bash
 magnet:?xt=urn:btih:F33484D6F8D8E460C9D2205B27B1FB3B5DE35587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ New York Dolls - Les Genies du Rock - Vietnamese Baby (1994) [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:59EF10024811DC83B8381B0F6D3336173C504584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Van Morrison - Les Genies du Rock - Brown Eyed Girl (1995) [MP3|320 кб/с]<Blu
 ```bash
 magnet:?xt=urn:btih:3404A27E44544D947AAEE2A0C2ABE42DCEE47BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fletwood Mac - Les Genies du Rock - Black Magic Woman (1995) [MP3|320 кб/с]<R
 ```bash
 magnet:?xt=urn:btih:FAD2E296D3E48A5C3B56501D22879189DFBD8909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Sweet - Les Genies du Rock - Fox on the Run (1995) [MP3|320 кб/с]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:60B8ED497F2A25F8C69F6A4A30BEF280F0DF8261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Status Quo - Les Genies du Rock - Pictures of Matchstick Men (1995) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:E3A094F7AA68A2946C4429F6106E0D354CDD6704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6524BF95D8DBE38E546DCE715A3CC38011B5A811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Uriah Heep - Les Genies du Rock - The Magician Birthday (1995) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:0FCFA4FE9A8F1BCE99745C55EE895D4AB39969E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Santana - Les Genies du Rock - Santana Jam (1995) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:05A68CC8756C9DF775635AB1F8394E69D553791E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

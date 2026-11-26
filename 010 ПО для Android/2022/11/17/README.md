@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:65DFE2634C723941FE0F6435E6E59ADC3061FEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ vRGB LED IR Remote Control v4.7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6FD4C3F23DA3D17916117BE72DEAA2BACE184DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Ocean Aquarium - это живые обои. Вы можете увидеть 3D
 ```bash
 magnet:?xt=urn:btih:A6ED5B2F40A0C53EF6407905F27A7039294629F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ English-Russian Dictionary v3.4.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2DC67E49C139C7A101D1EBCBE1F6B6C0840DB72D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Camera ZOOM FX Premium v6.3.8 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F1634BFBF980230C0EAEA26225190E1448175415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B29A98B9077263DF8BD6CAEF948203B8B82E3C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

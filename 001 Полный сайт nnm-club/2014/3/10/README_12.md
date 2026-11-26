@@ -26,8 +26,7 @@ Kathryn Moses - Kathryn Moses (2002) [FLAC|Lossless]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:1C10E616DD75EC5043FCB674D59FF2FC35DECB24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Caney Creek - Caney Creek (2013) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:183DC92534AFEF7833E56B783500F730EAF20D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Katharine Whalen - Jazz Squad (1999) [FLAC|Lossless]<Jazz-Vocal>
 ```bash
 magnet:?xt=urn:btih:F74BA7E8B062078A8B4C984A7886E134D34EE9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2874AEC6CA65AF6D88C305D14E87CEDCF6093286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Kazutoki Umezu - First Deserter (1997) [FLAC|Lossless]<Contemporary Jazz, Avant-
 ```bash
 magnet:?xt=urn:btih:16161E50B020079673B4F5AEFC7467EECFC23616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A5B1F8ACE9633A63164E58BD2AB8205F0C1FAEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Catherine Andrews & Denis Haines - Initiation (1991) [MP3|320 кб/с]<Neoclassi
 ```bash
 magnet:?xt=urn:btih:434819333E7A03B67C6C38D51DAC2104DB2BB30C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A75E7D186A7B3D7575FAE141479ACA260200B7C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ Totenmond - TonbergUrtod (2005) [FLAC|Lossless]<Progressive Death Metal with Pun
 ```bash
 magnet:?xt=urn:btih:3CA4A8A5B7F2E3F442A217C340D877D17918F7D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ Totenmond - Auf dem Mond ein Feuer (2001) [FLAC|Lossless]<Progressive Death Meta
 ```bash
 magnet:?xt=urn:btih:0B19DF187C1BD05577245C0A8099B461DC32DE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BD4A473E7D0696FF62748390674FD9AAC89B918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DBFED4531928BD82FF9F21A14E79237EDD2DA79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ Eisenwinter - Armee der arischen Untoten (2012) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:1032EFD782AE6E954ADC817F2CF8DFE012A7C1AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EF46E20729F503C27C92E6842B1DCE1E75F086B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ VA - Trance Hits Top 20 2014-03 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:415E44F2DC478D23A3E1FCD5510E9C7EA9CB19FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4766BABFC6443D7661A72A25D9FE7721BE016ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B270262DF017BF1D307B6345A7D5DB45E49443EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47C65B788BB0A2B92031CFCE352B4FA5BFA8FF38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +596,7 @@ Keith Mansfield - Night Bird (2008) [WavPack|Lossless]<Fusion, Funk>
 ```bash
 magnet:?xt=urn:btih:56395F1D223BA26AEDD998CFCDD03015C1BCA7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ VA - Electronic Manifesto 4. Epitaph. The End Chapter (2010) [MP3|~214 кб/с (
 ```bash
 magnet:?xt=urn:btih:4E990727F84B2EC0895DE533D3A3D27706D0B2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ Conan - Blood Eagle (2014) [FLAC|Lossless]<Doom Metal/Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:8126C21F56CCCB1106551E386FE86B706AD7654B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ Jane Maximova - Rain In My Heart (2012) [FLAC|Lossless]<Downtempo, Deep House>
 ```bash
 magnet:?xt=urn:btih:25AFF1E04186E6D8F386FC8A9F8792444BF6A7BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +712,7 @@ Asonat - Rather Interesting (2014) [FLAC|Lossless|WEB-DL]<IDM, Acoustic, Ambient
 ```bash
 magnet:?xt=urn:btih:66BACD20881CCEC85C0CF1992843FAF8B2E5963C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +746,7 @@ VA - Down the Fractal Dimension (2014) [FLAC|Lossless]<Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:75CE6A395ED13E2407D75DC20FD5AC5BF71B1785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

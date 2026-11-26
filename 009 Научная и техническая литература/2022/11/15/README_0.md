@@ -19,8 +19,7 @@ Marcos Mateu-Mestre | Framed Perspective [2 части] (2016) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:CC34A51745206D8B74E62D6D348BEB0A0559467B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D770BCBA49AF62B78A565474221B5E0AC71F17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

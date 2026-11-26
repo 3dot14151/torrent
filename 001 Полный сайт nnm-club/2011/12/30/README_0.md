@@ -27,8 +27,7 @@ VA - Sunshine Live: Mix Mission 2011 (2011) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:F32C0D7D38DB50A9C3ADE872D812B5863BFE9F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FC3687EAC86F4FCBA7345B01EF17DA5D34A63EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Andy Moor feat. Sue McLaren - Fight the Fire (Single) (2011) [FLAC|Lossless]<Tra
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Anna Ternheim - The Night Visitor (+Bonus CD) (2011) [FLAC|Lossless]<Pop-Folk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A9A36A5AFB4CB1517DA8153BB37976E936D3E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F41D13A83594FAD83AC2991708DAADDF16EE9F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ T-ara - Cry Cry (2011) HDTVRip [1080p]
 ```bash
 magnet:?xt=urn:btih:FD40F5B6B9AD31D48FFEC926120DE56F335F4E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ VA - Trance Classics 2012: Ultimate Techno Anthems (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:D7EC883606BEAD73FEEE084F873C4AC6D0B92134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ T-ara - Bo Peep Bo Peep (2009) HDRip
 ```bash
 magnet:?xt=urn:btih:9BEFD447EC3BF1111DAA5B5DE053AAD82DC87ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ VA - Попсон 2 (2011) [MP3|256 kbps]<Pop, Шансон>
 ```bash
 magnet:?xt=urn:btih:0BC6852B68DB538D5DB5E66E0540C5FE06B8BF11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ VA - Armada Top 15 January 2012 (30.12.2011)
 ```bash
 magnet:?xt=urn:btih:25D932B3A5BDA7D598EFB48F105F77A21563901D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5764A566F150C8CF135B9F6515AAE3B0D5ADFA14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67590465D7B769D01EFDB09AC638C50150FDC12C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ Frost Raven - Far Away From Home (2011) [MP3|320 kbps]<Psychedelic Trance, Progr
 ```bash
 magnet:?xt=urn:btih:D5BA827CAAACBD72D7D31591581224470F97B6DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +421,7 @@ Freemake Music Box – приложение для поиска и прослу�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7DC47DAE0CFE087DCC31B52AB8D468F0CD1447C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Q-Dir – бесплатный отличный файловый менедже�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A589F59F6F1549B4C60F6BA3CAABE7D9377638ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ T-ara - I Go Crazy Because Of You (2010) HDTVRip[1080p]
 ```bash
 magnet:?xt=urn:btih:D7228E69EC63A101201A27543E4D21042C9531BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ Eldest 11 - Message To U (2011) [MP3|256 kbps]<Alt. Metal, Modern Rock>
 ```bash
 magnet:?xt=urn:btih:D90D4FAD7ED817892504052960D279845EFD807E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +591,7 @@ Glenn Miller - Kuutamoserenadi (1989) [FLAC|Lossless]<Jazz, Instrumenral>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +625,7 @@ VA - Mix-Mas 2011 (2011) [MP3|320 kbps]<Electro House, Progressive House, Tech H
 ```bash
 magnet:?xt=urn:btih:D37D2D928E4D8E8A3774BD852A1D2233868E49FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FE68E4602A2702DB6554F590EF428281A426DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4705DE29EB5DB995C24CE8F0875496F0F4E90F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ VA - Зимний кураж шансона (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:7FF5633627B0AFB8593064BA81D6D1BFC0E9DB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E534E0778EBA9EB5E187520E97CD2A708715ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

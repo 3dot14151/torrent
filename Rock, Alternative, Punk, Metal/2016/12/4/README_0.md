@@ -22,8 +22,7 @@ Sam Roberts Band - TerraForm (2016) [MP3|320 Kbps] <Alternative, Rock>
 ```bash
 magnet:?xt=urn:btih:9F7BAAA58D1FF15FBBEA4804ACFF6BE1AF5EDC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Naberus - The Lost Reveries (2016) [MP3|320 Kbps] <Melodic Death, Thrash, Groove
 ```bash
 magnet:?xt=urn:btih:B6F320C9BBCE9E1FF3D9BD859F144C9BCFA7D248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hardbone - Tailor-Made (2016) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BC514C2973DFCF8BA75C5CC3BB156F2AE7CA4244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B3473259B989B0173A86094F5FD3759E7C6E607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Smokie - 9 Albums (1975 - 1982) Remastered, 2016, Sony Music [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:DB5A81AFF387EBBF5AEEC277C28DA09312F63352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Odal - Geistes Unruh (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 ```bash
 magnet:?xt=urn:btih:95A15512F764459E33D96558CEB56556B9F34DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Trallery - Catalepsy (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:16426253974182C674CDAA4F75BE73B93F4A0A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Silence In Solitude - Resurgence (2016) [MP3|320 Kbps] <Melodic Death Metal, Met
 ```bash
 magnet:?xt=urn:btih:5CCDD8750F9E77163235C3BB62BA061C2D122ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Bethlehem - Bethlehem (2016) [MP3|320 Kbps] <Black Metal, Dark Metal>
 ```bash
 magnet:?xt=urn:btih:FB69F7CA692724D2E68A097F13EE2971A069B0FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Kevin M. Thomas - Generation Rock (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A9A8C41D3E8CA37F54562A735C3F299D7FB8DE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Aphyxion - Aftermath (2016) [MP3|320 Kbps] <Modern Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:899D18DC51EEE882355B534F36BB2C629B7802AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

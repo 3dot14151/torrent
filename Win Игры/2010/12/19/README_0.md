@@ -19,8 +19,7 @@ Bronze (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:E3F77FA81856223DD69CB0095C9216E27CFD2DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Police Simulator [En] (L) 2010 | Jaguar
 ```bash
 magnet:?xt=urn:btih:863125AD1C522052FCE0E3FBC17C0D483B2C375C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

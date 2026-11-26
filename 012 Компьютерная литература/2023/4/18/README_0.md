@@ -19,8 +19,7 @@ Maxime Labonne | Hands-On Graph Neural Networks Using Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:AF89E92EF792EDBF0FA9F309258DA116C649E9E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Apps and Services with .NET 7 предназначен для разработч
 ```bash
 magnet:?xt=urn:btih:949228C220EFF5D20DBA312793F5C5A5A20C0F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aristeidis Bampakos | Learning Angular: A no-nonsense guide to building web appl
 ```bash
 magnet:?xt=urn:btih:C9DD7E1F88AB2A6D542EA50B61E4731255F32612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E45388AAB55F5166FD3656531B891A31A5C037CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Blazor - это незаменимый инструмент, если вы хо�
 ```bash
 magnet:?xt=urn:btih:5201FC0A76EF47A6B440B2B2C9347E66FDAD67D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

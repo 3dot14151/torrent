@@ -18,8 +18,7 @@ All-Radio - свежая версия удобной программы для �
 ```bash
 magnet:?xt=urn:btih:532FD5F37E6874F7A74BF6D8247AF7DDF4D6358A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ A La Carte - Rockin Oldies (1983) /2013, Coconut/ [FLAC|Lossless]<Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:42B684C0FC6312068F97AEFB7805CC1711E1DFA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Maxthon для Windows использует уникальный двухдви�
 ```bash
 magnet:?xt=urn:btih:A91C7D649DE30473278B68DA5027B832D2C910DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ VA - Disco Russ (2013) [MP3|192 - 320 кб/с]<Диско>
 ```bash
 magnet:?xt=urn:btih:526A20AC9ECF4B03A888D2A1CE14EC615780DE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8599D13977AD12FF010DC79D1F4CDF2456B3F980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ VA - Осенний марафон № 72 / Видеоклипы (Зарубеж
 ```bash
 magnet:?xt=urn:btih:0160627F10B3369A155650882A2D26F793938B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B2181CA389AFEA8E98433D38FA33F618E289189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ PhotoStyler - это швейцарский армейский нож в обл�
 ```bash
 magnet:?xt=urn:btih:DFBCC1008FB5812E55884BB5A7D5C33CFFF22EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ SubConverter III v2.07 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:D9ABDBC3055AAF9EC7BF408D6E2E05D5C2F3746A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ Zetan Spore - Psilocybia (2013) [MP3|320 кб/с]<Psytrance, Tribal>
 ```bash
 magnet:?xt=urn:btih:4E2DCFF9ACDBB373608A70C99D17E197A225C000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ Analog представляет собой минималистичный ред
 ```bash
 magnet:?xt=urn:btih:2EF3B7839A4853305B4E80EC01A2B12FD83C8E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ Raise Data Recovery for FAT / NTFS - две программы предназн�
 ```bash
 magnet:?xt=urn:btih:F3DE14D72A3FDF5FF0D5D7386D31E559197ED8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68B203507692FC72AA99CD1BCDFE38ECA400227C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ SpeedUpMyPC является удобным настройщиком вашей 
 ```bash
 magnet:?xt=urn:btih:35370E1237528A1C3BAB9E871A6C13390BD94099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ Opera Developer - браузер Opera, обновляемый каждые дв
 ```bash
 magnet:?xt=urn:btih:3254B824115542B5CA852EFBF96507C5EC04F6B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A1F4EB362D6521C3BD660DAEA0FC580723905C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ GIMP - средство для работы с изображениями. Пр�
 ```bash
 magnet:?xt=urn:btih:6ADD18586BF99A0E6DF3677E299CB6EAC1E33D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DD58F690C1A03726852396D96D10492CCE63BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 ```bash
 magnet:?xt=urn:btih:234A3CDECF4748C250ED54A3B4C06A89FB44BD9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +583,7 @@ David Clavijo - The Landing (2010) [MP3|320 kbps]<New age>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E0B64E0DC3B8C3D9E9CF6737152806185C0CB16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ Wallpapers - Эротические обои.(16+)Часть 21. [JPEG]
 ```bash
 magnet:?xt=urn:btih:58376D4521EAFA64D5C9717281CD38B3FE3FCE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ PhotoBulk помогает наложить текст (водяной знак)
 ```bash
 magnet:?xt=urn:btih:76A41ECFDDC21F6B1FD8040C5D0852EC179EE083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CF3B7459854EDB99918141FB4C446779EB5A3F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +710,7 @@ Eminem - Call of Duty: Ghosts "Exclusive Song by Eminem OST" (2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:F97644E4600C811166F21ADDF65DC237BBDFFF98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

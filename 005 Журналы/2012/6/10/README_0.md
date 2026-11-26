@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A7DBAE15F9EE7A6835B4BFDA8A63B72F4E79AB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LQ – журнал для женщин, которые читают женск�
 ```bash
 magnet:?xt=urn:btih:CC3AB169C95682902F08B2D1E1616C5FEF6C5EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58F9773C80CA8FDB3D3CDB485679F6C64D73C3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

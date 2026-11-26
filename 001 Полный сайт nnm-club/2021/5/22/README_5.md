@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6FC5B0B050DCBD01E86C74393DA3767D1D64D6FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Port Royale 4 (2020) [Ru] (1.6.0.21040) SteamRip InsaneRamZes [Extended Edition]
 ```bash
 magnet:?xt=urn:btih:10DF457F1505D6A3E9A0EEE3CE9A01FE1C2A39AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Skillbox | Профессия Frontend-разработчик PRO (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:8DF592E81F220FF9037411E53DB552747DE8B724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF4CFB2360A98C0B3CE2AE46A86889B61F46F4BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/En] (1.1.2.0/dlc) Repack Other s
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

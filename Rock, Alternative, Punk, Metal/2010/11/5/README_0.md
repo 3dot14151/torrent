@@ -19,8 +19,7 @@ Led Zeppelin - Frankfurt Special (2004)[bootleg][MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:63FBB54D0A214355E7775AE516FC9D7E5E511972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Bryan Adams - Bare Bones (2010) [MP3|128-320 kbps]<Rock, Pop Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:956B50BF128EF66847BACD7FA348180A6505B177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Scorpions - Farewell Tour - Live In Stuttgart [bootleg] (2010) [MP3|320 kbps]<Ha
 ```bash
 magnet:?xt=urn:btih:A4649667D67D114670D15B8BB149B241196BE49E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ The Beatles - Rock Band Remixes (2010) [MP3|320 kbps]<Rock/Pop>
 ```bash
 magnet:?xt=urn:btih:BBB42803A58050D9517E2C2270269FDBF95743E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Alice Cooper - Mascara And Monsters (The Best Of Alice Cooper) (2001) [MP3|320 k
 ```bash
 magnet:?xt=urn:btih:EDBA33E10027365A5D3D233B134A9A6B351AC942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Original Album Remastered
 ```bash
 magnet:?xt=urn:btih:AF370BEF4DF48BB1C83C9F6520684CDE298D15BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

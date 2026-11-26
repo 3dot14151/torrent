@@ -19,8 +19,7 @@ Shu (2016) [Multi] (1.1.0/u1) License HI2U
 ```bash
 magnet:?xt=urn:btih:FDCA66771B8DDDF4B19A643D5ADF5B6390AF59CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stronghold Legends (2009) [Ru/Multi] (1.3) License PROPHET [Steam Edition]
 ```bash
 magnet:?xt=urn:btih:03C05F7564AB4AD17E9EA6042260B41105F9D0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Karma. Incarnation 1 (2016) [Ru/Multi] (1.0/upd1) License HI2U
 ```bash
 magnet:?xt=urn:btih:E21E6C29AD2CE163DB973DC7069D1A242B6C23AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hero Defense - Haunted Island приглашает всех любителей M
 ```bash
 magnet:?xt=urn:btih:383F4C7424E1B9CF11746DC414A2FA02212BB7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Din's Legacy - изометрическая RPG, выполненная в ду�
 ```bash
 magnet:?xt=urn:btih:BA9B359DE31590165FD113C9C5B6F681862F6BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Skater XL - The Ultimate Skateboarding Game – симулятор скейтб�
 ```bash
 magnet:?xt=urn:btih:9B8D0E2FF29588FEC07AB1BE4EA40D7C934D77C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The friends of Ringo Ishikawa – это сплав из RPG, beat 'em up и с�
 ```bash
 magnet:?xt=urn:btih:7608F9318BCD895F77339461882A2DC85A0B041E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Broken Pieces - приключенческая игра, сюжет которо
 ```bash
 magnet:?xt=urn:btih:3EAFF2EDDEC5757C9300CA1B62DF63A1E7881F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Others (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E4460A176A14C9C3E3F05780CD308F1B3B1ABE0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB02D1422087400AB740966B5A4214A9B2401D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Trials Evolution: Gold Edition - ответ на их ожидания.(   Чи�
 ```bash
 magnet:?xt=urn:btih:3741A59FD564E8E55F8235B927BB93490D6521B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

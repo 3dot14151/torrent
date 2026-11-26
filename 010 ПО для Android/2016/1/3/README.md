@@ -19,8 +19,7 @@ GreenPower Premium 9.21 [Ru] - Экономная работа аккумуля�
 ```bash
 magnet:?xt=urn:btih:8B21AAC41EA772ECE3FB184C7BC136324159A35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

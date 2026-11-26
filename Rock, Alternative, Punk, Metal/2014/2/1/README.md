@@ -28,8 +28,7 @@ Black Messiah - Oath Of A Warrior (2005) [MP3|320 кб/с]<Black / Epic / Folk /
 ```bash
 magnet:?xt=urn:btih:872769D69328B64AAF88A935056684195F79757B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Unguided - Fragile Immortality (2014) Limited Edition [MP3|320 кб/с]<Mode
 ```bash
 magnet:?xt=urn:btih:7F715FA0525597ECCB2BE4067E8C5BE4E57A9351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Empyrium - Into The Pantheon (2013) [FLAC|Lossless]<Dark Symphonic Folk>
 ```bash
 magnet:?xt=urn:btih:1FEBD6C6545991C6CA1135CBDC7168DBEE8A53F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ MaYaN - Antagonise (2014) Limited Edition Digipack [FLAC|Lossless]<Progressive M
 ```bash
 magnet:?xt=urn:btih:307658F1C2A49FE338A365D665F4C5C52C82FD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

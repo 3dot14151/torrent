@@ -19,8 +19,7 @@ Revenant (1999) [En/Fr] (1.22L) License GOG
 ```bash
 magnet:?xt=urn:btih:A692BFD35ED4242AFD3AE99D9B194A75D82C9D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ubuntu EducationPack 22.04 (май 2024) [amd64] [Multi]
 ```bash
 magnet:?xt=urn:btih:9CD0305E9B5C877394A0ACD12D751BF8B0BFE08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

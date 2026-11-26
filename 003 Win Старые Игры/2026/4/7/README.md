@@ -19,8 +19,7 @@ Let Them Trade (2025) [Ru/Multi] (1.1.7.9) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3E85B4F4E4D4B0F9AF24C96506B9E64C5EAD7A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

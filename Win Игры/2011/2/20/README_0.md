@@ -21,8 +21,7 @@ Aztec Tribe: New Land / Племя Ацтеков: Новая Земля (P) [Ru
 ```bash
 magnet:?xt=urn:btih:A37D96C04E03B20E0F49731AF26431FDAFEB95D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

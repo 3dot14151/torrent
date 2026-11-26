@@ -22,8 +22,7 @@ Bad Wolves — американская супер-группа, играюща�
 ```bash
 magnet:?xt=urn:btih:498E04B8F6D9FED231EC3F098F4041C010A18544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

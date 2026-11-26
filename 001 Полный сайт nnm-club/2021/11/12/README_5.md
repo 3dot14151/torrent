@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3456E753D2D44B68FE4546097792272438606650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Even the Ocean - интеллектуальный платформер-боев�
 ```bash
 magnet:?xt=urn:btih:A2A8113E3FC10827D2AF46BC395452B8BB4AC93E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E75748A31D37F30C93606E2A91AFEA58D7D09D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ GoodbyeDPI.0.1.6. Launcher-4.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:91B0F43DE8E07817069D8EE28709E046E2A5ACB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C388E5A19CE642A5B36B7A605D215888ADAB1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Windows 10 Pro 21H1 19043.1288 x64 ru by SanLex [Ru] (2021.10.30)
 ```bash
 magnet:?xt=urn:btih:B78D4E7ABB06AB7CB7735D64FB1F0300969937D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Forza Horizon 5 – продолжение популярной гоночной
 ```bash
 magnet:?xt=urn:btih:B5AE55989CC4619EBD4863D35F0D8D65F37CBB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

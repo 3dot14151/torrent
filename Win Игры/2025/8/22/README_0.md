@@ -20,8 +20,7 @@ JDM: Japanese Drift Master сочетает в себе реалистичную
 ```bash
 magnet:?xt=urn:btih:51D01F356EF173C7CB2B6845AC1F7CA8A9773D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.4.0/dlc) Repack Let'sРlay [Resistanc
 ```bash
 magnet:?xt=urn:btih:CC5C05BC1FCD18D7CA8FC6942EEF363D70CA0697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
 ```bash
 magnet:?xt=urn:btih:55FD758215AA19D80FE7C03023A4888E0353E26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Terminator: Dark Fate – Defiance - стратегическая игра в р
 ```bash
 magnet:?xt=urn:btih:F849012C238BB8DDE1EDAD2A9858958EA0A7BC68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Yes, Your Grace 2: Snowfall - кинематографичная игра про
 ```bash
 magnet:?xt=urn:btih:978C1AB36B57B9F05008A4CAA328869CB059455B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Bioweaver (2024) [Ru/Multi] (2.0.8b) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:935B4881DC07EDC6E4598F8992A83B7FA03D60F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Dust Fleet (2023) [Multi] (6.4.5) License GOG
 ```bash
 magnet:?xt=urn:btih:CBC6686A577A1796659DD06F377607E8956ABAD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Bleeding Deities (2025) [En] (1.0.7) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3D0F12368934CF0CC00903C9C911DA6C8242AD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Oxide Room 208 (2025) [Ru/Multi] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:5BFCC6C983781D7EEC28D3C0D644B9140F82DEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ The Beast Inside – психологический хоррор с соврем
 ```bash
 magnet:?xt=urn:btih:7A493A1C3A2C90D0B4174300DDB0251DEBED7776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ The Unholy Priest предлагает захватывающее сочетан
 ```bash
 magnet:?xt=urn:btih:981531DA2A86B0248CBAE06EC9DA8963FBAE8A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ The Unholy Priest предлагает захватывающее сочетан
 ```bash
 magnet:?xt=urn:btih:3D2F67056B21F5225FE26C043E44C0D24CA02A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Monospaced Lovers сочетает в себе несколько жанров. 
 ```bash
 magnet:?xt=urn:btih:AF09464914CF98667F5E04F3A4B1AF859C84D10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Herdling - это новое приключение от Okomotive, создав
 ```bash
 magnet:?xt=urn:btih:2CBCF11DE8FE4CB3E8879E83ED8E2F888D7CB861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ Beyond Citadel - это шутер от первого лица, черпающ�
 ```bash
 magnet:?xt=urn:btih:5B79114F31DF81361E2ACBBD20177F400A6CC242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Dystopika, градостроитель, разработанный студие
 ```bash
 magnet:?xt=urn:btih:081AEA283157810627C4686CD2BE9F2FAFBBA513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ Reflections of Life 14: Gone But Not Forgotten (2025) [En] (1.0) Unofficial [Col
 ```bash
 magnet:?xt=urn:btih:A59E164D52335C57508353484EA1E3B920CA1ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

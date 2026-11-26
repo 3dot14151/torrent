@@ -19,8 +19,7 @@ Tinykin (2022) [Ru/Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:76951A5E4B3FB99AE60AB531046A4549BD270702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cuphead – это в прямом смысле слова "классическ
 ```bash
 magnet:?xt=urn:btih:95D764C3060D22F06751096C062ADCEBE0DC0E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Commandos 3 - HD Remaster – переиздание одноименного и
 ```bash
 magnet:?xt=urn:btih:25A54612EAE5FB3131183BE070E7F8B3837831B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

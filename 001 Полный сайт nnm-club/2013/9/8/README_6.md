@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1F3C2D75AA02201E00C6EBA3E776817CEAABCDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Zelmer |  Книга рецептов к мультиварке Zelmer [2013] [P
 ```bash
 magnet:?xt=urn:btih:369BCE51393224E60283BD4F06FC15F63E5D2330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Pani Poni Dash! OVA / Пани Пони Дэш! OVA [2009] DVDRip upconvert raw
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Extreme Picture Finder - программа для автоматическог�
 ```bash
 magnet:?xt=urn:btih:532138296C69C8738A2473A3889CCA205F10AB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15B4F83E948327760E02348742A35C4C1D8415E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:632D5CA0AD5C95A368FCF68A4E7E2553C3A1BCFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Sea of Lies: Mutiny of the Heart. Collector's Edition / Море Лжи: Бун�
 ```bash
 magnet:?xt=urn:btih:B04B4DECCB9A24761E243A167AE56485D653CA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ DJ JIM - Summer Memories (2009-2013) (Обновляемая) [MP3|320 кб/с] 
 ```bash
 magnet:?xt=urn:btih:C86A5E4177C5B49D0CE92FDA1B02F848CA163C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Ellie Goulding - Halcyon Days (2CD) (2013) Deluxe Edition [FLAC|Lossless]<Synth-
 ```bash
 magnet:?xt=urn:btih:E203B117514E359347561921E26C9C2DC1702617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6316006AF7A1F52AA2FD1D708813F654F637CE3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Dubstep Hero - музыкальная аркада для любителей д�
 ```bash
 magnet:?xt=urn:btih:F66EF1304C3B89F0284D98F7BC77CCF0620C0525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ RPG, выполненная в ретро стиле отдаленно напо
 ```bash
 magnet:?xt=urn:btih:8588BC911B79A21A8276BB7C0FE13529EF09AE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Multi Flash Kit v.3.9.9 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:13C88787588D144EFFD7168D64439FAC46437863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Ludovico Einaudi - In a Time Lapse (2013) [FLAC|tracks + .cue]<Modern Classical>
 ```bash
 magnet:?xt=urn:btih:D87240AD2C3AACA6295975DF96CF65F15D96A4DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ David Garrett - 14 (2013) [FLAC|Lossless]<Classical>
 ```bash
 magnet:?xt=urn:btih:6ABE270F1317C49D62D86D4FA055B86C38C3EED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ Toki Tori 2+ – сиквел удостоенной многими наград
 ```bash
 magnet:?xt=urn:btih:D79F13CF4BC03CEFDD65AECCFF9262B3532C2A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5453265BA0A3B18B894B33D6B33055CAEB19C794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ Advanced SystemCare Pro - программный пакет, содержащи�
 ```bash
 magnet:?xt=urn:btih:AF66C89163F27C402AF5AF40413356A9C04887DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC0B9AF662BB6641D23D9E45D45008E8E23AD274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ Teleport - многоцелевой, высокоскоростной инстр
 ```bash
 magnet:?xt=urn:btih:91DD4DAECF246E3D16FE0993EFB6C088F8D95FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ Zомби каникулы (2013) BDRip [1080p]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ Classic Lines [Игра] (Android)
 ```bash
 magnet:?xt=urn:btih:6E687FC7E4865ED0048BFD421B147D63ED15DAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ NHL 14 позволят максимально точно передать аг�
 ```bash
 magnet:?xt=urn:btih:537399F456E17BD498C1041BFE9C49784ED0825C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AF301E598FCF2C8E4D56BA9DA99EF8D98F6C9B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

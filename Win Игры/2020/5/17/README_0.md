@@ -19,8 +19,7 @@ Q.U.B.E. 2 погружает вас в полуразрушенный иноп�
 ```bash
 magnet:?xt=urn:btih:539BB9AF4235F63C47600781D6DA344B4EAA2457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

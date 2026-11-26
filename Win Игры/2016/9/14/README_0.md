@@ -19,8 +19,7 @@ Envy the Dead (2016) [Ru/En] (1.0b) License PLAZA
 ```bash
 magnet:?xt=urn:btih:7C3E20EB5D38B7ED92F46224BC6A725B790EF34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Minecraft: Story Mode предлагает отправиться в попул�
 ```bash
 magnet:?xt=urn:btih:73747ABEDA8253219F742F3F641AFB220D107373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RIVE - это долгожданный шутер с крушением желе
 ```bash
 magnet:?xt=urn:btih:F50EC237935B66E0E89FB5E1F8FAA474FD67BB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Avadon 3: The Warbor – заключительная часть РПГ трил
 ```bash
 magnet:?xt=urn:btih:ED2C4B0CA79FADE97DDA92D6A040CA45A03142FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Metro: Last Light Redux – самая лучшая и полная версия
 ```bash
 magnet:?xt=urn:btih:3C8859533045FD89EC3C5AB54F0AD2A67F13D929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

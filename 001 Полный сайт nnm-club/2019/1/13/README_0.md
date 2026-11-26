@@ -21,8 +21,7 @@ VA - New Techno: Winter Show (2019) [MP3|320 Kbps] <Techno, Electronic, Tech Hou
 ```bash
 magnet:?xt=urn:btih:C4787D8A53D2C335CCF568EFFD3D5FC9B05B224B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Trending Topics (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:D81ADB5258A00A7172F97DC7B24DD56F15405B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Spacehawk - The Last Guardian (2019) [MP3|320 Kbps] <Spacesynth, Spacedisco>
 ```bash
 magnet:?xt=urn:btih:FA8B098F61FCA7514150C1B45D403E8D99969121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Space Jump (2019) [MP3|320 Kbps] <Techno, Electronic>
 ```bash
 magnet:?xt=urn:btih:650F33CD549D4B1517F700450BDB507CB6BD3FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:C7DCF69713389B8E5A49E145F2AF81FCCD0DA950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Golden Techno Sounds, Vol. 6 (20 Techno Anthems) (2019) [MP3|320 Kbps] <Tec
 ```bash
 magnet:?xt=urn:btih:3A3EC113CA7AA1010B721ABD52E68C80DE9203E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Q-Dir - бесплатный, отличный файловый менеджер
 ```bash
 magnet:?xt=urn:btih:C4974DAD0A5D0CAC1461A01BB9727136DB014BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Spacehawk - The Last Guardian (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, 
 ```bash
 magnet:?xt=urn:btih:129D7FC84F39CE7CE1531A62DB921364A3B557ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06B22A08CAEC879D18C1F8ACE430ADB8E9EE080B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Toto - Old Is New (2018) [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:4644ACD6F1A184A4A784ED7056B5010F1E6BE517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Yaku & Supermax - The Message (2012) Clip Production Ltd. [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:944D88EB4B0193F2EE72C4A135EC54F7C85472BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C06D5B543778FA92C200954276AC78D3F899CF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Зарубежные Хиты-Январь (2019) [MP3|320 Kbps] <Pop, Alte
 ```bash
 magnet:?xt=urn:btih:88EFE427986F4CEA21BAAD79CF3C2EF51C16EE68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ VA - Music for Car 11 (2019) [MP3|320 Kbps] <Electronic, Dance, House>
 ```bash
 magnet:?xt=urn:btih:90F415A6FAC7756F5C7DBF37ADFF1554AD308EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A72D95CFA36B622F1FEA7ABB6C0F4F3C1F8EAEF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D70EF8181104121D494A5D94EBFA20B3ADBC37FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:951BC6499999CB7A0B163EDDB9FC3EC595EFF2DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ VA - Options Remake Of Tracks January -A- (2019) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:151D672B95C9540BFA8F1F0D7FC313A6121E7DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D221A917B13E56C8BEB1F7BC03C1A489075C50AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ Punished Talents 3: Dark Knowledge / Наказанные талантом 3: Т
 ```bash
 magnet:?xt=urn:btih:FD85945751C86DB3906C16374193584852C1F68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ O&O SafeErase Professional + Workstation + Server Edition 12.10 Build 216 [En]
 ```bash
 magnet:?xt=urn:btih:50250BDB3188694AC827533FE34F8E9EF8A1C37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Asbak Typeface - это тип дисплея, вдохновленный фэн
 ```bash
 magnet:?xt=urn:btih:F69A85A1850D4243FC0B29E0AA6CE24C7CD5518C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62EF6ED8D0CA05ACE721A9A1951843556B335C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD2F178E9843CB029A1E2606BD2C60542B063309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ Another Wild - грубый шрифт каллиграфической кист
 ```bash
 magnet:?xt=urn:btih:403360ACC4A3F1E4B52173E65DA592ACAD16231E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C25EA858EDC02770417438EE3AC1127CFAF5D701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

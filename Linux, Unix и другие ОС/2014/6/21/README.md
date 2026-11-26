@@ -23,8 +23,7 @@ Mageia 4.1 Cauldron [i586, x86-64] 2xCD + (dual)xDVD
 ```bash
 magnet:?xt=urn:btih:84C7B3DDAE79EAB699BCB08B9ABE051F3DFF032C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Mageia 4.1 Cauldron [i586] 1xDVD
 ```bash
 magnet:?xt=urn:btih:E40AFA6985F95605AA0A73D81232182136F14D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Mageia 4.1-Live Cauldron [i586, x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:2DADBB397E0FD4DEFA4987EE633DEE645586D174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Jondo Live-DVD предлагает безопасные, предварител
 ```bash
 magnet:?xt=urn:btih:31640698B08143AC22F956E6D4DB8DD7C9279F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Mageia 4.1 Cauldron [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:8144A7A0C50A75120F7016DABF768F01F021DAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:24CDB5A19EF3713734C23829D902DE59C72AAE05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:D97879F1052ADECDA2A9A6A4F9189E22F87A00DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Red Hat Enterprise Linux Server 7.0 [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:E1DFA34DAFE3461D38566DB82C818B4869203397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

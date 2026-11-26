@@ -21,8 +21,7 @@ Calculate Linux 14.16.2 [i686] 2xCD, 4xDVD
 ```bash
 magnet:?xt=urn:btih:2EEA41508C4FBD655ADECE9752865B0A2B601874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

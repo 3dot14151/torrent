@@ -19,8 +19,7 @@ Shrouded Tales 2: Revenge of Shadows (2015) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:8A72D8590583B65D8B2A3284D8E98D4FE5641BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

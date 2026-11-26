@@ -19,8 +19,7 @@ Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster
 ```bash
 magnet:?xt=urn:btih:83508DF59A7474A11DEBBBB4CD611833BE312D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

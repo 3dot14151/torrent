@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5710CC5261DE03734C8BBCDD4D4E684602EE0872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Fleesh - Home Again (A Tribute to Pink Floyd) (2022) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:3A8E1580DD1C866ECCC8065F8D475B9E391D0DA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Sora o Miageru Shoujo no Hitomi ni Utsuru Sekai | Мунто [ТВ] [2009, TV, 9
 ```bash
 magnet:?xt=urn:btih:F8C7EA63F5CB2E2F5FD258D2CAFA3C8FF2AD19F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5270C9C0A30251961B485D693329A2C87EE64E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ```bash
 magnet:?xt=urn:btih:D35116454570367935030C47C7E950135E791FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7C482E54ACB7B8CF0AF8823DABD039BBD901989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Thousand Thoughts - Better than Never (2022) [FLAC|Lossless|WEB-DL|tracks] <Alte
 ```bash
 magnet:?xt=urn:btih:2B09ECE3519F46962EF46123DA576D1A55C8A410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ zplane - TONIC 1.1.0 VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:04B6E6BF6E814B116792746BC4CD8D564C225073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ RegCool 1.323 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C9E8812B01DF1C22F15B97068C9E0AD14BDCBEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Tenjoubito to Akutobito Saigo no Tatakai | Мунто (фильм) | После�
 ```bash
 magnet:?xt=urn:btih:57CFABF869ACB400E720DB428866751ACEF2ED4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 ```bash
 magnet:?xt=urn:btih:01403BEB75E529CB8729E49ABC875C8DE6E8DD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:411CCE8B2546D2548653364D879DE1C0360CD10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Elastique Pitch фокусируется на главном: вы не найд
 ```bash
 magnet:?xt=urn:btih:631D2EC3C033D7FED758ABF10C72706AAE7B8B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Infiltrator 2 удваивает количество эффектов, прес
 ```bash
 magnet:?xt=urn:btih:9A165BE72BE9C8C49F87196DA528FE05DF904589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:4E31BCEEF8DDC5A17F71298D0C5115FAD23973A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 ```bash
 magnet:?xt=urn:btih:11602CF15436EC4BC015CADD96B2F992750139A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:477C7EEA3BDB556AA1480A46C605729E44415879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E99984D177278EBB21E7652157CB853CBDAD8EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ dict.cc+ Wörterbuch 11.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:A0BA33DBFA936DA6CA72AEC3FC302C5F3247D924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ reTune дает вам полный доступ к содержимому вы�
 ```bash
 magnet:?xt=urn:btih:31F43818820D776F2677DA3B45C3211512A6D331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ Glary Tracks Eraser - полезный инструмент для защиты 
 ```bash
 magnet:?xt=urn:btih:977AF14E383268AE67A06495A86508CB213260E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ Learn Languages with Music 2.1.3 [En]
 ```bash
 magnet:?xt=urn:btih:44B222D842F62DDDF86C74674101469DE9EB8040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ Aгата Фишер, Антон Войтов | Хрономаг (Книга 2) 
 ```bash
 magnet:?xt=urn:btih:D918902F6EEAD557871290B6AEBC52EDCFFCD031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B1B4CD0F764EC6E5F6516E583DD67D6C35FAACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:2F4026EE408DAEAFBAAE41E48A5C16E2B55BD9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ ZD Soft Screen Recorder - программа для записи видео с �
 ```bash
 magnet:?xt=urn:btih:16F42B2FAB1B81D40B4256480F44CD8E206F677E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Vacation Quest - The Hawaiian Islands / Отпуск на Гавайских О�
 ```bash
 magnet:?xt=urn:btih:29C7AEC4674A37D6710E874CD9EDD1BAE15ADF81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Millionaire Manor: The Hidden Object Show 3 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D73770558D39EC1642AC666243FC2DFD9CBDA091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ M. Night Shyamalan: The Last Airbender / М. Найт Шьямалан: Пове
 ```bash
 magnet:?xt=urn:btih:CB48EC79516FF842C764427A00DF28CFEC950020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Red Faction: Armageddon [Ru/En] (L) 2011| R.G. Origins
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

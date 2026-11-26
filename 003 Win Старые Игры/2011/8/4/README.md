@@ -21,8 +21,7 @@ Original War [Ru] (P) 2001
 ```bash
 magnet:?xt=urn:btih:5087EEA74AECFAB29A2663C1862F1B272F925BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

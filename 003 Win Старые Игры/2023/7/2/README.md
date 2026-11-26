@@ -19,8 +19,7 @@ Havoc, один из тысяч "кибернетических клонов", �
 ```bash
 magnet:?xt=urn:btih:896D13114BEA22217387782FFB8A566F9D2AC421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

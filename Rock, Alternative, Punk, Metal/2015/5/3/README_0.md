@@ -23,8 +23,7 @@ Peste Noire - La Chaise-Dyable (2015) [MP3|320 кб/с]<Avantgarde Black Metal>
 ```bash
 magnet:?xt=urn:btih:3BFC6021B6C26D47E8803269ED8B1960D782A40C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Monolithian - The finest day i ever lived, was when tomorrow never came (2015) [
 ```bash
 magnet:?xt=urn:btih:6213C65D6A2F6A29B7FD58FACE169359EA83453B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Airstream - Kingdom Of Isolation (2015) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F5F8A7804809580A56FDFE25F577B3BBB0029573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Free Spirit - Pale Sister Of Light (2009) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:01ECCD98C1C81DB790B7744B3E1C84D6A503F518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Arcturus - Arcturian (2015) [MP3|320 кб/с]<Avantgarde Progressive Black Metal
 ```bash
 magnet:?xt=urn:btih:7D0B5529337069550BDB418E85DEA98433AE8D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Tribulation - The Children of the Night (2015) [MP3|320 кб/с]<Heavy Metal/Pro
 ```bash
 magnet:?xt=urn:btih:CF35C4579FDCCC4F4CAAFA3BF613024176B2DE1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Lonelady - Hinterland (2015) Japan Edition [MP3|320 кб/с]<Alternative, Indie 
 ```bash
 magnet:?xt=urn:btih:7C3BCB807262E51335685E775F86D786BD9F80AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ The Vickings - Instrumental (1996) [MP3|320 кб/с]<60’s Guitar Instrumental,
 ```bash
 magnet:?xt=urn:btih:BFBF7CEC8E727033C6866E869B8EE8589D563DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Six Feet Under - Crypt Of The Devil (2015) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:BEF141FE6E2F60210B6B2E0C490C407C5D9612E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ FM - Heroes And Villains (2015) [FLAC|Lossless]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:646455B22E930180D247A7E2FA74595033CE9EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ The Vickings - Rockin' Guitars (1998) [MP3|320 кб/с]<60’s Guitar Instrument
 ```bash
 magnet:?xt=urn:btih:8284ABFCDD138597D8719B31EB61040DD128B8E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ Maid Of Ace - Maid Of Ace (2014) [MP3|320 кб/с]<Punk Rock, Grunge, Female Voc
 ```bash
 magnet:?xt=urn:btih:AA1467B9E453808C5A8DDEDBD4176F8833B7F9D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ Magic Red - 6 альбомов (2000 - 2014) [MP3|320 кб/с]<Blues-Rock, Rock,
 ```bash
 magnet:?xt=urn:btih:F7FB8643F5AB7B21CFD6CBF9BEADC77EED3D17A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ Blur - The Magic Whip (2015) Japan Edition [FLAC|Lossless]<Alternative, Britpop>
 ```bash
 magnet:?xt=urn:btih:0E771727AB27EDECAF2A97C93A0D4048DE4B02DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ Grey Punks - The Reign Of The 7th Sector (2015) [MP3|320 кб/с]<Rock, Punk Roc
 ```bash
 magnet:?xt=urn:btih:A018F7BE18BC5571F9A7BF58F1E5772BA84458E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ Happy Mondays - Pills 'n' Thrills and Bellyaches (1990) Collector's Edition [MP3
 ```bash
 magnet:?xt=urn:btih:D678EB89C9474853089F6E09F62D023B2E05F08F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ Eric Clapton - Forever Man (2015) 3CD [MP3|320 кб/с]<Classic Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:A309152A77E3B80DD143457B9549878FEC0140EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ Whitesnake - The Purple Album (2015) Japanese Edition [MP3|320 кб/с]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:9FB171475DB3BF9EFDE1EC5D40AB1F9D868B7DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

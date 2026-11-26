@@ -19,8 +19,7 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:F55E00A775A2F9761326DDE0BD46214BDC643D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ExtraDisks - это набор инструментов для создания 
 ```bash
 magnet:?xt=urn:btih:548303CFEB893F90D54ACDEDD842E83E37036AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Duplicate File Detective - программа от Key Metric Software, кото
 ```bash
 magnet:?xt=urn:btih:6FD119C8566BB45E8E1331A5D6BFB2BA087876B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ StarCraft — легендарная стратегия в реальном вр
 ```bash
 magnet:?xt=urn:btih:5781FF1F9FA7D2A97F64B93CAC45413889DA1C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

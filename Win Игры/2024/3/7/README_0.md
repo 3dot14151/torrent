@@ -19,8 +19,7 @@ The Bunker 69 – приключенческая игра, что обладае
 ```bash
 magnet:?xt=urn:btih:3EC83A04B291508CE29E5AF5A2E7C21DDE1E8C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Evil Nun: The Broken Mask (2023) [Ru/Multi] (1.671) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FEFC0BC00D9530825EFE37B26985E06AA2BCDD35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

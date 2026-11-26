@@ -18,8 +18,7 @@ Fox Girls Never Play Dirty – это японская ролевая игра �
 ```bash
 magnet:?xt=urn:btih:80823A2CBC4FD65813593D6369F953FD7696D859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Study Kvo, Саня Кво | Курс по веб-дизайну 3.0 (2019) PCRe
 ```bash
 magnet:?xt=urn:btih:7D388E0CFA351B6638E1557DEF5519582F34CDB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

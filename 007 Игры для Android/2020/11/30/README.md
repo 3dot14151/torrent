@@ -19,8 +19,7 @@ Portal – всеми узнаваемая игра на ПК теперь уж�
 ```bash
 magnet:?xt=urn:btih:BF875D507348B7B4C78920AEDCAD1C6ADA2B6E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

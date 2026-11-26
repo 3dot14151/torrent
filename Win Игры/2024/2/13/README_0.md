@@ -19,8 +19,7 @@ The Inquisitor - это сюжетная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:BB8BC7B0BD18FDE7A3D197E14EB6E39E95DC960D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) Repack Decepticon [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:D91B61142965B9931E2F9216206BF39CC8F6A9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Doors: Paradox – головоломка, сосредоточенная на �
 ```bash
 magnet:?xt=urn:btih:C1D3211F2513AEA28242F8228F3C2AFCEC471070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Backrooms Deluxe - отправьтесь навстречу запутан�
 ```bash
 magnet:?xt=urn:btih:0A2684C9E496D6ED289D590905BFDCA089504926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Terror Mansion – это невероятное путешествие по у�
 ```bash
 magnet:?xt=urn:btih:E68862BBA6BED175BD7DCA1972FF5D395257FA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Paquerette Down the Bunburrows (2023) [Multi] (1.0.10) License GOG
 ```bash
 magnet:?xt=urn:btih:0AB6EFDFA368D8B85ADE5BABED7697973F707D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Slot Shots Pinball (2024) [En] (1.0) Repack FitGirl [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:CB776AC44772B828A6511AC60D7B79E24AFB1A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

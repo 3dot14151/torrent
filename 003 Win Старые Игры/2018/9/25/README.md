@@ -19,8 +19,7 @@ Warlords: BattleCry 3 (2004) [Ru/En] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:76E6082DDC293DACA78BFAE411D938A91CBB84BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jagged Alliance 2 / Jagged Alliance 2: Агония власти (1999) [En] (1.
 ```bash
 magnet:?xt=urn:btih:DBF8E9A431120073CB5CAB720A301E1FDA02F591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Jack Bruce & His Big Blues Band - Live 2012 (2012) 2CD [FLAC|Lossless]<Blues Roc
 ```bash
 magnet:?xt=urn:btih:84A072A94825F1F2B13D793929F1BFBF51A5ABDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Nanowar Of Steel - A Knight At The Opera (2014) [MP3|320 кб/с]<Heavy Metal , 
 ```bash
 magnet:?xt=urn:btih:514C0B2C01EE6B039DB83557E7A6E5AC54E14618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - Classic Rock Magazine #196: Love It Loud (2014) [FLAC|Lossless]<Rock, Hard 
 ```bash
 magnet:?xt=urn:btih:A969DFED31BD636BCC8F6D9F8805E574A71F4BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

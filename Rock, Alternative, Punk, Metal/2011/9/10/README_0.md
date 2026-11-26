@@ -28,8 +28,7 @@ Red Descending - Kingdoms (2011) [FLAC|Lossless]<Melodic Death Metal/Symphonic M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ London - 3 Albums + 1 Compilation (1985-2008) [MP3|256 kbps]<Hard Rock/Sleaze Gl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Staind - Staind (2011) [MP3|192-320 kbps]<Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:D2E0326F8C4C82C424036810FCDB69448707057B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Mother's Army - 3 Albums (1993-1998) [MP3|320 kbps]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Alice Cooper - Welcome 2 My Nightmare (2011) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Red Hot Chili Peppers - Road Trippin' Through Time (2011) [FLAC|Lossless]<Altern
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Kasabian - Velociraptor! (2011) [MP3|320 kbps]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:8AC6BBB7067F82253E269AEA17AFF3C49108A263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Misfits — американская панк-рок-группа, образо�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

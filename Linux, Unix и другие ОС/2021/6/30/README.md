@@ -19,8 +19,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.3 [x86_64, aarch64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:17C836D30C674FF19F7C68A1F527DECDC25A2F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

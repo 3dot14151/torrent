@@ -19,8 +19,7 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:54AAF172600DECF03319FF0F9486DBCFE2477B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ISSN:Формат: PDFКачество: Изначально электронн�
 ```bash
 magnet:?xt=urn:btih:C884FFDCC99BF7E4607548C4AF44D592D6BDFB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

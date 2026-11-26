@@ -22,8 +22,7 @@ Extol — метал-группа из Норвегии, образованна�
 ```bash
 magnet:?xt=urn:btih:8B19656FC166D29B91245994100801481B47AC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cruel Force - метал-группа из Рейнланд-Пфальца, Ге
 ```bash
 magnet:?xt=urn:btih:FACAD3CD664028CA79D0768868EDAA353800DF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

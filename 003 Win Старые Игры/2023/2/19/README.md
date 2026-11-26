@@ -19,8 +19,7 @@ Secret Agent (1992) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6535BF87F9BDB3B7719AE565C9B627757B88F966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

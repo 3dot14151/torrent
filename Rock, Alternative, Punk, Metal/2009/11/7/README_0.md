@@ -22,8 +22,7 @@ Om - Discography (9 albums) 2005-2009 [mp3|320 CBR kbps] (Stoner Psychedelic Doo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

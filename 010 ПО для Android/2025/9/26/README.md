@@ -19,8 +19,7 @@ ByeByeDPI v1.6.6 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0A5C644098CBCAA404BFB010C6008285B12DFC8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

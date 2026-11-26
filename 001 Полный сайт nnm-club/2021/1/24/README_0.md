@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B68F46BB0FEC423754CDFB02625D0CC12607E119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Same Eyes - Parties to End (2021) [MP3|320 Kbps] <Synthpop, Darkwave, New Wave>
 ```bash
 magnet:?xt=urn:btih:D8FD236CC04939ACB3F68842F28E78CE2E0C63BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE5CDD6FA48BEC5167E49DC6F45165E00B8816B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - Happy Pop Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:C047732C9E8462DC5B0C2C8F6185F0577FFE7D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Moreza - Fragrance (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Nuevo Flamenc
 ```bash
 magnet:?xt=urn:btih:8DD79A7FCD03822F7131D791FF8259E7FD615F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9761EBD1BD29C8F0248DFBEA028B1ACFC2ECAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D73E3C97F4B6E7B6AB2CF3A62090167D50A8D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36D2679A9E87B5D58DEBDCB8C73C17AB5D0AA574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ ROÜGE - Ultimatum (2021) [MP3|320 Kbps] <EBM, Industrial, Techno>
 ```bash
 magnet:?xt=urn:btih:AF0C004FF2C8579B0CC778682A1D44AA01E8C735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACDE21395C4DE5A99A2905A79BD924E7F0690F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ VA - Radio Mania, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <EuroDance, Euro-D
 ```bash
 magnet:?xt=urn:btih:30A365F5004B2E3071B4DB9C80C158F692086986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Radio Mania, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <EuroDance, Euro-D
 ```bash
 magnet:?xt=urn:btih:95718A457C567D8A50C6E8A616967A87A35C1429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54EFCA1F4ED3D9A8F2A6E082CD37A2A2976BDC80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25726849FDF5A92B6BFD966D7F3FD221678A2F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Wolftron - Love Is Deathless (2021) [MP3|320 Kbps] <Darksynth, Synthwave, Cyberw
 ```bash
 magnet:?xt=urn:btih:FD6DBFA7CF20F54F7DB785AE8571F5332BDAFCF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Rhys Fulber - Live Dystopia (2020) [MP3|320 Kbps] <EBM, Techno, Industrial, Elec
 ```bash
 magnet:?xt=urn:btih:68F81ED36E19106AF385D9756A0ECF507D738634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Sabled Sun - 2149 (2021) [MP3|320 Kbps] <Dark Ambient>
 ```bash
 magnet:?xt=urn:btih:976BBB8CFFC5C78A127E1582FA6C29C3DD0E4DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5641F00B916CF12434D5486E243B2D0B11E791C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6C290F093631FE558C8504DD57B78D98090FB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9CAB2779D820F74E30870BC862C082B823748B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Reaxion Guerrilla - I Hate You (2010) Special Edition, 2020 [MP3|320 Kbps] <Dark
 ```bash
 magnet:?xt=urn:btih:72168812502FF9E0DEDDBC5ACBFFF34CF4CFBB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Holy Mother - Face This Burn (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:AE4D880C46B9E88A90645174F4A452304B50FB4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ VA - Best Jogging Remixes 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:F6EA80CC8DE9529470DB0A5E6E100690A3E03DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ Therion - Leviathan (2021) Japan Edition [MP3|320 Kbps] <Symphonic Operatic Meta
 ```bash
 magnet:?xt=urn:btih:DE05C52A970C15AADAD2C3D8C15C3D406B61728F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ VA - Chillout Electronic: Relax Set (2021) [MP3|320 Kbps] <Chillout, Ambient, Ch
 ```bash
 magnet:?xt=urn:btih:580C3413313303F5C5C0FD2A3C949B8D5F9D2EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ National Geographic Traveler - это журнал о путешествиях �
 ```bash
 magnet:?xt=urn:btih:8B49F78BB9267758E3D4E51E9139A285E751C8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

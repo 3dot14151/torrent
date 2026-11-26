@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:970CDD32DF021E303BA1CFD4FC009BE6053CF437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DOOM Eternal от id Software – прямое продолжение хита D
 ```bash
 magnet:?xt=urn:btih:885F287D6B6274F1479A24DE007AFF303807E74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Super Meat Boy 3D - это суровый, как само существова�
 ```bash
 magnet:?xt=urn:btih:6576350137CD14F6E92A73BBA3895FD7C0BA2C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ YAR: Forgotten Throne / ЯР: Забытый Чертог (2024) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:99F648C1AA8A224C7D3094323F48C21E4E30DE2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Salvage Shop Simulator (2026) [Ru/Multi] (1.0.020) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B2255D67B4B6D813F964B3DA533E491A2984CF16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ VASILISA (2025) [Ru/Multi] (Build 21812276) Repack Other s [Early Access]
 ```bash
 magnet:?xt=urn:btih:213DE2ED38753360C018E6180306F33997F80C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ A Rat's Quest - The Way Back Home (2026) [Ru/Multi] (1.0.0) Repack Let'sРlay [S
 ```bash
 magnet:?xt=urn:btih:E9E27BA8D0C6BA1505DAE05B0C047F6576223DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

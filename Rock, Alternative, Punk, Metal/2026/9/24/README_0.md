@@ -22,8 +22,7 @@ Europe - Come This Madness (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:59A08FA806FACEA74A24F4CB65B6F8D0924F586D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Till Lindemann - Du hast kein Herz (Live In Krakow) (2026) [FLAC 24/48|Lossless|
 ```bash
 magnet:?xt=urn:btih:3F30D6622C206D38C3FF38D663CDBA290C0F581D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stryper - Throne Of Thorns (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:C23F07CF2C9550A348E41A9B31123EA7B3B7EEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tom Morello - Everyone Gets Everything They Want (2026) [FLAC 24/48|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:C4995E64358A6996194F45CD08DF46FC1B177374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Linkin Park - Unshatter Film Soundtrack (Live in São Paulo) (2026) [FLAC 24/48|
 ```bash
 magnet:?xt=urn:btih:FE2F6E1FC3745EAC28AA46775474527941525F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Metalite - Discovery (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern-Melodi
 ```bash
 magnet:?xt=urn:btih:7630C526B33C10AC5E339876822320708B71C940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Nightrise - Ride In Hell (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1729FC0226C1C06257790E4CE8C44FF9D825F8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD One:
 ```bash
 magnet:?xt=urn:btih:D32E9E0E1F774238ABDE80BC1E16A90E9550CDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

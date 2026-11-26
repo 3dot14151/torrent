@@ -19,8 +19,7 @@ Worms Armageddon / Worms: Армагеддон (1999) [Ru/Multi] (3.8.1) Repack 
 ```bash
 magnet:?xt=urn:btih:143D158352DBE33AD592AD589F9C5B40051DC3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

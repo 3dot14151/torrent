@@ -19,8 +19,7 @@ Connected Hearts: The Full Moon Curse (2022) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:856B543CD57BEF9A958095AC827C6706C3BA74C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ms. Holmes 3: The Adventure of the McKirk Ritual / Мисс Холмс 3: Ава
 ```bash
 magnet:?xt=urn:btih:BFA0262633034AC6F3725E4FF51C9C12CB13EE91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

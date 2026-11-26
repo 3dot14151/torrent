@@ -22,8 +22,7 @@ Tim Karr - Rubbin' Me The Right Way (1989) [APE|Lossless|image + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:68B433AB754E49B4CD63739A166B3650A76C1C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pat Travers and Carmine Appice - The Balls Album (2016) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:1A632A6B6C98F81DE9F6E33F827297CF6A4B95CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Distemper - 25 (2014) [FLAC|Lossless|tracks] <Ska Punk>
 ```bash
 magnet:?xt=urn:btih:20A70829955E41904AA00A9243F97EAB2D0CAF6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ King 810 - La Petite Mort Or A Conversation With God (2016) [MP3|320 Kbps] <Nu-M
 ```bash
 magnet:?xt=urn:btih:1D23C0C5A8A2D60D72D255D43F7D38A45E1D029C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Europe - Best ballads (1995) Compilation [FLAC|Lossless|image + .cue] <Melodic H
 ```bash
 magnet:?xt=urn:btih:2F7562E223732074B69C3578CF7ABEE79A216A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDAABD16363277A6D3995D0894A3116311BA00D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Terra - Untitled (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:71945485C4A93FD4D46A42E47C46F02D1AE434C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Escapists - There's Always One Who Wants To Die (2015) EP [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:A20DA1F7357344E5A574BE4EF03D9F25DE434C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CDA61661561EC929CE9833A45C41227A86EFFB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jane Air - Чёрная гавань (2015) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:C9504FAEAB5060371E00BDCD00DA8053D3F3E317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hollywood Undead - Day Of The Dead (2015) Best Buy Edition [MP3|320 кб/с]<Alt
 ```bash
 magnet:?xt=urn:btih:FC3363D11C6ECB75D57C35DBC70B09F19A08F8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B065542ABCB8547B4F9F86344AFA9D159E368DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

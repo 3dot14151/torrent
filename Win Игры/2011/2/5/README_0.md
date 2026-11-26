@@ -19,8 +19,7 @@ Farm Mania: Hot Vacation (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:B171C6A3D6D430BA9A5463957393415112241B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Astroslugs (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:BE7C85337F73875C9B00BD141AF5F47AED24B3E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dream Day Wedding: Married in Manhattan / Мечты сбываются: Сва�
 ```bash
 magnet:?xt=urn:btih:D515323A4D94C5A3BB2BF01B6DA93244808C3D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dream Day Honeymoon / Мечты сбываются: Медовый месяц (
 ```bash
 magnet:?xt=urn:btih:4C25D74B639A334C8FFE55B6DF4CC61336F8944C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Superior Save / Спасти Босса (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:0C54D095323DF5CD70B252BA1CE2A96C03B53CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crazy Machines: New from the Lab (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:54A036B0DBE33CC34BB1DC22F116858F05657556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

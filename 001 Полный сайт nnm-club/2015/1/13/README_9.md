@@ -25,8 +25,7 @@
 ```bash
 magnet:?xt=urn:btih:8E1DC9F2D8501F7488FAB784C4F0995272E3DF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DC5396244DF94166D0C48F51A752C5DB5DFBEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Robby Z - What'cha Want From Me? (2004) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:D4F054D55CD143B335AC763BF1E30BBAE40E0BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Duke Robillard - Temptation (1994) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4B328F19699953B5D6BB3CFA0363F683F7438514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Laura Rain & The Caesars - Closer (2014) [MP3|320 кб/с]<Blues, Soul>
 ```bash
 magnet:?xt=urn:btih:F893A461B52C7B5238CD2C7F7364D15342C892C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Melody Fall - The shape of Pop Punk to come (2014) [MP3|320 кб/с]<Pop Punk>
 ```bash
 magnet:?xt=urn:btih:2BCE0ACC00EC941185F928662B0F5A73D421723A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Piana - Eternal Castle (2007) [FLAC|Lossless]<IDM, Post Rock, Experimental, Ambi
 ```bash
 magnet:?xt=urn:btih:E640B888F37483A4009BE7C9E67F5247082035B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ WindowMizer также помогает поддерживать рабочий�
 ```bash
 magnet:?xt=urn:btih:13BC6D004B0B4160FC2D1DF87598BDBCAA8C3CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ VA - A State Of Vocal Trance Volume 42 (2015) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:DA5577C54BA1F3A30DC8043C55AF3049D7CEF908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C888C511BAC857A6725F738240BCF6BDC021B134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ Scum - Grim Zipper (2014) [FLAC|Lossless] <Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:9A761D082CDB7716DA6B947502B8A6630C4FA30C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EFACDC7A8ECCF6BC902253A090C32469F6608C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99BC77E68321FA755968001309F7FBD665EB8DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ RegFileScan 0.2 Portable [En]
 ```bash
 magnet:?xt=urn:btih:2651AE818CFFCE43AD6C3505043BD8BC68F2445D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ Ochre - Isolette (2015) [MP3|320 кб/с]<IDM>
 ```bash
 magnet:?xt=urn:btih:1D71E3D3202544E26A9CE6661A9DA4CA564065F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ Astrid Monroe - Timid Hate (2008) [FLAC|Lossless|CD]<Trip Hop, Dark Ambient, Dow
 ```bash
 magnet:?xt=urn:btih:2565F38E1098949C565A5E83480A00582CA8C9BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ Marcus Koch - Silhouettes (2014) [MP3|320 кб/с] <ChillOut, Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:06B40B5282FAAD7A9387D98D521C84B6AE6FF438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17BF031036913C41F8F8E091B45CFA4FF3EB0C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ VA - Dance - Dance - Dance (2015) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:A5D371FF62BBE0E5582E44EEE9CF18845B1DB873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53AB1381E32CBDFCBB2F830037665F2CEC9483B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ Dominick Farinacci - Smile (2005) [FLAC|Lossless]<Jazz,  Post-Bop, Standards, Co
 ```bash
 magnet:?xt=urn:btih:B4EC9EDB0DDD8C3EE925B23EA04066C654B4FE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ Grand Design - Thrill Of The Night (Japan bonus tracks) (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:86DA96140CFB43CD213E1B800EC1C4268F7F90B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ABC534A8251D1FAD7FA4DD80E0C94794FEEFB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89B61EC036D37E050E5BED868CC77AF18F876B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CD9CE3C2B762AF9708B13CEB3B690862A8DC1C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

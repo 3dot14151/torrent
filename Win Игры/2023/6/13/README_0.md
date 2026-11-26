@@ -19,8 +19,7 @@ Royal Romances 3: The Power of Chosen One (2023) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:D17898AAC583F1F8297D54DAAD0AD41929AC58F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

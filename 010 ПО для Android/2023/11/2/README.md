@@ -19,8 +19,7 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:5A4ED2D3FECDF1B981CEE7EBEBB2BE271FCB1AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Revo Uninstaller Mobile - полезное приложение для любо�
 ```bash
 magnet:?xt=urn:btih:24DAC67852836AB4C7CCDD444AA5FE9054CAA84C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Root Explorer или Root Проводник - это отличное прил�
 ```bash
 magnet:?xt=urn:btih:9F5C73CA127F0318654DEA08B48F811F2DBD6F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Zona v2.0.152 Mod by Timozhai [Ru]
 ```bash
 magnet:?xt=urn:btih:CBBE41672A01CD2191C333A37762A8438892ED83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

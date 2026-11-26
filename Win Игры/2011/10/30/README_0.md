@@ -22,8 +22,7 @@ Demigod / Demigod: Битвы Богов [Ru] (RePack) 2009 | Fenixx
 ```bash
 magnet:?xt=urn:btih:1938AD8DFFD599F9A80CFEF6C5C4375B5A236D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

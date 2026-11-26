@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EEC120AF1BE8119D84D3599B574607FA8187B658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ESET Smart Security 8 поможет сделать работу в интерн
 ```bash
 magnet:?xt=urn:btih:3FA10C7818CBF7629B1C54055533A4EBBF413480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

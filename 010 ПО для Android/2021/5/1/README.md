@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:4FA82052AC32B2B87A51CA81B036FD6F1579A28C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mojo v1.2.15 [Ru/Multi] - Создавайте Stories (обновляемая)
 ```bash
 magnet:?xt=urn:btih:F6166B5767364A69D114077C1F20E1AE70F91B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

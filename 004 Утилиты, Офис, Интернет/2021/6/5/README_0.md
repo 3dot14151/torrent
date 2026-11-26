@@ -19,8 +19,7 @@ Restore Point Creator бесплатная программа для упрощ�
 ```bash
 magnet:?xt=urn:btih:4163C7341C9CA1A7229D672189C34C0735F5C2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

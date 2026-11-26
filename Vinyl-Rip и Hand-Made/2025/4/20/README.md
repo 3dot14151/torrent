@@ -22,8 +22,7 @@ A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy Me
 ```bash
 magnet:?xt=urn:btih:2C6A2FE8D7E39FFAD3B67F397330CDF2A633EEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alterna
 ```bash
 magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Visionatica - симфо-метал-группа из Франконии, Гер
 ```bash
 magnet:?xt=urn:btih:EE1C729837506B00DA89B1728316D74ED3E3F1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <De
 ```bash
 magnet:?xt=urn:btih:E899E575915247F93E38BDBEB725253CF4F971EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ A4 Morbid Metal(   Читать дальше...   )Жанр: Black MetalПрод
 ```bash
 magnet:?xt=urn:btih:D0094FA69D411F9E55B3C6A44B1FD1631BCDD9C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ A4. Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalП�
 ```bash
 magnet:?xt=urn:btih:3A853388902A5C0C43F250DEBC588A3E5FB7CE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Dies Irae - группа, играющая атмосферный метал/п�
 ```bash
 magnet:?xt=urn:btih:C6914DC144D1DBC0D4C40FEA2FB8C1CF3D0DB173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Dark Flood - метал-группа из Оулу, Финляндия, осно
 ```bash
 magnet:?xt=urn:btih:EC5A7D27403ED9FF7C71CB5DF320904DD8C74C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ A4 Vechi Tezaur(   Читать дальше...   )Жанр: Contemporary Jazz, 
 ```bash
 magnet:?xt=urn:btih:9A82F42508E6A224E452B99625171292E306C95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ A4 George Sava - Se Scalda Ceru-n Ochii Tai(   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:AB15464D342D3BC85CEEECD10D9948E7F95A4557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ A4 - Checkmate In Red(   Читать дальше...   )Жанр: Heavy, Power 
 ```bash
 magnet:?xt=urn:btih:0A615CE996BCC238839902418F1E4125016772C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

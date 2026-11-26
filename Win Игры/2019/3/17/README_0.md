@@ -19,8 +19,7 @@ Hiddenverse. The Iron Tower (2018) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:EF8375F9C5F4E952E4B509E35FC7FA95CB5F18F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks (2018) [En] (1.0) Unoffici
 ```bash
 magnet:?xt=urn:btih:3915BFA57E7928C07DFEB08FCBFB7168DD19742E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Myths of the World 14: Love Beyond (2017) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:1093D82C12334D81FA09944A62F3B201BE89DA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Secret City 2: The Sunken Kingdom / Тайный город 2: Затонувш�
 ```bash
 magnet:?xt=urn:btih:593195E797FD3A107633F778E6FDA7879909CC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DooM in the Dark (2019) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A8B8AB2FE91CC28BDB2414F0546BEDB2E0819404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

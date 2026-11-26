@@ -19,8 +19,7 @@ Starus Photo Recovery 4.0 RePack (& Portable) by AlekseyPopovv [Ru]
 ```bash
 magnet:?xt=urn:btih:B2E693947FA7793389CC96D960F863467E2985D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

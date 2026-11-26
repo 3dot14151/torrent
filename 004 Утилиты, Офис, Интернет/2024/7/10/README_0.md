@@ -19,8 +19,7 @@ Eassos DiskGenius - программа для управления раздел�
 ```bash
 magnet:?xt=urn:btih:4D2A08733F14D57ED63CD7B120F5262AC06E9E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:C456535FE58704596FEDCCE2B023F10430E394ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ O&O AppBuster 1.4.1345 Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:466315796A232EC3601CFE157E51CB6F1306D1DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

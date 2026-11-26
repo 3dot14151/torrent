@@ -22,8 +22,7 @@ VA - Balearic Underground 2017 Part 9 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B8B03A58B9D46CDC9318CFA4E7B843A005490873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DFC189F479824EAB8C5CF22C5F1DB15606CF477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The New Rob Van Bavel Trio - Piano Grand Slam (2004) Munich Records [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:1F562AF6CAF1D0D9DDA9CD508D4F7E4B568F73F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Total Trance Selections Vol. 07 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:177BAFBDEAAA2245890DA53141FC20B9F5A6F17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Superordinate Electro House (2017) [MP3|320 Kbps] <Electro House, Dance, Cl
 ```bash
 magnet:?xt=urn:btih:9B5D66CB1E08DF572CBA1F5598CA485FFC4A72A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Roland Kirk & Roy Haynes - Domino & Out of the Afternoon (1962) 2013, American J
 ```bash
 magnet:?xt=urn:btih:A6BD5ED58819D339C87CC015D4E9BCB0D642DE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Games At Sunset: Psy Goa Trance (2017) [MP3|320 Kbps] <Psy, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:E47A47C72AC63EFAFF59BA02E21165440058EC7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Progressive Beach House (2017) [MP3|320 Kbps] <House, Tech House, Deep Hous
 ```bash
 magnet:?xt=urn:btih:3C530D067A953662F06FFEC1CD5C3D81FC82BCE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Music For Dreams: Best Of Vol.6 (Compiled by Leo Mas) (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:833EFF52F164AB1D3722AC531326D9F6685F85A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Hides 4.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:67B7137C7F7F604850677F642087A3FDAD37F756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - Где-то на белом свете... (1996) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:6A266A5EA455F503AF2F517A6E656A86628D2158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Grotesque Reworked & Remixed - (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:1D570BF4253731BC811A05CA7F5152A479A5E4B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Start your incredible journey into the past with National Geographic History. In
 ```bash
 magnet:?xt=urn:btih:257407EF18E303193EF1F5EDFA9660DDD45ACEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75A2A2C743A325980322224CF9FE817667D81570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E535D59F978DB9F68F303CA2235C283EB29D910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ iExplorer - утилита для (   Читать дальше...   )Тип и
 ```bash
 magnet:?xt=urn:btih:98CDF3CF149DB21CBC3E933E690986AB5E859250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:963C8FD2EF068B78F2627F2C97A2F477867AAB0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ VA - Progressive House: Beach Dance Classic Radio (2017) [MP3|320 Kbps] <Progres
 ```bash
 magnet:?xt=urn:btih:F338AF27FB9328A6131639CB4536BA7AA9071F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ BES - Эра водолея (2017) [MP3|320 Kbps] <Rap>
 ```bash
 magnet:?xt=urn:btih:D9528243CC6DB284EEC142F95795BF52FCF3ED85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CAB0EEDD6B597D07DABB3868D496C094EC26F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1092D8310DCE336011DE708C6A75543B17AF61FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Markus Schulz
 ```bash
 magnet:?xt=urn:btih:B6634B45ABE12E4D39F4CAD7BCC6A3F7C6680D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46BAFB4364336782458541B954359CFD5FCB56D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ Start your incredible journey into the past with National Geographic History. In
 ```bash
 magnet:?xt=urn:btih:6BC0E8A8F9E752446D6D3F28D2E4DFE062F7912F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ Carbon Copy Cloner - утилита для клонирования дисков
 ```bash
 magnet:?xt=urn:btih:EF07F44A8E5B235A61BBBF4666A575480515A2C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4E5C2F81017E45EA304F1812BE5D4BF28DCDC91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

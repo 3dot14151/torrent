@@ -21,8 +21,7 @@ Of Orcs and Men [Ru/En] (RePack/1.0.0.2) 2012 | Audioslave
 ```bash
 magnet:?xt=urn:btih:173A76C3A9EAF718F183BD842213A365AC1CDD48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Giana Sisters: Twisted Dreams – платформер, главная геро�
 ```bash
 magnet:?xt=urn:btih:0C0D16FB05365C7A3A9FABD1E288CB0C424DD972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ WRC 3: FIA World Rally Championship – официальная игра Чемп
 ```bash
 magnet:?xt=urn:btih:7BDD17FC09D34DE0217E77F4ECD4C2414E8D4989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Black Mirror: Anthology / Чёрное зеркало: Антология [Ru/En
 ```bash
 magnet:?xt=urn:btih:9F02E2AC229FDEC1EA1DEF8C2BCB131D4CF5D18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Risen 2. Dark Waters / Risen 2. Тёмные воды [Ru/En/Gr] (RePack/1.0.121
 ```bash
 magnet:?xt=urn:btih:9C5DB89B40CCC9D9BF35754251BE7BC823044A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

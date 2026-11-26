@@ -19,8 +19,7 @@ CUDA - вычислительная архитектура, разработан
 ```bash
 magnet:?xt=urn:btih:4739A041949B60DA23C2EFD961261C5636F12A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

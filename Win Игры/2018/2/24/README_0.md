@@ -19,8 +19,7 @@ Demon Hunter 4: Riddles of Light / Охотник на демонов 4: Тай�
 ```bash
 magnet:?xt=urn:btih:3288FA486262740B88967BFE14A1D457FFFC2107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stars in Shadow это пошаговая научно-фантастическ�
 ```bash
 magnet:?xt=urn:btih:C17ED5E0F8609455F44FA5F57C83CFF991EF83BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

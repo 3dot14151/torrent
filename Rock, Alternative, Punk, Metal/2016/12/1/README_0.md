@@ -22,8 +22,7 @@ Violet District - Terminal Breath (1992) + Bonus 2CD, Remastered, 2000,Tempus Fu
 ```bash
 magnet:?xt=urn:btih:174AAF0253E476848E269B223BAF6772691B7386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Halestorm - 1 Album + 3 EP + 1 Single (2001-2014) [MP3|320 Kbps] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:690D2443977DAAC7AA992B9D3039937DEDC79770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tracktor Bowling - 20:16 (2016) [FLAC|Lossless|tracks + .cue] <Alternative Metal
 ```bash
 magnet:?xt=urn:btih:9D30AC802E9A491F33D3DDBDF46248E18B784F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - 80s Hard Rock Anthems (2016) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Soft R
 ```bash
 magnet:?xt=urn:btih:2360D2A589D45B61900DFA52F6BF83D0A1CB21B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mgzavrebi - Iasamani (2016) [MP3|320 Kbps] <Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:EA3DA96293232F4A92C9D858F02066EA1CC1D7F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

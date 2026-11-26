@@ -19,8 +19,7 @@ Memtest86+ 7.00 [En]
 ```bash
 magnet:?xt=urn:btih:376FCACFDFCF8CD413ECD1C2F016AF6F8D423C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

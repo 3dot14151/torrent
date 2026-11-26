@@ -22,8 +22,7 @@ A4. Life In A Dangerous Time (4:33)(   Читать дальше...   )Прои�
 ```bash
 magnet:?xt=urn:btih:E4F2DF981A73F72A2F0EC219A70B65D12AE6CB1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

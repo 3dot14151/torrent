@@ -20,8 +20,7 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 ```bash
 magnet:?xt=urn:btih:B1D7A6066F32DAE30CFD18963AEF3A2EE54A59B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

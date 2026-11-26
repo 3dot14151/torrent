@@ -19,8 +19,7 @@ The Wolf Among Us (2026) [Multi] (Build 25961017) Scene Rune [Remastered]
 ```bash
 magnet:?xt=urn:btih:70F407A1F1758E784EB2C65D215C869E7BC10FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ From Space: Revival  (2022) [Ru/Multi] (1.3.2249/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:4579B1CF9B3ECF1DBDCC743CB1D0E2A765511FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Probably Stolen – симулятор магазина в киберпанке 
 ```bash
 magnet:?xt=urn:btih:124E08E3D136D9D61787268950F7896DE9207DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Frontier: Path of Shadows - сюжетная тактическая RPG во в�
 ```bash
 magnet:?xt=urn:btih:349CED16A9DD3AECBB98ACAE417D855366D49E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SULFUR - атмосферный шутер от первого лица с ро�
 ```bash
 magnet:?xt=urn:btih:2CDA942C48ACDA4A2CED626591A5F130BA637825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ DYNASTY WARRIORS 3: Complete Edition Remastered возвращает леген�
 ```bash
 magnet:?xt=urn:btih:3BC3D1A1A198DCF1A1AA8902BE62D5B78EE02A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Terrible Lizards (2026) [Ru/Multi] (Build 26293172) Scene Rune
 ```bash
 magnet:?xt=urn:btih:111E1BA82C6531AAC2AC420964F6F4D22358D414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ HYPNOS - сюрреалистическое приключение от перв
 ```bash
 magnet:?xt=urn:btih:65AA9F6FADE788D29B52B775502C9A67B9882B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Cairn - приключенческий симулятор альпинизма, 
 ```bash
 magnet:?xt=urn:btih:9C0D18EBAE3AD6C261C1A7DC4D7CDBEB3E72BA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Forza Motorsport 7 - это реалистичный автосимулято
 ```bash
 magnet:?xt=urn:btih:AA573A2DF4D69587C15E112EFFF0D0536BE6990A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Nightmare Frontier (2025) [Ru/Multi] (1.1.0.1814/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:157B0C45B896185515C905B64BDB4B9036244205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Remothered: Red Nun's Legacy (2026) [Ru/Multi] (74e0052.7/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4780EA243432ABEE1B480FDF0B5F284FA5F3D2EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Hunting Simulator 3 - симулятор охоты с открытым миро
 ```bash
 magnet:?xt=urn:btih:64D6883F310AB0AEC94978D9B1994B29EA6BFA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Europa Universalis V, новейшей версии одной из самых �
 ```bash
 magnet:?xt=urn:btih:BCF5D693D2751509F7FD78EECBE9B6B6AF17A864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Star Trek: Voyager - Across the Unknown - сюжетная стратегия с
 ```bash
 magnet:?xt=urn:btih:75726592DA5AEE73839036CD837596B3A629C8F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ EVERSPACE 2 - одиночная космическая экшен-RPG с быс
 ```bash
 magnet:?xt=urn:btih:354583D9F92486E50890DA3473394FAAC2656164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Black Flower - Magma (2022) [FLAC|Lossless|tracks + .cue] <World Fusion>
 ```bash
 magnet:?xt=urn:btih:49BA0CA68A6F0CE72936AC1C540F3C1E759E33F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Soul Crusaders - The Best Of… The City (2018) [AAC|~336 Kbps] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:DCB824E97430C2589BEF722C9ACDB093A2B63F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Sub-Division Recordings - Partitions, Vol. 2 (2022) [AAC|~330 Kbps] <Drum &
 ```bash
 magnet:?xt=urn:btih:185DD59D0BB7C944804ECE4BFBC42FF6228A57D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Duplicate Finder and Remover 1.9 [En]
 ```bash
 magnet:?xt=urn:btih:427BB207A1C71481CF33CDC286788410CD363C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Maretimo Records - Masterpieces, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:9609CC7EC28868B2A0E6C84D81EAD0E6C3082AA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Children of Goth (2022) [AAC|~344 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:9C7B7558E8E429D280EDB4499EE5648CE5256C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Urban Orange Music 8: Downtempo Experience (2022) [AAC|~310 Kbps] <Lounge, 
 ```bash
 magnet:?xt=urn:btih:B3061FC2458088B1E2180D44EFB7B90C438822D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Smart Converter позиционируется разработчиками из
 ```bash
 magnet:?xt=urn:btih:8E3A7D779F28F050146CAC7B801520F00F1C0012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ The Soul Crusaders - Dreams (2021) [AAC|~328 Kbps] <Lounge, Chill Out. Smooth Ja
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ File Cabinet Pro - файловый менеджер строки меню Mac O
 ```bash
 magnet:?xt=urn:btih:CF3135D73D6247D7F290FAFE1DAEDFE30B535234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ PullTube 1.7.13 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E378C63BDB31BC538EA33184DC4BC912C4C28629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ The Soul Crusaders - Nightfall (2020) [AAC|~321 Kbps] <Lounge, Chill Out. Smooth
 ```bash
 magnet:?xt=urn:btih:390311C58C961BB7073E9B4AC4A809D9075FB830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Duplicate Photos Fixer Pro является удобным приложение�
 ```bash
 magnet:?xt=urn:btih:38D589556952E7FE02D528541ACD54671764D96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ Medieval Steel - Gods Of Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:6C3F792AA252CFAA2A55A30289F624FCF9FB2249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Music Converter Pro позволяет быстро и просто конвер
 ```bash
 magnet:?xt=urn:btih:18B5D247766C4214335008F0BFEF3A0599AA2CC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83BC5A89FD27922882FCA3C42DB4C5722768962A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ VA - Moonlight Lounge (Mediterranean Roots), Vol. 4 (2022) [AAC|~321 Kbps] <Loun
 ```bash
 magnet:?xt=urn:btih:23683A890CF0207D32A7F08721F43319A58C3064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Tony Patterson, Doug Melbourne - Dark Before Dawn (2022) [FLAC|Lossless|WEB-DL|t
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DF89C95AC9DB04026FFD04221A5F2D527B6C77B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Beth Hart - A Tribute To Led Zeppelin (2022) [AAC|~337 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:97F37719299EF8464CBB1E1BD4A040F162113C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54D915A09E8E1CCE4CE1D0BDFDEBD47B064629ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Sketch 84 [En]
 ```bash
 magnet:?xt=urn:btih:A10449A6FBFBD413A59FC38699300126481EA222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Dina Vierny - Chants Des Prisonniers Sibériens D'Aujourd'hui / Блатные �
 ```bash
 magnet:?xt=urn:btih:0D17827D7E6D161A16DBC7F53DCD743FD62D510E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:B74A1E147AB6D11791D7CF2600A5BC3F7817AC15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

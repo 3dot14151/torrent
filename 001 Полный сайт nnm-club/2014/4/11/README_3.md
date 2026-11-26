@@ -19,8 +19,7 @@ XnViewMP - мощное многофункциональное приложен�
 ```bash
 magnet:?xt=urn:btih:11870D79EAFED2CC4BD2B3D4BC974599A101F08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9901170DD50849FE09D9AC51D81907D4F210BB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4A7CA635FF248814E78AFDECA38A5A66974F957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ FlashFXP - FTP-клиент, поддерживающий любые типы с
 ```bash
 magnet:?xt=urn:btih:3A0785E9CF2E504C596ACDA2C55A784A9D41F1A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Aurosonic & Frainbreeze and Katty Heath - All I Need (2014) [MP3|320 кб/с]<Tr
 ```bash
 magnet:?xt=urn:btih:6D3BCAB498B4D23988F6CBC146B069B64DAF6DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Daphne - системный инструмент, который предста�
 ```bash
 magnet:?xt=urn:btih:5CE7323408511D7EC79E0C3672C3B68A708C653A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5951593F8470653ECF8689DD127FAF78AB75C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ VA - Лучшая 100ка Европы Плюс Зарубежный (2014) [MP3
 ```bash
 magnet:?xt=urn:btih:A1BD1DD93D602625282F9601A49FA4AA7743A6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ NG. Самые странные в мире: Странная любовь / Str
 ```bash
 magnet:?xt=urn:btih:F39B723AAFA644F7CDE6CDE62BB918403F8B9F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Ancient Grease - Women And Children First (1970) Remastered /2003, Expertise Rec
 ```bash
 magnet:?xt=urn:btih:79EE2424B7C901F189E6B08A41E91E43A1E3F28A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D6E00D63A80EF05714EDC40E19CC39742D6C4D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Lingobit Localizer Enterprise 8.0.8064 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:12E0E60DA8A2A662456820DEF09B120B34982285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Waltzes (3) for piano, Op. 64, CT. 212-214
 ```bash
 magnet:?xt=urn:btih:8EC54F26A9F2B7B656303A840FDF5E23DE02A04F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73DD301B41224B7AA1ECD582663B795AEE54D14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8B1B5DE526D5FF5E250D8D0AB32E4B74D82A7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCD3EC56C62BC166B2A1964F618B08A964CD1B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ DensPlay - это простой музыкальный проигрывател
 ```bash
 magnet:?xt=urn:btih:94A7AB160FB6FA33ED80C7111613A1895A962E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBDB9B5290DA6F54D7106E46306C6610765EAA26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0E2AAE719273D479CB6FA0541AE4954731E09C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:423D0CDE080DC595612DB7C4B6E2252625D52192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Classic ROCK, легендарный английский журнал, став
 ```bash
 magnet:?xt=urn:btih:B25FB30BBEFE45625F4DDD59A0F348BD3DBAD085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ VA - Вечные, Как Весна (2014) [MP3|320 кб/с]<Rock, Hard Rock, P
 ```bash
 magnet:?xt=urn:btih:BF521ED7D495CC6C4965562A194C3C0F005F92F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5534464226AC6E9D6B551A0D81A565EC1C0813B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ VA - 100 грамм и в пляс 3 (2014) [MP3|256 кб/с]<Поп, Ретро
 ```bash
 magnet:?xt=urn:btih:6930AFDEE4605A79369F32A44D1C2B2FFF14AEED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2051A9CDA8C61166980F90EE8A89BE91F448948B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:859D39D5469A41395AE15E24501798E7D239AED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

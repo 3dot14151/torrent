@@ -20,8 +20,7 @@ VMware Workstation Pro™ позволяет техническим специа
 ```bash
 magnet:?xt=urn:btih:6A1FBD24467E4172B75013082CC7FB05C962CBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Take no Prisoners (1997) [Ru/En] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:F5F25B75D26B787954635FD51205C3DDF2EBE8B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

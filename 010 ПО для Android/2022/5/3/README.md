@@ -19,8 +19,7 @@ YMusic - YouTube Music Player & Downloader v3.7.10 [Multi]
 ```bash
 magnet:?xt=urn:btih:9892A0DD4DF9D7EF9C171079CBBE79484EDB0DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Bridge to Another World 8: Endless Game (2021) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:A8E6FF65E151DE6D3A34E2D7FDB5815671E3C759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Shattering — психологический квест от первого
 ```bash
 magnet:?xt=urn:btih:6E4F2F99F716D76D7F44A49DB2F4AA9A6962AC42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

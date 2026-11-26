@@ -22,8 +22,7 @@ Issa - Fire And Ice (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:4965B9EA46908D5D4C19294A8DBB6E4242635359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Samson - Head On (1980) Japanese Edition, SHM-CD, Reissue, Remastered, 2026, Bel
 ```bash
 magnet:?xt=urn:btih:C5B3D586567628A5AADD4528A740AA2B4E34EDCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mastodon - Marrow Deep (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:00429CEB81B73B89C2F9ED6D424AD6C6B0FFEDDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ KDRR - Посторонний (2026) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:A6FD73B9C6376F3B116A29277EB0115C7C3E5D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C2468382DE160528AFF097D845103BC323D2B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Stay Away - Успеть бы в Прагу до Третьей мировой (
 ```bash
 magnet:?xt=urn:btih:3518953CB09A2F60CEBE5FB845ED771DD8B3471B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Stay Away - Глупые песни и танцы в лужах (2026) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:3E8BED6EA2637289EA38419076BB21041139C5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FC878897E612E3FFB0C6A2A4F075393D45AF07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

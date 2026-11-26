@@ -21,8 +21,7 @@ A variety of extensive exercises for practice. (   Читать дальше...
 ```bash
 magnet:?xt=urn:btih:3269CCD1501EE290515AEE6EE2A306C10D55D4AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27B2C4A776CC4C6AB55199B24404AB0AFDDC5E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Practice Makes Perfect: English Verb Tenses Up Close puts the spotlight on this 
 ```bash
 magnet:?xt=urn:btih:B57E0AE5B603547218B4EBCCC97F45D964F1CE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ StarDict — свободная оболочка для электронных �
 ```bash
 magnet:?xt=urn:btih:7BC361AE799F104EF73F90D7164EFC3B319481A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

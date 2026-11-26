@@ -19,8 +19,7 @@ The Strange City (2024) [Multi] (1.0.6) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:526D4769B04150D9093F7849F1D54C9A377588CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 ```bash
 magnet:?xt=urn:btih:4D3EDE9E1007C37A77509FA7D01F92776D8331D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ World to the West (2017) [Multi] (1.6.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8AF382403359D4DAC7ED6B951E12372F34792554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (16) License GOG
 ```bash
 magnet:?xt=urn:btih:35C5C96F1E9D77ECF2BAFEC3862D606ABAC37F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tennis Manager 2024 – как насчет того, чтобы покорит�
 ```bash
 magnet:?xt=urn:btih:898CE50B2C612223C1D3E487420F76F81A6A9CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Repack seleZen [Super
 ```bash
 magnet:?xt=urn:btih:DD64869BF38C850BA7345CEF92F87C956D9991AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ FRONT MISSION 1st: Remake - атмосферная тактическая пош
 ```bash
 magnet:?xt=urn:btih:B528C9313975A21CC145E5F2ED902F9BF574F3D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Techno Banter (2025) [Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:7713D08807A42F10B0E4DBC76EFCE67A154603FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:BCF3F4B050C7683131F77216F05F33EA059730A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Door Kickers 2 Task Force North – великолепное сочетание 
 ```bash
 magnet:?xt=urn:btih:6E39EA674773F8ECF8D59C3F97F2369E06A97F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50EE85BF182287B86A7741EA90CAFCBF572237B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Palworld предлагает находить и использовать пр�
 ```bash
 magnet:?xt=urn:btih:B2D396B28D0FB41BB15A93F3133E9D785A86CB47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Ms. Holmes 7: The Death of Peter Blackheart (2025) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:2902A38585832F190211E02AD94DF974C880DAA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Slime Rancher – это история Беатрис Лебо, молодой 
 ```bash
 magnet:?xt=urn:btih:D4E80DCFB886F5F24BBAC64ED30E922EEAEA3222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

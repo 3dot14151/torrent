@@ -22,8 +22,7 @@ VA - Jazz Mix Evening Conversation 1950-2008 (2016) [WavPack|96/32|image+.cue|Vi
 ```bash
 magnet:?xt=urn:btih:8B83E215337AA6AC61C7C872E52742747E8FD84B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4	Я Здесь(   Читать дальше...   )Жанр: Jazz, SwingПро�
 ```bash
 magnet:?xt=urn:btih:286D1278B5E58FA18EAE110F4DA4CD4C1B74DEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Я Встретил Хорошенькую Девушку(   Читать д�
 ```bash
 magnet:?xt=urn:btih:F7B9E59F118EF7B632CE1AF1F64A4F467A8367D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Тайфун Над Кагосимой (Typhon Sur Kagoshima)(   Читать
 ```bash
 magnet:?xt=urn:btih:BD29B15E3D3D3C545BC9D4F02D6F0772A978AA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F58369FED6DDF88C9431CDCD7A4BE081BDEA9C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

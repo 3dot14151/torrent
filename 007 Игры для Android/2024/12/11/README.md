@@ -21,8 +21,7 @@ Monument Valley 3 v1.0.14999 [Ru]
 ```bash
 magnet:?xt=urn:btih:6711DABF7332F3C0E81015C2880DF40A7756EB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

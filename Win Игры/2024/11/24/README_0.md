@@ -19,8 +19,7 @@ CarX Street (2024) [Ru/En] (1.2.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:B2751079448504575F7ACC6675D55BD78BBF8131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Strategic Command: World War I (2019) [Multi] (1.15.00/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:44DC31460E766854CE3D343A70A4DFFE654B11CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Strategic Command WWII: World at War - это ваш шанс изменить �
 ```bash
 magnet:?xt=urn:btih:C67875321C02E85BE4F91FBCB8CF5E317C2058CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vaporum - это однопользовательская ролевая игр�
 ```bash
 magnet:?xt=urn:btih:44236277C8649EF0F210DC7AD5E0BD5A882AC8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.07/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6C110D8A8A7CED83D071BD88389AC38DBAD2481E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ PO'ed: Definitive Edition - возвращение легендарного ол
 ```bash
 magnet:?xt=urn:btih:5550DF33A6B92BBE231F413757B6DA3CEF1F6FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sniper Ghost Warrior Contracts 2 - самая сложная игра в про�
 ```bash
 magnet:?xt=urn:btih:2CFA11E50A93066DDDC91271D0D4AE65BFB3C885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Last Plague: Blight является симулятором выживани
 ```bash
 magnet:?xt=urn:btih:3CCF203B2A290A96BF93A68601E07F1700EF529F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Deathbound - действие игры разворачивается в сре�
 ```bash
 magnet:?xt=urn:btih:95207D844140C663F30FDA679983997F723BC87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Apocalypse Party - 3D-рогалик с видом сверху вниз, дей
 ```bash
 magnet:?xt=urn:btih:84876AADBBEA0F0C04F82FA96C2651D48155EA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Dragon Age™: Origins Вы Серый страж, один из последн�
 ```bash
 magnet:?xt=urn:btih:ED4DD100DDF5183BAEE0C8ADFF3DE6FFEC5ED548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1.0.0/dlc) Repack FitGirl [The Complete Editi
 ```bash
 magnet:?xt=urn:btih:5340052F623F85F5F8B5A2094574F6A509BDD649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:BEC0B85E2EF98F84A9F30142AB0366FFA9393B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Valkyrie of Phantasm (2022) [Multi] (1.04) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:F4DA0CE56DF1CC55790B98744F849BBBE59DFC35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Karate Survivor погружает геймеров в мир, где масте
 ```bash
 magnet:?xt=urn:btih:A68DCF259055F81A42E7C2AE61309819CDE13B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

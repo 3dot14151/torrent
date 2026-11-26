@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:552AC366C2829FE38EA8E465412981CF4A8DCCE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rob Zombie - Mondo Sex Head (2012) Compilation & Remixes [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:1DE5E609460B53B769BA43B4E6D9340222EE7356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Sturm Und Drang - квинтет из Финляндии, родины тяже�
 ```bash
 magnet:?xt=urn:btih:BFFC6B9241456764EF1E5624903E8CB953894E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Pink Floyd - The Division Bell (1994/2011) EMI | Reissue, Remastered [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:A11FBDA2EDECBB22792677765FF5100538119AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

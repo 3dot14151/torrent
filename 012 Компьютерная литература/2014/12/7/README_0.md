@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:19C863FA9D6C958850C461B4832B17464885E86D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5630B00ABD796C9DE5D7ABCC9BA924CFD7DFE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Microsoft Windows — семейство проприетарных операц
 ```bash
 magnet:?xt=urn:btih:FE7AAF548FAE63D86FDE63847E2227F42C0A1450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

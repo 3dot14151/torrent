@@ -22,8 +22,7 @@ Withered - Memento Mori (2005) Reissue, 2006, Mystic Empire [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:7E11BD77B8DAD3648419A3360411D5011904D660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anekdoten - Until All the Ghosts Are Gone (2015) [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:94DE5EE12BADBFD6A843084A8529400A0930EB58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

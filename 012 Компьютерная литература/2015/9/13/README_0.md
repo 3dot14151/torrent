@@ -20,8 +20,7 @@ Openssource | Авторская методика по анонимности и
 ```bash
 magnet:?xt=urn:btih:0DBEA63E4D0EB2B0A61F25D6C56420D9ACEEEB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

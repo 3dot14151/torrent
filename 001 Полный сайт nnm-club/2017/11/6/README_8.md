@@ -22,8 +22,7 @@ Paolo Fresu - Thinking (2006) EMI [WavPack|Lossless|image + .cue] <Post-Bop, Mod
 ```bash
 magnet:?xt=urn:btih:AAACF823B788E760055D003F7774B3A0E80A4966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Joe Williams - Live (1973) 1997, Original Jazz Classics [APE|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:DBE25B0B023693DD489E2DEA98B6E75567DA3ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Peter O'Mara - Stairway (1993) Enja [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 ```bash
 magnet:?xt=urn:btih:65EA4E232248E9D8181CA389DCA2B96507FA1B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E7327BFFD383C565194D24C58AB74D114AA302D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Empire Records - Dancenudisco 16 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Di
 ```bash
 magnet:?xt=urn:btih:E0AA56C0F21015E743FCACF3E11A9B29701F5B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Best of Chillout 2017 Vol 06 [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:D12F6264A5255DA7E844D975F4276366E65EDE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D3EF20E3507D70901757B279D485994448EC9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F68950738D90E81EF276F3E4EA1AD54446F28BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB5232B27A6C89670A2D9B0D26A63BD59264F50C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59862280323C58EEBC47E6A6111E5664E6A06C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8986ADAC12E36A8BA1E27B43AE0B75C4D2B6DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Trash Without - небольшая утилитка, которая позвол
 ```bash
 magnet:?xt=urn:btih:EBBB65A29D7BB138161926ACD05FCE965B17999F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC072490C2D046519F7465D4FF9A7C08965FD8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Cyberfox 52.4.1 for AMD + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8C13C616D8C5AE79E6E44302D2BD7ACAFCCE38FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ Tyler Bryant & The Shakedown - Tyler Bryant & The Shakedown (2017) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:CA2D85970E01E8393822EC5983D5365860A1354C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ VA - Deep House Collection Vol.142 (2017) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:1DE0796030312B9B0B5070FF646D81CB0BF5EA84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Debit & Credit - Учет финансов 2.5.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:687781155792B2BE3BCF485601CED71E933D79FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ David Cross and Robert Fripp - Starless Starlight (2015) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:175976B66A720E9C38633EA7B8CAAAAFBF678388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ Maximum Turbodrive - † Maximum Turbodrive † (2017) [MP3|320 Kbps] <Synthwave
 ```bash
 magnet:?xt=urn:btih:7B87EAE91FA1E96A03EFF3C84EC5C3522C7FA43F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ Downie поддерживает более 1,100 популярных сайто
 ```bash
 magnet:?xt=urn:btih:0CCB50CF00039085600FB782955923014867F4D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ A4 One More Night(   Читать дальше...   )Жанр: Hard Rock, Heavy 
 ```bash
 magnet:?xt=urn:btih:BE83B829BBA99C6C3EC5E0BAEA86838802FB6405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22B7C5EB6DC36ECE656B66B9BA0694B58F5855AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ Total CSV Converter - прекрасный конвертер CSV файлов �
 ```bash
 magnet:?xt=urn:btih:BFA78C0596C338FE447E6BA6300A21CF51574E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:321EABC20CA280AB3A2FE65C9532FE8446C0210E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ VA - Deep House Collection Vol.143 (2017) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:C25688948DBE711FC93EDC149328B9AD8039A1CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 013 (2017) [M
 ```bash
 magnet:?xt=urn:btih:2BAB37DD24DC2221A815FF500ABB1719F7D086B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

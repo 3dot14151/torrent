@@ -21,8 +21,7 @@ VA - Новые хитовые песни 2025, Часть 8 (2025) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:0CA690690A553DE8695CE9A60776C66CB522DD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C76146AC36336779EB256119BB902EE0484EC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - Лучшая дискотека шансона - 20 (2025) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:4F05FCEA8F810D89AE66D92210669B11CDE2C4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Русская 30-ка хитов 16 (Новые русские песни)
 ```bash
 magnet:?xt=urn:btih:471D57C228BCAF3286C5D920823DE8E5D8F4F994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED464750DE968AAF37BAE684182FA44C0D622D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ VA - Magic Deep-House, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 ```bash
 magnet:?xt=urn:btih:2253D389B3F84C7375C6E069BBF71A44197F7DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ VA - 50 лучших хитов, Часть 4 (2025) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4CDDF069A129EEE686F3F7DEFAA08A6D2081C907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ VA - Новые хитовые песни 2025, Часть 9 (2025) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:8E71BEB91BC97AAB969DC49DBC9A6DBC96DE7F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - 50 лучших хитов, Часть 5 (2025) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:3C57E2DDBC81EA1109697794A93602566773FD96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

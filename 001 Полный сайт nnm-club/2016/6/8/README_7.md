@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:95F8E155EC397351089E9CA6F4E323337A89BCF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C48AF55B4F4EB801ED73A54B5AE09E6ADB506760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8431C85BE1D19A552BD5B3BBAE587137E50D466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3743C9309AA3C63C9F457B910C5583F4E8FA7AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:260D2AFF87D3186A361CA22261C5D26C9A815B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F3A475FFF65E878E00059395FAD311B2DAD9E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Trance Dawn (2016) [MP3|320 кб/с] <Trance,Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:7F7728FE7DE1A1E461E3877F5A067CC77CF95052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6A51A2C0FACA02F286E6E76EF10326F21EA1493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Neuro House Version Driver (2016) [MP3|264-320 кб/с] <Electronic, House,
 ```bash
 magnet:?xt=urn:btih:5EE875299283CF27F083115061F1B518466C2E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ John Lewis - The John Lewis Piano (1957) Remaster, 2012, Warner[FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:9330AA9A5785223345D75AB1C04C5E9510DC3311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD4374C2E4CD7702BCAC751C337BC0609310D7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Tyme это простое в использовании приложение д
 ```bash
 magnet:?xt=urn:btih:74B88B547003B8690D2A28EA7520F45405DDF4E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Phronesis - Parallax (2016) [FLAC|Lossless|tracks + .cue] <Progressive - Jazz>
 ```bash
 magnet:?xt=urn:btih:6EC037613B382555AA986D20826A2304CD5B932D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Severoth - Solitude (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Ambient>
 ```bash
 magnet:?xt=urn:btih:5A3B954D0A4B34560711E5981EB3A7E8D726D5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A447AA9F6EF398E1D3B2AD46C3D388973F96608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E72DBD4DEF4B147520E8A1F94B8B5A7FCEE2364B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B871DD7CAFC486E050B308AF12441579B1971165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ MONACH - Черный день (2016) EP [MP3|320 кб/с] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:69CC4018504C1C5B81DF7CA884414D08C0240916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Casablanca - Apocalyptic Youth (2012) [FLAC|Lossless|tracks] <Hard Rock, Melodic
 ```bash
 magnet:?xt=urn:btih:45E7B9E1DBE6F31A2FAE809D7E549419A7667FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ VA - Lounge - The Art of Relaxation (2016) [MP3|320 кб/с] <Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:AC6BFE1E8BAE84440D45F7E2762FF9C8260498B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ Hanne Sorvaag - Featuring (2016) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, C
 ```bash
 magnet:?xt=urn:btih:3C0759FC154D0977FE381129427E9626CD709C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ VA - Crush House Dreamin (2016) [MP3|320 кб/с] <Dance, Electro House, Progres
 ```bash
 magnet:?xt=urn:btih:9D82DF846934688799C9008A5A679DFD72BA33B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ Hazel – это ваш личный уборщик, который органи
 ```bash
 magnet:?xt=urn:btih:BE6C120297357200A9FD61AD09BBAA48740D4BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ Milkeddit - клиент для функционально богатого Redd
 ```bash
 magnet:?xt=urn:btih:CE9AD9C137432DB9F8422F8C3005011083BC6789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35BC754402D4583F4E0B05FFF0E54E47BF8496EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F08D279F6D75461B6744C66361EE4B7C94EF3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

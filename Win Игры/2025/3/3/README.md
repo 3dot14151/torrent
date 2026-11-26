@@ -19,8 +19,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (1.0.0.0/dlc) Repack DjDI [Digital Delu
 ```bash
 magnet:?xt=urn:btih:56D8C2485B5E3A5EDD0548A01E19CF270CFF6EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9BFDFED9D8B3AE348E1E27D4BD0AF4A6F72AABD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mycelium Heaven (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:75F790CA9D9138121E98160AF22119655587A043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Outward – приключенческая РПГ, события которой
 ```bash
 magnet:?xt=urn:btih:FCD803473778FD3171BC68D74722AE965E7A5C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Jack Holmes: Master of Puppets - хоррор на выживание от пе�
 ```bash
 magnet:?xt=urn:btih:45D88CB6BEF7B2A965DF74C5EA1C2ECAB4CC8577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ METRO QUESTER (2023) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8517D0551EBB78BF3B309621F14161F8A6D990F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dream Tactics - это стратегическая ролевая игра, п�
 ```bash
 magnet:?xt=urn:btih:F8A63893099468888294E841178CC625C058A52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ My Hotel – в этом странном и пугающем месте скр�
 ```bash
 magnet:?xt=urn:btih:B0EB364F3CF15896A433A0890032FD3429A374AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.6.0.63057/dlc) Repack FitGirl [Digital Del
 ```bash
 magnet:?xt=urn:btih:722473AE9AFC6CCD8FBC830FE3FA911B149DD0AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

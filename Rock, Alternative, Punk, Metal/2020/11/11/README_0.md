@@ -22,8 +22,7 @@ Wuthering Heights - Within (1999) [FLAC|Lossless|image + .cue] <Progressive Meta
 ```bash
 magnet:?xt=urn:btih:DD0E43F630A9D275EC3BD4060B32F14F2A91887B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sepsism - To Prevail In Disgust (2003) [FLAC|Lossless|image + .cue] <Brutal Deat
 ```bash
 magnet:?xt=urn:btih:9B7C92B6915AC7BB46398A745A93966DAC3D2913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ CD2: Roaming Far From Home ( ~ live at ProgPower 2004 ~ )Жанр: Progressive M
 ```bash
 magnet:?xt=urn:btih:8C3578C5B4F87B22692A1A71D90274AA30FF0B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03456E8975B992221F7C96C56A50ADF335B5C4BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Angelica - All I Am (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Fem
 ```bash
 magnet:?xt=urn:btih:6D0E0340603782CF8F85C8A7ACB21947B2B72BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F66BBB874D4DB8153672B616C54E3B3696565C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:316ED323AE4F9D2F26D14A3022D15E3CF013B854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

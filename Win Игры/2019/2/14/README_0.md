@@ -19,8 +19,7 @@ Domini Games с гордостью представляет вам послед�
 ```bash
 magnet:?xt=urn:btih:73B255A64B7461CAC37D32F1B50648780D85E63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phoning Home (2017) [Ru/Multi] (1.4.1) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:0160BD9BDCE8A6DA6AB46463594C73D03708DDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Darkwood изменит ваше представление о жанре surviv
 ```bash
 magnet:?xt=urn:btih:C6FA92E37EB106BFA927767D1505DE21892B59A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

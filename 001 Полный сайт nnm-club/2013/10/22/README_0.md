@@ -18,8 +18,7 @@ HyperSnap - это инструмент для захвата изображен
 ```bash
 magnet:?xt=urn:btih:0562C86299246CF30CC7BA01957CAC4A038FE87F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Русский отборный exclusive (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:2E81236AF322BDE9157A7785E15B7CC9036AF7E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Клубная Танцевальная 100-ка Осени (2013) [MP3|256
 ```bash
 magnet:?xt=urn:btih:B8927F873F940EA95D17995970923843060099BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FE42A931771ABE484A991611F1BC11A7C46335B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ John Scofield - Works For Me (2000) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:361357C20CEF96CECC0DBB069662C26E15991A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3B8755BFC379C40849BF653DC84A19C416E689A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ John Scofield - Piety Street (2009) [FLAC|Lossless]<Jazz, Blues>
 ```bash
 magnet:?xt=urn:btih:2ADFF62ED1654EDE2C12A9E9A7DDE582AE22C184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:130798A9CC3A7C2F9C4087DB295F1C3EDB96DFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E07A4B6DA67583C31BCD049F4DD13D4D379B7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ VA - Acid Jazz (2011) [MP3|320 kbps]<Acid Jazz>
 ```bash
 magnet:?xt=urn:btih:EB02B8AF3599B5B12A073390C4C27D9776D4CD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +333,7 @@ John Scofield - Up All Night (2003) [FLAC|Lossless]<Jazz-Funk>
 ```bash
 magnet:?xt=urn:btih:2E25137C98687722021EA0BEA21A3E5523C8D924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +367,7 @@ Kens Dojo - Reincarnation (2010) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A604FAEE12ED8DE81885F8B6B5E969B26CDF9ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ Stan Getz - The Very Best of Stan Getz (2002) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:092D7EF089BABEA3CB7D1FE5D0420037C884699E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ King's Call - 2 Альбома (2011-2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:621FD1E416F2D30363CC6816676F3E0D88AFE306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AD5DEDC66F522CDDD4023D6EC4D9FAD1DCEC426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD4CAADE955A6EA945F4F7735889B833627CF05F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +521,7 @@ John Scofield - Uberjam (2002) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:0814578A6CA6E51EF854100C033D221F6D23C4D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +555,7 @@ VA - Дискотека 2013 Dance Club Vol. 110 (2013) [MP3|~175 кб/с (V3)]<
 ```bash
 magnet:?xt=urn:btih:5036EABEC405154FC4E6B80EBF3B77A6D25C8E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +589,7 @@ John Scofield - That's What I Say (2005) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:979E643FF293A039FAF6E0055B3494E2212518B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +623,7 @@ John Scofield - Steady Groovin' (1999) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:D6B28673FB267F263EFA5FC497EC4A73A323706D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F73D243A43FCCC98C2DDAB8B78CA9C953A454448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2817D3B1167AEC9837929496C45F26011236A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE8F3E1CF6F7B7F949A13D4B26C26B921213F32C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8B90EED61E67A9544B46144BDB9299C7D4DAB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01ECD8B5C5E499F8BC28C18CE9681295EDA17D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -812,8 +787,7 @@ VA - Vocal Trance vs Vocal House (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:C6B8454DCC453E53DC793EA9043EB69C28CBFD3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Datacol 5.54 + Plugins [Ru]
 ```bash
 magnet:?xt=urn:btih:83562A3C09B4BA5ACFC307AD4A715D844736C994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

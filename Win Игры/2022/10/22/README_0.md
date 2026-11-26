@@ -19,8 +19,7 @@ Garden Simulator - аркадный симулятор, в котором нуж
 ```bash
 magnet:?xt=urn:btih:2D4067ABFC418E6732EBE7B7DC170CF5C86387DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hard West 2 - это отдающее порохом погружение в з�
 ```bash
 magnet:?xt=urn:btih:9A5EEC11C7432332075636971ADC5966C3E795C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gloomy Tales: Horrific Show / Мрачные Истории: Кошмарное 
 ```bash
 magnet:?xt=urn:btih:9E9CAABC692DC6536B4CC0D569F1E46AF82E33FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Indoorlands (2022) [Multi] (1.0.0f3) License GOG
 ```bash
 magnet:?xt=urn:btih:2780B8875BEE32CEF130CA1035D6AD3C26A43804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

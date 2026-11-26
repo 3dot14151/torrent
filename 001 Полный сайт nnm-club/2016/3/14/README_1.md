@@ -21,8 +21,7 @@ Yazz - Wanted (1988) [FLAC|Lossless|image + .cue] <Dance, Funk, Acid House>
 ```bash
 magnet:?xt=urn:btih:2FA7A5DD802E2E02AEABA57B23A8317E18BF6E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Top 100 Workout 2 (2016) [MP3|128-320 кб/с] <House, Tech House, Deep Hou
 ```bash
 magnet:?xt=urn:btih:CC90D53C8D13F5DA7F2519AE9ACE928C12AB7C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Lounge Lux Smiel: Italian Set 80-90s (2016) [MP3|320 кб/с] <Disco, Pop, 
 ```bash
 magnet:?xt=urn:btih:05EA3F7C4547054C26BE5DE7C59DC91C644F57FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Girlschool - The Collection (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E511C69FCE7D0692A9D101F20A689703029454E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Tipard Video Converter Ultimate -это лучшее программное об
 ```bash
 magnet:?xt=urn:btih:830DF7C1015971B9B2EAA95EC795D6A31B1A3CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Beatport Top 100 (12.03.2016) [MP3|320 кб/с] <House, Electro, Progressiv
 ```bash
 magnet:?xt=urn:btih:04FAD374662418D84BE37AE53B8C13AE01594B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - Alterportal HITS 16 Vol. 90 - February (2016) [MP3|128-320 кб/с] <Altern
 ```bash
 magnet:?xt=urn:btih:603E9E84051D8EB13D1993C6D276A8F76D9F311D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - 50 Best Tracks For Your Car 5 (2016) [MP3|256-320 кб/с] <House>
 ```bash
 magnet:?xt=urn:btih:E61FF20F125A9775C317725FFE3846742CC02B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD374E1D6841B502D289AEC4B41D03CB9E5BE0F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86D094BBD3CE4CD3ECFC46966BA749FBBFFF5292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Aiseesoft iPad Video Converter  - лучшая программа, имеюща�
 ```bash
 magnet:?xt=urn:btih:527490B80929E7D61DB8D030053B45A391368367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CE7FC235DD5D5DCC44D30C7D4437A1601E48553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D28841526002D8591B272BE58EFEE094D1124333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ BetterZip – удобная работа с архивами
 ```bash
 magnet:?xt=urn:btih:34209D66CEE4CEEA08DADE51B8695EA3BE07B84E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE102FC3955C45FABD0B2C84BC88DA0EF1D4F803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Aseesoft Video Converter Ultimate – мощная программа для к�
 ```bash
 magnet:?xt=urn:btih:5C7D2D5B2635427380087263CE9CC8B8D9D1BBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ VA - Автозвук Vol.2 (2016) [MP3|320 кб/с] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:06E229EC73A0D936BD44049F7ABD70386944E751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51477EA5FB70EC15E9318D1127726B550DA66D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAC91FB9D9D711DBB87C89306D0220E52D543E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AB9AE775AC2A73255DCFFDB4DAF872EC30F371A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Aiseesoft MP4 Video Converter разработана специально для
 ```bash
 magnet:?xt=urn:btih:2A667A907D96AEE7270897E5048F01DD84D526FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ WinX HD Video Converter Deluxe - профессиональное приложе
 ```bash
 magnet:?xt=urn:btih:8241EBD9C9C936948B2FB838D77C4F2F6002F582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ The Calling - Two (2004) [FLAC|Lossless|image + .cue] <Alternative Rock, Soft Ro
 ```bash
 magnet:?xt=urn:btih:0759BF2C9BCBB767B53A18B183AB1E8505C1B513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:722F21AFEDB0E50AFC9ED43A845EED005749A195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ VueScan — программа для работы со сканерами HP, M
 ```bash
 magnet:?xt=urn:btih:46C1DD01418FA394B8C75E4B019A459589C6F12C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

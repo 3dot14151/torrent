@@ -19,8 +19,7 @@ SystemRescue (ранее SystemRescueCd) — загрузочный Linux-дис
 ```bash
 magnet:?xt=urn:btih:8EEA05168F201969A92AD140A93CD25B13302E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

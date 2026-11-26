@@ -21,8 +21,7 @@ Bayonne - Drastic Measures (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ind
 ```bash
 magnet:?xt=urn:btih:3F6C8A931379F97846242DB02572C83669BFB423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Early Modulations - Vintage Volts (2000) Caipirinha Productions [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:C4C48220F3CF255A2DF27224CA40A1C87EB96EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Thelonious Monk - The Best of Thelonious Monk (1955 - 1960) 2004, Riverside Reco
 ```bash
 magnet:?xt=urn:btih:EF87B471D89333E8DDFE569CFD9E594E06E8EF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

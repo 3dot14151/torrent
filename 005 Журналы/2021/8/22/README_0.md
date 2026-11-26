@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F38E29B2A96F7B6C36E6E3F5B3ED4D0914BA70BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Elektor - популярный журнал по электронным комп
 ```bash
 magnet:?xt=urn:btih:8A96F6C68D5B6817368679B7A89F241EF6FD43E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

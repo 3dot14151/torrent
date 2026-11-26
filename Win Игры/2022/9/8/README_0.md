@@ -19,8 +19,7 @@ The Sin (2021) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6A97A265A8B5459652E33CE19EC22118243B24AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Train Sim World 3 (2022) [Ru/Multi] (1.0.16/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E3D74947369C6998C13AB628D43F9C702F7C4F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

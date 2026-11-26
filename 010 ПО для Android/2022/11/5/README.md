@@ -19,8 +19,7 @@ Jellify – приложение которое может накладыват�
 ```bash
 magnet:?xt=urn:btih:1743FF752E449E1BB62F71E5D23F0FB67E2FFE21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

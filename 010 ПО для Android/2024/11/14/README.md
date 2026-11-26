@@ -21,8 +21,7 @@ Electrodoc - это новое имя приложения Electrodroid. То ж
 ```bash
 magnet:?xt=urn:btih:D07B5AED7487B5B62EDEF8DF7EE08D343DE188B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ MyFitnessPal не будет вас ограничивать в еде, ведь
 ```bash
 magnet:?xt=urn:btih:487F275B5ABDF531ED22C734F14E2000115EE1BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:9AB211095EB80592C1351CCBD527E9399D198BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4D08046CFE51C4ED25135AEC688FC3F93FBE4C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Metro Redux Dilogy (2014) [Ru/Multi] (1.0.0.1 Upd4) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:B81DF9BD79AB188A66C3DD435DDC5E18BC3C7F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A9588D972E2645C403985C219C5C6CCD7D8D06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C41809D7B79062633BF64A5FDC5FFB2E1EB7A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ RAD Studio XE7 — это среда разработки native-приложе�
 ```bash
 magnet:?xt=urn:btih:2A2A2045C037892A98F63A71898DFA4924A01CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Fallout: Anthology / Fallout: Антология (1997-2010) [Ru/En] Repack prey
 ```bash
 magnet:?xt=urn:btih:6E3AEB0F9699AC876790BCA8B428CD09C75B2F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Heroes of Might and Magic III: Horn of the Abyss (HoMM 3: HotA) - это гло�
 ```bash
 magnet:?xt=urn:btih:B1AE043166E29DBD7D9572F09D6D93A43F2D75E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Redump.org это база данных и сообщество, храняще�
 ```bash
 magnet:?xt=urn:btih:1DDFA4E6D7BFCA0415828AD02C8109D15483BF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A3852F4A04001CA94C1BE1F864008487685EF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

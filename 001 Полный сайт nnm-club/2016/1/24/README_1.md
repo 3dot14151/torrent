@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E07FF33C75F275A0C7291638CFC81161744E9348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:655F34B4083B56FA0C9154FD527FB7EB41AF4D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Box предоставляет 10 ГБ под хранение данных и 1
 ```bash
 magnet:?xt=urn:btih:C55269EEB23E003EDB2A5D74935F5005B1279BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Konstantin Klashtorni - Kool & Klean (Volume V) (2014) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:A1716C64F526F8D3F57F54AEC8C03484F85B8BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Konstantin Klashtorni - Love Suggestions: Piano Night (2013) [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:C94DE2DDB2B9459FC719EAD74D716864CD3CAA6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Northern Lite - Shuffle Play (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Roc
 ```bash
 magnet:?xt=urn:btih:CF9CB3ACEF64317541295C2167AE370970CD7FBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCCBC59169B89DE2038AE12DDB9CD502E9D251FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:983BED383BCE6A0619C9924144660B79E077C6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Antti Martikainen - Set Sail For The Golden Age (2016) [MP3|320 кб/с] <Epic M
 ```bash
 magnet:?xt=urn:btih:FA5C0161751C2FCB24C0BA0CBBE23C7F2773991D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C9E3BEB4749924B9B7DC2D9D28FD80DBF0BDDBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Housemeister - Transfer (2016) [MP3|320 кб/с] <IDM, Techno>
 ```bash
 magnet:?xt=urn:btih:3B81BD7649D9335DD19D51C67626EE555B2C9801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28787AA0C846D782B2FAB781882188014DED43D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ Copy позиционируется как бизнес-решение для с
 ```bash
 magnet:?xt=urn:btih:C4ADB5384050150DCEE6D178EC5BCE16F1047400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ Sleipnir - кроссплатформенный веб-браузер, пред�
 ```bash
 magnet:?xt=urn:btih:6BA9A0E18A69FAFACBE9C9AAB10FBFAC6B564669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ Citrio — это быстрый, простой и безопасный бра�
 ```bash
 magnet:?xt=urn:btih:C0B678E9CA32CBAF0421FFE8354607B9A1A8E70D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ Qiyu Swordfish Browser - китайский браузер «Рыба-меч» �
 ```bash
 magnet:?xt=urn:btih:DE1A9BA0AC7B00D35F4A71474417D5A2C345F61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ VA - Offworld Transmissions Vol. 5 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & 
 ```bash
 magnet:?xt=urn:btih:5A6F319944E4EDC09967ACC3A05B5A1117AF2753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E54835CCED0DCAC6DB92BD100FEC5FD444C563F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35E11146CF15EB858C28EC2D7A7D6A837FB5BE5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EEF8BBC48C23D5B3AAB440B59B09F6331F993AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B73BC7049AE6D18BE92A0185984EA9AF9704FED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ VA - The Wave (Generation Trance, Vol. 1) (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:9F05AEFBBC725DFA0EA1FE4AEA47CE28E00792D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:F7D874007D18CCA92BD5A450ABAAAFE42681A91D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ David Arkenstone - Parisian Nights (2016) [MP3|320 кб/с] <New Age>
 ```bash
 magnet:?xt=urn:btih:F6C661D8A982AD08E262700DEC598D5A36CFDBA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

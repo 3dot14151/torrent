@@ -22,8 +22,7 @@ Tin Machine - Tin Machine II (1991) [FLAC 2.0 24/192|image|Vinyl-Rip] <Alternati
 ```bash
 magnet:?xt=urn:btih:F5DE6718718C36B98A18891D70CD2B82EACFB050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

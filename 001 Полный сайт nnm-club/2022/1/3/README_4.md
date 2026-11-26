@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:209DAB721BB574A0263C54625D2D86B47D033832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83A3C3BBF40EAA8C9424AD65D5E095A829B3CF5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ XCOM 2 - WOTC Customization Pack [Ru/En] Mod firstlast2
 ```bash
 magnet:?xt=urn:btih:854746824AA73801D11D9E59523EBB05E5775059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Windows 11 21Н2 (build 22000.376) (20in1) by Sergei Strelec [Ru]
 ```bash
 magnet:?xt=urn:btih:C8C7BBC33F554B594FFF62DD6AA7BD86A60B396B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D49953212CB78DB7A4F88840B0D2F4447305429A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Prana Breath / Праническое дыхание (Пранаяма) v9.4.2_3
 ```bash
 magnet:?xt=urn:btih:63E7953714A4A0C8507CC38DBF48CF1E6D39BCC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0893DB0433F6AFC7F2CC4CED43ECF5FB13465FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.01.03 [En]
 ```bash
 magnet:?xt=urn:btih:9338AEBDF8E747DE63C9A26D985CD2B68944B352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BE9BD910DFEF1FBB2C1F252F04953FB4A5BD3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2816B6EB5463E26E5E1CF7C726EB4CC326CD383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Graph Messenger (ex. Telegraph) T8.4.2-P9.6-2527x Mod [Ru/Multi] - неофиц�
 ```bash
 magnet:?xt=urn:btih:03848BC58830335813618461C86FE376868A54DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Enigmatis: The Ghosts of Maple Creek Collector's Edition / Энигматис. �
 ```bash
 magnet:?xt=urn:btih:9FB2F5DFED3CADD4D24A2DB3C0D862568048B7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4. Фраер(   Читать дальше...   )Жанр: ШансонПрод
 ```bash
 magnet:?xt=urn:btih:8C354E53981B27B79F50C89DC76B467A7461E3FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

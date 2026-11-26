@@ -21,8 +21,7 @@ VA - Rebel Rock Box: Punk & Progressive Mix (CD.02) (2021) [MP3|320 Kbps] <Rock 
 ```bash
 magnet:?xt=urn:btih:127A1053EF3B0AC9C6E3B0A64A25DC16AD47B130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41C509CCED831350029B3C62DD88B658D10043F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ macOS Server для устройств macOS и iOS позволяет легк�
 ```bash
 magnet:?xt=urn:btih:0A2D4984560D583E6762CA282C9BB06C22A7BE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VA - Buddha Luxury, Vol. 4 (Esoteric World Music) (2020) [AAC|~336 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:67C39D6E722656EF367505D1BACCF89753BE28E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Asset UPnP 7.3 [En]
 ```bash
 magnet:?xt=urn:btih:0E96D13B57CF3680A5819278005D339FADC771BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Malcolm McLaren And The Bootzilla Orchestra - Waltz Darling (1989) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:2226985829D1E3BFD47AB5B6368FD4A6E2951CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98E0030B5FC86C489F7D8E97BE8385904FF6984E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2C02954D8C4AA49B503ED744A2D027C2D6B2BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ VA - Buddha Luxury, Vol. 1 (Esoteric World Music) (2016) [AAC|~337 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:140C24FA884C297278B2AF982623BFDE9EAA9501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A72AFC11CB9C45051AAC95B8B2D647342827FA4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ SounceSource позволяет настроить прямо из строки 
 ```bash
 magnet:?xt=urn:btih:E8FBF72057577249EBF3E6CFDB08F085D4F4AE35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ VA - Buste And Flow: Feery Compilation (2021) [MP3|320 Kbps] <Metal, Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:0D9F62B133582FF40EF41320A07E53AACEA78454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C55B197AB5F92F642078DA75CE92102B1F0A1555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CABD0DF110BF8435FA00804AC0A57CF5C066A1C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ VA - Alternative Rebel Rock (CD.03) (2021) [MP3|320 Kbps] <Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:8EDB33641CF5F29B32A016582F76BD66DC5E7DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ The Gil Evans Orchestra - Plays The Music Of Jimi Hendrix (1988) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:8785ADB954081A5759E2F8B2AE69121AF6243803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ VA - Beatport Tech House: Sound Pack #381 (2021) [MP3|320 Kbps] <Tech House, Ele
 ```bash
 magnet:?xt=urn:btih:5DE0214AC1906C3B2D859A7E765D9DD5602F4F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7782D0529B43C5C8D9C232CB633580EDD83C168D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30DA2710F601CC8CC826EA170222D31049F645C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ VA - Beatport Electro House: Sound Pack #382 (2021) [MP3|320 Kbps] <Electro Hous
 ```bash
 magnet:?xt=urn:btih:1FB0187A3DE1F1BF16BC20D358E2A29F8FDC56A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ Mark Farina - 2 Albums (1990, 1992) CD [MP3|320 Kbps] <Electronic, Italo-Disco, 
 ```bash
 magnet:?xt=urn:btih:1BD75C6FCEA5A80392798537A5C42383CBECC66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ AB/CD - Cut The Crap! (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0DF0E1F4C6BE42E41108270C4F461BCBA1D76EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ RTG. Река Нева (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:0317DB79DB261CC52FCA472B0D0A3BBC57C7539B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D93B93119C38CF5E05556B43CCDC58491E2D31D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ Sophie - 3 Albums (1989 - 1995) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Euro
 ```bash
 magnet:?xt=urn:btih:EBF96F8A31A926C435EDB8AF3DFA2DEC21E626EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02FADAB6F43E75D011F33A87DD1710F576691BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

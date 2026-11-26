@@ -19,8 +19,7 @@ ALT Linux 10.2.2 СП [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:0C8B28A0CDFDE8F91385F1AFD39A7C6D5F3D8AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Tails (The Amnesic Incognito Live System - Забывчивая Анонимна
 ```bash
 magnet:?xt=urn:btih:B2F403617FEBC69B329852BD9CE3B6BC53D7BD84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

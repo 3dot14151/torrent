@@ -19,8 +19,7 @@ Google Earth Pro 7.3.2.5776 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E6100A4F70F07059C8A604C282822D29E74F062D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

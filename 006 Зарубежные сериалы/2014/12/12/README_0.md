@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4BC06D347486E49B6BCAF5EC1C0970B3BFF9C33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Halo: Сумерки / Halo: Nightfall (2014) WEBRip (сезон 1, серии 1
 ```bash
 magnet:?xt=urn:btih:C66205D26C9C06141E5B1F2711FF069AF42A4C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

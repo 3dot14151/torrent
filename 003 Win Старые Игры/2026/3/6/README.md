@@ -19,8 +19,7 @@ The Last Express (1997) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CD7287B82FAF78DEBE96C9265F34782C6317F4C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

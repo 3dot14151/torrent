@@ -19,8 +19,7 @@ Rene Molenaar | How to master. CCNP route [3 книги] (2013) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:7D5A4050AF99E2230945F58B07A296E6178A556F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE4F3BB5CFA6C22E142C84FA107D1478FEC2745B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

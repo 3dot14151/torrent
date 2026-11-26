@@ -28,8 +28,7 @@ Holy Grail - Crisis In Utopia (2010) /Japanese Edition/ [MP3|320 кб/с]<Heavy 
 ```bash
 magnet:?xt=urn:btih:11131A1CD3B641605D120E05A923662DCB396C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Pride Of Lions - Immortal (2012) [FLAC|Lossless]<Melodic Rock, AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Prime Time - Love and Hate (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:A134AA7DF565941EBDD9870F5C022B0DFC10F9E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Anberlin - Vital (2012) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:8E0CBD2CDA346F3AAA1AB535E9FE8021B5CF0A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Blackfoot - Legends Never Die (2009) [MP3|192 кб/с]<Rock, Southern Rock, Hard
 ```bash
 magnet:?xt=urn:btih:2BBEF460D331AC6EE221F0EEAF0689469847CFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Beseech - 5 альбомов (1998-2005) [MP3|320]<Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Tiamat - The Scarred People (2012) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:9A2F41A6E374C30A439AA76C21547E99D8D8554D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Dreamworld - 2 Альбома 2 Сингла (2011-2012) Авторская ра
 ```bash
 magnet:?xt=urn:btih:17490A3455F91C99EB14AD1C79A000B8BE94E399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

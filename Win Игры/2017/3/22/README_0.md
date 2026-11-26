@@ -19,8 +19,7 @@ The Dwarves (2016) [Ru/Multi] (1.2.0.74) SteamRip Let'sPlay [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:3639699F64E997EFB5A25E7253FB6D8A8F4F987C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License GOG
 ```bash
 magnet:?xt=urn:btih:E13ED7A918D1C208515CB5CA86C253EE19FF21A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blades Of Time (2012) [Ru/Multi] (1.6/dlc) SteamRip Let'sPlay [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:2D2DA787BF55DF077E635C2E47063356B1ED3F36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

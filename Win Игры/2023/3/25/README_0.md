@@ -19,8 +19,7 @@ Phantom Brigade - это гибридная тактическая ролева�
 ```bash
 magnet:?xt=urn:btih:D65DC31A4ADC7E353B01E536EA2000928CABEEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8993C5213B84E215D1B6326156C29D718F114041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ O&O ShutUp10 Premium 3.2.1111 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6219855F49C8E41F300EBE9133EABEB0AC42F2E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ WSCC (Windows System Control Center) - портативная программа
 ```bash
 magnet:?xt=urn:btih:1489C8F05B785BA4A75CFC2EDDCCDA2DA71351B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:98A20ECF0B2A589793FEBEDAB1B232E8458011A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:CC4AB47BB5ACE7B10DBDDA0EE9007F6C5097FE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Kinescope Downloader Video + — это мощный автономный ком
 ```bash
 magnet:?xt=urn:btih:D91443ACD1AC956C4DC03AD7DE74435545911513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ PrivaZer – полезная утилита, которая поможет ва
 ```bash
 magnet:?xt=urn:btih:4E7962E353F89D0733E04CCEDE6491E08B024531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Tor Browser 15.0.18 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:87C3E4D9C9FB4711AD608FDC2635CAD053A5A004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Rage - Secrets In A Weird World (1989) [FLAC|Lossless|image + .cue] <Power Metal
 ```bash
 magnet:?xt=urn:btih:113930CFA74831F07A3F4E6190F41E04925E80EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rage - Reflections Of A Shadow (1990) [FLAC|Lossless|image + .cue] <Power Metal,
 ```bash
 magnet:?xt=urn:btih:ACB20FB7EC1EB002FCC8AB77D9F87239D21ADBD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Rock Vibes 2021 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:5002BD1565B655504EDB8B84F561521488ECA389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rivals - Sad Looks Pretty On Me (2021) [MP3|320 kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:F39DDAEF244AB75890294F8682C15F79EEAAA8D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rafael Pacha - Al Rincon Por Sonar (2020) [FLAC|Lossless|image + .cue] <Sympho P
 ```bash
 magnet:?xt=urn:btih:70587407A74D4795DDD9FD6AA51CB332F93D135B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Motus Tenebrae - Deathrising (2016) [FLAC|Lossless|image + .cue] <Gothic Metal, 
 ```bash
 magnet:?xt=urn:btih:77326A6CBC0F2A60DF025554D46FBBC7C313AB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Out Of This World - Out Of This World (2021) Japanese Edition [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:DB7FEBA7F6F85C2BA3FEB0E3E6445F1C9C03C30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Suzi Quatro - The Devil In Me (2021) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:74D765019E5BDB39BF4A1760D71AC04F03344078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ David Gilmour - Yes, I Have Ghosts (2021) EP [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:478EDECEF372358194CB0D9F6870108A09F36078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A297A3CE164CF1C5535CE77D11B50501B3B593E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

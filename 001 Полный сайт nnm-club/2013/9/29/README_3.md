@@ -19,8 +19,7 @@ B.  Walkin'...(Zumbae) Instrumental Version  :: 06:08Жанр: Italo-DiscoФор
 ```bash
 magnet:?xt=urn:btih:C67282A2B6CF3D72EB7E3B7ED21589F4902C8FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ B5.  The Broadcast  :: 06:38Жанр: Pop Rock, Synth-popФормат: Vinyl, LP
 ```bash
 magnet:?xt=urn:btih:B06E2B07DFEFE98F0E4E3FAB4642A951FBD8E64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Camo & Krooked - Zeitgeist (2013) [MP3|320 kbps] <Drum & Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:95CBA7DDCDC2DD25192F7FCD6E423A3280669604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D5A2F9685112EB39E3626C91DCF0A93DCE2A005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Wallpapers - Best Mixed Wallpapers Pack (29.09.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:AA8F2281D362414264F5F77D885486E4DFF2615F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3036E14DCF939C1EA4029F0C5E15D7E18E13BC05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Mike Oldfield - Crises (Remastering) (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:22E52E370733D116F869081B4F18E3945728F1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ XXL – информационно-развлекательный журнал �
 ```bash
 magnet:?xt=urn:btih:3FAF41895C4742B90B7F09D61A45206536BC7403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20DC6D9F36E3C21C976C868D4CABD94011CD836C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74DD602F5C5B70E4E91D520F8B79F81BFE984002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +335,7 @@ B4.  I'll Be Your Lover  :: 06:19Жанр: Eurodance, Synth-popФормат: Vin
 ```bash
 magnet:?xt=urn:btih:6A23A01B88019496BCDC2499D0D12C722FF4A708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44EE5D25BF8EEC5AED2A1209DD621832A1D4FDA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ Thirty Seconds to Mars - This Is War (2009) [AAC|WEB-DL|256 кб/с]<Alternative
 ```bash
 magnet:?xt=urn:btih:97B306FDCB1B5F2E3A4690D9E4352652B6905F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +421,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:4D9616ECB66B4A532C41169C15C493F35EB69963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15A9D8F8CB49979FE35675078DE6B3F086846FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:638F1928237AFEFC226466F9B847A2BB458B069C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C84401D875DF00EDA66D57956469377C420CB073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87B050DA424D5797CAB66EFB4F0A74E4FA440DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47FE5C103D17F32C660E963B3339D2D559192FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ Haim - Days Are Gone (2013) Deluxe Edition [ALAC|Tracks]<Indie, Alternative, Roc
 ```bash
 magnet:?xt=urn:btih:6F08BAB3FDA0007A052DD698721F4906F2B99000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +625,7 @@ B2.  Jump In The River (Instrumental)  :: 04:08Жанр: Soft RockФормат: 
 ```bash
 magnet:?xt=urn:btih:39EDF4C97B7E082D3DF4F466813BEE792159E485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDC55F7781345BC22CA80768AA082EB711EE7815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ Thirty Seconds to Mars - Love Lust Faith + Dreams (2013) [AAC|WEB-DL|256 кб/с
 ```bash
 magnet:?xt=urn:btih:95A1CB88F8469BB317A43D691EF0149A13486A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +712,7 @@ Intel® Processor Identification Utility 4.75 [Ru]
 ```bash
 magnet:?xt=urn:btih:4CC6C084C527B8ECFB53F40289A83AB1B1F135C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6305C4607833FFA5E40B898DFE11DBFA2C65BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

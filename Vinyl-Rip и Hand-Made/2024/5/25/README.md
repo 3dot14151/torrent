@@ -22,8 +22,7 @@ Municipal Waste — кроссовер-трэш-группа из Ричмонд
 ```bash
 magnet:?xt=urn:btih:8CA737E179C9A6F8932A72CC8956D44374A9A614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Saul Hudson, более известный по сценическому псе�
 ```bash
 magnet:?xt=urn:btih:7EE5A2BCB7155BAAA65E36CEE3460440045CC738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

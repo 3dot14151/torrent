@@ -22,8 +22,7 @@ Fish - Acoustic Session (1994) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5AC3B85A5B601DF232B1DA443B602B11CF11798A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F02DCCBB8E8FB1AC151018DAA1C25CF20128C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Scorpions - Animal Magnetism (1980) 50th Anniversary Deluxe Edition /2015, BMG/ 
 ```bash
 magnet:?xt=urn:btih:B9D7DECD37AB0B151E32BA597CACEB8008B8E29F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Scorpions - Blackout (1982) 50th Anniversary Deluxe Edition /2015, BMG/  [MP3|32
 ```bash
 magnet:?xt=urn:btih:BA51CCA47BDE296F52FD0724157CA930C8FE11AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Scorpions - Lovedrive (1979) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|32
 ```bash
 magnet:?xt=urn:btih:FC9F19FDA33BFF3CF1C2305771B600DC5965FE0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Scorpions - Love At First Sting (1984) 50th Anniversary Deluxe Edition /2015, BM
 ```bash
 magnet:?xt=urn:btih:5C11128D0F6C90074DBC6261912CBE0BDF6BDDEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Billy Gibbons And The BFG's - Perfectamundo (2015) [MP3|320 кб/с]<Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:FEC7154A4638E183897566B0C9B41E6F2CFBA14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Yngwie Malmsteen - The Yngwie Malmsteen Collection (1991) Japan [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:6C7FC5F8166882740EF4452176FDDAC9DD9EE97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

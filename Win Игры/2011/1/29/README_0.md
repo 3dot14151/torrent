@@ -19,8 +19,7 @@ Jewel Keepers: Easter Island / Хранители сокровищ: остров
 ```bash
 magnet:?xt=urn:btih:5B4ECAEADCD4AD6447FEF6E6A9D93527D99F69F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phantasmat Collector's Edition / Фантазмат. Коллекционное 
 ```bash
 magnet:?xt=urn:btih:39E3621CB783BD3E7F6056B41B93494712A7BAE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cradle Of Rome 2 / Колыбель Рима 2 (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:D526B18CAE0C8323642F40D9C7E2F94B32578670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

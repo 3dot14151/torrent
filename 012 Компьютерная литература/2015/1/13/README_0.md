@@ -19,8 +19,7 @@ Beginning Android 4 - обновление к Beginning Android 3, написа�
 ```bash
 magnet:?xt=urn:btih:90A026E81B1779938F97520AACCD2CAF784C53A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

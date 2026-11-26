@@ -21,8 +21,7 @@ Ubuntu 17.10 Artful Aardvark Beta I [i386, amd64] 10xDVD
 ```bash
 magnet:?xt=urn:btih:5506ED10DFB46F6379411D5C9979E9B730CF5D1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

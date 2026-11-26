@@ -19,8 +19,7 @@ Living Legends 3: Wrath of the Beast (2015) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:C17C298E03E9E5ED94FD6E2500DA3261468E82D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Citizens of Earth представляет собой оригинальную �
 ```bash
 magnet:?xt=urn:btih:5C1194AF2D18491E2944521C7AAF5F27730571C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

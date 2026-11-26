@@ -21,8 +21,7 @@ VA - Just listen ... Part 32 Other Soul (2026) [MP3|320 Kbps] <Blues, Blues Rock
 ```bash
 magnet:?xt=urn:btih:988610AC49F0FDE2FC93840E19D00D9978A5C2F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Just Listen ... Part 31 Other Soul (2026) [MP3|320 Kbps] <Blues, Blues Rock
 ```bash
 magnet:?xt=urn:btih:8C7F88AD71317A0087414011C8439AD71CA6A3E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Just listen ... Part 30 Other Soul (2026) [MP3|320 Kbps] <Blues, Blues Rock
 ```bash
 magnet:?xt=urn:btih:37A1091F2C47AF4E1A5AEB8F1F384A87CE59335D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCA6C756D445BD2967D623A2DD307F81FCF0900F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Titanosaur - A Thousand Suns (2026) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal,
 ```bash
 magnet:?xt=urn:btih:6BC4B7AF73FEABD667FBF92C57C4C74C35914BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Loudermilk - The Red Record (2002) [FLAC|Lossless|tracks + .cue] <Rock, Hard Roc
 ```bash
 magnet:?xt=urn:btih:83916773A56D2A99E6BAD2FA2E1648F8357341F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ The Verve Pipe - Villains (1996) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:D102C6336B1C8EC97D91C44B2F033F020E7D01F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F471573E8EF8DFBC35ABD56769117E24138D5138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2811D9B90D19006F0E0BD4DDFB5CCF1EDECF3C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Visage - Demons To Diamonds (2015) [FLAC 24/96|Lossless|image + .cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:DF1666194EBE10ABA3CDC724CF7F841B8DB71B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ NG. Лев / Lion (2026) WEB-DL  [H.265/2160p] [4K, HDR10, 10-bit] (сезон 1
 ```bash
 magnet:?xt=urn:btih:01A1DCF327327C584C5EF4AE3222CE982AB75040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ NG. Лев / Lion (2026) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из
 ```bash
 magnet:?xt=urn:btih:C71CE93B31A6A914C80BCD68EA193B31722AA078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A276A2D709EBD7955BF88A169EF5D7EAFBB74BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ VA - Balearic Trance 2026 [FLAC|Lossless|WEB-DL|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:D2350E8989D19EB3FE901FE8AEEC159531010A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1BED0F53B501035009A57A04216F12D6247CB16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D202B5C78B3CC2C922E7E1A88161971C86C27B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Tales Of Perdition - The Theatre Of Existence (2026) [MP3|320 Kbps] <Symphonic H
 ```bash
 magnet:?xt=urn:btih:6ECB8E318FA363D8E58CD4FADECE2B2295CBC470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16EBCFA77FE3B79730359D55ECB746684B67CD85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ LibreCAD - одно из лучших бесплатных кросс-платф
 ```bash
 magnet:?xt=urn:btih:6BB85E910B6C4415A5BF3B9AE1D05E4B60C7C330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B04C1C70207137A456A56CA2962F4C81159B8B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59F0C979F33C125CDA99A4F710964CEEBBD9CD89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A2BDF2680825D949B681B732FD90A39D29AA760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D8CAC05802ACE32AE87540D46C58253B20D167B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ Keeper (2025) [Ru/Multi] (1243949c) License GOG
 ```bash
 magnet:?xt=urn:btih:8346E717555EB390C11EAD104FFE8A394D1294DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ Pyroclast - Fractured State (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:A73F9DF3D44152E986F03388C4A900F7757D36B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4ACBD243F9C960A86600C50E4D0D53C31D5629CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ D.O.A. (DOA) - Fight Back (2018) [FLAC|Lossless|image + .cue] <Punk Rock, Hardco
 ```bash
 magnet:?xt=urn:btih:02C46AF3FE31D2B79D7E9F7568F486343867ECA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Travelling Orchestra - Early In The Mornin' (2016) EP [MP3|320 Kbps] <Blues 
 ```bash
 magnet:?xt=urn:btih:520CBA7042F750CB18D2574014C712009E580D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ The Travelling Orchestra - 22 (2018) EP [MP3|320 Kbps] <Blues Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:6E8F7C9EE7507545E6E87F6D44F1DAD85507D3ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Steve Perry (Ex. Journey) - Traces (2018) [FLAC|Lossless|WEB-DL|tracks] <Soft Ro
 ```bash
 magnet:?xt=urn:btih:F036D38FAE470B73342BE7080E89A15E5ED92CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Echo And The Bunnymen - The Stars, The Oceans & The Moon (2018) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:CB562E25255266F3C2D19247EED2F630387CB823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Alter Bridge - Live At The Royal Albert Hall Featuring The Parallax Orchestra (2
 ```bash
 magnet:?xt=urn:btih:C61BDF36C3CAFB4C135E7DEF77164A75F8C18C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Tom Petty - An American Treasure (2018) 4CD Box Set, Compilation [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:D091FCA564D085E90373F0C7E96ECD7935AB3D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Cinderella - The Mercury Years (2018) 5CD Box Set [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:E9C52FABB5B76017377EFBEFAF482ABC82E7B7ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:62CB21CF9843A4A9BF4DF522F912E81DB88E263E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Freddie Mercury and Montserrat Caballe - Barcelona [Japanese Edition] (1988) [MP
 ```bash
 magnet:?xt=urn:btih:9A2BFDDF029189F7CC6352BD7F769603D8E44E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Freddie Mercury & Montserrat Caballe - Barcelona (1988/2012) Special Edition [FL
 ```bash
 magnet:?xt=urn:btih:499CB693706C09BC26ED740267C6940C8AF592CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

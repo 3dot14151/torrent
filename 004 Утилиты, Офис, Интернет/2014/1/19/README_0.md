@@ -19,8 +19,7 @@ TransType 4.0.1 Build 5095 [En]
 ```bash
 magnet:?xt=urn:btih:8C611C7C1CBA995C5E04E1B077E7CEEDB978C169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

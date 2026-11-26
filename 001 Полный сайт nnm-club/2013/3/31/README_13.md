@@ -24,8 +24,7 @@ VA - Trance Mini Mix 2013 - 02 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8DE7CB863971033BBD0369CD7C87A856D5077449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Painting Jazz Duo - Talk and Fly (2013) [MP3|320 кб/с]<Jazz, Contemporary Jaz
 ```bash
 magnet:?xt=urn:btih:C1A0B30E73CE71C3F001E975E156F0F9E767D03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Andrew Lu - Club Universe Radioshow 063 (28.03.2013) [MP3|320 кб/с]<Trance, P
 ```bash
 magnet:?xt=urn:btih:D643624AA74C994D37F9FED2F032DAC5F598C24A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ VA - Totally Lounge 100 Tracks (2013) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
 ```bash
 magnet:?xt=urn:btih:040921D8319944087474ACC0048A3A061EA62883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDC0B7415F3822EBFDFA185D3C6431F6A8FC8AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Markus Schulz
 ```bash
 magnet:?xt=urn:btih:07E34CE86945DA04DEA910ABC1F1476BA299F2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Ananda - Still Waters (2010) [MP3|256 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:FC0729ED86B64D735B8C4FC7B58867805F13AC12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:548768C02CF9BABE28519F7C9342DFBAC930D801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Barbara Dennerlein - Tribute To Charlie (1986) [MP3|320 кб/с]<Jazz/BeBop>
 ```bash
 magnet:?xt=urn:btih:3262AE98651983FEB4179D8ACA2142608D94BC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ VA - Pro Dance Vol. 80 from XBSmusic (2013) [MP3|128-320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:6F807DDB11BEDC24CE95BB43ED42A84B6614B7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ SUMo - утилита для отслеживания обновлений пр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +404,7 @@ Teen Top | No. 1 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:4330A721FA6C7812CCAE55293D7B863BD0C5DB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +438,7 @@ Paris - Only One Life (2013) [MP3|320 кб/с]<Melodic Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:06431D3AC038721D3629F18283FB35356E206894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49346181236B78B56BF1BE56C20E885F9A5C78A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +506,7 @@ Nicole - Night Tree (2003) [MP3|256 кб/с]<New age, Instrumental, Native ameri
 ```bash
 magnet:?xt=urn:btih:EAEC04700E65CC246B30754E6D5F93C4503E7435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +533,7 @@ NirLauncher Package - это пакет из 166 небольших утилит
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +567,7 @@ VA - Super Дансинг Vol.10 (2013) [MP3|192 - 320кб/с]<Dance, House, Pop
 ```bash
 magnet:?xt=urn:btih:FB1C437C107ABED3F0D16ECF399069D6C5493CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C79937C26058A797874411482FEA44029ED77E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E2A86F5FA66319F763E7B9E282E63D9293C4A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +651,7 @@ Gene Ammons - It's the Talk of the Town (2013) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:CED69F74170D6A4605CF569D9E6DD9FFF15167BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +685,7 @@ Barbara Blue - Jus' Blue (2012) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +719,7 @@ Angizia - Des Winters Finsterer Gesell (2013) [MP3|320 кб/с]<Avant-garde Meta
 ```bash
 magnet:?xt=urn:btih:D48644CCF271726308E2F1C9A27F99CCFB1A12BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +753,7 @@ VA - Super Дансинг Vol.11 (2013) [MP3|192-320 кб/с]<Dance, Electro, Ho
 ```bash
 magnet:?xt=urn:btih:AE32A1FAB8BF4C58245F21FC5AC0F69BEC4F7CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +778,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4F2120435CEB257D1CB11F051B0DCBB5C3955A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -828,8 +803,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5A373A90908840574DAF14DE96B57C614AD494C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

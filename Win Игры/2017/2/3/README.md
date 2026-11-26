@@ -19,8 +19,7 @@ Galactic Civilizations III – самая глобальная игра-песо
 ```bash
 magnet:?xt=urn:btih:A31CADFFC6C07A93D5A788EB8FF85861CCCD1990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

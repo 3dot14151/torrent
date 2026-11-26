@@ -19,8 +19,7 @@ Blades of Time (2012) [Ru/Multi] (1.0.0/dlc) Repack Other s [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:80234ED22F18094137D3C57588DA68D4C6B5213B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

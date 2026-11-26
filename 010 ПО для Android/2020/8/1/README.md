@@ -19,8 +19,7 @@ Circle Cutter v1.4.5 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:7E3551610F34E101F3AF9F0D76CC397384E4F8C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Librain - приложение, которое поможет вам повыс�
 ```bash
 magnet:?xt=urn:btih:FA99139C2A39AFB2ECF9D0A9F43AD3F23602779C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

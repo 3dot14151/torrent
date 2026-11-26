@@ -20,8 +20,7 @@ Knorr - это плагин, который добавляет интенсив�
 ```bash
 magnet:?xt=urn:btih:B567EF1625447AA5C5E78254514F431D69E3E813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Hi no Tori | Phoenix | Жар-птица [2004, TV, 13 из 13] HDTV 1080p raw
 ```bash
 magnet:?xt=urn:btih:0D4D9E2BC49A5FA4BB9F9998E82A2D3D8E7AF5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Master of Typing создан для тех, кто хочет научитьс�
 ```bash
 magnet:?xt=urn:btih:02BE4438C83701B0D2550002190AE48768ACF76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:10931A105BBF48B90F6CC8BBE30E51EF998AD1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 ```bash
 magnet:?xt=urn:btih:6E292C042EDCA4CADC3ADA1300D76D28C41ABDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20341E2F968B848DA17BBCDAEE382E88D1AC85C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AD2EA15EE6A71C04740694AC78A3CEB4C3E4190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27D18AEC81AF012328716F89DAC7D05A4DD717B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Mp3tag 2.99 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BDAFFB82C62B74FD49AC5373AFFB713DE16CCD99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7F395AFAF680EDB4AC5EF5BC2022AC0B68555D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ BitPerfect - простой, легкий в использовании, муз�
 ```bash
 magnet:?xt=urn:btih:11112668763FB3587BA1AF28AE63BCE0C553E68E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Watercolor - Профессиональное многофункциональн
 ```bash
 magnet:?xt=urn:btih:A6DD789E2342A2AA552EDF26AAE3431B603B3354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:28B8FA2E679F16C2669C0528FC3FDCA1A230FBF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Etcher – простое и надежное приложение для зап
 ```bash
 magnet:?xt=urn:btih:45E9AD97CD3DE64212FE00D46584458F061614D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Hi no Tori: Uchuu Hen | Phoenix: Space Chapter | Жар-птица: Глава �
 ```bash
 magnet:?xt=urn:btih:29D0867A80582405AD9CF0A92C8EB9126080F665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ Hi no Tori 2772: Ai no CosmoZone | Phoenix 2772: Cosmos Zone of Love | Жар-п
 ```bash
 magnet:?xt=urn:btih:C3DF24325108E160FD473B87B160ECA984E5A84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ VideoPad - (   Читать дальше...   )Тип издания: macOS Sof
 ```bash
 magnet:?xt=urn:btih:3C3E09FBC59928464EAA1B0CAA7CC3A937D8AB9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC6D2F8397F9AC63F20811D1EF82127B903A68A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:A767070A5F96A44C686D6234EDBCE0963EACE558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C94870058792C577D9D0C82512787044513DD27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +522,7 @@ Mixed Art - Если вы ищете кратчайший путь для соз
 ```bash
 magnet:?xt=urn:btih:A56113A383108FBC0956E62E4EF835D13B89CC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +547,7 @@ Vector Spatter - простой в использовании экшен фот�
 ```bash
 magnet:?xt=urn:btih:BE6CB3CAE43E6D6F3E0545EDC617F96749CFD3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D88EAE5A11275CCCACAEA505205CFF5A28201B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +599,7 @@ ID Photos — профессиональный инструмент для ре�
 ```bash
 magnet:?xt=urn:btih:76B4712F421696E853EF392DD9FE3FF8DB04D2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +624,7 @@ Val x Love | Любовь Валькирий [2019, TV, 2 из 12 эп.] WEBRip 
 ```bash
 magnet:?xt=urn:btih:17F1E857260B0EC2A6DA0A2CE73384D151D94483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +649,7 @@ Live - это быстрое и гибкое программное обеспе
 ```bash
 magnet:?xt=urn:btih:39E31BB5208970374EFFFFDB56FFE743DE21A095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

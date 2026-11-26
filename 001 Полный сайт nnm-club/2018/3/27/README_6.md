@@ -22,8 +22,7 @@ Paul Jeffrey - Watershed (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:A975549D4551F4EEBB3D25A5CC3507B25BA084FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Soulreaper - Life Erazer (2003) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:7C07E5F8699AE5EA080F4BF8A9A8B88476CBCF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - New Prog Order Vol. 3 (Compiled by Shyisma)(2018) [MP3|320 Kbps] <Trance,Pr
 ```bash
 magnet:?xt=urn:btih:8DD881DCC4D2C82669B55545B2C98CA64DE5D5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Recoverworld Radio 018 (Mixed by Para X)(2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:765A3FB11A85DAA1C9ED3A161FD0FDF3F5087932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dirty Vegas - Electric Love (2011) Om Records [FLAC|Lossless|tracks + .cue] <Hou
 ```bash
 magnet:?xt=urn:btih:C5AAA5782B12807E3D6548ECB5D89D117A9E24A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mary Chapin Carpenter (Мэри Чапин Карпентер) - Hometown Girl (
 ```bash
 magnet:?xt=urn:btih:8061C7B283FC62277F71D6A95B66794614D8EDD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5486D85FF6EC956DBEAF6878C9B81189DBA60AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Mary Chapin Carpenter (Мэри Чапин Карпентер) - State Of The He
 ```bash
 magnet:?xt=urn:btih:CC965D55EF67A35736655621EFE1B067A9215C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Andrea Cossu - Spira (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:3EB57E1E6DC3B6E8CFFB2B351874ED8D004EE463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B3A3D79693B4406CFEEC860DC0883A82EF6E5FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB53C381A8EF9C9530305F5BB490EDECEA699EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDEFC92067698C75ADE830D1A595E902BB36A837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D3B7DA6044D4E733F2A6A9E14BA3FF195DA19A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Resonance - The Time Machine (1976) LP [MP3|320 Kbps] <Electronic, Rock, Funk-So
 ```bash
 magnet:?xt=urn:btih:6BAA813B221166777520326F43C23A1D20F59942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3D49A2290A70D1FD3350AC467723EF9A4B7B8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ The Mover - Undetected Act from the Gloom Chamber (2018) Planet Phuture [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:07927C41A8D8C6570CEF338F139968EE2E52B84A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79637D1602B189976C5D5B1B7A5A139036C89F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Reflection - A Whiter Shade Of Pale (1978) LP [MP3|320 Kbps] <Electronic, Funk-S
 ```bash
 magnet:?xt=urn:btih:C53B7B74AA71D620261A0F1B9A8377890D742AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ VA - Coastal Remixes Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Tran
 ```bash
 magnet:?xt=urn:btih:D1C66E6157BB1AB918D922DBBF706D875E865853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63D1CB06EAE563E2F49488ABD041140D406EE697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED45E58620B8641F45F0E6E4978AC5A2ACA85969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Fabio Carioli - Relaxing Sensation Music (2018) [FLAC|Lossless|WEB-DL|tracks] <A
 ```bash
 magnet:?xt=urn:btih:4815444050138D3FE9EC255C41AD220B03B040AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:210E2DA275F9F33143D63F4D978310915FD4C237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F073258B91FDED73F7C33D6793E6FD35AB3E7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D27CD105ADBF13D38EC30F19A1A58C933A9EFFBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF9C5EE8C3DCA48E592167607D503A1B4E1C5920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

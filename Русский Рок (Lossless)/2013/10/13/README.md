@@ -21,8 +21,7 @@ Zorge - Формула EP (2011) [FLAC|Lossless]<Alternative>
 ```bash
 magnet:?xt=urn:btih:4FF6D1D2766D5F86213815A23C1089DF17899965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:231DBC6EE01F45B12E97843CE17561311F4F6348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

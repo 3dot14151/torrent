@@ -21,8 +21,7 @@ Wattpad-Присоединяйтесь к миллионам любителей 
 ```bash
 magnet:?xt=urn:btih:5871F5F28A96D8E09ED825E3D7D6A9967C6C71BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55D467FF6E4A21608491A066B9842538B12DE71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

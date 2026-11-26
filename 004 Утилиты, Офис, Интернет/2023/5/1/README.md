@@ -20,8 +20,7 @@ Advanced IP Scanner - это быстрый, надежный и простой 
 ```bash
 magnet:?xt=urn:btih:6A65A2E626DD9B3BDF9ABBC50C933674E57B607C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

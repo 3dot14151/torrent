@@ -19,8 +19,7 @@ Cyberfox 52.9.1 for Intel + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7916237ACC340D0618AE6D60B53AF740BE76D274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

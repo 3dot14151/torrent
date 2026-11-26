@@ -19,8 +19,7 @@ The Book of Desires / Книга желаний [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:12CDE37CE97E35E0B8C7F604C843E7DECC294331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Closure – логический платформер, использующий 
 ```bash
 magnet:?xt=urn:btih:C7CBB86DFA33DD0C2A3D5761B88C0C040BB07AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grim Tales 3: The Wishes Collectors Edition / Grim Tales 3: Желания Ко�
 ```bash
 magnet:?xt=urn:btih:5E1225AC2BF5C47D8452C196F749F751F9653C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

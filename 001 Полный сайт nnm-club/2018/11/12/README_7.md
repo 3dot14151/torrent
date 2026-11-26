@@ -22,8 +22,7 @@ Eric Alexander - Song Of No Regrets (2017) HighNote [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:21B8540B9EBA18C4BC1C4645D01EF80D2719AB58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Billy Eckstine Sings with Benny Carter special guest Helen Merrill (1987) EmArcy
 ```bash
 magnet:?xt=urn:btih:A29E2987E2FE554645AD63B578EA4B86AFC1E3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Manimal - Purgatorio (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4C4378DC4196B7166F042887854911250188D3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ MacroVision - Skyroom (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 ```bash
 magnet:?xt=urn:btih:35FE9B7D6FD8B362EBEFBCAC9DF65673CF0C4055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Anita O'Day - Jazz 'Round Midnight (1954 - 1962) 1997, Verve [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:F26BA653FC760473357B1547631CA000E1257F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ A Dying Planet - Facing The Incurable (2018) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:01D6031E1486AB9F2E0E3F49E51E9CBF36AA8B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Paolo Lucchi - The Dawn Sessions (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:F4764E68BC5BAB61565BFAA513F70AAA14447CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Ella Fitzgerald - Jazz 'Round Midnight Again (1956 - 1966) 1995, Verve [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:B684C3634D2CDB9FB719020EE7F2F77ED15B899D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Clifford Brown - Jazz 'Round Midnight (1954 - 1956) 1993, Verve [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:94420C3D7198EE35CA7B757947B73EA869737763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Billy Eckstine - Jazz 'Round Midnight (1950-e - 1960-e) 1994, Verve [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:25A70636C37CA11105AA3B17AFAEAC641CE634E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Sun Ra And His Arkestra - Super-Sonic Jazz (1956) 1991, Evidence [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:47B7787665FCFE7985B828525CF4E7247CBBB284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Milt Jackson - Jazz 'Round Midnight (1964 - 1968) 1997, Verve [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:538FC140C8094FF873738B4137C25E744630C303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ VA - Spartaque - Codex Podcast 001 (2018) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:D8340B2688FA12864378D5ACD54505CB21BFFF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4226B876C0FCE76818B0B553878381A4F92D90FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Privatus - это простое приложение для удаления н
 ```bash
 magnet:?xt=urn:btih:A9137BFC67D900F6FC40C4777E36E0D0A9626975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Antonio Carlos Jobim - Jazz 'Round Midnight (1963 - 1994) 1998, Verve [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:D9010E54ED9E71A4212213E1412E117E2AE3CC9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ VA - EDM Candy (2018) [MP3|320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:8A20B6A1BAC4047648A69A3A83B83F08D4D3AFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B6736593B6F108490BB7DA1E795FCC962E048F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ VA - Luminosity presents A Night Of Unity by Ferry Corsten (2018-10-18) [MP3|192
 ```bash
 magnet:?xt=urn:btih:EF9019BA44F8D858FD02BD7F53D87A2B7ACB0D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AADF4F12E9341F26A132D0A33837DB2061104FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ Gabriel & Dresden - Live @ Output (Brooklyn, New York, United States) (2018) [MP
 ```bash
 magnet:?xt=urn:btih:457A784717E5B5A8C4FE86E29372B1DA554F2C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ VA - Dance Party 2018 (2018) [MP3|320 Kbps] <Dance, Club, Tropical>
 ```bash
 magnet:?xt=urn:btih:96D466547CBA4D8E45F92D10AD364189F5B4F9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:60D7E0C26CB9BC5FE8D11DCB66F3D6421E96F8E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ Michael Logozar - Passage (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:75DA613E63B2F0A42DE289705686364A6561A052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A53FD5F3E7432C67CF7E553A54928D91F5C43A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ VA - Finest NY House 2018 (2018) [MP3|320 Kbps] <House, Nu Disco, Minimal>
 ```bash
 magnet:?xt=urn:btih:78F1B37893A175F75C8E06ED226BFE8460AFF344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

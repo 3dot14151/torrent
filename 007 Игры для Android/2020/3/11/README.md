@@ -19,8 +19,7 @@ HERETIC GODS - Ragnarök - классическая изометрическая
 ```bash
 magnet:?xt=urn:btih:005E35AA9DA119B69FFDAD5EF4395D1BB9793811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:CBDAA91926412E93F560CCA406E13C96B8AC2107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5266004983297D353F2E27123978DC27CAB6C8FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB336246A3DEB1401D51B1EFEA2FDABA43BE188F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Chillout Summer Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:4223F63151095BFD5B58598C550C457641B208F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Trance Summer (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:EA22503960AEA3A4BCA476CA15AA2ECA25F3B368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Beats For Life Vol.1 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep H
 ```bash
 magnet:?xt=urn:btih:8125EF0CF942610435E9B494C6BCFED7889660A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Chill Out Selectionc Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:8BA6E2BC41E7601874D34BB22AA092D572D3D711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Yogamatte Vol.1 Yoga Meditation Chill Out Tunes (2017) [MP3|320 Kbps] <Bale
 ```bash
 magnet:?xt=urn:btih:A61C88858283332691C33132CE28C65EE049F123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Essential Guide Progressive Trance Vol.13 (2017) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:1A2A4497A08CFAF236AEABF6ACE63BE62677F9C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Discotech - The Sound of Nu Disco Vol 1 (2017) [MP3|320 Kbps] <Minimal, Tec
 ```bash
 magnet:?xt=urn:btih:65C5425164BC95B6639293F45083DF8F8A6CD2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BB2AF8C553D77CAA171881C47D19E00131C8D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Zappi Rocks Ibiza (Compiled by DJ Zappi) Vol. 1,2 (2016-2017) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:705E34B253C7BF60D6D6244C368672A0B138C693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ VA - Beats For Life Vol.2: 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep 
 ```bash
 magnet:?xt=urn:btih:753A1E56ED82C58E48AD6B60A3F2ED50F3DE7BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Oli Brown - Heads I Win Tails You Lose (2010) [APE|Lossless|image + .cue] <Blues
 ```bash
 magnet:?xt=urn:btih:D98C6B706400284A674F096CD0061230AB7370A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB1D69A3B7ED5086831C04D004C2E23E94344740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8FDC888776D5DB0F24C827EBEC524D01666FDDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Jim Perry - I'm Still Thinkin' (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:D36C3DA77C298FD8E2E0582D4D70AA308946D573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ VA - Acoustic Unplugged. Bar Lounge Compilation Playlist 2017.2 [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:E69B4DB645E19621CFB3909556BF5086B19265B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ VA - Balearic 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
 ```bash
 magnet:?xt=urn:btih:768BCA7E4CA428684EE36E10775FD82F83A36F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83361F2F19242610C022397D60AEE98FC8AAFE15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD54CFAC109FC87482AAA70AD59D661C69BD09B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Tomates Time Management помогает вам повысить произво�
 ```bash
 magnet:?xt=urn:btih:1DA3B5F3715072C219C59F454F3A39252DC3A078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:912E23D8DE3B21E11E547983194A6B5D8811A2DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ TDHDriver aka Heaven42 - My Fantasy World (2015) [MP3|320 Kbps] <Italo Disco, Sp
 ```bash
 magnet:?xt=urn:btih:29C47BAD4333375BDA7C0BC1B266BBA235E15058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C720B77276E2040C560F86EAFC3241F314535ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ Moto GP. Сезон 2017. Gran Premi Monster Energy de Catalunya. Этап 7. Г
 ```bash
 magnet:?xt=urn:btih:110CC4C3351CB24F9BB1CF30FFD78C6B61CDC831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

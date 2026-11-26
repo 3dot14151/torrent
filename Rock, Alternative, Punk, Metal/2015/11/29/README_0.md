@@ -22,8 +22,7 @@ Metamorphosis - After All These Years (2002) [FLAC|image+.cue]<Neo-Progressive R
 ```bash
 magnet:?xt=urn:btih:077E890C41BC5305A969F73B2EF4A0E0838A04CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chris Isaak - First Comes the Night (2015) Deluxe Edition [FLAC|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:3D93BD2546C72002702EE789F5CCC391A41692F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Roger Waters - The Wall (2015) [FLAC|tracks + .cue] 2CD Live <Progressive Rock, 
 ```bash
 magnet:?xt=urn:btih:0655D9E0BE47EEB7ACC18F52E4EB8296DA6D6FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deep Purple - The Collection (1997) [FLAC|Lossless]<Hard Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:5682C859F169EB5F8B0E6DF927F22E07827401C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fish (ex-Marillion) - Vigil In A Wilderness Of Mirrors (1990) [FLAC|image + .cue
 ```bash
 magnet:?xt=urn:btih:3EE27E9CD5315B6A7B97C0171DB9E33A84DF7812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

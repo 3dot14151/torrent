@@ -19,8 +19,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:E776200E4492ADDEB47494F37A7DD0E4FBA54E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Remini / Улучшение Фото v3.7.1260.202519018 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:E39AB57BFDB5C31CE2FB212C11C723F710E90BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ByeByeDPI 1.7.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F4BC2B897B37D9B35B4E403F7AC1A1B07097AD55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ PixelLab - отличный фоторедактор, в котором все �
 ```bash
 magnet:?xt=urn:btih:D13D64CF2BE61DD20F1D3F55FF170603B5FA3F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Night clock / Ночные часы v2.11.26 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3FB39A97D86FCD6B2F59D5091C3AF9EC7A10D75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ SD  Test Pro v3.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E2FA43E2624FDF6FB5F766BF17D09F742716596E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:87A39182F4CD9A04AACB331EA0FC1804A837A310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:2ABBFD462DF82D2E8FEFD6B3BCD5455EA3AEFBC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 ```bash
 magnet:?xt=urn:btih:3221D45586F105A5670681D695D08AB1D139AD32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Horary Chart / Астрология: Хорарная Карта v4.1.9 [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:764D26B828E4D884B775F4F39D6104B868148E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Astrological Charts / Астрологические Карты Pro v11.2.4 [Ru/
 ```bash
 magnet:?xt=urn:btih:F6FCB8301D80CDF9F549088601AE9A936BEA3E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F7DADC660A5E0300BB963FD03013FFD9CF6062E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Cozy Timer - Sleep timer v4.1.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F448FBF5F8F5F4AC981B1C05349082CBD3ADC4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Frameo: Share to photo frames — приложение, которое позв�
 ```bash
 magnet:?xt=urn:btih:704329D8B924E6A693324C2827C6BB89DF1B727D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

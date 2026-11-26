@@ -19,8 +19,7 @@ Deadlock 2: Shrine Wars (1998) [En/Ge] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:CDC153970C5C7B0E3839434F4D5B0DEC3CCCCB81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

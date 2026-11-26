@@ -19,8 +19,7 @@ Warcraft III (2002) [Ru] (1.29.2/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:26DB5CEA5236B946E46DCBE69E74B10FB4BD27A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

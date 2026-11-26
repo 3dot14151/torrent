@@ -19,8 +19,7 @@ AVG AntiVirus 2021 v6.39.5 [Ru] - Free Mobile Security
 ```bash
 magnet:?xt=urn:btih:701A8BC9AF8380FE7F0BFA0134A6327532F1CEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NEW! Получите больше, чем лучший антивирусный
 ```bash
 magnet:?xt=urn:btih:AD19B3B0D46E4A7E92A8AEE0089D12695EE48A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F3347E59EAE810589D35DD8F08EC32CB476D8E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

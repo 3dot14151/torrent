@@ -19,8 +19,7 @@ USB Low-Level Format (Низкоуровневое форматирование)
 ```bash
 magnet:?xt=urn:btih:57E2DF026AADCE5AE4E617858D019195A502EE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

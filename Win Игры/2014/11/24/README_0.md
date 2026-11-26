@@ -19,8 +19,7 @@ Final Cut 4: The True Escapade (2014) [En] Unofficial [Collector's Edition / К�
 ```bash
 magnet:?xt=urn:btih:C521F3DDA57BE8092D81CE6D2173F82255C1F608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Far Kingdoms 3: Elements (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:FC6326B42062038941928AD9AB544720AF03755F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Gladiator: Sword Of Vengeance / Месть Гладиатора (2003) [Ru] (1.0
 ```bash
 magnet:?xt=urn:btih:06F9A2879CF32894D868A905C194F18424A4C227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Disney Epic Mickey 2: The Power of Two / Disney Epic Mickey: Две легенд
 ```bash
 magnet:?xt=urn:btih:C95723E8D961597FD7E9477F3843FD7049532529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Motorama (2014) [Multi] (1.0) License Reloaded
 ```bash
 magnet:?xt=urn:btih:98B66DD9B150B6CDC412D71C26499C7F51447211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Never Alone (2014) [Ru/Multi] (1.0) License CODEX [Kisima Ingitchuna]
 ```bash
 magnet:?xt=urn:btih:EE725414FB64F8BC426D7DF7B0521C46A8359DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

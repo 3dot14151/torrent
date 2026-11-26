@@ -18,8 +18,7 @@ ESET NOD32 Antivirus 11.1.54.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7B267AC6FBC9E668520ECD1A952CF1FDCF4E50B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

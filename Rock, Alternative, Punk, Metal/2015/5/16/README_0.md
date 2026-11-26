@@ -22,8 +22,7 @@ Guzzler - Guzzler (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D56B1EEB643B326BCADC284156D0ED00625726CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Thrudvangar - Ahnenthron (2004) [FLAC|Lossless]<Viking Black Metal>
 ```bash
 magnet:?xt=urn:btih:F71156B4850194B86E627D2FA31DCA5EC467C130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Thrudvangar - Walhall (2006) [FLAC|Lossless]<Viking Black Metal>
 ```bash
 magnet:?xt=urn:btih:AC9D8CE46660262BE52B4B862522954919F01186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Thrudvangar - Zwischen Asgard Und Midgard (2007) [FLAC|Lossless]<Viking Black Me
 ```bash
 magnet:?xt=urn:btih:07C239F6D5E032F1598C5F877A56FC29E6256313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hot Lunch - Hot Lunch (2013) [MP3|320 кб/с]<Heavy Psych Rock>
 ```bash
 magnet:?xt=urn:btih:A4666D251A5B72770E9D3BAFFC948B2BCAACF93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rebel Gel - If You Believe (2011) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:77DF05CD2A6FD88B1A175F3727303C406EE4766B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Marne Kelley Band - The Sword (2015) [MP3|320 кб/с]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:1C40C1B7469F7C4B414349B52EE77A7D2F0E003C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Brezno - Kri (2014) [MP3|320 кб/с]<Folk Metal, Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:5CF3868A03F812E046E07388066350223BA3BC70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Zero Kelvin - Inside My Mind (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2155B712B7B8245607DA1D47920A4FDE7D0343A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Dynamite Roadkill - Godspeed (2015) [MP3|320 кб/с]<Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:5BA418605FE2B5C3BF2975383893977420A4D259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Defy All Reason - The Road Ahead (2015) [MP3|320 кб/с]<Hard Rock / Southern R
 ```bash
 magnet:?xt=urn:btih:C5C592C810B15762A7E8829757399EE066C139F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Station - Station (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D587E7105DFC2E9D2318712D0D8DC89A272898C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Erra - Moments of Clarity (2014) [FLAC|Lossless]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:5124F40343C17DCCF35B281778459C79063D96F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ Ghost Cries - Melum Primus (2015) [MP3|320 кб/с]<Symphonic Black/Death Metal>
 ```bash
 magnet:?xt=urn:btih:014E493E2A77A1C68742D52033971F0521ABC03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ DeWolff - Live & Outta Sight (2015) 2CD [MP3|320 кб/с]<Psychedelic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AA6EF8FB9C50E8FB20D37F86487EC83ADDE33009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0395A92405F20BA38CFFF5BAF84A2EAF0A8A051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ The Jimi Hendrix Experience - Miami Pop Festival (2013) [MP3|320 кб/с]<Psyche
 ```bash
 magnet:?xt=urn:btih:90B513DC54960F2E1D90570F9B7061E23B01031C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ David Duchovny - Hell Or Highwater (2015) [MP3|320 кб/с]<Folk Rock, Indie Roc
 ```bash
 magnet:?xt=urn:btih:ED72E173AC27F58B9D3889F34F05670E29365DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ Steve’N'Seagulls - Farm Machine (2015) [MP3|320 кб/с]<Alt. Country/Rock, Bl
 ```bash
 magnet:?xt=urn:btih:DC93CE61767701B6C2589A844E01A1209351DA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ Bryan Adams - New Best Ballads (2001) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:4BB9F8A861DEF8B567DEBAB0D64F4AA4F74E7463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

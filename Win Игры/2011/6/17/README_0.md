@@ -19,8 +19,7 @@ Deep Blue Sea / Глубокое Синее Море (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:64A4EB9F13E56D4084F797CD27F8985EF9782D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Echoes Of The Past: The Citadels Of Time (Beta) / Эхо Прошлого: Ци�
 ```bash
 magnet:?xt=urn:btih:82C4999F6E6348407007E697E840C402434CACF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Memory Clinic / Доктор Память (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:599EAE222BD96A878B42361B4A6EBFCB1132425F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Secrets of the Dark: Temple of Night Collector's Edition / Темные Тайн
 ```bash
 magnet:?xt=urn:btih:22798F5173B6FCBF3DD95047E71E6705F5B50CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

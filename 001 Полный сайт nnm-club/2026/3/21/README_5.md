@@ -19,8 +19,7 @@ OTUS, Андрей Буранов, Алексей Цыкунов | Administrator
 ```bash
 magnet:?xt=urn:btih:7949B6A4FE85C33DBD751A71ABEF7747B98B20E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

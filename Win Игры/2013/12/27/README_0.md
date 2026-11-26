@@ -19,8 +19,7 @@ Paranautical Activity (2013) [En] (1.7) SteamRip
 ```bash
 magnet:?xt=urn:btih:5EBBF12807915D8DF0F02126D29FE4B74ECEDDD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Prime World: Defenders (2013) [Ru/Multi] (1.3.2929.1) SteamRip @nonymous
 ```bash
 magnet:?xt=urn:btih:53C2E2EA784D338A428B633A865BC0A77FCFCB94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Thunder Wolves – аркадная леталка, в которой игрок
 ```bash
 magnet:?xt=urn:btih:BAEA7FBCA67E93E4ED07B6D252E3E3DCE95740F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Enhanced Edition включает в себя «Sword of the Stars II: The Lords
 ```bash
 magnet:?xt=urn:btih:BB66C0B8F3F864396BCD349A965A8402778C2DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

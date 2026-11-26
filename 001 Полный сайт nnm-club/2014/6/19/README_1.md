@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:2679C5C002B2D2849427CAEB9A29E051E245E529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55348877E60AE77468A4ED975D3D1CD66FDDDC7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Tankard - R.I.B. (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D0EACABB81EBF05C70843934ECEE8A8EA1A24417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Notebooks  хранит и отображает практически любо�
 ```bash
 magnet:?xt=urn:btih:B17673F6ECEC3750EB0E9537590F238419B6190C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Deckset поставляется с девятью удивительно выг
 ```bash
 magnet:?xt=urn:btih:471D04E325909841BA13C579DB497C43F0F91A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Sinne Eeg - Face The Music (2014) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:D64DF98AEA8A8CDD988CADF38D1902E3EA0A5C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Alexis Cole with One For All - You'd Be So Nice To Come Home To (2010) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:6282DD74FBF880804C291233F70AD950AD71AB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ VA - Naked Lunch Year Eight (2014) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:2D58E338BD8F4C7D8301585B1676DFE5A212A159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ Linux & Open Source - это издание предназначено преж�
 ```bash
 magnet:?xt=urn:btih:1DA29E7E64AF594B97273E692179E43FA78697A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E22A9548131C0FC92D49D59F6C509D404569A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DDE6440F4E9DB5C6B8B8DC543983B576EA1E5E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ Cannabis Corpse - 4 альбома (2006-2014) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:185E0645AD1FFCAB8F7A1DFAC8E382EAC7F0CB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ London Grammar - If You Wait (Remixes) (2014) [FLAC|Lossless] <Progressive House
 ```bash
 magnet:?xt=urn:btih:D40A684163A10DEB384FEE10F01BF8C164E77F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ VA - A Sides Volume 2 (Part 1) (2014) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:0ECE3A1B4F047515ED1EC1441477D102DFD8D37E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +454,7 @@ VA - Романтика Под Звёздами (2014) [MP3|256 кб/с]<Pop, Ro
 ```bash
 magnet:?xt=urn:btih:CD632FBDDD6C3DD0F1D2D577E0B66C9C7D215658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D3A3C4124BCA176AEE1ECF5A533EE0B0D53FABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ Tony Bennett & Dave Brubeck - The White House Sessions, Live 1962 (2013) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:AF4F75E80A54978B6A1372B05276E1DE8CD50268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E98998F43878E2D189F0BE1118A93DAB710050F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA947207EB19D913287F4600D15C45390F8D82CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ oPhone - устройство, позволяющее передавать че�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC91572079D38D68BEF04607F50BCA5FDE53E54C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:6209E048F492A9613AB418B1BF57C09EAEF0D3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ Sea of Lies 2: Nemesis (2014) [En] Unofficial [Collectors Edition / Коллек
 ```bash
 magnet:?xt=urn:btih:661AE893CED5D3E7741F5BEE41ECC9C4D678B330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ FastStone Capture - программа позволит вам создават�
 ```bash
 magnet:?xt=urn:btih:C36DBFDDF2D6DE9E1F84DBEE40A0D55C2DBE7200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C44BB8C98F0F141D4F2C152E43D490D409AF033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A11D32F2A5BE8D854ACAEE972946DD62A6BF98E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

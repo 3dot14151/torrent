@@ -19,8 +19,7 @@ Runtu XFCE 16.04.3 x64 - 20170806  [amd64] 1xCD
 ```bash
 magnet:?xt=urn:btih:B84F14E29698220C0DB6743E28DF7D8991536612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

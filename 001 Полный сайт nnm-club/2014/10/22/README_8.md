@@ -25,8 +25,7 @@ Husk - Hymns (2014) [MP3|320 кб/с]<Blackened Hardcore, Crust, Punk>
 ```bash
 magnet:?xt=urn:btih:4F9DE4DAA6F6EB571604C1EFD0E8CDA90C0C838C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Hollow Tongue - Godsnakes (2013) [MP3|320 кб/с]<Blackened Sludge, Hardcore, C
 ```bash
 magnet:?xt=urn:btih:817B8F6C81D5584FE9D2680FC70104A1C4AB0F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Blessmymadness - Neoviolencegeneration (2014) [MP3|320 кб/с]<Screamo, Emotion
 ```bash
 magnet:?xt=urn:btih:E80ADA5471C25595EE1E97BC06687E963FB1BEEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Elephant Opinions - Awakening Will Be A Journey (2014) [MP3|320 кб/с]<Screamo
 ```bash
 magnet:?xt=urn:btih:CF922D7782243AD042556B132C61C948C0BDBEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Culture Killer - Denial (2014) EP  [MP3|320 кб/с]<Hardcore Punk, Grindcore, C
 ```bash
 magnet:?xt=urn:btih:E9110194BB44B243BA766758A66000FDB2755C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51CD1C3145A004F279821AD0ADBFCAF1452A84E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ Dntel - Human Voice Outtakes (2014) [FLAC|Lossless|WEB-DL]<Idm>
 ```bash
 magnet:?xt=urn:btih:CAF80B16131243451EC4627EA9ECA68CA5A3C48C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ VA - Fantasy Moments Of Lounge (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:9D0EABE410BE1884E586C7AA4166187A0608A544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA0469085171C2BCB2679E32D17FEA8C313199EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05A77990E95C965565CEB28F288F61F34E70FF8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ Totakeke - me.tem.psy.cho.sis (2014) [FLAC|Lossless|WEB-DL]<Industrial, IDM, Rhy
 ```bash
 magnet:?xt=urn:btih:CF188C12A11328E0F6A5D741BA13884486521D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ Makoto Ozone, Christian McBride, Jeff "Tain" Watts - My Witch's Blue (2012) [FLA
 ```bash
 magnet:?xt=urn:btih:DB0A24CCCEBC9A92E558B05747045E116FF9ACCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ Susan Boyle - Hope (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:753B2FB4087414CBBA9E4A300659B49A134ADFB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +453,7 @@ At the gates - At War With Reality (2014) [MP3|320 кб/с]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:6358C1B5E11FB183169CC4C637BF16DC569B5317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:9667ADE1EC9098183C34D5895F58DE799C1F1A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72E52D08CAFEED52F6ED600FC40DF9CBBBDC8DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E5E0F5A03D242AAFC5DA0C4777A2339952D0B56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ VA - Almighty Presents: We Love the 90's (Vol. 1) (2014) [MP3|320 кб/с]<Pop, 
 ```bash
 magnet:?xt=urn:btih:A3875638258D2A02EEAFD05919334EDFFD896179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7B939ADC06B23E1CCDA28C6E19E30FE79AEDFF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9944846D429DE7C84663B752C83B6CB1005593C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BD4DFD3DB072DDC52A8C8D9461E976E9D613E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:1C08FBFE91B8363C946BD321CC04FF08333D6D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80AEB244F38D839899F28FC52DF752DDDB77B6CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28C1AE1BD0D06D744453617815EA90D5427E0E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Двое - Песни на стихи Михаила Танича. Запи
 ```bash
 magnet:?xt=urn:btih:72CC987FD993FC1CBB184203C8239919D33A9F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

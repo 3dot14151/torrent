@@ -19,8 +19,7 @@ Drakkhen (1989) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B50980D886DCC0F34B47A7931227CAE428917FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

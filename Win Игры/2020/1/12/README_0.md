@@ -19,8 +19,7 @@ Dark Fall: Ghost Vigil (2020) [En] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:6C10048F2B2956EA78274293051B0E026C5CCF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip Other s [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:C2DCE93EA0FB16298DF356BC95A3DC453795D5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 ```bash
 magnet:?xt=urn:btih:E8D71685A21631128857CE89BF111935F43C739F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

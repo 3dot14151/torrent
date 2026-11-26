@@ -19,8 +19,7 @@ Sea Of Lies 4: Tide Of Treachery (2015) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:32B1224A95C5C4A69CAFDBEB55AEF9912CB5BCC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pirate Jigsaw (2015) [En] (1.0) Repack ZEKE
 ```bash
 magnet:?xt=urn:btih:2573EE767EBED030493263B433254ECD8B2EB6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Witches Legacy 3: Hunter and the Hunted / Наследие ведьм 3: Охо�
 ```bash
 magnet:?xt=urn:btih:FCFEB9F8F1B714152F7EEEDD3F0CDAB2962C1666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fort Meow (2015) [En] (1.0.0) Repack ZEKE
 ```bash
 magnet:?xt=urn:btih:9193F9BAFDB938E5156AAF9B5696765655FA3E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

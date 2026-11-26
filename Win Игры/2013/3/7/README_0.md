@@ -19,8 +19,7 @@ Azada 4: Elementa Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:3E783F22549334AACC657215F6A49A5FE81E567A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:536705C1BE423A378004E68681D83CD9124FCCFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

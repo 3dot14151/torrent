@@ -22,8 +22,7 @@ Negative 13 - Mourning Asteri (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal
 ```bash
 magnet:?xt=urn:btih:EBF8973793095CD8EC80D6179BFDB3B3340D1B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Within the Pyre - Within The Pyre (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 ```bash
 magnet:?xt=urn:btih:6F7FEC1B7C9129E57CA72E104AA11431DE86A2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ HolyRoller - Swimming Witches (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 ```bash
 magnet:?xt=urn:btih:E42A6CA07B720A51305661575CA02BF2ED23D174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Undertow - Bipolar (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Gothic, Doom Me
 ```bash
 magnet:?xt=urn:btih:4F7CDCA355E9FACD0415CDA13CF8D67D48F55BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Wiegedood - There's Always Blood At The End Of The Road (2022) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:A9452CE89C331600943A550AACFBC000F9E6B216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Whispering Tales - A Matter of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 ```bash
 magnet:?xt=urn:btih:A54D4E6298F590E30FDC4659655A2482EF10E9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ DeGarmo & Key - This Ain't Hollywood (1980) Reissue, 2021, Girder Records [FLAC|
 ```bash
 magnet:?xt=urn:btih:223EE8E61A9D2DAC673335AB725638DAD2064964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:348A9F3A50A66D00B7684467A573B3776EC49714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Hit The Ground Runnin' - Lost In Translation (2022) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:F62AD1C6A32AAFD95742D72034AEFE6496159C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Switchfoot - interrobang (2021) Deluxe Edition, 2022 [FLAC 2.0|48/24|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:8F974E1EB8B3E4F20BE74692F82B2FC3D5E78B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Sweet Freedom - According to Jörgen Schelander (2022) [FLAC 2.0|48/24|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:763266D6C4BA24CB5BEF32D90EF35305C47AA89E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Drive At Night - Echoes Of An Era (2022) [FLAC|Lossless|image + .cue] <Melodic H
 ```bash
 magnet:?xt=urn:btih:2CE4DB37A923072C86C9E3BE0111E20F2159A8E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Atomic Symphony - Hybris (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive Meta
 ```bash
 magnet:?xt=urn:btih:986D5DC35C8388D5A0F92D337AE36E3F0600D5B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Flight 19 - Something We Did... (1985 - 1992) (2022) The ''Lost UK Jewels'' Coll
 ```bash
 magnet:?xt=urn:btih:EC591504FDE52128D2941D0E55CCC308FA813183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Ardours - Anatomy of a Moment (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:079591341EB9245B973A6FC7237CBD56E6A82260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ Journey никогда не бросал вызов слушателям сво�
 ```bash
 magnet:?xt=urn:btih:D293EAE25119ADEA607D8C2AACC60E81D0484665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Black Nazareth - Black Nazareth (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:73B9B7C485ACA73587BD695FB12CEC6C220450C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ City Fixx - Fire Your Guns (1990) Compilation, 2022, Steelheart Memories, The "L
 ```bash
 magnet:?xt=urn:btih:C5D0826BFDBC05A1DE1020828C72FFF3C83E6152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ Gotthard - 24 albums, 29 CD (1992-2022) [FLAC|Lossless|image + .cue | tracks + .
 ```bash
 magnet:?xt=urn:btih:5561560DD5FABD85D3155E1DB4714E6C02BC7258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

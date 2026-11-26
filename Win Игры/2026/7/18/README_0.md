@@ -19,8 +19,7 @@ Headquarters: Cold War - это динамическая пошаговая ст
 ```bash
 magnet:?xt=urn:btih:A11818C1F43B03CC491A805B0D53D29694E85FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Heroes of Science and Fiction (ранее известная как Silence of t
 ```bash
 magnet:?xt=urn:btih:E002E922AB21E29DE0C7A92B822F126FE8D50ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hell Clock (2025) [Ru/Multi] (2.0.0.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:52536974BCB023A00838FAEE9A27B4115B92176B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Planet of Lana II удваивает масштаб первой части, п�
 ```bash
 magnet:?xt=urn:btih:9CC24DAFC56C3AE39D8C151EA995B3F07ED8CEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Lost Crown (2008) [Multi] (1.07f/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:91F3934952A16357701B4DD156F96DCA76E8197C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Last Crown: Midnight Horror (2015) [Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3B126439E2355CBDE0380523E7E25794D5A453EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hatred (2015) [Ru/Multi] (rc12) License GOG
 ```bash
 magnet:?xt=urn:btih:1E4F8FD85716573D7A77098676D737A018E60C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

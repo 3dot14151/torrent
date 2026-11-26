@@ -23,8 +23,7 @@ Necronomicon: The Dawning of Darkness (2001) [Ru/En] Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:4BE653C6BAF97FE84D0E43B4F9F22F13009F8241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

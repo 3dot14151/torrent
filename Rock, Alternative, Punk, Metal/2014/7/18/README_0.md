@@ -28,8 +28,7 @@ Suicide Silence - You Can't Stop Me (2014) Special Edition [FLAC|Lossless]<Death
 ```bash
 magnet:?xt=urn:btih:7CD5D7CE0E791EAB23556801240D8252F5062D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ AC-DC - High Voltage (1976) Remaster /1994, Atlantic Recording/ [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:68556C625E6FFDE8FDC31BD3875BAA6660AC1FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Steel Rain - уникальная инди-игра, которая в равн�
 ```bash
 magnet:?xt=urn:btih:C013661EF9B2A70C9577F9F02C152A8031F02D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ STEEL STRIDER - продолжение экшен-платформера Giganti
 ```bash
 magnet:?xt=urn:btih:17A878E7BD9250B10D568D62EA22B02CA8AC1B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WolfQuest — игра-симулятор жизни волка в Зоопар�
 ```bash
 magnet:?xt=urn:btih:3F38F4A731D511A2B2B935954CFDEF83225EC69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Royal Heroes PC - сбалансированная и достаточно сл�
 ```bash
 magnet:?xt=urn:btih:E7DC12EAB083EAA911FF63C2E789C76387BC055F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ SpeedRunners - соревновательный платформер, с крю�
 ```bash
 magnet:?xt=urn:btih:935E2318D6B925B5D5B785F2B9F8111E978102B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Out There: Omega Edition (2015) [Ru/Multi] (2.3) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:78EA7D57589FC3492409806D9B45CA4BB6C968BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Oil Enterprise (2016) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:5C57841CC0C70623CADF3E913ABFCD487CC7FE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

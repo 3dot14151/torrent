@@ -19,8 +19,7 @@ Secrets of Salem 3: Tarot Murders / Секреты Салема 3: Смерте�
 ```bash
 magnet:?xt=urn:btih:B111E9A6FDDE6D09F04992C6FD8A1B3BCDF2984F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

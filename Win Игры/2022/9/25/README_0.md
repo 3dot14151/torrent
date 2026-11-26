@@ -19,8 +19,7 @@ Turnip Boy Commits Tax Evasion (2021) [Ru/Multi] (1.1.3f1) License GOG
 ```bash
 magnet:?xt=urn:btih:62175C5BB69FCDCC2AC839FF43B70DE2FDFBAAE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales 22: Horizon of Wishes / Страшные сказки 22: Преде�
 ```bash
 magnet:?xt=urn:btih:F6B4CF0B1ADEE331AF89966F15BEBCDC407D585D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ One Dreamer – это проникновенная инди-игра о соз�
 ```bash
 magnet:?xt=urn:btih:11C59F00A6320CC0A67157466E1D9BE7E9C3CB2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

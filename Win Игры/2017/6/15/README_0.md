@@ -19,8 +19,7 @@ Cadenza 4: Fame Theft and Murder / Каденция 4: Слава, кража, �
 ```bash
 magnet:?xt=urn:btih:12092562F9A4DB9F8653BC65F25585DAE4EFDB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Air Missions: HIND – это симулятор воздушных боевых
 ```bash
 magnet:?xt=urn:btih:F56AAB6D48EFFAD7ADAFF37440C2B44DCE6B73A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dishonored (2013) [Ru/En] (1.4/dlc) Repack R.G. Механики [Game of the Ye
 ```bash
 magnet:?xt=urn:btih:B3EC48AA0357ADF9348752C1EA4CDE5A831EF561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

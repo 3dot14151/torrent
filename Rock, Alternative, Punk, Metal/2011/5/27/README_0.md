@@ -28,8 +28,7 @@ Mantus - Zeichen (2011) [MP3|192-320 kbps]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:1121E04887709A706E082B6B4B3DCEF6A9D3EAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:759E235A0D3B2A7007179C22AD87C46B5C854764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

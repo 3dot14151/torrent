@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:38CB206F9521ED502A7F7110179E68CF74DA49D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:523AC5267CB14191D185B59804331E4EEAC1C82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Ammyy Admin - это программа, которая позволяет бы�
 ```bash
 magnet:?xt=urn:btih:01C06EC0BF282BA77FB4FB70A0229E3708602941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Kraftwerk – Дискография (1970 - 2003) [MP3|320 kbps]<Electronic / S
 ```bash
 magnet:?xt=urn:btih:E9A6CE4DADEC1EA863ABF7457CB38C740386AF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Remixes 2020 NNM 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:7984D962C9E9FEAC9252D73AF3E8EC152DF106A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCFF10A77C6E2C2D2CC70A7C4FA4702003B079CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Stepik | Основы программирования на Python (2020) PCRec 
 ```bash
 magnet:?xt=urn:btih:E913D3E31558A948F859BF73922D4ED991831B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E43CCF943925CDF09451BC3189055C961B8394C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Udemy | Компетенция Верстальщик (2020) - HTML, CSS, JavaSc
 ```bash
 magnet:?xt=urn:btih:98B8B030CCDC226558345FB903A43C5A6AC3C250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Dirty Pair | Грязная Парочка [1987, OVA, 10 ep] BDRip 1080p raw+ru
 ```bash
 magnet:?xt=urn:btih:21B9F0D334E93643479BCDF3D939D87E0F49C8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Dirty Pair: Project Eden | Грязная Парочка: Проект Эдем 
 ```bash
 magnet:?xt=urn:btih:460026287F24A71DD13902BB2095D493EC0138B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Dirty Pair: Affair of Nolandia | Грязная Парочка: Ноландск
 ```bash
 magnet:?xt=urn:btih:A8C107DF5C7F6C067CDFBF6B9B01D74126746DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Dirty Pair: Flight 005 Conspiracy | Грязная Парочка: Загово�
 ```bash
 magnet:?xt=urn:btih:D279EA7E3B5A0FA0C594DC07CF60C0D5A5E46B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Dirty Pair | Грязная Парочка [1985, TV, 24 ep] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:2C1751C41D00E857D7965FAA61C2D4D995AF9DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Pinnacle Studio 23 содержит все необходимое для ред�
 ```bash
 magnet:?xt=urn:btih:83CAD696F64A98E892E915A5C21D9D82364A66A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

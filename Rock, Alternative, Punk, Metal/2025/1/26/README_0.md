@@ -22,8 +22,7 @@ Iggy Pop - Live At Montreux Jazz Festival 2023 (2025) [MP3|320 Kbps] <Alternativ
 ```bash
 magnet:?xt=urn:btih:8C42150F206B4F01A4D73DA69DEF1990DA9F25A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Led Zeppelin - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <Ro
 ```bash
 magnet:?xt=urn:btih:3BB592CF8219740467F9E44807C4D93246C24D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

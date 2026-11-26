@@ -19,8 +19,7 @@ Kali Linux 2021.3 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит бе
 ```bash
 magnet:?xt=urn:btih:5D9A9978B62D5E9A1C943F52021C5539EE2FC7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

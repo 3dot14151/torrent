@@ -18,8 +18,7 @@ Soft Organizer 3.41 Final RePacK by D!akov [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A767B22FBA464F4C34CF8AC17557C427A308224B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ VA - Romantic collections of everything (1999) [MP3|128-256 кб/с]<New Age, Po
 ```bash
 magnet:?xt=urn:btih:43FFC65F6486E3912D857CFEB59CD7812EB7A755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1847ABB0360534826CB5038EB99BDA249BC89E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wallpapers - Computer Desktop Wallpapers Collection 888 [JPEG]
 ```bash
 magnet:?xt=urn:btih:223B7CC573E96090FAADB588CDD3D99C153D983D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F103707A54534C1FC46793274B94A11EA891D8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ MotoGP. Этап 2/18. Гран При США Остин. Гонка (2014) HDTV
 ```bash
 magnet:?xt=urn:btih:D045D9733D9FD4B9EE88501212C350F70A3FBAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Sinead O'Connor - 12 записей с живых выступлений (1997-2
 ```bash
 magnet:?xt=urn:btih:7ACACFFF0F0C74D1D7F13D82A4806D348FA04D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ SlimBrowser - это быстрый и надежный веб-браузер с
 ```bash
 magnet:?xt=urn:btih:3BEF44DE0A70C1DC4FAF83741CEAF42F509EC784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76D2FE6187898C22392CFC34F6135B322C4C474C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ CyberLink AudioDirector Ultra – мощный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:F30E90555F0DA421BB68D04BE245A427711FA0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ BBC: Великие мастера. Леонардо Да Винчи. Тайна
 ```bash
 magnet:?xt=urn:btih:8CEF0E855FFE974875A43D62B04ADFD98C08D87A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Lisa Stansfield - Seven (2014) [FLAC|Lossless]<Soul, Rhythm & Blues, Soul-Jazz>
 ```bash
 magnet:?xt=urn:btih:3B967DBE4187DBA849BFDB7459BD654F7850074B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ BBC: Наука и Ислам / Science and Islam (2009) HDTVRip [3 из 3]
 ```bash
 magnet:?xt=urn:btih:768F9793579038003842712DC43EF7898A994ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:9C720254C77891CA7CC91441707A31597D9A7281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Sketch умеет читать из (.sketch, .drawit, .svg), импортиро
 ```bash
 magnet:?xt=urn:btih:3E293C1E5BF260D9D75BDA3A760D8662BA83C27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBB089730B620FD130367812F21A81FC7C8358CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86CCEF8C8174D64F2A0D2B652F9942B4BEAC57CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA6E8A4A4D2070ED977789B02D7AA1C0B6E1E31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D4E0D98528E99221999463C8C999DCF7CB1D2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ VA - The best music without slow (2014) [MP3|128-320 кб/с VBR/CBR]<New Age, I
 ```bash
 magnet:?xt=urn:btih:85A745903037E30C3966BAE3146386B3FD1CE59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Java Runtime Environment (JRE) - исполнительная среда соз�
 ```bash
 magnet:?xt=urn:btih:96ADFF27972230019FDF8B24ED728DC1D0330C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BCAC06003B5EC53BD8BBD00132E9A6B738E8329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FE3DD76CBBE8F2C48EECC2B3F1EDD36AFF062C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ BBC: Космос. Руководство для начинающих. Жизн�
 ```bash
 magnet:?xt=urn:btih:DCA3DA16D5C2B05F040B68445225E5F0F5653D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D2A8ACA0C70000A58392ED7F8A1A5399B15F17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:440E1719E8AE9E9377A07B017D247B4047C85C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

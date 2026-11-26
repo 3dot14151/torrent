@@ -20,8 +20,7 @@ R-Type II — это аркадная стрелялка с горизонтал
 ```bash
 magnet:?xt=urn:btih:F899CE2E134C653AB2D3B233B40E49C9E8255D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sonic SEGA All Stars Racing 1.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:5F59DE6A731B2524E1B790AB1845BD2728FA94FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Sonic Racing Transformed [En]
 ```bash
 magnet:?xt=urn:btih:288775D1710C148EBD92F8779297C03B8C4A0793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Majesty: Завоевание Севера 1.4.19 [Ru]
 ```bash
 magnet:?xt=urn:btih:D5553455CBEC94B6A5CE9046A19FC032039D956F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

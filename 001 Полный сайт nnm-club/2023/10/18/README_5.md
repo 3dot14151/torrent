@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:98421D2D9AB7738E6A21E431BA1D788965176F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 10.2023 by OVGorskiy 1DVD
 ```bash
 magnet:?xt=urn:btih:0F9F4E9C9F7B0CB2B0EBC2C28B7802717C22FEB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

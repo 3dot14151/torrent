@@ -27,8 +27,7 @@ Light Blue - A Different Shade Of Blues (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:D1324E9FB9E9DC63E882F40BDCFC549A0A273EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Reader 2 для Mac самостоятельно «подхватывает» RS
 ```bash
 magnet:?xt=urn:btih:09D3F63736CB65CC98E895ECDFE94F585967B1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:410E7CFE78663D57B20986604221CCE9EEF869FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29AB58EEC58A6B956EB0D9AF78E7F137302B0428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5873363A76CD47AE5C3BCEC95206452D4C8F4E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ HyperSnap — программа для снятия скриншотов. Мо�
 ```bash
 magnet:?xt=urn:btih:3DE2E196172883368A3F6D8356A76FB0A6D72876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ DiskAid 6 предоставляет неограниченную передач
 ```bash
 magnet:?xt=urn:btih:F62E338F8D5685CC76B9278B73507ED0B4983325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:00CD2C6575557C9BD3B162B0080BA6C7CADB1C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Rob Arthur - Jazz After Hours (2014) [MP3|320 кб/с]<Smooth Jazz, Easy Listeni
 ```bash
 magnet:?xt=urn:btih:EDEF16244C293BD922210E933A48BA3CB9ED62C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Balearic Trance - Sample Butterfly (2014) [MP3|320 кб/с]<Dream, Emotiona
 ```bash
 magnet:?xt=urn:btih:6CEFB87A47262CF20A2CAB603464C677A803EC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:F7C369CE9C51AA8D4DA85A3CCD54DB489F6B74A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Magic Island - Music For Balearic People vol. 5 (Mixed by Roger Shah) (2014
 ```bash
 magnet:?xt=urn:btih:D8B87AB7B3639A6315B6BCFB3E5508DD7A3E9046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66BDB52A8050F4E0A256FC26694FA3BFD295C13B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ VA - 100 Dance 2014 Vol.5 (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:1150264F0AAF1485EF5FE41D53F61C4954B8DE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EEF641BDF7E2D745513472FF21D550AB3CA7E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Ashampoo Photo Commander 11.1.6 RePack by FanIT [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CC8D76F29A6CDFD1B622E2142BA59A2ED2A90C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CE8A2CBA612AF3526EFD79F8FB66266FAD31982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:8912509997961F68B1EE5C4E86FE23CA1F243F6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13F120A90AE387A2BE304030003CF1B5F0C80B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ Tube Tonic - Incredible Light (2014) [MP3|320 кб/с]<Trance / Trance Vocal / P
 ```bash
 magnet:?xt=urn:btih:23675685FB10CDFC4D24ED7F13ADB9A3812965B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDD515F511B998761B5D8F21C171419C5EEFAC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +608,7 @@ VA - Woman Trance Voices vol.10 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:404D2E37AEF19529FA5518C7234B15F67BDEA62D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ Garmin: City Navigator Southern Africa NT 2015.20 (июль 2014) <En>
 ```bash
 magnet:?xt=urn:btih:7A8109B983E6986651304C1D38E5E57B16C90B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ Spark Browser - довольно симпатичный и удобный бра
 ```bash
 magnet:?xt=urn:btih:09F650EB572426768558DE30EDDFC639740A0A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ BatcInpaint - это отдельная версия популярной про
 ```bash
 magnet:?xt=urn:btih:7CC2027D3B886196F406B0F80B2355C989562508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ VA - Ты моя девочка милая (2014) [MP3|256 кб/с]<Шансон
 ```bash
 magnet:?xt=urn:btih:4FB49BC189BD4444B878F0BCF5B2CF49205099C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

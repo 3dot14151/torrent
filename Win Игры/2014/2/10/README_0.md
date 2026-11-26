@@ -20,8 +20,7 @@ The Ball — это приключенческий экшен от первог�
 ```bash
 magnet:?xt=urn:btih:3AED1DE8F3EA1441E893BE7158FA7E8FAA323C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Ball — это приключенческий экшен от первог�
 ```bash
 magnet:?xt=urn:btih:8D2CF4429D0808F70B3B99C95BF3B8186005A26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

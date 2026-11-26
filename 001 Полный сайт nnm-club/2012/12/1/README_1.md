@@ -27,8 +27,7 @@ VA - 50 Best Lounge Collection (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:39FC7921ADC18E4F5CF49E4F8FED65648AE871FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0F38BE2D52DB08F1D60B204C1594480E56FFB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Bridge Wallpapers (30.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:0070C51A522E5F1517BA1CCEEC2972BDE5FB1662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Dj Compressor Relax Mix 2012-11 (2012) [MP3|320 кб/с]<Downtempo, Lounge,
 ```bash
 magnet:?xt=urn:btih:5E2440F5867D555E342E6C163825A024C8ABA5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - DJ Soulstone - Photonica (2012) [MP3|320 кб/с]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:383751C2E085343FBCAC915B6AFABDE2E8968B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - DeepEmotions - Car Dubstep Vol.9 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:23D4067C3280C4D321166A4EEBCD532F3D9AA1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Ride The Sky - New Protection (2007) [WavPack|Lossless]<Prog Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1BD8D2C3CC17EEB8ACA2CE9587B5E6A59FCAB32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84D01C5CE491734B1BB190A86601135BEA84C709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ HQ Wallpapers for a desktop (30.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:15C888258A04F833986101EE703F8F73E9573B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3699AED2199BDF8C5D0B34331B7F0E9508169EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ JOHN B podcast guestmix :
 ```bash
 magnet:?xt=urn:btih:A89FE962CF0E762371A16FA6A67DC1D22C008707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E2C0AA5646DE9412FC4B496945AF1DF53941566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8199D808FDB2301CACC009CAEAD1E33176392E55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ Nature HD Wallpapers (30.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:5A28F4CB5AC6A3AF8EED5FAA86C0B15C72C833C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ VA - Kiss FM - Top-40 (01.12.2012) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:8C7B766C8026F508A2CF3B8B84E8D559FD98826B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A82E7AC5660A0DB28E116A1D4FCAED2CE8CA44E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ D.C. Cooper - D.C. Cooper (1999) [MP3|320 кб/с]<Hard`n`Heavy | Progressive Me
 ```bash
 magnet:?xt=urn:btih:E2BE29486E9C11CADED10F075EC0EDEED9DB0FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ PulpFusion - Wrong World (2012) [MP3|320 кб/с]<BreakBeat, Big Beat>
 ```bash
 magnet:?xt=urn:btih:2473202DBCC871C46235217BC360ED87484C89D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ HyperSnap — Программа для снятия скриншотов.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +639,7 @@ Preview и английский буквы исключены.
 ```bash
 magnet:?xt=urn:btih:2E8206CC6865FDECD8E839E6B87F4055626EC03F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8CC4C55C92D3377FEF4F54FA3643B2F8391DEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +698,7 @@ Bobina - Russia Goes Clubbing 221 (28.11.12) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:394A97C2719FED5637445F831155016723C25A20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ ICON-CELENTANO - mixed by dj Pitkin (2012) [MP3|320 кб/с]<progressive dance /
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -782,8 +757,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4284639F82982B35F74B286D7C501C13847567C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Christopher Amott - Impulses (2012) [ALAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:6C3FB72E1BE26A019E2E8E73C9187DF0EBF1120F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (04.11.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:1ED49053DAE99F425E42E08E822634DEB89FE37C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Uplifting Only 2013: Top - Voted Tunes (Mixed By Ori Uplift) (2013) [MP3|32
 ```bash
 magnet:?xt=urn:btih:E1FA097FD24E97E4C0CA8FA13D5DDC43B87B71B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Soft Organizer 3.25 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6897764941D996C9E55426F82A930D8A8239C561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D20BECA9D33E17065F24130E41B91F379B9D7686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Soft Organizer 3.25 Final RePacK by D!akov [Ru/En]
 ```bash
 magnet:?xt=urn:btih:DB3737EA91363FD3D53350385998D91FED10EA74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:324BF11EB339FE6A095049D1BC11BACEF23DE81F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EF1A9CE63085FA331D0BB053A26BD47DDA3B2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48335B4C37A3FCCE25F41F0E74D74FB4A8EB14CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15906DCDE0EA28EAC7604039C9A51AFC3D7CD911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22E275049FCB8DA7D41F446BA7944E9DAC12B6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36E7BF1C8095FF55E88723462E55E590F876082F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F4F1EFA1903AA842119CBC07E8DAFCC0D26DF36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ B5. Doubleback [3:57]Жанр: Blues Rock, Boogie RockФормат: Vinyl, LP, A
 ```bash
 magnet:?xt=urn:btih:26858EA025C427D5325248F236BAB1210ED5EB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Mr.Kitty - Life (2013) [FLAC|Lossless|WEB-DL]<Synthpop, Electropop, New Wave>
 ```bash
 magnet:?xt=urn:btih:4C06A88420AFB127C7E9C5D055FAA12BC98288B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ B4. Let Me Kiss You [5:03](   Читать дальше...   )Жанр: Pop Rock
 ```bash
 magnet:?xt=urn:btih:B6E3CDA4ABE85CE9DC28513FC539326A5A5087A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ Janelle Monae - The Electric Lady (2013) 2CD Deluxe Edition [FLAC|Lossless]<R'n'
 ```bash
 magnet:?xt=urn:btih:1F9A05C76231A3AF70E15E0E62FAD729B5F17A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ Pet Eye Fix Guide - программа для устранения эффект�
 ```bash
 magnet:?xt=urn:btih:BC892A0136B0B5052CBBD1657DBF7A16A33494E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E05FB57C474793A68EEAEF199153269DB08B5B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B42EDB11B0CEFF54FEAEC5B179481C4C386AEDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ Godgory - Way Beyond (2001) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:75C08F50B6ADF3FF24659FF5C7C01F1DC1484E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ UFS Explorer Professional Recovery разработан практикующим
 ```bash
 magnet:?xt=urn:btih:859708468CD801389B66035F959355C5827B77E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +695,7 @@ Chronos - Helios [24Bits] (2013) [FLAC|Lossless]<Ambient>
 ```bash
 magnet:?xt=urn:btih:9338CDA5ACAD4FCB266109063F0FBF93105AF5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +728,7 @@ Keith Medley - Ride (2010) [MP3|320 кб/с]<Instrumental, New age>
 ```bash
 magnet:?xt=urn:btih:7F6B8974F128330E82FD06F13D5D0061E843C7D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

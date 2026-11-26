@@ -28,8 +28,7 @@ Marquise Knox - Man Child (2009) [MP3|320 кб/с]<Modern Electric Blues>
 ```bash
 magnet:?xt=urn:btih:CD792D69532EECF62961BA13A8509CA428AAD4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23846DEB18A9A3EA48F88E353FD3387706CE4FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ L.H.B. - Mythology (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Industrial>
 ```bash
 magnet:?xt=urn:btih:EB47AC31B8BBE2E2C3B0F0AD9C502832C80FEBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Luxury Soul (2011) [MP3|320 кб/с]<Soul, Funk,R&B>
 ```bash
 magnet:?xt=urn:btih:4010CEBA5A35B03B0709C60AE5434D8EF550CBBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Sonny Stitt - Now! & Salt And Pepper (2011) [FLAC|Lossless]<Jazz, Bop, Mainstrea
 ```bash
 magnet:?xt=urn:btih:1617154C9D28FEF6EA8F8A6AD445E4098F935CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Abracadabra - This Is My Swamp (2015) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:7F1AE1867F68F3276E1323880E58783046687A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Pretty Maids - Scream (1995) [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:CD8E0A3555380FCA2D74E2411FD569849115FF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Callejon - Wir Sind Angst (2015) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:E312316B23E19F860C60AF320669B1D7E965CA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10DC9D1C124360AD0FABAC872CD2113ECCCE2F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B3D2F9C7E9810F1828BAD46C926E11BE1E9E1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ Beardfish - +4626-Comfortzone (2015) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:6771534BEA3ECF571E0B1F78D3E19799F40ECA34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ Honeyboy and Boots - Waiting On A Song (2014) [MP3|320 кб/с]<Folk, Blues>
 ```bash
 magnet:?xt=urn:btih:4C9F38C45C9C35B136C40375110D667C84A8D2C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74BBF3D09CE53E9D7E92B247CB972F3293A00798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A76BC12B0D0968596A6F4DC608707806356691A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ VA - Громче музыку! Зимняя тусовочка (2015) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:72D609F10575B46679A2DBAF39E491878E39D4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B474F82EA7AB05B2B688E03941DC91A034AD6A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A17AD0ABECD45DF3669A7B223FB6D0251E80A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ Battle Beast - Unholy Savior (2015) [APE|Lossless]<Heavy Metal/Power Metal>
 ```bash
 magnet:?xt=urn:btih:1D1D103EC5AE00A7345F3845D67B12DE9B62239E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A744A5C2C942A518BB0D18B32D0B9FC10954933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ Ferri - Infinity (2014) [FLAC|Lossless|WEB-DL] <Dubstep, Trip Hop, Ambient, Neo 
 ```bash
 magnet:?xt=urn:btih:EF6F02CFC4B4565C84A4F455178DACA0B6388146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +636,7 @@ Marduk - Frontschwein (2015) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:798056FAA42B43F7CA42DBC74DA931673E11482C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +670,7 @@ Little Boy Quique - I've Got The Blues (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:E00E05C4451089B3CA02C9FF7CAD267744576AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A43C79480D1315F656B7EC0EF4DE0DECA5AE6CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F191818E4DBD737915A081EFBEAAF13ACF23184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +754,7 @@ Palisades - Mind Games (2015) [MP3|320 кб/с]<Post-Hardcore/Electronic>
 ```bash
 magnet:?xt=urn:btih:707925E7A1D213428D098349F5D01EDA3078512B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -808,8 +783,7 @@ Rusted - Внутри Миллионов (2014) EP [MP3|320 кб/с]<Rock, Alter
 ```bash
 magnet:?xt=urn:btih:47A4379C0D3B457C465564AFF40D193477BBD507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

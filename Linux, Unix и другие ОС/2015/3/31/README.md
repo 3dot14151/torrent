@@ -21,8 +21,7 @@ BlackArch Live поставляется в виде готового ISO обр�
 ```bash
 magnet:?xt=urn:btih:4DB01A4FAC2E7371C86DF0AEA498C4BF09E47A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

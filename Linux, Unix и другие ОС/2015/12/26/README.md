@@ -19,8 +19,7 @@ KXStudio большая и часто обновляемая коллекция 
 ```bash
 magnet:?xt=urn:btih:B3D4AC820812E1A26153AD830CFE9148EF65B92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AV Linux имеет полностью настроенный Debian Linux с XF
 ```bash
 magnet:?xt=urn:btih:FE60BFC6817B52ED5B0D46DA6343D782278D96E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:466A00C760AE5C7A9CA72778368A38AB0DC40984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C186C257FEA7310B4DAE13A87EA2B9B5DD0DCA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EB0ACD2B68A212DE20FBD1BEFBDA8EA0F38EE14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Звезды русских дискотек Выпуск №3 (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:4E71629DBBB19E136402CEEC7AEB1EF63A602D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Paradise Del Mar - Ibiza Island Smooth Balearic Chillout Lounge Music (2013
 ```bash
 magnet:?xt=urn:btih:3D2AB13C0525A2D119579A96093AA2FBD56FC42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - Top Club Music World Hits 1913 - BIG (2013) [MP3|217-320 кб/с]<Club, Eur
 ```bash
 magnet:?xt=urn:btih:88864EC334B278B879C233D9A8111C3E08FB79B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Current Value - Stay On This Planet (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:C6F40B5D87F6EA27A911AB953C28AC6C46E8D258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D74947D2479EEB163DE61E17CFF0E1A631028190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88F3986CE3E2BEBDABBBFE0746D9C0AFA5546FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ Pat Metheny - The Orchestrion Project (2CD) (2013) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:0B4B81BD06631B349064652CF059C714C36C2DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ Mimi - Soak (1998) [FLAC|Lossless]<Alternative, Indie, Electronic>
 ```bash
 magnet:?xt=urn:btih:D3FD397FAD2BEF7FB0DFB601A91B864B10DDB8A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65244C78D654781ACF2C29EF575E6A11815352FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ VA - A Tribute To Маврин - Fifteen Years (2013) [MP3|320 кб/с, 128 кб
 ```bash
 magnet:?xt=urn:btih:C2E2D8E80A64C0320E13C4DADF2BABDEF642E008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ Miss Blues - 3CD (2004-2012) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:4DCCBC4B76F9BC704D87A42A2AA566C3D1956BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C9A8FDB70C048951D93B09BA8306168A24DD9C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF9AC955233F4ECACA455DABB5934E590352BE8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +492,7 @@ Tech N9ne - The Box Set (2009) 5CD [FLAC|Lossless]<Midwest Rap>
 ```bash
 magnet:?xt=urn:btih:1BF1D2330232CBA63CBC42FF27DD61E3B5E33C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ Krewella - Play Harder [Remix EP] (2012) [FLAC|Lossless]<Dubstep | Electro House
 ```bash
 magnet:?xt=urn:btih:8A9EF64F202D7555545C5B9D37D8D8BA74736CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ Krewella - Play Hard [EP] (2012) [FLAC|Lossless] <Dubstep | Electro House>
 ```bash
 magnet:?xt=urn:btih:27DEE77C810333C3DCCDE1B0F4DB2A5F52ADF40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68FBCF847FBAB137D641FC1656F4CEB68C69342D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ VA - Record Super Chart № 306 (31.08.2013) [MP3|192-320 кб/с]<Electro House
 ```bash
 magnet:?xt=urn:btih:15AD4E8027F752DD173652A62F1FC323EBED87A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ Black Lab - 7 Albums + 2 Solo & Side Projects + 1 Compilations (1997-2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:BEDBAADF9C2FF6B73823A4193DA24C97B388D801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF1708EF1490B16627295152A702DE02D4D32CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ VA - Музыкальные новинки интернета. Осенний в
 ```bash
 magnet:?xt=urn:btih:E7C19E28BF8E6E17627983A6658408FA4205652A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +736,7 @@ VA - Acoustic Planet. The Best Of Acoustic Guitar Vol. 1-2 (1998) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:B8517F978CDC784C7957A39BDC8B963D40F0A2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +770,7 @@ VA - Priyanka Chopra Bollywood Darling (2013) [MP3|320 кб/с]<India, Soundtrac
 ```bash
 magnet:?xt=urn:btih:6EC83B1011852145F68105A4B45469C235657D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

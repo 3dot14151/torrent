@@ -19,8 +19,7 @@ Chronicles of the Sword [Ru] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:195B6DDF03683A30F1059ABA4AD9F493931B22A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mageslayer - аркадная бродилка с бешенным драйво�
 ```bash
 magnet:?xt=urn:btih:5BE53F7D9E145297036640068546E8AEE9F1BF34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gambling Tycoon / Activision Casino (L) [En] 2001
 ```bash
 magnet:?xt=urn:btih:76AFA1D56F3FBBDB6B13B355460FA3EE86345507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Dark Eye [Ru] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A5A130B5D22256FA5831654A044D62803DEEAD00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DF09EABE7B2AB06EECBB760DEC974130A26B0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Metal Fatigue - RTS, которая сосредоточена вокруг ог
 ```bash
 magnet:?xt=urn:btih:96BE7AD8FFFADC80BF327AF7FDAAD1347B354726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Emperor: Rise of the Middle Kingdom [Ru] (Rip) 2002 | Pilotus
 ```bash
 magnet:?xt=urn:btih:AB2A2D5DE63B7DDF6BB60317620385E7DE057011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ F.E.A.R.: Brutal Force [Ru] (Lossless RePack/Add-on/1.08) 2007 | MAJ3R
 ```bash
 magnet:?xt=urn:btih:3263A1609D36E11EB9D170ADB279B07F0B6E7BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Arthur and the Minimoys / Артур и минипуты [Ru] (RePack) 2007 | MO
 ```bash
 magnet:?xt=urn:btih:46ECE19C6977F4AEE926A5AE14CC42743AABDD11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

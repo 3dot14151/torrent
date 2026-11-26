@@ -18,8 +18,7 @@ Videoblocks Typography 08  - Шаблон анимации для After Effects 
 ```bash
 magnet:?xt=urn:btih:D38462858307FB905B0A4FA1162BCEBF18D12295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Летний марафон № 125 / Видеоклипы (Зарубеж�
 ```bash
 magnet:?xt=urn:btih:0D6989CF8638C4A11F623A4FF6CE7D8841FE28CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A8DE4D7A3274D6E92DD678D6CDCD231AB20A7F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ xKore - End Of The Line (2014) EP [MP3|320 кб/с]<Dubstep, Drumstep, ElectroHo
 ```bash
 magnet:?xt=urn:btih:727A542C2D7D67E2A4A45E932410BDA1F7CCC91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Brian Setzer - Rockabilly Riot! All Original (2014) [FLAC|Lossless|WEB-DL]<Rock,
 ```bash
 magnet:?xt=urn:btih:D87082FC623F9A9E8E1E7F764F3FF24532BB6210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C171E8A5BDF9392DAF4CF585F2F601B1927D1241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF6EB73E372FF30F41DC9ECD7D9D989927D2F674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Videoblocks Typography 16  - Шаблон анимации для After Effects 
 ```bash
 magnet:?xt=urn:btih:69B107DA8140E304DD22C540E920AE0EECD4DEC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC6BF65238B04F289FE86B4DB07B47603E3844AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Alcohol 120% - эмулятор CD/DVD-дисков. Программа созд
 ```bash
 magnet:?xt=urn:btih:4DE738142C0D4B0A02FC273CF88564821B60657E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4DF74F9F3E2EB68438E097FA5ABC3002484DBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Videoblocks Typography 09  - Шаблон анимации для After Effects 
 ```bash
 magnet:?xt=urn:btih:51E6050AF3B682DD7837365C48E0323C6FC2EE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Videoblocks Typography 02  - Шаблон анимации для After Effects 
 ```bash
 magnet:?xt=urn:btih:9EDEA8A5A0ED41E58981C7D96DDFF455FFC7C9C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:763055DE5D1ED5E9F216E6EED877144F98CC3020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0B393C4E149857068BB201C76430E426225CD30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Hard Disk Sentinel - утилита для мониторинга и контр�
 ```bash
 magnet:?xt=urn:btih:06B6C59A0469E9F016B82C2E7905081A72677D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Videoblocks Typography 25  - Шаблон анимации для After Effects 
 ```bash
 magnet:?xt=urn:btih:83EC3D36647221B2CCD3B8EC8AAEE8F0E4304AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:054209DEFAF7201BDC34F4197F4A58C1DBED0F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A308947689A124D6CD3A4F9876257E7EF6411461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ Videoblocks Typography 30  - Шаблон анимации для After Effects 
 ```bash
 magnet:?xt=urn:btih:CE7AD5198E15CDB915AE1866D802AAE55313DF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ Wallpapers - Mix Full HD 11 [JPEG]
 ```bash
 magnet:?xt=urn:btih:955C6653D0D0E4834A8709FC9D1FE3B3296AA740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +563,7 @@ Black Mamba - старенький проект, но может кому при
 ```bash
 magnet:?xt=urn:btih:18040FE552C45EC90E3FF3D70968897EA63DAA42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ Disk Drive Administrator - программа для скрытия, блоки�
 ```bash
 magnet:?xt=urn:btih:1B645DCB3DD35A49BDFD3CC301822F45E79C9B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67FF10E0FAF188DFB2E73ECDC50615677B972B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E2A681FBAB0948220C3C37056B1C13CA277A54B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2AFE7D662A8AD66EA04DD6238210ABD0C6E98C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

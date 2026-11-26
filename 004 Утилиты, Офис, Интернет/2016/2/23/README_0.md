@@ -19,8 +19,7 @@ Starus Office Recovery 2.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:507A0EE41AA5AA5CF6F4425A9C3162097A631F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hetman Excel Recovery восстановит файлы электронных �
 ```bash
 magnet:?xt=urn:btih:5E91AC031F18C448BF974DBC9F9D00065B99D522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Starus FAT Recovery 2.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1C6E3E2B410889A302716A4E56060176C8A27B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Starus Excel Recovery 2.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F3EA396A93B94E8026E99A08B353798F06A97D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hetman Office Recovery поможет восстановить важные до
 ```bash
 magnet:?xt=urn:btih:1C5F92A54F7AEDEB9A13FF5422F9403E54D986A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Starus Word Recovery 2.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B0829728D81F93533B7029886244FF5300C255B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Starus NTFS Recovery 2.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FBC785E7AFABECEF7B6718DAD9A37A9874D8FCEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Starus File Recovery 3.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:116EAB7BF90FD7C84E27CF1DFC40B757544E4A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Starus Photo Recovery 4.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8405403D9FFAA2CEC3CC7CB568E55FAFCC64CF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Hetman Uneraser 3.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C9F38BCC57F78BA3D9245AE0EDD0BD891DC4CB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Starus Partition Recovery 2.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:76EC0F2BA1697B59DF04F98510A14E742A6F0F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Eatr・Здоровые рецепты v2.11.1 Mod by vadj [Ru]
 ```bash
 magnet:?xt=urn:btih:CFA813CD8C7F5C7B87F8E854B192D81F08BE625B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Solid Explorer - это приложение для управления фай�
 ```bash
 magnet:?xt=urn:btih:B2D7BD7E27FD87144B433609078BD627A8691F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 ```bash
 magnet:?xt=urn:btih:87A52D4763C0EC06102FDE85647F2A13F85C0A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:D6C16AC0B2E7EF66C44C4E8BF7E4E46362F3B27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ FitAI имеет базу данных из более чем 3900 упражн�
 ```bash
 magnet:?xt=urn:btih:A7F16A8729117B99A9BE96B823F07CD3AE15E975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:69AF92CE6C92AE5CC760B51217744CE6153AE8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ AirBrush: ИИ Фоторедактор v7.23.5 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:505C0505020C81B37514CAFAEB2BD20E22E4E57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

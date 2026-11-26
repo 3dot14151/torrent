@@ -23,8 +23,7 @@ Trade Empires / Торговые империи (L) [Ru] 2001
 ```bash
 magnet:?xt=urn:btih:614102BB5AA0778A0A7B2E2C424B9E5812C8693C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

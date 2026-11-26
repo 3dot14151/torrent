@@ -21,8 +21,7 @@ VA - Assorted Remixes Compilation Part 3 (2025) [MP3|320 Kbps] <Electronic, Inst
 ```bash
 magnet:?xt=urn:btih:B5721F4ABA1FDAE215B16A362DA43F2A759E9B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Jack Holmes: Master of Puppets - хоррор на выживание от пе�
 ```bash
 magnet:?xt=urn:btih:D71EBC2C66A65FB3CFAA3D2191E87C4277643936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Terra Memoria - ролевая игра с фантастическим миро
 ```bash
 magnet:?xt=urn:btih:39E229E0150EB7BEB604BFF9C357B636563F8C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D6265BE4DC560E539AD36312CBE958EEF97171E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ iSenin - Устал я... (2025) [MP3|320 Kbps] <Chanson>
 ```bash
 magnet:?xt=urn:btih:BAA8DA35CA37E9C258C0BB20DE935EEDD1372627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Dschinghis Khan - Mexico , Maxi And Singles Collection (2025) [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:798DEC3DE5BC6C426324230FBEFCAF659790CAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Little Misfortune - это интерактивная история, посвя
 ```bash
 magnet:?xt=urn:btih:4E155F357DCC06D92CE7C10D3BAD0E030520129B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72EE8DEDF2C85412449E030BC328ADF50219FA74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:A1AEA568F3DF32060BC3E3EA9725DB177CA27F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Overcooked возвращается с новой порцией безумно�
 ```bash
 magnet:?xt=urn:btih:A32ADEB7F6E1519579FE674229DFFA0FFD066594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55E8179F89ACB7D6EF481472C06E0A2FD1430656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Qalculate! - это многоцелевой кросс-платформенны
 ```bash
 magnet:?xt=urn:btih:E4DB108A078E9FB28CBA57BDCDD41F433D751294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

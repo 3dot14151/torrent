@@ -22,8 +22,7 @@ A4 For You(   Читать дальше...   )Жанр: Progressive RockПрод
 ```bash
 magnet:?xt=urn:btih:29D411AEF677457DE19BDA8A1EE856D68E0A80C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side 1
 ```bash
 magnet:?xt=urn:btih:5145FF0DE54B82D40ED6154FCFD717424B65EC68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - RETROспектива, часть III: Эстрадные оркестры 
 ```bash
 magnet:?xt=urn:btih:84F4C7F50EB9BAA08B435D8DF13429EF11BEBCB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - RETROспектива, часть IV: Эстрадные оркестры I
 ```bash
 magnet:?xt=urn:btih:74FC521C0E5B5E509B7017D8E7D7430E9CFA2FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A4 Texas(   Читать дальше...   )Жанр: Pop-RockПродолжит
 ```bash
 magnet:?xt=urn:btih:4FAB54180658E49682BA09E4CE562340867C4279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2743DB71521680C4B2496053C2ACDF6ACCB75877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

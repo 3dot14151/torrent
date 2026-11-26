@@ -19,8 +19,7 @@ Word: Поиск Слова Кроссворд v7.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5901EA2C1C7F967D8B60DA40D7DDC322A25C2700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

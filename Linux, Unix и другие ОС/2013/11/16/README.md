@@ -27,8 +27,7 @@ Mageia 4 Beta I [i586, x86-64] 6xDVD
 ```bash
 magnet:?xt=urn:btih:80A5D2D692AB42F71C034DB7AADF91569F952BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Linux Mint 16 RC (Cinnamon, MATE) [x32, x64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:F72A2CDE1867292370D66EDB59685A55FC2D6733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Accept - Blood Of The Nations [Japanese Edition SHM-CD] (2010) [FLAC|Lossless]<H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

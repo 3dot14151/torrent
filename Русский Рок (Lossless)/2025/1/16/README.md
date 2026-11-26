@@ -22,8 +22,7 @@ Druknroll - My Dark Desires (2023) [FLAC|Lossless|image + .cue] <Groove Metal, M
 ```bash
 magnet:?xt=urn:btih:ECB7A3205D650E0475ABC8B42CBA8A530694B53A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

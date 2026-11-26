@@ -19,8 +19,7 @@ Dreampath: The Two Kingdoms (2014) [En] Unofficial [Collector's Edition / Кол
 ```bash
 magnet:?xt=urn:btih:27F6A910E9CF8EDE7D2D1002C220CA01A9EA33D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rite of Passage 3: Hide and Seek (2014) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:D1AE42ADD59A3BA0908F9B11D768C04688AA8B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Chronicles of The Witches and Warlocks (2014) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:1B117CC2FDDB6FC9F763DF295A9F2287DACE531E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

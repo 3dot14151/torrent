@@ -28,8 +28,7 @@ Night in Gales - Five Scars (2011) [MP3|320 kbps]<Melodic Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:23C1935DF3C450ABA49E4ECCE0F60EC38FF80460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:455250B28FC0D6033CA9F7C6667B13D5ACE6284D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Union - Siren's Song (2011) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +139,7 @@ Leonard Cohen - The Collection.5CDs (2008) [MP3|128-192 kbps]<Rock, Songwriter, 
 ```bash
 magnet:?xt=urn:btih:E1B8723694116859D82F5C88FF3ABC0823C015BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +173,7 @@ SunSay - Легко (2011) [FLAC|Lossless] < Alternative Rock, Experimental, Fun
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +207,7 @@ Bon Jovi - Blaze Of Hits (Limited Edition) (2011) [MP3|320 kbps]<Rock, Hard Rock
 ```bash
 magnet:?xt=urn:btih:640835FAAB16099E79BF44F6C7937C79021E7717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08F5F3C9218E11FF029E1457AEBADB60A6FCB15E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

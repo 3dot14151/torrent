@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:99A0757954C1521B070DB09588FF1825F62F2DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Greenpeace Rocks (1993) [FLAC|lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:16D7195BC7DFA7458E62E8FAFAB3A79F3D558E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Silent Sector - это олдскульная научно-фантастиче�
 ```bash
 magnet:?xt=urn:btih:79D73AB0EA4AD8D7604305DE9BD81AE8F187FE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

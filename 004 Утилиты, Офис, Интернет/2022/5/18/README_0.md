@@ -20,8 +20,7 @@ ContaCam – невероятно простая и бесплатная про�
 ```bash
 magnet:?xt=urn:btih:5FE6305AF97F25B55D88E075387AF494CC7CD748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Microsoft Toolkit - это набор инструментов для управ
 ```bash
 magnet:?xt=urn:btih:77FE72FB4347968891ADB79B60E995A49C750606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

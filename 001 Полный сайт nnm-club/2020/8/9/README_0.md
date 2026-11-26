@@ -19,8 +19,7 @@ Bible 6.8 [En]
 ```bash
 magnet:?xt=urn:btih:4EC40B741723D15134F6E8BAE2336D2ED1B45978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C949B45D3E3BFDE125A916BCE70E7AEEAF4AB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Simple Recorder PRO 1.9 [Multi/Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Soul Blind - Greatest Hits Vol. 1 (2020) [MP3|320 Kbps] <Grunge, Shoegaze, Post-
 ```bash
 magnet:?xt=urn:btih:6C208B5D619DCCA1553A998C15E8B49D65DABC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Deep Sun - Das Erbe Der Welt (2019) [FLAC|Lossless|image + .cue] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:4F354D0CE98E52EC9A8FCC9DED87FA258725B7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Orbit Culture - Nija (2020) [MP3|320 Kbps] <Groove Metal, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:554A621CF258A7BFD7EBAB0646E8AB76EA85421F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Orbit Culture - Nija (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Progres
 ```bash
 magnet:?xt=urn:btih:32998F79B2C59FBA7BA176490C32237057A78DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Black Veil Brides - Re-Stitch These Wounds (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:53C3945A2D757E16C682AFBC91941DD20C1F84A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Deep Sun - Race Against Time (2016) [FLAC|Lossless|image + .cue] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:C2E9960F284055BD123F4D5353D4D3721D2A79A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A87322339A32933590A1EDE81CA5A169CB8208FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Inside Treatment - Underneath My Purple Shades (1991) [MP3|320 Kbps] <EBM, Elect
 ```bash
 magnet:?xt=urn:btih:4B83DC9BD761717236573CF2CB51411DFD36E4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Onslaught - Generation Antichrist (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:770444808441E53C342FDFD03B4C32F5E1FFAC4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09AAF1B1D3EC3957DFF40DAD5FDC614A36D4900E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ Dukes Of The Orient - Freakshow (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:4427246FFD9F15922CFB2A17BC8972933620BC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Cultivated Bimbo - Tunes From a High Wire (1992) [MP3|320 Kbps] <EBM, Industrial
 ```bash
 magnet:?xt=urn:btih:378593ED0E52936FC59CED9A3B029D962E96EE0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ L.J. Johnson - L.J.'s Love Suite (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul
 ```bash
 magnet:?xt=urn:btih:54D603C386FC2F335D932087CFE69CD1A7E8F8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E71205F67AF14A7F12856C4F804DCB9C183C2A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EB8FD98ED3DE4FB0CCA10F160D2AF6A91DBB443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60C257DFD54FB7A19B3BE8DE343041744AC3DD75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ VA - Rock Poetry (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C958636E041E845F3E14674F110805C00F3FBE7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5698611AF2317137EB35083E884EFE1CC64D2210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ God Module - The Unsound Remixes (2020) [MP3|320 Kbps] <EBM, Aggrotech, Dark Ele
 ```bash
 magnet:?xt=urn:btih:367CD8AA11A999D99ED3C303EB80BC81AD6A9C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FC19C3C65334A266004D7B3C1C7FA70BE99126B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Scapa Flow - Chased By Sunset (1991) [MP3|320 Kbps] <EBM, Industrial>
 ```bash
 magnet:?xt=urn:btih:499A0EB400DBA3449E87735D29F954DE3E4BD160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

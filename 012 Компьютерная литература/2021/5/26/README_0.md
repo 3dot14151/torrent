@@ -21,8 +21,7 @@ WSTG - это всеобъемлющее руководство по тести�
 ```bash
 magnet:?xt=urn:btih:AD264B29C35823BE40BFBF91B224FC9E6B91B81E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

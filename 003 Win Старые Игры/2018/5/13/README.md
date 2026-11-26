@@ -19,8 +19,7 @@ Sid Meier's Pirates! (2004) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D346AE04E7E1C8BB4CA4485B9A63B98BA84711CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

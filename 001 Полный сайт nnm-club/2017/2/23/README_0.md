@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:4FA45E8AF763D3BAF08AEF47600645F9E6556BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Лучший русский шансон. Выпуск № 2 (2017) [MP3|25
 ```bash
 magnet:?xt=urn:btih:C69CE20822C7EDFEEAB4DFD20C73D6DB05459876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - I Love Music! - Experimental Edition Vol. 10 (2017) [MP3|320 Kbps] <Electro
 ```bash
 magnet:?xt=urn:btih:384A5BE220B3C5FDF7CE213F5DEC81C38E107B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Disco Nights, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:1A7A708BC3D061B160A702A71C9B2247CD5E27AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - The Sweetest Taboo Vol.2: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downte
 ```bash
 magnet:?xt=urn:btih:76484635CE9A57CC096A0D6DBA582C4428B70F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - 35 Relaxation Meditation Multibundle (2017) [MP3|320 Kbps] <Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:960AE5C60C1639C90FAC39DBFB17ABD1EFCAD82B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ VA - Ресторан Кураж на радио Шансон выпуск № 5
 ```bash
 magnet:?xt=urn:btih:185C05402098A53AD1D6C174A04A6907116E63EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Please - Seeing Stars (1969) Remastered, 2001, Acme Deluxe Series [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:FAAC40BE34C1922A37B64D03829BFCEF5BE10E20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF76AA2A80A15EE54F675674E396E68F1D6D4E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9047A14B85E7273AF3384F1704ED31038D163E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA34D59C4E4DED9CD536528F7383A5DFB3A384A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A620CEFAD81030C0058BD937B0B169D9DF6175C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ VA - The Sweetest Taboo Vol.3: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downte
 ```bash
 magnet:?xt=urn:btih:EB5CD92B83D8E6F04A40BB9CC2EEBB846EA2F53C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ VA - Танцевальная зима. Выпуск № 10 (2017) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:4155DD51E7095037542E41F392BE6DAFB0BC68A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Patrik Jansson Band - 2 Album (2011, 2014) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:A73DB0449FBF89FA741DF06B577FFA2C3E7EDFE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ VA - Козырная песня (2017) [MP3|256 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:F5A98A76A40DC58E2BA183E12DE3180785748CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64C5D6F4DC298FBAB7DE1E5029FDDCEF1BF9162F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1C9958D2762D2AD16142831D6E04A16D9113FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ TextSoap  для Mac OS - Поможет подчистить текстовые
 ```bash
 magnet:?xt=urn:btih:80B86C0CE9E91F3B528B135B3419BD8161920C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9983DE3EBDDA7791DFE5B5B95BCDCF045AA149D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ Monster Energy NASCAR Cup Series 2017 / The Clash / Daytona / Гонка /  (201
 ```bash
 magnet:?xt=urn:btih:7D03FB650B540B6242AF741D6B4A08BB10C4C940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFABF1B1181705AE89541EEEE86C4B32112E3CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A8D4DEAEF5054B0599F1A237192C090AD731CC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ Business Templates представляет собой прекрасный ко
 ```bash
 magnet:?xt=urn:btih:6B71A5FB1174F0CFCCD453FA6A8BDD4997003DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ VA - Chilltrap Vol.9 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Chilltrap>
 ```bash
 magnet:?xt=urn:btih:2DC8643B367E562D12E5D4D7636FDF854D473CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

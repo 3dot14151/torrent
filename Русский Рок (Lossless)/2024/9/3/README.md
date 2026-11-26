@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:57071AD5081F8D6075823E0CB2559DE8D0B22D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1 - Zvuki Mu:
 ```bash
 magnet:?xt=urn:btih:E6B775E86C0F82F0D59A5F481F1FE173320DBD2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

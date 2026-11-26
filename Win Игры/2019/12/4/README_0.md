@@ -19,8 +19,7 @@ Fear the Dark Unknown переносит вас в великую классик
 ```bash
 magnet:?xt=urn:btih:C6E519132F33D5DD961054FB1EBB17650C180E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

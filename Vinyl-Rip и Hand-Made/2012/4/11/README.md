@@ -19,8 +19,7 @@ Roxette - 9 альбомов (1986 - 2001) [MLP 2.0 44.1/16 |DVD-Audio (CD-Audio
 ```bash
 magnet:?xt=urn:btih:845924702DC97880714C5922132AD60FDB12E784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

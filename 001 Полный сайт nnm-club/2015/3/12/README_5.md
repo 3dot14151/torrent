@@ -18,8 +18,7 @@ Eador: Masters of the Broken World / Эадор. Владыки миров (2013
 ```bash
 magnet:?xt=urn:btih:8C8655BBA96A51DC0D67B444B38A90A3B00456CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ We're back! - Мы вернулись! Уже какой раз мы слыши�
 ```bash
 magnet:?xt=urn:btih:7C7508B1AD3540193152875814B15DEC6E794B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBDD90490FC10D7C29FD6729352E6425DDCD47DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Far Cry 4 (2014) [Ru] (1.9.0/dlc) SteamRip R.G. Игроманы [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:4B274B2BB570795F170DD77C2202B4D391F59BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

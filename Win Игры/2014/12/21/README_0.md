@@ -19,8 +19,7 @@ Dead State [Patch] (2014) (1.0.0.134) Official CODEX
 ```bash
 magnet:?xt=urn:btih:6E82DDBEC925B3C9381B66989B1BC6B89C23E804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Elegy for a Dead World (2014) [En] Repack xGhost
 ```bash
 magnet:?xt=urn:btih:1FDE5C9A62AD2D67244DC3A2D16E26FE31709C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ NecrovisioN Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] (
 ```bash
 magnet:?xt=urn:btih:DC5A85945880F815018406A22661D794BD28D82E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE836C7BEC809D195C0E7DDA8863A4CA1C6CC88B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

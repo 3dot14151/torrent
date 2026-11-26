@@ -21,8 +21,7 @@ Nitrous Oxide - Avalon (2019) [FLAC|Lossless|WEB|tracks] <Trance, Progressive Tr
 ```bash
 magnet:?xt=urn:btih:38025F2A29B5D5187129548212B73A12664D46BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0ED12D6EE9C5A41F1C4BCD3C16A3F8F360F0CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 ```bash
 magnet:?xt=urn:btih:8F74951CDB936CF0FB9CA4119300DCEFD2D6B536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ KOMPROMAT - Traum Und Existenz (2019) [FLAC|Lossless|tracks + .cue] <Synthpop, N
 ```bash
 magnet:?xt=urn:btih:5915FAF31895594A3C3C2C09FBB2F31315046A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Airwave - I Want To Believe (Remastered Deluxe Edition) (2019) [MP3|320 Kbps] <T
 ```bash
 magnet:?xt=urn:btih:21DCBE388B48A1F0E6F67D6A6FE8C9093CFF3031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Uplifting Only Top 15 October (2019) [FLAC|Lossless|WEB|tracks] <Uplifting 
 ```bash
 magnet:?xt=urn:btih:0D39AA504AD6E8AFD5CB48B570F1462F70D1BFD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Vanilla Pro 1.2.2 [En]
 ```bash
 magnet:?xt=urn:btih:74D9D5F83A0F7265166F59EF0868A3EFAE439C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ National Geographic. Капитуляция / Surrender (2015) HDTVRip [H.264/72
 ```bash
 magnet:?xt=urn:btih:532B97BC19A8341987B53FBD6B3A9B1EDDDE29EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:456B3C7CD7F5F1902106ADF0ADCC393D5086C9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ VA - не Громкие новинки недели 38 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:6608736B8E3F77C598C107C7C2C18C9AD0AE1F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Macsome iTunes Music Converter позволяет преобразовывать
 ```bash
 magnet:?xt=urn:btih:EDE6B5D071BEA5C5B5DA13831148A459AC4F02A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E3426833A583A98F990338E3BE13790AC6C7116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Bay City Rollers - шотландская поп-рок группа, созда
 ```bash
 magnet:?xt=urn:btih:49ED87ABC229630FF8FD678419382A3F1F37035B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C76FB79B04B44CC7D2AE07CAFDFDB9142E414271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:531D8DCF40F8562EF45D182A59F2A3B9E215C7E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EA00B2EC54000494BDFCAA6E0EF34C91EEA671D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Makoto - Tomodachi Sessions (2019) [FLAC|Lossless|WEB|tracks] <Drum & Bass, Liqu
 ```bash
 magnet:?xt=urn:btih:A2CF706FAD99AF12A2BDA1EEF1FF21620CCDB674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ The Leslie West Band - The Leslie West Band (1975) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:925BDB47C9CD737DA36EFAC3C0754FEE9143016C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ National Geographic. Капитуляция / Surrender (2015) HDTVRip (сери
 ```bash
 magnet:?xt=urn:btih:9BA25F30534B6E2458881B482397EA3A373EB635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ Rigel - Creativity Portals (2019) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:45DEB0F124AD22B31AD64EB2DF6F7E721B18060B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ Ummy Video Downloader – для быстрого скачивания любо�
 ```bash
 magnet:?xt=urn:btih:6C66BA1D5B8E91763D8716B5473103C790D2FC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ Commander One - универсальный инструмент для легк�
 ```bash
 magnet:?xt=urn:btih:3325273F7CB7331B591D6EF9C63D80B424445037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ VA - Goa Moon Vol. 10 (Compiled by Ovnimoon & Doctor Spook) (2019) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:F8C83AC717E1E5581265EC0BCA3405794790A656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Kirk Whalum - Humanite (2019) [FLAC|24/96|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:3162D06153AF3FD31CF1A9EA776C2A6562B5B7EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7ABE4EDAFF9DF2B1FE12761E27E048CC496B34C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Hider 2 позволяет шифровать, прятать и защищат�
 ```bash
 magnet:?xt=urn:btih:1A15928D56980B2EAB985CCEE3C9B27CF63734EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

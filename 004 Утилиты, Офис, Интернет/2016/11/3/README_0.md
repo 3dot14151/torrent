@@ -19,8 +19,7 @@ Screenshot Captor - мощная бесплатная программа для 
 ```bash
 magnet:?xt=urn:btih:864308D7B307F99BECD4BE3F89973F72F03AE18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

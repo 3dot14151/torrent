@@ -19,8 +19,7 @@ Groovy - это основанная на физике, игра платфор�
 ```bash
 magnet:?xt=urn:btih:A32C296E60F7F86D3FBBE256C4A2C182756170A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tales from the Void (2016) [Ru/Multi] (1.0) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:618441FED9DDABE5014E591AC41F1BA313C45D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tiny Knight - трехмерный платформер про сражения 
 ```bash
 magnet:?xt=urn:btih:F3CDA7AE9048DC66172BB3FC0B585B8DD2FEC321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License HI2U
 ```bash
 magnet:?xt=urn:btih:64C2A87AC384B1C87EE3EE445D93273EBCB5547F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

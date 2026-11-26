@@ -19,8 +19,7 @@ Swords & Soldiers – казуальная одномерная стратеги
 ```bash
 magnet:?xt=urn:btih:68D8EF07ED856B722797D75C60C94C04219019AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fill Up 2 / Заправъ-ка 2 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:ADF5C6311081E5A228AA0A6A436D73A30B00FDB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

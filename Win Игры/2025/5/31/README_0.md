@@ -19,8 +19,7 @@ Frozenheim – сага о викингах, в которой главного 
 ```bash
 magnet:?xt=urn:btih:E213B52A3A07E8F0F73D3F29A1D9CF976DB1E0B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Antonblast - это динамично взрывной платформер, в
 ```bash
 magnet:?xt=urn:btih:41873DC7FA5764084397492DB429E00A4618C6D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2790C165421E78EC1CAA5FD1B94612273B995BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Astral Ascent переносит геймеров в современный фе
 ```bash
 magnet:?xt=urn:btih:FDE377009791E32E106EA200D622766E4A913F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Terraformers предлагает вам построить космическу
 ```bash
 magnet:?xt=urn:btih:FC7E805D227127AF2AA041485781D373226EB7D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Zombie Cure Lab (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D257D91C4456B54FFC00B6C277901B13B413D9B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Disney Illusion Island - это двухмерное приключение дл
 ```bash
 magnet:?xt=urn:btih:4885744B78D58015FB03EDAD494D645D7D966CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ RoadCraft (2025) [Ru/Multi] (1.5.D1PATCH.450651/dlc) Repack Other s [Rebuild Edi
 ```bash
 magnet:?xt=urn:btih:7B6CF097C616CF1F2741DD2B52D43AAEC07D3E01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
 ```bash
 magnet:?xt=urn:btih:2241AC0D820084119D0B6813589B9E5CEEB52421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ ICBM – стратегия в реальном времени про глоба
 ```bash
 magnet:?xt=urn:btih:50043427E226E1E4DDA4233831239D9F6FD52286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:878E557F4A10CE7EAE90714E7AA16DB720A02CE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Mind Echoes 2: Remnants of the Past (2025) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:4990B48A98E3249F0703D41253C8A8027CC0EEE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Golf With Your Friends (2020) [Ru/Multi] (19.981700/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:586EAB9C84732B7EBE4AB96809DDFD3C0AC32FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

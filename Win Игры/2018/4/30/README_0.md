@@ -19,8 +19,7 @@ Tales of Terror 3: Estate of the Heart / Трепетные Истории 3: П
 ```bash
 magnet:?xt=urn:btih:12D516F216E5CF0DA86EC06D7C03C0C70F268AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

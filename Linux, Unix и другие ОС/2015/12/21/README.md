@@ -21,8 +21,7 @@ Cyborg Hawk - Linux дистрибутив, в состав которого в�
 ```bash
 magnet:?xt=urn:btih:1A11B5B9EF9A22C2BA921E6EA689B1303CF4DA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

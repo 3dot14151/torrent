@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:A5ACEADC637F8BD94E21D820256E419D96F56336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ polnalyubvi - Песнь Нимфеи (2026) [MP3|320 Kbps] <Alternative Rock, I
 ```bash
 magnet:?xt=urn:btih:2E238DFF0B15EF35202129BF37EE0F14EC4AA66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

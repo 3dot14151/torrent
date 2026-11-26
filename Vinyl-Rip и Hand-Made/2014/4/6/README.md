@@ -22,8 +22,7 @@ A4. Laredo Tornado (5:30)(   Читать дальше...   )Жанр: Progressi
 ```bash
 magnet:?xt=urn:btih:0B52D0181E9C43236D1C00AFD00CD9B51AD090D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

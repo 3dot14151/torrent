@@ -22,8 +22,7 @@ The Reign Of Terror - Sacred Ground (2001) Reissue, 2025, Silver Lining Music [F
 ```bash
 magnet:?xt=urn:btih:D042EF191333046A59FCAF6456030BB8E391943E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Reign Of Terror - Second Coming (1997) Reissue, 2025, Silver Lining Music [F
 ```bash
 magnet:?xt=urn:btih:C3C6EFB852F3D760DA17A5A7A0C1F1B89D2BC764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

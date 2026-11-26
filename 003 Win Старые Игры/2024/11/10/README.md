@@ -19,8 +19,7 @@ GTA - Flame's Story (2024) [Ru/En] (1.7) Repack/Mod CTXMaps
 ```bash
 magnet:?xt=urn:btih:F770573EE2B39D95F039D274EEF0383E9FF5557A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Windows Blu-ray Player – это лучший проигрыватель для
 ```bash
 magnet:?xt=urn:btih:69D1A50D365112F7AF94DB2B33D80507E6A9E32C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Racing Air - гонки по ночным трассам на шикарных �
 ```bash
 magnet:?xt=urn:btih:130C313E9661E739AB28753AE61642EC6D12CB41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Final Cut 5: Fame Fatale (2015) [En] Unofficial [Collector’s Edition / Кол�
 ```bash
 magnet:?xt=urn:btih:F252B9067F9094B16DFE458067007B26CB3D6CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1B44EFB6B4DD7C4144B1C9E8237E9B9907A1146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Spooky Tooth - The Island Years (1967-1974) 9CD Box Set Remastered /2015, Univer
 ```bash
 magnet:?xt=urn:btih:7FBF84C2474A95201E21A35B2D63A6CB8F5736C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FD47D4FAA4EAC921B3EF7C8B3C2956D7E3BD788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:A0F50CC13DF9DCB6B17B205C6B4DF9B9924D2113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED2162A910E4E104E530BB826DF7F09EF3FB93A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F62A077D5C31FAC7824BB070135289F2588CE703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CD0FFF1F863C0E9A8A2839F6B41F51B085981F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Simply Red - Big Love (2015) [MP3|320 кб/с]<Pop, R&B, Nu Soul>
 ```bash
 magnet:?xt=urn:btih:FEB4D41C7C438F94D5FC2A740145B924444365FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Orkidea - Harmonia (2015) [FLAC|Lossless|WEB-DL]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:B021CA2CD760F68A213D9972D84E7407F160A18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Cyberfox 38.0.5 for AMD + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:81704D7F2A8064F569366EF7E6CA747AE1B0A520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDBE69456945F2837108345CCD784F9C3E9FA939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ VA - Future Sound Of Egypt Vol. 3 (Mixed By Aly & Fila) (2015) [FLAC|Lossless]<T
 ```bash
 magnet:?xt=urn:btih:865C05F372A4BC90C8885FE6A04D5B1C608523C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D71D3453B5CC3897E5D089C0B92D7AA63FC97C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F94EE1D57C071A1617030628063C702A27FB12D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ XON Episode 1 (Все три версии) [En]
 ```bash
 magnet:?xt=urn:btih:032959F9A16126A0563C81ADC2E79316887A164E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B10A2E02F15B1C801E6D8B973E17792C30E92CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ Anvide Lock Folder - программа для защиты папок от по
 ```bash
 magnet:?xt=urn:btih:FA4CE9F2E840D576F2008FE7396086FE14EAA841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ Back to Bed (x64) v. 1.0 (2014) [Multi/Ru] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:DF7F602BBFF1948D2E0B3869B36F03DAFF798595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E86D433FEB7164A8F75BD5027F6B5394857E2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ PhotoDesk позволяет вам просматривать, получать
 ```bash
 magnet:?xt=urn:btih:56B368ED97F114D5037E8CBECBB74A9D60ACC553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ UsbTreeView маленькая утилита, реализующая больш
 ```bash
 magnet:?xt=urn:btih:32DDAB2A34CB535B25C08C9EBD73C67EE1A36820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8C90D04E61E9A200816B40744FEFDFBEFF107E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A43BA873323CDC18607D611D7F3540ED03E5773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

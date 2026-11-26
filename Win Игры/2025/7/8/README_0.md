@@ -19,8 +19,7 @@ Spiritfall - экшн-платформер с элементами рогали�
 ```bash
 magnet:?xt=urn:btih:7959DDBC64733E9D74066613D99A1C6E94A267E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Motor Town Behind The Wheel – отличное сочетание аркадн
 ```bash
 magnet:?xt=urn:btih:DE69D248B8970BEE245D04A2FF7D1B4A10A2444D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bloodshed - это захватывающий сплав элементов уп
 ```bash
 magnet:?xt=urn:btih:5751D2C0444B26B3C6DA238F4AF5E2AD63777095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack Let'sРlay [Complete Editi
 ```bash
 magnet:?xt=urn:btih:5D5872BE891FA513961CAB401F19E744D8C868CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.114/dlc) Repack Let'sРlay [Digital 
 ```bash
 magnet:?xt=urn:btih:4402C3BE517B3A930AAC9F35B4882B76E66FB9B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Eternal Strands — это дебютный фэнтезийный приклю�
 ```bash
 magnet:?xt=urn:btih:A10410C08CAB3BA2D29315BD7D4E67FFC8C6B12E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Grandma, No! (2025) [Ru/Multi] (20250522R) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2BC48FF639692584999F8E4940BF617A31BBC117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

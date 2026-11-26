@@ -19,8 +19,7 @@ Sable Maze 3: Forbidden Garden (2014) [En] Unofficial [Collector's Edition  / К
 ```bash
 magnet:?xt=urn:btih:C042B931EE5638C168364081D29363D89C4302AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Insane Cold: Back to the Ice Age (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:0DFC40B2BDA865927ED8D84171C61C8A5D46B3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Warlock 2 - пошаговая стратегия в фэнтезийном се
 ```bash
 magnet:?xt=urn:btih:F7558D02298D4DEC4F8F554AEEB5D6B0AC0B639C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Shovel Knight - это классическая приключенческая �
 ```bash
 magnet:?xt=urn:btih:54351A9EEE31A9EEDCD6768A866D0DC9E547BA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

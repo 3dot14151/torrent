@@ -20,8 +20,7 @@ True Burner - удобное в использовании программно�
 ```bash
 magnet:?xt=urn:btih:FBBE03CBF5EF44B58C5B682E16322950AE8F8E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

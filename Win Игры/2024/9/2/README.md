@@ -19,8 +19,7 @@ Bewitching Sinners бросает вас в хаотичный фантасти�
 ```bash
 magnet:?xt=urn:btih:DE829BB179E89D75F69C64D811A8885DAA1CA074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tomb Raider: Definitive Edition - это приключенческий боев
 ```bash
 magnet:?xt=urn:btih:570A9311E9AEDE71DA4D56F6BCD05ADD066044B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Endless Days Z - напряжённая игра в жанре выживани�
 ```bash
 magnet:?xt=urn:btih:EDFE37BDF1A008401CA2DDAAE29A30729644E6B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Republic of Pirates - это не типичная градостроитель�
 ```bash
 magnet:?xt=urn:btih:894805DC111498BBFD81CF729484DA8C0D2DC649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 ```bash
 magnet:?xt=urn:btih:DAB0EDC384A8B74BD2CF23A55A98B1E1EED2F41C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:53D5FE7778E2CF2C8B83EB8C018328B2A2AE27A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Call of Sentinels (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:11BC0D0E3B96713F2CBED69FFA92C94AAA744173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:EE3FFC4F4F148323F8A28DB1FD7C2C6428A36528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Sumerian Six - это не типичная военная история. Ко�
 ```bash
 magnet:?xt=urn:btih:1EA2BE7439A9EA96E5258269BC91E8EE61739EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ NARIBIKIMURA (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D6757824FA21496FDB24F7A79A23E47442AC1387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.4/dlc) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:888CCDCF7874EC6F60325E111E447229CE40A7B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ LightRay - это логическая игра-головоломка с вид
 ```bash
 magnet:?xt=urn:btih:055C8A0ABABCCC3985C2051159BE3E62C68CB7A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ No Return (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:651630BE8AAFB5667C1E9BD2EB01DA544EF8C1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Bewitching Sinners бросает вас в хаотичный фантасти�
 ```bash
 magnet:?xt=urn:btih:F83BD9FF67AD54BB37702BEE4E5EB07DC6041B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

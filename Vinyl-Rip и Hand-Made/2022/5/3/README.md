@@ -21,8 +21,7 @@ Triosphere — норвежская Power/Progressive Metal группа из Т
 ```bash
 magnet:?xt=urn:btih:E6D71D32F46155D77744B0DB554E85F5A157A2AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Pat Boone · Пэт Бун - April Love · Любовь В Апреле (1986) [
 ```bash
 magnet:?xt=urn:btih:422090CFC33B88B77F7BAE68016AA78C0083C5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - XXXL Европейский 3 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <
 ```bash
 magnet:?xt=urn:btih:86B0C49B3A92AD36814265E7525C38ED20D46478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ A4 A4(   Читать дальше...   )Жанр: Synth-pop, DiscoПродол�
 ```bash
 magnet:?xt=urn:btih:BC5137EDBBB84445E7956DAAAABB28F35A3E8041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ A4 Cheryl Lynn - At Last You`re Mine(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Side 1:
 ```bash
 magnet:?xt=urn:btih:7CAF7AAD55B9C0712280BAD210322E49762FAB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ VA - Убойная Сила. Любимые песни из телесериа�
 ```bash
 magnet:?xt=urn:btih:F1400E62F41648F4FAA2221D1A194DEE66AA2B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:13452A78F5566CADF54DF1ED2A537EA91F320E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Poets of the Fall (с англ. — «Поэты Осени») — финс�
 ```bash
 magnet:?xt=urn:btih:83A0D503523CFEB6F1CB88310E877900D4AECB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

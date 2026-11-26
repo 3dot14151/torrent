@@ -19,8 +19,7 @@ Sniper: Ghost Warrior 2 (Crack/1.0) 2013 | FLT
 ```bash
 magnet:?xt=urn:btih:B14F1F71D7A818178B98289E4037496FDFA5934E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Lynda.com | PowerPoint 2013 Essential Training - Основной курс [2013
 ```bash
 magnet:?xt=urn:btih:56B98F40D30050AEA67D1ACAFE2E43D83491C599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ World War II Sniper: Call to Victory / Снайпер: Дороги войны [
 ```bash
 magnet:?xt=urn:btih:BCD995E109BA577393203814E0F9D3DAFF550769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Dead Autumn [Ru] (RePack/Mod) 2012 | Sereg
 ```bash
 magnet:?xt=urn:btih:764502479DC57A40C776D837B778D84CFB1ABB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0426FA5369AE91A4158F5C32253007A479A87B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CAAFC5AEE618BB60D30C8FC67975F31B2AE2E1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F478E861F74FF44BB274650FFF5A5F05736846E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED4410691A715F31DEC6AB529F5599D56657ADF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Luxor 2 HD - новая HD-реинкарнация Luxor. Luxor 2 HD увлеч
 ```bash
 magnet:?xt=urn:btih:E6658D039D6D87451D1D260396C6CB108A08919F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Gears of War: Judgment предоставляет возможность сов�
 ```bash
 magnet:?xt=urn:btih:431C8186F42DAB50484708C608B4F527D363A5F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Locus - простое приложение, показывающее онлай
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AEC6FD02BA5192F3C149AE5BAABCBBAC31F361A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Ending'и от RussianONIZUKAЖанр: FightingЯзык интерфейса: en
 ```bash
 magnet:?xt=urn:btih:20C831DDDC9FE34FABA2D0E2EBDBA706F9D60B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Silent Storm Антология / Silent Storm Anthology [Ru] (RePack) 2003-2005
 ```bash
 magnet:?xt=urn:btih:2D47543E6B12504DD0F443E7A8A0DFD8772B27AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ S.T.A.L.K.E.R.: Dead Autumn 2 - Другая реальность [Ru] (RePack/M
 ```bash
 magnet:?xt=urn:btih:E37E525D06D4B227661013DD1B1B1B891AB62367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Sniper: Ghost Warrior 2. Special Edition + 3 DLC [Ru] (Repack/3.4.1.4621) 2013 |
 ```bash
 magnet:?xt=urn:btih:34125CB58D52303E7652AA425595EE039BF54DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:365D8790CFE1D00CA7D0233D56EC3EAC544F444C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4F99D802001EDC96FD875CB347AC5072911F272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F115630F19BC2A986AF4DC5CE1C74D21694C2B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE275D78257CADA1CCE0176BF05093ADA9BC433E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Rage: Anarchy Edition [Ru/En/Multi] (RiP/1.0.34.2015) 2011 l R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:2E498B7A79B0AF9BE469429BB88A96704B0BD67A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Letasoft Sound Booster увеличивает громкость в Windows (XP,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ V-Ray — мощный инструмент визуализации, подде
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

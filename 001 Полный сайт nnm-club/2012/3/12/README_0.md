@@ -27,8 +27,7 @@ Nik Kershaw - 15 Minutes (japan) (1998) [FLAC|Lossless]<pop/rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Brain Suicide 5 (2012) [MP3|320 кб/с]<Electro,DubStep>
 ```bash
 magnet:?xt=urn:btih:45C6E14A3396323BA93ECD3D512A0DA76245E689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ AIDA64 Extreme - утилита является очень мощным инс�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Kyau & Albert - 15 Years (The Album) (12.03.2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:AB700FCC02B9235E17B5BE206AFE2DD326035F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Ministry Of Sound - The Sound Of Dubstep 4 2CD (2012) [MP3|~224 кб/с ]<Dubste
 ```bash
 magnet:?xt=urn:btih:D01D3DB6275FEFAE535081F1A746685B07966A3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Freemake Video Converter 3.0.1.24 [Multi + Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF14DE7ECD45B4AA1713525BD9201FCB9C41185F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:820A18ED2AA8B38F931F621F7364EC2F9E030BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ Analogik - New Seeland (2012) [MP3|320 кб/с]<Funk, Nu Jazz, Broken Beat>
 ```bash
 magnet:?xt=urn:btih:A1D0DCCCD1F2A02E791F1909C488A5268B3C791E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:023FDB3263AA40AA171314FE87F744929CD71343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ Crow7 - Symphony Of Souls (2012) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:C203701D7AF2602C4B81293207BEC66FDC7A2254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:400F85F611F5DFFAF5A1AD00172B4FAD00B4A160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:426643428966A682750F390048EF3B3A7B322DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ VA - Ayurveda Lounge. Relaxation & Meditation. Volume 1 (2012) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:B9E3086ACDD81D4D458C0A2546051D53AEE2F847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ Mystery Agency: Visions of Time (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B4420EE77580B43635B8567F2E6147694743166E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ VA - Муз-прорыв Русского радио Весна (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:AA40794564F571C2E3A1A579E750B623F39757A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ DJ GraF aka Slava -  Sabotage (2012) Год: 2012
 ```bash
 magnet:?xt=urn:btih:CB607DBEBE98168F51B1149F0FA33F54913236D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ VA - 50 D. Trance Tunes Vol. 3 (14.02.2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:13D44508ADF2E1DA6A7BF57EADE49CE774DB5E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ Dengue Fever - Cannibal Courtshop (2010) [MP3|320 кб/с]<Rock, Surf,  Rock Psy
 ```bash
 magnet:?xt=urn:btih:6FC55551D34D91330C60F0159484C1873C069143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ Google Chrome - веб-браузер с открытым исходным ко�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +651,7 @@ Matthew Compton - Essential Music for Healing (2000) [MP3|320 кб/с]<New age, 
 ```bash
 magnet:?xt=urn:btih:7636077B9B5426DF9CF75F9F51C386A4745421ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ KRS-One - The BDP Album (2012) [MP3|185-205 кб/с]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:5CD8C1A82FA38B45C7C9AC1F90A245286FC39759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ Hands Like Houses - Ground Dweller (2012) [MP3|~245 кб/с (V0)]<Post-Hardcore,
 ```bash
 magnet:?xt=urn:btih:9BA14969BA324BBBCA8A7074265C86BF7D38FA4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +770,7 @@ Maxthon - браузер поддерживающий вкладки и имее
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

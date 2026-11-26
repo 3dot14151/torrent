@@ -22,8 +22,7 @@ Grand Funk - We're An American Band (1973) remaster, 2010, Audio Fidelity [FLAC|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Chuck Berry - Golden Hits (1967) [APE|Lossless]<Rock 'n' Roll>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Lagerstein - Drink 'Til We Die (2012) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:5BC5E68D29A60B289F25A44FF652E82248D7E05B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Wide Eyes - Volume (2012) [MP3|320 кб/с]<Progressive Math Metal / Djent>
 ```bash
 magnet:?xt=urn:btih:843CF77F5D04F61D1A25665493B3A2F8BA2A7222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:137824CB80BB8AF3238996EEE9D5B5F51FF608ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Angels Fall - Yesterdays Gone (2012) [MP3|320 кб/с]<Alt.Rock / Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:89E9E59F3078FFD1FD5E3D87218319F8D3E2EB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

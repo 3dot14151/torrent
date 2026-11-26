@@ -20,8 +20,7 @@ Everyday words are arranged in themes with carefully selected up-to-date images 
 ```bash
 magnet:?xt=urn:btih:FEDEA84D49DF549B1F4A26BF6CAC21D1840660E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Writing Tutor consists of a selection of skills pages with information on ho
 ```bash
 magnet:?xt=urn:btih:B07073E7108D9A0C97DA7625C63CB2BA26447EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

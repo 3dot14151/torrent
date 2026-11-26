@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E1431D97EFEED4D2E281D6355D5B90DF7B3A7EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fish - A Feast Of Consequences (2013) [FLAC|image + .cue]<Symphonic Rock, Altern
 ```bash
 magnet:?xt=urn:btih:88845A1F2246F9A0443B2230F1541085208AA6A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:685CF3B77DE5A2E7FE3F5DB4D8004E86BF7E30B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Korea - Cosmogonist (2015) [MP3|233-320 кб/с]<Metalcore, Djent>
 ```bash
 magnet:?xt=urn:btih:9F360B14612A4DFCD2A6EEE61B89C2D193C5357E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Gentle Giant - Octopus (Steven Wilson Remix) (2015) [FLAC|tracks +.cue]<Progress
 ```bash
 magnet:?xt=urn:btih:3C9F1B5BDEF125043CF9C23D7EA7FC9B51D94FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Epica - Consign To Oblivion (2005) Expanded Edition, 2015 [MP3|320 кб/с]<Symp
 ```bash
 magnet:?xt=urn:btih:1B893A252425F5B613EA22A5B8F2443F223C0E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Slade - Alive At Reading (1980) Bootleg [MP3|192 кб/с]<Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:C3955D36F8858B6D769B8E79D64C7D27698058BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Foo Fighters - Saint Cecilia (2015) EP [MP3|320 кб/с]<Alt. Rock, Post-Grunge,
 ```bash
 magnet:?xt=urn:btih:934BA2C1BBBB1A77D038DE4159DF889ABED3FE5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Scorpions - Savage Amusement (1988) 50th Anniversary Deluxe Edition, Remastered,
 ```bash
 magnet:?xt=urn:btih:A41CF8A65DEEB93DD624D4AFD796FEBFE42BB49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

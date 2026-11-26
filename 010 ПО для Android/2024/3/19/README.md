@@ -19,8 +19,7 @@ Simply Piano - это одно из лучших приложений для о�
 ```bash
 magnet:?xt=urn:btih:6452A392DAC3A166DD7CD40C491869AE0F08221C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Strava: бег, велоезда, хайкинг v351.15 Mod by ReVanced Team [R
 ```bash
 magnet:?xt=urn:btih:717D0B0999A3EDEBA85ADE1371D39ECB8A9EAED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ UniBook - Аудиокниги v0.9.6 Beta [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6CE7886E68023DE46432FACBD9A67BEC5F7A1080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:56D729EF7DE275EEFED127E155FBF276C7A10AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

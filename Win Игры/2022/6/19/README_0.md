@@ -19,8 +19,7 @@ Living Legends Remastered 3: Wrath of the Beast (2022) [En] (1.0) Unofficial [Co
 ```bash
 magnet:?xt=urn:btih:AD2CFEABEE0EE83CDA6FF6F27C238298631E6BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

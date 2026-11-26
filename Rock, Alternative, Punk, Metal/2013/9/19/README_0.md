@@ -24,8 +24,7 @@ Ellende - Ellende (2013) [MP3|320 кб/с]<Atmospheric Black Metal, Post-Black M
 ```bash
 magnet:?xt=urn:btih:4D34AF726CCE2EB7B65BA9E4425386D4F685CA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Lucid Dreaming - The Chronicles Pt. I (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:13E153D0024462B85A0A098619A107A8836492D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Hollywood Burnouts - Kick It Up a Notch! (2013) [MP3|320 кб/с]<Hard Rock, Gla
 ```bash
 magnet:?xt=urn:btih:7B4C69C4BED6D2571D58CDC089212AE794D672FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Anneke Van Giersbergen - Drive (2013) [MP3|320 кб/с]<Alternative rock>
 ```bash
 magnet:?xt=urn:btih:D748F2A922DE39ACC6B1B8FAFAF1570B3C650E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ David Lee Roth - The Best (1997) [MP3|256 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:2C119C31A5DC848093B5D0B290D1DB8A88C1F1EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Dangerkids - Collapse (2013) [MP3|320 кб/с]<Rap Rock / Alt. Rock / Post-Hardc
 ```bash
 magnet:?xt=urn:btih:C410BF7D4A69122A401850E4C8BAB839EC19E6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Joni Mitchell - The Complete Geffen Recordings (2003) [FLAC|Lossless]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:B0501A8C93968B902C8903D46A41DCF3C827B8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

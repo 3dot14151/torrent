@@ -21,8 +21,7 @@ Paste Into File 5.6.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:170405C0A78F95FD3FD1C0172066928DE821954C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ FileVoyager содержит множество инструментов и фу
 ```bash
 magnet:?xt=urn:btih:5808463832FBAFA6183D2FAA86F5681C3BE23AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:D5D62B09AEEF06A145BC6B92E28E402ACD36C58A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:714FEBB36099731ED452BD077CC3A5402987F73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:A1FF05CE45C38D3309180E5067DD8D24F7268024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ optimizerDuck — это бесплатный инструмент для опт
 ```bash
 magnet:?xt=urn:btih:A3361631749A740FB08425C0EB345E1368536E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:DB58B29200AB3CB1AA884458F6B76DB5040A6936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Revo Uninstaller Pro 5.5.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8828CEAAC194B2747FBAE0309BE18BDFCC9A3110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ XML Blueprint 22.20260525 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B1FE546BA2820632E01C3B18FD0F4D234F1321BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ HWiNFO - мощный информационный инструмент, кот�
 ```bash
 magnet:?xt=urn:btih:3802A431A1C6B179593682D714CD55770123F081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

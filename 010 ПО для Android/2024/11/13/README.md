@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6B3605B4A574A02FF14BDA53C9C10C6240358B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A503B8162E89F6F4A0188C7BFC88949AEB01B9C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Solid Explorer - это приложение для управления фай�
 ```bash
 magnet:?xt=urn:btih:11E8A276861461E30F963CA5556C16642216CCA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ DreamFace APP — это мощное приложение, созданное �
 ```bash
 magnet:?xt=urn:btih:AAFAA2555EAE7215479CAC8AD67AB595121AD4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ STEEZY - танцевальная студия №1 на вашем устрой
 ```bash
 magnet:?xt=urn:btih:888A2CF77CBD7FDCDA12F162998E20E7026EA5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29C623F1AD0523941FD0145290FF3A9C23DC4541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

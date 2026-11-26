@@ -22,8 +22,7 @@ A4 Vegvari Adam, Csepregi Eva - Elso Szerelem(   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:F8EFA58768DB0371AAB8611CE71AAF0E67C9359E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Gymnopodie No. 1(   Читать дальше...   )Жанр: Prog Rock, Inst
 ```bash
 magnet:?xt=urn:btih:566A2DD5A1B85B65F78EE5739A9AA3A81A0E131C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

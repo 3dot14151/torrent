@@ -19,8 +19,7 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (3.0.8.39/dlc) Repack W
 ```bash
 magnet:?xt=urn:btih:8BDD07A1E64D86035FB78981E01D6161B90DDCB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.8.39/dlc) Repack W
 ```bash
 magnet:?xt=urn:btih:5E7C666C197D446E1A2AB109D1DA5321A7EC75E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Callus / Мозоль (2026) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:46FE64F08A72B3416F60D3282A078F050BFBE43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Thief является четвёртой игрой в легендарной �
 ```bash
 magnet:?xt=urn:btih:58C0EA68FA6E8D7261D4918AE662286A2BA9ED83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.1.1/dlc) Repack Wanterlude [Defini
 ```bash
 magnet:?xt=urn:btih:A78F1B54DEDAF0378AC9F827BCB97F60B97BF46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:349DCBD51B44A3DAEF5A9C0B9C0B1BB350041C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Metro: Last Light Redux – самая лучшая и полная версия
 ```bash
 magnet:?xt=urn:btih:8A6F1EE330CD7A5D33C43DF480D5091A54A11F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ GreedFall: The Dying World - приквел к оригинальной роле
 ```bash
 magnet:?xt=urn:btih:722AFA99DDFDF6A872F572A8E4946E04ABC482E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

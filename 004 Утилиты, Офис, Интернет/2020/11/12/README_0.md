@@ -19,8 +19,7 @@ SysLog Collector -программа для удаленного сбора, с�
 ```bash
 magnet:?xt=urn:btih:506D1C7580939146320FEFFC0E28BE1DF255BF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

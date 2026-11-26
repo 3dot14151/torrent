@@ -19,8 +19,7 @@ Weeping Skies (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F3FA29B528E65063C200616D0DE0D9C6322EED84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Myths of the World 7: The Whispering Marsh (2015) [En] Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:5DF8931A49E1C655F8F578D64AB94174D73C6380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ League of Light 3: Silent Mountain (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:259A038B23034B3C9AEBA89BD505B3A9EE474CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Where Angels Cry 2: Tears of the Fallen (2015) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:5027D865734F732829E3347FA3607CC1F191E864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Riddles of Fate 2: Into Oblivion / Загадки судьбы: Забвение
 ```bash
 magnet:?xt=urn:btih:B868C7CE01C61D2C8A697F2DD18C45C926E91A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Riddles of Fate: Wild Hunt / Загадки судьбы: Дикая охота 
 ```bash
 magnet:?xt=urn:btih:1C0FAB5D5C25006B9E7E080AFAB73D231D774DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Riddles of Fate 3: Memento Mori / Загадки судьбы. Помни о с�
 ```bash
 magnet:?xt=urn:btih:C99C9F9C9DB197BE8DD5F434040E7E08D29B771E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Maze: Subject 360 / Лабиринт: Объект 360 (2015) [Ru] Unofficial [C
 ```bash
 magnet:?xt=urn:btih:03228E0AD2FB77E9D077B808E96B00D1790780C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

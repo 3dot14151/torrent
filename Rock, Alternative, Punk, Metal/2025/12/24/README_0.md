@@ -22,8 +22,7 @@ Nailed To Obscurity - Generation Of The Void (2025) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:3C03095BB9A08F12DD20C8263DA07A7E629CF47C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

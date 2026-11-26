@@ -19,8 +19,7 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 ```bash
 magnet:?xt=urn:btih:09E1779CDC0C5A40242531A627DF01ED8409E10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

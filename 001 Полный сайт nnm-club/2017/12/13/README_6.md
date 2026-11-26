@@ -22,8 +22,7 @@ Lionel Hampton - 1951-1953 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 ```bash
 magnet:?xt=urn:btih:0CB066691D6D3E03BCB203E68FE7C56D7E92F92C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hal Galper Trio - O's Time (2014) Origin Records [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:FC8B81C1607295A0120AAE523E13DE712F4C37F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F78D6FCC3605C9A29039BE8D216D24D0B1BC8DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85BA0C32E07E89CAF5692FC1D2A92B48A5C0F20B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Jim Hall - Concierto (1975) 1984, King Record [FLAC|Lossless|tracks + .cue] <Coo
 ```bash
 magnet:?xt=urn:btih:8A8C5D3070505CCF1D2B34E4DA09804F0BA9C77A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ James Moody - 1951-1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Bop, Big 
 ```bash
 magnet:?xt=urn:btih:1952D01ADCE4282D1BBE2C1FE93DCC46A03D187B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Hal Galper - The Guerilla Band (1970) 2017, Solid Records [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:9AF77A87730CA87E72941C83946688150DDB4388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Denny Zeitlin - Homecoming (1986) Living Music [FLAC|Lossless|tracks + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:609D104F816B775DEA57AB9081A0B369157ED382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Jim Hall - ...Where Would I Be? (1971) 1999, Original Jazz Classics [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:EC35208FE399D94DD199C5C25F26F090A7C792C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Tim Warfield - Jazz Is ... (2001) Criss Cross Jazz [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:75BF4488B1C4D65FF1188674610951FDACD1FCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Toshiko Akiyoshi - Interlude (1987) Concord Jazz [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:6E481E5FE1920D91269630CDAE1CF5159F11831C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Pat Martino - Formidable (2017) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop
 ```bash
 magnet:?xt=urn:btih:83FE94969D7E7D0B3F6CE06397EB234307F4B625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ VA - Nothing But... The Future Of Trance Vol.05 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:07EF57B393AD81E64F2371F32177023B045B4E9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Milt Jackson - Goodbye (1974) 2017, CTI [FLAC|Lossless|tracks + .cue] <Mainstrea
 ```bash
 magnet:?xt=urn:btih:A22157C6629520769C614A5EE4B5C0CC1098F01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ Speed Limit - Anywhere We Dare (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:5F4F06499D23ED7C6A32B1F3E00633CC06D06FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ VA - Ice Dreams: December Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:D8FD3EA8F75DF308C61CDA9B642A8FE1E2B1608E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Neel & Filippo Scorcucchi present LF58 - Late Night Innominate, Volume Two (2017
 ```bash
 magnet:?xt=urn:btih:5513A8EF2368852F1B80CE16123DFA8F1A7F68A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Tina Schlieske - Evil Gal Blues (2008) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:41128CDA5F693296A72FD56AEA863F6CF72B3A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Terra Lightfoot - New Mistakes (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:741B38B4B68828C4C40E1A007090332864BC1F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ VA - Grotesque 300 (Mixed by RAM, Marco V & Darren Porter) (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:11A47FDCBA8500399A567257A78A6BE4E2297A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ My Vitriol - The Secret Sessions (2016) [FLAC|Lossless|tracks] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:73674B6E9ACD16F944BC22EDA1E9E52284BD4BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9996310D83470C355E16B8F723206D987ED2B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ Jane Clifton - The Marriage of Style (2003) [MP3|320 Kbps] <Jazz, Pop>
 ```bash
 magnet:?xt=urn:btih:D5BB7F97CFA86BD464F4ACC9448F6730CAA7F9A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3261BA5B5730909CA5219B8C9E4B0393BF74B01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA7B668EC0AA7FA844E24866DE480CE881C6295B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +714,7 @@ VA - Innovations Vol.1: Mixed by Synfonic (2017) [MP3|320 Kbps] <Trance, Psyched
 ```bash
 magnet:?xt=urn:btih:EF063F38946BF72B3E794DA004291344352CD862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

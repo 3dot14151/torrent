@@ -19,8 +19,7 @@ Need for Speed 3: Hot Pursuit [En] (P) 1998
 ```bash
 magnet:?xt=urn:btih:DA02B9FFBE54AB1938027EDCDAA2017BEFE3F82B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ultima 7 The Complete Edition [En] (L) 1992 | GOG
 ```bash
 magnet:?xt=urn:btih:AACD8D935FF3CE077E1A2CF3F684343E1E19ED44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
 ```bash
 magnet:?xt=urn:btih:3B5E136759B22772B164727689CB5837D52B7F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fable / Сказание [Ru] (RePack) 1996 | WinterKiss
 ```bash
 magnet:?xt=urn:btih:CB61AF12057C96DAD09E4DA9A2AAA6ACE8C2EAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Need for Speed: Special Edition [En] (RePack) 1996 | WinterKiss
 ```bash
 magnet:?xt=urn:btih:693DF2C4805236DA98F9D19F31F5371FCDF108BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Primal Rage — это традиционный двухмерный файти�
 ```bash
 magnet:?xt=urn:btih:CACEBF8F2ED92594B7D00DCDDDAFAF6E1775CDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Re-Volt [En] (RePack/1.2b11.0208) 1999 | pe4enko
 ```bash
 magnet:?xt=urn:btih:BB96D5E66275622317D676A2E063EC47FB87B9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Enter the Gungeon - игра жанра “пулевая завеса в под
 ```bash
 magnet:?xt=urn:btih:227D0F6E10198D9708A0B2419493F9BF23A05100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Has-Been Heroes — двухмерная стратегия с ролевыми 
 ```bash
 magnet:?xt=urn:btih:F5A9F15A68972D4B01BCC7775DC3269156631FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Operation Abyss: New Tokyo Legacy (2017) [En/Ja] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CE6F166CA005A409541E5FCDF991D0CF1F5B8352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sumoman – это приключенческий платформер с кру
 ```bash
 magnet:?xt=urn:btih:7BD23A502E74203B28E1294D3BBC91FE3CE2FB40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Narcosis (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:81D3F5110E0BDF8DA0E7B8B4C65EB4F82BE7CD73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ I am Setsuna (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:1FC3EDC74AEF66392D061CBCB5414E22FF72238E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Peace, Death! (Спокойно, Смерть!) - игра жанра "арка�
 ```bash
 magnet:?xt=urn:btih:0EEFFF18439EC7E1908BC38953ACAACB7FB73933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Infinite Tanks (2017) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C7B7D46402E8EFC88BB37C17F4729D92AD348B56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

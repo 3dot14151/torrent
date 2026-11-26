@@ -21,8 +21,7 @@ If you feel like you may have seen (   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:CD379FB998E2F09C2E72C64306DB79790D9AF2E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

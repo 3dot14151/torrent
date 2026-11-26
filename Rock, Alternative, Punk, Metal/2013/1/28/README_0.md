@@ -27,8 +27,7 @@ Defeated Sanity - 4 альбома (2004-2013) [FLAC|Lossless]<Technical Brutal 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Black Light Burns - Lotus Island (2013) [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:D8A11D4DA78FA27F4F3BB8B27ADFF8E733AE17E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ DISC 101. More Than A Lover
 ```bash
 magnet:?xt=urn:btih:7E5DAF3A38D0D418AAB8B3ABD223D71F97667711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Sunduk (S°unduk, Sounduk) - 3 Альбома (2011-2012) [FLAC|Lossless] <Rock,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Helloween - Straight Out Of Hell (Japanese Limited Edition) (2013) [MP3|320 kbps
 ```bash
 magnet:?xt=urn:btih:3CC7C707D685722E9E047A3D32C734B4641FEF69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

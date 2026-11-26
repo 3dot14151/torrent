@@ -20,8 +20,7 @@ KK's Priest — британская метал-группа бывшего ги
 ```bash
 magnet:?xt=urn:btih:958EDE81E0977B59B69594970F0A19673FD7AAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Powerwolf — пауэр-хеви-метал-группа из Германии.
 ```bash
 magnet:?xt=urn:btih:ABEB2F41F5279C603CB80E89D91FD5F79535A847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

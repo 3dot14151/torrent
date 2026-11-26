@@ -28,8 +28,7 @@ Kemilon - Twisted Storm (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1A3A76D5F73D6F23BA6333CFD86322F244D6AAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Three Thirteen - Overdrive Alive (2013) [MP3|320 кб/с]<Hard Rock, Heavy Metal
 ```bash
 magnet:?xt=urn:btih:66D4018B15C884471B94C214FCE54BCE712C988F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Alquimia De Alberto Rionda - Alquimia (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:41D468B3856654AF0FAFE855FCFCF94032E93E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Split Heaven - The Devil's Bandit (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D11A2BBFF3B47993835F1F52BFF774E011244D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Young Lions - Burn (2013) [MP3|320 kbps]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:2797FBD196B3DDA467E748B2A6FBEEF25DB0501F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ The Flock - 2 Альбома (1969-1970) CD released 1996 [APE|Lossless]<Jazz-Ro
 ```bash
 magnet:?xt=urn:btih:6FD594FBC0048269864E697B1673C43D3BDE161E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Rhapsody of Fire - Dark Wings of Steel (2013) Limited Edition [FLAC|Lossless]<Sy
 ```bash
 magnet:?xt=urn:btih:BFDB165C449266D683DD633E4637EFA90154411C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Toh Kay - 2 альбома (2010-2011) [MP3|320 kbps] <Rock, Acoustic, Ska>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ A Perfect Circle - Three Sixty (2013) [FLAC|Lossless]<Alternative Rock, Progress
 ```bash
 magnet:?xt=urn:btih:DC50D81A7957770C76552F06E6297BE55E497A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ Scorpions - World Wide Live (1985) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FD11B611B14711A5E1033CC0B4C62CA57D11A446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ Paul McCartney - 73 Albums, 31 Singles (1970-2013) Discography [MP3|320 кб/с]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

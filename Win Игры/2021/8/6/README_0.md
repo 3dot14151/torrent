@@ -19,8 +19,7 @@ Jupiter Hell (2021) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:097550E1401F486E28EC0555B08D5B6416CF09F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Great Ace Attorney Chronicles (2021) [En] (Build 6837188) License CODEX
 ```bash
 magnet:?xt=urn:btih:83019ACBAEDAB28447EF11768058CD0A6FE249E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kingdom Rush Origins (2018) [Ru/Multi] (4.2.15) License GOG
 ```bash
 magnet:?xt=urn:btih:4321C27D762968EA7278FEC9E3EF4F1AF95850EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

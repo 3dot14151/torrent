@@ -22,8 +22,7 @@ Rotting Christ - Non Serviam (1994) Remastered, 2020, Kattran Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:FFF3D0BA05D51A012659D39D23BD869606A2DDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Kevin James LaBrie; род. 5 мая 1963, Пенетангуишин, Кана�
 ```bash
 magnet:?xt=urn:btih:043DFDA49757FA8FED3BFB09BC10FAE0FC3CD5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ The Doobie Brothers - американская rock bandа из San Jose, Califo
 ```bash
 magnet:?xt=urn:btih:FD0276F22497C24F5682947B0B525A53E7E6E108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Cradle Of Filth - Existence Is Futile (2021) [FLAC|Lossless|image + .cue] <Symph
 ```bash
 magnet:?xt=urn:btih:D8A14506A750CB584565F4B97DA42B24CC543979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Tori Amos - Ocean To Ocean (2021) [FLAC|Lossless|tracks + .cue] <Alternative, Po
 ```bash
 magnet:?xt=urn:btih:2C7FF7629ECF3DB11E6A135C96F6A5B5E79B9C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Netherbird - Arete (2021) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Sym
 ```bash
 magnet:?xt=urn:btih:B660438AE2679AD85285DFE976756B4E4CEA6226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Legacy Pilots - The Penrose Triangle (2021) [FLAC|Lossless|WEB-DL|tracks] <Progr
 ```bash
 magnet:?xt=urn:btih:90FC15C80A07F104E4E9E1E50F525D386B34B835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Electric Light Orchestra - Ballads (2021) [MP3|320 Kbps] <Progressive-Rock, Art-
 ```bash
 magnet:?xt=urn:btih:73EFA50553C086173B35DC8A8442749058F69823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17C8F0776A1332752290A8A5FDD2D9B15C566D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ The Lucid Furs - Damn! That Was Easy (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard-
 ```bash
 magnet:?xt=urn:btih:6B490132274FF0C947BE7216F2E50955F1F9078B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Sorcerer - 4 Albums (2015-2020) [FLAC|Lossless|image + .cue] <Epic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:E1D4C8587F8B8ADE35744090542B9930876A87DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ Autumn Nostalgie - Ataraxia (2021) [FLAC|Lossless|image + .cue] < Post-Black Met
 ```bash
 magnet:?xt=urn:btih:D1CC1A63D122573AC540FDED832EB3DB71DDBEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

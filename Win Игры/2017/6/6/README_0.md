@@ -19,8 +19,7 @@ Bridge to Another World 3: Alice in Shadowland / Мост в другой мир
 ```bash
 magnet:?xt=urn:btih:8F2CDB99F1577FD1E5415EB7134C7E2DCC6C0BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Conarium — это леденящая душу игра по мотивам з�
 ```bash
 magnet:?xt=urn:btih:9787E908023A6CC4AC827D1FAB2B96951F70F7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Iron Wings (2017) [Ru/Multi] (1.0/upd1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:40BC7F7F12B7E1F007E63B4B298D6BDBBAD3B410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Iron Wings (2017) [Ru/Multi] (1.0/upd1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:6E936CC1C2091A6885ACDDE3BCCEBF502ADAC908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The X-Com Files (1994-2016) [Ru/En] (0.6.2) Repack/Mod edcarnby
 ```bash
 magnet:?xt=urn:btih:8A81B47BC7078D5BD93B778BAEC0B9C154EFDF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

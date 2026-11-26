@@ -18,8 +18,7 @@ Once Upon a Time — сериал в жанре фэнтези, действие
 ```bash
 magnet:?xt=urn:btih:13F4F415BA40BCB5CC03B3AF0EC8D7FCC1084A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Top Gear — популярная английская телепередача,
 ```bash
 magnet:?xt=urn:btih:A5835995EBB113A69D9A22E144DD8222C74E17A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Once Upon a Time — сериал в жанре фэнтези, действие
 ```bash
 magnet:?xt=urn:btih:1DA7B1C37AAAFC5F8C610DC220A2B394762801D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:938E09494BB1E74B6D8472046D0AFCF40E2BA1A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Defender Control позволяет отключить встроенный ан
 ```bash
 magnet:?xt=urn:btih:19A55A1A23859890F4DDFC86C4A238D9E501CA34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BF5786E773584A26C793D03A2E6277DD56C6086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

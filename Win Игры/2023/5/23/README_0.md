@@ -19,8 +19,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (2.209.0.0/dlc) Repack Dj
 ```bash
 magnet:?xt=urn:btih:71D4E04EC4960D686A66D4FE1917B63F49BCB095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Monster Tribe предлагает игроку исследовать остр�
 ```bash
 magnet:?xt=urn:btih:EDFBEB596F925C72E03D0A10156384ACDC53C5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

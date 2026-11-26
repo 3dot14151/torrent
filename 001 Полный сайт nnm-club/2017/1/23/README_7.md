@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E2A2DE7416EDC57A087067BE41A0F55239C0A310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ God Eater 2: Rage Burst является самостоятельным допо
 ```bash
 magnet:?xt=urn:btih:8345E35A30EC5EC02AC1C76D508E411FC8C7B9D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29C2CEE167A8463C5274BA39317AC0FE9D8BB0D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Mike Oldfield - 167 Albums / Discography (1968-2017)[MP3|128,192,320 kbps]<Progr
 ```bash
 magnet:?xt=urn:btih:071774E0A0F7CCF6E105C64BDD173F71088AEA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Adobe Premiere Pro - это мощный, настраиваемый редак�
 ```bash
 magnet:?xt=urn:btih:F82A721BD6506A93F7E9303DD7FFA04429CA6266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22E6F2DAA7B6B7BC9E4A07BD2FF2C8CB3B31C5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ VA - Дискотека 2017 Dance Club Vol. 160 от NNNB (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:8059EFA37C59E5F133DC59124EBB7F0F9BD8F9A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C28F5100EB446A8C9E751DD084604A403337FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61EE1E009C5466A8B4881BA5C849A3CAEEA9AA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Windows XP Pro SP3 VL Ru x86 by Sharicov (v.01.01.2017)
 ```bash
 magnet:?xt=urn:btih:2A3264160739B6537FD261D6D4068AE9A80F080C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

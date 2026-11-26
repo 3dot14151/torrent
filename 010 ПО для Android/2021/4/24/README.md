@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:1AE844D2E14C10BE01D66FDD249390A97DBF4C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ SoundStream v4.3.17 [Ru] - слушаем различные подкасты (�
 ```bash
 magnet:?xt=urn:btih:BD231C623D8E4AE3693E138A02B754E8A0F0D3E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

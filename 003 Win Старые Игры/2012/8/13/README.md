@@ -19,8 +19,7 @@ Hundred Swords [Ru] (RePack) 2001 | RG Games/Pilotus
 ```bash
 magnet:?xt=urn:btih:999C620C7D56273BA70601B3D85BEB04B03D22B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tachyon: The Fringe / Жестокие звезды [Ru] (L) 2000
 ```bash
 magnet:?xt=urn:btih:BE1F4F24594D2410574776DDA2E8E5354A684FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ World War Zero / Коммандос: В тылу врага [Ru/En] (RePack) 200
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wake me up! - это постоянно улучшаемый умный буди
 ```bash
 magnet:?xt=urn:btih:E3DCBB1DBFCB0AC53E6F602DDD743D43E562C6B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

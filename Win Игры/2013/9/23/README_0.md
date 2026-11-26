@@ -19,8 +19,7 @@ Dark Cases: The Blood Ruby Collector's Edition / Темное дело: Кров
 ```bash
 magnet:?xt=urn:btih:77705A89453E8D09576F7584B27C0CDC08BADD6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Urban Trial Freestyle - это увлекательные аркадные мо�
 ```bash
 magnet:?xt=urn:btih:F4876FDF5B8893381958524BD7B44E925094B5FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Arma: Tactics (2013) [En] (beta 4.2.1.11645) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:E2FC31F4635540D7197C4AB452CC33D6F1716AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ McDROID - динамичный гибрид шутера от третьего �
 ```bash
 magnet:?xt=urn:btih:61916720E08EB3F0DE376AA1C4C4B4D6A111EDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ They Bleed Pixels (2012) [En] (1.1) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:6D189C823D6FFAC61B212CF8F011448444B45EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Last Knight, это бесконечное соревнование, прыжк�
 ```bash
 magnet:?xt=urn:btih:D07B1F4C2F118460DA88E44D60BFDBF0F1666165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Valdis Story: Abyssal City (2013) [En] (1.0.0.19) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:E7793AFC979FF9FCE74F7877517CB0ADC4879B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Castlevania женилась на Diablo, и родилась Twisted Tower. В�
 ```bash
 magnet:?xt=urn:btih:D26C1CC557C2F76FFB32C05136574BB2FEB5ED8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Foul Play (2013) [Multi] (1.0) License WaLMaRT
 ```bash
 magnet:?xt=urn:btih:6A1290FB0B427E61A1862162FCA80EAEFA46B04B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Contraption Maker (2013) [En] (alpha 0.049) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:2A91844B9D3E1B52F9B0BDE26A859B2858894E20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

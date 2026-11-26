@@ -21,8 +21,7 @@ Who Is On My Wifi - это инструмент для сканирование 
 ```bash
 magnet:?xt=urn:btih:C02771C53BF708C1DBA6FD0836F16F612D7AEF2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

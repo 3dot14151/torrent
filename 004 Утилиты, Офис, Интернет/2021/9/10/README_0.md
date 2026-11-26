@@ -19,8 +19,7 @@ FlixGrab - это новое мощное приложение для загру
 ```bash
 magnet:?xt=urn:btih:0ABABB163CDDD540B2349D5B6F048F246D560AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grids - один из самых адекватных клиентов на ПК
 ```bash
 magnet:?xt=urn:btih:8815204C0235CF7E474F1DAFAE0382EBBE2D6261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

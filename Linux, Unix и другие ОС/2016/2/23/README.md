@@ -22,8 +22,7 @@ Linux UsefulPack 16.02 (L) [Русский] (2016) [x86 + amd64]
 ```bash
 magnet:?xt=urn:btih:0173A257E511B0DD5D563307D2BD52AA0A5E34B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

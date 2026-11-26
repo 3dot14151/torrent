@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5E32BDB2040AC8CF029DA9A7121BE0D3F54CAE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maximum PC - это журнал, который каждый компьютер
 ```bash
 magnet:?xt=urn:btih:549B0F6D0FBEAF4A6A1035012A5DCA005D8AF11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

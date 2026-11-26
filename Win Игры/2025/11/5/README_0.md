@@ -20,8 +20,7 @@ Realms of Madness - это фэнтезийная игра в реальном �
 ```bash
 magnet:?xt=urn:btih:E2AC3BA22EB048268B55FF054133AD34A5B2CB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Alien Shooter 2 - Легенда это масштабное продолжен�
 ```bash
 magnet:?xt=urn:btih:EA554296A49702D5C8293D00A34BC188EA14FC9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dwarf Fortress (2022) [En] (53.02) Repack Necros
 ```bash
 magnet:?xt=urn:btih:9B41F041D268E5AE8EF79252937059D99BF87A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Nine Sols - это нарисованный от руки 2D экшен-плат
 ```bash
 magnet:?xt=urn:btih:C785BECFCF687CBA30485FB15FC846F32C26E3F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:07C26DF26086B0B09DABE927A5132176282480F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Escape Simulator 2 - это продолжение самого продавае
 ```bash
 magnet:?xt=urn:btih:E25CF56D9AE5DD77A628C70F9B985039DEEFC984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.1.1) Repack Necros
 ```bash
 magnet:?xt=urn:btih:73D7549B9A6150EB1F77AE0F2CD1096E7647E037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

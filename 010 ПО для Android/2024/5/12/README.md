@@ -19,8 +19,7 @@ Cube ACR - удобное приложение для записи исходя�
 ```bash
 magnet:?xt=urn:btih:D49DD0E548C28093ACDD199F112DA7E3946D6D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VirusTotal Mobile дает возможность проверить все ус
 ```bash
 magnet:?xt=urn:btih:FA2CDE32B907B733FABD9BA69447948C44234415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Rubytates - Renacemos (2015) [FLAC|Lossless|tracks + .cue] <Latin, Indie, Rock>
 ```bash
 magnet:?xt=urn:btih:2559B947F9262FA3D8ED1C4B193D213CF7AC7B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Palace Of The King - Valles Marineris (2016) [FLAC|Lossless|tracks + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:FAA70CF4AF6EFB48D0E537862E027DBEE7C311E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Mantus — это немецкий дуэт, возглавляет которы
 ```bash
 magnet:?xt=urn:btih:C0F422E5E363D44762E0CD6BEAE5A9B09A30741B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

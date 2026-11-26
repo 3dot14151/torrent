@@ -19,8 +19,7 @@ Sense V2 Flip Clock & Weather - одно из самых известных и �
 ```bash
 magnet:?xt=urn:btih:C84756C3C58A791AEBE742D8AB849C77EC067841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

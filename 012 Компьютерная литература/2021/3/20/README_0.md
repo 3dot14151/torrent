@@ -21,8 +21,7 @@ Web 3.0: Токенизация, (   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:67A34BF6B69AE528AE123395472C6499CD519FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

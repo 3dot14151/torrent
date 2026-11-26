@@ -18,8 +18,7 @@ WebScraper использует механизм Integrity v8 для быстр�
 ```bash
 magnet:?xt=urn:btih:294C355D4A69EE0ACF14B58453237BF4D8149381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Christmas Jazz Night (Best Christmas Jazz Classics) (2017) [AAC|~315 Kbps] 
 ```bash
 magnet:?xt=urn:btih:64FA97DA6C055FCD54A6F667BDB24792AB37D8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ PhotoMill X (aka Reformator) помогает Вам преобразовать 
 ```bash
 magnet:?xt=urn:btih:6CC1B9CF23908EF2AE1F3EBFF81452F5EFF4B9ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - Christmas Jazz Night 2019 (Best Christmas Jazz Songs) (2018) [AAC|~317 Kbps
 ```bash
 magnet:?xt=urn:btih:FE42317D4588CB9FD19FC3129ED1265B6E142839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Chilling Inside (2022) [AAC|~290 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:193ED25793CA73A8DD7C67E17A056785D781B82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Project Office Pro 9.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:75B70831EFB57DE68403DF2BF8B6FCF4B876858C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ VA - Christmas Jazz Night 2020 (Best X-Mas Jazz Music) (2019) [AAC|~326 Kbps] <L
 ```bash
 magnet:?xt=urn:btih:6958FDC4463F8677CDCB248062F178B338C41ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3F0270327AFF2CB2689EE507F17588E55640454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ PDF Squeezer - PDF Toolbox предназначен для работы с фа�
 ```bash
 magnet:?xt=urn:btih:010B7B364BAF2634EEB461140F273F9404A3F30C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ VA - Christmas Jazz Night 2021 (Best X-Mas Jazz Music) (2020) [AAC|~318 Kbps] <L
 ```bash
 magnet:?xt=urn:btih:61D6EAEC7A2FCFEB5B4D50053CAF6028029C1C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ HyperDock позволяет выбрать нужное окно без еди�
 ```bash
 magnet:?xt=urn:btih:06FED96AAE0FCE3B9D28C49F4EDA1CDF9D7B1570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:6B4AADD0B7BDD15EBD2214B62F9C3EEF533A061B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0B28319D5B98700EAA33A5F383EEA67E4F0B548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ RegCool 1.305 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:742220A0D0E558CB54742D9977FCA14AA57BB910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ IP Scanner - приложение сканирует локальную сеть
 ```bash
 magnet:?xt=urn:btih:81EB59E0C40E4D1D9626CF0514103C31E6681321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Kryptos - Force Of Danger (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F5C8F60F49517C1DFC69758EB739C61077E89552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:D7EC272FC8298FF55B0AEE0C5F6EF40133B42226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Johansson & Speckmann - Sulphur Skies (2013) [FLAC|Lossless|image + .cue] <Death
 ```bash
 magnet:?xt=urn:btih:D3EDD7C009043B956D6013B04CDFD6A19E1DC730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ HitPaw Screen Recorder - существует достаточно много п
 ```bash
 magnet:?xt=urn:btih:72A40F20206E2B1C6A10E5C8FE1A5196AE740E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:734ABC0FC01880BC1704A187099DE67F515BEFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:A82A232026C6BFFB22494E6094F20DF5CC92F3EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ VA - Fashionable Music London (Sophisticated Lounge Tunes from the Fashion Shows
 ```bash
 magnet:?xt=urn:btih:9744E3DC12BC94DE0F96CD606E8B7AA8E75E0379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06E26CDB46030C01E305670750A6DB51AA7109BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ Music Tag Editor - редактор музыкальных тегов помож
 ```bash
 magnet:?xt=urn:btih:32CFDF12510D2736317BFF80387B1B7575512085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:17E76A4A16772F9555A87CD3C227175ED1FF3A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E637C5ACC769134564E9CC3617B3FDE6D99C29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

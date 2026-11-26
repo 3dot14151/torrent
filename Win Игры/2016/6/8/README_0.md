@@ -19,8 +19,7 @@ Obscure Legends: Curse of the Ring / Загадочные легенды: Про
 ```bash
 magnet:?xt=urn:btih:053D238533E800E8C2E8A84D13631B86BD9B21FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Day of the Tentacle Remastered — одна из легенд золотого �
 ```bash
 magnet:?xt=urn:btih:3AE529C09893590FBBC8C536C189BF0A7C2307A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Anima Gate of Memories (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:DAFD9E4D42CC1B74664E593B2341A44B2624EB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

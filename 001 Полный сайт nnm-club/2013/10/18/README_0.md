@@ -27,8 +27,7 @@ Andrew Fitzgerald - Peace (2007) [MP3|320 кб/с]<New age, Relax, Nature sounds
 ```bash
 magnet:?xt=urn:btih:F8D81588DADA2FE09974D8EB58758BA40376FE15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Polska Radio One - Polska Radio One (2013) [MP3|320 кб/с]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:71FCD582468C5A9444B98B834F401638EC44FDF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Comedy Баттл. Без границ. Выпуск №22  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:E5D6AFA40B9A256142E2F8A16AC253DE6C010EC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ VA - Enhanced Progressive - The Collection Series Volume Seven (2013) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:890ED7ACD13E0544A5A65BAF44A50D3E73583E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E0E4DE2BA4AC1B0B8D1E8AB79D180F99079952D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE9564DE4F73092728C4C24FC91AFADAE733F5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:7289F7D811874D18E7BFC798A90E5AE83B594598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:674E1D7CACD9B6AD973CFF4B1313963D12D874E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Big Bad Voodoo Daddy - Save My Soul (2003) [FLAC|Lossless]<Swing Revival>
 ```bash
 magnet:?xt=urn:btih:33931DCABD3F918FEB0D8DBA9A12BAEF49588F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ Rocka Rollas - Metal Strikes Back (2013) [MP3|320 кб/с]<  Speed Metal, Heavy 
 ```bash
 magnet:?xt=urn:btih:FBD3A2941C8D5DC9F7867AC5BAAD5AFF317E1844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ VA - Mellomania 23 (Mixed by Pedro Del Mar) (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4068D4EBC94E90E7823B12CDB4D8102BF7A990EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E4251A9408AEE10562180FC90B8B4EC39F975E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F4460B1CF9353F787BA8CDFD7B42484EA28B187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ABF33FA1511412C5C83FD5821AB69E7DD61BF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ B3. Old Places :: 06:11Жанр: Synth-Pop, Electronic, New AgeФормат: Vin
 ```bash
 magnet:?xt=urn:btih:4CB9BF1BC7FDC22C5E53EC22B847A7B7BB49A932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:66C396C79B536D9A7D40D30BC8123DE93B83C440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D72D9E33371ED08D7637B5FC63B99323153064B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24514FD18F77FA413C125AFA2D7B2C1F683D75D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B122E425F207ED4AA59344FA5F5772655DACFBE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +576,7 @@ Ron Sayer Jr. & Charlotte Joyce - Hard To Please (2013) [MP3|320 кб/с]<Blues 
 ```bash
 magnet:?xt=urn:btih:B15D8882E0A232393DE6D69E874A009B5F6389CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ VA - Hit Mania: Special Edition 2013 (2013) [MP3|320 кб/с]<House, Club, Dance
 ```bash
 magnet:?xt=urn:btih:2F8E65DBD0ED904B8B6F2DC613544529ED39484E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E041DE77769CE0C3185C78B31F7DD2F19F2FE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3198279E88879715A851E6F10D7DE6D39F4D4F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +694,7 @@ Tim Kasher - Adult Film (2013) [FLAC|Lossless]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:E2A89A70D206EE7E93F07A2A3DDC72B2740A0A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +719,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF6C21C157236E2778CBD231139B052A69A4C123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ Big Bad Voodoo Daddy - This Beautiful Life (1999) [FLAC|Lossless]<Swing Revival>
 ```bash
 magnet:?xt=urn:btih:800F80690542A9D08F954F47EE808EDDEE2914C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

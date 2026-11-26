@@ -19,8 +19,7 @@ Fierce Tales 2: Marcus' Memory Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:D40A7A499BB2683DA13145650808C6DAD9B51F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Corpatros: The Hidden Village (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:4EAB0E8B7EBABC1C76629D6B57BD49F326A37E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deadly Voltage: Rise of the Invincible / Энергия смерти. Восст
 ```bash
 magnet:?xt=urn:btih:84A25C9D6175DE7DDB59A5E3B20858DBA4361284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Calavera: The Day of the Dead Collector's Edition / Калавера: День �
 ```bash
 magnet:?xt=urn:btih:6E0B525594362B5F7E1F6E10C9FAB7809257322C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

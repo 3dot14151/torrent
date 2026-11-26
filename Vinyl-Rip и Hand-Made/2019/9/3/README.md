@@ -22,8 +22,7 @@ Audrey Hepburn, Rex Harrison - My Fair Lady (The Original Sound Track Recording)
 ```bash
 magnet:?xt=urn:btih:87CB27A7C81D69A4BC7AADFDC0284D0A3CF12253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ CM (Cleanmaster) Security 2.6.2 - Антивирус [Ru]
 ```bash
 magnet:?xt=urn:btih:B76A5326E822ABF1215AF2056623D480C5E1F562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Muscle Premium представляет собой самое продуманн
 ```bash
 magnet:?xt=urn:btih:DB85818579B65157E25E05DFAFB664E8A9438F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

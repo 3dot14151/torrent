@@ -22,8 +22,7 @@ Leaves' Eyes - Black Butterfly (2019) EP [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:1754BA7A65EBD6F3B272287F6DA3D9834847A3BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ White Ward - Love Exchange Failure (2019) [FLAC|Lossless|Web-DL|tracks] <Black M
 ```bash
 magnet:?xt=urn:btih:28E597B727EF9AAFC696FE705EDD9AD0EE899133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ StoneWire - Life As We Know It (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E56FD2AB2FC97ED631A8AA811C419D44FE49F28E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Running Wild - Crossing the Blades (2019) EP [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FFD0D26444B8E0377401FE99A4D38617AA3EC825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Who - WHO (2019) Deluxe Edition [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:7122B25EF2C6EE20D73B5680C40E4F9C3DAAB077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Nightwish - Decades: Live in Buenos Aires (2019) Live [MP3|320 Kbps] <Symphonic 
 ```bash
 magnet:?xt=urn:btih:ECE7A5E17AE6EA172E574F89C1CE458ACEFA0A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Gary Moore - Gold (2013) 2CD, Compilation, Remastered [MP3|320 Kbps] <Hard Rock,
 ```bash
 magnet:?xt=urn:btih:162E9CB17D0F942299B43465205DDAD52E61FF9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Exo Player - Видеоплеер и IPTV v2.1.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D638F318D115917E8F290E2C4758BD29C5155746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Quotes+ — Твой карманный источник ежедневного 
 ```bash
 magnet:?xt=urn:btih:FBF4972D4C99AF7BB25101B084376ED6EC0870CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F8007367B31CDA42B2B36E0C9D85892A740870B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

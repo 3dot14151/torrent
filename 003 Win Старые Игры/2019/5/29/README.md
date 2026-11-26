@@ -19,8 +19,7 @@ Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:12B9C3206E6A181E60C4AD75A878638A8641C0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:946DBFE5961F41CFDF0B9C81EA703FC2EFD40968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

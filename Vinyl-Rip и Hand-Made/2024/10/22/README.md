@@ -20,8 +20,7 @@ Sunburst - пауэр/прогрессив-метал группа из Лари
 ```bash
 magnet:?xt=urn:btih:5654B825A67E656CA34616BA72AAFDE318491B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ New Horizon - шведская метал-группа, образованная
 ```bash
 magnet:?xt=urn:btih:51C915C75D0FC779CD03F0099B02BC444C228336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

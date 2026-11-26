@@ -19,8 +19,7 @@ Ant Download Manager - отличный менеджер загрузки сам
 ```bash
 magnet:?xt=urn:btih:6DA2F0ED7D92638B2422C1D9613D613A72F2F780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ORPALIS PaperScan Professional является универсальной, мо
 ```bash
 magnet:?xt=urn:btih:FFE1E6076C389CC0BAC038439AE4150D53B27132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

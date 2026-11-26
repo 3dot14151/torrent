@@ -19,8 +19,7 @@ Kong: Survivor Instinct - это 2.5D экшен-платформер, дейс�
 ```bash
 magnet:?xt=urn:btih:263970F52CAEA6B9D23E0CB2EFD19C8354CA3A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HROT - шутер от первого лица, выступающий наст�
 ```bash
 magnet:?xt=urn:btih:5315576BD78F7BD0B28914E5F086E01303C797BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Iron Oath – это ролевая фэнтезийная игра с та�
 ```bash
 magnet:?xt=urn:btih:F36D6975AF2D19AAC149233AB692EABE9237F3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack Pioneer [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:460A988C9CE5FC78D4A20F0E0A3DF04CB26CD9B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack se
 ```bash
 magnet:?xt=urn:btih:988E4DF01ABF452848A94C5587430ECC21DEE7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:89A77DDEBEA373444E81ECE9F2A5ABF5616DB1FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Long Dark (2017) [Ru/Multi] (2.12.148383 S/2.39.149246 S/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:76750896B82FAD0FEDB4F954A8409F844AC48890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:9417AF70DAB99F860204352C538418EBF5B2727D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Corr Database 2024 (2023) [En] (2024) License
 ```bash
 magnet:?xt=urn:btih:4B50A359E1F1B562DFEF23F80ED00A15D10DBA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Opening Encyclopaedia 2024 (2023) [En] (2024) License
 ```bash
 magnet:?xt=urn:btih:8DB00993E1FFE63930C828B61BF6EDF9A6F65FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Destiny Star Girlfriend 3 (2019) [Multi] (1.0.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:E4FEB8E8372A0080191EFEB702DABADDD4857BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Trans Neuronica - это головоломка, в которой традиц�
 ```bash
 magnet:?xt=urn:btih:BA048E0BB6BA2F5C26641E7131E48D155BDDE3E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Moving Out 2 - это уморительное продолжение всеми
 ```bash
 magnet:?xt=urn:btih:4570D7D8362A0226CE6AACB918F802D42E03EB9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

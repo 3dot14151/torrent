@@ -19,8 +19,7 @@ This Is the President (2021) [Ru/En] (1.0.0.7816929) License CODEX
 ```bash
 magnet:?xt=urn:btih:A26382BF49225A8D6C8809F8E05A443F81B275C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.F
 ```bash
 magnet:?xt=urn:btih:B97DE0C9207BF7EC5AF5FCD694DDA8EEC3158846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ This Is the President – это управленческая игра с увл
 ```bash
 magnet:?xt=urn:btih:7C478D11785B5EDD53AD76B8EC1CDAED47C315B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Aiko's Choice - это новое автономное дополнение к �
 ```bash
 magnet:?xt=urn:btih:AC1A8756C6C0D681EBAC8FDE328CE080CBA8ED8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

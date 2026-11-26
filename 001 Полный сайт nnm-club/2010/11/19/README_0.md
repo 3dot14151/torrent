@@ -27,8 +27,7 @@ Stacey Kent - The Boy Next Door (2003) [MP3|320 kbps]<Jazz Vocal>
 ```bash
 magnet:?xt=urn:btih:2702A7BBD9B901365C318C0A9715A1CA3FBFFB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Антология Советского Джаза, Том 1 (2008) [MP3|32
 ```bash
 magnet:?xt=urn:btih:3A02928B34C989BCC7296E0ECE7C312DDD69F9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ David Abrgel - Reverse Universe (2010) [MP3|320 kbps] <Psy-Trance, Freestyle, Dr
 ```bash
 magnet:?xt=urn:btih:43FEC80084F49E4AEBE5298CF3E27E8346F9ECC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Hi Profile - Orgasm (EP) (2010) [MP3|320 kbps] <Psytrance>
 ```bash
 magnet:?xt=urn:btih:A55A4122A1DCB98BF18ABE0E9FE8EF184063D247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Day.Din - Sync Yourself (2010) [MP3|~192 kbps] <Progressive>
 ```bash
 magnet:?xt=urn:btih:A768BD2307471704E13ED312D89AA8B576A78BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ NG : Один океан : Рождение и развитие / One ocean : Bi
 ```bash
 magnet:?xt=urn:btih:D8203B3500DB36172F67712FA00E02909FC8DF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Европа Плюс Включи Весь Мир!(Осень 2010) (2010)
 ```bash
 magnet:?xt=urn:btih:857627667EBC156023CF0630F93D6A6A93DB175E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Patrick Yandall - A New Day (2009) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Conveyor Chaos (P) [En] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5B5B234E03E1232AD0F0EE67A527FDD5FF7FF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4751C74BEDACD41152506D67C6BBE9800B67F77A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE88CCF7218D38930144EE8C9FAB6A20397D9C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - Progressive PsyTrance (Edition 2010) (2010) [MP3|320 kbps] <Progressive, Ps
 ```bash
 magnet:?xt=urn:btih:3921B1868A28E2AB6899F1DA2D125139E798C88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ VA - Взрывная Дискотека Europa Plus Зима 50/50 (2010) [MP3|
 ```bash
 magnet:?xt=urn:btih:60FA62FD1D8715DC6A1254F2480DB6EDF0B20B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:426CD90B9E83DE21F47AF1CC78EA219AF02AB898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C7747AA0DB53079087ECC103AEB2BC846391376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Mayra Andrade - Storia, storia... (2009) [APE|Lossless]<Latin Jazz, Bossa Nova, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Dave Brubeck Quartet - Music from West Side Story (1986) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ Herbie Hancock - Inventions & Dimensions- 1963 (RVG Edition - 2005) [APE|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ Deadmau5 - 4x4=12 (2010) [MP3|128-320 kbps]<House, Techno>
 ```bash
 magnet:?xt=urn:btih:22EA1483D27D52C1CC91328D5B0C17325E3FD0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ VA - Smile Style Vol. 3 (compiled by Gaertner Der Lueste) (2009) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:7161ED87E26F405538E0D3A82D1F5D65586CA787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ Artweaver — программа для обработки фотографий 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F5F169472AEE04CFAA8BC4375212D013F445FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ Herbie Hancock - Fat Albert Rotunda (1969) Remaster /2001 Warner Bros./ [FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ NG : Паранормальное : Кровавый дождь и космич�
 ```bash
 magnet:?xt=urn:btih:71F4594BD08656C97F0FCF2DA4948A5BF85DF907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:87936D0E1CABC1513F5AF2DC3879D981E71F92C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:628968EA2E1422649E3FD12D09E58A9A89A79648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Pабoта специалиста в области машиностроения
 ```bash
 magnet:?xt=urn:btih:071A804F4C2CD5C63BAD0014430F93C0F65B584D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

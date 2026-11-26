@@ -19,8 +19,7 @@ Viewfinder – отличное сочетание платформера и г�
 ```bash
 magnet:?xt=urn:btih:627EB18594DD46A1B8EA6CB937BABF895D1AE8D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Love n Life: Happy Student (2025) [Ru/Multi] (0.2.1.5/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:28BF544E4098D64A5F9C6A3783D4B53816125D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Big Hollow: 1982 (2026) [En] (1.1.11) License GOG
 ```bash
 magnet:?xt=urn:btih:DDBD5F4EB7E850C63F12C3450447C8E85BA83621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mirrors of Deception 3: The Price of Art / Зеркала обмана 3: Цен
 ```bash
 magnet:?xt=urn:btih:7241300FDEC1AEB32E796EE94930BBC9DC5D06BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

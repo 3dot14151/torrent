@@ -19,8 +19,7 @@ Fontexpert - полнофункциональная программа для п
 ```bash
 magnet:?xt=urn:btih:DDCF4F1C88F3962CE4718DC446FD1EAA6B4BADCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fontexpert - полнофункциональная программа для п
 ```bash
 magnet:?xt=urn:btih:F2BC1AD352651B5F7323E5FB2FB8376B2A022ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

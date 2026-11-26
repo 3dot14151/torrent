@@ -25,8 +25,7 @@ Gran Turismo 5 должна стать одним из самых масштаб
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fallout 2 – культовая ролевая игра, справедливо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Autodata - эксклюзивная программа для автосерви
 ```bash
 magnet:?xt=urn:btih:8A2AE29275F5BBAEC3941D58975620F83D59BAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

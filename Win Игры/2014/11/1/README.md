@@ -19,8 +19,7 @@ Awakening 7: The Golden Age (2014) [En] Unofficial [Collector's Edition / Кол
 ```bash
 magnet:?xt=urn:btih:74BA3EA8006BAC1415092466197A92C4BD302AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:7128E3154F25D76B5D8A5195AED645B8E06666E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

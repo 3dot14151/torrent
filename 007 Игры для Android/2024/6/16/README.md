@@ -19,8 +19,7 @@ Minecraft: Pocket Edition - культовый проект не нуждающ�
 ```bash
 magnet:?xt=urn:btih:9EFF7711E7BF1560E153254E10201BCAFBC4F8DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

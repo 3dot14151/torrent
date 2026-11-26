@@ -19,8 +19,7 @@ The Inheritance of Crimson Manor - это игра-головоломка в ж�
 ```bash
 magnet:?xt=urn:btih:8AEDD24CFF1634D1E8A77ADE9761A027E088250B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 ```bash
 magnet:?xt=urn:btih:D7E1907ECA8BECF2A4DD48FE00944C203AE7A21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Baby Storm (2023) [Multi] (2.12.4) License GOG
 ```bash
 magnet:?xt=urn:btih:6C0DCE2FB4DB2E1BC05112668795529034899DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pinball FX3 считается самым масштабным проектом 
 ```bash
 magnet:?xt=urn:btih:C5F82E3A55B1D00C6D8F3172864AB955EDBC0CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Do Not Feed the Monkeys 2099 (2023) [Ru/Multi] (1.0.19) License GOG
 ```bash
 magnet:?xt=urn:btih:FA05EC4DCD8AB2489C8B3A29C3D853728B22FF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Yakuza: Like a Dragon рассказывает о парне по имени И�
 ```bash
 magnet:?xt=urn:btih:91BCE4783D0E9B3E2AF84A5BE8B104CA94419BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mail Time переносит пользователей в мирный и сп�
 ```bash
 magnet:?xt=urn:btih:BC4B5BEF68FFAFF3D9464FD598F567BD37C87674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

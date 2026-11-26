@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:0AA0FC1B9B156BC163EE6143C9BFD7A9C38FFCB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Jessica Wolff - Renegade (2013) Japanese Edition [FLAC|Lossless]<Melodic Modern 
 ```bash
 magnet:?xt=urn:btih:786C4D1D5F9AFF45CC3D87A9F05D9A0F5DCA2789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Angra - 15 альбомов (1993-2012) Дискография /Japanese Edition
 ```bash
 magnet:?xt=urn:btih:201D082F06864BA9F1D2F110F68938B35E759116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Great Jewish Music: Serge Gainsbourg (1997) [FLAC] <Avantgarde, Alternative Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

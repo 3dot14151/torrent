@@ -22,8 +22,7 @@ Rage Against the Machine (RATM) — американская рок-группа
 ```bash
 magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

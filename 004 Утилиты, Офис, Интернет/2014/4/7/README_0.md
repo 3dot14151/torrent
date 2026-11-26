@@ -20,8 +20,7 @@ Starus Recovery Collection 07.04.2014 Portable by DrillSTurneR [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:206E9B81DDF1773430E1494FBB5905FD83C2148A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SIW (System Info For Windows) - системная программа для о�
 ```bash
 magnet:?xt=urn:btih:D2D304E1CD398D95CE0D5F086C3291C0FCA34650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

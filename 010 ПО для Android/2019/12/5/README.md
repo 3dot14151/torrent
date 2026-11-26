@@ -19,8 +19,7 @@ Fitness Point - это простое приложение, чтобы след�
 ```bash
 magnet:?xt=urn:btih:AF22620AE28951396ABDC796D62A6654F24E3719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

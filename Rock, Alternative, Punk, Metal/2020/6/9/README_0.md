@@ -22,8 +22,7 @@ Palaye Royale - The Bastards (2020) [MP3|320 Kbps] <Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:34C80B897C21777D6CBE2407DFD3EEF2D56B490D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ THINK PINK! - A Saucerful Of Pink Floyd Songs .... And A Little Bit More! (2011)
 ```bash
 magnet:?xt=urn:btih:CC482F8FD2C6C89FC21B722CE910BC082E583CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

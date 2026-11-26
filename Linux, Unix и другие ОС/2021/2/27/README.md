@@ -19,8 +19,7 @@ Mageia 8 [i586] 2xDVD
 ```bash
 magnet:?xt=urn:btih:09A64C17849D7CE5461F1082D5DA3A3D3998140C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mageia 8 [x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:808F36992824061B386216C0EA63D6ACA9E63A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

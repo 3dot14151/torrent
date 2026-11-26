@@ -18,8 +18,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.5.0/dlc) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:B82B892661206F30A7E9817700BB69A2BE9103F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Warhammer 40.000: Dawn of War III (2017) [Ru/En] (4.0.0.16278/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C377B7C2082A2F2D3D961EC36D68C5878B0542DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59D4DEEB60BD2E9A287D1B09C4AB84E8BA028D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

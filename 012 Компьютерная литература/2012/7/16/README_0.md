@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:96316646051D676289A6EE4CD702D422B9D94A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25185E666F9B0880D00594384ABE963E57819E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Adobe Photoshop CS5 для фотографов, которое должно б�
 ```bash
 magnet:?xt=urn:btih:69E899B6F40CF22E7C9CB4C8CC7F4AD0536E0C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

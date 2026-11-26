@@ -19,8 +19,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:C2D06E5BFCA49105A3944EF412960B1E65B730A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ SRWare Iron – веб-браузер, основанный на исходно�
 ```bash
 magnet:?xt=urn:btih:1B52A9C03B33092414933A5CB9D6D2CB185DCEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Floorp Browser — веб-браузер с открытым исходным к
 ```bash
 magnet:?xt=urn:btih:E89A46DC1FEAA5A7193A8E15933BD22554345CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Fan Control – свободно распространяемый продукт
 ```bash
 magnet:?xt=urn:btih:B758282C79D0725685EED38B1E7B37F943FBAD13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ MediaHuman YouTube Downloader 3.9.24 (0310) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DA49740384108CDE2EDCB96BC95188604B7B185C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ SoftPerfect RAM Disk - программа для создания виртуал
 ```bash
 magnet:?xt=urn:btih:1D0442B4D17FC9D68F5C61F2C78683840043B060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 ```bash
 magnet:?xt=urn:btih:395FF4BE0D02DAD35C15F921C2E859AEC3AE4F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

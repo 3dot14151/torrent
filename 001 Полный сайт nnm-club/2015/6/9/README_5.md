@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:DF3F07C90896AA2B7FF1F6F6459C6D50450B610B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:849E4306E2BB01793CC655C1D165F364E2299335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:3B3861C7E8A0F10DB33A1AB763716D9CA38773AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F227B4DA3213361BEBF595ABAAE96BAD54425DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Zeno Clash 2 (2013) [Ru/En] (1.04) SteamRip Let'sРlay [Special Edition]
 ```bash
 magnet:?xt=urn:btih:780F4B7892732DF71DCFDDA3A454A11436CEBC27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ CorelDRAW Technical Suite X7 17.5.0.907 [Multi]
 ```bash
 magnet:?xt=urn:btih:52D69B534D2173F39783BAFB3B4BD4681B7CD42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47855A57DB317E092A941455554073C04277C3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ BLACKHOLE – анимированный 2D научно-фантастичес�
 ```bash
 magnet:?xt=urn:btih:65F8D4EB0F791C76AEE726F9B75DFA0CE541A827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Pinball FX 2 — это пинбол с трёхмерной графикой, �
 ```bash
 magnet:?xt=urn:btih:B0A9802C239704C8933992391525F2E534189151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59F26B2B4D55B7D4EA859663E2E218517A4D35D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE7B80599D0C4B350EECE75496D8995B02BEFA08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Killer is Dead (2014) [Ru/Multi] (1.0) SteamRip Let'sРlay [Nightmare Edition]
 ```bash
 magnet:?xt=urn:btih:622C33A1CF9D4B82AFDE39E848A8FE80EBC8BB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ OS X El Capitan 10.11 DB1 (15A178w) [Multi/Ru] (Installer)
 ```bash
 magnet:?xt=urn:btih:5DDE9DC79238D9BF4AF49A9BF8D37D220121C0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ The Wolf Among Us позволяет погрузиться в мир комик
 ```bash
 magnet:?xt=urn:btih:BFBD7E812E1C61C8377AA9F988A092EC41762CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Dragon Ball Xenoverse (2015) [Ru/Multi] (1.0.7.00/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:D30F8CD8E8B52F75E356B0A5641FEC46B1F07FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA1BBF7E16937351C2F5D8B2DE7167CD3258CB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

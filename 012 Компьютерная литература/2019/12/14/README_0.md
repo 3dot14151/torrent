@@ -19,8 +19,7 @@ Bradley Edgeworth и др. | CCNP and CCIE Enterprise Core ENCOR 350-401 Officia
 ```bash
 magnet:?xt=urn:btih:495C0C7C55381B5209075F546FFE2ED7A3C5F3A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Scott Empson | CCNA 200-301 Portable Command Guide Fifth Edition / Сокращ�
 ```bash
 magnet:?xt=urn:btih:D90BCEAF7220B9C1095820AD6F43866599931CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

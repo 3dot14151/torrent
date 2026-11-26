@@ -19,8 +19,7 @@ Loco Parentis — сюрреалистичный survival-horror, где вам 
 ```bash
 magnet:?xt=urn:btih:7435522E5E8D43D729CB2DADB105E7A9FCC35914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

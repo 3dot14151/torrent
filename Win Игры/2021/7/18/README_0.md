@@ -19,8 +19,7 @@ Paper Beast (2020) [Ru/Multi] (1.0) License GOG [Folded Edition]
 ```bash
 magnet:?xt=urn:btih:B3D2BE4781D30DAACDDA7244C46E99391CEE4AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Architect: Paris (TA:P) - строительная игра. Преврат�
 ```bash
 magnet:?xt=urn:btih:B768552A214A122DA0EF035B9541FA19787790F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shattered - Tale of the Forgotten King – приключенческий экш
 ```bash
 magnet:?xt=urn:btih:837DD245D911D1A8F1C76CF3F2A813048652D250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

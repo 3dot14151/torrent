@@ -19,8 +19,7 @@ Time Commando (1996) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D6C002C1C594E77FDEEC12BE110D691838202822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

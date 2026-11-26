@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:760F9A5A1933867E5A6F82B6150E1C682C7DB95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99BFE77BA95FEF9F6F51AE67DAD5B48FD7F5A6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Catharsis - Время потерь (2018) EP [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:61DA5C436B14F74A7D98EE4CA73DFAA8377ECB41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:109CB105B8C9287D57FB2E92F6C0439401325018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Frank Sinatra - The Ultimate Christmas (Daily Mail CD) (2012) Upfront [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:BA2FAE9E2901D2143B60C7DED97F1BF7D532888F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94000892C13D376E86E6B0E7D005EBEDF4260EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ BELLATRIX - I Love KOTO - Covers and Remixes (2018) [MP3|320 Kbps] <Spacesynth, 
 ```bash
 magnet:?xt=urn:btih:71C7E41C6A9C25AF537CE34F8D2213DED283F529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:4097A10E506D618BA14C620EC1FDBA9B410AD927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Swans - Soundtracks For The Blind (1996) 2018, 3CD, Remastered [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:FC5DD9ED2D637773DC6E762AF91F6CB75611110C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:5CCF395DC1980AA371BBF326D7C3A09EB54D3C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D398366F66D5896131B7E7B8F85F336EA659687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [MP3|320 Kbps] <Spacesynth
 ```bash
 magnet:?xt=urn:btih:CB97F0E58CBFDB88D9914620AF48805BCC53B866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A073388BC0BABB950216024912BFDE2980429284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ VA - Fear FM Hardstyle Top 40 January (2012) Unmixed [MP3|320 Kbps] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:8A39C8DECEF371D8F740BEB4C017C0A85AB2E840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09B10AE5966413EB2D51E961452ACE84B6D3CA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ NGW: Братья сафари / Safari Brothers (2016) HDTV [H.264/1080i-LQ] (�
 ```bash
 magnet:?xt=urn:btih:0C4CA1FB12068B69565C38BA7020024AC2320D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFF2304A8253F55DD64154A7CE33E5B5BFCB3D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A084B78BA9C804C2D4C913B3314DB2149C0FB1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD150A781E9B01AACB9579EFEA2B6C7F81BF6CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ VA - 80's Hits Time Machine (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Rock>
 ```bash
 magnet:?xt=urn:btih:6481C78AC91E967296A1EA976352C1E0BAD66BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B3576439352DFFCFF59ADDF65D2609AB9E4346B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2018) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:5E9657E9B255E8A451FFE9BD646FA3744ECF915C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ u-he - Zebra2 2.8.0.7730 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 ```bash
 magnet:?xt=urn:btih:18E1A365D38D4200DFD5C59F9B4B83CD00A19538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:639DB642903B924B2D96E110D85AC765285718CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C7E75D9C48BDC92E26080110F46A3BAA50D898B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:475A47DAFB30A5D7B1E565ED79C4AAFAD33484EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ One Step To Kill - 3 альбома (2011-2013) [MP3|320 кб/с]<Deathcore/Meta
 ```bash
 magnet:?xt=urn:btih:6BCDA55D09C51DC4244032CAF39123DEDDF654CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Pirana - Corruption (2012) Mexican edition [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:88AC8D411D4955DBD7AAE865204E4A66ABBD54E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Bellusira - Connection (2013) [FLAC|Lossless]<Alt. Metal | Modern Rock | Female 
 ```bash
 magnet:?xt=urn:btih:A7307D22C17A5B5852A8509A207BA99C59E96EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Lisa Lim - Lisa Lim (2013) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:2937959C847473F0DF5E2E56E5CA08A861EE1DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ ReinXeed - A New World (2013) Japanese Edition [FLAC|Lossless]<Symphonic Power M
 ```bash
 magnet:?xt=urn:btih:680D7B3456E4DE62ABEE099A22E34818647C245C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ VA - A Tribute To Маврин - Fifteen Years (2013) [MP3|320 кб/с, 128 кб
 ```bash
 magnet:?xt=urn:btih:C2E2D8E80A64C0320E13C4DADF2BABDEF642E008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Black Lab - 7 Albums + 2 Solo & Side Projects + 1 Compilations (1997-2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:BEDBAADF9C2FF6B73823A4193DA24C97B388D801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Eagles - Selected Works 1972-1999 (2000) Box Set 4CD [MP3|320 кб/с]<Classic R
 ```bash
 magnet:?xt=urn:btih:263280A28EABAFEBC9B1A4BD504E9FE8C2475652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B96B044DBD3EE4297D1A378CF3590D3F84F42E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DED4EAA3F50F06437764882764C5F9EB68DAD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

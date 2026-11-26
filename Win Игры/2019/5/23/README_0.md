@@ -19,8 +19,7 @@ Fatal Evidence: Cursed Island (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:8E8CE05687D7523A0761A0EFF2D2D4681904C85F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ascendant – это бескомпромиссная игра в жанре «�
 ```bash
 magnet:?xt=urn:btih:B7D60F39EB8EE8153805E978ABD93789C0EEA1C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pathologic 2 (2019) [Ru/En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:FBAAB362DA2227648D78D6EFE8572706CB5554F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ American Fugitive - классический экшн с открытым мир
 ```bash
 magnet:?xt=urn:btih:EE359AC60D23EEDEB6EC5E6B497F95BE36A09118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fight’N Rage - это старомодный аркадный файтинг. 
 ```bash
 magnet:?xt=urn:btih:3897423A6CC2FB872B219CD1F4E0A2B54B22F717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Spec Ops: The Line - это захватывающий, провокационн
 ```bash
 magnet:?xt=urn:btih:3E3745266E1B239153F0FD48F4B7A70B9989CDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ LEGO: Marvel's Avengers (2016) [Ru/En] (1.1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:2393BB6E8B5C27573F18D02A9F60B8AC8C065214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

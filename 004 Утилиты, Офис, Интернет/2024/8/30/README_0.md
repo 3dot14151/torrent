@@ -19,8 +19,7 @@ Ashampoo UnInstaller 15 — это мощная программа для уда
 ```bash
 magnet:?xt=urn:btih:26283A4DFAC824C3F723E0407D25FDD500083688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ File Viewer Plus (   Читать дальше...   )Язык интерфей�
 ```bash
 magnet:?xt=urn:btih:F545A431C1BBEFA4AAD7088BC0378E45F5126E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D73F6242F4436857C6DC9C8BD4699183A348D99C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

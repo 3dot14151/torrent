@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E1141CBD269ED6E78574917DE4FB87529AD17610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cosmograf - Mind Over Depth (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Prog Rock, Ne
 ```bash
 magnet:?xt=urn:btih:710AF675F6A152AF77D078A6B7F5333931C878EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Deep Purple - This Time Around - Live In Tokyo (2001) 2CD [MP3|320 Kbps] <Hard R
 ```bash
 magnet:?xt=urn:btih:36778997CAC2370F402F64683EA7A1F3F7349324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

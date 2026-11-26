@@ -18,8 +18,7 @@ Fable стала самой продаваемой ролевой игрой д�
 ```bash
 magnet:?xt=urn:btih:D225C652CCAAF514830920CBDF3F49F30747C3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Aarklash: Legacy будет опираться на настольную игр�
 ```bash
 magnet:?xt=urn:btih:B25E9EB92CFBA5BB644450E25C5686694E9827E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3736E5B9B103EBC5D6EC5548D104362BE53EB702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ NAVITEL® выпускает глобальное обновление карт 
 ```bash
 magnet:?xt=urn:btih:A0F900A5393EA0290119894A9AEC2C2E60E1958F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F221268F301FA253A3AF1C3CB316906C7E09677C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ S.T.A.L.K.E.R. Trilogy / S.T.A.L.K.E.R. Трилогия (2007-2009) [Ru/Multi] 
 ```bash
 magnet:?xt=urn:btih:B92B552441F73C3899A41F04A1917B055B213443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:218382D40BD51DFF5C03EA7B9594C0B1DBD4ED20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

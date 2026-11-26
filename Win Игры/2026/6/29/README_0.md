@@ -19,8 +19,7 @@ Nitro Gen Omega (2026) [Ru/Multi] (1.0) Scene Tenoke [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:FFE8C1AE2919A73FADAE3C00E991632380A82414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hogwarts Legacy - ролевая игра по мотивам знамениты
 ```bash
 magnet:?xt=urn:btih:D1227C3F8001F80C9E2FCAD26A2980334CC85E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Forgotlings - кинематографичное приключение с уп�
 ```bash
 magnet:?xt=urn:btih:23C6D50994D4F6A52908E15CF20D426257D7D53F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blades of Fire (2025) [Ru/Multi] (2.0.0.10) License GOG
 ```bash
 magnet:?xt=urn:btih:FA33CD33EDFEDC28F9D00E5CF22601239546DAF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

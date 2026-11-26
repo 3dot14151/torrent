@@ -23,8 +23,7 @@ A5. Suntan (2:18)(   Читать дальше...   )Жанр: Pop/DiscoПрод
 ```bash
 magnet:?xt=urn:btih:FD8A59A128B95BDCBA498891CA39321021EC3EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

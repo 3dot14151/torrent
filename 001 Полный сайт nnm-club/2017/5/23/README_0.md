@@ -20,8 +20,7 @@ Markus Schulz played:
 ```bash
 magnet:?xt=urn:btih:F3670FFEDA7597175EBBA7C6494F1A3F3924C0E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Danger - July 2013 (2014) EP [MP3|320 Kbps] <Electronic, House>
 ```bash
 magnet:?xt=urn:btih:E53F8F34C3E16174E6E6D023FB90710C4E9B91F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07CE0612FBEEB1D89A7D4C49902625FDB228E4AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ The Dave Brubeck Quartet - Someday My Prince Will Come (1965) 1993, Jazz Hour [F
 ```bash
 magnet:?xt=urn:btih:CE9794737C2F475B7904F9B3A1B9AB1CB205D587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Club Dance Ambience Vol.109 (2017) [MP3|320 Kbps] <Club House , Vocal House
 ```bash
 magnet:?xt=urn:btih:2470B36DC125BA9352398DC1084DEA8700572706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - Весенний хитовичок молодежный выпуск № 4
 ```bash
 magnet:?xt=urn:btih:C1132F70D2950A5572D6233BFDA66163731787CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ The Sensational Alex Harvey Band - Hot City: The 1974 Unreleased Album (2009) [F
 ```bash
 magnet:?xt=urn:btih:83C28D26D53F7909FAD9B259BFB132649BF76983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - Paul Oakenfold - Dreamstate Volume One (Mixed by Paul Oakenfold) (2017) [MP
 ```bash
 magnet:?xt=urn:btih:7819D3E476CBDDF15CBF1494E3296D4001B35D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C912D71E2F9368231CC6FD92084ECCEBD7DF700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:562D60B5EDC5A98B6A5601E47E7895F7AC5B17E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Duplicate Photos Fixer Pro является удобным приложение�
 ```bash
 magnet:?xt=urn:btih:23DCABB2387BEF40F30C897A6BD6D069E263B721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7207876C63771F4D15164E085F979D430E8479E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ VA - Best Of Chillout Vol.03 (2017) [MP3|320 Kbps] <Chillout>
 ```bash
 magnet:?xt=urn:btih:7A97D115A76DD5BFBA47DD562D73BE783A72319B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0F062971E519ABF4FD70AAABA51F935CD1D257D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ VA - Горячая весенняя танцплощадка. Версия № 
 ```bash
 magnet:?xt=urn:btih:535EC3D77870F235B4EE46DB70F96C8278AF4C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Guerrilla Alliance - The Dark Rift (2017) [MP3|320 kbps] <Hip-Hop, Hardcore Hip-
 ```bash
 magnet:?xt=urn:btih:9693D84471E34AFE3FCD7EA7E8BAFD6D1F7D1843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ VA - LUXEmusic - Dance Super Chart Vol.118 (2017) [MP3|320 Kbps] <Club House, De
 ```bash
 magnet:?xt=urn:btih:8109D2FFDF1CD6F7576DDDA29C23094BFD233272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ VA - Syndrome Butterfly: Techno Party (2017) [MP3|320 Kbps] <Techno, Minimal, Te
 ```bash
 magnet:?xt=urn:btih:C803F323C043FA5139AD31983AED1BF98D25E584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:185960AE36579863E3E91D4974464D325E9CAC87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ VA - Jazz Dictionary B (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:B409D76530DF6789BEAE76AF39CF9A1575FF6AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ VA - Bossa Nova Love: The Chill Playlist (2017) [MP3|320 Kbps] <Jazz, Bossa Nova
 ```bash
 magnet:?xt=urn:btih:D064FCD4C34FE0185AF88DBF439CF38C18A720EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89CA6B971B8850E913A541A02E0D50A7C36C6366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ VA - Kamasutra Divine: Harmonious Lessons for Love (2013) [MP3|320 Kbps] <New Ag
 ```bash
 magnet:?xt=urn:btih:05D29A62BD9F0AC185F566FC432D28C44FDCC894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ VA - Звездная тусовочка. Сборник № 12 (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:34BDFED4ED85803B89F0328451AAAAF7C88B8190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C707A3680FCB374D57A8A4B4BF6CD488585E8268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ Danger - 09/14 2007 (2007) EP [MP3|320 Kbps] <Electronic, House>
 ```bash
 magnet:?xt=urn:btih:A0E31C0A9C6EB32BAE615A6CDF0D393CDF7C59D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Wolfpakk - Rise Of The Animal (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A1339452D24B2F2E65B35DD9AD90949374F5FA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Keep of Kalessin - Epistemology (2015) [FLAC|Lossless]<Melodic Black / Death Met
 ```bash
 magnet:?xt=urn:btih:4947E00B4F4A99E7146B7DD1CCE2ED262DC14189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ The Electric Peanut Butter Company - 2 альбома (2013, 2015) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:B54CB1461A2A1EEC7A99F2AE41CF1289E3CBFB59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Ian Paice's Sunflower Superjam - Live At The Royal Albert Hall 2012 (2015) [MP3|
 ```bash
 magnet:?xt=urn:btih:C2524747224455F8A6FA45B45F53ACF21305A8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Toto - XIV (2015) [FLAC|Lossless]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:15CE7859200F67828C6AAA0C54D42AB9F2D4EA45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

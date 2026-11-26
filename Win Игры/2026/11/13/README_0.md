@@ -19,8 +19,7 @@ DREADMOOR – атмосферное рыболовное приключение
 ```bash
 magnet:?xt=urn:btih:6D5230378A2354BAEE9A844A9DFDD1322F2238B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Land of Oqvara: Forest Realm (2026) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:AE48B06515C184C59E3BB60A41E9F8558F84CE1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BALL x PIT - динамичный фэнтезийный рогалик, соч�
 ```bash
 magnet:?xt=urn:btih:3DA0DC2426764D1FE21ED634FE9F3E9C0F735C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Handmancers - рогалик-декбилдер с видом от первог�
 ```bash
 magnet:?xt=urn:btih:06A69C304FCC47416209354A68C53935E9B30516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Noble Fates - фэнтезийный симулятор управления к�
 ```bash
 magnet:?xt=urn:btih:D541730634E807C5AF16E5623A11C25D0D141A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ STAR WARS: Galactic Racer - гоночное приключение во все�
 ```bash
 magnet:?xt=urn:btih:7AACD95B22C6C34486E567AE8495BB69DD81E759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Scarecrow: 90s Crime Story - криминальная история в небо
 ```bash
 magnet:?xt=urn:btih:3B54B4886C95C7A18F10A94BA48EF1DEB4449021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ EA SPORTS FC 27 дарит ещё больше свободы в каждом р
 ```bash
 magnet:?xt=urn:btih:00E91AC3A13112BD201D8342B548ED618ECE2098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ ATOM RPG это пост-апокалиптическая инди-игра вд
 ```bash
 magnet:?xt=urn:btih:B7E602ABBAA79808609F1727B87DC1B41866A3A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ World War Z - кооперативный шутер от третьего лиц
 ```bash
 magnet:?xt=urn:btih:92805307C64EA2B92675FB9146D572609F371FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

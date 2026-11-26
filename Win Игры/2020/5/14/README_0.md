@@ -19,8 +19,7 @@ My Friend Pedro - это жестокая смесь дружбы, фантаз�
 ```bash
 magnet:?xt=urn:btih:A2B79B6819D7DD34B1386A016C0106436D83E548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

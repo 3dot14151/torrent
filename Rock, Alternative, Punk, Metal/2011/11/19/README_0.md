@@ -28,8 +28,7 @@ Kottak - Attack (2011) [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Ancient Bards - Soulless Child (2011) [MP3|320 kbps]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:2E17A62B3C4F5ED08D31AE31293A9106928BB9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Iron Savior - The Landing (2011) [MP3|320 kbps]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:AE0B000D72DF1D0004D131B5C9427F395AFE1545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Daughtry - Break The Spell [Deluxe Edition] (2011) [MP3|320 kbps]<Alternative ro
 ```bash
 magnet:?xt=urn:btih:E10FE026D64558AF822377575D46CF825827AF25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Nazareth - 21 альбом (1971 - 2011) Vinyl-rip [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:2F3F0FC4585D1200EA48AEBBEFF4625C0176CB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

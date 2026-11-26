@@ -19,8 +19,7 @@ Don't Stop, Girlypop! (2026) [Ru/Multi] (1.0.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C12109BC99E1DD9793C7FD5727701FAAB926C463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ City Tales: Mеdiеvаl Era (2026) [Ru/Multi] (1.0.0.4/dlc) Repack FitGirl [Fluf
 ```bash
 magnet:?xt=urn:btih:3B29948002B49B4B01556C5A272BC7CF9FE8DB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FlatOut: Ultimate Carnage поднимает разрушительные гон
 ```bash
 magnet:?xt=urn:btih:2B0113A80347744B8E8C84CBCF6A856BDF7F9F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bud Spencer & Terence Hill - Slaps And Beans 2 (2023) [Ru/Multi] (1.2.2024011511
 ```bash
 magnet:?xt=urn:btih:B7D510F82036A03181829644EC446033DACD9B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Parcel Simulator (2025) [Ru/Multi] (1.0.5.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6D80D13C6DEC3B61FDE8CE8AB4255E261A675C02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Blind Touch / Слепое касание (2026) [Ru/Multi] (1.16.3) Repack FitG
 ```bash
 magnet:?xt=urn:btih:AD45212DBFC9E0386D9B2BFA3DBCE8D94B2FC5C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Rainbow Gate когда-то был процветающей компанией 
 ```bash
 magnet:?xt=urn:btih:07CF39A240F439DDB9F51B37BF0D0AAC8A5D1B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Warfare Legacy Collection возвращаeтся с переработанно�
 ```bash
 magnet:?xt=urn:btih:440FB5DFDE7AE630AC6C22E9E150976C1F36E2A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

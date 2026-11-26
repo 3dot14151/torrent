@@ -19,8 +19,7 @@ Sarah Guthals | GitHub For Dummies, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:0D1BE2FB81B368C518C56B2B29CB1D04C62D6D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

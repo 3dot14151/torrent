@@ -19,8 +19,7 @@ IconTOY - небольшая вспомогательная утилита дл�
 ```bash
 magnet:?xt=urn:btih:DC1E1D60557EA1BBC20A503F0EA5C3A64460F542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TrayTeacher 1.0 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BD3DE83FD49F9BCE8D286D6CFA4E0298063AD101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

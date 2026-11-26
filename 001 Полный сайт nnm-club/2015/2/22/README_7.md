@@ -20,8 +20,7 @@ Hero of the Kingdom II (2015) [Ru/Multi] (1.01) Repack Unleashed
 ```bash
 magnet:?xt=urn:btih:AE0901E7DD6208B8DBF458EDDB210F57FB8AB83E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SpeedFan - утилита для контроля материнской пла�
 ```bash
 magnet:?xt=urn:btih:7C20623EBEF18AC4C44403DB1455326FB7BA0180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:249DE667DD73473FFBA7C0095AF437F30D4B7F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBCFDCE7E3A42F9249006C9B6F0B47583B4C0B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:918560F46210E8DAE033EB2405EFF852181D750A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Dark Souls II: Scholar Of The First Sin графически улучшенна�
 ```bash
 magnet:?xt=urn:btih:A476BFFA9871F02087AD8702F5FCB21AFD064F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ WPI by LOMALKIN v.20.02.2015 (x86-x64) [Ru]
 ```bash
 magnet:?xt=urn:btih:22FFDA88ED3549BF7F0685124AC0AC0564DF5980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86330D0BFEBF8F4179316F119056507B2D1C592E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Highlights School | Творческие эффекты (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:1232C4030363BE9203FEE4E909696DD6BBE880B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Windows 7 SP1 x86 x64 USB StartSoft 9-10-02-2015 [Ru]
 ```bash
 magnet:?xt=urn:btih:88030D3AF6F3C7017763D668E917F46AFD00AC49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Windows XP Pro SP3 x86 WIM Edition by SmokieBlahBlah 16.02.15 [Ru]
 ```bash
 magnet:?xt=urn:btih:84EA274619B9203E08CF44B45AC37944B15008DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Assassin’s Creed® Единство - приключенческий экшн,
 ```bash
 magnet:?xt=urn:btih:998F8E60F30EAB6EDF53F99ABA6885CF396115AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Assassin's Creed Unity Dead Kings - Сразу после завершения �
 ```bash
 magnet:?xt=urn:btih:32162262D27C52DDC5EB2ED0F91C4930261DD52B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Assassin’s Creed® Единство - приключенческий экшн,
 ```bash
 magnet:?xt=urn:btih:B10A45DC42445D4E29565A1DDDE744FB0326E18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

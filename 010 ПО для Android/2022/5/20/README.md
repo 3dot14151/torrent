@@ -19,8 +19,7 @@ Photo Recovery v1.63 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2FBF33175EED447800C71300D967CEAFFF1865D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

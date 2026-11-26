@@ -19,8 +19,7 @@ ChainStaff – жесткий платформенный экшен с необ�
 ```bash
 magnet:?xt=urn:btih:8CBFEC4DE90502031C6E2943BDCB17912DD76B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bylina / Былина (2026) [Ru/Multi] (Build 22857118) Repack seleZen [Digital
 ```bash
 magnet:?xt=urn:btih:6F9A60305FD7F57C3D7FC5D5B4835F760FE69336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sintopia (2026) [Ru/Multi] (1.0.2.519/dlc) Repack FitGirl [Chairman Edition]
 ```bash
 magnet:?xt=urn:btih:FFF2147FD0EDB24D43C55C90EF836A4B79CC79C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bylina / Былина (2026) [Ru/Multi] (Build 22857118) Scene Rune
 ```bash
 magnet:?xt=urn:btih:360FF4392D5A393FB301E11845F5CDF456D6E9A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Airborne Empire - это уникальный RPG-симулятор градо�
 ```bash
 magnet:?xt=urn:btih:FBD0ACB7076D71E6BF7D87918AEAE93261B26321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

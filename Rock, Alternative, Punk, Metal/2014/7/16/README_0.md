@@ -28,8 +28,7 @@ Iron Chic - 3 альбома (2010-2013) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:1AE5ABAFD294C8B7D1CBC1F617E3BC1A6EF76D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Korzus - KZS (1995) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D6C20BBB340D4DF1C7A853C2743EE94F67F4C9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Dialectic Soul - We Are Born From The Pain (2014) [MP3|320 кб/с]<Melodic Deat
 ```bash
 magnet:?xt=urn:btih:E405893BB91EA4A4800507233AEF780C27D8B6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Giants Causeway - New Light (1996) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:DF01E625469C3E91B0A1F31736DDE139BEEB3615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Novembers Doom - Bled White (2014) [FLAC|Lossless]<Death/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:B5E16531669C13E9235A19798F2B1F713B448B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Helia - The Great Divide (2014) [MP3|320 кб/с]<Post-Hardcore, Electronic>
 ```bash
 magnet:?xt=urn:btih:354109351FFBBF16E21628F4AFB1EE48C98DDA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Anberlin - Lowborn (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:08490D257BC64DDAA0D4470465DED231F17DB3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AF6EB4B65A5A3642DD210316129250614011FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ VA - Lyapis Crew Трубьют, Vol. 1 (Трибьют Ляпис Трубец�
 ```bash
 magnet:?xt=urn:btih:6E45760A571DC8220DB528A8A38A1067744DAD9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

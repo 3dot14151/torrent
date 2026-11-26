@@ -24,8 +24,7 @@
 ```bash
 magnet:?xt=urn:btih:E7EE69A385EF3F0EDF8EB34E18B8057B1C3C7A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Owen Jones | Examples of Chinese ornament [1867] [PDF]
 ```bash
 magnet:?xt=urn:btih:D37AA0269A7D9E24B105EE3BAD422CCD5755C2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A48CAB17C5417E2DFF48A458D3B4BC398D64F804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

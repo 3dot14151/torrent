@@ -19,8 +19,7 @@ R-Studio Technician 9.0 Build 190312 RePack (& portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DD9618D247862B7CC5968FC2469273352382867F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

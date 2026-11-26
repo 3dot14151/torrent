@@ -19,8 +19,7 @@ Age of Fear: The Undead King (2016) [En] (5.9.5) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:4283A68346436550FA315AF255B91D07E70720EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

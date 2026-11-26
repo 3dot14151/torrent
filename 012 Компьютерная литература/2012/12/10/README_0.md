@@ -20,8 +20,7 @@ Windows 8 и за короткое время успел завоевать си
 ```bash
 magnet:?xt=urn:btih:0A43C0504890EC11B208933E7C88930C63A7F155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

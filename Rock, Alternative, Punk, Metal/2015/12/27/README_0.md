@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:BC032D2515268905577F1AD6687C752652AF1341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA1FD6C0DAC056070199D2D1D894A9B9DB87EF3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Greatest Ever! Heavy Metal - The Definitive Collection (2012) 3CD, Box Set,
 ```bash
 magnet:?xt=urn:btih:BC834DA254BEEB973F6D52BCB4C2F44313601268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ AC/DC - Bon Scott Hits (2015) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F34B666C7494CD4446714091CB3CCC0E97480BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

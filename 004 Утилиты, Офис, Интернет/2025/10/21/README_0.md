@@ -19,8 +19,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:CABCDCCB787DAE0FE5EBD4AA8B16FBED5BE867B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 ```bash
 magnet:?xt=urn:btih:571051FCF02CD2D056333B1929F039B5A49DDF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ UltraSearch Professional находит файлы и папки на локал
 ```bash
 magnet:?xt=urn:btih:C9A72DAC03BAA0216FA9CA179F3F8F29E313C4AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:9BC21C08BFA6D654C1574789142D44E5709070BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

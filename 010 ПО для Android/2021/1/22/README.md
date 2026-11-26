@@ -19,8 +19,7 @@ VPN Private v1.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:A3A09A1FBD62D37D19BC6FD9D30241703F446762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

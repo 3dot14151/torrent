@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4AD4E209D33BF32049293C13BD5BF1B1DEE363F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Beautiful Rock Ballads Vol.01-40 (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:72CF8AAD752669DD2B504596A42786629EBB4050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93A9DAD70B87170088F9E5C849043C9BFDAF75F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Layton Mystery Tanteisha: Katri no Nazotoki File | Детективное аге
 ```bash
 magnet:?xt=urn:btih:CCA25BAC3272BC1AE2E95B6AAD4141C3E9018880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Outward – приключенческая РПГ, события которой
 ```bash
 magnet:?xt=urn:btih:F10D7AA08FDBD94AA669772B8D516F60E54BD400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 ```bash
 magnet:?xt=urn:btih:1C89577D855F62B97BEFAF25E7BC23AE40FB16AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ High School DxD Hero | Демоны старшей школы 4 [2018, TV, 13] H
 ```bash
 magnet:?xt=urn:btih:2465C4E6BB00231068095475BA0C2CEC0E1C123F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Imperfect - Flow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro, Breaks, IDM, Syn
 ```bash
 magnet:?xt=urn:btih:518A36F694CB421913ED59CFBE3028CAABA1098D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Michel Cloup Duo - Danser Danser Danser Sur Les Ruines (2019) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:38D1AA489A596724751DFD163B939A864DDF4F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Explosions in the Sky - The Wildernes (2016) Bella Union [FLAC|Lossless|tracks+.
 ```bash
 magnet:?xt=urn:btih:0FC2A7627B1C1151B6F59B6F0FFD74D999D0E588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91E8B2ACDC6345B7DE40933C5BAEFAA62FD684FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Cybered - Acid Box (2014) Horns & Hoofs Entertainment [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:E19BB225F6F4E1A0D2FCFB4F273BE576D562B598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Martins Garden - Odyssey: A Space Symphony (2018) Merkaba Music [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:0576385EF434658D4982460D3D93C120E77C9D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF672EC02C68F91AA8089AA4A540093662FAFCFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Dead Effect 2 – научно-фантастический шутер, прод
 ```bash
 magnet:?xt=urn:btih:F3F72DCE89E55550D3F3EC35AB42CA4E19F7BAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74AEB0936F4D5D7A817903F5C066F456C20672CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ VA - Between Two Points (2001) 12k / Line [FLAC|Lossless|tracks+.cue] <Experimen
 ```bash
 magnet:?xt=urn:btih:1E5FF60D075F3D448CF548C0F726E589DD9578AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Povarovo - Tchernovik (2007) Reissue, 2012, Denovali  [FLAC|Lossless|Web-DL|trac
 ```bash
 magnet:?xt=urn:btih:F11D611E9F1F88ADADEF6630A7705A2D304ACDA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9F33DF4841632BAFBBC1501B9C0BB7BD3795E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3D1415636FA2F0B2C5CDD8B1C08BA757111287C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ Kainté Kountix (Kainte Kountix) - Assortiments (2019) EP [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:4957E8864F840118376EAE53BED463637D7317E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ VA - Raster-Noton. Oacis (2000) Raster-Noton [FLAC|Lossless|tracks+.cue] <Minima
 ```bash
 magnet:?xt=urn:btih:73F752A2C06DECE946AB05A50B6928806AEC1D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ Flaminia - Illusion In Fire (2018) Metempsychosis Records [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:25752E15BA1B952571058EFDFF171CC9838BAD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ I/O - Calm (2001) Room40 [FLAC|Lossless|tracks+.cue] <Ambient, Minimal, Experime
 ```bash
 magnet:?xt=urn:btih:D813D73F20D7691A07559DD3353A8645EB37BB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

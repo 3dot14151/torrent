@@ -28,8 +28,7 @@ VA - Mountain Chill Vibes (2013) [MP3|320 кб/с]<Chill Out, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:6D25203E841BFE665F841945D779616B0B504BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Barilari - 3 альбома (2003 - 2012) [APE|Lossless]<Melodic Heavy / Power M
 ```bash
 magnet:?xt=urn:btih:268BA9B0308BDC3CB37B049A6B9F6C32A74941B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Ian James Stewart - Junk DNA (2013) [MP3|320 кб/с]<Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:C639266C6EF1E97CDF9061AD0AC940D6A56B46B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Jason van Wyk - Days You Remember (2013) [MP3|256 кб/с]<Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:3CECDABC57BC6286D1651C67178876EC010C2EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89C394C6832476B24A90D6167B3751629CB25B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Lyfthrasyr - The Engineered Flesh (2013) [MP3|320 кб/с]<Black Industrial, Ext
 ```bash
 magnet:?xt=urn:btih:DCD6DBAD7A87E69D4FFA50E34214C192C0DF496C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Annamy – Woodpecker (2013) [MP3|320 кб/с]<Folk>
 ```bash
 magnet:?xt=urn:btih:41F460C89168D47494E7B7BCB594DE2DFE20089D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Dragonhammer - The X Experiment (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:E21DC0171E1ED55968E9BED9E8F5C56D47B06574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ M-19 - Mission: Destroy (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7A4FE153410A59028006E6016A4D6BD5F3F8E207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +320,7 @@ VA - Planet Chill 2013-03 (Compiled By York) (2013) [MP3|320 кб/с]<Downtempo,
 ```bash
 magnet:?xt=urn:btih:76A944EB1D00D871E4B6D7FAE3763B4E4B44C1F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ Black Velvet Band - Piesni Oblakane (2013) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:C492A7EC101461DC9C4E220BC3A130C88BBCE86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +388,7 @@ VA - Spring Tube 100th Release Part 1 (2013) [MP3|320 кб/с]<Progressive House
 ```bash
 magnet:?xt=urn:btih:7F1C495B8F45E24975B8DC4FB5F60436C3B514AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +422,7 @@ VA - Sweat Race Culture (2013) [MP3|320 кб/с]<House, Club, Tech, Progressive>
 ```bash
 magnet:?xt=urn:btih:2DEDC84B3142BE1667EB77C7D296C6F62CB09DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8B54CDC8C67DFC46A9A3CB24A894C84C313D97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +481,7 @@ Madness - Oui Oui Si Si Ja Ja Da Da (2012) [FLAC|Lossless]<Ska Revival>
 ```bash
 magnet:?xt=urn:btih:F22995BDDA4862FA44FB141E16D7C4B12C1C60F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D4329DD3E0263B74373722F00804F10A99A0105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0B078893E0E80434512FF5BCCE7461DC8D9D704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA482149CB1D76D3DE76C15053396A65B8711FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB07044E63C86560975DCB0949608ED28CD4B744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +642,7 @@ Mooncry - A Mirror's Diary (2013) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C41BCE02498599A3A5C57BD596D110D9912351C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +676,7 @@ VA - Lounge Stories - Luxury Chill & Lounge Tunes Vol. 2 (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:1A6FAC00E68D52B098994F7D6C70A9033C913194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6DE5B8527D127677B19DC3D4956C0E235887AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +735,7 @@ Landshapes - Rambutan (2013) [MP3|320 кб/с]<Indie-Folk>
 ```bash
 magnet:?xt=urn:btih:E0FDC6CDFC82505549F2E82DA3F55432FF1BF0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +769,7 @@ VA - Christmas In Paris - Chilled Tunes For Relaxed X-Mas Days (2013) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:59CFA230300EC036BC70C0B0CF547CE29F1C4858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -828,8 +803,7 @@ Doria - Golpea Otra Vez (2013) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7C0063499EB53CFB69662568AE4CF616AB7B9031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

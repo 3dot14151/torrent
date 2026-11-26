@@ -24,8 +24,7 @@ Catacombe - Quidam (2014) [MP3|320 кб/с]<Post-Metal, Post-Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:7E877A90C1B286DE38DA33771BF25B8AC8554587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE5D2CA2FFD99CD6ED52893DEC1C13BC91605FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:7D7D5C73910943CB979700415DFA1E41961B5370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ On To Victory (1980)
 ```bash
 magnet:?xt=urn:btih:A18665CE44A0B594DEC0FC89FF4DB32A75394696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Sting - Digitally Remastered (1998) Promo CD [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:B2C2226B21B635683FEC5D343DEADF20B973C898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Chicken Shack Featuring Stan Webb – Goodbye Chicken Shack (1974) Remastered /2
 ```bash
 magnet:?xt=urn:btih:2612E978A31FA5E6D1DF3F550275A401EA009C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - While My Guitar Gently Weeps 2 (2002) 2CD [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:58C4058D39F0461464554E248FC1C8514DC48EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Chicken Shack Featuring Stan Webb - Unlucky Boy (1973) [FLAC|image+.cue]<Blues R
 ```bash
 magnet:?xt=urn:btih:263F0A30945327D292BE75795DA5D011221D1582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Foreigner - Head Games (1979) Remastered /1995, Atlantic/ [FLAC|image+.cue]<Clas
 ```bash
 magnet:?xt=urn:btih:61CFA4E64A86AF48E2A1BDAD5C75712E074BE3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Foreigner - 4 (1981) /1988, Warner-Pioneer/ [FLAC|image+.cue]<Classic Rock, Hard
 ```bash
 magnet:?xt=urn:btih:87BA42331E726B942FC51E18109E2005717CF959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Screaming For Vengence 1982
 ```bash
 magnet:?xt=urn:btih:6156A40EE1206F8B9B094A62DC400FD93A8C1A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56B3F31DF7FF354A025F7CBCCED08C45698A1BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ British Steel 1980
 ```bash
 magnet:?xt=urn:btih:82DED34D1681B378837A0B60793F1157F29934F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Emerson, Lake & Palmer - Trilogy (1972) (2 CD) Remastered /2015, Sony Music/ [FL
 ```bash
 magnet:?xt=urn:btih:AF10724D2A09A6EC94EA8BAFA6DECF629075B875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Foreigner - Agent Provocateur (1985) [FLAC|image+.cue]<Classic Rock, Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:178FAB0B1E84DF51DE86A0DA1D098447B32FCF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Eric Clapton - Story (1990) [FLAC|image+.cue]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:74DB0C63AC8DC148B80A94E3FEC9C2E1613B5685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Hardcore Superstar - 11 альбомов (1998 - 2015) [FLAC|APE|Lossless]<Hard 
 ```bash
 magnet:?xt=urn:btih:F1D6B4B57FB6E5E93F7CFFF9B6844E8C874A0916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ The Retuses - Echo (2009) [MP3|320 kbps]<Indie Pop/Folk/Lo-Fi>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ John Lydon - Psycho's Path (1997) [MP3|320 kbps]<Punk-Rock, Post-Punk, Electroni
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ Iggy Pop - Preliminaires (2009) [MP3|320]<Punk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Dead By Sunrise - Out of Ashes (2009) [MP3|320 kb/s]<Alt Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

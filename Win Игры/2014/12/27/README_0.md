@@ -19,8 +19,7 @@ Lords of the Black Sun [Patch] (2014) (1.03) License CODEX
 ```bash
 magnet:?xt=urn:btih:EAFC6F5A7D6B01B924400774CE5AD8757922D9F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Octodad: Dadliest Catch — это игра о разрушении, хитро�
 ```bash
 magnet:?xt=urn:btih:804672D4DA545821AF5840B8C575CCA2D3B8F880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Pixel Piracy это симулятор нелегких пиратских бу�
 ```bash
 magnet:?xt=urn:btih:F0E15B070A76F336D823FEBF44D2D988257A9039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Braid — это выполненный в живописном стиле пл�
 ```bash
 magnet:?xt=urn:btih:A5544175AE8A376A5B0436AC67D321BF7028A184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Halfway представляет из себя смесь ролевой игр�
 ```bash
 magnet:?xt=urn:btih:D76566A44099F9A47DA9EC09E73A181EC1B94153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Lumino City — это приключенческая игра с элемент
 ```bash
 magnet:?xt=urn:btih:B86A1AFB1A86F208A67DAE83024A252F45895CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4650FA79C3E6AF9C0DA14B907B39C4F284E36E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

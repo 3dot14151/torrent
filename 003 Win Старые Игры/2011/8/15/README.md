@@ -21,8 +21,7 @@ Gabriel Knight: Sins of the Fathers [Ru] (RePack) 1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:1D1CEFA385609E8CBE2E47E1CB8579F1501CD4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

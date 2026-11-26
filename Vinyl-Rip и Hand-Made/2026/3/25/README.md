@@ -22,8 +22,7 @@ A4 Star Dust (Carmichael, Parish)(   Читать дальше...   )Жанр: P
 ```bash
 magnet:?xt=urn:btih:6AF6F8F5DC0DB5FFD9B5BA1B354595AD1D2DD1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Samael — швейцарская метал-группа, образованн�
 ```bash
 magnet:?xt=urn:btih:C328119F4D64421615CC302566D60D9E257C05FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

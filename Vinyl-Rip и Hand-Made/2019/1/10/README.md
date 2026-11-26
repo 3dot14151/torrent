@@ -22,8 +22,7 @@ A4 Piccadilly(   Читать дальше...   )Жанр: Alternative Rock, New
 ```bash
 magnet:?xt=urn:btih:029A2C774FBC437B2EA0D8AB98F6007E52DE748F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:590F72C164DD7D4A99428A403D3E7D903C7EC39B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 I'm In The Mood For Love(   Читать дальше...   )Жанр: Jazz, P
 ```bash
 magnet:?xt=urn:btih:CB76396D3CA873C176950026DCEA6FDC2B27D4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

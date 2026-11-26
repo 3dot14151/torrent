@@ -19,8 +19,7 @@ System Font Size Changer - небольшая портативная утили�
 ```bash
 magnet:?xt=urn:btih:5D1A1497DEAA0B57FC7CFF3B8984D7A41A28BE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

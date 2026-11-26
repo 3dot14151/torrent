@@ -19,8 +19,7 @@ Debian GNU/Linux 7.4.0 [i386] 3xDVD, 2xUpdateDVD
 ```bash
 magnet:?xt=urn:btih:8CDE6EAD228EE57957A79771D034BE3E8A8AB2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Edubuntu — дистрибутив операционной системы Linu
 ```bash
 magnet:?xt=urn:btih:0DFEABC5FB529015DC1DF18D471E13BD83475B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

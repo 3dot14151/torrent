@@ -18,8 +18,7 @@ GM EPUB Reader — это полнофункциональное приложе�
 ```bash
 magnet:?xt=urn:btih:46E4C431686CEADD15B9B2E07384302CD52A24E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Color Folder - Custom Icons for Mac 3.8 [En]
 ```bash
 magnet:?xt=urn:btih:DD872A4560195F2C4FA30291E8444CB3B39D6C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Sound Storm - Vertigo (2016) [FLAC|Lossless|image + .cue] <Power Metal, Symphoni
 ```bash
 magnet:?xt=urn:btih:71B38F84971E24EB1A9F671F44709F64CA35D485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ III. The Summit(   Читать дальше...   )Жанр: Progressive RockП�
 ```bash
 magnet:?xt=urn:btih:E2D2C3A3A0F2B4AB6388685AA64D62E4E5D10FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ MarkMyWords предлагает простые функции форматир�
 ```bash
 magnet:?xt=urn:btih:EEB1AC2C4C975001837A8D14441A35B3F3A8EC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ FotoMagico – популярный пакет для создания слай�
 ```bash
 magnet:?xt=urn:btih:A68EC8C7545A907804811153C874B1F2E04DAC8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ B2 Vomit RitualЖанр: Death MetalПродолжительность: 00:10:08
 ```bash
 magnet:?xt=urn:btih:6255D79591533C7D345A5B0BFB637F0DE3CD073C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:DEA2288DFCFF04864BFAE96A3275C43AA743C516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ BatchOutput PDF упрощает вашу жизнь, автоматически
 ```bash
 magnet:?xt=urn:btih:C549FFBD5B56BA4A33CAE0FF977991DFA89300E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Navicat Charts Creator преобразует ваши данные в эффе�
 ```bash
 magnet:?xt=urn:btih:F301B0A8B2995C9892D69BDEF0A1893EFA7AB832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ SnippetsLab — это простой в использовании менедж
 ```bash
 magnet:?xt=urn:btih:E71FEA8B6B8D3B3680BD8DF4C92C0D55CAFDE28F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ Mildred Bailey - 1932 - 1936 (1999) Classics [FLAC|Lossless|tracks + .cue] <Voca
 ```bash
 magnet:?xt=urn:btih:17110BBDF482FBBF929EB1829239F91B87649834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ RightFont - менеджер шрифтов с красивым интерфей
 ```bash
 magnet:?xt=urn:btih:C20B733F0C7821A24559AC047A9D6F7BBBCECF5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

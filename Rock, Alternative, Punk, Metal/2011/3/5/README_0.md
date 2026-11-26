@@ -25,8 +25,7 @@ Burzum - Fallen (2011) [MP3|320 kbps]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:0F284DB6AEB8A1F7A589F0119B5585649F90F9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ H2O - Nothing To Prove (2008) [MP3|192-320 kbps]<Punk Rock\Hardcore>
 ```bash
 magnet:?xt=urn:btih:5933E38103F75509A8C4C2672184837C025F13FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ The Human Abstract - Дискография (2006 - 2011) [MP3|320 kbps]<Progres
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Cinderella - Gold (2006) 2CD [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Avril Lavigne - Goodbye Lullaby (Japanese Ltd. Ed.) (2011) [FLAC|Lossless]<Pop-R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ R.E.M. - Дискография (1982-2011) [MP3|320 kbps]<Rock | Alt Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ The Offspring - Дискография (1989-2010) [FLAC|Lossless]<Punk Rock/Ska
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

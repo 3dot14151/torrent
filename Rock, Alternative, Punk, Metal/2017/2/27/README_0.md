@@ -22,8 +22,7 @@ Tower - Titan (1982) Reissue, 2010, CNR Music [MP3|320 Kbps] <Pop Rock,  Symphon
 ```bash
 magnet:?xt=urn:btih:F98F41FD2B63F89713ACB4D99BA71F6C97F8B5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

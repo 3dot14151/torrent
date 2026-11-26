@@ -19,8 +19,7 @@ Seena 1.4.12 By dezhur [Ru]
 ```bash
 magnet:?xt=urn:btih:1FC73283B42E41D218BCC66A8C1CD7DF3E85F8CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FreeZona 3.0.58 [Ru]
 ```bash
 magnet:?xt=urn:btih:524090F251E24EAAE6C2452E4757566B82F57C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Adblock Plus 1.3.0.369 [Ru] - Блокировщик рекламы
 ```bash
 magnet:?xt=urn:btih:58263094087B3FB6AA06DADC97F805CAA5181667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

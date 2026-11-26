@@ -19,8 +19,7 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [i68
 ```bash
 magnet:?xt=urn:btih:C921AFEF0ACB18C7203E018B49C139DD28DE07CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [x86
 ```bash
 magnet:?xt=urn:btih:2EC02540C4CF35CE4BF0CA837551F5E2210619B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

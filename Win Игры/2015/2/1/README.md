@@ -21,8 +21,7 @@ THEM: The Summoning / Они. Глава 1. Зов (2011) [Ru/Multi] (1.0) Licen
 ```bash
 magnet:?xt=urn:btih:0CF93EF57E1FD08EA282EADDADFB9C9173155F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Just Get Through - это хардкорный восьмибитный плат
 ```bash
 magnet:?xt=urn:btih:C97583ADA3412798D619C112AEAC5F74ECE0C94D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Toy Defense 4: Sci-Fi (2014) [En] (1.6) Unofficial ZEKE
 ```bash
 magnet:?xt=urn:btih:9E4A7960DF65FE1E055E8DE473E824C5B40981C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Max: The Curse of Brotherhood (2014) [Ru/Multi] (4.3.1.45) Repack R.G.Catalyst
 ```bash
 magnet:?xt=urn:btih:94EB857574CDD278D298F0E2E200D7DB019AD45A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Exodus Wars: Fractured Empire рассказывает историю из Во�
 ```bash
 magnet:?xt=urn:btih:14EEB06C2625D87A1A71475DEE134C977FD0B127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

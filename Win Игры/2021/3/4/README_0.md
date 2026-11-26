@@ -19,8 +19,7 @@ Twin Mind. Murserous Jealousy / Близнецы-детективы. Убийс�
 ```bash
 magnet:?xt=urn:btih:FE9195ACECAFC013114495222087C64F40DC0486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

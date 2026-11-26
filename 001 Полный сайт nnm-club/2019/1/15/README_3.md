@@ -18,8 +18,7 @@ Screens 4 v4.6.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F44939F9D94774395F8C2DA9808F7E132A47FB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KeyCue – удобная утилита, которая поможет поль
 ```bash
 magnet:?xt=urn:btih:CC1A1CDFEDFC8F2933C6A5542F4E7BFF2A5F83C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:741BB8E9AB024E31837DCAF4F9BD724EC34494E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46F6EB8C5D900D8BAD84CE04FC09EF47AB3FA03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:718440F41B0753190373FFA3026E464B7FFB9E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:670D27C2E717B5D6563DB3FE5968EAE8CF7633DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ AAct - KMS-активатор для операционных систем Windo
 ```bash
 magnet:?xt=urn:btih:43E9F2B2F5935A78313A1EB09BB079A8257084B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Catherine Classic (2019) [Ru/Multi] (1.0.1151) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9E8EAD31713C5DFC314D3E2BBC139BE8DBBEF02B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:800161A23EC24ED0E9E44188B936FE3FA9448E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E0E6144487C87D1A08441F960A45BB7BF76C414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Colin McRae Rally 2005 (2004) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:1B614FEE29B4417F80438858539A5C50C5BBDA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 19.1.12 [Ru]
 ```bash
 magnet:?xt=urn:btih:0FB1A78F879F564E195736F5A4FE56DE84BC8930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ The Dwarves (2016) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8728371CC29057E092A089A5DCB649B98DAE02F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF81D2EFF25D2F55B602C7674E818C5977FA9886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ AllWinUSB Constructor by SmokieBlahBlah 14.01.19 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9D3278460C43EBB6C5A3023382D1EA477718E5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

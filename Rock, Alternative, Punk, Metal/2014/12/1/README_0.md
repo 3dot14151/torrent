@@ -28,8 +28,7 @@ Zotz - Hermetic (2001) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5B7166382D6D9F9FBF8BCA6CE3E6B71A2A57AA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ NICK R. - 7VET (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:39DE7D7CEDC06C553469FA340C06CEE8281F4AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Astralion - Astralion (2014) [FLAC|Lossless]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:4FFFC44F95C0390099EBD4A3ADEC2EED1A5C7886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Triosphere - The Heart of the Matter (2014) [FLAC|Lossless]<Power/Progressive Me
 ```bash
 magnet:?xt=urn:btih:409D344FB055953297125709BE5B76DF404D8F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Unseelie - Urban Fantasy (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:4A678940A18E498D0D6374E7E9CC55FD92B6052C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Bloodbound - Stormborn (2014) [FLAC|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:7AF64BD3AE6DB721C5DCE1877F94683331A992C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Garden Wall - 8 альбомов (1993-2011) Дискография [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:DE741EC325C7E169F0D82943F889A6AFEE9DDC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Eliwagar - Eliwagar (2014) [MP3|320 кб/с]<Folk Metal, Pagan Metal, Neo-Folk>
 ```bash
 magnet:?xt=urn:btih:9C1F35A9128506073E9C7E2B4FFDC75263AF7F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Written-By – M. Moody (   Читать дальше...   )Жанр: Blues Rock
 ```bash
 magnet:?xt=urn:btih:99912F43A6AE6947018083094A60E70A5450D11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Ritchie Blackmore - Take It! Sessions 63-68 (1998) Including Rare, Live and Unis
 ```bash
 magnet:?xt=urn:btih:60AF0957E2D21F43FF7EFB24BC38F6811651B1E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ VA - An All-Star Tribute To ZZ Top (2008) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:C8E37670EC24C25182257DB66721F44FCA6AB152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:61F4C7B8763BC7A94C08A128C6C33D06C2621478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ Green Crow - Ирландский Отбой (2014) [MP3|320 кб/с]<Irish Folk
 ```bash
 magnet:?xt=urn:btih:083A3DEE3F4B442C527A440899F6F63F2F994291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

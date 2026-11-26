@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9CCA5E25BFCCD955BB7C0D7F1803FAA14B77F5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Listen Audiobook Player v5.2.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:836C6642FDA803E519229B85F4FA1C6DA33063FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gradient - это передовое приложение с лучшими AI-�
 ```bash
 magnet:?xt=urn:btih:6A57338EF896B6C781456C7A134E677EAEC8D0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:034EA64531B131615FE874CDF183AF02756EE5B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ AWS is the global leader in cloud computing, and the AWS Certified Solutions Arc
 ```bash
 magnet:?xt=urn:btih:9A02A002DAF965D913A69DE1946B8D35C93BD3BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7542FD9B74DAD582B526FCB32D950FD21A47A746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8EE7A92B6F5FF81814EE61505FFE8B7B4A060BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Poor data quality can cause major problems for data teams, from breaking revenue
 ```bash
 magnet:?xt=urn:btih:D3308CA7D2EEDEFFB53A46CCCAF9F648C908A446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

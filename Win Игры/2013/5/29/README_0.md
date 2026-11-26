@@ -19,8 +19,7 @@ Whispers: Revelation / Шепот откровения (2013) [Ru] RePack Pan Ga
 ```bash
 magnet:?xt=urn:btih:9E8A349C81740136B4D50A6A753C70A516C2D414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

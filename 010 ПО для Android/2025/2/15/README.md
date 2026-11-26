@@ -19,8 +19,7 @@ Textra SMS v4.79 Pro Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0AA525F229B2C532EF0A191E5D4DDE72D664F268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ChatOn: Чат-бот с ИИ v1.64.512-586 Mod by MustHave [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:671ADCD28F55D6E7672BF934020D54E0A612890D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Onvier - Монитор IP-камеры v19.55 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:883446E0A79B5A7A0080509CDFBD268665986038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:65F68DD5867C5FF18B3083CA3E965EA60EB98231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AA0F3D51CF48E0B64185050C7BCFB33BC3B4257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

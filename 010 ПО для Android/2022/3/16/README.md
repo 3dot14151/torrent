@@ -19,8 +19,7 @@ Mobi Калькулятор PRO приложение, которое будет 
 ```bash
 magnet:?xt=urn:btih:7451792F2ED556877E0C4897F84D09A5F8A6FE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mobi Калькулятор PRO приложение, которое будет 
 ```bash
 magnet:?xt=urn:btih:D99AE79D38CCB65CF0D50DBADD28097FD40D1698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

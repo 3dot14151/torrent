@@ -21,8 +21,7 @@ Albums, Demo:
 ```bash
 magnet:?xt=urn:btih:AE424C7F3E4E0FB29697CD5AC42A893BC81D3473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Thrown To The Sun - Out Of Themselves Things Will Come (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:62EB742B476C643794C430CC81EF5C901EA55A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Mo' Blow - For Those About to Funk (2011) [FLAC|Lossless]<Funk>
 ```bash
 magnet:?xt=urn:btih:B1A9F4C58D9DA8177B8203EB12B86A7740732F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Seelenfrost - ☽ (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:35CD63F2BB4C38C09A996055C7AA13D905DA30D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Mo' Blow - Gimme The Boots (2013) [FLAC|Lossless|WEB-DL]<Funk, Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:4C7D6EB667E03FDFED684AFFE36DD10040FB8AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Mitchel Forman Quintet - Mr. Clean (Live at the Baked Potato) (2002) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:E65EE2B308CC26716EF3B03C5B352AD4538FC0E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Mitchel Forman - Now & Then A Tribute To Bill Evans (1993) [FLAC|Lossless]<Fusio
 ```bash
 magnet:?xt=urn:btih:45673A89F2997B131273D106D477F20080C5EB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Maximize Bestiality - Extraterrestrial Skolexomorphic Infestation (2014) [MP3|32
 ```bash
 magnet:?xt=urn:btih:1D36CCFCF96CB5E84A632AF3C8AFFE2E56B728EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Duke Ellington Quartet - Duke's Big 4 (1997) [FLAC|Lossless]<Jazz, Mainstream Ja
 ```bash
 magnet:?xt=urn:btih:78B33B1BE1949E1D125C55D9F9B3D8D8FA1EC85C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ The Breakpoint Method - Thanks For Nothing (2013) [MP3|320 кб/с]<Alternative 
 ```bash
 magnet:?xt=urn:btih:85B87260DE618635309E994B4B62925D7F9A63FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ Fah - We Were Cool Ones (2015) [FLAC|Lossless|WEB-DL]<Electro, Techno>
 ```bash
 magnet:?xt=urn:btih:3B3047946BD8979252973672119D2E4ACD1C4A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ Old Man's Child - Vermin (2005) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:58760E5AB32466BEFEAA73502314670823F83402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +442,7 @@ VA - Sundown Cafe (15 Balearic Chill Sounds) (2014) [MP3|320 кб/с]<Downtempo,
 ```bash
 magnet:?xt=urn:btih:1C0FFABC1C190932A394FDAAFD4E8DC9AFE8598F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +471,7 @@ The Old Man's Child - In The Shades Of Life (1994) [MP3|128 кб/с]<Melodic Bla
 ```bash
 magnet:?xt=urn:btih:2F60877730F96A441F60D5A3BE78C81DDC022D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +505,7 @@ Northland - Downfall And Rebirth (2015) [MP3|320 кб/с]<Folk / Melodic Death M
 ```bash
 magnet:?xt=urn:btih:5FF0382883FDB5E200AD69EED01075BE7FFCBB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +539,7 @@ Victorius - Dreamchaser (2014) Japanese Edition [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:0B3B367DC0431905F81BD6209B4B013F16A2A378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +572,7 @@ DJ Nike Twist - TranceWave 105 @ GTI Radio (01.01.2015) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:372A171A47A045383B604C0EEAC374C390B76F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +606,7 @@ CRYXUS - Rise (2012) [MP3|320 кб/с]<Industrial Rock>
 ```bash
 magnet:?xt=urn:btih:831347C8D5BF0C5487150EA6B9051A429A960516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +640,7 @@ DJ P@F - The Best Hits 2014 (2014) [MP3|256 кб/с]<Techno, house, dram & bass,
 ```bash
 magnet:?xt=urn:btih:1712971083234A02B2BB961ACF2F9225C2A975AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +677,7 @@ CD2 (00:58:53)
 ```bash
 magnet:?xt=urn:btih:A4A8556EAB252ABD6251F82047DAACB7961B4CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:255244A7FC141AFFF4DFB264AE276B86C4BC4F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78E3F31E5E6A8599EE40AB82DEC90D094CBA477E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +752,7 @@ Garmin: City Navigator Indonesia NT 2014.40 HERE (октябрь 2014) <En>
 ```bash
 magnet:?xt=urn:btih:E8DF24D5F6602BDA118DDB558035DDA953727C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +777,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -827,8 +802,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:806355B0E6CF2BBA8D9C4DDB20500D2AE4762ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Gypsy Child(   Читать дальше...   )Жанр: Hard RockПродо�
 ```bash
 magnet:?xt=urn:btih:5126E710D04761AE8D882E63902B6E0B569D43DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

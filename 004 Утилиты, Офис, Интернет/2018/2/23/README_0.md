@@ -20,8 +20,7 @@ File Converter умеет работать с распространёнными
 ```bash
 magnet:?xt=urn:btih:36C390CE50D63A22D8D783BBB2F12B0883B13494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ AutoPlay Menu Builder - неплохая программа создания м�
 ```bash
 magnet:?xt=urn:btih:91165838E0E65CB14480718F646DB3835A934283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

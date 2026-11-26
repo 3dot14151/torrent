@@ -19,8 +19,7 @@ Colorize it v2.1.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:5CEB3DBCCA9E6D8CFA9CB213F183B71FDBE7104C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

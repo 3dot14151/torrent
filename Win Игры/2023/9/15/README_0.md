@@ -19,8 +19,7 @@ Skye Tales - это головоломка-платформер для всей 
 ```bash
 magnet:?xt=urn:btih:7976E91AA24E8176C7224FA8B5A884004E965A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unheard - Voices of Crime (2023) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:802EA345621389C206EE2C9CFF1ACC2CF2AA689C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E4008866E1DE9BF02579DB56224CD1FB213C09B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Repack Other s
 ```bash
 magnet:?xt=urn:btih:27E3142FC2DB85914DCCDB9D2EB986F15059B72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ XEL - это научно-фантастическое приключение в
 ```bash
 magnet:?xt=urn:btih:2FACC856D02874D54A0CE1A00AA04428C2B0AE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ XEL - это научно-фантастическое приключение в
 ```bash
 magnet:?xt=urn:btih:2FACC856D02874D54A0CE1A00AA04428C2B0AE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Secret of Hildegards / Секрет семьи Хильдегард (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:3846CDC430F149D6C12DD163574F2DDC38FBCE60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Royal Trouble / Королевские неприятности {v.1.1} (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:675A1F85A612AD7DCF9639D1457EF2CFD93C2D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Haunted Legends: The Bronze Horseman. Collector's Edition / Легенды о п
 ```bash
 magnet:?xt=urn:btih:8EC27AEB96C6FEFBA92FA2CF3E1F983AE96EACF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Dungeons: The Dark Lord [En] (L) 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:6584F6DEB547FFF20F615DE1A93AF0A424CC335E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

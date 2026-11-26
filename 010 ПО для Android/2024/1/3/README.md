@@ -19,8 +19,7 @@ SD Maid v5.6.3 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D0586431DA60943B451061CC1A124F32519A7B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

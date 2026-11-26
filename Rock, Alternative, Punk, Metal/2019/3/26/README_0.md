@@ -22,8 +22,7 @@ Wild Nothing - Indigo (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze
 ```bash
 magnet:?xt=urn:btih:906C83CBC5F5B2DB093F6797B3CFB4604D39248C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stahlmann - Kinder der Sehnsucht (2019) Limited Edition [FLAC|lossless|image + .
 ```bash
 magnet:?xt=urn:btih:861BF439738569F118E3FA515EF21E0F8CF97531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Resonance - Ультрафиолет (2019) [FLAC|Lossless|image + .cue] <Sympho
 ```bash
 magnet:?xt=urn:btih:085DC03D38EA11C2B293BA1E845ECB4481DAFAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

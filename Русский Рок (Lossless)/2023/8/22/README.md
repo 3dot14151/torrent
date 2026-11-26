@@ -22,8 +22,7 @@ Steeldown - I Don’t Care What Your Favourite Dinosaur Is (2023) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:48C08CAD2ECCEF34DFA1EA45F6E5B9CACCFF9769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C11476D844FD45A7664F77E316FB505CE4D0703D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Europa Universalis IV – продолжение знаменитой серии
 ```bash
 magnet:?xt=urn:btih:82371F00E93C908591A0E1A750C04F3DCE0F6D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

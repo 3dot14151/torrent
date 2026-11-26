@@ -19,8 +19,7 @@ The Lost Chronicles of Zerzura [En] (L) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:FFD842E1C7DCCF1F2DB6F84655402CC0604A4273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Iron Sky: Invasion - является космическим симулятор�
 ```bash
 magnet:?xt=urn:btih:26CEDB4F5D13EC0BA4D6CE5387E28062FD3C9216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Black Mirror III завершит историю ужасных событий �
 ```bash
 magnet:?xt=urn:btih:DF98EA6E3626809819642C0239517BDAEA5A31F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

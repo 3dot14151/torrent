@@ -22,8 +22,7 @@ Paean - Scorn Of Eternity (2015) [FLAC|Lossless|image + .cue] <Progressive Death
 ```bash
 magnet:?xt=urn:btih:A18F0D2512A4CE06A94955336F3F039E997F4B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jungle Rot - Jungle Rot (2018) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:452CA05A00596812390544066CE099B3BA00E51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Daron Malakian and Scars on Broadway - Dictator (2018) [MP3|320 Kbps] <Alternati
 ```bash
 magnet:?xt=urn:btih:6A45B4FFAC4D7107235F8F13FA757C9E39A8F3EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

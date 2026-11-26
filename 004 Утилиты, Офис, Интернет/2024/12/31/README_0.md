@@ -19,8 +19,7 @@ FreeCommander XE - это довольно-таки удобный в работ
 ```bash
 magnet:?xt=urn:btih:6F27A412FB73C969E37CE4472F18C6B2712885DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

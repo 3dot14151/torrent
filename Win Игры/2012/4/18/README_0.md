@@ -19,8 +19,7 @@ Death Cargo - это файтинг, который берет свое нача
 ```bash
 magnet:?xt=urn:btih:8F8387F79DAE6CCF9ED51E19F61D2FEE351A1ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Crossed Love / Предначертанная любовь (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:73090600135945C726BB8D8A2B0A00DB55F33A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

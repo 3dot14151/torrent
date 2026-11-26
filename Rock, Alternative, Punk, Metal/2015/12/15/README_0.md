@@ -22,8 +22,7 @@ Ultimate Holocaust - Blackmail The Nation (2015) [MP3|320 кб/с] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:81C28E912E93DC49CC6069FFF58841C85852AA4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Love - Reel to Real (1974) 2015, High Moon Records [FLAC|lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:5126C6A43E16E6FB375917BC3AC099F31A5736D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD474EF2B4DD3B1E866EA285B454F985A6555B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:990FE4F8042BDCE188D9538437048B414C8DB0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Exploited - Troops Of Tomorrow (2002) [APE|Lossless|image + .cue] <Punk Rock
 ```bash
 magnet:?xt=urn:btih:F9B4B79945C79B951F3082D36EF81A56AFABB862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16CE0BACAD9E773651134AD8CDB8409190DD32B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Marc Bolan & T.Rex - For All The Cats - The Best Of (2015) 2CD [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:EC6BDC1244CCB02D20A65C0601CC1A6228BAB139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

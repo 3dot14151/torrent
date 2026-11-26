@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A48D4652E954044ED7DB53AF250C44108E9F452C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Andreas Wittig | Amazon Web Services in Action, Third Edition: An in-depth guide
 ```bash
 magnet:?xt=urn:btih:FCF5204FFA2D15A2C326236AE1E28E64F26666D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

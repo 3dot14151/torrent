@@ -19,8 +19,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd46/dlc) License PLAZA [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:417B5E21145240588FBEE2649FB83736841B4ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Owlboy - это аркадная приключенческая игра, где
 ```bash
 magnet:?xt=urn:btih:70D2A62A33169307806DCAA1AD0DC9D1B08D8424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

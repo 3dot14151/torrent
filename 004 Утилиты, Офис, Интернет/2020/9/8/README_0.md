@@ -20,8 +20,7 @@ PSD Codec позволяет напрямую просматривать фай�
 ```bash
 magnet:?xt=urn:btih:F35979DCEBA07520BF5FBFEA8AA7D4BB660FF173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

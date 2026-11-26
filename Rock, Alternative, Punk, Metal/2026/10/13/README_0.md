@@ -22,8 +22,7 @@ Sheryl Crow - Pick You Up (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop 
 ```bash
 magnet:?xt=urn:btih:BA489BBF0534B54384A1AB475C8818FA398EADAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

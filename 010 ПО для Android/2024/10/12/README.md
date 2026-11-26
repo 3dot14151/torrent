@@ -19,8 +19,7 @@ VivaVideo - это простой в использовании видеоред
 ```bash
 magnet:?xt=urn:btih:BA5E7AC0C39D8117FE702910C6AE8121223F340F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PowerDirector – Video Editor v14.5.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:97B65A71529A4A7372B9A37157E0D80762C8B474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:AF8782C2376401E7BCA69A49D21C2F63BE7259DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ MiHome v9.8.700 Mod by Vevs [Ru]
 ```bash
 magnet:?xt=urn:btih:D5F66F57F76194DBA72CAB73E4CBFA4548980D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:5406808FAB868BBE8A10879578F4E570348EA3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 ```bash
 magnet:?xt=urn:btih:CE2E7ECBFEC55CB3D8F09A48D6050683C18DF80E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

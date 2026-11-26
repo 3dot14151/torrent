@@ -19,8 +19,7 @@ Discovery: Через червоточину с Морганом Фримено�
 ```bash
 magnet:?xt=urn:btih:BC06F7F1D066F6ED4BA6AB1918385C4B73970671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Johnny Smith - Kaleidoscope (2010) [FLAC|Lossless]<Bop>
 ```bash
 magnet:?xt=urn:btih:EAD2078A25490752E9DAC25BFE1A970C8847E108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1EDFF4E46C525C39A24D9B8DE4D6B31D9BBCEB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Totem Obscura Vs. Acylum - Forgotten Time (LP) (2013) [FLAC|Lossless]<Industrial
 ```bash
 magnet:?xt=urn:btih:008A9AF96BB2592689B8193250542C96D6649E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ NirLauncher Package - это пакет из 179 небольших утилит
 ```bash
 magnet:?xt=urn:btih:70BD5800F0545A43AEA6ED231D1631E4B572BDB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4431C60D635D5916E7A87EDDE29F483C4A3A499A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ VA - Новинки сезона от русского шансона. Vol.24 (2
 ```bash
 magnet:?xt=urn:btih:E6D7D4795998E57C8B0474E6C0F9B6E39406983A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Vargas Blues Band - Heavy City Blues (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:260A2B4ED64E7C11E1B6DC4357AD6F546A2698CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ Mighty Mo Rodgers - Black Paris Blues (2004) [FLAC|Lossless]<Contemporary Blues>
 ```bash
 magnet:?xt=urn:btih:E70C5D9FFEE51302B2CE48354459021F3E5B8032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ VA - Portrait (Mixed By Richard Durand) (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:0E9D6A2299FA79ADEBD39C052221C504458DF33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Peter Van Hoesen - Life Performance (2013) [FLAC|Lossless]<Electronic, Techno>
 ```bash
 magnet:?xt=urn:btih:EA498CFC1CBFECDEB8702E9DC32BABA4E3AA7DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ VA - Portrait (Mixed By Richard Durand) (2013) [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:12A5BD852241EDEB9AF8E5C7F401B9E7FC75DEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA2EC3D08BE110A5044D81C868DE5E5AA4781685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE9FC6418567A442EFAE5BD960F7DAD68A858DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92E5C8EC239DBBA5012FEA74A6154106F89569C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4B2657D981FFFED80A5FC7951E60745ED085DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ Wind Of Buri - Moments Of Life (Vocal - Chill Mix) (2013) [MP3|320 кб/с]<Chil
 ```bash
 magnet:?xt=urn:btih:9D5758A2A163147F4180381C766EF480D17A00A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88A776388959BEA39FB0E65B073B4BFF7C198EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBCB8785021CBD11ABFAB9DDF703FA4BEA483A20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2316724CD6845B8B3C6D269480E28F9DEA97F216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E3DF009843FA1F2D369EE981DF93D7E5BE8D988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CA2CB3FD75ECD8A9639FC78FDB29DBB2A899F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ VA - Adrian & Raz - Best of Vocal Trance 2013 Vol. 2 (2013) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:7B2C01F04CDC385CABA0EB4748945605A2B20ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +726,7 @@ VA - Зажигательная дискотека Снегурочки и Де�
 ```bash
 magnet:?xt=urn:btih:8CE629DFB566E5DF2A6E694B1CE89A8465EC1B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ VA - Armin van Buuren - A State Of Trance Radio Top 20 - December (2013) [MP3|32
 ```bash
 magnet:?xt=urn:btih:62EC6AD77FC647E0CFF0D5C0DD0484EA5CB06627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

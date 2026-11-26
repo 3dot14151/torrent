@@ -19,8 +19,7 @@ Medieval Lords: Build, Defend, Expand / Властители Средневек�
 ```bash
 magnet:?xt=urn:btih:385C2B4B130E3EE3531B1EC5E441BDD645949920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Freelancer [Ru/En] (RePack) 2003 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:0597B080C7097555812C6D0352E81737CB1E1898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

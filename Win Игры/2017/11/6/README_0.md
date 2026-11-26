@@ -19,8 +19,7 @@ Tokyo 42 — стилизованный изометрический шутер 
 ```bash
 magnet:?xt=urn:btih:211743D3FD0245BD49F6FEEA68CA23BE7BE6F350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FURIDASHI: Drift Cyber Sport - это симулятор автоспорта д
 ```bash
 magnet:?xt=urn:btih:A3BEB4DC556D4789F2032ED856E8DA72043AE4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FURIDASHI: Drift Cyber Sport - это симулятор автоспорта д
 ```bash
 magnet:?xt=urn:btih:1E9811B2458ECEA9EA1190676D90FCDB487C4811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

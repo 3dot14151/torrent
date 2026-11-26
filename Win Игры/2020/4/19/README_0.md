@@ -19,8 +19,7 @@ Family Mysteries 2: Echoes of Tomorrow (2020) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:F7344DEF1547A061872DFEC72F4F31DF2F1394D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nevertale 9: Hearthbridge Cabinet / Несказки 9: Шкаф семейст�
 ```bash
 magnet:?xt=urn:btih:C0D8BAABAF7FDA277D5D91453EB3EB70AB452CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Evil Within (2014) [Ru/Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A1E797DFE96143D68B7E09EE04102CFF1CD431FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

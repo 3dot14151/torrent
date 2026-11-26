@@ -19,8 +19,7 @@ Nox (2000) [Ru/En] (1.2b) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:64E9890F9C32DB9EB208835D10BDFC277EC54C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ArcSoft TotalMedia Theatre - универсальный видеопроигры
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nazareth - 26 альбомов (1971-2013) Remaster /2009-2013, SALVO Union Squa
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ F.E.A.R. Anthology (2005-2011) [Ru/En] RePack R.G. Механики
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ The Night of the Rabbit – это еще один красивый рисова
 ```bash
 magnet:?xt=urn:btih:EA7806F1A447ABDD3AC429F08CBE16FFB4F956A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ GRID 2 (2013) [Multi] (4 DLC) License RELOADED
 ```bash
 magnet:?xt=urn:btih:2159A75CE61113316631986D59DA9A11808B6638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ SamDrivers 13.7.3 - Сборник драйверов для Windows (DriverPack
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

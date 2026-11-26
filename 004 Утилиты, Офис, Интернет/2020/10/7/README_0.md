@@ -19,8 +19,7 @@ Mgosoft PDF To Image Converter - быстрая программа, котора
 ```bash
 magnet:?xt=urn:btih:240EDAE10809C117FE40B2C44476CC6EDD00359A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

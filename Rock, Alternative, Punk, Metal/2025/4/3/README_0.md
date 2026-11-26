@@ -22,8 +22,7 @@ Kiama - Sign Of IV (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5ABB0315F6F99DD561F3FCA98527C46BB1D485F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Metamorphosis - 6 Albums, 1 EP (2002-2021) [ MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:0A327DB23FF4C656FE944D6366B5AEE603DAB0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Uli Jon Roth & Electric Sun - Earthquake (1979) Remastered, 2023, Alpha Experium
 ```bash
 magnet:?xt=urn:btih:1663A3231A80C6D93BC3BD1F802B3D839F48499A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Arch Enemy - Blood Dynasty (2025) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:9432CA6E31EB4650770D792263C1622E2615C3B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Disc 4 - Reach For The Sky (1988)(   Читать дальше...   )Жанр: H
 ```bash
 magnet:?xt=urn:btih:7F8F41767AA52F6DC2DB620AEBD85AD10765B221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ FM - Surveillance (1979) SHM-CD, Japan Edition /2013/ [FLAC|Lossless]<Rock, Spac
 ```bash
 magnet:?xt=urn:btih:858962D3AFAD7F7AB6FF249CC9E225D7779E6040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Mercenary - Through Our Darkest Days (2013) [MP3|320 кб/с]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:DE650BD6A479D163A480F07E363EAE23CE5A7146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Karnivool - 3 Альбома (2005-2013) [FLAC|Lossless]<Alt.Metal | Progressive
 ```bash
 magnet:?xt=urn:btih:CAA33C16D61CC55CE8C394F1C7816E0B79704E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Franz Ferdinand - Tonight: Franz Ferdinand (2009) [FLAC|950]<Indie Rock, Post-Pu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F1E72F556B12199627DE217D8B4B425B0E18420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

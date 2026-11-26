@@ -21,8 +21,7 @@ Traveler - Prequel To Madness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:85FE3E92A7526D7112A3C58B4C86E3ACC83FF2CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Dark Fortress — немецкая блэк-метал группа из Лан�
 ```bash
 magnet:?xt=urn:btih:9DC6FED9E0C0017D71079E72D05B507781E0DE4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Video Converter X2 имеет встроенные шаблоны формато
 ```bash
 magnet:?xt=urn:btih:5CBF71BA9F17DD18BE0CBA8F5231782EA878B1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ MGMT - Loss of Life (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie, Psychedel
 ```bash
 magnet:?xt=urn:btih:E3D5CC2910B70AFAC7868A8925DB63EB73196A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ A4 - Lifeless Irony (Demo 1990)(   Читать дальше...   )Жанр: Thr
 ```bash
 magnet:?xt=urn:btih:30F0149CFF692D5C6EBBAE46EE101C42F615E2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Marian McPartland - At The Hickory House (1955) 1992, Jasmine Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:07034EC6619652410D9079CFC30AB4C2C9A7F8EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Dissolving of Prodigy - Lamentations of Innocents (1995) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:87E19648363DBE3E11CFBB609BFB1BFDE9332AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

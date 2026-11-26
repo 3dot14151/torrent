@@ -19,8 +19,7 @@ Daydream: Forgotten Sorrow (2023) [Ru/Multi] (1.2.6) License GOG
 ```bash
 magnet:?xt=urn:btih:BAF13A97A8450EBF5CB9E5C9F63327A79EC31DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Layers of Fear (2023) [Ru/Multi] (1.2.2.rb95581) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7BFD1350B98AC89AF05FDF5355CCDFD83F775A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Undead Horde (2019) [Ru/Multi] (1.2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:08C4E2B167D37AB86E4DAD89BE16ACA046872E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Remains (2021) [Ru/Multi] (0.50x0297a) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:13D1428A5BC2F7D746351E0BCAB5E537C6625C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dr. Chatelet: Faith 神医 (2022) [Multi] (1.0.25) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:5E5C3404C9DA6D9EA7B378D88A555B7FC552FBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C88295A086D94E99268C17A05580B81983827370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Neon Chrome (2016) [Ru/Multi] (1.1.12/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:70FDDCB592A2BC7B2CAB27FCB7A9405B101E6255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:EFE09F7AA01B3B386FE540C17676D9E2C767292E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Fireball Wizard - это приключения в Колдунии, волше�
 ```bash
 magnet:?xt=urn:btih:5BFCD6491EECAD4D5385ABD7CC719DB0F1493E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Undead Horde 2: Necropolis - это затягивающая с первых м�
 ```bash
 magnet:?xt=urn:btih:8CA2AEC4B2DB76C96FAA9866EB4B8DFDE58EC5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Yakuza 6: The Song of Life (2021) [Multi] (1.009a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FC0690BF8E51A8CB11999D548205D50DABC85316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Farworld Pioneers (2023) [Ru/Multi] (1.0.0) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:565391E828C18C88659E724465BF2BF1E1506D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

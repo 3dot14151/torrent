@@ -22,8 +22,7 @@ B1. Jabdah (Long Version)(   Читать дальше...   )Жанр: Italo-Dis
 ```bash
 magnet:?xt=urn:btih:10BEC0F31F573A2C030CB9BA579C1DB5952FEDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

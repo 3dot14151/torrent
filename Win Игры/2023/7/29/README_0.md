@@ -20,8 +20,7 @@ Bloodhound (2023) [Ru/Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:439E1237A3549E911F9F0F7E18E71031E85CFEC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:1930E422B0B62B669C5B1635B1839A6A92E5E3DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Five Nights at Freddy’s: Security Breach - очередной эпизод в 
 ```bash
 magnet:?xt=urn:btih:F1F8D6D7C695412545B57C5D600CBB3AA7BBB9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

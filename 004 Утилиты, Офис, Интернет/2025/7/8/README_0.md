@@ -19,8 +19,7 @@ SysGauge - это утилита для мониторинга системы и
 ```bash
 magnet:?xt=urn:btih:7BE59F945D676BC9E082A5C88A0292DA9D0E322C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Everything – это поисковый движок для Windows. Everything
 ```bash
 magnet:?xt=urn:btih:B310892585CE11117783756B4E91C2C6A2FF95DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98F88C86F826B6E78B37E36512A2E3688D6E3C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fast Screen Recorder — это программное обеспечение д
 ```bash
 magnet:?xt=urn:btih:7CB4AB2E807BF3A62F8163EBE3881F206985621E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

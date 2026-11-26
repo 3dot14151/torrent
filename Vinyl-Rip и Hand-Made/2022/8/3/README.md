@@ -22,8 +22,7 @@ Thunderstone — финская англоязычная пауэр-метал-�
 ```bash
 magnet:?xt=urn:btih:2BFC7CA10275ED994DED6D706FF5CB9928819E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side 1:
 ```bash
 magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D080BC1187730DE3931B2E38C72E2E47942B736B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

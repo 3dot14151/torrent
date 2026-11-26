@@ -19,8 +19,7 @@ Okaeri — японская игра ужасов о девочке из сре�
 ```bash
 magnet:?xt=urn:btih:F4C9CE9D3866F93BEA49C93D4C1ED135E7F7B365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WRC 8 FIA World Rally Championship (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:6B21B9EE2F0DE0923967FBE29AF51B196290E99C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Viking Brothers 6 / Братья викинги 6 (2019) [Ru] (1.0) Unofficial [
 ```bash
 magnet:?xt=urn:btih:6C48391EB41A0DC6475622A67FC3F850541D1C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Automobilista (2016) [Multi] (1.5.24/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:A251D5E5C0B046AC9A0D27883DFA8B6D32A989FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

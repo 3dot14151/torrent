@@ -19,8 +19,7 @@ Prison Princess (2020) [Multi] (1.1) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:FA3998D02244B067216938E87A68D2E264B9DE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

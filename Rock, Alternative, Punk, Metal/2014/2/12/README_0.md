@@ -28,8 +28,7 @@ Checkmate - Immanence (2013) [MP3|320 кб/с]<Groove Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:B745497D0EE5817CC93F4A3BB65E0277D728415A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Sargant Fury - Little Fish (1993) [APE|Lossless]<Hard 'n' Heavy>
 ```bash
 magnet:?xt=urn:btih:63234EBBF42998B9C5E4C877F6F7BE466C43E86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Woods of Desolation - As the Stars (2014) [MP3|320 кб/с]<Atmospheric Black Me
 ```bash
 magnet:?xt=urn:btih:D58EBD5B2EE79B964D1513F46362AF920078D6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Lyfthrasyr - The Engineered Flesh (2013) Limited Edition [FLAC|Lossless]<Industr
 ```bash
 magnet:?xt=urn:btih:970EDBE7F7A06456FFE23E055F9CDD429F2C08C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Guardian - Miracle Mile (1992) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E538B91A6F74A74702011A22446A6E7AB0BB25FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Cynic - Kindly Bent to Free Us (2014) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:6AB4973C2B9E29383F5C1B4CEE4641A83A969159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B306673D4E2B6BCAB71FCFE8B10EE464FDA605AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Blue Murder - Nothin' But Trouble (1993) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A77F9136CB73BFD02815B7FCD8AF3CED87ED66A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9325748C829C6E01C4677A7ED53858B0E3DF317C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Thin Lizzy - The Japanese Compilation Album (1980) /1994, Vertigo/ [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:94B5BF67EC56C543B081EE55E615C5D6A6B88B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

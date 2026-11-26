@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6BABACB3B4AB67F46F47242DEF0601A53A7DA968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Qiyu Swordfish Browser - китайский браузер «Рыба-меч» �
 ```bash
 magnet:?xt=urn:btih:FD4B8272CB5DE547320589510069693E2276B1C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Entwine - 7 альбомов (1999-2015) [MP3|320 кб/с] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4EBBCFD9A8B92E94CBDEA06F406EFEB59113FC50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Gregor Hilden - In Phase (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric B
 ```bash
 magnet:?xt=urn:btih:4FB91DE822DAB9FDFA9591B8C3FF61C074C40198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - 100 Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:95E62337C3726E1D93FAC3E425672B14491EF398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13A51542F93F321BF6403AD3490F389E6041740E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Top 100 EDM USA- March Party (2016) [MP3|128-320 кб/с] <Club, Electro, D
 ```bash
 magnet:?xt=urn:btih:D1E2E6DD060D775575992B7F9105A8A5665699BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - The Best Of Retro Promenade (2016) Volume I [OGG|389-557 кб/с] <Retro Sy
 ```bash
 magnet:?xt=urn:btih:E06E968726B8B42118B314999DE55103EBAF22BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8FD94472D196F595CEAE1F795E5EE18C939261F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:290F2ABB6828EBA88E4D5D8C8F9E1D920E2A55B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Dante - When We Were Beautiful (2016) [MP3|320 кб/с] < Metal>
 ```bash
 magnet:?xt=urn:btih:131894F90B5B29F36EB1634B868E81F3D83E4545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Roots Manuva - Bleeds (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:71AFCBC166387E9AC5883EA3B4B3CDBFC0DC90E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ VA - Easter Erotic Jazz Lounge: Dark Sexappeal Desires for Intimate Chill Obsess
 ```bash
 magnet:?xt=urn:btih:F7D9CFA8008BCE8E743CB43225B344B88C0EC666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Maxthon Cloud Browser 4.9.2.400 Beta + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:021B2D577FA289BB8A0FCCCEDBFCDC84C07B35E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40D083493FD20FCDD42E0D64E2B70812FB657836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Yummy FTP - “вкусный клиент” для ФТП
 ```bash
 magnet:?xt=urn:btih:A34D1E6C7BCDDC3488A7EA10C299AA03B7F371A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ xScope, отличный инструмент для работы с экран�
 ```bash
 magnet:?xt=urn:btih:AA156CE5D4DD51F912A4072D01D4EB6F35A77CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ VA - Italo and Space Disco (2016) [MP3|320 кб/с] <Italo Disco, Synthpop>
 ```bash
 magnet:?xt=urn:btih:17FB9C8557B55ABC447BEA9CF0FB400AF63C0DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C86330A0EF61FD88D7AA529E165EEDC31E8D0DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D7D39568A0E150920B220B6E52355B89308530D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ AnyMP4 Blu-ray Ripper - простой в использовании инстр�
 ```bash
 magnet:?xt=urn:btih:DAC787832F5C2BBD80D8EA53FBFB094932F8224D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DDBD4C6FD0D671079570684F5F84FBAD1D1F5A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ VA - Jazz Loungebar Vol.5 - A Smooth & Jazzy Lounge Trip (2016) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:5EF7350B310B1572300D13D3DD4E513907CE7444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:80F5DD918CB7F390EBB3118034F945497AA65164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ AnyMP4 DVD Converter - удобный и простой в работе конв
 ```bash
 magnet:?xt=urn:btih:C9A2F0FCEF420A574B1583531B8E4CB2C5D1A710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

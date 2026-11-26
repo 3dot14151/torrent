@@ -28,8 +28,7 @@ VA - Антология киношлягера - Мюзиклы (1996) [FLAC 2.0
 ```bash
 magnet:?xt=urn:btih:09A7D5F870969461174D0887F503BB9AC4CFBA6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

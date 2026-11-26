@@ -22,8 +22,7 @@ Killers - Danger de vie (1986) Reissued, 1997 [APE|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:757B0B0CFB7399BA4C6DA55EEE32CFB95EF9E3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Herman Chittison - 1944 - 1945 (1998) Classics [FLAC|Lossless|tracks + .cue] <St
 ```bash
 magnet:?xt=urn:btih:82DA57329FC66C8F3356816D4448D6624F666532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Wreck-Defy - Fragments of Anger (2017) [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:76A80933DB47AB616DFD51B4AE8B966218BD466D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Testor - Animal Killstinct (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:1138B45800A1D9E0834AEC9C5904A286E9ACCB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Elessar - Dark Desires (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:85733DD73EE73C10EB8FEF6C8B78AAA62281A8AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Imagika - And So It Burns (2001) [APE|Lossless|image + .cue] <Power Metal, Thras
 ```bash
 magnet:?xt=urn:btih:5B7C63A09ECA2D3DB1D1BE682A0E4CCACF4ED1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Meliah Rage - Warrior (2014) [FLAC|Lossless|image + .cue] <Power Metal, Thrash M
 ```bash
 magnet:?xt=urn:btih:26798301527D17C423D2FC8E55DFEFA6894D923C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Voivod - The Nuclear Blast Recordings (2018) 2CD [FLAC|Lossless|image + .cue] <T
 ```bash
 magnet:?xt=urn:btih:5F400DE625B2CE3B6E3B21961C3AE118EF44E5B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Circles - The Last One (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:3CF0F3B8BD7A7246CF3B427F63E8E4F9EEBD4CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Selection 2018 (2018) [MP3|320 Kbps] <Progressive, Psychedelic, Trance>
 ```bash
 magnet:?xt=urn:btih:8506C183A3929925CF9D99FF15892030595B9135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Thinking of You: Soul Love Grooves (2018) [FLAC|Lossless|WEB-DL|tracks] <Ja
 ```bash
 magnet:?xt=urn:btih:23941E04093302F45C4BCC76EAF08A0F8CBF6541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Suanda Music Year Mix 2018 (Mixed by Roman Messer) (2018) [MP3|320 Kbps] <T
 ```bash
 magnet:?xt=urn:btih:BCCE79ED7CF2A8DE78F6CEE29E088DC7A72DB4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Phenomena - Innervision (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:DAB8704031CCBFF95800B612DFA8AED8007E0E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:236D4396A41653A06589188E1769A462F7B6BC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Side One:
 ```bash
 magnet:?xt=urn:btih:7CBCF76AFBA1CF33BC4DFA438A69B03F457F4233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Best of Dance and EDM (2018) [MP3|320 Kbps] <Dance, Electronic>
 ```bash
 magnet:?xt=urn:btih:9AB45E66B9E3160BE322CF8B5119C640344E2662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Outloud - Virtual Hero Society (2018) Japan [FLAC|Lossless|image + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:76C091F638E7E5919EC1C79E011C4C6BB4F4AA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ N'Draman Blintch - Cosmic Sounds (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul
 ```bash
 magnet:?xt=urn:btih:9107BF3449D498468C6B5B5590C9526BC6EA81F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - German Top 100 Single Charts 07.01.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:BB41AF1DD2B1ADCC58C74F0D2F626415A05FB994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2EC9C0DFA44C04F78C4AC4149B000A297A3BC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF7E5AFF827F94B7A31AF5C42FF1CE5C3A653C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ Enemy Inside - Phoenix (2018) Japan [FLAC|Lossless|image + .cue] <Dark Modern Me
 ```bash
 magnet:?xt=urn:btih:D5D998D4A184128E674822B0CFE40363DE748B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE4DD30818C9A79A738948E681CCA0070C471EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ Spider - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:EDBDC1B9F712F6CF2D6872426D8D194485E419BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ Kruger - Созвездия фар (2019) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:10273BCE030EFB6E0888700EA0DFCEBF139C1296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ Tom Hooker - No Time To Say Goodbye (2018) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:94CCB1E5F2681FDE7302FF854F8B9D1E795088D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

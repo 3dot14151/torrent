@@ -19,8 +19,7 @@ PDF Shaper Professional 13.8 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1146F91CA73B3F72CE3B6C937F052C0174469CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Win10 All Settings 2.0.4.35 (x64) Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F0087C272FEA682907FDB0F41136EB7A2E181966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

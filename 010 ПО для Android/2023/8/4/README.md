@@ -19,8 +19,7 @@ YMusic - YouTube Music Player & Downloader Mod by ANiK555 3.7.22.1156 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:93D242605CAEC6B226EA86A8A5ECA9C85D3E5421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:FDD48117FA8B62A556B7AA4E87C2A6FA0B77E395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ JavaScript, PHP и MySQL, форматирования Web-страниц при
 ```bash
 magnet:?xt=urn:btih:56A04C3EFC93221ABBCA100A5AA05E62CF25C41F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

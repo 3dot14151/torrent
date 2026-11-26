@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:066BB3F0ACE92DE0BBC3084CA19F421B720E80E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brand New - Discography 7 Releases (2001-2017) [FLAC|Lossless|tracks|tracks + .c
 ```bash
 magnet:?xt=urn:btih:7B11E53CF1209410EB96791D38D920F66ABA3D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Hatters - Forte & Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ska, Pun
 ```bash
 magnet:?xt=urn:btih:12F64B19535B141CFD2A45BFC6393E3DEAE5CE21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

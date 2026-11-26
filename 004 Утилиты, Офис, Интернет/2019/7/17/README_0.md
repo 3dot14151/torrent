@@ -19,8 +19,7 @@ Lighten Software PDF Converter OCR — это профессиональная �
 ```bash
 magnet:?xt=urn:btih:470EABE7D575EC7A7698ECC32961AA0D784C57A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

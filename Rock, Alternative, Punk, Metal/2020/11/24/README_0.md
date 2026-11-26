@@ -22,8 +22,7 @@ Mountaineer - Bloodletting (2020) [FLAC|Lossless|tracks + .cue] <Post Metal, Doo
 ```bash
 magnet:?xt=urn:btih:4EA57B7B5478AFC8558AA36621BC83C0217A97D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Communic - Hiding from the World (2020) [MP3|320 Kbps] <Progressive Metal, Power
 ```bash
 magnet:?xt=urn:btih:C25307BBC8CD6206977165EAC1F7B4B3A40E7050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Armored Saint - Punching The Sky (2020) [FLAC|Lossless|image + .cue] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:E4BDFB46D130C274AFFB59F334C5F87BFA9529F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Samurai Of Prog - Beyond The Wardrobe (2020) [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:2F5026BE9540FB3E3E31959C1F64E9CF3162C6C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ John Fogerty - Fogerty's Factory (2020) [FLAC|Lossless|image + .cue] <Country Ro
 ```bash
 magnet:?xt=urn:btih:3BF42A45CC11559B119225FB617D8639893E7A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rob Rock - Eyes Of Eternity (2003) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1B46B909A66E771FFD4F9BA7D2EC3D62F01EF364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

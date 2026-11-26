@@ -26,8 +26,7 @@ Fornost Arnor - 2 альбома (2009 - 2011) [FLAC|Lossless]<Progressive Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Attila - About That Life (2013) [MP3|320 кб/с]<Metalcore/Deathcore>
 ```bash
 magnet:?xt=urn:btih:2E6A233F3C5C6E8FBA8BCF20E8924429A7A4E060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

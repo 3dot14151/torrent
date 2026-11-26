@@ -22,8 +22,7 @@ Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродо
 ```bash
 magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
 ```bash
 magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

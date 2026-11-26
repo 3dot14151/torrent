@@ -19,8 +19,7 @@ Bleak Sword DX (2023) [Ru/Multi] (0.3072001) License GOG
 ```bash
 magnet:?xt=urn:btih:51B765B8A4561D7F114A94E8B1513EF1B5B7D784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Scarlet Nexus (2021) [Ru/Multi] (1.08/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E3730C959CBA41F6D398D6CE4881BF2FFFEA0080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Dragoness: Command of the Flame (2023) [Ru/Multi] (1.12) License GOG
 ```bash
 magnet:?xt=urn:btih:B66D3079D73761884A4CCB138AE40A5BC3A631CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

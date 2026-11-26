@@ -19,8 +19,7 @@ Queen's Tales 2: Sins of the Past (2015) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:2EB80CCD4F89946225EEED7B5D6DF8107571AC9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B393B942D7048682E91D75A5C5565B9BE27169B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ FIRE — это приключение-исследование с множес�
 ```bash
 magnet:?xt=urn:btih:7CA42DC860FC2727B62595150050C400444C16D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Dead Synchronicity: Tomorrow Comes Today (2015) [Ru/Multi] (1.0.6) Unofficial Fa
 ```bash
 magnet:?xt=urn:btih:57FC56972FA9E53AC942D59D818D99B0EB038877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

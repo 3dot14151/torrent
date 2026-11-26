@@ -19,8 +19,7 @@ Mars or Die! (2018) [Ru/Multi] (1.1.1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:3C16F472BE24E48B993866A448A3C56A28F1C623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SUPERHOT (2016) [Ru/Multi] (13.07.18) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8BD6F736E98E0A4BA1104AC60C14ADD56C1BFF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Signal From Tölva (2017) [En] (1.0.65) License GOG
 ```bash
 magnet:?xt=urn:btih:E647C262E41F9546137069671553A859EAD9B6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

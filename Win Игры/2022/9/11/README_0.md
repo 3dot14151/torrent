@@ -19,8 +19,7 @@ The Imperial Gatekeeper (2022) [En] (2/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:84B71781FF65157571055093EC317D63A2D29712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Baldur's Gate: Dark Alliance II (2022) [Multi] (1.0.4.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5C9C9AF420B20B92CE308F4F88B9CE8FCFC067AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

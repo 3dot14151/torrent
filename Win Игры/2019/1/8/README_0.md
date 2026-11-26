@@ -19,8 +19,7 @@ COLINA: Legacy – ужастик с элементами головоломки
 ```bash
 magnet:?xt=urn:btih:FF5131F01C50AF3887D5481586DB8FCE2AA5FDD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wasteland 2 является прямым продолжением игры 1988
 ```bash
 magnet:?xt=urn:btih:9A080D023A3A47E62D15E19052C38F2D04AE0E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

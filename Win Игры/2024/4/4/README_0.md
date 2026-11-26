@@ -19,8 +19,7 @@ The Legend of Heroes: Trails into Reverie является очередным п
 ```bash
 magnet:?xt=urn:btih:6B2E248EE3C99268E9F3F01B22D69520EC370FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Holy Maid Academy (2024) [Multi] (1.0.0a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:CFD64D7FBC96DD5E833CF9107C303F626C07022E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6429/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3CCBB373AC40FAB5AD48ADE3BA28CAC5B78F1F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

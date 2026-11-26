@@ -22,8 +22,7 @@ Alestorm - The Thunderfist Chronicles (2025) [APE|Lossless|image + .cue] <Metal>
 ```bash
 magnet:?xt=urn:btih:5025B42AA4159745F91DD1D24B705746D55F23F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

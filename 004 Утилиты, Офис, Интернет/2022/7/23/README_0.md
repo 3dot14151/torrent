@@ -19,8 +19,7 @@ CleverPrint 8.6.39690 [Multi]
 ```bash
 magnet:?xt=urn:btih:1381EECD0DC69696DDFC3BD664FE8D1E91318702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

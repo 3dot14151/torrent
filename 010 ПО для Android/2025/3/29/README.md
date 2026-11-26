@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:815E3BC5BBE895A658B1397878358F9D5CA57F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B04D6FFC11172E30130FD2C76848F1CB66A745C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Tone Generator PRO 3.78 Mod by Alex.Strannik [En]
 ```bash
 magnet:?xt=urn:btih:50BA9BBDCCDA3ECBB14157BC6B0E704EF53D679B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

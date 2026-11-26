@@ -22,8 +22,7 @@ Islander - Power Under Control (2016) [FLAC|Lossless|image + .cue] <Alt.Metal, R
 ```bash
 magnet:?xt=urn:btih:E9ED0C2F180041BEE03CD55CCF9218BE45B19F62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Moreland & Arbuckle - Promised Land Or Bust (2016) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:DA6E603D19B00570DE56121227A96662EBEE702E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jim Suhler & Monkey Beat - Live at the Kessler (2016) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:0C36617F4FF7B2EB3F638BE81838B1DBB72152AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Healing - Elevate (2016) EP [FLAC|Lossless|tracks + .cue] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:8EA281D1055F0B52FB08FEEDD46C9769F75B6419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Heavenwood - The Tarot Of The Bohemians [Pt.1] (2016) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:7A69B1BF95A5B9E5528CBB51A3C469661E438F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Now Or Never - II (2016) Jpanase Edition [FLAC|Lossless|image + .cue] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:FDBC3987300124978CCAB2EE0705D20380B1CBB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sinister - Dark Memorials (2015) Limited Edition [FLAC|Lossless|image + .cue] <D
 ```bash
 magnet:?xt=urn:btih:02FC8E35BC65C40835CFAD0BE7CD7F1B3C3C4191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Open Mind - The Open Mind (1969) Reissue, 2006, Second Battle [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:46217F78BFAB8F90C2329C90BE4A68AAE7E12DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Robin George and Dangerous Music - Painful Kiss (2016) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:1FA4516ACC9C4D7610B4DCA80E864409F424EC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Russian Circles - Guidance (2016) [FLAC|Lossless|tracks + .cue] <Post-Rock, Post
 ```bash
 magnet:?xt=urn:btih:2AB967831F2645C5BFCB3662C3FD02FB65D05D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Twisted Sister - Metal Meltdown (2016) Live [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:9C7C6EDDCDB96F207B7EE0133FA35A517736889E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

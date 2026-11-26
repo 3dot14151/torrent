@@ -19,8 +19,7 @@ Cool PDF Reader 3.1.2.288 RePack by Irshat [Ru]
 ```bash
 magnet:?xt=urn:btih:DEFF88EA25478CB3700DB34DC6C9EAD2AB3AFC05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

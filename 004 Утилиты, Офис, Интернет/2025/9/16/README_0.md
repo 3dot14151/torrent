@@ -19,8 +19,7 @@ SoftMaker Office Professional 2024 rev. S1228.0906 RePack (& portable) by KpoJIu
 ```bash
 magnet:?xt=urn:btih:11E907D406C58D72192CE9F7DA27D57CD67ABC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:3803F69966D837F90580C7CA4CA80C92FFACF539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Q-Dir - это отличный альтернативный файловый м
 ```bash
 magnet:?xt=urn:btih:BF623EFCFE9329DFFEEE5849452340FF4E1659E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:8FB161E57C0BC3E2981E7FCFBE85A77FC16011C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

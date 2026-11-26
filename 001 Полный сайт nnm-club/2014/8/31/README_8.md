@@ -28,8 +28,7 @@ George Jones - The Grand Tour (1996) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:4E4ADFE7BC55E3A3FB28D6BF7CD5DA7C939EE8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Deep & Dark Dubstep Vol.5 (2014) [MP3|320 кб/с]<Deep Dubstep, Dark Dubst
 ```bash
 magnet:?xt=urn:btih:F13B0DBB4603D99BBA2BBBFEA377044DA8666D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Rubaja and Hernandez - High Plateaux (1987) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:CF99B04CED9D8AA0715D2902C961127E3B8ADBE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Cahalen Morrison & Country Hammer - The Flower Of Muscle Shoals (2014) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:62ADC6BAEEA100E42F771250C3C90CFA984A7016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Alterphase - Severem Retrixia (2013) [FLAC|Lossless|WEB-DL]<IDM, Experimental, G
 ```bash
 magnet:?xt=urn:btih:F7625FA1E7532B670CD819DE572DCF7D5DCFF5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Red Rum - With Gods By Our Side (2013) EP [MP3|320 кб/с]<Folk Metal, Epic Met
 ```bash
 magnet:?xt=urn:btih:868E0BDF61BCEFB34AC357480CF3B942499A4FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Crowe, Lawson & Williams - Standing Tall And Tough (2014) [MP3|320 кб/с]<Coun
 ```bash
 magnet:?xt=urn:btih:293667E0C39138683DABF966A74D2C5EBF286C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:767A18C9AA60E94398A15869648A6A1A7631EFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AABCE39E2AC3920C0FFA990E7A1A42C77A51F2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:403C959FFDBC77B2A2825F2D68EC05BC912C4D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ VA - Paris La Nuit - Chillin Lounge Selection (2014) [MP3|320 кб/с]<Lounge, C
 ```bash
 magnet:?xt=urn:btih:FA633DF94D44B48A5378D8521F5AB3FA62345C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ John Huling - Spiritlands (1994) [MP3|320 кб/с]<New age, Meditative, Native a
 ```bash
 magnet:?xt=urn:btih:0EA997875EAE8A79261A483242934E101B00395D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDD62A1F33E32CE5E98FFF6A47C9E9B21D76857F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +490,7 @@ Answer Code Request - Code (2014) [FLAC|Lossless|WEB-DL] <Techno, Tech House>
 ```bash
 magnet:?xt=urn:btih:02A9D5020FF7A7B8287D087F34DA1364C284853F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +523,7 @@ Fallujah - The Flesh Prevails (2014) [FLAC|Lossless]<Technical Death/Progressive
 ```bash
 magnet:?xt=urn:btih:CE37171B07DB2C93BA56DA4E6F9ACCED345575A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF0EA8464363CE8D752ABAE8F24C10E13CFF3CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +580,7 @@ Until We Last - Earthgazing EP (2014) [MP3|320 кб/с]<Post Rock, Ambient>
 ```bash
 magnet:?xt=urn:btih:41CA6492FDCFCEA7E011CEEDFD0F77DBFA42A355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D05E980DD59B2A7AE539E02AAA5DC3526442F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F3C77F0EF9B1FB9E3CA7516D0D687E592E7554D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:610B1545844ED420212FCDBF5D2D35978F3359BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +703,7 @@ Pink Floyd - Three Rivers Stadium, Pittsburgh, PA (2009) [MP3|320 кб/с]<Progr
 ```bash
 magnet:?xt=urn:btih:D0A0E9A3841268E5BAA11E1E22BB56E25596AA0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +731,7 @@ Prometheus - 3 альбома (2004-2010) [MP3|320 кб/с]<PsyTrance>
 ```bash
 magnet:?xt=urn:btih:26E09386F36CB2C5888D698C48498C3CE229DF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +764,7 @@ Bombs of Hades - Atomic Temples (2014) [FLAC|Lossless]<Death Metal / Crust>
 ```bash
 magnet:?xt=urn:btih:D021BDE30FBA35FF46D2D38DA6946660C9C995A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EB3A91C2782BF0CF8002573E32F1B80C32EDBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

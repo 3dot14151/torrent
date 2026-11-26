@@ -19,8 +19,7 @@ AI ChatBot AI Friend Generator v3.0.5.6 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2FD3F31D69BE1175747265E10FB40DE627ACA31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 ```bash
 magnet:?xt=urn:btih:9066AB74A79EBB83743C39B7BBAB8CC144198443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:ACDBE192FE17420C452C47F48F6F2A9194A8C9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ ToonMe v0.7.3 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:24BB06867C6EC3AE827DE56CFB24075D8DC729CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Psiphon Pro дает вам беспрецедентный доступ к ва�
 ```bash
 magnet:?xt=urn:btih:B28CD93765FCA9B38BCA9CE70C97FAFC685AFA60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Easy Voice Recorder Pro ваш ежедневный компаньон для з
 ```bash
 magnet:?xt=urn:btih:49ACB896D0D36D3DC76088B231E49C1F9EE834BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

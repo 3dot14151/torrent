@@ -20,8 +20,7 @@ Dreamkiller (2009) [Ru/En] (1.0 Upd1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:9743A638E503EE7177D979195CD41EE84B9DA431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Colin McRae Rally переносит захватывающую атмосфер
 ```bash
 magnet:?xt=urn:btih:BEF3DC9639091881552387A4EEF4BCDB53BBC884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ The Chronicles of Riddick: Assault on Dark Athena (2009) [Ru/En] (1.01) Repack R
 ```bash
 magnet:?xt=urn:btih:87A768D0958D8A8E26FFE8EC7B0B6F31EA70117E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

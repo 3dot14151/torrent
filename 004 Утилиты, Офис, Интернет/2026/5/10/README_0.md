@@ -19,8 +19,7 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:F28BDF426C8EA7C639DC39DFE60D7C6896084184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MAX Desktop 26.15.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1363BAD8F2DA3ECDDEC3F3A5FBA1CCC4483D7565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ DesktopNoteOK – простая портативная программа дл�
 ```bash
 magnet:?xt=urn:btih:F093784D2967E97391DE5B4C43EBAADD6AFAE17D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Desktop.Calendar.Tray.OK 4.51 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1D7FDDF289DCDFCDDDB2A16E64BA42F99B8B057E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ QuickTextPaste 9.51 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:20BC6F2D1A2679FEFBD617AA29888D37198866C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Print.Test.Page.OK - это альтернативная портативная 
 ```bash
 magnet:?xt=urn:btih:1FBC253B009DDB500F239683F1E92CBBFC4BB325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ QuickMemoryTestOK - небольшая, но эффективная утилит
 ```bash
 magnet:?xt=urn:btih:41059E3775E72A277781BBCAE9CAD7C016BA2D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:C336104D43A17A64CA36D1446FB918BF8A558CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Stardock Groupy 2 — это удобная утилита для Windows, ко�
 ```bash
 magnet:?xt=urn:btih:98424E9343EA601B2EE25E214B691D40E1D70C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Zen Browser — это новый, ориентированный на конф�
 ```bash
 magnet:?xt=urn:btih:4B37318BB3BF8F774C6286CC25C71F0EBBA32DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ GiliSoft Copy Protect — программа для защиты докумен�
 ```bash
 magnet:?xt=urn:btih:0287E9DA45417F96C1345D78EFC59FE8CC66CAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ UPDF — это современный PDF-редактор с поддержк�
 ```bash
 magnet:?xt=urn:btih:11DB28E24F972004726A6B1DE98B57693C82081C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:BC591AB1ADEDDCA780DCF3212D303CCB4A1D797D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:2EDA8077F4759C145F344312718C6FE4CF3810C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ The Supermium Browser — современный браузер на базе Ch
 ```bash
 magnet:?xt=urn:btih:BBC48F25D269AAC82D2355E1B9C2A5758C6FC713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Vim отличается исключительной стабильностью
 ```bash
 magnet:?xt=urn:btih:7A5749EF639368A4AF4AB2D8413C05F451D3CC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ EmEditor использует различные оптимизации проц
 ```bash
 magnet:?xt=urn:btih:E234E3B810C9730C207CC6844DDC10D2C9D9EEAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ Coodesker — удобная программа для организации р
 ```bash
 magnet:?xt=urn:btih:400BCD5E2A7EA23FCAEDE17D0688865B4287A72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

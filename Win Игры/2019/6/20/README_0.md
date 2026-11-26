@@ -19,8 +19,7 @@ The Unseen Fears 4: Stories Untold (2019) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:C29C6AF5B4992975D122706C85E59A7C8C010022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SteamWorld Quest – это ролевая карточная игра, кото
 ```bash
 magnet:?xt=urn:btih:817719A79C95752CA8EB76252E53BF5E33C8D857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

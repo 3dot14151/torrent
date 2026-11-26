@@ -22,8 +22,7 @@ Ocean Grove - Up In The Air Forever (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Met
 ```bash
 magnet:?xt=urn:btih:CA30DECB2EF68B6F155E1248AA07088D7C7B912D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Drinking Pumpkins - 2 Albums, 2 Singles (2018-2022) [MP3|320 Kbps] <Celtic Punk,
 ```bash
 magnet:?xt=urn:btih:975D76136F082EEB260BC6D4ED949434451FBF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2992E50A63F92665E85D815D479D439E147FE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Riot Act - Closer To The Flame (2022) 2CD Digipack, Global Rock Records  [FLAC|L
 ```bash
 magnet:?xt=urn:btih:D2EAD4FAF7352F2B56F1C83C98EA857A19140528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Destruction - Diabolical (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:77073F59F9784E386D6BE1FA3DEC8C70B803078F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Mirror - The Day Bastard Leaders Die (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <He
 ```bash
 magnet:?xt=urn:btih:CBFA330431D181E269DB4A5F881CBD1ED3AA814A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72B5F58C7F8790496BE2AFE00A681074FC655F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Arjen Anthony Lucassen's Star One - Revel In Time (2022) Deluxe Edition, 3CD [FL
 ```bash
 magnet:?xt=urn:btih:62EC74AA4E3E89F9B96254EC10BC863EF8D5B469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Kill The Lights - The Sinner (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:0AC0AE3A65DF4FA612CC44F57B6C8B30E99B5138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Lovell's Blade - Deadly Nightshade (2022) [FLAC|Lossless|image + .cue] <NWOBHM, 
 ```bash
 magnet:?xt=urn:btih:746AC473CB3ACCAFA190A0A0F2FB62D4E931B577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Joe Satriani - The Elephants of Mars (2022) [FLAC|Lossless|image + .cue] <Instru
 ```bash
 magnet:?xt=urn:btih:DA34C3F55D3023DDF9AF522925C22849F3350A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Simon & Garfunkel - The Hit Collection Part 1 (1990) [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:8FC9E5BFD46394C4A10AD8BE0A7CAF2F5C212BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Celestial Season - Solar Lovers (1995) Remaster, 2020, Burning World Records [FL
 ```bash
 magnet:?xt=urn:btih:4E631DEBFAAF951A962B1AB189D638A9C5ABA337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Celestial Season - Forever Scarlet Passion (1993) Remaster, 2020, Burning World 
 ```bash
 magnet:?xt=urn:btih:7EE8A84DC1A340044613E9725642F9C44E2B900A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ K.S.V. - Цикл (2021) [MP3|320 Kbps] <Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:E73FA782A3E75BFBE032A981D1E86FC4B9D7424E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ The Curse Within - Heartless (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Me
 ```bash
 magnet:?xt=urn:btih:7C394790655B0420E25AC4A42F7CBDEF8EFD66F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Rainbow - The Very Best Of Rainbow (1997) [APE|Lossless|image + .cue] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:F840C7B777FCA94D276343BECD28187272C21437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

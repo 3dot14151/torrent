@@ -19,8 +19,7 @@ Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack Necros [Komplete Edition]
 ```bash
 magnet:?xt=urn:btih:8052F931CDC693B03AAA862CBC920A4F2AE57ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mars First Logistics (2025) [Ru/Multi] (Build 20566341) Repack Necros
 ```bash
 magnet:?xt=urn:btih:6736A258A4C10FAB49C1AA61CD73700B7CEE69F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Avernum 4 Greed and Glory - мрачное фэнтезийное приключ
 ```bash
 magnet:?xt=urn:btih:74D0D3D6426D58464353C1E3CD91C531C8F04CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bleak Haven - это игра в жанре survival horror, в которой �
 ```bash
 magnet:?xt=urn:btih:5031B8EB8A9FE614FCBEE1E17668C0DE624D8B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C786A907B2E6FAC47D7197D09AC176EEA9DB0F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Wreckreation (2025) [Ru/Multi] (0.9c) License GOG
 ```bash
 magnet:?xt=urn:btih:E779AA92977C4473E70214CA91D46845B6D4A6C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Resident Evil  рассказывает всю правду о происшес�
 ```bash
 magnet:?xt=urn:btih:56E255919F798606A775E0D6ED29924FACEFCCD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Resident Evil (Biohazard) HD Remaster (2020) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B54EBB633B7E5E8449E59F3EEEA9E8999F6EBACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Outbreak Island (2025) [Ru/Multi] (Build 20575035/dlc) Repack Other s [Supporter
 ```bash
 magnet:?xt=urn:btih:008AAFAE4A8C1534D5C5C66D0BBF878E003E218B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Lessaria - это наследник Majesty. Мы возвращаем на с�
 ```bash
 magnet:?xt=urn:btih:C5211AFCF242634A982C50077686DFB4432CEBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ CUFFBUST (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:53635FC7EB6020DCABDB38E048F89453E2DB52DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Keeper (2025) [Ru/Multi] (1.0.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AE79B91986AE19F246EE73B4DD7A76C2D37F40EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

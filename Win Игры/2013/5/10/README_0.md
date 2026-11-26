@@ -19,8 +19,7 @@ Mystery Murders: The Sleeping Palace (2013) [En] RePack Dizzery
 ```bash
 magnet:?xt=urn:btih:49B3B36D53484F5293727F3DBA400320B50CE36F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Torchlight — ещё одна вариация на тему Diablo. Вы вы�
 ```bash
 magnet:?xt=urn:btih:51E684A9BC3569F9E63F7445C9F763418EC3C078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ensign-1 - космический шутер с широким спектром 
 ```bash
 magnet:?xt=urn:btih:32CD53AF728C807FFE0F8345D4782B75C9E563A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Remedy Entertainment подошла к созданию PC-версии реме
 ```bash
 magnet:?xt=urn:btih:78A6CA10F246B16AA52AA1745C16F90FC3FE43C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

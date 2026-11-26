@@ -22,8 +22,7 @@ Vetur - Nætur, Vist (2018-2020) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:3EBDCAAA3546B452F74BD61878250BA19F0FD8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sergey Golovin - Sense Of Reality (2012) [FLAC|Lossless|Web-DL|tracks] <Instrume
 ```bash
 magnet:?xt=urn:btih:D9084E1806CD9511B0203E5706E21B9577EAB935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Almanac - Rush of Death (2020) [MP3|320 kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:4220DD8445D53D7A7F84AB14E50C1CE0C3608391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B4EE6A6FA31010D60024F492B0C1F81448E2501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Halestorm - Vicious (Stripped) (2020) [FLAC|Lossless|tracks] <Alternative, Hard 
 ```bash
 magnet:?xt=urn:btih:256A8E6011417A21F6A0FB8C3C86269675A4F2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Allen/Olzon - амбициозный проект, где звучат голо�
 ```bash
 magnet:?xt=urn:btih:6DBEE23DF465BC7787AEF77F7A9B2BFD8A064D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13ED8E38AE84B2E17B54107B16B0133F961650E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

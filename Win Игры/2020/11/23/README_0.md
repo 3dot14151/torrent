@@ -19,8 +19,7 @@ House on the Hill — это сюжетный хоррор от первого �
 ```bash
 magnet:?xt=urn:btih:9A6F1C626FB189772729AAABFF840885043931BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Today Is My Birthday (2020) [Ru/En] (1.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A0E397A33DD12F0BAFBA203E4B5E8CE5EA4E07F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

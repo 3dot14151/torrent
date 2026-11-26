@@ -19,8 +19,7 @@ Flights of Fancy: Two Doves. Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:705CE37120E17D5FD23712D87A8217ABCFEBBC87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mercenary Kings - убойный 2D экшен-платформер в стил�
 ```bash
 magnet:?xt=urn:btih:4E513ACB27031F81580B40A85881C3F33F88AC9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Forest Legends: The Call Of Love Collector's Edition / Легенды леса. 
 ```bash
 magnet:?xt=urn:btih:A37A8A431EAC3738D5ECA7C1A954E38A32101A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

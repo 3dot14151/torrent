@@ -19,8 +19,7 @@ Maths Formulas v9.6 Paid [Ru/Multi] - Сборник формул и кальк�
 ```bash
 magnet:?xt=urn:btih:A9D9CAF45130E13A185E92B16A2EDABF808E8E00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

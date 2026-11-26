@@ -19,8 +19,7 @@ Ghost Files 2: Memory of a Crime (2019) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:A49FB3A6622685F19983C439D51BAFC0B3EEB66A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Monster Boy and the Cursed Kingdom (2019) [Ru/Multi] (1.0_rc4) License GOG
 ```bash
 magnet:?xt=urn:btih:79BC044B6712AF64EA9B49B409440B82935A8CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.14) License GOG
 ```bash
 magnet:?xt=urn:btih:7B13B7E71ECE8BBF5475663BAFF9BC9FCA282535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

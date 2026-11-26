@@ -27,8 +27,7 @@ VA - Record Super Chart № 199 (2011) [MP3|320 kbps]<House, Trance, Dance>
 ```bash
 magnet:?xt=urn:btih:E70CF8DA6D4C9B6438FC6A75537F26AF5414FA56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Самые танцевальные сливки (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:984C2F8CBB83437EFBD43936C45B2642499CDE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - June’s Hottest (2011) [MP3|192 kbps]<R'n'B>
 ```bash
 magnet:?xt=urn:btih:BBE1800B9A59F37062BA0024CA8016C51DF532B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Groove Assassin In The Mix (2011) [MP3|320 kbps]<Soulful House>
 ```bash
 magnet:?xt=urn:btih:2C269D556BF9363E8AA6378464EDFC4B1C21128F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ VA - Jazz Ladies (2006) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Hossam Ramzy - El-Sultaan (Classical Egyptian Dance) (2003) [MP3|320 kbps]<egypt
 ```bash
 magnet:?xt=urn:btih:CC395706A69C62931634EB1C91B8ECDD8179D21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ ___
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ MPC Home Cinema разрабатывается, в основном, для то
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Hossam Ramzy - Zeina (1996) [MP3|320 kbps]<egypt ethnic music>
 ```bash
 magnet:?xt=urn:btih:C1F1817BE6F994E598987AFC3DD38D99A5FBC425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0C97557807800FA4CAA831DC1028A5A1DE4B29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E882A3AF6B204BC9F9D3A5C2DBFFE85822E85635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +373,7 @@ D.L.S. - Онлайн (2011)[Mp3|320 kbps|CBR]<Rap; Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:BFE4BC80FFC6C08F672CB5D6A9722AC73E24AB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0B632DB36216BC11A8A72B121942725F1E3BC69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ Melanie C – Think About It (2011) HDRip
 ```bash
 magnet:?xt=urn:btih:650729170DC0D6DFE048AE57EA6C899B6EB0DC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF7B024091FDC732B4C68219715F5788EC901CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ VA - DFm Удовольствия. Слушай И Танцуй (2011) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:05DB931BE038DA6F02965008F8A6144AB0ABA45D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ DJ Flower - Jamaican Love (2011) HDRip
 ```bash
 magnet:?xt=urn:btih:472941865C888262A7A867179BA2ADC3D59C4660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ Stromae - Peace or violence (2011) HDRip
 ```bash
 magnet:?xt=urn:btih:28858A88DE01C0DDF120F51EB305DA4FAF28FC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ VA - Vocal Trance Collection Vol.64 (2009-2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:8407628EDAAA45DE3DE095C7F8638A3F8EE4AAF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C005407DD38826508A9FAB900C33C85C400C5E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ VA - The Best Remixes Vol.21-29 (July) (2011) [MP3|128-320 kbps]<Dance, House, E
 ```bash
 magnet:?xt=urn:btih:D6AA02CAE90344943A5BCFB4EFD1DB43ED34960C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:647F2A78704CE49EDC07EA2434F76F7F9EEE188A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A6D67A8D859FAEA2D0EC18846E58F3C137E2B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +737,7 @@ VA - Дискотека на радио Record #1 50/50 (2011) [MP3|256 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:1BC006101A9C45E8F89BCE2797F479BBB5D162D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +762,7 @@ Men's Gadgets - ежемесячный журнал информирует св�
 ```bash
 magnet:?xt=urn:btih:E14A1D58CD68B538C1F5D317B4EA1FEB7629D84C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

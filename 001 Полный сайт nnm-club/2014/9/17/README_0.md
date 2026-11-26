@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Ambient Relax, Vol.1 (2014) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:EAFF41E6975096492A06AE23C0EF0507FD27A998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F48C4D25C3012535E1F44EEC0E70A51A63A4866D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3260817F84BF8B3EF6A15851392AEF55CB0FD925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41B776632557EC40D66355D5D6B9C564DE3FC4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Madlib – Medicine Show No. 11: Low Budget High Fi Music  (2011) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:318F70578563C5BAEEF73DD9A8CA59AF652747BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7945355BF63A20A8D8D944AC9213739EEE89F593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8E7FE6F1D4EB5A0312A153D2754290C97F4845D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Disciple Alliance - Vol. 1 (2014) EP [MP3|320 кб/с]<Dubstep, ElectroHouse, Dr
 ```bash
 magnet:?xt=urn:btih:A167710662FEECAEEB17A9EF1643288088B42AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ SynWrite - мощный текстовый редактор для програ�
 ```bash
 magnet:?xt=urn:btih:F759DCC9BBEDEFF73ABB7C1E43C0F4098A9BAFE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Progressive Goa Trance 2014 Vol 3 (2014) [MP3|320 кб/с]<Progressive Psyt
 ```bash
 magnet:?xt=urn:btih:04ABBC8715E0C6664CA79652995A85369BA667D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ Tim Timmermans - Seven Bridges (1997) [MP3|320 кб/с]<Instrumental, Easy Liste
 ```bash
 magnet:?xt=urn:btih:8844825DA9CD8B15DEF8FFBB22A6365800C5B3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B56E2BD9A661BFC0F35B7BCB41037745F628CAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Musicmatters Videomix - Pop House vol.2 (2014) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:647DE8E3742D8A1A42CD0A73166800820DCF00F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ VA - Ambient Relax, Vol.3 (2014) [MP3|320 кб/с]<Chillout, Ambient, Relax>
 ```bash
 magnet:?xt=urn:btih:9D65B7ABFC30056935E51AD5F568BF6C8C83D926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D14BD14C928D159AB6CC9D10531804831C9D61F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ Kollektiv Turmstrasse - Musik Gewinnt Freunde Collection (2013) [FLAC|Lossless] 
 ```bash
 magnet:?xt=urn:btih:5EA30CFEA8A41C8C0B1DB983D310952FB5FEF3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE1870CBAFF1280FA7102AA0D61AF1ABD7654A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39B8B8B6E3E7DE06D1E71CE4E6942AD417D98AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20636D229506CE15D45F666226F46EA675123A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +583,7 @@ Ashampoo Photo Optimizer - простая в использовании прог
 ```bash
 magnet:?xt=urn:btih:8EA2D74E3A9154B79145748A8B767DB69A1F83AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ Shastro - Shaman's Healing (2004) [FLAC|Lossless]<New age, World, Meditative>
 ```bash
 magnet:?xt=urn:btih:9FD1E96894168E829973AB619BC5B8E37D3BC3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ Discovery: Наука магии. Бомба из сухого льда / The Ma
 ```bash
 magnet:?xt=urn:btih:D7676E28ADE2330E0EEA784F85C5B9D5A049E783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ iNet показывает устройства, подключенные к ва
 ```bash
 magnet:?xt=urn:btih:EB006AECED98D07DE904BE75D75507FF4B8C51A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F375F44AF8F96F300F05451796536654991117D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +717,7 @@ Musicmatters Videomix - Pop House vol.1 (2014) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:002216483BB5FF7D23E9ECAF094C78DCE648245B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

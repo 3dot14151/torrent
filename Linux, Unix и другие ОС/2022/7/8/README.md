@@ -19,8 +19,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.4
 ```bash
 magnet:?xt=urn:btih:A1F724A0634FF18D72586A23E7009CBF4815D5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

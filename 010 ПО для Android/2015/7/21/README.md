@@ -22,8 +22,7 @@ High-Speed Camera Plus v3.1.0 [Ru/Multi] - высокоскоростная ка
 ```bash
 magnet:?xt=urn:btih:73FD396E8A6432DAC1028A3663370FFA40CD1C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

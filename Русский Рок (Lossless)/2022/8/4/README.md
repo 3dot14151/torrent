@@ -22,8 +22,7 @@ Amatory - Книга мертвых (2006) Reissue, 15th Anniversary Edition, 20
 ```bash
 magnet:?xt=urn:btih:22A999C2A61828719644B834413CF8ECDFBB30F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC15DD4EC33B8C577504A522B9844412838D68D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

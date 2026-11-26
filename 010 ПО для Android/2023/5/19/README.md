@@ -19,8 +19,7 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ```bash
 magnet:?xt=urn:btih:9B9448181331525B5BDD477ECD22FF15AB0F5FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

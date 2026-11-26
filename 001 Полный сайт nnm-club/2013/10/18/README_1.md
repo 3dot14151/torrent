@@ -27,8 +27,7 @@ VA - Осенние треки в твою машину (2013) [MP3|224-256 кб
 ```bash
 magnet:?xt=urn:btih:2E566058F70DBED2CFF5B8095EAF6A91C519E58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Осенний Хит-Парад Шансона (2013) [MP3|256 кб/с]<Ш
 ```bash
 magnet:?xt=urn:btih:390C24D5F823A741D0A1CCC1547EB0FD8577888B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4B0B7FD2BEF3A398DB443772809CDCB2AE79451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Comedy Баттл. Без границ. Выпуск №22  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:35F8B026AC2D970744421B6467718B08F7A000E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:8EF71F0C15621C9D494DEB54DF94E1A5E19FD16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4731FE7247DC8320F75B1E780F820E36905F6706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ Larvae - Exit Strategy (2012) [Ad Noiseam] [FLAC|Lossless]<Post Rock, Illbient, 
 ```bash
 magnet:?xt=urn:btih:5C887AF38FCC457F456830952DBDEE0543C808BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Capo – это музыкальный плейер, но предназначе
 ```bash
 magnet:?xt=urn:btih:FF9353D6C0F387AC8271911EB407CB486E774C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ VA - Осенний Хит Марафон Радио Шансон (2013) [MP3|25
 ```bash
 magnet:?xt=urn:btih:52DFDCFDBA963A0EC0D53AAFAAA9FDE4E234ED42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA9A6667B4409710A663DC18B1A4C0DD154793A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86966FA75526D5475440C26F2960327E7FED3EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ Status Quo - Back2SQ1 - The Frantic Four Reunion (2013) [MP3|320 кб/с]<Classi
 ```bash
 magnet:?xt=urn:btih:26BF367F7CEDD2B2E5C19AF2A45BEC442D38B1E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Big Bad Voodoo Daddy - How Big Can You Get (2009) [FLAC|Lossless]<Swing Revival>
 ```bash
 magnet:?xt=urn:btih:EF99AD1D21159558B0F7E56FC4653C9F8D09A2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ VA - minMAX (2013) [FLAC|Lossless|WEB-DL]<Techno, Minimal, Tech House, Deep Hous
 ```bash
 magnet:?xt=urn:btih:177416904F5A346075D30EC2A2B62F82767E8193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E28F26893EA166E8501B72E01AC6087FB457BAA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD32251F30C8AF827CD6D14131D4A62A178A829B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ Cheap Trick - Live In Down Under (2011) DVD5
 ```bash
 magnet:?xt=urn:btih:999659091E14A8C6716D5D0D2950FE7EA209C362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ PicSketch -  программное обеспечение, с которым л
 ```bash
 magnet:?xt=urn:btih:48D39CFC97A574E264BB409A4338DC2454C63A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ Stevie Ray Vaughan - The King's Head (2013) [FLAC|Lossless]<Blues Rock, Electric
 ```bash
 magnet:?xt=urn:btih:FB69E8341B10F6A7E23DEDD4ECD54B47EDD27BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:649C4C960A12F7FBDF2D8DA19C3DF4087D262BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ r.roo - Hydref (2013) [Tympanik Audio] [FLAC|Lossless|WEB-DL]<IDM, Ambient, Neoc
 ```bash
 magnet:?xt=urn:btih:F777CBACB178643397DFD813E02DB2B7E724E4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73C7321E532EEAF389DE948C2B4F5D23A287F01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ Comedy Woman. Новый формат. Выпуск №116 (2013.10.18) WEB-DLRi
 ```bash
 magnet:?xt=urn:btih:9D020507907EC06022AB99869F8150206107B507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5A634CFAFB93D6C34412F7B104BB2014C76FF95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F19EFAB63C754BDAF539F40C92CE97EB6366759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

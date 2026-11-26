@@ -19,8 +19,7 @@ Wally - Valley Gardens (1975) CD released 1993 [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F6D5A5C55328675DD3CEF510F75A0AEB852BBA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Waco Jesus - Mayhem Doctrine (2013) [FLAC|Lossless]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:728EA395EA7C12D2678C92ACE476E715BC2171EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Frosttide - Awakening (2013) [FLAC|Lossless]<Melodic Death Metal/Symphonic/Folk>
 ```bash
 magnet:?xt=urn:btih:CEB78E4DE3E82BF1C7B677DDB696813E05BC8350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Kauan - Pirut (2013) [MP3|320 кб/с]<Doom Metal, Folk Metal, Post-Metal>
 ```bash
 magnet:?xt=urn:btih:A9EDE18E02C39CA0380D3205B695D41293E220F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Nick Cave & The Bad Seeds - Live from KCRW (2013) [MP3|320 кб/с]<Alternative 
 ```bash
 magnet:?xt=urn:btih:A3AE2E0889BB9E9C23FBEAC05E37A0EAB9379A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Waco Jesus - The Destruction Of Commercial Scum (1999) [FLAC|Lossless]<Brutal De
 ```bash
 magnet:?xt=urn:btih:F3BFFD195D91D7FFFE67C1C73DE7E370D1A51A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Yo La Tengo - Fade [Deluxe Edition] (2013) [MP3|320 кб/с]<Indie - Rock, Alter
 ```bash
 magnet:?xt=urn:btih:D24A572075774C7A8CE425754829665828765FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ The Killers - Direct Hits (2013) Deluxe Edition / Island Records [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:7EBA1213CE47588EDCBECA85AC7B8370CD8CB9EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ The Beatles - I Saw Her Standing There (2013) 2CD [MP3|320 кб/с]<Classic Rock
 ```bash
 magnet:?xt=urn:btih:A7EAD13842CE43548D694D487810B7F34584AEFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

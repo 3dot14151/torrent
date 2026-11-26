@@ -19,8 +19,7 @@ Naked Science (в пер с англ. "С точки зрения науки") �
 ```bash
 magnet:?xt=urn:btih:A5879F777E17EB5F9C9821287C8639044A547579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FA657958EF83BDD4EB697E31564C3851C43F8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

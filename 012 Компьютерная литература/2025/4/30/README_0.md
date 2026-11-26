@@ -20,8 +20,7 @@ Whether you're a newcomer or looking to expand your expertise, this concise hand
 ```bash
 magnet:?xt=urn:btih:9631F196DC93856ADC142B4514BC9E58CF809A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0821C1FD2DEA24D1C1E6CBC853E37FB4B23603E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Lauded for avoiding the typical vague, high-level survey approach found in many 
 ```bash
 magnet:?xt=urn:btih:E0F03FDDCEA668CE2C55AA14FD8352E7526B78B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ The core content (   Читать дальше...   )Жанр: Компьюте
 ```bash
 magnet:?xt=urn:btih:FAF4B14E4D154C08EF63C5D7B0155D63148A0DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

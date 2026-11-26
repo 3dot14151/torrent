@@ -22,8 +22,7 @@ ZAZ LanosТип издания: Пиратка (Pro)Релиз состоялс�
 ```bash
 magnet:?xt=urn:btih:7D680E354A02CAB6EDE077F4763FEFDC9628945F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97B4A89C39804D64DE3F5D9694CC4B14E6455FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

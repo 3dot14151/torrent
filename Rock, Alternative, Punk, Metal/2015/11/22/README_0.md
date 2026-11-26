@@ -22,8 +22,7 @@ Manimal - Trapped In The Shadows (2015) [MP3|320 кб/с]<Power, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1F247CFAABDB56F8492EFB60DFA9CEC8962F06DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ KROLiki - В моей голове (2015) [MP3|320 kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:CA2855A44C22DE74CECA9F18403552F944D16010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Manegarm - Manegarm (2015) Limited Edition [MP3|320 кб/с]<Folk Metal, Viking 
 ```bash
 magnet:?xt=urn:btih:CD0CF802194F81E0D57D9B1CAC68030DFB2A51C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Whitesnake - The Purple Album (2015) Japanese Edition [FLAC|image + .cue]<Hard R
 ```bash
 magnet:?xt=urn:btih:33FC179532E8E4798CB4A8E0DD32B260AC1B1388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

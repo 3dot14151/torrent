@@ -19,8 +19,7 @@ Defender Remover Portable 12.8.4 [En]
 ```bash
 magnet:?xt=urn:btih:2D2C438CCA86CBC2D6CF8528C5319870451FACEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

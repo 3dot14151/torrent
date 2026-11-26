@@ -20,8 +20,7 @@ FilelistCreator 23.4.23 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F0FDBDBDF70B9D20E98B8FF1A4FDA4DE3700F65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Children of Silentown — приключенческая игра в жанре 
 ```bash
 magnet:?xt=urn:btih:8F4C3521503975526BCAF7F5671E4A0E1863F797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

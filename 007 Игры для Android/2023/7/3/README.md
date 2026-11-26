@@ -19,8 +19,7 @@ Plague Inc. 1.19.10 Mod by Bubalex88 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EC50689BE3C6037DB6A9C1E93A1C4E5146CD4B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Terraria 1.4.4.9.2 Mod by Dav124 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8BE3B55E6B86ECEA8FAF408AD8630602E146CCE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Minecraft: Pocket Edition - культовый проект не нуждающ�
 ```bash
 magnet:?xt=urn:btih:19F0BB2F3CA7CEFBD848043E1D9EA549E519FD0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

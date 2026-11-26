@@ -28,8 +28,7 @@ Glenn Hughes - Different Stages (2002) 2CD [FLAC|Lossless]<Classic Rock, Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Iron Savior - The Landing (2011) [FLAC|Lossless]<Power Metal/Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Venom - Fallen Angels (Special Edition) (2011) [FLAC|Lossless]<Thrash / Black / 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Noel Gallagher - Noel Gallagher's High Flying Birds (Deluxe) (2011) [MP3|320 kbp
 ```bash
 magnet:?xt=urn:btih:7020426F50D2E8F4DC2D17A8518D2E8DDBED2BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:5753F4C7CD372F0D0A31D000CA4856AC1948BB90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ The Strokes - 5 albums (2001-2011) [FLAC|Lossless]<indie/garage rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

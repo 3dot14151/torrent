@@ -22,8 +22,7 @@ Pat Benatar - Gravity’s Rainbow (1993) CD, Album, Club Edition [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:FCCF053CB205BCD7348F51535AC0EE3EC1A2676D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

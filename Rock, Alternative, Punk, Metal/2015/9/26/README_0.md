@@ -22,8 +22,7 @@ Runamok - Dance Of The Dead (2005) [FLAC|image +.cue]<Heavy/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:01C33D1C74750B6A8B5DB29D9AA11B5218E3384A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sleaford Mods - Key Markets (2015) [mp3|320 кб/с]<Post-Punk, Hip Hop, Punk-Ho
 ```bash
 magnet:?xt=urn:btih:F40D8B16662C734370470CFEE4A097B5A9630056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hanging Garden - Blackout Whiteout (2015) [MP3|320 кб/с]<Post-Metal, Doom/Dea
 ```bash
 magnet:?xt=urn:btih:B7192287370E9C00DD4798DCEE27BCC13801C88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B200FCBE2404F2A42F1EE93CC14AA605D9A364B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Rammstein - In Amerika (2015) live [MP3|320 кб/с]<Industrial Metal, NDH>
 ```bash
 magnet:?xt=urn:btih:6915F23978C02513F76127609790B9C9D3B2B5D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

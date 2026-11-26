@@ -22,8 +22,7 @@ LP1:
 ```bash
 magnet:?xt=urn:btih:03DC6852B4513188CDDBBD184EDE37E6E8045831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hear Clear / Услышать на расстоянии v1.1.6.9 Mod by Alex.Str
 ```bash
 magnet:?xt=urn:btih:4D2F4B893F494588BA93A5463304044FBCF9CAA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cake recipes / Рецепты тортов v11.16.426 Mod by youarefinished [Ru/
 ```bash
 magnet:?xt=urn:btih:26318BB6DDA3462762584E1825A4639C36EC64A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

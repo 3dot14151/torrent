@@ -22,8 +22,7 @@ Hyperomm - Designing Apocalypse (2023) [FLAC|Lossless|image + .cue] <Melodic Dea
 ```bash
 magnet:?xt=urn:btih:C19E7D4DBE277E49C10EAAF3D0B86D88EE8C194C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Lordi - Sexorcism (2018) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FE7FA6EB988513068FACF00E550C63366F4C8632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jonathan Davis (Korn) - Black Labyrinth (2018) [MP3|320 Kbps] <Alternative Metal
 ```bash
 magnet:?xt=urn:btih:45AEC6F3DBA558C32EE39D49004AF018584F0131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

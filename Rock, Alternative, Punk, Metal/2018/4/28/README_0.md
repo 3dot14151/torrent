@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:EC67217739F83060BA8FD5828E908D66C51FD5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Orbit Culture - Redfog (2018) EP [MP3|320 Kbps] <Groove Metal, Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:A00B617C7C8535671C7BBD6629FE54906BEF42E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rod Stewart - Handbags & Gladrags: The Essential Rod Stewart (2018) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:36FC6D475AF6F145B66BB9A6A91672381DC5D959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

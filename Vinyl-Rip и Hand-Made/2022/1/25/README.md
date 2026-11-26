@@ -22,8 +22,7 @@ B2 Piku(   Читать дальше...   )Жанр: Big BeatПродолжит�
 ```bash
 magnet:?xt=urn:btih:798232F5F6E616E33A9AB2792F6BEC003A32D96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side One:
 ```bash
 magnet:?xt=urn:btih:98A3EE8B4691FE5D4D1A056F82A0D78D7C47151B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

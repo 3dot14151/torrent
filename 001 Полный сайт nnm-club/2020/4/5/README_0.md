@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:AB29829B9B57D0F485E865F6578A2AFA08E2D8EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Record Super Chart 631 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:27B60B05D2639C148069C0A96F6233102F96CA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ WinSnap позволяет делать скриншоты экрана мони
 ```bash
 magnet:?xt=urn:btih:1A486A22DC32886F04A86FCA44F28F29769658D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ MacX Video Converter Pro — приложение, которое автомат
 ```bash
 magnet:?xt=urn:btih:2F31023716232C8D7830DC21E3EBDC7293B935EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D85E80BB2CD85A8970C42F2666754B2A44D34D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Complicated - Time and Space (2019) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tranc
 ```bash
 magnet:?xt=urn:btih:BF813F2C6613D7B7B9439E7E8BC92A4EE18ACC32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7B6A64AB706A3E4D1DE861DE79B0A12720E12A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51CD47937C238CA4089A11462C6D9701258980B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Vivaldi 2.11.1811.52 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:EE49D904921751CC3C21B5EE5F11AD28F5235186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Govi - Your Lingering Touch: Govi at His Romantic Best (2001) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:90315AF8F667E03B797E8D8CC6D21162B51A299E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ VA - Space Song: Synthspace Electronic (2020) [MP3|320 Kbps] <Synthspace, Synth 
 ```bash
 magnet:?xt=urn:btih:0C995A2E069C80D12CAF80ECF57F901792ABAE1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ VA - Psychedelic Selections Vol.004 (Compiled by Antinomy) (2020) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:BB48FBE40FE4A34F05FA7578DABBD78CC7AD3813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D486EAC3277B76A96B5092B161BFB3126E12946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Toundra - Das Cabinet Des Dr. Caligari (2020) [FLAC|Lossless|tracks + .cue] <Sou
 ```bash
 magnet:?xt=urn:btih:140A0D964DB47285F6BBB826F52740E319080010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ VA - Know What I Want: R&B Collection (2020) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:BDF262F74026BE7376D83F8799F38B0BF07A7D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98F8AB3AE87050B9F4EC6DD13B132A7CE3ED7074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47FD1B145540EF40F522B32F953D77130718BA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A945EED50F7BBC05046CDD73B205D203841581E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ VA - Coffee Bar Lounge, Vol. 18 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Liste
 ```bash
 magnet:?xt=urn:btih:B8D94CFDFB37416E056E303E464AAA455342BE76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ AnyTrans for Android - предназначен для быстрой и удо�
 ```bash
 magnet:?xt=urn:btih:D65051D905BCA366AF035216672A21D9C50AAB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0539E8EAA9602F4103288215F00CB5F08C463903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ VA - не Громкие новинки недели 62 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:B4F0A51D80E16997BF9FEF0137B7B79DA433BE0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ VA - Arecibo Calling (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ```bash
 magnet:?xt=urn:btih:0F97FF9EC2ABA5D56BFCAA81E035C8EEA4E7643D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ VA - Stand By Me: Planet Pop Music (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:B623D5BD8B4A6EC5F60A98AAC3DB028D7863A1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68E45DE36ABFE3CD10BFA7760773E714B30F58F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CD3981288C961970CB0B37F1312CB97A5F7093D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

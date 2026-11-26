@@ -19,8 +19,7 @@ I am not a Monster: First Contact (2018) [Ru/Multi] (1.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FAD62120C7600BD9C4EAD221820190A877FCD3A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

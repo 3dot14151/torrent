@@ -18,8 +18,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - OGSE 0.6.9.3 Final (2015) [Ru] (1.04/upd4)
 ```bash
 magnet:?xt=urn:btih:743D409938D9D8DE54DB715FA932827BD6A8CBD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

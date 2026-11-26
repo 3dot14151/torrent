@@ -20,8 +20,7 @@ Chromixium 1.0 [i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:E1744BFA6F8674FB4252A9411FB2867879FDA5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

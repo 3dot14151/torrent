@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:F352BE498552F1AF775173685F10B6A16BFE329E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F28E0BC8B4B0809D767B73AAC5C53AA930BF9B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Adobe Media Encoder 2019 - это программа кодирования, к�
 ```bash
 magnet:?xt=urn:btih:2720D9F527D3D42E6F23124658018DFAEB95832D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EACEFBABDC3747B78E8457D6E2F23448DA50792A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A088FA983970FB3DC17F0F9766D537889F2A280B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ HD Tune Pro - программа для планомерного детальн�
 ```bash
 magnet:?xt=urn:btih:6DBC14BD62C8D0E69FDC943F50D908076ACBA642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Maou-sama, Retry! | Князь Тьмы: Retry! [ТВ-1] [2019, TV, 12 из 12] 
 ```bash
 magnet:?xt=urn:btih:7C8449FF8E4830A9CD9845ABD25C12BC2B614056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:966744A033AF2D026B35ED7FAFE6038F16A2D8D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Adobe Illustrator CC 2019 23.1.0.670 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E3776EA4C0CFFCBB2147ADF3993BCBF0AF05B0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.09.12 [Ru]
 ```bash
 magnet:?xt=urn:btih:A70A5B510A8E9D1C16C4ECBA64AB8112A39DABC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Fallout: Nevada - фанатская попытка создать прикве�
 ```bash
 magnet:?xt=urn:btih:227ABC128B9BC769049C62DA38E03283B5D444A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Adobe Premiere Pro CC 2019 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:32DD0365454A20768E07A513432EDBCD18C03740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2770115B791ABBF643E630818FD1A4EE281E886A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B1DDE140A607442C4BDC4EF52FC9C9FC4D026F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

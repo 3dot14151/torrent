@@ -19,8 +19,7 @@ FlatOut: Ultimate Carnage поднимает разрушительные гон
 ```bash
 magnet:?xt=urn:btih:C8056EABDA41ED53981BD2F8C3294F6449D38C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

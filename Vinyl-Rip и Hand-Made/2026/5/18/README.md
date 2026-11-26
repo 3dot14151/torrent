@@ -23,8 +23,7 @@ Thyrfing - шведская блэк/фолк/викинг-метал групп
 ```bash
 magnet:?xt=urn:btih:69293696A0B29D0C5F5AEC4D525D16DDD2CDD2CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

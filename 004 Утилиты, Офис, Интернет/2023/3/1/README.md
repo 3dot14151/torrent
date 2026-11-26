@@ -19,8 +19,7 @@ RedCrab Calculator 8.3.1 Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:D6541D2B76F08FD7E525C7F1106B93470AD6203B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

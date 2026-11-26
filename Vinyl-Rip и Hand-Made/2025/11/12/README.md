@@ -22,8 +22,7 @@ A4 James Taylor - Handy Man(   Читать дальше...   )Жанр: Rock, P
 ```bash
 magnet:?xt=urn:btih:EBC6CD7DD9158C2E550B2A81C63FB6B333FA315B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 You Pass Me By(   Читать дальше...   )Жанр: Pop, FolkПрод
 ```bash
 magnet:?xt=urn:btih:DA481CE8F7D3831F5151D0205B5304DDB9F2F8AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Mis Amigos(   Читать дальше...   )Жанр: Pop, Swing, Rock & Ro
 ```bash
 magnet:?xt=urn:btih:73606FF671830C07BC5A6B57306F7C8B9ABF4D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Estrellita(   Читать дальше...   )Жанр: Latin, Easy Listening
 ```bash
 magnet:?xt=urn:btih:71E2F01FEA7592510FCB98C7593434B11E4FBFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

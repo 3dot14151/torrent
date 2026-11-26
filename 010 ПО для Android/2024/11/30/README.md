@@ -20,8 +20,7 @@ AdGuard — уникальный блокировщик рекламы без ro
 ```bash
 magnet:?xt=urn:btih:B71011FADFD9E8B34A07C6E39B021F6BEB74C002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Sleep Cycle — это интеллектуальный будильник, ко
 ```bash
 magnet:?xt=urn:btih:FB3E7EA9DBAE6FC7330272D6E15DE9EC6DDA3E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.6 Mod by Bala
 ```bash
 magnet:?xt=urn:btih:C58B247921BA7B885FE04884DBBB4153107DEEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

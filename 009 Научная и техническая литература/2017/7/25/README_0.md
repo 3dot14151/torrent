@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5B64CEE63E67F726951A5A43B9E70EDE046ECC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D46FD9D8DA3AA9A6D470EF5479C61D0BB2D9BEC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Elaine N. Marieb, Simone Brito | Anatomy and Physiology Coloring Workbook: A Com
 ```bash
 magnet:?xt=urn:btih:BAA62138D471AD5FCD6A6FD006D586F20B778AF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

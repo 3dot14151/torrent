@@ -19,8 +19,7 @@ Subliminal Realms: The Masterpiece (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:1F2CFFDED2CF7F46D7CB76423835D647919C8783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

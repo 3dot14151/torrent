@@ -19,8 +19,7 @@ RAG позволяет системам ИИ выйти за рамки огра
 ```bash
 magnet:?xt=urn:btih:C4FDA063C5A8C7E6658E2E6E8AFAEAE7305A1567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

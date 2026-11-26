@@ -19,8 +19,7 @@ Feeder - это полнофункциональное приложение дл
 ```bash
 magnet:?xt=urn:btih:83CBC0B1A5A49BC0CBACF18D19B725F173D3EBEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:AF8451EA7D58CC9326881D3004FC03979C38E222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Dodsferd (Dødsferd) - Diseased Remnants of a Dying World (2018) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:A92DE52743938C720755E5E34870E0F55A9AF4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Centinex - Death in Pieces (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:61C32683F04B4F939AD82105F399F8E82FF2C105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ ShredIt X отлично работает не только с локальны�
 ```bash
 magnet:?xt=urn:btih:E491D6F27E78484413C76D7C865E733E1DB40AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Rage - Execution Guaranteed (1987) Repress, 1989, Noise International [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:D61D5BFCA595CEBB502826A18F4140B1FC787009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E737FFB1EF172DC885FEEC36559D7F6149EBFCB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Acoustica Premium — многофункциональный аудиореда�
 ```bash
 magnet:?xt=urn:btih:A311F6588974C30E6D681563CFA5C9D1680CAD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:25F1FC4AE4EA9448C700E1E671CF69AA00E76AAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Performance Index 64 Pro 4.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:EDC559720EA655B6B792591C5F1E88733913C2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Rage - The Missing Link (1993) [FLAC|Lossless|image + .cue] <Power Metal, Speed 
 ```bash
 magnet:?xt=urn:btih:9814932EFB5FD5430B819DD69C96D84980068E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3F10DED0D356E980AB4537C2FEDEB4C58301DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Horna - Kuoleman kirjo (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:73F8C10F50210E72D369EFD51DE9911BAF1AFB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Rage - End Of All Days (1996) [FLAC|Lossless|image + .cue] <Power Metal, Speed M
 ```bash
 magnet:?xt=urn:btih:E76975EE334DB5E6270D7784596F262A1E7A2AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Rage - Perfect Man (1988) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal
 ```bash
 magnet:?xt=urn:btih:3FEAC285C5C4055C9062633FD52862A80AB134C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Last Chance Riders - Fool's Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:A65770C0A8E02A75A55055F505C890D8A470150A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Shinedown — американская рок-группа, основанная
 ```bash
 magnet:?xt=urn:btih:D7D23DD6DAF667EA772FC0C16774500CB38BF9AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gamma Ray — немецкая метал-группа, созданная в 19
 ```bash
 magnet:?xt=urn:btih:8EE1918D93BF6902C636FB2CDFD2DE185537AA30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

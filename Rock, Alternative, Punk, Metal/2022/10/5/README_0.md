@@ -22,8 +22,7 @@ Cruz - Culto Abismal (2016) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:592C09406300905311F68BB3FBB3355753BD9F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cruz - Confines de la cordura (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 ```bash
 magnet:?xt=urn:btih:7928A891CC1D9F1FDBBC60D60A006E542C8143EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tell You What Now - Tell You What Now (2022) [MP3|320 Kbps] <Progressive Metalco
 ```bash
 magnet:?xt=urn:btih:3DF9792609FAC202D0D512BF8009934A902740E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Archgoat - All Christianity Ends (2022) EP [FLAC|Lossless|tracks + .cue] <Death,
 ```bash
 magnet:?xt=urn:btih:8F89D4C9E679164F133386E0FC13B31EF2673F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ SHALAVA boys - Ужасы современного поколения (2022) [MP
 ```bash
 magnet:?xt=urn:btih:D6CD92DF549A280294197FB7EB18B484D82E07DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Richard Marx - Limitless (2020) [OGG Vorbis|484 Kbps] <Rock, Soft Rock, Pop Rock
 ```bash
 magnet:?xt=urn:btih:D3F42A1C1C468A9F23DB1D885781DFC6CC57B82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01D99D03ADD1F0BBA48E11D5414F1EC712812876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4517EF7D2E7A806D08F69551CE97BE0EA114540A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Five Finger Death Punch - AfterLife (2022) [FLAC|Lossless|image + .cue] <Groove 
 ```bash
 magnet:?xt=urn:btih:00FD606F817218A24A8FCE487C7B00EC0F7F268B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

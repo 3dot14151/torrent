@@ -22,8 +22,7 @@ Bornholm - March for Glory and Revenge (2009) [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:0878F25ED0293884C54D6C94DC288758C8B21A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Heir Apparent - The View from Below (2018) [FLAC|Lossless|image + .cue] <Progres
 ```bash
 magnet:?xt=urn:btih:B2828A2785F5DEF8E63FAA33B749D81C224107E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Masters of Reality - Welcome To The Western Lodge (1999) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:5C9601205DDA4782C7BED61F5382F601F96285C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:786710A26DC43E2B14646AA8B37CFDBF53D4BAD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

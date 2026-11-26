@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:71BBCE4DEAF6BA22C3152C4929428D23F9194E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Forest of Fog - Abgründe (2006) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:58F5F0D5CE15B29702D88D740D892E81A3CE35CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3700064DA5E228A49A2DCEA06C070C4FA397799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ K-Di - Лучи добра (2014) [MP3|320 кб/с]<Hip-Hop/Rap>
 ```bash
 magnet:?xt=urn:btih:57B7679C561C9FACE76327F85F88DAFC676EC9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Thirty (2014) [MP3|320 кб/с]<Dub Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:CD78776329A922B7C810FD996A336F68BCE700B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Larry Goldings & Bob Ward - Voоdoo Dogs (2000) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:67D13B9F2F28B8281136CD6C74E56FCA177A276E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC0481FA778DAB37FB84727D07FD4DBB6AFB0E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Larry Goldings, Harry Allen - When Larry Met Harry (2010) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:0E99E11A821A14C9CCB6F0C2974DAEEA95C63240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ VA - Русские Новинки Vol.147 от AGR (2014) [MP3|320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:25FA519FCB058D49062C72E674FB7706C018C41C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E4047FEDD46E4D69217C287B38168105E085AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B65369FD78BEF368118A8D61D17F5DF6D45B3F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ Amor Loreenna - Las Viejas Costumbres (2010) [MP3|192-320 кб/с]<Instrumental,
 ```bash
 magnet:?xt=urn:btih:5654D6CB3A42362B34D8018C9BF9F93D7E2E0044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ Magical & Gravity  - Supersonic EP (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:8D7D0A527EB7F02ACA77F5CD118D13B85608F66A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ SynWrite Editor - мощный текстовый редактор для про
 ```bash
 magnet:?xt=urn:btih:B12470453B460C7D0D9AC756C5785EB2E24A7386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ Sonny Landreth - Elemental Journey (2012) [MP3|320 кб/с]<Blues-rock, Instrume
 ```bash
 magnet:?xt=urn:btih:E5A3441877CFB02160A5D65E0B46DDF137D9760D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4FFBACEE9DE14FD2BB22195916E91A9379EF160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BF7E29A08B94A879B9F9C3E80301F69448D72CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ Deep Dhillon - Dance Floor (2014) [MP3|320 кб/с]<Pop, Dance, Indian Dance>
 ```bash
 magnet:?xt=urn:btih:EB320DCA4E698BB9A05EDD71BFAF99AD32456E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7228413C1B633CE08035DE8FC09B3F1C5029F0E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ Larry Goldings - Whatever It Takes (1995) [FLAC|Lossless]<Contemporary Jazz, Pos
 ```bash
 magnet:?xt=urn:btih:D27C4368C9196E2943154A2FDDFACFD420B6D268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7FA8FFE6504693C52869E84AC15566D40762DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:590B1EFD1CC65E21B6188C99D314255AB1A0BF91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:659DA94FB39D938B281905787491192E8CD0D1E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +716,7 @@ Astronaut Ape - A Little Closer To The Stars (2012) [FLAC|Lossless|WEB-DL]<Psybi
 ```bash
 magnet:?xt=urn:btih:73FD910129D70268324CF86A9E0BD98AE764ADD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +741,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E0E8DF553097AF97D404D2AB7E61518362B4AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

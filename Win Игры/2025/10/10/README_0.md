@@ -19,8 +19,7 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:CAFB6A5D5474C128EAE0B57C2BA2ED7D665D01BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:88A64A20745E4107C8FCA95D688B793A8E886099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Serious Sam 3: BFE — это великолепное возвращение в
 ```bash
 magnet:?xt=urn:btih:3CB700EDD2363E1D4C2C96C7C73F6551F2C007DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chambers of Devious Design (2022) [Ru/Multi] (1.3.0b) License GOG
 ```bash
 magnet:?xt=urn:btih:949A49D7E1BED6980EAA46251C2DB9831557E29A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Yooka-Replaylee - это усовершенствованная версия и�
 ```bash
 magnet:?xt=urn:btih:A48406EB46B9A2B7B99DE9BE123291B5012F6140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Edge of Reality 10: Island of Shadows (2025) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:CD77C82415CC9EFCEC6F38956D46375B6D00FB36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:1F44D5F66C34AA390A0F34A46E35E984C8B84055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dreams of Another - это экшен-игра с исследованием о�
 ```bash
 magnet:?xt=urn:btih:4CD1473C5919ABDBD57EE17329F168FE6342ECDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Spectra: Beneath the Stain (2025) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:DE68F120385875E629F7F680052BDD0EA15C1B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:D9DF81E2384DFCF4E8727422E4700CD6F22A7AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:58C5B3C66796D3D329970A034D1DE4781BC690BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

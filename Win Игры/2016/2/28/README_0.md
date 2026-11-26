@@ -19,8 +19,7 @@ Mystery Trackers 10: Paxton Creek Avenger (2016) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:1910D442DE26EF1E731A13F5FE4FAE1156D2ACE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reflections of Life 3: Dark Architect / Отражения жизни 3: Тем�
 ```bash
 magnet:?xt=urn:btih:186B0FCBC3D6BE14643736DA12EA98198FF372E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grim Tales 9: Threads Of Destiny / Страшные сказки 9: Нити с�
 ```bash
 magnet:?xt=urn:btih:AA663D8D1660CEF05CEF9BF0A91169610D8778C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:42430BC09A4FED84CD67F052BC36CFB3945E58ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dungelot: Shattered Lands (2016) [Ru/En] (1.34) Unofficial ALiAS
 ```bash
 magnet:?xt=urn:btih:BCFFBA2BB506D9019B20802E691E25FEDA915E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fortified - экшен в стилистике фантастики 50-х год
 ```bash
 magnet:?xt=urn:btih:4943279B35993B78E1BA49BF344B76EF042B03C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Goodgame Empire (2014) [Ru/En] (24.02.16) License
 ```bash
 magnet:?xt=urn:btih:3E820D0C8D788615B5552B9A75D2F56937F53184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

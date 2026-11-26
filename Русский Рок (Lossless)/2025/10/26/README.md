@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:3C6A57082F2287415D58DE4846D9FEAB3E13C74F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CWT (Clockwork Times) - CWT (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk, Ska>
 ```bash
 magnet:?xt=urn:btih:146C3D95D9B61664F98658C2C1CBEA77701AE1CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

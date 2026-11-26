@@ -19,8 +19,7 @@ optimizerDuck — это бесплатный инструмент для опт
 ```bash
 magnet:?xt=urn:btih:F46615CA64E9EC281EAE30E8B28CFFBAB661DC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4430CCBE044EEC65C64DDA2A6DF7EDA1410DB6D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:4713897F35BFD081A80F87CA3D37C7C6E2D9C809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vdigger — это программа для загрузки и захвата 
 ```bash
 magnet:?xt=urn:btih:5F98C979CF94BB26693A76FB197D2C96636BE625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FreeCommander — мощный и гибко настраиваемый файл
 ```bash
 magnet:?xt=urn:btih:35538DC1BA04046D6744EA17E3266A3467FD1613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Vivaldi 7.9.3970.64 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:88AA08C43C0795CFC573C369A8DF194A2AA980A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ IsoBuster - программа, с помощью которой можно по
 ```bash
 magnet:?xt=urn:btih:F0946ACA81413445983B731507637ADBA2B51D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Journal ориентирован как на обычное ведение �
 ```bash
 magnet:?xt=urn:btih:9D7444AEDD5C5A2EDF5B555C3EBD317B4ECDAD0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Browser Tamer — это сверхлегкий, открытый прокси-�
 ```bash
 magnet:?xt=urn:btih:378670953509DCCDE998349A1B655482FFAA8204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

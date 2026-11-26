@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:57CB33AFEF869EEAA1AE57B5336AB16A7F577FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CoolVerter 2.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:A8333134EDF41E3F1E4BCAD49C112FD15E6F1C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Robert Miles - Dreamland (Remastered) (2016) [FLAC|Lossless|WEB-DL|tracks] <Tran
 ```bash
 magnet:?xt=urn:btih:5E2628D32FBF90FEFC596D07E54B72EF80AB653A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF231D47A0B089D88DC21BFE4281B4071530FC56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Orchestra of the Royal Opera House(   Читать дальше...   )Произ
 ```bash
 magnet:?xt=urn:btih:968220E73E5D2488689DB3DF763304B258177448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Minimalist Logo Reveal - простой и чистый проект анима�
 ```bash
 magnet:?xt=urn:btih:158B1419767F99BB5D6FD7D9C13E74BEC4F7BDE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ R-Drive Image - утилитa для создания файлов образа 
 ```bash
 magnet:?xt=urn:btih:D5A5C76D1C92D4AF27E27152DD6846E0442EE78D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ NG. Экспедиция на Марс / Expedition Mars (2016) TVRip [H.264]
 ```bash
 magnet:?xt=urn:btih:2CDFAA8DD571A418523FBEA7B141592819CEE934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B96DA6B4A8F494A01F6DB794CF3FB5F198FD99B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Cinematic Slideshow - используйте для этого проекта л
 ```bash
 magnet:?xt=urn:btih:E2EC35636865A5752D738831044081A7F6F681E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Inspired Opener Slideshow - проект с оригинальным эффек�
 ```bash
 magnet:?xt=urn:btih:A113D25B8F5BC19FDF9D00EEBE41AF1A82F7C379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10025083A62DD6267CFF77929D6662DFBBC83FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Xtreme Burn – это  интенсивные  нон-стоп трениров
 ```bash
 magnet:?xt=urn:btih:8CC0EF2E18DD5628163B0D3A08BBB0A2DC3F564C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:0F761F286F8E657C5499BF8DD289E997E6D2EA46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73325ABD942357390BEC44F86F4466594A555432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A831B1F16BA343C5F61EDAF7C0D37B70FCC2443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:12748BEC831CB5D12858BFA1785A847FDF1F5AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ iMovie c великолепным новым интерфейсом поможе
 ```bash
 magnet:?xt=urn:btih:957C639E35D032370D0570E6A474871EF18D0415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A31D1082CB88AFD93FFB5BEF4C0E2AF4EDF334D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C344267BC9C6AF02DFCB936798D09BD42652B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AABDA633B3B16B979DCCE702AF53495329A6BB57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ Ashampoo Burning Studio 18 - это всё то, о чём Вы просили. 
 ```bash
 magnet:?xt=urn:btih:9F04AF795BF23D07BBB74AA0955980163F7EBD3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37D949A8031177FC80FC269D8621A275B7654FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ FunEasyLearn это лёгкий и весёлый новый способ вы�
 ```bash
 magnet:?xt=urn:btih:AED4ABE5D94130604A5A74EAD31D60583CD547DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDFE1FAB5D5E169C799D9027CED2284099C27F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ Mozilla Firefox SM - это сборка браузера Mozilla Firefox кот
 ```bash
 magnet:?xt=urn:btih:C997DC021047ABD797CACFD7A6FCBBAE55F9856D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

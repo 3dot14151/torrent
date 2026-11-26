@@ -19,8 +19,7 @@ Paranormal Files 3: Enjoy the Shopping (2019) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:E0DD42FB3B44BECCCEF444A6223833397B7D0D79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Apocalipsis: Harry at the End of the World - традиционная игра �
 ```bash
 magnet:?xt=urn:btih:531021C14A83B4137B8C8F1591CC26C66395F71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Car Mechanic Simulator 2018 делает вызов игрокам. Управл
 ```bash
 magnet:?xt=urn:btih:4ABF0C783E768F31CD52409ABBECCFEBED073B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

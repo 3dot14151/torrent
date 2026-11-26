@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:29B28B44EFF7728EC9257355D925E83E07FF84C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:588666F5ABA56A23AE28D60DA196B41CCD0B294F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A343B03872E45B76BFF1347EAE29CEF9A9005142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC95F4732673CA1D3A3B812D2EFFC4C17FE8B5A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grandia [PS1] [NTSC] [En/Ja] (1999)
 ```bash
 magnet:?xt=urn:btih:BED9FA8ACE811CE418F28B988E4116B523688B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:0BF118BF03DDBCD31FDEE5CF9CA3FF21F8E02F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Nautilus Pompilius - Эта музыка будет вечной. Наутилу
 ```bash
 magnet:?xt=urn:btih:5EDB6264F0C2E0E4F1ABAB85DD0FE23299B616B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40E302CE28EBA030F9070EF7F00E6EA673331F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35DAF67F6F0679349B0DD32F0AD3AB964B828D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Bitdefender Antivirus Free Edition - быстрый, эффективный бе
 ```bash
 magnet:?xt=urn:btih:DA415D7438F6F772B003612BE2DF4762A1152814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11E4B7FEBEA7B0818479F48C5753E8D03EA58610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E249475CEC79707BDA1DF46DEEE38CEFA7E6FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Outlast (2013) [Ru/Multi] (1.0.11795.0 Upd7) SteamRip _PALADIN_
 ```bash
 magnet:?xt=urn:btih:5D8BFD91CEA61E3A41BA936E1225838BF5099CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61612D6E40FA22AE8ED104FDB65F63A142C306FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ Panda Cloud Antivirus включает в себя локальный и уда�
 ```bash
 magnet:?xt=urn:btih:40196D02E0446367E7A8ABDA9F65F6CDE743B46A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ World of Tanks — это массовая многопользовательс�
 ```bash
 magnet:?xt=urn:btih:C58D1DE9842CBAC5CECFC0D02E81F1F6106B4BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87720DB7E28CAEAF980850645B3A0343AFE11EB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ VideoHive - Cube - Touch Style - 941104 [AEP]
 ```bash
 magnet:?xt=urn:btih:558BB914542D2E70D687996B21396CC01FA6D268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ In addition, the new 331.65 Game Ready driver is bundled with GeForce Experience
 ```bash
 magnet:?xt=urn:btih:E35A2FC6F9093C81AE86E4D97A6A53967E2BD92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Serious Sam Double D XXL (2011) [En] (1.0) License WaLMaRT
 ```bash
 magnet:?xt=urn:btih:4CBC128638BAECD35D59A9CB44B288EE22D565D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ World of Tanks (2013) [Ru] (8.0) Mod Jove [Сборка модов от Jove д�
 ```bash
 magnet:?xt=urn:btih:052C0D14A77D4EF186ACBC9BA2A7E125F6AB80E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C7680FED67880C5F311990845DF58B7711E8A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9230C12E31986CEE1A446319528750C1936F5B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ Blood of the Werewolf - это аркадный платформер, сюжет
 ```bash
 magnet:?xt=urn:btih:D4B260975EBA4A7DAAE131B56343EED468BB2598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ Autodesk AutoCAD LT for Mac 2014 [En]
 ```bash
 magnet:?xt=urn:btih:97E14E86A246B859D99F6B34549128F948D30C59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ Batman: Arkham Origins + DLC [XBOX360] [Ru/En] [Freeboot] (2013)
 ```bash
 magnet:?xt=urn:btih:55FAD505F8961C27398A9A6EF18A70F42A667470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

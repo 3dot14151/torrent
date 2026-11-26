@@ -28,8 +28,7 @@ Joan Baez - Diamonds & Rust - (1975) [FLAC 2.0 24/96|tracks (VinylRip)]<Folk Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

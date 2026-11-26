@@ -19,8 +19,7 @@ Chimeras 2: The Signs of Prophecy (2015) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:5D6EC1C4AB3D354126CFA6CD68DA25FF00A7FFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Whispered Secrets 3: Into the Wind / Нашептанные Секреты 3: С
 ```bash
 magnet:?xt=urn:btih:98A6AA876D73D87C8ABA61E6BFD664B06EE92CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.10/dlc) License Man Hunter
 ```bash
 magnet:?xt=urn:btih:7A698FFD5979AA4DDE3B33B6252FD679ABA51208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vagante это приключенческий 2D рогалик. Ключево�
 ```bash
 magnet:?xt=urn:btih:7783FF6FC314A55F791F7B98325EA33DD631F2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dragon Fin Soup совмещает несколько жанров в одной
 ```bash
 magnet:?xt=urn:btih:805C30BD8C45A2AB8210517935D80EEC58719D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Zodiac Prophecies. The Serpent Bearer / Пророчество Зодиака. �
 ```bash
 magnet:?xt=urn:btih:00658CB71FF6238980B22B54A194C2534375E050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Slain: Back From Hell (2016) [En] (5.3.6.15686141) License GOG
 ```bash
 magnet:?xt=urn:btih:62EB017353B8D8042766B1700510A6832503F648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ziggurat очень толково и любопытно соединяет в �
 ```bash
 magnet:?xt=urn:btih:1FDD8B0F234DC6173C030D2343590F61CE160DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:4C3BE58FE1001EDF5097E4AE6F9C25F2F468ADEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:FD0517642B157F12CA5DDA3BA9E1DCAB6B3048FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Aomei Partition Assistant WinPE – загрузочный диск для ра�
 ```bash
 magnet:?xt=urn:btih:BE3B088C838535D7C7D76B1DF681FEC9FC82ED88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Microsoft Office 2013-2016 C2R Install 5.0 by Ratiborus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:98A3EF2C5EB09C45BA487D3FC9194CF7F1338797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Windows 10 PE x86x64 13.12.15 by Xemom1 [Ru]
 ```bash
 magnet:?xt=urn:btih:6F780EB5912166572575122963A3633B94112015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A97E8ADE9B284A83C88E81ADC9B547D9E2B70703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Sword Coast Legends (2015) [Ru/Multi] (1.0/upd8/dlc) SteamRip Let'sРlay [Digita
 ```bash
 magnet:?xt=urn:btih:4AA5F7351470FA2E48D999F499D58E3068DF0990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 ```bash
 magnet:?xt=urn:btih:52C172402F6ECEC795F3F90A86FF89035E13ADC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

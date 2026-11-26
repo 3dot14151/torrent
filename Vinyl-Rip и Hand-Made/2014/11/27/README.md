@@ -28,8 +28,7 @@ B2	–Sam & Dave	Hold On I'm Coming(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:879A4255B4E2329A6356FA1119F721778A3D2D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Side 1
 ```bash
 magnet:?xt=urn:btih:1F3DAF92C38C8AB94678FDAC190B339CF831C17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

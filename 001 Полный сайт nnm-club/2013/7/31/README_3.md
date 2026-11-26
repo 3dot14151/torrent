@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4B8617A255B595C5560927BA7AC2009AF4C0137E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBAC8A1C5A4C36836ED7FB57F6DA88EB5E1AF527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Auslogics BoostSpeed® - единственная программа, котор
 ```bash
 magnet:?xt=urn:btih:078FBA0FFE8C6EB972D02BFAA5B6E5321741A942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 8620 (июль 2013) [Multi/Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ MPEG-2, DivX, H.264, MKV, WebM, WMV, MP3...
 ```bash
 magnet:?xt=urn:btih:46958006E9D7CFC47E21D11A0B33A9FBE7D9346F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10000B56DA5D13C08551E5DE691A4418FA2BB74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61F2744E5134CD92DB32CED49271D0A79603496D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ CastleStorm (2013) [Multi] Repack 3DM
 ```bash
 magnet:?xt=urn:btih:68A87949543E7029B4ED0ABACBDA4086FF41519E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ KMSAuto Pro - автоматический KMS-активатор для опе�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ PAYDAY™ — заставь их платить или поплатись са�
 ```bash
 magnet:?xt=urn:btih:BC95142F4C9936AF79D65FD2AA3DC5AD20F9EB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ The "Elevayta VST Plugins Pack" is a collection of 8 unique VST plug-ins intende
 ```bash
 magnet:?xt=urn:btih:41A3907C9E64B68CFDAF6E8FF7BE48FD9B6FF7DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ IncrediMail — оригинальная почтовая программа, п
 ```bash
 magnet:?xt=urn:btih:92A714F69EEE1E8A648A407A4EA137D2066E8D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ VA - Trancemaster vol.01-7006 (1992-2012) [MP3|320 кб/с]<Trance, Electronic>
 ```bash
 magnet:?xt=urn:btih:CF96E6F0077A31B08E5B2722490B7D054A2EABE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Govi - 19 альбомов (1988-2013) [MP3|320 кб/с]<New age, New Flamenco, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Dragon Age: Grey Wardens Edition (2010) [Ru] (1.05/DLC) Repack/Mod Аронд
 ```bash
 magnet:?xt=urn:btih:77180E3F545436B23E6FED3FD7BF44674FE1F121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

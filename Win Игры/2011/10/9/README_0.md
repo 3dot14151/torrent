@@ -19,8 +19,7 @@ The Dark Hills of Cherai: The Regal Scepter (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:16F65D7CCA7FB9751CC760C4C51C18B247B5DAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shamanville: Earth Heart / Шаманагия. Сердце Земли (P) [Ru] 
 ```bash
 magnet:?xt=urn:btih:35145E1A26E52E10E33651F8A4D333B5275003F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Orczz (P) [En] 2011 |  THETA
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Prototype [Ru] (RePack) 2009 | Audioslave
 ```bash
 magnet:?xt=urn:btih:9FF2EDE228067EAAFAC2B455BD6399A6F5FD8870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:56734FE190584A8634B0E69CAEBB098625BC857C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PictureThis - Plant Identification v4.4.2 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C53AA4BBB133ED43B8B03A03A1C5F6BD91CD43BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Folder Player Pro - это ориентированный на каталоги 
 ```bash
 magnet:?xt=urn:btih:0F53793535AA597CB2D1D60EA16355FF3270D8B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PhotoRoom v5.4.7 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F455F2D1B920626A18E1B8DA4ACFB39C2545BB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

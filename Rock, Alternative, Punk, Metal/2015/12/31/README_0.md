@@ -22,8 +22,7 @@ Crucial Fix - Crucial Fix (2015) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8C875FA498042AB2938CB0165741C12CF6962872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E12D106C7F195494C47ED73320613A873CA708F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jon Lord - Beyond The Notes (2004) SACD [FLAC|Lossless|tracks + .cue] <Prog Rock
 ```bash
 magnet:?xt=urn:btih:F706679A2F6C2A9DD7E3E603DB05129E9B28AC78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bon Jovi - This Left Feels Right (2003) SACD [FLAC|Lossless|tracks + .cue] <Aren
 ```bash
 magnet:?xt=urn:btih:DE440350F753647BCF83C2E750B803CB04128B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Chris Rea - The Road To Hell (1989) Geffen Records [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:E1AB6BDBFA7589C5D4ECE4093A7826A5813BEBBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Kingdom Come - The Best Of Kingdom Come (2003) 20th Century Masters The Millenni
 ```bash
 magnet:?xt=urn:btih:F9E277D886194C4A93CA7FF63EC433328E36C59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:D60DDC18242235E004969163E452DE03C6BF2165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Scorpions - Return To Forever (2015) (Japanese Premium Edition) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:E83DB1762DF6ABADF6348FE757CF9A462DF9D645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ StopUpdates10 – бесплатная утилита для Windows 10 и Windo
 ```bash
 magnet:?xt=urn:btih:42692A67882A9548D87264FF0ABFC48ECE263C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ iVentoy — новая утилита для Windows и GNU, позволяющ�
 ```bash
 magnet:?xt=urn:btih:A02E6BF4386F44457C25816B24657B4E8FF51796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ FileOptimizer — бесплатная утилита с открытым исх
 ```bash
 magnet:?xt=urn:btih:E07ECC70BF8FB492FB1FCBB2F5BFB5E40075228A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

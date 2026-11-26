@@ -22,8 +22,7 @@ Autonoesis - Autonoesis (2020) [MP3|320 Kbps] <Melodic Thrash, Black, Death Meta
 ```bash
 magnet:?xt=urn:btih:F44F40FC4480393080D5C7CA52F85F6396D199E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alcotopia - It Hits the Spot (2019) [MP3|320 Kbps] <Speed, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:BA41E2CC5D438690F0728D674A06D6556AE24CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crypta - Echoes of the Soul (2021) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:B711CE4FE94DF2BB2DCA3FE07AE67359D1723A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Iratus Vir - Under a Midnight Sun (2023) [MP3|320 Kbps] <Melodic Death, Black Me
 ```bash
 magnet:?xt=urn:btih:26DA622F76634214E108D5B2FFC95C19E306B218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jag Panzer - The Hallowed (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:BA28DDB3CA10DB8CA058C4A9690D2D6471626865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Levith - Around the Impulse (2023) [MP3|320 Kbps] <Groove Metal>
 ```bash
 magnet:?xt=urn:btih:F1ACE94F5D874D73CA639CF57AA4D47159528EE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dead Shape Figure - The Sworn Book (2023) [MP3|320 Kbps] <Melodic Death, Thrash 
 ```bash
 magnet:?xt=urn:btih:7B996588E8CF6C57A12C31428AF4A5980E91F91D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Snakes Don't Belong In Alaska - merch community Sounds Of A Forming Planet (2023
 ```bash
 magnet:?xt=urn:btih:C6977C5823ABBE5D50011B4F00A3C1122389E5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Yusuf / Cat Stevens - King Of A Land (2023) [FLAC|Lossless|tracks + .cue] <Folk 
 ```bash
 magnet:?xt=urn:btih:D8326F80714EA49964C870C9E6EA5BF62317AEC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Winger - Seven (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0D0DF5965B3E3A541559DB67A69C49887D215616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Avenged Sevenfold - Life Is But A Dream... (2023) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:FBAF1AA9102749F5F59CFEB30804521E037076C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

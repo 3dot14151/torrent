@@ -19,8 +19,7 @@ Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:CA222026170E98282C9D9517109FF0EC1CBE671E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

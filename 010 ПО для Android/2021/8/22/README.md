@@ -21,8 +21,7 @@ LOCKED - Секретный Альбом v1.3.3 [Ru/Multi] - Спрятать Ф
 ```bash
 magnet:?xt=urn:btih:7390C582FD65D3C3AA8FC476A58F6B25273E6561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ipTView - простейший плеер для просмотра онлайн
 ```bash
 magnet:?xt=urn:btih:BE9A8AEADF4B210FE89EC7187BE3957F99DB4B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

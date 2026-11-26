@@ -23,8 +23,7 @@ Ghost of a Dead Hummingbird - Sin Forma (2015) [MP3|320 кб/с]<Post Hardcore, 
 ```bash
 magnet:?xt=urn:btih:BC43BE4D59F5BEEB4905DD9E34271EE80DBA15CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ From First To Last - Dead Trees (2015) [MP3|320 кб/с]<Post-Hardcore, Alt. Roc
 ```bash
 magnet:?xt=urn:btih:647C5349B9215AF4A63C503FF6DD35362ACFB6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Talon - Fourplay (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2586D86BB0405760600DE28AEBA287A11EC41036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Elettronica In - популярный итальянский журнал по �
 ```bash
 magnet:?xt=urn:btih:9D1C455A4AA21FFD1FB9E11DE013EDD6D4FA7E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

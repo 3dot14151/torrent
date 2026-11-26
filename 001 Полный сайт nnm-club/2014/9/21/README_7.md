@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:76E06A019F2E658936A0876C40BB9FC310636005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC3636E3F754C662F2C796371D4C8FB96ADC9312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ VideoStudio Pro X7 создана для обработки видео и поз
 ```bash
 magnet:?xt=urn:btih:6F359E42826C99826AD57D1BD19197359BFBB941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Train Simulator 2015 — это обновленная и улучшенная �
 ```bash
 magnet:?xt=urn:btih:B460E05A3B0D420412003DFF785B830379B3C076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ WPI DVD v.19.09.2014 Full By Andreyonohov & Leha342 [Ru] (Авторская р�
 ```bash
 magnet:?xt=urn:btih:AEC1B51091D81732AD76E29A6D98AB08DACB85AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ GRID 2: Reloaded Edition (2013) [Ru/En] (1.0.85.8679/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:9F57DAF81C21CC3D7A3986C10D72F74BA068D309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

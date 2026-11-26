@@ -18,8 +18,7 @@ Discovery: Суперяхты. Серия №2 / Superyachts (2012) SATRip
 ```bash
 magnet:?xt=urn:btih:C3C008F1EE388F8BAF3E3EEFAA5B9CF63AFBEBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Не спать! Молодежный Модный музон (2013) [MP3|1
 ```bash
 magnet:?xt=urn:btih:9092780F19FBA94F527ECAA43A65F42E37C91C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1258E325239087E7E3BFA9B853035F877C6F4176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Testament - The Best Of Testament (1996) Japan Edition [FLAC|Lossless]<Thrash Me
 ```bash
 magnet:?xt=urn:btih:9F774BAE04F85654257C0DC383DB1072A0FEAC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ In Vain - норвежская Death/Black metal группа, которая б
 ```bash
 magnet:?xt=urn:btih:F395CB3638BFFB12880E29ECE9B33E6F25D51D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC7B71B118497EF4FB162168BF6C0A0D2DAA8055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:7D770556F37D481367179F36737EFB79451D3948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ Discovery: Суперяхты. Серия №1 / Superyachts (2012) SATRip
 ```bash
 magnet:?xt=urn:btih:CBC3108F31DC5562FC324CD215881086A0421976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ B4. Suite Madame Blue [6:36]Жанр: Progressive RockПродолжительн
 ```bash
 magnet:?xt=urn:btih:6A6D0C6C77DB1A6723558B4068DECE40FAD25B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:5394B2835ABE57659C3B040205D52AB1BA7A0BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF82E5FBDC0FC28B280405B15D20CC24584E9100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ VA - Заводной хит-прорыв. Лучшее от Русского р
 ```bash
 magnet:?xt=urn:btih:5D61522D6C3E808A38B93EE5E45C47C26E7CF896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ VA - German TOP 100 Зарубежный чарт Vol.8 (2013) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:53912CA2781EB0CF2500D682763508AD359B065B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ VA - Радио DFM - D Чарт - Top-30 (26.07.2013) [MP3|128-320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:6AD5B055664058469245D1FF749A8C509C39C680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ Legends of the East: The Cobra's Eye Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:15D0BFE1C55CAFA81F3CFE9AC80512D2C36BF5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFEA94A9CD0941F135D918A9352558E46EA26E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:114C25993E9236D62D0697244D27A2548CFD4786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C8A33ED379C85B7A7695D0D0BCCB1F7840F73CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ B4. The Grand Finale [2:00]Жанр: Progressive RockПродолжительн�
 ```bash
 magnet:?xt=urn:btih:6505D116A4A638D3660539C646711A4BE8BA433A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ Foxit Reader - программа, представляющая собой не�
 ```bash
 magnet:?xt=urn:btih:AC010F04501A4C8273F929D364367AEFC1EA9751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED0C30C872F11CFBAEECB0A8BD3089676E4F9DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ Alabama - Original Album Classics (5CD Box Set) (2013) [MP3|320 кб/с]<Country
 ```bash
 magnet:?xt=urn:btih:E5607E487C628E135FFA04E018CD2CDE9B5812F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ Bitdefender Antivirus Free Edition - быстрый, эффективный бе
 ```bash
 magnet:?xt=urn:btih:CAA41585D17EE399E051AA766746E22158E7BE7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ Foo Fighters — американская альтернативная рок-г
 ```bash
 magnet:?xt=urn:btih:AC73F3D1045E94CD4092B8AB0244153DF751ABD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4519BEF6BD6F97EACEB025B9950B14180088BA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:F4A160F9EA666180C022A158EF67917FC4841ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

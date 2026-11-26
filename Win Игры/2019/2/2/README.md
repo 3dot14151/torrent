@@ -19,8 +19,7 @@ final m00n - Defender of the Cubes — это игра в жанре аркад�
 ```bash
 magnet:?xt=urn:btih:5289B5158821548BC2262467C82207821A3318C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Armored Evolution (2019) [En] (2.0.b) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C73B88C6AD1A4CEE42F66ADF88B5E958386D3828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Riddlord: The Consequence (2019) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2F219CF58DAE9A2F6E7DED6A1FCBC391EDBDA2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Not in Heaven – это сюрреалистичное приключение �
 ```bash
 magnet:?xt=urn:btih:7E89DF01EFE6FA92773DB7C86A4945CF25359092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Arc Savior (2019) [En] (1.01) License CODEX
 ```bash
 magnet:?xt=urn:btih:3DBCF3A0E06FD0EA63B3721522C3C8CE9ACAD49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

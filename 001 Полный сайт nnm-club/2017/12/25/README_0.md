@@ -18,8 +18,7 @@ Wise Disk Cleaner 9.6.1.684 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:33777A2CB08A4451A8B20D02177A57E7927CA390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C08D11675564F6C99DF20CED1F6AE493B010413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ```bash
 magnet:?xt=urn:btih:736D63399B76152C916EDF96E7080DD0A0B9D3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Swingrowers - Remote (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro Swing>
 ```bash
 magnet:?xt=urn:btih:731739DA28CF1330D127F5125B217EC400D157ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ```bash
 magnet:?xt=urn:btih:83FAC785216718A53E120B73E274E1FC79167843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ```bash
 magnet:?xt=urn:btih:41807200E9B928D255F94AEA4A14CF26903CC401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ```bash
 magnet:?xt=urn:btih:52285EC9C0363881B35AFA069524E7B8893C15EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Skarlett Riot - Tear Me Down (2013) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A28D28F90F81677DA4C5E58C15B8C51D7D3B96FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ SOVVY - Hypertrophy (2017) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Ambient, Bass
 ```bash
 magnet:?xt=urn:btih:090A86BCFF52CC3362FA1FDF46ABA393F9467B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B666881448110D65C098C6C97AAD42A032F89BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BBCFFA49AE2AD2E797CAA2D9CFD0633CF7AC99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ VA - Chill Out 2018 Top 40 Hits (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 ```bash
 magnet:?xt=urn:btih:E206093EEBD8E9302481069030ABB4E46AA00EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ VA - 50 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:AD5F0274DFE2A177D9198CC5190B5D9160883D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FDF8712B009BF4C5EAF601B58126D1A92352765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C62522BA68851323EA88E87073D908A883594AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27E91E98A904A3705D488CBE61E793D8A9F52A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Interstellar Sequence - Out Of The Deeps (2017) [FLAC|Lossless|WEB-DL|tracks] <E
 ```bash
 magnet:?xt=urn:btih:57C7DB3A31EF518B837348B5E252769CC407C832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F798917C128E0DAC805C0BA9E18CBD28B016E8AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01C59F842387910CD1EDB9CCCA84EB9AE6026B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ KeyKey — учимся слепому набору
 ```bash
 magnet:?xt=urn:btih:2BB15C43014122E97024B0A01E3DFF48C011A634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ VA - Christmassy Car Songs (2017) [MP3|192-320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:FFB1BA3E1CC6186DB11EFD60C644D22E46AA7154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A437ABD1DD769DFCF17F78179080625E07F334B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5760115AA7755970C67A17DF2E6DBD64F12C429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Ukrainia - Shadow Era (2017) [MP3|320 Kbps] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:E4A1B3F641586C376D13AE3B827BC1F57C8DB8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ VA - Chill Out 2018 Top 40 Hits (Yoga, Chill Dub, Ambient, EDM, Psychill, Trip H
 ```bash
 magnet:?xt=urn:btih:DCD587C2FC9D66E1B79DB4296356BCFA2D5EAD50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ Shania Twain - Now (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Cou
 ```bash
 magnet:?xt=urn:btih:71C5AA90ECD5CA64726FBF431E4EAB777FDB49BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

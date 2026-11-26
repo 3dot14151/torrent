@@ -19,8 +19,7 @@ Event[0], сюжетная игра об исследовании мира, в �
 ```bash
 magnet:?xt=urn:btih:5032B37B035FAF765AB05E7561070102A022FAD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

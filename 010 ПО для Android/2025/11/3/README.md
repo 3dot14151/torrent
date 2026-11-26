@@ -20,8 +20,7 @@ NokoPrint v5.24.4 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EE31D5FB16B0CAFD467656111D3943E4685A121F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ HiPER Calc Pro v11.2.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:44918A2E95B0525C0932774186A77699ADDFEF30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ OsmAnd+ - это приложение с картами всего мира на
 ```bash
 magnet:?xt=urn:btih:69B946E21EB593BB247F60A9CF0CB32F4CBC93C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Jigsawscapes® - Пазлы v4.2.7 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:55C502E999467F42F852BB07793F4249ACF271A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Picsart AI Photo Editor, Video v28.7.3 Gold Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AD830D969F1DDEE444253702F95881C325A07421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Exo Player - Видеоплеер и IPTV v2.0.6 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DCB31691F1B0443EDA731778F6629E2A7855E073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ All File Reader and Viewer v54 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:146B168FC822DF9727DA76E5ED837108B865D563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F530561A5FB3DBFD93048272160B77D24CF8450C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F269AE1E36F98A90C59449414A271C4539508F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:820BE63608756C01DAB62B69A1D5365EC4211897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Seven / 7 Минут Упражнение v9.24.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CAD198085A242A33871AAEB5E13E3D808DA54ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Gallery - Photo Gallery, Album (XGallery) v2.0.2 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A575B9E213EDE927F3A2EB82A0081EDDAFFF3EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ AirBrush: ИИ Фоторедактор v7.19.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F70B5BB60042E792ACD9520287027CCF7FEC9124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ```bash
 magnet:?xt=urn:btih:C846EF1F02B096CB7583EFA764A915C308FF640A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Remini / Улучшение Фото v3.7.1156.202517454 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:6CDF509C0DEB89392F51EF0B974E9B34B3A2CD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D66F88CCC2213F8691903DD86F9814D80EAC382B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

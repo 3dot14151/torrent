@@ -19,8 +19,7 @@ Serious Sam: Siberian Mayhem – это возможность погрузит�
 ```bash
 magnet:?xt=urn:btih:83FFBEB1B3240C177373AF1F9FD24726A36C8A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 ```bash
 magnet:?xt=urn:btih:6FA6336281524153D41075E79351C8D51908BC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D464E0F7EDE73785FD9FFFE2DAD25040F0C3FAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Skibidi Toilets: Invasion бросает вас в вихрь хаоса киб�
 ```bash
 magnet:?xt=urn:btih:3A84FD510B05A808828FA25FF29475042077DEFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Spirit Hunter: Death Mark 2 погружает игроков в священн�
 ```bash
 magnet:?xt=urn:btih:33D42F886C1BA97C43F815E985D0AF0055530877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ CLeM (2024) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:D571B9F0254E31DE1A966673E249204283066DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:C28288CB9E45E7F84D6B7523501F9EDEF759FEC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Neon Tail (2024) [Multi] (1.0.0.100) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:479C7971C1C53415E6BCC7983240463039CA9FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:62E34B70B3D1C602E6346C00F23302EECFCA22A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FolderSync Pro v3.1.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E4A15977DE4BC7162C4F8E705CF874C51801306A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

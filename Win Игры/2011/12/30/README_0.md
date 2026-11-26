@@ -19,8 +19,7 @@ Zapper / Zapper: Рожденный ловким (P) [Ru] 2002
 ```bash
 magnet:?xt=urn:btih:7D08C8A4F3966B2521975F24FC5F85CE642163F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Red Crow Mysteries: Legion / Тайна красного ворона. Леги�
 ```bash
 magnet:?xt=urn:btih:38ED782C4986354E7D69C20C4F9AAB5035F55E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Living Legends Remastered: Ice Rose (2020) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:917B87F4583A9F372D06DA09565EC7F2F2A3BDAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:6F52D6A8F3DC67C93E5B21531B7B961303B4AF8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Tracks, Split:
 ```bash
 magnet:?xt=urn:btih:8ABD10405D57F369150CF52F9397D25F2FDC5C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Gatekeeper - Purge (2015) [MP3|320 кб/с]<Deathcore>
 ```bash
 magnet:?xt=urn:btih:CAA6B83322180169633C842A04AC11066E34C6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Montego Joe - iArriba! con Montego Joe (1994) [FLAC|Lossless]<Jazz, Latin, Afro-
 ```bash
 magnet:?xt=urn:btih:B607C7B0D633D1417629ED8AD3435B15C087A86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Halgadom - Halgadom (1999) [APE|Lossless]<Wotan Folk Metal>
 ```bash
 magnet:?xt=urn:btih:B9E139C2A5EB194EABEBC9F307F307FE8F73BDD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Hagal - Karg (1999) [APE|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:273FD01971E1EC81D6C0F87AA444BA398E4D1371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ VA - Motion Zone vol 3 (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:20678DFE4F07F424CBED1CB3C7D31855E06C63EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Albums, Splits:
 ```bash
 magnet:?xt=urn:btih:FECE72726719E1738EDD5599BC65AE6A24C3594D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Hades - If At First You Don't Succeed (1988) [FLAC|Lossless]<Power Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A0ED0BCB757FF04424D52928048CD815945110A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Hail Of Bullets - On Divine Winds (2010) [APE|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:85ABC0618F6A9887A6F353ADE99F0099A8A36ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +346,7 @@ Hacksaw To The Throat - Tear My Eyes Out (2005) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:06B51334232FAE6B33B83A4039A4BF4D7A193A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +380,7 @@ Hades - Live On Location (1991) [FLAC|Lossless]<Power Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:38D6CBF5B5042DEB2BF7FBFF1A65E9FD3A549DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +414,7 @@ Widescreen Mode - Until the End (2007) [FLAC|Lossless]<Heavy Metal / Gothic Meta
 ```bash
 magnet:?xt=urn:btih:790F3034EB9CF05C9F2FFDC62FAF43AFF373C4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +448,7 @@ Hades - The Downside (2000) [FLAC|Lossless]<Power Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5A721B126C38B8B23A10558A251BEE2E569F7B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +482,7 @@ Gallhammer - The Dawn Of... (2007) [APE|Lossless]<Black Metal / Doom Metal / Cru
 ```bash
 magnet:?xt=urn:btih:D268F38EAE706A7CDACFEBF5B921D0C7AAC98364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +516,7 @@ Hades - Exist To Resis (1995) [FLAC|Lossless]<Power Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:11EFFC4AED4235CA8560DC0FDA0F65EFC4E52494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +547,7 @@ VA - Jazz On Stage CD2 (1990) [FLAC|Lossless]<Jazz, Hard Bop, Guitar Jazz>
 ```bash
 magnet:?xt=urn:btih:80AB152C44DE186EA6650F367361081463A327DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +581,7 @@ VA - Throwback Selections Vol 2 (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:DB10A74F9E4D7695982497953F8BF43A6E856B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +609,7 @@ Albums, EP:
 ```bash
 magnet:?xt=urn:btih:A094FF0C0741CC217FD83E7CA9F910EEF722FD38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +641,7 @@ Hades - The Dawn Of The Dying Sun (1996) [APE|Lossless]<Viking Metal / Black Met
 ```bash
 magnet:?xt=urn:btih:C8B08A8F6B5C45B205E004B5205743AAABA63408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +675,7 @@ John Deen and The Trakk - Beat 69 (1969) [MP3|192 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:2D4A99CC816AA267AE382E0F21F76967094EB790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +709,7 @@ VA - Summer Breeze (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:27460AD95117DD2F713B2C94C710BBB742985F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +743,7 @@ Clarity - Infinite LP (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:0641456F1A1148333791F72B8D010632EFEB66C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -800,8 +777,7 @@ Regina Carter - Rhythms Of The Heart (1999) [FLAC|Lossless]<Jazz, Post-Bop, Viol
 ```bash
 magnet:?xt=urn:btih:BCF12E77C3E7F82C57201B4AD1837295859FF136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -829,8 +805,7 @@ Taranis - Kingdom (2012) [MP3|320 кб/с]<Epic/Folk/Black Metal>
 ```bash
 magnet:?xt=urn:btih:CD147CEE0C34B3659E741CA6FA260B8AA5756F51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -863,8 +838,7 @@ Morris Nanton Trio - The Original Jazz Performance of Flower Drum Song (2013) [F
 ```bash
 magnet:?xt=urn:btih:60A5706A382497E401A0195423A3C43590E36737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

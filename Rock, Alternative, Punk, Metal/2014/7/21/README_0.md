@@ -28,8 +28,7 @@ Nine Below Zero - A To Zed: The Very Best Of (2013) [MP3|320 кб/с]<Rock, Blue
 ```bash
 magnet:?xt=urn:btih:171016E72BE0453E91671C7D6D7394ACE450529F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Demonic Resurrection - The Demon King (2014) [FLAC|Lossless]<Progressive Death/B
 ```bash
 magnet:?xt=urn:btih:A0A4166CAE0CFE743C2FD2859940317161059D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ EnkElination  - Tears Of Lust (2014) [MP3|320 кб/с]<Symphonic Metal, Gothic M
 ```bash
 magnet:?xt=urn:btih:C2454A78A6FAF2567DDB16E79D2DCCFF7984731F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Crown the Empire - 3 Альбома (2011-2014) [FLAC|Lossless]<Post-Hardcore | 
 ```bash
 magnet:?xt=urn:btih:7754C72DC874CC887F570BC05056DE4735876ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

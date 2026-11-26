@@ -19,8 +19,7 @@ Memoirs of Murder 2: Resorting to Revenge (2018) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:948207B9CD22DA0CCEB6BE7EB39D2F13B2C4D385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shieldwall Chronicles: Swords of the North — это игра в жанре rpg
 ```bash
 magnet:?xt=urn:btih:785CB44DFAB0549E06EAFB8819547DAD09214A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VIKINGS WOLVES OF MIDGARD™: Рагнарек. Легенда гласит, ч�
 ```bash
 magnet:?xt=urn:btih:5E8D4B9632D642B97EFAD802289615072ECB6568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

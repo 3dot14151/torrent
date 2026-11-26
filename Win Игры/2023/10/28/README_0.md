@@ -19,8 +19,7 @@ Strange Investigations 3: Secrets Can Be Deadly / Удивительные ра�
 ```bash
 magnet:?xt=urn:btih:8D9B26EAEB30545DA37E7FC2FEEC00ACD4FF597C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Slay the Princess (2023) [En] (20231024) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EE8309275CE3905D501055C9CCFA21B0A8C0843D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sands of Aura (2023) [En] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:5BD516781913FA07160BBF8752C78C0EDB46A1EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DCOP (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B85A1F6D7DF7C6EFE11DED7572D11E7A19B5603D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Unliving - Founder's Pack (2023) [Ru/Multi] (1.0.2892023_1631) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9F93ED74CFA20E126AFECCA55107AC858C5F6DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

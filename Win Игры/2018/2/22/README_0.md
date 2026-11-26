@@ -19,8 +19,7 @@ Signs of Life – научно-фантастическая игра с прос
 ```bash
 magnet:?xt=urn:btih:C23815D2C5FBA50E2CB2BB3E146CD512AE69B86B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lobotomy Corporation (2016) [Ru/Multi] (0.3.1.1b) Repack VseTop
 ```bash
 magnet:?xt=urn:btih:26E8C81C90FF7AE384991D2850C25642C14A3515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stationeers – это космический конструктор с хоро
 ```bash
 magnet:?xt=urn:btih:7467AF37059BBDBF388728BDA64CE531EBF91CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Final Fantasy XII: The Zodiac Age - возвращение классики! В�
 ```bash
 magnet:?xt=urn:btih:0D3549F4F64BFFBC0CE09ADC381FA7982B0C7D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Crimes and Punishments — это детективный квест, посвя�
 ```bash
 magnet:?xt=urn:btih:546392DD124BAF5D6A9819DB88B65F877F26851C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Usurper - RPG в стиле метроидвания. Древние ужасы 
 ```bash
 magnet:?xt=urn:btih:27B8B76F9A70BA748C58B1E3FFE5A84A4B5A4288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Far-Out - это непростая приключенческая игра от
 ```bash
 magnet:?xt=urn:btih:E53F423F26A2489D8AFF5098B797205D8DBCF008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Shadow Warrior 2, продолжение неординарного шутера
 ```bash
 magnet:?xt=urn:btih:8DF70DAF46B6DDC3257296DD3AE4D0826FFCA24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

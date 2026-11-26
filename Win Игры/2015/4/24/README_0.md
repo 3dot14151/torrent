@@ -19,8 +19,7 @@ Kalimba (2015) [En] (1.0/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:362DAF57030CAD2E951EBAFE721E5883AF880226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

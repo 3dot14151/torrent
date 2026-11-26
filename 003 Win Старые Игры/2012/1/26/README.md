@@ -19,8 +19,7 @@ Wing Commander: Prophecy является продолжением легенд�
 ```bash
 magnet:?xt=urn:btih:A5EB3D8510E59C6205AC2FEC11BD3B391E7E9E72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Wars: Dark Forces [En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:8D107A2000F8B42E0BC9EC937D906C81812B5B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Wing Commander IV: The Price of Freedom [Ru/En] (RePack) 1996 | Skulov
 ```bash
 magnet:?xt=urn:btih:59BFEEC4C400C1A6522590047ED45DCEDE694A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ UFO's [Ru] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:E6825B8CD8EAA33EE13B72DDBB0FCBAB01C737F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:AC857FC8C95A44AC4950D33E830B04D7E6871E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Paradise Kiss | Райский поцелуй [2005, TV, 12] DVDRip 480p raw
 ```bash
 magnet:?xt=urn:btih:9DB30363C007C4651B3625424B2090F64EAFE0C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0F046CFEEF71F624E22C3466824902BCFFC0B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Black Mirrors - 1 album, 1 EP (2017-2018) [FLAC|Lossless|image + .cue] <Blues Ro
 ```bash
 magnet:?xt=urn:btih:2D4D71E0BBC8434F9824133B91B22C85A40DD4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Soft4Boost Document Converter 6.2.3.423 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9C3F138CB07792096BEAB6F4064318236E366D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Opera 67.0.3575.79 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A41B6429D538368ABDA06FC724E4E42EFEE1BA12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:452D40AB6F0FDCF6935A77E796BCD47A6CC2B460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ VA - Radio MFM: Dance Hit Radio [14.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:2B85048B13A602EBCCF51283AE99B0211C97F460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Aiseesoft Data Recovery (   Читать дальше...   )Язык интер
 ```bash
 magnet:?xt=urn:btih:CAFEC5272EA4EB70D00220201B9F470713A68B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8EC0562F5627A162E9F83B70A1B9201D1A0A085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA796DAACCDF2050C9C24C27030FE8E59FBAE597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D9E988342D0396F38CFE73FB9D48AA50DB539AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ BestReminder v2020.03.14.20 IMPROVED [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D5E37538DF70C63555389B20440733F3338E3C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ VA - Rock 'n Roll Party Hit Mix (1995) [FLAC|Lossless|tracks + .cue] <Rock & Rol
 ```bash
 magnet:?xt=urn:btih:516CC9504BEC566C4971CF0623B50D831F7F042A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:F60DD99DA1894B5226E00496DEE73C13295CE634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ VA - Greatest Rock'n'Roll Party (2004) [FLAC|Lossless|image + .cue] <Rock & Roll
 ```bash
 magnet:?xt=urn:btih:8DCD29EF1DFA7BAFDBADA9736FD8500A26566D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ HD Video Converter Factory Pro - удобный конвертер всех на
 ```bash
 magnet:?xt=urn:btih:1CDCB2A371D6DB21B1945761378807F051B58ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Myrkur - Folkesange (2020) [MP3|320 Kbps] <Dark Folk, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:90F60A21D9F4FE9C567E1C0278BDDAFC0D05098B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB840D30E9B8B545DF91B6C85AA3578B61B3CA38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ OCCT 5.5.5.99 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E54C9773E403F26E4C7325FDA55B7AFC8744566E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67DF0BC8E1016CE011B07766FD58FC9D10718717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ VA - 80's Gold (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:4FF2CB0BCD9B3074D3CA4A70F7421D6DFADDDFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ Luminar первый в мире редактор фотографий, кото
 ```bash
 magnet:?xt=urn:btih:583387B6AA49C1DBF3CD877893447984910CC259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29FD6111DECAFC9FF5559717F19D8DC7CC84FA0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:653C963B9A52E29C7B506270076F52B76D429027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ VA - The Disco Box (1999) Compilation, 4CD [FLAC|Lossless|tracks] <Funk, Soul, D
 ```bash
 magnet:?xt=urn:btih:775038262D4BDCF5CFC4549A66AFD836811EA51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

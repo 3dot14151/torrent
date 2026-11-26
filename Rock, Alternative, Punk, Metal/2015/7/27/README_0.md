@@ -22,8 +22,7 @@ Gun Club - Les Genies Du Rock - Death Party (1993) [MP3|320 кб/с]<Alternative
 ```bash
 magnet:?xt=urn:btih:5B8466BC7B414DC1C67516A94D42063E92060691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ I Spit Ashes - 99942 (2015) [MP3|320 кб/с]<Modern Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:5C3DDA1F567A98480B7DB7EA806AB126860897AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Flamin' Groovies - Les Genies du Rock - Shake Some Action (1993) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:E9686D04F0EBA88F93FEFF1C01185B3B5F834A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Herman's Hermits - Les Genies Du Rock - No milk Today (1995) [MP3|320 кб/с]<C
 ```bash
 magnet:?xt=urn:btih:B0E517CD95A16A0DC860E1B64627A2D449E3805F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Gene Vincent - Les Genies Du Rock - Be-Bop-A-Lula (1993) [MP3|320 кб/с]<Rock 
 ```bash
 magnet:?xt=urn:btih:EA79746C5BEE399F00F5EC684648DB612865796C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Dummies - A Day In The Life Of The Dummies (1991) [MP3|320 кб/с]<Classic 
 ```bash
 magnet:?xt=urn:btih:A26E1AA013FE4E9077B8F7DBB303E2DBD267DE95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Moody Marsden Band - Never Turn Our Back On The Blues (1992) Live [APE|image
 ```bash
 magnet:?xt=urn:btih:F035C1DB7378F49264C484C4CBDA154152470EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Robert Plant - More Roar (2015) Vinyl, EP[MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:0B228CB0F1283C0FE3BF3CADBDD4B75F4C7398E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Our Last Night - Younger Dreams (2015) [MP3|320 кб/с]<Post-Hardcore, Alt. Roc
 ```bash
 magnet:?xt=urn:btih:3730694128E23BB5101374A9CDD12C2B38F5A5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

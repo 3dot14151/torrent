@@ -22,8 +22,7 @@ Tango Studio - полноценный Live (GNU / Linux) DVD дистрибут�
 ```bash
 magnet:?xt=urn:btih:E22486D970CE285A3225CF45DE5976C0E6A12279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

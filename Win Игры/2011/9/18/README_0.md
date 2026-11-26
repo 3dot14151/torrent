@@ -19,8 +19,7 @@ Urban Legends: The Maze (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:42065CB7A6A41BE6D29B49AAA2B6A05C50C67D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Legends: Beauty and the Beast - Collector's Edition / Таинствен
 ```bash
 magnet:?xt=urn:btih:46A20B218D8636C41DBB1B12C6184566D6FE1068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Urban Legends: The Maze / Городские легенды: Хаос (P) [Ru] 2
 ```bash
 magnet:?xt=urn:btih:BEF9332FB14BFA8A3363FBA4F5AECA069FFCC6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Men of War: Vietnam Special Edition [En] (Steam-Rip) 2011 | SKiDROW
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Microsoft Azure - облачная платформа корпорации Micro
 ```bash
 magnet:?xt=urn:btih:B9E2FE87BF9F6BACCEB05C8A5A72121480BACCC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ WeatherPro — это надежные прогнозы погоды по все
 ```bash
 magnet:?xt=urn:btih:3790B9E313427686C22CF86C475514F47FEACF23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

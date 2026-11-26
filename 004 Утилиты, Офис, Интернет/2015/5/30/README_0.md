@@ -19,8 +19,7 @@ Directory Monitor позволяет отслеживать изменения �
 ```bash
 magnet:?xt=urn:btih:4A24FC7368E23027AA8D74EACAB7429055E7F395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Advanced Grapher 2.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3C6A5DD6D39F4AAE43FA52FC890F2E855302E52D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ WhereIsIt? 2014 Build 220 Portable by Willi Karbacher [Multi]
 ```bash
 magnet:?xt=urn:btih:9C10943B7B91474C96C7B9BEB2E6EE0A2FD86FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ CCCalc / Блокнот-калькулятор 2.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EA74DABD1089C56F20A571EA3C20BF8178CD01EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

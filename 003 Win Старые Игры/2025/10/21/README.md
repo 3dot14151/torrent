@@ -19,8 +19,7 @@ Diablo 2 — продолжение легендарного ролевого э
 ```bash
 magnet:?xt=urn:btih:38A0CAEF5CA16DF349BF7373D36CFB2C2A588E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
 ```bash
 magnet:?xt=urn:btih:8ED421416E1BABB4DD9195D5BA851836F877C14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FlatOut — динамичная гоночная аркада с видом о�
 ```bash
 magnet:?xt=urn:btih:E284D50E6641452EA277A9E981A239A7E054E4DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

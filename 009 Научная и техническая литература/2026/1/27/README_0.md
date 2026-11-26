@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:8D2C7B45DA795264C7C2286434DA52ED6B6DF247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ This book presents an in-depth exploration of biopolymers in biomedical engineer
 ```bash
 magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Addressing a significant gap in the study of number series, this book presents a
 ```bash
 magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ In addition to direct algorithms, it presents a wide range of classical and mode
 ```bash
 magnet:?xt=urn:btih:77BAE95C5FF96D54AB419C91DC5E104D5ACABDB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

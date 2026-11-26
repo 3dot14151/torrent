@@ -22,8 +22,7 @@ Erroll Garner - Soliloquy & At The Piano (1953, 1957) 1989, CBS Records [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:8F14283DEEA717BA49C7D53BC39DF0BA4160D8CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Muro - Pacto De Sangre (1992) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:486D64848C346264580BC03AC772CA21E87B0F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Erroll Garner - Overture To Dawn: The Apartment Sessions, Vol. 1 (1944) 1995, Ch
 ```bash
 magnet:?xt=urn:btih:15891BA21BB32BD2DC44927866A601CD7E9FFCCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Phil Woods Quintet - Bouquet (1989) 1999, Concord Jazz [APE|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:80CE2A952FC76B12629AED9D7ECB5D9CDCD0419D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Elektradrive - Elektradrive (1995) [APE|Lossless|image + .cue] <AOR>
 ```bash
 magnet:?xt=urn:btih:133AAE5C10E93A073A7C6B2F48253C418A1CAD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Amsterdam Trance Sessions Vol.9 (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:C264AF32B5393DF9E8D339DC50CB809F957FB292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Erroll Garner - Erroll Garner's Serenade To Laura (1949) 2003, Savoy Jazz [FLAC|
 ```bash
 magnet:?xt=urn:btih:FBCB367AF2C3A3AF21D9FA4D2C2EC8BA9B6EE5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Later позволяет планировать напоминания есте�
 ```bash
 magnet:?xt=urn:btih:88D0DBCC258336418567FAF08E2971912DAD5047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Hitten - State Of Shock (2016) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C527E45B6C11D133AD6176A09E2489E8FCCD575A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Erroll Garner - Magician & Gershwin And Kern (1974, 1976) 1995, Telarc [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:8F557AAE4B51DD8EBBED4F23BB34A3F4D43E756C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ TextLab - текстовый инструмент преобразования, 
 ```bash
 magnet:?xt=urn:btih:D9B1CE4A3AD14BE28DDC6513EEF8CCCC59C68419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Negator - Die eisernen Verse (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:751453B29D640D130AF0B5E333E58678E844D9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:E26D187C28FB9F2ABE858FA173539F0FFA254964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6975B008C3330A082C9AE1ADEFBE2DE35F21938A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ The Holy Terrors - Lolitaville (1994) [FLAC|Lossless|image + .cue] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:6B11B0F9ABC48A10C4001695EC24EA87C1A3235E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Smultron - простой и элегантный текстовый редак�
 ```bash
 magnet:?xt=urn:btih:28D9FB32B1CCD41667D185F3B99574EC5601F097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ FSMonitor - это приложение для MacOS, которое отсле�
 ```bash
 magnet:?xt=urn:btih:DC8EF989D1B1FD130F3C2300906349DFAC240715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA819DD64A073C1737DC6A0FBCD3099048C04391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Don Cherry - Home Boy (1985) Barclay [FLAC|Lossless|tracks + .cue] <World Fusion
 ```bash
 magnet:?xt=urn:btih:532E83CA169E331350B8E32769D4EF6D8F3008C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ VA - Beatport Trance  Pack (01.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Upli
 ```bash
 magnet:?xt=urn:btih:DD2D34B27FA0C97F8F6C3739F52AC8778FD35AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ The Four Horsemen - Nobody Said It Was Easy (1991) [APE|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:A374C0E50CB9A917ADC8A2DE7C879EB5DF5E854B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A4FF63BCBAE031D8E35471E06105CEA2D59F8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:D8CE5861D0517C247475F516A869F72C9E60274C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ Iced Earth - Days Of Purgatory (1997) Japan Ed. [FLAC|Lossless|image + .cue] <He
 ```bash
 magnet:?xt=urn:btih:D1853CD75ADDF2C391575696E50AAD5399F2CA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ PrivacyScan - конфиденциальность в интернете
 ```bash
 magnet:?xt=urn:btih:B7BD9C3C2D0D780C7498BE7AF0AF81DAAD274A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:4171545A714EAC106167E84DD32E6FB74F8284B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VideoHive - Fireplace Warm Photo Memories [AEP]
 ```bash
 magnet:?xt=urn:btih:BFE3F69F28045320E4C8EB25A6E525E5CBFF31B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7B59F56DDF62FB51ED9B28E8BD139CCCF1E22DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ MotoGP 14 - официальная игра по MotoGP World Championship. Дл
 ```bash
 magnet:?xt=urn:btih:D1D5DDF5448A7D6BFF408C2ECFC69B3524B71D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA6CDE9D2B3A24B9DE12D6DFE76F54E06DB7F763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Videohive - Distressed Rock Festival [AEP]
 ```bash
 magnet:?xt=urn:btih:0431B3FB5E416895EF1BF4355BC0352F7F951B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0976B44D42DF1EFF78B6EE60232F4AE714955B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34BBEC92586396BAE0A270D3ABAE682FBA027228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Choujikuu Yousai Macross II: Lovers Again | The Super Dimension Fortress Macross
 ```bash
 magnet:?xt=urn:btih:F1B2C087D2CF54CDFB7202A86582075F13C598D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CEA8F7A8EA883325C4063184B2A1C91A0CDCDD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:868D8994D94125EF5911CB3AC2EC6C6DFB1DC5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Folx Downloader Pro 3.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BEFE0D25D21DC1AA55172753D4751F7B68FCC378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D38CE3E587D7CBAD2F522362A65198A6DB85F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1460CB2B536B1BED5C252400B139859FD54F6001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B9339426270639C156B0FC2F49E3F2B137F7FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A44038546D2039587C6760D452EDD98EF00B8F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:847B3B2165024B8726603D0B4D8B25BC568F361E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ VideoHive - Fashion Particles and Fresh Postcard Opener [AEP]
 ```bash
 magnet:?xt=urn:btih:4C7E5AF72711E098D0525E2F52AD71D0157F88F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ Ookami Kodomo no Ame to Yuki / Wolf Children / Волчьи дети Амэ и �
 ```bash
 magnet:?xt=urn:btih:68A115C4B622BA86FFC9F79148325B1F0B90732E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ Oracle Linux — инициатива Oracle Corporation по созданию �
 ```bash
 magnet:?xt=urn:btih:C618040D5D05AEC1B1CEEFA7AE9B5763354BF034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ VA - Горячий Auto Club (2014) [MP3|320 кб/с]<Dance, Сlub, Нouse>
 ```bash
 magnet:?xt=urn:btih:020561C006BA2D13F55552E577E8452C9F9E9759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7514387A3BFB16FC749BAD552A4B1032D4D36774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ Discovery: Разрушители легенд. Рекламные мифы / My
 ```bash
 magnet:?xt=urn:btih:BAE3E062EA16B9F2FC7D7F78D496839D5F11E4E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Corel PaintShop Pro X7 17.0.0.199 Special Edition RePack by -{A.L.E.X.}- [Multi/
 ```bash
 magnet:?xt=urn:btih:C785330C77E1A869A863F19FF38E2F7BD5F65335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ Dungeons & Dragons: Chronicles of Mystara [PS3] [PSN] [USA] [En] [3.55] [Cobra O
 ```bash
 magnet:?xt=urn:btih:B3DE3810C4D54ABFEBC2791004B66D84A7783C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA1CF41C342C22F123A6122D08A9B31386014C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

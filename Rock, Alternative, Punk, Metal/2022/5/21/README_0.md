@@ -22,8 +22,7 @@ Spheric Universe Experience - Back Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 ```bash
 magnet:?xt=urn:btih:22243E5B621AB288F601E3678992E1BDCAE5BEA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Last Temptation - Fuel for my Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:0A4459944864F1938115FA1B89F998749BC1CF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Imonolith - Progressions (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Groove 
 ```bash
 magnet:?xt=urn:btih:146CD69BEB269E773282EDA1400503339C3FA390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Terranullius - Beachabilly bad boys (2022) [FLAC|Lossless|WEB-DL|tracks] <Psycho
 ```bash
 magnet:?xt=urn:btih:68E7534F3D6748EE9A9B9ED57112F75D4E0EBF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Shameless - So Good, You Should... (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 ```bash
 magnet:?xt=urn:btih:F5C3CD154BA6F0752CF933F1B30C264B1214A77E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Wucan - Heretic Tongues (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Rock, Vint
 ```bash
 magnet:?xt=urn:btih:DC48A3C426A68FF6DAD219B70AD2661B1CA46407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Stay Away - Моя неласковая Русь (2022) [MP3|320 Kbps] <Punk Roc
 ```bash
 magnet:?xt=urn:btih:B2ED7442A0E25644E3992642B0E02C6D4DA5A087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Eurovision Song Contest - Turin 2022 (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:2418090580C2B9FDCDFB809BBA83127615D770D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

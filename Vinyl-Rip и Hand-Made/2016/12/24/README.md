@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E1A8F531EF97CB518707B3E7245E308CBFD3F4EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1. The Road To Babylon (6:53)(   Читать дальше...   )Произво
 ```bash
 magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

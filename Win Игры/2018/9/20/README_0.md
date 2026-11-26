@@ -19,8 +19,7 @@ Solstice - это мистический триллер-антиутопия о 
 ```bash
 magnet:?xt=urn:btih:76D76D172FD4F1A74FF6726E8E1008CE6D4A827C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Transference (2018) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E5768117D54D5B64FF1191FD1F4C01D0C8A8291F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Injustice 2 – новейшая игра в жанре файтинг во вс
 ```bash
 magnet:?xt=urn:btih:ABBE746616F36102844D48C8DE1EAB248232A72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

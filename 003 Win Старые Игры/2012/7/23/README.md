@@ -19,8 +19,7 @@ OutRun 2006: Coast 2 Coast [Ru] (RePack) 2006 | Luminous
 ```bash
 magnet:?xt=urn:btih:031141A0C114E1452EE521269B9F88B8326E1C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + mod
 ```bash
 magnet:?xt=urn:btih:BDFF1AEE3D36DE14F2375207E669116FC12BC098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

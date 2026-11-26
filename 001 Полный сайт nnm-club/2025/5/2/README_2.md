@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E5D69BFEACBB0FED9FFADEABB9A6D9A96A5D5414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Text Edit Plus — это простой, но мощный текстовый �
 ```bash
 magnet:?xt=urn:btih:9BC3597214656E1D915B1471FEE3B81AE443BD73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Markus Schulz - The Rabbit Hole Circus (Extended Mixes) (2025) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:DA59038D2484AE1E6A05AD411FA88169F9127442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0532604F6C2277CB5BCD9493672806CB76E5EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Relax Rain: sleeping sounds v7.5.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F3CB0995AE1E94D0420EB2D3695D3DF1314F5D2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:214E19AAB00D7B0D536D754289FEF10B5420F6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D7139BA53635A7D341B2A456E6EED9C033C3925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Barren Earth — финская метал-группа, основана осе
 ```bash
 magnet:?xt=urn:btih:ADF72316D01E871914967F50E8E39833B6E8F20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Side One:
 ```bash
 magnet:?xt=urn:btih:54925EF0C8B99E906B2B5B0468B3AC5007002F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:707D8B2DF808CE5DF71C83B24C9829A394583942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Blacktree - The Sexual Revolution (2015) [FLAC|Lossless|image + .cue] <Deep Hous
 ```bash
 magnet:?xt=urn:btih:F0ED357E9C3326EDADD13EFD8CC845F70EA00BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Behölder (Beholder) - In the Temple of the Tyrant (2025) [MP3|320 Kbps] <Epic D
 ```bash
 magnet:?xt=urn:btih:BC2BC081B3AE11CD2BA4ABEB8CDE03CDB08DFC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ VA - Armin van Buuren - A State Of Trance 1223 (2025) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:637B8DE87CC3EA70A2521CD5C0B4F4C3508058C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Eluveitie - Ànv (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:4C284DA8214C350635BD8C08A45D01407C2C484B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ VA - Made2Chill 1 (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Downtempo, A
 ```bash
 magnet:?xt=urn:btih:77A7710914664ABB79440872630D67C8D651C2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ VA - Groove Paradise (The Deep-House Collection), Vol. 4 (2025) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:8B010FE614905AA272080B27459140C686AB2236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ VA - Deep Trance Showcase V (2025) [MP3|320 Kbps] <Trance, Progressive, Electron
 ```bash
 magnet:?xt=urn:btih:966A6BB743625565F790FECE61B9FD0CD9B7690B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ The Flower Kings - Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5DC59878CDD8BD14AA3EE5FF3AD563F1468716CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15E3A4B8DF5D5449F7F4BF1EDCF4B3D0DA2A9C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ VA - The Sound of 2025, Chapter 4: Paris (Day Mix) (2025) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:207541438D202DBCD96195FF4FF827C8EDCB62BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ VA - Afro Beats Summer Selection (Deep Strips Records) (2025) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:FB064182460744FBDEF613CAE8B59007AF4A58F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2842A919510997FB1AD8B1AE561A5B2E3804DE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ Crematory - Destination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial
 ```bash
 magnet:?xt=urn:btih:51F271CC63CED88008F2AE660B5687D81686E0D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:783D9E42D7282AD6CAC88D9BFFCC8B83A5C00C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3589E1EEC63BC52ED23B46B503F21B6008F2F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B60E5F02A0B2C78405DCAA08C93075F4ED211CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

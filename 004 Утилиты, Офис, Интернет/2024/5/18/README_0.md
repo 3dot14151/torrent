@@ -19,8 +19,7 @@ Quick CPU — это приложение, разработанное для т�
 ```bash
 magnet:?xt=urn:btih:546CD4A7572FA1903F706B0156B9E498FB5620FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

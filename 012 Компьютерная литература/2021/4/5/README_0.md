@@ -20,8 +20,7 @@ PyTorch – это фреймворк от Facebook с открытым исхо
 ```bash
 magnet:?xt=urn:btih:B6D8F294B53B41446DCF4CDD948D76F1669065AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

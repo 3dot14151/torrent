@@ -19,8 +19,7 @@ Dungeon Defenders: Awakened — это кооперативная игра Tower
 ```bash
 magnet:?xt=urn:btih:D1F538A421961451ED480F8949A5D1889385FB63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

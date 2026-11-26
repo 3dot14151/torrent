@@ -23,8 +23,7 @@ Geordie - Unreleased Tapes (2005)[APE|lossless] <Classic Rock / Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ VA - The Ronnie James Dio Story. Mightier Than The Sword (2011) Japan, Universal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Dreamscape - Everlight (2012) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:A940BA60496847A6A991F794415D2788FD533546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Crimson Cult - Tales Of Doom (2012) [MP3|320 кб/с]<Epic Heavy Metal, Power Me
 ```bash
 magnet:?xt=urn:btih:8DF82CE94BC15259D8E2EF795A575D18E4B4E356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Amber - Amber (2012) [MP3|320 кб/с]<Sludge | Post-metal | Post-rock>
 ```bash
 magnet:?xt=urn:btih:81567923FCB8A556C040EDD06A94B5A7B010A5E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Ceremonial Perfection - Alone In The End (2010) [MP3|320 кб/с]<Melodic Death 
 ```bash
 magnet:?xt=urn:btih:AF833051B1FE466E93ECC9C4B0E33BEE06094E0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Crimson Cult - Tales of Doom (2012) /2012, Pure Legend Records/ [APE|Lossless]<H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Crow'near - Full Moon Fever (1992) [MP3|224 кб/с]<Thrash, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F54FC069AAA666BC1847789397F43AB88F5A0F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CA8ACF06B499B7CE1A943675C3625174F6D4E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ Trans-Siberian Orchestra - Beethoven's Last Night (2012) [FLAC|Lossless]<Symphon
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AAF2D49EA8DEDA3366E08F7F0EA2030810E5E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Arch Enemy - 9 Albums (1996-2011) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:AAB37094781420E2197CED9437FC2DB06D6F7D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +411,7 @@ Nightwish - Imaginaerum (Tour Edition) (2012) [MP3|320 кб/с]<Symphonic Power 
 ```bash
 magnet:?xt=urn:btih:33B461C1644D222F22291C5B437FCD2F12D34AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +445,7 @@ Alabama Shakes - Boys & Girls (2012) [FLAC|Lossless]<Southern Rock, Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +479,7 @@ Running Wild - Shadowmaker (2012) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:A3434DDD04C016350E3FD6D1C278A6945E6159C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

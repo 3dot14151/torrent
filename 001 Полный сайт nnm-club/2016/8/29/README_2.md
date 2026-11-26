@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E22844A1060049F0786454955E35C391AD504109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Breathe We Love The 90s (2016) [MP3|320 Kbps] <Dance, Hip-Hop, Rock>
 ```bash
 magnet:?xt=urn:btih:0DD8128D6E825F263EB3CC2D2B94BC9522436779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Vintage Electro Jazz (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:C10B34461D160327D4F854FAFAF026112E4159B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Дальнобойные и убойные на Шансоне. Сборн�
 ```bash
 magnet:?xt=urn:btih:2835E6368839AA75374AE34F2172C252FB618827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ mSecure 3.5.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5574BE11A822ED9113AFAEC3315C346066C09B43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Beyond Compare - мощная и одна из лучших программ д�
 ```bash
 magnet:?xt=urn:btih:16299D5CC76C05761C8D3CA5A230CD38D00D15AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Bossa Nova Groovy Chill'n'Lounge: Smooth and Sexy Instrumental Music for Ma
 ```bash
 magnet:?xt=urn:btih:CF82684BBB0336B87082932EA872CB91F6C8A2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Атмосфера Мелодичного Драмчика (Sound Clinic - 
 ```bash
 magnet:?xt=urn:btih:60A92C847E844CC544E78C2458630DE91F2E70DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ VA - The Very Best Jazz Instrumentals (3 CD Box Set) (2015) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:17EA00B3F90A1763746582572185797EBA25B0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D43D5FBBEC24FB0EEFC3CEF22B28AB709BA412B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Liz Longley - Weightless (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
 ```bash
 magnet:?xt=urn:btih:C981C55F1D31716CA4DFEE1E64014C042A3A575C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C80F168399048B23BAB20683D9A6670C922B51DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C076CCAF322A50D34FE924887F56509A9E97387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Album Player предназначен для составления и прос�
 ```bash
 magnet:?xt=urn:btih:088864D2F89957F8EB7FA6D124D1D8EA7F918D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Courtney Marie Andrews - Honest Life (2016) [FLAC|Lossless|tracks] <Country, Ame
 ```bash
 magnet:?xt=urn:btih:2825629EFDA3A516C081FB09EDEA5B4A5692EF16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ VA - Авто Хит от радио Шансон 7 (2016) [MP3|256 Kbps] <Ша�
 ```bash
 magnet:?xt=urn:btih:7F2522C351FBC4E118DA83CDDE610B3047C46891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:350AD3AD5C0D0A58509B20A9E3A113DAA69F8096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20CB4834473886CDB015ED498810FE53084A03AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D84EFAC682743EAADE6CDDAA14F9497F0BDDABD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ VA - Хитовый бум. Сборник 2 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:390DBA4DAF3B0403AB3ABAC1FA0DAA7578B7A5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4F98201721A79AB585CD0B6CB7B8916B1F9F232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ VA - Реальные пацаны (2016) [MP3|320 Kbps] <Pop, Hip Hop, Soundtra
 ```bash
 magnet:?xt=urn:btih:0A3E0A2FE32CD8C7FC8CC1DD57E1E2B488BB0503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ Flip PDF Professional — это профессиональная версия �
 ```bash
 magnet:?xt=urn:btih:3037D9D9B029AF0CB0BABE4C010293605965605F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ iExplorer - приложение, позволяющее переносить м
 ```bash
 magnet:?xt=urn:btih:6F376E49ED741B0BE8F0CE37E498C4EA08320348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C99B2DB8C39296E689AAF7FFB956B1CD8328FBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

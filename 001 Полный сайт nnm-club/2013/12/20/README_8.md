@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F945BD4242C43E0670C5D10BEE4017F37DBEC271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F9A6A7E080827EDD8CB29240FF8EBA58A0D0D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CrossOver Linux 13.0.1 [x86-x64] (deb, rpm, bin)
 ```bash
 magnet:?xt=urn:btih:902A2570F6922C2DD7B5CFE865D09C12D52C3EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FC86D3A5B5BAD676C53FA3327DA23BC0152F4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97A795F8818A297EE039C42045B716180C46FC08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C30B0C0A0645A043219C07812FF0FEB2FF57479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AD750B624DD1E1ACA839E205D70016B9907169E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19CC790C73A901A2EA99932D694087D2D39E0717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Ad Muncher - предлагает вам новое быстрое и качес
 ```bash
 magnet:?xt=urn:btih:E6CB7C0E01D74C2CC01B083B57E97A5651AC67D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Paragon Partition Manager - приложение для работы с разд
 ```bash
 magnet:?xt=urn:btih:0ECF7A1070735CB32D6E009EAAB0E926E5F0C9EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Neighbours from Hell 2: On Vacation / Как достать соседа 2: Ад
 ```bash
 magnet:?xt=urn:btih:B3C84C543C7E52EC72F7F815C41790A0BCBDF2B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Pinnacle Studio Ultimate 17.0.2.137 RePack by PooShock [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D140C6951E758BDDD808C1FBDAF7BB580F0BDED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ AMD Catalyst Display Drivers 13.12 WHQL + Mobility [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9A2EBA4489597CA618F7227B9C8909B0A1386613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Va-банк / Runner Runner (2013) HDRip [Line]
 ```bash
 magnet:?xt=urn:btih:47FA779FBA58E1E1E8F394E29C77746F689377E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47CDC9B9C6C7A7CE7846A33B81B4CD955A1AA99C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Neighbours from Hell: Revenge Is a Sweet Game / Как достать сосед
 ```bash
 magnet:?xt=urn:btih:F464E659BFF73D84EDA916A46D0707CB05083E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7494428AF76DBE0A82C60364BC3EF33D0691919E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ Grand Theft Auto: San Andreas (20.12.2013) <Ru/En>
 ```bash
 magnet:?xt=urn:btih:49BE2BBAEC1B634C5D17A2776EAF045E3380E248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ Microsoft Office Visio 2007 (SP3) Portable 12.0.6606.1000 [Ru]
 ```bash
 magnet:?xt=urn:btih:6F0252A8BF2C26B6D96D6C4668F349903801CEF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ The Sims 3: Store (2009-2013) (19.12.2013) Repack mitya01201 [Package]
 ```bash
 magnet:?xt=urn:btih:B829B54F9241C9D832BBFECBD3358AB664236745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:FE8EB18EAFA5FD82876B0DCEF86C0EFCEB8322E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

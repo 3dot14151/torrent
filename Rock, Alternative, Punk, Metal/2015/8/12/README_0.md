@@ -22,8 +22,7 @@ Jackdevil - Evil Strikes Again (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:337240150512A3AF1A856C6732170EBF1545B32D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ ON AN ON - Give In (2013) [OGG| 437-595 кб/с]<Alternative, Indie, Dream Pop, 
 ```bash
 magnet:?xt=urn:btih:8A1ED9C5E4FD516361790550E2499A254B2F6F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ ON AN ON - And The Wave Has Two Sides (2015) [OGG| 459-517 кб/с]<Alternative,
 ```bash
 magnet:?xt=urn:btih:BB2159E4A91073913406E4424D8328187A24C6E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Legs Diamond - Legs Diamond (1977) Remastered /2007, Diamond Records/ [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:A6893A464E8541D2666BAB6FF5AB3EBF86AD97AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Styx - Live at the Orleans Arena, Las Vegas (2015) [FLAC|image + .cue]<Classic-R
 ```bash
 magnet:?xt=urn:btih:C41E7CA4DB09130906B1E17AA1C4BAFC805AA9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Gun - Gun Sight (1969) Remastered /2000, Repertoire/ [FLAC|tracks+.cue]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:D6DA89AD36AED0D34B3DCB0FBFFA3147C22623AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Animal In Me - Words and Actions (2015) [MP3|320 кб/с]<Post-Hardcore, Fem
 ```bash
 magnet:?xt=urn:btih:7D9B548DD7E37F9B17A36F600144ED5B9019E8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Liorinkarmic - 6 альбомов (2014-2015) [MP3|320 кб/с]<Post-rock, Exper
 ```bash
 magnet:?xt=urn:btih:7C139AC2D887F600A8C82960FE87409FEEA3C412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Grateful Dead - 20 Albums (1965-1989)The Golden Road Box Set+Beyond Description 
 ```bash
 magnet:?xt=urn:btih:C1115BDEDFCA5A81020B35FC1B17249CCD4045E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Aeon Of Horus - Existence (2014) [FLAC|Lossless|image + .cue] <Progressive, Tech
 ```bash
 magnet:?xt=urn:btih:8EAC5CC93F236B795E6631C1A24ED0C4BF97C6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Mercury Tree - Permutations (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Cro
 ```bash
 magnet:?xt=urn:btih:22ABF39F0057279AFB09118C23FD42277E42B935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Paroni Paakkunainen - Plastic Maailma (1971) 2010,  Rocket Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:E07A6DF272C0749AAFCFE5159C4CA68E335FCF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Marcus King Band - The Marcus King Band (2016) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:640A8111D5330FD44D4B4DF8BC7D3E9135E27C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mad Mamba - Pure Venom (2017) [MP3|320 Kbps] < Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A06F8F8DE73333E1BD629065218C87AB624154A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Wolfchant - Bloodwinter (2017) [MP3|320 Kbps] <Folk Metal, Pagan Metal, Viking M
 ```bash
 magnet:?xt=urn:btih:607FBF229512AA6F22EF6BECC54611B6B41578A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77A70290D4FA154B74D0135CCBA77B4025323D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Chicago - Twenty 1 (1991) [FLAC|Lossless|image + .cue] <Soft Rock>
 ```bash
 magnet:?xt=urn:btih:A08FC409E29DFAE9F366BDCC315FAC91F6B65B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The xx - I See You (2017) [MP3|320 Kbps] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:23768D2AF976F4226C6062E902A873B237013B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Accept - Restless And Live (2017) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9B25E07E001FAF88172F96D6FD73CEDEFA30C279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

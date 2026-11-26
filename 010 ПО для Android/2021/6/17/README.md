@@ -19,8 +19,7 @@ AUG Launcher - удобный, многофункциональным и быс�
 ```bash
 magnet:?xt=urn:btih:619011FD593060253BC7DE825289E5B25A02ACAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ultra Volume v3.5.4 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:031B5EB54CCB1C9A529CC189ACC53B0319EA29C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

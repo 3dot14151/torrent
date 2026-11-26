@@ -22,8 +22,7 @@ Chicago - Chicago 18 (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz Rock, Po
 ```bash
 magnet:?xt=urn:btih:59427E2D6D8AFAD4414B3CC395EF1BEDED7202D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Панорама '86. Фестиваль Молодежной Популя�
 ```bash
 magnet:?xt=urn:btih:8B7FFCD0A042F5FA8510E62DDD365E37765DC87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

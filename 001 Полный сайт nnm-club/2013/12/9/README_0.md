@@ -27,8 +27,7 @@ Caroline Henderson - Lonely House (2013) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:B19FD5FF883EF8FA39868562D1CB9BF002CF66E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ DJ Цветкоff - Танцпол @ Record Club # 249 (06-12-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:B14A38CBF2864B88B8742278312648157E9192E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Rebecca Martin - Twain (2013) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:5DA079DFB0C5E64DBB00F0C107BDFB0E75BE364E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Erin Boheme - What A Life (2013) [FLAC|Lossless]<Vocal Jazz, Рор>
 ```bash
 magnet:?xt=urn:btih:37FC13EA2377AE4728E03225E10786AB0611B062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:658217BB350D296B5B6F3DCF057C7FBA565F1E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Lolas - Pantera Territorial (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:98E479DAD419662417826C305BD4F83748391171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18D3892D2B22C9FE186EC04D6C45E96140812C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ DJ Цветкоff - Танцпол @ Record Club # 250 (07-12-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:7E8D4FBC189C1E3DE87B74E5AA6C08E2F8EC6D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Janne Schra - Janne Schra (2013) [FLAC|Lossless]<Vocal Jazz, Jazz-Pop, Indi Pop>
 ```bash
 magnet:?xt=urn:btih:63D26782BFD15FB824EB22A94A68EA69F060FF0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ VA - Trance Desire Volume 41 (Mixed by Oxya^) (2013) [MP3|320 кб/с]<Vocal Tra
 ```bash
 magnet:?xt=urn:btih:00BABB854CEE3AB8248FE36D45444F47C4DB1730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A13DD60FA7490DADBBDE557546E797182899D4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:019C695EFBFC287A81A40B071BEAA87106C330BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DA203190DDF7B56B720AA96B878D85CEC1C840C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ Elvis Costello - Secret, Profane And Sugarcane (2009) [WavPack|Lossless]<Rock, B
 ```bash
 magnet:?xt=urn:btih:CB0BE5539EB93AB0C0657AFB40C2894861231940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75D1F55402D778249B7010953277D7731D7CB096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31F979F3B3A117A2EFDA32B80D9999CBFEBDCAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:493B58D640E94A223F4731C473D4B6B83E4727AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ Timewave - War (2012) [MP3|320 kbps] <Progressive House, Breaks, Downtempo>
 ```bash
 magnet:?xt=urn:btih:982BC05F5A06C756902AD08115311EB98F027F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CCDBE86DC5655B229B1117ECE060474147BA31E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ LPF12 - Reconstructing A Sense Of Loss (2011) [FLAC|Lossless|WEB-DL]<IDM, Ambien
 ```bash
 magnet:?xt=urn:btih:92C75EE1B62B6B3AFB6D169E589F3E4CAE1D4F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +630,7 @@ Keldian - Outbound (2013) [MP3|320 кб/с]<Melodic Sympho Metal / Power Metal>
 ```bash
 magnet:?xt=urn:btih:86960C3531420B51DD64108BAE9AFBDB1282310A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +664,7 @@ VA - Sensual Beings Vol 3 (Seductive Music & Sexual Desires) (2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:50B98E025881CD8976D834E13BB715700B58DC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +723,7 @@ VA - Mas Mix Que Nunca !!! 25 Aniversario (2011) [MP3|320 кб/с]<Italo-Disco, 
 ```bash
 magnet:?xt=urn:btih:026280B36215AFBF2864D41A984A606E656DF475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2E603171396978091E68F0FC0DD8A046F054396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -799,8 +774,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD07C938AD242E6FF5721D92535684560726E6A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

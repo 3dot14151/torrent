@@ -20,8 +20,7 @@ Unfinished Tales. Illicit Love Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:64C761400BE155207ED807F17A02D25A48133E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Abyss: The Wraiths of Eden [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:72083B9D2CD7D46DDEA9876BD9717CFA6E1A6C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Twilight Phenomena: The Lodgers of House 13 Collector's Edition / Сумрачн
 ```bash
 magnet:?xt=urn:btih:FBDF807869F21946A047650845C337D26460AB7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (Repack/1.0.0.0.u.1/2 DLC) 2012 | R.G. 
 ```bash
 magnet:?xt=urn:btih:83173E96362DA0CCBAB2D20C628FD0F9CF53E7A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Forbidden Secrets: Alien Town Collector's Edition / Запретные Тайн�
 ```bash
 magnet:?xt=urn:btih:E602A694F9A7C3590C55D43B29A65151ED6872A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Farming Simulator 2013 сочетает доступный и интересны
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Hunter's Trophy 2 - Europe [En] (L/1.0) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:773CC28FF6B97264B4728B7F598F5361F0C17A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Narco Terror (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:27E6E33419D611F7C18D1387C87E5108FAA004A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Elder Scrolls IV: Oblivion (2007) [En] (1.2.0416 / 2DLC) License WaLMaRT [Ga
 ```bash
 magnet:?xt=urn:btih:9C57CDEC64C21199B220D17DB14EB9010487BC88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

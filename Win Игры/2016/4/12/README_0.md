@@ -19,8 +19,7 @@ Jet Set Knights - олдскульный экшен-платформер с эл
 ```bash
 magnet:?xt=urn:btih:14A5A149C69DF01E899AEAF8BFCD8FB9310F258D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Julai (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:6099F2335F42E234A349EFD7B39EC16FC238E17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

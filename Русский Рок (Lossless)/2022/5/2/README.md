@@ -19,8 +19,7 @@ Vector Of Underground (Виктор Андеграундъ) - 5 Albums / 2 Singl
 ```bash
 magnet:?xt=urn:btih:DB470A5BBB963BB9B7BB4ADCFE20A1B0B4CC8690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

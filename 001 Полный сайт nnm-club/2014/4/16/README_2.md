@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6752E10AA99AF389C70F0453B68ACE100383C2B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Part Two: Prophecies(   Читать дальше...   )Жанр: Prog RockПр�
 ```bash
 magnet:?xt=urn:btih:52B0A319FC87B12AD2B483C1C425268F83752DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Lee Bannon - Alternate / Endings (2013) [FLAC|Lossless]<Drum'n'Bass, Jungle, Bre
 ```bash
 magnet:?xt=urn:btih:4FA741C7BED297891ADE6C00EDDFD17EB3560380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ OS X 10.9.3 Combo Dev Update (13D43) [Multi/Ru] (Installer)
 ```bash
 magnet:?xt=urn:btih:F4F544AEF65EE8A10BB32DE508026C4E769D0417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Mail Pilot выгодно отличается от Mailbox тем, что по�
 ```bash
 magnet:?xt=urn:btih:D1E7267C2A010776C7FA996AE1DD4EB2E09C823D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EDB886CB72ED8836A85A7F7ABD2064084372E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ CherryPlayer - бесплатный мультимедийный проигры�
 ```bash
 magnet:?xt=urn:btih:F145BB922CA43BFA74BDFA8385BA31F6A8CC90B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:267851C90251ECA67080DDB5B8C973099A166047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ VA - Top 100 MTV. Март-Апрель (2014) [MP3|256 кб/с]<Pop, Dance, Clu
 ```bash
 magnet:?xt=urn:btih:02129043228735DC2B5369760F3E71C65E963E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ NG: Последние тайны Третьего рейха: Семья Гит
 ```bash
 magnet:?xt=urn:btih:835ABC74E72715DF26EC734EE003B1BD3853532C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F146BCCAF9377BE8DFBD9EB1E27112BE2DE1D3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:650A36C91208858A399D0D78BDD8C0A7421E119F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69701B30660DEAFED084FD9C5D598D428D89F532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6C71807E2F66BDA83D6B35950B05058D8E12DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D49DAACB8263BF67385E5DEAD68F4A4FC36C1414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Java Runtime Environment (JRE) - исполнительная среда соз�
 ```bash
 magnet:?xt=urn:btih:8A80A9D7EEC77B8F24D2BCE7F1AB36E853400E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Google «наградит» защищенные сайты
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ VA - В Машине С Радио NRJ (2014) [MP3|256 кб/с]<Pop, Dance, Club
 ```bash
 magnet:?xt=urn:btih:8978DE4AEF66FDF461F16F4EB897E6592F5EDFA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF9655F91DAAF52B244700633E5AEB3A4E14C53B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Windows Repair - инструмент все-в-одном для ремонта
 ```bash
 magnet:?xt=urn:btih:D2AE213CAF04C2C9A9BB8102ED8A157AE8591A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Duck Sauce - Quack (2014) [MP3|320 кб/с]<Electro House / Indie Dance / Nu-Dis
 ```bash
 magnet:?xt=urn:btih:AB604F3E50C1BA9BCAE3DBD0CB49F7525B158933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ The Menzingers - Rented World (2014) [MP3|320 кб/с]<Alternative, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:EA33B2FAB682F375CF33308697B5BEFDF60A8985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:584018F35948D60441AD123AF435558405693938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9730FE7D9F0592A10CF9B4D3355DAACC52451549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (15.04.2014) [JPEG]
 ```bash
 magnet:?xt=urn:btih:85C42162F57EA040A7E2B9061CF5A60FF5C9E020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ iSpy — это довольно интересное решение, профе
 ```bash
 magnet:?xt=urn:btih:54862A90AA73905A82CB506C5AC101A4E7E6E983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Nailgun Massacre - Backyard Butchery (2011) [FLAC|Lossless|image + .cue] <Death 
 ```bash
 magnet:?xt=urn:btih:B7AB377E1E764F3A304FA95CEF6DC6DD78C56EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Akrotheism - Behold the Son of Plagues (2014) [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:4FDADD19D676CE05C131AEE4D75328CD35D94C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Beatrik - Requiem of December (2005) [APE|Lossless|image + .cue] <Black Metal, D
 ```bash
 magnet:?xt=urn:btih:4685962F8B9AD651F3BC8AC3492495FFACFFBE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Psycroptic - As the Kingdom Drowns (2018) [WavPack|Lossless|image + .cue] <Techn
 ```bash
 magnet:?xt=urn:btih:B0DEE24A302C286CE9D1244033E23CF6C6244DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Julie Laughs Nomore - From The Mist Of The Ruins (2001) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:CF33F9D3DDAE92773464AC649EE156FD8221CFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Northlane - Discoveries (2011) [FLAC|Lossless|image + .cue] <Metalcore, Progress
 ```bash
 magnet:?xt=urn:btih:09962CB96FF539986ED76A32E78A1C961A645EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Astronoid - Astronoid (2019) [FLAC|Lossless|image + .cue] <Melodic Progressive P
 ```bash
 magnet:?xt=urn:btih:2078CAF1430FF1E5F57D9A70AD056C269F3BD08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sammy Hagar - Past Masters (Japan compilation ) (2002) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:3574E47318EB9D0378C1ED4CF8E5F6617CEE32AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Tyrant's Reign - Tyrant's Reign (2004) [APE|Lossless|image + .cue] <Speed Metal,
 ```bash
 magnet:?xt=urn:btih:9F51BF7CEAAC7FE1E9306CC358B278389E7BAFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Sacred Reign - Looking For Love (1993) [FLAC|Lossless|image + .cue] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:80EB98E3393B79EB625C494973F65D32FAA725BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Tony MacAlpine - 30 albums (1986 - 2011) Full Discography [MP3|128 кб/с - 350
 ```bash
 magnet:?xt=urn:btih:63EE21567CF2782CD045719016CCDA1A11ABFDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

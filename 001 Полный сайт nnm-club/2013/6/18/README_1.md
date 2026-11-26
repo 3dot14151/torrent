@@ -18,8 +18,7 @@ Dropbox — облачное хранилище данных, принадлеж
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Apowersoft Streaming Video Recorder является прекрасным пом
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Glary Utilities Pro - функциональный набор системных
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ SolveigMM Video Splitter – редактор для MPEG-2, AVI, MOV, MKV, MP4,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:757BF1A5F5FCA30D7FA20C6EDB0C2855254BC917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B95223E901FCF4CB28B1A9559280DBF9DBFCD37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - The best of Nights in Montecarlo (Smooth Jazz) (2013) [MP3|320 кб/с]<Jaz
 ```bash
 magnet:?xt=urn:btih:28A1376DAFFBD3490A9160A5A337125609757155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F62C7B51E773D568F90E1E53B81FB325F91D5CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ VA - Отдыхаем с любимой волной Хит FM (2013) [MP3|128-3
 ```bash
 magnet:?xt=urn:btih:857A675FCEA209FA8BC7C56AD5B481F39092F426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Digital Art (18.06.13)Разрешение файлов: 328х800-4000х2478Фо
 ```bash
 magnet:?xt=urn:btih:7C881E9F9065183152DB88FE30F156D0090014E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Wallpapers - Creative [JPEG]
 ```bash
 magnet:?xt=urn:btih:822C3497CE7B9B70F0996A026EFA57A11C2EA848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ VA - Club Dubstep №3500 (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:6842DD2201030E98119A06E1F8F0B8B74269F15B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCCF1CDCA43386D47DBE59C7FDCEC5A98A3F0EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ Dr.Web 8.0 Security Space Offline Update 17.06.2013
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Charles Aznavour - Chansons de Films (Песни из фильмов) (2001) [MP
 ```bash
 magnet:?xt=urn:btih:BAB6AC6AE508FCEA63D494350B5334539AEF32AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Ichigeki Sacchuu!! Hoihoi-san / Interceptor-Doll HoiHoi-san / Хои-сан - и
 ```bash
 magnet:?xt=urn:btih:EC1843B6F4DDB83565280FEA7D541DF749231E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +503,7 @@ VA - Лучшие Хиты. Сто процентов о любви. (2013) [MP3
 ```bash
 magnet:?xt=urn:btih:1FC76BF581DA82BA1E12E113935B694CFF5FA483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ VA - Exotic Lounge (2013) [MP3|320 кб/с]<Chilout, Downtempo, New Age>
 ```bash
 magnet:?xt=urn:btih:0BA0A626C290E7E599B6B557CDD146AC8C47578C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +596,7 @@ Mark Morgan - Vault Archives (2010) [MP3|320 кб/с]<Ambient, Dark Ambient, Sou
 ```bash
 magnet:?xt=urn:btih:9FCE29377FA27FB3B54821CDBACFABE8D30B55DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ Thomas Newman - Зеленая миля / The Green Mile (1999) [MP3|320 kbps] <
 ```bash
 magnet:?xt=urn:btih:E2C01B78C3A18B4920C1CCF980E1B5256E5634C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:452F7F3FD461FD34980E8BAD118FCDCF548EC3F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ VA - Ibiza Sessions 2013 - Ministry of Sound (2013) [MP3|320 кб/с]<House, Pro
 ```bash
 magnet:?xt=urn:btih:C63F8F213EAA85AA4E5A749DD2BC379FFADEB287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +711,7 @@ CD.1.
 ```bash
 magnet:?xt=urn:btih:40BE91100491833E1E75F5AFF0FA6BD4ECDF5252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E16895B5A4F7C2C97ED610E449CC0F25416FFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -25,8 +25,7 @@ Rampant Ultimate Design Elements Sampler Packs offers over 2GB of FREE design el
 ```bash
 magnet:?xt=urn:btih:8C830F83A34AAE4188E7F3B74FA795D3ACD72760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D7E53B2A67DE0B4B31F569366B5BE002B457CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:599D179C81CA0518B4072F90CE29BA5610618A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6428620581B890C49591E98253675BDF93FEEB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Yoroiden Samurai Troopers / Ronin Warriors / Чудотворные рыцари
 ```bash
 magnet:?xt=urn:btih:7F01C0787DB746BDD47E23575182B999ED836E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Borderlands 2 [Ru] (Repack/1.0u1) 2012 | R.G. World Games
 ```bash
 magnet:?xt=urn:btih:906ADB25F0147BCF54514E2E2F5EA6B2667460D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ S.T.A.L.K.E.R.: Тень Чернобыля - Dream Reader «The Leper Area» [R
 ```bash
 magnet:?xt=urn:btih:09394F790A76282087AFA9B6730E8752D3849CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Might & Magic: Heroes VI Gold Edition / Меч и магия. Герои 6 Зо�
 ```bash
 magnet:?xt=urn:btih:88DF1D1947A34E1DA1B04F1DEE91F2F98D61609D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Spec Ops: The Line сочетает увлекательную сюжетную 
 ```bash
 magnet:?xt=urn:btih:D2FCD363D4BF744D5B5D8B119AAC29D018EE2B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ AutoCAD LT 2013 предназначен для разработки и дета
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Wolfenstein [Ru] (RePack/1.2) 2009 l R.G. Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ KasTrial - Программа для сброса триала (для мног�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

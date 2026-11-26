@@ -27,8 +27,7 @@ VA - French Kiss Cafe - Chill House Collection (2012) [MP3|320 кб/с]<Chill Ho
 ```bash
 magnet:?xt=urn:btih:A8C44C168BC8325067945965D13B0922CD03AEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FA675842C77AE00EAA7FADCC7BDAA5338E4ABA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Music For Everyone - Chillout & Lounge Vol.1 (2014) [MP3|320 кб/с]<Chill
 ```bash
 magnet:?xt=urn:btih:955620CB1FABFF67D2F534A7204B9B5594FF649B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:929A42675381117BD7C3A6865222FE821303682A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ cEvin Key - Music For Cats (1998) [FLAC|Lossless]<Abstract, IDM, Industrial, Exp
 ```bash
 magnet:?xt=urn:btih:3DAB8D3DF3E2C7427C7EC512BD95F1157C24B959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AFC7684AD082AE8497BE25FECA575D1F12A33B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3E75DA10D202E68C86A1871B000E7EE124EC5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ VA - Jump in My Car. Bass Pimp Vol.1 (2014) [MP3|320 кб/с]<Dance, Club, House
 ```bash
 magnet:?xt=urn:btih:226FE104791EFB2DD2D9CA19BB79CEDF171C8FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Souldrainer - Architect (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:B64BEED8DB69D97027054EDDB6D0703A23D9F44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C4DF69368C2A72F1C61DBFC61BBFDA65E49A6EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:957D9BD668874FDA0C3D3905F35B55E5DAF3472C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ VA - Armada Ibiza (2014) [MP3|320 кб/с]<Uplifting Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:8DF74B954FB90693B63C201DF568E7BFAC853410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ VA - Buddha Sounds - The Complete Journey (2014) [MP3|320 кб/с]<Balearic, Dow
 ```bash
 magnet:?xt=urn:btih:B79879C95B657E54A19C5D7A3B57964A68E5193E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2ED0FF2D4561E33951080AB3B024A58F281932B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ VA - Madrid Music Days (2014) [MP3|320 кб/с] <Tech House, Techno>
 ```bash
 magnet:?xt=urn:btih:DE1518CD47420EBCCFCA65603F8F5192FD040F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ Dynazty - Renatus (2014) [FLAC|Lossless]<Power Metal/Progressive/Heavy>
 ```bash
 magnet:?xt=urn:btih:2BD68B95B76F4E06D177599F1D53246C9D5BD742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD5EBC11150FBF583CA28D1A7E7477184B7074E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F85E3FB3637E88B198F1550D20029674FF214F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ Comedy Баттл. Суперсезон. Выпуск №8  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:1AE8D140A9619F4694FD3A3A1DA50991F6D65521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ David Newlyn - Disintegrating Suburban Dream (2014) [FLAC|Lossless]<Ambient, Dro
 ```bash
 magnet:?xt=urn:btih:47CE532894159FDD85543B1BA076390FDEF6B929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ NG: Авто. S.O.S. Серия №9 / Car. S.O.S (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:40D02397973F859C461DB99E92FA836BFCD0864A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ GeoGebra позволяет напрямую вводить уравнения �
 ```bash
 magnet:?xt=urn:btih:10D5C7CD12B175CC064082B20D82EDCEF4C68F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ Reset Robot - Let Your Soul Outside (2014) [FLAC|Lossless]<Tech House, Deep Hous
 ```bash
 magnet:?xt=urn:btih:05CF1BD84F1CBD38809D653A02A7538DDEF0B5D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ VA - German Top 100 Singles Charts (24.05.2014) [MP3|~256 кб/с]<Dance, Pop, E
 ```bash
 magnet:?xt=urn:btih:2D890F557302A0AA85981A9DC7E6BF31B84A29E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11184AC4E727720154A4584C0CD54D929B15121C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2EC4A807DEAE07391632A9318E41D18EB332001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

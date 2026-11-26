@@ -19,8 +19,7 @@ Pharaoh + Cleopatra (1999) [En] (2.1.0.15/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:23126A7E3FAF3CA0E20AE73218CDFA8226871AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Thalarion - Hellium (2004) [WavPack|Lossless|.iso.wv]<Melodic Death Doom Metal>
 ```bash
 magnet:?xt=urn:btih:6F26F23F95558D12BDCA379823FE1F398007A8B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Bucovina - Sub Stele (2013) [MP3|320 кб/с]<Folk Metal, Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:533298589FCBB4BA5CD0CFC892E355193340FD3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Led Zeppelin - RetroActive Promo Box Set 3CD (2001) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5DFF210736671FFD4262AE379FDDA8CF1229726A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

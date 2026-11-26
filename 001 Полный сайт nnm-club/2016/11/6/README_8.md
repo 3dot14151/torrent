@@ -19,8 +19,7 @@ Adobe Premiere Pro - это мощный, настраиваемый редак�
 ```bash
 magnet:?xt=urn:btih:9AAD36E1EA5551720F02A266C88D279F2351A9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Adobe Photoshop - это комплексное решение для профе
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA5FC0A82DD4D56B0E76E4B14E23E8D66429957A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ StarCraft 2: Legacy of the Void - это третья, и заключитель
 ```bash
 magnet:?xt=urn:btih:67DFB8E0A6FD7885A3C9C03DDCAD5A08F0410DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EEA790925CCCB5B910ABDC7555E023B200CF7AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85AB0DFF5D6C6473C5D254C7750D81BE83082459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30C094F4C9011BDBB7A6BB2B30AB9A7F1CB0FD44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CA0F70459ABE3927F5DAE581F1E17E308E1FACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ VA - Tech & House Vocals Outstanding (2016) [MP3|209-320 Kbps] <Dance, Club, Hou
 ```bash
 magnet:?xt=urn:btih:7BA17972E18E051C228405AE4EE10F510336702A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DC85D9B160AF89913194E48FA00E239D814AB94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ VA - Night City Ambient (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:EB6B89F69C26F7705ECCFC85177F6961DAB0D9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD60B5FDC8F34BB37232BE600CDEC8CD7AD29588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ VA - Freshly Brewed Vol.1 (Fresh Lounge & Chill Tunes) (2016) [MP3|320 Kbps] <Ba
 ```bash
 magnet:?xt=urn:btih:6A7D126DDEBBBBF3CAF4D0F8B528C8326C360E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Laurent de Wilde - The Present (2006) Nocturne[FLAC|Lossless|tracks + .cue] <Pos
 ```bash
 magnet:?xt=urn:btih:5690F08CDB350ADF69BFF8780BE94D4817B3A736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Cannonball Adderley - Nippon Soul (1963) 1990, Original Jazz Classics[FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:D8F5A156E09C1913C5EF31EDD531659569B68242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ VA - Cross Extended Funky House Mix (2016) [MP3|255-320 Kbps] <Club, Funky, Prog
 ```bash
 magnet:?xt=urn:btih:F6E7A3C930D82835DF63EF0EA60ECEAFFCAD8CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ The John Colianni Trio - Blues-O-Matic (1989) Concord Jazz[APE|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:147BDEF2F49CC46CA9F43C6A4F776796AEEDC0EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Art Blakey And The Jazz Messengers - Soul Finger (1965) 2009, Universal[FLAC|Los
 ```bash
 magnet:?xt=urn:btih:6530DC82F76ACEDABB71581983B101395C450CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ VA - Introdance: European EDM Mix (2016) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:B2EF40031453FEC16B3725729D2A5D05C63BCDA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ Wastewalker - Funeral Winds (2016) [MP3|320 Kbps] <Technical Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:8EAFE11206145CA838CD40B854E903D31A779B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ VA - Dancefloor Clubbing (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:17551023AD8EE15F52A4B58BFB5D678F94EAB170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AFA60829273B85E25463B925E375B8E2FB87D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

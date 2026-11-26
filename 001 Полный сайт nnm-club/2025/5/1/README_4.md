@@ -18,8 +18,7 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:AEEB1E158632FAD843D9AB8831E6C0DDD9200350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B75E985836190468B674F556C994D59E20F5EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ American (   Читать дальше...   )Производство: США /
 ```bash
 magnet:?xt=urn:btih:BE3108A675DC4EC585D4A6F4659A242F7F42EAF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ VA - So you... (Mixed and compiled by Kaatée) (2022) [MP3|320 Kbps] <Deep House
 ```bash
 magnet:?xt=urn:btih:170B181748B23918E46B10A4104B1AA9FBAF5A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:032F8670F96B0939101A78BAEBB537E00D4AB088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ VA - Music News For Forum vol.080 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:79D6891D19D7A35C3B55D3E8DBE383781FF900C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 ```bash
 magnet:?xt=urn:btih:8A356E8A9ED41857DE275F1E048E29C508CE9E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ PDFCreator –  бесплатная программа для конверти�
 ```bash
 magnet:?xt=urn:btih:29B887773C08E2C672B932C1ACD0F09138229D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC3E5EC4C244E85980CDFD0067B4CD1ECFB635BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A19F6682FE96B993A435D6F2701BFB241FB2C5B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ VRadio - Online Radio App v2.8.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F7AD7C01283813F9FEB5CBA45595294DD0F40DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3CE5F7D51468F2FA3EDDA0333ADE4A5A49401326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

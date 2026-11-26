@@ -19,8 +19,7 @@ HashTab - программа для определения контрольны�
 ```bash
 magnet:?xt=urn:btih:8DC7CF00C3C4CCB5A58BCDF5E3444F49C167A2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

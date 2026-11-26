@@ -19,8 +19,7 @@ Fantastic Four/4 (2005) [Ru/En] (1.0.0.1) RePack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:5A00031A8DF6DE0EB3B65BA9E44F99F8BFDA9A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

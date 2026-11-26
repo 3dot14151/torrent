@@ -19,8 +19,7 @@ HTTrack Website Copier - бесплатная программа для созд
 ```bash
 magnet:?xt=urn:btih:4A4B09940DC68AB57D53525C84212C0A66DBDDB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

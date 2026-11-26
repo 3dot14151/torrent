@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F3027472768A12DC420EBB435CAA547166C17A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BB56DEF6CDAE97587BB1CF41DC2481A12AB2F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Clean Audio Spectrum Music Visualizer - этот проект включает �
 ```bash
 magnet:?xt=urn:btih:35693E8DD7771A09106F9FAAD18AB25F85CD72AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BFE9F79DB35BFB4B9C96CBB6BCEA2E6D4AA9FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:B1B3A1F2B77C3DFBF63AE49C20231F19AAD93EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Steam Squad - тактический варгейм, где альтернати
 ```bash
 magnet:?xt=urn:btih:14A42DA355E47E761CFA41CDD6382D382F328569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Pokemon GO — игра в жанре дополненной реальност�
 ```bash
 magnet:?xt=urn:btih:DB1C255538F5995E738505C4755842AB50CA3764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B33169D3C2EEC75C2772260AD0582834EE14C18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Cлучалось ли вам сталкиваться со своим худш�
 ```bash
 magnet:?xt=urn:btih:C0FFE120EC54D326DA2DCD3326BEA69B7E80072C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ Victoria является всемирно известной 3D-моделью 
 ```bash
 magnet:?xt=urn:btih:0444C2F5DB3822CFE89910F5F57C24CBB4397453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4321EF4DF4881706145AE914821515E6DF075017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4658A6F311C9CA2DA1F7E578F6C45DC6EEB6BB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Angry Birds в кино / Angry Birds (2016) HDRip
 ```bash
 magnet:?xt=urn:btih:5DF1FEBB0B9E92F076C791BF4CAEDC950FDBF025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Angry Birds в кино / Angry Birds (2016) BDRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:B1CE22D322E864A2A449AC4A8C45431B573EFFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ Mac OS X 10.9.5 Mavericks VMware Image [AMD] [Multi]
 ```bash
 magnet:?xt=urn:btih:4A03CB5907BADF6D072D12073AB499BDB1407C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ VA - Дискотека - Хиты На Все Времена (2016) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:3767691D8E3D13E52569345F1546C80EAE70B273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Autodesk Maya – продукт для 3D-анимации, моделиров�
 ```bash
 magnet:?xt=urn:btih:FF997B115F5ECCB607E0364BE837DEC551898FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 ```bash
 magnet:?xt=urn:btih:1322B5EE0D8093012FE5270FD742E1BD35FE269A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ Windows Server 2012 R2 - это проверенная масштабируем�
 ```bash
 magnet:?xt=urn:btih:7B0EBE82E5DF93390EA62B7D2AC996D8F56B2343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ Underworld - это продолжение Diablo2: Lord Of Destruction, кот�
 ```bash
 magnet:?xt=urn:btih:C3CD87AD1F6B51DA3E7CDA77F99A9A1CD1C824B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FBEE64E7E61E3BD5A5B06E4A5BA107552931788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

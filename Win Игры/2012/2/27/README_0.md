@@ -22,8 +22,7 @@ Lunar Flight [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:941541151FEB403E6EBCE4C519CDE7E6D759F17B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 ```bash
 magnet:?xt=urn:btih:0C9BCB467F8F5A35BE8D06FBAAC1DAF5D2968FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Alarm For Cobra 11: Crash Time / Спецотряд "Кобра 11": Дорож�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Renegade X: Black Dawn - это однопользовательская мин�
 ```bash
 magnet:?xt=urn:btih:9797440DD7E0EFC2891CB12669F347E18EBE0614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Luxor Evolved (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:56E44D6103273BB327C00931925DAEE2FAFD6CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Chronicles of Mystery: Secret of the Lost Kingdom / Мистические хр�
 ```bash
 magnet:?xt=urn:btih:728C08CF5186D172F3C14F6E4FE3E9DEFAAF39B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Chronicles of Mystery: The Legend of the Sacred Treasure / Мистически�
 ```bash
 magnet:?xt=urn:btih:3268C72826B877B3A16D3627774D1AD243E4EEC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Cake Mania 4: Main Street (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:A2C361DA62C9EA6D8F325F9697BD90510BC370EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ New Yankee in King Arthurs Court (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:0B57A952EA289C7B762874E039789C1E772891EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

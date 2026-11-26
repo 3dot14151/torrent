@@ -19,8 +19,7 @@ Metro Awakening - это разработанный специально для 
 ```bash
 magnet:?xt=urn:btih:35AE6C782D42F18EE9DA041E46F9E81C46FD03BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Potion Tycoon / Магнат зельеварения (2023) [Ru/Multi] (1.0.8/d
 ```bash
 magnet:?xt=urn:btih:5737D5CCC6A250264C7757AADBD7B9762C59E8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.028) License GOG
 ```bash
 magnet:?xt=urn:btih:E9FE939E27A59F0604E718B8C75C6716B1E16557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ City Car Driving – реалистичный симулятор вождени�
 ```bash
 magnet:?xt=urn:btih:FC51BE3ECD91BEA950434C475B08A49A9C68C165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Goat Simulator: Remastered предлагает игрокам необычны�
 ```bash
 magnet:?xt=urn:btih:02F40C3EA2F2BB8EE37E2701AFE0B426F0DBDA3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Chicken Police: Into the HIVE! - увлекательное детективно
 ```bash
 magnet:?xt=urn:btih:BFA450AA4A302FFF1344209A93647DEBF647EEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Pine Harbor - мрачная игра в жанре экшен-хоррора, �
 ```bash
 magnet:?xt=urn:btih:948D2732BB94E4CCC84FFA68B1943E4094020BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dust to the End (2020) [Ru/Multi] (1.0.4.3) License GOG
 ```bash
 magnet:?xt=urn:btih:50E5CFA059C104785EACF7CCC8FA3A8134CAC7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0FDB855E32DB3FA0437AA39D16F573022D8E4E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Speedollama (2024) [Ru/Multi] (1.4.0b) License GOG
 ```bash
 magnet:?xt=urn:btih:CAE01A078A9FB6178120176DEF24BD5415253CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Goat Simulator: Remastered предлагает игрокам необычны�
 ```bash
 magnet:?xt=urn:btih:571FDE4B10563578F688976E04A7EC4B26FB7A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

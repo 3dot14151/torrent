@@ -22,8 +22,7 @@ Nightmarer - Cacophony of Terror (2018) [FLAC|Lossless|WEB-DL|tracks] <Technical
 ```bash
 magnet:?xt=urn:btih:0930DE58BBAD630E87FFC175D6259E4F222CC594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Codepoint for Mac 1.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:1940BF7F1471BFA2E14E2C45748E7D0F3D72E77F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Occulsed - Crepitation of Phlegethon (2021) [FLAC|Lossless|image + .cue] <Death 
 ```bash
 magnet:?xt=urn:btih:235ED3A0CBF5B9880876DA2D7A026C7324EE0657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Olkoth - At the Eye of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death 
 ```bash
 magnet:?xt=urn:btih:822BDAD7C0EAAEDCB817E500BBE04CC2958D6891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Inmundus - Primordia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, He
 ```bash
 magnet:?xt=urn:btih:D6CC50A9969E6F0854B481154A9455A71C69F571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Occulsed - Parturition of Adulteration (2022) Compilation [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:29DE5A84B093EE496604A4CA610359F1AAA30422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Gateway - Galgendood (2023) [MP3|320 Kbps] <Death, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:A9E9546E899379BC89FBD6784ABA4C05865DC446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ SponsorBlock — это краудсорсинговое расширение д
 ```bash
 magnet:?xt=urn:btih:661C574BAF40FFC73FB440675A76936079EBAEFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Colibri поддерживает воспроизведение всех поп�
 ```bash
 magnet:?xt=urn:btih:CBFDDE8FFB9DE5CF57C6DB5FD23E34B805BA2F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Seal Fur Peeling - Daggers Predacious (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 ```bash
 magnet:?xt=urn:btih:682BE6DF10EA66526FBDEC621A9B3E4452A969F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ PhotosRevive автоматически раскрашивает ваши ста
 ```bash
 magnet:?xt=urn:btih:97AEADE9DAFF0DAAC77E3A2ABA167AEF9F79B101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1586651FF3F6FC6E732E24F6746711C54C42AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ AI Transcription 1.8 [Multi]
 ```bash
 magnet:?xt=urn:btih:BB0D27D7D0A18809FA3B1AFCA7F26B7EDD4F988C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Anna Fiori - In ohtli tonalli (2017) [MP3|320 Kbps] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:06E654776E0C15D64E2BE230E8A6466B06E66AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ System Dashboard Pro — это современная интерпретаци�
 ```bash
 magnet:?xt=urn:btih:7EAEF32590CD54898A2C8249AE43D492CEF20274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92E4663D39C65D36D775FA33D77E39F0E826BEFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Ghost Buster Pro находит и удаляет файлы из приложе
 ```bash
 magnet:?xt=urn:btih:4D31535BC9FA054657889AA9417FA62CD9C38E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Anna Fiori - Magna Tonalli (Edición Especial) (2022) EP [MP3|320 Kbps] <Symphon
 ```bash
 magnet:?xt=urn:btih:53BEE97364D1D8CCE734CE4F903B23CDB2D02FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ Disc One:
 ```bash
 magnet:?xt=urn:btih:979D175F433EAA17FBC1ED275D9CA1B8FF985563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B45038FA06732715379C5F8058AA0DA3F0F300E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:EAF4D1066C2C31C28B70575E0AA4D929423CAB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Anna Fiori - De la Tierra (Un encuentro semiacústico) (2019) EP [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:58BD2AC44046FA873E42B034BAFEE48C1CE54F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ Microsoft сломает приложения, меняющие меню «Пу�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 31.07.2023) [Ru]
 ```bash
 magnet:?xt=urn:btih:3AB8C4007516EC079F9D10ACB833102667EEF930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:383D10BC8BDB2C132FAD861D1DA9823B57E01D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CEA1438AC93C60A22CE4B5F7ED581889B09F1D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

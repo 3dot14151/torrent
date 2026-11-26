@@ -22,8 +22,7 @@ The Brew - Shake the Tree (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Class
 ```bash
 magnet:?xt=urn:btih:2B7AFD4A63D6BCA307F5E552BB1817B67603FB48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nautilus - 2 Albums (2004, 2009) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D5E7AE78114C9484B59F032706D555B0DD506AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Katalina Gonzalez - Sin Paradigmas (2017) [MP3|320 Kbps] <Rock: Instrumental Roc
 ```bash
 magnet:?xt=urn:btih:72C70A02C73E3DFBE3EF72DD75AFB00B44E35583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fatal Fusion - Total Absence (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Crosso
 ```bash
 magnet:?xt=urn:btih:40B9AEB8B0B30AE73177A017BC24EA7D3292F26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Grave Digger - Healed By Metal (2017) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:FD99BE11C2754F5044370D5CABE2B96B683461FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Magnum - The Valley Of Tears: The Ballads (2017) [FLAC|Lossless|WEB-DL|tracks + 
 ```bash
 magnet:?xt=urn:btih:24D4A70D444578FE5A2E60754231CFC6F2A52A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Peter Cetera - One More Story (1988) [FLAC|Lossless|image + .cue] <Soft Rock>
 ```bash
 magnet:?xt=urn:btih:5F13BFE1075EF6557286F078B2D16F55FBB77A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ RPWL - 2 альбома (2015-2016) Live [MP3|320 Kbps] <Rock, Progressive & Art
 ```bash
 magnet:?xt=urn:btih:A8E82E5FAA4FEF09300A3FB6E89512E16579D25D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Chicago - 121 Albums (1969-2016) Discography [FLAC, APE, WavPack|Lossless]<Jazz 
 ```bash
 magnet:?xt=urn:btih:BC485BC1B0E1170A26DF690BE510B63327BEB7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

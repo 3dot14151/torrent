@@ -28,8 +28,7 @@ Simon Urbas & The Rusks - Dnevnik (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:31C37F1BCFCC577A640D3261D2FE90F945BDF2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Good Chum - A Gentleman's Hobby (2014) [MP3|320 кб/с]<Heavy Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:835E65FD07A3B3AC31D8B765B444258E26231C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Deep House V.19 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:149BFCBA56F3322CDA449051181AD9EC3EFAF47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Onkel Tom - Н.Е.L.D. (2014) Limited Edition [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:3DFDA7906A26C4903AAC5EBD868F17F8E53EF5DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - Deep House V.20 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:6EBB3ECF2A084E9EC845781E72B8CE4C968FF864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Paceshifters - Breach (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:BD512CCA86B4CA09E062551CACF499A00C4B83BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Gnome & Spybey - Three (2013) [FLAC|Lossless|WEB-DL]<Abstract, Ambient, Experime
 ```bash
 magnet:?xt=urn:btih:F4EB80C64C281A12C94486D689E1CD1ED2A70875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Mandatory - Catharsis (2014) [MP3|320 кб/с]<Melodic Death Metal, Thrash Metal
 ```bash
 magnet:?xt=urn:btih:D7A4188551324CEEF50D51E027B9B2E929A397E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Epicurean - A Consequence In Design (2008) [FLAC|Lossless]<Symphonic Progressive
 ```bash
 magnet:?xt=urn:btih:509CD7A834F26108DEDC7762EBF9399CE2A270DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +332,7 @@ VA - Клубные Новинки Vol.504 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:EC0295590264B8B9C15A563600015982F41B03AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +365,7 @@ Enthrope - Tomorrow's Dead Days (2010) [FLAC|Lossless]<Melodic Death Metal / Dar
 ```bash
 magnet:?xt=urn:btih:3B99DA402D61D04BC52E5CE1AF14B692226B1262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +398,7 @@ VA - Electro House Pro V.70 (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:BB4C5CD8BC61470B8D979FB837081C1E1D80F7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1D5BF795C6BB3CCD19E3F2390D6142FFA07A22E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +457,7 @@ VA - Southern Roots Rockers (2008), Vol.1 [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B9E47B836E96A8734193A043680BE18033A37453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +491,7 @@ Axxis - The Big Thrill (1993) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:974BEB3990ED0865C0B937CCFD2D8B04388DF8D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B9B80B7752748E0DDE3448B6FB401CEC7348DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +550,7 @@ VA - Electro House Pro V.69 (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:82735BE4BAD5DD84A4DF14DD6E5F4B301A7B0F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +580,7 @@ Rival Consoles - Sonne (2014) [FLAC|Lossless|WEB-DL]<IDM, Techno>
 ```bash
 magnet:?xt=urn:btih:9249656823677DD0A4EC2483A0FAF5E2AAAB1EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +613,7 @@ VA - Клубные Новинки Vol.503 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:F360CC4C9D72B8FD0D96A9B9A0C6FACD62E375F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C48FD851A196E1212CDDF641AFA244AAFCEF758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +680,7 @@ Ludique - The Road (2014) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Techno, Ambient
 ```bash
 magnet:?xt=urn:btih:7CAC5636D33D225C6A2B7EB6B490709D3613F24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F41CF51DE5CA46C509D539C9D8068360013D9A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +730,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57843C430DFC1DCD4541747368FB929715E40C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +755,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCD9F5C114756F2C268A71E7E58500DA0343BC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +780,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C826C0E894AFE201BD6B5EECB6235FE4C4C05C59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -839,8 +814,7 @@ Liz Mandeville - Heart 'O' Chicago (2014) [MP3|320 кб/с]<Chicago Blues, Blues
 ```bash
 magnet:?xt=urn:btih:B3D398B0E1A3BADB2ED597AE5A5DE8857D00D5FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

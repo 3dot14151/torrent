@@ -25,8 +25,7 @@ Adastreia - 1 альбом + 1 ЕР + 1 сингл (2005-2007) [MP3|128-192 кб
 ```bash
 magnet:?xt=urn:btih:45041D6C3388E6F98FE74B6BD1C258017ECBB220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Bajel - Heavy Metal Opera (2008) [MP3|320 кб/с]<Heavy Metal / Power Metal>
 ```bash
 magnet:?xt=urn:btih:93F565E8DFAA1BD9FE9B4C4553227B038A40A236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Mickey Hart Band - Mysterium Tremendum (2012) [MP3|320 кб/с]<Psychedelic Prog
 ```bash
 magnet:?xt=urn:btih:5D085FF29DB166C14ACCD02C60A57D07FF985F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Dave Gahan (солист Depeche Mode) - Дискография (2003-2008) [MP3
 ```bash
 magnet:?xt=urn:btih:C36AC8D9FD6F1D123C5181DF197EC2CFEC13C878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Venom - 13 albums (1981 - 2011) [MP3|320 кб/с]<Thrash / Black / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BE91EE74055515BDA24C7507C123E58DBFFAC25A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

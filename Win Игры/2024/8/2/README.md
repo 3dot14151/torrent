@@ -19,8 +19,7 @@ Enchantment: Secret Hideaway (2023) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:99F3713DD9DC5FE983558EECD82D2B041756976F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fabledom - это волшебный градостроительный симу
 ```bash
 magnet:?xt=urn:btih:36CD0882E9BD1627D44F3D32061FC5BEF92E7A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack FitGirl [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:C42EDB14F8B5E309ABD7D1B8E7242599E962C189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:678B009A600D40348A895CCEA75C149ED40E7118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fabledom - это волшебный градостроительный симу
 ```bash
 magnet:?xt=urn:btih:F9C0FF8F133A91B08DB64C1F3255D3DA1DDD5F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Darkside Detective (2017) [Multi] (2.127.4.167d) License GOG
 ```bash
 magnet:?xt=urn:btih:6C690D20A8DA12E69B615F6AFAD22AEA5228FEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dread Delusion смешивает фэнтезийное средневеков�
 ```bash
 magnet:?xt=urn:btih:5F5DF25F2BC3825F3237B5D92D5DA1900B585E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:35AC15D995679FBAC510BC78A98005DEDF1F3BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ EARTH DEFENSE FORCE 6 (2024) [Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BCB247444C907AC4FEBF0584CFD5EE4A1D15591A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dead Space 2 (2011) [Ru/En] (1.1/dlc) Repack FitGirl [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:9F26DEC70730323C0C0860CDEDD37094F22BEDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 ```bash
 magnet:?xt=urn:btih:32AEAADE742D19329E330F7F7592FAA9803DD606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Relic Space (2023) [En] (1.03) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6E580E81A95464ACEC34F8D5014C0990B399F4F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Gym Simulator 24 - виртуальный тренажерный зал, кот�
 ```bash
 magnet:?xt=urn:btih:61A15C76712C3B57FC56A025CB8CE8DC1B1D9536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ The Darkside Detective: A Fumble in the Dark (2021) [Multi] (2.32.2089.160d) Lic
 ```bash
 magnet:?xt=urn:btih:5C62178FC95EF51C17E3F0088565C29923B8A800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ The Backrooms: Survival сочетает в себе ужас выживания
 ```bash
 magnet:?xt=urn:btih:FCBD5E89580F100A64DCA52D3595836FB016F509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Ogu and the Secret Forest - это двухмерная приключенчес
 ```bash
 magnet:?xt=urn:btih:A8860A84DB8E0784E78BC12A0313B2B6345F7E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

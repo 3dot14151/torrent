@@ -22,8 +22,7 @@ Night Ranger - Greatest Hits (1989) [FLAC|Lossless|image + .cue] <Hard Rock, AOR
 ```bash
 magnet:?xt=urn:btih:C99B7F6B804082F607C490E731F325A8EDA1981E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

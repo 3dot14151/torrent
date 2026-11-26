@@ -22,8 +22,7 @@ A4 - My Wings(   Читать дальше...   )Жанр: Gothic Metal, Alterna
 ```bash
 magnet:?xt=urn:btih:883767E7AE364641ECAA4A80DDE31931CC2B8A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Xentrix — британская трэш-метал-группа из Прес�
 ```bash
 magnet:?xt=urn:btih:EAA218895C43B067A97497D345320CB4398A1453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Within Me(   Читать дальше...   )Жанр: Gothic Metal, Rock, Al
 ```bash
 magnet:?xt=urn:btih:EFF61C18CE046F4AF6EC1951C909EA2384DB6A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

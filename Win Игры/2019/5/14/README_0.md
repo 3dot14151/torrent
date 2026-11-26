@@ -19,8 +19,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2712) License CODEX
 ```bash
 magnet:?xt=urn:btih:7699FC8136EE0FC8845A0E162D2CD043072C7F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Frostpunk – первая игра в жанре "выживание общес
 ```bash
 magnet:?xt=urn:btih:6B6A677685EF69AE55680EE387018716D18571A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ImageMeter предоставляет инструменты, которые п�
 ```bash
 magnet:?xt=urn:btih:1C00701421DD36D0E2B049CBF3532C3DC2F64B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KillApps позволяет сразу закрыть все запущенны�
 ```bash
 magnet:?xt=urn:btih:F557F35825EBDC6821DC98B3679818F2857E1438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

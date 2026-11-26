@@ -28,8 +28,7 @@ Dharmata - Dharmata (2012) [FLAC|Lossless]<Alt. Metal | Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:0D2A9DF52A88C116E4DDA95D2E856272F83FF17D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D692B4172A57F773D67740D115A2979E0BF98046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Svart Dance (2008-2010) [MP3|320kbps]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:BF12295A53F7C5D2ADC3CE43FE0683F6217A9E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Stranglers - Peaches: The Very Best of The Stranglers (2002) [FLAC|Lossless]<Roc
 ```bash
 magnet:?xt=urn:btih:DC22C9E06649A4D43D5463DA7D4F950D269621EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Turisas - Turisas2013 (2013) [MP3|320 кб/с]<Folk / Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:90CDDBC7C046CA5CB100099ECA71A0D2FE97CF2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Twins Crew - The Northern Crusade (2013) [FLAC|Lossless]<Heavy / Power Metal>
 ```bash
 magnet:?xt=urn:btih:C7F3A8A3F1BAB14319B99ADD5A692930A3B073F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ End Of Green - The Painstream (2013) Limited Edition [FLAC|Lossless]<Depressed S
 ```bash
 magnet:?xt=urn:btih:0A3B9595AB3CB66883C3CD14B8C629B41B72654F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Explosions In The Sky & David Wingo - Prince Avalanche (2013) [FLAC|Lossless]<Ac
 ```bash
 magnet:?xt=urn:btih:12F009D1BD4635234D28319A5FDDFBBDEFCB6FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Lou Reed (ex.The Velvet Underground) - The Very Best Of Lou Reed (1999) [APE|Los
 ```bash
 magnet:?xt=urn:btih:D6592D4E3F3DB2AA2E07EF62DF84A4BB31D1FDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149F07AA89F7242E5CB68B985D891FFBF25DEA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +367,7 @@ VA - Heavy Metal Blade (2013) [MP3|224 кб/с]<Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:A5ED6A6F7AEC40FA98D46DA806AC8C2E0ADF2980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

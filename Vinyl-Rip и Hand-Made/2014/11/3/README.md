@@ -26,8 +26,7 @@ Brendan Perry - Ark (2010)  [FLAC 2.0 24/44.1|tracks (DC-CD)]<Electronic>
 ```bash
 magnet:?xt=urn:btih:32784286FFFAA6A2EA4042B223F17DE322F5E781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

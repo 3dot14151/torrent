@@ -19,8 +19,7 @@ Defender Tools — это небольшая утилита от Ratiborus, ко
 ```bash
 magnet:?xt=urn:btih:1290562C87E05D9D1A5DA04D76B42C825B3BEB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

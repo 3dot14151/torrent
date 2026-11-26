@@ -26,8 +26,7 @@ VA - Exotic Wafture #44 (2015) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting
 ```bash
 magnet:?xt=urn:btih:459C681443955059F696320F950687BF9C0DAEE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Arcana Coelestia - Nomas (2014) [MP3|320 кб/с]<Black Metal, Funeral Doom Meta
 ```bash
 magnet:?xt=urn:btih:DEF4989385A9799A8919B5CAFEA63A6923EC2F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Kruor - Nightmares (2014) [MP3|320 кб/с]<Old School Death Metal>
 ```bash
 magnet:?xt=urn:btih:16F6DE89F33C017331B5861D35245B8700FC4BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Trance. Vocal Fascination 67 (2015) [MP3|320 кб/с]<Vocal Trance, Uplifti
 ```bash
 magnet:?xt=urn:btih:93704A951725F4E5FBC349BCD79F7C2FA0EA70CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ VA - Aqua Trance Volume 66 (2015) [MP3|320 кб/с]<Vocal Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:A64FAB06012C549C4DA4B0CAE837A945F9F85182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ That's No Moon - Hyperion (2014) [MP3|320 кб/с]<Alternative/ Indie/ Pop Rock>
 ```bash
 magnet:?xt=urn:btih:3A3B24E58644E08AE263E286F8CA3F9284D65BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ VA - Oceanic Trance Volume 40 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:A0D162171692055BB59A9274C1646890C014D0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ V.A. - Resistance: ANTI​-​NSBM Volume 1 (2015) [MP3|320 кб/с]<Hardcore Pu
 ```bash
 magnet:?xt=urn:btih:D36CCB77A82F21FCF72726B95355431396A8F078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Art Farmer - Live At The Half-Note / Meets Mulligan & Hall (1999) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:4FAA3969C36A0C3F73A27D06A1F24A766F984499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ VA - Зимняя тусовка - 2. 50x50 (2015) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:D8E5A70E1829FFD409F198511FE3161EE8711772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +356,7 @@ Detritus - Things Gone Wrong (2009) [FLAC|Lossless]<Drum n Bass, Breaks, Downtem
 ```bash
 magnet:?xt=urn:btih:5596A63063C2BC7F04CF1A5AB458369DD28708F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +382,7 @@ Google вступила в переговоры с крупнейшими мир
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BADF62CE80BAC4697CABDC1EF1206A44633371A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ VA - Extra Lounge (episode 2) (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:9448E2B2996344A1076103104984593A15E9D440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6088CC487DA1A59625030CE7EE5EBA219039292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +494,7 @@ VA - Vision Trance Country Elevation (2015) [MP3|320 кб/с]<Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:081E6AFC64E600B495D29B15640115B6D48C9953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D246C8C4B2E7047A78E4371ADE32799B8F7B96A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A91BF959306A340E66EB8BBDEDC3D2FC4B8D198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +580,7 @@ VA - Молодежный ритм хорошего настроения (2015) 
 ```bash
 magnet:?xt=urn:btih:6FA7622693BE075C80A27F8E6A459311EE439D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:945548FECE75D736D63648CFF850402FA135C1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +641,7 @@ VA - Звёздный снегопад (2015) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:91329F43C94E6324771726BA74477B286B2FAC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF25B4B70218B9B4325E45090A5C33F0F2E0774E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94AB30B773AE4863B86F0749DCCB935B0417D4E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +724,7 @@ Diskelion - Remember Sorrow (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:7C0850BFD9082AF9B10D8989B007FDB1644608D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF869F1F8F0DD54157BF563DFAA066173BB4862B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6667C8F1C235243DBBC308902AB81E10866A44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

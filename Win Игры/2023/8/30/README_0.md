@@ -19,8 +19,7 @@ Fire Shark (2023) [En] (7) License GOG
 ```bash
 magnet:?xt=urn:btih:F64C12F8B05236B6EE9E0A5876FBA66CFB42AC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Apartament 1406: Horror — это напряженная игра ужасов,
 ```bash
 magnet:?xt=urn:btih:C315DFFABF3C0D4EB713369108D2E01D36B802F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Agatha Christie - Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0) Scene 
 ```bash
 magnet:?xt=urn:btih:7C7AFE3D789B8AC18BCFCB67CE613DFE84A60A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

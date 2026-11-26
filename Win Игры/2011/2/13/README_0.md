@@ -19,8 +19,7 @@ Robin Hood / Робин Гуд (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:6856D6DE3191AF7F16EB96FEED273E0DCCF6DC32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

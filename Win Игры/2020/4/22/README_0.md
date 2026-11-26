@@ -19,8 +19,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.011.1/1.2.010.1/1.3.001.31/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B2404AEC1084209984827301C7B6A6AFCC9DE305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FE58E997F790A81742F928F51AD1CE7A8F348FDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Niffelheim (2018) [Ru/Multi] (1.3.001.31/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:1B4665F670C522402F4643768FDBAE2BBC2BA89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ancestors: The Humankind Odyssey — симулятор выживания с в
 ```bash
 magnet:?xt=urn:btih:D771944F1A2AA116E675F79AC9C22CE757B5B6EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

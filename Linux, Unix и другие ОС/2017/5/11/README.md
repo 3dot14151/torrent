@@ -19,8 +19,7 @@ Debian GNU/Linux 8.8 Jessie [i386] 3xDVD
 ```bash
 magnet:?xt=urn:btih:505F35AB676097D9912CB1A716000687B616C8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [i386] 14xDVD
 ```bash
 magnet:?xt=urn:btih:BDF4009181096B15ED16BCCEB59BEE163D14AFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [amd64] 14xDVD
 ```bash
 magnet:?xt=urn:btih:DC4F979C83AF536A9B7480B2849CEF4FB45A8B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

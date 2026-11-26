@@ -21,8 +21,7 @@ Dig Out!: Короли подземелий 2.17.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:61CD5BB303B60350477B2F365E4479A8EBA09486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

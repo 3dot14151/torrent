@@ -22,8 +22,7 @@ Wizard — пауэр-метал-группа из Германии, сформ�
 ```bash
 magnet:?xt=urn:btih:8A3B5A3F747182C624A04A9D171F668A2F3279C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

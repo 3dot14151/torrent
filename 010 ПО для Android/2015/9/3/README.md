@@ -19,8 +19,7 @@ GO SMS Pro — выбор почти 100 миллионов пользовате
 ```bash
 magnet:?xt=urn:btih:8F981071F45C7C54CA2C3E92AB58E759FADC9FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

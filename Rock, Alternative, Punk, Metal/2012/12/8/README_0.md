@@ -28,8 +28,7 @@ Asylum Pyre - Fifty Years Later (2012) [MP3|320 кб/с]<Progressive Power Metal
 ```bash
 magnet:?xt=urn:btih:159BFE5E0310306B0A9A69ED87181B536D03886F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Green Day - ¡Tré! (2012) [FLAC|Lossless]<Punk rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

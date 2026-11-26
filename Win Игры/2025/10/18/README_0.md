@@ -19,8 +19,7 @@ Unyielder (2025) [Multi] (1.0.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6C0B4B30D01067DE03CDB842607F1B605F19AFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rusty Rabbit (2025) [Ru/Multi] (Build 18177047) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E67E0057679F4BF9879F848532AC39C5B013262F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unpacking - медитативная игра, где нужно достава�
 ```bash
 magnet:?xt=urn:btih:2C7F672309628B5698FF4B8A45187F43CA20B2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 ```bash
 magnet:?xt=urn:btih:C500A90790B59BD363C04C87678F1E687B10A526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 ```bash
 magnet:?xt=urn:btih:10A6DA9D384906EC4A167297F8F88D3C3A6B5D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SUPERHOT - это шутер от первого лица, где время д�
 ```bash
 magnet:?xt=urn:btih:E53FFC89378A982FCEA5996586C49AB5F54C7E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ A Short Hike (2019) [Multi] (1.9_v3) License GOG
 ```bash
 magnet:?xt=urn:btih:7B86798A1B51EA259F1A50E300EAB468975B5386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
 ```bash
 magnet:?xt=urn:btih:0AFBDF5B73684841B58D8F813BB77566C1CE8648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ New Super Lucky's Tale (2020) [Ru/Multi] (Build 10670184) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:82F8E2E2363AC463FF6D9858A281E00D235CA7B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.10.12409) Repack Necros
 ```bash
 magnet:?xt=urn:btih:5D1F6061F2F783F64F857B3C1BA9AECBC817058F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:A55C3552722CF433BC78C13BAECA564B1DF1F145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack Let'sРlay [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:533BB174AAFD57317DA359C51B0B6543F222890F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/En] (rc2) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:FEAA7099B67266D89B0A288581589D6A14CAC5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Crysis Remastered: Обычная спасательная операция пе
 ```bash
 magnet:?xt=urn:btih:A62527E84DBA40DAE85C527A1009C047E2439DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:B38DA3920C41BD48CC8854DB8BC754B8125AF919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Trials Rising - продолжение популярной мотоаркады
 ```bash
 magnet:?xt=urn:btih:A6FE9A1B593922A50BE2BF641A5B3DF8726371B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Mind Diver (2025) [Ru/Multi] (1.0.93) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:930CECE3543B42AD084436CA5CF21747B088633F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Rose of Wind (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2A377E2F85DF8CBA4180292AD2F1A6EBCDEB8E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Tomb Raider 1-3 Remastered Starring Lara Croft - ностальгический 
 ```bash
 magnet:?xt=urn:btih:9C7D2A8466E9CEBB5CD60F76189FB9D53EE96E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Travellers Rest (2020) [Ru/Multi] (0.7.3.5.1) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:AEB3342010F0CC6B34F8551D0C7E2A95B4C88089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Dead Island Retro Revenge - это взрывной 2D-экшен, где при
 ```bash
 magnet:?xt=urn:btih:0C20FD241024B8059CBD10F380D07F1A4E5D62F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

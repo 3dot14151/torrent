@@ -21,8 +21,7 @@ Kingdom Rush Frontiers / APK+Кеш [En]
 ```bash
 magnet:?xt=urn:btih:7E1BB8D81F2D2E54B4D8518746ECAE9EE62CE51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

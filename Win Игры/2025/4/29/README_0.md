@@ -19,8 +19,7 @@ Drive Beyond Horizons (2025) [Ru/Multi] (911) Repack Other s [Early Access]
 ```bash
 magnet:?xt=urn:btih:92974D7713C8AEDEC2C5DE0640AD7A0559A52541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ inZOI - игра в жанре симулятора жизни, в которо�
 ```bash
 magnet:?xt=urn:btih:F6EC9F419A2225DE662016E2D328D3E2523FD64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18281736) Repack Let's
 ```bash
 magnet:?xt=urn:btih:4B03C852FFC62F2B30BEC2D476215554C4BA5E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Assassin’s Creed Единство - приключенческий экшн, �
 ```bash
 magnet:?xt=urn:btih:4CCB70C001240D8C4F69ADC81ACDE4A24C617780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mother Hub (2025) [Ru/En] (16) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0619724B1BB3D89359FEB311DBADAD1D2CFEFD91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ House of Lost Souls - это атмосферная сюжетная игра о
 ```bash
 magnet:?xt=urn:btih:7DC670E5DE80026CF4432A399A6E4B9B80723E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12u
 ```bash
 magnet:?xt=urn:btih:3FF8B533C7D6E0D92B3EBCFA6885537AEC85EF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ BLACKSHARD предлагает игроку изучение от первог�
 ```bash
 magnet:?xt=urn:btih:B366009F27647BFE808FFD81FE7AC2A1000E6CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mystery of Myths 2: Mystery of the Fjords / Загадки мифов 2: Тай�
 ```bash
 magnet:?xt=urn:btih:D1A6E2183C0EBB5AB31CB181A2146B9F39DAA2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

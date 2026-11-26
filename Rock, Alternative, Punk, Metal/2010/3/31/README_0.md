@@ -22,8 +22,7 @@ Cinderella - 3 альбома (1986-1990) Japan Edition /2007, Universal Music/ 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

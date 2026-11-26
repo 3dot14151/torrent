@@ -23,8 +23,7 @@ Phoenix Again - Look Out (2014) [FLAC|Lossless]<Neo Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:AA6F1D0DDCB3D478C1012A7BF1E1F3A0891A1D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Phoenix Again - Look Out (2014) [MP3|320 кб/с]<Neo Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F7ACD5312597B07A63E028309D24BEE3F52C8845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Forest Silence - 3 Демо, 2 Альбома (2006-2010) [MP3|192-320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:597D51CC1892DE231F9BDEE1C85EE6413D884362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ VA - Calling All Maniacs (2001) [MP3|320 кб/с] <Rock, Pop Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D496EEFEAEEE8495850275E1266DB13B7C661BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Ocean Of Sin - Lie Goes To Hell (2014) EP /Авторская раздача/ [F
 ```bash
 magnet:?xt=urn:btih:0F6759A6765B7875BCD657A667BDA6161EE9BFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Eclipse - Armageddonize (2015) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:05B97E604E5E98A9B7970F292F7E90C6B06BD7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ VA - Black Dog - A Tribute To Led Zeppelin's Greatest Hits (2014) 2CD [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:B80024805BF5DCDB876FF8ED1AAC29F7658ECFDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

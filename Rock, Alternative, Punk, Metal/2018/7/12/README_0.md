@@ -22,8 +22,7 @@ Masfel - Katasztrofamamor (1998) [FLAC|Lossless|image + .cue] <Experimental rock
 ```bash
 magnet:?xt=urn:btih:496344A0B1B184E217EE7657D13F8BB50E8444E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Masfel - En garde! (2005) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 ```bash
 magnet:?xt=urn:btih:FCD416C2C2791D536E3DD1234C8DE83650E1F382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Omen - Agymosas (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E01799604423B89585F38A11164CB33032B720F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Marthyrium - Beyond the Thresholds (2017) [FLAC|Lossless|image + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:B7CCE84D46881110FFAB64122B944DBA1C64FEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Angelus Apatrida - Cabaret de la guillotine (2018) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:D1D3AB4D9F27AB9374BC7F1BFA1360C0C6310115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Gruesome - Twisted Prayers (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:04A0719224BE1A359B55C350F42F5E7E351FBB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ God Damn Evil 4:06(   Читать дальше...   )Жанр: Heavy MetalПр�
 ```bash
 magnet:?xt=urn:btih:C8D4EC40216EADCB0651622DFB16736555AE6F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Temperance - Of Jupiter and Moons (2018) Japan [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:EFA91A957E3C449F1C0B33DE659A6C1E206B41C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Chelsea Grin - Eternal Nightmare (2018) [MP3|320 Kbps] <Deathcore>
 ```bash
 magnet:?xt=urn:btih:3DEF6D5DA29340733CED87ABCBFE6DAFF58269E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Barb Wire Dolls - Rub My Mind (2017) Silver Lining Music, Motörhead Music [MP3|
 ```bash
 magnet:?xt=urn:btih:280BB255EF4C8EBBE32873B3D68F0408366F3C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

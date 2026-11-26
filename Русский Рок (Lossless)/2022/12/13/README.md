@@ -22,8 +22,7 @@ Saharok - Отчаяние Падающих Звёзд (2022) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:9D3EDD18DBBAF3ED1E38E621773CA898593D31B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

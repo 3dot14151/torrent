@@ -19,8 +19,7 @@ Love Story: The Beach Cottage / История Любви: Дом на пляж�
 ```bash
 magnet:?xt=urn:btih:4211984435976F2A602BE2502B6CD8FD37C3BA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sandra Fleming Chronicles: Crystal Skulls / Хроники Сандры Флем
 ```bash
 magnet:?xt=urn:btih:A859BF51EB6600B92290F0AA3FDBC92D7589B501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02FD9AFC39D30F16D45140B0AA693C9B266F160A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fate Of The Pharaoh / Судьба фараона (P) [Ru] 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E609E34C9601C37203B7CCC0C5CC48B0061F03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

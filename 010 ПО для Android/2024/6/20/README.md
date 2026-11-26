@@ -19,8 +19,7 @@ PhotoRoom v5.0.5 b1455 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9993548624604CCF02B5E361B4D1ABD0D7FC80AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KineMaster - Video Editor & Maker v7.4.15.33304.GP Mod by youarefinished [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:D4AAE2AA282E15052CD3D88109FCDBA771F5D446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KineMaster - Video Editor & Maker v7.4.15.33304.GP Mod by Shadow_Patcher [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:056689C503A435F6A83383B9CE43FE0C613A939C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SuperImage - это приложение-апскейлер которому н�
 ```bash
 magnet:?xt=urn:btih:C3AF78F92F830AFB5530B495D2A889E97BB89A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FiiNote / Быстрые заметки v12.9.0.23 Mod by Alex.Strannik [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:0027C6A6663C67F9BD80A92310FFB60D7F5B1FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

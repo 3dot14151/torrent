@@ -19,8 +19,7 @@ B.C. Вернодубенко, А.С. Новосёлов | Выживание л
 ```bash
 magnet:?xt=urn:btih:61E938DFC4EEB01865AD9BFB674D433402FC414A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Kreator - Krushers of the World (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thra
 ```bash
 magnet:?xt=urn:btih:D376CD8943BC439575807C6EF66B352B178B2C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Kreator - Krushers of the World (2026) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C1F14D95A66389530D748DEC363BF121B0FB3EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B7D9397F6016AB3E785298024270F3E5AE4EE4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ RustRover - это мощная и удобная среда разработк�
 ```bash
 magnet:?xt=urn:btih:D6749BA906618061AB4A1B9BEA176C2C54CC514C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:489E094068A5480A833E47C1B64706F342ECBC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Dust In Mind - французская рок-группа из Страсбур�
 ```bash
 magnet:?xt=urn:btih:2BC7784923DE601EE1EBA9E54CC396C0A7219F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:110BE8208455F8F9566799C7614C286766BC3E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Wanterlude [Digital Del
 ```bash
 magnet:?xt=urn:btih:48302B13D090D759135DA5F0470B2B2B4D6A75B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:672440A8C286A7DBA398EF1E9890A951F90CE640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Dead Space (2023) [Multi] (1.1.14.17871/dlc) Scene voices38 [Deluxe]
 ```bash
 magnet:?xt=urn:btih:07E42DBC7D656832B4D5487FF1CD8BD5E13160A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ Tasokare Hotel | Отель Тасокарэ [2025, TV, 1 из 12] WEB-DL 1080p 
 ```bash
 magnet:?xt=urn:btih:9DD7FE656CDA7B44FC009A09C77A4CFCAD16221F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F3F4D5CC562A07F3F80177839FD413E2206D1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68EE18992EBE2BB23FFFE4A0738AA973EB037D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Dead Space (2023) [Ru/Multi] (1.1.14.17871/dlc) Repack Let'sРlay [Deluxe]
 ```bash
 magnet:?xt=urn:btih:5BD9FA502A0DA5A83F80029BA66BCAA6E39CD13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EABD7C0E3D40A3928973DBD32C69AFD89B6F85DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

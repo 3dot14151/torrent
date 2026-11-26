@@ -21,8 +21,7 @@ Debian GNU/Linux 8.3.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 ```bash
 magnet:?xt=urn:btih:FDE1FDC84A1E0D9D965738306F02A4EC30F90B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ KNOPPIX 7.6.1 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:3E224D31AD4458DF35CD075D3443F7D8AB8B764A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

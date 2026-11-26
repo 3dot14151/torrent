@@ -19,8 +19,7 @@ Dart – объектно-ориентированный язык програм
 ```bash
 magnet:?xt=urn:btih:F4DBC5E4973C88C9C3E3F15E9589E503DD2A398A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Town of Light (2016) [Ru/Multi] (1.0) Repack bosenok
 ```bash
 magnet:?xt=urn:btih:C600A1345C229EB9F1DCF426AD876B034D926FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

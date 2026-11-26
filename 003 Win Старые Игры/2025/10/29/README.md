@@ -19,8 +19,7 @@ MechWarrior 3 (1999) [Ru/En] (1.2.22.0/1.0/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:7DC0686F944465D390264696536BBA57218F2654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mechwarrior 2 - симулятор управления фантастическ
 ```bash
 magnet:?xt=urn:btih:9F046F020A718733DFA19B32D38E8AC162824A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MechWarrior 4 (2000) [Ru/En] (2.1.0.5/dlc) Repack Necros [Compilation]
 ```bash
 magnet:?xt=urn:btih:D45A80E298F6067F2042FFB0DDC08AC3C8089FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

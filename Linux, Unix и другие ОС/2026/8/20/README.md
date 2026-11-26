@@ -19,8 +19,7 @@ Oracle VM VirtualBox – мощная бесплатная система вир
 ```bash
 magnet:?xt=urn:btih:A979974C3939FD4B9C3DB23897516BB53BC421F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ROSA Linux Desktop (РОСА «ФРЕШ» для дома) – бесплатн�
 ```bash
 magnet:?xt=urn:btih:6D52B34E89F62CFB4F0162DE615633B70761855E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CB3DFD8C0A954845D078476B5144EC34A687CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

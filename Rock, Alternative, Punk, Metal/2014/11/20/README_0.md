@@ -23,8 +23,7 @@ Galaktik Cancer Squad - Ghost Light (2013) [WavPack|Lossless]<Progressive Black 
 ```bash
 magnet:?xt=urn:btih:6D6548D51E1B42F685BFF96293AD8498753216FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Zuul - Out Of Time (2010) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:47C5DE8F2FC9BDC8D30F0C38DC0CE88CB7EFF5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Angel Witch - Angel Witch (1989) [MP3|320 кб/с]<NWOBHM>
 ```bash
 magnet:?xt=urn:btih:CBAE0B36F1A83C2EE94FCCA66B56F5E0A9C5F7AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Zeroasis - X-Factor (2012) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:45DA3D580EA8C0C3AE57398692515C26D5C2C97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Mysterya - Symbiont (2013) [FLAC|Lossless]<Symphonic metal>
 ```bash
 magnet:?xt=urn:btih:DC7AF159FF86B310992F7CE2AAEB2DAC0A234BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Mors Principium Est - Dawn Of The 5th Era (2014) [MP3|320 кб/с]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:00B6A409F3DFEC9CECFAC8B937F785F2827CB23B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Secret Oyster - 5 альбомов (1973-2008) Reissue /2005-2008, The Laser's E
 ```bash
 magnet:?xt=urn:btih:E3DA3B4D9F70CD5C95DF591D41977F0629F27B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:1D02AC0E8160BD10979908543F570530707142F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ Disc: 1
 ```bash
 magnet:?xt=urn:btih:91951CDBCEB97CE6DF8AFDD09546AE3FFDC75B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:411B9F52A67D699FB4AB82C03A19152DA2255F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

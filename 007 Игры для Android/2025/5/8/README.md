@@ -19,8 +19,7 @@ Eastern Exorcist — потрясающая 2D-ролевая игра с бок
 ```bash
 magnet:?xt=urn:btih:E82932B22F62AD493EA1B4F5F8EC0B3086FD81CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ TMNT: Shredder's Revenge v1.2.15 [En]
 ```bash
 magnet:?xt=urn:btih:E356290A375052719DF268E8A1C946BB695FE236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Voodoo Detective v0.0.33 [En]
 ```bash
 magnet:?xt=urn:btih:37E288F2C15201BAD67D8A8BAE577E35960CC822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Brave People WW2 Point & click / Храбрые люди vBuild 265 [Ru]
 ```bash
 magnet:?xt=urn:btih:4BFF935AD080A3118360F9ED962F29AE3318D601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Sunset Hills v1.0.22 [En]
 ```bash
 magnet:?xt=urn:btih:6ED32FE3D8156140D608BE54A79C9E9126C08514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Through the Darkest of Times v1.0.18 [Ru]
 ```bash
 magnet:?xt=urn:btih:C1F747ECDC9858009E1D25F78767E9A7B0F81581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

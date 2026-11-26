@@ -19,8 +19,7 @@ What Makes You Tick: A Stitch in Time / WMYT: Всему свое время (P)
 ```bash
 magnet:?xt=urn:btih:2FC867C82D80C8822C646629ACAB216705B80052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shank - Дилогия (Lossless RePack) [Ru/En] 2010-2012 l R.G. Origami
 ```bash
 magnet:?xt=urn:btih:AE030A17A9F7188425BEFAE4FF7FE2DCB09D4688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shank 2 (Repack/1.0dc120305) [Ru] 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:4A5314548D4FAFCB265792BF8948B8E9C4F1E9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Streets of Moscow / Адреналин 2: Час пик  (L) [Ru] 2007
 ```bash
 magnet:?xt=urn:btih:5E1AA116E3BB87CD10BCBABA830343B0021C2A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Distant Worlds с самого начала подкупает своим нев
 ```bash
 magnet:?xt=urn:btih:EE90350411A84CB4800C609C4329F33E424FB6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

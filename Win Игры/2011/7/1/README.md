@@ -19,8 +19,7 @@ Foreign Dreams / Чужие сны (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:3D46143A41B538ABA431401472CC5CC762C4CF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hollywood Pictures 2 / Киномагнат 2 [En/Ru] (P) 2008
 ```bash
 magnet:?xt=urn:btih:E63447E5CFEF0B95BBBBBF52C4225D22D648AFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60DAB0C906F460A70ADB2D891FCC2D6A6B7F637E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Mario Forever (L / 5.01) [En] 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Hospital Tycoon — незаурядное учреждение. Здесь не
 ```bash
 magnet:?xt=urn:btih:5E11B506A5A415EE7997C1274BDAD80757D3C6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

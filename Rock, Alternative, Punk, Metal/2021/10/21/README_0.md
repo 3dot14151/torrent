@@ -22,8 +22,7 @@ PARALINE - Demonstration record Vol.1 (2021) [FLAC|Lossless|Web-DL|tracks] <Alte
 ```bash
 magnet:?xt=urn:btih:787DA0BD39679D9B7CC72933FFAF134F54185484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ flyingdeadman - The night (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Instr
 ```bash
 magnet:?xt=urn:btih:5CC9399F5612792A87A85F509B25E85FAACCB860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Thunderhead - немецкая хард-рок- и метал- группа, п�
 ```bash
 magnet:?xt=urn:btih:F50000B6388AAECF6E85D60AC95E16128E802F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Santana - Blessings and Miracles (2021) [FLAC|Lossless|image + .cue] <Latin Rock
 ```bash
 magnet:?xt=urn:btih:ED666A748EF90A48DC8A38F7146EECA0BC1D6952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Cradle of Filth - Existence Is Futile (2021) [MP3|320 Kbps] <Symphonic Black Met
 ```bash
 magnet:?xt=urn:btih:94AB9CB4FB7912B690AB1DA7C4260185F560862A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1D840EF812BD52FB3A51D0F3BE5A72AD8655721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Cold Steel - Discipline & Punish (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thr
 ```bash
 magnet:?xt=urn:btih:347DD447A620FBDA483B4896D10E697E4EB0B972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ White Lies - Night Light (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:15B1BC394974E23E151769019B4827CD0CFFE623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Greg Puciato - Mirrorcell (2022)Жанр: Alternative Rock, Grunge, Industrial M
 ```bash
 magnet:?xt=urn:btih:1AE8C810216F182D266ADAEFBB39742CCB5EE6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Scorpions - From The First Sting (2025) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DFE5EEE3B0659943DE2131D0A43CA552FC85A681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

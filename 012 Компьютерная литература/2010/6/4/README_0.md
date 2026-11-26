@@ -23,8 +23,7 @@ SHA1: 22C2F2F174874BDC05714B9C4FE027B62D948CBBЖанр: TechNet Technical Librar
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

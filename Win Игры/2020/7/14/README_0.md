@@ -19,8 +19,7 @@ On the Road - реалистичный симулятор грузовиков �
 ```bash
 magnet:?xt=urn:btih:8C2A62E2AA8E873FF1B3D46DBA49AC3D85D44168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

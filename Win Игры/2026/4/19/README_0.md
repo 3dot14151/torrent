@@ -19,8 +19,7 @@ Corsairs Ship Pack - глобальная модицификация, разра
 ```bash
 magnet:?xt=urn:btih:E058CC48143090408B47A0800CD7F2B4F91E0602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cthulhu: The Cosmic Abyss (2026) [Ru/Multi] (1.8324.29803/dlc) Repack FitGirl [D
 ```bash
 magnet:?xt=urn:btih:5E4368F8930087746DDF1AEC2E5B3B731847F567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cooking Simulator 2: Better Together (2026) [Ru/Multi] (1.4.6717bcc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:7B284F6DA3475F41F4803D7D2B17F169D66FAE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ CRYO (2025) [Ru/Multi] (b22379336) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:615DB8DBAB9402FF737C7EDA4D6D1CEBC630E159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

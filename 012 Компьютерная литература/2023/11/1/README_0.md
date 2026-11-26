@@ -19,8 +19,7 @@ Jeffrey L. Brewer, Kevin C. Dittman | Methods of IT Project Management, 4th Edit
 ```bash
 magnet:?xt=urn:btih:F2744E0C690224BA290DF9723CFEF374469EF13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mark Simon | Leveling Up with SQL (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:76F5A6B0B58F0B50989ECEEB80D9A5549C78A98C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Unto Others - Never, Neverland (2024) [FLAC|Lossless|image + .cue] <Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:B360277A17A8BC1E59ACAD18C351833FB349E93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Druknroll - My Dark Desires (2023) [FLAC|Lossless|image + .cue] <Groove Metal, M
 ```bash
 magnet:?xt=urn:btih:ECB7A3205D650E0475ABC8B42CBA8A530694B53A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Morbid Saint - Swallowed By Hell (2023) 2024, High Roller Records [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:633AA493A0CE1EFB6EFA741404FD1625547F120E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ DGM - Endless (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:B436EF5D2E25CCAECCA02A1464CC650CC25BB064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lunarway - Eternal Moments (2024) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Symphon
 ```bash
 magnet:?xt=urn:btih:2A1137F3B4338F05AC8EF1D54AA6476E6329C98D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ CD3 - Luminescent Bridge:Жанр: Death Metal, AmbientПродолжитель�
 ```bash
 magnet:?xt=urn:btih:22E39DF5FCBA5AF96291DBE255CF201E2EFEC67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Alter Bridge - One Day Remains (2004) Deluxe Edition, Reissue, 2024, Craft Recor
 ```bash
 magnet:?xt=urn:btih:7547C38C6D8C2E641943ED651EE65A438B4DAF59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Metal Church - The Final Sermon (2024) Japanese Edition, Live In Japan 2019 [FLA
 ```bash
 magnet:?xt=urn:btih:747A64EE89E1368ACE0A9E0362400D7E8133565D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Whom Gods Destroy - Insanium (2024) 2 x CD [FLAC|Lossless|image + .cue] <Progres
 ```bash
 magnet:?xt=urn:btih:91D1CF7CA90DD9EF823A453FC1CB33B7D83612DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Leprous - Melodies Of Atonement (2024) 2xCD, Deluxe Edition, Limited Edition [FL
 ```bash
 magnet:?xt=urn:btih:FD4FB3E049ADFB96AAC912E16A9212A82BC5B77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

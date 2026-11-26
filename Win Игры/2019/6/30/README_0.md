@@ -19,8 +19,7 @@ Draugen — новый психологический детектив от пе
 ```bash
 magnet:?xt=urn:btih:E31FD2238704F9EA8926B4614F43F9788D18700B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Outer Wilds - приключения в открытом мире, попытк�
 ```bash
 magnet:?xt=urn:btih:A2EC1EC16B46AAC513A926A99AA06F404EB068CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

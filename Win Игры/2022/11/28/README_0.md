@@ -19,8 +19,7 @@ Crossroads 2: Escaping the Dark / Перекресток 2: Побег из ть
 ```bash
 magnet:?xt=urn:btih:5CB2F548CA319A9862A523592AC68508738D2C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:2CAF3250A6EAF0DCF98556DF954337A1BDBA18FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Amok Runner сделана по мотивам новеллы Амок, напи
 ```bash
 magnet:?xt=urn:btih:07DE9EB0A2634CEE5E541DB4B15951C0F5A0FC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

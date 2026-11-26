@@ -26,8 +26,7 @@ Hanging Garden - At Every Door (2013) [MP3|320 кб/с]<Doom Metal, Post-Metal>
 ```bash
 magnet:?xt=urn:btih:26E24450E78D27AD1E76D8089E8595372128DAED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Suffocation - Pinnacle of Bedlam (2013) [MP3|320 кб/с]<Technical Brutal Death
 ```bash
 magnet:?xt=urn:btih:37AE9E550D90E3603DCCA24CB4B24F70087F6203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Noir Desir - 12 CDs (1987..2001) Discography [MP3|320 kbps]<Post-Punk, Alternati
 ```bash
 magnet:?xt=urn:btih:BDF7FF54CEF5C442E4F337724B680E3145AFBB70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Discogs
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ SLADE - 14 Albums Collection (1969 - 2007) / 2006-2007 [WavPack|Lossless]<Rock, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

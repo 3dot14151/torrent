@@ -21,8 +21,7 @@ Ex Animo - Neverday (2016) [MP3|320 кб/с] <Gothic Metal, Doom Metal, Dark Met
 ```bash
 magnet:?xt=urn:btih:B309AC301A585D1766DEC0637C762DB0F51E50EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Pat Martino - Fire Dance (1997) [FLAC|Lossless|tracks + .cue] <Jazz, world, Folk
 ```bash
 magnet:?xt=urn:btih:3E8D44195D7B9DE4D4523487E2010A842156EB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Francesca Michielin - Riflessi Di Me (2012) [MP3|320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:FC89D1AB81B1F67CB7E0DFA71D07BE11B9F5992C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6102BEAA662A38D09A8C4F43F0E71220660A9597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D83E5016F3BB1E18D3AB64C7F1F1FFB7C613498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E51F9C68B50F5231B7165BF7C47AA7BE4B71D8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ TeamViewer устанавливает подключение к любому к�
 ```bash
 magnet:?xt=urn:btih:4E47AC6DB92E9C284B552BBB24308025E69C144A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Icecream Image Resizer 1.43 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:00361665415AE92F256D3C7102B7DBCE1DA300F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Cabinet - быстрый доступ к вашим фотографиям
 ```bash
 magnet:?xt=urn:btih:A51D855E0208AF6407D4D2BBF00F9F47B4F59B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13F2A3C6F697CBFAE3D2E513500E595CC11FD355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Dropshare - приложение строки меню для Drag&Drop загр
 ```bash
 magnet:?xt=urn:btih:07F402332BEED088DDCB976F1E2DE1C93C3855A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ IP Scanner - приложение сканирует локальную сеть
 ```bash
 magnet:?xt=urn:btih:D074D245A1FED34B9E440F573DADCDC00E9D16F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ AnVir Task Manager предоставляет подробную информа�
 ```bash
 magnet:?xt=urn:btih:897AD0CDA09CC1CA323A6EF55471DDEF6C7D4503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B0487891DE50DA4083986FCCB280BCA478B3A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Syrian - Alternate And Remixed .02 (2016) [MP3|320 кб/с] <Synthpop, Futurepop
 ```bash
 magnet:?xt=urn:btih:99D930947D2B8E5A607C3397EC7FC3DD80ABCF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Doo - Get Things Done 1.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:6A0C46E270923E28C4EA1B24C9DBAB98F1BC82C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC191536DDA68D004A2DC62E7F41BDAA9AAEA4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D1AAD65E37B41EDBECAB79712300AE134457DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ VA - Mуз-сливки хит-парадов. Русский выпуск (2016
 ```bash
 magnet:?xt=urn:btih:4030799D87C52A1784518B7234F9E00DA05F1DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77C8BEEB2126764DF665479B7A1572645A1595F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ The Goo Goo Dolls - Boxes (2016) [MP3|320 кб/с] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:A47656BDCBB80DE055FC2078E295628F88B09BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Kvelertak - Nattesferd (2016) [MP3|320 кб/с] <Black Metal, Punk Rock, Black'n
 ```bash
 magnet:?xt=urn:btih:57755A2D4FFD84A5595A826F93D0B579EDE600E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ AVG AntiVirus 2016 предлагает защиту от самых сложн�
 ```bash
 magnet:?xt=urn:btih:6FF96802101EB30A7D7A97D9CDA72609D758D62F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:633DBC768EC9D2AACDD16D007C0FB8C4387F9EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ CoolUtils Total Image Converter быстро преобразует изобра
 ```bash
 magnet:?xt=urn:btih:F34776FF9B29DB60DE671088D637EDC9D0C01BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ Comodo Dragon 49.13.20.400 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B145D582052E7FE959F52F599661AD8ADD08C733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

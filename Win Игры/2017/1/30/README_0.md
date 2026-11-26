@@ -19,8 +19,7 @@ Never Alone (2014) [Ru/Multi] (1.8/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:B58F7BBDA394209ACF656E35B46E6D2F88E38EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Walking Dead: Season Two - продолжение первого сезон�
 ```bash
 magnet:?xt=urn:btih:71FD6D112935B1302C313A1C7A2F050DB8CD7393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Command: Modern Air / Naval Operations (2014) [En] (1.11 SR6 b870.4/dlc) License
 ```bash
 magnet:?xt=urn:btih:4C31ADC2353E8E9255CD50F7400A5EC8353A8C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

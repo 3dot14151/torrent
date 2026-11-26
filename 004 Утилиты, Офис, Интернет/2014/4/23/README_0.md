@@ -19,8 +19,7 @@ LinkCollector - менеджер закладок, поддерживающий 
 ```bash
 magnet:?xt=urn:btih:400617BF9FAD14EF4C90ABE7A929D99C6680E3B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

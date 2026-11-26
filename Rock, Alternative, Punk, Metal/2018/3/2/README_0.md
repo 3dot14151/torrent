@@ -22,8 +22,7 @@ Ammunition - Ammunition (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:747702F066B0A04886A2FF667130762A7D66B8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Michael Schenker Fest - Resurrection (2018) [FLAC|Lossless|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3A48201BAB8A77737FEBADF9750AEDED8056FA6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Rock Mixtape (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:63096F763DBDC74127A142BB84F117815B2EDC45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lumen - XX лет. Избранное (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:AD5E48063725C8612CD4A538B18B93D79967E9C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

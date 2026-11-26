@@ -19,8 +19,7 @@ Star Trek: Starfleet Command III (2002) [Ru/En] (1.00) Unofficial
 ```bash
 magnet:?xt=urn:btih:CE2BF77E265CCA5AE69F022BA7257D303C58482F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Combat Mission: Beyond Overlord / Линия фронта. Нормандия (2
 ```bash
 magnet:?xt=urn:btih:4FB52E6CED79FF14F6D8C956C0DEF968EF4BAA72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

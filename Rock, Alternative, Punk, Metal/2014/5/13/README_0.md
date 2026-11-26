@@ -28,8 +28,7 @@ Mask The Wretch - Age Of Deception (2013) [MP3|320 кб/с]<Metalcore, Hardcore>
 ```bash
 magnet:?xt=urn:btih:96AE29E4AAC23D9C8BD3EFA51AD65093EF0B045E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Reflections - Exi(s)t (2013) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:64B82D4EFC60A14A9EBFF7682D168C58B9C9474E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Erra - Augment (2013) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:D4323D8708642C3B79B88EB066FB939AE9BE0750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Normandie - Normandie (2014) EP [MP3|320 кб/с]<Metalcore, Post-Hardcore, Elec
 ```bash
 magnet:?xt=urn:btih:9B0D74520DFF19E192AF7E64FDCF68542BA04C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Goodbye Titan - Real Life Awaits Us (2012) [MP3|320 кб/с]<Post Rock, Instrume
 ```bash
 magnet:?xt=urn:btih:F366CBAB0A03DB25E718E6027BD89B3815B8DED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Fit For A King - Descendants (2013) Re-Recorded [MP3|320 кб/с]<Post-Hardcore,
 ```bash
 magnet:?xt=urn:btih:0DFE5ECB6637D4E5F638710CCFC9106C3B94A8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Hour Of Penance - Regicide (2014) Deluxe Edition [MP3|320 кб/с]<Technical Dea
 ```bash
 magnet:?xt=urn:btih:ECC3878A5DD829E9999A6A3CA0484A0F5730AE6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ If I Were You - End Of An Era (2013) [MP3|320 кб/с]<Metalcore, Post-Hardcore,
 ```bash
 magnet:?xt=urn:btih:24E9B57C278C0696A32C5D0A453614B5513D669E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ Decembre Noir - A Discouraged Believer (2014) [MP3|320 кб/с]<Melodic/Doom/Dea
 ```bash
 magnet:?xt=urn:btih:2416D94B5876B75650BDA0287B97BC57CFBF491A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ Upon A Burning Body - Red. White. Green. (2012) [MP3|320 кб/с]<Metalcore, Dea
 ```bash
 magnet:?xt=urn:btih:1B8BF5FF404BA027935D1E324F36D57C00EE1F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ Humanity's Last Breath - Humanity's Last Breath (2013) [MP3|320 кб/с]<Math Me
 ```bash
 magnet:?xt=urn:btih:88C62494B78435E7C5C01192A2190FB5B7C79A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ Upon This Dawning - We Are All Sinners (2014) [MP3|320 кб/с]<Metalcore, Post-
 ```bash
 magnet:?xt=urn:btih:4E59197D0FBCA3A2DB8AF723CA17916E2DCF0178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ I See Stars - Renegades Forever (2013) [MP3|320 кб/с]<Post-Hardcore, Electron
 ```bash
 magnet:?xt=urn:btih:22CB94760CF441E103344DF5DD49B591472F8259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +457,7 @@ Structures - Life Through A Window (2014) [MP3|320 кб/с]<Progressive Metalcor
 ```bash
 magnet:?xt=urn:btih:949E174ECEF890F4F2954A1D0418F98E6D98C3A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +483,7 @@ Garbage & Brody Dalle - Girls Talk (2014) [MP3|320 кб/с] Single <Rock, Altern
 ```bash
 magnet:?xt=urn:btih:8CB1437AB8184D6645B4AE97906D40699BB4E551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +517,7 @@ Sabaton - Heroes (Limited Edition) (2014) [MP3|320 кб/с]<Power Metal / Heavy 
 ```bash
 magnet:?xt=urn:btih:4570480CF28D9ECACBBDC5EC7C7EA46327E9E3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

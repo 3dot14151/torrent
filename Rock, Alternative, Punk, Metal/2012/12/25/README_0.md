@@ -28,8 +28,7 @@ Icon In Me - Head Break Solution (2011) [WavPack|Lossless]<Melodic Death Metal /
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Hard Rain - Два альбома (1997 - 1999) [MP3|320 кб/с]<Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:3FF4F08433568583FA6CA9FE1BA6B2700701B66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Hinder - Welcome To The Freakshow (2012) [MP3|320 кб/с]<alternative rock, pos
 ```bash
 magnet:?xt=urn:btih:D2ECEF3AC9D1A5CFD4801EF64E0A01D5EA1F6F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Magnum - On The 13th Day (2012) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ VA - We Wish You A Metal Xmas And A Headbanging New Year (2008) /Armoury Records
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ VA - Мешанина или неГолубой огонёк (2CD) (2004) [APE|L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ VA - Мешанина или неГолубой огонёк (2CD) (2004) [MP3|3
 ```bash
 magnet:?xt=urn:btih:0755BF5E3BE6FF0499582D595DB296AEF6F7753A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Pushking - Russian The Best (Пушкинг - Лучшее) (2005) [APE|Lossless
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

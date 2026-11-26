@@ -19,8 +19,7 @@ Eastside Hockey Manager (2015) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:507B3355918F9E1A79376F2E4B28D64C900AA55C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Saint Seiya: Soldiers' Soul - это долгожданное возвращен
 ```bash
 magnet:?xt=urn:btih:C7833617AA1FACB6846F6660CFC7DB60DA88E55D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cityconomy: Service for your City (2015) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5FE1524287755474801C9A45931FDCBD4FF7C091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

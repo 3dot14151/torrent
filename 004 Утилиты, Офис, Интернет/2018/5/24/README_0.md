@@ -19,8 +19,7 @@ MOBILedit! Forensic – это программа, которая позволя
 ```bash
 magnet:?xt=urn:btih:AD138C36FFD2701AC020FE1CBA0CC23362F11D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

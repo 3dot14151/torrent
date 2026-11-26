@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:93259C84C18BE1F78308871BEA80FBFE09631E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAE04506314F2A0329D7C1D0366BE6730291CAE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Unnamed Feeling - Наша Последняя Ночь (2024) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:90495473519E9EA06FD091E00CDA9E69D48C1C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAFC5251406499643CB0A435A440D01E3BDD16B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Рок-сборник 3 (В одной обойме) (2024) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:050DA985AB846E39D4B79FAAC2F2E7B16B38567A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Митьковская бескозырка (1999) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:1F5E3441946F267B453B5DB2E5ADA097A1307960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

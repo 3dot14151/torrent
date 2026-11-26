@@ -19,8 +19,7 @@ VNC Connect Enterprise 6.4.0 [Multi/En]
 ```bash
 magnet:?xt=urn:btih:04BA2274F7004041B7A60B44F2E282F900B8263F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Blinding Dark - это тактический хоррор-экшен от пе�
 ```bash
 magnet:?xt=urn:btih:B388CBF066E38A94555330E871F8B78E6EA25836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

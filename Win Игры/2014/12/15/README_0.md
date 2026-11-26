@@ -20,8 +20,7 @@ Omerta - City of Gangsters – симулятор гангстера, дейст
 ```bash
 magnet:?xt=urn:btih:A0D0DEB5F9D944864D96647C69E4217806AE014B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/2dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:316A4D3B6DD85EF7BD7087F79D6DCE1A40DCDD25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

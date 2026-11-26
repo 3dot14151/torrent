@@ -22,8 +22,7 @@ ColdWorld - Autumn (2016) [MP3|320 Kbps] <Depressive Black Metal>
 ```bash
 magnet:?xt=urn:btih:D7271665F5D81580A726D8B016D71802BA49A341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eden's Curse - The Second Coming (2008) Limited Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:7C9E58887DF9419E81A96F36516730EA0A77ABB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Frowning - Extinct (2017) [MP3|320 Kbps] <Funeral Doom Metal, Doom-Death Metal>
 ```bash
 magnet:?xt=urn:btih:CFE37003CEF286AB035E42C0505EA20A0ECAF26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Voltage - Travellin' Men (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock,
 ```bash
 magnet:?xt=urn:btih:D6A6FF5989C3305C6C0C7DE0D2E321AAC77700F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Polyphony - Without Introduction (1971) 2011, Gear Fab Records [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:DC6D1B74377AF1F512C46E875EA184CE583E6A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Brett Ellis - имя этого виртуоза гитариста извест
 ```bash
 magnet:?xt=urn:btih:2C4CB46760A7ACA70D49417198079D2F9CE467BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Thomsen - Let's Get Ruthless (2009) [FLAC|Lossless|image + .cue] <Heavy Metal, P
 ```bash
 magnet:?xt=urn:btih:325F6853195F72DD9FE6F6A441F233F16BEBAA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CDE7950D8B868B582006A021F0A33A532472A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Sturmmann - Sturmzeit (2017) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Har
 ```bash
 magnet:?xt=urn:btih:C2E702481CF17BAFDF478A8A1DA2D17A612A37F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Imperial State Electric - Pop War (2012) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:47B57ACEA24FEDA8B9E9E6D2440FE1C1ACFABECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

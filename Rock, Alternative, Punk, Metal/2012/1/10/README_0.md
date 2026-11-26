@@ -27,8 +27,7 @@ Grand Sermon - Massive Domain (2010) [APE|Lossless]<Old School Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ May of Sorrow - Crossroads (2011) [MP3|192-320 kbps]<Melodic Metalcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +102,7 @@ Robin Kok - Vocals, Bass (ex-Exposing Innards, ex-Slayne, ex-Monolith)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +136,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:9A518BCAB9A72CC284FC3D92A9C5B30B74A99913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Udo Dirkschneider - Best Ballads (Limited Edition) (2011) [MP3|320 kbps]<Hard ro
 ```bash
 magnet:?xt=urn:btih:E070786A9BFDD9F191EC65255005447C3616EF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

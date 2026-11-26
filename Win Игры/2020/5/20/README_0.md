@@ -19,8 +19,7 @@ The Forgotten Faitytales. The Spectra World / Забытые сказки: Ми�
 ```bash
 magnet:?xt=urn:btih:3E4CDBC7A0BA37D23A36762FA5E704468C088844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Manor 6: Remembrance / Призрачная усадьба 6: Воспо
 ```bash
 magnet:?xt=urn:btih:236128887E7495CB1AAC1565B3116910691BCBFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

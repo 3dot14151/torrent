@@ -18,8 +18,7 @@ MythBusters: The Game - Crazy Experiments Simulator (2022) [Multi] (1.0.88) Lice
 ```bash
 magnet:?xt=urn:btih:DBF8A20D5E2822A1A8F5E340FEE7A7266757A034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67C5231C3938B546993B262F27B9C274092793A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Violence Jack: Harem Bomber Hen | Violence Jack: Slum King | Жестокий Д
 ```bash
 magnet:?xt=urn:btih:3FF48D9906130E6E21B9F4D71F594F75571959B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Violence Jack: Jigoku Gai | Violence Jack: Evil Town | Жестокий Джек
 ```bash
 magnet:?xt=urn:btih:EDFF6386F5BD423C5D1DFE57A459F5C3A5079EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

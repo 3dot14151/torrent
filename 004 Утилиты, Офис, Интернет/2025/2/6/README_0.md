@@ -20,8 +20,7 @@ CoolUtils Total CSV Converter - это надежный инструмент д�
 ```bash
 magnet:?xt=urn:btih:4226450BA8B9357F2D99279624AAC76188B1245B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

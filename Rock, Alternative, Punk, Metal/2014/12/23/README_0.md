@@ -27,8 +27,7 @@ Ashes Of Moon - The Darkness Where The Past Lay Sleeping (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:8063A4883F0CCDE88A017A2F5C8D1912CCF7F296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Hardlein - Down to the Fire (2009) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FFD7E438509BEE248229EE00367B4EACAA78259E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Hеrmаn Rаrеbеll & Friends - Hеrmаn's Sсоrрiоns Sоngs (2014) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:39794553133163BBC8CA2F9EA3B5827513FEFFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Sister Sin - The Very Best Of (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1DD373FC818135974C7212638FC219D545D68678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Guitar – Frank Zappa(   Читать дальше...   )Жанр: Hard DockП�
 ```bash
 magnet:?xt=urn:btih:BCAA7F2778AB829017F99E48D94976155D74E075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Nazareth - The Anthology (2CD) (2009) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4728D3E60FCFF450BEE16F69174AEF85D9D1845E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hans-Georg Schumann | Python für Kids: Programmieren lernen ohne Vorkenntnisse 
 ```bash
 magnet:?xt=urn:btih:E863188E394CE81050A35BD6132CB2B4C843785D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

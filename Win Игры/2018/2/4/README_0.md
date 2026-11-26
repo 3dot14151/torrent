@@ -19,8 +19,7 @@ Winter Sports 2011: Go for Gold (2010) [Multi] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:010273297B629E2E4CE167C4C1744643A6821C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Winter Sports 2012: Feel the Spirit (2011) [En] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:3F9EB69327E49CCB26C1ECE0136138DB9109A252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vancouver 2010: The Official Video Game of the Olympic Games (2010) [Ru] (1.0) R
 ```bash
 magnet:?xt=urn:btih:27E01FE67A172F7B24182814672321C4D06084A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wargame: Red Dragon – первый выпуск популярной сери�
 ```bash
 magnet:?xt=urn:btih:D6B9B6509C1C2EB7879637CA28385986CCAE9130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sonic Forces (2017) [Ru/En] (1.04.79/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:F8714E86F4F4626D5CF7E1F61815116E39AA040A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kim (2016) [En] (1.4.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:856A242BE3E20EFFB6475A04DC6EBBF579C2FF5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

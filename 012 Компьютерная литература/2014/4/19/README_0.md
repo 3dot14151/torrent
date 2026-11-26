@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:6A0B752F97789195987341DF276054D12B54EE6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ HTML5 и CSS3 — будущее веб-разработки, но не обяз
 ```bash
 magnet:?xt=urn:btih:6AEF5749D41EAEFB1483A0FE2FC7E21E9922B4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

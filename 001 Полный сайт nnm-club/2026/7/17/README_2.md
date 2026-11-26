@@ -21,8 +21,7 @@ Ruthless - Curse Of The Beast (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1BD05E1868C44C509245A5DB646211DC41A72C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Nige Jouzu no Wakagimi (2026) | Неуловимый самурай [ТВ-2] [20
 ```bash
 magnet:?xt=urn:btih:7FA13B54655041B263845FDD65863E4BDA5E7D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:712CC4D9B6FBA4B79CB5B7641DDDE67102AD5CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D7B3953392B5297E73C81CFF5C51AB9A88B1D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:310C4C8F11CE43942E24D2CE13DF9FEB9ABB363A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:70DACE31F63866F544771CF94962159DB0DC71FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ VA - Beat, Bass, Melody vol.6 (mixed by Dj V) (2026) [MP3|320 Kbps] <Euro Trance
 ```bash
 magnet:?xt=urn:btih:D3552D3ACB9EB4B5A572D841EDE9DA437DE94DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - Anjunadeep Explorations Vol. 2 (2026) [MP3|320 Kbps] <Progressive House, Me
 ```bash
 magnet:?xt=urn:btih:1EAC8755AE0F93F8A307C3A062C86B67FD213431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ VA - Armin van Buuren - A State Of Trance 1286 (2026) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:A79FE72E9709C58AC4C9FAE09086D90B932A1FBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen | Villa
 ```bash
 magnet:?xt=urn:btih:30F184DA0D3C4345D927FD67FF56B014AF48B2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ VA - Ori Uplift - Uplifting Only Episode 701 (2026) [MP3|320 Kbps] <Trance, Upli
 ```bash
 magnet:?xt=urn:btih:3C15627DE8472BA9DD0FFE7C2EB9BF2D3A976BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 эп.] BDrip 10
 ```bash
 magnet:?xt=urn:btih:7DF9640CC8FA7DDF5CAB62A6BC3B8C0C1D1BBA46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Hametsu no Oukoku | The Kingdoms of Ruin | Королевство руин [2023
 ```bash
 magnet:?xt=urn:btih:A2EF0A37363FEC0D08FEB7DA0C1B3CBF2BED689A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ Hime-sama Goumon no Jikan Desu | Tis Time for Torture, Princess | Время п�
 ```bash
 magnet:?xt=urn:btih:9576058482BCA248A665D34DE41D05AA2F087E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Hitoribocchi no Isekai Kouryaku | Loner Life in Another World | Нападени
 ```bash
 magnet:?xt=urn:btih:71539A687D5F59C031331472750ADED4F95A6276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Isekai Shoukan wa Nidome Desu | Summoned to Another World for a Second Time | П
 ```bash
 magnet:?xt=urn:btih:CF8D9AEFEB296F44E7E2AB6C30391D126336EC51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ Kikansha no Mahou wa Tokubetsu Desu | A Returner's Magic Should Be Special | М�
 ```bash
 magnet:?xt=urn:btih:5A143A17BED1D2DC92CD96A9E2DBC7CEBA13326F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ Nageki no Bourei wa Intai Shitai | Let This Grieving Soul Retire! | Плачущ
 ```bash
 magnet:?xt=urn:btih:5A67910B290E958A9B2A108A370E352517663CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ Meikyuu no Shiori | Labyrinth | Путеводитель лабиринта [202
 ```bash
 magnet:?xt=urn:btih:2B6AD0DC1FE02787873885C483DFD5569FB9C8AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E2D3AC90061B38F0675813922371D9C9151DCDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5E4EF39D843B801DF09B16E32C52E37978590B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2E5993CBBAB7E94361F9E78919925070A24DE6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:355608EE98C53A101925DE49BCF3D6E032F22E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFB0B02037B164CB04CC8FED09056BC6031D810C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5977AF3429860E25B06BFD25614FB2204059DFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

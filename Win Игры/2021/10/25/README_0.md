@@ -19,8 +19,7 @@ Mutazione (2019) [Ru/Multi] (1.84) License GOG
 ```bash
 magnet:?xt=urn:btih:A7974AF32CFD7A2AA09DE014D34E043384882DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Corpse Party (2021) (2021) [Multi] (2021-10-20) License GOG
 ```bash
 magnet:?xt=urn:btih:27C30CA379D11715D9260851BBE6F3FBF9E6E29E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alchemist Adventure (2021) [Ru/Multi] (1.211021/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:752DFB154CEF87966BE4174B4F3718AE1786D71D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

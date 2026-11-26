@@ -19,8 +19,7 @@ Wreckborn - это методичное противостояние косми�
 ```bash
 magnet:?xt=urn:btih:A6AA21B7199F4A9F63B2D1DE58F13F8345C52077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bottle Can Float - это расслабляющая игра о спокойн�
 ```bash
 magnet:?xt=urn:btih:2F6BB6E065968B2D16AD82EA966749C2A657A55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bottle Can Float - это расслабляющая игра о спокойн�
 ```bash
 magnet:?xt=urn:btih:85B80DD8A4E62F60ABCEC39B4251C4386392636F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Electronic Market Simulator (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A5254AFF60EDEE16C16517CC5BB5124EC2EAB80D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Electronic Market Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:22DCFF1DC3FBE05C0745B36DFC1DCDF42E205F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Aquarist - иммерсивный симулятор, позволяющий п�
 ```bash
 magnet:?xt=urn:btih:CC877849517C6B3F4F3CAE352E47F5C53FA1AB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

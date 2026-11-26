@@ -19,8 +19,7 @@ Pure Tuber (ex. Vanced Tuber) v3.1.8.101 + Mod [Ru/Multi] (обновляема�
 ```bash
 magnet:?xt=urn:btih:44C1363C37C06B4A683A9600612AACEC8CA9C1AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

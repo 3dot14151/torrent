@@ -19,8 +19,7 @@ Mishap: An Accidental Haunting (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:3A4B71C84120C93D920FEDA77B3462FF941856FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nemo's Secret: Vulcania / Тайна Немо. Вулкания (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:77EEF8950793A00517285EEA50A58E4BF1D83419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Maestro: Notes of Life. Collector's Edition / Маэстро. Музыка Жи�
 ```bash
 magnet:?xt=urn:btih:DBD045ABDDCB1DE1821EADBD1D735E516CAA9687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hexalot / Гексалот (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:551B71C34D57ADC902E4F0A45DDB6C7FDB9D7D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

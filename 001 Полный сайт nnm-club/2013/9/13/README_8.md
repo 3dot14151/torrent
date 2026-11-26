@@ -19,8 +19,7 @@ Drag & Drop: Reflective Thoughts  - включает в себя более 40 �
 ```bash
 magnet:?xt=urn:btih:2401EF5F668D2A2ACA67FE06DC42A80B1353BFFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Drag & Drop: Film Clutter - включает в себя более 40 высо�
 ```bash
 magnet:?xt=urn:btih:4D0E9041C2FB875487962FE9F2481AC9D036491B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F15DCBEA0636F4B2D948B619633DD40C18855654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:450857C627FFF1016D09AB70C0242FD7D250D248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ SSD Mini Tweaker - программа для изменения настроек
 ```bash
 magnet:?xt=urn:btih:C857B1D6EB2486262DE0BB6F8D87B34D0FD114AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCC98FF917E7699562A621D4B3F29109AAAB32EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Ashampoo 3D CAD Professional - позволяет осуществлять пр�
 ```bash
 magnet:?xt=urn:btih:AB9B6BEC9145C8CD4E7058E66AFA58BA73DDA0A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F23FAE4906B26D69802195FDC0354D2301166D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Shadow Defender - это новый аналог программы, подоб�
 ```bash
 magnet:?xt=urn:btih:D44CE5DAFB855F26B6E8245FCC36CC3959AEB985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Microsoft .NET Framework 4.5 Full Plus by gora [Upd. 11.09.13] [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A2954C322FD3638E312ED2C4FAE91077ED05CD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Drag & Drop: GlitchFX - включает в себя более 50 высоко�
 ```bash
 magnet:?xt=urn:btih:E0851AD00E389B7A5995F2288481E25D7C8F061F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Teenage Mutant Ninja Turtles: Out of the Shadows переносит вас в т
 ```bash
 magnet:?xt=urn:btih:28679D2AC17C6E1686949984FA343FA77F18666A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46DF95B106DA0EF98EF1FBE7BDBD2958827BD938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Mathematica — система компьютерной алгебры комп�
 ```bash
 magnet:?xt=urn:btih:94EFF01CF25778D4DD91BB586C54EA848728EB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CA5CB9067FD55A684753C5AD5C1E60EA1B19644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4F9857A203C303978E93FB8192972D7325F8C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ Drag & Drop: Film Clutter - включает в себя более 50 высо�
 ```bash
 magnet:?xt=urn:btih:06675C4D2CF78138A172C1E6F9CBC26ABF1BD4D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ VMware Player это самый простой способ для одновр�
 ```bash
 magnet:?xt=urn:btih:EAFD92C38DA4FC7D34A5481BF14FF71335D0799B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF614B527D3B901F9A74D492D9922A2E2D6C7136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Lynda.com | Photoshop для дизайнеров: Фильтры (2013) [PCRec]
 ```bash
 magnet:?xt=urn:btih:3257DB116016BF5E5CBD8546D1C98296FD8E5502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:ED577EC3F6BA0A10627CD9543A32E9E2BB136080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ MiniTool Partition Wizard - программа для работы с разде
 ```bash
 magnet:?xt=urn:btih:545C565662B40FFEA914FEBDA2A79A0B0E5E8CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ Drag & Drop - клипы на основе визуальных эффектов
 ```bash
 magnet:?xt=urn:btih:22E2F2EA30669F123DD00DAE0308AA4AA1ACBBA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22D6930F49EB83266FAE80E804A14140DF79F2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +634,7 @@ Huntsman: The Orphanage - приключенческая игра с элеме�
 ```bash
 magnet:?xt=urn:btih:19690E9D691CC85740551C577743BFA6D5B7F504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8AC0EF0A718A16F029DA5D011F784A0F671C5B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

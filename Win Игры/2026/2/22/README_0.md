@@ -19,8 +19,7 @@ Montgomery Fox 3 and the Revenge of Victor Draven / Монтгомери Фок�
 ```bash
 magnet:?xt=urn:btih:F8A2374B023644D0DDEFD619FCE2956D51B64BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fear The Timeloop (2026) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:84E140DCED73C7A8B8AE9A48B45C3FB631B19059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Norse: Oath of Blood - это сюжетная пошаговая тактиче
 ```bash
 magnet:?xt=urn:btih:F0CFE318835080BE09A736B0EBCF8045A35616B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Norse: Oath of Blood - это сюжетная пошаговая тактиче
 ```bash
 magnet:?xt=urn:btih:B114BE9F645F141918E4539978E5B609BB361DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (1.2/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:E0AA1C291DA17738FFD4C6996577AFEBC6916931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crisol: Theater of Idols - напряжённое приключение от п
 ```bash
 magnet:?xt=urn:btih:CD058A3B41D9A43BF7E894870E899C68E77FF877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Norse: Oath of Blood - это сюжетная пошаговая тактиче
 ```bash
 magnet:?xt=urn:btih:CFEBA237BEF76FA9B35D3BB7805A74909A31C01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:983C43F39E44FD25381D05170DB744A6C5754F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ This Is the Police (2016) [Ru/Multi] (1.1.3.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:BDDB22D770346950C723A6392A1E67472AB0A0DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Voidtrain (2023) [Ru/Multi] (1.05/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:52631C8B4FDF07969B11E159540881D594D882FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

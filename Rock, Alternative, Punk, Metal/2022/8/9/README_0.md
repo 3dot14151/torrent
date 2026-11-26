@@ -22,8 +22,7 @@ Apocryphus - Eternal Suffering (2019) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 ```bash
 magnet:?xt=urn:btih:F7E95B6510465EC66816650C851BEB510A62B1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Age Of Agony - Machinery of Hatred (2011) [FLAC|Lossless|image + .cue] <Death Me
 ```bash
 magnet:?xt=urn:btih:82EBBFC54FD1E0F565F396ACFEA75AA417DEABE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ April Weeps - Comma (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Death Metal
 ```bash
 magnet:?xt=urn:btih:8190E85E82378D4D97F0E9E4CEB06F69587DFF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sadist - Hyaena (2015) Digipak [FLAC|Lossless|image + .cue] <Progressive Death M
 ```bash
 magnet:?xt=urn:btih:F8552317C9203568319A4A94364A9EF16B58B325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sadist - Firescorched (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal
 ```bash
 magnet:?xt=urn:btih:430581DF2603CD631A286FA49F13F118610D4843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ April Weeps - Outer Calm, Pain Within (2013) [FLAC|Lossless|WEB-DL|tracks] <Symp
 ```bash
 magnet:?xt=urn:btih:70303CE4DA00F40F6A61F9079E1C5223E037615B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Tensile - Regression of Humanity (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:5ADC0090DFFFC0094EF768C68AE6D771BF838C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ April Weeps - Cataclastic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Groove, 
 ```bash
 magnet:?xt=urn:btih:74F0903193AD493A0CC3344A4ED8AA7C86CD0B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Caught In The Act - Act 1: Relapse Of Reason (1995) Japan [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:E51FCCB93593CB1F3757C2FB65F8166944A20D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ CD - 1 - Blood God:
 ```bash
 magnet:?xt=urn:btih:FA05AB7B7330653F9A57123C0B5674C77147D7E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

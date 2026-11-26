@@ -19,8 +19,7 @@ Dark Parables 11: The Swan Princess And The Dire Tree / Темные Притч�
 ```bash
 magnet:?xt=urn:btih:DAA60FB18BA696E1A81442C248FA32FF1135D108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pac-Man Championship Edition 2 (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B6B8A4A9EF6AE336830CD252571E8323D2E95EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DEAD RISING (2016) [Ru/Multi] (1.0.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E72DF6356867509EBDAC559C4BCE21D11FA40F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

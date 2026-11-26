@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6BA165614AEACF44344692083545F4158DA38546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37E5F64902442E7E8DFBA97937961F4BAAAE9868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:459CA22354C94D59B605F4D4F58FC8996E5AF159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Myteri - The Silent Death (2015) EP [MP3|320 кб/с]<Neocrust, Hardcore, Сrust
 ```bash
 magnet:?xt=urn:btih:76A6BD570313148BB50493F8E71895F12D5090C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BD2DEBA30AA6AAEB570FE658F24C98FBB66A582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF8198FC48D001C1671A9495EABC4E2F5257CFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Junkware Removal Tool 6.5.6 [En]
 ```bash
 magnet:?xt=urn:btih:CA259F0F5C73D1A64689F4F0528255ACC027450C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F91D94CEB0FA95FDAE275D1036AC2970CD330B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90296DFBC1136E68639DA90B7581BC806C31EBC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ SiriuZ - Clouds & Peace (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:439D0CE245F05CB83286D9E1E45F3509EF098A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Priory - Need To Know (2015) [MP3|320 кб/с]<Electronic, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:F8BB0CE7D0CE3143FEA17A0AD6C4B65F2AD7DF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A45E0CCC7063FC1E61EDFC4F6B2A34994C20C529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECFABBDAAD77407B9702619EB754229A7AACCCB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Charlie Mariano Quartet - Plays Alto and Tenor (2005) [FLAC|Lossless]<Jazz, Bop>
 ```bash
 magnet:?xt=urn:btih:141180A1390031F61E8B66788D6A59735BCC7E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ Casino Versus Japan - Damaged Errata (2015) EP [FLAC|Lossless|WEB-DL]<Ambient, S
 ```bash
 magnet:?xt=urn:btih:6F913125EDE2021280039B63E9A43485F18B6988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2F9E627B14C080A189D861A216F85B0D878CFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Mosspark - Mocha Stain (2015) [FLAC|Lossless|WEB-DL]<Ambient, Experimental, IDM,
 ```bash
 magnet:?xt=urn:btih:EFC4744756030DECF38BB19D64746A47DDBC87FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:94AFAAFF54D707549BEF177E5895E72E6D6D56F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ The Scott Hamilton Quintet - The Right Time (2004) [FLAC|Lossless]<Jazz, Mainstr
 ```bash
 magnet:?xt=urn:btih:476EB20E2874EB58B8B83FE9A2A85598BEB63D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFB24FB265E1A3FED0CA73B4C33B73D30DA3EDAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7EFB4820AD1672ECAF696249457E764DA2F45DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13BB99F9E69120086AFF5BBBD33B64AEACA4B675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ Sona - Lymphatic Abyss (2015) EP [MP3|320 кб/с]<Atmospheric Post Black Metal,
 ```bash
 magnet:?xt=urn:btih:BE83AF571A4A59C4F30E9A283C69079C68AFB57F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ Jettblack - Disguises (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:302CE03C3B9F1C13DB4C971A089C067A4DEF780A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Videobox позволяет Вам быстро и легко закачиват
 ```bash
 magnet:?xt=urn:btih:A2854DD385D0CC7296F5BF41FEAEBD5EEEE94D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13B65854262990ABA71064FA00DF42A7ACB703FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

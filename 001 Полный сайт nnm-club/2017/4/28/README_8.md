@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E267F939D347BF173C892D1B8EF837FF718B9388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EB729D85A6AB2D8E264D7BBF5F888E2DD6DD588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Imagika - Worship (1998) [FLAC|Lossless|image + .cue] <Power, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4881C4D6919DD2EEF24FCD7D5EB55FD50303412D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ File Cabinet Pro  - менеджер документов из строки ме
 ```bash
 magnet:?xt=urn:btih:6BC5DDED6D9BE1EFA875A4D4E1678F5076E0C205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Slide Hampton - Jazz With A Twist & Explosion! (1962) 2001, Atlantic [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:E49827E5F097245189AFC8798FB8B054A7E9DF39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - #WeAreTrance #005-17-05 (Mixed by DJ T.H.) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:15E2C02FD72BE6AE4D9AEFE672A53FC108437AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Pee Wee Russell - Ask Me Now! (1963) 2002,  Universal [APE|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:0389AC134F4B289A3228A27524C62ECBC756B401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Pee Wee Russell & Coleman Hawkins - Jazz Reunion (1961, 1963) 2002, Past Perfect
 ```bash
 magnet:?xt=urn:btih:1AB944A72308B29005259B7ED5A849F62D83551E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Kenny Burrell - God Bless the Child (1971) 1987 [WavPack|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:0EBC625916C28358C644E0C4896F991CA361D9EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Kenny Burrell - Midnight Blue (1967) 1999, RVG Edition [WavPack|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:CAF94B0636E9D790CCB44405F85E93EA1251751E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Phillip Island 500. Э
 ```bash
 magnet:?xt=urn:btih:311F17C7031EB489CA4BA8C64801A4D55569C38E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Phillip Island 500. Э
 ```bash
 magnet:?xt=urn:btih:A568481D02FE763091695AFA99B655CBB5CD1762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Kenny Burrell - Introducing Kenny Burrell (1956) 2000, 2CD, Compilation [WavPack
 ```bash
 magnet:?xt=urn:btih:43ED7A063DDC6B321E3D543FD8316AC8D822089C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ VA - Black Chill & Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:3A62E9B42B9A6B56C580062301D661F7BE7CC188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ James Ingram - The Power of Great Music (1991) [APE|Lossless|image + .cue] <Soul
 ```bash
 magnet:?xt=urn:btih:EB30ADEF382430E055CF4023A22EAA994C5A884F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Pip Pyle - 7 Year Itch (1998) [WavPack|Lossless|image + .cue] <Canterbury Scene,
 ```bash
 magnet:?xt=urn:btih:B881A676DBADF502635FD16D20B8395B831CFE49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49E57A600AC1D062594E4857E59A04FEDA5FCC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ VA - Beatport Trance  Pack (28.04.) (2017) [MP3|320 Kbps] <Trance, Energy, Tech 
 ```bash
 magnet:?xt=urn:btih:292427FE6ED8C5B44541FCE504375E39EBEFF78C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ Psykup - Ctl + Alt + F*ck (2017) [MP3|320 Kbps] <Experimental Metal>
 ```bash
 magnet:?xt=urn:btih:6EB24DCEDD6ACFBAE8D7647A685970C427D6F352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ William Hoshal - River Of Clouds (2017) [MP3|320 Kbps] <Ambient>
 ```bash
 magnet:?xt=urn:btih:003B4B10FD1B0C49CE0C75AD388A461CD33CC7EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ VA - Ristorante Lounge And Deep - Restaurant Music (2017) [MP3|320 Kbps] <Balear
 ```bash
 magnet:?xt=urn:btih:673AD9FE1076FC5D527E2AD7C16DA1186BAF2B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ Mauro Picotto - Deep Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:9222B02FF367EB9235BFCC725EA668BA38ECA3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ VA - Chill House Original Electro Mix 2017  [MP3|320 Kbps] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:6F623C3C35A266A1711E662E1AE2A839B2E40579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:B5A91CEEA78572DCFE8295F7A0879670EAF2FAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +710,7 @@ VA - Coral City Compilation (2016) [MP3|320 Kbps] <Nu Disco, Disco House>
 ```bash
 magnet:?xt=urn:btih:023676E7090512BA9AF5BEF9B61CA91C68A0A801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:D0CE6370DB9B66DDC1A144AC8E28FB3F46D4B9D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ U-429: Подводная тюрьма / In Enemy Hands (2004) WEB-DL [H.264/108
 ```bash
 magnet:?xt=urn:btih:A1626411CD0DD27A3F865B3375A7D14162FEA2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Happy Digital - Autohedge 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:E5D9456827990CFFBFD45935C11C37A7D4D1D076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13E831173226FBA2D902A953E20E976C0085A94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:906A0FF5E7A0600CC68912F8D54D3F00B2BB1357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ New Year Countdown 2019 - это 60 секунд обратного отсчет
 ```bash
 magnet:?xt=urn:btih:BB100B5933F1900A5C10DEA85EDE45270921F8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BD8014CFA4C61645DC3A53055D7246392EC86A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Movavi Photo Editor – это простой фоторедактор для к
 ```bash
 magnet:?xt=urn:btih:A5BA0452AE765C28015C92CE3537A7A6DB14F566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ ProShow Producer - Happy Fall Y'all [PSH]
 ```bash
 magnet:?xt=urn:btih:31A25089CFDFA5F8317F0AB3D8896A306CA91204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Photographer Portfolio - это динамичный, стильный и про
 ```bash
 magnet:?xt=urn:btih:4449B37D44A217300B5F3FDCA27E4EE4BA93CC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ Steel Panther - 5 Studio Albums, 2 Live Albums, Other Tracks (2009-2019) [MP3|32
 ```bash
 magnet:?xt=urn:btih:E46E0F8FCCF14CD979918E18B2C18F4DC25C88CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ VideoHive - Animated Party Flyers 2.0 - 24684641 [AEP]
 ```bash
 magnet:?xt=urn:btih:DF4132F14E32788FE7F6CFB57547DF5922C5C265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3000A2DD7A7CC13E5049F0A5AC3AFE6276DFEEC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ BELOFF [dp] 2019.9.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:F088F03CBC42DE1F9AE01E997EA077533630243B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Psiphon предназначен для предоставления вам от
 ```bash
 magnet:?xt=urn:btih:5C5AC58D9B58768E5A7D8987EC4B0FA3A10F5EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ qBittorrent v4.1.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:254867BB4D39F2B6BF9F433E32456D9D11A7AF3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ VideoHive - 4TV Broadcast Package - 5869372 [AEP]
 ```bash
 magnet:?xt=urn:btih:FF877F89D55A2300598D910F1FD719CD0A467BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ NG. Дикая Скандинавия / Wild Nordic (2019) HDTV [H.264/1080i] (�
 ```bash
 magnet:?xt=urn:btih:45C87BFFCBE702AA83047CC069A696142DDE979D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ VideoHive - Solid Sport Trophy Intro (Opener) - 22280742 [AEP]
 ```bash
 magnet:?xt=urn:btih:23533CD8F0847B92DEA21488FE38A51394C7544D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74DFC8009C491EC057CF26ED9D0A467BDFC0383B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:055896549EFD91F92D9399FD61914EC916DEF41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ Karakai Jouzu no Takagi-san 2 | Озорная Такаги [ТВ-2] [2019, TV, 
 ```bash
 magnet:?xt=urn:btih:D6DD44DB58338766A7A266FC67626914C899C882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ VideoHive - Photographers Eye Logo - 7293615 [AEP]
 ```bash
 magnet:?xt=urn:btih:B90F37755FBE65DDC30E6CBB9C2D34B390AB66BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7694098EC4DFA91783935C89A4DC2A048C166A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1EAC45F0265F3D762E5DEE8E48089C0034E8893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

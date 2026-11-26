@@ -19,8 +19,7 @@ MASSIVE CHALICE - великолепная тактическая стратег
 ```bash
 magnet:?xt=urn:btih:5288D75AD296EB49103167964FFE6053F390716A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Chaos Ride (2015) [En] (1.0) License FASiSO
 ```bash
 magnet:?xt=urn:btih:62F82CECCA03E8E3030A3ED994D45858E428DB66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

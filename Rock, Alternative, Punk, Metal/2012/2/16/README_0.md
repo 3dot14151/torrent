@@ -28,8 +28,7 @@ Silent Opera - Immortal Beauty (2011) [MP3|320 kbps]<Symphonic Metal, Gothic Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Necondition - Original Necondition (2012) [MP3|320 kbps]<Ska Punk>
 ```bash
 magnet:?xt=urn:btih:08FC98CE9785E2F991DCB11BF201F67510D519D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Howlin Rain - The Russian Wilds (2012) [MP3|320 kbps]<Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BDCB9E0B4431C7097849030A977E2BE360738DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Kreator - 14 Альбомов (1985-2009) Japan 1-st Press [FLAC|Lossless]<Thras
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Deep Purple — британская рок-группа, образованна
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

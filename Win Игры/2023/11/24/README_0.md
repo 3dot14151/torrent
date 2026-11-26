@@ -19,8 +19,7 @@ Hidden Object Legends: Deadly Love (2023) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:D14CF46D79D3717CBAC1D5B8E9002A038C35B2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GO
 ```bash
 magnet:?xt=urn:btih:8628F6EEC2D45AA9450620E6BF2118DD93187023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

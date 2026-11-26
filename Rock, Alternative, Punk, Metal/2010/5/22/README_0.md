@@ -28,8 +28,7 @@ Plumb - Discography (7 CDs) [MP3|128-320 kbps] (1997-2009)<Rock, Christian, Alte
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Guns N' Roses - 8 Releases (1987-2008) [FLAC|Lossless]<Hard Rock / Blues Rock / 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

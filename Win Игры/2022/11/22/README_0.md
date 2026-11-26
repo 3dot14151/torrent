@@ -19,8 +19,7 @@ Mystery Case Files 24: The Last Resort (2022) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:6041FE35EB72D0FEE7B7AD5657A7755CAD6E959D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (1217_27401) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:FF0EBD2379A5659FD7CD3D5002D97C008AB09EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

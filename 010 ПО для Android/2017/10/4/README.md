@@ -19,8 +19,7 @@ ASR - это одно из лучших приложений-диктофоно�
 ```bash
 magnet:?xt=urn:btih:C2263B8595B44B0D0F06E410072CF0DE6F3F4670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

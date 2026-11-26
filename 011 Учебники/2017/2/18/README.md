@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:788389C931A19452C284D2ED508D8963FBDE2A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ RCA | Basic Alcohol Tutorial (Руководство для барменов) (2
 ```bash
 magnet:?xt=urn:btih:E72218A525F8C208847E117B1569E8A264C4F664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E621B36349C86656F5820D808C3D7D614131BC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dead Link: Pages Torn / Цепи смерти: Обрывки страниц (20
 ```bash
 magnet:?xt=urn:btih:8682602AE2407F2224F18D157B2626DF90348759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

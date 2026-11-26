@@ -22,8 +22,7 @@ Vetust - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Doom M
 ```bash
 magnet:?xt=urn:btih:5CD47D6B4D15FA26261169145368F79E99484F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Maule - Maule (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D0D023C7CB86D4C6CACA5F038852541BC70F9EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tristan Harders' Twilight Theatre - Drifting Into Insanity (2022) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:E1EED80F9117155C838E97DD99DE1BCDB70FBCEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Elvis Costello & The Imposters - The Boy Named If (2022) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:D9DA3568614A48327ED6C5F54D0FC670D5DD0302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

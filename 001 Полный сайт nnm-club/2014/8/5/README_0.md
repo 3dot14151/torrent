@@ -27,8 +27,7 @@ VA - Клубные Новинки Vol.478 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:8483C1A6AEBC3DF0A7266E71EA7EF6FB64EBF426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Cookie  - Программа для полного удаления cookie-фа�
 ```bash
 magnet:?xt=urn:btih:7B9A703C4CBF572B519E436220FCA145169E6E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Backbone Slip - Swamp Water (1991) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:497BB9734842B44ABBAC115DFB29FBDFF9C29C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE9F7F90FFE22984844A4D3D1578B3B8BE555CBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ VA - Tales From The Mental Asylum Chapter 2 (Mixed By Indecent Noise) (2014) [MP
 ```bash
 magnet:?xt=urn:btih:B3BA3BB69FDF65A82E78FB30CF8E6ACD1DA0F1CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Funabashi - A Walk To Remember (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:C108DF85F0912D937404E0EF9E8481A0120FCEB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ VA - Клубные Новинки Vol.479 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:5A833A3CEFB4B02B0784AEFFA23050051C8A7C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ VA - Niall Redmond - It's Deeptown IBIZA Baby (2014) [MP3|320 кб/с]<House, De
 ```bash
 magnet:?xt=urn:btih:2B256527D6A5ADA3D8D55785C66F2241A23C6989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ Sasha - Live @ Avalon (2014) (Hollywood, US) [MP3|320 кб/с]<Progressive House
 ```bash
 magnet:?xt=urn:btih:C927E79578F26C51EE3A26A7267C944817BC4750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ Silent Descent - Remind Games (2014) [MP3|320 кб/с]<Melodic Death Metal, Mode
 ```bash
 magnet:?xt=urn:btih:7EBC4BA4CFA283661677C05BB1BC188FAFFCCBD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:751E6D2C66F5E7824D5A812CC01033DE1026AF05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFAA5806ED6335AFF1B231928E11553CCFB130A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ Aeon Timeline: программный инструмент для создани
 ```bash
 magnet:?xt=urn:btih:CCADB0707ED3216C96BCBF50682FD6148C96CECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ Netsky - Running Low (2014) EP [MP3|320 кб/с]<Drum'n'Bass, BassHouse>
 ```bash
 magnet:?xt=urn:btih:D290F3B7C646F105370E462D9D9FA7D33DDE0D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ VA - Клубные Новинки Vol.477 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:0084CA907D23A1A06D24E1C22E8D8C9F0BF2C5F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ Kix - Rock Your Face Off (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1D7312262AF7BA48AFDA8218549D8C21BFCF623E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +546,7 @@ Atmospheric Energy - Inspired August 2014 (2014) [MP3|320 кб/с]<Progressive B
 ```bash
 magnet:?xt=urn:btih:0675177B9FD874A35C6C55A59519269E77C7F444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +580,7 @@ I. A. Bericochea - Negro Y Azul (2014) [MP3|320 кб/с]<Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:4A375BB2021ADAD01BBA6804E7A222D6507AF5D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +613,7 @@ VA - Клубные Новинки Vol.480 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:444F51E58075F6517386B31298815B42555627A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +641,7 @@ Carbon Copy Cloner - позволяет полностью клонироват�
 ```bash
 magnet:?xt=urn:btih:13E51F3781C2D4DD412B12562B8C1A6EE1EBAB3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +675,7 @@ Hybrid Void - Silent Storms Approaching (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambie
 ```bash
 magnet:?xt=urn:btih:BCC81C5D4B24408CEEB714C54623A9FCCEB4F04F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF3D60017AEDEF1824B473AA92A9BF4908138E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +725,7 @@ Process Lasso Pro - позволяет вручную или автоматич�
 ```bash
 magnet:?xt=urn:btih:4F06EE0A0DD6096A9BAE62FB747DD82A5167D74E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CC30DBCB864956658D20BF7DCF48EDD2A7B2E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -800,8 +775,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A6048C226447E5BCF0242CFE89B0AEFF4B1CA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

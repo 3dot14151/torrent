@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B0499AB4785519737A9B3674E4F73993C5F8EF7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Reckless Love - Spirit (2013) [FLAC|Lossless]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:6EFF888F087F4FC3B01A52AE83AC050BFC9F341D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ NirLauncher Package - это пакет из 174 небольших утилит
 ```bash
 magnet:?xt=urn:btih:BDD581503EA8A5F3AD898E65850101406844BE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ VA - Buygore Allstars Vol. 2 (2013) [MP3|320 Kbps] <Dubstep, Breakbeat>
 ```bash
 magnet:?xt=urn:btih:851D9DBFDBD2093E144B3202D364D424C575E4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Oh, Sleeper - 5 альбомов (2006 - 2013) [MP3|320 кб/с]<Christian metal
 ```bash
 magnet:?xt=urn:btih:2736EADD3474199EA865DD5DF1A93DF2BDDE8EB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:400FF8F4E8378A4E46D9E69C9B509B01B4FE8746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Prost - Оно того стоит [EP] (2013) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:B36FDF788D1EE3FCC9CBDCDAD9E888F36CBEE537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A99184E8AB0BDF3FF254DB6C3E1E9BD5462FFC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17801A1C8C531ACDE7673D17A70F8D9FC12A4FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ NG. Затмение острова Пасхи / Easter Island Eclipse (2010) HD
 ```bash
 magnet:?xt=urn:btih:D05BC7F68B87367768494DCE31105EE19E5E908F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ VA - Bravo Hits 83 (2013) [MP3|~245 кб/с (V0)]<Pop>
 ```bash
 magnet:?xt=urn:btih:138AE90DE8D16B803606F50F90969ACD4C501832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E6C9A6AFBA4590ACCDB43A705623252084F948F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ CaPa - Capa II (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:3AB7C6E67BAE167F3A8002AB27A877BD06C8D931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ Lenzman - Open Page / Coincidence (2010) [FLAC|Lossless]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:C6D989497717EF1D2DCE8EC7B5DC43E4DB5125B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ FlashFXP - FTP-клиент, поддерживающий любые типы с
 ```bash
 magnet:?xt=urn:btih:FAB0FC1E196CC293587F64656C4473B738BF63A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Int Company - Neuro Ukraine (2013) LP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:239E0B332F55B6400AA43E1F1ABB168134659D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DB573C7EE7A91CC69EC64A3E26CD3E3CFB76F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE4358120A113ED70A4AA3B6451263CD68CF8DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:826AD6CBF0A3FD6E2DBB5248ED35BF00B6A26800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +585,7 @@ VA - The Official UK Top 40 Singles Chart (22-09-2013) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:18B082F4186CA67E00991F17B669472FF7AF1AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:547D998D45F329C88AA998F256976A78DB26CF94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +644,7 @@ Bcee - Beat The System (2011) [FLAC|Lossless]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:4DEC55F180EE6BE73E467BDBB9100A085E57DBBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +678,7 @@ Commix - Call To Mind (2007) [FLAC|Lossless]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1B59DBB91E8164B89F479D23DDAF26804E7CA874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +712,7 @@ B5.Call My Name :: 04:29Жанр: Synth-popФормат: Vinyl, LP, AlbumПро�
 ```bash
 magnet:?xt=urn:btih:56DD0482BD1E864312821E6EE3B308D86961FD7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91182BDB00A79413F9E41F8530550F19B31F76BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

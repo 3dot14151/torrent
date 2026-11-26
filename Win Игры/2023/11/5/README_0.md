@@ -19,8 +19,7 @@ A Quest That Became Legend (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3EFE673421F3087E4E6E5B135A5DAD85DB3D313A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) License G
 ```bash
 magnet:?xt=urn:btih:86815B64F39CAC5A95A3D61AF847E0A8C87387E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Salt and Sacrifice (2023) [Multi] (1.0.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5DAB1A8BBF07292BEB8655D5825AA555F24960B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAi
 ```bash
 magnet:?xt=urn:btih:A59C8E33DCB8F37F674EC45F5AA58E661CFD2BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

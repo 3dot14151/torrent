@@ -19,8 +19,7 @@ Kholat – это приключенческая хоррор-игра, вдох
 ```bash
 magnet:?xt=urn:btih:2E838F3E9484C8F7D6DA485E7BE93F915E6EA6A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

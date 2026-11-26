@@ -20,8 +20,7 @@ Candleman 3.3.2 Mod by youarefinished [Ru]
 ```bash
 magnet:?xt=urn:btih:052B975A0D7D237F87F51911DD1D2028830E301A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

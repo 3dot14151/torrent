@@ -19,8 +19,7 @@ Promethean Activstudio 3.5.136 Professional Edition [Rus/Kaz/Eng]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

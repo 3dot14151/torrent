@@ -19,8 +19,7 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:48B847B30D0425F4FB70BCB671B8F9725BB6FC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:0992DA7F85FB2715F2D2022E4508A6732E9748E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DISMTools — это интерфейс для DISM, позволяющий уп
 ```bash
 magnet:?xt=urn:btih:2C08C943E1A4C1AFB73DE11472ADFAE27194CDAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Wise Duplicate Finder помогает найти и удалить дублик
 ```bash
 magnet:?xt=urn:btih:1748CBDE2020BCBE12F6295F78F1EE8629750D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Ashampoo Burning Studio 27.0.1.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:81B60E5A1FBC8FC1F823652E7C7D19BA9F251203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ MaxBulk Mailer - это полнофункциональное программ�
 ```bash
 magnet:?xt=urn:btih:ABDB1DC302924CA9E3E68B121BAA8A0D7156B186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:9EECAF2F292621DBB93BDDD5E369ECFD28324997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 ```bash
 magnet:?xt=urn:btih:2E823DD31F4BAE5EDAF852FA1FCEE131626D5187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ InCopy позволяет авторам напрямую набирать те�
 ```bash
 magnet:?xt=urn:btih:4988A9A4063DA5FE78AE3B3334230559BB5F28E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:B4FF3042CA38D0DE75555235D766293EC6290ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

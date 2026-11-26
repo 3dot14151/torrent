@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:EEB125C35C9EF141346C98C7BB75F8B5D5E1BB4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ B5. Besoin :: 02:44Жанр: Italo-Disco, Synth-popФормат: Vinyl, LP, Albu
 ```bash
 magnet:?xt=urn:btih:75FC5E768329302F3BE5D8A5B0419278E67B4F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

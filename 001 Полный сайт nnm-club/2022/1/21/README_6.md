@@ -21,8 +21,7 @@ VA - Buddah's Chill 5 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:672B597E2B915D92B1912E5231FC7C6E047BC038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

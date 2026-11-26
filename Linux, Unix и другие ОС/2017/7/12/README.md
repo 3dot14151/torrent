@@ -20,8 +20,7 @@ PDF Studio — мощное приложение для работы с PDF. П�
 ```bash
 magnet:?xt=urn:btih:90FBC5A046F3899EC63DBADAFC2499007ECE8460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

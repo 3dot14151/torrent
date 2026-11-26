@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A162F77C2116F20B03C071DD3792CA245712FD65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ THW-Simulator 2012 [Ger] (L) 2012 | ALiAS
 ```bash
 magnet:?xt=urn:btih:DC1FE5728164CAA0560D5CDB4B0ADC675DA76F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Bubblenauts: The Hunt for Jolly Rogers Treasure (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:71DCCEE8EE7B49F9151A053682C45F24E875FF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB8805538A97DDC4A99493BCD5A4527853B3DE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Rebuild the History (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:9658BDFE3CB17AD07EC8446D72D8127026BE854F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

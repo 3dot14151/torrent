@@ -19,8 +19,7 @@ Bridge to Another World 7: Secrets of the Nutcracker (2020) [En] (1.0) Unofficia
 ```bash
 magnet:?xt=urn:btih:A4184218C171DE58E510F5A24DFB2D385220988E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enchanted Kingdom 8: Master of Riddles / Зачарованное королев
 ```bash
 magnet:?xt=urn:btih:A1917DABB4F37F58BF262D631C9E774DAE076BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Legacy: Witch Island 3 / Наследие: Остров ведьмы 3 (2020) [R
 ```bash
 magnet:?xt=urn:btih:000521EECB8C0A5C9994F352C51E9289F70079C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ YesterMorrow (2020) [Ru/Multi] (1.0.4.1) License GOG
 ```bash
 magnet:?xt=urn:btih:487463DC1726A31968BF897C7AA8AF7F9447627A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tell Me Why (2020) [Ru/Multi] (5510896) Repack xatab [18+]
 ```bash
 magnet:?xt=urn:btih:2088A1F859B2FD89135C806CBDBD57AAF6840935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ MXGP 2020 - The Official Motocross Videogame (2020) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:3BC5BB1626D0717B4494BD560BFCC70FD4E3FD7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

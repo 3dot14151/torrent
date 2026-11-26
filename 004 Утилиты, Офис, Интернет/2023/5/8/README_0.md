@@ -19,8 +19,7 @@ Poricom - интересная программа, разработанная д
 ```bash
 magnet:?xt=urn:btih:0EA56F1CFE79542ECB74C3403A878763E2A3BE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

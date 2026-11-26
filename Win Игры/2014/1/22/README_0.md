@@ -19,8 +19,7 @@ Shtriga: Summer Camp / Штрига: Летний Лагерь (2014) [Ru] Unoff
 ```bash
 magnet:?xt=urn:btih:3ED57AA7E52987C036708AA5527E678072BA6F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Secret Bunker USSR: The Legend of the Vile Professor (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:9171F26802660F81347D79FE7208F898C30B8B35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Amaranthine Voyage 2: The Living Mountain / В поисках бессмерти
 ```bash
 magnet:?xt=urn:btih:84556665413293050F7E43D0FDBBF70F9CB64308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Secret Files: Sam Peters (2013) [Ru/En] (1.0) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:DE893C05149D02DA856D70DA513FF0BA841D4B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

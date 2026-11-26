@@ -19,8 +19,7 @@ Hockey Question Mark (2017) [En] (0.55 uh .59) Unofficial
 ```bash
 magnet:?xt=urn:btih:7AEC5632E829BAC688151DD99E245753A08B252F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reservoir Dogs: Bloody Days (2017) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:E8010E58823D54B8C82384E41B4E157A28742742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Prey (2017) [Ru/Multi] (1.0/dlc) License CPY
 ```bash
 magnet:?xt=urn:btih:7113E5D615C56F5351F8B4AEA6A50D0DA70F9D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

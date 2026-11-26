@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0022B60F9CF1E9236B4DB753DCDFA223E4E2C73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FEFF568A8153FCB40D1FDDF908B6FAB5343FB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Tsugumomo | Цугумомо [ТВ-1] [2017, TV, 12 эп.] BDrip 1080p raw
 ```bash
 magnet:?xt=urn:btih:A4D0FEDA383CE3DFC37C2F2CC1E8C7743732A87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Abyss Odyssey (2014) [Ru/En] (1.14) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:B4F5EF140BA940B5E20813E9406C4968A66F77DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Double Commander это кросс платформенный open source фай
 ```bash
 magnet:?xt=urn:btih:B0ADC5BB5B97091AE924ADFB92E27D36F36ACA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:610F7D6A782E22BAB7A689E4519765A4927276AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:460220DD52E8A7F843847422D7CD0E1EBCA53154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63F0CB6EDDA6D7F4FBA0095B19EE5A6B90DB9AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35F46DB675076E6B9FC709DA70B7C0D5FE966887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Owarimonogatari (2017) | Owarimonogatari Second Season | Финальные ис
 ```bash
 magnet:?xt=urn:btih:1FC8D8FFED1962B8CA9199C8FA624C0C81D8C819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F64D59971123EAAEFE674DC261AA9D3FEE85D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C72C27E9B29673021AC5AD2232D29B1CB92E6BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Multi Commander - Удобный файловый менеджер с двухп
 ```bash
 magnet:?xt=urn:btih:3721541A075AF6739B1C25C2BCE0EBA1C3DC1337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRem
 ```bash
 magnet:?xt=urn:btih:D8688410373C99ABF6374286099C84813B3C0C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Boris Continuum Complete 11
 ```bash
 magnet:?xt=urn:btih:3C16A2ED63BC4DCDC040601451E95CD8018B607C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ TurboMosaic — программа, позволяющая легко и быс�
 ```bash
 magnet:?xt=urn:btih:EFEBC8216460E287819981D6DAA1B76DA145074F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04/dlc) License CPY
 ```bash
 magnet:?xt=urn:btih:541A35EF64D5D5A4D3BA4133BCBE4684063C9D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4AFEC8541925C9F5328006ABD77AA1BA7CED84C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ Gorogoa – изящное развитие жанра головоломок, �
 ```bash
 magnet:?xt=urn:btih:D1F5D402FC364A8006A42CFDB2E7E51D622F07BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB32ED54BEB579227CAE2E2F19FA55A6E877EF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +522,7 @@ PhLearn | Photoshop Compositing Essential Tools & Techniques (2017) TS [H.264/72
 ```bash
 magnet:?xt=urn:btih:F544897AD118023B5EB8E74B05850FD1ED6C843F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37809316BDEC53634192EAE8CC632FD7A540B4FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F250DB05822FF49D78251CF98EE615CE8BFC8630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85DBF881295540AF8F376B6DFAC371374E98984E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8023EBCDBC6D57CAF7E50F970EB7B75854AD7FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +650,7 @@ VA - Итоговый Еврохит TOP-100 от Европа Плюс за 201
 ```bash
 magnet:?xt=urn:btih:C3F9076BB4BE79963A767BE3CE6B8F8063E1657F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

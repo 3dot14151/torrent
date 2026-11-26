@@ -19,8 +19,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.78.11833/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:DB29A96ABC6EE7711BF226589AFF87A22E8C16EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tactical Breach Wizards – тактическое ролевое приключ
 ```bash
 magnet:?xt=urn:btih:FD26D0BAC000DC5178F2596E8117844B3D0C9902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.002.26228) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4217A894FA008D0061C22359FB952E42E02D34C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3/1.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7920D7C3884E5E3929DE6D69C1D4EBCAA13C9353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dicefolk представляет собой тактическую игру в 
 ```bash
 magnet:?xt=urn:btih:43D486D42FC46D90CB382703C3B4ECE7D7C7976A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

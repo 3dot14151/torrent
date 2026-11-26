@@ -21,8 +21,7 @@ Fight - War Of Words (1993) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:AECEDAF841490B9ED0B29BC3886F2C17087B7B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Тебе любимая! (2016) [MP3|320 кб/с] <Pop, Шансон>
 ```bash
 magnet:?xt=urn:btih:6A8D01610857E237DFE184C69C17C70973229302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:184F9C58C371B7AE8DB1B2241C119F537C85299C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3515EB0F1CFA020E97B781944644DB50FA0BFCCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Шансон-состояние души 87 (2013) [MP3|256 кб/с] <Ша�
 ```bash
 magnet:?xt=urn:btih:1E78CF6F9F7C423EFAC5CE32DE75CAE0BC2BE408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ VA - Vocal Trance Seduction vol 8 (2016) [MP3|320 кб/с] <Trance, Vocal Trance
 ```bash
 magnet:?xt=urn:btih:BA1098FC6A2D4CE1243D3739EF0F43EFA279F613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:357AF183116FB8CC315C5620586A338EAD0F7B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ VA - Калина красная. Душевный шансон Выпуск 3 (
 ```bash
 magnet:?xt=urn:btih:CE5979BB039F7B7FAE9DF49E1AECCF335BF0A39B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Novaspace - Supernova (2003) [MP3|320 кб/с] <Electronic, Trance, Euro House>
 ```bash
 magnet:?xt=urn:btih:7BAE08FA07854C30664473A76FB6EC2C7A2B00B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70F4819090664DE9793D0B9C0A679DB01E1D8A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2451044B83CA20F208C897F2A911C40B3298147F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C10F147FC1C4B3FD171E1487B5FD6E4D7C191BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ VA - Ruhelounge Entspannungsraum (2016) [MP3|320 кб/с] <Chillout, Lounge, New
 ```bash
 magnet:?xt=urn:btih:E1008FB75798382675AFCBE853477B69C66DD21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ The Twins - Hold On To Your Dreams (1987) Remastered, 2003, Passion Factory Reco
 ```bash
 magnet:?xt=urn:btih:B5FCE22047611FD339D924FA0CD41B7CCC8CD4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:328050CC2A4EEEE2CE030C1D5067AF34062E3A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ VA - Clubничка №100 (2016) [MP3|256 кб/с] <Club , Dance>
 ```bash
 magnet:?xt=urn:btih:F713E3063F0BB1264EB28E55639216ECEE0F778A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ VA - Top 100 Order Vocal Trance (2016) [MP3|320 кб/с] <Vocal, Uplifting, Prog
 ```bash
 magnet:?xt=urn:btih:661515929CBE5DE7F1F1861EA201640DEF7F3375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ VA - Радио Шансон. Подарок любимой женщине (2016
 ```bash
 magnet:?xt=urn:btih:C6919EC60E5C3194F76642AEF71A5837C961F0EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Orpheus Chamber Orchestra  - Dvorak : Serenades Opp. 22 & 44 (1985) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:7D865C83AA575978402C1305403E3FB9006A246D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74B2B296F5E899B1DDC6F3717E26AEED8913A005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC071EBEF6E25D85F430994FA6C75B77321882CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Jjos - Fantasy (Ambient Balearic Chill) (2013) [MP3|320 кб/с] <Downtempo, Chi
 ```bash
 magnet:?xt=urn:btih:35EA2D28F2A1AD4927EB7D2DC3915BB53F570128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D7EA6B301466189D7F9F85BFA247A149015B507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ Wax - A Hundred Thousand In Fresh Notes (1989) [FLAC|Lossless|WEB-DL|tracks] <Ne
 ```bash
 magnet:?xt=urn:btih:A05454FFACBD57D6531A0E40B432E8E8C5EFDB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A38959962011BF520236530B1944389BE3B8A6E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD1B332B5A7A9FBE2782F5EF9E876BACA45321C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

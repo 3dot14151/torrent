@@ -20,8 +20,7 @@ GPXSee - перед вами программа, которая предлага
 ```bash
 magnet:?xt=urn:btih:AD0202719319918D12D55CD59E7A991907051CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

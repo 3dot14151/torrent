@@ -19,8 +19,7 @@ Mystery Trackers 15: Darkwater Bay / Охотники за тайнами 15: Б
 ```bash
 magnet:?xt=urn:btih:44664B8BBE980178EF380319C8B9294249355166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadows: Awakening — это продолжение знаменитой сер
 ```bash
 magnet:?xt=urn:btih:50D02B304AEABCDCC5CF3C6A95A969A7DA591EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Antigraviator (2018) [Ru/Multi] (1.292/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:16EFE8BB694EB5EFE39DAF31A9BC57FCA60BC726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

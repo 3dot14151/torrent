@@ -19,8 +19,7 @@ Solid Converter PDF - одна из замечательных программ 
 ```bash
 magnet:?xt=urn:btih:4EE3F86FD442BDEE65AAE1E93EE6B3B1D8657CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Solid PDF Tools предлагает надежное преобразовани
 ```bash
 magnet:?xt=urn:btih:244ADE92CDB007B7801C037E0FEFC7B6EDCE4D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Dexpot 1.6.14 Build 2439 Stable + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6DA93C8B34864875D57073A451C677308E3FB975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Solid PDF to Word 9.1.5565.761 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3C2FC6E5ED608C77C65D61708AA32CE07A9015E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Hetman Software Pack - Это пакет программ для восстан�
 ```bash
 magnet:?xt=urn:btih:6F60E96EF205C2B332D7339EEBE86E6E5888A5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

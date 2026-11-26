@@ -27,8 +27,7 @@ VA - Чифирок, кипяток, папиросочка. Лучшие хит
 ```bash
 magnet:?xt=urn:btih:A37FA02CD54179027EB8F07ACC96C127104B3C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ MakeUp Guide - программа, которая позволяет накла�
 ```bash
 magnet:?xt=urn:btih:70BBD53C2930681C46B30894547837DB3482BF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - 100 Песен для Влюбленных (2014) [MP3|256 кб/с]<Pop, R&
 ```bash
 magnet:?xt=urn:btih:9B4778252F9FFAD0ACB65F1B0476B9D636B78933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC645F2860DB349119E27B84536AA013BBD47065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Hang Drum Jam v.1.0.5 (2014) <En>
 ```bash
 magnet:?xt=urn:btih:7B53FCD315C23F4EEFB6881915B04564A621BF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:065DF03574C17AC1A9BC139A66D1285FCA0BE49E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ Act Three
 ```bash
 magnet:?xt=urn:btih:F2D725A6CBF52E39F111899D674735C91BCBC184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5CBCD748AD2C933D4B86AE23BF577793F20E9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEACA32B835615E5A989F51E248120584B97667E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ Michael Giacchino - Планета обезьян: Революция / Dawn of 
 ```bash
 magnet:?xt=urn:btih:718E0CBDC91A3EE963CEE071EB8F91CADC0E87F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ Garmin: Auto Drive Hellas v3.30T (июль 2014) <En/Gr>
 ```bash
 magnet:?xt=urn:btih:B43FFE3B93EE9745710909A1041352F98C8FA7E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ Hands Off! 2.1.4 [En]
 ```bash
 magnet:?xt=urn:btih:AF8B2FA7ED10553BCE95E937B14DCE14A4BB329E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B7DF08B25A185043A873EF3E0547CECE86ED627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E65C3C7C00DE040308B3C4C7A0017BA0130DB7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ Image Resize Guide - программа для изменения размеро
 ```bash
 magnet:?xt=urn:btih:021C5B93D8623639378EBA6C0867AFE97AEDF3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +452,7 @@ Act Three
 ```bash
 magnet:?xt=urn:btih:0DBA043157577CB080EB0654C59667F3C09DC38C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:140F8E278D928CF6F8FA71FA201B5073C2C1C543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED29F38D258528D33DFF5F5EA565DB981A5CB7E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +541,7 @@ Green Grey - Greatest Hits (2014) Compilation [MP3|320 кб/с]<Rock, Funk, Alte
 ```bash
 magnet:?xt=urn:btih:A0C47A9C77AE5A5C524718960CE2C263AA6D78E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9ADA0D8F23A0C5E97FAC06EA06E18D4B8F6500F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ Icon Craft - программа для работы с иконками и ку�
 ```bash
 magnet:?xt=urn:btih:6A5B7B95B9B77475982D116DCBF8F57A5FE6EDD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAD668A02BA0A67C8999EF318A07898492DD3D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6C24021B3AF6F2345981182DC329462304A8178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ Cosmetic Guide - программа для удаления косметичес
 ```bash
 magnet:?xt=urn:btih:FABDB1310F471F2E437DAFAEE536E5CBDAD5D78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ Picture Cutout Guide - программа для отделения объект
 ```bash
 magnet:?xt=urn:btih:8FB63B6905E8F80DC68F8E5C8BA1B8F9CC780840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56D8AB82B427FCD9F7CFF8F68C2C5DAFE7D77B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

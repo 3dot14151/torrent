@@ -19,8 +19,7 @@ PDF-XChange Editor - программа для просмотра, редакт�
 ```bash
 magnet:?xt=urn:btih:62C118774CC94EE314CD8568A2616330F5935C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

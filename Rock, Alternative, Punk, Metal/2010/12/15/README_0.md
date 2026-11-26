@@ -23,8 +23,7 @@ Madder Mortem - 7 albums (1997-2010) [mp3|256-320 kbps] <Doom/Gothic/Avant-garde
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ VA - Psycho Covers (2009) [MP3|192 kbps]<Psychobilly>
 ```bash
 magnet:?xt=urn:btih:F34E0051813EF1C03030BFF62466624B66E96784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Shakra - Дискография (1998 - 2009) [MP3|192-320 kbps]<Hard-Rock>
 ```bash
 magnet:?xt=urn:btih:1E36439DABB8A0F712AAD3C41CEFE1738FC917E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ The Cog is Dead - Steam Powered Stories (2010) [MP3|128 kbps]<Steampunk>
 ```bash
 magnet:?xt=urn:btih:3CA4E2D76F17D307488FECDB04F9413FC3C79C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D19CADDB0C0356B3483E80E28F70A0AEFE79618A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +202,7 @@ The Beatles - Хрестоматия (24 CD) (2003) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:3C5B90DE6FF7CAECD1848FAC74899AFD2DD8CD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

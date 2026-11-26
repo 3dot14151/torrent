@@ -19,8 +19,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550) Repack SpaceX
 ```bash
 magnet:?xt=urn:btih:3CCE230A1FD1EB4F2C7799D564B42A2BA62A32DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pascal's Wager – это ролевой экшен в мире темного �
 ```bash
 magnet:?xt=urn:btih:89F759AB108EDB932B245AC56DE0EBF6749D31F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead Age 2 – это продолжение успешной инди-игры 
 ```bash
 magnet:?xt=urn:btih:EE1B1464A0218E7991C7D98C87EA92FF76BCBA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pascal's Wager – это ролевой экшен в мире темного �
 ```bash
 magnet:?xt=urn:btih:4B397255360BA58BD04E393ECFEEABA11B4328C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

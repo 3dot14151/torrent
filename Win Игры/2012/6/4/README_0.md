@@ -23,8 +23,7 @@ DiRT Showdown [Ru/En] (RePack) 2012 l R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:99E904E72A08C9A37D20A06CBA5BF52460920101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Resident Evil: Operation Raccoon City - DLC Pack [Ru/En/Multi9] 2012 | R.G. Иг
 ```bash
 magnet:?xt=urn:btih:F70618E9AE4FE24A2A62F292BC635806BBB875B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Disharmony Blocks (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F2188285DF7D6F165064DDC30C1FA49B212E4D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ PuppetShow: Lost Town / Кукловоды. Город-призрак (P) [Ru] 2
 ```bash
 magnet:?xt=urn:btih:C080923E56762BA5871A7DF0F6352A419A6E4146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ DiRT Showdown (Русификатор/1.0) [Ru] 2012 | wild_1.3
 ```bash
 magnet:?xt=urn:btih:12B6B3553CACB59BF46A631BFA66EB1EC2C0A1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Tesla's Tower - The Wardenclyffe Mystery / Башня Теслы. Тайна В�
 ```bash
 magnet:?xt=urn:btih:57BF8E476057216A6E0B56C7F4C04215E7CC7BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

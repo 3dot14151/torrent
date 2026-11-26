@@ -19,8 +19,7 @@ Royal Legends 2: Raised in Exile (2022) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:5E1778224859344E123763ADACDDDF857526F275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

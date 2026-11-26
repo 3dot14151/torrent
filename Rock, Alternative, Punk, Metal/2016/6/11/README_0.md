@@ -22,8 +22,7 @@ Defiatory - Extinct (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:34B08266F6B18D68038F9988AC5625ED70687A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nowen - Peace With Death (2016) [MP3|320 кб/с] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:B9CBF65D064A2C2D035CD30466409ED4F5A43FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Revolt - Torture To Exist (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:FD47BA83966516D5BD54F4DCD171D331D78D799D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Romuvos - Infront Of Destiny (2016) [MP3|320 кб/с] <Epic Folk Metal>
 ```bash
 magnet:?xt=urn:btih:171FDA8E7560B8DBBAC4E68135B1CFBEC44C1028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Albany Down - The Outer Reach (2016) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:2360BCF51CE453995E7F81A9490FD7F8FCA05918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Thundercats - The Covenant (2016) [MP3|320 кб/с]<Progressive Deathcore>
 ```bash
 magnet:?xt=urn:btih:932ABE8FF17FD346986288BA831767C5735F2696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Band Of Horses - Why Are You OK (2016) [FLAC|Lossless|image + .cue] <Alternative
 ```bash
 magnet:?xt=urn:btih:86B5275B158EB16ED686FE5DB1BBA7EF87329E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Garbage - Strange Little Birds (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:D077AF60498CA60B63F69CCF56CDA9AEDDC301EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - The Best Air Guitar Album in the World... II (2002) 2CD [MP3|320 кб/с] <
 ```bash
 magnet:?xt=urn:btih:76A7DE23068EBE0D217A98D285B3427B8F8E546F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Garbage - Strange Little Birds (2016) [FLAC|Lossless|tracks + .cue] <Alternative
 ```bash
 magnet:?xt=urn:btih:F9F0120D7A4BE7A1573E4AC7BA2ECEC3F1C8E7DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Phil Collins - The Essential Going Back (2016) 2CD, Deluxe Edition [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:3329CB115513F6055F566E6690CB5C16C56E82AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Kongos - Egomaniac (2016) [FLAC|Lossless|tracks] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:9C002870A892F5613C72003CCB8B4DFADBFE5F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6F83CD7BECEC4878D0D0A698019FBEDDE125525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

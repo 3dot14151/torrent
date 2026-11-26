@@ -19,8 +19,7 @@ Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.0.1
 ```bash
 magnet:?xt=urn:btih:FC5DE631B2C1C8F770E85119EBE581D9B197790C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Outcast: Second Contact (2017) [Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:22AF53C6FD64521A4131B84DE5193B97095E289F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ben 10 (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:811576A910E7FA82A81C4C4D738099C95829679B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

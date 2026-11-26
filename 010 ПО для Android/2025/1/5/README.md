@@ -21,8 +21,7 @@ Graph Messenger — это продвинутое приложение для о
 ```bash
 magnet:?xt=urn:btih:A1D17798E0A7C311DE5368DFFD299952388A5A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:371274A5742528573E4073559016DA674966ED17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

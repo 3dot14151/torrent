@@ -22,8 +22,7 @@ The Beatles - Вкус мёда (1986) WavPack|192/32|tracks|Vinyl-Rip] <Beat, R
 ```bash
 magnet:?xt=urn:btih:B8016860C410274BB321059A7AAFF06967012F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

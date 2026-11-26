@@ -22,8 +22,7 @@ VA - Mastersland.com - Украдено Из Студии 1 и 2 + 10 лет в 
 ```bash
 magnet:?xt=urn:btih:6EBDDD0FA5D07108B89916C5E53D8FB453BCB3FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

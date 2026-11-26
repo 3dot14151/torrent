@@ -22,8 +22,7 @@ A4 Almost There(   Читать дальше...   )Жанр: Funk, SoulПрод�
 ```bash
 magnet:?xt=urn:btih:31930C52B670D035485413F20D66E48D894AEDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Digital Man (6:24)(   Читать дальше...   )Жанр: Progressive 
 ```bash
 magnet:?xt=urn:btih:9A9F286B20CEFE6B0289E581BD43044EEA5E9399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

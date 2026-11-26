@@ -22,8 +22,7 @@ A4. Give Me Something (1:35)(   Читать дальше...   )Производ
 ```bash
 magnet:?xt=urn:btih:3EB95406EDB5EC49270208A11177AFDD1E23A082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4  I'm Alive(   Читать дальше...   )Жанр: Classic Rock, Prog Ro
 ```bash
 magnet:?xt=urn:btih:8F1BA2F737F46C0D386C8682EC6C51D1C277974D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

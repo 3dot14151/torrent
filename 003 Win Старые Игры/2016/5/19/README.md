@@ -19,8 +19,7 @@ The Mims Beginning – стратегия в реальном времени, с
 ```bash
 magnet:?xt=urn:btih:965B19E2C05083A98C28E76AA6E42AC2CE673AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

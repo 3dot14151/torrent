@@ -19,8 +19,7 @@ Tiago Rodrigues Antao | Fast Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A84736047DC6C66430FF88455B780D531B210BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zhenyu George Li | Unreal Engine 5 Game Development with C++ Scripting (2023) [P
 ```bash
 magnet:?xt=urn:btih:D4623467A0421F98991FBC83FA1CD4F631145640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D3BB7A516D78008EFD0CFD99F3A7BC4F2FD225D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

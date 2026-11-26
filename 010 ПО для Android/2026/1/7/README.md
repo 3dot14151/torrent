@@ -19,8 +19,7 @@ Taskito - это приложение для управления задачам
 ```bash
 magnet:?xt=urn:btih:C664381B791620C1BD6146F88BE29EE8DD6149A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cozy Timer - Sleep timer v4.0.13 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CE2D612124749B361A294ED6BBC602946BEA5FBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Auto Reply: автоответчик v6.4 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D4532F7DAB2870667120D3FB86D3C0FFAE59A3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Talksy: Навык общения v0.4.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F99CD951A7FDE9505F9B298A300E5F4FF1A389F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Quotes+ — Твой карманный источник ежедневного 
 ```bash
 magnet:?xt=urn:btih:70281E9C275DE8C55047FD12862DF7C19BB9BE54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Night clock / Ночные часы v2.11.21 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8767D17649F042FBBC2C856F1BF66346B3D79646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Solid Explorer - это приложение для управления фай�
 ```bash
 magnet:?xt=urn:btih:6D304AC690C1ABE1B5478B60278044A6D7A12361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FD07B7A908A5227E0655D3588FB9D7DF9B5EE6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:2E967961C0405DED21098FFB16D65B2D42327A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Win 11 Launcher v9.32 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:74B48B9C9B5384C5434222A668899737CD970CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:E7F3F720F6A4B16F70A846E470E141EFC04860C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

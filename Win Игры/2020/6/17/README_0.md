@@ -19,8 +19,7 @@ Desperados III — это хардкорная тактическая игра �
 ```bash
 magnet:?xt=urn:btih:1B812132932C1908BECE9C84AC7772221C784E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F89F6949932F2F3A8EB98392C3097231976BBE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Barn Finders – это симулятор поиска "сокровищ" в г
 ```bash
 magnet:?xt=urn:btih:7EF7D516ED9474CE229C907947C62DE4B94B9DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

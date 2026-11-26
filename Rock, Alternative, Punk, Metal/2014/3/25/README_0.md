@@ -28,8 +28,7 @@ December - Fragments (2011) [FLAC|Lossless]<Power/Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:7C8AA0935122E9AC1BD2346F1AEC8C655512F4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Alwaid - Lacus Somniorum (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:A4025AC7CE075FB9D40525F67385973B8E7EF7C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ IC Rex - IC Keres (2007) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:7D28223F5A536DA02552D88F672521C3FD494556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Opera Magna - Del Amor Y Otros Demonios: Acto I (2014) EP [MP3|320 кб/с]<Powe
 ```bash
 magnet:?xt=urn:btih:F9C83F33B172738962805D8C4496962ACE42109D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Basarabian Hills - 2 Albums (2013-2014) [MP3|320 кб/с]<Atmospheric Black Meta
 ```bash
 magnet:?xt=urn:btih:AD253E82D06ABDC886A3D280D022BE03FE435636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Conquering Dystopia - Conquering Dystopia (2014) [MP3|320 кб/с]<Progressive M
 ```bash
 magnet:?xt=urn:btih:0E96E58C7E837B1CC8943B58E1732B5DA77B23F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13154D0BDF7378BD5659E2B01EDD4540F17A4097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ VA - A Psych Tribute to the Doors (2014) [MP3|320 кб/с]<Psychedelic Rock, Ind
 ```bash
 magnet:?xt=urn:btih:512002D67EE8B75089308E6369183223ACD92445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Wolfmother - New Crown (2014) [MP3|320 кб/с]<Hard Rock / Psychedelic Rock / S
 ```bash
 magnet:?xt=urn:btih:A242502E04926F16851FE6F9718075C59D93E1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ The Horrors - Luminous (2014) [MP3|320 кб/с]<Indie / Post-Punk / Garage Rock>
 ```bash
 magnet:?xt=urn:btih:9BA99BAE351AADE000239AA6F9E7683CEA173452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ Krokus - Long Stick Goes Boom (2014) [MP3|320 кб/с]<Hard Rock, Heavy Metal, G
 ```bash
 magnet:?xt=urn:btih:53768D81CFDB3702B1EBE0E0543397C368953965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ My Chemical Romance - May Death Never Stop You (The Greatest Hits 2001 - 2013) (
 ```bash
 magnet:?xt=urn:btih:03743CDFF03B49ACAAC0F415A0CCF3C0D14C80F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:88277270BFBD5175F977DDEA775725920C697015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +447,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:0B13B820221C88870E9592950C62D0471E95E164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

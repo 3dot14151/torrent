@@ -19,8 +19,7 @@ Cadenza 6: The Following / Каденция 6: Следуя за прошлым 
 ```bash
 magnet:?xt=urn:btih:55FE306143B37877024A69765FDE7A77D37DD96F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brothers - A Tale of Two Sons (2013) [Ru/Multi] (1.0/upd1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A7CF2B1194EE36CC40916035A7598ADDCE8D45C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

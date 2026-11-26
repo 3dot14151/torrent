@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:45D9B98082B18D7E25CB0677855A4A9821CD1C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Танцевальная пурга от хит fm. Русский выпу
 ```bash
 magnet:?xt=urn:btih:724A3C3FDEC202CB520E3FB2A9AD8B17D5211D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Блатной шансон на любимой волне. Выпуск �
 ```bash
 magnet:?xt=urn:btih:07F3D5E8BA65F9973E4C8BDD7FBBAADBF62739DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D1183AEE3977F5991969388EFEB03AF2B0E38F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Гуляночка блатного радио Часть № 9 (2016) [MP3
 ```bash
 magnet:?xt=urn:btih:DC0613F36C3B7EC67510CDC28C3C2602E02C4458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Michael Osborn and the Drivers - The Glamorous Life (2010) [MP3|320 Kbps] <West 
 ```bash
 magnet:?xt=urn:btih:8F147832183834DD73BF11244883150D421A1C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - Звездная вечеринка. Зарядись хитами. Сбо�
 ```bash
 magnet:?xt=urn:btih:D7E26D9191C7B132810A0B07C27A3BBF582C9AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82408E3B3BE27DF78F48D251DC3BE0BE836ED78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - Душевная музыка Шансона. Версия № 4 (2016) [MP
 ```bash
 magnet:?xt=urn:btih:C18E39F3D3C49F961A1D746991F0B13F400CF1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Oceans of Slumber - Aetherial (2013) [MP3|320 Kbps] <Progressive Gothic Death Me
 ```bash
 magnet:?xt=urn:btih:655DFF8F154FB6B4BA7C5689E7CBD22DE1C21BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - Стопудовые зимние хиты от Европы Плюс (2016
 ```bash
 magnet:?xt=urn:btih:A70EE612616B1F4516ABA027C45A5E306778DE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ SADLESS - Задержка дыхания (2015) [MP3|320 kbps] <Indie, Rock>
 ```bash
 magnet:?xt=urn:btih:2F2662378BDCA4EDC1878CF1614FD5B067652576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CD76DBCD13B3DB94F1C728073968261B9277ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C01905A591C8A74B9923AF4A9D6132E48ED3888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ Eschaton - Icaros (2016) LP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:06F729408B26713E9E121FF5C04DBB41FFFB9A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Mecca - III (2016) Россия, пиратка [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:0C5E4EA4FF9953770773C0EE8D10B21EC08968C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B00DC59A849EA700BD2BED551B5208ACCA0948B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ VA - Высшая лига хитов шансона. Часть № 10 (2016) [
 ```bash
 magnet:?xt=urn:btih:E79B21B6D03A0BEAE5521009964BD9176CA41AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ VA - Best Chillout Vol.22 (2016) [MP3|264320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:8947C9E4240C71F813310579AEB004C088C18A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ VA - Club Dance Ambience Vol.97 (2016) [MP3|267-320 Kbps] <Dance, Club, Club Hou
 ```bash
 magnet:?xt=urn:btih:A5A3F313AF9A76D083DBD0933F80E95D2C0959D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Hawkmark - простой  Markdown редактор с десятком хор�
 ```bash
 magnet:?xt=urn:btih:6CD981A0B4B1000604DB0B0DE09115808305F651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ PUTS (People Under The Stairs) - The Gettin' Off Stage, Step 2 (2016) EP [FLAC|L
 ```bash
 magnet:?xt=urn:btih:DDE4E52AB8956CFF3864DD5388DF70F993A08E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ Oceans of Slumber - Winter (2016) [MP3|320 Kbps] <Progressive Gothic Death Metal
 ```bash
 magnet:?xt=urn:btih:AA1352A09B327EE8E5901158FD8535BFF8C45A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ VA - Sound: 2017 (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:CDE351FCE0E6F02F57B4FF423B78C95739FF878F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ VA - Новогодний ресторан Шансона. Сборник № 6 
 ```bash
 magnet:?xt=urn:btih:49D0F1C8DD0A540039597AE7BB91D564B1F6E11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ MoneyBag обеспечивает самую простую систему вв�
 ```bash
 magnet:?xt=urn:btih:B3131FD702DD0C32D321DF1E58E06E321AFB8F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Supermium форк Chromium для Windows - современный браузе
 ```bash
 magnet:?xt=urn:btih:1E6DB8FDD58225324AC95F63F6E229FF2B1050F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:1EC8DEB6526C4AE873C51E95C5C5C7E73B5B5419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ MetaProducts Offline Explorer Enterprise — мощнейшая программ
 ```bash
 magnet:?xt=urn:btih:E213C76B0BD213819FFD22505E3DF232FB1FC342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

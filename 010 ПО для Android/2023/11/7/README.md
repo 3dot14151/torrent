@@ -19,8 +19,7 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 ```bash
 magnet:?xt=urn:btih:47D768D157E5AC1267CD3935CB69B872FE6F940D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

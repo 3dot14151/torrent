@@ -19,8 +19,7 @@ Squirrel with a Gun (2024) [Multi] (1.0.2.14) Scene Doge
 ```bash
 magnet:?xt=urn:btih:E81AAD17770DA45E616DC39C3AB3EF1CF80FD9E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E0055F269A801C1C755EFF50193BBE41BC10D241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064) Repack FitGirl [Settler Edition]
 ```bash
 magnet:?xt=urn:btih:F791E7B2FE33F523C07D4235F9E88F7CB8C206D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Endless Days Z - напряжённая игра в жанре выживани�
 ```bash
 magnet:?xt=urn:btih:328162FCC8E3E54535B8301AF42C3DF2C76C68CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dimensions - это захватывающее межпространствен�
 ```bash
 magnet:?xt=urn:btih:E58F62AF4C38D9C9CA245645F50B16E96384E920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4C4D2DBB49279389D19E31397C9F0FB7281F7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ I Wani Hug that Gator! погружает вас в жизнь Инко, ста�
 ```bash
 magnet:?xt=urn:btih:3B744720A9BA2A4FFC48119DE6ED728D41515090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

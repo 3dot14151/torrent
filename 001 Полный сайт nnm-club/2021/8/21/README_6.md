@@ -18,8 +18,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:9DF9B0BCD8546C5EF1DDF971E5CAF28286200D7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:EFE4C39BBB32F05F7198303E27A754B754C1C5C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:438DE55D9F043FBA5ECFEE72C1C771A8A4295094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:D010286000C0C14707EB12D3A4AC2AB8DCFD39DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:055EE7539939EFE688F7543E60C5C3114F7AA51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:86B27FFEE84E3D0A8BBF5AF30C13B4BF7A5F36F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:2B637BD13115621EF85E2628871021CB20C75C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:BF7EAEA6D15C3B924462D59DF471A6D2A3C6120B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:46D1764A728E2A23465B2B11CDFBCFA24EA49A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B218009C4C535CA8FE4489F0CF45843C5EF9020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:8A9E077DF6CA4CF8CDC5C17CFC1B084434E3AEBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:08189F1E66D8AE3C01A4E899FA8D02E031B08FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Rod McKuen - Amor, Amor - Slide... Easy In (1977) LP [MP3|320 Kbps] <Funk/Soul, 
 ```bash
 magnet:?xt=urn:btih:E430E83C93F47029F32332E45BBAB7295DD3C060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ AUTO ZEITUNG - современный универсал в сегменте а�
 ```bash
 magnet:?xt=urn:btih:27AF94C55F3744F7B7372197663288D33CB1B8FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC6B4D52E1BF765BCE1FE3F9C04F0533C0454061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

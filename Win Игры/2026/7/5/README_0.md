@@ -19,8 +19,7 @@ Nuclear Epoch погружает игроков в суровый постапо
 ```bash
 magnet:?xt=urn:btih:E3DC53187960D8D6791CB5CD1981D7E61E4AA00D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nuclear Epoch погружает игроков в суровый постапо
 ```bash
 magnet:?xt=urn:btih:C67D0352930877C3190C9DD69D19BF3B522BD43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Storage Hunter Simulator (2024) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D6EAA133BBEB56DB1CF2FE7B79B7C3D242916104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Do No Harm - это симулятор доктора с лавкрафтовс�
 ```bash
 magnet:?xt=urn:btih:767AFD54DFEAA2B13F5D116442F916E30AA4D5F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mafia II (2) (2010) [Ru/En] (1.0.0.1 Update 5/dlc) Repack dixen18 [Director's Cu
 ```bash
 magnet:?xt=urn:btih:97E36DB361B2AF45CABA48D0253F033F67300DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack dixen18 [Komplete Edition]
 ```bash
 magnet:?xt=urn:btih:82D6A1E3F8C7A668C4B1BB026C2FC909A329E8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Atomic Heart – это приключенческий экшен боевик, 
 ```bash
 magnet:?xt=urn:btih:E3BC6B804946CC54BACB92E144A390CBDD8EFE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Baby Steps (2025) [Ru/Multi] (12.12.2025_13-57-40) License GOG
 ```bash
 magnet:?xt=urn:btih:3F1E272D259C317317A772C7D3A08A20E0D87F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Asylum (2025) [Ru/Multi] (1.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D72632E81C5880D51A6030D3B62E7FCB24872D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Fallout 4: America Rising 2 - Legacy of the Enclave (2023) [En] (1.1.2] License/
 ```bash
 magnet:?xt=urn:btih:5C242284065EEC3A19B1CF4FCE6634C9CB916C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Mindseye (2025) [Ru/Multi] (7608873_cl1511717/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0A90C1B67DE1E1F716147ACD4442F658D4078CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

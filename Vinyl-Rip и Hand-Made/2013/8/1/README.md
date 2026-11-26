@@ -28,8 +28,7 @@ Perpetuum Mobile, musical joke, op.257(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:C196E5C32BA967205F0EE63F5A0E65E018A83EFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B3 Knowing Me, Knowing You [4:00](   Читать дальше...   )Жанр: D
 ```bash
 magnet:?xt=urn:btih:69AEC87D2BC5FE91D68AE9B59FA6C7C4476C3F8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

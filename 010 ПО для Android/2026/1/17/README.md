@@ -19,8 +19,7 @@ Logic Circuit Simulator PRO предоставляет вам место для 
 ```bash
 magnet:?xt=urn:btih:9D6B60AE0D6399697CA3370AF80BF84B014D2337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:6AC4060908E0C6D07661E426387CFE813D4593C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Night clock / Ночные часы v2.11.22 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F1F59D50F41C31D641FB60B31BBB4BAA6C8DC4E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ eWeather HDF - это точный прогноз погоды от двух м�
 ```bash
 magnet:?xt=urn:btih:5BDDD1193CD77F19F20C3DBD65A8471F7E0086B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:CEEBF5B453D4C3688B82305A99D77A41F2D6467D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ TVGuide v4.6.1 Premium Mod by Alex.Strannik [Ru]
 ```bash
 magnet:?xt=urn:btih:5FB946846C50B6FE52539FB1673B2D9CEAFA4C93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0D6AA4DA5DDCD7E7C1784652C4A7674AE0AB11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ PhotoDirector v20.9.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5CCF3DBABB80C0899272AABFDA59B0FBF6439C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ PixelLab - отличный фоторедактор, в котором все �
 ```bash
 magnet:?xt=urn:btih:D5222821281A0663DA48D157B821B30299F422DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Notification Dots v1.2.86 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B53A738D8CBDB5BF8EEFDDAB4235C89D52DFBFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Notification Widget v1.5.206 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D0D89506F06434A8E6DB35A230589C559D662FAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Screen Mirroring - TV Miracast v4.0.0.221 Mod by vadj [En]
 ```bash
 magnet:?xt=urn:btih:D8313B0FB563083142F4066FBA3CE074EA78FA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:93E9EA947A47B1018C0456E3095D47ADC5F8C06E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Solid Explorer - это приложение для управления фай�
 ```bash
 magnet:?xt=urn:btih:832286F5F6426B8A4F2CDC58DDE3DBCA78928FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.7 Mod by 
 ```bash
 magnet:?xt=urn:btih:30E732F91C812BBB24AE4B0A7D84ABD6E9C9A09D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:9F43CD1A1AA7E296647EA4E74524FF78B4AD3AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:4FBE042958BBE9CC73977EDB5CF432301647769F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ AR Plan 3D – инновационное приложение, использу
 ```bash
 magnet:?xt=urn:btih:AA11878E07D2EAF2777F02E587AF61B8DB8AB908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

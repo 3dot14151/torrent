@@ -22,8 +22,7 @@ Poisonblack — финская метал-группа, возглавляема
 ```bash
 magnet:?xt=urn:btih:4C2594363B9035A13F3A27CFCB0A75CF11EE2FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ U.D.O. - Solid (1997) Released, 2011, Night Of The Vinyl Dead Records [FLAC|24/1
 ```bash
 magnet:?xt=urn:btih:400A9C0F401B1D74AC86D5F4B27B5E510137712C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Recall The Sin(   Читать дальше...   )Жанр: Heavy MetalПро
 ```bash
 magnet:?xt=urn:btih:139FEEC517B52DD5EB5DA417F73536DA1ECDFE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Splatter - Zombiecalypse Now – top-down шутер с интересной к�
 ```bash
 magnet:?xt=urn:btih:E09EE49FE2312767A797D36CFEB54CD8E2393021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ We Happy Few - экшен, приключение, сценой которому
 ```bash
 magnet:?xt=urn:btih:2B7503B86B0EC69A49F4A396ED7AFADBCD013C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shrot – находитесь в поисках небольшой олдску
 ```bash
 magnet:?xt=urn:btih:D7ABDDF09791EF82E3CB26D9D472312B82BD3D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ City Bus Manager (2024) [Ru/Multi] (2.0.16/dlc) Repack FitGirl [Deluxe Bundle]
 ```bash
 magnet:?xt=urn:btih:543D5A978B3F2E4CE18383B9AA5177083E478ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Eyes of Destiny – наш протагонист находится в очен
 ```bash
 magnet:?xt=urn:btih:229FAFFD5295DFF32AD2EFB47F39C7888A6C3EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Myst (2021) [Ru/Multi] (1.8.7) Repack dixen18 [VR]
 ```bash
 magnet:?xt=urn:btih:FFBAF41968400E98A409F628ED997309A40AA2FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Chained Together (2024) [En] (1.7.9) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:998E43C40D21A71844CA4A373B1EF7EDDBF21083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

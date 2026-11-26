@@ -19,8 +19,7 @@ Symphonia (2021) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BD016A52A9A8BD73DB0E91B022471F4121872AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vesper — это новый вдохновенный взгляд на клас
 ```bash
 magnet:?xt=urn:btih:66068A663B201A285280105EAFBC603E785AF9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Guild of Darksteel (2021) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F80AB441193F28A15AFF55C66AEF92C0A477F9BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

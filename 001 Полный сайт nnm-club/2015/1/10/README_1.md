@@ -27,8 +27,7 @@ Seven - Seven (2014) [FLAC|Lossless|WEB-DL] <Dubstep, Bass>
 ```bash
 magnet:?xt=urn:btih:E75A65D0A6CB69954060C7259636B53E851E618F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAC1E0C69E297856D362E7D46AE63C93C3CB7DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CA745C1EE3CC99AD8F6463E4834D0602CAB1E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC34E0D13194B14CBC4ECD5C681B2BA2CDB4D0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Armada Chill 001 (2014) [FLAC|Lossless|WEB-DL] <Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:7F027CE078F6AFC8749525B340F38E028948416F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F9A62C2F9454B12B78D1EDB48F8C4909FE6EEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Discovery: Как построить суперкар / Supercar Superbuild (201
 ```bash
 magnet:?xt=urn:btih:4D5EACEF950B4714581CCEE9745723874A71952B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ VA - Insight Music (The Past Three Years) (2014) [MP3|320 кб/с] <Dubstep, Amb
 ```bash
 magnet:?xt=urn:btih:3DB9CC896EE5F2876C26148FAFC4EAAA9AE138BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C3EF244E819B6CD544E44E88A3E89FD1CA16A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Netsky - 2 (2012) Deluxe Edition [FLAC|Lossless]<Drum'n'Bass, Dubstep, House>
 ```bash
 magnet:?xt=urn:btih:28ED35105E11DDC4EE6FDA97FEE3BCF9FF0BEA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF2426FB833F52C72A5B0DC878F797A4C5987063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ USB Safely Remove это надежная и удобная замена 'Без
 ```bash
 magnet:?xt=urn:btih:E9FB6592AC0E79A7CC25CE427D4190E3056EC607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Zentimo xStorage Manager - (аналог USB Safely Remove) это менедж�
 ```bash
 magnet:?xt=urn:btih:A7B4D5E93D89F2ACCD1B0454EBF6E32D7D07E867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29E32BE6118090283CD1D65CDD411FBDCB9E8245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ VA - Новинки с популярных MP3 сайтов (o1.о1.2o15) [MP3|
 ```bash
 magnet:?xt=urn:btih:84CFFC9A68B66A21EC964A8368AC4908CAD86016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Andrew Rayel - Find Your Harmony 2015 [FLAC|Lossless|WEB-DL ]<Trance, Progressiv
 ```bash
 magnet:?xt=urn:btih:A4459E8177B9C6B440575C7077F011EF608704CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ Tomaso Giovanni Albinoni - Concertos for oboe and Violin: I Solisti Veneti solis
 ```bash
 magnet:?xt=urn:btih:3D87E61AC3E974BB4DE3E7761838EEA0E659A901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +529,7 @@ VA - RAM Drum & Bass Annual 2015 (2014) [FLAC|Lossless|WEB-DL]<Drum And Bass>
 ```bash
 magnet:?xt=urn:btih:75BBA07B688DB329450A48F23F01F27CFA98E008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D111EC4979FA1CFF1ED8CDE4291A45404360142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +588,7 @@ Wiz Khalifa - Blacc Hollywood (2014) Target Deluxe Edition [FLAC|Lossless] <Hip 
 ```bash
 magnet:?xt=urn:btih:C6A8FE757EEC87C4D160775C3F165349468D5C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5B1ACD977791D5835DC0D84747940EC1646ACD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4046626B7B0DF193FE4C36BF7BF75E4ABB1315A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ Phantasmat 3: The Endless Night (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:5F1B230FDEB95B1A56CBFE2480C266CF293DBBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ DensPlay - это простой музыкальный проигрывател
 ```bash
 magnet:?xt=urn:btih:C50371C6AA56C81716814D19C3710A6EBC079B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +714,7 @@ Kansen Rettou | Pandemic | Пандемия (2008) [1-7 гл.] [Русский] 
 ```bash
 magnet:?xt=urn:btih:94146762D85149839DB972A8B17ED3951BADD918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

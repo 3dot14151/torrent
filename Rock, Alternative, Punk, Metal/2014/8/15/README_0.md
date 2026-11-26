@@ -28,8 +28,7 @@ Heartist - Feeding Fiction (2014) [FLAC (Scene)|Lossless]<Alt. Rock | Post-Hardc
 ```bash
 magnet:?xt=urn:btih:2F730415DB859012A87F9A8B81D2086FE68A8665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Ambrosia - Anthology (1997) [FLAC|Lossless]<Soft-prog>
 ```bash
 magnet:?xt=urn:btih:51C991602EC71A92FFF76D4247F22CF0F8CC1342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Mixed & mastered (   Читать дальше...   )Жанр: Avant-prog, prog
 ```bash
 magnet:?xt=urn:btih:D4E7BDA370CFDF28509E7574A9E4FBE6BC696AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Accept - Blind Rage (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4D2E24E308760923EAC981C19DFD6F376B8CFBFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

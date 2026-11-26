@@ -22,8 +22,7 @@ Azaxul - The Saints Impale (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:B915DACF9B415ACF7FFFC7133862A00466806E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Universal Hippies - Mother Nature Blues (2017) [FLAC|Lossless|image + .cue] <Ins
 ```bash
 magnet:?xt=urn:btih:F08D39A8DD2D4449E62107B50AEB5176A402C484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

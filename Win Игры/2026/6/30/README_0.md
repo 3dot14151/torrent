@@ -19,8 +19,7 @@ Fretless: The Wrath of Riffson (2025) [Ru/Multi] (1.5.08) Repack FitGirl [Deluxe
 ```bash
 magnet:?xt=urn:btih:F4DFFFB2A8C4B32B1609DC3A3EDD317F2C1FF43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

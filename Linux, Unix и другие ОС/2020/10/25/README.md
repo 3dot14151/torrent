@@ -21,8 +21,7 @@ Linuxfx 10.7.105 KDE Plasma. Дистрибутив Linux, с рабочим с�
 ```bash
 magnet:?xt=urn:btih:0234801FB48B2D4015A34392EB973F2154CC046B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

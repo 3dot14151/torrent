@@ -19,8 +19,7 @@ Dream Chronicles: The Book of Air Collector's Edition / Хроники Сна. �
 ```bash
 magnet:?xt=urn:btih:2FD0863B931351F79C2C040C9AD6D0DC41DAAAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Summer Challenge Athletics Tournament – Помимо прекрасной гр
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Sword of the Stars Антология [Ru] (Lossless RePack) 2006-2009 | R.G. Ca
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

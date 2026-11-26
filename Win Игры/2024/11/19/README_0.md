@@ -19,8 +19,7 @@ Black Mesa («Чёрная Меза», ранее известная как Blac
 ```bash
 magnet:?xt=urn:btih:01AE5A8F162F1932855AC181304BD68EB091FDF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Half-Life 2 официально исполнилось 20 лет, и по сл�
 ```bash
 magnet:?xt=urn:btih:3399945F15ABBBC6D0807F508D67E0617D00B0A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:41D2E94B68B31E7692C9F3B7C160026073E59B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ChessBase - это персональная, автономная програм
 ```bash
 magnet:?xt=urn:btih:276D7252D83102B8D6117C1B52DC9A22C70D019D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Scene Rune [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:24562C154AF85AEAC10C26B86B7B922B7890A2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Darkness II (2012) [Ru/En] (1.1/dlc) Repack Let'sРlay [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:0FB61A08B6AF22FCD5D4D57B7A0A06E81BBF2190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Pumping Simulator 2 отправляет вас в путешествие в м�
 ```bash
 magnet:?xt=urn:btih:063ADFB1A7BDDB9A342FC42B57CCFF37A4F39EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

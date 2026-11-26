@@ -22,8 +22,7 @@ Garden of Grief - Novembernebel (2010) [FLAC|Lossless|image + .cue] <Ambient Bla
 ```bash
 magnet:?xt=urn:btih:41FE86986698C2F2E9F57D766E0E9E5ABE6E2227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Transfiguration Songs (2005) Compilation [FLAC|Lossless|tracks + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:5E1C800F3409EA449E6AE4F5EFC945408701FF46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Goes Cube - Another Day Has Passed (2009) [FLAC|Lossless|tracks + .cue] <Post Ro
 ```bash
 magnet:?xt=urn:btih:93C0584ADF5EDAC64A04616AB6009D1DC0D8D1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Abnormal Thought Patterns - Altered States Of Consciousness (2015) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:DACB9CC2CD97EE94742B9E0034EC66CDBF6AA34C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Embryo - Embryo (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:A63476E7D1A7ABB4B62B10F5017E9C646DF2DA27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jo Jo Gunne - Jumpin' The Gunne (1973) Reissue, 2010, Dogtoire [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:0C2896FBDAD1D9F498831477579C82F32685A6BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Cliff Richard - Rise Up (2018) [MP3|320 Kbps] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:79B4F73D0FC3C6845AB76B7ACDF5D32A620E58F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

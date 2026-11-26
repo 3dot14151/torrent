@@ -27,8 +27,7 @@ More Than Life - 3 альбома (2008-2014) [MP3|320 кб/с]<Melodic Hardcore
 ```bash
 magnet:?xt=urn:btih:B0B0455DC298DF97B1294A17A5CE684026EF360D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Flight Concerning Energy (2014) [MP3|320 кб/с]<Trance, Uplifting, Balear
 ```bash
 magnet:?xt=urn:btih:5B7AEF5FEE3A23D2C2370CB0911361C9F7EA2109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Soundscape - Synaesthesia Deluxe(2014) [MP3|320 кб/с]<Progressive Death Metal
 ```bash
 magnet:?xt=urn:btih:E60B273A2E2E726D2EB7D8B54B6B1D54560A110A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Sabbatory - Endless Asphyxiating Gloom (2014) [MP3|320 кб/с]<Death / Thrash M
 ```bash
 magnet:?xt=urn:btih:7351FE7908ECE2A67E97FF98FFC9C40D0E6B7B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Dj Parafich - Pumping Romantica vol. 06 GOLD [MEGAPARTY] (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:E955122AF147721EA1A07A0D39FFB4EE83D59E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Tri-O - Trialogue (1995) [FLAC|Lossless]<Modern Creative, Free Jazz>
 ```bash
 magnet:?xt=urn:btih:4BDF0D8C0A2B5E4311A1CA588A8A87EE64C8B39A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07761A0B55895A4E622FC786DD5C6C1B78DEC239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ NZM - Eternal Fire (2014) [MP3|320 кб/с]<Heavy \ Power Metal>
 ```bash
 magnet:?xt=urn:btih:18CEAC2DCA5410F9FDD82FB14925240191968922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Theresa Blue - Carolina Blues (2011) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:AE638B47FF46F932074898E140A6CBA6476003BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ Lars Leonhard - Dark Tales From The Woods (2014) [FLAC|Lossless|WEB-DL]<Ambient,
 ```bash
 magnet:?xt=urn:btih:00521622FB05263CE9FC34190830E5136176DB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ Loren Stillman - How Sweet It Is (2002) [FLAC|Lossless]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:5E2F2B610AF0FC6E7467F911AC30A7F408229209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F439B8E55FF23CADAB7D68F47DEDCBF8BC7A45D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +432,7 @@ Lloyd Miller & The Heliocentrics - (OST) (2000) [FLAC|Lossless]<Contemporary Jaz
 ```bash
 magnet:?xt=urn:btih:3ED9250AC308F49C0C43B76B4F80740B53ECB27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62C5D353C47E15613931265F5C2C9E74F7BBF29E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +486,7 @@ CD4 - She's Gone with the WindЖанр: Blues, Texas BluesПродолжител
 ```bash
 magnet:?xt=urn:btih:7E91EEFA9AEB4350509462DA250B75F29836F06C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +520,7 @@ Lorez Alexandria - Alexandria the Great (2004) [FLAC|Lossless]<Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:9B2F63132DB0A59FE68309371BDDE711E9ED03E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD747F06646EBFF50965C45FE744318BB951F341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B12F9A357B7AB58E8DCE4213FE0BBE9BBB38B2F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB9904583203F7099329767F872CBE82CBA76FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ Hurriganes - Roadrunner (1974) [MP3|320 кб/с]<Classic Rock, Rock-n-Roll>
 ```bash
 magnet:?xt=urn:btih:6B492139C490A5A2996E6D8F2EADB97719BB5D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +667,7 @@ Syndemic - For Those In Desperation (2014) [MP3|320 кб/с]<Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:E4E5263AB8F3525118148F505E5EE1950D3AFD87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A03C749DCE5680542099FB301295A2E31FAE7EE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +726,7 @@ Dissolved - Paradox Hues (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Experimenta
 ```bash
 magnet:?xt=urn:btih:0311AA11E0F9D26AEA16E05D9933068729ED1469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +760,7 @@ Inferi - The Path of Apotheosis (2014) [MP3|320 кб/с]<Melodic Technical Death
 ```bash
 magnet:?xt=urn:btih:2DFB34FF9D54AA42BAC8966ADE1B65A9AD59F8CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ Northcape - Glasshouse (2014) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:40BB1D138E62747F772C9D3F3E19FD678D6E40A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

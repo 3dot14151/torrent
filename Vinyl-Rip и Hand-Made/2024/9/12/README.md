@@ -22,8 +22,7 @@ Threshold — английская рок-группа, играющая в ст
 ```bash
 magnet:?xt=urn:btih:0A73AB675DF523219182943257FC0061880EE38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

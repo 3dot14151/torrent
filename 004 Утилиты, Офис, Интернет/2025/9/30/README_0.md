@@ -21,8 +21,7 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 ```bash
 magnet:?xt=urn:btih:619C15F1EDFFE6CCB369ECC6CC4ED2FD1D775560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ DiskSavvy — это анализатор использования диско�
 ```bash
 magnet:?xt=urn:btih:C6B6274A9F25C0E1F718739F1EF41230D252DB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Aiseesoft Screen Recorder 3.1.36 RePack (& Portable) by elchupacabra (x64) [Mult
 ```bash
 magnet:?xt=urn:btih:8AECC1AD2213F8DC4014C44974175EC146E02A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ opencode — это кодирующий агент ИИ, созданный д�
 ```bash
 magnet:?xt=urn:btih:0E8E57F62F8F5BEBD95FB58785A9CD17FC589ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Hekasoft Backup & Restore — это комплексное решение дл�
 ```bash
 magnet:?xt=urn:btih:34532E2E8B4D98A56A4D3710AA49B0F276BCE7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Chromium-Gost — это модификация стандартного бра�
 ```bash
 magnet:?xt=urn:btih:110B7D496761AAE8386CBC22D6007D67F1714DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Opera One 122.0.5643.92 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:303B826991310DD68335A08468396B16B0F83008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ PC Fresh - это мощный, уникальный инструмент для
 ```bash
 magnet:?xt=urn:btih:829798A53561154E8CF4680012B3E94739534CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Recordify — этопрограммное обеспечение на базе 
 ```bash
 magnet:?xt=urn:btih:642460B8648A40AB138FE77E126C2FD7383B6930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

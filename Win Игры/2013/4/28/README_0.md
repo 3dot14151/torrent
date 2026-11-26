@@ -19,8 +19,7 @@ Enigma Agency: The Case of Shadows Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:0E4670409F4644250ABB43DC0AEA76E6245320CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ God Mode (2013) [Ru/Multi] (1.0/u1) RePack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:B4CAECD7599E1F868E165E8F555C0745263E7CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Tropico 4 расширяет геймплей предыдущей игры но
 ```bash
 magnet:?xt=urn:btih:D4171D78A8F3196AB64168F61F8095CA713C132F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ God Mode (2013) [Ru/Multi] (1.0/Upd1) RePack R.G. Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

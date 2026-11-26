@@ -21,8 +21,7 @@ DreamLongDead - AriseHowlingDarkness: Of Cyclopean Masonry & Non-Euclidean Geome
 ```bash
 magnet:?xt=urn:btih:0B4965D6990A1C6690558C28120839E80B594489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Blood, Sweat & Tears - Super Hits (1998) [APE|Lossless]<Jazz Rock>
 ```bash
 magnet:?xt=urn:btih:04FD83985C38C17ED73078FC27D237DA6D45BFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Xiphea - From The Uncharted Island (2015) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:A4B05C1AA00D9D60B3813A793DBBD2A086E97F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

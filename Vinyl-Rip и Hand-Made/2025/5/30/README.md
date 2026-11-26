@@ -22,8 +22,7 @@ Any Given Day - немецкая металкор-группа, образова
 ```bash
 magnet:?xt=urn:btih:F7996BF4F792D65AC5CC3526C76233FB10A6E76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

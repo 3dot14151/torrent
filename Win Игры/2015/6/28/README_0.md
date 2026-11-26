@@ -19,8 +19,7 @@ Forgotten Kingdoms 2: The Ruby Ring (2015) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:06BFE33156EF46CD0EEBEE77170E0E797EE257E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Queen's Tales 2: Sins of the Past / Сказки Королевы 2: Грехи 
 ```bash
 magnet:?xt=urn:btih:55B19D59E959FA01DD5255601D6853C729BF85AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Surface 7: Alone in the Mist / Внешние Пределы 7: Одиночес
 ```bash
 magnet:?xt=urn:btih:062319A2A8F066506B604B15E5EAB836C5EECD32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ House of 1000 Doors: Evil Inside / Дом 1000 дверей. Зло внутри
 ```bash
 magnet:?xt=urn:btih:23C76C67C89334FAAAE30AFC2442F40B82BFA332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Mystery of a Lost Planet (2015) [En] License DEFA
 ```bash
 magnet:?xt=urn:btih:847E04A2D6BC7545459D8546321EDE3257FAA9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

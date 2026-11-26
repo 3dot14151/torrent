@@ -21,8 +21,7 @@ Jack Russell & Tracii Guns - Medusa (2024) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:C0AA70B974C66570715D56EC50A1EB7B47E39F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ iNet показывает устройства, подключенные к ва
 ```bash
 magnet:?xt=urn:btih:F4CA888985473DF08C80C323755B7FE2718B70D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ AppKiller 3.5 [En]
 ```bash
 magnet:?xt=urn:btih:09306224AD378EE07FAB18717FC6877FA2B21D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Romantic Candlelight Dinner Jazz Zone, Romantic Jazz Music Club - Evening Dinner
 ```bash
 magnet:?xt=urn:btih:366A7B8C62C8CECB2CA4F9E6684D66084EF0781F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Abysmal Grief - Feretri (2013) [FLAC|Lossless|image + .cue] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:95B0E02E53CE3CEE98527A40765AE8ED4FB7DFA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Abysmal Grief - Blasphema Secta (2018) [FLAC|Lossless|image + .cue] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:94E2B367FE811DBBABFE5E6AB6647861AAE9F24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Abysmal Grief - Funeral Cult of Personality (2021) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:6DAEF36A861D1F8EF88AFD7A964AB0905DFBD7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Text Workflow 1.8.3 [En]
 ```bash
 magnet:?xt=urn:btih:838B8478947A79659DB4D2B7D66A8EB1995FA8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Sound Siphon делает аудиовыход вашего Mac доступны
 ```bash
 magnet:?xt=urn:btih:F201DFD09FEDBD58BA9B04CD53DEF58AE6505DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Iris — это высокопроизводительный экранный р
 ```bash
 magnet:?xt=urn:btih:4154AFCFF927B3CC8DC5EF055786B97B16D5765E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ External - Dreamscapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:2036F5C92971A0F4CBC8CC45CDEB4834FC794474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77992ACC4D94136A85B7F6CAE2B8B91314D58D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Cardhop 2.2.15 [Multi]
 ```bash
 magnet:?xt=urn:btih:BF5171816F5823BD9B99FBD528EF41A8C6108337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Debit & Credit Premium 6.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:707BBF30D1DAB546180F3BBBC630C5B3685A2DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ Misha Tsiganov - Playing With The Wind (2018) Criss Cross Jazz [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:C6A8D966104E8C81D1CB44965DF7FA0C2AB2AA43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Dark Oath - When Fire Engulfs the Earth (2016) [FLAC|Lossless|image + .cue] <Epi
 ```bash
 magnet:?xt=urn:btih:996D3D8E7B94BF332E9D6E7CB3107F012A0A959D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

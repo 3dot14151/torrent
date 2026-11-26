@@ -19,8 +19,7 @@ Homesteader (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:3D90C14A95F17F75BCC2E070CA37C4E2FC6C9797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Case Files: Dire Grove (P) [En] 2009
 ```bash
 magnet:?xt=urn:btih:B5A9695253D87743FE7689A7C87C863E24C9EB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Case Files: Return to Ravenhearst (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:0F986AE4BDC24CA34F29A7DCB4FAB94FF39F8337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mystery Case Files: Madame Fate (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:E98299DBD2EC9EFB81F73043D221E6224F79397B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0541F3C566DDFFE86BA5723961EF8B2BD30D8309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Trade Mania (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:4A602A19F2207836B4189D48E7B2134B5001146D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ PuppetShow: Mystery of Joyville / Кукловоды. Город радости 
 ```bash
 magnet:?xt=urn:btih:B8E70E521FD99F926E37E189988C002434AF13CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Brink + 1 DLC [Ru] (RePack/Update 11) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:AB2898E7E5C659353E94CA45A0F4E8A757FE9D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

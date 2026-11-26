@@ -22,8 +22,7 @@ Houwitser - Death... But Not Buried (1998) [FLAC|Lossless|image + .cue] <Brutal 
 ```bash
 magnet:?xt=urn:btih:C1702B2E61E93790DC3557BD711400F78DF48AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Foster the People - Sacred Hearts Club (2017) [MP3|320 Kbps] <Alternative Rock, 
 ```bash
 magnet:?xt=urn:btih:AE2518A167E97257E9FDC5C94D11E96373E57999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Santana - Diamonds Are Forever (2017) 2CD Set [MP3|320 Kbps] <Rock, Latin Rock>
 ```bash
 magnet:?xt=urn:btih:E2E9044974CE6A260FAE30D7E1B3148445FC1E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Adestria - Gilded Hearts (2014) [MP3|320 кб/с]<Post-Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:76BD3A6D1CF7C607866F235C9859B404FF92246F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Screenshot - Любовь (2008) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:2AD47A55662950DD4C65BA833BB55066198C2136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Team Sleep - Team Sleep (2005) [MP3|320 кб/с]<Experimental Rock, Alternative,
 ```bash
 magnet:?xt=urn:btih:2A6A021C085D199760BCED32B9E288EF8FFEBA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Eths - III (2012) Special Edition [MP3|320 кб/с]<Nu-Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:E8DFDB934A16F0B64ABF376EC2BB7366ABB0F73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Butcher Babies - Goliath (2013) [MP3|320 кб/с]<Alternative Metal, Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:560C9BBC0DCC0DB0AC0E70D5DFF4E77DD3C59F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ OM Rock
 ```bash
 magnet:?xt=urn:btih:677670143D8AB1A9DAD04BABFF592C19FB937601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Modern Day Babylon - Travelers (2013) [MP3|320 кб/с]<Progressive, Math Metal,
 ```bash
 magnet:?xt=urn:btih:0247625927E65920F45B4551892C1C8389134D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Our Last Night - Oak Island (2013) EP [MP3|320 кб/с]<Alt.Rock, Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:154CC5A4B3C2A93A574DE65E55958093C4CFCA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Mushroomhead - The Righteous & The Butterfly (2014) Best Buy Edition [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:BA286147C7BFC37C8CC8404875A6C7E4290C35B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Mushroomhead - The Righteous & The Butterfly (2014) Best Buy Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:9858380B1ED13D9E2EEE3FBDB2FA1CBFD94D217A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

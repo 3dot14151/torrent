@@ -19,8 +19,7 @@ Re;Lord 2 ~The witch of Cologne and black cat~ (2021) [En] (1.00/dlc) License GO
 ```bash
 magnet:?xt=urn:btih:0D49C28C13B5A3BF2257AADDE4F67C5FB6FA347C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

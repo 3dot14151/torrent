@@ -19,8 +19,7 @@ Battery Guru предоставляет продвинутые инструме�
 ```bash
 magnet:?xt=urn:btih:1A8830FEA988866DC6C87C55147016D21C5F8932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:B919F2B8198DE38AD1698DFA3EB69802F53DDFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Smart Tools® это набор инструментов состоящий из
 ```bash
 magnet:?xt=urn:btih:059A62C6EC598664039C273C5E8A99E3473694E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Smart Tools® 2 - это расширенный набор инструмент�
 ```bash
 magnet:?xt=urn:btih:C69FBA01F2FB7C5FDA13C0F1DF747F3319CCF001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:DCC3F81DE86C6B5E9EBD179CBB09EEBD535AA93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ PortalWG Lite 2.1.6 Mod by STR_BYPASS [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:63B2DEE88BE4C2D1E67DCBDF4FA34151CA94EBC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

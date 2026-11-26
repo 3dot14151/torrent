@@ -19,8 +19,7 @@ Allora and the Broken Portal / Алора и Сломанный Портал (P)
 ```bash
 magnet:?xt=urn:btih:46A4D66AF207DE98BB31D568B08C5B12426EE79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AirStrike 3D: operation W.A.T. / АвиаНалет (P) [Ru] 2006
 ```bash
 magnet:?xt=urn:btih:56562E5976C2601F3E10E8D635F07908376DCF9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Silent Scream: The Dancer / Немой крик: Танцовщица (P) [Ru] 2
 ```bash
 magnet:?xt=urn:btih:C5412ECCAFF54E9EAFC77AB4A468E35219551766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AirStrike 2 / АвиаНалет 2 (P) [Ru] 2007
 ```bash
 magnet:?xt=urn:btih:CBB1CFFC41F52C97067E9D34E15708BA6108AB5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE3B62D4F4F54100D1262652B9D31085AE23C6A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1513528AE8FEED451EDA849D943BDA6059F07F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

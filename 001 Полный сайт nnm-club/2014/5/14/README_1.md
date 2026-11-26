@@ -18,8 +18,7 @@ Wallpapers - Горы [JPEG]
 ```bash
 magnet:?xt=urn:btih:9B0DACF91E0F26FA1968E9DA646BA4DCB872458B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ OM Rock
 ```bash
 magnet:?xt=urn:btih:677670143D8AB1A9DAD04BABFF592C19FB937601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Anvide Lock Folder - утилита, позволяющая защищать к�
 ```bash
 magnet:?xt=urn:btih:C14041E5EC98CBE1991A71D43026124A1D7A7A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1439CAB144194B6354BE9A99EEEFCFA213A5EB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E22F8E114A38808C04AD0DEE9018727F7618EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF429528096C589545FE1FE738EF2F90E129B74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Modern Day Babylon - Travelers (2013) [MP3|320 кб/с]<Progressive, Math Metal,
 ```bash
 magnet:?xt=urn:btih:0247625927E65920F45B4551892C1C8389134D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Wallpapers - Cars(13.05.2014) [JPEG,PNG]
 ```bash
 magnet:?xt=urn:btih:DD886860D1203311F76D5B29FF0761C9FE10D361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Our Last Night - Oak Island (2013) EP [MP3|320 кб/с]<Alt.Rock, Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:154CC5A4B3C2A93A574DE65E55958093C4CFCA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9F3E5B7A76DB74D1F6BEDDBF814956A2BA10581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1908FFBADEF9720DB1605418EF83FDA00ED005A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EE968EEEEAAFA50EFCB301F33DEC0230170ECA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Wallpapers - Landscapes(13.05.2014) [JPEG,PNG]
 ```bash
 magnet:?xt=urn:btih:A4F3051605BFB860C8B3AD27CDCC33FE25F62669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C0544BF99B88C3316859A737C5638C10401A048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:FF7C5878077BB75FC0396B41C3A5A91B9A64B507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD1823AF81905E31900084EE6D4B432E9E3B7C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ VA - Супер Пупер Танцевальный (2014) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:A6763A889791996EF7454C244F66483F92896D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Google Chrome 34.0.1847.137 Enterprise [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FEF8C243624BF7D608945B62CE9B9496EDC608E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Wallpapers - Best Mixed Wallpapers Pack (13.05.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:9CE465B01ED6FEEB249407EBB89BA70AA4EE07A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Mushroomhead - The Righteous & The Butterfly (2014) Best Buy Edition [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:BA286147C7BFC37C8CC8404875A6C7E4290C35B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ N/AЖанр: Electro HouseПродолжительность: 01:19:33
 ```bash
 magnet:?xt=urn:btih:BFCF11D8265D5697E91DB8E866CD60485F508373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ VA - Tales Of The Undead (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:08191B206DB0525A7F631D457755D67236EF7AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ VA - ISRAliens Vol. 7 - Origin Earth (2014) [MP3|320 кб/с]<Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:256878E736EE0B6081DA8C9E52C182883C78A878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A36FE22469BFC390010A4B72E2CAEEF8EF6FDCFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7C50AD775641A8DFC8A09547F206B6B1D8C1F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ Mushroomhead - The Righteous & The Butterfly (2014) Best Buy Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:9858380B1ED13D9E2EEE3FBDB2FA1CBFD94D217A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

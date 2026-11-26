@@ -19,8 +19,7 @@ Transparent clock & weather / Прозрачные часы и погода 7.01
 ```bash
 magnet:?xt=urn:btih:43601D90218CE9957DF7DA1FBD09F55D83C64EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MiX Camera - это альтернативная камера для Android, р
 ```bash
 magnet:?xt=urn:btih:988C877F69D84A2D1EE7EA0053A9045E9B8DA827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

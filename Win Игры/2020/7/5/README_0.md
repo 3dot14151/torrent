@@ -19,8 +19,7 @@ The Cursed Forest (2019) [Ru/Multi] (1.0.6) Repack xatab
 ```bash
 magnet:?xt=urn:btih:01769C5EBBD1B41C1068C956D062A19648D80038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wizardry: Proving Grounds of the Mad Overlord - это полный 3D-риме�
 ```bash
 magnet:?xt=urn:btih:0B53E47198CD1869F83DD5461BBAB9E36ADE6AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Succubus (2021) [Ru/Multi] (1.15.18327/dlc) License GOG [Ultimate Edition] [18+]
 ```bash
 magnet:?xt=urn:btih:D01A545B959E0C5DF3896A77796B8AAA4E3A0C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Who is Abby (2023) [En] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D50CF200CB4E980FEA985D2D7CC1A07534BB308D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Eden Genesis - это не типичный платформер. Конечно
 ```bash
 magnet:?xt=urn:btih:DA33115C83F47F74B77706A641890633F07D07D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Beach Club Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D6AA8C38B2425201D1E6DC262998F2C42FC6CE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.4.5) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4B00EDEEEC17E84F27D43AE39449F937EA9A5CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ My Lovely Empress - симулятор имперского управления
 ```bash
 magnet:?xt=urn:btih:36254CD100ABD3C16B8CFA035D33467404CBAAF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:79A31F99FF2B66B3087B4E446FC55B0986B7FFD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ WhatsTool App, специально разработанный набор инс
 ```bash
 magnet:?xt=urn:btih:FEAD4D2EFDFC80CCF2979D0E6FBF00B6456935CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

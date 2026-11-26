@@ -28,8 +28,7 @@ Darren Johnson - Always (2014) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:B6A2FAC5682ACA1A2879A3A3F88C5C48A4666B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Jack's Family - One Big Disguise (2009) [FLAC|Lossless]<Progressive Power / Goth
 ```bash
 magnet:?xt=urn:btih:215F820F31FC41015CB0480211B4B6DC20F478F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Pan Ram - Rats (1996) (1997 Japan) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:80E88C4591B5F9F18419153E04D86B21009C68C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A49C6439EBC3AD200888A38830F3DD77689FFA72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Dirty Woman - Demon Lover (2009) [FLAC|Lossless]<Heavy / Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:FDCC8B663CA7A4A11644905948EACA2F021CDAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Manic Depression - Impending Collapse (2010) [APE|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8811AC71311327BAFE168FBC8000C45B0C49A2B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Divine Souls - Embodiment (2001) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:17823232968F799E332FC31BFCDDADF2AF15C194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58B69D9418DA2C7D7AA953D21A4B5CF7F1007D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Alex Sipiagin (trumpet, fluegelhorn)(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:F27666F9679D24F5A1959EC11125FAB8C36F63C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A635C7FB255D0FE149F12D48D2B05C2DBFE2E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CDAD23143A35AFA97357EEBC1B7DB839F72FCE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ Snakes In Paradise - Snakes In Paradise (1994) [APE|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DA72CF81E6B12A2A2D1F7B31B396DB9079427573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94575A6E13850F83083AFF308CA064CFED228A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4CF422B2E53925FD29AE6AC339D3054006BBAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ VA - Real Atmosphere #2 (2014) [MP3|320 кб/с]<Psy-Trance, Psychedelic>
 ```bash
 magnet:?xt=urn:btih:59C3F0615F3FA5D43AEA72BEEC1F2086AC04F7A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ KarmasynK - Psymatiks (2014) [FLAC|Lossless]<Downtempo, Glitch, Psystep>
 ```bash
 magnet:?xt=urn:btih:47913B49C2D7753D859E9655DF16704363568F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A7C44354A23169F4C83829F7CADC376F741C303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ VA - Private Lounge Club 4 (2013) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:5DEF17D177A80C8EDD0334ECF4AF2A2A72B0346A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ Bane of Winterstorm - The Last Sons of Perylin (2013) [WavPack|Lossless]<Symphon
 ```bash
 magnet:?xt=urn:btih:8E1445FD1360062A614F9A730EC5F2AFCD33B553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C78110417E5E9E1999E525ED00E888C4849175A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80D71A600505CF458B71AD530693868787C3C082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ StormWarrior - Thunder & Steele (2014) [FLAC|Lossless]<Power Metal/Speed/Heavy>
 ```bash
 magnet:?xt=urn:btih:677DD8EA925E29E36A8FA6E8A135FE93CCE0DCF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +681,7 @@ VA - International Lounge Grooves (2014) [MP3|320 кб/с]<Chillout, Lounge, Dow
 ```bash
 magnet:?xt=urn:btih:5F95C54A7E7CB3736405F925295FCD6D35DBD313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5D16C6FC08CFF1787A40276D8C60C881FC1226C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A11EAB1785813F40E978C54A5AC0F07F9E4572E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -782,8 +757,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:429966F7D10AD0B61099B5AA173E85853F26D382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Borderlands: The Pre-Sequel [PS3] [USA] [Ru] [3.55] [1.01] [Cobra ODE / E3 ODE P
 ```bash
 magnet:?xt=urn:btih:34725A93563A99D949A58B97483D74B1C1DBFE93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ The Vanishing of Ethan Carter это мистическая приключенч
 ```bash
 magnet:?xt=urn:btih:608A1BC916E31E0151A0CF72559E57745B40182F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Incomedia WebSite X5 — программа для создания веб-са�
 ```bash
 magnet:?xt=urn:btih:0C617F05A0A965340394C3CE76B8C4CE11E9F532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:138F2F4541B73CD5FA197AC86B1B9A3205048F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE8D189032C6EAA6ED91A93587C36E9F49960E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Silent Hill 2
 ```bash
 magnet:?xt=urn:btih:2AF9BBA4D15202A3F6FC40B611A879D1AF1839CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Thief (2014) [Ru/Multi] (1.6/3dlc) Repack R.G. Catalyst [Master Thief Edition]
 ```bash
 magnet:?xt=urn:btih:86C9708A171651296506AD233A8B75B3852F4093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Fable Anniversary сделала большой технологический �
 ```bash
 magnet:?xt=urn:btih:51C819C8FAF3D5191299B354B19B05E47B1593C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Risen 3: Titan Lords (2014) [Ru/Multi] (1.0.94.0/3dlc) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:830D2B690118A3874452F00E558FBEF80DEBA626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Ryse: Son of Rome (2014) [Ru/Multi] (1.0.0.150 Upd2) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:4B11EEFBE6C87B267C40BE17AA2E04EB6E6DC74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68D0FB2EFE5B68CD9FE6F43C77DE7F3C7FF74C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Sleeping Dogs — это экшен с открытым игровым миро�
 ```bash
 magnet:?xt=urn:btih:1A3245CC6A0D534117F33186D63F59D87783D0A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Tuxera NTFS 2014 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:82E32A319F8A8C3C1682F27030E425B7D7A75B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC59BC30EA673177D5D97DFC01FA362FA3E61B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35865460CC93C5C2B9F15191AB702486B771185D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ OS X Yosemite Грандиозно выглядит. Грандиозно раб
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ KMSAuto Net - автоматический KMS-активатор для опе�
 ```bash
 magnet:?xt=urn:btih:EBCFAF376A2012627DEF0680CFE0AFBAB559768D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Enemy Front — это новый шутер от первого лица от �
 ```bash
 magnet:?xt=urn:btih:9C0004AF8C4CAD0B3CFC167AA2268F6BD79A6BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ Injustice: Gods Among Us — новое слово в мире файтинго�
 ```bash
 magnet:?xt=urn:btih:8091898CDF75797E25AFDD87BFEB4F61A84DC633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ MInstAll v.15.10.2014 By Andreyonohov & Leha342 [Ru] (Авторская раз�
 ```bash
 magnet:?xt=urn:btih:E9F9D1965B2D013D47099ECBAAC9285C348E8D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

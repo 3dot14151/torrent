@@ -27,8 +27,7 @@ One Step To Kill - Ragdolls (2013) [MP3|320 кб/с]<Deathcore/Metalcore>
 ```bash
 magnet:?xt=urn:btih:D1D0254790E10546EE592DD8A5AFAC29B25B0B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Tarim - The Philosopher King (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:5CB2C983764D37F0CE45CFE5777259937B41036B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Wolfpakk - Cry Wolf (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6AA4A35C373E80C453F7EF736428C597DD61DC4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Earth & Fire - Gate To Infinity (1977) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:D9AF99E135E36BB36CA19CBA48507DD9E99BA2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Dreamtale - World Changed Forever (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:147F790CB97B1220EDCAFFBC0ADF1987EC094D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Submarine Silence - There's Something Very Strange In Her Little Room (2013) [FL
 ```bash
 magnet:?xt=urn:btih:73CB2CB3D130A38B8281DA816DF9A634620A39C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Broken Iris - Eyes Of Tomorrow (2007) [MP3|~225 кб/с (VBR)]<Alternative/Rock>
 ```bash
 magnet:?xt=urn:btih:12BB82EBD22DDE35A9281624A4D5CF433EAA05FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Ryan Star - Дискография 7 релизов (2005 - 2013) Дискогр
 ```bash
 magnet:?xt=urn:btih:0445E44102649537C3AD96B52AAF497E1F465FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Eklipse - Electric Air (2013) Premium Edition [MP3|320 кб/с]<Instrumental Sym
 ```bash
 magnet:?xt=urn:btih:5EB3ECB6E565DF51A4F2904FCF9BD95E7BDC147C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Elton John - Peachtree Road (2004) Reissue /2005, The Rocket Record/ [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:0A8B8C96A6C2A14B592546DEBAB832472A00CA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:BD7C14BFDCB1152D086E6EC59AE8232EADAF1A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ Ministry - From Beer To Eternity (2013) Special Fanbox Edition [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:69F268B5461723698098328EB7B4DAD1ED1B08A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +424,7 @@ INXS - All Time Hits 1980-2002 (2002) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:A5D5E49548DA1826E0D4956E9B7F2C3A23DF1D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +458,7 @@ Cold In May - Gone Away With The Memories (2011) [MP3|320 кб/с]<Electro Gothi
 ```bash
 magnet:?xt=urn:btih:2615AD8E2F13140B49EB2FCC1ABB6AB81BDCFCA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +492,7 @@ God is an Astronaut - Origins (2013) [MP3|320 кб/с]<Post-Rock>
 ```bash
 magnet:?xt=urn:btih:B581BFB7190B525C5CC52D793C15785469250AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +526,7 @@ Slipknot - Antennas To Hell (The Best Of) (2012) 2xCD [FLAC|Lossless]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:DE5CE9C7F29658F33D7A798CF5D576CD8E40E3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +560,7 @@ Tarja - Colours In The Dark (2013) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:DE2AC3BB088876205FA266F26F2F537E8FCDCA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

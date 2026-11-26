@@ -19,8 +19,7 @@ YAATA SMS 1.44.10.21936 Mod by papasha55, unz1p, solokot, Uksus17, Mare12 [Ru/En
 ```bash
 magnet:?xt=urn:btih:DF510E55C022A865BBF8C8BDC92F634C609A7526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

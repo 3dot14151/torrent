@@ -19,8 +19,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B0E58D38BE6397911C78D624D2B2D21A60C7B234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Little Nightmares: Enhanced Edition (2025) [Ru/Multi] (BuildID 18639334) Repack 
 ```bash
 magnet:?xt=urn:btih:165A25884F2ED24C1CE6851457CE086C7981D329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Escape from the 70's (2022) [Ru/En] (Build 8771485) Repack Other s
 ```bash
 magnet:?xt=urn:btih:ABA10AE07CEB6108D7BF65994EC195F80200AE57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:45912022A08EF8B6EEC33E311E892C20DFF67343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Timberborn (2021) [Ru/Multi] (0.7.10.2-5762fd5-gw) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:1C82AE562162C6110DBEB56C61424CDFCDFA5263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fate Seeker 2 - продолжение первой части слэшера, �
 ```bash
 magnet:?xt=urn:btih:1AF042B4D629FA66C2D4C869E750498E6DEAD0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 ```bash
 magnet:?xt=urn:btih:BFB132E1C27CA09FA114BF48D8B4450D4211C46C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B0A9B67652340CDAF4277968AC943AA95EED4BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Gex Trilogy: Gex, Enter the Gecko, Deep Cover Gecko (2025) [Multi] (1.1) License
 ```bash
 magnet:?xt=urn:btih:ABEDD68B556B779A4AEA5E2DC2B60071F20D5B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Aliens vs. Predator (2010) [Ru] (2.27u7/dlc) Rip EXROW [Expanded Edition]
 ```bash
 magnet:?xt=urn:btih:7D3CD094867E30FEC75732CC185EAA8C68B4BBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Argonauts Agency 9: God of the Storm / Агентство Аргонавты 9: 
 ```bash
 magnet:?xt=urn:btih:F31ED41DF07F5520A5E2520CA62151549DFE710E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Hidden Legacy: Dark Heirloom (2025) [Multi] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:E3C7832A36C4FCD3663A1992DF6B4591D33DF28A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

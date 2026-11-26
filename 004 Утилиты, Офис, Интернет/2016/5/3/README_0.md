@@ -19,8 +19,7 @@ K-Meleon - браузер для операционной системы Windows
 ```bash
 magnet:?xt=urn:btih:5DE98A45218F69EACB356119470CBBBFDBE0B529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

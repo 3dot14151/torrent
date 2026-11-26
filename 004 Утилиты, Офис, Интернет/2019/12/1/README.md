@@ -19,8 +19,7 @@ Webcam Surveyor 3.8.1 Build 1135 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A85B09D0875FE876A25F42DB8E88743FE3D33A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

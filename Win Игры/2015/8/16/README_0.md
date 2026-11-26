@@ -19,8 +19,7 @@ Spirits of Mystery 5: Chains of Promise (2015) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:FF98C31D55DD359081A9B718990B2A33B96025D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enigma Agency: The Case of Shadows / Тайное агентство: Дело �
 ```bash
 magnet:?xt=urn:btih:A58B3D186944D566BAE435ED6960186EE2551F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ New York Mysteries 2: High Voltage / Загадки Нью-Йорка 2: Выс�
 ```bash
 magnet:?xt=urn:btih:2483535C3CE2403CFEAC2E7899713B5FFCEED354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Turmoil - экономическая стратегия с генерируем�
 ```bash
 magnet:?xt=urn:btih:477FE985C5ED0CF947C84C7A71AB8BA87E07312A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) SteamRip 
 ```bash
 magnet:?xt=urn:btih:DDC65CBA84647FD8C018C070379BCADB5FED9DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Gat out of Hell - это самостоятельное дополнение к 
 ```bash
 magnet:?xt=urn:btih:8033CF47E16E24E51F3B03FC565A8ED4AFDB36F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cloudbuilt – динамичный инди-платформер от моло�
 ```bash
 magnet:?xt=urn:btih:38377998CB507E4001E259C15289D66E2FA3E76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.4.2b/dlc) SteamRip
 ```bash
 magnet:?xt=urn:btih:710E73726FABA5BE45B1F02E4C637FC68CDDBFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

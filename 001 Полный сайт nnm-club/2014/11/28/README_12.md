@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0FC7D5B74A4CDA6E0A693FDDA5FA8712C703FB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fauna - Rain (2006) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:AADD68B2130481B76E7C2B9D7827F622E98BC2C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Blossoms of Lounge (2014) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:BF80EFE0BF0B88B7E66F51F000E83D4EA33473BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Galloglass - Legends From Now And Nevermore (2003) [APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:05DFFE8C23106CA1008571D68DA1CD829C2B5FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Born From Pain - Dance with the Devil (2014) [MP3|320 кб/с]<Hardcore/Metalcor
 ```bash
 magnet:?xt=urn:btih:5B9C7AB38CC32083303CD6EECC0CCAE426F8DCF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:436E9AA8FD6A7E277D9EBA447A45472CECA0DF01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ Synthetic Epiphany - Emerald Daze (PWYW Mini EP) (2014) [FLAC|Lossless]<Chillste
 ```bash
 magnet:?xt=urn:btih:5B238B6C2F7313F3B58EBA4B6F55F6705E59D4E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBF23A151D5E71551BA3A6BF28740B6384B595CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ VA - Decade EP (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:09C419CD5A38E1F183795933D8F74CF2DEAD9021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ Rock Alley - Rock Alley (1998) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DDBCDD74C8B2A27F3E719DCE4CCB99EF51959466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F247FCC9682563A49D255BE99E081B4D91CE3063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ Emily Musolino Band - Jealous Girl (2014) EP [MP3|320 кб/с]<Soul Blues>
 ```bash
 magnet:?xt=urn:btih:5ECD859FD46132EBA35946D0548882D54379C143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C008EBF7042346EBE62F5031471A9F864E34C04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ VA - Jazz District : Hard Bop (2013) [MP3|128 - 256 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:5CC6D78EAF7C1089DCDDB3FBB609A667353C94D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ Eddie 'Lockjaw' Davis Quartet - Swingin' Till The Girls Come Home (1999) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:863615C281DEFF46040098036FB8FA2F737ABA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EBF2EC9495A8A31BAAE128F39254F4D1E722BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:601FA781CA6A59984CE4AA20D817FD5D826AE55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ Black Fate - Between Visions & Lies (2014) [MP3|320 кб/с]<Power / Progressive
 ```bash
 magnet:?xt=urn:btih:F018C1BCF41CDA1C87098F27B16A5996715B4C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +565,7 @@ Axenstar - Where Dreams Are Forgotten (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:7D661F8330F40DB19312D09C6B000F99428F9823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +599,7 @@ Harmony - Theatre Of Redemption (2014) [MP3|320 кб/с]<Progressive Melodic Pow
 ```bash
 magnet:?xt=urn:btih:A8AF9055BD9189C147C5A8159113370FBAC263E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C72198281F4FF5108D69A88F7243A6C9E8BBF8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +658,7 @@ VA - Jazz District : Brazil Jazz (2013) [MP3|~256 кб/с ]<Jazz>
 ```bash
 magnet:?xt=urn:btih:890FBC19D4E8B7A59F62A0632CCB5C864462951A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +690,7 @@ Marcus Visionary - Computer (2014) [MP3|320 кб/с]<Drum & Bass, Ragga Jungle>
 ```bash
 magnet:?xt=urn:btih:59030DCE75119C32E43B526B675B9E0F884F8B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:705F8B9418858D53357DC02650B69094D330D902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +740,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A0277259D83C905D49EF98FC071F20C538CCD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B54821215881FCF1D88773A50C533F99AA617FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

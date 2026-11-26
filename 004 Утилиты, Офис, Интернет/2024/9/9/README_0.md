@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AB93825808EAED13F70E7D53B12DEB451736D48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Digital Clock - это внешне простые цифровые часы д�
 ```bash
 magnet:?xt=urn:btih:A1799283569221066827A6B626E486C049548F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Caramba Switcher - это новый, понятный автоматическ�
 ```bash
 magnet:?xt=urn:btih:795726C51C7A5642DAC542B2A9AE53224C048C59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

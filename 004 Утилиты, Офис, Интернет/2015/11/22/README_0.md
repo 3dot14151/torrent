@@ -19,8 +19,7 @@ Recover My Photos - это программное обеспечение для 
 ```bash
 magnet:?xt=urn:btih:A08FE5BBA927E8C6FFADD631DCDE001A64FF7299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HyperCam 4 — новая версия популярной программы H
 ```bash
 magnet:?xt=urn:btih:1DFBFE2EC8379FF79612F18A7DEBE3EF37D552D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

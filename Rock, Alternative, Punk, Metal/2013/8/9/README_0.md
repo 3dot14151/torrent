@@ -28,8 +28,7 @@ Akrea - 3 Альбома (2009-2013) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:585E97747F808B6D3B442FE128C9B180C58D6348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Max Pie - Eight Pieces - One World (2013) [MP3|320 кб/с]<Progressive Metal/Po
 ```bash
 magnet:?xt=urn:btih:E91BD68CFF3314ED3C1D1E4538C82B9EA31B20F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Musicians:(   Читать дальше...   )Жанр: Hard RockПродолж�
 ```bash
 magnet:?xt=urn:btih:F8343ECF60332C998D741EBE00DAE020C6D85320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Rosetta - The Anaesthete (2013) [MP3|320 кб/с]<Post-Metal, Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:860E0DBF2225FD690797B026E1AE08CCBF2B99C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ The Poodles - 5 Альбомов (2006-2013) Japan Edition [FLAC|Lossless]<Hard 
 ```bash
 magnet:?xt=urn:btih:466DC66D2D74EC4E1268E5D9C115D42915C92A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Electric Light Orchestra & Olivia Newton-John - Xanadu (1980) 1989, Jet Records 
 ```bash
 magnet:?xt=urn:btih:82B7DA73F5A2E978DE84A29CCAB7B81237C7885E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ VA - A Collection Of Delicate Diamonds: A Tribute To Pink Floyd (2011) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:9012CB03234A5E300E138E9C25389CAFF205AAD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Asking Alexandria - 4 Альбома (2009-2013) Дискография [FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

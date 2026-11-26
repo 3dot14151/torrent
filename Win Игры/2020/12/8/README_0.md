@@ -19,8 +19,7 @@ Edna and Harvey / Эдна и Харви Дилогия (RePack) [Ru/Ge] 2008-20
 ```bash
 magnet:?xt=urn:btih:673639FE770857905E2D37D9270F19B49376F084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

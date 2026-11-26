@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A42C3EFE01C557CD5B91C02D8C245104AE4DD1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ FIRE — это приключение-исследование с множес�
 ```bash
 magnet:?xt=urn:btih:21F72C1F314BF5D5E21CE6364704E5D668828DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Computer Noises основан на широкой палитре шумов, к
 ```bash
 magnet:?xt=urn:btih:FD597F257C9145EC2E50B743EBE1094BA35C8B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ ReFlex - прототип гибкого смартфона, обеспечив�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D936B4DC1E98C121F65EA9EC910DBF3B112E5DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3E177DEE8C1E4FF54790BC05913EC21A3E34C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEA9DD01329F4E99A33CC239A76E5CB43F048E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Schiller - Future (2016) Limited Ultra Deluxe Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:927C7F06833A979AE83E83F77CE2AD2D4D555C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22EA78E1AA44127E396627EF4D4382EC9C9B1674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ VA - The Best Rock (2016) [MP3|256 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:AFA3C328C1679330543EA2578C9F87AE3E10ECE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ ESET Endpoint Antivirus 5.0.2254.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:384D52C03063EEB35D455C133016C59622F09D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAA96A45164DFD98991BA055EAB2E2F0D7565612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Smarty Uninstaller - мощная, но в тоже время крайне пр
 ```bash
 magnet:?xt=urn:btih:5BD4A65ADEAD2634AB5B3AEEF9B095D876C7DBE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ ESET Endpoint Security 5.0.2254.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:3B67DAEF76AA72FE95E34FFC3F05AFB5B798AF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Mem Reduct - это легкое и хорошо себя зарекомендо
 ```bash
 magnet:?xt=urn:btih:153A6E7D2AF3915D43A8A9DF9DCFB3904A7575CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Flame in the Flood — это адвенчура на выживание, в к�
 ```bash
 magnet:?xt=urn:btih:7B084AD04F1BD4ED628E5C6BA26D93282482DC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7281FA54C16D280C0D80BCD003E4C00BDDA2745E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ VA - Magic Instrumental Music Vol.2 (2016) [MP3|320 кб/с] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:1CC27823D50469E80F35A5EB37EA4838BA8A6C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ Sekai Seifuku: Bouryaku no Zvezda / World Conquest Zvezda Plot / Покорен�
 ```bash
 magnet:?xt=urn:btih:5DC4F4303D3344AAD3B171306893C14D12D7B296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6E94F7F11DC9D1350E941AA65F2B522F0A58FED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41879044A3B8C09F7EB468C340987DBBAFE94110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ Discovery: 10 возможных концов света / 10 Ways The World Wil
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB027312855D8CBB64EBFF9DB572B1603C2FD75E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ Driven to Destruction
 ```bash
 magnet:?xt=urn:btih:442D5379166D3F8F39717F0D9930761C6DDA4D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ AMD Radeon Software Crimson Edition — это новое революционн
 ```bash
 magnet:?xt=urn:btih:B971C364570D59051F6396C3C64A26B39972857C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ Silencers - Bundle - включает в себя два отдельных на
 ```bash
 magnet:?xt=urn:btih:7904A9827F7CE9270261F27E29FD2A07FD28F1D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

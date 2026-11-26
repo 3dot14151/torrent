@@ -22,8 +22,7 @@ Monte Pittman - The Power of Three (2014) [FLAC|Lossless|image + .cue] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:F73904AE8E1E60F10FBEBA3889BE44F751370359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Monte Pittman - Inverted Grasp Of Balance (2016) [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:A80170D26C6D8B2215C4A68526029247A0C46520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Lounge Theme (Sofa Grooves), Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill O
 ```bash
 magnet:?xt=urn:btih:4283A2228553D6010E51B02AB17AEA48D33C6B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Bar Essentials, Vol. 2 (2019) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:3BCCB014A4F1A078EDCBE78B64925A8764C91CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Bar Essentials, Vol. 3 (2020) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:2694935749C0357E44FA79D2BCCDD7D2088F8EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Chilling Winter Best Playlist (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Do
 ```bash
 magnet:?xt=urn:btih:476D92F955DBC2EE18464B45BC943248E9A6C399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Beach Grooves Maretimo, Vol. 3 - House & Chill Sounds to Groove and Relax (
 ```bash
 magnet:?xt=urn:btih:54F50061E9897060F34E980775FBD00CD3F1DCE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Bar Essentials, Vol. 4 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:3B4B61F77A866964FF999F6B3497972E88FEE6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ SiteSucker Pro - это расширенная версия SiteSucker, кото
 ```bash
 magnet:?xt=urn:btih:BABB0110B1AFD44E2A444DF5A9C539073DD8C8F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Lounge Theme (Sofa Grooves), Vol. 1 (2021) [AAC|~309 Kbps] <Lounge, Chill O
 ```bash
 magnet:?xt=urn:btih:5D518C0257754CB6EE3448AF207F0255A1229BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Screen Wonders 1.9.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CF17FCF5EE397EE702289918590CDEB296432952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ VA - Beach Grooves Maretimo, Vol. 2 - House & Chill Sounds to Groove and Relax (
 ```bash
 magnet:?xt=urn:btih:5D05CC0F954E46C12B7F38111DFA07BF4058DB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ VisualDiffer сравнивает бок-о-бок папки и файлы с �
 ```bash
 magnet:?xt=urn:btih:580FD98EFA89FD1C66FFB3713DAC1EDC896641DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ VA - Beach Grooves Maretimo, Vol. 4 - House & Chill Sounds to Groove and Relax (
 ```bash
 magnet:?xt=urn:btih:83D4F2CCAAB6EDEB7AA9C96ACBBCDE50482B803F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ VA - Bar Essentials, Vol. 1 (2018) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:CA2C19C8AD996554CE0E15A259F996B5E8D56214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ File Juicer может быть использован (   Читать дал�
 ```bash
 magnet:?xt=urn:btih:F8F00F3C49F1F571EBDE2F67E9C22F0878863210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83E7446D9489A25BFDB7BC84AE4CCAE53995FDCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Stormbreaker - Strike The Match (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:42C147DD11A8BFDFD111ACFFF7FDC702690AB52C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ VA - Ski Resort Best Lounge Music Playlist (2021) [AAC|~292 Kbps] <Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:B276153419C9BFF41901556B53333F742C5E0706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ VA - Beach Grooves Maretimo, Vol. 1 - House & Chill Sounds to Groove and Relax (
 ```bash
 magnet:?xt=urn:btih:CFE662F83AA63C7B8A27604721A8FFECE1B0376C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:A48810A48C9B88542DD7E283DE302AF0B6F07C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89D46A6EC1FB575B4767279B440259B60D1297CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C754470FAF8E3148A601175543B51CCD65BD0C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ Dangerous Curves - Summertime Highs (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:A171CFC1BF1E001DB3E943630EDD53469306E7B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ Thanatos - Violent Death Rituals (2020) [WavPack|Lossless|image + .cue] <Thrash 
 ```bash
 magnet:?xt=urn:btih:E2BED4E49378EB9FDE4E4DA62C87D5344ACA9A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Pacifist – приложение, которое открывает пакет�
 ```bash
 magnet:?xt=urn:btih:6C174294C8CD339DD39B4A252488DF9BACD86A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

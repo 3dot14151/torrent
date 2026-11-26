@@ -19,8 +19,7 @@ BloodRayne: Betrayal (2014) [Ru/Multi] (13.10.15) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:895D3ABE04BF06DE742231181C10BE8122AE17D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Goggles: World of Vaporia - игра в жанре adventure, в которой 
 ```bash
 magnet:?xt=urn:btih:9808635C5A024E1A02C657B8E1B585BD8E2C690F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:5B00E3E3ED70D614D4F0CE65C631E0665745F8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE701CC56857BE92AEFC61A7079FD089FE82C81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PictureThis - Plant Identification v5.18.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8EBA44AE73BDABB2E075524678E43F06DEC9CFE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MIUI Hidden Settings Activity v1.6.13 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AF5A24F942268D8069395541D178D19CD64111DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ OTT Navigator IPTV v1.7.4.1 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D019C4CFC6DB710F3363DD9E82C7669B0AE03197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ```bash
 magnet:?xt=urn:btih:84C939869FB516F4706144CA0F9BC0D1A319E14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ PowerDirector – Video Editor v15.9.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9A1A3AA865C515D46EDA4E50C6E474C4378267A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ NokoPrint v5.26.0 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:55EC620DAA6C430B215A82EA7198B0F0080F52B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Mary’s recipes: рецепты, меню v7.0.1 Mod by Alex.Strannik [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:5B3F22667BAAC95AEF960A507A6DC61DB4DF6088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:318FB0BEB46823349D9CB559EC9C165F4D16A8C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Folder Player Pro - это ориентированный на каталоги 
 ```bash
 magnet:?xt=urn:btih:E075D36BA71B6C0849348491E04B561559987B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:65E950A71F534074543A080877CB5E7E469E61EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

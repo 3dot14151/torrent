@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D9B90B3F5CF474282CA56ABA72578C5FD5305B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ BELOFF 2019.12 Lite [Ru]
 ```bash
 magnet:?xt=urn:btih:D11B50E8A34D481F2F00B17108ED46D0D447572C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A37E58B96FDBDD12E85398A0351C376156FA12FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C97E7221927B3B13D74BFA4C452D7CC33A771AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACCB7BE6A8DAA7CF53A89C39D94346125F416F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ VA - In Search Of Sunrise 15 (Mixed by Markus Schulz & Jerome Isma-Ae & Orkidea)
 ```bash
 magnet:?xt=urn:btih:BEC66BE816CDFF8B8583321D2CD4617888691A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Cкин New Navitel 320х240 для Navitel 9.8.187 на WinCE [Ru/En] + спи�
 ```bash
 magnet:?xt=urn:btih:72535219EF3610D4A7B9941F81320FA1527AC6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Halo: The Master Chief Collection (2019) [Ru/Multi] (1.0/dlc) Repack R.G. Мех
 ```bash
 magnet:?xt=urn:btih:AF2FDBAD6E856A4454375547B89578CE9BF4BEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93DDA7ACAA10245BA4F221229165843BFFEB13F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Bethesda Game Studios, создатель популярнейших игр Fall
 ```bash
 magnet:?xt=urn:btih:57B12042C30FFD1BDE56BAF85034F1526327C852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:18BC5D8CB2B2BA578F233857F035C2FD3407DC36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DailyArt — приложение №1 для изучения истории и
 ```bash
 magnet:?xt=urn:btih:5EBD9D108F8C50D9C6E267026A334D56802289EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PROTO - симулятор схем v1.37.0 Mod by NURIK [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8900215603E0763C125D94B1782191CA6F384A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ IPTV Pro v9.0.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:41DE3BEF7243BF37B77AF07E04240A1C6FD368D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Speccy – компактная программа от разработчико
 ```bash
 magnet:?xt=urn:btih:824B5C377DF69653373E06530688AB6C87843951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:32E087F65A96614AE56E6BDC8762B5286BBB16E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

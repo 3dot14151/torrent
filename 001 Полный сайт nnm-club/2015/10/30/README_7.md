@@ -18,8 +18,7 @@ Dumpper 80.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:513CC8781C124BF2D3890E511985E436F3CE434C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:6E798DBD57CF1C193F22DD982EFD7BF9228FF2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Kaspersky Reset Trial - Программа для сброса триала (д�
 ```bash
 magnet:?xt=urn:btih:30BF9153BBF1B15DA75C5818FAB0BE2C672DFFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:126AD8A3AEC54BC551AE51B3D0ECB313928A5996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/Multi] (1.0.7/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:B8EB815C1C31651AE94EFF742366732D69664A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDD56F50F46A5FE35A44B63B86CFC970C0F2D43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Windows XP-7-8.1-10 pe StartSoft 80-2015 [Ru]
 ```bash
 magnet:?xt=urn:btih:CF9863BE98203F87E01616EBF500A8C597316311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Elecont Weather - это самая информативная программ�
 ```bash
 magnet:?xt=urn:btih:4F72487F1974AB6B5635ED104C06B24D93A9C797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ WinBoot-загрузчики Windows 8-10 (в одном ISO) v15.10.28 by adgua
 ```bash
 magnet:?xt=urn:btih:58847EF8B0EAD51713C41724F125B54307B17D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

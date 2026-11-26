@@ -19,8 +19,7 @@ King's Bounty Platinum Edition [Ru/En] (RePack) 2008-2010 | Seraph1
 ```bash
 magnet:?xt=urn:btih:8B38D071BC90649323BAA2C21056D3B24A0BFD94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 ```bash
 magnet:?xt=urn:btih:3E91764784632E72EA9E66AD064B4F18F2908DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Manhunt Дилогия (P) [Ru] 2004-2009
 ```bash
 magnet:?xt=urn:btih:AD576220CFD04FED20F30B817683EB99D6AFFC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Space Pirates and Zombies {v1.5.05} (P) [En] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:118B56A96A30EE8FA87EAD5739E8612F55DAD970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Shiver 2: Poltergeist Collector's Edition / Дрожь 2: Приведение (
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Twisted Lands: Insomniac. Collector's Edition / Гиблые земли. Бес�
 ```bash
 magnet:?xt=urn:btih:03252C93A7F282DBECB83BBEBBD8395EA1E2BC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Depths of Betrayal Collector's Edition / Голем. Коллекционное 
 ```bash
 magnet:?xt=urn:btih:54CB3D853F75F28B8B6FCF644B841174EA40E90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Gobs of Fobs (P) [En] 2006
 ```bash
 magnet:?xt=urn:btih:0D7699F8BEE7CB81FAB401E75E4A0862DE206111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ CHEats MAXimal - наибольшая из известных на данный 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

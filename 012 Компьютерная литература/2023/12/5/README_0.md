@@ -22,8 +22,7 @@ TinyML – технология, призванная расширить исп�
 ```bash
 magnet:?xt=urn:btih:1A6490AA0D1B85C8E6A01026BA32ED2024458C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

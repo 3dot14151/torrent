@@ -22,8 +22,7 @@ Alter Bridge — американская рок-группа из Орланд�
 ```bash
 magnet:?xt=urn:btih:D246219CCD7C28187966639CE45A61F82177B0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

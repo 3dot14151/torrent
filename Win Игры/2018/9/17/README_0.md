@@ -19,8 +19,7 @@ Super Lucky’s Tale — весёлая и увлекательная платф
 ```bash
 magnet:?xt=urn:btih:982780B9CA52EBE9D29AB51962E18B5A58DF9AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MechWarrior 5: Mercenaries — это шутер от первого лица, �
 ```bash
 magnet:?xt=urn:btih:FA4AC65032C8205FEC946BAE1F8411C26181C951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pradeepta Mishra | PyTorch Recipes, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:E290060FB313E16896B12E0D03A8A8397062CA44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Anthony Onyekachukwu Okonta | React.js Design Patterns (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:EC11F295EBE5DFFCD017C0533AB0E35CB8F0E4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Yong Cui | Python How-To (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:6D05DD748DEA76D03FF036340F54DBEBDFB31E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mustafif Khan | Rust for C++ Programmers (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:9D31BD1354CA9BCAE97DA238E9F60C343BF98B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B546A75AD195DB1BBFDF5C175E0257BACC512CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ StarCraft: Brood War (1998) [En] (1.18.8.1891/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2D05752CF21F22FB5F156AE3A2877875BFC14A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9C09C6D10337FC6E06759A907BE5021970D4490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Microsoft Windows 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 06.2017 [Ru]
 ```bash
 magnet:?xt=urn:btih:82B2D266CE91425718F6AA26E457AAF21FB9FF27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73FB09CC49BFE49914EE9EC960BB4AB4D69EDF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Paragon Hard Disk Manager - многофункциональное и удобн
 ```bash
 magnet:?xt=urn:btih:D9A60DD2E3FC70779F1015CB92C533F9CD0E7295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Total War: Warhammer (2016) [Ru/En] (1.6.0/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:50766F83433B6289643D0929C7B85558FC041063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50A49373B376E360E328F70F56D6BA6A50374DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

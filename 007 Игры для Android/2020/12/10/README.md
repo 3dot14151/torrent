@@ -19,8 +19,7 @@ Quick Brain / Упражнения для мозга v2.5.9 [Ru/Multi] (обно
 ```bash
 magnet:?xt=urn:btih:96B4BBBA4381D73E32E3AC6E56DC36CBDF5FC70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:89E7209C3EF0E45A1B46BEAECC55455F7A8E6DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Rods - Wild Dogs Unchained (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:B4C95457AA19C03D2B17B8F14F7EDFA9F48CE943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Spinal Tap - Break Like The Wind (2025 Remaster) (1992) Remastered, 2025, Geffen
 ```bash
 magnet:?xt=urn:btih:35B680A7571999AF9A99D69FD8C9FE5464D13179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Killer Elephant — невероятно тяжёлый шрифт, состоя
 ```bash
 magnet:?xt=urn:btih:EEE37E5C7DC1A22A8AC607AAC4338DED862EFDE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

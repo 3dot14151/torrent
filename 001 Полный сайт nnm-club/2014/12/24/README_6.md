@@ -23,8 +23,7 @@ Woebegone Obscured - Deathscape MMXIV (2014) EP [MP3|320 кб/с]<Doom/Death Met
 ```bash
 magnet:?xt=urn:btih:1FCF86F2E8D0E8C9CFDA082105F50B104C679A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Yearning - Evershade (2003) [APE|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:310DE701000C80FE2F6707A2DFD109CB036390D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Dj Parafich - Pumping (Scouse) Romantica vol. 11 (2014) [MP3|320 кб/с]<Pumpin
 ```bash
 magnet:?xt=urn:btih:1E9155D6774A4880C813148F446301676C77B086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:076A35FB16D1E972BB2D5091F56024858A751D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ VA - LV:X - Ten Years of Liquid V (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D8768BEBE5F8E4BC08770D154A84748F242F874E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ CD2 (01:13:51)
 ```bash
 magnet:?xt=urn:btih:5787621FC0EDE7A201DBD98A903CCB321067577C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ VA - Liquid V Presents: After Party (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:3C853E077E945F477513192FEFA64283B2F2815C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ VA - The Greatest Voices & Unforgettable Evergreens CD1 (2000) [APE|Lossless]<Ja
 ```bash
 magnet:?xt=urn:btih:5C4B5AA87DF7CC8CD254BC123A5953ED93E11B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ VA - Threads (2014) [FLAC|Lossless|WEB-DL]<Ambient, Idm, Glitch, Downtempo>
 ```bash
 magnet:?xt=urn:btih:BC093A514390E0942C6BCC72BA80F129B6B46588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ The Satellite Year - Mission: Polarlights (2011) [MP3|~190 кб/с (V2)]<Alterna
 ```bash
 magnet:?xt=urn:btih:2D9B3B95E81D288083F2F6201B74021D52AF6C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B4A366AEC6B81FE25D5F4D8B3F3AC928ABBA2A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ VA - Autour De Minuit №3 (2013) [MP3|320 кб/с]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:0A9AE4800D406BD52AE047150D3BEECC208FDCEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B11A43EC249680C25561F42878963341C99EB89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C27DE8AB6C2B581B68433E375B97F3DE77D24551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +515,7 @@ Hermаn Rarebell - I'm Baсk (2007) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:993C191F2FCD5B2519EB063C5BC5A9493FEF30F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16EEE05ACC87447F3A9E135D63E261637A52C279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B430222188D4888D4AA258918B97E2A09283195C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ Styles P - Phantom And The Ghost (2014) [FLAC|Lossless] <Hip Hop, Hardcore Hip-H
 ```bash
 magnet:?xt=urn:btih:384B5318768FF00DF650CC14E46C00B2D5EA08F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8FD179C5F4FD4EADFB87FBEFF627FBABF9330D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +648,7 @@ Ensiferum - Suomi Warmetal (2014) EP [MP3|320 кб/с]<Folk Metal, Viking Metal,
 ```bash
 magnet:?xt=urn:btih:26B25A5F63803AE3CA6500CAE49121AE7B065390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +682,7 @@ Hermаn Rarebell - I'm Baсk (2007) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EE5C2130AC87452837CAD5067FFC106C353C26A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ DJ Feel - TranceMission (15-12-2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8F5F8A81AA580132451D865354AD63C24D61EA41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C74338BE44545DDF6BEEB14513F0556532606948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB66E87E3B6E8FA46C065CA1222D4E120ECC3B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

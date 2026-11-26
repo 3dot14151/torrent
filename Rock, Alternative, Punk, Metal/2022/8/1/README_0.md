@@ -22,8 +22,7 @@ Nova Enterprise - The Everlasting Paradox Of Spacetime (2022) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:5A9A03C524E11F2BAD9CB3E356D0DFEC486F2917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crises - Broken Glass (1998) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:C489056C19C1AD58311BE03D30891F418CB77A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mordred - The Dark Parade (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:8D2D9ED2730A54D1A156073DA05961344017FBEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ All I Know - Vanity Kills (2008) Reissue, 2022, MelodicRock Classics [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:DE26A8B1EC3CCCCE4F121086EAA07B5B6ED5FF23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ DeVicious - Black Heart (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:1F91C463A1E735B977D2979D776D8DB45863B8F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Pioneers - In A State Of Rock (1984) Reissue, Remastered, 2021, Norske Albumklas
 ```bash
 magnet:?xt=urn:btih:29FDF938B2864D88E07B4E26DCD1C172CB7EF61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Airplay - Airplay (1980) Reissue, Remastered, 2018, RCA, Japanese Edition [FLAC|
 ```bash
 magnet:?xt=urn:btih:AF5C9911F0598CBE1B9674A8CC1E7E6C0CA78697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Journey - Freedom (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Arena Ro
 ```bash
 magnet:?xt=urn:btih:FC2ED9E8902A673EC41AD167AA7289C769024ACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

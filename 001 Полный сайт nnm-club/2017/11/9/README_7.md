@@ -22,8 +22,7 @@ VA - Trance Favorites Episode #009 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:72C1745088E25C8DE1EDCF9D4B9FBB1ED5DA9861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:367569FCE24A50868821E48B1110BE16DE37DC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Kingside Fitness Workout 2017 [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:59C54DA2E0F4D1C139557C89841681D5032072EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Keep Hope Alive (2017) [MP3|256 -320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:02C71379675A68B5973F102C1C86ED7E4A8AE0B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rob Van Bavel Trio - Almost Blue (2005) Munich Records [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:C83B4C476F1552D1E8EC47FAE429C1738930E20B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Trance Traveling 94 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance, Progressi
 ```bash
 magnet:?xt=urn:btih:27CFE7F3E39EEA00C94A05229E424D8992262384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Duke Ellington - ...And His Mother Called Him Bill (1967) 2016, Sony Music [FLAC
 ```bash
 magnet:?xt=urn:btih:57A940D9525929E440CCBD85BF09D275E5D2C887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EBF3D66A806B5AFA6BC76AED5E1D62552F7D96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63B1BC03D279F19C757EAFD6F54083C4F8BCC900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Klaus - Discography 5 Releases (2011-2017) Tanum [FLAC|Lossless|tracks] <Experim
 ```bash
 magnet:?xt=urn:btih:9A7252A52F63B54D0ADD44A2F1E4E36494681F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Koan - Find Me If You Can (2017) [MP3|320 Kbps] <Balearic,Downtempo>
 ```bash
 magnet:?xt=urn:btih:824E018909C0F062538965AF945BE1386478CF04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:134E21F6F60B2E3017A89A58616E7DE03360C15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - Aly & Fila - Future Sound of Egypt 521 (2017) [MP3|320 Kbps] <Trance, Uplif
 ```bash
 magnet:?xt=urn:btih:511DE0A7908D1EC37F976FED045BDC2DD1E729E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ VA - Roger Shah presents High Noon At Salinas - Beach Grooves Vol 1 (2017) [FLAC
 ```bash
 magnet:?xt=urn:btih:DD21698EAF2DFF752055F02794B2428357BF0440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Fats Domino - Greatest Hits (1991) [MP3|320 Kbps] <Rock'n'roll>
 ```bash
 magnet:?xt=urn:btih:7AEC450A75C63251C6026B84AFA8707FFF41549F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ VA - Groove Addicted 2 (Compiled  by Groove Hunter) (2017) [MP3|320 Kbps] <Psy-T
 ```bash
 magnet:?xt=urn:btih:E619043DBD85A42689B0F5C1F20798918C3DF8D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66A005D50BF534F777301EE91124CE50A9C77604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C1CC1FB5FB64C865EF3C608EC1988BD77F72B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:189B221A517791CD8D0D918005607A06CE70DBB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E1CD8BDA422DF26E96DC55EE0DEA14BB621C9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Tempo Bay - Disco Ball (2017) Single [MP3|320 Kbps] <Indie Rock, Dance Rock>
 ```bash
 magnet:?xt=urn:btih:8B793F9287C0662B3FCD73970D21B4E8E4099FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ VA - Club Sounds The Ultimate Club Dance Collection Vol.83 (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:F76779FF6DA935887575727551DEFABC0322C39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18071722776B29553BC68F6A39D84CD1395DC95E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Joseph Jacobs - Resonant Sounds (2014) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 ```bash
 magnet:?xt=urn:btih:F3E7D16E36E3FB0757EB2B835392FDBB0D3C2393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3C311F8E0F677912B81027D798B4A264251A71D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ SuperDuper!  - Утилита для клонирования жесткого �
 ```bash
 magnet:?xt=urn:btih:85F3240C59788412FA906DF16E1AF17E234A2EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

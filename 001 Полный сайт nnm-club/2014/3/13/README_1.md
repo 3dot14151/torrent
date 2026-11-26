@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FE3851C596C22E2740057B92C8E401797E0D318B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Elisa Tovati - Cabine 23 (2014) [MP3|320 кб/с]<French Chanson>
 ```bash
 magnet:?xt=urn:btih:A9CA0B8AC8FA0849B72AE7910559A16C5A6F7C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D022A132D65E0423CC2894915192324E8136A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15F8A8C83633ED344D261EA37DD63D9EE8A769DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D765100408A1CCA8823EB9D1E308FB0A05EE801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B66A20ABF9310C954C58F7C78E53F0DA4DF8895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Rashni Punjaabi (Oliver Shanti) - Passage to the Orient (2002) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:AF2CC0B0C7B3AAB512B93A3523D5056B4BBF5BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFF988D3149A4FD794EA3826D9FAA8EB5960DC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Foster the People - Supermodel (2014) [MP3|320 кб/с]<Alternative Rock, Indie 
 ```bash
 magnet:?xt=urn:btih:56B44B85AEFE9BCF865E4A7A7B199DD3A8C331CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Allure - легендарный журнал о красоте. Для Allure р
 ```bash
 magnet:?xt=urn:btih:97D334FE849F15FD17406C52DE747CC88D26FE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ VA - TOP 100 Лучшая Музыкальная Подборка. Весенн�
 ```bash
 magnet:?xt=urn:btih:C6D360925599BE04B7926720A6F8B8B0BBE373F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ Ashley Monroe - Like A Rose (2013) [FLAC|Lossless]<Country>
 ```bash
 magnet:?xt=urn:btih:C00313BAB615F98636D11F5533E55A69F08D2FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ Aaron Lewis - 2 альбома (2011-2012) [FLAC|Lossless]<Country-Rock>
 ```bash
 magnet:?xt=urn:btih:2E3CA5A1AFF576226B33D837543F307C3D09471D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEA6FEABD8C6C1ED589BC0710C752C6E8078C5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D926A2D351CC659E741F7E936080482F4A86DBC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ Format Factory - многофункциональный конвертер ра�
 ```bash
 magnet:?xt=urn:btih:249A656E332DF707206BFF666C8903D4DFB36A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +481,7 @@ Benoit Pioulard - Hymnal Remixes (2014) [FLAC|Lossless]<Ambient, Downtempo, Dron
 ```bash
 magnet:?xt=urn:btih:E16D66960349747338CCCE86732E0D2446E36AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3F926A10967CC9630288409E5EFE6D9E400C8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ Dark Dimensions: Somber Song (2014) [En] Unofficial [Collector’s Edition / К�
 ```bash
 magnet:?xt=urn:btih:25C0E03B024E257FD0DA7057804D054F7EEEA9F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ Symphony No. 40 in G minor, KV.550 (1788)
 ```bash
 magnet:?xt=urn:btih:59A34509F806283CF803786699987513805419FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +599,7 @@ Symphony No. 41 in C major Jupiter KV. 551
 ```bash
 magnet:?xt=urn:btih:8D43DBF2875B8397974D230D39E1BA09B5AD77FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:081C695CCC8289D4B3DC233690E184B5EC27CDDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ Wallpapers - Обои для рабочего стола №2 [JPEG]
 ```bash
 magnet:?xt=urn:btih:497E1FA145BBE3A84E1C8A09122070FADFF096E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +674,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:F5EF82FB3330FE0253206440F80BFC3B967FCB5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57D2B129F30DAF80A87FF0344353E3AD368229A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE0F83D425C8A42DE25FE70FE9C20A746FEA0C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

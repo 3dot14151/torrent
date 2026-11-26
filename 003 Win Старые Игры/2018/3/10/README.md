@@ -19,8 +19,7 @@ Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5D47A6C2242C212B5512AFD04B0BE60065752555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

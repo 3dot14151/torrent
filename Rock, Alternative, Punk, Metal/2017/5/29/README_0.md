@@ -22,8 +22,7 @@ Svart Crown - Abreaction (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:2D821A1E24EC674C7BEEF600C7C292E73B997FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Resurgency - No Worlds... nor Gods Beyond (2017) [FLAC|Lossless|image + .cue] <O
 ```bash
 magnet:?xt=urn:btih:3D3A9EF8BDBDCC6D41E0698F106AF31443A9E992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Venenum - Trance of Death (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:FFA2F23B835613D9072FC249F572853B423E1DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rude - Remnants... (2017) [FLAC|Lossless|image + .cue] <Ols School Death Metal>
 ```bash
 magnet:?xt=urn:btih:04F3591A2F1DA778A010D89E6B36CF00E79E27F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Azarath - In Extremis (2017) [FLAC|Lossless|image + .cue] <Death Metal, Black Me
 ```bash
 magnet:?xt=urn:btih:8C3F3A61C68BC0F030BB43407CC0FF7AA48EA71D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Iron Fate - Cast In Iron (2010) [FLAC|Lossless|image + .cue] <Power Metal, Thras
 ```bash
 magnet:?xt=urn:btih:3601E978053B944EB20E1E5F0DDD516BED9C009A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Helker - Firesoul (2017) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:B05751CC306DC4E2577E9310BE661611BB46232A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Geisha - Die Verbrechen Der Liebe (2008) [FLAC|Lossless|image + .cue] <Space Roc
 ```bash
 magnet:?xt=urn:btih:053FC7193B6FF94411F0A701A87650C323DA314A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Vampire - With Primeval Force (2017) [FLAC|Lossless|image + .cue] <Death Metal, 
 ```bash
 magnet:?xt=urn:btih:D69842545E5DDE6BC7B596EB9FEE3236D73AAFFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Nalle Pahlsson's Royal Mess - Royal Mess (2015) Special Edition [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:A64B09A8CC47593FD8E786ECCB0673D22D9430A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Ascended Dead - Abhorrent Manifestation (2017) [FLAC|Lossless|image + .cue] <Dea
 ```bash
 magnet:?xt=urn:btih:022F261B709B89CD4B9C2615FF82049434019BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ StormHammer - Welcome To The End (2017) [FLAC|Lossless|image + .cue] <Power Meta
 ```bash
 magnet:?xt=urn:btih:D3F5F28FAF238C17CF152783C78B8EF48593ADA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Angel Vivaldi - американский гитарист-виртуоз исп�
 ```bash
 magnet:?xt=urn:btih:376A4B427982157860BB7A8DE4AF0F67D00A102B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Apocalypse Orchestra - The End Is Nigh (2017) [MP3|320 Kbps] <Doom Metal, Folk M
 ```bash
 magnet:?xt=urn:btih:72E6B1BA597030CB1B83A6ACF389DA88A3BFB47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Angel Vivaldi - Universal Language (2011) [FLAC|Lossless|tracks + .cue] <Progres
 ```bash
 magnet:?xt=urn:btih:F0CD5F1A31BDD3F46B5213CBADDE2DCD1EF5FC26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Dream Evil - Six (2017) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6A4ADECA0062B7495A8CDFB0C84DBE46C801DB5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Barrows - Obsidion (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:8E7991C6805D1D6E1A863AD5719C0F896C303431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Solstafir (Sólstafir) - Berdreyminn (2017) Deluxe Edition [MP3|320 Kbps] <Post-
 ```bash
 magnet:?xt=urn:btih:8FE075BA98EBD9199A5B40D75EF256FA5F207310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ The Police - Greatest Hits (1996) Remastered, Reissue [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:3A57F30FC1BCC829877AF7B5B5D698D167A6DF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ CD4 - Mono Album and Bonus TracksРелиз состоялся: 26 мая 2017 �
 ```bash
 magnet:?xt=urn:btih:6F9754CF07BF90138AF71A5568AE9183282F75AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

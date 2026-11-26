@@ -19,8 +19,7 @@ Thief: Deadly Shadows / Thief 3: Тень смерти (2004) [Multi] (1.1) Lice
 ```bash
 magnet:?xt=urn:btih:8C11DAA6231C44B359EDD2C17638A4995557B651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

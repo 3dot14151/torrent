@@ -21,8 +21,7 @@ Blazon Stone - шведская хэви-метал/пауэр-метал гру
 ```bash
 magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ StormWarrior — пауэр-метал-группа из Германии, ос�
 ```bash
 magnet:?xt=urn:btih:70FA93F21C7CABF936F40DA99D146619844104F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Kane & Lynch Dilogy [Ru/En] (RePack) 2007 - 2010 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4D210B26108B563B85EBCBD384C4BB07E73C64A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Shank: Dilogy [En/Ru] (Repack) 201 - 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:82805D731E7050F6C17AE523F7DAED9B52CD3BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

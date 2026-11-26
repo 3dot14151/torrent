@@ -19,8 +19,7 @@ Glarysoft File Recovery Pro - это простое в использовани�
 ```bash
 magnet:?xt=urn:btih:5F5CB189D0BB3E5FBCD2B1A3371F97E0EE5CFB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WakeMeOnLan - небольшая бесплатная утилита, котор
 ```bash
 magnet:?xt=urn:btih:9200B3A4A84CA9BD671103651CE68EA63669E0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

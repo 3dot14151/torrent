@@ -19,8 +19,7 @@ Nicholas Zakas / Николас Закас | Understanding ECMASCRIPT 6 / Пон
 ```bash
 magnet:?xt=urn:btih:E4635BA134076E314B150F5D5143A98724D4D986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Matt Butcher, Matt Farina / Мэтт Батчер, Мэтт Фэрина  | Go i
 ```bash
 magnet:?xt=urn:btih:56A4736F18FAD61D625E438BE6E7390A58FE7A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

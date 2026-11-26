@@ -28,8 +28,7 @@ Katra - Out Of The Ashes (2010) [FLAC|Lossless]<Symphonic Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Chris Rea - The Very Best Of Chris Rea (2010) [MP3|320 kbps]<Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:265EABBE5193FB866ABB981CEBF042BAA29D7284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

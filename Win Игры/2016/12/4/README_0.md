@@ -19,8 +19,7 @@ Dungeon Souls (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3C1A59B4D8C17BA839C2F8F7BFA97D685F4088D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lara Croft GO – пошаговая головоломка, главной ге
 ```bash
 magnet:?xt=urn:btih:002AA3D34319F22D19D376AC9B5B7886079471CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lara Croft GO – пошаговая головоломка, главной ге
 ```bash
 magnet:?xt=urn:btih:E995C19CFDAA626A2FF9224FD21C0CCCEE452958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

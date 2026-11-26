@@ -22,8 +22,7 @@ Gothic Sky - П​о​с​л​е​д​н​и​е С​л​о​в​а �
 ```bash
 magnet:?xt=urn:btih:344FC7B8756F835F4A789BB3508F66721E6ACC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery of the Ancients: Lockwood Manor Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:4D94E66243EA0400B7DF247C10096888DCE2B57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hanging Gardens of Babylon (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D76223BE68FA1F33AC4DA2D6EF1065141AF57B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Golden Age of Racing / Золотой век автогонок [Ru/En] (P) 2008
 ```bash
 magnet:?xt=urn:btih:942C8930AFC897DBA157B2E9ED83562C59ED605B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Prototype [Ru] (RePack) 2009 | R.G. Catalyst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Prototype [Ru] (L) 2009 | R.G. Origins
 ```bash
 magnet:?xt=urn:btih:14DBF7B3F178435A4271567CD60E32767D25A982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Might and Magic: Clash of Heroes / Меч и магия: Битвы героев
 ```bash
 magnet:?xt=urn:btih:04590725A56D79301C2874CA0C33E3705491454C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

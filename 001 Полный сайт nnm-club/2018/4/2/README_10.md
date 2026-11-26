@@ -22,8 +22,7 @@ Vokodlok - Mass Murder Genesis (2003) [APE|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:23DE34D3D19E8B22E72CC908373C50F694F854D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alterbeast - Feast (2018) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:53EBD50E3120DB1A128547FA66D313AD5AB24136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Einfach Nur Mugge 2018 [MP3|320 Kbps] <House, Deep House, Big Room>
 ```bash
 magnet:?xt=urn:btih:294F43C3A2901011F327B8F59917B2CE99FD2B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Alterbeast - Immortal (2014) [FLAC|Lossless|image + .cue] <Technical Death Metal
 ```bash
 magnet:?xt=urn:btih:D1CC0DF796BF7739EA9BC56BE6E3112A0D733F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lake of Tears - Headstones (1995) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:4CCD6D57BBAFF556DDBC9A354AF6C9E9E3EE9680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Memoriam - The Silent Vigil (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:FF0AB18A629911CB861B8F301B07A5A37DFB4912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mantus - Refugium (2016) [FLAC|Lossless|image + .cue] <Darkwave, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:687AE8BDFEE4DCAFC56645BD37B2BF356552E412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - The Voice Of Morpheus (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:66E0F56EDD7EECDCC08687BB3B2FB38B852D26C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Love Nightlife, Vol. 2 The Lounge Room Grooves (2018) [MP3|320 Kbps] <House
 ```bash
 magnet:?xt=urn:btih:BE3ED535529449756670775371C4985B42BEFF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36F79D86829994BDD349698D12C6CF76F4229A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ ActivePresenter — программа для создания презента�
 ```bash
 magnet:?xt=urn:btih:EB724C1CD0337529BFBCD217FC27E7FF48404FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Video Downloader Converter - это программа от Allavsoft, кото�
 ```bash
 magnet:?xt=urn:btih:37ED8DA64A44AB0C71821AADDFFB0D8AAD47E394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - Love Nightlife, Vol. 1 The Lounge Room Grooves By Kolibri Musique (2017) [M
 ```bash
 magnet:?xt=urn:btih:F39B19A0B4B1E9241AF53E22D5FF8870CF4ADF97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ Sonar - Volt Revisited (2003) Hands Productions [FLAC|Lossless|Vinyl|tracks] <Rh
 ```bash
 magnet:?xt=urn:btih:DC922B6CDCCA14A5CF6FB282498556C20072A9A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ DAB / Digital Analog Band (ex resident of Cafe Del Mar) - Discography 3 Releases
 ```bash
 magnet:?xt=urn:btih:AF6C8407E59A61D74BF589D55C99115C6FB41E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Forever Autumn записан в Стокгольме в период между
 ```bash
 magnet:?xt=urn:btih:F73A2501816EAF0E76A594A2E65ACF2FA52E8DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ VA - All Out 60's (Vol.30) (2018) [MP3|320 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:D39EB526FFC68FAED39F8ED879461722E7BBDEED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ La Caina (ex resident of Cafe Del Mar) - Discography 4 Releases (2006-2015) [MP3
 ```bash
 magnet:?xt=urn:btih:06BFBB515BE74C1F1CC8B0783B9CB60C3868795C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1750059460E9D3DEDF8A520404A1D68758C81A29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Juvenile - Project English (2001) [MP3|320 Kbps] <Rap>
 ```bash
 magnet:?xt=urn:btih:B6F92CF21CEA0837A5D35784526709A97BDC9FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ VA - Deep House Collection Vol.164 (2018) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:30DCA6D1A184B2DD9E039DD53EAD66D45C66468E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ VA - Q-Music: Het Beste Uit De Top 500 (2014) 5CD [MP3|320 Kbps] <Pop, Rock, Dan
 ```bash
 magnet:?xt=urn:btih:470B7CD055C21FC76F4AB778363AB7CB2D608D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEFB451B6809BD59BBCA921B8E181297DDF33446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Opera 52.0.2871.40 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3CDAC3F5CC8F8B0A8E1E2FE44CC461014C37424A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DC1C4E9A4620D955D64814D3EADFA19FE34E8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:D2DB18F396FE200F3578AEF18791D010F7B53623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ All Recovery / Восстановление удаленных файлов v1.3
 ```bash
 magnet:?xt=urn:btih:EC73890C40458D44F1CA8ED717FC75288D2927D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ MiHome v10.2.702 Mod by Vevs [Ru]
 ```bash
 magnet:?xt=urn:btih:7DE765E243A3F95A3FE530EC1F5012D44707C415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Bria Mobile: VoIP Softphone v6.19.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:48E57A10E0AFF8FA85881699140C470B9C5DE867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Thenx v6.0.4 [En] Mod by youarefinished
 ```bash
 magnet:?xt=urn:btih:70025B4ED027BC4D50C0BCC54495843FC052EACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

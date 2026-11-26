@@ -21,8 +21,7 @@ Sabayon 15.01 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 ```bash
 magnet:?xt=urn:btih:1D769BDE43AEDF14E5B9F17EC42BC740148C38CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ ROSA Desktop Fresh KDE R5 [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:2753E6FF95554F5C192CF1508EA6C4F07685084A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PRAGMATA (2026) [Ru/Multi] (build 22357085/dlc) Repack SE7EN [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:917A0B0BCAF2F67BC3BAB421760C9E30B1F97F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hotel Architect (2026) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:88B445EBCD28F45672BD70546BEE985A993FDC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fight Life Vanguard (2026) [Ru/Multi] (1.2.0.655) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:1F352977157ACE381C70DB9E0A5212B79A6EC98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Forza Horizon 6 переносит гоночный фестиваль на те
 ```bash
 magnet:?xt=urn:btih:A4E95E8C10CC6104C06662B0A2A3109AD3A4A995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Forza Horizon 6 переносит гоночный фестиваль на те
 ```bash
 magnet:?xt=urn:btih:E8A2469A7490CC7D383A9046468DA820189E5F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Rogue Command - это однопользовательская RTS в духе 
 ```bash
 magnet:?xt=urn:btih:271F4DBF777587125C81CDA17BF842C9938DE659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Farthest Frontier (2022) [Ru/Multi] (1.1.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3160CD920F13962D0EB2EAB95BC92DA96B7438A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Caribou Trail (2026) [Ru/Multi] (1.0.334) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:605E21972AFC3348A1912697E4F20D398ADFB851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Repack Let'sРlay [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:480B8E694A47511E7F64C5083D31FB2F032ABC0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

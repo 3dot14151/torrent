@@ -19,8 +19,7 @@ WWE 2K23 – это симулятор профессионального рес
 ```bash
 magnet:?xt=urn:btih:FB2305CDF0FBDB5CD2A2197A96AFD848AD6FAB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ En Garde! (2023) [Multi] (1.0.5) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1F8FC12B9459BE422C7E22D0EFEBA85C68E5D8C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

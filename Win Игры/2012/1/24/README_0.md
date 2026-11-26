@@ -20,8 +20,7 @@ Bionic Commando [Ru] (RePack) 2009 | R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:F5FFCABE7582E32A00020E49B29F06E9301D820F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Star Trek: Legacy / Star Trek: Наследие [Ru] (RePack) 2007 | Sash HD
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Area 51 and Blacksite: Area 51 Дилогия [Ru/En] (Lossless RePack/1.2/1.1) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Strange Cases: The Secrets of Grey Mist Lake Collector's Edition / Секрет�
 ```bash
 magnet:?xt=urn:btih:B8F5B80EFA6691B131BC3EB23882C21E42FCE4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

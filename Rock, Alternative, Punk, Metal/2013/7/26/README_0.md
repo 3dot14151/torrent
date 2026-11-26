@@ -24,8 +24,7 @@ we.own.the.sky - The Glass/Nails EP (2013) Web-Dl [FLAC|Lossless]<Post-Rock, Exp
 ```bash
 magnet:?xt=urn:btih:D6D494746060D9582476FF7AA5A82782915F1474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Deap Vally - Sistrionix (2013) [FLAC|Lossless]<Indie Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:A5673555AB0385D86B6920A468E53DFE00383CDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Palms - Palms (2013) [FLAC|Lossless]<Post-Rock, Post-Metal>
 ```bash
 magnet:?xt=urn:btih:5C0A8DF3A663B06E8A00452FF7809E055378A761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Editors - The Weight of Your Love (2013) Japan Bonus Tracks [FLAC|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:722977A9D40081F4684603BB9E6605ECC3EB1CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Mercenary - Through Our Darkest Days (2013) [FLAC|Lossless]<Modern Melodic Death
 ```bash
 magnet:?xt=urn:btih:D3F98BE40C9D8A78D412C1A27FE4FC75C3C7273A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Freddie Mercury & Montserrat Caballe - Barcelona (1988) Polydor, 1st press, Japa
 ```bash
 magnet:?xt=urn:btih:9FEDF7C01014D094A06690A2E10F9A7310BAF0FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ Rainbow - Ritchie Blackmore’s Rainbow (1975) 1st Press /1986, Polydor/ [FLAC|L
 ```bash
 magnet:?xt=urn:btih:E90AEB08002DDE1F6DDF0DDBC482F005102DBF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ Amberian Dawn — финская симфо-пауэр-метал-группа �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Apocalyptica - 7th Symphony (2010) Japanese Edition [FLAC|Lossless]<Symphonic Me
 ```bash
 magnet:?xt=urn:btih:D8B9CD9831E05F0795A7206EE6B62E151D7E8310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ Black Sabbath - Black Box: The Complete Original Black Sabbath (1970-1978) 8 CD 
 ```bash
 magnet:?xt=urn:btih:6017BEA459E52E9DC515B13E2BC67021B6C9EF49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +344,7 @@ Dolores O'Riordan - No Baggage (2009) [FLAC|tracks+.cue|Lossless]<Alternative Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +378,7 @@ We Came As Romans - 4 Альбома (2008-2013) Дискография [FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +406,7 @@ The Pretty Reckless - The Pretty Reckless (2010) [FLAC|Lossless]<Alternative Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

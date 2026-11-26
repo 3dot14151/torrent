@@ -19,8 +19,7 @@ Botanica: Into the Unknown Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:0E4FE2E86747796BED164544BB6946154A26AD1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadow Wolf Mysteries 3: Cursed Wedding Collector's Edition / Призрачна
 ```bash
 magnet:?xt=urn:btih:BAA2AAB33D39EF211A4BB73BCEB9EFC342BE680A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

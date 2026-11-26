@@ -19,8 +19,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:2C4793DD39320CEE69FCEA0B2B889865A8CE32F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ iSnapshot - это эффективный и простой инструмент
 ```bash
 magnet:?xt=urn:btih:C877F3D7ABED7949A0A4E372011CFD60CD9F57CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sensei - это приложение, которое охватывает как
 ```bash
 magnet:?xt=urn:btih:69DC19F11EBD171A26B9C9F1AE3D1B47A1376E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MP3 Gain для Mac - это простой инструмент, разрабо
 ```bash
 magnet:?xt=urn:btih:5A87A40E02B1AAAA8007AE6F4AAFB482855B5185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Redemptus - Blackhearted (2021) [MP3|320 Kbps] <Sludge, Post-Metal>
 ```bash
 magnet:?xt=urn:btih:C033FB43A34B49F9725AA077B977D53CFC512A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Proud Peasant - Peasantsong (2021) [MP3|320 Kbps] <Progressive-Rock, Symphonic-P
 ```bash
 magnet:?xt=urn:btih:BC996F1F8F90BFED4550E06BFBEFB989DF73C156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Claymorean - Lament Of Victory (2013) [FLAC|Lossless|image + .cue] <Epic Power M
 ```bash
 magnet:?xt=urn:btih:7233D07917C4D739C75D828AAE36358E304FDA3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Claymorean - Eulogy For The Gods (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Powe
 ```bash
 magnet:?xt=urn:btih:4B43FE46435AFFBB64BA9BB67A365842449DDBF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Typinator – это простое приложение которое сэко
 ```bash
 magnet:?xt=urn:btih:54F19266A5C1333C93C383943D6F114D54E8BBAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Cocktail - комплекс утилит по всестороннему обс�
 ```bash
 magnet:?xt=urn:btih:93E08F7A42EC84B5ABDCCED055D85DFB99C723E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ REBELLION - немецкая Heavy/Power Metal группа, активная с
 ```bash
 magnet:?xt=urn:btih:5031A56DCBF156FA9C89C9A9B192FC6CF713FC1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Euge Valovirta - Shooting From The Hip (2021) [FLAC|Lossless|WEB-DL|tracks] <Shr
 ```bash
 magnet:?xt=urn:btih:54C518A0E0B562BACA81747D1514236F14FD9A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:6E61667EEC6FB192AAB24C4EDAEF65691A161464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Walter Martino - Nervi A Pezzi (1980) LP [MP3|320 Kbps] <Electronic, Disco, Prog
 ```bash
 magnet:?xt=urn:btih:A0CCA55C5A12C8979241FC90EE6603CE80DF200F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ Whisk - это легкий редактор HTML и PHP с предварите
 ```bash
 magnet:?xt=urn:btih:DCD1F661FAB04456BCC5D4E9D0FD8FAF1C0B1C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4D17768116990068EABB349D0B325D369CB23BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:274E15DF66F2A8D0BC7EBA240918BAC9CBBD0E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57B949FD45C12D4D02C90F4C9E53333233B45AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39D90E66E7052DC427004EFA03C4EBD60065A032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ NCH WavePad Masters Edition 13.09 [En]
 ```bash
 magnet:?xt=urn:btih:C86C262BE6B5130FDC2A0925580CB204536FC576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ Pat Metheny - Road to the Sun (2021) [FLAC|Lossless|tracks + .cue] <Fusion>
 ```bash
 magnet:?xt=urn:btih:81F5260F7F56C4C588532C42D2B72A14DE37F4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A85FB26A5C25098335CC33376DBBC24500788A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ Eisbrecher - Maximum Monster (2021) [FLAC|Lossless|image + .cue] <Industrial Met
 ```bash
 magnet:?xt=urn:btih:A4086334196BD90D242FD7E4DFE120D9D5F58954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EEFF6AA81ECFCF4E08BBF2912CA18F177725A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10E15C78EAC0DC88DB1178FC2AE5CB31425A3C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C3D3F5A92459A1989B18013B0348540D4EB30BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

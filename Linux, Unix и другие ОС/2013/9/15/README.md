@@ -23,8 +23,7 @@ Arch — «легковесный», простой и гибкий дистри
 ```bash
 magnet:?xt=urn:btih:311C45EECC10639954D80F666C7404309B962A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

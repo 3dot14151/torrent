@@ -19,8 +19,7 @@ Bud Redhead: The Time Chase (P) [En] 2004
 ```bash
 magnet:?xt=urn:btih:2ED5D973CE1DC10932305FBF448528D5BADE8397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bird's Town (P) [En] 2011 | Fyrrion
 ```bash
 magnet:?xt=urn:btih:F85A6AE7DEB1F4A80D46B66B8B88DEB7043677B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Dungeons & Dragons: Daggerdale
 ```bash
 magnet:?xt=urn:btih:A9DC7B58B09B1C0965A7FF1BBC70D347DCDFFE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Assassin's Creed: Brotherhood / Assassin's Creed: Братство крови [R
 ```bash
 magnet:?xt=urn:btih:24531F73D9DAFF0DDA4F8B0995D86C95616FDCD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

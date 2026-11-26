@@ -25,8 +25,7 @@ Verlies - Le Domaine Des Hommes (2014) [MP3|320 кб/с]<Atmospheric Black Metal
 ```bash
 magnet:?xt=urn:btih:F888C88D2080E476036DFA5E579BBA74FB68C433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Lycanthropy - Totenkranze (2013) [MP3|320 кб/с]<Black Metal, Death Metal, Dar
 ```bash
 magnet:?xt=urn:btih:6A49F33D98211D42BDA2C8FEDDEE0860D5AC14F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Jimmy Jax Pinchak Band - Make It Better (2014) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B75E56291901E925F404115E1DA80DD7B6249689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Ektomorf - Retribution (Digipak Edition) (2014) [MP3|320 кб/с]<Groove / Thras
 ```bash
 magnet:?xt=urn:btih:F67787564D5D981BB01354A0AE4A365FC9C749F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AEA5C581F17B30D0C496FCA7A9950DAA9695952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Clawfinger - Before We All Die (2026) [MP3|320 Kbps] <Alternative Metal, Funk Me
 ```bash
 magnet:?xt=urn:btih:5843ADA399DA003DA5EBF95E9A1C54128BCE9CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Throes of Dawn - Our Voices Shall Remain (2016) [FLAC|Lossless|image + .cue] <Pr
 ```bash
 magnet:?xt=urn:btih:EB24D4EF89E57E8275EAFFEEA81B3569999B1778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Morgion - Rabid Decay (1991) (Demo) Reissue, 1997, Self-released [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F96C63D8C0A826AC8727C389E3671E1FE5AFD759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ The Enemy - Social Disguises (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <British
 ```bash
 magnet:?xt=urn:btih:B85267FE22588B75241F7291C2E585B03BBC52C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Clawfinger - Before We All Die (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap
 ```bash
 magnet:?xt=urn:btih:C478A6851089080CED795BC52DF71037F984AAE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Sylosis - The New Flesh (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Deat
 ```bash
 magnet:?xt=urn:btih:120560E0BB7721AF06CF71752DAE544789F5693F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Keys - Infinity Parabellum (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 ```bash
 magnet:?xt=urn:btih:991B60F82593EEECE0260AC361C8BC632E3EF926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Rozario - Northern Crusaders (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy M
 ```bash
 magnet:?xt=urn:btih:B5235C9703518183B1A8B87CAA1829BC7A0B6516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

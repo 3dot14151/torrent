@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:03F28DCC6DDDE7138D95976670A1EFE259046C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCF63B267CDFC61F55975C8C1EC483A7D1C57FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Air International  - британский ежемесячный журнал п
 ```bash
 magnet:?xt=urn:btih:1546C82BDDB422C0D7BDBAB90B40E2192FC1DC8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Aviation News - британский ежемесячный журнал по а
 ```bash
 magnet:?xt=urn:btih:BB91E42BE29276C2CBF257948233888F128BA7C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

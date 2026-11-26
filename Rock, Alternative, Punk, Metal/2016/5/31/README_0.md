@@ -22,8 +22,7 @@ Atsushi Yokozeki Project - Raid (1991) [FLAC|Lossless|tracks] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:365AB37A3978721035B440184BF140F7E67B2549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Veiled In Scarlet - Reborn (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:7AD26AC8E66BFD6D001441E8CD07267DC41DC519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fake Club - Fucbakle (2014) [FLAC|Lossless|tracks] <Alternative Rock, Garage Roc
 ```bash
 magnet:?xt=urn:btih:8BEB7C4CA58E8B287B9BA62FD58A9A37478B5313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Brymir - Slayer Of Gods (2016) Japanese Edition [MP3|320 кб/с] <Symphonic Met
 ```bash
 magnet:?xt=urn:btih:778E4352A1C548A7C281A256668E190DDBF2089E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Kelly Family - Growin' Up (1997) [APE|Lossless|image + .cue] <Country Rock, 
 ```bash
 magnet:?xt=urn:btih:5C1D8AF4398C638530FEEF83A8490C0391E103B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Marilyn Manson - Lest We Forget (The Best Of) (2004) Japanese Edition [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:572F2492354AA3C00DBF7D68B9835CBD4F58EE35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Atlanta Rhythm Section - Truth In A Structured Form (1989) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:EDC6BE47764EF9565B0B9A5C3FF228E6345754BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Lacuna Coil - Delirium (2016) Limited Edition [FLAC|Lossless|image + .cue] <Goth
 ```bash
 magnet:?xt=urn:btih:DBF368433D0995E86F3AB18E152DB286456F3A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Farworld Pioneers (2023) [Ru/Multi] (1.0.0) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:565391E828C18C88659E724465BF2BF1E1506D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0297A789127CFA4A541F9274663A9801BD674BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

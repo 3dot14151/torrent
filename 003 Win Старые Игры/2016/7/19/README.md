@@ -19,8 +19,7 @@ SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
 ```bash
 magnet:?xt=urn:btih:DCEE95ADD607C0E4016037B39C847DC213FDD151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

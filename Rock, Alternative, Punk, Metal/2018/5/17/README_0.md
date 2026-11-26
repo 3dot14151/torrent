@@ -22,8 +22,7 @@ Amorphis - Queen Of Time (2018) [MP3|320 Kbps] <Melodic Death Metal, Progressive
 ```bash
 magnet:?xt=urn:btih:205431926793AE559627099570CB7F60085FA25D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

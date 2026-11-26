@@ -28,8 +28,7 @@ Gorky Park - The Best (2013) [FLAC|Lossless]<HardRock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

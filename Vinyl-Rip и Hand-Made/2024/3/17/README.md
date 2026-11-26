@@ -22,8 +22,7 @@ A4 The Angry Man(   Читать дальше...   )Жанр: Thrash Metal, Hard
 ```bash
 magnet:?xt=urn:btih:80DB94CAB33BABA1A705F146B9CFEAD888DB5471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A3 Surfin' U.S.A.(   Читать дальше...   )Жанр: Thrash Metal, Har
 ```bash
 magnet:?xt=urn:btih:60AD2ED7C2A630227DB595ACE1D83F5F5EFC9E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

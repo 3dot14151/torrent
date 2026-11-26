@@ -19,8 +19,7 @@ COMANCHE — современный вертолетный шутер, дейс�
 ```bash
 magnet:?xt=urn:btih:9F4395AE5149B326A93173977EC8D0ACC6726D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Anger At Dusk - Anger At Dusk (2014) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:DA4A596459F7F968B20306EB74B848789EB1B433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ tokee - PLUS (2009) [FLAC|Lossless|WEB-DL]<IDM, Industrial, Experimental, Ambien
 ```bash
 magnet:?xt=urn:btih:4AF99DA2D12CFB7254BAA2C63195D7AA84CA056E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ tokee - Quintuplet (2009) [FLAC|Lossless|WEB-DL]<IDM, Industrial, Experimental, 
 ```bash
 magnet:?xt=urn:btih:9838C85651F9DDB308A8E70BF0B010D22749290A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Apex Shrine - Home Baked (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:28B8C2A61178289BFFDBBFA05EC2A495EB3FD080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54CEF2AEA94AD9DF067904D734A96474A31C09E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ VA - Organic Trance Volume 30 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4B000597766C2B0EE923581E247C7266550E66F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Renegade - Thunder Knows No Mercy (2014) [MP3|320 кб/с]<Heavy Metal / Power M
 ```bash
 magnet:?xt=urn:btih:C5A2440FB8217EE59A0EC35C3A8EB639B7B41A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ Technical Itch - Seed of Design (EP) (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:78F18996D97142678562BBADD37E3012AA83AC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ VA - The Best of Moda Black 2014 [MP3|320 кб/с] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:BFC320140822B7868FC836F015E3DB9D2B836EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C01E46F67C4CE3D03E73515D09648EF9669C3137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ Igor Dmitriev (Игорь Дмитриев) - Ellingtonia (2004) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:45FB1F3E68B25FA9C2E73357605E5843646EBE25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1FD975700C60502D94DC699D6675732BB8BA1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ Hanoi Rocks - Street Poetry (2007) [FLAC|Lossless]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:2E75E93FC5336C397B076D2070DCD684A75042A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C47C5394C2E610AA1E3FDEFD2AD5BB16091D30B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ VA - Daily Mail Legends (2003) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:CD4E87AB30153D4FAFF28043D7E1795964025BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99FB87DBD9E96634676D2D95AAD0D078329122C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +567,7 @@ Kid Ink - My Own Lane (2014) Deluxe Edition [MP3|320 кб/с]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:B0586A902E199FA451E40CA23CE268937F9EDF65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +592,7 @@ Ashampoo Burning Studio 15 - это новая версия универсаль
 ```bash
 magnet:?xt=urn:btih:BF4B9BF9BCC7CE99441395CC176FD27B12EC1CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDD75648BC26CF24A85E3D6A66362571CA732439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6119626F6B8DCC927861B6F296C2DB45EC057E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D9B97255B041F30BEAA24118DD889ABD602C851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ Deep-eX-Sense - Как я провел год (2014) [MP3|320 кб/с]<Rap, Alte
 ```bash
 magnet:?xt=urn:btih:BEE9A19F1A6951F22036CECB7175C81B802DBDCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +728,7 @@ floater-io - 4 альбома (2010-2012) Touhou Instrumental /Doujin/ [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:79F956864FF39BE7B71E7AD8084768E30F3606BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EDD8BA23A22C88F1EBE6097D9CA4C6749428214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

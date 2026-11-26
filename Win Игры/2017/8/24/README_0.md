@@ -19,8 +19,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License CODEX [Episod
 ```bash
 magnet:?xt=urn:btih:16968D71D150BC5EF3AC11FA1F848E0F79FE0401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:C69E42380EB265DBE1E28DA598C08D32A68DF563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

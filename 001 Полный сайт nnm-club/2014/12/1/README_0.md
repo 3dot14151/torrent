@@ -26,8 +26,7 @@ VA - Клубные Новинки Vol.545 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:90493B18E55011CCCD23A0934C1DDDDF8464DEEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Kenny Vehkavaara & Rob Piltch - Mediterranean Nights (2004) [MP3|320 кб/с]<In
 ```bash
 magnet:?xt=urn:btih:819A6F89D0217F36DFC4D9C0628FD9A00EC85FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Red Nativity - One Holy Night (1997) [MP3|320 кб/с]<Folk, Native american, Ne
 ```bash
 magnet:?xt=urn:btih:08BBE9F49E1A1DE7F3ECE0F96AC5E7231DE98B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Balkan Fanatik - Feljott a Nap (2014) [MP3|320 кб/с]<Neo Folk, Electronic Fol
 ```bash
 magnet:?xt=urn:btih:C2228ED29A840BBE44F0832CEFC879D56DFF6FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F0BB52B3213259FA933BB12FB51B5CB870E448F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Eliwagar - Eliwagar (2014) [MP3|320 кб/с]<Folk Metal, Pagan Metal, Neo-Folk>
 ```bash
 magnet:?xt=urn:btih:9C1F35A9128506073E9C7E2B4FFDC75263AF7F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Bellini - Greatest Music Gallery (2001) [APE|Lossless]<Electronic, Latin, Pop>
 ```bash
 magnet:?xt=urn:btih:9405C6F21E0699F5CD1C4024D6EE106F30C37A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ VA - Клубные Новинки Vol.542 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:52159A3701AF8A544282AFB61293260AB002D01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ Ryan Stewart - One Journey (2014) [MP3|192 кб/с]<New age, Instrumental, Relax
 ```bash
 magnet:?xt=urn:btih:76518CF8005632B10309D8156F2C439ECFCAA836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC0A676B056981F0AD6A762BB3B55472D87432ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ Paul Brown - Truth B Told (2014) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:F828F3214DB9855988A062046A0E98B8D9788CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E383776C0A737DDE9E19CDE1C62B47AEDA0FB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41A7038D4FC772844E783762F827F485B488A805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D8213CBF18516E474519D259C495DD8B4A911B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ Light Alloy - компактный мультимедийный плеер. По
 ```bash
 magnet:?xt=urn:btih:3C6C7517FA2C650FD34DCA019EAAE93382B68A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ FreeFileSync 6.12 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9B310E8CF494F6787DF0C47FA5299E00F927D24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A59CC02B7F111C7E6801B85E7B9DB6BF25AF75AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ Mindi Abair - Wild Heart (2014) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:0E743AC020F6039E68728F8CF4C3407C2C20CD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72F45C8A8CA99A71EAF531ED033A47E736949287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ Written-By – M. Moody (   Читать дальше...   )Жанр: Blues Rock
 ```bash
 magnet:?xt=urn:btih:99912F43A6AE6947018083094A60E70A5450D11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB5B015F57F4F560DD511AC7EF71D82B34C80856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ VA - 10 Years Of Shogun Audio (The Future) (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:15C5F2A5A9477F3C49B98E3BCBE2964661B43E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ Ritchie Blackmore - Take It! Sessions 63-68 (1998) Including Rare, Live and Unis
 ```bash
 magnet:?xt=urn:btih:60AF0957E2D21F43FF7EFB24BC38F6811651B1E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ VA - An All-Star Tribute To ZZ Top (2008) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:C8E37670EC24C25182257DB66721F44FCA6AB152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C14530C5AE03489F3134F995EB3B40F11C0FCE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

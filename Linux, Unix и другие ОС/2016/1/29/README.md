@@ -21,8 +21,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [i386] 7xDVD
 ```bash
 magnet:?xt=urn:btih:CED5C8AA47D15763E5A4A1E16E2D1476CBC9076B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:82347CDD83613069D23FD4552A28586C43C96650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

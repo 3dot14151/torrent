@@ -19,8 +19,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.4.1/dlc) License PLAZA [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:AA7CD7767E124CD438725E0347D931C732927C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fall of Light (2017) [Ru/Multi] (1.50c) License PLAZA [Darkest Edition]
 ```bash
 magnet:?xt=urn:btih:5AE10C0FC15BCDDC4E2B3CBF82EF9449B8161845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Sector (2009) [Ru] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:ABD38D7ABA868F3F7766E9D7785D27C99A0CAD3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

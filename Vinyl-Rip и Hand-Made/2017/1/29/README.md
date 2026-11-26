@@ -22,8 +22,7 @@ A4. Better Days (6:12)(   Читать дальше...   )Производств
 ```bash
 magnet:?xt=urn:btih:B9B010101BF9A906244A1690CEDF52A4CE5C1B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jean Michel Jarre - Oxygene 1-6
 ```bash
 magnet:?xt=urn:btih:F0E4E4408475B5AD08027F53787C180B83FFEAC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4. Oxygene (Part 3) (3:15)(   Читать дальше...   )Жанр: Electro
 ```bash
 magnet:?xt=urn:btih:33814FDB42EB12E482E61B5C65DA86829BF1A968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

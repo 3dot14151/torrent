@@ -19,8 +19,7 @@ Arena Renovation (2023) [Ru/Multi] (0.6.153) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:6092ED92172DCD49E75B6520747F1560B5819EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BBB0A5F08CCFE26A4CAEB10B425D1393BCD8F76B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Space Engineers - это фантастическая песочница, где
 ```bash
 magnet:?xt=urn:btih:C422B3FCB7C1391CF7061C15EB0D991F120CE38E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

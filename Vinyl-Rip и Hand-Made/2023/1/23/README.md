@@ -22,8 +22,7 @@ A5 Szanujmy Wspomnienia(   Читать дальше...   )Жанр: Pop RockП�
 ```bash
 magnet:?xt=urn:btih:B702E12FBDB5C1E1E3A0823688A228309BF034C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

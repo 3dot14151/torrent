@@ -20,8 +20,7 @@ Rings Extended 1.4.2 -  Замена стандартных мелодий св�
 ```bash
 magnet:?xt=urn:btih:06D02F15A7D75D3BF60BEF85328ED5F5926AE45A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ VPN Master 1.1.0 [Ru] - интернет без ограничений
 ```bash
 magnet:?xt=urn:btih:83EDF23D025CDAD4585A7938985392ED79376DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

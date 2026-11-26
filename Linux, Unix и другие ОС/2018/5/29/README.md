@@ -19,8 +19,7 @@ OpenBSD — свободная многоплатформенная операц
 ```bash
 magnet:?xt=urn:btih:F5C875FC23122823420AFE0F976FFA70AA3AA0E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

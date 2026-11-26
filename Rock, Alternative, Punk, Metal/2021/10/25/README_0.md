@@ -22,8 +22,7 @@ S.E. Project - Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Death
 ```bash
 magnet:?xt=urn:btih:94224C811954D7E36265D174918BA87CEDE6EEFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sepultura - Roorback (2003) Remaster, 2021, BMG Rights Management [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:074971A5AA16383BCD2658BF77E31EF55B93D984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ We're Wolves - Evil Things (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, 
 ```bash
 magnet:?xt=urn:btih:E747415664DF7A9F226FD5B297EAB0E3C50DB3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Golden Earring - Moontan (1973) Deluxe Edition, Reissue, Remastered, 2021, Red B
 ```bash
 magnet:?xt=urn:btih:D3E3992A0E55732C57963CC63360177DD2710020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CE911B1E569EF32B10B11D4ACE42A76E49CC5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:461DAF46240D84D50B0B683FFB91821E8D9ED418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Five Finger Death Punch - 11 Albums (2007-2020) 17 CD [FLAC|Lossless|Web-DL|trac
 ```bash
 magnet:?xt=urn:btih:835F8B50E9C7767ABFDB082DC00920930F3EFFBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Badda Boo (Маша Шкуро) - Концерт на Светлой (Колом
 ```bash
 magnet:?xt=urn:btih:0D951ECA694EFC4A248BC6DD4FD3646E40C16194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ ZZ Top — американская блюз-рок-группа, основан
 ```bash
 magnet:?xt=urn:btih:2F7F472F46D6016F7F9FECD022E599F2A7DD5A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

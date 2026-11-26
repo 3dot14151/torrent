@@ -19,8 +19,7 @@ HulaVPN - Fast Secure VPN 14.3.1 [En]
 ```bash
 magnet:?xt=urn:btih:18E097C11726B5E7B393BF1C086C88239E50682A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

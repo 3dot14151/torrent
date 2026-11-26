@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:19CA9B335DFA6736D644956C5656671C7376D81C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - A Tribute To Ария. XXV (2010) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DAE3FE455B2A4364E3A615F5816351EA805FAA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ HIM - Greatest Hits (2010) [MP3|320 kbps]<Gothic Rock / Love Metal>
 ```bash
 magnet:?xt=urn:btih:609ADFCDB3144534C57E46CE0686B527262B4BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

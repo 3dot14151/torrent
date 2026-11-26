@@ -22,8 +22,7 @@ Tequilajazzz - Лучшее (2CD) (2010) [FLAC|Lossless|image + .cue]<Alternativ
 ```bash
 magnet:?xt=urn:btih:545D60A774506357E3308557CD6DCD8183F90B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6E95649C83FF0571B89C52DFFAF9A2EB05454D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ NordverG - Багровый Рассвет (2011) [MP3|320 kbps]<Melodic Folk Me
 ```bash
 magnet:?xt=urn:btih:FD77D4364382833A7D34BA2D2774F5289C45AA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Savoy Brown - Voodoo Moon (2011) [MP3|320 kbps]<Rock / Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:D30CE9A203B3C3697E747AFA1A2D888A9DCB6257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ The Korea - Колесницы Богов (2012) [MP3|320 kbps]<Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

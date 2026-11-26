@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F3F4E9404E48C7BE31A3DCB1355CE61FD3BC58DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CrossOver Linux 17.5.0 [x86-x64] (deb, rpm, bin)
 ```bash
 magnet:?xt=urn:btih:A3A038B6B44F5A304E28923260CC21E68EE835F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

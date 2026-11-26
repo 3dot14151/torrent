@@ -21,8 +21,7 @@ Dreariness - 2 albums (2013-2016) [MP3|320 Kbps] <Depressive Black Metal, Shoega
 ```bash
 magnet:?xt=urn:btih:CB6F0732B2DB603945F09B0D6FED90F17D1A2ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Vaux - 2 Albums (2003, 2006) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ha
 ```bash
 magnet:?xt=urn:btih:443A20043F962A1E8F5D037377E7C5CBD52C183C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Heathen Foray - 4 albums, 1 demo (2007-2015) [MP3|199-320 Kbps] <Pagan Metal, Vi
 ```bash
 magnet:?xt=urn:btih:15EC48386149E520A21E5C357EB5E962FBE0285D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ The Murder of My Sweet - Echoes of the Aftermath (2017) [MP3|320 Kbps] <Gothic M
 ```bash
 magnet:?xt=urn:btih:68C55589D4F9E1A3AEC73B6937AF0CAF795D48FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Crosby, Stills, Nash & Young - So Far (1974) [MP3|320 Kbps] <Classic Rock, Soft 
 ```bash
 magnet:?xt=urn:btih:A9473F72CE8A871A1A8F9B3DC608DCE6F01556A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Betraying the Martyrs - The Resilient (2017) [MP3|320 Kbps] <Symphonic Metalcore
 ```bash
 magnet:?xt=urn:btih:36C5D43C0DE3EDD755E7050F51CD70E592DC6354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Magnum - Sacred Blood "Divine" Lies (2016) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:CADF29131D7EB428295359C083C96CA9CC554687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Syd Barrett - An Introduction to Syd Barrett (2010) Compilation, Remastered [FLA
 ```bash
 magnet:?xt=urn:btih:7DAE2E8A56E1D550788226960BBC002AD1835F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Kreator - Gods of Violence (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:9AF59E366D7193CA8980668BE6261C8712FEC090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD8E3308BAFAB2F96BADFBEB0C0AF47AB3B967AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

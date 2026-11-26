@@ -22,8 +22,7 @@ ATAVA (АТАВА) - Не быть проще (2017) [MP3|320 Kbps] <Alternative
 ```bash
 magnet:?xt=urn:btih:CA5DAA2ABEFF6380CCCFBE353ED17C1A1BB02ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dynamite - Big Bang (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:080C216BC9E266D536661E6F1BB1C7784FE3F44D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Franz Ferdinand - Always Ascending (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie R
 ```bash
 magnet:?xt=urn:btih:8A3509F7A491A7EC93CCA1009B642758DE2FBE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Franz Ferdinand - Always Ascending (2018) [MP3|320 Kbps] <Indie Rock, Alternativ
 ```bash
 magnet:?xt=urn:btih:0CC596D9A75DEC85C31725FC1133A6BA0A3B8538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ MGMT - Little Dark Age (2018) [FLAC|Lossless|tracks + .cue] <Alternative, Indie,
 ```bash
 magnet:?xt=urn:btih:47B99C313944093A0DC8AE9A3BEEDA697AE78774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ David Duchovny - Every Third Thought (2018) [MP3|320 Kbps] <Rock, Singer-Songwri
 ```bash
 magnet:?xt=urn:btih:EBA421909A540A5F28D2F1F119D5D356CE5F758F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Greg Lake - 7 альбомов, 10 CD (1981-2015) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:D16F02F83591FDAC93A66B24EE22C65C9FB2A07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Therion - Beloved Antichrist (2018) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:3857492065A332009273AF92917A727295AB5942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A44CE592C1DF04FCD6287694CF117F2E4976C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

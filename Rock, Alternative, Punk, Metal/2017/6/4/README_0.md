@@ -22,8 +22,7 @@ Die Entweihung - The Hallucinations (2010) [FLAC|Lossless|image + .cue] <Raw Dep
 ```bash
 magnet:?xt=urn:btih:3AE7D4F94C382879F26269D57EA197CFB6B64535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Madder Lake - Stillpoint (1973) Reissue, 1991,  Mushroom [MP3|320 Kbps] <Progres
 ```bash
 magnet:?xt=urn:btih:999DF1833B02C3FC91A18662F45F053BE61B0613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Bullets - Somethin` Real Good! (2017) [MP3|320 Kbps] <Rockabilly>
 ```bash
 magnet:?xt=urn:btih:14CC1AE42393C5981896982BBAF6A588544E00EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Smith - A Group Called Smith (1969) Reissue, 1994, Varèse Sarabande[MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:0C4615EA7B0B1ABF5307166CD80F340E5DBCB216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Earshot - Two (2004) [FLAC|Lossless|tracks + .cue] <Alternative, Nu Metal>
 ```bash
 magnet:?xt=urn:btih:F2F2F2C0E0A604F335E6B1A71BE8BDB4681E87EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Mudcats - Shake It Up (2017) [MP3|320 Kbps] <Rock&Roll, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:6BD01211A1C79CB6758447B5C1E9E593350319BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Liv Sin (ex-Sister Sin) - Follow Me (2017) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:396E997026329E7DE89F0DAB52E24E22456AB87D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Adrenaline Mob - We The People (2017) [MP3|320 Kbps] <Heavy Metal, Groove Metal>
 ```bash
 magnet:?xt=urn:btih:AD7661DDE57E28F35338107816E38E7FC2C6882B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Jorn - Life on Death Road (2017) [MP3|320 Kbps] <Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:E814406D155A8652BD1E5B7E9C978D5F46AAE494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ ANA - Metal for Charity Project (2017) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:352827FEC1CD91E1B02B77DA8CA68FA019FC288E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Accept - The Rise Of Chaos (2017) Single [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:942FC43C3DF5D7750A690267ADD3ACDEF3C67664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Tankard - One Foot In The Grave (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6F6821BD64EFAAFE077EFAD01F6729F3EC29381E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Roger Waters - Is This the Life We Really Want? (2017) [MP3|320 Kbps] <Progressi
 ```bash
 magnet:?xt=urn:btih:3DD7547F487ADBD1C23A05F425CD2694A926C8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ The Birthday Massacre - Under Your Spell (2017) [MP3|320 Kbps] <Gothic Rock, Ind
 ```bash
 magnet:?xt=urn:btih:C603382082C697E1AC08F2015448FA28F725873E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:664AEB95FE0820E3C18157C0B27FEB8BCD0A2BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

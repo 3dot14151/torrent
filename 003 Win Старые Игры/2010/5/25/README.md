@@ -20,8 +20,7 @@ Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

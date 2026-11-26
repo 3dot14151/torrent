@@ -22,8 +22,7 @@ Karing - Утилита прокси с простым и мощным инте�
 ```bash
 magnet:?xt=urn:btih:C51A8E2FB19B43DFD869F38787C68767E9F96616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ AdGuard — уникальный блокировщик рекламы без п
 ```bash
 magnet:?xt=urn:btih:E39B5524788AAC0F978D7FBC513661A77E35C031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

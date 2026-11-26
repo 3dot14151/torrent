@@ -19,8 +19,7 @@ The King Of Attention / Король внимания (2011) [Ru] (1.0.1) Licens
 ```bash
 magnet:?xt=urn:btih:AAAA02E6020CB9906D1B39688AABD2094721B60A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crusader Kings II открывает перед игроками один из �
 ```bash
 magnet:?xt=urn:btih:A3E7289D26B95C19F86198817F68260946585E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

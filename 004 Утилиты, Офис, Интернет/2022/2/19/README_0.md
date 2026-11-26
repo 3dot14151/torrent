@@ -19,8 +19,7 @@ Reduce Memory - небольшая портативная утилита, кот
 ```bash
 magnet:?xt=urn:btih:D22F60C615B8285032095AD2A9C3537144DD0869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

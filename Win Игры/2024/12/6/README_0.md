@@ -19,8 +19,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:AACBA7E3F7F86C74385A7472381472EF276D716C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ METAL SLUG - классический экшен-шутер, сохраняющ�
 ```bash
 magnet:?xt=urn:btih:0687CACC457D215D38A4C16A7E60A43F80F8247C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Devil's Way (2024) [Ru/Multi] (build 16096646) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A087D33B75CCF80840DE9296E875DE22087443D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Golf Peaks – это не симулятор гольфа, а игра-голо
 ```bash
 magnet:?xt=urn:btih:A9D33F6C20873ECA85C0DE4A1E84A194D109B6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dementium II HD (2013) [Ru/Multi] (1.266) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8305EAF78625A8218452A22EF70D9F598EF87ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Railroads Online - это «песочница» в огромном откры�
 ```bash
 magnet:?xt=urn:btih:EEF086EAC42158088D82D640A03843561B3B993B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Speedollama (2024) [Ru/Multi] (build 16154038) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:0F5CD001FA7CE007DB90643E743BB12B2B1756F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ inbento (2019) [Ru/Multi] (2.51) License GOG
 ```bash
 magnet:?xt=urn:btih:8F8966ADD524F703BE31244C29B279DBB37192E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Antropofagus - Architecture Of Lust (2012) [MP3|320 кб/с]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:DCC42BF0138D6BC755162F0B749BA971EBA590CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE022C41847F2FF7B16842D4D4873FE385299474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Brian Johnson And Geordie - немецкое издание альбома-сб�
 ```bash
 magnet:?xt=urn:btih:88652BC056FFCEB9D433CB7200E11CB39C7B0603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Renegade Five - Nxt Gen (2012) [MP3|320 кб/с]<Alt. Rock, Modern Rock, Post-Gr
 ```bash
 magnet:?xt=urn:btih:3D00B6A45B8263683BAA0FDB4F75E20A8B0850A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

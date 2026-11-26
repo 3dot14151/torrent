@@ -22,8 +22,7 @@ Ben Folds Five - Ben Folds Five (1995) [OGG| 469-511 кб/с]<Alternative, Class
 ```bash
 magnet:?xt=urn:btih:0DF0278E229C52FDE3D18C09DAA1CC63AABC9DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tokyo Rose - New American Saint (2005) [MP3|320 кб/с]<Pop Punk, Alternative R
 ```bash
 magnet:?xt=urn:btih:983EB95F9808C1817134F2DE9077E8967E027B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ben Folds Five - Whatever And Ever Amen (1997) Special Expanded Edition /2005, E
 ```bash
 magnet:?xt=urn:btih:B7119B4E73054AD3335B3D54B282924B93DDDDC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Whitford / St. Holmes - Whitford / St. Holmes (1981) [MP3|320 кб/с]<Melodic H
 ```bash
 magnet:?xt=urn:btih:149A01F1F8520088DADDADA21646C0E15D725251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rare Earth - Get Ready (1969) [MP3|320 кб/с]<Rock, Funk Rock, Blues, Acid Roc
 ```bash
 magnet:?xt=urn:btih:64FC2268BD3FE341FED439557E5D19240955E1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Stray Dog - Stray Dog (1973) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:42F894AB5307F956CFFFFC29669FEFB758E51E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Eric Clapton - Eric Clapton & Friends - The Album (2015) [MP3|320 кб/с]<Rock,
 ```bash
 magnet:?xt=urn:btih:94DB7A390572B842775091ABB5288C43ED0DEA21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

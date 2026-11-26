@@ -19,8 +19,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:D4E390F0380C8923F0105491AD2F23313AE506BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack sele
 ```bash
 magnet:?xt=urn:btih:CFC88D8A60FEE3951C6F3B916DD1A950768ED904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:3D77FB8BEC4B92E8822979F0C06D27E0E263C7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:C973B6F55C4032C5F9D19C7E0C0E8E265885F4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Wante
 ```bash
 magnet:?xt=urn:btih:796F79C15542CC6884E650EF586AC34ABE8C441A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Daimon Blades – это мрачный и динамичный first-person sla
 ```bash
 magnet:?xt=urn:btih:59205D257C2F6C5EDF2641AB769FD7D0B486E6F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:FD6E3CA3E64DBEC3E2DB7C706CE238D2D1F7C94D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FBAD7ADCD11323E87B36866C15B2D11B207B8792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:66F62C32A914F72345A1C04C6EEDE3D041F82AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Scene Rune 
 ```bash
 magnet:?xt=urn:btih:E4F92CD15BA5D11082C5B738769CC5B44C2EBA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Lords of Ravage - это тактическая ролевая с элемент
 ```bash
 magnet:?xt=urn:btih:2CB42DB3A00C99CD83EFE1F2ECEEB9723118E7C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Repack Necros
 ```bash
 magnet:?xt=urn:btih:A83C71272CF92D6012AAAEF9FCC24B5D9D9468F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Wanterlude [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:306BAFBDA15F54F7D8CF80137A5E03FC47557131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

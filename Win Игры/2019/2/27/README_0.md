@@ -19,8 +19,7 @@ The Cursed Forest (2019) [Ru/En] (1.0.3) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:77785BAFA563EF0CF070103BCE708F8C12C19ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

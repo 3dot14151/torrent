@@ -20,8 +20,7 @@ Dracula: Origin раскрывает темные начала прокляти�
 ```bash
 magnet:?xt=urn:btih:92971EF4A047801B395CC6B2479D0A6D5DDE2573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Orcs Must Die Dilogy / Дилогия Бей орков [Ru] (RePack/1.0r14, 1.0
 ```bash
 magnet:?xt=urn:btih:2C05CD7D5FC9E215B34AB2B5160F2A6D2A7758D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Fantasy Wars / Кодекс войны [Ru] (RePack/1.0.9.3) 2007 | Audioslave
 ```bash
 magnet:?xt=urn:btih:6A92B438191C0DBA40ABE8FFB291704A457B0AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Dungeons: The Dark Lord — продолжение Dungeons, игры, в кот
 ```bash
 magnet:?xt=urn:btih:9953EEBD9B4A6DFBFEA4F51945A856DE22879851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ A Game of Thrones: Genesis / Игра престолов: Начало [Ru] (ReP
 ```bash
 magnet:?xt=urn:btih:C45884E0F2A3DC50D5B77486B6690F6B787A8E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

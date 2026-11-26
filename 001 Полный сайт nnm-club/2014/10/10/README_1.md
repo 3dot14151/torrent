@@ -18,8 +18,7 @@ Comedy Баттл. Суперсезон. Выпуск №27  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:724738012C1FFBC647967036AD001A671D34E9FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ CD1.
 ```bash
 magnet:?xt=urn:btih:AB3E53860A6D0FCEDDF87F5E4F1B64E49849C886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7EF15E504EB8A8E9EB803828691C4A6884A90A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D55B0D1B9352252ACA3DA53EFCE28A0BAB2DF1AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Armik - Mystify (2014) [MP3|256 кб/с]<Instrumental, Nuevo Flamenco, New Age, 
 ```bash
 magnet:?xt=urn:btih:5E5DA9AE759B41A475662344B1E1CEB5355C0D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE07A2F0997A853C0171C1DDE8E579D407F57841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Sanctuary - The Year the Sun Died (2014) [FLAC|Lossless]<Heavy/Thrash/Progressiv
 ```bash
 magnet:?xt=urn:btih:75EFE15B2CF59D7F1E332B2FEC53444F584748E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Alcohol 52% - широко известная программа для эмул
 ```bash
 magnet:?xt=urn:btih:2A00A3BF7F262339443158BA515A5C503BB2EF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ John Addison - Мост слишком далеко / A Bridge Too Far (1977) /2
 ```bash
 magnet:?xt=urn:btih:31444AA9E839F6435F1E34A61878DF7E1605CEF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:09E46126E9EEF80D05DD697035CDB6439CAD4F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ David Arkenstone - Valley in the Clouds (1987) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:E2190801C9058A726FC587F562F183340ED5690B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64FD0A9259ED33BCAE2AA0BCEEB3EE2E8D00930D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ Comedy Баттл. Суперсезон. Выпуск №27  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:66CA3D505BAC4DEB2EC26D1D85EC422C46823C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ Ka - The Night's Gambit (2013) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious
 ```bash
 magnet:?xt=urn:btih:72944F5C83272ACA5221A5AAC3E0D66DAF195B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39D3BAE215743FC9627BEDFD44D0F7D8DCD6B7CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2DBD730A9097A07527DB7D2221FE57489D71BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ Vince Staples - Hell Can Wait (2014) [MP3|320 кб/с]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:78C3791581CEB2BF17274F9AD0CEC8298A25D54B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D81B2C4031FDE5D2DB20FB721104724E16AA341A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D88ABA6D251F0CEC0948BC66C62C2388C989CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +561,7 @@ VA - Armada Lounge Vol. 7: The Best Downtempo Songs For Your Listening Pleasure 
 ```bash
 magnet:?xt=urn:btih:DB245D988D7C48444BF0CC588EFDDDD87FDF46F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58EDF8E0868D912089E15C6C44A8027B9CD592E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ VA - Reinas De La Noche (2009) [MP3|320 кб/с]<EuroDisco>
 ```bash
 magnet:?xt=urn:btih:C3770AC22FC3F8A79B2BD38E52F81D2C892170DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ Australis - Adrift (2014) [FLAC|Lossless]<Electronic New Age>
 ```bash
 magnet:?xt=urn:btih:A4B6FBC7C50B9443E4D97D752CABC6B795BB7068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +682,7 @@ Kомпания Bombich Software представила Carbon Copy Cloner 4.0 �
 ```bash
 magnet:?xt=urn:btih:203949D2E8BDEF926B9E3D3830A2D02EBE9ADB95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84B001D6CC6C2F2CA37DCD7F9E13A41210633B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:369F9B4C9E99375D6A1D0E4FF68D7E1BC0B37CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

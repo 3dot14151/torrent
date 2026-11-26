@@ -20,8 +20,7 @@ Monolith v1.1.12.065 [En]
 ```bash
 magnet:?xt=urn:btih:78B5C89FC86DCFD1DC0B0C3B5E2D22A75F42081B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Arcane Quest Legends 2 Offline v1.0.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:8BA1FABC0C98A1EC1A37CAE64569DF84FA8CB42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Bright Memory: Infinite v1.0 b82 [Ru]
 ```bash
 magnet:?xt=urn:btih:89FB35D586742CBEF962CB0E5FE2CC4DD8D6ECFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Reaper v2.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:F0B2A2418FEF29C69212A08CEC6A98E4A828782D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Teslagrad –это 2D-головоломка-платформер с элеме
 ```bash
 magnet:?xt=urn:btih:E0A037DF334F2E6BFE4F558DA3E08F6A4EDBA0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Together We Live v1.0.1g [En]
 ```bash
 magnet:?xt=urn:btih:82B31EB81AA5BEB8469E6B5785C6F8DAEBA2333B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Hero's Adventure - это ролевая игра в жанре уся с отк
 ```bash
 magnet:?xt=urn:btih:639ACAD31CF2ED33EA299751552DCD4E3F102D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

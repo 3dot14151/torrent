@@ -19,8 +19,7 @@ Obscure Legends: Curse of the Ring / Загадочные легенды. Про
 ```bash
 magnet:?xt=urn:btih:E207F4A4F1547A04EF487F7A08DBED36E5FCCBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Tony Hawk's American Wasteland (2006) [Ru/En] (1.0.1) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:81BEE47BBC7C8BABEBC0EE9DF45F79C852213D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Rise of Venice (2013) [Ru/En] (1.1.2/3dlc) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:6AFFDC4A95110F46FEEB0F13B4C0A442F12B0448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

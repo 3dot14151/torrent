@@ -19,8 +19,7 @@ Operation Steel Tide - аркадный симулятор подводной л
 ```bash
 magnet:?xt=urn:btih:E97EFC138F687A7D6A0D090BC202C5A4EEBA5AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

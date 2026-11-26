@@ -19,8 +19,7 @@ Juliette's Fashion Empire / Агентство моделей (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:998F24D6D3E4170AE21F5268A76C73D79F28D13B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Tales: Edgar Allan Poe's The Premature Burial Collector's Edition / Тем�
 ```bash
 magnet:?xt=urn:btih:4050B626F8A010C43454899EC6A6F2312E4DF401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

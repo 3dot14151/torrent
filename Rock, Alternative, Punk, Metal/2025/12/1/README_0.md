@@ -22,8 +22,7 @@ Mad Max - Heavy Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:77D351D112626DB8A2CD50B13D648D4EFBB62795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Feuerschwanz - Knightclub (2025) [APE|Lossless|image + .cue] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:45BDDEC15D7186E454361DF2656B2F8B2DC4A416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Equilibrium - Equinox (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Epic Folk, V
 ```bash
 magnet:?xt=urn:btih:603B64DFA778FF3C28B450F2F27BB352BB90E13F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Inner Shrine - The Last Emperor (2025) [MP3|320 Kbps] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:3D4B8366B43806B9E7A971AAA86F9DF459596DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

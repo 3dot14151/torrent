@@ -19,8 +19,7 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 ```bash
 magnet:?xt=urn:btih:443CDD001EA696E6FB88DECFA3AB60E2903AC685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mind Echoes: The Lost Mysteries (2025) [Multi] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:3B0B1EBCEC93493706EC0C01AB4EB323B94D22FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlud
 ```bash
 magnet:?xt=urn:btih:43AFF60481798A490A5F09F601E413F7644B2579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ GTA: Vice City - Definitive Edition - переиздание культовой 
 ```bash
 magnet:?xt=urn:btih:5403A72518CC206D7F68451FE03322E0051C5651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Water Park Tycoon (2014) [En] (1.2.4) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:4E60EB79266154A9131C1C28BB78C51FD33EC5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ GTA 3 - Definitive Edition - ремастер культового экшна о
 ```bash
 magnet:?xt=urn:btih:3CB00247F1483DF17BBE035BE5D04A3A5619D136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007.28161) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B905CE65206A129619F6A82BB6A0BB8D86FE1EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Silent Hill 2 (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Let'sРlay [Digital Del
 ```bash
 magnet:?xt=urn:btih:AC36D92DCD37DE33E463697AE976E9089CEF9B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The End of the Sun - это мистическая приключенческа�
 ```bash
 magnet:?xt=urn:btih:9657FEB13927F3A345368810F757B60D569D83B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ VED - это сюжетное RPG, сочетающее вручную нари�
 ```bash
 magnet:?xt=urn:btih:1EDE5E0581E0CBF12C05B79EC4AB95F97B31F69C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9DBC6983C416301835136D888EE27062C0EED0B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:523A4C3DDF41FE6A1B7565A6E7DC0D4D78FA99B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

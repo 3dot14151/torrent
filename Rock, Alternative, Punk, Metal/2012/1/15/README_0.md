@@ -28,8 +28,7 @@ Desert Sin - Destination Paradise (2012) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1536484A0E1F56C3B03526F9DC3C711DEC89CB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Zima (z.i.m.a) - Zima (2008) [FLAC|Lossless] <Alternative Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Chris Ousey - Rhyme & Reason (2011) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ The Beach Boys - The Best (2011) [FLAC|Lossless]<Surf, Beat, Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Drowning Pool - 5 Альбомов, 1 EP, 1 Демо (1999 - 2010) [MP3|320 kbps
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Enter Shikari - A Flash Flood Of Colour (U.S. Deluxe Edition) (2012) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:FD342FCED66359830148A7EDE9E540FCF9B6DF00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

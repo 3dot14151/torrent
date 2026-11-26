@@ -19,8 +19,7 @@ Multi Password Recovery - многофункциональное решение 
 ```bash
 magnet:?xt=urn:btih:751C09F1EC35071C2F07A5058C626259663EA247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ VPNium Premium 1.7 [En]
 ```bash
 magnet:?xt=urn:btih:27A623767A0AB6E0FD26705E97F19053DF73098D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

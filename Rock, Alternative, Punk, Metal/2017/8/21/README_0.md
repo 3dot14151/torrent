@@ -22,8 +22,7 @@ Heathen - Breaking the Silence (1987) Remaster, 1999, Century Media [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:814584F888D8905AFAC47B1C70C953C9346A0FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pomegranate Tiger - Boundless (2015) [MP3|320 кб/с]<Experimental Progressive 
 ```bash
 magnet:?xt=urn:btih:C15EC8DE8B99DB4F5D226079D42D909A649DBD71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

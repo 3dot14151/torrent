@@ -23,8 +23,7 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:8F812C867032E47E45277D02B8CE256964F5B11E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

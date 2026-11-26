@@ -22,8 +22,7 @@ Baroness - Purple (2015) [FLAC|Lossless|image + .cue] <Sludge Metal, Progressive
 ```bash
 magnet:?xt=urn:btih:85E662BAA5DD15F5E04FF1CFB85E9216C7C5EEDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pearl - Little Immaculater White Fox (2010) [FLAC|Lossless|tracks + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:84F04FE0E549F24904B80E6E51F9DAB33C9933F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Graham Oliver - End Of An Era (2001) [FLAC|Lossless|image + .cue] <Blues Rock, H
 ```bash
 magnet:?xt=urn:btih:380AC475416A14F182DE54F09BDC564CC2075575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Monster Truck - Sittin' Heavy (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:136F021A07E7BFF28EB886A040ED4857697E6F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Joe Stump - The Dark Lord Rises (2015) [FLAC|Lossless|image + .cue] <Neoclassica
 ```bash
 magnet:?xt=urn:btih:903541DF505EA3BFC21AB8A466C5F39069632EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dare - Sacred Ground (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1261A1471982470AFA8056256D8F1C45E2DFA569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The BossHoss - Internashville Urban Hymns (2005) [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:A62A31B7F4B668E409DD9F37571DA27D724BFA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Wolf Hoffmann - Classical (1997) Remastered, Japanese Edition [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:582B867F01F4B46564E7084A094835AF8D5E7923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Cradle Of Filth - Dusk... And Her Embrace: The Original Sin (2016) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:95ACD5C4896EC67E4CAF2BDCD7760CA74BDD2DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98F18E4F43B38548DA2585A2019E320CA0972210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ AC/DC - Rarities (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CDCE5D21713534A81509A4CC96FC311D903C5514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Braindown - A World To Forget (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 ```bash
 magnet:?xt=urn:btih:7550EF2B43BC19A946D678B128B84DABFF6239B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Consumption - Necrotic Lust (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:6E1FE0F6A09C0CF141A1B054B0C61404EA9AE579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Commoner - I (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:847F9109197AD01EAF105EC33D05F7141686303F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Versa - A Voyage / A Destination (2022) [MP3|320 Kbps] <Progressive Rock, Crosso
 ```bash
 magnet:?xt=urn:btih:331B15E794C9625919E2EBB21E7F7F7F47CB6EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Laser's Edge - PROG presents- The Laser's Edge Group (2022) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:4032B6F983CE6532368091EB34F777BA07DC7CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Corrupt Soul - Ancient Psychophony (2022) Compilation [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:638DDB7E3915B99E37E9482863E41E44CD91E0C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Feather Mountain - To Exit a Maelstrom (2022) [MP3|320 Kbps] <Progressive Rock, 
 ```bash
 magnet:?xt=urn:btih:167EDDB939C518378EB355D247D511D6D44F85F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Trial (swe) - Feed the Fire (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:692C7218F3E7E8234FB1DF406A33BC9DE04478EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Figure Of Speechless - Tunnel at the End of the Light (2022) [FLAC 2.0|44/24|WEB
 ```bash
 magnet:?xt=urn:btih:15FA5148E8ABEAA65A411478854F8876B4389C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Mike Tramp - For Første Gang For Altid (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:5BC329BB992FCF8743F6D456F36DDE5276B79117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Blind Guardian - The God Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 ```bash
 magnet:?xt=urn:btih:2943390B69FD4186A19F61F9E756FB52E5E21EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Epica - Live At Paradiso (2022) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:BB0D946179C536A0DB68097EBA93E62DB3515158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ King's X - Three Sides Of One (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Hard Rocк>
 ```bash
 magnet:?xt=urn:btih:9F869A0176814835A83011E79789E479CCFAB031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Blind Guardian - The God Machine (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Progress
 ```bash
 magnet:?xt=urn:btih:0FCECF71216E8520E5284ED1A75294AF6E1724DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:959C1CBB02187410E4F13E1B5E2193AB39C2FA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Blind Guardian - The God Machine (2022) [MP3|320 Kbps] <Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:C9033725380052311A9A711E8C0A8A51CDD3C059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Steve Hackett - Genesis Revisited Live: Seconds Out & More (2022) Live in Manche
 ```bash
 magnet:?xt=urn:btih:28FCDFA79DCB47162E8B04D6BC25666B73DE54F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Florence + The Machine - Dance Fever (2022) Poem Versions [FLAC 2.0|96/24|WEB-DL
 ```bash
 magnet:?xt=urn:btih:88B60F52CA93B4DFB7E331F5355B0D45EF069112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Florence + The Machine - Dance Fever (2022) Deluxe Edition [FLAC 2.0|96/24|WEB-D
 ```bash
 magnet:?xt=urn:btih:046FD2E41BACE5BFF36B97A6FC5318228B432733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ The Hu - Rumble Of Thunder (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:32F199540F7F14D764D3826569966C0D69863A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E13373F5C28B76291C5DCBC5EE6CA2ECC3210091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44EB704631DC92FB76DB01709B213D12B5634708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ Megadeth - The Sick, the Dying... and the Dead! (2022) Deluxe Edition [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:7DA87E9011A10DEF78B55F7B9F30AF20EE63E551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

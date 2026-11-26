@@ -19,8 +19,7 @@ American Civil War: Gettysburg / Гражданская Война: Решающ
 ```bash
 magnet:?xt=urn:btih:595984FC7F2E3FB4837C9AEB8EE2F384F6AD5474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Knights of the Temple 2 / Тамплиеры 2 Портал Тьмы (2005) [Ru/
 ```bash
 magnet:?xt=urn:btih:DEB76B1E1D368417035DE9221C7B0EB5193979BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

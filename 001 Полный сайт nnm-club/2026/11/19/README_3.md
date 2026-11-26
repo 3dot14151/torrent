@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C0C40A80FC2C779C8255449153BCD609F4DCE8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Realms of Madness - это фэнтезийная стратегия в реа
 ```bash
 magnet:?xt=urn:btih:2B8C0DE72F38824C9CD034D2EB8FD272E2776E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Eerie Night: Escape From The Funfair (2026) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:8BE7E9539ED254C007A5628E48C1DC34C87B508E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Rammstein - Live in Mexico City (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indu
 ```bash
 magnet:?xt=urn:btih:8AFE7A8308B32E313DD8F371C79EADA69F7B1C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Wolf - Hour of the Wolf (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6F42B034D1E32A8750E58024EF1C44961B981BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Wise Memory Optimizer - утилита для освобождения опер�
 ```bash
 magnet:?xt=urn:btih:F18A31D31CB8936F40BE3B40D8618F007B4F625C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ MAX Desktop 26.41.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7BFDAD5AB14B93225AA0708249433CF942E06A83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7175B593826549ECCEA42B4F429B8C6637759645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Thy Catafalque - XIII: Sárga Erdő (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:57ACD4CB2C6ECC5FCF3B6D69DEC59900764642BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ VA - Новые хитовые песни 2026, Часть 8 (2026) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:79216D77451AC87E7082FBD6AD4D9D65D7D3E291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ RisohEditor — это бесплатный редактор ресурсов д
 ```bash
 magnet:?xt=urn:btih:DD9D0265211FCC1686A82FF3DE5C7A4F612FF2D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ VA - Новые хитовые песни 2026, Часть 9 (2026) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:FC938ACFA9AA74C90A6CB955CC372B656394BE99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ VA - Новые хитовые песни 2026, Часть 11 (2026) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:14D09EFA8276E74F6BAA58FF867B80A49D800605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7438D8C731E0A078825C88232B4808A93F6E3B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ Patchy Image Editor 1.39 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8CCED11689EC4462C6E003977F3F8354D41C0CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ The Supermium Browser — современный браузер на базе Ch
 ```bash
 magnet:?xt=urn:btih:76D557734C54C3FDD26E644B78661E6BD824280D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4AC8E39C72B4B4210F8BE791E057B41DBD44219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:3672E60FE719855FA13219971A4B0EB1B5A71624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:51CB77631D2F48D80B37109A5767545965F954CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ VA - Самые новые песни о любви 15 (2026) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:27AFBC1A93CA899C9BF8F8FD3E4AA4F21987CC7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Liquid Water Transitions | DR — современный проект для DaV
 ```bash
 magnet:?xt=urn:btih:E4C5E92E21AFBC32C5768FA790910EB96F3B127C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6E9705C701E1172DC28269C286D59815FFC0160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ Astro Boy: Tetsuwan Atom | Могучий Атом | Астробой [2003, TV�
 ```bash
 magnet:?xt=urn:btih:0F460367E632678ED8BC98EA1F7F28F2D094CC0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:472EFA068439CF0DE88AA4A805D538C7E7583BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04164F99961B5089833C0CD571C3008974D099C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

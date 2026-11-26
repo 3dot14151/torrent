@@ -19,8 +19,7 @@ Witches' Legacy 7: Awakening Darkness / Наследие ведьм 7: Восс�
 ```bash
 magnet:?xt=urn:btih:F7633A1C50880AA462873020CB4848EDAF9D5BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Demon Archive. The Adventure of Derek / Архив Демона. Приключ�
 ```bash
 magnet:?xt=urn:btih:523124D2D050A72B343E7BF8DC2020DAA96B035D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WARSAW – это увлекательная тактическая RPG на у�
 ```bash
 magnet:?xt=urn:btih:0CA5D062C31BE09B55B393D6345C29523D400A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

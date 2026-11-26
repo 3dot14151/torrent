@@ -22,8 +22,7 @@ A4 Rotation(   Читать дальше...   )Жанр: Soul-JazzПродолж
 ```bash
 magnet:?xt=urn:btih:DAD66781E3BEE23B8B9DA6483DCCB81CA76EF10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Pretty Reckless — американская рок-группа из Нью-Й�
 ```bash
 magnet:?xt=urn:btih:FD27DE2B99D15C9F60FE92D4D39361A38FE8183C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

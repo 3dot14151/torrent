@@ -22,8 +22,7 @@ Within Temptation - Bleed Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 ```bash
 magnet:?xt=urn:btih:92D1EDECF5B95A272C279E1E05E7F00777BCC44B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Defiants - Zokusho (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:F5849DB89DE862BAB0C4F3F6329101D55D1C8F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 1 - Helvegr:
 ```bash
 magnet:?xt=urn:btih:4C9AAD735D4EAC50BAE880E96A11B86A949BF2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mantic Ritual - Executioner (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B73B02EE33C98E4B143EAFE9A70BC04E0583219C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bulletsize - Respawn (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:02D3B454AD3ABCBAFBC06F62F38B73EC78105165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Krisiun - Mortem Solis (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:B8F95F9296B96034EF7D3A9A119325F326AF619E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

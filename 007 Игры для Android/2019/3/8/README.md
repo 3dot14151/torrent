@@ -19,8 +19,7 @@ Magnus Trainer PREMIUM v1.4.17 [Ru/Мульти]
 ```bash
 magnet:?xt=urn:btih:760B9BD1E0AC9976117403EE32FC7210F52423F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

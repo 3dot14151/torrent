@@ -19,8 +19,7 @@ Driver Magician - программа для скачивания актуаль�
 ```bash
 magnet:?xt=urn:btih:7863AE1AB6C07994A7954DF384C108B90D03A1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Driver Magician - программа для скачивания актуаль�
 ```bash
 magnet:?xt=urn:btih:795F4DFD20C2E36562F3E411B450CF85DE2A54FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

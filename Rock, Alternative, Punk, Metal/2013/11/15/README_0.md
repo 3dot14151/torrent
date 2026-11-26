@@ -28,8 +28,7 @@ Bonus Track:(   Читать дальше...   )Жанр: Melodic Death, Thrash 
 ```bash
 magnet:?xt=urn:btih:E1D1D558EC1FB4E705C160DB69776DAE0C73800A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Insomnium - One For Sorrow (2011) Japanese Edition [FLAC|Lossless]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:AC6123DC772B8FCF98559C8A65C6B9FBD96DB1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Pat Benatar - Best Shots (1989) [FLAC|Lossless]<Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:A553CFC6A6F7C423672E74B22F8A3011033C1C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Trans-Siberian Orchestra - Tales of Winter: Selections from the TSO Rock Operas 
 ```bash
 magnet:?xt=urn:btih:33D3F2AD1BA533FAFDAF0FC464E305351A0B07D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Bonnie Tyler - Greatest Hits (2001) [APE|Lossless]<Rock, Soft Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:5231469C31538C76DCD481364E2E5737780AA854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ The Alan Parsons Project - I Robot (1977) 2 BSCD2 /2013, Sony Music/ [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:6ED987F000E255B57D7D772828DF2C2F5CF48C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ David Bowie - The Next Day Extra (2013) 2CD[FLAC|Lossless]<Classic-rock, Art-roc
 ```bash
 magnet:?xt=urn:btih:1370FD1519B8088180E96BAA8F268243B4796C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Children Of Bodom - Halo Of Blood (2013) Japanese Edition [FLAC|Lossless]<Melodi
 ```bash
 magnet:?xt=urn:btih:9430C2AA9752F2F47076B4A35F9972F36C460D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

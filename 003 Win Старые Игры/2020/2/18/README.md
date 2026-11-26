@@ -19,8 +19,7 @@ Crystal Caves – яркая игра с игровым процессом, го
 ```bash
 magnet:?xt=urn:btih:21C7E931D7CBE9C07B4C0B5B5535290028BD9A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ USSDDualWidgetPro v1.0.31 [Ru]
 ```bash
 magnet:?xt=urn:btih:37611EA8423C2EC51116EF45B85A5E434C5590CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ nzb360 - это полнофункциональный NZB / торрент-ме
 ```bash
 magnet:?xt=urn:btih:0FBD0CEF0DD18F9B85835467CD609C0774E52D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

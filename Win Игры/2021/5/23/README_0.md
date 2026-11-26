@@ -19,8 +19,7 @@ LEFT ALIVE™ – это новый шутер с элементами выжи�
 ```bash
 magnet:?xt=urn:btih:00F10474C6AB8AA67A9B0216DC927C51DDE519BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

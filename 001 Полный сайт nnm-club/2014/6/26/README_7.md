@@ -28,8 +28,7 @@ VA - Pleasant Trance: June 2014 [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:748DEC3079A11AE34DFBB34BA82298820774DAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Cheyenne - Eternal Faith (1996) [MP3|320 кб/с]<Native American, Ethnic, New A
 ```bash
 magnet:?xt=urn:btih:B7FC9525045589F560E3CD848B9F08B1FB51543A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Robo-Fly, самый маленький и легкий летающий роб�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Enthroned - Sovereigns (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:6EE1ED3EDBCF80055F098EB7075761C706EE95C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF89E44025C818B4AA4EDDEB0CC11E264F9C3EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B0C7007E356FAECE52856FBA41E026252980364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Tekanewa - Raindance (1997) [MP3|320 кб/с]<Maxi-Single, Native American, Worl
 ```bash
 magnet:?xt=urn:btih:ACD61C058EF2A3E6B818EA967CC19A9AFB20139F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3B6C928473A6EF6F9ACFEC22AFE6A885D12DFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Nightmares - Suspiria (2014) [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:5E9F027DAF49B2D85249C7508214495CC2164C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ Edward Bear - Bearings (1969) [MP3|320 кб/с]<Psych-Prog Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7B8D7B5C04B2AA36787CDD829B2477C49F4B8BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:703369537A385B47300AFDE3A6049F8F5877C34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ OmniOutliner Pro, равно как и другие Omni-приложения, �
 ```bash
 magnet:?xt=urn:btih:38DD868255386C011BA6643AC43D0A04ED7202B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C518CA187A6E6C8546ED46C4769C9EC41B1DE0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23CD62C5539D98C4725CF1F155245958C188E3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ Camphor - 3 альбома (2009-2011) Touhou Instrumental /Doujin/ [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:DD3AA43F4114C80DB71AA49EF799F02CEB08CFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ Kala Hari - Into A New Dawn (2014) [FLAC|Lossless|WEB-DL]<Ambient, Psybient>
 ```bash
 magnet:?xt=urn:btih:77DC999E895D03FBDA3C5B04AB748D7F36C8CDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Sound Studio - простое в использовании приложение
 ```bash
 magnet:?xt=urn:btih:B66619F484993C70A847F3EC52305D674770775A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:753960B0FF881683E7F4AFCA05E910015867A426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CDBDD5AD3994BE4DB0614AEA71378C61A904CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ The Amity Affliction прославились ещё до выхода свое�
 ```bash
 magnet:?xt=urn:btih:F412BF190D56AC6ACF6D1FF11E03B51C1CA4AC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ ACxDC - Antichrist Demoncore (2014) [MP3|320 кб/с]<Hardcore, Powerviolence>
 ```bash
 magnet:?xt=urn:btih:29D495E6A95CAD294D7E3C4CB8023D77B36FEE74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ d) Basking In The White Of The Midnight Sun (Reprise)Жанр: Hard Progressive 
 ```bash
 magnet:?xt=urn:btih:2894D4BE14D40495D507B04216D0E5EEE1FD9EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +697,7 @@ DJ K-Keeper - Never too Far (2014) [MP3|320 кб/с]<Nu Disco, Deep House>
 ```bash
 magnet:?xt=urn:btih:705BFFEAFFD09B0C5851B53786FA88DFF0657AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +731,7 @@ Kevin Kern - Endless Blue Sky (2009) [FLAC|Lossless]<New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:D3B1292431EEFF941B53977E04C2F4C1C472351C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

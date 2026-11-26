@@ -19,8 +19,7 @@ VueMinder - программа, которая поможет системати
 ```bash
 magnet:?xt=urn:btih:A294496A7E1E43D12B23A4AD857E4385F14D9F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 ```bash
 magnet:?xt=urn:btih:110AE0E688A442B5D22BBBDC5EB24AF7F5A8D567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

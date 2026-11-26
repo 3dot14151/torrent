@@ -19,8 +19,7 @@ Document Reader & Viewer 2024 v1.2.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5B7BB2BC2B4A98D79F0DB83ADDCB42D38063E5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:9FBCAC764D7D5B290B830DC2255817569095E222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ PowerDirector – Video Editor v14.5.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:47DEF8951774D71D5247A2A8D8EBF15E6BC703E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

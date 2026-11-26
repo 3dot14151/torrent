@@ -20,8 +20,7 @@ Abyss Odyssey (2014) [Multi] (1.06) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:7D6DCCBFBA6C8CD28B8EE46EE9D9E991FC049373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Lost Chronicles of Zerzura (2012) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F55351DB25631B354BE7491F6E6D2DB58DB1B1EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Face Noir (2013) [Ru/En] (1.9.1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:862E80C77E43899C80398C69F332A535DB8C7126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ James Bond 007 Anthology (2002-2010) [Ru/En] (1.1/1.1/1.0.0.1) Repack/RiP R.G. �
 ```bash
 magnet:?xt=urn:btih:BB60AFCCD3963AE2AACC42678804C2BF56FD6360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Stronghold Anthology (2005-2012) [Ru/En] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:04BAE5C22FED697EBE795BD00FEA2A55520CC212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

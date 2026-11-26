@@ -22,8 +22,7 @@ Scorched Oak - Withering Earth (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavyrock, 
 ```bash
 magnet:?xt=urn:btih:99CFE4085D26B0A49679F4E2B773C54890768AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anatomy Of - Splinters (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 ```bash
 magnet:?xt=urn:btih:09C90EF88D66ADA7EBAAA3E3A8A9B3600FC676CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chaosbay - 2 Albums / 1 EP (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 ```bash
 magnet:?xt=urn:btih:0E90B9F256909B1384624CD3F3E57647C5BAC4F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rage - Strings To A Web (2010) Limited Edition [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:DBEEB7008250A2AF4999D34493B8BB2091428B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Cross Bringer - The Signs of Spiritual Delusion (2020) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:0CFF374F66E9E66F7B02E73BEF48637A772B46D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AB69E31ABC5D4D6CD0EAE106F62F8AAB176FE3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Rage Of Light - Imploder (2019) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:FC59856FE23A7400C5BE0A350BD8890398301C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Mushroomhead - A Wonderful Life (2020) Limited Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:0D9867379524BB279990B43152634D6BAF082AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:FE5BF966BE361503FF54135D3A94DB193402BF46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Sun of the Dying - 2 Albums (The Roar of the Furious Sea / The Earth Is Silent) 
 ```bash
 magnet:?xt=urn:btih:21C5FE3CEB16D6FDD51F9B2462A9A4C6126E9BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Fall Out Boy - Believers Never Die (Greatest Hits) (2009) Limited Edition [FLAC|
 ```bash
 magnet:?xt=urn:btih:EC2001C4FA550A4A53EF2B997B664EB5748B6592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Neal Morse - Sola Gratia (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:6BD57AC5146EC1A786C89E2F1FDDB016131570E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Finntroll - Vredesvavd (2020) [FLAC|Lossless|image + .cue] <Viking Metal, Pagan 
 ```bash
 magnet:?xt=urn:btih:61A7BBDEA9F997D87CBEE666E0AE09726717F2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Ariah - The Spire (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Djent
 ```bash
 magnet:?xt=urn:btih:ED236042CFA6022DDA27A2DBE42595FB968D5827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

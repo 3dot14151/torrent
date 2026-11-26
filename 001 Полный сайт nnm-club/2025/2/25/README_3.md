@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D7ED4109E524B2D09A4D93F2F03EC094953CB0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Modern 80's - The Best Of Discopop Vol.3 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 ```bash
 magnet:?xt=urn:btih:CDAE034F86CCBC995ED9EE497D95C30EBF4D78B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C5173A45A1E222F6D4D00AF35989E4130CA50A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Panton был расширен за счет Panton Narrow! Он имеет 9 п
 ```bash
 magnet:?xt=urn:btih:B3404D03C41E9E90D31B8E2E0BA6B4EEA25C2762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Tomkin — это очень большое суперсемейство из 54
 ```bash
 magnet:?xt=urn:btih:D95F789449BF0B9615C04E1156AA5DB0AE94B5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:647157B616D8E49F34F9934983F95F1BE3C424A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ VA - Modern 80's - The Best Of Discopop Vol.3 (1999) [AAC|320 Kbps] <Electronic,
 ```bash
 magnet:?xt=urn:btih:70C71C4F0130A1C8093C04A9E2F90BC376D9D91F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:EE2BCF15144F5A714ED52FEA25345747FCC789C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ FocusWriter 1.8.10 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:99F12BC56A7203CF1076157B08B9A28C66BC9ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:341678A08299FD41BFAA621086C45D6C5D2BCEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Qalculate! - это многоцелевой кросс-платформенны
 ```bash
 magnet:?xt=urn:btih:95FDEB9EA2ED5E2486F2873EFD231DAAF5126A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Ghostbusters: The Video Game (2009) [PS3] [USA] 2.60 [License] [En]
 ```bash
 magnet:?xt=urn:btih:300734E0A20303FAF23F9086AB1DB68C3AFB7548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FCA08F246DD65C4CD98B9CA03B88D5E6DB8F492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ TagScanner — это мощный инструмент для организа�
 ```bash
 magnet:?xt=urn:btih:2DCCF3B53E68D0DC23E8D224CCFCE268EEA44F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:945DDB21240342914D5FC59ACE6C39250FD4085E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E2DD77C89A76E590FBB48FB95E35D117CF99517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ VidCoder - небольшая утилита, с помощью которой �
 ```bash
 magnet:?xt=urn:btih:6C16CFAC5241DFDC0D97F9C728545A20AECC4D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

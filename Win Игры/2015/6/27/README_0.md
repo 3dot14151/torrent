@@ -19,8 +19,7 @@ Lucius II: The Prophecy является продолжением приключ
 ```bash
 magnet:?xt=urn:btih:574FC4C60C12FAB836E7547428A580860DF51832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

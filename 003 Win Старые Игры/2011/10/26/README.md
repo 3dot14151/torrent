@@ -25,8 +25,7 @@ Alone in the Dark 1-3, Jack in the Dark Коллекция [En/Ru] (RePack) 1992
 ```bash
 magnet:?xt=urn:btih:C68F9DE12510DBC30091F6C8DD7A8228AA5BD993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Vanity Insanity - Insanity Fair (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 ```bash
 magnet:?xt=urn:btih:72E487FEA4E7B425D3E6DEF0B0BAE84A48921157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

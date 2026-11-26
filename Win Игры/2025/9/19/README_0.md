@@ -19,8 +19,7 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:470AC366684BFE14CDC51D0F0DFBDAAB5A85730A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Operation: Polygon Storm - стремительная военная игра, �
 ```bash
 magnet:?xt=urn:btih:5FC0032E098AAC079B44B2A2EBBC443366C337A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 ```bash
 magnet:?xt=urn:btih:E0AB5A37E8B3E9A31C1F8F8FAB8A5EE923ED1BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:778671C531D28CE311BDC39082CA997767F41240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ WARNO (2024) [Ru/Multi] (166262/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:55F38BEF20E5D2B3600A03E225B4A713FCCC6049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.3 Build #41195/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6486C20D46E35E54FBBBDAC31F4354AEBA1004F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Parkitect (2018) [Ru/Multi] (1.11f3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:89BB04ED2E84AF9132CC67A58F7A9ECF7DF29D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Lost Skies (2025) [Ru/Multi] (1.0.79) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3DDB9D63E58CABAAD3B542CE764700BBD57482D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Firefighting Simulator Ignite (2025) [Ru/Multi] (1.0005.28457.87919/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:9ACABC378E91049B41E4AF8D0FF37DC59F50869B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:68274B244807BF8C76402717191D87A722DB9386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ House Builder (2021) [Ru/Multi] (Build 15-09-2025/dlc) Repack FitGirl [Pack and 
 ```bash
 magnet:?xt=urn:btih:95D2CF6654D0BC446E3663F22701B1C950369CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:A3E36CCE6918D65544C6F64BE30AEEF67132176A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:0D17A19B3E4248630C23B2BCE5758F92D0AA89A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.0/dlc) Repack Decepticon [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:69A2B769C277E9BC3DA9620B07AC7E45A8AC63C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ CULTIC (2022) [En] (Build 20024050/dlc) Repack Let'sРlay [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:E6C4274E304A30215A7C38C7D21C7E6A946F721B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Lost Skies (2025) [Ru/Multi] (1.0.79-50871/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1995395CA736AF599DC9D44071F5A270FA99D224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Knights of the Crusades (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6DC83D59F8840AB0A44C340339112561600289AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Mystery Trackers 21: The Shrouded Village / Охотники за тайнами
 ```bash
 magnet:?xt=urn:btih:8E31A8F446B845536C9B2F212C4A2C981336845B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

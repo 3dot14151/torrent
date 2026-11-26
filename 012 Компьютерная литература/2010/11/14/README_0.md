@@ -23,8 +23,7 @@ Flex приложение может компилироваться на сер�
 ```bash
 magnet:?xt=urn:btih:2640DD4C5AFBE4564A4353BDAAF0FB68D40859AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3546B79FB7FFF0C01CF1B8EBC541B3F7D35429CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

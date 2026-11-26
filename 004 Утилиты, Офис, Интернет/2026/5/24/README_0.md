@@ -19,8 +19,7 @@ CrystalDiskMark - утилита для сравнительного анали�
 ```bash
 magnet:?xt=urn:btih:F92A5AA1AB97FEFCF2A732F31941908766BC9C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:FF8CCF17710E43B49B166B48C1F98BBB42099D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Cherrytree  — это бесплатное иерархическое прил�
 ```bash
 magnet:?xt=urn:btih:738B84A1195B77B0099EB5EECE0338E199A38E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ ParkControl разработан компанией Bitsum и предназна
 ```bash
 magnet:?xt=urn:btih:919A6EB940D41186473827AE433072EBE39E3A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ AntiDupl.NET - бесплатная программа с открытым ис�
 ```bash
 magnet:?xt=urn:btih:2F39255B97AEA52F9F473ADA892AC263942D9DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Royal TS 7.4.50522 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3DE9DCCB877CD24E0A7C41A4CA957CFC2F00928E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ BetterMediaInfo — это более удобный графический ин
 ```bash
 magnet:?xt=urn:btih:35C869C91D5F0B0FE11B4AA7D1AD3F7309897995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

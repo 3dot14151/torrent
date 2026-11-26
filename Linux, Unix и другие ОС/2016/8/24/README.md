@@ -19,8 +19,7 @@ BlackArch Linux 2016.08.19 [Хакинг, аудит, безопасность] 
 ```bash
 magnet:?xt=urn:btih:9D24CE02023B0375D5880226A0028539D90DD24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gentoo Linux 20160704 LiveDVD [x86, amd64] (2xDVD)
 ```bash
 magnet:?xt=urn:btih:75C69686CC33579F39EB85C485A0693F635D8617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

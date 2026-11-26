@@ -19,8 +19,7 @@ Next Space Rebels (2021) [Multi] (1.12) License GOG
 ```bash
 magnet:?xt=urn:btih:5D980A0612977CFE60FDBA970D0A03E4B816D614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Legacy - это кооперативное выживание в жанре 
 ```bash
 magnet:?xt=urn:btih:C119B728BBBBCC7AEB8AC1DDA173354A226D980D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
 ```bash
 magnet:?xt=urn:btih:ACEE5FA5C0CE3ECAA42AD4D16C83FAB2889B290C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jump King (2019) [Ru] (Build 14374430) Repack Necros
 ```bash
 magnet:?xt=urn:btih:2CFC4ED10676647F11F893F5BE654820AF93CB7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Legacy - это кооперативное выживание в жанре 
 ```bash
 magnet:?xt=urn:btih:B48AF4833800FEEC9601253E30A310BDE809B56C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

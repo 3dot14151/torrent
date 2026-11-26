@@ -19,8 +19,7 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:3BDBBFC6DE67312E352BDB7A903D6DCEF4F524C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:702EDF77B9441B463D7BB7F04698353F6D972B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ FixPlus — Редактор лица и тела v1.47.118 Mod by PieMods [Ru/M
 ```bash
 magnet:?xt=urn:btih:43CC1B64EB3FE4510B160C0B6B7C8C68B91B1E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Stryрer - 2 albums (Japanese Editions) (2013) [FLAC|Lossless]<Heavy Metal, Hard
 ```bash
 magnet:?xt=urn:btih:93C5B3579D77890CFC232E543C1D225C76953B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Legion - V (2013) [FLAC|Lossless]<Hard-n-Heavy>
 ```bash
 magnet:?xt=urn:btih:98848B3F518879B222189EBEDC0086838AE7571B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Concert For George (2003) [FLAC|Lossless]<Rock, Folk, World, & Country>
 ```bash
 magnet:?xt=urn:btih:0EE8731781169BBBBDCD51E8A4AB45BFA13C8DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - George Martin: In My Life (1998) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:8D96227BA92A9887AC6E952730DD01E8F3DDA77B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Elan - Kamikadze Lover & Nightshift (1982, 1984) 2CD Limited Edition /2006, Musi
 ```bash
 magnet:?xt=urn:btih:08C3114588E096641CC718E5FBE6906538ABE850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ John Lees' Barclay James Harvest - North (2013) [FLAC|Lossless]<Progressive Rock
 ```bash
 magnet:?xt=urn:btih:CE1ADB61C701E8987DE4D1DBF4C2F04087D40FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Janis Joplin - Janis Joplin's Greatest Hits (1990) [FLAC|Lossless]<Rock, Blues R
 ```bash
 magnet:?xt=urn:btih:CDC86D332C8DDC4ED4E7F2C0B17487C3122771E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0224C5C0CBC620741E2753AEA5BB4CED36048A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EB2DB1156E39994FAE5B486B40734EA9517F0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +338,7 @@ Barclay James Harvest - 14 альбомов (1971-2013) [APE, FLAC|Lossless]<Pro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

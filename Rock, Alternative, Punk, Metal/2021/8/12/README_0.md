@@ -22,8 +22,7 @@ Il Buco Del Baco - Sotto Il Segno Della Lampreda (2021) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:083AC8BD90968F129E4BB93E41D1ADC328B6E0BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Paul McCartney - McCartney III (2020) 2021 Deluxe Edition [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:77A2A263E21E61ECF42BC832485229570A6A64F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

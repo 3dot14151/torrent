@@ -19,8 +19,7 @@ Hidden Motives: The Diamond Rush (2021) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:B9F4B330328D2874AAA9602A169D0AFDD7128096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ As Far As The Eye (2020) [Ru/Multi] (1.0.5c2) License GOG [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:5D09FA88F77B52FBC03AD32A38DE17B791898739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A Tale for Anna / Сказка для Анны (2021) [Ru] (1.0) Unofficial [Col
 ```bash
 magnet:?xt=urn:btih:DDFE57A173FE6409242FC9945BE097DC89203DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Golf Club Wasteland (2021) [Ru/Multi] (7298022) License CODEX
 ```bash
 magnet:?xt=urn:btih:1B2843BDEE60E73CAB442C361CBA985C405C1F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Medium – психологический хоррор с видом от т
 ```bash
 magnet:?xt=urn:btih:5183A42BABFD48E07F294779091CF25FF32D04F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Big Rumble Boxing: Creed Champions (2021) [Multi] (6579165) License CODEX
 ```bash
 magnet:?xt=urn:btih:46F9E9C03466701D5F7C48747901AA061DBABA18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Arboria (2021) [En] (1.0.0.1055) License CODEX
 ```bash
 magnet:?xt=urn:btih:27C1A74083A8BD247C3E25DB1DFC0C4C20C9D3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Encased: A Sci-Fi Post-Apocalyptic RPG (2021) [Ru/Multi] (1.0.906.0546/dlc) Repa
 ```bash
 magnet:?xt=urn:btih:038E35420D07BEF50F2151A6B5F03C81BCD729E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ BloodRayne Betrayal: Fresh Bites (2021) [Multi] (0.95) License GOG
 ```bash
 magnet:?xt=urn:btih:152A90D5CD190B867777EDD9C8B4B1A6D051CEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

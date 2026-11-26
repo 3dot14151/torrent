@@ -20,8 +20,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:25ED8778139F13B7194A256C4DF04C808FDA0585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Toast DVD поддерживает прожиг фильмов на диски �
 ```bash
 magnet:?xt=urn:btih:E73233BBCABBF9D97517C49497D07EFCAA1B5201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Balabolka 2.10.0.570 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2EE735B3C34B0FEB4AC48FD792275AA952C59532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ VA - In Search of Sunrise 12 Dubai (Mixed & Compiled by Richard Durand & Lange) 
 ```bash
 magnet:?xt=urn:btih:CE487E47C5ACC7B7A7CF880563F5CBEFDA9545EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ VA - Nightflight Mallorca: 22 Premium Downbeat & Lounge Trax (2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:5298ADFCF4329E6D919B25F4DDA7D1C27FF2FB7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Nina Simone - Broadway.Blues.Ballads (2006) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:57D3430AA01AC13104B76667AB509719DF808520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ VA - Boundaries Of Imagination (Mixed & Compiled by Armin van Buuren) (2014) [FL
 ```bash
 magnet:?xt=urn:btih:CEDC82CFEBB71B092ECA5F443FE110EB84E48097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Rebekka Bakken - Little Drop Of Poison (2014) [FLAC|Lossless]<Vocal jazz>
 ```bash
 magnet:?xt=urn:btih:84D7CCD7FDFA813F7F28AD3C231B63985E458071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ The Fireman - один из экспериментальных проектов 
 ```bash
 magnet:?xt=urn:btih:5D513A6BD7AFBB0DC4CCDD2735A9D2B5A752408F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ VA - Летние интернет Новинки (2014) [MP3|256 кб/с]<Pop, 
 ```bash
 magnet:?xt=urn:btih:E5248727458D8F10076DEA3B406CFCAD86175420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA2ACDB4B22FF57C721D116C5EAD6A09C818A74E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6FC3650C60A6DC36C551F6611653D264C005A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ After Forever - Decipher: The Album - The Sessions (2011) [FLAC|Lossless]<Sympho
 ```bash
 magnet:?xt=urn:btih:DC91DE1F90396DBF1379E3DB9625DBF06CE801DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B93E818B8AD473E1F0BA6285C589ACD57834884C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ PDF XChange Viewer - отличная программа для чтения и 
 ```bash
 magnet:?xt=urn:btih:7F98124EB912CA1FE79A85155B7631B0511E2558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E85A4AC62EF3B78186987E3A468E6DD819C10B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CC11F6967050818D967E9EC0623463E8CEF9DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ Moderat - Bad Kingdom Remixes (2014) [FLAC|Lossless]<Techno, House, UK Garage>
 ```bash
 magnet:?xt=urn:btih:E195C6604A0DC48B3C2E0F7876DFAF34EC4079DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ Maxthon для Windows построен на движке Blink и позвол�
 ```bash
 magnet:?xt=urn:btih:F7230AE1E10A75CA04DED84482704C33A8F0808A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +604,7 @@ Weather Live 1.3 [En]
 ```bash
 magnet:?xt=urn:btih:D968233163F5A74C2FF77E8BFA0DD83E8357C720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60A3BF7A309FAA49797722213DA52E736596F62E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE9421B7AD6A87EE27066157796339B2B9CBB00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:589A0791DBDB228CB1ECE464514504DCAD129FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ Adobe® Flash® Player — это межплатформенная среда в
 ```bash
 magnet:?xt=urn:btih:B9E715F370B81336D44AE4A6072E2995736D24BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A9A910B2A02F448729EA3A1E2ED92122C4BEDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

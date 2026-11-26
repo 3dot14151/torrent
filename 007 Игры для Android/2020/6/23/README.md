@@ -19,8 +19,7 @@ Teenage Mutant Ninja Turtles - Recolored (8-Bit) 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:098930FD2CD43FA2E924940E87A2F56B20610762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

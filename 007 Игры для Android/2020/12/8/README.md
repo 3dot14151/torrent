@@ -19,8 +19,7 @@ Unmechanical — приключенческая игра, сочетающая �
 ```bash
 magnet:?xt=urn:btih:16035AE96D7C425B678EF64A433CE6708AD524DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

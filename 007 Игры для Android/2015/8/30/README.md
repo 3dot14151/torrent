@@ -19,8 +19,7 @@ Lara Croft GO 1.0.48285 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D594AD866BD0D61F8A4991DF5DA5B94D2D7ED7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

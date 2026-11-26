@@ -19,8 +19,7 @@ Cursery: The Crooked Man and the Crooked Cat Collector's Edition (2013) [En] Uno
 ```bash
 magnet:?xt=urn:btih:070A1E6BE646087FC4498589B7A047B21B8EC4D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Rhythm Destruction - это ритм-аркада, в которой Вы упр
 ```bash
 magnet:?xt=urn:btih:9E1BC09ACE0B98FB923405238F16C0BAEDFEDF83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

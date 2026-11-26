@@ -19,8 +19,7 @@ Microsoft Office 2010 Product Guides [2010] [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:6B18CE9CC9085D63E0436399D3EE5E1A233137F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

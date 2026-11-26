@@ -19,8 +19,7 @@ Alone in the Dark 2 (1993) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C443BFAE477E4541B058C758D1478B2954D182BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alone in the Dark (1992) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B797D0354A259DE82C60A11ABA90C7937EE4F101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alone in the Dark 3 - компьютерная игра 1995 года, трет�
 ```bash
 magnet:?xt=urn:btih:AB51383E316605032633E9DB908323791257E322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

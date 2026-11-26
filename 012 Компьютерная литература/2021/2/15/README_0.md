@@ -19,8 +19,7 @@ Larry L. Peterson, Bruce S. Davie | Computer Networks: A Systems Approach / Ко
 ```bash
 magnet:?xt=urn:btih:4C384BC13924BAA3D8758597C68C88369F0AA372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D36A01660F13D4550D59B60E4953D4F2B748327F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

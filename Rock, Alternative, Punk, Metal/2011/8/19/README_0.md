@@ -26,8 +26,7 @@ Max Pie - Initial Process (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:C5269E1810095ECEE54722374A375EE72ED82273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Cozy Powell - The Bedlam Years (1968-1999) + 1 Live [MP3|320 kbps]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

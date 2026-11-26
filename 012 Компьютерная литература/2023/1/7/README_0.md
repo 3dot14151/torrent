@@ -19,8 +19,7 @@ Adobe Press | Adobe After Effects CS6 Classroom in a Book [2023] [PDF, EPUB] [En
 ```bash
 magnet:?xt=urn:btih:84267D8FC1646C387B609FD646B779C86033808C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

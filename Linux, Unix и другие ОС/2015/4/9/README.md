@@ -19,8 +19,7 @@ JonDo 0.9.76.2 [анонимный доступ в сети] [x86] DVD
 ```bash
 magnet:?xt=urn:btih:94FF5200A2734470F5909BB8A3DC8F7AA7E1A8AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:C04DF36C1336CA9D639E12754C68DE9383E88EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

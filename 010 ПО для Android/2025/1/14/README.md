@@ -19,8 +19,7 @@ FotoTweak - AI Image Generator v1.0.46 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0D29082D5C9BB5796B6694282FAA61E1AC2C7C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Diabetes:M v9.0.8 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:43B5F83985B3200E4BDED085ECB86018F7F20DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Gif Me! – это лучший способ сделать из коротко�
 ```bash
 magnet:?xt=urn:btih:47DBE2C31A7FEC81A204DC990381D427A2B4F158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

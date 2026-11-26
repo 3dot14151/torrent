@@ -21,8 +21,7 @@ Musa Arda | Hands-On Python / Практический Python (2022) [EPUB] [En]
 ```bash
 magnet:?xt=urn:btih:1F816DAB95E7E85756E1EA72F459E230596E1959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04A7CC14DAFC506A57F2E2B19372D832716FED6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

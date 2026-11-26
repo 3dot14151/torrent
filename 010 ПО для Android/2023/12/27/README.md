@@ -19,8 +19,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.1.17 Paid [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5F409771CA30BEC8969361440EC8D1F61003A2C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

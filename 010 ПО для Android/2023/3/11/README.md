@@ -19,8 +19,7 @@ Floor Plan Creator v3.6.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B5AC32E72186846914FC374B9B33597B208BA136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

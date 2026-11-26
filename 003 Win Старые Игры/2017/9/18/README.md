@@ -19,8 +19,7 @@ Moto Racer (1997) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:9B17649A009E7BDF9D48F4BD84CF2523B9D238C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MegaRace 3 (2001) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A1067A22101B036A860355F9E0DEF7731CDB6152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Coffee Talk - это игра, где вам придётся выслушива
 ```bash
 magnet:?xt=urn:btih:5CC728EC15E63DFF5083D6C97D3B1B9FCCFD9050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

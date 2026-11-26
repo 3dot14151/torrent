@@ -22,8 +22,7 @@ Camel - Breathless (1978) Remaster, 1992, Dream [FLAC|Lossless|image + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:6C77B175536087FA3B0468C1500FA3556DC6881B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Camel - Rain Dances (1977) Remaster, 1991, Dream [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:1B5DB4FA13BFB96FDAA79AF01521EFB0EDF127F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:E4BF445AFC4E4EF99F25C8C68BB900F196245584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yakuza 0 Director's Cut - полное издание отмеченного к�
 ```bash
 magnet:?xt=urn:btih:31AA7FFC4D7F0843457C34C0E947413A6F9E84FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Yakuza 0 Director's Cut - полное издание отмеченного к�
 ```bash
 magnet:?xt=urn:btih:CF71BBCA9C30D4B58DB4FC69AC8725D54FFFD670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Heading Out (2024) [Ru/Multi] (1.047) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7AD5C97337C39ACB2BE2D4458B66E00A62B9FCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Cold White (2024) [Ru/Multi] (0.0.11) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:924B6D66185292A52C730490288805C43548E8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Cold White (2024) [Ru/Multi] (build 21100504) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E5AB5701C1407D55D1AFD320252BB21EDB54DA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Cold White (2024) [Ru/Multi] (0.0.11) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AB1FC9A341681C4A318C401F93D5595DF7B3E9BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.1/dlc) Scene voices38
 ```bash
 magnet:?xt=urn:btih:7EF470B7FD47E7C8357A31517BB49040D3409273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

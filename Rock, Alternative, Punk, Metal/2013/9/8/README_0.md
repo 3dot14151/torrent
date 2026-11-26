@@ -28,8 +28,7 @@ Bilskirnir - Wotan Redivivus (2013) [FLAC|Lossless]<NS Black Metal>
 ```bash
 magnet:?xt=urn:btih:DE4B59D70AC972EB25C9645FCE476118C20C0BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Messenger - Starwolf Pt. 1: The Messengers [Digipak Edition] (2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:8633DE7BFA57D1D4C539FDABC48C326E935A1A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Suddenlash - Soul's Revenge (2013) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:A45AB07A257E235027F02ADA905EEBA4D9BDC506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Void Zero Mess - For People Who I'll Never Forget (2013) [MP3|320 кб/с]<Melod
 ```bash
 magnet:?xt=urn:btih:8353893415E08651FCD9D74F09F7BC07DE00AB4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Naked Rebel Party - Anybody Wanna Burn? (2013) [MP3|320 кб/с]<Rock, Hard Rock
 ```bash
 magnet:?xt=urn:btih:2358D7253EEBDD3E0A275849E81275D4523899EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Willy Moon - Heres Willy Moon (2013) [MP3|320 кб/с]<Rock, Pop Rock, Rock 'n' 
 ```bash
 magnet:?xt=urn:btih:96BEE10605C2800A60E911702855F9BB40828097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Schongeist - Wehe! (2013) [MP3|320 кб/с]<Gothic Rock / Industrial Rock>
 ```bash
 magnet:?xt=urn:btih:5319C73C3891B345303E98992A3140CEDB4258E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Viikate - Kymijoen Lautturit (2013) [MP3|320 кб/с]<Melodic Heavy Metal, Folk 
 ```bash
 magnet:?xt=urn:btih:BCA10170C2080D6B8A3514F066D6820F13C6C2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Katatonia - Dethroned and Uncrowned (2013) [FLAC|Lossless]< Depressive Rock / Me
 ```bash
 magnet:?xt=urn:btih:BD39CE17CBC5C50C29434182EEC55C84337CCA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ VA - The Guitar Album (1997) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:3C0A9777CE9FCB47E4DEF2931024AC00C820329E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ Sulphur Aeon - Swallowed by the Ocean's Tide (2013) [FLAC|Lossless]<Blackened De
 ```bash
 magnet:?xt=urn:btih:F3A89D04363BAC49553A8EE133BFCAE05D0DAD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +398,7 @@ Richard Marx - Stories To Tell (2010) [FLAC|Lossless]<Acoustic Rock>
 ```bash
 magnet:?xt=urn:btih:6C5BCC2970E2F8E55D19FA55F254B7071E4238B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D7E7796DF90CF7DC606F604A3BAA8DCED503CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +460,7 @@ Sheryl Crow - Feels Like Home (2013) /Scene/ [FLAC (tracks+.cue)|Lossless]<Pop R
 ```bash
 magnet:?xt=urn:btih:DEFCAFFC418D671F67EAD8F951D99C86D4AB2A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +494,7 @@ Placebo - Loud Like Love (2013) [FLAC (tracks)|Lossless|WEB-DL]<Alternative Rock
 ```bash
 magnet:?xt=urn:btih:0DE5ED2DBFEE65D9BB7548C6D0DED15A995133FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A3E6119E94850C3C74DB7E22054D9E2F9BC8C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Skyland: Heart Of The Mountain / Небесные Земли: Пробужден
 ```bash
 magnet:?xt=urn:btih:C049918B186307BB439D81A6368F870CE198C1B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

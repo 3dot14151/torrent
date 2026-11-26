@@ -19,8 +19,7 @@ IconTo Pro 7.5 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:678E5D17ABCE4A47D5E34DB87980068F5D726EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SyMenu это средство позволяющее объединить вс�
 ```bash
 magnet:?xt=urn:btih:2939CA3959085B861C74E0079BCEE9721D3817C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NetSetMan - бесплатная и удобная для повседневно
 ```bash
 magnet:?xt=urn:btih:48A213814C12625C34BA46AAED5C3350EB095C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 ```bash
 magnet:?xt=urn:btih:4C50FA1D0DCDFCF1865339C3D7DFB44C5E0E657E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ HashTools - удобная утилита для вычисления и про�
 ```bash
 magnet:?xt=urn:btih:1EE2F606641D85112194C963A6A7B44EEB3EB006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

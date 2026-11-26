@@ -22,8 +22,7 @@ Lysithea - Realms (2015) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:82565105C3842FA1DD5277D2F6E99A6D1B0B8BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Grass Roots - Leaving It All Behind (1969) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:2E60D5C7B561CF9D9FD99798D0905C43BE58EB71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chaos Divine - Colliding Skies (2015) [FLAC|tracks|WEB-DL]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:F506763610A7C63422CA67428D571F92179FE369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fear Factory - Genexus (2015) Deluxe Edition [FLAC|tracks+.cue]<Death / Groove /
 ```bash
 magnet:?xt=urn:btih:01652E8C721FA5F11B91B5ABDC743D506101C376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Queen - MTV Music History: The Greatest Hits III-IV (1999) 2CD [FLAC|image+.cue]
 ```bash
 magnet:?xt=urn:btih:3931668BDC290BC7CDE35F4C2A8B0B9B8AA6C717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Queen - MTV Music History: The Greatest Hits I-II (1999) 2CD [FLAC|image+.cue]<R
 ```bash
 magnet:?xt=urn:btih:1B3131CC0AC270A10BC51F2A487CF9528B0E4FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

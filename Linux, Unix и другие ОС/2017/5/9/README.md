@@ -19,8 +19,7 @@ ZVVАнекдоты 0.2 [x86-x64] (deb)(обновляемая авторска�
 ```bash
 magnet:?xt=urn:btih:EBE5A57E54BC9329FDE485185876317B5FD55527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

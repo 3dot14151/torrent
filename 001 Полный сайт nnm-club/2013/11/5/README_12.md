@@ -28,8 +28,7 @@ Franc Albir - Tres (2013) [FLAC|Lossless]<Crossover Prog, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:9B805839990F6FF85ABB465836DBA6921E89B9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Diana Jones - Museum Of Appalachia Recordings (2013) [MP3|320 кб/с]<Country, 
 ```bash
 magnet:?xt=urn:btih:D6F272190F978419DDB1ACE00A341F95B0A49AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Excelsis - 6 альбомов (1997-2013) [WavPack|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:D3DBAAAB5FDB66D2492083D14BDEE2949975E5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDD75C34271B68BF24B7B538A2B9AE07E09DDFA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Black Hole Recordings October 2013 Selection (2013) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:B5C4ABE86AB15326AA853053A174CB4667811DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Angel Starway Azure (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Progress
 ```bash
 magnet:?xt=urn:btih:5105AB3C76EB0770BA3DF31898AD122E3C838399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Smiercieslau - Cjomny Pryliu Razburennja / Ciemrazou (2013) [MP3|256 кб/с]<Bl
 ```bash
 magnet:?xt=urn:btih:5F4D47B767D378B081FB820A2CF40CCC2CC9609B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Holly Williams - The Highway (2013) [MP3|320 кб/с]<Country, Folk>
 ```bash
 magnet:?xt=urn:btih:79B897100496BDF3DBF6327E5992C8CD1324E6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Ashley Monroe - Like A Rose (2013) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:99DD21EB8B7542E1BCD04FB7D30FECFC4D56596C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFE854C07678C6E4FD1CCDDF3F04BA7BECDA41E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ VA - D-Lounge Favorite Songs Volume 1 (2013) [MP3|320 кб/с]<Downtempo, Trip-H
 ```bash
 magnet:?xt=urn:btih:764EE31CFBF5B23D94F6C27007552C3C2114CBB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ VA - Zirkus Zirkus Vol 4: Elektronische Tanzmusik (2013) [MP3|320 кб/с]<Deep 
 ```bash
 magnet:?xt=urn:btih:2DDFA2558FCC94872A9A18812668257CF06CFECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +417,7 @@ Sally Harmon - Sweet Nothings (2005) [MP3|320 кб/с]<New age, Instrumental>
 ```bash
 magnet:?xt=urn:btih:D7BFEA5FAE9AE28759FD9D4B367401BCD60F1266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5C38240A15355BEFFD5DC25BF631A3590369F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +474,7 @@ Enrico Fazio Critical Mass - Shibui (2013) [FLAC|Lossless]<Free Jazz, Contempora
 ```bash
 magnet:?xt=urn:btih:DCD1AE2297AA359E937B20DC9F88E079877B8EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +508,7 @@ Jenya Didur - Повсюду (2013) [MP3|320 кб/с]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:15937BD48306A498000C069FA55987D0A90A0AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +542,7 @@ Sixsense - Atoms (2013) [MP3|320 кб/с]<Psy-Prog/Full On>
 ```bash
 magnet:?xt=urn:btih:634BDE33F79C9B4E08EA030B895587FF5745BBFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41CE4723A65EB8290E1972BC5FE65F04171F680B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFE3A17D6F3B7C7BB1331EB180A8F17D934DBFAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +626,7 @@ Bill Wren - One Day in a Life (2008) [MP3|320 кб/с]<New age, Instrumental>
 ```bash
 magnet:?xt=urn:btih:D16192084270310FEB7F57BFC5DE2F8803DA3221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +660,7 @@ VA - Shining Sleep Vol.2 (Compiled by Solarsoul) (2013) [MP3|320 кб/с]<Chillo
 ```bash
 magnet:?xt=urn:btih:39B0710ABE127E34DBCA4749F65FFD1360B41DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBBA7730C0DDFB018EE80BD27A71BB2EDDE71A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +720,7 @@ Edelis - Logos (2013) [MP3|320 кб/с]<New age, Ambient, Enigmatic>
 ```bash
 magnet:?xt=urn:btih:B7948B3144D956A52E48D5108F503729714291D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +754,7 @@ Sipan - El Silencio De Nazca (1997) [MP3|320 кб/с]<Folk, Native american, New
 ```bash
 magnet:?xt=urn:btih:B5C2C8959D86BF34B197C25B5B432A76FBAC73F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -812,8 +788,7 @@ VA - Best of In Da Club Vol.21 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Up
 ```bash
 magnet:?xt=urn:btih:AA8DBDD2296D9A4164CE840339A5B8F6CF3DAD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -838,8 +813,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E74CB1FD3046F24326944339D7A8ADFD6FAE3721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

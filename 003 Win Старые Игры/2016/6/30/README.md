@@ -19,8 +19,7 @@ Guitar Hero 3: Legends Of Rock / Guitar Hero 3. Легенды рока (2008) [
 ```bash
 magnet:?xt=urn:btih:C2A7787708A430F2A31278D481F348F9D3F2F087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

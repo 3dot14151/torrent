@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9E64BB1CC08018FA0154DFA2FC52C79EE8DB4D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ ProfIT | PHP-3: Повышение квалификации (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:237425EC249CB1F47A33A1F96151E890F0EFDD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94E5BDB78433AD3953A0D13224C4F57DD0105C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ SamDrivers 16.5 - Сборник драйверов для Windows [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B55A3D4B580DC8A98B20F700A6AE9F5EF29DF004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ DriverPack Solution - это самая популярная программа 
 ```bash
 magnet:?xt=urn:btih:6B30EDE124906E55F2E0657B81AAD43DAF5BA8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Legend of Zelda: The Wind Waker HD - долгожданный ремейк од�
 ```bash
 magnet:?xt=urn:btih:AFBFC5D992263FE6B957837D644E29F1F9705E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Need For Speed: CARBON / NFS: CARBON (2006) [Xbox] [NTSC] 5101 [СофтМод] 
 ```bash
 magnet:?xt=urn:btih:071925AF2CF4052E56D868EBC5E076702F8CA401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1DEE9DB3C47D791FC7C48B4380BB91C455E0E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D81E48B5EE8005630E4BFEC6D9B0B120FE1558D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Crysis 3 (2013) [Ru/En] (1.3/upd3/dlc) Rip =nemos= [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:02D8F5AD7A821B25D4BE3A0F94E3BEA6D399344B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

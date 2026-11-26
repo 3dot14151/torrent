@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:9ABBDF48FF82F012311436694A5F1BD038A9A7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Aura - Злая магия (2019) [FLAC|Lossless|image + .cue] <Symphonic Gothic
 ```bash
 magnet:?xt=urn:btih:AD2E55389718641D28028EDC3B831B2747B0D7EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

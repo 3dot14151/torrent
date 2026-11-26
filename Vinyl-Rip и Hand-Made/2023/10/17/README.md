@@ -22,8 +22,7 @@ A1d Seasons Of Seclusion (The Prison)(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:8923432A52D32990EDE7E67455F82C62975E5B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ B1 The FrightЖанр: Black Folk MetalПродолжительность: 00:10
 ```bash
 magnet:?xt=urn:btih:A886DDBFF03D3C7ECFAC8C49F90F5501A1DFB3C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ A3 Ut I Vannets Dyp Hvor Morket Hviler(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:CEB7A67230D97F07FF5E23B6F1CAC4671B51BD22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ A4 The Roads To Iliad (Instrumental)(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:7C9ECF181107B420F04BB08026294B065A36FCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipp
 ```bash
 magnet:?xt=urn:btih:8A0EF62DE8E88FA13753CA465DF20F32333DA12F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made 
 ```bash
 magnet:?xt=urn:btih:7D67D9705AEE695FE8DEBAE596892AD2401AAE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Guns N’ Roses — американская хард-рок-группа, сф�
 ```bash
 magnet:?xt=urn:btih:B782358CD196C28E1086295ACB91B7C98B18E967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Kerio Connect 7.0.0 Patch 2 1191 от 17.03.2010 [Multi]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

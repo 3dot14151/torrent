@@ -19,8 +19,7 @@ Magic FAT Recovery 2.8 Commercial Edition Portable by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3A6EFBF43A3B2220A88CB588ECF7A18C5E6C6E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

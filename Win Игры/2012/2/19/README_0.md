@@ -19,8 +19,7 @@ The Scruffs 2: Return of the Duke (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:8C1D1715207CEF4E2E713AC3EBA099288498AF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aaron Crane: Paintings Come Alive (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B6015E9D15E74E32EF38EE3A082C082CA6A26384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Surprising Adventures of Munchausen (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:D1D85C9D93A789DA7489115226620479CAC546DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4287AEA0520080C0AF5B6A1ADBE8CAD264C9B4E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Mafia II создана на специально разработанном г�
 ```bash
 magnet:?xt=urn:btih:A766AC45B97C0BAC791DAE328615D954C16D6392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7D2564F2F43C0B36AE7E07471A0C09A7CA96420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA4B21AE0806E6BAB7B5791B1296D79E8B67FD35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ LEGO Chess [Ru] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:E97B314BB848D69E7F42348F9EA83E1357C386BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3E3C6C6A0D7ECF5FA9CB36BBBA455F7F199F120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ The Rockin’ Dead / Рок-зомби 3D [Ru] (L) 2012 | R.G Игроманы
 ```bash
 magnet:?xt=urn:btih:8F90A3865AADAC605DEA2AB0390C04B474430CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBF0BEDD4916BB577EC24A839EB41A98199C90AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 ```bash
 magnet:?xt=urn:btih:996BF06EBB7D897B3ABD3B477B8B3C036B74291E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF3F1B2FC86B64B6BD5FE53028A3C4E544C021CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB8A74391293C07EF31F3D067D847C4EA5AEFC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Fruit Mania (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:393479CF185D786BD6DDA5A008DE786AF84B356F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

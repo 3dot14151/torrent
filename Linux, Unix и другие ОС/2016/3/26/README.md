@@ -20,8 +20,7 @@ Box Shot 3D - Это программа, которая дает возможн�
 ```bash
 magnet:?xt=urn:btih:8992581C285D0E9AEB3B6C1071153D9E1B0F32E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

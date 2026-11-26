@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:67C6185844AFE806041BC61FD870C6D400D41436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1E79194C446B64405007E1D6CBCF97A9DC5E3AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Parallels Desktop for Mac 10.2.1 (29006) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7F3E82F1E345779338DBDD90C6B5F195EFA5CD8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52311A0524F5A4A7AE4AE8F6DDDABD3E003118AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ CST Studio Suite 2015.01 SP1 [En]
 ```bash
 magnet:?xt=urn:btih:3D3B4C8EB949610DF4B92D7F48202975DCF31F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCFE193605E5DD3C5865B24C2F5CEDD698F6C61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30CF96925B05E9EE2FAD0995D4917C844495A043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Once Upon a Time — сериал в жанре фэнтези, действие
 ```bash
 magnet:?xt=urn:btih:0854C2C640D187E105F1439D34D4778B4E6519BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ The Sims 4 — игра-симулятор жизни, которая позво
 ```bash
 magnet:?xt=urn:btih:2B9D8710AE57E08C5AF32B46F931B4CDA164F929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

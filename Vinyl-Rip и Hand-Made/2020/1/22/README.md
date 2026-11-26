@@ -19,8 +19,7 @@ Ganymed - Takes You Higher (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Space Disc
 ```bash
 magnet:?xt=urn:btih:1CD221706D5CE2DBD3A7C14822756D2C650B7812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ A4. Sleepwalker [3:59](   Читать дальше...   )Жанр: Classic Rock
 ```bash
 magnet:?xt=urn:btih:9376BEAE5A29C18B47CE25A6EFCFE5EABF9CD87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ A4. It's A Tragedy [3:46](   Читать дальше...   )Жанр: Pop Rock�
 ```bash
 magnet:?xt=urn:btih:9111109BDBD0C64D61B0893E97538FC6A70C4DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ A4. I Need You Tonight [6:19](   Читать дальше...   )Жанр: Blues
 ```bash
 magnet:?xt=urn:btih:649A4065E96CA76523E5EF416037BDAB6447A3E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ A4. Rough Boy [4:52](   Читать дальше...   )Жанр: Blues Rock, Bo
 ```bash
 magnet:?xt=urn:btih:20862BD072C598941E34C51F827EE8A3B26CF3AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ A4. С кем ты? [4:42](   Читать дальше...   )Жанр: Heavy Me
 ```bash
 magnet:?xt=urn:btih:900CE1073B6C42AFB874206A2E8975FC574932F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Guns N' Roses – 9 Альбомов (1986-2008) [FLAC 2.0 24/96|tracks (Vinyl-R
 ```bash
 magnet:?xt=urn:btih:993453754ABF40BD554628D4FE192E72A1E62189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

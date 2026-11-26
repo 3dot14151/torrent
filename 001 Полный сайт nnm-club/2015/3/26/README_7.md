@@ -23,8 +23,7 @@ Downfall Of Nur - Umbras De Barbagia (2015) [MP3|320 кб/с]<Atmospheric Black 
 ```bash
 magnet:?xt=urn:btih:D112FFAC3BF427EE86991B874911844D3F8DE0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Richard Wyands - Half and Half (1999) [FLAC|Lossless]<Jazz, Hard Bop, Piano Jazz
 ```bash
 magnet:?xt=urn:btih:71F143DABC61110528C33BB0576050FD53C9A91E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBB0AA2630D5361A7BEBE9DCBEDE3E391A9F5003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Art Blakey's Jazz Messengers At Birdland - Ugetsu (2011) [FLAC|Lossless]<Jazz, H
 ```bash
 magnet:?xt=urn:btih:5DBCB46FDC2B5D8197DD9D9144D8E1DCED98F10A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ VA - Discover Digital Sessions 002 (Mixed By Rich Smith) (2015) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:470B4AAE95AF30064A514A660C716C2DC460487E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ VA - Quiet Now: Music For The Way You Feel (1999) [FLAC|Lossless]<Jazz, Vocal Ja
 ```bash
 magnet:?xt=urn:btih:B51C800CCE3C6C88AA3002403EE3E9AC8D03958B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD016058FFABD6C4CB73BA0BF5696799A2FE24BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Maiak - A Very Pleasant Way To Die (2015) [MP3|320 кб/с]<Post Rock, Post Meta
 ```bash
 magnet:?xt=urn:btih:9F2079D9F3475C1873D1A9D93B67BE9CD6BC9F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:175FFBC3477D9841AF0A29C8AF23B470A6EA793B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Asonat - Love In Times Of Repetition (2012) [FLAC|Lossless]<IDM, Downtempo, Ambi
 ```bash
 magnet:?xt=urn:btih:8D8BA670DE0CD8A60965E675CCF14177782CC03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Amalgam - 2 Альбома (1969, 1977) /Reissue 2007, 2008, FMR Records, UK/ [F
 ```bash
 magnet:?xt=urn:btih:D650391298B35BE86BC47205B5DFF4939AF31A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEB2502213905D3D44DA17DBF6CD807C629A8F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:188FB297B9A5731262AC1D64BC64016AC62C64E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ VA - Sauna Dream Songs (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:BC53A16A9BD9DACD03CD86C0C108123AF4E2302A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F570D0CC6D79311AD22C827CD87327B02B377F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ David Golostchekin & Jazz Old Trio (Давид Голощекин и джазо�
 ```bash
 magnet:?xt=urn:btih:F92FC83DBEC3EB4ED223E4C0F2D9991F32E2E177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2476178F249A8FDDD6A142560479072B336ECF8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FA064AB6E9FE3ED9E0EF39B2063CA9ABCDAF907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9DDCE9F0BB9B162BFB274A9AA45972EF6C1B577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ Scuba - Claustrophobia (2015) [FLAC|Lossless|WEB-DL]<Techno, IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:6A32D4A580AF868F57D12BE0E8C3B33F7A93AA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E83B30F8AC55DA515AC6ACF1203873F56A57B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9B4AE8A9ABE2BDB092DD3D7864DB2BB027FFF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ VA - Straight Up Dubstep! Vol. 14 (2015) [MP3|320 кб/с]<Dubstep, Grime>
 ```bash
 magnet:?xt=urn:btih:DEC0D7D3EC05590B334B8AE1BF51DB698E804B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9C490CA7A4A94E65776DA664F91824E8538D1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C74C6D11A18B164D792BA6487130383D89A8BFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

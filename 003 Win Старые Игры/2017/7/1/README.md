@@ -19,8 +19,7 @@ Post Mortem (2003) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1E221A322A8CA2438A87F1F541737BB36C7E2B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Magic Photo Recovery может успешно восстанавливать г
 ```bash
 magnet:?xt=urn:btih:E6B4EEFFB37EF94ECE00250C9335B909425DB22E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

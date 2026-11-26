@@ -19,8 +19,7 @@ CentOS 6.5 [i386] 3xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:88BEF9EBF0C45F5066A12555AE803BF397ED90F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Oracle Linux 6.3 доступен для архитектур x86 (32 bit) и x8
 ```bash
 magnet:?xt=urn:btih:AB6A9672EBB19CCB62DC09F93E1504EE05B6AA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ CentOS 6.5 [x86-64] 3xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:A55FFDD710BBADA6589661AAF056087FB642B2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Rammstein - Mein Land (2011) Single [MP3|320 кб/с]<Industrial Metal / Neue De
 ```bash
 magnet:?xt=urn:btih:97DA233EDC2E854D1382741D2244025A6A34E7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Nemesea - The Quiet Resistance (2011) [FLAC|Lossless]<Symphonic Gothic Metal, Fe
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

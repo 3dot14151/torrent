@@ -22,8 +22,7 @@ A4 She Wears Red Feathers(   Читать дальше...   )Жанр: Rock & Ro
 ```bash
 magnet:?xt=urn:btih:0C8A514231E2261B29223ECF9DD587A09A599159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Alien Nations / Затерянный мир (L) [En] 1999
 ```bash
 magnet:?xt=urn:btih:8BC4A6A93A0A550E9A8E391164E07B75B4F59525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

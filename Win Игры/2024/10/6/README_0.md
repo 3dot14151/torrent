@@ -19,8 +19,7 @@ Starfield открывает новую главу в игровой вселе�
 ```bash
 magnet:?xt=urn:btih:783E04DB9496F4AD81DC74FB1E374B43321BEA21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Steamworld Heist (2016) [Ru/Multi]  (2.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:334A160723EDD6DC01EC8E6E52F6B17D90D4B03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 ```bash
 magnet:?xt=urn:btih:538B4ED47182BE487658982DAF8BB243B5BCCAE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.2.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A806BA0BE2E2DDE3FAE0234981122B483A8E7553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ HellO — это крупнейшая компания по поставкам �
 ```bash
 magnet:?xt=urn:btih:1CD62C52E7A9705C4CEADBF8E11AA38247BF6686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Times and Galaxy предлагает стать робо-репортером �
 ```bash
 magnet:?xt=urn:btih:28857B930382A1518897330FD4668902CA83C7A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

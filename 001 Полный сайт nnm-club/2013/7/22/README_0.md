@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:AA0B148563082B28FDAAF2912EAA02779F13FCEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ PGWare SuperRam - утилита для оптимизации и управле
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86438379D7F196C621B35F55E2597455EE8602CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ StylePix работает с основными форматами файлов:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Miami Chill House Suite (2013) [MP3|320 кб/с]<Chill House,Deep House>
 ```bash
 magnet:?xt=urn:btih:391C3E81FBB92A11B66545DB0D86A882E6CA745E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ A5 Slow Marching Band [3:41]Жанр: Prog Rock/Classic RockПродолжите
 ```bash
 magnet:?xt=urn:btih:D30700CE3A8C9FA4B7AA009A39B52AC7A880957B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Process Lasso Pro - позволяет вручную или автоматич�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Unstable Elements - Technical Illusions (2006) [FLAC|Lossless|WEB-DL]<Psybient, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ PCBoost пользуется этим, выделяя больше ресурс�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Ministry of Sound: The Sound of DubStep 4 [2CD] (2012) [MP3|320 кб/с]<Du
 ```bash
 magnet:?xt=urn:btih:0DA7BE5DE909EDDA521A52FBA6D067DC23FF1116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B881513EE781C984462BE9A4E92B56C707B91942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Q-Dir — файловый менеджер с очень малыми сист�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ Producer – John J. Vis, Ruud Jacobs
 ```bash
 magnet:?xt=urn:btih:7BEB613F15E0BB03F0532868A1BB154B856DE892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ A5. Egy nap (Somlo Tamas - Gati Ivan) [5:14]
 ```bash
 magnet:?xt=urn:btih:CB08F3FC45FC77BFB44BB330E4879B3CF0849436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ K.R.A - Kozz A Nostra (2013) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:E75305715AB9CA28857E58A091311DD472CE47DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ Ocean Drive feat. Aylar - Some People (Official Video)Жанр: DanceРежис�
 ```bash
 magnet:?xt=urn:btih:DAFC35D0EC3AF11301D3565D12A316F78C84681A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD0CBC34858DE79FDF341297DB059E19D719FFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ VA - 120% Soul (Box Set 6 Cd) (2004) [MP3|320 кб/с]<Soul, Funk, R&B>
 ```bash
 magnet:?xt=urn:btih:5FD52712DAC2A9352D6116742D6CC726A6060647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +588,7 @@ VA - Dubai Chill House Suite (2013) [MP3|320 кб/с]<Chill House,Deep House>
 ```bash
 magnet:?xt=urn:btih:F950CE6F1AAE8E67E724BDAE15C80CE747B63BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ Todd Boston - Touched By The Sun (2012) [FLAC|Lossless]<World, Fusion, NewAge>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +656,7 @@ VA - Только новинки от VANOVLAD 50/50 vol.1 (2013) [MP3|128-320 �
 ```bash
 magnet:?xt=urn:btih:A18524CFE086389F34021733327CA2FAA44B98D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ Alice Francis - Gangsterlove (2013) [MP3|320 кб/с]<Nu Swing, Nu Jazz, Electro
 ```bash
 magnet:?xt=urn:btih:6F0055D6002942DAD9E83475BAF55D1669C6D22F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +718,7 @@ Jaap van Eyck / Bass(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:9979A62780B42C95AAAFE06C1AAA5A3EBAC3C094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +743,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -794,8 +769,7 @@ Maxthon - один из самых прогрессивных браузеров
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

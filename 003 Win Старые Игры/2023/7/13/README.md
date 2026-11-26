@@ -19,8 +19,7 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 ```bash
 magnet:?xt=urn:btih:A5AD6AF61E6F891FADEB72599820BB730510D9B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ M1 Tank platoon II дает вам командование взводом из 
 ```bash
 magnet:?xt=urn:btih:C92699C8900C7231A47FCE9F020DB060EABB8C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

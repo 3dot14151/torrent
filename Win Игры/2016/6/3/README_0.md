@@ -19,8 +19,7 @@ Chimeras 3: Cursed And Forgotten / Химеры 3: Прокляты и забы�
 ```bash
 magnet:?xt=urn:btih:FE3B1F4525B94F1803440D27FC9ED61649C2A5B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dangerous Golf – аркадная версия гольфа с реалист�
 ```bash
 magnet:?xt=urn:btih:648DF8170920F0962001CA1A10D5D9E7CE65A755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Adele: Following the Signs - 2.5D платформер про выживание
 ```bash
 magnet:?xt=urn:btih:FA7A1A01F597FE41BE18B32BEB05C0FE965748B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Senran Kagura: Shinovi Versus — это новая экшен игра от Я�
 ```bash
 magnet:?xt=urn:btih:0ADF96F6003108FB73DF6B47657060DA1F57C1E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Speed Busters: American Highways (1998) [En] (1.0.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:4FFE5995C9D346513434BF030664561DE7677B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Wars: Shadows of the Empire (1997) [En] (2.2.0.11 GOG) License GOG
 ```bash
 magnet:?xt=urn:btih:67C0395E01EAEB3FCF8AB203EF3282F7CD007F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

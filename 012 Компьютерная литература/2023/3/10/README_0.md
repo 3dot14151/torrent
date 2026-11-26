@@ -19,8 +19,7 @@ John Paul Mueller | Beginning Programming with Python For Dummies, 3rd Edition (
 ```bash
 magnet:?xt=urn:btih:E5B8A92D08FC032E087E37F443004AA65ACE9E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alan Alickovic | React Application Architecture for Production (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:CEACD5338203205B10996C81431AB605D81A48CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

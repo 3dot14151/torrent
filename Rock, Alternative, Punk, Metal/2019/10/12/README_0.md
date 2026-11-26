@@ -22,8 +22,7 @@ Cornerstone - Arrival (2000) [WavPack|Lossless|image + .cue] <Hard Rock, Heavy M
 ```bash
 magnet:?xt=urn:btih:E33A02654B48CF26EF70ABDAC20D8F3143A99432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Butthole Surfers - Independent Worm Saloon / Electriclarryland (1993/1996)  [FLA
 ```bash
 magnet:?xt=urn:btih:018857316AD2EB903193EF307A9E2635DE8AC44F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87E089AB8DCD19EE7FC7507E1099B7B9B4970247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

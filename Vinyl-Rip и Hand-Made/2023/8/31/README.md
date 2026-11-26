@@ -22,8 +22,7 @@ A4 Отпусти Меня • Wind Me Up (Let Me Go)(   Читать дальш
 ```bash
 magnet:?xt=urn:btih:E61452C9C6E7AEF199D480DD15A53C0FC43247D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 Ikarus II(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock�
 ```bash
 magnet:?xt=urn:btih:AE1CF28EF9E05935C863CA97D823895B01242E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

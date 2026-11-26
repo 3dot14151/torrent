@@ -22,8 +22,7 @@ Havok — американская трэш-метал группа из Ден�
 ```bash
 magnet:?xt=urn:btih:DDC5911D7DEC647FFBAABEF25AFC6494DF00F3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Within Temptation — нидерландская симфоник-метал-г�
 ```bash
 magnet:?xt=urn:btih:FA239E1F5863B411FA77A4621A3C3498E95F03DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

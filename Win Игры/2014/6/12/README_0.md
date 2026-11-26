@@ -19,8 +19,7 @@ Munin (2014) [Ru/Multi] (1.0) Repack xGhost
 ```bash
 magnet:?xt=urn:btih:CF44A468CBB743538223AA4E4FEF3C3081F58800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

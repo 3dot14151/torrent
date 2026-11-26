@@ -19,8 +19,7 @@ Nevertales 8: The Abomination / Несказки 8: Мерзость (2019) [Ru]
 ```bash
 magnet:?xt=urn:btih:B61A3A1A35C81ECC72464A608DC64DE007D597BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Effect 2 — научно-фантастический шутер, прод
 ```bash
 magnet:?xt=urn:btih:8311724000282902AAAA52E471CB3F64841381FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Occupation — это захватывающий триллер от пер�
 ```bash
 magnet:?xt=urn:btih:F255BC0B5129FAC70C88AD3F7A1CE35BA44E9F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Plan B: Terraform (2025) [Ru/Multi] (1.1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1E5FA4DB58CD4A0CE29F8339627B39B307449CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Final Fantasy XV: Pocket Edition - это компактная адаптац�
 ```bash
 magnet:?xt=urn:btih:9244E20889BCEA22FA5FAAA84998FD59C7D20A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

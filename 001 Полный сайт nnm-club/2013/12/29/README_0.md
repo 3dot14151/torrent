@@ -27,8 +27,7 @@ Jimmy Martin - Wild At Heart (2013) [FLAC|Lossless]<Melodic Rock / AOR>
 ```bash
 magnet:?xt=urn:btih:0C970BED3A3F79F3B1680E5551A5DC4439C09968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Yeahwon Shin - Lua Ya (2013) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:79963844B2632B10CEBF806A92F80533FF304B4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Leif Shires - Cool Jazz Christmas (2010) [FLAC|Lossless]<Jazz, Christmas>
 ```bash
 magnet:?xt=urn:btih:EB8D5925924582A8572A21C12C35D4A34900B80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Brokenkites - Deplorable Words (2013) [FLAC|Lossless|WEB-DL]<Сhillbient, Downte
 ```bash
 magnet:?xt=urn:btih:DB2BB59AF83458D16BBAF24F87364E0531B88BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ VA - Клубные Новинки Vol. 355 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:9D17E05A1F2AA0FFEA85DFF4F5FFD0A48174AEDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74EC9E93AAAF07879347D90006A62FF5A004F932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Silent Voices - Reveal the Change (2013) [FLAC|Lossless]<Melodic Progressive/Pow
 ```bash
 magnet:?xt=urn:btih:280753419EF0177FB97E17360780A5C7E04753F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:710A4B105612E3F314E8C8F4D86E6911083BFEFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ VA - Orbita Solaris - Sacred Sequence (2013) [FLAC|Lossless|WEB-DL]<Psybient, Do
 ```bash
 magnet:?xt=urn:btih:FA90B464E5D96F5A41B37BC6537D45BE2C1DC6A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AF44CC299C93A5ED05180F45D3D3EBBE473ECD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ Bram Stoker - Cold Reading (2013) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:14B09B2E9719AC0C8D2C66DD9B71673708506914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +371,7 @@ Ralph Alessi - Baida (2013) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:5223193DE082632EC91C324EEA352B034EE33D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CB89F8B28E266C5D02D6A6D993571751DC7B085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ VA - The Best in 2013 (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:C1AE4CEA9B58F4B26798DBC63A1AD27AAD4731D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ Cakewalk - Transfixed (2013) [MP3|320 кб/с]<Psychedelic Rock, Progressive, Av
 ```bash
 magnet:?xt=urn:btih:FDE264CF866D7652D18C1BCF49B88EDF7CA1FCBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +494,7 @@ VA - Lights of Ison (Compiled by DJ Rem) (2013) [MP3|320 кб/с]<Progressive Ps
 ```bash
 magnet:?xt=urn:btih:95A392B6246ACC448D09B6DBC79C8D55090DF76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +528,7 @@ VA - Playaz: The Annual 2013 (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1D2AE5415557AD5206A7DAA9315BD8513E1BAEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D933B76FBA873FEEE088480AAC750317345B3D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B226D36E1F1D1BBCDF60E7EA7B36A0A5B8F0C509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +612,7 @@ Mordacious - Kingdom Of Fire (2013) [FLAC|Lossless]<Dark Electro, Industrial, EB
 ```bash
 magnet:?xt=urn:btih:F4135B3EDC560FFC87CB1262FE7540308E33ACB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +646,7 @@ Bob Dee With Petro - Burning Rain (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8F78AAD2DF7DB83D9E7A2219E8D9028C6DFE5EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25F4C83D34A449E2763BA3A1880108F911C70E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +704,7 @@ Trinodia - Astral Clouds (2013) [MP3|320 кб/с]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:96DE3037F1301F72229F09AD36277C3516CAAD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA872A32F23BCDB90ADB61CB253189F7FC3B9049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +763,7 @@ VA - Радио Шансон: В десяточку (2013) [MP3|256 кб/с]<Ш�
 ```bash
 magnet:?xt=urn:btih:9C9672C1AF1BD118C69E91798F429BC4BEBE9EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -816,8 +791,7 @@ Tengri - Shipibo EP (2013) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Psychill,
 ```bash
 magnet:?xt=urn:btih:4F7317D34D22B039019A27F88F72C67550238EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

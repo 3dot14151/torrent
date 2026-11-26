@@ -19,8 +19,7 @@ GetDataBack Pro 5.71 [En]
 ```bash
 magnet:?xt=urn:btih:884F4CD99D1935975A9564D33F579E5D206A363F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dont Sleep - утилита, которая временно может откл
 ```bash
 magnet:?xt=urn:btih:D57ACD1CC6CB2CE090516E3CC1AB674FD752E80E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Absolute Uninstaller – это программа похожая на стан�
 ```bash
 magnet:?xt=urn:btih:983165C698D0B54DCFD6D8AD82FF4193DB13C168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Quick Search 6.0.1.9 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7EE4943A782DFE2EF6D6DECFC9FEC8779AD9FBAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

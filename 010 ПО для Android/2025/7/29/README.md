@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:839CD7F0B475973D9D8A389DAE40CA279726435C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Prana Breath: Дыши и Медитируй (Пранаяма) v9.5.2_2 Mod by 
 ```bash
 magnet:?xt=urn:btih:8EA5F3A485561B114E8FE09F45C5C066997D74A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Cat Scanner / Сканер породы кошек v19.9.0-G Mod by vadj [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:AED17B37A50291055E81A4FAC217804397399B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Adrenaline Mob — американская грув-метал супергру
 ```bash
 magnet:?xt=urn:btih:9DD2E74B1B1559DC85FF52FB184AB90888821C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albu
 ```bash
 magnet:?xt=urn:btih:4AE33D38FE0C4657501A4F9D5C808A0FAECA230E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

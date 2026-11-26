@@ -19,8 +19,7 @@ SimCity™ 4 (2003) [Multi] (1.1.641hf/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F306ABCC0026B2DE0C5F3ECFC89E626EE7DB491E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

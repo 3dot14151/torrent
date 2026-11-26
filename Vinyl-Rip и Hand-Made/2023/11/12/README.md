@@ -22,8 +22,7 @@ Angelus Apatrida - трэш-метал группа из Альбасете, И�
 ```bash
 magnet:?xt=urn:btih:D87BCE0385384610A15E6892EE316C30AD015C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Evile — британская трэш-метал-группа, сформир�
 ```bash
 magnet:?xt=urn:btih:F672D0A1B05F47DBEEEE2E823802ED84FCAE36A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Doro (Dorothee Pesch) — немецкая певица, экс-вокалист
 ```bash
 magnet:?xt=urn:btih:C372952D471446A3A9610BA276D7348227003990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

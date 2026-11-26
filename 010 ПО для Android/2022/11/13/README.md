@@ -19,8 +19,7 @@ NCleaner — умно блокируйте нежелательные уведо
 ```bash
 magnet:?xt=urn:btih:CB5E8D951483315CF54430B47F12450535661320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5C0EFE802C6B0C5CFE02358B5BC98BE4E091324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

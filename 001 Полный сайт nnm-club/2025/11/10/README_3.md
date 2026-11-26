@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:219749756F734B06391807205404EA04A1348816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ plc-edu, Дмитрий Громов | Прикладной курс по АСУ
 ```bash
 magnet:?xt=urn:btih:2FA0A88EDB903B8E27DC4210259611A3F035C9C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ProFinansy, Наталья Котовская, Юлия Ромашевская |
 ```bash
 magnet:?xt=urn:btih:739902FEFC00E4C5F28285328C0E1FA9CE035537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ More XBLA Games [Xbox 360] [Ru/En] [Freeboot/Jtag] (2013)
 ```bash
 magnet:?xt=urn:btih:565675BFB31C1B1506A657D41565F6FCF5BB50C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Microsoft опубликовала инструкции и коды актива
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

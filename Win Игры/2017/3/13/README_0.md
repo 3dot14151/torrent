@@ -19,8 +19,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:5FD4685EA4A25957B576079297A1B447C66746CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

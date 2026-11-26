@@ -19,8 +19,7 @@ How To Frazzle Out A Neighbor Tycoon's Vacation  / Как достать сос�
 ```bash
 magnet:?xt=urn:btih:E30212A9A68D086AD2C300537CB396D0D50A3ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Amazing Adventures 5: Riddle of the Two Knights (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:9BEAF1463BEFC7D0DE8B197E2A7719C15399CFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

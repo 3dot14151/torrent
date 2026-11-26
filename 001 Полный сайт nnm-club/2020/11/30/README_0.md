@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8551977BB09E0D05001D917D4FDC99CF00B7283C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Warm Yourself Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Lounge, Ch
 ```bash
 magnet:?xt=urn:btih:6745FA4BD9A23AFEA0DE8C810E8F5521C5D01F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ JPEG Jackal 2.0.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E162136B2DAAEA91CF2F61000BE5D5AEAC67F0EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Tab Smith - Jump Time (1951, 1952) 1991, Delmark Records [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:FD187AB055E18281B952F26620991522912A55A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62B2C460754F7316822BF4E6AF7B566566B72D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Tab Smith - Top 'N' Bottom (1953, 1954) 1997, Delmark Records [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:7DC5EBAF7A02C2DDFBDD0F235AF1C9E86FCACF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Shawn Pittman & Jay Moeller - Straight Blues from Crooked Fools (2020) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:1E736AFD5F441DDBEA690683761DB68E9185F48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Shabazz Palaces - The Don Of Diamond Dreams (2020) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:FB8EF3F28528567E116C191DB979748D71544CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Tab Smith - Ace High (1952, 1953) 1992, Delmark Records [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:927C2F1867FA29C57AD81CCB210D238E67F37818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Moom 3.2.20 [En]
 ```bash
 magnet:?xt=urn:btih:45726DD301086251F215341A30FCE5EC8ABF2E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ VA - House Garden Music: Original Extended Mix (2020) [MP3|320 Kbps] <Electro Ho
 ```bash
 magnet:?xt=urn:btih:2FCC979952099FB7AFF06F8D2535558EA0DEE46F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D274E89BEFAB090A42D45B742C28BF6DD98FD319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ QuartzCode — это быстрый, легкий и мощный инстру�
 ```bash
 magnet:?xt=urn:btih:96008426E76B6209EEBE25804A58321148DF8516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB255D0ECE6320976F2FB44FA6D5B677F964240D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:DC9E17F0E2A45FADD781026121638B69C42BCB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ The Dirty Knobs - Wreckless Abandon (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 ```bash
 magnet:?xt=urn:btih:2244051FB4144A54CF834940AAD694C85F887A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D5C02C0DB8F67D45A9974E9023549A9F0663606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Deep Freeze - это утилита, которая позволяет сист�
 ```bash
 magnet:?xt=urn:btih:B70DE7F6734C214A903F963140B2E46B977AE947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ Mystery - Caught In The Whirlwind Of Time (2020) Live [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:6EA152DE8D9959D20EE214AB5E5FFA4E5DD07CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:E9DCC6BCD604B7849D247FE85F1155B10DFDD02C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ VA - Alternative Rock Music Event (2020) [MP3|320 Kbps] <Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:B4A9D01E69CA3FDC83852D56882ABC8B3E250C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Volbeat - Rewind, Replay, Rebound (2020) Live in Deutschland [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:95CE18128B844A7E95552635F72BBDB7795BD661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Hard Attack
 ```bash
 magnet:?xt=urn:btih:CB0E03AE061E17DD982EBBD3F6B9F9B3D0FA61EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ VA - R&B: Jamaica Night (2020) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:4D088703C17E3CB6C718F2A6BB5DE3BF60D6C80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ John Lennon - TRUTH. (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:8DBC1A69E824556730AC3F21EACAFCD6663CF276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ VA - Winter Lounge Mood: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:CB8E738C90F5B5A81C9CD31DF091B7629C6DA34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

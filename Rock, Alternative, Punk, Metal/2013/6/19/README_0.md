@@ -28,8 +28,7 @@ Dinasty - Inmortalidad (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A9B50BB31E494078D9D006522FC2AAC7C7DBB941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Infinita Symphonia - Infinita Symphonia (2013) [MP3|320 кб/с]<Symphonic Power
 ```bash
 magnet:?xt=urn:btih:A338209AD01659562555EBF668B997F8D33CD46F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ The Who - The Who Sell Out (1997) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Wine from Tears - Glad to Be Dead (2013) [MP3|320 кб/с]< Melodic Metal, Doom/
 ```bash
 magnet:?xt=urn:btih:47D6967AE14B5F69D7AAFD65B9E797FEA3BAD33F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Carole King - Original Album Classics (2008) 5CD BoxSet [FLAC|Lossless]<Folk Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Carole King - 3 альбома (2002-2011) [FLAC|Lossless]<Soft rock, Folk rock,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Falling in Reverse - 2 Альбома (2011-2013) [FLAC|Lossless]<Alt. Rock | Po
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ Amon Amarth - Deceiver Of The Gods (2013) 2CD, Deluxe Edition [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:8BB2A6DA98B4C5135620C0C797513F248BB662DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

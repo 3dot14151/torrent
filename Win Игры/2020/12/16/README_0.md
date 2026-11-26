@@ -19,8 +19,7 @@ Christmas Wonderland 11 (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:693FD5C0CDDBF6157BCDCE34BF69DDD415842F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

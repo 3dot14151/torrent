@@ -19,8 +19,7 @@ CentOS 8.2 (2004) [amd64] 2xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:343F8F1A7BF2F327E377A016EE478BC72E49DA25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

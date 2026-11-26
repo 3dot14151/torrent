@@ -19,8 +19,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:D6BDF7FAF923A7C125FEA6070B90E19F4617C847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

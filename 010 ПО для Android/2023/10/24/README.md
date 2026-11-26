@@ -19,8 +19,7 @@ tvQuickActions позволяет назначить до 5 действий н�
 ```bash
 magnet:?xt=urn:btih:99DE48A649BCE300A6E21C720AE59D5EA0C8B68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Open Source приложение.
 ```bash
 magnet:?xt=urn:btih:6355B445B150EE912289D949E359186B6F5D256E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

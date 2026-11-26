@@ -19,8 +19,7 @@ Very Little Nightmares - приключенческая игра с элемен
 ```bash
 magnet:?xt=urn:btih:F237C4D9D6C1DB787C85710D039E2C91B052A251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

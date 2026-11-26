@@ -19,8 +19,7 @@ Incredibox – музыкальная игра на андроид, где вы 
 ```bash
 magnet:?xt=urn:btih:AEF8DF211CE804D22C398FEBD53971AEEF242292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

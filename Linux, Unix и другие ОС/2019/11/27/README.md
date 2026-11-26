@@ -21,8 +21,7 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [i386] 4xDVD
 ```bash
 magnet:?xt=urn:btih:7F538B4A9509D39B0671A993D8983E7A89A99ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:0BB1576AF79B0C65E0E934EAC651517026A39B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ IRIX — операционная система, используемая на 
 ```bash
 magnet:?xt=urn:btih:751C917D2FAF3991C44FC7B281DB58F30B3A6B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ KNOPPIX 8.6.1 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:74424385CE35C41AAB8FD9C909A2A6E2FC6C47D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

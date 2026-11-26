@@ -18,8 +18,7 @@ Translate Tab 2.0.8 [En]
 ```bash
 magnet:?xt=urn:btih:780ACF300815F915D9967B46625467061D61EF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Sonny Black - Heart And Soul (2015) [MP3|320 Kbps] <Blues, Jazz>
 ```bash
 magnet:?xt=urn:btih:0E73A0461F7AA3F23146DB44255A1D83CEF10FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CCA26C09C2820B25EC8D749582F5835805592A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4663307A11849D7474A364EF296218EF6E9E9CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCD543E888E2A37B46B52B3543E2525CD1DE61EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Ignis Fatuu - Es Werde Licht (2009) [MP3|~224 kbps]<Mittelalter rock/medieval me
 ```bash
 magnet:?xt=urn:btih:51E31058B18078C1AF71E16809D34E46C46C3D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Any DVD Converter Professional - это программа для конверт
 ```bash
 magnet:?xt=urn:btih:4041074EF3D74A7975FDB0ADD58A56F790C000D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Wise Disk Cleaner 10.2.6.777 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:49042C1427FFF87B409EA738D06A2E845F82184D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D984F8A912A6601F25C5537707E65CCDDC76BF29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:704D2F01CB58ED299DD3CFD44E109342B3940D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ BBC Horizon. Следи за собой / Monitor Me (2013) HDTVRip [H.264/720p-
 ```bash
 magnet:?xt=urn:btih:F3961FBB7451A6CCDA9E06B69DB72BD8C62CDCA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Schelmish - Mente Capti (2006) [MP3|192-320 kbps]<Mittelalter rock/Medieval meta
 ```bash
 magnet:?xt=urn:btih:5D2C9505F0F4C472F858F7D8140AF4582C4E9C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:CE59BCAB655121B6BF65F3E20A271FDEC9AB1433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Folkearth - Rulers of the Sea (2009) [MP3|~224 kbps]<Epic Folk/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:2110AE15AF7F245E691B973F980E02AAF56329A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Royal Detective 6: The Last Charm (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:03410202EB9C0DD369C816C44A2F6A03AE5A172F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:0A2AE6BD8699D1BAB4D942B2DC75E1FB3E044DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0BCA84DE29A942020AE25E2A6147288F9685C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84D4CF3BE16A001873C00A1A65D07A24E65DB19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ Labyrinths of the World 10: Fool's Gold / Лабиринты Мира 10: Зол
 ```bash
 magnet:?xt=urn:btih:B874F2E6560CF6A6E9BA14407B27480AA95E08D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ Auslogics Anti-Malware предлагает дополнительную защ�
 ```bash
 magnet:?xt=urn:btih:18F8C80AABE6518570778BE7DCDD9014DA439853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29D87C2F3BF4258C1504609673032FAC4B7ABEFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:B3A33781CAEA0F6E29342ABDC74DC3C67D662802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ NG. Американская мафия изнутри / Inside the American Mob
 ```bash
 magnet:?xt=urn:btih:3ACD1F0F93203D0B8530E9647FA5A94CCD85C798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2021E1AEFD7BDFE626D67902AB5414796B2B5EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B23347E4CB0140149A3DC6332961651F56371543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ National Geographic. Американская мафия изнутри / Inside
 ```bash
 magnet:?xt=urn:btih:288547A26E499DC6EECDA30AAA876C9390D0CDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

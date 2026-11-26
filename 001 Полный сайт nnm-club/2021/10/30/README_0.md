@@ -18,8 +18,7 @@ Sketch 78.1 fix [En]
 ```bash
 magnet:?xt=urn:btih:32D0F0C766D16516C863CF25776654932FE0B03F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Exposure X7 v7.0.2.119 fix [En]
 ```bash
 magnet:?xt=urn:btih:359D116C424347E8A49AFC375466F07E57480650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Kathi Baker - Feel The Heat (1979) LP [MP3|320 Kbps] <Funk / Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:A6BD8C6CC61787CF49E2639875FDDF91E9653081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38B559F8BC7DEFC3D6198328AB79934C943B8DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Ibiza Winter Session 2022 (The House Hotties) (2021) [AAC|~328 Kbps] <Elect
 ```bash
 magnet:?xt=urn:btih:A50B80AE3CE4CE0ED64DDA4AA924B46EAA17E8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D39FFB08F8149EEB737F36828ACF32618A7A7684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92ACA12389E030A1F7732A2DB9F1354FDCB46270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACA71A848359153C3C541338376B6792C9A65915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ The Doobie Brothers - американская rock bandа из San Jose, Califo
 ```bash
 magnet:?xt=urn:btih:FD0276F22497C24F5682947B0B525A53E7E6E108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Affinity Publisher 1.10.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F49483DE55C843FB0EA16EB25F1503F9376A1F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Viwizard Audio Converter - это полнофункциональный инс�
 ```bash
 magnet:?xt=urn:btih:A542792175266709D5E2C685E33ECF8C373AC515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ Cradle Of Filth - Existence Is Futile (2021) [FLAC|Lossless|image + .cue] <Symph
 ```bash
 magnet:?xt=urn:btih:D8A14506A750CB584565F4B97DA42B24CC543979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:6BAF0497152873AC02204941500D97C7CF45115D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Acoustica Premium Edition - профессиональная программа,
 ```bash
 magnet:?xt=urn:btih:33BD0CD305F0089CDBAEA1718156E39BFECF7501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFE6D7F69866BC5D25571A9BE24B8ECD28F25FAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Tori Amos - Ocean To Ocean (2021) [FLAC|Lossless|tracks + .cue] <Alternative, Po
 ```bash
 magnet:?xt=urn:btih:2C7FF7629ECF3DB11E6A135C96F6A5B5E79B9C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D46F2BE268131E978A6CB5607877C325533F251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:642879BC458979BB8641AE66884923E9A19F02B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ Acoustica Premium — многофункциональный аудиореда�
 ```bash
 magnet:?xt=urn:btih:055E957906B261838562247B5A88621954758D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ Yatogame-chan Kansatsu Nikki Sansatsume | Заметки Ятогамэ [ТВ-3]
 ```bash
 magnet:?xt=urn:btih:CA2A4C2571BC6DCF8440B853B7555D7045243803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ RX уже давно является популярным пакетом для
 ```bash
 magnet:?xt=urn:btih:08401695423A2D17C9F0EB9CF4389AAF85B34574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ Netherbird - Arete (2021) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Sym
 ```bash
 magnet:?xt=urn:btih:B660438AE2679AD85285DFE976756B4E4CEA6226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ VA - Music News vol.145 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:955ADB007F30D6E0F3753ABEB1D33930B8ABD754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 ```bash
 magnet:?xt=urn:btih:ACF6F2156ED229D40533B7DD6C24E640121F280B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDE32B4FA2998D59D35F8758AA529FFFF67D0D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Satyricon — норвежская блэк-метал-группа. В Satyrico
 ```bash
 magnet:?xt=urn:btih:F142F43887F3BC93863C120F913C4300C79D8BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

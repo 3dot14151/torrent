@@ -19,8 +19,7 @@ Beneath - это шутер на выживание от первого лиц
 ```bash
 magnet:?xt=urn:btih:6594DAFA9F17B945FF6A2181B166451EF56ED5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Happy Holidays 4: Trick or Treat / Счастливые праздники 4: К
 ```bash
 magnet:?xt=urn:btih:81B9F6690DEB71E64476DF8FF9BBB709A796A424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6D3985C8880E4E3C3DC634DF5F24E743A85E73FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Let'sРlay [Di
 ```bash
 magnet:?xt=urn:btih:AEABAAED8E8BFA427FD3AB73CAFA1132EDF44160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Master of Command - это тактическая стратегия в реал
 ```bash
 magnet:?xt=urn:btih:98B0F95CD37A41B6FDD2BFA6E1264B938FAEADDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Escape Simulator 2 - это продолжение самого продавае
 ```bash
 magnet:?xt=urn:btih:A8A6066520C93383DA14016E96325E8404B3AF62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Wanterlude [Di
 ```bash
 magnet:?xt=urn:btih:D3ED9367D8509F9DBBE4B9582EB735CF0A4C8518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Beneath - это шутер на выживание от первого лиц
 ```bash
 magnet:?xt=urn:btih:2973D2BFE736E45DE0A0C760DCF8116D813443F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Heretic и Hexen, созданные студией Raven Software на моди
 ```bash
 magnet:?xt=urn:btih:5E45D24E9CD845BE4AD1FAF7167E2E55CDD03A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Relicta - основанная на законах физики головоло
 ```bash
 magnet:?xt=urn:btih:252141291A28A21BB9964F8679F09E50B77DF31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

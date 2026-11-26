@@ -19,8 +19,7 @@ Fright Chasers 4: Thrills, Chills and Kills / Ловцы Страхов 4: Тр�
 ```bash
 magnet:?xt=urn:btih:E25D532A31C1529E3B00C31728D5DE41C361F46F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

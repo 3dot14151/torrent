@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:778CE9490E5061A627072F4325845D73625B5C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Landlord’s Super – интересный симулятор, перенося
 ```bash
 magnet:?xt=urn:btih:C4F9A1E341B07BAA7CD6E214BE84876966FC7B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DOOM (2016) [Ru/Multi] (Build 13954591/dlc) Lossy Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:725B76256FD7B43B59CF262F0131CC25009F703F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Office Fight (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9C55D609601C3B757CCEA60BF6C811E16A5E91DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ABA9E13CF8D0C1585A34A6B95281FF1AE7E544D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Shift 87 – самая необычная рабочая смена ждет в
 ```bash
 magnet:?xt=urn:btih:1A2BA8B6A062DFC387593935147104ACCEC4FFA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Tipard DVD Cloner - мощная программа для копировани�
 ```bash
 magnet:?xt=urn:btih:756A457AD58E53504F6172D0A969878783849248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ AnyMP4 DVD Copy – программа для создания точных ко
 ```bash
 magnet:?xt=urn:btih:2CCDEF471E70A52EB6126A7BE638917C9D2F29F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Batch Text Replacer - мощный инструмент для одноврем�
 ```bash
 magnet:?xt=urn:btih:A19563CF25C482FC12185DA6D8D15EE30C62CE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ FonePaw - программа для восстановления утерянн�
 ```bash
 magnet:?xt=urn:btih:BC24900A5741E61C9D0B3A0D02F6F4302C5EEE98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Garden Planner - программа для проектирования сада
 ```bash
 magnet:?xt=urn:btih:51E8AA8AEB2643192E182D39323418EFE7B04064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ FoneLab Android Data Recovery создана для восстановления
 ```bash
 magnet:?xt=urn:btih:7ADA9A6EE49BFACBBB0DFF1B4200315CB3B9F878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

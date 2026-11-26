@@ -22,8 +22,7 @@ Gemma Ray - Psychogeology (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie
 ```bash
 magnet:?xt=urn:btih:E49B78EB417D1FFA7ADB3FFD08FE4AEDED00C907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elephants of Scotland - Home Away From Home (2013) [FLAC|Lossless]<Progressive R
 ```bash
 magnet:?xt=urn:btih:9540ECA5BFAC2A673624170D7746D7C872F10C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Wolf Parade - Thin Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 ```bash
 magnet:?xt=urn:btih:7112221A530CBE84C1F4080AD21C36754DF5A6F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Journey - 9 альбомов (1978-2013) Blu-spec CD2 Collection /2013, Sony Mus
 ```bash
 magnet:?xt=urn:btih:9EE12CE437BD4EAD421E91AB11E8E8F895A23F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Smoke On The Water - A Tribute To Deep Purple (1994) [FLAC|Lossless]<Hard R
 ```bash
 magnet:?xt=urn:btih:23E19B7F6F06695513AB7CAB792F07FE0CDBCA49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Nickelback - Greatest Hits (2012) 2CD [FLAC|Lossless]<Alternative Rock, Post Gru
 ```bash
 magnet:?xt=urn:btih:4F7BFD7284B6F26C2BB8B9C1269E9D2A46247A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

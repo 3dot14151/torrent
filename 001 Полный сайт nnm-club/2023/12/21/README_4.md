@@ -22,8 +22,7 @@ Kage no Jitsuryokusha ni Naritakute! 2 / The Eminence in Shadow 2 / Восхож
 ```bash
 magnet:?xt=urn:btih:C61FB71478CA32EAF7776644DFFD9059C7C6157C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:369048B5A6278BEBD576C535B0807BD9CDCA8303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Excel — самая популярная программа для работы
 ```bash
 magnet:?xt=urn:btih:71310AA419B0DF42695D85E23A41FABE07A84CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71EBD2EE1736FA1B0E045973357F002C1D362CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Dr. Stone: New World | Доктор Стоун [ТВ-3] [2023, TV, 22 эп.] Web
 ```bash
 magnet:?xt=urn:btih:AC3BEF293D54FDF2B2BED9C39E2A45804FED04D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Workout Motivation (Flex Edition) (2019-2023) [MP3|320 Kbps] <Relax, Chill�
 ```bash
 magnet:?xt=urn:btih:B0C678F86F4131C9A7E826A9BBF9D223213543C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16D640D4E3F51601C79B171141F1F4368F5A482D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:345E3C164282C55A4F75E98E42D7E31D380F074D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack Dece
 ```bash
 magnet:?xt=urn:btih:A2208AB2FDC982E0CEB858D07F66314158F315D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:DEDCD280BD9EB3FE774BE94B3F325954A16CCC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ PyCharm – это самая интеллектуальная Python IDE с п�
 ```bash
 magnet:?xt=urn:btih:006AFBE7732536C3E369FD9D22688BD3AE31AAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Helck | Хельк [2023, TV, 24 эп.] WebRip 720p raw
 ```bash
 magnet:?xt=urn:btih:5C98940A3EADC49EC07A4E383E719D46FEBC70AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Windows 10 22H2 (19045.3803) x64 (3in1) by Brux [Ru]
 ```bash
 magnet:?xt=urn:btih:1B24CACCD3EC0AE136F40324DCEB12F4ED69638F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AB214DFA20B1C411987AFE88895695DAE54557D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:A0CEAA64CD6F299BDDA7EAEAFB712B2561B7B029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7C1A95D6A93B9AD60DB08E988C8A516BE42382E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Need for Speed: Carbon (2006) [Ru] (1.4) Repack/Mod Финиган [High Quality
 ```bash
 magnet:?xt=urn:btih:A7465A3B63DA3B952B8E003AEBE0143BF3DC77C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0AB21C0FD3E47F7C1C82FCB2E9EC1F2C634084E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A18853C97C69FC6A4C7D50DCF393391D7E61B33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ Atomic Heart — приключенческий ролевой боевик с �
 ```bash
 magnet:?xt=urn:btih:38DFDF0427C87CA65942552B015BEA44602781E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ Ojou to Banken-kun | A Girl & Her Guard Dog | Девушка и её сторо�
 ```bash
 magnet:?xt=urn:btih:6C3BEE20B2BF989799CEFC131EAB6B377FCA36C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87BAFB4FAAF83F9D101948A377225F5928E6BBED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +582,7 @@ Aллeн — мaг-oтшeльник, избeгaющий oбщecтвa людeй �
 ```bash
 magnet:?xt=urn:btih:E8FDFE82430D9837598CA1682D0005DE8121B6C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83890E2C1DA17A7BC98B8785B928639B7D390CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFB74DD25DCF9E093FC04F8521D1076E8CB052C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ MF Ghost | MF Призрак [2023, TV, 12 из 12 эп.] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:78B670577930AEB39CBD9D9BC268EF2DB4B1EB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

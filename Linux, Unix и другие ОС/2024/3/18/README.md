@@ -21,8 +21,7 @@ SystemRescue - восстановительный диск, основанный
 ```bash
 magnet:?xt=urn:btih:CBA2F46A5C5F1069A9867AB9B55E9BDBC03A5640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Clonezilla - многофункциональный инструмент для 
 ```bash
 magnet:?xt=urn:btih:424474C4D866396E4F55E5318A49C13E5AEBB875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

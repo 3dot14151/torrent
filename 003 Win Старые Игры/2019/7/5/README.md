@@ -19,8 +19,7 @@ Cossacks Anthology / Козаки Антология (2003) [En] (1.15/1.30/1.35
 ```bash
 magnet:?xt=urn:btih:19F62017486BE34209BDC66D2F6F1DCA470F6F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

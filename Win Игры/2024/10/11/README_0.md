@@ -19,8 +19,7 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 ```bash
 magnet:?xt=urn:btih:9550F15A2DEB7726C42901DFC001CC8E8A5F3C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:59A1F1AD9FB44E661C29692E9E27E47988C983D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (build 11855829/d
 ```bash
 magnet:?xt=urn:btih:A22A4CBF503059AADB27A859CA30EBFF5E6DDE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:651FF423BFE28D5A05E80DD04C9A7781EBD6C239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Thyria (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:390F98C64EC42CF2B32A2CECA266AA1007F11D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grim Realms - симулятор колонии, представленный в
 ```bash
 magnet:?xt=urn:btih:4B952A2D41EBF5AAC860F45F0C6D02BEE20BA795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором
 ```bash
 magnet:?xt=urn:btih:3E95B2CC3343350A18F6D16B786E4B1D8F9AA42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:60F0D64ABEB19FEEA077EC9F9E2F15802C7C62DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

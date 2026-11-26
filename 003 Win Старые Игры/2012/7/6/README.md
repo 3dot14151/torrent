@@ -19,8 +19,7 @@ Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:2AFD68132CB100A6D48F3C04E14AA1AD98827B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

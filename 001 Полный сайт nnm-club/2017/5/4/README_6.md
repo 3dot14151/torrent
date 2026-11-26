@@ -22,8 +22,7 @@ Actis Dato Quartet - Swingin' Hanoi (2003) Splasc(H) Records [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:DB02875A06292DFEA8BD70A8C2F45278FAF06CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jimmy Cobb's Mob - Cobb's Groove (2003) Universal [APE|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:670D1C714188806CBD21D66DD41937DBAF59FE4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:B26D8C423CCF9AD0E0BAA77D8020B50B607D2A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Buster Williams Quartet - Live At The Montreux Jazz Festival 1999 (2008) TCB Rec
 ```bash
 magnet:?xt=urn:btih:DB066D850FFC50D71BEBB92D8E514529BC3D47D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Moon Frog - Standing On Ceremony (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0C5E33D0D80E1DD112DF65719884BB28C658730A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - 5 Years Auditive (2017) [MP3|320 Kbps] <Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:D7511E6A261B6F9CBD00CD3096B3B46952855C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B81B8CBA907A3279AE7195B5D762868A29C9AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Angelo Debarre & Ludovic Beier - Swing Rencontre (2002) Marianne Melodie [FLAC|L
 ```bash
 magnet:?xt=urn:btih:016084A9ACB18B9066D43E04D4B41DD4C4DA050D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Angelo Debarre & Ludovic Beier - Entre Ciel et Terre (2006) Le Chant Du Monde [F
 ```bash
 magnet:?xt=urn:btih:C70BCD741B8CA79836A925EB059AE9C763563640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC8319BB70120D6C58E5C875BAADF23629BAA716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Takkra - Technicolor Talk (2017) [MP3|320 Kbps] <Ambient, Psychill>
 ```bash
 magnet:?xt=urn:btih:051618DE5643135F768ADF9E3A444EADD412A3EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E14B3B7B74619535AAEC3E3DC8CEACD3877670D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E49B3CCE0EED3C581C46B210A298B61A3A194871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Kay Kay And The Rays - Big Bad Girl (2003) [FLAC|Lossless|image + .cue] <Blues, 
 ```bash
 magnet:?xt=urn:btih:A69D13B2154BE53DA435569CF2B7BDFD70AA6E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Ian Parker - Inside (2003) [FLAC|Lossless|tracks + .cue] <Blues Rock, Southern R
 ```bash
 magnet:?xt=urn:btih:009B9D9659E93BB0ED3E53F64EAD38F271C58403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39235F5ADEFC4A1126DA81EDCED893AD057F2536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ VA - Disco Dance Rimini 2017 [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:4185E6673A5BBD239455D28C20F7FF95B91A1484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28038990BC5CBCF17A1AAB38FAF98E1F286F3C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ VA - Chillout May 2017: Top 10 Spring Relaxing Chill Out and Lounge Music  [MP3|
 ```bash
 magnet:?xt=urn:btih:F23ABE975DB6543AAB0680E6931FB035CA1CE06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A476A868726CBC7B71E78C2230E95B081984EC4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ VA - Deep Space Trance Progressive (2017) [MP3|320 Kbps] <Trance, Progressive Tr
 ```bash
 magnet:?xt=urn:btih:FC5C6E7263DB6C028FFB964F2E3E2BF99D4460B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BE2811DC9D361AE8F5CF1456DD9E882082792A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AA8D8096B7A2DD97863DD5A2E7AAF2B30C873B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B327ACFA08C264809E8A652B820C37781DC3DFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7760871594FFE21FC475912C0045ED0B8A855CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ Billy Thorpe & The Aztecs - The Very Best Of Billy Thorpe & The Aztecs (1994) [F
 ```bash
 magnet:?xt=urn:btih:EC0C734DC103E4E2F894F91879193DD57B9068E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

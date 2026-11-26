@@ -19,8 +19,7 @@ Hockey All Stars – игра, которая станет пропуском в
 ```bash
 magnet:?xt=urn:btih:820522AA0AAD0C34F89679C3AFFC500BA99D35CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Family Island – Приключения на ферме – захватыва�
 ```bash
 magnet:?xt=urn:btih:8E25364D54E354B226F3FBD6781B62007F3436FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

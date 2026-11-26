@@ -19,8 +19,7 @@ Starus Excel Recovery 1.0 RePack (& Portable) by AlekseyPopovv [Ru]
 ```bash
 magnet:?xt=urn:btih:84C35DE1AD6C2675B27595AC8B6D36E0A8DADCA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Starus Word Recovery 1.0 RePack (& Portable) by AlekseyPopovv [Ru]
 ```bash
 magnet:?xt=urn:btih:994A0986CC238EBBB36AE696D7D2263570B342E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

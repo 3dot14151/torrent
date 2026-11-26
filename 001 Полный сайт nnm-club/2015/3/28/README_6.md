@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E7704E55823281C2CCAE44C1E67938C50FAA2287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Tokyo Ghoul A | Токийский гуль [ТВ-2] [2015, TV, 12] HDTV 720p ra
 ```bash
 magnet:?xt=urn:btih:293908467A633E4D753CDBFB5A4FEF9130BAB8A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:452EAD6AA7925AC7BD9CCB2F469A4B59C792D944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AutoCAD MEP – это AutoCAD для проектирования отопит�
 ```bash
 magnet:?xt=urn:btih:145FCA2140384A8735BE106185554C4B144E102F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14918A93F2B885C328C590D18BF484E19ED1B285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ I Am Alive (2012) [Ru/En] (1.01) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:1510953D4E444B5F42ECCC314AA6ACF4D0022D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Far Cry (2004) [Multi] (1.1.0.1230) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:FD5A21C007C0C286323B929280A23A55B1C41782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Far Cry 2 (2008) [Multi] (1.03) SteamRip R.G. Origins [Fortune's Edition]
 ```bash
 magnet:?xt=urn:btih:F66F35A0670A8B3159FBA22469DFCBA176294165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Need for Speed: ProStreet (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [
 ```bash
 magnet:?xt=urn:btih:CF58BD5A36688C3C7337BFA22B0C04863F37C618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ XBMC Media Center – настоящий контейнер для всех ва
 ```bash
 magnet:?xt=urn:btih:03CF72ABE596986D4B375FCD08955899420CEA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Mотоциклы самых популярных мировых произво�
 ```bash
 magnet:?xt=urn:btih:82E8753EF5EC62B1DE3F147F08CEBE9A2B8DD20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65A9710ADBC6C8916C2A8077E2B3A89FAE7138DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ ESET Endpoint Security 6 — это комплексное решение для
 ```bash
 magnet:?xt=urn:btih:0024216853D0780199DDF2F5D5B79AF8CC23A688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.5/5dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:6CC3F38F6DD50B556846F985768EEDD38EE2B206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Kiseijuu: Sei no Kakuritsu | Parasyte: The Maxim | Паразит [2014, TV, 24]
 ```bash
 magnet:?xt=urn:btih:B7D4DA2BD7375F7ED5C40B4363C01D531755E8F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ AutoCAD Mechanical – это AutoCAD для машиностроительно�
 ```bash
 magnet:?xt=urn:btih:85A3FA9B021AF6538E026B3817DA9BE4CA134807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ Defense Grid 2 — это новое слово среди игр в стиле 
 ```bash
 magnet:?xt=urn:btih:80C874305D6943260973587A32013E72095B1DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.5/6dlc) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:86F803A5C28B38314208A5B1FE6641C01DDDEC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F5B1E576D7AE52B6E7366991E0E1B9E984D21FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B717242E2164F2E33887473F3AD608E404E73858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

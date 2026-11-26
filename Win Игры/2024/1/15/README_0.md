@@ -19,8 +19,7 @@ Blood: Fresh Supply (2019) [Ru/En] (1.9.10-1/dlc) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:0EFB9207953563EB62B06B502231034334D91154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

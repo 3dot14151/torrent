@@ -19,8 +19,7 @@ CD - 1:Жанр: Melodic Death Metal, Gothic MetalПродолжительнос
 ```bash
 magnet:?xt=urn:btih:3DE6D92BA79A9DCE7B621F884FEC224FCB420AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sentenced - Buried Alive (2006) 2CD German Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:0D3F1325BD77425654899848C3DF54EF3157C9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ AOOOM - Wandering forLost Beauty (2020) [MP3|320 Kbps] <Progressive Metal,Doom M
 ```bash
 magnet:?xt=urn:btih:976633F0CCE85DE7BD87CD06C291F21981AEBC8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Deep Purple - Nothing At All (2020) Single [FLAC|24/44,1|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:99E80BBE5EE454778B93325DE2A9313D9209E7F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

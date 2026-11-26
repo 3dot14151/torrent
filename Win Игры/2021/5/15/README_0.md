@@ -19,8 +19,7 @@ Mystery Tales 14: Master of Puppets / Загадочные истории 14: К
 ```bash
 magnet:?xt=urn:btih:EBC456FDB2784E636A78EDEA8E60052A5ADE2225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

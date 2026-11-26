@@ -20,8 +20,7 @@ All Language Translate App v3.4 Premium Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D42B206DD41618ABE92A155A9ECEFDE1B01413D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Talking Translator / Говорящий переводчик v2.7.5 Mod by Alex.
 ```bash
 magnet:?xt=urn:btih:6D92B6324757696007E22496ADBE2D30738C9DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Bananastreet: Deep House & EDM v4.1.60 Mod by 0x7d [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:70D2C581C7DD7E052B749BB361E133111B9046D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

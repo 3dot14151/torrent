@@ -20,8 +20,7 @@ ESET NOD32 | ESET Endpoint 6.x/5.x (x32 x64) Offline Update 10421 (сентяб�
 ```bash
 magnet:?xt=urn:btih:D8243ED893D969FB467C02CF0ADFC356DAA1D43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Omnia - Earth Warrior (2014) [MP3|320 кб/с]<Folk, Medieval, Celtic, Pagan, Ne
 ```bash
 magnet:?xt=urn:btih:2A03C8210E6D6A5424703B1F21ED3DB74C1AFFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Devakant - 4 альбома (1993-2014) [MP3|320 кб/с]<New age, World, Relax,
 ```bash
 magnet:?xt=urn:btih:F5BC24663E34CBE60D086DBCDDB0480AD371FF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ PayPal объявил, что начинает принимать платежи
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ VideoHive - Dynamic Typo Intro [AEP]
 ```bash
 magnet:?xt=urn:btih:78C4CEEC4F541520CDFF18CBBAE0D5AEBE36104C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6B42171B6F47F168C3A100E3BFF7CBBBA8503D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:365CECF5F3F36E65ECAAA2FC68BFF534E0A34D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ VA - BRAVO! - The Classical Album 2014 (2013) 2CD[FLAC|Lossless]<Classical, Voca
 ```bash
 magnet:?xt=urn:btih:6687845F504159F44BC0B0E6245B4365D937D5FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1CD76FD52AB2D49F76DFD4D1DA13F7F557651D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Two animated Flourish elements included. In this version you can choose between 
 ```bash
 magnet:?xt=urn:btih:BD1B7A024B111A11BC1CDD5D35B449B4C9EE1CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VideoHive - Gallery Portfolio [AEP]
 ```bash
 magnet:?xt=urn:btih:8C68BD5811DE865DD263AEA304F766D22204712D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Bottle Shooter v1.1.4 [En]
 ```bash
 magnet:?xt=urn:btih:410E6B868AE5B20783A83233635CB30F3275B983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6465EF26B0D94B7B03D071024D5C1BC3FFFCAAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:88624EAAE5432D32888C265717A69F4EDDE38C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ BBC: Морские гиганты / Ocean Giants (2011) BDRip [H.264/720p]  (с
 ```bash
 magnet:?xt=urn:btih:8A76B96F465CD6975E8CF2A42E49C645096C8F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE37AFC656C09C30BCAD18F69C27062EAEAA8B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Start Menu Reviver вмещает до 32 плиток; таким образо�
 ```bash
 magnet:?xt=urn:btih:4B8AB5F81FEDBF56B4E71BCAACAB35C0159E5C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Ulysses III — работа с текстом для профи
 ```bash
 magnet:?xt=urn:btih:8C7AA12814CD676716FBC55E3C4EFD6B5A0A78FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DC38DEC83029FBBDCE76A3E333AAAFF1AAFBF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:0B1A4904885FEEDA949751C2B92CEE29B1435746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ VideoHive - Openers [AEP]
 ```bash
 magnet:?xt=urn:btih:0440048639311C8979F58E1C69E451BF3443364F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 10421 (сентябрь 2014) [Multi
 ```bash
 magnet:?xt=urn:btih:1DDBE4215808819BC033F7849911FEED6FC4150D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:141C926231068F309518F2ADCDBFC1889EF72D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98ABE0095FA31C1472D0D8F6F21AFFB580739A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ M83 - Oblivion (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless] <Left
 ```bash
 magnet:?xt=urn:btih:7EAE96D459D97A55C98194849C41ACCD37846399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA2B540645562FFB858A257FAE8B39A85FD7E74F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

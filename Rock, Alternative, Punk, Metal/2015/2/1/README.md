@@ -28,8 +28,7 @@ More Than A Thousand - Vol. 5: Lost At Home (2014) [MP3|320 кб/с]<Metalcore /
 ```bash
 magnet:?xt=urn:btih:A786B128223643AFA30A856F1F1E9933AFCEF004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:71CBD633178D15F4BBE9C2E5747C0F65C165594A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ It Prevails - Perdition (2015) [MP3|320 кб/с]<Melodic Hardcore>
 ```bash
 magnet:?xt=urn:btih:752F51C683384226518BF776E346EA405EB6CCD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Visigoth - The Revenant King (2015) [FLAC|Lossless]<Power/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4D68F5106810ACAD4B95EB410C83829EC53ED4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Nasty Whores - Nasty Whores (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:776263092177B47CFFD3A1E7F6D3F648776EDBB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Miles Kane - Colour of the Trap (2011) [MP3|320 кб/с]<Indie Rock, Brit Pop>
 ```bash
 magnet:?xt=urn:btih:16DEB0A6C7B0B4CD02AC7F3165FAB212585D3C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Bob Dylan - Shadows in the Night (2015) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:522282052FB212479D00AF247D84D0E6B671A16F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ III. Disturbance In The Here And Now
 ```bash
 magnet:?xt=urn:btih:6507886F7DB1D1FBC11B0A7AF4414E8B89724EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Paul McCartney Archive Collection - грандиозный проект по п�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

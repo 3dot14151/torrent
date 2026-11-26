@@ -19,8 +19,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:66D0B0DF9559119DB595005D94DF6AC4504E1EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WindowsExcel – это программа для работы со всеми �
 ```bash
 magnet:?xt=urn:btih:80020A43C92BFF91864AEABCDEC7496B53E320D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WindowsWord - бесплатный и удобный в эксплуатации
 ```bash
 magnet:?xt=urn:btih:24F0AECA4BB76C1D46DF0B8C3107D823FBEE992D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

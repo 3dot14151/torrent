@@ -22,8 +22,7 @@ Kele Okereke - Fatherland (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Elec
 ```bash
 magnet:?xt=urn:btih:602F86A63F3D7A1E300C84B0006044712B02992D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ James Vincent McMorrow - True Care (2017) [FLAC|Lossless|tracks + .cue] <Indie R
 ```bash
 magnet:?xt=urn:btih:E41D6507E0AB95E63E826D288BB84670B4448890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Age of Truth - Threshold (2017) [FLAC|Lossless|tracks + .cue] <Stoner Rock, 
 ```bash
 magnet:?xt=urn:btih:1FC483EF3580A9A5E24BF72112DC18AEAE36AA20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Midnight Flyer - Midnight Flyer (1981) Reissue, 2013, Air Mail Archive [MP3|320 
 ```bash
 magnet:?xt=urn:btih:6AD383E497291171F2C7797AB2CB7B103A7AFA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) Enhanced, Remastered,
 ```bash
 magnet:?xt=urn:btih:F2F1D8CD3A9A74C4A1205668B1FE2B042351596B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

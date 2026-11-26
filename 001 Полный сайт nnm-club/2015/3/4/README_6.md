@@ -23,8 +23,7 @@ Detritus - Fractured (2007) [FLAC|Lossless]<IDM, Downtempo, Drum n Bass, Ambient
 ```bash
 magnet:?xt=urn:btih:E5A401FD5914D49BFBA4EE6C16650827B7386550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Oliver Nelson - Stolen Moments (2015) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:04C5147ACE006E8664DCD23F2D6EF74E61DDCCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Nikolay Sidorenko Trio - Troika (2014) [FLAC|Lossless]<Contemporary Jazz, Post-B
 ```bash
 magnet:?xt=urn:btih:D2738D9AEDA4C5936A712CB978EF46BFA45A1B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Masada (John Zorn) - Vav (Six) (1995) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Fr
 ```bash
 magnet:?xt=urn:btih:BDE07FE4EB0EA863F8991A78B27C1DD76E96D536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Dewa Budjana - Hasta Karma (2015) [FLAC|Lossless]<Fusion, Jazz-Rock>
 ```bash
 magnet:?xt=urn:btih:5E9632AB16CA66A879D8597A6623C606551CBD9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Nighthawks - Today (2010) [FLAC|Lossless]<Nu Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:1443050D38ACFAFEFCCB3663B24DB04399060764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Rosa King - The Best Of Rosa King & Upside Down (1995) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:DD32924458330FFDA48FEB31E29B0A56F6C657EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD3ACAE57B663A841751A0004D47AADF895C415B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Nighthawks - As The Sun Sets (2004) [FLAC|Lossless]<Future Jazz>
 ```bash
 magnet:?xt=urn:btih:F49E62E4B792AD9DF11EDC4A65EB06678839D8F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ Nir Felder - Golden Age (2014) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:E44B4F56EAB343726497F5C848ED645DDA343D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ Burden Of Grief - Unchained (2014) Limited Edition [FLAC|Lossless]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:5F21B0065E11D1BDC3B6845509829138D9AB2ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ Dewa Budjana - Dawai In Paradise (2013) [FLAC|Lossless]<Fusion, Jazz-Rock>
 ```bash
 magnet:?xt=urn:btih:64E4D4A9A57D15F3045A1108A7F93D1114099AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ Dj Compressor - Energy Mix 15-03 (2015) [MP3|320 кб/с]<House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:2C8E0124D87ED9D647F58E697873D41B05C630B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EF6706172CA3B718BF407559754C329317701EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ Wolfgang Haffner - Kind of Cool (2015) [MP3|320 кб/с]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:2B80F07049414BC589BA71C371C31E9A92D689FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AE60D83F8C02FA64F90EFED4FD059986652018F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +476,7 @@ Project NT - Имена (2015) EP [MP3|320 кб/с]<Experimental, Psychedelic, P
 ```bash
 magnet:?xt=urn:btih:CD541F6B509ABBB136E3391FB3D0F7FCE629C68F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ Fred James - Life Is Hard (1998) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:959397CCA5DF90D09A3B2E955444B2BAE508A1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ Frances Madden - If This Were A Dream (2014) [FLAC|Lossless]<Vocal Jazz, Jazz-Po
 ```bash
 magnet:?xt=urn:btih:D364464F01CA67C7280A5B5B2D669BC6983E2281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F05100448C6021A6324EB720CB35FAB31D87EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EDD2D6E3DDDC9809D099F7681682157A9D70E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ New Medicine - Breaking The Model (2014) [MP3|320 кб/с]<Alternative/ Modern H
 ```bash
 magnet:?xt=urn:btih:87C03CA2B9388E59D11B3C7D90D5552CCF840130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ Nighthawks - Selection (2007) [FLAC|Lossless]<Nu-Jazz, Electro-Jazz, Lounge, Aci
 ```bash
 magnet:?xt=urn:btih:37DAC3C460D7FD37BE22C5FADEFB87275314C580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ SQL Dynamite 1.6.2.27110 [En]
 ```bash
 magnet:?xt=urn:btih:C9EAF7AAC42C6CAB17529C7FAFA7C9F84C7B3528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +722,7 @@ VA - 80 From Australia (2014) 4CD [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:15184744C130A8B53B7005A75C0AC7AD65B1EFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

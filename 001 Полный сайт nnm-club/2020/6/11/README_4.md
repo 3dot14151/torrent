@@ -18,8 +18,7 @@ Deus Ex: Mankind Divided - новая часть сериала Deus Ex, про�
 ```bash
 magnet:?xt=urn:btih:1353B3B6491B1C50540E304C269C92278F89565B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Tracktor Bowling - Бесконечность (2015) [FLAC|Lossless|WEB-DL]<Alte
 ```bash
 magnet:?xt=urn:btih:BC7F56DA3B3843317DD5924345DC4D124D507037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

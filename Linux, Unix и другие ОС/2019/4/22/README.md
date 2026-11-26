@@ -20,8 +20,7 @@ Ctlos Linux Openbox/i3 v2.1 — iso образ, основанный на Arch L
 ```bash
 magnet:?xt=urn:btih:ED4612324B909D0B589EB8FB6D2514936F4D240A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Delta Force - компьютерная игра, тактический шуте
 ```bash
 magnet:?xt=urn:btih:90E777FBF7A684EA92B93D27F194BA99A1461672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

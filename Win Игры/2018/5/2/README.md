@@ -19,8 +19,7 @@ SEGA представляет революционный боевик от Plati
 ```bash
 magnet:?xt=urn:btih:D6D04B8A77D305DE627B284B7C05085EB67C7CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

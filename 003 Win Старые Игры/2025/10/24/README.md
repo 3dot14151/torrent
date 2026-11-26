@@ -19,8 +19,7 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 ```bash
 magnet:?xt=urn:btih:6691770967F7F3AE5A03B7AD6B2C4426CC0C9BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Overlord Ultimate Evil Collection (2007-2015) [Ru/Multi] (1.4/1.0/1.0.15.4016/dl
 ```bash
 magnet:?xt=urn:btih:AC1A347E63700B117D0A54283FB999F858336AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 ```bash
 magnet:?xt=urn:btih:8564AF14244C8DFA1B0657BDFAE878ED7BA26DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

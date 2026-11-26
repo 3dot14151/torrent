@@ -22,8 +22,7 @@ Kyoto Jazz Sextet - Mission (2015) Universal [FLAC|Lossless|tracks + .cue] <Post
 ```bash
 magnet:?xt=urn:btih:5A737C32361D2E67EBDBA28D29E1214E3264C7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mary Lou Williams - My Mama Pinned A Rose On Me (1977) 2005, Original Jazz Class
 ```bash
 magnet:?xt=urn:btih:453AA2BDF043B3A45A4ECC2AC4C0E41B43B063D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD8D1FE83BBBEE05375D6C9810C1B118C887302D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hugh Masekela - Jabulani (2012) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz>
 ```bash
 magnet:?xt=urn:btih:827452BF3B4A65FA55066B6B1E666038DBB0FB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nozomu Wakai's Destinia - Metal Souls (2018) Japan [FLAC|Lossless|image + .cue] 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Preludio Ancestral - Oblivion (2018) Japan [FLAC|Lossless|image + .cue] <Symphon
 ```bash
 magnet:?xt=urn:btih:EE62E047E43AAE539CBAF81118545490CD9010A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - A Light, A Glimmer (2018) Polar Seas Recordings [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4CDFF559DDF28AF3951B059886CBE37914EDEEC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Skeletonwitch - Devouring Radiant Light (2018) Japan [FLAC|Lossless|image + .cue
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Andrea Bellucci (Red Sector A, Subterranean Source, Son-Dha) - Collection 4 Rele
 ```bash
 magnet:?xt=urn:btih:18C2A95ABFC35AF732FD8EAEEBE05D289CD153B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Lizzy Borden - My Midnight Things (2018) Japan [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:1155C27BFD1E6119766E7D8BE0E95E7178A1274F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ D'Arcangelo - Somewhere In Time (2018) Suction Records [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:059662CF97259A9C6226461FFBC7A90993D0806B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAC3012259ECB00721C15976BF7952D771057980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ VA - Cassiopeia A (2018) Nebulae Records [FLAC|Lossless|WEB-DL|tracks] <Electro,
 ```bash
 magnet:?xt=urn:btih:BDF8AC8B2498D806A15DB6EF0E015F39F0F96696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ VA - Forms Of Hands 18 (2018) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <I
 ```bash
 magnet:?xt=urn:btih:E059D8E531F1B4D1AF676E0FDE29BB0CAE0EB98D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA6B51086B0A61DD5DF2115DEFDAE55D8EC01334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ Steve Odum - Steve Odum Plays His Blues (2018) [MP3|320 Kbps] <Electric Blues>
 ```bash
 magnet:?xt=urn:btih:C1F5DA3FE162156BB7D40E57B1F4ED7E41CAB57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ VA - Not/Alone in Flight (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtem
 ```bash
 magnet:?xt=urn:btih:9791C9D23E618AB5D99BFD917ECE980E574F2C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ Primal Code - La Via Della Seta (2018) Hypnus Records [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:1FCADF71C6C37738D666D16AE2D796FA2A132396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDBC6D25DFADD3709CD9A715514F4E6953A53188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ King Company - Queen Of Hearts (2018) Japan [FLAC|Lossless|image + .cue] <Hard'n
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7544944CAAAC9AA6530BFF0274B8CD2F903E5760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:769A36202DA75D3972E76E19F8D85E36FB38464B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9C75738765CFAC8339C9CFCCE316CAA38057C93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ Lyre Le Temps - Prohibition Swing (2016) [MP3|320 Kbps] <Electro Swing>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB18B0DBECAFA504F0BAF8396A88F49EB102E066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

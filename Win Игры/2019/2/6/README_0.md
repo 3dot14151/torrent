@@ -19,8 +19,7 @@ Chimeras 5: Mark of Death (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:00AD903BD9D1EC61C5BF1FBE6D8140BF8CBBC5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legacy: Witch Island 2 (2019) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:66E0B89B59A4882DF16E78862C34B6D1C48BB258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alicia Quatermain 3: And Mystery of the Flaming Gold / Алисия Квотер
 ```bash
 magnet:?xt=urn:btih:CC59FE32F43B6567FA201CE6346D214503A88C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kingdom Rush Origins – это третья игра в завоевавшей 
 ```bash
 magnet:?xt=urn:btih:3A3015EAE8BD856992A68F4F4B78050D52B2F09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sudden Strike 4 (2017) [Ru/En/Ger] (1.14.29902/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:2AA7F939F6A91FCCA48506C32F64ECB8D3728FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

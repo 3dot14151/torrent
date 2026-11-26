@@ -25,8 +25,7 @@ Steven Wilson - 14 albums (2003-2012) [FLAC|Lossless] <Progressive / Psychedelic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ CG Bros. - За Единый народ и Единую Власть! (2012) [MP
 ```bash
 magnet:?xt=urn:btih:66CD724CB25C9E259447C3585AB7BF9806A73DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Ritchie Valens - The Very Best Of Ritchie Valens (1999) [MP3|320 кб/с]<Rock-n
 ```bash
 magnet:?xt=urn:btih:C2F8A905C1609558A2CA09E191841E0E6C49EAFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Nosound - 4 albums (2008-2011) [FLAC|Lossless] <Progressive Rock, Psychedelic Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ CD 1 | Продолжительность: 00:43:35
 ```bash
 magnet:?xt=urn:btih:6522B4A053886779727610EBAF344EB48D46A0F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Sweet 75 - Sweet 75 (1997) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:C9F567F16B6216B76A9C8AE6DA862706908BFC03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Haunted Manor 6: Remembrance (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:FFC9D8FEA6F223857CF4F241DF2DF8BFBC1A7ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ John Wick Hex это динамичная экшен-стратегия, в ко
 ```bash
 magnet:?xt=urn:btih:5AF8724EF7750698F029659499FA528BAD95A36F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

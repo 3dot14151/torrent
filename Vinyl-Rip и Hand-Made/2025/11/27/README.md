@@ -22,8 +22,7 @@ A4 A Man & A Woman (From The Film Of The Same Name)(   Читать дальше
 ```bash
 magnet:?xt=urn:btih:76C679515133942C1C63DC9A46599E7F5DCC7DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

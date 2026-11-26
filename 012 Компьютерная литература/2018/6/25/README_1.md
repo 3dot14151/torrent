@@ -20,8 +20,7 @@ WI-FI - это современная беспроводная технолог�
 ```bash
 magnet:?xt=urn:btih:54FBF23E0EFE1680BBE37D8AFE5418A8E548ED83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34B24BDA1FE0F4B3FDA0E207F46C7F321448C6CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

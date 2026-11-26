@@ -27,8 +27,7 @@ VA - Лучшие Хиты Осени 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:7AA627B0A6F8F3A6784CE0E68F1E6F10BA0D3BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Marty Weintraub - Dolphin Dance (2001) [MP3|320 кб/с]<New age, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:06BE026C7D0A36FB4AEA8BD17770C981461E05A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Турбомодные осенние хиты (2012) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:F069AD1C5E80F9E43DBEF78344D50E66A4A481B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Осенний музобоз MTV 50/50 (2012) [MP3|256 кб/с]<Pop, Dance
 ```bash
 magnet:?xt=urn:btih:AC21C66412D187B3EB57448B9963E89D0329FEC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD2EE377F205C071967C3CCE346F85102C3C3674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ VA - Самый Модный Хит Сезона Зарубежный (2012) [MP
 ```bash
 magnet:?xt=urn:btih:B7816A1A158CC78A1AB5F1FC36F957CF1D02C19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Computer Desktop Wallpapers Collection (20.10.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:EA7728E65833FEEC1BF525C4572C7647E5C4B6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2E438810FA9A28D78C8D8C4D81A2AE90E4B025C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D0992A464126C181E3F71CED491CA5B100B5047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ VA - Amsterdam Trance (2012)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D84CE2D3DB4C6EE6CA5A5A7730E849267BF22D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A796153E44F400E0D97FE556E6E3F283FF05C7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ VA - XXXL Клубничка №40 MTV (2012) (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:EFA8BE473EC321760E39C8F8829A6F94C1724F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AB0276DA42FF97F9F6E344FEC2AD2DC9780CC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ VA - Зарубежные Новинки Vol.84 (2012) [MP3|192 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:0959142B842BA0E95F289027A7893C4CBF3E929E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +474,7 @@ VA - Позитивная музыкальная энергия (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:EF9C1AED135BE60CC72A695819F990580AD21694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CD6F6BE209F0EABDCE8949FFE5105B619FEE433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ VA - Дискотека: Танцы до упаду! 50+50 (2012) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:257D5EF76C3FB7673D079098E05B79F748626B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56555B5C8EBB4421211FB528097B5CEEB26B388D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE06C59D8D08CED27C3847F478421DE6EC6F9989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ VA - US TOP40 Single Charts (21.10.2012) [MP3|234-320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:ECF7D2C598188A0DF6C373AE05BB040510AE5FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +655,7 @@ VA - Шоферская бездна удовольствий 9000 (2012) [MP3|2
 ```bash
 magnet:?xt=urn:btih:CF65BDA6604CB0370320EE09749CCC6033432139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8BEE89FA872EFADFBD500139D5BD517F06E18F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +714,7 @@ VA - Ништяк Браток! Эксклюзивный выпуск (2012) [MP
 ```bash
 magnet:?xt=urn:btih:4479418F5434E423A1FC764C90CE8A13AD8BAEBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D42AE3E09CD1CB2E90EAEAAD4430C2BCBDFB7408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +768,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32D57C40BD2F2892B030E2A9CB97FDE0DDF2884B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

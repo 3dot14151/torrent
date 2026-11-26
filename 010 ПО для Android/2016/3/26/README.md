@@ -19,8 +19,7 @@ GPS to SMS v3.4.15 [Ru/Multi] - отправка GPS-координат по С�
 ```bash
 magnet:?xt=urn:btih:76693CD849F135983EE4771E6DFD0FAB1A95F6E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

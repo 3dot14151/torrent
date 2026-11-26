@@ -19,8 +19,7 @@ Chimeras 3: Cursed And Forgotten (2016) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:5FBF7086165A88C7EB14C912BE6C7A9BB364F367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Redemption Cemetery 8: At Death's Door / Кладбище искупления 8
 ```bash
 magnet:?xt=urn:btih:477E53A46777DD4981D41F42965DEA22B930A701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Living Legends 4: Bound by Wishes / Живые легенды 4: В ловушк
 ```bash
 magnet:?xt=urn:btih:79D6B067E44C7D144C78EE87D182C4E6596FE784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

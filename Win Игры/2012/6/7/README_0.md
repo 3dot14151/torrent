@@ -19,8 +19,7 @@ Rite of Passage: The Perfect Show Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:41E3C76DEA79EB260EE393D8B59288362A9836EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Youda Jewel Shop (P) [Multi6/-] 2012
 ```bash
 magnet:?xt=urn:btih:85097A9E3475060BBDE6D4825298D457C0304E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mortimer Beckett And The Secrets Of Spooky Manor / Мортимер Бэккет
 ```bash
 magnet:?xt=urn:btih:4792FBD626DEF89D7C8AD0FBE3DD3906FC8D0582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Back to the Future — компьютерная игра в жанре квес�
 ```bash
 magnet:?xt=urn:btih:1F176F09CB3799BFE20DAD9BF0F8074EBEBB8BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

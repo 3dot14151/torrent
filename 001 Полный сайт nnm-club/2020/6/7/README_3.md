@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D443073E6890E4E4DDDD5ECF815ED3904A5EBF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07C5E920985EF59654514DB82BE81234B5DA0FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Joe Dassin: "Ses plus grandes succes" [DVD5] (2000)
 ```bash
 magnet:?xt=urn:btih:9321974FFD79954F0355436875DDC32B93AF552D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65C7CEFE79C5F21B2DB49289A39581AD76A16C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3E901D75C98D28F87AC8A7D0EC5ED7389D7BE95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9A3801408934DC1FD3197B12A26A2C45E0D377C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:988DC6826F328DE0E40A8CCFA9BC5DADEEFAAFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Kholat – это приключенческая хоррор-игра, вдох
 ```bash
 magnet:?xt=urn:btih:2E838F3E9484C8F7D6DA485E7BE93F915E6EA6A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D871AFE864A4AFA8851EEA14328E1E5430D03E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Godzilla. Kessen Kidou Zoushoku Toshi | Годзилла. Город на Гра
 ```bash
 magnet:?xt=urn:btih:B18E73368505FFC406C399AD00CA5D78F7FAC42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Godzilla. Hoshi wo Kuu Mono | Годзилла. Пожиратель звёзд 
 ```bash
 magnet:?xt=urn:btih:C3C31E8635CA37B359F09249484F61835BEA9F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Godzilla. Kaijuu Wakusei  | Годзилла. Планета Чудовищ [201
 ```bash
 magnet:?xt=urn:btih:15B78FE0D857459C4693846999542CF486E0D503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04B56C32891DF81E8F9503EC5851A769DD174341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A70A4E3679F70E19436D2AEFA747CEB41899D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:89F02CC585842E5AEE6E1C2C4686F0A24E8D85C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 72
 ```bash
 magnet:?xt=urn:btih:13407642CE23D22F6961AC8807A1F001CBFAF84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ MInstAll v.02.06.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:4035CA30DCB5CA326163E493C667CF84A68295A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ Resident Evil 2 Remake / Biohazard RE:2 (2019) [Ru/Multi] (1.04/dlc) Repack West
 ```bash
 magnet:?xt=urn:btih:3620F0531156575C13C2A1C8690CA50C7B4CE31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ S.T.A.L.K.E.R. Lost Alpha DC Extended - новая глобальная моди
 ```bash
 magnet:?xt=urn:btih:AB0124F44695A37535ED878E0235FCDE21533997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ Windows 10 32in1 (2004 + LTSC 1809) x86/x64 +/- Office 2019 x86 by SmokieBlahBla
 ```bash
 magnet:?xt=urn:btih:2DD15C5C612871745A5B02D22E281A4A0A559B0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

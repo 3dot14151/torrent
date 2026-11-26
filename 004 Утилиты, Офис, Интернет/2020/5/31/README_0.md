@@ -20,8 +20,7 @@ Management Remote PC - программа для удаленного управ
 ```bash
 magnet:?xt=urn:btih:AF9D350F642B32F3675AB8BDA35390D97A5B4FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

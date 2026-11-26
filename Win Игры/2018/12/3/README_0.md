@@ -19,8 +19,7 @@ RIDE 3 (2018) [Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:FD5539000AD4AC90FCE8413433997177FBDD51D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

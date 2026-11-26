@@ -18,8 +18,7 @@ Discovery: Что было дальше? Серия №9 / What happened next? (
 ```bash
 magnet:?xt=urn:btih:5CBDF9DE4E9E47177D2C6944FF88B2BD1253798D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A50B6DE620DE33B0D11095FF75D88EA7B90B73EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E810F3F8D33926CA96F4F939AEA25557421C8AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Bird Of Prey - Dreamcatcher EP (2010) [FLAC|Lossless|WEB-DL]<Dubstep, Grime, Gli
 ```bash
 magnet:?xt=urn:btih:FF87BC2E7F2A5617325668A4EAB23EEE1815E61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Sandwell District - Feed-Forward (2010) [FLAC|Lossless|Vinyl]<Techno>
 ```bash
 magnet:?xt=urn:btih:0CEF8939462AE6EB9B83DE77FFC04CBDA767911B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A31C48E84F54C289D95D2BAB1111D5473E318D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EACD4F1EB71D226BB940A81698586B260B1C8146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67051E2DC64319B9149A55964334A46BDA218131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Bird Of Prey - SubTropic EP (2010) [FLAC|Lossless|WEB-DL]<Dubstep, Drum n Bass, 
 ```bash
 magnet:?xt=urn:btih:05D5AF5B1DDD225631263B3EC88C850520C9EC0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:986EE34E9A45A9D957AE51F193A97FC80793E1C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Bird Of Prey - Stray Feathers EP (2011) [FLAC|Lossless|WEB-DL]<Dubstep, Downtemp
 ```bash
 magnet:?xt=urn:btih:196CF2BD1DAA774E5A61DA4CA8BF3F17DF57A15A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F13CBE6F95EF747CBCDDC07E4C6E5E91E02A22D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ VA - Trance Pro V.41 от Kulemina (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:90384FF9C27AFF4FDD899F1A5255D7282FDC9A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9496E12FA4DCE853874A91313B35DF55294F246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ VA - The Place Ibiza Vol 2 (2012) [FLAC|Lossless]<Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:4390977F2A400EB4FA37FA9B474F2F25BD881BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ VA - Top Club Music World Hits 5314 (2014) [MP3|320 кб/с]<Club, Progressive, 
 ```bash
 magnet:?xt=urn:btih:43F2D3E823F6439B9770ABD59CBFB25FDA006428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ VA - Моей Жене с Любовью (2014) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:D9D62021E3F620783F740AD3CBF04AB04E916F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ Eduard Reik - Between Arrivals And Departures (2013) [MP3|320 кб/с]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:25D09B9B9F0FF7A08E67455AD1CDE8D09367E924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:471273A3D9E5571769142895F9623137B0BB5ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17ECCAA467357F66E60A5F434D87E2A1A8A43DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ Don Airey - 4 Albums (1988-2014) [MP3|320 кб/с]<Hard Rock / Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:058B479B78FAC647382035DDD3116436810C745D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:A882366EF37601569EBB8DE24D0A0CA70F9E8468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44AF7E830C2774314BDC319E3779111FFF489362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ VA - Selected music reggae (2014) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:A8F230660ABE3226F52E770026236DC270C55B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0196D714DC3726AC90CAC3CBAB7042A3ECAD2A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FF9D6104452228D3B118FC84C5E3F5EC4D0B540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

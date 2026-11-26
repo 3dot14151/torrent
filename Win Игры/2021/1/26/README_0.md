@@ -19,8 +19,7 @@ Steel Division 2 (2019) [Ru/Multi] (46442/dlc) Repack xatab [Total Conflict Edit
 ```bash
 magnet:?xt=urn:btih:C77FEE328933DF78ABF5C3D0D016BBA8A6769E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

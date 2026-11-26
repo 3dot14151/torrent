@@ -19,8 +19,7 @@ Whispered Secrets 14: Purrfect Horror / Нашептанные секреты 14
 ```bash
 magnet:?xt=urn:btih:78622CAD4B9A0381D590F29ECCE1F09F874974A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Madshot (2023) [Ru/Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:EBFAB93EB65BC67586A739D94C7C3E4D5A4444A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Repair House: Restoration Sim - это умиротворяющая и за�
 ```bash
 magnet:?xt=urn:btih:004220218D19EB388D5EF4F11BD1941151E2F99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

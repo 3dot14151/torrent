@@ -19,8 +19,7 @@ Akado - Dark Side (2016) Single [MP3|320 Kbps] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:70DF4B44F8C37353E603086CC0BEECFE42BD6C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

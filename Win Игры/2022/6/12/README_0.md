@@ -19,8 +19,7 @@ Twin Mind 3: Ghost Hunter / Близнецы-детективы 3: Призра�
 ```bash
 magnet:?xt=urn:btih:247310765D33D0F17AE0A1CEA9CC42AA1D538A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trek to Yomi (2022) [Ru/Multi] (1.007) License GOG
 ```bash
 magnet:?xt=urn:btih:7A2389B5B807D85EAD6601804E9A98FD59FB0674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

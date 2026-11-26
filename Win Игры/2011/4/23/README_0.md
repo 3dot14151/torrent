@@ -19,8 +19,7 @@ Dream Chronicles 5: The Book of Water Collector's Edition / Хроники Сн�
 ```bash
 magnet:?xt=urn:btih:A754ED476C4D417724847C9AD8868E3EBA1E0539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BD9A58E09D8C410386455B1F238EF2303D5BBC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dungeons / Dungeons. Хранитель подземелий [Ru/En] (RePack) 20
 ```bash
 magnet:?xt=urn:btih:BD53A5A2BD1F0F8EF753CFBC1C59CB4B6FE671DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Darkspore [Multi5/Ru] (L) 2011 [Без таблетки]
 ```bash
 magnet:?xt=urn:btih:F28F3ED39DD231C1B10DF970BB979225C9D18918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

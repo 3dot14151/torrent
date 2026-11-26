@@ -19,8 +19,7 @@ Revo Registry Cleaner Pro - это мощное и эффективное про
 ```bash
 magnet:?xt=urn:btih:7386796A6674D8C0E0CFEA3248BACC129A4BE20D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:5A2AAD8DB42E2AF315515EDDB45770CC74FAE613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:140AF8D8087DCC760469EA42BEAB7E2F53B4F40A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

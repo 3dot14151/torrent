@@ -22,8 +22,7 @@ A3 Auberge(   Читать дальше...   )Жанр: Blues-RockПродолж
 ```bash
 magnet:?xt=urn:btih:6A58E6C29AC8EAFA9AB982DB1D4F85700DC5B32F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

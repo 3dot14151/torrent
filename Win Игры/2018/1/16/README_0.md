@@ -19,8 +19,7 @@ DYING: Reborn - это игра-головоломка в жанре «Эске�
 ```bash
 magnet:?xt=urn:btih:939A9D8CA32988CE6E340366F7C0CA7A962D7949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bike Rush - это шутер от первого лица на байке. Вы
 ```bash
 magnet:?xt=urn:btih:7FB8C51FC1B3CE69371D8C6E2D23541A70A990DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.07.0.1318/dlc) Repack xatab [Definitive
 ```bash
 magnet:?xt=urn:btih:0F7A8D59A0BFFA7F97AA983C47518B03709F5306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

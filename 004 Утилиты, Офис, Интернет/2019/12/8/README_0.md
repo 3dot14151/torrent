@@ -19,8 +19,7 @@ GreenCloud Printer – драйвер виртуального принтера,
 ```bash
 magnet:?xt=urn:btih:068DCD18939CE4A191D47D019907189D25F40BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Bulk Image Downloader (BID) - это программа для загрузки 
 ```bash
 magnet:?xt=urn:btih:DEF2270693DC918245893B9461431600D70DF856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Distant Desktop - портативная утилита, которая позв
 ```bash
 magnet:?xt=urn:btih:6302D4684C55BF324144F26E024B67537ACC379D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

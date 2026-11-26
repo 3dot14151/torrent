@@ -19,8 +19,7 @@ Cериал рассказывает о девушке обладающей не
 ```bash
 magnet:?xt=urn:btih:93C3FC058F57108AFFE7DA95DB95F0E14522BF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

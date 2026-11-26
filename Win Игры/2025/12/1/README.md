@@ -19,8 +19,7 @@ MARVEL Cosmic Invasion - это динамичный 2D-битемап в сти
 ```bash
 magnet:?xt=urn:btih:107EC19CDEF9E3752ED412561092192572AB4A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (739124) Repack Necros
 ```bash
 magnet:?xt=urn:btih:88FFFF2027A02A5CFA152D1E620A826E4856C93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sacred 2 Remaster (2025) [Multi] (CL16183) Repack Necros
 ```bash
 magnet:?xt=urn:btih:2AA24CA379DD9DDB614EEF8823B9213EE8AFFE42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Verho Curse of Faces - мрачный мир, скованный смертел�
 ```bash
 magnet:?xt=urn:btih:6C28D575980966CEACAEDCAB8F54159E7AFF5E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Call to Arms: Panzer Elite – это захватывающий симулят�
 ```bash
 magnet:?xt=urn:btih:C1BB78ECDCA8346245D0BD34EC294001800A012B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Death Must Die - это ролевая игра в жанре рогалик с 
 ```bash
 magnet:?xt=urn:btih:EC735F0077155E153C2F36D970FC89725B4564A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ A.I.L.A - хоррор от первого лица в сеттинге неда
 ```bash
 magnet:?xt=urn:btih:B8F1C84D3A37D522A725663FD0C3716E462324E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Company of Heroes 3 переносит вас в новый живописный
 ```bash
 magnet:?xt=urn:btih:A971E4FB72C68DB6D8900DD39B2479E304F96277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Lost Paws (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1D9E04EAE013685CD19C19BAF3AB3E7927FE75D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Ayasa: Shadows of Silence приглашает игроков в мир, где 
 ```bash
 magnet:?xt=urn:btih:DBC24D7F9CD957EEC5B5E069D03FCEBF59385E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

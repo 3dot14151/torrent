@@ -19,8 +19,7 @@ Chimeras 10: The Price of Greed (2019) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:67D5F543F748F49D6C82AC43406D4B994AB7D9E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.1) Repack Bu
 ```bash
 magnet:?xt=urn:btih:029C312F4FC5D7A328B4214326630EC545C39136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

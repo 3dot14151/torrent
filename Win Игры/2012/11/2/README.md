@@ -19,8 +19,7 @@ Mystery of the Ancients 2: Curse of the Black Water Collector's Edition [En] (P)
 ```bash
 magnet:?xt=urn:btih:4B00CE0DF10B319F5D93FCF2994EBF8E6810A155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Living Legends: Ice Rose Collector's Edition / Живые легенды. Лед
 ```bash
 magnet:?xt=urn:btih:19F5A0D7A7A8CEEDE1B45818F11472660CB16C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pid – платформер, где вы выступаете в роли ма�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

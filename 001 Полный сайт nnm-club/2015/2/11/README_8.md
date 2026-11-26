@@ -23,8 +23,7 @@ VA - Dead Memory Vol.1 (2015) [MP3|320 кб/с]<Punk Rock, Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:9843ABBCEF92880A3D7E5991C164FFE3D42F8650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The Lizards - Future Life (2015) [MP3|320 кб/с]<Punk Rock, Skate Punk>
 ```bash
 magnet:?xt=urn:btih:7C4636DD3E1945FDC28AECB36128E95FAB280F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E54E35ECA2E1F1C8991A51E1B16B6B17F75F9025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - 1 Year of Figment Records (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2C9C0BBBB6BA6688DDA1744745B7D410934427B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hecq - Mare Nostrum (2015) [FLAC|Lossless|WEB-DL]<Field Recording, Ambient, Expe
 ```bash
 magnet:?xt=urn:btih:52B2741229CB5B0B94700BD775FF4FCE95ECCFDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Algo - Goon EP (2015) [MP3|320 кб/с]<Dubstep, Carnival>
 ```bash
 magnet:?xt=urn:btih:6D97ECC6D7B9F5CE78A7F4822AC31C002A815F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52B6A2C028F0A43DC11C5D9134075AB74C10A433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Niveau Zero - Underground Flavor EP (2015) [MP3|320 кб/с]<Dubstep, Trap>
 ```bash
 magnet:?xt=urn:btih:E64391ED6FE8D95AA427BC243A4C37BC6B29608C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AC5EB1944E0D227E321635B94341C2E71668116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB7DE365207DD98F268BEA9869F032CF2105C62F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Hope of the States - Left (2006) [MP3|320 кб/с]<Alternative/ Indie/ Post Rock
 ```bash
 magnet:?xt=urn:btih:239328DE1E22F93986ECA0DCEA1B131DD863E611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ SPY - Brstl Hardcore EP - Brstl Hardcore EP (2015) [MP3|320 кб/с]<Drum'n'Bass
 ```bash
 magnet:?xt=urn:btih:01A2E6ABEF0B22327BF909F2EE5ECF0A0C186BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ Imperium - Babadook EP (2015) [MP3|320 кб/с]<Dubstep, Deathstep>
 ```bash
 magnet:?xt=urn:btih:C75A2BC057E4ED08747830F0D3DB651AA1594AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ Hidden Wave - The Progress (2015) [MP3|320 кб/с]<Drum & Bass, Liquid Funk>
 ```bash
 magnet:?xt=urn:btih:22BDA6E1E8FD481D4580A525A6D944D8A98D2B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25E6FCAF323EC6757F74D2BEDD253BD85C4ADF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Astronaut & Far Too Loud - Destination: War EP (2015) [MP3|320 кб/с]<Breaks, 
 ```bash
 magnet:?xt=urn:btih:E79B3630009EF6D6DAA494BF584449E400577F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E8EA40E9128CB8F7A4A1C5DB2E937306B77800F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ DJ Fresh - Gravity EP (2015) [MP3|320 кб/с]<Breaks, Drum'n'Bass, Midtempo, Ba
 ```bash
 magnet:?xt=urn:btih:EC1CB696060ADCF0DDD3B42AB6EBFF77C37CB7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ Twine - STRNG THRY (2015) [MP3|320 кб/с]<Dubstep|Trap>
 ```bash
 magnet:?xt=urn:btih:7F8B471CC0A9D87C704FD0F6D44C4822C5FA91C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D924B377806E00EDF14592BE8861C39BA45E7029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ Yuri Goloubev (Юрий Голубев) - Toremar Island (2001) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:E05D42E0CCDA18AF8D4B5B9F6604C05A29ABA17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ Hackensack - Up the Hardway (1974) /2002, Red Fox/ [FLAC|Lossless]<Rock, Blues R
 ```bash
 magnet:?xt=urn:btih:33B5B7366843E38271D9D822217D8752FF863ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B29D2ED67BB199A9823E6CB7EB08CAF6E950DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49067A2C394612D50F04304E0E013E58176998C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +706,7 @@ VA - Vocal Trance Collection Vol. 130 (2015) [MP3|320 кб/с]<Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:5FBA6543A140A37563EA66248ABAC57C76A495F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7044DA36B7B4D7227D0300DAAD6AA52A8EA3AB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ AIDA64 v2.16 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0E9DFA1B53BDA71B9AFCC6A66D0159A5FE23ACB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

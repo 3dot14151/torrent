@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6A44E35290135CED6E7A6E1ACC56C45AF9F92482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5498) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:9125DD2AA1EDF4C109282583AAF5F20530E9B378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D1AE23598A120DCA5EA986DE9DED88E70ACB00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8F1B62DFDA9F643F1D4F49A69B922A58EDC8D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

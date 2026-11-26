@@ -18,8 +18,7 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru/Multi] 
 ```bash
 magnet:?xt=urn:btih:606B5B2015D76DFD13E3D93A5E0F9711BA65529E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9849C6A090D104DDD5E2C6186E6F69A9E471DE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

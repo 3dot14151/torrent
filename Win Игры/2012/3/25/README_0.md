@@ -22,8 +22,7 @@ Homefront – сюжетно-ориентированный кинематогр
 ```bash
 magnet:?xt=urn:btih:5D32CED9759357C78CA169628B7BD04A6B815FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Ghost Encounters: Deadwood (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:DDC7726DDC8E809DB2B2BB3088E04588EB9F7DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

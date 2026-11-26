@@ -19,8 +19,7 @@ Spidy это маленький паучок, отправляющийся в з
 ```bash
 magnet:?xt=urn:btih:8179490F93195DFA141308CE7F007924AF7A0A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ About Love, Hate, and the others ones - это головоломка котор
 ```bash
 magnet:?xt=urn:btih:F8B45AC5CB6E468F4C7FC3A5B910003CD543DC4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ I Will Escape - стелс-экшен с видом от третьего лиц
 ```bash
 magnet:?xt=urn:btih:9226769A68B62E3F563E875148430B1D0A6D48AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

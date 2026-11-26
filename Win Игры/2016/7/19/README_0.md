@@ -19,8 +19,7 @@ Rocket League - это аркадный проект, который сочет�
 ```bash
 magnet:?xt=urn:btih:852737F770939349C604DEEC28676633FC714169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Raw Data — это аркадный шутер для VR-шлемов и очк
 ```bash
 magnet:?xt=urn:btih:BDAB56CAE73D31EC2B842D47075531D7B96D62FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Earth Defense Force 4.1: The Shadow of New Despair – новая игра в с
 ```bash
 magnet:?xt=urn:btih:6342A2DD121933DD799F17EF739B66AEEC70D4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.5/dlc) Repack Other s [Gold
 ```bash
 magnet:?xt=urn:btih:10B1AE0E36970AC26BDA088568D544C99CF7BEA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Earth Defense Force 4.1: The Shadow of New Despair – новая игра в с
 ```bash
 magnet:?xt=urn:btih:C825DBA561BAFC538142AA6DD3B93AF936916720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

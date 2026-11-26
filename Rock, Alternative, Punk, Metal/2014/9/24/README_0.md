@@ -26,8 +26,7 @@ Killowatt - Killowatt (2014) [MP3|320 кб/с]<Heavy, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C780D303D9895751EB7DCB9504937178A1AFFFFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Fantasy - Paint A Picture (1973) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:86250CF655DE90D5213C74A195352814E284AB3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Rock'n Wolves - California Way (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:47E5DD28BB6F2C7C95D992FEAF0E1D3565CE1D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Left Alone - Harbor Area (2014) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:95B47FF160343DF53DBDA3D2713335CAB23574D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Nonpoint - The Return (2014) [MP3|320 кб/с]<Hard Rock, Alt. Metal>
 ```bash
 magnet:?xt=urn:btih:E910CDC9CAA8A22CF9237C37D6E59D0FD32F9CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Joe Perry (Aerosmith) - 2 Альбома (2005-2009) [MP3|320 кб/с]<Hard Rock
 ```bash
 magnet:?xt=urn:btih:A8F0CA92B7EE394DEC6E4EC6A26F2DF44771EBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

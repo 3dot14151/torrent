@@ -28,8 +28,7 @@ B3. Plateau 3:38(   Читать дальше...   )Жанр: GrungeПродол
 ```bash
 magnet:?xt=urn:btih:60606D67144207DB7E92DDB1A76DB43F321DC14A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Down - NOLA (1995)  [FLAC|Lossless|image + .cue] <Stoner, Sludge, Southern Metal
 ```bash
 magnet:?xt=urn:btih:9F3D8F80E0C81C0A4F0648855E664E70495C6B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Thy Art Is Murder - Dear Desolation (2017) [MP3|320 Kbps] <Deathcore>
 ```bash
 magnet:?xt=urn:btih:42F74B5F48FC509B874E07B4E00DF991A94FDB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8DB06809D599B89566EB5FAE62C6875A7B7B409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

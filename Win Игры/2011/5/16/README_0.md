@@ -19,8 +19,7 @@ Fairy Treasure (P) [En] 2007
 ```bash
 magnet:?xt=urn:btih:5CE605C97BFC2DCB31C6E41E05CAC597CCB80870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

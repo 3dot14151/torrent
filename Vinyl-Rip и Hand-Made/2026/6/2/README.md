@@ -22,8 +22,7 @@ Empire Of Disease - метал-группа из Бильбао, Страна Б
 ```bash
 magnet:?xt=urn:btih:71096407EFBF8A2BEB7BF5B5DD0B88E11D91D6D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Canopy - метал-группа из Швеции, основана в 2002 г�
 ```bash
 magnet:?xt=urn:btih:3E5FC209F949F9D0E533335A5EB74F554ED0B2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Elegant Weapons - супергруппа, в состав которой вхо�
 ```bash
 magnet:?xt=urn:btih:6160609DA53577E84C3BDF3093B0DD01333B30A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A3ABFDC69B9A3B47B0D12575131ABF2A3AE3F2EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ R-Studio for Linux это еще одна надежная и эффективн
 ```bash
 magnet:?xt=urn:btih:10E34278F16D5F689D3CCAF41FF669AEAA0D8EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.06.1254/dlc) SteamRip R.G. Игрома
 ```bash
 magnet:?xt=urn:btih:3294AFD87C7E6238D686CE9F321B04CA3B6CA5FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:56D750F71E3D7E3A949D7E971B39594C0FA02B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Google Drive сможет сохранить все содержимое ком�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8382FEA8F00EC00686BA6197FE5EA63B617FC731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Brigador (2017) [Ru/Multi] (1.3.2a) License GOG [Up-Armored Deluxe]
 ```bash
 magnet:?xt=urn:btih:64291FA19DF48F1EFA6E633799933F26F035ABB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Gin no Guardian / The Silver Guardian / Серебряный страж [2017, T
 ```bash
 magnet:?xt=urn:btih:F16A4B019792914DF3A94501362AC475A69CBF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ SpyHunter - мощная утилита, которая в режиме реал
 ```bash
 magnet:?xt=urn:btih:D91E666290AD7AFC84B096C2BC90D6549CEA198C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE49F3DDAFC99F771FDB4D508A0DB26C1E9D8AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F049B801CA46F457D4CC64004E241827469E3C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05E2623E7B173354D9728F744D76DB2EE19AFF21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:942B07917C55E21878EE51073A0366A02928A81A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (2.0) SteamRip Let'sPlay [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:3055BD7B0C4AB2EDE2EF67EDA388F8A97C7C1F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ SuperАлиби / Alibi.com (2017) BDRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:FE2BF0DA02163D30210B5D66CDC4952BDEF7795D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Total War: Warhammer (2016) [Ru/Multi] (1.6.0/dlc) License STEAMPUNKS
 ```bash
 magnet:?xt=urn:btih:6EAF0E0CF5AA783A6B199A4CC1667AAE8C08D27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8650D4462EB4B10D11D1DD1EA0DF6BDB9C9F2C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ Windows 10 Enterprise LTSB (x86/x64) Elgujakviso Edition (v.18.06.17) [Ru]
 ```bash
 magnet:?xt=urn:btih:BF5E4ABCE8BA3F80EF6E167EDE80CB5651CFDD78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7F14E3C4A05E7882F95A725576F9A2F14B584EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ Redump.org это база данных и сообщество, храняще�
 ```bash
 magnet:?xt=urn:btih:44D9C1B2D276E73AD3A607DAF623BDC8B44EB54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3D02A9E69120ED766908311B1EBFCB54566B5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ Total War: Warhammer (2016) [Ru/En] (1.6.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:35A692CF2FD41C806B709BE7DECD2454B05D620D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9628C351E5722EB35BE6A1134BF84D838A5107A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +653,7 @@ Redump.org это база данных и сообщество, храняще�
 ```bash
 magnet:?xt=urn:btih:DAC912D9A80825B2B684CC7E3E6B97AE37F4BD67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

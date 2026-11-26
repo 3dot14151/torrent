@@ -19,8 +19,7 @@ Tektronix | Руководство по проведению измерений 
 ```bash
 magnet:?xt=urn:btih:1D0328B4820BB85251AA28A83EA6D2E2512EBDA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

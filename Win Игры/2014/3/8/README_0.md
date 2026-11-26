@@ -19,8 +19,7 @@ Delicious: Emily's Honeymoon Cruise (2014) [En] Unofficial [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:E4226D99DF1A4DE8FC965889BACCAEE7EE07CB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery of Unicorn Castle 2: The Beastmaster (2014) [En] Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:D7D1673A23CE29120BAA7B767ED421B5C0BD0678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Strider возвращается с невероятным тач-скрин э�
 ```bash
 magnet:?xt=urn:btih:00CBD0DE198DF3C2D725BCA99D26B62E20505E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

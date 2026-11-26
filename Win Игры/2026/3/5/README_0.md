@@ -19,8 +19,7 @@ Gunslugs 3: Rogue Tactic не ограничивает пользователя 
 ```bash
 magnet:?xt=urn:btih:D41758D68D175BA2EAEBD0B6D6CD27A1984B0660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gunslugs 2 перенесет жанр экшн-хаоса на новый ур�
 ```bash
 magnet:?xt=urn:btih:75F5AAE15C44F50AEBF43457DE872DD5D1D57D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gunslugs (2015) [En] (3.3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:85C50799C84E56FA47A3DBA004B84895683BF502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.03.2/dlc) Scene Rune [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:C273FB993B04DC4F17717F17B62D8358161FDA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Planet of Lana II удваивает масштаб первой части, п�
 ```bash
 magnet:?xt=urn:btih:304F367F83B32963344B7EF46C3FF1CA9E854F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Gatekeeper (2024) [Ru/Multi] (1.2.0.00/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:82C3A52BD95258685AB186CBF9FC4B4DAAAB0E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ys X (10): Proud Nordics (2025) [Multi] (1.0.3r10/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:CF98060B844977FE957F6D8C5FD805CC9275A747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Reanimal (2026) [Ru/Multi] (354342.5/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E7ACBDC0D5D1A0986DCD0B40191F2C5E8E152491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Star Trek: Voyager - Across the Unknown - это стратегия о выжи�
 ```bash
 magnet:?xt=urn:btih:FF8F68C8A5D37BF15590213F13CC090FD90B3285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Fisherman Simulator, экономическая модель которого б
 ```bash
 magnet:?xt=urn:btih:FCD701757BADAF5E80C36ECFC15D691DF0169E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Total War: Attila (2015) [Ru/Multi] (1.8.1.1299.3427123/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D25E9FAA2F7450B9CB76D0D6366D6BAD4CA1FD64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Pure Pool Pro - симулятор бильярда, в котором карь�
 ```bash
 magnet:?xt=urn:btih:084C9AB90C9F28A6017381069D555408B2FA0DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Pure Pool Pro - симулятор бильярда, в котором карь�
 ```bash
 magnet:?xt=urn:btih:4C49ACDC578E923D66512C4B276C918FDD0BB580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Pure Pool Pro по-новому приносит и раскрывает бил�
 ```bash
 magnet:?xt=urn:btih:7FA516856525A37181C7F207CE55D6D3082A68E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Scott Pilgrim EX - это приключенческий экшен, в кото
 ```bash
 magnet:?xt=urn:btih:78F0089BB997C4A003E2988B7C11E259E87A68B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

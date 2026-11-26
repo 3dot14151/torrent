@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E3AD674AD262AA5B271FB88FFCEC8579115673BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A20144D875C76A00DFD8CCC2B8716E1DCB6CB37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Doma TV Net Pro v4.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:D261DA2403D81DCC5598DB4638A27B7EF6823D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Futoku no Guild | Развращенная гильдия | Immoral Guild [2022,
 ```bash
 magnet:?xt=urn:btih:EE194ADEB439C2865D2C93B6F33781E4CDAAE0FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AA9DC9E1280201BAF087A29EF1B3B5C39CCEB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ MInstAll v.25.12.2022 By Andreyonohov (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:15E8D099EFA0AB510D21750B8C7F3650B46DE3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Kaspersky Plus 21.8.5.452 Repack by LcHNextGen (26.12.2022) [Ru]
 ```bash
 magnet:?xt=urn:btih:89D6F655AEC6117748FA9393114091AF7FC7B8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ MInstAll v.25.12.2022 By Andreyonohov (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:862D5A04A788A72D72C784F0DC89F1B1EC28649E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

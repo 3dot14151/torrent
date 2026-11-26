@@ -19,8 +19,7 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:F0669689673B227135391741C87498C815E67D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ESET Mobile Security Antivirus 9.0.14.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A478BF511D93F76AE99F3B8F18FF6D0C2E5CF6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

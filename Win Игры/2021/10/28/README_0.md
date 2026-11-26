@@ -19,8 +19,7 @@ Grim Tales 21: Echo of the Past (2021) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:9B214795FCB94F5FFF567730624E1F36E45CE724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Electro Ride: The Neon Racing (2020) [Ru/Multi] (1.0upd24/dlc) License PLAZA [Ha
 ```bash
 magnet:?xt=urn:btih:10F927FEB9F1BF0466E5D24A5834D1459552F134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dagon: by H. P. Lovecraft (2021) [Ru/Multi] (2021.10.23:028) License GOG
 ```bash
 magnet:?xt=urn:btih:A58900B7A39B955C3124C48FFCA76F3CE7BE6E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Agony – это приключенческий хоррор c видом от �
 ```bash
 magnet:?xt=urn:btih:4B191A3C0F876ED25EB95790809558FBAC61271F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Super Robot Wars 30 (2021) [Multi] (7571902) License Fairlight
 ```bash
 magnet:?xt=urn:btih:961B109746C76C478E0C410B8892EB43FEDF2CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

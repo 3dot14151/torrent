@@ -19,8 +19,7 @@ World's Greatest Places Mahjong (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:97D86A35B6E4DA18237A92771178FD840B13B631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

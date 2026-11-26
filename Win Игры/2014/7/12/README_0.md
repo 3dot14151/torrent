@@ -22,8 +22,7 @@ Constant C (2014) [Ru/En] (1.02) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4934339608C737E68367E70BDB46F8AD1339FE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Q.U.B.E (2014) [En] (2.8/dlc) Repack R.G. Механики [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:ED426E314EE4D8458B9D82043A992BF585D4BE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

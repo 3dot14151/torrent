@@ -19,8 +19,7 @@ Acode - весьма и весьма удобный в контроле и ра�
 ```bash
 magnet:?xt=urn:btih:2816513B04F8AC5B433720103D01776B21C6DAE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

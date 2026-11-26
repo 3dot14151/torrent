@@ -19,8 +19,7 @@ The Witcher 3: Wild Hunt - Remastered - это обновлённая верси
 ```bash
 magnet:?xt=urn:btih:64A0E7535F6F4440898105E00EB0D7574EC3F7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

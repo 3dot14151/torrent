@@ -19,8 +19,7 @@ Idea Share / Передача файлов WiFi v1.3.14 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:67699A96CD7FFBA46A2CA736C42935AC7AD7777E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

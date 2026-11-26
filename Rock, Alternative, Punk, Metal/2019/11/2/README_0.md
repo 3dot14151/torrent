@@ -22,8 +22,7 @@ Deaf Rat - Ban the Light (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:79D1A498001F0F98F941CDF19F392F862882568D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cradle of Filth - Cruelty And The Beast: Re-Mistressed (Remixed & Remastered) (2
 ```bash
 magnet:?xt=urn:btih:7C6600F9D581DB46D379910E18C72A044C15CD12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Catharsis - Зеркало Судьбы (2019) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:086552C191EA63124BD36B6F763BB4A98D4894CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mechina - 8 Альбомов, 1 EP, 6 Синглов (2005-2019) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:8FFE40D37342C062EAABC805EEAE5081625A6C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C30C35F63DEA9D7AD7A09B0CB636E03E2FFC590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jeff Lynne's ELO - From Out Of Nowhere (2019) [FLAC|24/96|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:4758AD7F8B870AB351BFEDF38B869CCE969D758E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

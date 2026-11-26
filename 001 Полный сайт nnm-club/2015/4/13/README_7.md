@@ -22,8 +22,7 @@ Dark Souls – это настоящий вызов усидчивости и с
 ```bash
 magnet:?xt=urn:btih:482C390C45270C40CD93CC6EEFB4426414EF440A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26F6B03D24E3F4787BDD0FA3CE9FFFEA3290B647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Fate/Stay Night Unlimited Blade Works / Судьба: Ночь схватки. �
 ```bash
 magnet:?xt=urn:btih:579DC51DD7FD604246E65542C2B6838ECAC47F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C75692613FC9A6C7B61A2B15A40BD493403A930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Killing Floor 2 (2015) [Ru/Multi] (b1002) Repack Let'sPlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:F0E51D4F5F729912E3CA33F38F9D254842CE1EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Grand Theft Auto: San Andreas (2005) [Multi] (1.0) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:71D0EACAB4A4CCD40B22ADE255BCC1E656B24928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE2D0EE35C9C118E8A9E9618EBBD3B2DAFAF4B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Dark Souls: Prepare to Die Edition (2012) [Ru/Multi] (1.0.2.0) SteamRip R.G. Ori
 ```bash
 magnet:?xt=urn:btih:99835A7DDF544D9CC30C02C2965AF495242382AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ OS X 10.10.3 Installer USB for Win (14D131)
 ```bash
 magnet:?xt=urn:btih:D6B5C448A50DA6AFD03C011F6FD5F0B8C248B10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A3B6788E53F3EE7B451527FDFA64CB21BD847F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

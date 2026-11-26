@@ -19,8 +19,7 @@ Elcomsoft Distributed Password Recovery – высокопроизводител
 ```bash
 magnet:?xt=urn:btih:21CD885D0C27F4C1C749B7DBA84544D16D72AE0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

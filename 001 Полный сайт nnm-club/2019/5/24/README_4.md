@@ -18,8 +18,7 @@ Railway Empire (2018) [Ru/En] (1.9.0.24141/dlc) Repack xatab
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Dungeons 3 (2017) [Ru/En] (1.6.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3AD0620227B08A3EF72D2824A228BDF85C0624FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C63B484CF8F7F35BC40DCCC73987A52116B1C1C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.12.0-f5/dlc) License CODEX [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:4316149EA2AF99B1E9EF30B73B468826C140CB2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B70EFBFB890B767A025F0BB8ABBCB130E451A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

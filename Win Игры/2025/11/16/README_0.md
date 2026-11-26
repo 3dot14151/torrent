@@ -19,8 +19,7 @@ Police Stories – это история о двух полицейских: Д�
 ```bash
 magnet:?xt=urn:btih:3CB0B58F926FBD7832F0A7F304754218026E6D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zero Hour (2020) [Ru/Multi] (Build 20792172/dlc) Repack FitGirl [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:428446A44EE78587FC5A5CE2C52E711CDA79854D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dragon Song Tavern: Cozy and Adventurous (2025) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1A3F43DED7AAC206F7C8324FAC7B8FA701625C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deconstruction Simulator погружает игроков в бизнес по 
 ```bash
 magnet:?xt=urn:btih:B64DD128144D3AEE6D316F50DED6733346B1A2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Agatha Christie - Death on the Nile / Агата Кристи - Смерть н�
 ```bash
 magnet:?xt=urn:btih:79911EB3E3626FB3807AA422C15ED14C2CB898DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ LAN Party Adventures (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:05FD59B28E498FA94FB801CCF6D6434B8D72D995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Moon's Creed (2025) [Ru/Multi] (1.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:416894DB91795C775679A6A9D0296AE337B18DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Songs of Conquest (2024) [Ru/Multi] (1.7.3/dlc) Repack Necros [Complete]
 ```bash
 magnet:?xt=urn:btih:7F403CD3B8918EAD98010233A21955E46BC9BB2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Sushi Ben (2025) [Ru/Multi] (1.5.250918.5) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:1A6CE2E634EA48430DB67A21EE9E4BB4AF59FFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Monster Care Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:97AD825AAC354522A46CC728CE83F316548938C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Campus Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7E3C9D1E05B1AF9055D7F08A4A8A2BD7F0C4388B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ ServiceIT: You can do IT (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:25510096A7307DA25F5DD2667DFEB3052959381A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Knock on the Window – это атмосферный хоррор с эстет
 ```bash
 magnet:?xt=urn:btih:6D4B54CB703858AE0334D73CADDE06FCE3EC49AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ The Legend of Heroes: Trails in the Sky - ролевой экшн, разраб�
 ```bash
 magnet:?xt=urn:btih:22462C6588A2491028740B6501A0896B9A3A5B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Little Witch in the Woods позволяет окунуться в жизнь д
 ```bash
 magnet:?xt=urn:btih:C39A68D800BA4CB12D3ED9FE3817661CEFA7B5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ A Building Full of Cats 2 помещает игрока внутрь много�
 ```bash
 magnet:?xt=urn:btih:FDC9498061CFC13B76027E37C6F05ED9DBE07230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ ZEPHON - постапокалиптическая 4X-стратегия от а�
 ```bash
 magnet:?xt=urn:btih:F24570854118F167160BD2AD9E391A15237C124F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AC215D9214952B0F6F6B80A06B244EC115066BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Magisto удивит красивыми фильмами, которые эта 
 ```bash
 magnet:?xt=urn:btih:C8C31D18ADD177ED6D854F68DF3238D0FB8CEB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

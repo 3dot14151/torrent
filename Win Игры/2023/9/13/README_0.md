@@ -19,8 +19,7 @@ Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:738A1D34026AAC6314AC0E10CA9A5E31911C7111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidr
 ```bash
 magnet:?xt=urn:btih:677FA7B913C35F56A196DE9208E46B96B01582C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ No Son Of Mine - это хоррор на выживание с напряжен
 ```bash
 magnet:?xt=urn:btih:2BF427EFB4CDBAA54F6465BB1945DF29B65C1668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bramble: The Mountain King отправляет вас в невероятное
 ```bash
 magnet:?xt=urn:btih:68F599A65D1CFB09B714AC1799334EFD786D65E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

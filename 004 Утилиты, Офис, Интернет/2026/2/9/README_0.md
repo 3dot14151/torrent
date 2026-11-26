@@ -19,8 +19,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:666C45C6356FE6B8D29AA03311435CE980723527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Revo Uninstaller Pro 5.4.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B0A09E97F15D5F8AD7F623B2AE1B2991649868AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MAX Desktop 26.3.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:0B6505BD20B0A216A3FC4DE8D8D98799E553B70D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Revo Uninstaller Pro 5.4.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:173ECECDA012CA2BCDDD6871B29C04B7899E16BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

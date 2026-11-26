@@ -18,8 +18,7 @@ AppMonster Pro Backup Restore 3.5.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:FBB6912671B808E99F480774F5C1D08E9B9F4C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Combat - экшен для Вашего творчества.Формат: ATN, 
 ```bash
 magnet:?xt=urn:btih:508FE7CD2E8F00304AC480BA9A1068ED71501B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC66B4EFF501E5B72A44150B7E6FB8BCBB26FB5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 ```bash
 magnet:?xt=urn:btih:96F6F42CCAF85B3ADFD56ECC4B84DF42A10C8242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA5B61165C677E3F29E1D4BFF72CAD8278A0F71F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ NG. Реальность или фантастика? Корабли-призр�
 ```bash
 magnet:?xt=urn:btih:8BB325EFE6605D3390AD7941FBF572C4D0DE7028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Ramin Djawadi - Варкрафт / Warcraft (Original Motion Picture Soundtrack)
 ```bash
 magnet:?xt=urn:btih:BFB3161AED7FD40DD1C14B1DD2AC5771E66D4941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Pure Oil Art - экшен для Вашего творчества.Формат:
 ```bash
 magnet:?xt=urn:btih:172EBE0C42AE9A13C466014A134F8D27B926A89F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28FF438FEE1CF15E2EA77FD542E7BC06AD1CDC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:8A019B44CDD7A877C3006D08229A4EC6A80D8733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ VA - Blues Forever vol.53 - vol.56 (2016) [MP3|320 кб/с] <Blues>
 ```bash
 magnet:?xt=urn:btih:2A1A8D7B25FDE3FB602EA9D8099F149FE1AF6C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A54419BCBB89B888A03522EF0E77E910DD89205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ ZD Soft Screen Recorder записывает все происходящее н�
 ```bash
 magnet:?xt=urn:btih:AD6A97E4E942CBC55919DC80EE50AA54CF2E6A3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from t
 ```bash
 magnet:?xt=urn:btih:B6A6DBB8F52BF45108E2088CA6E29C8F0881199A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ EagleGet - простой менеджер закачек, позволяющи�
 ```bash
 magnet:?xt=urn:btih:C3A57CDBAB5A6550D70AEC87E99A6B842E1187EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ The Strategy - современный After Effects шаблон, идеальн
 ```bash
 magnet:?xt=urn:btih:FC51860C94D5EDE2CDA79A844EA01BC65FD73D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46AB4415013E46D6F50D32D785180730FF1199D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17870A4A713707CA6FB564CDDBC663A6C0258071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85516F467259C934BCD193E14BE6D66A3786E242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B54B8D2AD9531E9D9E84BE412EB36EE66DDADE5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ FastStone Image Viewer - вьювер, редактор и конвертор г
 ```bash
 magnet:?xt=urn:btih:BAAFD711FC817412CC5F473AAD63B8DE747D0D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33C1C60298BCF3563F5CF206A4099EDD89C5E994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ IObit Uninstaller - удобная бесплатная утилита для б
 ```bash
 magnet:?xt=urn:btih:F138CA913F3CDFDB126AE7EA82BC513B106BC5E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:618DD388D7E3D048480C2E379A88C2A9FB3FEAC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD0F5BA8A16DE0186E8777A1D95215EDF6284C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ Italo4ever - Unofficial Compilation (All tracks 2008-2014)+Mix4ever Vol.1 [MP3|1
 ```bash
 magnet:?xt=urn:btih:50161A0CCF74A1FC80203053FF68A0A21D69E7EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

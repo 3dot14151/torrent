@@ -19,8 +19,7 @@ DesktopSnowOK 6.26 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:20973901C9E7CABD76D994F109E1247DF0AC2AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

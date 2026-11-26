@@ -19,8 +19,7 @@ Birds Town / Птичий городок (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:4665175445965F97C0D820D51E8E35574A85B902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aion: Assault of Balaurea / Айон: Нападение на земли Бал�
 ```bash
 magnet:?xt=urn:btih:28269922581A7F8FEBABEF0B8B4DEEFAFE2AD820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

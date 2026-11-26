@@ -22,8 +22,7 @@ Disk 01:
 ```bash
 magnet:?xt=urn:btih:592A5CACE87238CB5590E6EE99A37F8AFC777E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vivienne Mort - Досвід (2018) [MP3|320 Kbps] <Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:1211BE2ADB44E37A6FB06776E100F5CB0B087762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

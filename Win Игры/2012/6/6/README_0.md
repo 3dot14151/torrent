@@ -19,8 +19,7 @@ Coronation Street: Mystery of the Missing Hotpot Recipe (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:71CABDE609978323F7CC3B866385DE31911FC5C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

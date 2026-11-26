@@ -18,8 +18,7 @@ VA - Mi Casa Es Su Casa (Mixed And Compiled by UNER, Coyu, Edu Imbernon) - 2010 
 ```bash
 magnet:?xt=urn:btih:82B6EC5BF25DD004A26E81F647BB495781BC50FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D623E1E5C11C4313CCB816CFC78A67AA1A81D12F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Faithless - Not Going Home (2010) [MP3|320 kbps]<House | Dub | Trance>
 ```bash
 magnet:?xt=urn:btih:6C9600D04D078AAE6152AB9BC1649B70CC9F52CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Новогодний подарок от Деда Мороза 50/50 (2010)
 ```bash
 magnet:?xt=urn:btih:C913343627147778C12DA54CD8612404EFA43443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ NG: В ловушке: Спасательная операция в пещере
 ```bash
 magnet:?xt=urn:btih:FAA7E96F486598F350EF272F6DF2BDD0748041D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Pink стремится следовать своим ключевым ценн�
 ```bash
 magnet:?xt=urn:btih:E7FCE981F31592B2843535D5E84DCB3EFF82929B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ AC/DC - Back To School (1977) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BB5D97AA6E1C8EDD71CACC3D0E8E64EA2D2B0A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:483B52AFC302A244B7CD25652C82F30DE2CFB616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:411DD19D5C1A49A3467CFEA3BA7C328B880775E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:490A2A47DBDA4DC9084AD5F18DCD817F863CED7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Maxim Detox - мужское здоровье для тех, кто живет �
 ```bash
 magnet:?xt=urn:btih:06F2A9FB3613405E2577FE6EF44896EBBBCF22D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Marvel | Armor Wars [2007] [JPEG]
 ```bash
 magnet:?xt=urn:btih:47367F2025ED93336FCD414EFC9704F991A181AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8D2627023291C1DBBA4989D19D03844A839A356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Frozen Ghost - Out Of The Mouth (2010) [MP3|320 kbps]<Night Full On, Psytrance>
 ```bash
 magnet:?xt=urn:btih:4CC0AE2AE562749239935D9C2398AFB8447F8CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF2C28F5206CBE9038D7767C3E2DFC70C7207B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:623AD0851AA0F55AE49E250CAE95458B1231AFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ VA - Хит-Парад  Новогодний (2010) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:E6762ADE7266BAD9BCB79FB915B870D779F874AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ VA - Life Sphere - Feel It (Mixed by RR Feela) (2010) [MP3|320 kbps] <Ambient, C
 ```bash
 magnet:?xt=urn:btih:10E306D37A15E7215CC50A7D9FD1507889D55A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B716B63C4881DDCA91B940EE0B19C4C9940E59EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F265F0B88D870383314136988082A55BCF83445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ SUBWAY сейшн - Russian Dance (2010) [MP3|320 kbps]<rock'n'roll, ska>
 ```bash
 magnet:?xt=urn:btih:7C1E6661468571E29FBEC38B094C1B73FE53A099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ A Mu - There is a love called to let go (2007) [FLAC|Lossless]<Chinese,acoustic,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ VA - Blues Power (2002) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D476202F49F6E087C1A0CE084B3A61CFCFEA4DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

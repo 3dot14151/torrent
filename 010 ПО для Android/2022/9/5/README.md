@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DE812804F6FE4D69B4D1EE264829D5382265CDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Volume Panel - это улучшенная замена панели управ�
 ```bash
 magnet:?xt=urn:btih:CCCC6A3839F465BA69B1E74C6CFE928D33689899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ TeacherApp Английский - Написано профессорами.
 ```bash
 magnet:?xt=urn:btih:88EBDE31D01EB817107BDE83E38871B5137BE522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ ZaZa Remote v4.8.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B06F76FEA579D0E7DF801CC518BEFB5D31390702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

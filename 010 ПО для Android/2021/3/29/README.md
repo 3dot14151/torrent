@@ -20,8 +20,7 @@ ClockWork Tomato v3.7.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:089D3FA3DFCE39A7DA3F31732FCC8D791F53663B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ AirDroid - быстрое, а главное бесплатное приложе
 ```bash
 magnet:?xt=urn:btih:037DE77CEA7E8F0C2868B30AC48EB41EE90BD10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

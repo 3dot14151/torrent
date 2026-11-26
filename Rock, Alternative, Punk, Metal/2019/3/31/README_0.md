@@ -22,8 +22,7 @@ And the Kids - When This Life Is Over (2019) [FLAC|Lossless|tracks + .cue] <Alte
 ```bash
 magnet:?xt=urn:btih:6AD21D2A9A152DF030D5D4DD8C99DE034C117B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Enisum - Moth's Illusion (2019) Limited Bonus CD Edition [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:59374525D99B18CD52C2F344BCBBD15C49780808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Anthem - Nucleus (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9E417C72B3F3D3023051B3F00AC9D67522F123FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fatboy - Diggin' the Scene (2019) [MP3|320 Kbps] <Rockabilly>
 ```bash
 magnet:?xt=urn:btih:71C0B9C1EECF608A148403E88474EB1BD79BC748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Smokie - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Soft Rock>
 ```bash
 magnet:?xt=urn:btih:22153B79680358D858E12AEEA02A978ABA87F3F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

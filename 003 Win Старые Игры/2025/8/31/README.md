@@ -19,8 +19,7 @@ Lords of Magic (1998) [En] (1.0) License Sierra
 ```bash
 magnet:?xt=urn:btih:D55B868D257112F38C67F8A175606B068786D7E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

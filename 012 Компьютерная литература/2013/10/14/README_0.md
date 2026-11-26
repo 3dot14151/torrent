@@ -21,8 +21,7 @@ JetBrains PhpStorm представляет coбoй легкий и удобны
 ```bash
 magnet:?xt=urn:btih:2A4AEC669D03BDE978B581581C013DE7990A6D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7E69B66DD1E4EDA7782D4FBFFF519DF0E4CAA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

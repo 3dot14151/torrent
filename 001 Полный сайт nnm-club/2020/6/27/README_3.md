@@ -19,8 +19,7 @@ CGMA | Mastering Destruction in Houdini (2019) PCRec[En, Ru]
 ```bash
 magnet:?xt=urn:btih:81F04178445E542D232921DADE27DBC3AF75FBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rolling Line — это модельный железнодорожный сим
 ```bash
 magnet:?xt=urn:btih:47F9A32A2FA39AFA954EC6E0F1456EB457DF1522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NASA запускает конкурс Lunar Loo Challenge
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD25DE8EF3915E9E7C0D35CB4A25327554713929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Udemy | Макет интернет магазина - IShop: HTML, CSS, JS, Boo
 ```bash
 magnet:?xt=urn:btih:546DABD39D9AF3087DA80E281E2E3D65BDEF9DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0 S/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6283A6EC5E5B69296B37894DF4505909DD439ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BD308980F7EEB85B8166361981EA73DD59C1959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Udemy | Основы программирования - Крестики-нол�
 ```bash
 magnet:?xt=urn:btih:107B5603FDFE5835028F673E5CFB7455DEC7A5D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Nirvana - Nevermind (1991) (Upmix) [DTS] <Grunge>
 ```bash
 magnet:?xt=urn:btih:F60201231EA8A30CB4FAD83A9A57208DDB26F67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A0BB8ED61DA4366B6010124CD31D24DA538A06E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:921563F30EC61222F41A7DCF773EEE025CAD1F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Rival Stars Horse Racing (2020) [Ru/Multi] (1.0) Repack Other s [Desktop Edition
 ```bash
 magnet:?xt=urn:btih:AD1A5CE00879AC592690E2C759C16183482282F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ PSN minis - яркие, увлекательные, простые в освое
 ```bash
 magnet:?xt=urn:btih:35DC93687CD391CFB1AAA0A40793FB0DC308506A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Apple переведет все ноутбуки и настольные ПК н
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E5ED8AC162DE98BA688D39CCB3570C83A00E85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE899FAE9FCA9B2BBC22F1B7D37759E562DA66EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Adobe Photoshop — лучшее в мире ПО для графическог�
 ```bash
 magnet:?xt=urn:btih:1E12C8B472F36AFF1D3C23F5E9818A8D22834E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49D10753DE6EF443C665E8E529DBA28FB8B646C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 ```bash
 magnet:?xt=urn:btih:F8CA94B5AD04E13D4BF98B950759BC52CAC8AC3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC7A6BF385826FD980CF85A1E35A9B680B086C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

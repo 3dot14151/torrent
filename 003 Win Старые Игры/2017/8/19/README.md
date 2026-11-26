@@ -19,8 +19,7 @@ Pirates of the Caribbean: At World's End основана на событиях 
 ```bash
 magnet:?xt=urn:btih:90673418F025396A3D2B4F257C065FB3E96A8613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Crop Busters / Моя усадьба (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:208ADEDC22BCD07F991603116941D3A76B079DF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Julias Quest: United Kingdom /  Приключения Джулии. Велик�
 ```bash
 magnet:?xt=urn:btih:DD1A0D9396494CA3EB039AF3C886C2067965D868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mahjong Quest 2. Kwazi's Quest For Balance (P) [En] 2007
 ```bash
 magnet:?xt=urn:btih:301739039B4587FDC25AD485F145A65083ACE8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Timebuilders 2: Caveman's Prophecy / Пророчество 2: Пещерн�
 ```bash
 magnet:?xt=urn:btih:B178C311FAD104658FAD8B00FD597CB6D1586CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ The King of Fighters (официально сокращается до KOF) — 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Dungeon Siege Трилогия [Ru/En] (RePack) 2002-2011 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:5B6C19A917D23B132D94014BE18D0451EF791B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Franz Ferdinand - 10 альбомов (2004 - 2025) [FLAC|Lossless|image + .cue,
 ```bash
 magnet:?xt=urn:btih:45BF25DF23B412631F7B2C3A31C0B2F282B4AD43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:24FE2D5A32855D5D87A8B490CDB88EF221EEBA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C9AD1FCA2316A874E2DE4444C06A4B8E35076628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

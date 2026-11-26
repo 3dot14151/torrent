@@ -19,8 +19,7 @@ Ring Runner: Flight of the Sages – космическая инди-RPG соч�
 ```bash
 magnet:?xt=urn:btih:2451A392346DFCA422FDA59E629EC0DF68E86A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Primordia - Приключения в стиле 8-bit киберпанк.
 ```bash
 magnet:?xt=urn:btih:7EC033778AA28E51AFEF0DD97DAA528D7EE77F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Citadels – историческая стратегия в реальном в�
 ```bash
 magnet:?xt=urn:btih:99EEE6E9BCD7F261A988780CE0CEDE08C344FB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Magrunner: Dark Pulse (2013) [Ru/En] (1.0u1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:AD125BD5E41AD9314E8E9E5B99423B12BCFF3724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Super Meat Boy — это крутой, как яйцо, платформер, �
 ```bash
 magnet:?xt=urn:btih:1B6B72F1B719E1ACBEF501582A456812B7586C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:3967DAE399DBE0734E35C94CB5223D775D4A3E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Inn Tycoon (2024) [Ru/Multi] (Version 42) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C8F5D21BBC66E5CDE4FB2684DEA10724D0306934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wall World 2 (2025) [Ru/Multi] (1.0.4.325) License GOG
 ```bash
 magnet:?xt=urn:btih:53ADA1A9A9C2F812E1301E30D25C6D5E4880E3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Restaurats (2025) [Ru/Multi] (0.19.0.19/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A981CF842E17F5D486052C7EA427CB6E4B41EBF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sanatorium: A Mental Asylum Simulator (2025) [Ru/Multi] (0.99) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C84547A88749C6CF5F0531D9E2A05F37C78D1F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ My Little Puppy (2025) [Ru/Multi] (1.0.2517.124175) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0EBB182122A4D9C1D6C7397DD1C4960033E20347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Junji Ito Maniac: An Infinite Gaol (2025) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6B763BAC73595CC4CC1042761779BEB0D95BC921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Surviving Mars: Relaunched (2025) [Ru/Multi] (1.0.0.382125/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:721A58157B2744E5A0DE1132B44C190EB7E7E773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Egging On - суровое испытание, где каждое неверн�
 ```bash
 magnet:?xt=urn:btih:564E2B4752FB9576430296E047E28FCEF00E53BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.62EA) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:75CB0F6F280C71404EDBCC08AC0E17C4FA93D1CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Nitroglycerine! (2025) [Ru/Multi] (1.0.7) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9CECD746860B7E393D98A951954FDBD14E005ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Windswept (2025) [Ru/Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:43ED52489AB2DE257C2DC2861F1AEE8CC738A2DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

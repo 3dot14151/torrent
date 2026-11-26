@@ -19,8 +19,7 @@ Temple Of Snek (2023) [Ru/Multi] (1.0) License TENOKE
 ```bash
 magnet:?xt=urn:btih:6A443AF0C0A11BD8EECCAED98B0D7114BF519CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ICBM – стратегия в реальном времени про глоба
 ```bash
 magnet:?xt=urn:btih:A4B4C14754C37F9617AD42EB5D9A4F31B5AF91EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

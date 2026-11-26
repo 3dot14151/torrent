@@ -20,8 +20,7 @@ ScreenFlow 4.5.2 (22195) [Multi]
 ```bash
 magnet:?xt=urn:btih:28A94FAB3E28E6E4ED1894BCA8F0E46979662D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:11F66F0EF1D68400EA57AE73B20E40CEA8BF7CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Lingon позволяет визуально создавать файлы ав�
 ```bash
 magnet:?xt=urn:btih:7326A1142BF0E44EDBF2AD33E69095C72093D938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Autopano Giga — программа, позволяющая объединят�
 ```bash
 magnet:?xt=urn:btih:FDAA28B4B8119B866ACACC07DE59FEBF636281FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6291660A3C59B51A7C93E468AF357EB7A98E437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A67100A24E4DA1693AD54CAEE896ADDE6286F81F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Animal Planet: Неизведанные города. Манаус / Worlds wild
 ```bash
 magnet:?xt=urn:btih:0CA6999745CAA131611D8734AAC07EC3376CF802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27E34D6F47431CBC8A6231FE4F585DDA34DA899D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Wallpapers - Мультфильмы и мультсериалы [JPEG]
 ```bash
 magnet:?xt=urn:btih:762C4D691C07FF18733E5A81C49E7BCBD81BD424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Hans Zimmer - Тёмный рыцарь:Возрождение легенды / 
 ```bash
 magnet:?xt=urn:btih:BB475DA9A8D17616432A09570FD8E54D64863C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ VA - A State Of Trance Classics Vol. 9 (2014) [FLAC|Lossless|WEB-DL]<Trance, Pro
 ```bash
 magnet:?xt=urn:btih:19420B5D5FDC715C179067987064096942558C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Hans Zimmer - Тёмный рыцарь:Возрождение легенды / 
 ```bash
 magnet:?xt=urn:btih:271331588BEF5AE5D84413D45C4A6714766E6D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB2FC1215747B2920992DF4B6EF47A704313BF8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD7626D4C981AFD7A6D5DE647E5F1E6F612965ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Animal Planet: Неизведанные города. Манаус / Worlds wild
 ```bash
 magnet:?xt=urn:btih:5E1D04F72E3A7D0038DCD81B340AE43A0451CB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Hans Zimmer & James Newton Howard - Тёмный рыцарь / The Dark Knight 
 ```bash
 magnet:?xt=urn:btih:30493BA23F2C7B529E64596E9E49E480CED1C86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBC9002DECE8B3A5BAEBA14C7F572ECAF9ADE8F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3A0992C60217706B7984263980DD7BDDF5CB675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Discovery: Город наизнанку. Нью-Йорк / Strip the city. New 
 ```bash
 magnet:?xt=urn:btih:946D82F3BF7A32B324E6201BB7CFC72D8B68FC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC3ABD122DB740969B6C2F24BA9970797F92B236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ VA - Дискотека Русского радио (2014) [MP3|192-320 кб/с]
 ```bash
 magnet:?xt=urn:btih:98923A78B1CB2C484E83381A0A9CE4740FE10E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ VA - Летний марафон № 121 / Видеоклипы (Зарубеж�
 ```bash
 magnet:?xt=urn:btih:D58A86DCE4E93DC8667EFB0CBB0A2FB55A3EC582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:A2D4C76E32950A7CA015E3FA9B351520911BCA98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Alan Silvestri - Хищник 2 / Predator 2 (20th Anniversary Edition Score) (1
 ```bash
 magnet:?xt=urn:btih:3595A4DA59D378B4EEBEC4F8CA60FD2060895699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ Unchecky - небольшая утилита, которая предназна�
 ```bash
 magnet:?xt=urn:btih:D8C4B3B924503B3BB7C1122350A1F5C6C0E2EF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ DVD приложение к журналу «Computer Bild» – крупней�
 ```bash
 magnet:?xt=urn:btih:60203906FC198F0B4639150B71C880DAB4949C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

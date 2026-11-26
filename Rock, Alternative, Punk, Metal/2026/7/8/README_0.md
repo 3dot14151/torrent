@@ -22,8 +22,7 @@ Hellenbäch - Out Of The Darkness (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:E0AEE304A76A846C482C3A891E1A43A248724F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kerry King - From Hell I Rise (2026) Extended Deluxe Edition [MP3|320 Kbps] <Thr
 ```bash
 magnet:?xt=urn:btih:2E830D0F99FD10193B7CF212368B228E18E70B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Limp Bizkit - 9 Albums (1997-2022) 10CD [FLAC|Lossless|image + .cue] <Alternativ
 ```bash
 magnet:?xt=urn:btih:37E8FD4EABA4504F3442B76F6F25A3FC99FAD93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Komahawk - Doomsday for Democracy (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:BBA0E6B108097260BEDCF66609A85B23D3985135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Deftones - EROS (2009) Leaked Sessions, Jan 2009 [MP3|299-307 Kbps (V0)] <Altern
 ```bash
 magnet:?xt=urn:btih:76C3FABB1726D8D88B078355CF67C2F2062DD781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C4C92FF5A86EE5E378485D3E56B8E95BC7A3391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

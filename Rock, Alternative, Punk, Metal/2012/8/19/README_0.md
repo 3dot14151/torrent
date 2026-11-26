@@ -26,8 +26,7 @@ Shores Of Attica - Transitions (2012) [MP3|320 кб/с]<Metalcore / Hardcore>
 ```bash
 magnet:?xt=urn:btih:7F921FCCF39535A49319307A22071576C06E5A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Lynyrd Skynyrd - Last Of A Dyin' Breed (Special Edition) (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:28A284EA938697CD78DB49590D1D11C22FF6961B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Rage — группа в жанре хэви-метал из Германии. �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

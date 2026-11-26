@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:B8D04DA46BEB546100E88D46A9F2A70922A59062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Heavy Fire: Shattered Spear [En] (L) 2013 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:C549AC011530E507E61FA4BC9DE84BE2B0D4A634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:949ED03C1CDC62A7DFFAE19ADE3ABC4CFF2AB7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Yakuza 2 погружает вас в жестокий и мрачный мир 
 ```bash
 magnet:?xt=urn:btih:351CA05F7EF0DFB488FF79F2BF589CC69FA3A685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Adobe Reader — программа, предназначенная для пр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Chell's Way to Home / Челл идёт домой [Ru/En] (Mod/2.0) 2012 | PolL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Windows 8 Transformation Pack 7.0 [Multi/Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E868CA0761080AC1CD92237425A61E2B90533A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Perfect World — это популярнейшая бесплатная онл�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ CorelDRAW ® Technical Suite X6 (ранее известный как Corel DESI
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Retro/Grade [En] (Repack) 2013 | FANISO
 ```bash
 magnet:?xt=urn:btih:1500BB35733C9B292E85FCEA46AB251B749DE3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Sniper Elite: Армия тьмы включает незабываемую ка
 ```bash
 magnet:?xt=urn:btih:A90F60401F9BB32660F98CCF88072AA83C52D998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Aвто-шоу «Top Gear» — это программа абсолютно н�
 ```bash
 magnet:?xt=urn:btih:74F63204FEBAA4F084B4FB3AABD601E92192874C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ The Walking Dead: Survival Instinct / The Walking Dead: Инстинкт выж�
 ```bash
 magnet:?xt=urn:btih:7D8BF76EF64C864784E0D36400E84F70AD8E0ABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Prototype [Ru/En] (RePack) 2009 | R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:9946914BA06DB1C8BD54DD438C75B6D21E676E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Sniper Elite V2 [Ru/En] (Repack/1.11) 2012 | R.G. Games
 ```bash
 magnet:?xt=urn:btih:8B1E9BDB515F655DB18C292A20401B813D44E6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACD8653C19E76D19F70698FB013BE98090C6216E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ Hono no Tenkosei / Blazing Transfer Student / Огненный новичок [1
 ```bash
 magnet:?xt=urn:btih:A0015E457ECD5437180C8908CA5B1F210C2C80B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ Sonic Soldier Borgman: Last Battle / Акустический воин Борг�
 ```bash
 magnet:?xt=urn:btih:8A1AC6F59DE3C6CADFE1B3E49C692A52418732FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ SAO / Sword Art Online / Мастера меча онлайн [2012, TV, 25] HDT
 ```bash
 magnet:?xt=urn:btih:7EC3529D6A838D242BD1FF7CE72714D213A50CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ The Walking Dead: Survival Instinct - экшен от студии Terminal Real
 ```bash
 magnet:?xt=urn:btih:21AA5A86BCCF3AC514276205E87D8D4171060B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ Depeche Mode - Delta Machine (Deluxe Edition) 2CD (2013) [FLAC|Lossless|tracks +
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

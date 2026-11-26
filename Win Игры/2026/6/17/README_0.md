@@ -19,8 +19,7 @@ RAIDBORN (2026) [Ru/Multi] (2026.06.16/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:35947D5144510FB659F17AE82A9101A7DE32E56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Koira (2025) [Ru/Multi] (0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:B4E6F3737FE6755CCD2947F8B2079B7D2231CBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nitro Gen Omega (2026) [Ru/Multi] (1.2.1) Repack FitGirl [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:54B1E81CF582FCA840136329493DF3AE5FD5221E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ DragonForce - In The Line Of Fire (2015) Live [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:664B2DDFE20540E3796C1F71EFBAC80D82DE409B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ DragonForce - In The Line Of Fire (2015) [FLAC|image+.cue]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:DF497295D2F16765667A6F748E37C021A0EF245C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

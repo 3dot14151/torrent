@@ -28,8 +28,7 @@ Faustrecht - Demoniak (2002) [APE|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:0BCC02C1719323921C4D3443D89BED01E96EDCB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Falkirk - Gates Of Dawn (2006) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D5D855A4D4101383540C207660DA30C6BAC8FA40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Yyrkoon - Dying Sun (2002) [APE|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2BB92DDF32CACFE1B1A440F5BD8E9776115C9073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Zandelle - Twilight On Humanity (2002) [WavPack|Lossless]<Heavy Metal / Power Me
 ```bash
 magnet:?xt=urn:btih:DFE467C8007AD680E603ADA641FB3EDF675E4559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Fall Of The Leafe - Fermina (2002) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:AE6FF81657A72E06C0C4947CC2DA1A29274923F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Fall Of The Leafe - Volvere (2004) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:F9C0F90DE549B5FAD65328E9930B6D704D1C361E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Soturnus - Of Everything That Hurts (2013) [MP3|320 кб/с]<Death/Gothic/Doom M
 ```bash
 magnet:?xt=urn:btih:0D42117808BA841DE8AAB177190E07B394EE67F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Fatal Opera - The Eleventh Hour (1997) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:52DA57032F44FFD55A9E71160F6AAB09F77B0D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Red Circuit - Haze Of Nemesis (2014) [FLAC|Lossless]<Melodic Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:0967F96C847B470DE4875EA8C7E6E13D3694BE6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ Siena Root - Pioneers (2014) [MP3|320 кб/с]<Psychedelic/Retro Hard Rock>
 ```bash
 magnet:?xt=urn:btih:22167791C8C7A1391C430133B88213C2206F060F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ Tacit Fury - Horrors From Depth (2012) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:214EE6CAE3515AC652A3D7EBE378BA19A6FF2F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A35F16D1D91336D0B7B2AB45EDD6E86516BE6199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +428,7 @@ Morningwood - Morningwood (2006) [MP3|320 кб/с]<Alternative Rock/ Post-Grunge
 ```bash
 magnet:?xt=urn:btih:8FE5F5B5E68752E24B7D6A4C9E5BB97503CE8EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +462,7 @@ Dreadful Minds - Love|Hate|Lies (2014) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EAAE544C5B520B101586A1B2639084E00AA990E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +496,7 @@ Morningwood - Diamonds & Studs (2009) [MP3|320 кб/с]<Alternative Rock/ Dance-
 ```bash
 magnet:?xt=urn:btih:16BC8CEFF365620151821D4556D557BA930C29F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +524,7 @@ Blues Pills - Devil Man (2013) EP [MP3|320 кб/с]<Blues Rock, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:1A4E667B6DA00001FA1E943D81CE1B876FD56CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +558,7 @@ Folkearth - Balder’s Lament (2014) [MP3|320 кб/с]<Epic Folk/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:925B93BF428236D804BA95CEAEAF94B8AEFB115A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +591,7 @@ Zodiac Ass - A Monument of  Human Ignorance (2010) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A30683970064B227CDFCF51AB8838F4FB89C4DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +625,7 @@ Accept - Blind Rage (2014) Japan [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7DFBD6A91E5346AC4422810B66819D47F100855C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F46132B0B3026B3B9E6BF7C059707C7935D2394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

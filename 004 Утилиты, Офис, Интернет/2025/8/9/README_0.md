@@ -19,8 +19,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:81471164B1078B531324F0E0346BB265B042068E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lossless Scaling, скорее всего, не нуждается в предс
 ```bash
 magnet:?xt=urn:btih:D83CFBE6BFE1D11E5AFDCD6F249567F60888C4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 ```bash
 magnet:?xt=urn:btih:214D4B059A83F2FB69934F83086FB64F80DF7C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

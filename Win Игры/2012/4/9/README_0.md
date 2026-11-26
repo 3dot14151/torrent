@@ -21,8 +21,7 @@ Cannon Fodder 3 – тактический экшен, унаследовавш�
 ```bash
 magnet:?xt=urn:btih:5817D0D686273AA7316FFEAF088FC4560378FF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:E8E8F98F5239CB2D1AFFAF887E5D90F30FA5EC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Scary Girl (L) [En] 2012
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82BB612107F1B8541A5980BCDFCF85F430C9D164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Dark Strokes: Sins of the Fathers. Collector's Edition / Сердце тьмы. 
 ```bash
 magnet:?xt=urn:btih:D0DECA7E4760CA7FB6CE2060E3B27B39D988AC62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Bomber-Mario (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:7BC4218B3E84DFD5E7CD3A3D71525BCB60E80C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Haunted Hotel / Проклятый отель (L) [Ru] 2009
 ```bash
 magnet:?xt=urn:btih:D85893C12A9830EFE5021081D49D4836738A8F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Stray Souls: Dollhouse Story. Collector Edition / Заблудшие души. �
 ```bash
 magnet:?xt=urn:btih:1EDBF442AE2EEF4E11A9CA3D5594BFE4ADCFF80D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Aaron Crane: Paintings Come Alive / Аарон Крэйн. Картины ожи
 ```bash
 magnet:?xt=urn:btih:1A2DBB3E630D18D0722530C705BCABEA5325D933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Brick of Consciousness: Dorian Gray Syndrome. Collector's Edition / Край с�
 ```bash
 magnet:?xt=urn:btih:630E07C49C4569FF51ABFF9B6E4F035BF3E70DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Natural Threat: Ominous Shores / Остров оживших лиан (L) [Ru] 2
 ```bash
 magnet:?xt=urn:btih:914A864032351C804EF8E9555CAEE4EDDC1C2CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

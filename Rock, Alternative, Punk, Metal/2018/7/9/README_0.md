@@ -22,8 +22,7 @@ Masfel - Viperagarzon (1996) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 ```bash
 magnet:?xt=urn:btih:3609AA0814512AFB8DDB120893A1A452DAE506C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ BB Steal - On The Edge (1991) [FLAC|Lossless|image + .cue] <Hard Rock,  Arena Ro
 ```bash
 magnet:?xt=urn:btih:AA2B361DBCB53FB2EF2BFFE3114672051E2E801D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

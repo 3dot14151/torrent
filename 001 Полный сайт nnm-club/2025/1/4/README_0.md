@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BBA96088204B578C908462166BDC0A01A480376D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ AIDA64 2.05 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E810C71A6CDB21C688F69ED8216F2B3724646AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:570F3DFB0150F2F0E83D5E63998ED3E588D3736C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 ```bash
 magnet:?xt=urn:btih:EC01875A15FB02A9EB89C265750E6E6BB8FBBC0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:408193C547A507D13C2EC3D7F2E03094105F4AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Joyville 2 - это хоррор-головоломка от первого ли
 ```bash
 magnet:?xt=urn:btih:F59ADABDF04C480DCC2A1CAFE40BACE8955CD8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
 ```bash
 magnet:?xt=urn:btih:E357CE3A11F8A488903981A7F0A1F0E179C97CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:6E954A7709C14E4C5B42F1A56C66C8CDB847C7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC9DC7DC0B603D57DE18C5C360C0D3780AB1E194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:BB9388243A8AFF54284368576B8F001A92B8203C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Locked In Mind (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B7E3E45DACA3C208A2B8076050708D223DD0DF27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F7B748AC828199A0D7E0D3233D88FF2B15AD9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balata
 ```bash
 magnet:?xt=urn:btih:0CAB79FDE3F1EBAB70A5335E957F632D4057B0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E52DB1E025DD21CF25F880B05D4616B2C1F1189F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 ```bash
 magnet:?xt=urn:btih:B427A59769F8192C4E672B5AFDA08CEE9059CAD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A068756B1B524A13E807CEF6F392F5B5C52E975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Ocean Match / Рыбки: Три в ряд v3.0.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AF0F128A303791E6B7464A8A2D436B2DEEA87521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ VA - 70s Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB, Dance>
 ```bash
 magnet:?xt=urn:btih:CD9A0C1DC4A7E36DB60D6BB3396477E0A97591A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6747745FDC274B5C493A68203E6A5A81DFA9CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9B3D6A7145AC995001FBB6D7E8012E1A3E10812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 ```bash
 magnet:?xt=urn:btih:DB0C61D8BFC5DB8CF2AAC0C1CD9F42EB294B2CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:510370501D7935112434EE9E631CA878F8654EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ Pizza Tower - это энергичный 2D-платформер, завяза�
 ```bash
 magnet:?xt=urn:btih:FD3A00692DF97DEF23BD6C3C53B6702AD2A2626A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51159E5988A2E77977296A72018FBB0EF10F74DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +631,7 @@ The Universim, симулятор бога, в котором успех ваш�
 ```bash
 magnet:?xt=urn:btih:D663C9AD8507F4CC13F2CEAED0899CA48FE41A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ Blank & Jones - Chilltronica №5 (2015) [MP3|320 кб/с]<Chillout, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:DE792DA0512865BEDD61B352167D7C522AFCDDCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

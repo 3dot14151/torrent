@@ -19,8 +19,7 @@ Lost Lands: The Four Horsemen / Затерянные Земли. Четыре В
 ```bash
 magnet:?xt=urn:btih:BCF7627B9082BB51E1178D882BFC0F1DED71E542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tom Clancy's The Division (2016) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:991C802EAF7E9AD0B286EBCAF2D527FA9057B050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

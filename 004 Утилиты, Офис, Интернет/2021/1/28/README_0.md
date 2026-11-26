@@ -19,8 +19,7 @@ Virtual Display Manager дополняет вашу существующую с�
 ```bash
 magnet:?xt=urn:btih:11D90D0D77DB474578FDB0F0EE64D8C7AC4DC46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

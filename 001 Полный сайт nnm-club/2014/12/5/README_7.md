@@ -22,8 +22,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013 Redistributable Package Hybrid x86
 ```bash
 magnet:?xt=urn:btih:D5639A4519452B3CB680706BF1676E0629E45BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Game of Thrones - A Telltale Games Series Episode 1 - Iron from Ice (2014) [En] 
 ```bash
 magnet:?xt=urn:btih:6B11F5F552033BBFF1D359CA536DFC3951926DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Dragon Age: Inquisition [XBOX360] [Region Free/RUS] (XGD3) (LT+3.0)
 ```bash
 magnet:?xt=urn:btih:2D7EA6CC0EDD068F58B034A049571617218FE481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E786642DEC3F57BE96FA359D7ECB5448F05ED170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE7FE514FAD3333B63C2DC7EBAE11004C36AA489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Dead State — игра в стиле экшен с ролевыми элеме�
 ```bash
 magnet:?xt=urn:btih:F08D2B28F4572F353EC5B43DA619EF3822680F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Pinnacle Studio Ultimate 18.0.2.444 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B82A2817BF983D9F60D1B7BE2BC054C2C6C69183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:289877039BED0275537A1178418B589BB8CB3326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

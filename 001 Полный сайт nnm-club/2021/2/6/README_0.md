@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:095789C3C1C409BDF00A81406B9FA49D05B85F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Rail Romanesque | Романтика рельсов [ТВ-1] [2020, TV, 12 эп.
 ```bash
 magnet:?xt=urn:btih:80A08639FE0F9D4E70877269725ECC9FC8931895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E10A782F3D85077F27DED968D20E0A00A3661250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Full и Lite версии полностью идентичны за исклю�
 ```bash
 magnet:?xt=urn:btih:4FDA67AAB68A085BBA1EB62529EB89E942139AD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEA41E71F747F22E8F0EB6C50B3175F72D5A5062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ VA - The Sound Of (2021) [MP3|320 Kbps] <Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:63720AE31900094D81FCA166A4DE87E113ABB0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Applied Houdini ("практический Houdini", "Houdini в практич�
 ```bash
 magnet:?xt=urn:btih:BBADDC6D8DC4EEAABAFC9BE101AB1E22281ABBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4740E8BD99B519A49C908E1B2155C360AE3A8E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ pplied Houdini ("практический Houdini", "Houdini в практиче
 ```bash
 magnet:?xt=urn:btih:A3DCAE020D78B5040B1434E41FFAF9A6B17BD9E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ VA - Armin van Buuren & Ferry Corsten - A State of Trance 1002 (2021) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:FE655AECBF1A6A95D3336A7227F6D9D7D2ACD19E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05623CD44EED301FBEE9F72E9368CBB141C9E4C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:6F60B2D74AEF94E0F7DC2628127A4A4421E0FE83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Applied Houdini ("практический Houdini", "Houdini в практич�
 ```bash
 magnet:?xt=urn:btih:4DAD0E76FED032C74E43D49CF2F470FE888AEBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ ConceptDraw DIAGRAM 14 v14.1.0.369 [En]
 ```bash
 magnet:?xt=urn:btih:FFC64DC207D0E141F768700147EFE29D94C6F00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42438CC2F1F3FED001B5C1F0202262EC4E76E4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ VA - Ladies Training Beats 2021 [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:54BEE7F69DC9EF826CA169E1785004FEA52208BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF926BDAF31F83AB7F0F3B628B993CFE40C68F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ Applied Houdini ("практический Houdini", "Houdini в практич�
 ```bash
 magnet:?xt=urn:btih:1AA3B3DAE489A6FA58BDC1F195321E9094200DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ pplied Houdini ("практический Houdini", "Houdini в практиче
 ```bash
 magnet:?xt=urn:btih:AC99CCE4739923666F980399CE22055DDFE12D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ BimmerCode позволяет кодировать блоки управлени
 ```bash
 magnet:?xt=urn:btih:B78B59E642F35F14825EB51076612C81C30A1644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ Adobe Zii - это небольшая и замечательная утилит
 ```bash
 magnet:?xt=urn:btih:6168E30672829CC6D869F00A3D852811A04B4A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35C31F552DB1FE5F4B4FD5F13CA35DCF04AFC752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ Bucky - Deep Down (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
 ```bash
 magnet:?xt=urn:btih:5BF52049434FFC7A658E211399494F5396E1EAC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ ConceptDraw MINDMAP 12 v12.0.0.164 [En]
 ```bash
 magnet:?xt=urn:btih:FD4BE44D54CCAD906B44AA80DB17BF74FCE977B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ Bucky - Retribution (feat. D-DUBLL) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electr
 ```bash
 magnet:?xt=urn:btih:FF1D868B23E00074C87681966D07C0954B6A9064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C52E4772B6FBAE63EE64D4306B96FD60A4D52140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

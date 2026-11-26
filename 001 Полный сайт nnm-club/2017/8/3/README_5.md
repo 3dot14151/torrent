@@ -18,8 +18,7 @@ Call of Duty: Black Ops III - это продолжение популярной
 ```bash
 magnet:?xt=urn:btih:978E7A49C952B82BF4E6166CA3F377F1CA892D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF38B074006781BD0C1AAD52089A5D926759D0E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Left 4 Dead 2 (2009) [Ru] (2.1.4.9/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:52855E5E66AFD0D39B5C565DD49900621DF0B327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

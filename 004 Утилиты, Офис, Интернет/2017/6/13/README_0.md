@@ -19,8 +19,7 @@ Microsoft Silverlight - технология, разрабатываемая Mic
 ```bash
 magnet:?xt=urn:btih:E13CFC2C48ECF99D82B6AED1D6DEB2FB66B42015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MailStyler – программа, которая позволяет вам со
 ```bash
 magnet:?xt=urn:btih:8F995DDAE5769928ADB9E861D9D94E12B6A59C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

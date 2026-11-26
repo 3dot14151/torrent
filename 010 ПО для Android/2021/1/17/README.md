@@ -19,8 +19,7 @@ Denoise it v1.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:21B9D76279439FAB424F0F3155A4F5D1C85CE1F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ A Plot Story (2017) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:EB5CCB0FA58362D47E84258BE415AF684B6DDE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enchanted Kingdom 2: A Stranger's Venom / Зачарованное Короле�
 ```bash
 magnet:?xt=urn:btih:D6D153B73997F69778EAAC3C1920108DE65F0BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Secrets of Magic 3: Happy Halloween (2017) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:530C272BE832DE8F9A21D8FFB4A2A70EC40E4BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0/upd2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8BF042D40C2F38786373F5187FDC2B2F1FFE8E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Praey for the Gods — приключенческий экшен, который
 ```bash
 magnet:?xt=urn:btih:D0453828418271476012E6224C99F8DB06120DF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Zula — игра в жанре шутер от первого лица. Зде�
 ```bash
 magnet:?xt=urn:btih:D1CADF617CDFB85AB84B5460AC8AD0991D73F17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Genesis Alpha One (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:ECC81AD59FB416E702A039E834122080B6B4A1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

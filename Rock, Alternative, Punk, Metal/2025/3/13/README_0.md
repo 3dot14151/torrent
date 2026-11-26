@@ -22,8 +22,7 @@ Hamer - Бивни (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Meta
 ```bash
 magnet:?xt=urn:btih:77559D4FC567901A49EC4CE76B22B1703FCE2A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:D2C12D457B217B89EE99EF7A2439E8787539DD39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jethro Tull - Curious Ruminant = キュリアス・ルミナント (2025) Japane
 ```bash
 magnet:?xt=urn:btih:9A557AF62CF60AF920D506BD55A8DB2086583171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

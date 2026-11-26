@@ -19,8 +19,7 @@ Grim Facade: Sinister Obsession Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:8C63A483DFD6EE7E89ECB23FFDA1005F0F2D3189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shattered Minds 2: Encore / Разбитый мозг: Рецидив (P) [Ru] 2
 ```bash
 magnet:?xt=urn:btih:9A716FAE7A551F1D16DCB0BB753A7157E6923C59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Marooned 2: Secrets of the Akoni / Покинутая 2. Секреты Акон
 ```bash
 magnet:?xt=urn:btih:55AE602BCD6E56E0248808C153E63905AF9F8FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grim Facade: Sinister Obsession Collector's Edition / Тайный Орден 2:
 ```bash
 magnet:?xt=urn:btih:BD006DA9237A2D9ECAA25DD4817669C41207A2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grim Facade: Sinister Obsession Collector's Edition / За гранью жест
 ```bash
 magnet:?xt=urn:btih:75F07443D691A71699A005B1FA35563C34EA02C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Mount and Blade: With Fire and Sword / Огнем и мечом - Великие
 ```bash
 magnet:?xt=urn:btih:CC9427D43C410B2995074E14D1D2009FAA10E244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

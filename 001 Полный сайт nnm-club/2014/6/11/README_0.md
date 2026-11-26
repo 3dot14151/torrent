@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2D65ABD67F2498FE757FCB8097B7B03B35EFB0C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ SizzleBird - Discography 27 Releases (2012-2014) [MP3|320 кб/с]<Dubstep, Down
 ```bash
 magnet:?xt=urn:btih:57F24135DA55473DE05AD91DB363F0220F24D9CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Jay Epoch - Particles: Episode 2 - Niluxshi (2006) [AAC|WEB-DL|256 кб/с]<Elec
 ```bash
 magnet:?xt=urn:btih:FCF43A470DD8D07BE1FD3E3201C9406B3083991B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ VA - Ibiza House Opening 2014: House & Chillout Music at Its Best (2014) [MP3|32
 ```bash
 magnet:?xt=urn:btih:D99D0292E3BA5DFFA7D29EB8E738FA6C2B3DA184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ VA - Best Of Vocal Trance Volume Three (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:C63A3E8A175B13C6335C8EE7793B5BED9CBF43DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Crazy Rain - Life Illusion (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0AD84F402745B286F196CCE0E0F47811789C3048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Jungle By Night - The Hunt (2014) [MP3|320 кб/с]<Funk>
 ```bash
 magnet:?xt=urn:btih:E2BF8EDDDFFDD1A32F7313ABAAADCAA53CCEAFD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ Tokyo Blade - Genghis Khan Killers (2011) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0811FAE061A57AD01CB582CC4C6B4E753302A2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D909D470456210E6AF50E38569BC0193832673A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B51CC06C92BEDC87F76BAEC72041422BA8B33F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ VA - Armin Van Buuren - A State of Trance 2014: Unmixed Extendeds Vol. 1 (2014) 
 ```bash
 magnet:?xt=urn:btih:0591AF31EE53FCF8EF1BBA630AD80C509E388B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ MessageDirector - небольшая утилита, позволяющая со
 ```bash
 magnet:?xt=urn:btih:6B66A04B94F5FB9A4B37005E2C8E4F371CF6A76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ VA - Top 100 Dance Party (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:F89AC7395729CF8FFE2C6CCC182EECA762184FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65BB8F37A99AB97A6CCAB8DA785EE1B1FC944A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B65996B82B031290F9F33E5FF1D4CD95E4880A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ VA - Anjunabeats Volume 11 (Mixed By Above & Beyond) (2014) [MP3|320 кб/с]<Pr
 ```bash
 magnet:?xt=urn:btih:FA5EBF0E914840710BBD88AC305EAF25BCFD539B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ CameraBag 2 обладает простым и интуитивно понятн
 ```bash
 magnet:?xt=urn:btih:373B5020E3FE4083A3A720EF27356165C7057058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:389370343AC90A823D9C3F77C7949B39926DBDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF321273F797771CC42199DCF1009020592DA961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD21FDEAAC6B501FD95E192F0CBBF89C8F2B9ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ Dionne Warwick - Дайэн Уорвик - Друзья (1986) [FLAC 2.0 24/192|
 ```bash
 magnet:?xt=urn:btih:DA46C7D22605E806A076492A41CD9D2584CC38B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +683,7 @@ Dana Ruh - Naturally (2014) [FLAC|Lossless] <Deep House, Techno>
 ```bash
 magnet:?xt=urn:btih:1C710378B8AEF265E1883E4DFD5F68BD8330495C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +717,7 @@ Snowgoons - Kraftwerk (2010) [FLAC|Lossless]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:7B94172DCE091A266E646CF0EC955C45EB7CFB36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ Comedy Баттл. Суперсезон. Выпуск №11  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:84321F4C56D2D786A2645572AAA3A814205D4883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72F2CDF8D7DAEC798E8CBAE5FC9AE0D2BCF66A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

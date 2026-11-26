@@ -22,8 +22,7 @@ A4 Танцующие Туфельки • Dancing Shoes(   Читать дал�
 ```bash
 magnet:?xt=urn:btih:6670368A67381097772F3523C9C683F473CF8AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Legion of the Damned — голландская трэш-метал/дэт-ме�
 ```bash
 magnet:?xt=urn:btih:6A62A075CEA9CE6CBD4D5123F025155C00852838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

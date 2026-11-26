@@ -20,8 +20,7 @@ Magic FAT Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C95CE1822B2CF1B8BBF328625E1CA9966A0BC67A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

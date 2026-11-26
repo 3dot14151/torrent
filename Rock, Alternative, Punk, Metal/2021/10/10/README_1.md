@@ -22,8 +22,7 @@ Nuclear Bird - Tyrannical Megalomaniac (2021) [FLAC|Lossless|WEB-DL|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:275AB5529190CE0440F10E3D42E2951DB868B5B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Infrared - From the Black Swamp (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash, He
 ```bash
 magnet:?xt=urn:btih:01F9E1443E86123499728CD2689A42185AAC4AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fallen Lillies - No Master For Lilly (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:AC9CFD9FC15A05D79A5FF03626AAFD4F592C9FA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kimmo Porsti - Past And Present (2021) [FLAC|Lossless|image + .cue] <Progressive
 ```bash
 magnet:?xt=urn:btih:3864F31A55A0934376D0F9474B6D99122A737902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ceremonial Necrochrist Redesecration Demo 1992(   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:097851836F24C9CFC3B6E4AC06F3B94C9F9C1B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rivers Of Nihil - The Work (2021) [FLAC|Lossless|image + .cue] <Technical Death 
 ```bash
 magnet:?xt=urn:btih:451982E04E0742664F17E53B39276FA791E00C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dream Theater - Six Degrees Of Inner Turbulence (2001) 2CD, Reissue, 2002, Elekt
 ```bash
 magnet:?xt=urn:btih:622020ACD291551AC1C52289BA48D05E80AB3A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Spectral Darkwave - At Outer Dark (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 ```bash
 magnet:?xt=urn:btih:490B865C48ACD3D3077E9885F0816EF0EB6ADE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Desire - Legacy of the Past (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:2D41D5724978EFD231A3B17AD469893E01F5A505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Dream Theater - Dream Theater (2013) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:76EC6A3D5C10A3750305D530653766D74FD99FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Dream Theater - Falling Into Infinity (1997) 2CD, Japanese Edition [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:A5CAE0BF55FF561A49A0DAD216C27888B6365BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Agressor - The Order Of Chaos (2020) 3xCD, Compilation, Box Set [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:F8EC7F3B7FF6BCCF51017D76AB31077347FD0C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Agressor - The Arrival (2021) 2xCD,  Compilation, Remastered, Season Of Mist [FL
 ```bash
 magnet:?xt=urn:btih:5D0EA2DDB8B7AE62886FCE8715BD122A936EB6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Dream Theater - Six Degrees Of Inner Turbulence (2001) 2CD, Reissue, Remastered,
 ```bash
 magnet:?xt=urn:btih:B9948DD18A09F5266E2F8F2DE313F879D526E14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Rivers of Nihil (Реки Ничего) — американская Technical/P
 ```bash
 magnet:?xt=urn:btih:E19C2E1819FF97FF6718C52BB6A8A87592E53AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Dream Theater - Metropolis Pt. 2: Scenes From A Memory (1999) Reissue, Remastere
 ```bash
 magnet:?xt=urn:btih:2B7AC1F9517802AE819DFD8D78602ACAA33B09D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Gus G. - Quantum Leap (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Guitar 
 ```bash
 magnet:?xt=urn:btih:07FD31B137C945A12931B885607740AB446304D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ Roderick Falconer - Victory In Rock City (1977) LP [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:E1B6F9671DBFE7FF7604EC4122058332D77EB785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ Dream Theater - Train Of Thought (2003) Reissue, Remastered, 2009, Elektra [FLAC
 ```bash
 magnet:?xt=urn:btih:F24A6E9805719D22FCE3F4D4C831F5986B572286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ Dream Theater - Master Of Puppets - Live In Barcelona (2002) Reissue, Remastered
 ```bash
 magnet:?xt=urn:btih:F48DB2718DFC9DD069D5C685ABFC74C9FDB4700E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +585,7 @@ Grinder Blues - El Dos (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Roc
 ```bash
 magnet:?xt=urn:btih:E4C78908291214BDC022681BFFC31E6E5B3B08C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +613,7 @@ b. Race Against Time(   Читать дальше...   )Жанр: Progressive Ro
 ```bash
 magnet:?xt=urn:btih:967442D8E478EFBABD47799E93468CDB18EFA712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ Till Lindemann - Ich Hasse Kinder (2021) Single [FLAC|Lossless|image + .cue] <ND
 ```bash
 magnet:?xt=urn:btih:000B7D3D7391A8F0F125DF044E8CF354AA05E48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +667,7 @@ Doro - Warlock - Triumph and Agony Live (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <H
 ```bash
 magnet:?xt=urn:btih:290098B8853F4C013176E31BC77C6E55779D9996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D418B98C1E0E57867DFB992F7FADD100E115A5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +723,7 @@ Queensryche - Operation Mindcrime (2021) Deluxe Edition, 4CD [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:D580793428D6F07296104F1A93B21E70ABE6E478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Fixx - Phantoms (1984) [FLAC 24/96|Vinyl-Rip|Lossless|image + .cue] <Electro
 ```bash
 magnet:?xt=urn:btih:0ADC7BB0EE5DE3176AA9CD2B0980D56A228DFB11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alphaville - The Breathtaking Blue (1989) [FLAC 24/96|Vinyl-Rip|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:D3EBB2C7C00DA314E7A399E37202CBA3E11F0D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

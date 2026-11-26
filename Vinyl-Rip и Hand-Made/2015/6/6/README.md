@@ -22,8 +22,7 @@ A4. One More River (4:17)(   Читать дальше...   )Производс�
 ```bash
 magnet:?xt=urn:btih:D3157EC06C0C2FD21A6FC73E8D6BEE6CB85CCD66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

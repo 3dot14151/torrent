@@ -23,8 +23,7 @@ Praktika - Without Understanding (2011) [MP3|320 кб/с]<Minimal, Techno, House
 ```bash
 magnet:?xt=urn:btih:C6C5A8E5EA1EBDDEA8F4FE338E32B84D6DCA83C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89454CB9BA1DE92083D37F9FD5932636F593E1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Landschall - Cake And Communism (2011) [MP3|320 кб/с]<Deep House, Deep Techno
 ```bash
 magnet:?xt=urn:btih:C05CCAC21F92C6BEBB2894BBAA015D93C04277E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Vindictiv - Cage Of Infinity (2013) [MP3|320 кб/с]<Heavy Metal, Progressive M
 ```bash
 magnet:?xt=urn:btih:B3E20AABCB3A79BD5B0AA515F0A19FEB40094EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Cyanide Scream - Battle On (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E15ECFE79FB907C5DDB5E8A8DD3603A21C7FE7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Ucleden - Hello Cruel World (2012) [MP3|320 кб/с]<Deep House, Progressive Hou
 ```bash
 magnet:?xt=urn:btih:F1EDBA73CED8956EA2127EAD776E662CD52920B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Tim Susa - Desire & Regress EP (2009) [MP3|320 кб/с]<Minimal, Techno, House>
 ```bash
 magnet:?xt=urn:btih:8E234BD35F01DCCB66CA9272A6CF0BFC788B0EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1167964F0D2A01C1AF39A35DB35D1731ACE6B03F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ Vain Velocity - Emerge & See (2013) [FLAC|Lossless]< Alt.Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ VA - Means Life Trance (2013) [MP3|320 кб/с]<Trance, Uplifting, Progressive>
 ```bash
 magnet:?xt=urn:btih:826F90098072EAE99F5AF4DB53B1BDF46738D869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ SarpYilmaz - The World Is Not A Cherry Pie EP (2011) [MP3|320 кб/с]<Deep Hous
 ```bash
 magnet:?xt=urn:btih:AD86A0654CC047D9D3C5C0C32DB0646E85AE08D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ Ashik - Gypsy Heart (2013) [MP3|192 кб/с]<Instrumental, Gypsy, Flamenco>
 ```bash
 magnet:?xt=urn:btih:AF2021CF7927E10DBC7318121D2690406134DD4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ Stefan Tretau - Yesterday you said tomorrow (2011) [MP3|320 кб/с]<House, Dub 
 ```bash
 magnet:?xt=urn:btih:2337D44234861B4E20958F520836BF58E41E98A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:268D1818AFC75B13AB14EAA3249EA058B0130A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ Max Cavalerra - Beyond The Skyline (2011) [MP3|320 кб/с]<Deep House, Progress
 ```bash
 magnet:?xt=urn:btih:BFD6194CA22C2A72049F6D8CF2B033A053166005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD24D78D57F33558EA7DA3DE55154C90564BC177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ Dead Cult Diaries - The World Is Too Small (2013) [MP3|320 кб/с]<Hard Rock, A
 ```bash
 magnet:?xt=urn:btih:1B30D2ABEC321CBE7EC2553AECC8DA6F36003372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ VA - Club-ная жара. Отрывайся по полной! (2013) [MP3|224
 ```bash
 magnet:?xt=urn:btih:CFA1BF3A3E5D95D80E934FCAD7FFE6D3D8552D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +561,7 @@ SlimBrowser - это быстрый и надежный веб-браузер с
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ East Of Eden - Mercator Projected (1969) Japanese Edition [FLAC|Lossless]<Rock, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +627,7 @@ VA - Рябина Красная: Отдыхай! (2013) [MP3|320 кб/с]<Ша�
 ```bash
 magnet:?xt=urn:btih:9ABEEB0DD506775B378930F9E4FD63F9021E84C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57D0575E9DC844CDF24EA89A22A7A2550D755DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +685,7 @@ Alexis Storm - 2 альбома (2011 - 2012) [MP3|320 кб/с]<Minimal, Techno,
 ```bash
 magnet:?xt=urn:btih:1822C569C658731190A192C8093282D6C2F2B92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E043CD033CA2D096452FFD3F1A9C02E9EF869570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -794,8 +769,7 @@ VA - Caribean Lounge Vol.1 (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:1A571C685C53FCAFD018EDE09A558E28630F80B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

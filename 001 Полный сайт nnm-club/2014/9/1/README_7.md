@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Unification (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:96EB7E6F3BB37FA737E9D828B12E1C60478284F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Dr.Ozi & Twofold - Correlations (2014) EP [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:41F378CA4D38207275E8D1674678681DC8C515F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Quok - Survival Waves (2014) EP [MP3|320 кб/с]<Dubstep, DeepDubstep>
 ```bash
 magnet:?xt=urn:btih:E9AEE7B0281280BF6901CDBD66D10FC510D88BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Reiketsu - Cinza (2013) [MP3|320 кб/с]<Neocrust, D-beat, Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:EA99E20194F8FD702DB4C36BC83E50CBA9CCB379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C55D919FB655022DFEB78CD16F31268C5C51129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CCF6D9E6779BD05DBCB3D5CADAF03538B62610B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86FD53C6139993DD50BCFD36B959EC6E0F3979F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7E603883107A095C6101477D188B03EAC7EFB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Power of Omens - Rooms Of Anguish (2003) [WavPack|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:7563EFB4A97A1DCCBB64DE808A18ED3FE5386DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:BD73CCC67557E49CC33CEDFD97A4F58FFD3472BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ Bryan Vickers Band - Draw The Line (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:62C7814A48F450ADB1EA3C84DD6C43930C7F3448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ Stephane Grappelli - At The Winery (1981) / Reissued 2004 / [FLAC|Lossless]<Jazz
 ```bash
 magnet:?xt=urn:btih:47933AADB309BFDBDD05459D492F9535EBC01EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ Soulver – это удобная программа для произведен
 ```bash
 magnet:?xt=urn:btih:67153664285BD41AA1A5FEA1D221AABE68F3CB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04E089EFBB6667BB05982E8FB807CB7D0C91DA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +475,7 @@ Saving Abel – это пятеро парней из штата Миссисс�
 ```bash
 magnet:?xt=urn:btih:345D124F24C2CD2C31101F7D31F549754BCCE73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ Destroy All Robots - Destroy All Robots (2014) [FLAC|Lossless] <Tech House, Deep
 ```bash
 magnet:?xt=urn:btih:2B1F40CFD6EA275EC669FCA7AEF5F93B251BDC57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E08E9602D604ADA192A50E9D9591FEBB44AFA707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ VA - Trance Desire Volume 44 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:D0863093DF233B9FC3DD2A7A4DF8892FBCA8D2FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +601,7 @@ VA - Best of Chill Out and Lounge 100 Tracks (2014) [MP3|320 кб/с]<Balearic, 
 ```bash
 magnet:?xt=urn:btih:E86340E13ADA59FD3E4B7E13C081AD3ABEA1FDDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ N.A.S.A. - Unique (2009) [FLAC|Lossless]<Psytrance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:0A77FC3C29867C5EA81AA4259AE7FC452E3BF643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ Dj Ultimate Bass - Twister (2014) [MP3|320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:80EBB72D84B2769AA8C72FB07C95DE91B3260574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ David K - Out Of Range (2014) [FLAC|Lossless] <Deep House>
 ```bash
 magnet:?xt=urn:btih:5342229FCACE268A7EBCFB7EC71956144885CC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E02422E580EBB05D4327E9C1CE2272EB85049386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5EB2F3F0A73247442AF1656CC18F28927D3DD5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

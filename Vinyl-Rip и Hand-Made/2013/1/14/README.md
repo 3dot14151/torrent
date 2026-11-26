@@ -25,8 +25,7 @@ B3. Carry On, Turn Me On :: 08:25Жанр: Disco, Electro, Experimental, Space A
 ```bash
 magnet:?xt=urn:btih:941867CA9114B7C2E55A570C4D975B962DDCD1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

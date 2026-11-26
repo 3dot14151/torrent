@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:782A2EF5B258825A0FF9ABAB74FDDB3144C18E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD5F53431AAC18D516F50783DA243BDCC422B325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B58359A733C10FF35479E633379D98D6D11305DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ InStyle - ежемесячный журнал о женской моде, осн
 ```bash
 magnet:?xt=urn:btih:FA5FE21FE0B99430887A40B62061F52137F40452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Elle, женский журнал о моде и моде в мире. Его с
 ```bash
 magnet:?xt=urn:btih:792BA975B4AD852534DC99E1B8C2C2CCEDCD83EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Elle, женский журнал о моде и моде в мире. Его с
 ```bash
 magnet:?xt=urn:btih:A52D66921AC8E020378EA7935022143BDA02899E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Elle, женский журнал о моде и моде в мире. Его с
 ```bash
 magnet:?xt=urn:btih:1625E9132232B3B10153F618C20A4E9F2996F8D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Elle — французский еженедельный женский журн
 ```bash
 magnet:?xt=urn:btih:07CA7456A505FD818E7F0F5B7C0C486C30287335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9F37C6B3166CE45E44D61C30E24CFFF6A908C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

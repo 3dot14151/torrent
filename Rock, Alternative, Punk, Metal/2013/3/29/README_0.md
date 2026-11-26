@@ -19,8 +19,7 @@ Fun. — американская музыкальная группа, игра�
 ```bash
 magnet:?xt=urn:btih:DD0E280631CB9E0571E36D8631134A39BE4F05E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Come To Get Her - Another Way To Go (2013) [MP3|320 кб/с]<Alternative Rock / 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ CD 1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Eagles - The Complete Greatest Hits (2CD) (2003) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:0EF9DC45DD6CE5F94F17D2A3FDA25C6D8DFC2CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

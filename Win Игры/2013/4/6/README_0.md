@@ -19,8 +19,7 @@ Strange Cases 4: The Faces of Vengeance [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:857FB8076506719B61C81F90AFE1941B4241B46B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Empress of the Deep 3: Legacy of the Phoenix Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:D8700EEA6651BCEC92D43759273E7D129F88633D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Incredipede - необычная головоломка, где вы будет�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Sang-Froid: Tales of Werewolves [En/Fr] (Steam-Rip/5.0.0.20) 2013 | R.G. GameWor
 ```bash
 magnet:?xt=urn:btih:267A89021F6AED47DC8F5D3A163E9FE128857333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Pro Evolution Soccer - романтичный, он увлекает чарам�
 ```bash
 magnet:?xt=urn:btih:298A43467DED624CF032CE9BA92E735C5A7B6479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Lucas Chess - лучшая из бесплатных обучающих шахм
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

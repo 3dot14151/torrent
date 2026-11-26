@@ -19,8 +19,7 @@ Blazing Angels 2: Secret Missions of WWII - это аркадный авиаси
 ```bash
 magnet:?xt=urn:btih:A415C37508E60DAA90D05F1EB7BCED7353B2E669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

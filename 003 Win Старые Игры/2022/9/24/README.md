@@ -19,8 +19,7 @@ Die Wilden Kerle 5: Hinter dem Horizont / Тайна заброшенной фа
 ```bash
 magnet:?xt=urn:btih:C9CAC286B91FC6AB7E8FA14698C90644FC26697A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

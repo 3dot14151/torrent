@@ -19,8 +19,7 @@ Late Shift - это криминальный FMV-триллер, ставки в
 ```bash
 magnet:?xt=urn:btih:444B9656D6D791E17F1880982E802A6008443B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

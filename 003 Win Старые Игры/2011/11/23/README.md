@@ -19,8 +19,7 @@ Shadow Vault / Shadow Vault: Зона теней [Ru] (L) 2004
 ```bash
 magnet:?xt=urn:btih:A29DBAAADCF35D26151697583E8C5CE3371A36A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:AAE946CD88C67DC28921F14F099739CDE3058F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

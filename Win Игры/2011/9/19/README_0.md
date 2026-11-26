@@ -19,8 +19,7 @@ Voodoo Chronicles: The First Sign Collectors Edition / Хроники Вуду: 
 ```bash
 magnet:?xt=urn:btih:1373A4E29CC97E71BB5871D864729669B51BFE5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sonya. Collectors Edition / Соня. Коллекционное издание 
 ```bash
 magnet:?xt=urn:btih:1E5335A460DA0DF0A546A0C41235C9771F4D2A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Red Faction: Armageddon [Multi10\+] (L/Steam-Rip/1.01) 2011 | R.G. Origins
 ```bash
 magnet:?xt=urn:btih:91651BAD781923A83BBA86908F83C723E40AE97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Lost Grimoires 3: The Forgotten Well / Утерянные Гримуары 3: З
 ```bash
 magnet:?xt=urn:btih:2470583B40C04CF2CB489BBFEC03CB9424ECFE82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Renowned Explorers: International Society – это стратегическа�
 ```bash
 magnet:?xt=urn:btih:282903C536BBBB555CF516AC600F36D67202E2B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ X Rebirth: Home of Light (2016) [Ru/Multi] (4.30/dlc) License GOG [Complete Edit
 ```bash
 magnet:?xt=urn:btih:665E2232B0CF3242BD2637958E9F7FFDE2F49E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

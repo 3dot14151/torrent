@@ -21,8 +21,7 @@ O&O BlueCon предоставляет ИТ-администраторам мо�
 ```bash
 magnet:?xt=urn:btih:193380811A581A254066F5534BA591A00F1EA440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Stellar Data Recovery для Windows восстанавливает данные
 ```bash
 magnet:?xt=urn:btih:A72AC800EEB47DE70499EEA8F8F33116081FF2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Obsidian Reader позволяет читать файлы EPUB и PDF без р
 ```bash
 magnet:?xt=urn:btih:A5A71D33964DACA65DEAD499CDB718DF0F58340C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ WinScript — это мощный, простой в использовании 
 ```bash
 magnet:?xt=urn:btih:0FA2D8113DB6C2B84207ED74391095E4DE0D029D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Opera One 130.0.5847.82 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5CC439F9FD19AFF8744145AEA5A32D397B796007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:F1299618E824406DB7C38219315C8DC180017AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:39F84BFDF3D1318C1D0C5D1CB66A03ACB6ED9EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ SoftPerfect RAM Disk - программа для создания виртуал
 ```bash
 magnet:?xt=urn:btih:84D943A21D324494F24885135AEBE669DC4C89A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

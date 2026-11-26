@@ -19,8 +19,7 @@ Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
 ```bash
 magnet:?xt=urn:btih:5A833AB2AA4103E096C900ADD438DC6A4D31AEAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

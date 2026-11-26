@@ -28,8 +28,7 @@ AdrianGale - Sucker Punch! (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E9CD5C294EB9583C058816A7CFA6612EDC605D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Black Oak Arkansas - Back Thar N' Over Yonder (2013) [FLAC|Lossless]<Classic Roc
 ```bash
 magnet:?xt=urn:btih:5B4CCFE989864760132C190DC1B51314FC8D803C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ American Dog & Fin - Dogatized (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1EEC3763A84203897524F6446EBAD68D13082303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Cream - Royal Albert Hall. London May 2-3-5-6 2005 (2005) 2CD [FLAC|Lossless]<Ro
 ```bash
 magnet:?xt=urn:btih:C94730479D3877124C7952E040E3D21C87B7FA08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +165,7 @@ Impending Doom - 2 альбома [FLAC|Lossless]<Brutal Death,Deathcore,Christi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +203,7 @@ Billy Joel - The Complete Albums Collection (2011) 14 СD Box Set & Bonus Disc  
 ```bash
 magnet:?xt=urn:btih:3C0A17CE8B358B190431FDC6519F9E8D2D74410B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

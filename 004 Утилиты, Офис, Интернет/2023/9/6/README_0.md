@@ -19,8 +19,7 @@ Geekbench - кроссплатформенная программа для пр�
 ```bash
 magnet:?xt=urn:btih:7BA22149C06E6E4D1BE79902559045850AC3EDFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:6BA6B276E93EB07529890D2404D8EA3B50EF4E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Corona Benchmark основан на ядре рендеринга Corona 10. О
 ```bash
 magnet:?xt=urn:btih:8CA187827AC4E4D14B0EDBF77213531F53182CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

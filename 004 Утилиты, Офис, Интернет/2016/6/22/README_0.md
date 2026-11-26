@@ -19,8 +19,7 @@ Video Booth Pro - создаст из снимков небольшой виде
 ```bash
 magnet:?xt=urn:btih:9081F307E1E3246E4FFB8E54B75075AF96140D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

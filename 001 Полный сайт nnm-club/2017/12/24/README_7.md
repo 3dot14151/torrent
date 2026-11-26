@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5FE65B56364793BCA3D9C594F56A47A45AD4CA5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Billy Harper - The Believer (1980) 2009, BMG [FLAC|Lossless|tracks + .cue] <Post
 ```bash
 magnet:?xt=urn:btih:6F80D46CBD80E393016846BE6976087AA4335B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Clayton-Hamilton Jazz Orchestra - Absolutely! (1994) MLake Street Records [FLAC|
 ```bash
 magnet:?xt=urn:btih:7FCD40809EA2366AF2920D6833752D54046A1F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C0330C849DE4339209F43A2C97B176C3ABC373C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Sunstate Trance (2017) [MP3|320 Kbps] <Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:00C9CEEF736B0F7A69745F25EE6DBE180F2C75A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Dark Tomorrow Amsterdam 2018 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B300D9A43C484366AA392B2D9C35BE20D6128B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Enrico Pieranunzi Quintet - Don't Forget The Poet (2006) CHallenge Jazz [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:AD2ABE1EA5D2156326C3BC53737EF43E12938B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Turn On The Dark (Mixed By Oberon) (2017) [MP3|320 Kbps] <Trance,Psy-Trance
 ```bash
 magnet:?xt=urn:btih:2879CB199B51C1BC6092A8FAA1E761EEE3FFBED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD5DAD2B59638A7BB5DCC4595D897D66525D0BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ ZveroБой (Зверобой) - Ток (2013) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8EE1F6F9B6B09C645B7040CB2E8BF744EA6EE95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:0D7FD1F2AD336D65BCB7CBFF6B03E09EB4F64AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ ZveroБой (Зверобой) - Напиши на мне (2012) EP [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:31A065FEE3E7C774B23317412E856F58EB31AAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Maury Laws & Jules Bass - Сумасшедшая вечеринка чудови
 ```bash
 magnet:?xt=urn:btih:4A997603CF2DC3A4C615C9D16356B69B0DE25094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:664D5E17F17220740E079139D60299ABC689432C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ VA - Dark Amsterdam Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:27338AFCA7F32FA2E0FF72422D45DB49820EB9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E98AFD6717D6B39472F0579A32471777684312D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ ZveroБой (Зверобой) - Акустика (2009) [MP3|256 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:69DAF2FA9784BDC8AD6B9C120F22BC4F0E426892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09E92A67035A0BB5C15FDB7D0345D69AE0347D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ ZveroБой (Зверобой) - Жив (2008) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:86905DE3387427138B1E5131190E49C8D805D887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ ZveroБой (Зверобой) - Чистое небо (2014) ЕР [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:10D9F8CC60827D5F440A2A80EF089A4770E3D27E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECE7B762AB6B711200C34F19A70660E562368550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ```bash
 magnet:?xt=urn:btih:1535993F2CCE6FE9CF07B5826024363DDC67C4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F17A371867649BDBB9FB9387AE5D076C991375F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DEFA2EC82F6A51BD9EB3ED223516F513B316349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5C7362B4193A6F131CB74AE8A671AA947E10A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Twisted Psykie - Washed Away (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, UK G
 ```bash
 magnet:?xt=urn:btih:CF1FA279A3B76C530910949511B48724AE3568B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Disc1:
 ```bash
 magnet:?xt=urn:btih:B35EF8818E9BBD24D6B04B9A71B8D4B7AB28153C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86D664D1501806B0C64F22B73FF1FC6E59998DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FD6F3F60C33E62ACA387E3012D86BE43F360915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Crippled Black Phoenix - Sceaduhelm (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:783DB2AB34666167E8D590BB076D98869FAFB283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:060FCA201E7E4943ED4A550F75A5A7033FBE7938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Hardline - Shout (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CC8E5625F31969BA73F61461C81E6D6FD8E45801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Soundgarden - Superunknown (1994) [FLAC|Lossless|tracks + .cue] <Rock, Alternati
 ```bash
 magnet:?xt=urn:btih:5C3D2CFF89A3A474D28138CFEEB97FA9D472C18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

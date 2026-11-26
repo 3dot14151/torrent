@@ -28,8 +28,7 @@ Serenity - Death & Legacy (2011) [MP3|205 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:0CDFC3B0905B385EFC5D8CA3976B59F5E203290F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Dragonfly - Alma Irae (2008) [MP3|320 kbps]<Epic Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:91798A8AE1EA2C1C1642C0FAB2F627DC7FA88AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CF6D235FEA72BB924EF7FB37109075BAE805F29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

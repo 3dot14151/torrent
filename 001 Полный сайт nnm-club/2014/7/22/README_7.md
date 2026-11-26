@@ -26,8 +26,7 @@ Plebeian Grandstand - 3 альбома (2008-2014) [MP3|320 кб/с]<Chaotic Har
 ```bash
 magnet:?xt=urn:btih:3D334C63811419EA6076C489DF494EB934CD7076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Calvaiire - Forceps (2013) [MP3|320 кб/с]<Chaotic Hardcore, Screamo, Crust>
 ```bash
 magnet:?xt=urn:btih:57C76458C47A7B7BD8EB3A95B6A01FDB22209267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Direwolves - Aegri Somnia (2014) [MP3|320 кб/с]<Neocrust, Hardcore>
 ```bash
 magnet:?xt=urn:btih:CC391194D266C936047327314340CCEAA443E89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Ghosts Of Glaciers - Decay (2014) [MP3|320 кб/с]<Post Rock, Post Metal>
 ```bash
 magnet:?xt=urn:btih:42951AEDA5FCBC2F2C41F8E0D66BC749AFC20AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E8C123EC94255C25990FDDCB20B292E0EC63D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ Billy Bang, Shoji Hano - East Meets West: Four Seasons (2009) [FLAC|Lossless]<Av
 ```bash
 magnet:?xt=urn:btih:D3170BBC87DD5EDAAA91CCCFBBD50CD28DBC05A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Sarah Straub - Red (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:5DF7E3CB16231F96678C9330AE13B8C5E8790C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F8E04353F0A8CF1B4B7F8FCBEDDE792AE901C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ Gene Ammons - Jammin' With Gene (2000) [FLAC|Lossless]<Jazz, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:BD12C436587F8296D2520A7146082701BF7F0982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:457F733F6E678EB02970C289B8B8351FE5DD342C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ Electric Pigs - Food Chain (2011) [MP3|320 кб/с]<Breakcore, Jungle, Hardcore,
 ```bash
 magnet:?xt=urn:btih:F5FD2E32B409CCF3644E1212A3373FB3E71817FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ VA - Ibiza Trance (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:127E3E547D03F952CDBCA0C156B8B1958F8EB411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE9AC7BFFD1CE6A2E75AA95E87812B26793C727B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ Johnny Winter - Serious Business (1985) [AAC|332-345 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:5BD2EE1384742F2E61083839FFB675251BEA9AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ VA - Vocal House Sessions (Volume One) (2014) [MP3|320 кб/с]<House, Vocal Hou
 ```bash
 magnet:?xt=urn:btih:AE82AFCF2FFA4A91AF2AF619F8E028A2D1F59CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D85FDEA195EB5AAAA7638D848EB672C4C96F329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ Crooked Still - Shaken By A Low Sound (2006) [AAC|279-329 кб/с]<Rock, Folk Ro
 ```bash
 magnet:?xt=urn:btih:504E777AD40401D155BA54F3B82FFEA32C9B0723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:792FD9ED1CC73D5E30034D7FEE52CEFCF6C16EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABD50974E2A0BB08307302A1FE691F8FEAD56B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ Bria Skonberg - Into Your Own (2014) [FLAC|Lossless]<Vocal Jazz, Modern Jazz>
 ```bash
 magnet:?xt=urn:btih:9C3F41FB6F1A1DECAF9C5C27CA24503D9131ACEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ Autopano Giga — программа, позволяющая объединят�
 ```bash
 magnet:?xt=urn:btih:9CFD43FA288A497BDB8807E75C03CF7D00D1037E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:920D8FE06C1CC726FE54B5A99B4E828F36B1758C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C2538DD0F154527A539F87F634258367916FB59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ FileZilla 3.9.0 Final RePack (& Portable) by D!akov [Ru/En]
 ```bash
 magnet:?xt=urn:btih:099C5F00ECE7BE016298D4AA1AFB4BF40D84ACC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +726,7 @@ Utah Jazz - Portfolio (2014) LP[MP3|320 кб/с]<Drum'n'Bass, Liquid>
 ```bash
 magnet:?xt=urn:btih:FD6AE86B8C627BDF4D9FE207DB23CD38F69EDD48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABC4A0294424170EBAF220B3D63FFC3921B64EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

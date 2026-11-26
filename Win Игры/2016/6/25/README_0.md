@@ -19,8 +19,7 @@ Coffin Dodgers (2015) [Ru/Multi] (1.2.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FD0A72A69F86C7BE10345B8F35A66536E21C3228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

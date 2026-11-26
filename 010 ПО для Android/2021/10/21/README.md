@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8DFC92CF110F5879FCA054CF807EB7B9CCCF068D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Fraction Calculator by Mathlab Pro v3.2.44 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:41F89BF642778A0E50B42A9AAB6AA1C257396D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Wifi WPS Plus v3.3.5 Ad-Free [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A4B4048790DB0B16D4FEEC267F1F031AC5F409BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

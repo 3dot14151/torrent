@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4D9F419C0403B15CCDECC17D25A791B7DC570B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Bloody Boobs (2017) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:4DEAC0FC10E0E734E1D632FBAF7EB940FECE177E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/upd1/dlc) SteamRip R.G. Origin
 ```bash
 magnet:?xt=urn:btih:CBD90EA11E7416950E237E76D311330C56181C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60C8AB5297D3EB5101FA9A6A92A7164621DDEF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B9FAC7F1CEEEFBDF91AA9B2517A05B892B7DDF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Mozilla Firefox Good 1.91 (51.0.1) Portable by southron4965 [Ru]
 ```bash
 magnet:?xt=urn:btih:4F2DDB1A1F4E7FBECB17D97CDD8BC545C37436E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31F0CED45F0CB8A4662CFF89B39C49CC0A947595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Kaspersky Internet Security 2018 - комплексный Антивирус К�
 ```bash
 magnet:?xt=urn:btih:C888920C849B9D0BD86CE06A8B57CF6810847358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1D45EC1D95810F13A27F049BBAFC5A32FFE1872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

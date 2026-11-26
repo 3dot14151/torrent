@@ -23,8 +23,7 @@ Dark Desire - Unveil the Beauty (2014) [MP3|320 кб/с]<Symphonic / Progressive
 ```bash
 magnet:?xt=urn:btih:21A6C6194783CA53F0E34B87FF227A623D6A3B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Exence - Hystrionic (2009) [FLAC|Lossless]<Progressive Thrash/Death Metal>
 ```bash
 magnet:?xt=urn:btih:F557EBBC0A051408E3B013365BDEF08CA931FC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Deadeye Dick - The Vault (2015) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:49C074AFED6FF7CA2E39B4F650FD8DA399F4BB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Saving Abel - Blood Stained Revolution (2014) [MP3|320 кб/с]<Alternative/ Mod
 ```bash
 magnet:?xt=urn:btih:0DEF7ED521EE1DC56B376FE4CD8F12FEC6A51DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Fool's Errand - Beyond the Pale (2015) [MP3|320 кб/с]<Progressive/ Melodic Ha
 ```bash
 magnet:?xt=urn:btih:C111B5449AF8D53DB5B018F8A0C721A2BAC173DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Cornamusa - World of Pipe Rock and Irish Dance, Pt. 1 (2015) [MP3|320 кб/с]<C
 ```bash
 magnet:?xt=urn:btih:0B3006F2F08620DEC802344B65DF11DD9D778EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ WeAreCastor - Bon Voyage (2014) [MP3|320 кб/с]<Alternative, Electronic, Psych
 ```bash
 magnet:?xt=urn:btih:9D4D1955CE4C4A2C237BCE36CB1259ACB8E7268B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2FD5A75B19C7AD354610864A837CF4F73AD54DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Kodaline - Coming Up For Air (2015) Deluxe Edition [FLAC|Lossless]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:1034BEB330B931CA82A677BC54EABA7A85D0C27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8C15A1E6743CC2E7D7DF74644FAD301B382BDCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

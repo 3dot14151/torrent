@@ -22,8 +22,7 @@ Los Cochinos - Tequila Berserker (2020) [FLAC|Lossless|tracks + .cue] <Death'n'R
 ```bash
 magnet:?xt=urn:btih:D4E80F5DD989E2C00716863263047C0710AB9660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

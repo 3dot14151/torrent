@@ -28,8 +28,7 @@ Onslaught - Sounds of Violence (2011) [MP3|320 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:00E436E14A596A3190B1574A3BB76F9A5263A149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ To Cast A Shadow - In Memory Of (2011) [FLAC|Lossless]<Gothic/Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Inside It Grows - Beyond The Ghosts (2011) [MP3|320 kbps]<Thrash metal / Melodic
 ```bash
 magnet:?xt=urn:btih:4E4FFE3EEC8D4C2D100FBD4D47E982A99767C945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Yggdrasil - Irrbloss (2011) [MP3|320 kbps]<Folk / Epic Metal>
 ```bash
 magnet:?xt=urn:btih:3D95F22B5A74BD3DDB7A5DB31F3145C7E865C97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ SepticFlesh - The Great Mass (2011) [FLAC|Lossless]<Atmosperic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Cryhavoc - Дискография (1997-1999) [FLAC|Lossless]<Melodic Death Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ Mike & The Mechanics - The Road (2011)[FLAC|Lossless|image + .cue]<Progressive R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ Firehouse - легендарная группа, исполняющая мело
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

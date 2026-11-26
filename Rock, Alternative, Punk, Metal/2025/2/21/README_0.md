@@ -22,8 +22,7 @@ Enbound - Set It Free (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog, Power Metal>
 ```bash
 magnet:?xt=urn:btih:1E9AAAD865940D98C4ED19CDC15226F58600B1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Leprous - Aphelion (2021) 2xCD, Reissue, 2023, Inside Out Music, Limited Edition
 ```bash
 magnet:?xt=urn:btih:09A524D9B96213429D16F4A7E59B2C3CA79BD1F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Limuria - Lost World (2025) [MP3|320 Kbps] <Progressive Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:28D6924B0FF1B7B71C307DCD53966E1BCC1CF143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Gothic Valentines (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:2D3FF66898C404BB453D7122BDDA29B3A108BF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Crazy Lixx - шведская хард-рок, хард'н'хэви группа
 ```bash
 magnet:?xt=urn:btih:66BDC273B019F9B89027275B4B1011CFE5A61C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - 100 Hits Power Ballads (2016) 5 CD [OGG Vorbis|480 Kbps] <Classic Rock, Pop
 ```bash
 magnet:?xt=urn:btih:CDDCC3F192F3D389EB41D8B3F6739305DC176DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53B953574C485A1E268C7744EED2D4263DBA6106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8A720F42B4EF4C06E0A36D2DA8757227DF8F9AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Disc 1 - Rock Until You Drop (1981):
 ```bash
 magnet:?xt=urn:btih:3C838B27AE62A0408D5357BB608100F74DCBFFAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68AC1479CEF37D39F6626D3EA9F51F53640BF21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Therion — (от греч. θηρίον — «Зверь») — Шведска�
 ```bash
 magnet:?xt=urn:btih:25C4C619943447FD4E81DA092CABF38AD9EFAB6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

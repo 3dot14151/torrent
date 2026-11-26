@@ -21,8 +21,7 @@ Yep — это каталогизатор PDF-файлов, iWork и офисн�
 ```bash
 magnet:?xt=urn:btih:AF98C37089C0A0C7C752B1CC7C9C9051522AA7BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Русский отрыв на Русском радио (2017) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:C0EAF01C5AD4D0580802CA2990A9685534BE80B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Любимые песни на радио Шансон. Версия № 6 
 ```bash
 magnet:?xt=urn:btih:59C49A55E7F78E37F9A3A6212D77EE043D06D362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - edge 2 (2003) Japanese Edition [FLAC|Lossless|image + .cue] <Hip Hop, Rap, 
 ```bash
 magnet:?xt=urn:btih:5003072C76AAC9CEAEABAD0807A23DFC4E6904B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Популярные весенние новинки. Сборник № 2 
 ```bash
 magnet:?xt=urn:btih:13147F5F94A91F74F709A081331855D79269A066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:761F83ACCC0DF539C087EC730796FC0C72CAEFE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Piledriver - Brothers In Boogie (2015) [FLAC|Lossless|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B4AD641C95DC70F15D058651BE5E2CAF81197AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A55BFCB0FF50EDD101BE1F71D3BE3954AB5B2464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Ray Wilson - Makes Me Think Of Home (2016) [APE|Lossless|image + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:9785E1C8F30ED4B742A0328E07F90618714CD76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C76B790AAEA6950F223B5EFB52B52291BC7BAEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Espresso  вернулся. Для людей, которые делают во�
 ```bash
 magnet:?xt=urn:btih:E4EC3503123534BA16B3427C3979CC7F7DEDDD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ VA - Balearic Time Vol. 2 (Compiled & Mixed By Seven24) (2017) [MP3|320 Kbps] <C
 ```bash
 magnet:?xt=urn:btih:E9AEE0370CAF73E09C3A07886779F545DA96495D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Hamish Anderson - Trouble (2016) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:62C45D6F704A54BBC28BB8FEA8055288EC355A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Gyze - Northern Hell Song (2017) Japanese Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:E19DD20364499B5A0C673AF46C5E3A81B29F57B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:FE294690F85CC8814A39B3EE829C7326443D1CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Thomas Hardin Trio - Moonlight Cafe (1999) Victor Entertainment [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:2AF74B5A362906399CEC74012B7D748C55018521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ VA - Весенний хит русского шансона. Версия № 4
 ```bash
 magnet:?xt=urn:btih:01F08D23CEABD754BFE3EA8B65ACA0D69C7DD340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Lulu - Independence (1993) [FLAC|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:CD7E3EC0E35434E1CE8814BB9E6A4A18DC4D0DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E60C26B57BD3498254AFB4CD1C289B59E146AE91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ VA - Лучшая дискотека от Европы Плюс. Часть № 
 ```bash
 magnet:?xt=urn:btih:D9C47CC207F8082A67F0031A814655B61EA63D1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ PhotoSweeper — отличный способ поиска дубликатов
 ```bash
 magnet:?xt=urn:btih:BC34284144B6D367FC17C43DC1AF79CCB751CFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBAFAFEE28CAED600D7216D60DD7709041A77BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AED289CC9E9E9F37A2368DA2F07E6D580671A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ VA - Песни для души радио Шансон (2017) [MP3|256 Kbps] <�
 ```bash
 magnet:?xt=urn:btih:598D0323B9BD07D88D0AD743352E059BC8626E2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

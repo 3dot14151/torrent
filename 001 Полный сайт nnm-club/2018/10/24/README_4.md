@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:718F6A4E3ED81C7AD40224AB53AE77D87C168803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Adguard предназначен для блокировки абсолютно 
 ```bash
 magnet:?xt=urn:btih:09E380916BEE458BBF35E212164F55BB51FC0FDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

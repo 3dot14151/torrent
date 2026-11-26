@@ -28,8 +28,7 @@ Beautiful Sin - The Unexpected (Limited Edition) (2006) [FLAC|Lossless]<Heavy Me
 ```bash
 magnet:?xt=urn:btih:10FF107B6EBCE4CFD78EB5F574473C61FCFBA1F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:487D792047E6E5F8902210007D55584F13269481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Robin Beck - Underneath (2013) [FLAC|Lossless]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:4F33A04E1DA39227A61CA76514A55C82B68C7FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ If - 4 Albums (1970-1972) [FLAC|Lossless]<Jazz Rock/Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:AAFF93C918D194AD1BF7FE5A2BE5FBA67B19C5D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Led Zeppelin - A Memory Frozen Forever 1980 (2013) [MP3|320 кб/с]<Classic Roc
 ```bash
 magnet:?xt=urn:btih:BCB911C29C8887C9D437A35E9BDCA68A0FBAA8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D148B4189EA6AF67197D3A60E48A2C7E2D4FEDB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75652F61422D43A4B9BDF32792F4E1E883630786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

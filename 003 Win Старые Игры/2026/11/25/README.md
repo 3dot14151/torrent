@@ -19,8 +19,7 @@ Grand Theft Auto: Vice City (2003) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:90E514931F2BD394C42BAB4DF0B2B8DEB4C55A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

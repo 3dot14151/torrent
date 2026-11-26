@@ -19,8 +19,7 @@ Ceville / Ceville. Похождения тирана (2009) [En/Ge] (1.0.2.0) Li
 ```bash
 magnet:?xt=urn:btih:489215131093E4DBB517063EEFF21F0F23BE5F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Effect 2 – научно-фантастический шутер, прод
 ```bash
 magnet:?xt=urn:btih:55FAA162F1CA9DA73425F107C194BDD95D618D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DiRT Showdown (2012) [Ru/Multi] (1.2) License PROPHET
 ```bash
 magnet:?xt=urn:btih:92DC3F8E8DA2F20BF09BDA16DB711367425B999D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Bionic Commando (2009) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A72BD5C33D6B5243E0B2B2CC9DB556D21161A5B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ She Remembered Caterpillars - игра-загадка в тревожной эс
 ```bash
 magnet:?xt=urn:btih:C22769A060A8EDC10F06175A76FFD6FD51A96A5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Resident Evil: Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:16F61B08496DC9E21D7C9896349FA358E8254957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Torn Tales – ролевая игра, в которой вам предсто�
 ```bash
 magnet:?xt=urn:btih:AE3B57D53899A9DF6535625C3D71D34386E367CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Siegecraft Commander (2017) [En] (1.2.3962) License PLAZA
 ```bash
 magnet:?xt=urn:btih:E868EDF2D606D8F2629723586C3F397118CC7FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

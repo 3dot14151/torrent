@@ -19,8 +19,7 @@ Hi-Tech Pro предлагает своим читателям знания и �
 ```bash
 magnet:?xt=urn:btih:519C4EBA1EF852C12E8EFD8714757C67ABC28628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Joe Weider | Muscle & Fitness [2001-2005] [PDF, DJVU]
 ```bash
 magnet:?xt=urn:btih:D7ACAC80B083DEEED99C47F396050ED3F7EB183F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

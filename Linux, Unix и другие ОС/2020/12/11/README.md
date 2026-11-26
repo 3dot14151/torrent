@@ -19,8 +19,7 @@ CentOS 8.3 (2011) [amd64] 1xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:C74F445DD8E201C83B27F6DA89DEF64E0EC4EA55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Kvisoft FlipBook Maker Pro - на удивление лёгкая и прост�
 ```bash
 magnet:?xt=urn:btih:061A38B3432971B4C62EA7D47739A254599E0822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

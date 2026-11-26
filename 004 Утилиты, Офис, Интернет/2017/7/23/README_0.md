@@ -19,8 +19,7 @@ Reset Windows Update Agent - полезный инструмент, которы
 ```bash
 magnet:?xt=urn:btih:2DBD09D4E5EB1C24E2B496B95B45B19AA1FEF3F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

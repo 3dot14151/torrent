@@ -22,8 +22,7 @@ MOR - Разумное, громкое, вечное (2025) [FLAC 24/44.1|Lossle
 ```bash
 magnet:?xt=urn:btih:D146294C85A50738DDA7606E1045C7F9BCF01303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C9AE9492D67C462851373D3CA12E7D466809AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

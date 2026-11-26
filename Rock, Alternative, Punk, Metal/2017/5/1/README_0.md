@@ -22,8 +22,7 @@ Jaime Kyle - Untangled (1999) [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock,
 ```bash
 magnet:?xt=urn:btih:6FF2C11A5B7EAA784D0BC6E34A017344B381577E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Roy Clark - The Lightning Fingers of Roy Clark (1999) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:C3021C7BB0B4CB60E62AA14F3A8ABA9B5AD04B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Flame - Flame (1992) Japanese Edition, 1st Press [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:4676F7644635ACF16380A68CC60022B76CB08A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mythra - Still Burning (2017) [MP3|320 Kbps] <NWOBHM>
 ```bash
 magnet:?xt=urn:btih:0397D62506463739A60E4DC9FFE2EAA67C6DD360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tak Matsumoto & Daniel Ho - Electric Island, Acoustic Sea (2017) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:D4AAC2790E9FC2824D56807576873624C92F5094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Thurston Moore - Rock N Roll Consciousness (2017) [FLAC|Lossless|WEB-DL|tracks +
 ```bash
 magnet:?xt=urn:btih:D1E79F46AF9E190F8D759A299B737F5817EB9380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Golden Earring - 50 Years Anniversary Album (2015) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:EB6EA5616A2DB1EC52765CCB8FB549E11BCF55FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Brutto - Рокi (2017) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:852D90A837DA32023E8DF6052197FA94D1E48858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

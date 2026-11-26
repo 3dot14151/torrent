@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3E1AD50F6F4EF612FF8DA6ACE6D5A288AD311373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Atlantis Pearls of the Deep / Атлантида: Жемчужины Глуби�
 ```bash
 magnet:?xt=urn:btih:72042D074B6BF1BFD9750FDE56187BA8A86F42D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ringo Starr - Postcards From Paradise (2015) [FLAC|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:67055ABBE183C5A765B50C5C5312E5B908E8D664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D6049C622C5FF903D0EEB88C48F879A93C2DC14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3716F3FEEC576C235636B49D1B6E31A14C95B8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:72D0167CCF535DF72B57CF061503E079C8BD3235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Kokoro Connect / Связь сердец [2012, TV, 17] BDrip 720p raw
 ```bash
 magnet:?xt=urn:btih:F3DDBE1EF010B2E116BDEFF99F44C34C562DCC0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Thai Сolumnist: «Монстр терроризирует жителей отд
 ```bash
 magnet:?xt=urn:btih:9F4B40A7B597E04DBAFBF923D0DB4C0E39B1B423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ TeamViewer устанавливает подключение к любому к�
 ```bash
 magnet:?xt=urn:btih:FCDC4AFCCEE5CC399F1FD11D8445525C85B02475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Cold Launcher выглядит как обычный лаунчер, близк�
 ```bash
 magnet:?xt=urn:btih:450998C3FCD0C6D732B588014F23F3E81A380BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ SunsetScreen - бесплатное приложение для Windows, кот�
 ```bash
 magnet:?xt=urn:btih:E0DD1B455F9AE6FEAEF889A2455FCD13776E192C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26D00A1D9FD65276F2AA84F6583F8BE8EEB114CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7232936AE2755A9A8C9EA523FD883924BE358F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B32066A39AA999504CDFA36BB713883BBE073529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6405BCAEB3358A84DBBF2C18155D4C4189123A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5825E4E880F62515DFEE0899612A983BFE818DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ VA - Клёвые Хиты В Тачку (2014) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:95493C54B2048C04076DA90FB7080187F11EAE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ Imelda May - This Is Rockabilly (2015) [MP3|320 кб/с]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:6CDFB5E7F67B05D99078799890784761FD7F2086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ Bubble Screenlock Launcher 1.2 - Как бы выглядел интерфейс
 ```bash
 magnet:?xt=urn:btih:E1746B3B0FBC4FA1792AE507D0B92A12A050D00F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8745D2BD48A49CF1EF880FEBE2F6712E59E1746D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40FC63342283FA3BF69E657BBFC810C544F07A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B85904ECBE82EE1F11AF24F833CE773E85141A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E54AC828D269D2F329471C5160FEEA4476C7A907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +606,7 @@ Beavis And Butt-Head / Бивис и Баттхед 1.1.1 (SEGA Genesis Game) [R
 ```bash
 magnet:?xt=urn:btih:99DF0D36CCCC47F5C8A829E0E2BA9801896FFBC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +631,7 @@ World Warships Combat 1.0 (mod) - Командуй военным корабле
 ```bash
 magnet:?xt=urn:btih:811275B5D97F64C058EE3A275630411511225771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +660,7 @@ VA - Ministry of Sound: The Weekender (2015) 3CD [FLAC|Lossless]<House, Electro 
 ```bash
 magnet:?xt=urn:btih:868C1B46E4C3E63BC1ECBCF9F077C5FAFE589218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

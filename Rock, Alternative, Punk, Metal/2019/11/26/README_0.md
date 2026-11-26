@@ -22,8 +22,7 @@ Silent Force - 6 Альбомов Collection (2000-2013) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:4198B8A29563D42827D1F5AA7E1F1EDD44C60E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lindemann - F&M: Frau Und Mann (2019) Special Edition [FLAC|lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:C242B2BE71C7C3B0A7BB2A32CC0AA1A080BEBC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

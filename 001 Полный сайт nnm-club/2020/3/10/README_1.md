@@ -21,8 +21,7 @@ Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тё
 ```bash
 magnet:?xt=urn:btih:DFCA2F8F835CBDD57ABBCADAF4E55D00C52C1C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Beatport Tech House: Electro Sound Pack #21 (2020) [MP3|320 Kbps] <Tech Hou
 ```bash
 magnet:?xt=urn:btih:FBCC597C4A1CC8DD805BE7E6CF7B635FAC5E649A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Beatport Progressive House: Electro Sound Pack #22 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:7BD8869721B74A4023CB0770F43C7B8E2E27D02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Mandragora Scream - Madhouse (2006) [FLAC|Lossless|image + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:2B2B53040EF65CC76708798CA3B6726A09CA4ABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Tribute to Смута - 15 (2020) [MP3|320 Kbps] <Viking Metal, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:CC3BEDF21EC630B789B5FA2AC2578941F7DDD9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ```bash
 magnet:?xt=urn:btih:8359D8CBDEBCF617C4E4835EEEE3184EDBCFCCA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тё
 ```bash
 magnet:?xt=urn:btih:EFAD2AFE36D6A679D0225379D648CD73C371EE6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Pokemon HOME v1.0.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2F664618D4D628D514C98E8C252F1B78A24B890C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Halva (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:19953174CBDBB5B5DC819858C1D23EB7BB0FB263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Augustro Music Player v6.5 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E5D4ED9CF9C3182B701B1DE195D5C7FD412641C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - GRL GANG Presents: RIOT! (2020) [MP3|320 Kbps] <Dirty Dubstep, Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:E9129DB4D47A545E4527054CD8E69456CA6593F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Lush Buns (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F0B18C3CAC414D6780A7B327E6464F27ECF7E498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - Segment (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:172C320553FD6925B27934A2159E56481CF9FB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Louna - Live Show Re:Public Minsk Belarus (2020) [MP3|320 Kbps] <Nu Metal>
 ```bash
 magnet:?xt=urn:btih:3E138828973355ED91A00B491810B6BC12ED5661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FE1FD1FC4F7C3A282C969AE35A7B2923EAC351A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Torch Browser - браузер на платформе Chromium с расшир�
 ```bash
 magnet:?xt=urn:btih:1948C86B2FFECA88783DD23F641FD9CA27B58843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ The Hot Sardines - French Fries + Champagne (2016) [FLAC 2.0|96/24|tracks+.cue|W
 ```bash
 magnet:?xt=urn:btih:80CE80E3C5FA16607C68EC37C8160B00BF3523F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ VA - Cosmic House (2020) [MP3|320 Kbps] <House, Future, Progressive House>
 ```bash
 magnet:?xt=urn:btih:C645FA9F3DA7DF622212023E144B30CD29DBC703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ VA - Absurd Idea (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:250184D894A90AA356A4C2CCDA56F6B58BC0EF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ NotifyBuddy - AMOLED Notification Light v1.50 [En]
 ```bash
 magnet:?xt=urn:btih:F678B571A005197AE97EDEA95A22C673D48A8B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D9EC7ECA6D7CCFD1EF1FC335434D6971D7963E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A438DC7AD06C04B1D1C444A5CC42CB3A0222568B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Five hundred english words - Уникальное приложение, для �
 ```bash
 magnet:?xt=urn:btih:109370CE8F4E7461B1FA08231C5B6D2D2F5441AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Peace, Death! v1.8.3 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0B7FF2EAC6BABFAE410E7CA173AAC3BBD43E8FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED995B807A133670F54DF0E127C59BB40AEFBB90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ The Karaoke Band - The Led Zeppelin 1960- 70s Karaoke Songbook 1 (2008) 2CD [MP3
 ```bash
 magnet:?xt=urn:btih:831AD6A7D10F01B0189930C133F04CE8540F67F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

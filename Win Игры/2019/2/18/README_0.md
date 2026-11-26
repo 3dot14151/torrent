@@ -19,8 +19,7 @@ Midnight Calling 4: The Wise Dragon (2017) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:BE93506A5DF54BEA708CBA64D82EB0F92EBCD2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Donna Brave: And the Strangler of Paris (2017) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:E707D24655A301C7ED2E7FAFEF9DBB249CC8E1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Halloween Chronicles: Monsters Among Us / Хэллоуин: Монстры ср�
 ```bash
 magnet:?xt=urn:btih:7854654C57FCFDB47DE36E65746AD43839DA877E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ NASCAR Heat 3 – гоночный симулятор, являющийся пр
 ```bash
 magnet:?xt=urn:btih:92DBF53AB8FBFC19AB322E1893177A6584BAFA44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Killer Instinct (2017) [Ru/Multi] (1.0/upd14) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9631A20AF34D4DC114390568B94CE14179A00D1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

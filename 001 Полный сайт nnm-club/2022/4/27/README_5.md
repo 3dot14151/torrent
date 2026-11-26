@@ -22,8 +22,7 @@ Speckmann Project - Fiends of Emptiness (2022) [MP3|320 Kbps] <Death Metal, Olds
 ```bash
 magnet:?xt=urn:btih:1A6C80FFC203A90046A3CFE7E6E3B62B3F60CA2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Submerge - это самый простой способ добавления с
 ```bash
 magnet:?xt=urn:btih:AEA3A61920234CDC0A4CF5DB5688A9D949AC40BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Inlights - Cliffhanger (2022) [MP3|320 Kbps] <Post-Hardcore, Easycore>
 ```bash
 magnet:?xt=urn:btih:40D45426DD8692E89592E9D718607562B03ECC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Dead Days - Tyrants (2022) [MP3|320 Kbps] <Post Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:EA36D57E71A10CC61397B9EFEE72E50179534093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Nomad Desert - 3 Relise (2021-2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Speckmann Project - Fiends of Emptiness (2022) [FLAC|Lossless|WEB-DL|tracks] <De
 ```bash
 magnet:?xt=urn:btih:073DB337C6982981D8A7070122B4DC0E53C9D5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Dozethrone - 13 Albums (2019-2022) [MP3|320 Kbps] <Sludge Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C8B3BF85CBE91085B9EF3CCDE61E571E171A61D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ GoodTask — это элегантная и мощная «напоминалк�
 ```bash
 magnet:?xt=urn:btih:8369B005B9917B869AB1F8417EE3CC5828F34BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ inPixel 2.0 [En]
 ```bash
 magnet:?xt=urn:btih:DBB0FDC31EEFED882B09B3BEF8B8A0B27DCFF9E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:43B227D6E212EF05D1704F4BDDB71E30BB317855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ```bash
 magnet:?xt=urn:btih:85E77471259A94CD6AF827B725686BAB495680F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Greenbeard - Variant (2022) [MP3|320 Kbps] <Stoner Metal, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:B987BA13B72E5A108EB7F96480F80B8E9602F491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D801C6E774D1F6D78211B213AFE54A9EE59A23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26C950D14EA0E5E3E289DF4A2DBF94CBDCC3F937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFF8C5DD591883FB2A7788F9E2B4FFA86E1B9906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE9486AB34CEC2D5A39B5F63A704467B3FDB2CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB9710E6EBC26963938A2D06C5E37268F975A311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Desires Dawn - Один (2022) [MP3|320 Kbps] <Progressive Metalcore, Djent, Alt
 ```bash
 magnet:?xt=urn:btih:9818F4B66AB39F7D33F810717438D8C9E0A221A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ RAR Extractor может извлекать сжатые файлы во все�
 ```bash
 magnet:?xt=urn:btih:626B31154362EBB054168D2B91835F4FBE58BBEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Photo & Video HDR 1.6 [En]
 ```bash
 magnet:?xt=urn:btih:AEE9300D64F90807BF51E2DA9A3C6AEE8F7F5CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ EverWeb даже создает мобильные сайты, которые о
 ```bash
 magnet:?xt=urn:btih:612F498C7225225908FF4B6B21EA6A262D433AA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ VA - DMC Dance Mixes 299 (2022) [MP3|320 Kbps] <House, Tech House, Bassline, Voc
 ```bash
 magnet:?xt=urn:btih:ED57D06FF835547A5E189AF948D39CF5F186A675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Boxy SVG 3  v3.85.0 [En]
 ```bash
 magnet:?xt=urn:btih:CCD5CDC36EE160BDA588949436134D4B3F2E8EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ VA - DMC Dance Mixes 298 (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, Vocal>
 ```bash
 magnet:?xt=urn:btih:34E1E58586C7095570386D0CAD64C5C97004A595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ Color Filters For Photos добавляет расширение к прилож
 ```bash
 magnet:?xt=urn:btih:988103926404CA7626AF1BA20986C1F0E794E1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

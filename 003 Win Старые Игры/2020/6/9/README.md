@@ -19,8 +19,7 @@ The Guild Gold Edition — вероятно, одна из самых необы
 ```bash
 magnet:?xt=urn:btih:ADC096E9937C2E987FBA63DC67620D36B841835E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

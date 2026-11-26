@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B2AC4C853D00F5D3580464262A57521F119EB3CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Walking Dead: Season Two. Episode 1 to 5 (2013) [Ru/En] (1.0) Repack R.G. М
 ```bash
 magnet:?xt=urn:btih:BDAF15F3B8A13F2F466935D28F1B49F2AA147192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Dark Souls – это настоящий вызов усидчивости и с
 ```bash
 magnet:?xt=urn:btih:750620AE587483D2E92CF7071E3CB25D02077E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 ```bash
 magnet:?xt=urn:btih:6787ABDF97920473CC71FBFF1FEB31C5C1966B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F33E64D16D140007C9E2E4390EBC41F3CDA129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ The Walking Dead: The Game. Season 1 to 2 (2012, 2013, 2014) [En/Ru] (1.0.0.23, 
 ```bash
 magnet:?xt=urn:btih:B3400A3E78F59836145FE431D70E3682D05D6503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Chip USB 2014 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:8DCFE612EFCB160EAA473AA291EE56A0A7E54C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

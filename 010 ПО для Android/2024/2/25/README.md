@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:C2E3674D9BE50EE5ADAC91E2194679AE245BDA57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:EE6198FBEDF04540E50440BFFB14D2851A67028C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

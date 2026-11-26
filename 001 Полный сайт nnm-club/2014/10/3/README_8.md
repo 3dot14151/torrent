@@ -28,8 +28,7 @@ Lorenzo Partida - Sueno Inmemorial (2012) [FLAC|Lossless]<Atmospheric Doom Metal
 ```bash
 magnet:?xt=urn:btih:4F29155BA51D52DA975FF29759CDC6C01CFDADCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Asonat - Connection (2014) [FLAC|Lossless|WEB-DL]<IDM, Downtempo>
 ```bash
 magnet:?xt=urn:btih:173C43B874E8859C6833B744D1676F5C9511C212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Kit Holmes - You Took The Blues (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:7108A2D77763C2169BF535A48B44E5022615CF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ DJ Nike Twist - TranceWave 099 @ GTI Radio (02.10.2014) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:7A62CE4705FF1C3C17F411FBEA02EB1AF3E29E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14341DE3516FC65556448AC70815C6091B45710F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E3A8731913B119E86BAB8C5CDB2AAB6CB3F07F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ Machines Of Grace - Machines Of Grace (2009) [WavPack|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:68C07FD9124BF048FB5F672FBAA8E4AB2ECD2631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ Soilwork - Beyond The Infinite (2014) EP [MP3|320 кб/с]<Modern Melodic Death 
 ```bash
 magnet:?xt=urn:btih:45BFA7DA4C9F899E3F2B9FBD76C2151D15B51E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ Drakkar - Once upon a Time... in Hell!  (2014) [MP3|320 кб/с]<Power / Speed M
 ```bash
 magnet:?xt=urn:btih:76E50FF62DB95E9343C35FF506878EC32AFDF08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Flyin' Saucers Gumbo Special - Swamp It Up! (2014) [MP3|320 кб/с]<Louisiana R
 ```bash
 magnet:?xt=urn:btih:96C38C6E1E24E1000031D23E1B90BC25B842E907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ VA - Q-Dance Hardstyle Top 40 September 2014 (Unmixed) (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:89F548BB51C7B69087992B47E8F60091FC3C8E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ Stratospheerius - The Next World... (2012) [FLAC|Lossless]<Progressive Rock, Fus
 ```bash
 magnet:?xt=urn:btih:11884BA967F8A639DEB28D8FC3FD5294E9783C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +461,7 @@ DJ Heartbeat Dancer - The Dance Party (2014) [FLAC|Lossless|WEB-DL]<Eurodance>
 ```bash
 magnet:?xt=urn:btih:FBAA6BDBB5AF81F9F82C9E4B698F41AD526E6C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14D011F49A56833F8E67825829D94C808BA88AA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:863EEA37385C927C64513FDA872A6E7DF4D03C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +547,7 @@ Nightbringer - Ego Dominus Tuus (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:F7A72A5E2D799F40061F2C9C7D631A6FB0C14325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +574,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:AB688EAB73ABDB31468FF55135CD66285EE44148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ Temple Of Void - Of Terror And The Supernatural (2014) [MP3|320 кб/с]<Doom/De
 ```bash
 magnet:?xt=urn:btih:59CB1F91482FCF7DFEFFC9CA8327BAA189BB82C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +640,7 @@ Eight O'Five Jive - Too Many Men (2014) [MP3|320 кб/с]<Jump Blues, Swing>
 ```bash
 magnet:?xt=urn:btih:005C44227AC1EA1EF2B4413785100003CC6AAF02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ Hip-Hop and Rap Jam v.1.0.0 (2014) <En>
 ```bash
 magnet:?xt=urn:btih:512EA48A60B9AAB3E42543F1B0621C06FD222595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ VA - Milkbar: Deep House Lounge (2014) [MP3|320 кб/с]<Deep House, Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:9A03879975C329DE522ABCECFE9E96C741E7B24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +719,7 @@ Nostalgia - Know Me (2014) EP [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:FBFA008B32D31C796C78547AC2EF4D0906A31AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +746,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F28EA3933D97281C8E88B18E7BD4273490F6D890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +771,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF837F002341AD569F472B98F3CEC4CE09B4BDFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

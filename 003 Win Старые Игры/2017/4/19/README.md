@@ -19,8 +19,7 @@ Return of the Incredible Machine: Contraptions была выпущена в 2000
 ```bash
 magnet:?xt=urn:btih:ACF4CCFD7F880D2264D38405BF360078E89067CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

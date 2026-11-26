@@ -19,8 +19,7 @@ Forza Horizon 5 – продолжение популярной гоночной
 ```bash
 magnet:?xt=urn:btih:2788F2F0D914927EC02579213E685BCC7CA6EAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Iron Meat - это динамичный шутер в жанре "беги и с
 ```bash
 magnet:?xt=urn:btih:35D4488BFCDF83236264BEAA5618ED4E3BC80DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ World of Goo 2 (2024) [Ru/Multi] (1.0.13211) License GOG
 ```bash
 magnet:?xt=urn:btih:F9764980F4FEABC2352EB031A186F0F7D5F43836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:82A1DEFC8686DA7CE0DCC4305D4665D73D036F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack Other s [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:4965F17604BCF06FEBD925DE5880F200D193A858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Danger Zone - постапокалиптический 2.5D шутер с в
 ```bash
 magnet:?xt=urn:btih:EB5E5611ED2DD206A695C9A24D459BA3082C3808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:ECF6F49EA916737F1004146BD3FF959E4B7B962B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:14C153662468831E1532897AE00AD553F30FF8B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Farm Together 2 (2024) [Ru/Multi] (Build 18675684/dlc) Repack FitGirl [Soundtrac
 ```bash
 magnet:?xt=urn:btih:29287000301395EFF351CA078213B21F0E60F69C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Spectator 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB41BCACDB8766B071DB152EBC35F7AEBCE6DC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:68CE83F7E217596589F181AE100F86939E0A7C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ A Year Of Springs (2021) [Multi] (1.07) License GOG
 ```bash
 magnet:?xt=urn:btih:9172FD0C1B9E87863701C97D3A6EECDB35A3742F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

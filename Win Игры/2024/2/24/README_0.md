@@ -19,8 +19,7 @@ Sons of The Forest - многопользовательский хоррор о�
 ```bash
 magnet:?xt=urn:btih:FD1AB88DE4386A6CFED1B940D8DE1FE9A41BB4C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Singularity (2010) [Ru/En] (1.1) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:4364E83102DFA836EC2BDC9603A6612B056C803F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Solium Infernum - увлекательная пошаговая стратеги
 ```bash
 magnet:?xt=urn:btih:69C56B19CA0E8D87971647CCC2B507E1461B6E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Firefrost - это пошаговая боевая игра о расчистк�
 ```bash
 magnet:?xt=urn:btih:AD56F204319E3BD7EA116A4FBF18A1E323D30366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Scene Tenoke [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:62B2C79DCA13AF9BEB4DC5BF305E169CFB3ECECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Lazaret - это напряженный психологический хорр�
 ```bash
 magnet:?xt=urn:btih:9CD9F2D71AC9043B89B04E524D3685C058727FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

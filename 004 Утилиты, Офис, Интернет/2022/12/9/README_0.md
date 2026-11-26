@@ -20,8 +20,7 @@ Soundpad – приложение для Windows, с помощью которо
 ```bash
 magnet:?xt=urn:btih:CCAA69B76ECA9A994DEE62EF18E038480037B59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

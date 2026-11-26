@@ -19,8 +19,7 @@ EuroLinux 8.3 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:46437B3BE66C0DC9988A8CDA9CD0454746265AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

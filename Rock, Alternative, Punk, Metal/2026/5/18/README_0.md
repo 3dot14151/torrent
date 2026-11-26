@@ -22,8 +22,7 @@ Mammon's Throne - My Body to the Worms (2026) [FLAC|Lossless|WEB-DL|tracks] <Sto
 ```bash
 magnet:?xt=urn:btih:AFC01F487DA7B4A9707EFE866F9C0ECB43AABD12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Roy Orbison - In Dreams: Greatest Hits (1996) [FLAC|Lossless|tracks + .cue] <Roc
 ```bash
 magnet:?xt=urn:btih:3F71AD8C4CC17D4C8C37EAE83DFCA1004F8BFEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - 1990's Rock (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie R
 ```bash
 magnet:?xt=urn:btih:6424DDE5A182F3C8A0547CC0CBEC69CD76B63395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Atavistia - Old Gods Awaken (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 ```bash
 magnet:?xt=urn:btih:803ED60F520DA87E6BD4AF37CCC833E5FE2AD236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Inthraced - Constellation Zero (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mel
 ```bash
 magnet:?xt=urn:btih:A390C1124C2952578039A488C541C41282C8AFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Profaned - The Human Condition (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:0CD13D3FE2C6E21DCD39890F33C933EBED168AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Exilia - Anti Gravity (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:84261287BCB60EE7041B9D7AA96B4B9A156BD017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Pro-Pain - Stone Cold Anger (2026) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, 
 ```bash
 magnet:?xt=urn:btih:15CC4EABD22149941DDC40ADCDA97CD702AF42A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Angellore - Nocturnes (2026) [FLAC|Lossless|WEB-DL|tracks] <Gothic/Doom/Death Me
 ```bash
 magnet:?xt=urn:btih:D9E8E1D30CDC664E6B69E84A3D8EC56C731A02CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Sorcières (Sorcieres) - La Nuit Des Temps (2026) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:EE2B1382004F28E13533D733B4B4DF5D05810A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Riffstone - Mythical Creatures (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:BC40FA9D699DF3CD5CDF659527553EDCCB6AFCAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

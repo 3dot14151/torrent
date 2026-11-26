@@ -19,8 +19,7 @@ Chronicles of Riddick: Escape from Butcher Bay [Ru/En] (RePack) 2004 | MOP030B
 ```bash
 magnet:?xt=urn:btih:0BFC145EEB5F287116352840A11D95B3C2C73CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

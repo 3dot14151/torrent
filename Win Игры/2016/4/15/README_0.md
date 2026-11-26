@@ -19,8 +19,7 @@ Flat Kingdom (2016) [En/Es] (1.01) License CODEX
 ```bash
 magnet:?xt=urn:btih:53AF7AC19AEE61FCA5E41CCAED3992C54587EAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Skullgirls – это быстротечная двухмерная игра-ф�
 ```bash
 magnet:?xt=urn:btih:B5361D317346F1887E354039D4AE21A6BBE846BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Outland — это динамичный платформер, в котором 
 ```bash
 magnet:?xt=urn:btih:E4D65EE35AF9CAB4482C829FA6A9DF842F8808CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

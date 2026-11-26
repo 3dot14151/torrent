@@ -19,8 +19,7 @@ Enter the Gungeon - это подземное приключение со стр
 ```bash
 magnet:?xt=urn:btih:1E2891D6270BFA252EF7A6B400EF36605843A919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pineview Drive - Homeless — это прямое продолжением иг�
 ```bash
 magnet:?xt=urn:btih:CC6EC424D4EEAD2C3C33044D6AD273A06BC61DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Operencia: The Stolen Sun – РПГ от первого лица с пошаг�
 ```bash
 magnet:?xt=urn:btih:5A81E75D94F570453DB552D0B5D5DE7FF1422012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dangerous Driving — это новая игра от создателей се�
 ```bash
 magnet:?xt=urn:btih:594A4E566C83A17A80F272F90563D4D2D45666CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Krallice - Krallice (2008) [FLAC|Lossless|image + .cue] <Avant-garde Black Metal
 ```bash
 magnet:?xt=urn:btih:307E2CBEA8EF84DA445BBF1199E58FD5102FB8AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jarra - Test of Faith (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:80A754F755BACB2AA10B61A1992E8719A362BB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Paths Of Possession - Promises In Blood (2005) Japan [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:C5BDE8B5028203E3A86C096E12BFE86777F164E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dreamlike Horror - Delightful Suicides (2005) [FLAC|Lossless|image + .cue] <Atmo
 ```bash
 magnet:?xt=urn:btih:7558CD4251B54AEAC4A76D0D2C8BAFC8C58469D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Estes Brothers - Transitions (1971) Reissue, Remastered, 2002 [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:8CAB4E83DE4162F45E8057BBCE20C708A455C063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Demise Of The Crown - Demise Of The Crown (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A14A617A5CCFC220A870C864658C027059EB8C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Chain - Two Of A Kind (1973) Reissue, 1997 [FLAC|Lossless|tracks + .cue] <Rock, 
 ```bash
 magnet:?xt=urn:btih:A3936173A8EB9103C69B400905AB2AA08C8248DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36EB5F52D0CE667289395A0FC8993B5050191FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Frost - Through The Eyes Of Love (1970) Reissue [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:3A3BA768E0F0CAB488EB17D0A131F14345242B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The Ventures - Live in Japan '65 (1995) [FLAC|Lossless|image + .cue] <Instrument
 ```bash
 magnet:?xt=urn:btih:1E92D67415A19CE300B285FF6B341510180CD57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Adept - 4 Альбома (2009-2016) [FLAC|Lossless|tracks+.cue]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:A0D06AFF7EAD686A8506AA1CF47D254E49DA2393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

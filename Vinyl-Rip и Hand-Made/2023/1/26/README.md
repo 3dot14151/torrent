@@ -22,8 +22,7 @@ A4 Ночь(   Читать дальше...   )Жанр: Art Rock, Prog Rock, Po
 ```bash
 magnet:?xt=urn:btih:3707E093ACCEBFD19C32638E27DB699A89A05FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Falkenbach — немецко-исландский метал-проект.
 ```bash
 magnet:?xt=urn:btih:EE5FE7B3487FF74257B3A15564CCA03BF213E88A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

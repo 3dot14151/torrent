@@ -23,8 +23,7 @@ Jondo Live-CD / DVD предлагает безопасные, предвари�
 ```bash
 magnet:?xt=urn:btih:24BB8FB68C88167EE34D3EAA29352A42CF797BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ RFRemix (Russian Fedora Remix) 20 Heisenbug [i386] 1xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:A7630261C8C2D36C67C49EAD8FE2A4370506BAC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ RFRemix Live (Russian Fedora Remix) 20 Heisenbug [x86-64] 5xDVD, 1xCD]
 ```bash
 magnet:?xt=urn:btih:3BA228037440F2AC1155032A8DF2D49DEBE25E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ openSUSE 13.1.1 Education Li-f-e [i686] 1xDVD
 ```bash
 magnet:?xt=urn:btih:017AF542CB49FE6B41693AE32461D2C64E850EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Debian 7.3 включает 39 обновлений с устранением с
 ```bash
 magnet:?xt=urn:btih:E5DC1EB9F8E1E1CB98ECBF4593E4427AEBF8D15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:BFAB0323A5576606B2374F9650B05AFBA24D87F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ antiX - это быстрый, облегченный и легко устана
 ```bash
 magnet:?xt=urn:btih:DFA0FF6B155E08B73BE477C82338799E56BD19C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ RFRemix (Russian Fedora Remix) 20 Heisenbug [x86-64] 1xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:5E8F7FE1574F27D8E53F2624DD1011CECC313621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Thenighttimeproject - шведский рок-проект, основанный
 ```bash
 magnet:?xt=urn:btih:D7C6CC951258E8DC036D47787F3A7A877157E13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

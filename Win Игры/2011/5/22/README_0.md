@@ -19,8 +19,7 @@ Island Tribe 2 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D609F9E2B63F7C5E12DE809EB89BE3A6D9081C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Strange Cases: The Tarot Card Mystery / Тайные расследования:
 ```bash
 magnet:?xt=urn:btih:DDC3ABC13158BFB32EE24698D9904E3612C92967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Villa Banana (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:8ED33584343AB54234EB39F1D92F2973E3D0B0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cooking Academy 2: World Cuisine / Шеф-повар 2: Мировая Кухн�
 ```bash
 magnet:?xt=urn:btih:B6A5AE0A39B5E213309C18BDE70792C5E1F109D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The First Templar / The First Templar: В поисках Святого Граа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

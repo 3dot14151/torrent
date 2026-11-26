@@ -22,8 +22,7 @@ Katalepsy - Terra Mortuus Est (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death
 ```bash
 magnet:?xt=urn:btih:6DC904371A0F311730F21D1DB544BE27EDC0106A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

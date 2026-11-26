@@ -19,8 +19,7 @@ Wise Force Deleter 1.5.7.59 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:096D9E4E297A197EF84CBEF0BE8BFB3E143D4860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

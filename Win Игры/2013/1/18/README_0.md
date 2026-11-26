@@ -19,8 +19,7 @@ Dark Canvas: A Brush With Death Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:9F183419500BCBCAF4A97362D9125BB58AE92398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Last Dawn: Tales of Arthfael [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:FC163F15F4C076096DE4EA0B6B1231E4E4D6E0CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ New Yankee 2: In King Arthur's Court [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:26DC4D8D2984582D43CF6640E92A76479AE82CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ World's Greatest Cities Mahjong / Величайшие города мира: М
 ```bash
 magnet:?xt=urn:btih:332C3A6B6CA2BB228EEAA322E298C32F7BD4BF6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Journey: The Heart of Gaia / Путешествие. Сердце Земли [Ru
 ```bash
 magnet:?xt=urn:btih:22D77A8D021B06DB0FE4ED289464D9252AACAB4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ LoLo Games / Коллекция мини игр от ЛоЛо [Ru] (L) 2007-2009
 ```bash
 magnet:?xt=urn:btih:DD690EEB593FD7BC097F37191387B622784DBEAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

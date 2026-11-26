@@ -19,8 +19,7 @@ Chronomaster [Ru/En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:0438A9ADEAEADF6E99F19AB1FDC8EAEAD564720B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Tomb Raider 3: The Adventurs of Lara Croft [Ru] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A2AFF859F1D4BD1914BD440EA4B2514E01884DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Tomb Raider 4: The Last Revelation / Lara Croft Tomb Raider: Последнее 
 ```bash
 magnet:?xt=urn:btih:475F529CA82A47239A141C80A672A3225E76EFD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Tomb Raider: Chronicles / Tomb Raider: Хроники [Ru] (RePack) 2000 | Donal
 ```bash
 magnet:?xt=urn:btih:F985C7DC6DB0622856D85C0AE662DBAC44E1CDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Orange Bicycle - Hyacinth Threads: The Morgan Blue Town Recordings (2001) [FLAC|
 ```bash
 magnet:?xt=urn:btih:2111A5E6AC9DAF905428AAF1B4AE237BA0707750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Screaming Lord Sutch - Rock & Horror (1991) [MP3|320 кб/с]<Rock & Roll, Rocka
 ```bash
 magnet:?xt=urn:btih:A7AFA9596BFFA5CBD9449C345F43B5954B60F732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tremonti - Cauterize (2015) Deluxe Edition [MP3|320 кб/с]<Alternative Metal, 
 ```bash
 magnet:?xt=urn:btih:3446A73FFEAC0A8A1EEC5ED7AD7E90B19A4EB791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ She's So Rad - Tango (2015) [OGG|447-541 кб/с]<Alternative, Electronic, Indie
 ```bash
 magnet:?xt=urn:btih:0283B3A81D312831A3C1E432D7CCA9182E2C1DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ LV (LVGroup) - Признание из XX-го (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:6851C3BC04418C53AD9D7408329EEA86B9C04CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ I.F.K. - Абсолют (1998) [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:30F898E55AC2EB215D7D8D6724FB9F64E1AC684F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Smashing Pumpkins - Bruised Angel Wings (2015) [MP3|320 кб/с]<Alernative Rock
 ```bash
 magnet:?xt=urn:btih:3890DF0F502CD523ED0CB4AB517F04BA51D64224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Modern Lovers - The Modern Lovers (1976), Remastered /2003, Castle Music/ [M
 ```bash
 magnet:?xt=urn:btih:E087B896558F5621A88A3C19540D7B1450F85386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Biting Elbows - Biting Elbows (2011) [MP3|320 кб/с]<Rock, Indie, Punk>
 ```bash
 magnet:?xt=urn:btih:9B161BB0D0AD36A8574F1A50AAC229F3CB51E1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43BE68B25067CD257752740E9E1DD5080F650A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

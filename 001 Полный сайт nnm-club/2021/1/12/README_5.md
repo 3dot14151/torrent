@@ -18,8 +18,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:1F8E3B3124739008F764020B114C1780FC37689A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2021.01.05 [Ru]
 ```bash
 magnet:?xt=urn:btih:4B67CCEBEEA98B9151D5C4BC6B36481A34D27A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

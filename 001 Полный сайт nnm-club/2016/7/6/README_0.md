@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Зарубежная Дискотека ХХ Века - 68 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:7B733B3B16BF899D5E851680682E58B159D4C162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Trance Is Love - Trance Is  Life (2016) [MP3|320 Kbps] <Trance, Melodic, En
 ```bash
 magnet:?xt=urn:btih:FE113EE718A61BD6B5207D608A8575D0E1346976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Зарубежная Дискотека ХХ Века - 61 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:4F3E1122F472578C58A099B64FDC9625DF78C480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Options Remake 150 Tracks - JUNE (2016) [MP3|320 Kbps] <House, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:A03AE7B232479B691EBBC615B53FA864A55CBC53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E9BC731A64A30A8926D40BF2CA63E9158D2C6BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:53DE5802CC9810855257C5FAC2D0479FD8FA145C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Tanzwut - Hollenfahrt (2013) Limited Digipack Edition [FLAC|Lossless|image+.cue]
 ```bash
 magnet:?xt=urn:btih:2CD604B9A5C16E506C5111860F0617C1D418EBEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Tropical Dance Party (2016) [MP3|320 Kbps] <Dance, Electro, Pop>
 ```bash
 magnet:?xt=urn:btih:F50EF6F1B6E39B987E413DCC24DCB1C912D7BE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19A6038CB928E30A37774D436A0783B27EE65BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ The Dead Daisies - Revolucion (2015) [FLAC|Lossless|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:82063826E6C7D42C372416006575BC97484AB80B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD2F4592A46031531E1990AB4589C26683758AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ VA - Зарубежная Дискотека ХХ Века - 69 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:6AE4F29000528C67198DA6A0DB0453DCC06E8577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ VA - Best of Lounge, Ambient and Chill Out, Vol. 4 (2016) [MP3|320 Kbps] <Downte
 ```bash
 magnet:?xt=urn:btih:DB6A2350D5111A55A70C9C9FCA8C32DEEAE60183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ George Skaroulis - Sanctuary 2 (2015) [MP3|320 Kbps] <New Age, Instrumental, Pia
 ```bash
 magnet:?xt=urn:btih:50F2763FD0ED2C1272CE35450DB7C4211A1DBE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D294302517BAA93C3CA5479E11EE7D8617A40EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ VA - Modern Jazz Piano (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:0CE64F158A43A9D2099A969E84FA3ED0452CB0AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Capto (was Voila) - профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:1D5094882F2D062AF51C196DA14388D9FFF13C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ VA - Solo Piano Ultimate Chillout Lounge (2016) [MP3|320 Kbps] <Piano, Chillout,
 ```bash
 magnet:?xt=urn:btih:5BAA27AB428013A03C4B52EBA04DB9A416BADED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Kazuki - Four Day Weekend (2015) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Exper
 ```bash
 magnet:?xt=urn:btih:57A92C453BDC4F653D3B272BE2D0FB898B6DA3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Screaming Eagles - Stand Up And Be Counted (2015) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:70237A81E780826846CB31DB0A06EDB8D92B0C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F3987FA05CECD8E4D2F3E9BC0F4DCDA3A887E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ VA - Just Dance And Songs Shuffle (2016) [MP3|160-320 Kbps] <Club, Electro, Bigr
 ```bash
 magnet:?xt=urn:btih:6003BDF1340212BE3E45EC82992696C0488B11DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B05051462DAB1CA8C4A4B185ED37894DFE95917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:4E4AC4AA857C5FB5DAD3719ED7772027907ED62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ Metallica - Liberte, Egalite, Fraternite, Metallica! - Live at Le Bataclan, Pari
 ```bash
 magnet:?xt=urn:btih:0BC72E1FBE9AA27B37D2DE62A0601F85BA069601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

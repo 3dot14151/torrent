@@ -23,8 +23,7 @@ BackBox Linux 4 (Анализ безопасности, хакинг) [i386, amd
 ```bash
 magnet:?xt=urn:btih:568F553D057F1419FD49970A1EB188E368B9FE25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ EducationPack 14.04 для Ubuntu, Kubuntu, Xubuntu и Lubuntu [i386 + amd64] (D
 ```bash
 magnet:?xt=urn:btih:8BA72331949B4D70F9BA78B0480242B1CD87E94D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

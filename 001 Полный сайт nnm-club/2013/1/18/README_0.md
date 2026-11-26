@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:184956BB31B58D8020A17CD8A9AC62CE6726CBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A67B8383E0AC9BAA80CE91AEC70B56AB7E87E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AA17137214D0C9A3F2AE86B3EA74BC48DA68407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Smash the Disco Vol.2 (2012) [MP3|320 кб/с]<House, Disco House, Progress
 ```bash
 magnet:?xt=urn:btih:9C69ECCF5D710058D8A8D09465A3BB55EF5F764A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ VoxCor - Глава III: Мистерия (2013) [MP3|320 kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:BC02CAFD8A1B462F0C49AD0451434056681A06C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Gilrs Wallpaper Collection (2/2013) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:8C1BA4E6CB80A765989E81AB96330D7BF38E6940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Dreams After Death - 2 альбома (2011-2012) Дискография [MP3|32
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ VA - Dance Hits Vol. 280 (2013) [MP3|192-320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:3B43B8185E3D128F73CA46759BD2529973690D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ VA - Smash the Disco Vol.4 (2013) [MP3|320 кб/с]<House, Disco House, Progress
 ```bash
 magnet:?xt=urn:btih:82D1B05138EC0AC73F9851B78660468EDB0CA409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E410FA9858D26FC357625991D079F43C0601BD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ Exist - Безысходность (2013) [MP3|320 kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:F906C19D920DD8BC01CBC5E76F3B117E0BC9A0DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ Encircle - Into the Dreamstate (2013) [MP3|320 kbps] <Progressive metal>
 ```bash
 magnet:?xt=urn:btih:B87696481D5F5B922EDB82FF3EBA87713A790344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B288476009B51B0B6A39F2F53473109312385A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ VA-Попсовая Тусовка Зимы (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:D978D2FDFC7957575209C47208DBEC530F7B66AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +454,7 @@ VA - XXXL Зимние Хиты. Зарубежный (2013) [MP3|256 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:2D57E80F550FC8094ACAAF391C77520F6CF20E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:753D1A449FB2452D9319F8DC3BC4B9D0A76152F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39866C483DA428E8A99450A6D8372E6429DCB689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +539,7 @@ Maxine Petrucci - Back to the Garden (2013) [MP3|320 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5C911CF1F122A71FEB0F637DB9422B15E082249F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +573,7 @@ Everything Everything - Arc (2013) [FLAC|Lossless]<Indie-Rock, Indie-Pop, Experi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E37426C0B241DE5192C5DDA70AFEE5C82963D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +631,7 @@ Paul Ramirez Band - Sex With A Dragon (2012) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:17D2B94A49F4E3B5805226C970CCA1C8B95D19E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9D505C44100E46CA17698BAF7B15D8721A90F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +690,7 @@ Night Works - Urban Heat Island (2013) [MP3|320 кб/с]<Indie Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:4C9C9CF47E504B8CA0B8634A67D55FF5425A0360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +749,7 @@ VA - Much Dance 2013 (2012) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -808,8 +783,7 @@ Infernal Poetry - Paraphiliac (2013) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:33C646F93AD3D7762903B0648EF48D9FD186B2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

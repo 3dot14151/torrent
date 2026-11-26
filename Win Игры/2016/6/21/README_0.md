@@ -19,8 +19,7 @@ She Wants Me Dead - В этой игре вы будете играть за г�
 ```bash
 magnet:?xt=urn:btih:E21E2C61CD8253885940723CCB12580C63B4C3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hard West (2015) [Ru/Multi] (1.4.160303.1235/dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:B40688AA057A3FD07CE0D6298B164FB681647390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blackhole – анимированный 2D научно-фантастичес�
 ```bash
 magnet:?xt=urn:btih:5F3F6C804792DEAFB346AE6C8DBE2CEEB51457D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C31559809C74632BA3ECEC526127D0E0A98C5C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Jordi Savall + Montserrat Figueras+Rolf Lislevand+Arianna Savall - 214 альб�
 ```bash
 magnet:?xt=urn:btih:0B0005F195686ADC6FBBE7D10EA127B14103D328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FPS Monitor отслеживает состояние компонентов в�
 ```bash
 magnet:?xt=urn:btih:0CB2CDE4D304BA406E648B6B47FE2AEBA0D1910F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Destroy Windows 10 Spying 1.7 Build 100  Portable  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E6D996F2B7C781A1169FD9DFCBC3411CF29C7BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

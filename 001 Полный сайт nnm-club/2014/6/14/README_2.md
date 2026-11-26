@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E58D2F3CCF7E2D9EF4EC348A8C843B2755EC2DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:728BF0731CF7385FA75D8050C0233E4F0E6237D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Ancient Astronaut - Ancient Astronaut (2014) [MP3|320 кб/с]<Electronic, Exper
 ```bash
 magnet:?xt=urn:btih:5EBB9117F8420C14AA7D93036BF0ABE544B63F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BAD3921938E0613362D84EE6CB58E41272821A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Alterportal HITS 14 Vol. 69 - May (2014) [MP3|128-320 кб/с] <Alternative
 ```bash
 magnet:?xt=urn:btih:83042A82FC25710CD1B04A3A92DF7C4579428724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Concerto No. 2 F-dur BWV 1047
 ```bash
 magnet:?xt=urn:btih:79DDB59F6822EC2032DA7F356E412815A7A49E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:939B529A8B63F743F22D8F88470A6AFD69370E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A99FD22B9BE9F10C138544DA60D0586906383E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Mp3 Volumer – это программа, которая предназнача
 ```bash
 magnet:?xt=urn:btih:C87846872A13BD69778CF8CA94656C1B1B4A5BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Music & Highlights - Greatest Rock Songs, Vol. 1 (2013) [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:A3A4D1C459B8D69C2BDF92C7BF7A0F8E19A2B699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E61255724E54A81B233CEB2D5F72B4422D6699E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Orchester Suite No. 1 C-dur (BWV 1066)
 ```bash
 magnet:?xt=urn:btih:67995A01EA058BE0A5C0A5B966B87A4AECCD4087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ Deathstars - The Perfect Cult (2014) [MP3|320 кб/с]<Industrial Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:3943C9BD60B3A9DB6F4791BED99B7EDC65DA5E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ PCtransfer - это лучший бесплатный ассистент пер�
 ```bash
 magnet:?xt=urn:btih:840379F5E34CE28F5270FAD42E66ED6214902E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D66600BDC6CCA6F71755C15B1D3C411333F0B546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Chromium - кроссплатформенный браузер с открыты
 ```bash
 magnet:?xt=urn:btih:672CF51080A6E2EDA770A5457C750B8B2D69031F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ Wallpapers - Обои для рабочего стола "Counter Strike" [JPEG]
 ```bash
 magnet:?xt=urn:btih:F17001A15C10137079A929D1F5B3F5994DBAA4E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A023053FB8456944F7E325FA37ED3BBB696338F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ AutoRun Pro Enterprise - мощный визуальный инструмент 
 ```bash
 magnet:?xt=urn:btih:693C8C4E913EF7D5ECC2E72A05D1D1A7FE60DA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ DeepChord - 5 Albums (2012 - 2014) [FLAC|Lossless] <Field Recording, Dub Techno,
 ```bash
 magnet:?xt=urn:btih:56225C8311A3715E2D379204F585C37D22E514E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04B331F3755A6F78FBB33096A91AA861903D4CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ WinContig - это простая в использовании автономн
 ```bash
 magnet:?xt=urn:btih:5F8704AD33B9E07F602AEBC14423BD10D0F5267D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F2B376847A8F9BD902CA2A3F754BB4203C5B5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8EFF54EC61F0D57E4D285A9CAE74AB8093D8D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C1B95C503A99EF30078743C9378AF49135F1BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:325DE054DFC5DE3F064AE87E0718FEC48EBB0229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Quake 4 [Ru/En] (RePack/1.4.2) 2005 | kuha
 ```bash
 magnet:?xt=urn:btih:0D0E9D9760BB5C782C914C2BB6711F122D4F28D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PROMT Professional 9.5 – решение по переводу текстов �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Elder Scrolls 5: Skyrim - Dawnguard (RePack/DLC+Patchv1.7.7.0.6) [Ru] 2012 |
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ NFS Motor City Online является исключительно онлайн �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ The Elder Scrolls V: Skyrim - Dawnguard [Ru] (DLC/RePack/P) | Аронд
 ```bash
 magnet:?xt=urn:btih:813DCD8313A3F18FA85FE5446D6180065BA0AFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ LIP для Windows 8 RTM 64bit 9200.16384.120725-1247
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

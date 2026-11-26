@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B0193C26BD3FBA21EA8F3E3026DB13942CEFE172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Cafe Del Mar: Classical (2013) [FLAC|Lossless]<Instrumental, Lounge, Chillo
 ```bash
 magnet:?xt=urn:btih:ECADE5AC35FA98306F6D600870B52076CA016419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ GraphicConverter — полнофункциональный графически
 ```bash
 magnet:?xt=urn:btih:0B43966B952F6594B87F7EE27EC7227D6D2DD2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:302E75DB38FFE028324A03D1E11E757DB7C64BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Blood Red Throne - 8 альбомов (2001-2013) [FLAC/APE|Lossless]<Death Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ MotoGP. Гран При Малайзия Сепанг. Этап 15/18. Гонк�
 ```bash
 magnet:?xt=urn:btih:91C0E6C77768E30F8072B7B7301D1780709D4831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Paul McCartney - New (2013) US Deluxe Edition [FLAC|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:C965BC3BFAD6D3AFF1975B55AD6704D93B1231B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Rod Stewart - The Ballad Album (2013) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:BDFDA1F8A81610E3865FB0A494B9AF22E1588DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ RunWithParameters 2.1.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0B670AD737C0B669A8A5BCADB70C7871A514E856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ Paul Cardall - Scarborough Fair (EP) (2013) [MP3|320 кб/с]<Instrumental, New 
 ```bash
 magnet:?xt=urn:btih:7C38DD01D0D1EA5858AFA79D47CA39BA55BBF222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C6CFE26E64BFE216BE60E1D2EC0A6B0C6023E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EC246A8AF8F45913EB85A61A1654C14DE09C74E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ Golf Trainer with IMG Academies and David Leadbetter [Wii] [NTSC-U] [ENG] (2010)
 ```bash
 magnet:?xt=urn:btih:A61D3E3303DDBB2AE441ED1A989CE30FE7F74F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C58C3B4AE87CCE7363A58E8DD62CA6447710ABF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ Airmail – это новый почтовый клиент для операц�
 ```bash
 magnet:?xt=urn:btih:026DC03D9C96C78D365A5653F77534F56409AAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B535F059DD9D06FEF2364910F864ADBB7AF0D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ Nils Frahm - Spaces (2013) [MP3|320 кб/с]<Neoclassical, Electronic>
 ```bash
 magnet:?xt=urn:btih:B883526E5D67478C9D09F3CA94CDDD1A6B21FDE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ History Channel: Ледовый путь дальнобойщиков  / Ice Roa
 ```bash
 magnet:?xt=urn:btih:731AF45E7E93881015B079EF0EA79CDAD71BB2D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95B5FF8DDBFCE926F61CA20DD5D4FCBD781FD6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ BBC: Западня: что сталось с мечтой о свободе? / 
 ```bash
 magnet:?xt=urn:btih:B179192589247F843AEC4FC251A4FCE9E3F7C209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23E0B65E2B7CA91CF1D7DA2880F3F1D7B5C17691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E94294D0D46BC9153DDDD86BD3ACE5B5796B1F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECCDAAA551078CCA3C8F8FF96FE8E7ED4A0C524E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:420B4664E4FD3580DF9CCC0F069B8CA52C4F1246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59893C7594AB9FE9A5A48160FFD49DBA4FA7EF13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30AF1E4B871F3667406E543B8C29D5E9BF7E9A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

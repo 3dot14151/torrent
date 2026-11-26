@@ -26,8 +26,7 @@ My Empire - Heirlooms (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:EFDFFDC8C1C868AC61E7A1679C6EE6DCC5E71F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Jimi Hendrix - BBC Sessions (Remastered) (2010) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:C489E94681861561152BC05FFEF8D16E942D1C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Carlos Santana - Back At Bethel (Live Woodstock Center For The Arts Bethel July 
 ```bash
 magnet:?xt=urn:btih:2E41813DB0574C0464A10FF9968D718D65B66223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Bon Jovi - These Days (Special Edition) (2010) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:A4EF208BED810F7FC431A2B915BAD8896317B002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Carl Perkins - 4 Albums (1978-2002) [MP3|128-320 kbps]<Country/Rockabilly/Rock' 
 ```bash
 magnet:?xt=urn:btih:075B3386BDB5A14051AAED73DFDA96373CE5106A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Sharon Den Adel - Beyond Within Temptation(Compilation) (2009) [MP3|~210 kbps]<P
 ```bash
 magnet:?xt=urn:btih:0997D6835229A36AA032441E42FEBF13EDF99586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

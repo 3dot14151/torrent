@@ -19,8 +19,7 @@ EfficientPIM Pro 5.0 build 505 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0877D5C5EE8D020C853F0700A8CFEA5C0A299B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MiniTool Partition Wizard - это программа для работы с р�
 ```bash
 magnet:?xt=urn:btih:08592C0734162A204D314AF42521690BCD6E2DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

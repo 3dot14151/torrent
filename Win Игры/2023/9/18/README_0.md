@@ -19,8 +19,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CEDE50662A860AA6FE39CE6F716958F13B0B8281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ugly (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FA31DA147080696FAC34F7523CDF0A14DAF92E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

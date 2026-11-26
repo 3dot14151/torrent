@@ -19,8 +19,7 @@ Disgaea 6: Defiance of Destiny (2022) [Multi] (8848380/dlc) License SKIDROW [Com
 ```bash
 magnet:?xt=urn:btih:0124530D1D4A792D0EAEB95A7B7DBF3AD776DA76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Triumphant Return of Diabolos (2022) [Multi] (3/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:55815F2FDE77EE387DDCA728657751A2BFC9DF69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Banner Saga (2014) [Ru/Multi] (2.60.02) License GOG
 ```bash
 magnet:?xt=urn:btih:1DE937C6D3ED595A0B96A5D6128E852E804E6BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

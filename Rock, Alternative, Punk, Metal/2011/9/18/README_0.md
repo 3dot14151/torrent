@@ -28,8 +28,7 @@ Dio -3 Compilations (1995,1996,2010) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:900635D89F86D06DE8D8AB0346E0C1533F9FD83D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Black 'N Blue - Hell Yeah! (2011) [FLAC|Lossless]<Hard Rock, Glam>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Debauchery - 7 альбомов (2003-2011) [FLAC/APE|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

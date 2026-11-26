@@ -22,8 +22,7 @@ A4 Белая Береза(   Читать дальше...   )Жанр: PopПр�
 ```bash
 magnet:?xt=urn:btih:45D2B710AFB31D39D9A98F0093BFFB703F667F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

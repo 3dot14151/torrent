@@ -18,8 +18,7 @@ Windows 8 Professional with Media Center x86 v30.006.12 By StartSoft [Русск
 ```bash
 magnet:?xt=urn:btih:8F6587AE4568F14C00D658B8333573B6730891DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Windows 8 Professional with Media Center x64 USB FLASH v30.007.12 By StartSoft [
 ```bash
 magnet:?xt=urn:btih:5DC985471AA873032B4B9F9428BDF947F9CCA69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Windows XP Pro SP3 Rus VL Final х86 Dracula87/Bogema Edition (обновлен�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Call of Duty: Black Ops 2 (Русификатор) [Ru] 2012 l Новый Дис
 ```bash
 magnet:?xt=urn:btih:CC129ABFFE2737A1F08EFCAD6AD875BB52ECA59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64E3B57FF107FF4F6181EE958EFA54048DA3D01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Microsoft Office 2013 тесно связан с облачным сервисо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

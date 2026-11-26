@@ -19,8 +19,7 @@ Lynda.com | Типографика для веб-дизайнеров/Typography
 ```bash
 magnet:?xt=urn:btih:6B0BF2C470462F4EE5DA43F7CB5A564D388E446F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.0.6b/dlc) SteamRip R.G. Игроманы [
 ```bash
 magnet:?xt=urn:btih:0F53F4D15EA4818572C6C30F6AFDD30D9CB2A034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Woolfe - The Red Hood Diaries (2015) [Ru/Multi] (1.0) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:87B17AD090FEACDBF49B72A4DD1D7F5CD5016AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4E7DE92FEDC53BE11D89C5C3A66366418E4AAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Microsoft официально объявила об "убийстве" брен
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 ```bash
 magnet:?xt=urn:btih:1DFA35059BD65667958AEFDA3ADA20450DA4A50F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Alien Rage: Unlimited (2013) [Ru/Multi] (1.0.9084.0) Rip R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:BED9E23C9C3A21D13F078A4F92677DC35B753657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41544F20194DF73770E5A44813717FCD133FB83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Child of Light (2014) [Ru/Multi] (1.0.31711/7dlc) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:18F16BAECC576BD07B3EE5B89C36C6095DCE05FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:714EFE42378CFB5A33BF9522C68BD903E61EDD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Adobe Dreamweaver CC 2014 входит в состав Creative Cloud. Поэт�
 ```bash
 magnet:?xt=urn:btih:E97A47A2888B989F94A20AB566FEFA45904F9022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Bayonetta: Bloody Fate / Байонетта: Кровавая судьба (2013
 ```bash
 magnet:?xt=urn:btih:021CCF8FAC389DD6250CC064317B2807CB4DBC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2993D301C7EB2D45C71D94B94B5F47D87B5574D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E7D91DBA4464592886592C9522928293E3F7CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A20F8EE6DEA3ADD61842990D188231ECA1B04C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:177A30C59BBB0F9933C32B290E0E676D9873753A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ RuneBit Flash MultiBoot USB 3.0 Final [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8F7E50AF9EDBE7762CCCADC510531A39079E7195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ Microsoft подарит бесплатную Windows 10 всем пиратам
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Watch Dogs (2014) [Ru] (1.06.329/3dlc) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:4B9264759719F2F0479A9E30CEC5F6D41F7708B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ Far Cry 4 (2014) [Ru] (1.9.0/dlc) SteamRip R.G. Origins [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:AE26B62ADC3163647397D38F29AA9814CA040986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ VIP курс включает Евгений Карташов | 4 урока п�
 ```bash
 magnet:?xt=urn:btih:2A7ED7E2329C85998A29C32F11E83C610091A400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBF32E75FC2968645F8008CA6BA54A517037F327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.0.6b/dlc) SteamRip R.G. Origins [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:B1E386510BA8F6980A53CE1B1ACDDF9264F64778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03FBD22C932CE71AF6F4DB44855A651B6890A459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

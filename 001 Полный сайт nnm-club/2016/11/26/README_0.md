@@ -21,8 +21,7 @@ VA - Dance Floor №9 (2016) [MP3|256-320 Kbps] <Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ BCee - Thanks for Joining Us (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F071A1D9CC217598ABB9532B358E46A53E365A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Автомобильный №5 (2016) [MP3|256-320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:D7816FB80472F1D2E5226A79C945411CDEE9588F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80840A6811A236D25EDFCE6B61CB4E2BD0B80C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB3917C332970BEBDDA28E372235AD74F85405D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Любимая волна на Europa Plus 10 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C3F6CA0921E50B42769B52819DB0A4A4DE4488B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BBD5D7F63453A69BCE4F0883556A3EDD57A9555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Peter Cincotti - Metropolis (2012) [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop
 ```bash
 magnet:?xt=urn:btih:77714C36484AA7F7F06CCEE52F2A15641357DA48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA5AD16FF9CFCC249868A624B9E0AE9262738EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EFD963081F5B1BB28F76CB6093538F318424495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Peter Cincotti - Peter Cincotti (2003) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:114335BFEC33769B195A46EBD16AFFCD196B04ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ VA - Убойные Хиты На Радио Шансон 2 (2016) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:CC99DDC0EACD0DDC580096D1B42938EF76FBCC62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8AF5B2C5252F847952236A772BA93413133F8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Skillet - Интервью с Джоном Купером на радио УЛЬ
 ```bash
 magnet:?xt=urn:btih:C64D6EAC4C642DB82ACC81389F144189A6777608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ VA - New Blood 013 (2013) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:0C6B8840721747D812E8244BBFB660CB5E9DF1EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ The Millionaires - The Millionaires (1980) LP [MP3|320 Kbps] <Electronic, Disco,
 ```bash
 magnet:?xt=urn:btih:9316EAD580FFA2955EA99F44C196EDF5623B7D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ VA - Высшая Лига Хитов Радио Шансон 6 (2016) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:1A695CECDDDC2E188BEA1B3277CC4029A5282C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ Sixx: A.M. - Prayers For The Blessed Vol.2 (2016) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:8285B7C889FCD61828896F68C4C9B4D181BEB5D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ Rumer (Sarah Joyce) - This Girl's In Love: a Bacharach and David Songbook (2016)
 ```bash
 magnet:?xt=urn:btih:7C1DBCF3D47F682462265DFC9B57FEFE330F5A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ VA - Лучший Хит. Дорога Дальняя (2016) [MP3|256 Kbps] <Ш�
 ```bash
 magnet:?xt=urn:btih:708918A8D1C6321977103E4D6D1EDC747217C422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ VA - Music For Everyone - Atmospheric & Progressive Breaks Vol.5 (2016) [MP3|207
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:148A322BD2EA0BD69929F50F70A1991E44DF26FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ MelloDrama - Machine (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass>
 ```bash
 magnet:?xt=urn:btih:9F035FEDAAE0D566D699D723B9F53D5948D9A785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ VA - Deep Value, Vol.1 (Mixed By Markus Homm) (2016) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:E5C43DD6699122DA101F479A21DD2F391ABAA0F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Rock Identifier v1.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:06F9C44844E6A304008BD60EEB5EB9EE8D0C45EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Picture Bird v2.1 [Ru/Multi] - Bird Identifier
 ```bash
 magnet:?xt=urn:btih:9F6246F39F0796629FBA1936C5907AE908685B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Picture Mushroom v2.0 [Ru/Multi] - Mushroom ID
 ```bash
 magnet:?xt=urn:btih:72BF177C5CD127BEC8E37892A65004E3747912AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Tingles ASMR v3.4.1 [Ru/En] - звуки для сна и расслаблени
 ```bash
 magnet:?xt=urn:btih:876F09A40B61EB535A724C85D23AEE5874E4F99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

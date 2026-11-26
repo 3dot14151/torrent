@@ -20,8 +20,7 @@ SampleVPN: ваше быстрое, безопасное и анонимное V
 ```bash
 magnet:?xt=urn:btih:B7BA075E787BDF7484484DF7FF5B1FC5185BA3B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

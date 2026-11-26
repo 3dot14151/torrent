@@ -19,8 +19,7 @@ NecroVision (2009) [Ru] (1.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0B0C77181E47152BE4C112818452EC5E54310BCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

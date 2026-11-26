@@ -21,8 +21,7 @@ Bogobes - 3 Relises (2022-2023) [MP3|320 Kbps] <Blackened Death Metal>
 ```bash
 magnet:?xt=urn:btih:3C818F4E9876F1E4E7C02E2249B79CB33A4D72DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Stoned Matter - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludge>
 ```bash
 magnet:?xt=urn:btih:0431C83D0B6E93AED03B1D3C33C7BEAAC88CA4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Dzen (Андрей Нагорный) - Глаза Анютины (2023) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:1EFCBF5637976109B4AB842582357EB60387231A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Brannon - Heartbreak Is Misery (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:26B98DA00B6312A64C4A7E671B75C47FBB4205BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CDBB66BFB5F170F1FB91B89D6EBDB981DCF5220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Final Benson - Final Benson (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:0DF8740E27718788F6AA918933EB9D472CCEC2BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Dzen (Андрей Нагорный) - Глаза Анютины (2023) [MP3|320
 ```bash
 magnet:?xt=urn:btih:B99DBF83781F4A92DFF67C7CD78BD4E72503943D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ The Poor - High Price Deed (2023) [FLAC|Lossless|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:FC6ABC38FE6E92F7B4BC66C098FCCAC6B7C2045C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Wig Wam - Out of the Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam 
 ```bash
 magnet:?xt=urn:btih:08A9385916801658A0961BBC86B0B9FD617B9E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Glenn - Inner Sanctum (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0E81593353737A62E3D9F700E663B9699C27B77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Black Cat Moan - Departure (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F12914C13834EE7F0F197BB6A7BE1BABC5A9FC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Zahna - Stronger Than Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:5052A8C708910188D7C8253F78BC16ADF9290AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Black Cat Moan - 3 Albums (1991-2023) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:901F4B053BECFD356A00347ACFDEF7CDEDD7CB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Elyose - Deviante (2023) [FLAC 2.0|44/24|tracks|WEB-DL] <Symphonic Metal, Nu Met
 ```bash
 magnet:?xt=urn:btih:F9A1835C6A8F5EDA8B1FB1DA29BA7C0F391C15E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Child's Play - Long Way (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F6F6B12315BAB9FDB4323CB98901F6AA0F153055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Strange Omen - Marasma (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8B9063F7DC49D341AFAEE1014F1F7E0347C719B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Child Of Caesar - Spirit & Liberation (2022) [FLAC|Lossless|WEB-DL|tracks] <Melo
 ```bash
 magnet:?xt=urn:btih:D8D3C18AFA6C8AC3BC47F9C2ED3464BC813C8C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ The Three-Body Problem - Light Gave Way (2023) [MP3|320 Kbps] <Progressive Rock,
 ```bash
 magnet:?xt=urn:btih:CA1F5EB96446310D23CC6AAB35D7186E72F0B477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ CD-03 - Steven Wilson Presents Intrigue - Progressive Sounds In UK Alternative M
 ```bash
 magnet:?xt=urn:btih:B6A8B73C3236383247ED984E78A98AF043DD0C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Within Temptation - The Unforgiving (2011) Reissue, 2022, Music On CD [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:1E33DB426DA910919944FD3A102E05998EAF719A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

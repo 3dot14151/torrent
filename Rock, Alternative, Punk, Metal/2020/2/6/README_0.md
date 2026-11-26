@@ -22,8 +22,7 @@ Bombay Bicycle Club - Everything Else Has Gone Wrong (2020) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:2E4A66DD764AF3059FF07DC7C71F30DF4C869AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shok Paris - Full Metal Jacket (2020) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:26452CF72926CDBDE01E790B8E8CE747FD6C1B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Delain - Apocalypse & Chill (2020) [MP3|320 Kbps] <Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:8CA157992B4D819DF3F2C47BB7E3189F2E9AB3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sepultura - Quadra (2020) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B6D6F0D3438F9CBFE7A7C99DC0EEC61B4B5242E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

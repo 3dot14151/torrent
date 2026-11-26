@@ -19,8 +19,7 @@ Hotel Giant (2002) [Multi] (1.0.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A78960BDF50C9256BFACD75C6602035F1EEADA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

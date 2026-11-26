@@ -20,8 +20,7 @@ Dr.Web Security Space Pro 11.1.1 & Life 11.1.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:E09B9F694697C41C0132D98000FD752A269B5B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

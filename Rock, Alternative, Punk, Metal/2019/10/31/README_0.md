@@ -22,8 +22,7 @@ Persecutor - Rebirth (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4F672580F59845E4C0275654D15B0B80CAD33C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ David Kilgour And The The Heavy Eights - Bobbie's A Girl (2019) [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:51D5D13C89F566F78444628975E84B852BD59BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ White Denim - In Person (2019) Live album [FLAC|Lossless|WEB-DL|tracks] <Indie R
 ```bash
 magnet:?xt=urn:btih:37A9E7BBF6BEA0DF32A601B7CC9E393BCA6C1BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Silked & Stained - Goes Up to Eleven (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FBA8059ACC1FD6A5024D3E2EC4EC6408BF6A6F42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

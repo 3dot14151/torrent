@@ -19,8 +19,7 @@ Human: Fall Flat - это уморительно смешной платформ
 ```bash
 magnet:?xt=urn:btih:F72C6EDB8589CA8409316C2BACD7911AEABAFD74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Neverending Nightmares — это психологический хоррор, �
 ```bash
 magnet:?xt=urn:btih:962991AB2C679BB17DFF45F641FF61AA325DAA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fossilfuel (2021) [En] (1.07/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:81E544FF624826E59110CE3655427A59DB5C169F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Among Trees - это небольшая яркая игра-песочница �
 ```bash
 magnet:?xt=urn:btih:7AFA88311C890F80F0F7C3CAD2E0E6C89595700E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

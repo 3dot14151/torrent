@@ -19,8 +19,7 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 ```bash
 magnet:?xt=urn:btih:087927317E6F8AD8C9CFB4B407DB9BDCD50CA641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HopToDesk - это бесплатный инструмент для удален
 ```bash
 magnet:?xt=urn:btih:B2B7CA949C17041CEC3AB8D8CDAD89EBE4AF69AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

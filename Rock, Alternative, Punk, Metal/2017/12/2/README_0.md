@@ -21,8 +21,7 @@ Graham Gouldman - Love And Work (2012) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:DFCF5CD14FB1D1CF1588772DCA8ADEB6645B112C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

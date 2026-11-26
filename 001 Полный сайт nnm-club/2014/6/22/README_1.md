@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:79E6BFE4496F6255E2115FC0249EB097E83D38FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ NG: Панорама 360°. Объект всемирного наследия: 
 ```bash
 magnet:?xt=urn:btih:7A4EC24B66E2973D449E2FBA84157D34E5F09B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:635EA5718DB832458D2B202AF61478223BD05F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Aerospace - Everything Is Music (2014) [FLAC|Lossless|WEB-DL]<Psy-Trance; Progre
 ```bash
 magnet:?xt=urn:btih:B63E91BBE5077A65D7A839406204D9A1E3958E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Paint.NET - простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:5A34207D3D1869039CCFE1D7A9EC8C574F34FC34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D6A2E3DEC315CB66D5AC3CEEE03D1C77B5A2FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Новинки шансона 12 (2014) [MP3|256 кб/с]<Шансон, А�
 ```bash
 magnet:?xt=urn:btih:E63A634DF1D1DCBEA1EB4217B89E5C900D52CA82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Various Artists - Galaxy Of Dreams 2  (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:25DF2724D5439D41B7A354706C94964B32C464C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Monolock - Music For The Masses (2014) [FLAC|Lossless|WEB-DL]<Psychedelic trance
 ```bash
 magnet:?xt=urn:btih:6201D059F3C24FBA0D9A44F3652C389AC608AE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ Zero-project - The Lounge Conspiracy (2014) [MP3|320 кб/с]<Lounge, Chillout, 
 ```bash
 magnet:?xt=urn:btih:87C3F5F0E1BEFEEBFB0ABCDC6D4267B39DF2A822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ Andrew Rayel - Find Your Harmony (2014) [FLAC|Lossless|WEB-DL]<Progressive Tranc
 ```bash
 magnet:?xt=urn:btih:489F8EC93E143417E28599FC2E506899BF7D59B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ Fragment D936A
 ```bash
 magnet:?xt=urn:btih:00CB8A5CDEAA55E572E8D07C46075627000A2EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E19116B902D464F76336727CFEB623FB9255B1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +442,7 @@ As/Hi Soundworks | Ash Blind | As/Hi - 20 альбомов (2006-2013) Touhou In
 ```bash
 magnet:?xt=urn:btih:74526E2785302CE4176EDDE96ACE1718E630E09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ Turning Girls / Ветренные девушки [2013, ONA, 7] WEB-DL 720p Hi1
 ```bash
 magnet:?xt=urn:btih:92246071D233701FD085876074EB00A0C6CCFFF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ Armin van Buuren - A State Of Trance Episode 668 (19.06.2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:BA55EB924C0D868D8A59E525CEA93FB65387F5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8915DFFEBB94A64BD13628075C8C9AB4513CCBB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:975A0FCA79E2AB424BEC7C176C66C166B16C6FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44380D2BBDC7CA093C32EED4C81FDE3A9DE12E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ Suntree - Outside (The Remixes Album) (2014) [FLAC|Lossless]<Progressive Psytran
 ```bash
 magnet:?xt=urn:btih:49843A9B614AEAB4FEADD3DC4C2D4373EB1215AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:433190118D43C62AC6B5F798C15AD8AE4A6D9E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31D4E64D6D3E7053D1FE51C20C61C50443860F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7B6F43C1A8E3D2F600445BAA94CE69288644F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81B5597E3C6374B234C44997354A346083A42578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DE40DF4CD9CBA726B30393503BD265FDEB74162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

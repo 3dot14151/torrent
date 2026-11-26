@@ -27,8 +27,7 @@ Thrudvangar - Tiwaz (2013) [FLAC|Lossless]<Viking Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:93C5E087158C19ED5CCC55878859715E4873833C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Alms - Beyond (2013) [FLAC|Lossless]<Symphonic Prog, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5E0B29B4D6AD6D8EA596740FE578A648E076D83E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Dark Moor - Ars Musica (2013) SHM-CD+CD, JP Limited Edition [FLAC|Lossless]<Symp
 ```bash
 magnet:?xt=urn:btih:67BF7ED16EF4C22C6EB155D679F0FB6DE27F3722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Apocalyptica - 7th Symphony (2010) Japanese Edition [MP3|320 кб/с]<Symphonic 
 ```bash
 magnet:?xt=urn:btih:EE920BA53FF76CAA518218C81D382B73A93F5639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Avatar - Thoughts of No Tomorrow (2006) [FLAC|Lossless]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:C560BA44D67303EB51202945FBFB6F1CFB580126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Sammy Hagar - 4 альбома (1981-1987) Mini LP SHM-CD /2013, Universal Music
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Unreal - 3 альбома 3 сингла (2006 - 2013) [FLAC - APE |Lossless]<Go
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Five Finger Death Punch - The Wrong Side Of Heaven And The Righteous Side Of Hel
 ```bash
 magnet:?xt=urn:btih:DDB7B55506FEE2142A26DB48A2058850010C996E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

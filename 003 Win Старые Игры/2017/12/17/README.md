@@ -19,8 +19,7 @@ Star Wars™: Jedi Knight™ - Jedi Academy™ (2003) [Multi] (1.01A) License GO
 ```bash
 magnet:?xt=urn:btih:18B77C0942418DF54AACEC0CC45CA64B2B9B838E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Wars™: Knights of the Old Republic (2003) [Multi] (1.0.3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F973740C6009AB7E6F4C32AA57F236D40F2645A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

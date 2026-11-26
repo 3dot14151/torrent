@@ -19,8 +19,7 @@ Q.U.B.E. (2014) [En] (2.8/dlc) License GOG [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:C2C20363EF9B2C9B18AF05CD94C52756EE7B7FAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Black Book (2021) [Ru/Multi] (1.0.36/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4C348F77006855D584886B60B7CDAB3AA42FD28B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Carrion (2020) [Ru/Multi] (1.0.5/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:CC6A4EC9419630B28C864B82AC128C9861B887BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sherlock Holmes: Chapter One / Шерлок Холмс: Глава 1 (2021) [Ru/
 ```bash
 magnet:?xt=urn:btih:49D76CE879530A73BF367E4ACC3544151FAD44AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

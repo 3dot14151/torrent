@@ -19,8 +19,7 @@ Chornobyl Liquidators - симулятор ликвидатора Чернобы
 ```bash
 magnet:?xt=urn:btih:DCD8B7849C7BE87674191D5F01E3338C50E4542F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Punch Club 2: Fast Forward - это двухмерный экшен-файтин
 ```bash
 magnet:?xt=urn:btih:E0F3A174FB429639E4D089A9D2A7FE8995506BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Three Kingdoms: The Last Warlord - двумерная пошаговая стр�
 ```bash
 magnet:?xt=urn:btih:2B835D80CA5B43B014980C7248FC50A8DBA5DA78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Skoof Simulator / Симулятор Скуфа (2024) [Ru/En] (1.0) Scene Tenok
 ```bash
 magnet:?xt=urn:btih:A079F1EC11BA8EE28106F0C0E0C5772D98B1ABE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Selfloss (2024) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:FA6864D68D50DE768278708B70A5716D4F78D5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dungeons of Sundaria – ролевая кооперативная видеои�
 ```bash
 magnet:?xt=urn:btih:FFE3ED0513AC6F6ABF3599380F5721E3B8EA3427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ WARCANA (2024) [Multi] (15354714) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F1902B35E36F5B0D47B57C836AA62DD84FE7BA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Shadow of the Ninja Reborn (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2F43091306945E9945B58C0D0D3655B5DD788F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:94EC4ECFF6E0246B0041A8A92297586891C081D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Forklift Simulator (2024) [Ru/Multi] (1.0.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E3F5DC28F2DCF8E29B4ED9118DEB825E96E9E11A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Perennial Order - это 2D-игра в жанре растительного у
 ```bash
 magnet:?xt=urn:btih:337AA277D70938EB981614775D34FAB4B758C20B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Don't Stare - это сюжетный стелс-платформер, в кот
 ```bash
 magnet:?xt=urn:btih:23AB8664CCCB5D347C56604204A80F2707663E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

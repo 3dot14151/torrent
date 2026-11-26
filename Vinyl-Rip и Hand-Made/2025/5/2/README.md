@@ -22,8 +22,7 @@ Barren Earth — финская метал-группа, основана осе
 ```bash
 magnet:?xt=urn:btih:ADF72316D01E871914967F50E8E39833B6E8F20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side One:
 ```bash
 magnet:?xt=urn:btih:54925EF0C8B99E906B2B5B0468B3AC5007002F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

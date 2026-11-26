@@ -19,8 +19,7 @@ Rise of the Tomb Raide (2016) [Ru/Multi] (1.0.668.1/dlc) License CONSPIR4CY
 ```bash
 magnet:?xt=urn:btih:6F3A5F6801264BE6E0FBC21F19E607E53FA074DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:36B5BC8C016D0D4ADE390845449BF9C17D78A3C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

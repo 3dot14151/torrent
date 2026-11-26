@@ -22,8 +22,7 @@ Beast of Revelation - The Ancient Ritual of Death (2020) [FLAC|Lossless|Web-DL|t
 ```bash
 magnet:?xt=urn:btih:CDAF201E4A8402C60D470C4B657A79716C36E943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Women of Doom (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Rock
 ```bash
 magnet:?xt=urn:btih:474C77BA5404D5DBA5AB3F866A49F18570CFAD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Peter Straker - This One's On Me (2020) Deluxe Expanded Edition, 3CD Box-Set [FL
 ```bash
 magnet:?xt=urn:btih:654E41969C7C9F3B6B96C6F80BBC3F71EA0752A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Lord Vigo - Danse De Noir (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Epic
 ```bash
 magnet:?xt=urn:btih:FC470897FE0C8E0AC4973E8A5C40B807356E9AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Atrox - Orgasm (2003) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Avant-ga
 ```bash
 magnet:?xt=urn:btih:BAF8C1A531DC2B4ABB035326F726E630E33C36A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

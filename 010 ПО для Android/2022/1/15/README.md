@@ -19,8 +19,7 @@ Greenify v4.7.5 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ACAD30D999DEE501E0DD7DE930AE490A8F6C644C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Weawow — это погодное приложение, дополненное 
 ```bash
 magnet:?xt=urn:btih:9E661D505CA8E9E1E374A62868B2DED9675858BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ IELTS Practice Pro - лучший способ подготовиться к э�
 ```bash
 magnet:?xt=urn:btih:AD9416434A732DBC3403E4CD1C662B7809385DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:745CD86670F1CC815AE913F2A8D04151A6A6EEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

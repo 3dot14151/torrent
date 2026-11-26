@@ -19,8 +19,7 @@ GnaCAD - приложение, что представляет собой оче
 ```bash
 magnet:?xt=urn:btih:CA740569368C55A06C3F93A81B2ED0DC3115D044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Image Converter / Конвертер изображений - просто от�
 ```bash
 magnet:?xt=urn:btih:CDED048A23EC5D98BDC2891CAE9545852D5AF7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pure Tuber: Block Ads on Video (Ранее. Vanced Tuber) - приложение
 ```bash
 magnet:?xt=urn:btih:2F661BEF91DADB4820F6D89032DFB6F7A2DEF71D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

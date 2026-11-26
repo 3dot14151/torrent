@@ -22,8 +22,7 @@ Udo Dirkschneider (U.D.O.; Dirkschneider & The Old Gang) - Studio Albums (23 rel
 ```bash
 magnet:?xt=urn:btih:B6AD9A6F01AB7213EA89572CF354DC919947B1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

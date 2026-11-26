@@ -19,8 +19,7 @@ Rambox — это органайзер рабочего пространства
 ```bash
 magnet:?xt=urn:btih:1E633841E4FB11D747A7063DC4B3993D70CA03C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windows 11 Media Creation Tool – официальное приложение M
 ```bash
 magnet:?xt=urn:btih:438E6404908D75A009231C734BC8FF5902D05F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

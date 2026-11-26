@@ -19,8 +19,7 @@ LEGO Batman: Legacy of the Dark Knight / LEGO Бэтмен: Наследие Т�
 ```bash
 magnet:?xt=urn:btih:A80CBD0C40B7537DFBE2805796DCFA521DF5AE3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer 40,000 Mechanicus II (2) (2026) [Ru/Multi] (1.0.0.16) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FD9632BB4CE6502877ED9591887A1EF65B81B6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lost Records: Bloom & Rage (2025) [Ru/Multi] (2.04.132116) License GOG
 ```bash
 magnet:?xt=urn:btih:F29EA5D5AD1F4D63F569E7C3690D000D9641A7ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Iridio - это инди-приключенческий экшен-шутер о
 ```bash
 magnet:?xt=urn:btih:DB107CD115E0399126A76BAD3BD01FAE9DE8F268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DONG WU: ODYSSEY - это сложная игра о легендарных зв
 ```bash
 magnet:?xt=urn:btih:0C34A17C3852E4AE3905D919A4B762E5F326FE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Zero Parades: For Dead Spies (2026) [Ru/Multi] (1.0.36599) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:18858B88AAB6F4C7320A1AA1BD80CEACCE9B95B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Darksiders Warmastered Edition (2016) [Ru/Multi] (1.1-cs:4296) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:045267DD9EA732E7AE209A6D7E9611980F33F3BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

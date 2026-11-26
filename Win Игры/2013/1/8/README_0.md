@@ -19,8 +19,7 @@ Grim Tales 4: The Stone Queen Collector's Edition / Страшные сказк�
 ```bash
 magnet:?xt=urn:btih:0BB69C889D064923C62000D19EC54331BB767273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

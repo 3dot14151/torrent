@@ -18,8 +18,7 @@ Dragon Age: Inquisition [PS3] [USA] [En/Fr/Sp] [3.55] [Cobra ODE / E3 ODE PRO IS
 ```bash
 magnet:?xt=urn:btih:4D74332C60B9D7EEB37260BC0E6A2272A20A36F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Nickelback - Дискография (1996-2014) [MP3|320 кб/с]<Alternative ro
 ```bash
 magnet:?xt=urn:btih:B0BDC81144D5B8707E77884B98CFEA16E2452EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Far Cry 4 Crack (2014) (1.3.0) Reloaded [Proper]
 ```bash
 magnet:?xt=urn:btih:A4CB6FD1475BCAE064BBFF3B9CE0AA20BA8AE087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ MInstAll v.17.11.2014 By Andreyonohov & Leha342 [Ru] (Авторская раз�
 ```bash
 magnet:?xt=urn:btih:415BCD9F3BB9E3F106AF4B27796B2FD18F904798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ SolidWorks – система автоматизированного проек�
 ```bash
 magnet:?xt=urn:btih:97BC996423F920AE76FDC9782F811E447E5353DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EBE3572B1CDD6C2F765EE8DA5DC0ED9453355BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ iGo Primo - программа спутниковой GPS-навигации, к
 ```bash
 magnet:?xt=urn:btih:C23C5651200B96DBBF11752B3A12D0B5E9978F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

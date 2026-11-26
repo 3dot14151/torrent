@@ -19,8 +19,7 @@ Sea of Lies: Mutiny of the Heart.Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:39E51FA1F610C30CD7F8F05C98AFBD80E4F890CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Angelica Weaver: Catch Me When You Can. Collector's Edition / Анжелика �
 ```bash
 magnet:?xt=urn:btih:B805E0A79E8E515D46B8DC1B9C99C7D513711807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fearful Tales: Hansel and Gretel Collector's Edition / Ужасные Истор
 ```bash
 magnet:?xt=urn:btih:51CB48AF927DFF7C945A790F03DEEB3147BBFB6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ASA: A Space Adventure (2013) [En] (1.0) License HI2U
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

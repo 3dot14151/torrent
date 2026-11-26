@@ -21,8 +21,7 @@ VA - House Nation Volume 5 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
 ```bash
 magnet:?xt=urn:btih:F0F5FFB379357DFE160EB4807D1F7DEFBCBEEDD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8C37D77DE129F770E07EAE0136C2A1F267F96A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Electro Sensation (2016) [MP3|320 кб/с] <Dance, Club House, Electro Hous
 ```bash
 magnet:?xt=urn:btih:C60644F8252A0165CB4226E4CB71DE396617300E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Neurokinetic (2000) [FLAC|Lossless|tracks + .cue] <IDM>
 ```bash
 magnet:?xt=urn:btih:C2B1B9A0EA04732FFDA733891C1D4F74F9CE3848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Voivod - Post Society (2016) EP [FLAC|Lossless|tracks + .cue] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:07F6E4356026BE4C2AED901ADA32A95DE494FA60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Gary Hoey - Money (1999) [FLAC|Lossless|tracks] <Rock, Surf, Instrumental>
 ```bash
 magnet:?xt=urn:btih:D6961D1EA345BA4EB919154FE3237D52E8500C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ TagScanner - мощная программа для организации и у
 ```bash
 magnet:?xt=urn:btih:9ABD5247A0ABA13469585172187FDAFE9B6BF489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Damien Dubois - Evasion (2015) [MP3|320 кб/с] <New Age, Relaxation>
 ```bash
 magnet:?xt=urn:btih:1AFBD9B19B1C9435F8F0ABFF6F88F2F5B579E0C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Anvil - Anvil Is Anvil (2016) Limited Edition [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:199FC4B93FE9FD54E73A11B0A9C6465A053C0605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Robert Drasnin - Voodoo II (2007) Dionysus Records[FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:115F9899A7205BFB8A0CB2E23A1D82FA4C5E9C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E6EFA816AC74934A203F5D34F92642D93F42C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8D9D5FE031209E16D668A386C6E6DDEA46187E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Last Leaf Down - Fake Lights (2014) [FLAC|Lossless|image + .cue] <Shoegaze, Post
 ```bash
 magnet:?xt=urn:btih:FEF64476E398F6681B06038C8C971553BC9AF68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA8DD05E62A2483BBE8CDEB292A37E7F1594B013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ ME - Another Story High (2012) [MP3|320 кб/с] <Alternative, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:3152A0D1F66EF4C53AADB339DEE5EDBFDB912AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Marty Friedman - Tokyo Jukebox 2 (2011) [FLAC|Lossless|tracks] <Rock, Heavy Meta
 ```bash
 magnet:?xt=urn:btih:9E4991BC71CB3A8A2617B47C06B50DA6021F05B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA6F0DEE5B6604A33CA6B0D911BC60E748B998CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA08354363CBED3B38995E0670E131968D3153AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Isgaard - The Early Days (2015) [MP3|320 кб/с] <New Age, Classical Crossover>
 ```bash
 magnet:?xt=urn:btih:5A31E5D2FF57DA08CFF6C1A42EEFC617B47DC3B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Monah(308) - Приступы Ярости (2016) Авторская разда�
 ```bash
 magnet:?xt=urn:btih:661372DEFBB145568F3CDA3F18DC34E23347600D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ VA - Танцы COVER (1999) S&V #05/1999 [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:E966581FF958D314DF71D40F6016165F4438D88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ VA - TOP Non-Stop 2010-2015 - Lounge & Chillout [vol.4] (2010-2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:B7E9414D36622AECFFA638950B912439400BD7EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ CD1 Dream Machinery
 ```bash
 magnet:?xt=urn:btih:18C0132B6CCA714DB6CD4DF163B2DD5C59940E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C35627B915FCCF82E170A56FBAE17627D14B703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34DDA45A242049D1F58B05054A7CA0E8917BEFAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ VA - Зажигательный улетный музон - 2016 (2016) [MP3|256
 ```bash
 magnet:?xt=urn:btih:73366A06CF2EA37B2F42098114D53AB1CF805C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

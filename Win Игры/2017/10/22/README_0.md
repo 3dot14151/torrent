@@ -19,8 +19,7 @@ Car Mechanic Simulator 2014 - это, как не трудно догадать�
 ```bash
 magnet:?xt=urn:btih:60A93C799FE69F673E821346143B7BD2547160D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Car Mechanic Simulator 2015 — продолжение популярного с
 ```bash
 magnet:?xt=urn:btih:7F7755F3CFA9A52A65AE2191103F550D1668B95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Car Mechanic Simulator 2018 делает вызов игрокам. Управл
 ```bash
 magnet:?xt=urn:btih:4F386EC35EE3308EE743CD8FC18269B0195E1712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

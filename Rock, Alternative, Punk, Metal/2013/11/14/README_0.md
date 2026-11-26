@@ -28,8 +28,7 @@ Gerry Rafferty - Snakes and Ladders (1980) [WavPack|Lossless]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:5931B7C73F91B34F02605D9B476C1C4726472A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Gerry Rafferty - Can I Have My Money Back? (1971) [FLAC|Lossless]<Rock, Folk Roc
 ```bash
 magnet:?xt=urn:btih:E80CCDD7876D4906796C20A5CC19CE8F498438CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Gerry Rafferty - Another World (2000) [FLAC|Lossless]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:463F8A57D2C38949EAE1D53554034981FD389312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Gerry Rafferty - Over My Head (1994) [FLAC|Lossless]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:DD6F3D5E8620433D24AAC20FC844A5A74626842D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Gerry Rafferty - City To City & Night Owl (1978-1979) 2СD /2007, EMI/ [APE|Loss
 ```bash
 magnet:?xt=urn:btih:15FD4F3E7DD1A2D0A96225131911AE83935D1F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Leaves' Eyes - Symphonies of the Night (2013) [FLAC|Lossless]<Symphonic Gothic M
 ```bash
 magnet:?xt=urn:btih:110A44322350A9E3558AAF68081BCBEAA77AFE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Within Temptation - Paradise (What About Us?) (2013) EP, Japanese Edition [FLAC|
 ```bash
 magnet:?xt=urn:btih:0359732475DE4A212EF1DA5B10C023C8EDC717A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Gerry Rafferty - On a Wing and a Prayer (1992) [FLAC|Lossless]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:92E8F793D96316161E2B9774EF9CEF3BC6C44375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ The Rolling Stones - Sweet Summer Sun-Hyde Park Live (2013) 2CD [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:EF3347B58D2B7D95BAAFB525C1DD6E2B5F358B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

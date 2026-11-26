@@ -22,8 +22,7 @@ Virtual Floppy Drive (VFD) for Windows 2.1.2008.206 (& RawWriteWin  0.7) [Анг
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

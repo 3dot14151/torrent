@@ -21,8 +21,7 @@ Helic - вертолетная аркадная игра, со множеств�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5E72F31A1FFA098F92AB6C6CDAF1D1696FA9A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Star Wars: The Force Unleashed 2 [Ru/En]  (RePack) 2010 | R.G.ReСoding
 ```bash
 magnet:?xt=urn:btih:D846778D42FA890F104226F4D29961FDB0AC6F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

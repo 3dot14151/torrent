@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:09825A052FDEB6A0EFF8B92367D1FA15B154EA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Самые лучшие треки интернета Осень 2019 [MP3|
 ```bash
 magnet:?xt=urn:btih:9C70C57141D4916CAEF2AEFEFF99463A9495B5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:609CB68AC8BB98B3580218413621BC26865B848B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Darren Porter - 2 Compilations, 48 Singles, 58 Remixes, 3 Tracks (2009 - 2019) [
 ```bash
 magnet:?xt=urn:btih:3C64414F66A9631FB163CB9EF31697239409541C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Fan-made фильм рассказывает о бывшем обитателе 
 ```bash
 magnet:?xt=urn:btih:B41FEBCB9220E89AB922BFC2D8B9278E5ACE7DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Udemy | HTML5, CSS3, FlexBox верстка сайтов с нуля. Курс 2
 ```bash
 magnet:?xt=urn:btih:E6CF4D02575AC132571D38815E973089621D2D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:B41CB545F9DB06511F2178B43A1A9C18B7141227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 ```bash
 magnet:?xt=urn:btih:63A4FA2AAC91DC850CECF5158910323E5E95AF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) Repack Other s
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ GreedFall (2019) [Ru/Multi] (4324602/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:83B77F8B661BCA7E43158A63F5E16ED1670D6BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE5F93BC8EF15392E79DCDC2BC87473549DC6AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:701A9C6A9B3161726B5A52F653766C96DA61D76B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

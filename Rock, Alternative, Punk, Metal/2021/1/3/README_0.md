@@ -22,8 +22,7 @@ Octavision - Coexist (2020) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:B494F19E21B8C0A941CCB28AC5620B20AD93D5C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Damnation Gallery - Broken Time (2020) [FLAC|Lossless|image + .cue] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:5EA690B4F46AB54E1F03236D54FA94FBC4FC4535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tar Hag - Bestial (2021) [MP3|320 Kbps] <Stoner, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:47E8FE059ACA3B831691C698AB0BC7C750EAC707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Rome Pro(G)ject - IV - Beaten Paths Different Ways (2020) [MP3|320 Kbps] <Pr
 ```bash
 magnet:?xt=urn:btih:BF354E5DEC6F5E381AE7185D6BEB9209B14690AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mystericon - Мёртвый лист (2020) [MP3|320 Kbps] <Sympho Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:2AC31722E6BC27C58790ADC7AEFF493418B055D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Show Me A Dinosaur - Plantgazer (2020) Limited Edition [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:04AEE2499AA726EDD4AD877A4943000A8122233F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Caspian - On Circles (2020) [FLAC|Lossless|tracks + .cue] <Post Rock, Alternativ
 ```bash
 magnet:?xt=urn:btih:E8996F652B83563D1B58A880AE1725292A66EA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Magick Brother & Mystic Sister - Magick Brother & Mystic Sister (2020) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:CE262906B61D96CCBE2801F3527803F1A5844E55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00CB5FB31D32586E7A30B839A172FB07230F778A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Riot After Midnight - Riot After Midnight (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7AB32000D35EE2D1F7C574B808EA92A1AA0933A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ ThunderMother - Heat Wave (2020) Limitеd Еditiоn [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:AC0F1FAB2EC4EFD69195365A9C2117D6A4E94C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Pilot - шотландская поп/рок-группа, сформирова�
 ```bash
 magnet:?xt=urn:btih:446DCBE5B84AEBD7A7A9C2BD79B688E775FAB129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Eternal Champion - Rаvеning Irоn (2020) [FLAC|Lossless|image + .cue] <Epic He
 ```bash
 magnet:?xt=urn:btih:86833DAFF1FD54DCCD7C742C670F16CA71947246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38AE03AC2275CAAC44B8E54AA8B9687C76004EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

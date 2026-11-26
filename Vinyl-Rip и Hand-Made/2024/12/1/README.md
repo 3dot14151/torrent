@@ -22,8 +22,7 @@ A3 Deep Dark Truthful Mirror(   Читать дальше...   )Жанр: Altern
 ```bash
 magnet:?xt=urn:btih:9669553188DE403F62B7E93EDADA183970C98ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

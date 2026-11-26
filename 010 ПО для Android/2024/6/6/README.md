@@ -19,8 +19,7 @@ Dog Scanner: Породы собак v17.2.5-G Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3F21CAAAD1E8AF74AD15CA8D152615A1DAB522A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

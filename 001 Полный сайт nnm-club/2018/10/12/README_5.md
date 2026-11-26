@@ -22,8 +22,7 @@ The Four Freshmen - Day By Day (1962) 1994, Hindsight Jazz [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:CB89211B1EB43B575D9C63A3A9D609EB2DE258CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sainkho / Ned Rothenberg - Amulet (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Fr
 ```bash
 magnet:?xt=urn:btih:4EC0124A2D6670FDE1C07C8AAE70E1F4BB86B4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ MediaTrans фокусируется на одном простом деле, и 
 ```bash
 magnet:?xt=urn:btih:A4B9071BD2A4EAF888E82F3FBAA0A7ED1AFD81C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6466107B3CE5EC13508B99AB2A01FD304DEC5EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Trance Favorites Episode #015 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:AA53AB704F3418CED17F045FC0FC0C590383C686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Sync Diversity & Karl Schaap - Game of Trance (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:CAC209BD23697E26E36D69F8728C80F232A349EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - This Is 5 Years (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:DD6658325C6273AA6FDFEF5E4A3228A912B39F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6863D3B3A33EF0BD00A9BFF4B7F40934FA7AEAA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - ADE Trance Compilation (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:E7F2C3601618CB300DA38358D0197D87C5FB7C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ EtreCheck 5 v5.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:9B292357B1649209288C782F2E7DB920FB655EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - Coastal Remixes Vol.03 (2018) [MP3|320 Kbps] <Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:580C27A2B8C7D9307604767BA124745826C21C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Sync Diversity & Danny Claire - For the Love of Trance (2018) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:FCF860E7982295771CDD4B2F448B027BA3B9901A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B5CE7CD33F8B775F28B348BA8B0C2C2CB220282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ General Lafayette - Jester (1993) [FLAC|Lossless|image + .cue] <Pop, Ballad, Ins
 ```bash
 magnet:?xt=urn:btih:6D7F5807719B1A47C4AD26CD25B25B9DC036607D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:48020EDF4B913031BE0477200569577599BBFE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Boxy SVG 3.22.0 [En]
 ```bash
 magnet:?xt=urn:btih:83BEDF5895A4450CCC773D8D69C32BA9DA25B917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ General Lafayette - Love Is A Rhapsody (1992) [FLAC|Lossless|image + .cue] <Pop,
 ```bash
 magnet:?xt=urn:btih:2CECAF8B8748D7EED7407770DDDE7EA7A33EF4E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8C01684636999873EA59E0175F82BCBA4DCDA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ MX5 - новая версия веб-браузера от Maxthon для Window
 ```bash
 magnet:?xt=urn:btih:0B7883A31B4263A84102A11D21D4644165626E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ Ian Boddy & Erik Wøllo (Erik Wollo) - Meridian (2018) DiN [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:16B4DB14E86FEC16EA818B41BD2DD915839DE612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ QLab - Мощный инструмент для создания и провед
 ```bash
 magnet:?xt=urn:btih:CC1439377A424A6CDA47DC3C83D2406096A6FAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ VA - Markus Schulz - We Are the Light (2018) [MP3|320 Kbps] <Trance,Downtempo>
 ```bash
 magnet:?xt=urn:btih:FB2E0126CC241F2165715123F83820C96433D033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ VA - Markus Schulz - Global DJ Broadcast - We Are the Light Album Special (2018)
 ```bash
 magnet:?xt=urn:btih:1D8C9827DB4B08F4FB0636B9C4DC0AE9093746CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Duplicate Detective является наиболее полным прилож�
 ```bash
 magnet:?xt=urn:btih:AF402C4AC028014C7828912CD999F044C22E12E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ VA - Охота 84 (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6BA683160E704BC83F52524A44DAEDE452370DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ Passion - Passion (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:54BA6567157E34C4FDF805F4D489E751C681D8D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

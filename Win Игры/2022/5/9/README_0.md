@@ -19,8 +19,7 @@ SpaceEngine - бесплатный космический симулятор, к
 ```bash
 magnet:?xt=urn:btih:A7D372AD7B70484AEEB7E70CBDFCE71D0CAC383A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MadCaps [En] (P) 2004
 ```bash
 magnet:?xt=urn:btih:B57A92265A6EC22E8384F6EA3EB00991F4F3588B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Walking Papers - WP2 (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8F42B24F14256E7EEF14676C8876E7263B01F88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Aqueous - Dark Side of Oz (2016) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
 ```bash
 magnet:?xt=urn:btih:FFE7050E40EFBB1EE1382AB9BA4B4D14E8B96814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Placebo - Covers (2003) [FLAC|Lossless|image + .cue] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:307FB48A43C2462EB864E32AA7B07CFAD8B3FFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cozy Powell - 8 альбомов, 11 CD (1970-2009) Discography [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:6E2E29FFB246591A89D013AD92ABFC73383E1137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Kerio Control v9.4.5 Patch 2 Build 8629 [x64] (iso, img) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:20A977575D4402C1E07C7B1A543FB5C12C862658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

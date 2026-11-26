@@ -20,8 +20,7 @@ Atlantic Fleet - масштабная морская стратегия с по�
 ```bash
 magnet:?xt=urn:btih:16A5335671D59873F34AE4501F832D9B2F8193D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46797F3D0A11CE925875CD84ECF51A3F5198EC79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

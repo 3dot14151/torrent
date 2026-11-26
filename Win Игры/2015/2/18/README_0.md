@@ -19,8 +19,7 @@ How to Survive (2013) [Ru/Multi] (1.0.0.11/7dlc) Repack R.G. Catalyst [Storm War
 ```bash
 magnet:?xt=urn:btih:E9CD2C0C866A6B56A0910A602C1FE4E01F9764BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Morningstar: Descent to Deadrock - это sci-fi-приключение с ви�
 ```bash
 magnet:?xt=urn:btih:7334BD5D668A98ECC625FD5445806C6C45F167F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

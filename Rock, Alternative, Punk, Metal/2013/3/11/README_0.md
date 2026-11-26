@@ -27,8 +27,7 @@ In Vain - Ænigma (2013) [MP3|320 кб/с]<Melodic Black, Progressive Death>
 ```bash
 magnet:?xt=urn:btih:09544092B39531B4684D05BF89B79BD8480D8814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Black Sunshine - Black Sunshine (2010) [MP3|320 кб/с]<Modern Rock | Hard Rock
 ```bash
 magnet:?xt=urn:btih:50AC69EE6987D531CFA421E942472BA5A97DCD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Talking Off The Wall (2:23)(   Читать дальше...   )Жанр: Rockabi
 ```bash
 magnet:?xt=urn:btih:5B51CD0BF2A736752F2768BD322558A6282F0497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Adrenaline Mob - Coverta (EP) (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BEB30955F7C19702BDE73921658EEA1D53993E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Jim Croce, Don McLean - Back To Back Hits (1995) [FLAC|Lossless]<Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:005D68D9458B2A773D33A3CC285AB1F415A02C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4BA140E80AA1B99F2171D1E70E641642090424A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

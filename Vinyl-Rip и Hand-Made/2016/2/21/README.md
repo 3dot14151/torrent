@@ -22,8 +22,7 @@ Black Sabbath - The End (2016) EP [FLAC 2.0|44.1/24|tracks|DC-CD] <Rock>
 ```bash
 magnet:?xt=urn:btih:3D0BBCB9B9DB801246F8D8EDC51250207E660174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46CEA259AE67F4D733C6ED3B63CAAF489AD2EBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

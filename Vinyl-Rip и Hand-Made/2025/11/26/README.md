@@ -21,8 +21,7 @@ Haunted by Silhouettes - метал-группа из Норвегии, осно
 ```bash
 magnet:?xt=urn:btih:1C614B7F2E75D8E9D51360923AC3473313262EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

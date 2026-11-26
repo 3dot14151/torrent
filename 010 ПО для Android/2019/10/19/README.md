@@ -19,8 +19,7 @@ MacroDroid, программа которая поможет нам автома
 ```bash
 magnet:?xt=urn:btih:65CEEACAEDE4CCB84AE619D5EA81C4AC8966D33F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

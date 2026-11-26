@@ -19,8 +19,7 @@ Football Legend (2015) [Ru/En] (2.339.1307) License
 ```bash
 magnet:?xt=urn:btih:4A62DA4FC01B26CD584BCD2FEDC479A3634CA4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rising Cities сочетает в себе захватывающий мир т�
 ```bash
 magnet:?xt=urn:btih:EA07762B18E22B8501F88274F54732020A8A5C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

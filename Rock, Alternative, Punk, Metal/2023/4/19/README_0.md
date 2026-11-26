@@ -22,8 +22,7 @@ Texas Hippie Coalition - The Name Lives On (2023) [MP3|320 Kbps] <Heavy Rock, So
 ```bash
 magnet:?xt=urn:btih:E4A8C695A23DBAF54442630DF765D21FEACC7534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disc 1 - Vol.1 - The Shorts:
 ```bash
 magnet:?xt=urn:btih:1FCF0BE7B9388E594639A94CB6DC469B9A777F36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA59808AB59207A16B433F49A6A11D759B397F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ad Infinitum - Chapter III: Downfall (2023) [FLAC|Lossless|image + .cue] <Sympho
 ```bash
 magnet:?xt=urn:btih:F309FA8612CEC66F657CD4547F753FD08AED8E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Suton - Sacrilegious (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Met
 ```bash
 magnet:?xt=urn:btih:94C42D1608621AE008933A8F33D03E989AA98E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tetrao Urogallus - Gulo Gulo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, 
 ```bash
 magnet:?xt=urn:btih:CA2D36302B6759F88C105F729F41584BD9C4896C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Jet skies - 13 (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:FED4986FDF6AC4A3283E27CF1151E1A1B1B6E699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Riverside - Riverside 20: The Shorts & The Longs (2021) 2CD, Remastered, Compila
 ```bash
 magnet:?xt=urn:btih:748F68D0FC3184ED43E44CB93430EFC378036989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

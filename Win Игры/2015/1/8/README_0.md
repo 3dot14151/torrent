@@ -21,8 +21,7 @@ Beast Boxing Turbo – аркадный симулятор бокса с вид�
 ```bash
 magnet:?xt=urn:btih:BB56FE859B49A5C28B590AA6A2276481F24B0009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Fallen Enchantress: Legendary Heroes – самостоятельное допо
 ```bash
 magnet:?xt=urn:btih:EEC3D8AB941585AFD6BE12C989717B7FD74278B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

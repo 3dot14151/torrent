@@ -19,8 +19,7 @@ TSIOQUE (Чок) - это приключенческая игра Point & Click 
 ```bash
 magnet:?xt=urn:btih:C0B41C11924FDF8EC49295FD53CD663ADD5B9B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tyranny (2016) [Ru/Multi] (1.2.1.0160/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F9E4BCB96E6DC4DC5E875E524924D6AACCBCEF02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Steel Rats (2018) [Ru/Multi] (1.01/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:821BBD9B3D0CC11E1CF8B1ABB1721EC03575FCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Galaxy of Pen and Paper (2017) [En/Br] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:48F39BC2EF5630FD8E1FDB07441174A07CF011DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

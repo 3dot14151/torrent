@@ -19,8 +19,7 @@ Battlefleet Gothic: Armada – стратегия в реальном време
 ```bash
 magnet:?xt=urn:btih:2CD238A54EA1133371CC3459A9C5905D41F57EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ C.П. Костычев | О брожениях (1914) [PDF]
 ```bash
 magnet:?xt=urn:btih:6C26D470C724F77DEB655D48614A8C73E3F1D52F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCAAADC4EFD38B59E4958CBB205D2B85A8F5260F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

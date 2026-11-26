@@ -19,8 +19,7 @@ Pure Farming 2018 (2018) [Ru/En] (1.1/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:902D5B33BA17040C8805DBF1F875658821950CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License GOG
 ```bash
 magnet:?xt=urn:btih:2CEBE95772F3FF3076177BCA39C002D8D189972E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deadstep - психологическая игра ужасов от перво�
 ```bash
 magnet:?xt=urn:btih:7337337A707866CC6033A12914078668176F4775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Duder (2018) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:97906BA4123AE45825D2D1214FEA90DFE8B7AE6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

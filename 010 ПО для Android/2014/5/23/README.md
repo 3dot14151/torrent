@@ -19,8 +19,7 @@ CuCalc v2.2.1 - расчёт сечения кабеля (05.05.2014) <Ru>
 ```bash
 magnet:?xt=urn:btih:BD2E7E0AD8FFDC24A4D522F5AF15B5554C8B970F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

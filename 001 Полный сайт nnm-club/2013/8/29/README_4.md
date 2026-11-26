@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5A53D7F843DE821BCA413D0DDD763A588F967C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:221733F59C92633D43FFD38FC0EC45DFA5FC09B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Media Player Classic HomeCinema - удобный во всех планах му
 ```bash
 magnet:?xt=urn:btih:2BC18C28E445E781167227D2CE9E48B2B825E2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Digital Art (28.08.13)Разрешение файлов: 421х650-3000х4168Фо
 ```bash
 magnet:?xt=urn:btih:CDFFDA74220F9420F72C55CBDC4B655023B240CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Spyglass 1.2 [En]
 ```bash
 magnet:?xt=urn:btih:13063D9D1D0EB883D1252616E7675F5DB983DDBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90FA33F9ED478BCC4AAC642F92F38D37DC429E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4C74E65F8188999D6DEBB4EC61287FD758B953A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Artworks by Adrian BordaРазрешение файлов: 400х1063-3736х2924�
 ```bash
 magnet:?xt=urn:btih:9B448B97257809C700597938141218C8C0EB3EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:818BA1416204BDB9AA9A00FCD6C447DF52BF2B05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ RonyaSoft Poster Printer - программа для создания и печ�
 ```bash
 magnet:?xt=urn:btih:AFB90E17DC29E237FEA7417B50B6910AC13A917C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ CG Arena 3D Arts CollectionРазрешение файлов: 720х865-2858х225
 ```bash
 magnet:?xt=urn:btih:4782408119A08C4C7657A52357C7D393B3D1D43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Snoop Lion - Reincarnated (2013) [FLAC|Lossless]<Reggae, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:3B97F8D04A5E7EA56267D9C8F029C536EBC27C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ UPgrade – еженедельный журнал о компьютерах и �
 ```bash
 magnet:?xt=urn:btih:1FE55218CD5343D4846DDFA6558D13EE5E70E6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F694B75B6C882432EBFA99A169464F28C3095ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8D75C4B5F57F93548F36596C5000DBB5A4E6C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Artworks by Nathalie PicouletРазрешение файлов: 220х172-2279х1
 ```bash
 magnet:?xt=urn:btih:922209AC1483FC7CC6E73C45630EDA4802423E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4805AF0790C2DFBC809C46E9BA86D72D8E289469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C18A166510D3F0666E00FCE22CDA0E7610250A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B6632C7C2718784F9957C38B34EF504932FF9A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ John Mayer - Paradise Valley (2013) [ALAC|Tracks]<Rock>
 ```bash
 magnet:?xt=urn:btih:5D6AD05D18BEA9D921FF997EA1B00EBD8A6B97C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ FHM (For Him Magazine) – самый известный журнал для м�
 ```bash
 magnet:?xt=urn:btih:16239B9F816B01BB45CB39F5A99F0B492AB4DED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ VA - Ministry of Sound - The Sound of Dubstep Classics (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:023436A5568D744C5BD652CA3EB0180182F26836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ CG Arena 3d arts collectionРазрешение файлов: 476х860-4670х160
 ```bash
 magnet:?xt=urn:btih:1C0D16ACF685F602A421FB07E6EEE8A7DF119C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ VA - Лучшие Хиты Радио Европа Плюс Часть 15 (2013)
 ```bash
 magnet:?xt=urn:btih:76C5EE3318EFB30942293555A1005A5DA5E74D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ Journey - Greatest Hits (1996) [FLAC|Lossless]<Art Rock>
 ```bash
 magnet:?xt=urn:btih:5D2BB4C67143DA5BAA90C66099D09D52FB5886C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38459D43DD0E3C54F4032DB6B494DAD65B6EF510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

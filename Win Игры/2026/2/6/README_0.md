@@ -19,8 +19,7 @@ Gunfire Reborn - это приключенческая многоуровнев�
 ```bash
 magnet:?xt=urn:btih:516F88F773F4DA27C57A8BA998B1A8B9857385A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hollow Knight – это эпическое приключение в огром
 ```bash
 magnet:?xt=urn:btih:E3B41000D7FDCF679008A347F8FF6AB19F4FF3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack Other s [Gold Edit
 ```bash
 magnet:?xt=urn:btih:A5E301DF05800A3CB447D408B65943C2F56BF8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ God Forsaken (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DE6E0C421AB8734ED1ADA972719E4C800149956E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grim Tales 27: The Cursed Bloodline (2026) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:DEA6C45641E4ED1F2E0EE62B15D4564FB1A40C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Maelstrom: The Battle for Earth Begins (2026) [Ru/Multi] (1.3.0) Repack FitGirl 
 ```bash
 magnet:?xt=urn:btih:D43EA3E959F9D6E5FF056EB34E8F36F42A9F3548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Saviorless – это стильный мрачный экшн-платформ�
 ```bash
 magnet:?xt=urn:btih:8D6EE07FBF124D1AFE63B270EBCBDE33241287B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.19.1031/dlc) Repack Necros [The One Who 
 ```bash
 magnet:?xt=urn:btih:B6E60EC914069F28384AE7BC9574F93052164990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

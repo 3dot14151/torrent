@@ -19,8 +19,7 @@ The Rivers of Alice v1.61 [Multi]
 ```bash
 magnet:?xt=urn:btih:B7BCB9D475A8F303F5755DDFA21FDB1053A97249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

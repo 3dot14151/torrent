@@ -27,8 +27,7 @@ Ayqix - Tarikapuy (2014) [FLAC|Lossless]<Dub Techno, Ambient, Experimental>
 ```bash
 magnet:?xt=urn:btih:6DEC10012640EF155D988A37F2AED88D2DA82D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Soulware - Return to the Source (2011) [MP3|192 кб/с]
 ```bash
 magnet:?xt=urn:btih:FA25A6BB4247D1A406121DD71C430BE6EE0E01AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Avercage - Hyperpolis (2012) [MP3|320 кб/с]<Power Metal | Female Vocal>
 ```bash
 magnet:?xt=urn:btih:EBB91532CFC899C9D081B76ED46AC9DF11985F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ VA - Emotional Appeal Of Chillout & Lounge (2014) [MP3|320 кб/с]<Downtempo, C
 ```bash
 magnet:?xt=urn:btih:7F961658CC9F7D5CCA23AE9471C1F231BC461B66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Dying Awkward Angel - Waiting For Punishment (2013) [MP3|320 кб/с]<Melodic De
 ```bash
 magnet:?xt=urn:btih:7CA42D4282D5F5F6930B3B30E7F44CBD4FBA2E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76D80B908464096A53280EC729ECCEC87FCCD9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1A97D59A6F735709AC02285DDF0DF6BBCAEFA14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Kauan - 6 Альбомов (2007-2014) [MP3|320 кб/с]<Atmospheric Black Metal
 ```bash
 magnet:?xt=urn:btih:4E5BFFB81C20887014A815C18E36B3C0ED6FADEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ VA - Mixed by SoulFusion - Big City Beats (Drum & Bass Studio Mix) (2011) [MP3|3
 ```bash
 magnet:?xt=urn:btih:E337E635420009AE6232AF384D0E8BFF05E8B8A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ Bloodline - Bloodline (1994) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:09B3A7CCF74F8717196DD19A1553621827A4CDAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ Public Enemy feat. Paris - Remix Of A Nation (2007) [APE|Lossless] <Hip Hop, Con
 ```bash
 magnet:?xt=urn:btih:2F0BF6733C707493800C01DC77E4D7A3680AA86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:098B5C6BA5376BD03B9D09FBF7BFDC4874C3AC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:123D60ED12BDF7DE247FD986C92DA5D0DB477987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ VA - Vocal Trance - Love Collection (vol. 2) (2014) [MP3|320 кб/с]<Trance, Vo
 ```bash
 magnet:?xt=urn:btih:49B5CBCE3ADA61EC854020736F038B19AB48F31B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ Sub Pub Music - Revolt (2014) [MP3|128 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:D27D26AE33F90D60EFFB69D83EA59E79DAE859B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +492,7 @@ Mefjus - Emulation (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:8FDD24439093168A61012C126DD990CE8FAC1017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +526,7 @@ Julie Anne - With A Twist (2014) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:64E4C675F53F156BCF2E93AE3B72C0833945BE05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04F89706864ED2FE2BE2C4D624ABCD0B030A4DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE5127EA208A8F2AF306FCEDD6157BE0447267AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +611,7 @@ Ron Clearfield - The Healing Muse (2014) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:D2B7A5EF7FF6178E2C393F54B5C2533E52417380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +644,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:88473958A8EB22354D3305E9F98C062C88583E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +678,7 @@ Paul Avgerinos - Bhakti (2014) [MP3|320 кб/с]<New Age, World, Meditative>
 ```bash
 magnet:?xt=urn:btih:892D1BA4304B8558175420AD865E02DF653913A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +712,7 @@ VA - Jazz District: Cool Jazz (2013) [MP3|128-256 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:A33D1F6890D8578578058307610C1650FC43BBAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +741,7 @@ Michel Legrand & Company - Le Jazz Grand (1990) [FLAC|Lossless]<Jazz,  Mainstrea
 ```bash
 magnet:?xt=urn:btih:FB46B46C6B3F3CAF9877E1E3E41FF896CBBADA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -799,8 +775,7 @@ Jamie Cullum - Interlude (2014) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:C58B57EB1772F9B4DB9C6D662B3C5E58B015AC50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -831,8 +806,7 @@ BadboE - Breakbeat Paradise Exclusive Showcase Mix (2011) [MP3|320 кб/с]<Nu F
 ```bash
 magnet:?xt=urn:btih:1F667B024FF85103F300AA960DA1E707E589195A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

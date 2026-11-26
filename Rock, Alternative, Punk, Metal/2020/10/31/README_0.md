@@ -22,8 +22,7 @@ Ashenvoid - Psalms of the Grave Serpent (2020) [MP3|320 Kbps] <Heavy Metal, Doom
 ```bash
 magnet:?xt=urn:btih:F328EDFAF41C9F29C8B344B4FB59EDCF0799777C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ c.) Reaction(   Читать дальше...   )Жанр: Progressive Rock, Retr
 ```bash
 magnet:?xt=urn:btih:6DC7BECA77961FE85E5C699ADF939E977B044E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Seraphic - Chrysalis (2020) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:DBB5297F3185BBF918A3BAB431048397D474BA2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jester's Tears - Perception (2020) [MP3|320 Kbps] <Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:3AE221593619B6914E2CFB338BC83D232DAF023A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Experimentalists - An Experimental Salute To Led Zeppelin IV (2009) [MP3|320
 ```bash
 magnet:?xt=urn:btih:BA945963E037887C63BB17CCB6552D5AE0C8AC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:11AD25D3AB376113F22F43B45C82A3C6C10DCDB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lamb Of God - Lamb Of God (2020) [FLAC|Lossless|image + .cue] <Groove Metal>
 ```bash
 magnet:?xt=urn:btih:CC50CA0046E6BB4588743119D5491803F481DAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

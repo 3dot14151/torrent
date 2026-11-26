@@ -18,8 +18,7 @@ Egao no Taenai Shokuba Desu | A Mangaka`s Weirdly Wonderful Workplace | Рабо
 ```bash
 magnet:?xt=urn:btih:624FB3842FA37B1CBED1D5287C26A2BC6145BC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ StarCraft - легендарная стратегия в реальном вре
 ```bash
 magnet:?xt=urn:btih:9B9D617053BD671BD9981C79427405ED48797CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Unpacking - медитативная игра, где нужно достава�
 ```bash
 magnet:?xt=urn:btih:2C7F672309628B5698FF4B8A45187F43CA20B2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 ```bash
 magnet:?xt=urn:btih:C500A90790B59BD363C04C87678F1E687B10A526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 ```bash
 magnet:?xt=urn:btih:10A6DA9D384906EC4A167297F8F88D3C3A6B5D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ SUPERHOT - это шутер от первого лица, где время д�
 ```bash
 magnet:?xt=urn:btih:E53FFC89378A982FCEA5996586C49AB5F54C7E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ A Short Hike (2019) [Multi] (1.9_v3) License GOG
 ```bash
 magnet:?xt=urn:btih:7B86798A1B51EA259F1A50E300EAB468975B5386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
 ```bash
 magnet:?xt=urn:btih:0AFBDF5B73684841B58D8F813BB77566C1CE8648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0ABC16170BC81ECD3C1B7547305E6B749B43D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7119E7342AF470EBB19C322B0EADF5F2E7F18C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4491395FD8E6486C1924D34B094C3BA564ADC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 ```bash
 magnet:?xt=urn:btih:184E1070FD6642699F5DCC2E2351FF9A998C1AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 ```bash
 magnet:?xt=urn:btih:3AF2C7747681F98A152D642D81324563205474C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ MotoGP. Этап 19 из 22. Гран-при Австралии. Спринт (1
 ```bash
 magnet:?xt=urn:btih:DEE561287821982672698F86BE1BB9C7AEEA9328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:FEBBA3BB92C2E6BAF7DBC560CBBF8BF1EF1E0191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C34D0497959F07574DE25AF9F218D1A4A1A0180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02E0A67C6A2EA208FEAF563EF762C1ECBBC85DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ Genius Art: Image AI Generator v1.5.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9E9E2B45DCD225BF1AE0583D41CB6974CD72490C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +470,7 @@ VK Музыка: песни и подкасты v8.0 b11466 Mod by VK Equals [Ru
 ```bash
 magnet:?xt=urn:btih:8D877F1CCE9C86EF489E7244EBDEAA7879FE2A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E8390785146F42C701ED91C04830BA6D0C05D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +520,7 @@ New Super Lucky's Tale (2020) [Ru/Multi] (Build 10670184) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:82F8E2E2363AC463FF6D9858A281E00D235CA7B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F56842E482F91059483C9DE1A229E8825E6E426C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ Cyanide - 21 Gun Salute (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FE51A2DE7F74960EB85935F0D076F5033CAB5F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ Dune 2000 - стратегия в реальном времени с видом 
 ```bash
 magnet:?xt=urn:btih:4236E5D1AC6EE80C9A7F8F0A7E7E339B0C75E21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ Kiss - американская рок-группа, основанная в Н�
 ```bash
 magnet:?xt=urn:btih:AC65E7D5EA5230E21A77CCD56329767C9A6E4FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4A1D6EA84E7098E7DB673B63D8516B0C28D1257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

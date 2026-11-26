@@ -21,8 +21,7 @@ Camera ZOOM FX Premium v6.3.8 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F1634BFBF980230C0EAEA26225190E1448175415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3823B1D63F3A032A739F4966839A0EBECCD9CA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D5669FB28E9048FA87A41E8BB948A3DC89D5577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A3836764D131AAF2E8028B05C58E5C77FC22B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Skillshare, Daniel Kim | Spaceship Concept Art with Affinity Photo and Blender 2
 ```bash
 magnet:?xt=urn:btih:D2CCF478D802B3BC2D8A19BEF47CBCBE2B62D99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6064C45A3F042186DE178A7AE9E7E312CDD3FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B29A98B9077263DF8BD6CAEF948203B8B82E3C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:499208159A39E3E69D3A5DCA2F96A8523E044216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Office 2013-2021 C2R Install  7.4.8 ++ x64 Portable by Ratiborus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8A5DD116D5113999BEFA4E656E98DD8100FB2F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Skillshare, Daniel Kim | Space Marine Helmet - 3D Game Art with Blender and Subs
 ```bash
 magnet:?xt=urn:btih:F54E41CB40E5583C03E16190DF43CAE6DDC4ECB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Machikado Mazoku | The Demon Girl Next Door | Городская дьяволи�
 ```bash
 magnet:?xt=urn:btih:5F2A690B3C34E4303DEBCAF5836ACC14B420024A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 ```bash
 magnet:?xt=urn:btih:DDC26485941BDD9874F97AE7E61F9492FFD03F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF17CD52BBAC4F5084A12478282B00D9A4FA9B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66ACCAEE7B18F0002D01A6FC13E20FFEEA0F1D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB6550B8D857035F04AB8EC29CC7BEF0B44CBF38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ Skillshare, Daniel Kim | Sci-Fi Character Armor with Blender and Substance Paint
 ```bash
 magnet:?xt=urn:btih:EAA9763E1CF6FCA6B9A0CE07FDF12C292DC21406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10A5304AB30845DA7E354570BB325314220970BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ Adobe Photoshop – многофункциональный графически�
 ```bash
 magnet:?xt=urn:btih:3F34BDF6332F2C91219FA9FB6E1FC22CCAAB6D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ Skillshare, Daniel Kim | Sci-Fi Vehicle Creation with Blender and Substance Pain
 ```bash
 magnet:?xt=urn:btih:9E3393ABF66FF1D89FFC6F19D7B99C63742365D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B6C460E3A7F4C7F278403BA8824AC9FC51C3BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ ru-ru_windows_10_business_editions_version_22h2_x64_dvd_61849fe8
 ```bash
 magnet:?xt=urn:btih:72AEF20A7D807FD3A12184D05A16418C01D62013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26F40C5B9FB5331D93A162AD833FC92622E809A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40C372565A9850F0AF37710C9BDBF7F5BE117A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ AmanVPN - качественное программное решение как 
 ```bash
 magnet:?xt=urn:btih:7475824DAB786B8744EB1479333D32655517283B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +638,7 @@ Somerville (2022) [Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D38358B188554E0E9877526806D9A4D8C686A043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +663,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other 
 ```bash
 magnet:?xt=urn:btih:554161F9D099D82E98DF00327525EB92E38AA044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ A5. Канатоходец(   Читать дальше...   )Жанр: Chanson�
 ```bash
 magnet:?xt=urn:btih:6FC1898EB8ED1CEB1940D660A3A00F27217BC1AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

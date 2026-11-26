@@ -19,8 +19,7 @@ Wind Peaks - это поисковая игра, вручную нарисова
 ```bash
 magnet:?xt=urn:btih:0FE05F58CA645C01DC420021ABD344847710F184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

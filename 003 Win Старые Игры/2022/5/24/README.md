@@ -19,8 +19,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 ```bash
 magnet:?xt=urn:btih:4BD531019C344172234D7B8F390F0B4881D58935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

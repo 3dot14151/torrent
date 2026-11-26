@@ -22,8 +22,7 @@ Another Messiah - Dark Dreams, My Child (2007) [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:F00C39A6DD4619E2A88DAA1CF6A4CD24CC7E7EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Frailty - Ways of the Dead (2017) [MP3|320 Kbps] <Doom, Death Metal>
 ```bash
 magnet:?xt=urn:btih:E1CBD392C458F549F2012930AE857891EAF398E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Somehow (03:50)(   Читать дальше...   )Жанр: RockПродолж�
 ```bash
 magnet:?xt=urn:btih:833194C1F6606CBE539942908C8A9A62A3515BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Orpheus Blade - Wolf's Cry (2015) [MP3|320 Kbps] <Progressive Metal, Avant-Garde
 ```bash
 magnet:?xt=urn:btih:B77CA3933274AC5C7BE7A62D0ABE39C059A203E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Come To Dolly - Desire (2017) [MP3|320 Kbps] <Alternative Metal, Progressive Met
 ```bash
 magnet:?xt=urn:btih:76572CC064D53C31F3295A5C459CEE9D9F94E297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2705A6EA49DD4BFC0CE85ACAC38CE506B645C286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Call The Mothership - 2 Альбома (2014-2017) [MP3|320 кб/с]<Progressive
 ```bash
 magnet:?xt=urn:btih:ECA7274B55A1AB742362B6C48E8E1CF22663289B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Lodz - Time Doesn't Heal Anything (2017) [MP3|320 Kbps] <Atmospheric Post-Hardco
 ```bash
 magnet:?xt=urn:btih:165B963B5456E8D39474BF7CC0492B30F09669C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Heart Attack - The Resilience (2017) [MP3|320 Kbps] <Modern Thrash, Groove Metal
 ```bash
 magnet:?xt=urn:btih:A525768C952E7C299C3AEA27881CFE9E79362846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Davey Suicide - Made From Fire (2017) [MP3|320 Kbps] <Industrial Metal, Alternat
 ```bash
 magnet:?xt=urn:btih:2D114081E3EA70A7BECD6CD294B4B6569846575B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Heretoir - The Circle (2017) [MP3|320 Kbps] <Post-Black Metal, Depressive Rock>
 ```bash
 magnet:?xt=urn:btih:997889230F3F9BCF0EA976D2BEEB46F12A47EAEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Starset - американская рок группа, из Колумбуса,
 ```bash
 magnet:?xt=urn:btih:5FD50BC73E42A74D498B58EC9E6124AC13A7644A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ DISC 4 - New York, Miami And PhiladelphiaЖанр: Pop, RockПродолжите
 ```bash
 magnet:?xt=urn:btih:EF2F9753C26B9550DE005AC1CEDA223CF5A5F189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

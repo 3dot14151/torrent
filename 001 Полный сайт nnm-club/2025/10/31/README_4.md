@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3C9E7F24D1DF820ADBF6C4787C46C42BF917BA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7078AA95FB5744A430984FA445BFAC7AE0064E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ MediaHuman YouTube Downloader 3.9.17 (3010) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:55126C19BAE4A32B815521763A38C47BC014EDDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Mortal Kombat: Legacy Kollection позволит игрокам узнать и
 ```bash
 magnet:?xt=urn:btih:9323FDE004B5573331A1B026B6C8BA6ED667DFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

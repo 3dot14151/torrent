@@ -19,8 +19,7 @@ AnExplorer PRO File Manager v4.0.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BB11D491673CFA7C2672D609E3A5396BF1FED997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

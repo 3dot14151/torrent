@@ -26,8 +26,7 @@ AlReader — удобная программа для чтения электр�
 ```bash
 magnet:?xt=urn:btih:A43D70F7C6C26813DCD361BEB9C37CC86455F514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

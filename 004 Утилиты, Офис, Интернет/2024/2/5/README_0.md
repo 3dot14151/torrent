@@ -19,8 +19,7 @@ Cobian Reflector - это программа, позволяющая польз�
 ```bash
 magnet:?xt=urn:btih:84C79612B5BAC489E82E24A664B06ECCFA845ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

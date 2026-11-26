@@ -22,8 +22,7 @@ Sunny Day Real Estate (или SDRE) — американская музыкал�
 ```bash
 magnet:?xt=urn:btih:B62F6BCFE37E7191B872B26D0435470DB105EF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

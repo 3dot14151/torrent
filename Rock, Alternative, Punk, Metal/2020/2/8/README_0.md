@@ -22,8 +22,7 @@ Loathe - I Let It in and It Took Everything (2020) [MP3|320 Kbps] <Progressive M
 ```bash
 magnet:?xt=urn:btih:B07B234E4C0A6B859E2EF120B27046A89BD3EB59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sylosis - Cycle of Suffering (2020) [MP3|320 Kbps] <Melodic Death Metal, Thrash 
 ```bash
 magnet:?xt=urn:btih:07CCDD4D63807DB8880A56F8A1C65C4A58DD0741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Giobia - Plasmatic Idol (2020) Giöbia [FLAC|Lossless|WEB-DL|tracks] <Psychedeli
 ```bash
 magnet:?xt=urn:btih:CAC974B7AAFC615C8B7E3CB8C814E4E3D9D23213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ M-Opus - Origins (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:B43A4EDAE7AF2B23703F31D8BF84F8393E94309B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:B8D773ADC3A057D86879D94808879C9941D7423E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ravenword - Transcendence (2020) [MP3|320 Kbps] <Metal>
 ```bash
 magnet:?xt=urn:btih:005C1E8381928433663A8EBE4E5833B5E8FD903A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Delain - Apocalypse & Chill (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:69DAF36A0B9A86326135D64D78ED5770E5DE2CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Mando Diao - шведская рок-группа, история котрой �
 ```bash
 magnet:?xt=urn:btih:9F31EB36219E440B478BA1EFAD7FE555CC4F0F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

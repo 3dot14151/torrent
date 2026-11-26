@@ -19,8 +19,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (1.2.52488/dlc) License GOG [Pre
 ```bash
 magnet:?xt=urn:btih:730D63FD8120A46669D74B05CEDCE672A996EC7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Frank and Drake (2023) [Multi] (1.0.1) Scene Tenoke [Special Edition]
 ```bash
 magnet:?xt=urn:btih:7DE066518432FF2869D12769AFCAAD6AA4D26D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.3.23.08:181/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7F523100F048766B580E634C57CE405722B06D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dungeon 100 (2023) [Ru/Multi] (1.03) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:538D95182BC09476A82AA57DFF9CC7AE36279387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8A6D5B0FB1CFC843362C41744201A91933EDDD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

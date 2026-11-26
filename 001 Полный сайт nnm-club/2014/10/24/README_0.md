@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B9E1F170E82EEA9529FEA3F7AA99373A69C7C3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ CoolUtils Total Image Converter - преобразует изображения 
 ```bash
 magnet:?xt=urn:btih:0B1537D1D112448E2E92DBB68C40B43685F4BDF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Renato Sellani Trio - My Foolish Heart (2008) [FLAC|Lossless]<Jazz, Cool, Piano 
 ```bash
 magnet:?xt=urn:btih:DB5AA463A70DAAFAA1338A79BA4B4B688AEE693C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E781BA09FC7AD395242E3740F8EA64CA06618501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Susan Boyle - Hope (2014) [FLAC|Lossless]<Pop, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:FF4EC873A3DBB073C5E968B1F4FCA7F5F11B4343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4037FF7AA48934123FC88D61C0B158B77D89DE22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Tomandandy - Обитель зла: Возмездие / Resident Evil: Retribut
 ```bash
 magnet:?xt=urn:btih:FE6EDE983E598CDA24416AEB518E387916516BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Lunasa - Otherworld (1999) [MP3|320 кб/с]<Instrumental, Celtic>
 ```bash
 magnet:?xt=urn:btih:9B315F8089255AA7FE1F0BE6069B2BA74AD0547C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E04691DAFA03CCC5BA1016C3D6B6DE66D477632C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C668C9196FE5F31E8195B2E98162793AE79F87A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD5FCAC723D2481F165032E3A2E1FEB811DDAE3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DD823F36B74A3FABD543F2B16D639D56D44ADD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ Lights Dim with Gallery Six - Between Spaces (2013) [FLAC|Lossless] <Ambient>
 ```bash
 magnet:?xt=urn:btih:B91E526B1EA14994414BCF7DB074F43EE49E4B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:4A3EE00CE888BA84F1A45967BC2FFC7E8D25E966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ The Mon Amour Band - Angel Of The Deep: The Best Of Mon Amour (2014) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:01B7DF801AD525F15DAB92B2CFA03C28644F8239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ Jerry Lee Lewis - The Gallery Of American Rock'N'Roll vol 6. 28 Great Song (2001
 ```bash
 magnet:?xt=urn:btih:D068CB0B673DA2F1F825ADF2AC40DDB189369EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ VA - Das beste aus Peter's Pop-Show (2014) [MP3|320 кб/с]<Top 40, Pop, Rock, 
 ```bash
 magnet:?xt=urn:btih:1DF7AE9A1B91F3BE6925B49FE9F09AD745F25E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +551,7 @@ Kerish Doctor 2014 — Комплексное решение для ухода �
 ```bash
 magnet:?xt=urn:btih:D82AA4FEA6F9D67B73BE8FA68E6553EE025A5A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ Lagwagon - 10 Альбомов (1992-2014) [MP3|320 кб/с]<Punk Rock, Skate Pu
 ```bash
 magnet:?xt=urn:btih:DE12A4F4B300494853626A5B4235719F868DF265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ Atticus Ross - The Book Of Eli (Original Motion Picture Score) + Unofficial Soun
 ```bash
 magnet:?xt=urn:btih:C0C482720DB07893CB0D24396E13070ACB716F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ The Roots - ...And Then You Shoot Your Cousin (2014) [FLAC|Lossless] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:54EC41DA56354D6C98963A3CB9FAB398BB13FB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ Comedy Баттл. Суперсезон. Выпуск №29  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:9379C4FBF3A2222238694DDB8BCE46FEF3CE1430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E87FF62F99F4BEABF7C71CBE006FE50E5E766AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ Comedy Баттл. Суперсезон. Выпуск №29  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:BBCE083158A23DE62379C3A4606269D070A4F95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BAB506FB89358236B6C14BA054D4E44CA9C9ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

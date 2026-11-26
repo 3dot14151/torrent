@@ -19,8 +19,7 @@ Chimeras 12: Inhuman Nature (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:80563CCA6952E273B14AC7005D6EE2DC2F3E29A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

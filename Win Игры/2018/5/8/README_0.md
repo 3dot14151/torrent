@@ -19,8 +19,7 @@ Edge of Reality 3: Fatal Luck / Край Реальности 3: Роковая 
 ```bash
 magnet:?xt=urn:btih:43F1FCDDEBCCBC62FDAD99A2D1B6D564E90A447E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trailblazers (2018) [Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7F2396256BE497300B49996623CCCBEAE23C6EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9890D0F4ABF4BEAF96B5D42C4A492A03BE7F8B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

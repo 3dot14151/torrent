@@ -18,8 +18,7 @@ Josh - Lost Vibe (2011) [MP3|320 kbps]<Deep House>
 ```bash
 magnet:?xt=urn:btih:6F78B714B9903C54C63576B72E502341284E718A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ UX - Ultimate Experience (1997) [MP3|320 kbps]<GOA>
 ```bash
 magnet:?xt=urn:btih:5941DB6E742EBD79D19F0172947F33B7A0270157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Club BigSOUNDGroup - House from sun7simbirsk (2011) [MP3|320 kbps]<Club, Ho
 ```bash
 magnet:?xt=urn:btih:C6F326302892FC9F30B86F86F90E5466F66AC118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Something We Can Do (2011) [MP3|320 kbps]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:F9F98A67381003AC09ED44734A4ED85ACC246046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Keeno - The View / You Know That Feeling When (2011) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:DC22330738F5925292C2A47CDF07824BCC34D2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Лучшая 200ка Mega хитов Интернациональная 3 5
 ```bash
 magnet:?xt=urn:btih:7E8C9B6C69CF9D0E843D65990F9DE5F755ED900B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Лучшая 200ка Super хитов 4 (2011) [MP3|128-320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:DB7D48EF53178EA116E2634844F6C2DEE95B837F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1C9B0608644EC6AC5B21404115EFA9563FD7021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Various Artists - Drum'n'Bass Essentials Vol. 3 (2011) [MP3|192-320 kbps]<Drum &
 ```bash
 magnet:?xt=urn:btih:080AD573B53462C046A3C6A918F4718D74578C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Interface - Voodoo Science EP (2011) [MP3|320 kbps]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:63AFAF8E0A0523DC31B9698648ACEFF3E60004CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Wayman Tisdale - The Very Best Of Wayman Tisdale (2007) [FLAC|Lossless]<Jazz-Fun
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ ID#: UAFR018
 ```bash
 magnet:?xt=urn:btih:2C046CF99CAA01C50819CC9EF2660F164CF9E87D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D3F774840873FCF8839B6B420FC62FEF29E6733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F04572C2CF6EDE748B1447FEC3858F428407650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ Ferry Corsten - Corsten's Countdown 200: Top 10 April (27.04.2011) [MP3|256 kbps
 ```bash
 magnet:?xt=urn:btih:AE33C717ABD8E22DD2DDAE73E5477028BDC59FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ Markus Schulz - Global DJ Broadcast - guest Omnia (28.04.2011) [MP3|256 kbps]<Tr
 ```bash
 magnet:?xt=urn:btih:3B5E1BA6E42078C1BD4B7677ED7B3E3FC5BEF99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ Pera Joe - Sessionman (2002) [APE|Lossless]<Blues, Harmonica Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ VA - XXXL Клубный сезон 50/50 (2011) [MP3|256-320 kbps]<Pop/Club>
 ```bash
 magnet:?xt=urn:btih:75B8430721ADFDB4283DBD756BE23ED5AEA4AB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ LOL - Me Me (2011) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:01836B84B26E3A281DB1ADA9336DB079BDCCC8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2725D58EB1E8A72BC360E939637FE16157B8D037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +642,7 @@ Ben Benjamin - For Long Drives & Temporary Diversions (2011) [MP3|320 kbps]<Mini
 ```bash
 magnet:?xt=urn:btih:5DCC1D6C2FCE7CAFC9D704D362716E7EA6FF6102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3711D960D5317F6E7030381AE045525CCE970376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +701,7 @@ Jeff Steinberg - Velvet Martini - A Retro European Lounge Mix (2009) [FLAC|Lossl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +735,7 @@ Iphaze - Worship (2011) [MP3|192-320 kbps]<Drum&Bass>
 ```bash
 magnet:?xt=urn:btih:4E921F34AF6B3DDFED3D76828777D6FB0FD11DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ VA - Танцевальный Микс Зарубежных Хитов (2012) [M
 ```bash
 magnet:?xt=urn:btih:117E6DFB81CF0ABA02BF807DB0A98EFBE8FAA33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Танцевальный Беспредел (2012) [MP3|256 кб/с]<Pop, D
 ```bash
 magnet:?xt=urn:btih:2067430EC9F995A12F2920B8ED67DA0D4518A8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Jim White - Where It Hits You (2012) [MP3|320 kbps]<Americana, Indie Folk>
 ```bash
 magnet:?xt=urn:btih:D00798F36A986B7FC2BF84B8B915C707948A01C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Emmylou Harris - Red Dirt Girl (2000) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:D72FAC90E44BF9B4B97F583F1C5A4B579BB93586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Andy Summers - A Windham Hill Retrospective (1998) [FLAC|Lossless]<Fusion>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F912F3D9B15C691714EAA6A3AE41101DD9B8FE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Hot Club Zagreb - Hot Club Zagreb (2003) [FLAC|Lossless]<Swing, Gypsy>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ VA - Музыкальный Король Ринга (2012) [MP3|256 kbps]<Pop | 
 ```bash
 magnet:?xt=urn:btih:5C46ED22AE1FEBF916179BD662403AF956667FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF0F33318F4E32E50E6369487A0091A5E6A6FD7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2E9B661314EE5B79478AADDBC3666EDEC5CF898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ Andy Snitzer - Some Quiet Place (1999) [FLAC|Lossless]<Contemporary Jazz, Crosso
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ Media Player Classic HomeCinema – удобный во всех планах м
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:558E0A99BB0FDB84AB8A9CFEC4C5E7C6CB4E1221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F104CA679AEF966DC359A940929E3066B4996185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +463,7 @@ VA - Fresh, Sharp & Sweet (1996) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +497,7 @@ Shyam Sharan Nepali - Journey to Nepal (2000) [MP3|320 kbps]< Ethnic>
 ```bash
 magnet:?xt=urn:btih:4C6A9F08049EC796A0951E96114C7088200D0528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +527,7 @@ Sur Sudha - Melodies Of Nepal (1996) [FLAC|Lossless]<Ethnic, Nepal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:920728C116A721168A1E1FDF213B2A2C51A229D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F492F6748658EE87890524876E59A9F790B9E9AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +618,7 @@ Sur Sudha - Festivals of Nepal (1999) [MP3|256 kbps]<Ethnic, Nepal>
 ```bash
 magnet:?xt=urn:btih:E25CB67AA849C59BAA6B6F4821F35CB76314E5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:543AB498721C80C004FE75AB0AAFCD60F865E02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +681,7 @@ Cosmorama - Space Odyssey (2000) [MP3|320 кб/с]<Drum'n'Bass, Intelligent>
 ```bash
 magnet:?xt=urn:btih:7C0423F0B9E9ACD23E28A3A116092EDBEA4DABD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06BD13F4738EE3F0A976DCEB8D8CD5CA432BF675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +741,7 @@ Carolina Chocolate Drops - Leaving Eden (2012) [MP3|320 kbps]<Bluegrass, Folk>
 ```bash
 magnet:?xt=urn:btih:FEB7F8FAB853CC85DB73700F4CA633634B2EF3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -799,8 +775,7 @@ Josh Turner - Icon (2011) [MP3|320 kbps]<Country>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -834,8 +809,7 @@ CD1 Продолжительность: 01:17:27
 ```bash
 magnet:?xt=urn:btih:FA3CA5391D961479704DD10A2E93748DBCC2CE4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

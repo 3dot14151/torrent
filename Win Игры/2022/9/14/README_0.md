@@ -19,8 +19,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.15/dlc) Repack Other s [Cultist Edition]
 ```bash
 magnet:?xt=urn:btih:287F98FD6A87994015877F7D7FF51459BAB6735B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legend of Grimrock – это ролевая игра об исследован�
 ```bash
 magnet:?xt=urn:btih:FF09BDE26DAE41C398A3F5970A373BC66CCC061A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Sinsaenum - Echoes Of The Tortured (2016) [FLAC|Lossless|image + .cue] <Death Me
 ```bash
 magnet:?xt=urn:btih:75345F3E67E2B26DD82636D15F055747583E8B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kadaverficker - Kaos Nekros Kosmos (2020) [APE|Lossless|image + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:F23FA84B08E264469941C049AE384177E0B051E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A Taste of Fear - God's Design (2017) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 ```bash
 magnet:?xt=urn:btih:9B0ADA228441E4C1268CEA8098DE19E9E070F8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Acanthosis - Scriptures of the Accursed (2022) [FLAC|Lossless|WEB-DL|tracks] <Te
 ```bash
 magnet:?xt=urn:btih:A4877F851F39A40B99394E5C830CE8BDF7E4E883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Schandmaul - Knuppel Aus Dem Sack (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Met
 ```bash
 magnet:?xt=urn:btih:21415149DB4EB9383D1B21F490F671E4AB78CD43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Cliff Magness: «Многие песни, включенные в этот сб�
 ```bash
 magnet:?xt=urn:btih:526CBF14103ED696CC5379B9FD1A7C8795EBFE99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Abigail - Intercourse & Lust (1996) Reissue, 2018, Fallen-Angels Productions [FL
 ```bash
 magnet:?xt=urn:btih:74F2352174E196DF4FD872B4189A25861B384A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Bryan Adams - Classic Pt. II (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop Rock, So
 ```bash
 magnet:?xt=urn:btih:2E7C28EE9F0282C8F55CF26745BA37CE93E2A90A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

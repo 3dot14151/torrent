@@ -22,8 +22,7 @@ Digimortal - Дети галактики (2015) [FLAC|Lossless|tracks + .cue] <I
 ```bash
 magnet:?xt=urn:btih:77C1EDE61FC6C34E34C4B906A5B969F88F3F48C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

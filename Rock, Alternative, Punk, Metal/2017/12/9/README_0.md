@@ -22,8 +22,7 @@ Polecats - Polecats Are Go! (1981) Reissue CD, 2003, Anagram Records [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:02A9601566A3CF2B376248BFEF594DE5EEDEA63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Belle and Sebastian - How to Solve Our Human Problems (Part 1) (2017) EP [FLAC|L
 ```bash
 magnet:?xt=urn:btih:C61D3F9A431F7EFA511EFE024953813984C44EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Story Of The Year - Wolves (2017) [MP3|320 Kbps] <Alternative Rock, Post-Hardcor
 ```bash
 magnet:?xt=urn:btih:6EE8DD39E32A715164247914B210226F3761DC8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC4496BDF9F70A198569289BF5242A3BD535A008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCFCA3C615970461896C3F6ED04A54F7AEE58832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

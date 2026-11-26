@@ -22,8 +22,7 @@ DIIV - Deceiver (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Ro
 ```bash
 magnet:?xt=urn:btih:A22AAC5D9D092901FA38E777789878E22D4961E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Menzingers - Hello Exile (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 ```bash
 magnet:?xt=urn:btih:D65290BE22346FF48344C74F161F193F6103A959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Wilco - Ode to Joy (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative
 ```bash
 magnet:?xt=urn:btih:2C664F2D236E672E7A5B9A869AB436A78B1BFD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Oceans of Slumber - Winter (2016) [FLAC|Lossless|image + .cue] <Progressive Meta
 ```bash
 magnet:?xt=urn:btih:78D43DC80152B399EB99F5F1084BF96EF8374E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Casual - #Не_Умру_По_Утру (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:74DA5E986A8318C7A95F878F5B2B71237C437478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98342C62DBAAACF7ED6CD2245287F3CDBDE6207E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53EB4BA8436C257B8782BA906C8A6395A0CFABA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBD654186A706BFBF1A5CBC462409C5AF262FE56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D2D9891664BD2FE91C508D42233381FEBD1CBEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A6040F32D939EC74011E5EAE13DCC4292B4EFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

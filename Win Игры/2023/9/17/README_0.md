@@ -19,8 +19,7 @@ Our Life: Beginnings & Always - визуальная новелла с нотк�
 ```bash
 magnet:?xt=urn:btih:90793EEE8413A35F541FA33897F4FD8BD413131D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sword and Fairy 7 - китайская приключенческая ролев
 ```bash
 magnet:?xt=urn:btih:F9DC93F15843F623FCA05417B3CD87F7289A72AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Downfall: Redux (2016) [Ru/Multi] (1.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:07AE5EAC572771B14F9CB01046045EE6C1D954A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0a) License GOG
 ```bash
 magnet:?xt=urn:btih:A65141A9B9B37948F562738EBA92728597C1CF46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

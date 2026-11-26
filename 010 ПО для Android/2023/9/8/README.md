@@ -19,8 +19,7 @@ Frolomuse - бесплатный музыкальный плеер, с мощн�
 ```bash
 magnet:?xt=urn:btih:24606E141ED4CE42DFAE704D2BC17493FF0F760B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Frolomuse - бесплатный музыкальный плеер, с мощн�
 ```bash
 magnet:?xt=urn:btih:AFCA6952521C9707121183B4953F52FECD835146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Haeres - Trom (2014) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:DBEA3A4D4465ABA554C3D5C149AED67DFFB9417E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jim Crean - Insatiable (2016) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7EFE657D1D994492958E1E13687A73D0A3EA1C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cold Blood - Lydia (1974) Remastered 2004 [FLAC|Lossless|tracks + .cue] <Rock, F
 ```bash
 magnet:?xt=urn:btih:811A8E5CA9ED4B70A89A103199682FD577CB9FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Knorkator - We Want Mohr (2014) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche 
 ```bash
 magnet:?xt=urn:btih:660F7A0035BF18D0834C9A2D82D9D4CA9D1D466E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Submarine Silence - Journey Through Mine (2016) ex-Moongarden [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:046D47FBBDB4AFED91916DD727FFED816D0DD5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Doro - Machine II Machine (1995) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard
 ```bash
 magnet:?xt=urn:btih:6C34D0BA84816AD3CA269DECA4D609C82A80269C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Goddo - In Goddo We Trust (1991) [MP3|320 Kbps] <Hard Rock, Prog Rock>
 ```bash
 magnet:?xt=urn:btih:E49B2A7DB77ED7B3D66D3887B18E9EE0F51BF7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ IQ - Live On The Road Of Bones (2015) [FLAC|Lossless|image + .cue] <Neo Progress
 ```bash
 magnet:?xt=urn:btih:63D6846622F122CC166DFA0B34466DF365708A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C07A4F8080B8B600C2B6E2C7AB971AE05839050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ CD 2 - Live At Waken 2013Жанр: Melodic Hard RockПродолжительно
 ```bash
 magnet:?xt=urn:btih:E3F071BE9DEB3979625FA78B1B0494C14C2E01A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Doro - Angels Never Die (1993) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard R
 ```bash
 magnet:?xt=urn:btih:6E7940F35C59BAE019B6B66BADDDB1E935AF5AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Jack Russell’s Great White - He Saw it Comin' (2017) [FLAC|lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:D05706E5054911FF7D2D616036394B99DCBE5972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Budgie - The Best of Budgie (1997) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E55FF0CCCDA21390E9C807D95912DA8E57AE2369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Knorkator - Ich Bin Der Boss (2016) [MP3|320 Kbps] <Industrial Metal, Neue Deuts
 ```bash
 magnet:?xt=urn:btih:7BB3E5A8E49CD0F38B19D32CB9BC0385BB639A0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

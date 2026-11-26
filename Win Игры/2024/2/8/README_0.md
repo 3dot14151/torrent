@@ -19,8 +19,7 @@ Chorus (2021) [Ru/Multi] (1.0.9.216752/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:CB6A016381036F0644F8859AE3366752A43E78C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Splice (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4AED28822405D720FAC57F17E9DF2855BBF61369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Heroes of Eternal Quest – окунитесь с головой в настоя
 ```bash
 magnet:?xt=urn:btih:9EF3CDB570B3DF05CDCB70F324DFC4B7E94CEE22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Don't Pee – вы внезапно проснулись посреди ночи
 ```bash
 magnet:?xt=urn:btih:5BF3472549A5169144CBE7639E38D61A098D78E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Legendary Hoplite использует сеттинг, вдохновленно�
 ```bash
 magnet:?xt=urn:btih:575E15430D0F8CB72847E841532962ED70C24A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Murder Is Game Over: Deal Killer (2024) [En] (2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A01F7C877E6C2C92D8E9E579DF46DE2DF9F73B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

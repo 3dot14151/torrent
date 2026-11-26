@@ -22,8 +22,7 @@ Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
 ```bash
 magnet:?xt=urn:btih:88007C3F068B9E72A568D1DB8F38B296D53994BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Yes - Yes (1969) Reissue, 1989, Atlantic [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:EE27532614A860E6CC88C393FC2270C71D8C418F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cavalera Conspiracy - Psychosis (2017) [MP3|320 Kbps] <Groove Metal, Thrash Meta
 ```bash
 magnet:?xt=urn:btih:BD29A203F5056CB6A250E700E37C5B6E0C1886F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tarja - From Spirits and Ghosts (Score for a Dark Christmas) (2017) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:CE6090B5E5FB0AC974A2C8B7A8A5D11EB5FA478F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Stalker - Shadow Of The Sword (2017) [MP3|320 Kbps] <Speed Metal>
 ```bash
 magnet:?xt=urn:btih:22692D4A99439C618606AECDC5C2AB6DD0DF6EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:EF1302F72DE311A95E11F556C373A6743C814F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Green Day - Greatest Hits: God's Favorite Band (2017) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:68011A90D16B99894089B2504E5C1350B7E1E404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Black Sabbath - The End (2017) Live [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FE86022A4E0FC6C1130AFAD48E45273392CA7A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

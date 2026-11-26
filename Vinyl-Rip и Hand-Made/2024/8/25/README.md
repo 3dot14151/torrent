@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7DA60F876CEC8B9EDF83D81E7C8008E8BDC6149A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Last Autumn's Dream — хард-рок-группа, образованная �
 ```bash
 magnet:?xt=urn:btih:206CD2C7FA19EF1F151EE71AB12A643235820B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Engelbert Humperdinck - Live at the London Palladium (2000) Unofficial Release [
 ```bash
 magnet:?xt=urn:btih:1E9D47BB657A57D8A66595C705CA0ACB7104B98B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

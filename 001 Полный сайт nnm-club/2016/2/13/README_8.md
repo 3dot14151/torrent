@@ -18,8 +18,7 @@ SPSS («Statistical Package for the Social Sciences», «статистичес�
 ```bash
 magnet:?xt=urn:btih:1E5FB69C060915A271EFCEFCA5C3989BA70F4C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:405170F4256734E45B56341E5A6B7E02AED50731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Microsoft Office 2007 предоставляет удобные и просты�
 ```bash
 magnet:?xt=urn:btih:1688011DFF945DCD9370F42EFF11C1B6E93DED69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Microsoft Office Picture Manager 2010 14.0.4750.1000 RePack by SPecialiST [Ru]
 ```bash
 magnet:?xt=urn:btih:597EE15DEAE16844515D0D5B12993B71F493E4EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ WinPE 10 Sergei Strelec (x86/x64) 12.02.2016 [Ru]
 ```bash
 magnet:?xt=urn:btih:0E88C201617FDDCDB20E4651C1907D7C9C3858FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2/upd1) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:EFAA48627FB78B86A1DB36CA8374578E6EE6D7E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85C02CC0069CEE78EFF33DC1BC8E82C02423F8D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

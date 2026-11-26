@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:496414F876DF70F11BA02D971E28D21D5FCD279D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7274F6391E5D824F64E28C5BAB3F9C26B23CBA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ T.C.Васючкова | Основы планирования с MS Project [20
 ```bash
 magnet:?xt=urn:btih:9E731B49733FB2019C17F13AF377B4B093CEE3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

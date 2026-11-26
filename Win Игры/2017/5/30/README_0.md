@@ -19,8 +19,7 @@ Dustoff Heli Rescue 2 (2017) [Ru/Multi] (21) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CCAEF5A0B7A30270113880BD5D905DF16C06B3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Danger Zone - это новая игра по уничтожению 3D-авто
 ```bash
 magnet:?xt=urn:btih:A06FF6606E9283BFF0AD72A12FE02A8F1ED75514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MXGP3 - The Official Motocross Videogame (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:7EF70CD7F864B2B0575C7D41EDA9FC0F16FA209F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Perception – это сюжетный приключенческий хорро
 ```bash
 magnet:?xt=urn:btih:4BACFEB66D18849DE7E2CBD8A44B36EE286B6A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

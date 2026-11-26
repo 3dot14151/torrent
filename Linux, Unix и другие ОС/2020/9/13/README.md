@@ -19,8 +19,7 @@ SystemRescueCd — это спасательной диск в системе Li
 ```bash
 magnet:?xt=urn:btih:1A444E67C2C143E27F9542AB30A2C84E1DB20949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

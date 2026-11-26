@@ -21,8 +21,7 @@ GRID Legends: Deluxe Edition включает в себя все DLC-пакет�
 ```bash
 magnet:?xt=urn:btih:12C17B8B9D10EE039A97FBA647E172BD6CC4D06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

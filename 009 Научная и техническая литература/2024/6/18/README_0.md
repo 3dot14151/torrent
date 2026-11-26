@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:925E563BFC16D878B8D44761ED8056AB461C2A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B6A4E757E397C6751537EC27A2F4A3A02CC5F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Routledge Introductions to Applied Linguistics is a series of introductory level
 ```bash
 magnet:?xt=urn:btih:2D675F018449AB15F3393460208713F89F87A093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Each story will involve an important lesson of the tools in the Spanish language
 ```bash
 magnet:?xt=urn:btih:A6252F69363A7C7CCAA75A583AFA0961FA77FEDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5F4006E128A0A0F8B76CC0A26713EA3A405AE5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

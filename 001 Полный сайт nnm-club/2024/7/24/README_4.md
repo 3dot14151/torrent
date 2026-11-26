@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:6126443B9A6DA8C25865DF01D261E701683E5D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - compilation  part 102 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:F529DF5E80B69243E75F4AFD819EAC23222312B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A8540F8B418D87189964FBA7A87BBD8BBB585CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8886A78607A85226F401E2821B3F87C00492603B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Застольное настроение (2020) [MP3|320 Kbps] <Поп, З
 ```bash
 magnet:?xt=urn:btih:C0E3DD2DF862D77C9D208F7892DC29BA58D18E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

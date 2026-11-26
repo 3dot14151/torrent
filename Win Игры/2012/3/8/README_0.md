@@ -19,8 +19,7 @@ Champion Chef (P) [En] 2007
 ```bash
 magnet:?xt=urn:btih:09829714E24BCCDF461E7E7C3F05109EE364B38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Settlers II: 10th Anniversary + The Next Generation / The The Settlers 2: Ю
 ```bash
 magnet:?xt=urn:btih:0CCA384E9029DB2117433EABE4675BAC29DFAFED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97647D4EBFB8BB9785601C665037642FCC723B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE75494CDB12537053F33E0F72C5CCD7AF6206CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Delicious 7: Emily's True Love. Premium Edition / Деликатесы Эмил�
 ```bash
 magnet:?xt=urn:btih:EF3FAAF1FDEE416246060E40790CD9E26F967F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14A93FD008C90286960FFA4F42A6B73D5C515767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:646FFB16D56F8D749E66C73E4F0A495AEAFDA833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Bubble Ducky / Утенок Пузырёк (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:FB7BA7681290EA2585826FC3DB9025B4B6BCB039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Whispers / Шепот (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:9C2D6A75B906D3A60BBC2B9D338CA20690AF73B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

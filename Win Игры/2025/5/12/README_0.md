@@ -19,8 +19,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.102/dlc) Repack FitGirl [Digital Col
 ```bash
 magnet:?xt=urn:btih:964A671434532A2E0B377405C218951CE2BE93A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F17A840765C17883D8DCFC829DDB44499ECD4C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Scene Rune [En
 ```bash
 magnet:?xt=urn:btih:0F31B085F2035A148F1D724165D2A96AB7881473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Codename: Ocean Keeper / Ocean Keeper: Dome Survival (2024) [Ru/Multi] (1.0) Rep
 ```bash
 magnet:?xt=urn:btih:84C18099AC8F87301E319DA96170E0FC2A678A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tank Squad - это тактический боевой экшен, в кото�
 ```bash
 magnet:?xt=urn:btih:56A6A15D93D241F920AF5C9D514F37741196C94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834) Repack seleZen [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:57467EC5126B96566E6D3E233EF92C73478598E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tales of Kenzera: ZAU (2024) [Ru/Multi] (1.5.0.45551) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:371052D02EABB45C8536CA86A21BE57D01ADB692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D008C6BC13D651ABD5F8226E3322514A4B052BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Rising Star 2 - ролевая игра в сочетании с симулят�
 ```bash
 magnet:?xt=urn:btih:D2A351E5FA5A79BC506151217945FDA3D161BCBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

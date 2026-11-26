@@ -18,8 +18,7 @@ Windows 10 Pro 22H2 19045.3324 x64 by SanLex [Lightweight] [Ru/En] (2023.08.12)
 ```bash
 magnet:?xt=urn:btih:38B7BD471F50E7B5D3CE6CEEB9BA69B5EDF37019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ VEGAS Image - мощная программа для работы с вашим�
 ```bash
 magnet:?xt=urn:btih:808A06308E65D69C97CE96EB593040D70E84D16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Opera One 101.0.4843.58 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6E4F8FB02FB440BA552C138A26FDE7E497A574D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:08D20E644130C1271645E62990BDEE285E8D62EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Xara Photo & Graphic Designer+ 23.3.0.67471 [Multi]
 ```bash
 magnet:?xt=urn:btih:F8113D65EEE8D78B86504E661A37DDD80924EC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:32BE6E5C9CF16C2B5B3B19CC18E301C98AF37B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:097F0661F1BA4C9C0A025A127C044EDC9E6FCC03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28090DE3D525B1861D83BEEC588E444C321A8274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Royal Romances 4: Endless Winter / Королевские романы 4: Веч
 ```bash
 magnet:?xt=urn:btih:A31E09696AD3EAE9419411E2249F873C09B121A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39AAEEA7075C60383CDBDAA6BC327380804B57A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ ExperienceIndexOK - небольшая утилита от разработчи�
 ```bash
 magnet:?xt=urn:btih:1C37E5DE6EF5546B16C95FDFCBE4F40202298958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F42C25D7178ACEB37E1AF1F2A1460A60B5055259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Shadow Flare (2002) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:FD1C346A347EEC60B0C11866B567FB307CFED840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B27C01C7E2CF81692AC2C46B3C4E0DE204C26CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Print.Test.Page.OK - это альтернативная портативная 
 ```bash
 magnet:?xt=urn:btih:FF0258706CAB99BE4071AC541AE67AE8B76325F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87CEDAE335E26DAEDD181BE8BAE601F6E4DCA39D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ FontViewOK 8.33 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AB504BC0F0F530BD27A70C9FDB6574ED1B313ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72170F06A0FE7D73382519313C0E847051B1F230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ VA - Power Workout - Gym Hits - Fitness and Healthy Lifestyle (2023) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:2B736272190F8A834EED487CE67EB5B1762E8622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:088EE4DF543BD68E5289610D0B62DD4095BF4E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ B1 No Escape From Now(   Читать дальше...   )Жанр: Heavy MetalП
 ```bash
 magnet:?xt=urn:btih:AC930CB49178CE821FAA5917B03CB286D01ABE26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4469370F0221D7322BC4C454740B398C1D1CBB3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77E084AD8D954AADBC61C39747F14BB4F9FBF36B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F24EECF1E7A78E81836617EF206332C051FBACAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +631,7 @@ Windows Update Viewer 0.5.19.0 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:6787544E25EC8CA5889B64BA565C1A7B0EDBA122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 ```bash
 magnet:?xt=urn:btih:BF95380FACFB97BD98D9F323ED30AB0BC3F7B7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

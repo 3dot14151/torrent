@@ -22,8 +22,7 @@ Concerto Moon - Ouroboros (2019) [WavPack|Lossless|image + .cue] <Neoclassical M
 ```bash
 magnet:?xt=urn:btih:AC51BD54951B127619B1779B985C8F0888E3EDF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gila - Дискография (3 альбома) (1971-1973) [MP3|320 Kbps] <Pro
 ```bash
 magnet:?xt=urn:btih:CDC16946A98EFA3FF3258943EBC94538CC37725A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

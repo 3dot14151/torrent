@@ -19,8 +19,7 @@ Darksiders: Wrath of War (2010) [Ru/En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:6ACE9AEE6A2DD74866995133E9D00311A376A61D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AVA - Alliance of Valiant Arms (2016) [Ru] (6990.29284) License
 ```bash
 magnet:?xt=urn:btih:EF7C9795EA44F6B305A713C4ED98726F1DD57291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Drift King это абсолютно крутой дрифт в режиме т�
 ```bash
 magnet:?xt=urn:btih:256FC3293248660C6132DA5753934B5DCDA175DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

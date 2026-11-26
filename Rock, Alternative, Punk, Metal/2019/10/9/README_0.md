@@ -22,8 +22,7 @@ The Darkness - Easter is Cancelled (2019) Deluxe Edition [MP3|320 kbps] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:54B682A2E76979E25BE178B26EEA90B6DAB6DD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tom Keifer Band (ex-Cinderella) - Rise (2019) [FLAC|Lossless|image + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:A1D1466B3D16AB584F05729EC7E7E8793870AE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

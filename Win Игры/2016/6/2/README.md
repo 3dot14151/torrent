@@ -19,8 +19,7 @@ Hidden Expedition 11: Midgard's End (2016) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:7B7CFC378C70727B270E75AFFF1F7F538E2F4A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nancy Drew: Sea of Darkness / Нэнси Дрю: Песнь темных вод 
 ```bash
 magnet:?xt=urn:btih:8AC4834FF203313837B1ED38B6FF44E31B6FB0D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead Island Definitive Edition – переиздание, состоящее и
 ```bash
 magnet:?xt=urn:btih:8D75211D485F064D5BF68E9CC9946B2E459500EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

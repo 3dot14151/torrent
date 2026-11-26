@@ -19,8 +19,7 @@ Toy Tanks (2022) [En] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:1F94F8F7B95670D83A13F45BAA7B1E1FE21CBD22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack HardwareMining [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:D5988AD561DDDC2B69167C3B799A7B595EB02B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ JDM: Japanese Drift Master сочетает в себе реалистичную
 ```bash
 magnet:?xt=urn:btih:9523199A7B713F0A636888473D29EF8A3869848B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Wanterlude [Digital Del
 ```bash
 magnet:?xt=urn:btih:48302B13D090D759135DA5F0470B2B2B4D6A75B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Dead Space (2023) [Multi] (1.1.14.17871/dlc) Scene voices38 [Deluxe]
 ```bash
 magnet:?xt=urn:btih:07E42DBC7D656832B4D5487FF1CD8BD5E13160A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Dead Space (2023) [Ru/Multi] (1.1.14.17871/dlc) Repack Let'sРlay [Deluxe]
 ```bash
 magnet:?xt=urn:btih:5BD9FA502A0DA5A83F80029BA66BCAA6E39CD13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

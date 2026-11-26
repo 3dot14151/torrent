@@ -19,8 +19,7 @@ Pneuma: Breath of Life - является атмосферной головол�
 ```bash
 magnet:?xt=urn:btih:15FA5AD64B99075095BAEF833A4393539C00BC79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Oceanhorn: Monster of Uncharted Seas - На одном прекрасном ос
 ```bash
 magnet:?xt=urn:btih:2F57143423F99FD020771B56424664A19052C07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

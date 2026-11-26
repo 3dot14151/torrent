@@ -19,8 +19,7 @@ Scratches: Director's Cut / Шорох: Последний визит (2007) [Ru
 ```bash
 magnet:?xt=urn:btih:213976E198E2F0F4B86E3D2A2455B0A85CAFB8C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

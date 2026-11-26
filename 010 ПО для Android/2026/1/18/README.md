@@ -19,8 +19,7 @@ Call Filter / Фильтр Звонков v1.30.5 Mod by Viktor245 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B1A824C2F5746D9F9C0BFD2A0942F73CC5852701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F50031E2D691587882E8FA60BC2B9696B0F0B925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65D659003B4AC979D3C514613559B7939B2208E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:9C41F448FCDE3CEBDD5793402C037BCC3F4FC2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:7CB9DEB00A01144C9C0304F73FDFF03DEE19B146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ FixPlus — Редактор лица и тела v1.52.142 Mod by PieMods [Ru/M
 ```bash
 magnet:?xt=urn:btih:81207F7927B0C2AA0CF0869924D8C799516AC9CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Solid Explorer - это приложение для управления фай�
 ```bash
 magnet:?xt=urn:btih:01B78D81AF90E29FFE62EE7BDF85E7BD9A2FA0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Horary Chart / Астрология: Хорарная Карта v4.1.7 [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:D3CF214A9865112F2A614DC4FB9A3CE60A83E45D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Astrological Charts / Астрологические Карты Pro v11.2.2 [Ru/
 ```bash
 magnet:?xt=urn:btih:81BADBD086EEF559A0421878B702000C37350C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ YouCam Makeup- универсальный виртуальный салон кр
 ```bash
 magnet:?xt=urn:btih:9D63DFB5A0C80234F336976AEB08D26CFC070E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

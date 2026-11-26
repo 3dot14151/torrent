@@ -21,8 +21,7 @@ TweakNow PowerPack - мощный по функционалу и простой 
 ```bash
 magnet:?xt=urn:btih:957F07EDF4A26C9B01AC872B4367AAA247BC78B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

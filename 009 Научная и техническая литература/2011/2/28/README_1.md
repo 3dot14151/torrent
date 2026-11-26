@@ -19,8 +19,7 @@ G.Ellis | Каталог продукции заборов и оград [1845] 
 ```bash
 magnet:?xt=urn:btih:B9DCC37E4B5B69FB148A7CFD8C6B63EA8B21BABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B881A33FA5213F50DEB0C2257809892695F6DFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F4D296D7F22CFBD3D18C93061359E372BE9EE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Elisabetta Drudi | Figure drawing for fashion design / Рисование эск
 ```bash
 magnet:?xt=urn:btih:3C22075090138A63AA0FC13C60548A0DA4DC2355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

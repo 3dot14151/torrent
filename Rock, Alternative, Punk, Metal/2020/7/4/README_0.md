@@ -22,8 +22,7 @@ Lost Conduit - Astral (2020) [MP3|320 Kbps] <Metalcore, Progressive>
 ```bash
 magnet:?xt=urn:btih:BEE3F9E5B8B6D73E76B1940FAEC206BE66FB5211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Paul Weller - On Sunset (Deluxe) (2020) [MP3|320 Kbps] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:C455A95175C66DF8CAC3721D998769947354A39F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EB5F3009A5F975EE4CCCA78629218AC01D2D54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Killers - Run For Cover (2020) [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:27DE7359FC92F145DC57C58989E2230FB118AB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12F266EE31B79A777E41931240BD38D9E9837E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

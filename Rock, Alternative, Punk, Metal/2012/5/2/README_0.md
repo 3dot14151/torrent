@@ -24,8 +24,7 @@ Lyraka - Lyraka Vol.1 (2010) [MP3|320 кб/с]<Metal Opera>
 ```bash
 magnet:?xt=urn:btih:FF8816B690A35B8668BF74C860AD0945F4FB109D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Loredana Berte - E La Luna Busso (1988) [MP3|320 кб/с]<Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:A1DFEFF2DF7F2EDB1CE4DD9D31DFFDC2C7BE0943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ The Rasmus - The Rasmus (2012) [MP3|320 кб/с]<Alternative Rock / Pop Rock>
 ```bash
 magnet:?xt=urn:btih:B617D9BF3AC7363B3643BE962CD46658B704F2F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Keane - Strangeland (2012) [MP3|320 кб/с]<Pop-Rock, Piano Rock, Britpop>
 ```bash
 magnet:?xt=urn:btih:8FFAF0741BEF5B090B7A63B38AD9B2E27189C163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ CD 2 (Akustische):
 ```bash
 magnet:?xt=urn:btih:194978950EE39F502B1FEBFC6E6E60246D4EB5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Joe Walsh - Analog Man (2012) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:C85D05D3CABA8C73E7EA5FA309C56E958492B2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Hurt - The Crux (2012) [MP3|320 кб/с]<Alt. Rock | Post-Grunge | Hard Rock>
 ```bash
 magnet:?xt=urn:btih:10D6F51F87CED2E7B83FBCD1F09D64E5BBC40376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

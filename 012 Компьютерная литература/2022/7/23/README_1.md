@@ -22,8 +22,7 @@ AdrianK | The UI Professional's Design Manual (600+ pages and free bonuses) (202
 ```bash
 magnet:?xt=urn:btih:F24EF275DA183BB501ED0CCEC101758954620D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

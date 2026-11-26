@@ -28,8 +28,7 @@ Stryper - No More Hell To Pay (2013) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E664A48F0DD4CA91DA6C662AD17C9B705FC760C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Toja - (Sad) Songs Of Hope (2013) [MP3|320 кб/с]<Melodic Hard Rock, Heavy Met
 ```bash
 magnet:?xt=urn:btih:80DA4EC425DEFA083B84EB93726EA270DFE8EC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Sleeping Romance - Enlighten (2013) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:AA6F275D538C14E8BC2EF44374341BE73D8B7AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Talisman - Life (2013) Deluxe Edition[MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2926CB186BE119632C346806B7E3C7541519C473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Tony Iommi and Glenn Hughes (ex-Black Sabbath) - Eighth Star (2000) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:8D929D9CB48EB8C137B4DAED1769646E75575D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Belinda Carlisle - Icon (2013) [FLAC|Lossless] <Pop Rock, Ballad>
 ```bash
 magnet:?xt=urn:btih:B25FA7E34948193FEC8BC3348428F18C62823697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EBC6112FBA3367E5EE4B628C1103E29E3901288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

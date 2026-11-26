@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4098EEFA057BE80E44E4DD7B3589AFC09FADF196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ AMBRA - Child of the Universe [часть 2] Fascination of Sound and Nature (20
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Far Cry 4 (2014) [PS3] [EUR] 4.55 [Repack / 1.06 / 4 DLC] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6763ABE4A1410DED53BD16BE690A7582C80951C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Adobe Audition CC 2017.0.2 10.0.2.27 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:68A0A0E6935B48270A09D499317BB8395CA9779F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85AD9138D7E5A03B002B86C707B57231E822A47D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Microsoft Windows 7 SP1 x86 DVD-USB Release By StartSoft 07-08 2017 [Ru]
 ```bash
 magnet:?xt=urn:btih:D9F81F329C0F25B570ACAB57B4999C1E982A0E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Microsoft Windows 7 SP1 x64 DVD-USB Release By StartSoft 05-06 2017 [Ru]
 ```bash
 magnet:?xt=urn:btih:A07C79252EDF77C5918325373F2C05C1C3FE1CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:981F8E3C91F55A955B9D4B83242C2CCD5EFBBD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Arcanum: Of Steamworks and Magick Obscura - классическая ролев�
 ```bash
 magnet:?xt=urn:btih:44E148C047D7FD7A8AD54E94893C5AF37E6D8E72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:457F2E66772D7CFF46148CECA4395AA655CCDD96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Adobe Premiere Pro 2017 - это мощный, настраиваемый ред
 ```bash
 magnet:?xt=urn:btih:DC0D15A4B8373E6B213A55496138F1CA336870DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Game of Thrones: A Telltale Games Series (2014-2015) [Ru/En] (1.0.0.1) Repack R.
 ```bash
 magnet:?xt=urn:btih:8DBAA2AA206A079DFACA6780DAEA61D94B87E2B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:45589B38FAAC71A6C21B2661A9BA102B673F57D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ Adobe Premiere Pro CC 2017 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:828C5EB9A52C021B981945174A66F6F72FA41A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ Topaz Labs Photoshop Plugins Bundle 2017 (19.01.2017) [En]
 ```bash
 magnet:?xt=urn:btih:41684C0072905BFBDCBFC638DE51687F3E90BDAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ Microsoft® Windows 10 Enterprise LTSB x86-x64 1607 RU Office16 by OVGorskiy® 0
 ```bash
 magnet:?xt=urn:btih:05089858C2C7C0E75A8005CF41E7B437215A6897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ Metal Gear Solid 5: The Phantom Pain / Metal Gear Solid V: The Phantom Pain (201
 ```bash
 magnet:?xt=urn:btih:8BC441059BA2777A05D8E78B2755AA19F9E73085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F2CF4E932939C6C30A8D6C42F50BDC14329D7B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

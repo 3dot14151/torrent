@@ -20,8 +20,7 @@ Star Trek: New Worlds [Ru] (P) 2000
 ```bash
 magnet:?xt=urn:btih:4971732D3A16E6BCA8CDF14281528AE3AF49CFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Jeff Wayne's The War of the Worlds [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:66FC15CB00E9FAD98305CB50C828683B7C2E469F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Star Wars: Jedi Knight: Dark Forces 2 [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:8E2E36BA419FC8B07A05DA322C965670E18ACC8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

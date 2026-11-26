@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D6ABB58F537CC6D0BC0F352708E675EC9AC77EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Son of Nor (2015) [Ru/Multi] (1.0.101/dlc) License PROPHET [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:5A3EA71DA31CE8D5E6F16BD288A3788657698A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Little Inferno (2012) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:627270C80A2D47E6CAB962B04C1FAFF1424CA665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:139F7E91855FF81E53C8A4B81101F345FD3B1A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Beastiarium — погружение в таинственный мир, пол�
 ```bash
 magnet:?xt=urn:btih:3960B58043FB486CB9DC59C8D2D953C25DECA1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

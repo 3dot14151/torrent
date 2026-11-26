@@ -19,8 +19,7 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 ```bash
 magnet:?xt=urn:btih:EAA9C3954BDE6F9AD3331F604591C237E07A1158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Selfloss (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4CF4261A0948197FC8CA0C5C2374C2C0C12BDD8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crysis 2 (2011) [Ru/En] (1.9) Repack dixen18 [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:389CA7301EB48E7355C8D745E3239288D57D0AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Stardiver - это научно-фантастическая игра в жан�
 ```bash
 magnet:?xt=urn:btih:57F03B46E2DB403B546B423AB2EB9731179CA6FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8411E7CE917A5365C3804ED227598C9098375237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kingdom Rush Vengeance – это стратегия в реальном вре�
 ```bash
 magnet:?xt=urn:btih:141527882C344B55C16F2A8C7E70743ACA3A5D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Forts (2017) [Ru/Multi] (2.34/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:52E203B66D33A7FEDAF403DA7D76F4F35FE3B0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ MARVEL vs. CAPCOM Fighting Collection: Arcade Classics собирает колл
 ```bash
 magnet:?xt=urn:btih:316B4D32F09E492CCF271E11A2824829F5B3DF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ LUNARiA -Virtualized Moonchild- адвенчура, основанная на п
 ```bash
 magnet:?xt=urn:btih:3508732EE59B741B9C9757CEA36B948CB570C946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Everlasting Flowers - Where there is a will, there is a way - это истор�
 ```bash
 magnet:?xt=urn:btih:681A8B8D9CE57A7DF39A2B53E2EBD963723782AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Yarimono, ролевая игра, что познакомит геймеров 
 ```bash
 magnet:?xt=urn:btih:CC077D9FA93DDD1CB30304FD5CF8F126F4CE05F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:D6BC2C0FA215D4C9D9D9B3EB67088A7D44374E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Go Mecha Ball - захватывающий двухстрелочный шуте
 ```bash
 magnet:?xt=urn:btih:89102C04EE22497E469009062B40152F4C537508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Leo: The Firefighter Cat (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:76284B94D7101730B5082E16D4670EBC32FFF68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ VA - Trance: The Vocal Session 2011 - VA (2010) [FLAC|Lossless]<Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08298FF4BCBD2FF67CD391E5CECDA4084DA251ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ VA - Лучший клубный сборник Vol.7 50/50 (2010) [MP3|256 kbps
 ```bash
 magnet:?xt=urn:btih:4272FDD47DF691D216E660834BADC06ED8EA1F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ History Channel: Внутри Вулкана / Inside the Volkano (2006) SATRip
 ```bash
 magnet:?xt=urn:btih:8453D5D55D9987DFA2CDCB3DF9766173665087A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Cinematic Orchestra - Every Day (2002) [FLAC|Lossless]<Nu jazz / Downtempo / Aci
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ VA - Новогодняя вечеринка (2010) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:B11B5A38357466632DACE74705B8BC1DA6421EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ DVDFab - программа для копирования DVD и Blu-Ray дис�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Ainulindalë - The Lay of Leithian (2004) [MP3|320 kbps]<Dark folk/neofolk>
 ```bash
 magnet:?xt=urn:btih:9168547BCAE30933DB3DC6750FD63910B5BAFE0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - Только хиты от Europa Plus 50/50 (2010) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E1DFAB94D15DC193F2ECCBFFCEA5AE5B1B705159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ FHM (For Him Magazine) – самый известный журнал для м�
 ```bash
 magnet:?xt=urn:btih:465ABFB4C2E7E260DC641F49A3F90C0C5666AF6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DBA565E41A887BE06E8F6CBED5019A79A7AC435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F45C04C93C54A42862F9237A373BEA9A2B8571A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ VA - Exclusive Drum and Bass from DjmcBiT vol.6 (04.12.2010) [MP3|320 kbps]<Drum
 ```bash
 magnet:?xt=urn:btih:CC5C60BA25686369AA751EA74BB22F58453B91DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1071FDFB1268CE64BC9DC322234B9B32F18B3BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Armin van Buuren - Global Dance Session (04.12.2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:D682DE2E175E9345260BAA959B5F6DD0E7D053D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ UPgrade – еженедельный журнал о компьютерах и �
 ```bash
 magnet:?xt=urn:btih:45D83D5C5E2A4CB7B956AA87DCD1B86DCDE1B4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Dreamhub - 3 Albums (2009-2010) [MP3|320 kbps]<Ambient | Deep Space | Chillout>
 ```bash
 magnet:?xt=urn:btih:F621F8E648B24E91A67226433414371A682E4716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EBAEADD1CD8E2D209FECE33DAB57E322CA4AFAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Alexandrina - Om de lut (2009) [MP3|320 kbps]<Lounge, NU Jazz, Neo Soul, Chillou
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ VA - XXXL Танцевальный Новогодний Русский №35 (20
 ```bash
 magnet:?xt=urn:btih:CDBEE4307C351B7ECA407792921FD110992FFAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E2461338BC6D49236BB1CDEE80D9B3607F0A029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ VA - Erotic Chillout & Lounge Session 01 (WEB) (2010) [MP3|320 kbps]<Downtempo -
 ```bash
 magnet:?xt=urn:btih:D9D10267BD7BE9D91A47B0041432918082B3FBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BEBD5D49C4F4497C020BF8E2776D93BD55CA710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ Eric Alexander Quartet - Lazy Afternoon Gentle Ballads IV (2009) [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ VA - Хиты На Новый Год Подарок От RU-TV Русский (2
 ```bash
 magnet:?xt=urn:btih:9E3021F9C9ED635A27A499124CAF223A4CDC50E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

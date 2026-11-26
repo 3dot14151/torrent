@@ -19,8 +19,7 @@ AutoStarter 1.4.1.250 + Skins [Ru/En]
 ```bash
 magnet:?xt=urn:btih:81FC584A2E8B06351823001F6165E425DD412569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

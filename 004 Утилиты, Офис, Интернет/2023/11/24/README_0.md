@@ -21,8 +21,7 @@ Tor Bridges Updater 0.1.5 Portable [En]
 ```bash
 magnet:?xt=urn:btih:5C13CEF07A47A32B2E0AAD51363FCA17BCA15BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

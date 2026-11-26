@@ -19,8 +19,7 @@ American Fugitive - классический экшн с открытым мир
 ```bash
 magnet:?xt=urn:btih:8322D66662C922C4FAD2B991DE9B378A0030D558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ATONE: Heart of the Elder Tree (2023) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F0B249D197A89F8F3FD26CB01ABA21DBF13B9F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

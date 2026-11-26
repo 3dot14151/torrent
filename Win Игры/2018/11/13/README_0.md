@@ -19,8 +19,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.10715/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:584F77DAE8F079A548B66DFF0003C088427F7590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sword Art Online: Lost Song (2018) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:77E2339A9644C2F524DEAD1C84B42B25046B74EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ F.E.A.R. 2: Project Origin — продолжает популярную сер�
 ```bash
 magnet:?xt=urn:btih:48F2CC61D51111359A8C624278ECA0FB79FF631C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Order of Battle – военная пошаговая стратегия, соб
 ```bash
 magnet:?xt=urn:btih:00B0B189E8762E1E553C5561BF9C2C64ABAF6C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

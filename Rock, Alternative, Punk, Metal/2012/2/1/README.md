@@ -19,8 +19,7 @@ Peter Crowley Fantasy Dream - Коллекция 8 альбомов (2011-2012) 
 ```bash
 magnet:?xt=urn:btih:CAA19AC5982174296715F935C40E5C24A474DCB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Creed - Дискография [5 Альбомов] (1997-2009), MP3, [CBR 320 k
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

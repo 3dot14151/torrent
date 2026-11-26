@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D883260DCC9E17F0CE56282017695275A37FEDCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Bud DeTar Big Band - Live At S.U.N.Y. Brockport (1999) Self Released [FLAC|L
 ```bash
 magnet:?xt=urn:btih:991182A9F2B533BF347747180FA786A31806692C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tubby Hayes & Paul Gonsalves - Change of Setting (1965) 2016, Harkit Records [FL
 ```bash
 magnet:?xt=urn:btih:45032D75AA64CA3C91FD41AB17D358FF81F9D273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Harry Connick, Jr. - Occasion (2005) Par Media Music [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:C8D6A2A9A898BD717B763C05761AB20CB77CE119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Franck Avitabile - Short Stories (2006) Dreyfus Jazz [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:9FF3A60C752C13BCA97D18561D4892ED6DF9E5C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Best Of Atec - Summer (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:5497AACDFBEE1DD586BFAEE597AEF7C0669C54C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Leisure Zone Vol.1 (The Beauty of Chill Out) (2017) [MP3|320 Kbps] <Downtem
 ```bash
 magnet:?xt=urn:btih:93369F38C932DE8B00B996E87B675C8DE35FA1BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Devlsy - A Parade Of States (2013) [FLAC|Lossless|image + .cue] <Post-Black Meta
 ```bash
 magnet:?xt=urn:btih:C230173E6422EB8163062AC39D419CB66CC5CC01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Trance Milestones (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:8402279231F4805DEF99ADFDF7FF5484A39A1354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Near Reality: Emotional Trance (2017) [MP3|320 Kbps] <Trance, Progressive, 
 ```bash
 magnet:?xt=urn:btih:D7D21F33B3D635D163B4C7FE6C157479758546BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFCB7272B1E0F0066F96597AB05421DDD87C0DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Ufo Classics (2017) [MP3|320 Kbps] <Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:1ED51907371FE178A5A8C02F8A6A8016F76137F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:4D43276AC3FA7DCE7AC05B3B9261863A061C5DCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ IINA 0.0.10 [En]
 ```bash
 magnet:?xt=urn:btih:83708252900A66C580E6EFFB1122BDEF26AF769B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ VA - Best Of Trance Vol.04 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7BD37388830DA7F956EF85DA92915D104FE04FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED4C919DBB7470457FE26A94E26B1B5BE75CEC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ VA - The Best Of Trance 56 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:EFAF25D9C15096CFC20772D6A392F57A15F78D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ VA - Ibiza Deep House (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:B520233F63051049E385528E04530AA3C7FF5602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5349D4EDCFAEAD97A1554162FA1521A6CD47634E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ VA - Empire Records - Club Hit 14 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:19858681379B93B4999496A634EA46947627678A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6062F3A8744043534D07682D9E5AECDB1E78878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ Check Off  представляет собой приложение для уп�
 ```bash
 magnet:?xt=urn:btih:59D4D6BD2360A0C8F094759118FC5015205A4256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ Steve Kipner - Knock the Walls Down (1979) [FLAC|Lossless|tracks + .cue] <Pop Ro
 ```bash
 magnet:?xt=urn:btih:FAC8F014E6DD37F879128E65EE0E41CAA4ED1F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ VA - Proximity Suspense: Synthwave Music (2017) [MP3|320 Kbps] <Synthwave, Synth
 ```bash
 magnet:?xt=urn:btih:0A7207C39C98D4E06315F948C4255C01DACB4850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:225C4504DC8AB93A96A0696870C545BE24396A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ Paice Ashton Lord - Malice In Wonderland (1976) Remastered, 2001, Purple Records
 ```bash
 magnet:?xt=urn:btih:AE53B58898FFE5E5840E37E699AEF847687C14F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

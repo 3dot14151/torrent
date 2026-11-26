@@ -22,8 +22,7 @@ Norhod - Voices From The Ocean (2016) [FLAC|Lossless|image + .cue] <Symphonic Me
 ```bash
 magnet:?xt=urn:btih:E13B623E55B88865318AE57EBF569B4694F4AB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Thunderstone - Apocalypse Again (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:660A89F36D961E72C211CDC2B1B542AF5AF8C2B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Latest & Greatest Rock Ballads (2016) 3CD Box [MP3|320 кб/с] <Pop Rock, 
 ```bash
 magnet:?xt=urn:btih:6A1572FBD5FF099F19A2E0566C3A1C574BD9B945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Hillbilly Moon Explosion - With Monsters and Gods (2016) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:496F37FF172A54037CC74120A41F8797F88D9CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

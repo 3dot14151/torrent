@@ -22,8 +22,7 @@ A4. Когда меня ты позовёшь (5:30)(   Читать дальш�
 ```bash
 magnet:?xt=urn:btih:507A90084A700B8FEDED72B5489EE7AAC14E1B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

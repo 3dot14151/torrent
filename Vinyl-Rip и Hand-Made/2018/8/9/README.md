@@ -22,8 +22,7 @@ A4. Go Down Main Street (3:41)(   Читать дальше...   )Произво
 ```bash
 magnet:?xt=urn:btih:E7A2EBDBF9C006B8AEC65127062BE7AF7C8000DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

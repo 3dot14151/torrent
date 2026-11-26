@@ -19,8 +19,7 @@ All My Books 3.6 Build 1212 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C6DF0B3599C1EF86BD77E90BD75E3D4267AA0E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

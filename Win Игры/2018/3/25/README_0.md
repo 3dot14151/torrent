@@ -19,8 +19,7 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:EEA93225E35558B324FC5276F4D99057361DFCF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trine Enchanted Edition – это новая версия оригинальн�
 ```bash
 magnet:?xt=urn:btih:47282E859C21BFA941320951EC1CAEB6D9C70ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4570EDBD687E526BDBBE593CCE75E96075EDB570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

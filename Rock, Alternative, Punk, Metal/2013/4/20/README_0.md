@@ -28,8 +28,7 @@ Cleavage - 15 Gets Ya 20 (2013) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:B00BA468978127F29F69D7A76109E4B7DFFAD63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Skyhooks - The Collection (1998) [FLAC|Lossless]<Rock, Hard rock, Glam rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Black Sabbath - God Is Dead? (Single) (2013) [MP3|320 кб/с]<Hard Rock, Heavy 
 ```bash
 magnet:?xt=urn:btih:4578ECEDD6B6D9527D6B6F15001F6169A5C225BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ W.A.S.P. - Double Live Assassins (1997) 2CD Japan [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35B9B61AF135AD18D6AC62D07F90E2A66DEC8C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

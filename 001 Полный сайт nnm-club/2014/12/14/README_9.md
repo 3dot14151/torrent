@@ -26,8 +26,7 @@ Thaw - Earth Ground (2014) [MP3|320 кб/с]<Black Metal, Sludge Metal, Ambient,
 ```bash
 magnet:?xt=urn:btih:C2581FAE0F1BA7C09A9538B11446AE93DF0520B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Arachnigod - Forest Of Stars (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:B0417295E479A9F6B2B41CC129B66A9F3E26F50F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AACAB21BE4E9C322815B49170B37403CE3D53C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Dargolf Metzgore - The Path To Madness (2014) [MP3|320 кб/с]<Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:D9626536F127DD0BD5779D831458D3BD2D290783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Miroslav Vitous - Emergence (1986) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:78668CE2ADDEBE00B8FF59DA2789FCE54EBA11D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ In The Hands Of Destruction - When Humanity Ends (2014) [MP3|320 кб/с]<Deathc
 ```bash
 magnet:?xt=urn:btih:8141F88C1D7EB6D7BBCD3AC07B5A73D4450D59AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E739C5F562DE232E11A6BA18A8BF9072DF1C2624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80484CE699FDA0BDA842D0F6340A9B171A026114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ Marcus Koch - Winter Essentials (2014) [MP3|320 кб/с] <Downtempo, Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:C7AF93AA2622C95631C1BF372C3BC69A8E13B93C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:652AFA2E0B515BA94BA156749C543796218668DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E811FE6653CAC1BF89715FE8D85CD65AE71CDAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ Iiro Rantala - My History Of Jazz (2012) [FLAC|Lossless]<Jazz, Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:736BF6B68DAB67ED0DD5B771273503786CC41ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ Pythia - Shadows Of A Broken Past (2014) [MP3|320 кб/с]<Power / Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:F8A08F41281CBB608717F2F11F6194B952B59A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ Chief Warrant Officer - Hotspur (2011) [MP3|320 кб/с]<Alternative/ Indie/ Pop
 ```bash
 magnet:?xt=urn:btih:88F048E7F9E93779421C12608516B62938F774B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E4977353B2EF5125564B76FD7F6569E2E809880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ Suren Unka - El Chupacabra (2014) [FLAC|Lossless] <Garage, House, Synth Pop, Alt
 ```bash
 magnet:?xt=urn:btih:24E2284DDB8F9CB12C631310711912B33C520E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:117E60CFA11A471326CEA421BEA710DE6276198D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:C4F54D0D8972A918CBC7B6CB42D408203B584C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ Klauss Goulart - RipOff (2014) [MP3|320 кб/с]<House, Progressive, Trance>
 ```bash
 magnet:?xt=urn:btih:DE5C3D8C97BC2D250B014C83DC0E63E224E9E26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ VA - Waves (Balancing Chillout Tunes), Vol. 2 (2014) [MP3|320 кб/с] <Downtemp
 ```bash
 magnet:?xt=urn:btih:0DC407E3339B44CE3208E60B8740F6D888645E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F89A0C3FA42C67FE2EA89BD4F74F5AF11BC8508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ Arnau Bataller - Репортаж: Апокалипсис / [REC] 4: Apocalipsis
 ```bash
 magnet:?xt=urn:btih:0A6D42BECED1B9BB10DA7A3AC807049CF1B6AD37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ Erik Truffaz Quartet - El tiempo de la Revolucion (2012) [FLAC|Lossless]<Jazz, J
 ```bash
 magnet:?xt=urn:btih:0862B75A4EE7F4AE20C357FC13645CECCC834BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ Kutski - Keeping The Rave Alive 141 (12-12-2014) (Dr. Rude Guest Mix)[MP3|128 к
 ```bash
 magnet:?xt=urn:btih:F19F158B37A7489B2959D2D033ED9E2272AF37D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +784,7 @@ Rich Robinson - The Ceaseless Sight (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:E4FD9232FE93BBF09C2C3A26483FD16E260BBFE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

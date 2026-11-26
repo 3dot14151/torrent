@@ -28,8 +28,7 @@ Massacre - Back from Beyond (2014) Limited Edition [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:1517B9259E214CE5FF079FA3FD8EE7ED7065F766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Tribute To Мастер: Talk Of The Master Generation (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:03913D6623D1BE33FF48194C11C25D022673415B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB9AEECAEEB8A733696B884E552A5CE2F96535AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Wilko Johnson & Roger Daltrey - Going Back Home (2014) [FLAC|Lossless|WEB-DL]<Ro
 ```bash
 magnet:?xt=urn:btih:A4421AACA92D50C56DE2147EDE772AB4F85ABD91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Sonata Arctica - Pariah's Child (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:02CDAB7241C00EE39CC7AEEE83676CC6BED78B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

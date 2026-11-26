@@ -19,8 +19,7 @@ Rolling Line — это модельный железнодорожный сим
 ```bash
 magnet:?xt=urn:btih:47F9A32A2FA39AFA954EC6E0F1456EB457DF1522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0 S/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6283A6EC5E5B69296B37894DF4505909DD439ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rival Stars Horse Racing (2020) [Ru/Multi] (1.0) Repack Other s [Desktop Edition
 ```bash
 magnet:?xt=urn:btih:AD1A5CE00879AC592690E2C759C16183482282F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

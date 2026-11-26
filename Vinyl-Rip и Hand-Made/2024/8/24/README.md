@@ -22,8 +22,7 @@ Burning Point — финская пауэр-метал-группа из гор�
 ```bash
 magnet:?xt=urn:btih:B80704816DAC85F2D4AC32C87410CB4431C94A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Soen - прогрессивная рок/метал группа из Стокг
 ```bash
 magnet:?xt=urn:btih:877852EBAD88A61CC6DD85F96CF4471BEEE052B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Static-X — американская метал-группа из Лос-Анд
 ```bash
 magnet:?xt=urn:btih:CF90C96A3C362A316F5209825AA81ACAD0830347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

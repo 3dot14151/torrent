@@ -19,8 +19,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:4F985E0AF0F93DECEB9EDB3FC5478783E469AA79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F97EE366F0A2FCBF54C94BE4629A4E4E13640D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E9C9F2D5F5E97DC09110D334984F2170D1C1C6EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:1A0E9C7EBFFCB5F5A23BC56B734B9E0665A538A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Last Case of John Morley погружает игроков в роль де�
 ```bash
 magnet:?xt=urn:btih:8880521861BFF1F9F7B9228808029550BEE975D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Miside - это игра в жанре приключения от первог�
 ```bash
 magnet:?xt=urn:btih:0B1B6475DBC38E4E456515C31372FF792B6487CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Quartet погружает в мир, в котором вас ждут неве
 ```bash
 magnet:?xt=urn:btih:E5EB41F83A1AFD2EF0F620338F8B1AF8095C5F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Brew - это экшен роглайт, где важна быстрая реа
 ```bash
 magnet:?xt=urn:btih:E69003008846F29EC51A1D081029E39DD615E07A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Portal - Игра от Valve для одного игрока. Portal, дейс�
 ```bash
 magnet:?xt=urn:btih:9FA8A8C2D3E08DBE8F5E81D48528F7C5961FE8C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Myst (2021) [Ru/Multi] (3.0.9) Repack Necros [VR]
 ```bash
 magnet:?xt=urn:btih:21C669449F0B2E6A09E5DA2458B48CFE6B4A8025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Disney Villains Cursed Cafe (2025) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3521EC1F2F659B99CDE5DA13DBC078AB0071E169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Lost Paws (2023) [Ru/Multi] (1.0.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C163339D2617363CCD77E31CC7114E460483E40D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ The Falconeer: Revolution Remaster (2025) [Ru/Multi] (2.0.0.1/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:987670493E3961D56686EA3A8970BB1279F92344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ VORON: Raven's Story (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:988ECF0726D01D506EB74A3467D6149AB375EC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Hunter’s Moon: A Sovereign Syndicate Adventure - это карточный rog
 ```bash
 magnet:?xt=urn:btih:631A0680FBF3F6E5A42ED66CEACE133A351992C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack Hardwa
 ```bash
 magnet:?xt=urn:btih:BDC96D9A099C25EE6BF341CC663A7B0E016218BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ The Last Case of John Morley погружает игроков в роль де�
 ```bash
 magnet:?xt=urn:btih:4356AFF61B7A885B2AC96D4CE52194DF083CB879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

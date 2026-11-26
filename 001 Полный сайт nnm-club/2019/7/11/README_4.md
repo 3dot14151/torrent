@@ -18,8 +18,7 @@ AVG Tuneup - идеальное решение проблемы оптимиза
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Office Tab Enterprise новая версия небольшой, но очен�
 ```bash
 magnet:?xt=urn:btih:6EABD04C4CDEE0A81065AE34E5766A3B3579FB6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Office 2019 — новый офисный пакет от корпорации M
 ```bash
 magnet:?xt=urn:btih:6C4DE2886A2E61B062D2869134FA66F256FBCE1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

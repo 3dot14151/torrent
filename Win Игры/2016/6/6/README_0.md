@@ -19,8 +19,7 @@ Dreampath 2: Curse of Swamps (2016) [En] (1.0) Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:8CD31AF07CFEA40028BD406CF08618F45909FA48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mountain Trap 2: Under The Cloak Of Fear / Горная Ловушка 2: Под
 ```bash
 magnet:?xt=urn:btih:A1065E6579D916F834D63FDF9A3B685DEAD01F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ New York Mysteries 3: The Lantern of Souls / Загадки Нью-Йорка 3.
 ```bash
 magnet:?xt=urn:btih:91A65D5BA62531381CF560A22F58B663747B5A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Adele: Following the Signs (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:780A79403B51D3BFA52FB97C25B65C1FFFFEC984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sky Force Anniversary (2015) [Ru/Multi] (03.06.2016) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:4F434667C1120C84DF2EB830C6755E4C97D93E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dead Island Riptide Definitive Edition – переиздание, состоя�
 ```bash
 magnet:?xt=urn:btih:35539DA8C51BAAAA88AF65BFA554E3434556E216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Mageia 6 Sta 1 (+ KDE PLASMA 5) [i586, x86-64] 6xDVD
 ```bash
 magnet:?xt=urn:btih:7F5BA0F654BA804A596A6D14E3EC52A869B9BD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ KaOS Linux 2016.09 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:7B7F4C9FC43A5A1D726BFDD023C5B8D5C3A19C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

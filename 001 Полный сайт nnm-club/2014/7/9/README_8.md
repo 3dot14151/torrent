@@ -28,8 +28,7 @@ Sunscreem - Ten Mile Bank (2001) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:6FA05CCC3182E109C3DFBC7B242849E38B7ADF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Hubi Meisel - Kailash (2006) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:16F448BD7703BA0736F9B8782038D364A4A58D79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Phaway - Phaway (2000) [MP3|320 кб/с]<Folklore, Pop>
 ```bash
 magnet:?xt=urn:btih:E570D54122422057216EF0C52491797D96C648BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Brocelian - Lifelines (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:6DC312E53E568CE225EA0069F8EB2BB40AA9F269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78B5EC366AB059E82654B1749D768B92213E502D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Jimi Barbiani Band - Back On The Tracks (2010) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:CC4EFEE78D9DF9477B226EBB3D1D6610E68F2A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ VA - Arisa Audio Goes Ibiza Vol 2 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:E62E7BC303897D7D46D7A4D31972B12F31FD0E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ VA - Mauritius Beach Lounge Vol 1 (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:53DA475179F7C234C727825D6ED21FB65F9E81E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D67A20A23CFA4DC21514E9BA3BDFBD034372FDAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +367,7 @@ Hellscream - Made Immortal (2013) [WavPack|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:189C81D7D9462BCB8451016A916CCB86A22ED7BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ VA - Secret Dreams of Lounge (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill O
 ```bash
 magnet:?xt=urn:btih:907CE7FC4C67C184C4246AE5411E528893182BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ VA - Monster Tunes Summer Collection (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:3C86A1C063B77AC72DD48EF525329A525B761BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA61DA79F65F5068642B358A460BE78D14FFEA39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6710F8FEF358AB244862045A9FA89DEA5EDB3A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +521,7 @@ VA - Summerpearls 02 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:6F8EB29EC524213FB6B1D7377EA6670B249983AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +555,7 @@ VA - Ibiza Seasons - Summer Edition Vol 2 (2014) [MP3|320 кб/с]<Deep House, C
 ```bash
 magnet:?xt=urn:btih:DD9943412D3C567005F54E06EABF083ECBDFF94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +589,7 @@ Sadao Watanabe - Remembrance (1999) [FLAC|Lossless]<Jazz, Post-Bop, Jazz-Pop>
 ```bash
 magnet:?xt=urn:btih:ED3B619108DBD55D1CFAEDE6A81AA638F21D6571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +623,7 @@ N.O.R.E. - Student Of The Game (2013) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:4F5F514A36206B81A3BE8E338912F6919996F92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +657,7 @@ VA - The Sound Of Silent - Ambient Cafe Vol. 1 (2014) [MP3|320 кб/с]<Downtemp
 ```bash
 magnet:?xt=urn:btih:2F78832D8D54ECFB2F473BBDC01362A74A98EA89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +690,7 @@ All Out War - Into The Killing Fields (2010) [FLAC|Lossless]<Thrash Metal/Hardco
 ```bash
 magnet:?xt=urn:btih:1DD839F9BBC45FF1CB03D56B02F4D741F58BF032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +719,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32AC5C03FC02A6A3D6216C10FEC23166A0898EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +745,7 @@ Pacifist поможет определить, каким инсталлятор�
 ```bash
 magnet:?xt=urn:btih:26EB6AF74FBC5F33A656B79EBF6A3B4F4D717556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -794,8 +770,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D1F40F02AF200F1F42E27C0CADDC6455CBB04C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -829,8 +804,7 @@ Warmen - Beyond Abilities (2002) Japan [FLAC|Lossless]<Neoclassical/Melodic Powe
 ```bash
 magnet:?xt=urn:btih:F3853DF3FD69497AA67964F3876FEFFC4BDE38D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

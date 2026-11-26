@@ -28,8 +28,7 @@ Jimi Hendrix - The Best Of (2000) 3CD [FLAC|Lossless]<Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9F6A60E30F7B2C695E6644D41851E5CF996BAB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61D9DAE6E12A1498F31EA9F8B9E58E2EAF137247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Distemper - 25 (2014) LP [MP3|320 кб/с]<Ska Punk>
 ```bash
 magnet:?xt=urn:btih:F6BAEF460D31A2B78CE17DF81B5FC0EC3ED8D7E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Lenny Kravitz - Strut (2014) Deluxe Edition [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:6A3022E56C89C5A2D99AB2C61402284C8022B26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Leonard Cohen - Popular Problems (2014) [FLAC|Lossless|WEB-DL]<Folk Rock, Singer
 ```bash
 magnet:?xt=urn:btih:314F6BA9E4308A26253481BEF1D9A506E0E0640E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Deep Purple - Purple Hits - The Best Of Deep Purple (2003) 2CD [APE|Lossless]<Ha
 ```bash
 magnet:?xt=urn:btih:2166041CF555464E3A370070913F37B1CBFCD76A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

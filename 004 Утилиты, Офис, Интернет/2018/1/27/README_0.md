@@ -19,8 +19,7 @@ Easy Duplicate Finder представляет собой мощный инст�
 ```bash
 magnet:?xt=urn:btih:5CD06FA6126A86C5862DE6267F5028A284AEB8BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

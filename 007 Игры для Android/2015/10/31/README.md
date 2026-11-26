@@ -19,8 +19,7 @@ FIFA 16 Ultimate Team - игровая студия «ELECTRONIC ARTS» внов
 ```bash
 magnet:?xt=urn:btih:58CE7B76030F199E238C75C765FD07EC9CA7C6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

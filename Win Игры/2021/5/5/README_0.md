@@ -19,8 +19,7 @@ Chimeras 12: Inhuman Nature / Химеры 12: Нечеловеческая су
 ```bash
 magnet:?xt=urn:btih:DDA5BEDFB2299265EF4529B99DDF147504B1DD6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Project CARS™ 3 — пройдите путь от любителя до ле�
 ```bash
 magnet:?xt=urn:btih:A21A16FB9164F1D886E2A11E7AD419F1E640AE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B0C397BCCA42A0C558655187FD239DA923EBACC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Serious Sam: Kamikaze Attack! {1.16} (P) [En] 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:3333526C471917097DBAF16255877B0ABFF1DAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Xolon (L) [En] 2012
 ```bash
 magnet:?xt=urn:btih:E2D0C5010764F3B5217E42DD311A20B4761FE0B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gem Boy (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:70DFECC3CC001C280B30FAD23D812B8DEDD3AA37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Active Movement (L) [En] 2012
 ```bash
 magnet:?xt=urn:btih:524C30D07FB05EFF7C2E1E6A3A76225967BAC02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

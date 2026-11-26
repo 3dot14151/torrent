@@ -19,8 +19,7 @@ Chernobylite — научно-фантастическая ролевая игр
 ```bash
 magnet:?xt=urn:btih:3D6C5D429C7C013AC8BDA32BBB37C975056D9A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeon Tycoon приглашает игроков отправиться в п�
 ```bash
 magnet:?xt=urn:btih:B8F737BA2F6A6370ABB0B59EEA0CC7C58C06F4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RRed Dead Redemption 2 – приключенческий шутер от тре
 ```bash
 magnet:?xt=urn:btih:6E7808C526AE59053CB3C0AD99FA07A138853BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:ED5814B893471F3BD3E3E71144FE8AD00F27E1CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Succubus (2021) [Ru/Multi] (18354/dlc) Repack Decepticon [The Worshipper Bundle]
 ```bash
 magnet:?xt=urn:btih:BC430B93908AC6953959EEE0F59EA5E9D66B75B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:E16C1069AE504D3620B6D0B0C21B1AB5F2C13CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sonic X Shadow Generations (2024) [Ru/Multi] (1.01/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F754CBB3B978A71C16D09DA1E8004ADC797D4B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack seleZen [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:EB2231D25333F2F7783C80D4840C7EDAFB04FF4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Gone Rogue можно назвать иммерсивным симуляторо
 ```bash
 magnet:?xt=urn:btih:8A46B9BC09338FAAC3D903F33651727508A90027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Beyond Galaxyland - это космическая ролевая игра с п�
 ```bash
 magnet:?xt=urn:btih:AF437446F94592AA24C633EEFD7B7FB8F5F57814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Wantless Solace at World’s End (2024) [Ru/En] (1.0.1000) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F0E5539A873FD65995E1CFB60DE37C2ACD5B0079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Corner Kitchen: Fast Food Simulator (2025) [Ru/Multi] (1.1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B79580663BE9135473E7DED85ADF0529D9C5BA09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

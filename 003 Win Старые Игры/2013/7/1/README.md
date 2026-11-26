@@ -23,8 +23,7 @@ V.O.T.E.R. Golem / Голем (2001) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:3FEDBC1BBE33C286391A4B92BC4BF2346FDA943C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

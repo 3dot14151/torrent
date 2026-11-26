@@ -19,8 +19,7 @@ Semblance — это уникальный платформер в сеттинг
 ```bash
 magnet:?xt=urn:btih:4773856A17CD729B5702352664FF07DF9CBE09F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shelter 2 (2015) [Ru/Multi] (1.0/dlc) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:99695C17EFCC1B883F53EE0BA41ACCD13D1E0425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Hong Kong Massacre (2019) [En] (1.04) License CODEX
 ```bash
 magnet:?xt=urn:btih:E2A24689D8484416B4183DB1C3B05D8CEE42E944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack xatab [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:E5F4B325C74E9A5D79CBD2FC5F5BB657257D645B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.12620) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FAEA628015F972B061815A512140B6D3230D1970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Lands (2026) [Ru/Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:0B749E551B4D0493F867A64B5A9F6D6154368AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A542F8F0D743B5E5BF786AFBC714C73FDB0F3127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (0.51) License GOG
 ```bash
 magnet:?xt=urn:btih:A76B90A4BA4F012B13D9FB159B3770F36A149951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Heroes of Science and Fiction (ранее известная как Silence of t
 ```bash
 magnet:?xt=urn:btih:BEDB2E51B838587B930981DA9859AED0E4F39FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

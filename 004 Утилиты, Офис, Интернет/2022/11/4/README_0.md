@@ -20,8 +20,7 @@ AOMEI NTFS to FAT32 Converter - это программа, обладающая 
 ```bash
 magnet:?xt=urn:btih:29837F7B0BBB8427F164CD71773A142C1C432C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

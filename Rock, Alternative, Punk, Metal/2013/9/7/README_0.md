@@ -26,8 +26,7 @@ J. D. Blackfoot - The Song of Crazy Horse (1974) Remaster 1992[MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:1C226D578F9F2A825DBE9380E524CA9238ABDE2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ John Lennon - The John Lennon Collection (1989) [FLAC|Lossless]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:1D6FCD9758152B49673798A7A682E28544F0A29E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Placebo - Loud Like Love (2013) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:4EAE6F0BF561CC34194E9302C9D89085E5DD9375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

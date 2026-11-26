@@ -19,8 +19,7 @@ Terminus - космический симулятор с реальной физ�
 ```bash
 magnet:?xt=urn:btih:752E5B0CBD6ADA9817C8C01875866F1CB12A1059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

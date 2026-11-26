@@ -21,8 +21,7 @@ Udemy, Shahzad Ahmad | Magical Butterfly FX in Houdini (2022) WEB-DL [EN, RU]
 ```bash
 magnet:?xt=urn:btih:B88F45D63C01315B68529B5A1117E821D4E5F82E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA38D885413D2E705BA03B878C38BF0E31D4E680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:3F9593B5EEC743FEEB4E34778013C6D96F3F519B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:796497B84E4ECE76848C381A1084A24EB825AE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Advanced Uninstaller - идеальный инструмент для деинс
 ```bash
 magnet:?xt=urn:btih:40B0AF3FD54B9991F28A41EC7C43B3D3C5162E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE86200DE9CE490B1521009EA953AB7DA1113EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Da Wang Rao Ming | Spare Me, Great Lord! | Пощади меня, Великий
 ```bash
 magnet:?xt=urn:btih:DC8C16C3406C8017832254E838820746006D0F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Total Commander 10.52 (08.04.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A78F84E2B17735825A5DF4D83669765D2B1D5621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77910838172724CF1DD39E653EDC6DE13DD29092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4. Трудовая пчела (6:12)(   Читать дальше...   )Жан
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

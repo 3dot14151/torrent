@@ -19,8 +19,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:03C851B2475DAB7B84C8D949A52EABE1931E6BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:F78C4F8EAD7A3E8979F93A0AA8E40C38904FAC69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Sense V2 Flip Clock & Weather v8.45.2 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:05826C83EE9B7A5054AD2C5A324E7016D7C462C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ IPTV Pro v9.1.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DE0FACB6726E5925C7135404DE877B6DEBCB9D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Sense Flip Clock & Weather v8.44.2 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:30D4EC7513BDEDBBC9712D904CA9FC6914FFB7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:52462F217923C361EF480DC7A3947FE33A6917B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55569C30298B1A56F3821AB99FF53329D328D847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Device Info — простое, но мощное приложение для An
 ```bash
 magnet:?xt=urn:btih:5EED5CC41CDD170D49EE51A13B652269A59CA155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Jigsawscapes® - Пазлы v4.2.1 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F1C0C0E21434536F83BC325CDC50C8B42558AE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:DFE4DEE93D066C791B7A2BD182DBCEF829877D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

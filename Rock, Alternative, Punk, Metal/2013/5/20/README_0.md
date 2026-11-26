@@ -25,8 +25,7 @@ Julie Laughs Nomore - When Only Darkness Remains (1999) [FLAC|Lossless]<Melodic 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Erevos - Descensus Ad Inferos (2011) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Zero Degree - Surreal World (2010) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A93DD0D44C90F7A2ADEF91F7A4623F5F86664927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Spock's Beard - Brief Nocturnes and Dreamless Sleep (2013) 2CD Limited Edition [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ New Politics - A Bad girl In Harlem (2013) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:F8E027207E81516AA5F2DA81C018BC39451F6A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Zebra - 4 albums (1983-1990) remastered, Mini LP SHM-CD /2013, Arcangelo Records
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ Vampire Weekend - Modern Vampires of the City (2013) [MP3|320 кб/с]<Indie-Roc
 ```bash
 magnet:?xt=urn:btih:F6AC9693B87030B71C2A9330A78E6BF65DC68436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Black Rebel Motorcycle Club - Specter At The Feast (2013) [MP3|320 кб/с]<Alt.
 ```bash
 magnet:?xt=urn:btih:FFA71050534BCE94627A551188230FC0258A09C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +320,7 @@ CD 1Жанр: Progressive RockПродолжительность: 01:00:03
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ Rockets - A Long Journey. (Limited Collector's Edition) (5CD) (2009) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:9B4789AF26291F0E19C23750322E683936D0E048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +388,7 @@ ZZ Top - The Best Hot (2006) [MP3|320 кб/с]<Classic Rock, Hard Rock, Glam Roc
 ```bash
 magnet:?xt=urn:btih:D0066BA52208B9DA99404F7DD82B367EB0D385FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +418,7 @@ Gothminister - 5 Альбомов, 3 Сингла (2002 - 2013) Discography [MP3
 ```bash
 magnet:?xt=urn:btih:EFFBF91D8E7A0C26879CA8A8B76FD015CF795648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +447,7 @@ Pink Floyd - The Final Cut (1983) remaster /EMI, 1994/ [FLAC|Lossless]<Psychedel
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +481,7 @@ Imagine Dragons - Night Vision (2012) Best Buy Exclusive Edition [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:D2157E8CFEB36D18D98B9EB2CC4D96EDFD156B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Russell Allen & Jorn Lande - 3 Альбома (2005-2010) [MP3|320 kbps]<Hard-Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Carlos Santana - 56 Альбомов (1968-2009) [MP3|320kbps] <Latin Rock, Blue
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:DDB104FF78408AE350C3B2F587FC73DE7ED3CB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

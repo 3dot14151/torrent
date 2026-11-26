@@ -19,8 +19,7 @@ Spirits of Mystery 8: Illusions (2017) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:EF551F843314DEDC97EF698A31E9B9ECE9660A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Surface 11: Strings of Fate (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:137F50F8B144C9658D51C0D40E7695DD4D2E49CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NASCAR Heat 3 – гоночный симулятор, являющийся пр
 ```bash
 magnet:?xt=urn:btih:4CB788D0A8C04AE47566A38E23A79A1DBB840E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ JUMP FORCE — величайшие герои манги из отряда Jump
 ```bash
 magnet:?xt=urn:btih:71FC0615439DCA2C30A87265D2E4DB52515103D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ HEVN - приключенческая игра с открытым миром, �
 ```bash
 magnet:?xt=urn:btih:11B0A5381CCB417FDBCFF6D3B20C112C19B6137C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

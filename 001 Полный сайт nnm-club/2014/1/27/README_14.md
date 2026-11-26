@@ -28,8 +28,7 @@ Wayanay - Espiritu de los Andes (1997) [MP3|256 кб/с]<Folk, Native american>
 ```bash
 magnet:?xt=urn:btih:C957939E5C0C0C014BB9CAA5B0554C2B226F085B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C65FB20A75F71FB134C91B372FD5FFBCD7702BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:110F0025D3F98DE9443AF630E9A3539791CE964A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - New Year Trance (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:D5747609E1F53A344A6FA032E7F6ACE31F9071F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Enaid & Einalem - Celtic Romance (1998) [MP3|320 кб/с]<New age, Celtic>
 ```bash
 magnet:?xt=urn:btih:BB9714F6D6A25C70C816708F150BE935C1C059FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Sarva-Antah - The River Inside (2002) [MP3|320 кб/с]<Native American, Ethnic,
 ```bash
 magnet:?xt=urn:btih:F918F5BBC06EFAC1B54D69A25908EEE769A5B1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB8E0C313100FA5A42D180D056E624B1DFBD1D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ Thyrien - Hymns of the Mortals (2014) [MP3|320 кб/с]<Melodic Death/Folk Metal
 ```bash
 magnet:?xt=urn:btih:1A615A6AE7D904CFFBAF5EC2185CDA3A5647CD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ VA - The Best Of Silver Waves Recordings (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:63B8F484EF305B2BF682E368505B4ED641FC6BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ Trollwar - Earthdawn Groves (2013) [MP3|320 кб/с]<Folk / Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:3DF8C06966AE7E4FAEC1DF927D5F60E98BB45B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ Tom Morello & The Nightwatchman - World Wide Rebel Songs (2011) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:25E953A7DB38052DF5C9B02AC4C81FB1F791D2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF1839608BE31323748F528993DE474457C344CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ VA - Trance Pioneers 008 - Gary Maguire (2013) [FLAC|Lossless|WEB-DL]<Trance , U
 ```bash
 magnet:?xt=urn:btih:38990F226F988BB2BD2CC1F8A4FDABA5601EF7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ Skydancer - Land Of The Grim (2013) [FLAC|Lossless]<Melodic Death Metal \ Thrash
 ```bash
 magnet:?xt=urn:btih:E4D4A39259D5458B4848F24760F300FED0F97D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED04A85BEA4F74896D72BBC47A25E2C11A4E1087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ Ascent And Argus - Four Oak Trees EP (2013) [MP3|320 кб/с]<PsyChill, Ambient,
 ```bash
 magnet:?xt=urn:btih:F08C9ED3A20FF01B99CF2749B5AA8B2EA6BF78F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +569,7 @@ Hail Spirit Noir - 2 Albums (2012-2014) [FLAC|Lossless]<Progressive/Psychedelic/
 ```bash
 magnet:?xt=urn:btih:C03CB99D34DB6F53F9848CD979888F16834EE68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +603,7 @@ VA - TRANCE - Drift Storm Sonar Interstate (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:BC626318D9364E53F83132FE43F161F061F5964B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE03044028818BBA33F51ED1D30E11386F79E256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +685,7 @@ iWatermark – отличный инструмент для каждого бл�
 ```bash
 magnet:?xt=urn:btih:04F70EA20BCB51725641567F21BDEF98E64EA449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +719,7 @@ Rain Of Acid - Ghost Town (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:D3886F5F9C7669F41A6302F23185FEC020A69DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +753,7 @@ Will Donato - Universal Groove (2014) [MP3|320 кб/с]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:79AEABA58E1B4D69B4FC5ACEBB3E53ABB2800971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -812,8 +787,7 @@ VA - Armada Top 15 January (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:2B8D440DF9494D3F2B11200B306B7F9A6F4336F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

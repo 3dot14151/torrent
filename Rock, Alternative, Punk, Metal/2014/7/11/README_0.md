@@ -28,8 +28,7 @@ United Nations - The Next Four Years (2014) [MP3|320 кб/с]<Screamo, Hardcore,
 ```bash
 magnet:?xt=urn:btih:EFB6D6FE2D6B5369D686A49AD0EF124D860A6C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ ChainReAction - A Game Between Good And Evil (2014) [MP3|320 кб/с]<Melodic He
 ```bash
 magnet:?xt=urn:btih:1058787F23DAAD4606B4507B6FB090A3BA126F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Wintergarden - The New Victorian (2014) [MP3|320 кб/с]<Hard Rock, Alternative
 ```bash
 magnet:?xt=urn:btih:CA19F16901B2CF1F81FF087DC5DB5C62213DC930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Celesty - Mortal Mind Creation (2006) Japan [FLAC|Lossless]<Epic Power Metal>
 ```bash
 magnet:?xt=urn:btih:5D966E62C07607311A5FDC4FF920F3CBBFD3CFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ My Dying Bride - The Vaulted Shadows (2014) Compilation [MP3|320 кб/с]<Doom /
 ```bash
 magnet:?xt=urn:btih:F8A276F659BA72DCE286A467D4F1127FDB69B47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Siberian Meat Grinder - 2 альбома (2012-2013) [MP3|320 кб/с]<Hardcore,
 ```bash
 magnet:?xt=urn:btih:038AD77E631FC82439BFCB38F725AA269AA37F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Grave Digger - Return Of The Reaper (2014) 2CD, Limited Mediabook [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:FAF29D797ACFE0843B078AD52AABC9563AB36E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Rise Against - The Black Market (2014) [FLAC|Lossless]<Rock, Alternative Rock, P
 ```bash
 magnet:?xt=urn:btih:BD4E4F5091843CEBC42904FF4B2CED1AA8E38F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

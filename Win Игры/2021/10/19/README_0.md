@@ -19,8 +19,7 @@ Cyber Manhunt - это сюжетная игра-головоломка, в ко
 ```bash
 magnet:?xt=urn:btih:D8BF30D2009FC32BB21816157747E25446F93D2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Alien Cube - это приключенческий хоррор в стил�
 ```bash
 magnet:?xt=urn:btih:337FA5C59357537D13D69E99E8AB9A1D201AA19E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

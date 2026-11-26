@@ -19,8 +19,7 @@ Revhead (2017) [Multi] (1.9.11049/dlc) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:096241EC9E98CE19BE504CE13C1B76D8B2BF1495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vaporum: Lockdown — это приквел знаменитой игры с п�
 ```bash
 magnet:?xt=urn:btih:BB5341EB473240004582D82DD26AE9192185C2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MEGATON MUSASHI W: WIRED бросает вас в кабину гигантск�
 ```bash
 magnet:?xt=urn:btih:377F846D44FC4E6FF604350122262271B89236DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FCE443769BD56636C346D0964BBFF0A958650DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7041E0BFF2BD1B96FA5E768E063AB561CF3CFA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Pumping Simulator 2 отправляет вас в путешествие в м�
 ```bash
 magnet:?xt=urn:btih:B4B38B90D9081064713DF1097988C0E0F3806A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.09.04b/dlc) Repack FitGirl [Complete E
 ```bash
 magnet:?xt=urn:btih:2F2316818D9EC6E2FB82BDAFF144154B0159F2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ TYCOONSOFT | Иллюстрированный самоучитель по Adobe 
 ```bash
 magnet:?xt=urn:btih:DB57083371FC29770B200F51F4ADEEC330466684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

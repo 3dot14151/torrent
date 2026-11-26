@@ -19,8 +19,7 @@ Orpalis PDF Reducer Professional 4.0.8 RePack (& Portable) by elchupacabra [Mult
 ```bash
 magnet:?xt=urn:btih:D099041934D3E7C260A447E6D6B0CC891726D731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1341826114D05F1C8C11FB22974E95933CE69F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Punished Talents 3: Dark Knowledge / Наказанные талантом 3: Т
 ```bash
 magnet:?xt=urn:btih:FD85945751C86DB3906C16374193584852C1F68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Case Files 18: The Countess / За семью печатями 18: Гр�
 ```bash
 magnet:?xt=urn:btih:42F1F949E025D3E0E0D8BDBFDB532AEB8987FAD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:38596A7EA2CD53A0F976FB552394CC8B5AC2D49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

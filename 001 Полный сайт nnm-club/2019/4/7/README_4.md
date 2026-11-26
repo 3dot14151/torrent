@@ -18,8 +18,7 @@ Call of Cthulhu – это детектив с элементами психол
 ```bash
 magnet:?xt=urn:btih:13F1CEDC5A6EFB4BEF8B19927537A8E391696EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.4.0.5.1805151406/dlc) Rep
 ```bash
 magnet:?xt=urn:btih:3F2BC16668A06218909E893EB2CBC42B2D83817F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Rocket League - это аркадный проект, который сочет�
 ```bash
 magnet:?xt=urn:btih:6971D42EFD839D8D3C831D96514828A9A2B51668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:E8E86A351805F73FF2015F4A5B2EA8B4D93D503C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Sudden Strike возвращается! Знаменитая серия стра
 ```bash
 magnet:?xt=urn:btih:C7AF312FD65175473FF8132C6C4FFFC9E4D0FC92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

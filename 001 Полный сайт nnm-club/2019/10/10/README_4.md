@@ -22,8 +22,7 @@ Paul Bley - A Free Spirit (1953 - 1963) 2016, Musica Jazz [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:083BB59D1CB6596CD495A86EF655CAA70A2BDD93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Data Guardian 5 v5.0 [En]
 ```bash
 magnet:?xt=urn:btih:49B721A292AF2782EEC90F7A02F9A1EDE91DEBD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:C395A2A67376912B180D60C947E911FD9A869966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Orjan Nilsen pres. Orion - Gobstice (2007) EP [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:CA6D176CD588FED0FCF9D186725464FA04E50ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Elbow - Giants of All Sizes (2019) [FLAC|Lossless|tracks] <Britpop, Alternative 
 ```bash
 magnet:?xt=urn:btih:CF5804C3FA6992D982E644FEF31A49D1602EDE59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ VA - Jungle Sound Party (2019) [MP3|320 Kbps] <Jungle, Bass, DnB>
 ```bash
 magnet:?xt=urn:btih:961ED1F31AE38D99DA7232E2136BB20BCC14966B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Solis & Sean Truby with Audrey Gallagher - Skin Deep (Solis & Sean Truby vs. Ult
 ```bash
 magnet:?xt=urn:btih:D06C5E4C2F929CA5332B75EF4293075431992D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D46D76BD97C47FB9421BF58D8BB746B1CB5E20BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Solis & Sean Truby with Audrey Gallagher - Skin Deep (Solis & Sean Truby vs. Ult
 ```bash
 magnet:?xt=urn:btih:3E25304FFA57DE6EDD86CF8A7D405797428884DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Fantastical - приложение представляет собой кале�
 ```bash
 magnet:?xt=urn:btih:7231F05417F9466CCE09C7EF637EF1C0E0E9433E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Sylvia Vrethammar - Vortex (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jaz
 ```bash
 magnet:?xt=urn:btih:320917BE73D05A104172D1160961CF053928B2EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Devonthink Pro Office — программное обеспечение для �
 ```bash
 magnet:?xt=urn:btih:5A0E21F157B548D371E53E755A62A1416782DCC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Movist является простым в использовании и мощн
 ```bash
 magnet:?xt=urn:btih:A5BDB0ED6B0B0D911AB54982715BBD98BEB63DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4312EE0AE1A95D19B9D7C0269F3036FFCD9D759D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Orjan Nilsen pres. Orion - Gobstice (2007) EP [FLAC|Lossless|WEB-DL|tracks] <Tra
 ```bash
 magnet:?xt=urn:btih:E5FBE773540AA3D86D5FCF66DD0716C7F4EB86C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E45856DA68896905F0CB6CD03048AFB7821BEDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ VA - Bass Line Beastmode (2019) [MP3|320 Kbps] <DnB, Dubstep, Jungle>
 ```bash
 magnet:?xt=urn:btih:77309FCC3DD2B06F3916D8535BA94080DB035E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64830A864B8FC19B361F85C70D235D192616FC4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ VA - Autumn Electro Dance Session (2019) [MP3|320 Kbps] <Dance, Electro, Dance H
 ```bash
 magnet:?xt=urn:btih:7EAF164141F8130DFB9072DC96B87731090CFA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Adguard — это лучший способ избавиться от разд�
 ```bash
 magnet:?xt=urn:btih:B5617CD29B1C498B95B3EE44540FF0A0A2B5539C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ VA - Intermission: Chill House Music (2019) [MP3|320 Kbps] <Chill House, Deep Ho
 ```bash
 magnet:?xt=urn:btih:270D0BE58F20DE47DE223E4B7957031E4426D38E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ VA - Modern Sound Orchestras - Morning Has Broken (1992) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:976D8FAF52FDDC1A4258C5A34461384E7AD5208B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ Inpaint - программа, которая позволяет умно уда�
 ```bash
 magnet:?xt=urn:btih:9F8EE3CDF68FBE14D089D85B0BA3039993FEA9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A09ABC197E233F18148A6116F28C0950A8AB52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ Photo Editor 6 Movavi v6.0.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2AFFC676E960D23581C8015495DFB30B0F0FC113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ Opera 64.0.3417.54 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7A7AAE8D2BBD68B915F346A344C52669C8CC3CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

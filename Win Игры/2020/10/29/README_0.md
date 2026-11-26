@@ -19,8 +19,7 @@ Dark City 5: Budapest (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:4F127853C6CBF0240F71C28AC2DB439F394A2473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phenomenon 2: Meteorite / Феномен 2: Метеорит (2013) [Ru] (1.0) U
 ```bash
 magnet:?xt=urn:btih:79D0A5159B3A3392FB177EADBF5D3BB49CE72985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Laura Jones and the Secret Legacy of Nikola Tesla / Лара Джонс и та�
 ```bash
 magnet:?xt=urn:btih:18F437A84394AC3BA465F03731D12199A89F12BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Transient (2020) [Ru/Multi] (0.119) License GOG
 ```bash
 magnet:?xt=urn:btih:51427A3F3233318B9ABC66F8D522A09513A01B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Far Cry 2 (2008) [Ru/En] (1.03/dlc) License GOG [Fortune's Edition]
 ```bash
 magnet:?xt=urn:btih:5FD9D17EC3F4995DCAF271C8FF6A25F6252A93CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

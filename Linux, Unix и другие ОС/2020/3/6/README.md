@@ -20,8 +20,7 @@ Ubuntu*Pack 18.04 (февраль 2020) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:59CF0FE5E5A9B0B03FAC37C4BBC3B8BA86D4A166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

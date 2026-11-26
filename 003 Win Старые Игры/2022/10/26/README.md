@@ -19,8 +19,7 @@ Wolfenstein: Enemy Territory - это бесплатный многопольз�
 ```bash
 magnet:?xt=urn:btih:0C718F7CF8DC5B0109289861B047C4E12651BC27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Andy Timmons Band - Resolution (2006) Digipak [FLAC|Lossless|tracks] <Rock, Hard
 ```bash
 magnet:?xt=urn:btih:C4F25A81E0FA494FEA48B5007DBE19A2868A2683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - A Tribute To Rancid: Hooligans United (2015) 2CD [MP3|320 кб/с]<Punk, Ha
 ```bash
 magnet:?xt=urn:btih:F4A64E2C8321B757502F8D4D203D7060E082C3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ The Cure - The Head On The Door (1985) Reissue, 2008, Universal/Fiction [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:EDB7904AE34B8C5FC919AA9A2482A6FAA7F55E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Avantasia - Ghostlights (2016) 3CD Limited Edition Digibook [MP3|320 кб/с] <S
 ```bash
 magnet:?xt=urn:btih:0BBA44B25DC77773E885D698891F4B331485CF73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE0DA3501FEA5BAAE38165025F422F9CA26903FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Andy Timmons - 2 альбома (1999, 2002) [FLAC|Lossless|tracks] <Rock, Hard 
 ```bash
 magnet:?xt=urn:btih:AF6BC7D75C54FB938F81386E3FAC93CCFDFE9DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Alice Cooper - Classicks (1995) Compilation [FLAC|Lossless|image + .cue] <Rock, 
 ```bash
 magnet:?xt=urn:btih:B5C4E52FA6D970F4DDB22DAF87E8057A45E9D80B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

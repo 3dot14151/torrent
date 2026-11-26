@@ -19,8 +19,7 @@ Legacy: Dark Shadows – это трехмерная приключенческ�
 ```bash
 magnet:?xt=urn:btih:58DAC472E0F05F0DEE0F0C6D5446F627D2A835BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

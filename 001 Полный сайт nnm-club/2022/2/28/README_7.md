@@ -19,8 +19,7 @@ Filmage Editor 1.2.1 [En]
 ```bash
 magnet:?xt=urn:btih:E72D82EF27ECD776E5B9D995B6BCF97F7002FDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Keep It 1.11.12 [Multi]
 ```bash
 magnet:?xt=urn:btih:9D908DE56DF993BC09763091981AA60C024C0478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CheckBook Pro - это не просто базовый инструмент р�
 ```bash
 magnet:?xt=urn:btih:D5A57703A90A9CE7F35ED8DB2EDCD7A7FC29776D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Music Tag Editor - редактор музыкальных тегов помож
 ```bash
 magnet:?xt=urn:btih:C67F088116F0BB26370B48EB31F6490065330E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ FigrCollage - программа для создания удивительны�
 ```bash
 magnet:?xt=urn:btih:6B0CC9B69B0960496AEB30D804406FFD617E00F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ WonderPen - приложение для как для профессиональ
 ```bash
 magnet:?xt=urn:btih:3B70E94664BB5DA0FC8638FAC69E2F9A2DF8B171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Batteries 2.2.2 [En]
 ```bash
 magnet:?xt=urn:btih:25C06181833FC3E04EE421D7F9EA33CA1A749B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ YouTube5 был расширением Safari, когда Flash был еще в
 ```bash
 magnet:?xt=urn:btih:27B0346B38F7B0670905923E16987ABAE25CB9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:EAB2F09EB399D433DE2941A75F0B22170E1B82B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ VA - The Essential Downtempo, Vol. 3: Chillout Your Mind (2022) [AAC|~326 Kbps] 
 ```bash
 magnet:?xt=urn:btih:9DFE4118FC9775D0DFBF5D56C00739C53C131480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ dBpoweramp Music Converter - это совершенное конвертиро�
 ```bash
 magnet:?xt=urn:btih:73D8B18E5ECD1403D71E2240979A644E7D706F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Navicat Premium представляет собой очень мощный ин
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Infuse - прекрасный способ смотреть практическ
 ```bash
 magnet:?xt=urn:btih:F29C64C3661556225825F9B08BBC8D72F11A56BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FB5EA68BE4B50F7AAC0750015F805910722DEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ TurboMosaic — утилита, позволяющая легко и быстр�
 ```bash
 magnet:?xt=urn:btih:61C10AB1B72DF24D6CFEDFBB3781E2DED2D04177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Cocktail - комплекс утилит по всестороннему обс�
 ```bash
 magnet:?xt=urn:btih:7FEF94642275B366E4B8E9C8AE69507DA9DAFD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ Aiseesoft Mac Video Converter Ultimate - мощная программа для 
 ```bash
 magnet:?xt=urn:btih:C84C1BFBE28F90AC821D325A34224CF0BC74C153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14F79ADFA747509425D56717A4F3F44D643BC898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ Aivo - Infinite Path (2022) [MP3|320 Kbps] <Synthwave, Sovietwave, Spacesynth>
 ```bash
 magnet:?xt=urn:btih:008853D0B09D074D16778B1783D3ADAC29186FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ Lo-Fi Electronic - The Best Of (2020) [MP3|320 Kbps] <Synthpop, Ambient>
 ```bash
 magnet:?xt=urn:btih:011F37A2132A195349D02F7013338AA85F45031A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A831847764FA3A30988C3A6DC58F78C44FBA0DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AEE7F3361AFE6F9088410F50FB1805A20E30705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ X.I.L - Rip & Tear (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Meta
 ```bash
 magnet:?xt=urn:btih:A872A662A45AFCE44EC9063DAEE40365D12263BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ Gibson Brothers - 7 Albums (1977-2005) Collection [MP3|320 Kbps] <Electronic, Fu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

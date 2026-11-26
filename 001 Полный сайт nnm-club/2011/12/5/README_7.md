@@ -28,8 +28,7 @@ VA - This Is Goldbrain Records (2011) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:3975B4A1C9D190E88C58C60206D5B32154016FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Vandit: Best Of 2011 (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:4BC12C4C635F61324342BD399A50790EDFE737C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - TMP:  Vanilla Dreams - 053 (27.09.2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:F26D5E998E0654124B695A03C71BACFA351DFF9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ VA - OXA Trance 2012 (2011)
 ```bash
 magnet:?xt=urn:btih:90036F0A050A00DED70272A6603F52ACCD93D423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Gabriel & Dresden - Live at Armada Night @ Crobar (Buenos Aires, Ahgentina)(27-1
 ```bash
 magnet:?xt=urn:btih:5E9A2FB06F17CC0403B2BC69E3CA1E191B8A0381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ DJ Kocmoc - Electro Sensation vol.8 (19.11.2011) [MP3|320 kbps]<House, Electro H
 ```bash
 magnet:?xt=urn:btih:B3C5FBD48C77D5B918603395D120438507CFF4F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ DJ Kocmoс - Electro Sensation vol.7 (15.11.2011) [MP3|320 kbps]<House, Electro 
 ```bash
 magnet:?xt=urn:btih:89D52DAAE8975CCCB3CE7096731B0A18BDFF1D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ VA - Мassive Vibration vol. 1 (2011) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:1DB5F15A6AB4E9404BE3544A0241ECB337178324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Ofer Peled - Ararat (2011) [FLAC|Lossless]<Ethnic Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +332,7 @@ Wladigeroff Brothers - For The Greatest And Little Things (2011) [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +391,7 @@ The Long Beach Blues Band - The Long Beach Blues Band (2011) [FLAC|Lossless]<Blu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +425,7 @@ JudoPluto - The Breakfast Session (2011) [FLAC|Lossless]<Post-Bop, Swing>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +459,7 @@ Markus Schulz - Global DJ Broadcast World Tour Dallas, Texas (2011) [MP3|320 kbp
 ```bash
 magnet:?xt=urn:btih:3A0F2BD22A04434384285D551698A2CC90BC7FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +493,7 @@ CD12002Жанр: PsyChillПродолжительность: 01:11:33
 ```bash
 magnet:?xt=urn:btih:E8D4A3A821FAE0CD21C0F163AD687A793293C977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04B74F2A863D6CF4C13C898E50F42BEF8883B807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +554,7 @@ VA - Etui: Summer Camp 3 (2011) [MP3|320 kbps]<Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:7E43B2AE389979439EDFCF05421CC80DDB141626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +579,7 @@ HyperSnap - инструмент для захвата изображения, �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6AF398E484375CAE8C4455B317AEE14939B7773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +638,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:4B3CF7E750CA511DD7DC3D74853DE1A6465CA13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +672,7 @@ VA - Молодежный хитовый по-русски (2011) [MP3|256 kbps]
 ```bash
 magnet:?xt=urn:btih:CCC337BFA9B5246B997CF98F1BF2B75D758F686D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +706,7 @@ VA - TMP:  Vanilla Dreams - 052 (23.09.2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:372FD9EC5E031074EC23C8D65AB94E0D0551F254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +740,7 @@ VA - Brood Techno 01 (2011) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:3E67B9E9C14531535FD6153B0927261D305B62F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +765,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B36002351002B009087DA25A7D30D4E2862CBA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -823,8 +799,7 @@ Hard Stuff - Bulletproof (1972) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
 ```bash
 magnet:?xt=urn:btih:E419AE503FB5EEC2E245A7967225F25E49D31C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -858,8 +833,7 @@ Wentus Blues Band - Woodstock (2011) [APE|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

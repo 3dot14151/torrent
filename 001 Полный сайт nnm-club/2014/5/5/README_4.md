@@ -27,8 +27,7 @@ NikitA - Хозяин (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:5327EA5CDACC6701FB7507908F859E94C5E68D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67119814A6B523EB5156A3C62E064B72689AAA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Temperature Gauge Pro также покажет уведомление чере�
 ```bash
 magnet:?xt=urn:btih:3F86FAFC57C63ED168711C3F4439D83F16B64C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:178CB5EC35808ED79B739F86390B230EDAAD9B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Sunshine Reggae Love (2014) [MP3|224-256 кб/с VBR/CBR ]<Reggae>
 ```bash
 magnet:?xt=urn:btih:8D47142FE523BA54CC1CC04012FA4093C88E826A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:411094C580DCD813AB422886A28B0D1920AE8BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C1ED3739AAD88257D9482A2DC2525664EF9AF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Onyx - #WAKEDAFUCUP (2014) [FLAC|Lossless]<Hardcore Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:01698A7FF50A99B3E23914B70C576523BFF0D700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ BBC. Horizon: Бесконечная бесконечность / To Infinity an
 ```bash
 magnet:?xt=urn:btih:35B32CEF1ECE2D43A2255B6DD7AD485FDBA85212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ S.E.N.S. - Palace Museums Series (1996-1997) [MP3|320 кб/с]<New age, OST>
 ```bash
 magnet:?xt=urn:btih:878E224E56281A51B599FD6445DA01772EDAEDA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16FA3FCB86FD64E3F333C5C92741C6B7A7D9377B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ Coppelion / Коппелион [2013, TV, 13] BDrip 1080p raw
 ```bash
 magnet:?xt=urn:btih:FFE94115CEAE3B9D5B3C78B018C85800B99B593A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12C62ED6C0CEC10D84D189EEFCE7AEE7AB66FFFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ BBC. Хэви-металлическая Британия / Heavy Metal Britanni
 ```bash
 magnet:?xt=urn:btih:D4849F5F4E1FDC5F71421C89FB2D7F995890DE06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ VA - Bodhi~Dharma Left for the East (2009) [MP3|320 кб/с]<Buddhist Mantras/Ch
 ```bash
 magnet:?xt=urn:btih:C43032F13445B675C380BD2CD7638EB5DA4A5954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ BBC: Духи ягуара (4 серии из 4) / Spirits of the Jaguar (2006) 
 ```bash
 magnet:?xt=urn:btih:81EA7B0FE0207F1E1A0D3FD4FCE3BA6D7E819627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B92B271FB15B255A525315369B29DB62BAF329FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9151566037314A9163590E2BE975A95DBD9D043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F33D7DFBA1BF350E8921E9BA2D4EE9FE93FD42C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ Clownfish – это онлайн-переводчик для всех исхо�
 ```bash
 magnet:?xt=urn:btih:A3A254B9E285DB99F411DD39BFF80466DE65D243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ BBC: Удовольствие и Боль / Pleasure and Pain with Michael Mosle
 ```bash
 magnet:?xt=urn:btih:CEE6BFE9B84F9F964585B04400B1CBA496137B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +643,7 @@ VA - Pure... Blues (2010) Box Set, 4 CD [FLAC|Lossless]<Blues, Jazz>
 ```bash
 magnet:?xt=urn:btih:5DFC3157D22F43579990B6C0165963D99B5BC4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E040990D735C793713B8D2E7439D9E5781DAC5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +720,7 @@ Opera 21.0.1432.57 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:50AE428632B2F7CE7679E1AFDCEDC3D9C18CEC46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

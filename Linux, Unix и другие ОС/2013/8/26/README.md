@@ -21,8 +21,7 @@ Manjaro Linux 0.8.7 (Arch + XFCE, openbox, net: легкий дистрибут�
 ```bash
 magnet:?xt=urn:btih:D26D358C4EF062776BE25391AFC874A4E9792A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kubuntu 12.04.3 обновление LTS-выпуска, в которое вх�
 ```bash
 magnet:?xt=urn:btih:5DBFE82D463535E38CD77E89EE0805525F3D7553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

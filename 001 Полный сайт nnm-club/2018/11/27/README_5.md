@@ -22,8 +22,7 @@ Bunny Berigan And His Boys - 1935 - 1936 (1993) Classics [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:903D0CB7C465D0D4D2DE8DC52603DB91A1780A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Your Lifestyle: Psychedelic Trance Music (2018) [MP3|320 Kbps] <Psychedelic
 ```bash
 magnet:?xt=urn:btih:C7D7BC8B22D64E1FA8ABD8022615EF114897A2B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89AC258BF50382BC89AE650F529BC1325F92DA60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ GraphicConverter 10 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:269C98D5120A11869668983DFD67B4658CF03DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Festival Anthems 100 Designed (2018) [MP3|320 Kbps] <Trap>
 ```bash
 magnet:?xt=urn:btih:8DCE62519638D0731E192AEAF52049298CA3078D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ David Boydell - City Music (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disc
 ```bash
 magnet:?xt=urn:btih:F047F8D0D55E217D48B2373605129620371EBBC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Loleatta Holloway - Love Sensation (1980) Charly Records, Reissue 1995 [MP3|320 
 ```bash
 magnet:?xt=urn:btih:19C27F18F9E2C8BB5585515187039BF63EB56FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ RightFont - менеджер шрифтов с  красивым интерфе�
 ```bash
 magnet:?xt=urn:btih:DE51A08AF05B5221B3F0E910FBACA6725C46C138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C9AED8B2D95CDBE07D3653F1EC25981CF98A985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Slimjet 21.0.3.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FE136B6805906F845A2CBF387B707FFA58B5E0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:D5853810E4BE409B3CA8982E8AA21B319FE9C5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:79FF1588EEC211910776A410E874175A6F38BB82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:0179042CCA999C54E006516130B6CB2A89AECFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Pixelmator представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:1D6C2C8127CCCC4A8CCE1815FE023BCB194E8C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ VA - Ibiza Winter Session 2019 (25 Lounge Cookies) (2018) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:0BD713C2ADE6E8C398C5E0A1231869CADD75C776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ IObit Uninstaller представляет собой удобный инстр�
 ```bash
 magnet:?xt=urn:btih:7334DD89B93A3DFE0FDFF7AD29B395EE8E345EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E41DC7C25119B113B520AB11A5A77F95BC58086F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BD1AE2B1C92BDC36178EA84CD6E46337295D4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ VA - Playlist of Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acou
 ```bash
 magnet:?xt=urn:btih:8D44AE77A69DF6A0237611951286C1583F73CA12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:38A5984F58788898A34186C78BD20BED16425751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:908011AD8CC9320304C3D3D89E0B7DD582FCA717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:875E8B874EEE3E7ECE64AD0CE0FA05AEF2405173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD4398F9F61B6D7B48BA05274F5845FA49A05E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCFD92A951B190B9F505880C7EB63203C1C6C214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61D0D095DDE87162A7942E7E07365892407F6C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59C432E7817820FFAF2F1C3FCDD1803841A0F9EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ubuntu EducationPack 18.04 (апрель 2024) [amd64]
 ```bash
 magnet:?xt=urn:btih:0CA4590DE3E268263FC34B8819EEEAF731586B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

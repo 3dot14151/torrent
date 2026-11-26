@@ -20,8 +20,7 @@ Network Scanner 4.4 build 221 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0A46EFB6224DEE607113A96324584650CB7FDFF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Menace - Impact Velocity (2014) Limited Edition [FLAC|Lossless|image + .cue] <Pr
 ```bash
 magnet:?xt=urn:btih:C013C5EF01D7B7439574AAF2801BCB67141D3E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Girlpool - What Chaos Is Imaginary (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie P
 ```bash
 magnet:?xt=urn:btih:317A99F6798FAA8DF2A06A1119C2D716ABF7FD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Clouds - Destin (2017) EP [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funera
 ```bash
 magnet:?xt=urn:btih:E4C8365C11B21A4C29ADE1334054C4356F45FFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Beirut - Gallipoli (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, Alternative
 ```bash
 magnet:?xt=urn:btih:EDE0DBC23BF656C3D9334D3E26ABF06EE119D217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46F1DFD3375D5FD7E5389151564BC53100D0BD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Within Temptation - Resist (2019) Extended Deluxe [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:17B6D34F7186463DC95CC49711933C7F79C80ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

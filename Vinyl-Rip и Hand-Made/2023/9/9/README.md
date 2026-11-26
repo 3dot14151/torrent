@@ -22,8 +22,7 @@ A4 Looser(   Читать дальше...   )Жанр: Heavy, Speed MetalПро�
 ```bash
 magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Treasure Seekers: The Time Has Come Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:DDC663D7439C9090DC1EF9D035A49072BB6DC79D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dream Day Wedding / Мечты сбываются (P) [Ru] 2007
 ```bash
 magnet:?xt=urn:btih:526ECF4D6399B531D6342D95DB717CCA9B8EC776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C0E4D32EB40318E1465652F907D4119D0BCBC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dream Day: First Home / Мечты сбываются. Наш первый до�
 ```bash
 magnet:?xt=urn:btih:F8A572E2D09C19661D13838F210B7DC3E55EB64F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBCBAE5E623B3202F59FC684F81087E55EACDBAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

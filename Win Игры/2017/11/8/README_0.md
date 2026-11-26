@@ -19,8 +19,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License RELOADED [Epi
 ```bash
 magnet:?xt=urn:btih:9603016868EFCCF542928CF90224E5179E337BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ de Blob (2017) [Multi] (0.28b) License GOG
 ```bash
 magnet:?xt=urn:btih:005B8BE773F69126C8F5E5E1050B604815DCA13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

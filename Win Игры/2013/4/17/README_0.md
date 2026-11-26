@@ -19,8 +19,7 @@ Between the Worlds Special Edition Bundle / Между мирами. 2 в 1 [Ru]
 ```bash
 magnet:?xt=urn:btih:5C0FC3B2B0595CB99692154FD9F8F1129AB9B7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Anthology Agatha Christie / Антология Агаты Кристи [Ru] (Rep
 ```bash
 magnet:?xt=urn:btih:35FBA0F7615D3F7B0044C62E6B10426E4C491082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Heavy Fire Dilogy / Дилогия Heavy Fire [Ru/En] (RePack/1.0.0.1) 2012, 201
 ```bash
 magnet:?xt=urn:btih:D52EEED344596307B00E6E79CA8C9510A7EE6B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

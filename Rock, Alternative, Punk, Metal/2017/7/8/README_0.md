@@ -19,8 +19,7 @@ A Hope For Home - 4 альбома (2007-2011) [MP3 266-320 Kbps  VBR|CBR]<Post-
 ```bash
 magnet:?xt=urn:btih:4C9ACFF163BE76FC9F5AC533252F75BF450831DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Eleсtriс Light Оrсhestrа - Live (2013) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:EE48419273B75833934401B5E6F1E2FBA9420AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Annodomini - Небо надо мной (2016) [MP3|320 Kbps] <Gothic Love Metal
 ```bash
 magnet:?xt=urn:btih:C4B49955CCA87B0D270B531B43565E53089D9044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

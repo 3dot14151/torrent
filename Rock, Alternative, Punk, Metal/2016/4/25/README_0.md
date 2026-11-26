@@ -22,8 +22,7 @@ Donavon Frankenreiter - Donavon Frankenreiter (2004) [FLAC|Lossless|tracks] <Roc
 ```bash
 magnet:?xt=urn:btih:7CFE07410F9184858F329BBCF2CEC183407BDF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eric Johnson - Seven Worlds (1998) [APE|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F28D8E2021A8A94D0996BCBA2F14E1E40FC2290B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Primitive Instinct - One Man's Refuge (2012) [FLAC|Lossless|tracks] <Prog Rock, 
 ```bash
 magnet:?xt=urn:btih:DD795EA3198FDAFA0C2AC8FA2DB63B49C7AA6E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D4FB8892F569F74F561A41C98BDB380DD23AAB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jimmy Page, John Paul Jones, John Bonham - Rock And Roll Highway (2007) [APE|Los
 ```bash
 magnet:?xt=urn:btih:EC247DC07A0762032DCAD4D0CB9129DAA551D060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Brit Floyd - Live At Red Rocks (2014) 2CD [MP3|320 кб/с] <Prog Rock>
 ```bash
 magnet:?xt=urn:btih:CF2CCB99E299F4B46B4DA56DB83A2EE100947053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

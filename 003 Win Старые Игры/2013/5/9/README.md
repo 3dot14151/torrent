@@ -21,8 +21,7 @@ Vermeer 2: Great Art Race / Охотники за антиквариатом (20
 ```bash
 magnet:?xt=urn:btih:A4F3CE80D13282035AAF92433E5B29300FB5E3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

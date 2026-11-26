@@ -19,8 +19,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BAAB70DA78184578B988BB5704F1D4F437BA2FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Arranger: A Role-Puzzling Adventure откажитесь от типичного
 ```bash
 magnet:?xt=urn:btih:5DA2F51C7A380566FB03EA7C6943317D768CC069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Thalassa: Edge of the Abyss погружает игроков в напряже�
 ```bash
 magnet:?xt=urn:btih:48076E1C6A5F32E2F8ECD2BFCC131DEAAA892D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mystical Riddles 5: Haunted Portraits / Мистические загадки 5:
 ```bash
 magnet:?xt=urn:btih:F67191B6077DD18A0A985D8D1215E3F7D914BAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ PIGROMANCE (2022) [Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:81AC7B5726F140E6C114D0107746996FB4B85525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Zombie Police: Christmas Dancing with Police Zombies (2024) [Multi] (1.0) Scene 
 ```bash
 magnet:?xt=urn:btih:AEA90DDC760ABC5F94C336948E910887FE26402B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

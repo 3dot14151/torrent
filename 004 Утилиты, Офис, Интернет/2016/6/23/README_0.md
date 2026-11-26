@@ -19,8 +19,7 @@ ASAP Utilities — мощнейшая надстройка для програм
 ```bash
 magnet:?xt=urn:btih:392F2347F82AC89E31E9623E5B2B17D481FEE907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

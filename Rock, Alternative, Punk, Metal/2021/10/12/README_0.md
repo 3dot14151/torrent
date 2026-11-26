@@ -22,8 +22,7 @@ Rhizone - Timelines (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Ecle
 ```bash
 magnet:?xt=urn:btih:58B59F12EA5503D9C346C2B33FEB0DB8C823958F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hunka Munka - Foreste Interstellari (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock P
 ```bash
 magnet:?xt=urn:btih:83741E16BD963C65F37281D03F053D6B3624796B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Carcass – одна из наиболее влиятельных метал-г�
 ```bash
 magnet:?xt=urn:btih:9E4087D0247138977AC00E373484B56DBB7C9C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Doro - Warlock - Triumph and Agony Live (2021) Japanese Edition, Live [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:0A92B91FCC75F3F9775BCAFC3521083867CE22AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

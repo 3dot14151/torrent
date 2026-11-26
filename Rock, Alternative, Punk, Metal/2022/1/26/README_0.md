@@ -22,8 +22,7 @@ Pupil Slicer - Mirrors (2021) [FLAC|Lossless|tracks + .cue] <Metalcore, Hardcore
 ```bash
 magnet:?xt=urn:btih:C0F46A532BEBAAC2636944D452931EC78B19EAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cap Outrun - High On Deception (2021) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:8C8D6B484E75F602FCC4C47E80E2F2EBC3833000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:B94EF4EC72FBB81F15286D78CB2A6A547E339A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Nightfox — группа из Тронхейма, Норвегия, созда�
 ```bash
 magnet:?xt=urn:btih:62F8A2FD50881A0EB1AAB22C0DFC561E72C97342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ GIANT - American melodic rock baнда, 21 января 2022 года выпус
 ```bash
 magnet:?xt=urn:btih:743B1292685D4A796377EFD24BB217CB90ACF12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:18DFDBD10A00263CB09C707746B027B32BBBFBBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Magnum -  The Monster Roars (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:188411BC365FF232E946F72573D84126AF2BAB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Heymoonshaker - Live in France (2017) [MP3|320 Kbps] <Alternative, Beatbox Blues
 ```bash
 magnet:?xt=urn:btih:F7C594449048034D0DB95F58B76838608CC6A0B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ Tallan Noble Latz Band - Tallan (2022) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:5CB49241C223B613CB9498354A7BC6F154000C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

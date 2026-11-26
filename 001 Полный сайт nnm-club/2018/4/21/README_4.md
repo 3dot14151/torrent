@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:002250C682F71D2C024B0D4EFCBA26F04602A1BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83C2F2CB448CD43BA852ABAE99D0A055EAD6BB38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ AutoCAD – это больше, чем проектирование. Прида
 ```bash
 magnet:?xt=urn:btih:555EF35B8FD7DEAF72C148259A92FBF6A95C6EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Far Cry 5 (2018) [Ru/Multi] (1.4.0.0/dlc) Repack =nemos= [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:07396D415D30B3D6B234D8A06EB6410BD87065B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

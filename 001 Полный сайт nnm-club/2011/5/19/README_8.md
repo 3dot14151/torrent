@@ -19,8 +19,7 @@ Kaspersky CRYSTAL R2 – это универсальное средство за
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA2EAA191219D17D69BA6EF0559D59DD6F8D5A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unreal Tournament III / Unreal Tournament 3 [Ru] (RePack) 2007 | Episode Russia 
 ```bash
 magnet:?xt=urn:btih:BF9D3D033A632DF9EDF57D519FA0425C3F2000D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Treasures of Montezuma 3 / Сокровища Монтесумы 3 (P) [Ru] 
 ```bash
 magnet:?xt=urn:btih:8191EAB186CE933A2A000C280A96C24C9677B28C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fable 3 [Multi8\+] (L) 2011 | SKIDROW
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

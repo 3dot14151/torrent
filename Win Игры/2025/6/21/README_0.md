@@ -19,8 +19,7 @@ Dreams in the Witch House (2023) [En] (1.08) License GOG
 ```bash
 magnet:?xt=urn:btih:C9D5F00B3D68DBBA829278406B7CE1FFC24C44A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Riven (2024) [Ru/Multi] (1.7.4) License GOG [The Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8D30A6E82E052A94E33C545ACFC384D67E41652E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Monster Prom 3: Monster Roadtrip (2022) [En] (2.17.a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:98EB0D8B69FB65891203816B19DA9E6FFCC1E394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Heads Will Roll: Reforged позволит игроку примерить на 
 ```bash
 magnet:?xt=urn:btih:62E941ECA17CAD5F1AE9C99BA49E207F861614A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Firmament - это повествовательная пазл-адвенчур�
 ```bash
 magnet:?xt=urn:btih:5F4B2E94605B3E360773C72AC704D69F0FBF1C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cultist Simulator - настольная игра о нелёгкой и пол�
 ```bash
 magnet:?xt=urn:btih:E4F9B56CA1154ACF575838C88792AF7708A315FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Thrive: Heavy Lies The Crown (2024) [Ru/Multi] (1.0.0203) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:54661AC5BBF71193BD03B7F870BB84BAA239EE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:9C553299B60F6F425BAC8BB5891079DEA79B1A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Cryptmaster – здесь вы сможете говорить что угод�
 ```bash
 magnet:?xt=urn:btih:FA54719C156117C1B1E26C609F0A41AC442D43B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 ```bash
 magnet:?xt=urn:btih:791EE4BE9504A9F2F3F6A660B2EF28D73B107164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Empire of Sin - стратегическая игра от Romero Games и Parad
 ```bash
 magnet:?xt=urn:btih:CE82CCDC140552713DCEBEBC0FEAFDEEC8F8648B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:03159A0BC80606FAC8400D7336C2C1BC2D4E5218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Soulstone Survivors - это динамичный экшен-рогалик, г�
 ```bash
 magnet:?xt=urn:btih:7063C0A3EADC8EC6CFD0A2C25339B885C0B7ADA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 ```bash
 magnet:?xt=urn:btih:C4B508A2DE7F33605AC1343AF262BAA51AB65457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Suit for Hire - захватывающий экшн с видом сверху, 
 ```bash
 magnet:?xt=urn:btih:8FEC18E09B6B093DF526586654DA3F633198F611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Adventures & Quests: The Black Crystal (2025) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:CC0EAA1D140F39F185E70621BE3D258EAE745974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Nine Sols - это насыщенная сюжетом двухмерная иг
 ```bash
 magnet:?xt=urn:btih:18B29F52B208C00A7BE56E57548E908F23D52701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:619E4011F6A10E5AC0D8A884B9CB2B2CDC37388E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

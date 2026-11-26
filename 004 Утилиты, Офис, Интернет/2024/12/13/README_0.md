@@ -21,8 +21,7 @@ Nekoray – это программное обеспечение, которое
 ```bash
 magnet:?xt=urn:btih:6984BF2E8A229B99D48B9D335E397619D87B83A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ AMD Ryzen Master - официальная утилита от AMD, с помощ
 ```bash
 magnet:?xt=urn:btih:F55E77DB5754E8CC63EFC36EA44B54BB60206530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

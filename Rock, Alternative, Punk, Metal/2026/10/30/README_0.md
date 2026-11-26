@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:9E84953224ED15F14B10147CF3FD47A59CB65B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE69EF9E106283CC6D3755C8814ED6D7EC229615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFA1C41952088CE17A901395EE74BA6845C2F68F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Cirith Ungol - All The Shadows (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hea
 ```bash
 magnet:?xt=urn:btih:B0F6E530F9E377EFB7D427CA1FCC68F449EE4423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

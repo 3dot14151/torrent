@@ -19,8 +19,7 @@ Batman: Arkham Asylum (2010) [Ru/En] (1.1) Repack Decepticon [Game of the Year E
 ```bash
 magnet:?xt=urn:btih:9E75BE0E24815CFAD746A1FF95F62F452C071D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ICARUS (2021) [Ru/Multi] (2.2.16.125988/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BFB1F6925311E34CD02FD251362BF2ED2093EEF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B383D703E267A4EF178DC19EF2EB0A144DE5D4CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ghostrunner - эта жестокая игра-слэшер от первого 
 ```bash
 magnet:?xt=urn:btih:8187B9B874371660451D9AAF8994447A4C5002C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lifeless Planet - новое трёхмерное приключение для 
 ```bash
 magnet:?xt=urn:btih:062329B424770BBBDDEB5D3B8252E93830C87F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Among the Sleep - удостоенная множеству наград игр�
 ```bash
 magnet:?xt=urn:btih:091AB4FC075DB3E45491FA3F749E1DF2407F2623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hero's Adventure - это ролевая адвенчура с открытым 
 ```bash
 magnet:?xt=urn:btih:A41E649912B237D5E6A2002A6D0242D57F504D1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Crush House бросает вас в жестокий мир реалити-
 ```bash
 magnet:?xt=urn:btih:A436B67C454E2C7FFBDCE69E2AB771C0D6617729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tokyo Coffee: Grinding in the Pandemic (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E43D8F4F93855CCD7647F4E4E4CDE367CACAFCDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Bathhouse Restored Edition – перед вами невероятный я
 ```bash
 magnet:?xt=urn:btih:CD8B1412771FBFF03BB12E0B21B74600E447E6B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Voidness - Lidar Horror Survival Game - это леденящий душу �
 ```bash
 magnet:?xt=urn:btih:4F3D5E2012DCB38912E987AD9AD3887B4892D3CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

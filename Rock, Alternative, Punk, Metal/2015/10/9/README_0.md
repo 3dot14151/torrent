@@ -22,8 +22,7 @@ Wendy O. Williams - Wow (1984) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:525858C6587E978E898F228DF69642DD3E015C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Old Man's Will - Hard Times - Troubled Man (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4EA68350B7C0CD8F8DFD3641995D5D74A760581D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Amorphis - Under The Red Cloud (2015) 2CD Japanese Edition [FLAC|image+.cue]<Pro
 ```bash
 magnet:?xt=urn:btih:6F4559606129E9436FA3B6DD550F2E0160A95CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:ABFFA7FF9189B87EFE080B611765A68F02F4B70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sweet - Action (The Ultimate Story) (2015) 2CD Deluxe Edition [OGG| 446-548 кб
 ```bash
 magnet:?xt=urn:btih:FF1D5A7EA406CDE9382C3AE0378D1221CF450D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ John Lennon - тот редкий среди рок-музыкантов слу�
 ```bash
 magnet:?xt=urn:btih:3EC804DFD3C7A48E1282875AD08D745E5B2B1C02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Blue Stahli - The Devil (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Industrial Ro
 ```bash
 magnet:?xt=urn:btih:38875BD9521AF00E27D188250E6AA849B3D98332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ LMDE 3 "Cindy" MATE Edition by Lazarus [32-bit, 64-bit] (2xDVD) [Авторск�
 ```bash
 magnet:?xt=urn:btih:24FD36D3F41325FC63C51337BAB7170DF06EF9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mattermost - это онлайн-чат с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:D858A68429D0CE551261F9F5AE16F70019C06E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

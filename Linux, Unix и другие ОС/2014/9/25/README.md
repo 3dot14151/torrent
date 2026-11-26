@@ -21,8 +21,7 @@ Fedora 21 Alpha  [i386, x86-64]  4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:740B6D33CD153CA277A8C4C5CB89DF4645D5D89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

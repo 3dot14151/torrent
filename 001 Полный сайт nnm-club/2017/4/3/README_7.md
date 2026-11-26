@@ -18,8 +18,7 @@ Windows XP Pro SP3 VL Ru x86 by Sharicov (v.27.03.2017)  [Ru]
 ```bash
 magnet:?xt=urn:btih:FC695BB421318D16F9C47F5B554D10D660FF71A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

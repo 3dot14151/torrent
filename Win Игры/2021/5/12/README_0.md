@@ -19,8 +19,7 @@ Papetura — атмосферное приключение, полностью �
 ```bash
 magnet:?xt=urn:btih:9D484BC29F4F8CD1DE8AB211435F9D3B7565B266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

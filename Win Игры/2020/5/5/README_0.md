@@ -19,8 +19,7 @@ Dark Tales 9: Edgar Allan Poe's Metzengerstein / Темные Истории 9: 
 ```bash
 magnet:?xt=urn:btih:3CA717739AC0CC5DBBC306C183E8A704B0F314EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mable & The Wood (2019) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:10F27389FE177EE613E14A7E67D95FDF7D79F8B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 ```bash
 magnet:?xt=urn:btih:94A62FCC72F31CDFB03D66EF932036375C7BDDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ OpenSuse Leap 15.1 [x86_x64] 3xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:2C4FB08D0F4062C52DF73C9582536F521CF48157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

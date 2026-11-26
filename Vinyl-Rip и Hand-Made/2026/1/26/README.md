@@ -22,8 +22,7 @@ A4 Percy Faith - The Girl From Ipanema(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:58F98397BC520059E590539FD14AC2F7FEA0A4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

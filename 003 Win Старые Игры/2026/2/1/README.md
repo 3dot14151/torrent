@@ -19,8 +19,7 @@ Nosferatu: The Wrath of Malachi / Вампиры (2003) [Multi] (1.0v3) License 
 ```bash
 magnet:?xt=urn:btih:F99E3DAAA422F96A8D37D2D6A056EE69190290D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Abominable Putridity - The Anomalies Of Artificial Origin (2012) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:391F56B07F7DC425D9DA0BB1DB50962279BF63CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Voices Of Destiny - Power Dive (2012) [MP3|320 kbps]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:BB468C7EFDB9E3CC8F4291EB7E692627DF3A8698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Drakkar - When Lightning Strikes (2012) [MP3|320 kbps]<Epic Power Metal>
 ```bash
 magnet:?xt=urn:btih:3A9BF039074BC6EFD2637ACBCAC36F4972E92C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Chapter II – The Trap
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Smokie - Best Ballads (1997) [FLAC|Lossless]<Rock, Soft Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ VA – Rock N Roll Get All Stars Here (2005)(10CD Box Set) [FLAC|Lossless]<Rock 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Nazareth - Hot Tracks-1976 (1987) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:66FBA7F2BA257A4CC7D77038A7481CF4837466A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Delia - Спогад (2010) [APE|Lossless]<Symphonic Gothic Metal, Female Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

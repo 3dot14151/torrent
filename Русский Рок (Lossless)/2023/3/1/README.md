@@ -22,8 +22,7 @@ Rabies - Бестиарий (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:BBC4359797FDC9145866791BCE2D7F9A1DAA3A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

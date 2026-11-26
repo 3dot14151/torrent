@@ -22,8 +22,7 @@ Phelian - Quadrivium (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, U
 ```bash
 magnet:?xt=urn:btih:586C21226C957F68BA34840DF68FEE3E0B5563BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Henny Vonk - Rerootin' (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:1E20BF0F3E1666AC865D9C23DC4D452A9973C5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Deana Carter (Дина Картер) - Did I Shave My Legs for This? (1996) Capi
 ```bash
 magnet:?xt=urn:btih:69CCB7AD59B06A657C800CEE8C9F2778525B5DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deana Carter (Дина Картер) - Everything's Gonna Be Alright (1998) Capi
 ```bash
 magnet:?xt=urn:btih:57500CF2BE259668C162668F295887C9A2440F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Errormatic Vol.2 (2018) CleanError Records [FLAC|Lossless|WEB-DL|tracks] <I
 ```bash
 magnet:?xt=urn:btih:49B2C7E8AAF30CD3392D6F4E5DFEBB09DF932F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ PDF Combine - надежный инструмент и незаменимая п
 ```bash
 magnet:?xt=urn:btih:6A0275378CE0C9F00BE7837DD7D67288D1998D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Deana Carter (Дина Картер) - Did I Shave My Legs For This? (1995) Patr
 ```bash
 magnet:?xt=urn:btih:F1DBDF1A9BBBC8043399AEE6A539011E40C24199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D406688676E062655DF1DD11171BEBCF06447AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - Deep Cool Grooves (2018) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:BD5018636FAAD53CE89C120B0F70744B8FE8C877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE6B8092E5E20243047146272773D272A2A8DBBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Nym - Convex (2015) [MP3|320 Kbps] <Trip-Hop, Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:C9E9995676F74AF21B2D0AAEE2F3E32D89941E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Gerry Mulligan & Chet Baker - Carnegie Hall Concert (1974) 1987, Epic [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:D483C35CC6CD96FFABAC53DA90492787DB91A0FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Coolutils Tiff Combine - надёжная программа, с помощью 
 ```bash
 magnet:?xt=urn:btih:5725DAE6BE3DCB9E8474DF87D7630D9A2CD3F47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Joanne Tatham - The Rings of Saturn (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 ```bash
 magnet:?xt=urn:btih:A4D6D88E2A146EE0EF0770BE00F69B0DECD11C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F54C02DC6F5F4AB5C740360B026D81A08226A297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Martin Nonstatic - Ligand (2017) [MP3|320 Kbps] <Chillout>
 ```bash
 magnet:?xt=urn:btih:A94FB2B666406B1C895C850AD400543301674553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Kotra - Freigeist (2018) Kvitnu [FLAC|Lossless|WEB-DL|tracks] <Experimental, Noi
 ```bash
 magnet:?xt=urn:btih:8D469FDA1DCC627F2D2EA271D9EB5970E142C7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Illwill — восьмой студийный альбом группы Lake of 
 ```bash
 magnet:?xt=urn:btih:C4DB17C8BE49F59258FA7AE9F7D5B667BD1A8C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCCBDE553309932FE9C17128D4ED0C2C79BCB1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ The Soundlovers - People (1997) [MP3|320 Kbps] <Euro House>
 ```bash
 magnet:?xt=urn:btih:804038E1388EBB67B4668605E8B26B97228EA0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ VA - Fireplace: Best Lounge Music To Relax (2018) [MP3|320 Kbps] <Balearic, Down
 ```bash
 magnet:?xt=urn:btih:04CEF7CF6F764F297A6770ACA109466A52D126AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ VA - Dj World All 2018 Nice Day (2018) [MP3|320 Kbps] <Dubstep>
 ```bash
 magnet:?xt=urn:btih:D962B1967AC869072E48C8A4FFDA92E1C7BAC9E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ VA - Schlager-Marathon 2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
 ```bash
 magnet:?xt=urn:btih:D56EDD7384E0AD451087D9A8E6FF3890D2A619E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ VA - Mimicry: Bass Line Edition (2018) [MP3|320 Kbps] <Drum And Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:521A1177EE529E3B0390A94C306B0248D283DAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:913F00752168C9FC0C90FD96DC7848ED374896AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F8BDFBF24BB004F40B26041326D2E095ED16491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:84A27681301EDB84BE970A1120B23DE42AF734E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ III век до н.э. Средиземноморье является арен�
 ```bash
 magnet:?xt=urn:btih:5FF4830D740EEBDD7273032D116CCCA9AA71410E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Lethian Dreams - 6 альбомов /Дискография/ (2003-2012) [MP3|12
 ```bash
 magnet:?xt=urn:btih:0B03EADD78D22FD04AF22D9167685678C632225E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Dethklok - The Doomstar Requiem – A Klok Opera (2013) [MP3|320 кб/с]<Melodi
 ```bash
 magnet:?xt=urn:btih:80EB1061BD300A944C2439CF87B6B71B60435386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Nautilus Pompilius - Эта музыка будет вечной. Наутилу
 ```bash
 magnet:?xt=urn:btih:5EDB6264F0C2E0E4F1ABAB85DD0FE23299B616B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:664B89153814AD32D82AA1768644540A280A6FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Motion Design v2- пакет дополнений в универсальных 
 ```bash
 magnet:?xt=urn:btih:74BC3F2A4ED307CB514BD7836AF3C81C24EB6C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:12E755E07E040DFEF568210E3E4E66C5CAF8A961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ FINAL FANTASY XIII/13 (2014) [Multi] (Upd3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:1514759700778EDADF8A7E5870779641D398CE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7497C796F20492D2D885C08D34908F746322C4F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:6650EEA1E680B40F8A00B164BD625CD3D3E86F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Claymore / Клеймор (2001-2012) [21 том (155 глав)] [Манга][р
 ```bash
 magnet:?xt=urn:btih:BE6CEE2C6C5CFA8942C8222D402B55B06370D41E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Dragon Age: Inquisition (2014) [Ru] (1.0.0.3) OriginRip R.G. Игроманы [D
 ```bash
 magnet:?xt=urn:btih:3D4B9393A73DD8062B73522BE4FD004E423538E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ another wave project - The Best of (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 ```bash
 magnet:?xt=urn:btih:8E7C7EC4A3112902E799FAEED687938FC9898E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

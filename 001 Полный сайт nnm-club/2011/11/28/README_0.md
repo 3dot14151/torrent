@@ -27,8 +27,7 @@ Vivaldi - L' estro armonico 12 Concerto grosso op. 3 (1952) [FLAC 1.0 16/44|trac
 ```bash
 magnet:?xt=urn:btih:5DE0255BC3ABC881128F67A2118977EE04B7917C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A650EE8CEDC7C605AEC7C9AD9551A06E0F8994BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - XXXL Вулкан Удовольствий (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:48631285947E684E6CFA81276130F326891E4E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ VA - Жажда Скорости - Hot Night Races (2011) [MP3|256 kbps]<Club | 
 ```bash
 magnet:?xt=urn:btih:690B2DD3F130F81AC1582C9DDF18890A734300AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ So Klingt Liebe (S)2006Жанр: Synthpop, EBMПродолжительность
 ```bash
 magnet:?xt=urn:btih:B01FC4A1E03166FB294CC63DD2CEA99E5E439CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Ailextoro  Best Hits (2011) [MP3|320 kbps]<Electro/Electro House/Dub Step>
 ```bash
 magnet:?xt=urn:btih:34DE748D8A4370FB6375C6627FEC11BCC1325E2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ VA - Хит FM On-Line Music 50/50 (2011) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:ACA07AC6BBEC2C95F5564B9FD08492A58D4BE793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ VA - Блатной русский шансон (2011) [MP3|256 kbps]<Шансо
 ```bash
 magnet:?xt=urn:btih:24CD49411A6A2B200D14AEF5CC7F05C82E159B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ IT Expert - журнал для профессионалов в области I
 ```bash
 magnet:?xt=urn:btih:BC9A188015AC1E8CA674317B7CACF06F69BD9C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D4E4C93B23835C3D6854F01120A36CD420823BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E8AC985D8FB07865176BF60185EACC996262C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ VA - Незабываемый шансон часть 2 (2011) [MP3|256 kbps]<Ш
 ```bash
 magnet:?xt=urn:btih:5D8C87F1E523AFD063BC192C32F8497A6F557372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29C272AE1ACF88EAD9186BC9EE9A4E0460C0C05F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2E25FF6E4F2C3E63F121BC7E558F0F53D6F9DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ VA - Самый хитовый молодежный Осенний 3 50/50 (2011
 ```bash
 magnet:?xt=urn:btih:BF18CF6C7C743CEEB56A5734901948CA6A64CEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBABE8DABB1F413A49426CA4964D600655A656CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ Yesterday Live - это наш шутливый ответ америкнско�
 ```bash
 magnet:?xt=urn:btih:731E54A8578620393CF73CED13B1646C7F1646ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:699BC2DFEBC1DDE85D88ED20F9A4DEBA5964C694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80CB75B909D5E96BE8C21CE71506FDE0C4748E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ VA - Только ты… Душа болит (2011) [MP3|224 kbps]<Шансон
 ```bash
 magnet:?xt=urn:btih:010A843D70B8937DAE8003509C1282FC9EAC887A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ Hi-Fi.ru — крупнейший в стране журнал о технике
 ```bash
 magnet:?xt=urn:btih:585F5571EDC6DFF02480CA5F89B1833E0BF021D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:325DCADC6F7BEFA0331E075D755CFAC8A8CF2931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ Mannheim Steamroller - Christmas Symphony (2011) [MP3|320 kbps]<Christmas Music,
 ```bash
 magnet:?xt=urn:btih:EEBED518EA441F08F2F9DAB84B484E72F7445035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:195C36418A09EA2E56EC36168F4DC10FC030302C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ Cliff Richard - Christmas With Cliff (2011) [MP3|320 kbps]<Pop, Christmas Songs>
 ```bash
 magnet:?xt=urn:btih:C7C83E51F8DB8EAB4E95D683C1460CBAAB3F693E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F44E9AE63E7ACDC2B4C5523006A83CFDA09A8A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

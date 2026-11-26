@@ -28,8 +28,7 @@ Anna Gilbert - Your Love My Medicine (2009) [MP3|320 кб/с]<Mellow Rock, Folk-
 ```bash
 magnet:?xt=urn:btih:88D485EF63A7EF4DE51162FC31A469B482EDB353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Melvins - Everybody Loves Sausages (2013) [MP3|320 кб/с]<Sludge / Stoner Rock
 ```bash
 magnet:?xt=urn:btih:4E22A64AA7B1D9223FD82115B9181142AA1EA7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Persefone - Spiritual Migration (2013) [MP3|320 кб/с]<Progressive/Melodic Dea
 ```bash
 magnet:?xt=urn:btih:1A2608D591B81BBDF7A39A2B18F7A0A389CBF8A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Callejon - Man Spricht Deutsch (2013) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:1EB993D2A90AD8076A777859A3E301D7CB49C9DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Dan McCafferty - Two Original Albums(2CD) (2002) [WavPack|Lossless]<Blues Rock, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Waysted - Vices (1983) Remastered 2013 [MP3|320 кб/с]<Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2D79CFF4805C54B1C9A364979D02CC5F5BEFC527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Black Sabbath - Iron Man: The Best of Black Sabbath (2012) [FLAC|Lossless]<Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ Foreigner - 4 (1981) [FLAC 2.0 24/96|tracks (WEB-DL)]<Rock>
 ```bash
 magnet:?xt=urn:btih:46AC0440BF1C21B66C10B5331FF3F2895ED02FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ Mark Knopfler - Privateering (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]<Rock>
 ```bash
 magnet:?xt=urn:btih:56EFE2E625F5AAB27EEC6FC9E1B9686FF9FBE0AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ KDE - это не только среда рабочего стола, но и �
 ```bash
 magnet:?xt=urn:btih:EAC751B8EF94B5AE732B59D369FF86872B042CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

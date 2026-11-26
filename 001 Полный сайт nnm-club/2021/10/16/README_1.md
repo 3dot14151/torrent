@@ -21,8 +21,7 @@ Leæther Strip - Back To Industry (2021) [AAC|~329 Kbps] <EBM, Industrial>
 ```bash
 magnet:?xt=urn:btih:A00CA648764B6E5CE3450E080E2E1EAFA6C76832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ RSS Button for Safari 1.7.1 [En]
 ```bash
 magnet:?xt=urn:btih:8356417F805158CFC4317CD5BE5D5F6E7173C35C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:168557F07B12BBE51D36A360004A48D798489C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ sylac - Survival Mechanism (2019) [AAC|~319 Kbps] <EBM, Synthwave, Industrial>
 ```bash
 magnet:?xt=urn:btih:81D0C7913C8FA38C20ADDADC740F3E6E55D417D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Pieces of a Dream - Fired Up! (2021) [AAC|~361 Kbps] <Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:B597319DF251F765330F3D03960EF8A6BB516B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Ultimate Collectors'  Окончательное коллекционное из
 ```bash
 magnet:?xt=urn:btih:0A93722AEB52188A8B3F1621C9566ABCEB0CBC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - GANGSTER MUSIC, Vol. 3 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
 ```bash
 magnet:?xt=urn:btih:2389E24E8013DFD15BD7751689C229A2C379C17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Gus G. - Quantum Leap (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Heavy Metal, Ha
 ```bash
 magnet:?xt=urn:btih:D704C7A603F6B5C4B618D83CB87B134EA388D899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ ThunderSoft GIF to Video Converter - является программным о�
 ```bash
 magnet:?xt=urn:btih:7394922C2F32D4740A6BD310388953A8AA1762C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Mac FoneLab for iOS 10.1.90 [En]
 ```bash
 magnet:?xt=urn:btih:AAFC6863E3EA3889A90AA34CFCE094354FB5DEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ VA - We Love Bass mixed by Lady Waks (2021) [AAC|~316 Kbps] <Breakbeat, Breaks, 
 ```bash
 magnet:?xt=urn:btih:4238619DC97DDF1118847DC79C6B015817EF0BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Judas Priest - Reflections (2021) 50 Heavy Metal Years of Music [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:8F47CA01B4622206724DD8DD65FC599DD204E27B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Ben Nicky pres. Emotional Havoc @ A State Of Trance Festival 1000, Music Media D
 ```bash
 magnet:?xt=urn:btih:892AC8FEEFE576BEB3E8411AAEA5B48CD261E023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA08AA96CE18827FB42C7435D18074536FA2050B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ VA - GANGSTER MUSIC, Vol. 4 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
 ```bash
 magnet:?xt=urn:btih:C4D1BE8129BEF2F340CD879AB882999E0EF274B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Wicked Smile - Wait For The Night (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:2E871543A997528B18107B8E36DA6F3E3D4BD569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ Alcatrazz - V (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:830178860AA6A584D84ED2C907EAB637CC014EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ Autumn's Grief - The Dead Don't Smile (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 ```bash
 magnet:?xt=urn:btih:B0A38DF33B97D262D203154C04B501F4DEA22C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BED4FB51686685E317199102EFA5096CA98474A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04E656CD9F66B1A27D64707974F44EC89506347B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D6413A7918C91D5585685C9D21FADE29E6F20E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD3B61E3961EF09023B97F8A5113007AE7CD8A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82C6F7EC85B530505BE74F8090540C9D6FC848B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:317BC3A7D124A9420B2A740EA8A65B9B454115E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:153D362E6C44B65F2AC0C29FE44A61BF39EA3369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ Screaming Frog SEO Spider Tool - программа для проведения 
 ```bash
 magnet:?xt=urn:btih:C3AEB7ACA0C891C6758C8822EE589CF7CC61813B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Movavi Video Converter - программа для конвертации вид
 ```bash
 magnet:?xt=urn:btih:8A9857BC20A8A7DA4AE2C4D7A8C1F74AA652DF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:E65297ED6B2E8F2ECC81E622124CFF5DC972FA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Allegorithmic, Daniel Thiger | Creating Photorealistic Procedural Materials in S
 ```bash
 magnet:?xt=urn:btih:02712CFCB5B7B343E6858FE4F1BDF9576682FCE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ The Gnomon Workshop, Jason Shum | Combat Animation for Games (2017) PCRec [EN, R
 ```bash
 magnet:?xt=urn:btih:91F25FF67F284080C5519DBDC6B911B334AAF317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66E53D2C45D94C5A3EB782F62D1B8EE5573BB70D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ CGMA, Nicolas Weis | Environment Design for Animation Workshops (2016) PCRec [EN
 ```bash
 magnet:?xt=urn:btih:4CCF55EC29A2854D58C4E00C366AFBEC14DB3359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C75D0587820463115F8736F90BEB44B639721E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ The Gnomon Workshop, Vitaly Bulgarov | Robotic 3D Design for Entertainment (2018
 ```bash
 magnet:?xt=urn:btih:24690DB4F08E2E519BBF05A66F7A8834C4DFC079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CA2C61D8802265E27D796B6E6E63FF928281F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Udemy, Maximilian Schwarzmüller | JavaScript Unit Testing - The Practical Guide
 ```bash
 magnet:?xt=urn:btih:17E103ADD63B72D84F8B954A17DC8C6A62206018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36817DEA927F8D9D7621672ACB44F0911E1E8763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 ```bash
 magnet:?xt=urn:btih:D96A151A24C218B9162C80F9F7C083DAF6FC1EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:0B748E4F3BE031D1D0F52F89A1171409EFAC8EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Udemy, Anthony Alicea | Understanding HTML and CSS (2022) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:9C9A5737EF49FFD3BE86D602AF59DA640AE9D29A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87E7EF962BA44977EC2A65804F6C4170D76274BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9731F4A26CF0AE486B0FAC3568D8AD713D40D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Movavi Video Converter - программа для конвертации вид
 ```bash
 magnet:?xt=urn:btih:F8C26B769A11E4CD15EB0836C3B9029FB9015B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 ```bash
 magnet:?xt=urn:btih:8343B6EFCCAB23AFEF0409457894613320645B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2A2E1F0703C6EFE5F59227320F5672D5DD291A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Starting with fundamental architectural principles and design philosophies, the 
 ```bash
 magnet:?xt=urn:btih:36D8DA2E518F1E935AC04F79566A945B643462C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE1C54ED4AFA905D98F21B8049F9FCEFA375FA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

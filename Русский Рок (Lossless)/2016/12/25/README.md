@@ -22,8 +22,7 @@ Distemper - 25 (2014) [FLAC|Lossless|tracks] <Ska Punk>
 ```bash
 magnet:?xt=urn:btih:20A70829955E41904AA00A9243F97EAB2D0CAF6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

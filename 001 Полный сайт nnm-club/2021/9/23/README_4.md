@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:191455F2F7C71EA87B03951C1252B87B392483E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3E7E3A75F87C3C91BC57473ADAE7290B0E7D65B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Subterrain (2015) [Ru/Multi] (1183) License GOG
 ```bash
 magnet:?xt=urn:btih:3B75099CC0F927234D4A28C45817589FDC3F5719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE2F40DC4BD2E73D830C3D524FB77775AB612918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ House of Cards - это политическая драма о безнравс�
 ```bash
 magnet:?xt=urn:btih:73FAE1E6C1C351880B7CE2B9B0A7924DB792ED90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4154B8E67D81047A8EC8374B4BE241D883485540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ The Sims 4 (2014) [Ru/Multi] (1.80.69.1030/dlc) OriginRip =nemos= [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:14375EFBA90B56C98FF26FE8CF86ED7579F115BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Dying Light - экшн-игра на выживание от первого ли
 ```bash
 magnet:?xt=urn:btih:3F0220A1207EA3CA823204271A4DADA17703899C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ SnowRunner (2020) [Ru/Multi] (15.0/dlc) EGSRip InsaneRamZes [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:54309721D384C58F3584EE1F91B86F1B9ABEBE8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

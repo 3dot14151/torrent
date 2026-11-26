@@ -19,8 +19,7 @@ Final Cut 2: Encore Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:23ADC4E447B72BAC99310F4B282A16C57629B864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ X: Superbox Collection Edition (1999-2008) [Ru/Multi] Steam-Rip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:CF8BA8C83DBD7930229C256AD08D1C782B39C841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ The Inquisitor: Book 1 - The Plague (2013) [En] License RELOADED
 ```bash
 magnet:?xt=urn:btih:197D23349F3F868EFB4ABDD26AA5515B7A9E16A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

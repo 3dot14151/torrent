@@ -19,8 +19,7 @@ ABC Backup - это простой в использовании инструм�
 ```bash
 magnet:?xt=urn:btih:C68C39C1FF35A23B78AD745625C181539E2BD4D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Veritas System Recovery 2018 комплексное решение для рез
 ```bash
 magnet:?xt=urn:btih:F11371698DB67BEA5DC6B4D4768A437FA7862392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.6/dlc) RePack =nemos=
 ```bash
 magnet:?xt=urn:btih:8DFF7EEBC35DF08199CB628F855055DC3D30EA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8ABE355490E4ADC204E755793B5B8AA7C148237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5591F4AEE5D9515DC0DF327A1315FC958A2DE840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ XscreamKaraoke - это караоке игра, в которой нужно п
 ```bash
 magnet:?xt=urn:btih:04C14F3F9B7996E9D8F8D2E2BD52AD009C1CC41B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

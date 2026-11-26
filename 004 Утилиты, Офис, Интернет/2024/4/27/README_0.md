@@ -19,8 +19,7 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:64440C004A4875E5FB8B1EBB8B2553914F5EF36B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Auslogics Video Grabber - быстрый и простой инструмент,
 ```bash
 magnet:?xt=urn:btih:BF36BBF2CF4FF71712F23ACBFEBAEC2DBF659F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Geekbench - кроссплатформенная программа для пр�
 ```bash
 magnet:?xt=urn:btih:D9FCA11969A0E7A033F56D8E683974E177039274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ ASUS GPU Tweak III - программа для пользователей вид
 ```bash
 magnet:?xt=urn:btih:EC69270650F8D032904F14847BCE3531EA73094F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

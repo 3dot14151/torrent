@@ -20,8 +20,7 @@ Tzar: The Burden of the Crown / Огнём и мечом [Ru/En] (RePack) 2000 |
 ```bash
 magnet:?xt=urn:btih:98682A4202060E7A3F23BBDB5864D35619B2007E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

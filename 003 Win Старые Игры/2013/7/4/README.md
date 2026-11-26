@@ -21,8 +21,7 @@ Area 51 / BlackSite: Area 51 (2005-2007) RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:BD5F8DAF1804987C95CD145EBA25A208AF783A5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

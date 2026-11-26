@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:24F216AA7E5E7C726CEECD6C649400227AD8BC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Download Master - отличная программа для скачивани�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ VA - DFM TOP 50 [ноябрь] (2011) [MP3|320 kbps]<Pop, Evrodance, Electronic>
 ```bash
 magnet:?xt=urn:btih:264E8C8112E45E65D390D912B5BED4679B562EFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ VA - Winter Dance. Super Collection (2011) [MP3|192 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:5D135E4C0ADA50FAD4F39A1BA8FEE706C66FEB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ VA - Русская Дворовая Дискотека (2011) [MP3|256 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:DB1097FC3651FE7E02BEB4E14E13157098242C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ VA - Сборник Студии Союз Русский (2011) [MP3|256 kbps]<P
 ```bash
 magnet:?xt=urn:btih:AD6ACCDFCBEF8BCB967FC274CA55572EBE7B5633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Jaco Pastorius - The Birthday Concert (1981)/1995, Warner Bros. Edition/[FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ Greek Top Hits (2011) [MP3|320 kbps]<dance>
 ```bash
 magnet:?xt=urn:btih:4799C48C0634E94527B3686159D273222EC6EDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31726FA93D3E23E12B5834ABC56F5E248D63801F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ VA - Тайна любви - Русские Дуэты (2011) [MP3|128 kbps]<Pop
 ```bash
 magnet:?xt=urn:btih:00DCC0B7D081D24708B2685C2F2072A96FAF8AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ OVA - Вспоминай меня (2011) [MP3|320 kbps]<Instrumental, Piano>
 ```bash
 magnet:?xt=urn:btih:F620D6231997CF1B7320AF0E1BB8FBF3F90C9A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E24DED6316A994B795C9B057AFB25752A3633685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ EduMandriva 2011 [i586] (1xCD + 1xDVD)
 ```bash
 magnet:?xt=urn:btih:DD23F7C9CB5CEE76929398BDCA3BE0BD9B550C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ The Toobes - My Generation (2011) [MP3|320 kbps]<Grunge | Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:723AFBF1B73C1FE7CF953B4C5AD0189633ABF650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ TagScanner - мощная программа для организации и у
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F6128FA59834AA778E56F5CBFC788170EB6C493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FA002E198A10B8D558BC298877A103258768BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ VA - Лучшие Дуэты Кавказа (2011) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:3493AC0F9C24B2E4E82F6C7281B94B814E5DB3C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ Armin van Buuren - A State of Trance 535 (17-11-2011) [MP3|256 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:B6012E684F2B62556A312EC8085B249F8BAC5C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDBE1235D66822FA7C5E37078295523BF4D4B046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +698,7 @@ VA - Любимой Женщине В Подарок! Осень (2011) [MP3|256
 ```bash
 magnet:?xt=urn:btih:3A17800EE333C7B1FFA52376EAAFD58EB3B90631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +755,7 @@ Cosmograf - When Age Has Done It's Duty (2011) [FLAC|Lossless]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +780,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33D620537F8B00658774062DDFF72BD201F92797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

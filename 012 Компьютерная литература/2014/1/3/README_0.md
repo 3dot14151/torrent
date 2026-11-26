@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:030E84AD295F05A417CD4C4464ADAE4BB6076C7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Microsoft Windows Server 2012. Полное руководство - книга 
 ```bash
 magnet:?xt=urn:btih:F4DE3D9FFEFA6F99A6AF0C9806A6E04A4BC1007E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ The Vanishing of Ethan Carter это мистическая приключенч
 ```bash
 magnet:?xt=urn:btih:419C0912369A474B568071D5AF6F0F5247C4D7A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

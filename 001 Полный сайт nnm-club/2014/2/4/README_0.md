@@ -18,8 +18,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:24856999C0997404F89DAEF04FC52581C4B8F239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Buzztown - Wherever You Hide (2013) [FLAC|Lossless]<Blues, Jazz, Soul>
 ```bash
 magnet:?xt=urn:btih:A296715B0951CE58F028505C2D9E7B2F7D738756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Media Маг – это площадка, где публикуются самы
 ```bash
 magnet:?xt=urn:btih:344B35F3B1A688623557F1A4092C928066F39891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D67F1D793B1FEFE98D7C2B8A97BBF57E50BB5388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41866538EA2F1B666C90747D130510CC9E4136C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Mozilla SeaMonkey основан на традиционном проекте Mo
 ```bash
 magnet:?xt=urn:btih:F1B5E30C5211E5E0449C46BD5E34DFFB25F3E4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Tournesol - Kokotsu (1994) [FLAC|Lossless]<Electronic, Techno, IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:1E6A8BC87414490D428C2297409E44E8706704D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Pacifist – приложение, которое открывает пакет�
 ```bash
 magnet:?xt=urn:btih:E44A92510528F3BE279F5A2DAB77A46CE7C59A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72710F6B7EAF22AAFB0FBC4AC03E08FF4E916CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Chris Botti - Night Sessions (2001) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:6025212CE4E19CC4E364F1DEFC571BB1CFC830E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Offline обновления для Microsoft Security Essentials 31.01.2014 [En
 ```bash
 magnet:?xt=urn:btih:87FDCF2F05C82FF3792A2E527033993A1577B557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FE3CD4CD35636EA28A306E27F9FC43D7CFB365C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EB5FADB2F83F34AA5E9CDEB08C63D5BE78FD8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Dum Dum Girls - Too True (2014) [FLAC|Lossless]<Indie-Pop>
 ```bash
 magnet:?xt=urn:btih:04A19D62E53DE3701163839F8337C2A1E2719086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ VA - Gaggalacka: A Purple Playground (2014) [FLAC|Lossless]<Darkpsy, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:9F71045EF7C589A829CF9423DBDC21895CFB6A55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +449,7 @@ Coeur De Pirate - Trauma (2014) [MP3|320 кб/с]<Pop, Chanson>
 ```bash
 magnet:?xt=urn:btih:64E9A005D7446D452977C75335FFA6D94A2F7A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ Tim Ismag - illA (2014) [MP3|320 кб/с]<House, Electro, Drum & Bass, Hip-Hop, 
 ```bash
 magnet:?xt=urn:btih:970CAA555E3D3CFB9890FE7ACAEA82D8A3FED324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D222266097EA92F188AB9A4B7925D1443CC7960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:276D654A8B18CB8A34DB2DE8C6985C5AFCB1FC92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ VA - Клубная Атмосфера Популярных Треков (2014) 
 ```bash
 magnet:?xt=urn:btih:5DF5329F8EACC35A1C8C1B2EF1F1D1601A68DFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B6FE4C92066E06C6323C196DA21FAD7E21C29A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ Mat Zo - Damage Control (2013) [FLAC|Lossless]<Progressive House, Trance>
 ```bash
 magnet:?xt=urn:btih:ABF8DEE927E710EEBEDE69399E59B0792917C974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ Sqeepo - Flash EP (2013) [FLAC|Lossless]<Dubstep, Grime>
 ```bash
 magnet:?xt=urn:btih:B5F46CE27DE62815C77561819C9AD15F02052663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ Benise & Arkenstone - Barcelona Lounge No.1 (2013) [MP3|192 кб/с]<Instrumenta
 ```bash
 magnet:?xt=urn:btih:8672C7291711989F07D422F96AEEF8C8972F12C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +741,7 @@ Metadatics предоставляет возможности поиска мет
 ```bash
 magnet:?xt=urn:btih:FE50617AF154AEE9B6A6E1B133A3026A4649883B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

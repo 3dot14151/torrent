@@ -18,8 +18,7 @@ Liar Game | Игра лжецов [2026, TV, 1 из 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:6BEF2626A986D05A6B71DD1907FC008840643891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Joe Bonamassa - mix (2026) Part Two [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:78277DD7AAB4E0235D7DAA284DA5C4A15A77F266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ BBC. По следам уссурийского тигра / Operation Snow Tige
 ```bash
 magnet:?xt=urn:btih:1755B4ED7DB70D43B03EE2B75F57E786D8E419BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Reincarnation no Kaben / Petals of Reincarnation / Лепестки реинка
 ```bash
 magnet:?xt=urn:btih:BE10109AF4F9BDBB52E2CC12EBA889370260169E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Needy Girl Overdose | Зависимая девушка: Передозиров�
 ```bash
 magnet:?xt=urn:btih:AED373D82DC13A63497916A37F699645212A2072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Windows 10 Pro 22H2 19045.7058 x64 [Lightweight] [Ru-En] by SanLex (2026.04.06)
 ```bash
 magnet:?xt=urn:btih:6BB6C5D8FD1399BC44D9050259A7F191B3453B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4896E00461DDFB2BEF0D342A7BA7EB0208F61481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Shunkashuutou Daikousha: Haru no Mai | Agents of the Four Seasons: Dance of Spri
 ```bash
 magnet:?xt=urn:btih:D287E96D53B42DFF25D87634492C260A070D6721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ FolderSizes Enterprise 10.0.36 [En]
 ```bash
 magnet:?xt=urn:btih:C9FDC9C415521C16D3287B86E23CF460A718C94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8BF81E3E42726FE92F54F9B4CC4DCFBF48200E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0719191E15B6FD504E7CD7DA3413D6FBA4154D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99598EF15FB5B1E6B61964926092EACE170304AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ No Vacation for an Executioner - хоррор-экшен RPG в стиле ре�
 ```bash
 magnet:?xt=urn:btih:33B38028AB44A57B2EF96213EDAAA87A5190873A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFE945B4D54436D192F60A9C86460A64203E3C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:472DF31A4DDE54551E3086C001546966ECDA3BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ AIMP 6.00.3051 Beta + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DB9B7F40FE9BE682D347A90F6187A2C3750FC87F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Elemental: Reforged (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:964D6A786AB8557D39550C1D2E07652649BF1E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63EF64F6946A20C9625601463A2A2DC8FA84381B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Sherman Commander (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F471400E1EFDCDB431474E5EF8E767B1E47DF710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Kornstad Trio - Space Available (2001) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:08264AA00EA58009F29AD0C2DE89CE426C61AB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Lori Mckenna - Unglamorous (2007) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:7E687841BBA29FB7AA0501D1849DF618B2BF12EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Feanor - Hellas (2010) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:587C5CC18D920184E8F2DC41AE455B4A7C1BD62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Shardad Rohani - Beauty Of Love (1994) [MP3|320 кб/с]<New Age, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:06575EF443F987541CC4BA55FB18EC43953CEE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Kit Downes Trio - Quiet Tiger (2011) [FLAC|Lossless]<Modern Jazz>
 ```bash
 magnet:?xt=urn:btih:871FEAE0F1758088A777550A99348129C28C1D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Christopher Alvarado - Translucence (2014) [FLAC|Lossless|WEB-DL]<Ambient, Exper
 ```bash
 magnet:?xt=urn:btih:F1723A2B5B2F2A70FB610FE0C61C6A2D3EEF670C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:117BEA38EF588C3CBEC650137257E8F30B399AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ Kirk Lightsey & Freddie Hubbard - Temptation (1987) [WavPack|Lossless]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:C99E79E83CE9D6EFBD9DF002642DE94771CC22C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ VA - VANDIT Records Miami (Paul van Dyk Presents) (2014) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:863F6F95BCE628A0457C5B8A7E0F7E143D5682C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ Mickey H. - Love Whisper Of The Flowers (2003) [MP3|320 кб/с]<New age, Instru
 ```bash
 magnet:?xt=urn:btih:82CCD8BAF12646909D7777B1096B242F3F22F4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D07111C89E34F8AD77FF31C40B00688AE7473A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +409,7 @@ VA - Armada Top 15: 2014-03 (2014) [MP3|320 кб/с]<Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:73CAD63C915305354604AA864AD97623F7BF4EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BFC12BDB20E45A5982AFA90C259293C458E14A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +468,7 @@ VA - Region 37 (Mixed by Deeper82) (2014) [MP3|320 кб/с]<Deep House, Tech Hou
 ```bash
 magnet:?xt=urn:btih:98C110E4BD8A8C35D0D67D5E8A83B4213108AD8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE6E7E7CC5961A0F4C7C683561390CF69D0ABDB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +536,7 @@ Earl Bostic - Flamingo (1995) Charly R&B Masters, Vol. 16 [FLAC|Lossless]<Mainst
 ```bash
 magnet:?xt=urn:btih:A45DE64D08672787F5B917EF010E1E017C42DFDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2290219B490FE5F8BDD23FBD4B2F02261EE62194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +595,7 @@ VA - Chill House Winter: 50 Essential Deep and Fashion Tracks (2013) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:E44C21117F3957B5BE1040A4A05015DAC5D65D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +629,7 @@ Jim Suhler & Monkey Beat - Bad Juju (2001) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:C453C903851653E3F447300F2492FC17FE9DC081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B33579DEFC391FDF3F75CC5C4448A85D49E15B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21690D2FAC3A472F09F8FD7A20EF3D6A52674BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +715,7 @@ Kris Wadsworth - Popularity (2014) [FLAC|Lossless]<Acid, Tech House, Minimal>
 ```bash
 magnet:?xt=urn:btih:D585597ADE61A260ABF2A2794B11982C3ADAFFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +749,7 @@ Klaus Doldinger's Passport - To Paradise (1996) [FLAC|Lossless]<Fusion, Jazz-Fun
 ```bash
 magnet:?xt=urn:btih:C8DED256A337405030F31BCC08FECFE11F617DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -798,8 +774,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BDA370D2C3BE67F7673838B16C1ADE730948799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -824,8 +799,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F73E274E3032A7AAA2E387971999353DFABFB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

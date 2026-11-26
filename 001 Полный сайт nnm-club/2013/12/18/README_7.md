@@ -21,8 +21,7 @@ Dementium 2 - экшен с элементами хоррора от студи�
 ```bash
 magnet:?xt=urn:btih:4EA2C35301BDF8F205D5D6EE72F6E6459F8119D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ VA - Need for Speed:Rivals OST (2013) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:BF0CED43E992A9B37585D1E4634D46194635D098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Rail Nation подойдет пользователям любого стажа:
 ```bash
 magnet:?xt=urn:btih:30D35342F0E1C5F851016BA7E2C57F4059C4F01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ avast! Free Antivirus 9 - бесплатный антивирус, работа 
 ```bash
 magnet:?xt=urn:btih:77842CAB55B80138067CB696EA146EFC9277D91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F69F48C2A9BF2AFA4AA6B4FB8390A7AE5DCEDF02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ PlayerPro Music Player является передовым музыкальны�
 ```bash
 magnet:?xt=urn:btih:E17B52F73F7393C212B26D85E2EFD19A0D782BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECD23C92BB0575F7D7674F32060D1A209B685CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Avast! – это всем известный антивирус довольн�
 ```bash
 magnet:?xt=urn:btih:BA558441E70FAF6E84BA1A76CFB12D904722B684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ StarDrive – космическая 4X стратегия, в которой в
 ```bash
 magnet:?xt=urn:btih:C5EDEDF5D2845DE44A7DD65D5FC4695970C6DC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Tsugumi - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin On
 ```bash
 magnet:?xt=urn:btih:40AE14A257B87D88A6C432F70C1C42E4B6C034F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Adobe Dreamweaver CC - новая версия приложения, предн�
 ```bash
 magnet:?xt=urn:btih:410C019AFEEC8895D1DAE6A925AE60BC5581D177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Battlefield 4 (2013) [Ru/En] (1.0.0.1 update 4) Patch/Repack Kplayer
 ```bash
 magnet:?xt=urn:btih:F93D5AF3B22D1BA9E85AC30CEFF9BC8FAAA964D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50EC7EC5EB5B2D5A236B1FFADA4FFF64DE168BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Ammyy Admin Free 3.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1A48A6097E31891EA426B5B82FADBDDA69436798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ LEGO Marvel Super Heroes – это совершенно новая истори
 ```bash
 magnet:?xt=urn:btih:CDA545F307557B3F1DFCFBE14622460C7463ED82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65F955C60BB1CD04D15473EDBB68C7A202291248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:997FAD43E5A176C69063DC967B3D0FCD30628930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ VA - Lounge Of Love Vol 1-7 (The Chillout Songbook) (2008-2013) [MP3|256-320 к�
 ```bash
 magnet:?xt=urn:btih:1A029CE8A0EBFF314D03B5DB134E7112D542F474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Batman: Arkham Origins [PS3] [PAL] [Ru/En] [Repack / 1.05 / 10 DLC] (2013) | R.G
 ```bash
 magnet:?xt=urn:btih:877AA93F3EE61ECC89C4FC785255B3C185B8ECA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ Sublime Text не является свободным или открытым п
 ```bash
 magnet:?xt=urn:btih:91434BC5F18912735127ACFB63A54907D3CFD6D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ IMDB Rating: 7.3/10 (69,936 votes)Формат: MKVПродолжительно�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:380AAB47B3231D89136571DEDC7D8A499C023A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ Final Fantasy 8/VIII (2013) [Multi] (1.0.10) License iNLAWS [Steam Edition]
 ```bash
 magnet:?xt=urn:btih:7C30A86BFB32D7288FBA41251083BED6E6187A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

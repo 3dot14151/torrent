@@ -21,8 +21,7 @@ Republique разработана ветеранами игровой индус
 ```bash
 magnet:?xt=urn:btih:8ADFDEF7FC9EAE446F7CE7CE7EEDF711625E2883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Tumbleweed Express – стимппанк аркада, события кото�
 ```bash
 magnet:?xt=urn:btih:347F8C680990E4D2DFC4C3F9A85034ECDA5FEBC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Dead Island Definitive Edition – переиздание, состоящее и
 ```bash
 magnet:?xt=urn:btih:BE72D12542FE02F34F68AF25A5890A295607C384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Cornerstone: The Song of Tyrim – приключенческая игра в о
 ```bash
 magnet:?xt=urn:btih:00164F91B2B0B1AF44A21BBF4E63E0794BACB844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

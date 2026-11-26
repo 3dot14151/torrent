@@ -19,8 +19,7 @@ Strangeland (2021) [Multi] (3.3) License GOG
 ```bash
 magnet:?xt=urn:btih:7C0DA7F1F1E4E615E0910F86A2C14F1EB00F68F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MX vs ATV Legends показывает, какими могут быть инт�
 ```bash
 magnet:?xt=urn:btih:F6EC2D6CFAC4D669A6B3ACC93171996EF3E72C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Broken Sword - Shadow of the Templars: Reforged (2024) [Ru/Multi] (1.1.8.1) Lice
 ```bash
 magnet:?xt=urn:btih:AD7C4C56DCE675A281426AAD2A61F75C9990456B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Death and Taxes (2020) [Ru/Multi] (1.2.59) License GOG
 ```bash
 magnet:?xt=urn:btih:16907A51D370BDF9EF1D561585992D3DE57D4975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Book of Aaru (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BDA7E41D43384A4EBF7F3C213BC96E3E65EE03E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Old Skies (2025) [En] (2.0a) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:75BCF98AFFCD6468BB7C187CCF8454B4D9FC4BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Rosewater (2025) [Multi] (1.05.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8206C88FE4D9F7805A34B23C547A48C8D2DD0DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Astro Colony – симулятор с элементами песочницы, 
 ```bash
 magnet:?xt=urn:btih:30994CB11EC03898651143C34B28BE0922583285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Fable Hospital (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3E0F92D4C2E6F07C0DF2C287B29D50B756EB13D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Wrap House Simulator ставит игроков во главе их собст
 ```bash
 magnet:?xt=urn:btih:29F0431F924349C3C3E4FC45300E90BE2694BD26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Repack seleZen [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:CA6769B3098B8262C07A1B8CDF88838ED389E915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Painkiller: Resurrection / Painkiller: Воскрешение (2010) [Ru/En] (1.
 ```bash
 magnet:?xt=urn:btih:418FD48758F18B95BDB654AFA86E00B74E51A639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

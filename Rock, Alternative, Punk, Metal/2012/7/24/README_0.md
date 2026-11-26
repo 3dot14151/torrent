@@ -28,8 +28,7 @@ ReinXeed - Welcome To The Theater (2012) [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ V-EGO - Отречение (2012) [MP3|320 кб/с]<Dark Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Taal - Skymind (2003) [MP3|320 кб/с]<Art Rock/Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:0B536A5AC750E4FEC7CD57FACB012C5E9AD32A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Crucified Barbara - The Midnight Chase (2012) [FLAC|Lossless]<Hard Rock, Heavy M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Break Of Reality - Spectrum of the Sky (2009) [FLAC|Lossless]<Symphonic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Heart - Greatest Hits (1985-1995) (2000) [MP3|320 кб/с]<Hard Rock / Rock>
 ```bash
 magnet:?xt=urn:btih:C30DB858FB646CB06086FB66AADB5BB4E1E91FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ ZZ Top - Original Album Series (1972-1983) 5CD Box Set, Remastered /2012, Warner
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SketchBook Pro for Tablets 2.9.3 - Рисование для планшетов 
 ```bash
 magnet:?xt=urn:btih:8BAB7EAFD98F244090D5CF616F219C30E9C54938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

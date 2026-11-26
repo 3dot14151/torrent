@@ -21,8 +21,7 @@ Eldur - Siggja (2014) EP [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
 ```bash
 magnet:?xt=urn:btih:6E997DDC5E9075DFD440F1C71B324F79933AE4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Plaster - Platforms (2011) [FLAC|Lossless|WEB-DL]<Leftfield, IDM, Downtempo, Min
 ```bash
 magnet:?xt=urn:btih:FBC7AACEF942A6C894E6453FA21EBE8882AA4B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Albums, Demo, Split:
 ```bash
 magnet:?xt=urn:btih:D347ADE611D8C4AFE8DE4F38C30E62DFE82C13B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Albums, EP, Demo, Split:
 ```bash
 magnet:?xt=urn:btih:7B9618C76C5ADBBCA8871528B02FCBDCDFA0564F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Best Of Vandit 2014 (Mixed By Ben Nicky) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:D29C43DACC2B6BC821BA1B5489C86AA2971210CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - Militant Artists (Mixed by Rich Smith) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A4E5F8BBF43BA522E9F660A992AEB87E5C011946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Duke Ellington - Afro-Eurasian Eclipse (1999) [FLAC|Lossless]<Jazz, Swing, Big B
 ```bash
 magnet:?xt=urn:btih:3EE390F90320CC12C9C3202A3211BDBA3319F42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ VA - In Trance I Believe Vol. 1 (Mixed by ReOrder) (2014) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:4518DF0F2782601479A55589503DAF4A99CD7745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ Liquid Steel - Fire In The Sky (2014) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:874446624CB9E13AAD316F2262B9E04A070FFDED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DCFF079B17543A322C3F6725E3F6A5BFCBD5B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ Skelator - King of Fear (2014) [WavPack|Lossless]<Epic Heavy/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:CC668BC89D5F238DA48F0A5870CDDD8BBF4FD630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ John Verity Band - Say Why? (2007) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:87B32EF30601DBED957CAFBC18384AAD29A00D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +431,7 @@ Marta Topferova - Sueno Verde (2000) [FLAC|Lossless]<Vocal Jazz, Latin>
 ```bash
 magnet:?xt=urn:btih:A0297DF6B4D72BC780FA36BF2A3D926E970A9E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +459,7 @@ Rocka Rollas - The Road To Destruction (2014) [MP3|320 кб/с]<Speed Metal, Hea
 ```bash
 magnet:?xt=urn:btih:A940AA9D1875BB3F10595EDDB823E2D02A218467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +493,7 @@ Peter Plaznik - Dark Trance Pioneers (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8FF39C956A738B7692B8C8C57D1A5929F6CDCA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FDF68006BCE2DC225851086E0AA813019DFF80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E4B5CEC2299573653B7E056EC2794CCE5C98F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F244C0DBE4B690DCF4766EA7E8E7C13244ADC8B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ Dart Rayne & Yura Moonlight - Complete Best Of (2014) [MP3|320 кб/с]<Progress
 ```bash
 magnet:?xt=urn:btih:2C4CFDE06D70807D8BAEC1D3E2B4CEADCC7019DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +640,7 @@ Duke Ellington - Afro Bossa & Concert In The Virgin Islands (2001) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:D54FD1DA71008BB99366694CA80D9B039D55F731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +674,7 @@ VA - Русские Новинки Vol.160 (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C108F338BCF0E6D0FD7CC68CCB0E9CEFA986F0E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +708,7 @@ Graeme Revell and DJ Muggs - Короли улиц / Street Kings (2008) [AAC|WE
 ```bash
 magnet:?xt=urn:btih:4120F4C0D682D3865E3D1385B1D9CF214D22F1DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA329D66FE79C10DED7E3C83B2833A84BC31EDF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +766,7 @@ Emmon - Aon (2014) [FLAC|Lossless]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:F99869282230A6B164D4824F57F6446821425ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -823,8 +798,7 @@ VA - Клубный хит от Деда Мороза часть 3 (2014) [MP3|3
 ```bash
 magnet:?xt=urn:btih:02B4C25213825F64F8C58484BDA49DFA5AE59CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

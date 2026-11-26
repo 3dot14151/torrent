@@ -22,8 +22,7 @@ Mechina - As Embers Turn to Dust (2017) [MP3|320 Kbps] <Epic, Symphonic, Industr
 ```bash
 magnet:?xt=urn:btih:E3AA1A4A1EE9B8BA2BD14BCD80C26478104C484C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

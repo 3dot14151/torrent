@@ -22,8 +22,7 @@ Leaves' Eyes - Fires In The North (2016) EP [MP3|320 Kbps] <Gothic Metal, Sympho
 ```bash
 magnet:?xt=urn:btih:2AC876B534EF7453027CA1321EF1AA5DE1D4E451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brujeria - Pocho Aztlan (2016) [MP3|320 Kbps] <Death Metal, Grindcore>
 ```bash
 magnet:?xt=urn:btih:24D5FD7E1A73C35E1B8E778C80C9E2F3CD0FF9E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Devil Wears Prada - Transit Blues (2016) [MP3|320 Kbps] <Christian Metalcore
 ```bash
 magnet:?xt=urn:btih:6CD253495F97E1EDE387E21A2A3C4C62616A7696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Meshuggah - The Violent Sleep of Reason (2016) [MP3|320 Kbps] <Math Metal>
 ```bash
 magnet:?xt=urn:btih:5D56EC580D4045D3EC2935FB8C83F257F63B931A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ OneRepublic - Oh my my (2016) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, Alternati
 ```bash
 magnet:?xt=urn:btih:679037C2AA5CF7B03EC9A15F26AEC0F2D5DF3A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

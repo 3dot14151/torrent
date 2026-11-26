@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D63B329997C912FC649BC89D7819923EB78276DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Maleficium Arungquilta - Искусство драм (2010) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:515984102BD0B03004FB817BB0A91137EE0F697B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

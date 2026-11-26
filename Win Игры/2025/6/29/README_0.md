@@ -19,8 +19,7 @@ Papers, Please (2013) [Ru/Multi] (1.4.11.124) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:FC5B69103DAC4AD3A5210DA3F9AF8E8F6FAD426F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 ```bash
 magnet:?xt=urn:btih:4BC6FCF5ADC58BBD62193722CA74122DF2166E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WYRMHALL: Brush and Banter (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3C92CBA8643AE240C6D2090704D505A449CF77EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:54AECE2A3A74F89F0C27842D655B059D563DE074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Taxi Life: A City Driving Simulator - симулятор такси, в кото
 ```bash
 magnet:?xt=urn:btih:A4C7939514B9443C6CB251A204AEB35219AB1D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Deathless. Tales of Old Rus / Бессмертный. Сказки Старой 
 ```bash
 magnet:?xt=urn:btih:F545846F18D9430A038D4EF0BB42D8C1FC87119F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dragons Reef (2025) [Ru/Multi] (1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:746F05A20A465170FF91545386325803EA03D006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:B3999851C444F1DF04F18C1E22ACEEC9BF3EC8BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Architect Life: A House Design Simulator (2025) [Ru/Multi] (1.0/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:C41F6A8CECA675992151DC65C4D475057F0097F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Three Kingdoms: The Last Warlord - двумерная пошаговая стр�
 ```bash
 magnet:?xt=urn:btih:2AA89DD0D69F99252414DD942EE9CB3849A53EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

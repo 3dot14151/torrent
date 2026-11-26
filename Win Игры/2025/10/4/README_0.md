@@ -19,8 +19,7 @@ RealRTCW - глобальная модификация для оригиналь
 ```bash
 magnet:?xt=urn:btih:7EB2843BD1EC484CE0003C2D843B3BB719FBBB65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eclipsium (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1ADA097D6C3544C54F671E5B1A7E16151C1B05B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CRETE (2025) [En] (Alpha 0.12.0) Repack Let'sРlay [Playtest]
 ```bash
 magnet:?xt=urn:btih:E7636D28982B08B112C4B145E673C6436931CB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tales of the Shire A The Lord of The Rings™ Game (2025) [Ru/Multi] (1.0.2.1) R
 ```bash
 magnet:?xt=urn:btih:AFD15EAE784E010FEC18961448A02EC3DC450F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:EBE3FFFBDE8488695154E3A9B24C9BD2C2214E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Dece
 ```bash
 magnet:?xt=urn:btih:5BC04FFAF4077A306FDF9F0C01336141C0633024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Othe
 ```bash
 magnet:?xt=urn:btih:35654EAFB2AE997D08E5541B481650644D6CC945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.29) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DE3308C1DD552B3FEE899D8385B63AD2F66E3B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Wobbly Life - яркая и динамичная песочница, делаю�
 ```bash
 magnet:?xt=urn:btih:939476A43CFFE3629723D6A222B8B680955FD358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A92BC2261FD810E6CCC78F880AD89905A2A3785F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Heartbeat in Thailand / Сердцебиение в Таиланде (2025) [Ru/
 ```bash
 magnet:?xt=urn:btih:21D1907856B102ADFDA8806E49F8586DC6C2FD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Lord Ambermaze - это увлекательное приключение на �
 ```bash
 magnet:?xt=urn:btih:63B60D6116FBB6787E0F0838A9E58C8DA0A6D151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

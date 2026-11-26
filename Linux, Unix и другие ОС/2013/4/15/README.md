@@ -27,8 +27,7 @@ a0c947c99d25dbd6a30643de1e53fbf5 (   Читать дальше...   )
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

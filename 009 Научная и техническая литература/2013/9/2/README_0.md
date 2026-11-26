@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E323F78CEB283B7F156A3000858FFB3A4DF2269D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ P.Граф, B.Шиитс | Энциклопедия электронных сх�
 ```bash
 magnet:?xt=urn:btih:0964DA0B36346A6EE7BC7708C725CB69A4BB32A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

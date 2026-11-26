@@ -28,8 +28,7 @@ VA - British Oi! (Working Class Anthems) (2000) [MP3|160 kbps]<Oi!>
 ```bash
 magnet:?xt=urn:btih:D6C6447FEC0C35E8D676A16D66C0455FAC50BF5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Roy Orbison - The Very Best of (2005) [FLAC|Lossless]<Rock/Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BBB8BDB9222F7D1EF52D33D95B93E4720F3C0BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

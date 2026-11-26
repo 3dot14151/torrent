@@ -19,8 +19,7 @@ Mundaun (2021) [Ru/Multi] (1.0.207) License GOG
 ```bash
 magnet:?xt=urn:btih:904D3FCFB29CB8B3523ABCE43739EAE60EEBB4D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Demon Skin — это брутальный Hack&Slash в суровом мире
 ```bash
 magnet:?xt=urn:btih:E8F99706C5FB5C51B7AEFE413273BA83B8B3A4AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

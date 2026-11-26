@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - The Enhanced Collection 2013 Part 4 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:45485460C4C6C0369EC3032F6869848FA31C6759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ DJ Nike Twist - TranceWave 081 @ GTI Radio (30.01.2014) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:AE3C979C2BCA69F971A3AEA5F11CBC8DFB848951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - TranceFix Top 25 2009 (2009) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7944958EECDC74CAB15F5D1D2AD3B23B32A862D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Davino Records Annual 13 (Soulful House & Lounge Music) (2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:FA56BC6497C4831F27D1C52F400378F62270E1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Realxing Symphonies (2014) [MP3|320 кб/с]<Lounge, Instrumental, Realxing
 ```bash
 magnet:?xt=urn:btih:8337CFFA6ED1AF28C5828F033E11C26F96C3C7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ VA - Trance Symphony Volume 37 (2014) [MP3|320 кб/с]<Trance, Uplifting Trance
 ```bash
 magnet:?xt=urn:btih:15A91EAAD9D9811D5A37CAD17F78EA09152012CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FF5797D7521F24FC30746C0082D4C976BB180B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D1DC11DA80F9E5DA012919E066B3CC1FA86E148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:145B1963043116CD301AE38780D3CEFB2E079ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97C6FE944E334ADD720A6335E2195BAE9F096B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72BC24D9B7F49A2290B33916EAC4BDBD300E5E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ Official WebsiteЖанр: Heavy Metal |Продолжительность: 00:27
 ```bash
 magnet:?xt=urn:btih:1680E3CE9050C3A47F27DC5AA6B23DE5B5C686DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ VA - Planet Blue (Compiled by Johnny Blue) (2013) [MP3|320 кб/с]<Psychill, Do
 ```bash
 magnet:?xt=urn:btih:79B43036C72FCEEE023344645767DB9F3EB7071C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ Manuel Seoane Burning Kingdom - Livin' Now (2009) [WavPack|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:24F1FCDC4D1530CF7931D55490D616D24F4E87A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0114272BB2302C7459EA6E6B0075E8B9EA7D17F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:709CF24AA4A02412AFD8A13313A1AFAA03CB2DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ Black Messiah - Of Myths And Legends (2006) [MP3|320 кб/с]<Black / Epic / Fol
 ```bash
 magnet:?xt=urn:btih:8D833D46BD2CDAE9C7CFCD0FB20E2FC8A2FD2E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +567,7 @@ Hibernation - Second Nature (2012) [FLAC|Lossless]<Ambient Dub, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B8CB8083FC05573B48B16D8C25D6675EE2C0CE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +601,7 @@ Krokodil - Krokodil (1969) Reissue /1999, Second Battle Germany/ [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:6978A96766AE2871D1A0DE4AD12D3610B4FDDC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ SuperCharger - Broken Hearts And Fallaparts (2014) [MP3|320 кб/с]<Hard Rock/H
 ```bash
 magnet:?xt=urn:btih:A5B845085DDA3AE36677300B4349F5C2963D02D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0161A191F32FEC8DAAD712243ABAF56AA84E251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:D6E893AC673C408A4D6E33A67D78BDC55E5B3253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +719,7 @@ Pet Slimmers Of The Year - Fragments Of Uniforms (2014) [MP3|320 кб/с]<Post M
 ```bash
 magnet:?xt=urn:btih:4B531EEC744C57E4BDCD687AECA766A56A09E69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAD3996FE5E9F0B77EA0217ADA1D4E51A6F0B5FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -794,8 +769,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:094F225A21504559588F5FDC515932A202797CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

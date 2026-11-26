@@ -19,8 +19,7 @@ FBReader Premium v3.7.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DA44FA2C8DEE9285028FDD7CA4722B0192A2CFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Listen Audiobook Player v5.2.8 build 1003 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B88C6C9BBE00E1D3EC8680C3DAF9AFDC98EB5FD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

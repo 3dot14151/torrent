@@ -22,8 +22,7 @@ PicoTorrent - это крошечный и минимальный клиент B
 ```bash
 magnet:?xt=urn:btih:7F31FF321170774F1E78C9C5AB3AD9AAF22D4D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

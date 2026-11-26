@@ -22,8 +22,7 @@ Swift — объектно-ориентированный язык програ�
 ```bash
 magnet:?xt=urn:btih:06AE86D8B368432CE5AB551860AF24B4E34A3BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

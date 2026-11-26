@@ -19,8 +19,7 @@ Tales From The Dragon Mountain: The Strix (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:3BDE9D86F777CA618EB8CB4EED585B2AC6B255EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fiction Fixers: The Curse of OZ / Литературные агенты. Про�
 ```bash
 magnet:?xt=urn:btih:802154625B72AA2EFC5318BB223F67717CBF93BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dracula: Love Kills Collector's Edition / Дракула: Любовь убив�
 ```bash
 magnet:?xt=urn:btih:4CA84FF50EB224FE13C33E24E20CFBFA287C3CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

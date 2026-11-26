@@ -28,8 +28,7 @@ Journey - Eclipse (2011) [MP3|320 kbps]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:2EA1F2266EE3AB12E1FAA7A760C1A3F56282CB1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Katana - Heads Will Roll (2011) [MP3|320 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:602B53E0EB9E1EB3D3A2DB81A5E0B187358EAE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Kansas - The Best Of Kansas (1995) [FLAC|Lossless]<Progressive rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAC1DF5D05AE25C3D794146312433E40D3AB7D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

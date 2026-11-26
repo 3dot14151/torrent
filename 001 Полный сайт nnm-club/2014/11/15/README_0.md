@@ -27,8 +27,7 @@ Sweet Marta & The Blues Workers - Come Love (2014) [MP3|320 кб/с]<Texas & Chi
 ```bash
 magnet:?xt=urn:btih:6D941267DB9192A34E16971CD3A3C8BD6A6ECC35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Ookay - Ghost (2014) EP [MP3|320 кб/с]<Trap, BassHouse, DutchHouse, FutureBas
 ```bash
 magnet:?xt=urn:btih:7F786D9F68558FE456E12482308D7F33D3C37B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7407972E53B5EAD0FFD8BD06D115C1548D1FACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D02E5B8EAD345770323781B6AF0E7D6926CA35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ Arsenal - Lokemo (2011) [MP3|320 кб/с]<Alternative/ Indie/ Pop Rock/ Electron
 ```bash
 magnet:?xt=urn:btih:DF64DCFF242F6E1460B25F8E786509926EF53B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DB29E5A773A3111E5AAC7FDC4FD5F3DFF068735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4366D63D53754CEA54EA06F578B766FB6E4DFA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Broken Oath - A Different Way (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F43B2AE5E81F01DE418E25F4FDBE758AEA371434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:9EB899C6CF4CA165DE282426306411EF1D525530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:493C8255A80DA491FDD0CB754D96C2620AFA3A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ VA - Beatport Top 100 House October (2014) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:4DA6726B6CD037CF3C6CFA436E308AE82904D1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ Excite My Ox - Made in France, 1859 (2010) [MP3|320 кб/с]<Alternative | Male 
 ```bash
 magnet:?xt=urn:btih:7B535805B61E366ABE2BE419B95B967CD57C8036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ Arsenal - Furu (2014) [MP3|320 кб/с]<Indie Pop/ Indie Rock/ Electronic/ Dance
 ```bash
 magnet:?xt=urn:btih:B34308EF1C5C0D022F1FE9698904C44DB8218C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ VA - DJ Zinc - Drum'n'Bass Arena (2005) [MP3|320 кб/с]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:C62407780D103A2AE355C82FA691B298267725FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ Badboe - Break The Funk Remixed (2010) [MP3|320 кб/с]<Breakbeat, Funk, Big Be
 ```bash
 magnet:?xt=urn:btih:86CE6589BBEAC0D973D14281044D870D1C3843C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E602C084D74B1F503FDCBA5EB915084EE3E2A366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23CF9091B53F3F4582742534E39A8C2F13C6F6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ Monica Molina - Mar Blanca (2012) [FLAC|Lossless]<Latin Pop, Fado>
 ```bash
 magnet:?xt=urn:btih:DE91595B80DF737B8F0A65CDE9A1AD2343A28854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8091B816B5D9FB493D313E0CB39CF9D9D3ECCCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ NG: Вторжение на Землю / Invasion Earth (2014) IPTVRip (Сери
 ```bash
 magnet:?xt=urn:btih:7824F038BFF6373EC2816F6C36B912C979D1D3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:302400C9BDD6A71448E12E191B485CB85426204A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49F600E79C6E715B4BD006BE8257FEB6EB2DA39A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:334627DFBD185B58C6F438D23F95544B6E7B6F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +723,7 @@ VA - Ministry of Sound: The Morning After the Night Before (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:3D35263D1BE5976DECA2EFDAEFBFAAC4622BE64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ Dee - The Space Between Us (2014) [MP3|320 кб/с]<Electropop/ Dance Rock/ Synt
 ```bash
 magnet:?xt=urn:btih:C01561CF22C5056680CD20C778033A473777FCDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

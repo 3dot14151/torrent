@@ -22,8 +22,7 @@ Redemption - The Hard Way (2025) [MP3|320 Kbps] <Heavy, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A13BAD8E460F120FFD96A444D1A11484816DCC4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disc One - Live At Milton Keynes National Bowl, Milton Keynes, England June 5th 
 ```bash
 magnet:?xt=urn:btih:D1EBA288582C7D9587BE5D46EA660CAB7606C541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Katatonia - Nightmares As Extensions Of The Waking State (2025) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:6494F01650C8C1A28E1E3C36D0AE872934614604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

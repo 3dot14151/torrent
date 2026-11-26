@@ -19,8 +19,7 @@ D3DGear работает как универсальная программа д
 ```bash
 magnet:?xt=urn:btih:4CB62915BF44053E7AFDABD8D75CA8C51817F25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

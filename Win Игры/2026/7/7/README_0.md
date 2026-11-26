@@ -19,8 +19,7 @@ Come in (2026) [Ru/Multi] (Build 23716651) Repack Other s
 ```bash
 magnet:?xt=urn:btih:09202824D452BCEE9287325DCFB778001D5AF04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Junkster - это совершенно новое 3D приключение в �
 ```bash
 magnet:?xt=urn:btih:4346B9F2F99A41F436A5A8394717EE8215C429F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Black Jacket погружает в мрачную атмосферу загро�
 ```bash
 magnet:?xt=urn:btih:A91812B8387242666B8F0B0C674CDC8A6DC72074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Atomic Heart переносит в альтернативную версию С�
 ```bash
 magnet:?xt=urn:btih:104091344974BB48BC5624CDA464E877A126F3BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sleeping Dogs - это экшен с открытым игровым миром,
 ```bash
 magnet:?xt=urn:btih:65050A2DE2F0860AAEFB4F3165C1DDB8A87544BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ DIRT 5 – продолжение серии автосимуляторов DIRT
 ```bash
 magnet:?xt=urn:btih:4A468032DAEC2FCEDCA3BC5520F86D1D0D23DAD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Steelrising (2022) [Ru/Multi] (Build 10819451/dlc) Repack Let'sРlay [Bastille E
 ```bash
 magnet:?xt=urn:btih:8B82478EF420A4CAF3E16314A9302ED962702123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Atomic Heart переносит в альтернативную версию С�
 ```bash
 magnet:?xt=urn:btih:831385BB888C72C67BB9DA1656DD0E4DAEDD5DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Nuclear Epoch погружает игроков в суровый постапо
 ```bash
 magnet:?xt=urn:btih:6C6E672D647BA905752291D179DC5BDF6AF81146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

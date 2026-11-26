@@ -19,8 +19,7 @@ Internet Explorer 11 — это очередная версия наиболее
 ```bash
 magnet:?xt=urn:btih:142E968707320662B11851259CF092C5FEC0EAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

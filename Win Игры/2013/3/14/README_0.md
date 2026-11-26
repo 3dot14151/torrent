@@ -19,8 +19,7 @@ Worms Ultimate Mayhem [Ru/En/Multi] (RePack/v.1.0.68 + 3 DLC) 2011 | Naitro
 ```bash
 magnet:?xt=urn:btih:C27AD8E1E216ED7358D522A55BE3B4213BD31CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sniper: Ghost Warrior 2 является продолжением Sniper: Ghost 
 ```bash
 magnet:?xt=urn:btih:C20904DB2979A7D9899D2132DC40389BC8B620BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Warlock: Master of the Arcane - новая стратегическая игра
 ```bash
 magnet:?xt=urn:btih:B07086AB3C8D7D324B27638F6DE1538D7E065534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

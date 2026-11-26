@@ -20,8 +20,7 @@ KA-52 представляет собой продвинутый вертоле�
 ```bash
 magnet:?xt=urn:btih:F3CC16A6AC7209E5B8580A8AD447B67A561AC7CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ World War II Sniper: Call to Victory / Снайпер: Дороги войны [
 ```bash
 magnet:?xt=urn:btih:BCD995E109BA577393203814E0F9D3DAFF550769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wanderlust 3: Shadow of the Monolith (2019) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:FF1E119515B982762E320E9455C6039F5F25A2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Midnight Calling 5: Arabella / Полуночный зов 5: Арабелла (
 ```bash
 magnet:?xt=urn:btih:3DF79456C6056CFC87EC65FF31357646A8B57579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reflections of Life 8: Dream Box / Отражения жизни 8: Ларец �
 ```bash
 magnet:?xt=urn:btih:FA46FFD8343DE84294AEDF2145F49FAAF2A228FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deus Ex: Human Revolution - третья часть популярного РП�
 ```bash
 magnet:?xt=urn:btih:C2DFCD09F75A1E7A0CA76907BFE36CCAB7F474B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.20/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CE77143A2B89BBE8C04BDA8CBFD0E929DF04FBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

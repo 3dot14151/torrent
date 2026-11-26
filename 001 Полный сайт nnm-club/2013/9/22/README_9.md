@@ -28,8 +28,7 @@ VA - Made Trance Outshine (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A895F6A18A56B9FEC1897075863855B4D659CEC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Andrew Lu - Club Universe 081 (19.09.2013) [MP3|320 кб/с]<Trance, Progressive
 ```bash
 magnet:?xt=urn:btih:859BB9E6C57C9F9296385C33E27D90238E9BC2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Ian Pooley - What I Do (2013) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:12009A05BC723D9BAADE629983735456CCC5CB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Metagalaxy 18 (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:9FB6E941BC12E7AE374E271D564992617884E1F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Air Pavilion - Cutting Air (Act 1) Japan (1987) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4F04182A4434D6CFD8C337D294685F8C548FA6B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83AED83FA8E9E5BF248EC928F493B8F61B89D3F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ VA - Ibiza 2013 Part 2 (2013) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:FF64B79BB081253ACA6C695281D363E3C6D9A144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ Raventale - Memoires (2013) [MP3|320 кб/с]<Atmospheric Black Metal, Doom Meta
 ```bash
 magnet:?xt=urn:btih:4DC23DD46D4E954CC732FBDE2715F4B59D6EFF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ VA - Armada Stream 40: 2013.03 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:6A3C361810D4A4C8EC472CFF123553700CA4B906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ VA - KuschelLounge 2 (2013) [MP3|320 кб/с]<Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:E6C636A46E5AFE4035C75F3B55B2A2C52D97F65B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07C62867CEFCC1020FFBC31A05E2BB1D6F5CCD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44B69FF8F408AD708112111AEA5DBE7FF6F6EEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DDC47D51BF712BE38B1AF3612388EF7CB4AB92B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +459,7 @@ VA - It Came From The Internets Vol 3 (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:E29BE15FF1D94C52649578DD85CCABC656F949A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +493,7 @@ VA - BIG Trance 2013.3 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:36FCB0612165104F5069A7829747286AC26FF42D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +527,7 @@ Ingo Herrmann - Coast (2013) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:59C4E02D070181E3C30E3037C3979EF44364C869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7C6EAC53059FF7CC1F06D9352AEE64F5B0D9581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5BECF4BDA7349AC782E5455FD9913D3557F10C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +612,7 @@ Robin Beck - Livin' On A Dream (2007) [APE|Lossless]<Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C8CB5A5DE3390CDB5D764DFFE6AF73A25904EE0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +646,7 @@ VA - ChillOut Pulse - Sunset Views (2013) [MP3|320 кб/с]<Downtempo, Lounge, C
 ```bash
 magnet:?xt=urn:btih:E58D574CFDAC9B8282836CC2AA10D86D9D55DF64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +674,7 @@ Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
 ```bash
 magnet:?xt=urn:btih:B53D3226700106C02CAFF6960AE690A0C833CD52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +708,7 @@ VA - The Enhanced Collection 2012: Part 2 (2012) [FLAC|Lossless|WEB-DL]<Trance>
 ```bash
 magnet:?xt=urn:btih:4532FCFA7659BDF9E47727DAFF6EC7036997DBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +767,7 @@ Yiannis Glezos - The Roses Of Pieria: Instrumental Music Inspired By Ancient Gre
 ```bash
 magnet:?xt=urn:btih:D3D1BB3565F77D6CA4826E46D3D7C64E3567C9B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -821,8 +796,7 @@ B3.Money :: 05:58Жанр: DiscoФормат: Vinyl, LP, AlbumПродолжит
 ```bash
 magnet:?xt=urn:btih:4C4E3560F63F5B9F179757525F52E8797A6B9D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:C11200FB5AA530733DFF9989E19C24FCA62F90CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ VA - To the Extrema (2015) [MP3|320 кб/с]<Trance , Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:0AC3B8728A44CA4415AE7A2A675A1FEEF0A193C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:257A6999820CB79D22A7019F35C79CEF28036674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - To the Extrema vol. 2 (2015) [MP3|320 кб/с]<Trance , Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:05B50BFAE79E5B2D82C1853B2481CD6E93171BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44444F0E4130BB20F903654AC87C5E3C4E063F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Falter - Further from Nowhere (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:51CBE3A8B75C7D07002FB2E20A0458E5F728CBDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23B63D158C4F06800230C0E3BA9053C717DC2ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B42837552227D94EA66CC94D70D611C8F9C99D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Nova Rise - Nova Rise (2015) [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:C51B17D799CC4988106242C34878A42D105FB289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Isaac Farr Trio - Blue Highway (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7D195940088A1064FE8EC437035AB2452E29BBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EC8739546B96A992EEAB79D3D16190F028B1F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA887B44EC12ED6A9D27BD061EFE9F29EBE920FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:963FD905DFDCAEE061E125FB13FE481DE96A183C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Big James And The Chicago Playboys - The Big Payback (2012) [MP3|320 кб/с]<Bl
 ```bash
 magnet:?xt=urn:btih:0CFFABAAFB4CC513BB9653297C99FEC02F00399C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ Miles Davis - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:11D3CB09EE4C416CAB1A7F0A16B96B301EBFDF49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Hank Ballard and the Midnighters - The Very Best of Hank Ballard and the Midnigh
 ```bash
 magnet:?xt=urn:btih:471D26F2916EFABE7D07CF6C81A6DD9EE224794F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:00FE01132485E6B4025E4D537495B75D9F8EE026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E20395AF7BD04F89C502F89BB439C768ED53690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Maria Muldaur - Meet Me At Midnight (1994), Reissue/2005, Shout! Factory LLC/ [M
 ```bash
 magnet:?xt=urn:btih:206DD942DE18649338BDC997A27E516C3918358B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:838FADBACC1869545B4F00341217D74C1BF0445F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ VA - Sound of Nature, Vol. 1 (Pure Chill out & Meditation Grooves) (2015) [MP3|3
 ```bash
 magnet:?xt=urn:btih:95877667A0F3EA1B5040845B315B989124C8F24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35C69799261A9A39DF3D03DB34DE921C04533164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ Calibre - простая, удобная и универсальная прог�
 ```bash
 magnet:?xt=urn:btih:38714752211C35DC18C5D78AC6F27B56A385AD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE8466BB17B42380809F4A946A8BF4A072FDF528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ Pitbull - Dale (2015) [AAC|WEB-DL|256 кб/с]<Hip-Hop, Electronic, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:303E0D21588C2DD9ED2BCF19F2843545DCD5339D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

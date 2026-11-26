@@ -19,8 +19,7 @@ Botanicula – это наполненная юмором игра-приклю�
 ```bash
 magnet:?xt=urn:btih:6379E6F4AF406F0EB7D4F2EE3E604AE9A8900958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

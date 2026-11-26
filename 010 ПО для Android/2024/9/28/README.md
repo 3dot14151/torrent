@@ -19,8 +19,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:47191B2EAEE36559D202A504DDC3E02D29AF5689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:626783A5DE791FEA3B385FC47B773D01EFAD5749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:C77A6D920EA9AF9E7152DDA15CF70F78BD5C0931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PhotoRoom v5.3.6 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D8FAAE2C376197FE319F4FEC97C5CEBBB27CA792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dada: коллаж и стикеры на фото v1.2.8 Mod by Alex.Strannik [
 ```bash
 magnet:?xt=urn:btih:7653334A0A80BB1E8B5324BDF75910927DEB6535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:C06480C10D011D49A7794FD9737DC040A1848365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Reface: Face Swap AI Generator v4.22.2 Mod by Mixroot [Multi]
 ```bash
 magnet:?xt=urn:btih:6240B9F73893958BB4CDF6581E17A010ECF936AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17824F33B2E7B109F1ABC4C9E7D58226B25162EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

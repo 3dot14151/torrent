@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E10F134211DF26AD8A1BFF3BDB4057C6EE3C1FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ C.А. Борминский | Электротехника и электрони�
 ```bash
 magnet:?xt=urn:btih:DA390113A03BD521C7BCD3C49325AABB5B7B698B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

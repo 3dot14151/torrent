@@ -20,8 +20,7 @@ Weather Live Wallpapers v1.74 [Ru]
 ```bash
 magnet:?xt=urn:btih:B0F5E9029C1B8A05EB1D9ABF9656CDE5A8ACEFD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Geeky Hacks Pro : Anti Hacking Protection v1.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:8AFC4F09FFD732EC1C63D7305C90EA581C387E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Malwarebytes защищает от самых сложных вредоносн�
 ```bash
 magnet:?xt=urn:btih:71DEB6B820916B751BE0604A5D97EDAF5B946C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

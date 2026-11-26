@@ -22,8 +22,7 @@ Darkology - Fated To Burn (2015) [FLAC|image+.cue]<Progressive Heavy / Power Met
 ```bash
 magnet:?xt=urn:btih:2D1DAFE3E9E970402B3932B6AFA5F35F5940C71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chaos Magic (Timo Tolkki & Caterina) - Chaos Magic (2015) [FLAC|Lossless]<Sympho
 ```bash
 magnet:?xt=urn:btih:56D72C355027269D9B05B7D746AB6FEAD5BFAF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Paul Wardingham - The Human Affliction (2015) [MP3|320 кб/с]<Progressive Meta
 ```bash
 magnet:?xt=urn:btih:00A04306955D0917BDD72D4F7F77072D5BA118D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

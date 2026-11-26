@@ -22,8 +22,7 @@ Cathy Garron: Известная своими модными шляпками, C
 ```bash
 magnet:?xt=urn:btih:5E1CF3EABD5CC8BA21D669EB4D6D1571D83673D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AC9B9E27ED181E1C7D1423D0948466C5ADCEDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

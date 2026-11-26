@@ -22,8 +22,7 @@ Sentinel - The Black of the Sun (2020) [MP3|320 Kbps] <Progressive Metal, Power 
 ```bash
 magnet:?xt=urn:btih:BFE8586CFEE8454FAF638CA16073E6653AF01820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brennen Sloan - Brennen Sloan (2020) [MP3|320 Kbps] <Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:261CD7A743AF21DEB64D156801923660CA48007F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Navighator - Navighator (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
 ```bash
 magnet:?xt=urn:btih:912EC82D84FE3BA6C3E5555F45B8022A28BE45C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ars Pro Vita - Peace (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog.>
 ```bash
 magnet:?xt=urn:btih:34FDB235BE991D25CFA876C758D0FE4AC0959B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mekong Delta - Tales of a Future Past (2020) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:8227A8A3CB31D53C5CEE964350DF90B7B90E20C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Save My Name - Дойти До Трёх (2020) [MP3|320 Kbps] <Symphonic Metal, 
 ```bash
 magnet:?xt=urn:btih:24214DFE95C266DAD34D36B599B186D593519CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Red - Declaration (2020) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Alter
 ```bash
 magnet:?xt=urn:btih:68199BE7FA329A65B39FC1D475662FBB8C7D66B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01B612D464538C17F9FF546BA3EEAB41BB8D5016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A4B6235048A78017509021C3A59EC760FF268A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

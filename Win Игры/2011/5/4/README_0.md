@@ -19,8 +19,7 @@ James Patterson's Women's Murder Club: Death in Scarlet / Женский клу�
 ```bash
 magnet:?xt=urn:btih:17137995ECFAC987785E7BE819217D873224A4AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Enoch Ardon - S/T (2007) [MP3|320 кб/с]<Screamo, Emoviolence, Hardcore>
 ```bash
 magnet:?xt=urn:btih:EC8FD123781CF631F73457E571269A5D6C689B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Soul Grip - Avadon (2015) [MP3|320 кб/с]<Blackened Hardcore>
 ```bash
 magnet:?xt=urn:btih:62A3613F6EE909005C868D64C28AB850FA4154EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8750D02E7A230D780BEB852DC4625451D2807F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ NRK Sessions - Soul, Afro-Jazz and Latin from the Club 7 Scene (2007) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:547E7E0E746BBF48559173BF4A17734CFE34661E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Robovision: австралийские ученые разрабатывают �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A84162E91208CDABEFF416EEF4B21DB26DF393E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Living the Blues: Blues Greats (1995) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:2C48EB3F503DEE4B47FB1EBB28B0D0C531C96C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Kodjabashia and Foltin feat. Goce Stevkovski - Penelope X (2011) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:4C0B404BA62F4BA4ECCBB367AD7870751704C6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Threestepstotheocean - Migration Light (2015) [MP3|320 кб/с]<Post Metal, Post
 ```bash
 magnet:?xt=urn:btih:B2A14A3F3050D7EA7D23D9E1844D6D0A2E4EE269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D16CDD828D86CA1F0D9AD1CA65EC079D8D83F2E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ VA - Living the Blues: Blues Masters (1995) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:365CC6B050AAD13C8F249C61E978B5B989F7A960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Living the Blues: Blues Roots 1930-1944 (1999) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:B3724B8426BFE6564B2694A200B39DC0BE92EB88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ VA - Living the Blues: Blues Legends (1995) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:3F6481B832C6F2B9B08BB1ACEF02F9D2711B3394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ VA - Living the Blues: Blues For Fun (2000) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:566B1C70CD58D9895F4FFA9B390E2FF132DEF753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ VA - Living the Blues:  The '90s Blues Classics (2000) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:6B099DEA70BAE4ABB7E83B51D2B5C3346E62998A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EC00F38B298FF851C602EFD8B9AA05A29CBF156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C2FF6B25FD71786B1319FAAA716BEAD97F9A8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ VA - Living the Blues: Texas and West Coast Blues Classics (1998) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:9D72AC0145883A893CA06238B894C120164EC375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ Paolo Apollo Negri - The Great Anything (2010) [MP3|256 кб/с]<Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:C9D73F2947319E26C85F3245732B3F8593D9177D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ Oli Silk - All We Need (2010) [MP3|192 кб/с]<Smooth Jazz, Jazz-Funk>
 ```bash
 magnet:?xt=urn:btih:58F3FDAD1A19CB7D25DA86D69533289E21AE5CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5185397E846B562653EE06BB40D94924AB63E07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A08952C686FEDD586EE4FCF207600BAE7B0B663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Elusive — норвежская музыкальная группа, испол
 ```bash
 magnet:?xt=urn:btih:2C14E7AED4F1296D9B4BE30BAB502C9000340BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

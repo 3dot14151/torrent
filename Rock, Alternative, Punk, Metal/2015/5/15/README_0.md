@@ -22,8 +22,7 @@ The Matrixx - Резня в Асбесте (2015) [FLAC|Lossless]<Neo-Post-Gothi
 ```bash
 magnet:?xt=urn:btih:4CC0FE668C7A7C77955C859F267607155B74E624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Matrixx - Резня в Асбесте (2015) [MP3|320 кб/с]<Neo-Post-Got
 ```bash
 magnet:?xt=urn:btih:CBC13C7ECAFA7DA83F91C0F7636C05BBEBFF1C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nelson - Peace Out (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5EB1ADAA66458D80E1AECAC551E442C4187702C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

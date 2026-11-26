@@ -22,8 +22,7 @@ Alexey Litunov - Total Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:CDE76C14F2809ECDB6663A5490FFC3921F38C5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Budd Johnson And The Four Brass Giants (1960) 1999, Original Jazz Classics [FLAC
 ```bash
 magnet:?xt=urn:btih:0D87FC0B5C1BC1A3DD04B534D1B0EA12F1EDB156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Trance Travel Vol. 1 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:ADC70D5DF8A1F6C43281C1F60D4FB7EFA6370A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dream Travel - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:96630CED147C76C211D925E4E080E8ABE30E279A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Kat Green - Until You (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
 ```bash
 magnet:?xt=urn:btih:BC6F57B51A8B2C2B9C11274B9BED9374A16BC0F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Adedition: Trance Collection Of Amsterdam (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7473E948702AD7167C1CA41220FAF92C3DE70C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D42F5961EDC657716274078512258A7327ED9C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE1ED9D848DE72856A45261697AD402D145FAC5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ KeyKey — учимся слепому набору
 ```bash
 magnet:?xt=urn:btih:789D5A268790A51DABCA7E03B297F4BDC37EB9ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Juicy Groove: Minimal Techno Mix (2017) [MP3|192-320 Kbps] <Minimal, Techno
 ```bash
 magnet:?xt=urn:btih:1EC8662223527220F80AD4D300B9C5AC98D81DF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FA322887DE67C3D6DBD6AD3C4E72463851CFBF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F0D3089546046055F49639D91F02B753370FFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Urban Legends: Techno Party (2017) [MP3|320 Kbps] <Hardstyle Techno, Tech H
 ```bash
 magnet:?xt=urn:btih:E830C32E963C1711D0F574AF48B59C7E22B588A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Little G. Weevil - Something Poppin' (2017) [MP3|320 Kbps] <Blues, R&B>
 ```bash
 magnet:?xt=urn:btih:229882DA1C12A7B16CB6DD1A7215B554E8E86D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ CD1 - Caravan:
 ```bash
 magnet:?xt=urn:btih:61744510CA05D8A9CFB0FB83CA053F53365A6806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D663C02039AC58766BB8DC27B5289D2DBF97560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ VA - Christmas Mega Dance 2017 [MP3|320 Kbps] <House, Electro House, Dance>
 ```bash
 magnet:?xt=urn:btih:5A820066A5AEA8A11823F0061085133974861FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Stan Kolev - Bijaca (2017) [MP3|320 Kbps] <House, Funky, Progressive>
 ```bash
 magnet:?xt=urn:btih:0C434E8110B7718A8952837D3A142B6D243EECC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ iExplorer - утилита для (   Читать дальше...   )Тип и
 ```bash
 magnet:?xt=urn:btih:5E40625EEF72CE5637732C1493531B86FF02822F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8F356D9FD609D09D6AC240B700B5246C194980C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3697BB02EAEA5305AFD577DBA94A20289CD15286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ AnyTrans - файловый менеджер, который отвечает з
 ```bash
 magnet:?xt=urn:btih:63FBCB376F4C20D19BA2EEF2B87D31224FAF2623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ VA - Deep Disco Culture (2006, 2007) Underground Disco Rarities & Future Club Cl
 ```bash
 magnet:?xt=urn:btih:D0DE531AE551D864E336EEF298FD2073347C6611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BD09FC265DA2770815B94FF642856002CA4A979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Vivaldi 1.13.1008.32 Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D9E424EF1502745DB376A2B1CB0E65134F9EC187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 025 (2017) [M
 ```bash
 magnet:?xt=urn:btih:F5BE16EBC03F8CA2E69CA5D64ED8160E41514764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

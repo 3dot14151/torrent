@@ -19,8 +19,7 @@ Nascar Racing + Nascar Racing 2 (1994-1996) [En] Repack WinterKiss
 ```bash
 magnet:?xt=urn:btih:14F3205C67D6D9F8010E81B201AC8B7BF1175C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Undercroft (2006) [En] (1.2) Repack dark_elf2
 ```bash
 magnet:?xt=urn:btih:AFF923544232C7ACFABE61F9818D306F1C022A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

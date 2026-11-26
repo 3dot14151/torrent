@@ -19,8 +19,7 @@ The Long Dark (2017) [Ru/Multi] (1.49) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C75A8847155ECE4A46104EEC93CD715C11CFCBD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales 16: The Nomad / Страшные сказки 16: Четыре спо
 ```bash
 magnet:?xt=urn:btih:26D394C5512C5ED608199B2B493E255AD02B29E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack R.G. Catal
 ```bash
 magnet:?xt=urn:btih:B284224A06DA0C74875A538BF531A0D37754BED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

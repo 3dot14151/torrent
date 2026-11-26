@@ -20,8 +20,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:CDC4E73C72053CE7A9B584F425E9A4321D1CE73D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Antonio Hart - For Cannonball And Woody (1993) Novus [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:FF4EE38171507A18C01052CCB52FC3F3F6CC5E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Jelly Roll Morton - The Best Of Jelly Roll Morton 1926-1939 (1993) Jazz Archives
 ```bash
 magnet:?xt=urn:btih:E2B20194B8D28B0C5B20301EEDBC2764728BF796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Ben Webster - Story 1934-1944 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:211DEF4EE6306590B1AC43082536FA79A3584B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Greg Marvin - I'll Get By (1991) [FLAC|Lossless|image + .cue] <Hard Bop, Neo-Bop
 ```bash
 magnet:?xt=urn:btih:5CC728DB5FF060E346250DF7861F4CD02DE15A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Video Editor MovieMator Pro 2.9.2 [En]
 ```bash
 magnet:?xt=urn:btih:27DDDAF56C7136A8E08BE9F2C31C7964D5E6FD93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Unclutter - это новое удобное место на рабочем ст
 ```bash
 magnet:?xt=urn:btih:F0401854B941007CEC8C01BB41235C528D4911F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:14405A1EFAF0CE1FDC21A56F260401E1B2F2B09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ CopyClip 2 v2.9.95 [En]
 ```bash
 magnet:?xt=urn:btih:E3ADCD906CDA38685DC42925B4001783F0066DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Bob James Trio - Espresso (2018) Evosound [FLAC|Lossless|tracks + .cue] <Post-Bo
 ```bash
 magnet:?xt=urn:btih:EA726BE52834D9AF06A924ABBBC13312292762F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ The Presidents of the United States of America - Pure Frosting (1998) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:9026294CAD7468F347D02B8031451BD2B004C3E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D121C50F4921228140B65DC76DB87CF5BF61F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Ganz Feld - Urania (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Hardvapour, Ex
 ```bash
 magnet:?xt=urn:btih:2F27957E0ACADD7666276C1B987BB046F237690F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Adguard — это лучший способ избавиться от разд�
 ```bash
 magnet:?xt=urn:btih:477112317C4BEFAC7A3C3F71B4FED816A0EA01D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Cold Blue - Live @ Anomaly, Tunnel Club Birmingham, United Kingdom 2019-10-12 [M
 ```bash
 magnet:?xt=urn:btih:AF6AFDBE1C43CBD407EFCCECECC4646F069531EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ The English Garden - журнал для всех, кто любит краси�
 ```bash
 magnet:?xt=urn:btih:5785C4545C7D010E0F51F8EC94B0D65A4C554C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFE2A7C05A0B8AC3297C278EB6A6101091843F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Folder scanner - визуально анализирует диск / папку
 ```bash
 magnet:?xt=urn:btih:9C02F45E232C720D4A971E5082C66F5E0FEFDD93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|32
 ```bash
 magnet:?xt=urn:btih:9E0DEAE5A4E6F8E1BC723DB5F1C54BA93788BAEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ Rudy Brass - Frog's Jump (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 ```bash
 magnet:?xt=urn:btih:484172564F053DB908F5A8313BC5DE15EB4FDAFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:45824C50A00A5DC1E9A30187576167C658BF026C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Elle — французскийЖанр: Женский журналФормат
 ```bash
 magnet:?xt=urn:btih:7E5BECA2D61FB6DDDC015586CC446396758B29C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ADAADDA5760090E1E7C421EAD01C669DDC5476D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ VA - French Synthwave Compilation Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <S
 ```bash
 magnet:?xt=urn:btih:A1444FFBB2302C93488BBFB99F84A84F27936A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Handy Note - это прекрасно написанное приложение
 ```bash
 magnet:?xt=urn:btih:D51E7F1AAB7401F38EBDDAE1AE43DA87A5DB8B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Adobe Zii - это небольшая и замечательная утилит
 ```bash
 magnet:?xt=urn:btih:83A2CCCC3663BC56E2DF7F6EA692E0B833BBCAEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

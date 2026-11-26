@@ -22,8 +22,7 @@ Bobby van Deusen - The Naked Piano: Trio (2003) Melcome Records [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:5A96A7516D913EEF4A8200D5958FF300A6D38C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dinah Washington - Queen Of The Juke Box ''Live'' 1949-1955 (2000) Baldwin Stree
 ```bash
 magnet:?xt=urn:btih:9E433BAF946E41EE0CB337DEB4162452BEDB5486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Desolate Horizons - Every Dream Is a Lifetime (2019) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:EC785B720182627EE20763CA80B7146CEB443156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - German Top 50 Party Schlager Charts 04.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:75B6E6B788BF2E6E4A04FA9957F6254C21029A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0552308B09BD81D63051F4B8AF927A3DAB56E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Angela Bofill - Teaser (1983) Reissue CD, Arista, 1999 [MP3|320 Kbps] <Electroni
 ```bash
 magnet:?xt=urn:btih:F7794425EC377516DA547A7D7F80975B8D8B0A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - German Top 100 Single Charts 11.03.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:85275DBA902421778C1C3C73ECDF66A2DB58D0A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ ILUITEQ - Soundtracks For Winter Departures (2019) ...txt [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:54D2439A07D454E1C184232952790984E6D692A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B201C9ADF6087A62C12E9FA6320EECA00E160A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ BestReminder v2019.03.04.11 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D59D2B90FD7855CC6F01BD9B7AAB8D2146FC0343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Moebius - Lux Fiat (2019) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Ps
 ```bash
 magnet:?xt=urn:btih:927C4C32D9FF4B7D3A062F8591B37178719ED0BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Jim Brickman - Soothe, Vol. 4: Subzero - Sounds That Spark the Senses (2018) [FL
 ```bash
 magnet:?xt=urn:btih:D27825A2BF16276605F24D51FF5D2AD0CC908646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Gigi D'Agostino & Friends - The UltraTraxx Remixe 1-3 (2009) [MP3|192 Kbps] <Ita
 ```bash
 magnet:?xt=urn:btih:E8246DCD214CFA065325D7978FE2CB1F99A9BA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:B01842C809B74C7BE215DABEF76BEB9102C4BCB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:904EA1DBAD7ADB94FD4DE66A0EBFE0085D8D6605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEA6ECC0D8CDC804F73CF7951460FC3204549760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Aphex Twin - Windowlicker (1999/2017) Warp Records [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:958446D17AFA416035F8814E62FD401C01F205F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Wallpaper Wizard - Более 25 000 обоев, все изображения �
 ```bash
 magnet:?xt=urn:btih:BAF664B56805BC3579525AE4EB9964F55D7155F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7566974A108DEAF4E9B28E18A09A84021B4F25A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ VA - NEW  1 от Виталия 72 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:8E08E59851E3412355FBCFEDA0643BE7796A88BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:656FBE971CBBC994EF265FE86E5E736E51518805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ Gemini поможет быстро найти и удалить одинаков
 ```bash
 magnet:?xt=urn:btih:AFE0E09F509D6F816A65ED1CF506EE1F38B60579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12233B3E48F0C172B97C3E6115490E4F0F175CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:C4060A685E62962053581E2A39A4F21A76A049D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60E42E5539F2B2DD7F4C16DEB5AB4B7FD2A046D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC20FE24A4E24BA3458604F33284E8F3172CB8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

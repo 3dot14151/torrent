@@ -19,8 +19,7 @@ Dark Tales 13: Edgar Allan Poe's The Pit and the Pendulum / Темные ист�
 ```bash
 magnet:?xt=urn:btih:F91A54CD7386DC51E21AA724E7A2177773631F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Brink of Extinction – вызывающая игра жанра tower defence, 
 ```bash
 magnet:?xt=urn:btih:ECD0851819A633662A0E9FC2237AA0F55CFA1794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Last Hope: Atomic Bomb - Crypto War (2018) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:1166EE8B82E5915E742D0AD1D258BE161B396A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) License CPY [Deluxe
 ```bash
 magnet:?xt=urn:btih:A483DFC3478377CE99C42CB2132D42D15B4678BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7B9652102EF150B0E9DD4CB64DE9B301ED132E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Masters of Anima — это оригинальная приключенческ�
 ```bash
 magnet:?xt=urn:btih:15B1DD0F69C07B3D429246666A34BE2AD144240E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Returner 77 (2018) [Ru/Multi] (4102018) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:FAB4406B1EE4BD5B8D2BD95C26C81693B81A4D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

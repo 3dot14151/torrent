@@ -28,8 +28,7 @@ Sonny Landreth - From The Reach (2008) [MP3|320 kbps]<Blues/Rock>
 ```bash
 magnet:?xt=urn:btih:6921D92834086260FBBE40D15B93C64866366218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ John Fogerty - Centerfield (2010) [MP3|320 kbps]<Blues/Rock>
 ```bash
 magnet:?xt=urn:btih:0D56B4B462B6A9F7B5CBEE98A1B6D1F46A7EB059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Elvis Presley - Elvis 75: The Anniversary Collection 4СD (2010) [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

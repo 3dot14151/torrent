@@ -26,8 +26,7 @@ Dordeduh - Dar de Duh (2012) [APE|Lossless]<Atmospheric Black/Pagan Black/Folk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Karla - Karla (1990) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EE28F739D616985121A28BDA6C8D025B5B9E1C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:224B9211D25172599740947F6BEC937B73266E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Nachtmystium - Silencing Machine (2012) [FLAC|Lossless]<Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Brett Ellis - 3 Альбома (2007-2012) [FLAC|Lossless]<Classic Rock, Blues R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Snakadaktal - Snakadaktal [EP] (2011) [MP3|320 кб/с]<indie, alternative>
 ```bash
 magnet:?xt=urn:btih:E52393B9599881737ADB0935A4B11C68D7E996FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Krokus - Original Album Classics (1980-1982) Remastered 3CD Box Set /2012, Sony 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

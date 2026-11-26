@@ -19,8 +19,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:2F142F1173D45CC6F37A51E81F4A69E0CCD3A49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Foxit PDF Editor 2024.5.2.0531.0820 Mod by AppModz [Ru]
 ```bash
 magnet:?xt=urn:btih:9645067BED5225AB64E4812CD4A6F1A553CCD92B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Navigation Bar for Android v3.2.3 Mod by Alex.Strannik [Multi]
 ```bash
 magnet:?xt=urn:btih:B1E1168206828C9BA6218B5027692E030A049CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bikemap: велотрекер и маршруты v20.7.0 Mod by AppModz [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:8A6CD1412BEF5867203A6597558087FBC4A7F232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

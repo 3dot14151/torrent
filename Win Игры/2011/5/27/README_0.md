@@ -19,8 +19,7 @@ Chloe's Dream Resort (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:60E48DEE317720CBFA11451E1060CB2B54033D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Youda Farmer 3: Seasons / Youda Farmer 3. Сезоны (P) [Multi9/+] 2011
 ```bash
 magnet:?xt=urn:btih:D7BD7951EB6250212E8ECC33392955CDF2FF7810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Naval Warfare - это аркадный шутер, пропитанный во�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Haunted Hotel: Lonely Dream / Тайны отеля "Одинокая мечта
 ```bash
 magnet:?xt=urn:btih:3B10479D14227D4CD72E753F2E7E8365EA0DEB97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69E0BA2B2ED3A60566014633E83B80B53D7343F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Race Driver: GRID [Multi7\+] (Repack/1.3) 2008 | R.G. Catalyst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Thyrien - Hymns of the Mortals (2014) [MP3|320 кб/с]<Melodic Death/Folk Metal
 ```bash
 magnet:?xt=urn:btih:1A615A6AE7D904CFFBAF5EC2185CDA3A5647CD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Trollwar - Earthdawn Groves (2013) [MP3|320 кб/с]<Folk / Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:3DF8C06966AE7E4FAEC1DF927D5F60E98BB45B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Skydancer - Land Of The Grim (2013) [FLAC|Lossless]<Melodic Death Metal \ Thrash
 ```bash
 magnet:?xt=urn:btih:E4D4A39259D5458B4848F24760F300FED0F97D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Hail Spirit Noir - 2 Albums (2012-2014) [FLAC|Lossless]<Progressive/Psychedelic/
 ```bash
 magnet:?xt=urn:btih:C03CB99D34DB6F53F9848CD979888F16834EE68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Rain Of Acid - Ghost Town (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:D3886F5F9C7669F41A6302F23185FEC020A69DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Wanted - Til The Day I Die (2012) [MP3|320 кб/с]<Classic Rock, Hard Rock, Gla
 ```bash
 magnet:?xt=urn:btih:630BE3A076908A6E8B6D8109C2B8CE78E684BDA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Julian Angel’s Beautiful Beast - Kick Down The Barricades (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:D664115351C8517516DF8B4E74406804AF062904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Revontulet - Hear Me (2014) [MP3|320 кб/с]<Symphonic Metal / Female Vocal>
 ```bash
 magnet:?xt=urn:btih:454B4030753D9726F54125CA043268BF16D7EB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ The Vintage Caravan - Voyage (2014) [FLAC|Lossless]<Rock/Hard Rock/Progressive R
 ```bash
 magnet:?xt=urn:btih:9882134F4AA98F742F6B801F250BA00698E42F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ Raped God 666 - 2 альбома + Split (2003-2009) Дискография [FLA
 ```bash
 magnet:?xt=urn:btih:62DE59479BACEA759358B9F481012DA51789C989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3240C69613BB6DD9FAF1071056F0ED503056172E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ The Vision Bleak — немецкая готик-метал-группа, сфо
 ```bash
 magnet:?xt=urn:btih:3EC10086F8DE43511F98D70875617314C8F69730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ Simon & Garfunkel - The Definitive Simon And Garfunkel (1991) [FLAC|Lossless]<Ro
 ```bash
 magnet:?xt=urn:btih:551606224B6DC632835AFD53D6B3977D7BBF326B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DA7DB5FA206485B73653A6EA07B2DBCB6F0BD7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +488,7 @@ Roy Orbison - Greatest Hits - Gold (2008) 3 CD [FLAC|Lossless]<Rock'n'Roll, Ball
 ```bash
 magnet:?xt=urn:btih:F5CD4CEE07BDB1F0AE7AECF785D187BA4BC089A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +522,7 @@ Brazzaville - Morro Bay (2013) [MP3|320 кб/с]<Indie,Pop>
 ```bash
 magnet:?xt=urn:btih:7C2C2BE8644587C3B7FE5A4A37A26E0368C9DFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +556,7 @@ Chrome Division - 4 альбома (2006-2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C6E59A92749991D1EF496D2A66D194DB410B5A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +589,7 @@ Alcest — французская метал группа, созданная и
 ```bash
 magnet:?xt=urn:btih:04DF2D772E8E3215562E9781921615BC70E65E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

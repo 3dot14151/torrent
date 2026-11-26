@@ -22,8 +22,7 @@ VA - Митьки. 3 Альбома (1996-2002) [FLAC|Lossless|tracks + .cue] <R
 ```bash
 magnet:?xt=urn:btih:2FE0A729F03063C0BB849F9F63EFDD1C73D52214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

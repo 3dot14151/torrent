@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Orelse - Beauty (2013) [MP3|320 кб/с]<Downtempo>
 ```bash
 magnet:?xt=urn:btih:A723AC9304552F6F3D8E32C78E7FD8460F6E30F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Axiom Of Choice - 3 альбома (1995-2002) [MP3|192-320 кб/с]<Ethnic, Wor
 ```bash
 magnet:?xt=urn:btih:1866A62EA780DF42D7CF27E73603D8E95753C6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ MihayLove - Miami (2013) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:DED7F03D5E76D14E4D8FAB6D4FA6B42B3F4A48D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:435FD21BE0FB50DCB58CC0BCE0668A03F07BB818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ Paco Pena - Flamenco Master. Essential Flamenco Recordings (2003) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:D1A05C442DBC0DE4E6D82199A1C16D8799C52DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Pago Dagara - Shamanic Healing II (2011) [MP3|320 кб/с]<Meditative, Healing>
 ```bash
 magnet:?xt=urn:btih:80A20CC64FF270B3389D5F37D2A0AB6325A7F969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46D819646C49E7387BF222AE6C7067B0637FF96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30E9C39F5D3A93C5325CA3CE044EB60C76F9C3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ VA - Armada Top 15 - August (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:EF18FACB578AF13657C60DA7ABC0489D4A3700C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A4F5D60534B496607A3FD8F923557620FE65C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14FC07BCB9503AF8FCC770768A5E2D6337422D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ VA - Ibiza Flavour 2013: Balearic Flavoured Lounge Grooves (2013) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:FF3E90085F5F2E9D41C3C83F0D281B5636F0375F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EFD6BFF100A8FCA489EA41BA3273223E16037F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69FFE9F2C4B81EBE18977086BF6C2C6CACCB34EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Comedy Баттл. Без границ. Лучшее. Выпуск №3  / Ко�
 ```bash
 magnet:?xt=urn:btih:CA032C0883A5C8E01590B638CC64F6237D3EFBB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Balabolka 2.8.0.554 Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8094C49E6719549F1F302A296985CF2ABEAB5ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ Foxit Reader - профессиональное приложение для чт
 ```bash
 magnet:?xt=urn:btih:FF34828213B14FEE3ACB9AD2AD0AB6B2BADB80D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ WinCHM является удобной и мощной утилитой для �
 ```bash
 magnet:?xt=urn:btih:A8D3120190F7AF753E856A5A37F278241749DDE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ HyperSnap — Программа для снятия скриншотов. Мо�
 ```bash
 magnet:?xt=urn:btih:2A125E1531549721122386BC56C5CE4D865734CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2320D48B8D2C2D40DAC63815401CFD63ACEB38B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ Sumatra PDF - легкий проcмотрщик PDF, DjVu, CHM, ePub, MOBI, XPS
 ```bash
 magnet:?xt=urn:btih:3C78F591CABFBFD0433ABB223CFE240BC91D10DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ Comedy Баттл. Без границ. Лучшее. Выпуск №3  / Ко�
 ```bash
 magnet:?xt=urn:btih:7CDE3EFF039D3FBC91130B085BE67A01320AAE6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ Advanced Batch Converter - мощный конвертер графики. Ун�
 ```bash
 magnet:?xt=urn:btih:673B738BC16F063041BCA7C573F32B9ED1FB30D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

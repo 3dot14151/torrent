@@ -19,8 +19,7 @@ Phasmophobia — это совместная онлайн-игра в жанре
 ```bash
 magnet:?xt=urn:btih:3CD6EDF06A56E11E3C3EE156D441D22A0655507D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Orbo's Odyssey (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E43689F76137817DCA4840557795D39FB1017E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Slap Fight (2023) [En] (5) License GOG
 ```bash
 magnet:?xt=urn:btih:E55AF25598D9CCEA75E3B414C7DBD4D836BC667F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hellfire (2023) [En] (5) License GOG
 ```bash
 magnet:?xt=urn:btih:E87D4459D708CC82FEF72DB21C4D82E415E9948B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

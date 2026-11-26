@@ -19,8 +19,7 @@ Baby Sleep Sound Machine 1.1.104 [Ru]
 ```bash
 magnet:?xt=urn:btih:7F2A0640CB75ACACF0D7BD4AB018D06E98D569B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Panels - sidebar (edge screen) 1.364 [Ru]
 ```bash
 magnet:?xt=urn:btih:4F5502BA4245DBFBD06C231719BB73B32898CC5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tools for Google Maps 5.30 [Ru]
 ```bash
 magnet:?xt=urn:btih:C9F834CF030C553D894F809575DC8980BD1A727C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:0F9EBA0DCA3B0867CBDC5D463741048D3D509F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 ```bash
 magnet:?xt=urn:btih:03BF956A0328C2217F00490383DB20072205E722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CFD8C79FDA4DEBDD7E48886F777F326716F1F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

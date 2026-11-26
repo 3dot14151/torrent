@@ -19,8 +19,7 @@ Ashen – экшен-РПГ с открытым миром, что расска�
 ```bash
 magnet:?xt=urn:btih:FB38E4258B2F0759F0B795F22269C59A3749DA7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

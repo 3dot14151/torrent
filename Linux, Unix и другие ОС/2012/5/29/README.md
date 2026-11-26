@@ -21,8 +21,7 @@ Fedora 17 [i386 + x86-64] (2xDVD + 2xCD)
 ```bash
 magnet:?xt=urn:btih:4BC62342BF46F45F0330911C7DFF54A592CF406D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

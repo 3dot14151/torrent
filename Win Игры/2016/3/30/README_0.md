@@ -19,8 +19,7 @@ Mystery Case Files 13: Ravenhearst Unlocked / За семью печатями 1
 ```bash
 magnet:?xt=urn:btih:A53837E000A47DBCAB592C8E98866CB19C78660C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Axiom Verge (2015) [Ru/Multi] (1.31) Repack ARMENIAC
 ```bash
 magnet:?xt=urn:btih:D71D6F4F32AAE4CA801A63F08100A1947407E352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NightCry (2016) [En/Jap] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:873AE6C02D8404A522B6C0D1464C0D59B3A2312D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Leap of Fate - это уникальная смесь изометрическо
 ```bash
 magnet:?xt=urn:btih:EA47C31F6462DF45171E7C73E339C316E9B92F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Soldiers Inc. / Конфликт (2013) [Ru] (561) License
 ```bash
 magnet:?xt=urn:btih:A63C9CB6107AAFB0089D47D87B2B456216F7848E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

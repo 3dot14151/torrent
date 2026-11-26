@@ -19,8 +19,7 @@ Flip PDF Professional - профессиональная версия нашей
 ```bash
 magnet:?xt=urn:btih:306B74AF0B596311967D8177AE5C92C876D87F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

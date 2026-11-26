@@ -19,8 +19,7 @@ Calc for Electronics v3.3.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:8E98456B47CEB906A1F62DD854FDCA2652FE3D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

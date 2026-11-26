@@ -20,8 +20,7 @@ Jitsi это проект (   Читать дальше...   )Язык инте
 ```bash
 magnet:?xt=urn:btih:302A9ED00DEBC230E86A0A6A8110BEDC4B61CCAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ BurnInTest Professional также может проводить тестиро�
 ```bash
 magnet:?xt=urn:btih:4B63F1E85B4E6E68F3B43D38E2D828704DBA6820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

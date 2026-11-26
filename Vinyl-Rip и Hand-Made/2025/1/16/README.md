@@ -21,8 +21,7 @@ Epysode - прогрессив-метал группа из Бельгии, ос
 ```bash
 magnet:?xt=urn:btih:32DD798D905B07A58154B82095B4DC73A4E8DC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

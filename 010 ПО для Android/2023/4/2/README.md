@@ -19,8 +19,7 @@ Enhance it v4.0.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F0F15D296227D2F323040F14520ACE2A971F0F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enhance it v4.1.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2E5A504DBEA8D7F08F083D74239D3F820C3D5CE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

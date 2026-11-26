@@ -19,8 +19,7 @@ New York Mysteries: Secrets of the Mafia / Нью-Йоркские тайны: �
 ```bash
 magnet:?xt=urn:btih:167DEFB1E1E06B1F65BDCD339DE7B040F6C17D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:1AF2548205DDBBB38BA31A86E2F893ADD3658540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Football Manager 2014 (2013) [Ru/Multi] (14.3.0.15373) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:95100E796FEA3885D323FB52273BA770C5E1F971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ The LEGO Movie Videogame (2014) [Ru/Multi] (1.0.0.56077/dlc) Repack R.G. Мех�
 ```bash
 magnet:?xt=urn:btih:F1024BF0FCBE61AD415207DAB861E379E053BC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

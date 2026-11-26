@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EABFDDBE58DC8E597B3278AAFF2F7E72EB02425A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Kami no Shizuku | Drops of God | Слёзы Бога [2026, TV, 1 из 12] HDTVR
 ```bash
 magnet:?xt=urn:btih:00660EF7C92D8E14FD057F8B1BA3F5B107A4BE91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62C3BA11917A4D6AC5E406DAD54FE8DFE474F839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Isekai Nonbiri Nouka 2 | Фермерская жизнь в ином мире [�
 ```bash
 magnet:?xt=urn:btih:2B3B7768D333B00A089EF6D4B8598BACEA453FAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Mamonogurai no Boukensha: Ore dake Mamono o Kuratte Tsuyoku Naru | Monster Eater
 ```bash
 magnet:?xt=urn:btih:7A268FFF5E104041A16FAB54CE808DA6879D62AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

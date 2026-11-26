@@ -22,8 +22,7 @@ The Agony Scene - The Darkest Red (2005) [FLAC|Lossless|tracks + .cue] <Hardcore
 ```bash
 magnet:?xt=urn:btih:13192AF99D6A373CB6C8E0308EAEF1951ADB48BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mirah - Understanding (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, In
 ```bash
 magnet:?xt=urn:btih:6DC3AFC3EAE81FA250AC869DF44F63918883659F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ AFI - All Hallow's E.P. (1999) EP [FLAC|Lossless|tracks + .cue] <Punk>
 ```bash
 magnet:?xt=urn:btih:C9EEC9F1371DA324CE4294563BC265F9899A4662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Augie March - Bootikins (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk R
 ```bash
 magnet:?xt=urn:btih:3DE783A480B85C8F9D415D0D9777E9D43A5CE58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Alter Bridge - Fortress (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock, 
 ```bash
 magnet:?xt=urn:btih:1E8836B7A30EB48AAA1A0F1ECD9EF76A65156D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Alice in Chains - Greatest Hits (2001) Compilation [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:77CAD03B001E28F53AF5452A4DD5AFCC3369BFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:37609E12F233AFD3F35B150D2D32A202F6265AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Allman Brothers Band - The Best Of The Allman Brothers Band (20th Century Ma
 ```bash
 magnet:?xt=urn:btih:A78591BC2C9D0BE3DB24285843868975B8BEC8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Cure - The Cure (2004) Special Edition [FLAC|Lossless|tracks + .cue] <Altern
 ```bash
 magnet:?xt=urn:btih:08937D4380C9DD79AC3AAC1B0AA5AD03200E825A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ All That Remains - The Fall of Ideals (2006) [FLAC|Lossless|tracks + .cue] <Meta
 ```bash
 magnet:?xt=urn:btih:7784DD3382B59276ADB991968655D5F404BA23F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A45B04359F0A80A5348DAE3707C57D08EF508C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Powerwolf - Metallum Nostrum (2019) [MP3|320 Kbps] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:AB99F3F33F5188073F95F993202C504FB2AA1489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Daughtry (Дотри) — рок-группа из Северной Кароли
 ```bash
 magnet:?xt=urn:btih:3EEF725117B4C9B0CFFAE24E46EA0254406388C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

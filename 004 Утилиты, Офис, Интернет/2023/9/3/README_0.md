@@ -19,8 +19,7 @@ SlimBrowser – браузер, построенный на базе Mozilla Fir
 ```bash
 magnet:?xt=urn:btih:4A31D187AC42490EDFAF9DDF6F7BA5CC76708DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OpenedFilesView отображает список всех открытых в �
 ```bash
 magnet:?xt=urn:btih:F99CB44B0BAC7F50C256BE7EC0A52813F75758E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stardock Groupy - программа для группировки нескол�
 ```bash
 magnet:?xt=urn:btih:7F91DC9B9184BB3E6F06C51CCABF7FE822D206CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tribler - своеобразный торрент-клиент, позволяю
 ```bash
 magnet:?xt=urn:btih:51B597139A22EB7E61BFE0580437C0AD2672E459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

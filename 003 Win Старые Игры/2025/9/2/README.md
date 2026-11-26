@@ -19,8 +19,7 @@ Emperor of the Fading Suns – это глобальная пошаговая с
 ```bash
 magnet:?xt=urn:btih:079C0852C84086A0D07969E7CEF2AA7767AD5B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Shelter Full of Cats приглашает геймеров в уютный м�
 ```bash
 magnet:?xt=urn:btih:A0EC8C85ECB84008CA8C9D9EADB7D41E09D70C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 ```bash
 magnet:?xt=urn:btih:BA49F64552FDB45635177499A90FEA6A331892E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

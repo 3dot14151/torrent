@@ -21,8 +21,7 @@ Ubuntu 20.04.2.0 Focal Fossa LTS [amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:702AA9A13A7CC93CD5A3DA550C0461EF54263E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

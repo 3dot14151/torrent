@@ -19,8 +19,7 @@ Lust from Beyond: Издание M - новая версия культовог�
 ```bash
 magnet:?xt=urn:btih:DE04B51E5AC16308ACF7DD2F9D62698B192935F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

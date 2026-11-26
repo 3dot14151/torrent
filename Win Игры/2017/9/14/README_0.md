@@ -19,8 +19,7 @@ The Search (2017) [Ru/Multi] (20170910) License PLAZA
 ```bash
 magnet:?xt=urn:btih:1CA6E0E25197F1992C70480D13C5039826078392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Still Life 2 (2009) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5F28FBE5BBE1D1476A74704021F01A17528EE3E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2.21069/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:5D3DDCC6B574884DE4AF1B789F25681ED82BC618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Bloody Zombies – это кооперативный экшен/файтинг, 
 ```bash
 magnet:?xt=urn:btih:D60C5FDA6ECED8E9C6164CF4F1949010A0D6E0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ProCapture - хорошая альтернатива встроенному пр
 ```bash
 magnet:?xt=urn:btih:A601C71F4DF39D63A0723ABBA3843F52F9A11FAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

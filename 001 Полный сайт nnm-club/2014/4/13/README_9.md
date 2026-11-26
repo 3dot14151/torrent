@@ -28,8 +28,7 @@ Alliance - Missing Piece (1999) [MP3|320 кб/с]<Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:0D7976B4150EDA17185327E8582A2A089B3B1A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DDC2ABD9E4EC9D0DBDF92BD332A9EDA37A802AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - Enhanced Music: March 2014 [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:91F68AAAACD3981EDD9C18FEA9CF37AFA83D0D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Kampfar - 5 альбомов (1998 - 2011) [FLAC & APE|Lossless]<Pagan Black Met
 ```bash
 magnet:?xt=urn:btih:C766F757D9B5795871F3D49315D1E8E0D158D2CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Incantation - Cacharpaya (1982) [MP3|320 кб/с]<Instrumental, Folk, Native ame
 ```bash
 magnet:?xt=urn:btih:BC1E2C91CDF3360F9861ACDA9CCA8D8388D5A932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Centvrion - Non Plus Ultra (2002) [APE|Lossless]<Heavy Metal / Power Metal / Thr
 ```bash
 magnet:?xt=urn:btih:00560702391607522FBA723525ABB8D22631BCD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Adam Eckersley Band - The First Album (2014) [MP3|320 кб/с]<Southern Rock>
 ```bash
 magnet:?xt=urn:btih:D71D3934944E6FC2EEC3861184B9510EDE1C0287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Zeugen Der Leere - Seelenwanderer (2014) [MP3|320 кб/с]<Atmospheric Black Met
 ```bash
 magnet:?xt=urn:btih:EA0ECF9A3A20AF006FF529D0F2F5F5487D7C2A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Downliners Sekt - Silent Ascent (2014) [FLAC|Lossless|WEB-DL]<Experimental, Beat
 ```bash
 magnet:?xt=urn:btih:8AEA5ABCAA8E2712C682B0C116604F62460D3B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ VA - Ambient Rush (2014) [MP3|320 кб/с]<Ambient, Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:1610CD0EEECFE6F5ACF8B6F463B7BBB9475BC360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ Imagika - My Bloodied Wings (2006) [FLAC|Lossless]<Thrash/Power Metal>
 ```bash
 magnet:?xt=urn:btih:2BC7833AF10DC22C2607480C15A49F4C17F0165B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +394,7 @@ Ronnie Milsap - Summer Number Seventeen (2014) [MP3|320 кб/с]<Pop, Country>
 ```bash
 magnet:?xt=urn:btih:BE9CE020D692A09976CD9DBF0C49326340FD94EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A3CBD4C04A2AF11F764D99692613DA93FC8BCB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36B9CDCAC0864D8E18E3E9168A45E980C077B0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +472,7 @@ VA - Lounge At The Seashore 9 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:A5C3B7908136F124F0B59DEA28650044CE3D8028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DED3EFF38B6F7BCA27ADD261FF1B6619A9639CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +539,7 @@ Written-By – Bell, B. Niforos(   Читать дальше...   )Жанр: Roc
 ```bash
 magnet:?xt=urn:btih:0E458B942090D660DDB6DC3AF38246E48BF66ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AA55B7403A780CEA4498821B8187D3024737B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6796B750901C32A4658F21A97AADCD60BA7E696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +625,7 @@ Jim Tomlinson - The Lyric (2005) [FLAC|Lossless]<Jazz, Sax>
 ```bash
 magnet:?xt=urn:btih:BA4246777CA25F31064E372056A3F06DF59CCFAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +659,7 @@ VA - House Music Pause Vol 12 (2014) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:3E709C809AC8535F28C93DEBA7CD03B1B0B9ADD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE8BEADEE548C76CCCA7DE3A77B99B666360EEC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C08760CD81E8CA2FEE3B2D7F006504654CBE4F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +741,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EBCF9AB14DE268EF46B4F2804515A5B0D530E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +766,7 @@ Light Image Resizer - многофункциональная программа 
 ```bash
 magnet:?xt=urn:btih:2821969E0420A34CB0205D44BDB7E133975FE576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -825,8 +800,7 @@ VA - Chillout Dreams (Sensual, Calm & Sensitive Music) (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:736277CE58E2598590341407BE20A57D5B355584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

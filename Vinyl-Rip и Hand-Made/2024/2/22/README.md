@@ -22,8 +22,7 @@ Cynic - Focus (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Thrash Metal, Progressive De
 ```bash
 magnet:?xt=urn:btih:D821868A0E39D6D9847307B1BB561FC1A30E2BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ F-19 Stealth Fighter (1988) [En] (435.04) License GOG
 ```bash
 magnet:?xt=urn:btih:6AC3DC61696EA34E45A03F4DD5A5ADF595A878B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NDIKA — игра от третьего лица с историей о стр�
 ```bash
 magnet:?xt=urn:btih:044E82A3CD459974A4CDA603418114E71F402639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ For The King II (2023) [Ru/Multi] (1.10.9/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:3EED5D6969A6BE58447489B0775ED4585075B171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.10) Repack Necros
 ```bash
 magnet:?xt=urn:btih:20C4953D9AA115342FFF146EE5C975E42634A83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Peglin (2024) [Ru/Multi] (1.1.23) Repack Necros
 ```bash
 magnet:?xt=urn:btih:E2FA08E6CA667A56FAED9F4428DE472A08D093BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Europa Universalis V (2025) [Ru/Multi] (1.0.6/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:AAE5BE21FD03D4F629AB91E5E0F21001805880BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Risk of Rain 2 - это кооперативный шутер от третье�
 ```bash
 magnet:?xt=urn:btih:0457EBEF2BD66488A3036B4D2D8B347C1DC03C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Diplomacy is Not an Option (2024) [Ru/Multi] (1.0.98) Repack Necros
 ```bash
 magnet:?xt=urn:btih:908DDEE3D86BC8CD3B8D565FB73C532A7367A39E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:4839525F710C6F373AF8560D1CB7FCFCDFE2E889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.4/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:C8CCE265F7F475CE391139E14CC6B7759DCC9AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

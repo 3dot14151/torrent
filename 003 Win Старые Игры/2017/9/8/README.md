@@ -19,8 +19,7 @@ Gangland (2004) [Ru/En] (1.4.0) License GOG
 ```bash
 magnet:?xt=urn:btih:993F4C9FACAC44FDCF297024009CE4DD84530B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

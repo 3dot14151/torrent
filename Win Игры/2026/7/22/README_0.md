@@ -19,8 +19,7 @@ Assassin’s Creed Shadows переносит игроков в феодальн
 ```bash
 magnet:?xt=urn:btih:42EFD55F5D66E0563A59F25FF2907FAA939BC0BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assassin’s Creed Shadows переносит игроков в феодальн
 ```bash
 magnet:?xt=urn:btih:500BC9887D009B3D8822995DC61E00252E834F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nophenia - это уникальный симулятор исследовани
 ```bash
 magnet:?xt=urn:btih:0605CCF7295E016BB93C220131AAA343E8F4321C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fading Echo - это ролевой экшен, действие которо�
 ```bash
 magnet:?xt=urn:btih:1918C0E62631F0823A8F1861683EB132CD66CD28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

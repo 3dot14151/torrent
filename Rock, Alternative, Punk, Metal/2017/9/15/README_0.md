@@ -22,8 +22,7 @@ Medicine Head - Dark Side Of The Moon (1972) Remastered, 2004, Dandelion Records
 ```bash
 magnet:?xt=urn:btih:4D3F5E92BEC009356EFCD374AAACEC68DCD7436F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Thousand Foot Krutch - Untraveled Roads (2017) Live [MP3|320 Kbps] <Alternative 
 ```bash
 magnet:?xt=urn:btih:E5AAEEE5D79684C27E003498D13250B248A6E5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Foo Fighters - Concrete And Gold (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 ```bash
 magnet:?xt=urn:btih:65121E984F19DDDFDAA791FCE909B1996179EBBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ The Doors - The Singles (2017) 2CD, Remastered [MP3|320 Kbps] <Classic Rock, Psy
 ```bash
 magnet:?xt=urn:btih:0FE244171ED0634C7225CB65221D3129933965C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

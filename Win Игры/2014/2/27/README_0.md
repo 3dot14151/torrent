@@ -19,8 +19,7 @@ Small Town Terrors 2: Pilgrim's Hook / Ужасы маленького горо�
 ```bash
 magnet:?xt=urn:btih:5CEA7A895E1702DF78A5B78574DF8EACBBA8F2BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The LEGO Movie Videogame (2014) [Ru/Multi] (1.0.0.56077 upd2/dlc) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:B0E05C8DA40202705DF3B49BF091B79D0C950CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

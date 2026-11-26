@@ -22,8 +22,7 @@ A4 Surrounded(   Читать дальше...   )Жанр: Progressive MetalПр
 ```bash
 magnet:?xt=urn:btih:C9F0899C816A414499DC90BEAE3635FFEA00D1B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hands Of Despair - метал-группа из Монреаля, Канада, 
 ```bash
 magnet:?xt=urn:btih:4A5A50748481766EED5783370B907270E8A39293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B2 - Aulnes Et PoussièresЖанр: Atmospheric Black MetalПродолжите�
 ```bash
 magnet:?xt=urn:btih:86056FEFF7E86C9A0DD6BE6FBE7DD76A62359596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ B1 Static Journey(   Читать дальше...   )Жанр: Black Metal, Elec
 ```bash
 magnet:?xt=urn:btih:7A14D243F236A840441C71C6F6D21038AA4B0E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Perseus: Titan Slayer - Free Trial - это возможность погруз�
 ```bash
 magnet:?xt=urn:btih:F4ADDA1D715FC744DA05EF9D393829019FCB6140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Power of Ten - экшен-рогалик в открытом космосе, в�
 ```bash
 magnet:?xt=urn:btih:9FC69D72CD73E7E472E2FAECBA8802C885107E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wanted: Dead смешивает механики слэшера и шутера,
 ```bash
 magnet:?xt=urn:btih:9D618726093ACD93458687C3EBE6364E4EA10531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

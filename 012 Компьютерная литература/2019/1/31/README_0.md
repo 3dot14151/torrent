@@ -20,8 +20,7 @@ Dassault Systemes | Новые возможности SolidWorks 2019 (2019) [PD
 ```bash
 magnet:?xt=urn:btih:A3F532448F2AFA09A9EFB3288F3ED8AC79CB72B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Python - невероятный язык, популярный во многих
 ```bash
 magnet:?xt=urn:btih:E4C03EF31FACED147AFF8DD8C6A69F49BB52F2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Galactic Civilizations III – самая глобальная игра-песо
 ```bash
 magnet:?xt=urn:btih:87B513A2517B01F69F84359446373E97480FF748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mask of the Rose - это увлекательная визуальная нов
 ```bash
 magnet:?xt=urn:btih:59200F4FE0C287E614CC4CA7C56EB61F45D7B4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ System of Souls (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9CDB317A910781437A20B761AAD00DC1C384DFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Alan Parsons Project - The Best Of The Parsons Project (1983) [FLAC 2.0|192/
 ```bash
 magnet:?xt=urn:btih:4DA31FBBE59C2E269055BEB99D758534D438B3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

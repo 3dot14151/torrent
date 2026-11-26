@@ -19,8 +19,7 @@ Card Shark - приключенческая игра об уловках, инт
 ```bash
 magnet:?xt=urn:btih:DCF1140D5316F596D57F94C797F0BFE83CE9329B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeons of Edera - ролевое приключение с упором в к�
 ```bash
 magnet:?xt=urn:btih:804459E10F94DE2412FB9622FE08C2D7F6D51EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fantasy Mosaics 53: Mysterious Cosmos (2022) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:D72E42AA5F9B64D4C4CB96D595FF0D3CF954F01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

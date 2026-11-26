@@ -19,8 +19,7 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 ```bash
 magnet:?xt=urn:btih:B9786C0B63BA1A5C4BA49C55A539AB01ABAC736A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

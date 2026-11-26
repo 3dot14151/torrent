@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:348E0649E7AD1689907C815E75B331D5FF881676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Для вас, женщины! Деловая женщина (1988) [FLAC 2
 ```bash
 magnet:?xt=urn:btih:5A51DA18CE547C93F9EB9C7F779BB758908DAC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Для вас, женщины. Принцесса (1989) [FLAC 24/192|Lossl
 ```bash
 magnet:?xt=urn:btih:84EEA9E903E5694F6E032CA5D6301619560864CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Shylmagoghnar - Progressive/Atmospheric Black Metal from the Netherlands.2014 - 
 ```bash
 magnet:?xt=urn:btih:A1E96C01BB7C71323E289BDAA377CF865809618A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Marisol - Поёт Марисоль (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:818913F9BEF39B25346C102BA73D3B6ECA1BE660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Side One.
 ```bash
 magnet:?xt=urn:btih:037CD06CAB8D2E91C1D4FFEA0FBEC4F3F79CDFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Paul Winter (Пол Уинтер) - Concert For The Earth (Концерт Зем
 ```bash
 magnet:?xt=urn:btih:1724DCF1C790729F91E7114C0A378FA8EF263D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ AC/DC - Who Made Who (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6A43B5A18B2B72D0E640E1718A2FF66D3C1407EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ AC/DC - Blow Up Your Video (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:075C705BCA2F3F6C13764D529768BD184C40549E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

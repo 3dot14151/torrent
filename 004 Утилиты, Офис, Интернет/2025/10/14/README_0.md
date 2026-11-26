@@ -19,8 +19,7 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:C059DD3D7B0D7ACEFC13474E7CCAB6C9E6D16904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 ```bash
 magnet:?xt=urn:btih:AF6D064D8A9A4C836B4BA02F3D3DDF814BE4316E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ O&O Defrag – инструмент дефрагментации дисков, �
 ```bash
 magnet:?xt=urn:btih:05AFEFEB0CECA4253027DBA041C3A820D6CC39E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ DU Meter - программа для подсчета реального вхо�
 ```bash
 magnet:?xt=urn:btih:4ADFF0F06E954106B39987489E4FA6537102A8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 magnet:?xt=urn:btih:8BB959E7A659CC0BD9298C477F6D1EAFCCE76551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:1C160CB45A6BF4538587B1BBBEA62A3E41833038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Camtasia Studio - мультимедийная программа для зап�
 ```bash
 magnet:?xt=urn:btih:D38E3AC46CC23865CACD4130DF966BF653D7C267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 ```bash
 magnet:?xt=urn:btih:67232C11024BF5A5709D5BEAF96F5047B0515570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7809B7FF7CFB352F7318BF8DD04B2F251DBF6BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:C8C6F9C76FE96D96D62A41E867C71F3EA512602D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Revo Uninstaller Pro 5.4.3 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9A6A9A418C837E3B06BBCCABB5B82A12083654F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

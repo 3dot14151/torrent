@@ -28,8 +28,7 @@ Kissin’ Dynamite - Money, Sex & Power (2012) [FLAC|Lossless]<Traditional Heavy
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Pelican - Ataraxia/Taraxis (2012) [MP3|320 кб/с]<Instrumental Sludge / Post-M
 ```bash
 magnet:?xt=urn:btih:9564230BC0E89FA2BFFFBA280E285FC929D3E65D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

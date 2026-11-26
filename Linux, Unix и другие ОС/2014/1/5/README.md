@@ -21,8 +21,7 @@ Razor-qt легковесное десктоп-окружение, постро�
 ```bash
 magnet:?xt=urn:btih:705FD2A20CA0E9C51248DD5C34188BE48DC3E80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

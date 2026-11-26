@@ -20,8 +20,7 @@ Gnoia - 2 альбома (2013-2014) [MP3|320 кб/с]<Hardcore Punk, Neocrust>
 ```bash
 magnet:?xt=urn:btih:A4BE95446F2A2DE17474634135848B8F6F427AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Less Than Jake - See The Light (2013) [MP3|320 кб/с]<Ska, Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:8D6CB1C39EF7394703F49959B7CA2916372B5C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Everyday - Equality (2013) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:028391EA99D4B152C44132AAAC0AE5F765311644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C832414DAA673FAB9C63CA648A3BF51357ACD98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ VA - Miami Chillout (2014) [MP3|320 кб/с]<Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:FBB2F5EBAA6A486B48E6CC050D31CB96B8FCA3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Damien Nash - Straight Up Lovin' (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:30A38ADB15F0D565D3CDE4BA987E20553D7387E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ The Fabulous Lounge Quartet - Bacharach Cafe (2014) [MP3|320 кб/с]<Lounge, Ea
 ```bash
 magnet:?xt=urn:btih:25CF04111587F987E27AC4FDD7C166D78F35DF91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ Ground Control - Dragged (2010) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:9DB7E0A317884D0E15A2C1229F81C77637F5DEB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Blue Sense - State Of Mind (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:76D5FA315209CC34936155ABEF040385D9D5587C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ VA - MayDay Trance 2014 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:BF6E4571F388E4796CDE47B6E6F6B025B457443C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BA2403992108BDDECF904CF437606DF05BB5C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ VA - Sexy House (2014) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:C6414D6489E65E0F608FB838CB541A9889497FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +405,7 @@ Seun Kuti  & Egypt 80 - Glastonbury 2014 (2014) HDTVRip [H.264]
 ```bash
 magnet:?xt=urn:btih:F21FA8C40A78D569174DFFC942122CCD0AA87AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +464,7 @@ Empty Yard Experiment (EYE) - Kallisti (2014) [MP3|320 кб/с]<Post-Metal, Prog
 ```bash
 magnet:?xt=urn:btih:4A01DDE77411CA91EB4882FA304837E10749B655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +523,7 @@ Mark "Muleman" Massey - One Step Ahead Of The Blues (2014) [MP3|320 кб/с]<Blu
 ```bash
 magnet:?xt=urn:btih:BDB5A39B8D092282F90482F783538B90C61D1F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B0CC5DE1C92B7ACE9C52EF7AA1790CDB2C3B9BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:851C23713C99EEAE3E6597A8D0569F4F950BF3E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ VA - Best Chillout & Lounge (2014) [MP3|320 кб/с]<Chillout, Lounge, Downtempo
 ```bash
 magnet:?xt=urn:btih:02BE1B46F48766229189757375DE39AF202B02C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +634,7 @@ TextExpander – боец невидимого фронта …. Функция 
 ```bash
 magnet:?xt=urn:btih:2A68A2575DA247CA86B9E96DD6A84D7F72262ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ OmniOutliner Pro, равно как и другие Omni-приложения, �
 ```bash
 magnet:?xt=urn:btih:99ED887BE02C0E08FA96C0F1B1B3E39A5B9982C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E685B14DABF4DF6F8F27D6A37A105A679D8E3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +740,7 @@ ExpanDrive 4.1.2 [En]
 ```bash
 magnet:?xt=urn:btih:8BD7EBDB34574264EAB5A1C92B1384444DAA5504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +771,7 @@ VA - Cocktail Summer Party (2014) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:D34526C215560B808DA3D82499FC6F1DDA22D1DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

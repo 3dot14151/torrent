@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:3986DCC89C4F15099FB728F3656DB192FE56EF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nautilus Pompilius (Наутилус Помпилиус) - Архив. Цифр�
 ```bash
 magnet:?xt=urn:btih:DF75C7BB770F5D4F7DFC8CF44FEA363A7D43B20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

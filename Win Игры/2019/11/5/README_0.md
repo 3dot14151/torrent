@@ -19,8 +19,7 @@ Imbroglio - это игра в жанре логическая и приключ
 ```bash
 magnet:?xt=urn:btih:0BA405A4FFEA653F45E45DE8D30C710211BBBECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Outer Worlds — новая однопользовательская нау�
 ```bash
 magnet:?xt=urn:btih:529A3352ACA042B2F50C46F2040BA31339C81109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

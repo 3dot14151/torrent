@@ -20,8 +20,7 @@ Empire: Total War - Gold Edition - 1.5.0 [Multi + Ru] [Native]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Fallout: New Vegas Ultimate Edition [Ru/En] (RePack/1.4.0.525) 2012 | R.G. Shift
 ```bash
 magnet:?xt=urn:btih:19373DAAE20581FC9DE1980B39326FF093BD80A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Red Giant Knoll Light Factory 3.2.1 for Photoshop CS6 (х32х64)  [Eng]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ VA - A Year In The Life Of Heavenly Bodies 2014 Part 1 (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:98BC8031255CCEDE7151D1AB2AD5C721986AE79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Elika Mahony - Infinite Bounty (2014) [MP3|320 кб/с]<New Age, Vocal>
 ```bash
 magnet:?xt=urn:btih:9ABBA21FED7BAB5F93465A88DD23478DB707D635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81CE8AE9AB88C386545C263AA45FF508AC349D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ Pellek - Cloud Dancers (2014) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:F2F412F3A4D539B81FCF5299CE08D48C0DCA581E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Ascent - Nature Creations (2014) [MP3|~245 кб/с (V0)]<Psychedelic>
 ```bash
 magnet:?xt=urn:btih:E90232BCE58FE7B11FEF572C52AFA29BA7DD532E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ California Sunshine - Let There Be Light (2014) [MP3|~245 кб/с (V0)]<Psychede
 ```bash
 magnet:?xt=urn:btih:F2A732DCAC4F78EEB3FA28FFC9164BA079CD8569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12F9BB5D960FA1D48AD648C1D90093D864E94627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ VA - Clubbing Christmas 2015 (2014) [MP3|320 кб/с]<Dance, Club, House, Electr
 ```bash
 magnet:?xt=urn:btih:A31CD5EC2423F3DFBBEF3C2D4E4F1A661B4BEF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ Vertical Mode - V2 (Promo) (2014) [MP3|~245 кб/с (V0)]<Psychedelic>
 ```bash
 magnet:?xt=urn:btih:A3AF1B492BECD771966C283822A88E2C02A57C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ VA - Chill Out Hits 2015 Vol 1 Wonderful Relaxing & Lay Back Tunes (2014) [MP3|3
 ```bash
 magnet:?xt=urn:btih:FC86A0A69AE7F04F3B56387C3E524DDB145DA9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ Omsphere - Kag Baktun (2014) [MP3|~245 кб/с (V0)]<Psychedelic>
 ```bash
 magnet:?xt=urn:btih:D2B476181E27C17B4ABB0846C4967AB8DAD98FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE849E3D7660747CD17B39F7B77CA153CBA8A9F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ Kenny Drew Trio - with Paul Chambers, Philly Joe Jones (2003) [FLAC|Lossless]<Ja
 ```bash
 magnet:?xt=urn:btih:7457969AA88E175E0FFAB2ADCD2DA08EE4A2154A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC16D78CFA603123C68501DBE43236D339E29DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D86D03D0F8085945E7020C24A5F0BDACD320087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9CB34F5FBAE7F8791E89DEEF43B99007D7E7A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1971C60FCC0390AD852D1DBF546774B4B578D8F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ VA - Sexy Trance #73 (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:340C8572FA57B65195FF74EDF1BB29C334151EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ P.S. Лет десять назад можно было сказать, что �
 ```bash
 magnet:?xt=urn:btih:D920D83D551D9CF57D6314D35063AFBF6A8F4FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ Discovery: Короли столярного дела / Redwood KINGS (2013) HDT
 ```bash
 magnet:?xt=urn:btih:4D134A64243BE26D5CA7EF45A9E70C76C764C368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C27B2F08A24AF0B52E38AF794600482B010BF026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ Sepultura & Les Tambours Du Bronx - Metal Veins: Alive At Rock In Rio (2014) Liv
 ```bash
 magnet:?xt=urn:btih:97ACFDF2F9B4B97047D1272E00FC8307D2AD0768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ Leighton Meester - Heartstrings (2014) [FLAC|Lossless]<Pop, Pop-Folk, Adult Alte
 ```bash
 magnet:?xt=urn:btih:5D442A8D466E51A562515E46C497A163B55D4D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B258A813A92919135AA7F3677462694A35D6986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

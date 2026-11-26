@@ -19,8 +19,7 @@ Pentiment выделяется своей двухмерной рисованн�
 ```bash
 magnet:?xt=urn:btih:3F844D5682E1EE10A83E5639155F387B152455DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

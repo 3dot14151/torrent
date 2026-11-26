@@ -22,8 +22,7 @@ Live In Essen 2013 концерт группы ДДТ исполненный 11 
 ```bash
 magnet:?xt=urn:btih:7B3E06AD2EC4BDA3C47BBE6BD7AA29D446D32483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

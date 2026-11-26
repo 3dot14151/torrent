@@ -19,8 +19,7 @@ Paragon Hard Disk Manager - многофункциональное и удобн
 ```bash
 magnet:?xt=urn:btih:5929001904A02D1F4D92677422F78F5FCFE838A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paragon HFS+ for Windows 10.5 [En]
 ```bash
 magnet:?xt=urn:btih:BA9C44F60282E0BF33956FF891AE46C60C2013E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Paragon Migrate OS to SSD поможет Вам быстро и безопасн
 ```bash
 magnet:?xt=urn:btih:A382FEBA00A8A0B2996F456BD76D022FBC0B80AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

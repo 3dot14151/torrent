@@ -18,8 +18,7 @@ Battlestations Дилогия [Ru/En] (RePack) 2007-2009 | R.G. R3PacK
 ```bash
 magnet:?xt=urn:btih:6E86069130520B1C55AA49AE96F0F899AAD7AFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Medal of Honor Коллекция [Ru/En] (RePack) 2002-2010 | Druid
 ```bash
 magnet:?xt=urn:btih:658A214B7AA96E20DACEEE2D7CA75CB2D1EFD738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Call of Duty Коллекция [En/Ru] (P) 2003-2009
 ```bash
 magnet:?xt=urn:btih:682CD117D73AAF6E9299871862E413BC4F728223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44C6D5A8B6C89243F604B837E10D195F69EA3023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Lord of the Rings Антология [Ru/En] (RePack) 2003-2009 | Druid
 ```bash
 magnet:?xt=urn:btih:859F3D6905D668B76B6553D3C2261F60370F5491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ KMPlayer - это универсальный проигрыватель, кот�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Artisteer - первый и единственный продукт автома
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

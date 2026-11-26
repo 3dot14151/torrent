@@ -28,8 +28,7 @@ Serpens - Serpens (2013) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:5A9159434BFDA8DDF61B200FE9883C2DC299B60A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Prayers Of Sanity - Religion Blindness (2009) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F997DCC83A57F3739B585F5390271F7FA49CD2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ My Widow - Пустые Коридоры Клиники (2013) EP [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:B783E2B83DB3DCA338B736CB3942655CCD85FBA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DA2DB82D0CBC58DE368531DEECFA8D68028ECEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Bullet - Full Pull (2012) AC/DC style [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:3ABB11684F0A294C6F1060EDABBAD42A00335AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Boston - Life, Love And Hope (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7E187125B6065D95F960738A8683ABF95F54E14A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ VA - 100 Hits - Hard Rock (2003) [MP3|192 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5A0AD20A5EADB054F4A828B96B6AFB9277A1C417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

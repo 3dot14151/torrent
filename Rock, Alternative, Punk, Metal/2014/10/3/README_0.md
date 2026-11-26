@@ -28,8 +28,7 @@ Lorenzo Partida - Sueno Inmemorial (2012) [FLAC|Lossless]<Atmospheric Doom Metal
 ```bash
 magnet:?xt=urn:btih:4F29155BA51D52DA975FF29759CDC6C01CFDADCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Machines Of Grace - Machines Of Grace (2009) [WavPack|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:68C07FD9124BF048FB5F672FBAA8E4AB2ECD2631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Soilwork - Beyond The Infinite (2014) EP [MP3|320 кб/с]<Modern Melodic Death 
 ```bash
 magnet:?xt=urn:btih:45BFA7DA4C9F899E3F2B9FBD76C2151D15B51E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Stratospheerius - The Next World... (2012) [FLAC|Lossless]<Progressive Rock, Fus
 ```bash
 magnet:?xt=urn:btih:11884BA967F8A639DEB28D8FC3FD5294E9783C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Nightbringer - Ego Dominus Tuus (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:F7A72A5E2D799F40061F2C9C7D631A6FB0C14325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Temple Of Void - Of Terror And The Supernatural (2014) [MP3|320 кб/с]<Doom/De
 ```bash
 magnet:?xt=urn:btih:59CB1F91482FCF7DFEFFC9CA8327BAA189BB82C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ VA - The Moon Revisited (Pink Floyd Tribute) (1995) [MP3|320 кб/с]<Progressiv
 ```bash
 magnet:?xt=urn:btih:5C61D9906CDFA7337414EF44F721ECB908F70E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Sound And Fury - Wake The Dead (2014) [MP3|320 кб/с]<Hard Rock, AC/DC style>
 ```bash
 magnet:?xt=urn:btih:EEACBEB45832E83E49C428E766EAAB8F4EA04F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ Scar Symmetry - The Singularity (Phase I – Neohumanity) (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:43AB4C9C8C74ED76A3A2CBAD2C38385324A75B99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:038BC9DFAB8BEAED9B8A01D8FE60C6D5EA3BD51D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

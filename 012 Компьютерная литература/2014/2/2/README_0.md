@@ -21,8 +21,7 @@ The Official Ubuntu Book , 7 издание, позволит вам быстр�
 ```bash
 magnet:?xt=urn:btih:36BBA7419B0ABBC7F41B01995AAC4D4399A61E28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Kroah-Hartman Greg/Кроа-Хартмен Грег | Linux Kernel in a Nutshell
 ```bash
 magnet:?xt=urn:btih:9BA18A03FAC8949EC7EC800354634FBB5DE513EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ The Linux Command Line поможет преодолеть шок от перв�
 ```bash
 magnet:?xt=urn:btih:12994C4598D85ACC4CB14FDD96F0420DBB24F537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

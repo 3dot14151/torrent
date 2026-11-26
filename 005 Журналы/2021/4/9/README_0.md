@@ -19,8 +19,7 @@ Scroll Saw Woodworking & Crafts — журнал для истинных мас�
 ```bash
 magnet:?xt=urn:btih:3497C76C27638872B6B6C6FAA575AA976561B489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

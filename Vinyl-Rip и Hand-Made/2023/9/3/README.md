@@ -22,8 +22,7 @@ A4 Anniversary Song(   Читать дальше...   )Жанр: Pop, Easy Liste
 ```bash
 magnet:?xt=urn:btih:DF4D3D6A5EB5844DEC31847A3D5027AB20CE10B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 ```bash
 magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Hellyeah — американская грув-метал-группа из Да
 ```bash
 magnet:?xt=urn:btih:9D56803B2EA75FD2EB4705BE79094586D72417EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Salammbo / Саламмбо [Ru] (L) 2003
 ```bash
 magnet:?xt=urn:btih:BA03A00AD5D309881DF1465670F3086D56EED795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alpha Black Zero: Intrepid Protocol / Группа «Альфа-Ноль» [Ru] 
 ```bash
 magnet:?xt=urn:btih:8777FB8F78FA61F07B2383B5A5C8502396D34CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

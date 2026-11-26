@@ -22,8 +22,7 @@ Queen - The Game (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:917FEFB453720A6BF0F4E87012394F4F45DA796B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lindsey Stirling - Brave Enough (2016) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Mo
 ```bash
 magnet:?xt=urn:btih:BB9E73B1F759B061B09727E85848AA367F1C36DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

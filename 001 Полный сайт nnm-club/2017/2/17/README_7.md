@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:37217A888B5F1E3D74D93D4B962B328973DCCD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ubuntu 16.04.2 LTS Xenial Xerus [i386, amd64] 2xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:DD0A3386C0769A7CB233A13E8051BEF172A226C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:EA3AD70B4C1254350733406D46D5A8B36479159F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.02.16 [Ru]
 ```bash
 magnet:?xt=urn:btih:FC811091B4333E589F0D1D65340942096177BFAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:246C6A7ECBBAB8C198FD6A1BE2B72C07CB97CAA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0287A17B611572D0C4004C79EF7A903C83000D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Hitman Pro обнаруживает, идентифицирует и удаля�
 ```bash
 magnet:?xt=urn:btih:DA3BAADBDCD196BB1F7B4233FD925721AA34F593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ DLL-files Fixer - программа для чистки и оптимизаци
 ```bash
 magnet:?xt=urn:btih:27140A746D4D44CA2F7E25EBFA3BA5EC1113C766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:986094BD95BE63E77BF9D387396922392F78A52B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C423EA88A237DA121B3EF47CEF3A8EAB6C9F26F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:5CFD96453339209681493597BDD69710EB2E55C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Youtube AdAway 3.5.0 [Ru] - Блокировка рекламы с YouTube
 ```bash
 magnet:?xt=urn:btih:3BAD9A1319D30426D013D0B976816AF2E41B42E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A8F59189C08042B7937CF2D540272FACE8FBF31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:255854A4712F562F23B5102BE7C7C60009DD6C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Fallout 2 - культовая ролевая игра, справедливо �
 ```bash
 magnet:?xt=urn:btih:657E2113B93A5F5BC3248B06D74ED5C132761468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Tales of Berseria (2017) [Ru/Multi] (1.48.00/dlc) License CPY
 ```bash
 magnet:?xt=urn:btih:86E4D03F95E28FD969C5D183FE034599CE978C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B641E62AEB6F98A96BC7CA3B8F5447C2DE45226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ Panzar – бесплатная клиентская онлайн-игра в ф
 ```bash
 magnet:?xt=urn:btih:8DB72071C57A50EAD49A61414735DBF556CFE8AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ iGO Primo NextGen 9.18.27.687519 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DF9EEFCBC55B409CC471D88608DE7172651F4E20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

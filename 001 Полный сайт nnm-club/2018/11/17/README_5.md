@@ -22,8 +22,7 @@ Gene Ammons - Up Tight! (1961) 1994, Prestige [APE|Lossless|image + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:2B106D90351AD5AD65703598F2EB2D298E7E071F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81D01F4EF3B0B09FE614A4662378138BA2A1BDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ralph Sharon Trio - The Magic Of George Gershwin (2000) Avid Records [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:4F4DFB4DE21D28ADE49B3B55B9201F57522268CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Casiopea - Platinum (1987) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fu
 ```bash
 magnet:?xt=urn:btih:06C3263A85CC737C4A6FB3069D247875F89CDABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ WonderPen - простой в использовании текстовый ре
 ```bash
 magnet:?xt=urn:btih:CFC19A15A719B7D302FAC8968BA013F166896FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AD63617ABB0C1D654E536C5840B8C64874A500A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Casiopea - Euphony (1988) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fus
 ```bash
 magnet:?xt=urn:btih:89C496F8A213CAA2F531E120F8196FE0CE79BCE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 ```bash
 magnet:?xt=urn:btih:08DBC7A8358B58366141E2CE9580AF6FA8AADBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09EC8C101BF89D63D27B68BC53B5AB18D6A43B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Bernie Paul - Lucky (1987) LP [MP3|320 Kbps] <Electronic, Pop>
 ```bash
 magnet:?xt=urn:btih:ADA2F3397760A5C127B6D96AFE17D049F007AF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E56E8E16FBE68983155290988B626F21F7AC8590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ VA - Club Royale: Vocal House (2018) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:E75CAFAE077CAEBC19D3E6A498AF04B0C9B34A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Stoneface & Terminal - Altered Floors (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:A961471146B6EB580C794C895B5AB04BD3EE5195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ VA - Sarah Lynn - Clear As The Sky: The Best Of (Extended Mixes) (2018) [MP3|320
 ```bash
 magnet:?xt=urn:btih:34DFF3B7E691354F31B76F4637AD82B389A40847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Jennifer - Walking In Space (1977) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Dis
 ```bash
 magnet:?xt=urn:btih:458388CD7D657CE6F3D4DEE295CAC14ED075A6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ VA - Cafe Del Mar - Ibiza - Volumen Dos (1995) [FLAC|Lossless|tracks + .cue] <Do
 ```bash
 magnet:?xt=urn:btih:2A1D05FE7DED89EC60599666F1522BB2D197E54E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ VA - German Top 100 Single Charts 16.11.2018 (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:E8B268257FCFF44D5B948208B63BBEF2F9A94C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ Detonics - Raise Your Bet (2018) [MP3|320 Kbps] <West Coast Blues, Swing>
 ```bash
 magnet:?xt=urn:btih:00C97F9E24BA0F4F2A36AF6FD03959E9DAD9B33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ VA - The Official UK Top 40 Singles Chart 16.11.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:AA5E86D9D494D73928CB8425EED5919B6DB219BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ Folder Designer это простой способ, чтобы настроит�
 ```bash
 magnet:?xt=urn:btih:294521236AECFC0A7A9C63D5AA1ACA415BDAAB62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ France Joli - France Joli (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:CA780474F76AAC88760A9EDC1E800049FE22AF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ Giorgia - Pop Heart (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C448BA5A16A67C8613D65DED20B7E776BB2EE355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ Sirenia - Arcane Astral Aeons (2018) Limited Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:F3B42EF03055B8896D9A9CAF7736FB9F9E15C6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32BB8CA99999C91900CCAD904EC60C3D0AE7DDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CEBB2D224D7853DBE8DC5954CAB276008FA474B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ Rompasso - Angetenar (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, De
 ```bash
 magnet:?xt=urn:btih:9F61934C2203D3E59E9F07825EAA81CA142FE6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

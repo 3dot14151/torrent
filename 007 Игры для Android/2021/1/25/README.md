@@ -19,8 +19,7 @@ Constellation Eleven – выбирайте персонажа и отправл
 ```bash
 magnet:?xt=urn:btih:D4720E686608B7BF9E3795C98CA8F6DC69577FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Drive Ahead! – экстремальные гонки, основанные н�
 ```bash
 magnet:?xt=urn:btih:D9011BE2D89C2CAD90F416217E5BB7A4376A5298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hill Climb Racing 2 - студия разработчик Fingersoft за вре
 ```bash
 magnet:?xt=urn:btih:FCC671415544E33852ED2024B7B8146D4DB720D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

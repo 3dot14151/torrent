@@ -19,8 +19,7 @@ OK K.O.! Let's Play Heroes (2017) [Ru/Multi] (1.0.0.157) License CODEX
 ```bash
 magnet:?xt=urn:btih:5EFA7F3F21F5BAAE337FC18F311BA043224A0C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pilot Brothers: Trilogy / Братья Пилоты: Трилогия (1997-2004
 ```bash
 magnet:?xt=urn:btih:6C0555D7947365022781289493C608658D0010BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vesta (2018) [En/Es] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:33D6B9529793B45329B58AAD574C88FC7F3FF2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

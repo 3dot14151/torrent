@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8E32DD8A1B5D30105C2974034DC081C3A09296EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Dead Rising 3 - игра с открытым миром в жанре Survival h
 ```bash
 magnet:?xt=urn:btih:0C346C907207C19ED24547D94F09881721A07C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3FFA49B45D502B12D38DFB348AD20D1E7426AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

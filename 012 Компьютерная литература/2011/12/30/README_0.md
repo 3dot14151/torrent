@@ -22,8 +22,7 @@ Adobe Premiere Elements 10 Classroom in a Book самый полный и под
 ```bash
 magnet:?xt=urn:btih:5FDA1205363E72A89629AEC609774BE72F6BA838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Nevertales 8: The Abomination (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:BCDF2CF7A5EE7718053B7E83C4E5B6E9C10C4584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

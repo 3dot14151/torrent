@@ -22,8 +22,7 @@ Ancient Prophecy - Testimony (2019) [MP3|320 Kbps] <Metal>
 ```bash
 magnet:?xt=urn:btih:CBB71EF13E979FE6015322CABCB700996B8CC526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Die Klute - Planet Fear (2019) [MP3|320 Kbps] <Industrial, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:E60FD9BAC19F2C2756889931171F991264DC4574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Metal Allegiance - Metal Allegiance (2015) Limited Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:8292E43C51D8D4CFF43019A31E18500E789A7557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Clouds - Doliu (2014) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral Do
 ```bash
 magnet:?xt=urn:btih:0D611FA5C34FA7297EF2E7770FB6B987155AB092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Clouds - Departe (2016) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral 
 ```bash
 magnet:?xt=urn:btih:40B8B01953F79733C54605A20E962E8BC4157906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ H.E.A.T - Greatest H.E.A.Ts (2018) Compilation, 2CD, Japanese Edition [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:5542126596389E5454E2A923E640B96A4E5DC1B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Middle Of The Road - The Collection (1996) Unofficial Release [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:3BE4A74FE2CBB4384AD38E3D3738363EC202BB30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ White Lies - Five (2019) [MP3|320 Kbps] <Indie,  Post-Punk>
 ```bash
 magnet:?xt=urn:btih:9A947E2BC6B6E632F3BFF218A4343DE6047AAEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Metal Allegiance - Volume II: Power Drunk Majesty (2018) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:644105EDBA4F54F9D37DA1757A78D733F5AC39E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Razzmattazz - Hallelujah (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A448DB6E7329F89D6C12F78D8AB505373568D94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ CD04 - Riffs, Jams & Demos (Previously Unreleased except where noted)Жанр: H
 ```bash
 magnet:?xt=urn:btih:E8117AE015373B380A543644C48CCD4367CC208B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

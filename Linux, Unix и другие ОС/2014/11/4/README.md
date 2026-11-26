@@ -21,8 +21,7 @@ openSUSE 13.2 Live (Gnome, KDE) [i686, x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:F54BF226A8132066F6F04D40475A75A92F25FCE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

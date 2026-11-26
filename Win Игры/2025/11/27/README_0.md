@@ -19,8 +19,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.4.50233) License GOG
 ```bash
 magnet:?xt=urn:btih:60D58C8029B2F2A8BA755062C89321C12EA6D62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Day of the Shell – это динамичная тактическая игра
 ```bash
 magnet:?xt=urn:btih:17FAC25091A4673BDA280AE3110A4970F12F0ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bittersweet Birthday - это приключенческий боевик, со�
 ```bash
 magnet:?xt=urn:btih:E77C0E0AE7F4581EE6FF6A6E2933F9C60F7FCD2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18208471) Repack Other
 ```bash
 magnet:?xt=urn:btih:6C3A129A555ECC6C2BCCE1EAEADCACDF4036E144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Mortal Kombat XL – файтинг нового поколения и след�
 ```bash
 magnet:?xt=urn:btih:D4F5815641A611C0610FE48FE808BAF21DB036E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Cold Fear (2005) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:26EE94B5B96DFAF065F9275F24B72CA436E13322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Sons of Valhalla сочетает сражения с боковой прокр�
 ```bash
 magnet:?xt=urn:btih:6B125F7DB206BD93A0D42DF31B375EF421AD4852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Laundering Simulator! Управляйте собственной прачечн
 ```bash
 magnet:?xt=urn:btih:714D90F4A80CF5B23FFCCF7D0C6F725334250943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ I Am Alive предлагает игроку роль одинокого выж�
 ```bash
 magnet:?xt=urn:btih:1192FBEC5086527A45DF20B2AC3D0A06752B9974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ ILLWILL - это яркий олдскульный шутер от первог�
 ```bash
 magnet:?xt=urn:btih:6BED7D5D4E64DF167837C51C205E79E5477D5914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ GIGASWORD (2025) [Ru/Multi] (1.0.0) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:9B5459D25D84DFDC604C500A9A87ACAFDB3FACE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (1.0.6e-fix/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5DD3105BB9DAC578B31B6C1CF6F9EC49ACEE7DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ The Legacy - это кооперативное выживание в жанре 
 ```bash
 magnet:?xt=urn:btih:5EEEAC85E53963557F3B036703A861F3591D1CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Star Wars: Squadrons (2020) [Ru/Multi] (1.0.10.39591) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:531E42196AF282036B867C6D8156231A6DD79EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Monster Hunter Stories 2 Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Let'
 ```bash
 magnet:?xt=urn:btih:2036F075D54930137A43D195FF04CCD0E7E4B75E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ Hades (2020) [Ru/Multi] (1.38290) Repack Necros
 ```bash
 magnet:?xt=urn:btih:10E93E6DA60510EFED5A1AD5C720F87CC636BF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Granny Remake — захватывающий хоррор, где ваша це�
 ```bash
 magnet:?xt=urn:btih:B541CA66423EE78684EFD251A239481D2C1E5F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ A.I.L.A — хоррор от первого лица в сеттинге нед
 ```bash
 magnet:?xt=urn:btih:E9D8170F5C5040039681E66EE49DBD248C10AABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +470,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (19835777) Repack Necros [Early Acce
 ```bash
 magnet:?xt=urn:btih:AB9FAA5E1EA6D289880C8CB4263979C2EE4A306C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +495,7 @@ Ambrosia Sky - это захватывающий симулятор от пер�
 ```bash
 magnet:?xt=urn:btih:8D1F61109C04137F93B9D0BA2F1ADE150AD085AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

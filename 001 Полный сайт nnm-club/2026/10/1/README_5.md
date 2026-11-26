@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:CAE4D2B34E357E579F6D275A34D2C09D180A9163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6721981236D54EFD6076C2355D30E86FAAE4B5DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Witcher 3: Wild Hunt - Remastered - это обновлённая верси
 ```bash
 magnet:?xt=urn:btih:64A0E7535F6F4440898105E00EB0D7574EC3F7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Tor Browser 15.0.24 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:52B9EA55ED15085CED84081B5F46EE055EF8C6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

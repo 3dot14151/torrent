@@ -21,8 +21,7 @@ Univention Corporate Server 3.2.1 [i386, amd64, UEFI-amd64] 3xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:03A38B322D26251203AFB4D5DFD83483B5B6DDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Debian GNU/Linux 7.4.0 [i386] 10xDVD, 2xUpdateDVD
 ```bash
 magnet:?xt=urn:btih:AE624446D5E9AF9E1BE9B2067070C1178CB6A4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ XPiratez - Labyrinthus Noctis (2024) [Ru/En] (N8) Repack/Mod AndyFox
 ```bash
 magnet:?xt=urn:btih:92B1772CDA82379A0F5B1BB4AF777DACBFD4A167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Medieval II (2): Total War (2006) [Ru/Multi] (1.52/dlc) Scene PROPHET
 ```bash
 magnet:?xt=urn:btih:FE8DE3A917720E68E087BEFAA1B23BE643404059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ X-Com: From the Ashes (2022) [Ru/En] (0.1.0.3) Repack/Mod AndyFox
 ```bash
 magnet:?xt=urn:btih:3541E1739DA9884E3EADAD54F6197A5B4B6FBE9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Xeno Operations Legacy (2024) [Ru/En] (0.97.06) Repack/Mod AndyFox
 ```bash
 magnet:?xt=urn:btih:2463F004C7A0C5442754CCD0D8C7B38B2604A68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

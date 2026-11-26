@@ -26,8 +26,7 @@ Belenos - Chemins de Souffrance (2007) [FLAC|Lossless]<Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Jack Butler - Fit The Paradigm (2009) [FLAC|Lossless]<Indie Rock, Alternative>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00150412F428727379AE0FB8B53E114B46D600F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Colors Of The Land - 3 альбома (2005-2006) [MP3|112-224 кб/с]<New age,
 ```bash
 magnet:?xt=urn:btih:35292162059D3F7F41E90A8D6C90A17BB6011378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ VA - ETE 2013 (2013) [MP3|256 кб/с]<Pop, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:BD2B0894446969B750081F32C6628F4FE627C68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A973055E928819A3DD9E9E831004D45E235586E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ Anvil - Hope In Hell (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E18962C4F85121E6F46F2759EDCB1594FCA3D35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ VA - Клубные Новинки Vol.286 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:3CBECF2076BE7CD2A578B12DBC88ED012CE54E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ SynWrite Editor - мощный текстовый редактор для про
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +333,7 @@ Blackstar Rising - Barbed Wire Soul (1997) [FLAC|Lossless]<Heavy Metal / Hard'n'
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +367,7 @@ Madura - Madura (1971) [FLAC|Lossless]<ART-Rock, Jazz-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ VA - Mastermix Pro Dance 65 (2013) [MP3|320 кб/с]<Dance, Club, House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +467,7 @@ When Nothing Remains - Thy Dark Serenity (2013) [MP3|128 кб/с]<Melodic Metal,
 ```bash
 magnet:?xt=urn:btih:97E1938B586729CF4BB4C7242D46E77CA4649652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +501,7 @@ Howlin' Wolf - Хаулин Вулф (1990) [FLAC 2.0 192/24|traks(Vinil-Rip)]<B
 ```bash
 magnet:?xt=urn:btih:DC327361415763F9E45DFA45C0609B1F53583B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +535,7 @@ VA - С песней по жизни радио шансон (2013) [MP3|256 к�
 ```bash
 magnet:?xt=urn:btih:9EB88DF86E632669E0664EB04CF9157038402D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +594,7 @@ We Were Promised Jetpacks - In The Pit Of The Stomach (2011) [FLAC|Lossless]<Ind
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +628,7 @@ Cherry St. - Buster Cherry (1999) [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +662,7 @@ Muddy Waters - Мадди Уотерс (1990) [FLAC 2.0 192/24|traks(Vinil-Rip]<
 ```bash
 magnet:?xt=urn:btih:B552CE86EEEACB0B6FA366D59DA4D9B229E158C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +695,7 @@ Alex Tiuniaev - Artificial Symphony (2007) [MP3|320 кб/с]<Electronic, Ambient
 ```bash
 magnet:?xt=urn:btih:403C150EEB11AAA3EB85AAF70AB7414F1BB5437D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +729,7 @@ VA - Позывные На Любовь (2013) [MP3|256 кб/с]<Рор>
 ```bash
 magnet:?xt=urn:btih:60085ADA04328975F57C3FB96EE2BB34F465277E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +755,7 @@ Bandizip – это легковесный архиватор с симпати�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -813,8 +789,7 @@ VA - Later Alligator: Lousiana Rock'n'Roll (2CD) (2012) [MP3|320 кб/с]<Rock'n
 ```bash
 magnet:?xt=urn:btih:B3F1A36FAD8A109CB4EA10BAFD3FE93A101B3319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -848,8 +823,7 @@ VA - Попсовая Соточка MTV. Русский выпуск -3 (2013) 
 ```bash
 magnet:?xt=urn:btih:F97442DC01157CC0E1CE26BDFD874C2FF93D638C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

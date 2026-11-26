@@ -19,8 +19,7 @@ Whispered Secrets 10: Dreadful Beauty (2019) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:ED360AFD98D6778629E39DA288B60F024F7A324A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Halloween Stories 3: Horror Movie / Хеллоуинские истории 3: �
 ```bash
 magnet:?xt=urn:btih:0153D8088B41DAD37EE858C71D44AE22D154BED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Hotel 17: Beyond the Page / Проклятый отель 17: За пр�
 ```bash
 magnet:?xt=urn:btih:3732091985DF3AD60186B3298FDC33858B06F1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Control (2019) [Ru/En] (1.04.02/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8DEEE2B1BA7D39C017F0A1AA4E82D3FB2EAA7DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Visage (2018) [Ru/Multi] (2.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9207B24ACDE2ABC137639E511D63EDF612CCC57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Udemy | Git: Полный курс для начинающих и не толь�
 ```bash
 magnet:?xt=urn:btih:03E8E957FDB3E90F365586AA8232D6CB2127E703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

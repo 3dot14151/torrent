@@ -19,8 +19,7 @@ Grim Tales 24: All Shades of Black (2023) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:F376AE575070459604E8C5475B39163D950363AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alluna and Brie (2019) [En] (1.0) Scene TinyIso
 ```bash
 magnet:?xt=urn:btih:1783551C4091B0A8D47C1421F3A45C175711384E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ GUNHEAD (2023) [Multi] (1.2) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:28E93BFCB54AEB06CF1B406B9CADD07DC94463FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Project Lazarus является смесью упрощенного рогал�
 ```bash
 magnet:?xt=urn:btih:2F562182B2E62F823FB1FE856169FBE5FEB13842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.3.0.55/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2A48E4756B42A8266188902AF110D271A3AECA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ TT Isle Of Man: Ride on the Edge 3 (2023) [Ru/Multi] (20231109/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:B764C32D55E377231D4C9CFB967B5CC180F02B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Executive Assault 2 (2023) [En] (1.0.4.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CB217D70A14B192CD770588E24CB4D606ED301E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Saints Row (2022) [Ru/Multi] (1.6.1.4735700/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2935FB277EEF57FB0809239C120F6150F1318B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

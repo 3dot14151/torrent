@@ -19,8 +19,7 @@ Drad Paradise: The Road Warrior v 1.7 [Ru]
 ```bash
 magnet:?xt=urn:btih:90E47D207DDD47A439857E29B4FFEECFF81A3E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

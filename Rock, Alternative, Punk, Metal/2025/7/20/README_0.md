@@ -22,8 +22,7 @@ Manowar - Gods Of War (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:97D8052A85A1EE0CD20554D12D7AD9629BA287DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Motorhead - The Manticore Tapes (2025) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:46E42BD5C8E76A81EFF502422CFE8C0F4C86F99C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Calling All Astronauts - Noise Against Tyranny (2025) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:E60079FEF8C201777FE820EAE3544EA513A71145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Entrails - Grip Of Ancient Evil (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 ```bash
 magnet:?xt=urn:btih:B3C2BE8FBDC4FC21E0684E07E29D3CB78FB8E161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Burzum - Draugen - Rarities (2005) Compilation [FLAC|Lossless|image + .cue] <Bla
 ```bash
 magnet:?xt=urn:btih:58BEA30FAC3CDE96E5F534E86DB576459D2624D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Asphodelus - Sculpting from Time (2023) [MP3|320 Kbps] <Doom, Death Metal>
 ```bash
 magnet:?xt=urn:btih:8233C35B025381BC0B16AACA14EBCE61BC99228B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ We Are Scientists - Qualifying Miles (2025) [MP3|320 Kbps] <Alternative Rock, In
 ```bash
 magnet:?xt=urn:btih:B56063BE750092C94A1BE522BEF9FDCBF87E9BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Guana Batz - Rockin' Banshee (2025) [MP3|~245 Kbps (V0)] <Rock, Psychobilly>
 ```bash
 magnet:?xt=urn:btih:333EFF84CCF0089DE20863DABE728B370BBFD70D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

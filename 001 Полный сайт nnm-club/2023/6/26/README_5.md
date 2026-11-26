@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6A4675F734BD60335D10D3037D9A0D3CEC4675BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAE426CB9EAAD927D18902FAE3B5A7BBED500769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Warhammer 40,000: Dawn of War – Soulstorm – третий по счету а�
 ```bash
 magnet:?xt=urn:btih:52BD46115E34F7903C94228810A220A117BD4270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

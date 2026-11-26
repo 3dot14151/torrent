@@ -19,8 +19,7 @@ Stellar Phoenix Excel Repair – это универсальное решени�
 ```bash
 magnet:?xt=urn:btih:AC7DB0EFF17122919A9381B31751711FD738F2A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:568C0F026043984FFB629A6B6C336E31C023062E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Possessed - Exploration (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7A1C014E54993864E826EA8121F7D3228C1A9981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:F568DD318D65D68BE42F448B4CAF293AE86E809C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BDD7782B44007AAEC72D18FF94D5BF43256543A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ VA - Chill Lounge Summer (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:50DE3F6D3856B1D66A22B7673A5AE517EA8B67AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E12598D38121548CFC4D519BEEA9FCF93F810A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ Carl Weathersby - I'm Still Standing Here (2009) [FLAC|Lossless]<Blues, Soul>
 ```bash
 magnet:?xt=urn:btih:647509F83BCDF127DC71255DD110D9FE9BD36FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1866DFE123C6F9EDF92DA19DD7FA3913C93812C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ Trance - Victory (1985) [MP3|320 кб/с]<Melodic Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:56294D211402D10089CC3A66E3C4A6C032FE7E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDD3B92E26DCA6A5506099EADB0E64DA14B04383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Supersax - Chasin' The Bird / Dynamite!! (2012) [FLAC|Lossless]<Bop>
 ```bash
 magnet:?xt=urn:btih:C6568BB033D3CA33A05D054F91C1E1A2A468F6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE495C8A1BCABAD1541AFDE790D04755757A5D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ Blackfoot- мастера так называемого южного блюз-б
 ```bash
 magnet:?xt=urn:btih:259DA44C432AFFB2B82439E7E22CF7ACBFACFFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ VA - Прокачай Тачку Летними Хитами (2014) [MP3|256 к�
 ```bash
 magnet:?xt=urn:btih:7F606E6F6CEEFF490A88B043872643169A60C979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ Magic Number – это отличный помощник для всех, кт�
 ```bash
 magnet:?xt=urn:btih:562B29E3F3B00F09C71EF1369ADBEEE47D3D5337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ Brule - Hidden Heritage (2012) [MP3|320 кб/с]<New Age, Native American>
 ```bash
 magnet:?xt=urn:btih:6F149ACFFF825D8234299284B2C1A6CF228E1379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ Free Studio  популярная программа, включающая в с
 ```bash
 magnet:?xt=urn:btih:1EFBA9E6446300E2B9F1BCD9CA4ACF8BE598DD4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DD2B73BB15A0E1ED2ED95A792BD37F935F3F488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ Technimatic - Night Vision / Chasing a Dream (2014) [MP3|320 кб/с]<Drum & Bas
 ```bash
 magnet:?xt=urn:btih:536ECAE22C82D301F4EA7B2A11CC7738ACB88E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9E856A52E6CBB1AC9DD744386D34F22CEE1040A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ VA - Nightflight Rio: 22 Premium Downbeat & Lounge Trax (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:3AD53AF9B2FA0B2C4CBCA35A658628D30322462D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ Side - 2
 ```bash
 magnet:?xt=urn:btih:879FC571677D5E827E9E9F5510F59CA93E216949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72CA1720679880F942761E5BC1D32936C416E5FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ PaintCode является отличным приложением для соз
 ```bash
 magnet:?xt=urn:btih:791AA61AA9300525E0F386AE6A0F52BEECD76C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ Discovery: Реальные дальнобойщики / Outback Truckers. Се�
 ```bash
 magnet:?xt=urn:btih:36028ED495F8782C15D9684AC92FC9853D8B4A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

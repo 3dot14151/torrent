@@ -19,8 +19,7 @@ Register Mail and ICQ 1.2.0.65 Full Edition [Ru] (Авторская разда�
 ```bash
 magnet:?xt=urn:btih:733EA25FC1AE2E85494E8B285490976B11F943E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

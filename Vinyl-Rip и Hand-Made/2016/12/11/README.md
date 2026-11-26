@@ -22,8 +22,7 @@ Modern Talking - Ready For Romance (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Ita
 ```bash
 magnet:?xt=urn:btih:72ABC07BE618FA632E5E68B9C35A4B681867409E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

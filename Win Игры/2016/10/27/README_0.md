@@ -19,8 +19,7 @@ Ginger: Beyond the Crystal (2016) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:491125655F4FECB2504D239CD1DDE71A25564D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Deep Paths: Labyrinth Of Andokost - является РПГ игрой от 
 ```bash
 magnet:?xt=urn:btih:7F1C0F9C8B2F57203720D692DF862586C44F7552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

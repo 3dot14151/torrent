@@ -19,8 +19,7 @@ Entwined 2: The Perfect Murder (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:126707BBEDBCCFF03D7D7E9E4E797C8D2A536379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death and Betrayal in Romania: A Dana Knightstone Novel 5 (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:609B4D3B40F03C1CC9CD58CB9D80B121D724C79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Trackers 7: Blackrow's Secret (2014) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:E274E500497D4C9AC76295E231BF1D8ECCACB14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ghosts of the Past: Bones of Meadows Town / Призраки былого: Ск�
 ```bash
 magnet:?xt=urn:btih:F536941F3A507ABF33D0465A52CE17677EE4C2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ The Room - это квестовая головоломка, в которой �
 ```bash
 magnet:?xt=urn:btih:863289D2FCCBA0D53262D16A3BE7C7B21714F4D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ In Exilium - смесь экшена и ролевой игры, позицио�
 ```bash
 magnet:?xt=urn:btih:5C48792C182CC66599AAD912BF864F5101535F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

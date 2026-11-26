@@ -18,8 +18,7 @@ Kami-sama Hajimemashita 2 / Kamisama Kiss 2nd Season / Очень приятно
 ```bash
 magnet:?xt=urn:btih:E001649044DBC21BB3F570D6C93BBE5CF29B3C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:069CA082804173F8CC69312714A4577539F222BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ SONIC THE HEDGEHOG - серия комиксов, посвященная при�
 ```bash
 magnet:?xt=urn:btih:1F1024A91338ED19E2C161758E3A7A6393BC3A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BABFA729AC0FAEA5ADDA928ADF6B7982437F27E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ MInstAll v.18.04.2015 By Andreyonohov & Leha342 [Ru] (Авторская раз�
 ```bash
 magnet:?xt=urn:btih:36F0E676A2D0C5375D5C338205F6F0BF2ECAD4B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Halo: Spartan Strike (2015) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A5966717FF93B329B211BB7651A0345C748CCD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Beautiful Widgets - набор виджетов, поможет вам быть
 ```bash
 magnet:?xt=urn:btih:B0034FCE9B0F562323462BD4B0DBFD659CF53CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Boudika - The Dark Side (2014) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:EE0E75630543A42386BFA744893CF398A8C78B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Smokie - Rock Away Your Teardrops (1996) [FLAC|Lossless|tracks + .cue] <Pop-Rock
 ```bash
 magnet:?xt=urn:btih:3D4D6BCD36C916E2386F3D346CF01AD1350087EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ PIG - The Gospel (2016) [FLAC|Lossless|tracks + .cue] <Industrial>
 ```bash
 magnet:?xt=urn:btih:39F051C3B7C92D2E323D4B4556B56EAD546E57BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ KMFDM - Rocks - Milestones Reloaded (2016) [FLAC|Lossless|tracks + .cue] <Indust
 ```bash
 magnet:?xt=urn:btih:C30B17422E84BD0E37F361049DAEF6FA2DC6035A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Kataklysm - In the Arms of Devastation (2006) Deluxe Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:A7CFF841324CD090D90A2FCD0CA1B98B3DE2D0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Baseballs - Hit Me Baby... (2016) [FLAC|Lossless|tracks + .cue] <Rock'n'Roll
 ```bash
 magnet:?xt=urn:btih:DA07614CEC8B15B5A32052CCCCA060BA2502957F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Breakdown Of Sanity - Coexistence (2016) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:6D75493797F5FBC9CB0A2FCA6CDE090D9FA6BC4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Devin Townsend Project - Transcendence (2016) Limited Edition 2 CD [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:468EB4EBB0F1666EA1A5038A0D246809FD6485EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Black Sabbath - The Spirit Of 666 (2016) Live [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:9992FB457F5DCE3D992A71368B01A8B7FFAA9210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Delain - 6 альбомов, 4 сингла (2006-2016) [MP3|320 кб/с]<Sympho
 ```bash
 magnet:?xt=urn:btih:AD2E1FF5118187DE1DF5B2C623334DC714405B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

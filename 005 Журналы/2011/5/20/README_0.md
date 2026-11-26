@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:409D376C850F7D1B72FC1068132F6F459530A65F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B904E74A6C9054228E964A9065EB3E1277E5B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ GQ - авторитетный журнал о моде и стиле жизни 
 ```bash
 magnet:?xt=urn:btih:407B8D92F935FF8A8FA6CFC121CA302565EE7872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

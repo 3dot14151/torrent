@@ -19,8 +19,7 @@ Production Line - увлекательная смесь стратегии и с
 ```bash
 magnet:?xt=urn:btih:A0ED1E63CFB237D32FA7E2016E5AA4443CE3DCC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Syrian Warfare (2017) [En] (1.1.0.7/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:6E31CF9B4B4BB912BFD252ABF479C62A70B3FBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

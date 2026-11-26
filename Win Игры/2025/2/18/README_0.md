@@ -19,8 +19,7 @@ Dr Livesey Rom And Death Edition - Доктор Ливси, вместе со с
 ```bash
 magnet:?xt=urn:btih:7A8A3B96CAD6DA2605259E674C14667A8BACED59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ailuri (2025) [En] (Build 17384128) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4E1F949E48BCA672B309B174B1C118EBE277CCC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mini Airways (2024) [Ru/Multi] (0.11.3f1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:128FD0E5877C32E83C90FE8E7C4E64499C68BB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Puzzle Quest 3 (2023) [Ru/Multi] (3.5.0.41964/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DB70673E3C62CDCB7F146A96CB38CD8FF29360D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 9473356/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A69F35CC966D0B1009F6AAEEBAA0FC31AFA130A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] (1.
 ```bash
 magnet:?xt=urn:btih:A516A0A0F36BD81B6090DFDC8BEBEC11853C75C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94E686355B84B0D754384CD17900A8F6500D6A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Commando Hero 2: First Blood (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E3E42BEB6C4C2DE7A36408D6C067CAF13379F11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Supermarket Simulator (2024) [Ru/Multi] (0.6) Repack seleZen [Early Access]
 ```bash
 magnet:?xt=urn:btih:127E8B6866FB1F772FBF2640558AB43969AA57DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Bloomtown: A Different Story - это сюжетная JRPG про Америк�
 ```bash
 magnet:?xt=urn:btih:EF8E2E94675E8BD8B2ECB1EB6FB6DCB880A6034A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Castle Crashers - двумерный платформер от студии Behe
 ```bash
 magnet:?xt=urn:btih:CFAC107121B88DCF2D7F18F222D394F67DD17710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Vertical Kingdom (2024) [Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:C5711D5FCFFADF28D6187DAD79B13820946A07AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

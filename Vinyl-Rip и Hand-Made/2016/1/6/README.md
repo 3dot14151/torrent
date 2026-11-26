@@ -22,8 +22,7 @@ Yovanna/Иованна - 3xEP: Песни Д. Плессаса и К. Капни
 ```bash
 magnet:?xt=urn:btih:E4AC16232D0088A43E407C9B5CFDF33F03C30B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Место встречи - Выпуск 4 (1988) [FLAC 2.0 24/192] image+.
 ```bash
 magnet:?xt=urn:btih:455619579D282BF72742EB0247C87405ACDD2B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Amadeus Veberzinke/Амадеус Веберзинке - J. S. Bach/И. С. Ба
 ```bash
 magnet:?xt=urn:btih:E524E0F0CA3702DC2C129FFD097E0E153AC9E7A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0CC07C4374A94223E87EBE50F15DBE08B142442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

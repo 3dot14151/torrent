@@ -27,8 +27,7 @@ VA - Попсовый Микс Парад (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:BAF48F69C6795EFF46B7D3FA49728BE4DD07AFFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Зимняя Танцевальная Вечеринка. Зарубежн�
 ```bash
 magnet:?xt=urn:btih:70F4AE67D6E7F15911C15B7290DD548B36118395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20EA69009C76EAAD123EC654FECD8EA635D37F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Play List Syncronizer beta 0.3.6.0 [русский.английский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59EC936C7E4FA285B8A334C3A8D5A89AA131C976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22F99FBB86E6839C935EE3D03AA7E41C064EB1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ Prodigal Sons - On Our Last Day (2012) [MP3|192-320 kbps]<Heavy Metal>«Сдел
 ```bash
 magnet:?xt=urn:btih:0E2571CBE93F2E2A4411E861E92944F611D7D579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 ```bash
 magnet:?xt=urn:btih:B3D0B260377AA3C6E0498F0B4A28557040A33919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ El Caco - Hatred, Love And Diagrams (2012) [MP3|320 kbps]<Stoner/Hard Rock>«С�
 ```bash
 magnet:?xt=urn:btih:099334BCA77E7F576B10B7B494F074380873547A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ Dünedain (Dunedain) - Magica (2012) [MP3|320 kbps]<Power Metal>«Сделай �
 ```bash
 magnet:?xt=urn:btih:236CEB47334CC9367E2F63045B8C899EB3F05CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ Hyborian Steel - Blood, Steel And Glory (2012) [MP3|192-320 kbps]<Epic Heavy Met
 ```bash
 magnet:?xt=urn:btih:21D56DAD122EAFA5EEB7D0A0CBBEE5EE8B8A2F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ VA - Normal Original Dj (2012) [MP3|320 kbps]<House | Dance | Progressive>
 ```bash
 magnet:?xt=urn:btih:CC513F7E7224907F852B81A7FFDFB31E470DD72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8165582FA999D4266EE388C7A7EECCF3E18C0830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +426,7 @@ David Murray - Live '93 Acoustic Octfunk (1994) [FLAC|Lossless]<Contemporary Jaz
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ VA - XXXL Танцевальный 50/50 №27 (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:5E4E11A681E05E86C76BFBA8B9032C5337283F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:682D8F358AD00E24CA0D42014C4CBCF7B66724D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +522,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 ```bash
 magnet:?xt=urn:btih:F105F9A4BAAF83339F3D4715A65BC316B3D83E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:162C5C212321CDB83F005F452A904C5C609F092D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E83172C31C3DBF2F51DC0BDB58158508F2B2929B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ Eddie "Cleanhead" Vinson - I Want a Little Girl (1995) [APE|Lossless]<Jazz , Cla
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +637,7 @@ Chico Freeman - The Pied Piper (1986) [FLAC|Lossless]<Post-Bop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +671,7 @@ Sam Lardner - Barcelona (2007) [MP3|320 kbps]<Country>
 ```bash
 magnet:?xt=urn:btih:FF6224EFC1858059B40D2E8A972B944A038E8676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B96CECF1A436983EF8BB34E2E73759CFF473ECD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +732,7 @@ DJ Nike Twist - TranceWave 026 @ GTI Radio (02.02.2012) [MP3|256 kbps]<Trance, U
 ```bash
 magnet:?xt=urn:btih:C4C9536892FFC3A8B20C9F0D23A737AAE7055D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +766,7 @@ Ancient - Night Visit (2004) [MP3|320 kbps]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:9026046C20C8C2830F73B1244C90590690B6DD00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -819,8 +794,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AC6C6B793F1B112A863C63848FA2DBB8CC3D48A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

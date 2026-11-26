@@ -20,8 +20,7 @@ Flappy Bird - игра, в которой игрок должен управля
 ```bash
 magnet:?xt=urn:btih:C2BD0C6018663E76D2ADE555407847256898CF9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

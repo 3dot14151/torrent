@@ -19,8 +19,7 @@ Endless Fables 4: Shadow Within / Сказки без конца 4: Среди �
 ```bash
 magnet:?xt=urn:btih:9484C6EDAE8A109F1AD6443662CC59859FF1B030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spintires®: The Original Game — уникальный симулятор от 
 ```bash
 magnet:?xt=urn:btih:919B9FD45222AB9EC35957A1C044E7727F039483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

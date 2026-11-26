@@ -19,8 +19,7 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:B4155E3BC690A2640DC9B5CA3A962CACC4B70611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MouseExtender - это удобная и красивая панель быст�
 ```bash
 magnet:?xt=urn:btih:76249B322A31E95C8B7D6A08D4354FC51C4107A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Edison's Children - In The Last Waking Moments (2011) [MP3|320 kbps]<Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:62EB58E3587ED47E8FB1D026015E0A811C9A6AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Manfred Mann's Earth Band - 2 Альбома (1976, 1978) [FLAC|Lossless]<Prog R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Xandria - Neverworld's End (Limited Edition) (2012) [FLAC|Lossless]<Power Metal,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

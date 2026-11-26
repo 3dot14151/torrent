@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:01BD9CDF0C634208CDE5131153E3D640C042BCF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBD1154F2CAA5526EB1A6B8FCB0F3C11DBB35A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Grand Theft Auto V [Patch] (2015) (1.0.350.1/upd4) Crack RELOADED
 ```bash
 magnet:?xt=urn:btih:B73128A87C870D88F0232D082CD092D88AAF9BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:E86FCCBE213D65C8D869D0EBCB94E55B59CDFF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D74DC2387BBD799B3B026BE26D66124CB37BCB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.1) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:BF0F04304AC7BF1A378AC0A776D84AF0165D91D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

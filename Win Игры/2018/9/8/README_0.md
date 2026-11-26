@@ -19,8 +19,7 @@ The Evil Within (2014) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:91B98E24E7106B87DF547D6DA3CD7B100EF4D7C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Solus Project, захватывающая история выживания 
 ```bash
 magnet:?xt=urn:btih:C528536D3D14BF28E19424FE9CA92B45D3681560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Elea (2018) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:43D7F79B6E2DC66F800D8EBE4BE76BD08F9A34AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

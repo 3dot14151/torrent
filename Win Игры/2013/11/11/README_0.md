@@ -21,8 +21,7 @@ Goodbye Deponia (2013) [Ru/Multi] (1.1.4.3284) Repack Fenixx [Premium]
 ```bash
 magnet:?xt=urn:btih:1FF5E937E44CDAF4F93246A40FCC71C348744BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Spooky Range – увлекательный 3D тир в пугающем ант
 ```bash
 magnet:?xt=urn:btih:BBB36111414FE7541073C5B058040D2232E51B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Football Manager 2014 (2013) [Ru/Multi] (14.1.2.44833) License RELOADED
 ```bash
 magnet:?xt=urn:btih:285D943507C7FBA2E418A29ED8365B793F0763F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

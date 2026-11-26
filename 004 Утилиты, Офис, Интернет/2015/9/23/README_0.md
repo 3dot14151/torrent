@@ -19,8 +19,7 @@ Tipard Video Downloader - это профессиональный загрузч
 ```bash
 magnet:?xt=urn:btih:3F7D8B480A353A339A57CAC3E57933C3B7B20AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ EasyBoot 6.6.0.800 Portable by PortableAppZ [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B9167DD3B19C752EEB23BE049DACF39722501773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Project 2016 поможет вам планировать проекты и со
 ```bash
 magnet:?xt=urn:btih:AF8B9134A0BAD780901E5E079CB93A04DE0AD2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:D325149E93DF420BD79B92F66D5B9718BB97F418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

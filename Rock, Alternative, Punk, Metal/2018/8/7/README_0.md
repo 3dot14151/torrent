@@ -22,8 +22,7 @@ TUFF - The History of Tuff (2001) Compilation [FLAC|Lossless|tracks + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:ED5C1F26BE270777A5928E00386F124B957A6A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Imperial Age - Turn the Sun Off! (2012) Japanese Edition, Reissued, 2018 [FLAC|L
 ```bash
 magnet:?xt=urn:btih:D0CFE668DD5BFB5B39CC3BBCEC227EB13062F8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Braii - City of Nothing (2018) EP [FLAC|Lossless|tracks] <Alternative Rock, Indi
 ```bash
 magnet:?xt=urn:btih:7200EDAE6395B642B19228D5E7D66FD85F49F89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lawdy - Outlaw Invasion (1990) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:08BE0C1A50FDC421A5918AD2603F989A2465342D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Interstate Blues - Southern Lips (2000) Reissue, Unofficial Release [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:F7469726A1E9CD4600A864DB99BE07AC222E739B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4EF2E067BE9A1DBC66159FABE1EC788BCE68B9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:835F9DC9075562F66A25E6687DEE50B01C699744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Top 100 Зайцев.Нет Сентябрь 2018 [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:C5544A21066707184F113744B79303EC72A50BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ History Channel. Кровь и слава. Гражданская война в 
 ```bash
 magnet:?xt=urn:btih:C37B55D6E275CF9B2C39D8264233F50644367F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Sketch от Bohemian Coding — один из лучших векторных р
 ```bash
 magnet:?xt=urn:btih:DF46120C494EFCBC3B9AB406881D7B7D32A0638F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Perfectly Clear - последняя версия программы, котор
 ```bash
 magnet:?xt=urn:btih:1728AB9D6AE1FCAD4FDA1E643D9906163E01B5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ John Lennon - Imagine (2018) The Ultimate Collection  [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1AB4D120AADC696D452B0D68B582EFE4E938E9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ History Channel. Кровь и слава. Гражданская война в 
 ```bash
 magnet:?xt=urn:btih:D3927A2824E3DCD0BADCF8ACA38D49C729994016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6563409855AC2F18CE4DB98FA6DF416E3455E950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ History Channel. Кровь и слава. Гражданская война в 
 ```bash
 magnet:?xt=urn:btih:3556B4D1E3BAFFEDDD2503FCC1832258FA89BBB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C9C7DD7B5EDEF5C571B4DF2168946C76EC58FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4457B64ECBD962733B7A81FD20BE81D44FE6EC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ GUNSHIP - Dark All Day (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwa
 ```bash
 magnet:?xt=urn:btih:2D8A7A0946B897A507978FED0097D53B54C1768D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Soft Pencil Art - позволяет сделать ваши фотографи�
 ```bash
 magnet:?xt=urn:btih:18033AD304E63C9353B85ABB154AF77E87757C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ VA - 200 Hits Of The Pops (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F6AB8272696B2F170B01190262AB43E092EB2803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DACED86E37803B36CE96ED4CC8A170DDFE95AEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ Charles Aznavour - Duos (2008)(2CD) [FLAC|Lossless|image + .cue] <Chanson>
 ```bash
 magnet:?xt=urn:btih:7C72E4D117E1E424B55C6A674B2B7424CFC7C8C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44530A998C1953B6848C78DDF69810B860FDFB9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:492EED9F883ABC1B9613728FD466F20C4B7D2DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03745989176652F509E4959B5B0BFB9F04DAE9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D186E3477A8FB509956774A94C08916A888419C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ TeoreX PhotoScissors - простой инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:CFCB46850BD2FD6B46247E6079B419EEBFB9A513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ Windows 10 - это операционная система. Это основн
 ```bash
 magnet:?xt=urn:btih:FA4E05576B804B0FCA3F8B7B55E33E4EE8744729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ BELOFF [dp] 2018.09.4
 ```bash
 magnet:?xt=urn:btih:3F4B788E36732151C8634719262A3D343EDB31F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6722C19CDE6225D5BD897024B5EC6DB4A423E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ Little Big - Antipositive, Pt. 2 (2018) [MP3|320 Kbps] <Rave>
 ```bash
 magnet:?xt=urn:btih:3D6920A3614BC44F8B3394ABE219AA52B1F6A67A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

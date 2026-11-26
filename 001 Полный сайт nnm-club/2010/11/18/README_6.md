@@ -18,8 +18,7 @@ Call of Duty: World at War [Ru] (Rip) 2008 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:DF5436437AD77D5D6977C336D681313734518DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Harry Potter and the Deathly Hallows: Part 1 / Гарри Поттер и Дар
 ```bash
 magnet:?xt=urn:btih:99B9C169264593F2595D9D6421F7A9EC5E2BD465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:862B6EBCEB02C45DCDA3422BA3CEECD2F8A0737A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ _____________________________Перевод: Профессиональный (�
 ```bash
 magnet:?xt=urn:btih:4B6AEB419C1599D896AE34AC45C7CBF9670E51F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Rig'n'Roll / Дальнобойщики 3: Покорение Америки [Ru
 ```bash
 magnet:?xt=urn:btih:3566F14672D7F7358A55B1EB90A11E331575830F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Need for Speed: Hot Pursuit Limited Edition [Ru/Multi23] (L) 2010 l RELOADED
 ```bash
 magnet:?xt=urn:btih:C50A314792365D5BE863E8C953BF8A12E409C42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Team Foundation Server 2010 теперь очень прост в установ
 ```bash
 magnet:?xt=urn:btih:3021EBD0BA3ADF51ACE47BF88E8C74DC62202354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

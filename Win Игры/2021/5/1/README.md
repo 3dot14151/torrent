@@ -21,8 +21,7 @@ Deadstep — психологическая игра ужасов от перв�
 ```bash
 magnet:?xt=urn:btih:0C23C29C249E04DAB0EC14C498120513503AB94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

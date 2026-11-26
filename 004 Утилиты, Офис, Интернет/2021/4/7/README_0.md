@@ -19,8 +19,7 @@ Document Express 7.0 Desktop [En]
 ```bash
 magnet:?xt=urn:btih:1CDE87C7D61BBD7C59AA341DD4790D70ECF67F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

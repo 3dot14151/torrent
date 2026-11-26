@@ -23,8 +23,7 @@ Drudkh - Eternal Turn Of The Wheel (2012) [FLAC|Lossless]<Atmospheric Black Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Nightqueen - For Queen And Metal (2012) [FLAC|Lossless]<Symphonic Power Metal/He
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ The Пауки - Корабль в гавань не пойдет (2011) [MP3|32
 ```bash
 magnet:?xt=urn:btih:D26A7576007CCFE0B5F98CEA8E17BC0EA4BDE0B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Amberian Dawn - Circus Black (2012) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:294B28588B7B203C630EAA4BCBA3A25886107386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Thulcandra - Under A Frozen Sun (2011) [FLAC|Lossless]<Melodic Black Metal/Death
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Onkel Tom Angelripper - Nunc Est Bibendum (2011) [MP3|320 кб/с]<Thrash Metal,
 ```bash
 magnet:?xt=urn:btih:A53DDA1BB85D3C81EC6177EC7AB6D4C1E691D369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ ______________________________
 ```bash
 magnet:?xt=urn:btih:500F9C8D703C9160C5AD74E44CDB87446076C6CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:EB0F1E3019904A80CCA2908A4A6847D1730528D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85FF96F451E5AC459E27B4246F31555C84871B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ Thousand Foot Krutch - The End Is Where We Begin (2012) [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:912759CA2E3F36DDB3C48265FF9E70FF85FDA1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +358,7 @@ Whitesnake - Best Ballads (2000) [MP3|320 кб/с]<Hard/Glam Rock>
 ```bash
 magnet:?xt=urn:btih:DA31BFD56A6E4F1546610632C45502C2B5B3BF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +392,7 @@ Anneke van Giersbergen - Everything Is Changing (2012) [FLAC|Lossless]<Alternati
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +421,7 @@ Atrocity - 18 Albums ,3 Ep's ,3 Singles ,1 Demo ,1 Compilation ,1 Bonus (1989 - 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

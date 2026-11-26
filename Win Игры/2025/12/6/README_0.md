@@ -19,8 +19,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DFA230BB7173118AA76846A424B980A464DCD781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Routine – это sci-fi хоррор от первого лица в стил�
 ```bash
 magnet:?xt=urn:btih:88E662F691BB715A4090650825E971C470DCBAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sacred 2 Remaster (2025) [Ru/En] (CL16183 Build 20876016) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:7B21E8320DD97B055D5BAB86E495972F654A4FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:042D03896D429260B5BADB929401B95141AF8C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack R.G. Freedom
 ```bash
 magnet:?xt=urn:btih:2E3210BD03A0F5169C6E93C7545AD3B124EB092B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Art of Reflection - это игра-головоломка от первог
 ```bash
 magnet:?xt=urn:btih:46A2D64B34DB948945A725B56939D093F51FEA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cricket 24 - это результат десятилетней работы. В
 ```bash
 magnet:?xt=urn:btih:C4D9DD907AC862C9F111781EC1B1447244A2EE86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Routine – это sci-fi хоррор от первого лица в стил�
 ```bash
 magnet:?xt=urn:btih:75B28232FD4303739FE67D1EA36D0A0B5D839D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Christmas Wonderland 16 (2025) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:97CB1013DA3872C65D97411990D511E762E207E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ AFL 23 - это спортивный симулятор, посвященный 
 ```bash
 magnet:?xt=urn:btih:B786AB20024F1F920C5AF21BAFC7351281B2B4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (1.01) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:DE279E73592217080898DDFCA1DFE401D85A5F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Midnight Scenes: A Safe Place (2024) [En] (1.2a) License GOG
 ```bash
 magnet:?xt=urn:btih:33F57C6FCCB9DE9073D53C8C7D88D25767718D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Midnight Scenes: From the Woods (2023) [En] (1.1a) License GOG
 ```bash
 magnet:?xt=urn:btih:D6AEB55F9ED46761462DAAF11464D7F3D08DB0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Uninvited / Unwelcome (2022) [En] (1.14a) License GOG
 ```bash
 magnet:?xt=urn:btih:13F12BDF918789BFB08BC0924F4AEFF5AB6DA476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Midnight Scenes: The Nanny (2021) [En] (1.0a) License GOG
 ```bash
 magnet:?xt=urn:btih:C59FD3D98B39346CCC7AEF8E9FD445F69BAF90AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Midnight Scenes Episode 2 (2020) [Ru/Multi] (1.19a) License GOG
 ```bash
 magnet:?xt=urn:btih:E72A769D12E34077E322FC75C16001445932B3CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ The Librarian (2020) [Ru/Multi] (1.03a) License GOG
 ```bash
 magnet:?xt=urn:btih:651AD829CAF8C53F570499AEB6C200292B3975CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:7B3C7DC4DF88BA93D1E0F5C760F90147D2098566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

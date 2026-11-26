@@ -19,8 +19,7 @@ Octopath Traveler (2019) [Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:51F3472776175995B38020884D10ECC396B5FBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Dark Tranquillity — шведская метал-группа, созданна
 ```bash
 magnet:?xt=urn:btih:05B847EA2E41247C4DA950B815C068659AA7A27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Flotsam and Jetsam — трэш-метал-группа, сформирован�
 ```bash
 magnet:?xt=urn:btih:FC1A33F5D10AD01D5DE083C7E79D0A68AC4AC381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ He Is Legend — американская альтернативная мета�
 ```bash
 magnet:?xt=urn:btih:69DA395E0D6D6A5344DD8805D0C2D8F2CB493215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

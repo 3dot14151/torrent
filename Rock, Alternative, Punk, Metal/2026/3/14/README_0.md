@@ -22,8 +22,7 @@ Crimson Caravan (2021) The Glow (EP)(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:0F74A374DBC1ED28472406880162A67616D2A4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bad Marriage - Match Made In Hell (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:CFBCFC6590564FC1ADD395C7B31EB9F5776A27ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chris Norman - Lifelines (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Rock,
 ```bash
 magnet:?xt=urn:btih:BE6BD1CD8832D1628580B77BAC59BC039FAE9A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lamb of God - Into Oblivion (2026) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, 
 ```bash
 magnet:?xt=urn:btih:3C4C5C8553D1737D51D6B468196800605B2C7A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

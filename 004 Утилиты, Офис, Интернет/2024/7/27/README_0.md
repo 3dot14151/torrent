@@ -20,8 +20,7 @@ RSS Guard предоставляет строгий и лаконичный по
 ```bash
 magnet:?xt=urn:btih:4CAFB712F5A3195A3C0A22A9C999AC1AD530E74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

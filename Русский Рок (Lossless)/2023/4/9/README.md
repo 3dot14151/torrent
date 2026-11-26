@@ -22,8 +22,7 @@ Wildways - Симптомы (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Pos
 ```bash
 magnet:?xt=urn:btih:BD9BFF065EF4D24E6D5E24EDEB459A065D785BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

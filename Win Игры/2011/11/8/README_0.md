@@ -19,8 +19,7 @@ Blooming Daisies / Цветущие маргаритки (P) [Ru] 2011 | Fyrrion
 ```bash
 magnet:?xt=urn:btih:AFC1F14CE7027F3F536B9369675686884F1904BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

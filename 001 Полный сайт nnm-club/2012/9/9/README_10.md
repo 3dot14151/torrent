@@ -27,8 +27,7 @@ Queen - 15 альбомов (1973 - 1995) SHM-SACD [DSD 2.0 1bit/2822,4kHz |SACD
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Adobe InDesign CS6 8.0 Portable by Punsh [Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

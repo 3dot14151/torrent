@@ -20,8 +20,7 @@ Alternate Password Generator - приложение может помочь ва
 ```bash
 magnet:?xt=urn:btih:D017031B2CEE94810539AAE82408A6B0F79E0887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

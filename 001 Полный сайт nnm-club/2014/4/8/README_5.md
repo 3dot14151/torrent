@@ -20,8 +20,7 @@ Defender's Quest: Valley of the Forgotten (2012) [Ru/Multi] (1.1.46) Repack Let'
 ```bash
 magnet:?xt=urn:btih:90D77F891B855420DEC88BC288967B5E50587166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27DBDD98F402C8E72A4D1772A98F9B24655844F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ CD1 - Часть 1.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:77DED05FD352FD0321314C1DD660C1BADB3287ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:342AB367EDD22671D19CB9BAEF6B05DC5E6CB17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8561AABCD9B854BE19CDF35C337F33AE5C33BAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ The Swapper – это платформер рассказывающий о пр
 ```bash
 magnet:?xt=urn:btih:50F51EC943F8EA8A86FCA00094BA36A0BBC0ABDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Rammstein - auf nach Moskau (2014) [MP3|320 кб/с]<Rock, Industrial, Neue Deut
 ```bash
 magnet:?xt=urn:btih:42CDE0334DBC57811A1F389D04FAE2E10179D561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Fontexpert - полнофункциональная программа для п
 ```bash
 magnet:?xt=urn:btih:D4D4308AC154516D0E324BFF7808315D0D26CB4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ PlayStation Move Heroes / Герои PlayStation Move [PS3] [EUR] [Multi9] [3.56
 ```bash
 magnet:?xt=urn:btih:B3E82B52BAC9B1D5A95A7FF75A1D6A94B0693DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F91AA7FB6B26A5B9B2232F06E030CF0962FBAE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:820115CF51281300DFEF531A0F43D30DC84DF1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39A8E11E5BD2E4031771821B0154E0549E12D62C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ Split/Second: Velocity (2010) [Ru/En] (1.4042) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:4D50E03DB5FE8E1CE04D3BB4D85E985DFF62BBAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Sniper: Ghost Warrior 2 / Снайпер: Воин-призрак 2 [PS3] [EUR] 
 ```bash
 magnet:?xt=urn:btih:86F204C7CAB52196F291498588C2C6951C0FE00E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ WPI DVD v.07.04.2014 Lite By Andreyonohov & Leha342 [Ru] (Авторская р�
 ```bash
 magnet:?xt=urn:btih:242413F34FFA741E27C24939D584F9A21F74A6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E069D64D26FF1782EA391D9E733E9A5473BF3D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Call of Duty: Modern Warfare 3 [PS3] [EUR] [En/Ru] [3.72] [Cobra ODE / E3 ODE PR
 ```bash
 magnet:?xt=urn:btih:F92953794890E5AFCCD3206A355AD6346BA09967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6E389CA54B03D3A7BE186F212110DF83133F24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

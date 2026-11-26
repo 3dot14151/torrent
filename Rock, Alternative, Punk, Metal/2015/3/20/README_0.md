@@ -23,8 +23,7 @@ Ethernity - Obscure Illusions (2015) [MP3|320 кб/с]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:1B4EC56C3CA17D9C5A88991922B726C682EFACB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ In Depth With Whales - Northwood (2015) EP [MP3|320 кб/с]<Post Rock, Shoegaze
 ```bash
 magnet:?xt=urn:btih:D4E469334EB5F8DFBEF833129FFB1B8290CE68A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE110FDC36041F2E766A1DFA3246DD49104D7951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Rum Rebellion - Another Round (2015) [MP3|320 кб/с]<Celtic Punk, Folk Punk>
 ```bash
 magnet:?xt=urn:btih:A29BB9BA3EB24BA2AC1C44F64D4A8B0A38B0F207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Magic Kingdom - Savage Requiem (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:92856AF88F9BA5F87E41E7DD1AF0FCF1AB8CEC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ The Gentle Storm - The Diary (2015) 4CD Limited Edition [MP3|320 кб/с]<Sympho
 ```bash
 magnet:?xt=urn:btih:85D7C4F48A32C0C3C2B5345E2F7B4A5011C5663B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Eagles - Eagles Live (1980) [MP3|320 кб/с] 2 CD Remastered /1999/ <Rock>
 ```bash
 magnet:?xt=urn:btih:94AF8732CB7ADC711CA55A6722221268DD184872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86E1209A5D49245D8A115CB4A365287B97D48E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Michael Schenker's Temple of Rock - Spirit On A Mission (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:92823A8527189D27419681EA191C1CE0E70F826E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0F4C6ACC7977E043CDE095F2C363EB54E12AE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ Mark Knopfler - Tracker (2015) limited Deluxe Edition [MP3|320 кб/с]<Rock, Bl
 ```bash
 magnet:?xt=urn:btih:BE8C36DCD327A948583DF3DA0D33DC7624C30C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ Lord Of The Lost - 5 Альбомов (2010-2015) Дискография [MP3|32
 ```bash
 magnet:?xt=urn:btih:5D7839BAD64FC9F448AA87277188263808BE6388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

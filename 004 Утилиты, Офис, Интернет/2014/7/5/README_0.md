@@ -19,8 +19,7 @@ Auslogics Disk Defrag Screen Saver – это удобная утилита, с�
 ```bash
 magnet:?xt=urn:btih:803AD929C9D937A7A13EAFE7565CE2980CDA2A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CRM-sova - коммуникативный инструмент для подде
 ```bash
 magnet:?xt=urn:btih:D2945FAB8A9799FFA8FE5E26C16DF6BB2B9DA6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BEE5DBE81D8BB8E57E8719095B9811E707D22744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Fifth Element (1998) [Ru/Multi] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:FC63CD6596D82BFE838CCAD2103837A71472A241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Crysis: Remastered (2021) [Ru/Multi] (3.0.0) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:242F5A5E1610B3AF84F36C6358A0727B83E821A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:671A5A5D5CBB614C6EB91BF54E27CB1DE0860371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D0008AEE5B8D2A81566E1144455EB0A288D1FAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Crysis 3 Remastered (2022) [Ru/En] (Build 9460220) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:6568E3C928DCA1E4A340DB05C0C0740AAA3C323B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D0A16FC0D71697B10C68C51529054CD89745625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Metro Awakening - это разработанный специально для 
 ```bash
 magnet:?xt=urn:btih:CF8A67A9401DB0E89873D598FFCF35D3A047BB4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:1C0F01B885198B000935705FF1F1F6F68F0F7C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Descent 2 - экшен от первого лица с элементами си
 ```bash
 magnet:?xt=urn:btih:7DAF14CD3E53F1CE91CAAD23B7AFC1F3CC9E59A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ The Thing (2002) [Ru/En] (1.2) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:F3B3BFCD0A7742D7FD824E6EC865552AA058AC5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 ```bash
 magnet:?xt=urn:btih:F285704C18EA785306D53DF4679C683E805C91CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ Will Rock (2003) [Ru/En] (1.2) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:DEA9370ACBCE69735590A740A44619D098DEF319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +368,7 @@ Return to Castle Wolfenstein - выдающаяся во всех отношен
 ```bash
 magnet:?xt=urn:btih:A81A950935A1572DB2B53EA5E39FA08764146F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DBA22B1F2AFA9400AC1CCA952068F7E89DE387E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:443D6E88736E0CB16E992D2DE8C0CD5AA5BEC4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +443,7 @@ Clive Barker's Undying - 3D Action созданный при участии ма
 ```bash
 magnet:?xt=urn:btih:294E52B75AE67825190C8BFF4055463CC19EDCB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +468,7 @@ Far Cry (2004) [Ru/En] (1.4) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:EA0568FBA8690D02A44B90AF971323001D5F46E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +493,7 @@ Serious Sam Classic (2002) [Ru/En] (1.07/dlc) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:90C35C1ABA07A1E4042E016DA80848990F0A178B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA7198FCE7D54C0A9BAC11E1AF3914B246EE0E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +568,7 @@ Trespasser: Jurassic Park (1998) [Ru/En] (1.1) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:F19FE2E602CB3429CB436DE61EB15941A1E42732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC6EC6C9A5437B274842961D248CE13598E54C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +618,7 @@ Quake - это первый по-настоящему трехмерный шу�
 ```bash
 magnet:?xt=urn:btih:0A2BCFC0C9987740BA8CAA65091916FB84B028CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D0A1C2FFCEE7CC934593C0C48C115FBE536DAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

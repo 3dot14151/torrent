@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0FD2EFD16DAD2B506FAA5C1E3B994DE104C1852A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BELOFF 2016.9 Lite [Ru]
 ```bash
 magnet:?xt=urn:btih:BDE1D0A2C825111B1AC28121E44E2856B1CF1DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D16A56FE84A4AB054C6553F2EB94A462E3D3FCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DiRT Rally (2015) [Ru/Multi] (1.22/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:BBE3E8DBB6AB3A3EA5D27CD414C3F832D25A2EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Nails - 2 Альбома (2010-2013) [MP3|320 кб/с]<Hardcore Punk, Crust, Pow
 ```bash
 magnet:?xt=urn:btih:9231A5B115BFB25CC0CD6C14AE2A754017F06583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Mausoleum - Выживай (2004) [MP3|320 кб/с]<Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:1A2BD9164B601490C6CCC3797FD4C13E26384D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Dead Congregation - Promulgation of the Fall (2014) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:51D77EFC56F233124F6FD777D65C861E243FC2B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Harakiri For The Sky - Aokigahara (2014) [MP3|320 кб/с]<Post-Black Metal>
 ```bash
 magnet:?xt=urn:btih:CEBB66F79E46D9CE5D1BA42D56B6A3FF14425354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ VA - The Best Of The Best Air Guitar Albums In The World...Ever! - 3CD (2005) [M
 ```bash
 magnet:?xt=urn:btih:651ABAED36BFF294CD4CEA093ABC16B3DFAB888A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

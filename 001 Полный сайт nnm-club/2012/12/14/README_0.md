@@ -18,8 +18,7 @@ Wallpapers Sexy Girls (13.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:C536021DD5BC53578775E4B8C2222512145121E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Beat Service Collected (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:540B690BBC8D32991FF9523484A23150B61F3816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F72CF2DAE7877C94FB309465B050F770CEFCC4CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:275315D4D1CCA2A7E7B74B8CE440D9F1B204AAE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ M-Pire of Evil - Hell to the Holy (2012) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ VA - Les 40 Tubes: Les Plus Joues En Club - Decembre 2012 (2012) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:BFBECFF1C6E89C9C5884D063A079CFD670853AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Incantation - Vanquish In Vengeance (2012) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:206CF0CAC367FFCFE19BABE501F4989A150984E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ VA - Dance Extra Mixes: Freeze Push Songs (2012) [MP3|320 кб/с]<Vocal, Club, 
 ```bash
 magnet:?xt=urn:btih:6DE469F0ABFB736E71C5A433BF089EEDCF52F98E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5446D5561177BABBE1A3901040D5AFCBEFC68A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ B4 Let's Live For Today [01:51](   Читать дальше...   )Жанр: Twi
 ```bash
 magnet:?xt=urn:btih:287BF75DB18D65CC1AFC0FCACA441D88E525F12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Gold - Interbellum (2012) [MP3|320 кб/с]<Hard Rock 70's (Female Vocals)>
 ```bash
 magnet:?xt=urn:btih:63EB3FE0ADD748CED758F434B6418607184B5960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Animal Wallpapers (13.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:079692C79D42E901A4BA90102AF883D11A4501A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ Nature Wallpapers (13.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E835AB02F37DA83F70A8F28FB24D7220D8B9C597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42F280E4F2E2E468D3A7FBFBA3CC35E7F2F9DEF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59C96CB6D432356A0CF45EB16FF2FF00E3ADCD2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ VA - DJ Andrey Balkonsky - The Power (2006) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:72B64321BA7EDB123CCA5E444B0724D77468DFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10B88FE8C4F0F807B5CBD4B60054E728EE85313D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ Desktop Wallpapers (13.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E0AFCC12CD44E4192E031B4A65C2A74D5CAD3E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +545,7 @@ Jingle Cats - Here Comes Santa Claws (1994) [MP3|320 кб/с]<Other>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ Blutmond - The Revolution Is Dead! (2012) [FLAC|Lossless]<Avant-Garde Metal/Blac
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ Aura Noir - Out to Die (2012) [APE|Lossless]<Thrash Metal/Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ Jason McGuire - Distancias (2005) [MP3|320 кб/с]<Instrumental, Flamenco, Acou
 ```bash
 magnet:?xt=urn:btih:C7285E7FC7B50515BE851E69A738B8F2D5F2B100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ VA - Kuhstall Hits 2013: Das Beste Vom Apres Ski (2CD) (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:D7A998E2D89C177C0B8F895EF7912188A450C2F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +704,7 @@ N/AЖанр: House, Electro-HouseПродолжительность: 00:59:16
 ```bash
 magnet:?xt=urn:btih:320E5E1F0EA687B0E85C52BA07160EAA03981466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B814E75FBD9FF64A912EFCB6BCCEC0C02AC667B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

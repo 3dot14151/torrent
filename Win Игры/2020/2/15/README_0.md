@@ -19,8 +19,7 @@ Zombie Night Terror (2016) [Ru/Multi] (1.4.4) License GOG [Special Edition] (Ð¾Ð
 ```bash
 magnet:?xt=urn:btih:B2EBBF93607255BA6A353D4D4B45181B3D7310FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Debian KFreeBSD 7.2.0 [i386, amd64] (4xDVD)
 ```bash
 magnet:?xt=urn:btih:3620942DBBEB22FCD5A4CB38AC0F9A8779240E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

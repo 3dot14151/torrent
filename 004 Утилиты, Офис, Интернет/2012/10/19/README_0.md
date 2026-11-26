@@ -20,8 +20,7 @@ Microsoft Project 2007 12.4.6423.1000 SP2 Pro Portable [RU]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

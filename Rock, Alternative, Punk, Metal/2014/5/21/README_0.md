@@ -24,8 +24,7 @@ Last Days of Eden - Paradise (2014) [MP3|320 кб/с]<Symphonic, Epic Gothic Met
 ```bash
 magnet:?xt=urn:btih:C6E7F18C7CE08622A3BD7F65AD2C591B2220DAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:4350C00BF7FBC2C25FD2FB3C9D82B0566F958F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

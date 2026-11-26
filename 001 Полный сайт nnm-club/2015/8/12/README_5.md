@@ -18,8 +18,7 @@ Hearts of Iron: Trilogy / День Победы: Трилогия (2002-2009) [E
 ```bash
 magnet:?xt=urn:btih:4EFF856766417DD877148B8B2D7AE4A603054589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ S.T.A.L.K.E.R. Call of Pripyat Sigerous Mod v 2.2 (2012) [Ru] [OS X WineSkin]
 ```bash
 magnet:?xt=urn:btih:4F448BE0087F2257A8B88453FDD4D0E19B6F410C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Kali включает одну из самых полных подборок и�
 ```bash
 magnet:?xt=urn:btih:0CF299A663F09617A8AB2D53C37F872637D82755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ SsdReady 1.30 build 209 Pro [En]
 ```bash
 magnet:?xt=urn:btih:F720B5B37DB3BF1108431A83F458C05FB8E9B6CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3052934E7EB20D617E99148CD45CEF1526360D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ F1 2015 (2015) [Ru/Multi] (1.0.19.1175) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:F5228CCD598188AA2D45258646D33923C868315A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ VideoStudio Pro X8 создана для обработки видео и поз
 ```bash
 magnet:?xt=urn:btih:31734F9305888F0AFAF7571DD5AB994B101B59CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ KMSAuto Helper Lite 1.0.6 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:44D51FB41608A61C0DB526938E5C540C5E887A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ GeekBrains | HTML/CSS. Основы создания сайтов (2015) PCRec [
 ```bash
 magnet:?xt=urn:btih:1E901C22DCCF12F09E1AB9FEF143E5C083909B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0BADDCD6C68E648AB812EA67EC26C43870958C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB86EA31D65A61480F80DFED4E8DF2DA215323E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

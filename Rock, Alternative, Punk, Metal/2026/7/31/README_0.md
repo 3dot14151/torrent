@@ -22,8 +22,7 @@ Nazareth - Expect No Mercy (1977) Japanese Edition, SHM-CD, Reissue, Remastered,
 ```bash
 magnet:?xt=urn:btih:1C03D1B30CAA24614B2AFC081F893D2A12D4C3A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

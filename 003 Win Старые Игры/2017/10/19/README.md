@@ -19,8 +19,7 @@ Teenagent (1994) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:26D0BD427165D429B8971997786E6AF2DD7C782C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

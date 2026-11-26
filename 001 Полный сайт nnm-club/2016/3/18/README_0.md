@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0ED72079BF124B39CB395F6C55BC3E6142CAE573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Mental Effect (2016) [MP3|320 кб/с] <Psychedelic, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:60F4DBA330DE355B3EF7BF1D9202D826EC6B48B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ DJ Nike Twist - TranceWave 136 @ GTI Radio (17.03.2016) [MP3|320 кб/с] <Tranc
 ```bash
 magnet:?xt=urn:btih:20DD2FD1AE7AAE2B9DA34A62FB991DCB6F03D6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE00521CBEB0C9CE6A1B2318C06FCB140F71148C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Deos - .​.​.​To Depart (2015) [MP3|320 кб/с] <Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F0669B81938F824320CF1A16696356A8A1F93D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Neroche - The Crooked Mile (2014) [MP3|~225 кб/с (V1)] <Abstract, Trip Hop, I
 ```bash
 magnet:?xt=urn:btih:D8E36B77F0F24178C5D19D5D47A8C1179E6D9047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ KakaoTalk – это быстрое и многогранное приложен
 ```bash
 magnet:?xt=urn:btih:887E7A0FC38503C3DB3F5D19788D61BC5A3228EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Sogou Browser обладает собственной многозадачной
 ```bash
 magnet:?xt=urn:btih:43182F0B9FF55425A5A9AFDE6C0C50D399CEC3ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Toxic Waltz - From A Distant View (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:434820AA3C9EC1B2995A5C4AF4C0A51AEED4B9BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D887780065642C2CB51A0F5658ECE702FE295109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ VA - Spring Sound Party (2016) [MP3|320 кб/с] <Dance, Club>
 ```bash
 magnet:?xt=urn:btih:57C122AA75EB24E9E7A2C144BB65CED6D2EC8210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Who Ha - Khaki (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Retro Synth, Synthwave>
 ```bash
 magnet:?xt=urn:btih:6B815BF35929076CFD63CCB24A1D8BB54ECF8A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Emma-Gaala Awards - финская ежегодная церемония вру�
 ```bash
 magnet:?xt=urn:btih:FCF208D456CF318D0E8C4BCA7867A035CBFCFC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D383306FE9E2152DB254B833F88397DA185BBBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Who Ha - Out Running (2013) [FLAC|Lossless|WEB-DL|tracks] <Retro Synth, Synthwav
 ```bash
 magnet:?xt=urn:btih:2E982D7413222992A75857C42118F827E54C1678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Human Fortress - Thieves Of The Night (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:6B579EC42E05D9D47FE90F750F7F55FB1C575D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ VA - Sweet and Sexy: 20 Amazing Lounge Anthems Vol.2 (2016) [MP3|320 кб/с] <D
 ```bash
 magnet:?xt=urn:btih:3E8B696DE575E67B21EB1D89423F05AE024CDF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Freddie King - Burglar (1974) Reissue, 2001, Polydor [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:B440772168A12A277C295646DBCE1EC85E3154C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:189A6A4435D1FE438363728AE6A0DAC16DEA7593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED6DACA5A7FFD42019A5288A5D9BE1DCDE7F695F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:987710EDD950A03327C211A18BCA285983AC3CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61A3DA6BFDF59E60B7276369FF427F06E59760DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Agialis - Компиляция (2016) [MP3|320 кб/с] <Metal>
 ```bash
 magnet:?xt=urn:btih:FAFE2989E5CE0AD452B86E76ABFEC4638CB6E44D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ Spiritual Beggars - Sunrise To Sundown (2016) [FLAC|Lossless|WEB-DL|tracks] <Har
 ```bash
 magnet:?xt=urn:btih:352F91B932F4A6FA2E122E86BEAE9DB6829F0A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ Almanac - Tsar (2016) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:BC1A5C31E0A2EA0C30AFF0F9458DA12199670F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ VA - Nude Mix #2 (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:7454F3F2C8610D18FC8BE7071DC07C3255D1A18B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

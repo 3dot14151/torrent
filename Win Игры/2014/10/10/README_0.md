@@ -19,8 +19,7 @@ League of Light 2: Wicked Harvest (2014) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:AA8CE05265A74983B3C23724DB3DDEA565F70FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

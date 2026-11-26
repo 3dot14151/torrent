@@ -28,8 +28,7 @@ Antcorpus - Na Terra Do Metal (2013) [MP3|320 кб/с]<Thrash Metal, Old School>
 ```bash
 magnet:?xt=urn:btih:D36B7FC07737F40C8003AD3D05E51146C48FA859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ JettBlack - 3 albums (2010-2013) [MP3|320 кб/с]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:2C3DB9A2FC3781B054349C3D297AB87D027E4770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Iced Earth - Plagues Of Babylon (2014) Limited Deluxe Edition [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:A5BB7C2788F17E4A1933E64BCF66A1C9C24C37A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Gary Moore - The Platinum Collection 3CD (2006) [FLAC|Lossless]<Rock, Blues-Rock
 ```bash
 magnet:?xt=urn:btih:FC93EFFE905C87D6B86A32F0A1D011A8761DDCE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ One Direction - Midnight Memories (2013) (Ultimate Edtion) [FLAC|Lossless]<Pop R
 ```bash
 magnet:?xt=urn:btih:2E70FA82AB1C56C26A0FAD6CE77C4EDD0D82528C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Deep Purple - The Platinum Collection 3CD (2005) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AB574699B85B44D259631EAA5784048E0FE12185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Iced Earth - Plagues of Babylon (2014) Limited Deluxe Edition [FLAC|Lossless]<Po
 ```bash
 magnet:?xt=urn:btih:22963F426408B8FD41D257638ACC92E0A628CD12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

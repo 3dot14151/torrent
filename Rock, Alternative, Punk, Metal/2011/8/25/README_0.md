@@ -22,8 +22,7 @@ Nova - Atlantis (1976) [MP3|320 kbps]<Progressive/Art Rock>
 ```bash
 magnet:?xt=urn:btih:DDA83C1E00775D6374521448AF11892A9C12A4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:962D61024AE76B6039D83ED4E3413DEAA62B7D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Bonnie Tyler - Gold Musical Collection (2011) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:2CE700734380F5E1DC3D74FA727A554158EFA305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

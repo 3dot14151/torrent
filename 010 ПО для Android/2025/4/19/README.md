@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1B08349E8D8BB411642C602A64A47D7F557182EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ```bash
 magnet:?xt=urn:btih:A34070752FF29391A00443FCC2B753416BC85C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

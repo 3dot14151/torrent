@@ -20,8 +20,7 @@ WebDrive представляет собой мощный и простой в �
 ```bash
 magnet:?xt=urn:btih:BD421072CBE6AB6D898B6563E51448BC81E17DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

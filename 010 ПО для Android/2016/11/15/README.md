@@ -22,8 +22,7 @@ Prisma превращает ваши фотографии в произведе�
 ```bash
 magnet:?xt=urn:btih:649E14920F5CF2B212CA766CE8FC479EFB39B013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

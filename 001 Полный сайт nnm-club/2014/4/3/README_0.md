@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:95128159508BAD621AED6BB1E6EAE6BAB47E87F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07C52CF01C13BEA35329E2C4E8C7E2E19705A4A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:643FDD6D9E32E27ADE41E87FFD93960ABA77F546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A549169EC7422AE8DF2C95310A3CC244B44136A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ VA - Luxury Lounge And Chill Out Bar Groove Vol 1 (Cafe Deluxe Edition) (2014) [
 ```bash
 magnet:?xt=urn:btih:8F07B95852816EB5A2AC7D8AEAE207A0E6C0863C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ VA - Destinations Vol.3 (Compiled By Cubixx & Mindwave) (2013) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:46C78FF1ACBCF849AC795651F4B67B8BB309575D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Wallpapers - Грузовые автомобили-Mercedes-Benz [JPEG]
 ```bash
 magnet:?xt=urn:btih:4EBC932964563072D2C54E489529F6628F29F7E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB20F7E7E7C7C7AB6EDA33E1276AFC51E7C4117D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ MediaInfo позволяет получать техническую инфор�
 ```bash
 magnet:?xt=urn:btih:3B257702DEF92C42130BC9910986B0DED23E67F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ MediaInfo 0.7.68 Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FD120C6E5BDC245CC6DD95F8C36D44304EF2BD0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ The Used - Imaginary Enemy (2014) Limited Edition [MP3|320 кб/с]<Post Hardcor
 ```bash
 magnet:?xt=urn:btih:E2B36C7ED61D2174F9FC241CD3C17BD2B80BE90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61A8AD4D8D9D7A17A21F4268F7A7E31E0A586DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9FBEC11C9953DE9E2435385CD8DA93B2A4838AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ Timothy Wenzel - A Coalescence of Dreams (2011) [FLAC|Lossless]<New аge, Celtic
 ```bash
 magnet:?xt=urn:btih:F745C3CC600331DE0F48AF5D07ABB12E8DFD2A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CB44C7E1108C2F0C876F855C1B1F5F31E31AEE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84F6BE104DBEF403AD39FC9D53FBA799CEAECFF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:545FFDEF935EBC5A51B2A963BCB1B42D97464E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ VA - Universal Religion 2: The Awakening (Compiled By V Society) (2014) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:6EF31A72C23055D032927DAC4B97883F0C145F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A9CCFCCB9F7AC9BE7F4FF38EEE4BDADADE7F91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ VA - Радио DFM - D Чарт - Top-30 (02.04.2014) [MP3|~256 кб/с (V0)]<P
 ```bash
 magnet:?xt=urn:btih:47146C8D9AD74DBBB2DF6BE972B037D48063056E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:996B00D28D6548CC20119979B0F35409BE790ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +621,7 @@ VA - The Most Relaxing Jazz - Trumpet (2014) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:F243CAB05D8B5217B765965C0CC6AEFD941E83D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:1CA3564B7D41BDE5989D78F1622B5C446291A2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +675,7 @@ FilmConvert - обеспечивает сложный алгоритм прео�
 ```bash
 magnet:?xt=urn:btih:CBCAF47688AD8334E9D46D41A1DF8F7095C40130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +709,7 @@ Elbow - The Take Off And Landing Of Everything (2014) [FLAC|Lossless]<Alternativ
 ```bash
 magnet:?xt=urn:btih:1990DAC720E57DE325A880621B3334DBF9CD4863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C5E68E7C17E88F027D2FC1305C6E5A6984F356C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

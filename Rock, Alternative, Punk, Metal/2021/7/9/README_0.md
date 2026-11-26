@@ -22,8 +22,7 @@ Pastore - Phoenix Rising (2017) Japanese Edition [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:A12E19A5B14200BD7ED4421D15631F04E4AC5B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Aphonic Threnody - The All Consuming Void (2021) [FLAC|Lossless|image + .cue] <F
 ```bash
 magnet:?xt=urn:btih:1CA40186332BB661936AC9383ED4F36F79CAEA25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Thelemite - Thelemism (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CD94A5A573E94C87D699844F57CF03452C67F52D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tearfall - Wasted Days (2005) [FLAC|Lossless|image + .cue] <Gothic Metal, Goth R
 ```bash
 magnet:?xt=urn:btih:A97B70DF027338993B56AA7BB14EF535F2FA0EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Colin Bass ( ex-Camel ) - At Wild End (2015) [FLAC|Lossless|tracks + .cue]<Progr
 ```bash
 magnet:?xt=urn:btih:A09EB8F85F02AB92717A34101F938A90B5A3B372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Spearfish - The English Project (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:409F3E2C9C13EF12F37AB3570F9171689296CCBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sonic Weapon - Vanity (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:04015288840394D2D006CA425CD922E9267B05D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Vicious Rumors - Celebration Decay (2020) Japanese Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:7C1666B345EC5E99351D54DBAB61C8648643915C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

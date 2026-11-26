@@ -18,8 +18,7 @@ MiniBin 6.5.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:8469F97E73A26C9BE055ECEFA80A8FBEEA523D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:200907E9DAC8D2F26805A18A3622C85D2F8FFB28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ NG: Чудеса инженерии: Поезд / Big Bigger Biggest. Train (201
 ```bash
 magnet:?xt=urn:btih:51EEC1AA5125B7272391C5E219E41F2506E1EC0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Dangerous Games: Prisoners of destiny / Опасные игры: Пленник�
 ```bash
 magnet:?xt=urn:btih:A4F27A635A005E25D69CC4D997B8DA89F95F08DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4B59427F9F9429F074B221BD487A75B3F5018DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ avast! Free Antivirus 9 - бесплатный антивирус, работа 
 ```bash
 magnet:?xt=urn:btih:8FB73047D2D494478B98CF7D2FB7A53A933B1E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Discovery: Невероятные технологии (Создавая нев�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Perfectly Clear – мощный плагин для Adobe Lightroom от ком
 ```bash
 magnet:?xt=urn:btih:8EC9970EB85803575ED0CC6914A0E576B4A9A8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ NG: Чудеса инженерии: Метро / Big Bigger Biggest. Metro (201
 ```bash
 magnet:?xt=urn:btih:D3F87BE9FDDF866AAF7FF09C40BB0E6BDEAEAF05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ NG: Чудеса инженерии: Ледоколы / Big Bigger Biggest: Iceb
 ```bash
 magnet:?xt=urn:btih:08486C1286827A45262890A24D023DCFECD16B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ jRPG от авторов Disgaea. Отличается замысловатым 
 ```bash
 magnet:?xt=urn:btih:CC324FA4BC7221113256B6ABFF91C4D1A6991957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Discovery: Пятёрка лучших. Супер автомобиль (Пят�
 ```bash
 magnet:?xt=urn:btih:AD068A8F874978B1E75742A63394A29B3836A86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ NG: Чудеса инженерии: Тюрьма / Big Bigger Biggest. Prison (
 ```bash
 magnet:?xt=urn:btih:73C302B4DB9A59FCAB5E6650EEF2DC934556F509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9A09FEA649A2FED4B2E0F0C44975DA7D0D6E08C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A40C6455702A54CC07DAA309B3ED46B703026392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Total Commander - это самый мощный и стабильный фай�
 ```bash
 magnet:?xt=urn:btih:14B9AD8E17DAF6B220AB489A24F435A500717268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Singapore Flyer - самое высокое колесо обозрения в �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ VA - Trance Karma Vol. 1 - 13 (2013-2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:5F1EE7BCDFE733AFC0C7CAB5580AD251115A1D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ NG: Чудеса инженерии: Башня / Big Bigger Biggest. Tower (201
 ```bash
 magnet:?xt=urn:btih:9269B8BF40AD13A72D1E90AB536BCCF14D7702E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:30BDA43B90EDDB7F0B93E9523C494F9744D9B82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ NG: Чудеса инженерии: Купол / Big Bigger Biggest: Dome (2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6B6040DDB2FD118A7D327DA7B9F1B826257F471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ VideoHive - Darknight Logo Reveal [AEP]
 ```bash
 magnet:?xt=urn:btih:B78C2372BA6449FBB14506FB08BE01F09D045C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8721F86038FCE61AF2AA1011DFA222C9F23B4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CB730271177D00D24A7D4ED32FE4AFAF46DC236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +671,7 @@ NG: Чудеса инженерии: Дамба / Big Bigger Biggest: Dam (2009)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

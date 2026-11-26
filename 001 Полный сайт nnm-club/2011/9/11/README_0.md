@@ -27,8 +27,7 @@ Lacrimas Profundere - The Grandiose Nowhere (2010) [APE|Lossless]<Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Paimon - Contusion (2011) [MP3|320 kbps]<Drum 'n' Bass>
 ```bash
 magnet:?xt=urn:btih:32E3C73CF498D6DBE1A8FA2ACA9695F7C10E1607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ VA - The Best Remixes Vol.5 September (2011) [MP3|~316 kbps]<Dance, House>
 ```bash
 magnet:?xt=urn:btih:6E4814B8BE0415CAAEAD6373209219254F1A169F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49142F7A303EA08A00FC090A6CBA12B6CCEA0089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ VA - Goa Beach vol. 17 (Compiled by DJ Chris Nova and DJ Sake) (2011) [MP3|320 k
 ```bash
 magnet:?xt=urn:btih:DB874E7DC5633F1DE9E4E77530D810E2BE16976C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ VA - Осенняя 100ка (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:387B041CBEED7BC05654A841A5BEF997A0866D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Oleg Serkov - Epoch Symbol (2008) [MP3|128-320 kbps]<Instrumental Rock>
 ```bash
 magnet:?xt=urn:btih:9440E088AFBC5A22625F056F87E1E7CF4ECC5CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Kudsi Erguner Ensemble - Fasl, Musique de l'Empire Ottoman (1997) [FLAC|Lossless
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ VA - Dutch House August (2011) [MP3|320 kbps]<Dutch House>
 ```bash
 magnet:?xt=urn:btih:8DEFD174E0C6724611C8D5F7CC63D8D0D1AC6385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Arkan - Salam (2011) [MP3|320 kbps]<Oriental Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:57DB2FF277818088D608B136F9C5A68EB19E70F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C732D0EFDB77FCEC1038D1007398588A69FFFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +381,7 @@ Pete Tong - The Essential Selection (09-09-2011)[MP3|~219 kbps]<House, Progressi
 ```bash
 magnet:?xt=urn:btih:5C53E038458C781D49E7CA6EE8F8C8F68EABD73A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +415,7 @@ VA - Transition (Compiled by DJ Boom Shankar) (2011) [MP3|VBRv0 kbps] <Full On, 
 ```bash
 magnet:?xt=urn:btih:F064AC03B5F617290BFF22AD4B76B3E8E0661D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +481,7 @@ Pathology - Awaken To The Suffering (2011) [MP3|320 kbps]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:447E892AC134E93536E25E740B98CB81CD6F229E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8706EDE0FA1A6E8B897B13CA5E5793F579F05C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +540,7 @@ Aligning Minds - Universal Automation (2011) [MP3|VBRv0 kbps]<Ambient, Chillout>
 ```bash
 magnet:?xt=urn:btih:ACAED26994576CFEA072805C1F6AF060C0AE0849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75D8AFA322388F056A883345E126DB73BACD2CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:862127C71ED5B1D3D6E4AB014445232BAE0FA95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C941191E2A61C79869AAE56743713358151C7E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +677,7 @@ VA - TranceTop (11.09.2011) [MP3|320 kbps]<Progressive  Trance, Vocal Trance, Ho
 ```bash
 magnet:?xt=urn:btih:7AB33339D8CF072641F66878FC6F7C71B32BC7C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +710,7 @@ Darkmoon - Wounds (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B72F8FAC5F04416564A40F3FB899D2B52B99F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +764,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69732E34F9A67AB2D8DFB2A2D5BB06710C21AA55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -814,8 +789,7 @@ Cудьбе угодно было их соединить. Он - известн
 ```bash
 magnet:?xt=urn:btih:FD1D66EC8025CB9A7448E9F89F6107A7965A17C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

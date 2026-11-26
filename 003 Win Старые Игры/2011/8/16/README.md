@@ -19,8 +19,7 @@ S.W.A.T. 3 [Ru] (L) 1999
 ```bash
 magnet:?xt=urn:btih:4E613962F0B9BA5DF93A95B6B4C05742D2724B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Hobbit / Хоббит [Ru] (RePack) 2003 | MOP030B
 ```bash
 magnet:?xt=urn:btih:BE2489B0E0082D376CB6D9B612BFADA2C9A9E061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

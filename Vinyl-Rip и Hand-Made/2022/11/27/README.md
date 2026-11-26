@@ -22,8 +22,7 @@ Creed — американская рок-группа из Таллахасси
 ```bash
 magnet:?xt=urn:btih:033080AE11A8FAB841BABB0F6D12C6BB5E892E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E4281B0A873CEAECC0C3ADEC9348EB8CBE0E5060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Муз отрыв Фонтан хитов (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:EBBC6261EEA3B421BB645A73D7A24AC7B9844E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Disco Megamix Express (2001) [MP3|320 kbps]<Disco, Megamix>
 ```bash
 magnet:?xt=urn:btih:8B14C3404DDD3A2906AA32D4620CD5BCF5A8C897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEC5CC2EFD3BC42A7698D6D7279C9D9C0DD870C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E34AB80A6949D7ABFAA2BEEFFF82F106E13C1C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Richard Vallance - 3 albums (2002-2008) [MP3|320 kbps]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:DAA7FFA1E2FE1FD5B38575B08A43B92DCEE6DB93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ To Russia... With Elton (1979) DVDRip
 ```bash
 magnet:?xt=urn:btih:4BD7C9FF91B60F468F0B115C6736DECDAD6B8A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ VA - XXXL Максимальный размер удовольствия. Рус
 ```bash
 magnet:?xt=urn:btih:77017D67A66D9CBA45325563AC52FAA2B081D75E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ My Dying Bride - The Barghest O’ Whitby (ep) (2011) [FLAC|Lossless]<Doom Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E58D4FEF884C6019A29E890834183043DAE22D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ VA - DubstepKill v.5 (2010-2011) [MP3|320 kbps]<Dubstep,Drumstep,Neurofunk>
 ```bash
 magnet:?xt=urn:btih:8A440D847EBE44A9CA4C475EC806C466B5C0733A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76D3E1DD6F81E5EB6F0A48342179C0653E0D80AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02E2219F689028A9DB74F1E847D569A40A82A055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ VA - Relaxing Massage (2011) [MP3|320 kbps]<Relax>
 ```bash
 magnet:?xt=urn:btih:60C379BF0AC0711362CC8FAC256379A9650AA500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ Lauren Turner - Holistic Massage (2008) [MP3|320 kbps]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:241C88D9A72F9E6C5AC8110C7E95AE02E70736CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ VA - Лучшая 200ка Хит FM Осенний хит-парад (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:96B6082821EC9496B9824DEF53BCD0514E79DB58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ VA - Super Chart Radio Record vol.11 (2011) [MP3|256 kbps]<Club>
 ```bash
 magnet:?xt=urn:btih:D0209E80125C0E05733047E71841F33B85BBA8DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +577,7 @@ Voyager - The Meaning Of I (2011) [MP3|320 kbps]<Melodic Power Metal / Symphonic
 ```bash
 magnet:?xt=urn:btih:8D00AC1878A56E132F5B8975490395DC7183EFE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +611,7 @@ VA - Танцевальный Хит DFM (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:2FD9874DF84E2D9F5486EE6C8C5C04159F6583A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +645,7 @@ VA - Треки для Авто - TOP 55 (2011) [MP3|320 kbps]<Dance|Electro Hou
 ```bash
 magnet:?xt=urn:btih:81182E536624B4ACE37EC930503D778AB61E5C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFD4D4C43BAB5A73B9A2D002C0A1ED94A95A5FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A908888D02937928880B5AB9E8E550085F499E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +732,7 @@ VA - Лучшие Песни Для Братвы (2011) [MP3|128 kbps]<Шанс�
 ```bash
 magnet:?xt=urn:btih:16795CB59410EBED8B4F14DC7926A067A7E39ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +757,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79953C9195FC0F5D3CAB5C102FFAAEA6298D97B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -807,8 +782,7 @@ BurnAware PRO 4.1 Final + Portable [Мульти, есть русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

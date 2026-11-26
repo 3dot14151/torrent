@@ -21,8 +21,7 @@ Eric Pham - Castle Heights (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:E5501BF7FF08048FE298C849E571B8F1AD269B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Leaves' Eyes - Black Butterfly (2019) EP, Special Edition, 2020, AFM Records [FL
 ```bash
 magnet:?xt=urn:btih:68D6ECAC687175C0743D7EA3AE02F512FE219793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Gathering Of Kings - First Mission (2020) [FLAC|Lossless|image + .cue] <Melodic 
 ```bash
 magnet:?xt=urn:btih:6F6749DD7739F0FC760B4B18CA652D19E5565253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:07914F526E0D1EEC928EADEDA9A7A907EA1CB278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Il Castello Delle Uova - L'enigma Del Capitale (2020) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:0199CE67A58111AA11351B588B18AB830E32FE0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Disc №1 - And The Forests Dream Eternally
 ```bash
 magnet:?xt=urn:btih:0EB9783158B3C97873EBB5DE7C4B04C650510899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Silverchair - The Best Of - Volume 1 (2000) 2CD, Limited Edition [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:BE1AA72A846AAB09F193C2E95EC0F4001B49C214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Ozzy Osbourne - Blizzard Of Ozz (1980) 40th Anniversary Expanded Edition, 2020, 
 ```bash
 magnet:?xt=urn:btih:84E274797D56E561EB328947A1273BD86030C46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Myrath - 6 Albums, 9CD (2007-2019) [FLAC|Lossless|image + .cue | tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:2292A860491CD87F9C307D325F871A35FE1A9AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Doctors Rock - 6 альбомов (2011-2013) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B6C42211BBE17BF8505527DD5A435FDC7AD52B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ Steve Vai - 15 альбомов (1984-2016) [FLAC|Lossless|image+.cue|track+.cue
 ```bash
 magnet:?xt=urn:btih:9D5B7C2E0AD214AA39062A3E4F4D315F026AA7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Cold Chisel - самая известная австралийская паб-р
 ```bash
 magnet:?xt=urn:btih:FA48209783CC8566665D3C2B8D26497559CA9972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

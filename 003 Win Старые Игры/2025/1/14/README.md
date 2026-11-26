@@ -19,8 +19,7 @@ Bugs Bunny & Taz: Time Busters (2000) [Ru/Multi] (1.0) Repack Ma2012ks
 ```bash
 magnet:?xt=urn:btih:7725D29CA7FE481D5E0A74EED20DD78E2E89EDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

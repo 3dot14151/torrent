@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:70A0D42EB5F52E4FA02FC8B002979230C1C7A25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88EE1D249C02666E08548A274B9AD890290B56A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64C8F7410B21B2B0B9939886D31CB293D41A07DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Eric Alexander - Dead Center (2004) HighNote [FLAC|Lossless|tracks + .cue] <Post
 ```bash
 magnet:?xt=urn:btih:EB1DA7250947D42484FE87AA3796732A6A8ADFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5475F59A094A6EB71A867D55D321139981C53229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Nagelfar - Als die Tore sich öffnen... / Jagd (2017) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:FD6B1E80B68CC9502CE335315F917B8D36A31BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Invisor основан на хорошо известной библиотеке
 ```bash
 magnet:?xt=urn:btih:B4EA242540BB1F5D402EF3C0C26BD1C832C0CBDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49B899DF31E6C47E37FCB8D8C7E88780D3E187FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Kenny Barron - Sunset To Dawn (1973) 1990 [WavPack|Lossless|image + .cue] <Jazz,
 ```bash
 magnet:?xt=urn:btih:2998D97B658383BDE1335371A49D45279827C815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ The Pixel Door - 4/4 (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Contemp
 ```bash
 magnet:?xt=urn:btih:63823A7A73C36071C7DFB309B5B21E9A2B7CEAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Black Hole Trance Music 04-17 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:C41B8DD3CE8A3C12307052C1DA94C744D446399D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ Chronosphere - Red N' Roll (2017) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:D7FDCE9003649C5CC4B1F99A7D582C3B4382A7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Swoop - The Woxo Principle (1995) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Swi
 ```bash
 magnet:?xt=urn:btih:2D4E8613E001C288FACE3654020DAEF491519B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ Emerald Edge - Surreal (2017) [FLAC|Lossless|image + .cue] <Progressive Metal, P
 ```bash
 magnet:?xt=urn:btih:00B2F6D54936F4C1F2C39D235009CF7497F58E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Charles Mingus - Complete 1945-1949 West Coast Recordings (2001) Jazz Factory [F
 ```bash
 magnet:?xt=urn:btih:97B763BDFA42EB3FA0A6CE5FDB307B3B341B38B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ TextSoap  для Mac OS - Поможет подчистить текстовые
 ```bash
 magnet:?xt=urn:btih:73655E1A570A837C90C6EA469B38EA6A82DE6D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Miles Davis - Collectors' Items (1953, 1956) 2004, Prestige [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:EB1B0F0D5925EC5FBE1C2C2F472D5B7F7F152D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AA1DE839E04CBDB91016B8A53E964B2BFCA1A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ TunesKit Apple Music Converter - программное обеспечение �
 ```bash
 magnet:?xt=urn:btih:6F0B42F4F712530AB891443C5FD2200DFE25B57F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ Sky High - Stone & Gravel (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F567C9336C4627E028AE5535B4DF669544ECE6EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ Hidden Lands - Halcyon (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:3E1586D35F9277B392E794FF90BF25712F072934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ VA - Весенняя танцевальная вечеринка выпуск �
 ```bash
 magnet:?xt=urn:btih:4F76677ED5E13F65761594CA998A94630DE837AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ED9399DEAA46CF9485CE9BAADB2E8FF060F5BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B81D08467D1D6D15D2A35254F4BC80B9CC3D2258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ Nico Vega - Chooseyourwordspoorly (2006) EP [MP3|320 Kbps] <Alternative, Punk, I
 ```bash
 magnet:?xt=urn:btih:28201A8E76AD4A4417890DF5F044E2A3A2EF6D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

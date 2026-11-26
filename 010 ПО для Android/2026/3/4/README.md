@@ -19,8 +19,7 @@ MobiPDF: Редактор и сканер PDF  v11.12.270273 Mod by Balatan [Ru/
 ```bash
 magnet:?xt=urn:btih:81B071F6CDCE254C274A26D6321B09D5D7018974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pixlr - фоторедактор с множеством бесплатных ф
 ```bash
 magnet:?xt=urn:btih:BB065B843A2D18FCBF4D251E38284766372E904D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SuperImage — это ваш универсальный инструмент д�
 ```bash
 magnet:?xt=urn:btih:B85D40ADCCBC01FC0925A74387029F68887568BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AirBrush: ИИ Фоторедактор v8.3.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5C8580A571D4931B4FFB62D0AB78CF6E49D68DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Kitchen Timer / Кухонный мульти-таймер v5.4.0 GP Mod by Alex
 ```bash
 magnet:?xt=urn:btih:D1477F7D45C126A51CDF2DE75741A4F8EB48C0F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Call Filter / Фильтр Звонков v1.33.6 Mod by FreeSoftware [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CC5982497A2B123856160F1264A215A3CF99116D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ TVGuide v4.7.0 Premium Mod by Alex.Strannik [Ru]
 ```bash
 magnet:?xt=urn:btih:6454D95D510D1481EEACD4F2F28A3D7C21F5D7F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

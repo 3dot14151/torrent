@@ -28,8 +28,7 @@ Iconoclasta - Resurreccion (2009) [FLAC|Lossless]<Jazz Rock, Fusion, Progressive
 ```bash
 magnet:?xt=urn:btih:B2E34DC9890DF5C69CFF14D597B07AB98A8AD1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Shining - One One One (2013) [FLAC|Lossless]<Avantgarde Metal>
 ```bash
 magnet:?xt=urn:btih:534D005DDC35253FEE57DD305A05616A772A0733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Chicago - The Heart Of Chicago (1997) [FLAC|Lossless]<Jazz Rock, Fasion>
 ```bash
 magnet:?xt=urn:btih:F907A671C1E68B6AE34C14C18602CB3647B0F086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Yuka & Chronoship - Dino Rocket Oxygen (2013) [FLAC|Lossless]<Neo-Prog, Progress
 ```bash
 magnet:?xt=urn:btih:A846ACC8FA5C2CBC472BD5BF991DDD4F6F9581E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C9FFBE42C4A14CA69950673992777B5E85657625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Manic Street Preachers - Rewind The Film (2013) [MP3|320 кб/с]<Alternative, R
 ```bash
 magnet:?xt=urn:btih:2C35EC01AD41DB2C1EBF0027C792A665E61DA888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Sabaton - Swedish Empire Live (2013) live [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:381DEE913A9C8B156DFB277031D992E6FB644A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Dio - The Collection (2003) [FLAC|Lossless]<Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0C57105422AA135AAE0A6BD716D3E118A5B25D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Suzi Quatro - Rock Hard (1980) 1st Press, Orig. Release /1990, The Connoisseur C
 ```bash
 magnet:?xt=urn:btih:BAA72368EAE666440156390D57440315F11E7AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Eric Clapton - The Essential (2013) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F73074EFFEA632841B45AFBE3B3A990C0D50897F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FB79F5889FDEBF640ED105309FB59A08DE19C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +396,7 @@ Sting - The Last Ship (Deluxe Edition) (2013) [MP3|320 кб/с]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02407BB0C2BA1EAD637681776530C9ACBE395064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Shank - это культовое возрождение классическо�
 ```bash
 magnet:?xt=urn:btih:EECEEB87F52ACFCFA9FC7F07A42F68528A6C4E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shank 2 (2012) [Ru] (1.0dc120305) Repack Necros
 ```bash
 magnet:?xt=urn:btih:CCBB1F3661E2D37DB86414D450C769AE70D8A164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6946847/dlc) Repack Wanterlude [D
 ```bash
 magnet:?xt=urn:btih:71411864770CD5E012EB34FF41E1FFACEDF74BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Plants vs. Zombies 2 - продолжение забавной аркадной 
 ```bash
 magnet:?xt=urn:btih:2DBD0CA2E3AEE6C679ABEE7D29C406175016A42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (1.0.0-s.45+15021/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1CEE5A6B74ECA4CBE5258761926DF9AAC0FF518B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cat Quest III - продолжение популярной ролевой се�
 ```bash
 magnet:?xt=urn:btih:39D199EE0243FE0EAAB0DC6C3A6990D58FAB24EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Supper: New Blood повествует о Стюи С. Эпплтоне, е�
 ```bash
 magnet:?xt=urn:btih:0FCEDFB69A488C2CE3071C2DD7FCF1D12214C4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Supper - приключенческая игра, раскрывающая �
 ```bash
 magnet:?xt=urn:btih:EC1AAFC091C609B98374C397EE46EDB1A195B990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ ABRISS - это атмосферная игра с механикой на ос�
 ```bash
 magnet:?xt=urn:btih:F7D7DA4A55828A7E1CE9EB93EFB43470EB371B4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Icebound Secrets 2: Soul Hunter / Тайны ледяного мира 2: Охо
 ```bash
 magnet:?xt=urn:btih:49B29CF23BA1C4DF1DF1DF4767003116BC05C03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Enchanted Stories 2: PAWisoned Kingdom / Зачарованные Истории
 ```bash
 magnet:?xt=urn:btih:B18C5F6E2DC5112C2C2A1CE51EEDF94DD8053745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Train Sim World 6 предлагает освоить три уникальны�
 ```bash
 magnet:?xt=urn:btih:CBC337DA4BB19A08155D3D2984C6ED1D8C982987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

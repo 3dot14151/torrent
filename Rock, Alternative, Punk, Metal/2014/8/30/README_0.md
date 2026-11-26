@@ -28,8 +28,7 @@ Pervertum - Creature Of Ungod (1995) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:A7AA49F26557DEE84D24F581FA782918A4287E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Vorax - Guerra Mental (2011) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8B381FA0E4F4F8CEDB9965453DB3D85CD59DA535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Chiefs Of The North - Reach (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5ACA697128A45274DEF8317E4F66C87B9944CCE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Taberah - The Light Of Which I Dream (2011) [WavPack|Lossless]<Power/Heavy Metal
 ```bash
 magnet:?xt=urn:btih:9C1CAA18F713FDB303D1CA819EBE4A99C6B9E53F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F29EA0A3A87EC6F424AD7EFC886253E73F59E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Astral Doors - Notes From The Shadows (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CA8614944C878632FF58CA45EC182D3CC96AA16F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Broods - Evergreen (2014) LP [MP3|320 кб/с]<Alternative, Rock ,Electronic, Do
 ```bash
 magnet:?xt=urn:btih:69F4C39336D2367E60759850B12BB8FE35A3BE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Banks - Goddess (2014) LP [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:0EA5367E42106780883F0CF2B8D36C302DD4807A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Deadlock - The Re-Arrival (2014) 2CD [FLAC|Lossless]<Melodic Death/Groove Metal>
 ```bash
 magnet:?xt=urn:btih:818408FB3CD20F35ADE81C7987FD74C60616864E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ In Flames - Siren Charms (2014) [MP3|128 кб/с]<Modern Metal, Alt.Metal>
 ```bash
 magnet:?xt=urn:btih:333CB4453B584FBE66EB8B3629FE500954FD1547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

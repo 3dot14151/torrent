@@ -19,8 +19,7 @@ Lingvotube позволяет вам переводить субтитры дл�
 ```bash
 magnet:?xt=urn:btih:4EA9B11674CF02EB7E2BE85D21E24EE70D66BD9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Real Sketch БЕЗ РЕКЛАМЫ! Он включает в себя 8 мощн�
 ```bash
 magnet:?xt=urn:btih:FF6C578DE3A9DF5620CC9769E618A73BFDD3E85D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:FFDA4780CB38C22DC3F068E879373A0AE601BE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Floor Plan Creator v3.6.7 Mod by LITEAPKS, Maximoff ⁠[Ru]
 ```bash
 magnet:?xt=urn:btih:B72AB6E0973E70B4B3306169DCE3F97A3326C166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

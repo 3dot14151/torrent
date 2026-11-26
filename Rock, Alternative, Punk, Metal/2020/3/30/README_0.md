@@ -22,8 +22,7 @@ HAGAT - Извращение (2020) [MP3|320 Kbps] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:E6CDF17821FDFDD4F1C7104221D71CB8650D629C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anna Havoc - Anna Havoc / Последствия (2018-2020) [MP3|320 Kbps] <Cha
 ```bash
 magnet:?xt=urn:btih:B3D00953F536910BECB0B0D880A27357C11A00C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

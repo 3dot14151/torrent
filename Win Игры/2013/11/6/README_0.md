@@ -20,8 +20,7 @@ Journey of a Roach (2013) [Ru/Multi] (1.10.040) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9EEF718BCEB6E75051E6901847FB3068571E3C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

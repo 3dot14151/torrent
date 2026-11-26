@@ -19,8 +19,7 @@ Black Viper: Sophia's Fate (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:4E6693CFAF0EB31A7C38869F27DF0FA0F266295A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maestro 4: Dark Talent / Маэстро 4: Зловещий талант (2014) 
 ```bash
 magnet:?xt=urn:btih:134F8A9CBB66EB97DEF088405CA3F15426842493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

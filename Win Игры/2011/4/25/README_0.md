@@ -19,8 +19,7 @@ Fallen Shadows / Падающие Тени (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:3935C95802B85C41E5424046FEE4C2A7F61EDB40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

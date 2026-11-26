@@ -28,8 +28,7 @@ Roger Miret & The Disasters - Gotta Get Up Now (2011) [MP3|256 kbps]<Street Punk
 ```bash
 magnet:?xt=urn:btih:086F95B80C5ADC982D65F11495B8AE5AB5AFD750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - The Best New Blues Rock: Blues Breakers (2010) [MP3|320 kbps]<Rock, Blues R
 ```bash
 magnet:?xt=urn:btih:E9CE7550C06E3E84C0364920E5D49D985B69C802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E71AA9F7061AD88C90D0D5C6342108226177E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ The Platters - The Magic Touch Anthology (2CD) -  (1991) [FLAC|Lossless]<Rock'n'
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Queen - Golden Hits (2011) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Deep Purple - Beyond The Purple (1970-1976) Remastered 10CD Box Set /2010, Warne
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

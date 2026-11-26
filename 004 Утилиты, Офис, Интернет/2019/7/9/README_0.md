@@ -19,8 +19,7 @@ Flip Shopping Catalog - дает возможность пользователю
 ```bash
 magnet:?xt=urn:btih:17E18BE7F3D36747014492550C8F9DD642AB529D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ashampoo Photo Recovery 1.0.5 RePack (& Portable) by TryRooM [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B974B553CE7843B3A521E050C81E754E34712334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

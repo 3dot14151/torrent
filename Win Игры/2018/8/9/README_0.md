@@ -19,8 +19,7 @@ Shining Song Starnova (2018) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:C8951A4CB0476E78976CE95280D97BD20136E232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TransRoad: USA (2017) [En] (1.2.1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:E8FFA9B9C35AE99A18CDBE2533CA3E143D81CB8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deiland – однопользовательская приключенческ�
 ```bash
 magnet:?xt=urn:btih:895821C1A0D308090FE1A9A64442D83300967471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Basingstoke представляет собой суровый рогалик с
 ```bash
 magnet:?xt=urn:btih:BDA085A84C36F4928FF69FE433B579454C6B4F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Deiland – однопользовательская приключенческ�
 ```bash
 magnet:?xt=urn:btih:CB8570F4C29CB272BE8D6841DBC41C2622A3848F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

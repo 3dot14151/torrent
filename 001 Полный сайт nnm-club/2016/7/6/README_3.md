@@ -18,8 +18,7 @@ Titles Animation Graphic Pack V2 -  простой и элегантный ша�
 ```bash
 magnet:?xt=urn:btih:17B16CABC5AB92DFD2F5E9A6BB9B857AA957F89E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Disco Хиты 80 - 90. Выпуск 3 (2008) [APE|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:D888A8B3E8C008AB9D3CC60BF1D240F8B18BF07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44CE6D9F7BF42C06314032DF2015220A9A72476F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ PhotoZoom Pro - программа является лучшей из имеющ
 ```bash
 magnet:?xt=urn:btih:659C4BAF27BEFC6818427879819C6D6719EB84E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Hits of My Soul - сборник красивой и качественной э
 ```bash
 magnet:?xt=urn:btih:C675BF18BBE5691019EDE9EACCA476620C1DA302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ BitComet позволяет просматривать файлы во врем�
 ```bash
 magnet:?xt=urn:btih:63053334ED9FD9E8318FA337917755AD4BB188CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:544C99AADD9196649062D87DF48077F197D70A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE3DB29E9990A5A1A4F3039CB398B6C25DF733FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CE14E766A3D7EF9845E12874B56D1A007D7B420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CABB40D2D2DB82EF6BA3E5CCA65128C716189A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAE3834723D4C1FBA05870F8EB9674119A2C0A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Hero Footage Mockup Toolkit - презентационный шаблон-мак
 ```bash
 magnet:?xt=urn:btih:4283E4731AEB20C28BF13881E744888C4ED4CF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54AE484388FBDDEC70A75968C30A63AEFD16B5E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Memory Tree Slideshow - ностальгическое слайд-шоу для 
 ```bash
 magnet:?xt=urn:btih:3F0D303D8D4AAD7F055BAE059F31E75B2F29F245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ lee | Инструкция к реальности (2015) [PDF, EPUB]
 ```bash
 magnet:?xt=urn:btih:A59144D14AB0E1D5D0BAB44BCEE631391BEABBB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 ```bash
 magnet:?xt=urn:btih:F47CBF577960D0D9F3F70CE3DF297A34EF437913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0227192D173AFE69E0AF59F354B07A9CCD0786A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ Bishoujo Senshi Sera Mun Kurisutaru Season III / Прекрасная воите
 ```bash
 magnet:?xt=urn:btih:BF181A9F935881433220336A65396E18423CAD9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ Adobe Muse CC - создавайте великолепные веб-сайты 
 ```bash
 magnet:?xt=urn:btih:26C613763CF3C5F9EF84E2FC9E334ADAF01DAF25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ Brigador - это изометрический экшен, в котором и�
 ```bash
 magnet:?xt=urn:btih:0290C5C4233B9FAECBEEAB7FB6F16ED8674A6844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ Liquid Elements FX - шейповая анимация на тему жидко�
 ```bash
 magnet:?xt=urn:btih:9F2DA5FF157F5511139D11F059F891FB55BBF893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +557,7 @@ Adobe Audition CC 2015.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:55D5D69BD78D72DE92964B347C86FEDF90F998A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F8754C3F1C83B1A131E1AD0E10E1738693859C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1A323AB94AA7100425D38A27341A341B336FA7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DF840B3749F19A750D8F0A3070A9F76E72B0379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:6378390268AB93D00CAB2AC8621F0B53991F04F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

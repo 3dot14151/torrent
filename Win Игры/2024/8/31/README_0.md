@@ -19,8 +19,7 @@ Raiders! Forsaken Earth - ролевая игра с элементами стр
 ```bash
 magnet:?xt=urn:btih:EA831D869BD52EE9FE6C449C3F41951B6391EA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

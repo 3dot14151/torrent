@@ -19,8 +19,7 @@ Riddles of Fate 3: Memento Mori / Всадники судьбы 3: Помни о
 ```bash
 magnet:?xt=urn:btih:AE6366BB93F35D7D69623CEEE56B4046150D1790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ How to Survive – зомби-экшен на выживание, действи
 ```bash
 magnet:?xt=urn:btih:1A5FEFEBCC580BADEDBD2FF9EA46118980310A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ The Legend of Korra – экшен, основанный на одноименн
 ```bash
 magnet:?xt=urn:btih:5CBF656D8C505323888D0BC922181B1118270A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Enforcer: Police Crime Action - это приключенческий симул
 ```bash
 magnet:?xt=urn:btih:88D182522CF94C64246756B92AA6F3945FEB9C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

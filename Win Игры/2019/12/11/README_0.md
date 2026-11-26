@@ -19,8 +19,7 @@ Trailmakers The Centrifuge (2019) [Ru/Multi] (1.0.4.30476) License CODEX
 ```bash
 magnet:?xt=urn:btih:E8A4DC84D34D2FE44EB1E0454F1B860F6300C624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

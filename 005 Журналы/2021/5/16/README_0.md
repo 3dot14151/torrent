@@ -19,8 +19,7 @@ Glamour — ежемесячный женский журнал, первый н�
 ```bash
 magnet:?xt=urn:btih:D08F946790D2FDD95FF026F94192925DF0A5FACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Christmas Fables: Holiday Guardians / Рождественские Притчи:
 ```bash
 magnet:?xt=urn:btih:EA92C8D016277FC4521D1521DBEFB78622510022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alexey's Winter: Night Adventure (2021) [Ru/Multi] (Build 10121369) Repack Other
 ```bash
 magnet:?xt=urn:btih:B4B69FF5CD474DDA6B30D26042C5150CB687444D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

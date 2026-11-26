@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:80D277C1B0771D33B1118612DB8AE6D996B85270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Opera One 140.0.6074.18 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:15C2CE739936FDA7FE5F6C254440B8E61E02197B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:583DA1D87AF552F2B585FEFEBB8F14BBE12B098B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ AIMP 5.40.2731 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:34A86528686791A5C8A1E635620819B8155CB398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ The Land of Oqvara: Forest Realm (2026) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:AE48B06515C184C59E3BB60A41E9F8558F84CE1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ BALL x PIT - динамичный фэнтезийный рогалик, соч�
 ```bash
 magnet:?xt=urn:btih:3DA0DC2426764D1FE21ED634FE9F3E9C0F735C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ ReStem — это легковесная нативная десктопная �
 ```bash
 magnet:?xt=urn:btih:2EB38EA231E4AFF6C2C0A1B7EB97745DAEF91BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Handmancers - рогалик-декбилдер с видом от первог�
 ```bash
 magnet:?xt=urn:btih:06A69C304FCC47416209354A68C53935E9B30516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Noble Fates - фэнтезийный симулятор управления к�
 ```bash
 magnet:?xt=urn:btih:D541730634E807C5AF16E5623A11C25D0D141A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ STAR WARS: Galactic Racer - гоночное приключение во все�
 ```bash
 magnet:?xt=urn:btih:7AACD95B22C6C34486E567AE8495BB69DD81E759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ Scarecrow: 90s Crime Story - криминальная история в небо
 ```bash
 magnet:?xt=urn:btih:3B54B4886C95C7A18F10A94BA48EF1DEB4449021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ U2 - Carnaval De Luz (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:F67CE94DC851A69EAF204DFF7639881D4578D94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Descend - метал-группа из Стокгольма, Швеция, ос�
 ```bash
 magnet:?xt=urn:btih:2CC2002FF3FB64935AEDE4964FE5B95E0FC62CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:2756C15370A442D8F1A66BA2212501C0AC3A2392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ PTC Creo 2027.2.0.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EDB16C939369F1A9044E49B6C883F6AABC3D0D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC08E21C28F20FE5996077BB50F5DB40EC310C19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Adobe Media Encoder - это программа кодирования, кото
 ```bash
 magnet:?xt=urn:btih:CE3851D9C65267783EF7D67D7BC8008191D5F02E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Windows 10 22H2 (19045.7846) by Bruxer [Ru]
 ```bash
 magnet:?xt=urn:btih:2745A9EA7A933686E50AD0BAC8850BE6576BABD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:B47BF88A8DC9DE84B36D7507921AF8B41AFA1D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:DE53699882DEBA1EAA748B90D50F0268A99686E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:AB207E17706B5E392BAEEFAFC7CD306E6B60D77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:3591734539F7E068846AB6CC3F062B0FBC1104ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +575,7 @@ LosslessCut — простой видеоредактор для нарезки 
 ```bash
 magnet:?xt=urn:btih:0AE137B07319198492A92E887D1714C4C23EE6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ Wise Disk Cleaner 12.0.1.963 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ECFF2FD75108387716FF98D57BF08B4D705EA67F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +625,7 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:0FAC436A89ED3C6DEB333D4741179F267A8C43A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +650,7 @@ PTC Mathcad Prime - мощная система автоматизированн
 ```bash
 magnet:?xt=urn:btih:D5F3F272908DCB78544C48619B98C386CBF03642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

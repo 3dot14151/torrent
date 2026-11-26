@@ -19,8 +19,7 @@ osu! (2007) [Ru/Multi] (b20180510.4) Unofficial
 ```bash
 magnet:?xt=urn:btih:9F0AC8B811C00121C254F928E0DDF8E1DDDEDD99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GHOUL (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DEA5097F9A21600C6B75DA6502C8923B638B0758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

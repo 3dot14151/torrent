@@ -22,8 +22,7 @@ B1 Touch And Go • Рискованная Игра(   Читать дальше
 ```bash
 magnet:?xt=urn:btih:FBF43BC248540E603C906DEC9C075587250AC43B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Norther (сильный северный ветер) — мелодик дэт-�
 ```bash
 magnet:?xt=urn:btih:908F32F299D493744B4B5C15CD5B743391BD093A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.12894/dlc) Repack SpaceX [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:41402BF0E988DDECE8CAB406E73F6EA67B1E2FA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Little Nightmares II – это продолжение страшных прик
 ```bash
 magnet:?xt=urn:btih:A7BE4E05F7C4AB217F37D4090106979CDAC4F17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Railroad Corporation — ощутите дух Золотого века пар�
 ```bash
 magnet:?xt=urn:btih:461CF1BBE8DAA6A712D3CC3446E0C8059EFA8DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Arkham Horror: Mother's Embrace (2021) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EE2733CE93D5D35632D394C9650FB1E6CC24D521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Visage (2020) [Ru/Multi] (3.04) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5220D130CE6DC2A99A2508FE7046BF4E986DC9E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

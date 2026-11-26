@@ -22,8 +22,7 @@ Neutralization of Shit - Metal Covers Vol.1 (2017) Авторская разда
 ```bash
 magnet:?xt=urn:btih:78E2488244708D915382F39AC5717E818DD64F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anna Wise - The Feminine: Act II (2017) [FLAC|Lossless|tracks + .cue] <Alternati
 ```bash
 magnet:?xt=urn:btih:E82A71CF2A645B7AD7911C4FFBE944AFE5382EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

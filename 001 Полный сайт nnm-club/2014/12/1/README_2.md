@@ -27,8 +27,7 @@ Kenny Vehkavaara & Rob Piltch - Mediterranean Nights (2004) [FLAC|Lossless]<Inst
 ```bash
 magnet:?xt=urn:btih:80639659D387D57CBEAF1AA0F0DCB68DFD65532A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Konzertstueck in F major (Concerto version for piano and orchestra), Op.86
 ```bash
 magnet:?xt=urn:btih:4D692014AA599D37E114BC9B413D91E0F8C22F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ John Ottman - Люди Икс: Дни минувшего будущего / X-Me
 ```bash
 magnet:?xt=urn:btih:0ACA393F8011275F6294E8D8E6750C099ADA8DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:F1DD90C096DD1C2CEE445180550754D57BDAD700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Carlos Cipa - All Your Life You Walk (2014) [FLAC|Lossless]<Modern Classical>
 ```bash
 magnet:?xt=urn:btih:9C43D199484E37EED42E083C197697AF22B6B587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C63A2BAB2BE8A6A8A1E9F0483D4FB060FFD47ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D0BE3044AE369343DA12F7058278933544393C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ Medwyn Goodall - The Guitar Man (2014) [MP3|320 кб/с]<New age, Guitar, Relax>
 ```bash
 magnet:?xt=urn:btih:54A6ED36D2596D4BE1909A8981B39F23BC2C82B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ Pitbull - Globalization (2014) [FLAC|Lossless]<Pop, Dance-Pop, Hip House, Hip-Ho
 ```bash
 magnet:?xt=urn:btih:29256074F9A66B4CBB3881D0E20B35BE2DB7A8D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ VA - Drum & Bass, DubStep, Trap #13 (2014) [MP3|320 кб/с]<Drum & Bass, DubSte
 ```bash
 magnet:?xt=urn:btih:C72B930D87996CAD20A7416B1D7A7FB5444CF8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BFC64599DCE865A7FDFFE5BB9F417DEE3D096A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ PhotoCASA - красочный иллюстрированный журнал о 
 ```bash
 magnet:?xt=urn:btih:69E5403463EE7D738ED51E6027EBDAD8FE4CB57F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:549BB118B112F2533A29B535EF5EBFE7594046DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +485,7 @@ Groove - My Story In Progress (2014) [MP3|320 кб/с]<Drum n Bass>
 ```bash
 magnet:?xt=urn:btih:B1A7C59C7A1A0B67E71A486CBD7E9586DFC8BCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +519,7 @@ Orchestrated By – Negri(   Читать дальше...   )Жанр: Pop-Rock,
 ```bash
 magnet:?xt=urn:btih:587AA2CDC9837A31385AFC67FDD8C6E5655B0D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ Light Alloy – мультимедийный плеер для ОС Windows. П�
 ```bash
 magnet:?xt=urn:btih:47227C0F7350A5FAD0DF36E8D209EE74E5237F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:218139BB5E859309E265C59EFA4589DD412E1366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ NG. Дикая Аляска / Wildes Alaska (2012) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:D55BAE53557D0C4E0F484C9626E5212234A90DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:B1843B1660FACB85F5615C7B9A3E7FEAB862DFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ Bonus Tracks:
 ```bash
 magnet:?xt=urn:btih:8AE15CFE2D6B4F1FA66DAEA1D90C2C57F3F0E4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F19E2ADD2C85E6802BE1BE724CA574F3260043E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:61F4C7B8763BC7A94C08A128C6C33D06C2621478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEF3E5BF11D21F28AACA5C24BD5611D66BFFE288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ Green Crow - Ирландский Отбой (2014) [MP3|320 кб/с]<Irish Folk
 ```bash
 magnet:?xt=urn:btih:083A3DEE3F4B442C527A440899F6F63F2F994291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

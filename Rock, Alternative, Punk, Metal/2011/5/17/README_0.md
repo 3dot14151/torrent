@@ -28,8 +28,7 @@ Masterplan - MK III (2011) [MP3|320 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:9B943A87FE1A761FD5681BD0992EB082659CDBAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:DA3EFBED5A79A7B99F6F65472EEFC992BBC17D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91E9148973F6A6C85C485E9B5F04F55C5DB6E995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

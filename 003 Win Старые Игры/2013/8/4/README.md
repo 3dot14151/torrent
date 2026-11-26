@@ -24,8 +24,7 @@ Battle Engine Aquila / Боевая Машина Акилла (2003) [Ru] (1.0) 
 ```bash
 magnet:?xt=urn:btih:AFEB235691A31BE21A38A9B4623D889285DAEE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alien Trilogy - трехмерный шутер на тему фильма "Чу
 ```bash
 magnet:?xt=urn:btih:E1966FBDDC045CF7DFC909A9FB641EB28A447E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

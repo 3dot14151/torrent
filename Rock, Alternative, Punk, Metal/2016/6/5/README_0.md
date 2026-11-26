@@ -22,8 +22,7 @@ Billy Satellite - Billy Satellite 1 (1984) Re-release, 2000, ATM Records [MP3|32
 ```bash
 magnet:?xt=urn:btih:E819E05F5F1EA70B274C12754F058AED0B47A8E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Metal For The Masses 666 (2007) [FLAC|Lossless|image + .cue] <Death Metal, 
 ```bash
 magnet:?xt=urn:btih:1B6796B3C55DAB98B5F62D48FA5E43959F7F676D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Graham Bonnet - Back Row In The Stalls (2016) [FLAC|Lossless|image + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:873461C367BA46A29CB108C91ABE3B22806E57C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Airbag - Disconnected (2016) [MP3|320 кб/с] <Progressive Rock, Neo-Progressiv
 ```bash
 magnet:?xt=urn:btih:F3B819C0F53C7B8C6601A0F7618075CBAA0BBAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Death Angel - The Evil Divide (2016) Limited Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:2D2D0F26954736B4BD9862CBEA53AA4815A4EB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Kelly Family - Over The Hump (1994) [FLAC|Lossless|image + .cue] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:F9D948EFB477F9F0E4852530DDB8042F828EE971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:927560D2D402DECB72606B81B4292389C2FA11FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Keane - Greatest Hits (2007) [FLAC|Lossless|tracks] <Rock, Pop Rock, Brit Pop>
 ```bash
 magnet:?xt=urn:btih:2DA928171AD8EA644DCD3739E11E13A059530DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Kelly Family - Almost Heaven (1996) [FLAC|Lossless|image + .cue] <Country Ro
 ```bash
 magnet:?xt=urn:btih:083DAD1FBD0186DC0AA83902B1E97E387A243D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Porn - 4 альбома (2004 - 2011) [FLAC|Lossless|image + .cue] <Industrial, 
 ```bash
 magnet:?xt=urn:btih:36A4ABD7635920F6EFFBA62A79C0FD7735F80471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Disc 01:
 ```bash
 magnet:?xt=urn:btih:ECA61BEDC5FF8E809835AC2A9798D08E04315879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

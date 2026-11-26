@@ -22,8 +22,7 @@ Addict - Bang or Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:BC292B491D91E733B72B5B3F569A9C851F9283A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Raizer - Resurrection (2021) [MP3|320 kbps] <Alternative Rock, Electronic Rock>
 ```bash
 magnet:?xt=urn:btih:5D432E182F1CC2CD27406F86FC7777D1483982F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tremonti - Marching in Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 ```bash
 magnet:?xt=urn:btih:277137F7B644CAB04F55F5134B4641C243C07110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ ShadowQuest - Gallows Of Eden (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:28BAFBEB59670E1AB8159A134724326FB4491AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Attila - About That Life (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:60EE105AFC7F77367B771D17862BBD4695EC75B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Attila - Guilty Pleasure (2014) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:A69FD39069196A3F76392B2D8CCA4F57A7D6A278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Attila - Outlawed (2011) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalc
 ```bash
 magnet:?xt=urn:btih:B9C752A3D65689F932C7441798F75F68A5514963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Carcass – одна из наиболее влиятельных метал-г�
 ```bash
 magnet:?xt=urn:btih:22041FA6E9E2A6390A0E7E2E88598C02F30C545F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Status Quo Pictures: 40 Years Of Hits, 4CD Box Set EarBooks (2008) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:386066A65961FD32A0819AC6E18B7C74606B40DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

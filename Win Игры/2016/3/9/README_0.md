@@ -19,8 +19,7 @@ Cannon Brawl - революционный тауэрдеф с полной ра�
 ```bash
 magnet:?xt=urn:btih:F66FBB0B175FEC4464304B7D645BED4ABE835EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call of Duty: Ghosts [Patch + Crack] (2015) (upd20/3.15.1.0.0.702660)
 ```bash
 magnet:?xt=urn:btih:2334CFED607EE9D820407D8AEC4BFAF9E4E380EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chimeras 9: Wailing Waters (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:55092E25B4F1F1BF7A7E53224E9F456E03E0F87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Halloween Chronicles: Monsters Among Us (2018) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:F2092F2C0E186CFF4A6E465608093D8C4075C5B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Paranormal Files: Fellow Traveler / Паранормальные явления:
 ```bash
 magnet:?xt=urn:btih:4B907F6AC1C1625D4607E6D8E544D049E03C5181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5181B86DC457B30E309E81319334A2569EF0E347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

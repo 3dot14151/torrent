@@ -22,8 +22,7 @@ Hvile I Kaos - EP (2013) [MP3|320 кб/с]<Black Metal, Instrumental, Cello Blac
 ```bash
 magnet:?xt=urn:btih:649D27B3CD465EE3F0F2C006354BE1345628F4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ The Bats - 8 альбомов (1987-2011) Дискография | Discography [
 ```bash
 magnet:?xt=urn:btih:31B6E1E7EA8EA6141C5E14A413AC51CD1224297C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Hovert - Больше Ничего (2013) [MP3|128 кб/с]<Depressive Black Met
 ```bash
 magnet:?xt=urn:btih:A4AEBEC14DE3FB09FBBAA1A9459344F5A5FB131A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ The New Escape - Aftermath (2012) EP [MP3|320 кб/с]<Rapcore, Electronic, Post
 ```bash
 magnet:?xt=urn:btih:7BB2FFB5901564E6A874754E1DC89D70B134FA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Feed Her to the Sharks - The Beauty Of Falling (2010) [FLAC|Lossless]<Metalcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Dead Can Dance - In Concert (2013) Live [MP3|320 кб/с]<Alternative, Experimen
 ```bash
 magnet:?xt=urn:btih:780E1EA1660992F375A9A370352CDB8F028542BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Capture The Crown - 'Til Death (2012) [FLAC|Lossless]<Post-Hardcore | Electronic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ Guns n' Roses - Make My Day! (Rarities) (1991) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:96623880FC75896AB04E8B5A9D2C78D62CB79947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ CD 1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Fall Out Boy - Save Rock And Roll (2013) [MP3|320 кб/с]<Pop-Punk, Alternative
 ```bash
 magnet:?xt=urn:btih:8A823369BF48D034763F4A2C6FA25B0A04C04909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ Linkin Park - Greatest Hits (2013) [MP3|320 кб/с]<Rock , Alternative>
 ```bash
 magnet:?xt=urn:btih:8CF250098757A38CBFAB1766E2F2B7B86435C9C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

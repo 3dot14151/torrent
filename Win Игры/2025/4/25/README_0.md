@@ -19,8 +19,7 @@ Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:75111A58333DA219AFFDEE2812B57D87AF3D2AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Imperator: Rome - новейшая масштабная стратегия от 
 ```bash
 magnet:?xt=urn:btih:82D03DC0D76851C4FAD81EA2405E4CA873B6D253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BIOMORPH (2024) [Ru/Multi] (2.0.27583) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2DD8391894EC20890AD25142FFC00562D98CB609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digita
 ```bash
 magnet:?xt=urn:btih:5B4BD5622E5A88BEEB05D13BE8A544A7955CBC80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:42065530C951CAE36AEBB9D594A57D22257726C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack seleZen [Remastered]
 ```bash
 magnet:?xt=urn:btih:74AB2D8805347DC73F494F1C924CF326BBDC15D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Imperator: Rome - новая грандиозная стратегия от Para
 ```bash
 magnet:?xt=urn:btih:35BCE3A0850AFD3EE322DBAEDB0C3CCB42B564DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sker Ritual – фантастический боевик, который мож
 ```bash
 magnet:?xt=urn:btih:9CB2214B1BA0300CFF07BA8CEFAA5B7789B89539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Empty Desk - первая глава серии Detective Bennett: Solved Ca
 ```bash
 magnet:?xt=urn:btih:819BA89678AB9BEB31F58C39A1A6940B581028B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Firewatch (2016) [Ru/Multi] (1.12) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F1686744D6D2E8AE082D9461AC918989B7057C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.18.3.s.de/dlc) Repack FitGirl [Complete Th
 ```bash
 magnet:?xt=urn:btih:6BF314FF18C1B6E6C1FA97E9DEF4CC85D7103EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

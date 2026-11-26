@@ -19,8 +19,7 @@ SoundHound — ваше лучшее музыкальное приложение
 ```bash
 magnet:?xt=urn:btih:B2C77043E5AE59EB1B19DA1C813BB7825522046A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

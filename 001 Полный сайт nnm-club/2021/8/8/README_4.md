@@ -18,8 +18,7 @@ AutoCAD – это больше, чем проектирование. Прида
 ```bash
 magnet:?xt=urn:btih:53DE1B04FD23CCE2E9ACB30135B1C2FD2FBBD8DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

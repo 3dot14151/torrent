@@ -19,8 +19,7 @@ Farm Racer (P) [Ge] 2011
 ```bash
 magnet:?xt=urn:btih:5836D321F071BD31754A9C890CE455A60F830967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Expedition 5: The Uncharted Islands Collector’s Edition / Секрет�
 ```bash
 magnet:?xt=urn:btih:9CB0692E2563229D1B0512C0B92E9F7FAAC7A914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nancy Drew Dossier: Lights, Camera, Curses!  / Нэнси Дрю. Дело № 1
 ```bash
 magnet:?xt=urn:btih:FE6D6AF29B5BC1FC61970DF4AE0BFFADF9B6982B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Tropico / Тропико Трилогия [Ru] (Lossless RePack) 2002-2009 | R.G
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Star Ruler [Multi6/+] (P/1.1) 2010
 ```bash
 magnet:?xt=urn:btih:BE1BA1BB63D6173C234377519BBDA430392965D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Tropico 4 [En] (L) 2011
 ```bash
 magnet:?xt=urn:btih:5678FA18298FAB9F5426E4A8475FACAEC9CFF608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

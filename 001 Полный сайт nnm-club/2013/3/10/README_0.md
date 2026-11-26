@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EAD06CEECE9A7352B1C3C6FC97818175E0F6303D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95094838D62A69BFE15727206105E5C9BA8F23D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ VA - EdShar Music (09.03.13) [MP3|128-320 kbps]<DubStep>
 ```bash
 magnet:?xt=urn:btih:9D84FE2583771DA3819F38CA96E34ECF53444583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CE8B313E7A686C9BBB11E9E7AF1C915C550343B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ VA - 10 Years Armada 2005 (2013) [MP3|320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:92ACF8D1397C17165AAA46878958D0F00997BA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE143E929595A93DE3583D97457739654ADBE658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ VA - Планета Super Новинок. Зарубежный (2013) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:0349E3076501DA176735B70F7F182177B9F620B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:537F8148108BB9AFE504998A8D4A51A8532C6066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ Texx - 16 Лет Спустя (2013) [MP3|320 кб/с]<Rap|Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:D1AB18E0DDDDE00117493FEBC89CCB7C7CC20947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ VA - Pacha Future Dance 2013 (24/02/2013) [MP3|320 кб/с]<House, Electro House
 ```bash
 magnet:?xt=urn:btih:D0ED0C4E94D40AE5618755BBC5B8A75E1B726FDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ Epicrenel - The Crystal Throne (2013) [MP3|320 кб/с]<Epic Power Metal>
 ```bash
 magnet:?xt=urn:btih:FBACC527EC3F31D5C51E63D9EDAE17C3ECE9B7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D82BFC31BC44E58CE003F32B5973CC01A87429B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CDB95927DABE8206CF820B9FD149AE1CA346615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ Koan - Mitakuye Oyasin EP (2012) [FLAC|Lossless]<Psybient, Downtempo, Ambient>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ VA - 2013 Miami Trance (2013)
 ```bash
 magnet:?xt=urn:btih:BF1F5AFD82A6AF9546C4C76518293D961870EB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46F80B7A8F8CDCED2B259BF90FE78942E936CD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ Dj Sveta compilation - Relax (2009) [MP3|320 кб/с]<Ambient>
 ```bash
 magnet:?xt=urn:btih:3B2A87E5D199A31E5831EA915FF370028F97FF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2288C7F9A21E5C234DCE1DB7CF7AE3359AE85C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15F563991ABD5CFFE2954396FF0271561E160808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +572,7 @@ Discovery: За кулисами: Дивали / Revealed: Diwali (2011) HDTVRip
 ```bash
 magnet:?xt=urn:btih:030373077652BCBC671719D209717FCC7F8F646F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ Roger Shah - Openminded!?(Remixes) (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:02CCD2F72C02E0A88D010E6129FA6A7BDE99D2A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DB272BB43BEDA5C715771CDA0A0F026AFD992E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ Chris Venola - Sixteen Miles (2013) [FLAC|Lossless]<Tech House, Deep House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ Chillout Cafe & Oksana Lygalova - Feelings & Desire (mix) (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:A31D06B522DA4D4CA07F1B9A7D460A6985EF40BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ African Tribal Orchestra - African Groove Lounge (2013) [MP3|320 кб/с]<World,
 ```bash
 magnet:?xt=urn:btih:63677D0DFF74928B19DDD799C0D1525D3EDFA285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ Dj Sveta - Infinity (2013) [MP3|320 кб/с]<Progressive House, Progressive Tran
 ```bash
 magnet:?xt=urn:btih:12A06F7992A19325A96BA895FB9DE567A7BE11DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

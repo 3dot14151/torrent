@@ -22,8 +22,7 @@ Manatark - Chaos Engine (2003) [APE|Lossless|image + .cue] <Black Metal, Progres
 ```bash
 magnet:?xt=urn:btih:1CAD72115F3C1E0E18E5F7436EEF7426CBA44F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Deadlock - Manifesto (2008) [FLAC|Lossless|image + .cue] <Melodic Death Metal, M
 ```bash
 magnet:?xt=urn:btih:AE194A0A13A87AFB530FC06F66AF0728F01D4CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Light In The Ocean - The Light In The Ocean (2019) [FLAC|Lossless|tracks] <R
 ```bash
 magnet:?xt=urn:btih:82E120FBC257508513126B256F6564E6C8C509A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

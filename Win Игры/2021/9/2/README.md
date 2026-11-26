@@ -19,8 +19,7 @@ Twin Mind 2: Power of Love (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:7658E919995F15E8258024F88C890421BF0EBB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World of Horror (2020) [En] (0.9.17h1) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:546C2C170942A74F6AF195FB7E016121D8031E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Frosts: First Ones (2021) [Ru/En] (1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DB14BC1F30F4AFD78B8CA88E834E644D35F86807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Action, рассказывающий историю, в основе котор�
 ```bash
 magnet:?xt=urn:btih:A4B828F15231AF4016F68E7449123B7A1A09A27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kitaria Fables (2021) [Ru/Multi] (7286275) License CODEX
 ```bash
 magnet:?xt=urn:btih:637024E83716F5B40AEF273DA790C2BA9EFDE94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ OPUS: Echo of Starsong (2021) [Multi] (7280057) License CODEX
 ```bash
 magnet:?xt=urn:btih:50523557740221D6DD3F2C3C616DB737BF804C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Lake (2021) [Ru/Multi] (1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C25BD4D12A2961DC49D21D4215D60E5E53004844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ AC/DC - Ballbreaker (1995) (2003 remastered) [MP3|320 kbps]<Hard-rock>
 ```bash
 magnet:?xt=urn:btih:68CB676A077A0881D47386B4729A113C54C107AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ W.A.S.P. - 13 Albums + 7 Live + 4 Compilations + 20 Singles + Demos + Projects E
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

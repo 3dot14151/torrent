@@ -22,8 +22,7 @@ Klabautermann - Innsia Ut (2017) [MP3|320 Kbps] <Norway Rock>
 ```bash
 magnet:?xt=urn:btih:A94AAB6608C5AD164A8C05E0686B72D049A40EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

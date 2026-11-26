@@ -19,8 +19,7 @@ The Dawning Clocks of Time Remake (2024) [En] (1.0.4.0820.26) License GOG
 ```bash
 magnet:?xt=urn:btih:696549DC99FBEDCC4A71949016802E0FFE0A329B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FOOTAGE BODYCAM / FOOTAGE REC (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4E001E7AB82679089A7E898C9F2ABDC8F1BB11A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Lord of the Rings: Return to Moria (2024) [Multi] (1.3.2.157411) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0ECA5CA2700311FDF75B44C94BCE062843DB89B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:E2C527A03CE0EDB948E0F85FC9FD265FC0315D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dark and Deep (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:181406E554DF2638E775C010A56ACF95379DDA74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sunny Cafe (2021) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:72CE0FAA78879DDC7B1A39B5D4E62BBD061BBB70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

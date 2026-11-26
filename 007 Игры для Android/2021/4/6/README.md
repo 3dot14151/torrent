@@ -19,8 +19,7 @@ odern Combat 3: Fallen Nation - один из лучших и реалистич
 ```bash
 magnet:?xt=urn:btih:582B768F0163A059F5F622880ACF95F9F13E7B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Modern Combat 4: Zero Hour - новая сюжетная линия популя
 ```bash
 magnet:?xt=urn:btih:25227F10940619A9E96CAA3D1986AA9557B21B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

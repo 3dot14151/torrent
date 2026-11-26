@@ -18,8 +18,7 @@ IMAX: Африка - Серенгети / Africa - The Serengeti (1994) BDRemux 
 ```bash
 magnet:?xt=urn:btih:52372EEBE3DFD9BF8683323C7BCDA8F59234372B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Travis Tritt - Ten Feet Tall And Bulletproof (1994) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:52ABAC63B5A5F61E4E0C0697673ADFB3102E010A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:561B5B76BD722EFCE7E4433D9E5403E8652F1410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ IMAX: Амазонка / Amazon (1997) BDRemux [VC-1/1080p] [VO]
 ```bash
 magnet:?xt=urn:btih:A7C2C3C63FF81522CDC8749DB0416AA06DD138AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Caligula | Калигула [2018, TV, 12 эп.] BDrip 1080p raw
 ```bash
 magnet:?xt=urn:btih:A66CBBA3082DAE4D02EA281E76B75E9876C600F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Discovery. Махинаторы / Wheeler Dealers (2018) HDTVRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:270D4814D769694843BFF366E6748FD8084402DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Scaler это уникальный и вдохновляющий MIDI инстр
 ```bash
 magnet:?xt=urn:btih:27A4C52D5A9244EEA25A021CCEB980895EC601D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Hand of Fate 2 — это «ползание по подземельям» в с
 ```bash
 magnet:?xt=urn:btih:1AC76C7DCACD38396E2F7F4A148DFFF5D0BB8E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FEEFD1BA41CA83494D250FA2A7D1274379D7D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Movavi Slideshow Maker – это простая и удобная програ�
 ```bash
 magnet:?xt=urn:btih:1EB8BF216FDDF6FB366B4F303F1635DC846A7DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ VA - Михаил Танич. Из старенького (1994) [APE|Lossless|i
 ```bash
 magnet:?xt=urn:btih:63C90070ADEE270B57AD1FC2FE5460FA6E6D0012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ C 15 февраля в шоу Голос дети новые наставник�
 ```bash
 magnet:?xt=urn:btih:0AE9E3BE8FFC5805B736BDDD5A3B18578030373B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Secure Eraser – программа для полного удаления да
 ```bash
 magnet:?xt=urn:btih:2AB331DEABA13B14F04F906391F741389EBA03F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C87A114A8D78936B6D57304673E9B39687C59E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Discovery. Махинаторы / Wheeler Dealers (2018) HDTVRip (сезон 16,
 ```bash
 magnet:?xt=urn:btih:67178DCDCBFFB053C80E4401E87DD6763FE4FB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:994E77E5AC26EA372F884F4A3C79108EB92A182C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B70A10264FBD6D9F0155FEA18EC30B09C357C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FBF1BAAAB801BE28A317DE14CA8233BE5ACDC62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:878FDCCB07175AFC2D4CE32A4488FCFA153969B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ Enforcer от Boom Library — басовый плагин, который на�
 ```bash
 magnet:?xt=urn:btih:230C5A9A912E8DFA4574CC78D0653345D34AF2CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B29E84F11AA7A858E7C0DCDBCE65AD35FAFD5CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C31998823B49D50D314B2154E9A3F30BDC7A885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCBF479F47F2A1DB6E78C491E71836614FDF92F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ BELOFF [dp] 2019.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:C183E72123702E54AD578E68C74D13B82CB138C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ VA - К Дню 8 марта (2019) [MP3|320 Kbps] <Шансон, поп>
 ```bash
 magnet:?xt=urn:btih:E91192D02100F079E8F49EC23147BC0465A53EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4134E1FB4BFFF3CC298524A94F4855E04B35F9BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

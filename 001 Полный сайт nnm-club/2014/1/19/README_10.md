@@ -19,8 +19,7 @@ The Elder Scrolls V: Skyrim (2011) [Ru/Multi] (1.9.32.0.8/4dlc) License PROPHET 
 ```bash
 magnet:?xt=urn:btih:8FFCA7415D7326240FCF5AD4EB46CE5655B1BB44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Adobe Photoshop CC (v14.2) RUS/ENG Update 3
 ```bash
 magnet:?xt=urn:btih:968BEA52349E789939AE9E27824562D201136170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

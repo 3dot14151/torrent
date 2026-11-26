@@ -22,8 +22,7 @@ Viрer Solfа - Carving an Icon (2015) [FLAC|image+.cue]<Melodic Black/Gothic/Po
 ```bash
 magnet:?xt=urn:btih:AEDAB53CDB16867FE00656DE3F635B09CD136C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ StormНammer - Echoes of a Lost Paradise (2015) [FLAC|image+.cue]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:4FAF9F1A2CDBA436D9C5491E71A16F6D003AA8BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Deform - Dominanta (2015) [MP3|320 кб/с]<Alternative, Gothic, Industrial>
 ```bash
 magnet:?xt=urn:btih:146191A8ADAEA70A9F5C701CF47B0618257C5246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The V - Now Or Never (2015) [MP3|320 кб/с]<Hard Rock, Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:D75CB311738E36F5DBB1E0775105AB6AD89F8365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Disciple - Дискография (1995-2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:CE322D1CB1AD84D1A0100E50AAC4CFC8D0C5C606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Shocking Blue - 20 Greatest Hits (1990) Compilation /1991, Repertoire/ [FLAC|ima
 ```bash
 magnet:?xt=urn:btih:2EA90B59F06DFE2E71B2809CCFDDD096E670F02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C915979B00D83B28EBC71AE224570359498F04B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

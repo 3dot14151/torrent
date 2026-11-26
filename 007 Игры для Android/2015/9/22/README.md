@@ -19,8 +19,7 @@ Clash of Clans - Эпическая андроид стратегия, в кот
 ```bash
 magnet:?xt=urn:btih:C8E3D680CCD9440621945B761B6AA72C8DC4660D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

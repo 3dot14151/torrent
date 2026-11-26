@@ -19,8 +19,7 @@ Mighty No. 9 - духовный наследник легендарной сер
 ```bash
 magnet:?xt=urn:btih:55D4E5B40EF54DD2ACB02ACA4811C8E9D7CDC2F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Tygers Of Pan Tang - Ambush (2012) [APE|Lossless]<Heavy Metal/Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Daylight Dies - A Frail Becoming (2012) [FLAC|Lossless]<Melodic Death/Doom Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Angelus Apatrida - The Call (Limited Edition) (2012) [FLAC|Lossless]<Thrash Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +138,7 @@ VA - New Rock'n'Roll (2CD) (2008) [MP3|~245 кб/с (V0)]<Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:E853491D6B1C6BF916BADDB002A14A1BD0DDDCCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +172,7 @@ Deep Purple - Aged Ballads (2004) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:414217D349AA23507CC99816C9D71F15B92F36FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +206,7 @@ Kamelot - 2 альбома (2010/2012) [MP3|320/256 kbps]<Progressive Power Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +240,7 @@ Ken Hensley - Greatest Hits (2012) 2CD [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +268,7 @@ VA - 100 Hits. Driving Rock 5 СD (2012) [MP3|320 кб/с]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

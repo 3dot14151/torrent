@@ -19,8 +19,7 @@ Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Sveta Smirnova, Alkin Tezuysal | MySQL Cookbook, 4th Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:C2FF589E9D0F31B2924992D8731DF4FFC7A647F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Nagender Kumar Suryadevara | Beginning Machine Learning in the Browser (2021) [P
 ```bash
 magnet:?xt=urn:btih:C3A767D2E4CF5F51DB55587E438F0734D4F438C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Cliff Sharif | Game Development with Unreal Engine 5 (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A38774838214CC324FFEB5CEBF19BAC7A5EEAC7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

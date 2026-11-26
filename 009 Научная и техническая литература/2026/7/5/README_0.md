@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:384685FE1AF3B6835CB0C3AF43C5AEADD36DB4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:706964E9150B226A7F8F9E63A7C61E1333735B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ D. B. Dowd | Reading Pictures: A History of Illustration (2026) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:DF64BFAE77B6D606808B8E3FACA2CB76D0E57DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Electrophazz - Growing Strong (2013) [MP3|320 кб/с] <Jazz, Acid Jazz, Electro
 ```bash
 magnet:?xt=urn:btih:7B72C0649A305BD14D124989226CDDB4456234A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Lou Mecca, Bill de Arango, Chuck Wayne - 3 Swinging Guitar Sessions (1953-1955) 
 ```bash
 magnet:?xt=urn:btih:3D25B6C1C867699F80C9CDB878798A9271DDE104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Mister Jim - Set Sails (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Blues, A
 ```bash
 magnet:?xt=urn:btih:0B8EEE7E4840CDC956445B761A3782849F9F29DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Medwyn Goodall - Manitou the Great Spirit (2015) [MP3|320 кб/с] <Native ameri
 ```bash
 magnet:?xt=urn:btih:5F71F8C2C906318368B28F07C879082E15727903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Kathryn Kaye - There Was a Time (2016) [FLAC|Lossless|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:5CEB72BF50580908C7709A565D01E6181DC5F880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Весна плюс 5 (2016) [MP3|256 кб/с] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:2B198C85F4AC88D1D155826323ED73E17C9F78FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ BetterZip – удобная работа с архивами
 ```bash
 magnet:?xt=urn:btih:DC8BA5D8D59249E1C71D28BB78BAC174ACBC42E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCF4BAC2395303B0660D83CF01DB7B0F907747F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Danny Rayel - Blue Skies (2016) [MP3|320 кб/с] <New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:1BD05D58284107DF847302BD83AF548133E16F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D79FE21E65A55DC1597B29A79301BDE2236D8B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ VA - Workout Motivation Mix (2016) [MP3|320 кб/с] <House, Electro House, Club
 ```bash
 magnet:?xt=urn:btih:08AAA264EA1CC67339D6CFE558D8DA4E7E9349F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Timelime является идеальным помощником для:  Фр�
 ```bash
 magnet:?xt=urn:btih:93A9391023249DFC82E95A7663458B3DB5126011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Instant Translate 1.0.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FD38097583083F5D0F3F42476DCCFAF1A8A4AF2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ DesktopOK - небольшая бесплатная и портативная (�
 ```bash
 magnet:?xt=urn:btih:F196BD65318C5CEC49522790FC3EC349659F876E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E89B13601E0DF689A0E21600737AF63C6643EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ VA - Strictly Pop Classics (2016) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:636ADFFBD29F0B3922EA498F539344781A93978D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F7FA17F6947CC7F5BF6DA18093440AD6C01CBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88ADEB08D19A1C516E8EE29500590DF7590EB97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4C3C116EBB9652C8609789A9B078B8BBF29937E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ The Exorcist
 ```bash
 magnet:?xt=urn:btih:225D5A70BFA7CEC33B8108E67B0EB0A43A02F1F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Midnight Eternal - Midnight Eternal (2016) Japanese Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:D52C28560E6F740EFFB0DDD1796DDD2040C88D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42C5364CFE7562DCB2438F63D8B4864631D0BC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ VA - Top 80 Dance Club Discotheque (2016) [MP3|320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:07D5E44CBA97C51398DF03C05B7D8DA25C002AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43BC4C7C431FED64923442F3FD30DBD2C29049E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC798118A37A5CF213447B55E7D93F7B6EA45378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

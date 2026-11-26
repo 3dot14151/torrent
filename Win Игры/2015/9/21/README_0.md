@@ -19,8 +19,7 @@ Dungeon Souls (2015) [En] (2.0 HotFix.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B288A2ACACBCBB09E0754DC2F58B5AD7F37AA383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Masterplan (2015) [En/De] (1.1.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:92CFD5228CB640FE91661E52715CF3F68C788A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Insanely Twisted Shadow Planet - это аркада про то, как учё�
 ```bash
 magnet:?xt=urn:btih:A73619197B67C4DC9861C322508C55CC012058FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ bit Dungeon II — динамичный RPG-рогалик со случайно
 ```bash
 magnet:?xt=urn:btih:23507D3BBFA63FA96A7841E479FEB71E294A0B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

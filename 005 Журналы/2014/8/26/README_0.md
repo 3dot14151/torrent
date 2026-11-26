@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A578FFA8F84B0357D7310AB1F20C657846D79BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ IT Weekly — информационный ресурс для професси�
 ```bash
 magnet:?xt=urn:btih:7D3170A08ECE23CF800496D92BD0C1E20DB75FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Family Handyman - зарубежный журнал для домашних 
 ```bash
 magnet:?xt=urn:btih:086502F81F3BA05239861A025BD210D5000E647C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ The Family Handyman - зарубежный журнал для домашних 
 ```bash
 magnet:?xt=urn:btih:A2517FC9C805D79B7D2D9A557A0C6D42EF197ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FA3CB3EF5A33114FA228918516C1150543588EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ The Family Handyman - зарубежный журнал для домашних 
 ```bash
 magnet:?xt=urn:btih:30267F1F04624C8C36C7322E92379A3BCEE8A569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE8933A48187A0E85F283AC27433002A7AE45D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2FB14591CA5B671CE90E27523C8DC8E038BE580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Subway To Sally - Hey! (2019) [MP3|320 kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:3D16904911E5F0FA8001FF089CF3D9B78A2F2709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Joe Stump - Symphonic Onslaught (2019) [MP3|320 kbps] <Heavy Metal, Neoclassical
 ```bash
 magnet:?xt=urn:btih:5DE7461D248F27B892A1CB56B745902013458053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72EA17851DCC0095F334039A9FC894E196F73168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Periphery - Periphery IV: Hail Stan (2019) [FLAC|Lossless|tracks + .cue] <Progre
 ```bash
 magnet:?xt=urn:btih:0EE0E2636C1B8D5FE3D7C012F73C6F2F60A978DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tom Petty and The Heartbreakers - The Best Of Everything (2019) 2CD, Compilation
 ```bash
 magnet:?xt=urn:btih:7AC07A4268F43057C987EE04204B4636A7EEE749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Hanky Panky 1966 1 album
 ```bash
 magnet:?xt=urn:btih:E370ED593DEEF9B9920CC2CFE15B1B6A3FC83EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Eluveitie - 3 Альбома + 1 Сингл (2014-2019) [MP3|320 кб/с] <Folk-
 ```bash
 magnet:?xt=urn:btih:09555ECD7F706A4636F409B02A12D1A2EC0106CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Born of Osiris - The Simulation (2019) [FLAC|Lossless|tracks + .cue] <Progressiv
 ```bash
 magnet:?xt=urn:btih:E722C57E9CE386A34D412259A0FC8E77523FF02D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ State of Decay 2 - игра-антиутопия про выживание в о
 ```bash
 magnet:?xt=urn:btih:A0CFED0B8A2B84BE52120ACC98D3C004C1DC0628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 ```bash
 magnet:?xt=urn:btih:9837B011C4B7256F1AB4F1A3E85BCCC95D28216C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Let'sРlay [D
 ```bash
 magnet:?xt=urn:btih:D970995DF84210F0E8A41BCCA42E1F9B4ECE6A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chess Assistant - это инструмент управления для орг
 ```bash
 magnet:?xt=urn:btih:D63E91DA9ED9F5798623DDEFA799909465E248D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ NDIKA — игра от третьего лица с историей о стр�
 ```bash
 magnet:?xt=urn:btih:74F8F67C7BDC5D064053FF5AFC15B07E45891F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.9) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7EFBFEE842CC8B7BB645068739771903C8B094C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

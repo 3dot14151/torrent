@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:6DAEF4D9EE437F63C2278719AD51EF119F436C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Airbourne - Black Dog Barking (2013) Special Edition 2CD [FLAC|Lossless]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:65A1802F6D81B7F562423A7BFED629B965A7932A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Fruupp - 4 альбома (1973-1975)  Discography, 2009 Remastered [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:2AFF8CEE2B25E02B64A10398B6F01287D226E663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Simply Linux – бесплатная российская операционн�
 ```bash
 magnet:?xt=urn:btih:079F5EEB0A817B559DA5027E78DD71B85EBB4914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Manjaro Linux – быстрая, дружественная операцион�
 ```bash
 magnet:?xt=urn:btih:132183F497CFD373EE0824693CDC7EFF95E2DCB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ CachyOS — высокопроизводительный дистрибутив 
 ```bash
 magnet:?xt=urn:btih:6E397B4FB5FFF8438D5089BAB1B1517224F4E974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

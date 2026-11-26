@@ -19,8 +19,7 @@ Double Dragon Trilogy (2013) [Ru/Multi] (1.0/upd3) License HI2U
 ```bash
 magnet:?xt=urn:btih:7DBBDEE6B26814FB1FC67D2C94F083DC2B9ADD80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

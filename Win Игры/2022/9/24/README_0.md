@@ -19,8 +19,7 @@ No Place for Bravery - мрачный пиксельный ролевой экш
 ```bash
 magnet:?xt=urn:btih:82389484AB127D56E51B0A866F0B7D45B22006A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F8438097A2FC4130223F09B339B1791BB8D5F4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cursed House 11 / Проклятый дом 11 (2022) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:A1247DD532D21672333DE9AD36DC675D1B3A2236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

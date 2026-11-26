@@ -19,8 +19,7 @@ Manjaro - это дружественный пользователю дистр�
 ```bash
 magnet:?xt=urn:btih:28F1442365D5824760550D0D3B8B5297FC17BD19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

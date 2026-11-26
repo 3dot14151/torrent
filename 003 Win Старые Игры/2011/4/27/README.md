@@ -21,8 +21,7 @@ Fire Chief / Будни пожарного  [Ru/En] (L) 2003
 ```bash
 magnet:?xt=urn:btih:A212C837E5B2C2BED5D8218463C4C00A0E7A2184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

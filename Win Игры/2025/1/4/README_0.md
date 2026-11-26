@@ -19,8 +19,7 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:570F3DFB0150F2F0E83D5E63998ED3E588D3736C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Joyville 2 - это хоррор-головоломка от первого ли
 ```bash
 magnet:?xt=urn:btih:F59ADABDF04C480DCC2A1CAFE40BACE8955CD8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Locked In Mind (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B7E3E45DACA3C208A2B8076050708D223DD0DF27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 ```bash
 magnet:?xt=urn:btih:DB0C61D8BFC5DB8CF2AAC0C1CD9F42EB294B2CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pizza Tower - это энергичный 2D-платформер, завяза�
 ```bash
 magnet:?xt=urn:btih:FD3A00692DF97DEF23BD6C3C53B6702AD2A2626A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Universim, симулятор бога, в котором успех ваш�
 ```bash
 magnet:?xt=urn:btih:D663C9AD8507F4CC13F2CEAED0899CA48FE41A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Mullti] (3.0.351.5498) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3E84CCB7D565E83F885175AF548EE754784C532D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Doomsday Hunters (2023) [Ru/En] (1.1.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C36516DD30697C123BA2D1B906300F6EE5BD6D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Guardians of the Sanctree (2024) [Ru/Multi] (1.1.2f6/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5B918E3CA9AB2E9A2169CC555D349297F3F6D38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

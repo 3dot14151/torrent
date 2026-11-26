@@ -19,8 +19,7 @@ PhotoRoom v4.1.0 Mod by CXV [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4751A3707C38BF2BB37E3543CCA168FA13C9EED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:890B45624C1F3004FA9592DD3AE11C6F5CBA0D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

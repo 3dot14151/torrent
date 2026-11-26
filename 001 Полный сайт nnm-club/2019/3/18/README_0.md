@@ -21,8 +21,7 @@ The Young Gods - Data Mirage Tangram (2019) [FLAC|Lossless|tracks + .cue] <Rock,
 ```bash
 magnet:?xt=urn:btih:758D5299BDD7440BE22C6A8A2109614D3156F0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Elysian Fields - The Afterlife (2009) [FLAC|Lossless|tracks + .cue] <Alternative
 ```bash
 magnet:?xt=urn:btih:99EC4C7728498DAB546D688C169E938B7C3A5B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:BBC7CDBF9C6AA40D7387602A2706922809687E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:780B1508FC53EF7AA5B849D5891ACF52140A9896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Karen O & Danger Mouse - Lux Prima (2018) [FLAC|Lossless|tracks + .cue] <Electro
 ```bash
 magnet:?xt=urn:btih:CDF5A8814D8EA38B2921822BD3D1B067690AEF8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DF99D16DEB08F44704CB7107491E7EA917A4883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Clean Text Menu - важный инструмент для профессион�
 ```bash
 magnet:?xt=urn:btih:90591CB86DA3A84BEE66707DD47E183EAD4F8493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - DubStep Pro V.35 (2013) [MP3|320 Kbps] <DubStep>
 ```bash
 magnet:?xt=urn:btih:95E0C8BEF363130E8D5D626BC3A4027C9F17F42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:5399AC25E34EF0835D60E03ABF33798F2DF388A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57137907351BFE09013F0B893BDA0EAD49CBF1B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:34FCC498A6C3E9D54696A2FF8C266CDCA71A9318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - не Громкие новинки недели 5 (2019) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:A3DF2239119DC6278D5F76960503BB722A074340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Q5 - 3 albums (1984-2016) [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n' Heavy
 ```bash
 magnet:?xt=urn:btih:3B0A6845A9DE8E3BF38DA8B791CB874C21A0A77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ VA - Music For Dreaming (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downte
 ```bash
 magnet:?xt=urn:btih:AB4FE62CE566167DABC140E3BDF9FC718EB4F47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Messer Chups - Mondo Harp (2019) [FLAC|Lossless|tracks + .cue] <Punk, Surf, Tras
 ```bash
 magnet:?xt=urn:btih:995D812411752FF2C9FED7820298BD35D1EC9A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Wise Disk Cleaner 10.1.7.766 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:14C80EFCB019BD7B91E0937701B03D99FECB79F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:5DBB32D990BD0A2B1806761247E7AAA3F28F5100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2856067039192F6993055B5015034E3F837CDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ James Last - Jahrhundert Melodien (1982) [FLAC|Lossless|image + .cue] <Pop, Easy
 ```bash
 magnet:?xt=urn:btih:A1165663E6D27AEA2DD574138A609AB9962CAD25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B5B8E03105DE42BC081EA7AA584E24FDF00DAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10120882287327E0CC45958226D7A7E5AB4680B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ VSOP Vienna Symphonic Orchestra Project - The 5th (Die Wiener Symphoniker Spiele
 ```bash
 magnet:?xt=urn:btih:081C44C1BF8D5649B0A27C40CDE6E17B86317389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Fleetwood Mac - Transmission Impossible (2018) 3CD, Remastered, Compilation [FLA
 ```bash
 magnet:?xt=urn:btih:80F938882D7075D6C67F6FC4B6A0E6A704CD848B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ VA - Empire Records - Strip (2018) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:1CB609CCDE99E25A1A681643FE52586A0CDDF598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67C5EB8E36358EB24B1D9E85B54473FB65A10A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ The Doors - Transmission Impossible (2019) 3CD, Remastered, Compilation [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:C3F6DAD99A78CF206CDEE23C819D3A219E816638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

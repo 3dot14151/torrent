@@ -19,8 +19,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack =nemos= [Episodes 1-5
 ```bash
 magnet:?xt=urn:btih:7C4463E351E56713238D22895525A4DB3FE09378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pure Pool - Snooker pack (2015) [Ru/Multi] (1.05) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:DDDD77A61390226ACB2ED916EC9B904C8BD10245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Deadream - Saved (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Post Metal, I
 ```bash
 magnet:?xt=urn:btih:F16130DE508073A7BDFB100D28F0994235231C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Panzer - Al Pie Del Canon (1982) [APE|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:77F6491BB1006E33F45E92BCAA79744B5D5DC7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Panzer - Toca Madera (1985) [APE|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:47B4D19545D53F0A7C2CDA794D2393BB4A3B080B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Panzer - Sabado Negro (1987) [APE|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:2CD28B31C5F75101B16BA6451D6F38731CD28065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Decapitated - Blood Mantra (2014) [MP3|320 кб/с]<Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:5E44D0C50A3B72C0C7CDEFDA2336FE3DC78E8A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Lenny Kravitz - Strut [Japan Edition] (2014) [FLAC|Lossless]<Rock, Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:5E64CA91C98B89631FF13BD39FC6240410109DF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BADD5FF485920C79D40950105BA0305E1B18F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10C653A08F0F449EFBEA4EB3BDAC80AB9FCD9268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C83AA2D375107410AFF58ECBA15984C1E09695D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A85F8A45AC40BE19124E289070BA2F391317D653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

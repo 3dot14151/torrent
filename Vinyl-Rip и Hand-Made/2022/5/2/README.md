@@ -22,8 +22,7 @@ A4 Der Boxer(   Читать дальше...   )Жанр: Pop RockПродолж
 ```bash
 magnet:?xt=urn:btih:6C498842D7398C7EAA03C7A1CCE58F37006DACF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C72EBB761AEF6F73201CE9988F99C5CCB97E8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Hajtóvadászat (Chase)(   Читать дальше...   )Жанр: Electron
 ```bash
 magnet:?xt=urn:btih:80BC4B0B34970F0A4D3008032A6FE1F4BCA0A196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Марк Минков - Парад Планет (1983) [FLAC 2.0|96/24|imag
 ```bash
 magnet:?xt=urn:btih:AEF68BEEF591E17BF984C46C9DC63AE19769CAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A4 Недоразумение · Malinteso(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:75CB0D755309422EF95806E839EEE2273AAECDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ A4 Карусель · Merry-Go-Round(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:33D5ADDF7308AA30995A703AF22BFAD4D0C85D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Iron Maiden (с англ. — «Железная дева») — брита�
 ```bash
 magnet:?xt=urn:btih:DC32DDC07E889DCB56331AA7C26854BCF9BDA82E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ A4 Run For Your Life(   Читать дальше...   )Жанр: Beat, Rock & R
 ```bash
 magnet:?xt=urn:btih:60F7117FBF0628A8A67A947F0FB16B1DE452A755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Crysis  Warhead (2008) [Ru] (1.1.1.711) Repack Other s
 ```bash
 magnet:?xt=urn:btih:317F61DC8C73C15880C75D8286A0FAADC58981E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Crysis начинается в 2019 году, когда огромный аст
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NNM Club: нам 13 лет!
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Frostpunk – первая игра в жанре "выживание общес
 ```bash
 magnet:?xt=urn:btih:CA76F79E2769490D3C0794D75B87D3B37661B53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C5BDD4AD74AED0B4F30CB08BBD3DAEBBEEA5927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

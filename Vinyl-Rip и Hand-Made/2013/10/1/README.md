@@ -24,8 +24,7 @@ Uriah Heep - Salisbury (1971) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock/Prog 
 ```bash
 magnet:?xt=urn:btih:6DC6A29257E43F7B6143711496FC4DE748EF9DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

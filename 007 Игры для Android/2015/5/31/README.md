@@ -19,8 +19,7 @@ Five Nights at Freddy's 2 - продолжение нашумевшей игры
 ```bash
 magnet:?xt=urn:btih:52BF3FB36728CC7CC17725D23C860E55F4AF3C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Five Nights at Freddys - Довольно свежая и первая верс�
 ```bash
 magnet:?xt=urn:btih:6777E4E929E05950DCE010D94BC5BCD575168878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

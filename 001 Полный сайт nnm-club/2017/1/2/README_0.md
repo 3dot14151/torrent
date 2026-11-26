@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:42D56B9E35CF6BACEAC01D504ABDA80CAD615007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Масть крестовая. Зима на радио Шансон. Сб�
 ```bash
 magnet:?xt=urn:btih:E876D337FEF92059F626566A25D62E582F294ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C04EF0A3A10E069FDF70553B5623B34BFE42123D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Полный отрыв. Зимние хиты. Сборник № 2 (2016)
 ```bash
 magnet:?xt=urn:btih:8A0B47675C23BAB17282D65019009AC5610791DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Metamorphosis - Then All Was Silent (2005)  [FLAC|Lossless|image + .cue]<Progres
 ```bash
 magnet:?xt=urn:btih:789C01077EE623969E0BAF87993079406163DC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Space Rift: Original Deep House Mix (2016) [MP3|320 Kbps] <Deep House, Elec
 ```bash
 magnet:?xt=urn:btih:9E1BB28C1C79E81F9BC06939E361A5312F5EF7D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92AFDB69E764D19AE88AC56AC029527943EAA96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ VA - Best 10 Bigroom Dance Of The Year (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:988296D261D3190678FBCBF2BEDA503D2A474503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ VA - Bright Moments: Chillout Compilation (2017) [MP3|320 Kbps] <Chillout, Downt
 ```bash
 magnet:?xt=urn:btih:4B80FBBB3CFBC557EF69F354AC26F7621C270515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:354B4CF80C052E9591E8AFB319C0A5A6F4D36451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Playa Del Carmen 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Min
 ```bash
 magnet:?xt=urn:btih:E42B2DEA78FE9849C8547C913C125744397E7D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Joe Kool - Simple Meditation: The Art of Music, Vol. 1 (2016) [MP3|320 Kbps] <Ne
 ```bash
 magnet:?xt=urn:btih:968750D667D123CBB05386865FA93CAE13E36219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F6EB2DF1234EEDA9C9A8903DE6488676BB51EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ VA - Новогодний ресторан Шансона Выпуск № 7 (20
 ```bash
 magnet:?xt=urn:btih:B52ED7C81CB3C546448ECB9A6FD9B1332AF44E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Mark Ashley - Best Of Mark Ashley (2015) [MP3|320 Kbps] <Disco,  Euro-Disco>
 ```bash
 magnet:?xt=urn:btih:9B4E8625CEE8EAE301AC1CC648ABC39C7D4116AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5CF104ABEF7056A0616CB304069DB165BC95F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Mars Ice Home - "ледяное" убежище, которое оградит �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ VA - Убойные хиты от радио Шансон. Выпуск № 7 (2
 ```bash
 magnet:?xt=urn:btih:CAC70306B310E471905E6FDE80B13FB0C055781C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ VA - Bedrock 18 - Signals (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech
 ```bash
 magnet:?xt=urn:btih:62D12A2744E9E2E94E5A74860E9FCB539B4A678A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ VA - Зимний TOP 100. Зарубежный выпуск (2016) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:E488C4B75041A9652407D6B5C7771A119AF51126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ VA - Душевная музыка на радио Шансон. Сборник 
 ```bash
 magnet:?xt=urn:btih:7FF7274438A0109C892F6A186C468AB0420E31D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3633D47AB408CC752C9BD492A0554A5FDEABB777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ VA - Взрывной хит-парад. Сборник № 5 (2016) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:C02B0C0F65381CEAEFB0FD58BAE55F7A752CAC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ VA - Intimate Chill Feelings (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:889CCA6DDC661FC05E3AE3E69692E7BAAE2B3A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ Yogi Lang (ex.RPWL) - No Decoder (2010)  [FLAC|Lossless|image + .cue]<Progressiv
 ```bash
 magnet:?xt=urn:btih:F6DDE9F3B2F69561D5A2078028C8E4C540699A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

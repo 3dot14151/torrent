@@ -19,8 +19,7 @@ Queens Quest 4 Sacred Truce Collector's Edition/Королевский Квес�
 ```bash
 magnet:?xt=urn:btih:F90AE05C9CEF717F27262A5B1F1FB4A240C1646B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ReFramed - это хоррор от первого лица в стиле ста
 ```bash
 magnet:?xt=urn:btih:DEBA788574742C22756174795F719812044C3D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

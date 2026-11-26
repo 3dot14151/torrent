@@ -28,8 +28,7 @@ The KillerHertz - A Killer Anthem (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1606C8389FBA1E066BB72DE83AED3342D3794B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Hair Of The Dog - Rise (2000) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:701DE9CAB5F72595F418C77A41CD77FEFF6CB54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Agalloch - The Serpent & the Sphere (2014) [FLAC|Lossless]<Atmospheric Black Met
 ```bash
 magnet:?xt=urn:btih:1B50947FBC261A71A30BC03A5893AD774CA4059B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Vader - Tibi Et Igni (2014) Bonus Track Version [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:42B17A26096E323226D3336CCF650A6664AF9301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Nina Coyote eta Chico Tornado - Nina Coyote eta Chico Tornado (2013) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:581D97D35F768C8A0A87A18A897225BA73E78734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Kiss - 40 Years - Decades Of Decibels (2014) [APE|Lossless]<Glam Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:1F3723888BF65755757C0B44D874C0A7D6CCB71D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Guano Apes - Offline (2014) [MP3|320 кб/с]<Rock / Alternative>
 ```bash
 magnet:?xt=urn:btih:FCD36D73CC3BF6DA05FD073A122DADA23236BE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

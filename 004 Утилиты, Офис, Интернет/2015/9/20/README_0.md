@@ -19,8 +19,7 @@ Network Notepad Professional Edition - программа для создани�
 ```bash
 magnet:?xt=urn:btih:C6DA95D0EEAD43706BB947578013DA0F796D0FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nuance PaperPort Professional 14.5.15168.1450 [En]
 ```bash
 magnet:?xt=urn:btih:4998A3FEAB49E2467BCE0D46154647D9C6717BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Microsoft .NET 8.0.28 Runtime [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B21DC81EE1F013B644E780FF9DB84AD8AC03F24E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Microsoft .NET 9.0.17 Runtime [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B231ECE4D2CD15EDEFB8D772961A03508A268A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Microsoft .NET 10.0.9 Runtime [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3C208BB372A8A8B642706395D23067B79E7289FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB2C29140EBAFC184018126CACF8F939867DB94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Steinberg Nuendo Pro 15.0.30 Build 287 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D4264BD645F74BC2B9D71A2119A4368AF5DDA500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:735826A0D1539BB6CC8950C7B50AC695A64A3CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:3847E4770B96030BC3227EA30625DB29B67AAE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

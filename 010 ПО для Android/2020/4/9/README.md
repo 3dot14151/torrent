@@ -20,8 +20,7 @@ Notify & Fitness for Amazfit v9.0.4 [Ru/Multi] - Программа для ум�
 ```bash
 magnet:?xt=urn:btih:C7E6EBDF470A8E4E822780633C974392A3C939D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

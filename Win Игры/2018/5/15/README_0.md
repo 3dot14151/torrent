@@ -19,8 +19,7 @@ Moonsouls: Echoes of the Past / Лунные души: Эхо прошлого (
 ```bash
 magnet:?xt=urn:btih:3F47D7F76CE3336CAAD55994F071DEC93963230C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Batman - The Telltale Series (2016) [Ru/En] (1.0.0.1) Repack xatab [Episode 1-5]
 ```bash
 magnet:?xt=urn:btih:4FCB7E61451310523F9B8040D49AF0232B630066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bastard (2018) [Ru/En/De] (1.31) Repack Other s
 ```bash
 magnet:?xt=urn:btih:596ABC376A448B225001D98E839DA52FD9D00E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

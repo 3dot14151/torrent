@@ -19,8 +19,7 @@ LS · Книга доходов и расходов от 17.12.2014 [Ru]
 ```bash
 magnet:?xt=urn:btih:401C0799D469785223463BC095B957BAE64F6A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Virtual CD 10.6.0.0 Retail [En/De]
 ```bash
 magnet:?xt=urn:btih:4F9428C524391E520D02EB1325019D2BF1354E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

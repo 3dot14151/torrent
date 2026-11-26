@@ -27,8 +27,7 @@ Box Of Frogs - Strange Land (1986) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:97B6F20CB9D1F70F1C8F3374B488380E9AA68C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Caina - Setter Of Unseen Snares (2015) [MP3|320 кб/с]<Post Black Metal, Exper
 ```bash
 magnet:?xt=urn:btih:68884E8678683031DF64078E29C0473FF2A83399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Stargazery - Stars Aligned (2015) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4D998D16B2EC00CC72AC1A166C19563C7BC1996C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Scanner - The Judgement (2015) [MP3|320 кб/с]<Speed Metal, Heavy Metal, Power
 ```bash
 magnet:?xt=urn:btih:4E24F7642FA1031894F99FEBA9E0A2BAD9DC0E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Armageddon - Captivity & Devourment (2015) [MP3|320 кб/с]<Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:D87B31D5F13AAC350E918F1BC4A2CD2D2C63AB6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

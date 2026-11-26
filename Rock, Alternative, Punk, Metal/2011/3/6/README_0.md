@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:523AEEE37792497E8E5AC4AB2276B7A8FBE52E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Dalriada - Дискография (2003-2011) [MP3|320 kbps]<Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:80748A088D4499F248EDCAAD88B6EE1E28FBC8AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

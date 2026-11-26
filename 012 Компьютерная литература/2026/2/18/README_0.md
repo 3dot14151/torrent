@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B93AFD0DB4E5FC1250DEEB0EA806B3C4BAE200D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The best way to learn design in any field is to study examples, and some of the 
 ```bash
 magnet:?xt=urn:btih:3B9034CB109732B83E3A8B3380A6D56825C3FCCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Python часто выбирают в качестве первого языка
 ```bash
 magnet:?xt=urn:btih:9251A948DCACF47A8F8B543055BD61BC3A9632DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

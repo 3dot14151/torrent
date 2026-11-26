@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4B0A83C03FFC4DC5C057636C73E0216E43F5A687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Men’s Health — самый узнаваемый мужской журналь
 ```bash
 magnet:?xt=urn:btih:3219B0ACE2743EADE66F7F3DD1459E3578D916FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

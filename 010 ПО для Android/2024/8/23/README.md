@@ -19,8 +19,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:01F5EFE9048F975D4DDC36DBD4C55737BA685984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VRadio - Online Radio App v2.7.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7B7694F6C279B0C57EE90E1C2BB626BE73A9CC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Picture Insect: Bug Identifier v2.8.30 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5048E4E75C9D30CFBEF80DF83AB322FCB65E5CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

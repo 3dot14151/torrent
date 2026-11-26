@@ -22,8 +22,7 @@ Becoming the Archetype — американская метал-группа, о�
 ```bash
 magnet:?xt=urn:btih:6B5CC025123BA8B7303069589A2A1CD76F286C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

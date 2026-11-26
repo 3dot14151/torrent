@@ -22,8 +22,7 @@ VA - The Unquiet Grave 2020 (2020) [MP3|320 Kbps] <Darkwave, Gothic Rock, Coldwa
 ```bash
 magnet:?xt=urn:btih:60BAFA7E68A8F85D102713AD08EFD46B2E1A4175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eddie Higgins - Time On My Hands (2000) Arbors Records [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:5EB39794C4361D7C13999A1C9BDBD614C1F1F36A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crippled Black Phoenix - Ellenaest (2020) [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:4413219ED9F8F39710BAED4FDA355CD54A3EF2B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Menschliche Energie - To Obey (2020) [MP3|320 Kbps] <EBM, Synthpop, Darkwave>
 ```bash
 magnet:?xt=urn:btih:ADBB672B93A67006F8C6CCF981F6DBF9834C9D5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rauw Alejandro - Afrodisíaco / Afrodisiaco (2020) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:DA19B55167D99D05F5D8784069AE3ABF2988031A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Champlin, Williams, Friestedt - CWF 2 (2020) Jараnеsе Еditiоn [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:B633EDB61C830276032D8CCCFB64F554E48AF934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36CE52660D169CAE89E340CDA40DE6B571650903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Cats In Space - Аtlаntis (2020) [FLAC|Lossless|image + .cue] <Rock, Classic Ro
 ```bash
 magnet:?xt=urn:btih:5666B65BD34559E1CE1863205119CD8D45CD0BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Sunset Chillout Area (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:778ECF4F50F40F361179EF023B3C31A4083B31EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Autumn's Child - Angel's Gate (2020) Jараnеsе Еditiоn [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:100C9D152F962D78058A9B08A5063A3B3D1FE21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Beatport Techno: Electro Sound Pack #219 (2021) [MP3|320 Kbps] <Techno, Min
 ```bash
 magnet:?xt=urn:btih:E7DBBA930C9CFD9F06CB82E3E9705F83E6C5CC54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Beatport D&B: Electro Sound Pack #218 (2021) [MP3|320 Kbps] <Drum And Bass,
 ```bash
 magnet:?xt=urn:btih:78D45C304A45DF5C678307AEDB27C830CF687ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:EE5E3AB18FC6AA44E02E7AF9581B9901798FA801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Merry Chrirtmas EDM Party (2021) [MP3|320 Kbps] <Dance, Electro, Techno, Ho
 ```bash
 magnet:?xt=urn:btih:598E606A53F3FF69D0BF157E66744153382E1EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Bob Moses - Коллекция [3 Albums] (2020-2021) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:BA58809A62D47C1ADAEEB771283554ABD47AA506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC22A09AE0BE44FDCBC158ED5A0F723AAC6CE92B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ CudaText — абсолютно бесплатный мультиплатфор�
 ```bash
 magnet:?xt=urn:btih:FE92A0171018D51950A49516AD3829261F1AB325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ Opera 73.0.3856.329 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:AD8EAABA3597A1D8AA3B853AC80B52A63ACC6738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ Text Editor Pro 14.0.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:56E92EA6F257EF41373459B48BAC73B7EED33382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40AEED44822D9739DD724BEC55610D9342E92BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ECB82517CDA846FD7253DACE867DD7A1F0B9CE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:1ED9ACE9CDE69E59A02898607E59925BD6BFF359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56B1E817269B6457E6B2BDBCF7C3F4BD02E0E00D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:569328F84CE8AB98E433B74FFB49A801E91C85E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAB0895D7982B8387C731403B21AE0C323650660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ CherryTree - функциональная программа, которая п�
 ```bash
 magnet:?xt=urn:btih:98B65C1EE81ED29C868AD187BEA63FF7E88DA1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

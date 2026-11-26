@@ -21,8 +21,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [x8
 ```bash
 magnet:?xt=urn:btih:C70C7B4D81265E3983BB6E81F58D932B13E142DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

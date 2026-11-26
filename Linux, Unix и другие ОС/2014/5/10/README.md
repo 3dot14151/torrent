@@ -23,8 +23,7 @@ Kwheezy 1.5 (Debian + KDE) [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:44DD29D353B88A9D2AC7BC05EC2333914DDF7BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

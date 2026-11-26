@@ -19,8 +19,7 @@ Universal Copy — это самый быстрый способ копиров�
 ```bash
 magnet:?xt=urn:btih:00908F9F51008F59F8AAFE5C8622BE29F0668777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Food.ru — это пошаговые рецепты и мобильное пр�
 ```bash
 magnet:?xt=urn:btih:382BB8ED5EADD70CCCC88FAEF81502B718361612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:610C4E1545B0871FB11058F7E9E97574C6F191C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

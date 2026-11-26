@@ -21,8 +21,7 @@ Fueled By Fire - трэш-метал группа из Норуолка, Кал�
 ```bash
 magnet:?xt=urn:btih:2514FFA1BF1C4F671993EC2C256F7275D0EF250B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ A3 Ilona(   Читать дальше...   )Жанр: Latin, TangoПродолж
 ```bash
 magnet:?xt=urn:btih:770F6A5A497BB0F1C768AE8F34E9EA7B43480F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

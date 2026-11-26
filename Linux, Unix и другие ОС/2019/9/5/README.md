@@ -21,8 +21,7 @@ XigmaNAS — свободная операционная система для �
 ```bash
 magnet:?xt=urn:btih:6C17CE0087EB8A4C859367BAF72EBDA44C266A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

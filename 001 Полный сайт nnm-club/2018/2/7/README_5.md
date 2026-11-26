@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FE237918DBBBC326001AB5C466E0338FE7E39BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Microsoft начинает сокращать добавление новых ф
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Alan Walker - Faded (2017) Remix, Cover Sara Farel [MP3|192 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:A60C2348DFD3821CBD12703BF0D6162778643F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B65F600899C5AA5F48509BC509CFFC0E95FF39D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.02.07 [Ru]
 ```bash
 magnet:?xt=urn:btih:753CE8BF3983DBDE87290E97701A9D1343F53BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ VA - Наши песни (2017) от DON Music [MP3|256/320 Kbps] <Русски�
 ```bash
 magnet:?xt=urn:btih:F0BC340A1C07472F7F314E28FF6DA50CA875C6F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Gokudou-kun Manyuuki | Gokudo | Путешественник Гокудо [1999,
 ```bash
 magnet:?xt=urn:btih:DD32941BC346DA0F689284F036F3C42BA16AAA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ VA - Зайцев.Нет: Февраль (Музыкальные Новинки)
 ```bash
 magnet:?xt=urn:btih:23798AF9C0DCE0D9A23B5CB4CFF3A078DD613A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Windows 7 SP1 4in1 (x86/x64) Elgujakviso Edition (v.03.02.18) [Ru]
 ```bash
 magnet:?xt=urn:btih:DA5D6385FBADDF58652FF0C3FF853788B96273F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Scooter - 100% Scooter (25 Years Wild & Wicked) - The Belgian Edition (2018) [MP
 ```bash
 magnet:?xt=urn:btih:8DD477E7516822E9F88EEFBE68AAE34F85F17174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ InuYasha / Инуяша [1996] [Манга] [Русский] [главы:1-442, 
 ```bash
 magnet:?xt=urn:btih:0D95F5253EC2562B3395C5F4C4643CA267A708E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:520D7D58478D88A7F3388EE401A3F5F94E32AD85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22C5FD51B0A59E4222D824B652216D123EF45A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ XIII век. Русь раздроблена и вот-вот падет на к
 ```bash
 magnet:?xt=urn:btih:EB37C9B27556CAD930926C3449CCE5C043EFF25A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886(   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:BEA398B72F45BAB2E992F179476339DCA899BB11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

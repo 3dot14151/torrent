@@ -21,8 +21,7 @@ The book starts with an overview of the analytics evolution from on premises to 
 ```bash
 magnet:?xt=urn:btih:09165D9F575209C1B6978010DB78AA416962E94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ You will begin with a review of the .NET ecosystem, including IDEs and Visual St
 ```bash
 magnet:?xt=urn:btih:2D7A1329330F6CC4D1C6A836B111A924775FC5DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Scott Meyers | Effective C++. 55 Specific Ways to Improve Your Programs and Desi
 ```bash
 magnet:?xt=urn:btih:19754908558BFC3708889980FA351F29E783D96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Dynamic, comprehensive coverage makes this the perfect book on systems analysis 
 ```bash
 magnet:?xt=urn:btih:3E96C5B623A9074E038E97C4D8F5B9BAB7C2FB80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Do you dream of writing code that gets instantly rejected in review? Do you look
 ```bash
 magnet:?xt=urn:btih:D8D1F6B9240967D0AC17285BB5CCFCFB3847ECD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B1BB41E300412FAACDCF0FCD70BFC91B1FE3E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7BAB4CA6795FEA020C88ACBB21D56EF6AD798AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Deliver Us The Moon - это научно-фантастический трил�
 ```bash
 magnet:?xt=urn:btih:0B3810525D0FA0EB5F3C02755B5A25C9C38826DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

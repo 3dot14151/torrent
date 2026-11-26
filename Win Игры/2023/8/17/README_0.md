@@ -19,8 +19,7 @@ Lightracer Spark - это приключенческая научно-фанта
 ```bash
 magnet:?xt=urn:btih:086FCEC459C24AAA4279AE2E9325FDD1510B9073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ It Happened Here 2: Beacon of Truth / Это случилось здесь 2: С
 ```bash
 magnet:?xt=urn:btih:CA7266720CE967C8E2E11256F349CBDF5EE2CDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sugar Sweet Temptation (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A17D93C1DE12196C20DDE05F7AC560BB727A7929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Neon Noodles - Cyberpunk Kitchen Automation (2023) [Ru/Multi] (0.9.71) License G
 ```bash
 magnet:?xt=urn:btih:51FEC2CDCF0487D1ADD05B4EC08493155D5DB618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

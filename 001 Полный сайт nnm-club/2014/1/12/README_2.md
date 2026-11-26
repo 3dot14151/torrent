@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:178D343B1F0AE55D2B1941CD78CA3D132E36F56C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFF09FF430F0AE93D8A9F2BB50C5DD7F918C7707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ UFO - The Broadcast Archives (2008) DVD5
 ```bash
 magnet:?xt=urn:btih:98862EFC52E5A91D05B8601F52C1BD0EDF478EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Omnimar - Ресурс (сингл) (2013) [MP3|320 кб/с]<Dark-Industrial / G
 ```bash
 magnet:?xt=urn:btih:4D9D081BF3300B19FDD325F03F19AD66C38C8398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ City Navigator Philippines NT 2013.40 [Карта] (Garmin)
 ```bash
 magnet:?xt=urn:btih:DD41322697227C251E21E12C80A178457864F9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Eleni Karaindrou - The Suspended Step Of The Stork (1992) [FLAC|Lossless]<Soundt
 ```bash
 magnet:?xt=urn:btih:81B9C0546FFCCE31BF97B9D4DCD7CE7FEECF1E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Kevin Kern - Summer Daydreams (1998) [FLAC|Lossless]<New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:30C6217CF2454888489542443C5EB458C7E8EA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:903504E22E7B4C8D6CF8BF00902C0C4B7AC57341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ VA - Рок-настроение Gold Collection (2012) [MP3|128-320 кб/с]<Fu
 ```bash
 magnet:?xt=urn:btih:80D9DE249383709416468514DB80E8EB5C4DCBE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33CE4D74719FCD1418C45E15B230213F7542CBB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03B2B748048FE6F541EEC99BBA73C7D9ABE1256F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Avicii - Wake Me Up (2013) HDTVRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:3CBC8DFB6546B8E317A53F46BA8A1B51E13A0870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96CD0DFDA851502CC8302AF707C2016325B56897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ a-ha - How Can I Sleep With Your Voice In My Head (Live) (2003) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:2AC13E11914C00018CB1993070C17362B8C1945D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86992F11F6D7AF2937A5C0C6C7977EE8439ED18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:009363811336F53AF33CCE61802DFE0D40A481FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +479,7 @@ Greeting Card Shop поможет вам создать открытки для 
 ```bash
 magnet:?xt=urn:btih:AA01CDC7A742A702A1E769B63E7DBCAB5C40858E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ File Kill – это программа, которая представляет
 ```bash
 magnet:?xt=urn:btih:8CE9F2233ADEBA4AA71F6016EEE5DC310D9D9CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ Q-Dir — файловый менеджер с очень малыми сист�
 ```bash
 magnet:?xt=urn:btih:BFACAFCB57F4661A5FA2CB743DB9D0B609788F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C84F9B55C86624C21E3E0CA415110E1C61BCB3A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C63DD6D7B7BF8156D064E0F729E2F07B92162E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39FE0831FBE48A743421468FC6D845DA5D1D8A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E59499E23AA615E0714E3EA1FE19C3C615949356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ Django Reinhardt - Django's Blues. Jazz in Paris (2007) /Universal Music/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:A588E6C7D054637934EAFDBF52C4D480C2A7F2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7FFBBEA10D5B2C26908454A99DEB6B91D67F656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +728,7 @@ Knife Club | Статьи. Новичкам о ножах (2010) [FB2]
 ```bash
 magnet:?xt=urn:btih:BAF3F0E1E2428942CB2F72389DA292350C7AE286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ JSS (Jeff Scott Soto) - Beautiful Mess (2009) [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:C5D7E332E4880B8B953741D4528EC8042F0BAB47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Psychotic Waltz - Американская группа, игравшая оче
 ```bash
 magnet:?xt=urn:btih:709ED797CCE93C63E19941A697EC1CC90A25FB45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Inevitable End - The Oculus (2011) [FLAC|Lossless|image + .cue] <Death Metal, Gr
 ```bash
 magnet:?xt=urn:btih:53EFCC879384862A9A62BB7FD8F72B3C386D7B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Holy Mother - Agoraphobia (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:42D252A59BFF516525CE08205C8583DB4A6710F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFA88DD613E8F29E00D56A722A9C18B59A7F44D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

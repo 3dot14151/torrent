@@ -19,8 +19,7 @@ Tunnels of Despair представляет из себя атмосферную
 ```bash
 magnet:?xt=urn:btih:B6E911D97F249CEC73C79160CACD889F41017E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

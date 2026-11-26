@@ -21,8 +21,7 @@ Peter Spath | Pro Android with Kotlin - 2nd Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:8C46378E44AECBD1FA2E760928E5B52AED10DCE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2EA7E1EF81E05541E69B21538418FF9BFA048ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Eric Smith | Game Development with Rust and WebAssembly (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:EE53DE32B714CCF93191AA03A57A90D2CB7F4D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Django - мощный фреймворк, но выбор правильных �
 ```bash
 magnet:?xt=urn:btih:E4ABB528FAEA0BD4E2F1502FC6C74B128DBC5B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

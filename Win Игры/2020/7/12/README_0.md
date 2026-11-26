@@ -19,8 +19,7 @@ Chimeras 11: Cherished Serpent / Химеры 11: Заветный Змей (202
 ```bash
 magnet:?xt=urn:btih:B83978FBE2310D475B66909F539B43C90C27B018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legendary Tales: Stolen Life (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:7455C6ADE7C57898CAE00075AA67A5816EB2C385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Tales 17: Edgar Allan Poe's. The Bells / Тёмные истории 17: Э
 ```bash
 magnet:?xt=urn:btih:56C1FC9BFCE6CE71EBDC90B807540600CAE4C2C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (54082/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:ADED8F362C264694CC344DD2FB6359AE52ED7898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

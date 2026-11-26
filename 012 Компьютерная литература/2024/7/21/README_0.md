@@ -20,8 +20,7 @@ Die (   Читать дальше...   )Жанр: учебное пособие
 ```bash
 magnet:?xt=urn:btih:D4A35ADB8481D76BCC1DF3BF3A7E83DE0BB225A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ As algorithmic data processing increasingly pervades everyday life, it is also m
 ```bash
 magnet:?xt=urn:btih:0F2402FB03CFF93DA037F074D7479E00FAA0A3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BB8CD00A0FD80F3DAAD213B8162E778E7B6B0CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2D7A596422361ED19B118CA6FB390C569BEEF8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ In "Database Fundamentals: Strategies for Efficient Access to Information and En
 ```bash
 magnet:?xt=urn:btih:4ABFAD543054E35C2CDDFFD6FC5F763239507242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Here is your in-depth guide to cryptography and cryptanalysis in Java. This book
 ```bash
 magnet:?xt=urn:btih:2657BB6B0AED36C5A1D06E542405BD6E804A44DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Metal Gear Solid V: The Phantom Pain - стелс‑экшен с откры�
 ```bash
 magnet:?xt=urn:btih:C9BE13C251CD18B4538D4B584A439D3E9BEACBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Metal Gear Solid V: The Phantom Pain - стелс‑экшен с откры�
 ```bash
 magnet:?xt=urn:btih:F63942F0FDB9BC9631EDCF74599B9A3C1A270BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Apox / Apox: Воины пустошей (2011) [Ru/Multi] (120ct18A/dlc) Scene 
 ```bash
 magnet:?xt=urn:btih:501D2CE90D3747141CCB0399C29B882D2DC54E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hardspace: Shipbreaker (2020) [Ru/Multi] (1.3.0.1263554) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ABED42088A6C8AF31DFD43EEB5529FC597396971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Slayblade - инди‑игра от студии Henry’s House, сочета�
 ```bash
 magnet:?xt=urn:btih:4C7FD6F2E65B8F3AA3CFBE803F95BADAA0EC8C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Isekai Villain (2026) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B21BD65893CF13A8BBD3CF7C42BFA0396F420F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Star Wars Outlaws (2024) [Ru/Multi] (1.7/dlc) Scene voices38
 ```bash
 magnet:?xt=urn:btih:F52095B56BAF29B9F835289487DAE855D24F0363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Divinum (2026) [Ru/Multi] (1.0.2b) License GOG
 ```bash
 magnet:?xt=urn:btih:BD3E63CE922E0D548BF585F7EDA8425253C056E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Sandustry - это 2D‑симулятор автоматизации и стр�
 ```bash
 magnet:?xt=urn:btih:66AB215FE4BEBE72F36E40DB7B8BA49AD0C716F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Ruzar - The Life Stone - ролевой данжен-кроулер, в кото
 ```bash
 magnet:?xt=urn:btih:A3749F3FFF58C14F298AB04F138DB50EFC94A3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ruzar - The Dark Stones расширяет основы подземелий, з
 ```bash
 magnet:?xt=urn:btih:AF4B24ACD47D98A99C384FCC14927ACEB7B41E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Director Simulator (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:530CD3628063569E34198CB10F7E3D691575A0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bo: Path of the Teal Lotus - яркий платформер, предлагаю
 ```bash
 magnet:?xt=urn:btih:13B6A4392685F42A26CCF92EE55C82C09D4F896C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dystobel – что может быть лучше сочетания класс
 ```bash
 magnet:?xt=urn:btih:C0834D65E7C265BBABB91D8B981BCEAEC942D618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

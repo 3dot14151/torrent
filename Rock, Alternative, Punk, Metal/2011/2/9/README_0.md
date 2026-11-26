@@ -19,8 +19,7 @@ Morbid Angel - Дискография (1989-2003) [MP3|320 kbps]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Queen . Greatest Hits 1-3.+Absolute Greatest Hits (2011 Remastered) [MP3|320 kbp
 ```bash
 magnet:?xt=urn:btih:2F0804317F06448031CA8F8FC4D9C74F34252D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ CD2 - Queen Of The Damned (songs by Jonathan Davis)Жанр: Stage & Screen, Nu 
 ```bash
 magnet:?xt=urn:btih:DA11032AC2BC113E20A228B5C04D805E31CA55F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

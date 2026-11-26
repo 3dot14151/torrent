@@ -22,8 +22,7 @@ Conjecture - Nunavut (2015) [FLAC|Lossless|WEB-DL]<Ambient, Industrial, IDM, Dar
 ```bash
 magnet:?xt=urn:btih:76AD41AD818570DD85D5622B5C2C26E87349CC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Nuts and Volts" - популярный журнал по электронным 
 ```bash
 magnet:?xt=urn:btih:194DDE6E4878221F0C0C7BA3E96012019EEC627F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F49FF38088384AD4EB7A091ED4691E0C32A74B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58938EA5DEE988FDB242925DCA7F6FF3B861C077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ VA - Vocal House Sessions Vol 2 (2015) [MP3|320 кб/с]<Vocal House>
 ```bash
 magnet:?xt=urn:btih:5F38AF4901EBC4EB04984B9464A49D746A0E8044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B928CEBBB8A424312753AF07808D84C0B16826F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Symphony no 3 in D major, D 200
 ```bash
 magnet:?xt=urn:btih:4D2A2715669B92D319016884367AD20FB6820C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Junkware Removal Tool 6.5.3 [En]
 ```bash
 magnet:?xt=urn:btih:0292798941026E3DC9C0E0752F06EC69D88B8A3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Ultra Adware Killer 1.7.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:153FBEB9AB1491C4DF241F95341F3FA61154162E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Exact Audio Copy или просто EAC — собственническая р
 ```bash
 magnet:?xt=urn:btih:D19DF183A351C1AA7BDEC151104627BCAD906079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Chris Norman - Break Away (2004) [FLAC|Lossless]<Soft Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:B7911C06149D7B73001F6E7642F59AC49558FDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Selah Sue - Reason (2015) Limited Edition [FLAC|Lossless]<Pop, Indie Pop, Soul, 
 ```bash
 magnet:?xt=urn:btih:680E58369EEA7948F689DA7D397741D3F1F79673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77D9AAD655332492414296B37F66CD54755D603C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ ToeJam & Earl in Panic on Funkotron - продолжение увлекател�
 ```bash
 magnet:?xt=urn:btih:A520977E74B581519E94444BC6CD5455F71990ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89D8697CD6D6CF08C44294112BC5A201D46EFE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Crossy Road 1.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:7861B1DD5625C45B8EBFACF192E5D73498EE4D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:590A6F7FB8567AAE1AAA14D0A032B4AD3D3165BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDBD7B5712E3D7879ACE572B64759ADCD8EC3BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE3789DE091958DF9EE66850DE9AB22533F99ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD53FE6BA662333FFB2BD7CE295D99996B8D0221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B007612D1DE320B37A769BFB09D53D814227C3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Restore Point Creator бесплатная программа для упрощ�
 ```bash
 magnet:?xt=urn:btih:C3FAEB1796352E93DDB2642B83469AE7FB9C4644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB867B75632DE1A006B581AD6A1C47852C930E89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ LazPaint - бесплатный графический редактор с от�
 ```bash
 magnet:?xt=urn:btih:466D5F0E5163C738D3D3219ED7E94A670C779178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F96319E59E7B31DD6F92495791B7CAABB1BD1611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ Keith Urban - 11 альбомов (1991-2013) [MP3|160-320 кб/с]<Country, Roc
 ```bash
 magnet:?xt=urn:btih:B4BF1AC7187D8567D2409898FF2CD999376AE07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

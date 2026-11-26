@@ -18,8 +18,7 @@ The Walking Dead: The Telltale Definitive Series содержит все чет�
 ```bash
 magnet:?xt=urn:btih:ADE2091C10BC2267E8289CF2DC38417B26CC6442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5D49F4FFE2B96B7479EEE68E47A39EE97185B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Fuuka / Фуука [2017, TV, 12 ep] BDRip 1080p Rus
 ```bash
 magnet:?xt=urn:btih:ADE316596CB576A382A95BAE6B5AF84662DC8C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D491BB3BE26BEA01AD92D8B03A20A6272130BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ MInstAll v.27.12.2020 By Andreyonohov / design by Leha342 (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:28D7F742C598EC7C8A0DB483729ECCA830E0E080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:857B213A51933A5F578E92AA63662D9FC451D6D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 20H2 RU by OVGorskiy 10.2020
 ```bash
 magnet:?xt=urn:btih:103707BB3B5F8F1D9687A358C6F976F0D33025F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

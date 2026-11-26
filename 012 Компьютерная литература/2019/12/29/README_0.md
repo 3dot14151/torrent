@@ -19,8 +19,7 @@ James Gale | The Complete Linux Manual / Полное руководство п�
 ```bash
 magnet:?xt=urn:btih:5265231B648E87EBB4FEA1FE0163EFA1A18BF0D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

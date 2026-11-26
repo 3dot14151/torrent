@@ -19,8 +19,7 @@ Namariel Legends: Iron Lord Collector's Edition / Легенды Намариэ�
 ```bash
 magnet:?xt=urn:btih:C28AD195C5F4BF752AF0AFFC6E4BDD78A4763975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3F5F559FE24577D7A14EA6CD52D02F2C2C2DFCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Tiny Brains – кооперативная головоломка, в котор
 ```bash
 magnet:?xt=urn:btih:80A83E5A4A59496B965E5A7FF6FBC031FF3FC1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Violett (2013) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:F5E8D5990E2F79D9474356A413D463149552F075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Trine 2: Complete Story / Trine 2: Полная история (2013) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:286CACECB908EDD543EAE89224AC259C5A0666F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

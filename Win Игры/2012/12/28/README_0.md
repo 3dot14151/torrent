@@ -19,8 +19,7 @@ Dragon Crossroads [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:215D44CCBD31DBEB4E94D3CBC66CA13683CA978C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spirits of Mystery 3: The Dark Minotaur Collector's Edition / Тайны Дух�
 ```bash
 magnet:?xt=urn:btih:99A7D7D8CC8AB817E89A4B555B64BEB4C09A5E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dragon Crossroads [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:C18FDAE11584CC9E3DA8C8257D483B9A90F7A87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Saira [En] (L/1.1.2) 2009 | OUTLAWS
 ```bash
 magnet:?xt=urn:btih:2F7A333018E1DA24056D035FCCA7D75668377E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Cubemen является взрывной смесью стратегии в р�
 ```bash
 magnet:?xt=urn:btih:F798F001994B788618EA15E04CB3036F4BFDA5EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

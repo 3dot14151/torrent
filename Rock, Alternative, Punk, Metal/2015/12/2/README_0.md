@@ -22,8 +22,7 @@ Silent Line - Shattered Shores (2015) [MP3|320 кб/с]<MDM>
 ```bash
 magnet:?xt=urn:btih:816A773B601B16D1B157FB0CF488F3B54A686418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bangalore Choir - Metaphor (2012) [FLAC|image+.cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C0D72F2F7CAD57EC2A36C8F79473AF74232EEB24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Tribute To Butterfly Temple (2015) 2CD [MP3|320 кб/с]<Folk Metal, Pagan 
 ```bash
 magnet:?xt=urn:btih:EE2D6FDDC23BF44057F30E93AA98E0DC82D0465C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nautilus Pompilius - Концерт в Москве (1987/2013) [MP3|320 kbps] <
 ```bash
 magnet:?xt=urn:btih:ED73534FF2C419E1AF0764E0EDED524663C642AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ CD2 (live)Жанр: RockПродолжительность: 01:35:25
 ```bash
 magnet:?xt=urn:btih:BD367AC3965A1894537181BB916C1868DA2256C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ VA - Beauty In Darkness Vol. 1-7 (1996-2004) [MP3|176-320 кбит/c]<Gothic, Ro
 ```bash
 magnet:?xt=urn:btih:D087B4F091FC3D1ABD98F0A5141A72A064BEDA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Def Leppard - Def Leppard (2015) Japanese Edition [FLAC|image + .cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DBFDE0018A3E61EEC9EC8C3AE16746163FC84BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Accept - Russian Roulette (1986) Japanese Edition /2009, Epic/ [FLAC|image +.cue
 ```bash
 magnet:?xt=urn:btih:DBBBFD4E2550D7150B374A56C4C0E71464F4C7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

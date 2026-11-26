@@ -22,8 +22,7 @@ Wycked Angel - Intensifier (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:91C19CF7E2331488F4C9A2BA9DF8D98BD0F4816B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

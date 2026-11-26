@@ -22,8 +22,7 @@ Dark voice of Angelique - Adult Content (2022) [FLAC|Lossless|WEB-DL|tracks] <El
 ```bash
 magnet:?xt=urn:btih:3DCD0EE4424E41006B3E239BDF39D2A9BF3C346D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75AC4CC84E81FA9077341EB923250F1070666AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

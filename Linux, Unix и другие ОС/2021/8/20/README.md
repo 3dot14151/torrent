@@ -19,8 +19,7 @@ EuroLinux 8.4 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:CF542AD21C10EF5F4CC89A2E53AEA0394DD75CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BlackArch Linux 2021.09.01 [Хакинг, аудит, безопасность] 
 ```bash
 magnet:?xt=urn:btih:539FDD69A760DA1EDB69BFCCD35841306B85EC69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

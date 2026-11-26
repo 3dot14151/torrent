@@ -19,8 +19,7 @@ Keeper (2025) [Ru/Multi] (1243949c) License GOG
 ```bash
 magnet:?xt=urn:btih:8346E717555EB390C11EAD104FFE8A394D1294DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

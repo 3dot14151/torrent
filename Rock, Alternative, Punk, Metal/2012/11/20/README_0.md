@@ -28,8 +28,7 @@ Dark Sky - Initium (2012) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:08E73E3C4A60E2B9EA0EC709BE57A7B90B14F77E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Megadeth - Countdown To Extinction (1992) 20th Anniversary Deluxe Edition /2012,
 ```bash
 magnet:?xt=urn:btih:DE67086573D1D0A85E11177C6781F79ED934AC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Serj Tankian - Orca (sampled studio version) (2012) [MP3|160 кб/с]<Alternativ
 ```bash
 magnet:?xt=urn:btih:6C1B8977B810D5587EBE88E88ACF06E005F1CC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ The Honeydrippers (Robert Plant, Jimmy Page, Jeff Beck) - Volume One (CD EP) (19
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:2F770DC2120F33554D43E08D300734E6611304F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Jane Air - Иллюзия Полёта (2012) [MP3|192 кб/с]<Alternative Rock
 ```bash
 magnet:?xt=urn:btih:37A5E7ACD675DCDC4F33D674B47ECD2B69607E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Love and Death (Brian Head Welch (ex - Korn)) - 1 альбом и 1 Ep (2012-201
 ```bash
 magnet:?xt=urn:btih:CB688C77C1F31D4FC836E1EF2C1823694B2A5910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ The Rolling Stones - Grrr! (2012) [MP3|~190 кб/с (V2)]<Rock>
 ```bash
 magnet:?xt=urn:btih:C97031C33EFEEA088C85373621DEEE42904B7FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ David Byron (ex.Uriah Heep) - 7 альбомов (1975 - 1984) дискогра�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ Megadeth - Countdown To Extinction (1992) 20-th Anniversary Deluxe Edition /2012
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Aether - Flower in Winter (2018) [MP3|320 Kbps] <Ambient, Chill Step, Garage>
 ```bash
 magnet:?xt=urn:btih:7C57342ECF011EE3CE306CFEBCA34382B8760395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC9271646886840881A697A78644D748592033A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Hennie Bekker - Temba (1995) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
 ```bash
 magnet:?xt=urn:btih:3B198E03C633F1CBF250FE4A0E8A8E69DCF41D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73B7CCFD715E817A4A4527E617E12E0DB0E48410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:507F0BC25F3E3A9300C2B208F34D4452B7FBE71F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Oliver Schories - Blitzbahn (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 ```bash
 magnet:?xt=urn:btih:5B374420AA10B4261F0786B6ADC5FEB0F63F4161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D56B03E22971CF1544ACD0132098917820AE37D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:594F5A23F111C8E2F671222C43D1A5E4F5B8B233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Black Gorilla - 1 Album, 1 Single (1976, 1979) [MP3|320 Kbps] <Electronic, Disco
 ```bash
 magnet:?xt=urn:btih:7F3166854B49D7DB2D624932222CE1E5E985255D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Hennie Bekker - Kusasa (1999) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
 ```bash
 magnet:?xt=urn:btih:FDE68841081424E8F06C3AD782D9051FA389BDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Hennie Bekker - The Smoke That Thunders (1997) Holborne [MP3|320 Kbps] <New Age,
 ```bash
 magnet:?xt=urn:btih:3B6EB258D4886EC41C347EF40CA3D8709F86CB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB0FE0FE3714E6E3A335347636111BF49CAA8988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ VA - Music Garden to Chill Out your Mind (2018) [MP3|320 Kbps] <Downtempo, Loung
 ```bash
 magnet:?xt=urn:btih:57804FEC7BF09417F44B69A4225491F010530B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ David Vendetta - Rendez-Vous (2007) 541 [MP3|320 Kbps] <House, Progressive House
 ```bash
 magnet:?xt=urn:btih:BEAEF534F86FD4D51C8137200560CF086FF0284A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ VA - Empire Records - Sound Clinic 10 (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:D6839E31FA89AEDCA49C84BF6D7599D4DFDB8D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F55E54247499A5FF3ACCEB3B0598218043A93DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA384FD46AB2957CA95E2978278A25A439B80705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ HyperSnap — инструмент для захвата изображения,
 ```bash
 magnet:?xt=urn:btih:6A0ED2E718F7E02B80762972F917DB7E445A739C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Hennie Bekker - Jabula (The Joyful Spirit Of Southern Africa) (1998) Avalon Musi
 ```bash
 magnet:?xt=urn:btih:3D22DE30E604774C5939C4F1A0591B74593D8714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:226A3C7906621ACF9F2506E1D7A3897E94D2C950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Giovanni Marradi (17.04.1952). Он родился в Италии, учился
 ```bash
 magnet:?xt=urn:btih:4E2C18245A9773E46D581F089E1632D2AC675019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Blind Guardian - Tales From The Twilight World (1990) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:14DDD9AE6ED73ED008B3AA50D96D10099042A084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8D5FF82502D2043674ADC574E80737F3FA64296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7846F2FC47212590BD8F773F074D597947F3F4F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD0E0647D848C18D2A179EFED101805FDCDB9AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B9C7BD97403D9AA8C3464B735B9AC6D66E0D37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

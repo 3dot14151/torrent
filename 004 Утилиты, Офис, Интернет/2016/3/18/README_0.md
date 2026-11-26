@@ -19,8 +19,7 @@ Windows 10 Login Changer - простая портативная програм�
 ```bash
 magnet:?xt=urn:btih:EAB432A15E1B2FE3F4FB4757AE7B673BCB85D75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

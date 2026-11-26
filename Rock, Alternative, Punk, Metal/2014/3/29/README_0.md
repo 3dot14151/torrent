@@ -28,8 +28,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:A86D88846047E4CF1A5C8BEFF7F3B10E3B775DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Black Anvil - Time Insults The Mind (2008) [FLAC|Lossless]<Blackened Thrash Meta
 ```bash
 magnet:?xt=urn:btih:18C340F1948FCD684EC38E42484B93FB9AD2470D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Reuben Archer's Personal Sin - Personal Sin (2013) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:85175B36B820BB3C51AFCD752105C50E65FC0E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Angry Dolls (Злые куклы) - Celestial City (Чужой Небесный 
 ```bash
 magnet:?xt=urn:btih:7E7DB0F2C08DAF2C564C6207523B0167E0DFEF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Subway To Sally - Mitgift (2014) Fan Edition [FLAC|Lossless]<Medieval Folk Metal
 ```bash
 magnet:?xt=urn:btih:B41DF678D1B91F0B88D6A1D6798668E440EE3967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Austrian Death Machine - Triple Brutal (2014) [FLAC|Lossless]<Thrash Metal/Cross
 ```bash
 magnet:?xt=urn:btih:A654290179D98FA3E982583A7B63F38D27CE5D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Brainstorm - Firesoul (2014) Limited Edition [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:A1F9131D20AD52AE506CA693750C3055316C2C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ VA - Ronnie James Dio - This Is Your Life (2014) [MP3|320 кб/с]<Hard Rock, He
 ```bash
 magnet:?xt=urn:btih:3796FDB660002B764CCDDA05A1A83E365F7A4184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Sonata Arctica - Pariah's Child (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:128AAD9455D68491678EECFE0E96DAE564AC6F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ The Severely Departed - Two (2013) [FLAC 24/44.1|Lossless|WEB-DL]<Instrumental, 
 ```bash
 magnet:?xt=urn:btih:70759047E365F1534BCFA2A165E99D9759ABB86B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ VA - Ronnie James Dio ~ This Is Your Life (2014) [FLAC|Lossless]<Heavy Metal/Har
 ```bash
 magnet:?xt=urn:btih:842860E1F91AC8CFCB423650A111ED29C91A3D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Lacuna Coil - Broken Crown Halo (2014) [MP3|320 кб/с]<Gothic / Alternative Me
 ```bash
 magnet:?xt=urn:btih:8BA886FA0FBD2CF3929C2D6911294325B2AA062A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ NumLock Calculator - очень удобный калькулятор, кото�
 ```bash
 magnet:?xt=urn:btih:EF5C1314711EB6948E922A8D108558B899991E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

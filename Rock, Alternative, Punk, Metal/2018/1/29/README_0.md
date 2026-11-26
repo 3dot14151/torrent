@@ -22,8 +22,7 @@ Shakin' Stevens And The Sunsets - A Legend (1970) Parlophone, PCS 7112, UK [MP3|
 ```bash
 magnet:?xt=urn:btih:C83CAAC35A7F081C12C13BD0BA28E1A9363E691F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mai Lan - Autopilote (2018) Wagram Music / Cinq 7 [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:06B9C2918125C20BA689C9577C5773A890A3861F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Like Black Holes in the Sky - The Tribute to Syd Barrett (2008) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:08E84DD835233A911ECBCEC192744766635D55E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Heaven - Bent (1982) Unofficial, 1999, Heatsink Records [MP3|320 Kbps] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:422E6850E465325A8D9154A7CFE3BE3286DF2D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Leon Paul-Phillips - London's Underground (1972) Remastered, 2016, Paisley Press
 ```bash
 magnet:?xt=urn:btih:6E9C2714F9389C7BDF6376CE7DC94330F6607EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Carach Angren - Dance And Laugh Amongst The Rotten (2017) Deluxe Edition [MP3|32
 ```bash
 magnet:?xt=urn:btih:AC35D260A697B51E2ABC5D1DFD7D917547D31099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pyogenesis - A Kingdom to Disappear (2017) [FLAC|Lossless|image + .cue] <Gothic 
 ```bash
 magnet:?xt=urn:btih:58ECECB7FD3C86E5D333D7AB62EED4407C7069B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - More Animals at the Gates of Reason - A Tribute to Pink Floyd (2013) 2CD [M
 ```bash
 magnet:?xt=urn:btih:7C985DDAB61740DF5A348DE167510299A2C681F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rise Against - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Punk Rock,  Melodic 
 ```bash
 magnet:?xt=urn:btih:B9D6B73004BB54A64D50268820FEDABEEBB0342F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

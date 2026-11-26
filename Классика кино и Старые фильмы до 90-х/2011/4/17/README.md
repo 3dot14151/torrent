@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B34178D36DC245FCFBCEF49CD04A783B154FE369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:354F31FBCB58FAA791B869DCA8118BC080BD8BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Hо не так то просто увидеть легендарную актр
 ```bash
 magnet:?xt=urn:btih:1BF7C2045F7F140F63C6090E6777192F47E805C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

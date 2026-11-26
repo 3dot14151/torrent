@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C4BA5BE1AA6F6606A194ABD84181712C0A85A306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A285A6A4731614FC54AEE18849F7D9880D7BCFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ VA - Kiss From A Rose vol.1-2 (2009) [MP3|192 kbps]<Gothic Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:B7ABC86C150A2BED40EB3D96566933903207519C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Logic Energy 2 (1999-2011) [MP3|112-320 кб/с]<drum & bass, minimal techn
 ```bash
 magnet:?xt=urn:btih:920C9A6B21C1173214BA51B298C6E74BE044B401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Bong-Ra - Monolith LP (PRSPCTRVLT01, 2012) [MP3|320 кб/с]<Drum'n'Bass, Darkst
 ```bash
 magnet:?xt=urn:btih:8BEB5A20770FE5DB4C092670FCB530C8131B1DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Banda Black Rio - Super Nova Samba Funk (2011) [FLAC|Lossless]<Latin Jazz, Funk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3E0AE79B3F9138EB376EC972119302FF811BF2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ VA - Молодежный Хит from AGR (2012) [MP3|320 кб/с]<Pop, Club, Da
 ```bash
 magnet:?xt=urn:btih:D1D7F3219AAD7E454F2DB0DAA4BC3E1D284BAFF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ VA - Zero Point Energy (2012) [MP3|320 кб/с]<Psychedelic / Dark Progressive, 
 ```bash
 magnet:?xt=urn:btih:C2A649A08DA1FC08D9F2A977D8F2480EDCD522EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:302C6DDDD7623FD80A5A43077D1BBAC939AEEBBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ VA - Зарубежные Новинки Vol.49 from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:AB7E41B96C36CE165F1C7886ED79107590C02C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D6E1F1BCB6565A02B3A3AA6B7975A6445BA9161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ VA - Exploration Of Dreams (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 ```bash
 magnet:?xt=urn:btih:41469C280A603B5FACAFF48264C0E34E5382958C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C71FEE80AC04A8FEAF416180CE4C30138E5D4280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ VA - A State Of Trance Radio Top 20 May (2012)
 ```bash
 magnet:?xt=urn:btih:6CD8C277F645AEFEDECCDE909BA3660B1F0BC5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Lara Croft: Guardian of Light v1.2.1RC14 [Ru]
 ```bash
 magnet:?xt=urn:btih:ED97B7C62E62B8F142B238A6BE49B34E07BA37BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Fruit Ninja Classic+ v1.0.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DFD343330D3B9556DE00E2EDB815D9229F57640B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

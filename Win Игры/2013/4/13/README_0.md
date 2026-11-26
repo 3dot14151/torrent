@@ -19,8 +19,7 @@ Small Town Terrors 2: Pilgrim's Hook Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:33DF26B4599FC5E51957DEEA48E167E135E1E619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

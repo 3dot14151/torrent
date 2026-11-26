@@ -19,8 +19,7 @@ Ankh Anniversary Edition – это прекрасный приключенче�
 ```bash
 magnet:?xt=urn:btih:A7CB357E70F45E7364D4A281F4A631952BE9DC70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Roberta Williams Phantasmagoria / Фантасмагория (1995) [En] (1.0) L
 ```bash
 magnet:?xt=urn:btih:794D1E018C6B3C43DFDE2DB163CE26C8671D5A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Harvester (1996) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:39A6355DF5921A04A01C9958C53A83B44DE0E480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Phantasmagoria: A Puzzle of Flesh (1996) [En] (1.0.06) License GOG
 ```bash
 magnet:?xt=urn:btih:86CB8DAA24E99121726B4E5754DC43B228145248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fahrenheit / Indigo Prophecy (2005) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6BD7919B35DC6DC27A729F77FCD0518FF54F58A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

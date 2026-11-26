@@ -19,8 +19,7 @@ Lock Me Out v7.0.6 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0FCEB6C25769E7FB11FFE4EF201E24EA5631E248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Thenx v4.29 Mod by  Alex.Strannik [En]
 ```bash
 magnet:?xt=urn:btih:280A080A13B9F5D1AACE5141609EC42198DD2D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

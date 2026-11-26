@@ -19,8 +19,7 @@ Metrocide - это мрачный top-down стелс-экшен в жанре �
 ```bash
 magnet:?xt=urn:btih:8558CCF9343995D4E6D0B4A417902165343D7F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Motorama (2014) [Ru/En] (1.0) Repack xGhost
 ```bash
 magnet:?xt=urn:btih:1DFC6FA1DDCB69EBC4E0B37CED27A5676789FCC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Fat Chicken – не совсем обычный tower defense, в которо�
 ```bash
 magnet:?xt=urn:btih:04DC916F03949C021BCBF148429928621540E4CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Castlevania: Lords of Shadow - Mirror of Fate HD (2014) [Ru/Multi] (1.0.684579) 
 ```bash
 magnet:?xt=urn:btih:B59D1A7AB5DA96411E812ADC2D42833601F53713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ The Old City: Leviathan (2014) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C368F69EA47E2D8A92C711A2D7EF63222B52EBA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

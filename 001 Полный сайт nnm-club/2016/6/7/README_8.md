@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EF74752FFB25B63D5EB503881A65DA63DE6481ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFCE8C77EE8B7D4B5FFDE3C1F2CEC5C35DA4BC62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3434359244B055DE65BC39AC7994A033D0603173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ TurnOn (2016) [Ru/Multi] (1.0.0.7) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AB53BCB33CAE556C035798D21590305A9515F32A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:137F9281EA06D546286F25E38BF8E18829A35F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Stranger of Sword City (2016) [En/Ja] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:961D4F9A6B972CFDB5D089493C2701EFD5C6B4D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Need for Speed Underground 1.4.0 (2003) [Ru] [CiderX port by GamesLab]
 ```bash
 magnet:?xt=urn:btih:DF9CC56B893175F3B9F36710AB88D6F3FAF75BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Quite Imposing Plus - это удобный плагин, который пре�
 ```bash
 magnet:?xt=urn:btih:ED2E6BAE0C714723C4D52D7ED21D1532B192B476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F2FFC2CF7D386BFC537B62834D62D2229A8B77A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ VA - Top 100 Club Tracks (May 2016) (2016) [MP3|320 кб/с] <Dance, Club, Club 
 ```bash
 magnet:?xt=urn:btih:CE05BDA0327695429010C4E96848CD2AE53B65CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B4CE61EF60FCF630F231031C39BB13CD3C03436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Watch Dogs (2014) [Ru] (1.06.329/dlc) Repack =nemos= [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:41CD0621DB2D850016A0E1F5D112CFD4D5E25B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Web-разработка, системные утилиты, десктопны�
 ```bash
 magnet:?xt=urn:btih:AA0755B3BA1A1780699913BC04086208D063328D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Geekbrains | Профессия Веб-разработчик (2015) PCRec [H.26
 ```bash
 magnet:?xt=urn:btih:255033A2F87DBF3BA04EF81D318999D6F09F29B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

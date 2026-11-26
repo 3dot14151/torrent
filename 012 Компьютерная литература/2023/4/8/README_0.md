@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0FD210C4A441E9C16597372A48871CD8691EF502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Victor Hugo Garcia | Getting Started with Angular: Create and Deploy Angular App
 ```bash
 magnet:?xt=urn:btih:35F612106AE0F4BF350B9D4271FE8840A9879056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

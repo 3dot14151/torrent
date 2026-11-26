@@ -21,8 +21,7 @@ Zorin OS разработана так, чтобы быть простой, по
 ```bash
 magnet:?xt=urn:btih:DE3F59354D40DCE68E2D6B2C127ABDCF2A71D1AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

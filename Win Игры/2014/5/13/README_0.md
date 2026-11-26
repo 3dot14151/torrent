@@ -19,8 +19,7 @@ Memento Mori 2 (2012) [Multi] (1.8.2.906) License CODEX
 ```bash
 magnet:?xt=urn:btih:0786294E596D328536F0E2A70D46F671D6613199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Carnage Racing – аркадные гонки, которые пройдут н
 ```bash
 magnet:?xt=urn:btih:82522457A225E1E8CF2650A788BB5F973CBF3A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Blood of the Werewolf - это 2D-платформер, главным дейс�
 ```bash
 magnet:?xt=urn:btih:B76DEBCE834FC9FC2F6865AD9440265A3FB4CD59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ The Last Tinker: City of Colors (2014) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:75E45B4C5ACF07CE0F0F1AA30DBE299FEEE4180B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Halo: Падение Предела / Halo: The Fall of Reach (2015) BDRip [H.26
 ```bash
 magnet:?xt=urn:btih:9E740A0731A7D96DA839027AA74D68B4D11AD955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:923F74BA1FDDA4BBDD9BF110B8902E0D0AD4B019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45A284928E689BB6229AD032158162A737C6DD68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB2E8C5092D7993AFB5672CD38F1ECBE16B3170F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:127CAAE548A682F82DAFF8F4FF1347BE9CEC036C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:665A0FE398BAF2D93B6B5D5A1944622FA5A153BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B25C7F652E4F395637DB9D044A29996BD5130A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:446EA6F36D44A24ABDDF6180A0D64F00E156D4DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Spin Tires - симулятор внедорожного вождения тяж
 ```bash
 magnet:?xt=urn:btih:44EE08D04CCCC3F224FEA7E2229D7462AED70111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Bad guy | eXeLAB ВИДЕОКУРС 3D (2015) [unpacked]
 ```bash
 magnet:?xt=urn:btih:958A0ADA8939B9E77F0470040C764B5BF399D97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5264D7FC97539B1EB7334EC9297FD379DC0E8EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ The Sheltered - это стратегия в реальном времени, д
 ```bash
 magnet:?xt=urn:btih:87622C2DC99C884D9889773116951C7320CA2FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Zorin OS - это основанный на Ubuntu дистрибутив Linux,
 ```bash
 magnet:?xt=urn:btih:04A9BC4227291B0F81AE15C7BAB72F74669DB8BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 4 (2016) [Ru/Multi] (1.01/dlc) SteamRip L
 ```bash
 magnet:?xt=urn:btih:E82F2CB5F61905481C935AAF6F1ECDD1D2D25C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Subterrain (2016) [Ru/Multi] (1.0.3.5) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:79A6126674BE9BE89841FB5FF931D7B20D702F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ This War of Mine (2014) [Ru/Multi] (2.0.2/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:4197E1DC6A0F4AA03F236910CE155BFB676D3EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

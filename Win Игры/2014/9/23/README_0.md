@@ -19,8 +19,7 @@ Forgotten Kingdoms: Dream of Ruin (2014) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:8BB7EDDF78E526C927E0C02CDDB47129636AE5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death at Cape Porto: A Dana Knightstone Novel / Смерть на мысе По�
 ```bash
 magnet:?xt=urn:btih:8C1CD9317C0BB1724B99862726C35644EFF31175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Lords of the Black Sun Patch (2014) (1.004) License CODEX
 ```bash
 magnet:?xt=urn:btih:F80C9C8ED10BB7A4C9EBACA82529FD20860DCEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Grim Facade 5: The Artist and The Pretender / За гранью жестокос
 ```bash
 magnet:?xt=urn:btih:4F74E9B69726AEAA5F9995F32D57B27F8CD7946D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Fierce Tales 3: Feline Sight / Жестокие истории 3: Глазами
 ```bash
 magnet:?xt=urn:btih:6FE599378D753807B1D7BE2B8800B7072AA57235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Dangerous Games: Excitements Prisoner / Опасные игры. Заложни�
 ```bash
 magnet:?xt=urn:btih:4CD9F4CCDBA67A7D97D8FBBB762AF7630D632ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Claire (2014) [En] (1.03.1) Repack OUTLAWS
 ```bash
 magnet:?xt=urn:btih:690F3E16947FC08516C97D1CC616B2AA4F0C8FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Stick RPG 2 - оригинальная ролевая игра.
 ```bash
 magnet:?xt=urn:btih:8517CA5D85138540329259BEE9C0EF4F21B8A97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

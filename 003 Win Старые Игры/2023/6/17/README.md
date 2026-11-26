@@ -19,8 +19,7 @@ Desert Law / Койоты: Закон пустыни (2005) [Ru/Multi] (1.0) Lic
 ```bash
 magnet:?xt=urn:btih:10F4AE3979EB8D73D583BC4F952E94EF1D3C515D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

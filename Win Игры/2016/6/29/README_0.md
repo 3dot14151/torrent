@@ -19,8 +19,7 @@ Action Legion - это аркадный шутер с видом сверху, �
 ```bash
 magnet:?xt=urn:btih:7C4BB6BFEA2CE1FBCE1BA781EFDC80DBE37836F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightfall: Escape (2016) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:DCAF96669B1AA09B05FCE4387ADF5917B4C5AFB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LEGO Star Wars: The Force Awakens (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:CD834FE2C85178D1060B4004DD814F16CCDA4840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SolSuite 2016 – крупнейшая, постоянно дополняема�
 ```bash
 magnet:?xt=urn:btih:1911A98C733B709C79ECC4B0BDEB9C4C5F3FB065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Crookz - The Big Heist (2015) [Ru/Multi] (24360) License GOG
 ```bash
 magnet:?xt=urn:btih:48F1275B20D4542F8E44B2EFB6DF6E1404325306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ MechoEcho, интерактивный конструктор-головолом�
 ```bash
 magnet:?xt=urn:btih:FC9A5BD337CB32770A21E43355D358BDD2B2A34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

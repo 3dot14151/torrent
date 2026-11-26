@@ -19,8 +19,7 @@ March of Shrooms (2023) [En] (m309e) License GOG
 ```bash
 magnet:?xt=urn:btih:026794B5D52F2EB71C0F2E67C93B9A1BAD5CBECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Oxygen Cocktail - это адвенчура в жанре визуального
 ```bash
 magnet:?xt=urn:btih:EDD93B31EFFB029A7E4EE4EEE96BE6A7E9CC785B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Kindeman Remedy, не похожая ни на одну другую упр�
 ```bash
 magnet:?xt=urn:btih:C07A5E96AC657FDB92639E9FFFB106223C6C7D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Boiling Point: Road to Hell (2023) [Multi] (130759) License GOG
 ```bash
 magnet:?xt=urn:btih:DF2AC21777D0E3D6740B25B2151DB7EA9B55D0FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Arma Reforger - экшн, делающий огромный упор на реа
 ```bash
 magnet:?xt=urn:btih:CE0889009CEDE0FF661F0EC4F02EE2E97DF16D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1FDFD0A3660A9881B1E39BD19CD5950AF88D39EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ NGW: Уцелевшая природа Европы / Europe's last wilderness (
 ```bash
 magnet:?xt=urn:btih:1AD6837309FD52BF48C7444F3AF3AB0E40F6F1E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ The New London Chorale - The Young Verdi (1988) [FLAC|Lossless|image + .cue] <С
 ```bash
 magnet:?xt=urn:btih:55BBD8B78F21A1C75592143588860E104BF26B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16361C79DF70DBC1C70E2826FCCEA85D9620797B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DE20647C920226CF277A84ACFA3B860555A05B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1803F0382FC707F82215A05AA0A355FE387AD329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2E6314A019F24C471687821BA91490D1D7F7358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ DaisyDisk 4.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A9A946082A1779DB6E1358CEC9132E4BB5A13AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ NGW: Море надежды. Подводные сокровища Америк
 ```bash
 magnet:?xt=urn:btih:C29D53D68F7914B8D1375D9E01902F082D32B5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ NGW: Воины новой волны / New Wave Warriors (2017) HDTV [H.264/108
 ```bash
 magnet:?xt=urn:btih:BE5792F9E40C11D25A69CB00480468C5797434AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Moby live at Main Square Festival / Moby live at Main Square Festival (2011) DVB
 ```bash
 magnet:?xt=urn:btih:24CB5692512AFB164535AC368DD4BC3FCFB612CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10E8EAC46AF7A0541C4AD94116F2BBAB658F759C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D885EFEBB06C1BDF558AC7E3371D0A385A38EAAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ NGW: Джейн Гудолл. Спасение рая / Jane Goodall: Saving Par
 ```bash
 magnet:?xt=urn:btih:E5EEFA8BC09438B0C56B8FE691154B1C6A35C815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:063AEFC3DF46A05819A4AEF47CBDCB304A646296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F183CE0D5AEB278EEC3985F8FD74F8CBE83259F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ WizTree 3.21 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:807E4304382E6B9FCCDFF05982E392DB4395A124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ Dead Secret Circle (2018) [En] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:4DA86E7AE22E8BFD1FC3C93C600895F66A929196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ Minit — своеобразное маленькое приключение, д
 ```bash
 magnet:?xt=urn:btih:ED7DAA90FFF445F3936CA503B0FF78B4F6CC7436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ NGW: Год диких животных. Сибирь / Siberia's wild year (201
 ```bash
 magnet:?xt=urn:btih:4C8B2444614BE3777368A6DED975FA9E64398F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ NGW: Бесплодные земли / Badlands hard rock - tough lives (2017) H
 ```bash
 magnet:?xt=urn:btih:BA24ECC0149FE1D9A97507AC2624579A626C502A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:749EB2FE094406DDBB033837A216840B60F74B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ KP.RU - Комсомольская правда v1.25 AdFree [Ru]
 ```bash
 magnet:?xt=urn:btih:F122A45AE12C82CE09C56784D58B6363EF6BB2E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4AA3A7660F22F6FD9EA6BB2F6C91A1AD428DEC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6B82D2C7D301E487EFF59751E19AE09E9EF410D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ JYDGE [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:3762C5C605D330245AE69F962A76F9A053295E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

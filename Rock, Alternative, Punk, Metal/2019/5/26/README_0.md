@@ -22,8 +22,7 @@ Michael Bundt - Neon (1979) LP [MP3|320 Kbps] <Electronic, Krautrock, Experiment
 ```bash
 magnet:?xt=urn:btih:642AD3F5779635833AFDC5295FD0294DCA405FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Orion Child - Continuum Fracture (2019) [MP3|320 Kbps] <Power Metal, Melodic Dea
 ```bash
 magnet:?xt=urn:btih:434F54A9405436E4EBBAF82AD09C81C991E310E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

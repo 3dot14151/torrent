@@ -26,8 +26,7 @@ Screenshot - Любовь (2008) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:2AD47A55662950DD4C65BA833BB55066198C2136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

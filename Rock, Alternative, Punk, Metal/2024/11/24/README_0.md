@@ -21,8 +21,7 @@ Venduzor - Covered By The Blood (2010) [FLAC|Lossless|image + .cue] <Brutal Deat
 ```bash
 magnet:?xt=urn:btih:4DA69C85A7C10B1A4419405E71D71B6585E985A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Zombie Death Stench - Here I Die... Zombified (2007) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:8F91F2190585CD62B44224C7A15FF0E9974E8B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Supergrass - Life on Other Planets 2003 (2003) [FLAC|Lossless|tracks + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:E9718C2F5986ED8A330F3E11208C29B0FD29EF8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Castle - Castle (1994) [FLAC|Lossless|image + .cue] <Doom Death Metal>
 ```bash
 magnet:?xt=urn:btih:338E7D3EC93FAA5D9DF0FD2FC14437BF7F21DB02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Famishgod - Roots Of Darkness (2016) [FLAC|Lossless|image + .cue] <Doom Death Me
 ```bash
 magnet:?xt=urn:btih:1294B14A5A48AEE134D37EC49F2B5A8D84EAD1AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Veins - Innocence (2017) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal
 ```bash
 magnet:?xt=urn:btih:6243E1618688D04213A3A949B6CCCB998893ACA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Malediction - Reductio ad Absurdum (2008) [FLAC|Lossless|image + .cue] <Death Me
 ```bash
 magnet:?xt=urn:btih:6050514A8EC1E5E6AAC5D6FA2B96384F07FF9C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Trinakrius - Massacro (2010) [FLAC|Lossless|image + .cue] <Power Doom Metal>
 ```bash
 magnet:?xt=urn:btih:B58537228EADAE0AE8740514825D7CCF483FB8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Pero Defformero - Undergrand (2009) [FLAC|Lossless|image + .cue] <Heavy Metal, H
 ```bash
 magnet:?xt=urn:btih:37219FA72C6712C09C53E2C2731E7DBB5CCB66FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Ocean Chief & Runemagick - The Northern Lights (2007) Split [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:65A5B794DE227696D4DFF88F6AC7DAFC53E3E822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Sacramental Sachem - Recrucifiction (1995) [FLAC|Lossless|image + .cue] <Death M
 ```bash
 magnet:?xt=urn:btih:9A65F88ED4EFA00B89BBA556147FA9FC082D0F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ R.O.D. - Death For All (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A50607846548183DDBFE25D4F8BD52DA5E96B329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Thargos - Killfukk (2003) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Meta
 ```bash
 magnet:?xt=urn:btih:F1CA626D620975E41510E1823CB4274AB8084F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ Mellowtoy - Lies (2015) [FLAC|Lossless|image + .cue] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:ABC5EA37985F534427E2ADE4439072597233842A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ Linkin Park - From Zero (2024) Brazil, 0093624839842, AB1000 Pressing [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:E59A27041B9B606B9CFD946A8C65E20906D8576F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) E.U., PRO17226, P
 ```bash
 magnet:?xt=urn:btih:ED42CCDF80622D0CC9FB30FAE28EF48CCE800A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Linkin Park - Hybrid Theory (Special Edition) (2000) China, JCD-4598, 2002, 2xCD
 ```bash
 magnet:?xt=urn:btih:6DF0A63DACCBAD0AD7B8998971C07B9F8B47BE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ Mourning of the Heretic - To the Shadows Betrothed (2024) [FLAC|Lossless|tracks]
 ```bash
 magnet:?xt=urn:btih:A674999B8AFE6C0CE713762A74C451462B882BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Linkin Park - Hybrid Theory (20th Anniversary Edition) (2000) 2020, Brazil, 0093
 ```bash
 magnet:?xt=urn:btih:BDE4D03037C2CA61858F8B9E617EEB41590D8360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ Linkin Park - A Thousand Suns (2010) Brazil, 9362496333, AA0021000 Pressing, Pro
 ```bash
 magnet:?xt=urn:btih:13C6992C9742A80C28A51D447055317458C542C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CB5F85C1BD3E4B632F610EA1689CB006B7010F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

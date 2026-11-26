@@ -19,8 +19,7 @@ In Extremo - Sterneneisen (2011) [MP3|320 kbps]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:16F1AE2C4D8C76621D68DD2A4EEEA276A9617D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Sonic Syndicate - Дискография(2005-2010) [APE/PLAC|Lossless]<Modern /
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Red - Discography (2006 - 2011) [MP3|320 kbps]<Alt.Metal / Christian / Modern Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Overclocked: A History of Violence / Overclocked. Оправданная жес�
 ```bash
 magnet:?xt=urn:btih:33B212E60F3D143B7B63935D1439026CB4FE1575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Painkiller Overdose, самостоятельное дополнение к во
 ```bash
 magnet:?xt=urn:btih:EFE9E0AF10617B0E7723612A240BFE47CBE09D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

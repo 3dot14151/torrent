@@ -19,8 +19,7 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9192A1AE6569935D8203A21A96B5DD7A35A83A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Wayne Calford - Shred Alliance (2014) [MP3|320 кб/с]<Neo-Classical Metal>
 ```bash
 magnet:?xt=urn:btih:DAC313676613E3030B3F0E4772163CD67804758D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0956D5639209359FFF6FD4E224F9FFD229E53DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E95A9B24EAC582315AC1E1B285F1C0F131F6F21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Figure - Monsters Vol. 5 (2014) [MP3|~234 - 273 кб/с]<Drum & Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:E6C2C91523512AD285FC4CC5993776CDF41980C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2A42CADE250FC2819F154EFBFA9750A94A6AEDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Slaughter - Tortured Souls (2007) 4CD Boxset [APE|Lossless]<Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:400CEABBB02F0AA3C26E26D5F49D8583BB86BB38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Ephedra - Journey Through My Head (2014) [MP3|~245 кб/с (V0)]<Goa>
 ```bash
 magnet:?xt=urn:btih:DAFE5D9810C94DCE1D28D40399E14746C0263CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:321DAA251E425C8C2F4F9466A98FD0824CA63818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50AE53D6392A2706FC4C79FC1EA94254B11038D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:265CCF48B92CF79B223B2D58CBE8A237D2517EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:399917D8496659D39887331065A97D62FA44DF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ Anaal Nathrakh - Desideratum (2014) [MP3|320 кб/с]<Black Metal / Death Metal>
 ```bash
 magnet:?xt=urn:btih:B170AC02C06B5763AB1026CABD3683FEC921C80C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D9C427D4EE065B59BF700D2745A3CA6B7475361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ VA - Soul Blues Classics (2014) [MP3|320 кб/с]<Jazz, Soul Blues>
 ```bash
 magnet:?xt=urn:btih:4D1672ECBD55CD9C3CB472868C9E9E87133EEDB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +434,7 @@ Ritchie Dave Porter - Rocking the Blues (2014) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:ED5F802023B112BCEF6F391E665661C5F0F31300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +493,7 @@ VA - Jazz After Dark (2012) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:75BF80130835A7A66C272EB9A0A5D7F77AA406C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +518,7 @@ VA - Almighty Presents We Love the 90's (Vol. 2) (2014) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:9637E064BC612FB8D95D794B9135FDF7EC1FA382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B98EDC3B7CAC1E230ABAD98DF5DC9B04FEFD818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ John Travolta - Greatest Hits (2007) [APE|Lossless]<Pop Rock/Soft Rock>
 ```bash
 magnet:?xt=urn:btih:655EAB5AF84EF5ECAA03DFADEF749AF321EC7DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FFDFF009582918DB4D1F39F04C4BEF98A9CE3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C58EC45810D8651F702A9134348B6D99BD7B059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B86BBF29747A99A727F72864C17BF3BF51D20AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03A6ED3AF514D604F286CF249BE737C49B8ED762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ Mago De Oz - Ilussia (2014) [MP3|320 кб/с]<Celtic Metal, Power Metal, Folk Me
 ```bash
 magnet:?xt=urn:btih:C1289C95BC156C7B26A7AEB77569ED7BA2B6AB11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ Audrey Horne - Pure Heavy (2014) Japanese Edition [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A72DF738A77DFA71AE237A6FD9E490A0872FEEA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

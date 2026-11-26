@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1E90DC3E28BFEC397B00812AFBA5742874648EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Neutrix — это современное семейство шрифтов с �
 ```bash
 magnet:?xt=urn:btih:C7915D7E1AABC93FE8877A2011537859284F68C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Bajofondo Tango Club - Premium Playlist (2002-2013) [MP3|320 Kbps] <Neotango, el
 ```bash
 magnet:?xt=urn:btih:E32BEDB5D59E4801C76DEE3D536D09BB4C4755F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - Buddha Bar - Premium Playlist {#, a} (2007-2025) [MP3|320 Kbps] <Lounge, Ch
 ```bash
 magnet:?xt=urn:btih:C0310E0FB7272F4B7F820CF88C7F75EA1BD06883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Buddha Bar - Premium Playlist {b} (2007-2025) [MP3|320 Kbps] <Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:D958F0C5E127441D5DD7348A8F56192745627227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D498FF2BEE51D8F90D3DB3EAA1EC6ADDC81BA43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85A42CFFB33675FDB3831B7A34914F260E66C504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Qirvalen — современный, гармоничный и стильный 
 ```bash
 magnet:?xt=urn:btih:3D8B2B92C537B9C9799FEC4C8D6FFE91E46CFFF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC8289079D1F9F50C1672CB38463B9D944B91EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E02BFEF622BEE6F4F8101F99099955233CE292A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17BD2D50962FA465BE3DA40E96C6A93459D76D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Thy Art Is Murder — австралийская дэткор-группа, об
 ```bash
 magnet:?xt=urn:btih:45F5F06D790367AB841644D345F4DD1A1B7749CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Alliant Audio с гордостью представляет Minimal Techno! М�
 ```bash
 magnet:?xt=urn:btih:BEC88191313C545EA4AC697E041AA8875316F9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0360CE9C3C6A01A6B25BF839426A0093801000C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ VEXED - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [
 ```bash
 magnet:?xt=urn:btih:22A2D3996426ABC4D92EA0611F1709126469CD9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

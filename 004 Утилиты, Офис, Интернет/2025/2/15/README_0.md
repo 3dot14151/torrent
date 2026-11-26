@@ -19,8 +19,7 @@ Wallpaper Engine позволяет устанавливать живые обо
 ```bash
 magnet:?xt=urn:btih:842ED3D3D68A7D555A1A743C93B1E752B0A7E4C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

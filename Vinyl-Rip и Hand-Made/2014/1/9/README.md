@@ -22,8 +22,7 @@ Patricia Kaas - Mademoiselle Chante... (1988) [FLAC 2.0 24/96|image (Vinyl-Rip)]
 ```bash
 magnet:?xt=urn:btih:4569D68A1729E88EBF9C677A6815528BCCFFE8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

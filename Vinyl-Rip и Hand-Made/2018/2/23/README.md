@@ -22,8 +22,7 @@ Within Temptation - Hydra (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:8404BFE1F2EAC5D41638FAB2B010C58864E49E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lindsey Stirling - Shatter Me (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Du
 ```bash
 magnet:?xt=urn:btih:7B90C59C319DD4A7CA29272EDF7F763173D0ACD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Imagine Dragons - Night Visions (2012) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <
 ```bash
 magnet:?xt=urn:btih:5A5388CE1B361B85EDF1692D9AC925DA26CFDB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

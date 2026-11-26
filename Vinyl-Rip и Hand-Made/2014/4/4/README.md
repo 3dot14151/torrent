@@ -22,8 +22,7 @@ A4. New World Rising / Ocean Breakup (Reprise) (4:04)(   Читать дальш
 ```bash
 magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

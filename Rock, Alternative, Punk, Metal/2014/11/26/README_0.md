@@ -25,8 +25,7 @@ Fall of the Idols - The Seance (2008) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:26A731B862DA7C958D510704E34E1F86A34D0D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Fall of the Idols - Solemn Verses (2012) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:9E83B07C0A92F6BDE6AD132E8784AA1EA16EA2CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Taake - Stridens Hus (2014) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:F40B7BEDBCECBEF4182B14DF1DDCCF385FC1E75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Rick Vito - Pink & Black (1998) [MP3|320 кб/с]<Rock, Rockin' Blues>
 ```bash
 magnet:?xt=urn:btih:0C147C86502335FDF928E3F90EAB3B27B642C804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Engel - Raven Kings (2014) [MP3|320 кб/с]<Modern Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C226764E70F1FA5F7519FBD5D6B0379CB135E76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Nostra Morte - Sin Retorno (2012) [FLAC|Lossless]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4F3BB7D9FE9C6D07497D79A6F78FCD5677AC2F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Split(   Читать дальше...   )Жанр: Post Rock, Instrumental, Ambi
 ```bash
 magnet:?xt=urn:btih:B96DF5B12CA79D6C3B129803C2E4BFCDD6B79343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Roger Waters - Radio City Or Bust (1985) 2 CD Bootleg [MP3|320 кб/с]<Progress
 ```bash
 magnet:?xt=urn:btih:0AC192FD5DE589D6742C025126A94BE60F17018A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ The Kinks - The Anthology 1964-1971(2014) 5CD Box Set [MP3|320 кб/с]<Classic 
 ```bash
 magnet:?xt=urn:btih:ABCCDB9765DFC4DDB6ADF85AF52BB2F5B215B708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

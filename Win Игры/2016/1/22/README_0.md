@@ -19,8 +19,7 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:FE3109D78A7BFBF6E22B40208AE2483FE00BE9A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TechWars Online – многопользовательская, пошагова
 ```bash
 magnet:?xt=urn:btih:6895F27E7141E0FE39356B28DB2DE88C21B717F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.06.0109) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2C5BEE2EF823FD49D1AC916A35CFA45EEE6B2E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

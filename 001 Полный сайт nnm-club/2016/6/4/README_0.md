@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:767ADCA62FDF1365BD28D7B849B7DC328559ACEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8029BB8D59F48C63CF4A407B92E714E5366FA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFF9C8C392B48B058809442CEDB68815EFEDF950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Machine Code - Projection (2016) EP [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D17A91A187E7A93FC123611155FF19E36FB4DA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE7E37E90AF919A7DD4181F6B4F97ACC162AD713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B41E526D97AEC254E9F971AA2EA97477DBDD4F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ VA - Luxury No. 2 (The House Series) (2016) [MP3|320 кб/с] <ChillHouse, Loung
 ```bash
 magnet:?xt=urn:btih:DB7166B9246161198525C77D4D74556082D6186E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Optiv & Btk & Mc Fokus - Authentic Part One (2016) [MP3|320 кб/с] <Drum & Bas
 ```bash
 magnet:?xt=urn:btih:37A674C6BA8B04C3952EE94B6C5438FF9E23E287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5A0F919616E00A29278EE20E6940AD00EB3A398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Soft4Boost Easy Disc Burner 4.8.3.375 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9D0747449568A6DCA6598F89773B57A0ED44BDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Vanessa Daou - Make You Love (2000) [FLAC|Lossless|tracks + .cue] <Electronic, J
 ```bash
 magnet:?xt=urn:btih:3E806772A3CE08FEE1A1BD8D8BF6AA29747299D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4822B16B48B4E5258E1435870ED069FD469CEA8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ David Christie - The Best Of (1994) [MP3|320 кб/с] <Electronic, Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:DB3EEDE05A33384845900A22976E3A682280718D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Danny Wright - Unconditional Love (2016) [MP3|320 кб/с] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:B232C1C16FAEB5FBEB85B581182EE2B70C393715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95F065B202BF98129C1897A179CA7D638E5D4EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C565DBAC600D01FD3E1B8F0B6F9A41526A345BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Avec Sans - Heartbreak Hi (2016) [MP3|320 кб/с] <Synthpop, Electropop>
 ```bash
 magnet:?xt=urn:btih:37106B68647899859472C6D256EFC68F62DBA29A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Cantoma - Just Landed (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Do
 ```bash
 magnet:?xt=urn:btih:2760769EA205806A7FF1E0B48928D48CEC5AC6D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ VA - Молодежная клубная тусовка (2016) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:57CCDCA3C874B16A98C8A010EBEF89F12687B7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ Free Studio 6.6.19.602 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C7720E0CDFD2356E2D373FFD35D5F21F0DBC11CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40190302B52E2111C1D3FFC8B620580E7C645CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ VA - Cryptoforestry (2016) [MP3|320 кб/с] <Forest Psytrance, Night Psytrance>
 ```bash
 magnet:?xt=urn:btih:C38861B49C25AD4EC9F87AFB804644559FF11556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CADEF5A25AD7EF9F790BD2BDC5893D1D9F33C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFA6507D35A23427FCFF2ADE9BF4AF0876C68FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ Audirvana Plus - мощный аудиофильский плеер с широ�
 ```bash
 magnet:?xt=urn:btih:7599F9EBBB229082A70F90D703779F08355CFCBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECBD5BEAC4C6A8D17AF6C524049C8315CB38D896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

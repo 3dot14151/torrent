@@ -19,8 +19,7 @@ Living Legends 9: Voice of the Sea (2021) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:7CB2894143D225F7933B8BF48BA98633235E851D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Last Kids on Earth and the Staff of Doom (2021) [Multi] (1.0) License Fairlight
 ```bash
 magnet:?xt=urn:btih:499ECEF1F22C313A221D619F429EBB49E5A39BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

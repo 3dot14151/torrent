@@ -19,8 +19,7 @@ Allway Sync является популярным решением синхро�
 ```bash
 magnet:?xt=urn:btih:908D431FD919ED1F7911C77F81B643F4F72144D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

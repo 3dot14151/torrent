@@ -28,8 +28,7 @@ Bipsyhoz/Биопсихоз - Созерцание (2009) [MP3|320 kbps]<Experem
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Theatre of Tragedy - Дискография (официальная) (1994-2010)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

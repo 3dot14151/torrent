@@ -18,8 +18,7 @@ ImBatch - отличный многофункциональный редакто
 ```bash
 magnet:?xt=urn:btih:59FC4A78595C127B4EC2464108F362386576D195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA76474084DBD04E8340E76CEE3D2C43AD013A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Elements vol. 3 (Compiled and mixed by Deeper82) (2014) [MP3|320 кб/с]<B
 ```bash
 magnet:?xt=urn:btih:790219ED70B41AAC11FE81EFA69F861A716F3E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Simrit Kaur - The Oracle Sessions (2013) [MP3|320 кб/с]<New age, World, Folk>
 ```bash
 magnet:?xt=urn:btih:7AAE57E60C9B4E545136E422E5F5FE88CCE944A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5F2D80B2896358ACD61E85715256E921CCE1B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Anuvida & Nik Tyndall - Reiki Essence (2005) [MP3|320 кб/с]<New Age, Relax, H
 ```bash
 magnet:?xt=urn:btih:DFBD3D5962DB5765CFA5A7655823FF53A608006C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Jack Jezzro & Friends - Rio Nights (2010) [FLAC|Lossless]<Jazz, Bossa Nova>
 ```bash
 magnet:?xt=urn:btih:EF1ED1DBD32061B1B33F407376C66EB37F176E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Wise JetSearch - программа, которая предусматривае
 ```bash
 magnet:?xt=urn:btih:6FFD80F4B92CBF700D8278CEF7CA1996119F8970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F604480D8F63AF68C5943373720057F63CEA622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ National Geographic: Сделай или умри: Чёрный лёд  / Do or 
 ```bash
 magnet:?xt=urn:btih:2EC6BA424087E5789C2ED2DC0E1CA2CCB6CC7774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F137D91A0A72851C5CB413044BFB88F35EA56B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7457A4A06EA22A8844D3C9879C256B409AE8B6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ National Geographic: Сделай или умри: Огонь в небе  / Do 
 ```bash
 magnet:?xt=urn:btih:341DD93E090BC4FD0846B309EB945678D3B09CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ VA - Dance Drive №2 (2014) [MP3|160-320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:112BC8D6595754EBC5BED3FB4197F172E143CECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB4463388B7E14C715598F9EEC34DE0DDB9EAA73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EFDA8C661D9E0F2F690E302A830CC027A45D911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Wish Key - Uno (2010) [FLAC|Lossless]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:06AF0AD62EEF2E665CDB1B560DE50787013065B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ Ember — цифровой органайзер графики
 ```bash
 magnet:?xt=urn:btih:5A97A1ED5AEDB1E8ABD78D2F3CC8A9D37E6660F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFF64DA08562096D33D6705D13B9FAA3FB8F5BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ Beegie Adair - In a Sentimental Mood (2008) [FLAC|Lossless]<Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:2AC4C2337E0B61274B6CBAC907476DC91F0C723A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ Treha Sektori - Severh Sehenh (2014) [MP3|320 кб/с]<Dark Ambient, Industrial>
 ```bash
 magnet:?xt=urn:btih:EAFF796CF2EF7DEAEAA292138801B111D52B8D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ ISO Workshop – ещё одна программа для работы с об�
 ```bash
 magnet:?xt=urn:btih:7618BA8834ED514F801786A91B0C94DD3B5ADF49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Wish Key - Uno (2010) [MP3|320 кб/с]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:FC1E47BF295DEB1B861F7380B9F6F00792F6A372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ OmniPlan 2 разрабатывалось для менеджеров или р�
 ```bash
 magnet:?xt=urn:btih:109E6DECEFEBC60E221A6CD14DB849110D488CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10897F0AA2BBD9A6341F8523C3A1515B3928AF74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

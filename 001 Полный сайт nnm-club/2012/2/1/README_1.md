@@ -27,8 +27,7 @@ Anita O'Day - Once Upon A Summertime (1994) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Дискотека танцевальный экспресс 50/50 Зимн
 ```bash
 magnet:?xt=urn:btih:AD94C43946C8A118485738F1D729439709C53A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Claus Ogerman & Michael Brecker - Cityscape (2002) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Riger - Streyf (2009) [MP3|320 kbps]<Pagan\Black Metal>
 ```bash
 magnet:?xt=urn:btih:762BC8E3495332467AE72DEA318DEC0742B99FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Sonny Rollins - G-Man (1987) [FLAC|Lossless]<Hard Bop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F4D4EC1B89D36EC73687F60116A11D729105C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ George Howard - Steppin' Out (1984) [FLAC|Lossless]<Jazz-Funk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ Don Menza & His '80s Big Band - Burnin' (1983) [FLAC|Lossless]<Big Band>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D3657C682B8ADD0BA0EA50EA47FF1EDE0E827E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFE8E45389B431C4D47DD2F21235D2573CE40F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Gerry Mulligan - The Sound Of Jazz (1988) [FLAC|Lossless]<Mainstream Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ Regina Carter - 2 альбома (2003-2006) [FLAC|Lossless]<Post-Bop, Mainstrea
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ Dataworx - Control (The Remixes) (2008) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:3582798CEB3455F0748AA03AA45E48095495E0E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ VA - Definitions Of The Deep II (2012) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:9B81A3722C7BC1E241CCC341F20C4AC77DA34680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ VA - Music Paradise Winter (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:20BA5321EB7EAB9F150BF7C66A5C7295FE1F9BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25CC94C25200570062C405F74DC5E9D03505E175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ Prism - Dreamin' (1986) [FLAC|Lossless]<Fusion>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +573,7 @@ Benny Carter - A Gentleman And His Music (1992) [FLAC|Lossless]<Swing, Jump Blue
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +604,7 @@ String Connection - New Romantic Expectation (1983) [FLAC|Lossless]<Fusion>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25787681210CFFBEF8496A3804BE1EA9D8B64A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +664,7 @@ Milt Jackson - Night Mist (1980) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +698,7 @@ VA - Музыкальная Премия Года 50/50 (2012) [MP3|256 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:4C09D6D1D3AED746A288E0B3F67FF05D6B6DC813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +732,7 @@ VA - Special Anniversary [mixed by monotype] (2011) [MP3|320 kbps]<Hard Trance, 
 ```bash
 magnet:?xt=urn:btih:1719A8C05BEF449671F2E2BC946797257B6DEA7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +763,7 @@ Cal Tjader - A Fuego Vivo (1990) [FLAC|Lossless]<Post-Bop, Cool>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -820,8 +795,7 @@ Ernestine Anderson - Never Make Your Move Too Soon (1980) [FLAC|Lossless]<Vocal 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

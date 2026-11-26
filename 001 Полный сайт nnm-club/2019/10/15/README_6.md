@@ -22,8 +22,7 @@ IconJar 1.13.3 [En]
 ```bash
 magnet:?xt=urn:btih:41C4EB6E79D6B816C097321CF63E555E2767D695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ DoubleTake - приложение предназначено тем пользо
 ```bash
 magnet:?xt=urn:btih:54035FFAA227A56B6613A946E0C14B6F9FDAB1CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ iSkysoft Converter  для Mac. Сделайте все это - конверт�
 ```bash
 magnet:?xt=urn:btih:B32F3562BDFAFA130A474B2C3D4E05BC19A9DB05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ SoftRAID популярный пакет создания и управлени�
 ```bash
 magnet:?xt=urn:btih:92E56177D68F2FFCCC0F5743799F5DDA37D2CE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ SYC 2 устанавливает совершенно новый уровень 
 ```bash
 magnet:?xt=urn:btih:42E75C3F3FB65033B8F5C576ABA176C51286E99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ SeeYouSpaceCowboy - The Correlation Between Entrance and Exit Wounds (2019) [MP3
 ```bash
 magnet:?xt=urn:btih:787926B788DDC636B0D196C86C7B2E186368934B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Kadinja - DNA (2019) [MP3|320 Kbps] <Progressive Metalcore, Nu Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ PuzziPix - это профессиональная программа от ко�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Fantastical - приложение представляет собой кале�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ VA - Karneval Megamix 2020 (2019) [MP3|320 Kbps] <Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ KeeWeb - это надежный, мультиплатформенный и пр
 ```bash
 magnet:?xt=urn:btih:CEFEEC69D8D0F14320F15E0445AAED2A6EE8C5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:8D375628FFB9C97DE556841C0B49DF2F5C9A86FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:147475FCCFE832BE9816E81D664283B921F4F743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ VA - SYNTH JUNIPERO - A Retrowave Compilation (2019) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:9B1A256C21A0DB611026E57F8C79D865B5E9DC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Louis Landon - Heartfelt Solo Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ```bash
 magnet:?xt=urn:btih:F12CAD707680494587DC7392B1280020FE167F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ VA - NIGHTWAV - A Synthwave Compilation (2018) [FLAC|Lossless|WEB-DL|tracks] <Sy
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ VA - Amsterdam 2019 - Presents By Parquet Recordings (Mixed by Solee) (2019) [FL
 ```bash
 magnet:?xt=urn:btih:0F73A9E5FF3AE1734015A634381CBF97C9F67B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E22BC377ED05ED6AAB8CBF7AA82CB4CC399DED7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ JixiPix Artista Impresso Pro 1.8.10 [En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ Keyboard Maestro - мультифункциональная утилита, ко
 ```bash
 magnet:?xt=urn:btih:9F62F0088D1C5CC762973AA19ACF70008769600C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ NCH WavePad Mater 9.51 [En]
 ```bash
 magnet:?xt=urn:btih:799D4ECFF819F5481B4D41A2E014BB5B3D5B77A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ NXPowerLite Desktop 8 v8.0.8 [Multi]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ Yawara! Sore Yuke Koshinuke Kids!! | Yawara!: Go Get 'Em, Wimpy Kids!! | Ява�
 ```bash
 magnet:?xt=urn:btih:707E7FE1221E03D79758F534562085E3FC93D29C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ Logoist 3.1 [Multi/Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ The KVB - Collection 8 Releases (2011-2019) [FLAC|Lossless|WEB-DL|tracks] <Elect
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

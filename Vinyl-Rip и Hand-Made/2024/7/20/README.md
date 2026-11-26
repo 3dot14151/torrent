@@ -22,8 +22,7 @@ A4 Samba Pa Ti(   Читать дальше...   )Жанр: Psychedelic RockПр
 ```bash
 magnet:?xt=urn:btih:4A15D39BD18C031583CF1CD31F6ACEC3100D84B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Always Leaving, Always Gone(   Читать дальше...   )Жанр: Folk
 ```bash
 magnet:?xt=urn:btih:4FE2EB46186F4CD03851D90B98F0696ACCAF9BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nonpoint — американская рок-группа, образованн�
 ```bash
 magnet:?xt=urn:btih:8DE88F362409B874F713D03209FF37B07FB8206F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

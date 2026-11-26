@@ -19,8 +19,7 @@ Pure (2008) [Ru/Multi] (1.0.0.1) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:0D76E61B6D7AB03A790E1CECA789C8DFB4617E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales 12: Graywitch / Страшные сказки 12: Грейвич (201
 ```bash
 magnet:?xt=urn:btih:92BBB7FD33F465939DD6462C845316B0E05EF861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Weather Lord 8: Graduation / Повелитель погоды 8: Выпускн
 ```bash
 magnet:?xt=urn:btih:ABA59C1A08F994AA2DE3FB53177871EF72096A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cyberline Racing (2017) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:59C76FE3E72F72AD8B7E022D60991F47502BA855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Gas Guzzlers Extreme – это динамичный, яростный, агре
 ```bash
 magnet:?xt=urn:btih:462965C7BE64593965C4B1DE9B07E5B34376C334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Plants vs. Zombies (2009) [En] (1.2.0.1095) License CPY
 ```bash
 magnet:?xt=urn:btih:E4736129A8AE0F54CECB79D9A57A2F3A6EADF489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

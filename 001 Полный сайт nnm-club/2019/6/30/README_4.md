@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9BC7911FC43CCD902D483617A8D9DCFE28249E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Draugen — новый психологический детектив от пе
 ```bash
 magnet:?xt=urn:btih:E31FD2238704F9EA8926B4614F43F9788D18700B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Crest — 29 альбомов (2009-2018) Touhou, KanColle Vocal /Doujin/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:FD62FCB4427AD03EF94EF97E20B5C75171982BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6BCE5B7F4427852F497269BF67A085593FC5D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Titan Quest Anniversary Edition - мифический набор, из кото
 ```bash
 magnet:?xt=urn:btih:B900E2B6336D2A7C46949FD076951939D2F63413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Outer Wilds - приключения в открытом мире, попытк�
 ```bash
 magnet:?xt=urn:btih:A2EC1EC16B46AAC513A926A99AA06F404EB068CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7336C420EC74032E18F6B175AE761C1E12D8E073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5845F6B7CBDE004C6163499535F8C5921A3F685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Bokutachi wa Benkyou ga Dekinai | Мы не можем учиться! | We Neve
 ```bash
 magnet:?xt=urn:btih:78F4ADF066C59FC35B675FF8ECD7A695B4FDC17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 06.20
 ```bash
 magnet:?xt=urn:btih:B801B67B4B679900CB64356D4EB1FE3CB918588C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 ```bash
 magnet:?xt=urn:btih:69380F042FE98F5BD10010800FC3865C09134DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE8C1B14BF54637D2DDE79CE53E8BF763A6B54EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

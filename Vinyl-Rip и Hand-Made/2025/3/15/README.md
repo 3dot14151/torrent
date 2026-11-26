@@ -22,8 +22,7 @@ Swallow the Sun — финская группа из Йювяскюля, осн�
 ```bash
 magnet:?xt=urn:btih:C43FC1B90DBC99B4E9153207DA5894F9AB1C1352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1. Der Decken's Triumph(   Читать дальше...   )Жанр: Symphonic 
 ```bash
 magnet:?xt=urn:btih:A85B302155E9D54E64D71050186124036DE25D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Septic Flesh — метал-группа из Греции. Коллектив �
 ```bash
 magnet:?xt=urn:btih:9D2F2FB70D24FFE987691F13935D0B58511A7D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:23DF406D0C1FC71E7A6689D5B781563CC3557D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ R-Type Dimensions III (3) (2026) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:52C2E67F7B517209E40B622A43E2D66ED7B12BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Awakener Battle Tendency - это экшен-RPG, объединяющая �
 ```bash
 magnet:?xt=urn:btih:8BE97EEEFC44A461C3904C45175531D583860D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Control (2020) [Ru/Multi] (Build 17833993/dlc) Repack HardwareMining [Ultimate E
 ```bash
 magnet:?xt=urn:btih:565A3A6132F0F0E618E07B87A8AB925C6B97DE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lucky Tower Ultimate - это абсурдная игра, которая оча
 ```bash
 magnet:?xt=urn:btih:9043CA365EBB53B637B37318D9B9A1C7033E6DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Moomintroll: Winter's Warmth / Муми-тролль: Тепло среди зи
 ```bash
 magnet:?xt=urn:btih:BB0248BC474133CE6E827038390A245433F0D02C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Eden Crafters (2024) [Ru/Multi] (1.0f) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D17072AF6069E228BBB49E456395BC50CB01704A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Adorable Adventures - расслабляющая игра от третьего 
 ```bash
 magnet:?xt=urn:btih:36EF7B121BCC17E9503CB6EFF7B51E1DE45B5620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Mystery Phantoms: Ghostly Secrets / Тайные Фантомы: Призрач�
 ```bash
 magnet:?xt=urn:btih:4A34B9D151A19E7DE895BDF506EF3E7D12EC5E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Librarian: Tidy Up the Arcane Library (2026) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:100DCEF2337F0DDC7E3199C8BEC13B7D8F554E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

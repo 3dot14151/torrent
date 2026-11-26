@@ -19,8 +19,7 @@ El Matador [Ru] (RePack) 2006 | Zerstoren
 ```bash
 magnet:?xt=urn:btih:A2AC8DC21FA9446B3C5E214D5FF49A4F6627F5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Neighbours from Hell: Revenge Is a Sweet Game / Как достать сосед
 ```bash
 magnet:?xt=urn:btih:C00A91B654CD3DF25B65B52CF48BB68B901C9BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

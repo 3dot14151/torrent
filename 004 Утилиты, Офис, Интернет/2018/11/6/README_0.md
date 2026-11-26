@@ -19,8 +19,7 @@ Draftable Compare - программа для визуального сравн�
 ```bash
 magnet:?xt=urn:btih:55444DBAC4B3FF74C43932B03826CC45D0CF8B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

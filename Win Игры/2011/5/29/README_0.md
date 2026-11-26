@@ -19,8 +19,7 @@ Dark Ritual / Темный ритуал (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:2809E11AD38F25A41ADC7C3C0F3A12A4049316D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A825A3B3B8EE6798FC2CD835E2DD52533D13517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

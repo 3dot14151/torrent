@@ -28,8 +28,7 @@ Leslie Sampson : Vocals, Drums (Stray Dog, The Noel Redding Band, Gas)(   Чит
 ```bash
 magnet:?xt=urn:btih:FB6411B4F0AF9E378AB8F07322B87A59F985ED1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Kestrel - Kestrel (1975) Released 1999 [FLAC|Lossless]<Art Rock>
 ```bash
 magnet:?xt=urn:btih:B5D176367AC62F63D3ACD23700D9039D15AB9A0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Distant Dream - A New Beginning (2005) [MP3|320 кб/с]<Progressive rock>
 ```bash
 magnet:?xt=urn:btih:4DD28F8E36848CF1862BB3F06E9BE2EFE99E4F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Still Life - Still Life (1971) Released 2001 [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:17B8CF1B4A86F415CD2FD5CDFA569E92661F00A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ b). Mirage (Gary Lee Yoder, Gary Grelecki)(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:404F7E597BA4E4C77B20DF3E4798A4399C6244AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Crystal Viper - Possession (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:96EFDEDDB50C47F4819141224CF687A152C4707C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Irish Coffee - Irish Coffee (1971) Released 1992 [FLAC|Lossless]<Progressive Roc
 ```bash
 magnet:?xt=urn:btih:F03AFBD8E09AD016957F933ACE724F2314809381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ VA - Melodic Rock: This One Goes To Eleven Vol.11 (2013) [MP3|320 кб/с]<Melod
 ```bash
 magnet:?xt=urn:btih:2042DA8A2FFD78EABBB0CFFF9413335A400186B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Shaka Ponk - The Geeks and the Jerkin' Socks (2011) [FLAC|Lossless]<Pop punk / F
 ```bash
 magnet:?xt=urn:btih:9A66D0CCDCEF6F27755A25A6999B6CEEE83AE81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Warren Zevon - Excitable Boy (1978) Remaster, Hybrid SACD/2013, Audio Fidelity/ 
 ```bash
 magnet:?xt=urn:btih:7E40F4E90D7D78B720A183BA243E0D230C499AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +356,7 @@ VA - Melodic Rock: This One Goes To Eleven Vol.11 (2013) [FLAC|Lossless]<Melodic
 ```bash
 magnet:?xt=urn:btih:3A8244178444656ECED64A0E4685628982EF11F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ A Day To Remember - Common Courtesy (2013) [FLAC|Lossless]<Melodic Hardcore, Pop
 ```bash
 magnet:?xt=urn:btih:B4FC20EAAF8F12EAD011D22D992F7E9F6258AB33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +424,7 @@ Rainbow - "Since You Been Gone" (The Best of Rainbow) (2014) [APE|Lossless]<Hard
 ```bash
 magnet:?xt=urn:btih:7ADE6251E96670F818749D3FCC1CAD6A4F53E189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +458,7 @@ Within Temptation - Paradise (What About Us?) (2013) [MP3|320 кб/с]<Symphonic
 ```bash
 magnet:?xt=urn:btih:6C6CD63AF835A3AA1181672E6ACBDA3D389AFB7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5CF3ED015B058A919BF65D382F997F79AD03CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +520,7 @@ Paul McCartney - Band on the Run, McCartney & McCartney II (1970-1980) Hi-Res Di
 ```bash
 magnet:?xt=urn:btih:650734D0A027CB39D1E3467ECB272328E5D3392E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Herman Ze German - Take It As It Comes (2010) [FLAC|image +.cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:66DD54DA11D053915C76CC23EAF1FADFB0BBBEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:DAE770A389DB03528F9A4AE881A6E675743DF130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ D Sound - Kisember (2002) [FLAC|image +.cue]<Psychedelic Rock, Space Rock, Progr
 ```bash
 magnet:?xt=urn:btih:15154A2F48798C17F1CD117E5596C6820B43E30D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Elferya - Eden's Fall (2015) [MP3|320 кб/с]<Symphonic Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:631A11A30ABA4EC27284741026067F92D4998DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

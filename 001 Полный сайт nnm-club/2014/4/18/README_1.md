@@ -20,8 +20,7 @@ The Bible Society of India and Ceylon (изд.) | Новый Завет [Пер�
 ```bash
 magnet:?xt=urn:btih:2846E78A12B9903F605AF592EA39121404AFD900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB25898ED460C22DEE69ADDBCDADB880EA1B3308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ System Explorer - диспетчер задач для Windows. Функцион
 ```bash
 magnet:?xt=urn:btih:70136DA0608FEA263544B52A4463F2385337CF49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Variations & Gary Ryan - Romantic Guitar (2006) [MP3|320 кб/с]<Instrumental, 
 ```bash
 magnet:?xt=urn:btih:2AC9632AC032D779D5C42C35BBE12630C90B0028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Wallpapers - Пасхальные [JPEG]
 ```bash
 magnet:?xt=urn:btih:2A3D2898C8F83B937406037E08244766CEF9D3E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Comedy Баттл. Суперсезон. Выпуск №3  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:1138D1ECF8CBA0FC90A9818D8AAB4EDCAC2504D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3148F37C0BE3871E73850C21BDECF54ECC045AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Sebastian Bach - Give 'Em Hell (Japanese Edition) (2014) [MP3|320 кб/с]<Hard-
 ```bash
 magnet:?xt=urn:btih:895255EDFC855A89FA2633CAD9572A75EE13F37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ David Sardy - Саботаж / Sabotage (Original Motion Picture Soundtrack) (20
 ```bash
 magnet:?xt=urn:btih:10B3B56D7E810320B76B0A999667D6383BD6590A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ VA - Essentials Vol. 1 (2014) [FLAC|Lossless|WEB-DL]<Psychill, Downtempo, Psydub
 ```bash
 magnet:?xt=urn:btih:100FED04659F321036758784E4968B0412FDFBA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ VA - Sexy Soulful Night (Stylish Sounds For House Lovers) (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:A9A8A2706879B8B360AB3A712D88D7EEA3F5119D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ Sirensceol - The Method To The Madness (2014) [MP3|320 кб/с]<Drum & Bass|Dubs
 ```bash
 magnet:?xt=urn:btih:18607651A9059F07FFFF3595704AA3792C168D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ Miss Platnum - Gluck Und Benzin (2014) [MP3|320 кб/с]<R'n'B, Pop, Soul>
 ```bash
 magnet:?xt=urn:btih:862C004852C5B5BF0721F98294283751E96F7309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ Aly & Fila - Quiet Storm (The Remixes - Extended Versions) (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:037244420D6AF1235678B452CBBDF2AAC61B989F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95DF30635F8339EC3608ECFD46CFA3766B2D7A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ Designs for Mail  является отличной коллекцией из 20
 ```bash
 magnet:?xt=urn:btih:B5DD4A876527E1A66E45E729EF62E18261085D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD38D2C8D1FD35FCA35BB361999543DC10082D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEE48F8CDEC8C276080A2AC1E81FFD669A67909D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ Sketch умеет читать из (.sketch, .drawit, .svg), импортиро
 ```bash
 magnet:?xt=urn:btih:5C2B38034089829AC2D0A90996BAB125C422136F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ Q-Dir — файловый менеджер с очень малыми сист�
 ```bash
 magnet:?xt=urn:btih:7B374C70DB022C69BA37225E9F695C4A494B21DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82392DEF72AA35EF746ABA8CEEA647690FD78AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C9A5F598BB2DDB4E13CBFBA69D8F0864A9C017C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1EE521480888C9A1A39B0BEEA5DCAE470B8DC1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ BluFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:9584E24B1322267A1C8ED08FFBFD85C73FB71DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F325AD44D0C54BE5AB2C4ED7CC0D8343A68EC59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ Miley Cyrus vs Cedric Gervais - Adore You (2014) [MP3|320 кб/с]<Progressive H
 ```bash
 magnet:?xt=urn:btih:4A909E3F3A8B0B2FF353DC2C6644B852C0D7FCD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

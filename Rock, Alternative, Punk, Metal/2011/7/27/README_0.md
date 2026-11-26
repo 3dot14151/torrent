@@ -27,8 +27,7 @@ Infinity - Infinity (2011) [MP3|320 kbps]<Melodic rock>
 ```bash
 magnet:?xt=urn:btih:9A0082B2813BEF441BF589BAB4A76DF477201B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2FE7D1FABFCD53481C5948B9EF42D039C5FBD2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Theatre Of Tragedy - 9Albums+4EP+5Singles (1995-2011) [FLAC|Lossless] <Doom Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Slade - The Best (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:048E84A054758869449F25477BBFE38113027208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

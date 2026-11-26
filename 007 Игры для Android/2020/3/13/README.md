@@ -19,8 +19,7 @@ Progressbar95 — это оригинальная ностальгическая
 ```bash
 magnet:?xt=urn:btih:41F94E4B05116375B70B0FE0A54BFF88C816A61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LEGO Star Wars Microfighters – гонки на андроид, где вы б�
 ```bash
 magnet:?xt=urn:btih:779B8FB96EE49A384C0FF09092D9C04986A99E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Wars: Rivals - шутер, разработанный специально 
 ```bash
 magnet:?xt=urn:btih:90A1F299B550BE008921506E66EFF0BEB4DFD9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PC Creator - PC Building Simulator – отличный симулятор на 
 ```bash
 magnet:?xt=urn:btih:75DD35135C50FFBB81C7FB4CA870FD81B5D12F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Star Wars: KOTOR – вот уже четыре тысячи лет идет в�
 ```bash
 magnet:?xt=urn:btih:23BBCA35362EA5A25578E61EF441196B1A14EEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Jimmy LaFave - Texoma (2001) [MP3|320 кб/с]<Rock, Folk, Americana>
 ```bash
 magnet:?xt=urn:btih:2DB725DE8F30150708CE481DED54B5E2F9F0FF52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Year Of The Goat - The Unspeakable (2015) [MP3|320 кб/с]<Occult Rock>
 ```bash
 magnet:?xt=urn:btih:1BC9F4D62CEE4C0100A752EF40B925D50F589C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rachael Yamagata - Happenstance (2004) [MP3|320 кб/с]<Soft Rock, Pop Rock, In
 ```bash
 magnet:?xt=urn:btih:71F1D2D05149C926832EC0193CA18BE0DA977591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Finger Eleven - Five Crooked Lines (2015) [MP3|320 кб/с]<Alternative Rock, Po
 ```bash
 magnet:?xt=urn:btih:722C0CC85522E539F96E6B33F5D96052F2C5258C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

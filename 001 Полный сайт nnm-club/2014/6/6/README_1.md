@@ -27,8 +27,7 @@ VA - Глаза в Глаза (2014) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:7F58A8F49ECB07278A3DF69B0D9C40168FDE235F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Solar Fields - BLUE (2014) [FLAC|Lossless|WEB-DL]<Ambient, Psybient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0646D3346AFF7B8BB0F0851D93A0D8798D1C4D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B45814044D56B98ED8E781AB8171CBC6C7746498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6C8550A4B3780A84DC85FC2E1D40E9806EE9D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Comedy Баттл. Суперсезон. Выпуск №10  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:A0D21E1230FFB1CFB9EB0FFC6265879C43206E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:147D3B8C9831BD88B8D7DD33C413392242AF3732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Comedy Баттл. Суперсезон. Выпуск №10  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:FF8168582B898992A5097CFD239793786AEB34AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BE6C976A41D862E65C52A8656E3BB3276B09F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9ECD10C3D9397E97C373ABA74D0E85EA38AE0F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Nawpac - Eagle Spirit (2014) [APE|Lossless]<New age, Instrumental, Native americ
 ```bash
 magnet:?xt=urn:btih:780EE4D6700D29CABBBE9B8A7DB590CE3977A849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ Rebecca & Fiona - Beauty Is Pain (2014) [MP3|320 кб/с]<Synthpop, Electropop>
 ```bash
 magnet:?xt=urn:btih:2EE4D8133C90CF92CD5846541567FF434F91183A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F763EB7B5A42CCECE592261AA6025A4E0913D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ PC Magazine является одним из известнейших и авт�
 ```bash
 magnet:?xt=urn:btih:CFA2B977C6BA4DDF93527DF2C8A45059CC304261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB6444A2A1BA6616A8ECAFF7C6680FC3A177F115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5ED4D889A4F41FFF43ECDC6A01474E56A0D5082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Shadow Wolf Mysteries 4: Under the Crimson Moon (2014) [En] Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:DE7E9399AA88BCE94C353D18D9F1CC775511C3B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ Suite from Abdelazar
 ```bash
 magnet:?xt=urn:btih:A6A449A2356AEED7E3D95438BE7905CAFB6BADAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Comedy Woman. The Best  (2014.06.06) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:D9FF3292520761C6DA537D9826EE31F56E626E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4215FB58621BC981E7ED7E00E6090E688E068664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ Solar Fields - GREEN (2014) [FLAC|Lossless|WEB-DL]<Ambient, Psybient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:92371BD61259DA360A0722A58ED89DCAE76625F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +585,7 @@ Concerto Nr.2 in G minor 'L'Estate' RV 315
 ```bash
 magnet:?xt=urn:btih:FA62D1E8E0710F8CFD9A281ED6A8F0D899BAA555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ Vivaldi J.S. Bach A. Marcello Telemann-Concertos for oboe and orchestra Vladimir
 ```bash
 magnet:?xt=urn:btih:22831F7DDACCEF675622671004AB3D055321A321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +672,7 @@ Paul McCartney - Memory Almost Full (2007) Limited Deluxe Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:99BE2CD2CAC14245F1D95375EC75404F42A2C5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +706,7 @@ VA - In Search Of Sunrise 12: Dubai (Mixed & Compiled by Richard Durand & Lange)
 ```bash
 magnet:?xt=urn:btih:6478AB82BE1FB6E5CB9B7428C6FC0FAE115E0AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:159CF4831DB86068BF38342D91A7531A771C284B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

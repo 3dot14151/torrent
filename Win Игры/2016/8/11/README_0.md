@@ -19,8 +19,7 @@ Shadwen (2016) [En/Multi] (1.0.0/build 1356/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:3867800519DDC75DB17C66B56025F5EC8476F9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4. То, Чего Больше Нет [4:55](   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:566AC8209A8F3F4C4E24E6FF3FA2C67015900D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Magnesis (Magnésis) - La Dame de Braise (2015) [FLAC|Lossless|image + .cue] <Ne
 ```bash
 magnet:?xt=urn:btih:C6A5D504454FA800F0D0F92DA1F2651A5ECB6FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Arritmia - Redes (2016) [FLAC|Lossless|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:664269055AB7BBDDE16857487545CF81278688A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Malum - Awakening of the Black Flame (2016) [FLAC|Lossless|image + .cue] <Black 
 ```bash
 magnet:?xt=urn:btih:9CD9F6E07E03F20BAF43E841E3A1A0C19264DE25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Nocturnal Degrade - The Dying Beauty (2015) [FLAC|Lossless|image + .cue] <Black 
 ```bash
 magnet:?xt=urn:btih:7524237B89C8F218BF5C273D920F59E3BA8494AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Tony MacAlpine - Concrete Gardens (2015) [FLAC|Lossless|image + .cue] <Instrumen
 ```bash
 magnet:?xt=urn:btih:E8A236C196196F4BD5E616DB3A155E4634E8B81F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ The Rome Pro(G)ject - 2 Albums (2012, 2016) 2CD [FLAC|Lossless|image + .cue] <Ne
 ```bash
 magnet:?xt=urn:btih:2E810F0DD842B780C152AA3618772F33B09B6399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Delain - Moonbathers (2016) Limited Edition 2CD [FLAC|Lossless|image + .cue] <Sy
 ```bash
 magnet:?xt=urn:btih:4211DBCEFB24A179BE7D3B6FA8C4038F48B45558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

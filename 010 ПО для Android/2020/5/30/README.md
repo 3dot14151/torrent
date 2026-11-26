@@ -19,8 +19,7 @@ Footej Camera 2 Premium 2020.5.6 [Ru/Multi] - Приложение камеры
 ```bash
 magnet:?xt=urn:btih:8F21B260FE9B10226162ECA9A101D50F0E3D147D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

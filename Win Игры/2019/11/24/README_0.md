@@ -19,8 +19,7 @@ Masters of Anima - это оригинальная приключенческа�
 ```bash
 magnet:?xt=urn:btih:33702B2C42355E934E5A6CD964BD8CC012E4A043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sniper: Ghost Warrior (2010) [Multi] (1.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:9A942B8F3C6B88EE6157F8643C7DD1A6F4E9E14F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sniper: Ghost Warrior 2 - единственный кроссплатформе�
 ```bash
 magnet:?xt=urn:btih:7A2566F8247DBC4B2BCF70B4DC7D1B7EE3C44AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

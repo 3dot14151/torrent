@@ -19,8 +19,7 @@ Tower of Time — удивительная игра со множеством п
 ```bash
 magnet:?xt=urn:btih:4D6FBB3A7C5A932D8CDC8A69218AE52FD7A585C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kholat (2015) [Ru/Multi] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:5B17469F2C7921A3A880E0B3E0711417EAC0C883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

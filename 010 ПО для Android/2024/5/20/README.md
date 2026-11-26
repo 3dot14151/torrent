@@ -19,8 +19,7 @@ Video Converter Pro - стильное и функциональное прил�
 ```bash
 magnet:?xt=urn:btih:D61BAD859B195F90115253D9A3D839F72C70C60D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pixomatic - это мощный фоторедактор для Android устр
 ```bash
 magnet:?xt=urn:btih:6EB93619FBB6CB129839F653C641B14F45EA3B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pixomatic - это мощный фоторедактор для Android устр
 ```bash
 magnet:?xt=urn:btih:2F9C86C4A3DA493C03723A99365D61EE1FCB20E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bluetooth Codec Changer - это приложение для быстрой см
 ```bash
 magnet:?xt=urn:btih:7D83567970A6C50684094539B5DC4691DB87B426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ RS Проводник - запросто поможет вам в управле
 ```bash
 magnet:?xt=urn:btih:83F8353F360E4EF6177FF9614D81C4B310A1ABA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:792D174CED2F9D29242521F61D7B82E4D2565B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54B512C0FBA2C5DE46AF5AF229A2221E11257CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Peter Verhas / Питер Верхас | Java Projects / Проекты на Jav
 ```bash
 magnet:?xt=urn:btih:9938A6A870A42306C582C1D445C32A949A3E8B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

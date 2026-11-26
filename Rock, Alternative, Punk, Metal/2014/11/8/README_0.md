@@ -22,8 +22,7 @@ Septem Voices - Без Весны (2014) EP [MP3|320 кб/с]<Symphonic Gothic M
 ```bash
 magnet:?xt=urn:btih:76B1B426A49AF2105BA3994A371D6CC0C22CB030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Foo Fighters - Sonic Highways (2014) [MP3|320 кб/с]<Alt. Rock, Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:57B986452D40CFA309C3A59E9A256BA16BE9EC27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

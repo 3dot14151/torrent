@@ -22,8 +22,7 @@ Showaddywaddy - Showaddywaddy (1974) [MP3|320 Kbps] <Rock & Roll, Glam>
 ```bash
 magnet:?xt=urn:btih:4573D98C97E1FB98CB7C5BA034521CA5F9749B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wire - Silver/Lead (2017) [FLAC|Lossless|tracks + .cue] <Post-Punk>
 ```bash
 magnet:?xt=urn:btih:D94D41D16E415510F5131EBE4DEA39E1B765F3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Brian Setzer - Rockabilly Riot! All Original (2014) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:7DD1D91810C67F0B7212987030A079A8010725ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Michelle Branch - Hopeless Romantic (2017) [FLAC|Lossless|WEB-DL|tracks] <Altern
 ```bash
 magnet:?xt=urn:btih:8C8E9ED632C4D6EF5370B68C1B1525E63FAF9EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Middle Of The Road - The Collection (1998) [FLAC|Lossless|image + .cue] <Pop Roc
 ```bash
 magnet:?xt=urn:btih:56204A5E2AAEDEFEF916F61F899C27690B9D9291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

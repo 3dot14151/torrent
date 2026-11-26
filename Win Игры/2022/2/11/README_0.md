@@ -19,8 +19,7 @@ Wanderlust 4: The Bermuda Secret / Жажда странствий 4: Тайна
 ```bash
 magnet:?xt=urn:btih:B1FDC3A6BF09202B358376C69B3AC5EE49A621A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total War: Rome Remastered - улучшенная версия историче�
 ```bash
 magnet:?xt=urn:btih:DB56E52FE62985276694A245D00CF534745F3997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

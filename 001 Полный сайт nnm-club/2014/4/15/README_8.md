@@ -28,8 +28,7 @@ VA - Finest Groovy House Music Vol 4 (2014) [MP3|320 кб/с]<House, Club House>
 ```bash
 magnet:?xt=urn:btih:466C4234B815725AFAF42C570A313A34451B37E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Holy Other - With U (2011) [FLAC|Lossless]<Leftfield, 2-Step, Abstract, Downtemp
 ```bash
 magnet:?xt=urn:btih:687531D2F7EC7D2D77D386219569FBFF1BB8A605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Pete Christlieb with The Lori Mechem Quartet - Live at The Jazz Cave (2006) [FLA
 ```bash
 magnet:?xt=urn:btih:0992337BF40403DCE55D090B8494F48B9AE28687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBDD6706F5B8315D924A33F45CCDF5D8F3920C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Hiatus & Shura - Fortune's Fool Remixes (2011) [FLAC|Lossless|WEB-DL]<Downtempo,
 ```bash
 magnet:?xt=urn:btih:3B76E4FEB32C3571D5757918F47838B5552D8BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Den aka Faust - Поверь (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:F20BF1E5CDDFF3B71E02FC0E5F3E12CBE37220EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E223C3858F8272154A147B1FFF4E016EAC3E4411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ VA - Roman Messer Top 10 March (2014) [MP3|320 кб/с]<Trance, Uplifting>
 ```bash
 magnet:?xt=urn:btih:43EF7A248C7C67577DB8CB56F6DB68E76C6EB68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ Binary Finary & Lele Troniq feat. Christina Novelli - Waiting For The Sun (2013)
 ```bash
 magnet:?xt=urn:btih:C74DA808D082BE544FA477DBE6834867D9EDF85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ Writer Pro – один из лучших текстовых редакторо�
 ```bash
 magnet:?xt=urn:btih:CA0057026E502373A554D2C58B48199BD8239CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ Talla 2XLC & Sarah Russell - Build These Walls (2014) [MP3|320 кб/с]<Trance, 
 ```bash
 magnet:?xt=urn:btih:26382F3C5F2FCB3AD8C804944C9D6ED7CED6064C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5712D82D30362D3B94A421551A672CADF1B3C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ VA - Top Club Music World Hits 5414 (2014) [MP3|254-320 кб/с]<Club, Euro, Hou
 ```bash
 magnet:?xt=urn:btih:CD4AB64E464E0063A361ED6DF6D64512D0B37881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BF4F8EB1969DE30C5F1DA51C899D82B16BD9CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ subtractiveLAD - First Steps (2014) [FLAC|Lossless|WEB-DL]<IDM, Electro, Ambient
 ```bash
 magnet:?xt=urn:btih:9F1A8C8FF9685EF0B49EDDDDF3595CE4024243C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +477,7 @@ Oscar Peterson - Oscar's Ballads (2001) [FLAC|Lossless]<Bop>
 ```bash
 magnet:?xt=urn:btih:075F9F68659AEF681C4BA257F8897A9773CDD3BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ AlexZideyn - My Lost Angel (2014) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:782DFD8756DEB0CC92ECEA693D0A69E489331C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ Talla 2XLC & Sarah Russell - Build These Walls (The Remixes) (2014) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:922834C4137BCBE796DB769E927752538A1C936A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ Daniel Kandi feat. Sarah Russell - Change The World (2012) [MP3|320 кб/с]<Tra
 ```bash
 magnet:?xt=urn:btih:3FCE6606CB464496F069E2266132D4B470EBDCE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ VA - Ambient Impact (2014) [MP3|320 кб/с]<Ambient, Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:2C0580EDDC4E33DDCC98412A3EACDAF4E37D6AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ Binary Finary & Lele Troniq feat. Christina Novelli - Waiting For The Sun (Remix
 ```bash
 magnet:?xt=urn:btih:B57904D41D0D888D82468245749D7348263F3938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB9CDD25C35BDF743038595D13464F7423BF914A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +681,7 @@ VA - Очень Горячая Штучка Зарубежный Выпуск (2
 ```bash
 magnet:?xt=urn:btih:8DF6F46BD1223C3DDAC7FD4FD98460EBC36C0347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ Robert Nickson vs ReLocate - Recognition (2014) [MP3|320 кб/с]<Trance, Progre
 ```bash
 magnet:?xt=urn:btih:EC9CCDD54C54C97DC7CCB1858B2304967A63A0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +740,7 @@ VA - Pure Berlin Chill and Lounge (2014) /Exklusive Berliner Luft Edition/ [MP3|
 ```bash
 magnet:?xt=urn:btih:EB13EAB5094CF1AB4E926C672B268900220EE119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A22E70E5084DCD552C52DE5B76F0AF6196776465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

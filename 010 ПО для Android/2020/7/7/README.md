@@ -19,8 +19,7 @@ Network Signal Info Pro 5.55.14 (Paid) [Ru]
 ```bash
 magnet:?xt=urn:btih:FE9202ED03C5C1024D5B88B1FAF0146EFA6AA8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

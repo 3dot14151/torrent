@@ -19,8 +19,7 @@ Among the Sleep (2014) [Ru/Multi] (3.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:908E17DE37C819297CD67C2A52FC2B9C18B6D7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Steamburg (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C80C269312083BA39049D01567752080EEA91036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Steamburg (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:BE7F000D2F5B897B8DC7BC459EEDA40CC3850604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

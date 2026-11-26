@@ -19,8 +19,7 @@ SnagIt предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:5375B124B3A1C79E51A93678540C44E14F7CF706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Valley Benchmark - это новый инструмент для стресс-т
 ```bash
 magnet:?xt=urn:btih:9D20CFD277B5696F8990F4A21F9578EBFABF53AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

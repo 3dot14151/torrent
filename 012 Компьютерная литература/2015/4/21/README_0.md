@@ -21,8 +21,7 @@ Scott Meyers / Скотт Мейерс | Effective Modern C++ (2014) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:29673D59D658D9BDB72519062C8FBC5C0C9CED0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

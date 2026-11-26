@@ -27,8 +27,7 @@ Amannda - Greatest Hits (2014) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:83F09E13E6534EA653D841F38C218FEF0A92F243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Larry Young - Larry Young's Fuel (2005) [FLAC|Lossless]<Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:E8ABFA2A2D2E7D39A04EB9DBE3382F5B1F9F3450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ VA - Русские Новинки Vol.148 от AGR (2014) [MP3|320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:D37B196A218683CC2438DEBCCF4DA12F6FFE6459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:31EF1B111F95017E0D23A0A6A7D838E78AE427C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A18CBA0CE78A8A07B764D6F695E0995326AB54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E6876A22DA9CE357643F078DD4EED202BDB13CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:D6E5DE6857FF4CC9430427E136935BFBA3A4191D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FBBAC84F93975AEE29F232EECE1DCB136F7B4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ VA - Easy Listening Lounge Affairs Vol 1 (Deluxe Downtempo Moods) (2014) [MP3|32
 ```bash
 magnet:?xt=urn:btih:84B3CBE62D287E927DA4D71DA8259301A89EF9EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3132D01FA1343DFA8C02EDB8A621614321ED6B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ VA - Music For Everyone - Vocal Trance & Progressive Vol.1 (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:02A1D8330B3D607EEDCF81604C50C674331CEE39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ VA - Супер замес новинок (2014) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:BEF229F459BEC117881AC9F6B1D201979D9A1F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ SeaMonkey включает в себя веб-браузер, почтовый �
 ```bash
 magnet:?xt=urn:btih:E708489CAC3AF9CD8508BE6242D92B06AFFEB94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ Garmin: City Navigator Singapore & Malaysia NT 2014.10 (02.2014) <En>
 ```bash
 magnet:?xt=urn:btih:7CD33AD5D9AD3CF13CB995161AB50A6EACC4F181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:C80E85E5B7D38C45D9107553966BFE5D7D5CA5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ System Explorer - диспетчер задач для Windows. Функцион
 ```bash
 magnet:?xt=urn:btih:FDA56984FE13F936CEF90701ACBF3880F340DB10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ Ronnie Dunn - Peace Love And Country Music (2014) [MP3|320 кб/с]<Country, Cou
 ```bash
 magnet:?xt=urn:btih:B68961288B6CAA5B943189EC46260489E7701A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +518,7 @@ Aaron Heick & Romantic Jazz Trio - Europe (2009) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:6557DDAFF2DF7F87350D612DD32D48D48F3BF1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ Charles Mingus - Modern Jazz Archive (2004) 2CD [FLAC|Lossless]<Bop, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:3A5195C4F0E171AA0E45429DED91433C1F174C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ VA - Armada Presents Deep House Essentials #002 (2014) [MP3|320 кб/с]<Deep Ho
 ```bash
 magnet:?xt=urn:btih:5EB46C1E873490EE5AEB1E9D274549CBB5E86790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ Film Noir ™ предлагает возможности для создани�
 ```bash
 magnet:?xt=urn:btih:9808989E46AD6105B4C49C9C50E56A3906B479EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6208EBE09581DFFA644C1D0DC7AFA3C46374B3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ MAMP Pro 3.0.4 [Multi]
 ```bash
 magnet:?xt=urn:btih:87431F008BE03A504C6081DEF5F22ADCB3BB98BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +687,7 @@ Mozilla Thunderbird — бесплатная кроссплатформенна�
 ```bash
 magnet:?xt=urn:btih:6FBEAD87C51AB00092AE176DB2F54BADBD57C345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C181E3FEA76BF17B35B5744FEE71007253545DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5656276AAB8A4A2B17549C9B4636FC4E9784BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

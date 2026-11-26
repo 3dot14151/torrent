@@ -19,8 +19,7 @@ MX Player Pro v1.74.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A4FDE1F7C5F14D3D074711F0095246976BDEA091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mubert: AI Music Streaming v4.2.2 Mod by DEXUNPACKER [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:37419E1FB3D697C3FE80300D770D9A3A28D79768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

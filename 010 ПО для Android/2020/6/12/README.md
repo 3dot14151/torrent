@@ -19,8 +19,7 @@ Volume Slider Like Android P Volume Control 3.5 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:63FA6D22E80DD259F856228C750D28976A40CDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

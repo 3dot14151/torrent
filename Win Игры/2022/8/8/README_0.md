@@ -19,8 +19,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.4.2/dlc) Repack West4it
 ```bash
 magnet:?xt=urn:btih:20E66B24BC822986694E1AC4BF1F601C72076E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Winter Ember (2022) [Ru/Multi] (1.6.0_526e457) License GOG
 ```bash
 magnet:?xt=urn:btih:E71EA16E9ACC9453D49C65105A7667877E3B9DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

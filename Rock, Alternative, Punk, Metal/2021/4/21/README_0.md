@@ -22,8 +22,7 @@ Rage - XIII (1998) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:ACC1A7A59D2343571DCB0F34AD3327E4345EC7C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Armaggedon - Trumpets of Christian Holocaust (2021) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:911A79B5978D96D010953DB354F3D38846554B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rage - Black In Mind (1995) [FLAC|Lossless|image + .cue] <Power Metal, Speed Met
 ```bash
 magnet:?xt=urn:btih:E21DC6E45BE6A7D4DC50C777E768F17FFE775C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rage - Unity (2002) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:619E67F7B329FEF9A637DE69B8798A08B988C988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rage - Soundchaser (2003) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal
 ```bash
 magnet:?xt=urn:btih:F16E5232DBF2E5E82E5A50D2C5DC2212763653CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rage - 10 Years In Rage: The Anniversary Album (1994) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:45B8A9DA5D1646BEB63A48EA29C56C46FE9532DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ MaterialEyes - Тhrее Оf А Кind (2021) [FLAC|Lossless|image + .cue] <Progre
 ```bash
 magnet:?xt=urn:btih:382194070ECEE0C62273C109F85BE95865C480F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Beastcraft - The Nechronology of Ungodly Beastial Craft 2004-2017 (2020) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:D403E0AD200A36A2142EC380395C92CAF55BFC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Rage - Welcome To The Other Side (2001) [FLAC|Lossless|image + .cue] <Power Meta
 ```bash
 magnet:?xt=urn:btih:B1FA6671A13D75F271D02A8B1ABA61470376E3B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Rage - Ghosts (1999) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:19C7FF9671FA6DF6E0ABD2D21A241D429221BFE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Absolute Power Ballads (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:6239332293417B65FF0A734E8816DEACD5DE09F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Rage - Reign Of Fear (1986) Repress, 1989, Noise International [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:B9DE67C073C5C693D5DBB4B665B4E080F168F1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Impiety - Versus all gods (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:9A4B0343621795CDC35BD7C556C5FE812CEABD41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Dodsferd (Dødsferd) - Diseased Remnants of a Dying World (2018) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:A92DE52743938C720755E5E34870E0F55A9AF4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Centinex - Death in Pieces (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:61C32683F04B4F939AD82105F399F8E82FF2C105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Rage - Execution Guaranteed (1987) Repress, 1989, Noise International [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:D61D5BFCA595CEBB502826A18F4140B1FC787009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Rage - The Missing Link (1993) [FLAC|Lossless|image + .cue] <Power Metal, Speed 
 ```bash
 magnet:?xt=urn:btih:9814932EFB5FD5430B819DD69C96D84980068E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Horna - Kuoleman kirjo (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:73F8C10F50210E72D369EFD51DE9911BAF1AFB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Rage - End Of All Days (1996) [FLAC|Lossless|image + .cue] <Power Metal, Speed M
 ```bash
 magnet:?xt=urn:btih:E76975EE334DB5E6270D7784596F262A1E7A2AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Rage - Perfect Man (1988) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal
 ```bash
 magnet:?xt=urn:btih:3FEAC285C5C4055C9062633FD52862A80AB134C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Last Chance Riders - Fool's Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:A65770C0A8E02A75A55055F505C890D8A470150A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

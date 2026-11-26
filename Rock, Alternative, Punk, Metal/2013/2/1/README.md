@@ -25,8 +25,7 @@ Odyssice - Silence (2010) [FLAC|Lossless]<Progressive rock / Symphonic Prog>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Sinister - The Carnage Ending (2012) Limited Edition [FLAC|Lossless]<Death Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

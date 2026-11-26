@@ -19,8 +19,7 @@ TT Isle of Man Ride on the Edge 2 – это новая часть серии п
 ```bash
 magnet:?xt=urn:btih:59A11236C60D7C13BFB04428FEE7578E02217E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 ```bash
 magnet:?xt=urn:btih:9E89EB6250E5F0099C192140CAA692055FC005D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

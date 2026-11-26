@@ -20,8 +20,7 @@ For My Pain… — финская готик-метал супергруппа �
 ```bash
 magnet:?xt=urn:btih:2113F2C66D92FA11A32AF215F4571A0F1B0CED8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

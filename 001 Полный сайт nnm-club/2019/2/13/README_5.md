@@ -22,8 +22,7 @@ Tom Harrell - Paradise (2001) BMG Bluebird [FLAC|Lossless|tracks + .cue] <Post-B
 ```bash
 magnet:?xt=urn:btih:37BF84C9DEDD11F2BA2E1666F98FEE5CA88FA6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hi_Tack - Say Say Say (Waiting 4 U) (2006) Enhanced [MP3|~245 Kbps (V0)] <House,
 ```bash
 magnet:?xt=urn:btih:1ACB76FA9465303266D36E4DC07E8BA3CFB74201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ ProFind 1.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:C1C9C7DBB0DA3A1A8D1E83B0B320FF131932555C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:7A7CA236E52908E709F9632FA8DD19F0271B5A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ PullTube 1.0.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F5E3D4BAE6FEB22F6128D1981D303CBC999AEE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Greta Matassa - I Wanna Be Loved (2009) Resonance Records [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:580EEF15056EA188F2482D6AE8241B8A7C343FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Tender - Fear of Falling Asleep (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:6B43E3AD6D8F6BC4B5A8AAD575948BAC813B0D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Chasms - The Mirage (2019) [FLAC|Lossless|tracks + .cue] <Industrial, No Wave, S
 ```bash
 magnet:?xt=urn:btih:040946C21AE9716D3C968426917F0CEA280B7E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ EverWeb 2.8.8 [En]
 ```bash
 magnet:?xt=urn:btih:EA2D4D56449F67ACDEC04B1939DE73ED26E5AE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33A5B6DB7FB7CC47FB2E29591778A1CC71714666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA5011E67A784E5DBE3E586446E9DDD27ABB66C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Jozef Van Wissem & Jim Jarmusch - An Attempt to Draw Aside the Veil (2019) [FLAC
 ```bash
 magnet:?xt=urn:btih:1DC83A4E874381207284FF7F9B1C392A0B8F31FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE54C2C1983D1E8D0E146B37D70949551E046CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Ed Lynam - Live @ Gallery At Ministry Of Sound London (2019-02-01) (Classics Set
 ```bash
 magnet:?xt=urn:btih:1F31FA779FB588FBDF823D4A0CB23DEA914B2583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Blocs - простой способ создания красивых сайто
 ```bash
 magnet:?xt=urn:btih:160BF442B1E3F04C8BCA6CE7D10FD8A82C1A8783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Photo Supreme - вспомогательная программа для вла�
 ```bash
 magnet:?xt=urn:btih:5D3AFF855B267D4F0039790E07DB750A0319B51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ VA - Damaged 100 (Mixed by Jordan Suckley & Alex Di Stefano) (2019) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:16D740516CDA548A2CF53E7594477BDB1884D214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Not Waving - Futuro (Music For The Waldorf Project) (2019) Ecstatic [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:0D13C6DCF7BB5E9DDB64921C6245AE9142210CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:7644A34FB7EBE85F8A466D4785EFA77CFF6DF18B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ VA - Breaks Pro V.01 [Compiled by GvertO] (2018-2019) [MP3|320 Kbps] <Breaks, El
 ```bash
 magnet:?xt=urn:btih:3F2AFDAB929BDF35DB5CCCB83BD36779F6B638FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:1B514B4E26FDFE1054C2794A6DA43F14848425C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF89374749BB4936D2F4B59D3ECCEA0B6CDACEA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9629022716371E042555052BC065148DEB1DCC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ VA - House Garden Music: Progressive Selection (2019) [MP3|320 Kbps] <Progressiv
 ```bash
 magnet:?xt=urn:btih:CA4DF953F5DED179F983B6F874BB26ED56FF9623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ Nagart - Секреты оборотня (2019) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:1CD480E6638F174EFE7740BBB6BF2C5B368F82E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:7519C599B532E53EB0F4A616F566079B5F26A187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

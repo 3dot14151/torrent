@@ -26,8 +26,7 @@ Brainchild - Healing Of The Lunatic Owl (1970) Reissue /2008, Second Harvest, US
 ```bash
 magnet:?xt=urn:btih:F462CCA829532B89854A3638718DE661D9876676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Paul Brett's Sage - Schizophrenia (1972) Reissue, Remastered /2007, Japan/ [FLAC
 ```bash
 magnet:?xt=urn:btih:A762DE8DBAB2CB47529D50CC0B34908FFF212A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Web - I Spider (1970) Reissue, Remastered /2008, Esoteric, UK/ [FLAC|Lossless]<J
 ```bash
 magnet:?xt=urn:btih:4AFA34B50034DE407303E153E8543DB37328B6C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Bonus Tracks:(   Читать дальше...   )Жанр: Rock, Blues Rock, Har
 ```bash
 magnet:?xt=urn:btih:BB92640ABE83B9EFB937EFA6952A3BC36DF9AA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Insomnium - Shadows Of The Dying Sun (2014) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C5979E4C81A0B5002AF4697F40A3E55899420DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Ugly Kid Joe - Stairway To Hell (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7CA60818B19F18B6C70940900BAAB736AAD2DBD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

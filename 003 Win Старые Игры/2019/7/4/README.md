@@ -19,8 +19,7 @@ Transport Giant - компьютерная игра, экономическая 
 ```bash
 magnet:?xt=urn:btih:869A0434665E34568287E48A9D097074760EFB80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

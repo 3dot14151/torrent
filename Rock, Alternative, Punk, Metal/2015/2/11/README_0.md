@@ -23,8 +23,7 @@ The Lizards - Future Life (2015) [MP3|320 кб/с]<Punk Rock, Skate Punk>
 ```bash
 magnet:?xt=urn:btih:7C4636DD3E1945FDC28AECB36128E95FAB280F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Hope of the States - Left (2006) [MP3|320 кб/с]<Alternative/ Indie/ Post Rock
 ```bash
 magnet:?xt=urn:btih:239328DE1E22F93986ECA0DCEA1B131DD863E611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Hackensack - Up the Hardway (1974) /2002, Red Fox/ [FLAC|Lossless]<Rock, Blues R
 ```bash
 magnet:?xt=urn:btih:33B5B7366843E38271D9D822217D8752FF863ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55221BDDDC036E9FD310694821329922D5DBB193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Catherine Wheel - Adam and Eve (1997) [MP3|320 кб/с]<Alternative/ Indie Rock>
 ```bash
 magnet:?xt=urn:btih:77FA14B6E899761796367843E8DEBB79462B7965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Devil's Train - II (2015) [FLAC|Lossless]<Hard Rock / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:802A8FC1ACA4A4A1FDA3052DA73A330A7D54D423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Albums, EP:
 ```bash
 magnet:?xt=urn:btih:214F1912FC23D9D6B06C850EBA652EB4F0D42401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Periphery - Juggernaut: Alpha (2015) [FLAC|Lossless]<Progressive Metal / Djent>
 ```bash
 magnet:?xt=urn:btih:2DC790CE9F7EB223DE7F52F7EE3428D2C7BCC427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

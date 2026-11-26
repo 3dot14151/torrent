@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0F887B07F3B652505784ECF713426E7C1F852F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Снегопад Хитов По-русски (2014) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C9EA2E8A7FE55FE0409031EB71263FCA2C0A741A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Cassie ft. Wiz Khalifa - Paradise (2013) HDTV [1080p]
 ```bash
 magnet:?xt=urn:btih:F40CDB2C6F79E60F004A86DC0B6FD45D2732246A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Denis Solee and the Beegie Adair Trio - All of You (2009) [FLAC|Lossless]<Jazz, 
 ```bash
 magnet:?xt=urn:btih:90202EDCF4310DCFFE128CA4629B379D7C806845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F25E4D2E32B4225837FC3010333B155ECB25A2B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C4E11131AAED68064F5FF5169C017139B9AB494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E73689B5FF896C1C9BC81CBAAA8FCD5EE2618076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B1A17EE3E6DCD9E6682F7316036F4C1CE61B706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Trance Music Mastery | Настройка Вашей Студии (2012) [PCRec]
 ```bash
 magnet:?xt=urn:btih:93384230A2EB89524B85151EC114165A0EBEC536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DF1B79E10B025BA64D413E4FFF14891897EB5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Zero Cult - Absolute Zero (2013) [FLAC|Lossless|WEB-DL]<PsyChill, Ambient, Dub>
 ```bash
 magnet:?xt=urn:btih:B2E42FE9FA8AF28612624EF9933FF160228DF051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Wildlight - Hers Was As Thunder (Remixes) (2014) [FLAC|Lossless|WEB-DL]<Downtemp
 ```bash
 magnet:?xt=urn:btih:7474E6CD63282F53582D27641B88CECAD5496B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Jacintha - Here's to Ben (1998) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:0C358D2E84090A18F0E190EDCEC38B72ADC50AAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20242D6692E8EDC7A9E1E822783FC1781B843067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ VA - Сливки Хит-Парадов (2014) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:2B7810D1749CC44F66F6B03FE37D85E255384F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9B540B8A7D2598206287C1C91BA1B80FA92C342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ VA - Armin Van Buuren: A State Of Trance Radio Top 20 January 2014 [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:0F0E00C0243BD3671E0E4661B3425759FB29986F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24DDCB6FE7DDC8A17BD92EADD692E12C273789BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +528,7 @@ VA - XXXL Попсовый Отрыв (2014) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C240088D3C42B0D8B8874D3303DE158962982FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Golden Globe Award - американская кинопремия, присуж
 ```bash
 magnet:?xt=urn:btih:44A85D973659D7121E43A05887DC4A58DFAED71F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ MarkDrop великолепный, мощный Markdown-редактор, ко�
 ```bash
 magnet:?xt=urn:btih:E8B4D8A7AC5B045521A2887851FF2A7D0167FF6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:997951D060D3CADDDAFFF518D2ED8B9EE711265F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ VA - 10 Years Armada (2013) [FLAC|Lossless]<Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:50C816FAE09929E7A10BBD1B49EA37E6822F4C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +697,7 @@ Aurosonic - Yearmix 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:2B40F6FD6F9AD7EE19706D2E242C8008BFA06DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E980182E9028BD75978C813A0CAA3CE8C3C71E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

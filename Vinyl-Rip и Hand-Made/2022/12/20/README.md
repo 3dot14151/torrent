@@ -22,8 +22,7 @@ HIM — финская рок-группа, созданная в 1991 году 
 ```bash
 magnet:?xt=urn:btih:9CE846906E176701A8A43C083589F4D1D55E0035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

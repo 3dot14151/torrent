@@ -21,8 +21,7 @@ PyroBatchFTP — это программное обеспечение для а�
 ```bash
 magnet:?xt=urn:btih:E9B385679EAA06D61741DA9697BAAFC3EFEC7B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ eM Client  — современный многофункциональный п�
 ```bash
 magnet:?xt=urn:btih:7B51C378D1B90E18744CB53E0B95C839E8C46CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Vivaldi 7.9.3970.41 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1883500F1B4270B642169682CC1AAB29D9D94A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Anthemion Jutoh - программа для создания электронн�
 ```bash
 magnet:?xt=urn:btih:0DD507311C4A8C79415020AFE2DDB0E095E0B48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Mirillis Action! 4.48.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EECBE7DA4D05A0A0BDAD0DAE54BBD00214079184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ JCleaner — мощная и  простая в использовании пр�
 ```bash
 magnet:?xt=urn:btih:D702531925B9756FE6D812D0E61B29EB338DE2CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Zen Browser — это новый, ориентированный на конф�
 ```bash
 magnet:?xt=urn:btih:FA533D86D8AC4CE83DF21D4380D0F03E50FE5DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:06B3AE0B750A66AF88CF7F5809D6161CD1850F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:3169450E0967504B6DFC9B4E32B71BCAEDD1288B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Ninja Squad | Become A Ninja With Angular / Стать ниндзя с Angular (
 ```bash
 magnet:?xt=urn:btih:43E3D99F179B35B54C32408FC3DCEC0FE667A973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

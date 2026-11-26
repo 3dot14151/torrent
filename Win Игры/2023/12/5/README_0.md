@@ -19,8 +19,7 @@ Big Adventure: Trip to Europe 6 / Большое приключение: Пое�
 ```bash
 magnet:?xt=urn:btih:54FF7B67449CD769C48A76EB03A7C1E6A41D43A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World Racing 2 - аркадный симулятор, вдохновленный
 ```bash
 magnet:?xt=urn:btih:AE8571F69BD59E2B36E771FDD22223D233AE0093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (2.33/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A988EFB623D35F0D5A3D093B52980DA752A4D326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

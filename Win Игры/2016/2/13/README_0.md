@@ -19,8 +19,7 @@ Parallels Cross (2016) [En] (1.0.0c) Unofficial
 ```bash
 magnet:?xt=urn:btih:EBDC65562AF431488F69C39B16E1B4667FE77109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reflections of Life 3: Dark Architect (2016) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:027BF25BC5060990861BC05E0B0B420C70842E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rite of Passage 5: Heart of the Storm (2016) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:14F07D1181B8DBDA3C607DCB343CAD5CA0BBC4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Subject 13 (2015) [Ru/Multi] (1.2) SteamRip  Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E28B736C7109CB9B67B4338EA7120669FBDE609F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Brave: The Video Game / Храбрая сердцем (2012) [Ru/Multi] (1.0.0.3
 ```bash
 magnet:?xt=urn:btih:0405524A5EFCC59398E279D2FEC735CD2F48DD59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Subject 13 – классическая приключенческая игра,
 ```bash
 magnet:?xt=urn:btih:76A5A95002A996377691E2338EB755AE242E9746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

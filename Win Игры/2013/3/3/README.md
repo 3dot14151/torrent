@@ -19,8 +19,7 @@ Scarytales: All Hail King Mongo [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:6721BE8554DB0507C7457B62F25EE3507FC5C501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Costume Quest [Ru] (Repack / v.1.0u5 + DLC Grubbins on Ice) 2011 | Naitro
 ```bash
 magnet:?xt=urn:btih:90A450DA644299BD2D9A9FBA1CD057377E08B6E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Death Track: Resurrection [En/Multi6] (L) 2008 | PROPHET
 ```bash
 magnet:?xt=urn:btih:8F30C15FED348DCF6CEFBF1A8F9CA91F8FFE92B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Ridge Racer Unbounded + 4 DLC [Multi6/+] (Lossless RePack/1.13) 2012 l Naitro
 ```bash
 magnet:?xt=urn:btih:78471DC312D8F3FE2C682B276890413FEA506C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Risen [Ru/En/Multi7] (L) 2009 | PROPHET
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

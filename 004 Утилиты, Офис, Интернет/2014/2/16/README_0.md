@@ -19,8 +19,7 @@ A1 Sitemap Generator 1.8.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DCF7B1F60539028DBEC8D70FF44C54DD0F7D1CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

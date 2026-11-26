@@ -28,8 +28,7 @@ Megahera - Condemned To Insanity (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:51F5EE570803910374666BFDFD95D3B9719724CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ La Tulipe Noire - Matricide (2013) [MP3|320 кб/с]<Neo-Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:CCEF3E746610B94C66F0157BF27C57E36464AC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Tonight Alive - The Other Side (2013) [MP3|320 кб/с]<Alt.Rock, Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:EAF36CBA8B8E61EF870BE9888376E432E5DA7595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Feared - Furor Incarnatus (2013) [FLAC|Lossless|WEB]<Melodic Death / Thrash Meta
 ```bash
 magnet:?xt=urn:btih:4F7EEC2A9AFA0E4D1F083A9A303C4990DFB19F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ The Dead President - Смерть кукловоду (2013) [MP3|320 кб/с]<Pu
 ```bash
 magnet:?xt=urn:btih:9FC804A2BB8FDD9BC48F15EF02DD2AFA8C7310C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Van Morrison - Hymns To The Silence (1991) [FLAC|Lossless]<Blues Rock, Folk Rock
 ```bash
 magnet:?xt=urn:btih:411BA4A3EB563F9F618FB6D9692F875DB0C68E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ The Bonnevilles - Good suits & fightin' boots (2008) [MP3|192 кб/с]<Garage Pu
 ```bash
 magnet:?xt=urn:btih:FE972A473FADF46CBDE4741AF04284F426C8C7D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Kiss - Carnival Of Souls: The Final Sessions (1997) SHM-CD, Remaster /2013, Univ
 ```bash
 magnet:?xt=urn:btih:C13597CC8BC4CA14D9B064BEB52237DDA7007929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Kiss - Destroyer (Resurrected) (1976) SHM-CD, Remaster /2012, Universal Music/ [
 ```bash
 magnet:?xt=urn:btih:D2A26EA6DA9EF3FED18E6494263A903ACD9CC28F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ Richard Marx - Repeat Offender (1989) [FLAC|Lossless]<Rock, Melodic rock>
 ```bash
 magnet:?xt=urn:btih:5E936B7F1E9AC2F1C6374988A028F0F9D83AABFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +368,7 @@ Blackfield - Blackfield IV (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:92EFC40052D7C016E5DF2F039007FA5A92C5730D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +402,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:CFCBD5E0F0855E4B2E709426A05EB0DCEB2EF0EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3039EECD85EFFEB8AEB6339457D5BDE37345F608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

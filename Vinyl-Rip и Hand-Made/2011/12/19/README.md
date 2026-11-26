@@ -28,8 +28,7 @@ Electric Light Orchestra - Discovery, Time (1979, 1981) [MLP 2.0 192/24, 2.0 44,
 ```bash
 magnet:?xt=urn:btih:FFAD06C1F5865DE2B97D16A6EB86683CFE2FF81F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

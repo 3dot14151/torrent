@@ -19,8 +19,7 @@ DreamCalc - научный калькулятор для компьютера с
 ```bash
 magnet:?xt=urn:btih:49491C54EC957D18B953F6F65DE67C70B08E0E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Platinum Hide IP - программа, предназначенная для с�
 ```bash
 magnet:?xt=urn:btih:F50AC2DCE3C5697A58E4D49E10DD92483F5E32BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

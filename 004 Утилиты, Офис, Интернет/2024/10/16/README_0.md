@@ -21,8 +21,7 @@ Macrium Reflect обладает интуитивно понятным поль�
 ```bash
 magnet:?xt=urn:btih:D543249F1C233C2FD57DA5AD881C139316073769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

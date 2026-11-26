@@ -19,8 +19,7 @@ Rick Dangerous Антология [En] (RePack) 1989-1991 | Pilotus
 ```bash
 magnet:?xt=urn:btih:6E956897DB963BACE5C4FD6AFA67A68524979E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Raptor: Call of the Shadows [En] (RePack) 1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:52EFDBEB0A91AAC2442D9F65AC3B16D7CF1EC8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Last Ninja Антология [En] (RePack) 1988-1990 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A0539C09399C45344D3D5B28E18CD013FC540329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Rise of the Triad [En] (RePack) 1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:5958C086F29D9A265F94D0F7F1A8B8874144FD4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Arkanoid и Arkanoid II: Revenge of DOH [En] (RePack) 1988-1990 | Pilotus
 ```bash
 magnet:?xt=urn:btih:5A59528A9655DDDD28E490105ED1905C07DC7675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ KGB [Ru/En] (RePack) 1992 | Pilotus
 ```bash
 magnet:?xt=urn:btih:C7C82241A5279D10748BE4392D99B198693D3BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Ultima Антология [En/Ru] (RePack) 1980-1995
 ```bash
 magnet:?xt=urn:btih:417DEB06C49F7A489423CD72D98E20AFBB455963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Disney's Duck Tales: The Quest for Gold [En] (RePack) 1990 | Pilotus
 ```bash
 magnet:?xt=urn:btih:AABC7993D43D135A4EE33ABE371D22EB25895B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Quake 2: Mission Pack 2 Ground Zero [En] (L) 1998
 ```bash
 magnet:?xt=urn:btih:F33AFD6C5472DB299A7ED53DEA6887A1260EA695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

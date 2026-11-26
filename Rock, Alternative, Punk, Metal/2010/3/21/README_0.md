@@ -28,8 +28,7 @@ Poets Of The Fall - Twilight Theater (2010) [MP3|192-320 kbps]<Alternative Rock 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Mike Patton etc. (Faith No More, Fantomas, General Patton, Kaada & Patton, Lovag
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Turner (2016) [En/Es] (1.5/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:7C4B3002A0DD8C64E244941EE39FC32774A55101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aerial Destruction - воздушный шутер с 7-ю миссиями ср
 ```bash
 magnet:?xt=urn:btih:599B5FB54CF59AAC4F1044AB67805AD709C3D8B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

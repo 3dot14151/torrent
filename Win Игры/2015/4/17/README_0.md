@@ -19,8 +19,7 @@ Ominous Objects 2: Phantom Reflection (2015) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:303ACB07A719EF4F004E5BAEDAFF5071D8865036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Demon Archive: The Adventure of Derek (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:CB97A89AEF25951F1A80D1A34309543A0CB45FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spirit of Revenge: Cursed Castle / Месть духа. Проклятый за�
 ```bash
 magnet:?xt=urn:btih:9DFE1CB99F5B4D3B55126AF42DAC02D6C3720235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

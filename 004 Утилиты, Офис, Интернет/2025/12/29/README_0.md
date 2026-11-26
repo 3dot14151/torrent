@@ -19,8 +19,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:0D6F13AA49568E60257743F5059D2F68F2B793E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:464AC29E9FDB881BB5441FBF7A13377C365517CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:B6C5F35E44BAA83EA59C9C4848E524DCD2026762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ MediaHuman YouTube Downloader 3.9.18 (2612) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:FD6FB75B199C9B087CCF6A75114F719FB9BB668F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Wise Disk Cleaner 11.3.1.851 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8BC34F63DF2A937431E4F6DD37C6AFC2CD976E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

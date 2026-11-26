@@ -22,8 +22,7 @@ Frank Zappa - Jazz From Hell (1986) 1999, Reissue [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:CACFF343E18584B675B32A67C677B0A9277149DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Per Gessle - Small Town Talk (2018) BMG [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:1067970723E6155D0D1D196BAF1C260621703ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Radio Tapok - Последняя песня (2018) Single [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:FEB8A632D21185CA141D35DF1D4CE8EB2D589A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Avi Rosenfeld - Very Heepy Very Purple VI (2017) [MP3|320 Kbps] <Hard Rock, Clas
 ```bash
 magnet:?xt=urn:btih:BCF06EE9A00DDF87B49E29D7808966CFD096B08C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Zero People - Красота (2018) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:36AA4528B8FE6107C72AD95B15B193922053899F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ T. Rex - Gold (2018)(3CD Box Set)[FLAC|Lossless|image + .cue] <Classic Rock, Gla
 ```bash
 magnet:?xt=urn:btih:72B8573254A0F38A57F8EC18AA8F23D7E9F5163E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Uriah Heep - Easy Livin' (The Masters Collection) (2018) 2CD [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:51793D377EDF21C93DA0115E51BAE273B9132436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

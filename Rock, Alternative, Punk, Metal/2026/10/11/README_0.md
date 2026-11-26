@@ -22,8 +22,7 @@ Robert Plant - Saving Grace: All That Glitters… (2026) EP [FLAC 24/96|Lossless
 ```bash
 magnet:?xt=urn:btih:82BB5058C5A22B0719A315CEE36D4BB046709970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Amon Amarth - The Allfather Awakens (2026) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:A8804B42C405D98AADB25B9A6E8C937F1CC3B4B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

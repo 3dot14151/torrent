@@ -22,8 +22,7 @@ B1. I Can't Dance (4:01)(   Читать дальше...   )Производст
 ```bash
 magnet:?xt=urn:btih:15B139C8604B69CE3CE80DEBDEFD65D86DC6BE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

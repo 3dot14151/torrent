@@ -19,8 +19,7 @@ Classified: France ‘44 - это пошаговая стратегическа�
 ```bash
 magnet:?xt=urn:btih:C795B8E38AA4297CFBB1EA3902D83A5215E24DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Mobius Machine бросает игроков в огромный инопл�
 ```bash
 magnet:?xt=urn:btih:EE79CD013EEB9FF18208576F263993C5A335AD14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:0BCE6041222655554FC6A7A901BEF384FD9EB4CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

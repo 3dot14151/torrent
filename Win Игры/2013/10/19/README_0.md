@@ -19,8 +19,7 @@ Fairy Tale Mysteries 2: The Beanstalk Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:4925DEB5F406186EEBB59F450BB1CF13CD450105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightmare Realm Collector's Edition / Мир кошмаров. Коллекци�
 ```bash
 magnet:?xt=urn:btih:32EF63849F8F628AF93A6A33EB180CCA52DD737C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deo - это 3D адвенчура-платформер. Богатый набо
 ```bash
 magnet:?xt=urn:btih:9D224153D9872115F1FE085D8BC8EF5C6B10CDB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sine Mora — горизонтальный экшен, который броса
 ```bash
 magnet:?xt=urn:btih:DDC4405E6E4E7F21059F2AEA193AA08F2AEAA5E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Secret Files: Sam Peters (2013) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:D188BB9E4D90F5BE629F63DA6D2212935598F252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Cabela's African Adventures – симулятор охоты в полност�
 ```bash
 magnet:?xt=urn:btih:843F5632BBEA6C512AB19C4A85706C5CCB8F616B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Bridge Constructor - отличная физическая головоломк�
 ```bash
 magnet:?xt=urn:btih:8AD698F9373A4B9AC7DA6ECF544785D38A7F57F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Knock-knock (2013) [Ru/Multi] (1.0.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:7EE7AF463F280A2041AB9A136B3C197B6ABC9A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

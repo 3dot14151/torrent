@@ -18,8 +18,7 @@ Lego Jurassic World / LEGO Мир Юрского периода (2015) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:A53FAE0A648B796FE1B9DEC5F4B5B5A2AADFBFE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Office Tab Enterprise новая версия небольшой, но очен�
 ```bash
 magnet:?xt=urn:btih:F2148D0D2A28E78D2EC64364F3174A4088D569F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Star Wars: Empire at War Gold (2006) [Ru/En] (1.5/1.1) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:DD30DFC5423DE920773258356D859C2E72490122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Crusader Kings II открывает перед игроками один из �
 ```bash
 magnet:?xt=urn:btih:A3E7289D26B95C19F86198817F68260946585E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C9AFF0878D3E4DF662A605FBAD260546F999B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Dr. Alban - 13 альбомов + 57 синглов (1990- 2015) [MP3|192-320 kb
 ```bash
 magnet:?xt=urn:btih:BCD890D19A84AE2DFAAC6C6F8644F884DFD5C748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.1 upd4) License RELOADED
 ```bash
 magnet:?xt=urn:btih:CB81DE9A6FFAFE519590E53C29D7D4C14D10FA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D759FCA9E0B37D5042E566ECB192458B302E677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDD87FE39FB48EE630A9A2FA4AFB809887C1B7A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Batman: Arkham Knight / Бэтмен: Рыцарь Аркхема (2015) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FE1FA97E177C462F5AC9A4F7591DA5E17F1B866B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

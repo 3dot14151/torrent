@@ -24,8 +24,7 @@ Sul Ad Astral - Afterglow (2014) [MP3|320 кб/с]<Atmospheric, Post Black Metal
 ```bash
 magnet:?xt=urn:btih:96B2DDFFB24A9A0F9FE32E5E76370AA82915E626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Vintersorg - Naturbal (2014) [MP3|320 кб/с]<Folk Metal, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:DF946E4B0A81F20827055BF72531018F3FA7EA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Every Time I Die - From Parts Unknown (2014) [MP3|320 кб/с]<Screamo, Hardcore
 ```bash
 magnet:?xt=urn:btih:DD932E71E17FEED8A404BAB58543917CAA313730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Amberian Dawn - Magic Forest (2014) Limited Edition [MP3|320 кб/с]<Neoclassic
 ```bash
 magnet:?xt=urn:btih:906D8949F074A934E8B2643C9E1C854834487632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Linkin Park - The Hunting Party (2014) Japanise Edition [FLAC|Lossless]<Alternat
 ```bash
 magnet:?xt=urn:btih:3825470D4DB92696D9066DF567DCE7F861417E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A511F22B183F04673884EED47C9641FE52A3B289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

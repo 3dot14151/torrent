@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:748337B9593E9DCE54AE911E9C9FF4798559E6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BA2EDA0043C8A9E2A1B86DF7C24FCD96563549F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C953BBA6B0C9FEE856087BC134FC08FCDF6362B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F81F8C6CF5E3BA90967A136F10385E2D142AD59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Victor Gorelick, Craig Yoe | Артбук по комиксу Archie / The Art o
 ```bash
 magnet:?xt=urn:btih:4783A34D5C2E355E284B28088361E4DA9BD79256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46706CBEE6C53417AF901ADFAB506BC35FAF0D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F198E765A0048682BB7F41620DEC77E77C41595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Francesco Francavilla | Артбук по комиксу Archie / The Archie Art
 ```bash
 magnet:?xt=urn:btih:659B2492B487D33A1B359E13372E1BACC28251CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ VA - Осенняя свежая 30-тка Vol 5 (2019) [MP3|320 Kbps] <Pop, Dan
 ```bash
 magnet:?xt=urn:btih:7C8357061B4C59E3E29B070FCFC885F0FF28E499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3ABD6331CA154B2959D16C0EE45BA1A0475EA6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Forest Of Souls - Contes Et Légendes D'efeandayl (1997) [MP3|256 kbps]<Doom/Bla
 ```bash
 magnet:?xt=urn:btih:FCDC9D40D20FF1C6B7DDCF76EB268B429AF4971F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Ingrimm - Ihr sollt brennen (2007) [MP3|~224 kbps]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:515919CEC9B32C6B58A904F836E27A1F8F406252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A8F43250709F9696A2EE5308F56571A85EBCF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A243F2A2B30691DCCC2624E9346D80EFEFFB071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ WinScan2PDF позволяет сканировать документы и со
 ```bash
 magnet:?xt=urn:btih:DE8175B146A8C1A63400CE6DF12BC51D99B0474A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:1C07224083F6E3F562BAC266D54879E0D824E09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ Topaz Mask AI 1.0.4 RePack (& Portable) by TryRooM [En]
 ```bash
 magnet:?xt=urn:btih:908267B5F3557991750C0A1D65AAB7189CE38248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:819125388AF24826CAA7B1D955759115A7A0288E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Abigor - Time Is The Sulphur In The Veins Of The Saint... (2010) [MP3|192 kbps]<
 ```bash
 magnet:?xt=urn:btih:612C48AF84758DCC810977905316556AA6F12C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ Tvangeste - Damnation of Regiomontum (2000) [MP3|192 kbps]<Symphonic Orchestral 
 ```bash
 magnet:?xt=urn:btih:D3B0D1C7B3FA631346F84638814D8F02A03419A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Music for Quiet Moments - # Classical Love (2019) [MP3|320 Kbps] <Instrumental, 
 ```bash
 magnet:?xt=urn:btih:F5B1BBD11C1B601489632C05CF8F7E77BFD804DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ Coldplay - Everyday Life (2019) Scene [FLAC|Lossless|tracks] <Indie Rock, Britpo
 ```bash
 magnet:?xt=urn:btih:799CD7E11C8637F5AFD6E74B872518701B3AC04B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 ```bash
 magnet:?xt=urn:btih:6E5DBB5F4DAE6972E258CB011BB35FF27D54252C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149D45A05814DF117489FC551D7294733054CA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16B2556688AE9AF6C5D0A8FFBC45D00BD659EDB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C05626AF081A51A4C3FC2D937E454221A6B69A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Celestia - бесплатная трёхмерная астрономическ�
 ```bash
 magnet:?xt=urn:btih:F85E70B82B654392D8E8BC843C36832F29AD465D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

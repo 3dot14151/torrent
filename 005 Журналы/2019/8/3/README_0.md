@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:469DF6D4461DB2994B2D670C8EAF638B4735B142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ IT Expert - журнал для профессионалов в области I
 ```bash
 magnet:?xt=urn:btih:6BDA52EC40B71EB7F3A14016E8B3A0783A9B8875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

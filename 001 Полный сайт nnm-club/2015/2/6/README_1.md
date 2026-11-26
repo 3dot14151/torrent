@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E1576C7C4EAFE6AE3FD8F4B707C63CDCEE00B0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B7F8DEB50B3A2E85D394C700E870ECF7FE4E955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Aretha Franklin - Love All The Hurt Away (1981) [FLAC 2.0 24/192|traks(Vinil-Rip
 ```bash
 magnet:?xt=urn:btih:EEA0B9E85739F4B621A30102F7F82EDAF1D769E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ British Light Music - Richard Addinsell - Kenneth Alwyn & BBC Concert Orchestra 
 ```bash
 magnet:?xt=urn:btih:F9185ADD57F07520DE68CE4649B0D02FFEA02C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D84926EA24252296629A445A43BDE1CB116F9A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ David Lee Roth - Greatest Hits (2013) The Deluxe Edition [FLAC|Lossless]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:13053F813CA8B2D0E9D4164CC0D394811CCC6DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Andrew Bird - Echolocations: Canyon (2015) [FLAC|Lossless|WEB-DL]<Instrumental, 
 ```bash
 magnet:?xt=urn:btih:65F9EF16886B7FEFCBC4E7A28BD746821456F10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Ashampoo Photo Commander - универсальный набор средств 
 ```bash
 magnet:?xt=urn:btih:BA48FBC0828E4584136E1D2B5523DC73077A087A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Bella Lune - Tranzendance (2015) [MP3|320 кб/с]<Electronic, Darkwave, Indie P
 ```bash
 magnet:?xt=urn:btih:D7C139F74A17D36092FE41DD52494AC4BB6DB88E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67C0FD98166DDA4B0C1B34E1EF5F1B5828D9C5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Headdreamer - Discography 10 Releases (2010-2015) [MP3|320 кб/с]<IDM, Downtem
 ```bash
 magnet:?xt=urn:btih:FC5351E165026A741837A798ECB751A9CC64162E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ U.D.O. - Decadent [Japanese Edition] (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CDE51DB7C426EA725DF79EA549887C7EBD5EE86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F9F5AD555FF2CE06EC71376694125447E5D4404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ T.Rex - The Slider (1972) /2000, Repertoire Records/ [FLAC|Lossless]<Rock / Glam
 ```bash
 magnet:?xt=urn:btih:41C55112BA3341817DB4C67A5CB06C5590A82121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:256B2DE4A31A782DC10F6A70193DEEE17248F4C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ AkelPad - компактный, но при этом удобный и быст�
 ```bash
 magnet:?xt=urn:btih:1A465CD76CB6D2B1D5FC843A6797D446DEB6BD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:517B44C55219C7002D4ECB5B0ECAD9552931D1E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:583E91276ADE29A3D9F9EB0F552FE5A998CF0231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12FF586F9F25EE48A6BF329AF2A5D7C4AE90559B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ VA - Chillout Tracks (2015) [FLAC|Lossless|WEB-DL] <New Age, Ambient, Relax>
 ```bash
 magnet:?xt=urn:btih:111177EACD56A226E9FBF25C7D8119E5056721C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F5EBE3760A3D06EBBA8BFF8D74DFBEA277C395F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Torch Browser - браузер на платформе Chromium с расшир�
 ```bash
 magnet:?xt=urn:btih:E53DA75647F6806B591259348B3000DADC068AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BA2724E4FD1E6AE1BFC4D7620CCB59D4B6C01CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ EVGA Precision X — утилита для разгона и тонкой нас
 ```bash
 magnet:?xt=urn:btih:8503DB1394218FC8795F74E578AACA974D857FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:230B101D2A8D7045241FEC7F4700B865B0181CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4F8C1DCEF4152033DFD0D90B170088B6E5DD93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Ulfsdalir - 6 Full-length Albums (2003 - 2010) Discography [WavPack|Lossless|.is
 ```bash
 magnet:?xt=urn:btih:2A1BCF5BD27BFF25F7908F82DC92A53440A2EEAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Fist Fight - Conflict (2014) [MP3|320 кб/с]<Groove Metal / Metalcore>
 ```bash
 magnet:?xt=urn:btih:22468843E5C7D7B7E936FB881E05F91D67014865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Silent Civilian - 3 альбома (2005-2010) Дискография [MP3|128-3
 ```bash
 magnet:?xt=urn:btih:1735778CE48AFE94FE987E270EB8F9E4969CA2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Dogface - Back On the Streets (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:85BB688EBA931FA93BE00F69013AAC8F44935556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Bryan Ferry - In Your Mind (1977)Remastered /2007, EMI Music Japan Inc/ [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:98B95271C15F2F7051AA06782704F476E7CE2847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Loser - Just Like You (2006) [MP3|320 кб/с]<Alternative rock>
 ```bash
 magnet:?xt=urn:btih:2E917C7F21329C84B68219C2B01B36868C3C6D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Silent Civilian - 2 альбома (2006-2010) Дискография [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:F21825CE36A7A5E18DCF7EF1EC60542878B7F813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Valtari - Hunter's Pride (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:52632BB6E70C92E21368FE080AF541DC05CC298E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Astral Domine - Arcanum Gloriae (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:477BC285F7D0D27A2F8896FCA664A6D9929C2621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ Lacrimosa - Heute Nacht (2013) EP [FLAC|Lossless]<Gothic Metal, Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:065B6F44DE8588D6A92A19FDC284EDD43A6F6756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ All Shall Perish - 3 альбома (2003-2008) Дискография [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:D8D7C80F835735BCBAC96A3628E73CAC1B6A6EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:187F6C9DBA3182E8F93D05717EE6FCD2935A60CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ Zucchero - Una Rosa Blanca (2013) 2 CD [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:8D51EF2E4CDE598FD476DCA730D6A347987277E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +453,7 @@ Breakdown of Sanity - 2 Альбома (2011-2013) [FLAC|Lossless]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:2F8B950DA501617A6DE59CD1B8F9C1CC65E39414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

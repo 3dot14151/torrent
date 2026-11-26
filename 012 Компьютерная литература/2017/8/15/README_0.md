@@ -21,8 +21,7 @@ IP-телефония прочно входит в повседневную жи
 ```bash
 magnet:?xt=urn:btih:6331CA5228A0F4554E3F4D1590176E1717A3D95C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

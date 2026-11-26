@@ -19,8 +19,7 @@ Haunted Hotel 12: Silent Waters / Проклятый отель 12: Тихие �
 ```bash
 magnet:?xt=urn:btih:914EB01571F3D0C2932945600E07B6CBC85567D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Void Destroyer — гибрид космического симулятора и
 ```bash
 magnet:?xt=urn:btih:699A93CE729B5259201675A31F285957B1FBFCBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Office Freakout – экшен от первого лица, где вам пр�
 ```bash
 magnet:?xt=urn:btih:8ABFB940EE4BA5B192E921116B3748FF8822E6C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Goo Saga - HD Edition — необычный платформер с массо�
 ```bash
 magnet:?xt=urn:btih:764D245E4CC1FC983A5632C732E09A42AE3B0946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

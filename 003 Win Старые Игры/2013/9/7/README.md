@@ -19,8 +19,7 @@ Gobliiins Classic Trilogy (1991-1993) [Ru/En] (1.0.1) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:F9827FB9B27EFFDEFC5E434744FCE8E8E7210870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

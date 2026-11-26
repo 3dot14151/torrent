@@ -19,8 +19,7 @@ Awakened – это инди-хоррор игра, в которой у Вас 
 ```bash
 magnet:?xt=urn:btih:2EA09A6FCDD31A5527FD0D4AEAC0048DBBC81066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Awakened (2016) [En/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:ECD61927484C8655C431882A7E76E7463B0964AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Earth Space Colonies – стратегия-симулятор, где вам п
 ```bash
 magnet:?xt=urn:btih:D65A1C2E2429E33BD71B8DFFC1533FD2A22F9037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dovetail Games Flight School — это аркадный авиасимулят�
 ```bash
 magnet:?xt=urn:btih:31825829F416633AD20952E268BF16C2C6DEA900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

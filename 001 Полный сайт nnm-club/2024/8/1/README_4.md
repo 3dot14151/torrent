@@ -18,8 +18,7 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:9B4C79622E8109CE4FB2E69B111446FC05E16001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

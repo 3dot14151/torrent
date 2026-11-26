@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F7B6EF71302BE18F17BCF02A775A56090076106A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAA2C6C34BAABE237A6E39FE6D9F24B1D1D173E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

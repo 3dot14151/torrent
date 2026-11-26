@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:29F48AF1740E04AF11158043E521EB8E7D1796D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFA233BF2911E6F36F2633FB284907CE5B3B80D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4165037984193CCBD7D1264B35E3DBA82181CB98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Johnny Smith - Plus The Trio (1960) Remaster, 2017, Warner [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:B8ADAA4932A48DE0A3CBCDA80F6DA67228D2B153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Trance Trackz (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:229B5501F8BC81ED5D09F5A9AD923713FAE45FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Richard Davis - Forest Flowers (1977) 2000, 32 Jazz [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:180DF760DEFE123D9BE2FFAADEBEE14EE23B52BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Высшая лига. Весна. Часть № 6 (2017) [MP3|256 Kbps] <
 ```bash
 magnet:?xt=urn:btih:EFEC65221C6CC8CBE8A8F68D266F1AFA749B55D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Qbserve дает мгновенные ответы на вопросы о том
 ```bash
 magnet:?xt=urn:btih:6E9381A07B4D66EC7337A37A41ED0A3F70A38807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Suanda Music Radio Top 20 (April 2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:240412E44F3A051202791E540FB526772FBF62DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Beatport Trance  Pack (05.05.) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:CE905F478F7F6E533E6BEC0B12CCB9250561A0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DEE8452F54E0A4C61BE2F8CAFE59D3B2E750FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F22CC82D0DE7812DEF2C141348E8DDB5B3C5891D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECCECF180D2DD8FD805DBF2EA29A37DE63A9623D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Macsome iTunes Music Converter позволяет (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:9B776A1612FBBA2E8AFF37A2A4CD9434CDD3B998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ NoteBurner Audio Converter - Утилита для конвертировани�
 ```bash
 magnet:?xt=urn:btih:D086DA651CCC5EB9F91CB0658F07E4E4EED18E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:072B83DFF63790BFE5CA98BFA2394F47AB7FDA65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F47201BADD745133BD541430B704209349DB4678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E701085CF105B2A99493D7D94EC23FE7D9448888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:26618B7210187AD02EFD4CC3ECDBC944C5DC3819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Ben Webster - Ballads (1954, 1955) 2011, Phoenix Records [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:1BB2FE176679BB0AE2E840BD920354474142B9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ Sidify Apple Music Converter может удалить DRM от Apple Music и �
 ```bash
 magnet:?xt=urn:btih:53E42ADB70FFF45BF0267CEB15CC9719ABE3724A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Duplicates Expert представляет собой новое поколен�
 ```bash
 magnet:?xt=urn:btih:8C8AB9FD3FE7F730F330B0579A3EAB75227E60A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ VA - Любимые песни шансона. Версия № 10 (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:CD956D6DBBD6750EBC42633DAB2FF5D68744CB52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ VA - Best-of-ka на радио Шансон. Часть № 3 (2017) [MP3|256 K
 ```bash
 magnet:?xt=urn:btih:4F808FFD0724E0BAACF6F5A2C0E547A84FAEBBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E3F2FC0E762C848FCD906A64154C075133C0C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ CloudTV позволяет вам смотреть более 600 прямых �
 ```bash
 magnet:?xt=urn:btih:8329F9C668BFF268DD9354B0E98BC7C6752A6248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

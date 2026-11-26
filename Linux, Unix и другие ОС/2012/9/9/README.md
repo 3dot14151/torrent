@@ -22,8 +22,7 @@ Scientific Linux 6.3 Cyrillic Edition (+ НауЛинукс Школа)[i386 + x
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

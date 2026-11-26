@@ -19,8 +19,7 @@ Destroyer: The U-Boat hunter - это уникальный кроссжанро�
 ```bash
 magnet:?xt=urn:btih:85116970A7C1141E9796EEF4BD1246EC9F80658C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Against the Storm - это игра c элементами roguelite и стро
 ```bash
 magnet:?xt=urn:btih:39FAB2B42315A1D3FD89D6B4B4F469797492232F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

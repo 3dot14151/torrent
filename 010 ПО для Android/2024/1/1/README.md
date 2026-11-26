@@ -19,8 +19,7 @@ FBReader Premium v3.5.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3AD43BFD2A627E544563F390B86445469C47189D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Fraction Calculator Plus v5.7.1 Mod by srajawwal09 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0A282590C9D14990A9021B745F45EFE93F4BBE20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Grab Photos From Videos / Фото из видео v11.1.0 Mod by derrin [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:6D3FA815BD7285B1B7B5F762FBE33D0D386C9E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

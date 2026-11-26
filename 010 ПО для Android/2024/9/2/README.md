@@ -19,8 +19,7 @@ IPTV Pro v8.1.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B14C5FD6DEDA78901DB20BE250F26DCEF85082E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:1A20A38E9AC7AE10036FFA4EECAD6C28DDB49FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:D13A6FE4608F224538A13BEC3B99B07E5756048D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Picsart AI Photo Editor, Video v25.7.2 Final Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:81CA697A2DBDD65FD55DB289597E17187AE23598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

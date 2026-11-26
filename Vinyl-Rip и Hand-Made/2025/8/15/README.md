@@ -22,8 +22,7 @@ Redemption — американская прогрессив-метал-груп
 ```bash
 magnet:?xt=urn:btih:40C991FE5192E0444494B3D78ECF0AC1BFA29E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B2. Introspection II (03:01)(   Читать дальше...   )Жанр: Progre
 ```bash
 magnet:?xt=urn:btih:5EBBE5152FB11D4D0B58FE542DF45A5540CBC627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

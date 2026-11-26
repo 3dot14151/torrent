@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0F7CB3F5E2C2D577F7EEF0238967BC546821AF8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7C977E6979D1068B4236081477BBF13F53F6EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Fox Amoore - Come Find Me (2014) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:6F243A4A146DEB775C7E0F6FEFB21D25C4DD00A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Alcohol 52% - широко известная программа для эмул
 ```bash
 magnet:?xt=urn:btih:1725F200FF914E6A4D531C87DA00C0A288E1036F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA111EE1C3E8C4427E1E1E40964AC9DF83757C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Google Chrome 37.0.2062.102 Enterprise [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0793340B8D7B498F28CFCC2D727AC8C49E1460C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Quattroruote - великолепный, качественный глянцев
 ```bash
 magnet:?xt=urn:btih:82E7F300DC218F8CDECDC793505E65C6775E2A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Nevermore - This Godless Endeavor (2005) Japan [FLAC|Lossless]<Power/Thrash/Prog
 ```bash
 magnet:?xt=urn:btih:5D65DBD2DE58C1CDC25155D1C71A02427AEC42BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F188F85F4CA49D91F5B12B612F17C140A0FA9DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ CD. 1:
 ```bash
 magnet:?xt=urn:btih:CD41EAFB4EFC6F21D6EF55F21800EF2834EFC898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:253ED5C92BDEEABF2166DE2C840677BE2FAB77CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08BDCAEB2A2D93A0E833B3E112CCC9E92C121E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Comedy Баттл. Суперсезон. Лучшее. Выпуск №6  / Ко
 ```bash
 magnet:?xt=urn:btih:E8319EAC1A145F185F6EE26F153870138FA00B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ NeoOffice создан на основе офисного пакета OpenOffic
 ```bash
 magnet:?xt=urn:btih:6A427198902B08B8F903B8D8DCBFD346571041E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:905E3006441A7E8752C47333ED85CFBAEA7E31DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Flux является передовым программным обеспече
 ```bash
 magnet:?xt=urn:btih:2CAB80D3AAD546CFDAEEB249919E3B4D30F8EBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Lonely Kamel - 4 альбома (2008-2014) Дискография [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:1AAAAA58403BB940A8ABF705C904E4A5E0C087FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D280090DA83DABCF8D5400BA71C36E33DB9C6084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Adrenaline Rush - Adrenaline Rush (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8573134912311C36A67A16449DA7FCC7B14F4344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ Toh Kay and Sycamore Smith - You by Me: Vol. II (2014) [FLAC|Lossless]<Folk, Roc
 ```bash
 magnet:?xt=urn:btih:FA39F14C38D81823B5C8162FD67684789ADA26F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ Yahel & Eyal Barkan - Voyage (2000) [FLAC|Lossless] <Trance, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:D27C449BA2D8F497DD570CCEE0F2A70C31B36AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ Richard Searles - 3 альбома (1992-2009 [MP3|320 кб/с]<New age, Celtic>
 ```bash
 magnet:?xt=urn:btih:D8C4263516C0C6933CD64C83E5D7CCB529B0525B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74DF628F6D4FF885A90D058254D3DEFF9E0CD6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ Lemonchill - My Last Saying (2014) [FLAC|Lossless|WEB-DL]<Psybient, Psytrance, P
 ```bash
 magnet:?xt=urn:btih:D322949D033CEAB35FE002E604A5C4EC0CF16659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ Auslogics File Recovery® - легкая и эффективная в испол
 ```bash
 magnet:?xt=urn:btih:7475054998CF02D6C45282B65DB9451155028CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +717,7 @@ Motorhead - Aftershock: Tour Edition (2014) 2СD  [MP3|320 кб/с]<Hard Rock, H
 ```bash
 magnet:?xt=urn:btih:4A042C275C05F35EBFD79D686E1D7C5C71A5C224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

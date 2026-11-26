@@ -18,8 +18,7 @@ Windows Vista Home Basic Home Premium SP2 x86 6.0.6002 by Burnoutman [Ru]
 ```bash
 magnet:?xt=urn:btih:7404994D14FA6F1D779C75ECEA24DB8944161EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Far Cry New Dawn (2019) [Ru/Multi] (1.0.2/dlc) Repack Catalyst [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3785E378FF82F2685F643F1768A9BC1B7B1D69C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ WebForMySelf | JavaScript. Полное руководство для совре
 ```bash
 magnet:?xt=urn:btih:40FE23E6CFB0F0E64BD0C0A261D0F5FA035B7BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ ELEX - нарисованный вручную боевик с элемента�
 ```bash
 magnet:?xt=urn:btih:97A821573353A3B90AC88CD661B58876EB0B58BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ ABBYY FineReader 14 – универсальное решение для раб�
 ```bash
 magnet:?xt=urn:btih:6D64CD1DEEC14FB4777C496ACD8BC764C037DD97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ ru_windows_10_consumer_edition_version_1809_updated_feb_2019_x64_dvd_baed56dd.is
 ```bash
 magnet:?xt=urn:btih:D1A4E4EA6CD997610DA655D8C0BF102C3073BEAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84648C9A23DE184D2A119CA87DABA7FB22FFDA28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3D5E630B80E50779E67B34CA75F3CC306A062153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

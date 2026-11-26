@@ -19,8 +19,7 @@ Jos Dirksen | Learn Three.js: Program 3D animations and visualizations for the w
 ```bash
 magnet:?xt=urn:btih:6641E0B36AAFB336E25F68E11DD846FBF91DE04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

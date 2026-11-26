@@ -22,8 +22,7 @@ Deep Forest - французский дуэт, состоящий из музы�
 ```bash
 magnet:?xt=urn:btih:84C84CFE37FF6FE826B47CF17136733BA9C0525F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

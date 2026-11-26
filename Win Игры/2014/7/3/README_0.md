@@ -25,8 +25,7 @@ Professional Farmer 2014 (2013) [Ru/Multi] (2.143/dlc) Repack xGhost [Platinum E
 ```bash
 magnet:?xt=urn:btih:E9CDB5EC361D056440A96530EF0B206A683F2D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CastleStorm (2013) [Ru/Multi] (1.0.0.2/dlc) License PLAZA [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:28AD08F31C001B0D7483EA506945BCBC17827797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Lifeless Planet (2014) [Ru/Multi] (1.2) Repack xGhost
 ```bash
 magnet:?xt=urn:btih:C31A7BCCDCD6E0D49A29B1FC860F08A710A034B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ CastleStorm - это игра выполненная в смешении жан�
 ```bash
 magnet:?xt=urn:btih:2C90C35BFB39CA5575D582C74EC3A17418DCD854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Tropico 5 (2014) [Ru/En] (1.03/dlc) SteamRip R.G. Игроманы [Steam Specia
 ```bash
 magnet:?xt=urn:btih:37372518FDF083B16E9CC91EDE85C25DB7EAC884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Saints Row 4/IV (2013) [Ru/Multi] (1.0 upd8/25dlc) SteamRip R.G. Игроман�
 ```bash
 magnet:?xt=urn:btih:28037679F9EBD8BBDFD611CC229069BEAA6498BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

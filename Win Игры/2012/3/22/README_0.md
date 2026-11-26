@@ -23,8 +23,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ House of 1000 Doors: The Palm of Zoroaster. Collector's Edition / Дом 1000 д
 ```bash
 magnet:?xt=urn:btih:9662050E2C9547685948FDD511E7180FC802F724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Limbo представляет собой платформер, в которо�
 ```bash
 magnet:?xt=urn:btih:FCD6E16DC718E0788BE51D87EB1640B14C22ADF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Adam's Venture 2: Solomon's Secret [Ru] (P) 2011
 ```bash
 magnet:?xt=urn:btih:312A07DE099092A5A3A8060AA73303692D8FCD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ House of 1000 Doors: The Palm of Zoroaster Collector’s Edition / Дом 1000 �
 ```bash
 magnet:?xt=urn:btih:4B2DE9F5A366FB48138914AAD195DA0949C099E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Solitaire Mystery: Stolen Power (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:CD812BA290568832B70B0765EC0F90502E0B236C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Living Legends: Ice Rose Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:1794E80AE5BBD2E4E9972D967A2EA66565BBDB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

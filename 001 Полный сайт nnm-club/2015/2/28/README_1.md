@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:71A79648F3DFD98BF6A6B86CA6EC7A6BB6236C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B20A8BF53CCDBB0764A744BD0D57E56FC874FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06034F1F060A11A03B9FFBFB00E1F8262108C916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Larry Miller - Soldier Of The Line (2015) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:0B97B8FADFFE767979AE7AC72E56D561A499E20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Danse Macabre 3: Deadly Deception (2015) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:2AB1C730233EFCA5E0465EE90A8D23CA9882F97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA92DA07801A5D1E231CC94CB17A872FD07BB4BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Arbitrarium - Discography 4 Releases (2013-2015) [MP3|320 кб/с]<IDM, Downtemp
 ```bash
 magnet:?xt=urn:btih:A6D6A4697F133F52C8ACC5B2A8BED74D1710D25D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACD3ABDBD40E256D52E8C6BD460D0EE679A04F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Lorn - The Maze To Nowhere (2014) [FLAC|Lossless|WEB-DL]<IDM, Bass Music, Experi
 ```bash
 magnet:?xt=urn:btih:5737D95B644C81A436C4E02543AAB18965D103AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B279AE010465FB95C9A2E09A67FE0C6AA240837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70EEA4B78FCCE5F1D5FAFC7E67675FE81F2D26EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:246C33D284AB4B550489F1EE5D6161B9D7F4CB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5BF567FE4FDA139FAD22FA6EF635371E2764798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Tigerberry - Cold Wave (2015) [FLAC|Lossless|WEB-DL|24/44.1] <Witch House, Vapor
 ```bash
 magnet:?xt=urn:btih:8E5D0B7C2845AA7CAC8EEB115925E29CD2E7E5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:304170B8E07C9DF31870747DE4590D7162B53314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BE45C04E762E5CC63DA57069BFE896435535521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Nena - Oldschool (2015) [FLAC|Lossless|WEB-DL]<Pop, Pop Rock, New Wave>
 ```bash
 magnet:?xt=urn:btih:571BE903FE384B3A5EE2C6CE7B35BB7968E3EB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Witches' Legacy 5: Slumbering Darkness (2015) [En] Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:DD2CB329FD9A606665F0A6C461931B400742D37A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Lorn - The Maze To Nowhere / Part 2 (2014) [FLAC|Lossless|WEB-DL]<IDM, Bass Musi
 ```bash
 magnet:?xt=urn:btih:5DAEB33A2B8525056377917D1F6F9CCE1EC616FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C89E4C0FA59277F5AEA20E2EDDA61DF7C0D8F247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE07ECFA4742816388890488A294EBDF3C0D832A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ The Rolling Stones - Tattoo You (1981) UMG Remastered /2009, Moon Records/ [FLAC
 ```bash
 magnet:?xt=urn:btih:3929C48504EC872F84373641AFD185150066136A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC07270184C8FDC7F50C9735E372E65FF36D56B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:895B44C8A8F2E8B374AD32B91053C0378ADA61CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ VA - Rock Legenden: Puhdys+City+Karat (2014) [FLAC|Lossless|WEB-DL]<Rock, East R
 ```bash
 magnet:?xt=urn:btih:2301533018CA2E811A10AC2FF2EC2F810FBE1008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

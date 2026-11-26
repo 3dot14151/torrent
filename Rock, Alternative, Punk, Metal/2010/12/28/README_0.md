@@ -28,8 +28,7 @@ Finger Eleven - Life Turns Electric (2010) [MP3|320 kbps]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:8E9EB072FDEA28F98EB7C237C995C07CC0A9A177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Kinks - The Ultimate Collection 2CD (2002) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ ft. DJ Sector - VA - Сектор Газа   - Mixtasy (2010) [MP3|320 kbps]<Dis
 ```bash
 magnet:?xt=urn:btih:D990F52B44B9317EDEE900954BBBF8ABA2818A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Gorillaz - The Fall (2010) [MP3|320 kbps]<Electronic, Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:264B0AE69B129EFEB3F4365F1A6F3C3D76F5D435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

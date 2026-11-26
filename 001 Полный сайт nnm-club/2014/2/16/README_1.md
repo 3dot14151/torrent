@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:394A39D155F58C6EDFA62761D6287EED3B2B45C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED7893CA454F1217730BEFB7995B7E45215C1F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Зарубежные Новинки Vol.157 от AGR (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:8D901C5C631EC886EC66269042A523E20B0057F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - 100% Pacha Recordings Vol 1 (2014) [MP3|320 кб/с]<House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:2DE54722E8D23EE718FF40DF26D8587B499BCE6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ The New Gary Burton Quartet - Guided Tour (2013) [FLAC|Lossless]<Contemporary Ja
 ```bash
 magnet:?xt=urn:btih:062A4165DF79B86ED7CF5590DCA4FBB9B2B48AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ VA - Зарубежные Новинки Vol.158 от AGR (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:F29C3D1BBB765149A8FCAA21D1F9CC1A3B9CFEE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ VA - Зарубежные Новинки Vol.161 от AGR (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:53240B67F12C3483EAADF72AFFE11349AA47E2B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Lou Reed - Milestones (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:6100950EFB87E54029B91CC5231BE92B8EA0DB3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:593DA844E3F170AB3DEEF60108E6D4B13E0887DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89D3C978A4EB5F6E4C9AA3B424BE3D40A5E64814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ n/a
 ```bash
 magnet:?xt=urn:btih:630EB8E937F5D1DB3D7AAAAD9008C1426507133B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +371,7 @@ VA - Зарубежные Новинки Vol.160 от AGR (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:D6DDCB72BA4148558B38D56A5C8CFB4AFF49DAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +405,7 @@ VA - Русские Новинки Vol.146 от AGR (2013) [MP3|320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:CECF2CDADD0AD81B357CA81BF1F3B6F815088540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4414A39E74B218A017F6E3E6F9D6A0D6122C5242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88F31B254B49D2F8D4F8621A6664F512BF6C1FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1E3EB5C2376B1EE35BF8718A3E2163AD2B4CA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FACAB8A2D4E0403B61C31433805854EEB40CE600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ Whispered - Shogunate Macabre (2014) [FLAC|Lossless]<Melodic Death Metal/Symphon
 ```bash
 magnet:?xt=urn:btih:26BC447175935D518BD53580C6CB8D14B9AF8252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +577,7 @@ Haldolium - NINI (2013) [MP3|320 кб/с]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:6AD5C9D0DC9C23DDAB722210B88509C2EA3DB962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ VA - Armin van Buuren - A State of Trance 650 - Live @ Utrecht, Netherlands (Mai
 ```bash
 magnet:?xt=urn:btih:6D6E19A519E4261241BE0E86969E3F36891D0726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEF43A0636C26574C5764FCC903CC16FE7FE87DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1E449C192C3E23E1AE204D173C2B2CD10773A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92F06E8E2722219928B6DB7420472004BDEF4608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51FE33FEBF335DDFAB3451EBB222E43852C6D233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:418FCD52B6405554250E4FCE160005DBF00278F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B5AB318ABC278AAB71C530C384458DE096C4A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

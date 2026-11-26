@@ -22,8 +22,7 @@ Hinder - The Reign (2017) [MP3|320 Kbps] <Hard Rock, Alternative Rock, Post-Grun
 ```bash
 magnet:?xt=urn:btih:91FF6370F193D48494649A616CBB282397318303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

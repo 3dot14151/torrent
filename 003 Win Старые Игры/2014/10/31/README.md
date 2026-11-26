@@ -20,8 +20,7 @@ Pool of Radiance: Ruins of Myth Drannor - современная реинкар�
 ```bash
 magnet:?xt=urn:btih:F19B232874C582EB39F196C6A9394404A55861A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Nosferatu: the Wrath of Malachi / Вампиры (2003) [Ru/En] (1.0) Repack R.G
 ```bash
 magnet:?xt=urn:btih:2C855DFEFEFF035AA9734E5AB744093504C578A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

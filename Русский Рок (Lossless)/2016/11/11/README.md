@@ -22,8 +22,7 @@ Project NT - Бесы (2016) [FLAC|Lossless|image + .cue] <Experimental, Psyched
 ```bash
 magnet:?xt=urn:btih:606CDA54F96E415836D7C42651EAA442C8ABFD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

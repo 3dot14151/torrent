@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5960BD1EBCCB96506DCE0C56E469752CB5CB5D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ VideoStudio Pro X8 создана для обработки видео и поз
 ```bash
 magnet:?xt=urn:btih:04B458CB84F6DC328C5D79A238FAB7F0C940B89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75C71350634A732FB2BD96995580874567BE48D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Elemental 2D FX pack - содержит более чем 100 мультипли
 ```bash
 magnet:?xt=urn:btih:0686E88DB1DCBF8727E3E78BDE88B8245773FE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:902B5A498EFE5B79DAA5B1178F32B71AB090E8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C4CA02F922554EB09B09864D911AA62AF153D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94664578C8C22BC24C0FC3842DECEC2143F84140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ CorelDRAW Graphics Suite X7 - новый графический пакет, по
 ```bash
 magnet:?xt=urn:btih:5528EE29B42A19A4A6B515B0B92894DDDA93EB26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ PROMT Expert 10 – надежный и эффективный инструме�
 ```bash
 magnet:?xt=urn:btih:FF5214CB7E26B8E05FB32D71AC2905A2A2DDF982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Splash – проигрыватель мультимедийных файлов,
 ```bash
 magnet:?xt=urn:btih:341041C092313D9907BE3FF8D55C83ECFC35D090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Symantec Endpoint Protection, использующий технологию Insi
 ```bash
 magnet:?xt=urn:btih:26EA703EA2BF7DE11EFA023423D02E6F27B2DD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Futuremark 3DMark 1.5.915 Professional Edition [Multi]
 ```bash
 magnet:?xt=urn:btih:A7C9F400B985ADCDACB7CA836DACF5860A809BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02E98DC06BEBC0187F5F7FDFA9636C89980B8E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Navitel / Навител  v9.4.0.0 [Ru/Multi] - для КПК на Windows Mobil
 ```bash
 magnet:?xt=urn:btih:6A541E9B0B4E3D7776969B15482463ADE33B8C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Need for Speed: Underground уже дважды встряхнула миров�
 ```bash
 magnet:?xt=urn:btih:4A42138EAE0D9C447A8FD292797756D8F7CD95E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ League of Light: Dark Omens Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:D0F29D507967168964E53A7F0434C4E340814454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Face Noir (2012) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:810D174834B13BC938A307C607F0CE2D9DB13EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Trine — игра в жанре платформера и головоломк�
 ```bash
 magnet:?xt=urn:btih:854A0E76EDA403D9FE13B7074D0DD252AFD59F36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Sid Meier's Civilization III: Complete — это самое последнее 
 ```bash
 magnet:?xt=urn:btih:671CC7FDD5ACDE4250A8068E4BB7219FB00902BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

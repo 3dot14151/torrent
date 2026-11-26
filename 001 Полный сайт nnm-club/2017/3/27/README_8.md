@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D4ED639E04AD8492E2D678C7041A8BA0A3E2726B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:943F732A1EE5CE46B7074A98232B3471F22237DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1ECEF5D7AEA20225FA0476ED4C1A7E92B3B579CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:E7919B1AA049099C963FBF0894B280EED727AB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93CF3CA709E7BE3D9EA6ABE55EF3829F205C9F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Spring Uplifting (2017) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:367D9453DE211FE0B0C6709A67F9334481B3075B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Freddie Hubbard - Born To Be Blue (1981) 1999, Original Jazz Classics [APE|Lossl
 ```bash
 magnet:?xt=urn:btih:D11D7E8D6D64EFB3E57271EE18D3736AE351CF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Spring Progressive Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2D88C2735912FF81B011924A64FBF886157ECABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Maglev - Artist Focus 67 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:1BE650F18D3B7E9078A26CECA75A9783FF64FAB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ John Coltrane - The Best Of John Coltrane (1959, 1960) 1992, Atlantic [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:7342D85B8873E36611BC76C9BE0197EC3C51C99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - House Ladies Vol 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:533C34318213A5E44FFC9C047999D99ACD287006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Cloudz - Light Spirit Body (2017) [MP3|320 Kbps] <Ambient, Chillout>
 ```bash
 magnet:?xt=urn:btih:6C0B8D68B2BB095BE58677D2A473985477038B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Formentera Beach Sunset & Sunrise Chill Collection (2017) [MP3|320 Kbps] <D
 ```bash
 magnet:?xt=urn:btih:B0B01AD2720E44BDA010FEDBB72723046BF4190F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Положительный заряд отличного настроени
 ```bash
 magnet:?xt=urn:btih:385C4E5AC492F3A1BA33026F9F1EF62C80BB87C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Танцевальная вечеринка на Hit FM выпуск № 5 
 ```bash
 magnet:?xt=urn:btih:656622359110D0CD64D045104F76D61EE9683983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Lounge System Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:83E976DF94C509BC7665EE61FA0DB1CBBB676A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:C11DF8EDE0C577E830A9C955E139B313017B5958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Chris Duarte Group - Tailspin Headwhack (1997) [FLAC|Lossless|tracks + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:1483B4F7EBCBCC8A47024889B79A04D131689358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ VA - Лучший весенний хит. Сборник № 7 (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:62EF37BF9DD224E42972F21A0E9191B6EAB90162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ VA - Miami Hits (2017) [MP3|320 Kbps] <Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:3DB8CA103B3C5FAAF21141DC56B40F2AEF4AFDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ DupeZap (бывший DupeZap Plus)  - Утилита, позволяющая и
 ```bash
 magnet:?xt=urn:btih:C0D7FF65F449D1D67A4A514A54D7FA3EF50FFAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 ```bash
 magnet:?xt=urn:btih:5470EF665878E7789124EB34AB2644880A431E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ Suffer the Silence - All Things Beautiful (2017) [FLAC|Lossless|WEB-DL|tracks + 
 ```bash
 magnet:?xt=urn:btih:0C0AD0E1CD08248C0B423383BD92E24301CE9A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Miles Okazaki - Trickster (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
 ```bash
 magnet:?xt=urn:btih:D8F5E6F7C2B974585993030EAF08CD1D63A44B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ VA - Козырная песня. Выпуск № 5 (2017) [MP3|256 Kbps] <Ша
 ```bash
 magnet:?xt=urn:btih:4271F108D91F2FBA47A131F86E514EE972621276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:653D09E4485C955B2153197811DDE34CE67A7A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

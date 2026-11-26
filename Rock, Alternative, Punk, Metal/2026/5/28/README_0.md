@@ -22,8 +22,7 @@ Social Distortion - Born To Kill (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 ```bash
 magnet:?xt=urn:btih:3FD19748CDB540C4045AECD89929EB7E3DB715E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Rare Form - Pulling Me Down (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 ```bash
 magnet:?xt=urn:btih:1D1E389A643E0D7CBAB7B2AB3FDD39E55B4E7149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Simon Bromide & Bromide - Forest Mountain Forest (2026) [FLAC 24/44.1|Lossless|W
 ```bash
 magnet:?xt=urn:btih:138914D1B1B5552BBA6462B06920839527E4C5EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Serpent From Eden - Serpent From Eden (2026) [FLAC|Lossless|WEB-DL|tracks] <Heav
 ```bash
 magnet:?xt=urn:btih:C3FC0E61D94DEC3AC6F1375995BDE74D1C2D92C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Geddy Lee - My Favourite Headache (2000) Reissue, 2024, Anthem Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:57FDA827C80D58E5E07D0732F4DC88B6DE4F7405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Above the Treachery - We're Not For Everyone (2026) [FLAC 24/44.1|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:FC96B8D999E7CCD66EBFF1152EC7CF6E5CAB7B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Backstreet Girls - Full Tilt Boogie (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:E57453E783B1278AE8243AA5A8BCBA79AE202549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Caspian Coberly - Starlight (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:3588FCD937A8880E786C8A154135C0EF3BFB2791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Crocodiles - Greetings from Hell (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 ```bash
 magnet:?xt=urn:btih:51D336CCEB1A7A892327A5E84595E520765CA1E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Dennis Atlas - Principle (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:06300A951FEE01BBFD508C83BAB7B2828D2C2146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Generation Radio - Take Two (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:6667C5F5B55D6714C37F7ABA2D1FF80C8916643E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ James and the Cold Gun - Face In The Mirror (Deluxe Edition) (2026) [FLAC 24/44.
 ```bash
 magnet:?xt=urn:btih:99E3DE80C299C817D8AAADC52042D9CEAA6AE365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Thomas Borgeback - This is not here, Pt. 2 (2026) [FLAC 24/44.1|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:28DBF78A7CDD76B334B4A2977BF4C7B776060F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Abandon Agony - Endbringer (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 ```bash
 magnet:?xt=urn:btih:8C0E778D02632CB59D7D90FC84FB6EB07B064EEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Wilmer x - Popmonster (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:53E1106C7BD66E310BC6CEFEBE5C542A2F7E9FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Young the Giant - Victory Garden (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alt
 ```bash
 magnet:?xt=urn:btih:07276580C242DCD0D68228EDF94780C8275B56E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:1F761ACC9C993DEF62D35F090B14A8E5DC19D5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Magister Templi - 2 Albums (2013-2015) [FLAC|Lossless|WEB-DL|tracks] <Heavy/Doom
 ```bash
 magnet:?xt=urn:btih:6168E50A543111B15F7FBA8F2FC3B270B7510D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

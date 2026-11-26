@@ -21,8 +21,7 @@ Sirenia - The Seventh Life Path (2015) Limited First Edition [AAC|256 кб/с]<G
 ```bash
 magnet:?xt=urn:btih:3AA2F97A7859F108ED25F38504259CB2F6374A5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:056680BE25BB0BA9B4E407231C3F2B286B78C3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Children Of Bodom - I Worship Chaos (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]
 ```bash
 magnet:?xt=urn:btih:18AE3048FB53284DC3D7FC9733C325D1A40636AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Privacy Eraser Free 4.4.0 Build 1580 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DFD6F9DE1B85ECE7AB7AA25E785B153CDAB4FA72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Comedy Баттл. Последний сезон. Этап 2. Выпуск №27
 ```bash
 magnet:?xt=urn:btih:FBE0516BB382106E6E4D8BB0EDFE0DA66A09E30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA61F0AD4D62F846E580F7112BB8BE86AF899FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Thunderbird — 12 декабря 2004 года появилась беспла�
 ```bash
 magnet:?xt=urn:btih:D3D092C8A6CB68CE9E5B9E90813B7A8F5FE5EE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4D5D18654175F2623670ED1FCD7C2F6C98AEF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2FD93D78789504FFC0E9FCE7E9FF769AD87BB5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Norton Removal Tool 22.5.0.17 [En]
 ```bash
 magnet:?xt=urn:btih:ACAB1B0CF7E5079B39E26402C71F1F567D83CBE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Lara Fabian - Good Songs (2015) [MP3|160 кб/с]<Pop, Female vocalists>
 ```bash
 magnet:?xt=urn:btih:8C4D1FC49A4C2510761201A0996EC86CBEACD9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Vanessa Paradis - Good Songs (2015) [MP3|320 кб/с]<Pop, Dance pop>
 ```bash
 magnet:?xt=urn:btih:A11AD88B5F129545A48631B86CE2B2B1F2D9DEBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ VA - Another 100 Melodic Rock Anthems (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:F82162326FA97E110DE72095A54A8F3E47F35B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:5FD4FB4285031A4EF1D405ABEAEAD2393797F099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:005A880C9676171572DCB1D5701E5DF486C409E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:598154485DC9A1CB64786E78493987882C8A2BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA7BF5960AC7647673E2C500DE38E448FF4A00B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ pCloud - это Ваше личное облачное хранилище, гд�
 ```bash
 magnet:?xt=urn:btih:4A1B774BCD06E8EF23DE1A1837531A34FDC63789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ MEGA (файлообменник) - безопасный сервис облач
 ```bash
 magnet:?xt=urn:btih:346DCCE063E6DFC4B4384D72755BF184DB43D68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ Samantha Fox - Good Songs (2015) [MP3|256 кб/с]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:D92F005A68AFACC0BA09F88B4E0A456B149F4F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D99F83CAE338CCEC6A994673457FE5483F73A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ VA - Car Audio. Music Road Vol.2 (2015) [MP3|320 кб/с]<Club , Dance , House>
 ```bash
 magnet:?xt=urn:btih:FF9A0EE53C8A8C7878247FB2B6AD8B4522FA81B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ Comedy Woman  (2015.10.02) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:2F2BD6FDA58E3D66C1558653E928D972568BB599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32D23DB26C0A0ED6BC50A1F9984A7799D5703EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:785BE693155AB687DD4E38AA80C9DE2F83BCBFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ W.A.S.P. - Golgotha (2015) Limited Digipak [FLAC|image+.cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:13AD9E5DF628AB0E7F7544D697E854FE1D753C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

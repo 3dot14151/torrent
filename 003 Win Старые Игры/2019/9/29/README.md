@@ -19,8 +19,7 @@ Resident Evil 2 Seamless HD Project (1998) [En] (1.0) Repack/Mod Andriel
 ```bash
 magnet:?xt=urn:btih:5AFBEE0E39D17AE01D0024588C9A0211B0813D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

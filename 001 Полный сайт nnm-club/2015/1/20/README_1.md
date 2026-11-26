@@ -23,8 +23,7 @@ Chopin - Polonaises, Nocturnes, Mazurkas: Janusz Olejniczak (2009) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:049B51811044710378EAAEF730AF845AECA8FA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4990DDAD96F8C07FBED04F96FFAFD8F0861932B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Elle — самый популярный журнал мод в мире. Его
 ```bash
 magnet:?xt=urn:btih:F012D1BEC618A89816188630FD5019314A9A931F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Samsung | Руководство по ремонту MP3 плейеров Samsun
 ```bash
 magnet:?xt=urn:btih:957D29AA143F2595187E6CA3BB1006B145E9ABAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Inside the Actor’s Studio – популярная программа кабе
 ```bash
 magnet:?xt=urn:btih:FCF488C003287BD8FA7FA4FD978D81E2B22ECE6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - Rockin' Bones. Red Hot Rockabilly (2013) 3CD [MP3|256 кб/с]<Rock'n'Roll,
 ```bash
 magnet:?xt=urn:btih:47A122D8ED77C8BF3830F4D17CAAF7063FCB591F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:083BC41C77FBB55C8D7FB1E705CCF200C50FB18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Meghan Trainor - Title (Deluxe Edition) (2015) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:CEBF97956FFF6B2FA36C5895C9DAEC7D19376814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Papa Roach - F.E.A.R. (2015) [MP3|192 кб/с]<Alt. Rock / Modern Rock / Electro
 ```bash
 magnet:?xt=urn:btih:0E5AD368CD81BB52F46245E3F20BD64CE49AAC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ VA - Зарубежная дискотека. Европейская бомба 
 ```bash
 magnet:?xt=urn:btih:D4C9F585F9B38E08EFB043B0B78FDA3919917503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:313C7B265086D98713A9175124586ABE2AB8982B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A7443107C37605DBA428698C29B66785426A8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A980FF1DAFC2D08867727F715C6A6A053C24CE1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ VA - Дискотека 2015 Dance Club Vol. 134 (2015) [MP3|320 кб/с]<Club, 
 ```bash
 magnet:?xt=urn:btih:F207CB3AAACFBAEDFF3A4B33DC9EF0C6CAA6AF1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1A0BF6A2E54CC57D94DAD9F306EA19CACB92FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Gilisoft Slideshow Movie Creator 7.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:D7B76025180136E45BC5294D49030FCB7781C4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ Aphex Twin - Computer Controlled Acoustic Instruments Pt2 EP (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:8B83B43C3F7B86E1A45FA9A11A1744198E4A1F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ VA - Музыкальные Новинки Интернета 50/50 (2015) [MP3|
 ```bash
 magnet:?xt=urn:btih:8B8B0945439E22F66355AD6E7A4F0D0CC614FE62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:359D4A5F935781690F5516988DF7BF1F48EDD370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ Piano Sonata No. 16 in A minor, D. 845 (Op. 42)
 ```bash
 magnet:?xt=urn:btih:30F80D183560EE835765C653C3E88F59E98DA3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +601,7 @@ Tom Jones - 13 Smash Hits (1988) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:9017FFCB5D0D6822D105688AECCF272672144A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ Harmony API - средство от компании Logitech, которое п
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AF10A7684D60CF9C34655A8A5BF39F4F9A5844C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ Timothy Wenzel - 4 альбома (2011-2014) [MP3|320 кб/с]<New age, Relax, 
 ```bash
 magnet:?xt=urn:btih:38509A32A7EE3FC48ACA66F2F470AC8882E11C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F0C78A7491A34092CD48D9237229689CF342746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B30569EF5B01A1DDC7E03BC0BDD38777874EE8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

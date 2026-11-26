@@ -19,8 +19,7 @@ Chess Tutor это программа для Windows для изучения ш�
 ```bash
 magnet:?xt=urn:btih:BFEA8FD0494904C96DC48F6A04B5F714C9C95114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Of Ash and Steel - ролевая игра от третьего лица с о�
 ```bash
 magnet:?xt=urn:btih:63F738A6108A132615A0C847F7F2BB170C181502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) Repack FitGirl [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:2B518E307F3BDBB0C4435F15CB419BCA9F0F1D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) License GOG [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:E3B046A0B48DE27A9A82DBA450927A1996D79DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Slyders (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:80BE9AC0134FD012528A6B8D11E68297EF3D32AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Constance - это двумерный приключенческий экшен 
 ```bash
 magnet:?xt=urn:btih:311388E1A5EAB2D70816C2C58BC59BE037C98EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Radiolight (2025) [Multi] (0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:6E81BAD5D85D229FC8BA1A417F8124B5BBF459E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Bigfoot Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:728E9D080C363BAAA3A0974B085415E4AAEC39A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3320995F2D2F440FCC1D7A31A93CB5BACE34521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Nostradamus: The Last Prophecy – квест от первого лица, со
 ```bash
 magnet:?xt=urn:btih:E19E19E9250D6AE20C337890F7ABB88D608F4D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Hell Clock (2025) [Ru/Multi] (1.2.0_17965/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:90A22939091F10121CDF1FBFFC56A2C548A15DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.4.0.12/dlc) Repack Necros [Mega Editi
 ```bash
 magnet:?xt=urn:btih:0D21EBF17C0D6A11BBB13DA27BC5775971B889B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Project Motor Racing - это не просто симулятор гоночн�
 ```bash
 magnet:?xt=urn:btih:443CE1F5A148AE2CED5E13C33E624C81D2CD3B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

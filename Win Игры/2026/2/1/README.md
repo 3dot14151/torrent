@@ -19,8 +19,7 @@ DOOM Eternal от id Software – прямое продолжение хита D
 ```bash
 magnet:?xt=urn:btih:3216DA9E82F211F4AE7CC6121E5E2439642232ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DYSTHANASIA (2025) [Multi] (1.0.8.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:2D9F4994008B87ACC66AD7DFF97049A41C60DDD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Super Woden: Rally Edge (2026) [Ru/Multi] (Build 21510214) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:350ABD3933C4C6F50936C53D41CD3955D6F288F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Super Woden: Rally Edge (2026) [Ru/Multi] (Build 21510214) Repack Other s
 ```bash
 magnet:?xt=urn:btih:02415AECCE96271BD6FD4CF2C865440E3DE46DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.18.1029/dlc) Repack Wanterlude [The One 
 ```bash
 magnet:?xt=urn:btih:1B920A2E1126B6F9040B52051C01F66B028434EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Immortals of Aveum, сочетающая в себе шутер от перво�
 ```bash
 magnet:?xt=urn:btih:FB1D2E0234D3034A994696ADFA1CC40B2D91C246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

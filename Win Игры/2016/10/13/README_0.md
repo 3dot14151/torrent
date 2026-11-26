@@ -19,8 +19,7 @@ Mantis Burn Racing (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F1E3004A782148282B3F14B83344D391CCA04911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kerbal Space Program - многожанровая игра, где вы созд
 ```bash
 magnet:?xt=urn:btih:DDF3845DE2CBB7AC05691066D183EF86C3CDDAD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead Island: Riptide - Definitive Edition – переиздание, состо
 ```bash
 magnet:?xt=urn:btih:14EC4308694A7D89DE626F453D97196A2F1D3973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dead Island сочетает в себе экшен с видом от перв�
 ```bash
 magnet:?xt=urn:btih:E5F006A54C6D3CC054F268AC55CC9CF368E34AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Coronatus - Terra Incognita (2011) [FLAC|Lossless]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:35F0937CB9953CCAA68ADED30EA74BAB629C73A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ An Autumn For Crippled Children - Try Not To Destroy Everything You Love (2013) 
 ```bash
 magnet:?xt=urn:btih:D2A9FD68160760F6C6BEBE738EF7970710EE7A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Heart of a Coward - 2 Альбома (2012-2013) [FLAC|Lossless]<Progressive Met
 ```bash
 magnet:?xt=urn:btih:BC8DBB189990279D9CED9ED9EE809E0515ABA708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Daughtry - Baptized (2013) [FLAC|Lossless]<Alternative Rock, Post-Grunge, Hard R
 ```bash
 magnet:?xt=urn:btih:CE3CF2081E2A03E4662F5A87D4E34527BC878AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Lori! Lori! - Всё неправильно (2011) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:E42BA288B12637C0535B049401BEE986ADA88276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Grizzly Bear - Shields: Expanded (2013) [MP3|320 kbps]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:434D8CF4521B4AF33A102D9F7468319EED81748A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EB664432B56E399EAC924D204D628E84DE53669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

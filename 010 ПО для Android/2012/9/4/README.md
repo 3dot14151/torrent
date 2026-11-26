@@ -28,8 +28,7 @@ Hi-Q MP3 Recorder - Качественный MP3 диктофон (03.09.2012) <
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
